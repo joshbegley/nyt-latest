@@ -1,3 +1,11 @@
+**For Virginia Tech, the move is simple: Go all in for James Franklin**\
+`Franklin is the best candidate to take the Hokies back to the glory days they enjoyed under Frank Beamer.`\
+https://nytimes.com/athletic/6730626/2025/10/19/james-franklin-virginia-tech-coach-candidates/
+
+**The Right Has Gone Woke**\
+`Language policing. Cancel culture. Victimhood contests and cultural grievances. Despite attacking the left for partaking in such practices, there’s an emerging set of individuals on the right who have became exactly what they’ve criticized. Meet the woke right.`\
+https://nytimes.com/video/opinion/100000010453273/the-right-has-gone-woke.html
+
 **Former Yankees, Mariners catcher Jesús Montero dies after traffic accident in Venezuela**\
 `Yankees GM Brian Cashman said Montero "may well be the best player I've ever traded" after dealing him to Seattle in 2012.`\
 https://nytimes.com/athletic/6730970/2025/10/19/jesus-montero-dies-yankees-mariners/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6730744/2025/10/19/ap-top-25-vanderbilt-indiana-col
 **How good is the Florida job after Billy Napier?**\
 `The tradition of the Swamp, the three Heisman Trophies and everything around the program are as true to college football as it gets.`\
 https://nytimes.com/athletic/6729290/2025/10/19/florida-football-coaching-search-job-money/
-
-**Florida fires Billy Napier, ending more than a year of tension**\
-`In firing Billy Napier, Florida has not had a football coach last more than four seasons in 15 years. `\
-https://nytimes.com/athletic/6648133/2025/10/19/florida-gators-billy-napier-fired/
-
-**The Briefing - Liverpool 1 Man United 2: Amorim savours finest result yet as champions' gloom deepens**\
-`Ruben Amorim's side secured their first league win at Anfield since 2016 as the champions suffered a fourth loss in a row`\
-https://nytimes.com/athletic/6728290/2025/10/19/liverpool-manchester-united-mbeumo-maguire-gakpo-analysis/
 
