@@ -1,3 +1,7 @@
+**Lowetide: Why Oilers' goalie of the future might be in Fort Wayne, Indiana**\
+`Something unusual is happening in the career of Nathaniel Day, the Oilers' sixth round pick in 2023.`\
+https://nytimes.com/athletic/6728750/2025/10/19/edmonton-oilers-goalie-prospect-nathaniel-day/
+
 **Jets receiver Garrett Wilson out vs. Panthers with knee injury**\
 `The star receiver was hurt during last Sunday's loss to the Broncos in London.`\
 https://nytimes.com/athletic/6712927/2025/10/19/garrett-wilson-new-york-jets-injury/
