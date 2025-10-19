@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6729538/2025/10/18/arizona-state-beats-texas-tech/
 https://nytimes.com/athletic/6729489/2025/10/18/oilers-devils-ryan-nugent-hopkins-connor-brown/
 
 **UAB hands No. 22 Memphis its first loss days after firing coach Trent Dilfer**\
-`In their first game after firing Dilfer as coach, the Blazers upset the undefeated Tigers, stopping them late on the 11-yard line.`\
+`Interim coach Alex Mortensen, the son of ex-NFL analyst Chris Mortensen, and the Blazers upset the Tigers, who were stopped late at the 11.`\
 https://nytimes.com/athletic/6729440/2025/10/18/uab-upsets-memphis-alex-mortensen-trent-dilfer/
 
 **College Football Playoff 2025 projections: The most likely bracket with Week 8 underway**\
