@@ -1,3 +1,11 @@
+**The Briefing - Tottenham 1 Villa 2: What went wrong after flying start? Did Danso prove a point?**\
+`The Athletic breaks down the talking points from Tottenham's home defeat to Aston Villa `\
+https://nytimes.com/athletic/6728282/2025/10/19/tottenham-1-aston-villa-2-thomas-frank-analysis/
+
+**This Easy Pumpkin Cake Is Perfect for Sweater Weather**\
+`Yossy Arefi’s crumb cake is warmly spiced, topped with a thick blanket of streusel and, above all, utterly relaxed.`\
+https://nytimes.com/2025/10/19/dining/this-easy-pumpkin-cake-is-perfect-for-sweater-weather.html
+
 **Blue Jackets Sunday Gathering: The franchise's first pick nearly landed elsewhere**\
 `When members of the inaugural Blue Jackets team were honored this past week, Klesla had a brush with what might have been.`\
 https://nytimes.com/athletic/6727303/2025/10/19/blue-jackets-rostislav-klesla-injuries/
