@@ -1,3 +1,7 @@
+**How a trio of Chelsea half-time changes served to wreck Nottingham Forest's game plan**\
+`The resources at Enzo Maresca's disposal allow him to be more tactically flexible, as his half-time switches demonstrated at the City Ground`\
+https://nytimes.com/athletic/6729459/2025/10/19/chelsea-forest-guiu-pedro-analysis/
+
 **Why Virginia Roberts Giuffre Would Not Stop Talking About Jeffrey Epstein**\
 `Virginia Roberts Giuffre spent so much of her life telling the story of her abuse.`\
 https://nytimes.com/2025/10/19/opinion/epstein-survivor-trauma.html
