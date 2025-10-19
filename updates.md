@@ -1,3 +1,7 @@
+**Feldman's candidates to replace Billy Napier at Florida, from Kiffin to Golesh**\
+`The Gators have a few quality candidates from the SEC and Big Ten head-coaching ranks. `\
+https://nytimes.com/athletic/6731200/2025/10/19/florida-coaching-candidates-billy-napier-fired/
+
 **Demaryius Thomas joins Broncos' Ring of Fame, his bust adorned with 'that smile'**\
 `The Broncos unveiled Thomas' Ring of Fame pillar Sunday, which sits, fittingly, next to that of his quarterback, Peyton Manning.`\
 https://nytimes.com/athletic/6730859/2025/10/19/demaryius-thomas-broncos-ring-of-fame/
