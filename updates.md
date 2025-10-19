@@ -1,3 +1,11 @@
+**FIA faces ethics complaints from former candidate Tim Mayer over elections process**\
+`Tim Mayer alleges election rules create 'illusion of democracy' and effectively leave only one viable candidate`\
+https://nytimes.com/athletic/6730608/2025/10/19/fia-ethics-complaints-tim-mayer-elections/
+
+**Florida fires Billy Napier, ending more than a year of tension**\
+`In firing Billy Napier, Florida has not had a football coach last more than four seasons in 15 years. `\
+https://nytimes.com/athletic/6648133/2025/10/19/florida-gators-billy-napier-fired/
+
 **Vikings use unusual defensive alignment to try to defend Eagles' tush push**\
 `The Vikings had rookie Tyler Batty lay down in front of Eagles center Cam Jurgens. The play never happened though due to a false start.`\
 https://nytimes.com/athletic/6730989/2025/10/19/vikings-eagles-tush-push-defense-strategy/

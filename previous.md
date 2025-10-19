@@ -1,3 +1,7 @@
+**FIA faces ethics complaints from former candidate Tim Mayer over elections process**\
+`Tim Mayer alleges election rules create 'illusion of democracy' and effectively leave only one viable candidate`\
+https://nytimes.com/athletic/6730608/2025/10/19/fia-ethics-complaints-tim-mayer-elections/
+
 **Vikings use unusual defensive alignment to try to defend Eagles' tush push**\
 `The Vikings had rookie Tyler Batty lay down in front of Eagles center Cam Jurgens. The play never happened though due to a false start.`\
 https://nytimes.com/athletic/6730989/2025/10/19/vikings-eagles-tush-push-defense-strategy/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6730744/2025/10/19/ap-top-25-vanderbilt-indiana-col
 `The tradition of the Swamp, the three Heisman Trophies and everything around the program are as true to college football as it gets.`\
 https://nytimes.com/athletic/6729290/2025/10/19/florida-football-coaching-search-job-money/
 
-**Florida fires Billy Napier, ending more than a year of tension: Sources**\
+**Florida fires Billy Napier, ending more than a year of tension**\
 `In firing Billy Napier, Florida has not had a football coach last more than four seasons in 15 years. `\
 https://nytimes.com/athletic/6648133/2025/10/19/florida-gators-billy-napier-fired/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6730784/2025/10/19/rams-jaguars-score-result-takeaw
 **Smith: The Wild better wake up soon before early-season slide proves costly**\
 `Last year the Wild started hot and ended up needing every point to make the playoffs. This year they're struggling.`\
 https://nytimes.com/athletic/6730603/2025/10/19/minnesota-wild-slow-start-foligno/
-
-**Trump and Colombian President Trade Digital Attacks Over Boat Strikes**\
-`President Gustavo Petro of Colombia accused the United States of murder in the death of a fisherman in a strike in the Caribbean last week.`\
-https://nytimes.com/2025/10/19/us/politics/trump-colombia-petro-aid.html
 
