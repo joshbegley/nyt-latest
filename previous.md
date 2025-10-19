@@ -1,3 +1,11 @@
+**‘Larsen C’ Review: Grand, Dark and Inhumanly Cold**\
+`At the new Powerhouse: International festival in Brooklyn, Christos Papadopoulos debuted an oblique, glacially cool work with seven dancers.`\
+https://nytimes.com/2025/10/19/arts/dance/larsen-c-review.html
+
+**The Pulse: Undefeated teams slammed**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6729833/2025/10/19/undefeated-teams-dropping-like-flies-across-college-football/
+
 **Epoch Times Reporter Resigns After Publication Signs Pentagon Rules**\
 `The reporter, Andrew Thornebrooke, also cited a recent editorial directive to refer to antifa, the far-left ideological movement, as a terrorist organization.`\
 https://nytimes.com/2025/10/19/business/media/epoch-times-pentagon-press-rules.html
@@ -7,7 +15,7 @@ https://nytimes.com/2025/10/19/business/media/epoch-times-pentagon-press-rules.h
 https://nytimes.com/athletic/6730016/2025/10/19/dodgers-world-series-matchup-mariners-blue-jays/
 
 **Sharks apologize for scoreboard message praising ICE on night celebrating Hispanic heritage**\
-`The message was shown during the first period of the game between the Sharks and the Penguins on "Los Tiburones Night."`\
+`The message was shown during the first intermission of the game between the Sharks and the Penguins on "Los Tiburones Night."`\
 https://nytimes.com/athletic/6730478/2025/10/19/sharks-scoreboard-hispanic-heritage/
 
 **SEC vibes after Week 8: Vanderbilt, Missouri and a year of constant parity**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6730614/2025/10/19/bruins-vs-mammoth-stream-how-to-
 **How to watch Ducks vs. Blackhawks: Time, TV, streaming**\
 `Find out how to watch the Anaheim Ducks play the Chicago Blackhawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6730612/2025/10/19/ducks-vs-blackhawks-stream-how-to-watch-oct-19/
-
-**The Briefing - Tottenham 1 Villa 2: What went wrong after flying start? Did Danso prove a point?**\
-`The Athletic breaks down the talking points from Tottenham's home defeat to Aston Villa `\
-https://nytimes.com/athletic/6728282/2025/10/19/tottenham-1-aston-villa-2-thomas-frank-analysis/
-
-**This Easy Pumpkin Cake Is Perfect for Sweater Weather**\
-`Yossy Arefi’s crumb cake is warmly spiced, topped with a thick blanket of streusel and, above all, utterly relaxed.`\
-https://nytimes.com/2025/10/19/dining/this-easy-pumpkin-cake-is-perfect-for-sweater-weather.html
 

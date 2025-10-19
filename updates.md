@@ -1,3 +1,15 @@
+**‘Larsen C’ Review: Grand, Dark and Inhumanly Cold**\
+`At the new Powerhouse: International festival in Brooklyn, Christos Papadopoulos debuted an oblique, glacially cool work with seven dancers.`\
+https://nytimes.com/2025/10/19/arts/dance/larsen-c-review.html
+
+**The Pulse: Undefeated teams slammed**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6729833/2025/10/19/undefeated-teams-dropping-like-flies-across-college-football/
+
+**Sharks apologize for scoreboard message praising ICE on night celebrating Hispanic heritage**\
+`The message was shown during the first intermission of the game between the Sharks and the Penguins on "Los Tiburones Night."`\
+https://nytimes.com/athletic/6730478/2025/10/19/sharks-scoreboard-hispanic-heritage/
+
 **Epoch Times Reporter Resigns After Publication Signs Pentagon Rules**\
 `The reporter, Andrew Thornebrooke, also cited a recent editorial directive to refer to antifa, the far-left ideological movement, as a terrorist organization.`\
 https://nytimes.com/2025/10/19/business/media/epoch-times-pentagon-press-rules.html
