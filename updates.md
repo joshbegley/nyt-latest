@@ -1,3 +1,7 @@
+**Arizona State deals No. 7 Texas Tech first loss: What now for Red Raiders' CFP hopes?**\
+`The Sun Devils quarterback showed he's one of the nation's top playmakers while dealing the Red Raiders a blow to their CFP hopes.`\
+https://nytimes.com/athletic/6729538/2025/10/18/arizona-state-beats-texas-tech/
+
 **Arizona State rallies past No. 7 Texas Tech, shaking up Big 12, CFP race**\
 `The Sun Devils quarterback showed he's one of the nation's top playmakers while dealing the Red Raiders a blow to their CFP hopes.`\
 https://nytimes.com/athletic/6729538/2025/10/18/arizona-state-beats-texas-tech/
