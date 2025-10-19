@@ -1,3 +1,7 @@
+**So You’re Celebrating Diwali Now…**\
+`We explain why the South Asian festival of lights is becoming more popular in Western countries.`\
+https://nytimes.com/2025/10/19/briefing/diwali-festival-lights.html
+
 **Gunner Stockton's moment: Georgia may not have a defense anymore, but it has a quarterback**\
 `In accounting for five touchdowns, Stockton put a rest to preseason skepticism about his ability to lead the Georgia offense.`\
 https://nytimes.com/athletic/6729691/2025/10/19/gunner-stockton-georgia-ole-miss-quarterback/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/19/opinion/chinese-students-universities-trump.html
 **Chris Hayes: The Democrats’ Main Problem Isn’t Their Message**\
 `Democrats’ vision for the country won’t matter unless they can get people to pay attention to it.`\
 https://nytimes.com/2025/10/19/opinion/democrats-attention-elections.html
-
-**Wordle Review No. 1,584**\
-`Scroll down for hints and conversation about the puzzle for Monday, Oct. 20, 2025.`\
-https://nytimes.com/2025/10/19/crosswords/wordle-review-1584.html
 
