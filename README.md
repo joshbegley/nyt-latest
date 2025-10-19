@@ -1,4 +1,4 @@
-**Blazers, Toumani Camara agree to 4-year extension: Source**\
+**Blazers, Toumani Camara agree to 4-year, $82 million extension: Source**\
 `In his second season, Camara was named second-team All-Defense while averaging 1.5 steals per game.`\
 https://nytimes.com/athletic/6731728/2025/10/19/toumani-camara-contract-extension-portland-trail-blazers-nba/
 
