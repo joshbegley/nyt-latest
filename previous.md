@@ -1,9 +1,13 @@
+**Effort is 'good' for Leeds United - but effectiveness is 'missing'**\
+`There is much to like about Leeds' performances lately, but now they need goals - and points`\
+https://nytimes.com/athletic/6729061/2025/10/19/leeds-united-aaronson-burnley-missing/
+
 **A Fragile Cease-fire Between Afghanistan and Pakistan Ends Violence, for Now**\
 `The two committed to stop attacking each other after the worst outbreak of hostilities in years. But the underlying causes remain, analysts warn.`\
 https://nytimes.com/2025/10/19/world/asia/afghanistan-pakistan-cease-fire.html
 
-**Puka Nacua-less Rams dominate Jaguars in London: Takeaways**\
-`Rams QB Matthew Stafford found 10 different receivers with Nacua out to roll past the Jaguars in London.`\
+**Rams vs. Jaguars takeaways: Adams, Stafford connect on 3 TDs in rout**\
+`With Puka Nacua out, Rams QB Matthew Stafford found 10 different receivers in rout of the Jaguars in London.`\
 https://nytimes.com/athletic/6730784/2025/10/19/rams-jaguars-score-result-takeaways-london-week-7/
 
 **Smith: The Wild better wake up soon before early-season slide proves costly**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/19/business/media/epoch-times-pentagon-press-rules.h
 **Who is a better World Series matchup for Dodgers, the Mariners or Blue Jays?**\
 `As Seattle and Toronto continue to duke it out on the ALCS, Dodgers fans can start analyzing the best potential matchup.`\
 https://nytimes.com/athletic/6730016/2025/10/19/dodgers-world-series-matchup-mariners-blue-jays/
-
-**Sharks apologize for scoreboard message praising ICE on night celebrating Hispanic heritage**\
-`The message was shown during the first intermission of the game between the Sharks and the Penguins on "Los Tiburones Night."`\
-https://nytimes.com/athletic/6730478/2025/10/19/sharks-scoreboard-hispanic-heritage/
 

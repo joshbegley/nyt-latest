@@ -1,3 +1,11 @@
+**Effort is 'good' for Leeds United - but effectiveness is 'missing'**\
+`There is much to like about Leeds' performances lately, but now they need goals - and points`\
+https://nytimes.com/athletic/6729061/2025/10/19/leeds-united-aaronson-burnley-missing/
+
+**Rams vs. Jaguars takeaways: Adams, Stafford connect on 3 TDs in rout**\
+`With Puka Nacua out, Rams QB Matthew Stafford found 10 different receivers in rout of the Jaguars in London.`\
+https://nytimes.com/athletic/6730784/2025/10/19/rams-jaguars-score-result-takeaways-london-week-7/
+
 **A Fragile Cease-fire Between Afghanistan and Pakistan Ends Violence, for Now**\
 `The two committed to stop attacking each other after the worst outbreak of hostilities in years. But the underlying causes remain, analysts warn.`\
 https://nytimes.com/2025/10/19/world/asia/afghanistan-pakistan-cease-fire.html
