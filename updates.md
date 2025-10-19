@@ -1,3 +1,7 @@
+**For Alaskan Evacuees, Home Is Gone, With No Return in Sight**\
+`Their communities devastated from last weekend’s storm, many are in shelters in Anchorage and facing life in a completely different world.`\
+https://nytimes.com/2025/10/19/us/alaska-storm-flooding-evacuations.html
+
 **Blazers, Toumani Camara agree to 4-year, $82 million extension: Source**\
 `In his second season, Camara was named second-team All-Defense while averaging 1.5 steals per game.`\
 https://nytimes.com/athletic/6731728/2025/10/19/toumani-camara-contract-extension-portland-trail-blazers-nba/

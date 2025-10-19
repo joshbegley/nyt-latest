@@ -1,3 +1,7 @@
+**For Alaskan Evacuees, Home Is Gone, With No Return in Sight**\
+`Their communities devastated from last weekend’s storm, many are in shelters in Anchorage and facing life in a completely different world.`\
+https://nytimes.com/2025/10/19/us/alaska-storm-flooding-evacuations.html
+
 **Blazers, Toumani Camara agree to 4-year, $82 million extension: Source**\
 `In his second season, Camara was named second-team All-Defense while averaging 1.5 steals per game.`\
 https://nytimes.com/athletic/6731728/2025/10/19/toumani-camara-contract-extension-portland-trail-blazers-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6731596/2025/10/19/former-buccaneers-rb-doug-martin
 **Dyche emerging as leading contender for Forest job**\
 `Forest had also held talks with Roberto Mancini but it now appears unlikely the Italian replaces Ange Postecoglou.`\
 https://nytimes.com/athletic/6349486/2025/10/19/sean-dyche-nottingham-forest-mancini/
-
-**What are the Dolphins doing? How scary are the Chiefs? Our experts' Week 7 takeaways**\
-`Also: The Eagles’ passing game took off in a win over the Vikings, while things went from bad to worse for the New York Jets.`\
-https://nytimes.com/athletic/6731133/2025/10/19/nfl-takeaways-week-7-scores-results/
 
