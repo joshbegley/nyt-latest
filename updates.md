@@ -1,3 +1,11 @@
+**Patriots vs. Titans takeaways: New England offense steamrolls Tennessee**\
+`Mike Vrabel returned to Tennessee and exacted revenge against his former team.`\
+https://nytimes.com/athletic/6731277/2025/10/19/patriots-titans-score-result-takeaways-nfl/
+
+**Dolphins bench Tua Tagovailoa vs. Browns**\
+`Tagovailoa, who had to apologize this week for comments about his teammates, was replaced by rookie Quinn Ewers.`\
+https://nytimes.com/athletic/6731316/2025/10/19/miami-dolphins-quarterback-tua-tagovailoa-quinn-ewers/
+
 **Feldman's candidates to replace Billy Napier at Florida, from Kiffin to Golesh**\
 `The Gators have a few quality candidates from the SEC and Big Ten head-coaching ranks. `\
 https://nytimes.com/athletic/6731200/2025/10/19/florida-coaching-candidates-billy-napier-fired/

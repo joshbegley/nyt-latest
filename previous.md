@@ -1,3 +1,11 @@
+**Patriots vs. Titans takeaways: New England offense steamrolls Tennessee**\
+`Mike Vrabel returned to Tennessee and exacted revenge against his former team.`\
+https://nytimes.com/athletic/6731277/2025/10/19/patriots-titans-score-result-takeaways-nfl/
+
+**Dolphins bench Tua Tagovailoa vs. Browns**\
+`Tagovailoa, who had to apologize this week for comments about his teammates, was replaced by rookie Quinn Ewers.`\
+https://nytimes.com/athletic/6731316/2025/10/19/miami-dolphins-quarterback-tua-tagovailoa-quinn-ewers/
+
 **Demaryius Thomas joins Broncos' Ring of Fame, his bust adorned with 'that smile'**\
 `The Broncos unveiled Thomas' Ring of Fame pillar Sunday, which sits, fittingly, next to that of his quarterback, Peyton Manning.`\
 https://nytimes.com/athletic/6730859/2025/10/19/demaryius-thomas-broncos-ring-of-fame/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/19/style/academy-museum-gala-kim-kardashian.html
 **Feldman's candidates to replace Billy Napier at Florida, from Kiffin to Golesh**\
 `The Gators have a few quality candidates from the SEC and Big Ten head-coaching ranks. `\
 https://nytimes.com/athletic/6731200/2025/10/19/florida-coaching-candidates-billy-napier-fired/
-
-**U.S. Kills 3 on Boat Suspected of Smuggling Drugs for Colombian Rebels**\
-`It was the seventh known strike in President Trump’s military campaign of attacking, rather than arresting, those suspected of running drugs in the Caribbean.`\
-https://nytimes.com/2025/10/19/us/politics/trump-military-boat-strike-colombia.html
-
-**Colorado State fires coach Jay Norvell amid fourth season: Source**\
-`Jay Norvell improved Colorado State's record from 3-9 in Year 1 to 8-5 in Year 3, but the Rams stumbled to 2-5 before he was fired.`\
-https://nytimes.com/athletic/6684666/2025/10/19/jay-norvell-colorado-state-coach-fired-candidates/
 
