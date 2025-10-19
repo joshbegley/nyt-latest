@@ -1,3 +1,7 @@
+**UAB hands No. 22 Memphis its first loss days after firing coach Trent Dilfer**\
+`Interim coach Alex Mortensen, the son of ex-NFL analyst Chris Mortensen, and the Blazers upset the Tigers, who were stopped late at the 11.`\
+https://nytimes.com/athletic/6729440/2025/10/18/uab-upsets-memphis-alex-mortensen-trent-dilfer/
+
 **Arizona State deals No. 7 Texas Tech first loss: What now for Red Raiders' CFP hopes?**\
 `The Sun Devils quarterback showed he's one of the nation's top playmakers while dealing the Red Raiders a blow to their CFP hopes.`\
 https://nytimes.com/athletic/6729538/2025/10/18/arizona-state-beats-texas-tech/
