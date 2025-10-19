@@ -1,3 +1,7 @@
+**Notre Dame runs all over USC in rivalry win with CFP stakes: Key takeaways**\
+`Jeremiyah Love rushed for 228 yards to lead No. 13 Notre Dame to a 34-24 win over No. 20 USC in a College Football Playoff statement win.`\
+https://nytimes.com/athletic/6729710/2025/10/18/notre-dame-usc-score-recap-football/
+
 **MLS Cup 2025 playoffs: Matchups, bracket set after Decision Day drama**\
 `The road to the 2025 MLS Cup final is set following the conclusion of Decision Day`\
 https://nytimes.com/athletic/6693903/2025/10/18/mls-cup-playoff-matchups-bracket-2025/

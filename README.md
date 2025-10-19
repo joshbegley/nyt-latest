@@ -1,3 +1,7 @@
+**Alabama rides Ty Simpson, 99-yard pick-6 to rivalry win over Tennessee**\
+`Zabien Brown's pick-six at the end of the first half swung the game heavily in the Crimson Tide's favor.`\
+https://nytimes.com/athletic/6729721/2025/10/18/alabama-tennessee-score-recap-football/
+
 **Notre Dame runs all over USC in rivalry win with CFP stakes: Key takeaways**\
 `Jeremiyah Love rushed for 228 yards to lead No. 13 Notre Dame to a 34-24 win over No. 20 USC in a College Football Playoff statement win.`\
 https://nytimes.com/athletic/6729710/2025/10/18/notre-dame-usc-score-recap-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6729608/2025/10/18/blue-jays-george-springer-injury
 **How to watch Mariners at Blue Jays: Game 6 Time, TV, streaming**\
 `Find out how to watch the Seattle Mariners play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6729630/2025/10/18/mariners-vs-blue-jays-stream-how-to-watch-oct-19/
-
-**Packers flight delayed for hours because of mechanical issues with plane**\
-`Green Bay's team flight took off about six hours after its originally scheduled time for the team's game Sunday against the Cardinals.`\
-https://nytimes.com/athletic/6729592/2025/10/18/green-bay-packers-flight-delay/
 
