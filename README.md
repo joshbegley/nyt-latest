@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6731202/2025/10/19/arne-slot-liverpool-man-utd/
 https://nytimes.com/2025/10/19/style/academy-museum-gala-kim-kardashian.html
 
 **Feldman's candidates to replace Billy Napier at Florida, from Kiffin to Golesh**\
-`The Gators have a few quality candidates from the SEC and Big Ten head coaching ranks. `\
+`The Gators have a few quality candidates from the SEC and Big Ten head-coaching ranks. `\
 https://nytimes.com/athletic/6731200/2025/10/19/florida-coaching-candidates-billy-napier-fired/
 
 **U.S. Kills 3 on Boat Suspected of Smuggling Drugs for Colombian Rebels**\
