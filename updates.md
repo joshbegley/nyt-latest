@@ -1,3 +1,7 @@
+**Penn State's rallying cry turned into yet another 'what if' at Iowa**\
+`A week after James Franklin's firing, the Nittany Lions focused on possibilities. But their inability to close proved to be their downfall.`\
+https://nytimes.com/athletic/6730014/2025/10/19/penn-state-loss-iowa-terry-smith-james-franklin/
+
 **For USC, loss to Notre Dame was a missed opportunity in more ways than one**\
 `The Trojans head home with regret and a pipe dream after their Playoff hopes took a hit.`\
 https://nytimes.com/athletic/6729981/2025/10/19/usc-notre-dame-rivalry-playoff/

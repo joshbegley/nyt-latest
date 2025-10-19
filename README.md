@@ -1,3 +1,7 @@
+**An Ode to October Baseball**\
+`With the World Series just days away, we look at the beauty of baseball — even if one team looks unbeatable.`\
+https://nytimes.com/2025/10/19/world/la-dodgers-postseason-louvre-robbery.html
+
 **Penn State's rallying cry turned into yet another 'what if' at Iowa**\
 `A week after James Franklin's firing, the Nittany Lions focused on possibilities. But their inability to close proved to be their downfall.`\
 https://nytimes.com/athletic/6730014/2025/10/19/penn-state-loss-iowa-terry-smith-james-franklin/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6728521/2025/10/19/knicks-depth-chart-rotation-pred
 **Behind Artemi Panarin and Mika Zibanejad, Rangers enjoy much-needed scoring outburst**\
 `Panarin finished with points on all four of New York’s goals in its 4-3 win over the Canadiens Saturday.`\
 https://nytimes.com/athletic/6729798/2025/10/19/rangers-canadiens-artemi-panarin-mika-zibanejad/
-
-**Trump Is Dragging Us Down to His Level**\
-`The Young Republicans’ Telegram chat was revealing in so many ways.`\
-https://nytimes.com/2025/10/19/opinion/republican-group-chat-trump.html
 
