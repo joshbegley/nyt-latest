@@ -1,3 +1,7 @@
+**Smith: The Wild better wake up soon before early-season slide proves costly**\
+`Last year the Wild started hot and ended up needing every point to make the playoffs. This year they're struggling.`\
+https://nytimes.com/athletic/6730603/2025/10/19/minnesota-wild-slow-start-foligno/
+
 **Trump and Colombian President Trade Digital Attacks Over Boat Strikes**\
 `President Gustavo Petro of Colombia accused the United States of murder in the death of a fisherman in a strike in the Caribbean last week.`\
 https://nytimes.com/2025/10/19/us/politics/trump-colombia-petro-aid.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6730539/2025/10/19/sec-football-rankings-week-8-van
 **Lowetide: Why Oilers' goalie of the future might be in Fort Wayne, Indiana**\
 `Something unusual is happening in the career of Nathaniel Day, the Oilers' sixth round pick in 2023.`\
 https://nytimes.com/athletic/6728750/2025/10/19/edmonton-oilers-goalie-prospect-nathaniel-day/
-
-**Jets receiver Garrett Wilson out vs. Panthers with knee injury**\
-`The star receiver was hurt during last Sunday's loss to the Broncos in London.`\
-https://nytimes.com/athletic/6712927/2025/10/19/garrett-wilson-new-york-jets-injury/
 

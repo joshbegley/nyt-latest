@@ -1,3 +1,7 @@
+**Trump and Colombian President Trade Digital Attacks Over Boat Strikes**\
+`President Gustavo Petro of Colombia accused the United States of murder in the death of a fisherman in a strike in the Caribbean last week.`\
+https://nytimes.com/2025/10/19/us/politics/trump-colombia-petro-aid.html
+
 **Ex-Eagles defensive lineman Brandon Graham considering unretiring: Source**\
 `Graham is considering a return to the league after Za'Darius Smith's sudden retirement announcement.`\
 https://nytimes.com/athletic/6730659/2025/10/19/brandon-graham-eagles-return-zadarius-smith/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6728750/2025/10/19/edmonton-oilers-goalie-prospect-
 **Jets receiver Garrett Wilson out vs. Panthers with knee injury**\
 `The star receiver was hurt during last Sunday's loss to the Broncos in London.`\
 https://nytimes.com/athletic/6712927/2025/10/19/garrett-wilson-new-york-jets-injury/
-
-**How to watch Bruins vs. Mammoth: Time, TV, streaming**\
-`Find out how to watch the Boston Bruins play the Utah Mammoth, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6730614/2025/10/19/bruins-vs-mammoth-stream-how-to-watch-oct-19/
 

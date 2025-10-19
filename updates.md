@@ -1,3 +1,7 @@
+**Trump and Colombian President Trade Digital Attacks Over Boat Strikes**\
+`President Gustavo Petro of Colombia accused the United States of murder in the death of a fisherman in a strike in the Caribbean last week.`\
+https://nytimes.com/2025/10/19/us/politics/trump-colombia-petro-aid.html
+
 **Who is a better World Series matchup for Dodgers, the Mariners or Blue Jays?**\
 `As Seattle and Toronto continue to duke it out on the ALCS, Dodgers fans can start analyzing the best potential matchup.`\
 https://nytimes.com/athletic/6730016/2025/10/19/dodgers-world-series-matchup-mariners-blue-jays/
