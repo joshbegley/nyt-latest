@@ -1,3 +1,7 @@
+**Puka Nacua-less Rams dominate Jaguars in London: Takeaways**\
+`Rams QB Matthew Stafford found 10 different receivers with Nacua out to roll past the Jaguars in London.`\
+https://nytimes.com/athletic/6730784/2025/10/19/rams-jaguars-score-result-takeaways-london-week-7/
+
 **Smith: The Wild better wake up soon before early-season slide proves costly**\
 `Last year the Wild started hot and ended up needing every point to make the playoffs. This year they're struggling.`\
 https://nytimes.com/athletic/6730603/2025/10/19/minnesota-wild-slow-start-foligno/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6730478/2025/10/19/sharks-scoreboard-hispanic-herit
 **SEC vibes after Week 8: Vanderbilt, Missouri and a year of constant parity**\
 `Seven SEC teams still have one win or fewer — including Vanderbilt, Missouri and Ole Miss, but not Texas, LSU or Florida.`\
 https://nytimes.com/athletic/6730539/2025/10/19/sec-football-rankings-week-8-vanderbilt-alabama-missouri/
-
-**Lowetide: Why Oilers' goalie of the future might be in Fort Wayne, Indiana**\
-`Something unusual is happening in the career of Nathaniel Day, the Oilers' sixth round pick in 2023.`\
-https://nytimes.com/athletic/6728750/2025/10/19/edmonton-oilers-goalie-prospect-nathaniel-day/
 

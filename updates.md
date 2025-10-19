@@ -1,3 +1,7 @@
+**Puka Nacua-less Rams dominate Jaguars in London: Takeaways**\
+`Rams QB Matthew Stafford found 10 different receivers with Nacua out to roll past the Jaguars in London.`\
+https://nytimes.com/athletic/6730784/2025/10/19/rams-jaguars-score-result-takeaways-london-week-7/
+
 **Smith: The Wild better wake up soon before early-season slide proves costly**\
 `Last year the Wild started hot and ended up needing every point to make the playoffs. This year they're struggling.`\
 https://nytimes.com/athletic/6730603/2025/10/19/minnesota-wild-slow-start-foligno/
