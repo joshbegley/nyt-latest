@@ -1,3 +1,7 @@
+**Florida fires Billy Napier, ending more than a year of tension: Source**\
+`In firing Billy Napier, Florida has not had a football coach last more than four seasons in 15 years. `\
+https://nytimes.com/athletic/6648133/2025/10/19/florida-gators-billy-napier-fired/
+
 **The Briefing - Liverpool 1 Man United 2: Amorim savours finest result yet as champions' gloom deepens**\
 `Ruben Amorim's side secured their first league win at Anfield since January 2016 as the champions suffered a fourth loss in a row`\
 https://nytimes.com/athletic/6728290/2025/10/19/liverpool-manchester-united-mbeumo-maguire-gakpo-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/19/arts/dance/larsen-c-review.html
 **The Pulse: Undefeated teams slammed**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6729833/2025/10/19/undefeated-teams-dropping-like-flies-across-college-football/
-
-**Epoch Times Reporter Resigns After Publication Signs Pentagon Rules**\
-`The reporter, Andrew Thornebrooke, also cited a recent editorial directive to refer to antifa, the far-left ideological movement, as a terrorist organization.`\
-https://nytimes.com/2025/10/19/business/media/epoch-times-pentagon-press-rules.html
 
