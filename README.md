@@ -1,3 +1,27 @@
+**Jaguars are back in London. What to know about their international game vs. Rams**\
+`Time shifts, mismatches and the strange connection between Duval sunshine and London fog. Here's what you need to know for Sunday's game.`\
+https://nytimes.com/athletic/6727103/2025/10/19/rams-jaguars-nfl-week-7-london-game/
+
+**Would Japan’s First Female Prime Minister Advance Women’s Rights?**\
+`Sanae Takaichi is poised to break Japan’s political glass ceiling. But some worry she will maintain policies that have held women back.`\
+https://nytimes.com/2025/10/19/world/asia/japan-women-prime-minister.html
+
+**Quote of the Day: The Spritzes and Spaghettis That Slurped Up the Streets of Italy**\
+`Quotation of the Day for Sunday, October 19, 2025.`\
+https://nytimes.com/2025/10/19/pageoneplus/quote-of-the-day-the-spritzes-and-spaghettis-that-slurped-up-the-streets-of-italy.html
+
+**‘Don’t Touch My Retirement!’ Wins the Day in France**\
+`The country’s attachment to an early pension, seen as a fundamental right, forced a major concession by the government, allowing it to survive, for now.`\
+https://nytimes.com/2025/10/19/world/europe/dont-touch-my-retirement-wins-the-day-in-france.html
+
+**Connections: Sports Edition hints for Oct. 19, 2025, puzzle No. 391**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6729674/2025/10/19/connections-sports-edition-hints-for-oct-19-2025/
+
+**Corrections: Oct. 19, 2025**\
+`Corrections that appeared in print on Sunday, Oct. 19, 2025.`\
+https://nytimes.com/2025/10/19/pageoneplus/corrections-oct-19-2025.html
+
 **Alabama rides Ty Simpson, 99-yard pick-6 to rivalry win over Tennessee: Takeaways**\
 `Zabien Brown's pick-six at the end of the first half swung the game heavily in the Crimson Tide's favor.`\
 https://nytimes.com/athletic/6729721/2025/10/18/alabama-tennessee-score-recap-football/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6693903/2025/10/18/mls-cup-playoff-matchups-bracket
 **Anthony Stolarz calls out Maple Leafs after loss to Kraken: 'Enough’s enough'**\
 `Toronto's goalie made it clear he was unsatisfied with the way his team played in front of him in Saturday's 4-3 overtime loss to Seattle.`\
 https://nytimes.com/athletic/6729753/2025/10/18/maple-leafs-anthony-stolarz-kraken-comments/
-
-**Messi wins 2025 MLS Golden Boot, ends regular season with superb hat trick**\
-`Lionel Messi led MLS in scoring and also tied for the league lead in assists in another MVP-caliber season`\
-https://nytimes.com/athletic/6693994/2025/10/18/messi-mls-golden-boot-hat-trick-assists-leader-bouanga-dreyer/
-
-**Temwa Chawinga wheeled out with leg injury in Current's upset loss to Dash**\
-`Chawinga, 27, is the reigning NWSL MVP and Golden Boot winner.`\
-https://nytimes.com/athletic/6729743/2025/10/18/temwa-chawinga-injury-current-dash/
-
-**What Buster Posey's pursuit of Tony Vitello means — and what comes next for Giants**\
-`The Giants' pursuit of Vitello, a college baseball coach, could indicate a change in how teams look at their managerial vacancies.`\
-https://nytimes.com/athletic/6729703/2025/10/18/sf-giants-tony-vitello-manager-buster-posey-college-coaches/
-
-**In first game after firing James Franklin, Penn State comes up just short at Iowa**\
-`The Nittany Lions let an 11-point third-quarter lead slip away in interim coach Terry Smith’s debut.`\
-https://nytimes.com/athletic/6729687/2025/10/18/penn-state-iowa-terry-smith-james-franklin/
-
-**Blue Jays ALCS off-day notes: George Springer's injury, Trey Yesavage's big chance**\
-`Toronto hopes to have their designated hitter back for Sunday's crucial Game 6 against the Seattle Mariners to stave off ALCS elimination.`\
-https://nytimes.com/athletic/6729608/2025/10/18/blue-jays-george-springer-injury/
-
-**How to watch Mariners at Blue Jays: Game 6 Time, TV, streaming**\
-`Find out how to watch the Seattle Mariners play the Toronto Blue Jays, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6729630/2025/10/18/mariners-vs-blue-jays-stream-how-to-watch-oct-19/
 
