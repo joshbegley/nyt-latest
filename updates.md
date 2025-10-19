@@ -1,3 +1,23 @@
+**Former Yankees, Mariners catcher Jesús Montero dies after traffic accident in Venezuela**\
+`Yankees GM Brian Cashman said Montero "may well be the best player I've ever traded" after dealing him to Seattle in 2012.`\
+https://nytimes.com/athletic/6730970/2025/10/19/jesus-montero-dies-yankees-mariners/
+
+**Amorim on Man Utd's win over Liverpool: 'Tomorrow, it won't mean a lot'**\
+`The head coach said the 2-1 victory was the "biggest" of his time at United.`\
+https://nytimes.com/athletic/6731162/2025/10/19/ruben-amorim-manchester-united-liverpool/
+
+**Chiefs WR Rashee Rice catches 2 first-half TDs in return from suspension**\
+`Rice was heavily involved in the Chiefs' first drive and caught a pop-pass from quarterback Patrick Mahomes for his first touchdown.`\
+https://nytimes.com/athletic/6730553/2025/10/19/raiders-chiefs-score-result-takeaways-nfl/
+
+**Patrick Mahomes, Chiefs fool Raiders with fake attempt to draw defense offsides**\
+`Mahomes used his acting chops to complain about the attempt to draw a penalty not working, then snapped the ball to convert the first down.`\
+https://nytimes.com/athletic/6731008/2025/10/19/chiefs-fake-draw-offside-raiders-mahomes/
+
+**Vikings use unusual defensive alignment to try to defend Eagles' tush push**\
+`The Vikings had rookie Tyler Batty lie down in front of Eagles center Cam Jurgens. The play was nullified due to a false start.`\
+https://nytimes.com/athletic/6730989/2025/10/19/vikings-eagles-tush-push-defense-strategy/
+
 **FIA faces ethics complaints from former candidate Tim Mayer over elections process**\
 `Tim Mayer alleges election rules create 'illusion of democracy' and effectively leave only one viable candidate`\
 https://nytimes.com/athletic/6730608/2025/10/19/fia-ethics-complaints-tim-mayer-elections/
