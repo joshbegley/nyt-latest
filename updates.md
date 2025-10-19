@@ -1,3 +1,7 @@
+**At Least 14 Injured in Hit-and-Run at a Child’s Birthday Party**\
+`A driver fled the scene after ramming a vehicle into a group of people, including children, outside a Maryland home on Saturday night, the police said.`\
+https://nytimes.com/2025/10/19/us/crash-birthday-party-bladensburg.html
+
 **Trump Posts Fake Video of Himself Flying a ‘King Trump’ Jet Over Protesters**\
 `President Trump shared what appeared to be an A.I.-generated video on social media. It shows Mr. Trump wearing a crown and flying a jet that dumps brown liquid on demonstrators.`\
 https://nytimes.com/2025/10/19/us/politics/trump-fake-video-no-kings.html
