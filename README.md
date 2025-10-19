@@ -1,3 +1,7 @@
+**Lowetide: Why Oilers' goalie of the future might be in Fort Wayne, Indiana**\
+`Something unusual is happening in the career of Nathaniel Day, the Oilers' sixth round pick in 2023.`\
+https://nytimes.com/athletic/6728750/2025/10/19/edmonton-oilers-goalie-prospect-nathaniel-day/
+
 **Jets receiver Garrett Wilson out vs. Panthers with knee injury**\
 `The star receiver was hurt during last Sunday's loss to the Broncos in London.`\
 https://nytimes.com/athletic/6712927/2025/10/19/garrett-wilson-new-york-jets-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/19/us/crash-birthday-party-bladensburg.html
 **Trump Posts Fake Video of Himself Flying a ‘King Trump’ Jet Over Protesters**\
 `President Trump shared what appeared to be an A.I.-generated video on social media. It shows Mr. Trump wearing a crown and flying a jet that dumps brown liquid on demonstrators.`\
 https://nytimes.com/2025/10/19/us/politics/trump-fake-video-no-kings.html
-
-**Canadiens' first test of depth demonstrated that depth of trust is not as deep**\
-`The Canadiens are a young team, and trust is something that takes time to develop. Those two realities sometimes can't coexist.`\
-https://nytimes.com/athletic/6729984/2025/10/19/canadiens-rangers-loss-depth/
 
