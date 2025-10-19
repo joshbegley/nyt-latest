@@ -1,3 +1,7 @@
+**Haaland's form is otherworldly. His team-mates need to share the scoring burden**\
+`Erling Haaland has taken his goalscoring to another level. Pep Guardiola wants his other attacking players to follow his lead`\
+https://nytimes.com/athletic/6728825/2025/10/19/erling-haaland-manchester-city-over-reliant/
+
 **How a trio of Chelsea half-time changes served to wreck Nottingham Forest's game plan**\
 `The resources at Enzo Maresca's disposal allow him to be more tactically flexible, as his half-time switches demonstrated at the City Ground`\
 https://nytimes.com/athletic/6729459/2025/10/19/chelsea-forest-guiu-pedro-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6729734/2025/10/19/texas-kentucky-sec-win/
 **Liverpool vs Man Utd: Who's under more pressure? Who should play? Plus our predictions**\
 `Analysing where Sunday's Premier League clash will be decided and why it still matters so much`\
 https://nytimes.com/athletic/6723366/2025/10/19/liverpool-man-utd-prediction-team/
-
-**Explained: Jude Bellingham's eye-catching training photo**\
-`A photograph of Jude Bellingham in training posted by Real Madrid on social media this week has generated a lot of intrigue`\
-https://nytimes.com/athletic/6728275/2025/10/19/jude-bellinghams-eye-catching-real-madrid-training-photo-explained/
 
