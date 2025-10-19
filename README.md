@@ -35,6 +35,6 @@ https://nytimes.com/athletic/6730769/2025/10/19/dolphins-browns-score-result-tak
 https://nytimes.com/athletic/6730756/2025/10/19/panthers-jets-score-result-takeaways-nfl/
 
 **Eagles-Vikings takeaways: DeVonta Smith, A.J. Brown break out in Philly's win**\
-`Philadelphia passing game breaks out in road win over Minnesota`\
+`Philadelphia halted a two-game losing streak thanks in part to Smith and Brown, who combined for 304 receiving yards.`\
 https://nytimes.com/athletic/6730714/2025/10/19/eagles-vikings-score-result-takeaways-nfl/
 
