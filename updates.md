@@ -1,3 +1,11 @@
+**Arizona State rallies past No. 7 Texas Tech, shaking up Big 12, CFP race**\
+`The Sun Devils quarterback showed he's one of the nation's top playmakers while dealing the Red Raiders a blow to their CFP hopes.`\
+https://nytimes.com/athletic/6729538/2025/10/18/arizona-state-beats-texas-tech/
+
+**Georgia rallies to beat Ole Miss, shake up SEC race in 43-35 shootout: Key takeaways**\
+`Georgia (6-1, 4-1 SEC) trailed 35-26 in the second half but scored the final 17 points.`\
+https://nytimes.com/athletic/6729323/2025/10/18/ole-miss-vs-georgia-sec-showdown-results-takeaways/
+
 **UAB hands No. 22 Memphis its first loss days after firing coach Trent Dilfer**\
 `In their first game after firing Dilfer as coach, the Blazers upset the undefeated Tigers, stopping them late on the 11-yard line.`\
 https://nytimes.com/athletic/6729440/2025/10/18/uab-upsets-memphis-alex-mortensen-trent-dilfer/
