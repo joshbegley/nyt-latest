@@ -1,3 +1,7 @@
+**Arizona State's win over Texas Tech started with a lesson learned for the man in charge**\
+`The teams that survive in this sport are the ones that can rapidly self-correct. In that case, the Sun Devils passed a major test Saturday.`\
+https://nytimes.com/athletic/6729694/2025/10/19/arizona-state-texas-tech-upset-kenny-dillingham/
+
 **The New York Times in Print for Sunday, Oct. 19, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/19/todays-new-york-times

@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6725748/2025/10/19/pat-cummins-ashes-australia-bola
 https://nytimes.com/athletic/6722839/2025/10/19/casemiro-liverpool-manchester-united/
 
 **Arizona State's win over Texas Tech started with a lesson learned for the man in charge**\
-`The teams that survive in this sport are the teams that can rapidly self-correct. In that case, Arizona State passed a major test Saturday.`\
+`The teams that survive in this sport are the ones that can rapidly self-correct. In that case, the Sun Devils passed a major test Saturday.`\
 https://nytimes.com/athletic/6729694/2025/10/19/arizona-state-texas-tech-upset-kenny-dillingham/
 
 **No. 21 Texas survives Kentucky in OT. But why is the Longhorns' offense struggling?**\
