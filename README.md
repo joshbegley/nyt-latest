@@ -1,3 +1,7 @@
+**Miss Major Griffin-Gracy, Trans Activist Who Saw It All, Dies**\
+`She spat in a policeman’s face at the Stonewall Riot, ran a nursing service during the AIDS crisis and boycotted Pride parades when they welcomed corporations.`\
+https://nytimes.com/2025/10/19/obituaries/miss-major-griffin-gracy-dead.html
+
 **The backstory of Patrick Mahomes' trick play vs. Raiders: 'That was hilarious'**\
 `Chiefs QB Patrick Mahomes faked out the Raiders — and CBS broadcasters — with his acting skills. Here's what happened.`\
 https://nytimes.com/athletic/6730847/2025/10/19/chiefs-patrick-mahomes-trick-play-raiders/
@@ -27,14 +31,10 @@ https://nytimes.com/athletic/6731688/2025/10/19/patriots-titans-mike-vrabel-afc-
 https://nytimes.com/2025/10/19/us/alaska-storm-flooding-evacuations.html
 
 **Blazers, Toumani Camara agree to 4-year, $82 million extension: Source**\
-`Portland locks up a defensive star — Camara was named second-team All-Defense last season — who also has offensive upside.`\
+`Portland locks up a 25-year-old defensive star — Camara was named second-team All-Defense last season — who also has offensive upside.`\
 https://nytimes.com/athletic/6731728/2025/10/19/toumani-camara-contract-extension-portland-trail-blazers-nba/
 
 **Commanders QB Jayden Daniels ruled out vs. Cowboys with hamstring injury**\
 `Daniels left Sunday's game in the third quarter and headed to the locker room. He was later ruled out.`\
 https://nytimes.com/athletic/6731747/2025/10/19/jayden-daniels-commanders-hamstring-injury/
-
-**U.S. Grand Prix: Submit your questions for our F1 mailbag**\
-`Well, it wasn&#8217;t the most thrilling two hours of our lives, but the 2025 U.`\
-https://nytimes.com/athletic/6731723/2025/10/19/u-s-grand-prix-f1-mailbag/
 
