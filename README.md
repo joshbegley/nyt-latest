@@ -1,3 +1,15 @@
+**George Santos Is Back on TV Two Days After His Release From Prison**\
+`Mr. Santos, the disgraced congressman from Long Island, lashed out at the warden of the prison where he had been held and suggested he was now free to get Botox.`\
+https://nytimes.com/2025/10/19/nyregion/santos-cnn-fox-prison-release.html
+
+**See What Was Taken in the Louvre Heist**\
+`The stolen items include glittering royal tiaras, necklaces and earrings.`\
+https://nytimes.com/2025/10/19/world/europe/louvre-heist-items.html
+
+**Jets bench struggling QB Justin Fields vs. Panthers, turn to Tyrod Taylor**\
+`Fields completed just 6 of 12 passes for 46 yards in the first half Sunday against the Panthers.`\
+https://nytimes.com/athletic/6731216/2025/10/19/jets-justin-fields-benched-tyrod-taylor/
+
 **For Virginia Tech, the move is simple: Go all in for James Franklin**\
 `Franklin is the best candidate to take the Hokies back to the glory days they enjoyed under Frank Beamer.`\
 https://nytimes.com/athletic/6730626/2025/10/19/james-franklin-virginia-tech-coach-candidates/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6731008/2025/10/19/chiefs-fake-draw-offside-raiders
 **FIA faces ethics complaints from former candidate Tim Mayer over elections process**\
 `Tim Mayer alleges election rules create 'illusion of democracy' and effectively leave only one viable candidate`\
 https://nytimes.com/athletic/6730608/2025/10/19/fia-ethics-complaints-tim-mayer-elections/
-
-**Vikings use unusual defensive alignment to try to defend Eagles' tush push**\
-`The Vikings had rookie Tyler Batty lie down in front of Eagles center Cam Jurgens. The play was nullified due to a false start.`\
-https://nytimes.com/athletic/6730989/2025/10/19/vikings-eagles-tush-push-defense-strategy/
-
-**AP Top 25: Indiana No. 2 as Vandy earns historic top-10 spot**\
-`This week's AP Top 25 college football poll includes landmark rankings for No. 2 Indiana, No. 7 Georgia Tech and No. 10 Vanderbilt.`\
-https://nytimes.com/athletic/6730744/2025/10/19/ap-top-25-vanderbilt-indiana-college-football-rankings/
-
-**How good is the Florida job after Billy Napier?**\
-`The tradition of the Swamp, the three Heisman Trophies and everything around the program are as true to college football as it gets.`\
-https://nytimes.com/athletic/6729290/2025/10/19/florida-football-coaching-search-job-money/
 
