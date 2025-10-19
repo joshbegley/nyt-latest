@@ -1,3 +1,7 @@
+**Who is a better World Series matchup for Dodgers, the Mariners or Blue Jays?**\
+`As Seattle and Toronto continue to duke it out on the ALCS, Dodgers fans can start analyzing the best potential matchup.`\
+https://nytimes.com/athletic/6730016/2025/10/19/dodgers-world-series-matchup-mariners-blue-jays/
+
 **Ex-Eagles defensive lineman Brandon Graham considering unretiring: Source**\
 `Graham is considering a return to the league after Za'Darius Smith's sudden retirement announcement.`\
 https://nytimes.com/athletic/6730659/2025/10/19/brandon-graham-eagles-return-zadarius-smith/

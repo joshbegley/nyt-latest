@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6729833/2025/10/19/undefeated-teams-dropping-like-f
 https://nytimes.com/2025/10/19/business/media/epoch-times-pentagon-press-rules.html
 
 **Who is a better World Series matchup for Dodgers, the Mariners or Blue Jays?**\
-`As Seattle and Toronto continue to duke it out on the ALCS, Dodgers fans can start analyzing the best potenial matchup.`\
+`As Seattle and Toronto continue to duke it out on the ALCS, Dodgers fans can start analyzing the best potential matchup.`\
 https://nytimes.com/athletic/6730016/2025/10/19/dodgers-world-series-matchup-mariners-blue-jays/
 
 **Sharks apologize for scoreboard message praising ICE on night celebrating Hispanic heritage**\
