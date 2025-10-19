@@ -1,3 +1,7 @@
+**For USC, loss to Notre Dame was a missed opportunity in more ways than one**\
+`The Trojans head home with regret and a pipe dream after their Playoff hopes took a hit.`\
+https://nytimes.com/athletic/6729981/2025/10/19/usc-notre-dame-rivalry-playoff/
+
 **Sherrone Moore and Michigan block out the noise after difficult week**\
 `Moore admitted there were some "tough conversations" after the Wolverines' loss at USC last week. `\
 https://nytimes.com/athletic/6729545/2025/10/19/michigan-washington-sherrone-moore-bryce-underwood/

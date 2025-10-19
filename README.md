@@ -1,3 +1,7 @@
+**Penn State's rallying cry turned into yet another 'what if' at Iowa**\
+`A week after James Franklin's firing, the Nittany Lions focused on possibilities. But their inability to close proved to be their downfall.`\
+https://nytimes.com/athletic/6730014/2025/10/19/penn-state-loss-iowa-terry-smith-james-franklin/
+
 **For USC, loss to Notre Dame was a missed opportunity in more ways than one**\
 `The Trojans head home with regret and a pipe dream after their Playoff hopes took a hit.`\
 https://nytimes.com/athletic/6729981/2025/10/19/usc-notre-dame-rivalry-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6729798/2025/10/19/rangers-canadiens-artemi-panarin
 **Trump Is Dragging Us Down to His Level**\
 `The Young Republicans’ Telegram chat was revealing in so many ways.`\
 https://nytimes.com/2025/10/19/opinion/republican-group-chat-trump.html
-
-**The F1 title pressure piling up on McLaren after Verstappen's perfect day in Austin**\
-`Max Verstappen's perfect run so far at F1's 2025 U.S. GP is piling yet more pressure on the McLaren drivers in the world championship stakes`\
-https://nytimes.com/athletic/6729285/2025/10/19/f1-title-pressure-piling-up-on-mclaren-after-verstappens-perfect-day-in-austin/
 
