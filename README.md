@@ -1,3 +1,7 @@
+**Yohe's 10 observations: Tristan Jarry shines as Penguins blank Sharks**\
+`Jarry pitched a shutout as the Penguins won 3-0 on Saturday in San Jose.`\
+https://nytimes.com/athletic/6728801/2025/10/19/penguins-tristan-jarry-sharks-observations/
+
 **At Least 14 Injured in Hit-and-Run at a Child’s Birthday Party**\
 `A driver fled the scene after ramming a vehicle into a group of people, including children, outside a Maryland home on Saturday night, the police said.`\
 https://nytimes.com/2025/10/19/us/crash-birthday-party-bladensburg.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6729282/2025/10/19/jacoby-brissett-start-cardinals-
 **Trump Administration Live Updates: President Threatens to Withdraw Aid to Colombia in Feud Over Caribbean Strikes**\
 ``\
 https://nytimes.com/live/2025/10/19/us/trump-news
-
-**On ‘Saturday Night Live,’ a Milestone for Domingo**\
-`Marcello Hernández’s viral character kicked off an episode hosted by Sabrina Carpenter, while President Trump visited a most unlikely podcast.`\
-https://nytimes.com/2025/10/19/arts/television/on-saturday-night-live-a-milestone-for-domingo.html
 
