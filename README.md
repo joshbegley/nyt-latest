@@ -1,3 +1,7 @@
+**For USC, loss to Notre Dame was a missed opportunity in more ways than one**\
+`The Trojans head home with regret and a pipe dream after their Playoff hopes took a hit.`\
+https://nytimes.com/athletic/6729981/2025/10/19/usc-notre-dame-rivalry-playoff/
+
 **Sherrone Moore and Michigan block out the noise after difficult week**\
 `Moore admitted there were some "tough conversations" after the Wolverines' loss at USC last week. `\
 https://nytimes.com/athletic/6729545/2025/10/19/michigan-washington-sherrone-moore-bryce-underwood/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/19/opinion/republican-group-chat-trump.html
 **The F1 title pressure piling up on McLaren after Verstappen's perfect day in Austin**\
 `Max Verstappen's perfect run so far at F1's 2025 U.S. GP is piling yet more pressure on the McLaren drivers in the world championship stakes`\
 https://nytimes.com/athletic/6729285/2025/10/19/f1-title-pressure-piling-up-on-mclaren-after-verstappens-perfect-day-in-austin/
-
-**Sunday Special: Springsteen, Dylan and the Art of the Biopic**\
-`Why Hollywood loves to make movies about musicians.`\
-https://nytimes.com/2025/10/19/podcasts/the-daily/sunday-special-springsteen-dylan-and-the-art-of-the-biopic.html
 

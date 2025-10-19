@@ -1,6 +1,14 @@
+**Sherrone Moore and Michigan block out the noise after difficult week**\
+`Moore admitted there were some "tough conversations" after the Wolverines' loss at USC last week. `\
+https://nytimes.com/athletic/6729545/2025/10/19/michigan-washington-sherrone-moore-bryce-underwood/
+
+**Noah Cates' OT winner highlights Flyers' most consistent line**\
+`Sometimes there are lines in hockey that just work, and it’s an exercise in futility to pinpoint why.`\
+https://nytimes.com/athletic/6729852/2025/10/19/philadelphia-flyers-noah-cates-overtime/
+
 **Notre Dame was at its best vs. USC, dictating terms with a physicality reminiscent of 2024**\
 `In the final scheduled game in the series, Notre Dame got the last word. And it did so by punching USC in the mouth.`\
-https://nytimes.com/athletic/6730210/2025/10/19/notre-dame-was-at-its-best-vs-usc-dictating-terms-with-a-physicality-reminiscent-of-2024/
+https://nytimes.com/athletic/6730210/2025/10/19/notre-dame-usc-jeremiyah-love-marcus-freeman/
 
 **So You’re Celebrating Diwali Now…**\
 `We explain why the South Asian festival of lights is becoming more popular in Western countries.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6729285/2025/10/19/f1-title-pressure-piling-up-on-m
 **Sunday Special: Springsteen, Dylan and the Art of the Biopic**\
 `Why Hollywood loves to make movies about musicians.`\
 https://nytimes.com/2025/10/19/podcasts/the-daily/sunday-special-springsteen-dylan-and-the-art-of-the-biopic.html
-
-**This HBO Miniseries Gets Rural America Right**\
-`Since the first election of President Trump, Hollywood has fretted about portraying rural and red state Americans. A new spate of TV series show how to get it right.`\
-https://nytimes.com/2025/10/19/opinion/hbo-task-yellowstone.html
-
-**Trump’s Crackdown on Chinese Students Ignores a Startling New Reality**\
-`Shutting out China’s best minds will only push them into a homegrown Chinese research ecosystem that is eclipsing American universities.`\
-https://nytimes.com/2025/10/19/opinion/chinese-students-universities-trump.html
 

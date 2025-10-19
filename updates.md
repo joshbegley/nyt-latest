@@ -1,3 +1,15 @@
+**Sherrone Moore and Michigan block out the noise after difficult week**\
+`Moore admitted there were some "tough conversations" after the Wolverines' loss at USC last week. `\
+https://nytimes.com/athletic/6729545/2025/10/19/michigan-washington-sherrone-moore-bryce-underwood/
+
+**Noah Cates' OT winner highlights Flyers' most consistent line**\
+`Sometimes there are lines in hockey that just work, and it’s an exercise in futility to pinpoint why.`\
+https://nytimes.com/athletic/6729852/2025/10/19/philadelphia-flyers-noah-cates-overtime/
+
+**Notre Dame was at its best vs. USC, dictating terms with a physicality reminiscent of 2024**\
+`In the final scheduled game in the series, Notre Dame got the last word. And it did so by punching USC in the mouth.`\
+https://nytimes.com/athletic/6730210/2025/10/19/notre-dame-usc-jeremiyah-love-marcus-freeman/
+
 **Notre Dame was at its best vs. USC, dictating terms with a physicality reminiscent of 2024**\
 `In the final scheduled game in the series, Notre Dame got the last word. And it did so by punching USC in the mouth.`\
 https://nytimes.com/athletic/6730210/2025/10/19/notre-dame-was-at-its-best-vs-usc-dictating-terms-with-a-physicality-reminiscent-of-2024/
