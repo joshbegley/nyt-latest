@@ -1,3 +1,7 @@
+**Jets receiver Garrett Wilson out vs. Panthers with knee injury**\
+`The star receiver was hurt during last Sunday's loss to the Broncos in London.`\
+https://nytimes.com/athletic/6712927/2025/10/19/garrett-wilson-new-york-jets-injury/
+
 **How to watch Bruins vs. Mammoth: Time, TV, streaming**\
 `Find out how to watch the Boston Bruins play the Utah Mammoth, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6730614/2025/10/19/bruins-vs-mammoth-stream-how-to-watch-oct-19/
