@@ -1,3 +1,7 @@
+**Vance Flexes the Marines’ Might as Thousands Protest Trump’s Agenda**\
+`Vice President JD Vance’s trip to a military base in California illustrated rising tensions between the federal government and Democratic leaders.`\
+https://nytimes.com/2025/10/19/us/politics/vance-marines-california-protests.html
+
 **How do Australia replace Pat Cummins?**\
 `Scott Boland is the favourite to replace the injured captain in Perth, but Australia may have to adopt a role-based and venue-specific plan`\
 https://nytimes.com/athletic/6725748/2025/10/19/pat-cummins-ashes-australia-boland-options/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6722084/2025/10/19/it-is-time-for-wrexham-to-play-k
 **Wild felt they 'deserved better' in overtime loss to Flyers: Takeaways**\
 `The Wild's 2-1 overtime loss to Philadelphia was their fourth loss in their last five games, including the first three on this road trip.`\
 https://nytimes.com/athletic/6729790/2025/10/19/wild-flyers-takeaways-overtime-tarasenko/
-
-**Jaguars are back in London. What to know about their international game vs. Rams**\
-`Time shifts, mismatches and the strange connection between Duval sunshine and London fog. Here's what you need to know for Sunday's game.`\
-https://nytimes.com/athletic/6727103/2025/10/19/rams-jaguars-nfl-week-7-london-game/
 
