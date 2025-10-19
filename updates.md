@@ -1,3 +1,7 @@
+**An Ode to October Baseball**\
+`With the World Series just days away, we look at the beauty of baseball — even if one team looks unbeatable.`\
+https://nytimes.com/2025/10/19/world/la-dodgers-postseason-louvre-robbery.html
+
 **Penn State's rallying cry turned into yet another 'what if' at Iowa**\
 `A week after James Franklin's firing, the Nittany Lions focused on possibilities. But their inability to close proved to be their downfall.`\
 https://nytimes.com/athletic/6730014/2025/10/19/penn-state-loss-iowa-terry-smith-james-franklin/
