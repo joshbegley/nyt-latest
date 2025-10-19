@@ -1,3 +1,19 @@
+**Williams’ American owner could have flipped the F1 team by now. But it's holding out to win**\
+`The Williams F1 team was bought by wealthy investors in 2020. They could've flipped it for a big profit already, but are still not selling`\
+https://nytimes.com/athletic/6729062/2025/10/19/williams-f1-owner-dorilton/
+
+**WATCH: How this team is outthinking everyone in the NFL**\
+`Six weeks into the season, the Colts lead the NFL in dropback success rate.`\
+https://nytimes.com/athletic/6726695/2025/10/19/colts-tyler-warren-film-breakdown-analysis/
+
+**Mandel's Final Thoughts: Pro sports fans love greatness. College football fans love chaos**\
+`College football fans live for chaos, not excellence. And boy, is the 2025 season turning chaotic. `\
+https://nytimes.com/athletic/6730092/2025/10/19/college-football-scores-results-week-8-2/
+
+**Like Arsenal, Gabriel continues to dig deep**\
+`The Brazil defender's performance against Fulham spoke volumes about Mike Arteta's team. They got the job done`\
+https://nytimes.com/athletic/6729448/2025/10/19/like-arsenal-gabriel-continues-to-dig-deep/
+
 **An Ode to October Baseball**\
 `With the World Series just days away, we look at the beauty of baseball — even if one team looks unbeatable.`\
 https://nytimes.com/2025/10/19/world/la-dodgers-postseason-louvre-robbery.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6729852/2025/10/19/philadelphia-flyers-noah-cates-o
 **Notre Dame was at its best vs. USC, dictating terms with a physicality reminiscent of 2024**\
 `In the final scheduled game in the series, Notre Dame got the last word. And it did so by punching USC in the mouth.`\
 https://nytimes.com/athletic/6730210/2025/10/19/notre-dame-usc-jeremiyah-love-marcus-freeman/
-
-**So You’re Celebrating Diwali Now…**\
-`We explain why the South Asian festival of lights is becoming more popular in Western countries.`\
-https://nytimes.com/2025/10/19/briefing/diwali-festival-lights.html
-
-**Gunner Stockton's moment: Georgia may not have a defense anymore, but it has a quarterback**\
-`In accounting for five touchdowns, Stockton put a rest to preseason skepticism about his ability to lead the Georgia offense.`\
-https://nytimes.com/athletic/6729691/2025/10/19/gunner-stockton-georgia-ole-miss-quarterback/
-
-**Knicks 2025-26 depth chart and rotation prediction 3.0: Bring on the season**\
-`Predicting the 2025-26 Knicks depth chart and rotation ahead of an NBA Finals-or-bust season.`\
-https://nytimes.com/athletic/6728521/2025/10/19/knicks-depth-chart-rotation-prediction/
-
-**Behind Artemi Panarin and Mika Zibanejad, Rangers enjoy much-needed scoring outburst**\
-`Panarin finished with points on all four of New York’s goals in its 4-3 win over the Canadiens Saturday.`\
-https://nytimes.com/athletic/6729798/2025/10/19/rangers-canadiens-artemi-panarin-mika-zibanejad/
 
