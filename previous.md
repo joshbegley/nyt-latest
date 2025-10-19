@@ -1,3 +1,7 @@
+**AP Top 25: Indiana No. 2 as Vandy earns historic top-10 spot**\
+`This week's AP Top 25 college football poll includes landmark rankings for No. 2 Indiana, No. 7 Georgia Tech and No. 10 Vanderbilt.`\
+https://nytimes.com/athletic/6730744/2025/10/19/ap-top-25-vanderbilt-indiana-college-football-rankings/
+
 **How good is the Florida job after Billy Napier?**\
 `The tradition of the Swamp, the three Heisman Trophies and everything around the program are as true to college football as it gets.`\
 https://nytimes.com/athletic/6729290/2025/10/19/florida-football-coaching-search-job-money/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6729290/2025/10/19/florida-football-coaching-search
 https://nytimes.com/athletic/6648133/2025/10/19/florida-gators-billy-napier-fired/
 
 **The Briefing - Liverpool 1 Man United 2: Amorim savours finest result yet as champions' gloom deepens**\
-`Ruben Amorim's side secured their first league win at Anfield since January 2016 as the champions suffered a fourth loss in a row`\
+`Ruben Amorim's side secured their first league win at Anfield since 2016 as the champions suffered a fourth loss in a row`\
 https://nytimes.com/athletic/6728290/2025/10/19/liverpool-manchester-united-mbeumo-maguire-gakpo-analysis/
 
 **Effort is 'good' for Leeds United - but effectiveness is 'missing'**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/19/us/politics/trump-colombia-petro-aid.html
 **Ex-Eagles defensive lineman Brandon Graham considering unretiring: Source**\
 `Graham is considering a return to the league after Za'Darius Smith's sudden retirement announcement.`\
 https://nytimes.com/athletic/6730659/2025/10/19/brandon-graham-eagles-return-zadarius-smith/
-
-**‘Larsen C’ Review: Grand, Dark and Inhumanly Cold**\
-`At the new Powerhouse: International festival in Brooklyn, Christos Papadopoulos debuted an oblique, glacially cool work with seven dancers.`\
-https://nytimes.com/2025/10/19/arts/dance/larsen-c-review.html
 

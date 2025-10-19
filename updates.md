@@ -1,3 +1,11 @@
+**AP Top 25: Indiana No. 2 as Vandy earns historic top-10 spot**\
+`This week's AP Top 25 college football poll includes landmark rankings for No. 2 Indiana, No. 7 Georgia Tech and No. 10 Vanderbilt.`\
+https://nytimes.com/athletic/6730744/2025/10/19/ap-top-25-vanderbilt-indiana-college-football-rankings/
+
+**The Briefing - Liverpool 1 Man United 2: Amorim savours finest result yet as champions' gloom deepens**\
+`Ruben Amorim's side secured their first league win at Anfield since 2016 as the champions suffered a fourth loss in a row`\
+https://nytimes.com/athletic/6728290/2025/10/19/liverpool-manchester-united-mbeumo-maguire-gakpo-analysis/
+
 **How good is the Florida job after Billy Napier?**\
 `The tradition of the Swamp, the three Heisman Trophies and everything around the program are as true to college football as it gets.`\
 https://nytimes.com/athletic/6729290/2025/10/19/florida-football-coaching-search-job-money/
