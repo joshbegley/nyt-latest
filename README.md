@@ -1,3 +1,7 @@
+**Notre Dame was at its best vs. USC, dictating terms with a physicality reminiscent of 2024**\
+`In the final scheduled game in the series, Notre Dame got the last word. And it did so by punching USC in the mouth.`\
+https://nytimes.com/athletic/6730210/2025/10/19/notre-dame-was-at-its-best-vs-usc-dictating-terms-with-a-physicality-reminiscent-of-2024/
+
 **So You’re Celebrating Diwali Now…**\
 `We explain why the South Asian festival of lights is becoming more popular in Western countries.`\
 https://nytimes.com/2025/10/19/briefing/diwali-festival-lights.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/19/opinion/hbo-task-yellowstone.html
 **Trump’s Crackdown on Chinese Students Ignores a Startling New Reality**\
 `Shutting out China’s best minds will only push them into a homegrown Chinese research ecosystem that is eclipsing American universities.`\
 https://nytimes.com/2025/10/19/opinion/chinese-students-universities-trump.html
-
-**Chris Hayes: The Democrats’ Main Problem Isn’t Their Message**\
-`Democrats’ vision for the country won’t matter unless they can get people to pay attention to it.`\
-https://nytimes.com/2025/10/19/opinion/democrats-attention-elections.html
 
