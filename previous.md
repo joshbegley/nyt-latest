@@ -1,3 +1,15 @@
+**Canadiens' first test of depth demonstrated that depth of trust is not as deep**\
+`The Canadiens are a young team, and trust is something that takes time to develop. Those two realities sometimes can't coexist.`\
+https://nytimes.com/athletic/6729984/2025/10/19/canadiens-rangers-loss-depth/
+
+**Atlanta United fires head coach Ronny Deila after one win in 18**\
+`"Our standard of play was not met this season," Atlanta CEO and president Garth Lagerwey said in a release Sunday.`\
+https://nytimes.com/athletic/6730387/2025/10/19/ronny-deila-atlanta-united-mls/
+
+**College Football Playoff 2025 projections: How did Week 8 change the bracket?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/10/19/college-football-playoff-bracket-projections-odds/
+
 **Predicting the College Football Playoff: Georgia jumps, Miami and Texas Tech slide**\
 `The College Football Playoff margin for error for Miami and Texas Tech is much slimmer following Week 8 losses.`\
 https://nytimes.com/athletic/6730052/2025/10/19/college-football-playoff-2025-bracket-prediction-week-8/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/19/opinion/ai-sora-slop.html
 **A Standoff That Puts Health Care at Risk**\
 `Readers discuss the political battle over health care in America.`\
 https://nytimes.com/2025/10/19/opinion/aca-health-care.html
-
-**New Flare-Up of Violence Strains Gaza Cease-Fire**\
-`Israel launched airstrikes on Gaza after it accused Palestinian militants of attacking its forces across cease-fire lines.`\
-https://nytimes.com/2025/10/19/world/middleeast/israel-gaza-ceasefire.html
-
-**Until Saturday: This level of CFB chaos is rare**\
-`Until Saturday is The Athletic's free CFB newsletter.`\
-https://nytimes.com/athletic/6730334/2025/10/19/college-football-upsets-week-8-until-saturday/
-
-**How to watch Oilers vs. Red Wings: Time, TV, streaming**\
-`Find out how to watch the Edmonton Oilers play the Detroit Red Wings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6730321/2025/10/19/oilers-vs-red-wings-stream-how-to-watch-oct-19/
 
