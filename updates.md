@@ -1,3 +1,7 @@
+**Ex-Eagles defensive lineman Brandon Graham considering unretiring: Source**\
+`Graham is considering a return to the league after Za'Darius Smith's sudden retirement announcement.`\
+https://nytimes.com/athletic/6730659/2025/10/19/brandon-graham-eagles-return-zadarius-smith/
+
 **‘Larsen C’ Review: Grand, Dark and Inhumanly Cold**\
 `At the new Powerhouse: International festival in Brooklyn, Christos Papadopoulos debuted an oblique, glacially cool work with seven dancers.`\
 https://nytimes.com/2025/10/19/arts/dance/larsen-c-review.html
