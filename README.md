@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6730014/2025/10/19/penn-state-loss-iowa-terry-smith
 `The Trojans head home with regret and a pipe dream after their Playoff hopes took a hit.`\
 https://nytimes.com/athletic/6729981/2025/10/19/usc-notre-dame-rivalry-playoff/
 
-**Sherrone Moore and Michigan block out the noise after difficult week**\
+**Michigan could've headed for turmoil. Instead it blocked out the noise in a statement win**\
 `Moore admitted there were some "tough conversations" after the Wolverines' loss at USC last week. `\
 https://nytimes.com/athletic/6729545/2025/10/19/michigan-washington-sherrone-moore-bryce-underwood/
 
