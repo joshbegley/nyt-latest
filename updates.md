@@ -1,3 +1,7 @@
+**Smith: The Wild better wake up soon before early-season slide proves costly**\
+`Last year the Wild started hot and ended up needing every point to make the playoffs. This year they're struggling.`\
+https://nytimes.com/athletic/6730603/2025/10/19/minnesota-wild-slow-start-foligno/
+
 **Trump and Colombian President Trade Digital Attacks Over Boat Strikes**\
 `President Gustavo Petro of Colombia accused the United States of murder in the death of a fisherman in a strike in the Caribbean last week.`\
 https://nytimes.com/2025/10/19/us/politics/trump-colombia-petro-aid.html
