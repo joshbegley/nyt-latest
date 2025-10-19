@@ -1,3 +1,5 @@
+
+
 **Artillery Shell Detonated Over Interstate 5 During Marines’ Celebration, California Officials Say**\
 `The mishap, during an anniversary celebration for the Marine Corps attended by the vice president and defense secretary, underscores safety concerns that Gov. Gavin Newsom voiced before Saturday’s event at Camp Pendleton.`\
 https://nytimes.com/2025/10/19/us/politics/shell-interstate-5-marines-california.html
