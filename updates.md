@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: President Threatens to Withdraw Aid to Colombia in Feud Over Caribbean Strikes**\
+``\
+https://nytimes.com/live/2025/10/19/us/trump-news
+
 **At Least 14 Injured in Hit-and-Run at a Child’s Birthday Party**\
 `A driver fled the scene after ramming a vehicle into a group of people, including children, outside a Maryland home on Saturday night, the police said.`\
 https://nytimes.com/2025/10/19/us/crash-birthday-party-bladensburg.html

@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6680237/2025/10/19/kevin-durant-contract-extension-
 `Brissett, who is 19-35 as a starter, will start as Arizona's quarterback for the second straight week with Kyler Murray out.`\
 https://nytimes.com/athletic/6729282/2025/10/19/jacoby-brissett-start-cardinals-packers/
 
-**Trump Administration Live Updates: U.S. to Repatriate 2 Survivors of Strike on Suspected Drug Vessel**\
+**Trump Administration Live Updates: President Threatens to Withdraw Aid to Colombia in Feud Over Caribbean Strikes**\
 ``\
 https://nytimes.com/live/2025/10/19/us/trump-news
 
