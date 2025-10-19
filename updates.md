@@ -1,3 +1,23 @@
+**Bears-Saints takeaways: Chicago's rushing attack overpowers Saints**\
+`The Chicago Bears defense has 15 takeaways in the last four games.`\
+https://nytimes.com/athletic/6731154/2025/10/19/saints-bears-score-result-takeaways-nfl/
+
+**Max Verstappen enjoys perfect weekend: U.S. Grand Prix briefing**\
+`Max Verstappen is now just 40 points back from drivers’ championship leader Oscar Piastri`\
+https://nytimes.com/athletic/6731244/2025/10/19/u-s-grand-prix-briefing-max-verstappen/
+
+**Dolphins-Browns takeaways: Tua benched as blowout loss sends Miami to 1-6**\
+`Miami's flat performance increases focus on the status of head coach Mike McDaniel.`\
+https://nytimes.com/athletic/6730769/2025/10/19/dolphins-browns-score-result-takeaways-nfl/
+
+**Panthers-Jets: Carolina wins as Bryce Young goes down with ankle injury**\
+`Both teams relied on their backup quarterbacks to finish the game — Tyrod Taylor for New York and Andy Dalton for Carolina.`\
+https://nytimes.com/athletic/6730756/2025/10/19/panthers-jets-score-result-takeaways-nfl/
+
+**Eagles-Vikings Takeaways: DeVonta Smith, A.J. Brown break out**\
+`Philadelphia passing game breaks out in road win over Minnesota`\
+https://nytimes.com/athletic/6730714/2025/10/19/eagles-vikings-score-result-takeaways-nfl/
+
 **Patriots vs. Titans takeaways: New England offense steamrolls Tennessee**\
 `Mike Vrabel returned to Tennessee and exacted revenge against his former team.`\
 https://nytimes.com/athletic/6731277/2025/10/19/patriots-titans-score-result-takeaways-nfl/

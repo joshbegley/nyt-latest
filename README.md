@@ -1,3 +1,7 @@
+**Artillery Shell Detonated Over Interstate 5 During Marines’ Celebration, California Officials Say**\
+`The mishap, during an anniversary celebration for the Marine Corps attended by the vice president and defense secretary, underscores safety concerns that Gov. Gavin Newsom voiced before Saturday’s event at Camp Pendleton.`\
+https://nytimes.com/2025/10/19/us/politics/shell-interstate-5-marines-california.html
+
 **Bears-Saints takeaways: Chicago's rushing attack overpowers Saints**\
 `The Chicago Bears defense has 15 takeaways in the last four games.`\
 https://nytimes.com/athletic/6731154/2025/10/19/saints-bears-score-result-takeaways-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6730859/2025/10/19/demaryius-thomas-broncos-ring-of
 **Sam Rivers, Bassist for Limp Bizkit, Dies at 48**\
 `As a founding member of the band, he helped it achieve mainstream success.`\
 https://nytimes.com/2025/10/19/arts/music/sam-rivers-dead.html
-
-**Panthers quarterback Bryce Young leaves game vs. Jets with ankle injury**\
-`Young has only missed one game to injury since entering the league in 2023 and that was largely viewed as a mental reset.`\
-https://nytimes.com/athletic/6731324/2025/10/19/bryce-young-panthers-ankle-injury-update/
 

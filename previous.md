@@ -1,3 +1,23 @@
+**Bears-Saints takeaways: Chicago's rushing attack overpowers Saints**\
+`The Chicago Bears defense has 15 takeaways in the last four games.`\
+https://nytimes.com/athletic/6731154/2025/10/19/saints-bears-score-result-takeaways-nfl/
+
+**Max Verstappen enjoys perfect weekend: U.S. Grand Prix briefing**\
+`Max Verstappen is now just 40 points back from drivers’ championship leader Oscar Piastri`\
+https://nytimes.com/athletic/6731244/2025/10/19/u-s-grand-prix-briefing-max-verstappen/
+
+**Dolphins-Browns takeaways: Tua benched as blowout loss sends Miami to 1-6**\
+`Miami's flat performance increases focus on the status of head coach Mike McDaniel.`\
+https://nytimes.com/athletic/6730769/2025/10/19/dolphins-browns-score-result-takeaways-nfl/
+
+**Panthers-Jets: Carolina wins as Bryce Young goes down with ankle injury**\
+`Both teams relied on their backup quarterbacks to finish the game — Tyrod Taylor for New York and Andy Dalton for Carolina.`\
+https://nytimes.com/athletic/6730756/2025/10/19/panthers-jets-score-result-takeaways-nfl/
+
+**Eagles-Vikings Takeaways: DeVonta Smith, A.J. Brown break out**\
+`Philadelphia passing game breaks out in road win over Minnesota`\
+https://nytimes.com/athletic/6730714/2025/10/19/eagles-vikings-score-result-takeaways-nfl/
+
 **Patriots vs. Titans takeaways: New England offense steamrolls Tennessee**\
 `Mike Vrabel returned to Tennessee and exacted revenge against his former team.`\
 https://nytimes.com/athletic/6731277/2025/10/19/patriots-titans-score-result-takeaways-nfl/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/10/19/arts/music/sam-rivers-dead.html
 **Panthers quarterback Bryce Young leaves game vs. Jets with ankle injury**\
 `Young has only missed one game to injury since entering the league in 2023 and that was largely viewed as a mental reset.`\
 https://nytimes.com/athletic/6731324/2025/10/19/bryce-young-panthers-ankle-injury-update/
-
-**Panthers-Jets broadcast temporarily affected by audio problems**\
-`Technical difficulties became a talking point during the first half of Jets-Panthers, after the Fox broadcast temporarily went silent.`\
-https://nytimes.com/athletic/6731135/2025/10/19/jets-panthers-broadcast-audio-issues/
-
-**La Liga asked broadcasters not to show player protests against game in the U.S.**\
-`La Liga has announced plans to play Villarreal-Barcelona in Miami after UEFA "regrettably" approved the idea earlier this month`\
-https://nytimes.com/athletic/6730113/2025/10/19/la-liga-protests-barcelona-villarreal/
-
-**Slot says Liverpool's poor run has not impacted his squad's confidence**\
-`Sunday's defeat by Man Utd means Liverpool have lost four games in a row across all competitions for the first time since November 2014.`\
-https://nytimes.com/athletic/6731202/2025/10/19/arne-slot-liverpool-man-utd/
-
-**Kim Kardashian, Jenna Ortega and Hailey Bieber Light Up the Academy Museum Gala**\
-`The fund-raiser in Los Angeles drew stars who were masked, shoeless and gushing about this season’s Oscar hopefuls.`\
-https://nytimes.com/2025/10/19/style/academy-museum-gala-kim-kardashian.html
-
-**Feldman's candidates to replace Billy Napier at Florida, from Kiffin to Golesh**\
-`The Gators have a few quality candidates from the SEC and Big Ten head-coaching ranks. `\
-https://nytimes.com/athletic/6731200/2025/10/19/florida-coaching-candidates-billy-napier-fired/
 
