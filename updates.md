@@ -1,3 +1,7 @@
+**Trump Posts Fake Video of Himself Flying a ‘King Trump’ Jet Over Protesters**\
+`President Trump shared what appeared to be an A.I.-generated video on social media. It shows Mr. Trump wearing a crown and flying a jet that dumps brown liquid on demonstrators.`\
+https://nytimes.com/2025/10/19/us/politics/trump-fake-video-no-kings.html
+
 **Canadiens' first test of depth demonstrated that depth of trust is not as deep**\
 `The Canadiens are a young team, and trust is something that takes time to develop. Those two realities sometimes can't coexist.`\
 https://nytimes.com/athletic/6729984/2025/10/19/canadiens-rangers-loss-depth/
