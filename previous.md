@@ -1,3 +1,7 @@
+**What are the Dolphins doing? How scary are the Chiefs? Our experts' Week 7 takeaways**\
+`Also: The Eagles’ passing game took off in a win over the Vikings, while things went from bad to worse for the New York Jets.`\
+https://nytimes.com/athletic/6731133/2025/10/19/nfl-takeaways-week-7-scores-results/
+
 **Quenneville returns to Chicago for first time since reinstatement: 'I could have been more forceful'**\
 `Quenneville was reinstated by NHL commissioner Gary Bettman in July 2024 but did not return to coaching until this season.`\
 https://nytimes.com/athletic/6731502/2025/10/19/joel-quenneville-chicago-blackhawks-return-reinstatement/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6731244/2025/10/19/u-s-grand-prix-briefing-max-vers
 **Dolphins-Browns takeaways: Tua benched as blowout loss sends Miami to 1-6**\
 `Miami's flat performance increases focus on the status of head coach Mike McDaniel.`\
 https://nytimes.com/athletic/6730769/2025/10/19/dolphins-browns-score-result-takeaways-nfl/
-
-**Panthers-Jets: Carolina wins as Bryce Young goes down with ankle injury**\
-`Both teams relied on their backup quarterbacks to finish the game — Tyrod Taylor for New York and Andy Dalton for Carolina.`\
-https://nytimes.com/athletic/6730756/2025/10/19/panthers-jets-score-result-takeaways-nfl/
 
