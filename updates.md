@@ -1,3 +1,11 @@
+**Artillery Shell Detonated Over Interstate 5 During Marines’ Celebration, California Officials Say**\
+`The mishap, during an anniversary celebration for the Marine Corps attended by the vice president and defense secretary, underscores safety concerns that Gov. Gavin Newsom voiced before Saturday’s event at Camp Pendleton.`\
+https://nytimes.com/2025/10/19/us/politics/shell-interstate-5-marines-california.html
+
+**Eagles-Vikings takeaways: DeVonta Smith, A.J. Brown break out in Philly's win**\
+`Philadelphia passing game breaks out in road win over Minnesota`\
+https://nytimes.com/athletic/6730714/2025/10/19/eagles-vikings-score-result-takeaways-nfl/
+
 **Bears-Saints takeaways: Chicago's rushing attack overpowers Saints**\
 `The Chicago Bears defense has 15 takeaways in the last four games.`\
 https://nytimes.com/athletic/6731154/2025/10/19/saints-bears-score-result-takeaways-nfl/
