@@ -1,3 +1,11 @@
+**What Buster Posey's pursuit of Tony Vitello means, and what comes next for Giants**\
+`The Giants' pursuit of Vitello could indicate a change in how teams look at their managerial vacancies.`\
+https://nytimes.com/athletic/6729703/2025/10/18/sf-giants-tony-vitello-manager-buster-posey-college-coaches/
+
+**In first game after firing James Franklin, Penn State comes up just short at Iowa**\
+`The Nittany Lions let an 11-point third-quarter lead slip away in interim coach Terry Smith’s debut.`\
+https://nytimes.com/athletic/6729687/2025/10/18/penn-state-iowa-terry-smith-james-franklin/
+
 **Blue Jays ALCS off-day notes: George Springer's injury, Trey Yesavage's big chance**\
 `Toronto hopes to have their designated hitter back for Sunday's crucial Game 6 against the Seattle Mariners to stave off ALCS elimination.`\
 https://nytimes.com/athletic/6729608/2025/10/18/blue-jays-george-springer-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6560541/2025/10/18/college-football-playoff-bracket
 **Woman Who Tried to Let Her Twin Take Blame for Fatal Buggy Crash Gets 4 Years in Prison**\
 `The crash killed two Amish children and injured two others in rural Minnesota in 2023.`\
 https://nytimes.com/2025/10/18/us/minnesota-amish-buggy-crash-sentence.html
-
-**No. 1 Ohio State shuts out Wisconsin to add to Luke Fickell hot seat talk: Key takeaways**\
-`Ohio State dominated Wisconsin 34-0 behind QB Julian Sayin and its stingy defense, increasing the pressure on Fickell, a former Buckeye.`\
-https://nytimes.com/athletic/6729331/2025/10/18/ohio-state-wisconsin-score-result-luke-fickell/
-
-**Georgia rallies to beat Ole Miss, shake up SEC race in 43-35 shootout: Key takeaways**\
-`Georgia (6-1, 4-1 SEC) trailed 35-26 in the second half but scored the final 17 points.`\
-https://nytimes.com/athletic/6729323/2025/10/18/ole-miss-vs-georgia-sec-showdown-results-takeaways/
 
