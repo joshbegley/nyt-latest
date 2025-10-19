@@ -1,3 +1,7 @@
+**A Fragile Cease-fire Between Afghanistan and Pakistan Ends Violence, for Now**\
+`The two committed to stop attacking each other after the worst outbreak of hostilities in years. But the underlying causes remain, analysts warn.`\
+https://nytimes.com/2025/10/19/world/asia/afghanistan-pakistan-cease-fire.html
+
 **Puka Nacua-less Rams dominate Jaguars in London: Takeaways**\
 `Rams QB Matthew Stafford found 10 different receivers with Nacua out to roll past the Jaguars in London.`\
 https://nytimes.com/athletic/6730784/2025/10/19/rams-jaguars-score-result-takeaways-london-week-7/

@@ -1,3 +1,7 @@
+**A Fragile Cease-fire Between Afghanistan and Pakistan Ends Violence, for Now**\
+`The two committed to stop attacking each other after the worst outbreak of hostilities in years. But the underlying causes remain, analysts warn.`\
+https://nytimes.com/2025/10/19/world/asia/afghanistan-pakistan-cease-fire.html
+
 **Puka Nacua-less Rams dominate Jaguars in London: Takeaways**\
 `Rams QB Matthew Stafford found 10 different receivers with Nacua out to roll past the Jaguars in London.`\
 https://nytimes.com/athletic/6730784/2025/10/19/rams-jaguars-score-result-takeaways-london-week-7/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6730016/2025/10/19/dodgers-world-series-matchup-mar
 **Sharks apologize for scoreboard message praising ICE on night celebrating Hispanic heritage**\
 `The message was shown during the first intermission of the game between the Sharks and the Penguins on "Los Tiburones Night."`\
 https://nytimes.com/athletic/6730478/2025/10/19/sharks-scoreboard-hispanic-heritage/
-
-**SEC vibes after Week 8: Vanderbilt, Missouri and a year of constant parity**\
-`Seven SEC teams still have one win or fewer — including Vanderbilt, Missouri and Ole Miss, but not Texas, LSU or Florida.`\
-https://nytimes.com/athletic/6730539/2025/10/19/sec-football-rankings-week-8-vanderbilt-alabama-missouri/
 
