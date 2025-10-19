@@ -1,3 +1,7 @@
+**The backstory of Patrick Mahomes' trick play vs. Raiders: 'That was hilarious'**\
+`Chiefs QB Patrick Mahomes faked out the Raiders — and CBS broadcasters — with his acting skills. Here's what happened.`\
+https://nytimes.com/athletic/6730847/2025/10/19/chiefs-patrick-mahomes-trick-play-raiders/
+
 **Curry College's Montie Quinn sets NCAA record with 522 rushing yards**\
 `The Division III Curry running back set the NCAA single-game rushing record with 522 yards in a 71-27 win over Nichols on Saturday.`\
 https://nytimes.com/athletic/6731636/2025/10/19/curry-montie-quinn-ncaa-rushing-record-522-yards/
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6724640/2025/10/19/shaedon-sharpe-contract-extensio
 https://nytimes.com/2025/10/19/us/politics/trump-national-guard-san-francisco.html
 
 **Rams' offense becoming more complete as Matthew Stafford, Davante Adams get in sync**\
-`"Davante was on one today," coach Sean McVay said of the All-Pro receiver who hauled in three TD catches vs. the Jaguars. `\
+`"Davante was on one today," coach Sean McVay said of the All-Pro receiver, who hauled in three TD catches vs. the Jaguars. `\
 https://nytimes.com/athletic/6731107/2025/10/19/rams-offense-matthew-stafford-davante-adams/
 
 **Mike Vrabel has taken over and turned the Patriots into legitimate contenders**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6731747/2025/10/19/jayden-daniels-commanders-hamstr
 **U.S. Grand Prix: Submit your questions for our F1 mailbag**\
 `Well, it wasn&#8217;t the most thrilling two hours of our lives, but the 2025 U.`\
 https://nytimes.com/athletic/6731723/2025/10/19/u-s-grand-prix-f1-mailbag/
-
-**Submit your questions for the next Big Ten football mailbag**\
-`What's on your mind about the conference's most intriguing storylines, on and off the field?`\
-https://nytimes.com/athletic/6731647/2025/10/19/submit-your-questions-for-the-next-big-ten-football-mailbag/
 
