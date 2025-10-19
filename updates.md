@@ -1,3 +1,11 @@
+**Blazers, Toumani Camara agree to 4-year, $82 million extension: Source**\
+`In his second season, Camara was named second-team All-Defense while averaging 1.5 steals per game.`\
+https://nytimes.com/athletic/6731728/2025/10/19/toumani-camara-contract-extension-portland-trail-blazers-nba/
+
+**Commanders QB Jayden Daniels exits with hamstring injury vs. Cowboys**\
+`Daniels left Sunday's game in the third quarter and headed to the locker room. He's questionable to return.`\
+https://nytimes.com/athletic/6731747/2025/10/19/jayden-daniels-commanders-hamstring-injury/
+
 **U.S. Grand Prix: Submit your questions for our F1 mailbag**\
 `Well, it wasn&#8217;t the most thrilling two hours of our lives, but the 2025 U.`\
 https://nytimes.com/athletic/6731723/2025/10/19/u-s-grand-prix-f1-mailbag/
