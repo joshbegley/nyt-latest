@@ -1,3 +1,7 @@
+**Ferrari scored a good Austin podium. But its winless F1 run isn't stopping**\
+`Charles Leclerc helped Ferrari notch a fine third-place in Sunday's U.S. GP. But that was a long way from 2024's triumph in the same race...`\
+https://nytimes.com/athletic/6732855/2025/10/20/ferrari-2025-us-grand-prix/
+
 **The Showdown Behind the Shutdown**\
 `Extending subsidies for the Affordable Care Act has emerged as a major sticking point in Washington, and could carry the biggest economic consequences.`\
 https://nytimes.com/2025/10/20/business/dealbook/health-care-shutdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6732200/2025/10/20/blue-jays-mariners-game-7-the-pu
 **What to Know About Diwali, the Hindu Festival of Lights**\
 `The biggest public holiday in India, Diwali features prayers for prosperity and good fortune — and lots of sweets.`\
 https://nytimes.com/article/diwali-india-festival-lights.html
-
-**Liverpool captain Fisk receives England call-up**\
-`The 27-year-old has not been capped at senior level but has featured in the national team's youth sides.`\
-https://nytimes.com/athletic/6732792/2025/10/20/grace-fisk-england-reid-clinton/
 
