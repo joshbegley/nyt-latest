@@ -1,3 +1,11 @@
+**The Bounce: The Nuggets should be the West favorites, and more spicy hot takes**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6733359/2025/10/20/nuggets-hawks-hot-takes-breakouts-bounce/
+
+**How the Louvre Jewelry Heist Unfolded**\
+`Thieves used a truck-mounted ladder to break into the Louvre and steal items of “incalculable” value.`\
+https://nytimes.com/interactive/2025/10/20/world/europe/louvre-robbery-jewelry-heist-photos-maps.html
+
 **Police investigating spitting allegation against Burnley’s Hannibal in Leeds game**\
 `The 22-year-old was an 83rd-minute substitute at Turf Moor, a game which Burnley won 2-0.`\
 https://nytimes.com/athletic/6733237/2025/10/20/hannibal-burnley-leeds-spitting-allegation/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6733578/2025/10/20/red-bull-lando-norris-grid-tape/
 **How Team Penske lost Talladega and (maybe) its shot at 4 straight Cup Series titles**\
 `Ryan Blaney and Joey Logano looked like one of them was about to put Team Penske back into the Championship 4. Then it all went south.`\
 https://nytimes.com/athletic/6733443/2025/10/20/team-penske-talladega-joey-logano-ryan-blaney-playoffs/
-
-**Jayden Daniels' mother pleads with fans to stop comparing him to RGIII**\
-`The parallels between Daniels and Robert Griffin III are clear, as the pair were Heisman Trophy winners and No. 2 picks in the NFL Draft.`\
-https://nytimes.com/athletic/6733275/2025/10/20/jayden-daniels-robert-griffin-washington-commanders-comparisons/
-
-**What we've learned about Bruins so far this season: Moral victories will have to do**\
-`New coach Marco Sturm’s job is rebuilding organizational culture. Wins are secondary. That is a good thing, though maybe not an easy one.`\
-https://nytimes.com/athletic/6733336/2025/10/20/state-of-bruins-seven-games/
 
