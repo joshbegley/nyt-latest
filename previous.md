@@ -1,3 +1,7 @@
+**Draymond Green has advice for Brandin Podziemski. Lots of it**\
+`Brandin Podziemski said he wants to be a future leader for Golden State. Green knows what comes with such words.`\
+https://nytimes.com/athletic/6732285/2025/10/20/draymond-green-warriors-podziemski-future-advice/
+
 **How Ultraprocessed Food Took Over America**\
 `These products are among the greatest health threats of our time.`\
 https://nytimes.com/2025/10/20/briefing/how-ultraprocessed-food-took-over-america.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/20/theater/todaytix-broadway-tickets-ari-emanuel.htm
 **How to watch the upstart Detroit Pistons in the 2025-26 season**\
 `Following a return to the playoffs, the Pistons could be on the cusp of a breakout year. See how to watch Cade Cunningham's team all season.`\
 https://nytimes.com/athletic/6724015/2025/10/20/detroit-pistons-tv-streaming-peacock-how-to-watch/
-
-**OpenEvidence Raises $200 Million for a ChatGPT for Medicine**\
-`The three-year-old artificial intelligence start-up has drawn investor attention, and money, as its use among doctors, nurses and others skyrockets.`\
-https://nytimes.com/2025/10/20/business/dealbook/openevidence-fundraising-chatgpt-medicine.html
 

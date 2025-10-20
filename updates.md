@@ -1,3 +1,7 @@
+**Draymond Green has advice for Brandin Podziemski. Lots of it**\
+`Brandin Podziemski said he wants to be a future leader for Golden State. Green knows what comes with such words.`\
+https://nytimes.com/athletic/6732285/2025/10/20/draymond-green-warriors-podziemski-future-advice/
+
 **How Ultraprocessed Food Took Over America**\
 `These products are among the greatest health threats of our time.`\
 https://nytimes.com/2025/10/20/briefing/how-ultraprocessed-food-took-over-america.html
