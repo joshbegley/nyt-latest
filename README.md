@@ -1,3 +1,11 @@
+**Ranking the SEC jobs: With Florida open again, where does it fall in the new pecking order?**\
+`Georgia has a convincing argument to be considered the best job in a league of great jobs. `\
+https://nytimes.com/athletic/6732936/2025/10/20/ranking-sec-coaching-jobs-florida-arkansas/
+
+**49ers, with their leader out, win again and show their spirit keeps thriving**\
+`Fred Warner was on hand Sunday night to cheer on his 49ers. They responded with yet another big win in an injury-marred season.`\
+https://nytimes.com/athletic/6732827/2025/10/20/san-francisco-49ers-atlanta-falcons-fred-warner/
+
 **From YouTube to the PGA Tour: Good Good will sponsor new event**\
 `The fall tournament is also a return to Austin, Texas for the PGA Tour.`\
 https://nytimes.com/athletic/6731844/2025/10/20/good-good-championship-pga-tour-austin/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6727125/2025/10/20/atlanta-hawks-tv-schedule-how-to
 **The Culture Wars Have Come for Wikipedia**\
 `Jimmy Wales, a co-founder of Wikipedia, speaks with Lulu Garcia-Navarro about the challenges the site faces.`\
 https://nytimes.com/video/podcasts/100000010468816/the-culture-wars-have-come-for-wikipedia.html
-
-**Ferrari scored a good Austin podium. But its winless F1 run isn't stopping**\
-`Charles Leclerc helped Ferrari notch a fine third-place in Sunday's U.S. GP. But that was a long way from 2024's triumph in the same race...`\
-https://nytimes.com/athletic/6732855/2025/10/20/ferrari-2025-us-grand-prix/
-
-**The Showdown Behind the Shutdown**\
-`Extending subsidies for the Affordable Care Act has emerged as a major sticking point in Washington, and could carry the biggest economic consequences.`\
-https://nytimes.com/2025/10/20/business/dealbook/health-care-shutdown.html
 
