@@ -1,3 +1,11 @@
+**10 Hurt, One Critically, After Truck Hits Van Parked Near Penn Station**\
+`The chain-reaction crash, in one of New York City’s most pedestrian-heavy areas, unfolded as afternoon commuters made their way to the busy transit hub.`\
+https://nytimes.com/2025/10/20/nyregion/midtown-crash-truck-van-injured.html
+
+**White House Demolishes Facade of East Wing to Build Trump’s Ballroom**\
+`The planned 90,000-square-foot ballroom now under construction off the back of the East Wing is nearly double the square footage of the White House residence. Its renovation is one of the largest there in decades.`\
+https://nytimes.com/video/us/politics/100000010470665/white-house-demolition-ballroom.html
+
 **Congressional Democrats Investigate Arrests of Americans During Raids**\
 `Representative Robert Garcia and Senator Richard Blumenthal started an inquiry to examine reports of misconduct by immigration agents, focusing on the arrests of citizens.`\
 https://nytimes.com/2025/10/20/us/investigation-arrests-of-americans-ice-raids.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6734704/2025/10/20/49ers-bryce-huff-injury-brock-pu
 **Justice Department Scrutinizes a Trip Fani Willis Took to the Bahamas**\
 `President Trump has said that Ms. Willis, the prosecutor who brought election interference charges against him two years ago in Georgia, “should be prosecuted.”`\
 https://nytimes.com/2025/10/20/us/fani-willis-trump-justice-department-investigation.html
-
-**NFL suspends Broncos LB Dre Greenlaw one game for conduct toward referee**\
-`Greenlaw has played in only one game this season, playing 21 snaps and recording six tackles.`\
-https://nytimes.com/athletic/6734960/2025/10/20/nfl-suspends-dre-greenlaw-broncos/
-
-**Your November Election Guide (Yes, This November)**\
-`It’s not a presidential election year, or even the midterms, but races this fall will offer a sense of voters’ moods in the first year of the new Trump administration.`\
-https://nytimes.com/2025/10/20/us/politics/elections-california-new-jersey-nyc.html
 

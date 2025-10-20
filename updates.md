@@ -1,3 +1,11 @@
+**10 Hurt, One Critically, After Truck Hits Van Parked Near Penn Station**\
+`The chain-reaction crash, in one of New York City’s most pedestrian-heavy areas, unfolded as afternoon commuters made their way to the busy transit hub.`\
+https://nytimes.com/2025/10/20/nyregion/midtown-crash-truck-van-injured.html
+
+**White House Demolishes Facade of East Wing to Build Trump’s Ballroom**\
+`The planned 90,000-square-foot ballroom now under construction off the back of the East Wing is nearly double the square footage of the White House residence. Its renovation is one of the largest there in decades.`\
+https://nytimes.com/video/us/politics/100000010470665/white-house-demolition-ballroom.html
+
 **Congressional Democrats Investigate Arrests of Americans During Raids**\
 `Representative Robert Garcia and Senator Richard Blumenthal started an inquiry to examine reports of misconduct by immigration agents, focusing on the arrests of citizens.`\
 https://nytimes.com/2025/10/20/us/investigation-arrests-of-americans-ice-raids.html
