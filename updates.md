@@ -1,3 +1,19 @@
+**NBA Power Rankings: The Hawks are contenders; postseason predictions for all**\
+`We're back with another season of Power Rankings, and where some teams are starting off may surprise you.`\
+https://nytimes.com/athletic/6727043/2025/10/20/nba-power-rankings-2025-2026-knicks-thunder-clippers/
+
+**Blue Jays one win away from preserving chase for their own October immortality**\
+`For a whole generation in Toronto, this is the closest they have come to ultimate postseason glory.`\
+https://nytimes.com/athletic/6732569/2025/10/20/blue-jays-game-7-one-win-world-series/
+
+**Senior German General Says Europe Must Do All It Can to Help Ukraine**\
+`European democracy and rule of law are at risk, the general says, so Europe must give Ukraine whatever it can to pressure Moscow, even if Trump does not.`\
+https://nytimes.com/2025/10/20/world/europe/senior-german-general-says-europe-must-do-all-it-can-to-help-ukraine.html
+
+**Here’s Is a Partial List of Sites and Apps Affected by Outages**\
+`Major services were having issues, including WhatsApp, the official website for the British government and the payment app Venmo.`\
+https://nytimes.com/2025/10/20/business/amazon-aws-outage-down-list.html
+
 **Restaurant Review: Baby Bistro in Los Angeles**\
 `If you go to Baby Bistro in Los Angeles looking for steak au poivre and a squidgy French onion soup, you might be disappointed.`\
 https://nytimes.com/video/dining/100000010452172/restaurant-review-baby-bistro-in-los-angeles.html
