@@ -1,3 +1,7 @@
+**Churchill Plus the Windsors? Andrew Morton Spills Rewarmed Tea.**\
+`In “Winston and the Windsors,” the prolific biographer Andrew Morton, perhaps inevitably, tackles two British behemoths.`\
+https://nytimes.com/2025/10/20/books/review/winston-and-the-windsors-andrew-morton.html
+
 **Officials Move to Close Cannabis Company That Allowed Unlicensed Production**\
 `The license for Omnium Health could be revoked after an investigation found that it let other companies use its facilities in an illegal arrangement.`\
 https://nytimes.com/2025/10/20/nyregion/cannabis-omnium.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/20/nyregion/subway-cars-decouple.html
 **A Newborn Girl Is Abandoned at a Penn Station Subway Stop**\
 `It was unclear who left the baby in a passageway that leads to the No. 1 train, the police said. She was in stable condition.`\
 https://nytimes.com/2025/10/20/nyregion/abandoned-baby-penn-station.html
-
-**Voices From a Nationwide Day of Protest Against Trump**\
-`Participants reflect on the “No Kings” demonstrations across the country.`\
-https://nytimes.com/2025/10/20/opinion/letters/no-kings-protests-trump.html
 
