@@ -1,3 +1,7 @@
+**NHL weekend rankings: 5 surprising early stories I'm not buying quite yet**\
+`As you may have heard, this ranking prefers the long-term view. A bigger sample size is needed before some of these early mirages look real.`\
+https://nytimes.com/athletic/6731518/2025/10/20/nhl-weekend-rankings-devils-flames-wolf/
+
 **World Series opportunity knocks, but Mariners can’t break down the door in Game 6**\
 `The Mariners now get one final chance this season to advance to win the first American League pennant in World Series history. `\
 https://nytimes.com/athletic/6732566/2025/10/20/seattle-mariners-world-series-alcs/

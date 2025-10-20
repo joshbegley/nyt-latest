@@ -1,3 +1,7 @@
+**Commanders lost themselves during an 'embarrassing' showing against Cowboys**\
+`Sunday's debacle against Dallas was a microcosm of the Commanders' struggles this season, and time is running out.`\
+https://nytimes.com/athletic/6732390/2025/10/20/commanders-loss-cowboys-mistakes/
+
 **NHL weekend rankings: 5 surprising early stories I'm not buying quite yet**\
 `As you may have heard, this ranking prefers the long-term view. A bigger sample size is needed before some of these early mirages look real.`\
 https://nytimes.com/athletic/6731518/2025/10/20/nhl-weekend-rankings-devils-flames-wolf/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6732521/2025/10/20/christian-mccaffrey-49ers-falcon
 **Giannis Antetokounmpo, Bucks hope competitive fire helps them surprise East, NBA**\
 `Sunday's practice energy fit into the recent reports the team has given about its work in training camp.`\
 https://nytimes.com/athletic/6731171/2025/10/20/bucks-giannis-antetokounmpo-east-playoffs-nba-defense/
-
-**Without Fred Warner, 49ers' defense plays with Warner-like intensity**\
-`Among the achievements for the 49ers' young defense Sunday: Holding Bijan Robinson to 2.9 yards a carry and Drake London to four receptions.`\
-https://nytimes.com/athletic/6732509/2025/10/20/49ers-falcons-snf-defense-fred-warner/
 

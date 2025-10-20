@@ -1,3 +1,7 @@
+**NHL weekend rankings: 5 surprising early stories I'm not buying quite yet**\
+`As you may have heard, this ranking prefers the long-term view. A bigger sample size is needed before some of these early mirages look real.`\
+https://nytimes.com/athletic/6731518/2025/10/20/nhl-weekend-rankings-devils-flames-wolf/
+
 **World Series opportunity knocks, but Mariners can’t break down the door in Game 6**\
 `The Mariners now get one final chance this season to advance to win the first American League pennant in World Series history. `\
 https://nytimes.com/athletic/6732566/2025/10/20/seattle-mariners-world-series-alcs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6731171/2025/10/20/bucks-giannis-antetokounmpo-east
 **Without Fred Warner, 49ers' defense plays with Warner-like intensity**\
 `Among the achievements for the 49ers' young defense Sunday: Holding Bijan Robinson to 2.9 yards a carry and Drake London to four receptions.`\
 https://nytimes.com/athletic/6732509/2025/10/20/49ers-falcons-snf-defense-fred-warner/
-
-**Oscar Piastri’s ‘odd one out’ U.S. GP leaves long-time F1 2025 points leader at risk**\
-`Oscar Piastri has led the 2025 F1 championship since April. But a poor run of recent form means his place is now under major threat`\
-https://nytimes.com/athletic/6731675/2025/10/20/oscar-piastri-2025-f1-points-lead/
 
