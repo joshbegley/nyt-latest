@@ -1,3 +1,7 @@
+**Fulham keen to renew Silva contract, which contains clause in region of £15m**\
+`Silva's existing deal runs out at the end of this season and he had been admired as Nottingham Forest looked to replace Ange Postecoglou.`\
+https://nytimes.com/athletic/6733017/2025/10/20/marco-silva-fulham-contract-clause/
+
 **NFL Week 8 odds, spreads: Ravens open as touchdown favorites vs. Bears**\
 `A shortened slate for Week 8 features several big favorites and lower point totals. Will anyone upset the wagon?`\
 https://nytimes.com/athletic/6733206/2025/10/20/nfl-week-8-odds-spreads-ravens-bears/
@@ -14,7 +18,7 @@ https://nytimes.com/video/business/energy-environment/100000010437465/what-to-kn
 `Half of the fine was suspended for the rest of the season, barring any repeat breaches.`\
 https://nytimes.com/athletic/6733578/2025/10/20/red-bull-lando-norris-grid-tape/
 
-**How Team Penske lost Talladega and (maybe) its shot at four straight Cup Series titles**\
+**How Team Penske lost Talladega and (maybe) its shot at 4 straight Cup Series titles**\
 `Ryan Blaney and Joey Logano looked like one of them was about to put Team Penske back into the Championship 4. Then it all went south.`\
 https://nytimes.com/athletic/6733443/2025/10/20/team-penske-talladega-joey-logano-ryan-blaney-playoffs/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/20/style/colin-jost-pete-davidson-staten-island-ferr
 **2025 Heisman Trophy odds: Three co-favorites highlight an open race**\
 `A new favorite has joined the Heisman Trophy race after an upset-heavy Week 8.`\
 https://nytimes.com/athletic/6731684/2025/10/20/heisman-trophy-odds-sayin-simpson-mendoza/
-
-**Drance: What I learned from a lifetime of watching sports with my dad**\
-`The Athletic's Thomas Drance reflects on his relationship with his father, Jonathan, who died earlier this month.`\
-https://nytimes.com/athletic/6732347/2025/10/20/thomas-jonathan-drance-fathers-sons-sports/
 
