@@ -1,3 +1,7 @@
+**Notre Dame-USC final thoughts: Love and Price's dominance, CJ Carr's 'off game'**\
+`Saturday’s 34-24 victory over USC paves the road for a march back to the College Football Playoff for Marcus Freeman and company.`\
+https://nytimes.com/athletic/6732924/2025/10/20/notre-dame-usc-highlights-film-review/
+
 **Miami Heat 2025-26 streaming guide: Updated schedule, broadcast info and blackout rules**\
 `Miami is a perennial postseason overachiever. At a minimum, this veteran group is going to play hard.`\
 https://nytimes.com/athletic/6726330/2025/10/20/miami-heat-how-to-watch-2025-26/
