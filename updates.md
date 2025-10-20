@@ -1,3 +1,19 @@
+**Peanut Allergies Have Plummeted in Children, Study Shows**\
+`Doctors have long recommended that infants avoid peanuts. But in 2017, experts officially reversed that guidance, and food allergies decreased sharply.`\
+https://nytimes.com/2025/10/20/well/peanut-allergy-drop.html
+
+**Quote of the Day: They Were Jets and Titans. Now They’re Nurses.**\
+`Quotation of the Day for Monday, October 20, 2025.`\
+https://nytimes.com/2025/10/20/pageoneplus/quote-of-the-day-they-were-jets-and-titans-now-theyre-nurses.html
+
+**No Corrections: Oct. 20, 2025**\
+`No corrections appeared in print on Monday, Oct. 20, 2025.`\
+https://nytimes.com/2025/10/20/pageoneplus/no-corrections-oct-20-2025.html
+
+**Connections: Sports Edition hints for Oct. 20, 2025, puzzle No. 392**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6732315/2025/10/20/connections-sports-edition-hints-for-oct-20-2025/
+
 **Cardinals, with five straight losses, need to question everything, including head coach**\
 `Through seven weeks, the Cardinals have proved one thing: They are good enough to win, yet they are better at finding ways to lose.`\
 https://nytimes.com/athletic/6732134/2025/10/19/arizona-cardinals-green-bay-packers-jonathan-gannon/
