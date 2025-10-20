@@ -1,3 +1,11 @@
+**‘Nobody Wants This,’ Plus 6 Things to Watch on TV this Week**\
+`The Netflix series staring Kristen Bell and Adam Brody returns for a second season. And on Bravo, housewives swap lives.`\
+https://nytimes.com/2025/10/20/arts/television/nobody-wants-this-tv-this-week.html
+
+**The New York Times in Print for Monday, Oct. 20, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/20/todays-new-york-times
+
 **Tawanda Muyeye exclusive: 'Test cricket and playing for England has been a goal of mine for so long'**\
 `The Kent batter has made waves since arriving in the United Kingdom as a refugee from Zimbabwe and is targeting an England future`\
 https://nytimes.com/athletic/6718656/2025/10/20/tawanda-muyeye-england-zimbabwe-kent-interview/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6730707/2025/10/20/aston-villa-matty-cash-pass/
 **The League Cup could've been greeted by excitement. Instead, it was almost apologetic**\
 `The Women's League Cup is an underserved competition, but given some love and guidance, it can fulfil its potential`\
 https://nytimes.com/athletic/6730899/2025/10/20/womens-league-cup-column/
-
-**The Flying Pizza, the Italian restaurant at the heart of Leeds United **\
-`A restaurant in a Leeds suburb has a strong and enduring relationship with the city's football club - this is why`\
-https://nytimes.com/athletic/6727504/2025/10/20/leeds-united-flying-pizza-heart/
-
-**Giants have lost so many games, but Sunday's collapse in Denver hit harder**\
-`There was plenty of blame to go around in the aftermath of the shocking loss.`\
-https://nytimes.com/athletic/6732303/2025/10/20/giants-takeaways-loss-broncos/
 
