@@ -1,3 +1,7 @@
+**How to watch Vikings vs. Chargers: Time, TV, streaming**\
+`Find out how to watch the Minnesota Vikings play the Los Angeles Chargers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6732689/2025/10/20/vikings-vs-chargers-stream-how-to-watch-oct-23/
+
 **How to watch Mariners at Blue Jays: Game 7 Time, TV, streaming**\
 `Find out how to watch the Seattle Mariners play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6732682/2025/10/20/mariners-vs-blue-jays-stream-how-to-watch-oct-20/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/20/fashion/barrel-jeans-pants.html
 **Judge Demands Answers on Trump Immigration Crackdown in Chicago**\
 `A federal judge has ordered operational leaders of the crackdown to appear before her on Monday to be questioned about their tactics and their use of tear gas.`\
 https://nytimes.com/2025/10/20/us/chicago-hearing-tear-gas-trump.html
-
-**Are Michelin Stars Now an Economic Must, Not Just a Culinary Honor?**\
-`A new Apple TV show gives a behind-the-scenes look at the culinary guide’s power to pack a restaurant — or empty it.`\
-https://nytimes.com/2025/10/20/dining/knife-edge-chasing-michelin-stars-tv-show.html
 
