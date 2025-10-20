@@ -1,3 +1,11 @@
+**Police investigating spitting allegation against Burnley’s Hannibal in Leeds game**\
+`The 22-year-old was an 83rd-minute substitute at Turf Moor, a game which Burnley won 2-0.`\
+https://nytimes.com/athletic/6733237/2025/10/20/hannibal-burnley-leeds-spitting-allegation/
+
+**Can an Israel Philharmonic Concert Be Just About Music?**\
+`In the days following a cease-fire in Gaza, the orchestra returned to New York under circumstances that were more tense than usual.`\
+https://nytimes.com/2025/10/20/arts/music/israel-philharmonic-orchestra-carnegie-hall.html
+
 **Fulham keen to renew Silva contract, which contains clause in region of £15m**\
 `Silva's existing deal runs out at the end of this season and he had been admired as Nottingham Forest looked to replace Ange Postecoglou.`\
 https://nytimes.com/athletic/6733017/2025/10/20/marco-silva-fulham-contract-clause/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6733275/2025/10/20/jayden-daniels-robert-griffin-wa
 **What we've learned about Bruins so far this season: Moral victories will have to do**\
 `New coach Marco Sturm’s job is rebuilding organizational culture. Wins are secondary. That is a good thing, though maybe not an easy one.`\
 https://nytimes.com/athletic/6733336/2025/10/20/state-of-bruins-seven-games/
-
-**Colin Jost, Pete Davidson and the Staten Island Ferry Fiasco**\
-`Nearly four years after they bought an out-of-service ferryboat for $280,100, their plans for a floating event space may be running aground.`\
-https://nytimes.com/2025/10/20/style/colin-jost-pete-davidson-staten-island-ferry.html
-
-**2025 Heisman Trophy odds: Three co-favorites highlight an open race**\
-`A new favorite has joined the Heisman Trophy race after an upset-heavy Week 8.`\
-https://nytimes.com/athletic/6731684/2025/10/20/heisman-trophy-odds-sayin-simpson-mendoza/
 
