@@ -1,3 +1,7 @@
+**In China, a Forbidden Question Looms: Who Leads After Xi?**\
+`Xi Jinping seems to believe that only his continued rule can secure China’s rise. But as he ages, choosing a successor will become riskier and more difficult.`\
+https://nytimes.com/2025/10/20/world/asia/china-communist-succession-plenum.html
+
 **Liverpool are far too open, far too easy to play through - and individuals are struggling**\
 `Liverpool lost to Manchester United on Sunday but there is a growing set of problems for Arne Slot to deal with`\
 https://nytimes.com/athletic/6730616/2025/10/20/liverpool-manchester-united-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6730064/2025/10/20/sunderland-wolves-keel-mukiele/
 **Mateta's mad afternoon: A hat-trick, but costly misses continue**\
 `A performance that summed up Crystal Palace's talented striker`\
 https://nytimes.com/athletic/6728327/2025/10/20/crystal-palace-mateta-hattrick/
-
-**'Cashy, still watching your pass?': Breaking down Matty Cash's match-winning moment**\
-`The Poland international has been quietly excellent this season and his pass was crucial in vital win`\
-https://nytimes.com/athletic/6730707/2025/10/20/aston-villa-matty-cash-pass/
 
