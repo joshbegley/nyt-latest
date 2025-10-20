@@ -1,3 +1,11 @@
+**‘Nobody Wants This,’ Plus 6 Things to Watch on TV this Week**\
+`The Netflix series staring Kristen Bell and Adam Brody returns for a second season. And on Bravo, housewives swap lives.`\
+https://nytimes.com/2025/10/20/arts/television/nobody-wants-this-tv-this-week.html
+
+**The New York Times in Print for Monday, Oct. 20, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/20/todays-new-york-times
+
 **Tawanda Muyeye exclusive: 'Test cricket and playing for England has been a goal of mine for so long'**\
 `The Kent batter has made waves since arriving in the United Kingdom as a refugee from Zimbabwe and is targeting an England future`\
 https://nytimes.com/athletic/6718656/2025/10/20/tawanda-muyeye-england-zimbabwe-kent-interview/
