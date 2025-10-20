@@ -1,3 +1,5 @@
+
+
 **Where’s the Beef? Trump Hopes Argentina Can Help Bring Down Meat Prices.**\
 `President Trump’s plan to import red meat runs counter to his philosophy of increasing domestic production, and has angered cattle ranchers in the United States.`\
 https://nytimes.com/2025/10/20/us/politics/trump-argentina-beef.html
