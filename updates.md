@@ -1,3 +1,15 @@
+**Don't call it ugly: After Bryce Young exits, Jaycee Horn and the D will Panthers to win**\
+`The Panthers are 4-3 but will have to wait on Bryce Young's status before they play the Buffalo Bills at home next week.`\
+https://nytimes.com/athletic/6731835/2025/10/19/panthers-beat-jets-jaycee-horn-defense/
+
+**Cowboys-Commanders takeaways: Dallas' offense stuns Washington**\
+`Prescott has gone four consecutive games with zero interceptions and three-plus touchdowns.`\
+https://nytimes.com/athletic/6731764/2025/10/19/commanders-cowboys-score-result-takeaways-nfl/
+
+**In shocking twist, Bears QB is bad, but running game and defense save day against Saints**\
+`Caleb Williams' 15-for-26, 172-yard effort was reminiscent of games we've seen before. Sometimes, the rest of the team must carry the load.`\
+https://nytimes.com/athletic/6731713/2025/10/19/bears-saints-caleb-williams-winning-streak/
+
 **Packers-Cardinals takeaways: Green Bay rallies late to stun Cardinals**\
 `Green Bay escapes with a 27-23 win after a late touchdown drive; Arizona drops fifth straight in another close, frustrating fourth quarter.`\
 https://nytimes.com/athletic/6731760/2025/10/19/packers-cardinals-score-result-takeaways-nfl/

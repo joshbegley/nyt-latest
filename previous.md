@@ -1,3 +1,11 @@
+**Don't call it ugly: After Bryce Young exits, Jaycee Horn and the D will Panthers to win**\
+`The Panthers are 4-3 but will have to wait on Bryce Young's status before they play the Buffalo Bills at home next week.`\
+https://nytimes.com/athletic/6731835/2025/10/19/panthers-beat-jets-jaycee-horn-defense/
+
+**Cowboys-Commanders takeaways: Dallas' offense stuns Washington**\
+`Prescott has gone four consecutive games with zero interceptions and three-plus touchdowns.`\
+https://nytimes.com/athletic/6731764/2025/10/19/commanders-cowboys-score-result-takeaways-nfl/
+
 **Packers-Cardinals takeaways: Green Bay rallies late to stun Cardinals**\
 `Green Bay escapes with a 27-23 win after a late touchdown drive; Arizona drops fifth straight in another close, frustrating fourth quarter.`\
 https://nytimes.com/athletic/6731760/2025/10/19/packers-cardinals-score-result-takeaways-nfl/
@@ -14,7 +22,7 @@ https://nytimes.com/athletic/6731797/2025/10/19/colts-chargers-score-result-take
 `Jaxson Dart throws three touchdown passes but the Broncos mount improbable rally.`\
 https://nytimes.com/athletic/6730755/2025/10/19/giants-broncos-score-result-takeaways-nfl/
 
-**In shocking twist, Bears QB is bad, but running game and defense save day**\
+**In shocking twist, Bears QB is bad, but running game and defense save day against Saints**\
 `Caleb Williams' 15-for-26, 172-yard effort was reminiscent of games we've seen before. Sometimes, the rest of the team must carry the load.`\
 https://nytimes.com/athletic/6731713/2025/10/19/bears-saints-caleb-williams-winning-streak/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6730847/2025/10/19/chiefs-patrick-mahomes-trick-pla
 **Curry College's Montie Quinn sets NCAA record with 522 rushing yards**\
 `The Division III Curry running back set the NCAA single-game rushing record with 522 yards in a 71-27 win over Nichols on Saturday.`\
 https://nytimes.com/athletic/6731636/2025/10/19/curry-montie-quinn-ncaa-rushing-record-522-yards/
-
-**Shaedon Sharpe, Trail Blazers agree to 4-year, $90 million contract extension**\
-`A key piece to the Trail Blazers' rebuild, Shaedon Sharpe will be staying in Portland for quite some time.`\
-https://nytimes.com/athletic/6724640/2025/10/19/shaedon-sharpe-contract-extension-blazers/
-
-**Trump Reiterates His Intention to Send Troops to San Francisco**\
-`Such a move could increase the already high tension between the president and California officials`\
-https://nytimes.com/2025/10/19/us/politics/trump-national-guard-san-francisco.html
 
