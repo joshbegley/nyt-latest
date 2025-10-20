@@ -1,3 +1,11 @@
+**Voices From a Nationwide Day of Protest Against Trump**\
+`Readers reflect on the “No Kings” demonstrations across the country.`\
+https://nytimes.com/2025/10/20/opinion/letters/no-kings-protests-trump.html
+
+**Albert Pujols no longer a candidate in Angels managerial search**\
+`At one point, sources had said that the job was essentially Pujols' if he wanted it, but the situation has changed. `\
+https://nytimes.com/athletic/6733619/2025/10/20/albert-pujols-angels-manager-not-candidate/
+
 **He Turned His High School Closet Into a Vintage Shopping Mecca**\
 `Marcus Allen never threw away the Abercrombie and Gap wardrobe of his teenage years. Now, those clothes are more in demand than ever.`\
 https://nytimes.com/2025/10/20/style/the-society-archive-vintage-mall-clothes.html
