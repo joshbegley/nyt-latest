@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6734409/2025/10/20/sabres-vs-canadiens-stream-how-t
 https://nytimes.com/athletic/6734407/2025/10/20/jets-vs-flames-stream-how-to-watch-oct-20/
 
 **Source: Hawks, Dyson Daniels agree to 4-year, $100 million rookie extension**\
-`Daniels is a young, impactful defender for Atlanta and provides the team a skill set to build around for the future. `\
+`The 22-year-old Daniels, who won Most Improved Player last season, provides the Hawks a skill set to build around for the future. `\
 https://nytimes.com/athletic/6734351/2025/10/20/hawks-dyson-daniels-rookie-contract-extension/
 
 **Remembering D’Angelo, a Classicist Who Moved Us Forward**\

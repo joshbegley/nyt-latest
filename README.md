@@ -1,3 +1,7 @@
+**NBA star Butler joins San Diego Wave as minority investor**\
+`“Soccer has been a passion of mine for a long time, and being part of the game in a meaningful way has always been a dream,” Butler said.`\
+https://nytimes.com/athletic/6734291/2025/10/20/jimmy-butler-san-diego-wave/
+
 **How to watch Hurricanes vs. Golden Knights: Time, TV, streaming**\
 `Find out how to watch the Carolina Hurricanes play the Vegas Golden Knights, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6734411/2025/10/20/hurricanes-vs-golden-knights-stream-how-to-watch-oct-20/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6734255/2025/10/20/nhl-mailbag-trades-olympics-re-s
 **Florida AD: 'Time is an asset' as search to replace Billy Napier begins**\
 `Florida athletic director Scott Stricklin spoke Monday about the decision to fire coach Billy Napier and where the program is headed.`\
 https://nytimes.com/athletic/6734165/2025/10/20/florida-coaching-search-billy-napier-fired-scott-stricklin/
-
-**Gaza Operations of Much-Criticized U.S. Aid Group Unravel**\
-`The Gaza Humanitarian Foundation has suspended its aid operations because of the cease-fire, but it is also running low on funds and faces logistical obstacles to resuming its work.`\
-https://nytimes.com/2025/10/20/world/middleeast/gaza-humanitarian-foundation.html
 

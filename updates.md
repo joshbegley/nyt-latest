@@ -1,3 +1,7 @@
+**Source: Hawks, Dyson Daniels agree to 4-year, $100 million rookie extension**\
+`The 22-year-old Daniels, who won Most Improved Player last season, provides the Hawks a skill set to build around for the future. `\
+https://nytimes.com/athletic/6734351/2025/10/20/hawks-dyson-daniels-rookie-contract-extension/
+
 **How to watch Hurricanes vs. Golden Knights: Time, TV, streaming**\
 `Find out how to watch the Carolina Hurricanes play the Vegas Golden Knights, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6734411/2025/10/20/hurricanes-vs-golden-knights-stream-how-to-watch-oct-20/
