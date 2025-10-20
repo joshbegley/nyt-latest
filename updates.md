@@ -1,3 +1,7 @@
+**Jannik Sinner out of Italy Davis Cup Finals squad, Carlos Alcaraz in for Spain**\
+`Sinner helped propel Italy to the title in 2023 and 2024.`\
+https://nytimes.com/athletic/6733299/2025/10/20/jannik-sinner-italy-davis-cup-finals-out-alcaraz-spain/
+
 **Louvre Remains Closed Day After Brazen Jewel Heist**\
 `The Louvre museum in Paris remained closed on Monday after thieves stole priceless jewels in a brazen heist that lasted seven minutes and shocked the country.`\
 https://nytimes.com/video/world/europe/100000010468796/louvre-remains-closed-day-after-brazen-jewel-heist.html

@@ -1,3 +1,7 @@
+**Jannik Sinner out of Italy Davis Cup Finals squad, Carlos Alcaraz in for Spain**\
+`Sinner helped propel Italy to the title in 2023 and 2024.`\
+https://nytimes.com/athletic/6733299/2025/10/20/jannik-sinner-italy-davis-cup-finals-out-alcaraz-spain/
+
 **Louvre Remains Closed Day After Brazen Jewel Heist**\
 `The Louvre museum in Paris remained closed on Monday after thieves stole priceless jewels in a brazen heist that lasted seven minutes and shocked the country.`\
 https://nytimes.com/video/world/europe/100000010468796/louvre-remains-closed-day-after-brazen-jewel-heist.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6732764/2025/10/20/usmnt-balogun-reyna-robinson-ric
 **When jam jars were inspiration for basketball card designs**\
 `As odd as the front of these cards were, the words on the back were arguably even stranger. `\
 https://nytimes.com/athletic/6727586/2025/10/20/skybox-thats-jam-90s-basketball-cards/
-
-**Ranking the SEC jobs: With Florida open again, where does it fall in the new pecking order?**\
-`Georgia has a convincing argument to be considered the best job in a league of great jobs. `\
-https://nytimes.com/athletic/6732936/2025/10/20/ranking-sec-coaching-jobs-florida-arkansas/
 

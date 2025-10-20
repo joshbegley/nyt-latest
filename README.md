@@ -1,3 +1,19 @@
+**Do You Recognize These Literary References in Modern Pop Culture?**\
+`Try this quiz about the bookish influences on Homer Simpson, Kate Bush and others to see how many connections you know.`\
+https://nytimes.com/interactive/2025/10/20/books/review/novels-culture-quiz.html
+
+**The Windup: The best *sports* performance ever?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6732593/2025/10/20/shohei-ohtani-nlcs-game-4-the-windup/
+
+**Florida State 'fully committed' but plans to evaluate Mike Norvell at season's end**\
+`The Seminoles have been headed in the wrong direction since winning the ACC title to cap an undefeated regular season two years ago`\
+https://nytimes.com/athletic/6733284/2025/10/20/florida-state-mike-norvell-hot-seat/
+
+**Bayern confirm Oberdorf second cruciate ligament injury in two years**\
+`The 23-year-old signed for the German champions last year but has only managed six appearances due to knee issues.`\
+https://nytimes.com/athletic/6733286/2025/10/20/oberdorf-bayern-munich-cruciate-ligament-injury/
+
 **Jannik Sinner out of Italy Davis Cup Finals squad, Carlos Alcaraz in for Spain**\
 `Sinner helped propel Italy to the title in 2023 and 2024.`\
 https://nytimes.com/athletic/6733299/2025/10/20/jannik-sinner-italy-davis-cup-finals-out-alcaraz-spain/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/20/us/politics/supreme-court-gun-drug-users.html
 **Notre Dame-USC final thoughts: Love and Price's dominance, CJ Carr's 'off game'**\
 `Saturday’s 34-24 victory over USC paves the road for a march back to the College Football Playoff for Marcus Freeman and company.`\
 https://nytimes.com/athletic/6732924/2025/10/20/notre-dame-usc-highlights-film-review/
-
-**Miami Heat 2025-26 streaming guide: Updated schedule, broadcast info and blackout rules**\
-`Miami is a perennial postseason overachiever. At a minimum, this veteran group is going to play hard.`\
-https://nytimes.com/athletic/6726330/2025/10/20/miami-heat-how-to-watch-2025-26/
-
-**Inside Packers' key fourth-down conversion, 6-hour flight delay and more**\
-`The Packers escaped the desert with a 27-23 win over the Cardinals and now prepare for Aaron Rodgers and the Steelers.`\
-https://nytimes.com/athletic/6732545/2025/10/20/packers-cardinals-jordan-love-josh-jacobs/
-
-**USMNT Player Tracker: Balogun's timely reminder, Robinson concerns and Reyna pines for progress**\
-`Our weekly round up of U.S. players' contributions in Europe's major leagues also includes another tough afternoon for Ethan Horvath`\
-https://nytimes.com/athletic/6732764/2025/10/20/usmnt-balogun-reyna-robinson-richards-tracker/
-
-**When jam jars were inspiration for basketball card designs**\
-`As odd as the front of these cards were, the words on the back were arguably even stranger. `\
-https://nytimes.com/athletic/6727586/2025/10/20/skybox-thats-jam-90s-basketball-cards/
 
