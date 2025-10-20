@@ -1,3 +1,7 @@
+**George Santos and Trump’s Theory of Mercy**\
+`More than any other presidential actions, clemencies tell us who presidents are.`\
+https://nytimes.com/2025/10/20/opinion/george-santos-trump-pardon.html
+
 **On a Terrace in Milan, a Gathering of Creative Expats**\
 `Having adopted the Italian city as her home, the German-born fashion designer Tina Lutz Morris threw a housewarming party filled with others who’ve done the same.`\
 https://nytimes.com/2025/10/20/t-magazine/tina-lutz-morris-milan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6734245/2025/10/20/dolphins-tua-tagovailoa-starter-
 **How to watch Syracuse vs. Georgia Tech: Time, TV, streaming**\
 `Find out how to watch the Syracuse Orange play the Georgia Tech Yellow Jackets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6734497/2025/10/20/syracuse-vs-georgia-tech-stream-how-to-watch-oct-25/
-
-**How to watch Missouri vs. Vanderbilt: Time, TV, streaming**\
-`Find out how to watch the Missouri Tigers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6734495/2025/10/20/missouri-vs-vanderbilt-stream-how-to-watch-oct-25/
 
