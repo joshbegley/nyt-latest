@@ -1,3 +1,27 @@
+**A Chinese Woman Builds a New Career in a Man’s World**\
+`An all-female repair business is challenging gender norms in China and catering to a growing population of single women seeking safety and comfort at home. We spoke to Ray Hou, who quit her office job to become a professional handywoman, about what motivated her to start a new career.`\
+https://nytimes.com/video/world/asia/100000010303871/china-women-new-careers.html
+
+**The Chinese Influencer Who Made a Career of Lying Flat**\
+`For many young Chinese, the relentless pressure to succeed has given way to a new minimalist lifestyle known as lying flat.`\
+https://nytimes.com/video/world/asia/100000010289092/china-travel-lying-flat.html
+
+**In China’s Crowded Hospitals, She Found a New Career**\
+`As China’s population grows older, a new industry of gig workers is stepping in to help older patients navigate a complex, bureaucratic hospital system.`\
+https://nytimes.com/video/world/asia/100000010047930/china-gig-workers-hospitals.html
+
+**Russell Westbrook grew tired of LeBron's 'fake' act with Lakers: Book**\
+`After joining the Lakers via trade, Westbrook's relationship with James started on a high note before fracturing quickly.`\
+https://nytimes.com/athletic/6734093/2025/10/20/russell-westbrook-lebron-lakers-book/
+
+**Watch These Six Heist Movies**\
+`If you thought that heist at the Louvre sounded like something out of a movie, this collection of heist films just might be for you.`\
+https://nytimes.com/2025/10/20/movies/heist-movies-streaming.html
+
+**NCAA president Baker restates case for tournament expansion: Snubs 'bummed me out'**\
+`Ultimately it is the NCAA’s college basketball committee that will decide on whether, how and by how much to expand the field.`\
+https://nytimes.com/athletic/6734602/2025/10/20/charlie-baker-ncaa-basketball-tournament-expansion/
+
 **George Santos and Trump’s Theory of Mercy**\
 `More than any other presidential actions, clemencies tell us who presidents are.`\
 https://nytimes.com/2025/10/20/opinion/george-santos-trump-pardon.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6733825/2025/10/20/jayden-daniels-hamstring-chiefs/
 **Golden Knights captain Mark Stone considered 'week to week' with injury**\
 `Mark Stone is currently second in the NHL with 13 points, trailing only his teammate Jack Eichel (15).`\
 https://nytimes.com/athletic/6734527/2025/10/20/golden-knights-mark-stone-injury-2/
-
-**Appeals Court Lifts Block on Trump’s Oregon Troop Deployment**\
-`Deployment can move forward, for now, under a preliminary ruling by the U.S. Court of Appeals for the Ninth Circuit. But legal wrangling will likely continue.`\
-https://nytimes.com/2025/10/20/us/appeals-court-national-guard-troops-portland-trump.html
-
-**Perry Says Democrats ‘Hate the Military,’ Echoing Trump’s Attacks**\
-`The remarks by Representative Scott Perry, a Pennsylvania Republican, align with efforts by the president and G.O.P. leaders to portray the political left as un-American.`\
-https://nytimes.com/2025/10/20/us/politics/scott-perry-democrats-military-trump.html
-
-**Map: 5.1-Magnitude Earthquake Strikes Japan**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/10/20/world/asia/japan-earthquake.html
-
-**What ADs votes of confidence are really saying about coaches on the hot seat**\
-`Florida State coach Mike Norvell and Wisconsin coach Luke Fickell both received statements of support from their athletic directors Monday.`\
-https://nytimes.com/athletic/6734160/2025/10/20/college-football-coaches-votes-of-confidence-mike-norvell-luke-fickell/
-
-**Mike McDaniel says Tua Tagovailoa will remain Dolphins starter vs. Falcons**\
-`McDaniel on Tagovailoa: "He’s going to be our starter this week and my expectation is that we don’t throw 10 picks."`\
-https://nytimes.com/athletic/6734245/2025/10/20/dolphins-tua-tagovailoa-starter-falcons-benching/
-
-**How to watch Syracuse vs. Georgia Tech: Time, TV, streaming**\
-`Find out how to watch the Syracuse Orange play the Georgia Tech Yellow Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6734497/2025/10/20/syracuse-vs-georgia-tech-stream-how-to-watch-oct-25/
 
