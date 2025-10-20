@@ -1,3 +1,11 @@
+**USMNT Player Tracker: Balogun's timely reminder, Robinson concerns and Reyna pines for progress**\
+`Our weekly round up of U.S. players' contributions in Europe's major leagues also includes another tough afternoon for Ethan Horvath`\
+https://nytimes.com/athletic/6732764/2025/10/20/usmnt-balogun-reyna-robinson-richards-tracker/
+
+**When jam jars were inspiration for basketball card designs**\
+`As odd as the front of these cards were, the words on the back were arguably even stranger. `\
+https://nytimes.com/athletic/6727586/2025/10/20/skybox-thats-jam-90s-basketball-cards/
+
 **Ranking the SEC jobs: With Florida open again, where does it fall in the new pecking order?**\
 `Georgia has a convincing argument to be considered the best job in a league of great jobs. `\
 https://nytimes.com/athletic/6732936/2025/10/20/ranking-sec-coaching-jobs-florida-arkansas/

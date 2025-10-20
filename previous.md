@@ -1,3 +1,11 @@
+**USMNT Player Tracker: Balogun's timely reminder, Robinson concerns and Reyna pines for progress**\
+`Our weekly round up of U.S. players' contributions in Europe's major leagues also includes another tough afternoon for Ethan Horvath`\
+https://nytimes.com/athletic/6732764/2025/10/20/usmnt-balogun-reyna-robinson-richards-tracker/
+
+**When jam jars were inspiration for basketball card designs**\
+`As odd as the front of these cards were, the words on the back were arguably even stranger. `\
+https://nytimes.com/athletic/6727586/2025/10/20/skybox-thats-jam-90s-basketball-cards/
+
 **Ranking the SEC jobs: With Florida open again, where does it fall in the new pecking order?**\
 `Georgia has a convincing argument to be considered the best job in a league of great jobs. `\
 https://nytimes.com/athletic/6732936/2025/10/20/ranking-sec-coaching-jobs-florida-arkansas/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6732285/2025/10/20/draymond-green-warriors-podziems
 **How Ultraprocessed Food Took Over America**\
 `These products are among the greatest health threats of our time.`\
 https://nytimes.com/2025/10/20/briefing/how-ultraprocessed-food-took-over-america.html
-
-**How to watch Atlanta Hawks games during pivotal 2025-26 season**\
-`Will the Hawks be able to deliver on preseason hype? Find out how to watch Trae Young and company all season long. `\
-https://nytimes.com/athletic/6727125/2025/10/20/atlanta-hawks-tv-schedule-how-to-watch/
-
-**The Culture Wars Have Come for Wikipedia**\
-`Jimmy Wales, a co-founder of Wikipedia, speaks with Lulu Garcia-Navarro about the challenges the site faces.`\
-https://nytimes.com/video/podcasts/100000010468816/the-culture-wars-have-come-for-wikipedia.html
 
