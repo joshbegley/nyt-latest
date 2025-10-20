@@ -1,5 +1,13 @@
-**Red Bull hit with $50k fine after team member tried removing McLaren grid tape**\
-`$25,000 of the fine was suspended for the rest of the season, barring any repeat breaches.`\
+**College football Week 9 odds: Oklahoma-Ole Miss, Vanderbilt-Missouri, LSU-Texas A&M**\
+`All three of this week's Top 25 matchups come from the SEC. Vanderbilt's surprise run continues with another big game.`\
+https://nytimes.com/athletic/6733414/2025/10/20/college-football-week-9-odds-vanderbilt-missouri-ole-miss-oklahoma/
+
+**What to Know About the ICE Raid at a Hyundai Plant**\
+`ICE and other law enforcement agencies detained nearly 500 workers in Georgia in September. Farah Stockman, who covers manufacturing for The New York Times, describes the fallout from the incident and what could be next for foreign factory investments in the U.S.`\
+https://nytimes.com/video/business/energy-environment/100000010437465/what-to-know-about-the-ice-raid-at-a-hyundai-plant.html
+
+**Red Bull hit with €50k fine after team member tried removing McLaren grid tape**\
+`Half of the fine was suspended for the rest of the season, barring any repeat breaches.`\
 https://nytimes.com/athletic/6733578/2025/10/20/red-bull-lando-norris-grid-tape/
 
 **How Team Penske lost Talladega and (maybe) its shot at four straight Cup Series titles**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6732347/2025/10/20/thomas-jonathan-drance-fathers-s
 **How to watch Kraken vs. Flyers: Time, TV, streaming**\
 `Find out how to watch the Seattle Kraken play the Philadelphia Flyers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6733555/2025/10/20/kraken-vs-flyers-stream-how-to-watch-oct-20/
-
-**A preview of The Athletic’s live coverage this week**\
-`Our live coverage this week includes the start of the 2025 World Series, the return of the NBA, El Clasico and more`\
-https://nytimes.com/athletic/6732935/2025/10/20/live-coverage-weekly-schedule/
-
-**How to watch Wild vs. Rangers: Time, TV, streaming**\
-`Find out how to watch the Minnesota Wild play the New York Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6733549/2025/10/20/wild-vs-rangers-stream-how-to-watch-oct-20/
 

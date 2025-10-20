@@ -1,3 +1,11 @@
+**Red Bull hit with $50k fine after team member tried removing McLaren grid tape**\
+`$25,000 of the fine was suspended for the rest of the season, barring any repeat breaches.`\
+https://nytimes.com/athletic/6733578/2025/10/20/red-bull-lando-norris-grid-tape/
+
+**How Team Penske lost Talladega and (maybe) its shot at four straight Cup Series titles**\
+`Ryan Blaney and Joey Logano looked like one of them was about to put Team Penske back into the Championship 4. Then it all went south.`\
+https://nytimes.com/athletic/6733443/2025/10/20/team-penske-talladega-joey-logano-ryan-blaney-playoffs/
+
 **Jayden Daniels' mother pleads with fans to stop comparing him to RGIII**\
 `The parallels between Daniels and Robert Griffin III are clear, as the pair were Heisman Trophy winners and No. 2 picks in the NFL Draft.`\
 https://nytimes.com/athletic/6733275/2025/10/20/jayden-daniels-robert-griffin-washington-commanders-comparisons/
@@ -8,7 +16,7 @@ https://nytimes.com/athletic/6733336/2025/10/20/state-of-bruins-seven-games/
 
 **Colin Jost, Pete Davidson and the Staten Island Ferry Fiasco**\
 `Nearly four years after they bought an out-of-service ferryboat for $280,100, their plans for a floating event space may be running aground.`\
-https://nytimes.com/2025/10/20/style/colin-jost-pete-davidson-and-the-staten-island-ferry-fiasco.html
+https://nytimes.com/2025/10/20/style/colin-jost-pete-davidson-staten-island-ferry.html
 
 **2025 Heisman Trophy odds: Three co-favorites highlight an open race**\
 `A new favorite has joined the Heisman Trophy race after an upset-heavy Week 8.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6732935/2025/10/20/live-coverage-weekly-schedule/
 **How to watch Wild vs. Rangers: Time, TV, streaming**\
 `Find out how to watch the Minnesota Wild play the New York Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6733549/2025/10/20/wild-vs-rangers-stream-how-to-watch-oct-20/
-
-**Other Brazen Art Heists Like the Louvre Jewelry Theft**\
-`The robbery at the Paris museum on Sunday is only the latest in a long line of breaches.`\
-https://nytimes.com/2025/10/20/us/art-museum-heists-louvre.html
-
-**NASCAR Talladega takeaways: Chase Briscoe proves he belongs; playoff contenders slip up**\
-`Briscoe beat the odds to get here; now he has a shot at a title. Plus, trouble for Kyle Larson and William Byron, and more from Talladega.`\
-https://nytimes.com/athletic/6733159/2025/10/20/nascar-talladega-takeaways-chase-briscoe-playoffs-contenders/
 

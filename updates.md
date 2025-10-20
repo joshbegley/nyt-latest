@@ -1,3 +1,15 @@
+**Red Bull hit with $50k fine after team member tried removing McLaren grid tape**\
+`$25,000 of the fine was suspended for the rest of the season, barring any repeat breaches.`\
+https://nytimes.com/athletic/6733578/2025/10/20/red-bull-lando-norris-grid-tape/
+
+**How Team Penske lost Talladega and (maybe) its shot at four straight Cup Series titles**\
+`Ryan Blaney and Joey Logano looked like one of them was about to put Team Penske back into the Championship 4. Then it all went south.`\
+https://nytimes.com/athletic/6733443/2025/10/20/team-penske-talladega-joey-logano-ryan-blaney-playoffs/
+
+**Colin Jost, Pete Davidson and the Staten Island Ferry Fiasco**\
+`Nearly four years after they bought an out-of-service ferryboat for $280,100, their plans for a floating event space may be running aground.`\
+https://nytimes.com/2025/10/20/style/colin-jost-pete-davidson-staten-island-ferry.html
+
 **2025 Heisman Trophy odds: Three co-favorites highlight an open race**\
 `A new favorite has joined the Heisman Trophy race after an upset-heavy Week 8.`\
 https://nytimes.com/athletic/6731684/2025/10/20/heisman-trophy-odds-sayin-simpson-mendoza/
