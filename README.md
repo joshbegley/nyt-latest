@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6731944/2025/10/19/mariners-blue-jays-game-6-score-
 https://nytimes.com/2025/10/19/nyregion/mamdani-cuomo-campaign-new-york.html
 
 **Broncos Complete Stunning Comeback to Beat Giants**\
-`The Denver Broncos pulled off one of the most thrilling comebacks in N.F.L. history in Week 7, erasing an 19-point deficit in the fourth quarter to beat the New York Giants.`\
+`The Denver Broncos pulled off one of the most thrilling comebacks in N.F.L. history in Week 7, erasing a 19-point deficit in the fourth quarter to beat the New York Giants.`\
 https://nytimes.com/video/the-athletic/100000010467325/broncos-complete-stunning-comeback-to-beat-giants.html
 
 **'This joint might work:' How the Broncos capped a historic comeback to topple Giants**\
