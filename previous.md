@@ -1,3 +1,15 @@
+**Trump’s Lust for Desecration**\
+`A perverse delight in degradation has always coursed through MAGA circles.`\
+https://nytimes.com/2025/10/20/opinion/trump-degredation-maga.html
+
+**Comey Attacks Charges as Vindictive and Prosecutor as Improperly Named**\
+`Motions by lawyers for the former F.B.I. director, James B. Comey, sought to dismiss the case in what amounted to a two-front assault.`\
+https://nytimes.com/2025/10/20/us/politics/james-comey-lawyers-charges.html
+
+**Weekly Student News Quiz: Gen Z Protests, Instagram, W.N.B.A.**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/10/20/learning/21StudentNewsQuiz.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>So many upsets, so little time. What&#8217;s on your mind this week?</p>
 <p>Leave your questions here. Please include your city.</p>
@@ -27,16 +39,4 @@ https://nytimes.com/athletic/6734832/2025/10/20/submit-a-question-for-pete-samps
 **Former NFL RB Doug Martin died in Oakland police custody**\
 `Oakland PD says Martin was detained for his alleged involvement in a residential break-in.`\
 https://nytimes.com/athletic/6734641/2025/10/20/doug-martin-died-oakland-police-custody/
-
-**Facade of White House’s East Wing Torn Off to Make Way for Trump’s Ballroom**\
-`The president had pledged that construction wouldn’t “interfere with the current building,” a promise that always seemed unrealistic given the grand scale of the plans.`\
-https://nytimes.com/2025/10/20/us/politics/trump-white-house-east-wing-demolition-ballroom.html
-
-**Trying to Loosen China’s Grip on Critical Minerals, Trump Turns to Australia**\
-`The United States hopes to become less dependent on China by increasing access to mineral-rich countries. Rare earth metals are vital to an array of modern industries.`\
-https://nytimes.com/2025/10/20/us/politics/china-critical-minerals-trump-australia.html
-
-**Daniel Naroditsky, Chess Grandmaster, Dies at 29**\
-`He earned the highest title in the chess world as he built a career as an accomplished chess teacher, commentator and author.`\
-https://nytimes.com/2025/10/20/us/daniel-naroditsky-chess-grandmaster-dead.html
 
