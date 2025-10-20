@@ -1,3 +1,7 @@
+**'The feeling of losing' propelled Jalen Hurts and the Eagles to victory after mini-bye**\
+`Teammates described the look in Hurts' eye during their win against Vikings.`\
+https://nytimes.com/athletic/6732007/2025/10/19/jalen-hurts-eagles-win-vikings/
+
 **Emirates Cargo Plane Slides Off Hong Kong Runway, Killing 2 Ground Crew**\
 `The plane, arriving from Dubai, skidded off the runway after landing and fell into the sea, Hong Kong officials said.`\
 https://nytimes.com/2025/10/19/world/asia/emirates-hong-kong-cargo-plane.html
