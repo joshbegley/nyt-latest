@@ -1,3 +1,11 @@
+**A Boston Restaurant Displayed Whitey Bulger’s Mug Shot. An Uproar Ensued.**\
+`The owners of Savin Bar & Kitchen have so far rejected requests from residents to remove photos of gangsters who terrorized the city for decades.`\
+https://nytimes.com/2025/10/20/us/a-boston-restaurant-displayed-whitey-bulgers-mug-shot-an-uproar-ensued.html
+
+**Airlines Told to Disregard Gender-Neutral ‘X’ on U.S. Passports and Add ‘M’ or ‘F’**\
+`Although passports with an “X” marker remain valid, a new federal rule requires airlines on their internal information system to mark passengers with an “M” or an “F.”`\
+https://nytimes.com/2025/10/20/us/airlines-passports-x-markers.html
+
 **Disney+ Cancellations Jump After Kimmel Suspension**\
 `Roughly three million Americans canceled the streaming service in the month that it temporarily suspended Jimmy Kimmel’s show. About 4.1 million people canceled Disney-owned Hulu.`\
 https://nytimes.com/2025/10/20/business/media/disney-subscription-cancellations-kimmel.html
@@ -10,8 +18,8 @@ https://nytimes.com/athletic/6733715/2025/10/20/fantasy-football-week-7-recap-an
 `Athletic director Chris McIntosh also said that Wisconsin plans to increase its financial investment in the football program. `\
 https://nytimes.com/athletic/6733617/2025/10/20/wisconsin-supports-luke-fickell-coach/
 
-**Subway Comes Apart While in Service**\
-`Two train cars detached on a No. 4 train heading into Manhattan from the Bronx on Sunday. No injuries were reported.`\
+**Passengers Evacuated From Subway Train After 2 Cars Detach**\
+`Two train cars uncoupled on a No. 4 train heading into Manhattan from the Bronx on Sunday. No injuries were reported.`\
 https://nytimes.com/2025/10/20/nyregion/subway-cars-decouple.html
 
 **A Newborn Girl Is Abandoned at a Penn Station Subway Stop**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6733619/2025/10/20/albert-pujols-angels-manager-not
 **He Turned His High School Closet Into a Vintage Shopping Mecca**\
 `Marcus Allen never threw away the Abercrombie and Gap wardrobe of his teenage years. Now, those clothes are more in demand than ever.`\
 https://nytimes.com/2025/10/20/style/the-society-archive-vintage-mall-clothes.html
-
-**NHL Central Scouting releases preliminary players to watch list for 2026 draft**\
-`The list of 'A' rated players is highlighted by Penn State star Gavin McKenna and North Dakota defenseman Keaton Verhoeff.`\
-https://nytimes.com/athletic/6733600/2025/10/20/nhl-central-scouting-2026-draft-ratings-preliminary/
-
-**Kale Caesar Pasta Salad**\
-`Caesar salad meets pasta salad in this comfort food mash-up. Crisp and sturdy kale leaves hold their own alongside al dente pasta when tossed in a thick and creamy Caesar-inspired, mayonnaise-based dressing.`\
-https://nytimes.com/video/dining/100000010469307/kale-caesar-pasta-salad.html
 
