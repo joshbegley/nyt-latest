@@ -1,3 +1,15 @@
+**Fulham keen to renew Silva contract, which contains clause in region of £15m**\
+`Silva's existing deal runs out at the end of this season and he had been admired as Nottingham Forest looked to replace Ange Postecoglou.`\
+https://nytimes.com/athletic/6733017/2025/10/20/marco-silva-fulham-contract-clause/
+
+**NFL Week 8 odds, spreads: Ravens open as touchdown favorites vs. Bears**\
+`A shortened slate for Week 8 features several big favorites and lower point totals. Will anyone upset the wagon?`\
+https://nytimes.com/athletic/6733206/2025/10/20/nfl-week-8-odds-spreads-ravens-bears/
+
+**How Team Penske lost Talladega and (maybe) its shot at 4 straight Cup Series titles**\
+`Ryan Blaney and Joey Logano looked like one of them was about to put Team Penske back into the Championship 4. Then it all went south.`\
+https://nytimes.com/athletic/6733443/2025/10/20/team-penske-talladega-joey-logano-ryan-blaney-playoffs/
+
 **College football Week 9 odds: Oklahoma-Ole Miss, Vanderbilt-Missouri, LSU-Texas A&M**\
 `All three of this week's Top 25 matchups come from the SEC. Vanderbilt's surprise run continues with another big game.`\
 https://nytimes.com/athletic/6733414/2025/10/20/college-football-week-9-odds-vanderbilt-missouri-ole-miss-oklahoma/
