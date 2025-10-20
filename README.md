@@ -1,3 +1,11 @@
+**Packers-Cardinals takeaways: Green Bay rallies late to stun Cardinals**\
+`Green Bay escapes with a 27-23 win after a late touchdown drive; Arizona drops fifth straight in another close, frustrating fourth quarter.`\
+https://nytimes.com/athletic/6731760/2025/10/19/packers-cardinals-score-result-takeaways-nfl/
+
+**Bears defense puts on a show against Saints: 'It was pretty special'**\
+`The Bears lead the NFL in takeaways and have forced at least three turnovers in each game of their current four-game winning streak.`\
+https://nytimes.com/athletic/6731776/2025/10/19/bears-defense-dominates-saints/
+
 **Colts-Chargers takeaways: Jonathan Taylor, Daniel Jones torch L.A. defense**\
 `Colts win third straight and improve to 6-1, taking advantage of a porous Chargers defense and two Justin Herbert interceptions.`\
 https://nytimes.com/athletic/6731797/2025/10/19/colts-chargers-score-result-takeaways-nfl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6724640/2025/10/19/shaedon-sharpe-contract-extensio
 **Trump Reiterates His Intention to Send Troops to San Francisco**\
 `Such a move could increase the already high tension between the president and California officials`\
 https://nytimes.com/2025/10/19/us/politics/trump-national-guard-san-francisco.html
-
-**Rams' offense becoming more complete as Matthew Stafford, Davante Adams get in sync**\
-`"Davante was on one today," coach Sean McVay said of the All-Pro receiver, who hauled in three TD catches vs. the Jaguars. `\
-https://nytimes.com/athletic/6731107/2025/10/19/rams-offense-matthew-stafford-davante-adams/
-
-**Mike Vrabel has taken over and turned the Patriots into legitimate contenders**\
-`Vrabel made his return to Tennessee to face his old team, and his Patriots didn't disappoint, topping the Titans 31-13.`\
-https://nytimes.com/athletic/6731688/2025/10/19/patriots-titans-mike-vrabel-afc-east-contenders/
 
