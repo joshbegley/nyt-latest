@@ -1,3 +1,19 @@
+**Congressional Democrats Investigate Arrests of Americans During Raids**\
+`Representative Robert Garcia and Senator Richard Blumenthal started an inquiry to examine reports of misconduct by immigration agents, focusing on the arrests of citizens.`\
+https://nytimes.com/2025/10/20/us/investigation-arrests-of-americans-ice-raids.html
+
+**Leaked Wedding Video Tarnishes Hard-Line Iranian Official**\
+`Rear Adm. Ali Shamkhani oversaw a brutal crackdown on women, but traditional notions of Islamic morality were little on display at his daughter’s wedding.`\
+https://nytimes.com/2025/10/20/world/middleeast/iran-wedding-video.html
+
+**Cable Used in Deadly Funicular Crash in Lisbon Not Cleared for Public Transport**\
+`A preliminary report on the accident, which killed 16, said an incorrect cable was being used for the funicular, but that it was not yet possible to know how that figured in the crash.`\
+https://nytimes.com/2025/10/20/world/europe/lisbon-funicular-crash-report.html
+
+**Falcons QB Michael Penix Jr. 'day to day' with bone bruise**\
+`Penix was briefly evaluated during Sunday night's game but didn't miss an offensive snap in the 20-10 loss to San Francisco.`\
+https://nytimes.com/athletic/6735017/2025/10/20/falcons-qb-michael-penix-jr-bone-bruise/
+
 **All but 2 Universities Decline a Trump Offer of Preferential Funding**\
 `One of the two, Vanderbilt University, signaled it had reservations.`\
 https://nytimes.com/2025/10/20/us/politics/universities-funding-compact.html
