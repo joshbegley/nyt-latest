@@ -1,3 +1,7 @@
+**2022 draftees Jalen Duren, Jaden Ivey will be unrestricted free agents**\
+`The Pistons didn't extend their two prizes from the 2022 NBA Draft. What does that mean for the next stage of their rebuild?`\
+https://nytimes.com/athletic/6734862/2025/10/20/jalen-duren-jaden-ivey-pistons-rookie-scale-contract-extension/
+
 **How to watch Texas A&M vs. LSU: Time, TV, streaming**\
 `Find out how to watch the Texas A&M Aggies play the LSU Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6735162/2025/10/20/texas-a-m-vs-lsu-stream-how-to-watch-oct-25/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6735129/2025/10/20/baylor-vs-cincinnati-stream-how-
 **10 Hurt, One Critically, After Truck Hits Van Parked Near Penn Station**\
 `The chain-reaction crash, in one of New York City’s most pedestrian-heavy areas, unfolded as afternoon commuters made their way to the busy transit hub.`\
 https://nytimes.com/2025/10/20/nyregion/midtown-crash-truck-van-injured.html
-
-**White House Demolishes Facade of East Wing to Build Trump’s Ballroom**\
-`The planned 90,000-square-foot ballroom now under construction off the back of the East Wing is nearly double the square footage of the White House residence. Its renovation is one of the largest there in decades.`\
-https://nytimes.com/video/us/politics/100000010470665/white-house-demolition-ballroom.html
 
