@@ -1,3 +1,7 @@
+**Jayden Daniels' mother pleads with fans to stop comparing him to RGIII**\
+`The parallels between Daniels and Robert Griffin III are clear, as the pair were Heisman Trophy winners and No. 2 picks in the NFL Draft.`\
+https://nytimes.com/athletic/6733275/2025/10/20/jayden-daniels-robert-griffin-washington-commanders-comparisons/
+
 **What we've learned about Bruins so far this season: Moral victories will have to do**\
 `New coach Marco Sturm’s job is rebuilding organizational culture. Wins are secondary. That is a good thing, though maybe not an easy one.`\
 https://nytimes.com/athletic/6733336/2025/10/20/state-of-bruins-seven-games/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/20/us/art-museum-heists-louvre.html
 **NASCAR Talladega takeaways: Chase Briscoe proves he belongs; playoff contenders slip up**\
 `Briscoe beat the odds to get here; now he has a shot at a title. Plus, trouble for Kyle Larson and William Byron, and more from Talladega.`\
 https://nytimes.com/athletic/6733159/2025/10/20/nascar-talladega-takeaways-chase-briscoe-playoffs-contenders/
-
-**With Rashee Rice back, can Patrick Mahomes finish as fantasy football's No. 1 quarterback?**\
-`KC Joyner explains how and why Patrick Mahomes could finish as fantasy's QB1, especially with Rashee Rice back in the fold. `\
-https://nytimes.com/athletic/6732838/2025/10/20/fantasy-football-rashee-rice-patrick-mahomes-top-qb/
 

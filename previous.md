@@ -1,3 +1,35 @@
+**What we've learned about Bruins so far this season: Moral victories will have to do**\
+`New coach Marco Sturm’s job is rebuilding organizational culture. Wins are secondary. That is a good thing, though maybe not an easy one.`\
+https://nytimes.com/athletic/6733336/2025/10/20/state-of-bruins-seven-games/
+
+**Colin Jost, Pete Davidson and the Staten Island Ferry Fiasco**\
+`Nearly four years after they bought an out-of-service ferryboat for $280,100, their plans for a floating event space may be running aground.`\
+https://nytimes.com/2025/10/20/style/colin-jost-pete-davidson-and-the-staten-island-ferry-fiasco.html
+
+**2025 Heisman Trophy odds: Three co-favorites highlight an open race**\
+`Ty Simpson, Julian Sayin and Fernando Mendoza are now co-favorites to win the Heisman Trophy after an upset-heavy Week 8.`\
+https://nytimes.com/athletic/6731684/2025/10/20/heisman-trophy-odds-sayin-simpson-mendoza/
+
+**Drance: What I learned from a lifetime of watching sports with my dad**\
+`The Athletic's Thomas Drance reflects on his relationship with his father, Jonathan, who died earlier this month.`\
+https://nytimes.com/athletic/6732347/2025/10/20/thomas-jonathan-drance-fathers-sons-sports/
+
+**How to watch Kraken vs. Flyers: Time, TV, streaming**\
+`Find out how to watch the Seattle Kraken play the Philadelphia Flyers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6733555/2025/10/20/kraken-vs-flyers-stream-how-to-watch-oct-20/
+
+**A preview of The Athletic’s live coverage this week**\
+`Our live coverage this week includes the start of the 2025 World Series, the return of the NBA, El Clasico and more`\
+https://nytimes.com/athletic/6732935/2025/10/20/live-coverage-weekly-schedule/
+
+**How to watch Wild vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Minnesota Wild play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6733549/2025/10/20/wild-vs-rangers-stream-how-to-watch-oct-20/
+
+**Other Brazen Art Heists Like the Louvre Jewelry Theft**\
+`The robbery at the Paris museum on Sunday is only the latest in a long line of breaches.`\
+https://nytimes.com/2025/10/20/us/art-museum-heists-louvre.html
+
 **NASCAR Talladega takeaways: Chase Briscoe proves he belongs; playoff contenders slip up**\
 `Briscoe beat the odds to get here; now he has a shot at a title. Plus, trouble for Kyle Larson and William Byron, and more from Talladega.`\
 https://nytimes.com/athletic/6733159/2025/10/20/nascar-talladega-takeaways-chase-briscoe-playoffs-contenders/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6733159/2025/10/20/nascar-talladega-takeaways-chase
 **With Rashee Rice back, can Patrick Mahomes finish as fantasy football's No. 1 quarterback?**\
 `KC Joyner explains how and why Patrick Mahomes could finish as fantasy's QB1, especially with Rashee Rice back in the fold. `\
 https://nytimes.com/athletic/6732838/2025/10/20/fantasy-football-rashee-rice-patrick-mahomes-top-qb/
-
-**Assessing Ottawa's early-season goaltending and defensive struggles**\
-`How much has the Senators' defensive and goaltending struggles contributed to their inauspicious 2-4-0 start? And what can they do about it?`\
-https://nytimes.com/athletic/6730689/2025/10/20/senators-goaltending-ullmark-merilainen/
-
-**Why Steal From the Louvre? It May Have More to Do With Stones Than Art.**\
-`Sunday’s robbery at the Paris museum could be the latest example of thieves targeting museums for jewels and precious metals to break down and sell on.`\
-https://nytimes.com/2025/10/20/arts/louvre-robbery-gems-precious-metals.html
-
-**This Fast Pantry Pasta Has a Really Good Twist**\
-`Melissa Clark goes all in on lemon in a new midnight pasta recipe.`\
-https://nytimes.com/2025/10/20/dining/this-fast-pantry-pasta-has-a-really-good-twist.html
-
-**Prison Guard Convicted in Fatal Beating Caught on Video, With 2 Acquitted**\
-`Footage of a group of guards punching, choking and stomping Robert L. Brooks ignited an outcry. Six guards pleaded guilty to charges.`\
-https://nytimes.com/2025/10/20/nyregion/marcy-prison-beating-murder-trial.html
-
-**Lowetide: Why are the Oilers struggling to find lines that work?**\
-`The Oilers' offensive identity appears to involve uncertainty, lack of aggression and five-on-five goals.`\
-https://nytimes.com/athletic/6730878/2025/10/20/edmonton-oilers-lines-mcdavid-draisaitl-knoblauch/
-
-**Rodrigo Paz Wins Bolivia’s Presidential Runoff**\
-`Rodrigo Paz, a right-leaning centrist candidate who had emerged as a surprise front-runner in Bolivia’s presidential election, defeated his conservative opponent in a runoff that ended nearly two decades of leftist rule.`\
-https://nytimes.com/video/world/americas/100000010469074/bolivia-presidential-election-rodrigo-paz.html
-
-**Do You Recognize These Literary References in Modern Pop Culture?**\
-`Try this quiz about the bookish influences on Homer Simpson, Kate Bush and others to see how many connections you know.`\
-https://nytimes.com/interactive/2025/10/20/books/review/novels-culture-quiz.html
-
-**The Windup: The best *sports* performance ever?**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6732593/2025/10/20/shohei-ohtani-nlcs-game-4-the-windup/
 
