@@ -1,3 +1,7 @@
+**Supreme Court Will Weigh Gun Restrictions for Drug Users**\
+`The Second Amendment case tests a federal law used to convict Hunter Biden that bars drug users and addicts from possessing guns.`\
+https://nytimes.com/2025/10/20/us/politics/supreme-court-gun-drug-users.html
+
 **Notre Dame-USC final thoughts: Love and Price's dominance, CJ Carr's 'off game'**\
 `Saturday’s 34-24 victory over USC paves the road for a march back to the College Football Playoff for Marcus Freeman and company.`\
 https://nytimes.com/athletic/6732924/2025/10/20/notre-dame-usc-highlights-film-review/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6731844/2025/10/20/good-good-championship-pga-tour-
 **Lawmaker Demands Hearing on U.S. Strikes on Boats in Caribbean**\
 `Representative Adam Smith said the Trump administration had failed to provide a legal rationale for killing rather than arresting drug trafficking suspects.`\
 https://nytimes.com/2025/10/20/us/politics/congress-boat-strikes-caribbean.html
-
-**How to watch Giannis and the Milwaukee Bucks this season**\
-`With Giannis still around (for now), the Bucks will be featured on national TV often. Here's how to tune in to all of their games.`\
-https://nytimes.com/athletic/6730095/2025/10/20/milwaukee-bucks-giannis-games-tv-how-to-watch/
 

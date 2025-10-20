@@ -1,3 +1,7 @@
+**Supreme Court Will Weigh Gun Restrictions for Drug Users**\
+`The Second Amendment case tests a federal law used to convict Hunter Biden that bars drug users and addicts from possessing guns.`\
+https://nytimes.com/2025/10/20/us/politics/supreme-court-gun-drug-users.html
+
 **Notre Dame-USC final thoughts: Love and Price's dominance, CJ Carr's 'off game'**\
 `Saturday’s 34-24 victory over USC paves the road for a march back to the College Football Playoff for Marcus Freeman and company.`\
 https://nytimes.com/athletic/6732924/2025/10/20/notre-dame-usc-highlights-film-review/
