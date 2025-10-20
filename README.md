@@ -1,3 +1,7 @@
+**Sean Combs Will Appeal His Conviction and Prison Sentence**\
+`The mogul’s defense team notified the appellate court that it will challenge the jury’s verdict on prostitution-related charges and the four-year prison term he received.`\
+https://nytimes.com/2025/10/20/arts/music/sean-combs-diddy-appeal-conviction-sentence.html
+
 **Where’s the Beef? Trump Hopes Argentina Can Help Bring Down Meat Prices.**\
 `President Trump’s plan to import red meat runs counter to his philosophy of increasing domestic production, and has angered cattle ranchers in the United States.`\
 https://nytimes.com/2025/10/20/us/politics/trump-argentina-beef.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6734602/2025/10/20/charlie-baker-ncaa-basketball-to
 **The Santos Commutation Is No Joke**\
 `More than any other presidential actions, clemencies tell us who presidents are.`\
 https://nytimes.com/2025/10/20/opinion/george-santos-trump-pardon.html
-
-**On a Terrace in Milan, a Gathering of Creative Expats**\
-`Having adopted the Italian city as her home, the German-born fashion designer Tina Lutz Morris threw a housewarming party filled with others who’ve done the same.`\
-https://nytimes.com/2025/10/20/t-magazine/tina-lutz-morris-milan.html
 
