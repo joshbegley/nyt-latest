@@ -1,3 +1,7 @@
+**Congressional Democrats Investigate Arrests of Americans During Raids**\
+`Representative Robert Garcia and Senator Richard Blumenthal started an inquiry to examine reports of misconduct by immigration agents, focusing on the arrests of citizens.`\
+https://nytimes.com/2025/10/20/us/investigation-arrests-of-americans-ice-raids.html
+
 **Leaked Wedding Video Tarnishes Hard-Line Iranian Official**\
 `Rear Adm. Ali Shamkhani oversaw a brutal crackdown on women, but traditional notions of Islamic morality were little on display at his daughter’s wedding.`\
 https://nytimes.com/2025/10/20/world/middleeast/iran-wedding-video.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6734960/2025/10/20/nfl-suspends-dre-greenlaw-bronco
 **Your November Election Guide (Yes, This November)**\
 `It’s not a presidential election year, or even the midterms, but races this fall will offer a sense of voters’ moods in the first year of the new Trump administration.`\
 https://nytimes.com/2025/10/20/us/politics/elections-california-new-jersey-nyc.html
-
-**Roberta Alexander, Widely Acclaimed Soprano, Dies at 76**\
-`An African American who spent much of her career based in the Netherlands, she said her race was less of a factor in Europe when being considered for a wide variety of opera roles.`\
-https://nytimes.com/2025/10/20/arts/music/roberta-alexander-dead.html
 
