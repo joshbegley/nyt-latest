@@ -1,40 +1,40 @@
-**The Briefing: Can Man United build on Anfield win? Who is to blame at Forest?**\
-`Dissecting the Premier League's big talking points from the weekend, from a seismic win for United at Anfield to the Forest hokey-cokey`\
-https://nytimes.com/athletic/6731238/2025/10/20/premier-league-manchester-united-liverpool-forest-briefing/
+**Tawanda Muyeye exclusive: 'Test cricket and playing for England has been a goal of mine for so long'**\
+`The Kent batter has made waves since arriving in the United Kingdom as a refugee from Zimbabwe and is targeting an England future`\
+https://nytimes.com/athletic/6718656/2025/10/20/tawanda-muyeye-england-zimbabwe-kent-interview/
 
-**When is the Premier League's sacking season – and should clubs be more patient?**\
-`How much does fixture difficulty and misfortune play in dismissals – and is 'new-manager bounce' a real thing?`\
-https://nytimes.com/athletic/6688925/2025/10/20/premier-league-fired-sackings-analysis/
+**Frank Nazar, Spencer Knight proving to be worth every cent for Blackhawks**\
+`Sunday, Nazar and Knight continued to build on their promising starts to the 2025-26 season in Chicago's 2-1 win over the Anaheim Ducks.`\
+https://nytimes.com/athletic/6732228/2025/10/20/blackhawks-frank-nazar-spencer-knight/
 
-**In football in 2025, the big clubs rule**\
-`A meeting of Europe's biggest clubs this month showed just who is running the global game – and the impact that could have`\
-https://nytimes.com/athletic/6718905/2025/10/20/football-2025-big-clubs-rule/
+**Newcastle's away form is simply not good enough. Howe has many issues to address**\
+`Newcastle's away day woes continued at Brighton. Why can't Eddie Howe's team win on the road?`\
+https://nytimes.com/athletic/6728164/2025/10/20/newcastle-away-form-trends-eddie-howe/
 
-**What is the greatest individual performance in sport?**\
-`After Shohei Ohtani became the first player to hit three home runs and throw 10 strikeouts in a game, it got us thinking...`\
-https://nytimes.com/athletic/6730324/2025/10/20/greatest-performance-sport-ohtani-messi/
+**Everton's evolution can only go so far unless key issues are addressed**\
+`If David Moyes' team are to push on, they will need to find a way of being more clinical and coaxing out more from their full-backs`\
+https://nytimes.com/athletic/6729176/2025/10/20/everton-beto-obrien-mykolenko-evolution/
 
-**Why do Bayern Munich play the can-can when they score?**\
-`The German giants have long played goal music during games, but the origins of their selection are murky`\
-https://nytimes.com/athletic/6683950/2025/10/20/why-do-bayern-munich-play-the-can-can-when-they-score/
+**Sunderland seize the moment to bridge the chasm to Premier League status**\
+`Victory against Wolverhampton Wanderers hoisted Regis Le Bris' side into seventh and further away from the condemned near the foot`\
+https://nytimes.com/athletic/6730064/2025/10/20/sunderland-wolves-keel-mukiele/
 
-**Tottenham embody this season's Premier League: Set pieces, long throws, and no cohesion**\
-`Tottenham's performance against Aston Villa summed up not only where they are at but also where the league overall finds itself`\
-https://nytimes.com/athletic/6730779/2025/10/20/tottenham-aston-villa-premier-league-tactics/
+**Mateta's mad afternoon: A hat-trick, but costly misses continue**\
+`A performance that summed up Crystal Palace's talented striker`\
+https://nytimes.com/athletic/6728327/2025/10/20/crystal-palace-mateta-hattrick/
 
-**Fantasy football Week 7 takeaways: D'Andre Swift is a league winner**\
-`Michael Salfino shares his observations for Week 7, including hot takes on D'Andre Swift, Quinshon Judkins, Travis Hunter and more.`\
-https://nytimes.com/athletic/6731961/2025/10/20/fantasy-football-week-7-takeaways-swift-is-a-league-winner-gadsden-is-a-garbage-time-all-star/
+**'Cashy, still watching your pass?': Breaking down Matty Cash's match-winning moment**\
+`The Poland international has been quietly excellent this season and his pass was crucial in vital win`\
+https://nytimes.com/athletic/6730707/2025/10/20/aston-villa-matty-cash-pass/
 
-**A vintage Arteta victory**\
-`Arsenal look good without being great. That might be enough in the title race but they should also get better as the season goes on`\
-https://nytimes.com/athletic/6729345/2025/10/20/arsenal-mikel-arteta-vintage/
+**The League Cup could've been greeted by excitement. Instead, it was almost apologetic**\
+`The Women's League Cup is an underserved competition, but given some love and guidance, it can fulfil its potential`\
+https://nytimes.com/athletic/6730899/2025/10/20/womens-league-cup-column/
 
-**Peanut Allergies Have Plummeted in Children, Study Shows**\
-`Doctors have long recommended that infants avoid peanuts. But in 2017, experts officially reversed that guidance, and food allergies decreased sharply.`\
-https://nytimes.com/2025/10/20/well/peanut-allergy-drop.html
+**The Flying Pizza, the Italian restaurant at the heart of Leeds United **\
+`A restaurant in a Leeds suburb has a strong and enduring relationship with the city's football club - this is why`\
+https://nytimes.com/athletic/6727504/2025/10/20/leeds-united-flying-pizza-heart/
 
-**Quote of the Day: They Were Jets and Titans. Now They’re Nurses.**\
-`Quotation of the Day for Monday, October 20, 2025.`\
-https://nytimes.com/2025/10/20/pageoneplus/quote-of-the-day-they-were-jets-and-titans-now-theyre-nurses.html
+**Giants have lost so many games, but Sunday's collapse in Denver hit harder**\
+`There was plenty of blame to go around in the aftermath of the shocking loss.`\
+https://nytimes.com/athletic/6732303/2025/10/20/giants-takeaways-loss-broncos/
 
