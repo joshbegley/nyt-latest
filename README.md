@@ -1,3 +1,7 @@
+**Liverpool captain Fisk receives England call-up**\
+`The 27-year-old has not been capped at senior level but has featured in the national team's youth sides.`\
+https://nytimes.com/athletic/6732792/2025/10/20/grace-fisk-england-reid-clinton/
+
 **Yankees' 2026 payroll breakdown: What to expect as New York prepares for offseason moves**\
 `Breaking down where the Yankees stand with guaranteed salaries, contract options, dead money and projected arbitration figures for 2026.`\
 https://nytimes.com/athletic/6731439/2025/10/20/yankees-2026-payroll-offseason-trades-signings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6726284/2025/10/20/college-basketball-hot-seat-hube
 **What I'm hearing about the Penguins: Are Harrison Brunicke, Ben Kindel staying in NHL?**\
 `The Penguins will soon have decisions to make on the short-term future of both teenagers Brunicke and Kindel.`\
 https://nytimes.com/athletic/6728842/2025/10/20/penguins-harrison-brunicke-ben-kindel-nhl/
-
-**Message board Monday: Brian Kelly seems to have lost LSU fans — 'He can be water boy'**\
-`Kelly is on the brink of missing the College Football Playoff for the fourth straight season at LSU. That's inexcusable. `\
-https://nytimes.com/athletic/6730945/2025/10/20/lsu-football-brian-kelly-message-boards/
 
