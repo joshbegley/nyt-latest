@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6730856/2025/10/20/celtics-predictions-jayson-tatum
 https://nytimes.com/live/2025/10/20/business/aws-down-internet-outage
 
 **Clashes in Gaza Reveal Cease-Fire’s Fragility, With Rougher Road Ahead**\
-`A round of violence on Sunday was short-lived, but analysts expect more tensions between Israel and Palestinian militants to put the truce under strain.`\
+`A round of violence on Sunday was short-lived, but analysts expect more tensions between Israel and Palestinian militants that will put the truce under strain.`\
 https://nytimes.com/2025/10/20/world/middleeast/gaza-israel-hamas-cease-fire.html
 
 **The Rise of the Inflatable Chicken Resistance**\
