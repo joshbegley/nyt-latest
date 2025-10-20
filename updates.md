@@ -1,3 +1,7 @@
+**Emirates Cargo Plane Slides Off Hong Kong Runway, Killing 2 Ground Crew**\
+`The plane, arriving from Dubai, skidded off the runway after landing and fell into the sea, Hong Kong officials said.`\
+https://nytimes.com/2025/10/19/world/asia/emirates-hong-kong-cargo-plane.html
+
 **Carson Wentz's mistakes vs. Eagles show why Vikings must get healthy J.J. McCarthy back**\
 `Wentz completed 26 of 42 passes for 313 yards and two interceptions on Sunday. When McCarthy gets healthy, it's time to see what he can do.`\
 https://nytimes.com/athletic/6731942/2025/10/19/vikings-eagles-carson-wentz-jj-mccarthy/
