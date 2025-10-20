@@ -1,3 +1,19 @@
+**Peanut Allergies Have Plummeted in Children, Study Shows**\
+`Doctors have long recommended that infants avoid peanuts. But in 2017, experts officially reversed that guidance, and food allergies decreased sharply.`\
+https://nytimes.com/2025/10/20/well/peanut-allergy-drop.html
+
+**Quote of the Day: They Were Jets and Titans. Now They’re Nurses.**\
+`Quotation of the Day for Monday, October 20, 2025.`\
+https://nytimes.com/2025/10/20/pageoneplus/quote-of-the-day-they-were-jets-and-titans-now-theyre-nurses.html
+
+**No Corrections: Oct. 20, 2025**\
+`No corrections appeared in print on Monday, Oct. 20, 2025.`\
+https://nytimes.com/2025/10/20/pageoneplus/no-corrections-oct-20-2025.html
+
+**Connections: Sports Edition hints for Oct. 20, 2025, puzzle No. 392**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6732315/2025/10/20/connections-sports-edition-hints-for-oct-20-2025/
+
 **Cardinals, with five straight losses, need to question everything, including head coach**\
 `Through seven weeks, the Cardinals have proved one thing: They are good enough to win, yet they are better at finding ways to lose.`\
 https://nytimes.com/athletic/6732134/2025/10/19/arizona-cardinals-green-bay-packers-jonathan-gannon/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/19/fashion/watches-trilobe-paris.html
 **Yellow Brightens Up the Watch Universe**\
 `Brands such as H. Moser & Cie. and TAG Heuer have introduced watches with the sunny hue this year.`\
 https://nytimes.com/2025/10/19/fashion/watches-yellow.html
-
-**Louis Vuitton Revives a Cult Watch**\
-`The Monterey, a 1990s design favorite, returns in a yellow gold limited edition.`\
-https://nytimes.com/2025/10/19/fashion/watches-louis-vuitton-monterey.html
-
-**Jojo, the Watch Dealer, Shows Us Geneva. Well, Its Food.**\
-`Joël Laplace, known online as Jojolamontre, often displays watches alongside Swiss dishes — so our writer asked to visit his favorite eateries.`\
-https://nytimes.com/2025/10/19/fashion/watches-joel-laplace-geneva-restaurants.html
-
-**Louvre Exhibits a New Vacheron Constantin Astronomical Clock**\
-`The 3.5-foot timepiece, which includes an automaton, is on loan to the Paris museum until November.`\
-https://nytimes.com/2025/10/19/fashion/vacheron-constantin-astronomical-clock-louvre.html
-
-**Chargers defense must improve or season is going to slip away: 'We looked like trash'**\
-`Derwin James: “We haven’t been ourselves on defense, starting with myself as a captain. We got to get it fixed.”`\
-https://nytimes.com/athletic/6732245/2025/10/19/chargers-defense-loss-colts/
 
