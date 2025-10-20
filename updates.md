@@ -1,3 +1,7 @@
+**Brad Marchand on Rasmus Dahlin's helmet: 'Either throw it or I rip it'**\
+`“It was either throw it or I rip it. I ripped it,” said Marchand. “Probably should have just put it down. Next time.”`\
+https://nytimes.com/athletic/6734083/2025/10/20/brad-marchand-rasmus-dahlins-helmet-panthers-sabres/
+
 **Churchill Plus the Windsors? Andrew Morton Spills Rewarmed Tea.**\
 `In “Winston and the Windsors,” the prolific biographer Andrew Morton, perhaps inevitably, tackles two British behemoths.`\
 https://nytimes.com/2025/10/20/books/review/winston-and-the-windsors-andrew-morton.html

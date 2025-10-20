@@ -1,3 +1,7 @@
+**Brad Marchand on Rasmus Dahlin's helmet: 'Either throw it or I rip it'**\
+`“It was either throw it or I rip it. I ripped it,” said Marchand. “Probably should have just put it down. Next time.”`\
+https://nytimes.com/athletic/6734083/2025/10/20/brad-marchand-rasmus-dahlins-helmet-panthers-sabres/
+
 **Churchill Plus the Windsors? Andrew Morton Spills Rewarmed Tea.**\
 `In “Winston and the Windsors,” the prolific biographer Andrew Morton, perhaps inevitably, tackles two British behemoths.`\
 https://nytimes.com/2025/10/20/books/review/winston-and-the-windsors-andrew-morton.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6733617/2025/10/20/wisconsin-supports-luke-fickell-
 **Passengers Evacuated From Subway Train After 2 Cars Detach**\
 `Two train cars uncoupled on a No. 4 train heading into Manhattan from the Bronx on Sunday. No injuries were reported.`\
 https://nytimes.com/2025/10/20/nyregion/subway-cars-decouple.html
-
-**A Newborn Girl Is Abandoned at a Penn Station Subway Stop**\
-`It was unclear who left the baby in a passageway that leads to the No. 1 train, the police said. She was in stable condition.`\
-https://nytimes.com/2025/10/20/nyregion/abandoned-baby-penn-station.html
 
