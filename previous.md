@@ -1,3 +1,15 @@
+**NFL overreactions: How is THAT the Giants-Eagles total!?**\
+`Toby Mergler makes early Week 8 picks wildly over-indexing on vibes, small sample sizes and comparisons to pop culture classics.`\
+https://nytimes.com/athletic/6733688/2025/10/20/nfl-overreaction-monday-fishy-betting-lines-and-early-picks-for-week-8/
+
+**Source: Christian Braun, Nuggets agree to 5-year, $125-million extension**\
+`The move cements the 24-year-old wing as a key member of the team's core alongside Nikola Jokić and Jamal Murray.`\
+https://nytimes.com/athletic/6733147/2025/10/20/christian-braun-nuggets-contract-extension/
+
+**Gonzalez credits Busquets, Guardiola and Rodri with shaping his game**\
+`Gonzalez believes his experience learning from three of the best midfielders in Spanish history is helping him at Manchester City.`\
+https://nytimes.com/athletic/6734091/2025/10/20/nico-gonzalez-guardiola-rodri-busquets/
+
 **Brad Marchand on Rasmus Dahlin's helmet: 'Either throw it or I rip it'**\
 `“It was either throw it or I rip it. I ripped it,” said Marchand. “Probably should have just put it down. Next time.”`\
 https://nytimes.com/athletic/6734083/2025/10/20/brad-marchand-rasmus-dahlins-helmet-panthers-sabres/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/20/us/airlines-passports-x-markers.html
 **Disney+ Cancellations Jump After Kimmel Suspension**\
 `Roughly three million Americans canceled the streaming service in the month that it temporarily suspended Jimmy Kimmel’s show. About 4.1 million people canceled Disney-owned Hulu.`\
 https://nytimes.com/2025/10/20/business/media/disney-subscription-cancellations-kimmel.html
-
-**Fantasy football Week 7 recap and early waivers speed run: Two RBs to add ASAP**\
-`Plus, clarity in Carolina's backfield and a breakout performance from a tight end.`\
-https://nytimes.com/athletic/6733715/2025/10/20/fantasy-football-week-7-recap-and-early-waivers-speed-run-two-rbs-to-add-asap/
-
-**Wisconsin AD supports Luke Fickell after back-to-back shutout losses**\
-`Athletic director Chris McIntosh also said that Wisconsin plans to increase its financial investment in the football program. `\
-https://nytimes.com/athletic/6733617/2025/10/20/wisconsin-supports-luke-fickell-coach/
-
-**Passengers Evacuated From Subway Train After 2 Cars Detach**\
-`Two train cars uncoupled on a No. 4 train heading into Manhattan from the Bronx on Sunday. No injuries were reported.`\
-https://nytimes.com/2025/10/20/nyregion/subway-cars-decouple.html
 
