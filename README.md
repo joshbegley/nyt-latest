@@ -1,5 +1,5 @@
 **Voices From a Nationwide Day of Protest Against Trump**\
-`Readers reflect on the “No Kings” demonstrations across the country.`\
+`Participants reflect on the “No Kings” demonstrations across the country.`\
 https://nytimes.com/2025/10/20/opinion/letters/no-kings-protests-trump.html
 
 **Albert Pujols no longer a candidate in Angels managerial search**\
