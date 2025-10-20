@@ -1,3 +1,11 @@
+**Police investigating spitting allegation against Burnley’s Hannibal in Leeds game**\
+`The 22-year-old was an 83rd-minute substitute at Turf Moor, a game which Burnley won 2-0.`\
+https://nytimes.com/athletic/6733237/2025/10/20/hannibal-burnley-leeds-spitting-allegation/
+
+**Can an Israel Philharmonic Concert Be Just About Music?**\
+`In the days following a cease-fire in Gaza, the orchestra returned to New York under circumstances that were more tense than usual.`\
+https://nytimes.com/2025/10/20/arts/music/israel-philharmonic-orchestra-carnegie-hall.html
+
 **Fulham keen to renew Silva contract, which contains clause in region of £15m**\
 `Silva's existing deal runs out at the end of this season and he had been admired as Nottingham Forest looked to replace Ange Postecoglou.`\
 https://nytimes.com/athletic/6733017/2025/10/20/marco-silva-fulham-contract-clause/
