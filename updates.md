@@ -1,3 +1,19 @@
+**Hungry to turn things around, Myles Garrett and Browns' defense feast on Dolphins**\
+`Playing dominant defense is the only hope Cleveland has of salvaging something of this season and changing the team's overall outlook.`\
+https://nytimes.com/athletic/6731828/2025/10/19/browns-defense-myles-garrett-dolphins/
+
+**Red Wings' hot start keeps rolling, with Dylan Larkin powering it**\
+`Larkin tied a career high with four points, while going head-to-head with Connor McDavid all night.`\
+https://nytimes.com/athletic/6731704/2025/10/19/red-wings-dylan-larkin-win-streak/
+
+**Justin Fields benched, the Jets once again pour their hope into a familiar place: The next QB**\
+`Fields was pulled in favor of Tyrod Taylor during Sunday’s loss to the Carolina Panthers.`\
+https://nytimes.com/athletic/6731915/2025/10/19/justin-fields-benched-jets-next-qb-carolina-panthers-loss/
+
+**Cowboys-Commanders takeaways: Dallas has big day; Jayden Daniels injured**\
+`Prescott has gone four consecutive games with zero interceptions and three-plus touchdowns.`\
+https://nytimes.com/athletic/6731764/2025/10/19/commanders-cowboys-score-result-takeaways-nfl/
+
 **Don't call it ugly: After Bryce Young exits, Jaycee Horn and the D will Panthers to win**\
 `The Panthers are 4-3 but will have to wait on Bryce Young's status before they play the Buffalo Bills at home next week.`\
 https://nytimes.com/athletic/6731835/2025/10/19/panthers-beat-jets-jaycee-horn-defense/

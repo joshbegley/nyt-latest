@@ -1,8 +1,20 @@
+**Hungry to turn things around, Myles Garrett and Browns' defense feast on Dolphins**\
+`Playing dominant defense is the only hope Cleveland has of salvaging something of this season and changing the team's overall outlook.`\
+https://nytimes.com/athletic/6731828/2025/10/19/browns-defense-myles-garrett-dolphins/
+
+**Red Wings' hot start keeps rolling, with Dylan Larkin powering it**\
+`Larkin tied a career high with four points, while going head-to-head with Connor McDavid all night.`\
+https://nytimes.com/athletic/6731704/2025/10/19/red-wings-dylan-larkin-win-streak/
+
+**Justin Fields benched, the Jets once again pour their hope into a familiar place: The next QB**\
+`Fields was pulled in favor of Tyrod Taylor during Sunday’s loss to the Carolina Panthers.`\
+https://nytimes.com/athletic/6731915/2025/10/19/justin-fields-benched-jets-next-qb-carolina-panthers-loss/
+
 **Don't call it ugly: After Bryce Young exits, Jaycee Horn and the D will Panthers to win**\
 `The Panthers are 4-3 but will have to wait on Bryce Young's status before they play the Buffalo Bills at home next week.`\
 https://nytimes.com/athletic/6731835/2025/10/19/panthers-beat-jets-jaycee-horn-defense/
 
-**Cowboys-Commanders takeaways: Dallas' offense stuns Washington**\
+**Cowboys-Commanders takeaways: Dallas has big day; Jayden Daniels injured**\
 `Prescott has gone four consecutive games with zero interceptions and three-plus touchdowns.`\
 https://nytimes.com/athletic/6731764/2025/10/19/commanders-cowboys-score-result-takeaways-nfl/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6730755/2025/10/19/giants-broncos-score-result-take
 **In shocking twist, Bears QB is bad, but running game and defense save day against Saints**\
 `Caleb Williams' 15-for-26, 172-yard effort was reminiscent of games we've seen before. Sometimes, the rest of the team must carry the load.`\
 https://nytimes.com/athletic/6731713/2025/10/19/bears-saints-caleb-williams-winning-streak/
-
-**Miss Major Griffin-Gracy, Trans Activist Who Saw It All, Dies**\
-`She spat in a policeman’s face at the Stonewall Riot, ran a nursing service during the AIDS crisis and boycotted Pride parades when they welcomed corporations.`\
-https://nytimes.com/2025/10/19/obituaries/miss-major-griffin-gracy-dead.html
-
-**The backstory of Patrick Mahomes' trick play vs. Raiders: 'That was hilarious'**\
-`Chiefs QB Patrick Mahomes faked out the Raiders — and CBS broadcasters — with his acting skills. Here's what happened.`\
-https://nytimes.com/athletic/6730847/2025/10/19/chiefs-patrick-mahomes-trick-play-raiders/
-
-**Curry College's Montie Quinn sets NCAA record with 522 rushing yards**\
-`The Division III Curry running back set the NCAA single-game rushing record with 522 yards in a 71-27 win over Nichols on Saturday.`\
-https://nytimes.com/athletic/6731636/2025/10/19/curry-montie-quinn-ncaa-rushing-record-522-yards/
 
