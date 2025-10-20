@@ -1,3 +1,15 @@
+**Colts-Chargers takeaways: Jonathan Taylor, Daniel Jones torch L.A. defense**\
+`Colts win third straight and improve to 6-1, taking advantage of a porous Chargers defense and two Justin Herbert interceptions.`\
+https://nytimes.com/athletic/6731797/2025/10/19/colts-chargers-score-result-takeaways-nfl/
+
+**Giants-Broncos takeaways: Broncos overcome 19-point fourth-quarter deficit**\
+`Jaxson Dart throws three touchdown passes but the Broncos mount improbable rally.`\
+https://nytimes.com/athletic/6730755/2025/10/19/giants-broncos-score-result-takeaways-nfl/
+
+**In shocking twist, Bears QB is bad, but running game and defense save day**\
+`Caleb Williams' 15-for-26, 172-yard effort was reminiscent of games we've seen before. Sometimes, the rest of the team must carry the load.`\
+https://nytimes.com/athletic/6731713/2025/10/19/bears-saints-caleb-williams-winning-streak/
+
 **Miss Major Griffin-Gracy, Trans Activist Who Saw It All, Dies**\
 `She spat in a policeman’s face at the Stonewall Riot, ran a nursing service during the AIDS crisis and boycotted Pride parades when they welcomed corporations.`\
 https://nytimes.com/2025/10/19/obituaries/miss-major-griffin-gracy-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6731107/2025/10/19/rams-offense-matthew-stafford-da
 **Mike Vrabel has taken over and turned the Patriots into legitimate contenders**\
 `Vrabel made his return to Tennessee to face his old team, and his Patriots didn't disappoint, topping the Titans 31-13.`\
 https://nytimes.com/athletic/6731688/2025/10/19/patriots-titans-mike-vrabel-afc-east-contenders/
-
-**For Alaskan Evacuees, Home Is Gone, With No Return in Sight**\
-`Their communities devastated from last weekend’s storm, many are in shelters in Anchorage and facing life in a completely different world.`\
-https://nytimes.com/2025/10/19/us/alaska-storm-flooding-evacuations.html
-
-**Blazers, Toumani Camara agree to 4-year, $82 million extension: Source**\
-`Portland locks up a 25-year-old defensive star — Camara was named second-team All-Defense last season — who also has offensive upside.`\
-https://nytimes.com/athletic/6731728/2025/10/19/toumani-camara-contract-extension-portland-trail-blazers-nba/
-
-**Commanders QB Jayden Daniels ruled out vs. Cowboys with hamstring injury**\
-`Daniels left Sunday's game in the third quarter and headed to the locker room. He was later ruled out.`\
-https://nytimes.com/athletic/6731747/2025/10/19/jayden-daniels-commanders-hamstring-injury/
 
