@@ -1,3 +1,7 @@
+**Tawanda Muyeye exclusive: 'Test cricket and playing for England has been a goal of mine for so long'**\
+`The Kent batter has made waves since arriving in the United Kingdom as a refugee from Zimbabwe and is targeting an England future`\
+https://nytimes.com/athletic/6718656/2025/10/20/tawanda-muyeye-england-zimbabwe-kent-interview/
+
 **Frank Nazar, Spencer Knight proving to be worth every cent for Blackhawks**\
 `Sunday, Nazar and Knight continued to build on their promising starts to the 2025-26 season in Chicago's 2-1 win over the Anaheim Ducks.`\
 https://nytimes.com/athletic/6732228/2025/10/20/blackhawks-frank-nazar-spencer-knight/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6727504/2025/10/20/leeds-united-flying-pizza-heart/
 **Giants have lost so many games, but Sunday's collapse in Denver hit harder**\
 `There was plenty of blame to go around in the aftermath of the shocking loss.`\
 https://nytimes.com/athletic/6732303/2025/10/20/giants-takeaways-loss-broncos/
-
-**Danny Welbeck, a Brighton brace and the latest cruel reminder to Newcastle of what might have been**\
-`The veteran was a free transfer target for former Newcastle manager Steve Bruce back in 2020 but ended up moving to the Amex instead`\
-https://nytimes.com/athletic/6728784/2025/10/20/welbeck-brighton-newcastle-bruce/
 
