@@ -1,3 +1,11 @@
+**How Ultraprocessed Food Took Over America**\
+`These products are among the greatest health threats of our time.`\
+https://nytimes.com/2025/10/20/briefing/how-ultraprocessed-food-took-over-america.html
+
+**The Culture Wars Have Come for Wikipedia**\
+`Jimmy Wales, a co-founder of Wikipedia, speaks with Lulu Garcia-Navarro about the challenges the site faces.`\
+https://nytimes.com/video/podcasts/100000010468816/the-culture-wars-have-come-for-wikipedia.html
+
 **How to watch Atlanta Hawks games during pivotal 2025-26 season**\
 `Will the Hawks be able to deliver on preseason hype? Find out how to watch Trae Young and company all season long. `\
 https://nytimes.com/athletic/6727125/2025/10/20/atlanta-hawks-tv-schedule-how-to-watch/

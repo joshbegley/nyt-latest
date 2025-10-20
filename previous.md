@@ -1,9 +1,13 @@
+**How Ultraprocessed Food Took Over America**\
+`These products are among the greatest health threats of our time.`\
+https://nytimes.com/2025/10/20/briefing/how-ultraprocessed-food-took-over-america.html
+
 **How to watch Atlanta Hawks games during pivotal 2025-26 season**\
 `Will the Hawks be able to deliver on preseason hype? Find out how to watch Trae Young and company all season long. `\
 https://nytimes.com/athletic/6727125/2025/10/20/atlanta-hawks-tv-schedule-how-to-watch/
 
 **The Culture Wars Have Come for Wikipedia**\
-`Wikipedia might seem like a public utility, but in recent years it’s become part of the culture wars.`\
+`Jimmy Wales, a co-founder of Wikipedia, speaks with Lulu Garcia-Navarro about the challenges the site faces.`\
 https://nytimes.com/video/podcasts/100000010468816/the-culture-wars-have-come-for-wikipedia.html
 
 **Ferrari scored a good Austin podium. But its winless F1 run isn't stopping**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6724015/2025/10/20/detroit-pistons-tv-streaming-pea
 **OpenEvidence Raises $200 Million for a ChatGPT for Medicine**\
 `The three-year-old artificial intelligence start-up has drawn investor attention, and money, as its use among doctors, nurses and others skyrockets.`\
 https://nytimes.com/2025/10/20/business/dealbook/openevidence-fundraising-chatgpt-medicine.html
-
-**FPL Gameweek 8 Review: Mateta caution, a new £4.5m gem and time's ticking for Salah**\
-`Abdul Rehman breaks down the main FPL talking points from Gameweek 8 so far`\
-https://nytimes.com/athletic/6731065/2025/10/20/fantasy-premier-league-gw8-mateta-salah/
 
