@@ -1,40 +1,40 @@
+**Cardinals, with five straight losses, need to question everything, including head coach**\
+`Through seven weeks, the Cardinals have proved one thing: They are good enough to win, yet they are better at finding ways to lose.`\
+https://nytimes.com/athletic/6732134/2025/10/19/arizona-cardinals-green-bay-packers-jonathan-gannon/
+
+**49ers-Falcons takeaways: Christian McCaffrey finally runs like CMC**\
+`The 49ers running back had his best running game since 2023 to lead a 20-10 victory over the Atlanta Falcons on Sunday night.`\
+https://nytimes.com/athletic/6731701/2025/10/19/falcons-49ers-score-result-takeaways-nfl-snf/
+
+**'I just was attacking today': Micah Parsons powers Packers' comeback win with 3 sacks**\
+`Parsons saw more one-on-ones than he has all season and capitalized by putting pressure on Jacoby Brissett the whole game.`\
+https://nytimes.com/athletic/6732254/2025/10/19/micah-parsons-sacks-packer-cardinals/
+
+**In Iceland, a Wrecked Plane and a Watch**\
+`Inspired by the tourist popularity of a 1973 plane wreck on a remote beach, JS Watch presented a wristwatch to the pilot who made that emergency landing, saving everyone onboard`\
+https://nytimes.com/2025/10/19/fashion/airplane-wreck-iceland-return.html
+
+**A French Watch Brand Brings Its Production Home**\
+`Trilobe, which just introduced a movement made in-house, has opened a components factory on the outskirts of Paris.`\
+https://nytimes.com/2025/10/19/fashion/watches-trilobe-paris.html
+
+**Yellow Brightens Up the Watch Universe**\
+`Brands such as H. Moser & Cie. and TAG Heuer have introduced watches with the sunny hue this year.`\
+https://nytimes.com/2025/10/19/fashion/watches-yellow.html
+
+**Louis Vuitton Revives a Cult Watch**\
+`The Monterey, a 1990s design favorite, returns in a yellow gold limited edition.`\
+https://nytimes.com/2025/10/19/fashion/watches-louis-vuitton-monterey.html
+
+**Jojo, the Watch Dealer, Shows Us Geneva. Well, Its Food.**\
+`Joël Laplace, known online as Jojolamontre, often displays watches alongside Swiss dishes — so our writer asked to visit his favorite eateries.`\
+https://nytimes.com/2025/10/19/fashion/watches-joel-laplace-geneva-restaurants.html
+
+**Louvre Exhibits a New Vacheron Constantin Astronomical Clock**\
+`The 3.5-foot timepiece, which includes an automaton, is on loan to the Paris museum until November.`\
+https://nytimes.com/2025/10/19/fashion/vacheron-constantin-astronomical-clock-louvre.html
+
 **Chargers defense must improve or season is going to slip away: 'We looked like trash'**\
 `Derwin James: “We haven’t been ourselves on defense, starting with myself as a captain. We got to get it fixed.”`\
 https://nytimes.com/athletic/6732245/2025/10/19/chargers-defense-loss-colts/
-
-**Mariners-Blue Jays Game 6 takeaways: Toronto forces winner-take-all Game 7**\
-`It'll be the Blue Jays' first Game 7 in 40 years and the Mariners' first ever. The winner takes on the Dodgers in the World Series.`\
-https://nytimes.com/athletic/6731944/2025/10/19/mariners-blue-jays-game-6-score-result-alcs-playoff-mlb/
-
-**Mamdani and Cuomo Make Their Cases in Last Weekend Before Early Voting**\
-`As the New York City mayoral campaign enters its final weeks, the candidates appeared at a forum at Queens College and at a soccer tournament in Coney Island.`\
-https://nytimes.com/2025/10/19/nyregion/mamdani-cuomo-campaign-new-york.html
-
-**Broncos Complete Stunning Comeback to Beat Giants**\
-`The Denver Broncos pulled off one of the most thrilling comebacks in N.F.L. history in Week 7, erasing a 19-point deficit to beat the New York Giants.`\
-https://nytimes.com/video/the-athletic/100000010467325/broncos-complete-stunning-comeback-to-beat-giants.html
-
-**'This joint might work:' How the Broncos capped a historic comeback to topple Giants**\
-`The Broncos finished a furious fourth-quarter charge with a play for Courtland Sutton that was first installed Saturday.`\
-https://nytimes.com/athletic/6732077/2025/10/19/broncos-comeback-giants-sutton-nix-payton/
-
-**Morocco stuns Argentina 2-0 to win first U20 World Cup title**\
-`Argentina were seeking their seventh U20 men's title but were instead stunned by two well-taken first-half goals from Morocco.`\
-https://nytimes.com/athletic/6732176/2025/10/19/argentina-morocco-u20-world-cup-yassir-zabiri/
-
-**China’s Economy Holds Steady, but Consumers Grow More Cautious**\
-`A further increase in China’s trade surplus failed to fully offset the effects of a worsening housing market, which has left consumers wary.`\
-https://nytimes.com/2025/10/19/business/china-economy-gdp-q3.html
-
-**'The feeling of losing' propelled Jalen Hurts, Eagles to victory after mini-bye**\
-`Teammates described the look in Hurts' eye during their win against the Vikings. He had 326 yards, three TDs and a 158.3 passer rating.`\
-https://nytimes.com/athletic/6732007/2025/10/19/jalen-hurts-eagles-win-vikings/
-
-**Emirates Cargo Plane Slides Off Hong Kong Runway, Killing 2 Ground Crew**\
-`The plane, arriving from Dubai, skidded off the runway after landing and fell into the sea, Hong Kong officials said.`\
-https://nytimes.com/2025/10/19/world/asia/emirates-hong-kong-cargo-plane.html
-
-**Carson Wentz's mistakes vs. Eagles show why Vikings must get healthy J.J. McCarthy back**\
-`Wentz completed 26 of 42 passes for 313 yards and two interceptions on Sunday. When McCarthy gets healthy, it's time to see what he can do.`\
-https://nytimes.com/athletic/6731942/2025/10/19/vikings-eagles-carson-wentz-jj-mccarthy/
 
