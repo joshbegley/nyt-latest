@@ -1,3 +1,11 @@
+**Chargers defense must improve or season is going to slip away: 'We looked like trash'**\
+`Derwin James: “We haven’t been ourselves on defense, starting with myself as a captain. We got to get it fixed.”`\
+https://nytimes.com/athletic/6732245/2025/10/19/chargers-defense-loss-colts/
+
+**Broncos Complete Stunning Comeback to Beat Giants**\
+`The Denver Broncos pulled off one of the most thrilling comebacks in N.F.L. history in Week 7, erasing a 19-point deficit in the fourth quarter to beat the New York Giants.`\
+https://nytimes.com/video/the-athletic/100000010467325/broncos-complete-stunning-comeback-to-beat-giants.html
+
 **Mariners-Blue Jays Game 6 takeaways: Toronto forces winner-take-all Game 7**\
 `It'll be the Blue Jays' first Game 7 in 40 years and the Mariners' first ever. The winner takes on the Dodgers in the World Series.`\
 https://nytimes.com/athletic/6731944/2025/10/19/mariners-blue-jays-game-6-score-result-alcs-playoff-mlb/
