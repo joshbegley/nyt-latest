@@ -1,3 +1,11 @@
+**Roberta Alexander, Widely Acclaimed Soprano, Dies at 76**\
+`An African American who spent much of her career based in the Netherlands, she said her race was less of a factor in Europe when being considered for a wide variety of opera roles.`\
+https://nytimes.com/2025/10/20/arts/music/roberta-alexander-dead.html
+
+**Appeals Court Weighs Whether Alina Habba Is Lawful U.S. Attorney**\
+`President Trump installed his former personal lawyer as the top federal prosecutor in New Jersey. A legal challenge could clarify the limits of his power to keep U.S. attorneys in office without Senate involvement.`\
+https://nytimes.com/2025/10/20/nyregion/alina-habba-us-attorney-hearing.html
+
 **White House Scrambles to Preserve Gaza Deal Amid Concerns About Netanyahu**\
 `The Trump administration strategy is to try to keep Prime Minister Benjamin Netanyahu of Israel from resuming an all-out assault against Hamas, U.S. officials said.`\
 https://nytimes.com/2025/10/20/us/politics/trump-gaza-israel-netanyahu.html
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6734881/2025/10/20/submit-a-question-for-stewart-ma
 **Appeals Court Lifted a Block on Trump’s Deployment to Oregon**\
 `Also, the search is on for the Louvre jewel thieves. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/10/20/briefing/trump-oregon-national-guard-louvre-heist.html
-
-**How to Watch the Orionids Meteor Shower Reach Its Peak**\
-`The shower is produced by Halley’s comet’s debris, and could offer strong viewing opportunities because the moon is new this week.`\
-https://nytimes.com/2025/10/20/science/orionids-meteor-shower.html
-
-**George F. Smoot, Who Showed How the Cosmos Began, Is Dead at 80**\
-`He led a team of scientists who helped confirm that a Big Bang was the source of the universe. The discovery earned him a Nobel Prize.`\
-https://nytimes.com/2025/10/20/science/space/george-f-smoot-dead.html
 
