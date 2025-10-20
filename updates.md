@@ -1,3 +1,7 @@
+**Jayden Daniels' mother pleads with fans to stop comparing him to RGIII**\
+`The parallels between Daniels and Robert Griffin III are clear, as the pair were Heisman Trophy winners and No. 2 picks in the NFL Draft.`\
+https://nytimes.com/athletic/6733275/2025/10/20/jayden-daniels-robert-griffin-washington-commanders-comparisons/
+
 **What we've learned about Bruins so far this season: Moral victories will have to do**\
 `New coach Marco Sturm’s job is rebuilding organizational culture. Wins are secondary. That is a good thing, though maybe not an easy one.`\
 https://nytimes.com/athletic/6733336/2025/10/20/state-of-bruins-seven-games/
