@@ -1,3 +1,7 @@
+**Prison Guard Convicted in Fatal Beating Caught on Video, With 2 Acquitted**\
+`Footage of a group of guards punching, choking and stomping Robert L. Brooks ignited an outcry. Six guards pleaded guilty to charges.`\
+https://nytimes.com/2025/10/20/nyregion/marcy-prison-beating-murder-trial.html
+
 **Lowetide: Why are the Oilers struggling to find lines that work?**\
 `The Oilers' offensive identity appears to involve uncertainty, lack of aggression and five-on-five goals.`\
 https://nytimes.com/athletic/6730878/2025/10/20/edmonton-oilers-lines-mcdavid-draisaitl-knoblauch/
