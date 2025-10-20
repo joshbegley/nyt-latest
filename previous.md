@@ -1,3 +1,11 @@
+**Churchill Plus the Windsors? Andrew Morton Spills Rewarmed Tea.**\
+`In “Winston and the Windsors,” the prolific biographer Andrew Morton, perhaps inevitably, tackles two British behemoths.`\
+https://nytimes.com/2025/10/20/books/review/winston-and-the-windsors-andrew-morton.html
+
+**Officials Move to Close Cannabis Company That Allowed Unlicensed Production**\
+`The license for Omnium Health could be revoked after an investigation found that it let other companies use its facilities in an illegal arrangement.`\
+https://nytimes.com/2025/10/20/nyregion/cannabis-omnium.html
+
 **Scoop City: Risers and fallers after Sunday of Week 7**\
 `Trending up after Week 7, including Jonathan Taylor's MVP odds, plus key matchups for tonight's quarterbacks. `\
 https://nytimes.com/athletic/6733940/2025/10/20/week-7-risers-fallers-nfl-colts-chiefs-dolphins-scoop-city/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/20/nyregion/subway-cars-decouple.html
 **A Newborn Girl Is Abandoned at a Penn Station Subway Stop**\
 `It was unclear who left the baby in a passageway that leads to the No. 1 train, the police said. She was in stable condition.`\
 https://nytimes.com/2025/10/20/nyregion/abandoned-baby-penn-station.html
-
-**Voices From a Nationwide Day of Protest Against Trump**\
-`Participants reflect on the “No Kings” demonstrations across the country.`\
-https://nytimes.com/2025/10/20/opinion/letters/no-kings-protests-trump.html
-
-**Albert Pujols no longer a candidate in Angels managerial search**\
-`At one point, sources had said that the job was essentially Pujols' if he wanted it, but the situation has changed. `\
-https://nytimes.com/athletic/6733619/2025/10/20/albert-pujols-angels-manager-not-candidate/
 

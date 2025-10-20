@@ -1,3 +1,11 @@
+**Churchill Plus the Windsors? Andrew Morton Spills Rewarmed Tea.**\
+`In “Winston and the Windsors,” the prolific biographer Andrew Morton, perhaps inevitably, tackles two British behemoths.`\
+https://nytimes.com/2025/10/20/books/review/winston-and-the-windsors-andrew-morton.html
+
+**Officials Move to Close Cannabis Company That Allowed Unlicensed Production**\
+`The license for Omnium Health could be revoked after an investigation found that it let other companies use its facilities in an illegal arrangement.`\
+https://nytimes.com/2025/10/20/nyregion/cannabis-omnium.html
+
 **Scoop City: Risers and fallers after Sunday of Week 7**\
 `Trending up after Week 7, including Jonathan Taylor's MVP odds, plus key matchups for tonight's quarterbacks. `\
 https://nytimes.com/athletic/6733940/2025/10/20/week-7-risers-fallers-nfl-colts-chiefs-dolphins-scoop-city/
