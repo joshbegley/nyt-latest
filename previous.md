@@ -1,3 +1,11 @@
+**Cargo Plane Slides Off Runway in Hong Kong**\
+`An Emirates cargo plane, arriving from Dubai, overran a runway at Hong Kong International Airport upon landing and slid into the sea on Monday. Two ground crew members were killed, according to the local authorities.`\
+https://nytimes.com/video/world/asia/100000010468598/emirates-hong-kong-cargo-plane.html
+
+**Many Websites Report Outages and Disruptions**\
+`The cause of the disruptions, which affected gaming and entertainment websites, was unclear. Coinbase and others cited an issue with Amazon Web Services. Amazon didn’t immediately comment`\
+https://nytimes.com/2025/10/20/business/aws-down-internet-outage.html
+
 **A Rare Earths Alternative to China? Australia Eyes Timely Pitch to Trump**\
 `China’s escalating curbs on the critical minerals has given Australia, a longstanding U.S. ally, the opportunity to reposition itself to a transactional president.`\
 https://nytimes.com/2025/10/20/world/australia/australia-rare-earths-china-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/20/arts/television/nobody-wants-this-tv-this-week.ht
 **The New York Times in Print for Monday, Oct. 20, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/20/todays-new-york-times
-
-**Tawanda Muyeye exclusive: 'Test cricket and playing for England has been a goal of mine for so long'**\
-`The Kent batter has made waves since arriving in the United Kingdom as a refugee from Zimbabwe and is targeting an England future`\
-https://nytimes.com/athletic/6718656/2025/10/20/tawanda-muyeye-england-zimbabwe-kent-interview/
-
-**Frank Nazar, Spencer Knight proving to be worth every cent for Blackhawks**\
-`Sunday, Nazar and Knight continued to build on their promising starts to the 2025-26 season in Chicago's 2-1 win over the Anaheim Ducks.`\
-https://nytimes.com/athletic/6732228/2025/10/20/blackhawks-frank-nazar-spencer-knight/
 

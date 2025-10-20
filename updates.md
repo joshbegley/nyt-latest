@@ -1,3 +1,11 @@
+**Cargo Plane Slides Off Runway in Hong Kong**\
+`An Emirates cargo plane, arriving from Dubai, overran a runway at Hong Kong International Airport upon landing and slid into the sea on Monday. Two ground crew members were killed, according to the local authorities.`\
+https://nytimes.com/video/world/asia/100000010468598/emirates-hong-kong-cargo-plane.html
+
+**Many Websites Report Outages and Disruptions**\
+`The cause of the disruptions, which affected gaming and entertainment websites, was unclear. Coinbase and others cited an issue with Amazon Web Services. Amazon didn’t immediately comment`\
+https://nytimes.com/2025/10/20/business/aws-down-internet-outage.html
+
 **Liverpool are far too open, far too easy to play through – and individuals are struggling**\
 `Liverpool lost to Manchester United on Sunday but there is a growing set of problems for Arne Slot to deal with`\
 https://nytimes.com/athletic/6730616/2025/10/20/liverpool-manchester-united-analysis/
