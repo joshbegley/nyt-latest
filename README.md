@@ -1,3 +1,11 @@
+**Voices From a Nationwide Day of Protest Against Trump**\
+`Readers reflect on the “No Kings” demonstrations across the country.`\
+https://nytimes.com/2025/10/20/opinion/letters/no-kings-protests-trump.html
+
+**Albert Pujols no longer a candidate in Angels managerial search**\
+`At one point, sources had said that the job was essentially Pujols' if he wanted it, but the situation has changed. `\
+https://nytimes.com/athletic/6733619/2025/10/20/albert-pujols-angels-manager-not-candidate/
+
 **He Turned His High School Closet Into a Vintage Shopping Mecca**\
 `Marcus Allen never threw away the Abercrombie and Gap wardrobe of his teenage years. Now, those clothes are more in demand than ever.`\
 https://nytimes.com/2025/10/20/style/the-society-archive-vintage-mall-clothes.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/dining/100000010469155/restaurant-review-emerils.html
 **Bryce Young expected to miss Panthers' game vs. Bills: Source**\
 `The Panthers will go for their fourth consecutive win Sunday against the Bills with Andy Dalton as their starting QB.`\
 https://nytimes.com/athletic/6733361/2025/10/20/panthers-qb-bryce-young-injury-out-game/
-
-**The Fight for the Future of the Democratic Party**\
-`An Opinion series on the thinkers, upstarts and ideologues vying for control of their party.`\
-https://nytimes.com/spotlight/future-of-democratic-party
-
-**The Bounce: The Nuggets should be the West favorites, and more spicy hot takes**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6733359/2025/10/20/nuggets-hawks-hot-takes-breakouts-bounce/
 
