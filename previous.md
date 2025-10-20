@@ -1,3 +1,19 @@
+**Trying to Loosen China’s Grip on Critical Minerals, Trump Turns to Australia**\
+`The United States hopes to become less dependent on China by increasing access to mineral-rich countries. Rare earth metals are vital to an array of modern industries.`\
+https://nytimes.com/2025/10/20/us/politics/china-critical-minerals-trump-australia.html
+
+**Daniel Naroditsky, Chess Grandmaster, Dies at 29**\
+`He earned the highest title in the chess world as he built a career as an accomplished chess teacher, commentator and author.`\
+https://nytimes.com/2025/10/20/us/daniel-naroditsky-chess-grandmaster-dead.html
+
+**No Charges for Mother in Child Overboard Case**\
+`The incident, in which a girl fell from a Disney cruise ship and her father jumped in to save her, was captured on video and shared widely on social media. A prosecutor said the mother had a lapse in “proper judgment.”`\
+https://nytimes.com/2025/10/20/travel/disney-dream-cruise-overboard-case-charges.html
+
+**Maccabi Tel Aviv to decline Aston Villa ticket allocation after fan ban**\
+`The Athletic revealed on Thursday that West Midlands Police (WMP) had requested fans of the Israeli club be prevented from buying tickets.`\
+https://nytimes.com/athletic/6734808/2025/10/20/maccabi-tel-aviv-aston-villa-fans/
+
 **How the Louvre Thieves Did It**\
 `My colleagues explain how the brazen daytime jewel heist at the Louvre happened and why.`\
 https://nytimes.com/2025/10/20/world/louvre-thieves-gaza-kushner.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6734691/2025/10/20/united-states-mexico-costa-rica-
 **A Chinese Woman Builds a New Career in a Man’s World**\
 `An all-female repair business is challenging gender norms in China and catering to a growing population of single women seeking safety and comfort at home. We spoke to Ray Hou, who quit her office job to become a professional handywoman, about what motivated her to start a new career.`\
 https://nytimes.com/video/world/asia/100000010303871/china-women-new-careers.html
-
-**The Chinese Influencer Who Made a Career of Lying Flat**\
-`For many young Chinese, the relentless pressure to succeed has given way to a new minimalist lifestyle known as lying flat.`\
-https://nytimes.com/video/world/asia/100000010289092/china-travel-lying-flat.html
-
-**In China’s Crowded Hospitals, She Found a New Career**\
-`As China’s population grows older, a new industry of gig workers is stepping in to help older patients navigate a complex, bureaucratic hospital system.`\
-https://nytimes.com/video/world/asia/100000010047930/china-gig-workers-hospitals.html
-
-**Russell Westbrook grew tired of LeBron's 'fake' act with Lakers: Book**\
-`After joining the Lakers via trade, Westbrook's relationship with James started on a high note before fracturing quickly.`\
-https://nytimes.com/athletic/6734093/2025/10/20/russell-westbrook-lebron-lakers-book/
-
-**Watch These Six Heist Movies**\
-`If you thought that heist at the Louvre sounded like something out of a movie, this collection of heist films just might be for you.`\
-https://nytimes.com/2025/10/20/movies/heist-movies-streaming.html
 

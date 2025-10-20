@@ -1,3 +1,19 @@
+**Trying to Loosen China’s Grip on Critical Minerals, Trump Turns to Australia**\
+`The United States hopes to become less dependent on China by increasing access to mineral-rich countries. Rare earth metals are vital to an array of modern industries.`\
+https://nytimes.com/2025/10/20/us/politics/china-critical-minerals-trump-australia.html
+
+**Daniel Naroditsky, Chess Grandmaster, Dies at 29**\
+`He earned the highest title in the chess world as he built a career as an accomplished chess teacher, commentator and author.`\
+https://nytimes.com/2025/10/20/us/daniel-naroditsky-chess-grandmaster-dead.html
+
+**No Charges for Mother in Child Overboard Case**\
+`The incident, in which a girl fell from a Disney cruise ship and her father jumped in to save her, was captured on video and shared widely on social media. A prosecutor said the mother had a lapse in “proper judgment.”`\
+https://nytimes.com/2025/10/20/travel/disney-dream-cruise-overboard-case-charges.html
+
+**Maccabi Tel Aviv to decline Aston Villa ticket allocation after fan ban**\
+`The Athletic revealed on Thursday that West Midlands Police (WMP) had requested fans of the Israeli club be prevented from buying tickets.`\
+https://nytimes.com/athletic/6734808/2025/10/20/maccabi-tel-aviv-aston-villa-fans/
+
 **Trump Hopes Argentina Can Help Bring Down Meat Prices**\
 `President Trump’s plan to import red meat runs counter to his philosophy of increasing domestic production, and has angered cattle ranchers in the United States.`\
 https://nytimes.com/2025/10/20/us/politics/trump-argentina-beef.html

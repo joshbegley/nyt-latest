@@ -1,3 +1,11 @@
+**Former NFL RB Doug Martin died in Oakland police custody**\
+`Oakland PD says Martin was detained for his alleged involvement in a residential break-in.`\
+https://nytimes.com/athletic/6734641/2025/10/20/doug-martin-died-oakland-police-custody/
+
+**Facade of White House’s East Wing Torn Off to Make Way for Trump’s Ballroom**\
+`The president had pledged that construction wouldn’t “interfere with the current building,” a promise that always seemed unrealistic given the grand scale of the plans.`\
+https://nytimes.com/2025/10/20/us/politics/trump-white-house-east-wing-demolition-ballroom.html
+
 **Trying to Loosen China’s Grip on Critical Minerals, Trump Turns to Australia**\
 `The United States hopes to become less dependent on China by increasing access to mineral-rich countries. Rare earth metals are vital to an array of modern industries.`\
 https://nytimes.com/2025/10/20/us/politics/china-critical-minerals-trump-australia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/20/arts/music/sean-combs-diddy-appeal-conviction-sen
 **Trump Hopes Argentina Can Help Bring Down Meat Prices**\
 `President Trump’s plan to import red meat runs counter to his philosophy of increasing domestic production, and has angered cattle ranchers in the United States.`\
 https://nytimes.com/2025/10/20/us/politics/trump-argentina-beef.html
-
-**U.S., Mexico, Costa Rica, Jamaica announce 2031 Women's World Cup bid**\
-`Hosts will be officially confirmed at the FIFA Congress on April 30, 2026 in Vancouver.`\
-https://nytimes.com/athletic/6734691/2025/10/20/united-states-mexico-costa-rica-jamaica-womens-world-cup-bid/
-
-**A Chinese Woman Builds a New Career in a Man’s World**\
-`An all-female repair business is challenging gender norms in China and catering to a growing population of single women seeking safety and comfort at home. We spoke to Ray Hou, who quit her office job to become a professional handywoman, about what motivated her to start a new career.`\
-https://nytimes.com/video/world/asia/100000010303871/china-women-new-careers.html
 
