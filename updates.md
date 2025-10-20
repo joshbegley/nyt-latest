@@ -1,3 +1,7 @@
+**Liverpool are far too open, far too easy to play through – and individuals are struggling**\
+`Liverpool lost to Manchester United on Sunday but there is a growing set of problems for Arne Slot to deal with`\
+https://nytimes.com/athletic/6730616/2025/10/20/liverpool-manchester-united-analysis/
+
 **A Rare Earths Alternative to China? Australia Eyes Timely Pitch to Trump**\
 `China’s escalating curbs on the critical minerals has given Australia, a longstanding U.S. ally, the opportunity to reposition itself to a transactional president.`\
 https://nytimes.com/2025/10/20/world/australia/australia-rare-earths-china-trump.html
