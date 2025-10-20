@@ -1,3 +1,19 @@
+**NBA Power Rankings: The Hawks are contenders; postseason predictions for all**\
+`We're back with another season of Power Rankings, and where some teams are starting off may surprise you.`\
+https://nytimes.com/athletic/6727043/2025/10/20/nba-power-rankings-2025-2026-knicks-thunder-clippers/
+
+**Blue Jays one win away from preserving chase for their own October immortality**\
+`For a whole generation in Toronto, this is the closest they have come to ultimate postseason glory.`\
+https://nytimes.com/athletic/6732569/2025/10/20/blue-jays-game-7-one-win-world-series/
+
+**Senior German General Says Europe Must Do All It Can to Help Ukraine**\
+`European democracy and rule of law are at risk, the general says, so Europe must give Ukraine whatever it can to pressure Moscow, even if Trump does not.`\
+https://nytimes.com/2025/10/20/world/europe/senior-german-general-says-europe-must-do-all-it-can-to-help-ukraine.html
+
+**Here’s Is a Partial List of Sites and Apps Affected by Outages**\
+`Major services were having issues, including WhatsApp, the official website for the British government and the payment app Venmo.`\
+https://nytimes.com/2025/10/20/business/amazon-aws-outage-down-list.html
+
 **Restaurant Review: Baby Bistro in Los Angeles**\
 `If you go to Baby Bistro in Los Angeles looking for steak au poivre and a squidgy French onion soup, you might be disappointed.`\
 https://nytimes.com/video/dining/100000010452172/restaurant-review-baby-bistro-in-los-angeles.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6732634/2025/10/20/tua-tagovailoa-contract-trevor-l
 **Louvre Remains Closed as Police Hunt Jewel Thieves. Here’s What to Know.**\
 `A stunning heist has raised uncomfortable questions about security at the famed Paris museum.`\
 https://nytimes.com/2025/10/20/world/europe/france-louvre-jewel-heist.html
-
-**What we learned in NFL Week 7: Colts' offense cruises, Dolphins are a disaster**\
-`Week 7 in the NFL proved no fourth-quarter lead is safe. Just ask the New York Giants.`\
-https://nytimes.com/athletic/6731913/2025/10/20/nfl-week-7-takeaways-colts-chargers-dolphins-mike-mdcaniel/
-
-**With their season spiraling, the Commanders need to sit Jayden Daniels for a while**\
-`Their D is in tatters. Their best wide receivers are injured. The Commanders are flirting with disaster by playing Jayden Daniels on Monday.`\
-https://nytimes.com/athletic/6731706/2025/10/20/jayden-daniels-commanders-sit-down-bye/
-
-**'We gave that to them': Dominant Giants defense falters in fourth-quarter collapse**\
-`This wasn't the only painful loss for the Giants this season, but this one left the locker room emotional.`\
-https://nytimes.com/athletic/6732295/2025/10/20/giants-defense-collapse-broncos/
-
-**From Cooper Flagg to Tyronn Lue, my fearless predictions for the 2025-26 NBA season**\
-`History-making awards? Repeat champions? What's on tap for the upcoming campaign?`\
-https://nytimes.com/athletic/6696442/2025/10/20/nba-predictions-fearless-flagg-mavs-thunder-cavs/
 

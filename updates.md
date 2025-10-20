@@ -1,3 +1,11 @@
+**Restaurant Review: Baby Bistro in Los Angeles**\
+`If you go to Baby Bistro in Los Angeles looking for steak au poivre and a squidgy French onion soup, you might be disappointed.`\
+https://nytimes.com/video/dining/100000010452172/restaurant-review-baby-bistro-in-los-angeles.html
+
+**The Dolphins are in a pickle with Tua Tagovailoa. The Jaguars and Cardinals could be next**\
+`Tagovailoa, Trevor Lawrence and Kyler Murray are guaranteed a combined $131 million in 2026. What can their teams do about it?`\
+https://nytimes.com/athletic/6732634/2025/10/20/tua-tagovailoa-contract-trevor-lawrence-kyler-murray/
+
 **Raiders hit historic lows with shades of New Orleans 'Aints'**\
 `The Raiders managed just three first downs and ran only 30 offensive plays in a 31-0 loss to the Chiefs.`\
 https://nytimes.com/athletic/6732626/2025/10/20/raiders-pete-carroll-geno-smith-chiefs/
