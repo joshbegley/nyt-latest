@@ -1,3 +1,7 @@
+**A Newborn Girl Is Abandoned at a Penn Station Subway Stop**\
+`It was unclear who left the baby in a passageway that leads to the No. 1 train, the police said. She was in stable condition.`\
+https://nytimes.com/2025/10/20/nyregion/abandoned-baby-penn-station.html
+
 **Voices From a Nationwide Day of Protest Against Trump**\
 `Participants reflect on the “No Kings” demonstrations across the country.`\
 https://nytimes.com/2025/10/20/opinion/letters/no-kings-protests-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/20/business/hyundai-lg-investment-america-georgia-ra
 **Restaurant Review: Emeril’s**\
 `Emeril Lagasse’s son has completely reworked Emeril’s, his father’s 35-year-old flagship restaurant in the Warehouse District of New Orleans. Tejal Rao, a chief restaurant critic for The New York Times, shares her review.`\
 https://nytimes.com/video/dining/100000010469155/restaurant-review-emerils.html
-
-**Bryce Young expected to miss Panthers' game vs. Bills: Source**\
-`The Panthers will go for their fourth consecutive win Sunday against the Bills with Andy Dalton as their starting QB.`\
-https://nytimes.com/athletic/6733361/2025/10/20/panthers-qb-bryce-young-injury-out-game/
 

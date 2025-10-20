@@ -1,3 +1,7 @@
+**A Newborn Girl Is Abandoned at a Penn Station Subway Stop**\
+`It was unclear who left the baby in a passageway that leads to the No. 1 train, the police said. She was in stable condition.`\
+https://nytimes.com/2025/10/20/nyregion/abandoned-baby-penn-station.html
+
 **Voices From a Nationwide Day of Protest Against Trump**\
 `Participants reflect on the “No Kings” demonstrations across the country.`\
 https://nytimes.com/2025/10/20/opinion/letters/no-kings-protests-trump.html
