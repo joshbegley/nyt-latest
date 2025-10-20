@@ -1,40 +1,40 @@
-**Dyche close to agreeing long-term contract to become Forest head coach**\
-`Dyche's Premier League experience, having overseen nearly seven seasons with Burnley and two years at Everton, is considered important for F`\
-https://nytimes.com/athletic/6732582/2025/10/20/sean-dyche-nottingham-forest-confirmation/
+**Raiders hit historic lows with shades of New Orleans 'Aints'**\
+`The Raiders managed just three first downs and ran only 30 offensive plays in a 31-0 loss to the Chiefs.`\
+https://nytimes.com/athletic/6732626/2025/10/20/raiders-pete-carroll-geno-smith-chiefs/
 
-**How to watch Vikings vs. Chargers: Time, TV, streaming**\
-`Find out how to watch the Minnesota Vikings play the Los Angeles Chargers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6732689/2025/10/20/vikings-vs-chargers-stream-how-to-watch-oct-23/
+**Should Ravens, John Harbaugh part ways? What history says about longtime winning coaches**\
+`Only two coaches — Don Shula and Mike Tomlin — have lasted longer with their team after their last Super Bowl win than Harbaugh has.`\
+https://nytimes.com/athletic/6732646/2025/10/20/ravens-john-harbaugh-hot-seat/
 
-**How to watch Mariners at Blue Jays: Game 7 Time, TV, streaming**\
-`Find out how to watch the Seattle Mariners play the Toronto Blue Jays, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6732682/2025/10/20/mariners-vs-blue-jays-stream-how-to-watch-oct-20/
+**Wait, the Giants led 19-0 in the fourth quarter and lost? How?**\
+`The Giants' collapse was historic in many ways, but it wasn't the Broncos' first time rallying from 19-0 entering the fourth quarter to win.`\
+https://nytimes.com/athletic/6732649/2025/10/20/giants-broncos-comeback-brian-burns/
 
-**Celtics predictions: A Jayson Tatum return in March? Defense among top 10 best?**\
-`Jay King breaks out his crystal ball to share his bold predictions for the Celtics this season.`\
-https://nytimes.com/athletic/6730856/2025/10/20/celtics-predictions-jayson-tatum-jaylen-brown/
+**Louvre Remains Closed as Police Hunt Jewel Thieves. Here’s What to Know.**\
+`A stunning heist has raised uncomfortable questions about security at the famed Paris museum.`\
+https://nytimes.com/2025/10/20/world/europe/france-louvre-jewel-heist.html
 
-**Live Updates: Websites Report Outages After Cloud Services Disruption**\
-`Amazon Web Services, a major provider of cloud services for companies, said it was working to resolve an issue that appeared to be affecting many websites.`\
-https://nytimes.com/live/2025/10/20/business/aws-down-internet-outage
+**What we learned in NFL Week 7: Colts' offense cruises, Dolphins are a disaster**\
+`Week 7 in the NFL proved no fourth-quarter lead is safe. Just ask the New York Giants.`\
+https://nytimes.com/athletic/6731913/2025/10/20/nfl-week-7-takeaways-colts-chargers-dolphins-mike-mdcaniel/
 
-**Clashes in Gaza Reveal Cease-Fire’s Fragility, With Rougher Road Ahead**\
-`A round of violence on Sunday was short-lived, but analysts expect more tensions between Israel and Palestinian militants that will put the truce under strain.`\
-https://nytimes.com/2025/10/20/world/middleeast/gaza-israel-hamas-cease-fire.html
+**With their season spiraling, the Commanders need to sit Jayden Daniels for a while**\
+`Their D is in tatters. Their best wide receivers are injured. The Commanders are flirting with disaster by playing Jayden Daniels on Monday.`\
+https://nytimes.com/athletic/6731706/2025/10/20/jayden-daniels-commanders-sit-down-bye/
 
-**The Rise of the Inflatable Chicken Resistance**\
-`While what is happening to us is as serious as a guillotine, we must harness our best humorous selves in order to keep it from falling.`\
-https://nytimes.com/2025/10/20/opinion/no-kings-protest-chicago-tactical-frivolity.html
+**'We gave that to them': Dominant Giants defense falters in fourth-quarter collapse**\
+`This wasn't the only painful loss for the Giants this season, but this one left the locker room emotional.`\
+https://nytimes.com/athletic/6732295/2025/10/20/giants-defense-collapse-broncos/
 
-**My Trouble with Robots, Part Two**\
-`Telling stories is how we make sense of life and what it means to be human.`\
-https://nytimes.com/2025/10/20/opinion/my-trouble-with-robots-part-two.html
+**From Cooper Flagg to Tyronn Lue, my fearless predictions for the 2025-26 NBA season**\
+`History-making awards? Repeat champions? What's on tap for the upcoming campaign?`\
+https://nytimes.com/athletic/6696442/2025/10/20/nba-predictions-fearless-flagg-mavs-thunder-cavs/
 
-**The Politics Behind the Redesign of New York’s Benches**\
-`Officials responsible for public seating often consider how to deter homeless people from using it. So we now have leaning benches and benches with dividers.`\
-https://nytimes.com/2025/10/20/nyregion/the-politics-behind-the-redesign-of-new-yorks-benches.html
+**Drake Maye’s rise looks real, and it could change the AFC’s complexion: Sando's Pick Six**\
+`If Maye continues to develop at this pace in his second season, the Bills will have more to worry about than the Chiefs.`\
+https://nytimes.com/athletic/6732294/2025/10/20/drake-maye-patriots-bills-afc-east/
 
-**What’s the best way to wear barrel pants?**\
-`In case you haven’t heard, it’s “the year of the barrel pants.” Our critic shares creative ways to style the latest trend.`\
-https://nytimes.com/2025/10/20/fashion/barrel-jeans-pants.html
+**The Colts' latest statement win raises a trade-deadline question: Is it time to go all-in?**\
+`The offense piled up points against the Chargers on Sunday, while the defense did enough to hold on.`\
+https://nytimes.com/athletic/6732323/2025/10/20/indianapolis-colts-chargers-win-trade-deadline/
 
