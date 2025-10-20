@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>So many upsets, so little time. What&#8217;s on your mind this week?</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6734881/2025/10/20/submit-a-question-for-stewart-mandels-college-football-mailbag-319/
+
 **Appeals Court Lifted a Block on Trump’s Deployment to Oregon**\
 `Also, the search is on for the Louvre jewel thieves. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/10/20/briefing/trump-oregon-national-guard-louvre-heist.html
@@ -33,8 +39,4 @@ https://nytimes.com/2025/10/20/us/politics/china-critical-minerals-trump-austral
 **Daniel Naroditsky, Chess Grandmaster, Dies at 29**\
 `He earned the highest title in the chess world as he built a career as an accomplished chess teacher, commentator and author.`\
 https://nytimes.com/2025/10/20/us/daniel-naroditsky-chess-grandmaster-dead.html
-
-**No Charges for Mother in Child Overboard Case**\
-`The incident, in which a girl fell from a Disney cruise ship and her father jumped in to save her, was captured on video and shared widely on social media. A prosecutor said the mother had a lapse in “proper judgment.”`\
-https://nytimes.com/2025/10/20/travel/disney-dream-cruise-overboard-case-charges.html
 

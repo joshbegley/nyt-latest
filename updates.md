@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>So many upsets, so little time. What&#8217;s on your mind this week?</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6734881/2025/10/20/submit-a-question-for-stewart-mandels-college-football-mailbag-319/
+
 **Appeals Court Lifted a Block on Trump’s Deployment to Oregon**\
 `Also, the search is on for the Louvre jewel thieves. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/10/20/briefing/trump-oregon-national-guard-louvre-heist.html
