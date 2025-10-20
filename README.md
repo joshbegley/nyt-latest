@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6731915/2025/10/19/justin-fields-benched-jets-next-
 `The Panthers are 4-3 but will have to wait on Bryce Young's status before they play the Buffalo Bills at home next week.`\
 https://nytimes.com/athletic/6731835/2025/10/19/panthers-beat-jets-jaycee-horn-defense/
 
-**Cowboys-Commanders takeaways: Dallas has big day; Jayden Daniels injured**\
+**Cowboys' offense stuns Commanders; Jayden Daniels injured: Takeaways**\
 `Prescott has gone four consecutive games with zero interceptions and three-plus touchdowns.`\
 https://nytimes.com/athletic/6731764/2025/10/19/commanders-cowboys-score-result-takeaways-nfl/
 

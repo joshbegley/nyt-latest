@@ -1,3 +1,7 @@
+**Jets coach Aaron Glenn needs a Jaxson Dart … but he needs to help himself first**\
+`For the second straight week, Glenn presided over some play-calling follies at the end of the first half and got himself and his team booed.`\
+https://nytimes.com/athletic/6731884/2025/10/19/jets-panthers-aaron-glenn/
+
 **Hungry to turn things around, Myles Garrett and Browns' defense feast on Dolphins**\
 `Playing dominant defense is the only hope Cleveland has of salvaging something of this season and changing the team's overall outlook.`\
 https://nytimes.com/athletic/6731828/2025/10/19/browns-defense-myles-garrett-dolphins/
