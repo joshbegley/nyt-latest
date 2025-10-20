@@ -1,40 +1,40 @@
-**NBA Power Rankings: The Hawks are contenders; postseason predictions for all**\
-`We're back with another season of Power Rankings, and where some teams are starting off may surprise you.`\
-https://nytimes.com/athletic/6727043/2025/10/20/nba-power-rankings-2025-2026-knicks-thunder-clippers/
+**Cowboys' defense shows up, but offense still best chance for long-term success**\
+`The Cowboys believe the "sky is the limit" for their offense and they'll need it to be elite each week to maintain their playoff hopes.`\
+https://nytimes.com/athletic/6732290/2025/10/20/cowboys-offense-points-dak-prescott-lamb-pickens/
 
-**Blue Jays one win away from preserving chase for their own October immortality**\
-`For a whole generation in Toronto, this is the closest they have come to ultimate postseason glory.`\
-https://nytimes.com/athletic/6732569/2025/10/20/blue-jays-game-7-one-win-world-series/
+**Week 7 has back-to-back 'Monday Night Football' games. Here's how to watch both**\
+`It's another NFL week sealed off by multiple "MNF" broadcasts. Both games are worth watching, and they don't overlap this time.`\
+https://nytimes.com/athletic/6726863/2025/10/20/monday-night-football-how-to-watch-lions-bucs/
 
-**Senior German General Says Europe Must Do All It Can to Help Ukraine**\
-`European democracy and rule of law are at risk, the general says, so Europe must give Ukraine whatever it can to pressure Moscow, even if Trump does not.`\
-https://nytimes.com/2025/10/20/world/europe/senior-german-general-says-europe-must-do-all-it-can-to-help-ukraine.html
+**Christian McCaffrey runs — and catches — the show for 49ers in emotional win over Falcons**\
+`The shorthanded 49ers rode McCaffrey, who accounted for 201 yards rushing and receiving, to a big victory over Atlanta Sunday night.`\
+https://nytimes.com/athletic/6732521/2025/10/20/christian-mccaffrey-49ers-falcons-snf/
 
-**Here’s Is a Partial List of Sites and Apps Affected by Outages**\
-`Major services were having issues, including WhatsApp, the official website for the British government and the payment app Venmo.`\
-https://nytimes.com/2025/10/20/business/amazon-aws-outage-down-list.html
+**Giannis Antetokounmpo, Bucks hope competitive fire helps them surprise East, NBA**\
+`Sunday's practice energy fit into the recent reports the team has given about its work in training camp.`\
+https://nytimes.com/athletic/6731171/2025/10/20/bucks-giannis-antetokounmpo-east-playoffs-nba-defense/
 
-**Restaurant Review: Baby Bistro in Los Angeles**\
-`If you go to Baby Bistro in Los Angeles looking for steak au poivre and a squidgy French onion soup, you might be disappointed.`\
-https://nytimes.com/video/dining/100000010452172/restaurant-review-baby-bistro-in-los-angeles.html
+**Without Fred Warner, 49ers' defense plays with Warner-like intensity**\
+`Among the achievements for the 49ers' young defense Sunday: Holding Bijan Robinson to 2.9 yards a carry and Drake London to four receptions.`\
+https://nytimes.com/athletic/6732509/2025/10/20/49ers-falcons-snf-defense-fred-warner/
 
-**Raiders hit historic lows with shades of New Orleans 'Aints'**\
-`The Raiders managed just three first downs and ran only 30 offensive plays in a 31-0 loss to the Chiefs.`\
-https://nytimes.com/athletic/6732626/2025/10/20/raiders-pete-carroll-geno-smith-chiefs/
+**Oscar Piastri’s ‘odd one out’ U.S. GP leaves long-time F1 2025 points leader at risk**\
+`Oscar Piastri has led the 2025 F1 championship since April. But a poor run of recent form means his place is now under major threat`\
+https://nytimes.com/athletic/6731675/2025/10/20/oscar-piastri-2025-f1-points-lead/
 
-**Should Ravens, John Harbaugh part ways? What history says about longtime winning coaches**\
-`Only two coaches — Don Shula and Mike Tomlin — have lasted longer with their team after their last Super Bowl win than Harbaugh has.`\
-https://nytimes.com/athletic/6732646/2025/10/20/ravens-john-harbaugh-hot-seat/
+**Is defense the Lakers' biggest on-court concern entering 2025-26 season?**\
+`The Lakers have new faces and unique priorities entering this season. The biggest of those priorities? Sound defense.`\
+https://nytimes.com/athletic/6731657/2025/10/20/lakers-defense-luka-doncic-lebron-james-nba/
 
-**Wait, the Giants led 19-0 in the fourth quarter and lost? How?**\
-`The Giants' collapse was historic in many ways, but it wasn't the Broncos' first time rallying from 19-0 entering the fourth quarter to win.`\
-https://nytimes.com/athletic/6732649/2025/10/20/giants-broncos-comeback-brian-burns/
+**Canadiens weekly notebook: The need for a momentum line, a uniquely draft-heavy matchup**\
+`Also this week, Noah Dobson on the role Jeff Gorton and Kent Hughes played, or didn't play, in his decision to come to Montreal.`\
+https://nytimes.com/athletic/6732487/2025/10/20/canadiens-weekly-notebook-momentum-line/
 
-**The Dolphins are in a pickle with Tua Tagovailoa. The Jaguars and Cardinals could be next**\
-`Tagovailoa, Trevor Lawrence and Kyler Murray are guaranteed a combined $131 million in 2026. What can their teams do about it?`\
-https://nytimes.com/athletic/6732634/2025/10/20/tua-tagovailoa-contract-trevor-lawrence-kyler-murray/
+**Think it's easy to build Team Canada? Gretzky, Yzerman on the pressure of being a superteam's GM**\
+`With the ability to put a superstar at each position, Yzerman says, "If you don’t win, you didn’t pick the right team."`\
+https://nytimes.com/athletic/6730489/2025/10/20/canada-olympic-gm-gretzky-yzerman-armstrong/
 
-**Louvre Remains Closed as Police Hunt Jewel Thieves. Here’s What to Know.**\
-`A stunning heist has raised uncomfortable questions about security at the famed Paris museum.`\
-https://nytimes.com/2025/10/20/world/europe/france-louvre-jewel-heist.html
+**New York Rangers 'momentum line' is creating chaos on every shift**\
+`Sam Carrick and ‘the towers’ 6-foot-7 Adam Edström and 6-foot-9 Matt Rempe have created chaos for the Rangers.`\
+https://nytimes.com/athletic/6728574/2025/10/20/new-york-rangers-momentum-line/
 
