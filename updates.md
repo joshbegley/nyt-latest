@@ -1,3 +1,7 @@
+**Sean Combs Will Appeal His Conviction and Prison Sentence**\
+`The mogul’s defense team notified the appellate court that it will challenge the jury’s verdict on prostitution-related charges and the four-year prison term he received.`\
+https://nytimes.com/2025/10/20/arts/music/sean-combs-diddy-appeal-conviction-sentence.html
+
 **Where’s the Beef? Trump Hopes Argentina Can Help Bring Down Meat Prices.**\
 `President Trump’s plan to import red meat runs counter to his philosophy of increasing domestic production, and has angered cattle ranchers in the United States.`\
 https://nytimes.com/2025/10/20/us/politics/trump-argentina-beef.html

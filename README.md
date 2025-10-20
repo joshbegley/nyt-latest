@@ -1,3 +1,11 @@
+**How the Louvre Thieves Did It**\
+`My colleagues explain how the brazen daytime jewel heist at the Louvre happened and why.`\
+https://nytimes.com/2025/10/20/world/louvre-thieves-gaza-kushner.html
+
+**Man Is Arrested After Threatening to Open Fire at Atlanta Airport, Police Say**\
+`The man, Billy Cagle, 49, was arrested after family members told the police that he was headed to the airport, “in their words, ‘to shoot it up,’” Atlanta’s police chief said.`\
+https://nytimes.com/2025/10/20/us/atlanta-airport-shooting-threat-arrest.html
+
 **Sean Combs Will Appeal His Conviction and Prison Sentence**\
 `The mogul’s defense team notified the appellate court that it will challenge the jury’s verdict on prostitution-related charges and the four-year prison term he received.`\
 https://nytimes.com/2025/10/20/arts/music/sean-combs-diddy-appeal-conviction-sentence.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6734093/2025/10/20/russell-westbrook-lebron-lakers-
 **Watch These Six Heist Movies**\
 `If you thought that heist at the Louvre sounded like something out of a movie, this collection of heist films just might be for you.`\
 https://nytimes.com/2025/10/20/movies/heist-movies-streaming.html
-
-**NCAA president Baker restates case for tournament expansion: Snubs 'bummed me out'**\
-`Ultimately it is the NCAA’s college basketball committee that will decide on whether, how and by how much to expand the field.`\
-https://nytimes.com/athletic/6734602/2025/10/20/charlie-baker-ncaa-basketball-tournament-expansion/
-
-**The Santos Commutation Is No Joke**\
-`More than any other presidential actions, clemencies tell us who presidents are.`\
-https://nytimes.com/2025/10/20/opinion/george-santos-trump-pardon.html
 
