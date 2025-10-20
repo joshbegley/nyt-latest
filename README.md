@@ -1,3 +1,7 @@
+**Chargers defense must improve or season is going to slip away: 'We looked like trash'**\
+`Derwin James: “We haven’t been ourselves on defense, starting with myself as a captain. We got to get it fixed.”`\
+https://nytimes.com/athletic/6732245/2025/10/19/chargers-defense-loss-colts/
+
 **Mariners-Blue Jays Game 6 takeaways: Toronto forces winner-take-all Game 7**\
 `It'll be the Blue Jays' first Game 7 in 40 years and the Mariners' first ever. The winner takes on the Dodgers in the World Series.`\
 https://nytimes.com/athletic/6731944/2025/10/19/mariners-blue-jays-game-6-score-result-alcs-playoff-mlb/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/19/world/asia/emirates-hong-kong-cargo-plane.html
 **Carson Wentz's mistakes vs. Eagles show why Vikings must get healthy J.J. McCarthy back**\
 `Wentz completed 26 of 42 passes for 313 yards and two interceptions on Sunday. When McCarthy gets healthy, it's time to see what he can do.`\
 https://nytimes.com/athletic/6731942/2025/10/19/vikings-eagles-carson-wentz-jj-mccarthy/
-
-**Buying a Vintage Watch Isn’t as Daunting as It Might Seem**\
-`Experts say that thinking through your preferences and then checking out the market can lead to the watch of your dreams.`\
-https://nytimes.com/2025/10/19/fashion/vintage-wristwatches.html
 
