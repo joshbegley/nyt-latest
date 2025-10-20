@@ -1,3 +1,11 @@
+**FPL Gameweek 8 Review: Mateta caution, a new £4.5m gem and time's ticking for Salah**\
+`Abdul Rehman breaks down the main FPL talking points from Gameweek 8 so far`\
+https://nytimes.com/athletic/6731065/2025/10/20/fantasy-premier-league-gw8-mateta-salah/
+
+**The Pulse: A glorious Game 7 awaits**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6732200/2025/10/20/blue-jays-mariners-game-7-the-pulse/
+
 **What to Know About Diwali, the Hindu Festival of Lights**\
 `The biggest public holiday in India, Diwali features prayers for prosperity and good fortune — and lots of sweets.`\
 https://nytimes.com/article/diwali-india-festival-lights.html

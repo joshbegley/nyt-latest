@@ -1,3 +1,11 @@
+**FPL Gameweek 8 Review: Mateta caution, a new £4.5m gem and time's ticking for Salah**\
+`Abdul Rehman breaks down the main FPL talking points from Gameweek 8 so far`\
+https://nytimes.com/athletic/6731065/2025/10/20/fantasy-premier-league-gw8-mateta-salah/
+
+**The Pulse: A glorious Game 7 awaits**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6732200/2025/10/20/blue-jays-mariners-game-7-the-pulse/
+
 **What to Know About Diwali, the Hindu Festival of Lights**\
 `The biggest public holiday in India, Diwali features prayers for prosperity and good fortune — and lots of sweets.`\
 https://nytimes.com/article/diwali-india-festival-lights.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6731909/2025/10/20/browns-dolphins-kevin-stefanski-
 **Why Stolarz's criticism could be good for the Leafs: Monday Morning Leafs Report**\
 `It's been a long time since someone involved with the Leafs got quite so blunt publicly.`\
 https://nytimes.com/athletic/6730787/2025/10/20/maple-leafs-anthony-stolarz-criticism-lineup/
-
-**United's Lammens stresses importance of 'shutting external noise out'**\
-`The 23-year-old kept a clean sheet in the victory at home to Sunderland and impressed in Sunday's victory at Liverpool.`\
-https://nytimes.com/athletic/6732741/2025/10/20/lammens-manchester-united-goalkeeper/
-
-**Which college basketball coaches are under pressure? Hubert Davis, Adrian Autry and more**\
-`In our preseason staff survey, "pressure" meant different things to different people.`\
-https://nytimes.com/athletic/6726284/2025/10/20/college-basketball-hot-seat-hubert-davis-adrian-autry/
 
