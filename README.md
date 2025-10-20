@@ -1,3 +1,7 @@
+**OpenEvidence Raises $200 Million for a ChatGPT for Medicine**\
+`The three-year-old artificial intelligence start-up has drawn investor attention, and money, as its use among doctors, nurses and others skyrockets.`\
+https://nytimes.com/2025/10/20/business/dealbook/openevidence-fundraising-chatgpt-medicine.html
+
 **FPL Gameweek 8 Review: Mateta caution, a new £4.5m gem and time's ticking for Salah**\
 `Abdul Rehman breaks down the main FPL talking points from Gameweek 8 so far`\
 https://nytimes.com/athletic/6731065/2025/10/20/fantasy-premier-league-gw8-mateta-salah/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6731146/2025/10/20/angels-bo-porter-managerial-vaca
 **Kevin Stefanski, Browns found pulse in a game between desperate teams searching for one**\
 `The Dolphins arrived just in time for Stefanski, who has endured a turbulent couple of weeks. But, no, he hasn't forgotten how to coach. `\
 https://nytimes.com/athletic/6731909/2025/10/20/browns-dolphins-kevin-stefanski-dillon-gabriel/
-
-**Why Stolarz's criticism could be good for the Leafs: Monday Morning Leafs Report**\
-`It's been a long time since someone involved with the Leafs got quite so blunt publicly.`\
-https://nytimes.com/athletic/6730787/2025/10/20/maple-leafs-anthony-stolarz-criticism-lineup/
 
