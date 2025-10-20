@@ -1,3 +1,7 @@
+**World Series opportunity knocks, but Mariners can’t break down the door in Game 6**\
+`The Mariners now get one final chance this season to advance to win the first American League pennant in World Series history. `\
+https://nytimes.com/athletic/6732566/2025/10/20/seattle-mariners-world-series-alcs/
+
 **What Is Amazon Web Services?**\
 `The cloud-computing division of the internet giant is used by thousands of internet customers, many of whom reported disruptions on Monday.`\
 https://nytimes.com/2025/10/20/business/amazon-web-services-aws-down-what.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6732509/2025/10/20/49ers-falcons-snf-defense-fred-w
 **Oscar Piastri’s ‘odd one out’ U.S. GP leaves long-time F1 2025 points leader at risk**\
 `Oscar Piastri has led the 2025 F1 championship since April. But a poor run of recent form means his place is now under major threat`\
 https://nytimes.com/athletic/6731675/2025/10/20/oscar-piastri-2025-f1-points-lead/
-
-**Is defense the Lakers' biggest on-court concern entering 2025-26 season?**\
-`The Lakers have new faces and unique priorities entering this season. The biggest of those priorities? Sound defense.`\
-https://nytimes.com/athletic/6731657/2025/10/20/lakers-defense-luka-doncic-lebron-james-nba/
 

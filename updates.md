@@ -1,3 +1,7 @@
+**World Series opportunity knocks, but Mariners can’t break down the door in Game 6**\
+`The Mariners now get one final chance this season to advance to win the first American League pennant in World Series history. `\
+https://nytimes.com/athletic/6732566/2025/10/20/seattle-mariners-world-series-alcs/
+
 **What Is Amazon Web Services?**\
 `The cloud-computing division of the internet giant is used by thousands of internet customers, many of whom reported disruptions on Monday.`\
 https://nytimes.com/2025/10/20/business/amazon-web-services-aws-down-what.html
