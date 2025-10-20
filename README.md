@@ -1,3 +1,35 @@
+**How to watch Texas A&M vs. LSU: Time, TV, streaming**\
+`Find out how to watch the Texas A&M Aggies play the LSU Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6735162/2025/10/20/texas-a-m-vs-lsu-stream-how-to-watch-oct-25/
+
+**How to watch Oklahoma State vs. Texas Tech: Time, TV, streaming**\
+`Find out how to watch the Oklahoma State Cowboys play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6735156/2025/10/20/oklahoma-state-vs-texas-tech-stream-how-to-watch-oct-25/
+
+**How to watch Wisconsin vs. Oregon: Time, TV, streaming**\
+`Find out how to watch the Wisconsin Badgers play the Oregon Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6735154/2025/10/20/wisconsin-vs-oregon-stream-how-to-watch-oct-25/
+
+**How to watch Texas vs. Mississippi State: Time, TV, streaming**\
+`Find out how to watch the Texas Longhorns play the Mississippi State Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6735152/2025/10/20/texas-vs-mississippi-state-stream-how-to-watch-oct-25/
+
+**How to watch Boston College vs. Louisville: Time, TV, streaming**\
+`Find out how to watch the Boston College Eagles play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6735150/2025/10/20/boston-college-vs-louisville-stream-how-to-watch-oct-25/
+
+**How to watch Michigan vs. Michigan State: Time, TV, streaming**\
+`Find out how to watch the Michigan Wolverines play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6735146/2025/10/20/michigan-vs-michigan-state-stream-how-to-watch-oct-25/
+
+**How to watch Stanford vs. Miami (FL): Time, TV, streaming**\
+`Find out how to watch the Stanford Cardinal play the Miami (FL) Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6735135/2025/10/20/stanford-vs-miami-fl-stream-how-to-watch-oct-25/
+
+**How to watch Baylor vs. Cincinnati: Time, TV, streaming**\
+`Find out how to watch the Baylor Bears play the Cincinnati Bearcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6735129/2025/10/20/baylor-vs-cincinnati-stream-how-to-watch-oct-25/
+
 **10 Hurt, One Critically, After Truck Hits Van Parked Near Penn Station**\
 `The chain-reaction crash, in one of New York City’s most pedestrian-heavy areas, unfolded as afternoon commuters made their way to the busy transit hub.`\
 https://nytimes.com/2025/10/20/nyregion/midtown-crash-truck-van-injured.html
@@ -5,36 +37,4 @@ https://nytimes.com/2025/10/20/nyregion/midtown-crash-truck-van-injured.html
 **White House Demolishes Facade of East Wing to Build Trump’s Ballroom**\
 `The planned 90,000-square-foot ballroom now under construction off the back of the East Wing is nearly double the square footage of the White House residence. Its renovation is one of the largest there in decades.`\
 https://nytimes.com/video/us/politics/100000010470665/white-house-demolition-ballroom.html
-
-**Congressional Democrats Investigate Arrests of Americans During Raids**\
-`Representative Robert Garcia and Senator Richard Blumenthal started an inquiry to examine reports of misconduct by immigration agents, focusing on the arrests of citizens.`\
-https://nytimes.com/2025/10/20/us/investigation-arrests-of-americans-ice-raids.html
-
-**Leaked Wedding Video Tarnishes Hard-Line Iranian Official**\
-`Rear Adm. Ali Shamkhani oversaw a brutal crackdown on women, but traditional notions of Islamic morality were little on display at his daughter’s wedding.`\
-https://nytimes.com/2025/10/20/world/middleeast/iran-wedding-video.html
-
-**Cable Used in Deadly Funicular Crash in Lisbon Not Cleared for Public Transport**\
-`A preliminary report on the accident, which killed 16, said an incorrect cable was being used for the funicular, but that it was not yet possible to know how that figured in the crash.`\
-https://nytimes.com/2025/10/20/world/europe/lisbon-funicular-crash-report.html
-
-**Falcons QB Michael Penix Jr. 'day to day' with bone bruise**\
-`Penix was briefly evaluated during Sunday night's game but didn't miss an offensive snap in the 20-10 loss to San Francisco.`\
-https://nytimes.com/athletic/6735017/2025/10/20/falcons-qb-michael-penix-jr-bone-bruise/
-
-**All but 2 Universities Decline a Trump Offer of Preferential Funding**\
-`One of the two, Vanderbilt University, signaled it had reservations.`\
-https://nytimes.com/2025/10/20/us/politics/universities-funding-compact.html
-
-**Air Traffic Controllers Could Soon Be Getting No Pay**\
-`Controllers have already received one reduced check, because the shutdown began in the middle of a pay period. The next pay date, Oct. 28, will be the first fully missed paycheck.`\
-https://nytimes.com/2025/10/20/us/politics/shutdown-air-traffic-controllers-pay.html
-
-**49ers minutia minute: Bryce Huff injury leaves team especially thin on the edge**\
-`Huff will miss a game or two, while quarterback Brock Purdy is "a reach" to return from his toe injury in Week 8.`\
-https://nytimes.com/athletic/6734704/2025/10/20/49ers-bryce-huff-injury-brock-purdy/
-
-**Justice Department Scrutinizes a Trip Fani Willis Took to the Bahamas**\
-`President Trump has said that Ms. Willis, the prosecutor who brought election interference charges against him two years ago in Georgia, “should be prosecuted.”`\
-https://nytimes.com/2025/10/20/us/fani-willis-trump-justice-department-investigation.html
 
