@@ -1,3 +1,15 @@
+**'Sometimes guys get fiery': Maple Leafs want to move on from Anthony Stolarz's blunt criticism**\
+`The Leafs are moving on, and moving on to a crucial game against the New Jersey Devils on Tuesday.`\
+https://nytimes.com/athletic/6733962/2025/10/20/maple-leafs-anthony-stolarz-blunt-criticism/
+
+**Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
+`Whether it’s trade ideas, the Olympics, recent re-signings or league politics, we want to know. Drop your questions here.`\
+https://nytimes.com/athletic/6734255/2025/10/20/nhl-mailbag-trades-olympics-re-signings/
+
+**Florida AD: 'Time is an asset' as search to replace Billy Napier begins**\
+`Florida athletic director Scott Stricklin spoke Monday about the decision to fire coach Billy Napier and where the program is headed.`\
+https://nytimes.com/athletic/6734165/2025/10/20/florida-coaching-search-billy-napier-fired-scott-stricklin/
+
 **Gaza Operations of Much-Criticized U.S. Aid Group Unravel**\
 `The Gaza Humanitarian Foundation has suspended its aid operations because of the cease-fire, but it is also running low on funds and faces logistical obstacles to resuming its work.`\
 https://nytimes.com/2025/10/20/world/middleeast/gaza-humanitarian-foundation.html

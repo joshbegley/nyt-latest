@@ -1,3 +1,15 @@
+**'Sometimes guys get fiery': Maple Leafs want to move on from Anthony Stolarz's blunt criticism**\
+`The Leafs are moving on, and moving on to a crucial game against the New Jersey Devils on Tuesday.`\
+https://nytimes.com/athletic/6733962/2025/10/20/maple-leafs-anthony-stolarz-blunt-criticism/
+
+**Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
+`Whether it’s trade ideas, the Olympics, recent re-signings or league politics, we want to know. Drop your questions here.`\
+https://nytimes.com/athletic/6734255/2025/10/20/nhl-mailbag-trades-olympics-re-signings/
+
+**Florida AD: 'Time is an asset' as search to replace Billy Napier begins**\
+`Florida athletic director Scott Stricklin spoke Monday about the decision to fire coach Billy Napier and where the program is headed.`\
+https://nytimes.com/athletic/6734165/2025/10/20/florida-coaching-search-billy-napier-fired-scott-stricklin/
+
 **Gaza Operations of Much-Criticized U.S. Aid Group Unravel**\
 `The Gaza Humanitarian Foundation has suspended its aid operations because of the cease-fire, but it is also running low on funds and faces logistical obstacles to resuming its work.`\
 https://nytimes.com/2025/10/20/world/middleeast/gaza-humanitarian-foundation.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6734091/2025/10/20/nico-gonzalez-guardiola-rodri-bu
 **Brad Marchand on Rasmus Dahlin's helmet: 'Either throw it or I rip it'**\
 `“It was either throw it or I rip it. I ripped it,” said Marchand. “Probably should have just put it down. Next time.”`\
 https://nytimes.com/athletic/6734083/2025/10/20/brad-marchand-rasmus-dahlins-helmet-panthers-sabres/
-
-**Churchill Plus the Windsors? Andrew Morton Spills Rewarmed Tea.**\
-`In “Winston and the Windsors,” the prolific biographer Andrew Morton, perhaps inevitably, tackles two British behemoths.`\
-https://nytimes.com/2025/10/20/books/review/winston-and-the-windsors-andrew-morton.html
-
-**Officials Move to Close Cannabis Company That Allowed Unlicensed Production**\
-`The license for Omnium Health could be revoked after an investigation found that it let other companies use its facilities in an illegal arrangement.`\
-https://nytimes.com/2025/10/20/nyregion/cannabis-omnium.html
-
-**Scoop City: Risers and fallers after Sunday of Week 7**\
-`Trending up after Week 7, including Jonathan Taylor's MVP odds, plus key matchups for tonight's quarterbacks. `\
-https://nytimes.com/athletic/6733940/2025/10/20/week-7-risers-fallers-nfl-colts-chiefs-dolphins-scoop-city/
 
