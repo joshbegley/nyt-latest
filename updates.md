@@ -1,4 +1,8 @@
 **Many Websites Report Outages After Amazon Web Services Disruption**\
+`Amazon Web Services, a major provider of cloud services for companies, said it was working to resolve an issue that appeared to be affecting websites.`\
+https://nytimes.com/2025/10/20/business/aws-down-internet-outage.html
+
+**Many Websites Report Outages After Amazon Web Services Disruption**\
 `Amazon Web Services, a major provider of cloud services for companies, said it was working to resolve an issue that appeared to be affecting of websites.`\
 https://nytimes.com/2025/10/20/business/aws-down-internet-outage.html
 
