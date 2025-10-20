@@ -1,3 +1,15 @@
+**Leaked Wedding Video Tarnishes Hard-Line Iranian Official**\
+`Rear Adm. Ali Shamkhani oversaw a brutal crackdown on women, but traditional notions of Islamic morality were little on display at his daughter’s wedding.`\
+https://nytimes.com/2025/10/20/world/middleeast/iran-wedding-video.html
+
+**Cable Used in Deadly Funicular Crash in Lisbon Not Cleared for Public Transport**\
+`A preliminary report on the accident, which killed 16, said an incorrect cable was being used for the funicular, but that it was not yet possible to know how that figured in the crash.`\
+https://nytimes.com/2025/10/20/world/europe/lisbon-funicular-crash-report.html
+
+**Falcons QB Michael Penix Jr. 'day to day' with bone bruise**\
+`Penix was briefly evaluated during Sunday night's game but didn't miss an offensive snap in the 20-10 loss to San Francisco.`\
+https://nytimes.com/athletic/6735017/2025/10/20/falcons-qb-michael-penix-jr-bone-bruise/
+
 **All but 2 Universities Decline a Trump Offer of Preferential Funding**\
 `One of the two, Vanderbilt University, signaled it had reservations.`\
 https://nytimes.com/2025/10/20/us/politics/universities-funding-compact.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/20/us/politics/elections-california-new-jersey-nyc.h
 **Roberta Alexander, Widely Acclaimed Soprano, Dies at 76**\
 `An African American who spent much of her career based in the Netherlands, she said her race was less of a factor in Europe when being considered for a wide variety of opera roles.`\
 https://nytimes.com/2025/10/20/arts/music/roberta-alexander-dead.html
-
-**Appeals Court Weighs Whether Alina Habba Is a Lawful U.S. Attorney**\
-`President Trump installed his former personal lawyer as the top federal prosecutor in New Jersey. A legal challenge could clarify the limits of his power to keep U.S. attorneys in office without Senate involvement.`\
-https://nytimes.com/2025/10/20/nyregion/alina-habba-us-attorney-hearing.html
-
-**White House Scrambles to Preserve Gaza Deal Amid Concerns About Netanyahu**\
-`The Trump administration strategy is to try to keep Prime Minister Benjamin Netanyahu of Israel from resuming an all-out assault against Hamas, U.S. officials said.`\
-https://nytimes.com/2025/10/20/us/politics/trump-gaza-israel-netanyahu.html
-
-**Man Who Fled to Europe Gets at Least 5 Years for Rape, Prosecutors Say**\
-`A judge in Utah said that statements from women indicated that Nicholas Rossi, 38, was a “serial abuser of women.” He faces sentencing in another rape case next month.`\
-https://nytimes.com/2025/10/20/us/nicholas-rossi-fugitive-rape-sentencing.html
 

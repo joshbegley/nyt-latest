@@ -1,3 +1,7 @@
+**All but 2 Universities Decline a Trump Offer of Preferential Funding**\
+`One of the two, Vanderbilt University, signaled it had reservations.`\
+https://nytimes.com/2025/10/20/us/politics/universities-funding-compact.html
+
 **Air Traffic Controllers Could Soon Be Getting No Pay**\
 `Controllers have already received one reduced check, because the shutdown began in the middle of a pay period. The next pay date, Oct. 28, will be the first fully missed paycheck.`\
 https://nytimes.com/2025/10/20/us/politics/shutdown-air-traffic-controllers-pay.html

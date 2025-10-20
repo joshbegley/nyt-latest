@@ -1,3 +1,7 @@
+**All but 2 Universities Decline a Trump Offer of Preferential Funding**\
+`One of the two, Vanderbilt University, signaled it had reservations.`\
+https://nytimes.com/2025/10/20/us/politics/universities-funding-compact.html
+
 **Air Traffic Controllers Could Soon Be Getting No Pay**\
 `Controllers have already received one reduced check, because the shutdown began in the middle of a pay period. The next pay date, Oct. 28, will be the first fully missed paycheck.`\
 https://nytimes.com/2025/10/20/us/politics/shutdown-air-traffic-controllers-pay.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/20/us/politics/trump-gaza-israel-netanyahu.html
 **Man Who Fled to Europe Gets at Least 5 Years for Rape, Prosecutors Say**\
 `A judge in Utah said that statements from women indicated that Nicholas Rossi, 38, was a “serial abuser of women.” He faces sentencing in another rape case next month.`\
 https://nytimes.com/2025/10/20/us/nicholas-rossi-fugitive-rape-sentencing.html
-
-**With SpaceX Behind Schedule, NASA Will Seek More Moon Lander Ideas**\
-`Blue Origin, owned by Jeff Bezos, and Lockheed Martin are among the contractors that may compete with Elon Musk’s company in the race back to the lunar surface.`\
-https://nytimes.com/2025/10/20/science/nasa-moon-lander-spacex.html
 
