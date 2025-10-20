@@ -1,3 +1,19 @@
+**Air Traffic Controllers Could Soon Be Getting No Pay**\
+`Controllers have already received one reduced check, because the shutdown began in the middle of a pay period. The next pay date, Oct. 28, will be the first fully missed paycheck.`\
+https://nytimes.com/2025/10/20/us/politics/shutdown-air-traffic-controllers-pay.html
+
+**49ers minutia minute: Bryce Huff injury leaves team especially thin on the edge**\
+`Huff will miss a game or two, while quarterback Brock Purdy is "a reach" to return from his toe injury in Week 8.`\
+https://nytimes.com/athletic/6734704/2025/10/20/49ers-bryce-huff-injury-brock-purdy/
+
+**Justice Department Scrutinizes a Trip Fani Willis Took to the Bahamas**\
+`President Trump has said that Ms. Willis, the prosecutor who brought election interference charges against him two years ago in Georgia, “should be prosecuted.”`\
+https://nytimes.com/2025/10/20/us/fani-willis-trump-justice-department-investigation.html
+
+**NFL suspends Broncos LB Dre Greenlaw one game for conduct toward referee**\
+`Greenlaw has played in only one game this season, playing 21 snaps and recording six tackles.`\
+https://nytimes.com/athletic/6734960/2025/10/20/nfl-suspends-dre-greenlaw-broncos/
+
 **Your November Election Guide (Yes, This November)**\
 `It’s not a presidential election year, or even the midterms, but races this fall will offer a sense of voters’ moods in the first year of the new Trump administration.`\
 https://nytimes.com/2025/10/20/us/politics/elections-california-new-jersey-nyc.html

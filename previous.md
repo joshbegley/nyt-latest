@@ -1,3 +1,19 @@
+**Air Traffic Controllers Could Soon Be Getting No Pay**\
+`Controllers have already received one reduced check, because the shutdown began in the middle of a pay period. The next pay date, Oct. 28, will be the first fully missed paycheck.`\
+https://nytimes.com/2025/10/20/us/politics/shutdown-air-traffic-controllers-pay.html
+
+**49ers minutia minute: Bryce Huff injury leaves team especially thin on the edge**\
+`Huff will miss a game or two, while quarterback Brock Purdy is "a reach" to return from his toe injury in Week 8.`\
+https://nytimes.com/athletic/6734704/2025/10/20/49ers-bryce-huff-injury-brock-purdy/
+
+**Justice Department Scrutinizes a Trip Fani Willis Took to the Bahamas**\
+`President Trump has said that Ms. Willis, the prosecutor who brought election interference charges against him two years ago in Georgia, “should be prosecuted.”`\
+https://nytimes.com/2025/10/20/us/fani-willis-trump-justice-department-investigation.html
+
+**NFL suspends Broncos LB Dre Greenlaw one game for conduct toward referee**\
+`Greenlaw has played in only one game this season, playing 21 snaps and recording six tackles.`\
+https://nytimes.com/athletic/6734960/2025/10/20/nfl-suspends-dre-greenlaw-broncos/
+
 **Your November Election Guide (Yes, This November)**\
 `It’s not a presidential election year, or even the midterms, but races this fall will offer a sense of voters’ moods in the first year of the new Trump administration.`\
 https://nytimes.com/2025/10/20/us/politics/elections-california-new-jersey-nyc.html
@@ -21,22 +37,4 @@ https://nytimes.com/2025/10/20/us/nicholas-rossi-fugitive-rape-sentencing.html
 **With SpaceX Behind Schedule, NASA Will Seek More Moon Lander Ideas**\
 `Blue Origin, owned by Jeff Bezos, and Lockheed Martin are among the contractors that may compete with Elon Musk’s company in the race back to the lunar surface.`\
 https://nytimes.com/2025/10/20/science/nasa-moon-lander-spacex.html
-
-**Trump’s Lust for Desecration**\
-`A perverse delight in degradation has always coursed through MAGA circles.`\
-https://nytimes.com/2025/10/20/opinion/trump-degredation-maga.html
-
-**Comey Attacks Charges as Vindictive and Prosecutor as Improperly Named**\
-`Motions by lawyers for the former F.B.I. director, James B. Comey, sought to dismiss the case in a two-front assault.`\
-https://nytimes.com/2025/10/20/us/politics/james-comey-lawyers-charges.html
-
-**Weekly Student News Quiz: Gen Z Protests, Instagram, W.N.B.A.**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2025/10/20/learning/21StudentNewsQuiz.html
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>So many upsets, so little time. What&#8217;s on your mind this week?</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6734881/2025/10/20/submit-a-question-for-stewart-mandels-college-football-mailbag-319/
 
