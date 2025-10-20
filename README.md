@@ -1,4 +1,4 @@
-**'Sometimes guys get fiery': Maple Leafs want to move on from Anthony Stolarz's blunt criticism**\
+**'Sometimes guys get fiery': Maple Leafs want to move on from Anthony Stolarz's criticism**\
 `The Leafs are moving on, and moving on to a crucial game against the New Jersey Devils on Tuesday.`\
 https://nytimes.com/athletic/6733962/2025/10/20/maple-leafs-anthony-stolarz-blunt-criticism/
 
