@@ -1,3 +1,11 @@
+**Leon Draisaitl says it's on him to spark the Oilers' offence. Should it be?**\
+`"I just have to take a look in the mirror and figure out something to be better," Draisaitl said. The Oilers lost to the Red Wings 4-2.`\
+https://nytimes.com/athletic/6731911/2025/10/19/oilers-loss-red-wings-offence-leon-draisaitl/
+
+**The Need for a Watch Strap Inspired a Business**\
+`Howard Riady bought a vintage watch with a worn strap in 2014. Three years later, he founded Veblenist, which specializes in unusual materials.`\
+https://nytimes.com/2025/10/19/fashion/watch-strap-veblenist-chicago.html
+
 **Jets coach Aaron Glenn needs a Jaxson Dart … but he needs to help himself first**\
 `For the second straight week, Glenn presided over some play-calling follies at the end of the first half and got himself and his team booed.`\
 https://nytimes.com/athletic/6731884/2025/10/19/jets-panthers-aaron-glenn/
@@ -18,7 +26,7 @@ https://nytimes.com/athletic/6731915/2025/10/19/justin-fields-benched-jets-next-
 `The Panthers are 4-3 but will have to wait on Bryce Young's status before they play the Buffalo Bills at home next week.`\
 https://nytimes.com/athletic/6731835/2025/10/19/panthers-beat-jets-jaycee-horn-defense/
 
-**Cowboys-Commanders takeaways: Dallas has big day; Jayden Daniels injured**\
+**Cowboys' offense stuns Commanders; Jayden Daniels injured: Takeaways**\
 `Prescott has gone four consecutive games with zero interceptions and three-plus touchdowns.`\
 https://nytimes.com/athletic/6731764/2025/10/19/commanders-cowboys-score-result-takeaways-nfl/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6731760/2025/10/19/packers-cardinals-score-result-t
 **Bears defense puts on a show against Saints: 'It was pretty special'**\
 `The Bears lead the NFL in takeaways and have forced at least three turnovers in each game of their current four-game winning streak.`\
 https://nytimes.com/athletic/6731776/2025/10/19/bears-defense-dominates-saints/
-
-**Colts-Chargers takeaways: Jonathan Taylor, Daniel Jones torch L.A. defense**\
-`Colts win third straight and improve to 6-1, taking advantage of a porous Chargers defense and two Justin Herbert interceptions.`\
-https://nytimes.com/athletic/6731797/2025/10/19/colts-chargers-score-result-takeaways-nfl/
-
-**Giants-Broncos takeaways: Broncos overcome 19-point fourth-quarter deficit**\
-`Jaxson Dart throws three touchdown passes but the Broncos mount improbable rally.`\
-https://nytimes.com/athletic/6730755/2025/10/19/giants-broncos-score-result-takeaways-nfl/
 

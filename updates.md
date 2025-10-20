@@ -1,3 +1,15 @@
+**Leon Draisaitl says it's on him to spark the Oilers' offence. Should it be?**\
+`"I just have to take a look in the mirror and figure out something to be better," Draisaitl said. The Oilers lost to the Red Wings 4-2.`\
+https://nytimes.com/athletic/6731911/2025/10/19/oilers-loss-red-wings-offence-leon-draisaitl/
+
+**The Need for a Watch Strap Inspired a Business**\
+`Howard Riady bought a vintage watch with a worn strap in 2014. Three years later, he founded Veblenist, which specializes in unusual materials.`\
+https://nytimes.com/2025/10/19/fashion/watch-strap-veblenist-chicago.html
+
+**Cowboys' offense stuns Commanders; Jayden Daniels injured: Takeaways**\
+`Prescott has gone four consecutive games with zero interceptions and three-plus touchdowns.`\
+https://nytimes.com/athletic/6731764/2025/10/19/commanders-cowboys-score-result-takeaways-nfl/
+
 **Jets coach Aaron Glenn needs a Jaxson Dart … but he needs to help himself first**\
 `For the second straight week, Glenn presided over some play-calling follies at the end of the first half and got himself and his team booed.`\
 https://nytimes.com/athletic/6731884/2025/10/19/jets-panthers-aaron-glenn/
