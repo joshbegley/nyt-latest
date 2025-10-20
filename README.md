@@ -3,7 +3,7 @@
 https://nytimes.com/video/world/asia/100000010468598/emirates-hong-kong-cargo-plane.html
 
 **Many Websites Report Outages After Amazon Web Services Disruption**\
-`Amazon Web Services, a major provider of cloud services for companies, said it was working to resolve an issue that appeared to be affecting of websites.`\
+`Amazon Web Services, a major provider of cloud services for companies, said it was working to resolve an issue that appeared to be affecting websites.`\
 https://nytimes.com/2025/10/20/business/aws-down-internet-outage.html
 
 **A Rare Earths Alternative to China? Australia Eyes Timely Pitch to Trump**\
