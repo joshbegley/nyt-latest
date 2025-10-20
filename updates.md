@@ -1,3 +1,7 @@
+**Carson Wentz's mistakes vs. Eagles show why Vikings must get healthy J.J. McCarthy back**\
+`Wentz completed 26 of 42 passes for 313 yards and two interceptions on Sunday. When McCarthy gets healthy, it's time to see what he can do.`\
+https://nytimes.com/athletic/6731942/2025/10/19/vikings-eagles-carson-wentz-jj-mccarthy/
+
 **Buying a Vintage Watch Isn’t as Daunting as It Might Seem**\
 `Experts say that thinking through your preferences and then checking out the market can lead to the watch of your dreams.`\
 https://nytimes.com/2025/10/19/fashion/vintage-wristwatches.html
