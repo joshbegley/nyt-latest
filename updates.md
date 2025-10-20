@@ -1,3 +1,7 @@
+**George Santos and Trump’s Theory of Mercy**\
+`More than any other presidential actions, clemencies tell us who presidents are.`\
+https://nytimes.com/2025/10/20/opinion/george-santos-trump-pardon.html
+
 **On a Terrace in Milan, a Gathering of Creative Expats**\
 `Having adopted the Italian city as her home, the German-born fashion designer Tina Lutz Morris threw a housewarming party filled with others who’ve done the same.`\
 https://nytimes.com/2025/10/20/t-magazine/tina-lutz-morris-milan.html
