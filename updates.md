@@ -1,3 +1,7 @@
+**Appeals Court Weighs Whether Alina Habba Is a Lawful U.S. Attorney**\
+`President Trump installed his former personal lawyer as the top federal prosecutor in New Jersey. A legal challenge could clarify the limits of his power to keep U.S. attorneys in office without Senate involvement.`\
+https://nytimes.com/2025/10/20/nyregion/alina-habba-us-attorney-hearing.html
+
 **Roberta Alexander, Widely Acclaimed Soprano, Dies at 76**\
 `An African American who spent much of her career based in the Netherlands, she said her race was less of a factor in Europe when being considered for a wide variety of opera roles.`\
 https://nytimes.com/2025/10/20/arts/music/roberta-alexander-dead.html
