@@ -1,3 +1,7 @@
+**What to Know About Diwali, the Hindu Festival of Lights**\
+`The biggest public holiday in India, Diwali features prayers for prosperity and good fortune — and lots of sweets.`\
+https://nytimes.com/article/diwali-india-festival-lights.html
+
 **Liverpool captain Fisk receives England call-up**\
 `The 27-year-old has not been capped at senior level but has featured in the national team's youth sides.`\
 https://nytimes.com/athletic/6732792/2025/10/20/grace-fisk-england-reid-clinton/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6732741/2025/10/20/lammens-manchester-united-goalke
 **Which college basketball coaches are under pressure? Hubert Davis, Adrian Autry and more**\
 `In our preseason staff survey, "pressure" meant different things to different people.`\
 https://nytimes.com/athletic/6726284/2025/10/20/college-basketball-hot-seat-hubert-davis-adrian-autry/
-
-**What I'm hearing about the Penguins: Are Harrison Brunicke, Ben Kindel staying in NHL?**\
-`The Penguins will soon have decisions to make on the short-term future of both teenagers Brunicke and Kindel.`\
-https://nytimes.com/athletic/6728842/2025/10/20/penguins-harrison-brunicke-ben-kindel-nhl/
 

@@ -1,3 +1,7 @@
+**What to Know About Diwali, the Hindu Festival of Lights**\
+`The biggest public holiday in India, Diwali features prayers for prosperity and good fortune — and lots of sweets.`\
+https://nytimes.com/article/diwali-india-festival-lights.html
+
 **Liverpool captain Fisk receives England call-up**\
 `The 27-year-old has not been capped at senior level but has featured in the national team's youth sides.`\
 https://nytimes.com/athletic/6732792/2025/10/20/grace-fisk-england-reid-clinton/
