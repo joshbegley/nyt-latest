@@ -1,3 +1,11 @@
+**Miami Heat 2025-26 streaming guide: Updated schedule, broadcast info and blackout rules**\
+`Miami is a perennial postseason overachiever. At a minimum, this veteran group is going to play hard.`\
+https://nytimes.com/athletic/6726330/2025/10/20/miami-heat-how-to-watch-2025-26/
+
+**Inside Packers' key fourth-down conversion, 6-hour flight delay and more**\
+`The Packers escaped the desert with a 27-23 win over the Cardinals and now prepare for Aaron Rodgers and the Steelers.`\
+https://nytimes.com/athletic/6732545/2025/10/20/packers-cardinals-jordan-love-josh-jacobs/
+
 **USMNT Player Tracker: Balogun's timely reminder, Robinson concerns and Reyna pines for progress**\
 `Our weekly round up of U.S. players' contributions in Europe's major leagues also includes another tough afternoon for Ethan Horvath`\
 https://nytimes.com/athletic/6732764/2025/10/20/usmnt-balogun-reyna-robinson-richards-tracker/
