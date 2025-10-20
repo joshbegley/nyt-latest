@@ -1,3 +1,7 @@
+**Notre Dame-USC final thoughts: Love and Price's dominance, CJ Carr's 'off game'**\
+`Saturday’s 34-24 victory over USC paves the road for a march back to the College Football Playoff for Marcus Freeman and company.`\
+https://nytimes.com/athletic/6732924/2025/10/20/notre-dame-usc-highlights-film-review/
+
 **Miami Heat 2025-26 streaming guide: Updated schedule, broadcast info and blackout rules**\
 `Miami is a perennial postseason overachiever. At a minimum, this veteran group is going to play hard.`\
 https://nytimes.com/athletic/6726330/2025/10/20/miami-heat-how-to-watch-2025-26/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/20/us/politics/congress-boat-strikes-caribbean.html
 **How to watch Giannis and the Milwaukee Bucks this season**\
 `With Giannis still around (for now), the Bucks will be featured on national TV often. Here's how to tune in to all of their games.`\
 https://nytimes.com/athletic/6730095/2025/10/20/milwaukee-bucks-giannis-games-tv-how-to-watch/
-
-**Inside Real Madrid: Will Endrick leave on loan? Who will miss El Clasico?**\
-`Our writers go through the biggest talking points at Real Madrid right now, with the visit of Barcelona to come on Sunday`\
-https://nytimes.com/athletic/6732839/2025/10/20/real-madrid-getafe-alonso-endrick-barcelona-clasico/
 
