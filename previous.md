@@ -1,3 +1,7 @@
+**Your November Election Guide (Yes, This November)**\
+`It’s not a presidential election year, or even the midterms, but races this fall will offer a sense of voters’ moods in the first year of the new Trump administration.`\
+https://nytimes.com/2025/10/20/us/politics/elections-california-new-jersey-nyc.html
+
 **Roberta Alexander, Widely Acclaimed Soprano, Dies at 76**\
 `An African American who spent much of her career based in the Netherlands, she said her race was less of a factor in Europe when being considered for a wide variety of opera roles.`\
 https://nytimes.com/2025/10/20/arts/music/roberta-alexander-dead.html
@@ -35,8 +39,4 @@ https://nytimes.com/interactive/2025/10/20/learning/21StudentNewsQuiz.html
 <p>Leave your questions here. Please include your city.</p>
 `\
 https://nytimes.com/athletic/6734881/2025/10/20/submit-a-question-for-stewart-mandels-college-football-mailbag-319/
-
-**Appeals Court Lifted a Block on Trump’s Deployment to Oregon**\
-`Also, the search is on for the Louvre jewel thieves. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/10/20/briefing/trump-oregon-national-guard-louvre-heist.html
 

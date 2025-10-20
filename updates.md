@@ -1,3 +1,7 @@
+**Your November Election Guide (Yes, This November)**\
+`It’s not a presidential election year, or even the midterms, but races this fall will offer a sense of voters’ moods in the first year of the new Trump administration.`\
+https://nytimes.com/2025/10/20/us/politics/elections-california-new-jersey-nyc.html
+
 **Appeals Court Weighs Whether Alina Habba Is a Lawful U.S. Attorney**\
 `President Trump installed his former personal lawyer as the top federal prosecutor in New Jersey. A legal challenge could clarify the limits of his power to keep U.S. attorneys in office without Senate involvement.`\
 https://nytimes.com/2025/10/20/nyregion/alina-habba-us-attorney-hearing.html
