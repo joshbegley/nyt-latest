@@ -1,3 +1,7 @@
+**Trying to Loosen China’s Grip on Critical Minerals, Trump Turns to Australia**\
+`The United States hopes to become less dependent on China by increasing access to mineral-rich countries. Rare earth metals are vital to an array of modern industries.`\
+https://nytimes.com/2025/10/20/us/politics/china-critical-minerals-trump-australia.html
+
 **Daniel Naroditsky, Chess Grandmaster, Dies at 29**\
 `He earned the highest title in the chess world as he built a career as an accomplished chess teacher, commentator and author.`\
 https://nytimes.com/2025/10/20/us/daniel-naroditsky-chess-grandmaster-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6734691/2025/10/20/united-states-mexico-costa-rica-
 **A Chinese Woman Builds a New Career in a Man’s World**\
 `An all-female repair business is challenging gender norms in China and catering to a growing population of single women seeking safety and comfort at home. We spoke to Ray Hou, who quit her office job to become a professional handywoman, about what motivated her to start a new career.`\
 https://nytimes.com/video/world/asia/100000010303871/china-women-new-careers.html
-
-**The Chinese Influencer Who Made a Career of Lying Flat**\
-`For many young Chinese, the relentless pressure to succeed has given way to a new minimalist lifestyle known as lying flat.`\
-https://nytimes.com/video/world/asia/100000010289092/china-travel-lying-flat.html
 
