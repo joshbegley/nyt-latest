@@ -1,3 +1,11 @@
+**Why Steal From the Louvre? It May Have More to Do With Stones Than Art.**\
+`Sunday’s robbery at the Paris museum could be the latest example of thieves targeting museums for jewels and precious metals to break down and sell on.`\
+https://nytimes.com/2025/10/20/arts/louvre-robbery-gems-precious-metals.html
+
+**This Fast Pantry Pasta Has a Really Good Twist**\
+`Melissa Clark goes all in on lemon in a new midnight pasta recipe.`\
+https://nytimes.com/2025/10/20/dining/this-fast-pantry-pasta-has-a-really-good-twist.html
+
 **Prison Guard Convicted in Fatal Beating Caught on Video, With 2 Acquitted**\
 `Footage of a group of guards punching, choking and stomping Robert L. Brooks ignited an outcry. Six guards pleaded guilty to charges.`\
 https://nytimes.com/2025/10/20/nyregion/marcy-prison-beating-murder-trial.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6733286/2025/10/20/oberdorf-bayern-munich-cruciate-
 **Jannik Sinner out of Italy Davis Cup Finals squad, Carlos Alcaraz in for Spain**\
 `Sinner helped propel Italy to the title in 2023 and 2024.`\
 https://nytimes.com/athletic/6733299/2025/10/20/jannik-sinner-italy-davis-cup-finals-out-alcaraz-spain/
-
-**Louvre Remains Closed Day After Brazen Jewel Heist**\
-`The Louvre museum in Paris remained closed on Monday after thieves stole priceless jewels in a brazen heist that lasted seven minutes and shocked the country.`\
-https://nytimes.com/video/world/europe/100000010468796/louvre-remains-closed-day-after-brazen-jewel-heist.html
-
-**Everton's Branthwaite to undergo surgery after hamstring injury 'complication'**\
-`Everton are now likely to be without the defender, a key player and one of their highest earners, for an extended period of time.`\
-https://nytimes.com/athletic/6732730/2025/10/20/jarrad-branthwaite-injury-surgery-everton/
 
