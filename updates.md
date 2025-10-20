@@ -1,3 +1,11 @@
+**Broncos Complete Stunning Comeback to Beat Giants**\
+`The Denver Broncos pulled off one of the most thrilling comebacks in N.F.L. history in Week 7, erasing an 19-point deficit in the fourth quarter to beat the New York Giants.`\
+https://nytimes.com/video/the-athletic/100000010467325/broncos-complete-stunning-comeback-to-beat-giants.html
+
+**'The feeling of losing' propelled Jalen Hurts, Eagles to victory after mini-bye**\
+`Teammates described the look in Hurts' eye during their win against the Vikings. He had 326 yards, three TDs and a 158.3 passer rating.`\
+https://nytimes.com/athletic/6732007/2025/10/19/jalen-hurts-eagles-win-vikings/
+
 **Mamdani and Cuomo Make Their Cases in Last Weekend Before Early Voting**\
 `As the New York City mayoral campaign enters its final weeks, the candidates appeared at a forum at Queens College and at a soccer tournament in Coney Island.`\
 https://nytimes.com/2025/10/19/nyregion/mamdani-cuomo-campaign-new-york.html
