@@ -1,3 +1,5 @@
+
+
 **Mike McDaniel says Tua Tagovailoa will remain Dolphins starter vs. Falcons**\
 `McDaniel on Tagovailoa: "He’s going to be our starter this week and my expectation is that we don’t throw 10 picks."`\
 https://nytimes.com/athletic/6734245/2025/10/20/dolphins-tua-tagovailoa-starter-falcons-benching/
