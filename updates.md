@@ -1,3 +1,11 @@
+**How the Louvre Thieves Did It**\
+`My colleagues explain how the brazen daytime jewel heist at the Louvre happened and why.`\
+https://nytimes.com/2025/10/20/world/louvre-thieves-gaza-kushner.html
+
+**Man Is Arrested After Threatening to Open Fire at Atlanta Airport, Police Say**\
+`The man, Billy Cagle, 49, was arrested after family members told the police that he was headed to the airport, “in their words, ‘to shoot it up,’” Atlanta’s police chief said.`\
+https://nytimes.com/2025/10/20/us/atlanta-airport-shooting-threat-arrest.html
+
 **Sean Combs Will Appeal His Conviction and Prison Sentence**\
 `The mogul’s defense team notified the appellate court that it will challenge the jury’s verdict on prostitution-related charges and the four-year prison term he received.`\
 https://nytimes.com/2025/10/20/arts/music/sean-combs-diddy-appeal-conviction-sentence.html
