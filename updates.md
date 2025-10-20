@@ -1,3 +1,15 @@
+**What Is Amazon Web Services?**\
+`The cloud-computing division of the internet giant is used by thousands of internet customers, many of whom reported disruptions on Monday.`\
+https://nytimes.com/2025/10/20/business/amazon-web-services-aws-down-what.html
+
+**Even with 4-game win streak, Bears offense faces a clean-up project**\
+`The run game was effective again, but coach Ben Johnson and the Bears acknowledged that the offense was sloppy.`\
+https://nytimes.com/athletic/6731817/2025/10/20/bears-offense-sloppy-saints/
+
+**Will Mike Brown be immortalized in New York or just another Knicks coach?**\
+`Mike Brown came into a situation with tremendous expectations. Here's how he's tried to meet them.`\
+https://nytimes.com/athletic/6716128/2025/10/20/knicks-coach-mike-brown-nba-legacy/
+
 **Cowboys' defense shows up, but offense still best chance for long-term success**\
 `The Cowboys believe the "sky is the limit" for their offense and they'll need it to be elite each week to maintain their playoff hopes.`\
 https://nytimes.com/athletic/6732290/2025/10/20/cowboys-offense-points-dak-prescott-lamb-pickens/

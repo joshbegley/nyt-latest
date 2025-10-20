@@ -1,3 +1,15 @@
+**What Is Amazon Web Services?**\
+`The cloud-computing division of the internet giant is used by thousands of internet customers, many of whom reported disruptions on Monday.`\
+https://nytimes.com/2025/10/20/business/amazon-web-services-aws-down-what.html
+
+**Even with 4-game win streak, Bears offense faces a clean-up project**\
+`The run game was effective again, but coach Ben Johnson and the Bears acknowledged that the offense was sloppy.`\
+https://nytimes.com/athletic/6731817/2025/10/20/bears-offense-sloppy-saints/
+
+**Will Mike Brown be immortalized in New York or just another Knicks coach?**\
+`Mike Brown came into a situation with tremendous expectations. Here's how he's tried to meet them.`\
+https://nytimes.com/athletic/6716128/2025/10/20/knicks-coach-mike-brown-nba-legacy/
+
 **Cowboys' defense shows up, but offense still best chance for long-term success**\
 `The Cowboys believe the "sky is the limit" for their offense and they'll need it to be elite each week to maintain their playoff hopes.`\
 https://nytimes.com/athletic/6732290/2025/10/20/cowboys-offense-points-dak-prescott-lamb-pickens/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6731675/2025/10/20/oscar-piastri-2025-f1-points-lea
 **Is defense the Lakers' biggest on-court concern entering 2025-26 season?**\
 `The Lakers have new faces and unique priorities entering this season. The biggest of those priorities? Sound defense.`\
 https://nytimes.com/athletic/6731657/2025/10/20/lakers-defense-luka-doncic-lebron-james-nba/
-
-**Canadiens weekly notebook: The need for a momentum line, a uniquely draft-heavy matchup**\
-`Also this week, Noah Dobson on the role Jeff Gorton and Kent Hughes played, or didn't play, in his decision to come to Montreal.`\
-https://nytimes.com/athletic/6732487/2025/10/20/canadiens-weekly-notebook-momentum-line/
-
-**Think it's easy to build Team Canada? Gretzky, Yzerman on the pressure of being a superteam's GM**\
-`With the ability to put a superstar at each position, Yzerman says, "If you don’t win, you didn’t pick the right team."`\
-https://nytimes.com/athletic/6730489/2025/10/20/canada-olympic-gm-gretzky-yzerman-armstrong/
-
-**New York Rangers 'momentum line' is creating chaos on every shift**\
-`Sam Carrick and ‘the towers’ 6-foot-7 Adam Edström and 6-foot-9 Matt Rempe have created chaos for the Rangers.`\
-https://nytimes.com/athletic/6728574/2025/10/20/new-york-rangers-momentum-line/
 
