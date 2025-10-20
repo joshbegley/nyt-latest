@@ -1,3 +1,11 @@
+**Buying a Vintage Watch Isn’t as Daunting as It Might Seem**\
+`Experts say that thinking through your preferences and then checking out the market can lead to the watch of your dreams.`\
+https://nytimes.com/2025/10/19/fashion/vintage-wristwatches.html
+
+**How DeVonta Smith advocated for the deep ball and helped snap Eagles' losing streak**\
+`The Eagles found their passing game again against the Vikings. `\
+https://nytimes.com/athletic/6730881/2025/10/19/devonta-smith-hurts-eagles-vikings/
+
 **Leon Draisaitl says it's on him to spark the Oilers' offence. Should it be?**\
 `"I just have to take a look in the mirror and figure out something to be better," Draisaitl said. The Oilers lost to the Red Wings 4-2.`\
 https://nytimes.com/athletic/6731911/2025/10/19/oilers-loss-red-wings-offence-leon-draisaitl/
@@ -27,14 +35,6 @@ https://nytimes.com/athletic/6731915/2025/10/19/justin-fields-benched-jets-next-
 https://nytimes.com/athletic/6731835/2025/10/19/panthers-beat-jets-jaycee-horn-defense/
 
 **Cowboys' offense stuns Commanders; Jayden Daniels injured: Takeaways**\
-`Prescott has gone four consecutive games with zero interceptions and three-plus touchdowns.`\
+`Cowboys QB Dak Prescott has gone four consecutive games with zero interceptions and three-plus touchdowns.`\
 https://nytimes.com/athletic/6731764/2025/10/19/commanders-cowboys-score-result-takeaways-nfl/
-
-**Packers-Cardinals takeaways: Green Bay rallies late to stun Cardinals**\
-`Green Bay escapes with a 27-23 win after a late touchdown drive; Arizona drops fifth straight in another close, frustrating fourth quarter.`\
-https://nytimes.com/athletic/6731760/2025/10/19/packers-cardinals-score-result-takeaways-nfl/
-
-**Bears defense puts on a show against Saints: 'It was pretty special'**\
-`The Bears lead the NFL in takeaways and have forced at least three turnovers in each game of their current four-game winning streak.`\
-https://nytimes.com/athletic/6731776/2025/10/19/bears-defense-dominates-saints/
 

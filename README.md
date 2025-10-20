@@ -1,3 +1,7 @@
+**Carson Wentz's mistakes vs. Eagles show why Vikings must get healthy J.J. McCarthy back**\
+`Wentz completed 26 of 42 passes for 313 yards and two interceptions on Sunday. When McCarthy gets healthy, it's time to see what he can do.`\
+https://nytimes.com/athletic/6731942/2025/10/19/vikings-eagles-carson-wentz-jj-mccarthy/
+
 **Buying a Vintage Watch Isn’t as Daunting as It Might Seem**\
 `Experts say that thinking through your preferences and then checking out the market can lead to the watch of your dreams.`\
 https://nytimes.com/2025/10/19/fashion/vintage-wristwatches.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6731915/2025/10/19/justin-fields-benched-jets-next-
 **Don't call it ugly: After Bryce Young exits, Jaycee Horn and the D will Panthers to win**\
 `The Panthers are 4-3 but will have to wait on Bryce Young's status before they play the Buffalo Bills at home next week.`\
 https://nytimes.com/athletic/6731835/2025/10/19/panthers-beat-jets-jaycee-horn-defense/
-
-**Cowboys' offense stuns Commanders; Jayden Daniels injured: Takeaways**\
-`Cowboys QB Dak Prescott has gone four consecutive games with zero interceptions and three-plus touchdowns.`\
-https://nytimes.com/athletic/6731764/2025/10/19/commanders-cowboys-score-result-takeaways-nfl/
 

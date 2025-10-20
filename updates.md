@@ -1,3 +1,15 @@
+**Buying a Vintage Watch Isn’t as Daunting as It Might Seem**\
+`Experts say that thinking through your preferences and then checking out the market can lead to the watch of your dreams.`\
+https://nytimes.com/2025/10/19/fashion/vintage-wristwatches.html
+
+**How DeVonta Smith advocated for the deep ball and helped snap Eagles' losing streak**\
+`The Eagles found their passing game again against the Vikings. `\
+https://nytimes.com/athletic/6730881/2025/10/19/devonta-smith-hurts-eagles-vikings/
+
+**Cowboys' offense stuns Commanders; Jayden Daniels injured: Takeaways**\
+`Cowboys QB Dak Prescott has gone four consecutive games with zero interceptions and three-plus touchdowns.`\
+https://nytimes.com/athletic/6731764/2025/10/19/commanders-cowboys-score-result-takeaways-nfl/
+
 **Leon Draisaitl says it's on him to spark the Oilers' offence. Should it be?**\
 `"I just have to take a look in the mirror and figure out something to be better," Draisaitl said. The Oilers lost to the Red Wings 4-2.`\
 https://nytimes.com/athletic/6731911/2025/10/19/oilers-loss-red-wings-offence-leon-draisaitl/
