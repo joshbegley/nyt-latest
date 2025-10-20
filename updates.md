@@ -1,3 +1,7 @@
+**2025 Heisman Trophy odds: Three co-favorites highlight an open race**\
+`A new favorite has joined the Heisman Trophy race after an upset-heavy Week 8.`\
+https://nytimes.com/athletic/6731684/2025/10/20/heisman-trophy-odds-sayin-simpson-mendoza/
+
 **Jayden Daniels' mother pleads with fans to stop comparing him to RGIII**\
 `The parallels between Daniels and Robert Griffin III are clear, as the pair were Heisman Trophy winners and No. 2 picks in the NFL Draft.`\
 https://nytimes.com/athletic/6733275/2025/10/20/jayden-daniels-robert-griffin-washington-commanders-comparisons/

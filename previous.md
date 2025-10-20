@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6733336/2025/10/20/state-of-bruins-seven-games/
 https://nytimes.com/2025/10/20/style/colin-jost-pete-davidson-and-the-staten-island-ferry-fiasco.html
 
 **2025 Heisman Trophy odds: Three co-favorites highlight an open race**\
-`Ty Simpson, Julian Sayin and Fernando Mendoza are now co-favorites to win the Heisman Trophy after an upset-heavy Week 8.`\
+`A new favorite has joined the Heisman Trophy race after an upset-heavy Week 8.`\
 https://nytimes.com/athletic/6731684/2025/10/20/heisman-trophy-odds-sayin-simpson-mendoza/
 
 **Drance: What I learned from a lifetime of watching sports with my dad**\
