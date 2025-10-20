@@ -1,3 +1,11 @@
+**Rangers closing in on Rohl manager appointment**\
+`The German had been in talks with the Scottish club's hierarchy after leaving Sheffield Wednesday in July.`\
+https://nytimes.com/athletic/6732740/2025/10/20/danny-rohl-rangers-manager-appointment/
+
+**TAFC: Why La Liga players are staging a standstill protest. Plus: Welcome to EPL sacking season**\
+`Today in TAFC: We explain why La Liga players are standing still at the start of matches. Plus: MLS match-ups and USMNT projections for 2026`\
+https://nytimes.com/athletic/6732648/2025/10/20/why-la-liga-players-are-staging-a-standstill-protest-plus-welcome-to-epl-sacking-season/
+
 **Inside Barcelona: El Clasico concerns, Araujo's anger, and talk of €1bn revenue**\
 `Our writers go through the biggest talking points at Barcelona right now, with El Clasico to come next Sunday`\
 https://nytimes.com/athletic/6732707/2025/10/20/barcelona-yamal-flick-araujo-clasico/

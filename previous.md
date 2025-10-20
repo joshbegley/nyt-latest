@@ -1,3 +1,11 @@
+**Rangers closing in on Rohl manager appointment**\
+`The German had been in talks with the Scottish club's hierarchy after leaving Sheffield Wednesday in July.`\
+https://nytimes.com/athletic/6732740/2025/10/20/danny-rohl-rangers-manager-appointment/
+
+**TAFC: Why La Liga players are staging a standstill protest. Plus: Welcome to EPL sacking season**\
+`Today in TAFC: We explain why La Liga players are standing still at the start of matches. Plus: MLS match-ups and USMNT projections for 2026`\
+https://nytimes.com/athletic/6732648/2025/10/20/why-la-liga-players-are-staging-a-standstill-protest-plus-welcome-to-epl-sacking-season/
+
 **Inside Barcelona: El Clasico concerns, Araujo's anger, and talk of €1bn revenue**\
 `Our writers go through the biggest talking points at Barcelona right now, with El Clasico to come next Sunday`\
 https://nytimes.com/athletic/6732707/2025/10/20/barcelona-yamal-flick-araujo-clasico/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6731817/2025/10/20/bears-offense-sloppy-saints/
 **Will Mike Brown be immortalized in New York or just another Knicks coach?**\
 `Mike Brown came into a situation with tremendous expectations. Here's how he's tried to meet them.`\
 https://nytimes.com/athletic/6716128/2025/10/20/knicks-coach-mike-brown-nba-legacy/
-
-**Cowboys' defense shows up, but offense still best chance for long-term success**\
-`The Cowboys believe the "sky is the limit" for their offense and they'll need it to be elite each week to maintain their playoff hopes.`\
-https://nytimes.com/athletic/6732290/2025/10/20/cowboys-offense-points-dak-prescott-lamb-pickens/
-
-**Week 7 has back-to-back 'Monday Night Football' games. Here's how to watch both**\
-`It's another NFL week sealed off by multiple "MNF" broadcasts. Both games are worth watching, and they don't overlap this time.`\
-https://nytimes.com/athletic/6726863/2025/10/20/monday-night-football-how-to-watch-lions-bucs/
 
