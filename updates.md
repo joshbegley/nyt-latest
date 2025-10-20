@@ -1,3 +1,7 @@
+**Clashes in Gaza Reveal Cease-Fire’s Fragility, With Rougher Road Ahead**\
+`A round of violence on Sunday was short-lived, but analysts expect more tensions between Israel and Palestinian militants that will put the truce under strain.`\
+https://nytimes.com/2025/10/20/world/middleeast/gaza-israel-hamas-cease-fire.html
+
 **How to watch Vikings vs. Chargers: Time, TV, streaming**\
 `Find out how to watch the Minnesota Vikings play the Los Angeles Chargers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6732689/2025/10/20/vikings-vs-chargers-stream-how-to-watch-oct-23/

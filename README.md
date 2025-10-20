@@ -1,3 +1,7 @@
+**Dyche close to agreeing long-term contract to become Forest head coach**\
+`Dyche's Premier League experience, having overseen nearly seven seasons with Burnley and two years at Everton, is considered important for F`\
+https://nytimes.com/athletic/6732582/2025/10/20/sean-dyche-nottingham-forest-confirmation/
+
 **How to watch Vikings vs. Chargers: Time, TV, streaming**\
 `Find out how to watch the Minnesota Vikings play the Los Angeles Chargers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6732689/2025/10/20/vikings-vs-chargers-stream-how-to-watch-oct-23/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/20/nyregion/the-politics-behind-the-redesign-of-new-
 **What’s the best way to wear barrel pants?**\
 `In case you haven’t heard, it’s “the year of the barrel pants.” Our critic shares creative ways to style the latest trend.`\
 https://nytimes.com/2025/10/20/fashion/barrel-jeans-pants.html
-
-**Judge Demands Answers on Trump Immigration Crackdown in Chicago**\
-`A federal judge has ordered operational leaders of the crackdown to appear before her on Monday to be questioned about their tactics and their use of tear gas.`\
-https://nytimes.com/2025/10/20/us/chicago-hearing-tear-gas-trump.html
 
