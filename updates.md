@@ -1,3 +1,11 @@
+**The Briefing: Can Man United build on Anfield win? Who is to blame at Forest?**\
+`Dissecting the Premier League's big talking points from the weekend, from a seismic win for United at Anfield to the Forest hokey-cokey`\
+https://nytimes.com/athletic/6731238/2025/10/20/premier-league-manchester-united-liverpool-forest-briefing/
+
+**When is the Premier League's sacking season – and should clubs be more patient?**\
+`How much does fixture difficulty and misfortune play in dismissals – and is 'new-manager bounce' a real thing?`\
+https://nytimes.com/athletic/6688925/2025/10/20/premier-league-fired-sackings-analysis/
+
 **In football in 2025, the big clubs rule**\
 `A meeting of Europe's biggest clubs this month showed just who is running the global game – and the impact that could have`\
 https://nytimes.com/athletic/6718905/2025/10/20/football-2025-big-clubs-rule/
