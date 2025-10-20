@@ -1,3 +1,7 @@
+**Rangers closing in on Rohl appointment**\
+`The German had been in talks with the Scottish club's hierarchy after leaving Sheffield Wednesday in July.`\
+https://nytimes.com/athletic/6732740/2025/10/20/danny-rohl-rangers-manager-appointment/
+
 **Rangers closing in on Rohl manager appointment**\
 `The German had been in talks with the Scottish club's hierarchy after leaving Sheffield Wednesday in July.`\
 https://nytimes.com/athletic/6732740/2025/10/20/danny-rohl-rangers-manager-appointment/

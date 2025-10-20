@@ -1,3 +1,7 @@
+**Why the Ravens still believe they can make the playoffs despite 1-5 start**\
+`A softer schedule and a return to health are among five reasons Baltimore feels it can turn things around and make a run to the postseason.`\
+https://nytimes.com/athletic/6729259/2025/10/20/ravens-2025-playoffs-slow-start/
+
 **Rangers closing in on Rohl appointment**\
 `The German had been in talks with the Scottish club's hierarchy after leaving Sheffield Wednesday in July.`\
 https://nytimes.com/athletic/6732740/2025/10/20/danny-rohl-rangers-manager-appointment/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/20/business/amazon-web-services-aws-down-what.html
 **Even with 4-game win streak, Bears offense faces a clean-up project**\
 `The run game was effective again, but coach Ben Johnson and the Bears acknowledged that the offense was sloppy.`\
 https://nytimes.com/athletic/6731817/2025/10/20/bears-offense-sloppy-saints/
-
-**Will Mike Brown be immortalized in New York or just another Knicks coach?**\
-`Mike Brown came into a situation with tremendous expectations. Here's how he's tried to meet them.`\
-https://nytimes.com/athletic/6716128/2025/10/20/knicks-coach-mike-brown-nba-legacy/
 
