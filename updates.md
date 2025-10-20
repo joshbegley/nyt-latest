@@ -1,3 +1,5 @@
+
+
 **Supreme Court Will Weigh Gun Restrictions for Drug Users**\
 `The Second Amendment case tests a federal law used to convict Hunter Biden that bars drug users and addicts from possessing guns.`\
 https://nytimes.com/2025/10/20/us/politics/supreme-court-gun-drug-users.html
