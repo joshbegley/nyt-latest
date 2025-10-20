@@ -1,3 +1,11 @@
+**Morocco stuns Argentina 2-0 to win first U20 World Cup title**\
+`Argentina were seeking their seventh U20 men's title but were instead stunned by two well-taken first-half goals from Morocco.`\
+https://nytimes.com/athletic/6732176/2025/10/19/argentina-morocco-u20-world-cup-yassir-zabiri/
+
+**China’s Economy Holds Steady, but Consumers Grow More Cautious**\
+`A further increase in China’s trade surplus failed to fully offset the effects of a worsening housing market, which has left consumers wary.`\
+https://nytimes.com/2025/10/19/business/china-economy-gdp-q3.html
+
 **'The feeling of losing' propelled Jalen Hurts and the Eagles to victory after mini-bye**\
 `Teammates described the look in Hurts' eye during their win against Vikings.`\
 https://nytimes.com/athletic/6732007/2025/10/19/jalen-hurts-eagles-win-vikings/
