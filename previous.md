@@ -1,3 +1,11 @@
+**How to watch Atlanta Hawks games during pivotal 2025-26 season**\
+`Will the Hawks be able to deliver on preseason hype? Find out how to watch Trae Young and company all season long. `\
+https://nytimes.com/athletic/6727125/2025/10/20/atlanta-hawks-tv-schedule-how-to-watch/
+
+**The Culture Wars Have Come for Wikipedia**\
+`Wikipedia might seem like a public utility, but in recent years it’s become part of the culture wars.`\
+https://nytimes.com/video/podcasts/100000010468816/the-culture-wars-have-come-for-wikipedia.html
+
 **Ferrari scored a good Austin podium. But its winless F1 run isn't stopping**\
 `Charles Leclerc helped Ferrari notch a fine third-place in Sunday's U.S. GP. But that was a long way from 2024's triumph in the same race...`\
 https://nytimes.com/athletic/6732855/2025/10/20/ferrari-2025-us-grand-prix/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/20/business/dealbook/openevidence-fundraising-chatgp
 **FPL Gameweek 8 Review: Mateta caution, a new £4.5m gem and time's ticking for Salah**\
 `Abdul Rehman breaks down the main FPL talking points from Gameweek 8 so far`\
 https://nytimes.com/athletic/6731065/2025/10/20/fantasy-premier-league-gw8-mateta-salah/
-
-**The Pulse: A glorious Game 7 awaits**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6732200/2025/10/20/blue-jays-mariners-game-7-the-pulse/
-
-**What to Know About Diwali, the Hindu Festival of Lights**\
-`The biggest public holiday in India, Diwali features prayers for prosperity and good fortune — and lots of sweets.`\
-https://nytimes.com/article/diwali-india-festival-lights.html
 

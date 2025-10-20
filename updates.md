@@ -1,3 +1,11 @@
+**How to watch Atlanta Hawks games during pivotal 2025-26 season**\
+`Will the Hawks be able to deliver on preseason hype? Find out how to watch Trae Young and company all season long. `\
+https://nytimes.com/athletic/6727125/2025/10/20/atlanta-hawks-tv-schedule-how-to-watch/
+
+**The Culture Wars Have Come for Wikipedia**\
+`Wikipedia might seem like a public utility, but in recent years it’s become part of the culture wars.`\
+https://nytimes.com/video/podcasts/100000010468816/the-culture-wars-have-come-for-wikipedia.html
+
 **Ferrari scored a good Austin podium. But its winless F1 run isn't stopping**\
 `Charles Leclerc helped Ferrari notch a fine third-place in Sunday's U.S. GP. But that was a long way from 2024's triumph in the same race...`\
 https://nytimes.com/athletic/6732855/2025/10/20/ferrari-2025-us-grand-prix/
