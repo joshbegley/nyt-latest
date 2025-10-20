@@ -1,3 +1,7 @@
+**A Rare Earths Alternative to China? Australia Eyes Timely Pitch to Trump**\
+`China’s escalating curbs on the critical minerals has given Australia, a longstanding U.S. ally, the opportunity to reposition itself to a transactional president.`\
+https://nytimes.com/2025/10/20/world/australia/australia-rare-earths-china-trump.html
+
 **Maguire has fully redeemed himself at Man Utd. Has he also kickstarted Amorim's tenure?**\
 `Manchester United managed a huge victory over Liverpool, with Harry Maguire scoring the late winning goal`\
 https://nytimes.com/athletic/6731985/2025/10/20/man-utd-harry-maguire-ruben-amorim/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6718656/2025/10/20/tawanda-muyeye-england-zimbabwe-
 **Frank Nazar, Spencer Knight proving to be worth every cent for Blackhawks**\
 `Sunday, Nazar and Knight continued to build on their promising starts to the 2025-26 season in Chicago's 2-1 win over the Anaheim Ducks.`\
 https://nytimes.com/athletic/6732228/2025/10/20/blackhawks-frank-nazar-spencer-knight/
-
-**Newcastle's away form is simply not good enough. Howe has many issues to address**\
-`Newcastle's away day woes continued at Brighton. Why can't Eddie Howe's team win on the road?`\
-https://nytimes.com/athletic/6728164/2025/10/20/newcastle-away-form-trends-eddie-howe/
 

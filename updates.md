@@ -1,3 +1,7 @@
+**A Rare Earths Alternative to China? Australia Eyes Timely Pitch to Trump**\
+`China’s escalating curbs on the critical minerals has given Australia, a longstanding U.S. ally, the opportunity to reposition itself to a transactional president.`\
+https://nytimes.com/2025/10/20/world/australia/australia-rare-earths-china-trump.html
+
 **Maguire has fully redeemed himself at Man Utd. Has he also kickstarted Amorim's tenure?**\
 `Manchester United managed a huge victory over Liverpool, with Harry Maguire scoring the late winning goal`\
 https://nytimes.com/athletic/6731985/2025/10/20/man-utd-harry-maguire-ruben-amorim/
