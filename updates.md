@@ -1,3 +1,15 @@
+**A Boston Restaurant Displayed Whitey Bulger’s Mug Shot. An Uproar Ensued.**\
+`The owners of Savin Bar & Kitchen have so far rejected requests from residents to remove photos of gangsters who terrorized the city for decades.`\
+https://nytimes.com/2025/10/20/us/a-boston-restaurant-displayed-whitey-bulgers-mug-shot-an-uproar-ensued.html
+
+**Airlines Told to Disregard Gender-Neutral ‘X’ on U.S. Passports and Add ‘M’ or ‘F’**\
+`Although passports with an “X” marker remain valid, a new federal rule requires airlines on their internal information system to mark passengers with an “M” or an “F.”`\
+https://nytimes.com/2025/10/20/us/airlines-passports-x-markers.html
+
+**Passengers Evacuated From Subway Train After 2 Cars Detach**\
+`Two train cars uncoupled on a No. 4 train heading into Manhattan from the Bronx on Sunday. No injuries were reported.`\
+https://nytimes.com/2025/10/20/nyregion/subway-cars-decouple.html
+
 **Disney+ Cancellations Jump After Kimmel Suspension**\
 `Roughly three million Americans canceled the streaming service in the month that it temporarily suspended Jimmy Kimmel’s show. About 4.1 million people canceled Disney-owned Hulu.`\
 https://nytimes.com/2025/10/20/business/media/disney-subscription-cancellations-kimmel.html
