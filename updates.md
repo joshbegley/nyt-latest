@@ -1,3 +1,7 @@
+**Liverpool captain Fisk receives England call-up**\
+`The 27-year-old has not been capped at senior level but has featured in the national team's youth sides.`\
+https://nytimes.com/athletic/6732792/2025/10/20/grace-fisk-england-reid-clinton/
+
 **Yankees' 2026 payroll breakdown: What to expect as New York prepares for offseason moves**\
 `Breaking down where the Yankees stand with guaranteed salaries, contract options, dead money and projected arbitration figures for 2026.`\
 https://nytimes.com/athletic/6731439/2025/10/20/yankees-2026-payroll-offseason-trades-signings/
