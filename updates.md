@@ -1,3 +1,7 @@
+**OpenEvidence Raises $200 Million for a ChatGPT for Medicine**\
+`The three-year-old artificial intelligence start-up has drawn investor attention, and money, as its use among doctors, nurses and others skyrockets.`\
+https://nytimes.com/2025/10/20/business/dealbook/openevidence-fundraising-chatgpt-medicine.html
+
 **FPL Gameweek 8 Review: Mateta caution, a new £4.5m gem and time's ticking for Salah**\
 `Abdul Rehman breaks down the main FPL talking points from Gameweek 8 so far`\
 https://nytimes.com/athletic/6731065/2025/10/20/fantasy-premier-league-gw8-mateta-salah/
