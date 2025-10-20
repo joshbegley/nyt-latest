@@ -1,3 +1,7 @@
+**Liverpool are far too open, far too easy to play through - and individuals are struggling**\
+`Liverpool lost to Manchester United on Sunday but there is a growing set of problems for Arne Slot to deal with`\
+https://nytimes.com/athletic/6730616/2025/10/20/liverpool-manchester-united-analysis/
+
 **‘Nobody Wants This,’ Plus 6 Things to Watch on TV this Week**\
 `The Netflix series staring Kristen Bell and Adam Brody returns for a second season. And on Bravo, housewives swap lives.`\
 https://nytimes.com/2025/10/20/arts/television/nobody-wants-this-tv-this-week.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6728327/2025/10/20/crystal-palace-mateta-hattrick/
 **'Cashy, still watching your pass?': Breaking down Matty Cash's match-winning moment**\
 `The Poland international has been quietly excellent this season and his pass was crucial in vital win`\
 https://nytimes.com/athletic/6730707/2025/10/20/aston-villa-matty-cash-pass/
-
-**The League Cup could've been greeted by excitement. Instead, it was almost apologetic**\
-`The Women's League Cup is an underserved competition, but given some love and guidance, it can fulfil its potential`\
-https://nytimes.com/athletic/6730899/2025/10/20/womens-league-cup-column/
 

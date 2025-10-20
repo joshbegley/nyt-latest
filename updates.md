@@ -1,3 +1,7 @@
+**Liverpool are far too open, far too easy to play through - and individuals are struggling**\
+`Liverpool lost to Manchester United on Sunday but there is a growing set of problems for Arne Slot to deal with`\
+https://nytimes.com/athletic/6730616/2025/10/20/liverpool-manchester-united-analysis/
+
 **‘Nobody Wants This,’ Plus 6 Things to Watch on TV this Week**\
 `The Netflix series staring Kristen Bell and Adam Brody returns for a second season. And on Bravo, housewives swap lives.`\
 https://nytimes.com/2025/10/20/arts/television/nobody-wants-this-tv-this-week.html
