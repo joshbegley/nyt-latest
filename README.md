@@ -1,40 +1,40 @@
-**NBA star Butler joins San Diego Wave as minority investor**\
-`“Soccer has been a passion of mine for a long time, and being part of the game in a meaningful way has always been a dream,” Butler said.`\
-https://nytimes.com/athletic/6734291/2025/10/20/jimmy-butler-san-diego-wave/
+**Mike McDaniel says Tua Tagovailoa will remain Dolphins starter vs. Falcons**\
+`McDaniel on Tagovailoa: "He’s going to be our starter this week and my expectation is that we don’t throw 10 picks."`\
+https://nytimes.com/athletic/6734245/2025/10/20/dolphins-tua-tagovailoa-starter-falcons-benching/
 
-**How to watch Hurricanes vs. Golden Knights: Time, TV, streaming**\
-`Find out how to watch the Carolina Hurricanes play the Vegas Golden Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6734411/2025/10/20/hurricanes-vs-golden-knights-stream-how-to-watch-oct-20/
+**How to watch Syracuse vs. Georgia Tech: Time, TV, streaming**\
+`Find out how to watch the Syracuse Orange play the Georgia Tech Yellow Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6734497/2025/10/20/syracuse-vs-georgia-tech-stream-how-to-watch-oct-25/
 
-**How to watch Sabres vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the Buffalo Sabres play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6734409/2025/10/20/sabres-vs-canadiens-stream-how-to-watch-oct-20/
+**How to watch Missouri vs. Vanderbilt: Time, TV, streaming**\
+`Find out how to watch the Missouri Tigers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6734495/2025/10/20/missouri-vs-vanderbilt-stream-how-to-watch-oct-25/
 
-**How to watch Jets vs. Flames: Time, TV, streaming**\
-`Find out how to watch the Winnipeg Jets play the Calgary Flames, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6734407/2025/10/20/jets-vs-flames-stream-how-to-watch-oct-20/
+**How to watch Minnesota vs. Iowa: Time, TV, streaming**\
+`Find out how to watch the Minnesota Golden Gophers play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6734492/2025/10/20/minnesota-vs-iowa-stream-how-to-watch-oct-25/
 
-**Source: Hawks, Dyson Daniels agree to 4-year, $100 million rookie extension**\
-`The 22-year-old Daniels, who won Most Improved Player last season, provides the Hawks a skill set to build around for the future. `\
-https://nytimes.com/athletic/6734351/2025/10/20/hawks-dyson-daniels-rookie-contract-extension/
+**How to watch BYU vs. Iowa State: Time, TV, streaming**\
+`Find out how to watch the BYU Cougars play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6734490/2025/10/20/byu-vs-iowa-state-stream-how-to-watch-oct-25/
 
-**Remembering D’Angelo, a Classicist Who Moved Us Forward**\
-`On Popcast, a conversation about the casual virtuosity of D’Angelo’s too-brief career with a pair of journalists who each interviewed him twice.`\
-https://nytimes.com/2025/10/20/arts/music/dangelo-popcast.html
+**How to watch Alabama vs. South Carolina: Time, TV, streaming**\
+`Find out how to watch the Alabama Crimson Tide play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6734487/2025/10/20/alabama-vs-south-carolina-stream-how-to-watch-oct-25/
 
-**Vikings' Rodgers received 'some of the most racist comments' after loss to Eagles**\
-`Cornerback Isaiah Rodgers was involved in some critical pass defense mishaps during the Vikings' loss to the Eagles.`\
-https://nytimes.com/athletic/6734230/2025/10/20/isaiah-rodgers-fan-racist-messages-vikings-instagram-week-7/
+**How to watch Auburn vs. Arkansas: Time, TV, streaming**\
+`Find out how to watch the Auburn Tigers play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6734485/2025/10/20/auburn-vs-arkansas-stream-how-to-watch-oct-25/
 
-**'Sometimes guys get fiery': Maple Leafs want to move on from Anthony Stolarz's criticism**\
-`The Leafs are moving on, and moving on to a crucial game against the New Jersey Devils on Tuesday.`\
-https://nytimes.com/athletic/6733962/2025/10/20/maple-leafs-anthony-stolarz-blunt-criticism/
+**How to watch Illinois vs. Washington: Time, TV, streaming**\
+`Find out how to watch the Illinois Fighting Illini play the Washington Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6734482/2025/10/20/illinois-vs-washington-stream-how-to-watch-oct-25/
 
-**Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
-`Whether it’s trade ideas, the Olympics, recent re-signings or league politics, we want to know. Drop your questions here.`\
-https://nytimes.com/athletic/6734255/2025/10/20/nhl-mailbag-trades-olympics-re-signings/
+**How to watch Ole Miss vs. Oklahoma: Time, TV, streaming**\
+`Find out how to watch the Ole Miss Rebels play the Oklahoma Sooners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6734479/2025/10/20/ole-miss-vs-oklahoma-stream-how-to-watch-oct-25/
 
-**Florida AD: 'Time is an asset' as search to replace Billy Napier begins**\
-`Florida athletic director Scott Stricklin spoke Monday about the decision to fire coach Billy Napier and where the program is headed.`\
-https://nytimes.com/athletic/6734165/2025/10/20/florida-coaching-search-billy-napier-fired-scott-stricklin/
+**How to watch Northwestern vs. Nebraska: Time, TV, streaming**\
+`Find out how to watch the Northwestern Wildcats play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6734480/2025/10/20/northwestern-vs-nebraska-stream-how-to-watch-oct-25/
 
