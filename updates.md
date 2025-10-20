@@ -1,3 +1,11 @@
+**He Turned His High School Closet Into a Vintage Shopping Mecca**\
+`Marcus Allen never threw away the Abercrombie and Gap wardrobe of his teenage years. Now, those clothes are more in demand than ever.`\
+https://nytimes.com/2025/10/20/style/the-society-archive-vintage-mall-clothes.html
+
+**NHL Central Scouting releases preliminary players to watch list for 2026 draft**\
+`The list of 'A' rated players is highlighted by Penn State star Gavin McKenna and North Dakota defenseman Keaton Verhoeff.`\
+https://nytimes.com/athletic/6733600/2025/10/20/nhl-central-scouting-2026-draft-ratings-preliminary/
+
 **Kale Caesar Pasta Salad**\
 `Caesar salad meets pasta salad in this comfort food mash-up. Crisp and sturdy kale leaves hold their own alongside al dente pasta when tossed in a thick and creamy Caesar-inspired, mayonnaise-based dressing.`\
 https://nytimes.com/video/dining/100000010469307/kale-caesar-pasta-salad.html

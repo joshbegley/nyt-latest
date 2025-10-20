@@ -1,3 +1,11 @@
+**He Turned His High School Closet Into a Vintage Shopping Mecca**\
+`Marcus Allen never threw away the Abercrombie and Gap wardrobe of his teenage years. Now, those clothes are more in demand than ever.`\
+https://nytimes.com/2025/10/20/style/the-society-archive-vintage-mall-clothes.html
+
+**NHL Central Scouting releases preliminary players to watch list for 2026 draft**\
+`The list of 'A' rated players is highlighted by Penn State star Gavin McKenna and North Dakota defenseman Keaton Verhoeff.`\
+https://nytimes.com/athletic/6733600/2025/10/20/nhl-central-scouting-2026-draft-ratings-preliminary/
+
 **Kale Caesar Pasta Salad**\
 `Caesar salad meets pasta salad in this comfort food mash-up. Crisp and sturdy kale leaves hold their own alongside al dente pasta when tossed in a thick and creamy Caesar-inspired, mayonnaise-based dressing.`\
 https://nytimes.com/video/dining/100000010469307/kale-caesar-pasta-salad.html
@@ -29,12 +37,4 @@ https://nytimes.com/spotlight/future-of-democratic-party
 **The Bounce: The Nuggets should be the West favorites, and more spicy hot takes**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6733359/2025/10/20/nuggets-hawks-hot-takes-breakouts-bounce/
-
-**How the Louvre Jewelry Heist Unfolded**\
-`Thieves used a truck-mounted ladder to break into the Louvre and steal items of “incalculable” value.`\
-https://nytimes.com/interactive/2025/10/20/world/europe/louvre-robbery-jewelry-heist-photos-maps.html
-
-**Police investigating spitting allegation against Burnley’s Hannibal in Leeds game**\
-`The 22-year-old was an 83rd-minute substitute at Turf Moor, a game which Burnley won 2-0.`\
-https://nytimes.com/athletic/6733237/2025/10/20/hannibal-burnley-leeds-spitting-allegation/
 
