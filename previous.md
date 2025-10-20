@@ -1,3 +1,23 @@
+**NASCAR Talladega takeaways: Chase Briscoe proves he belongs; playoff contenders slip up**\
+`Briscoe beat the odds to get here; now he has a shot at a title. Plus, trouble for Kyle Larson and William Byron, and more from Talladega.`\
+https://nytimes.com/athletic/6733159/2025/10/20/nascar-talladega-takeaways-chase-briscoe-playoffs-contenders/
+
+**With Rashee Rice back, can Patrick Mahomes finish as fantasy football's No. 1 quarterback?**\
+`KC Joyner explains how and why Patrick Mahomes could finish as fantasy's QB1, especially with Rashee Rice back in the fold. `\
+https://nytimes.com/athletic/6732838/2025/10/20/fantasy-football-rashee-rice-patrick-mahomes-top-qb/
+
+**Assessing Ottawa's early-season goaltending and defensive struggles**\
+`How much has the Senators' defensive and goaltending struggles contributed to their inauspicious 2-4-0 start? And what can they do about it?`\
+https://nytimes.com/athletic/6730689/2025/10/20/senators-goaltending-ullmark-merilainen/
+
+**Why Steal From the Louvre? It May Have More to Do With Stones Than Art.**\
+`Sunday’s robbery at the Paris museum could be the latest example of thieves targeting museums for jewels and precious metals to break down and sell on.`\
+https://nytimes.com/2025/10/20/arts/louvre-robbery-gems-precious-metals.html
+
+**This Fast Pantry Pasta Has a Really Good Twist**\
+`Melissa Clark goes all in on lemon in a new midnight pasta recipe.`\
+https://nytimes.com/2025/10/20/dining/this-fast-pantry-pasta-has-a-really-good-twist.html
+
 **Prison Guard Convicted in Fatal Beating Caught on Video, With 2 Acquitted**\
 `Footage of a group of guards punching, choking and stomping Robert L. Brooks ignited an outcry. Six guards pleaded guilty to charges.`\
 https://nytimes.com/2025/10/20/nyregion/marcy-prison-beating-murder-trial.html
@@ -17,24 +37,4 @@ https://nytimes.com/interactive/2025/10/20/books/review/novels-culture-quiz.html
 **The Windup: The best *sports* performance ever?**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6732593/2025/10/20/shohei-ohtani-nlcs-game-4-the-windup/
-
-**Florida State 'fully committed' but plans to evaluate Mike Norvell at season's end**\
-`The Seminoles have been headed in the wrong direction since winning the ACC title to cap an undefeated regular season two years ago`\
-https://nytimes.com/athletic/6733284/2025/10/20/florida-state-mike-norvell-hot-seat/
-
-**Bayern confirm Oberdorf second cruciate ligament injury in two years**\
-`The 23-year-old signed for the German champions last year but has only managed six appearances due to knee issues.`\
-https://nytimes.com/athletic/6733286/2025/10/20/oberdorf-bayern-munich-cruciate-ligament-injury/
-
-**Jannik Sinner out of Italy Davis Cup Finals squad, Carlos Alcaraz in for Spain**\
-`Sinner helped propel Italy to the title in 2023 and 2024.`\
-https://nytimes.com/athletic/6733299/2025/10/20/jannik-sinner-italy-davis-cup-finals-out-alcaraz-spain/
-
-**Louvre Remains Closed Day After Brazen Jewel Heist**\
-`The Louvre museum in Paris remained closed on Monday after thieves stole priceless jewels in a brazen heist that lasted seven minutes and shocked the country.`\
-https://nytimes.com/video/world/europe/100000010468796/louvre-remains-closed-day-after-brazen-jewel-heist.html
-
-**Everton's Branthwaite to undergo surgery after hamstring injury 'complication'**\
-`Everton are now likely to be without the defender, a key player and one of their highest earners, for an extended period of time.`\
-https://nytimes.com/athletic/6732730/2025/10/20/jarrad-branthwaite-injury-surgery-everton/
 
