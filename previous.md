@@ -1,3 +1,15 @@
+**Inside Barcelona: El Clasico concerns, Araujo's anger, and talk of €1bn revenue**\
+`Our writers go through the biggest talking points at Barcelona right now, with El Clasico to come next Sunday`\
+https://nytimes.com/athletic/6732707/2025/10/20/barcelona-yamal-flick-araujo-clasico/
+
+**Australia Says Chinese Fighter Jet Released Flares Near Its Military Plane**\
+`The incident in the South China Sea on Sunday highlights tension in a region where China is demonstrating its growing military capabilities.`\
+https://nytimes.com/2025/10/20/world/asia/china-fighter-jets-australia.html
+
+**Commanders lost themselves during an 'embarrassing' showing against Cowboys**\
+`Sunday's debacle against Dallas was a microcosm of the Commanders' struggles this season, and time is running out.`\
+https://nytimes.com/athletic/6732390/2025/10/20/commanders-loss-cowboys-mistakes/
+
 **NHL weekend rankings: 5 surprising early stories I'm not buying quite yet**\
 `As you may have heard, this ranking prefers the long-term view. A bigger sample size is needed before some of these early mirages look real.`\
 https://nytimes.com/athletic/6731518/2025/10/20/nhl-weekend-rankings-devils-flames-wolf/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6732290/2025/10/20/cowboys-offense-points-dak-presc
 **Week 7 has back-to-back 'Monday Night Football' games. Here's how to watch both**\
 `It's another NFL week sealed off by multiple "MNF" broadcasts. Both games are worth watching, and they don't overlap this time.`\
 https://nytimes.com/athletic/6726863/2025/10/20/monday-night-football-how-to-watch-lions-bucs/
-
-**Christian McCaffrey runs — and catches — the show for 49ers in emotional win over Falcons**\
-`The shorthanded 49ers rode McCaffrey, who accounted for 201 yards rushing and receiving, to a big victory over Atlanta Sunday night.`\
-https://nytimes.com/athletic/6732521/2025/10/20/christian-mccaffrey-49ers-falcons-snf/
-
-**Giannis Antetokounmpo, Bucks hope competitive fire helps them surprise East, NBA**\
-`Sunday's practice energy fit into the recent reports the team has given about its work in training camp.`\
-https://nytimes.com/athletic/6731171/2025/10/20/bucks-giannis-antetokounmpo-east-playoffs-nba-defense/
-
-**Without Fred Warner, 49ers' defense plays with Warner-like intensity**\
-`Among the achievements for the 49ers' young defense Sunday: Holding Bijan Robinson to 2.9 yards a carry and Drake London to four receptions.`\
-https://nytimes.com/athletic/6732509/2025/10/20/49ers-falcons-snf-defense-fred-warner/
 
