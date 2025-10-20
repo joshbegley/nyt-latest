@@ -1,3 +1,19 @@
+**What we've learned about Bruins so far this season: Moral victories will have to do**\
+`New coach Marco Sturm’s job is rebuilding organizational culture. Wins are secondary. That is a good thing, though maybe not an easy one.`\
+https://nytimes.com/athletic/6733336/2025/10/20/state-of-bruins-seven-games/
+
+**Colin Jost, Pete Davidson and the Staten Island Ferry Fiasco**\
+`Nearly four years after they bought an out-of-service ferryboat for $280,100, their plans for a floating event space may be running aground.`\
+https://nytimes.com/2025/10/20/style/colin-jost-pete-davidson-and-the-staten-island-ferry-fiasco.html
+
+**2025 Heisman Trophy odds: Three co-favorites highlight an open race**\
+`Ty Simpson, Julian Sayin and Fernando Mendoza are now co-favorites to win the Heisman Trophy after an upset-heavy Week 8.`\
+https://nytimes.com/athletic/6731684/2025/10/20/heisman-trophy-odds-sayin-simpson-mendoza/
+
+**Drance: What I learned from a lifetime of watching sports with my dad**\
+`The Athletic's Thomas Drance reflects on his relationship with his father, Jonathan, who died earlier this month.`\
+https://nytimes.com/athletic/6732347/2025/10/20/thomas-jonathan-drance-fathers-sons-sports/
+
 **How to watch Kraken vs. Flyers: Time, TV, streaming**\
 `Find out how to watch the Seattle Kraken play the Philadelphia Flyers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6733555/2025/10/20/kraken-vs-flyers-stream-how-to-watch-oct-20/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6733159/2025/10/20/nascar-talladega-takeaways-chase
 **With Rashee Rice back, can Patrick Mahomes finish as fantasy football's No. 1 quarterback?**\
 `KC Joyner explains how and why Patrick Mahomes could finish as fantasy's QB1, especially with Rashee Rice back in the fold. `\
 https://nytimes.com/athletic/6732838/2025/10/20/fantasy-football-rashee-rice-patrick-mahomes-top-qb/
-
-**Assessing Ottawa's early-season goaltending and defensive struggles**\
-`How much has the Senators' defensive and goaltending struggles contributed to their inauspicious 2-4-0 start? And what can they do about it?`\
-https://nytimes.com/athletic/6730689/2025/10/20/senators-goaltending-ullmark-merilainen/
-
-**Why Steal From the Louvre? It May Have More to Do With Stones Than Art.**\
-`Sunday’s robbery at the Paris museum could be the latest example of thieves targeting museums for jewels and precious metals to break down and sell on.`\
-https://nytimes.com/2025/10/20/arts/louvre-robbery-gems-precious-metals.html
-
-**This Fast Pantry Pasta Has a Really Good Twist**\
-`Melissa Clark goes all in on lemon in a new midnight pasta recipe.`\
-https://nytimes.com/2025/10/20/dining/this-fast-pantry-pasta-has-a-really-good-twist.html
-
-**Prison Guard Convicted in Fatal Beating Caught on Video, With 2 Acquitted**\
-`Footage of a group of guards punching, choking and stomping Robert L. Brooks ignited an outcry. Six guards pleaded guilty to charges.`\
-https://nytimes.com/2025/10/20/nyregion/marcy-prison-beating-murder-trial.html
 
