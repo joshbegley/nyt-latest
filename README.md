@@ -1,3 +1,7 @@
+**Prison Guard Convicted in Fatal Beating Caught on Video, With 2 Acquitted**\
+`Footage of a group of guards punching, choking and stomping Robert L. Brooks ignited an outcry. Six guards pleaded guilty to charges.`\
+https://nytimes.com/2025/10/20/nyregion/marcy-prison-beating-murder-trial.html
+
 **Lowetide: Why are the Oilers struggling to find lines that work?**\
 `The Oilers' offensive identity appears to involve uncertainty, lack of aggression and five-on-five goals.`\
 https://nytimes.com/athletic/6730878/2025/10/20/edmonton-oilers-lines-mcdavid-draisaitl-knoblauch/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010468796/louvre-remains-closed-day
 **Everton's Branthwaite to undergo surgery after hamstring injury 'complication'**\
 `Everton are now likely to be without the defender, a key player and one of their highest earners, for an extended period of time.`\
 https://nytimes.com/athletic/6732730/2025/10/20/jarrad-branthwaite-injury-surgery-everton/
-
-**NBC cooks up 'National Running Backs Day' for 49ers-Falcons game**\
-`Two of the league's top running backs squared off on "Sunday Night Football" in the 49ers' Christian McCaffrey and Falcons' Bijan Robinson.`\
-https://nytimes.com/athletic/6732452/2025/10/20/nbc-national-running-backs-day-mccaffrey-robinson/
 

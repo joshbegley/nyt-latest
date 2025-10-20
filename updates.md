@@ -1,3 +1,11 @@
+**Lowetide: Why are the Oilers struggling to find lines that work?**\
+`The Oilers' offensive identity appears to involve uncertainty, lack of aggression and five-on-five goals.`\
+https://nytimes.com/athletic/6730878/2025/10/20/edmonton-oilers-lines-mcdavid-draisaitl-knoblauch/
+
+**Rodrigo Paz Wins Bolivia’s Presidential Runoff**\
+`Rodrigo Paz, a right-leaning centrist candidate who had emerged as a surprise front-runner in Bolivia’s presidential election, defeated his conservative opponent in a runoff that ended nearly two decades of leftist rule.`\
+https://nytimes.com/video/world/americas/100000010469074/bolivia-presidential-election-rodrigo-paz.html
+
 **Do You Recognize These Literary References in Modern Pop Culture?**\
 `Try this quiz about the bookish influences on Homer Simpson, Kate Bush and others to see how many connections you know.`\
 https://nytimes.com/interactive/2025/10/20/books/review/novels-culture-quiz.html

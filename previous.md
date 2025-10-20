@@ -1,3 +1,11 @@
+**Lowetide: Why are the Oilers struggling to find lines that work?**\
+`The Oilers' offensive identity appears to involve uncertainty, lack of aggression and five-on-five goals.`\
+https://nytimes.com/athletic/6730878/2025/10/20/edmonton-oilers-lines-mcdavid-draisaitl-knoblauch/
+
+**Rodrigo Paz Wins Bolivia’s Presidential Runoff**\
+`Rodrigo Paz, a right-leaning centrist candidate who had emerged as a surprise front-runner in Bolivia’s presidential election, defeated his conservative opponent in a runoff that ended nearly two decades of leftist rule.`\
+https://nytimes.com/video/world/americas/100000010469074/bolivia-presidential-election-rodrigo-paz.html
+
 **Do You Recognize These Literary References in Modern Pop Culture?**\
 `Try this quiz about the bookish influences on Homer Simpson, Kate Bush and others to see how many connections you know.`\
 https://nytimes.com/interactive/2025/10/20/books/review/novels-culture-quiz.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6732730/2025/10/20/jarrad-branthwaite-injury-surger
 **NBC cooks up 'National Running Backs Day' for 49ers-Falcons game**\
 `Two of the league's top running backs squared off on "Sunday Night Football" in the 49ers' Christian McCaffrey and Falcons' Bijan Robinson.`\
 https://nytimes.com/athletic/6732452/2025/10/20/nbc-national-running-backs-day-mccaffrey-robinson/
-
-**Supreme Court Will Weigh Gun Restrictions for Drug Users**\
-`The Second Amendment case tests a federal law used to convict Hunter Biden that bars drug users and addicts from possessing guns.`\
-https://nytimes.com/2025/10/20/us/politics/supreme-court-gun-drug-users.html
-
-**Notre Dame-USC final thoughts: Love and Price's dominance, CJ Carr's 'off game'**\
-`Saturday’s 34-24 victory over USC paves the road for a march back to the College Football Playoff for Marcus Freeman and company.`\
-https://nytimes.com/athletic/6732924/2025/10/20/notre-dame-usc-highlights-film-review/
 
