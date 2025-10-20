@@ -1,3 +1,7 @@
+**Word of the Day: lionize**\
+`This word has appeared in 11 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/20/learning/word-of-the-day-lionize.html
+
 **In China, a Forbidden Question Looms: Who Leads After Xi?**\
 `Xi Jinping seems to believe that only his continued rule can secure China’s rise. But as he ages, choosing a successor will become riskier and more difficult.`\
 https://nytimes.com/2025/10/20/world/asia/china-communist-succession-plenum.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6729176/2025/10/20/everton-beto-obrien-mykolenko-ev
 **Sunderland seize the moment to bridge the chasm to Premier League status**\
 `Victory against Wolverhampton Wanderers hoisted Regis Le Bris' side into seventh and further away from the condemned near the foot`\
 https://nytimes.com/athletic/6730064/2025/10/20/sunderland-wolves-keel-mukiele/
-
-**Mateta's mad afternoon: A hat-trick, but costly misses continue**\
-`A performance that summed up Crystal Palace's talented striker`\
-https://nytimes.com/athletic/6728327/2025/10/20/crystal-palace-mateta-hattrick/
 

@@ -1,3 +1,7 @@
+**Word of the Day: lionize**\
+`This word has appeared in 11 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/20/learning/word-of-the-day-lionize.html
+
 **In China, a Forbidden Question Looms: Who Leads After Xi?**\
 `Xi Jinping seems to believe that only his continued rule can secure China’s rise. But as he ages, choosing a successor will become riskier and more difficult.`\
 https://nytimes.com/2025/10/20/world/asia/china-communist-succession-plenum.html
