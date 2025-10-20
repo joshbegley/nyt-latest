@@ -1,3 +1,7 @@
+**Broncos Complete Stunning Comeback to Beat Giants**\
+`The Denver Broncos pulled off one of the most thrilling comebacks in N.F.L. history in Week 7, erasing a 19-point deficit to beat the New York Giants.`\
+https://nytimes.com/video/the-athletic/100000010467325/broncos-complete-stunning-comeback-to-beat-giants.html
+
 **Chargers defense must improve or season is going to slip away: 'We looked like trash'**\
 `Derwin James: “We haven’t been ourselves on defense, starting with myself as a captain. We got to get it fixed.”`\
 https://nytimes.com/athletic/6732245/2025/10/19/chargers-defense-loss-colts/
