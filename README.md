@@ -3,7 +3,7 @@
 https://nytimes.com/2025/10/19/nyregion/mamdani-cuomo-campaign-new-york.html
 
 **Broncos Complete Stunning Comeback to Beat Giants**\
-`The Denver Broncos pulled off one of the biggest comebacks in N.F.L. history in Week 7, erasing an 18-point deficit late in the fourth quarter to beat the New York Giants.`\
+`The Denver Broncos pulled off one of the most thrilling comebacks in N.F.L. history in Week 7, erasing an 19-point deficit in the fourth quarter to beat the New York Giants.`\
 https://nytimes.com/video/the-athletic/100000010467325/broncos-complete-stunning-comeback-to-beat-giants.html
 
 **'This joint might work:' How the Broncos capped a historic comeback to topple Giants**\
@@ -18,8 +18,8 @@ https://nytimes.com/athletic/6732176/2025/10/19/argentina-morocco-u20-world-cup-
 `A further increase in China’s trade surplus failed to fully offset the effects of a worsening housing market, which has left consumers wary.`\
 https://nytimes.com/2025/10/19/business/china-economy-gdp-q3.html
 
-**'The feeling of losing' propelled Jalen Hurts and the Eagles to victory after mini-bye**\
-`Teammates described the look in Hurts' eye during their win against Vikings.`\
+**'The feeling of losing' propelled Jalen Hurts, Eagles to victory after mini-bye**\
+`Teammates described the look in Hurts' eye during their win against the Vikings. He had 326 yards, three TDs and a 158.3 passer rating.`\
 https://nytimes.com/athletic/6732007/2025/10/19/jalen-hurts-eagles-win-vikings/
 
 **Emirates Cargo Plane Slides Off Hong Kong Runway, Killing 2 Ground Crew**\

@@ -1,3 +1,15 @@
+**Mamdani and Cuomo Make Their Cases in Last Weekend Before Early Voting**\
+`As the New York City mayoral campaign enters its final weeks, the candidates appeared at a forum at Queens College and at a soccer tournament in Coney Island.`\
+https://nytimes.com/2025/10/19/nyregion/mamdani-cuomo-campaign-new-york.html
+
+**Broncos Complete Stunning Comeback to Beat Giants**\
+`The Denver Broncos pulled off one of the biggest comebacks in N.F.L. history in Week 7, erasing an 18-point deficit late in the fourth quarter to beat the New York Giants.`\
+https://nytimes.com/video/the-athletic/100000010467325/broncos-complete-stunning-comeback-to-beat-giants.html
+
+**'This joint might work:' How the Broncos capped a historic comeback to topple Giants**\
+`The Broncos finished a furious fourth-quarter charge with a play for Courtland Sutton that was first installed Saturday.`\
+https://nytimes.com/athletic/6732077/2025/10/19/broncos-comeback-giants-sutton-nix-payton/
+
 **Morocco stuns Argentina 2-0 to win first U20 World Cup title**\
 `Argentina were seeking their seventh U20 men's title but were instead stunned by two well-taken first-half goals from Morocco.`\
 https://nytimes.com/athletic/6732176/2025/10/19/argentina-morocco-u20-world-cup-yassir-zabiri/
