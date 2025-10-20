@@ -1,3 +1,15 @@
+**Mamdani and Cuomo Make Their Cases in Last Weekend Before Early Voting**\
+`As the New York City mayoral campaign enters its final weeks, the candidates appeared at a forum at Queens College and at a soccer tournament in Coney Island.`\
+https://nytimes.com/2025/10/19/nyregion/mamdani-cuomo-campaign-new-york.html
+
+**Broncos Complete Stunning Comeback to Beat Giants**\
+`The Denver Broncos pulled off one of the biggest comebacks in N.F.L. history in Week 7, erasing an 18-point deficit late in the fourth quarter to beat the New York Giants.`\
+https://nytimes.com/video/the-athletic/100000010467325/broncos-complete-stunning-comeback-to-beat-giants.html
+
+**'This joint might work:' How the Broncos capped a historic comeback to topple Giants**\
+`The Broncos finished a furious fourth-quarter charge with a play for Courtland Sutton that was first installed Saturday.`\
+https://nytimes.com/athletic/6732077/2025/10/19/broncos-comeback-giants-sutton-nix-payton/
+
 **Morocco stuns Argentina 2-0 to win first U20 World Cup title**\
 `Argentina were seeking their seventh U20 men's title but were instead stunned by two well-taken first-half goals from Morocco.`\
 https://nytimes.com/athletic/6732176/2025/10/19/argentina-morocco-u20-world-cup-yassir-zabiri/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/19/fashion/vintage-wristwatches.html
 **How DeVonta Smith advocated for the deep ball and helped snap Eagles' losing streak**\
 `The Eagles found their passing game again against the Vikings. `\
 https://nytimes.com/athletic/6730881/2025/10/19/devonta-smith-hurts-eagles-vikings/
-
-**Leon Draisaitl says it's on him to spark the Oilers' offence. Should it be?**\
-`"I just have to take a look in the mirror and figure out something to be better," Draisaitl said. The Oilers lost to the Red Wings 4-2.`\
-https://nytimes.com/athletic/6731911/2025/10/19/oilers-loss-red-wings-offence-leon-draisaitl/
-
-**The Need for a Watch Strap Inspired a Business**\
-`Howard Riady bought a vintage watch with a worn strap in 2014. Three years later, he founded Veblenist, which specializes in unusual materials.`\
-https://nytimes.com/2025/10/19/fashion/watch-strap-veblenist-chicago.html
-
-**Jets coach Aaron Glenn needs a Jaxson Dart … but he needs to help himself first**\
-`For the second straight week, Glenn presided over some play-calling follies at the end of the first half and got himself and his team booed.`\
-https://nytimes.com/athletic/6731884/2025/10/19/jets-panthers-aaron-glenn/
 
