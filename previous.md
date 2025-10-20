@@ -1,3 +1,7 @@
+**Scoop City: Risers and fallers after Sunday of Week 7**\
+`Risers and fallers after Sunday of Week 7, including Jonathan Taylor's MVP odds, plus key matchups for tonight's quarterbacks. `\
+https://nytimes.com/athletic/6733940/2025/10/20/week-7-risers-fallers-nfl-colts-chiefs-dolphins-scoop-city/
+
 **A Boston Restaurant Displayed Whitey Bulger’s Mug Shot. An Uproar Ensued.**\
 `The owners of Savin Bar & Kitchen have so far rejected requests from residents to remove photos of gangsters who terrorized the city for decades.`\
 https://nytimes.com/2025/10/20/us/a-boston-restaurant-displayed-whitey-bulgers-mug-shot-an-uproar-ensued.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/20/opinion/letters/no-kings-protests-trump.html
 **Albert Pujols no longer a candidate in Angels managerial search**\
 `At one point, sources had said that the job was essentially Pujols' if he wanted it, but the situation has changed. `\
 https://nytimes.com/athletic/6733619/2025/10/20/albert-pujols-angels-manager-not-candidate/
-
-**He Turned His High School Closet Into a Vintage Shopping Mecca**\
-`Marcus Allen never threw away the Abercrombie and Gap wardrobe of his teenage years. Now, those clothes are more in demand than ever.`\
-https://nytimes.com/2025/10/20/style/the-society-archive-vintage-mall-clothes.html
 

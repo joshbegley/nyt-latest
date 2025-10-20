@@ -1,3 +1,7 @@
+**Scoop City: Risers and fallers after Sunday of Week 7**\
+`Risers and fallers after Sunday of Week 7, including Jonathan Taylor's MVP odds, plus key matchups for tonight's quarterbacks. `\
+https://nytimes.com/athletic/6733940/2025/10/20/week-7-risers-fallers-nfl-colts-chiefs-dolphins-scoop-city/
+
 **A Boston Restaurant Displayed Whitey Bulger’s Mug Shot. An Uproar Ensued.**\
 `The owners of Savin Bar & Kitchen have so far rejected requests from residents to remove photos of gangsters who terrorized the city for decades.`\
 https://nytimes.com/2025/10/20/us/a-boston-restaurant-displayed-whitey-bulgers-mug-shot-an-uproar-ensued.html
