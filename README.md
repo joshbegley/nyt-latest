@@ -1,4 +1,8 @@
-**Giants-Broncos takeaways: Broncos overcome 18-point fourth-quarter deficit**\
+**Colts-Chargers takeaways: Jonathan Taylor, Daniel Jones torch L.A. defense**\
+`Colts win third straight and improve to 6-1, taking advantage of a porous Chargers defense and two Justin Herbert interceptions.`\
+https://nytimes.com/athletic/6731797/2025/10/19/colts-chargers-score-result-takeaways-nfl/
+
+**Giants-Broncos takeaways: Broncos overcome 19-point fourth-quarter deficit**\
 `Jaxson Dart throws three touchdown passes but the Broncos mount improbable rally.`\
 https://nytimes.com/athletic/6730755/2025/10/19/giants-broncos-score-result-takeaways-nfl/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6731107/2025/10/19/rams-offense-matthew-stafford-da
 **Mike Vrabel has taken over and turned the Patriots into legitimate contenders**\
 `Vrabel made his return to Tennessee to face his old team, and his Patriots didn't disappoint, topping the Titans 31-13.`\
 https://nytimes.com/athletic/6731688/2025/10/19/patriots-titans-mike-vrabel-afc-east-contenders/
-
-**For Alaskan Evacuees, Home Is Gone, With No Return in Sight**\
-`Their communities devastated from last weekend’s storm, many are in shelters in Anchorage and facing life in a completely different world.`\
-https://nytimes.com/2025/10/19/us/alaska-storm-flooding-evacuations.html
 
