@@ -1,3 +1,7 @@
+**NFL Week 8 odds, spreads: Ravens open as touchdown favorites vs. Bears**\
+`A shortened slate for Week 8 features several big favorites and lower point totals. Will anyone upset the wagon?`\
+https://nytimes.com/athletic/6733206/2025/10/20/nfl-week-8-odds-spreads-ravens-bears/
+
 **College football Week 9 odds: Oklahoma-Ole Miss, Vanderbilt-Missouri, LSU-Texas A&M**\
 `All three of this week's Top 25 matchups come from the SEC. Vanderbilt's surprise run continues with another big game.`\
 https://nytimes.com/athletic/6733414/2025/10/20/college-football-week-9-odds-vanderbilt-missouri-ole-miss-oklahoma/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6731684/2025/10/20/heisman-trophy-odds-sayin-simpso
 **Drance: What I learned from a lifetime of watching sports with my dad**\
 `The Athletic's Thomas Drance reflects on his relationship with his father, Jonathan, who died earlier this month.`\
 https://nytimes.com/athletic/6732347/2025/10/20/thomas-jonathan-drance-fathers-sons-sports/
-
-**How to watch Kraken vs. Flyers: Time, TV, streaming**\
-`Find out how to watch the Seattle Kraken play the Philadelphia Flyers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6733555/2025/10/20/kraken-vs-flyers-stream-how-to-watch-oct-20/
 

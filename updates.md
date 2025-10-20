@@ -1,3 +1,15 @@
+**College football Week 9 odds: Oklahoma-Ole Miss, Vanderbilt-Missouri, LSU-Texas A&M**\
+`All three of this week's Top 25 matchups come from the SEC. Vanderbilt's surprise run continues with another big game.`\
+https://nytimes.com/athletic/6733414/2025/10/20/college-football-week-9-odds-vanderbilt-missouri-ole-miss-oklahoma/
+
+**What to Know About the ICE Raid at a Hyundai Plant**\
+`ICE and other law enforcement agencies detained nearly 500 workers in Georgia in September. Farah Stockman, who covers manufacturing for The New York Times, describes the fallout from the incident and what could be next for foreign factory investments in the U.S.`\
+https://nytimes.com/video/business/energy-environment/100000010437465/what-to-know-about-the-ice-raid-at-a-hyundai-plant.html
+
+**Red Bull hit with €50k fine after team member tried removing McLaren grid tape**\
+`Half of the fine was suspended for the rest of the season, barring any repeat breaches.`\
+https://nytimes.com/athletic/6733578/2025/10/20/red-bull-lando-norris-grid-tape/
+
 **Red Bull hit with $50k fine after team member tried removing McLaren grid tape**\
 `$25,000 of the fine was suspended for the rest of the season, barring any repeat breaches.`\
 https://nytimes.com/athletic/6733578/2025/10/20/red-bull-lando-norris-grid-tape/
