@@ -1,3 +1,11 @@
+**Where’s the Beef? Trump Hopes Argentina Can Help Bring Down Meat Prices.**\
+`President Trump’s plan to import red meat runs counter to his philosophy of increasing domestic production, and has angered cattle ranchers in the United States.`\
+https://nytimes.com/2025/10/20/us/politics/trump-argentina-beef.html
+
+**U.S., Mexico, Costa Rica, Jamaica announces 2031 Women's World Cup bid**\
+`Hosts will be officially confirmed at the FIFA Congress on April 30, 2026 in Vancouver.`\
+https://nytimes.com/athletic/6734691/2025/10/20/united-states-mexico-costa-rica-jamaica-womens-world-cup-bid/
+
 **A Chinese Woman Builds a New Career in a Man’s World**\
 `An all-female repair business is challenging gender norms in China and catering to a growing population of single women seeking safety and comfort at home. We spoke to Ray Hou, who quit her office job to become a professional handywoman, about what motivated her to start a new career.`\
 https://nytimes.com/video/world/asia/100000010303871/china-women-new-careers.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/20/opinion/george-santos-trump-pardon.html
 **On a Terrace in Milan, a Gathering of Creative Expats**\
 `Having adopted the Italian city as her home, the German-born fashion designer Tina Lutz Morris threw a housewarming party filled with others who’ve done the same.`\
 https://nytimes.com/2025/10/20/t-magazine/tina-lutz-morris-milan.html
-
-**Commanders get good news about Jayden Daniels but lose another defender for the season**\
-`Daniels did not suffer a "significant" or "long-term" injury to his right hamstring, Commanders coach Dan Quinn said on Monday.`\
-https://nytimes.com/athletic/6733825/2025/10/20/jayden-daniels-hamstring-chiefs/
-
-**Golden Knights captain Mark Stone considered 'week to week' with injury**\
-`Mark Stone is currently second in the NHL with 13 points, trailing only his teammate Jack Eichel (15).`\
-https://nytimes.com/athletic/6734527/2025/10/20/golden-knights-mark-stone-injury-2/
 
