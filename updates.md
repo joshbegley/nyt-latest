@@ -1,3 +1,11 @@
+**Maguire has fully redeemed himself at Man Utd. Has he also kickstarted Amorim's tenure?**\
+`Manchester United managed a huge victory over Liverpool, with Harry Maguire scoring the late winning goal`\
+https://nytimes.com/athletic/6731985/2025/10/20/man-utd-harry-maguire-ruben-amorim/
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/20/crosswords/spelling-bee-forum.html
+
 **Word of the Day: lionize**\
 `This word has appeared in 11 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/10/20/learning/word-of-the-day-lionize.html

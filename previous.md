@@ -1,3 +1,11 @@
+**Maguire has fully redeemed himself at Man Utd. Has he also kickstarted Amorim's tenure?**\
+`Manchester United managed a huge victory over Liverpool, with Harry Maguire scoring the late winning goal`\
+https://nytimes.com/athletic/6731985/2025/10/20/man-utd-harry-maguire-ruben-amorim/
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/20/crosswords/spelling-bee-forum.html
+
 **Word of the Day: lionize**\
 `This word has appeared in 11 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/10/20/learning/word-of-the-day-lionize.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6732228/2025/10/20/blackhawks-frank-nazar-spencer-k
 **Newcastle's away form is simply not good enough. Howe has many issues to address**\
 `Newcastle's away day woes continued at Brighton. Why can't Eddie Howe's team win on the road?`\
 https://nytimes.com/athletic/6728164/2025/10/20/newcastle-away-form-trends-eddie-howe/
-
-**Everton's evolution can only go so far unless key issues are addressed**\
-`If David Moyes' team are to push on, they will need to find a way of being more clinical and coaxing out more from their full-backs`\
-https://nytimes.com/athletic/6729176/2025/10/20/everton-beto-obrien-mykolenko-evolution/
-
-**Sunderland seize the moment to bridge the chasm to Premier League status**\
-`Victory against Wolverhampton Wanderers hoisted Regis Le Bris' side into seventh and further away from the condemned near the foot`\
-https://nytimes.com/athletic/6730064/2025/10/20/sunderland-wolves-keel-mukiele/
 
