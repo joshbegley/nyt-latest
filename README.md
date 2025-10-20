@@ -1,3 +1,19 @@
+**From YouTube to the PGA Tour: Good Good will sponsor new event**\
+`The fall tournament is also a return to Austin, Texas for the PGA Tour.`\
+https://nytimes.com/athletic/6731844/2025/10/20/good-good-championship-pga-tour-austin/
+
+**Lawmaker Demands Hearing on U.S. Strikes on Boats in Caribbean**\
+`Representative Adam Smith said the Trump administration had failed to provide a legal rationale for killing rather than arresting drug trafficking suspects.`\
+https://nytimes.com/2025/10/20/us/politics/congress-boat-strikes-caribbean.html
+
+**How to watch Giannis and the Milwaukee Bucks this season**\
+`With Giannis still around (for now), the Bucks will be featured on national TV often. Here's how to tune in to all of their games.`\
+https://nytimes.com/athletic/6730095/2025/10/20/milwaukee-bucks-giannis-games-tv-how-to-watch/
+
+**Inside Real Madrid: Will Endrick leave on loan? Who will miss El Clasico?**\
+`Our writers go through the biggest talking points at Real Madrid right now, with the visit of Barcelona to come on Sunday`\
+https://nytimes.com/athletic/6732839/2025/10/20/real-madrid-getafe-alonso-endrick-barcelona-clasico/
+
 **Draymond Green has advice for Brandin Podziemski. Lots of it**\
 `Brandin Podziemski said he wants to be a future leader for Golden State. Green knows what comes with such words.`\
 https://nytimes.com/athletic/6732285/2025/10/20/draymond-green-warriors-podziemski-future-advice/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6732855/2025/10/20/ferrari-2025-us-grand-prix/
 **The Showdown Behind the Shutdown**\
 `Extending subsidies for the Affordable Care Act has emerged as a major sticking point in Washington, and could carry the biggest economic consequences.`\
 https://nytimes.com/2025/10/20/business/dealbook/health-care-shutdown.html
-
-**Trump Administration Live Updates: President to Meet With Australia’s Leader in Washington**\
-``\
-https://nytimes.com/live/2025/10/20/us/trump-news
-
-**Vision Restored Using Prosthetic Retinal Implant**\
-`The device could help a million people with a severe form of macular degeneration to be able to see enough to read.`\
-https://nytimes.com/2025/10/20/health/retinal-implant-macular-degeneration.html
-
-**Ari Emanuel Buys TodayTix, Gaining Footing on Broadway and West End**\
-`The ticketing company is already a significant player in the two big theater markets of New York and London.`\
-https://nytimes.com/2025/10/20/theater/todaytix-broadway-tickets-ari-emanuel.html
-
-**How to watch the upstart Detroit Pistons in the 2025-26 season**\
-`Following a return to the playoffs, the Pistons could be on the cusp of a breakout year. See how to watch Cade Cunningham's team all season.`\
-https://nytimes.com/athletic/6724015/2025/10/20/detroit-pistons-tv-streaming-peacock-how-to-watch/
 
