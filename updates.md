@@ -1,3 +1,11 @@
+**Former NFL RB Doug Martin died in Oakland police custody**\
+`Oakland PD says Martin was detained for his alleged involvement in a residential break-in.`\
+https://nytimes.com/athletic/6734641/2025/10/20/doug-martin-died-oakland-police-custody/
+
+**Facade of White House’s East Wing Torn Off to Make Way for Trump’s Ballroom**\
+`The president had pledged that construction wouldn’t “interfere with the current building,” a promise that always seemed unrealistic given the grand scale of the plans.`\
+https://nytimes.com/2025/10/20/us/politics/trump-white-house-east-wing-demolition-ballroom.html
+
 **Trying to Loosen China’s Grip on Critical Minerals, Trump Turns to Australia**\
 `The United States hopes to become less dependent on China by increasing access to mineral-rich countries. Rare earth metals are vital to an array of modern industries.`\
 https://nytimes.com/2025/10/20/us/politics/china-critical-minerals-trump-australia.html
