@@ -1,3 +1,19 @@
+**Disney+ Cancellations Jump After Kimmel Suspension**\
+`Roughly three million Americans canceled the streaming service in the month that it temporarily suspended Jimmy Kimmel’s show. About 4.1 million people canceled Disney-owned Hulu.`\
+https://nytimes.com/2025/10/20/business/media/disney-subscription-cancellations-kimmel.html
+
+**Fantasy football Week 7 recap and early waivers speed run: Two RBs to add ASAP**\
+`Plus, clarity in Carolina's backfield and a breakout performance from a tight end.`\
+https://nytimes.com/athletic/6733715/2025/10/20/fantasy-football-week-7-recap-and-early-waivers-speed-run-two-rbs-to-add-asap/
+
+**Wisconsin AD supports Luke Fickell after back-to-back shutout losses**\
+`Athletic director Chris McIntosh also said that Wisconsin plans to increase its financial investment in the football program. `\
+https://nytimes.com/athletic/6733617/2025/10/20/wisconsin-supports-luke-fickell-coach/
+
+**Subway Comes Apart While in Service**\
+`Two train cars detached on a No. 4 train heading into Manhattan from the Bronx on Sunday. No injuries were reported.`\
+https://nytimes.com/2025/10/20/nyregion/subway-cars-decouple.html
+
 **A Newborn Girl Is Abandoned at a Penn Station Subway Stop**\
 `It was unclear who left the baby in a passageway that leads to the No. 1 train, the police said. She was in stable condition.`\
 https://nytimes.com/2025/10/20/nyregion/abandoned-baby-penn-station.html

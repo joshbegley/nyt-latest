@@ -1,3 +1,19 @@
+**Disney+ Cancellations Jump After Kimmel Suspension**\
+`Roughly three million Americans canceled the streaming service in the month that it temporarily suspended Jimmy Kimmel’s show. About 4.1 million people canceled Disney-owned Hulu.`\
+https://nytimes.com/2025/10/20/business/media/disney-subscription-cancellations-kimmel.html
+
+**Fantasy football Week 7 recap and early waivers speed run: Two RBs to add ASAP**\
+`Plus, clarity in Carolina's backfield and a breakout performance from a tight end.`\
+https://nytimes.com/athletic/6733715/2025/10/20/fantasy-football-week-7-recap-and-early-waivers-speed-run-two-rbs-to-add-asap/
+
+**Wisconsin AD supports Luke Fickell after back-to-back shutout losses**\
+`Athletic director Chris McIntosh also said that Wisconsin plans to increase its financial investment in the football program. `\
+https://nytimes.com/athletic/6733617/2025/10/20/wisconsin-supports-luke-fickell-coach/
+
+**Subway Comes Apart While in Service**\
+`Two train cars detached on a No. 4 train heading into Manhattan from the Bronx on Sunday. No injuries were reported.`\
+https://nytimes.com/2025/10/20/nyregion/subway-cars-decouple.html
+
 **A Newborn Girl Is Abandoned at a Penn Station Subway Stop**\
 `It was unclear who left the baby in a passageway that leads to the No. 1 train, the police said. She was in stable condition.`\
 https://nytimes.com/2025/10/20/nyregion/abandoned-baby-penn-station.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6733600/2025/10/20/nhl-central-scouting-2026-draft-
 **Kale Caesar Pasta Salad**\
 `Caesar salad meets pasta salad in this comfort food mash-up. Crisp and sturdy kale leaves hold their own alongside al dente pasta when tossed in a thick and creamy Caesar-inspired, mayonnaise-based dressing.`\
 https://nytimes.com/video/dining/100000010469307/kale-caesar-pasta-salad.html
-
-**Meat Is Back at Eleven Madison Park**\
-`The New York Times’s contributor Luke Fortney stops by Eleven Madison Park to try its newly revived meat offerings, including their famous duck`\
-https://nytimes.com/video/dining/100000010469276/meat-is-back-at-eleven-madison-park.html
-
-**Finally, Some Common-Sense A.I. Regulation**\
-`Kevin Roose and Casey Newton, the hosts of “Hard Fork” at The New York Times, discuss the slate of new artificial intelligence laws recently passed in California.`\
-https://nytimes.com/video/podcasts/100000010469314/finally-some-common-sense-ai-regulation.html
-
-**After an ICE Raid in Rural Georgia, Hyundai Keeps Betting on America**\
-`The revival of America’s industrial base is happening amid pine forests and peanut farms. And it’s being led by a South Korean company.`\
-https://nytimes.com/2025/10/20/business/hyundai-lg-investment-america-georgia-raid.html
-
-**Restaurant Review: Emeril’s**\
-`Emeril Lagasse’s son has completely reworked Emeril’s, his father’s 35-year-old flagship restaurant in the Warehouse District of New Orleans. Tejal Rao, a chief restaurant critic for The New York Times, shares her review.`\
-https://nytimes.com/video/dining/100000010469155/restaurant-review-emerils.html
 
