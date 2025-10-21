@@ -1,3 +1,19 @@
+**Five Major Changes Trump Is Making to the White House**\
+`In less than a year, President Trump has already significantly remade the White House. Here is what to know about five key renovations.`\
+https://nytimes.com/interactive/2025/10/21/us/politics/trump-white-house-renovations.html
+
+**How to watch Cowboys vs. Broncos: Time, TV, streaming**\
+`Find out how to watch the Dallas Cowboys play the Denver Broncos, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6738276/2025/10/21/cowboys-vs-broncos-stream-how-to-watch-oct-26/
+
+**How to watch Titans vs. Colts: Time, TV, streaming**\
+`Find out how to watch the Tennessee Titans play the Indianapolis Colts, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6738274/2025/10/21/titans-vs-colts-stream-how-to-watch-oct-26/
+
+**How to watch Buccaneers vs. Saints: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Buccaneers play the New Orleans Saints, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6738258/2025/10/21/buccaneers-vs-saints-stream-how-to-watch-oct-26/
+
 **What to Know About Trump’s Plan for a Triumphal Arch in Washington**\
 `President Trump has proposed construction of an arch in the style of the Arc de Triomphe in Washington in the lead-up to the nation’s 250th anniversary.`\
 https://nytimes.com/2025/10/21/us/politics/trump-arch-washington-memorial.html
