@@ -1,3 +1,7 @@
+**Is Ohio State heading for a repeat? Why the Buckeyes will (and won't) win another title**\
+`Ohio State has looked like college football's best team through seven games. What's going right? And what could still hold it back?`\
+https://nytimes.com/athletic/6734909/2025/10/21/ohio-state-national-championship-playoff-chances/
+
 **G.M.’s Profit Falls on Tariffs and E.V. Costs**\
 `The automaker’s shares jumped as investors focused on an upgraded forecast for some financial measures, as well as a lower-than-expected bill for tariffs this year.`\
 https://nytimes.com/2025/10/21/business/general-motors-earnings-tariffs-evs.html

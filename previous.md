@@ -1,3 +1,7 @@
+**Is Ohio State heading for a repeat? Why the Buckeyes will (and won't) win another title**\
+`Ohio State has looked like college football's best team through seven games. What's going right? And what could still hold it back?`\
+https://nytimes.com/athletic/6734909/2025/10/21/ohio-state-national-championship-playoff-chances/
+
 **G.M.’s Profit Falls on Tariffs and E.V. Costs**\
 `The automaker’s shares jumped as investors focused on an upgraded forecast for some financial measures, as well as a lower-than-expected bill for tariffs this year.`\
 https://nytimes.com/2025/10/21/business/general-motors-earnings-tariffs-evs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6735988/2025/10/21/jsn-seahawks-texans-jaxon-smith-
 **Alaba set to miss El Clasico in latest Real Madrid defensive injury**\
 `Madrid are already without Dean Huijsen, Antonio Rudiger, Dani Carvajal and Trent Alexander-Arnold through injury.`\
 https://nytimes.com/athletic/6736265/2025/10/21/david-alaba-real-madrid-clasico-injury/
-
-**How chirping became a 'lost art' in the NHL — and why not every player is a fan**\
-`As the league has changed over time and players think twice about what's said on the ice, chirping in the NHL is less "ruthless" than ever.`\
-https://nytimes.com/athletic/6316254/2025/10/21/nhl-chirping-trash-talk-brad-marchand-tkachuk/
 
