@@ -1,3 +1,7 @@
+**We Investigated Assad’s Fugitive Henchmen**\
+`Haley Willis and Christiaan Triebert, reporters from the Times’s Visual Investigations team, share findings from their ongoing reporting project on the roles and whereabouts of henchmen for Bashar al-Assad, the former Syrian president.`\
+https://nytimes.com/video/world/middleeast/100000010470417/we-investigated-assads-fugitive-henchmen.html
+
 **What Brandon Graham's impending return from retirement means for the Eagles**\
 `The news comes after Za'Darius Smith's sudden retirement announcement.`\
 https://nytimes.com/athletic/6735248/2025/10/20/brandon-graham-finalizing-eagles-return-retirement/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/20/us/politics/trump-national-guard-chicago.html
 **2022 draftees Jalen Duren, Jaden Ivey will be restricted free agents**\
 `The Pistons didn't extend their two prizes from the 2022 NBA Draft. What does that mean for the next stage of their rebuild?`\
 https://nytimes.com/athletic/6734862/2025/10/20/jalen-duren-jaden-ivey-pistons-rookie-scale-contract-extension/
-
-**How to watch Texas A&M vs. LSU: Time, TV, streaming**\
-`Find out how to watch the Texas A&M Aggies play the LSU Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6735162/2025/10/20/how-to-watch-no-3-texas-am-vs-no-20-lsu-tv-channel-and-streaming-options-for-october-25/
 

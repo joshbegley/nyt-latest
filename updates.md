@@ -1,3 +1,7 @@
+**We Investigated Assad’s Fugitive Henchmen**\
+`Haley Willis and Christiaan Triebert, reporters from the Times’s Visual Investigations team, share findings from their ongoing reporting project on the roles and whereabouts of henchmen for Bashar al-Assad, the former Syrian president.`\
+https://nytimes.com/video/world/middleeast/100000010470417/we-investigated-assads-fugitive-henchmen.html
+
 **What Brandon Graham's impending return from retirement means for the Eagles**\
 `The news comes after Za'Darius Smith's sudden retirement announcement.`\
 https://nytimes.com/athletic/6735248/2025/10/20/brandon-graham-finalizing-eagles-return-retirement/
