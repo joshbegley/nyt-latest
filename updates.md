@@ -1,3 +1,15 @@
+**A battle of stars in Dodgers-Blue Jays World Series: matchups, storylines and more**\
+`The reigning champion Dodgers will look to defeat the ascendant Blue Jays and become baseball’s first repeat winners in a quarter century.`\
+https://nytimes.com/athletic/6736350/2025/10/21/world-series-preview-dodgers-blue-jays-prediction/
+
+**Brian Daboll owns Giants' epic collapse, kicking woes continue, and Jaxson Dart shines**\
+`Plus, game management blunders are adding up.`\
+https://nytimes.com/athletic/6735547/2025/10/21/giants-brian-daboll-collapse-jaxson-dart/
+
+**On Ukraine and Russia, Lots of Talk but Little Has Changed**\
+`A contentious meeting between President Trump and President Volodymyr Zelensky of Ukraine produced no obvious progress toward a cease-fire.`\
+https://nytimes.com/2025/10/21/world/europe/ukraine-russia-trump-zelensky-meeting.html
+
 **Submit questions for Nate Atkins' Rams mailbag**\
 `Atkins will consider your questions for his upcoming mailbag with the Rams sitting at 5-2 at their bye week.`\
 https://nytimes.com/athletic/6736414/2025/10/21/rams-week-8-mailbag/
