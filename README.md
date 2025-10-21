@@ -1,3 +1,15 @@
+**Quiz: Do You Know Ball?**\
+`Test your knowledge of the real and fictional N.B.A.`\
+https://nytimes.com/interactive/2025/10/21/arts/television/basketball-quiz-nba-season-start.html
+
+**Penguins legends Sidney Crosby and Evgeni Malkin are desperately racing a ticking clock**\
+`Crosby and Malkin know this could be their final season together, and they're eager to help the Penguins exceed expectations.`\
+https://nytimes.com/athletic/6732374/2025/10/21/penguins-sidney-crosby-evgeni-malkin-nhl/
+
+**Fishlock wants to remain at Seattle Reign one more year**\
+`"I'm hoping to carry on for one more year," Fishlock told the BBC. "We're in the process of going through what that looks like right now."`\
+https://nytimes.com/athletic/6736922/2025/10/21/jess-fishlock-seattle-reign-retire/
+
 **Here is the latest on the storm.**\
 `By Judson Jones`\
 https://nytimes.com/live/2025/10/21/weather/tropical-storm-melissa-hurricane/here-is-the-latest-on-the-storm
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6736902/2025/10/21/devils-vs-maple-leafs-stream-how
 **Harper Lee’s Conflicted Loves Emerge in a New Collection**\
 `“The Land of Sweet Forever” includes stories and essays by a writer who grappled with her Southern roots.`\
 https://nytimes.com/2025/10/21/books/review/harper-lee-land-of-sweet-forever.html
-
-**How to watch Sharks vs. Islanders: Time, TV, streaming**\
-`Find out how to watch the San Jose Sharks play the New York Islanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6736897/2025/10/21/sharks-vs-islanders-stream-how-to-watch-oct-21/
-
-**How to watch Canucks vs. Penguins: Time, TV, streaming**\
-`Find out how to watch the Vancouver Canucks play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6736894/2025/10/21/canucks-vs-penguins-stream-how-to-watch-oct-21/
-
-**How to watch Oilers vs. Senators: Time, TV, streaming**\
-`Find out how to watch the Edmonton Oilers play the Ottawa Senators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6736892/2025/10/21/oilers-vs-senators-stream-how-to-watch-oct-21/
 

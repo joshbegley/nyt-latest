@@ -1,3 +1,15 @@
+**Here is the latest on the storm.**\
+`By Judson Jones`\
+https://nytimes.com/live/2025/10/21/weather/tropical-storm-melissa-hurricane/here-is-the-latest-on-the-storm
+
+**Tropical Storm Melissa Prompts Hurricane Watch in Haiti**\
+`The storm formed late Tuesday morning and is expected to move through the Caribbean this week.`\
+https://nytimes.com/live/2025/10/21/weather/tropical-storm-melissa-hurricane
+
+**Detroit**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/things-to-do-detroit
+
 **What Is Group 7? You’re Either in or You’re ‘No One.’**\
 `A “science experiment” by the singer Sophia James has people proudly declaring their membership in an exclusive group.`\
 https://nytimes.com/2025/10/21/style/tiktok-group-7-sophia-james.html
