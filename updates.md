@@ -1,3 +1,7 @@
+**Kompany signs new Bayern contract until 2029**\
+`The 39-year-old, who joined from Burnley in 2024, won the Bundesliga title with Bayern in his first season at the club.`\
+https://nytimes.com/athletic/6736217/2025/10/21/vincent-kompany-new-bayern-contract/
+
 **The Pulse: Toronto overcomes a powerful jinx**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6733489/2025/10/21/toronto-overcomes-a-powerful-jinx-plus-our-new-nfl-playoff-simulator/
