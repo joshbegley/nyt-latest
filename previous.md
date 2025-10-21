@@ -1,3 +1,7 @@
+**Antidepressant Side Effects Vary Widely by Drug, Study Finds**\
+`A new study compared the effects of 30 drugs on cholesterol, blood pressure and weight gain.`\
+https://nytimes.com/2025/10/21/well/antidepressant-side-effects.html
+
 **SpaceX, Sued by Popular Game Maker, Settles Trespassing Case**\
 `Cards Against Humanity had accused Elon Musk’s company of squatting on land that it owns near the southern border in Texas.`\
 https://nytimes.com/2025/10/21/us/spacex-cards-against-humanity-lawsuit-settlement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/21/style/louvre-heist-jewels-tour-guide.html
 **Fantasy football market share report: Add Brashard Smith, play DeVonta Smith**\
 `Michael Salfino looks at touches and targets to offer advice for Week 8, like making Kansas City rookie Brashard Smith a top waiver claim.`\
 https://nytimes.com/athletic/6737746/2025/10/21/fantasy-football-market-share-report-week-7/
-
-**Terry Farrell, Whose Buildings Embodied Late 20th-Century Extremes, Dies at 87**\
-`His architecture swung from austere to whimsical, with conspicuous projects like the sprawling headquarters of the British intelligence service MI6.`\
-https://nytimes.com/2025/10/21/arts/design/terry-farrell-dead.html
 

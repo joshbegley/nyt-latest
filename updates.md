@@ -1,3 +1,7 @@
+**Antidepressant Side Effects Vary Widely by Drug, Study Finds**\
+`A new study compared the effects of 30 drugs on cholesterol, blood pressure and weight gain.`\
+https://nytimes.com/2025/10/21/well/antidepressant-side-effects.html
+
 **SpaceX, Sued by Popular Game Maker, Settles Trespassing Case**\
 `Cards Against Humanity had accused Elon Musk’s company of squatting on land that it owns near the southern border in Texas.`\
 https://nytimes.com/2025/10/21/us/spacex-cards-against-humanity-lawsuit-settlement.html
