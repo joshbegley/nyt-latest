@@ -1,3 +1,7 @@
+**Using his head: Mariners' Josh Naylor called for interference on bizarre play**\
+`Running towards second, Naylor tried to break up a double play by jumping into the path of an incoming throw. `\
+https://nytimes.com/athletic/6735256/2025/10/20/mariners-josh-naylor-alcs-runners-interference/
+
 **How to watch Tennessee vs. Kentucky: Time, TV, streaming**\
 `Find out how to watch the Tennessee Volunteers play the Kentucky Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6735317/2025/10/20/tennessee-vs-kentucky-stream-how-to-watch-oct-25/
