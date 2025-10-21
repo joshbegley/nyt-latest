@@ -1,3 +1,11 @@
+**Vance Heads to Israel as U.S. Tries to Shore Up Gaza Truce**\
+`With the cease-fire deal under strain, Vice President JD Vance is set to meet with Prime Minister Benjamin Netanyahu and other leaders.`\
+https://nytimes.com/2025/10/21/world/middleeast/jd-vance-israel-gaza-ceasefire.html
+
+**Seahawks-Texans takeaways: Too much Jaxon Smith-Njigba, too much Seattle defense**\
+`The Seattle star receiver caught eight passes for 123 yards and the Seahawks harassed quarterback C.J. Stroud all night long to win 27-19.`\
+https://nytimes.com/athletic/6735120/2025/10/21/seahawks-texans-takeaways-mnf/
+
 **Nuno's new dawn at West Ham: Confusing tactics, a toothless attack and tension in the stands**\
 `The scale of the task taken on by the Portuguese was exposed as Brentford eased to a comfortable win at a mutinous London Stadium`\
 https://nytimes.com/athletic/6735209/2025/10/21/west-ham-nuno-brentford-wilson-tension/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/21/world/europe/tornado-paris-france.html
 **World Series odds: Dodgers favored to repeat against homer-heavy Blue Jays**\
 `The Dodgers are the clear favorite to win the World Series against the Blue Jays.`\
 https://nytimes.com/athletic/6735634/2025/10/21/world-series-odds-dodgers-blue-jays/
-
-**Pacers sign Aaron Nesmith to two-year, $40 million extension**\
-`Indiana rewards Nesmith’s elite two-way play and postseason heroics with security through the 2028-29 season.`\
-https://nytimes.com/athletic/6735640/2025/10/21/pacers-aaron-nesmith-extension/
-
-**Newcastle's new technical director: A former Microsoft data whizz with a 'sky-high IQ'**\
-`Appointed over the summer, Sudarshan Gopaladesikan has tasked himself with defining the DNA of the club's playing philosophy`\
-https://nytimes.com/athletic/6718447/2025/10/21/newcastle-technical-director-gopaladesikan/
 

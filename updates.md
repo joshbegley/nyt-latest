@@ -1,3 +1,7 @@
+**Nuno's new dawn at West Ham: Confusing tactics, a toothless attack and tension in the stands**\
+`The scale of the task taken on by the Portuguese was exposed as Brentford eased to a comfortable win at a mutinous London Stadium`\
+https://nytimes.com/athletic/6735209/2025/10/21/west-ham-nuno-brentford-wilson-tension/
+
 **The New York Times in Print for Tuesday, Oct. 21, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/21/todays-new-york-times

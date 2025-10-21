@@ -1,3 +1,7 @@
+**Nuno's new dawn at West Ham: Confusing tactics, a toothless attack and tension in the stands**\
+`The scale of the task taken on by the Portuguese was exposed as Brentford eased to a comfortable win at a mutinous London Stadium`\
+https://nytimes.com/athletic/6735209/2025/10/21/west-ham-nuno-brentford-wilson-tension/
+
 **The New York Times in Print for Tuesday, Oct. 21, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/21/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6735640/2025/10/21/pacers-aaron-nesmith-extension/
 **Newcastle's new technical director: A former Microsoft data whizz with a 'sky-high IQ'**\
 `Appointed over the summer, Sudarshan Gopaladesikan has tasked himself with defining the DNA of the club's playing philosophy`\
 https://nytimes.com/athletic/6718447/2025/10/21/newcastle-technical-director-gopaladesikan/
-
-**James Horncastle’s Serie A Briefing: Chivu calling the right plays for Inter**\
-`After a tough start the Romanian coach, and NFL fan, has his team on a winning streak`\
-https://nytimes.com/athletic/6732568/2025/10/21/horncastle-serie-a-briefing-inter-chivu/
 
