@@ -1,3 +1,7 @@
+**The New York Times in Print for Tuesday, Oct. 21, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/21/todays-new-york-times
+
 **As Blue Jays clinch World Series berth, Drake celebrates Toronto 'going to the big show'**\
 `Once again, two representatives from Los Angeles and Toronto find themselves at odds on a major stage.`\
 https://nytimes.com/athletic/6735709/2025/10/21/drake-toronto-blue-jays-world-series/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6718447/2025/10/21/newcastle-technical-director-gop
 **James Horncastle’s Serie A Briefing: Chivu calling the right plays for Inter**\
 `After a tough start the Romanian coach, and NFL fan, has his team on a winning streak`\
 https://nytimes.com/athletic/6732568/2025/10/21/horncastle-serie-a-briefing-inter-chivu/
-
-**The Manchester United second balls strategy that underpinned a famous Anfield victory**\
-`Ruben Amorim's approach on Sunday was designed to win possession in Liverpool's territory – and it worked `\
-https://nytimes.com/athletic/6732598/2025/10/21/man-utd-second-balls-anfield/
 
