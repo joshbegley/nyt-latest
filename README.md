@@ -1,3 +1,11 @@
+**Jets owner Woody Johnson publicly supports coach Aaron Glenn: 'Keep the faith, man'**\
+`While his Jets are the NFL's last winless team, Johnson preached patience while speaking to reporters at the league meetings in New York.`\
+https://nytimes.com/athletic/6737353/2025/10/21/new-york-jets-owner-woody-johnson-aaron-glenn/
+
+**How the Louvre Jewelry Heist Unfolded**\
+`In just eight minutes, thieves stole priceless jewelry from the Louvre Museum on Sunday after using a truck-mounted ladder to break into a second-floor window. Catherine Porter, an international correspondent for The New York Times based in Paris, explains how it unfolded.`\
+https://nytimes.com/video/world/europe/100000010469695/how-the-louvre-jewelry-heist-unfolded.html
+
 **Doechii Is Ready to Graduate**\
 `On her Live From the Swamp Tour, the breakout rapper demonstrates she has the wordplay, wit and work ethic to take her career to the next level.`\
 https://nytimes.com/2025/10/21/arts/music/doechii-live-from-the-swamp-tour-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/21/us/politics/trump-justice-department-compensation
 **NFL MVP odds: Will Baker pass Josh Allen, Patrick Mahomes?**\
 `Baker Mayfield is setting up a strong campaign to challenge the MVP frontrunners. But who else could spoil the plot?`\
 https://nytimes.com/athletic/6736832/2025/10/21/nfl-mvp-odds-baker-mayfield-josh-allen-patrick-mahomes/
-
-**8 Really Great Songs From Fake Movie Bands**\
-`In honor of a new film about the (real) Bruce Springsteen, revisit tracks from Spinal Tap, Sex Bob-Omb, Stillwater and more.`\
-https://nytimes.com/2025/10/21/arts/music/fake-movie-band-songs.html
-
-**Super Bowl odds: Chiefs rise back to top spot with Bills reeling**\
-`The suddenly surging Chiefs are now the favorites to win the Super Bowl, partly thanks to Buffalo's back-to-back losses.`\
-https://nytimes.com/athletic/6737088/2025/10/21/super-bowl-odds-chiefs-bills/
 
