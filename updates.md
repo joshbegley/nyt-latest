@@ -1,3 +1,7 @@
+**Three years into his Lakers tenure, Gabe Vincent makes a true start**\
+`Vincent's role and status as potential trade bait could have gotten him down. Instead, he says, "I'm all in on Laker basketball." `\
+https://nytimes.com/athletic/6735647/2025/10/21/gabe-vincent-lakers-starting-opener/
+
 **Courtois accuses La Liga of 'manipulation' after Miami game protests not broadcast**\
 `La Liga asked TV companies not to show protests against the plan to host Villarreal versus Barcelona in Miami.`\
 https://nytimes.com/athletic/6736319/2025/10/21/thibaut-courtois-la-liga-protests-us/

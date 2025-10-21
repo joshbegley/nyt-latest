@@ -1,3 +1,7 @@
+**Three years into his Lakers tenure, Gabe Vincent makes a true start**\
+`Vincent's role and status as potential trade bait could have gotten him down. Instead, he says, "I'm all in on Laker basketball." `\
+https://nytimes.com/athletic/6735647/2025/10/21/gabe-vincent-lakers-starting-opener/
+
 **Courtois accuses La Liga of 'manipulation' after Miami game protests not broadcast**\
 `La Liga asked TV companies not to show protests against the plan to host Villarreal versus Barcelona in Miami.`\
 https://nytimes.com/athletic/6736319/2025/10/21/thibaut-courtois-la-liga-protests-us/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6734973/2025/10/21/carlos-hernandez-padres-manager-
 **Robbins: The Wizards can't deviate from their plan, no matter how ugly it gets**\
 `Washington's basketball rebuild has no end in sight. Right now, that's the way it has to be. `\
 https://nytimes.com/athletic/6735730/2025/10/21/washington-wizards-season-preview-2025-26/
-
-**Marta Kostyuk cites 'levels of testosterone' when asked if intimidated by Aryna Sabalenka, Iga Świątek**\
-`The Ukrainian has a 0-7 record against the top two players in the world.`\
-https://nytimes.com/athletic/6736128/2025/10/21/marta-kostyuk-sabalenka-swiatek-tennis-advantage/
 
