@@ -1,3 +1,19 @@
+**The Central Division is the toughest in the NHL. Here's how Winnipeg can win it**\
+`How will Winnipeg keep pace in the inevitable Central Division arms race?`\
+https://nytimes.com/athletic/6734416/2025/10/21/central-division-winnipeg-jets/
+
+**What we’re seeing from Canucks: The winning streak, replacing Chytil, Pettersson’s turnaround, more**\
+`The Canucks didn't even need a full 72 hours to completely rewrite the narrative about their start to the season.`\
+https://nytimes.com/athletic/6731872/2025/10/21/canucks-garland-hughes-pettersson-schedule-streak/
+
+**Cuomo to Propose That New York City Take Partial Control of Subway**\
+`Andrew Cuomo, whose stewardship of the M.T.A. as governor was heavily criticized, will suggest that the authority hand over responsibility for capital construction and maintenance to the city.`\
+https://nytimes.com/2025/10/21/nyregion/cuomo-nyc-subway.html
+
+**Comfy Knitwear and Loafers With Coins**\
+`Charming accessories completed an outfit that was assembled with comfort and convenience in mind.`\
+https://nytimes.com/2025/10/21/style/street-style-look-comfortable-fall-clothes.html
+
 **A battle of stars in Dodgers-Blue Jays World Series: matchups, storylines and more**\
 `The reigning champion Dodgers will look to defeat the ascendant Blue Jays and become baseball’s first repeat winners in a quarter century.`\
 https://nytimes.com/athletic/6736350/2025/10/21/world-series-preview-dodgers-blue-jays-prediction/
