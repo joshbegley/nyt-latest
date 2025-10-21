@@ -1,3 +1,11 @@
+**North Carolina State Senate Approves New Congressional Map in Effort to Add a Seat**\
+`The Trump administration has pushed Republican leaders to redraw House district maps before the midterm elections next year.`\
+https://nytimes.com/2025/10/21/us/north-carolina-state-senate-approves-new-congressional-map-in-effort-to-add-a-seat.html
+
+**Until Saturday: Why has Florida been so mid?**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6736839/2025/10/21/florida-coaching-search-until-saturday/
+
 **Read pages from Luigi Mangione’s Journal**\
 `A journal detailing plans to assassinate a health insurance company executive was found in Luigi Mangione’s possession after he was arrested in the shooting death of UnitedHealthcare C.E.O. Brian Thompson in December 2024.`\
 https://nytimes.com/interactive/2025/10/21/us/luigi-mangione-diary.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/21/dining/kids-love-this-cheesy-gnocchi-with-corn-an
 **Aspiration co-founder Joe Sanberg pleads guilty to federal wire fraud charges**\
 `The California-based carbon offsetting company co-founder Joe Sanberg is at the center of an NBA cap circumvention investigation.`\
 https://nytimes.com/athletic/6736694/2025/10/21/aspiration-joe-sanberg-guilty-plea/
-
-**Red Light: Examining Brad Marchand's years-long Hockey Hall of Fame debate**\
-`As a guy who loves a good Hall debate, I've been fascinated to track Marchand’s candidacy over time.`\
-https://nytimes.com/athletic/6736695/2025/10/21/brad-marchand-hockey-hall-of-fame-debate-nhl/
-
-**Ramos in talks to renew Monterrey contract**\
-`If the new deal is confirmed it would see Ramos play pastswould continue to extend his long career and play in Mexico until he is 40,`\
-https://nytimes.com/athletic/6736756/2025/10/21/sergio-ramos-contract-news-monterrey/
 
