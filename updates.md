@@ -1,3 +1,7 @@
+**What to Know About Trump’s Plan for a Triumphal Arch in Washington**\
+`President Trump has proposed construction of an arch in the style of the Arc de Triomphe in Washington in the lead-up to the nation’s 250th anniversary.`\
+https://nytimes.com/2025/10/21/us/politics/trump-arch-washington-memorial.html
+
 **Submit your questions for Michael-Shawn Dugar's Seahawks mailbag**\
 `The Seattle Seahawks are 5-2 and tied atop the NFC West entering their bye week. What's on your mind?`\
 https://nytimes.com/athletic/6738222/2025/10/21/seahawks-bye-week-mailbag/
