@@ -1,3 +1,11 @@
+**The New York Times in Print for Tuesday, Oct. 21, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/21/todays-new-york-times
+
+**As Blue Jays clinch World Series berth, Drake celebrates Toronto's 'going to the big show'**\
+`Once again, two representatives from Los Angeles and Toronto find themselves at odds on a major stage.`\
+https://nytimes.com/athletic/6735709/2025/10/21/drake-toronto-blue-jays-world-series/
+
 **As Blue Jays clinch World Series berth, Drake celebrates Toronto 'going to the big show'**\
 `Once again, two representatives from Los Angeles and Toronto find themselves at odds on a major stage.`\
 https://nytimes.com/athletic/6735709/2025/10/21/drake-toronto-blue-jays-world-series/
