@@ -1,3 +1,19 @@
+**Pacers sign Aaron Nesmith to two-year, $40 million extension**\
+`Indiana rewards Nesmith’s elite two-way play and postseason heroics with security through the 2028-29 season.`\
+https://nytimes.com/athletic/6735640/2025/10/21/pacers-aaron-nesmith-extension/
+
+**Newcastle's new technical director: A former Microsoft data whizz with a 'sky-high IQ'**\
+`Appointed over the summer, Sudarshan Gopaladesikan has tasked himself with defining the DNA of the club's playing philosophy`\
+https://nytimes.com/athletic/6718447/2025/10/21/newcastle-technical-director-gopaladesikan/
+
+**James Horncastle’s Serie A Briefing: Chivu calling the right plays for Inter**\
+`After a tough start the Romanian coach, and NFL fan, has his team on a winning streak`\
+https://nytimes.com/athletic/6732568/2025/10/21/horncastle-serie-a-briefing-inter-chivu/
+
+**The Manchester United second balls strategy that underpinned a famous Anfield victory**\
+`Ruben Amorim's approach on Sunday was designed to win possession in Liverpool's territory – and it worked `\
+https://nytimes.com/athletic/6732598/2025/10/21/man-utd-second-balls-anfield/
+
 **Why Diwali Is Also the Start of Air Pollution Season in New Delhi**\
 `The air quality in India’s capital ranks among the worst in the world, but experts say politics stand in the way of improving it.`\
 https://nytimes.com/2025/10/21/world/asia/india-diwali-air-pollution.html

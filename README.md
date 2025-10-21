@@ -1,3 +1,15 @@
+**G.O.P. Senators Oppose Trump Watchdog Nominee After Report of Racist Texts**\
+`At least four Republican senators, including the Senate majority leader, signaled their opposition to Paul Ingrassia, the president’s pick to lead the Office of Special Counsel.`\
+https://nytimes.com/2025/10/21/us/politics/paul-ingrassia-trump-senate.html
+
+**Deadly Tornado Hits Suburbs of Paris**\
+`A rare tornado near Paris blew through several towns north of the capital of France, toppling cranes and killing one person.`\
+https://nytimes.com/2025/10/21/world/europe/tornado-paris-france.html
+
+**World Series odds: Dodgers favored to repeat against homer-heavy Blue Jays**\
+`The Dodgers are the clear favorite to win the World Series against the Blue Jays.`\
+https://nytimes.com/athletic/6735634/2025/10/21/world-series-odds-dodgers-blue-jays/
+
 **Pacers sign Aaron Nesmith to two-year, $40 million extension**\
 `Indiana rewards Nesmith’s elite two-way play and postseason heroics with security through the 2028-29 season.`\
 https://nytimes.com/athletic/6735640/2025/10/21/pacers-aaron-nesmith-extension/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6734250/2025/10/21/jose-mourinho-newcastle-benfica/
 **What's going wrong with Alexander Isak?**\
 `Self-inflicted rustiness, poor service and the state of flux around him have disrupted British record signing's start to life at Liverpool`\
 https://nytimes.com/athletic/6733065/2025/10/21/alexander-isak-liverpool-form-goals/
-
-**Touchdown London: When the Premier League met the NFL over 24 hours in the capital**\
-`Linked by their billionaire owners, Fulham hosted Arsenal on Saturday night before the LA Rams faced the Jacksonville Jaguars at Wembley`\
-https://nytimes.com/athletic/6733051/2025/10/21/premier-league-nfl-arsenal-fulham-rams-jaguars/
-
-**England 2026 World Cup watch: Tuchel's faith in Rogers pays dividends, and could Chilwell have a role?**\
-`Aston Villa’s playmaker has been revived by his time with the national side, while the ex-Chelsea defender has found game-time in France`\
-https://nytimes.com/athletic/6733160/2025/10/21/england-tuchel-rogers-chilwell-world-cup-2026/
-
-**Row Z: Slot blasts United's autonomy, plus 'Forest gonna Forest' and Wolves get prematurely festive**\
-`From Slot’s sour grapes in defeat to Oliver Glasner’s thoughts on, erm, Oliver Glasner, we shine a light on the bonkers side of the game`\
-https://nytimes.com/athletic/6731330/2025/10/21/row-z-slot-liverpool-postecoglou-pereira/
 

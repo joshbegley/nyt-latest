@@ -1,3 +1,19 @@
+**Pacers sign Aaron Nesmith to two-year, $40 million extension**\
+`Indiana rewards Nesmith’s elite two-way play and postseason heroics with security through the 2028-29 season.`\
+https://nytimes.com/athletic/6735640/2025/10/21/pacers-aaron-nesmith-extension/
+
+**Newcastle's new technical director: A former Microsoft data whizz with a 'sky-high IQ'**\
+`Appointed over the summer, Sudarshan Gopaladesikan has tasked himself with defining the DNA of the club's playing philosophy`\
+https://nytimes.com/athletic/6718447/2025/10/21/newcastle-technical-director-gopaladesikan/
+
+**James Horncastle’s Serie A Briefing: Chivu calling the right plays for Inter**\
+`After a tough start the Romanian coach, and NFL fan, has his team on a winning streak`\
+https://nytimes.com/athletic/6732568/2025/10/21/horncastle-serie-a-briefing-inter-chivu/
+
+**The Manchester United second balls strategy that underpinned a famous Anfield victory**\
+`Ruben Amorim's approach on Sunday was designed to win possession in Liverpool's territory – and it worked `\
+https://nytimes.com/athletic/6732598/2025/10/21/man-utd-second-balls-anfield/
+
 **Why Diwali Is Also the Start of Air Pollution Season in New Delhi**\
 `The air quality in India’s capital ranks among the worst in the world, but experts say politics stand in the way of improving it.`\
 https://nytimes.com/2025/10/21/world/asia/india-diwali-air-pollution.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6733160/2025/10/21/england-tuchel-rogers-chilwell-w
 **Row Z: Slot blasts United's autonomy, plus 'Forest gonna Forest' and Wolves get prematurely festive**\
 `From Slot’s sour grapes in defeat to Oliver Glasner’s thoughts on, erm, Oliver Glasner, we shine a light on the bonkers side of the game`\
 https://nytimes.com/athletic/6731330/2025/10/21/row-z-slot-liverpool-postecoglou-pereira/
-
-**How players prepare for a two-match week: Two 'teams', specialist bedding, compression boots**\
-`Champions League football returns this week. And with just days between fixtures, teams face the dual challenge of recovering and preparing`\
-https://nytimes.com/athletic/6732788/2025/10/21/footballers-prepare-two-matches-week/
-
-**Bundesliga Briefing: All-time performance from Kane and Leipzig's Poulsen tifo**\
-`Sebastian Stafford-Bloor on the latest round of Bundesliga action, as Bayern go five clear at the top and Eriksen has a full debut to forget`\
-https://nytimes.com/athletic/6732846/2025/10/21/bundesliga-briefing-harry-kane-yussuf-poulsen-tifo-leipzig/
-
-**Chelsea's 200th Champions League game: The Athletic's staff share their standout memories**\
-`It is a journey that has taken in two Champions League trophy wins, three different sets of owners, countless managers, and one 'ghost goal'`\
-https://nytimes.com/athletic/6732746/2025/10/21/chelsea-200-champions-league-games-memories/
-
-**China Has Another Lever to Pull in Showdown With Trump: Factory Lines**\
-`In Washington, China hawks say its economy is too weak to withstand a tariff shock. In the city of Yiwu, factories are showing why, for now, that may be a miscalculation.`\
-https://nytimes.com/2025/10/21/business/trump-china-tariffs-exports-yiwu.html
 
