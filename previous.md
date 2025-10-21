@@ -1,3 +1,7 @@
+**Aspiration co-founder Joe Sanberg pleads guilty to federal wire fraud charges**\
+`The California-based carbon offsetting company co-founder Joe Sanberg is at the center of an NBA cap circumvention investigation.`\
+https://nytimes.com/athletic/6736694/2025/10/21/aspiration-joe-sanberg-guilty-plea/
+
 **Red Light: Examining Brad Marchand's years-long Hockey Hall of Fame debate**\
 `As a guy who loves a good Hall debate, I've been fascinated to track Marchand’s candidacy over time.`\
 https://nytimes.com/athletic/6736695/2025/10/21/brad-marchand-hockey-hall-of-fame-debate-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6734336/2025/10/21/college-football-playoff-odds-mi
 **The Windup: What you'll remember from this Game 7**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6736656/2025/10/21/mariners-blue-jays-dodgers-the-windup/
-
-**Warner Bros. Discovery Says It Is Considering a Sale**\
-`The owner of CNN, HBO and the Warner Bros. movie studio revealed that it has received acquisition interest from multiple suitors.`\
-https://nytimes.com/2025/10/21/business/media/warner-bros-discovery-sale.html
 

@@ -1,3 +1,7 @@
+**Aspiration co-founder Joe Sanberg pleads guilty to federal wire fraud charges**\
+`The California-based carbon offsetting company co-founder Joe Sanberg is at the center of an NBA cap circumvention investigation.`\
+https://nytimes.com/athletic/6736694/2025/10/21/aspiration-joe-sanberg-guilty-plea/
+
 **Red Light: Examining Brad Marchand's years-long Hockey Hall of Fame debate**\
 `As a guy who loves a good Hall debate, I've been fascinated to track Marchand’s candidacy over time.`\
 https://nytimes.com/athletic/6736695/2025/10/21/brad-marchand-hockey-hall-of-fame-debate-nhl/
