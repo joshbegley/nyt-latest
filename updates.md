@@ -1,3 +1,11 @@
+**Paris Celebrates Art, but Without Its Global Hub in the City’s Center**\
+`The Pompidou Center will remain closed until 2030, and professionals said there was no substitute. But its art will still be shown, and there are other cultural opportunities.`\
+https://nytimes.com/2025/10/21/arts/design/art-basel-paris-pompidou-shut.html
+
+**Babbo Reopens With Mark Ladner at the Helm**\
+`Jean-Georges Vongerichten opens a new Abc flagship in Brooklyn, an elegant cocktail bar on the Lower East Side and more food news.`\
+https://nytimes.com/2025/10/21/dining/nyc-restaurant-news.html
+
 **Batman, Captain Kirk, CBS and CNN All Under One Roof?**\
 `Paramount has expressed interest in buying Warner Bros. Discovery, a deal that would create a new media behemoth.`\
 https://nytimes.com/interactive/2025/10/21/business/media/paramount-warner-bros-merger.html

@@ -1,3 +1,11 @@
+**Paris Celebrates Art, but Without Its Global Hub in the City’s Center**\
+`The Pompidou Center will remain closed until 2030, and professionals said there was no substitute. But its art will still be shown, and there are other cultural opportunities.`\
+https://nytimes.com/2025/10/21/arts/design/art-basel-paris-pompidou-shut.html
+
+**Babbo Reopens With Mark Ladner at the Helm**\
+`Jean-Georges Vongerichten opens a new Abc flagship in Brooklyn, an elegant cocktail bar on the Lower East Side and more food news.`\
+https://nytimes.com/2025/10/21/dining/nyc-restaurant-news.html
+
 **Batman, Captain Kirk, CBS and CNN All Under One Roof?**\
 `Paramount has expressed interest in buying Warner Bros. Discovery, a deal that would create a new media behemoth.`\
 https://nytimes.com/interactive/2025/10/21/business/media/paramount-warner-bros-merger.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/21/travel/yosemite-shutdown-base-jumping.html
 **Quiz: Do You Know Ball?**\
 `Test your knowledge of the real and fictional N.B.A.`\
 https://nytimes.com/interactive/2025/10/21/arts/television/basketball-quiz-nba-season-start.html
-
-**Penguins legends Sidney Crosby and Evgeni Malkin are desperately racing a ticking clock**\
-`Crosby and Malkin know this could be their final season together, and they're eager to help the Penguins exceed expectations.`\
-https://nytimes.com/athletic/6732374/2025/10/21/penguins-sidney-crosby-evgeni-malkin-nhl/
-
-**Fishlock wants to remain at Seattle Reign one more year**\
-`"I'm hoping to carry on for one more year," Fishlock told the BBC. "We're in the process of going through what that looks like right now."`\
-https://nytimes.com/athletic/6736922/2025/10/21/jess-fishlock-seattle-reign-retire/
 
