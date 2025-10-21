@@ -1,3 +1,7 @@
+**The lover's guide to the 2025 World Series**\
+`The Blue Jays have a nation on their side, and everyone else who didn't grow up a Dodger fan. LA has Shohei Ohtani. This will be fun.`\
+https://nytimes.com/athletic/6735233/2025/10/21/world-series-preview-2025-dodgers-blue-jays/
+
 **Lakers' LeBron James to miss weeks with sciatica. Here's what to know.**\
 `The Los Angeles star will miss the opening night matchup with Golden State and delay the start of his 23rd season because of the injury.`\
 https://nytimes.com/athletic/6733156/2025/10/21/what-is-sciatica-lebron/

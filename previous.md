@@ -1,3 +1,7 @@
+**The lover's guide to the 2025 World Series**\
+`The Blue Jays have a nation on their side, and everyone else who didn't grow up a Dodger fan. LA has Shohei Ohtani. This will be fun.`\
+https://nytimes.com/athletic/6735233/2025/10/21/world-series-preview-2025-dodgers-blue-jays/
+
 **Lakers' LeBron James to miss weeks with sciatica. Here's what to know.**\
 `The Los Angeles star will miss the opening night matchup with Golden State and delay the start of his 23rd season because of the injury.`\
 https://nytimes.com/athletic/6733156/2025/10/21/what-is-sciatica-lebron/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/americas/100000010471147/trump-gaza-israel-netan
 **Met Awards 2026 Facade Commission to Chinese Artist Liu Wei**\
 `It’s the first time in nearly 20 years that the museum has asked an artist from mainland China to create artwork for its building.`\
 https://nytimes.com/2025/10/21/arts/design/met-awards-2026-facade-commission-to-chinese-artist-liu-wei.html
-
-**Late Night Revisits Ye Olde ‘No Kings’ Protests**\
-`Jon Stewart consulted the Declaration of Independence’s king-inspired stipulations on “The Daily Show.”`\
-https://nytimes.com/2025/10/21/arts/television/late-night-no-kings-protests.html
 
