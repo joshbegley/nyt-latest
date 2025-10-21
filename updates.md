@@ -1,3 +1,11 @@
+**NBC is back, Amazon debuts, 'Inside' moves over: Introducing the NBA's new TV landscape**\
+`Fans tuning into the NBA this season will have to adjust their viewing habits to new networks and a seven-day-a-week national TV schedule.`\
+https://nytimes.com/athletic/6733869/2025/10/21/nba-amazon-nbc-espn-schedule/
+
+**Greenberg: Bulls look to kick-start another 39-win, ninth-place season. Who's excited?**\
+`As the Bulls open the season Wednesday at home against the Detroit Pistons, they're not quite an afterthought — but it's close.`\
+https://nytimes.com/athletic/6734789/2025/10/21/chicago-bulls-prediction-season/
+
 **Japan Shifts Further Right With Its First Female Prime Minister**\
 `Japanese lawmakers elected the country’s first female prime minister, Sanae Takaichi, a hard-line conservative. Javier C. Hernández, our Tokyo bureau chief, visited several places in her home region that show how she reflects Japan’s growing far right.`\
 https://nytimes.com/video/world/asia/100000010466661/sanae-takaichi-japan-prime-minister.html
