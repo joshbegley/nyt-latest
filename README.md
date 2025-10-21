@@ -1,3 +1,7 @@
+**Full Time: Two brutal NWSL injuries loom large**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6735552/2025/10/20/nwsl-injuries-rodman-chawinga-full-time/
+
 **Building the Blue Jays: 10 steps that got Toronto back to the World Series**\
 `This World Series roster didn't come together overnight. These Blue Jays were built with a series of moves over a decade.  `\
 https://nytimes.com/athletic/6733763/2025/10/20/building-blue-jays-10-steps-world-series/
@@ -33,8 +37,4 @@ https://nytimes.com/video/the-athletic/100000010470869/who-is-the-most-interesti
 **We Investigated Assad’s Fugitive Henchmen**\
 `Haley Willis and Christiaan Triebert, reporters from the Times’s Visual Investigations team, share findings from their ongoing reporting project on the roles and whereabouts of henchmen for Bashar al-Assad, the former Syrian president.`\
 https://nytimes.com/video/world/middleeast/100000010470417/we-investigated-assads-fugitive-henchmen.html
-
-**What Brandon Graham's impending return from retirement means for the Eagles**\
-`The news comes after Za'Darius Smith's sudden retirement announcement.`\
-https://nytimes.com/athletic/6735248/2025/10/20/brandon-graham-finalizing-eagles-return-retirement/
 
