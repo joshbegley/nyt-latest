@@ -1,3 +1,7 @@
+**Mariners’ Josh Naylor called for interference on bizarre play using his head**\
+`Running towards second, Naylor tried to break up a double play by jumping into the path of an incoming throw. `\
+https://nytimes.com/athletic/6735256/2025/10/20/mariners-josh-naylor-alcs-runners-interference/
+
 **Using his head: Mariners' Josh Naylor called for interference on bizarre play**\
 `Running towards second, Naylor tried to break up a double play by jumping into the path of an incoming throw. `\
 https://nytimes.com/athletic/6735256/2025/10/20/mariners-josh-naylor-alcs-runners-interference/
