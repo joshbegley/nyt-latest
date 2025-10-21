@@ -1,3 +1,11 @@
+**Submit questions for Nate Atkins' Rams mailbag**\
+`Atkins will consider your questions for his upcoming mailbag with the Rams sitting at 5-2 at their bye week.`\
+https://nytimes.com/athletic/6736414/2025/10/21/rams-week-8-mailbag/
+
+**How to watch the Toronto Raptors: TV schedule and broadcast rotation for 2025-26 season**\
+`Here's how to watch all 82 regular-season Raptors games, for fans in Canada and those in the U.S.`\
+https://nytimes.com/athletic/6727217/2025/10/21/toronto-raptors-canada-us-how-to-watch/
+
 **Three years into his Lakers tenure, Gabe Vincent makes a true start**\
 `Vincent's role and status as potential trade bait could have gotten him down. Instead, he says, "I'm all in on Laker basketball." `\
 https://nytimes.com/athletic/6735647/2025/10/21/gabe-vincent-lakers-starting-opener/

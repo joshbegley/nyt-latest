@@ -1,3 +1,7 @@
+**On Ukraine and Russia, Lots of Talk but Little Has Changed**\
+`A contentious meeting between President Trump and President Volodymyr Zelensky of Ukraine produced no obvious progress toward a cease-fire.`\
+https://nytimes.com/2025/10/21/world/europe/ukraine-russia-trump-zelensky-meeting.html
+
 **Submit questions for Nate Atkins' Rams mailbag**\
 `Atkins will consider your questions for his upcoming mailbag with the Rams sitting at 5-2 at their bye week.`\
 https://nytimes.com/athletic/6736414/2025/10/21/rams-week-8-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/21/business/dealbook/stocks-rally-bulls-bears.html
 **Broncos' Sean Payton vows to 'look closely at the personnel' in search of offensive fixes**\
 `Broncos RG Quinn Meinerz says slow starts are something "we can't accept as an offense."`\
 https://nytimes.com/athletic/6733649/2025/10/21/broncos-sean-payton-offense-issues/
-
-**How a Dodgers' late-season meeting woke up the slumbering champs**\
-`"At times it felt like we were kind of checked out during the regular season," Kiké Hernández said. `\
-https://nytimes.com/athletic/6735503/2025/10/21/dodgers-mlb-world-series-dave-roberts-meeting/
 
