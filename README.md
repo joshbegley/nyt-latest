@@ -1,3 +1,7 @@
+**Habba Told to Release More Video in Assault Case Against Congresswoman**\
+`A federal judge overseeing a case against Representative LaMonica McIver, a New Jersey Democrat, ordered prosecutors to release all relevant footage from a migrant detention facility.`\
+https://nytimes.com/2025/10/21/nyregion/lamonica-mciver-ice-charges.html
+
 **What Hurricane Models Can (and Can’t) Tell Us About Melissa So Far**\
 `Forecasters said there was “significant uncertainty” about where the tropical storm will go and how intense it could become. Spaghetti models are one of several tools forecasters use.`\
 https://nytimes.com/2025/10/21/weather/melissa-spaghetti-models-forecast.html

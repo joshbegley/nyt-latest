@@ -1,3 +1,11 @@
+**What Hurricane Models Can (and Can’t) Tell Us About Melissa So Far**\
+`Forecasters said there was “significant uncertainty” about where the tropical storm will go and how intense it could become. Spaghetti models are one of several tools forecasters use.`\
+https://nytimes.com/2025/10/21/weather/melissa-spaghetti-models-forecast.html
+
+**Knicks to be without Mitchell Robinson, Josh Hart vs. Cavaliers in opener**\
+`The most anticipated season in recent Knicks history is getting off on the wrong foot.`\
+https://nytimes.com/athletic/6738072/2025/10/21/mitchell-robinson-josh-hart-knicks-cavaliers-nba-season-opener/
+
 **Russell Wilson calls Sean Payton 'classless' after Broncos coach takes dig at his former QB**\
 `The two have clashed publicly on several occasions.`\
 https://nytimes.com/athletic/6738001/2025/10/21/russell-wilson-sean-payton-response-broncos-coach/

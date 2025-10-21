@@ -1,3 +1,11 @@
+**What Hurricane Models Can (and Can’t) Tell Us About Melissa So Far**\
+`Forecasters said there was “significant uncertainty” about where the tropical storm will go and how intense it could become. Spaghetti models are one of several tools forecasters use.`\
+https://nytimes.com/2025/10/21/weather/melissa-spaghetti-models-forecast.html
+
+**Knicks to be without Mitchell Robinson, Josh Hart vs. Cavaliers in opener**\
+`The most anticipated season in recent Knicks history is getting off on the wrong foot.`\
+https://nytimes.com/athletic/6738072/2025/10/21/mitchell-robinson-josh-hart-knicks-cavaliers-nba-season-opener/
+
 **Russell Wilson calls Sean Payton 'classless' after Broncos coach takes dig at his former QB**\
 `The two have clashed publicly on several occasions.`\
 https://nytimes.com/athletic/6738001/2025/10/21/russell-wilson-sean-payton-response-broncos-coach/
@@ -21,12 +29,4 @@ https://nytimes.com/2025/10/21/arts/design/trump-ballroom-architects-review.html
 **American Wins International Chopin Piano Competition**\
 `In Warsaw, a 27-year-old pianist from Massachusetts beat out 181 competitors to win what some call the Olympics of the piano world.`\
 https://nytimes.com/2025/10/21/arts/music/chopin-piano-competition-eric-lu.html
-
-**USWNT's Alyssa Thompson on her Chelsea move: ‘I was expecting it to be more scary’**\
-`The 20-year-old winger chose the challenge abroad in an attempt to grow as a player and person`\
-https://nytimes.com/athletic/6737813/2025/10/21/uswnt-alyssa-thompson-chelsea-move/
-
-**NFL says it has 'heightened focus on playing surfaces' after recent concerns**\
-`Concerns over playing surfaces have been top of mind after Giants WR Malik Nabers tore his ACL in Week 3.`\
-https://nytimes.com/athletic/6737853/2025/10/21/nfl-playing-surfaces-injuries-metlife-stadium/
 
