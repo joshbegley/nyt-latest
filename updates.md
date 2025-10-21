@@ -1,3 +1,31 @@
+**How to watch Avalanche vs. Mammoth: Time, TV, streaming**\
+`Find out how to watch the Colorado Avalanche play the Utah Mammoth, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6737574/2025/10/21/avalanche-vs-mammoth-stream-how-to-watch-oct-21/
+
+**How to watch Warriors vs. Lakers: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the Los Angeles Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6737572/2025/10/21/warriors-vs-lakers-stream-how-to-watch-oct-21/
+
+**How to watch Ducks vs. Predators: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Nashville Predators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6737570/2025/10/21/ducks-vs-predators-stream-how-to-watch-oct-21/
+
+**How to watch Kings vs. Blues: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Kings play the St. Louis Blues, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6737568/2025/10/21/kings-vs-blues-stream-how-to-watch-oct-21/
+
+**How to watch Panthers vs. Bruins: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the Boston Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6737565/2025/10/21/panthers-vs-bruins-stream-how-to-watch-oct-21/
+
+**How to watch Blue Jackets vs. Stars: Time, TV, streaming**\
+`Find out how to watch the Columbus Blue Jackets play the Dallas Stars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6737562/2025/10/21/blue-jackets-vs-stars-stream-how-to-watch-oct-21/
+
+**G.M. to Stop Making Electric Vans in Canada, in Another Hit to a Key Industry**\
+`The announcement, which will eliminate about 1,200 jobs, came less than a week after the carmaker Stellantis said it would move production of a new vehicle to Illinois from a Toronto suburb.`\
+https://nytimes.com/2025/10/21/world/canada/general-motors-electric-vans.html
+
 **Jack Nicklaus awarded $50 million in defamation lawsuit involving his former company**\
 `A jury found that Nicklaus Companies defamed Nicklaus by falsely suggesting he aligned in conversations with LIV Golf and other ventures.`\
 https://nytimes.com/athletic/6737188/2025/10/21/jack-nicklaus-lawsuit-contract-liv-golf/
