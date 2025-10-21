@@ -1,3 +1,11 @@
+**Why 49ers coaching is NFL's best this year, and Bears running wild: Week 7 film review**\
+`Kyle Shanahan's staff is successfully scheming its way through an injury crisis en route to a 5-2 start.`\
+https://nytimes.com/athletic/6734814/2025/10/21/49ers-shanahan-bears-swift-broncos-nix/
+
+**Leitch: Angry fan bases drive CFB's coach carousel. Which ones are most desperate?**\
+`Few coaches face more pressure than those at powerful programs that have gone a long time without winning a championship.`\
+https://nytimes.com/athletic/6734021/2025/10/21/college-football-tortured-fan-bases-coaching-carousel/
+
 **Kompany signs new Bayern contract until 2029**\
 `The 39-year-old, who joined from Burnley in 2024, won the Bundesliga title with Bayern in his first season at the club.`\
 https://nytimes.com/athletic/6736217/2025/10/21/vincent-kompany-new-bayern-contract/
