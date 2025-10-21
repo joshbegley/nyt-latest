@@ -1,3 +1,11 @@
+**India Illuminates as Diwali Festivals Begin**\
+`Millions of families commenced celebrations this week for Diwali, the Hindu festival of lights and the biggest public holiday in India.`\
+https://nytimes.com/video/world/asia/100000010469778/india-diwali-celebrations-fireworks-pollution.html
+
+**Buccaneers WR Mike Evans ruled out with concussion and shoulder injury**\
+`Evans returned to the lineup Monday after missing three games with a hamstring injury but left the game in the second quarter.`\
+https://nytimes.com/athletic/6735238/2025/10/20/mike-evans-buccaneers-injury-concussion-shoulder/
+
 **New York to Albany by Train for $40 Flat? It’s Happening Next Year.**\
 `For the first time, Metro-North will run trains past Poughkeepsie through the Hudson Valley to Albany. Some Amtrak service will also be restored.`\
 https://nytimes.com/2025/10/20/nyregion/metro-north-trains-albany-hochul.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6735152/2025/10/20/texas-vs-mississippi-state-strea
 **How to watch Boston College vs. Louisville: Time, TV, streaming**\
 `Find out how to watch the Boston College Eagles play the Louisville Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6735150/2025/10/20/boston-college-vs-louisville-stream-how-to-watch-oct-25/
-
-**How to watch Michigan vs. Michigan State: Time, TV, streaming**\
-`Find out how to watch the Michigan Wolverines play the Michigan State Spartans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6735146/2025/10/20/michigan-vs-michigan-state-stream-how-to-watch-oct-25/
-
-**How to watch Stanford vs. Miami (FL): Time, TV, streaming**\
-`Find out how to watch the Stanford Cardinal play the Miami (FL) Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6735135/2025/10/20/stanford-vs-miami-fl-stream-how-to-watch-oct-25/
 

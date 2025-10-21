@@ -1,3 +1,11 @@
+**India Illuminates as Diwali Festivals Begin**\
+`Millions of families commenced celebrations this week for Diwali, the Hindu festival of lights and the biggest public holiday in India.`\
+https://nytimes.com/video/world/asia/100000010469778/india-diwali-celebrations-fireworks-pollution.html
+
+**Buccaneers WR Mike Evans ruled out with concussion and shoulder injury**\
+`Evans returned to the lineup Monday after missing three games with a hamstring injury but left the game in the second quarter.`\
+https://nytimes.com/athletic/6735238/2025/10/20/mike-evans-buccaneers-injury-concussion-shoulder/
+
 **New York to Albany by Train for $40 Flat? It’s Happening Next Year.**\
 `For the first time, Metro-North will run trains past Poughkeepsie through the Hudson Valley to Albany. Some Amtrak service will also be restored.`\
 https://nytimes.com/2025/10/20/nyregion/metro-north-trains-albany-hochul.html
