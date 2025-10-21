@@ -1,3 +1,11 @@
+**Former French President Nicolas Sarkozy Is Imprisoned**\
+`Nicolas Sarkozy, the president of France from 2007 to 2012, began a five-year prison term after he was found guilty of conspiring to seek funding from Libya for his 2007 presidential campaign. He has appealed the verdict.`\
+https://nytimes.com/video/world/europe/100000010471284/former-french-president-nicolas-sarkozy-is-imprisoned.html
+
+**Jazz owner Ryan Smith looks to grow Jazz, Mammoth talent with new practice facility**\
+`The Jazz will break ground on a facility in the same location as that of the NHL's Utah Mammoth.`\
+https://nytimes.com/athletic/6732394/2025/10/21/jazz-ryan-smith-practice-facility/
+
 **Jazz owner Ryan Smith sees practice facility as another step of progress**\
 `The Jazz will break ground on a facility in the same location as that of the NHL's Utah Mammoth.`\
 https://nytimes.com/athletic/6732394/2025/10/21/jazz-ryan-smith-practice-facility/
