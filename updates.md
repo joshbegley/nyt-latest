@@ -1,3 +1,11 @@
+**G.M.’s Profit Falls on Tariffs and E.V. Costs**\
+`The automaker’s shares jumped as investors focused on an upgraded forecast for some financial measures, as well as a lower-than-expected bill for tariffs this year.`\
+https://nytimes.com/2025/10/21/business/general-motors-earnings-tariffs-evs.html
+
+**The Louvre Heist**\
+`Today, we look at how thieves pulled off this weekend’s brazen daylight robbery in Paris and why they did it.`\
+https://nytimes.com/2025/10/21/world/louvre-jewelry-heist.html
+
 **Detroit Lions Beat Tampa Bay Buccaneers on Monday Night Football**\
 `The Detroit Lions beat the Tampa Bay Buccaneers 24-9 on Monday night thanks in large part to 218 scrimmage yards and two touchdowns from the Lions running back Jahmyr Gibbs.`\
 https://nytimes.com/video/the-athletic/100000010471205/detroit-lions-beat-tampa-bay-buccaneers-on-monday-night-football.html

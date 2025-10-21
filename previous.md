@@ -1,3 +1,11 @@
+**G.M.’s Profit Falls on Tariffs and E.V. Costs**\
+`The automaker’s shares jumped as investors focused on an upgraded forecast for some financial measures, as well as a lower-than-expected bill for tariffs this year.`\
+https://nytimes.com/2025/10/21/business/general-motors-earnings-tariffs-evs.html
+
+**The Louvre Heist**\
+`Today, we look at how thieves pulled off this weekend’s brazen daylight robbery in Paris and why they did it.`\
+https://nytimes.com/2025/10/21/world/louvre-jewelry-heist.html
+
 **Detroit Lions Beat Tampa Bay Buccaneers on Monday Night Football**\
 `The Detroit Lions beat the Tampa Bay Buccaneers 24-9 on Monday night thanks in large part to 218 scrimmage yards and two touchdowns from the Lions running back Jahmyr Gibbs.`\
 https://nytimes.com/video/the-athletic/100000010471205/detroit-lions-beat-tampa-bay-buccaneers-on-monday-night-football.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6736265/2025/10/21/david-alaba-real-madrid-clasico-
 **How chirping became a 'lost art' in the NHL — and why not every player is a fan**\
 `As the league has changed over time and players think twice about what's said on the ice, chirping in the NHL is less "ruthless" than ever.`\
 https://nytimes.com/athletic/6316254/2025/10/21/nhl-chirping-trash-talk-brad-marchand-tkachuk/
-
-**Malala Yousafzai Learned to Let Love in**\
-`Malala Yousafzai, the activist and author, spoke with Anna Martin, the host of “Modern Love” at The New York Times, about how she learned to accept love and changed her views on marriage.`\
-https://nytimes.com/video/podcasts/100000010464755/malala-yousafzai-learned-to-let-love-in.html
-
-**What I'm hearing about Porter Martone, Aleksei Kolosov and other Flyers prospects**\
-`Officials had a lot to say about players in Philadelphia's 2025 draft class. `\
-https://nytimes.com/athletic/6734743/2025/10/21/flyers-prospects-porter-martone-aleksei-kolosov/
 
