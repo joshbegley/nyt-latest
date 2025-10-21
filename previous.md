@@ -1,3 +1,7 @@
+**Trump Is Demanding Millions From His Own Administration**\
+`Also, Japan elected its first female prime minister. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/10/21/briefing/trump-justice-department-japan-prime-minister.html
+
 **China, Xi and the S-word**\
 `The Chinese president has been in office for more than a decade, but Xi Jinping’s succession is a touchy subject.`\
 https://nytimes.com/2025/10/21/world/china-xi-succession-japan-prime-minister.html
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6737853/2025/10/21/nfl-playing-surfaces-injuries-me
 **Stephanie Johnson, Burlesque Dancer With Stories to Tell, Dies at 81**\
 `Her memories of her days as Tanqueray in the gritty New York of the 1960s and ’70s found a new audience in recent years and made her a social media star.`\
 https://nytimes.com/2025/10/21/fashion/stephanie-tanqueray-johnson-dead.html
-
-**Adam Silver talks expansion, dynasties and the All-Star Game as 2025-26 season begins**\
-`Silver said the NBA doesn't plan to relocate any specific teams, but that stadium leases, population changes and economies are factors.`\
-https://nytimes.com/athletic/6737795/2025/10/21/adam-silver-expansion-all-star-game/
 

@@ -1,3 +1,7 @@
+**Trump Is Demanding Millions From His Own Administration**\
+`Also, Japan elected its first female prime minister. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/10/21/briefing/trump-justice-department-japan-prime-minister.html
+
 **China, Xi and the S-word**\
 `The Chinese president has been in office for more than a decade, but Xi Jinping’s succession is a touchy subject.`\
 https://nytimes.com/2025/10/21/world/china-xi-succession-japan-prime-minister.html
