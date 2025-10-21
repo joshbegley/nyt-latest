@@ -1,3 +1,7 @@
+**Full Time: Two brutal NWSL injuries loom large**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6735552/2025/10/20/nwsl-injuries-rodman-chawinga-full-time/
+
 **Building the Blue Jays: 10 steps that got Toronto back to the World Series**\
 `This World Series roster didn't come together overnight. These Blue Jays were built with a series of moves over a decade.  `\
 https://nytimes.com/athletic/6733763/2025/10/20/building-blue-jays-10-steps-world-series/
