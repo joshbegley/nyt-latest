@@ -1,3 +1,7 @@
+**How Much Dirtier Can the Dirty Martini Get?**\
+`The sky is the limit for bartenders who believe that off-the-shelf olive brine just doesn’t cut it anymore.`\
+https://nytimes.com/2025/10/21/dining/dirty-martini.html
+
 **Trump Said to Demand Justice Dept. Pay Him $230 Million for Past Cases**\
 `Senior department officials who were defense lawyers for the president and those in his orbit are now in jobs that typically must approve any such payout, underscoring potential ethical conflicts.`\
 https://nytimes.com/2025/10/21/us/politics/trump-justice-department-compensation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6734436/2025/10/21/kam-jones-arrested-driving-polic
 **Majorca**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/majorca
-
-**NFL best bets Week 8: Panthers, Giants to cover as underdogs vs. Bills, Eagles and more**\
-`Austin Mock's NFL Projection Model is 20-15 this season in its best bets. Will Week 8 keep us in the black?`\
-https://nytimes.com/athletic/6737161/2025/10/21/nfl-best-bets-week-8-panthers-giants/
 

@@ -1,3 +1,7 @@
+**Trump Said to Demand Justice Dept. Pay Him $230 Million for Past Cases**\
+`Senior department officials who were defense lawyers for the president and those in his orbit are now in jobs that typically must approve any such payout, underscoring potential ethical conflicts.`\
+https://nytimes.com/2025/10/21/us/politics/trump-justice-department-compensation.html
+
 **NFL MVP odds: Will Baker pass Josh Allen, Patrick Mahomes?**\
 `Baker Mayfield is setting up a strong campaign to challenge the MVP frontrunners. But who else could spoil the plot?`\
 https://nytimes.com/athletic/6736832/2025/10/21/nfl-mvp-odds-baker-mayfield-josh-allen-patrick-mahomes/
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/majorca
 **NFL best bets Week 8: Panthers, Giants to cover as underdogs vs. Bills, Eagles and more**\
 `Austin Mock's NFL Projection Model is 20-15 this season in its best bets. Will Week 8 keep us in the black?`\
 https://nytimes.com/athletic/6737161/2025/10/21/nfl-best-bets-week-8-panthers-giants/
-
-**Nantucket**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/things-to-do-nantucket
 

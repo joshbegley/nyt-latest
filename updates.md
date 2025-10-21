@@ -1,3 +1,7 @@
+**Trump Said to Demand Justice Dept. Pay Him $230 Million for Past Cases**\
+`Senior department officials who were defense lawyers for the president and those in his orbit are now in jobs that typically must approve any such payout, underscoring potential ethical conflicts.`\
+https://nytimes.com/2025/10/21/us/politics/trump-justice-department-compensation.html
+
 **NFL MVP odds: Will Baker pass Josh Allen, Patrick Mahomes?**\
 `Baker Mayfield is setting up a strong campaign to challenge the MVP frontrunners. But who else could spoil the plot?`\
 https://nytimes.com/athletic/6736832/2025/10/21/nfl-mvp-odds-baker-mayfield-josh-allen-patrick-mahomes/
