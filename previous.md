@@ -1,3 +1,11 @@
+**With Cease-Fire, Some Pro-Palestinian Protesters Look Back, Ruefully**\
+`Activists welcome the truce. But the backlash to their demonstrations, some said, offered sobering lessons about power and politics.`\
+https://nytimes.com/2025/10/21/us/politics/campus-protesters-israel-gaza-cease-fire-reaction.html
+
+**Architects Urged a Review of Trump’s Ballroom. Cue the Demolition Crew.**\
+`Architects were surprised by the scale and speed of the project, but the president is moving forward with his plans for a $250 million ballroom at the White House.`\
+https://nytimes.com/2025/10/21/arts/design/trump-ballroom-architects-review.html
+
 **American Wins International Chopin Piano Competition**\
 `In Warsaw, a 27-year-old pianist from Massachusetts beat out 181 competitors to win what some call the Olympics of the piano world.`\
 https://nytimes.com/2025/10/21/arts/music/chopin-piano-competition-eric-lu.html
@@ -21,12 +29,4 @@ https://nytimes.com/athletic/6737795/2025/10/21/adam-silver-expansion-all-star-g
 **U.S. Marshal and Immigrant Are Shot During L.A. Traffic Stop**\
 `Officials said immigration officers fired shots after the man rammed a law enforcement vehicle. The immigrant and a marshal were wounded in the shooting.`\
 https://nytimes.com/2025/10/21/us/us-marshal-immigrant-shot-la-traffic-stop.html
-
-**Crumbl Cookies CEO offers to pay $50K fine for BYU field storm**\
-`The CEO is a loyal BYU supporter who has lived in Utah since 2003.`\
-https://nytimes.com/athletic/6737634/2025/10/21/crumbl-cookies-ceo-offers-to-pay-fine-for-byu-field-storm/
-
-**Angels' Mike Trout testifies in Tyler Skaggs wrongful death trial: 'It's sad losing somebody'**\
-`Trout said he had no idea that Tyler Skaggs was abusing opiates, but that he became aware former Angels employee Eric Kay was using drugs.`\
-https://nytimes.com/athletic/6737042/2025/10/21/angels-mike-trout-tyler-skaggs-trial/
 

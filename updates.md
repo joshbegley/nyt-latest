@@ -1,3 +1,11 @@
+**With Cease-Fire, Some Pro-Palestinian Protesters Look Back, Ruefully**\
+`Activists welcome the truce. But the backlash to their demonstrations, some said, offered sobering lessons about power and politics.`\
+https://nytimes.com/2025/10/21/us/politics/campus-protesters-israel-gaza-cease-fire-reaction.html
+
+**Architects Urged a Review of Trump’s Ballroom. Cue the Demolition Crew.**\
+`Architects were surprised by the scale and speed of the project, but the president is moving forward with his plans for a $250 million ballroom at the White House.`\
+https://nytimes.com/2025/10/21/arts/design/trump-ballroom-architects-review.html
+
 **American Wins International Chopin Piano Competition**\
 `In Warsaw, a 27-year-old pianist from Massachusetts beat out 181 competitors to win what some call the Olympics of the piano world.`\
 https://nytimes.com/2025/10/21/arts/music/chopin-piano-competition-eric-lu.html

@@ -1,3 +1,7 @@
+**China, Xi and the S-word**\
+`The Chinese president has been in office for more than a decade, but Xi Jinping’s succession is a touchy subject.`\
+https://nytimes.com/2025/10/21/world/china-xi-succession-japan-prime-minister.html
+
 **With Cease-Fire, Some Pro-Palestinian Protesters Look Back, Ruefully**\
 `Activists welcome the truce. But the backlash to their demonstrations, some said, offered sobering lessons about power and politics.`\
 https://nytimes.com/2025/10/21/us/politics/campus-protesters-israel-gaza-cease-fire-reaction.html
@@ -25,8 +29,4 @@ https://nytimes.com/2025/10/21/fashion/stephanie-tanqueray-johnson-dead.html
 **Adam Silver talks expansion, dynasties and the All-Star Game as 2025-26 season begins**\
 `Silver said the NBA doesn't plan to relocate any specific teams, but that stadium leases, population changes and economies are factors.`\
 https://nytimes.com/athletic/6737795/2025/10/21/adam-silver-expansion-all-star-game/
-
-**U.S. Marshal and Immigrant Are Shot During L.A. Traffic Stop**\
-`Officials said immigration officers fired shots after the man rammed a law enforcement vehicle. The immigrant and a marshal were wounded in the shooting.`\
-https://nytimes.com/2025/10/21/us/us-marshal-immigrant-shot-la-traffic-stop.html
 
