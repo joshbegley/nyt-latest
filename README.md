@@ -1,3 +1,11 @@
+**Duke lands commitment from 5-star Bryson Howard, son of ex-NBAer Josh Howard**\
+`Jon Scheyer's Duke has a track record of building the No. 1 recruiting class in the country. The 2026 group begins with Howard.`\
+https://nytimes.com/athletic/6737744/2025/10/21/duke-bryson-howard-commitment-college-basketball/
+
+**Portraits of China’s Changing Work force**\
+`In a nation grappling with economic uncertainty and sweeping demographic change, Chinese workers are reinventing themselves in unexpected ways.`\
+https://nytimes.com/interactive/2025/10/21/world/asia/china-work-force.html
+
 **‘KPop’ Helps Lift Netflix Revenue 17%**\
 `The streaming giant said the higher results came from a mix of subscription growth, advertising and other sales.`\
 https://nytimes.com/2025/10/21/business/media/kpop-netflix-quarterly-report.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6737551/2025/10/21/vikings-jj-mccarthy-carson-wentz
 **A Nepali Town Mourns a Native Son Who Died a Hamas Captive**\
 `The family of Bipin Joshi, a student, had campaigned internationally for his release and had held out hope until the end that after two years in Gaza, he would return alive.`\
 https://nytimes.com/2025/10/21/world/asia/nepal-hostage-hamas-funeral.html
-
-**NFL says it's trying to improve officiating on 'very difficult' tush push plays**\
-`Troy Vincent, the NFL's executive vice president of football operations, called the tush push “very difficult to officiate in real time.”`\
-https://nytimes.com/athletic/6737672/2025/10/21/tush-push-officiating-nfl/
-
-**Charge Is Dropped Against Man Who Abandoned Dog Before Hurricane**\
-`The rescue of Trooper, a bull terrier, off Interstate 75 as Hurricane Milton approached Florida last year inspired a new state law making it a crime to abandon dogs during disasters.`\
-https://nytimes.com/2025/10/21/us/hurricane-florida-dog-abandoned-charges-dropped.html
 

@@ -1,5 +1,9 @@
+**‘KPop’ Helps Lift Netflix Revenue 17%**\
+`The streaming giant said the higher results came from a mix of subscription growth, advertising and other sales.`\
+https://nytimes.com/2025/10/21/business/media/kpop-netflix-quarterly-report.html
+
 **What Dan Wilson's decision to use Bazardo vs. Springer says about optimal reliever usage**\
-`In the aftermath of a come-from-ahead loss in Game 7 of the American League Championship Series, Seattle Mariners manager Dan Wilson is taking heat for the decision call on Eduard Bazardo to face George Springer in the seventh inning with the season on the line.`\
+`Springer's dramatic home run came in his third plate appearance against Bazardo in the ALCS. Is that usage the reason Springer hit a dinger?`\
 https://nytimes.com/athletic/6737213/2025/10/21/mlb-playoff-bullpen-usage-strategy-eduard-bazardo-george-springer/
 
 **Jack Smith’s lawyers say he never wiretapped or surveilled lawmakers.**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6737672/2025/10/21/tush-push-officiating-nfl/
 **Charge Is Dropped Against Man Who Abandoned Dog Before Hurricane**\
 `The rescue of Trooper, a bull terrier, off Interstate 75 as Hurricane Milton approached Florida last year inspired a new state law making it a crime to abandon dogs during disasters.`\
 https://nytimes.com/2025/10/21/us/hurricane-florida-dog-abandoned-charges-dropped.html
-
-**Liverpool travel disruption will 'not impact' Frankfurt match build-up, Slot says**\
-`The Premier League champions' flight was delayed for around four hours on Tuesday due to technical issues with their plane.`\
-https://nytimes.com/athletic/6737612/2025/10/21/liverpool-travel-disruption-frankfurt-slot/
 

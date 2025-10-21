@@ -1,3 +1,11 @@
+**‘KPop’ Helps Lift Netflix Revenue 17%**\
+`The streaming giant said the higher results came from a mix of subscription growth, advertising and other sales.`\
+https://nytimes.com/2025/10/21/business/media/kpop-netflix-quarterly-report.html
+
+**What Dan Wilson's decision to use Bazardo vs. Springer says about optimal reliever usage**\
+`Springer's dramatic home run came in his third plate appearance against Bazardo in the ALCS. Is that usage the reason Springer hit a dinger?`\
+https://nytimes.com/athletic/6737213/2025/10/21/mlb-playoff-bullpen-usage-strategy-eduard-bazardo-george-springer/
+
 **What Dan Wilson's decision to use Bazardo vs. Springer says about optimal reliever usage**\
 `In the aftermath of a come-from-ahead loss in Game 7 of the American League Championship Series, Seattle Mariners manager Dan Wilson is taking heat for the decision call on Eduard Bazardo to face George Springer in the seventh inning with the season on the line.`\
 https://nytimes.com/athletic/6737213/2025/10/21/mlb-playoff-bullpen-usage-strategy-eduard-bazardo-george-springer/
