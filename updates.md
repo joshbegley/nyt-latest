@@ -1,3 +1,11 @@
+**Some States With Democratic Governors Are Posting Partisan Shutdown Messages on Official Websites**\
+`The messages follow a pattern set by the Trump administration, but use notably milder language.`\
+https://nytimes.com/2025/10/20/us/politics/shutdown-messages-state-websites.html
+
+**Who is the Most Interesting Player in the N.B.A. this Season?**\
+`Zach Harper, Law Murray and Eric Nehm, three writers covering basketball for The Athletic, debate who the most interesting figures will be this N.B.A. season.`\
+https://nytimes.com/video/the-athletic/100000010470869/who-is-the-most-interesting-player-in-the-nba-this-season.html
+
 **We Investigated Assad’s Fugitive Henchmen**\
 `Haley Willis and Christiaan Triebert, reporters from the Times’s Visual Investigations team, share findings from their ongoing reporting project on the roles and whereabouts of henchmen for Bashar al-Assad, the former Syrian president.`\
 https://nytimes.com/video/world/middleeast/100000010470417/we-investigated-assads-fugitive-henchmen.html
