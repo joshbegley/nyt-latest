@@ -1,3 +1,7 @@
+**Rosenthal: Gritting through the pain, George Springer gets his signature Blue Jays moment**\
+`Springer's go-ahead home run will stand as one of the biggest in Jays history, a Joe Carter-like landmark for a new generation of fans.`\
+https://nytimes.com/athletic/6735902/2025/10/21/blue-jays-world-series-george-springer-alcs/
+
 **Why Nottingham Forest chose Dyche over Mancini and Silva**\
 `The Premier League side have wasted little time in appointing a successor to Ange Postecoglou. This is how they decided on Dyche...`\
 https://nytimes.com/athletic/6733356/2025/10/21/nottingham-forest-dyche-mancini-silva/
