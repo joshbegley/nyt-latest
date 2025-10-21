@@ -1,3 +1,11 @@
+**Some States With Democratic Governors Are Posting Partisan Shutdown Messages on Official Websites**\
+`The messages follow a pattern set by the Trump administration, but use notably milder language.`\
+https://nytimes.com/2025/10/20/us/politics/shutdown-messages-state-websites.html
+
+**Who is the Most Interesting Player in the N.B.A. this Season?**\
+`Zach Harper, Law Murray and Eric Nehm, three writers covering basketball for The Athletic, debate who the most interesting figures will be this N.B.A. season.`\
+https://nytimes.com/video/the-athletic/100000010470869/who-is-the-most-interesting-player-in-the-nba-this-season.html
+
 **We Investigated Assad’s Fugitive Henchmen**\
 `Haley Willis and Christiaan Triebert, reporters from the Times’s Visual Investigations team, share findings from their ongoing reporting project on the roles and whereabouts of henchmen for Bashar al-Assad, the former Syrian president.`\
 https://nytimes.com/video/world/middleeast/100000010470417/we-investigated-assads-fugitive-henchmen.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6735238/2025/10/20/mike-evans-buccaneers-injury-con
 **New York to Albany by Train for $40 Flat? It’s Happening Next Year.**\
 `For the first time, Metro-North will run trains past Poughkeepsie through the Hudson Valley to Albany. Some Amtrak service will also be restored.`\
 https://nytimes.com/2025/10/20/nyregion/metro-north-trains-albany-hochul.html
-
-**Illinois Officials Ask Supreme Court to Keep Block on Trump’s Chicago Troop Deployment**\
-`A Supreme Court ruling, while technically temporary, could set the ground rules for National Guard deployments elsewhere in the country.`\
-https://nytimes.com/2025/10/20/us/politics/trump-national-guard-chicago.html
-
-**2022 draftees Jalen Duren, Jaden Ivey will be restricted free agents**\
-`The Pistons didn't extend their two prizes from the 2022 NBA Draft. What does that mean for the next stage of their rebuild?`\
-https://nytimes.com/athletic/6734862/2025/10/20/jalen-duren-jaden-ivey-pistons-rookie-scale-contract-extension/
 
