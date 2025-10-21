@@ -1,3 +1,19 @@
+**The W.N.B.A.**\
+`Are you a fan? Have you ever been to a game?`\
+https://nytimes.com/2025/10/21/learning/the-wnba.html
+
+**Curtis Sliwa Has the Spotlight. He’s Not About to Give It Up.**\
+`Mr. Sliwa, the Republican nominee for mayor of New York City, finds himself a major player in the race. He’s under heavy pressure to drop out.`\
+https://nytimes.com/2025/10/21/nyregion/curtis-sliwa-mayor.html
+
+**Guard Enraged by Chaos at Jail Chased and Shot at Smugglers, U.S. Says**\
+`Leon Wilson worked at the troubled Metropolitan Detention Center in Brooklyn for decades. Prosecutors say he pursued suspects for five miles in a violent fury.`\
+https://nytimes.com/2025/10/21/nyregion/brooklyn-mdc-contraband-guard-trial.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/21/crosswords/spelling-bee-forum.html
+
 **How to watch Colorado vs. Utah: Time, TV, streaming**\
 `Find out how to watch the Colorado Buffaloes play the Utah Utes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6735929/2025/10/21/colorado-vs-utah-stream-how-to-watch-oct-25/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/21/world/middleeast/jd-vance-israel-gaza-ceasefire.h
 **Seahawks-Texans takeaways: Too much Jaxon Smith-Njigba, too much Seattle defense**\
 `The Seattle star receiver caught eight passes for 123 yards and the Seahawks harassed quarterback C.J. Stroud all night long to win 27-19.`\
 https://nytimes.com/athletic/6735120/2025/10/21/seahawks-texans-takeaways-mnf/
-
-**Nuno's new dawn at West Ham: Confusing tactics, a toothless attack and tension in the stands**\
-`The scale of the task taken on by the Portuguese was exposed as Brentford eased to a comfortable win at a mutinous London Stadium`\
-https://nytimes.com/athletic/6735209/2025/10/21/west-ham-nuno-brentford-wilson-tension/
-
-**The New York Times in Print for Tuesday, Oct. 21, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/10/21/todays-new-york-times
-
-**As Blue Jays clinch World Series berth, Drake celebrates Toronto's 'going to the big show'**\
-`Once again, two representatives from Los Angeles and Toronto find themselves at odds on a major stage.`\
-https://nytimes.com/athletic/6735709/2025/10/21/drake-toronto-blue-jays-world-series/
-
-**Japan Has a New Leader, and She’s a Heavy Metal Drummer**\
-`Sanae Takaichi, a fan of Iron Maiden, had an improbable rise to power. Like her mentor, Shinzo Abe, she is expected to lead Japan to the right.`\
-https://nytimes.com/2025/10/21/world/asia/sanae-takaichi-japan-prime-minister.html
 
