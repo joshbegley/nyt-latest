@@ -1,3 +1,7 @@
+**Buccaneers-Lions takeaways: Jahmyr Gibbs racks up yards, short-handed defense steps up in Detroit's win**\
+`Gibbs paced Detroit's offense, while the Lions' short-handed defense got impressive performances from the reserves.`\
+https://nytimes.com/athletic/6735488/2025/10/20/buccaneers-lions-takeaways-score-result/
+
 **Full Range**\
 `Spencer Leach lights the way.`\
 https://nytimes.com/2025/10/20/crosswords/daily-puzzle-2025-10-21.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6735317/2025/10/20/tennessee-vs-kentucky-stream-how
 **How to watch Houston vs. Arizona State: Time, TV, streaming**\
 `Find out how to watch the Houston Cougars play the Arizona State Sun Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6735309/2025/10/20/houston-vs-arizona-state-stream-how-to-watch-oct-25/
-
-**India Illuminates as Diwali Festivals Begin**\
-`Millions of families commenced celebrations this week for Diwali, the Hindu festival of lights and the biggest public holiday in India.`\
-https://nytimes.com/video/world/asia/100000010469778/india-diwali-celebrations-fireworks-pollution.html
 

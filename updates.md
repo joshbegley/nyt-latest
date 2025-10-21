@@ -1,3 +1,7 @@
+**Buccaneers-Lions takeaways: Jahmyr Gibbs racks up yards, short-handed defense steps up in Detroit's win**\
+`Gibbs paced Detroit's offense, while the Lions' short-handed defense got impressive performances from the reserves.`\
+https://nytimes.com/athletic/6735488/2025/10/20/buccaneers-lions-takeaways-score-result/
+
 **Full Range**\
 `Spencer Leach lights the way.`\
 https://nytimes.com/2025/10/20/crosswords/daily-puzzle-2025-10-21.html

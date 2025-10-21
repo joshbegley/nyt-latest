@@ -1,3 +1,15 @@
+**Building the Blue Jays: 10 steps that got Toronto back to the World Series**\
+`This World Series roster didn't come together overnight. These Blue Jays were built with a series of moves over a decade.  `\
+https://nytimes.com/athletic/6733763/2025/10/20/building-blue-jays-10-steps-world-series/
+
+**Mariners-Blue Jays Game 7 takeaways: George Springer blasts Toronto into the World Series**\
+`The Blue Jays will host the Dodgers in Game 1 of the World Series on Friday.`\
+https://nytimes.com/athletic/6735493/2025/10/20/mariners-blue-jays-game-7-score-result-alcs-playoff-mlb/
+
+**Dodgers, Blue Jays to meet in World Series: Prediction, key players and more**\
+`Can the Dodgers repeat, or will their dominant postseason run end in the World Series against the Blue Jays?`\
+https://nytimes.com/athletic/6728983/2025/10/20/dodgers-blue-jays-world-series-preview/
+
 **Buccaneers-Lions takeaways: Jahmyr Gibbs racks up yards, short-handed defense steps up in Detroit's win**\
 `Gibbs paced Detroit's offense, while the Lions' short-handed defense got impressive performances from the reserves.`\
 https://nytimes.com/athletic/6735488/2025/10/20/buccaneers-lions-takeaways-score-result/
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010470417/we-investigated-assad
 **What Brandon Graham's impending return from retirement means for the Eagles**\
 `The news comes after Za'Darius Smith's sudden retirement announcement.`\
 https://nytimes.com/athletic/6735248/2025/10/20/brandon-graham-finalizing-eagles-return-retirement/
-
-**Mariners’ Josh Naylor called for interference on bizarre play using his head**\
-`Running towards second, Naylor tried to break up a double play by jumping into the path of an incoming throw. `\
-https://nytimes.com/athletic/6735256/2025/10/20/mariners-josh-naylor-alcs-runners-interference/
-
-**How to watch Tennessee vs. Kentucky: Time, TV, streaming**\
-`Find out how to watch the Tennessee Volunteers play the Kentucky Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6735317/2025/10/20/tennessee-vs-kentucky-stream-how-to-watch-oct-25/
-
-**How to watch Houston vs. Arizona State: Time, TV, streaming**\
-`Find out how to watch the Houston Cougars play the Arizona State Sun Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6735309/2025/10/20/houston-vs-arizona-state-stream-how-to-watch-oct-25/
 
