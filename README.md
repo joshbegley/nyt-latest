@@ -1,3 +1,7 @@
+**Wild's Danila Yurov scores first NHL goal in 3-1 win over Rangers: Takeaways**\
+`The Wild revert to a style of play that matches how they are built and defeat the Rangers to end a three-game winless stretch.`\
+https://nytimes.com/athletic/6735368/2025/10/20/wild-danila-yurov-first-goal-rangers/
+
 **Biden Completes a Course of Radiation Therapy for Prostate Cancer**\
 `Former President Joseph R. Biden Jr. began radiation therapy last month for an aggressive form of prostate cancer. It is unclear if his treatment has ended.`\
 https://nytimes.com/2025/10/20/us/politics/biden-cancer-treatment-radiation-therapy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6735461/2025/10/20/tyler-skaggs-trial-angels-employ
 **Some States With Democratic Governors Are Posting Partisan Shutdown Messages on Official Websites**\
 `The messages follow a pattern set by the Trump administration, but use notably milder language.`\
 https://nytimes.com/2025/10/20/us/politics/shutdown-messages-state-websites.html
-
-**Who is the Most Interesting Player in the N.B.A. this Season?**\
-`Zach Harper, Law Murray and Eric Nehm, three writers covering basketball for The Athletic, debate who the most interesting figures will be this N.B.A. season.`\
-https://nytimes.com/video/the-athletic/100000010470869/who-is-the-most-interesting-player-in-the-nba-this-season.html
 
