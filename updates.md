@@ -1,3 +1,15 @@
+**How to watch Rockets vs. Thunder: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6737141/2025/10/21/rockets-vs-thunder-stream-how-to-watch-oct-21/
+
+**An American Painter Who Honors His Heritage Shows in Paris**\
+`Works by Patrick Eugène, whose family is from Haiti, will be on display at the Mariane Ibrahim Gallery during Art Basel Paris.`\
+https://nytimes.com/2025/10/21/arts/design/american-painter-patrick-eugene-haiti.html
+
+**Two Artists, One Living and One Dead, Meet in a Paris Museum**\
+`Over a decade ago, Nate Lowman stumbled upon the museum honoring the Romantic painter Eugène Delacroix. Now, he is showing his own work there.`\
+https://nytimes.com/2025/10/21/arts/design/nate-lowman-eugene-delacroix.html
+
 **Paris Celebrates Art, but Without Its Global Hub in the City’s Center**\
 `The Pompidou Center will remain closed until 2030, and professionals said there was no substitute. But its art will still be shown, and there are other cultural opportunities.`\
 https://nytimes.com/2025/10/21/arts/design/art-basel-paris-pompidou-shut.html

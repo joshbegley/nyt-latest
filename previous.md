@@ -1,3 +1,15 @@
+**How to watch Rockets vs. Thunder: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6737141/2025/10/21/rockets-vs-thunder-stream-how-to-watch-oct-21/
+
+**An American Painter Who Honors His Heritage Shows in Paris**\
+`Works by Patrick Eugène, whose family is from Haiti, will be on display at the Mariane Ibrahim Gallery during Art Basel Paris.`\
+https://nytimes.com/2025/10/21/arts/design/american-painter-patrick-eugene-haiti.html
+
+**Two Artists, One Living and One Dead, Meet in a Paris Museum**\
+`Over a decade ago, Nate Lowman stumbled upon the museum honoring the Romantic painter Eugène Delacroix. Now, he is showing his own work there.`\
+https://nytimes.com/2025/10/21/arts/design/nate-lowman-eugene-delacroix.html
+
 **Paris Celebrates Art, but Without Its Global Hub in the City’s Center**\
 `The Pompidou Center will remain closed until 2030, and professionals said there was no substitute. But its art will still be shown, and there are other cultural opportunities.`\
 https://nytimes.com/2025/10/21/arts/design/art-basel-paris-pompidou-shut.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/opinion/100000010465636/the-rural-power-behind-trumps-
 **‘The Monster of Florence’ Shows a Darker View of Tuscany**\
 `A new Italian series on Netflix chronicles one of Italy’s most notorious serial-killer cases, which remains unsolved.`\
 https://nytimes.com/2025/10/21/arts/television/the-monster-of-florence-netflix.html
-
-**A Surfing Safari Detours Into Eugenics**\
-`In “Capturing Kahanamoku,” the historian Michael Rossi argues that an ugly pseudoscientific movement had its roots in a beautiful sport.`\
-https://nytimes.com/2025/10/21/books/review/capturing-kahanamoku-michael-rossi.html
-
-**Shutdown Brings More BASE Jumpers and Drones to Yosemite Skies**\
-`Emboldened by the lapse in government funding and employee furloughs, some visitors are brazenly betting that they won’t get caught for breaking the law.`\
-https://nytimes.com/2025/10/21/travel/yosemite-shutdown-base-jumping.html
-
-**Quiz: Do You Know Ball?**\
-`Test your knowledge of the real and fictional N.B.A.`\
-https://nytimes.com/interactive/2025/10/21/arts/television/basketball-quiz-nba-season-start.html
 

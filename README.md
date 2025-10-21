@@ -34,7 +34,3 @@ https://nytimes.com/athletic/6736995/2025/10/21/pwhl-jerseys-seattle-vancouver-e
 `The political scientist Suzanne Mettler examines the roots of America’s urban-rural divide and how Democrats can win back rural voters.`\
 https://nytimes.com/video/opinion/100000010465636/the-rural-power-behind-trumps-assault-on-blue-cities.html
 
-**‘The Monster of Florence’ Shows a Darker View of Tuscany**\
-`A new Italian series on Netflix chronicles one of Italy’s most notorious serial-killer cases, which remains unsolved.`\
-https://nytimes.com/2025/10/21/arts/television/the-monster-of-florence-netflix.html
-
