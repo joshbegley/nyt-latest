@@ -1,3 +1,7 @@
+**Read pages from Luigi Mangione’s Journal**\
+`A journal detailing plans to assassinate a health insurance company executive was found in Luigi Mangione’s possession after he was arrested in the shooting death of UnitedHealthcare C.E.O. Brian Thompson in December 2024.`\
+https://nytimes.com/interactive/2025/10/21/us/luigi-mangione-diary.html
+
 **'Gaffer's Day', V defending, and no egos: What Forest can expect from Dyche**\
 `Assessing how the new Forest head coach will tackle his job in five key areas`\
 https://nytimes.com/athletic/6732905/2025/10/21/what-nottingham-forest-can-expect-from-sean-dyche-gaffers-day-v-defending-and-no-egos/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6736695/2025/10/21/brad-marchand-hockey-hall-of-fam
 **Ramos in talks to renew Monterrey contract**\
 `If the new deal is confirmed it would see Ramos play pastswould continue to extend his long career and play in Mexico until he is 40,`\
 https://nytimes.com/athletic/6736756/2025/10/21/sergio-ramos-contract-news-monterrey/
-
-**Former French President Nicolas Sarkozy Is Imprisoned**\
-`Nicolas Sarkozy, the president of France from 2007 to 2012, began a five-year prison term after he was found guilty of conspiring to seek funding from Libya for his 2007 presidential campaign. He has appealed the verdict.`\
-https://nytimes.com/video/world/europe/100000010471284/former-french-president-nicolas-sarkozy-is-imprisoned.html
 
