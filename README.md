@@ -1,3 +1,7 @@
+**Kompany signs new Bayern contract until 2029**\
+`The 39-year-old, who joined from Burnley in 2024, won the Bundesliga title with Bayern in his first season at the club.`\
+https://nytimes.com/athletic/6736217/2025/10/21/vincent-kompany-new-bayern-contract/
+
 **The Pulse: Toronto overcomes a powerful jinx**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6733489/2025/10/21/toronto-overcomes-a-powerful-jinx-plus-our-new-nfl-playoff-simulator/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6734030/2025/10/21/vikings-nfl-trade-deadline-kwesi
 **Stephen Curry, LeBron James and the 'surreal' reality of their longevity**\
 `LeBron and Steph are still the faces of the league and know how intertwined their legacies are. But who could be next? `\
 https://nytimes.com/athletic/6733800/2025/10/21/steph-curry-lebron-james-future-nba/
-
-**All League Championship Series team: Springer and Ohtani deliver dual DH delights**\
-`One League Championship Series went four games and was thoroughly dominated by pitching. The other went seven games and was a slugfest. `\
-https://nytimes.com/athletic/6735507/2025/10/21/mlb-all-lcs-team-springer-ohtani-dh/
 

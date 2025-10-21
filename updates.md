@@ -1,3 +1,7 @@
+**The Pulse: Toronto overcomes a powerful jinx**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6733489/2025/10/21/toronto-overcomes-a-powerful-jinx-plus-our-new-nfl-playoff-simulator/
+
 **NBA MVP and awards odds: SGA, Jokic, Flagg and Wemby leading**\
 `Who is favored to have a standout season as the NBA tips off?`\
 https://nytimes.com/athletic/6734316/2025/10/21/nba-mvp-odds-sga-wembanyama-jokic/
