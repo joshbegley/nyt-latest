@@ -1,40 +1,40 @@
-**New York, Los Angeles among first cities in new women's pro baseball league**\
-`Mo'ne Davis highlights the players eligible for the Women's Pro Baseball League draft next month.`\
-https://nytimes.com/athletic/6734910/2025/10/21/womens-baseball-league-ny-la/
+**Makeshift Lions secondary met the moment in a big way vs. Bucs: 'We heard all the noise'**\
+`With both starting cornerbacks and both starting safeties out, the Lions gave Baker Mayfield and the Bucs' offense fits Monday night.`\
+https://nytimes.com/athletic/6735834/2025/10/21/lions-secondary-backups-defense-mnf/
 
-**Nations Hesitate to Send Troops to Gaza, Fearing Clashes With Hamas**\
-`The Trump peace plan calls for an international security force in the Gaza Strip, but countries that might send troops are wary of danger, an unclear mission and being seen as occupiers.`\
-https://nytimes.com/2025/10/21/world/middleeast/gaza-ceasefire-international-security-force-hamas.html
+**While Dave Canales tries to keep Bills guessing, Andy Dalton ready to step in**\
+`“If we can have Bryce out there on Sunday, I would love for that to be the case,” Canales said Monday about his starting QB.`\
+https://nytimes.com/athletic/6734886/2025/10/21/panthers-bryce-young-andy-dalton-starting/
 
-**NBC is back, Amazon debuts, 'Inside' moves over: Introducing the NBA's new TV landscape**\
-`Fans tuning into the NBA this season will have to adjust their viewing habits to new networks and a seven-day-a-week national TV schedule.`\
-https://nytimes.com/athletic/6733869/2025/10/21/nba-amazon-nbc-espn-schedule/
+**Vikings trade deadline manifesto: Why standing pat probably makes the most sense**\
+`It seems unlikely that GM Kwesi Adofo-Mensah would further mortgage the future for the present, especially with a struggling offense.`\
+https://nytimes.com/athletic/6734030/2025/10/21/vikings-nfl-trade-deadline-kwesi-adofo-mensah/
 
-**Greenberg: Bulls look to kick-start another 39-win, ninth-place season. Who's excited?**\
-`As the Bulls open the season Wednesday at home against the Detroit Pistons, they're not quite an afterthought — but it's close.`\
-https://nytimes.com/athletic/6734789/2025/10/21/chicago-bulls-prediction-season/
+**Stephen Curry, LeBron James and the 'surreal' reality of their longevity**\
+`LeBron and Steph are still the faces of the league and know how intertwined their legacies are. But who could be next? `\
+https://nytimes.com/athletic/6733800/2025/10/21/steph-curry-lebron-james-future-nba/
 
-**Beloved Indie Designer Gets a Big New Job at Hermès**\
-`Grace Wales Bonner is the new creative director of men’s wear at the French fashion house.`\
-https://nytimes.com/2025/10/21/style/grace-wales-bonner-hermes-men.html
+**All League Championship Series team: Springer and Ohtani deliver dual DH delights**\
+`One League Championship Series went four games and was thoroughly dominated by pitching. The other went seven games and was a slugfest. `\
+https://nytimes.com/athletic/6735507/2025/10/21/mlb-all-lcs-team-springer-ohtani-dh/
 
-**Before Brazen Louvre Jewel Heist, There Were Lingering Security Concerns**\
-`Investigators were looking into the alarm systems at an institution that one expert said “wasn’t built with an obsession over security.”`\
-https://nytimes.com/2025/10/21/world/europe/louvre-robbery-security-paris.html
+**Can these 7 NHL veterans sustain their early hot starts?**\
+`Here's a deeper look into some of the most surprising NHL points leaders and the likelihood that their early surges continue.`\
+https://nytimes.com/athletic/6729553/2025/10/21/7-nhl-veterans-on-track-to-have-bounce-back-years/
 
-**How much should the Mets pay to bring back Pete Alonso again?**\
-`Alonso's age and defense work against him in free agency, but his bat is hard to ignore.`\
-https://nytimes.com/athletic/6734412/2025/10/21/mets-pete-alonso-free-agent/
+**The Athletic NBA staff predictions for 2025-26: More Thunder success, another Jokić award**\
+`That’s the thing about predictions: You never know when you’re being unrealistic, but you also don’t know when you’re playing it too safe.`\
+https://nytimes.com/athletic/6733487/2025/10/21/nba-predictions-athletic-staff-2025-26-joker-mvp/
 
-**NFL Week 8 power rankings: Reality check causes reshuffling on top as Colts show mettle**\
-`In a season of parity, it has taken time to sort out who's good and who's just OK. The Colts continue to impress, but there's a new No. 1.`\
-https://nytimes.com/athletic/6733797/2025/10/21/nfl-power-rankings-week-8-reality-check-colts/
+**Bucks waive two with guaranteed contracts to sign two with non-guaranteed deals. Why?**\
+`Milwaukee waived two players with guaranteed contracts to sign two with partially guaranteed deals. What does this mean for the Bucks?`\
+https://nytimes.com/athletic/6723016/2025/10/21/bucks-roster-2025-2026-giannis-antetokounmpo-doc-rivers/
 
-**The New York Times International Edition in Print for Wednesday, Oct. 22, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/10/21/todays-new-york-times-international-edition
+**Are the Red Wings legit? What I think and what I know**\
+`Detroit's young players and improved team defense are encouraging signs so far. Can the Red Wings keep this up?`\
+https://nytimes.com/athletic/6734442/2025/10/21/red-wings-win-streak-todd-mclellan/
 
-**Can a U.S.-Australia Partnership Shake China’s Grip on Rare Earths?**\
-`Australia’s got reserves and mining expertise, and the United States is eager to invest in alternatives to China. But building mines, refineries and factories could take years.`\
-https://nytimes.com/2025/10/21/world/australia/rare-earths-us-partnership.html
+**Rangers avoid unwanted record, but frustration bubbles as scoring woes continue**\
+`"We've got to work on our offense," Artemi Panarin said. "Our defense hasn't been bad, but you can't win with one goal."`\
+https://nytimes.com/athletic/6735353/2025/10/21/new-york-rangers-scoring-woes-continue/
 

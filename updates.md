@@ -1,3 +1,15 @@
+**New York, Los Angeles among first cities in new women's pro baseball league**\
+`Mo'ne Davis highlights the players eligible for the Women's Pro Baseball League draft next month.`\
+https://nytimes.com/athletic/6734910/2025/10/21/womens-baseball-league-ny-la/
+
+**Nations Hesitate to Send Troops to Gaza, Fearing Clashes With Hamas**\
+`The Trump peace plan calls for an international security force in the Gaza Strip, but countries that might send troops are wary of danger, an unclear mission and being seen as occupiers.`\
+https://nytimes.com/2025/10/21/world/middleeast/gaza-ceasefire-international-security-force-hamas.html
+
+**Beloved Indie Designer Gets a Big New Job at Hermès**\
+`Grace Wales Bonner is the new creative director of men’s wear at the French fashion house.`\
+https://nytimes.com/2025/10/21/style/grace-wales-bonner-hermes-men.html
+
 **NBC is back, Amazon debuts, 'Inside' moves over: Introducing the NBA's new TV landscape**\
 `Fans tuning into the NBA this season will have to adjust their viewing habits to new networks and a seven-day-a-week national TV schedule.`\
 https://nytimes.com/athletic/6733869/2025/10/21/nba-amazon-nbc-espn-schedule/

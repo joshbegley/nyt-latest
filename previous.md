@@ -1,3 +1,11 @@
+**New York, Los Angeles among first cities in new women's pro baseball league**\
+`Mo'ne Davis highlights the players eligible for the Women's Pro Baseball League draft next month.`\
+https://nytimes.com/athletic/6734910/2025/10/21/womens-baseball-league-ny-la/
+
+**Nations Hesitate to Send Troops to Gaza, Fearing Clashes With Hamas**\
+`The Trump peace plan calls for an international security force in the Gaza Strip, but countries that might send troops are wary of danger, an unclear mission and being seen as occupiers.`\
+https://nytimes.com/2025/10/21/world/middleeast/gaza-ceasefire-international-security-force-hamas.html
+
 **NBC is back, Amazon debuts, 'Inside' moves over: Introducing the NBA's new TV landscape**\
 `Fans tuning into the NBA this season will have to adjust their viewing habits to new networks and a seven-day-a-week national TV schedule.`\
 https://nytimes.com/athletic/6733869/2025/10/21/nba-amazon-nbc-espn-schedule/
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/6733869/2025/10/21/nba-amazon-nbc-espn-schedule/
 https://nytimes.com/athletic/6734789/2025/10/21/chicago-bulls-prediction-season/
 
 **Beloved Indie Designer Gets a Big New Job at Hermès**\
-`Grace Wales Bonner is the new head of men’s wear at the French fashion house.`\
+`Grace Wales Bonner is the new creative director of men’s wear at the French fashion house.`\
 https://nytimes.com/2025/10/21/style/grace-wales-bonner-hermes-men.html
 
 **Before Brazen Louvre Jewel Heist, There Were Lingering Security Concerns**\
@@ -29,12 +37,4 @@ https://nytimes.com/issue/todaysinyt/2025/10/21/todays-new-york-times-internatio
 **Can a U.S.-Australia Partnership Shake China’s Grip on Rare Earths?**\
 `Australia’s got reserves and mining expertise, and the United States is eager to invest in alternatives to China. But building mines, refineries and factories could take years.`\
 https://nytimes.com/2025/10/21/world/australia/rare-earths-us-partnership.html
-
-**Japan Shifts Further Right With Its First Female Prime Minister**\
-`Japanese lawmakers elected the country’s first female prime minister, Sanae Takaichi, a hard-line conservative. Javier C. Hernández, our Tokyo bureau chief, visited several places in her home region that show how she reflects Japan’s growing far right.`\
-https://nytimes.com/video/world/asia/100000010466661/sanae-takaichi-japan-prime-minister.html
-
-**Russia Pushes a State-Controlled ‘Super App’ by Sabotaging Its Rivals**\
-`As the Kremlin throttles WhatsApp and Telegram, the new MAX messaging app is moving Russia closer to a restricted internet without foreign technology.`\
-https://nytimes.com/2025/10/21/world/europe/russia-max-app.html
 
