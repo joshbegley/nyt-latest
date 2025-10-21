@@ -1,3 +1,11 @@
+**Vance Heads to Israel as U.S. Tries to Shore Up Gaza Truce**\
+`With the cease-fire deal under strain, Vice President JD Vance is set to meet with Prime Minister Benjamin Netanyahu and other leaders.`\
+https://nytimes.com/2025/10/21/world/middleeast/jd-vance-israel-gaza-ceasefire.html
+
+**Seahawks-Texans takeaways: Too much Jaxon Smith-Njigba, too much Seattle defense**\
+`The Seattle star receiver caught eight passes for 123 yards and the Seahawks harassed quarterback C.J. Stroud all night long to win 27-19.`\
+https://nytimes.com/athletic/6735120/2025/10/21/seahawks-texans-takeaways-mnf/
+
 **Nuno's new dawn at West Ham: Confusing tactics, a toothless attack and tension in the stands**\
 `The scale of the task taken on by the Portuguese was exposed as Brentford eased to a comfortable win at a mutinous London Stadium`\
 https://nytimes.com/athletic/6735209/2025/10/21/west-ham-nuno-brentford-wilson-tension/
