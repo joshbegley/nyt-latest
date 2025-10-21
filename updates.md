@@ -1,3 +1,7 @@
+**What Brandon Graham's impending return from retirement means for the Eagles**\
+`The news comes after Za'Darius Smith's sudden retirement announcement.`\
+https://nytimes.com/athletic/6735248/2025/10/20/brandon-graham-finalizing-eagles-return-retirement/
+
 **Mariners’ Josh Naylor called for interference on bizarre play using his head**\
 `Running towards second, Naylor tried to break up a double play by jumping into the path of an incoming throw. `\
 https://nytimes.com/athletic/6735256/2025/10/20/mariners-josh-naylor-alcs-runners-interference/
