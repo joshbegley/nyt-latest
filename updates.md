@@ -1,3 +1,7 @@
+**Late Night Revisits Ye Olde ‘No Kings’ Protests**\
+`Jon Stewart consulted the Declaration of Independence’s king-inspired stipulations on “The Daily Show.”`\
+https://nytimes.com/2025/10/21/arts/television/late-night-no-kings-protests.html
+
 **The W.N.B.A.**\
 `Are you a fan? Have you ever been to a game?`\
 https://nytimes.com/2025/10/21/learning/the-wnba.html

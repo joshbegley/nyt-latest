@@ -1,3 +1,7 @@
+**Late Night Revisits Ye Olde ‘No Kings’ Protests**\
+`Jon Stewart consulted the Declaration of Independence’s king-inspired stipulations on “The Daily Show.”`\
+https://nytimes.com/2025/10/21/arts/television/late-night-no-kings-protests.html
+
 **The W.N.B.A.**\
 `Are you a fan? Have you ever been to a game?`\
 https://nytimes.com/2025/10/21/learning/the-wnba.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/21/learning/word-of-the-day-titular.html
 **Vance Heads to Israel as U.S. Tries to Shore Up Gaza Truce**\
 `With the cease-fire deal under strain, Vice President JD Vance is set to meet with Prime Minister Benjamin Netanyahu and other leaders.`\
 https://nytimes.com/2025/10/21/world/middleeast/jd-vance-israel-gaza-ceasefire.html
-
-**Seahawks-Texans takeaways: Too much Jaxon Smith-Njigba, too much Seattle defense**\
-`The Seattle star receiver caught eight passes for 123 yards and the Seahawks harassed quarterback C.J. Stroud all night long to win 27-19.`\
-https://nytimes.com/athletic/6735120/2025/10/21/seahawks-texans-takeaways-mnf/
 
