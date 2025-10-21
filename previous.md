@@ -1,3 +1,7 @@
+**Brooklyn FC tabs USMNT great Brian McBride as first GM**\
+`McBride is heading back into management in USL after his role as U.S. men's national team general manager`\
+https://nytimes.com/athletic/6736600/2025/10/21/brooklyn-fc-brian-mcbride-gm-usmnt-usl-championship/
+
 **The Central Division is the toughest in the NHL. Here's how Winnipeg can win it**\
 `How will Winnipeg keep pace in the inevitable Central Division arms race?`\
 https://nytimes.com/athletic/6734416/2025/10/21/central-division-winnipeg-jets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6736414/2025/10/21/rams-week-8-mailbag/
 **How to watch the Toronto Raptors: TV schedule and broadcast rotation for 2025-26 season**\
 `Here's how to watch all 82 regular-season Raptors games, for fans in Canada and those in the U.S.`\
 https://nytimes.com/athletic/6727217/2025/10/21/toronto-raptors-canada-us-how-to-watch/
-
-**Three years into his Lakers tenure, Gabe Vincent makes a true start**\
-`Vincent's role and status as potential trade bait could have gotten him down. Instead, he says, "I'm all in on Laker basketball." `\
-https://nytimes.com/athletic/6735647/2025/10/21/gabe-vincent-lakers-starting-opener/
 

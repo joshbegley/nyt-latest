@@ -1,3 +1,7 @@
+**Brooklyn FC tabs USMNT great Brian McBride as first GM**\
+`McBride is heading back into management in USL after his role as U.S. men's national team general manager`\
+https://nytimes.com/athletic/6736600/2025/10/21/brooklyn-fc-brian-mcbride-gm-usmnt-usl-championship/
+
 **Cuomo to Propose That New York City Take Partial Control of Subway**\
 `Andrew Cuomo, whose stewardship of the M.T.A. as governor was contentious, will suggest that the authority hand over responsibility for capital construction and maintenance to the city.`\
 https://nytimes.com/2025/10/21/nyregion/cuomo-nyc-subway.html
