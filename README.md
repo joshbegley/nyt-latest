@@ -1,5 +1,5 @@
 **Silver says WNBA players are 'going to get a big increase' in pay**\
-`Speaking on NBC's "Today," Silver commented on the ongoing WNBA CBA negotiations.  `\
+`Speaking on NBC's "Today," Adam Silver commented on the ongoing WNBA CBA negotiations.  `\
 https://nytimes.com/athletic/6736980/2025/10/21/adam-silver-wnba-players-pay-increase/
 
 **Critical fantasy football insights for Week 8: Bo Nix's historic fourth quarter and more**\
