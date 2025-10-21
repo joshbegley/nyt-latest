@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6735849/2025/10/21/blue-jays-pennant-world-series-d
 https://nytimes.com/2025/10/21/world/europe/sarkozy-france-president-jail.html
 
 **Why Nottingham Forest chose Dyche over Mancini and Silva**\
-`The Premier League side have wasted little time in appointing a successor to Ange Postecoglou. This is how they decided on Dyche`\
+`The Premier League side have wasted little time in appointing a successor to Ange Postecoglou. This is how they decided on Dyche...`\
 https://nytimes.com/athletic/6733356/2025/10/21/nottingham-forest-dyche-mancini-silva/
 
 **Forest appoint Dyche as new head coach**\

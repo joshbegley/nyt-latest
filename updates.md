@@ -1,3 +1,7 @@
+**Why Nottingham Forest chose Dyche over Mancini and Silva**\
+`The Premier League side have wasted little time in appointing a successor to Ange Postecoglou. This is how they decided on Dyche...`\
+https://nytimes.com/athletic/6733356/2025/10/21/nottingham-forest-dyche-mancini-silva/
+
 **The lover's guide to the 2025 World Series**\
 `The Blue Jays have a nation on their side, and everyone else who didn't grow up a Dodger fan. LA has Shohei Ohtani. This will be fun.`\
 https://nytimes.com/athletic/6735233/2025/10/21/world-series-preview-2025-dodgers-blue-jays/
