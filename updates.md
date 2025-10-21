@@ -1,3 +1,11 @@
+**Federal Agents Detain Man During New York City Raid**\
+`Masked federal agents detained a man in Lower Manhattan on Tuesday, handcuffing him while he faced the wall of a building.`\
+https://nytimes.com/video/us/politics/100000010472692/manhattan-ice-immigration-raid.html
+
+**‘KPop Demon Hunters’ Helps Lift Netflix Revenue 17%**\
+`The streaming giant said the higher results came from a mix of subscription growth, advertising and other sales.`\
+https://nytimes.com/2025/10/21/business/media/kpop-netflix-quarterly-report.html
+
 **Duke lands commitment from 5-star Bryson Howard, son of ex-NBAer Josh Howard**\
 `Jon Scheyer's Duke has a track record of building the No. 1 recruiting class in the country. The 2026 group begins with Howard.`\
 https://nytimes.com/athletic/6737744/2025/10/21/duke-bryson-howard-commitment-college-basketball/
