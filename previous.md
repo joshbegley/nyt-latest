@@ -1,3 +1,27 @@
+**What Is Group 7? You’re Either in or You’re ‘No One.’**\
+`A “science experiment” by the singer Sophia James has people proudly declaring their membership in an exclusive group.`\
+https://nytimes.com/2025/10/21/style/tiktok-group-7-sophia-james.html
+
+**How to watch Kraken vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the Seattle Kraken play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6736906/2025/10/21/kraken-vs-capitals-stream-how-to-watch-oct-21/
+
+**How to watch Devils vs. Maple Leafs: Time, TV, streaming**\
+`Find out how to watch the New Jersey Devils play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6736902/2025/10/21/devils-vs-maple-leafs-stream-how-to-watch-oct-21/
+
+**Harper Lee’s Conflicted Loves Emerge in a New Collection**\
+`“The Land of Sweet Forever” includes stories and essays by a writer who grappled with her Southern roots.`\
+https://nytimes.com/2025/10/21/books/review/harper-lee-land-of-sweet-forever.html
+
+**How to watch Sharks vs. Islanders: Time, TV, streaming**\
+`Find out how to watch the San Jose Sharks play the New York Islanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6736897/2025/10/21/sharks-vs-islanders-stream-how-to-watch-oct-21/
+
+**How to watch Canucks vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the Vancouver Canucks play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6736894/2025/10/21/canucks-vs-penguins-stream-how-to-watch-oct-21/
+
 **How to watch Oilers vs. Senators: Time, TV, streaming**\
 `Find out how to watch the Edmonton Oilers play the Ottawa Senators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6736892/2025/10/21/oilers-vs-senators-stream-how-to-watch-oct-21/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/10/21/us/plane-lands-cockpit.html
 **North Carolina State Senate Approves New Congressional Map in Effort to Add a Seat**\
 `The Trump administration has pushed Republican leaders to redraw House district maps before the midterm elections next year.`\
 https://nytimes.com/2025/10/21/us/north-carolina-state-senate-approves-new-congressional-map-in-effort-to-add-a-seat.html
-
-**Until Saturday: Why has Florida been so mid?**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6736839/2025/10/21/florida-coaching-search-until-saturday/
-
-**Read pages from Luigi Mangione’s Journal**\
-`A journal detailing plans to assassinate a health insurance company executive was found in Luigi Mangione’s possession after he was arrested in the shooting death of UnitedHealthcare C.E.O. Brian Thompson in December 2024.`\
-https://nytimes.com/interactive/2025/10/21/us/luigi-mangione-diary.html
-
-**'Gaffer's Day', V defending, and no egos: What Forest can expect from Dyche**\
-`Assessing how the new Forest head coach will tackle his job in five key areas`\
-https://nytimes.com/athletic/6732905/2025/10/21/what-nottingham-forest-can-expect-from-sean-dyche-gaffers-day-v-defending-and-no-egos/
-
-**The Bounce: NBA predictions as the season tips off. Plus: Contract-extension reactions**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6736779/2025/10/21/nba-predictions-tip-off-contract-extensionsthe-bounce/
-
-**UEFA becomes first sporting body to sign up to global anti-piracy coalition**\
-`The Alliance for Creativity and Entertainment (ACE) is already partnered with companies including Disney, Apple, Netflix and DAZN.`\
-https://nytimes.com/athletic/6736306/2025/10/21/uefa-champions-league-piracy-ace/
-
-**Inside Luigi Mangione’s Missing Months**\
-`From beers at a Bangkok bar to a climb up Mount Omine in Japan, The Times traced the pivotal months before Mr. Mangione was charged with killing UnitedHealthcare’s C.E.O.`\
-https://nytimes.com/2025/10/21/us/luigi-mangione-asia-trip.html
 
