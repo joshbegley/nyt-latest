@@ -1,3 +1,7 @@
+**Jazz owner Ryan Smith sees practice facility as another step of progress**\
+`The Jazz will break ground on a facility in the same location as that of the NHL's Utah Mammoth.`\
+https://nytimes.com/athletic/6732394/2025/10/21/jazz-ryan-smith-practice-facility/
+
 **This School Has Taught Native Hawaiians Since 1887. Is That Discrimination?**\
 `The admissions policy of Kamehameha Schools gives preference to Native Hawaiians. A new lawsuit calls it “blood-based discrimination.”`\
 https://nytimes.com/2025/10/21/us/politics/hawaii-kamehameha-schools-discrimination-lawsuit.html
