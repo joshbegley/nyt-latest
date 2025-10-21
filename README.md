@@ -1,3 +1,7 @@
+**Using his head: Mariners' Josh Naylor called for interference on bizarre play**\
+`Running towards second, Naylor tried to break up a double play by jumping into the path of an incoming throw. `\
+https://nytimes.com/athletic/6735256/2025/10/20/mariners-josh-naylor-alcs-runners-interference/
+
 **How to watch Tennessee vs. Kentucky: Time, TV, streaming**\
 `Find out how to watch the Tennessee Volunteers play the Kentucky Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6735317/2025/10/20/tennessee-vs-kentucky-stream-how-to-watch-oct-25/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6735162/2025/10/20/how-to-watch-no-3-texas-am-vs-no
 **How to watch Oklahoma State vs. Texas Tech: Time, TV, streaming**\
 `Find out how to watch the Oklahoma State Cowboys play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6735156/2025/10/20/how-to-watch-oklahoma-state-vs-no-14-texas-tech-tv-channel-and-streaming-options-for-october-25/
-
-**How to watch Wisconsin vs. Oregon: Time, TV, streaming**\
-`Find out how to watch the Wisconsin Badgers play the Oregon Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6735154/2025/10/20/how-to-watch-wisconsin-vs-no-6-oregon-tv-channel-and-streaming-options-for-october-25/
 
