@@ -1,3 +1,15 @@
+**5 Songs Our Critic Loves Right Now**\
+`The music critic Jon Caramanica recommends some recent tracks from his driver’s seat, in a lightning-round edition of his weekly song reviews.`\
+https://nytimes.com/video/podcasts/100000010469984/5-songs-our-critic-loves-right-now.html
+
+**OpenAI Unveils Web Browser Built for Artificial Intelligence**\
+`The new browser, called Atlas, is designed to work closely with OpenAI products like ChatGPT.`\
+https://nytimes.com/2025/10/21/technology/openai-web-browser-atlas.html
+
+**Barcelona 6 Olympiacos 1 - Fermin's hat-trick, VAR controversy and a great night for La Masia**\
+`Hansi Flick's side warmed up for El Clasico on Sunday with a comfortable win in the Champions League`\
+https://nytimes.com/athletic/6736122/2025/10/21/barcelona-olympiacos-champions-league-analysis/
+
 **Jets owner Woody Johnson publicly supports coach Aaron Glenn: 'Keep the faith, man'**\
 `While his Jets are the NFL's last winless team, Johnson preached patience while speaking to reporters at the league meetings in New York.`\
 https://nytimes.com/athletic/6737353/2025/10/21/new-york-jets-owner-woody-johnson-aaron-glenn/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6736745/2025/10/21/juve-stabia-serie-b-court-contro
 **Submit your Ohio State football mailbag questions here**\
 `What's on your mind about the No. 1 Buckeyes during their second idle week?`\
 https://nytimes.com/athletic/6737370/2025/10/21/ohio-state-football-mailbag-questions-10/
-
-**How Much Dirtier Can the Dirty Martini Get?**\
-`The sky is the limit for bartenders who believe that off-the-shelf olive brine just doesn’t cut it anymore.`\
-https://nytimes.com/2025/10/21/dining/dirty-martini.html
-
-**Trump Said to Demand Justice Dept. Pay Him $230 Million for Past Cases**\
-`Senior department officials who were defense lawyers for the president and those in his orbit are now in jobs that typically must approve any such payout, underscoring potential ethical conflicts.`\
-https://nytimes.com/2025/10/21/us/politics/trump-justice-department-compensation.html
-
-**NFL MVP odds: Will Baker pass Josh Allen, Patrick Mahomes?**\
-`Baker Mayfield is setting up a strong campaign to challenge the MVP frontrunners. But who else could spoil the plot?`\
-https://nytimes.com/athletic/6736832/2025/10/21/nfl-mvp-odds-baker-mayfield-josh-allen-patrick-mahomes/
 
