@@ -1,3 +1,11 @@
+**As Blue Jays clinch World Series berth, Drake celebrates Toronto 'going to the big show'**\
+`Once again, two representatives from Los Angeles and Toronto find themselves at odds on a major stage.`\
+https://nytimes.com/athletic/6735709/2025/10/21/drake-toronto-blue-jays-world-series/
+
+**Japan Has a New Leader, and She’s a Heavy Metal Drummer**\
+`Sanae Takaichi, a fan of Iron Maiden, had an improbable rise to power. Like her mentor, Shinzo Abe, she is expected to lead Japan to the right.`\
+https://nytimes.com/2025/10/21/world/asia/sanae-takaichi-japan-prime-minister.html
+
 **‘I'll be ready’: Blue Jays' Bo Bichette expects to rejoin club for World Series**\
 `Bichette, 27, has been out after colliding with Yankees catcher Austin Wells, injuring his posterior cruciate ligament.`\
 https://nytimes.com/athletic/6735744/2025/10/21/toronto-blue-jays-bo-bichette-world-series/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6732568/2025/10/21/horncastle-serie-a-briefing-inte
 **The Manchester United second balls strategy that underpinned a famous Anfield victory**\
 `Ruben Amorim's approach on Sunday was designed to win possession in Liverpool's territory – and it worked `\
 https://nytimes.com/athletic/6732598/2025/10/21/man-utd-second-balls-anfield/
-
-**Why Diwali Is Also the Start of Air Pollution Season in New Delhi**\
-`The air quality in India’s capital ranks among the worst in the world, but experts say politics stand in the way of improving it.`\
-https://nytimes.com/2025/10/21/world/asia/india-diwali-air-pollution.html
-
-**Mourinho's Sir Bobby-inspired affection for Newcastle: 'It’s the history, the passion'**\
-`The Benfica manager says he has never come close to managing the club but he does have a long-held admiration for Newcastle`\
-https://nytimes.com/athletic/6734250/2025/10/21/jose-mourinho-newcastle-benfica/
 

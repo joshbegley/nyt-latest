@@ -1,3 +1,7 @@
+**‘I'll be ready’: Blue Jays' Bo Bichette expects to rejoin club for World Series**\
+`Bichette, 27, has been out after colliding with Yankees catcher Austin Wells, injuring his posterior cruciate ligament.`\
+https://nytimes.com/athletic/6735744/2025/10/21/toronto-blue-jays-bo-bichette-world-series/
+
 **G.O.P. Senators Oppose Trump Watchdog Nominee After Report of Racist Texts**\
 `At least four Republican senators, including the Senate majority leader, signaled their opposition to Paul Ingrassia, the president’s pick to lead the Office of Special Counsel.`\
 https://nytimes.com/2025/10/21/us/politics/paul-ingrassia-trump-senate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/21/world/asia/india-diwali-air-pollution.html
 **Mourinho's Sir Bobby-inspired affection for Newcastle: 'It’s the history, the passion'**\
 `The Benfica manager says he has never come close to managing the club but he does have a long-held admiration for Newcastle`\
 https://nytimes.com/athletic/6734250/2025/10/21/jose-mourinho-newcastle-benfica/
-
-**What's going wrong with Alexander Isak?**\
-`Self-inflicted rustiness, poor service and the state of flux around him have disrupted British record signing's start to life at Liverpool`\
-https://nytimes.com/athletic/6733065/2025/10/21/alexander-isak-liverpool-form-goals/
 
