@@ -1,3 +1,15 @@
+**Trucks, Gowns, Imperial Portraits: Eight Shows to See in Paris**\
+`An array of paintings, as well as textiles, films and handblown glass, will be on display across the French capital this month, while Art Basel Paris is on.`\
+https://nytimes.com/2025/10/21/arts/design/eight-shows-to-see-in-paris.html
+
+**Where Private Fortunes Treat the Public to Sumptuous Art**\
+`In Paris, the Cartier and Vuitton foundations and the Pinault Collection are all presenting major exhibitions running at the same time as Art Basel.`\
+https://nytimes.com/2025/10/21/arts/design/paris-foundations-museum-shows.html
+
+**Michael Jordan autographed rookie card sells for new record $2.7 million**\
+`This new record comes just a few months after the previous mark was set. `\
+https://nytimes.com/athletic/6737143/2025/10/21/michael-jordan-autographed-rookie-card-record/
+
 **Harry Gray signs first professional Leeds contract**\
 `The highly-rated striker turned 17 earlier this month and has signed what the club is calling a "long-term deal".`\
 https://nytimes.com/athletic/6737163/2025/10/21/harry-gray-leeds-united-contract/
@@ -21,16 +33,4 @@ https://nytimes.com/2025/10/21/arts/design/nate-lowman-eugene-delacroix.html
 **Paris Celebrates Art, but Without Its Global Hub in the City’s Center**\
 `The Pompidou Center will remain closed until 2030, and professionals said there was no substitute. But its art will still be shown, and there are other cultural opportunities.`\
 https://nytimes.com/2025/10/21/arts/design/art-basel-paris-pompidou-shut.html
-
-**Babbo Reopens With Mark Ladner at the Helm**\
-`Jean-Georges Vongerichten opens a new Abc flagship in Brooklyn, an elegant cocktail bar on the Lower East Side and more food news.`\
-https://nytimes.com/2025/10/21/dining/nyc-restaurant-news.html
-
-**Batman, Captain Kirk, CBS and CNN All Under One Roof?**\
-`Paramount has expressed interest in buying Warner Bros. Discovery, a deal that would create a new media behemoth.`\
-https://nytimes.com/interactive/2025/10/21/business/media/paramount-warner-bros-merger.html
-
-**T Recipes**\
-``\
-https://nytimes.com/spotlight/t-recipes
 
