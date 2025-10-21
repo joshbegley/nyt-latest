@@ -1,3 +1,7 @@
+**The Pulse: Toronto overcomes a powerful jinx**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6733489/2025/10/21/toronto-overcomes-a-powerful-jinx-plus-our-new-nfl-playoff-simulator/
+
 **NBA MVP and awards odds: SGA, Jokic, Flagg and Wemby leading**\
 `Who is favored to have a standout season as the NBA tips off?`\
 https://nytimes.com/athletic/6734316/2025/10/21/nba-mvp-odds-sga-wembanyama-jokic/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6733800/2025/10/21/steph-curry-lebron-james-future-
 **All League Championship Series team: Springer and Ohtani deliver dual DH delights**\
 `One League Championship Series went four games and was thoroughly dominated by pitching. The other went seven games and was a slugfest. `\
 https://nytimes.com/athletic/6735507/2025/10/21/mlb-all-lcs-team-springer-ohtani-dh/
-
-**Can these 7 NHL veterans sustain their early hot starts?**\
-`Here's a deeper look into some of the most surprising NHL points leaders and the likelihood that their early surges continue.`\
-https://nytimes.com/athletic/6729553/2025/10/21/7-nhl-veterans-on-track-to-have-bounce-back-years/
 
