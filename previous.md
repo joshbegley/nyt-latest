@@ -1,40 +1,40 @@
-**Prăjitură Turnată Cu Mere (Jammy Apple Bars)**\
-`Jammy, cinnamon-spiced apples, sandwiched between tender vanilla cake layers then dusted with sugar, create a unique Romanian apple dessert whose name translates to “poured apple pastry,” a reference to the batter used for the cake layers.`\
-https://nytimes.com/video/dining/100000010464835/prajitura-turnata-cu-mere-jammy-apple-bars.html
+**Detroit Lions Beat Tampa Bay Buccaneers on Monday Night Football**\
+`The Detroit Lions beat the Tampa Bay Buccaneers 24-9 on Monday night thanks in large part to 218 scrimmage yards and two touchdowns from the Lions running back Jahmyr Gibbs.`\
+https://nytimes.com/video/the-athletic/100000010471205/detroit-lions-beat-tampa-bay-buccaneers-on-monday-night-football.html
 
-**Who Is the Oldest College Football Player of All Time?**\
-`Who is the oldest college football player ever? Most college athletes are between eighteen and twenty-two, but there are some exceptions.`\
-https://nytimes.com/video/the-athletic/100000010459544/who-is-the-oldest-college-football-player-of-all-time.html
+**What could the Phillies' bullpen look like in 2026? An early look at the internal options**\
+`As the Phillies look to 2026, they're evaluating internal bullpen options. So, where does the work begin? `\
+https://nytimes.com/athletic/6735014/2025/10/21/phillies-bullpen-2026-early-look-internal-options/
 
-**Why 49ers coaching is NFL's best this year, and Bears running wild: Week 7 film review**\
-`Kyle Shanahan's staff is successfully scheming its way through an injury crisis en route to a 5-2 start.`\
-https://nytimes.com/athletic/6734814/2025/10/21/49ers-shanahan-bears-swift-broncos-nix/
+**'Life has simplified': How fatherhood changed Jordan Binnington**\
+`Binnington talks about life as a father, balancing a busy work schedule and looking ahead to the Games.`\
+https://nytimes.com/athletic/6720321/2025/10/21/blues-jordan-binnington-fatherhood-olympics/
 
-**Leitch: Angry fan bases drive CFB's coach carousel. Which ones are most desperate?**\
-`Few coaches face more pressure than those at powerful programs that have gone a long time without winning a championship.`\
-https://nytimes.com/athletic/6734021/2025/10/21/college-football-tortured-fan-bases-coaching-carousel/
+**True to form, Dan Campbell's Detroit Lions 'did not blink' in face of adversity**\
+`Despite all the turnover on their coaching staff, and injuries to their defense, the Lions continue to prove they're among the NFL's elite.`\
+https://nytimes.com/athletic/6735737/2025/10/21/detroit-lions-dan-campbell-week-7-mnf/
 
-**Kompany signs new Bayern contract until 2029**\
-`The 39-year-old, who joined from Burnley in 2024, won the Bundesliga title with Bayern in his first season at the club.`\
-https://nytimes.com/athletic/6736217/2025/10/21/vincent-kompany-new-bayern-contract/
+**Heisman straw poll: Fernando Mendoza leads, but Diego Pavia is rising**\
+`The fourth week of The Athletic’s Heisman Trophy straw poll provided some clarity.`\
+https://nytimes.com/athletic/6735224/2025/10/21/heisman-trophy-leaders-fernando-mendoza-ty-simpson/
 
-**The Pulse: Toronto overcomes a powerful jinx**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6733489/2025/10/21/toronto-overcomes-a-powerful-jinx-plus-our-new-nfl-playoff-simulator/
+**Jaxon Smith-Njigba, ‘mastermind’ Mike Macdonald’s defense show Seahawks are for real**\
+`Smith-Njigba continues to show no one can guard him, while Macdonald's defense has picked up where it left off last season.`\
+https://nytimes.com/athletic/6735988/2025/10/21/jsn-seahawks-texans-jaxon-smith-njigba/
 
-**NBA MVP and awards odds: SGA, Jokic, Flagg and Wemby leading**\
-`Who is favored to have a standout season as the NBA tips off?`\
-https://nytimes.com/athletic/6734316/2025/10/21/nba-mvp-odds-sga-wembanyama-jokic/
+**Alaba set to miss El Clasico in latest Real Madrid defensive injury**\
+`Madrid are already without Dean Huijsen, Antonio Rudiger, Dani Carvajal and Trent Alexander-Arnold through injury.`\
+https://nytimes.com/athletic/6736265/2025/10/21/david-alaba-real-madrid-clasico-injury/
 
-**Bears' confidence building along with winning streak: 'We know how good we can be'**\
-`As they strive to play their best football, the Bears believe they've found a special combination of energy, chemistry and purpose.`\
-https://nytimes.com/athletic/6735206/2025/10/21/bears-confidence-winning-streak/
+**How chirping became a 'lost art' in the NHL — and why not every player is a fan**\
+`As the league has changed over time and players think twice about what's said on the ice, chirping in the NHL is less "ruthless" than ever.`\
+https://nytimes.com/athletic/6316254/2025/10/21/nhl-chirping-trash-talk-brad-marchand-tkachuk/
 
-**Chiefs' Rashee Rice had an offseason talk with Patrick Mahomes. It led to a TD on Sunday**\
-`Rice has improved since his last regular-season game in 2024. Here's what the Chiefs' coaches are seeing.`\
-https://nytimes.com/athletic/6734332/2025/10/21/chiefs-rashee-rice-fade-route-touchdown/
+**Malala Yousafzai Learned to Let Love in**\
+`Malala Yousafzai, the activist and author, spoke with Anna Martin, the host of “Modern Love” at The New York Times, about how she learned to accept love and changed her views on marriage.`\
+https://nytimes.com/video/podcasts/100000010464755/malala-yousafzai-learned-to-let-love-in.html
 
-**Yes, there are reasons to be optimistic about the Cowboys’ defense**\
-`More than one game against a beat-up Washington offense is needed to say Dallas' D has turned the corner. But there are positive signs.`\
-https://nytimes.com/athletic/6735556/2025/10/21/cowboys-defense-blitzing-man-coverage-analysis/
+**What I'm hearing about Porter Martone, Aleksei Kolosov and other Flyers prospects**\
+`Officials had a lot to say about players in Philadelphia's 2025 draft class. `\
+https://nytimes.com/athletic/6734743/2025/10/21/flyers-prospects-porter-martone-aleksei-kolosov/
 
