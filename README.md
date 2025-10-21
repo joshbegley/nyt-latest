@@ -1,3 +1,7 @@
+**Shutdown Brings More BASE Jumpers and Drones to Yosemite Skies**\
+`Emboldened by the lapse in government funding and employee furloughs, some visitors are brazenly betting that they won’t get caught for breaking the law.`\
+https://nytimes.com/2025/10/21/travel/yosemite-shutdown-base-jumping.html
+
 **Quiz: Do You Know Ball?**\
 `Test your knowledge of the real and fictional N.B.A.`\
 https://nytimes.com/interactive/2025/10/21/arts/television/basketball-quiz-nba-season-start.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6736906/2025/10/21/kraken-vs-capitals-stream-how-to
 **How to watch Devils vs. Maple Leafs: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6736902/2025/10/21/devils-vs-maple-leafs-stream-how-to-watch-oct-21/
-
-**Harper Lee’s Conflicted Loves Emerge in a New Collection**\
-`“The Land of Sweet Forever” includes stories and essays by a writer who grappled with her Southern roots.`\
-https://nytimes.com/2025/10/21/books/review/harper-lee-land-of-sweet-forever.html
 
