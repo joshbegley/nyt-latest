@@ -1,3 +1,11 @@
+**A battle of stars in Dodgers-Blue Jays World Series: matchups, storylines and more**\
+`The reigning champion Dodgers will look to defeat the ascendant Blue Jays and become baseball’s first repeat winners in a quarter century.`\
+https://nytimes.com/athletic/6736350/2025/10/21/world-series-preview-dodgers-blue-jays-prediction/
+
+**Brian Daboll owns Giants' epic collapse, kicking woes continue, and Jaxson Dart shines**\
+`Plus, game management blunders are adding up.`\
+https://nytimes.com/athletic/6735547/2025/10/21/giants-brian-daboll-collapse-jaxson-dart/
+
 **On Ukraine and Russia, Lots of Talk but Little Has Changed**\
 `A contentious meeting between President Trump and President Volodymyr Zelensky of Ukraine produced no obvious progress toward a cease-fire.`\
 https://nytimes.com/2025/10/21/world/europe/ukraine-russia-trump-zelensky-meeting.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/10/21/us/trump-news
 **How to watch Zion Williamson and the New Orleans Pelicans this season**\
 `The Pelicans' chances of being a playoff-caliber team again rest on Zion Williamson. Find out how to watch every game in 2025-26. `\
 https://nytimes.com/athletic/6729111/2025/10/21/new-orleans-pelicans-tv-zion-williamson-how-to-watch/
-
-**What Could Torpedo the Stock Rally**\
-`The S&P 500 is nearing another record, but some analysts caution that a host of factors may stall its momentum.`\
-https://nytimes.com/2025/10/21/business/dealbook/stocks-rally-bulls-bears.html
-
-**Broncos' Sean Payton vows to 'look closely at the personnel' in search of offensive fixes**\
-`Broncos RG Quinn Meinerz says slow starts are something "we can't accept as an offense."`\
-https://nytimes.com/athletic/6733649/2025/10/21/broncos-sean-payton-offense-issues/
 
