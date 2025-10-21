@@ -1,3 +1,23 @@
+**How to watch Tennessee vs. Kentucky: Time, TV, streaming**\
+`Find out how to watch the Tennessee Volunteers play the Kentucky Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6735317/2025/10/20/tennessee-vs-kentucky-stream-how-to-watch-oct-25/
+
+**How to watch Houston vs. Arizona State: Time, TV, streaming**\
+`Find out how to watch the Houston Cougars play the Arizona State Sun Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6735309/2025/10/20/houston-vs-arizona-state-stream-how-to-watch-oct-25/
+
+**How to watch Texas A&M vs. LSU: Time, TV, streaming**\
+`Find out how to watch the Texas A&M Aggies play the LSU Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6735162/2025/10/20/how-to-watch-no-3-texas-am-vs-no-20-lsu-tv-channel-and-streaming-options-for-october-25/
+
+**How to watch Oklahoma State vs. Texas Tech: Time, TV, streaming**\
+`Find out how to watch the Oklahoma State Cowboys play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6735156/2025/10/20/how-to-watch-oklahoma-state-vs-no-14-texas-tech-tv-channel-and-streaming-options-for-october-25/
+
+**How to watch Wisconsin vs. Oregon: Time, TV, streaming**\
+`Find out how to watch the Wisconsin Badgers play the Oregon Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6735154/2025/10/20/how-to-watch-wisconsin-vs-no-6-oregon-tv-channel-and-streaming-options-for-october-25/
+
 **India Illuminates as Diwali Festivals Begin**\
 `Millions of families commenced celebrations this week for Diwali, the Hindu festival of lights and the biggest public holiday in India.`\
 https://nytimes.com/video/world/asia/100000010469778/india-diwali-celebrations-fireworks-pollution.html
