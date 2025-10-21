@@ -1,3 +1,27 @@
+**'Gaffer's Day', V defending, and no egos: What Forest can expect from Dyche**\
+`Assessing how the new Forest head coach will tackle his job in five key areas`\
+https://nytimes.com/athletic/6732905/2025/10/21/what-nottingham-forest-can-expect-from-sean-dyche-gaffers-day-v-defending-and-no-egos/
+
+**The Bounce: NBA predictions as the season tips off. Plus: Contract-extension reactions**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6736779/2025/10/21/nba-predictions-tip-off-contract-extensionsthe-bounce/
+
+**UEFA becomes first sporting body to sign up to global anti-piracy coalition**\
+`The Alliance for Creativity and Entertainment (ACE) is already partnered with companies including Disney, Apple, Netflix and DAZN.`\
+https://nytimes.com/athletic/6736306/2025/10/21/uefa-champions-league-piracy-ace/
+
+**Inside Luigi Mangione’s Missing Months**\
+`From beers at a Bangkok bar to a climb up Mount Omine in Japan, The Times traced the pivotal months before Mr. Mangione was charged with killing UnitedHealthcare’s C.E.O.`\
+https://nytimes.com/2025/10/21/us/luigi-mangione-asia-trip.html
+
+**How Trump Played ‘Budgetary Twister’ to Pay Some Workers During the Shutdown**\
+`By paying troops and law enforcement officials, the president stretched the limits of his spending powers, posing a fresh test to Congress.`\
+https://nytimes.com/2025/10/21/us/politics/trump-shutdown-pay.html
+
+**Kids Love This Cheesy Gnocchi With Corn and Pesto**\
+`Plus crispy oregano chicken, broccoli rice, sesame-salmon bowls and more recipes that everyone will love.`\
+https://nytimes.com/2025/10/21/dining/kids-love-this-cheesy-gnocchi-with-corn-and-pesto.html
+
 **Aspiration co-founder Joe Sanberg pleads guilty to federal wire fraud charges**\
 `The California-based carbon offsetting company co-founder Joe Sanberg is at the center of an NBA cap circumvention investigation.`\
 https://nytimes.com/athletic/6736694/2025/10/21/aspiration-joe-sanberg-guilty-plea/
