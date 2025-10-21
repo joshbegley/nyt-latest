@@ -1,3 +1,11 @@
+**Silver says WNBA players are 'going to get a big increase' in pay**\
+`Speaking on NBC's "Today," Adam Silver commented on the ongoing WNBA CBA negotiations.  `\
+https://nytimes.com/athletic/6736980/2025/10/21/adam-silver-wnba-players-pay-increase/
+
+**Critical fantasy football insights for Week 8: Bo Nix's historic fourth quarter and more**\
+`Brandon Funston and Jess Bryant look at usage metrics to give actionable Week 8 fantasy football advice. `\
+https://nytimes.com/athletic/6733287/2025/10/21/critical-fantasy-football-insights-for-week-8-bo-nixs-historic-fourth-quarter-and-more/
+
 **Pacers' Kam Jones facing reckless driving, resisting police charges**\
 `Jones told the police he was "running late for practice" when state trooper Joseph Malone pulled him over for speeding.`\
 https://nytimes.com/athletic/6734436/2025/10/21/kam-jones-arrested-driving-police-chase-indiana-pacers/

@@ -1,3 +1,11 @@
+**Super Bowl odds: Chiefs rise back to top spot with Bills reeling**\
+`The suddenly surging Chiefs are now the favorites to win the Super Bowl, partly thanks to Buffalo's back-to-back losses.`\
+https://nytimes.com/athletic/6737088/2025/10/21/super-bowl-odds-chiefs-bills/
+
+**A 200-Year-Old Precedent Holds the Key to Trump’s Troop Deployment**\
+`The administration says the ruling, stemming from the seizure of an old mare, forbids judges from second-guessing his use of the National Guard.`\
+https://nytimes.com/2025/10/21/us/politics/supreme-court-national-guard-precedent.html
+
 **Silver says WNBA players are 'going to get a big increase' in pay**\
 `Speaking on NBC's "Today," Adam Silver commented on the ongoing WNBA CBA negotiations.  `\
 https://nytimes.com/athletic/6736980/2025/10/21/adam-silver-wnba-players-pay-increase/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/21/us/pennsylvania-student-rape-messages-sentencing.
 **Trump Will Not Meet With Putin Soon, Official Says in a Reversal**\
 `President Trump had floated the idea of a meeting last week, saying that he planned to speak with Russia’s leader in “two weeks or so” about Ukraine.`\
 https://nytimes.com/2025/10/21/us/politics/trump-putin-ukraine-meeting.html
-
-**At 95, Lee ShinJa Weaves Artistic Exploration into Legacy**\
-`The South Korean textile artist’s work will be on display at Art Basel Paris at a booth by the New York gallerist Tina Kim.`\
-https://nytimes.com/2025/10/21/arts/design/art-basel-paris-lee-shinja-textiles.html
-
-**In Paris, a Kandinsky Exhibition That Lets You Hear the Paintings**\
-`A new exhibition in Paris helps visitors step into the modernist master’s sonically inspired world.`\
-https://nytimes.com/2025/10/21/arts/design/wassily-kandinsky-music-exhibition.html
 
