@@ -1,3 +1,7 @@
+**SpaceX, Sued by Popular Game Maker, Settles Trespassing Case**\
+`Cards Against Humanity had accused Elon Musk’s company of squatting on land that it owns near the southern border in Texas.`\
+https://nytimes.com/2025/10/21/us/spacex-cards-against-humanity-lawsuit-settlement.html
+
 **U.S. Attacks More Boats as Tensions With Venezuela Rise: What’s Happened So Far**\
 `The Trump administration is ratcheting up pressure on the Venezuelan president, Nicolás Maduro, while striking vessels that it says are trafficking drugs.`\
 https://nytimes.com/2025/10/21/us/trump-attacks-venezuela-boats.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6737746/2025/10/21/fantasy-football-market-share-re
 **Terry Farrell, Whose Buildings Embodied Late 20th-Century Extremes, Dies at 87**\
 `His architecture swung from austere to whimsical, with conspicuous projects like the sprawling headquarters of the British intelligence service MI6.`\
 https://nytimes.com/2025/10/21/arts/design/terry-farrell-dead.html
-
-**Habba Told to Release More Video in Assault Case Against Congresswoman**\
-`A federal judge overseeing a case against Representative LaMonica McIver, a New Jersey Democrat, ordered prosecutors to release all relevant footage from a migrant detention facility.`\
-https://nytimes.com/2025/10/21/nyregion/lamonica-mciver-ice-charges.html
 

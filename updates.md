@@ -1,3 +1,7 @@
+**SpaceX, Sued by Popular Game Maker, Settles Trespassing Case**\
+`Cards Against Humanity had accused Elon Musk’s company of squatting on land that it owns near the southern border in Texas.`\
+https://nytimes.com/2025/10/21/us/spacex-cards-against-humanity-lawsuit-settlement.html
+
 **U.S. Attacks More Boats as Tensions With Venezuela Rise: What’s Happened So Far**\
 `The Trump administration is ratcheting up pressure on the Venezuelan president, Nicolás Maduro, while striking vessels that it says are trafficking drugs.`\
 https://nytimes.com/2025/10/21/us/trump-attacks-venezuela-boats.html
