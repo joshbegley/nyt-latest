@@ -1,3 +1,15 @@
+**5 Songs Our Critic Loves Right Now**\
+`The music critic Jon Caramanica recommends some recent tracks from his driver’s seat, in a lightning-round edition of his weekly song reviews.`\
+https://nytimes.com/video/podcasts/100000010469984/5-songs-our-critic-loves-right-now.html
+
+**OpenAI Unveils Web Browser Built for Artificial Intelligence**\
+`The new browser, called Atlas, is designed to work closely with OpenAI products like ChatGPT.`\
+https://nytimes.com/2025/10/21/technology/openai-web-browser-atlas.html
+
+**Barcelona 6 Olympiacos 1 - Fermin's hat-trick, VAR controversy and a great night for La Masia**\
+`Hansi Flick's side warmed up for El Clasico on Sunday with a comfortable win in the Champions League`\
+https://nytimes.com/athletic/6736122/2025/10/21/barcelona-olympiacos-champions-league-analysis/
+
 **Jets owner Woody Johnson publicly supports coach Aaron Glenn: 'Keep the faith, man'**\
 `While his Jets are the NFL's last winless team, Johnson preached patience while speaking to reporters at the league meetings in New York.`\
 https://nytimes.com/athletic/6737353/2025/10/21/new-york-jets-owner-woody-johnson-aaron-glenn/
