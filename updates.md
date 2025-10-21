@@ -1,3 +1,7 @@
+**Harry Gray signs first professional Leeds contract**\
+`The highly-rated striker turned 17 earlier this month and has signed what the club is calling a "long-term deal".`\
+https://nytimes.com/athletic/6737163/2025/10/21/harry-gray-leeds-united-contract/
+
 **Mexico won't surely slow Max's momentum. Plus, How COTA is growing**\
 `Max Verstappen's three wins in four races has enlivened the 2025 F1 title fight. And he has key attributes to succeed this weekend in Mexico`\
 https://nytimes.com/athletic/6737043/2025/10/21/max-verstappen-mexican-gp-2025/
