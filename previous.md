@@ -1,3 +1,7 @@
+**Keith Andrews is quietly piecing Brentford back together**\
+`Brentford's record at this stage is identical to that of last term and, as rivals regress, shows the strength of their succession planning`\
+https://nytimes.com/athletic/6735065/2025/10/21/brentford-keith-andrews-thiago-henderson-west-ham/
+
 **Tornado Tears Through Paris Suburbs**\
 `A rare and deadly tornado swept through the commune of Ermont, near Paris, toppling trees and a crane.`\
 https://nytimes.com/video/world/europe/100000010471108/tornado-paris-france.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/21/world/asia/sanae-takaichi-japan-prime-minister.ht
 **‘I'll be ready’: Blue Jays' Bo Bichette expects to rejoin club for World Series**\
 `Bichette, 27, has been out after colliding with Yankees catcher Austin Wells, injuring his posterior cruciate ligament.`\
 https://nytimes.com/athletic/6735744/2025/10/21/toronto-blue-jays-bo-bichette-world-series/
-
-**G.O.P. Senators Oppose Trump Watchdog Nominee After Report of Racist Texts**\
-`At least four Republican senators, including the Senate majority leader, signaled their opposition to Paul Ingrassia, the president’s pick to lead the Office of Special Counsel.`\
-https://nytimes.com/2025/10/21/us/politics/paul-ingrassia-trump-senate.html
 

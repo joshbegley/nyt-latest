@@ -1,3 +1,7 @@
+**Keith Andrews is quietly piecing Brentford back together**\
+`Brentford's record at this stage is identical to that of last term and, as rivals regress, shows the strength of their succession planning`\
+https://nytimes.com/athletic/6735065/2025/10/21/brentford-keith-andrews-thiago-henderson-west-ham/
+
 **Tornado Tears Through Paris Suburbs**\
 `A rare and deadly tornado swept through the commune of Ermont, near Paris, toppling trees and a crane.`\
 https://nytimes.com/video/world/europe/100000010471108/tornado-paris-france.html
