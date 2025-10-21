@@ -1,3 +1,31 @@
+**How to watch Avalanche vs. Mammoth: Time, TV, streaming**\
+`Find out how to watch the Colorado Avalanche play the Utah Mammoth, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6737574/2025/10/21/avalanche-vs-mammoth-stream-how-to-watch-oct-21/
+
+**How to watch Warriors vs. Lakers: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the Los Angeles Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6737572/2025/10/21/warriors-vs-lakers-stream-how-to-watch-oct-21/
+
+**How to watch Ducks vs. Predators: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Nashville Predators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6737570/2025/10/21/ducks-vs-predators-stream-how-to-watch-oct-21/
+
+**How to watch Kings vs. Blues: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Kings play the St. Louis Blues, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6737568/2025/10/21/kings-vs-blues-stream-how-to-watch-oct-21/
+
+**How to watch Panthers vs. Bruins: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the Boston Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6737565/2025/10/21/panthers-vs-bruins-stream-how-to-watch-oct-21/
+
+**How to watch Blue Jackets vs. Stars: Time, TV, streaming**\
+`Find out how to watch the Columbus Blue Jackets play the Dallas Stars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6737562/2025/10/21/blue-jackets-vs-stars-stream-how-to-watch-oct-21/
+
+**G.M. to Stop Making Electric Vans in Canada, in Another Hit to a Key Industry**\
+`The announcement, which will eliminate about 1,200 jobs, came less than a week after the carmaker Stellantis said it would move production of a new vehicle to Illinois from a Toronto suburb.`\
+https://nytimes.com/2025/10/21/world/canada/general-motors-electric-vans.html
+
 **Jack Nicklaus awarded $50 million in defamation lawsuit involving his former company**\
 `A jury found that Nicklaus Companies defamed Nicklaus by falsely suggesting he aligned in conversations with LIV Golf and other ventures.`\
 https://nytimes.com/athletic/6737188/2025/10/21/jack-nicklaus-lawsuit-contract-liv-golf/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6737525/2025/10/21/giants-vs-eagles-stream-how-to-w
 **How to watch 49ers vs. Texans: Time, TV, streaming**\
 `Find out how to watch the San Francisco 49ers play the Houston Texans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6737523/2025/10/21/49ers-vs-texans-stream-how-to-watch-oct-26/
-
-**How to watch Browns vs. Patriots: Time, TV, streaming**\
-`Find out how to watch the Cleveland Browns play the New England Patriots, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6737519/2025/10/21/browns-vs-patriots-stream-how-to-watch-oct-26/
-
-**How to watch Bears vs. Ravens: Time, TV, streaming**\
-`Find out how to watch the Chicago Bears play the Baltimore Ravens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6737514/2025/10/21/bears-vs-ravens-stream-how-to-watch-oct-26/
-
-**How to watch Jets vs. Bengals: Time, TV, streaming**\
-`Find out how to watch the New York Jets play the Cincinnati Bengals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6737512/2025/10/21/jets-vs-bengals-stream-how-to-watch-oct-26/
-
-**How to watch Bills vs. Panthers: Time, TV, streaming**\
-`Find out how to watch the Buffalo Bills play the Carolina Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6737510/2025/10/21/bills-vs-panthers-stream-how-to-watch-oct-26/
-
-**How to watch Dolphins vs. Falcons: Time, TV, streaming**\
-`Find out how to watch the Miami Dolphins play the Atlanta Falcons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6737508/2025/10/21/dolphins-vs-falcons-stream-how-to-watch-oct-26/
-
-**Daniel Naroditsky, chess grandmaster and content creator, dies at 29**\
-`The Charlotte Chess Center announced Monday that Daniel Naroditsky, chess grandmaster and content creator, has died at 29.`\
-https://nytimes.com/athletic/6736738/2025/10/21/daniel-naroditsky-chess-grandmaster-dies/
-
-**5 Songs Our Critic Loves Right Now**\
-`The music critic Jon Caramanica recommends some recent tracks from his driver’s seat, in a lightning-round edition of his weekly song reviews.`\
-https://nytimes.com/video/podcasts/100000010469984/5-songs-our-critic-loves-right-now.html
 
