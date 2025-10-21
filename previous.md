@@ -1,3 +1,7 @@
+**Who Is the Oldest College Football Player of All Time?**\
+`Who is the oldest college football player ever? Most college athletes are between eighteen and twenty-two, but there are some exceptions.`\
+https://nytimes.com/video/the-athletic/100000010459544/who-is-the-oldest-college-football-player-of-all-time.html
+
 **Why 49ers coaching is NFL's best this year, and Bears running wild: Week 7 film review**\
 `Kyle Shanahan's staff is successfully scheming its way through an injury crisis en route to a 5-2 start.`\
 https://nytimes.com/athletic/6734814/2025/10/21/49ers-shanahan-bears-swift-broncos-nix/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6735556/2025/10/21/cowboys-defense-blitzing-man-cov
 **Makeshift Lions secondary met the moment in a big way vs. Bucs: 'We heard all the noise'**\
 `With both starting cornerbacks and both starting safeties out, the Lions gave Baker Mayfield and the Bucs' offense fits Monday night.`\
 https://nytimes.com/athletic/6735834/2025/10/21/lions-secondary-backups-defense-mnf/
-
-**While Dave Canales tries to keep Bills guessing, Andy Dalton ready to step in**\
-`“If we can have Bryce out there on Sunday, I would love for that to be the case,” Canales said Monday about his starting QB.`\
-https://nytimes.com/athletic/6734886/2025/10/21/panthers-bryce-young-andy-dalton-starting/
 
