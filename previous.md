@@ -1,3 +1,7 @@
+**Courtois accuses La Liga of 'manipulation' after Miami game protests not broadcast**\
+`La Liga asked TV companies not to show protests against the plan to host Villarreal versus Barcelona in Miami.`\
+https://nytimes.com/athletic/6736319/2025/10/21/thibaut-courtois-la-liga-protests-us/
+
 **Delap set to return to Chelsea training after hamstring injury**\
 `The forward's last appearance for Chelsea came on August 30.`\
 https://nytimes.com/athletic/6736311/2025/10/21/chelsea-liam-delap-injury-training/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6735730/2025/10/21/washington-wizards-season-previe
 **Marta Kostyuk cites 'levels of testosterone' when asked if intimidated by Aryna Sabalenka, Iga Świątek**\
 `The Ukrainian has a 0-7 record against the top two players in the world.`\
 https://nytimes.com/athletic/6736128/2025/10/21/marta-kostyuk-sabalenka-swiatek-tennis-advantage/
-
-**Ukrainian Daycare Struggles to Provide Heat, Light and Food**\
-`Every fall since the start of its full-scale invasion of Ukraine, Russia has intensified strikes on Ukraine’s power plants and electrical infrastructure, continuing a yearslong effort to collapse its energy grid. As winter approaches, one daycare is finding it hard to cope.`\
-https://nytimes.com/video/world/europe/100000010464428/ukraine-power-cuts-daycare.html
 

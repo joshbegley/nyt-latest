@@ -1,3 +1,7 @@
+**Courtois accuses La Liga of 'manipulation' after Miami game protests not broadcast**\
+`La Liga asked TV companies not to show protests against the plan to host Villarreal versus Barcelona in Miami.`\
+https://nytimes.com/athletic/6736319/2025/10/21/thibaut-courtois-la-liga-protests-us/
+
 **Delap set to return to Chelsea training after hamstring injury**\
 `The forward's last appearance for Chelsea came on August 30.`\
 https://nytimes.com/athletic/6736311/2025/10/21/chelsea-liam-delap-injury-training/
