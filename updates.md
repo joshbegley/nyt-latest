@@ -1,3 +1,19 @@
+**NBA MVP and awards odds: SGA, Jokic, Flagg and Wemby leading**\
+`Who is favored to have a standout season as the NBA tips off?`\
+https://nytimes.com/athletic/6734316/2025/10/21/nba-mvp-odds-sga-wembanyama-jokic/
+
+**Bears' confidence building along with winning streak: 'We know how good we can be'**\
+`As they strive to play their best football, the Bears believe they've found a special combination of energy, chemistry and purpose.`\
+https://nytimes.com/athletic/6735206/2025/10/21/bears-confidence-winning-streak/
+
+**Chiefs' Rashee Rice had an offseason talk with Patrick Mahomes. It led to a TD on Sunday**\
+`Rice has improved since his last regular-season game in 2024. Here's what the Chiefs' coaches are seeing.`\
+https://nytimes.com/athletic/6734332/2025/10/21/chiefs-rashee-rice-fade-route-touchdown/
+
+**Yes, there are reasons to be optimistic about the Cowboys’ defense**\
+`More than one game against a beat-up Washington offense is needed to say Dallas' D has turned the corner. But there are positive signs.`\
+https://nytimes.com/athletic/6735556/2025/10/21/cowboys-defense-blitzing-man-coverage-analysis/
+
 **Makeshift Lions secondary met the moment in a big way vs. Bucs: 'We heard all the noise'**\
 `With both starting cornerbacks and both starting safeties out, the Lions gave Baker Mayfield and the Bucs' offense fits Monday night.`\
 https://nytimes.com/athletic/6735834/2025/10/21/lions-secondary-backups-defense-mnf/

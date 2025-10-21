@@ -1,3 +1,19 @@
+**NBA MVP and awards odds: SGA, Jokic, Flagg and Wemby leading**\
+`Who is favored to have a standout season as the NBA tips off?`\
+https://nytimes.com/athletic/6734316/2025/10/21/nba-mvp-odds-sga-wembanyama-jokic/
+
+**Bears' confidence building along with winning streak: 'We know how good we can be'**\
+`As they strive to play their best football, the Bears believe they've found a special combination of energy, chemistry and purpose.`\
+https://nytimes.com/athletic/6735206/2025/10/21/bears-confidence-winning-streak/
+
+**Chiefs' Rashee Rice had an offseason talk with Patrick Mahomes. It led to a TD on Sunday**\
+`Rice has improved since his last regular-season game in 2024. Here's what the Chiefs' coaches are seeing.`\
+https://nytimes.com/athletic/6734332/2025/10/21/chiefs-rashee-rice-fade-route-touchdown/
+
+**Yes, there are reasons to be optimistic about the Cowboys’ defense**\
+`More than one game against a beat-up Washington offense is needed to say Dallas' D has turned the corner. But there are positive signs.`\
+https://nytimes.com/athletic/6735556/2025/10/21/cowboys-defense-blitzing-man-coverage-analysis/
+
 **Makeshift Lions secondary met the moment in a big way vs. Bucs: 'We heard all the noise'**\
 `With both starting cornerbacks and both starting safeties out, the Lions gave Baker Mayfield and the Bucs' offense fits Monday night.`\
 https://nytimes.com/athletic/6735834/2025/10/21/lions-secondary-backups-defense-mnf/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6735507/2025/10/21/mlb-all-lcs-team-springer-ohtani
 **Can these 7 NHL veterans sustain their early hot starts?**\
 `Here's a deeper look into some of the most surprising NHL points leaders and the likelihood that their early surges continue.`\
 https://nytimes.com/athletic/6729553/2025/10/21/7-nhl-veterans-on-track-to-have-bounce-back-years/
-
-**The Athletic NBA staff predictions for 2025-26: More Thunder success, another Jokić award**\
-`That’s the thing about predictions: You never know when you’re being unrealistic, but you also don’t know when you’re playing it too safe.`\
-https://nytimes.com/athletic/6733487/2025/10/21/nba-predictions-athletic-staff-2025-26-joker-mvp/
-
-**Bucks waive two with guaranteed contracts to sign two with non-guaranteed deals. Why?**\
-`Milwaukee waived two players with guaranteed contracts to sign two with partially guaranteed deals. What does this mean for the Bucks?`\
-https://nytimes.com/athletic/6723016/2025/10/21/bucks-roster-2025-2026-giannis-antetokounmpo-doc-rivers/
-
-**Are the Red Wings legit? What I think and what I know**\
-`Detroit's young players and improved team defense are encouraging signs so far. Can the Red Wings keep this up?`\
-https://nytimes.com/athletic/6734442/2025/10/21/red-wings-win-streak-todd-mclellan/
-
-**Rangers avoid unwanted record, but frustration bubbles as scoring woes continue**\
-`"We've got to work on our offense," Artemi Panarin said. "Our defense hasn't been bad, but you can't win with one goal."`\
-https://nytimes.com/athletic/6735353/2025/10/21/new-york-rangers-scoring-woes-continue/
 
