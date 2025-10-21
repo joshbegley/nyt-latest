@@ -1,3 +1,7 @@
+**Chiefs star Travis Kelce's latest venture is literal roller-coaster**\
+`Kelce and JANA Partners announced a $200 million investment in Six Flags Entertainment on Tuesday.`\
+https://nytimes.com/athletic/6738088/2025/10/21/travis-kelce-jana-partners-six-flags-investment/
+
 **Giants waive kicker Jude McAtamney after missed extra points in loss to Broncos**\
 `Now, the question is if the Giants will turn to Younghoe Koo or if Graham Gano will be ready to kick this week.`\
 https://nytimes.com/athletic/6738282/2025/10/21/jude-mcatamney-giants-kicker-waived-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6738258/2025/10/21/buccaneers-vs-saints-stream-how-
 **What to Know About Trump’s Plan for a Triumphal Arch in Washington**\
 `President Trump has proposed construction of an arch in the style of the Arc de Triomphe in Washington in the lead-up to the nation’s 250th anniversary.`\
 https://nytimes.com/2025/10/21/us/politics/trump-arch-washington-memorial.html
-
-**Submit your questions for Michael-Shawn Dugar's Seahawks mailbag**\
-`The Seattle Seahawks are 5-2 and tied atop the NFC West entering their bye week. What's on your mind?`\
-https://nytimes.com/athletic/6738222/2025/10/21/seahawks-bye-week-mailbag/
 
