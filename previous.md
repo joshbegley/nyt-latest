@@ -1,3 +1,7 @@
+**Submit your questions for Michael-Shawn Dugar's Seahawks mailbag**\
+`The Seattle Seahawks are 5-2 and tied atop the NFC West entering their bye week. What's on your mind?`\
+https://nytimes.com/athletic/6738222/2025/10/21/seahawks-bye-week-mailbag/
+
 **Antidepressant Side Effects Vary Widely by Drug, Study Finds**\
 `A new study compared the effects of 30 drugs on cholesterol, blood pressure and weight gain.`\
 https://nytimes.com/2025/10/21/well/antidepressant-side-effects.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/10/21/style/kilian-jornet-72-mountain-peaks
 **Can Her Louvre Tours Go On Without the Stolen Jewels?**\
 `Jewelry swiped from the museum played a prominent part in a private guide’s tours of Paris. Now what?`\
 https://nytimes.com/2025/10/21/style/louvre-heist-jewels-tour-guide.html
-
-**Fantasy football market share report: Add Brashard Smith, play DeVonta Smith**\
-`Michael Salfino looks at touches and targets to offer advice for Week 8, like making Kansas City rookie Brashard Smith a top waiver claim.`\
-https://nytimes.com/athletic/6737746/2025/10/21/fantasy-football-market-share-report-week-7/
 

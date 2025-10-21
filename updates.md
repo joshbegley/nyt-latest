@@ -1,3 +1,7 @@
+**Submit your questions for Michael-Shawn Dugar's Seahawks mailbag**\
+`The Seattle Seahawks are 5-2 and tied atop the NFC West entering their bye week. What's on your mind?`\
+https://nytimes.com/athletic/6738222/2025/10/21/seahawks-bye-week-mailbag/
+
 **Antidepressant Side Effects Vary Widely by Drug, Study Finds**\
 `A new study compared the effects of 30 drugs on cholesterol, blood pressure and weight gain.`\
 https://nytimes.com/2025/10/21/well/antidepressant-side-effects.html
