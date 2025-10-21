@@ -22,7 +22,7 @@ https://nytimes.com/issue/todaysinyt/2025/10/21/todays-new-york-times-internatio
 `Australia’s got reserves and mining expertise, and the United States is eager to invest in alternatives to China. But building mines, refineries and factories could take years.`\
 https://nytimes.com/2025/10/21/world/australia/rare-earths-us-partnership.html
 
-**Japan Shifts Further Right With Its First Female Prime Ministe**\
+**Japan Shifts Further Right With Its First Female Prime Minister**\
 `Japanese lawmakers elected the country’s first female prime minister, Sanae Takaichi, a hard-line conservative. Javier C. Hernández, our Tokyo bureau chief, visited several places in her home region that show how she reflects Japan’s growing far right.`\
 https://nytimes.com/video/world/asia/100000010466661/sanae-takaichi-japan-prime-minister.html
 

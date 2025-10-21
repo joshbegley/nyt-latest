@@ -1,3 +1,7 @@
+**Japan Shifts Further Right With Its First Female Prime Minister**\
+`Japanese lawmakers elected the country’s first female prime minister, Sanae Takaichi, a hard-line conservative. Javier C. Hernández, our Tokyo bureau chief, visited several places in her home region that show how she reflects Japan’s growing far right.`\
+https://nytimes.com/video/world/asia/100000010466661/sanae-takaichi-japan-prime-minister.html
+
 **Beloved Indie Designer Gets a Big New Job at Hermès**\
 `Grace Wales Bonner is the new head of men’s wear at the French fashion house.`\
 https://nytimes.com/2025/10/21/style/grace-wales-bonner-hermes-men.html

@@ -1,3 +1,11 @@
+**NBC is back, Amazon debuts, 'Inside' moves over: Introducing the NBA's new TV landscape**\
+`Fans tuning into the NBA this season will have to adjust their viewing habits to new networks and a seven-day-a-week national TV schedule.`\
+https://nytimes.com/athletic/6733869/2025/10/21/nba-amazon-nbc-espn-schedule/
+
+**Greenberg: Bulls look to kick-start another 39-win, ninth-place season. Who's excited?**\
+`As the Bulls open the season Wednesday at home against the Detroit Pistons, they're not quite an afterthought — but it's close.`\
+https://nytimes.com/athletic/6734789/2025/10/21/chicago-bulls-prediction-season/
+
 **Beloved Indie Designer Gets a Big New Job at Hermès**\
 `Grace Wales Bonner is the new head of men’s wear at the French fashion house.`\
 https://nytimes.com/2025/10/21/style/grace-wales-bonner-hermes-men.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/asia/100000010466661/sanae-takaichi-japan-prime-
 **Russia Pushes a State-Controlled ‘Super App’ by Sabotaging Its Rivals**\
 `As the Kremlin throttles WhatsApp and Telegram, the new MAX messaging app is moving Russia closer to a restricted internet without foreign technology.`\
 https://nytimes.com/2025/10/21/world/europe/russia-max-app.html
-
-**Pistons' Ausar Thompson ready to 'flip' script after productive, healthy offseason**\
-`"I've always wanted to do whatever I do to the highest capacity," says Thompson after spending the summer getting stronger. `\
-https://nytimes.com/athletic/6731457/2025/10/21/pistons-ausar-thompson-amen-2025-26-season/
-
-**Brad Stevens had sleepless nights during massive 'reset and retool' of Celtics**\
-`The Celtics GM knew he had to tear apart a title-winning roster. "It wasn't the most fun summer," he told The Athletic.`\
-https://nytimes.com/athletic/6732861/2025/10/21/celtics-gm-brad-stevens-jayson-tatum-nba-season-challenges/
 
