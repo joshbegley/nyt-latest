@@ -1,4 +1,12 @@
 **Deion Sanders hopes Shohei Ohtani's success 'opens door' for more two-way stars in MLB**\
+`Sanders played 641 MLB games and 157 NFL games and is impressed by Ohtani's output. "He's doing something that's unfathomable."`\
+https://nytimes.com/athletic/6737364/2025/10/21/deion-sanders-shohei-ohtani-two-way-players/
+
+**Villarreal-Barcelona match in Miami postponed as organisers run out of time**\
+`In August, the Spanish Football Federation (RFEF) approved the request for December's La Liga fixture to be played in Miami.`\
+https://nytimes.com/athletic/6696317/2025/10/21/villarreal-barcelona-match-in-miami-postponed-as-organisers-run-out-of-time/
+
+**Deion Sanders hopes Shohei Ohtani's success 'opens door' for more two-way stars in MLB**\
 `Sanders played 641 MLB games and 157 NFL games.`\
 https://nytimes.com/athletic/6737364/2025/10/21/deion-sanders-shohei-ohtani-two-way-players/
 
