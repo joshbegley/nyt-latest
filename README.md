@@ -1,3 +1,7 @@
+**The Windup: What you'll remember from this Game 7**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6736656/2025/10/21/mariners-blue-jays-dodgers-the-windup/
+
 **Warner Bros. Discovery Says It Is Considering a Sale**\
 `The owner of CNN, HBO and the Warner Bros. movie studio revealed that it has received acquisition interest from multiple suitors.`\
 https://nytimes.com/2025/10/21/business/media/warner-bros-discovery-sale.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/21/style/street-style-look-comfortable-fall-clothes.
 **A battle of stars in Dodgers-Blue Jays World Series: matchups, storylines and more**\
 `The reigning champion Dodgers will look to defeat the ascendant Blue Jays and become baseball’s first repeat winners in a quarter century.`\
 https://nytimes.com/athletic/6736350/2025/10/21/world-series-preview-dodgers-blue-jays-prediction/
-
-**Brian Daboll owns Giants' epic collapse, kicking woes continue, and Jaxson Dart shines**\
-`Plus, game management blunders are adding up.`\
-https://nytimes.com/athletic/6735547/2025/10/21/giants-brian-daboll-collapse-jaxson-dart/
 
