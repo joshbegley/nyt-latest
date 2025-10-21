@@ -1,3 +1,11 @@
+**Submit questions for Nate Atkins' Rams mailbag**\
+`Atkins will consider your questions for his upcoming mailbag with the Rams sitting at 5-2 at their bye week.`\
+https://nytimes.com/athletic/6736414/2025/10/21/rams-week-8-mailbag/
+
+**How to watch the Toronto Raptors: TV schedule and broadcast rotation for 2025-26 season**\
+`Here's how to watch all 82 regular-season Raptors games, for fans in Canada and those in the U.S.`\
+https://nytimes.com/athletic/6727217/2025/10/21/toronto-raptors-canada-us-how-to-watch/
+
 **Three years into his Lakers tenure, Gabe Vincent makes a true start**\
 `Vincent's role and status as potential trade bait could have gotten him down. Instead, he says, "I'm all in on Laker basketball." `\
 https://nytimes.com/athletic/6735647/2025/10/21/gabe-vincent-lakers-starting-opener/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6733649/2025/10/21/broncos-sean-payton-offense-issu
 **How a Dodgers' late-season meeting woke up the slumbering champs**\
 `"At times it felt like we were kind of checked out during the regular season," Kiké Hernández said. `\
 https://nytimes.com/athletic/6735503/2025/10/21/dodgers-mlb-world-series-dave-roberts-meeting/
-
-**Former catcher Carlos Hernández interested in Padres' manager job**\
-`The longtime color analyst has experience managing in Mexico and Venezuela.`\
-https://nytimes.com/athletic/6734973/2025/10/21/carlos-hernandez-padres-manager-job/
-
-**Robbins: The Wizards can't deviate from their plan, no matter how ugly it gets**\
-`Washington's basketball rebuild has no end in sight. Right now, that's the way it has to be. `\
-https://nytimes.com/athletic/6735730/2025/10/21/washington-wizards-season-preview-2025-26/
 
