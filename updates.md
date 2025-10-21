@@ -1,3 +1,7 @@
+**Cuomo to Propose That New York City Take Partial Control of Subway**\
+`Andrew Cuomo, whose stewardship of the M.T.A. as governor was contentious, will suggest that the authority hand over responsibility for capital construction and maintenance to the city.`\
+https://nytimes.com/2025/10/21/nyregion/cuomo-nyc-subway.html
+
 **The Central Division is the toughest in the NHL. Here's how Winnipeg can win it**\
 `How will Winnipeg keep pace in the inevitable Central Division arms race?`\
 https://nytimes.com/athletic/6734416/2025/10/21/central-division-winnipeg-jets/
