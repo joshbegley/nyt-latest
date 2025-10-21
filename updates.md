@@ -1,3 +1,15 @@
+**Bear Breaks Into California Zoo to Mingle With Other Bears**\
+`Officials at Sequoia Park Zoo have no idea how the young bear got into the zoo and went “nose-to-nose” with the three bears there.`\
+https://nytimes.com/2025/10/21/us/bear-zoo-california.html
+
+**Villarreal-Barcelona match in Miami postponed as organisers run out of time**\
+`In August, the Spanish Football Federation (RFEF) approved the request for December's La Liga fixture in Miami,`\
+https://nytimes.com/athletic/6696317/2025/10/21/villarreal-barcelona-match-in-miami-postponed-as-organisers-run-out-of-time/
+
+**The Former Lobbyists Making Key Decisions at the E.P.A.**\
+`The Environmental Protection Agency has hired numerous former lobbyists and industry insiders who now work on chemical regulation, emission limits and other rules.`\
+https://nytimes.com/2025/10/21/climate/epa-former-lobbyists.html
+
 **How to watch Avalanche vs. Mammoth: Time, TV, streaming**\
 `Find out how to watch the Colorado Avalanche play the Utah Mammoth, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6737574/2025/10/21/avalanche-vs-mammoth-stream-how-to-watch-oct-21/

@@ -1,3 +1,15 @@
+**Bear Breaks Into California Zoo to Mingle With Other Bears**\
+`Officials at Sequoia Park Zoo have no idea how the young bear got into the zoo and went “nose-to-nose” with the three bears there.`\
+https://nytimes.com/2025/10/21/us/bear-zoo-california.html
+
+**Villarreal-Barcelona match in Miami postponed as organisers run out of time**\
+`In August, the Spanish Football Federation (RFEF) approved the request for December's La Liga fixture in Miami,`\
+https://nytimes.com/athletic/6696317/2025/10/21/villarreal-barcelona-match-in-miami-postponed-as-organisers-run-out-of-time/
+
+**The Former Lobbyists Making Key Decisions at the E.P.A.**\
+`The Environmental Protection Agency has hired numerous former lobbyists and industry insiders who now work on chemical regulation, emission limits and other rules.`\
+https://nytimes.com/2025/10/21/climate/epa-former-lobbyists.html
+
 **How to watch Avalanche vs. Mammoth: Time, TV, streaming**\
 `Find out how to watch the Colorado Avalanche play the Utah Mammoth, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6737574/2025/10/21/avalanche-vs-mammoth-stream-how-to-watch-oct-21/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6737562/2025/10/21/blue-jackets-vs-stars-stream-how
 **G.M. to Stop Making Electric Vans in Canada, in Another Hit to a Key Industry**\
 `The announcement, which will eliminate about 1,200 jobs, came less than a week after the carmaker Stellantis said it would move production of a new vehicle to Illinois from a Toronto suburb.`\
 https://nytimes.com/2025/10/21/world/canada/general-motors-electric-vans.html
-
-**Jack Nicklaus awarded $50 million in defamation lawsuit involving his former company**\
-`A jury found that Nicklaus Companies defamed Nicklaus by falsely suggesting he aligned in conversations with LIV Golf and other ventures.`\
-https://nytimes.com/athletic/6737188/2025/10/21/jack-nicklaus-lawsuit-contract-liv-golf/
-
-**How to watch Giants vs. Eagles: Time, TV, streaming**\
-`Find out how to watch the New York Giants play the Philadelphia Eagles, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6737525/2025/10/21/giants-vs-eagles-stream-how-to-watch-oct-26/
-
-**How to watch 49ers vs. Texans: Time, TV, streaming**\
-`Find out how to watch the San Francisco 49ers play the Houston Texans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6737523/2025/10/21/49ers-vs-texans-stream-how-to-watch-oct-26/
 
