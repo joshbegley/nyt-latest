@@ -1,3 +1,11 @@
+**Tornado Tears Through Paris Suburbs**\
+`A rare and deadly tornado swept through the commune of Ermont, near Paris, toppling trees and a crane.`\
+https://nytimes.com/video/world/europe/100000010471108/tornado-paris-france.html
+
+**Word of the Day: titular**\
+`This word has appeared in 185 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/21/learning/word-of-the-day-titular.html
+
 **Vance Heads to Israel as U.S. Tries to Shore Up Gaza Truce**\
 `With the cease-fire deal under strain, Vice President JD Vance is set to meet with Prime Minister Benjamin Netanyahu and other leaders.`\
 https://nytimes.com/2025/10/21/world/middleeast/jd-vance-israel-gaza-ceasefire.html
