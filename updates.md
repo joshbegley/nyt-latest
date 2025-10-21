@@ -1,3 +1,15 @@
+**Warner Bros. Discovery Says It Is Considering a Sale**\
+`The owner of CNN, HBO and the Warner Bros. movie studio revealed that it has received acquisition interest from multiple suitors.`\
+https://nytimes.com/2025/10/21/business/media/warner-bros-discovery-sale.html
+
+**Suspect Charged in Paris Museum Heist (No, Not That One)**\
+`A woman from China was charged with stealing gold last month from National Museum of Natural History. It’s one of several high-profile recent thefts from French institutions.`\
+https://nytimes.com/2025/10/21/world/europe/france-museum-theft-gold-nugget-arrest.html
+
+**Aston Villa reach agreement in principle with Cash over new contract**\
+`The 28-year-old's previous terms were due to expire in June 2027.`\
+https://nytimes.com/athletic/6502981/2025/10/21/matty-cash-aston-villa-new-contract/
+
 **Brooklyn FC tabs USMNT great Brian McBride as first GM**\
 `McBride is heading back into management in USL after his role as U.S. men's national team general manager`\
 https://nytimes.com/athletic/6736600/2025/10/21/brooklyn-fc-brian-mcbride-gm-usmnt-usl-championship/
