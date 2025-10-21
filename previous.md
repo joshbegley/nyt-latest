@@ -1,3 +1,7 @@
+**Ramos in talks to renew Monterrey contract**\
+`If the deal goes through, Ramos would continue to extend his long career and play in Mexico until he is 40,`\
+https://nytimes.com/athletic/6736756/2025/10/21/sergio-ramos-contract-news-monterrey/
+
 **Former French President Nicolas Sarkozy Is Imprisoned**\
 `Nicolas Sarkozy, the president of France from 2007 to 2012, began a five-year prison term after he was found guilty of conspiring to seek funding from Libya for his 2007 presidential campaign. He has appealed the verdict.`\
 https://nytimes.com/video/world/europe/100000010471284/former-french-president-nicolas-sarkozy-is-imprisoned.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/21/business/media/warner-bros-discovery-sale.html
 **Suspect Charged in Paris Museum Heist (No, Not That One)**\
 `A woman from China was charged with stealing gold last month from National Museum of Natural History. It’s one of several high-profile recent thefts from French institutions.`\
 https://nytimes.com/2025/10/21/world/europe/france-museum-theft-gold-nugget-arrest.html
-
-**Aston Villa reach agreement in principle with Cash over new contract**\
-`The 28-year-old's previous terms were due to expire in June 2027.`\
-https://nytimes.com/athletic/6502981/2025/10/21/matty-cash-aston-villa-new-contract/
 

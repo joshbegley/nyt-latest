@@ -1,3 +1,7 @@
+**Ramos in talks to renew Monterrey contract**\
+`If the deal goes through, Ramos would continue to extend his long career and play in Mexico until he is 40,`\
+https://nytimes.com/athletic/6736756/2025/10/21/sergio-ramos-contract-news-monterrey/
+
 **Former French President Nicolas Sarkozy Is Imprisoned**\
 `Nicolas Sarkozy, the president of France from 2007 to 2012, began a five-year prison term after he was found guilty of conspiring to seek funding from Libya for his 2007 presidential campaign. He has appealed the verdict.`\
 https://nytimes.com/video/world/europe/100000010471284/former-french-president-nicolas-sarkozy-is-imprisoned.html
