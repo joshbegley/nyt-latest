@@ -1,3 +1,19 @@
+**Shutdown Brings More BASE Jumpers and Drones to Yosemite Skies**\
+`Emboldened by the lapse in government funding and employee furloughs, some visitors are brazenly betting that they won’t get caught for breaking the law.`\
+https://nytimes.com/2025/10/21/travel/yosemite-shutdown-base-jumping.html
+
+**Quiz: Do You Know Ball?**\
+`Test your knowledge of the real and fictional N.B.A.`\
+https://nytimes.com/interactive/2025/10/21/arts/television/basketball-quiz-nba-season-start.html
+
+**Penguins legends Sidney Crosby and Evgeni Malkin are desperately racing a ticking clock**\
+`Crosby and Malkin know this could be their final season together, and they're eager to help the Penguins exceed expectations.`\
+https://nytimes.com/athletic/6732374/2025/10/21/penguins-sidney-crosby-evgeni-malkin-nhl/
+
+**Fishlock wants to remain at Seattle Reign one more year**\
+`"I'm hoping to carry on for one more year," Fishlock told the BBC. "We're in the process of going through what that looks like right now."`\
+https://nytimes.com/athletic/6736922/2025/10/21/jess-fishlock-seattle-reign-retire/
+
 **Here is the latest on the storm.**\
 `By Judson Jones`\
 https://nytimes.com/live/2025/10/21/weather/tropical-storm-melissa-hurricane/here-is-the-latest-on-the-storm
