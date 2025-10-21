@@ -1,10 +1,22 @@
+**Adam Silver talks expansion, dynasties and the All-Star Game as 2025-26 season begins**\
+`Silver said the NBA doesn't plan to relocate any specific teams, but that stadium leases, population changes and economies are factors.`\
+https://nytimes.com/athletic/6737795/2025/10/21/adam-silver-expansion-all-star-game/
+
+**U.S. Marshal and Immigrant Are Shot During L.A. Traffic Stop**\
+`Officials said immigration officers fired shots after the man rammed a law enforcement vehicle. The immigrant and a marshal were wounded in the shooting.`\
+https://nytimes.com/2025/10/21/us/us-marshal-immigrant-shot-la-traffic-stop.html
+
+**Crumbl Cookies CEO offers to pay $50K fine for BYU field storm**\
+`The CEO is a loyal BYU supporter who has lived in Utah since 2003.`\
+https://nytimes.com/athletic/6737634/2025/10/21/crumbl-cookies-ceo-offers-to-pay-fine-for-byu-field-storm/
+
 **Angels' Mike Trout testifies in Tyler Skaggs wrongful death trial: 'It's sad losing somebody'**\
 `Trout said he had no idea that Tyler Skaggs was abusing opiates, but that he became aware former Angels employee Eric Kay was using drugs.`\
 https://nytimes.com/athletic/6737042/2025/10/21/angels-mike-trout-tyler-skaggs-trial/
 
 **Why Mamdani Frightens Jews Like Me**\
 `A candidate who stands out for his monomania, double standards and affinity for extremists.`\
-https://nytimes.com/2025/10/21/opinion/zohran-mamdani-israel-palestine-jew.html
+https://nytimes.com/2025/10/21/opinion/zohran-mamdani-israel-gaza-jewish.html
 
 **Taylor Swift’s New Album Is a Fitting Text for the Trump Era**\
 `Coarseness and conservative impulses in “The Life of a Showgirl.”`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6736125/2025/10/21/villarreal-0-manchester-city-2-b
 **The Briefing: Newcastle 3 Benfica 0 - Gordon steps up again on superb night for Howe's wingers**\
 `Anthony Gordon, Jacob Murphy and Harvey Barnes all contributed to an impressive Champions League performance and result for Newcastle `\
 https://nytimes.com/athletic/6736124/2025/10/21/newcastle-3-benfica-0-gordon-murphy-barnes/
-
-**Trump Dismisses Another Inspector General, Fueling Oversight Concerns**\
-`With the firing of the Export-Import Bank’s inspector general, the president has sidelined around two dozen of the watchdogs who seek out fraud and mismanagement in federal agencies.`\
-https://nytimes.com/2025/10/21/us/politics/trump-inspectors-general.html
-
-**Viktor Gyokeres, Bane, Gabriel and the background to his goal celebration**\
-`The Arsenal forward's clasped-hands celebration is well known - but when did it start and why does he do it?`\
-https://nytimes.com/athletic/6608507/2025/10/21/viktor-gyokeres-arsenal-goal-celebration/
-
-**Federal Agents Detain Man During New York City Raid**\
-`Masked federal agents detained a man in Lower Manhattan on Tuesday, handcuffing him while he faced the wall of a building.`\
-https://nytimes.com/video/us/politics/100000010472692/manhattan-ice-immigration-raid.html
 

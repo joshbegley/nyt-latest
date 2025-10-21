@@ -1,3 +1,7 @@
+**The Briefing: Villarreal 0 Manchester City 2 - Haaland equals a Ronaldo record as City dominate**\
+`Erling Haaland and Bernardo Silva score as Manchester City ease to victory against Villarreal in the Champions League`\
+https://nytimes.com/athletic/6736125/2025/10/21/villarreal-0-manchester-city-2-briefing/
+
 **Angels' Mike Trout testifies in Tyler Skaggs wrongful death trial: 'It's sad losing somebody'**\
 `Trout said he had no idea that Tyler Skaggs was abusing opiates, but that he became aware former Angels employee Eric Kay was using drugs.`\
 https://nytimes.com/athletic/6737042/2025/10/21/angels-mike-trout-tyler-skaggs-trial/

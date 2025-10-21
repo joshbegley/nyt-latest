@@ -18,7 +18,7 @@ https://nytimes.com/video/world/middleeast/100000010472725/vance-optimistic-gaza
 `A resounding victory at the Emirates means Arsenal have nine points from their three Champions League games`\
 https://nytimes.com/athletic/6736123/2025/10/21/arsenal-atletico-gyokeres-gabriel-arteta/
 
-**The Briefing: Villarreal 0 Manchester City 2 - Haaland equals a Ronaldo record, Man City dominant**\
+**The Briefing: Villarreal 0 Manchester City 2 - Haaland equals a Ronaldo record as City dominate**\
 `Erling Haaland and Bernardo Silva score as Manchester City ease to victory against Villarreal in the Champions League`\
 https://nytimes.com/athletic/6736125/2025/10/21/villarreal-0-manchester-city-2-briefing/
 
