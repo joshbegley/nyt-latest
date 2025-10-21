@@ -1,3 +1,7 @@
+**Delap set to return to Chelsea training after hamstring injury**\
+`The forward's last appearance for Chelsea came on August 30.`\
+https://nytimes.com/athletic/6736311/2025/10/21/chelsea-liam-delap-injury-training/
+
 **Trump Administration Live Updates: Vance Lands in Israel as U.S. Tries to Shore Up Gaza Truce**\
 ``\
 https://nytimes.com/live/2025/10/21/us/trump-news

@@ -1,3 +1,7 @@
+**Delap set to return to Chelsea training after hamstring injury**\
+`The forward's last appearance for Chelsea came on August 30.`\
+https://nytimes.com/athletic/6736311/2025/10/21/chelsea-liam-delap-injury-training/
+
 **Trump Administration Live Updates: Vance Lands in Israel as U.S. Tries to Shore Up Gaza Truce**\
 ``\
 https://nytimes.com/live/2025/10/21/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6736128/2025/10/21/marta-kostyuk-sabalenka-swiatek-
 **Ukrainian Daycare Struggles to Provide Heat, Light and Food**\
 `Every fall since the start of its full-scale invasion of Ukraine, Russia has intensified strikes on Ukraine’s power plants and electrical infrastructure, continuing a yearslong effort to collapse its energy grid. As winter approaches, one daycare is finding it hard to cope.`\
 https://nytimes.com/video/world/europe/100000010464428/ukraine-power-cuts-daycare.html
-
-**What to know about the NBA's return to NBC: Rockets-Thunder, Warriors-Lakers on Tuesday**\
-`NBC is carrying NBA games for the first time since 2002. Here's how to watch the season-opening doubleheader on Tuesday.`\
-https://nytimes.com/athletic/6734450/2025/10/21/nba-nbc-rockets-thunder-warriors-lakers-how-to-watch/
 
