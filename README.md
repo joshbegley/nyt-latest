@@ -1,3 +1,7 @@
+**Jazz owner Ryan Smith sees practice facility as another step of progress**\
+`The Jazz will break ground on a facility in the same location as that of the NHL's Utah Mammoth.`\
+https://nytimes.com/athletic/6732394/2025/10/21/jazz-ryan-smith-practice-facility/
+
 **This School Has Taught Native Hawaiians Since 1887. Is That Discrimination?**\
 `The admissions policy of Kamehameha Schools gives preference to Native Hawaiians. A new lawsuit calls it “blood-based discrimination.”`\
 https://nytimes.com/2025/10/21/us/politics/hawaii-kamehameha-schools-discrimination-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6502981/2025/10/21/matty-cash-aston-villa-new-contr
 **Brooklyn FC tabs USMNT great Brian McBride as first GM**\
 `McBride is heading back into management in USL after his role as U.S. men's national team general manager`\
 https://nytimes.com/athletic/6736600/2025/10/21/brooklyn-fc-brian-mcbride-gm-usmnt-usl-championship/
-
-**The Central Division is the toughest in the NHL. Here's how Winnipeg can win it**\
-`How will Winnipeg keep pace in the inevitable Central Division arms race?`\
-https://nytimes.com/athletic/6734416/2025/10/21/central-division-winnipeg-jets/
 
