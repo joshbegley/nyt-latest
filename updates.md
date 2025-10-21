@@ -1,3 +1,7 @@
+**Wild's Danila Yurov scores first NHL goal in 3-1 win over Rangers: Takeaways**\
+`The Wild revert to a style of play that matches how they are built and defeat the Rangers to end a three-game winless stretch.`\
+https://nytimes.com/athletic/6735368/2025/10/20/wild-danila-yurov-first-goal-rangers/
+
 **Biden Completes a Course of Radiation Therapy for Prostate Cancer**\
 `Former President Joseph R. Biden Jr. began radiation therapy last month for an aggressive form of prostate cancer. It is unclear if his treatment has ended.`\
 https://nytimes.com/2025/10/20/us/politics/biden-cancer-treatment-radiation-therapy.html
