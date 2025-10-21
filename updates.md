@@ -1,3 +1,19 @@
+**Jets owner Woody Johnson publicly supports coach Aaron Glenn: 'Keep the faith, man'**\
+`While his Jets are the NFL's last winless team, Johnson preached patience while speaking to reporters at the league meetings in New York.`\
+https://nytimes.com/athletic/6737353/2025/10/21/new-york-jets-owner-woody-johnson-aaron-glenn/
+
+**How the Louvre Jewelry Heist Unfolded**\
+`In just eight minutes, thieves stole priceless jewelry from the Louvre Museum on Sunday after using a truck-mounted ladder to break into a second-floor window. Catherine Porter, an international correspondent for The New York Times based in Paris, explains how it unfolded.`\
+https://nytimes.com/video/world/europe/100000010469695/how-the-louvre-jewelry-heist-unfolded.html
+
+**Doechii Is Ready to Graduate**\
+`On her Live From the Swamp Tour, the breakout rapper demonstrates she has the wordplay, wit and work ethic to take her career to the next level.`\
+https://nytimes.com/2025/10/21/arts/music/doechii-live-from-the-swamp-tour-review.html
+
+**A Weather Balloon May Have Cracked a United Plane’s Windshield**\
+`A United Airlines flight was diverted last week after its windshield was cracked by an object. Now a weather balloon company think it’s “quite likely” their balloon did it.`\
+https://nytimes.com/2025/10/21/business/united-airplane-windshield-crack-weather-balloon.html
+
 **When It Comes to Being Mayor, Is Age Just a Number?**\
 `Does Zohran Mamdani, 34, reflect a desire for generational change or a discounting of experience?`\
 https://nytimes.com/2025/10/21/nyregion/nyc-mayor-mamdani-cuomo-sliwa.html

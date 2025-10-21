@@ -1,3 +1,19 @@
+**Jets owner Woody Johnson publicly supports coach Aaron Glenn: 'Keep the faith, man'**\
+`While his Jets are the NFL's last winless team, Johnson preached patience while speaking to reporters at the league meetings in New York.`\
+https://nytimes.com/athletic/6737353/2025/10/21/new-york-jets-owner-woody-johnson-aaron-glenn/
+
+**How the Louvre Jewelry Heist Unfolded**\
+`In just eight minutes, thieves stole priceless jewelry from the Louvre Museum on Sunday after using a truck-mounted ladder to break into a second-floor window. Catherine Porter, an international correspondent for The New York Times based in Paris, explains how it unfolded.`\
+https://nytimes.com/video/world/europe/100000010469695/how-the-louvre-jewelry-heist-unfolded.html
+
+**Doechii Is Ready to Graduate**\
+`On her Live From the Swamp Tour, the breakout rapper demonstrates she has the wordplay, wit and work ethic to take her career to the next level.`\
+https://nytimes.com/2025/10/21/arts/music/doechii-live-from-the-swamp-tour-review.html
+
+**A Weather Balloon May Have Cracked a United Plane’s Windshield**\
+`A United Airlines flight was diverted last week after its windshield was cracked by an object. Now a weather balloon company think it’s “quite likely” their balloon did it.`\
+https://nytimes.com/2025/10/21/business/united-airplane-windshield-crack-weather-balloon.html
+
 **When It Comes to Being Mayor, Is Age Just a Number?**\
 `Does Zohran Mamdani, 34, reflect a desire for generational change or a discounting of experience?`\
 https://nytimes.com/2025/10/21/nyregion/nyc-mayor-mamdani-cuomo-sliwa.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/21/us/politics/trump-justice-department-compensation
 **NFL MVP odds: Will Baker pass Josh Allen, Patrick Mahomes?**\
 `Baker Mayfield is setting up a strong campaign to challenge the MVP frontrunners. But who else could spoil the plot?`\
 https://nytimes.com/athletic/6736832/2025/10/21/nfl-mvp-odds-baker-mayfield-josh-allen-patrick-mahomes/
-
-**8 Really Great Songs From Fake Movie Bands**\
-`In honor of a new film about the (real) Bruce Springsteen, revisit tracks from Spinal Tap, Sex Bob-Omb, Stillwater and more.`\
-https://nytimes.com/2025/10/21/arts/music/fake-movie-band-songs.html
-
-**Super Bowl odds: Chiefs rise back to top spot with Bills reeling**\
-`The suddenly surging Chiefs are now the favorites to win the Super Bowl, partly thanks to Buffalo's back-to-back losses.`\
-https://nytimes.com/athletic/6737088/2025/10/21/super-bowl-odds-chiefs-bills/
-
-**A 200-Year-Old Precedent Holds the Key to Trump’s Troop Deployment**\
-`The administration says the ruling, stemming from the seizure of an old mare, forbids judges from second-guessing his use of the National Guard.`\
-https://nytimes.com/2025/10/21/us/politics/supreme-court-national-guard-precedent.html
-
-**Silver says WNBA players are 'going to get a big increase' in pay**\
-`Speaking on NBC's "Today," Adam Silver commented on the ongoing WNBA CBA negotiations.  `\
-https://nytimes.com/athletic/6736980/2025/10/21/adam-silver-wnba-players-pay-increase/
 
