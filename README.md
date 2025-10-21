@@ -1,3 +1,7 @@
+**Rosenthal: Gritting through the pain, George Springer gets his signature Blue Jays moment**\
+`Springer's go-ahead home run will stand as one of the biggest in Jays history, a Joe Carter-like landmark for a new generation of fans.`\
+https://nytimes.com/athletic/6735902/2025/10/21/blue-jays-world-series-george-springer-alcs/
+
 **The lover's guide to the 2025 World Series**\
 `The Blue Jays have a nation on their side, and everyone else who didn't grow up a Dodger fan. LA has Shohei Ohtani. This will be fun.`\
 https://nytimes.com/athletic/6735233/2025/10/21/world-series-preview-2025-dodgers-blue-jays/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6735990/2025/10/21/nottingham-forest-sean-dyche-con
 **Vance Travels to Israel to Try to Bolster Gaza Deal**\
 `Vice President JD Vance headed to Israel to ramp up support for the fragile cease-fire deal. Concerns have grown that Prime Minister Benjamin Netanyahu of Israel could dismantle the U.S.-brokered agreement.`\
 https://nytimes.com/video/world/americas/100000010471147/trump-gaza-israel-netanyahu.html
-
-**Met Awards 2026 Facade Commission to Chinese Artist Liu Wei**\
-`It’s the first time in nearly 20 years that the museum has asked an artist from mainland China to create artwork for its building.`\
-https://nytimes.com/2025/10/21/arts/design/met-awards-2026-facade-commission-to-chinese-artist-liu-wei.html
 
