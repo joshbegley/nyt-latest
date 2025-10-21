@@ -1,3 +1,7 @@
+**What Dan Wilson's decision to use Bazardo vs. Springer says about optimal reliever usage**\
+`In the aftermath of a come-from-ahead loss in Game 7 of the American League Championship Series, Seattle Mariners manager Dan Wilson is taking heat for the decision call on Eduard Bazardo to face George Springer in the seventh inning with the season on the line.`\
+https://nytimes.com/athletic/6737213/2025/10/21/mlb-playoff-bullpen-usage-strategy-eduard-bazardo-george-springer/
+
 **Jack Smith’s lawyers say he never wiretapped or surveilled lawmakers.**\
 `Lawyers for the special counsel, who investigated Donald J. Trump, denied accusations by Republican lawmakers that he had surveilled or spied on senators as part of his inquiry.`\
 https://nytimes.com/2025/10/21/us/politics/jack-smith-phone-records-republicans.html
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6737743/2025/10/21/sergino-dest-psv-napoli-champion
 https://nytimes.com/2025/10/21/world/europe/louvre-robbery-jewelry.html
 
 **J.J. McCarthy 'just not there,' so Carson Wentz to start for Vikings vs. Chargers on TNF**\
-`McCarthy is still recovering from an ankle injury he suffered in Week 2, though the Vikings opened up Aaron Jones' 21-day window to return.`\
+`McCarthy is still recovering from an ankle injury he suffered in Week 2, though the Vikings opened Aaron Jones' 21-day window to return.`\
 https://nytimes.com/athletic/6737551/2025/10/21/vikings-jj-mccarthy-carson-wentz-aaron-jones-injury/
 
 **A Nepali Town Mourns a Native Son Who Died a Hamas Captive**\
@@ -29,8 +33,4 @@ https://nytimes.com/2025/10/21/us/hurricane-florida-dog-abandoned-charges-droppe
 **Liverpool travel disruption will 'not impact' Frankfurt match build-up, Slot says**\
 `The Premier League champions' flight was delayed for around four hours on Tuesday due to technical issues with their plane.`\
 https://nytimes.com/athletic/6737612/2025/10/21/liverpool-travel-disruption-frankfurt-slot/
-
-**NASCAR reveals course for inaugural San Diego race at Naval Base Coronado**\
-`The 16-turn, 3.4-mile course around Naval Air Station North Island will have downtown San Diego as a backdrop.`\
-https://nytimes.com/athletic/6737334/2025/10/21/nascar-san-diego-race-naval-base-coronado-course/
 
