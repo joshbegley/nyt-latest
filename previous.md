@@ -1,5 +1,9 @@
+**Red Light: Examining Brad Marchand's years-long Hockey Hall of Fame debate**\
+`As a guy who loves a good Hall debate, I've been fascinated to track Marchand’s candidacy over time.`\
+https://nytimes.com/athletic/6736695/2025/10/21/brad-marchand-hockey-hall-of-fame-debate-nhl/
+
 **Ramos in talks to renew Monterrey contract**\
-`If the deal goes through, Ramos would continue to extend his long career and play in Mexico until he is 40,`\
+`If the new deal is confirmed it would see Ramos play pastswould continue to extend his long career and play in Mexico until he is 40,`\
 https://nytimes.com/athletic/6736756/2025/10/21/sergio-ramos-contract-news-monterrey/
 
 **Former French President Nicolas Sarkozy Is Imprisoned**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6736656/2025/10/21/mariners-blue-jays-dodgers-the-w
 **Warner Bros. Discovery Says It Is Considering a Sale**\
 `The owner of CNN, HBO and the Warner Bros. movie studio revealed that it has received acquisition interest from multiple suitors.`\
 https://nytimes.com/2025/10/21/business/media/warner-bros-discovery-sale.html
-
-**Suspect Charged in Paris Museum Heist (No, Not That One)**\
-`A woman from China was charged with stealing gold last month from National Museum of Natural History. It’s one of several high-profile recent thefts from French institutions.`\
-https://nytimes.com/2025/10/21/world/europe/france-museum-theft-gold-nugget-arrest.html
 

@@ -1,3 +1,11 @@
+**Red Light: Examining Brad Marchand's years-long Hockey Hall of Fame debate**\
+`As a guy who loves a good Hall debate, I've been fascinated to track Marchand’s candidacy over time.`\
+https://nytimes.com/athletic/6736695/2025/10/21/brad-marchand-hockey-hall-of-fame-debate-nhl/
+
+**Ramos in talks to renew Monterrey contract**\
+`If the new deal is confirmed it would see Ramos play pastswould continue to extend his long career and play in Mexico until he is 40,`\
+https://nytimes.com/athletic/6736756/2025/10/21/sergio-ramos-contract-news-monterrey/
+
 **Ramos in talks to renew Monterrey contract**\
 `If the deal goes through, Ramos would continue to extend his long career and play in Mexico until he is 40,`\
 https://nytimes.com/athletic/6736756/2025/10/21/sergio-ramos-contract-news-monterrey/
