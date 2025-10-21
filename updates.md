@@ -1,3 +1,7 @@
+**Met Awards 2026 Facade Commission to Chinese Artist Liu Wei**\
+`It’s the first time in nearly 20 years that the museum has asked an artist from mainland China to create artwork for its building.`\
+https://nytimes.com/2025/10/21/arts/design/met-awards-2026-facade-commission-to-chinese-artist-liu-wei.html
+
 **Late Night Revisits Ye Olde ‘No Kings’ Protests**\
 `Jon Stewart consulted the Declaration of Independence’s king-inspired stipulations on “The Daily Show.”`\
 https://nytimes.com/2025/10/21/arts/television/late-night-no-kings-protests.html

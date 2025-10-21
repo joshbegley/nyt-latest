@@ -1,3 +1,7 @@
+**Vance Travels to Israel to Try to Bolster Gaza Deal**\
+`Vice President JD Vance headed to Israel to ramp up support for the fragile peace deal. Concerns have grown that Prime Minister Benjamin Netanyahu of Israel could dismantle the U.S.-brokered cease-fire deal.`\
+https://nytimes.com/video/world/americas/100000010471147/trump-gaza-israel-netanyahu.html
+
 **Met Awards 2026 Facade Commission to Chinese Artist Liu Wei**\
 `It’s the first time in nearly 20 years that the museum has asked an artist from mainland China to create artwork for its building.`\
 https://nytimes.com/2025/10/21/arts/design/met-awards-2026-facade-commission-to-chinese-artist-liu-wei.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6735065/2025/10/21/brentford-keith-andrews-thiago-h
 **Tornado Tears Through Paris Suburbs**\
 `A rare and deadly tornado swept through the commune of Ermont, near Paris, toppling trees and a crane.`\
 https://nytimes.com/video/world/europe/100000010471108/tornado-paris-france.html
-
-**Word of the Day: titular**\
-`This word has appeared in 185 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/10/21/learning/word-of-the-day-titular.html
 
