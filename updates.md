@@ -1,3 +1,19 @@
+**Angels' Mike Trout testifies in Tyler Skaggs wrongful death trial: 'It's sad losing somebody'**\
+`Trout said he had no idea that Tyler Skaggs was abusing opiates, but that he became aware former Angels employee Eric Kay was using drugs.`\
+https://nytimes.com/athletic/6737042/2025/10/21/angels-mike-trout-tyler-skaggs-trial/
+
+**Why Mamdani Frightens Jews Like Me**\
+`A candidate who stands out for his monomania, double standards and affinity for extremists.`\
+https://nytimes.com/2025/10/21/opinion/zohran-mamdani-israel-palestine-jew.html
+
+**Taylor Swift’s New Album Is a Fitting Text for the Trump Era**\
+`Coarseness and conservative impulses in “The Life of a Showgirl.”`\
+https://nytimes.com/2025/10/21/opinion/taylor-swift-life-showgirl-conservative.html
+
+**The Briefing: Arsenal 4 Atletico 0 - What does this win say about Arteta's side? How big was this for Gyokeres?**\
+`A resounding victory at the Emirates means Arsenal have nine points from their three Champions League games`\
+https://nytimes.com/athletic/6736123/2025/10/21/arsenal-atletico-gyokeres-gabriel-arteta/
+
 **JD Vance Is Optimistic About the Cease-Fire in Gaza**\
 `Vice President JD Vance remained optimistic that the cease-fire deal in Gaza would hold during his trip to Israel on Tuesday, but gave few details of how the Trump administration plans to move toward a lasting peace.`\
 https://nytimes.com/video/world/middleeast/100000010472725/vance-optimistic-gaza-cease-fire.html
