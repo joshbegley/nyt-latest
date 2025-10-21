@@ -1,3 +1,11 @@
+**This School Has Taught Native Hawaiians Since 1887. Is That Discrimination?**\
+`The admissions policy of Kamehameha Schools gives preference to Native Hawaiians. A new lawsuit calls it “blood-based discrimination.”`\
+https://nytimes.com/2025/10/21/us/politics/hawaii-kamehameha-schools-discrimination-lawsuit.html
+
+**Diwali**\
+`Do you, or does anyone you know, celebrate the South Asian festival of lights? What rituals are a part of your celebration?`\
+https://nytimes.com/2025/10/21/learning/diwali.html
+
 **Pardoned Jan. 6 Rioter Charged With Threatening Hakeem Jeffries**\
 `The New York man, Christopher Moynihan, appears to be the only rioter so far who has been charged again with committing an offense against an elected official.`\
 https://nytimes.com/2025/10/21/us/politics/jan-6-rioter-hakeem-jeffries-threats.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6736600/2025/10/21/brooklyn-fc-brian-mcbride-gm-usm
 **The Central Division is the toughest in the NHL. Here's how Winnipeg can win it**\
 `How will Winnipeg keep pace in the inevitable Central Division arms race?`\
 https://nytimes.com/athletic/6734416/2025/10/21/central-division-winnipeg-jets/
-
-**What we’re seeing from Canucks: The winning streak, replacing Chytil, Pettersson’s turnaround, more**\
-`The Canucks didn't even need a full 72 hours to completely rewrite the narrative about their start to the season.`\
-https://nytimes.com/athletic/6731872/2025/10/21/canucks-garland-hughes-pettersson-schedule-streak/
-
-**Cuomo to Propose That New York City Take Partial Control of Subway**\
-`Andrew Cuomo, whose stewardship of the M.T.A. as governor was contentious, will suggest that the authority hand over responsibility for capital construction and maintenance to the city.`\
-https://nytimes.com/2025/10/21/nyregion/cuomo-nyc-subway.html
 
