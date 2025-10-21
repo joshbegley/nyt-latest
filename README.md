@@ -1,4 +1,8 @@
-**Jazz owner Ryan Smith sees practice facility as another step of progress**\
+**Former French President Nicolas Sarkozy Is Imprisoned**\
+`Nicolas Sarkozy, the president of France from 2007 to 2012, began a five-year prison term after he was found guilty of conspiring to seek funding from Libya for his 2007 presidential campaign. He has appealed the verdict.`\
+https://nytimes.com/video/world/europe/100000010471284/former-french-president-nicolas-sarkozy-is-imprisoned.html
+
+**Jazz owner Ryan Smith looks to grow Jazz, Mammoth talent with new practice facility**\
 `The Jazz will break ground on a facility in the same location as that of the NHL's Utah Mammoth.`\
 https://nytimes.com/athletic/6732394/2025/10/21/jazz-ryan-smith-practice-facility/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/21/world/europe/france-museum-theft-gold-nugget-arre
 **Aston Villa reach agreement in principle with Cash over new contract**\
 `The 28-year-old's previous terms were due to expire in June 2027.`\
 https://nytimes.com/athletic/6502981/2025/10/21/matty-cash-aston-villa-new-contract/
-
-**Brooklyn FC tabs USMNT great Brian McBride as first GM**\
-`McBride is heading back into management in USL after his role as U.S. men's national team general manager`\
-https://nytimes.com/athletic/6736600/2025/10/21/brooklyn-fc-brian-mcbride-gm-usmnt-usl-championship/
 
