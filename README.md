@@ -1,3 +1,7 @@
+**When It Comes to Being Mayor, Is Age Just a Number?**\
+`Does Zohran Mamdani, 34, reflect a desire for generational change or a discounting of experience?`\
+https://nytimes.com/2025/10/21/nyregion/nyc-mayor-mamdani-cuomo-sliwa.html
+
 **Serie B club put under judicial administration after alleged mafia infiltration**\
 `Italian prosecutors and police said at a joint press conference on Tuesday that Juve Stabia "became a tool of the Camorra".`\
 https://nytimes.com/athletic/6736745/2025/10/21/juve-stabia-serie-b-court-control/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/21/us/politics/supreme-court-national-guard-preceden
 **Silver says WNBA players are 'going to get a big increase' in pay**\
 `Speaking on NBC's "Today," Adam Silver commented on the ongoing WNBA CBA negotiations.  `\
 https://nytimes.com/athletic/6736980/2025/10/21/adam-silver-wnba-players-pay-increase/
-
-**Critical fantasy football insights for Week 8: Bo Nix's historic fourth quarter and more**\
-`Brandon Funston and Jess Bryant look at usage metrics to give actionable Week 8 fantasy football advice. `\
-https://nytimes.com/athletic/6733287/2025/10/21/critical-fantasy-football-insights-for-week-8-bo-nixs-historic-fourth-quarter-and-more/
 
