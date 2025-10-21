@@ -1,3 +1,11 @@
+**Why Nottingham Forest chose Dyche over Mancini and Silva**\
+`The Premier League side have wasted little time in appointing a successor to Ange Postecoglou. This is how they decided on Dyche`\
+https://nytimes.com/athletic/6733356/2025/10/21/nottingham-forest-dyche-mancini-silva/
+
+**Forest appoint Dyche as new head coach**\
+`The 54-year-old replaces Ange Postecoglou at the City Ground, who was sacked after just eight games on Saturday.`\
+https://nytimes.com/athletic/6735990/2025/10/21/nottingham-forest-sean-dyche-confirmed/
+
 **Vance Travels to Israel to Try to Bolster Gaza Deal**\
 `Vice President JD Vance headed to Israel to ramp up support for the fragile peace deal. Concerns have grown that Prime Minister Benjamin Netanyahu of Israel could dismantle the U.S.-brokered cease-fire deal.`\
 https://nytimes.com/video/world/americas/100000010471147/trump-gaza-israel-netanyahu.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/21/crosswords/spelling-bee-forum.html
 **How to watch Colorado vs. Utah: Time, TV, streaming**\
 `Find out how to watch the Colorado Buffaloes play the Utah Utes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6735929/2025/10/21/colorado-vs-utah-stream-how-to-watch-oct-25/
-
-**Keith Andrews is quietly piecing Brentford back together**\
-`Brentford's record at this stage is identical to that of last term and, as rivals regress, shows the strength of their succession planning`\
-https://nytimes.com/athletic/6735065/2025/10/21/brentford-keith-andrews-thiago-henderson-west-ham/
-
-**Tornado Tears Through Paris Suburbs**\
-`A rare and deadly tornado swept through the commune of Ermont, near Paris, toppling trees and a crane.`\
-https://nytimes.com/video/world/europe/100000010471108/tornado-paris-france.html
 
