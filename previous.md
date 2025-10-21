@@ -1,3 +1,7 @@
+**How to watch Colorado vs. Utah: Time, TV, streaming**\
+`Find out how to watch the Colorado Buffaloes play the Utah Utes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6735929/2025/10/21/colorado-vs-utah-stream-how-to-watch-oct-25/
+
 **Keith Andrews is quietly piecing Brentford back together**\
 `Brentford's record at this stage is identical to that of last term and, as rivals regress, shows the strength of their succession planning`\
 https://nytimes.com/athletic/6735065/2025/10/21/brentford-keith-andrews-thiago-henderson-west-ham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6735709/2025/10/21/drake-toronto-blue-jays-world-se
 **Japan Has a New Leader, and She’s a Heavy Metal Drummer**\
 `Sanae Takaichi, a fan of Iron Maiden, had an improbable rise to power. Like her mentor, Shinzo Abe, she is expected to lead Japan to the right.`\
 https://nytimes.com/2025/10/21/world/asia/sanae-takaichi-japan-prime-minister.html
-
-**‘I'll be ready’: Blue Jays' Bo Bichette expects to rejoin club for World Series**\
-`Bichette, 27, has been out after colliding with Yankees catcher Austin Wells, injuring his posterior cruciate ligament.`\
-https://nytimes.com/athletic/6735744/2025/10/21/toronto-blue-jays-bo-bichette-world-series/
 
