@@ -1,3 +1,11 @@
+**Full Range**\
+`Spencer Leach lights the way.`\
+https://nytimes.com/2025/10/20/crosswords/daily-puzzle-2025-10-21.html
+
+**Longtime Angels employee denies knowledge of Eric Kay's drug use**\
+`Tom Taylor, the Angels longtime traveling secretary, took the stand Monday in the civil trial brought by the family of Tyler Skaggs.`\
+https://nytimes.com/athletic/6735461/2025/10/20/tyler-skaggs-trial-angels-employee-eric-kay-drug-use/
+
 **Some States With Democratic Governors Are Posting Partisan Shutdown Messages on Official Websites**\
 `The messages follow a pattern set by the Trump administration, but use notably milder language.`\
 https://nytimes.com/2025/10/20/us/politics/shutdown-messages-state-websites.html

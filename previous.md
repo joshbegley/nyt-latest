@@ -1,3 +1,11 @@
+**Full Range**\
+`Spencer Leach lights the way.`\
+https://nytimes.com/2025/10/20/crosswords/daily-puzzle-2025-10-21.html
+
+**Longtime Angels employee denies knowledge of Eric Kay's drug use**\
+`Tom Taylor, the Angels longtime traveling secretary, took the stand Monday in the civil trial brought by the family of Tyler Skaggs.`\
+https://nytimes.com/athletic/6735461/2025/10/20/tyler-skaggs-trial-angels-employee-eric-kay-drug-use/
+
 **Some States With Democratic Governors Are Posting Partisan Shutdown Messages on Official Websites**\
 `The messages follow a pattern set by the Trump administration, but use notably milder language.`\
 https://nytimes.com/2025/10/20/us/politics/shutdown-messages-state-websites.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6735309/2025/10/20/houston-vs-arizona-state-stream-
 **India Illuminates as Diwali Festivals Begin**\
 `Millions of families commenced celebrations this week for Diwali, the Hindu festival of lights and the biggest public holiday in India.`\
 https://nytimes.com/video/world/asia/100000010469778/india-diwali-celebrations-fireworks-pollution.html
-
-**Buccaneers WR Mike Evans ruled out with concussion and shoulder injury**\
-`Evans returned to the lineup Monday after missing three games with a hamstring injury but left the game in the second quarter.`\
-https://nytimes.com/athletic/6735238/2025/10/20/mike-evans-buccaneers-injury-concussion-shoulder/
-
-**New York to Albany by Train for $40 Flat? It’s Happening Next Year.**\
-`For the first time, Metro-North will run trains past Poughkeepsie through the Hudson Valley to Albany. Some Amtrak service will also be restored.`\
-https://nytimes.com/2025/10/20/nyregion/metro-north-trains-albany-hochul.html
 
