@@ -6,7 +6,7 @@ https://nytimes.com/video/podcasts/100000010469984/5-songs-our-critic-loves-righ
 `The new browser, called Atlas, is designed to work closely with OpenAI products like ChatGPT.`\
 https://nytimes.com/2025/10/21/technology/openai-web-browser-atlas.html
 
-**Barcelona 6 Olympiacos 1 - Fermin's hat-trick, VAR controversy and a great night for La Masia**\
+**The Briefing – Barcelona 6 Olympiacos 1: Fermin's hat-trick, VAR controversy, and a great night for La Masia**\
 `Hansi Flick's side warmed up for El Clasico on Sunday with a comfortable win in the Champions League`\
 https://nytimes.com/athletic/6736122/2025/10/21/barcelona-olympiacos-champions-league-analysis/
 

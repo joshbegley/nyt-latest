@@ -1,3 +1,7 @@
+**The Briefing – Barcelona 6 Olympiacos 1: Fermin's hat-trick, VAR controversy, and a great night for La Masia**\
+`Hansi Flick's side warmed up for El Clasico on Sunday with a comfortable win in the Champions League`\
+https://nytimes.com/athletic/6736122/2025/10/21/barcelona-olympiacos-champions-league-analysis/
+
 **5 Songs Our Critic Loves Right Now**\
 `The music critic Jon Caramanica recommends some recent tracks from his driver’s seat, in a lightning-round edition of his weekly song reviews.`\
 https://nytimes.com/video/podcasts/100000010469984/5-songs-our-critic-loves-right-now.html
