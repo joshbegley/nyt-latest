@@ -1,3 +1,7 @@
+**A Surfing Safari Detours Into Eugenics**\
+`In “Capturing Kahanamoku,” the historian Michael Rossi argues that an ugly pseudoscientific movement had its roots in a beautiful sport.`\
+https://nytimes.com/2025/10/21/books/review/capturing-kahanamoku-michael-rossi.html
+
 **Shutdown Brings More BASE Jumpers and Drones to Yosemite Skies**\
 `Emboldened by the lapse in government funding and employee furloughs, some visitors are brazenly betting that they won’t get caught for breaking the law.`\
 https://nytimes.com/2025/10/21/travel/yosemite-shutdown-base-jumping.html

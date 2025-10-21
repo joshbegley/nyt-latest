@@ -1,3 +1,7 @@
+**A Surfing Safari Detours Into Eugenics**\
+`In “Capturing Kahanamoku,” the historian Michael Rossi argues that an ugly pseudoscientific movement had its roots in a beautiful sport.`\
+https://nytimes.com/2025/10/21/books/review/capturing-kahanamoku-michael-rossi.html
+
 **Shutdown Brings More BASE Jumpers and Drones to Yosemite Skies**\
 `Emboldened by the lapse in government funding and employee furloughs, some visitors are brazenly betting that they won’t get caught for breaking the law.`\
 https://nytimes.com/2025/10/21/travel/yosemite-shutdown-base-jumping.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/21/style/tiktok-group-7-sophia-james.html
 **How to watch Kraken vs. Capitals: Time, TV, streaming**\
 `Find out how to watch the Seattle Kraken play the Washington Capitals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6736906/2025/10/21/kraken-vs-capitals-stream-how-to-watch-oct-21/
-
-**How to watch Devils vs. Maple Leafs: Time, TV, streaming**\
-`Find out how to watch the New Jersey Devils play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6736902/2025/10/21/devils-vs-maple-leafs-stream-how-to-watch-oct-21/
 
