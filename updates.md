@@ -1,3 +1,7 @@
+**China, Xi and the S-word**\
+`The Chinese president has been in office for more than a decade, but Xi Jinping’s succession is a touchy subject.`\
+https://nytimes.com/2025/10/21/world/china-xi-succession-japan-prime-minister.html
+
 **With Cease-Fire, Some Pro-Palestinian Protesters Look Back, Ruefully**\
 `Activists welcome the truce. But the backlash to their demonstrations, some said, offered sobering lessons about power and politics.`\
 https://nytimes.com/2025/10/21/us/politics/campus-protesters-israel-gaza-cease-fire-reaction.html
