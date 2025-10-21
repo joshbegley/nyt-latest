@@ -1,3 +1,7 @@
+**Russell Wilson calls Sean Payton 'classless' after Broncos coach takes dig at his former QB**\
+`The two have clashed publicly on several occasions.`\
+https://nytimes.com/athletic/6738001/2025/10/21/russell-wilson-sean-payton-response-broncos-coach/
+
 **Trump Is Demanding Millions From His Own Administration**\
 `Also, Japan elected its first female prime minister. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/10/21/briefing/trump-justice-department-japan-prime-minister.html
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6737813/2025/10/21/uswnt-alyssa-thompson-chelsea-mo
 **NFL says it has 'heightened focus on playing surfaces' after recent concerns**\
 `Concerns over playing surfaces have been top of mind after Giants WR Malik Nabers tore his ACL in Week 3.`\
 https://nytimes.com/athletic/6737853/2025/10/21/nfl-playing-surfaces-injuries-metlife-stadium/
-
-**Stephanie Johnson, Burlesque Dancer With Stories to Tell, Dies at 81**\
-`Her memories of her days as Tanqueray in the gritty New York of the 1960s and ’70s found a new audience in recent years and made her a social media star.`\
-https://nytimes.com/2025/10/21/fashion/stephanie-tanqueray-johnson-dead.html
 

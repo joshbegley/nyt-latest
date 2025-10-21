@@ -1,3 +1,7 @@
+**Russell Wilson calls Sean Payton 'classless' after Broncos coach takes dig at his former QB**\
+`The two have clashed publicly on several occasions.`\
+https://nytimes.com/athletic/6738001/2025/10/21/russell-wilson-sean-payton-response-broncos-coach/
+
 **Trump Is Demanding Millions From His Own Administration**\
 `Also, Japan elected its first female prime minister. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/10/21/briefing/trump-justice-department-japan-prime-minister.html
