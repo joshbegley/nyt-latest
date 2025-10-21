@@ -1,3 +1,23 @@
+**Batman, Captain Kirk, CBS and CNN All Under One Roof?**\
+`Paramount has expressed interest in buying Warner Bros. Discovery, a deal that would create a new media behemoth.`\
+https://nytimes.com/interactive/2025/10/21/business/media/paramount-warner-bros-merger.html
+
+**T Recipes**\
+``\
+https://nytimes.com/spotlight/t-recipes
+
+**PWHL Seattle, Vancouver unveil inaugural jerseys without logos or team names**\
+`There will be no logos or team names on the jerseys in 2025-26, but Seattle and Vancouver will reveal names and logos ahead of the season.`\
+https://nytimes.com/athletic/6736995/2025/10/21/pwhl-jerseys-seattle-vancouver-expansion/
+
+**The Rural Power Behind Trump’s Assault on Blue Cities**\
+`The political scientist Suzanne Mettler examines the roots of America’s urban-rural divide and how Democrats can win back rural voters.`\
+https://nytimes.com/video/opinion/100000010465636/the-rural-power-behind-trumps-assault-on-blue-cities.html
+
+**‘The Monster of Florence’ Shows a Darker View of Tuscany**\
+`A new Italian series on Netflix chronicles one of Italy’s most notorious serial-killer cases, which remains unsolved.`\
+https://nytimes.com/2025/10/21/arts/television/the-monster-of-florence-netflix.html
+
 **A Surfing Safari Detours Into Eugenics**\
 `In “Capturing Kahanamoku,” the historian Michael Rossi argues that an ugly pseudoscientific movement had its roots in a beautiful sport.`\
 https://nytimes.com/2025/10/21/books/review/capturing-kahanamoku-michael-rossi.html
