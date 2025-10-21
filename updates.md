@@ -1,3 +1,11 @@
+**Duke lands commitment from 5-star Bryson Howard, son of ex-NBAer Josh Howard**\
+`Jon Scheyer's Duke has a track record of building the No. 1 recruiting class in the country. The 2026 group begins with Howard.`\
+https://nytimes.com/athletic/6737744/2025/10/21/duke-bryson-howard-commitment-college-basketball/
+
+**Portraits of China’s Changing Work force**\
+`In a nation grappling with economic uncertainty and sweeping demographic change, Chinese workers are reinventing themselves in unexpected ways.`\
+https://nytimes.com/interactive/2025/10/21/world/asia/china-work-force.html
+
 **‘KPop’ Helps Lift Netflix Revenue 17%**\
 `The streaming giant said the higher results came from a mix of subscription growth, advertising and other sales.`\
 https://nytimes.com/2025/10/21/business/media/kpop-netflix-quarterly-report.html
