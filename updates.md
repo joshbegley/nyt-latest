@@ -1,3 +1,7 @@
+**How Much Dirtier Can the Dirty Martini Get?**\
+`The sky is the limit for bartenders who believe that off-the-shelf olive brine just doesn’t cut it anymore.`\
+https://nytimes.com/2025/10/21/dining/dirty-martini.html
+
 **Trump Said to Demand Justice Dept. Pay Him $230 Million for Past Cases**\
 `Senior department officials who were defense lawyers for the president and those in his orbit are now in jobs that typically must approve any such payout, underscoring potential ethical conflicts.`\
 https://nytimes.com/2025/10/21/us/politics/trump-justice-department-compensation.html

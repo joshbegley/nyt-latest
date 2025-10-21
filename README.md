@@ -1,3 +1,11 @@
+**Serie B club put under judicial administration after alleged mafia infiltration**\
+`Italian prosecutors and police said at a joint press conference on Tuesday that Juve Stabia "became a tool of the Camorra".`\
+https://nytimes.com/athletic/6736745/2025/10/21/juve-stabia-serie-b-court-control/
+
+**Submit your Ohio State football mailbag questions here**\
+`What's on your mind about the No. 1 Buckeyes during their second idle week?`\
+https://nytimes.com/athletic/6737370/2025/10/21/ohio-state-football-mailbag-questions-10/
+
 **How Much Dirtier Can the Dirty Martini Get?**\
 `The sky is the limit for bartenders who believe that off-the-shelf olive brine just doesn’t cut it anymore.`\
 https://nytimes.com/2025/10/21/dining/dirty-martini.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6736980/2025/10/21/adam-silver-wnba-players-pay-inc
 **Critical fantasy football insights for Week 8: Bo Nix's historic fourth quarter and more**\
 `Brandon Funston and Jess Bryant look at usage metrics to give actionable Week 8 fantasy football advice. `\
 https://nytimes.com/athletic/6733287/2025/10/21/critical-fantasy-football-insights-for-week-8-bo-nixs-historic-fourth-quarter-and-more/
-
-**Pacers' Kam Jones facing reckless driving, resisting police charges**\
-`Jones told the police he was "running late for practice" when state trooper Joseph Malone pulled him over for speeding.`\
-https://nytimes.com/athletic/6734436/2025/10/21/kam-jones-arrested-driving-police-chase-indiana-pacers/
-
-**Majorca**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/majorca
 
