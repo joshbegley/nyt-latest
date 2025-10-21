@@ -1,40 +1,40 @@
-**Wild's Danila Yurov scores first NHL goal in 3-1 win over Rangers: Takeaways**\
-`The Wild revert to a style of play that matches how they are built and defeat the Rangers to end a three-game winless stretch.`\
-https://nytimes.com/athletic/6735368/2025/10/20/wild-danila-yurov-first-goal-rangers/
+**Row Z: Slot blasts United's autonomy, plus 'Forest gonna Forest' and Wolves get prematurely festive**\
+`From Slot’s sour grapes in defeat to Oliver Glasner’s thoughts on, erm, Oliver Glasner, we shine a light on the bonkers side of the game`\
+https://nytimes.com/athletic/6731330/2025/10/21/row-z-slot-liverpool-postecoglou-pereira/
 
-**Biden Completes a Course of Radiation Therapy for Prostate Cancer**\
-`Former President Joseph R. Biden Jr. began radiation therapy last month for an aggressive form of prostate cancer. It is unclear if his treatment has ended.`\
-https://nytimes.com/2025/10/20/us/politics/biden-cancer-treatment-radiation-therapy.html
+**How players prepare for a two-match week: Two 'teams', specialist bedding, compression boots**\
+`Champions League football returns this week. And with just days between fixtures, teams face the dual challenge of recovering and preparing`\
+https://nytimes.com/athletic/6732788/2025/10/21/footballers-prepare-two-matches-week/
 
-**Full Time: Two brutal NWSL injuries loom large**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6735552/2025/10/20/nwsl-injuries-rodman-chawinga-full-time/
+**Bundesliga Briefing: All-time performance from Kane and Leipzig's Poulsen tifo**\
+`Sebastian Stafford-Bloor on the latest round of Bundesliga action, as Bayern go five clear at the top and Eriksen has a full debut to forget`\
+https://nytimes.com/athletic/6732846/2025/10/21/bundesliga-briefing-harry-kane-yussuf-poulsen-tifo-leipzig/
 
-**Building the Blue Jays: 10 steps that got Toronto back to the World Series**\
-`This World Series roster didn't come together overnight. These Blue Jays were built with a series of moves over a decade.  `\
-https://nytimes.com/athletic/6733763/2025/10/20/building-blue-jays-10-steps-world-series/
+**Chelsea's 200th Champions League game: The Athletic's staff share their standout memories**\
+`It is a journey that has taken in two Champions League trophy wins, three different sets of owners, countless managers, and one 'ghost goal'`\
+https://nytimes.com/athletic/6732746/2025/10/21/chelsea-200-champions-league-games-memories/
 
-**Mariners-Blue Jays Game 7 takeaways: George Springer blasts Toronto into the World Series**\
-`The Blue Jays will host the Dodgers in Game 1 of the World Series on Friday.`\
-https://nytimes.com/athletic/6735493/2025/10/20/mariners-blue-jays-game-7-score-result-alcs-playoff-mlb/
+**China Has Another Lever to Pull in Showdown With Trump: Factory Lines**\
+`In Washington, China hawks say its economy is too weak to withstand a tariff shock. In the city of Yiwu, factories are showing why, for now, that may be a miscalculation.`\
+https://nytimes.com/2025/10/21/business/trump-china-tariffs-exports-yiwu.html
 
-**Dodgers, Blue Jays to meet in World Series: Prediction, key players and more**\
-`Can the Dodgers repeat, or will their dominant postseason run end in the World Series against the Blue Jays?`\
-https://nytimes.com/athletic/6728983/2025/10/20/dodgers-blue-jays-world-series-preview/
+**Tariffs Are Reshaping China’s Trade. This Tanzanian Sees an Opportunity.**\
+`An interview with a 26-year-old entrepreneur, who has taken seven trips to China to buy handbags, clothes and jewelry. “China is the center of everything,” she said.`\
+https://nytimes.com/2025/10/21/business/china-tariffs-trump-trade.html
 
-**Buccaneers-Lions takeaways: Jahmyr Gibbs racks up yards, short-handed defense steps up in Detroit's win**\
-`Gibbs paced Detroit's offense, while the Lions' short-handed defense got impressive performances from the reserves.`\
-https://nytimes.com/athletic/6735488/2025/10/20/buccaneers-lions-takeaways-score-result/
+**Fantasy football waiver wire Week 8: Kyle Monangai, Christian Watson, streamers**\
+`Jake Ciely manages to surface some viable fantasy football pickups for a thinned out Week 8 with six teams observing a bye.`\
+https://nytimes.com/athletic/6734933/2025/10/21/fantasy-football-waiver-wire-week-8-kyle-monangai-christian-watson-streamers/
 
-**Full Range**\
-`Spencer Leach lights the way.`\
-https://nytimes.com/2025/10/20/crosswords/daily-puzzle-2025-10-21.html
+**Connections: Sports Edition hints for Oct. 21, 2025, puzzle No. 393**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6732967/2025/10/21/connections-sports-edition-hints-for-oct-21-2025/
 
-**Longtime Angels employee denies knowledge of Eric Kay's drug use**\
-`Tom Taylor, the Angels longtime traveling secretary, took the stand Monday in the civil trial brought by the family of Tyler Skaggs.`\
-https://nytimes.com/athletic/6735461/2025/10/20/tyler-skaggs-trial-angels-employee-eric-kay-drug-use/
+**Corrections: Oct. 21, 2025**\
+`Corrections that appeared in print on Tuesday, Oct. 21, 2025.`\
+https://nytimes.com/2025/10/21/pageoneplus/corrections-oct-21-2025.html
 
-**Some States With Democratic Governors Are Posting Partisan Shutdown Messages on Official Websites**\
-`The messages follow a pattern set by the Trump administration, but use notably milder language.`\
-https://nytimes.com/2025/10/20/us/politics/shutdown-messages-state-websites.html
+**Quote of the Day: Children’s Food Allergies Drop After New Advice, Study Says**\
+`Quotation of the Day for Tuesday, October 21, 2025.`\
+https://nytimes.com/2025/10/20/pageoneplus/quote-of-the-day-childrens-food-allergies-drop-after-new-advice-study-says.html
 
