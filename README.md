@@ -1,3 +1,7 @@
+**France Jails Former President in Case That Prompted Threats to Judges**\
+`Nicolas Sarkozy, the president of France from 2007 to 2012, reported to a prison in Paris weeks after his conviction in a corruption trial.`\
+https://nytimes.com/2025/10/21/world/europe/sarkozy-france-president-jail.html
+
 **Why Nottingham Forest chose Dyche over Mancini and Silva**\
 `The Premier League side have wasted little time in appointing a successor to Ange Postecoglou. This is how they decided on Dyche`\
 https://nytimes.com/athletic/6733356/2025/10/21/nottingham-forest-dyche-mancini-silva/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6733356/2025/10/21/nottingham-forest-dyche-mancini-
 https://nytimes.com/athletic/6735990/2025/10/21/nottingham-forest-sean-dyche-confirmed/
 
 **Vance Travels to Israel to Try to Bolster Gaza Deal**\
-`Vice President JD Vance headed to Israel to ramp up support for the fragile peace deal. Concerns have grown that Prime Minister Benjamin Netanyahu of Israel could dismantle the U.S.-brokered cease-fire deal.`\
+`Vice President JD Vance headed to Israel to ramp up support for the fragile cease-fire deal. Concerns have grown that Prime Minister Benjamin Netanyahu of Israel could dismantle the U.S.-brokered agreement.`\
 https://nytimes.com/video/world/americas/100000010471147/trump-gaza-israel-netanyahu.html
 
 **Met Awards 2026 Facade Commission to Chinese Artist Liu Wei**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/21/nyregion/brooklyn-mdc-contraband-guard-trial.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/10/21/crosswords/spelling-bee-forum.html
-
-**How to watch Colorado vs. Utah: Time, TV, streaming**\
-`Find out how to watch the Colorado Buffaloes play the Utah Utes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6735929/2025/10/21/colorado-vs-utah-stream-how-to-watch-oct-25/
 

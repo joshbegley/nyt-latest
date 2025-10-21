@@ -1,3 +1,11 @@
+**Why Nottingham Forest chose Dyche over Mancini and Silva**\
+`The Premier League side have wasted little time in appointing a successor to Ange Postecoglou. This is how they decided on Dyche`\
+https://nytimes.com/athletic/6733356/2025/10/21/nottingham-forest-dyche-mancini-silva/
+
+**Forest appoint Dyche as new head coach**\
+`The 54-year-old replaces Ange Postecoglou at the City Ground, who was sacked after just eight games on Saturday.`\
+https://nytimes.com/athletic/6735990/2025/10/21/nottingham-forest-sean-dyche-confirmed/
+
 **Vance Travels to Israel to Try to Bolster Gaza Deal**\
 `Vice President JD Vance headed to Israel to ramp up support for the fragile peace deal. Concerns have grown that Prime Minister Benjamin Netanyahu of Israel could dismantle the U.S.-brokered cease-fire deal.`\
 https://nytimes.com/video/world/americas/100000010471147/trump-gaza-israel-netanyahu.html
