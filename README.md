@@ -1,3 +1,11 @@
+**Scoop City: How legit are these five win streaks?**\
+`Winning streaks, remaining schedules and the Patriots' brilliance, plus fantasy prep for Week 8.`\
+https://nytimes.com/athletic/6738235/2025/10/21/how-legit-are-these-win-streaks-plus-patriots-are-back-week-8-fantasy-prep/
+
+**Thunder players receive NBA championship rings on opening night**\
+`The Thunder received their 2024-25 NBA championship rings. Here's what you need to know about the rings, including the special design.`\
+https://nytimes.com/athletic/6737345/2025/10/21/okc-thunder-nba-championship-rings-details/
+
 **Five Major Changes Trump Is Making to the White House**\
 `In less than a year, President Trump has already significantly remade the White House. Here is what to know about five key renovations.`\
 https://nytimes.com/interactive/2025/10/21/us/politics/trump-white-house-renovations.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/21/well/antidepressant-side-effects.html
 **SpaceX, Sued by Popular Game Maker, Settles Trespassing Case**\
 `Cards Against Humanity had accused Elon Musk’s company of squatting on land that it owns near the southern border in Texas.`\
 https://nytimes.com/2025/10/21/us/spacex-cards-against-humanity-lawsuit-settlement.html
-
-**U.S. Attacks More Boats as Tensions With Venezuela Rise: What’s Happened So Far**\
-`The Trump administration is ratcheting up pressure on the Venezuelan president, Nicolás Maduro, while striking vessels that it says are trafficking drugs.`\
-https://nytimes.com/2025/10/21/us/trump-attacks-venezuela-boats.html
-
-**In Trump’s Washington, Hate Is Not a Deal Breaker**\
-`The fact that Paul Ingrassia’s nomination got this far illustrates how much antisemitic and hateful rhetoric has been explained away or rewarded by Republicans in power.`\
-https://nytimes.com/2025/10/21/us/politics/trump-ingrassia-republicans.html
 
