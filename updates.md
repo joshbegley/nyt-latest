@@ -1,3 +1,15 @@
+**G.O.P. Senators Oppose Trump Watchdog Nominee After Report of Racist Texts**\
+`At least four Republican senators, including the Senate majority leader, signaled their opposition to Paul Ingrassia, the president’s pick to lead the Office of Special Counsel.`\
+https://nytimes.com/2025/10/21/us/politics/paul-ingrassia-trump-senate.html
+
+**Deadly Tornado Hits Suburbs of Paris**\
+`A rare tornado near Paris blew through several towns north of the capital of France, toppling cranes and killing one person.`\
+https://nytimes.com/2025/10/21/world/europe/tornado-paris-france.html
+
+**World Series odds: Dodgers favored to repeat against homer-heavy Blue Jays**\
+`The Dodgers are the clear favorite to win the World Series against the Blue Jays.`\
+https://nytimes.com/athletic/6735634/2025/10/21/world-series-odds-dodgers-blue-jays/
+
 **Pacers sign Aaron Nesmith to two-year, $40 million extension**\
 `Indiana rewards Nesmith’s elite two-way play and postseason heroics with security through the 2028-29 season.`\
 https://nytimes.com/athletic/6735640/2025/10/21/pacers-aaron-nesmith-extension/
