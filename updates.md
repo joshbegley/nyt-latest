@@ -1,3 +1,15 @@
+**When It Comes to Being Mayor, Is Age Just a Number?**\
+`Does Zohran Mamdani, 34, reflect a desire for generational change or a discounting of experience?`\
+https://nytimes.com/2025/10/21/nyregion/nyc-mayor-mamdani-cuomo-sliwa.html
+
+**Serie B club put under judicial administration after alleged mafia infiltration**\
+`Italian prosecutors and police said at a joint press conference on Tuesday that Juve Stabia "became a tool of the Camorra".`\
+https://nytimes.com/athletic/6736745/2025/10/21/juve-stabia-serie-b-court-control/
+
+**Submit your Ohio State football mailbag questions here**\
+`What's on your mind about the No. 1 Buckeyes during their second idle week?`\
+https://nytimes.com/athletic/6737370/2025/10/21/ohio-state-football-mailbag-questions-10/
+
 **How Much Dirtier Can the Dirty Martini Get?**\
 `The sky is the limit for bartenders who believe that off-the-shelf olive brine just doesn’t cut it anymore.`\
 https://nytimes.com/2025/10/21/dining/dirty-martini.html
