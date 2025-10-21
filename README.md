@@ -2,7 +2,7 @@
 `A Supreme Court ruling, while technically temporary, could set the ground rules for National Guard deployments elsewhere in the country.`\
 https://nytimes.com/2025/10/20/us/politics/trump-national-guard-chicago.html
 
-**2022 draftees Jalen Duren, Jaden Ivey will be unrestricted free agents**\
+**2022 draftees Jalen Duren, Jaden Ivey will be restricted free agents**\
 `The Pistons didn't extend their two prizes from the 2022 NBA Draft. What does that mean for the next stage of their rebuild?`\
 https://nytimes.com/athletic/6734862/2025/10/20/jalen-duren-jaden-ivey-pistons-rookie-scale-contract-extension/
 
