@@ -1,3 +1,7 @@
+**Nantucket**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/things-to-do-nantucket
+
 **Man Who Wrote ‘So I Raped You’ Is Sentenced to 2 to 4 Years in Prison**\
 `Ian Cleary sent Facebook messages to Shannon Keeler six years after he sexually assaulted her when they were college students in Pennsylvania, prosecutors said.`\
 https://nytimes.com/2025/10/21/us/pennsylvania-student-rape-messages-sentencing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/21/arts/design/proust-manuscripts-france-national-li
 **Angels hire Kurt Suzuki as manager**\
 `Suzuki, a 16-year major league vet, is getting his first managerial job after years as a special assistant with the Angels. `\
 https://nytimes.com/athletic/6737208/2025/10/21/angels-hire-kurt-suzuki-manager/
-
-**For Today’s Paris Visitors, the Era of the Lost Generation Still Resonates**\
-`The presence of Hemingway, Stein, Joyce, Picasso, Dalí, Man Ray and other influencers of the 1920s are still being felt — and appreciated — by tourists and locals.`\
-https://nytimes.com/2025/10/21/arts/design/paris-art-basel-lost-generation-hemingway.html
 
