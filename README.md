@@ -1,3 +1,7 @@
+**Illinois Officials Ask Supreme Court to Keep Block on Trump’s Chicago Troop Deployment**\
+`A Supreme Court ruling, while technically temporary, could set the ground rules for National Guard deployments elsewhere in the country.`\
+https://nytimes.com/2025/10/20/us/politics/trump-national-guard-chicago.html
+
 **2022 draftees Jalen Duren, Jaden Ivey will be unrestricted free agents**\
 `The Pistons didn't extend their two prizes from the 2022 NBA Draft. What does that mean for the next stage of their rebuild?`\
 https://nytimes.com/athletic/6734862/2025/10/20/jalen-duren-jaden-ivey-pistons-rookie-scale-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6735135/2025/10/20/stanford-vs-miami-fl-stream-how-
 **How to watch Baylor vs. Cincinnati: Time, TV, streaming**\
 `Find out how to watch the Baylor Bears play the Cincinnati Bearcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6735129/2025/10/20/baylor-vs-cincinnati-stream-how-to-watch-oct-25/
-
-**10 Hurt, One Critically, After Truck Hits Van Parked Near Penn Station**\
-`The chain-reaction crash, in one of New York City’s most pedestrian-heavy areas, unfolded as afternoon commuters made their way to the busy transit hub.`\
-https://nytimes.com/2025/10/20/nyregion/midtown-crash-truck-van-injured.html
 
