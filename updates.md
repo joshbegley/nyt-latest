@@ -1,3 +1,15 @@
+**Pacers' Kam Jones facing reckless driving, resisting police charges**\
+`Jones told the police he was "running late for practice" when state trooper Joseph Malone pulled him over for speeding.`\
+https://nytimes.com/athletic/6734436/2025/10/21/kam-jones-arrested-driving-police-chase-indiana-pacers/
+
+**Majorca**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/majorca
+
+**NFL best bets Week 8: Panthers, Giants to cover as underdogs vs. Bills, Eagles and more**\
+`Austin Mock's NFL Projection Model is 20-15 this season in its best bets. Will Week 8 keep us in the black?`\
+https://nytimes.com/athletic/6737161/2025/10/21/nfl-best-bets-week-8-panthers-giants/
+
 **Nantucket**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-nantucket

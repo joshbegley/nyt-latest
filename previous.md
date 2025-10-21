@@ -1,3 +1,15 @@
+**Pacers' Kam Jones facing reckless driving, resisting police charges**\
+`Jones told the police he was "running late for practice" when state trooper Joseph Malone pulled him over for speeding.`\
+https://nytimes.com/athletic/6734436/2025/10/21/kam-jones-arrested-driving-police-chase-indiana-pacers/
+
+**Majorca**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/majorca
+
+**NFL best bets Week 8: Panthers, Giants to cover as underdogs vs. Bills, Eagles and more**\
+`Austin Mock's NFL Projection Model is 20-15 this season in its best bets. Will Week 8 keep us in the black?`\
+https://nytimes.com/athletic/6737161/2025/10/21/nfl-best-bets-week-8-panthers-giants/
+
 **Nantucket**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-nantucket
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/21/opinion/campus-speech-costs.html
 **White House Moves Toward Settlement With First Public University**\
 `The Trump administration is closing in on a deal with the University of Virginia, four months after government pressure forced the school’s previous president to resign.`\
 https://nytimes.com/2025/10/21/us/politics/trump-virginia-university.html
-
-**The Art Prodigies of the Nirvana Era Look Back on the ’90s**\
-`Next year, Tate Britain will hold a splashy show on the end of the 20th century. A series of conversations at Art Basel Paris give a window onto the era — and the show ahead.`\
-https://nytimes.com/2025/10/21/arts/design/edward-enninful-nineties-art-basel.html
-
-**Proust Manuscripts, Recently Unveiled, Bring Back Memories in Paris**\
-`A huge cache of documents, which includes drafts of the famed madeleine passage, is for sale. France’s National Library is raising money to buy it.`\
-https://nytimes.com/2025/10/21/arts/design/proust-manuscripts-france-national-library.html
-
-**Angels hire Kurt Suzuki as manager**\
-`Suzuki, a 16-year major league vet, is getting his first managerial job after years as a special assistant with the Angels. `\
-https://nytimes.com/athletic/6737208/2025/10/21/angels-hire-kurt-suzuki-manager/
 

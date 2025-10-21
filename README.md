@@ -1,3 +1,11 @@
+**Silver says WNBA players are 'going to get a big increase' in pay**\
+`Speaking on NBC's "Today," Silver commented on the ongoing WNBA CBA negotiations.  `\
+https://nytimes.com/athletic/6736980/2025/10/21/adam-silver-wnba-players-pay-increase/
+
+**Critical fantasy football insights for Week 8: Bo Nix's historic fourth quarter and more**\
+`Brandon Funston and Jess Bryant look at usage metrics to give actionable Week 8 fantasy football advice. `\
+https://nytimes.com/athletic/6733287/2025/10/21/critical-fantasy-football-insights-for-week-8-bo-nixs-historic-fourth-quarter-and-more/
+
 **Pacers' Kam Jones facing reckless driving, resisting police charges**\
 `Jones told the police he was "running late for practice" when state trooper Joseph Malone pulled him over for speeding.`\
 https://nytimes.com/athletic/6734436/2025/10/21/kam-jones-arrested-driving-police-chase-indiana-pacers/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/21/arts/design/art-basel-paris-lee-shinja-textiles.h
 **In Paris, a Kandinsky Exhibition That Lets You Hear the Paintings**\
 `A new exhibition in Paris helps visitors step into the modernist master’s sonically inspired world.`\
 https://nytimes.com/2025/10/21/arts/design/wassily-kandinsky-music-exhibition.html
-
-**The Costs of Protecting Campus Speech**\
-`Readers respond to a guest essay by Danielle Sassoon about her experience at N.Y.U. Also: A crackdown on science; a plea to the former presidents.`\
-https://nytimes.com/2025/10/21/opinion/campus-speech-costs.html
-
-**White House Moves Toward Settlement With First Public University**\
-`The Trump administration is closing in on a deal with the University of Virginia, four months after government pressure forced the school’s previous president to resign.`\
-https://nytimes.com/2025/10/21/us/politics/trump-virginia-university.html
 
