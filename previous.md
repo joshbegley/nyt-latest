@@ -1,3 +1,15 @@
+**How to watch Oilers vs. Senators: Time, TV, streaming**\
+`Find out how to watch the Edmonton Oilers play the Ottawa Senators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6736892/2025/10/21/oilers-vs-senators-stream-how-to-watch-oct-21/
+
+**Tracking Tropical Storm Melissa**\
+`See the likely path and wind arrival times for Melissa`\
+https://nytimes.com/interactive/2025/weather/melissa-map-path-tracker.html
+
+**Plane Lands After Pilots Fear Someone Is Trying to Enter Cockpit**\
+`A problem with an intercom led to uncertainty. No one was hurt.`\
+https://nytimes.com/2025/10/21/us/plane-lands-cockpit.html
+
 **North Carolina State Senate Approves New Congressional Map in Effort to Add a Seat**\
 `The Trump administration has pushed Republican leaders to redraw House district maps before the midterm elections next year.`\
 https://nytimes.com/2025/10/21/us/north-carolina-state-senate-approves-new-congressional-map-in-effort-to-add-a-seat.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6736306/2025/10/21/uefa-champions-league-piracy-ace
 **Inside Luigi Mangione’s Missing Months**\
 `From beers at a Bangkok bar to a climb up Mount Omine in Japan, The Times traced the pivotal months before Mr. Mangione was charged with killing UnitedHealthcare’s C.E.O.`\
 https://nytimes.com/2025/10/21/us/luigi-mangione-asia-trip.html
-
-**How Trump Played ‘Budgetary Twister’ to Pay Some Workers During the Shutdown**\
-`By paying troops and law enforcement officials, the president stretched the limits of his spending powers, posing a fresh test to Congress.`\
-https://nytimes.com/2025/10/21/us/politics/trump-shutdown-pay.html
-
-**Kids Love This Cheesy Gnocchi With Corn and Pesto**\
-`Plus crispy oregano chicken, broccoli rice, sesame-salmon bowls and more recipes that everyone will love.`\
-https://nytimes.com/2025/10/21/dining/kids-love-this-cheesy-gnocchi-with-corn-and-pesto.html
-
-**Aspiration co-founder Joe Sanberg pleads guilty to federal wire fraud charges**\
-`The California-based carbon offsetting company co-founder Joe Sanberg is at the center of an NBA cap circumvention investigation.`\
-https://nytimes.com/athletic/6736694/2025/10/21/aspiration-joe-sanberg-guilty-plea/
 
