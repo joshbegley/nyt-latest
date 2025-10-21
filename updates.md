@@ -1,3 +1,15 @@
+**Building the Blue Jays: 10 steps that got Toronto back to the World Series**\
+`This World Series roster didn't come together overnight. These Blue Jays were built with a series of moves over a decade.  `\
+https://nytimes.com/athletic/6733763/2025/10/20/building-blue-jays-10-steps-world-series/
+
+**Mariners-Blue Jays Game 7 takeaways: George Springer blasts Toronto into the World Series**\
+`The Blue Jays will host the Dodgers in Game 1 of the World Series on Friday.`\
+https://nytimes.com/athletic/6735493/2025/10/20/mariners-blue-jays-game-7-score-result-alcs-playoff-mlb/
+
+**Dodgers, Blue Jays to meet in World Series: Prediction, key players and more**\
+`Can the Dodgers repeat, or will their dominant postseason run end in the World Series against the Blue Jays?`\
+https://nytimes.com/athletic/6728983/2025/10/20/dodgers-blue-jays-world-series-preview/
+
 **Buccaneers-Lions takeaways: Jahmyr Gibbs racks up yards, short-handed defense steps up in Detroit's win**\
 `Gibbs paced Detroit's offense, while the Lions' short-handed defense got impressive performances from the reserves.`\
 https://nytimes.com/athletic/6735488/2025/10/20/buccaneers-lions-takeaways-score-result/
