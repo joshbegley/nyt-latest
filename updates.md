@@ -1,3 +1,11 @@
+**Giants waive kicker Jude McAtamney after missed extra points in loss to Broncos**\
+`Now, the question is if the Giants will turn to Younghoe Koo or if Graham Gano will be ready to kick this week.`\
+https://nytimes.com/athletic/6738282/2025/10/21/jude-mcatamney-giants-kicker-waived-nfl/
+
+**What’s Left to Be Done in the Gaza Cease-Fire Deal**\
+`Israel and Gaza have signed a cease-fire that mediators hope will bring two years of deadly war to an end.`\
+https://nytimes.com/video/world/middleeast/100000010457972/whats-left-to-be-done-in-the-gaza-cease-fire-deal.html
+
 **Scoop City: How legit are these five win streaks?**\
 `Winning streaks, remaining schedules and the Patriots' brilliance, plus fantasy prep for Week 8.`\
 https://nytimes.com/athletic/6738235/2025/10/21/how-legit-are-these-win-streaks-plus-patriots-are-back-week-8-fantasy-prep/
