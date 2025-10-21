@@ -1,3 +1,7 @@
+**New York to Albany by Train for $40 Flat? It’s Happening Next Year.**\
+`For the first time, Metro-North will run trains past Poughkeepsie through the Hudson Valley to Albany. Some Amtrak service will also be restored.`\
+https://nytimes.com/2025/10/20/nyregion/metro-north-trains-albany-hochul.html
+
 **A Flat $40 Train Ticket From NYC to Albany? It’s Happening Next Year.**\
 `For the first time, Metro-North will run trains past Poughkeepsie through the Hudson Valley to Albany. Some Amtrak service will also be restored.`\
 https://nytimes.com/2025/10/20/nyregion/metro-north-trains-albany-hochul.html
