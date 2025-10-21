@@ -1,3 +1,7 @@
+**Robbins: The Wizards can't deviate from their plan, no matter how ugly it gets**\
+`Washington's basketball rebuild has no end in sight. Right now, that's the way it has to be. `\
+https://nytimes.com/athletic/6735730/2025/10/21/washington-wizards-season-preview-2025-26/
+
 **Marta Kostyuk cites 'levels of testosterone' when asked if intimidated by Aryna Sabalenka, Iga Świątek**\
 `The Ukrainian has a 0-7 record against the top two players in the world.`\
 https://nytimes.com/athletic/6736128/2025/10/21/marta-kostyuk-sabalenka-swiatek-tennis-advantage/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6735014/2025/10/21/phillies-bullpen-2026-early-look
 **'Life has simplified': How fatherhood changed Jordan Binnington**\
 `Binnington talks about life as a father, balancing a busy work schedule and looking ahead to the Games.`\
 https://nytimes.com/athletic/6720321/2025/10/21/blues-jordan-binnington-fatherhood-olympics/
-
-**True to form, Dan Campbell's Detroit Lions 'did not blink' in face of adversity**\
-`Despite all the turnover on their coaching staff, and injuries to their defense, the Lions continue to prove they're among the NFL's elite.`\
-https://nytimes.com/athletic/6735737/2025/10/21/detroit-lions-dan-campbell-week-7-mnf/
 

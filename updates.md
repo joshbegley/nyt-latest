@@ -1,3 +1,15 @@
+**Marta Kostyuk cites 'levels of testosterone' when asked if intimidated by Aryna Sabalenka, Iga Świątek**\
+`The Ukrainian has a 0-7 record against the top two players in the world.`\
+https://nytimes.com/athletic/6736128/2025/10/21/marta-kostyuk-sabalenka-swiatek-tennis-advantage/
+
+**Ukrainian Daycare Struggles to Provide Heat, Light and Food**\
+`Every fall since the start of its full-scale invasion of Ukraine, Russia has intensified strikes on Ukraine’s power plants and electrical infrastructure, continuing a yearslong effort to collapse its energy grid. As winter approaches, one daycare is finding it hard to cope.`\
+https://nytimes.com/video/world/europe/100000010464428/ukraine-power-cuts-daycare.html
+
+**What to know about the NBA's return to NBC: Rockets-Thunder, Warriors-Lakers on Tuesday**\
+`NBC is carrying NBA games for the first time since 2002. Here's how to watch the season-opening doubleheader on Tuesday.`\
+https://nytimes.com/athletic/6734450/2025/10/21/nba-nbc-rockets-thunder-warriors-lakers-how-to-watch/
+
 **Is Ohio State heading for a repeat? Why the Buckeyes will (and won't) win another title**\
 `Ohio State has looked like college football's best team through seven games. What's going right? And what could still hold it back?`\
 https://nytimes.com/athletic/6734909/2025/10/21/ohio-state-national-championship-playoff-chances/
