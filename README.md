@@ -1,3 +1,7 @@
+**Met Awards 2026 Facade Commission to Chinese Artist Liu Wei**\
+`It’s the first time in nearly 20 years that the museum has asked an artist from mainland China to create artwork for its building.`\
+https://nytimes.com/2025/10/21/arts/design/met-awards-2026-facade-commission-to-chinese-artist-liu-wei.html
+
 **Late Night Revisits Ye Olde ‘No Kings’ Protests**\
 `Jon Stewart consulted the Declaration of Independence’s king-inspired stipulations on “The Daily Show.”`\
 https://nytimes.com/2025/10/21/arts/television/late-night-no-kings-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010471108/tornado-paris-france.html
 **Word of the Day: titular**\
 `This word has appeared in 185 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/10/21/learning/word-of-the-day-titular.html
-
-**Vance Heads to Israel as U.S. Tries to Shore Up Gaza Truce**\
-`With the cease-fire deal under strain, Vice President JD Vance is set to meet with Prime Minister Benjamin Netanyahu and other leaders.`\
-https://nytimes.com/2025/10/21/world/middleeast/jd-vance-israel-gaza-ceasefire.html
 
