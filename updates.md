@@ -1,3 +1,11 @@
+**Scoop City: How legit are these five win streaks?**\
+`Winning streaks, remaining schedules and the Patriots' brilliance, plus fantasy prep for Week 8.`\
+https://nytimes.com/athletic/6738235/2025/10/21/how-legit-are-these-win-streaks-plus-patriots-are-back-week-8-fantasy-prep/
+
+**Thunder players receive NBA championship rings on opening night**\
+`The Thunder received their 2024-25 NBA championship rings. Here's what you need to know about the rings, including the special design.`\
+https://nytimes.com/athletic/6737345/2025/10/21/okc-thunder-nba-championship-rings-details/
+
 **Five Major Changes Trump Is Making to the White House**\
 `In less than a year, President Trump has already significantly remade the White House. Here is what to know about five key renovations.`\
 https://nytimes.com/interactive/2025/10/21/us/politics/trump-white-house-renovations.html
