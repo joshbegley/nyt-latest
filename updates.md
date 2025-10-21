@@ -1,3 +1,15 @@
+**North Carolina State Senate Approves New Congressional Map in Effort to Add a Seat**\
+`The Trump administration has pushed Republican leaders to redraw House district maps before the midterm elections next year.`\
+https://nytimes.com/2025/10/21/us/north-carolina-state-senate-approves-new-congressional-map-in-effort-to-add-a-seat.html
+
+**Until Saturday: Why has Florida been so mid?**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6736839/2025/10/21/florida-coaching-search-until-saturday/
+
+**Read pages from Luigi Mangione’s Journal**\
+`A journal detailing plans to assassinate a health insurance company executive was found in Luigi Mangione’s possession after he was arrested in the shooting death of UnitedHealthcare C.E.O. Brian Thompson in December 2024.`\
+https://nytimes.com/interactive/2025/10/21/us/luigi-mangione-diary.html
+
 **'Gaffer's Day', V defending, and no egos: What Forest can expect from Dyche**\
 `Assessing how the new Forest head coach will tackle his job in five key areas`\
 https://nytimes.com/athletic/6732905/2025/10/21/what-nottingham-forest-can-expect-from-sean-dyche-gaffers-day-v-defending-and-no-egos/
