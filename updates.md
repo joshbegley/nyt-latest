@@ -1,3 +1,15 @@
+**Angels hire Kurt Suzuki as manager**\
+`Suzuki, a 16-year major league vet, is getting his first managerial job after years as a special assistant with the Angels. `\
+https://nytimes.com/athletic/6737208/2025/10/21/angels-hire-kurt-suzuki-manager/
+
+**For Today’s Paris Visitors, the Era of the Lost Generation Still Resonates**\
+`The presence of Hemingway, Stein, Joyce, Picasso, Dalí, Man Ray and other influencers of the 1920s are still being felt — and appreciated — by tourists and locals.`\
+https://nytimes.com/2025/10/21/arts/design/paris-art-basel-lost-generation-hemingway.html
+
+**Michael Jordan autographed rookie card sells for record $2.7 million**\
+`This record comes just a few months after the previous mark was set. `\
+https://nytimes.com/athletic/6737143/2025/10/21/michael-jordan-autographed-rookie-card-record/
+
 **Trucks, Gowns, Imperial Portraits: Eight Shows to See in Paris**\
 `An array of paintings, as well as textiles, films and handblown glass, will be on display across the French capital this month, while Art Basel Paris is on.`\
 https://nytimes.com/2025/10/21/arts/design/eight-shows-to-see-in-paris.html

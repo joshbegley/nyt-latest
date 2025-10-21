@@ -1,3 +1,11 @@
+**Angels hire Kurt Suzuki as manager**\
+`Suzuki, a 16-year major league vet, is getting his first managerial job after years as a special assistant with the Angels. `\
+https://nytimes.com/athletic/6737208/2025/10/21/angels-hire-kurt-suzuki-manager/
+
+**For Today’s Paris Visitors, the Era of the Lost Generation Still Resonates**\
+`The presence of Hemingway, Stein, Joyce, Picasso, Dalí, Man Ray and other influencers of the 1920s are still being felt — and appreciated — by tourists and locals.`\
+https://nytimes.com/2025/10/21/arts/design/paris-art-basel-lost-generation-hemingway.html
+
 **Trucks, Gowns, Imperial Portraits: Eight Shows to See in Paris**\
 `An array of paintings, as well as textiles, films and handblown glass, will be on display across the French capital this month, while Art Basel Paris is on.`\
 https://nytimes.com/2025/10/21/arts/design/eight-shows-to-see-in-paris.html
@@ -6,8 +14,8 @@ https://nytimes.com/2025/10/21/arts/design/eight-shows-to-see-in-paris.html
 `In Paris, the Cartier and Vuitton foundations and the Pinault Collection are all presenting major exhibitions running at the same time as Art Basel.`\
 https://nytimes.com/2025/10/21/arts/design/paris-foundations-museum-shows.html
 
-**Michael Jordan autographed rookie card sells for new record $2.7 million**\
-`This new record comes just a few months after the previous mark was set. `\
+**Michael Jordan autographed rookie card sells for record $2.7 million**\
+`This record comes just a few months after the previous mark was set. `\
 https://nytimes.com/athletic/6737143/2025/10/21/michael-jordan-autographed-rookie-card-record/
 
 **Harry Gray signs first professional Leeds contract**\
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6737141/2025/10/21/rockets-vs-thunder-stream-how-to
 **An American Painter Who Honors His Heritage Shows in Paris**\
 `Works by Patrick Eugène, whose family is from Haiti, will be on display at the Mariane Ibrahim Gallery during Art Basel Paris.`\
 https://nytimes.com/2025/10/21/arts/design/american-painter-patrick-eugene-haiti.html
-
-**Two Artists, One Living and One Dead, Meet in a Paris Museum**\
-`Over a decade ago, Nate Lowman stumbled upon the museum honoring the Romantic painter Eugène Delacroix. Now, he is showing his own work there.`\
-https://nytimes.com/2025/10/21/arts/design/nate-lowman-eugene-delacroix.html
-
-**Paris Celebrates Art, but Without Its Global Hub in the City’s Center**\
-`The Pompidou Center will remain closed until 2030, and professionals said there was no substitute. But its art will still be shown, and there are other cultural opportunities.`\
-https://nytimes.com/2025/10/21/arts/design/art-basel-paris-pompidou-shut.html
 
