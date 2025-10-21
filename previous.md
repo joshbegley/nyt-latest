@@ -1,3 +1,7 @@
+**Prăjitură Turnată Cu Mere (Jammy Apple Bars)**\
+`Jammy, cinnamon-spiced apples, sandwiched between tender vanilla cake layers then dusted with sugar, create a unique Romanian apple dessert whose name translates to “poured apple pastry,” a reference to the batter used for the cake layers.`\
+https://nytimes.com/video/dining/100000010464835/prajitura-turnata-cu-mere-jammy-apple-bars.html
+
 **Who Is the Oldest College Football Player of All Time?**\
 `Who is the oldest college football player ever? Most college athletes are between eighteen and twenty-two, but there are some exceptions.`\
 https://nytimes.com/video/the-athletic/100000010459544/who-is-the-oldest-college-football-player-of-all-time.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6734332/2025/10/21/chiefs-rashee-rice-fade-route-to
 **Yes, there are reasons to be optimistic about the Cowboys’ defense**\
 `More than one game against a beat-up Washington offense is needed to say Dallas' D has turned the corner. But there are positive signs.`\
 https://nytimes.com/athletic/6735556/2025/10/21/cowboys-defense-blitzing-man-coverage-analysis/
-
-**Makeshift Lions secondary met the moment in a big way vs. Bucs: 'We heard all the noise'**\
-`With both starting cornerbacks and both starting safeties out, the Lions gave Baker Mayfield and the Bucs' offense fits Monday night.`\
-https://nytimes.com/athletic/6735834/2025/10/21/lions-secondary-backups-defense-mnf/
 
