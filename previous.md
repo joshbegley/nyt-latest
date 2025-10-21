@@ -1,3 +1,7 @@
+**Mexico won't surely slow Max's momentum. Plus, How COTA is growing**\
+`Max Verstappen's three wins in four races has enlivened the 2025 F1 title fight. And he has key attributes to succeed this weekend in Mexico`\
+https://nytimes.com/athletic/6737043/2025/10/21/max-verstappen-mexican-gp-2025/
+
 **How to watch Rockets vs. Thunder: Time, TV, streaming**\
 `Find out how to watch the Houston Rockets play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6737141/2025/10/21/rockets-vs-thunder-stream-how-to-watch-oct-21/
@@ -29,8 +33,4 @@ https://nytimes.com/spotlight/t-recipes
 **PWHL Seattle, Vancouver unveil inaugural jerseys without logos or team names**\
 `There will be no logos or team names on the jerseys in 2025-26, but Seattle and Vancouver will reveal names and logos ahead of the season.`\
 https://nytimes.com/athletic/6736995/2025/10/21/pwhl-jerseys-seattle-vancouver-expansion/
-
-**The Rural Power Behind Trump’s Assault on Blue Cities**\
-`The political scientist Suzanne Mettler examines the roots of America’s urban-rural divide and how Democrats can win back rural voters.`\
-https://nytimes.com/video/opinion/100000010465636/the-rural-power-behind-trumps-assault-on-blue-cities.html
 

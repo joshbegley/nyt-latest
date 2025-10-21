@@ -1,3 +1,7 @@
+**Mexico won't surely slow Max's momentum. Plus, How COTA is growing**\
+`Max Verstappen's three wins in four races has enlivened the 2025 F1 title fight. And he has key attributes to succeed this weekend in Mexico`\
+https://nytimes.com/athletic/6737043/2025/10/21/max-verstappen-mexican-gp-2025/
+
 **How to watch Rockets vs. Thunder: Time, TV, streaming**\
 `Find out how to watch the Houston Rockets play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6737141/2025/10/21/rockets-vs-thunder-stream-how-to-watch-oct-21/

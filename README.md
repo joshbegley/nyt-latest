@@ -1,3 +1,7 @@
+**Harry Gray signs first professional Leeds contract**\
+`The highly-rated striker turned 17 earlier this month and has signed what the club is calling a "long-term deal".`\
+https://nytimes.com/athletic/6737163/2025/10/21/harry-gray-leeds-united-contract/
+
 **Mexico won't surely slow Max's momentum. Plus, How COTA is growing**\
 `Max Verstappen's three wins in four races has enlivened the 2025 F1 title fight. And he has key attributes to succeed this weekend in Mexico`\
 https://nytimes.com/athletic/6737043/2025/10/21/max-verstappen-mexican-gp-2025/
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/2025/10/21/business/media/paramount-warner-bros-
 **T Recipes**\
 ``\
 https://nytimes.com/spotlight/t-recipes
-
-**PWHL Seattle, Vancouver unveil inaugural jerseys without logos or team names**\
-`There will be no logos or team names on the jerseys in 2025-26, but Seattle and Vancouver will reveal names and logos ahead of the season.`\
-https://nytimes.com/athletic/6736995/2025/10/21/pwhl-jerseys-seattle-vancouver-expansion/
 
