@@ -1,3 +1,15 @@
+**U.S. Attacks More Boats as Tensions With Venezuela Rise: What’s Happened So Far**\
+`The Trump administration is ratcheting up pressure on the Venezuelan president, Nicolás Maduro, while striking vessels that it says are trafficking drugs.`\
+https://nytimes.com/2025/10/21/us/trump-attacks-venezuela-boats.html
+
+**In Trump’s Washington, Hate Is Not a Deal Breaker**\
+`The fact that Paul Ingrassia’s nomination got this far illustrates how much antisemitic and hateful rhetoric has been explained away or rewarded by Republicans in power.`\
+https://nytimes.com/2025/10/21/us/politics/trump-ingrassia-republicans.html
+
+**How the Democratic Party Lost Rural Voters**\
+`The political scientist Suzanne Mettler discusses the social, economic and political factors that drove rural voters away from the Democratic Party.`\
+https://nytimes.com/video/opinion/100000010465664/how-the-democratic-party-lost-rural-voters.html
+
 **8 best NBA futures bets to make this season**\
 `If you are looking to get some NBA futures bets down, our basketball writers have you covered. `\
 https://nytimes.com/athletic/6737898/2025/10/21/nba-best-bets-futures-thunder-nuggets-jokic/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/21/arts/design/terry-farrell-dead.html
 **Habba Told to Release More Video in Assault Case Against Congresswoman**\
 `A federal judge overseeing a case against Representative LaMonica McIver, a New Jersey Democrat, ordered prosecutors to release all relevant footage from a migrant detention facility.`\
 https://nytimes.com/2025/10/21/nyregion/lamonica-mciver-ice-charges.html
-
-**What Hurricane Models Can (and Can’t) Tell Us About Melissa So Far**\
-`Forecasters said there was “significant uncertainty” about where the tropical storm will go and how intense it could become. Spaghetti models are one of several tools forecasters use.`\
-https://nytimes.com/2025/10/21/weather/melissa-spaghetti-models-forecast.html
-
-**Knicks to be without Mitchell Robinson, Josh Hart vs. Cavaliers in opener**\
-`The most anticipated season in recent Knicks history is getting off on the wrong foot.`\
-https://nytimes.com/athletic/6738072/2025/10/21/mitchell-robinson-josh-hart-knicks-cavaliers-nba-season-opener/
-
-**Russell Wilson calls Sean Payton 'classless' after Broncos coach takes dig at his former QB**\
-`The two have clashed publicly on several occasions.`\
-https://nytimes.com/athletic/6738001/2025/10/21/russell-wilson-sean-payton-response-broncos-coach/
 
