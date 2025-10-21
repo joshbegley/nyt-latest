@@ -1,3 +1,7 @@
+**Deion Sanders hopes Shohei Ohtani's success 'opens door' for more two-way stars in MLB**\
+`Sanders played 641 MLB games and 157 NFL games.`\
+https://nytimes.com/athletic/6737364/2025/10/21/deion-sanders-shohei-ohtani-two-way-players/
+
 **Bear Breaks Into California Zoo to Mingle With Other Bears**\
 `Officials at Sequoia Park Zoo have no idea how the young bear got into the zoo and went “nose-to-nose” with the three bears there.`\
 https://nytimes.com/2025/10/21/us/bear-zoo-california.html

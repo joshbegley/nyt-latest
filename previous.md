@@ -1,3 +1,7 @@
+**Deion Sanders hopes Shohei Ohtani's success 'opens door' for more two-way stars in MLB**\
+`Sanders played 641 MLB games and 157 NFL games.`\
+https://nytimes.com/athletic/6737364/2025/10/21/deion-sanders-shohei-ohtani-two-way-players/
+
 **Bear Breaks Into California Zoo to Mingle With Other Bears**\
 `Officials at Sequoia Park Zoo have no idea how the young bear got into the zoo and went “nose-to-nose” with the three bears there.`\
 https://nytimes.com/2025/10/21/us/bear-zoo-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6737565/2025/10/21/panthers-vs-bruins-stream-how-to
 **How to watch Blue Jackets vs. Stars: Time, TV, streaming**\
 `Find out how to watch the Columbus Blue Jackets play the Dallas Stars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6737562/2025/10/21/blue-jackets-vs-stars-stream-how-to-watch-oct-21/
-
-**G.M. to Stop Making Electric Vans in Canada, in Another Hit to a Key Industry**\
-`The announcement, which will eliminate about 1,200 jobs, came less than a week after the carmaker Stellantis said it would move production of a new vehicle to Illinois from a Toronto suburb.`\
-https://nytimes.com/2025/10/21/world/canada/general-motors-electric-vans.html
 
