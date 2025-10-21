@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6734416/2025/10/21/central-division-winnipeg-jets/
 https://nytimes.com/athletic/6731872/2025/10/21/canucks-garland-hughes-pettersson-schedule-streak/
 
 **Cuomo to Propose That New York City Take Partial Control of Subway**\
-`Andrew Cuomo, whose stewardship of the M.T.A. as governor was heavily criticized, will suggest that the authority hand over responsibility for capital construction and maintenance to the city.`\
+`Andrew Cuomo, whose stewardship of the M.T.A. as governor was contentious, will suggest that the authority hand over responsibility for capital construction and maintenance to the city.`\
 https://nytimes.com/2025/10/21/nyregion/cuomo-nyc-subway.html
 
 **Comfy Knitwear and Loafers With Coins**\
