@@ -1,3 +1,15 @@
+**Trucks, Gowns, Imperial Portraits: Eight Shows to See in Paris**\
+`An array of paintings, as well as textiles, films and handblown glass, will be on display across the French capital this month, while Art Basel Paris is on.`\
+https://nytimes.com/2025/10/21/arts/design/eight-shows-to-see-in-paris.html
+
+**Where Private Fortunes Treat the Public to Sumptuous Art**\
+`In Paris, the Cartier and Vuitton foundations and the Pinault Collection are all presenting major exhibitions running at the same time as Art Basel.`\
+https://nytimes.com/2025/10/21/arts/design/paris-foundations-museum-shows.html
+
+**Michael Jordan autographed rookie card sells for new record $2.7 million**\
+`This new record comes just a few months after the previous mark was set. `\
+https://nytimes.com/athletic/6737143/2025/10/21/michael-jordan-autographed-rookie-card-record/
+
 **Harry Gray signs first professional Leeds contract**\
 `The highly-rated striker turned 17 earlier this month and has signed what the club is calling a "long-term deal".`\
 https://nytimes.com/athletic/6737163/2025/10/21/harry-gray-leeds-united-contract/
