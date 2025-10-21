@@ -1,3 +1,11 @@
+**8 best NBA futures bets to make this season**\
+`If you are looking to get some NBA futures bets down, our basketball writers have you covered. `\
+https://nytimes.com/athletic/6737898/2025/10/21/nba-best-bets-futures-thunder-nuggets-jokic/
+
+**World Series predictions: Our experts pick whether the Dodgers or Blue Jays will be champs**\
+`Who will win the World Series? Our experts make their picks.`\
+https://nytimes.com/athletic/6737397/2025/10/21/mlb-world-series-expert-predictions-dodgers-blue-jays/
+
 **Rewriting What’s Possible in the Mountains**\
 `Kilian Jornet wanted to summit 72 of the tallest peaks in the contiguous United States. He gave himself a month to do it.`\
 https://nytimes.com/interactive/2025/10/21/style/kilian-jornet-72-mountain-peaks.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6738072/2025/10/21/mitchell-robinson-josh-hart-knic
 **Russell Wilson calls Sean Payton 'classless' after Broncos coach takes dig at his former QB**\
 `The two have clashed publicly on several occasions.`\
 https://nytimes.com/athletic/6738001/2025/10/21/russell-wilson-sean-payton-response-broncos-coach/
-
-**Trump Is Demanding Millions From His Own Administration**\
-`Also, Japan elected its first female prime minister. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/10/21/briefing/trump-justice-department-japan-prime-minister.html
-
-**China, Xi and the S-word**\
-`The Chinese president has been in office for more than a decade, but Xi Jinping’s succession is a touchy subject.`\
-https://nytimes.com/2025/10/21/world/china-xi-succession-japan-prime-minister.html
 
