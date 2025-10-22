@@ -1,3 +1,11 @@
+**Why the Broncos' trade deadline selling streak could end this season**\
+`If the Broncos seek to add a player ahead of the Nov. 4 deadline, an interior offensive lineman could make the most sense.`\
+https://nytimes.com/athletic/6740066/2025/10/22/broncos-trade-deadlne-sean-payton-george-paton/
+
+**Oil Prices Dropped 19%, Helping Drivers, but Squeezing the Industry**\
+`Oil prices have fallen sharply this year as global supply remains strong and demand has been slow to grow.`\
+https://nytimes.com/2025/10/22/business/energy-environment/oil-gasoline-prices-change.html
+
 **How to watch Cavaliers vs. Knicks: Time, TV, streaming**\
 `Find out how to watch the Cleveland Cavaliers play the New York Knicks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6740165/2025/10/22/cavaliers-vs-knicks-stream-how-to-watch-oct-22/

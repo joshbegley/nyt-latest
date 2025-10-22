@@ -1,3 +1,11 @@
+**Why the Broncos' trade deadline selling streak could end this season**\
+`If the Broncos seek to add a player ahead of the Nov. 4 deadline, an interior offensive lineman could make the most sense.`\
+https://nytimes.com/athletic/6740066/2025/10/22/broncos-trade-deadlne-sean-payton-george-paton/
+
+**Oil Prices Dropped 19%, Helping Drivers, but Squeezing the Industry**\
+`Oil prices have fallen sharply this year as global supply remains strong and demand has been slow to grow.`\
+https://nytimes.com/2025/10/22/business/energy-environment/oil-gasoline-prices-change.html
+
 **How to watch Cavaliers vs. Knicks: Time, TV, streaming**\
 `Find out how to watch the Cleveland Cavaliers play the New York Knicks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6740165/2025/10/22/cavaliers-vs-knicks-stream-how-to-watch-oct-22/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6736876/2025/10/22/edmonton-oilers-rookie-matt-savo
 **Google’s Quantum Computer Makes a Big Technical Leap**\
 `Designed to accelerate advances in medicine and other fields, the tech giant’s quantum algorithm runs 13,000 times as fast as software written for a traditional supercomputer.`\
 https://nytimes.com/2025/10/22/technology/googles-quantum-computer-leap.html
-
-**How Debora Cahn Negotiates ‘The Diplomat’**\
-`Cahn, the creator of the Netflix political drama starring Keri Russell, discusses Season 3 and how many more twists the show can reasonably pull off.`\
-https://nytimes.com/2025/10/22/arts/television/debora-cahn-the-diplomat.html
-
-****\
-`Video by Michelle Groskopf`\
-https://nytimes.com/video/style/100000010474092/23LESLIE-JONES-VERT.html
 
