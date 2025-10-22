@@ -1,3 +1,19 @@
+**Steve Aoki Shows The Athletic His Sports Card Collection**\
+`The D.J. Steve Aoki reveals his most expensive sports cards. Including Tom Brady, Michael Jordan, Shohei Ohtani and Lionel Messi, his collection is one of a kind.`\
+https://nytimes.com/video/the-athletic/100000010462310/steve-aoki-shows-the-athletic-his-sports-card-collection.html
+
+**Kristaps Porziņģis’ illness explained: Why NBA star lost energy in playoffs**\
+`A mystery illness turned the big man into a completely different player in the postseason. Here's what happened.`\
+https://nytimes.com/athletic/6738610/2025/10/22/kristaps-porzingis-illness-explained-nba/
+
+**Will the Cubs use the offseason to address second-half hitting slump?**\
+`Both the 2023 and 2024 Cubs were better offensively in the second half than in the first. The opposite was true in this past season.`\
+https://nytimes.com/athletic/6737481/2025/10/22/will-the-cubs-use-the-offseason-to-address-second-half-hitting-slump/
+
+**Why is Jonathan Quick such a beloved dressing room presence? Let his teammates explain**\
+`Quick's exploits on the ice are well-known, with Stanley Cup wins and individual accolades, but his teammates value far more than that.`\
+https://nytimes.com/athletic/6737678/2025/10/22/jonathan-quick-nhl-teammate-goalie/
+
 **TAFC: Ominous Arsenal, PSG lead Euro goalfest. Plus, Liga game in Miami cancelled**\
 `Today in TAFC: Arsenal looking good in attack and defence. Plus: Liga match in Miami is cancelled due to 'insufficient time' to prepare`\
 https://nytimes.com/athletic/6739271/2025/10/22/arsenal-atletico-defence-psg-rout/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6737262/2025/10/22/inside-the-nba-espn-tnt-charles-
 **Myles Turner has a new home, and the Bucks have found another roster leader**\
 `Turner has embraced Milwaukee and the new experiences that have come with the city's warm welcome.`\
 https://nytimes.com/athletic/6728908/2025/10/22/myles-turner-bucks-leader-giannis-nba-pacers/
-
-**Caleb Williams on the run: Bears QB isn't having his usual success outside the pocket**\
-`The Bears are winning while Williams is struggling. What were the issues against the Saints and what can improve before visiting Baltimore?`\
-https://nytimes.com/athletic/6737927/2025/10/22/bears-caleb-williams-outside-pocket/
-
-**Why the Vikings need more from Dallas Turner — sooner rather than later**\
-`The Vikings need a pass-rush jolt, and they're hoping to get it from Turner, a 2024 first-round pick they traded up to get.`\
-https://nytimes.com/athletic/6738112/2025/10/22/dallas-turner-vikings-first-round-pick/
-
-**With Kristaps Porzingis' mystery illness solved, Hawks are primed for NBA hunt**\
-`"We are an aspiring team, a young team that aspires to win a championship one day," says Kristaps Porziņģis.`\
-https://nytimes.com/athletic/6737266/2025/10/22/atlanta-hawks-kristaps-porzingis-illness-trae-young/
-
-**Tom Fitzgerald on Devils' next level, Markstrom's future, Hamilton buzz and the big Hughes question**\
-`The Devils GM has high expectations for this year: "We've got to take a leap for this group. You want to make a deep run."`\
-https://nytimes.com/athletic/6736845/2025/10/22/devils-future-markstrom-hamilton-hughes/
 
