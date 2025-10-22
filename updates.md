@@ -1,3 +1,11 @@
+**Trump Said Black Chicagoans Wanted His ‘Blitz.’ Many Disagree.**\
+`Six weeks into the federal crackdown in Chicago, the attack on crime that the president promised hasn’t happened, and many in the city’s Black population haven’t been won over.`\
+https://nytimes.com/2025/10/22/us/politics/trump-black-chicago.html
+
+**A Lesson We Didn’t Learn From America’s Wars**\
+`The adventurism and impunity of the Cold War live on in the modern military.`\
+https://nytimes.com/2025/10/22/opinion/fort-bragg-cartel-war.html
+
 **Trump Wants the American People to Pay Him $230 Million**\
 `Trump should pay a political price for his brazen corruption. Instead, he is telling American taxpayers to pay a price, directly to him.`\
 https://nytimes.com/2025/10/22/opinion/trump-230-million-justice-department.html
