@@ -1,3 +1,11 @@
+**Soo Catwoman, ‘the Female Face of Punk,’ Is Dead at 70**\
+`With two tufts of hair on either side of her shaved head and long tendrils of eyeliner swiped across her lids, she helped define a scene.`\
+https://nytimes.com/2025/10/22/fashion/soo-catwoman-dead.html
+
+**Ilya Sorokin's ex-KHL coach promoted to top goalie coach for Islanders**\
+`Darche also announced that Pierre Engvall is expected to be sidelined for the remainder of the season after undergoing ankle surgery.`\
+https://nytimes.com/athletic/6740674/2025/10/22/islanders-fire-goalie-coach-sorokin/
+
 **What Are Gripen Fighter Jets and Why Does Ukraine Want Them?**\
 `The Swedish warplanes are well suited to the rugged combat operations Ukraine will have to carry out, experts say.`\
 https://nytimes.com/2025/10/22/world/europe/ukraine-gripen-fighter-jets-sweden-saab.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6740407/2025/10/22/nfl-super-bowl-bad-bunny-halftim
 **Lamar Jackson returns to practice for first time since suffering hamstring injury**\
 `Jackson's return comes four days before the Ravens face the Bears in a game they essentially have to win to keep their playoff hopes alive. `\
 https://nytimes.com/athletic/6740604/2025/10/22/ravens-lamar-jackson-return-practice-injury/
-
-**NFL may expand international series to 9 games in 2026**\
-`"The definite idea is to get ourselves more to the maximum (of eight league-organized games)," plus the London game, Gerrit Meier said.`\
-https://nytimes.com/athletic/6740056/2025/10/22/nfl-international-games-2026-schedule/
-
-**Mikaela Shiffrin to focus on her best 3 events for 2026 Olympics**\
-`The Alpine skiing legend said she will concentrate on the slalom events and team combined after racing a full program in 2022 in Beijing.`\
-https://nytimes.com/athletic/6740515/2025/10/22/mikaela-shiffrin-2026-olympics-slalom-giant-slalom-team-combined/
 
