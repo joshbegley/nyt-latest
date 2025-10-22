@@ -1,3 +1,19 @@
+**Yomiuri Giants slugger Kazuma Okamoto to be posted for MLB teams**\
+`Okamoto hit at least 30 home runs each season from 2018 to 2023.`\
+https://nytimes.com/athletic/6739680/2025/10/22/kazuma-okamoto-posted-mlb-signing-yomiuri-giants/
+
+**'Everything is good' - Mateta clears air with Zaha after fallout**\
+`Mateta and Zaha were team-mates at Palace for two-and-a-half years.`\
+https://nytimes.com/athletic/6722374/2025/10/22/mateta-zaha-argument-crystal-palace/
+
+**Submit your WNBA mailbag questions on labor negotiations, free agency, more**\
+`What are your questions about the WNBA offseason as the CBA deadline looms? `\
+https://nytimes.com/athletic/6739919/2025/10/22/wnba-cba-labor-free-agency-mailbag/
+
+**Ampadu, Struijk illness doubts for Leeds; Okafor, Gnonto yet to train fully**\
+`Daniel Farke says Okafor has a better chance of returning to the fold than Gnonto for Friday's fixture against West Ham.`\
+https://nytimes.com/athletic/6739884/2025/10/22/leeds-united-injury-update-west-ham/
+
 **Queens Woman Arrested in Abandonment of Newborn in Penn Station Subway**\
 `The woman told the police she had given birth shortly before leaving the child in a busy passageway as rush hour died down. The baby’s umbilical cord was still attached.`\
 https://nytimes.com/2025/10/22/nyregion/penn-station-abandoned-baby-arrest.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/22/style/instagram-jealousy.html
 **The 24 Wikipedia pages for NHL rivalries, ranked by their single wildest passage**\
 `From Whoopi Goldberg sitcoms to framing innocent away fans to brawls in Santa costumes, there's a lot of gold in NHL Wikipedia writeups.`\
 https://nytimes.com/athletic/6738183/2025/10/22/nhl-rivalries-wikipedia-ranking/
-
-**Thai Official Resigns Over Allegations of Links to Scam Network**\
-`Thailand’s deputy finance minister, Vorapak Tanyawong, was accused of ties to the Cambodian cybercrime hubs he had been appointed to combat.`\
-https://nytimes.com/2025/10/22/world/asia/thailand-minister-resigns-cambodia-scam-networks.html
-
-**A Swampy New York City Neighborhood Could Get a $146 Million Upgrade**\
-`A housing and infrastructure plan has been proposed to address longstanding problems in the Hole, a poor and flood-prone area on the border of Brooklyn and Queens.`\
-https://nytimes.com/2025/10/22/nyregion/the-hole-infrastructure-flooding.html
-
-**Eight Eagles Thoughts: Top 5 Jalen Hurts games, DeVonta Smith shines, Brandon Graham's role**\
-`Plus, thoughts on what the Eagles should do with the trade deadline approaching.`\
-https://nytimes.com/athletic/6738251/2025/10/22/eagles-top-5-jalen-hurts-games-devonta-smith-brandon-graham-role/
-
-**Barcelona vs Villarreal in Miami was suddenly cancelled. What happened?**\
-`Plans to hold a La Liga match between Villarreal and Barcelona in Miami in December spectacularly crumbled on Tuesday`\
-https://nytimes.com/athletic/6739461/2025/10/22/barcelona-miami-la-liga-villarreal-cancelled/
 
