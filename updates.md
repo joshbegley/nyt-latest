@@ -1,3 +1,15 @@
+**Dale Earnhardt Jr. on criticism and change in NASCAR and his racing future: 12 Questions**\
+`"I'm just kind of slowly turning that faucet off until I feel like I'm ready to shut it off entirely," Earnhardt says of racing.`\
+https://nytimes.com/athletic/6737583/2025/10/22/dale-earnhardt-jr-nascar-critcism-12-questions/
+
+**Timber, Lewis-Skelly… Rice? How Arsenal's full-back strategy unpicked Atletico Madrid**\
+`Mikel Arteta's tweak helped Arsenal win in Tuesday's Champions League game at the Emirates Stadium`\
+https://nytimes.com/athletic/6739098/2025/10/22/arsenal-atletico-champions-league-tactics/
+
+**Hollywood’s Latest Cliffhanger: The Fate of Warner Bros. Discovery**\
+`Potential bidders are circling the media company as it weighs its deal options. But financial and regulatory questions hang over everything.`\
+https://nytimes.com/2025/10/22/business/dealbook/warner-bros-discovery-paramount-sale.html
+
 **Russia Hits Power Plants and Kindergarten Hours After Trump Delays Summit**\
 `President Volodymyr Zelensky of Ukraine said the overnight assault showed that Russia “clearly doesn’t feel enough pressure to stop prolonging the war.”`\
 https://nytimes.com/2025/10/22/world/europe/russia-ukraine-putin-trump.html
