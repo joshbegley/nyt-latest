@@ -1,3 +1,7 @@
+****\
+`Video by Michelle Groskopf`\
+https://nytimes.com/video/style/100000010474092/23LESLIE-JONES-VERT.html
+
 **Identifying the Bulls, and their outlook, ahead of the 2025-26 regular season**\
 `As the Bulls enter their 2025-26 season, here’s a breakdown of the 15-man roster that hopes to advance beyond the Play-In Tournament.`\
 https://nytimes.com/athletic/6738812/2025/10/22/chicago-bulls-roster-matas-buzelis-josh-giddey/
