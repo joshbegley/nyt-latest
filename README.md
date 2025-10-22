@@ -1,3 +1,11 @@
+**Word of the Day: hiatus**\
+`This word has appeared in 334 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/22/learning/word-of-the-day-hiatus.html
+
+**John Stones, Manchester City's human pendulum, can still dictate games like few others can**\
+`Stones was a one-man metronome during City's 2-0 win over Villarreal. Few defenders are able to replicate his ability to dictate play`\
+https://nytimes.com/athletic/6737283/2025/10/22/john-stones-manchester-city-champions-league/
+
 **Just set pieces and dogged defending? Now Arsenal show they can do adventure too**\
 `Rout of Atletico showed how Arteta is evolving his team into an open, attacking force`\
 https://nytimes.com/athletic/6738287/2025/10/22/arsenal-attack-arteta-martinelli-gyokeres/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6736477/2025/10/22/xavi-simons-tottenham-creativity
 **Matheus Cunha brings grit and skill to United… but also much-needed moxie**\
 `The Brazilian forward has yet to score or assist for United — but in closing out the win over Liverpool, he demonstrated his other qualities`\
 https://nytimes.com/athletic/6654179/2025/10/22/manchesrer-united-matheus-cunha-amorim-liverpool-analysis/
-
-**Leeds have a low xG against, face few shots but concede goals. But this could be a good thing**\
-`Leeds have let in 12 goals but should have conceded eight. If they revert to the mean, their form could improve`\
-https://nytimes.com/athletic/6736761/2025/10/22/leeds-defence-xg-against-conceded/
-
-**Gamble on Cristiano Ronaldo still costing Juventus as they return to the Bernabeu**\
-`Superstar scored the winner when these two last met in the Champions League then made a high-price, ill-fated move to Turin that summer`\
-https://nytimes.com/athletic/6728038/2025/10/22/cristiano-ronaldo-juventus-real-madrid-champions-league/
 
