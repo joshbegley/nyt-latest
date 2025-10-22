@@ -1,3 +1,7 @@
+**Senator Merkley Rings ‘the Alarm Bells’ on Authoritarianism in Nearly 23-Hour Speech**\
+`The Oregon Democrat achieved a goal of topping the previous longest speech by a senator from his state.`\
+https://nytimes.com/2025/10/22/us/politics/senator-merkley-speech-trump.html
+
 **“You could turn on TV any day of the week and you will hear Donald Trump share that his pick for mayor is Andrew Cuomo. And he wants Andrew Cuomo to be the mayor.”**\
 `By Benjamin Oreskes`\
 https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/you-could-turn-on-tv-any-day-of-the-week-and-you-will-hear-donald-trump-share-that-his-pick-for-mayor-is-andrew-cuomo-and-he-wan
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/22/movies/samantha-eggar-dead.html
 **NCAA will not implement 'five-for-five' eligibility rules any time soon, internal memo says**\
 `The NCAA to keep four-year eligibility rule through 2026-27, ending the debate (for now) about a "five-for-five" model.`\
 https://nytimes.com/athletic/6741377/2025/10/22/ncaa-will-not-implement-5-for-5-eligibility-rules/
-
-**For Curtis Sliwa, the heat is on.**\
-`By Michael Gold`\
-https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/curtis-sliwa-memes
 
