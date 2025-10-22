@@ -1,3 +1,15 @@
+**Trump to Demolish Entire East Wing of White House**\
+`President Trump is demolishing the entire East Wing of the White House to make way for a ballroom. Over the summer, Mr. Trump had said that the main building wouldn’t be affected by the construction.`\
+https://nytimes.com/video/us/politics/100000010475443/white-house-east-wing-demolished-ballroom.html
+
+**Early Voting for N.Y.C. Mayor Starts Saturday. You Can Still Register.**\
+`New Yorkers don’t have to wait until Election Day to have their say on the races for mayor, City Council, public advocate and more.`\
+https://nytimes.com/2025/10/22/nyregion/nyc-mayor-early-voting.html
+
+**Isak suffers groin injury, Frimpong likely out 'weeks' - Slot**\
+`Liverpool won 5-1 at Eintracht Frankfurt in the Champions League but sustained injuries to two of their starters.`\
+https://nytimes.com/athletic/6741296/2025/10/22/liverpool-alexander-isak-jeremie-frimpong-injury/
+
 **Three Offers in One Month: Paramount’s Secret Pursuit of Warner Bros. Discovery**\
 `A letter from Paramount’s chief executive, David Ellison, to Warner Bros.’ board of directors reveals weeks of talks between the two companies.`\
 https://nytimes.com/2025/10/22/business/dealbook/paramounts-secret-bids-warner-bros-discovery.html
