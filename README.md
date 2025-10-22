@@ -1,3 +1,7 @@
+****\
+`Video by Michelle Groskopf`\
+https://nytimes.com/video/style/100000010474092/23LESLIE-JONES-VERT.html
+
 **Identifying the Bulls, and their outlook, ahead of the 2025-26 regular season**\
 `As the Bulls enter their 2025-26 season, here’s a breakdown of the 15-man roster that hopes to advance beyond the Play-In Tournament.`\
 https://nytimes.com/athletic/6738812/2025/10/22/chicago-bulls-roster-matas-buzelis-josh-giddey/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/22/us/politics/graham-platner-nazi-tattoo-maine.html
 **Beyond Meat Becomes a Meme Stock With 1,000% Gain**\
 `The beleaguered company’s stock has surged in the past few days, fueled by social media buzz and echoes of past meme-stock frenzies.`\
 https://nytimes.com/2025/10/22/business/beyond-meat-meme-stock.html
-
-**Fantasy football matchup rankings Week 8 | Strength of schedule**\
-`Jake Ciely's Week 8 fantasy football strength of schedule by position matchup rankings can help with tough start/sit decisions. `\
-https://nytimes.com/athletic/6739915/2025/10/22/fantasy-football-strength-of-schedule-week-8/
 

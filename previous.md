@@ -1,4 +1,12 @@
-**Police chief defends decision to ban Maccabi Tel Aviv from Aston Villa game**\
+**Identifying the Bulls, and their outlook, ahead of the 2025-26 regular season**\
+`As the Bulls enter their 2025-26 season, here’s a breakdown of the 15-man roster that hopes to advance beyond the Play-In Tournament.`\
+https://nytimes.com/athletic/6738812/2025/10/22/chicago-bulls-roster-matas-buzelis-josh-giddey/
+
+**Vance Says He’s Optimistic Gaza’s Cease-Fire Would Hold**\
+`Vice President JD Vance met with Prime Minister Benjamin Netanyahu of Israel in Jerusalem and said that he was optimistic the Gaza cease-fire will hold. Recent flare-ups of violence in Gaza underscored the fragility of the truce.`\
+https://nytimes.com/video/world/middleeast/100000010473752/vance-gaza-ceasefire-optimism.html
+
+**Police chief defends decision to ban Maccabi Tel Aviv fans from Aston Villa game**\
 `"Birmingham hasn't failed anybody and neither has West Midlands Police," The WMP chief constable said.`\
 https://nytimes.com/athletic/6739965/2025/10/22/west-midlands-police-maccabi-tel-aviv-villa/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/22/business/beyond-meat-meme-stock.html
 **Fantasy football matchup rankings Week 8 | Strength of schedule**\
 `Jake Ciely's Week 8 fantasy football strength of schedule by position matchup rankings can help with tough start/sit decisions. `\
 https://nytimes.com/athletic/6739915/2025/10/22/fantasy-football-strength-of-schedule-week-8/
-
-**Meta Plans to Cut 600 Jobs at A.I. Superintelligence Labs**\
-`The cuts will not affect Meta’s newest A.I. hires, who are in some cases being paid up to hundreds of millions of dollars. The layoffs are focused on correcting an earlier hiring spree.`\
-https://nytimes.com/2025/10/22/technology/meta-plans-to-cut-600-jobs-at-ai-superintelligence-labs.html
-
-**F1 mailbag: Is it time for McLaren to support one driver for the championship?**\
-`Also, an ode to the classic pit board. `\
-https://nytimes.com/athletic/6738439/2025/10/22/f1-mailbag-is-it-time-for-mclaren-to-support-one-driver-for-the-championship/
 
