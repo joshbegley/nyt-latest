@@ -1,3 +1,11 @@
+**Ben Duckett exclusive: 'England have given my style their full backing. Now, winning the Ashes would be the ultimate'**\
+`The England opener talks Ashes motivation, the return from his lowest ebb, Bazball and that unwanted arm round the shoulder from Akah Deep`\
+https://nytimes.com/athletic/6732630/2025/10/22/ben-duckett-ashes-england-exclusive/
+
+**Yankuba Minteh's importance to Brighton is growing every week**\
+`The Brighton player causing the most headaches to opponents so far this Premier League season has been their Gambian winger`\
+https://nytimes.com/athletic/6725773/2025/10/22/yankuba-minteh-brighton-analysis/
+
 **Crystal Palace have the Premier League’s best attack – and low crosses are their secret weapon**\
 `Crystal Palace are transformed under Glasner. Here's how they use their wing-backs and low crosses to devastating effect`\
 https://nytimes.com/athletic/6736365/2025/10/22/crystal-palace-low-crosses-xg-premier-league/
