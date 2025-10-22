@@ -1,3 +1,19 @@
+**Trump Revives Foreign Aid, Helping Needy Billionaires**\
+`As children die for want of cheap medicines, the U.S. spends billions on Argentina — thus rescuing rich investors who made bad bets.`\
+https://nytimes.com/2025/10/22/opinion/trump-aid-argentina.html
+
+**Misty Copeland’s Career in Photos**\
+`The famed ballerina retires from her career with the American Ballet Theater after one final performance on Wednesday night.`\
+https://nytimes.com/2025/10/22/arts/dance/misty-copeland-ballet-life-career-photos.html
+
+**The Briefing: Eintracht Frankfurt 1 Liverpool 5 - Ekitike impresses, a new system and set-piece goals**\
+`Andy Jones analyses the main talking points as Liverpool earn an impressive victory in Germany`\
+https://nytimes.com/athletic/6740284/2025/10/22/eintracht-frankfurt-liverpool-analysis/
+
+**Ravens veterans remove games, ping pong tables from locker room**\
+`The Ravens have lost four straight games and are 1-5, tied for their worst start in franchise history.`\
+https://nytimes.com/athletic/6741002/2025/10/22/ravens-veterans-remove-games-locker-room/
+
 **University of Virginia Makes Deal With White House to Halt Investigations**\
 `The Justice Department had been scrutinizing one of the nation’s premier public universities over accusations of civil rights violations.`\
 https://nytimes.com/2025/10/22/us/politics/university-of-virginia-trump-agreement.html
