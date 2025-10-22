@@ -1,3 +1,19 @@
+**Will Sliwa Drop Out? He’d Rather Be Impaled.**\
+`Polling in the high teens, Curtis Sliwa, the Republican nominee for mayor, is a long shot to win. But he isn’t going anywhere.`\
+https://nytimes.com/2025/10/22/nyregion/curtis-sliwa-nyc-mayor-race-quit.html
+
+**The Submarines That Smuggle Cocaine Across Oceans and Seas**\
+`A display of confiscated vessels at a naval base in Ecuador offers a peek at why drug smuggling is so hard to stop.`\
+https://nytimes.com/2025/10/22/world/americas/drug-smuggling-submarines.html
+
+**Trump Is Demolishing the Entire East Wing**\
+`Also, oil prices have fallen sharply. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/10/22/briefing/trump-is-demolishing-the-entire-east-wing.html
+
+**NFL approves minority, non-controlling sales for 49ers, Giants and Patriots**\
+`The sales were formally approved at the league's owners meeting in New York.`\
+https://nytimes.com/athletic/6740688/2025/10/22/nfl-team-sales-giants-49ers-patriots/
+
 **Sean Payton says he didn't intend to take dig at his former QB Russell Wilson**\
 `While praising Giants rookie QB Jaxson Dart on Sunday, Payton took what was viewed as a not-so-subtle dig at Wilson.`\
 https://nytimes.com/athletic/6741253/2025/10/22/denver-broncos-russell-wilson-sean-payton-dig/
@@ -21,20 +37,4 @@ https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/heres-the-latest
 **Live Updates: N.Y.C. Mayoral Candidates Will Face Off in Final Debate Before Election**\
 `With less than two weeks left in the scramble for City Hall, the Democratic front-runner Zohran Mamdani and his challengers, Andrew M. Cuomo and Curtis Sliwa, will make their closing arguments to New Yorkers.`\
 https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate
-
-**Mamdani Plans to Keep Tisch as Police Commissioner if Elected**\
-`Zohran Mamdani’s intention to retain Jessica Tisch is likely to placate powerful New Yorkers who have lobbied Mr. Mamdani to keep her.`\
-https://nytimes.com/2025/10/22/nyregion/jessica-tisch-nypd-mamdani.html
-
-**Toronto Tempo expected to hire Sandy Brondello as franchise's coach: Source**\
-`Toronto has a proven WNBA winner in Brondello, who has a reputation for connecting with players.`\
-https://nytimes.com/athletic/6741057/2025/10/22/toronto-tempo-sandy-brondello-head-coach/
-
-**Jackie Ferrara, Artist Who Brought Mystery to Minimalism, Dies at 95**\
-`While others made sleek metallic sculptures, she favored humble materials like lumber and glue. The Times called her “one of our most gifted and inventive sculptors.”`\
-https://nytimes.com/2025/10/22/arts/jackie-ferrara-dead.html
-
-**The Briefing: Chelsea 5 Ajax 1 - Excellent Estevao leads the way as Maresca gets tactics spot on**\
-`Our writers analyse and evaluate the key talking points from Chelsea's resounding victory over Ajax at home in the Champions League`\
-https://nytimes.com/athletic/6740719/2025/10/22/chelsea-ajax-champions-league-briefing/
 
