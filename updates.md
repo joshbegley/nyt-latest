@@ -1,3 +1,7 @@
+**“He doesn’t control the rent guidelines board. So nothing is going to happen.”**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/he-doesnt-control-the-rent-guidelines-board-so-nothing-is-going-to-happen
+
 **Senator Merkley Rings ‘the Alarm Bells’ on Authoritarianism in Nearly 23-Hour Speech**\
 `The Oregon Democrat achieved a goal of topping the previous longest speech by a senator from his state.`\
 https://nytimes.com/2025/10/22/us/politics/senator-merkley-speech-trump.html
