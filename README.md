@@ -1,3 +1,7 @@
+**Michael Jordan debuts as NBA contributor, reflects on family and legacy**\
+`Jordan told NBC's Mike Tirico he hadn't picked up a basketball in years — until recently.`\
+https://nytimes.com/athletic/6738719/2025/10/21/michael-jordan-nba-nbc-halftime/
+
 **Bubbly Bar**\
 `Jesse Guzman adds to our lexicon.`\
 https://nytimes.com/2025/10/21/crosswords/daily-puzzle-2025-10-22.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/21/climate/roundabout-auto-emissions-new-hampshire.h
 **Watch this season's first NBA on NBC intro**\
 `With the NBA returning to NBC for the first time since 2002, the network is leaning hard into 1990s nostalgia to get fans excited. The...`\
 https://nytimes.com/athletic/6738663/2025/10/21/nba-nbc-theme-song-video/
-
-**Ecuador Rejects Prosecution of Survivor of U.S. Strike on Vessel**\
-`The country has freed the man, one of two survivors of a U.S. military strike on a submersible vessel last week, defying President Trump’s claim that he would be held and prosecuted.`\
-https://nytimes.com/2025/10/21/us/politics/ecuador-us-strike-survivor.html
 

@@ -1,3 +1,11 @@
+**Bubbly Bar**\
+`Jesse Guzman adds to our lexicon.`\
+https://nytimes.com/2025/10/21/crosswords/daily-puzzle-2025-10-22.html
+
+**NBA's current stars don't remember the '90s or the 'NBA on NBC' theme song**\
+`The NBA has returned to NBC. What are current players' prized memories of the basketball phenomenon?`\
+https://nytimes.com/athletic/6738653/2025/10/21/nba-on-nbc-roundball-rock/
+
 **NBA's current stars don't remember the 90s or the 'NBA on NBC' theme song**\
 `The NBA has returned to NBC. What are current players' prized memories of the basketball phenomenon?`\
 https://nytimes.com/athletic/6738653/2025/10/21/nba-on-nbc-roundball-rock/
