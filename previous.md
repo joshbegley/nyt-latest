@@ -1,3 +1,11 @@
+**The Steelers' underperforming defense has one particular, explosive problem**\
+`Mike Tomlin's defense is looking for answers after a poor performance in a loss to the Bengals.`\
+https://nytimes.com/athletic/6738116/2025/10/22/pittsburgh-steelers-defensive-struggles/
+
+**The New York Times International Edition in Print for Thursday, Oct. 23, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/10/22/todays-new-york-times-international-edition
+
 **Toum Grilled Cheese**\
 `Cheese manakeesh, a topped flatbread found throughout the Levant, is delicious with toum, a sauce made by combining garlic, lemon juice, salt and oil. This grilled cheese hits those notes, skipping a trip to the bakery.`\
 https://nytimes.com/video/dining/100000010366957/toum-grilled-cheese.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/22/podcasts/is-money-a-problem-in-your-relationship-
 **Workers and Employers Face Higher Health Insurance Costs**\
 `A new employer survey shows premiums for a family climbed in 2025 as companies and their workers pay more for coverage.`\
 https://nytimes.com/2025/10/22/health/workers-and-employers-face-higher-health-insurance-costs.html
-
-**No Kings Means No Kings. No Wonder Trump Hates It.**\
-`Who’s the patriot now?`\
-https://nytimes.com/2025/10/22/opinion/no-kings-trump-declaration-independence.html
-
-**Democrats Need to Chill About the Electability of Women**\
-`Why Mikie Sherrill’s chances in New Jersey are much better than you might be hearing.`\
-https://nytimes.com/2025/10/22/opinion/mikie-sherrill-new-jersey-governor.html
 

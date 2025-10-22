@@ -1,3 +1,11 @@
+**The Steelers' underperforming defense has one particular, explosive problem**\
+`Mike Tomlin's defense is looking for answers after a poor performance in a loss to the Bengals.`\
+https://nytimes.com/athletic/6738116/2025/10/22/pittsburgh-steelers-defensive-struggles/
+
+**The New York Times International Edition in Print for Thursday, Oct. 23, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/10/22/todays-new-york-times-international-edition
+
 **Toum Grilled Cheese**\
 `Cheese manakeesh, a topped flatbread found throughout the Levant, is delicious with toum, a sauce made by combining garlic, lemon juice, salt and oil. This grilled cheese hits those notes, skipping a trip to the bakery.`\
 https://nytimes.com/video/dining/100000010366957/toum-grilled-cheese.html
