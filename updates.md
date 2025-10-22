@@ -1,3 +1,11 @@
+**Answer 4 Questions. Leave With a Movie for Halloween.**\
+`Whether you’re in the mood for new chills or classic thrills, we’ve got a killer pick for you.`\
+https://nytimes.com/interactive/2025/10/22/movies/halloween-movie-recommendation-quiz.html
+
+**Russian Missiles Hit Apartments, School and Power Plant in Ukraine**\
+`The barrage came hours after President Trump said he was putting off a planned meeting with President Vladimir Putin of Russia to avoid a “wasted” effort toward ending the war.`\
+https://nytimes.com/video/world/europe/100000010473770/ukraine-russia-strikes.html
+
 **Why Daniel Suárez to Spire just might make sense, even if it doesn't look like it**\
 `Suárez hasn't done much better this season than the driver he's replacing. But his track record gives Spire enough reason to believe.`\
 https://nytimes.com/athletic/6740355/2025/10/22/daniel-suarez-spire-motorsports-driver/
