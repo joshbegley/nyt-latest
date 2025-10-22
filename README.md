@@ -1,3 +1,15 @@
+**PGA Tour cancels The Sentry, delaying start to 2026 season**\
+`Environmental concerns forced the tour to leave Kapalua’s Plantation Course, its host venue since 1999.`\
+https://nytimes.com/athletic/6723484/2025/10/22/pga-tour-the-sentry-2026-canceled/
+
+**Bad Bunny Super Bowl halftime show will be 'exciting,' Goodell says**\
+`The league has no intention of changing the performer based on negative reaction to the announcement, the commissioner said.`\
+https://nytimes.com/athletic/6740407/2025/10/22/nfl-super-bowl-bad-bunny-halftime/
+
+**Lamar Jackson returns to practice for first time since suffering hamstring injury**\
+`Jackson's return comes four days before the Ravens face the Bears in a game they essentially have to win to keep their playoff hopes alive. `\
+https://nytimes.com/athletic/6740604/2025/10/22/ravens-lamar-jackson-return-practice-injury/
+
 **NFL may expand international series to 9 games in 2026**\
 `"The definite idea is to get ourselves more to the maximum (of eight league-organized games)," plus the London game, Gerrit Meier said.`\
 https://nytimes.com/athletic/6740056/2025/10/22/nfl-international-games-2026-schedule/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6740253/2025/10/22/alexander-bublik-valentin-vacher
 **D-Backs' Amiel Sawdaye, Guardians' Matt Forman are finalists for Rockies GM**\
 `Sawdaye started his career with the Red Sox. Forman has been with Cleveland since 2013.`\
 https://nytimes.com/athletic/6740361/2025/10/22/rockies-gm-finalists-amiel-sawdaye-matt-forman/
-
-**World Court Tells Israel to Facilitate Aid to Gaza**\
-`The International Court of Justice said Israel should work with U.N. agencies, not hinder their relief efforts in Gaza. The court’s opinions are not legally binding but carry symbolic weight.`\
-https://nytimes.com/2025/10/22/world/middleeast/icj-israel-gaza-aid.html
-
-**Louvre Museum Reopens After Jewel Heist**\
-`Patrons of the reopened Louvre, the world’s most-visited museum, expressed astonishment and intrigue over the daytime heist of jewelry worth more than $100 million that had led to its closure.`\
-https://nytimes.com/video/world/europe/100000010474416/louvre-reopening-jewel-heist.html
-
-**Submit your Bears trade deadline questions for Kevin Fishbain's mailbag**\
-`This week's Bears mailbag will focus on what they should do ahead of the Nov. 4 NFL trade deadline. What's on your mind?`\
-https://nytimes.com/athletic/6740465/2025/10/22/submit-your-bears-trade-deadline-questions-for-kevin-fishbains-mailbag/
 
