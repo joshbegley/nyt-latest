@@ -1,3 +1,7 @@
+**What to Know About the Moderators of the Second N.Y.C. Mayoral Debate**\
+`Errol Louis of Spectrum News NY1, Brian Lehrer of WNYC and Katie Honan of The City are moderating Wednesday’s debate.`\
+https://nytimes.com/2025/10/22/nyregion/nyc-mayoral-debate-moderators.html
+
 **Trump Is Seeking $230 Million From the Justice Dept.**\
 `President Trump is demanding about $230 million in compensation for the federal investigations into him by the Justice Department. Devlin Barrett, a New York Times reporter covering the Justice Department, describes what we know about who’s most likely to be making the decisions.`\
 https://nytimes.com/video/us/politics/100000010470822/trump-is-seeking-230-million-from-the-justice-dept.html

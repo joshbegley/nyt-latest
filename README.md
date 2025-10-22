@@ -1,3 +1,7 @@
+**Sean Payton says he didn't intend to take dig at his former QB Russell Wilson**\
+`While praising Giants rookie QB Jaxson Dart on Sunday, Payton took what was viewed as a not-so-subtle dig at Wilson.`\
+https://nytimes.com/athletic/6741253/2025/10/22/denver-broncos-russell-wilson-sean-payton-dig/
+
 **What to Know About the Moderators of the Second N.Y.C. Mayoral Debate**\
 `Errol Louis of Spectrum News NY1, Brian Lehrer of WNYC and Katie Honan of The City are moderating Wednesday’s debate.`\
 https://nytimes.com/2025/10/22/nyregion/nyc-mayoral-debate-moderators.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/22/arts/jackie-ferrara-dead.html
 **The Briefing: Chelsea 5 Ajax 1 - Excellent Estevao leads the way as Maresca gets tactics spot on**\
 `Our writers analyse and evaluate the key talking points from Chelsea's resounding victory over Ajax at home in the Champions League`\
 https://nytimes.com/athletic/6740719/2025/10/22/chelsea-ajax-champions-league-briefing/
-
-**Massapequa Schools Sue N.Y. State to Preserve Gender Rules in Bathrooms**\
-`National cultural issues have pervaded Nassau County as its Republican leaders have embraced President Trump’s brand of politics. The schools want students to use the bathrooms that align with their sex assigned at birth.`\
-https://nytimes.com/2025/10/22/nyregion/massapequa-new-york-bathroom-lawsuit.html
 
