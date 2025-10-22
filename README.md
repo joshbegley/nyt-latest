@@ -1,3 +1,11 @@
+**The Future of New York**\
+`The 400th anniversary of New York City is a little hard to pin down, but many would date it to 2025, four centuries after the construction of Fort Amsterdam by Dutch settlers.`\
+https://nytimes.com/interactive/2025/10/22/nyregion/future-of-new-york.html
+
+**How the NBA's luxury tax aprons have impacted rookie contract extensions**\
+`The story of this extension season is the deals that didn’t get done, and partly that is because of salary cap planning.`\
+https://nytimes.com/athletic/6738140/2025/10/22/nba-contract-extension-deadline-deals-hollinger/
+
 **Nostalgia, new TV subscriptions, MJ and billions? Welcome to the 2025-26 NBA season: MoneyCall**\
 `More in this week's sports business cheat sheet: Inside the NBA on ESPN, F1 x Apple, Dodgers exceptionalism and NHL Front Office Rankings.`\
 https://nytimes.com/athletic/6739955/2025/10/22/nba-peacock-amazon-prime-video-moneycall/
@@ -22,19 +30,11 @@ https://nytimes.com/2025/10/22/technology/meta-plans-to-cut-600-jobs-at-ai-super
 `Also, an ode to the classic pit board. `\
 https://nytimes.com/athletic/6738439/2025/10/22/f1-mailbag-is-it-time-for-mclaren-to-support-one-driver-for-the-championship/
 
-**NOAA Isn’t Tracking Disaster Damages Anymore. These Scientists Are.**\
-`A revived version of a database tracking the costs of the country’s worst disasters shows a record-setting toll in the first half of 2025.`\
-https://nytimes.com/2025/10/22/climate/noaa-isnt-tracking-disaster-damages-anymore-these-scientists-are.html
+**In First Six Months, Cost of Weather Catastrophes Escalated at a Record Pace**\
+`The Trump administration stopped updating a database tracking the costs of the country’s worst disasters. A group of scientists has revived it.`\
+https://nytimes.com/2025/10/22/climate/trump-noaa-weather-tracking.html
 
 **Raptors, Leafs, Sabres adjust game start times to limit World Series overlap**\
 `Those games conflict with Game 1 of the World Series, which will take place at Rogers Centre, down the street from the Raptors’ home.`\
 https://nytimes.com/athletic/6739863/2025/10/22/toronto-maple-leafs-raptors-blue-jays-world-series/
-
-**The NATO chief and Trump will discuss support for Ukraine.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2025/10/22/us/trump-news/the-nato-chief-and-trump-will-discuss-support-for-ukraine
-
-**Man Is Shot and Tents Set on Fire Outside Serbia’s Parliament**\
-`A suspect was arrested after a blaze broke out among structures erected by supporters of President Aleksandar Vucic. Protests against his government have rumbled for months.`\
-https://nytimes.com/2025/10/22/world/europe/serbia-shots-fire-parliament-protest.html
 
