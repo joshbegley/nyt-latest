@@ -1,3 +1,27 @@
+**Michigan has become a hotbed of college football recruiting battles. Donald Tabron is next**\
+`Bryce Underwood, Dante Moore and CJ Carr are all from southeast Michigan. Next up? The battle for Donald Tabron in the Class of 2028.`\
+https://nytimes.com/athletic/6736723/2025/10/22/donald-tabron-michigan-quarterback-recruiting-cass-tech/
+
+**What I'm seeing from the Flyers after 6 games: Vladar excelling, Michkov playing catch-up**\
+`Dan Vladar has emerged as the Flyers' go-to goalie — for now, Matvei Michkov didn’t arrive in good enough shape and more.`\
+https://nytimes.com/athletic/6737970/2025/10/22/flyers-dan-vladar-matvei-michkov/
+
+**Wild's Brock Faber starting to get 'back to myself' after tough start to season**\
+`The Wild’s cornerstone defenseman hopes he can turn a corner, much like his team, after an admittedly rough stretch to start.`\
+https://nytimes.com/athletic/6737952/2025/10/22/wild-brock-faber-2025-26-season/
+
+**Juraj Slafkovský's game is taking steps, and it has nothing to do with scoring goals**\
+`Slafkovský has long judged his game by goals and assists, but as he matures, he should realize there's more to it. It's a work in progress.`\
+https://nytimes.com/athletic/6738960/2025/10/22/canadiens-juraj-slafkovsky-game-goals/
+
+**Missing LeBron, the Lakers' two-timeline approach shows its flaws against Warriors**\
+`In Golden State, LA could see what hurdles exist in this potentially awkward season. `\
+https://nytimes.com/athletic/6739255/2025/10/22/lakers-luka-doncic-lebron-james-opening-night-loss/
+
+**Driver Crashes Car Into Security Gate Near White House**\
+`A man was arrested on Tuesday night after he drove his vehicle into a barricade outside the White House, the Secret Service said. It was not immediately known whether the crash was intentional.`\
+https://nytimes.com/video/us/100000010473753/car-crash-white-house.html
+
 **Driver Crashes Car Into Security Gate Near White House**\
 `A man was arrested after he drove his vehicle into a barricade outside the White House, the Secret Service said. It was not immediately known whether the crash was intentional.`\
 https://nytimes.com/video/us/100000010473753/car-crash-white-house.html
