@@ -1,3 +1,11 @@
+**Eight Eagles Thoughts: Top 5 Jalen Hurts games, DeVonta Smith shines, Brandon Graham's role**\
+`Plus, thoughts on what the Eagles should do with the trade deadline approaching.`\
+https://nytimes.com/athletic/6738251/2025/10/22/eagles-top-5-jalen-hurts-games-devonta-smith-brandon-graham-role/
+
+**Barcelona v Villarreal in Miami was suddenly cancelled. What happened?**\
+`Plans to hold a La Liga match between Villarreal and Barcelona in Miami in December spectacularly crumbled on Tuesday`\
+https://nytimes.com/athletic/6739461/2025/10/22/barcelona-miami-la-liga-villarreal-cancelled/
+
 **Dale Earnhardt Jr. on criticism and change in NASCAR and his racing future: 12 Questions**\
 `"I'm just kind of slowly turning that faucet off until I feel like I'm ready to shut it off entirely," Earnhardt says of racing.`\
 https://nytimes.com/athletic/6737583/2025/10/22/dale-earnhardt-jr-nascar-critcism-12-questions/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6738458/2025/10/22/nebraska-no-show-minnesota-probl
 **Are the Dodgers 4 wins away from a dynasty? 'We have an opportunity to do that'**\
 `Dodgers' Miguel Rojas said: "Everybody is consumed with winning a World Series. That’s the only celebration we want to really have." `\
 https://nytimes.com/athletic/6738285/2025/10/22/are-the-dodgers-four-wins-away-from-a-dynasty-we-have-an-opportunity-to-do-that/
-
-**Fox to broadcast a record 69 matches in the 2026 World Cup**\
-`Only 34 matches in the 2022 World Cup aired on network television.`\
-https://nytimes.com/athletic/6738544/2025/10/22/2026-word-cup-record-69-matches-fox/
-
-**Tyronn Lue has a deep Clippers roster to balance. How will he get the job done?**\
-`Personnel-wise, the Clippers have what they need to begin the season. Now, it's up to them to get off to a strong start and maintain it.`\
-https://nytimes.com/athletic/6735895/2025/10/22/tyronn-lue-clippers-depth-nba-kawhi-leonard-chris-paul-james-harden/
 

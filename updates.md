@@ -1,3 +1,11 @@
+**Eight Eagles Thoughts: Top 5 Jalen Hurts games, DeVonta Smith shines, Brandon Graham's role**\
+`Plus, thoughts on what the Eagles should do with the trade deadline approaching.`\
+https://nytimes.com/athletic/6738251/2025/10/22/eagles-top-5-jalen-hurts-games-devonta-smith-brandon-graham-role/
+
+**Barcelona v Villarreal in Miami was suddenly cancelled. What happened?**\
+`Plans to hold a La Liga match between Villarreal and Barcelona in Miami in December spectacularly crumbled on Tuesday`\
+https://nytimes.com/athletic/6739461/2025/10/22/barcelona-miami-la-liga-villarreal-cancelled/
+
 **Dale Earnhardt Jr. on criticism and change in NASCAR and his racing future: 12 Questions**\
 `"I'm just kind of slowly turning that faucet off until I feel like I'm ready to shut it off entirely," Earnhardt says of racing.`\
 https://nytimes.com/athletic/6737583/2025/10/22/dale-earnhardt-jr-nascar-critcism-12-questions/
