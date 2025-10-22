@@ -1,3 +1,15 @@
+**Man Wounded in Shooting Outside Serbian Parliament**\
+`A suspect was arrested in Serbia after a shooting and a blaze broke out among tents erected by supporters of President Aleksandar Vucic. One person sustained serious injuries, according to an official.`\
+https://nytimes.com/video/world/europe/100000010473795/serbia-parliament-shooting-fire.html
+
+**Inquiry Into Death of Teen Found in D4vd’s Tesla Continues: What to Know**\
+`The remains of Celeste Rivas Hernandez, who died before her 15th birthday, were found in the artist’s vehicle after it was towed to an impound lot, officials said.`\
+https://nytimes.com/article/d4vd-tesla-body-murder-investigation.html
+
+**Alexander Bublik calls Valentin Vacherot's Shanghai Masters title 'failure' by ATP players**\
+`Bublik questioned how he and his peers could not stop Vacherot's rising from world No. 204 to win the ATP Masters 1000 event.`\
+https://nytimes.com/athletic/6740253/2025/10/22/alexander-bublik-valentin-vacherot-shanghai-masters-atp-tour/
+
 **Alexander Bublik calls Valentin Vacherot's Shanghai Masters title 'failure' by ATP players**\
 `Bublik expressed frustration over Vacherot's rising from No.204 to win the Shanghai Masters, describing it as a collective failure.`\
 https://nytimes.com/athletic/6740253/2025/10/22/alexander-bublik-valentin-vacherot-shanghai-masters-atp-tour/

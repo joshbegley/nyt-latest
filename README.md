@@ -1,3 +1,15 @@
+**NFL may expand international series to 9 games in 2026**\
+`"The definite idea is to get ourselves more to the maximum (of eight league-organized games)," plus the London game, Gerrit Meier said.`\
+https://nytimes.com/athletic/6740056/2025/10/22/nfl-international-games-2026-schedule/
+
+**Mikaela Shiffrin to focus on her best three events for 2026 Olympics**\
+`The Alpine skiing legend said she will concentrate on the slalom events and team combined after racing a full program in 2022 in Beijing.`\
+https://nytimes.com/athletic/6740515/2025/10/22/mikaela-shiffrin-2026-olympics-slalom-giant-slalom-team-combined/
+
+**Submit your questions for Jen McCaffrey's next Red Sox mailbag!**\
+`Submit your questions here by Sunday evening to have them included in her next Red Sox mailbag.`\
+https://nytimes.com/athletic/6740560/2025/10/22/red-sox-mailbag-submissions/
+
 **Man Wounded in Shooting Outside Serbian Parliament**\
 `A suspect was arrested in Serbia after a shooting and a blaze broke out among tents erected by supporters of President Aleksandar Vucic. One person sustained serious injuries, according to an official.`\
 https://nytimes.com/video/world/europe/100000010473795/serbia-parliament-shooting-fire.html
@@ -16,7 +28,7 @@ https://nytimes.com/athletic/6740361/2025/10/22/rockies-gm-finalists-amiel-sawda
 
 **World Court Tells Israel to Facilitate Aid to Gaza**\
 `The International Court of Justice said Israel should work with U.N. agencies, not hinder their relief efforts in Gaza. The court’s opinions are not legally binding but carry symbolic weight.`\
-https://nytimes.com/2025/10/22/world/middleeast/world-court-tells-israel-to-facilitate-aid-to-gaza.html
+https://nytimes.com/2025/10/22/world/middleeast/icj-israel-gaza-aid.html
 
 **Louvre Museum Reopens After Jewel Heist**\
 `Patrons of the reopened Louvre, the world’s most-visited museum, expressed astonishment and intrigue over the daytime heist of jewelry worth more than $100 million that had led to its closure.`\
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/europe/100000010474416/louvre-reopening-jewel-he
 **Submit your Bears trade deadline questions for Kevin Fishbain's mailbag**\
 `This week's Bears mailbag will focus on what they should do ahead of the Nov. 4 NFL trade deadline. What's on your mind?`\
 https://nytimes.com/athletic/6740465/2025/10/22/submit-your-bears-trade-deadline-questions-for-kevin-fishbains-mailbag/
-
-**Villa to report alleged racist abuse of Under-19s to UEFA**\
-`Villa say the fans of KF Skenderbeu racially abused players and staff during Tuesday's game in Korce, Albania.`\
-https://nytimes.com/athletic/6737435/2025/10/22/aston-villa-to-report-alleged-racist-abuse-of-under-19s-to-uefa/
-
-**What we’re hearing about Michael Jordan’s ‘NBA on NBC’ future**\
-`Michael Jordan's halftime segment for NBC during its NBA season opener had people talking. But what's next for MJ on TV?`\
-https://nytimes.com/athletic/6740319/2025/10/22/michael-jordan-nbc-nba-tv-halftime/
-
-**Jayden Daniels out for Commanders game at Chiefs; Marcus Mariota will start**\
-`The game will be Daniels’ third missed start this season because of injuries.`\
-https://nytimes.com/athletic/6740441/2025/10/22/jayden-daniels-out-commanders-chiefs-hamstring/
 
