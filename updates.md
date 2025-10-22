@@ -1,3 +1,7 @@
+**The Women's World Cup is set to expand in 2031. Will host cities be able to capitalize?**\
+`Down to Business with Asli Pelit takes you through the fast-paced (and sometimes confusing) corporate side of women's soccer.`\
+https://nytimes.com/athletic/6737859/2025/10/22/womens-world-cup-expand-2031-will-host-city-investment/
+
 **Steve Aoki Shows The Athletic His Sports Card Collection**\
 `The D.J. Steve Aoki reveals his most expensive sports cards. Including Tom Brady, Michael Jordan, Shohei Ohtani and Lionel Messi, his collection is one of a kind.`\
 https://nytimes.com/video/the-athletic/100000010462310/steve-aoki-shows-the-athletic-his-sports-card-collection.html
