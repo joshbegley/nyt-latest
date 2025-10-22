@@ -1,3 +1,19 @@
+**How to watch Packers vs. Steelers: Time, TV, streaming**\
+`Find out how to watch the Green Bay Packers play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6739124/2025/10/22/packers-vs-steelers-stream-how-to-watch-oct-26/
+
+**Newcastle are a halfway to being a very good team**\
+`In outclassing Benfica, Eddie Howe's team showed they have the capacity to be evolve into something special`\
+https://nytimes.com/athletic/6738211/2025/10/22/newcastle-analysis-gordon-barnes-pope-howe/
+
+**John Stones, Manchester City's human pendulum, can still dictate games like few others can**\
+`The centre-back’s display in Spain was a reminder that, when he is fit, there is no other defender in world football who can do what he does`\
+https://nytimes.com/athletic/6737283/2025/10/22/john-stones-manchester-city-champions-league/
+
+**Just set pieces and dogged defending? Now Arsenal show they can do adventure too**\
+`The home win over Atletico Madrid showed how Mikel Arteta is evolving his team into an open, attacking force`\
+https://nytimes.com/athletic/6738287/2025/10/22/arsenal-attack-arteta-martinelli-gyokeres/
+
 **Word of the Day: hiatus**\
 `This word has appeared in 334 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/10/22/learning/word-of-the-day-hiatus.html
