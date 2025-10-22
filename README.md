@@ -1,3 +1,7 @@
+**Just set pieces and dogged defending? Now Arsenal show they can do adventure too**\
+`Rout of Atletico showed how Arteta is evolving his team into an open, attacking force`\
+https://nytimes.com/athletic/6738287/2025/10/22/arsenal-attack-arteta-martinelli-gyokeres/
+
 **Donald Trump’s New World Disorder**\
 `Without a plan for what comes next, the United States is not only hastening its own decline but also forcing the world into a new era of disorder.`\
 https://nytimes.com/2025/10/22/opinion/trump-xi-summit-world-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6736761/2025/10/22/leeds-defence-xg-against-concede
 **Gamble on Cristiano Ronaldo still costing Juventus as they return to the Bernabeu**\
 `Superstar scored the winner when these two last met in the Champions League then made a high-price, ill-fated move to Turin that summer`\
 https://nytimes.com/athletic/6728038/2025/10/22/cristiano-ronaldo-juventus-real-madrid-champions-league/
-
-**Why Hugo Ekitike has been Liverpool's bright spark: Extra gym work, adding pace, settled off the pitch**\
-`The forward has found his feet quickest among new recruits and established a close bond with the Liverpool fanbase – this is how he did it`\
-https://nytimes.com/athletic/6736386/2025/10/22/hugo-ekitike-liverpool-promising-start/
 
