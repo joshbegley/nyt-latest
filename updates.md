@@ -1,3 +1,7 @@
+**Shai Gilgeous-Alexander leads Thunder past Rockets in double overtime thriller on ring night**\
+`The Thunder were led by Gilgeous-Alexander's 35 points — 24 coming in the fourth quarter and two overtimes.`\
+https://nytimes.com/athletic/6738717/2025/10/21/shai-gilgeous-alexander-thunder-rockets-double-overtime/
+
 **'NBA on NBC' in the '90s was pure magic — but today's stars have no idea why**\
 `The NBA has returned to NBC. What are current players' favorite memories on the network? Well, most weren't born yet.`\
 https://nytimes.com/athletic/6738653/2025/10/21/nba-on-nbc-roundball-rock/

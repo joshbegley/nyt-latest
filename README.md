@@ -1,5 +1,5 @@
-**Shai Gilgeous-Alexander leads Thunder past Rockets in double overtime thriller on ring night**\
-`The Thunder were led by Gilgeous-Alexander's 35 points — 24 coming in the fourth quarter and two overtimes.`\
+**Shai Gilgeous-Alexander leads Thunder past Rockets in double-overtime thriller on ring night**\
+`The Thunder were led by Gilgeous-Alexander's 35 points, with 24 coming in the fourth quarter and two overtimes.`\
 https://nytimes.com/athletic/6738717/2025/10/21/shai-gilgeous-alexander-thunder-rockets-double-overtime/
 
 **UBS Arena to host 2027 NHL All-Star Weekend after league cancels pre-Olympic event: Sources**\

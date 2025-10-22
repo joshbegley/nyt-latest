@@ -1,3 +1,7 @@
+**Shai Gilgeous-Alexander leads Thunder past Rockets in double overtime thriller on ring night**\
+`The Thunder were led by Gilgeous-Alexander's 35 points — 24 coming in the fourth quarter and two overtimes.`\
+https://nytimes.com/athletic/6738717/2025/10/21/shai-gilgeous-alexander-thunder-rockets-double-overtime/
+
 **UBS Arena to host 2027 NHL All-Star Weekend after league cancels pre-Olympic event: Sources**\
 `The event had been scheduled as a replacement for the 2026 All-Star Weekend, which had previously been awarded to the New York Islanders.`\
 https://nytimes.com/athletic/6738754/2025/10/21/nhl-olympic-event-all-star-ubs-arena/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/21/climate/kansas-pollinators-bees-plants.html
 **This Solar Farm in Alaska Provides Something Extra: Free Food**\
 `Produce and power are both costly in the state. So researchers are testing ways to address both issues using the same land.`\
 https://nytimes.com/2025/10/21/climate/alaska-solar-farm-food.html
-
-**Cutting Emissions, the Roundabout Way, in New Hampshire**\
-`Despite its small stature, the city of Keene, has become an example of the safety and climate benefits of swapping traffic lights for roundabouts.`\
-https://nytimes.com/2025/10/21/climate/roundabout-auto-emissions-new-hampshire.html
 
