@@ -1,3 +1,11 @@
+**Larry David Takes the Stage for an Amusing but Not-So-Revealing Chat**\
+`At the Beacon, he shared details about “Seinfeld” and “Curb Your Enthusiasm,” but on more topical subjects, like his ex-castmate Cheryl Hines, he kept mum.`\
+https://nytimes.com/2025/10/22/arts/larry-david-live-beacon-theater.html
+
+**Trump Administration Cuts Cyberdefense Even as Threats Grow**\
+`China has penetrated networks that control infrastructure systems and has hacked telecommunications companies.`\
+https://nytimes.com/2025/10/22/us/politics/trump-cyber-threats.html
+
 **PGA Tour cancels The Sentry, delaying start to 2026 season**\
 `Environmental concerns forced the tour to leave Kapalua’s Plantation Course, its host venue since 1999.`\
 https://nytimes.com/athletic/6723484/2025/10/22/pga-tour-the-sentry-2026-canceled/
@@ -14,7 +22,7 @@ https://nytimes.com/athletic/6740604/2025/10/22/ravens-lamar-jackson-return-prac
 `"The definite idea is to get ourselves more to the maximum (of eight league-organized games)," plus the London game, Gerrit Meier said.`\
 https://nytimes.com/athletic/6740056/2025/10/22/nfl-international-games-2026-schedule/
 
-**Mikaela Shiffrin to focus on her best three events for 2026 Olympics**\
+**Mikaela Shiffrin to focus on her best 3 events for 2026 Olympics**\
 `The Alpine skiing legend said she will concentrate on the slalom events and team combined after racing a full program in 2022 in Beijing.`\
 https://nytimes.com/athletic/6740515/2025/10/22/mikaela-shiffrin-2026-olympics-slalom-giant-slalom-team-combined/
 
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000010473795/serbia-parliament-shootin
 **Inquiry Into Death of Teen Found in D4vd’s Tesla Continues: What to Know**\
 `The remains of Celeste Rivas Hernandez, who died before her 15th birthday, were found in the artist’s vehicle after it was towed to an impound lot, officials said.`\
 https://nytimes.com/article/d4vd-tesla-body-murder-investigation.html
-
-**Alexander Bublik calls Valentin Vacherot's Shanghai Masters title 'failure' by ATP players**\
-`Bublik questioned how he and his peers could not stop Vacherot's rising from world No. 204 to win the ATP Masters 1000 event.`\
-https://nytimes.com/athletic/6740253/2025/10/22/alexander-bublik-valentin-vacherot-shanghai-masters-atp-tour/
-
-**D-Backs' Amiel Sawdaye, Guardians' Matt Forman are finalists for Rockies GM**\
-`Sawdaye started his career with the Red Sox. Forman has been with Cleveland since 2013.`\
-https://nytimes.com/athletic/6740361/2025/10/22/rockies-gm-finalists-amiel-sawdaye-matt-forman/
 
