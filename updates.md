@@ -1,3 +1,11 @@
+**‘Blue Cowboy’ Review: A Surprising Love Rides Into Town**\
+`David Cale’s astonishing one-man show in Brooklyn erects some familiar signposts before swerving into the unexpected.`\
+https://nytimes.com/2025/10/22/theater/blue-cowboy-review-david-cale.html
+
+**Dozens Killed in Bus Crash in Uganda**\
+`The crash involved multiple vehicles and was one of the deadliest road accidents in the East African country in decades.`\
+https://nytimes.com/2025/10/22/world/africa/uganda-bus-crash.html
+
 **Why the Broncos' trade deadline selling streak could end this season**\
 `If the Broncos seek to add a player ahead of the Nov. 4 deadline, an interior offensive lineman could make the most sense.`\
 https://nytimes.com/athletic/6740066/2025/10/22/broncos-trade-deadlne-sean-payton-george-paton/

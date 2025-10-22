@@ -1,3 +1,7 @@
+**'This keeps happening.' Gerald McCoy reflects on death of a fifth former NFL teammate**\
+`Former NFL All-Pro Gerald McCoy has seen five of his former teammates die, all before the age of 40. Doug Martin was the latest.`\
+https://nytimes.com/athletic/6738403/2025/10/22/nfl-doug-martin-death-gerald-mccoy/
+
 **‘Blue Cowboy’ Review: A Surprising Love Rides Into Town**\
 `David Cale’s astonishing one-man show in Brooklyn erects some familiar signposts before swerving into the unexpected.`\
 https://nytimes.com/2025/10/22/theater/blue-cowboy-review-david-cale.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6740156/2025/10/22/heat-vs-magic-stream-how-to-watc
 **G.M. Previews Talking Cars, Cheaper Batteries and Other New Tech**\
 `Drivers will be able to converse with an artificial intelligence assistant while cars largely drive themselves in certain situations, the company said.`\
 https://nytimes.com/2025/10/22/business/general-motors-ai-self-driving.html
-
-**This Salmon Dinner Is Brilliant and Beautiful**\
-`Yewande Komolafe nestles crisp-skinned fillets into a mix of green beans and red pepper.`\
-https://nytimes.com/2025/10/22/dining/this-salmon-dinner-is-brilliant-and-beautiful.html
 

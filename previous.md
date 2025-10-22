@@ -1,3 +1,11 @@
+**‘Blue Cowboy’ Review: A Surprising Love Rides Into Town**\
+`David Cale’s astonishing one-man show in Brooklyn erects some familiar signposts before swerving into the unexpected.`\
+https://nytimes.com/2025/10/22/theater/blue-cowboy-review-david-cale.html
+
+**Dozens Killed in Bus Crash in Uganda**\
+`The crash involved multiple vehicles and was one of the deadliest road accidents in the East African country in decades.`\
+https://nytimes.com/2025/10/22/world/africa/uganda-bus-crash.html
+
 **Why the Broncos' trade deadline selling streak could end this season**\
 `If the Broncos seek to add a player ahead of the Nov. 4 deadline, an interior offensive lineman could make the most sense.`\
 https://nytimes.com/athletic/6740066/2025/10/22/broncos-trade-deadlne-sean-payton-george-paton/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/22/business/general-motors-ai-self-driving.html
 **This Salmon Dinner Is Brilliant and Beautiful**\
 `Yewande Komolafe nestles crisp-skinned fillets into a mix of green beans and red pepper.`\
 https://nytimes.com/2025/10/22/dining/this-salmon-dinner-is-brilliant-and-beautiful.html
-
-**Lowetide: Is Oilers rookie Matt Savoie the new Jordan Eberle or Kailer Yamamoto?**\
-`Savoie has draft pedigree, high skill and enough pro experience to play a regular shift every game for the Oilers.`\
-https://nytimes.com/athletic/6736876/2025/10/22/edmonton-oilers-rookie-matt-savoie-jordan-eberle-kailer-yamamoto/
-
-**Google’s Quantum Computer Makes a Big Technical Leap**\
-`Designed to accelerate advances in medicine and other fields, the tech giant’s quantum algorithm runs 13,000 times as fast as software written for a traditional supercomputer.`\
-https://nytimes.com/2025/10/22/technology/googles-quantum-computer-leap.html
 
