@@ -1,3 +1,19 @@
+**NFL may expand international series to 9 games in 2026**\
+`"The definite idea is to get ourselves more to the maximum (of eight league-organized games)," plus the London game, Gerrit Meier said.`\
+https://nytimes.com/athletic/6740056/2025/10/22/nfl-international-games-2026-schedule/
+
+**Mikaela Shiffrin to focus on her best three events for 2026 Olympics**\
+`The Alpine skiing legend said she will concentrate on the slalom events and team combined after racing a full program in 2022 in Beijing.`\
+https://nytimes.com/athletic/6740515/2025/10/22/mikaela-shiffrin-2026-olympics-slalom-giant-slalom-team-combined/
+
+**Submit your questions for Jen McCaffrey's next Red Sox mailbag!**\
+`Submit your questions here by Sunday evening to have them included in her next Red Sox mailbag.`\
+https://nytimes.com/athletic/6740560/2025/10/22/red-sox-mailbag-submissions/
+
+**World Court Tells Israel to Facilitate Aid to Gaza**\
+`The International Court of Justice said Israel should work with U.N. agencies, not hinder their relief efforts in Gaza. The court’s opinions are not legally binding but carry symbolic weight.`\
+https://nytimes.com/2025/10/22/world/middleeast/icj-israel-gaza-aid.html
+
 **Man Wounded in Shooting Outside Serbian Parliament**\
 `A suspect was arrested in Serbia after a shooting and a blaze broke out among tents erected by supporters of President Aleksandar Vucic. One person sustained serious injuries, according to an official.`\
 https://nytimes.com/video/world/europe/100000010473795/serbia-parliament-shooting-fire.html
