@@ -1,3 +1,7 @@
+**Nostalgia, new TV subscriptions, MJ and billions? Welcome to the 2025-26 NBA season: MoneyCall**\
+`More in this week's sports business cheat sheet: Inside the NBA on ESPN, F1 x Apple, Dodgers exceptionalism and NHL Front Office Rankings.`\
+https://nytimes.com/athletic/6739955/2025/10/22/nba-peacock-amazon-prime-video-moneycall/
+
 **Maine U.S. Senate Candidate Apologizes for Tattoo With Nazi Links**\
 `Graham Platner, a Democrat, said he would remove the tattoo. He also sought to distance himself from old Reddit posts that drew criticism.`\
 https://nytimes.com/2025/10/22/us/politics/graham-platner-nazi-tattoo-maine.html
