@@ -1,3 +1,15 @@
+**Go on, my son: How football’s relationship with fatherhood has grown up**\
+`Even if the idea of taking paternity leave remains virtually unheard of in football, the experience of players becoming fathers is evolving`\
+https://nytimes.com/athletic/6718651/2025/10/22/football-fatherhood-premier-league-child-birth/
+
+**Why increased technical quality in football gives goalkeepers more reason to kick long**\
+`When attackers can receive long passes majestically, it's no surprise that this modernised version of route one football has gone down well`\
+https://nytimes.com/athletic/6706136/2025/10/22/goalkeeper-long-passes-premier-league/
+
+**Are Sean Dyche and Nottingham Forest a perfect tactical match?**\
+`The new Forest head coach should be able to get a familiar tune out of the squad he's inheriting at the City Ground`\
+https://nytimes.com/athletic/6733391/2025/10/22/sean-dyche-tactics-nottingham-forest/
+
 **Tyrique George, who nearly left Chelsea, lives by a 'humble and grateful' motto**\
 `Tyrique George nearly joined Fulham towards the end of the transfer window. But he is now getting his opportunities for Chelsea`\
 https://nytimes.com/athletic/6736086/2025/10/22/tyrique-george-chelsea-story-premier-league/
