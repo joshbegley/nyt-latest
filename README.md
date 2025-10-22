@@ -1,3 +1,19 @@
+**How to watch Cavaliers vs. Knicks: Time, TV, streaming**\
+`Find out how to watch the Cleveland Cavaliers play the New York Knicks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6740165/2025/10/22/cavaliers-vs-knicks-stream-how-to-watch-oct-22/
+
+**How to watch Wild vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Minnesota Wild play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6740162/2025/10/22/wild-vs-devils-stream-how-to-watch-oct-22/
+
+**How to watch Nets vs. Hornets: Time, TV, streaming**\
+`Find out how to watch the Brooklyn Nets play the Charlotte Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6740159/2025/10/22/nets-vs-hornets-stream-how-to-watch-oct-22/
+
+**How to watch Heat vs. Magic: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Orlando Magic, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6740156/2025/10/22/heat-vs-magic-stream-how-to-watch-oct-22/
+
 **G.M. Previews Talking Cars, Cheaper Batteries and Other New Tech**\
 `Drivers will be able to converse with an artificial intelligence assistant while cars largely drive themselves in certain situations, the company said.`\
 https://nytimes.com/2025/10/22/business/general-motors-ai-self-driving.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/22/arts/television/debora-cahn-the-diplomat.html
 ****\
 `Video by Michelle Groskopf`\
 https://nytimes.com/video/style/100000010474092/23LESLIE-JONES-VERT.html
-
-**Identifying the Bulls, and their outlook, ahead of the 2025-26 regular season**\
-`As the Bulls enter their 2025-26 season, here’s a breakdown of the 15-man roster that hopes to advance beyond the Play-In Tournament.`\
-https://nytimes.com/athletic/6738812/2025/10/22/chicago-bulls-roster-matas-buzelis-josh-giddey/
-
-**Vance Says He’s Optimistic Gaza’s Cease-Fire Would Hold**\
-`Vice President JD Vance met with Prime Minister Benjamin Netanyahu of Israel in Jerusalem and said that he was optimistic the Gaza cease-fire will hold. Recent flare-ups of violence in Gaza underscored the fragility of the truce.`\
-https://nytimes.com/video/world/middleeast/100000010473752/vance-gaza-ceasefire-optimism.html
-
-**Police chief defends decision to ban Maccabi Tel Aviv fans from Aston Villa game**\
-`"Birmingham hasn't failed anybody and neither has West Midlands Police," The WMP chief constable said.`\
-https://nytimes.com/athletic/6739965/2025/10/22/west-midlands-police-maccabi-tel-aviv-villa/
-
-**The Bounce: NBA's Game of the Year, already? Plus, a full night of hoops awaits**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6740002/2025/10/22/thunder-rockets-warriors-lakers-nba-the-bounce/
 
