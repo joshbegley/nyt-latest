@@ -1,3 +1,7 @@
+**Scoop City: Four big-name edge rushers unlikely to move**\
+`Trade deadline updates, moving on from successful regular-season coaches like Mike Tomlin, plus Mike Sando weighs in on the Jets`\
+https://nytimes.com/athletic/6740955/2025/10/22/nfl-trade-deadline-mike-tomlin-coaching-history/
+
 **Dollhouse At Amsterdam’s Rijksmuseum Is Taking Center Stage**\
 `Ordinarily on view in the museum’s permanent display, the doll’s house was moved to be the centerpiece of the exhibition “At Home in the 17th Century.”`\
 https://nytimes.com/video/arts/100000010466965/dollhouse-amsterdam-netherlands-rijksmuseum.html

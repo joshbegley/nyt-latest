@@ -1,3 +1,7 @@
+**Scoop City: Four big-name edge rushers unlikely to move**\
+`Trade deadline updates, moving on from successful regular-season coaches like Mike Tomlin, plus Mike Sando weighs in on the Jets`\
+https://nytimes.com/athletic/6740955/2025/10/22/nfl-trade-deadline-mike-tomlin-coaching-history/
+
 **Dollhouse At Amsterdam’s Rijksmuseum Is Taking Center Stage**\
 `Ordinarily on view in the museum’s permanent display, the doll’s house was moved to be the centerpiece of the exhibition “At Home in the 17th Century.”`\
 https://nytimes.com/video/arts/100000010466965/dollhouse-amsterdam-netherlands-rijksmuseum.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6740855/2025/10/22/spurs-vs-mavericks-stream-how-to
 **How to watch Pelicans vs. Grizzlies: Time, TV, streaming**\
 `Find out how to watch the New Orleans Pelicans play the Memphis Grizzlies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6740853/2025/10/22/pelicans-vs-grizzlies-stream-how-to-watch-oct-22/
-
-**How to watch Raptors vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the Toronto Raptors play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6740851/2025/10/22/raptors-vs-hawks-stream-how-to-watch-oct-22/
 
