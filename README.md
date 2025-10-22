@@ -1,13 +1,21 @@
+**How to watch Packers vs. Steelers: Time, TV, streaming**\
+`Find out how to watch the Green Bay Packers play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6739124/2025/10/22/packers-vs-steelers-stream-how-to-watch-oct-26/
+
+**Newcastle are a halfway to being a very good team**\
+`In outclassing Benfica, Eddie Howe's team showed they have the capacity to be evolve into something special`\
+https://nytimes.com/athletic/6738211/2025/10/22/newcastle-analysis-gordon-barnes-pope-howe/
+
 **Word of the Day: hiatus**\
 `This word has appeared in 334 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/10/22/learning/word-of-the-day-hiatus.html
 
 **John Stones, Manchester City's human pendulum, can still dictate games like few others can**\
-`Stones was a one-man metronome during City's 2-0 win over Villarreal. Few defenders are able to replicate his ability to dictate play`\
+`The centre-back’s display in Spain was a reminder that, when he is fit, there is no other defender in world football who can do what he does`\
 https://nytimes.com/athletic/6737283/2025/10/22/john-stones-manchester-city-champions-league/
 
 **Just set pieces and dogged defending? Now Arsenal show they can do adventure too**\
-`Rout of Atletico showed how Arteta is evolving his team into an open, attacking force`\
+`The home win over Atletico Madrid showed how Mikel Arteta is evolving his team into an open, attacking force`\
 https://nytimes.com/athletic/6738287/2025/10/22/arsenal-attack-arteta-martinelli-gyokeres/
 
 **Donald Trump’s New World Disorder**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6725773/2025/10/22/yankuba-minteh-brighton-analysis
 **Crystal Palace have the Premier League’s best attack – and low crosses are their secret weapon**\
 `Crystal Palace are transformed under Glasner. Here's how they use their wing-backs and low crosses to devastating effect`\
 https://nytimes.com/athletic/6736365/2025/10/22/crystal-palace-low-crosses-xg-premier-league/
-
-**Xavi Simons and the Horseshoe of Doom (...and what Spurs must change to help their No 10)**\
-`Tottenham's big-money summer signing has struggled to shine in the early weeks of the season – but it isn't entirely his fault`\
-https://nytimes.com/athletic/6736477/2025/10/22/xavi-simons-tottenham-creativity-form/
-
-**Matheus Cunha brings grit and skill to United… but also much-needed moxie**\
-`The Brazilian forward has yet to score or assist for United — but in closing out the win over Liverpool, he demonstrated his other qualities`\
-https://nytimes.com/athletic/6654179/2025/10/22/manchesrer-united-matheus-cunha-amorim-liverpool-analysis/
 
