@@ -1,3 +1,7 @@
+**Sean Payton says he didn't intend to take dig at his former QB Russell Wilson**\
+`While praising Giants rookie QB Jaxson Dart on Sunday, Payton took what was viewed as a not-so-subtle dig at Wilson.`\
+https://nytimes.com/athletic/6741253/2025/10/22/denver-broncos-russell-wilson-sean-payton-dig/
+
 **What to Know About the Moderators of the Second N.Y.C. Mayoral Debate**\
 `Errol Louis of Spectrum News NY1, Brian Lehrer of WNYC and Katie Honan of The City are moderating Wednesday’s debate.`\
 https://nytimes.com/2025/10/22/nyregion/nyc-mayoral-debate-moderators.html
