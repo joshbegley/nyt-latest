@@ -1,3 +1,7 @@
+**Michael Jordan debuts as NBA contributor, reflects on family and legacy**\
+`Jordan told NBC's Mike Tirico he hadn't picked up a basketball in years — until recently.`\
+https://nytimes.com/athletic/6738719/2025/10/21/michael-jordan-nba-nbc-halftime/
+
 **Bubbly Bar**\
 `Jesse Guzman adds to our lexicon.`\
 https://nytimes.com/2025/10/21/crosswords/daily-puzzle-2025-10-22.html
