@@ -1,3 +1,19 @@
+**Trump Wants the American People to Pay Him $230 Million**\
+`Trump should pay a political price for his brazen corruption. Instead, he is telling American taxpayers to pay a price, directly to him.`\
+https://nytimes.com/2025/10/22/opinion/trump-230-million-justice-department.html
+
+**What’s in Our Queue? ‘Goal for One’ and More**\
+`Text by Amy Chang Chien`\
+https://nytimes.com/card/2025/10/22/arts/editors-recommendations-goalforone
+
+**Trump’s Ballroom Is a National ‘Desecration’**\
+`Readers respond to the makeover of the East Wing of the White House. Also: President Trump’s demand for compensation from the Justice Department.`\
+https://nytimes.com/2025/10/22/opinion/trump-ballroom-east-wing.html
+
+**As Shutdown Drags and Trump Flexes, Congress Cedes Its Relevance**\
+`“It’s like we have given up,” one Republican lawmaker said.`\
+https://nytimes.com/2025/10/22/us/politics/trump-shutdown-congress-power.html
+
 **What I'm hearing on Chucky Lozano's MLS playoff status, Revs coaching search**\
 `The reason for the Mexican international's absence, plus an update on his high-profile teammate, a coaching search and more`\
 https://nytimes.com/athletic/6740601/2025/10/22/chucky-lozano-san-diego-fc-mls-playoffs-de-la-torre-revolution-coach/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6740498/2025/10/22/sean-dyche-nottingham-forst-anal
 **Why Weren’t the Jewels Stolen From the Louvre Insured?**\
 `Thieves snatched jewelry valued at more than $100 million, but the museum will not be compensated for the loss.`\
 https://nytimes.com/2025/10/22/business/louvre-robbery-jewelry-heist-insurance.html
-
-**Larry David Takes the Stage for an Amusing but Not-So-Revealing Chat**\
-`At the Beacon, he shared details about “Seinfeld” and “Curb Your Enthusiasm,” but on more topical subjects, like his ex-castmate Cheryl Hines, he kept mum.`\
-https://nytimes.com/2025/10/22/arts/larry-david-live-beacon-theater.html
-
-**Trump Administration Cuts Cyberdefense Even as Threats Grow**\
-`China has penetrated networks that control infrastructure systems and has hacked telecommunications companies.`\
-https://nytimes.com/2025/10/22/us/politics/trump-cyber-threats.html
-
-**PGA Tour cancels The Sentry, delaying start to 2026 season**\
-`Environmental concerns forced the tour to leave Kapalua’s Plantation Course, its host venue since 1999.`\
-https://nytimes.com/athletic/6723484/2025/10/22/pga-tour-the-sentry-2026-canceled/
-
-**NFL won't replace Bad Bunny as Super Bowl performer, Goodell says**\
-`The show will be "an exciting, united moment," Goodell said Wednesday at the league’s fall meeting.`\
-https://nytimes.com/athletic/6740407/2025/10/22/nfl-super-bowl-bad-bunny-halftime/
 

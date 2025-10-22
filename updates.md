@@ -1,3 +1,19 @@
+**Trump Wants the American People to Pay Him $230 Million**\
+`Trump should pay a political price for his brazen corruption. Instead, he is telling American taxpayers to pay a price, directly to him.`\
+https://nytimes.com/2025/10/22/opinion/trump-230-million-justice-department.html
+
+**What’s in Our Queue? ‘Goal for One’ and More**\
+`Text by Amy Chang Chien`\
+https://nytimes.com/card/2025/10/22/arts/editors-recommendations-goalforone
+
+**Trump’s Ballroom Is a National ‘Desecration’**\
+`Readers respond to the makeover of the East Wing of the White House. Also: President Trump’s demand for compensation from the Justice Department.`\
+https://nytimes.com/2025/10/22/opinion/trump-ballroom-east-wing.html
+
+**As Shutdown Drags and Trump Flexes, Congress Cedes Its Relevance**\
+`“It’s like we have given up,” one Republican lawmaker said.`\
+https://nytimes.com/2025/10/22/us/politics/trump-shutdown-congress-power.html
+
 **What I'm hearing on Chucky Lozano's MLS playoff status, Revs coaching search**\
 `The reason for the Mexican international's absence, plus an update on his high-profile teammate, a coaching search and more`\
 https://nytimes.com/athletic/6740601/2025/10/22/chucky-lozano-san-diego-fc-mls-playoffs-de-la-torre-revolution-coach/
