@@ -1,3 +1,7 @@
+**NBA returns to NBC, leaning into nostalgia, familiar voices and Michael Jordan: Review**\
+`Maybe it was the nostalgia kicking in, but Tuesday felt bigger than usual for the NBA as it returned to NBC for the first time since 2002.`\
+https://nytimes.com/athletic/6723225/2025/10/22/nba-nbc-michael-jordan-mike-tirico/
+
 **Michigan has become a hotbed of college football recruiting battles. Donald Tabron is next**\
 `Bryce Underwood, Dante Moore and CJ Carr are all from southeast Michigan. Next up? The battle for Donald Tabron in the Class of 2028.`\
 https://nytimes.com/athletic/6736723/2025/10/22/donald-tabron-michigan-quarterback-recruiting-cass-tech/
