@@ -1,3 +1,15 @@
+**Does Your Electric Bill Keep Going Up? We Want to See It.**\
+`Utility rates are rising in many places across the country, and we’re continuing to report on the causes and impacts.`\
+https://nytimes.com/2025/10/22/business/energy-environment/electric-bill-questionnaire.html
+
+**NFL Week 8 confidence picks: These five teams will cover**\
+`KC Joyner gives his NFL confidence picks, both straight up and against the spread, for every Week 8 game.`\
+https://nytimes.com/athletic/6739535/2025/10/22/nfl-week-8-confidence-picks-betting/
+
+**London Woman Who Was Fined After Pouring Coffee in Drain Gets a Break**\
+`A social media outcry arose after she was given a fine of 150 pounds for pouring out “a tiny little bit” of coffee before boarding a bus.`\
+https://nytimes.com/2025/10/22/world/europe/woman-pours-coffee-down-drain-fine.html
+
 **NFL moves Pro Bowl to Super Bowl week to lean into flag football**\
 `With Super Bowl LX scheduled for Feb. 8 at Levi’s Stadium in Santa Clara, Calif., the Pro Bowl flag football game will be Tuesday, Feb. 3.`\
 https://nytimes.com/athletic/6740192/2025/10/22/roger-goodell-pro-bowl-super-bowl-lx/
