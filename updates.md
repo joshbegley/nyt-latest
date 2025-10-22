@@ -1,3 +1,11 @@
+**Why Hugo Ekitike has been Liverpool's bright spark: Extra gym work, adding pace, settled off the pitch**\
+`The forward has found his feet quickest among new recruits and established a close bond with the Liverpool fanbase – this is how he did it`\
+https://nytimes.com/athletic/6736386/2025/10/22/hugo-ekitike-liverpool-promising-start/
+
+**Real Madrid's mentality worries put extra pressure on Xabi Alonso**\
+`The Spanish giants play three key matches over the next two weeks, having badly failed their first big test in September`\
+https://nytimes.com/athletic/6737038/2025/10/22/real-madrid-xabi-alonso-mentality-leadership/
+
 **Go on, my son: How football’s relationship with fatherhood has grown up**\
 `Even if the idea of taking paternity leave remains virtually unheard of in football, the experience of players becoming fathers is evolving`\
 https://nytimes.com/athletic/6718651/2025/10/22/football-fatherhood-premier-league-child-birth/

@@ -1,3 +1,11 @@
+**Why Hugo Ekitike has been Liverpool's bright spark: Extra gym work, adding pace, settled off the pitch**\
+`The forward has found his feet quickest among new recruits and established a close bond with the Liverpool fanbase – this is how he did it`\
+https://nytimes.com/athletic/6736386/2025/10/22/hugo-ekitike-liverpool-promising-start/
+
+**Real Madrid's mentality worries put extra pressure on Xabi Alonso**\
+`The Spanish giants play three key matches over the next two weeks, having badly failed their first big test in September`\
+https://nytimes.com/athletic/6737038/2025/10/22/real-madrid-xabi-alonso-mentality-leadership/
+
 **Go on, my son: How football’s relationship with fatherhood has grown up**\
 `Even if the idea of taking paternity leave remains virtually unheard of in football, the experience of players becoming fathers is evolving`\
 https://nytimes.com/athletic/6718651/2025/10/22/football-fatherhood-premier-league-child-birth/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6738015/2025/10/22/connections-sports-edition-hints
 **Fantasy football rankings Week 8: Sleepers, starts, Chuba Hubbard, Stefon Diggs, projections**\
 `Jake Ciely runs through his player rankings for Week 8, and touts a potential bounce-back effort for Patriots receiver Stefon Diggs.`\
 https://nytimes.com/athletic/6737978/2025/10/22/fantasy-football-rankings-week-8-sleepers-starts-projections/
-
-**The Louvre’s Attraction Is Its History. That’s Also Its Weakness.**\
-`The brazen robbery on Sunday has put a spotlight on security protocols in the sprawling museum, which have been tested over the years by break-ins and thefts.`\
-https://nytimes.com/2025/10/22/arts/design/louvre-security-history.html
-
-**Silicon Valley Has China Envy, and That Reveals a Lot About America**\
-`The fascination with China’s ability to build things America struggles with, from bridges to advanced tech, risks a dangerous miscalculation about what drives China.`\
-https://nytimes.com/2025/10/22/business/china-tech-silicon-valley.html
 
