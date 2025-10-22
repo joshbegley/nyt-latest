@@ -1,5 +1,13 @@
+**Man Wounded in Shooting Outside Serbian Parliament**\
+`A suspect was arrested in Serbia after a shooting and a blaze broke out among tents erected by supporters of President Aleksandar Vucic. One person sustained serious injuries, according to an official.`\
+https://nytimes.com/video/world/europe/100000010473795/serbia-parliament-shooting-fire.html
+
+**Inquiry Into Death of Teen Found in D4vd’s Tesla Continues: What to Know**\
+`The remains of Celeste Rivas Hernandez, who died before her 15th birthday, were found in the artist’s vehicle after it was towed to an impound lot, officials said.`\
+https://nytimes.com/article/d4vd-tesla-body-murder-investigation.html
+
 **Alexander Bublik calls Valentin Vacherot's Shanghai Masters title 'failure' by ATP players**\
-`Bublik expressed frustration over Vacherot's rising from No.204 to win the Shanghai Masters, describing it as a collective failure.`\
+`Bublik questioned how he and his peers could not stop Vacherot's rising from world No. 204 to win the ATP Masters 1000 event.`\
 https://nytimes.com/athletic/6740253/2025/10/22/alexander-bublik-valentin-vacherot-shanghai-masters-atp-tour/
 
 **D-Backs' Amiel Sawdaye, Guardians' Matt Forman are finalists for Rockies GM**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6740319/2025/10/22/michael-jordan-nbc-nba-tv-halfti
 **Jayden Daniels out for Commanders game at Chiefs; Marcus Mariota will start**\
 `The game will be Daniels’ third missed start this season because of injuries.`\
 https://nytimes.com/athletic/6740441/2025/10/22/jayden-daniels-out-commanders-chiefs-hamstring/
-
-**Tony Vitello to the San Francisco Giants is a risk, but what an entertaining risk it will be**\
-`If he wins and has staying power, Vitello could be one of the game’s colorful personalities. Think Billy Martin crossed with Yogi Berra.`\
-https://nytimes.com/athletic/6736821/2025/10/22/giants-hire-tony-vitello-risk/
-
-**China’s Control of Rare Earths Has U.S. Scrambling to Find Alternatives**\
-`The Trump administration is trying an array of unconventional measures to shore up U.S. rare earths supplies. It remains uncertain whether the strategy will work.`\
-https://nytimes.com/2025/10/22/us/politics/china-trump-rare-earths.html
 
