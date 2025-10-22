@@ -1,3 +1,7 @@
+**Louvre Reopens for First Time Since Brazen Jewelry Robbery**\
+`French authorities are under growing scrutiny about whether security failings allowed four thieves to steal royal jewelry worth over $100 million.`\
+https://nytimes.com/2025/10/22/world/europe/louvre-museum-robbery-open-paris.html
+
 **The Steelers' underperforming defense has one particular, explosive problem**\
 `Mike Tomlin's defense is looking for answers after a poor performance in a loss to the Bengals.`\
 https://nytimes.com/athletic/6738116/2025/10/22/pittsburgh-steelers-defensive-struggles/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/22/style/abbode-sabrina-carpenter-snl.html
 **Is Money a Problem in Your Relationship? Tell Us About It.**\
 `Share your story and we’ll get you some advice for how to ease the tension.`\
 https://nytimes.com/2025/10/22/podcasts/is-money-a-problem-in-your-relationship-tell-us-about-it.html
-
-**Workers and Employers Face Higher Health Insurance Costs**\
-`A new employer survey shows premiums for a family climbed in 2025 as companies and their workers pay more for coverage.`\
-https://nytimes.com/2025/10/22/health/workers-and-employers-face-higher-health-insurance-costs.html
 

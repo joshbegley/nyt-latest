@@ -1,3 +1,11 @@
+**World Series predictions: Our experts on who should throw out the ceremonial first pitches**\
+`Orel Hershiser and Joe Carter? Kendrick Lamar and Drake? The first pitch possibilities are endless for our World Series clubs.`\
+https://nytimes.com/athletic/6738678/2025/10/22/2025-world-series-predictions-experts-first-pitches/
+
+**Why so serious? Tyrese Maxey talks letting go of last season and becoming a leader**\
+`Maxey's durabilty and ability to play at a high level will go a long way towards determing what the 76ers are or aren't this season.`\
+https://nytimes.com/athletic/6733810/2025/10/22/sixers-tyrese-maxey-nba-season-opener/
+
 **Louvre Reopens for First Time Since Brazen Jewelry Robbery**\
 `French authorities are under growing scrutiny about whether security failings allowed four thieves to steal royal jewelry worth over $100 million.`\
 https://nytimes.com/2025/10/22/world/europe/louvre-museum-robbery-open-paris.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/22/climate/methane-leaks-united-nations.html
 **Takeaways From the Times Magazine Story on Testosterone and Sex Drive**\
 `Here’s when and why experts think testosterone should be prescribed to middle-aged women, and how it affects their lives.`\
 https://nytimes.com/2025/10/22/magazine/women-testosterone-libido-energy-side-effects.html
-
-**A Buzzy Embroidery Shop Manifests a Dream Endorsement**\
-`Sabrina Carpenter had Abbode, a parlor in Manhattan, customize a shirt for her “Saturday Night Live” appearance. The founder’s phone hasn’t stopped ringing.`\
-https://nytimes.com/2025/10/22/style/abbode-sabrina-carpenter-snl.html
-
-**Is Money a Problem in Your Relationship? Tell Us About It.**\
-`Share your story and we’ll get you some advice for how to ease the tension.`\
-https://nytimes.com/2025/10/22/podcasts/is-money-a-problem-in-your-relationship-tell-us-about-it.html
 

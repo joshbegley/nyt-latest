@@ -1,3 +1,7 @@
+**Louvre Reopens for First Time Since Brazen Jewelry Robbery**\
+`French authorities are under growing scrutiny about whether security failings allowed four thieves to steal royal jewelry worth over $100 million.`\
+https://nytimes.com/2025/10/22/world/europe/louvre-museum-robbery-open-paris.html
+
 **The Steelers' underperforming defense has one particular, explosive problem**\
 `Mike Tomlin's defense is looking for answers after a poor performance in a loss to the Bengals.`\
 https://nytimes.com/athletic/6738116/2025/10/22/pittsburgh-steelers-defensive-struggles/
