@@ -1,3 +1,7 @@
+**Senator Merkley Rings ‘the Alarm Bells’ on Authoritarianism in Nearly 23-Hour Speech**\
+`The Oregon Democrat achieved a goal of topping the previous longest speech by a senator from his state.`\
+https://nytimes.com/2025/10/22/us/politics/senator-merkley-speech-trump.html
+
 **“You could turn on TV any day of the week and you will hear Donald Trump share that his pick for mayor is Andrew Cuomo. And he wants Andrew Cuomo to be the mayor.”**\
 `By Benjamin Oreskes`\
 https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/you-could-turn-on-tv-any-day-of-the-week-and-you-will-hear-donald-trump-share-that-his-pick-for-mayor-is-andrew-cuomo-and-he-wan

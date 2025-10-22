@@ -1,3 +1,7 @@
+**“He doesn’t control the rent guidelines board. So nothing is going to happen.”**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/he-doesnt-control-the-rent-guidelines-board-so-nothing-is-going-to-happen
+
 **Senator Merkley Rings ‘the Alarm Bells’ on Authoritarianism in Nearly 23-Hour Speech**\
 `The Oregon Democrat achieved a goal of topping the previous longest speech by a senator from his state.`\
 https://nytimes.com/2025/10/22/us/politics/senator-merkley-speech-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/22/style/tiny-love-modern-love-stories-that-changed-
 **Samantha Eggar, Oscar-Nominated Star of ‘The Collector,’ Dies at 86**\
 `She also had leading roles in “Doctor Dolittle” with Rex Harrison, “Walk, Don’t Run” with Cary Grant and “The Molly Maguires” with Sean Connery.`\
 https://nytimes.com/2025/10/22/movies/samantha-eggar-dead.html
-
-**NCAA will not implement 'five-for-five' eligibility rules any time soon, internal memo says**\
-`The NCAA to keep four-year eligibility rule through 2026-27, ending the debate (for now) about a "five-for-five" model.`\
-https://nytimes.com/athletic/6741377/2025/10/22/ncaa-will-not-implement-5-for-5-eligibility-rules/
 
