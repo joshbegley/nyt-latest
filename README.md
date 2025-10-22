@@ -1,3 +1,7 @@
+**Nostalgia, new TV subscriptions, MJ and billions? Welcome to the 2025-26 NBA season: MoneyCall**\
+`More in this week's sports business cheat sheet: Inside the NBA on ESPN, F1 x Apple, Dodgers exceptionalism and NHL Front Office Rankings.`\
+https://nytimes.com/athletic/6739955/2025/10/22/nba-peacock-amazon-prime-video-moneycall/
+
 **Maine U.S. Senate Candidate Apologizes for Tattoo With Nazi Links**\
 `Graham Platner, a Democrat, said he would remove the tattoo. He also sought to distance himself from old Reddit posts that drew criticism.`\
 https://nytimes.com/2025/10/22/us/politics/graham-platner-nazi-tattoo-maine.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/10/22/us/trump-news/the-nato-chief-and-trump-will-
 **Man Is Shot and Tents Set on Fire Outside Serbia’s Parliament**\
 `A suspect was arrested after a blaze broke out among structures erected by supporters of President Aleksandar Vucic. Protests against his government have rumbled for months.`\
 https://nytimes.com/2025/10/22/world/europe/serbia-shots-fire-parliament-protest.html
-
-**Yomiuri Giants slugger Kazuma Okamoto to be posted for MLB teams**\
-`Okamoto hit at least 30 home runs each season from 2018 to 2023.`\
-https://nytimes.com/athletic/6739680/2025/10/22/kazuma-okamoto-posted-mlb-signing-yomiuri-giants/
 
