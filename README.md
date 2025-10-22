@@ -1,3 +1,7 @@
+**The 24 Wikipedia pages for NHL rivalries, ranked by their single wildest passage**\
+`From Whoopi Goldberg sitcoms to framing innocent away fans to brawls in Santa costumes, there's a lot of gold in NHL Wikipedia writeups.`\
+https://nytimes.com/athletic/6738183/2025/10/22/nhl-rivalries-wikipedia-ranking/
+
 **Thai Official Resigns Over Allegations of Links to Scam Network**\
 `Thailand’s deputy finance minister, Vorapak Tanyawong, was accused of ties to the Cambodian cybercrime hubs he had been appointed to combat.`\
 https://nytimes.com/2025/10/22/world/asia/thailand-minister-resigns-cambodia-scam-networks.html
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6739098/2025/10/22/arsenal-atletico-champions-leagu
 `Potential bidders are circling the media company as it weighs its deal options. But financial and regulatory questions hang over everything.`\
 https://nytimes.com/2025/10/22/business/dealbook/warner-bros-discovery-paramount-sale.html
 
-**Russia Hits Power Plants and Kindergarten Hours After Trump Delays Summit**\
+**Russia Hits Kindergarten and Power Plants Hours After Trump Delays Summit**\
 `President Volodymyr Zelensky of Ukraine said the overnight assault showed that Russia “clearly doesn’t feel enough pressure to stop prolonging the war.”`\
 https://nytimes.com/2025/10/22/world/europe/russia-ukraine-putin-trump.html
 
 **Trump Administration Live Updates: President to Meet With NATO Head in Washington**\
 ``\
 https://nytimes.com/live/2025/10/22/us/trump-news
-
-**‘The Hand That Rocks the Cradle’ Review: Down Comes Baby**\
-`A reimagined version of the 1992 film, directed by Michelle Garza Cervera, manages to be more chilly than chilling.`\
-https://nytimes.com/2025/10/22/movies/the-hand-that-rocks-the-cradle-review.html
 

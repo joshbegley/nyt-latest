@@ -1,3 +1,11 @@
+**Thai Official Resigns Over Allegations of Links to Scam Network**\
+`Thailand’s deputy finance minister, Vorapak Tanyawong, was accused of ties to the Cambodian cybercrime hubs he had been appointed to combat.`\
+https://nytimes.com/2025/10/22/world/asia/thailand-minister-resigns-cambodia-scam-networks.html
+
+**A Swampy New York City Neighborhood Could Get a $146 Million Upgrade**\
+`A housing and infrastructure plan has been proposed to address longstanding problems in the Hole, a poor and flood-prone area on the border of Brooklyn and Queens.`\
+https://nytimes.com/2025/10/22/nyregion/the-hole-infrastructure-flooding.html
+
 **Eight Eagles Thoughts: Top 5 Jalen Hurts games, DeVonta Smith shines, Brandon Graham's role**\
 `Plus, thoughts on what the Eagles should do with the trade deadline approaching.`\
 https://nytimes.com/athletic/6738251/2025/10/22/eagles-top-5-jalen-hurts-games-devonta-smith-brandon-graham-role/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/10/22/us/trump-news
 **‘The Hand That Rocks the Cradle’ Review: Down Comes Baby**\
 `A reimagined version of the 1992 film, directed by Michelle Garza Cervera, manages to be more chilly than chilling.`\
 https://nytimes.com/2025/10/22/movies/the-hand-that-rocks-the-cradle-review.html
-
-**Is Nebraska's no-show against Minnesota sign of deeper problem? Answer is up to Matt Rhule**\
-`"We completely failed," Rhule said. And he implicated himself. "It rests on my shoulders." `\
-https://nytimes.com/athletic/6738458/2025/10/22/nebraska-no-show-minnesota-problem-matt-rhule/
-
-**Are the Dodgers 4 wins away from a dynasty? 'We have an opportunity to do that'**\
-`Dodgers' Miguel Rojas said: "Everybody is consumed with winning a World Series. That’s the only celebration we want to really have." `\
-https://nytimes.com/athletic/6738285/2025/10/22/are-the-dodgers-four-wins-away-from-a-dynasty-we-have-an-opportunity-to-do-that/
 

@@ -1,3 +1,11 @@
+**Thai Official Resigns Over Allegations of Links to Scam Network**\
+`Thailand’s deputy finance minister, Vorapak Tanyawong, was accused of ties to the Cambodian cybercrime hubs he had been appointed to combat.`\
+https://nytimes.com/2025/10/22/world/asia/thailand-minister-resigns-cambodia-scam-networks.html
+
+**A Swampy New York City Neighborhood Could Get a $146 Million Upgrade**\
+`A housing and infrastructure plan has been proposed to address longstanding problems in the Hole, a poor and flood-prone area on the border of Brooklyn and Queens.`\
+https://nytimes.com/2025/10/22/nyregion/the-hole-infrastructure-flooding.html
+
 **Eight Eagles Thoughts: Top 5 Jalen Hurts games, DeVonta Smith shines, Brandon Graham's role**\
 `Plus, thoughts on what the Eagles should do with the trade deadline approaching.`\
 https://nytimes.com/athletic/6738251/2025/10/22/eagles-top-5-jalen-hurts-games-devonta-smith-brandon-graham-role/
