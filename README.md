@@ -2,7 +2,7 @@
 `After 16 seasons in black and gold, returning to Boston as a member of the Florida Panthers hit Marchand unexpectedly hard.`\
 https://nytimes.com/athletic/6738860/2025/10/21/brad-marchand-boston-bruins-return-panthers/
 
-**Kevin Durant's timeout miscue in OT didn't penalize the Thunder**\
+**Kevin Durant's timeout miscue in OT didn't penalize the Rockets**\
 `Tuesday's Rockets-Thunder opener was impacted by a timeout miscue. What went wrong in Oklahoma City?`\
 https://nytimes.com/athletic/6738842/2025/10/21/kevin-durant-timeout-oversight-in-ot-raises-questions-in-rockets-thunder-opener/
 
