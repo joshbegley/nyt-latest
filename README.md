@@ -1,4 +1,4 @@
-**‘Just couldn’t hold it in’: Marchand's Boston return and the tears that would not stop**\
+**'Just couldn’t hold it in': Marchand's Boston return and the tears that would not stop**\
 `After 16 seasons in black and gold, returning to Boston as a member of the Florida Panthers hit Marchand unexpectedly hard.`\
 https://nytimes.com/athletic/6738860/2025/10/21/brad-marchand-boston-bruins-return-panthers/
 
