@@ -1,3 +1,11 @@
+**Why Rural America Turned on the Democratic Party**\
+`President Trump’s deployment of the National Guard from red states into blue cities isn’t just a partisan attack; it’s also a geographic one.`\
+https://nytimes.com/video/opinion/100000010465649/why-rural-america-turned-on-the-democratic-party.html
+
+**'This keeps happening.' Gerald McCoy reflects on death of a fifth former NFL teammate**\
+`Former NFL All-Pro Gerald McCoy has seen five of his former teammates die, all before the age of 40. Doug Martin was the latest.`\
+https://nytimes.com/athletic/6738403/2025/10/22/nfl-doug-martin-death-gerald-mccoy/
+
 **‘Blue Cowboy’ Review: A Surprising Love Rides Into Town**\
 `David Cale’s astonishing one-man show in Brooklyn erects some familiar signposts before swerving into the unexpected.`\
 https://nytimes.com/2025/10/22/theater/blue-cowboy-review-david-cale.html

@@ -1,3 +1,7 @@
+**New York Names a Street in Honor of Jean-Michel Basquiat**\
+`A stretch of Great Jones Street where the artist lived and worked now goes by “Jean-Michel Basquiat Way.”`\
+https://nytimes.com/2025/10/22/style/new-york-names-a-street-in-honor-of-jean-michel-basquiat.html
+
 **Why Rural America Turned on the Democratic Party**\
 `President Trump’s deployment of the National Guard from red states into blue cities isn’t just a partisan attack; it’s also a geographic one.`\
 https://nytimes.com/video/opinion/100000010465649/why-rural-america-turned-on-the-democratic-party.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6740162/2025/10/22/wild-vs-devils-stream-how-to-wat
 **How to watch Nets vs. Hornets: Time, TV, streaming**\
 `Find out how to watch the Brooklyn Nets play the Charlotte Hornets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6740159/2025/10/22/nets-vs-hornets-stream-how-to-watch-oct-22/
-
-**How to watch Heat vs. Magic: Time, TV, streaming**\
-`Find out how to watch the Miami Heat play the Orlando Magic, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6740156/2025/10/22/heat-vs-magic-stream-how-to-watch-oct-22/
 
