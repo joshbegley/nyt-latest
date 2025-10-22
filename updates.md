@@ -1,3 +1,23 @@
+**Toronto Tempo expected to hire Sandy Brondello as franchise's coach: Source**\
+`Toronto has a proven WNBA winner and a coach in Brondello, who demonstrates the ability to connect with her players.`\
+https://nytimes.com/athletic/6741057/2025/10/22/toronto-tempo-sandy-brondello-head-coach/
+
+**Jackie Ferrara, Artist Who Brought Mystery to Minimalism, Dies at 95**\
+`While others made sleek metallic sculptures, she favored humble materials like lumber and glue. The Times called her “one of our most gifted and inventive sculptors.”`\
+https://nytimes.com/2025/10/22/arts/jackie-ferrara-dead.html
+
+**The Briefing: Chelsea 5 Ajax 1 - Excellent Estevao leads the way as Maresca gets tactics spot on**\
+`Our writers analyse and evaluate the key talking points from Chelsea's resounding victory over Ajax at home in the Champions League`\
+https://nytimes.com/athletic/6740719/2025/10/22/chelsea-ajax-champions-league-briefing/
+
+**Massapequa Schools Sue N.Y. State to Preserve Gender Rules in Bathrooms**\
+`National cultural issues have pervaded Nassau County as its Republican leaders have embraced President Trump’s brand of politics. The schools want students to use the bathrooms that align with their gender at birth.`\
+https://nytimes.com/2025/10/22/nyregion/massapequa-new-york-bathroom-lawsuit.html
+
+**The Briefing: Monaco 0 Tottenham 0 - Vicario saves Spurs blushes as creativity issues continue**\
+`Tottenham Hotspur escaped from Monaco with a crucial Champions League point, despite being out-played by Monaco`\
+https://nytimes.com/athletic/6740325/2025/10/22/monaco-0-tottenham-0-champions-league/
+
 **Massapequa Schools Sue N.Y. State to Preserve Restrictive Bathroom Rules**\
 `National cultural issues have pervaded Nassau County as its Republican leaders have embraced President Trump’s brand of politics.`\
 https://nytimes.com/2025/10/22/nyregion/massapequa-new-york-bathroom-lawsuit.html

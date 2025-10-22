@@ -11,7 +11,7 @@ https://nytimes.com/2025/10/22/arts/jackie-ferrara-dead.html
 https://nytimes.com/athletic/6740719/2025/10/22/chelsea-ajax-champions-league-briefing/
 
 **Massapequa Schools Sue N.Y. State to Preserve Gender Rules in Bathrooms**\
-`National cultural issues have pervaded Nassau County as its Republican leaders have embraced President Trump’s brand of politics. The schools want students to use the bathrooms that align with their gender at birth.`\
+`National cultural issues have pervaded Nassau County as its Republican leaders have embraced President Trump’s brand of politics. The schools want students to use the bathrooms that align with their sex assigned at birth.`\
 https://nytimes.com/2025/10/22/nyregion/massapequa-new-york-bathroom-lawsuit.html
 
 **The Briefing – Real Madrid 1 Juventus 0: Jude Bellingham's first goal of the season the difference at the Bernabeu**\
