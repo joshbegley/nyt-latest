@@ -1,3 +1,7 @@
+**On opening night, at least, the Warriors turn back time against the Lakers**\
+`Golden State looked like a spry contender on Tuesday night. But can it stay healthy into May and June?`\
+https://nytimes.com/athletic/6739443/2025/10/22/warriors-steph-curry-draymond-green-tip-off-lakers-age/
+
 **Smith: Is F1's greatest championship comeback brewing?**\
 `Max Verstappen has erased Oscar Piastri's points lead. We could be witnessing something very special`\
 https://nytimes.com/athletic/6738436/2025/10/22/max-verstappen-f1-championship-2025-comeback/
