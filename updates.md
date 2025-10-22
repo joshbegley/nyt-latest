@@ -1,3 +1,7 @@
+**What Questions Do You Have for The Times’s Top Editor, Joe Kahn?**\
+`Our executive editor will be answering your questions as part of a conversation about Times coverage and decision-making. Let us know what you’re curious about.`\
+https://nytimes.com/2025/10/21/briefing/reader-questions-for-joe-kahn.html
+
 **On the Menu in New York: One Repair, Coming Right Up**\
 `Monthly “repair cafes” aim to bring neighbors together while keeping all manner of items out of the trash.`\
 https://nytimes.com/2025/10/21/climate/on-the-menu-in-new-york-one-repair-coming-right-up.html

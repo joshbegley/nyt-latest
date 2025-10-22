@@ -1,3 +1,7 @@
+**What Questions Do You Have for The Times’s Top Editor, Joe Kahn?**\
+`Our executive editor will be answering your questions as part of a conversation about Times coverage and decision-making. Let us know what you’re curious about.`\
+https://nytimes.com/2025/10/21/briefing/reader-questions-for-joe-kahn.html
+
 **On the Menu in New York: One Repair, Coming Right Up**\
 `Monthly “repair cafes” aim to bring neighbors together while keeping all manner of items out of the trash.`\
 https://nytimes.com/2025/10/21/climate/on-the-menu-in-new-york-one-repair-coming-right-up.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/21/nyregion/nyc-raid-canal-st-agents-ice.html
 **Federal Agents Detain Several Men During New York City Raid**\
 `Masked federal agents detained several men in Lower Manhattan on Tuesday, near an area where vendors sell illegal counterfeit goods.`\
 https://nytimes.com/video/us/politics/100000010473142/new-york-city-immigration-raid-arrests.html
-
-**Chiefs star Travis Kelce's latest venture is literal roller coaster**\
-`Kelce and JANA Partners announced a $200 million investment in Six Flags Entertainment on Tuesday.`\
-https://nytimes.com/athletic/6738088/2025/10/21/travis-kelce-jana-partners-six-flags-investment/
 
