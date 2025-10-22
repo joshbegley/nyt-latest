@@ -1,3 +1,15 @@
+**“You could turn on TV any day of the week and you will hear Donald Trump share that his pick for mayor is Andrew Cuomo. And he wants Andrew Cuomo to be the mayor.”**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/you-could-turn-on-tv-any-day-of-the-week-and-you-will-hear-donald-trump-share-that-his-pick-for-mayor-is-andrew-cuomo-and-he-wan
+
+**Pentagon Announces ‘Next Generation’ Press Corps**\
+`The Defense Department said that dozens of new reporters had agreed to sign the Pentagon’s rules on reporting, which have been rejected by many major news organizations.`\
+https://nytimes.com/2025/10/22/business/media/pentagon-press-reporters.html
+
+**Dozens of Unidentified Palestinians Buried in Mass Grave in Gaza**\
+`The bodies of 54 unidentified Palestinians were laid to rest at a mass burial site in Gaza. The bodies were returned by Israel to Gaza as part of the cease-fire deal.`\
+https://nytimes.com/video/world/middleeast/100000010475477/world-middle-east-gaza-mass-burials.html
+
 **The White House Wrecking Ball**\
 `President Trump’s demolition of the East Wing has struck a nerve in Washington and beyond.`\
 https://nytimes.com/2025/10/22/us/politics/trump-white-house-demolition.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6741377/2025/10/22/ncaa-will-not-implement-5-for-5-
 **For Curtis Sliwa, the heat is on.**\
 `By Michael Gold`\
 https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/curtis-sliwa-memes
-
-**Steelers' Aaron Rodgers says game against Packers is 'not a revenge game'**\
-`The four-time MVP says he has great memories from his time in Green Bay and understands the Packers' desire to develop a younger QB`\
-https://nytimes.com/athletic/6741308/2025/10/22/aaron-rodgers-steelers-packers-not-revenge/
-
-**Mamdani invited debate guests who underscore his criticism of Cuomo.**\
-`Zohran Mamdani is expected to invite six guests, all of whom will reflect his criticism of his main rival, former Gov. Andrew Cuomo.`\
-https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/mamdani-guests-debate
-
-**Heart Benefits of Wegovy Extend Beyond Weight Loss, Study Shows**\
-`An analysis found that a shrinking waist size was responsible for only around a third of the cardiovascular benefits in people who took Wegovy.`\
-https://nytimes.com/2025/10/22/well/wegovy-cardiovascular-benefits-weight-loss-study.html
 

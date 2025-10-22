@@ -1,3 +1,15 @@
+**The White House Wrecking Ball**\
+`President Trump’s demolition of the East Wing has struck a nerve in Washington and beyond.`\
+https://nytimes.com/2025/10/22/us/politics/trump-white-house-demolition.html
+
+**Emmanuel Clase wants to pitch in Venezuela while under investigation, but Guardians say no**\
+`Clase is under investigation by MLB as part of a betting probe, and has been on paid leave since July. `\
+https://nytimes.com/athletic/6741459/2025/10/22/emmanuel-clase-venezuela-pitch-mlb-gambling-investigation/
+
+**Jaedyn Shaw on her road back to the USWNT: 'I feel very free'**\
+`The 20-year-old has spent the last year thinking intentionally about her future and making corresponding moves for club and country.`\
+https://nytimes.com/athletic/6738714/2025/10/22/jaedyn-shaw-gotham-fc-uswnt-return/
+
 **Tiny Love Stories: ‘That Changed Everything’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/10/22/style/tiny-love-modern-love-stories-that-changed-everything.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/mamdani-guests-deb
 **Heart Benefits of Wegovy Extend Beyond Weight Loss, Study Shows**\
 `An analysis found that a shrinking waist size was responsible for only around a third of the cardiovascular benefits in people who took Wegovy.`\
 https://nytimes.com/2025/10/22/well/wegovy-cardiovascular-benefits-weight-loss-study.html
-
-**Trump to Demolish Entire East Wing of White House**\
-`President Trump is demolishing the entire East Wing of the White House to make way for a ballroom. Over the summer, Mr. Trump had said that the main building wouldn’t be affected by the construction.`\
-https://nytimes.com/video/us/politics/100000010475443/white-house-east-wing-demolished-ballroom.html
-
-**Early Voting for N.Y.C. Mayor Starts Saturday. You Can Still Register.**\
-`New Yorkers don’t have to wait until Election Day to have their say on the races for mayor, City Council, public advocate and more.`\
-https://nytimes.com/2025/10/22/nyregion/nyc-mayor-early-voting.html
-
-**Isak suffers groin injury, Frimpong likely out 'weeks' - Slot**\
-`Liverpool won 5-1 at Eintracht Frankfurt in the Champions League but sustained injuries to two of their starters.`\
-https://nytimes.com/athletic/6741296/2025/10/22/liverpool-alexander-isak-jeremie-frimpong-injury/
 

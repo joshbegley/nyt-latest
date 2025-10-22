@@ -1,3 +1,15 @@
+**The White House Wrecking Ball**\
+`President Trump’s demolition of the East Wing has struck a nerve in Washington and beyond.`\
+https://nytimes.com/2025/10/22/us/politics/trump-white-house-demolition.html
+
+**Emmanuel Clase wants to pitch in Venezuela while under investigation, but Guardians say no**\
+`Clase is under investigation by MLB as part of a betting probe, and has been on paid leave since July. `\
+https://nytimes.com/athletic/6741459/2025/10/22/emmanuel-clase-venezuela-pitch-mlb-gambling-investigation/
+
+**Jaedyn Shaw on her road back to the USWNT: 'I feel very free'**\
+`The 20-year-old has spent the last year thinking intentionally about her future and making corresponding moves for club and country.`\
+https://nytimes.com/athletic/6738714/2025/10/22/jaedyn-shaw-gotham-fc-uswnt-return/
+
 **Tiny Love Stories: ‘That Changed Everything’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/10/22/style/tiny-love-modern-love-stories-that-changed-everything.html
