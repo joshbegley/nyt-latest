@@ -1,3 +1,11 @@
+**Why Weren’t the Jewels Stolen From the Louvre Insured?**\
+`Thieves snatched jewelry valued at more than $100 million, but the museum will not be compensated for the loss.`\
+https://nytimes.com/2025/10/22/business/louvre-robbery-jewelry-heist-insurance.html
+
+**NFL won't replace Bad Bunny as Super Bowl performer, Goodell says**\
+`The show will be "an exciting, united moment," Goodell said Wednesday at the league’s fall meeting.`\
+https://nytimes.com/athletic/6740407/2025/10/22/nfl-super-bowl-bad-bunny-halftime/
+
 **Larry David Takes the Stage for an Amusing but Not-So-Revealing Chat**\
 `At the Beacon, he shared details about “Seinfeld” and “Curb Your Enthusiasm,” but on more topical subjects, like his ex-castmate Cheryl Hines, he kept mum.`\
 https://nytimes.com/2025/10/22/arts/larry-david-live-beacon-theater.html
