@@ -1,3 +1,7 @@
+**UBS Arena to host 2027 NHL All-Star Weekend after league cancels pre-Olympic event: Sources**\
+`The event had been scheduled as a replacement for the 2026 All-Star Weekend, which had previously been awarded to the New York Islanders.`\
+https://nytimes.com/athletic/6738754/2025/10/21/nhl-olympic-event-all-star-ubs-arena/
+
 **Michael Jordan debuts as NBA contributor, reflects on family and legacy**\
 `Jordan told NBC's Mike Tirico he hadn't picked up a basketball in years — until recently.`\
 https://nytimes.com/athletic/6738719/2025/10/21/michael-jordan-nba-nbc-halftime/
