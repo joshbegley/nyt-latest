@@ -1,3 +1,7 @@
+**Man Is Charged in Wrong-Way Crash That Killed 4 Teenagers in New Jersey**\
+`The young men were driving on the New Jersey Turnpike near Wilmington, Del., on Sunday when they collided with the man, according to the police. A truck then hit their S.U.V.`\
+https://nytimes.com/2025/10/22/nyregion/new-jersey-crash-teen-deaths-charges.html
+
 **Will Sliwa Drop Out? He’d Rather Be Impaled.**\
 `Polling in the high teens, Curtis Sliwa, the Republican nominee for mayor, is a long shot to win. But he isn’t going anywhere.`\
 https://nytimes.com/2025/10/22/nyregion/curtis-sliwa-nyc-mayor-race-quit.html
