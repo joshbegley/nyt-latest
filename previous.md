@@ -1,3 +1,11 @@
+**NBC's big night**\
+`With the NBA returning to NBC for the first time since 2002, the network is leaning hard into 1990s nostalgia to get fans excited. The...`\
+https://nytimes.com/athletic/6738663/2025/10/21/nbcs-big-night/
+
+**Ecuador Rejects Prosecution of Survivor of U.S. Strike on Vessel**\
+`The country has freed the man, one of two survivors of a U.S. military strike on a submersible vessel last week, defying President Trump’s claim that he would be held and prosecuted.`\
+https://nytimes.com/2025/10/21/us/politics/ecuador-us-strike-survivor.html
+
 **Federal Agents Stage Raid on Canal Street in New York City**\
 `Dozens of federal officers descended on the sidewalks of Lower Manhattan on Tuesday, detaining several people and drawing protests.`\
 https://nytimes.com/2025/10/21/nyregion/nyc-raid-canal-st-agents-ice.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6737345/2025/10/21/okc-thunder-nba-championship-rin
 **Five Major Changes Trump Is Making to the White House**\
 `In less than a year, President Trump has already significantly remade the White House. Here is what to know about five key renovations.`\
 https://nytimes.com/interactive/2025/10/21/us/politics/trump-white-house-renovations.html
-
-**How to watch Cowboys vs. Broncos: Time, TV, streaming**\
-`Find out how to watch the Dallas Cowboys play the Denver Broncos, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6738276/2025/10/21/how-to-watch-cowboys-vs-broncos-tv-channel-and-streaming-options-for-october-26/
-
-**How to watch Titans vs. Colts: Time, TV, streaming**\
-`Find out how to watch the Tennessee Titans play the Indianapolis Colts, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6738274/2025/10/21/how-to-watch-titans-vs-colts-tv-channel-and-streaming-options-for-october-26/
 

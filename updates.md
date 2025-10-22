@@ -1,3 +1,11 @@
+**NBC's big night**\
+`With the NBA returning to NBC for the first time since 2002, the network is leaning hard into 1990s nostalgia to get fans excited. The...`\
+https://nytimes.com/athletic/6738663/2025/10/21/nbcs-big-night/
+
+**Ecuador Rejects Prosecution of Survivor of U.S. Strike on Vessel**\
+`The country has freed the man, one of two survivors of a U.S. military strike on a submersible vessel last week, defying President Trump’s claim that he would be held and prosecuted.`\
+https://nytimes.com/2025/10/21/us/politics/ecuador-us-strike-survivor.html
+
 **Federal Agents Stage Raid on Canal Street in New York City**\
 `Dozens of federal officers descended on the sidewalks of Lower Manhattan on Tuesday, detaining several people and drawing protests.`\
 https://nytimes.com/2025/10/21/nyregion/nyc-raid-canal-st-agents-ice.html
