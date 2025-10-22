@@ -1,3 +1,7 @@
+**NBA returns to NBC, leaning into nostalgia, familiar voices and Michael Jordan: Review**\
+`Maybe it was the nostalgia kicking in, but Tuesday felt bigger than usual for the NBA as it returned to NBC for the first time since 2002.`\
+https://nytimes.com/athletic/6723225/2025/10/22/nba-nbc-michael-jordan-mike-tirico/
+
 **Michigan has become a hotbed of college football recruiting battles. Donald Tabron is next**\
 `Bryce Underwood, Dante Moore and CJ Carr are all from southeast Michigan. Next up? The battle for Donald Tabron in the Class of 2028.`\
 https://nytimes.com/athletic/6736723/2025/10/22/donald-tabron-michigan-quarterback-recruiting-cass-tech/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6739452/2025/10/22/john-terry-chelsea-manager-dream
 **Who will Emma Hayes take to the 2027 Women's World Cup?**\
 `It's never too early to predict who might play for the USWNT at the 2027 Women's World Cup in Brazil… so we gave it a go`\
 https://nytimes.com/athletic/6738441/2025/10/22/uswnt-2027-world-cup-roster-prediction-emma-hayes/
-
-**Why Anthony Volpe's shoulder surgery signals end of excuses on Yankees shortstop's future**\
-`There are reasons for optimism Volpe could return as an improved player, according to an orthopedic surgeon. But who is that player? `\
-https://nytimes.com/athletic/6737695/2025/10/22/anthony-volpe-shoulder-surgery-yankees-future/
 
