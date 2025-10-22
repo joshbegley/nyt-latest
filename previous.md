@@ -1,3 +1,11 @@
+**Mamdani invited debate guests who underscore his criticism of Cuomo.**\
+`Zohran Mamdani is expected to invite six guests, all of whom will reflect his criticism of his main rival, former Gov. Andrew Cuomo.`\
+https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/mamdani-guests-debate
+
+**Heart Benefits of Wegovy Extend Beyond Weight Loss, Study Shows**\
+`An analysis found that a shrinking waist size was responsible for only around a third of the cardiovascular benefits in people who took Wegovy.`\
+https://nytimes.com/2025/10/22/well/wegovy-cardiovascular-benefits-weight-loss-study.html
+
 **Trump to Demolish Entire East Wing of White House**\
 `President Trump is demolishing the entire East Wing of the White House to make way for a ballroom. Over the summer, Mr. Trump had said that the main building wouldn’t be affected by the construction.`\
 https://nytimes.com/video/us/politics/100000010475443/white-house-east-wing-demolished-ballroom.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/22/nyregion/curtis-sliwa-nyc-mayor-race-quit.html
 **The Submarines That Smuggle Cocaine Across Oceans and Seas**\
 `A display of confiscated vessels at a naval base in Ecuador offers a peek at why drug smuggling is so hard to stop.`\
 https://nytimes.com/2025/10/22/world/americas/drug-smuggling-submarines.html
-
-**Trump Is Demolishing the Entire East Wing**\
-`Also, oil prices have fallen sharply. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/10/22/briefing/trump-is-demolishing-the-entire-east-wing.html
-
-**NFL approves minority, non-controlling sales for 49ers, Giants and Patriots**\
-`The sales were formally approved at the league's owners meeting in New York.`\
-https://nytimes.com/athletic/6740688/2025/10/22/nfl-team-sales-giants-49ers-patriots/
 

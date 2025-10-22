@@ -1,3 +1,11 @@
+**Mamdani invited debate guests who underscore his criticism of Cuomo.**\
+`Zohran Mamdani is expected to invite six guests, all of whom will reflect his criticism of his main rival, former Gov. Andrew Cuomo.`\
+https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/mamdani-guests-debate
+
+**Heart Benefits of Wegovy Extend Beyond Weight Loss, Study Shows**\
+`An analysis found that a shrinking waist size was responsible for only around a third of the cardiovascular benefits in people who took Wegovy.`\
+https://nytimes.com/2025/10/22/well/wegovy-cardiovascular-benefits-weight-loss-study.html
+
 **Trump to Demolish Entire East Wing of White House**\
 `President Trump is demolishing the entire East Wing of the White House to make way for a ballroom. Over the summer, Mr. Trump had said that the main building wouldn’t be affected by the construction.`\
 https://nytimes.com/video/us/politics/100000010475443/white-house-east-wing-demolished-ballroom.html
