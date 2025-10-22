@@ -1,3 +1,15 @@
+**Three Offers in One Month: Paramount’s Secret Pursuit of Warner Bros. Discovery**\
+`A letter from Paramount’s chief executive, David Ellison, to Warner Bros.’ board of directors reveals weeks of talks between the two companies.`\
+https://nytimes.com/2025/10/22/business/dealbook/paramounts-secret-bids-warner-bros-discovery.html
+
+**NASCAR, 23XI/Front Row fail to reach settlement in antitrust case after 2-day meeting**\
+`The teams had no comment after the end of the all-day sessions, with still no agreement in place as the Dec. 1 trial date looms.`\
+https://nytimes.com/athletic/6740930/2025/10/22/nascar-lawsuit-23xi-front-row-michael-jordan-settlement/
+
+**Man Is Charged in Wrong-Way Crash That Killed 4 Teenagers in New Jersey**\
+`The young men were driving on the New Jersey Turnpike near Wilmington, Del., on Sunday when the man collided with them, according to the police. A truck then hit their S.U.V.`\
+https://nytimes.com/2025/10/22/nyregion/new-jersey-crash-teen-deaths-charges.html
+
 **Man Is Charged in Wrong-Way Crash That Killed 4 Teenagers in New Jersey**\
 `The young men were driving on the New Jersey Turnpike near Wilmington, Del., on Sunday when they collided with the man, according to the police. A truck then hit their S.U.V.`\
 https://nytimes.com/2025/10/22/nyregion/new-jersey-crash-teen-deaths-charges.html

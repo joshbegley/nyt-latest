@@ -1,3 +1,15 @@
+**Trump to Demolish Entire East Wing of White House**\
+`President Trump is demolishing the entire East Wing of the White House to make way for a ballroom. Over the summer, Mr. Trump had said that the main building wouldn’t be affected by the construction.`\
+https://nytimes.com/video/us/politics/100000010475443/white-house-east-wing-demolished-ballroom.html
+
+**Early Voting for N.Y.C. Mayor Starts Saturday. You Can Still Register.**\
+`New Yorkers don’t have to wait until Election Day to have their say on the races for mayor, City Council, public advocate and more.`\
+https://nytimes.com/2025/10/22/nyregion/nyc-mayor-early-voting.html
+
+**Isak suffers groin injury, Frimpong likely out 'weeks' - Slot**\
+`Liverpool won 5-1 at Eintracht Frankfurt in the Champions League but sustained injuries to two of their starters.`\
+https://nytimes.com/athletic/6741296/2025/10/22/liverpool-alexander-isak-jeremie-frimpong-injury/
+
 **Three Offers in One Month: Paramount’s Secret Pursuit of Warner Bros. Discovery**\
 `A letter from Paramount’s chief executive, David Ellison, to Warner Bros.’ board of directors reveals weeks of talks between the two companies.`\
 https://nytimes.com/2025/10/22/business/dealbook/paramounts-secret-bids-warner-bros-discovery.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/22/briefing/trump-is-demolishing-the-entire-east-win
 **NFL approves minority, non-controlling sales for 49ers, Giants and Patriots**\
 `The sales were formally approved at the league's owners meeting in New York.`\
 https://nytimes.com/athletic/6740688/2025/10/22/nfl-team-sales-giants-49ers-patriots/
-
-**Sean Payton says he didn't intend to take dig at his former QB Russell Wilson**\
-`While praising Giants rookie QB Jaxson Dart on Sunday, Payton took what was viewed as a not-so-subtle dig at Wilson.`\
-https://nytimes.com/athletic/6741253/2025/10/22/denver-broncos-russell-wilson-sean-payton-dig/
-
-**What to Know About the Moderators of the Second N.Y.C. Mayoral Debate**\
-`Errol Louis of Spectrum News NY1, Brian Lehrer of WNYC and Katie Honan of The City are moderating Wednesday’s debate.`\
-https://nytimes.com/2025/10/22/nyregion/nyc-mayoral-debate-moderators.html
-
-**Trump Is Seeking $230 Million From the Justice Dept.**\
-`President Trump is demanding about $230 million in compensation for the federal investigations into him by the Justice Department. Devlin Barrett, a New York Times reporter covering the Justice Department, describes what we know about who’s most likely to be making the decisions.`\
-https://nytimes.com/video/us/politics/100000010470822/trump-is-seeking-230-million-from-the-justice-dept.html
 

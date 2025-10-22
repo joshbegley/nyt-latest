@@ -1,5 +1,13 @@
+**Three Offers in One Month: Paramount’s Secret Pursuit of Warner Bros. Discovery**\
+`A letter from Paramount’s chief executive, David Ellison, to Warner Bros.’ board of directors reveals weeks of talks between the two companies.`\
+https://nytimes.com/2025/10/22/business/dealbook/paramounts-secret-bids-warner-bros-discovery.html
+
+**NASCAR, 23XI/Front Row fail to reach settlement in antitrust case after 2-day meeting**\
+`The teams had no comment after the end of the all-day sessions, with still no agreement in place as the Dec. 1 trial date looms.`\
+https://nytimes.com/athletic/6740930/2025/10/22/nascar-lawsuit-23xi-front-row-michael-jordan-settlement/
+
 **Man Is Charged in Wrong-Way Crash That Killed 4 Teenagers in New Jersey**\
-`The young men were driving on the New Jersey Turnpike near Wilmington, Del., on Sunday when they collided with the man, according to the police. A truck then hit their S.U.V.`\
+`The young men were driving on the New Jersey Turnpike near Wilmington, Del., on Sunday when the man collided with them, according to the police. A truck then hit their S.U.V.`\
 https://nytimes.com/2025/10/22/nyregion/new-jersey-crash-teen-deaths-charges.html
 
 **Will Sliwa Drop Out? He’d Rather Be Impaled.**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/22/nyregion/nyc-mayoral-debate-moderators.html
 **Trump Is Seeking $230 Million From the Justice Dept.**\
 `President Trump is demanding about $230 million in compensation for the federal investigations into him by the Justice Department. Devlin Barrett, a New York Times reporter covering the Justice Department, describes what we know about who’s most likely to be making the decisions.`\
 https://nytimes.com/video/us/politics/100000010470822/trump-is-seeking-230-million-from-the-justice-dept.html
-
-**This is where the mayor’s race stands ahead of the final debate.**\
-`By Nicholas Fandos`\
-https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/this-is-where-the-mayors-race-stands-ahead-of-the-final-debate
-
-**Here’s the latest.**\
-`By Nicholas Fandos`\
-https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/heres-the-latest
 
