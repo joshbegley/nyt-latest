@@ -1,3 +1,7 @@
+**London Woman Who Was Fined After Pouring Coffee in Drain Gets a Break**\
+`A social media outcry arose after she was given a fine of 150 pounds for pouring out “a tiny little bit” of coffee before boarding a bus.`\
+https://nytimes.com/2025/10/22/world/europe/woman-pours-coffee-down-drain-fine.html
+
 **NFL moves Pro Bowl to Super Bowl week to lean into flag football**\
 `With Super Bowl LX scheduled for Feb. 8 at Levi’s Stadium in Santa Clara, Calif., the Pro Bowl flag football game will be Tuesday, Feb. 3.`\
 https://nytimes.com/athletic/6740192/2025/10/22/roger-goodell-pro-bowl-super-bowl-lx/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6740277/2025/10/22/jalen-suggs-injury-return-magic-
 **Former Biden and Senate Counsel to Lead Progressive Legal Group**\
 `Phil Brest, a veteran of the judicial confirmation wars, will head the American Constitution Society at a time of legal turmoil.`\
 https://nytimes.com/2025/10/22/us/politics/phil-brest-american-constitution-society.html
-
-**‘Blue Cowboy’ Review: A Surprising Love Rides Into Town**\
-`David Cale’s astonishing one-man show in Brooklyn erects some familiar signposts before swerving into the unexpected.`\
-https://nytimes.com/2025/10/22/theater/blue-cowboy-review-david-cale.html
 
