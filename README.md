@@ -1,3 +1,11 @@
+**Smith: Is F1's greatest championship comeback brewing?**\
+`Max Verstappen has erased Oscar Piastri's points lead. We could be witnessing something very special`\
+https://nytimes.com/athletic/6738436/2025/10/22/max-verstappen-f1-championship-2025-comeback/
+
+**The NBA's opening slate on ESPN: Cavs at Knicks, Spurs at Mavericks, 'Inside the NBA'**\
+`Wednesday has a great NBA doubleheader, and it comes with slight changes to the usual ESPN telecast. Here's what viewers need to know.`\
+https://nytimes.com/athletic/6737090/2025/10/22/cavs-knicks-spurs-mavericks-nba-espn-how-to-watch/
+
 **NBA returns to NBC, leaning into nostalgia, familiar voices and Michael Jordan: Review**\
 `Maybe it was the nostalgia kicking in, but Tuesday felt bigger than usual for the NBA as it returned to NBC for the first time since 2002.`\
 https://nytimes.com/athletic/6723225/2025/10/22/nba-nbc-michael-jordan-mike-tirico/
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000010473753/car-crash-white-house.html
 **College football Week 9 streaming guide: Missouri-Vanderbilt leads on 'College GameDay'**\
 `Trinidad Chambliss takes on Oklahoma. Bear Bachmeier visits Ames. There's a lot going on across this week's college football lineup.`\
 https://nytimes.com/athletic/6734868/2025/10/22/college-football-schedule-missouri-vanderbilt-michigan-msu-how-to-watch/
-
-**John Terry: Managerial rejections have been 'difficult to fathom'**\
-`The former England captain made 717 appearances for Chelsea as a player, winning five Premier Leagues and a Champions League title.`\
-https://nytimes.com/athletic/6739452/2025/10/22/john-terry-chelsea-manager-dream/
-
-**Who will Emma Hayes take to the 2027 Women's World Cup?**\
-`It's never too early to predict who might play for the USWNT at the 2027 Women's World Cup in Brazil… so we gave it a go`\
-https://nytimes.com/athletic/6738441/2025/10/22/uswnt-2027-world-cup-roster-prediction-emma-hayes/
 
