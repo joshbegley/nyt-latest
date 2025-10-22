@@ -1,3 +1,11 @@
+**Trump Imposes Sanctions on Russian Oil Companies as His Frustration With Putin Mounts**\
+`The sanctions are among the most significant measures that the United States has taken against the Russian energy sector since the beginning of the war in Ukraine.`\
+https://nytimes.com/2025/10/22/us/politics/trump-sanctions-russia-ukraine.html
+
+**The debut of 'Inside the NBA' on ESPN: New network, same showmanship**\
+`The legendary show felt exactly the same on its new network. And our columnists say that is exactly the point.`\
+https://nytimes.com/athletic/6741524/2025/10/22/inside-the-nba-espn-charles-barkley-popeyes-ro/
+
 **“He doesn’t control the rent guidelines board. So nothing is going to happen.”**\
 `By Benjamin Oreskes`\
 https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/he-doesnt-control-the-rent-guidelines-board-so-nothing-is-going-to-happen
