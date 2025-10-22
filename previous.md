@@ -1,6 +1,6 @@
 **Federal Agents Stage Raid on Canal Street in New York City**\
 `Dozens of federal officers descended on the sidewalks of Lower Manhattan on Tuesday, detaining several people and drawing protests.`\
-https://nytimes.com/2025/10/21/nyregion/federal-agents-stage-raid-on-canal-street-in-new-york-city.html
+https://nytimes.com/2025/10/21/nyregion/nyc-raid-canal-st-agents-ice.html
 
 **Federal Agents Detain Several Men During New York City Raid**\
 `Masked federal agents detained several men in Lower Manhattan on Tuesday, near an area where vendors sell illegal counterfeit goods.`\
