@@ -1,3 +1,7 @@
+**Just set pieces and dogged defending? Now Arsenal show they can do adventure too**\
+`Rout of Atletico showed how Arteta is evolving his team into an open, attacking force`\
+https://nytimes.com/athletic/6738287/2025/10/22/arsenal-attack-arteta-martinelli-gyokeres/
+
 **Donald Trump’s New World Disorder**\
 `Without a plan for what comes next, the United States is not only hastening its own decline but also forcing the world into a new era of disorder.`\
 https://nytimes.com/2025/10/22/opinion/trump-xi-summit-world-economy.html
