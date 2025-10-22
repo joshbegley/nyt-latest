@@ -1,3 +1,7 @@
+**How President Trump Uses A.I.**\
+`The era of A.I. propaganda is here — and Trump is an enthusiastic participant.`\
+https://nytimes.com/2025/10/22/briefing/how-president-trump-uses-ai.html
+
 **The Women's World Cup is set to expand in 2031. Will host cities be able to capitalize?**\
 `Down to Business with Asli Pelit takes you through the fast-paced (and sometimes confusing) corporate side of women's soccer.`\
 https://nytimes.com/athletic/6737859/2025/10/22/womens-world-cup-expand-2031-will-host-city-investment/
