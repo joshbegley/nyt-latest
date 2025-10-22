@@ -1,3 +1,7 @@
+**Vehicle Crashes Into Security Gate Outside the White House**\
+`The Secret Service said the driver was arrested and there was no longer a threat.`\
+https://nytimes.com/2025/10/21/us/white-house-car-crash.html
+
 **'Just couldn’t hold it in': Marchand's Boston return and the tears that would not stop**\
 `After 16 seasons in black and gold, returning to Boston as a member of the Florida Panthers hit Marchand unexpectedly hard.`\
 https://nytimes.com/athletic/6738860/2025/10/21/brad-marchand-boston-bruins-return-panthers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/21/briefing/reader-questions-for-joe-kahn.html
 **On the Menu in New York: One Repair, Coming Right Up**\
 `Monthly “repair cafes” aim to bring neighbors together while keeping all manner of items out of the trash.`\
 https://nytimes.com/2025/10/21/climate/on-the-menu-in-new-york-one-repair-coming-right-up.html
-
-**How to Revive California’s Underwater Forests? Smash a Spiky, Hungry Foe.**\
-`Cove by cove, scientists, divers and volunteers are hauling up urchins to protect kelp.`\
-https://nytimes.com/2025/10/21/climate/california-kelp-restoration.html
 
