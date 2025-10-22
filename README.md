@@ -1,3 +1,7 @@
+**What to Know About the Moderators of the Second N.Y.C. Mayoral Debate**\
+`Errol Louis of Spectrum News NY1, Brian Lehrer of WNYC and Katie Honan of The City are moderating Wednesday’s debate.`\
+https://nytimes.com/2025/10/22/nyregion/nyc-mayoral-debate-moderators.html
+
 **Trump Is Seeking $230 Million From the Justice Dept.**\
 `President Trump is demanding about $230 million in compensation for the federal investigations into him by the Justice Department. Devlin Barrett, a New York Times reporter covering the Justice Department, describes what we know about who’s most likely to be making the decisions.`\
 https://nytimes.com/video/us/politics/100000010470822/trump-is-seeking-230-million-from-the-justice-dept.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6740719/2025/10/22/chelsea-ajax-champions-league-br
 **Massapequa Schools Sue N.Y. State to Preserve Gender Rules in Bathrooms**\
 `National cultural issues have pervaded Nassau County as its Republican leaders have embraced President Trump’s brand of politics. The schools want students to use the bathrooms that align with their sex assigned at birth.`\
 https://nytimes.com/2025/10/22/nyregion/massapequa-new-york-bathroom-lawsuit.html
-
-**The Briefing – Real Madrid 1 Juventus 0: Jude Bellingham's first goal of the season the difference at the Bernabeu**\
-`The Athletic's writers break down a narrow win for Xabi Alonso's side at the Bernabeu on Wednesday evening  `\
-https://nytimes.com/athletic/6740580/2025/10/22/real-madrid-juventus-champions-league-analysis/
 
