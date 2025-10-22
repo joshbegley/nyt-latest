@@ -1,3 +1,11 @@
+**Iceland Announces an Unfortunate First: Mosquitoes**\
+`Iceland was one of the only mosquito-free places in the world, at least according to its records. Not anymore.`\
+https://nytimes.com/2025/10/22/world/europe/iceland-mosquito-discovery.html
+
+**No Stupid Questions: Cake**\
+`The New York Times’s Cooking contributor, Samantha Seneviratne, joins us in the studio kitchen to answer some frequently asked questions and to share her go-to tips for cake-baking success.`\
+https://nytimes.com/video/dining/100000010474544/no-stupid-questions-cake.html
+
 **NBA will bring back Larry O'Brien Trophy, Finals logo to home floor in June: Source**\
 `The aesthetic is a return to where the league was decades ago and comes after complaints from fans and media.`\
 https://nytimes.com/athletic/6740971/2025/10/22/nba-trophy-logo-nba-finals-june-2026/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/10/22/us/border-patrol-san-francisco-bay-area.html
 **Scoop City: Four big-name edge rushers unlikely to move**\
 `Trade deadline updates, moving on from successful regular-season coaches like Mike Tomlin, plus Mike Sando weighs in on the Jets`\
 https://nytimes.com/athletic/6740955/2025/10/22/nfl-trade-deadline-mike-tomlin-coaching-history/
-
-**Dollhouse At Amsterdam’s Rijksmuseum Is Taking Center Stage**\
-`Ordinarily on view in the museum’s permanent display, the doll’s house was moved to be the centerpiece of the exhibition “At Home in the 17th Century.”`\
-https://nytimes.com/video/arts/100000010466965/dollhouse-amsterdam-netherlands-rijksmuseum.html
-
-**Five Rising Contemporary Artists You Should Know**\
-`With exhibitions featuring copper-wire sculptures, burned canvases, ghostly nighttime paintings and more, here are the people to put on your radar this season.`\
-https://nytimes.com/2025/10/22/t-magazine/rising-contemporary-artist-exhibitions.html
 

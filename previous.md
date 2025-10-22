@@ -1,3 +1,7 @@
+**NBA will bring back Larry O'Brien Trophy, Finals logo to home floor in June: Source**\
+`The aesthetic is a return to where the league was decades ago and comes after complaints from fans and media.`\
+https://nytimes.com/athletic/6740971/2025/10/22/nba-trophy-logo-nba-finals-june-2026/
+
 **As Johnson Delays, Grijalva Sues to Be Seated in the House**\
 `Representative-elect Adelita Grijalva, Democrat of Arizona, along with the state’s attorney general, argued that the speaker had no authority to delay swearing her into office.`\
 https://nytimes.com/2025/10/22/us/politics/adelita-grijalva-lawsuit-swearing-in-congress.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/arts/100000010466965/dollhouse-amsterdam-netherlands-r
 **Five Rising Contemporary Artists You Should Know**\
 `With exhibitions featuring copper-wire sculptures, burned canvases, ghostly nighttime paintings and more, here are the people to put on your radar this season.`\
 https://nytimes.com/2025/10/22/t-magazine/rising-contemporary-artist-exhibitions.html
-
-**At a Mass Burial in Gaza, Palestinians Mourn the Unknown Dead**\
-`Under the terms of a cease-fire deal, Israel and Hamas have been exchanging remains, but Gaza’s medical authorities have not been able to identify many of them.`\
-https://nytimes.com/2025/10/22/world/middleeast/mass-burial-gaza.html
 

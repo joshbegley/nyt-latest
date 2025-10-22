@@ -1,3 +1,7 @@
+**NBA will bring back Larry O'Brien Trophy, Finals logo to home floor in June: Source**\
+`The aesthetic is a return to where the league was decades ago and comes after complaints from fans and media.`\
+https://nytimes.com/athletic/6740971/2025/10/22/nba-trophy-logo-nba-finals-june-2026/
+
 **As Johnson Delays, Grijalva Sues to Be Seated in the House**\
 `Representative-elect Adelita Grijalva, Democrat of Arizona, along with the state’s attorney general, argued that the speaker had no authority to delay swearing her into office.`\
 https://nytimes.com/2025/10/22/us/politics/adelita-grijalva-lawsuit-swearing-in-congress.html
