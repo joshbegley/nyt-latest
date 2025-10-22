@@ -1,3 +1,7 @@
+**Russia Hits Power Plants and Kindergarten Hours After Trump Delays Summit**\
+`President Volodymyr Zelensky of Ukraine said the overnight assault showed that Russia “clearly doesn’t feel enough pressure to stop prolonging the war.”`\
+https://nytimes.com/2025/10/22/world/europe/russia-ukraine-putin-trump.html
+
 **Trump Administration Live Updates: President to Meet With NATO Head in Washington**\
 ``\
 https://nytimes.com/live/2025/10/22/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6739443/2025/10/22/warriors-steph-curry-draymond-gr
 **Smith: Is F1's greatest championship comeback brewing?**\
 `Max Verstappen has erased Oscar Piastri's points lead. We could be witnessing something very special`\
 https://nytimes.com/athletic/6738436/2025/10/22/max-verstappen-f1-championship-2025-comeback/
-
-**The NBA's opening slate on ESPN: Cavs at Knicks, Spurs at Mavericks, 'Inside the NBA'**\
-`Wednesday has a great NBA doubleheader, and it comes with slight changes to the usual ESPN telecast. Here's what viewers need to know.`\
-https://nytimes.com/athletic/6737090/2025/10/22/cavs-knicks-spurs-mavericks-nba-espn-how-to-watch/
 

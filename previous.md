@@ -1,3 +1,31 @@
+**Trump Administration Live Updates: President to Meet With NATO Head in Washington**\
+``\
+https://nytimes.com/live/2025/10/22/us/trump-news
+
+**‘The Hand That Rocks the Cradle’ Review: Down Comes Baby**\
+`A reimagined version of the 1992 film, directed by Michelle Garza Cervera, manages to be more chilly than chilling.`\
+https://nytimes.com/2025/10/22/movies/the-hand-that-rocks-the-cradle-review.html
+
+**Is Nebraska's no-show against Minnesota sign of deeper problem? Answer is up to Matt Rhule**\
+`"We completely failed," Rhule said. And he implicated himself. "It rests on my shoulders." `\
+https://nytimes.com/athletic/6738458/2025/10/22/nebraska-no-show-minnesota-problem-matt-rhule/
+
+**Are the Dodgers 4 wins away from a dynasty? 'We have an opportunity to do that'**\
+`Dodgers' Miguel Rojas said: "Everybody is consumed with winning a World Series. That’s the only celebration we want to really have." `\
+https://nytimes.com/athletic/6738285/2025/10/22/are-the-dodgers-four-wins-away-from-a-dynasty-we-have-an-opportunity-to-do-that/
+
+**Fox to broadcast a record 69 matches in the 2026 World Cup**\
+`Only 34 matches in the 2022 World Cup aired on network television.`\
+https://nytimes.com/athletic/6738544/2025/10/22/2026-word-cup-record-69-matches-fox/
+
+**Tyronn Lue has a deep Clippers roster to balance. How will he get the job done?**\
+`Personnel-wise, the Clippers have what they need to begin the season. Now, it's up to them to get off to a strong start and maintain it.`\
+https://nytimes.com/athletic/6735895/2025/10/22/tyronn-lue-clippers-depth-nba-kawhi-leonard-chris-paul-james-harden/
+
+**Pelosi Hasn’t Announced Her 2026 Plans. A Top Contender Is Tired of Waiting.**\
+`Scott Wiener, a Democratic state legislator, says he can’t afford to keep deferring to Representative Nancy Pelosi.`\
+https://nytimes.com/2025/10/22/us/pelosi-congress-scott-wiener.html
+
 **On opening night, at least, the Warriors turn back time against the Lakers**\
 `Golden State looked like a spry contender on Tuesday night. But can it stay healthy into May and June?`\
 https://nytimes.com/athletic/6739443/2025/10/22/warriors-steph-curry-draymond-green-tip-off-lakers-age/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6738436/2025/10/22/max-verstappen-f1-championship-2
 **The NBA's opening slate on ESPN: Cavs at Knicks, Spurs at Mavericks, 'Inside the NBA'**\
 `Wednesday has a great NBA doubleheader, and it comes with slight changes to the usual ESPN telecast. Here's what viewers need to know.`\
 https://nytimes.com/athletic/6737090/2025/10/22/cavs-knicks-spurs-mavericks-nba-espn-how-to-watch/
-
-**NBA returns to NBC, leaning into nostalgia, familiar voices and Michael Jordan: Review**\
-`Maybe it was the nostalgia kicking in, but Tuesday felt bigger than usual for the NBA as it returned to NBC for the first time since 2002.`\
-https://nytimes.com/athletic/6723225/2025/10/22/nba-nbc-michael-jordan-mike-tirico/
-
-**Michigan has become a hotbed of college football recruiting battles. Donald Tabron is next**\
-`Bryce Underwood, Dante Moore and CJ Carr are all from southeast Michigan. Next up? The battle for Donald Tabron in the Class of 2028.`\
-https://nytimes.com/athletic/6736723/2025/10/22/donald-tabron-michigan-quarterback-recruiting-cass-tech/
-
-**What I'm seeing from the Flyers after 6 games: Vladar excelling, Michkov playing catch-up**\
-`Dan Vladar has emerged as the Flyers' go-to goalie — for now, Matvei Michkov didn’t arrive in good enough shape and more.`\
-https://nytimes.com/athletic/6737970/2025/10/22/flyers-dan-vladar-matvei-michkov/
-
-**Wild's Brock Faber starting to get 'back to myself' after tough start to season**\
-`The Wild’s cornerstone defenseman hopes he can turn a corner, much like his team, after an admittedly rough stretch to start.`\
-https://nytimes.com/athletic/6737952/2025/10/22/wild-brock-faber-2025-26-season/
-
-**Juraj Slafkovský's game is taking steps, and it has nothing to do with scoring goals**\
-`Slafkovský has long judged his game by goals and assists, but as he matures, he should realize there's more to it. It's a work in progress.`\
-https://nytimes.com/athletic/6738960/2025/10/22/canadiens-juraj-slafkovsky-game-goals/
-
-**Missing LeBron, the Lakers' two-timeline approach shows its flaws against Warriors**\
-`In Golden State, LA could see what hurdles exist in this potentially awkward season. `\
-https://nytimes.com/athletic/6739255/2025/10/22/lakers-luka-doncic-lebron-james-opening-night-loss/
-
-**Driver Crashes Car Into Security Gate Near White House**\
-`A man was arrested on Tuesday night after he drove his vehicle into a barricade outside the White House, the Secret Service said. It was not immediately known whether the crash was intentional.`\
-https://nytimes.com/video/us/100000010473753/car-crash-white-house.html
 
