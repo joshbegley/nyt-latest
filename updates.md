@@ -1,3 +1,11 @@
+**Jimmy Butler's opening night showed why Warriors need him — and vice versa**\
+`Who knows how it will end for Butler at Golden State. But the beginning has been promising.`\
+https://nytimes.com/athletic/6739304/2025/10/22/jimmy-butler-warriors-opening-night-lakers/
+
+**Napoli signed 'too many' players, says Conte**\
+`The Serie A champions brought in nine players over the summer, with seven featuring in Tuesday night's 6-2 defeat at PSV Eindhoven.`\
+https://nytimes.com/athletic/6739585/2025/10/22/antonio-conte-napoli-signings/
+
 **Women Are Losing in Trump’s Economy**\
 `Massive cuts to health, education and immigration are disproportionately taking a toll.`\
 https://nytimes.com/2025/10/22/opinion/women-trump-economy.html

@@ -1,3 +1,11 @@
+**Jimmy Butler's opening night showed why Warriors need him — and vice versa**\
+`Who knows how it will end for Butler at Golden State. But the beginning has been promising.`\
+https://nytimes.com/athletic/6739304/2025/10/22/jimmy-butler-warriors-opening-night-lakers/
+
+**Napoli signed 'too many' players, says Conte**\
+`The Serie A champions brought in nine players over the summer, with seven featuring in Tuesday night's 6-2 defeat at PSV Eindhoven.`\
+https://nytimes.com/athletic/6739585/2025/10/22/antonio-conte-napoli-signings/
+
 **Women Are Losing in Trump’s Economy**\
 `Massive cuts to health, education and immigration are disproportionately taking a toll.`\
 https://nytimes.com/2025/10/22/opinion/women-trump-economy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6739461/2025/10/22/barcelona-miami-la-liga-villarre
 **Dale Earnhardt Jr. on criticism and change in NASCAR and his racing future: 12 Questions**\
 `"I'm just kind of slowly turning that faucet off until I feel like I'm ready to shut it off entirely," Earnhardt says of racing.`\
 https://nytimes.com/athletic/6737583/2025/10/22/dale-earnhardt-jr-nascar-critcism-12-questions/
-
-**Timber, Lewis-Skelly… Rice? How Arsenal's full-back strategy unpicked Atletico Madrid**\
-`Mikel Arteta's tweak helped Arsenal win in Tuesday's Champions League game at the Emirates Stadium`\
-https://nytimes.com/athletic/6739098/2025/10/22/arsenal-atletico-champions-league-tactics/
-
-**Hollywood’s Latest Cliffhanger: The Fate of Warner Bros. Discovery**\
-`Potential bidders are circling the media company as it weighs its deal options. But financial and regulatory questions hang over everything.`\
-https://nytimes.com/2025/10/22/business/dealbook/warner-bros-discovery-paramount-sale.html
 
