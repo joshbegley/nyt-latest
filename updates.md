@@ -1,3 +1,7 @@
+**Raiders meet with Maxx Crosby to reinforce commitment to star pass rusher**\
+`With the NFL trade deadline less than two weeks away, the rumor mill will be spinning when it comes to quality players on struggling teams.`\
+https://nytimes.com/athletic/6740182/2025/10/22/las-vegas-raiders-maxx-crosby-meeting/
+
 **Reddit Accuses ‘Data Scraper’ Companies of Stealing Its Information**\
 `In a lawsuit, Reddit pulled back the curtain on an ecosystem of start-ups that scrape Google’s search results and resell the information to data-hungry A.I. companies.`\
 https://nytimes.com/2025/10/22/technology/reddit-data-scrapers-perplexity-theft.html
