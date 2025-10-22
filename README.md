@@ -1,3 +1,11 @@
+**F1 mailbag: Is it time for McLaren to support one driver for the championship?**\
+`Also, an ode to the classic pit board. `\
+https://nytimes.com/athletic/6738439/2025/10/22/f1-mailbag-is-it-time-for-mclaren-to-support-one-driver-for-the-championship/
+
+**NOAA Isn’t Tracking Disaster Damages Anymore. These Scientists Are.**\
+`A revived version of a database tracking the costs of the country’s worst disasters shows a record-setting toll in the first half of 2025.`\
+https://nytimes.com/2025/10/22/climate/noaa-isnt-tracking-disaster-damages-anymore-these-scientists-are.html
+
 **Raptors, Leafs, Sabres adjust game start times to limit  World Series overlap**\
 `Those games conflict with Game 1 of the World Series, which will take place at Rogers Centre, down the street from the Raptors’ home.`\
 https://nytimes.com/athletic/6739863/2025/10/22/toronto-maple-leafs-raptors-blue-jays-world-series/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6739884/2025/10/22/leeds-united-injury-update-west-
 **Queens Woman Arrested in Abandonment of Newborn in Penn Station Subway**\
 `The woman told the police she had given birth shortly before leaving the child in a busy passageway as rush hour died down. The baby’s umbilical cord was still attached.`\
 https://nytimes.com/2025/10/22/nyregion/penn-station-abandoned-baby-arrest.html
-
-**Jimmy Butler's opening night showed why Warriors need him — and vice versa**\
-`Who knows how it will end for Butler at Golden State. But the beginning has been promising.`\
-https://nytimes.com/athletic/6739304/2025/10/22/jimmy-butler-warriors-opening-night-lakers/
-
-**Napoli signed 'too many' players, says Conte**\
-`The Serie A champions brought in nine players over the summer, with seven featuring in Tuesday night's 6-2 defeat at PSV Eindhoven.`\
-https://nytimes.com/athletic/6739585/2025/10/22/antonio-conte-napoli-signings/
 
