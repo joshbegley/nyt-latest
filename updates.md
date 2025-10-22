@@ -1,3 +1,7 @@
+**NBA's current stars don't remember the 90s or the 'NBA on NBC' theme song**\
+`The NBA has returned to NBC. What are current players' prized memories of the basketball phenomenon?`\
+https://nytimes.com/athletic/6738653/2025/10/21/nba-on-nbc-roundball-rock/
+
 **What Questions Do You Have for The Times’s Top Editor, Joe Kahn?**\
 `Our executive editor will be answering your questions as part of a conversation about Times coverage and decision-making. Let us know what you’re curious about.`\
 https://nytimes.com/2025/10/21/briefing/reader-questions-for-joe-kahn.html

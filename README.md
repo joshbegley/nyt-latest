@@ -1,3 +1,7 @@
+**Bubbly Bar**\
+`Jesse Guzman adds to our lexicon.`\
+https://nytimes.com/2025/10/21/crosswords/daily-puzzle-2025-10-22.html
+
 **NBA's current stars don't remember the 90s or the 'NBA on NBC' theme song**\
 `The NBA has returned to NBC. What are current players' prized memories of the basketball phenomenon?`\
 https://nytimes.com/athletic/6738653/2025/10/21/nba-on-nbc-roundball-rock/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6738663/2025/10/21/nba-nbc-theme-song-video/
 **Ecuador Rejects Prosecution of Survivor of U.S. Strike on Vessel**\
 `The country has freed the man, one of two survivors of a U.S. military strike on a submersible vessel last week, defying President Trump’s claim that he would be held and prosecuted.`\
 https://nytimes.com/2025/10/21/us/politics/ecuador-us-strike-survivor.html
-
-**Federal Agents Stage Raid on Canal Street in New York City**\
-`Dozens of federal officers descended on the sidewalks of Lower Manhattan on Tuesday, detaining several people and drawing protests.`\
-https://nytimes.com/2025/10/21/nyregion/nyc-raid-canal-st-agents-ice.html
 
