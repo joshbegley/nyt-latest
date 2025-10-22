@@ -1,3 +1,19 @@
+**What We’re Hearing: Michael Jordan’s ‘NBA on NBC’ future**\
+`Michael Jordan's halftime segment for NBC during its NBA season-opener had people talking. But what's next for MJ on TV?`\
+https://nytimes.com/athletic/6740319/2025/10/22/michael-jordan-nbc-nba-tv-halftime/
+
+**Jayden Daniels out for Commanders game at Chiefs; Marcus Mariota will start**\
+`The game will be Daniels’ third missed start this season because of injuries.`\
+https://nytimes.com/athletic/6740441/2025/10/22/jayden-daniels-out-commanders-chiefs-hamstring/
+
+**Tony Vitello to the San Francisco Giants is a risk, but what an entertaining risk it will be**\
+`If he wins and has staying power, Vitello could be one of the game’s colorful personalities. Think Billy Martin crossed with Yogi Berra.`\
+https://nytimes.com/athletic/6736821/2025/10/22/giants-hire-tony-vitello-risk/
+
+**China’s Control of Rare Earths Has U.S. Scrambling to Find Alternatives**\
+`The Trump administration is trying an array of unconventional measures to shore up U.S. rare earths supplies. It remains uncertain whether the strategy will work.`\
+https://nytimes.com/2025/10/22/us/politics/china-trump-rare-earths.html
+
 **San Francisco Giants to hire Tennessee head coach Tony Vitello as next manager: Sources**\
 `Vitello will be the 40th manager in franchise history and he has by far the most unique resume.`\
 https://nytimes.com/athletic/6737767/2025/10/22/san-francisco-giants-hire-tennessee-coach-tony-vitello-manager/

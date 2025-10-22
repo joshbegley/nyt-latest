@@ -1,3 +1,19 @@
+**What We’re Hearing: Michael Jordan’s ‘NBA on NBC’ future**\
+`Michael Jordan's halftime segment for NBC during its NBA season-opener had people talking. But what's next for MJ on TV?`\
+https://nytimes.com/athletic/6740319/2025/10/22/michael-jordan-nbc-nba-tv-halftime/
+
+**Jayden Daniels out for Commanders game at Chiefs; Marcus Mariota will start**\
+`The game will be Daniels’ third missed start this season because of injuries.`\
+https://nytimes.com/athletic/6740441/2025/10/22/jayden-daniels-out-commanders-chiefs-hamstring/
+
+**Tony Vitello to the San Francisco Giants is a risk, but what an entertaining risk it will be**\
+`If he wins and has staying power, Vitello could be one of the game’s colorful personalities. Think Billy Martin crossed with Yogi Berra.`\
+https://nytimes.com/athletic/6736821/2025/10/22/giants-hire-tony-vitello-risk/
+
+**China’s Control of Rare Earths Has U.S. Scrambling to Find Alternatives**\
+`The Trump administration is trying an array of unconventional measures to shore up U.S. rare earths supplies. It remains uncertain whether the strategy will work.`\
+https://nytimes.com/2025/10/22/us/politics/china-trump-rare-earths.html
+
 **San Francisco Giants to hire Tennessee head coach Tony Vitello as next manager: Sources**\
 `Vitello will be the 40th manager in franchise history and he has by far the most unique resume.`\
 https://nytimes.com/athletic/6737767/2025/10/22/san-francisco-giants-hire-tennessee-coach-tony-vitello-manager/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/22/us/politics/trump-drug-boat-strike-colombia.html
 **Does Your Electric Bill Keep Going Up? We Want to See It.**\
 `Utility rates are rising in many places across the country, and we’re continuing to report on the causes and impacts.`\
 https://nytimes.com/2025/10/22/business/energy-environment/electric-bill-questionnaire.html
-
-**NFL Week 8 confidence picks: These five teams will cover**\
-`KC Joyner gives his NFL confidence picks, both straight up and against the spread, for every Week 8 game.`\
-https://nytimes.com/athletic/6739535/2025/10/22/nfl-week-8-confidence-picks-betting/
-
-**London Woman Who Was Fined After Pouring Coffee in Drain Gets a Break**\
-`A social media outcry arose after she was given a fine of 150 pounds for pouring out “a tiny little bit” of coffee before boarding a bus.`\
-https://nytimes.com/2025/10/22/world/europe/woman-pours-coffee-down-drain-fine.html
-
-**NFL moves Pro Bowl to Super Bowl week to lean into flag football**\
-`With Super Bowl LX scheduled for Feb. 8 at Levi’s Stadium in Santa Clara, Calif., the Pro Bowl flag football game will be Tuesday, Feb. 3.`\
-https://nytimes.com/athletic/6740192/2025/10/22/roger-goodell-pro-bowl-super-bowl-lx/
-
-**NFL Week 8 survivor pool picks: Picking against the league's worst teams**\
-`Our survivor columnists share strategy and their picks for Week 8, with Colts over Titans as the most popular pick.`\
-https://nytimes.com/athletic/6739948/2025/10/22/nfl-week-8-survivor-pool-picks-strategy-colts-falcons/
 
