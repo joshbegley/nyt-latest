@@ -1,40 +1,40 @@
-**World Series predictions: Our experts on who should throw out the ceremonial first pitches**\
-`Orel Hershiser and Joe Carter? Kendrick Lamar and Drake? The first pitch possibilities are endless for our World Series clubs.`\
-https://nytimes.com/athletic/6738678/2025/10/22/2025-world-series-predictions-experts-first-pitches/
+**What to expect when the rollicking 'Inside the NBA' TV show makes its ESPN debut**\
+`For years, ESPN's NBA studio shows couldn't match the alchemy of TNT's 'Inside the NBA.' So they went out and acquired it.`\
+https://nytimes.com/athletic/6737262/2025/10/22/inside-the-nba-espn-tnt-charles-barkley/
 
-**Why so serious? Tyrese Maxey talks letting go of last season and becoming a leader**\
-`Maxey's durabilty and ability to play at a high level will go a long way towards determing what the 76ers are or aren't this season.`\
-https://nytimes.com/athletic/6733810/2025/10/22/sixers-tyrese-maxey-nba-season-opener/
+**Myles Turner has a new home, and the Bucks have found another roster leader**\
+`Turner has embraced Milwaukee and the new experiences that have come with the city's warm welcome.`\
+https://nytimes.com/athletic/6728908/2025/10/22/myles-turner-bucks-leader-giannis-nba-pacers/
 
-**Louvre Reopens for First Time Since Brazen Jewelry Robbery**\
-`French authorities are under growing scrutiny about whether security failings allowed four thieves to steal royal jewelry worth over $100 million.`\
-https://nytimes.com/2025/10/22/world/europe/louvre-museum-robbery-open-paris.html
+**Caleb Williams on the run: Bears QB isn't having his usual success outside the pocket**\
+`The Bears are winning while Williams is struggling. What were the issues against the Saints and what can improve before visiting Baltimore?`\
+https://nytimes.com/athletic/6737927/2025/10/22/bears-caleb-williams-outside-pocket/
 
-**The Steelers' underperforming defense has one particular, explosive problem**\
-`Mike Tomlin's defense is looking for answers after a poor performance in a loss to the Bengals.`\
-https://nytimes.com/athletic/6738116/2025/10/22/pittsburgh-steelers-defensive-struggles/
+**Why the Vikings need more from Dallas Turner — sooner rather than later**\
+`The Vikings need a pass-rush jolt, and they're hoping to get it from Turner, a 2024 first-round pick they traded up to get.`\
+https://nytimes.com/athletic/6738112/2025/10/22/dallas-turner-vikings-first-round-pick/
 
-**The New York Times International Edition in Print for Thursday, Oct. 23, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/10/22/todays-new-york-times-international-edition
+**With Kristaps Porzingis' mystery illness solved, Hawks are primed for NBA hunt**\
+`"We are an aspiring team, a young team that aspires to win a championship one day," says Kristaps Porziņģis.`\
+https://nytimes.com/athletic/6737266/2025/10/22/atlanta-hawks-kristaps-porzingis-illness-trae-young/
 
-**Toum Grilled Cheese**\
-`Cheese manakeesh, a topped flatbread found throughout the Levant, is delicious with toum, a sauce made by combining garlic, lemon juice, salt and oil. This grilled cheese hits those notes, skipping a trip to the bakery.`\
-https://nytimes.com/video/dining/100000010366957/toum-grilled-cheese.html
+**Tom Fitzgerald on Devils' next level, Markstrom's future, Hamilton buzz and the big Hughes question**\
+`The Devils GM has high expectations for this year: "We've got to take a leap for this group. You want to make a deep run."`\
+https://nytimes.com/athletic/6736845/2025/10/22/devils-future-markstrom-hamilton-hughes/
 
-**What We Know About the Drone Sightings in Europe**\
-`Airports in several countries have temporarily closed in recent weeks after reports of drones in the skies. Experts say the response has exposed a lack of preparedness.`\
-https://nytimes.com/2025/10/22/world/europe/drone-sightings-airports.html
+**Dak Prescott keeps rolling in Week 7 win over Washington: Quick Outs**\
+`Prescott is on a heater right now, which is a big reason why Dallas is hanging in the NFC East race. What else stood out in Week 7?`\
+https://nytimes.com/athletic/6736899/2025/10/22/nfl-week-7-dak-prescott-drake-maye/
 
-**Brandon Ingram doesn't need to prove himself with Raptors, but he might do it anyway**\
-`After a disappointing run in New Orleans, the former All-Star believes he can apply lessons with his new team.`\
-https://nytimes.com/athletic/6720339/2025/10/22/raptors-brandon-ingram-season-preview-nba/
+**Will OKC repeat? Is Luka an MVP candidate? 24 questions for the 2025-26 season**\
+`Do the Rockets make a move for a point guard? Which former Celtic will have the biggest impact on his new team? Questions: We've got 'em!`\
+https://nytimes.com/athletic/6708909/2025/10/22/nba-2025-2026-season-preview-predictions-thunder-lakers/
 
-**World Falling Short on Methane Pledge, U.N. Report Finds**\
-`Several agency programs are trying to track and reduce methane emissions around the world. They aren’t meeting the targets fast enough.`\
-https://nytimes.com/2025/10/22/climate/methane-leaks-united-nations.html
+**Is James Dolan having fun yet?**\
+`Through a spokesperson, Dolan “respectfully declined” to discuss the risk he took with this move.`\
+https://nytimes.com/athletic/6738319/2025/10/22/james-dolan-fired-tom-thibodeau-risk-knicks-future/
 
-**Takeaways From the Times Magazine Story on Testosterone and Sex Drive**\
-`Here’s when and why experts think testosterone should be prescribed to middle-aged women, and how it affects their lives.`\
-https://nytimes.com/2025/10/22/magazine/women-testosterone-libido-energy-side-effects.html
+**While Kevin Durant takes blame for Rockets loss, Alperen Şengün’s brilliance shines most**\
+`This loss shouldn’t be all about Durant, who finished with 23 points and nine rebounds, even if he vehemently disagrees.`\
+https://nytimes.com/athletic/6739083/2025/10/22/rockets-okc-nba-kevin-durant-alperen-sengun/
 
