@@ -1,3 +1,11 @@
+**San Francisco Giants to hire Tennessee head coach Tony Vitello as next manager: Sources**\
+`Vitello will be the 40th manager in franchise history and he has by far the most unique resume.`\
+https://nytimes.com/athletic/6737767/2025/10/22/san-francisco-giants-hire-tennessee-coach-tony-vitello-manager/
+
+**Ohio State, USC receivers climbing draft boards, but No. 1 in the class remains unchanged**\
+`Arizona State’s Jordyn Tyson has been the leader of the pack and remains just outside the top 10 in Dane Brugler's draft picks. `\
+https://nytimes.com/athletic/6739138/2025/10/22/jordyn-tyson-receivers-draft-board/
+
 **West Coast Storm Could Pack a Powerful Punch of Rain and Snow**\
 `The rain is expected to begin in Washington by late Thursday before moving into Northern California.`\
 https://nytimes.com/2025/10/22/weather/california-oregon-washington-atmospheric-river-forecast-rain.html
