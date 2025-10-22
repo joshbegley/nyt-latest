@@ -1,3 +1,11 @@
+**For Curtis Sliwa, the heat is on.**\
+`By Michael Gold`\
+https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/curtis-sliwa-memes
+
+**Steelers' Aaron Rodgers says game against Packers is 'not a revenge game'**\
+`The four-time MVP says he has great memories from his time in Green Bay and understands the Packers' desire to develop a younger QB`\
+https://nytimes.com/athletic/6741308/2025/10/22/aaron-rodgers-steelers-packers-not-revenge/
+
 **Mamdani invited debate guests who underscore his criticism of Cuomo.**\
 `Zohran Mamdani is expected to invite six guests, all of whom will reflect his criticism of his main rival, former Gov. Andrew Cuomo.`\
 https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/mamdani-guests-debate
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6740930/2025/10/22/nascar-lawsuit-23xi-front-row-mi
 **Man Is Charged in Wrong-Way Crash That Killed 4 Teenagers in New Jersey**\
 `The young men were driving on the New Jersey Turnpike near Wilmington, Del., on Sunday when the man collided with them, according to the police. A truck then hit their S.U.V.`\
 https://nytimes.com/2025/10/22/nyregion/new-jersey-crash-teen-deaths-charges.html
-
-**Will Sliwa Drop Out? He’d Rather Be Impaled.**\
-`Polling in the high teens, Curtis Sliwa, the Republican nominee for mayor, is a long shot to win. But he isn’t going anywhere.`\
-https://nytimes.com/2025/10/22/nyregion/curtis-sliwa-nyc-mayor-race-quit.html
-
-**The Submarines That Smuggle Cocaine Across Oceans and Seas**\
-`A display of confiscated vessels at a naval base in Ecuador offers a peek at why drug smuggling is so hard to stop.`\
-https://nytimes.com/2025/10/22/world/americas/drug-smuggling-submarines.html
 
