@@ -1,3 +1,11 @@
+**Word of the Day: hiatus**\
+`This word has appeared in 334 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/22/learning/word-of-the-day-hiatus.html
+
+**John Stones, Manchester City's human pendulum, can still dictate games like few others can**\
+`Stones was a one-man metronome during City's 2-0 win over Villarreal. Few defenders are able to replicate his ability to dictate play`\
+https://nytimes.com/athletic/6737283/2025/10/22/john-stones-manchester-city-champions-league/
+
 **Just set pieces and dogged defending? Now Arsenal show they can do adventure too**\
 `Rout of Atletico showed how Arteta is evolving his team into an open, attacking force`\
 https://nytimes.com/athletic/6738287/2025/10/22/arsenal-attack-arteta-martinelli-gyokeres/
