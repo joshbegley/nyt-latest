@@ -1,3 +1,11 @@
+**San Francisco Giants to hire Tennessee head coach Tony Vitello as next manager: Sources**\
+`Vitello will be the 40th manager in franchise history and he has by far the most unique resume.`\
+https://nytimes.com/athletic/6737767/2025/10/22/san-francisco-giants-hire-tennessee-coach-tony-vitello-manager/
+
+**Ohio State, USC receivers climbing draft boards, but No. 1 in the class remains unchanged**\
+`Arizona State’s Jordyn Tyson has been the leader of the pack and remains just outside the top 10 in Dane Brugler's draft picks. `\
+https://nytimes.com/athletic/6739138/2025/10/22/jordyn-tyson-receivers-draft-board/
+
 **West Coast Storm Could Pack a Powerful Punch of Rain and Snow**\
 `The rain is expected to begin in Washington by late Thursday before moving into Northern California.`\
 https://nytimes.com/2025/10/22/weather/california-oregon-washington-atmospheric-river-forecast-rain.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6740192/2025/10/22/roger-goodell-pro-bowl-super-bow
 **NFL Week 8 survivor pool picks: Picking against the league's worst teams**\
 `Our survivor columnists share strategy and their picks for Week 8, with Colts over Titans as the most popular pick.`\
 https://nytimes.com/athletic/6739948/2025/10/22/nfl-week-8-survivor-pool-picks-strategy-colts-falcons/
-
-**Review: Bodily Traces of War, Expressed Through Dance**\
-`In “What Is War,” two singular artists, Eiko Otake and Wen Hui, grapple with memories of China and Japan in World War II.`\
-https://nytimes.com/2025/10/22/arts/dance/what-is-war-review-eiko-otake-wen-hui.html
-
-**Why Can’t People Say Zohran Mamdani’s Name Correctly?**\
-`Friends and foes keep getting it wrong. Mr. Mamdani says, “It’s pretty phonetic honestly.”`\
-https://nytimes.com/interactive/2025/10/22/nyregion/zohran-mamdani-pronunciation.html
 
