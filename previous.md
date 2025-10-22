@@ -1,40 +1,40 @@
-**How President Trump Uses A.I.**\
-`The era of A.I. propaganda is here — and Trump is an enthusiastic participant.`\
-https://nytimes.com/2025/10/22/briefing/how-president-trump-uses-ai.html
+**Driver Crashes Car Into Security Gate Near White House**\
+`A man was arrested after he drove his vehicle into a barricade outside the White House, the Secret Service said. It was not immediately known whether the crash was intentional.`\
+https://nytimes.com/video/us/100000010473753/car-crash-white-house.html
 
-**The Women's World Cup is set to expand in 2031. Will host cities be able to capitalize?**\
-`Down to Business with Asli Pelit takes you through the fast-paced (and sometimes confusing) corporate side of women's soccer.`\
-https://nytimes.com/athletic/6737859/2025/10/22/womens-world-cup-expand-2031-will-host-city-investment/
+**College football Week 9 streaming guide: Missouri-Vanderbilt leads on 'College GameDay'**\
+`Trinidad Chambliss takes on Oklahoma. Bear Bachmeier visits Ames. There's a lot going on across this week's college football lineup.`\
+https://nytimes.com/athletic/6734868/2025/10/22/college-football-schedule-missouri-vanderbilt-michigan-msu-how-to-watch/
 
-**Steve Aoki Shows The Athletic His Sports Card Collection**\
-`The D.J. Steve Aoki reveals his most expensive sports cards. Including Tom Brady, Michael Jordan, Shohei Ohtani and Lionel Messi, his collection is one of a kind.`\
-https://nytimes.com/video/the-athletic/100000010462310/steve-aoki-shows-the-athletic-his-sports-card-collection.html
+**John Terry: Managerial rejections have been 'difficult to fathom'**\
+`The former England captain made 717 appearances for Chelsea as a player, winning five Premier Leagues and a Champions League title.`\
+https://nytimes.com/athletic/6739452/2025/10/22/john-terry-chelsea-manager-dream/
 
-**What is POTS? Explaining the illness that sapped Kristaps Porziņģis of energy in playoffs**\
-`A mystery illness turned the big man into a completely different player in the postseason. Here's what happened.`\
-https://nytimes.com/athletic/6738610/2025/10/22/kristaps-porzingis-illness-explained-nba/
+**Who will Emma Hayes take to the 2027 Women's World Cup?**\
+`It's never too early to predict who might play for the USWNT at the 2027 Women's World Cup in Brazil… so we gave it a go`\
+https://nytimes.com/athletic/6738441/2025/10/22/uswnt-2027-world-cup-roster-prediction-emma-hayes/
 
-**Will the Cubs use the offseason to address second-half hitting slump?**\
-`Both the 2023 and 2024 Cubs were better offensively in the second half than in the first. The opposite was true in this past season.`\
-https://nytimes.com/athletic/6737481/2025/10/22/will-the-cubs-use-the-offseason-to-address-second-half-hitting-slump/
+**Why Anthony Volpe's shoulder surgery signals end of excuses on Yankees shortstop's future**\
+`There are reasons for optimism Volpe could return as an improved player, according to an orthopedic surgeon. But who is that player? `\
+https://nytimes.com/athletic/6737695/2025/10/22/anthony-volpe-shoulder-surgery-yankees-future/
 
-**Why is Jonathan Quick such a beloved dressing room presence? Let his teammates explain**\
-`Quick's exploits on the ice are well-known, with Stanley Cup wins and individual accolades, but his teammates value far more than that.`\
-https://nytimes.com/athletic/6737678/2025/10/22/jonathan-quick-nhl-teammate-goalie/
+**Sizing up the NHL: Analyzing 2025-26 teams by age, height, weight and nationality**\
+`The NHL has been trending slightly older and bigger over the past few seasons, but it's a very subtle shift.`\
+https://nytimes.com/athletic/6737066/2025/10/22/nhl-players-age-height-weight-nationality-2025/
 
-**TAFC: Ominous Arsenal, PSG lead Euro goalfest. Plus, Liga game in Miami cancelled**\
-`Today in TAFC: Arsenal looking good in attack and defence. Plus: Liga match in Miami is cancelled due to 'insufficient time' to prepare`\
-https://nytimes.com/athletic/6739271/2025/10/22/arsenal-atletico-defence-psg-rout/
+**Why are the Maple Leafs struggling? What I think and what I know after 7 games**\
+`Sure, it's early, and the Leafs aren't strangers to a slow start. Let's examine some of the trends that might be forming this season.`\
+https://nytimes.com/athletic/6738752/2025/10/22/toronto-maple-leafs-season-start-devils/
 
-**Vance Says He’s Not in Israel to Babysit Gaza Truce**\
-`Vice President JD Vance, on the second day of a trip to the country, said recent visits by top American officials were to monitor the cease-fire, but not “in the sense of, you know, you monitor a toddler.”`\
-https://nytimes.com/2025/10/22/world/middleeast/netanyahu-vance-israel-gaza-ceasefire.html
+**Cavs begin title quest with most expensive roster, highest expectations: Lloyd**\
+`Cleveland's core is entering its fourth season together, and if the Cavs are to make an NBA Finals run, this is their best chance.`\
+https://nytimes.com/athletic/6737835/2025/10/22/cavaliers-title-quest-nba-roster-expectations/
 
-**The Pulse: The NBA opens with two bangers**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6738815/2025/10/22/nba-opening-night-rockets-thunder-warriors-lakers-the-pulse/
+**College basketball's 5 most intriguing transfers of the 2025-26 season**\
+`These transfers, whether they have a polarizing past or are moving within a conference, are likely to be difference-makers this season.`\
+https://nytimes.com/athletic/6737381/2025/10/22/college-basketball-transfers-most-intriguing/
 
-**As Senators rebuild their 'team identity,' where does Jordan Spence fit?**\
-`Spence was supposed to add offence and skating to Ottawa's back end. So why has he been scratched three times this season? `\
-https://nytimes.com/athletic/6737295/2025/10/22/senators-jordan-spence-scratch-rebuild/
+**The Dodgers trained hitting coach David Popkins. Now, he hopes to beat their rotation with the Blue Jays**\
+`Countless Blue Jays bats preach the progress under Toronto’s trio of hitting coaches — Hunter Mense, Lou Iannotti and Popkins.`\
+https://nytimes.com/athletic/6738907/2025/10/22/blue-jays-dodgers-hitting-coach-david-popkins/
 
