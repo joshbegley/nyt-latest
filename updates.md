@@ -1,3 +1,15 @@
+**Raptors, Leafs, Sabres adjust game start times to limit  World Series overlap**\
+`Those games conflict with Game 1 of the World Series, which will take place at Rogers Centre, down the street from the Raptors’ home.`\
+https://nytimes.com/athletic/6739863/2025/10/22/toronto-maple-leafs-raptors-blue-jays-world-series/
+
+**The NATO chief and Trump will discuss support for Ukraine.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2025/10/22/us/trump-news/the-nato-chief-and-trump-will-discuss-support-for-ukraine
+
+**Man Is Shot and Tents Set on Fire Outside Serbia’s Parliament**\
+`A suspect was arrested after a blaze broke out among structures erected by supporters of President Aleksandar Vucic. Protests against his government have rumbled for months.`\
+https://nytimes.com/2025/10/22/world/europe/serbia-shots-fire-parliament-protest.html
+
 **Yomiuri Giants slugger Kazuma Okamoto to be posted for MLB teams**\
 `Okamoto hit at least 30 home runs each season from 2018 to 2023.`\
 https://nytimes.com/athletic/6739680/2025/10/22/kazuma-okamoto-posted-mlb-signing-yomiuri-giants/
