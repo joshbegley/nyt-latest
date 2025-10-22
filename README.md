@@ -1,3 +1,7 @@
+**Ampadu, Struijk illness doubts for Leeds; Okafor, Gnonto yet to train fully**\
+`Daniel Farke says Okafor has a better chance of returning to the fold than Gnonto for Friday's fixture against West Ham.`\
+https://nytimes.com/athletic/6739884/2025/10/22/leeds-united-injury-update-west-ham/
+
 **Queens Woman Arrested in Abandonment of Newborn in Penn Station Subway**\
 `The woman told the police she had given birth shortly before leaving the child in a busy passageway as rush hour died down. The baby’s umbilical cord was still attached.`\
 https://nytimes.com/2025/10/22/nyregion/penn-station-abandoned-baby-arrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/22/nyregion/the-hole-infrastructure-flooding.html
 **Eight Eagles Thoughts: Top 5 Jalen Hurts games, DeVonta Smith shines, Brandon Graham's role**\
 `Plus, thoughts on what the Eagles should do with the trade deadline approaching.`\
 https://nytimes.com/athletic/6738251/2025/10/22/eagles-top-5-jalen-hurts-games-devonta-smith-brandon-graham-role/
-
-**Barcelona vs Villarreal in Miami was suddenly cancelled. What happened?**\
-`Plans to hold a La Liga match between Villarreal and Barcelona in Miami in December spectacularly crumbled on Tuesday`\
-https://nytimes.com/athletic/6739461/2025/10/22/barcelona-miami-la-liga-villarreal-cancelled/
 

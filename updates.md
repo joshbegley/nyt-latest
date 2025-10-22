@@ -1,3 +1,7 @@
+**Queens Woman Arrested in Abandonment of Newborn in Penn Station Subway**\
+`The woman told the police she had given birth shortly before leaving the child in a busy passageway as rush hour died down. The baby’s umbilical cord was still attached.`\
+https://nytimes.com/2025/10/22/nyregion/penn-station-abandoned-baby-arrest.html
+
 **Jimmy Butler's opening night showed why Warriors need him — and vice versa**\
 `Who knows how it will end for Butler at Golden State. But the beginning has been promising.`\
 https://nytimes.com/athletic/6739304/2025/10/22/jimmy-butler-warriors-opening-night-lakers/
