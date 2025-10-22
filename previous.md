@@ -1,3 +1,11 @@
+**University of Virginia Makes Deal With White House to Halt Investigations**\
+`The Justice Department had been scrutinizing one of the nation’s premier public universities over accusations of civil rights violations.`\
+https://nytimes.com/2025/10/22/us/politics/university-of-virginia-trump-agreement.html
+
+**Ravens veterans remove games, ping pong tables from locker room amid losing streak**\
+`The Ravens have lost four straight games and are 1-5, tied for their worst start in franchise history.`\
+https://nytimes.com/athletic/6741002/2025/10/22/ravens-veterans-remove-games-locker-room/
+
 **Iceland Announces an Unfortunate First: Mosquitoes**\
 `Iceland was one of the only mosquito-free places in the world, at least according to its records. Not anymore.`\
 https://nytimes.com/2025/10/22/world/europe/iceland-mosquito-discovery.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6740645/2025/10/22/tom-izzo-michigan-state-ncaa-tra
 **Tesla Profit Falls 37% After It Cut Car Prices**\
 `The company sold more cars but made less money on each one because of discounts and low-interest loans.`\
 https://nytimes.com/2025/10/22/business/tesla-earnings-elon-musk.html
-
-**Border Patrol Plans Crackdown in the San Francisco Bay Area**\
-`Border Patrol agents are being sent to a U.S. Coast Guard base in Alameda, Calif., ahead of an immigration operation in the San Francisco region.`\
-https://nytimes.com/2025/10/22/us/border-patrol-san-francisco-bay-area.html
-
-**Scoop City: Four big-name edge rushers unlikely to move**\
-`Trade deadline updates, moving on from successful regular-season coaches like Mike Tomlin, plus Mike Sando weighs in on the Jets`\
-https://nytimes.com/athletic/6740955/2025/10/22/nfl-trade-deadline-mike-tomlin-coaching-history/
 
