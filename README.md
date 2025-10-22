@@ -1,3 +1,11 @@
+**Ben Duckett exclusive: 'England have given my style their full backing. Now, winning the Ashes would be the ultimate'**\
+`The England opener talks Ashes motivation, the return from his lowest ebb, Bazball and that unwanted arm round the shoulder from Akah Deep`\
+https://nytimes.com/athletic/6732630/2025/10/22/ben-duckett-ashes-england-exclusive/
+
+**Yankuba Minteh's importance to Brighton is growing every week**\
+`The Brighton player causing the most headaches to opponents so far this Premier League season has been their Gambian winger`\
+https://nytimes.com/athletic/6725773/2025/10/22/yankuba-minteh-brighton-analysis/
+
 **Crystal Palace have the Premier League’s best attack – and low crosses are their secret weapon**\
 `Crystal Palace are transformed under Glasner. Here's how they use their wing-backs and low crosses to devastating effect`\
 https://nytimes.com/athletic/6736365/2025/10/22/crystal-palace-low-crosses-xg-premier-league/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6737038/2025/10/22/real-madrid-xabi-alonso-mentalit
 **Go on, my son: How football’s relationship with fatherhood has grown up**\
 `Even if the idea of taking paternity leave remains virtually unheard of in football, the experience of players becoming fathers is evolving`\
 https://nytimes.com/athletic/6718651/2025/10/22/football-fatherhood-premier-league-child-birth/
-
-**Why increased technical quality in football gives goalkeepers more reason to kick long**\
-`When attackers can receive long passes majestically, it's no surprise that this modernised version of route one football has gone down well`\
-https://nytimes.com/athletic/6706136/2025/10/22/goalkeeper-long-passes-premier-league/
-
-**Are Sean Dyche and Nottingham Forest a perfect tactical match?**\
-`The new Forest head coach should be able to get a familiar tune out of the squad he's inheriting at the City Ground`\
-https://nytimes.com/athletic/6733391/2025/10/22/sean-dyche-tactics-nottingham-forest/
 
