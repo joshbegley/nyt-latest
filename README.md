@@ -1,3 +1,7 @@
+**The Women's World Cup is set to expand in 2031. Will host cities be able to capitalize?**\
+`Down to Business with Asli Pelit takes you through the fast-paced (and sometimes confusing) corporate side of women's soccer.`\
+https://nytimes.com/athletic/6737859/2025/10/22/womens-world-cup-expand-2031-will-host-city-investment/
+
 **Steve Aoki Shows The Athletic His Sports Card Collection**\
 `The D.J. Steve Aoki reveals his most expensive sports cards. Including Tom Brady, Michael Jordan, Shohei Ohtani and Lionel Messi, his collection is one of a kind.`\
 https://nytimes.com/video/the-athletic/100000010462310/steve-aoki-shows-the-athletic-his-sports-card-collection.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6737295/2025/10/22/senators-jordan-spence-scratch-r
 **What to expect when the rollicking 'Inside the NBA' TV show makes its ESPN debut**\
 `For years, ESPN's NBA studio shows couldn't match the alchemy of TNT's 'Inside the NBA.' So they went out and acquired it.`\
 https://nytimes.com/athletic/6737262/2025/10/22/inside-the-nba-espn-tnt-charles-barkley/
-
-**Myles Turner has a new home, and the Bucks have found another roster leader**\
-`Turner has embraced Milwaukee and the new experiences that have come with the city's warm welcome.`\
-https://nytimes.com/athletic/6728908/2025/10/22/myles-turner-bucks-leader-giannis-nba-pacers/
 

@@ -1,3 +1,23 @@
+**Steve Aoki Shows The Athletic His Sports Card Collection**\
+`The D.J. Steve Aoki reveals his most expensive sports cards. Including Tom Brady, Michael Jordan, Shohei Ohtani and Lionel Messi, his collection is one of a kind.`\
+https://nytimes.com/video/the-athletic/100000010462310/steve-aoki-shows-the-athletic-his-sports-card-collection.html
+
+**What is POTS? Explaining the illness that sapped Kristaps Porziņģis of energy in playoffs**\
+`A mystery illness turned the big man into a completely different player in the postseason. Here's what happened.`\
+https://nytimes.com/athletic/6738610/2025/10/22/kristaps-porzingis-illness-explained-nba/
+
+**Will the Cubs use the offseason to address second-half hitting slump?**\
+`Both the 2023 and 2024 Cubs were better offensively in the second half than in the first. The opposite was true in this past season.`\
+https://nytimes.com/athletic/6737481/2025/10/22/will-the-cubs-use-the-offseason-to-address-second-half-hitting-slump/
+
+**Why is Jonathan Quick such a beloved dressing room presence? Let his teammates explain**\
+`Quick's exploits on the ice are well-known, with Stanley Cup wins and individual accolades, but his teammates value far more than that.`\
+https://nytimes.com/athletic/6737678/2025/10/22/jonathan-quick-nhl-teammate-goalie/
+
+**Vance Says He’s Not in Israel to Babysit Gaza Truce**\
+`Vice President JD Vance, on the second day of a trip to the country, said recent visits by top American officials were to monitor the cease-fire, but not “in the sense of, you know, you monitor a toddler.”`\
+https://nytimes.com/2025/10/22/world/middleeast/netanyahu-vance-israel-gaza-ceasefire.html
+
 **TAFC: Ominous Arsenal, PSG lead Euro goalfest. Plus, Liga game in Miami cancelled**\
 `Today in TAFC: Arsenal looking good in attack and defence. Plus: Liga match in Miami is cancelled due to 'insufficient time' to prepare`\
 https://nytimes.com/athletic/6739271/2025/10/22/arsenal-atletico-defence-psg-rout/
