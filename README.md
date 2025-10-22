@@ -1,3 +1,7 @@
+**How President Trump Uses A.I.**\
+`The era of A.I. propaganda is here — and Trump is an enthusiastic participant.`\
+https://nytimes.com/2025/10/22/briefing/how-president-trump-uses-ai.html
+
 **The Women's World Cup is set to expand in 2031. Will host cities be able to capitalize?**\
 `Down to Business with Asli Pelit takes you through the fast-paced (and sometimes confusing) corporate side of women's soccer.`\
 https://nytimes.com/athletic/6737859/2025/10/22/womens-world-cup-expand-2031-will-host-city-investment/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6738815/2025/10/22/nba-opening-night-rockets-thunde
 **As Senators rebuild their 'team identity,' where does Jordan Spence fit?**\
 `Spence was supposed to add offence and skating to Ottawa's back end. So why has he been scratched three times this season? `\
 https://nytimes.com/athletic/6737295/2025/10/22/senators-jordan-spence-scratch-rebuild/
-
-**What to expect when the rollicking 'Inside the NBA' TV show makes its ESPN debut**\
-`For years, ESPN's NBA studio shows couldn't match the alchemy of TNT's 'Inside the NBA.' So they went out and acquired it.`\
-https://nytimes.com/athletic/6737262/2025/10/22/inside-the-nba-espn-tnt-charles-barkley/
 
