@@ -1,3 +1,7 @@
+**Alexander Bublik calls Valentin Vacherot's Shanghai Masters title 'failure' by ATP players**\
+`Bublik expressed frustration over Vacherot's rising from No.204 to win the Shanghai Masters, describing it as a collective failure.`\
+https://nytimes.com/athletic/6740253/2025/10/22/alexander-bublik-valentin-vacherot-shanghai-masters-atp-tour/
+
 **D-Backs' Amiel Sawdaye, Guardians' Matt Forman are finalists for Rockies GM**\
 `Sawdaye started his career with the Red Sox. Forman has been with Cleveland since 2013.`\
 https://nytimes.com/athletic/6740361/2025/10/22/rockies-gm-finalists-amiel-sawdaye-matt-forman/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6736821/2025/10/22/giants-hire-tony-vitello-risk/
 **China’s Control of Rare Earths Has U.S. Scrambling to Find Alternatives**\
 `The Trump administration is trying an array of unconventional measures to shore up U.S. rare earths supplies. It remains uncertain whether the strategy will work.`\
 https://nytimes.com/2025/10/22/us/politics/china-trump-rare-earths.html
-
-**San Francisco Giants to hire Tennessee head coach Tony Vitello as next manager: Sources**\
-`Vitello will be the 40th manager in franchise history and he has by far the most unique resume.`\
-https://nytimes.com/athletic/6737767/2025/10/22/san-francisco-giants-hire-tennessee-coach-tony-vitello-manager/
 
