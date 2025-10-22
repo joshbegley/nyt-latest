@@ -1,3 +1,19 @@
+**Zohran Mamdani**\
+``\
+https://nytimes.com/spotlight/zohran-mamdani
+
+**Tom Izzo rips NCAA over new eligibility rules: 'They've got to regroup'**\
+`Izzo was asked for his thoughts on Louisville signing London Johnson, a 21-year-old point guard who spent last season in the G League.`\
+https://nytimes.com/athletic/6740645/2025/10/22/tom-izzo-michigan-state-ncaa-transfer-eligibility/
+
+**Tesla Profit Falls 37% After It Cut Car Prices**\
+`The company sold more cars but made less money on each one because of discounts and low-interest loans.`\
+https://nytimes.com/2025/10/22/business/tesla-earnings-elon-musk.html
+
+**Border Patrol Plans Crackdown in the San Francisco Bay Area**\
+`Border Patrol agents are being sent to a U.S. Coast Guard base in Alameda, Calif., ahead of an immigration operation in the San Francisco region.`\
+https://nytimes.com/2025/10/22/us/border-patrol-san-francisco-bay-area.html
+
 **Scoop City: Four big-name edge rushers unlikely to move**\
 `Trade deadline updates, moving on from successful regular-season coaches like Mike Tomlin, plus Mike Sando weighs in on the Jets`\
 https://nytimes.com/athletic/6740955/2025/10/22/nfl-trade-deadline-mike-tomlin-coaching-history/
@@ -17,24 +33,4 @@ https://nytimes.com/2025/10/22/world/middleeast/mass-burial-gaza.html
 **Congress Members Question Pentagon’s Delay in ‘Forever Chemical’ Cleanup**\
 `A bipartisan group of lawmakers has asked the military to explain why cleanup of PFAS chemicals at bases nationwide has been pushed back.`\
 https://nytimes.com/2025/10/22/climate/pfas-forever-chemical-pentagon-cleanup-delay.html
-
-**Answer 4 Questions. Leave With a Movie for Halloween.**\
-`Whether you’re in the mood for new chills or classic thrills, we’ve got a killer pick for you.`\
-https://nytimes.com/interactive/2025/10/22/movies/halloween-movie-recommendation-quiz.html
-
-**Russian Missiles Hit Apartments, School and Power Plant in Ukraine**\
-`The barrage came hours after President Trump said he was putting off a planned meeting with President Vladimir Putin of Russia to avoid a “wasted” effort toward ending the war.`\
-https://nytimes.com/video/world/europe/100000010473770/ukraine-russia-strikes.html
-
-**Why Daniel Suárez to Spire just might make sense, even if it doesn't look like it**\
-`Suárez hasn't done much better this season than the driver he's replacing. But his track record gives Spire enough reason to believe.`\
-https://nytimes.com/athletic/6740355/2025/10/22/daniel-suarez-spire-motorsports-driver/
-
-**How to watch Spurs vs. Mavericks: Time, TV, streaming**\
-`Find out how to watch the San Antonio Spurs play the Dallas Mavericks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6740855/2025/10/22/spurs-vs-mavericks-stream-how-to-watch-oct-22/
-
-**How to watch Pelicans vs. Grizzlies: Time, TV, streaming**\
-`Find out how to watch the New Orleans Pelicans play the Memphis Grizzlies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6740853/2025/10/22/pelicans-vs-grizzlies-stream-how-to-watch-oct-22/
 
