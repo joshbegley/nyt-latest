@@ -1,3 +1,11 @@
+**Review: Bodily Traces of War, Expressed Through Dance**\
+`In “What Is War,” two singular artists, Eiko Otake and Wen Hui, grapple with memories of China and Japan in World War II.`\
+https://nytimes.com/2025/10/22/arts/dance/what-is-war-review-eiko-otake-wen-hui.html
+
+**Why Can’t People Say Zohran Mamdani’s Name Correctly?**\
+`Friends and foes keep getting it wrong. Mr. Mamdani says, “It’s pretty phonetic honestly.”`\
+https://nytimes.com/interactive/2025/10/22/nyregion/zohran-mamdani-pronunciation.html
+
 **Reddit Accuses ‘Data Scraper’ Companies of Stealing Its Information**\
 `In a lawsuit, Reddit pulled back the curtain on an ecosystem of start-ups that scrape Google’s search results and resell the information to data-hungry A.I. companies.`\
 https://nytimes.com/2025/10/22/technology/reddit-data-scrapers-perplexity-theft.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/22/magazine/magazine-email/spouse-politics-housegues
 **Yohe mailbag: Are the Penguins actually ... good? Plus: A nightmare travel story**\
 `Let me explain why a Canadian mall employee told me, "You must be an American."`\
 https://nytimes.com/athletic/6732484/2025/10/22/penguins-record-nhl-schedule-yohe-mailbag/
-
-**New York Names a Street in Honor of Jean-Michel Basquiat**\
-`A stretch of Great Jones Street where the artist lived and worked now goes by “Jean-Michel Basquiat Way.”`\
-https://nytimes.com/2025/10/22/style/new-york-names-a-street-in-honor-of-jean-michel-basquiat.html
-
-**Why Rural America Turned on the Democratic Party**\
-`President Trump’s deployment of the National Guard from red states into blue cities isn’t just a partisan attack; it’s also a geographic one.`\
-https://nytimes.com/video/opinion/100000010465649/why-rural-america-turned-on-the-democratic-party.html
 

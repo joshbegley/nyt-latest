@@ -1,3 +1,11 @@
+**Review: Bodily Traces of War, Expressed Through Dance**\
+`In “What Is War,” two singular artists, Eiko Otake and Wen Hui, grapple with memories of China and Japan in World War II.`\
+https://nytimes.com/2025/10/22/arts/dance/what-is-war-review-eiko-otake-wen-hui.html
+
+**Why Can’t People Say Zohran Mamdani’s Name Correctly?**\
+`Friends and foes keep getting it wrong. Mr. Mamdani says, “It’s pretty phonetic honestly.”`\
+https://nytimes.com/interactive/2025/10/22/nyregion/zohran-mamdani-pronunciation.html
+
 **Raiders meet with Maxx Crosby to reinforce commitment to star pass rusher**\
 `With the NFL trade deadline less than two weeks away, the rumor mill will be spinning when it comes to quality players on struggling teams.`\
 https://nytimes.com/athletic/6740182/2025/10/22/las-vegas-raiders-maxx-crosby-meeting/
