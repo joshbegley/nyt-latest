@@ -1,3 +1,15 @@
+**Women Are Losing in Trump’s Economy**\
+`Massive cuts to health, education and immigration are disproportionately taking a toll.`\
+https://nytimes.com/2025/10/22/opinion/women-trump-economy.html
+
+**How Can I Get My Daughter-in-Law to Add Me to Her Instagram Story?**\
+`A reader feels left out when she sees photos of her granddaughters hanging out with their mother’s side of the family — including at gatherings at which she was present.`\
+https://nytimes.com/2025/10/22/style/instagram-jealousy.html
+
+**Barcelona vs Villarreal in Miami was suddenly cancelled. What happened?**\
+`Plans to hold a La Liga match between Villarreal and Barcelona in Miami in December spectacularly crumbled on Tuesday`\
+https://nytimes.com/athletic/6739461/2025/10/22/barcelona-miami-la-liga-villarreal-cancelled/
+
 **The 24 Wikipedia pages for NHL rivalries, ranked by their single wildest passage**\
 `From Whoopi Goldberg sitcoms to framing innocent away fans to brawls in Santa costumes, there's a lot of gold in NHL Wikipedia writeups.`\
 https://nytimes.com/athletic/6738183/2025/10/22/nhl-rivalries-wikipedia-ranking/
