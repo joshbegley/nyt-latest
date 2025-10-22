@@ -1,3 +1,11 @@
+**NFL moves Pro Bowl to Super Bowl week to lean into flag football**\
+`With Super Bowl LX scheduled for Feb. 8 at Levi’s Stadium in Santa Clara, Calif., the Pro Bowl flag football game will be Tuesday, Feb. 3.`\
+https://nytimes.com/athletic/6740192/2025/10/22/roger-goodell-pro-bowl-super-bowl-lx/
+
+**NFL Week 8 survivor pool picks: Picking against the league's worst teams**\
+`Our survivor columnists share strategy and their picks for Week 8, with Colts over Titans as the most popular pick.`\
+https://nytimes.com/athletic/6739948/2025/10/22/nfl-week-8-survivor-pool-picks-strategy-colts-falcons/
+
 **Review: Bodily Traces of War, Expressed Through Dance**\
 `In “What Is War,” two singular artists, Eiko Otake and Wen Hui, grapple with memories of China and Japan in World War II.`\
 https://nytimes.com/2025/10/22/arts/dance/what-is-war-review-eiko-otake-wen-hui.html
