@@ -1,3 +1,11 @@
+**The 24 Wikipedia pages for NHL rivalries, ranked by their single wildest passage**\
+`From Whoopi Goldberg sitcoms to framing innocent away fans to brawls in Santa costumes, there's a lot of gold in NHL Wikipedia writeups.`\
+https://nytimes.com/athletic/6738183/2025/10/22/nhl-rivalries-wikipedia-ranking/
+
+**Russia Hits Kindergarten and Power Plants Hours After Trump Delays Summit**\
+`President Volodymyr Zelensky of Ukraine said the overnight assault showed that Russia “clearly doesn’t feel enough pressure to stop prolonging the war.”`\
+https://nytimes.com/2025/10/22/world/europe/russia-ukraine-putin-trump.html
+
 **Thai Official Resigns Over Allegations of Links to Scam Network**\
 `Thailand’s deputy finance minister, Vorapak Tanyawong, was accused of ties to the Cambodian cybercrime hubs he had been appointed to combat.`\
 https://nytimes.com/2025/10/22/world/asia/thailand-minister-resigns-cambodia-scam-networks.html
