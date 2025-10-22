@@ -1,3 +1,7 @@
+**As Johnson Delays, Grijalva Sues to Be Seated in the House**\
+`Representative-elect Adelita Grijalva, Democrat of Arizona, along with the state’s attorney general, argued that the speaker had no authority to delay swearing her into office.`\
+https://nytimes.com/2025/10/22/us/politics/adelita-grijalva-lawsuit-swearing-in-congress.html
+
 **Zohran Mamdani**\
 ``\
 https://nytimes.com/spotlight/zohran-mamdani
@@ -29,8 +33,4 @@ https://nytimes.com/2025/10/22/t-magazine/rising-contemporary-artist-exhibitions
 **At a Mass Burial in Gaza, Palestinians Mourn the Unknown Dead**\
 `Under the terms of a cease-fire deal, Israel and Hamas have been exchanging remains, but Gaza’s medical authorities have not been able to identify many of them.`\
 https://nytimes.com/2025/10/22/world/middleeast/mass-burial-gaza.html
-
-**Congress Members Question Pentagon’s Delay in ‘Forever Chemical’ Cleanup**\
-`A bipartisan group of lawmakers has asked the military to explain why cleanup of PFAS chemicals at bases nationwide has been pushed back.`\
-https://nytimes.com/2025/10/22/climate/pfas-forever-chemical-pentagon-cleanup-delay.html
 
