@@ -1,3 +1,11 @@
+**World Series predictions: Our experts on who should throw out the ceremonial first pitches**\
+`Orel Hershiser and Joe Carter? Kendrick Lamar and Drake? The first pitch possibilities are endless for our World Series clubs.`\
+https://nytimes.com/athletic/6738678/2025/10/22/2025-world-series-predictions-experts-first-pitches/
+
+**Why so serious? Tyrese Maxey talks letting go of last season and becoming a leader**\
+`Maxey's durabilty and ability to play at a high level will go a long way towards determing what the 76ers are or aren't this season.`\
+https://nytimes.com/athletic/6733810/2025/10/22/sixers-tyrese-maxey-nba-season-opener/
+
 **Louvre Reopens for First Time Since Brazen Jewelry Robbery**\
 `French authorities are under growing scrutiny about whether security failings allowed four thieves to steal royal jewelry worth over $100 million.`\
 https://nytimes.com/2025/10/22/world/europe/louvre-museum-robbery-open-paris.html
