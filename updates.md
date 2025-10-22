@@ -1,3 +1,11 @@
+**Federal Agents Stage Raid on Canal Street in New York City**\
+`Dozens of federal officers descended on the sidewalks of Lower Manhattan on Tuesday, detaining several people and drawing protests.`\
+https://nytimes.com/2025/10/21/nyregion/federal-agents-stage-raid-on-canal-street-in-new-york-city.html
+
+**Federal Agents Detain Several Men During New York City Raid**\
+`Masked federal agents detained several men in Lower Manhattan on Tuesday, near an area where vendors sell illegal counterfeit goods.`\
+https://nytimes.com/video/us/politics/100000010473142/new-york-city-immigration-raid-arrests.html
+
 **Chiefs star Travis Kelce's latest venture is literal roller coaster**\
 `Kelce and JANA Partners announced a $200 million investment in Six Flags Entertainment on Tuesday.`\
 https://nytimes.com/athletic/6738088/2025/10/21/travis-kelce-jana-partners-six-flags-investment/
