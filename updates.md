@@ -1,3 +1,11 @@
+**Iceland Announces an Unfortunate First: Mosquitoes**\
+`Iceland was one of the only mosquito-free places in the world, at least according to its records. Not anymore.`\
+https://nytimes.com/2025/10/22/world/europe/iceland-mosquito-discovery.html
+
+**No Stupid Questions: Cake**\
+`The New York Times’s Cooking contributor, Samantha Seneviratne, joins us in the studio kitchen to answer some frequently asked questions and to share her go-to tips for cake-baking success.`\
+https://nytimes.com/video/dining/100000010474544/no-stupid-questions-cake.html
+
 **NBA will bring back Larry O'Brien Trophy, Finals logo to home floor in June: Source**\
 `The aesthetic is a return to where the league was decades ago and comes after complaints from fans and media.`\
 https://nytimes.com/athletic/6740971/2025/10/22/nba-trophy-logo-nba-finals-june-2026/
