@@ -1,3 +1,15 @@
+**West Coast Storm Could Pack a Powerful Punch of Rain and Snow**\
+`The rain is expected to begin in Washington by late Thursday before moving into Northern California.`\
+https://nytimes.com/2025/10/22/weather/california-oregon-washington-atmospheric-river-forecast-rain.html
+
+**Why King Charles Has Not Yet Removed Andrew’s Most Valued Title: Prince**\
+`New disclosures about Prince Andrew’s ties to the notorious sex offender Jeffrey Epstein have led to calls for further action from the king and Parliament.`\
+https://nytimes.com/2025/10/22/world/europe/king-charles-prince-andrew-title-epstein.html
+
+**U.S. Expands Antidrug Campaign With Strike on Boat in Pacific Near Colombia**\
+`It was the eighth known strike, and the first outside of the Caribbean, in the Trump administration’s campaign against what it says are boats carrying drugs bound for the United States.`\
+https://nytimes.com/2025/10/22/us/politics/trump-drug-boat-strike-colombia.html
+
 **Does Your Electric Bill Keep Going Up? We Want to See It.**\
 `Utility rates are rising in many places across the country, and we’re continuing to report on the causes and impacts.`\
 https://nytimes.com/2025/10/22/business/energy-environment/electric-bill-questionnaire.html
