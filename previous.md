@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘That Changed Everything’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/10/22/style/tiny-love-modern-love-stories-that-changed-everything.html
+
 **Samantha Eggar, Oscar-Nominated Star of ‘The Collector,’ Dies at 86**\
 `She also had leading roles in “Doctor Dolittle” with Rex Harrison, “Walk, Don’t Run” with Cary Grant and “The Molly Maguires” with Sean Connery.`\
 https://nytimes.com/2025/10/22/movies/samantha-eggar-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/22/nyregion/nyc-mayor-early-voting.html
 **Isak suffers groin injury, Frimpong likely out 'weeks' - Slot**\
 `Liverpool won 5-1 at Eintracht Frankfurt in the Champions League but sustained injuries to two of their starters.`\
 https://nytimes.com/athletic/6741296/2025/10/22/liverpool-alexander-isak-jeremie-frimpong-injury/
-
-**Three Offers in One Month: Paramount’s Secret Pursuit of Warner Bros. Discovery**\
-`A letter from Paramount’s chief executive, David Ellison, to Warner Bros.’ board of directors reveals weeks of talks between the two companies.`\
-https://nytimes.com/2025/10/22/business/dealbook/paramounts-secret-bids-warner-bros-discovery.html
 

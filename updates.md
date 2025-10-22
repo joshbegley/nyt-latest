@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘That Changed Everything’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/10/22/style/tiny-love-modern-love-stories-that-changed-everything.html
+
 **Samantha Eggar, Oscar-Nominated Star of ‘The Collector,’ Dies at 86**\
 `She also had leading roles in “Doctor Dolittle” with Rex Harrison, “Walk, Don’t Run” with Cary Grant and “The Molly Maguires” with Sean Connery.`\
 https://nytimes.com/2025/10/22/movies/samantha-eggar-dead.html
