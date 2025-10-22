@@ -1,3 +1,11 @@
+**Late Night Watches Trump Go ‘Hulk Smash’ on the White House**\
+`“That is it. We are not giving him the security deposit back,” Stephen Colbert said about the president’s building renovation plans.`\
+https://nytimes.com/2025/10/22/arts/television/stephen-colbert-trump-white-house-ballroom.html
+
+**Newcastle are halfway to being a very good team**\
+`In outclassing Benfica, Eddie Howe's team showed they have the capacity to be evolve into something special`\
+https://nytimes.com/athletic/6738211/2025/10/22/newcastle-analysis-gordon-barnes-pope-howe/
+
 **How to watch Packers vs. Steelers: Time, TV, streaming**\
 `Find out how to watch the Green Bay Packers play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6739124/2025/10/22/packers-vs-steelers-stream-how-to-watch-oct-26/
