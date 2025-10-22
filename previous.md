@@ -1,6 +1,26 @@
-**NBC's big night**\
+**On the Menu in New York: One Repair, Coming Right Up**\
+`Monthly “repair cafes” aim to bring neighbors together while keeping all manner of items out of the trash.`\
+https://nytimes.com/2025/10/21/climate/on-the-menu-in-new-york-one-repair-coming-right-up.html
+
+**How to Revive California’s Underwater Forests? Smash a Spiky, Hungry Foe.**\
+`Cove by cove, scientists, divers and volunteers are hauling up urchins to protect kelp.`\
+https://nytimes.com/2025/10/21/climate/california-kelp-restoration.html
+
+**Bee Happy: They’re Saving Pollinators in Kansas**\
+`About 97 percent of the land in the state is privately owned. Meet the people helping to make it friendlier for native bugs.`\
+https://nytimes.com/2025/10/21/climate/kansas-pollinators-bees-plants.html
+
+**This Solar Farm in Alaska Provides Something Extra: Free Food**\
+`Produce and power are both costly in the state. So researchers are testing ways to address both issues using the same land.`\
+https://nytimes.com/2025/10/21/climate/alaska-solar-farm-food.html
+
+**Cutting Emissions, the Roundabout Way, in New Hampshire**\
+`Despite its small stature, the city of Keene, has become an example of the safety and climate benefits of swapping traffic lights for roundabouts.`\
+https://nytimes.com/2025/10/21/climate/roundabout-auto-emissions-new-hampshire.html
+
+**Watch this season's first NBA on NBC intro**\
 `With the NBA returning to NBC for the first time since 2002, the network is leaning hard into 1990s nostalgia to get fans excited. The...`\
-https://nytimes.com/athletic/6738663/2025/10/21/nbcs-big-night/
+https://nytimes.com/athletic/6738663/2025/10/21/nba-nbc-theme-song-video/
 
 **Ecuador Rejects Prosecution of Survivor of U.S. Strike on Vessel**\
 `The country has freed the man, one of two survivors of a U.S. military strike on a submersible vessel last week, defying President Trump’s claim that he would be held and prosecuted.`\
@@ -17,24 +37,4 @@ https://nytimes.com/video/us/politics/100000010473142/new-york-city-immigration-
 **Chiefs star Travis Kelce's latest venture is literal roller coaster**\
 `Kelce and JANA Partners announced a $200 million investment in Six Flags Entertainment on Tuesday.`\
 https://nytimes.com/athletic/6738088/2025/10/21/travis-kelce-jana-partners-six-flags-investment/
-
-**Giants waive kicker Jude McAtamney after missed extra points in loss to Broncos**\
-`Now, the question is if the Giants will turn to Younghoe Koo or if Graham Gano will be ready to kick this week.`\
-https://nytimes.com/athletic/6738282/2025/10/21/jude-mcatamney-giants-kicker-waived-nfl/
-
-**What’s Left to Be Done in the Gaza Cease-Fire Deal**\
-`Israel and Gaza have signed a cease-fire that mediators hope will bring two years of deadly war to an end.`\
-https://nytimes.com/video/world/middleeast/100000010457972/whats-left-to-be-done-in-the-gaza-cease-fire-deal.html
-
-**Scoop City: How legit are these five win streaks?**\
-`Winning streaks, remaining schedules and the Patriots' brilliance, plus fantasy prep for Week 8.`\
-https://nytimes.com/athletic/6738235/2025/10/21/how-legit-are-these-win-streaks-plus-patriots-are-back-week-8-fantasy-prep/
-
-**Thunder players receive NBA championship rings on opening night**\
-`The Thunder received their 2024-25 NBA championship rings. Here's what you need to know about the rings, including the special design.`\
-https://nytimes.com/athletic/6737345/2025/10/21/okc-thunder-nba-championship-rings-details/
-
-**Five Major Changes Trump Is Making to the White House**\
-`In less than a year, President Trump has already significantly remade the White House. Here is what to know about five key renovations.`\
-https://nytimes.com/interactive/2025/10/21/us/politics/trump-white-house-renovations.html
 
