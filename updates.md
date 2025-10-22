@@ -1,3 +1,11 @@
+**Lakers have benefitted from defending without fouling, but not in season opener**\
+`The Lakers made only 17 of 28 free throws while the Warriors made 26 of 29, a nine-point swing in a game decided by ten points.`\
+https://nytimes.com/athletic/6739054/2025/10/22/lakers-defense-warriors-nba-season-opener/
+
+**Trump-Putin Meeting Put Off**\
+`Russian strikes hit Ukraine after President Trump said meeting President Vladimir Putin of Russia would be “a waste of time.”`\
+https://nytimes.com/video/world/europe/100000010473363/trump-putin-ukraine-meeting.html
+
 **Chelsea agree shirt sleeve sponsorship with Vietnamese company FPT**\
 `FPT were keen to upgrade their relationship with the club having initially joined as an official global partner in April.`\
 https://nytimes.com/athletic/6739132/2025/10/22/chelsea-shirt-sleeve-sponsor/

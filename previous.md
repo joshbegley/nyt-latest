@@ -1,3 +1,11 @@
+**Lakers have benefitted from defending without fouling, but not in season opener**\
+`The Lakers made only 17 of 28 free throws while the Warriors made 26 of 29, a nine-point swing in a game decided by ten points.`\
+https://nytimes.com/athletic/6739054/2025/10/22/lakers-defense-warriors-nba-season-opener/
+
+**Trump-Putin Meeting Put Off**\
+`Russian strikes hit Ukraine after President Trump said meeting President Vladimir Putin of Russia would be “a waste of time.”`\
+https://nytimes.com/video/world/europe/100000010473363/trump-putin-ukraine-meeting.html
+
 **Chelsea agree shirt sleeve sponsorship with Vietnamese company FPT**\
 `FPT were keen to upgrade their relationship with the club having initially joined as an official global partner in April.`\
 https://nytimes.com/athletic/6739132/2025/10/22/chelsea-shirt-sleeve-sponsor/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/22/crosswords/spelling-bee-forum.html
 **A Reporter on the Modern, and Evolving, American Family**\
 `Caroline Kitchener, who won a Pulitzer Prize for coverage of the fall of Roe v. Wade, has now turned her attention to the effects of Trump-era policies on the American family.`\
 https://nytimes.com/2025/10/22/insider/caroline-kitchener-reporting.html
-
-**Management of Guardian Angels Raises Questions About Sliwa’s Leadership**\
-`The Republican nominee to lead New York City is projecting a more serious outlook, but his longtime organization shows signs of a flawed stewardship.`\
-https://nytimes.com/2025/10/22/nyregion/mayor-sliwa-guardian-angels.html
-
-**Bayer Leverkusen 2 Paris Saint-Germain 7: The kind of Champions League result that echoes**\
-`Leverkusen appeared to have turned over a new leaf… but then the competition's reigning champions came to town and carved them apart `\
-https://nytimes.com/athletic/6738312/2025/10/22/bayer-leverkusen-2-paris-saint-germain-7-champions-league/
 
