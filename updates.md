@@ -1,3 +1,15 @@
+**The Future of New York**\
+`The 400th anniversary of New York City is a little hard to pin down, but many would date it to 2025, four centuries after the construction of Fort Amsterdam by Dutch settlers.`\
+https://nytimes.com/interactive/2025/10/22/nyregion/future-of-new-york.html
+
+**How the NBA's luxury tax aprons have impacted rookie contract extensions**\
+`The story of this extension season is the deals that didn’t get done, and partly that is because of salary cap planning.`\
+https://nytimes.com/athletic/6738140/2025/10/22/nba-contract-extension-deadline-deals-hollinger/
+
+**In First Six Months, Cost of Weather Catastrophes Escalated at a Record Pace**\
+`The Trump administration stopped updating a database tracking the costs of the country’s worst disasters. A group of scientists has revived it.`\
+https://nytimes.com/2025/10/22/climate/trump-noaa-weather-tracking.html
+
 **Nostalgia, new TV subscriptions, MJ and billions? Welcome to the 2025-26 NBA season: MoneyCall**\
 `More in this week's sports business cheat sheet: Inside the NBA on ESPN, F1 x Apple, Dodgers exceptionalism and NHL Front Office Rankings.`\
 https://nytimes.com/athletic/6739955/2025/10/22/nba-peacock-amazon-prime-video-moneycall/
