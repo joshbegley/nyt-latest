@@ -1,3 +1,7 @@
+**What I'm hearing on Chucky Lozano's MLS playoff status, Revs coaching search**\
+`The reason for the Mexican international's absence, plus an update on his high-profile teammate, a coaching search and more`\
+https://nytimes.com/athletic/6740601/2025/10/22/chucky-lozano-san-diego-fc-mls-playoffs-de-la-torre-revolution-coach/
+
 **Soo Catwoman, ‘the Female Face of Punk,’ Is Dead at 70**\
 `With two tufts of hair on either side of her shaved head and long tendrils of eyeliner swiped across her lids, she helped define a scene.`\
 https://nytimes.com/2025/10/22/fashion/soo-catwoman-dead.html
