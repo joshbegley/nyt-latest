@@ -1,3 +1,7 @@
+**Mamdani Plans to Keep Tisch as Police Commissioner if Elected**\
+`Zohran Mamdani’s intention to retain Jessica Tisch is likely to placate powerful New Yorkers who have lobbied Mr. Mamdani to keep her.`\
+https://nytimes.com/2025/10/22/nyregion/jessica-tisch-nypd-mamdani.html
+
 **Toronto Tempo expected to hire Sandy Brondello as franchise's coach: Source**\
 `Toronto has a proven WNBA winner and a coach in Brondello, who demonstrates the ability to connect with her players.`\
 https://nytimes.com/athletic/6741057/2025/10/22/toronto-tempo-sandy-brondello-head-coach/
@@ -30,11 +34,7 @@ https://nytimes.com/2025/10/22/opinion/trump-aid-argentina.html
 `Tottenham Hotspur escaped from Monaco with a crucial Champions League point, despite being out-played by Monaco`\
 https://nytimes.com/athletic/6740325/2025/10/22/monaco-0-tottenham-0-champions-league/
 
-**Misty Copeland’s Career in Photos**\
+**Misty Copeland Will Take Her Final Bow**\
 `The famed ballerina retires from her career with the American Ballet Theater after one final performance on Wednesday night.`\
 https://nytimes.com/2025/10/22/arts/dance/misty-copeland-ballet-life-career-photos.html
-
-**The Briefing: Eintracht Frankfurt 1 Liverpool 5 - Ekitike impresses, a new system and set-piece goals**\
-`Andy Jones analyses the main talking points as Liverpool earn an impressive victory in Germany`\
-https://nytimes.com/athletic/6740284/2025/10/22/eintracht-frankfurt-liverpool-analysis/
 
