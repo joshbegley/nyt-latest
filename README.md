@@ -1,3 +1,11 @@
+**Federal Agents Stage Raid on Canal Street in New York City**\
+`Dozens of federal officers descended on the sidewalks of Lower Manhattan on Tuesday, detaining several people and drawing protests.`\
+https://nytimes.com/2025/10/21/nyregion/federal-agents-stage-raid-on-canal-street-in-new-york-city.html
+
+**Federal Agents Detain Several Men During New York City Raid**\
+`Masked federal agents detained several men in Lower Manhattan on Tuesday, near an area where vendors sell illegal counterfeit goods.`\
+https://nytimes.com/video/us/politics/100000010473142/new-york-city-immigration-raid-arrests.html
+
 **Chiefs star Travis Kelce's latest venture is literal roller coaster**\
 `Kelce and JANA Partners announced a $200 million investment in Six Flags Entertainment on Tuesday.`\
 https://nytimes.com/athletic/6738088/2025/10/21/travis-kelce-jana-partners-six-flags-investment/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6738276/2025/10/21/how-to-watch-cowboys-vs-broncos-
 **How to watch Titans vs. Colts: Time, TV, streaming**\
 `Find out how to watch the Tennessee Titans play the Indianapolis Colts, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6738274/2025/10/21/how-to-watch-titans-vs-colts-tv-channel-and-streaming-options-for-october-26/
-
-**How to watch Buccaneers vs. Saints: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Buccaneers play the New Orleans Saints, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6738258/2025/10/21/how-to-watch-buccaneers-vs-saints-tv-channel-and-streaming-options-for-october-26/
-
-**What to Know About Trump’s Plan for a Triumphal Arch in Washington**\
-`President Trump has proposed construction of an arch in the style of the Arc de Triomphe in Washington in the lead-up to the nation’s 250th anniversary.`\
-https://nytimes.com/2025/10/21/us/politics/trump-arch-washington-memorial.html
 
