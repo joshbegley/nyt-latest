@@ -1,3 +1,15 @@
+**Toum Grilled Cheese**\
+`Cheese manakeesh, a topped flatbread found throughout the Levant, is delicious with toum, a sauce made by combining garlic, lemon juice, salt and oil. This grilled cheese hits those notes, skipping a trip to the bakery.`\
+https://nytimes.com/video/dining/100000010366957/toum-grilled-cheese.html
+
+**What We Know About the Drone Sightings in Europe**\
+`Airports in several countries have temporarily closed in recent weeks after reports of drones in the skies. Experts say the response has exposed a lack of preparedness.`\
+https://nytimes.com/2025/10/22/world/europe/drone-sightings-airports.html
+
+**Brandon Ingram doesn't need to prove himself with Raptors, but he might do it anyway**\
+`After a disappointing run in New Orleans, the former All-Star believes he can apply lessons with his new team.`\
+https://nytimes.com/athletic/6720339/2025/10/22/raptors-brandon-ingram-season-preview-nba/
+
 **World Falling Short on Methane Pledge, U.N. Report Finds**\
 `Several agency programs are trying to track and reduce methane emissions around the world. They aren’t meeting the targets fast enough.`\
 https://nytimes.com/2025/10/22/climate/methane-leaks-united-nations.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/22/opinion/no-kings-trump-declaration-independence.h
 **Democrats Need to Chill About the Electability of Women**\
 `Why Mikie Sherrill’s chances in New Jersey are much better than you might be hearing.`\
 https://nytimes.com/2025/10/22/opinion/mikie-sherrill-new-jersey-governor.html
-
-**After Falcons release Ray-Ray McCloud, should they add a WR before the trade deadline?**\
-`The Falcons were struggling against man coverage before releasing a starting receiver. Should they be shopping ahead of the trade deadline?`\
-https://nytimes.com/athletic/6738219/2025/10/22/falcons-ray-ray-mccloud-wr-nfl-trade-deadline/
-
-**After Years of Moving, They Built One Home From Multiple Buildings**\
-`The architect Jennifer Kell and Dominic Surprenant, a retired lawyer, hired the firm Lake Flato to design a home with multiple structures in Malibu, Calif.`\
-https://nytimes.com/2025/10/22/realestate/malibu-home-renovations.html
-
-**Kathryn Bigelow Returns to the Intersection of Facts and Thrills**\
-`Her newest, “A House of Dynamite,” about a nuclear missile headed to the U.S., takes up themes of power and violence that have long interested her.`\
-https://nytimes.com/2025/10/22/movies/kathryn-bigelow-a-house-of-dynamite.html
 
