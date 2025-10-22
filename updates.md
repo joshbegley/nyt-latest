@@ -1,3 +1,15 @@
+**Mamdani Plans to Keep Tisch as Police Commissioner if Elected**\
+`Zohran Mamdani’s intention to retain Jessica Tisch is likely to placate powerful New Yorkers who have lobbied Mr. Mamdani to keep her.`\
+https://nytimes.com/2025/10/22/nyregion/jessica-tisch-nypd-mamdani.html
+
+**Massapequa Schools Sue N.Y. State to Preserve Gender Rules in Bathrooms**\
+`National cultural issues have pervaded Nassau County as its Republican leaders have embraced President Trump’s brand of politics. The schools want students to use the bathrooms that align with their sex assigned at birth.`\
+https://nytimes.com/2025/10/22/nyregion/massapequa-new-york-bathroom-lawsuit.html
+
+**Misty Copeland Will Take Her Final Bow**\
+`The famed ballerina retires from her career with the American Ballet Theater after one final performance on Wednesday night.`\
+https://nytimes.com/2025/10/22/arts/dance/misty-copeland-ballet-life-career-photos.html
+
 **Toronto Tempo expected to hire Sandy Brondello as franchise's coach: Source**\
 `Toronto has a proven WNBA winner and a coach in Brondello, who demonstrates the ability to connect with her players.`\
 https://nytimes.com/athletic/6741057/2025/10/22/toronto-tempo-sandy-brondello-head-coach/
