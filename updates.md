@@ -1,3 +1,11 @@
+**Donald Trump’s New World Disorder**\
+`Without a plan for what comes next, the United States is not only hastening its own decline but also forcing the world into a new era of disorder.`\
+https://nytimes.com/2025/10/22/opinion/trump-xi-summit-world-economy.html
+
+**The New York Times in Print for Wednesday, Oct. 22, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/22/todays-new-york-times
+
 **Ben Duckett exclusive: 'England have given my style their full backing. Now, winning the Ashes would be the ultimate'**\
 `The England opener talks Ashes motivation, the return from his lowest ebb, Bazball and that unwanted arm round the shoulder from Akah Deep`\
 https://nytimes.com/athletic/6732630/2025/10/22/ben-duckett-ashes-england-exclusive/
