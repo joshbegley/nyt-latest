@@ -1,3 +1,11 @@
+**F1 mailbag: Is it time for McLaren to support one driver for the championship?**\
+`Also, an ode to the classic pit board. `\
+https://nytimes.com/athletic/6738439/2025/10/22/f1-mailbag-is-it-time-for-mclaren-to-support-one-driver-for-the-championship/
+
+**NOAA Isn’t Tracking Disaster Damages Anymore. These Scientists Are.**\
+`A revived version of a database tracking the costs of the country’s worst disasters shows a record-setting toll in the first half of 2025.`\
+https://nytimes.com/2025/10/22/climate/noaa-isnt-tracking-disaster-damages-anymore-these-scientists-are.html
+
 **Raptors, Leafs, Sabres adjust game start times to limit  World Series overlap**\
 `Those games conflict with Game 1 of the World Series, which will take place at Rogers Centre, down the street from the Raptors’ home.`\
 https://nytimes.com/athletic/6739863/2025/10/22/toronto-maple-leafs-raptors-blue-jays-world-series/
