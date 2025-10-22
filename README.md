@@ -1,3 +1,11 @@
+**Samantha Eggar, Oscar-Nominated Star of ‘The Collector,’ Dies at 86**\
+`She also had leading roles in “Doctor Dolittle” with Rex Harrison, “Walk, Don’t Run” with Cary Grant and “The Molly Maguires” with Sean Connery.`\
+https://nytimes.com/2025/10/22/movies/samantha-eggar-dead.html
+
+**NCAA will not implement 'five-for-five' eligibility rules any time soon, internal memo says**\
+`The NCAA to keep four-year eligibility rule through 2026-27, ending the debate (for now) about a "five-for-five" model.`\
+https://nytimes.com/athletic/6741377/2025/10/22/ncaa-will-not-implement-5-for-5-eligibility-rules/
+
 **For Curtis Sliwa, the heat is on.**\
 `By Michael Gold`\
 https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/curtis-sliwa-memes
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6741296/2025/10/22/liverpool-alexander-isak-jeremie
 **Three Offers in One Month: Paramount’s Secret Pursuit of Warner Bros. Discovery**\
 `A letter from Paramount’s chief executive, David Ellison, to Warner Bros.’ board of directors reveals weeks of talks between the two companies.`\
 https://nytimes.com/2025/10/22/business/dealbook/paramounts-secret-bids-warner-bros-discovery.html
-
-**NASCAR, 23XI/Front Row fail to reach settlement in antitrust case after 2-day meeting**\
-`The teams had no comment after the end of the all-day sessions, with still no agreement in place as the Dec. 1 trial date looms.`\
-https://nytimes.com/athletic/6740930/2025/10/22/nascar-lawsuit-23xi-front-row-michael-jordan-settlement/
-
-**Man Is Charged in Wrong-Way Crash That Killed 4 Teenagers in New Jersey**\
-`The young men were driving on the New Jersey Turnpike near Wilmington, Del., on Sunday when the man collided with them, according to the police. A truck then hit their S.U.V.`\
-https://nytimes.com/2025/10/22/nyregion/new-jersey-crash-teen-deaths-charges.html
 
