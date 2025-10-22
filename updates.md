@@ -1,3 +1,7 @@
+**'NBA on NBC' in the '90s was pure magic — but today's stars have no idea why**\
+`The NBA has returned to NBC. What are current players' favorite memories on the network? Well, most weren't born yet.`\
+https://nytimes.com/athletic/6738653/2025/10/21/nba-on-nbc-roundball-rock/
+
 **UBS Arena to host 2027 NHL All-Star Weekend after league cancels pre-Olympic event: Sources**\
 `The event had been scheduled as a replacement for the 2026 All-Star Weekend, which had previously been awarded to the New York Islanders.`\
 https://nytimes.com/athletic/6738754/2025/10/21/nhl-olympic-event-all-star-ubs-arena/
