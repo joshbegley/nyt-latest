@@ -1,9 +1,25 @@
+**Trump Is Seeking $230 Million From the Justice Dept.**\
+`President Trump is demanding about $230 million in compensation for the federal investigations into him by the Justice Department. Devlin Barrett, a New York Times reporter covering the Justice Department, describes what we know about who’s most likely to be making the decisions.`\
+https://nytimes.com/video/us/politics/100000010470822/trump-is-seeking-230-million-from-the-justice-dept.html
+
+**This is where the mayor’s race stands ahead of the final debate.**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/this-is-where-the-mayors-race-stands-ahead-of-the-final-debate
+
+**Here’s the latest.**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/heres-the-latest
+
+**Live Updates: N.Y.C. Mayoral Candidates Will Face Off in Final Debate Before Election**\
+`With less than two weeks left in the scramble for City Hall, the Democratic front-runner Zohran Mamdani and his challengers, Andrew M. Cuomo and Curtis Sliwa, will make their closing arguments to New Yorkers.`\
+https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate
+
 **Mamdani Plans to Keep Tisch as Police Commissioner if Elected**\
 `Zohran Mamdani’s intention to retain Jessica Tisch is likely to placate powerful New Yorkers who have lobbied Mr. Mamdani to keep her.`\
 https://nytimes.com/2025/10/22/nyregion/jessica-tisch-nypd-mamdani.html
 
 **Toronto Tempo expected to hire Sandy Brondello as franchise's coach: Source**\
-`Toronto has a proven WNBA winner and a coach in Brondello, who demonstrates the ability to connect with her players.`\
+`Toronto has a proven WNBA winner in Brondello, who has a reputation for connecting with players.`\
 https://nytimes.com/athletic/6741057/2025/10/22/toronto-tempo-sandy-brondello-head-coach/
 
 **Jackie Ferrara, Artist Who Brought Mystery to Minimalism, Dies at 95**\
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/22/nyregion/massapequa-new-york-bathroom-lawsuit.htm
 **The Briefing – Real Madrid 1 Juventus 0: Jude Bellingham's first goal of the season the difference at the Bernabeu**\
 `The Athletic's writers break down a narrow win for Xabi Alonso's side at the Bernabeu on Wednesday evening  `\
 https://nytimes.com/athletic/6740580/2025/10/22/real-madrid-juventus-champions-league-analysis/
-
-**The Steep Cost of A.I.**\
-`Some countries are trying hard not to be left out of the race for artificial intelligence. But this choice comes with consequences.`\
-https://nytimes.com/2025/10/22/world/ai-sovereignty-russian-drone-vance-israel.html
-
-**Trump Revives Foreign Aid, Helping Needy Billionaires**\
-`As children die for want of cheap medicines, the U.S. spends billions on Argentina — thus rescuing rich investors who made bad bets.`\
-https://nytimes.com/2025/10/22/opinion/trump-aid-argentina.html
-
-**The Briefing: Monaco 0 Tottenham 0 - Vicario saves Spurs blushes as creativity issues continue**\
-`Tottenham Hotspur escaped from Monaco with a crucial Champions League point, despite being out-played by Monaco`\
-https://nytimes.com/athletic/6740325/2025/10/22/monaco-0-tottenham-0-champions-league/
-
-**Misty Copeland Will Take Her Final Bow**\
-`The famed ballerina retires from her career with the American Ballet Theater after one final performance on Wednesday night.`\
-https://nytimes.com/2025/10/22/arts/dance/misty-copeland-ballet-life-career-photos.html
 
