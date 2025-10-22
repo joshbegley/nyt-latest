@@ -1,3 +1,23 @@
+**G.M. Previews Talking Cars, Cheaper Batteries and Other New Tech**\
+`Drivers will be able to converse with an artificial intelligence assistant while cars largely drive themselves in certain situations, the company said.`\
+https://nytimes.com/2025/10/22/business/general-motors-ai-self-driving.html
+
+**This Salmon Dinner Is Brilliant and Beautiful**\
+`Yewande Komolafe nestles crisp-skinned fillets into a mix of green beans and red pepper.`\
+https://nytimes.com/2025/10/22/dining/this-salmon-dinner-is-brilliant-and-beautiful.html
+
+**Lowetide: Is Oilers rookie Matt Savoie the new Jordan Eberle or Kailer Yamamoto?**\
+`Savoie has draft pedigree, high skill and enough pro experience to play a regular shift every game for the Oilers.`\
+https://nytimes.com/athletic/6736876/2025/10/22/edmonton-oilers-rookie-matt-savoie-jordan-eberle-kailer-yamamoto/
+
+**Google’s Quantum Computer Makes a Big Technical Leap**\
+`Designed to accelerate advances in medicine and other fields, the tech giant’s quantum algorithm runs 13,000 times as fast as software written for a traditional supercomputer.`\
+https://nytimes.com/2025/10/22/technology/googles-quantum-computer-leap.html
+
+**How Debora Cahn Negotiates ‘The Diplomat’**\
+`Cahn, the creator of the Netflix political drama starring Keri Russell, discusses Season 3 and how many more twists the show can reasonably pull off.`\
+https://nytimes.com/2025/10/22/arts/television/debora-cahn-the-diplomat.html
+
 ****\
 `Video by Michelle Groskopf`\
 https://nytimes.com/video/style/100000010474092/23LESLIE-JONES-VERT.html
