@@ -1,3 +1,15 @@
+**Massapequa Schools Sue N.Y. State to Preserve Restrictive Bathroom Rules**\
+`National cultural issues have pervaded Nassau County as its Republican leaders have embraced President Trump’s brand of politics.`\
+https://nytimes.com/2025/10/22/nyregion/massapequa-new-york-bathroom-lawsuit.html
+
+**The Briefing – Real Madrid 1 Juventus 0: Jude Bellingham's first goal of the season the difference at the Bernabeu**\
+`The Athletic's writers break down a narrow win for Xabi Alonso's side at the Bernabeu on Wednesday evening  `\
+https://nytimes.com/athletic/6740580/2025/10/22/real-madrid-juventus-champions-league-analysis/
+
+**The Steep Cost of A.I.**\
+`Some countries are trying hard not to be left out of the race for artificial intelligence. But this choice comes with consequences.`\
+https://nytimes.com/2025/10/22/world/ai-sovereignty-russian-drone-vance-israel.html
+
 **Trump Revives Foreign Aid, Helping Needy Billionaires**\
 `As children die for want of cheap medicines, the U.S. spends billions on Argentina — thus rescuing rich investors who made bad bets.`\
 https://nytimes.com/2025/10/22/opinion/trump-aid-argentina.html
