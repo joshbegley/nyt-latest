@@ -1,3 +1,15 @@
+**Five Rising Contemporary Artists You Should Know**\
+`With exhibitions featuring copper-wire sculptures, burned canvases, ghostly nighttime paintings and more, here are the people to put on your radar this season.`\
+https://nytimes.com/2025/10/22/t-magazine/rising-contemporary-artist-exhibitions.html
+
+**At a Mass Burial in Gaza, Palestinians Mourn the Unknown Dead**\
+`Under the terms of a cease-fire deal, Israel and Hamas have been exchanging remains, but Gaza’s medical authorities have not been able to identify many of them.`\
+https://nytimes.com/2025/10/22/world/middleeast/mass-burial-gaza.html
+
+**Congress Members Question Pentagon’s Delay in ‘Forever Chemical’ Cleanup**\
+`A bipartisan group of lawmakers has asked the military to explain why cleanup of PFAS chemicals at bases nationwide has been pushed back.`\
+https://nytimes.com/2025/10/22/climate/pfas-forever-chemical-pentagon-cleanup-delay.html
+
 **Answer 4 Questions. Leave With a Movie for Halloween.**\
 `Whether you’re in the mood for new chills or classic thrills, we’ve got a killer pick for you.`\
 https://nytimes.com/interactive/2025/10/22/movies/halloween-movie-recommendation-quiz.html
