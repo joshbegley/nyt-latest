@@ -1,3 +1,11 @@
+**Smith: Is F1's greatest championship comeback brewing?**\
+`Max Verstappen has erased Oscar Piastri's points lead. We could be witnessing something very special`\
+https://nytimes.com/athletic/6738436/2025/10/22/max-verstappen-f1-championship-2025-comeback/
+
+**The NBA's opening slate on ESPN: Cavs at Knicks, Spurs at Mavericks, 'Inside the NBA'**\
+`Wednesday has a great NBA doubleheader, and it comes with slight changes to the usual ESPN telecast. Here's what viewers need to know.`\
+https://nytimes.com/athletic/6737090/2025/10/22/cavs-knicks-spurs-mavericks-nba-espn-how-to-watch/
+
 **NBA returns to NBC, leaning into nostalgia, familiar voices and Michael Jordan: Review**\
 `Maybe it was the nostalgia kicking in, but Tuesday felt bigger than usual for the NBA as it returned to NBC for the first time since 2002.`\
 https://nytimes.com/athletic/6723225/2025/10/22/nba-nbc-michael-jordan-mike-tirico/
