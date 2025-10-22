@@ -1,3 +1,7 @@
+**Dollhouse At Amsterdam’s Rijksmuseum Is Taking Center Stage**\
+`Ordinarily on view in the museum’s permanent display, the doll’s house was moved to be the centerpiece of the exhibition “At Home in the 17th Century.”`\
+https://nytimes.com/video/arts/100000010466965/dollhouse-amsterdam-netherlands-rijksmuseum.html
+
 **Five Rising Contemporary Artists You Should Know**\
 `With exhibitions featuring copper-wire sculptures, burned canvases, ghostly nighttime paintings and more, here are the people to put on your radar this season.`\
 https://nytimes.com/2025/10/22/t-magazine/rising-contemporary-artist-exhibitions.html
