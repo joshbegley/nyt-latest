@@ -1,3 +1,7 @@
+**On opening night, at least, the Warriors turn back time against the Lakers**\
+`Golden State looked like a spry contender on Tuesday night. But can it stay healthy into May and June?`\
+https://nytimes.com/athletic/6739443/2025/10/22/warriors-steph-curry-draymond-green-tip-off-lakers-age/
+
 **Smith: Is F1's greatest championship comeback brewing?**\
 `Max Verstappen has erased Oscar Piastri's points lead. We could be witnessing something very special`\
 https://nytimes.com/athletic/6738436/2025/10/22/max-verstappen-f1-championship-2025-comeback/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6739255/2025/10/22/lakers-luka-doncic-lebron-james-
 **Driver Crashes Car Into Security Gate Near White House**\
 `A man was arrested on Tuesday night after he drove his vehicle into a barricade outside the White House, the Secret Service said. It was not immediately known whether the crash was intentional.`\
 https://nytimes.com/video/us/100000010473753/car-crash-white-house.html
-
-**College football Week 9 streaming guide: Missouri-Vanderbilt leads on 'College GameDay'**\
-`Trinidad Chambliss takes on Oklahoma. Bear Bachmeier visits Ames. There's a lot going on across this week's college football lineup.`\
-https://nytimes.com/athletic/6734868/2025/10/22/college-football-schedule-missouri-vanderbilt-michigan-msu-how-to-watch/
 
