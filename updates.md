@@ -1,3 +1,7 @@
+**New York Names a Street in Honor of Jean-Michel Basquiat**\
+`A stretch of Great Jones Street where the artist lived and worked now goes by “Jean-Michel Basquiat Way.”`\
+https://nytimes.com/2025/10/22/style/new-york-names-a-street-in-honor-of-jean-michel-basquiat.html
+
 **Why Rural America Turned on the Democratic Party**\
 `President Trump’s deployment of the National Guard from red states into blue cities isn’t just a partisan attack; it’s also a geographic one.`\
 https://nytimes.com/video/opinion/100000010465649/why-rural-america-turned-on-the-democratic-party.html
