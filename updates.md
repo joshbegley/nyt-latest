@@ -1,3 +1,11 @@
+**Soo Catwoman, ‘the Female Face of Punk,’ Is Dead at 70**\
+`With two tufts of hair on either side of her shaved head and long tendrils of eyeliner swiped across her lids, she helped define a scene.`\
+https://nytimes.com/2025/10/22/fashion/soo-catwoman-dead.html
+
+**Ilya Sorokin's ex-KHL coach promoted to top goalie coach for Islanders**\
+`Darche also announced that Pierre Engvall is expected to be sidelined for the remainder of the season after undergoing ankle surgery.`\
+https://nytimes.com/athletic/6740674/2025/10/22/islanders-fire-goalie-coach-sorokin/
+
 **What Are Gripen Fighter Jets and Why Does Ukraine Want Them?**\
 `The Swedish warplanes are well suited to the rugged combat operations Ukraine will have to carry out, experts say.`\
 https://nytimes.com/2025/10/22/world/europe/ukraine-gripen-fighter-jets-sweden-saab.html
