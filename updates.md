@@ -1,3 +1,11 @@
+**Police chief defends decision to ban Maccabi Tel Aviv from Aston Villa game**\
+`"Birmingham hasn't failed anybody and neither has West Midlands Police," The WMP chief constable said.`\
+https://nytimes.com/athletic/6739965/2025/10/22/west-midlands-police-maccabi-tel-aviv-villa/
+
+**The Bounce: NBA's Game of the Year, already? Plus, a full night of hoops awaits**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6740002/2025/10/22/thunder-rockets-warriors-lakers-nba-the-bounce/
+
 **The Future of New York**\
 `The 400th anniversary of New York City is a little hard to pin down, but many would date it to 2025, four centuries after the construction of Fort Amsterdam by Dutch settlers.`\
 https://nytimes.com/interactive/2025/10/22/nyregion/future-of-new-york.html
