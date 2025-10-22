@@ -1,3 +1,15 @@
+**PGA Tour cancels The Sentry, delaying start to 2026 season**\
+`Environmental concerns forced the tour to leave Kapalua’s Plantation Course, its host venue since 1999.`\
+https://nytimes.com/athletic/6723484/2025/10/22/pga-tour-the-sentry-2026-canceled/
+
+**Bad Bunny Super Bowl halftime show will be 'exciting,' Goodell says**\
+`The league has no intention of changing the performer based on negative reaction to the announcement, the commissioner said.`\
+https://nytimes.com/athletic/6740407/2025/10/22/nfl-super-bowl-bad-bunny-halftime/
+
+**Lamar Jackson returns to practice for first time since suffering hamstring injury**\
+`Jackson's return comes four days before the Ravens face the Bears in a game they essentially have to win to keep their playoff hopes alive. `\
+https://nytimes.com/athletic/6740604/2025/10/22/ravens-lamar-jackson-return-practice-injury/
+
 **NFL may expand international series to 9 games in 2026**\
 `"The definite idea is to get ourselves more to the maximum (of eight league-organized games)," plus the London game, Gerrit Meier said.`\
 https://nytimes.com/athletic/6740056/2025/10/22/nfl-international-games-2026-schedule/
