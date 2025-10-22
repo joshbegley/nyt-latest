@@ -1,3 +1,15 @@
+**Dale Earnhardt Jr. on criticism and change in NASCAR and his racing future: 12 Questions**\
+`"I'm just kind of slowly turning that faucet off until I feel like I'm ready to shut it off entirely," Earnhardt says of racing.`\
+https://nytimes.com/athletic/6737583/2025/10/22/dale-earnhardt-jr-nascar-critcism-12-questions/
+
+**Timber, Lewis-Skelly… Rice? How Arsenal's full-back strategy unpicked Atletico Madrid**\
+`Mikel Arteta's tweak helped Arsenal win in Tuesday's Champions League game at the Emirates Stadium`\
+https://nytimes.com/athletic/6739098/2025/10/22/arsenal-atletico-champions-league-tactics/
+
+**Hollywood’s Latest Cliffhanger: The Fate of Warner Bros. Discovery**\
+`Potential bidders are circling the media company as it weighs its deal options. But financial and regulatory questions hang over everything.`\
+https://nytimes.com/2025/10/22/business/dealbook/warner-bros-discovery-paramount-sale.html
+
 **Russia Hits Power Plants and Kindergarten Hours After Trump Delays Summit**\
 `President Volodymyr Zelensky of Ukraine said the overnight assault showed that Russia “clearly doesn’t feel enough pressure to stop prolonging the war.”`\
 https://nytimes.com/2025/10/22/world/europe/russia-ukraine-putin-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6738544/2025/10/22/2026-word-cup-record-69-matches-
 **Tyronn Lue has a deep Clippers roster to balance. How will he get the job done?**\
 `Personnel-wise, the Clippers have what they need to begin the season. Now, it's up to them to get off to a strong start and maintain it.`\
 https://nytimes.com/athletic/6735895/2025/10/22/tyronn-lue-clippers-depth-nba-kawhi-leonard-chris-paul-james-harden/
-
-**Pelosi Hasn’t Announced Her 2026 Plans. A Top Contender Is Tired of Waiting.**\
-`Scott Wiener, a Democratic state legislator, says he can’t afford to keep deferring to Representative Nancy Pelosi.`\
-https://nytimes.com/2025/10/22/us/pelosi-congress-scott-wiener.html
-
-**On opening night, at least, the Warriors turn back time against the Lakers**\
-`Golden State looked like a spry contender on Tuesday night. But can it stay healthy into May and June?`\
-https://nytimes.com/athletic/6739443/2025/10/22/warriors-steph-curry-draymond-green-tip-off-lakers-age/
-
-**Smith: Is F1's greatest championship comeback brewing?**\
-`Max Verstappen has erased Oscar Piastri's points lead. We could be witnessing something very special`\
-https://nytimes.com/athletic/6738436/2025/10/22/max-verstappen-f1-championship-2025-comeback/
 
