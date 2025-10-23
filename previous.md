@@ -1,3 +1,7 @@
+**The Bounce: Wemby is a top-5 NBA player right now. Plus, we recap more season openers**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6743638/2025/10/23/the-bounce-victor-wembanyama-nba-openers/
+
 **Marathon record-holder Chepngetich gets doping ban after 'taking housemaid's medication'**\
 `The Athletics Integrity Unit confirmed the ban, stating Chepngetich had admitted to the violations and accepted the sanction.`\
 https://nytimes.com/athletic/6743419/2025/10/23/ruth-chepngetich-doping-ban/
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000010447024/bruno-mars-cannonball-wesley-
 **The Diddy Trial Is Over, but My Mind Is Still Racing**\
 `Wesley Morris talks about what he saw during the trial of Sean “Diddy” Combs with guest John White.`\
 https://nytimes.com/video/podcasts/100000010447239/sean-diddy-combs-verdict-cannonball-wesley-morris.html
-
-**The Closet in Pee-wee’s Playhouse**\
-`Wesley Morris talks with the writer Mark Harris about the new HBO documentary “Pee-wee as Himself.”`\
-https://nytimes.com/video/podcasts/100000010447338/pee-wee-herman-cannonball-wesley-morris.html
 
