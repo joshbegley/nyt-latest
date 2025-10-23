@@ -1,3 +1,11 @@
+**British Soldier Is Acquitted of Murder in 1972 Bloody Sunday Massacre**\
+`The former paratrooper, referred to only as Soldier F, was found not guilty more than a half-century after his unit in Northern Ireland killed 14 unarmed civilians.`\
+https://nytimes.com/2025/10/23/world/europe/bloody-sunday-massacre-soldier-acquitted.html
+
+**Democrats Block Federal Worker Pay Bill as Shutdown Drags On**\
+`A Republican measure that would pay essential government employees faltered in the Senate, and the G.O.P. blocked a pair of Democratic bills to pay a broader swath of workers.`\
+https://nytimes.com/2025/10/23/us/politics/democrats-shutdown-federal-employee-pay.html
+
 **Oprah Leads the Charge at Misty Copeland’s Farewell**\
 `The trailblazing ballerina returned to the stage after five years for one final performance at a gala for American Ballet Theater.`\
 https://nytimes.com/2025/10/23/style/misty-copeland-retirement-oprah.html
@@ -12,7 +20,7 @@ https://nytimes.com/video/us/politics/100000010474113/how-the-us-is-working-to-s
 
 **U.S. to Begin Investigation Into China’s Compliance With 2020 Trade Deal**\
 `The Trump administration is preparing to file a trade investigation into China’s compliance with a 2020 trade deal, which could raise tensions ahead of a summit between the country’s leaders.`\
-https://nytimes.com/2025/10/23/business/economy/us-to-begin-investigation-into-chinas-compliance-with-2020-trade-deal.html
+https://nytimes.com/2025/10/23/business/economy/us-china-trade-investigation.html
 
 **A Packed-Lunch Extravaganza**\
 `Easy-to-prep, kid-friendly, protein-plentiful and dairy-free lunches for grabbing and going.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/23/movies/springsteen-deliver-me-from-nowhere-review
 **Arsenal reach agreement with Dowman to sign scholarship terms**\
 `A professional contract is expected to follow when Dowman turns 17.`\
 https://nytimes.com/athletic/6743995/2025/10/23/max-dowman-arsenal-contract/
-
-**Volkswagen Says Loss of Chip Supply Could Hit Production**\
-`After China stopped deliveries of Nexperia’s chips over a dispute with the Dutch government, German carmakers are worried about supply shortages.`\
-https://nytimes.com/2025/10/23/business/volkswagen-chips-china-nexperia.html
-
-**NBA gambling investigation: 3 takeaways from the indictments**\
-`"This is the insider trading saga for the NBA," FBI director Kash Patel said Thursday.`\
-https://nytimes.com/athletic/6743912/2025/10/23/nba-betting-investigation-fbi-illegal-gambling/
 

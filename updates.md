@@ -1,3 +1,15 @@
+**British Soldier Is Acquitted of Murder in 1972 Bloody Sunday Massacre**\
+`The former paratrooper, referred to only as Soldier F, was found not guilty more than a half-century after his unit in Northern Ireland killed 14 unarmed civilians.`\
+https://nytimes.com/2025/10/23/world/europe/bloody-sunday-massacre-soldier-acquitted.html
+
+**Democrats Block Federal Worker Pay Bill as Shutdown Drags On**\
+`A Republican measure that would pay essential government employees faltered in the Senate, and the G.O.P. blocked a pair of Democratic bills to pay a broader swath of workers.`\
+https://nytimes.com/2025/10/23/us/politics/democrats-shutdown-federal-employee-pay.html
+
+**U.S. to Begin Investigation Into China’s Compliance With 2020 Trade Deal**\
+`The Trump administration is preparing to file a trade investigation into China’s compliance with a 2020 trade deal, which could raise tensions ahead of a summit between the country’s leaders.`\
+https://nytimes.com/2025/10/23/business/economy/us-china-trade-investigation.html
+
 **Oprah Leads the Charge at Misty Copeland’s Farewell**\
 `The trailblazing ballerina returned to the stage after five years for one final performance at a gala for American Ballet Theater.`\
 https://nytimes.com/2025/10/23/style/misty-copeland-retirement-oprah.html
