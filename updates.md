@@ -1,3 +1,7 @@
+**Blue Jays' Bo Bichette takes grounders at second base, could play position in World Series**\
+`Toronto manager John Schneider said Thursday that Bichette is feeling good, but still has a few more boxes to check.`\
+https://nytimes.com/athletic/6744663/2025/10/23/blue-jays-bo-bichette-second-base-could-play-position-world-series/
+
 **How Trump Should Think About the A.I. Bubble**\
 `Will the Trump administration offer a financial bailout if the A.I. bubble bursts? Jason Furman, a contributing Opinion writer and an economist at the Harvard Kennedy School, explains what President Trump’s investments tell us about his priorities in the event of a crash.`\
 https://nytimes.com/video/opinion/100000010476575/how-trump-should-think-about-the-ai-bubble.html
