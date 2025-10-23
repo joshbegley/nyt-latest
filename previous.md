@@ -1,3 +1,11 @@
+**How the U.S. Is Working to Shore Up the Gaza Cease-Fire**\
+`Vice President JD Vance went to Israel to try to shore up a fragile cease-fire between Israel and Hamas. Tyler Pager, a White House correspondent at The New York Times, describes Mr. Vance’s visit.`\
+https://nytimes.com/video/us/politics/100000010474113/how-the-us-is-working-to-shore-up-the-gaza-cease-fire.html
+
+**U.S. to Begin Investigation Into China’s Compliance With 2020 Trade Deal**\
+`The Trump administration is preparing to file a trade investigation into China’s compliance with a 2020 trade deal, which could raise tensions ahead of a summit between the country’s leaders.`\
+https://nytimes.com/2025/10/23/business/economy/us-to-begin-investigation-into-chinas-compliance-with-2020-trade-deal.html
+
 **A Packed-Lunch Extravaganza**\
 `Easy-to-prep, kid-friendly, protein-plentiful and dairy-free lunches for grabbing and going.`\
 https://nytimes.com/2025/10/23/dining/a-packed-lunch-extravaganza.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/23/us/san-francisco-bay-area-protesters.html
 **A day in the life of Erling Haaland: red light therapy, raw milk and hunks of steak**\
 `The Manchester City star has launched a YouTube channel and the first episode is a glimpse into his daily recovery and wellness routine`\
 https://nytimes.com/athletic/6742748/2025/10/23/erling-haaland-life-diet/
-
-**From the Black Sox to Prop Bets: a Century of Sports Betting Scandals**\
-`From the Black Sox to City College to cricket, some players and managers have looked to make an extra buck for decades.`\
-https://nytimes.com/2025/10/23/nyregion/sports-gambling-scandals-history.html
-
-**The East Wing Is History, in More Ways Than One**\
-`Readers respond to the demolition of the East Wing of the White House. Also: Fending off tyranny; when Black women are fired.`\
-https://nytimes.com/2025/10/23/opinion/east-wing-white-house-trump.html
 
