@@ -1,3 +1,15 @@
+**'He was amazing': V.J. Edgecombe makes history to give 76ers hope**\
+`When the lottery balls fell Philadelphia's way and they were able to draft Edgecombe, a night like Wednesday night was the vision.`\
+https://nytimes.com/athletic/6742245/2025/10/23/vj-edgecombe-76ers-nba-debut/
+
+**The Pulse: It’s Wemby’s world**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6740647/2025/10/23/victor-wembanyama-spurs-mavericks-the-pulse/
+
+**Barcelona's Clasico problems: The big issues building up to Real Madrid trip**\
+`Barcelona are braced for Sunday's visit to bitter rivals Real Madrid, and it's hard to see them as favourites`\
+https://nytimes.com/athletic/6742837/2025/10/23/barcelona-clasico-real-madrid-problems-flick/
+
 **Should Rams trade for a cornerback? Quentin Lake extension coming? Mailbag**\
 `We answer questions about the Rams' cornerback situation, the offense's success in different personnel packages and more.`\
 https://nytimes.com/athletic/6741209/2025/10/23/rams-mailbag-cornerback-trade-quentin-lake/
