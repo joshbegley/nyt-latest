@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6742666/2025/10/23/phoenix-suns-sacramento-kings-jo
 https://nytimes.com/athletic/6742663/2025/10/23/blazers-opener-tom-dundon-sheel-tyle/
 
 **Chauncey Billups and Terry Rozier arrested in federal investigation into sports betting**\
-`Billups, a Hall of Famer as a player, and Rozier were both arrested on Wednesday.`\
+`Billups, a Hall of Famer as a player, and Rozier will both appear in federal court on Thursday.`\
 https://nytimes.com/athletic/6743095/2025/10/23/nba-federal-gambling-investigation-arrests-investigation/
 
 **Trump Administration Live Updates: Vance Says International Security Force Will Lead on Disarming Hamas**\

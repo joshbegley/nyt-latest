@@ -1,3 +1,7 @@
+**Chauncey Billups and Terry Rozier arrested in federal investigation into sports betting**\
+`Billups, a Hall of Famer as a player, and Rozier will both appear in federal court on Thursday.`\
+https://nytimes.com/athletic/6743095/2025/10/23/nba-federal-gambling-investigation-arrests-investigation/
+
 **King Charles Prays With Pope in Groundbreaking Moment**\
 `King Charles III prayed with Pope Leo XIV in the Sistine Chapel on Thursday, marking the first time in modern history that the leaders of the Anglican and Catholic churches prayed together.`\
 https://nytimes.com/video/world/europe/100000010476218/king-charles-pope-leo-praying.html
