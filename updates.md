@@ -1,3 +1,11 @@
+**Fact-Checking the Second New York Mayoral Debate**\
+`Andrew Cuomo and Curtis Sliwa challenged the front-runner Zohran Mamdani on experience, affordability and policy days before early voting begins.`\
+https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate-fact-check
+
+**“As a state assembly member, I won the first free buses in New York City’s history.”**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate-fact-check/nyc-mayor-debate-fact-check-transit
+
 **“As a state assembly member, I won the first free buses in New York City’s history.”**\
 `By Benjamin Oreskes`\
 https://nytimes.com/2025/10/22/nyregion/nyc-mayor-debate-fact-check-transit.html
