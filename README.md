@@ -1,3 +1,7 @@
+**The New York Times in Print for Thursday, Oct. 23, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/23/todays-new-york-times
+
 **Liverpool confront the unthinkable: does Salah merit a place in their best XI?**\
 `The Egyptian's record is virtually unsurpassed but Liverpool thrived in his absence at Eintracht Frankfurt `\
 https://nytimes.com/athletic/6740732/2025/10/23/mohamed-salah-liverpool-dropped-team/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6732743/2025/10/23/fantasy-premier-league-transfers
 **Guglielmo Vicario is Tottenham's man for the here and now**\
 `Vicario may not feel like the kind of goalkeeper that Frank usually favours but his shot-stopping ability is not to be sniffed at`\
 https://nytimes.com/athletic/6741716/2025/10/23/tottenham-hotspur-champions-league-vicario/
-
-**Taking games abroad would damage football – and would many teams even benefit?**\
-`Serie A and La Liga are so desperate to take their shows on the road, it appears they have not considered if there are any real benefits`\
-https://nytimes.com/athletic/6741016/2025/10/23/la-liga-barcelona-villarreal-miami/
 
