@@ -1,3 +1,7 @@
+**Canadiens-Flames game plays on despite lighting issue at Scotiabank Saddledome**\
+`Both teams agreed to play with only secondary lighting before the main lights returned shortly into the first period.`\
+https://nytimes.com/athletic/6742011/2025/10/22/nhl-flames-canadiens-lighting-issue-saddledome/
+
 **From the Roosevelts to the Kennedys: A Look at the White House East Wing Trump Is Demolishing**\
 `The East Wing has been a base for the first lady, an entryway for social functions and an emergency bunker.`\
 https://nytimes.com/2025/10/22/us/politics/east-wing-white-house.html
