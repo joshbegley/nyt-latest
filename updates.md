@@ -1,3 +1,15 @@
+**Pakistan Bans Radical Islamist Party After Deadly Clashes**\
+`The move underscores the country’s struggle to contain religious extremism without provoking influential clerics who can summon thousands of supporters to the streets.`\
+https://nytimes.com/2025/10/23/world/asia/pakistan-bans-islamist-party.html
+
+**After Trump Cuts, Hochul Vows to Fund Planned Parenthood in New York**\
+`President Trump’s signature policy bill has barred clinics that provide abortions from receiving any Medicaid payments, putting many at risk of closure.`\
+https://nytimes.com/2025/10/23/nyregion/ny-abortion-planned-parenthood.html
+
+**Who Is Chauncey Billups?**\
+`Mr. Billups earned the nickname Mr. Big Shot during a Hall of Fame N.B.A. playing career. He has been a head coach since 2021.`\
+https://nytimes.com/2025/10/23/nyregion/who-is-chauncey-billups.html
+
 **Who Is Chauncey Billups?**\
 `Mr. Billups earned the nickname Mr. Big Shot during a hall of fame N.B.A. playing career. He has been a head coach since 2021.`\
 https://nytimes.com/2025/10/23/nyregion/who-is-chauncey-billups.html

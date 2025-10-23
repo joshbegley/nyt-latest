@@ -1,5 +1,13 @@
+**Pakistan Bans Radical Islamist Party After Deadly Clashes**\
+`The move underscores the country’s struggle to contain religious extremism without provoking influential clerics who can summon thousands of supporters to the streets.`\
+https://nytimes.com/2025/10/23/world/asia/pakistan-bans-islamist-party.html
+
+**After Trump Cuts, Hochul Vows to Fund Planned Parenthood in New York**\
+`President Trump’s signature policy bill has barred clinics that provide abortions from receiving any Medicaid payments, putting many at risk of closure.`\
+https://nytimes.com/2025/10/23/nyregion/ny-abortion-planned-parenthood.html
+
 **Who Is Chauncey Billups?**\
-`Mr. Billups earned the nickname Mr. Big Shot during a hall of fame N.B.A. playing career. He has been a head coach since 2021.`\
+`Mr. Billups earned the nickname Mr. Big Shot during a Hall of Fame N.B.A. playing career. He has been a head coach since 2021.`\
 https://nytimes.com/2025/10/23/nyregion/who-is-chauncey-billups.html
 
 **Archbishop of U.S. Anglican Church Is Accused of Sexual Harassment**\
@@ -25,12 +33,4 @@ https://nytimes.com/2025/10/23/us/politics/east-wing-obituary.html
 **South Africa's Wessels given nine-week ban for genitals grab**\
 `Wessels' ban sees him ruled out of South Africa's autumn Tests, forced to miss matches against Japan, France, Italy and Ireland.`\
 https://nytimes.com/athletic/6744297/2025/10/23/rugby-ban-genitals-grab-wessels-south-africa/
-
-**Dallas Wings targeting Jose Fernandez to be franchise's next coach: Sources**\
-`While no deal has been finalized, USF has already publicly announced that Fernandez is leaving for a WNBA opportunity.`\
-https://nytimes.com/athletic/6744419/2025/10/23/dallas-wings-jose-fernandez-coach-hire/
-
-**Phyllis Trible, Who Studied Bible Through Feminist Lens, Dies at 92**\
-`An influential scholar, she challenged centuries of biblical interpretation that presumed that women were unequal to men in the eyes of God.`\
-https://nytimes.com/2025/10/23/books/phyllis-trible-dead.html
 
