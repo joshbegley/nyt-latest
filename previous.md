@@ -1,3 +1,7 @@
+**Miami Heat's Terry Rozier arrested in federal investigation into illegal sports betting**\
+`Miami Heat's Terry Rozier arrested by FBI in illegal sports betting investigation`\
+https://nytimes.com/athletic/6743095/2025/10/23/terry-rozier-arrested-fbi-gambling-investigation/
+
 **Trump Administration Live Updates: Vance Says International Security Force Will Lead on Disarming Hamas**\
 ``\
 https://nytimes.com/live/2025/10/23/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6740737/2025/10/23/projecting-jets-lineup-lowry-sam
 **Notre Dame midseason superlatives: Bad omens, second-half MVPs and the path to 10-2**\
 `The Irish appear to be on a smooth road to the College Football Playoff, again closing on a 10-game win streak.`\
 https://nytimes.com/athletic/6741456/2025/10/23/notre-dame-midseason-superlatives/
-
-**The Broncos are the NFL's most penalized team. Can they fix the problem?**\
-`No phase of Denver's operation has been immune to flags, an issue the Broncos must clean up if they want to hold onto their AFC West lead.`\
-https://nytimes.com/athletic/6740981/2025/10/23/broncos-penalties-sean-payton/
 

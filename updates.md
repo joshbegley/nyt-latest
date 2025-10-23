@@ -1,3 +1,7 @@
+**Miami Heat's Terry Rozier arrested in federal investigation into illegal sports betting**\
+`Miami Heat's Terry Rozier arrested by FBI in illegal sports betting investigation`\
+https://nytimes.com/athletic/6743095/2025/10/23/terry-rozier-arrested-fbi-gambling-investigation/
+
 **Trump Administration Live Updates: Vance Says International Security Force Will Lead on Disarming Hamas**\
 ``\
 https://nytimes.com/live/2025/10/23/us/trump-news
