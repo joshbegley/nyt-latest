@@ -1,3 +1,7 @@
+**Igor Tudor will not experience much patience at Juventus, where 'transition' is a taboo term**\
+`Juve's head coach pleaded for perspective after his team were bested by Real Madrid but that's not how the cookie crumbles in Turin`\
+https://nytimes.com/athletic/6741350/2025/10/23/juventus-igor-tudor-champions-league-madrid/
+
 **Victor Wembanyama looks like an MVP candidate as Spurs crush Mavs in opener**\
 `In Wembanyama's first game since a blood clot ended his last season prematurely, the Spurs' 7-foot-5 star had 40 points and 15 rebounds.`\
 https://nytimes.com/athletic/6742346/2025/10/23/spurs-mavs-opener-victor-wembanyama/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6732980/2025/10/23/ricciardo-calafiori-and-controll
 **Estevao, Chelsea's youngest champions league goalscorer, is a born entertainer**\
 `The exciting Brazilian teenager became Chelsea's youngest Champions League scorer - breaking a record set by a team-mate in the same match`\
 https://nytimes.com/athletic/6741805/2025/10/23/estevao-chelsea-champions-league-youngest/
-
-**Wrexham's first home league win since April will breathe new life into their season**\
-`A 1-0 win against struggling Oxford United has moved Phil Parkinson's team back into the Championship's mid-table `\
-https://nytimes.com/athletic/6736277/2025/10/23/wrexham-oxford-championship-parkinson-breathing-space/
 

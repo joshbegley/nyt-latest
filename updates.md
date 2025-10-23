@@ -1,3 +1,7 @@
+**Igor Tudor will not experience much patience at Juventus, where 'transition' is a taboo term**\
+`Juve's head coach pleaded for perspective after his team were bested by Real Madrid but that's not how the cookie crumbles in Turin`\
+https://nytimes.com/athletic/6741350/2025/10/23/juventus-igor-tudor-champions-league-madrid/
+
 **Victor Wembanyama looks like an MVP candidate as Spurs crush Mavs in opener**\
 `In Wembanyama's first game since a blood clot ended his last season prematurely, the Spurs' 7-foot-5 star had 40 points and 15 rebounds.`\
 https://nytimes.com/athletic/6742346/2025/10/23/spurs-mavs-opener-victor-wembanyama/
