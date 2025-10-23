@@ -1,3 +1,7 @@
+**“You had the worst attendance record in the Assembly.”**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/you-had-the-worst-attendance-record-in-the-assembly
+
 **“His position has been to defund, disband, the police.”**\
 `By Benjamin Oreskes`\
 https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/mamdani-cuomo-police
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/22/us/politics/senator-merkley-speech-trump.html
 **“You could turn on TV any day of the week and you will hear Donald Trump share that his pick for mayor is Andrew Cuomo. And he wants Andrew Cuomo to be the mayor.”**\
 `By Benjamin Oreskes`\
 https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/you-could-turn-on-tv-any-day-of-the-week-and-you-will-hear-donald-trump-share-that-his-pick-for-mayor-is-andrew-cuomo-and-he-wan
-
-**Pentagon Announces ‘Next Generation’ Press Corps**\
-`The Defense Department said that dozens of new reporters had agreed to sign the Pentagon’s rules on reporting, which have been rejected by many major news organizations.`\
-https://nytimes.com/2025/10/22/business/media/pentagon-press-reporters.html
 

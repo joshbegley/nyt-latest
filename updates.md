@@ -1,3 +1,7 @@
+**“You had the worst attendance record in the Assembly.”**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/you-had-the-worst-attendance-record-in-the-assembly
+
 **“His position has been to defund, disband, the police.”**\
 `By Benjamin Oreskes`\
 https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/mamdani-cuomo-police
