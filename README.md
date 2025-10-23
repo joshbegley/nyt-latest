@@ -1,6 +1,10 @@
+**Fact-Checking the Second New York Mayoral Debate**\
+`Andrew Cuomo and Curtis Sliwa challenged the front-runner Zohran Mamdani on experience, affordability and policy days before early voting begins.`\
+https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate-fact-check
+
 **“As a state assembly member, I won the first free buses in New York City’s history.”**\
 `By Benjamin Oreskes`\
-https://nytimes.com/2025/10/22/nyregion/nyc-mayor-debate-fact-check-transit.html
+https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate-fact-check/nyc-mayor-debate-fact-check-transit
 
 **College golfer aces same hole twice in one day: 'I was in denial' over feat**\
 `Many golfers dream of making just one hole-in-one, but Sewanee sophomore Niel Phillips found magic twice at the Chick-fil-A Invitational.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6741550/2025/10/22/giants-tony-vitello-drew-gilbert
 **“We sorted it out legally. Nothing came from any of the allegations. I was dropped from the cases.”**\
 `By Benjamin Oreskes`\
 https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/we-sorted-it-out-legally-nothing-came-from-any-of-the-allegations-i-was-dropped-from-the-cases
-
-**“They’ve heard some of the statements you’ve made, like in support of global jihad.”**\
-`By Benjamin Oreskes`\
-https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/theyve-heard-some-of-the-statements-youve-made-like-in-support-of-global-jihad
 
