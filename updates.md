@@ -1,3 +1,27 @@
+**A Packed-Lunch Extravaganza**\
+`Easy-to-prep, kid-friendly, protein-plentiful and dairy-free lunches for grabbing and going.`\
+https://nytimes.com/2025/10/23/dining/a-packed-lunch-extravaganza.html
+
+**Champions League projections: Arsenal favourites but PSG, Bayern and Man City bubbling nicely**\
+`An analysis of the state of play in Europe's premier club competition following the conclusion of the third round of fixtures`\
+https://nytimes.com/athletic/6743519/2025/10/23/champions-league-projections-arsenal-psg-bayern-munich-man-city/
+
+**‘Springsteen: Deliver Me From Nowhere’ Review: The Boss in the Void**\
+`Jeremy Allen White plays the singer-songwriter in an affecting drama about the making of his 1982 album “Nebraska” when he slipped into a terrible darkness.`\
+https://nytimes.com/2025/10/23/movies/springsteen-deliver-me-from-nowhere-review.html
+
+**Arsenal reach agreement with Dowman to sign scholarship terms**\
+`A professional contract is expected to follow when Dowman turns 17.`\
+https://nytimes.com/athletic/6743995/2025/10/23/max-dowman-arsenal-contract/
+
+**Bay Area Protesters Try to Block Base Entrance Before Immigration Operation**\
+`About 200 people stood in an intersection outside the Coast Guard base in Alameda, Calif., where federal agents were said to be arriving to prepare for an immigration enforcement operation.`\
+https://nytimes.com/2025/10/23/us/san-francisco-bay-area-protesters.html
+
+**From the Black Sox to Prop Bets: a Century of Sports Betting Scandals**\
+`From the Black Sox to City College to cricket, some players and managers have looked to make an extra buck for decades.`\
+https://nytimes.com/2025/10/23/nyregion/sports-gambling-scandals-history.html
+
 **Volkswagen Says Loss of Chip Supply Could Hit Production**\
 `After China stopped deliveries of Nexperia’s chips over a dispute with the Dutch government, German carmakers are worried about supply shortages.`\
 https://nytimes.com/2025/10/23/business/volkswagen-chips-china-nexperia.html
