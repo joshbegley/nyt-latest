@@ -1,3 +1,7 @@
+**Cyclist Sehili freed by Russian court after detention during world record attempt**\
+`Sehili had been embarking on an attempted world record ride across Eurasia when he was detained on September 4, 2025`\
+https://nytimes.com/athletic/6742888/2025/10/23/cycling-sofiane-sehili-russia-world-record/
+
 **The Abdication of Congress**\
 `We explain what elected officials aren’t doing during the government shutdown.`\
 https://nytimes.com/2025/10/23/briefing/the-abdication-of-congress.html
