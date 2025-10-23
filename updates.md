@@ -1,3 +1,7 @@
+**How Europe Is Trying to Turn Frozen Russian Assets Into Cash for Ukraine**\
+`European Union officials could reach a political agreement as soon as Thursday on a plan for a huge loan to Ukraine backed by Kremlin money frozen in a Belgian financial institution.`\
+https://nytimes.com/2025/10/23/world/europe/russia-frozen-assets-european-union.html
+
 **Igor Tudor will not experience much patience at Juventus, where 'transition' is a taboo term**\
 `Juve's head coach pleaded for perspective after his team were bested by Real Madrid but that's not how the cookie crumbles in Turin`\
 https://nytimes.com/athletic/6741350/2025/10/23/juventus-igor-tudor-champions-league-madrid/

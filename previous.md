@@ -1,3 +1,7 @@
+**How Europe Is Trying to Turn Frozen Russian Assets Into Cash for Ukraine**\
+`European Union officials could reach a political agreement as soon as Thursday on a plan for a huge loan to Ukraine backed by Kremlin money frozen in a Belgian financial institution.`\
+https://nytimes.com/2025/10/23/world/europe/russia-frozen-assets-european-union.html
+
 **Igor Tudor will not experience much patience at Juventus, where 'transition' is a taboo term**\
 `Juve's head coach pleaded for perspective after his team were bested by Real Madrid but that's not how the cookie crumbles in Turin`\
 https://nytimes.com/athletic/6741350/2025/10/23/juventus-igor-tudor-champions-league-madrid/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6739924/2025/10/23/man-utd-brighton-team/
 **Riccardo Calafiori and controlled chaos theory**\
 `The Italian is in undroppable form – sometimes reminiscent of a galloping horse going forward, he brings unpredictability to attacks`\
 https://nytimes.com/athletic/6732980/2025/10/23/ricciardo-calafiori-and-controlled-chaos-theory/
-
-**Estevao, Chelsea's youngest champions league goalscorer, is a born entertainer**\
-`The exciting Brazilian teenager became Chelsea's youngest Champions League scorer - breaking a record set by a team-mate in the same match`\
-https://nytimes.com/athletic/6741805/2025/10/23/estevao-chelsea-champions-league-youngest/
 
