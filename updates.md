@@ -1,3 +1,15 @@
+**Marathon record-holder Chepngetich gets doping ban after 'taking housemaid's medication'**\
+`The Athletics Integrity Unit confirmed the ban, stating Chepngetich had admitted to the violations and accepted the sanction.`\
+https://nytimes.com/athletic/6743419/2025/10/23/ruth-chepngetich-doping-ban/
+
+**Dave Ball, Soft Cell Musician Known for ‘Tainted Love,’ Dies at 66**\
+`He was a producer and one half of the pioneering English synth-pop duo.`\
+https://nytimes.com/2025/10/23/arts/music/soft-cell-david-ball-dead.html
+
+**Rockwells of the White House, Where They Long Resided, Head to Auction**\
+`The drawings, by Norman Rockwell, of visitors looking to speak with the president, once hung near the Oval Office.`\
+https://nytimes.com/2025/10/23/arts/white-house-rockwell-drawings-auction.html
+
 **Chiefs' Patrick Mahomes is the NFL MVP favorite. Here's where he thinks he's improved**\
 `After watching film of himself in the offseason, Mahomes is trying not to overthink things this season, and the Chiefs are benefiting.`\
 https://nytimes.com/athletic/6740978/2025/10/23/chiefs-patrick-mahomes-nfl-mvp-favorite/
