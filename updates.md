@@ -1,3 +1,11 @@
+**New York City’s Mob Families Are Still in Business**\
+`The criminal organizations were mentioned prominently in a charging document that accused N.B.A. stars of recruiting players for illegal poker games.`\
+https://nytimes.com/2025/10/23/nyregion/nba-gambling-mafia-gambino-genovese-bonanno-luchese.html
+
+**Who Was the Unnamed Player 3 in the N.B.A. Gambling Case?**\
+`A former teammate of LeBron James is accused of giving inside information to gamblers who used it to make bets.`\
+https://nytimes.com/2025/10/23/nyregion/player-3-lebron-james.html
+
 **Worker Dies After Falling at Construction Site for Hudson Tunnel Project**\
 `The man, who was working at a site at Hudson Yards in Manhattan, fell 60 feet into a pit below, according to the New York Fire Department.`\
 https://nytimes.com/2025/10/23/nyregion/construction-worker-dies-hudson-yards-nyc.html
