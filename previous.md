@@ -1,40 +1,40 @@
-**Blazers name Tiago Splitter interim coach amid NBA betting investigation**\
-`Splitter was the head coach of Paris Basketball last year and played in the NBA from 2010 to 2017.`\
-https://nytimes.com/athletic/6744116/2025/10/23/nba-betting-investigation-blazers-coach-splitter/
+**Vance Calls Vote to Annex West Bank a ‘Very Stupid Political Stunt’**\
+`Vice President JD Vance expressed his disapproval of the Israeli Knesset’s choice to pass two symbolic votes in favor of annexing land in the West Bank.`\
+https://nytimes.com/video/world/middleeast/100000010477497/israel-annex-west-bank-vance.html
 
-**New Yorkers on Their Hopes for the Future of the City**\
-`Readers share their wishes, predictions and wildest dreams for what’s to come in transit, housing, arts and more.`\
-https://nytimes.com/2025/10/23/nyregion/new-york-future-wishes-predictions.html
+**How to watch Thunder vs. Pacers: Time, TV, streaming**\
+`Find out how to watch the Oklahoma City Thunder play the Indiana Pacers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6744527/2025/10/23/thunder-vs-pacers-stream-how-to-watch-oct-23/
 
-**What are the best N.B.A. jerseys of all time?**\
-`The Athletic’s N.B.A. staff weigh in on the best jerseys in basketball history.`\
-https://nytimes.com/video/the-athletic/100000010477163/what-are-the-best-nba-jerseys-of-all-time.html
+**How to watch Kraken vs. Jets: Time, TV, streaming**\
+`Find out how to watch the Seattle Kraken play the Winnipeg Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6744521/2025/10/23/kraken-vs-jets-stream-how-to-watch-oct-23/
 
-**What Will Be the Next Big Innovation in The N.B.A.?**\
-`David Aldridge, Marcus Thompson, James Edwards III and Jon Krawczynski of The Athletic look into their crystal balls to predict where the N.B.A. is headed.`\
-https://nytimes.com/video/the-athletic/100000010477155/what-will-be-the-next-big-innovation-in-the-nba.html
+**How to watch Canadiens vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the Montreal Canadiens play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6744520/2025/10/23/canadiens-vs-oilers-stream-how-to-watch-oct-23/
 
-**If You Were N.B.A. Commissioner for a Day, What Would You Do?**\
-`The Athletic’s N.B.A. staff has plenty of ideas about how they’d change the league if they were in charge.`\
-https://nytimes.com/video/the-athletic/100000010477159/if-you-were-nba-commissioner-for-a-day-what-would-you-do.html
+**Scoop City: Russell Wilson vs. Sean Payton, Vikings vs. Chargers**\
+`Sean Payton vs. Russell Wilson, offensive line injuries hurting the Chargers and Vikings, and Jerry Jones talks trade deadline moves`\
+https://nytimes.com/athletic/6744442/2025/10/23/sean-payton-russell-wilson-chargers-vikings-scoop-city-nfl/
 
-**The Top 3 Scary Movies**\
-`Wesley Morris, and Eric Hynes, a film curator, talk about what elements make a horror movie great on this week’s episode of “Cannonball.”`\
-https://nytimes.com/video/podcasts/100000010477207/the-top-3-scary-movies.html
+**How to watch Mammoth vs. Blues: Time, TV, streaming**\
+`Find out how to watch the Utah Mammoth play the St. Louis Blues, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6744516/2025/10/23/mammoth-vs-blues-stream-how-to-watch-oct-23/
 
-**What’s Going On in This Picture? | Oct. 27, 2025**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2025/10/23/learning/whats-going-on-in-this-picture-oct-27-2025.html
+**How to watch Hurricanes vs. Avalanche: Time, TV, streaming**\
+`Find out how to watch the Carolina Hurricanes play the Colorado Avalanche, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6744517/2025/10/23/hurricanes-vs-avalanche-stream-how-to-watch-oct-23/
 
-**Some of the Greatest American Music You’ve Never Heard Of**\
-`Why has the genius of these Black innovators been consigned to academic conferences?`\
-https://nytimes.com/2025/10/23/opinion/black-musicians-will-marion-cook-shuffle-along.html
+**How to watch Nuggets vs. Warriors: Time, TV, streaming**\
+`Find out how to watch the Denver Nuggets play the Golden State Warriors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6744513/2025/10/23/nuggets-vs-warriors-stream-how-to-watch-oct-23/
 
-**What’s Going On in This Graph? | Oct. 29, 2025**\
-`How do girls and boys compare in school?`\
-https://nytimes.com/2025/10/23/learning/whats-going-on-in-this-graph-oct-29-2025.html
+**How to watch Kings vs. Stars: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Kings play the Dallas Stars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6744511/2025/10/23/kings-vs-stars-stream-how-to-watch-oct-23/
 
-**New York City’s Mob Families Are Still in Business**\
-`The criminal organizations were mentioned prominently in a charging document that accused N.B.A. stars of recruiting players for illegal poker games.`\
-https://nytimes.com/2025/10/23/nyregion/nba-gambling-mafia-gambino-genovese-bonanno-luchese.html
+**How to watch Canucks vs. Predators: Time, TV, streaming**\
+`Find out how to watch the Vancouver Canucks play the Nashville Predators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6744509/2025/10/23/canucks-vs-predators-stream-how-to-watch-oct-23/
 
