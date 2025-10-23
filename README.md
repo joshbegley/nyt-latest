@@ -1,3 +1,11 @@
+**Has Dining Gotten Too Fine on ‘The Bear’?**\
+`Samin Nosrat, a chef and food writer, joins Wesley Morris to talk about cooking and the latest season of “The Bear.”`\
+https://nytimes.com/video/podcasts/100000010447207/has-dining-gotten-too-fine-on-the-bear.html
+
+**We Love ‘Parasite.’ But Where the Hell Is Steven Spielberg?**\
+`Wesley Morris invites an old friend, the film curator Eric Hynes, to talk about the Times’s 100 Best Movies of the 21st Century list.`\
+https://nytimes.com/video/podcasts/100000010462954/we-love-parasite-but-where-the-hell-is-steven-spielberg.html
+
 **Eric Adams Will Endorse Andrew Cuomo for Mayor**\
 `In a stunning reversal, Mayor Eric Adams will endorse former Gov. Andrew M. Cuomo for mayor, in hopes of slowing the momentum of Zohran Mamdani, the Democratic nominee.`\
 https://nytimes.com/2025/10/23/nyregion/adams-endorse-cuomo-nyc-mayor.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/podcasts/100000010452822/and-just-like-that-sex-in-the
 **Is the New Spike Lee Joint Serving Pound Cake?**\
 `Vinson Cunningham, a critic with The New Yorker, joins Wesley Morris to talk about Spike Lee’s latest film, “Highest 2 Lowest.”`\
 https://nytimes.com/video/podcasts/100000010452235/is-the-new-spike-lee-joint-serving-pound-cake.html
-
-**The Summer Movies That Made Us**\
-`Wesley Morris invites his friend, the writer Sam Anderson, to talk about summer movie blockbusters.`\
-https://nytimes.com/video/podcasts/100000010447437/the-summer-movies-that-made-us.html
-
-**When Republicans Go Low …**\
-`What’s the smart move for Democrats in this political moment? On “The Opinions,” the columnist David Brooks says he thinks the party should channel Michelle Obama and “go high.”`\
-https://nytimes.com/video/opinion/100000010473977/when-republicans-go-low.html
 
