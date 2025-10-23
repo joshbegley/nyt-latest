@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Vance Says International Security Force Will Lead on Disarming Hamas**\
+``\
+https://nytimes.com/live/2025/10/23/us/trump-news
+
 **Musk’s Trillion-Dollar Pitch**\
 `Despite a drop in Tesla profit, the billionaire exhorted investors to back his proposed compensation package, or face consequences.`\
 https://nytimes.com/2025/10/23/business/dealbook/musk-tesla-pay-package.html
