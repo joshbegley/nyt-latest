@@ -1,3 +1,7 @@
+**After Remark About Mamdani and Sept. 11, Cuomo Faces Democratic Rebukes**\
+`When a radio host suggested that Zohran Mamdani would celebrate another Sept. 11-style attack, Andrew Cuomo chuckled. Democrats denounced the exchange as Islamophobic.`\
+https://nytimes.com/2025/10/23/nyregion/cuomo-mamdani-sept-11.html
+
 **N.B.A. Figures Charged in Gambling Schemes**\
 `Also, Trump halted his plan to send federal agents to San Francisco. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/10/23/briefing/nba-figures-charged-in-gambling-schemes.html
