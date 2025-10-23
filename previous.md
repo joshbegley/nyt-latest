@@ -1,36 +1,40 @@
+**Blazers name Tiago Splitter interim coach amid NBA betting investigation**\
+`Splitter was the head coach of Paris Basketball last year and played in the NBA from 2010 to 2017.`\
+https://nytimes.com/athletic/6744116/2025/10/23/nba-betting-investigation-blazers-coach-splitter/
+
+**New Yorkers on Their Hopes for the Future of the City**\
+`Readers share their wishes, predictions and wildest dreams for what’s to come in transit, housing, arts and more.`\
+https://nytimes.com/2025/10/23/nyregion/new-york-future-wishes-predictions.html
+
+**What are the best N.B.A. jerseys of all time?**\
+`The Athletic’s N.B.A. staff weigh in on the best jerseys in basketball history.`\
+https://nytimes.com/video/the-athletic/100000010477163/what-are-the-best-nba-jerseys-of-all-time.html
+
+**What Will Be the Next Big Innovation in The N.B.A.?**\
+`David Aldridge, Marcus Thompson, James Edwards III and Jon Krawczynski of The Athletic look into their crystal balls to predict where the N.B.A. is headed.`\
+https://nytimes.com/video/the-athletic/100000010477155/what-will-be-the-next-big-innovation-in-the-nba.html
+
+**If You Were N.B.A. Commissioner for a Day, What Would You Do?**\
+`The Athletic’s N.B.A. staff has plenty of ideas about how they’d change the league if they were in charge.`\
+https://nytimes.com/video/the-athletic/100000010477159/if-you-were-nba-commissioner-for-a-day-what-would-you-do.html
+
+**The Top 3 Scary Movies**\
+`Wesley Morris, and Eric Hynes, a film curator, talk about what elements make a horror movie great on this week’s episode of “Cannonball.”`\
+https://nytimes.com/video/podcasts/100000010477207/the-top-3-scary-movies.html
+
+**What’s Going On in This Picture? | Oct. 27, 2025**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2025/10/23/learning/whats-going-on-in-this-picture-oct-27-2025.html
+
+**Some of the Greatest American Music You’ve Never Heard Of**\
+`Why has the genius of these Black innovators been consigned to academic conferences?`\
+https://nytimes.com/2025/10/23/opinion/black-musicians-will-marion-cook-shuffle-along.html
+
+**What’s Going On in This Graph? | Oct. 29, 2025**\
+`How do girls and boys compare in school?`\
+https://nytimes.com/2025/10/23/learning/whats-going-on-in-this-graph-oct-29-2025.html
+
 **New York City’s Mob Families Are Still in Business**\
 `The criminal organizations were mentioned prominently in a charging document that accused N.B.A. stars of recruiting players for illegal poker games.`\
 https://nytimes.com/2025/10/23/nyregion/nba-gambling-mafia-gambino-genovese-bonanno-luchese.html
-
-**Worker Dies After Falling at Construction Site for Hudson Tunnel Project**\
-`The man, who was working at a site at Hudson Yards in Manhattan, fell 60 feet into a pit below, according to the New York Fire Department.`\
-https://nytimes.com/2025/10/23/nyregion/construction-worker-dies-hudson-yards-nyc.html
-
-**Until Saturday: The SEC's Playoff/hot-seat extravaganza**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6744357/2025/10/23/sec-football-weekend-schedule-until-saturday/
-
-**They Jumped Off a Burning Boat and Were Rescued After 30 Hours on a Remote Island**\
-`The Coast Guard rescued three family members who were stranded on Naushon, a sparsely populated island off Martha’s Vineyard. One was in critical condition.`\
-https://nytimes.com/2025/10/23/us/family-rescue-naushon-island-cape-cod-boat-fire.html
-
-**A Mystery in Trinidad as Bodies Wash Ashore After U.S. Strikes**\
-`The U.S. campaign targeting what it says is drug trafficking from Venezuela has exposed Trinidad to the fallout: unidentified bodies with burn marks and missing limbs showing up in its territory.`\
-https://nytimes.com/2025/10/23/world/americas/trinidad-bodies-us-strike-venezuela.html
-
-**Who Was the Unnamed Player 3 in the N.B.A. Gambling Case?**\
-`A former teammate of LeBron James is accused of giving inside information to gamblers who used it to make bets.`\
-https://nytimes.com/2025/10/23/nyregion/player-3-lebron-james.html
-
-**Blue Jays name rookie Trey Yesavage World Series Game 1 starter**\
-`Yesavage is the first rookie to start Game 1 of the World Series since Justin Verlander and Anthony Reyes squared off in 2006.`\
-https://nytimes.com/athletic/6744266/2025/10/23/blue-jays-trey-yesavage-world-series-game-1-starter/
-
-**Bengals QB Joe Flacco is like any other parent desperate for alone time**\
-`As a father of five, Flacco has a new appreciation for 'party of one.'`\
-https://nytimes.com/athletic/6744200/2025/10/23/cincinnati-bengals-qb-joe-flacco-alone-time/
-
-**Trump Officials Shoot Down Israeli Aspirations of Annexing West Bank Land**\
-`Vice President JD Vance calls symbolic votes in Israel’s Parliament to annex West Bank territory a “very stupid political stunt.”`\
-https://nytimes.com/2025/10/23/world/middleeast/trump-israel-west-bank-annexation.html
 
