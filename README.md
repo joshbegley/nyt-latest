@@ -1,4 +1,4 @@
-**76ers' V.J. Edgecombe scores third-most points ever by a rookie in NBA debut**\
+**76ers' V.J. Edgecombe's 34 points are third-most in NBA debut**\
 `Edgecombe and Maxey helped offset a four-point, six-rebound performance from Sixers center Joel Embiid.`\
 https://nytimes.com/athletic/6742077/2025/10/22/v-j-edgecombe-76ers-record/
 
