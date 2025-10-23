@@ -1,3 +1,19 @@
+**Who Is Chauncey Billups?**\
+`Mr. Billups earned the nickname Mr. Big Shot during a hall of fame N.B.A. playing career. He has been a head coach since 2021.`\
+https://nytimes.com/2025/10/23/nyregion/who-is-chauncey-billups.html
+
+**Archbishop of U.S. Anglican Church Is Accused of Sexual Harassment**\
+`Another leader in the breakaway denomination has been accused of responding slowly to accusations of abuse and grooming against a lay leader.`\
+https://nytimes.com/2025/10/23/us/anglican-church-stephen-wood.html
+
+**Arsenal had to make a special case for Max Dowman - his super talent merits it**\
+`Arsenal have managed to sign Max Dowman to scholarship terms. A professional contract is expected to follow when he turns 17`\
+https://nytimes.com/athletic/6744503/2025/10/23/max-dowman-arsenal-contract-analysis/
+
+**NFL Week 8 projected scores: Model predicts point spreads and totals for every game**\
+`Austin Mock's projection model predicts point spreads and point totals for NFL Week 8 games.`\
+https://nytimes.com/athletic/6741904/2025/10/23/nfl-week-8-projected-scores-model-predicts-point-spreads-totals/
+
 **After Ordering a Record Cannabis Recall, N.Y. Regulators Go Quiet**\
 `Critics complain that state officials have given little guidance since ordering a recall of some $30 million in cannabis products. The delay, they say, could undermine confidence in the legal market.`\
 https://nytimes.com/2025/10/23/nyregion/new-york-cannabis-recall-marijuana.html
