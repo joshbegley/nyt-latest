@@ -1,3 +1,7 @@
+**“As a state assembly member, I won the first free buses in New York City’s history.”**\
+`By Benjamin Oreskes`\
+https://nytimes.com/2025/10/22/nyregion/nyc-mayor-debate-fact-check-transit.html
+
 **College golfer aces same hole twice in one day: 'I was in denial' over feat**\
 `Many golfers dream of making just one hole-in-one, but Sewanee sophomore Niel Phillips found magic twice at the Chick-fil-A Invitational.`\
 https://nytimes.com/athletic/6738748/2025/10/22/2-holes-in-one-same-day-college-golfer/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/we-sorted-it-out-l
 **“They’ve heard some of the statements you’ve made, like in support of global jihad.”**\
 `By Benjamin Oreskes`\
 https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/theyve-heard-some-of-the-statements-youve-made-like-in-support-of-global-jihad
-
-**Trump Imposes Sanctions on Russian Oil Companies as His Frustration With Putin Mounts**\
-`The sanctions are among the most significant measures that the United States has taken against the Russian energy sector since the beginning of the war in Ukraine.`\
-https://nytimes.com/2025/10/22/us/politics/trump-sanctions-russia-ukraine.html
 

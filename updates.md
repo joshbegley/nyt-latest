@@ -1,3 +1,7 @@
+**“As a state assembly member, I won the first free buses in New York City’s history.”**\
+`By Benjamin Oreskes`\
+https://nytimes.com/2025/10/22/nyregion/nyc-mayor-debate-fact-check-transit.html
+
 **College golfer aces same hole twice in one day: 'I was in denial' over feat**\
 `Many golfers dream of making just one hole-in-one, but Sewanee sophomore Niel Phillips found magic twice at the Chick-fil-A Invitational.`\
 https://nytimes.com/athletic/6738748/2025/10/22/2-holes-in-one-same-day-college-golfer/
