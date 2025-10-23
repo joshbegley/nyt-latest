@@ -1,3 +1,11 @@
+**NFL executive defends upcoming Bad Bunny Super Bowl halftime show**\
+`"OK, you don't like it?" NFL CMO Tim Ellis said. "We have over 200 million fans. Not everyone is going to like everything we do."`\
+https://nytimes.com/athletic/6744427/2025/10/23/nfl-cmo-bad-bunny-super-bowl-halftime-show/
+
+**G. Michael Brown, 82, Dies; Gambling Regulator Became Casino Executive**\
+`He was a watchdog over casinos when they were introduced in New Jersey. He went on to run the nation’s most profitable one, in Connecticut.`\
+https://nytimes.com/2025/10/23/nyregion/g-michael-brown-dead.html
+
 **Blue Jays' Bo Bichette takes grounders at second base, could play position in World Series**\
 `Toronto manager John Schneider said Thursday that Bichette is feeling good, but still has a few more boxes to check.`\
 https://nytimes.com/athletic/6744663/2025/10/23/blue-jays-bo-bichette-second-base-could-play-position-world-series/

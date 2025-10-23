@@ -1,3 +1,15 @@
+**N.B.A. Figures Charged in Gambling Schemes**\
+`Also, Trump halted his plan to send federal agents to San Francisco. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/10/23/briefing/nba-figures-charged-in-gambling-schemes.html
+
+**Who Is Terry Rozier?**\
+`The only active N.B.A. player named in two indictments was Mr. Rozier, a versatile veteran who first drew the attention of gambling investigators in 2023.`\
+https://nytimes.com/2025/10/23/nyregion/terry-rozier-nba-gambling-scandal.html
+
+**The White House Wrecking Ball**\
+`President Trump’s demolition of the East Wing to make way for a ballroom seems to mirror his determination to remake America.`\
+https://nytimes.com/2025/10/23/world/the-white-house-trump-russia-sanctions-israel.html
+
 **NFL executive defends upcoming Bad Bunny Super Bowl halftime show**\
 `"OK, you don't like it?" NFL CMO Tim Ellis said. "We have over 200 million fans. Not everyone is going to like everything we do."`\
 https://nytimes.com/athletic/6744427/2025/10/23/nfl-cmo-bad-bunny-super-bowl-halftime-show/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6744834/2025/10/23/aaron-rodgers-retire-packers-ste
 **The U.S. Economy Needs Immigration**\
 `Can the U.S. economy thrive without a steady stream of immigration? This week on “Interesting Times,” Jason Furman, a contributing Times Opinion writer and an economist at the Harvard Kennedy School, tells Ross Douthat why he thinks our future “rises and falls with immigration.”`\
 https://nytimes.com/video/opinion/100000010469047/the-us-economy-needs-immigration.html
-
-**Blue Jays' Bo Bichette takes grounders at second base, could play position in World Series**\
-`Toronto manager John Schneider said Thursday that Bichette is feeling good, but still has a few more boxes to check.`\
-https://nytimes.com/athletic/6744663/2025/10/23/blue-jays-bo-bichette-second-base-could-play-position-world-series/
-
-**How Mamdani Has Evolved in the Mayoral Race**\
-`Zohran Mamdani entered the final debate in the New York City mayoral race ahead in the polls. Nicholas Fandos, who covers New York politics and government for The New York Times, describes Mr. Mamdani’s strategy to appeal to the wider electorate before early voting begins.`\
-https://nytimes.com/video/nyregion/100000010472876/how-mamdani-has-evolved-in-the-mayoral-race.html
-
-**The U.S. and Europe Are Trying New Ways to Pressure Russia**\
-`For the first time in his second term, President Trump is imposing new sanctions, but they may not shift the course of Russia’s war in Ukraine.`\
-https://nytimes.com/2025/10/23/world/europe/russia-oil-sanctions-prices.html
 
