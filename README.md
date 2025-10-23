@@ -1,3 +1,15 @@
+**'He was amazing': V.J. Edgecombe makes history to give 76ers hope**\
+`When the lottery balls fell Philadelphia's way and they were able to draft Edgecombe, a night like Wednesday night was the vision.`\
+https://nytimes.com/athletic/6742245/2025/10/23/vj-edgecombe-76ers-nba-debut/
+
+**The Pulse: It’s Wemby’s world**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6740647/2025/10/23/victor-wembanyama-spurs-mavericks-the-pulse/
+
+**Barcelona's Clasico problems: The big issues building up to Real Madrid trip**\
+`Barcelona are braced for Sunday's visit to bitter rivals Real Madrid, and it's hard to see them as favourites`\
+https://nytimes.com/athletic/6742837/2025/10/23/barcelona-clasico-real-madrid-problems-flick/
+
 **Should Rams trade for a cornerback? Quentin Lake extension coming? Mailbag**\
 `We answer questions about the Rams' cornerback situation, the offense's success in different personnel packages and more.`\
 https://nytimes.com/athletic/6741209/2025/10/23/rams-mailbag-cornerback-trade-quentin-lake/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/23/theater/broadway-strike-union-deal.html
 **Van Dijk confirms he organised players-only meeting after Man Utd loss**\
 `Liverpool responded to that 2-1 home defeat with a 5-1 victory at Eintracht Frankfurt on Wednesday night.`\
 https://nytimes.com/athletic/6742851/2025/10/23/liverpool-meeting-van-dijk/
-
-**Ravens' season began with Super Bowl aspirations. Now it's reached the desperation stage**\
-`Baltimore needs to defeat Chicago on Sunday to harbor any realistic hopes of turning this season around.`\
-https://nytimes.com/athletic/6741476/2025/10/23/ravens-season-desperation-stage-bears/
-
-**4 Members of Illinois Politician’s Family Are Killed in Helicopter Crash**\
-`Darren Bailey, a Republican candidate for governor, lost his son, daughter-in-law and two grandchildren, ages 12 and 7, in a helicopter accident in Montana, his campaign said.`\
-https://nytimes.com/2025/10/23/us/politics/darren-bailey-family-helicopter-crash-montana.html
-
-**Mets' free-agent outlook: Analyzing the market for closer Edwin Díaz**\
-`Díaz is pretty clearly the best closer on the free-agent market.`\
-https://nytimes.com/athletic/6741799/2025/10/23/mets-free-agent-edwin-diaz-market/
 
