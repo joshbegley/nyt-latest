@@ -1,5 +1,5 @@
-**Billups' next court date set for Nov. 24**\
-`Portland Trail Blazers head coach Chauncey Billups was released Thursday after appearing before Judge Jolie Russo in U.S. District...`\
+**Blazers coach Chauncey Billups released after arrest in federal betting probe**\
+`Billups agreed to reappear in Eastern District Court in New York on Nov. 24. `\
 https://nytimes.com/athletic/6745258/2025/10/23/chauncey-billups-arrest-gambling-nba-released/
 
 **U.S. B-1 Bombers Flew Near Venezuelan Air Space**\
