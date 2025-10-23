@@ -1,40 +1,40 @@
+**Musk’s Trillion-Dollar Pitch**\
+`Despite a drop in Tesla profit, the billionaire exhorted investors to back his proposed compensation package, or face consequences.`\
+https://nytimes.com/2025/10/23/business/dealbook/musk-tesla-pay-package.html
+
+**'Man, this is pretty cool': First father-son duo to call World Series on national TV, radio**\
+`Canada's first World Series since 1993 is a family affair for Dan and Ben Shulman, on the Blue Jays' call for TV and radio.`\
+https://nytimes.com/athletic/6741179/2025/10/23/dan-shulman-ben-toronto-blue-jays-world-series/
+
+**The Blue Jays and Dodgers that we'd like to see with a first championship ring**\
+`There are a bunch of worthy champs going for their first World Series wins ... yes, even a few Dodgers.`\
+https://nytimes.com/athletic/6738535/2025/10/23/blue-jays-dodgers-world-series-vlady-guerrero-blake-snell-how-to-watch/
+
+**How Alejandro Zendejas found his way to América's spotlight – and USMNT's World Cup radar**\
+`The Club América attacker has not taken the cleanest or most direct path to stardom, but he's still firmly in frame for club and country`\
+https://nytimes.com/athletic/6740704/2025/10/23/alejandro-zendejas-club-america-usmnt-world-cup-mexico/
+
+**The Chargers' 2 biggest issues and how they can go about fixing them**\
+`The Chargers are allowing too many explosive plays on defense and allowing Justin Herbert to be pressured way too often. `\
+https://nytimes.com/athletic/6741012/2025/10/23/chargers-biggest-issues-solutions-vikings-tnf/
+
+**From rinks in Toronto to pubs in Vancouver, the Blue Jays are uniting Canadians**\
+`Canadians at The Athletic told us that communities nationwide are setting aside hockey rivalries and old Expos wounds to back the Jays.`\
+https://nytimes.com/athletic/6737589/2025/10/23/blue-jays-world-series-canadas-team-2025/
+
+**Jets will face decisions on forward lines, defence pairings when key players come back**\
+`How do the Jets (5-1-0) integrate three key players who are expected to join the team within a few weeks?`\
+https://nytimes.com/athletic/6740737/2025/10/23/projecting-jets-lineup-lowry-samberg-perfetti/
+
+**Notre Dame midseason superlatives: Bad omens, second-half MVPs and the path to 10-2**\
+`The Irish appear to be on a smooth road to the College Football Playoff, again closing on a 10-game win streak.`\
+https://nytimes.com/athletic/6741456/2025/10/23/notre-dame-midseason-superlatives/
+
+**The Broncos are the NFL's most penalized team. Can they fix the problem?**\
+`No phase of Denver's operation has been immune to flags, an issue the Broncos must clean up if they want to hold onto their AFC West lead.`\
+https://nytimes.com/athletic/6740981/2025/10/23/broncos-penalties-sean-payton/
+
 **Aging Bull? Nikola Vučević rages on in opening night win against the Pistons**\
 `Vučević's age and style of play don't seem to mesh with Chicago is trying to do. Unless he plays like he did Wednesday.`\
 https://nytimes.com/athletic/6742549/2025/10/23/nikola-vucevic-bulls-season-opener-win/
-
-**'He was amazing': V.J. Edgecombe makes history to give 76ers hope**\
-`When the lottery balls fell Philadelphia's way and they were able to draft Edgecombe, a night like Wednesday night was the vision.`\
-https://nytimes.com/athletic/6742245/2025/10/23/vj-edgecombe-76ers-nba-debut/
-
-**The Pulse: It’s Wemby’s world**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6740647/2025/10/23/victor-wembanyama-spurs-mavericks-the-pulse/
-
-**Barcelona's Clasico problems: The big issues building up to Real Madrid trip**\
-`Barcelona are braced for Sunday's visit to bitter rivals Real Madrid, and it's hard to see them as favourites`\
-https://nytimes.com/athletic/6742837/2025/10/23/barcelona-clasico-real-madrid-problems-flick/
-
-**Should Rams trade for a cornerback? Quentin Lake extension coming? Mailbag**\
-`We answer questions about the Rams' cornerback situation, the offense's success in different personnel packages and more.`\
-https://nytimes.com/athletic/6741209/2025/10/23/rams-mailbag-cornerback-trade-quentin-lake/
-
-**Cyclist Sehili freed by Russian court after detention during world record attempt**\
-`Sehili had been embarking on an attempted world record ride across Eurasia when he was detained on September 4, 2025`\
-https://nytimes.com/athletic/6742888/2025/10/23/cycling-sofiane-sehili-russia-world-record/
-
-**The Abdication of Congress**\
-`We explain what elected officials aren’t doing during the government shutdown.`\
-https://nytimes.com/2025/10/23/briefing/the-abdication-of-congress.html
-
-**Being traded in the NBA can be disorienting. Cam Johnson is leaning on lessons in resilience**\
-`And no one preached resilience as much as Johnson's grandmother, whose pearls of wisdom continue to guide him as he settles in Denver.`\
-https://nytimes.com/athletic/6738797/2025/10/23/cam-johnson-denver-nuggets-transition/
-
-**Cooper Flagg's debut (at guard!) falls flat as Mavericks struggle against Spurs**\
-`Flagg was just one of the many Dallas players who had a hard time getting anything going in the season opener.`\
-https://nytimes.com/athletic/6742550/2025/10/23/cooper-flagg-mavericks-opening-night-loss/
-
-**Broadway Averts Strike as Musicians Reach Deal With Producers, Union Says**\
-`The tentative agreement, which still requires ratification by union members, comes five days after a similar agreement with actors and stage managers.`\
-https://nytimes.com/2025/10/23/theater/broadway-strike-union-deal.html
 
