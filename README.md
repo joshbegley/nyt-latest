@@ -1,10 +1,18 @@
+**Marathon record-holder Chepngetich gets doping ban after 'taking housemaid's medication'**\
+`The Athletics Integrity Unit confirmed the ban, stating Chepngetich had admitted to the violations and accepted the sanction.`\
+https://nytimes.com/athletic/6743419/2025/10/23/ruth-chepngetich-doping-ban/
+
+**Dave Ball, Soft Cell Musician Known for ‘Tainted Love,’ Dies at 66**\
+`He was a producer and one half of the pioneering English synth-pop duo.`\
+https://nytimes.com/2025/10/23/arts/music/soft-cell-david-ball-dead.html
+
 **Chiefs' Patrick Mahomes is the NFL MVP favorite. Here's where he thinks he's improved**\
 `After watching film of himself in the offseason, Mahomes is trying not to overthink things this season, and the Chiefs are benefiting.`\
 https://nytimes.com/athletic/6740978/2025/10/23/chiefs-patrick-mahomes-nfl-mvp-favorite/
 
 **Rockwells of the White House, Where They Long Resided, Head to Auction**\
 `The drawings, by Norman Rockwell, of visitors looking to speak with the president, once hung near the Oval Office.`\
-https://nytimes.com/2025/10/23/arts/rockwells-of-the-white-house-where-they-long-resided-head-to-auction.html
+https://nytimes.com/2025/10/23/arts/white-house-rockwell-drawings-auction.html
 
 **I’m a Cake Person Now. Join Me!**\
 `Let Samantha Seneviratne be your guide to baking the best cakes of your life.`\
@@ -29,12 +37,4 @@ https://nytimes.com/video/podcasts/100000010447239/sean-diddy-combs-verdict-cann
 **The Closet in Pee-wee’s Playhouse**\
 `Wesley Morris talks with the writer Mark Harris about the new HBO documentary “Pee-wee as Himself.”`\
 https://nytimes.com/video/podcasts/100000010447338/pee-wee-herman-cannonball-wesley-morris.html
-
-**Why Canucks should be willing to overpay in trade for short-term centre help**\
-`The Canucks' needs at centre are dire enough to demand an unusual level of aggression this early in the season.`\
-https://nytimes.com/athletic/6742444/2025/10/23/vancouver-canucks-trade-centres-injuries/
-
-**Has Dining Gotten Too Fine on ‘The Bear’?**\
-`Samin Nosrat, a chef and food writer, joins Wesley Morris to talk about cooking and the latest season of “The Bear.”`\
-https://nytimes.com/video/podcasts/100000010447207/has-dining-gotten-too-fine-on-the-bear.html
 
