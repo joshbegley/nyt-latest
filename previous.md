@@ -1,3 +1,11 @@
+**Oprah Leads the Charge at Misty Copeland’s Farewell**\
+`The trailblazing ballerina returned to the stage after five years for one final performance at a gala for American Ballet Theater.`\
+https://nytimes.com/2025/10/23/style/misty-copeland-retirement-oprah.html
+
+**Trump Supporters Are Uneasy About Military Actions Against Venezuela**\
+`Some conservative policy advisers and commentators, including Laura Loomer and Stephen K. Bannon, are raising questions about the administration’s policy in the region.`\
+https://nytimes.com/2025/10/23/us/politics/trump-supporters-venezuela.html
+
 **How the U.S. Is Working to Shore Up the Gaza Cease-Fire**\
 `Vice President JD Vance went to Israel to try to shore up a fragile cease-fire between Israel and Hamas. Tyler Pager, a White House correspondent at The New York Times, describes Mr. Vance’s visit.`\
 https://nytimes.com/video/us/politics/100000010474113/how-the-us-is-working-to-shore-up-the-gaza-cease-fire.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/23/business/volkswagen-chips-china-nexperia.html
 **NBA gambling investigation: 3 takeaways from the indictments**\
 `"This is the insider trading saga for the NBA," FBI director Kash Patel said Thursday.`\
 https://nytimes.com/athletic/6743912/2025/10/23/nba-betting-investigation-fbi-illegal-gambling/
-
-**Bay Area Protesters Try to Block Base Entrance Before Immigration Operation**\
-`About 200 people stood in an intersection outside the Coast Guard base in Alameda, Calif., where federal agents were said to be arriving to prepare for an immigration enforcement operation.`\
-https://nytimes.com/2025/10/23/us/san-francisco-bay-area-protesters.html
-
-**A day in the life of Erling Haaland: red light therapy, raw milk and hunks of steak**\
-`The Manchester City star has launched a YouTube channel and the first episode is a glimpse into his daily recovery and wellness routine`\
-https://nytimes.com/athletic/6742748/2025/10/23/erling-haaland-life-diet/
 
