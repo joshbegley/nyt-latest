@@ -1,3 +1,11 @@
+**Could international flavor of World Series lead to record global viewership?**\
+`The projected World Series rosters for the Dodgers and Blue Jays would feature 13 players from eight nations and territories.`\
+https://nytimes.com/athletic/6742212/2025/10/23/world-series-global-viewership-records-2025/
+
+**Man Utd beat Liverpool. That's great - but Saturday may reveal more about their progress**\
+`Ruben Amorim is likely to learn more from his side's clash with bogey side Brighton than the fine win at Anfield`\
+https://nytimes.com/athletic/6739924/2025/10/23/man-utd-brighton-team/
+
 **Riccardo Calafiori and controlled chaos theory**\
 `The Italian is in undroppable form – sometimes reminiscent of a galloping horse going forward, he brings unpredictability to attacks`\
 https://nytimes.com/athletic/6732980/2025/10/23/ricciardo-calafiori-and-controlled-chaos-theory/
