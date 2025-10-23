@@ -1,3 +1,27 @@
+**Eric Adams Will Endorse Andrew Cuomo for Mayor**\
+`In a stunning reversal, Mayor Eric Adams will endorse former Gov. Andrew M. Cuomo for mayor, in hopes of slowing the momentum of Zohran Mamdani, the Democratic nominee.`\
+https://nytimes.com/2025/10/23/nyregion/adams-endorse-cuomo-nyc-mayor.html
+
+**Hurricanes reunite with Rantanen and Necas: Did anyone win the trades?**\
+`Carolina plays Colorado and Dallas this week, so let's revisit the deals that helped reshape three contending teams.`\
+https://nytimes.com/athletic/6742278/2025/10/23/hurricanes-stars-avalanche-rantanen/
+
+**She Made Sure That Tsunami Warnings Reached the Public**\
+`“I always wanted to be a public servant and do science for the good of the people,” said Corina Allen, who lost her job at NOAA.`\
+https://nytimes.com/2025/10/23/climate/tsunami-warnings-alerts-noaa.html
+
+**Don’t Let the Vampires In**\
+`The writer Rembert Browne joins Wesley Morris to talk about Ryan Coogler’s vampire movie “Sinners.”`\
+https://nytimes.com/video/podcasts/100000010462823/sinners-movie-ryan-coogler-cannonball.html
+
+**Beyoncé Isn’t Giving Up on America**\
+`Salamishah Tillet, a Times contributing critic and a professor who teaches about Beyoncé, joins Wesley Morris to talk about her latest tour.`\
+https://nytimes.com/video/podcasts/100000010447514/beyonce-live-cowboy-carter.html
+
+**Fantasy football injuries, inactives, cheat sheet Week 8**\
+`Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 8 player rankings and more.`\
+https://nytimes.com/athletic/6740610/2025/10/23/fantasy-football-injuries-inactives-cheat-sheet-week-8/
+
 **‘And Just Like That …’ Is Over Too Soon**\
 `The writer Taffy Brodesser-Akner joins Wesley Morris to talk about the end of the “Sex and the City” reboot.`\
 https://nytimes.com/video/podcasts/100000010452822/and-just-like-that-sex-in-the-city-cannonball.html
@@ -13,28 +37,4 @@ https://nytimes.com/video/podcasts/100000010447437/the-summer-movies-that-made-u
 **When Republicans Go Low …**\
 `What’s the smart move for Democrats in this political moment? On “The Opinions,” the columnist David Brooks says he thinks the party should channel Michelle Obama and “go high.”`\
 https://nytimes.com/video/opinion/100000010473977/when-republicans-go-low.html
-
-**The ‘No Kings’ Movement Is Missing Something Big**\
-`The Opinion columnist David Brooks, a center-right thinker, feels as if there’s room for him in the “No Kings” movement.`\
-https://nytimes.com/video/opinion/100000010473971/the-no-kings-movement-is-missing-something-big.html
-
-**The V.M.A.s Are This Weekend. Does Anybody Care?**\
-`Niela Orr, a culture critic, joins Wesley Morris to talk about the heyday of MTV and how people watch music videos now.`\
-https://nytimes.com/video/podcasts/100000010447104/the-vmas-are-this-weekend-does-anybody-care.html
-
-**Nikole Hannah-Jones Knows Why History Feels Dangerous**\
-`The creator of The 1619 Project joins Wesley Morris to talk about her work and the political climate in 2025.`\
-https://nytimes.com/video/podcasts/100000010446810/nikole-hannah-jones-knows-why-history-feels-dangerous.html
-
-**A Mind-Blowing Adventure With a Walking Lighthouse**\
-`The puzzle game Keeper, from the studio behind Psychonauts, also features a transmogrifying bird and surreal landscapes.`\
-https://nytimes.com/2025/10/23/arts/keeper-review.html
-
-**These Ceramics Have Teeth**\
-`Plus: a new lodge in Rwanda’s savanna, an installation by Helen Marten and more recommendations from T Magazine.`\
-https://nytimes.com/2025/10/23/t-magazine/these-ceramics-have-teeth.html
-
-**Anthony Edwards saves the day in Timberwolves' season opener against Trail Blazers**\
-`The Blazers seemed hellbent on disrupting the Minnesota offense, but Edwards was a steadying force late for the Timberwolves.`\
-https://nytimes.com/athletic/6741828/2025/10/23/anthony-edwards-timberwolves-season-opener/
 
