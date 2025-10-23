@@ -1,3 +1,7 @@
+**2025 MLS Cup playoff bracket set after wild card round**\
+`With Chicago and Portland taking care of business, MLS's 2025 playoff bracket is complete. Here's the full schedule and road to MLS Cup`\
+https://nytimes.com/athletic/6740291/2025/10/23/mls-cup-2025-playoff-bracket-full-postseason-schedule-updated-results/
+
 **Could international flavor of World Series lead to record global viewership?**\
 `The projected World Series rosters for the Dodgers and Blue Jays would feature 13 players from eight nations and territories.`\
 https://nytimes.com/athletic/6742212/2025/10/23/world-series-global-viewership-records-2025/

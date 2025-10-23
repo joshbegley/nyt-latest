@@ -1,3 +1,7 @@
+**2025 MLS Cup playoff bracket set after wild card round**\
+`With Chicago and Portland taking care of business, MLS's 2025 playoff bracket is complete. Here's the full schedule and road to MLS Cup`\
+https://nytimes.com/athletic/6740291/2025/10/23/mls-cup-2025-playoff-bracket-full-postseason-schedule-updated-results/
+
 **Could international flavor of World Series lead to record global viewership?**\
 `The projected World Series rosters for the Dodgers and Blue Jays would feature 13 players from eight nations and territories.`\
 https://nytimes.com/athletic/6742212/2025/10/23/world-series-global-viewership-records-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6741016/2025/10/23/la-liga-barcelona-villarreal-mia
 **The Alternative Premier League: No 9 – Who creates big chances, and who misses them?**\
 `Here's how your team is getting on when it comes to creating clear cut opportunities, and sticking them in the back of the net`\
 https://nytimes.com/athletic/6739481/2025/10/23/the-alternative-premier-league-no-9-who-creates-big-chances-and-who-misses-them/
-
-**Five players who caught the eye at the Under-20 World Cup:**\
-`Some of the world's biggest names have shone at Under-20 World Cups. Thom Harris picks out five that shone in Chile this year`\
-https://nytimes.com/athletic/6739530/2025/10/23/under-20-world-cup-mora-cremaschi-zabiri-delgado-garcia/
 
