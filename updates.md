@@ -1,3 +1,15 @@
+**Trump Pardons Founder of the Crypto Exchange Binance**\
+`Changpeng Zhao, the richest man in crypto, admitted to money-laundering violations that allowed terrorists and other criminals to move money on Binance.`\
+https://nytimes.com/2025/10/23/technology/trump-pardons-cz-binance.html
+
+**How Kyle Shanahan has kept the 49ers together in what might be his best coaching job yet**\
+`Long known as a great schemer, Shanahan has pressed all the right buttons elsewhere, helping his team overcome a mountain of injuries.`\
+https://nytimes.com/athletic/6743516/2025/10/23/kyle-shanahan-49ers-coach-of-the-year/
+
+**USMNT's Robinson out for Fulham's Premier League game at Newcastle**\
+`Robinson has made just three league appearances for Fulham so far this season — each of them as a substitute — due to a knee injury.`\
+https://nytimes.com/athletic/6743528/2025/10/23/usmnt-robinson-fulham-injury-update/
+
 **Virginia Democrats Plan to Redraw House Maps in Redistricting Push**\
 `The surprise move could give Democrats two or three additional House seats and is likely to scramble the last couple weeks of campaigning ahead of the Nov. 4 election.`\
 https://nytimes.com/2025/10/23/us/politics/virginia-democrats-redistrict.html
