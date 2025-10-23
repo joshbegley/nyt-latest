@@ -1,3 +1,7 @@
+**Cyclist Sehili freed by Russian court after detention during world record attempt**\
+`Sehili had been embarking on an attempted world record ride across Eurasia when he was detained on September 4, 2025`\
+https://nytimes.com/athletic/6742888/2025/10/23/cycling-sofiane-sehili-russia-world-record/
+
 **The Abdication of Congress**\
 `We explain what elected officials aren’t doing during the government shutdown.`\
 https://nytimes.com/2025/10/23/briefing/the-abdication-of-congress.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6741799/2025/10/23/mets-free-agent-edwin-diaz-marke
 **How quarterback play has impacted the College Football Playoff race**\
 `It's hard to win big without elite QB play, so it's no surprise that most teams fighting for spots in the CFP have a star under center.`\
 https://nytimes.com/athletic/6740715/2025/10/23/quarterback-college-football-playoff-contenders-alabama-ohio-state/
-
-**Bam! Why counter-attack goals are football's most thrilling spectacle**\
-`A Champions League goal-fest underlined why there is nothing more beautifully brilliant than scoring on the break`\
-https://nytimes.com/athletic/6741635/2025/10/23/bam-why-counter-attack-goals-are-footballs-most-thrilling-spectacle/
 
