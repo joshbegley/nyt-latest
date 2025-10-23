@@ -1,3 +1,15 @@
+**Ranchers Say Trump’s Plan to Lower Beef Prices Is ‘Misguided’**\
+`The president wants to increase the amount of Argentine beef imports, infuriating cattle country, which is finally profitable after years of struggle.`\
+https://nytimes.com/2025/10/23/business/ranchers-trump-anger-trumps-plan-lower-beef-prices.html
+
+**‘Brother Wang,’ Accused of Being Drug Cartel Fixer, Is Arrested in Cuba**\
+`Zhi Dong Zhang, who escaped house arrest in Mexico this summer, is accused of supplying cartels with fentanyl from China, smuggling and money laundering millions under the alias “Brother Wang.”`\
+https://nytimes.com/2025/10/23/world/americas/cuba-chinese-man-mexico-drugs.html
+
+**Vanderbilt kickers host clinic to prepare students for 'College GameDay'**\
+`Vanderbilt players are making sure fellow students are well-prepared for the challenge this week.`\
+https://nytimes.com/athletic/6744062/2025/10/23/vanderbilt-kicking-clinic-college-gameday/
+
 **nyc-mayor**\
 ``\
 https://nytimes.com/panel/live/nyc-mayor
