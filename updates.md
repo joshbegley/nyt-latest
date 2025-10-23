@@ -1,3 +1,11 @@
+**“You sent seniors to their deaths in nursing homes.”**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/fact-check-nursing-homes
+
+**Queens Tenants Were Urged to Report Immigrants to ICE, Officials Say**\
+`A sign posted in the lobby of an apartment building listed “immigration” alongside crimes it said should be reported to a tip line, state officials said.`\
+https://nytimes.com/2025/10/22/nyregion/queens-landlord-ice-reports-immigrants.html
+
 **“You had the worst attendance record in the Assembly.”**\
 `By Benjamin Oreskes`\
 https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/you-had-the-worst-attendance-record-in-the-assembly

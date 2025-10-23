@@ -1,3 +1,11 @@
+**“You sent seniors to their deaths in nursing homes.”**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/fact-check-nursing-homes
+
+**Queens Tenants Were Urged to Report Immigrants to ICE, Officials Say**\
+`A sign posted in the lobby of an apartment building listed “immigration” alongside crimes it said should be reported to a tip line, state officials said.`\
+https://nytimes.com/2025/10/22/nyregion/queens-landlord-ice-reports-immigrants.html
+
 **“You had the worst attendance record in the Assembly.”**\
 `By Benjamin Oreskes`\
 https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/you-had-the-worst-attendance-record-in-the-assembly
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6741524/2025/10/22/inside-the-nba-espn-charles-bark
 **“He doesn’t control the rent guidelines board. So nothing is going to happen.”**\
 `By Benjamin Oreskes`\
 https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/he-doesnt-control-the-rent-guidelines-board-so-nothing-is-going-to-happen
-
-**Senator Merkley Rings ‘the Alarm Bells’ on Authoritarianism in Nearly 23-Hour Speech**\
-`The Oregon Democrat achieved a goal of topping the previous longest speech by a senator from his state.`\
-https://nytimes.com/2025/10/22/us/politics/senator-merkley-speech-trump.html
-
-**“You could turn on TV any day of the week and you will hear Donald Trump share that his pick for mayor is Andrew Cuomo. And he wants Andrew Cuomo to be the mayor.”**\
-`By Benjamin Oreskes`\
-https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/you-could-turn-on-tv-any-day-of-the-week-and-you-will-hear-donald-trump-share-that-his-pick-for-mayor-is-andrew-cuomo-and-he-wan
 

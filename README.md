@@ -1,3 +1,7 @@
+**Cuomo and Mamdani Clash, Again, on Jewish Safety**\
+`Andrew Cuomo attacked Zohran Mamdani after 650 rabbis said Mr. Mamdani’s election would threaten Jews’ safety. Mr. Mamdani said he was being criticized because he could become the city’s first Muslim mayor.`\
+https://nytimes.com/2025/10/22/nyregion/mamdani-rabbis-letter-israel.html
+
 **“You sent seniors to their deaths in nursing homes.”**\
 `By Benjamin Oreskes`\
 https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/fact-check-nursing-homes
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/22/us/politics/trump-sanctions-russia-ukraine.html
 **The debut of 'Inside the NBA' on ESPN: New network, same showmanship**\
 `The legendary show felt exactly the same on its new network. And our columnists say that is exactly the point.`\
 https://nytimes.com/athletic/6741524/2025/10/22/inside-the-nba-espn-charles-barkley-popeyes-ro/
-
-**“He doesn’t control the rent guidelines board. So nothing is going to happen.”**\
-`By Benjamin Oreskes`\
-https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/he-doesnt-control-the-rent-guidelines-board-so-nothing-is-going-to-happen
 
