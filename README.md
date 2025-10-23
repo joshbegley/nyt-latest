@@ -1,3 +1,11 @@
+**‘Springsteen: Deliver Me From Nowhere’ Review: The Boss in the Void**\
+`Jeremy Allen White plays the singer-songwriter in an affecting drama about the making of his 1982 album “Nebraska” when he slipped into a terrible darkness.`\
+https://nytimes.com/2025/10/23/movies/springsteen-deliver-me-from-nowhere-review.html
+
+**Arsenal reach agreement with Dowman to sign scholarship terms**\
+`A professional contract is expected to follow when Dowman turns 17.`\
+https://nytimes.com/athletic/6743995/2025/10/23/max-dowman-arsenal-contract/
+
 **Volkswagen Says Loss of Chip Supply Could Hit Production**\
 `After China stopped deliveries of Nexperia’s chips over a dispute with the Dutch government, German carmakers are worried about supply shortages.`\
 https://nytimes.com/2025/10/23/business/volkswagen-chips-china-nexperia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/23/learning/a-fortuneteller-a-chaotic-dinner-and-a-c
 **International Security Force Will Disarm Hamas, Says Vance**\
 `Speaking from Israel, Vice President JD Vance addressed the delicate issue of disarming Hamas. He said the effort would be led by an international security force, the composition of which is yet to be determined.`\
 https://nytimes.com/video/world/middleeast/100000010476535/international-security-force-disarm-hamas-vance.html
-
-**U.S. Health Workers Recalled From Shutdown Furlough for Medicare, A.C.A. Enrollments**\
-`An estimated 3,000 employees seem to be affected. The federal agency said the return to work would occur Monday, with the costs paid by user fees collected from researchers.`\
-https://nytimes.com/2025/10/23/health/medicare-obamacre-federal-workers-furlough-shutdown.html
-
-**2026 Tour de France route analysis - Mont Ventoux for the women, Alpe d’Huez (twice) for the men**\
-`Next year's races will begin in Spain and Switzerland respectively, with fresh twists and some old favorites along the way`\
-https://nytimes.com/athletic/6743267/2025/10/23/2026-tour-de-france-route-analysis/
 
