@@ -1,3 +1,11 @@
+**How to watch Commanders vs. Chiefs: Time, TV, streaming**\
+`Find out how to watch the Washington Commanders play the Kansas City Chiefs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6742528/2025/10/23/commanders-vs-chiefs-stream-how-to-watch-oct-27/
+
+**Liverpool confront the unthinkable: Does Salah merit a place in their best XI?**\
+`The Egyptian's record is virtually unsurpassed but Liverpool thrived in his absence at Eintracht Frankfurt `\
+https://nytimes.com/athletic/6740732/2025/10/23/mohamed-salah-liverpool-dropped-team/
+
 **Danny Higginbotham was afraid to fly. Then he tried hypnosis**\
 `As a defender in the English Premier League for 12 years, Higginbotham rarely had to fly. Only later did it become a big problem.`\
 https://nytimes.com/athletic/6741059/2025/10/23/danny-higginbotham-premier-league-hypnosis-flying/
