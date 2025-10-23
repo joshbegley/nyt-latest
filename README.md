@@ -1,3 +1,7 @@
+**Americans Have Lost Billions to Online Scams. How Is That Possible?**\
+`The U.S., Britain and South Korea have joined a crackdown on groups running frauds from Southeast Asia. They have their work cut out.`\
+https://nytimes.com/2025/10/23/world/asia/scam-centers-myanmar-cambodia.html
+
 **How to watch Commanders vs. Chiefs: Time, TV, streaming**\
 `Find out how to watch the Washington Commanders play the Kansas City Chiefs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6742528/2025/10/23/commanders-vs-chiefs-stream-how-to-watch-oct-27/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/10/23/todays-new-york-times
 **Liverpool confront the unthinkable: Does Salah merit a place in their best XI?**\
 `The Egyptian's record is virtually unsurpassed but Liverpool thrived in his absence at Eintracht Frankfurt `\
 https://nytimes.com/athletic/6740732/2025/10/23/mohamed-salah-liverpool-dropped-team/
-
-**2025 MLS Cup playoff bracket set after wild card round**\
-`With Chicago and Portland taking care of business, MLS's 2025 playoff bracket is complete. Here's the full schedule and road to MLS Cup`\
-https://nytimes.com/athletic/6740291/2025/10/23/mls-cup-2025-playoff-bracket-full-postseason-schedule-updated-results/
 
