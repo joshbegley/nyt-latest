@@ -1,3 +1,15 @@
+**Trump Officials Shoot Down Israeli Aspirations of Annexing West Bank Land**\
+`Vice President JD Vance calls symbolic votes in Israel’s Parliament to annex West Bank territory a “very stupid political stunt.”`\
+https://nytimes.com/2025/10/23/world/middleeast/trump-officials-shoot-down-israeli-aspirations-of-annexing-west-bank-land.html
+
+**Here’s How the Poker Scheme Worked, According to Prosecutors**\
+`The players cheated with sophisticated technology, and those who lost faced the threat of violence and extortion.`\
+https://nytimes.com/2025/10/23/nyregion/illegal-poker-games.html
+
+**Chiefs provide encouraging update on left tackle Josh Simmons**\
+`Andy Reid said Simmons is "taking care of family" and in communication with the team. The rookie could return at some point this season.`\
+https://nytimes.com/athletic/6744270/2025/10/23/chiefs-josh-simmons-absence-update/
+
 **Two New Dinosaur Fossils Emerge From the ‘Mummy Zone’**\
 `A pair of Edmontosaurus specimens found in a Wyoming dig help researchers to understand the process that led them to be mummified.`\
 https://nytimes.com/2025/10/23/science/dinosaur-mummies-wyoming.html

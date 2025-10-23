@@ -1,6 +1,10 @@
+**Bengals QB Joe Flacco is like any other parent desperate for alone time**\
+`As a father of five, Flacco has a new appreciation for 'party of one.'`\
+https://nytimes.com/athletic/6744200/2025/10/23/cincinnati-bengals-qb-joe-flacco-alone-time/
+
 **Trump Officials Shoot Down Israeli Aspirations of Annexing West Bank Land**\
 `Vice President JD Vance calls symbolic votes in Israel’s Parliament to annex West Bank territory a “very stupid political stunt.”`\
-https://nytimes.com/2025/10/23/world/middleeast/trump-officials-shoot-down-israeli-aspirations-of-annexing-west-bank-land.html
+https://nytimes.com/2025/10/23/world/middleeast/trump-israel-west-bank-annexation.html
 
 **Here’s How the Poker Scheme Worked, According to Prosecutors**\
 `The players cheated with sophisticated technology, and those who lost faced the threat of violence and extortion.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/23/world/americas/cuba-chinese-man-mexico-drugs.html
 **Vanderbilt kickers host clinic to prepare students for 'College GameDay'**\
 `Vanderbilt players are making sure fellow students are well-prepared for the challenge this week.`\
 https://nytimes.com/athletic/6744062/2025/10/23/vanderbilt-kicking-clinic-college-gameday/
-
-**nyc-mayor**\
-``\
-https://nytimes.com/panel/live/nyc-mayor
 
