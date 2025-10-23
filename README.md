@@ -26,7 +26,7 @@ https://nytimes.com/video/podcasts/100000010469470/the-top-three-scary-movies.ht
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/23/todays-new-york-times
 
-**Liverpool confront the unthinkable: does Salah merit a place in their best XI?**\
+**Liverpool confront the unthinkable: Does Salah merit a place in their best XI?**\
 `The Egyptian's record is virtually unsurpassed but Liverpool thrived in his absence at Eintracht Frankfurt `\
 https://nytimes.com/athletic/6740732/2025/10/23/mohamed-salah-liverpool-dropped-team/
 

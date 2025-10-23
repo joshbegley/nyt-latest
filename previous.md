@@ -1,3 +1,11 @@
+**Danny Higginbotham was afraid to fly. Then he tried hypnosis**\
+`As a defender in the English Premier League for 12 years, Higginbotham rarely had to fly. Only later did it become a big problem.`\
+https://nytimes.com/athletic/6741059/2025/10/23/danny-higginbotham-premier-league-hypnosis-flying/
+
+**Word of the Day: stentorian**\
+`This word has appeared in seven articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/23/learning/word-of-the-day-stentorian.html
+
 **How Europe Is Trying to Turn Frozen Russian Assets Into Cash for Ukraine**\
 `European Union officials could reach a political agreement as soon as Thursday on a plan for a huge loan to Ukraine backed by Kremlin money frozen in a Belgian financial institution.`\
 https://nytimes.com/2025/10/23/world/europe/russia-frozen-assets-european-union.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6740291/2025/10/23/mls-cup-2025-playoff-bracket-ful
 **Could international flavor of World Series lead to record global viewership?**\
 `The projected World Series rosters for the Dodgers and Blue Jays would feature 13 players from eight nations and territories.`\
 https://nytimes.com/athletic/6742212/2025/10/23/world-series-global-viewership-records-2025/
-
-**Man Utd beat Liverpool. That's great - but Saturday may reveal more about their progress**\
-`Ruben Amorim is likely to learn more from his side's clash with bogey side Brighton than the fine win at Anfield`\
-https://nytimes.com/athletic/6739924/2025/10/23/man-utd-brighton-team/
-
-**Riccardo Calafiori and controlled chaos theory**\
-`The Italian is in undroppable form – sometimes reminiscent of a galloping horse going forward, he brings unpredictability to attacks`\
-https://nytimes.com/athletic/6732980/2025/10/23/ricciardo-calafiori-and-controlled-chaos-theory/
 
