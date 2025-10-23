@@ -1,5 +1,5 @@
-**76ers' V.J. Edgecombe's 34 points are third-most in NBA debut**\
-`Edgecombe and Maxey helped offset a four-point, six-rebound performance from Sixers center Joel Embiid.`\
+**76ers' V.J. Edgecombe's 34 points are third-most for an NBA debut**\
+`Edgecombe and Maxey helped offset a four-point, six-rebound performance from Joel Embiid in Philadelphia's 117-116 win over the Celtics.`\
 https://nytimes.com/athletic/6742077/2025/10/22/v-j-edgecombe-76ers-record/
 
 **Pelosi Says Police May Arrest Federal Agents Who Violate California Law**\

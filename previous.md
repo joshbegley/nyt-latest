@@ -1,8 +1,16 @@
+**76ers' V.J. Edgecombe's 34 points are third-most in NBA debut**\
+`Edgecombe and Maxey helped offset a four-point, six-rebound performance from Sixers center Joel Embiid.`\
+https://nytimes.com/athletic/6742077/2025/10/22/v-j-edgecombe-76ers-record/
+
+**Pelosi Says Police May Arrest Federal Agents Who Violate California Law**\
+`The San Francisco district attorney said in an interview that she came up with the strategy after seeing federal agents repeatedly roughing up people in Los Angeles and Chicago.`\
+https://nytimes.com/2025/10/22/us/politics/nancy-pelosi-ice-agent-arrest.html
+
 **Canadiens-Flames game plays on despite lighting issue at Scotiabank Saddledome**\
 `Both teams agreed to play with only secondary lighting before the main lights returned shortly into the first period.`\
 https://nytimes.com/athletic/6742011/2025/10/22/nhl-flames-canadiens-lighting-issue-saddledome/
 
-**From the Roosevelts to the Kennedys: A Look at the White House East Wing Trump Is Demolishing**\
+**From the Roosevelts to the Kennedys: A Look Back at the White House East Wing**\
 `The East Wing has been a base for the first lady, an entryway for social functions and an emergency bunker.`\
 https://nytimes.com/2025/10/22/us/politics/east-wing-white-house.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/10/22/climate/china-us-nuclear-energy-race.
 **Fact-Checking the Second New York Mayoral Debate**\
 `Andrew Cuomo and Curtis Sliwa challenged the front-runner Zohran Mamdani on experience, affordability and policy days before early voting begins.`\
 https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate-fact-check
-
-**“As a state Assembly member, I won the first free buses in New York City’s history.”**\
-`By Benjamin Oreskes`\
-https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate-fact-check/nyc-mayor-debate-fact-check-transit
-
-**College golfer aces same hole twice in one day: 'I was in denial' over feat**\
-`Many golfers dream of making just one hole-in-one, but Sewanee sophomore Niel Phillips found magic twice at the Chick-fil-A Invitational.`\
-https://nytimes.com/athletic/6738748/2025/10/22/2-holes-in-one-same-day-college-golfer/
 

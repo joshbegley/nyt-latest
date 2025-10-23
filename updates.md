@@ -1,3 +1,15 @@
+**76ers' V.J. Edgecombe's 34 points are third-most in NBA debut**\
+`Edgecombe and Maxey helped offset a four-point, six-rebound performance from Sixers center Joel Embiid.`\
+https://nytimes.com/athletic/6742077/2025/10/22/v-j-edgecombe-76ers-record/
+
+**Pelosi Says Police May Arrest Federal Agents Who Violate California Law**\
+`The San Francisco district attorney said in an interview that she came up with the strategy after seeing federal agents repeatedly roughing up people in Los Angeles and Chicago.`\
+https://nytimes.com/2025/10/22/us/politics/nancy-pelosi-ice-agent-arrest.html
+
+**From the Roosevelts to the Kennedys: A Look Back at the White House East Wing**\
+`The East Wing has been a base for the first lady, an entryway for social functions and an emergency bunker.`\
+https://nytimes.com/2025/10/22/us/politics/east-wing-white-house.html
+
 **Canadiens-Flames game plays on despite lighting issue at Scotiabank Saddledome**\
 `Both teams agreed to play with only secondary lighting before the main lights returned shortly into the first period.`\
 https://nytimes.com/athletic/6742011/2025/10/22/nhl-flames-canadiens-lighting-issue-saddledome/
