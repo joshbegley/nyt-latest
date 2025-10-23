@@ -1,3 +1,11 @@
+**Vikings vs. Chargers Thursday Night Football betting: Player prop, picks and a parlay**\
+`Brad Evans scours sportsbooks for the best bets ahead for Thursday Night Football's matchup between the Vikings and Chargers. `\
+https://nytimes.com/athletic/6739986/2025/10/23/vikings-chargers-thursday-night-football-betting-props-picks/
+
+**Trump Has a Religion. What Do Democrats Have?**\
+`Mamdani might be working in Democrats’ favor. But what about “No Kings”?`\
+https://nytimes.com/video/opinion/100000010471948/trump-has-a-religion-what-do-democrats-have.html
+
 **Final N.Y.C. Mayoral Debate Gets Heated**\
 `Zohran Mamdani, Andrew Cuomo and Curtis Sliwa traded personal attacks in the final debate before New York City’s mayoral election on Nov. 4.`\
 https://nytimes.com/video/nyregion/100000010476098/nyc-mayor-debate.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6742614/2025/10/23/tottenham-news-board-director-ap
 **Is It ‘Subsidizing the Rich’ to Make Buses and Child Care Free for All?**\
 `Zohran Mamdani, the front-runner in the New York City mayor’s race, would make some public benefits available to everyone. Andrew Cuomo, his top challenger, wants to help the neediest residents.`\
 https://nytimes.com/2025/10/23/nyregion/mamdani-cuomo-free-city-services.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/10/23/crosswords/spelling-bee-forum.html
-
-**Americans Have Lost Billions to Online Scams. How Is That Possible?**\
-`The United States, Britain and South Korea have joined a crackdown on groups running frauds from Southeast Asia. They have their work cut out.`\
-https://nytimes.com/2025/10/23/world/asia/scam-centers-myanmar-cambodia.html
 
