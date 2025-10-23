@@ -1,3 +1,7 @@
+**How to watch Commanders vs. Chiefs: Time, TV, streaming**\
+`Find out how to watch the Washington Commanders play the Kansas City Chiefs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6742528/2025/10/23/commanders-vs-chiefs-stream-how-to-watch-oct-27/
+
 **Danny Higginbotham was afraid to fly. Then he tried hypnosis**\
 `As a defender in the English Premier League for 12 years, Higginbotham rarely had to fly. Only later did it become a big problem.`\
 https://nytimes.com/athletic/6741059/2025/10/23/danny-higginbotham-premier-league-hypnosis-flying/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6740732/2025/10/23/mohamed-salah-liverpool-dropped-
 **2025 MLS Cup playoff bracket set after wild card round**\
 `With Chicago and Portland taking care of business, MLS's 2025 playoff bracket is complete. Here's the full schedule and road to MLS Cup`\
 https://nytimes.com/athletic/6740291/2025/10/23/mls-cup-2025-playoff-bracket-full-postseason-schedule-updated-results/
-
-**Could international flavor of World Series lead to record global viewership?**\
-`The projected World Series rosters for the Dodgers and Blue Jays would feature 13 players from eight nations and territories.`\
-https://nytimes.com/athletic/6742212/2025/10/23/world-series-global-viewership-records-2025/
 
