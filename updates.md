@@ -1,3 +1,15 @@
+**What We Know About the Gambling Cases Involving N.B.A. Players**\
+`Two indictments detailed schemes involving sports betting and rigged poker games, prosecutors said. The link was current and former N.B.A. players and coaches.`\
+https://nytimes.com/2025/10/23/nyregion/nba-gambling-scandal-explained.html
+
+**‘That was a gift’: Ohtani declines John Schneider’s request to give Blue Jays stuff back**\
+`The World Series provided fodder to look back at the whirlwind final week of Shohei Ohtani’s free agency tour in December 2023.`\
+https://nytimes.com/athletic/6745094/2025/10/23/dodgers-blue-jays-shohei-ohtani-world-series-gifts/
+
+**Betting for (by) dummies: Agreeing on the Steelers, riding with the Cowboys**\
+`Jon Greenberg and Zac Jackson are back at it for another week of football betting, with Zac riding a a little streak.`\
+https://nytimes.com/athletic/6744900/2025/10/23/betting-for-by-dummies-steelers-cowboys-bears/
+
 **Bengals linebacker Logan Wilson, a defensive captain, requests trade**\
 `Wilson lost his starting job and has played limited snaps in the past two games.`\
 https://nytimes.com/athletic/6745053/2025/10/23/bengals-logan-wilson-trade-request/

@@ -1,3 +1,15 @@
+**Angels to have almost entirely new coaching staff under Kurt Suzuki in 2026: Sources**\
+`Because Suzuki’s contract ends after just one season, it could be more of a challenge to put together a coaching staff. `\
+https://nytimes.com/athletic/6745086/2025/10/23/los-angeles-angels-coaching-staff-kurt-suzuki/
+
+**Tennis outlet says it altered Marta Kostyuk interview about Aryna Sabalenka, Iga Świątek**\
+`An exchange in which Kostyuk mentioned “testosterone levels” in response to a question about intimidation did not take place.`\
+https://nytimes.com/athletic/6745080/2025/10/23/marta-kostyuk-interview-sabalenka-swiatek/
+
+**Dodgers' Vesia away from team due to 'deeply personal family matter'**\
+`The Dodgers said they will provide an update on Vesia at a later date. `\
+https://nytimes.com/athletic/6745145/2025/10/23/dodgers-alex-vesia-world-series/
+
 **What We Know About the Gambling Cases Involving N.B.A. Players**\
 `Two indictments detailed schemes involving sports betting and rigged poker games, prosecutors said. The link was current and former N.B.A. players and coaches.`\
 https://nytimes.com/2025/10/23/nyregion/nba-gambling-scandal-explained.html
@@ -11,7 +23,7 @@ https://nytimes.com/athletic/6745094/2025/10/23/dodgers-blue-jays-shohei-ohtani-
 https://nytimes.com/athletic/6744900/2025/10/23/betting-for-by-dummies-steelers-cowboys-bears/
 
 **Bengals linebacker Logan Wilson, a defensive captain, requests trade**\
-`Wilson lost his starting job and has played limited snaps in the past two games.`\
+`Wilson lost his starting job and has played limited snaps the past two games.`\
 https://nytimes.com/athletic/6745053/2025/10/23/bengals-logan-wilson-trade-request/
 
 **Trump Says He Will Not Seek Authorization for Cartel Strikes**\
@@ -25,16 +37,4 @@ https://nytimes.com/video/the-athletic/100000010478210/what-we-know-about-the-nb
 **Here Are the Defendants Named in the N.B.A. Gambling Indictments**\
 `More than 30 people were charged in what prosecutors said was a gambling scheme involving N.B.A. players and coaches.`\
 https://nytimes.com/2025/10/23/nyregion/nba-betting-indictment-defendants.html
-
-**Former Leafs president Brendan Shanahan to join NHL head office: Sources**\
-`Shanahan spent 11 years with the Maple Leafs before parting ways in May.`\
-https://nytimes.com/athletic/6745050/2025/10/23/brendan-shanahan-nhl-head-office/
-
-**I’m Anxious and Burned Out. Where Should I Go This Winter?**\
-`Readers asked us how to realize their vacation dreams. Here are our best ideas.`\
-https://nytimes.com/2025/10/23/t-magazine/winter-vacation-travel-trip-ideas.html
-
-**The real takeaway from the NBA betting scandal? The complicity of all of sports**\
-`With a federal investigation into illegal gambling, NBA commissioner Adam Silver is reliving his predecessor's worst nightmare.`\
-https://nytimes.com/athletic/6744482/2025/10/23/nba-gambling-scandal-league-betting-companies-takeaways/
 
