@@ -1,3 +1,11 @@
+**Oil Price Jumps on Trump’s Russia Sanctions**\
+`Traders are pondering whether the United States and its allies are finally getting serious about restricting Russian energy.`\
+https://nytimes.com/2025/10/23/business/oil-prices-russia-sanctions.html
+
+**How Democrats Became the Party of the Well-to-Do**\
+`Democrats used to be known as the party of the poor and the working class. Two decades of federal income data show how that changed.`\
+https://nytimes.com/2025/10/23/opinion/democrats-rich-poor.html
+
 **The Wizards know what they did wrong in Milwaukee. Can they correct it?**\
 `A passive start doomed Washington against Giannis Antetokounmpo. Friday is a chance to avoid the same mistake. `\
 https://nytimes.com/athletic/6742455/2025/10/23/washington-wizards-season-opener/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/23/learning/science-practice-a-study-on-baby-talk.ht
 **British King and Pope Pray Together in Public in Groundbreaking Moment**\
 `The moment marked the first time that the leaders of the Catholic and Anglican churches had done so in years, offering a display of unity between the Christian faiths.`\
 https://nytimes.com/2025/10/23/world/europe/king-charles-pope-leo-praying.html
-
-**TAFC: No Mo, no problem? Plus: Bellingham breaks duck, Quebec-only policy**\
-`Today in TAFC: Is Salah no longer a certain starter for Liverpool? Plus: Bellingham gives Real Madrid a win, what's eating Chucky Lozano?`\
-https://nytimes.com/athletic/6742677/2025/10/23/salah-bellingham-champions-league-quebec-tafc/
-
-**16 Stats: Why the New York Rangers are better than their record**\
-`Once the Rangers start finishing their chances, look out. Plus: the Red Wings are off to a great start and a Blue Jays NHL comparable.`\
-https://nytimes.com/athletic/6740776/2025/10/23/16-stats-nhl-rangers-possession/
 

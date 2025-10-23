@@ -1,40 +1,40 @@
-**Oil Price Jumps on Trump’s Russia Sanctions**\
-`Traders are pondering whether the United States and its allies are finally getting serious about restricting Russian energy.`\
-https://nytimes.com/2025/10/23/business/oil-prices-russia-sanctions.html
+**Cooper Flagg's debut (at guard!) falls flat as Mavericks struggle against Spurs**\
+`Flagg was just one of the many Dallas players who had a hard time getting anything going in the season opener.`\
+https://nytimes.com/athletic/6742550/2025/10/23/cooper-flagg-mavericks-opening-night-loss/
 
-**How Democrats Became the Party of the Well-to-Do**\
-`Democrats used to be known as the party of the poor and the working class. Two decades of federal income data show how that changed.`\
-https://nytimes.com/2025/10/23/opinion/democrats-rich-poor.html
+**Broadway Averts Strike as Musicians Reach Deal With Producers, Union Says**\
+`The tentative agreement, which still requires ratification by union members, comes five days after a similar agreement with actors and stage managers.`\
+https://nytimes.com/2025/10/23/theater/broadway-strike-union-deal.html
 
-**The Wizards know what they did wrong in Milwaukee. Can they correct it?**\
-`A passive start doomed Washington against Giannis Antetokounmpo. Friday is a chance to avoid the same mistake. `\
-https://nytimes.com/athletic/6742455/2025/10/23/washington-wizards-season-opener/
+**Van Dijk confirms he organised players-only meeting after Man Utd loss**\
+`Liverpool responded to that 2-1 home defeat with a 5-1 victory at Eintracht Frankfurt on Wednesday night.`\
+https://nytimes.com/athletic/6742851/2025/10/23/liverpool-meeting-van-dijk/
 
-**Thanks a Lot, Boomers**\
-`Hey, boomers! Younger Americans would like a word. We’ve noticed that many of you are pretty upset about the state of the nation. And we get it. We really do. But do you ever stop and ask yourselves how we got here?`\
-https://nytimes.com/video/opinion/100000010436284/thanks-a-lot-boomers.html
+**Ravens' season began with Super Bowl aspirations. Now it's reached the desperation stage**\
+`Baltimore needs to defeat Chicago on Sunday to harbor any realistic hopes of turning this season around.`\
+https://nytimes.com/athletic/6741476/2025/10/23/ravens-season-desperation-stage-bears/
 
-**Russians Awake to Trump’s New Oil Sanctions and Largely Shrug**\
-`While oil markets reacted strongly to the sanctions, analysts said the measures were unlikely to significantly change President Vladimir V. Putin’s war calculations.`\
-https://nytimes.com/2025/10/23/world/europe/russia-trump-oil-sanctions.html
+**4 Members of Illinois Politician’s Family Are Killed in Helicopter Crash**\
+`Darren Bailey, a Republican candidate for governor, lost his son, daughter-in-law and two grandchildren, ages 12 and 7, in a helicopter accident in Montana, his campaign said.`\
+https://nytimes.com/2025/10/23/us/politics/darren-bailey-family-helicopter-crash-montana.html
 
-**How to watch the F1 Mexico City Grand Prix: Verstappen's title chase continues**\
-`Max Verstappen's championship chase continues in Mexico City, where he's a five-time winner. See how to watch this weekend's Grand Prix.`\
-https://nytimes.com/athletic/6741220/2025/10/23/f1-mexico-city-grand-prix-how-to-watch-odds/
+**Mets' free-agent outlook: Analyzing the market for closer Edwin Díaz**\
+`Díaz is pretty clearly the best closer on the free-agent market.`\
+https://nytimes.com/athletic/6741799/2025/10/23/mets-free-agent-edwin-diaz-market/
 
-**Why does college football have most of the world's biggest stadiums?**\
-`The NFL and Premier League may rule the sports world, but their stadiums are dwarfed by those at American universities.`\
-https://nytimes.com/athletic/6736868/2025/10/23/college-football-biggest-stadiums-world/
+**How quarterback play has impacted the College Football Playoff race**\
+`It's hard to win big without elite QB play, so it's no surprise that most teams fighting for spots in the CFP have a star under center.`\
+https://nytimes.com/athletic/6740715/2025/10/23/quarterback-college-football-playoff-contenders-alabama-ohio-state/
 
-**How the World Series complete game went missing for a decade – and why the Dodgers might revive it**\
-`Kansas City's Johnny Cueto pitched the last complete game in a World Series back in 2015. `\
-https://nytimes.com/athletic/6740858/2025/10/23/world-series-complete-game-dodgers/
+**Bam! Why counter-attack goals are football's most thrilling spectacle**\
+`A Champions League goal-fest underlined why there is nothing more beautifully brilliant than scoring on the break`\
+https://nytimes.com/athletic/6741635/2025/10/23/bam-why-counter-attack-goals-are-footballs-most-thrilling-spectacle/
 
-**Science Practice | A Study on Baby Talk**\
-`Did baby talk give rise to language? A new study offers clues.`\
-https://nytimes.com/2025/10/23/learning/science-practice-a-study-on-baby-talk.html
+**The Giants are taking a fundamental risk by hiring Tony Vitello**\
+`No one knows how Vitello's style will translate to MLB. But it's not hard to see why the Giants think Vitello can help them improve.`\
+https://nytimes.com/athletic/6740323/2025/10/23/sf-giants-tony-vitello-hiring-analysis/
 
-**British King and Pope Pray Together in Public in Groundbreaking Moment**\
-`The moment marked the first time that the leaders of the Catholic and Anglican churches had done so in years, offering a display of unity between the Christian faiths.`\
-https://nytimes.com/2025/10/23/world/europe/king-charles-pope-leo-praying.html
+**Dodgers-Blue Jays World Series allows some to ... relive Kendrick Lamar-Drake beef?**\
+`The World Series begins Friday, and a Los Angeles-Toronto matchup reminds some of the two rappers from each area involved in a lyrical beef.`\
+https://nytimes.com/athletic/6739208/2025/10/23/dodgers-blue-jays-world-series-kendrick-lamar-drake/
 

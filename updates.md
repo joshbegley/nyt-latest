@@ -1,3 +1,11 @@
+**Oil Price Jumps on Trump’s Russia Sanctions**\
+`Traders are pondering whether the United States and its allies are finally getting serious about restricting Russian energy.`\
+https://nytimes.com/2025/10/23/business/oil-prices-russia-sanctions.html
+
+**How Democrats Became the Party of the Well-to-Do**\
+`Democrats used to be known as the party of the poor and the working class. Two decades of federal income data show how that changed.`\
+https://nytimes.com/2025/10/23/opinion/democrats-rich-poor.html
+
 **The Wizards know what they did wrong in Milwaukee. Can they correct it?**\
 `A passive start doomed Washington against Giannis Antetokounmpo. Friday is a chance to avoid the same mistake. `\
 https://nytimes.com/athletic/6742455/2025/10/23/washington-wizards-season-opener/
