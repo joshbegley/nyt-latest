@@ -1,3 +1,11 @@
+**NFL executive defends upcoming Bad Bunny Super Bowl halftime show**\
+`"OK, you don't like it?" NFL CMO Tim Ellis said. "We have over 200 million fans. Not everyone is going to like everything we do."`\
+https://nytimes.com/athletic/6744427/2025/10/23/nfl-cmo-bad-bunny-super-bowl-halftime-show/
+
+**G. Michael Brown, 82, Dies; Gambling Regulator Became Casino Executive**\
+`He was a watchdog over casinos when they were introduced in New Jersey. He went on to run the nation’s most profitable one, in Connecticut.`\
+https://nytimes.com/2025/10/23/nyregion/g-michael-brown-dead.html
+
 **How Trump Should Think About the A.I. Bubble**\
 `Will the Trump administration offer a financial bailout if the A.I. bubble bursts? Jason Furman, a contributing Opinion writer and an economist at the Harvard Kennedy School, explains what President Trump’s investments tell us about his priorities in the event of a crash.`\
 https://nytimes.com/video/opinion/100000010476575/how-trump-should-think-about-the-ai-bubble.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/nyregion/100000010472876/how-mamdani-has-evolved-in-th
 **The U.S. and Europe Are Trying New Ways to Pressure Russia**\
 `For the first time in his second term, President Trump is imposing new sanctions, but they may not shift the course of Russia’s war in Ukraine.`\
 https://nytimes.com/2025/10/23/world/europe/russia-oil-sanctions-prices.html
-
-**The Death of Democracy Is Happening Within You**\
-`Yes, Trump is assaulting democracy, but what worries me more is what has happened to the rest of us — the loss of the convictions and norms that undergird democracy.`\
-https://nytimes.com/2025/10/23/opinion/shutdown-democracy-democrats.html
-
-**Film Class**\
-``\
-https://nytimes.com/series/film-class
 
