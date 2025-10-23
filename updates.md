@@ -1,3 +1,7 @@
+**Cuomo and Mamdani Clash, Again, on Jewish Safety**\
+`Andrew Cuomo attacked Zohran Mamdani after 650 rabbis said Mr. Mamdani’s election would threaten Jews’ safety. Mr. Mamdani said he was being criticized because he could become the city’s first Muslim mayor.`\
+https://nytimes.com/2025/10/22/nyregion/mamdani-rabbis-letter-israel.html
+
 **“You sent seniors to their deaths in nursing homes.”**\
 `By Benjamin Oreskes`\
 https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/fact-check-nursing-homes
