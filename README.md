@@ -1,3 +1,11 @@
+**The Wizards know what they did wrong in Milwaukee. Can they correct it?**\
+`A passive start doomed Washington against Giannis Antetokounmpo. Friday is a chance to avoid the same mistake. `\
+https://nytimes.com/athletic/6742455/2025/10/23/washington-wizards-season-opener/
+
+**Thanks a Lot, Boomers**\
+`Hey, boomers! Younger Americans would like a word. We’ve noticed that many of you are pretty upset about the state of the nation. And we get it. We really do. But do you ever stop and ask yourselves how we got here?`\
+https://nytimes.com/video/opinion/100000010436284/thanks-a-lot-boomers.html
+
 **Russians Awake to Trump’s New Oil Sanctions and Largely Shrug**\
 `While oil markets reacted strongly to the sanctions, analysts said the measures were unlikely to significantly change President Vladimir V. Putin’s war calculations.`\
 https://nytimes.com/2025/10/23/world/europe/russia-trump-oil-sanctions.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6742677/2025/10/23/salah-bellingham-champions-leagu
 **16 Stats: Why the New York Rangers are better than their record**\
 `Once the Rangers start finishing their chances, look out. Plus: the Red Wings are off to a great start and a Blue Jays NHL comparable.`\
 https://nytimes.com/athletic/6740776/2025/10/23/16-stats-nhl-rangers-possession/
-
-**Virginia's dream season is more than surprising. It's a father-son bonding experience**\
-`Chad and Chandler Morris have had their separate ups and downs in college football. But they're taking in Virginia's dream season together.`\
-https://nytimes.com/athletic/6740863/2025/10/23/chandler-morris-virginia-chad-morris/
-
-**Chicago Bears Intel: Will early fourth-down hiccups temper Ben Johnson's aggressiveness?**\
-`The Bears hope to be an aggressive and productive fourth-down offense. But the early returns have lagged.`\
-https://nytimes.com/athletic/6740878/2025/10/23/bears-fourth-downs-ben-johnson/
 
