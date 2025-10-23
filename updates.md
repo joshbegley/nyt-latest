@@ -1,3 +1,7 @@
+**9 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2025/10/23/books/review/new-recommended-books.html
+
 **Vance Calls Vote to Annex West Bank a ‘Very Stupid Political Stunt’**\
 `Vice President JD Vance expressed his disapproval of the Israeli Knesset’s choice to pass two symbolic votes in favor of annexing land in the West Bank.`\
 https://nytimes.com/video/world/middleeast/100000010477497/israel-annex-west-bank-vance.html
