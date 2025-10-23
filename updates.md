@@ -1,3 +1,11 @@
+**Cam Ward asks reporters to recite play calls, met with silence**\
+`It has not been an easy rookie season for No.`\
+https://nytimes.com/athletic/6743025/2025/10/23/titans-qb-cam-ward-asks-reporters-to-recite-play-calls-met-with-silence/
+
+**USWNT players going to Europe isn’t an exodus. It’s an evolution**\
+`The growing global nature of women's soccer is giving players a choice and forcing the NWSL to keep pushing its standards higher`\
+https://nytimes.com/athletic/6742302/2025/10/23/women-soccer-uswnt-european-league-players/
+
 **In Phoenix Suns' opening win, the foundation Jordan Ott has been building paid off**\
 `The NBA is a players league, so the Suns new head coach has gone mostly overlooked. But his performance this season might be most important.`\
 https://nytimes.com/athletic/6742666/2025/10/23/phoenix-suns-sacramento-kings-jordan-ott-debut-opener/
