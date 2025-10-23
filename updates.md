@@ -1,3 +1,7 @@
+**Victor Wembanyama looks like an MVP candidate as Spurs crush Mavs in opener**\
+`In Wembanyama's first game since a blood clot ended his last season prematurely, the Spurs' 7-foot-5 star had 40 points and 15 rebounds.`\
+https://nytimes.com/athletic/6742346/2025/10/23/spurs-mavs-opener-victor-wembanyama/
+
 **The Top Three Scary Movies**\
 `Wesley Morris and Eric Hynes, a film curator, talk about some of the most memorable horror movies they’ve ever seen.`\
 https://nytimes.com/video/podcasts/100000010469470/the-top-three-scary-movies.html
