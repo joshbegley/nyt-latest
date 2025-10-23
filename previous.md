@@ -1,3 +1,11 @@
+**The Abdication of Congress**\
+`We explain what elected officials aren’t doing during the government shutdown.`\
+https://nytimes.com/2025/10/23/briefing/the-abdication-of-congress.html
+
+**Being traded in the NBA can be disorienting. Cam Johnson is leaning on lessons in resilience**\
+`And no one preached resilience as much as Johnson's grandmother, whose pearls of wisdom continue to guide him as he settles in Denver.`\
+https://nytimes.com/athletic/6738797/2025/10/23/cam-johnson-denver-nuggets-transition/
+
 **Cooper Flagg's debut (at guard!) falls flat as Mavericks struggle against Spurs**\
 `Flagg was just one of the many Dallas players who had a hard time getting anything going in the season opener.`\
 https://nytimes.com/athletic/6742550/2025/10/23/cooper-flagg-mavericks-opening-night-loss/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6740715/2025/10/23/quarterback-college-football-pla
 **Bam! Why counter-attack goals are football's most thrilling spectacle**\
 `A Champions League goal-fest underlined why there is nothing more beautifully brilliant than scoring on the break`\
 https://nytimes.com/athletic/6741635/2025/10/23/bam-why-counter-attack-goals-are-footballs-most-thrilling-spectacle/
-
-**The Giants are taking a fundamental risk by hiring Tony Vitello**\
-`No one knows how Vitello's style will translate to MLB. But it's not hard to see why the Giants think Vitello can help them improve.`\
-https://nytimes.com/athletic/6740323/2025/10/23/sf-giants-tony-vitello-hiring-analysis/
-
-**Dodgers-Blue Jays World Series allows some to ... relive Kendrick Lamar-Drake beef?**\
-`The World Series begins Friday, and a Los Angeles-Toronto matchup reminds some of the two rappers from each area involved in a lyrical beef.`\
-https://nytimes.com/athletic/6739208/2025/10/23/dodgers-blue-jays-world-series-kendrick-lamar-drake/
 
