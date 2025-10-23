@@ -1,3 +1,15 @@
+**Two New Dinosaur Fossils Emerge From the ‘Mummy Zone’**\
+`A pair of Edmontosaurus specimens found in a Wyoming dig help researchers to understand the process that led them to be mummified.`\
+https://nytimes.com/2025/10/23/science/dinosaur-mummies-wyoming.html
+
+**Heat Has Essentially Wiped Out 2 Key Coral Species on Florida Reefs**\
+`Elkhorn and staghorn coral are now functionally extinct around the state, researchers say, meaning they no longer play any significant role in their ecosystem.`\
+https://nytimes.com/2025/10/23/climate/coral-bleaching-florida-staghorn-elkorn.html
+
+**Fossils of Some of America’s Last Dinosaurs Have a Story to Tell**\
+`A trove of specimens from New Mexico may help settle a long-running argument about the diversity of dinosaurs before their extinction.`\
+https://nytimes.com/2025/10/23/science/last-dinosaurs-fossils-new-mexico.html
+
 **Ranchers Say Trump’s Plan to Lower Beef Prices Is ‘Misguided’**\
 `The president wants to increase the amount of Argentine beef imports, infuriating cattle country, which is finally profitable after years of struggle.`\
 https://nytimes.com/2025/10/23/business/ranchers-trump-anger-trumps-plan-lower-beef-prices.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/23/us/san-francisco-trump-federal-deployment.html
 **Mark Morris Accused in Lawsuit of Mistreating Black Company Members**\
 `A former dancer with the company accused Mr. Morris, the prominent choreographer, of discrimination. He denied the claims.`\
 https://nytimes.com/2025/10/23/arts/dance/mark-morris-lawsuit-discrimination.html
-
-**The math behind sports card repacks and why people buy them**\
-`Repacks and breaks have become major forces in the sports card hobby, but who benefits? `\
-https://nytimes.com/athletic/6744027/2025/10/23/sports-card-repacks-value-psycology/
-
-**British Soldier Is Acquitted of Murder in 1972 Bloody Sunday Massacre**\
-`The former paratrooper, referred to only as Soldier F, was found not guilty more than a half-century after his unit in Northern Ireland killed 14 unarmed civilians.`\
-https://nytimes.com/2025/10/23/world/europe/bloody-sunday-massacre-soldier-acquitted.html
-
-**Democrats Block Federal Worker Pay Bill as Shutdown Drags On**\
-`A Republican measure that would pay essential government employees faltered in the Senate, and the G.O.P. blocked a pair of Democratic bills to pay a broader swath of workers.`\
-https://nytimes.com/2025/10/23/us/politics/democrats-shutdown-federal-employee-pay.html
 

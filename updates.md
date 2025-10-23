@@ -1,3 +1,15 @@
+**Two New Dinosaur Fossils Emerge From the ‘Mummy Zone’**\
+`A pair of Edmontosaurus specimens found in a Wyoming dig help researchers to understand the process that led them to be mummified.`\
+https://nytimes.com/2025/10/23/science/dinosaur-mummies-wyoming.html
+
+**Heat Has Essentially Wiped Out 2 Key Coral Species on Florida Reefs**\
+`Elkhorn and staghorn coral are now functionally extinct around the state, researchers say, meaning they no longer play any significant role in their ecosystem.`\
+https://nytimes.com/2025/10/23/climate/coral-bleaching-florida-staghorn-elkorn.html
+
+**Fossils of Some of America’s Last Dinosaurs Have a Story to Tell**\
+`A trove of specimens from New Mexico may help settle a long-running argument about the diversity of dinosaurs before their extinction.`\
+https://nytimes.com/2025/10/23/science/last-dinosaurs-fossils-new-mexico.html
+
 **Ranchers Say Trump’s Plan to Lower Beef Prices Is ‘Misguided’**\
 `The president wants to increase the amount of Argentine beef imports, infuriating cattle country, which is finally profitable after years of struggle.`\
 https://nytimes.com/2025/10/23/business/ranchers-trump-anger-trumps-plan-lower-beef-prices.html
