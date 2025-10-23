@@ -1,3 +1,7 @@
+**Volkswagen Says Loss of Chip Supply Could Hit Production**\
+`After China stopped deliveries of Nexperia’s chips over a dispute with the Dutch government, German carmakers are worried about supply shortages.`\
+https://nytimes.com/2025/10/23/business/volkswagen-chips-china-nexperia.html
+
 **NBA gambling investigation: 3 takeaways from the indictments**\
 `"This is the insider trading saga for the NBA," FBI director Kash Patel said Thursday.`\
 https://nytimes.com/athletic/6743912/2025/10/23/nba-betting-investigation-fbi-illegal-gambling/
@@ -12,7 +16,7 @@ https://nytimes.com/athletic/6742748/2025/10/23/erling-haaland-life-diet/
 
 **Symbiosis Between Gambling and Sports Has Been a Constant**\
 `From the Black Sox to City College to cricket, some players and managers have looked to make an extra buck for decades.`\
-https://nytimes.com/2025/10/23/nyregion/symbiosis-between-gambling-and-sports-has-been-a-constant.html
+https://nytimes.com/2025/10/23/nyregion/sports-gambling-scandals-history.html
 
 **The East Wing Is History, in More Ways Than One**\
 `Readers respond to the demolition of the East Wing of the White House. Also: Fending off tyranny; when Black women are fired.`\
@@ -27,14 +31,10 @@ https://nytimes.com/2025/10/23/learning/a-fortuneteller-a-chaotic-dinner-and-a-c
 https://nytimes.com/video/world/middleeast/100000010476535/international-security-force-disarm-hamas-vance.html
 
 **U.S. Health Workers Recalled From Shutdown Furlough for Medicare, A.C.A. Enrollments**\
-`A federal agency said its employees would return on Monday, with the costs paid by user fees collected from researchers.`\
+`An estimated 3,000 employees seem to be affected. The federal agency said the return to work would occur Monday, with the costs paid by user fees collected from researchers.`\
 https://nytimes.com/2025/10/23/health/medicare-obamacre-federal-workers-furlough-shutdown.html
 
 **2026 Tour de France route analysis - Mont Ventoux for the women, Alpe d’Huez (twice) for the men**\
-`Next year's races will begin in Spain and Switzerland respectively, with fresh twists and some old favourites along the way`\
+`Next year's races will begin in Spain and Switzerland respectively, with fresh twists and some old favorites along the way`\
 https://nytimes.com/athletic/6743267/2025/10/23/2026-tour-de-france-route-analysis/
-
-**College football Week 9 picks ATS: Moving day in the SEC**\
-`The SEC has all three top-25 matchups this week. Which teams will move up in the College Football Playoff race?`\
-https://nytimes.com/athletic/6740460/2025/10/23/college-football-week-9-picks-spread-missouri-vanderbilt-ole-miss-oklahoma/
 

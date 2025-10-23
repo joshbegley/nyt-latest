@@ -1,3 +1,19 @@
+**Volkswagen Says Loss of Chip Supply Could Hit Production**\
+`After China stopped deliveries of Nexperia’s chips over a dispute with the Dutch government, German carmakers are worried about supply shortages.`\
+https://nytimes.com/2025/10/23/business/volkswagen-chips-china-nexperia.html
+
+**Symbiosis Between Gambling and Sports Has Been a Constant**\
+`From the Black Sox to City College to cricket, some players and managers have looked to make an extra buck for decades.`\
+https://nytimes.com/2025/10/23/nyregion/sports-gambling-scandals-history.html
+
+**U.S. Health Workers Recalled From Shutdown Furlough for Medicare, A.C.A. Enrollments**\
+`An estimated 3,000 employees seem to be affected. The federal agency said the return to work would occur Monday, with the costs paid by user fees collected from researchers.`\
+https://nytimes.com/2025/10/23/health/medicare-obamacre-federal-workers-furlough-shutdown.html
+
+**2026 Tour de France route analysis - Mont Ventoux for the women, Alpe d’Huez (twice) for the men**\
+`Next year's races will begin in Spain and Switzerland respectively, with fresh twists and some old favorites along the way`\
+https://nytimes.com/athletic/6743267/2025/10/23/2026-tour-de-france-route-analysis/
+
 **NBA gambling investigation: 3 takeaways from the indictments**\
 `"This is the insider trading saga for the NBA," FBI director Kash Patel said Thursday.`\
 https://nytimes.com/athletic/6743912/2025/10/23/nba-betting-investigation-fbi-illegal-gambling/
