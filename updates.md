@@ -1,3 +1,19 @@
+**Angels to have almost entirely new coaching staff under Kurt Suzuki in 2026: Sources**\
+`Because Suzuki’s contract ends after just one season, it could be more of a challenge to put together a coaching staff. `\
+https://nytimes.com/athletic/6745086/2025/10/23/los-angeles-angels-coaching-staff-kurt-suzuki/
+
+**Tennis outlet says it altered Marta Kostyuk interview about Aryna Sabalenka, Iga Świątek**\
+`An exchange in which Kostyuk mentioned “testosterone levels” in response to a question about intimidation did not take place.`\
+https://nytimes.com/athletic/6745080/2025/10/23/marta-kostyuk-interview-sabalenka-swiatek/
+
+**Dodgers' Vesia away from team due to 'deeply personal family matter'**\
+`The Dodgers said they will provide an update on Vesia at a later date. `\
+https://nytimes.com/athletic/6745145/2025/10/23/dodgers-alex-vesia-world-series/
+
+**Bengals linebacker Logan Wilson, a defensive captain, requests trade**\
+`Wilson lost his starting job and has played limited snaps the past two games.`\
+https://nytimes.com/athletic/6745053/2025/10/23/bengals-logan-wilson-trade-request/
+
 **What We Know About the Gambling Cases Involving N.B.A. Players**\
 `Two indictments detailed schemes involving sports betting and rigged poker games, prosecutors said. The link was current and former N.B.A. players and coaches.`\
 https://nytimes.com/2025/10/23/nyregion/nba-gambling-scandal-explained.html
