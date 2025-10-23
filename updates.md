@@ -1,3 +1,15 @@
+**Billups' next court date set for Nov. 24**\
+`Portland Trail Blazers head coach Chauncey Billups was released Thursday after appearing before Judge Jolie Russo in U.S. District...`\
+https://nytimes.com/athletic/6745258/2025/10/23/chauncey-billups-arrest-gambling-nba-released/
+
+**U.S. B-1 Bombers Flew Near Venezuelan Air Space**\
+`The long-range B-1 bombers can carry up to 75,000 pounds of guided and unguided munitions, the largest nonnuclear payload of any aircraft in the Air Force arsenal.`\
+https://nytimes.com/2025/10/23/us/politics/us-b1-bombers-venezuela.html
+
+**From Truman to Trump: A Tale of Two White House Renovations**\
+`President Harry S. Truman consulted Congress, architects and a fine arts commission on everything from construction plans to fabric samples. President Trump is taking a different approach.`\
+https://nytimes.com/2025/10/23/us/politics/white-house-renovations-trump-ballroom.html
+
 **Angels to have almost entirely new coaching staff under Kurt Suzuki in 2026: Sources**\
 `With Suzuki’s one-year contract, it could be more of a challenge for the Angels to put together a coaching staff.`\
 https://nytimes.com/athletic/6745086/2025/10/23/los-angeles-angels-coaching-staff-kurt-suzuki/

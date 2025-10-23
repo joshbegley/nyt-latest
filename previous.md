@@ -1,3 +1,15 @@
+**Billups' next court date set for Nov. 24**\
+`Portland Trail Blazers head coach Chauncey Billups was released Thursday after appearing before Judge Jolie Russo in U.S. District...`\
+https://nytimes.com/athletic/6745258/2025/10/23/chauncey-billups-arrest-gambling-nba-released/
+
+**U.S. B-1 Bombers Flew Near Venezuelan Air Space**\
+`The long-range B-1 bombers can carry up to 75,000 pounds of guided and unguided munitions, the largest nonnuclear payload of any aircraft in the Air Force arsenal.`\
+https://nytimes.com/2025/10/23/us/politics/us-b1-bombers-venezuela.html
+
+**From Truman to Trump: A Tale of Two White House Renovations**\
+`President Harry S. Truman consulted Congress, architects and a fine arts commission on everything from construction plans to fabric samples. President Trump is taking a different approach.`\
+https://nytimes.com/2025/10/23/us/politics/white-house-renovations-trump-ballroom.html
+
 **Meta Layoffs Included Employees Who Monitored Risks to User Privacy**\
 `While the company announced job cuts in artificial intelligence, it also expanded plans to replace privacy and risk auditors with more automated systems.`\
 https://nytimes.com/2025/10/23/technology/meta-layoffs-user-privacy.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/23/nyregion/nba-gambling-scandal-explained.html
 **Shohei Ohtani declines joke request to give Blue Jays stuff back**\
 `The World Series provided fodder to look back at the whirlwind final week of Shohei Ohtani’s free agency tour in December 2023.`\
 https://nytimes.com/athletic/6745094/2025/10/23/dodgers-blue-jays-shohei-ohtani-world-series-gifts/
-
-**Betting for (by) dummies: Agreeing on the Steelers, riding with the Cowboys**\
-`Jon Greenberg and Zac Jackson are back at it for another week of football betting, with Zac riding a a little streak.`\
-https://nytimes.com/athletic/6744900/2025/10/23/betting-for-by-dummies-steelers-cowboys-bears/
-
-**Bengals linebacker Logan Wilson, a defensive captain, requests trade**\
-`Wilson lost his starting job and has played limited snaps the past two games.`\
-https://nytimes.com/athletic/6745053/2025/10/23/bengals-logan-wilson-trade-request/
-
-**Trump Says He Will Not Seek Authorization for Cartel Strikes**\
-`The president said he would bypass Congress rather than ask for approval for his military campaign against drug traffickers, even as he said it would expand from sea to land.`\
-https://nytimes.com/2025/10/23/us/politics/trump-military-authorization-cartel-strikes.html
 
