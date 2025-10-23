@@ -1,3 +1,7 @@
+**Newsom Says Benioff Is Still ‘Family’ Despite the National Guard Remarks**\
+`Gov. Gavin Newsom has a long relationship with Marc Benioff, the chief executive of Salesforce, that dates back to a different era in San Francisco.`\
+https://nytimes.com/2025/10/22/us/gavin-newsom-marc-benioff.html
+
 **With 1-year contract, Angels put themselves and new manager Kurt Suzuki at a disadvantage**\
 `One-year deals for a manager are nearly unheard of in baseball. With this one, the Angels are putting everyone in a tough spot.  `\
 https://nytimes.com/athletic/6741949/2025/10/22/kurt-suzuki-angels-both-at-a-disadvantage-with-the-new-managers-1-year-contract/
