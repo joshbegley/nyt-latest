@@ -1,3 +1,7 @@
+**Should Rams trade for a cornerback? Quentin Lake extension coming? Mailbag**\
+`We answer questions about the Rams' cornerback situation, the offense's success in different personnel packages and more.`\
+https://nytimes.com/athletic/6741209/2025/10/23/rams-mailbag-cornerback-trade-quentin-lake/
+
 **Cyclist Sehili freed by Russian court after detention during world record attempt**\
 `Sehili had been embarking on an attempted world record ride across Eurasia when he was detained on September 4, 2025`\
 https://nytimes.com/athletic/6742888/2025/10/23/cycling-sofiane-sehili-russia-world-record/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/23/us/politics/darren-bailey-family-helicopter-crash
 **Mets' free-agent outlook: Analyzing the market for closer Edwin Díaz**\
 `Díaz is pretty clearly the best closer on the free-agent market.`\
 https://nytimes.com/athletic/6741799/2025/10/23/mets-free-agent-edwin-diaz-market/
-
-**How quarterback play has impacted the College Football Playoff race**\
-`It's hard to win big without elite QB play, so it's no surprise that most teams fighting for spots in the CFP have a star under center.`\
-https://nytimes.com/athletic/6740715/2025/10/23/quarterback-college-football-playoff-contenders-alabama-ohio-state/
 
