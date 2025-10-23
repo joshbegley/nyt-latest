@@ -1,3 +1,11 @@
+**College football Week 9 picks ATS: Moving day in the SEC**\
+`The SEC has all three top-25 matchups this week. Which teams will move up in the College Football Playoff race?`\
+https://nytimes.com/athletic/6740460/2025/10/23/college-football-week-9-picks-spread-missouri-vanderbilt-ole-miss-oklahoma/
+
+**The Thrill of the Heist**\
+`There’s something in the air: a pro-heist frisson.`\
+https://nytimes.com/2025/10/23/opinion/louvre-heist-internet-thrill.html
+
 **Inter Miami announces new contract for Messi**\
 `The new deal will see Messi lead the MLS club into its new stadium, Miami Freedom Park, next year.`\
 https://nytimes.com/athletic/6264838/2025/10/23/lionel-messi-new-inter-miami-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/23/us/politics/virginia-democrats-redistrict.html
 **Documents reveal how one school landed an invite amid conference realignment**\
 `The Bobcats’ revenue-sharing budget across all sports is expected to grow from $4 million in the 2026 fiscal year to $7.2 million in 2029.`\
 https://nytimes.com/athletic/6743652/2025/10/23/pac-12-conference-realignment-texas-state/
-
-**Indictment Alleging Participation in Rigged Illegal Poker Games**\
-`Chauncey Billups, the coach of the Portland Trail Blazers, and Damon Jones, a former player and coach, were accused of participating in rigged illegal poker games.`\
-https://nytimes.com/interactive/2025/10/23/nyregion/nba-illegal-poker-games-indictment.html
-
-**Indictment Alleging Participation in Sports Betting Scheme**\
-`Terry Rozier, a guard for the Miami Heat, and other defendants were accused of participating in a betting scheme in which they used nonpublic information about N.B.A. athletes and teams to set up fraudulent bets.`\
-https://nytimes.com/interactive/2025/10/23/nyregion/nba-betting-scheme-indictment.html
 
