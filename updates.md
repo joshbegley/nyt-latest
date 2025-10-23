@@ -1,3 +1,23 @@
+**Clippers look old and lifeless in embarrassing loss to Jazz in season opener**\
+`A veteran, deep team somehow trailed Utah by 37 points and was trounced on the road. What was that?`\
+https://nytimes.com/athletic/6742629/2025/10/23/clippers-opener-kawhi-leonard-loss/
+
+**Lights, Camera, Venom: What Happens When a Snake Strikes**\
+`High-speed video helped researchers to get close-ups of the attack strategies of three snake families.`\
+https://nytimes.com/2025/10/23/science/snake-strike-videos.html
+
+**Live Updates: N.B.A. Player and Coach Arrested in Gambling Investigation**\
+`Terry Rozier, a guard for the Miami Heat, and Chauncey Billups, the coach of the Portland Trail Blazers, were arrested on Thursday. Federal prosecutors unsealed charges against dozens of athletes.`\
+https://nytimes.com/live/2025/10/23/nyregion/nba-illegal-gambling-arrests
+
+**Yohe mailbag: Mario Lemieux's presence and the best-case scenario for Tristan Jarry**\
+`Josh Yohe answers questions about Jarry showing signs of life, Lemieux's visit creating quite a stir and much more.`\
+https://nytimes.com/athletic/6741118/2025/10/23/penguins-mario-lemieux-tristan-jarry-nhl-mailbag/
+
+**U.S. Set to Announce Charges in Wide-Ranging N.B.A. Gambling Schemes**\
+`Terry Rozier, a guard for the Miami Heat, and Chauncey Billups, the coach of the Portland Trail Blazers, were among those arrested, law enforcement officials said. Federal prosecutors were expected to unseal charges Thursday.`\
+https://nytimes.com/2025/10/23/nyregion/nba-gambling-charges.html
+
 **Submit questions for Matt Gelb's Phillies mailbag**\
 `What questions do you have about the Phillies as they prepare for a critical offseason? Submit them here.`\
 https://nytimes.com/athletic/6743363/2025/10/23/submit-questions-for-matt-gelbs-phillies-mailbag/
