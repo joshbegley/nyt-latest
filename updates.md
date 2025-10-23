@@ -1,3 +1,11 @@
+**16 Stats: Why the New York Rangers are better than their record**\
+`Once the Rangers start finishing their chances, look out. Plus: the Red Wings are off to a great start and a Blue Jays NHL comparable.`\
+https://nytimes.com/athletic/6740776/2025/10/23/16-stats-nhl-rangers-possession/
+
+**Virginia's dream season is more than surprising. It's a father-son bonding experience**\
+`Chad and Chandler Morris have had their separate ups and downs in college football. But they're taking in Virginia's dream season together.`\
+https://nytimes.com/athletic/6740863/2025/10/23/chandler-morris-virginia-chad-morris/
+
 **Chicago Bears Intel: Will early fourth-down hiccups temper Ben Johnson's aggressiveness?**\
 `The Bears hope to be an aggressive and productive fourth-down offense. But the early returns have lagged.`\
 https://nytimes.com/athletic/6740878/2025/10/23/bears-fourth-downs-ben-johnson/

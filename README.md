@@ -1,3 +1,19 @@
+**How the World Series complete game went missing for a decade – and why the Dodgers might revive it**\
+`Kansas City's Johnny Cueto pitched the last complete game in a World Series back in 2015. `\
+https://nytimes.com/athletic/6740858/2025/10/23/world-series-complete-game-dodgers/
+
+**Science Practice | A Study on Baby Talk**\
+`Did baby talk give rise to language? A new study offers clues.`\
+https://nytimes.com/2025/10/23/learning/science-practice-a-study-on-baby-talk.html
+
+**British King and Pope Pray Together in Public In Groundbreaking Moment**\
+`The moment marked the first time that the leaders of the Catholic and Anglican churches had done so in years, offering a display of unity between the Christian faiths.`\
+https://nytimes.com/2025/10/23/world/asia/british-king-and-pope-pray-together-in-public-in-groundbreaking-moment.html
+
+**TAFC: No Mo, no problem? Plus: Bellingham breaks duck, Quebec-only policy**\
+`Today in TAFC: Is Salah no longer a certain starter for Liverpool? Plus: Bellingham gives Real Madrid a win, what's eating Chucky Lozano?`\
+https://nytimes.com/athletic/6742677/2025/10/23/salah-bellingham-champions-league-quebec-tafc/
+
 **16 Stats: Why the New York Rangers are better than their record**\
 `Once the Rangers start finishing their chances, look out. Plus: the Red Wings are off to a great start and a Blue Jays NHL comparable.`\
 https://nytimes.com/athletic/6740776/2025/10/23/16-stats-nhl-rangers-possession/
@@ -18,23 +34,7 @@ https://nytimes.com/athletic/6742071/2025/10/23/red-wings-sabres-hot-streak/
 `After watching film of himself in the offseason, Mahomes is trying not to overthink things this season, and the Chiefs are benefiting.`\
 https://nytimes.com/athletic/6740978/2025/10/23/chiefs-patrick-mahomes-nfl-mvp-favorite/
 
-**Potential trade targets: Could Cowboys make push for Maxx Crosby, Jeffery Simmons?**\
-`Cowboys have everything needed to make significant trade after acquiring two first-round picks in the Micah Parsons trade.`\
+**Cowboys trade targets: Could Dallas make push for Maxx Crosby, Jeffery Simmons?**\
+`The Cowboys have everything necessary to make a significant trade after acquiring two first-round picks in the Micah Parsons deal.`\
 https://nytimes.com/athletic/6740394/2025/10/23/cowboys-trade-targets-maxx-crosby-simmons/
-
-**Big game for the Panthers? It's been a while, but they get one Sunday vs. the Bills**\
-`"We look at this as a big game," says Panthers safety Nick Scott, "because of who they are and who they’ve always been."`\
-https://nytimes.com/athletic/6741493/2025/10/23/panthers-big-game-bills-bryce-young/
-
-**Analyzing the Lions' defense at the bye: An excellent start to the Kelvin Sheppard era**\
-`The Lions are 5-2 and have a well-balanced, top-10 defensive unit.`\
-https://nytimes.com/athletic/6741922/2025/10/23/detroit-lions-defense-analysis-bye-aidan-hutchinson/
-
-**Vikings at Chargers on TNF: Broadcast predictions for the NFL's Week 8 opener**\
-`Here's what to know about Thursday's game between the Vikings and Chargers, with a few frivolities for pregame prep.`\
-https://nytimes.com/athletic/6737484/2025/10/23/vikings-chargers-justin-jefferson-tnf-prime-how-to-watch/
-
-**Vikings-Chargers predictions: What we're watching in intriguing TNF matchup**\
-`Can Carson Wentz bounce back after a rough performance? And can the Vikings defense keep Chargers QB Justin Herbert in check?`\
-https://nytimes.com/athletic/6740775/2025/10/23/vikings-chargers-predictions-matchups-thursday-night-football/
 
