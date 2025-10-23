@@ -1,3 +1,7 @@
+**After Remark About Mamdani and Sept. 11, Cuomo Faces Democratic Rebukes**\
+`When a radio host suggested that Zohran Mamdani would celebrate another Sept. 11-style attack, Andrew Cuomo chuckled. Democrats denounced the exchange as Islamophobic.`\
+https://nytimes.com/2025/10/23/nyregion/cuomo-mamdani-sept-11.html
+
 **N.B.A. Figures Charged in Gambling Schemes**\
 `Also, Trump halted his plan to send federal agents to San Francisco. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/10/23/briefing/nba-figures-charged-in-gambling-schemes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/23/us/politics/trump-ballroom-donors-list.html
 **Aaron Rodgers reflects on 18 years in Green Bay: 'I'll retire a Packer'**\
 `Rodgers spoke with Packers reporters Thursday ahead of Sunday night's game against his former team.`\
 https://nytimes.com/athletic/6744834/2025/10/23/aaron-rodgers-retire-packers-steelers/
-
-**The U.S. Economy Needs Immigration**\
-`Can the U.S. economy thrive without a steady stream of immigration? This week on “Interesting Times,” Jason Furman, a contributing Times Opinion writer and an economist at the Harvard Kennedy School, tells Ross Douthat why he thinks our future “rises and falls with immigration.”`\
-https://nytimes.com/video/opinion/100000010469047/the-us-economy-needs-immigration.html
 

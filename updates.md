@@ -1,3 +1,15 @@
+**N.B.A. Figures Charged in Gambling Schemes**\
+`Also, Trump halted his plan to send federal agents to San Francisco. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/10/23/briefing/nba-figures-charged-in-gambling-schemes.html
+
+**Who Is Terry Rozier?**\
+`The only active N.B.A. player named in two indictments was Mr. Rozier, a versatile veteran who first drew the attention of gambling investigators in 2023.`\
+https://nytimes.com/2025/10/23/nyregion/terry-rozier-nba-gambling-scandal.html
+
+**The White House Wrecking Ball**\
+`President Trump’s demolition of the East Wing to make way for a ballroom seems to mirror his determination to remake America.`\
+https://nytimes.com/2025/10/23/world/the-white-house-trump-russia-sanctions-israel.html
+
 **NFL executive defends upcoming Bad Bunny Super Bowl halftime show**\
 `"OK, you don't like it?" NFL CMO Tim Ellis said. "We have over 200 million fans. Not everyone is going to like everything we do."`\
 https://nytimes.com/athletic/6744427/2025/10/23/nfl-cmo-bad-bunny-super-bowl-halftime-show/
