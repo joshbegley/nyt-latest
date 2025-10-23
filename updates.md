@@ -1,3 +1,19 @@
+**Who was the unnamed Player 3 in the N.B.A. gambling case?**\
+`By Tania Ganguli and Jonah E. Bromwich`\
+https://nytimes.com/live/2025/10/23/nyregion/nba-illegal-gambling-arrests/player-3-lebron-james
+
+**Blue Jays name rookie Trey Yesavage World Series Game 1 starter**\
+`Yesavage is the first rookie to start Game 1 of the World Series since Justin Verlander and Anthony Reyes squared off in 2006.`\
+https://nytimes.com/athletic/6744266/2025/10/23/blue-jays-trey-yesavage-world-series-game-1-starter/
+
+**Bengals QB Joe Flacco is like any other parent desperate for alone time**\
+`As a father of five, Flacco has a new appreciation for 'party of one.'`\
+https://nytimes.com/athletic/6744200/2025/10/23/cincinnati-bengals-qb-joe-flacco-alone-time/
+
+**Trump Officials Shoot Down Israeli Aspirations of Annexing West Bank Land**\
+`Vice President JD Vance calls symbolic votes in Israel’s Parliament to annex West Bank territory a “very stupid political stunt.”`\
+https://nytimes.com/2025/10/23/world/middleeast/trump-israel-west-bank-annexation.html
+
 **Trump Officials Shoot Down Israeli Aspirations of Annexing West Bank Land**\
 `Vice President JD Vance calls symbolic votes in Israel’s Parliament to annex West Bank territory a “very stupid political stunt.”`\
 https://nytimes.com/2025/10/23/world/middleeast/trump-officials-shoot-down-israeli-aspirations-of-annexing-west-bank-land.html
