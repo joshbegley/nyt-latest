@@ -1,3 +1,11 @@
+**Who Is Chauncey Billups?**\
+`Mr. Billups earned the nickname Mr. Big Shot during a hall of fame N.B.A. playing career. He has been a head coach since 2021.`\
+https://nytimes.com/2025/10/23/nyregion/who-is-chauncey-billups.html
+
+**Archbishop of U.S. Anglican Church Is Accused of Sexual Harassment**\
+`Another leader in the breakaway denomination has been accused of responding slowly to accusations of abuse and grooming against a lay leader.`\
+https://nytimes.com/2025/10/23/us/anglican-church-stephen-wood.html
+
 **Arsenal had to make a special case for Max Dowman - his super talent merits it**\
 `Arsenal have managed to sign Max Dowman to scholarship terms. A professional contract is expected to follow when he turns 17`\
 https://nytimes.com/athletic/6744503/2025/10/23/max-dowman-arsenal-contract-analysis/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6744419/2025/10/23/dallas-wings-jose-fernandez-coac
 **Phyllis Trible, Who Studied Bible Through Feminist Lens, Dies at 92**\
 `An influential scholar, she challenged centuries of biblical interpretation that presumed that women were unequal to men in the eyes of God.`\
 https://nytimes.com/2025/10/23/books/phyllis-trible-dead.html
-
-**N.B.A. Coach and Players Tied to Illegal Gambling Case**\
-`The F.B.I. and the New York Police Department charged current and former N.B.A. players and a coach for illegal gambling. One of the indictments accused Mafia members and former professional basketball players of working together to profit from rigged poker games.`\
-https://nytimes.com/video/sports/100000010477049/sports-gambling-nba-mafia.html
-
-**Ford’s Profit Jumps on Strong Sales but Company Lowers its Outlook**\
-`Ford said a fire at an aluminum factory will lower profits in the last three months of the year. The company also said it has stopped making an electric version of its popular F-150 pickup.`\
-https://nytimes.com/2025/10/23/business/ford-motor-earnings-third-quarter.html
 
