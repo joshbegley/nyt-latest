@@ -1,3 +1,7 @@
+**USWNT celebrates Alex Morgan's 'legendary' career**\
+`In many ways, Morgan’s entire career was spent preparing to pass that torch for future generations.`\
+https://nytimes.com/athletic/6744327/2025/10/23/alex-morgan-uswnt-celebration/
+
 **NASCAR, 23XI/Front Row spar at latest antitrust case hearing as trial date looms**\
 `"We're going to trial to hold NASCAR accountable," 23XI Racing and Front Row Motorsports' attorney said Thursday.`\
 https://nytimes.com/athletic/6745047/2025/10/23/nascar-23xi-front-row-antitrust-lawsuit-hearing-trial/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/23/technology/meta-layoffs-user-privacy.html
 **Musk Attacks NASA Leader Over Threat to Reconsider Lunar Contract**\
 `The billionaire’s swipes at Sean Duffy are the latest example of his tangling with members of the Trump administration.`\
 https://nytimes.com/2025/10/23/us/politics/elon-musk-duffy-nasa.html
-
-**Angels to have almost entirely new coaching staff under Kurt Suzuki in 2026: Sources**\
-`With Suzuki’s one-year contract, it could be more of a challenge for the Angels to put together a coaching staff.`\
-https://nytimes.com/athletic/6745086/2025/10/23/los-angeles-angels-coaching-staff-kurt-suzuki/
 
