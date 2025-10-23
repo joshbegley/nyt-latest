@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6744834/2025/10/23/aaron-rodgers-retire-packers-ste
 `Can the U.S. economy thrive without a steady stream of immigration? This week on “Interesting Times,” Jason Furman, a contributing Times Opinion writer and an economist at the Harvard Kennedy School, tells Ross Douthat why he thinks our future “rises and falls with immigration.”`\
 https://nytimes.com/video/opinion/100000010469047/the-us-economy-needs-immigration.html
 
-**Blue Jays' Bo Bichette took grounders at second base, could play position in World Series**\
+**Blue Jays' Bo Bichette takes grounders at second base, could play position in World Series**\
 `Toronto manager John Schneider said Thursday that Bichette is feeling good, but still has a few more boxes to check.`\
 https://nytimes.com/athletic/6744663/2025/10/23/blue-jays-bo-bichette-second-base-could-play-position-world-series/
 
