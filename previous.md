@@ -1,3 +1,15 @@
+**Ruth A. Lawrence, Doctor Who Championed Breastfeeding, Is Dead at 101**\
+`As a pediatrician, she helped elevate breastfeeding from a medical afterthought to a specialty of its own. As a mother of nine, she practiced what she preached.`\
+https://nytimes.com/2025/10/23/health/ruth-a-lawrence-dead.html
+
+**Fantasy basketball first impressions: Wemby awes, VJ Edgecombe dazzles in debut and more**\
+`Stan Son shares his observations from the NBA's opening-night matchups, first and foremost on Wemby's awe-inspiring performance. `\
+https://nytimes.com/athletic/6744240/2025/10/23/fantasy-basketball-opening-night-impressions-wemby-edgecombe/
+
+**Trump Opens Arctic National Wildlife Refuge to Oil Drilling**\
+`The Interior Department also said it would allow a contentious road to be built through the Izembek National Wildlife Refuge in southwestern Alaska.`\
+https://nytimes.com/2025/10/23/climate/trump-arctic-national-wildlife-refuge-oil-drilling.html
+
 **9 New Books We Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://nytimes.com/2025/10/23/books/review/new-recommended-books.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6744442/2025/10/23/sean-payton-russell-wilson-charg
 **How to watch Mammoth vs. Blues: Time, TV, streaming**\
 `Find out how to watch the Utah Mammoth play the St. Louis Blues, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6744516/2025/10/23/mammoth-vs-blues-stream-how-to-watch-oct-23/
-
-**How to watch Hurricanes vs. Avalanche: Time, TV, streaming**\
-`Find out how to watch the Carolina Hurricanes play the Colorado Avalanche, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6744517/2025/10/23/hurricanes-vs-avalanche-stream-how-to-watch-oct-23/
-
-**How to watch Nuggets vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6744513/2025/10/23/nuggets-vs-warriors-stream-how-to-watch-oct-23/
-
-**How to watch Kings vs. Stars: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Kings play the Dallas Stars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6744511/2025/10/23/kings-vs-stars-stream-how-to-watch-oct-23/
 

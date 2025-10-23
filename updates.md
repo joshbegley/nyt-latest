@@ -1,3 +1,15 @@
+**Ruth A. Lawrence, Doctor Who Championed Breastfeeding, Is Dead at 101**\
+`As a pediatrician, she helped elevate breastfeeding from a medical afterthought to a specialty of its own. As a mother of nine, she practiced what she preached.`\
+https://nytimes.com/2025/10/23/health/ruth-a-lawrence-dead.html
+
+**Fantasy basketball first impressions: Wemby awes, VJ Edgecombe dazzles in debut and more**\
+`Stan Son shares his observations from the NBA's opening-night matchups, first and foremost on Wemby's awe-inspiring performance. `\
+https://nytimes.com/athletic/6744240/2025/10/23/fantasy-basketball-opening-night-impressions-wemby-edgecombe/
+
+**Trump Opens Arctic National Wildlife Refuge to Oil Drilling**\
+`The Interior Department also said it would allow a contentious road to be built through the Izembek National Wildlife Refuge in southwestern Alaska.`\
+https://nytimes.com/2025/10/23/climate/trump-arctic-national-wildlife-refuge-oil-drilling.html
+
 **9 New Books We Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://nytimes.com/2025/10/23/books/review/new-recommended-books.html
