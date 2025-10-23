@@ -1,3 +1,11 @@
+**Site of a Huge Annual Crowd**\
+`Aimee Lucido wants us to worm our way out of this one.`\
+https://nytimes.com/2025/10/22/crosswords/daily-puzzle-2025-10-23.html
+
+**How China Raced Ahead of the U.S. on Nuclear Power**\
+`The United States was once the undisputed leader in atomic energy. Now it is trying to catch up.`\
+https://nytimes.com/interactive/2025/10/22/climate/china-us-nuclear-energy-race.html
+
 **“As a state Assembly member, I won the first free buses in New York City’s history.”**\
 `By Benjamin Oreskes`\
 https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate-fact-check/nyc-mayor-debate-fact-check-transit
