@@ -1,3 +1,7 @@
+**7 Takeaways From the Final N.Y.C. Mayoral Debate**\
+`Zohran Mamdani, Andrew M. Cuomo and Curtis Sliwa continued attacking one another, with Mr. Mamdani and Mr. Cuomo the main targets.`\
+https://nytimes.com/2025/10/22/nyregion/nyc-mayor-debate-takeaways.html
+
 **Site of a Huge Annual Crowd**\
 `Aimee Lucido wants us to worm our way out of this one.`\
 https://nytimes.com/2025/10/22/crosswords/daily-puzzle-2025-10-23.html
