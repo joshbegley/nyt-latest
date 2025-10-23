@@ -1,40 +1,40 @@
-**Quote of the Day: Demand Rises and Forests Vanish In Coffee Industry’s Vicious Circle**\
-`Quotation of the Day for Thursday, October 23, 2025.`\
-https://nytimes.com/2025/10/22/pageoneplus/quote-of-the-day-demand-rises-and-forests-vanish-in-coffee-industrys-vicious-circle.html
+**Gary Lineker on El Clasico: Superstars still go to Real or Barca over anyone else, and expect goals**\
+`Gary Lineker hit a hat-trick in his second El Clasico, and the former Barcelona striker is predicting goals at the Bernabeu on Sunday...`\
+https://nytimes.com/athletic/6732643/2025/10/23/gary-lineker-clasico-real-madrid-barcelona-goals/
 
-**Newsom Says Benioff Is Still ‘Family’ Despite the National Guard Remarks**\
-`Gov. Gavin Newsom has a long relationship with Marc Benioff, the chief executive of Salesforce, that dates back to a different era in San Francisco.`\
-https://nytimes.com/2025/10/22/us/gavin-newsom-marc-benioff.html
+**Harvey Elliott, fast passes, and a slow start to life at Aston Villa**\
+`The former Liverpool player’s early Villa career has been slow-going, even if it is broadly due to circumstances out of his control`\
+https://nytimes.com/athletic/6713168/2025/10/23/harvey-elliott-aston-villa-premier-league-liverpool/
 
-**With 1-year contract, Angels put themselves and new manager Kurt Suzuki at a disadvantage**\
-`One-year deals for a manager are nearly unheard of in baseball. With this one, the Angels are putting everyone in a tough spot.  `\
-https://nytimes.com/athletic/6741949/2025/10/22/kurt-suzuki-angels-manager-one-year-contract/
+**The Tactics Board: How the 4-2-3-1 works**\
+`Part one of The Athletic's series on football formations takes a close look at the 4-2-3-1`\
+https://nytimes.com/athletic/6700090/2025/10/23/tactics-board-4-2-3-1-formation/
 
-**The East Wing: Before and After**\
-`Here's how the White House looked before demolition of the East Wing began, and what the president plans for it.`\
-https://nytimes.com/interactive/2025/10/22/us/politics/east-wing-trump-ballroom.html
+**The Raptors' new-look starting five presents reasons for optimism in opener**\
+`To be successful this season, the Raptors need their ball-dominant wings to not only coexist, but also enhance one another.`\
+https://nytimes.com/athletic/6742137/2025/10/23/toronto-raptors-season-opener/
 
-**Inconsistency rears again to end Wild road trip with drubbing from Devils**\
-`The Wild went 1-3-1 on their road trip, which served as a reality check in terms of how far they still need to go.`\
-https://nytimes.com/athletic/6742048/2025/10/22/wild-inconsistency-devils-road-trip/
+**He’s Never Been to America. But in China, He’s Trump.**\
+`Ryan Chen has turned an uncanny impersonation of President Trump into a social media career, and a mirror of China’s fascination with America.`\
+https://nytimes.com/2025/10/23/world/asia/chinese-trump-impersonator.html
 
-**76ers' V.J. Edgecombe's 34 points are third-most for an NBA debut**\
-`Edgecombe and Maxey helped offset a four-point, six-rebound performance from Joel Embiid in Philadelphia's 117-116 win over the Celtics.`\
-https://nytimes.com/athletic/6742077/2025/10/22/v-j-edgecombe-76ers-record/
+**Can a Beach Really Be Evil? Ask the Sun-Seekers in Good Sahel.**\
+`The sea looks the same. So does the sand. But in Egypt, two beach communities not far from each other have decidedly different ideas about fun.`\
+https://nytimes.com/2025/10/23/world/middleeast/egypt-good-sahel-evil-sahel.html
 
-**Pelosi Says Police May Arrest Federal Agents Who Violate California Law**\
-`The San Francisco district attorney said in an interview that she came up with the strategy after seeing federal agents repeatedly roughing up people in Los Angeles and Chicago.`\
-https://nytimes.com/2025/10/22/us/politics/nancy-pelosi-ice-agent-arrest.html
+**No Country for Young People: Nepal’s Gen Z Sees Little Hope at Home**\
+`The protests that rocked Nepal were about more than a social media ban. The economy is so dire that for many, going abroad seems the only way to build a future.`\
+https://nytimes.com/2025/10/23/world/asia/nepal-protests-migrants-gen-z.html
 
-**Canadiens-Flames game plays on despite lighting issue at Scotiabank Saddledome**\
-`Both teams agreed to play with only secondary lighting before the main lights returned shortly into the first period.`\
-https://nytimes.com/athletic/6742011/2025/10/22/nhl-flames-canadiens-lighting-issue-saddledome/
+**Connections: Sports Edition hints for Oct. 23, 2025, puzzle No. 395**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6741961/2025/10/23/connections-sports-edition-hints-for-oct-23-2025/
 
-**From the Roosevelts to the Kennedys: A Look Back at the White House East Wing**\
-`The East Wing has been a base for the first lady, an entryway for social functions and an emergency bunker.`\
-https://nytimes.com/2025/10/22/us/politics/east-wing-white-house.html
+**China’s Consumers Are in a Years-Long Funk. Will Anything Get Them to Spend?**\
+`Countries worldwide are buying more than ever from China, but domestic consumption is lagging and government stimulus efforts aren’t working.`\
+https://nytimes.com/2025/10/23/business/china-economy-consumer-spending.html
 
-**Cuomo Joins Adams at Knicks Game. Is an Endorsement in the Cards?**\
-`Former Gov. Andrew M. Cuomo and Mayor Eric Adams looked like the best of friends as they sat together at Madison Square Garden right after the debate.`\
-https://nytimes.com/2025/10/22/nyregion/eric-adams-cuomo-knicks.html
+**Hoping to Grow in Europe, but Bogged Down by Red Tape**\
+`Start-ups are booming in the European Union, but experts say bureaucracy keeps them from expanding across borders.`\
+https://nytimes.com/2025/10/23/business/europe-start-ups-red-tape-entrepreneurship.html
 

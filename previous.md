@@ -1,13 +1,17 @@
+**Quote of the Day: Demand Rises and Forests Vanish In Coffee Industry’s Vicious Circle**\
+`Quotation of the Day for Thursday, October 23, 2025.`\
+https://nytimes.com/2025/10/22/pageoneplus/quote-of-the-day-demand-rises-and-forests-vanish-in-coffee-industrys-vicious-circle.html
+
 **Newsom Says Benioff Is Still ‘Family’ Despite the National Guard Remarks**\
 `Gov. Gavin Newsom has a long relationship with Marc Benioff, the chief executive of Salesforce, that dates back to a different era in San Francisco.`\
 https://nytimes.com/2025/10/22/us/gavin-newsom-marc-benioff.html
 
 **With 1-year contract, Angels put themselves and new manager Kurt Suzuki at a disadvantage**\
 `One-year deals for a manager are nearly unheard of in baseball. With this one, the Angels are putting everyone in a tough spot.  `\
-https://nytimes.com/athletic/6741949/2025/10/22/kurt-suzuki-angels-both-at-a-disadvantage-with-the-new-managers-1-year-contract/
+https://nytimes.com/athletic/6741949/2025/10/22/kurt-suzuki-angels-manager-one-year-contract/
 
 **The East Wing: Before and After**\
-`Here's how the White House looked before and after demolition of the East Wing began, and what the president plans for it.`\
+`Here's how the White House looked before demolition of the East Wing began, and what the president plans for it.`\
 https://nytimes.com/interactive/2025/10/22/us/politics/east-wing-trump-ballroom.html
 
 **Inconsistency rears again to end Wild road trip with drubbing from Devils**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/22/us/politics/east-wing-white-house.html
 **Cuomo Joins Adams at Knicks Game. Is an Endorsement in the Cards?**\
 `Former Gov. Andrew M. Cuomo and Mayor Eric Adams looked like the best of friends as they sat together at Madison Square Garden right after the debate.`\
 https://nytimes.com/2025/10/22/nyregion/eric-adams-cuomo-knicks.html
-
-**N.Y.C. Mayoral Candidates Trade Zingers in Final Debate**\
-`The candidates sparred over their policies, personalities and how they would deal with President Trump in the second and final debate of the mayoral campaign.`\
-https://nytimes.com/2025/10/22/nyregion/nyc-mayor-debate-zingers.html
 

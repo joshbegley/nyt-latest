@@ -1,3 +1,15 @@
+**Quote of the Day: Demand Rises and Forests Vanish In Coffee Industry’s Vicious Circle**\
+`Quotation of the Day for Thursday, October 23, 2025.`\
+https://nytimes.com/2025/10/22/pageoneplus/quote-of-the-day-demand-rises-and-forests-vanish-in-coffee-industrys-vicious-circle.html
+
+**With 1-year contract, Angels put themselves and new manager Kurt Suzuki at a disadvantage**\
+`One-year deals for a manager are nearly unheard of in baseball. With this one, the Angels are putting everyone in a tough spot.  `\
+https://nytimes.com/athletic/6741949/2025/10/22/kurt-suzuki-angels-manager-one-year-contract/
+
+**The East Wing: Before and After**\
+`Here's how the White House looked before demolition of the East Wing began, and what the president plans for it.`\
+https://nytimes.com/interactive/2025/10/22/us/politics/east-wing-trump-ballroom.html
+
 **Newsom Says Benioff Is Still ‘Family’ Despite the National Guard Remarks**\
 `Gov. Gavin Newsom has a long relationship with Marc Benioff, the chief executive of Salesforce, that dates back to a different era in San Francisco.`\
 https://nytimes.com/2025/10/22/us/gavin-newsom-marc-benioff.html
