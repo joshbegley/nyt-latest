@@ -1,3 +1,15 @@
+**The Debate Had a Lot of Housing Talk, but the Next Mayor Needs Bigger Ideas**\
+`New York has urgent housing needs. Mamdani is leading the race for mayor because of his awareness of this. But all the candidates should have bigger plans.`\
+https://nytimes.com/2025/10/23/opinion/housing-new-york-mayor-cuomo-mamdani.html
+
+**Key fantasy football questions for Week 8: Will Lamar Jackson return? Is Rome falling?**\
+`Dalton Del Don looks at the key fantasy football topics for Week 8, including hope for Lamar Jackson's return to action.`\
+https://nytimes.com/athletic/6742265/2025/10/23/key-fantasy-football-questions-week-8-lamar-jackson/
+
+**United States and European Union Impose Sanctions on Russia**\
+`President Trump announced sanctions on Lukoil and Rosneft, Russia’s two largest oil companies, while restrictions by the European Union included a ban on imports of Russian liquefied natural gas.`\
+https://nytimes.com/video/world/europe/100000010476328/trump-eu-russia-sanctions.html
+
 **Chauncey Billups and Terry Rozier arrested in federal investigation into sports betting**\
 `Billups, a Hall of Famer as a player, and Rozier will both appear in federal court on Thursday.`\
 https://nytimes.com/athletic/6743095/2025/10/23/nba-federal-gambling-investigation-arrests-investigation/
