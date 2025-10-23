@@ -1,3 +1,7 @@
+**Victor Wembanyama looks like an MVP candidate as Spurs crush Mavs in opener**\
+`In Wembanyama's first game since a blood clot ended his last season prematurely, the Spurs' 7-foot-5 star had 40 points and 15 rebounds.`\
+https://nytimes.com/athletic/6742346/2025/10/23/spurs-mavs-opener-victor-wembanyama/
+
 **The Top Three Scary Movies**\
 `Wesley Morris and Eric Hynes, a film curator, talk about some of the most memorable horror movies they’ve ever seen.`\
 https://nytimes.com/video/podcasts/100000010469470/the-top-three-scary-movies.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6741805/2025/10/23/estevao-chelsea-champions-league
 **Wrexham's first home league win since April will breathe new life into their season**\
 `A 1-0 win against struggling Oxford United has moved Phil Parkinson's team back into the Championship's mid-table `\
 https://nytimes.com/athletic/6736277/2025/10/23/wrexham-oxford-championship-parkinson-breathing-space/
-
-**Is it really ever worth reversing a transfer decision straight away in Fantasy Premier League**\
-`Holly Shand explores something of a taboo topic in FPL, where frustration and instant regret comes with the territory`\
-https://nytimes.com/athletic/6732743/2025/10/23/fantasy-premier-league-transfers-advice-regret/
 

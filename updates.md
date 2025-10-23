@@ -1,3 +1,7 @@
+**The Top Three Scary Movies**\
+`Wesley Morris and Eric Hynes, a film curator, talk about some of the most memorable horror movies they’ve ever seen.`\
+https://nytimes.com/video/podcasts/100000010469470/the-top-three-scary-movies.html
+
 **The New York Times in Print for Thursday, Oct. 23, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/23/todays-new-york-times
