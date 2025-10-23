@@ -34,7 +34,3 @@ https://nytimes.com/2025/10/23/climate/coral-bleaching-florida-staghorn-elkorn.h
 `A trove of specimens from New Mexico may help settle a long-running argument about the diversity of dinosaurs before their extinction.`\
 https://nytimes.com/2025/10/23/science/last-dinosaurs-fossils-new-mexico.html
 
-**Ranchers Say Trump’s Plan to Lower Beef Prices Is ‘Misguided’**\
-`The president wants to increase the amount of Argentine beef imports, infuriating cattle country, which is finally profitable after years of struggle.`\
-https://nytimes.com/2025/10/23/business/ranchers-trump-anger-trumps-plan-lower-beef-prices.html
-

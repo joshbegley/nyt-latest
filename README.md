@@ -1,3 +1,19 @@
+**Worker Dies After Falling at Construction Site for Hudson Tunnel Project**\
+`The man, who was working at a site at Hudson Yards in Manhattan, fell 60 feet into a pit below, according to the New York Fire Department.`\
+https://nytimes.com/2025/10/23/nyregion/construction-worker-dies-hudson-yards-nyc.html
+
+**Until Saturday: The SEC's Playoff/hot-seat extravaganza**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6744357/2025/10/23/sec-football-weekend-schedule-until-saturday/
+
+**They Jumped Off a Burning Boat and Were Rescued After 30 Hours on a Remote Island**\
+`The Coast Guard rescued three family members who were stranded on Naushon, a sparsely populated island off Martha’s Vineyard. One was in critical condition.`\
+https://nytimes.com/2025/10/23/us/family-rescue-naushon-island-cape-cod-boat-fire.html
+
+**A Mystery in Trinidad as Bodies Wash Ashore After U.S. Strikes**\
+`The U.S. campaign targeting what it says is drug trafficking from Venezuela has exposed Trinidad to the fallout: unidentified bodies with burn marks and missing limbs showing up in its territory.`\
+https://nytimes.com/2025/10/23/world/americas/trinidad-bodies-us-strike-venezuela.html
+
 **Who was the unnamed Player 3 in the N.B.A. gambling case?**\
 `By Tania Ganguli and Jonah E. Bromwich`\
 https://nytimes.com/live/2025/10/23/nyregion/nba-illegal-gambling-arrests/player-3-lebron-james
@@ -17,20 +33,4 @@ https://nytimes.com/2025/10/23/world/middleeast/trump-israel-west-bank-annexatio
 **Here’s How the Poker Scheme Worked, According to Prosecutors**\
 `The players cheated with sophisticated technology, and those who lost faced the threat of violence and extortion.`\
 https://nytimes.com/2025/10/23/nyregion/illegal-poker-games.html
-
-**Chiefs provide encouraging update on left tackle Josh Simmons**\
-`Andy Reid said Simmons is "taking care of family" and in communication with the team. The rookie could return at some point this season.`\
-https://nytimes.com/athletic/6744270/2025/10/23/chiefs-josh-simmons-absence-update/
-
-**Two New Dinosaur Fossils Emerge From the ‘Mummy Zone’**\
-`A pair of Edmontosaurus specimens found in a Wyoming dig help researchers to understand the process that led them to be mummified.`\
-https://nytimes.com/2025/10/23/science/dinosaur-mummies-wyoming.html
-
-**Heat Has Essentially Wiped Out 2 Key Coral Species on Florida Reefs**\
-`Elkhorn and staghorn coral are now functionally extinct around the state, researchers say, meaning they no longer play any significant role in their ecosystem.`\
-https://nytimes.com/2025/10/23/climate/coral-bleaching-florida-staghorn-elkorn.html
-
-**Fossils of Some of America’s Last Dinosaurs Have a Story to Tell**\
-`A trove of specimens from New Mexico may help settle a long-running argument about the diversity of dinosaurs before their extinction.`\
-https://nytimes.com/2025/10/23/science/last-dinosaurs-fossils-new-mexico.html
 
