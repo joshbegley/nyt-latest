@@ -1,3 +1,7 @@
+**From the Roosevelts to the Kennedys: A Look at the White House East Wing Trump Is Demolishing**\
+`The East Wing has been a base for the first lady, an entryway for social functions and an emergency bunker.`\
+https://nytimes.com/2025/10/22/us/politics/east-wing-white-house.html
+
 **Cuomo Joins Adams at Knicks Game. Is an Endorsement in the Cards?**\
 `Former Gov. Andrew M. Cuomo and Mayor Eric Adams looked like the best of friends as they sat together at Madison Square Garden right after the debate.`\
 https://nytimes.com/2025/10/22/nyregion/eric-adams-cuomo-knicks.html
