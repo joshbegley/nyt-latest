@@ -1,40 +1,40 @@
-**Powering Innovation: Start-Ups Rise to the World’s Energy Challenges**\
-`The world runs on electricity, but equally on the energy of innovative new ideas. What’s the best way for the sector to find and develop them?`\
-https://nytimes.com/paidpost/iberdrola/powering-innovation-start-ups-rise-to-the-worlds-energy-challenges.html
+**Chicago Bears Intel: Will early fourth-down hiccups temper Ben Johnson's aggressiveness?**\
+`The Bears hope to be an aggressive and productive fourth-down offense. But the early returns have lagged.`\
+https://nytimes.com/athletic/6740878/2025/10/23/bears-fourth-downs-ben-johnson/
 
-**Two decades ago, father-and-son photos showed what was to come for Vladimir Guerrero Jr.**\
-`Old photos have resurfaced, bringing additional meaning for the players — and the photographers.`\
-https://nytimes.com/athletic/6742113/2025/10/23/vladimir-guerrero-jr-blue-jays-expos-photos/
+**Red Wings come out flat as hot streak ends in Buffalo: 5 thoughts**\
+`The Red Wings were on their back foot early in the game and never really recovered in a 4-2 loss to the Sabres.`\
+https://nytimes.com/athletic/6742071/2025/10/23/red-wings-sabres-hot-streak/
 
-**Six NFL trades we'd like to see: Alvin Kamara to Chiefs, Trey Hendrickson to Cowboys**\
-`These proposals are high-octane, would move the needle and have significant impacts on the fortunes of teams with championship aspirations.`\
-https://nytimes.com/athletic/6737036/2025/10/23/nfl-trades-best-fits-alvin-kamara-trey-hendrickson/
+**Chiefs' Patrick Mahomes is the NFL MVP favorite. Here's where he thinks he's improved**\
+`After watching film of himself in the offseason, Mahomes is trying not to overthink things this season, and the Chiefs are benefiting.`\
+https://nytimes.com/athletic/6740978/2025/10/23/chiefs-patrick-mahomes-nfl-mvp-favorite/
 
-**Ten years into his Parkinson's diagnosis, Kirk Gibson is still changing lives in October**\
-`Gibson's most famous moment came 37 years ago this month. Now he's leading another team towards a very different goal. `\
-https://nytimes.com/athletic/6740052/2025/10/23/kirk-gibson-dodgers-tigers-world-series-parkinsons/
+**Potential trade targets: Could Cowboys make push for Maxx Crosby, Jeffery Simmons?**\
+`Cowboys have everything needed to make significant trade after acquiring two first-round picks in the Micah Parsons trade.`\
+https://nytimes.com/athletic/6740394/2025/10/23/cowboys-trade-targets-maxx-crosby-simmons/
 
-**Aaron Rodgers is a different kind of leader, one the Steelers needed**\
-`The future Hall of Fame quarterback's approach is often blunt, but teammates have come to appreciate it.`\
-https://nytimes.com/athletic/6741959/2025/10/23/aaron-rodgers-pittsburgh-steelers-leadership/
+**Big game for the Panthers? It's been a while, but they get one Sunday vs. the Bills**\
+`"We look at this as a big game," says Panthers safety Nick Scott, "because of who they are and who they’ve always been."`\
+https://nytimes.com/athletic/6741493/2025/10/23/panthers-big-game-bills-bryce-young/
 
-**Jets have a crucial quarterback decision to make — but it won’t come this week**\
-`Justin Fields or Tyrod Taylor? Aaron Glenn said on Wednesday that he won’t name who will be his starting quarterback against the Bengals.`\
-https://nytimes.com/athletic/6741150/2025/10/23/new-york-jets-qb-controversy/
+**Analyzing the Lions' defense at the bye: An excellent start to the Kelvin Sheppard era**\
+`The Lions are 5-2 and have a well-balanced, top-10 defensive unit.`\
+https://nytimes.com/athletic/6741922/2025/10/23/detroit-lions-defense-analysis-bye-aidan-hutchinson/
 
-**The New York Times International Edition in Print for Friday, Oct. 24, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/10/23/todays-new-york-times-international-edition
+**Vikings at Chargers on TNF: Broadcast predictions for the NFL's Week 8 opener**\
+`Here's what to know about Thursday's game between the Vikings and Chargers, with a few frivolities for pregame prep.`\
+https://nytimes.com/athletic/6737484/2025/10/23/vikings-chargers-justin-jefferson-tnf-prime-how-to-watch/
 
-**Tarik Skubal heads the top 10 MLB stars most likely to be traded this offseason**\
-`Free agency won't be the only avenue for teams to get big stars this offseason.`\
-https://nytimes.com/athletic/6738377/2025/10/23/mlb-offseason-trade-targets-tarik-skubal-jarren-duran/
+**Vikings-Chargers predictions: What we're watching in intriguing TNF matchup**\
+`Can Carson Wentz bounce back after a rough performance? And can the Vikings defense keep Chargers QB Justin Herbert in check?`\
+https://nytimes.com/athletic/6740775/2025/10/23/vikings-chargers-predictions-matchups-thursday-night-football/
 
-**Britain’s Labour Party Criticizes Farage Over Ties to U.S. Anti-Abortion Group**\
-`The governing party said it was “deeply concerning” that Nigel Farage’s appearance in the U.S. Congress had been brokered by an organization that helped topple Roe v. Wade.`\
-https://nytimes.com/2025/10/23/world/europe/britains-labour-party-criticizes-farage-over-ties-to-us-anti-abortion-group.html
+**New Allen Iverson docuseries on Prime Video brings light to 'The Answer'**\
+` Iverson played basketball with a fire matched by few. His docuseries on Prime Video gives more of an insight into who he is.`\
+https://nytimes.com/athletic/6737950/2025/10/23/allen-iverson-docuseries-prime-video-nba/
 
-**Rubio Says U.S. May Seek United Nations Mandate for Gaza Security Force**\
-`Before boarding a plane for Israel, Secretary of State Marco Rubio said that U.N. backing was a potential next step to deploying an international stabilization force to the war-torn enclave.`\
-https://nytimes.com/2025/10/23/world/middleeast/rubio-israel-gaza.html
+**Why haven't the WNBA and players union reached a deal?**\
+`The deadline to reach a deal is Oct. 31, but revenue sharing remains a major wedge issue. `\
+https://nytimes.com/athletic/6740675/2025/10/23/wnba-cba-players-union-deal-negotiations/
 
