@@ -1,11 +1,3 @@
-**“We sorted it out legally. Nothing came from any of the allegations. I was dropped from the cases.”**\
-`By Benjamin Oreskes`\
-https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/we-sorted-it-out-legally-nothing-came-from-any-of-the-allegations-i-was-dropped-from-the-cases
-
-**“They’ve heard some of the statements you’ve made, like in support of global jihad.”**\
-`By Benjamin Oreskes`\
-https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/theyve-heard-some-of-the-statements-youve-made-like-in-support-of-global-jihad
-
 **Trump Imposes Sanctions on Russian Oil Companies as His Frustration With Putin Mounts**\
 `The sanctions are among the most significant measures that the United States has taken against the Russian energy sector since the beginning of the war in Ukraine.`\
 https://nytimes.com/2025/10/22/us/politics/trump-sanctions-russia-ukraine.html
@@ -37,4 +29,12 @@ https://nytimes.com/video/world/middleeast/100000010475477/world-middle-east-gaz
 **The White House Wrecking Ball**\
 `President Trump’s demolition of the East Wing has struck a nerve in Washington and beyond.`\
 https://nytimes.com/2025/10/22/us/politics/trump-white-house-demolition.html
+
+**Emmanuel Clase wants to pitch in Venezuela while under investigation, but Guardians say no**\
+`Clase is under investigation by MLB as part of a betting probe, and has been on paid leave since July. `\
+https://nytimes.com/athletic/6741459/2025/10/22/emmanuel-clase-venezuela-pitch-mlb-gambling-investigation/
+
+**Jaedyn Shaw on her road back to the USWNT: 'I feel very free'**\
+`The 20-year-old has spent the last year thinking intentionally about her future and making corresponding moves for club and country.`\
+https://nytimes.com/athletic/6738714/2025/10/22/jaedyn-shaw-gotham-fc-uswnt-return/
 
