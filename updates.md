@@ -1,3 +1,7 @@
+**Should Rams trade for a cornerback? Quentin Lake extension coming? Mailbag**\
+`We answer questions about the Rams' cornerback situation, the offense's success in different personnel packages and more.`\
+https://nytimes.com/athletic/6741209/2025/10/23/rams-mailbag-cornerback-trade-quentin-lake/
+
 **Cyclist Sehili freed by Russian court after detention during world record attempt**\
 `Sehili had been embarking on an attempted world record ride across Eurasia when he was detained on September 4, 2025`\
 https://nytimes.com/athletic/6742888/2025/10/23/cycling-sofiane-sehili-russia-world-record/
