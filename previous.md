@@ -1,3 +1,11 @@
+**Rubio Says U.S. May Seek United Nations Mandate for Gaza Security Force**\
+`Before boarding a plane for Israel, Secretary of State Marco Rubio said that U.N. backing was a potential next step to deploying an international stabilization force to the war-torn enclave.`\
+https://nytimes.com/2025/10/23/world/middleeast/rubio-israel-gaza.html
+
+**Horror Movie Halloween Special: The Dread Under the Bed**\
+`Wesley Morris and Eric Hynes, a film curator, talk about some of the most memorable horror movies they’ve ever seen.`\
+https://nytimes.com/video/podcasts/100000010469463/horror-movie-halloween-special-the-dread-under-the-bed.html
+
 **How Women Destroyed the West**\
 `The new right pines for a story that would vindicate its reactionary rage.`\
 https://nytimes.com/2025/10/23/opinion/helen-andrews-feminization-compact.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/23/learning/high-school-reading-skills-are-at-a-new-
 **Late Night Responds to Trump’s Justice Department Query**\
 `The “Daily Show” host Michael Kosta said the president seeking compensation shouldn’t be a surprise: “Trump sues people more often than Barron gets hit by a sea gull.”`\
 https://nytimes.com/2025/10/23/arts/television/late-night-trump-justice-department.html
-
-**We Can Survive an A.I. Bust**\
-`We’ve been here before.`\
-https://nytimes.com/2025/10/23/opinion/ai-bubble-economy-bust.html
-
-**Francis Ford Coppola, Who Says He’s ‘Broke,’ Is Selling a $1 Million Watch**\
-`The famed director will put some pieces from his personal collection up for auction later this year.`\
-https://nytimes.com/2025/10/23/fashion/francis-ford-coppola-who-says-hes-broke-is-selling-a-1-million-watch.html
 

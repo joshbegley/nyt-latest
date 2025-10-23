@@ -1,3 +1,7 @@
+**Britain’s Labour Party Criticizes Farage Over Ties to U.S. Anti-Abortion Group**\
+`The governing party said it was “deeply concerning” that Nigel Farage’s appearance in the U.S. Congress had been brokered by an organization that helped topple Roe v. Wade.`\
+https://nytimes.com/2025/10/23/world/europe/britains-labour-party-criticizes-farage-over-ties-to-us-anti-abortion-group.html
+
 **Rubio Says U.S. May Seek United Nations Mandate for Gaza Security Force**\
 `Before boarding a plane for Israel, Secretary of State Marco Rubio said that U.N. backing was a potential next step to deploying an international stabilization force to the war-torn enclave.`\
 https://nytimes.com/2025/10/23/world/middleeast/rubio-israel-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/23/opinion/no-kings-trump-democrats.html
 **High School Reading Skills Are at a New Low. What Does That Mean for Young People?**\
 `How urgent is this issue? What could happen if students graduate high school without learning to read well?`\
 https://nytimes.com/2025/10/23/learning/high-school-reading-skills-are-at-a-new-low-what-does-that-mean-for-young-people.html
-
-**Late Night Responds to Trump’s Justice Department Query**\
-`The “Daily Show” host Michael Kosta said the president seeking compensation shouldn’t be a surprise: “Trump sues people more often than Barron gets hit by a sea gull.”`\
-https://nytimes.com/2025/10/23/arts/television/late-night-trump-justice-department.html
 

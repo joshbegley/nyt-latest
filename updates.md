@@ -1,3 +1,11 @@
+**Rubio Says U.S. May Seek United Nations Mandate for Gaza Security Force**\
+`Before boarding a plane for Israel, Secretary of State Marco Rubio said that U.N. backing was a potential next step to deploying an international stabilization force to the war-torn enclave.`\
+https://nytimes.com/2025/10/23/world/middleeast/rubio-israel-gaza.html
+
+**Horror Movie Halloween Special: The Dread Under the Bed**\
+`Wesley Morris and Eric Hynes, a film curator, talk about some of the most memorable horror movies they’ve ever seen.`\
+https://nytimes.com/video/podcasts/100000010469463/horror-movie-halloween-special-the-dread-under-the-bed.html
+
 **How Women Destroyed the West**\
 `The new right pines for a story that would vindicate its reactionary rage.`\
 https://nytimes.com/2025/10/23/opinion/helen-andrews-feminization-compact.html
