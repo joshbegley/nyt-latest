@@ -1,3 +1,31 @@
+**E.U. Approves Sweeping Sanctions Targeting Russian Gas and Crypto**\
+`European leaders signed off on the new measures just hours after President Trump imposed sanctions on Russia’s two biggest oil companies.`\
+https://nytimes.com/2025/10/23/world/europe/eu-russia-sanctions.html
+
+**Fear and Anger Fill New York’s Canal Street After Immigration Raid**\
+`The famous shopping strip, usually teeming with street vendors, turned quiet a day after federal agents descended.`\
+https://nytimes.com/2025/10/23/nyregion/nyc-canal-street-fear-anger.html
+
+**Cuomo Paints Dire Picture of New York Under Mamdani as Election Nears**\
+`Andrew Cuomo is trying to close ground in the New York City mayor’s race by escalating his warnings that “mayhem” would follow a victory by Zohran Mamdani.`\
+https://nytimes.com/2025/10/23/nyregion/cuomo-debate-mamdani.html
+
+**People and Signs**\
+`This image comes from a recent news event. Do you know what it is?`\
+https://nytimes.com/2025/10/23/learning/people-and-signs.html
+
+**Spurs appoint American Hinson to board as non-executive director**\
+`The new appointee is an American aviation executive who will join as the fifth member of Spurs’ new-look board.`\
+https://nytimes.com/athletic/6742614/2025/10/23/tottenham-news-board-director-appoint/
+
+**Is It ‘Subsidizing the Rich’ to Make Buses and Child Care Free for All?**\
+`Zohran Mamdani, the front-runner in the New York City mayor’s race, would make some public benefits available to everyone. Andrew Cuomo, his top challenger, wants to help the neediest residents.`\
+https://nytimes.com/2025/10/23/nyregion/mamdani-cuomo-free-city-services.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/23/crosswords/spelling-bee-forum.html
+
 **Americans Have Lost Billions to Online Scams. How Is That Possible?**\
 `The U.S., Britain and South Korea have joined a crackdown on groups running frauds from Southeast Asia. They have their work cut out.`\
 https://nytimes.com/2025/10/23/world/asia/scam-centers-myanmar-cambodia.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6742528/2025/10/23/commanders-vs-chiefs-stream-how-
 **Danny Higginbotham was afraid to fly. Then he tried hypnosis**\
 `As a defender in the English Premier League for 12 years, Higginbotham rarely had to fly. Only later did it become a big problem.`\
 https://nytimes.com/athletic/6741059/2025/10/23/danny-higginbotham-premier-league-hypnosis-flying/
-
-**Word of the Day: stentorian**\
-`This word has appeared in seven articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/10/23/learning/word-of-the-day-stentorian.html
-
-**How Europe Is Trying to Turn Frozen Russian Assets Into Cash for Ukraine**\
-`European Union officials could reach a political agreement as soon as Thursday on a plan for a huge loan to Ukraine backed by Kremlin money frozen in a Belgian financial institution.`\
-https://nytimes.com/2025/10/23/world/europe/russia-frozen-assets-european-union.html
-
-**Igor Tudor will not experience much patience at Juventus, where 'transition' is a taboo term**\
-`Juve's head coach pleaded for perspective after his team were bested by Real Madrid but that's not how the cookie crumbles in Turin`\
-https://nytimes.com/athletic/6741350/2025/10/23/juventus-igor-tudor-champions-league-madrid/
-
-**Victor Wembanyama looks like an MVP candidate as Spurs crush Mavs in opener**\
-`In Wembanyama's first game since a blood clot ended his last season prematurely, the Spurs' 7-foot-5 star had 40 points and 15 rebounds.`\
-https://nytimes.com/athletic/6742346/2025/10/23/spurs-mavs-opener-victor-wembanyama/
-
-**The Top Three Scary Movies**\
-`Wesley Morris and Eric Hynes, a film curator, talk about some of the most memorable horror movies they’ve ever seen.`\
-https://nytimes.com/video/podcasts/100000010469470/the-top-three-scary-movies.html
-
-**The New York Times in Print for Thursday, Oct. 23, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/10/23/todays-new-york-times
-
-**Liverpool confront the unthinkable: Does Salah merit a place in their best XI?**\
-`The Egyptian's record is virtually unsurpassed but Liverpool thrived in his absence at Eintracht Frankfurt `\
-https://nytimes.com/athletic/6740732/2025/10/23/mohamed-salah-liverpool-dropped-team/
 
