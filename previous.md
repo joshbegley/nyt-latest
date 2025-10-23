@@ -14,8 +14,8 @@ https://nytimes.com/athletic/6742666/2025/10/23/phoenix-suns-sacramento-kings-jo
 `Dundon and Tyle were invited by Jody Allen to get the lay of the land, learning the value of a superstar and the arena's traffic problems.`\
 https://nytimes.com/athletic/6742663/2025/10/23/blazers-opener-tom-dundon-sheel-tyle/
 
-**Heat's Terry Rozier arrested in federal investigation into illegal sports betting**\
-`Miami Heat's Terry Rozier arrested by FBI in illegal sports betting investigation`\
+**Chauncey Billups and Terry Rozier arrested in federal investigation into sports betting**\
+`Billups, a Hall of Famer as a player, and Rozier were both arrested on Wednesday.`\
 https://nytimes.com/athletic/6743095/2025/10/23/terry-rozier-arrested-fbi-gambling-investigation/
 
 **Trump Administration Live Updates: Vance Says International Security Force Will Lead on Disarming Hamas**\

@@ -1,3 +1,7 @@
+**Chauncey Billups and Terry Rozier arrested in federal investigation into sports betting**\
+`Billups, a Hall of Famer as a player, and Rozier were both arrested on Wednesday.`\
+https://nytimes.com/athletic/6743095/2025/10/23/terry-rozier-arrested-fbi-gambling-investigation/
+
 **Cam Ward asks reporters to recite play calls, met with silence**\
 `It has not been an easy rookie season for No.`\
 https://nytimes.com/athletic/6743025/2025/10/23/titans-qb-cam-ward-asks-reporters-to-recite-play-calls-met-with-silence/
