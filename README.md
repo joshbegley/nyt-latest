@@ -1,3 +1,15 @@
+**Submit questions for Matt Gelb's Phillies mailbag**\
+`What questions do you have about the Phillies as they prepare for a critical offseason? Submit them here.`\
+https://nytimes.com/athletic/6743363/2025/10/23/submit-questions-for-matt-gelbs-phillies-mailbag/
+
+**Pistons wait too late to show 'sense of urgency' in season-opening loss to Bulls**\
+`"We are, obviously, still a work in progress," says head coach J.B. Bickerstaff after Wednesday's loss. `\
+https://nytimes.com/athletic/6742621/2025/10/23/pistons-season-opener-loss-bulls-cade-cunningham/
+
+**Myles Turner, 3-point shooting, faster pace all positives in Bucks' winning formula**\
+`Giannis Antetokounmpo had a big game, but he praised the Bucks for following a preseason formula in Wednesday's season-opening victory.`\
+https://nytimes.com/athletic/6742750/2025/10/23/bucks-myles-turner-giannis-nba-shooting-pace/
+
 **The Debate Had a Lot of Housing Talk, but the Next Mayor Needs Bigger Ideas**\
 `New York has urgent housing needs. Mamdani is leading the race for mayor because of his awareness of this. But all the candidates should have bigger plans.`\
 https://nytimes.com/2025/10/23/opinion/housing-new-york-mayor-cuomo-mamdani.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/23/arts/music/kennedy-center-national-anthem.html
 **Assessing the Kings' bumpy start to the season: The good, bad and ugly**\
 `The Kings have started 2-3-2 and they're still trying to build momentum as players shake off injury and others find their scoring touch.`\
 https://nytimes.com/athletic/6742050/2025/10/23/kings-2025-26-season-start-analysis/
-
-**Cam Ward asks reporters to recite play calls, is met with silence**\
-`Titans rookie quarterback Cam Ward jokingly quizzed reporters on play calls Wednesday and it ... did not go well for the reporters.`\
-https://nytimes.com/athletic/6743025/2025/10/23/titans-qb-cam-ward-asks-reporters-to-recite-play-calls-met-with-silence/
-
-**USWNT players going to Europe isn’t an exodus. It’s an evolution**\
-`The growing global nature of women's soccer is giving players a choice and forcing the NWSL to keep pushing its standards higher`\
-https://nytimes.com/athletic/6742302/2025/10/23/women-soccer-uswnt-european-league-players/
-
-**In Phoenix Suns' opening win, the foundation Jordan Ott has been building paid off**\
-`The NBA is a players league, so the Suns new head coach has gone mostly overlooked. But his performance this season might be most important.`\
-https://nytimes.com/athletic/6742666/2025/10/23/phoenix-suns-sacramento-kings-jordan-ott-debut-opener/
 
