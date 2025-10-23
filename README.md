@@ -1,3 +1,7 @@
+**Blazers name Tiago Splitter interim coach amid NBA betting investigation**\
+`Splitter was the head coach of Paris Basketball last year and played in the NBA from 2010 to 2017.`\
+https://nytimes.com/athletic/6744116/2025/10/23/nba-betting-investigation-blazers-coach-splitter/
+
 **New Yorkers on Their Hopes for the Future of the City**\
 `Readers share their wishes, predictions and wildest dreams for what’s to come in transit, housing, arts and more.`\
 https://nytimes.com/2025/10/23/nyregion/new-york-future-wishes-predictions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/23/learning/whats-going-on-in-this-graph-oct-29-2025
 **New York City’s Mob Families Are Still in Business**\
 `The criminal organizations were mentioned prominently in a charging document that accused N.B.A. stars of recruiting players for illegal poker games.`\
 https://nytimes.com/2025/10/23/nyregion/nba-gambling-mafia-gambino-genovese-bonanno-luchese.html
-
-**Worker Dies After Falling at Construction Site for Hudson Tunnel Project**\
-`The man, who was working at a site at Hudson Yards in Manhattan, fell 60 feet into a pit below, according to the New York Fire Department.`\
-https://nytimes.com/2025/10/23/nyregion/construction-worker-dies-hudson-yards-nyc.html
 
