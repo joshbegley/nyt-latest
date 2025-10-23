@@ -1,3 +1,15 @@
+**The Debate Had a Lot of Housing Talk, but the Next Mayor Needs Bigger Ideas**\
+`New York has urgent housing needs. Mamdani is leading the race for mayor because of his awareness of this. But all the candidates should have bigger plans.`\
+https://nytimes.com/2025/10/23/opinion/housing-new-york-mayor-cuomo-mamdani.html
+
+**Key fantasy football questions for Week 8: Will Lamar Jackson return? Is Rome falling?**\
+`Dalton Del Don looks at the key fantasy football topics for Week 8, including hope for Lamar Jackson's return to action.`\
+https://nytimes.com/athletic/6742265/2025/10/23/key-fantasy-football-questions-week-8-lamar-jackson/
+
+**United States and European Union Impose Sanctions on Russia**\
+`President Trump announced sanctions on Lukoil and Rosneft, Russia’s two largest oil companies, while restrictions by the European Union included a ban on imports of Russian liquefied natural gas.`\
+https://nytimes.com/video/world/europe/100000010476328/trump-eu-russia-sanctions.html
+
 **King Charles Prays With Pope in Groundbreaking Moment**\
 `King Charles III prayed with Pope Leo XIV in the Sistine Chapel on Thursday, marking the first time in modern history that the leaders of the Anglican and Catholic churches prayed together.`\
 https://nytimes.com/video/world/europe/100000010476218/king-charles-pope-leo-praying.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6742302/2025/10/23/women-soccer-uswnt-european-leag
 **In Phoenix Suns' opening win, the foundation Jordan Ott has been building paid off**\
 `The NBA is a players league, so the Suns new head coach has gone mostly overlooked. But his performance this season might be most important.`\
 https://nytimes.com/athletic/6742666/2025/10/23/phoenix-suns-sacramento-kings-jordan-ott-debut-opener/
-
-**As Blazers lose opener in agonizing fashion, two important visitors take it all in**\
-`Dundon and Tyle were invited by Jody Allen to get the lay of the land, learning the value of a superstar and the arena's traffic problems.`\
-https://nytimes.com/athletic/6742663/2025/10/23/blazers-opener-tom-dundon-sheel-tyle/
-
-**Chauncey Billups and Terry Rozier arrested in federal investigation into sports betting**\
-`Billups, a Hall of Famer as a player, and Rozier will both appear in federal court on Thursday.`\
-https://nytimes.com/athletic/6743095/2025/10/23/nba-federal-gambling-investigation-arrests-investigation/
-
-**Trump Administration Live Updates: Vance Says International Security Force Will Lead on Disarming Hamas**\
-``\
-https://nytimes.com/live/2025/10/23/us/trump-news
 
