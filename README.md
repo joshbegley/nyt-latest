@@ -27,7 +27,7 @@ https://nytimes.com/2025/10/23/nyregion/mamdani-cuomo-free-city-services.html
 https://nytimes.com/2025/10/23/crosswords/spelling-bee-forum.html
 
 **Americans Have Lost Billions to Online Scams. How Is That Possible?**\
-`The U.S., Britain and South Korea have joined a crackdown on groups running frauds from Southeast Asia. They have their work cut out.`\
+`The United States, Britain and South Korea have joined a crackdown on groups running frauds from Southeast Asia. They have their work cut out.`\
 https://nytimes.com/2025/10/23/world/asia/scam-centers-myanmar-cambodia.html
 
 **How to watch Commanders vs. Chiefs: Time, TV, streaming**\
