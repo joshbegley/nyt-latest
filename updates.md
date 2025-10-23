@@ -1,3 +1,11 @@
+**Lando Norris' McLaren 'repercussions' removed after Austin crash review**\
+`Lando Norris' minor sporting sanctions removed by McLaren as it deems Piastri must share blame for Austin sprint race crash`\
+https://nytimes.com/athletic/6744761/2025/10/23/lando-norris-mclaren-repercussions-removed-with-piastri-responsible-for-austin-crash/
+
+**William Nylander, Auston Matthews join forces: 3 thoughts on Leafs' lineup shuffle**\
+`The decision to pair up the two best players on the team is an interesting one. What might it do for Toronto and the two stars in question?`\
+https://nytimes.com/athletic/6744423/2025/10/23/maple-leafs-lineup-william-nylander-auston-matthews/
+
 **Pakistan Bans Radical Islamist Party After Deadly Clashes**\
 `The move underscores the country’s struggle to contain religious extremism without provoking influential clerics who can summon thousands of supporters to the streets.`\
 https://nytimes.com/2025/10/23/world/asia/pakistan-bans-islamist-party.html

@@ -1,6 +1,10 @@
+**Bay Area Protesters Try to Block Base Entrance Before Immigration Operation**\
+`On Thursday, about 200 people attempted to block vehicles from entering a Coast Guard base in Alameda, Calif., which federal officials were planning on using for upcoming raids. President Trump later called off the operation.`\
+https://nytimes.com/video/us/politics/100000010477756/san-francisco-federal-deployment-canceled.html
+
 **Lando Norris' McLaren 'repercussions' removed after Austin crash review**\
 `Lando Norris' minor sporting sanctions removed by McLaren as it deems Piastri must share blame for Austin sprint race crash`\
-https://nytimes.com/athletic/6744761/2025/10/23/lando-norris-mclaren-repercussions-removed-with-piastri-responsible-for-austin-crash/
+https://nytimes.com/athletic/6744761/2025/10/23/lando-norris-mclaren-repercussions-removed/
 
 **William Nylander, Auston Matthews join forces: 3 thoughts on Leafs' lineup shuffle**\
 `The decision to pair up the two best players on the team is an interesting one. What might it do for Toronto and the two stars in question?`\
@@ -23,7 +27,7 @@ https://nytimes.com/2025/10/23/nyregion/who-is-chauncey-billups.html
 https://nytimes.com/2025/10/23/us/anglican-church-stephen-wood.html
 
 **Arsenal had to make a special case for Max Dowman - his super talent merits it**\
-`Arsenal have managed to sign Max Dowman to scholarship terms. A professional contract is expected to follow when he turns 17`\
+`Arsenal have managed to sign the 15-year-old to scholarship terms. A professional contract is expected to follow when he turns 17...`\
 https://nytimes.com/athletic/6744503/2025/10/23/max-dowman-arsenal-contract-analysis/
 
 **NFL Week 8 projected scores: Model predicts point spreads and totals for every game**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6741904/2025/10/23/nfl-week-8-projected-scores-mode
 **After Ordering a Record Cannabis Recall, N.Y. Regulators Go Quiet**\
 `Critics complain that state officials have given little guidance since ordering a recall of some $30 million in cannabis products. The delay, they say, could undermine confidence in the legal market.`\
 https://nytimes.com/2025/10/23/nyregion/new-york-cannabis-recall-marijuana.html
-
-**A Pile of Rubble: After 123 Years, the East Wing Is Gone**\
-`Mourners are outraged over President Trump’s demolition of the East Wing to make way for his $300 million ballroom. Others say it was time for change.`\
-https://nytimes.com/2025/10/23/us/politics/east-wing-obituary.html
 
