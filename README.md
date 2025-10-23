@@ -1,3 +1,7 @@
+**With 1-year contract, Angels put themselves and new manager Kurt Suzuki at a disadvantage**\
+`One-year deals for a manager are nearly unheard of in baseball. With this one, the Angels are putting everyone in a tough spot.  `\
+https://nytimes.com/athletic/6741949/2025/10/22/kurt-suzuki-angels-both-at-a-disadvantage-with-the-new-managers-1-year-contract/
+
 **The East Wing: Before and After**\
 `Here's how the White House looked before and after demolition of the East Wing began, and what the president plans for it.`\
 https://nytimes.com/interactive/2025/10/22/us/politics/east-wing-trump-ballroom.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/22/nyregion/nyc-mayor-debate-zingers.html
 **7 Takeaways From the Final N.Y.C. Mayoral Debate**\
 `Zohran Mamdani, Andrew M. Cuomo and Curtis Sliwa continued attacking one another, with Mr. Mamdani and Mr. Cuomo the main targets.`\
 https://nytimes.com/2025/10/22/nyregion/nyc-mayor-debate-takeaways.html
-
-**Site of a Huge Annual Crowd**\
-`Aimee Lucido wants us to worm our way out of this one.`\
-https://nytimes.com/2025/10/22/crosswords/daily-puzzle-2025-10-23.html
 

@@ -1,3 +1,7 @@
+**The East Wing: Before and After**\
+`Here's how the White House looked before and after demolition of the East Wing began, and what the president plans for it.`\
+https://nytimes.com/interactive/2025/10/22/us/politics/east-wing-trump-ballroom.html
+
 **Inconsistency rears again to end Wild road trip with drubbing from Devils**\
 `The Wild went 1-3-1 on their road trip, which served as a reality check in terms of how far they still need to go.`\
 https://nytimes.com/athletic/6742048/2025/10/22/wild-inconsistency-devils-road-trip/

@@ -1,3 +1,7 @@
+**The East Wing: Before and After**\
+`Here's how the White House looked before and after demolition of the East Wing began, and what the president plans for it.`\
+https://nytimes.com/interactive/2025/10/22/us/politics/east-wing-trump-ballroom.html
+
 **Inconsistency rears again to end Wild road trip with drubbing from Devils**\
 `The Wild went 1-3-1 on their road trip, which served as a reality check in terms of how far they still need to go.`\
 https://nytimes.com/athletic/6742048/2025/10/22/wild-inconsistency-devils-road-trip/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/22/nyregion/nyc-mayor-debate-takeaways.html
 **Site of a Huge Annual Crowd**\
 `Aimee Lucido wants us to worm our way out of this one.`\
 https://nytimes.com/2025/10/22/crosswords/daily-puzzle-2025-10-23.html
-
-**How China Raced Ahead of the U.S. on Nuclear Power**\
-`The United States was once the undisputed leader in atomic energy. Now it is trying to catch up.`\
-https://nytimes.com/interactive/2025/10/22/climate/china-us-nuclear-energy-race.html
 
