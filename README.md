@@ -1,3 +1,11 @@
+**Cam Ward asks reporters to recite play calls, met with silence**\
+`It has not been an easy rookie season for No.`\
+https://nytimes.com/athletic/6743025/2025/10/23/titans-qb-cam-ward-asks-reporters-to-recite-play-calls-met-with-silence/
+
+**USWNT players going to Europe isn’t an exodus. It’s an evolution**\
+`The growing global nature of women's soccer is giving players a choice and forcing the NWSL to keep pushing its standards higher`\
+https://nytimes.com/athletic/6742302/2025/10/23/women-soccer-uswnt-european-league-players/
+
 **In Phoenix Suns' opening win, the foundation Jordan Ott has been building paid off**\
 `The NBA is a players league, so the Suns new head coach has gone mostly overlooked. But his performance this season might be most important.`\
 https://nytimes.com/athletic/6742666/2025/10/23/phoenix-suns-sacramento-kings-jordan-ott-debut-opener/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6738535/2025/10/23/blue-jays-dodgers-world-series-v
 **How Alejandro Zendejas found his way to América's spotlight – and USMNT's World Cup radar**\
 `The Club América attacker has not taken the cleanest or most direct path to stardom, but he's still firmly in frame for club and country`\
 https://nytimes.com/athletic/6740704/2025/10/23/alejandro-zendejas-club-america-usmnt-world-cup-mexico/
-
-**The Chargers' 2 biggest issues and how they can go about fixing them**\
-`The Chargers are allowing too many explosive plays on defense and allowing Justin Herbert to be pressured way too often. `\
-https://nytimes.com/athletic/6741012/2025/10/23/chargers-biggest-issues-solutions-vikings-tnf/
-
-**From rinks in Toronto to pubs in Vancouver, the Blue Jays are uniting Canadians**\
-`Canadians at The Athletic told us that communities nationwide are setting aside hockey rivalries and old Expos wounds to back the Jays.`\
-https://nytimes.com/athletic/6737589/2025/10/23/blue-jays-world-series-canadas-team-2025/
 

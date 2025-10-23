@@ -1,4 +1,12 @@
-**Miami Heat's Terry Rozier arrested in federal investigation into illegal sports betting**\
+**In Phoenix Suns' opening win, the foundation Jordan Ott has been building paid off**\
+`The NBA is a players league, so the Suns new head coach has gone mostly overlooked. But his performance this season might be most important.`\
+https://nytimes.com/athletic/6742666/2025/10/23/phoenix-suns-sacramento-kings-jordan-ott-debut-opener/
+
+**As Blazers lose opener in agonizing fashion, two important visitors take it all in**\
+`Dundon and Tyle were invited by Jody Allen to get the lay of the land, learning the value of a superstar and the arena's traffic problems.`\
+https://nytimes.com/athletic/6742663/2025/10/23/blazers-opener-tom-dundon-sheel-tyle/
+
+**Heat's Terry Rozier arrested in federal investigation into illegal sports betting**\
 `Miami Heat's Terry Rozier arrested by FBI in illegal sports betting investigation`\
 https://nytimes.com/athletic/6743095/2025/10/23/terry-rozier-arrested-fbi-gambling-investigation/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6741012/2025/10/23/chargers-biggest-issues-solution
 **From rinks in Toronto to pubs in Vancouver, the Blue Jays are uniting Canadians**\
 `Canadians at The Athletic told us that communities nationwide are setting aside hockey rivalries and old Expos wounds to back the Jays.`\
 https://nytimes.com/athletic/6737589/2025/10/23/blue-jays-world-series-canadas-team-2025/
-
-**Jets will face decisions on forward lines, defence pairings when key players come back**\
-`How do the Jets (5-1-0) integrate three key players who are expected to join the team within a few weeks?`\
-https://nytimes.com/athletic/6740737/2025/10/23/projecting-jets-lineup-lowry-samberg-perfetti/
-
-**Notre Dame midseason superlatives: Bad omens, second-half MVPs and the path to 10-2**\
-`The Irish appear to be on a smooth road to the College Football Playoff, again closing on a 10-game win streak.`\
-https://nytimes.com/athletic/6741456/2025/10/23/notre-dame-midseason-superlatives/
 

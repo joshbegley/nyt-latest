@@ -1,3 +1,15 @@
+**In Phoenix Suns' opening win, the foundation Jordan Ott has been building paid off**\
+`The NBA is a players league, so the Suns new head coach has gone mostly overlooked. But his performance this season might be most important.`\
+https://nytimes.com/athletic/6742666/2025/10/23/phoenix-suns-sacramento-kings-jordan-ott-debut-opener/
+
+**As Blazers lose opener in agonizing fashion, two important visitors take it all in**\
+`Dundon and Tyle were invited by Jody Allen to get the lay of the land, learning the value of a superstar and the arena's traffic problems.`\
+https://nytimes.com/athletic/6742663/2025/10/23/blazers-opener-tom-dundon-sheel-tyle/
+
+**Heat's Terry Rozier arrested in federal investigation into illegal sports betting**\
+`Miami Heat's Terry Rozier arrested by FBI in illegal sports betting investigation`\
+https://nytimes.com/athletic/6743095/2025/10/23/terry-rozier-arrested-fbi-gambling-investigation/
+
 **Miami Heat's Terry Rozier arrested in federal investigation into illegal sports betting**\
 `Miami Heat's Terry Rozier arrested by FBI in illegal sports betting investigation`\
 https://nytimes.com/athletic/6743095/2025/10/23/terry-rozier-arrested-fbi-gambling-investigation/
