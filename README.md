@@ -1,3 +1,27 @@
+**LeBron James did not play in Feb. 9, 2023 game**\
+`The Feb. 9, 2023, game between the Bucks and Lakers that was referenced in the indictment was one that LeBron James did not play in. He...`\
+https://nytimes.com/athletic/6743596/2025/10/23/lebon-james-damon-jones-nba-gambling-investigation/
+
+**Senators notebook: Tkachuk discusses injury, Spence talks being scratched, again**\
+`Brady Tkachuk is able to skate, but he's still a month away from stickhandling drills as he recovers from right thumb surgery last week.`\
+https://nytimes.com/athletic/6740660/2025/10/23/senators-tkachuk-spence-notebook/
+
+**My Love Affair With Bruno Mars**\
+`Wesley Morris invites his friend, the culture writer Niela Orr, to talk about his complicated love of Bruno Mars.`\
+https://nytimes.com/video/podcasts/100000010447024/bruno-mars-cannonball-wesley-morris.html
+
+**The Diddy Trial Is Over, but My Mind Is Still Racing**\
+`Wesley Morris talks about what he saw during the trial of Sean “Diddy” Combs with guest John White.`\
+https://nytimes.com/video/podcasts/100000010447239/sean-diddy-combs-verdict-cannonball-wesley-morris.html
+
+**The Closet in Pee-wee’s Playhouse**\
+`Wesley Morris talks with the writer Mark Harris about the new HBO documentary “Pee-wee as Himself.”`\
+https://nytimes.com/video/podcasts/100000010447338/pee-wee-herman-cannonball-wesley-morris.html
+
+**Why Canucks should be willing to overpay in trade for short-term centre help**\
+`The Canucks' needs at centre are dire enough to demand an unusual level of aggression this early in the season.`\
+https://nytimes.com/athletic/6742444/2025/10/23/vancouver-canucks-trade-centres-injuries/
+
 **Has Dining Gotten Too Fine on ‘The Bear’?**\
 `Samin Nosrat, a chef and food writer, joins Wesley Morris to talk about cooking and the latest season of “The Bear.”`\
 https://nytimes.com/video/podcasts/100000010447207/has-dining-gotten-too-fine-on-the-bear.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/10/23/nyregion/adams-endorse-cuomo-nyc-mayor.html
 **Hurricanes reunite with Rantanen and Necas: Did anyone win the trades?**\
 `Carolina plays Colorado and Dallas this week, so let's revisit the deals that helped reshape three contending teams.`\
 https://nytimes.com/athletic/6742278/2025/10/23/hurricanes-stars-avalanche-rantanen/
-
-**She Made Sure That Tsunami Warnings Reached the Public**\
-`“I always wanted to be a public servant and do science for the good of the people,” said Corina Allen, who lost her job at NOAA.`\
-https://nytimes.com/2025/10/23/climate/tsunami-warnings-alerts-noaa.html
-
-**Don’t Let the Vampires In**\
-`The writer Rembert Browne joins Wesley Morris to talk about Ryan Coogler’s vampire movie “Sinners.”`\
-https://nytimes.com/video/podcasts/100000010462823/sinners-movie-ryan-coogler-cannonball.html
-
-**Beyoncé Isn’t Giving Up on America**\
-`Salamishah Tillet, a Times contributing critic and a professor who teaches about Beyoncé, joins Wesley Morris to talk about her latest tour.`\
-https://nytimes.com/video/podcasts/100000010447514/beyonce-live-cowboy-carter.html
-
-**Fantasy football injuries, inactives, cheat sheet Week 8**\
-`Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 8 player rankings and more.`\
-https://nytimes.com/athletic/6740610/2025/10/23/fantasy-football-injuries-inactives-cheat-sheet-week-8/
-
-**‘And Just Like That …’ Is Over Too Soon**\
-`The writer Taffy Brodesser-Akner joins Wesley Morris to talk about the end of the “Sex and the City” reboot.`\
-https://nytimes.com/video/podcasts/100000010452822/and-just-like-that-sex-in-the-city-cannonball.html
-
-**Is the New Spike Lee Joint Serving Pound Cake?**\
-`Vinson Cunningham, a critic with The New Yorker, joins Wesley Morris to talk about Spike Lee’s latest film, “Highest 2 Lowest.”`\
-https://nytimes.com/video/podcasts/100000010452235/is-the-new-spike-lee-joint-serving-pound-cake.html
 
