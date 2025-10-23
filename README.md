@@ -1,3 +1,11 @@
+**“His position has been to defund, disband, the police.”**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/mamdani-cuomo-police
+
+**Drew Gilbert on what Giants can expect from Tony Vitello: 'He knows how to compete'**\
+`The Giants made an unprecedented hire of a college coach to try to end a four-year postseason drought.`\
+https://nytimes.com/athletic/6741550/2025/10/22/giants-tony-vitello-drew-gilbert/
+
 **“We sorted it out legally. Nothing came from any of the allegations. I was dropped from the cases.”**\
 `By Benjamin Oreskes`\
 https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/we-sorted-it-out-legally-nothing-came-from-any-of-the-allegations-i-was-dropped-from-the-cases
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/you-could-turn-on-
 **Pentagon Announces ‘Next Generation’ Press Corps**\
 `The Defense Department said that dozens of new reporters had agreed to sign the Pentagon’s rules on reporting, which have been rejected by many major news organizations.`\
 https://nytimes.com/2025/10/22/business/media/pentagon-press-reporters.html
-
-**Dozens of Unidentified Palestinians Buried in Mass Grave in Gaza**\
-`The bodies of 54 unidentified Palestinians were laid to rest at a mass burial site in Gaza. The bodies were returned by Israel to Gaza as part of the cease-fire deal.`\
-https://nytimes.com/video/world/middleeast/100000010475477/world-middle-east-gaza-mass-burials.html
-
-**The White House Wrecking Ball**\
-`President Trump’s demolition of the East Wing has struck a nerve in Washington and beyond.`\
-https://nytimes.com/2025/10/22/us/politics/trump-white-house-demolition.html
 
