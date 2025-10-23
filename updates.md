@@ -1,3 +1,7 @@
+**Powering Innovation: Start-Ups Rise to the World’s Energy Challenges**\
+`The world runs on electricity, but equally on the energy of innovative new ideas. What’s the best way for the sector to find and develop them?`\
+https://nytimes.com/paidpost/iberdrola/powering-innovation-start-ups-rise-to-the-worlds-energy-challenges.html
+
 **Two decades ago, father-and-son photos showed what was to come for Vladimir Guerrero Jr.**\
 `Old photos have resurfaced, bringing additional meaning for the players — and the photographers.`\
 https://nytimes.com/athletic/6742113/2025/10/23/vladimir-guerrero-jr-blue-jays-expos-photos/
