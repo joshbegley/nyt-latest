@@ -1,3 +1,7 @@
+**Americans Have Lost Billions to Online Scams. How Is That Possible?**\
+`The U.S., Britain and South Korea have joined a crackdown on groups running frauds from Southeast Asia. They have their work cut out.`\
+https://nytimes.com/2025/10/23/world/asia/scam-centers-myanmar-cambodia.html
+
 **How to watch Commanders vs. Chiefs: Time, TV, streaming**\
 `Find out how to watch the Washington Commanders play the Kansas City Chiefs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6742528/2025/10/23/commanders-vs-chiefs-stream-how-to-watch-oct-27/
