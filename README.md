@@ -1,3 +1,11 @@
+**Who was the unnamed Player 3 in the N.B.A. gambling case?**\
+`By Tania Ganguli and Jonah E. Bromwich`\
+https://nytimes.com/live/2025/10/23/nyregion/nba-illegal-gambling-arrests/player-3-lebron-james
+
+**Blue Jays name rookie Trey Yesavage World Series Game 1 starter**\
+`Yesavage is the first rookie to start Game 1 of the World Series since Justin Verlander and Anthony Reyes squared off in 2006.`\
+https://nytimes.com/athletic/6744266/2025/10/23/blue-jays-trey-yesavage-world-series-game-1-starter/
+
 **Bengals QB Joe Flacco is like any other parent desperate for alone time**\
 `As a father of five, Flacco has a new appreciation for 'party of one.'`\
 https://nytimes.com/athletic/6744200/2025/10/23/cincinnati-bengals-qb-joe-flacco-alone-time/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/23/science/last-dinosaurs-fossils-new-mexico.html
 **Ranchers Say Trump’s Plan to Lower Beef Prices Is ‘Misguided’**\
 `The president wants to increase the amount of Argentine beef imports, infuriating cattle country, which is finally profitable after years of struggle.`\
 https://nytimes.com/2025/10/23/business/ranchers-trump-anger-trumps-plan-lower-beef-prices.html
-
-**‘Brother Wang,’ Accused of Being Drug Cartel Fixer, Is Arrested in Cuba**\
-`Zhi Dong Zhang, who escaped house arrest in Mexico this summer, is accused of supplying cartels with fentanyl from China, smuggling and money laundering millions under the alias “Brother Wang.”`\
-https://nytimes.com/2025/10/23/world/americas/cuba-chinese-man-mexico-drugs.html
-
-**Vanderbilt kickers host clinic to prepare students for 'College GameDay'**\
-`Vanderbilt players are making sure fellow students are well-prepared for the challenge this week.`\
-https://nytimes.com/athletic/6744062/2025/10/23/vanderbilt-kicking-clinic-college-gameday/
 
