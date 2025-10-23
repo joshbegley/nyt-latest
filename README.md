@@ -1,3 +1,27 @@
+**How to watch Red Wings vs. Islanders: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the New York Islanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6743759/2025/10/23/red-wings-vs-islanders-stream-how-to-watch-oct-23/
+
+**How to watch Ducks vs. Bruins: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Boston Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6743750/2025/10/23/ducks-vs-bruins-stream-how-to-watch-oct-23/
+
+**How to watch Penguins vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Penguins play the Florida Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6743748/2025/10/23/penguins-vs-panthers-stream-how-to-watch-oct-23/
+
+**How to watch Flyers vs. Senators: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Flyers play the Ottawa Senators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6743746/2025/10/23/flyers-vs-senators-stream-how-to-watch-oct-23/
+
+**How to watch Sharks vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the San Jose Sharks play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6743744/2025/10/23/sharks-vs-rangers-stream-how-to-watch-oct-23/
+
+**How to watch Blackhawks vs. Lightning: Time, TV, streaming**\
+`Find out how to watch the Chicago Blackhawks play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6743741/2025/10/23/blackhawks-vs-lightning-stream-how-to-watch-oct-23/
+
 **The Bounce: Wemby is a top-5 NBA player right now. Plus, we recap more season openers**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6743638/2025/10/23/the-bounce-victor-wembanyama-nba-openers/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/10/23/arts/music/soft-cell-david-ball-dead.html
 **Chiefs' Patrick Mahomes is the NFL MVP favorite. Here's where he thinks he's improved**\
 `After watching film of himself in the offseason, Mahomes is trying not to overthink things this season, and the Chiefs are benefiting.`\
 https://nytimes.com/athletic/6740978/2025/10/23/chiefs-patrick-mahomes-nfl-mvp-favorite/
-
-**Rockwells of the White House, Where They Long Resided, Head to Auction**\
-`The drawings, by Norman Rockwell, of visitors looking to speak with the president, once hung near the Oval Office.`\
-https://nytimes.com/2025/10/23/arts/white-house-rockwell-drawings-auction.html
-
-**I’m a Cake Person Now. Join Me!**\
-`Let Samantha Seneviratne be your guide to baking the best cakes of your life.`\
-https://nytimes.com/2025/10/23/dining/im-a-cake-person-now-join-me.html
-
-**Damon Jones alleged to have traded info on LeBron James missing 2023 Lakers game**\
-`The Feb. 9, 2023, game between the Bucks and Lakers that was referenced in the indictment was one that LeBron James did not play in. He...`\
-https://nytimes.com/athletic/6743596/2025/10/23/lebon-james-damon-jones-nba-gambling-investigation/
-
-**Senators notebook: Tkachuk discusses injury, Spence talks being scratched, again**\
-`Brady Tkachuk is able to skate, but he's still a month away from stickhandling drills as he recovers from right thumb surgery last week.`\
-https://nytimes.com/athletic/6740660/2025/10/23/senators-tkachuk-spence-notebook/
-
-**My Love Affair With Bruno Mars**\
-`Wesley Morris invites his friend, the culture writer Niela Orr, to talk about his complicated love of Bruno Mars.`\
-https://nytimes.com/video/podcasts/100000010447024/bruno-mars-cannonball-wesley-morris.html
-
-**The Diddy Trial Is Over, but My Mind Is Still Racing**\
-`Wesley Morris talks about what he saw during the trial of Sean “Diddy” Combs with guest John White.`\
-https://nytimes.com/video/podcasts/100000010447239/sean-diddy-combs-verdict-cannonball-wesley-morris.html
 
