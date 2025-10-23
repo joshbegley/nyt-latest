@@ -1,3 +1,15 @@
+**After Ordering a Record Cannabis Recall, N.Y. Regulators Go Quiet**\
+`Critics complain that state officials have given little guidance since ordering a recall of some $30 million in cannabis products. The delay, they say, could undermine confidence in the legal market.`\
+https://nytimes.com/2025/10/23/nyregion/new-york-cannabis-recall-marijuana.html
+
+**A Pile of Rubble: After 123 Years, the East Wing Is Gone**\
+`Mourners are outraged over President Trump’s demolition of the East Wing to make way for his $300 million ballroom. Others say it was time for change.`\
+https://nytimes.com/2025/10/23/us/politics/east-wing-obituary.html
+
+**South Africa's Wessels given nine-week ban for genitals grab**\
+`Wessels' ban sees him ruled out of South Africa's autumn Tests, forced to miss matches against Japan, France, Italy and Ireland.`\
+https://nytimes.com/athletic/6744297/2025/10/23/rugby-ban-genitals-grab-wessels-south-africa/
+
 **Dallas Wings targeting Jose Fernandez to be franchise's next coach: Sources**\
 `While no deal has been finalized, USF has already publicly announced that Fernandez is leaving for a WNBA opportunity.`\
 https://nytimes.com/athletic/6744419/2025/10/23/dallas-wings-jose-fernandez-coach-hire/
@@ -21,16 +33,4 @@ https://nytimes.com/2025/10/23/dining/three-restaurants-where-ordering-the-chick
 **How Long Will it Take to Build a Nuclear Power ‘Renaissance’ in the U.S.?**\
 `The Trump administration wants to sharply speed up the construction of nuclear power plants, but fixing the industry’s bottlenecks could take years.`\
 https://nytimes.com/2025/10/23/climate/us-nuclear-industry-growth.html
-
-**What the Leafs blue line will look like without Chris Tanev and (possibly) Morgan Rielly, too**\
-`Tanev was placed on injured reserve Thursday morning, and Rielly's status for Friday's game against the Sabres is unclear.`\
-https://nytimes.com/athletic/6744345/2025/10/23/maple-leafs-blue-line-without-tanev-rielly/
-
-**Mexico City GP circuit breakdown: F1's highest altitude affects everything**\
-`Formula One has arrived at one of the highest circuits on its calendar: the Autódromo Hermanos Rodríguez.`\
-https://nytimes.com/athletic/5003029/2025/10/23/mexican-gp-f1-track-breakdown-autodromo-hermanos-rodriguez/
-
-**Is This Dapper Man Going to Crack the Louvre Heist Case?**\
-`Is he even real? The internet had many questions after a photo began to circulate.`\
-https://nytimes.com/2025/10/23/style/louvre-heist-detective-photo.html
 

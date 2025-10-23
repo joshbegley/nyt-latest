@@ -1,3 +1,11 @@
+**Arsenal had to make a special case for Max Dowman - his super talent merits it**\
+`Arsenal have managed to sign Max Dowman to scholarship terms. A professional contract is expected to follow when he turns 17`\
+https://nytimes.com/athletic/6744503/2025/10/23/max-dowman-arsenal-contract-analysis/
+
+**NFL Week 8 projected scores: Model predicts point spreads and totals for every game**\
+`Austin Mock's projection model predicts point spreads and point totals for NFL Week 8 games.`\
+https://nytimes.com/athletic/6741904/2025/10/23/nfl-week-8-projected-scores-model-predicts-point-spreads-totals/
+
 **After Ordering a Record Cannabis Recall, N.Y. Regulators Go Quiet**\
 `Critics complain that state officials have given little guidance since ordering a recall of some $30 million in cannabis products. The delay, they say, could undermine confidence in the legal market.`\
 https://nytimes.com/2025/10/23/nyregion/new-york-cannabis-recall-marijuana.html
@@ -25,12 +33,4 @@ https://nytimes.com/video/sports/100000010477049/sports-gambling-nba-mafia.html
 **Ford’s Profit Jumps on Strong Sales but Company Lowers its Outlook**\
 `Ford said a fire at an aluminum factory will lower profits in the last three months of the year. The company also said it has stopped making an electric version of its popular F-150 pickup.`\
 https://nytimes.com/2025/10/23/business/ford-motor-earnings-third-quarter.html
-
-**Three Restaurants Where Ordering the Chicken Is the Most Exciting Choice**\
-`Welcome to the age of experiential chicken.`\
-https://nytimes.com/2025/10/23/dining/three-restaurants-where-ordering-the-chicken-is-the-most-exciting-choice.html
-
-**How Long Will it Take to Build a Nuclear Power ‘Renaissance’ in the U.S.?**\
-`The Trump administration wants to sharply speed up the construction of nuclear power plants, but fixing the industry’s bottlenecks could take years.`\
-https://nytimes.com/2025/10/23/climate/us-nuclear-industry-growth.html
 
