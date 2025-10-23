@@ -1,3 +1,15 @@
+**Trump Pardons Founder of the Crypto Exchange Binance**\
+`Changpeng Zhao, the richest man in crypto, admitted to money-laundering violations that allowed terrorists and other criminals to move money on Binance.`\
+https://nytimes.com/2025/10/23/technology/trump-pardons-cz-binance.html
+
+**How Kyle Shanahan has kept the 49ers together in what might be his best coaching job yet**\
+`Long known as a great schemer, Shanahan has pressed all the right buttons elsewhere, helping his team overcome a mountain of injuries.`\
+https://nytimes.com/athletic/6743516/2025/10/23/kyle-shanahan-49ers-coach-of-the-year/
+
+**USMNT's Robinson out for Fulham's Premier League game at Newcastle**\
+`Robinson has made just three league appearances for Fulham so far this season — each of them as a substitute — due to a knee injury.`\
+https://nytimes.com/athletic/6743528/2025/10/23/usmnt-robinson-fulham-injury-update/
+
 **Virginia Democrats Plan to Redraw House Maps in Redistricting Push**\
 `The surprise move could give Democrats two or three additional House seats and is likely to scramble the last couple weeks of campaigning ahead of the Nov. 4 election.`\
 https://nytimes.com/2025/10/23/us/politics/virginia-democrats-redistrict.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6743750/2025/10/23/ducks-vs-bruins-stream-how-to-wa
 **How to watch Penguins vs. Panthers: Time, TV, streaming**\
 `Find out how to watch the Pittsburgh Penguins play the Florida Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6743748/2025/10/23/penguins-vs-panthers-stream-how-to-watch-oct-23/
-
-**How to watch Flyers vs. Senators: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Flyers play the Ottawa Senators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6743746/2025/10/23/flyers-vs-senators-stream-how-to-watch-oct-23/
-
-**How to watch Sharks vs. Rangers: Time, TV, streaming**\
-`Find out how to watch the San Jose Sharks play the New York Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6743744/2025/10/23/sharks-vs-rangers-stream-how-to-watch-oct-23/
-
-**How to watch Blackhawks vs. Lightning: Time, TV, streaming**\
-`Find out how to watch the Chicago Blackhawks play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6743741/2025/10/23/blackhawks-vs-lightning-stream-how-to-watch-oct-23/
 
