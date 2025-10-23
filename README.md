@@ -1,3 +1,11 @@
+**Bengals linebacker Logan Wilson, a defensive captain, requests trade**\
+`Wilson lost his starting job and has played limited snaps in the past two games.`\
+https://nytimes.com/athletic/6745053/2025/10/23/bengals-logan-wilson-trade-request/
+
+**Trump Says He Will Not Seek Authorization for Cartel Strikes**\
+`The president said he would bypass Congress rather than ask for approval for his military campaign against drug traffickers, even as he said it would expand from sea to land.`\
+https://nytimes.com/2025/10/23/us/politics/trump-military-authorization-cartel-strikes.html
+
 **What We Know About the N.B.A. Betting Scandal**\
 `Mike Vorkunov of The Athletic breaks down the bombshell gambling scandal that led to the arrests of Miami Heat guard Terry Rozier and Chauncey Billups, head coach of the Portland Trail Blazers.`\
 https://nytimes.com/video/the-athletic/100000010478210/what-we-know-about-the-nba-betting-scandal.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/23/nyregion/cuomo-mamdani-sept-11.html
 **N.B.A. Figures Charged in Gambling Schemes**\
 `Also, Trump halted his plan to send federal agents to San Francisco. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/10/23/briefing/nba-figures-charged-in-gambling-schemes.html
-
-**Who Is Terry Rozier?**\
-`The only active N.B.A. player named in two indictments was Mr. Rozier, a versatile veteran who first drew the attention of gambling investigators in 2023.`\
-https://nytimes.com/2025/10/23/nyregion/terry-rozier-nba-gambling-scandal.html
-
-**The White House Wrecking Ball**\
-`President Trump’s demolition of the East Wing to make way for a ballroom seems to mirror his determination to remake America.`\
-https://nytimes.com/2025/10/23/world/the-white-house-trump-russia-sanctions-israel.html
 
