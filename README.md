@@ -1,40 +1,40 @@
-**Vikings vs. Chargers Thursday Night Football betting: Player prop, picks and a parlay**\
-`Brad Evans scours sportsbooks for the best bets ahead for Thursday Night Football's matchup between the Vikings and Chargers. `\
-https://nytimes.com/athletic/6739986/2025/10/23/vikings-chargers-thursday-night-football-betting-props-picks/
+**Manet and Morisot, Soul Mates in Modernity**\
+`A new exhibition at the Legion of Honor in San Francisco captures the creative spark between two avant-garde 19th-century painters, Édouard Manet and Berthe Morisot.`\
+https://nytimes.com/2025/10/23/arts/design/manet-morisot-legion-of-honor-san-francisco.html
 
-**Trump Has a Religion. What Do Democrats Have?**\
-`Mamdani might be working in Democrats’ favor. But what about “No Kings”?`\
-https://nytimes.com/video/opinion/100000010471948/trump-has-a-religion-what-do-democrats-have.html
+**What We Saw at New York Bridal Fashion Week**\
+`Designers showcased many callbacks to the past, including 18th-century opulence, pencil skirts from the 1950s and suit dressing from the 1980s.`\
+https://nytimes.com/2025/10/23/style/new-york-bridal-fashion-week-2025-trends.html
 
-**Final N.Y.C. Mayoral Debate Gets Heated**\
-`Zohran Mamdani, Andrew Cuomo and Curtis Sliwa traded personal attacks in the final debate before New York City’s mayoral election on Nov. 4.`\
-https://nytimes.com/video/nyregion/100000010476098/nyc-mayor-debate.html
+**We Can Survive an A.I. Bust**\
+`We’ve been here before.`\
+https://nytimes.com/video/opinion/100000010469043/we-can-survive-an-ai-bust.html
 
-**Champions League 2025-26 Projections: Who will lift the trophy in Budapest on May 30?**\
-`Our Opta-powered Champions League projections update after each matchday`\
-https://nytimes.com/athletic/6630404/2025/10/23/champions-league-projections-2025-26/
+**E-Trucks Are Heavy. Can Our Roads Handle Them?**\
+`Researchers look at the potential damage to New York area highways, tunnels and bridges from trucks that can weigh up to 9,000 pounds.`\
+https://nytimes.com/2025/10/23/nyregion/e-trucks-roads-bridges.html
 
-**E.U. Approves Sweeping Sanctions Targeting Russian Gas and Crypto**\
-`European leaders signed off on the new measures just hours after President Trump imposed sanctions on Russia’s two biggest oil companies.`\
-https://nytimes.com/2025/10/23/world/europe/eu-russia-sanctions.html
+**A Girls Basketball Team Gave Up Its Title. Now It’s Getting National Attention.**\
+`The team in Oklahoma City forfeited its district championship earlier this year after the coach verified that a scoring error had incorrectly crowned them as winners.`\
+https://nytimes.com/2025/10/23/us/oklahoma-girls-basketball-team-championship-title.html
 
-**Fear and Anger Fill New York’s Canal Street After Immigration Raid**\
-`The famous shopping strip, usually teeming with street vendors, turned quiet a day after federal agents descended.`\
-https://nytimes.com/2025/10/23/nyregion/nyc-canal-street-fear-anger.html
+**How Federal Workers Can Find Financial Assistance as Shutdown Drags On**\
+`Some banks are offering a pause on payments on certain loans, waiving late fees and providing no-interest loans.`\
+https://nytimes.com/2025/10/23/business/federal-employee-financial-resources-government-shutdown.html
 
-**Cuomo Paints Dire Picture of New York Under Mamdani as Election Nears**\
-`Andrew Cuomo is trying to close ground in the New York City mayor’s race by escalating his warnings that “mayhem” would follow a victory by Zohran Mamdani.`\
-https://nytimes.com/2025/10/23/nyregion/cuomo-debate-mamdani.html
+**Stavros Halkias Wants a Career. Will His Fans Let Him Have One?**\
+`The comedian is pivoting from online notoriety to mainstream roles. It’s harder than it looks.`\
+https://nytimes.com/2025/10/23/magazine/stavros-halkias.html
 
-**People and Signs**\
-`This image comes from a recent news event. Do you know what it is?`\
-https://nytimes.com/2025/10/23/learning/people-and-signs.html
+**How Writing Helped Susan Orlean Find a ‘Bigger Place in the World’**\
+`“Joyride,” her new book, started as a guide for aspiring journalists, but turned into a full-fledged memoir about her high-flying life and career.`\
+https://nytimes.com/2025/10/23/books/review/susan-orlean-joyride.html
 
-**Spurs appoint American Hinson to board as non-executive director**\
-`The new appointee is an American aviation executive who will join as the fifth member of Spurs’ new-look board.`\
-https://nytimes.com/athletic/6742614/2025/10/23/tottenham-news-board-director-appoint/
+**Are You Paying More Than 30% of Income on Housing Costs?**\
+`Recent census data shows that owning a home that is considered affordable is impossible in some areas.`\
+https://nytimes.com/2025/10/23/realestate/are-you-paying-more-than-30-of-income-on-housing-costs.html
 
-**Is It ‘Subsidizing the Rich’ to Make Buses and Child Care Free for All?**\
-`Zohran Mamdani, the front-runner in the New York City mayor’s race, would make some public benefits available to everyone. Andrew Cuomo, his top challenger, wants to help the neediest residents.`\
-https://nytimes.com/2025/10/23/nyregion/mamdani-cuomo-free-city-services.html
+**The Manosphere’s Favorite Magician**\
+`Oz Pearlman has revealed Joe Rogan’s A.T.M. code on air and entertained N.F.L. stars. Now he wants more.`\
+https://nytimes.com/2025/10/23/style/the-manospheres-favorite-magician.html
 
