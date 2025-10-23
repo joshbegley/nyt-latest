@@ -1,3 +1,7 @@
+**Americans Have Lost Billions to Online Scams. How Is That Possible?**\
+`The United States, Britain and South Korea have joined a crackdown on groups running frauds from Southeast Asia. They have their work cut out.`\
+https://nytimes.com/2025/10/23/world/asia/scam-centers-myanmar-cambodia.html
+
 **E.U. Approves Sweeping Sanctions Targeting Russian Gas and Crypto**\
 `European leaders signed off on the new measures just hours after President Trump imposed sanctions on Russia’s two biggest oil companies.`\
 https://nytimes.com/2025/10/23/world/europe/eu-russia-sanctions.html
