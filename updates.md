@@ -1,3 +1,7 @@
+**Champions League 2025-26 Projections: Who will lift the trophy in Budapest on May 30?**\
+`Our Opta-powered Champions League projections update after each matchday`\
+https://nytimes.com/athletic/6630404/2025/10/23/champions-league-projections-2025-26/
+
 **Final N.Y.C. Mayoral Debate Gets Heated**\
 `Zohran Mamdani, Andrew Cuomo and Curtis Sliwa traded personal attacks in the final debate before New York City’s mayoral election on Nov. 4.`\
 https://nytimes.com/video/nyregion/100000010476098/nyc-mayor-debate.html
