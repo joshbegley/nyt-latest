@@ -1,3 +1,7 @@
+**Liverpool confront the unthinkable: does Salah merit a place in their best XI?**\
+`The Egyptian's record is virtually unsurpassed but Liverpool thrived in his absence at Eintracht Frankfurt `\
+https://nytimes.com/athletic/6740732/2025/10/23/mohamed-salah-liverpool-dropped-team/
+
 **2025 MLS Cup playoff bracket set after wild card round**\
 `With Chicago and Portland taking care of business, MLS's 2025 playoff bracket is complete. Here's the full schedule and road to MLS Cup`\
 https://nytimes.com/athletic/6740291/2025/10/23/mls-cup-2025-playoff-bracket-full-postseason-schedule-updated-results/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6741716/2025/10/23/tottenham-hotspur-champions-leag
 **Taking games abroad would damage football – and would many teams even benefit?**\
 `Serie A and La Liga are so desperate to take their shows on the road, it appears they have not considered if there are any real benefits`\
 https://nytimes.com/athletic/6741016/2025/10/23/la-liga-barcelona-villarreal-miami/
-
-**The Alternative Premier League: No 9 – Who creates big chances, and who misses them?**\
-`Here's how your team is getting on when it comes to creating clear cut opportunities, and sticking them in the back of the net`\
-https://nytimes.com/athletic/6739481/2025/10/23/the-alternative-premier-league-no-9-who-creates-big-chances-and-who-misses-them/
 
