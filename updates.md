@@ -1,3 +1,15 @@
+**Bay Area Protesters Try to Block Base Entrance Before Immigration Operation**\
+`On Thursday, about 200 people attempted to block vehicles from entering a Coast Guard base in Alameda, Calif., which federal officials were planning on using for upcoming raids. President Trump later called off the operation.`\
+https://nytimes.com/video/us/politics/100000010477756/san-francisco-federal-deployment-canceled.html
+
+**Lando Norris' McLaren 'repercussions' removed after Austin crash review**\
+`Lando Norris' minor sporting sanctions removed by McLaren as it deems Piastri must share blame for Austin sprint race crash`\
+https://nytimes.com/athletic/6744761/2025/10/23/lando-norris-mclaren-repercussions-removed/
+
+**Arsenal had to make a special case for Max Dowman - his super talent merits it**\
+`Arsenal have managed to sign the 15-year-old to scholarship terms. A professional contract is expected to follow when he turns 17...`\
+https://nytimes.com/athletic/6744503/2025/10/23/max-dowman-arsenal-contract-analysis/
+
 **Lando Norris' McLaren 'repercussions' removed after Austin crash review**\
 `Lando Norris' minor sporting sanctions removed by McLaren as it deems Piastri must share blame for Austin sprint race crash`\
 https://nytimes.com/athletic/6744761/2025/10/23/lando-norris-mclaren-repercussions-removed-with-piastri-responsible-for-austin-crash/
