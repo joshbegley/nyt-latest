@@ -1,3 +1,7 @@
+**Powering Innovation: Start-Ups Rise to the World’s Energy Challenges**\
+`The world runs on electricity, but equally on the energy of innovative new ideas. What’s the best way for the sector to find and develop them?`\
+https://nytimes.com/paidpost/iberdrola/powering-innovation-start-ups-rise-to-the-worlds-energy-challenges.html
+
 **Two decades ago, father-and-son photos showed what was to come for Vladimir Guerrero Jr.**\
 `Old photos have resurfaced, bringing additional meaning for the players — and the photographers.`\
 https://nytimes.com/athletic/6742113/2025/10/23/vladimir-guerrero-jr-blue-jays-expos-photos/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/23/world/europe/britains-labour-party-criticizes-far
 **Rubio Says U.S. May Seek United Nations Mandate for Gaza Security Force**\
 `Before boarding a plane for Israel, Secretary of State Marco Rubio said that U.N. backing was a potential next step to deploying an international stabilization force to the war-torn enclave.`\
 https://nytimes.com/2025/10/23/world/middleeast/rubio-israel-gaza.html
-
-**Horror Movie Halloween Special: The Dread Under the Bed**\
-`Wesley Morris and Eric Hynes, a film curator, talk about some of the most memorable horror movies they’ve ever seen.`\
-https://nytimes.com/video/podcasts/100000010469463/horror-movie-halloween-special-the-dread-under-the-bed.html
 
