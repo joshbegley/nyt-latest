@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Vance Says International Security Force Will Lead on Disarming Hamas**\
+``\
+https://nytimes.com/live/2025/10/23/us/trump-news
+
 **Musk’s Trillion-Dollar Pitch**\
 `Despite a drop in Tesla profit, the billionaire exhorted investors to back his proposed compensation package, or face consequences.`\
 https://nytimes.com/2025/10/23/business/dealbook/musk-tesla-pay-package.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6741456/2025/10/23/notre-dame-midseason-superlative
 **The Broncos are the NFL's most penalized team. Can they fix the problem?**\
 `No phase of Denver's operation has been immune to flags, an issue the Broncos must clean up if they want to hold onto their AFC West lead.`\
 https://nytimes.com/athletic/6740981/2025/10/23/broncos-penalties-sean-payton/
-
-**Aging Bull? Nikola Vučević rages on in opening night win against the Pistons**\
-`Vučević's age and style of play don't seem to mesh with Chicago is trying to do. Unless he plays like he did Wednesday.`\
-https://nytimes.com/athletic/6742549/2025/10/23/nikola-vucevic-bulls-season-opener-win/
 
