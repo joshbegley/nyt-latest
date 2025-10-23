@@ -1,3 +1,11 @@
+**A Fortuneteller, a Chaotic Dinner and a Climb: Creative Writing by Teens**\
+`Read these student-written short stories and poems inspired by some recent Times images.`\
+https://nytimes.com/2025/10/23/learning/a-fortuneteller-a-chaotic-dinner-and-a-climb-creative-writing-by-teens.html
+
+**Lionel Messi signs new Inter Miami contract through 2028 MLS season**\
+`The new deal will see Messi lead the MLS club into its new stadium, Miami Freedom Park, next year.`\
+https://nytimes.com/athletic/6264838/2025/10/23/lionel-messi-new-inter-miami-contract/
+
 **International Security Force Will Disarm Hamas, Says Vance**\
 `Speaking from Israel, Vice President JD Vance addressed the delicate issue of disarming Hamas. He said the effort would be led by an international security force, the composition of which is yet to be determined.`\
 https://nytimes.com/video/world/middleeast/100000010476535/international-security-force-disarm-hamas-vance.html
