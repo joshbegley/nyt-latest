@@ -1,3 +1,7 @@
+**From the Roosevelts to the Kennedys: A Look at the White House East Wing Trump Is Demolishing**\
+`The East Wing has been a base for the first lady, an entryway for social functions and an emergency bunker.`\
+https://nytimes.com/2025/10/22/us/politics/east-wing-white-house.html
+
 **Cuomo Joins Adams at Knicks Game. Is an Endorsement in the Cards?**\
 `Former Gov. Andrew M. Cuomo and Mayor Eric Adams looked like the best of friends as they sat together at Madison Square Garden right after the debate.`\
 https://nytimes.com/2025/10/22/nyregion/eric-adams-cuomo-knicks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6738748/2025/10/22/2-holes-in-one-same-day-college-
 **Cuomo and Mamdani Clash, Again, on Jewish Safety**\
 `Andrew Cuomo attacked Zohran Mamdani after 650 rabbis said Mr. Mamdani’s election would threaten Jews’ safety. Mr. Mamdani said he was being criticized because he could become the city’s first Muslim mayor.`\
 https://nytimes.com/2025/10/22/nyregion/mamdani-rabbis-letter-israel.html
-
-**“You sent seniors to their deaths in nursing homes.”**\
-`By Benjamin Oreskes`\
-https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/fact-check-nursing-homes
 
