@@ -1,3 +1,19 @@
+**Chiefs' Patrick Mahomes is the NFL MVP favorite. Here's where he thinks he's improved**\
+`After watching film of himself in the offseason, Mahomes is trying not to overthink things this season, and the Chiefs are benefiting.`\
+https://nytimes.com/athletic/6740978/2025/10/23/chiefs-patrick-mahomes-nfl-mvp-favorite/
+
+**Rockwells of the White House, Where They Long Resided, Head to Auction**\
+`The drawings, by Norman Rockwell, of visitors looking to speak with the president, once hung near the Oval Office.`\
+https://nytimes.com/2025/10/23/arts/rockwells-of-the-white-house-where-they-long-resided-head-to-auction.html
+
+**I’m a Cake Person Now. Join Me!**\
+`Let Samantha Seneviratne be your guide to baking the best cakes of your life.`\
+https://nytimes.com/2025/10/23/dining/im-a-cake-person-now-join-me.html
+
+**Damon Jones alleged to have traded info on LeBron James missing 2023 Lakers game**\
+`The Feb. 9, 2023, game between the Bucks and Lakers that was referenced in the indictment was one that LeBron James did not play in. He...`\
+https://nytimes.com/athletic/6743596/2025/10/23/lebon-james-damon-jones-nba-gambling-investigation/
+
 **LeBron James did not play in Feb. 9, 2023 game**\
 `The Feb. 9, 2023, game between the Bucks and Lakers that was referenced in the indictment was one that LeBron James did not play in. He...`\
 https://nytimes.com/athletic/6743596/2025/10/23/lebon-james-damon-jones-nba-gambling-investigation/
