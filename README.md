@@ -1,3 +1,11 @@
+**Riccardo Calafiori and controlled chaos theory**\
+`The Italian is in undroppable form – sometimes reminiscent of a galloping horse going forward, he brings unpredictability to attacks`\
+https://nytimes.com/athletic/6732980/2025/10/23/ricciardo-calafiori-and-controlled-chaos-theory/
+
+**Estevao, Chelsea's youngest champions league goalscorer, is a born entertainer**\
+`The exciting Brazilian teenager became Chelsea's youngest Champions League scorer - breaking a record set by a team-mate in the same match`\
+https://nytimes.com/athletic/6741805/2025/10/23/estevao-chelsea-champions-league-youngest/
+
 **Wrexham's first home league win since April will breathe new life into their season**\
 `A 1-0 win against struggling Oxford United has moved Phil Parkinson's team back into the Championship's mid-table `\
 https://nytimes.com/athletic/6736277/2025/10/23/wrexham-oxford-championship-parkinson-breathing-space/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6739946/2025/10/23/premier-league-promoted-teams-re
 **Gary Lineker on El Clasico: Superstars still go to Real or Barca over anyone else, and expect goals**\
 `Gary Lineker hit a hat-trick in his second El Clasico, and the former Barcelona striker is predicting goals at the Bernabeu on Sunday...`\
 https://nytimes.com/athletic/6732643/2025/10/23/gary-lineker-clasico-real-madrid-barcelona-goals/
-
-**Harvey Elliott, fast passes, and a slow start to life at Aston Villa**\
-`The former Liverpool player’s early Villa career has been slow-going, even if it is broadly due to circumstances out of his control`\
-https://nytimes.com/athletic/6713168/2025/10/23/harvey-elliott-aston-villa-premier-league-liverpool/
-
-**The Tactics Board: How the 4-2-3-1 works**\
-`Part one of The Athletic's series on football formations takes a close look at the 4-2-3-1`\
-https://nytimes.com/athletic/6700090/2025/10/23/tactics-board-4-2-3-1-formation/
 
