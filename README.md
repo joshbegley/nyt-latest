@@ -1,3 +1,15 @@
+**Ranchers Say Trump’s Plan to Lower Beef Prices Is ‘Misguided’**\
+`The president wants to increase the amount of Argentine beef imports, infuriating cattle country, which is finally profitable after years of struggle.`\
+https://nytimes.com/2025/10/23/business/ranchers-trump-anger-trumps-plan-lower-beef-prices.html
+
+**‘Brother Wang,’ Accused of Being Drug Cartel Fixer, Is Arrested in Cuba**\
+`Zhi Dong Zhang, who escaped house arrest in Mexico this summer, is accused of supplying cartels with fentanyl from China, smuggling and money laundering millions under the alias “Brother Wang.”`\
+https://nytimes.com/2025/10/23/world/americas/cuba-chinese-man-mexico-drugs.html
+
+**Vanderbilt kickers host clinic to prepare students for 'College GameDay'**\
+`Vanderbilt players are making sure fellow students are well-prepared for the challenge this week.`\
+https://nytimes.com/athletic/6744062/2025/10/23/vanderbilt-kicking-clinic-college-gameday/
+
 **nyc-mayor**\
 ``\
 https://nytimes.com/panel/live/nyc-mayor
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/23/world/europe/bloody-sunday-massacre-soldier-acqui
 **Democrats Block Federal Worker Pay Bill as Shutdown Drags On**\
 `A Republican measure that would pay essential government employees faltered in the Senate, and the G.O.P. blocked a pair of Democratic bills to pay a broader swath of workers.`\
 https://nytimes.com/2025/10/23/us/politics/democrats-shutdown-federal-employee-pay.html
-
-**Oprah Leads the Charge at Misty Copeland’s Farewell**\
-`The trailblazing ballerina returned to the stage after five years for one final performance at a gala for American Ballet Theater.`\
-https://nytimes.com/2025/10/23/style/misty-copeland-retirement-oprah.html
-
-**Trump Supporters Are Uneasy About Military Actions Against Venezuela**\
-`Some conservative policy advisers and commentators, including Laura Loomer and Stephen K. Bannon, are raising questions about the administration’s policy in the region.`\
-https://nytimes.com/2025/10/23/us/politics/trump-supporters-venezuela.html
-
-**How the U.S. Is Working to Shore Up the Gaza Cease-Fire**\
-`Vice President JD Vance went to Israel to try to shore up a fragile cease-fire between Israel and Hamas. Tyler Pager, a White House correspondent at The New York Times, describes Mr. Vance’s visit.`\
-https://nytimes.com/video/us/politics/100000010474113/how-the-us-is-working-to-shore-up-the-gaza-cease-fire.html
 
