@@ -1,3 +1,23 @@
+**NBA gambling investigation: 3 takeaways from the indictments**\
+`"This is the insider trading saga for the NBA," FBI director Kash Patel said Thursday.`\
+https://nytimes.com/athletic/6743912/2025/10/23/nba-betting-investigation-fbi-illegal-gambling/
+
+**Bay Area Protesters Try to Block Base Entrance Before Immigration Operation**\
+`About 200 people stood in an intersection outside the Coast Guard base in Alameda, Calif., where federal agents were arriving to prepare for an immigration enforcement operation.`\
+https://nytimes.com/2025/10/23/us/san-francisco-bay-area-protesters.html
+
+**A day in the life of Erling Haaland: red light therapy, raw milk and hunks of steak**\
+`The Manchester City star has launched a YouTube channel and the first episode is a glimpse into his daily recovery and wellness routine`\
+https://nytimes.com/athletic/6742748/2025/10/23/erling-haaland-life-diet/
+
+**Symbiosis Between Gambling and Sports Has Been a Constant**\
+`From the Black Sox to City College to cricket, some players and managers have looked to make an extra buck for decades.`\
+https://nytimes.com/2025/10/23/nyregion/symbiosis-between-gambling-and-sports-has-been-a-constant.html
+
+**The East Wing Is History, in More Ways Than One**\
+`Readers respond to the demolition of the East Wing of the White House. Also: Fending off tyranny; when Black women are fired.`\
+https://nytimes.com/2025/10/23/opinion/east-wing-white-house-trump.html
+
 **A Fortuneteller, a Chaotic Dinner and a Climb: Creative Writing by Teens**\
 `Read these student-written short stories and poems inspired by some recent Times images.`\
 https://nytimes.com/2025/10/23/learning/a-fortuneteller-a-chaotic-dinner-and-a-climb-creative-writing-by-teens.html
