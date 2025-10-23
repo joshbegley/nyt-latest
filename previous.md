@@ -1,3 +1,23 @@
+**How Trump Should Think About the A.I. Bubble**\
+`Will the Trump administration offer a financial bailout if the A.I. bubble bursts? Jason Furman, a contributing Opinion writer and an economist at the Harvard Kennedy School, explains what President Trump’s investments tell us about his priorities in the event of a crash.`\
+https://nytimes.com/video/opinion/100000010476575/how-trump-should-think-about-the-ai-bubble.html
+
+**Is the A.I. Boom Just Vibes?**\
+`Are we living through an A.I. bubble? Or is it all just vibes? Jason Furman, a contributing Opinion writer and an economist at the Harvard Kennedy School, tells Ross Douthat that while it’s hard to put a number on it, “there’s something enormous going on here.”`\
+https://nytimes.com/video/opinion/100000010469046/is-the-ai-boom-just-vibes.html
+
+**White House List of Donors for President Trump’s $300 Million Ballroom**\
+`The list includes major tech and crypto companies.`\
+https://nytimes.com/2025/10/23/us/politics/trump-ballroom-donors-list.html
+
+**Aaron Rodgers reflects on 18 years in Green Bay: 'I'll retire a Packer'**\
+`Rodgers spoke with Packers reporters Thursday ahead of Sunday night's game against his former team.`\
+https://nytimes.com/athletic/6744834/2025/10/23/aaron-rodgers-retire-packers-steelers/
+
+**The U.S. Economy Needs Immigration**\
+`Can the U.S. economy thrive without a steady stream of immigration? This week on “Interesting Times,” Jason Furman, a contributing Times Opinion writer and an economist at the Harvard Kennedy School, tells Ross Douthat why he thinks our future “rises and falls with immigration.”`\
+https://nytimes.com/video/opinion/100000010469047/the-us-economy-needs-immigration.html
+
 **Blue Jays' Bo Bichette took grounders at second base, could play position in World Series**\
 `Toronto manager John Schneider said Thursday that Bichette is feeling good, but still has a few more boxes to check.`\
 https://nytimes.com/athletic/6744663/2025/10/23/blue-jays-bo-bichette-second-base-could-play-position-world-series/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/10/23/opinion/shutdown-democracy-democrats.html
 **Film Class**\
 ``\
 https://nytimes.com/series/film-class
-
-**Architecture Guides**\
-``\
-https://nytimes.com/series/architecture-guides
-
-**Erykah Badu on Performing**\
-`Erykah Badu, a musician, spoke with Jon Caramanica and Joe Coscarelli, the hosts of “Popcast” at The New York Times, about the musical ethos that has carried her through her 25-year career.`\
-https://nytimes.com/video/podcasts/100000010469833/erykah-badu-on-performing.html
-
-**Red Sox prospect Luis Perales hitting 100 mph, a new assistant hitting coach and more notes**\
-`Plus news about progress made by Roman Anthony, Marcelo Mayers and Triston Casas in recovering from their respective injuries.`\
-https://nytimes.com/athletic/6744706/2025/10/23/red-sox-prospect-luis-perales-roman-anthony-injury/
-
-**Looking Back to See Forward**\
-`Join two local experts on a road trip exploring Aruba’s history.`\
-https://nytimes.com/paidpost/aruba-tourism-authority/looking-back-to-see-forward.html
-
-**Bay Area Protesters Try to Block Base Entrance Before Immigration Operation**\
-`On Thursday, about 200 people attempted to block vehicles from entering a Coast Guard base in Alameda, Calif., which federal officials were planning on using for upcoming raids. President Trump later called off the operation.`\
-https://nytimes.com/video/us/politics/100000010477756/san-francisco-federal-deployment-canceled.html
 
