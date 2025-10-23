@@ -1,3 +1,7 @@
+**King Charles Prays With Pope in Groundbreaking Moment**\
+`King Charles III prayed with Pope Leo XIV in the Sistine Chapel on Thursday, marking the first time in modern history that the leaders of the Anglican and Catholic churches prayed together.`\
+https://nytimes.com/video/world/europe/100000010476218/king-charles-pope-leo-praying.html
+
 **Saudi Arabia gets the prestigious men's tennis tournament it craved, as early as 2028**\
 `The kingdom will host a 56-player men's event, one rung below the Grand Slams, but its place in the tennis calendar is to be confirmed.`\
 https://nytimes.com/athletic/6512718/2025/10/23/tennis-saudi-arabia-atp-tournament-date-calendar/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6743095/2025/10/23/nba-federal-gambling-investigati
 **Trump Administration Live Updates: Vance Says International Security Force Will Lead on Disarming Hamas**\
 ``\
 https://nytimes.com/live/2025/10/23/us/trump-news
-
-**Musk’s Trillion-Dollar Pitch**\
-`Despite a drop in Tesla profit, the billionaire exhorted investors to back his proposed compensation package, or face consequences.`\
-https://nytimes.com/2025/10/23/business/dealbook/musk-tesla-pay-package.html
 
