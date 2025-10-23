@@ -1,3 +1,7 @@
+**King Charles Prays With Pope in Groundbreaking Moment**\
+`King Charles III prayed with Pope Leo XIV in the Sistine Chapel on Thursday, marking the first time in modern history that the leaders of the Anglican and Catholic churches prayed together.`\
+https://nytimes.com/video/world/europe/100000010476218/king-charles-pope-leo-praying.html
+
 **Saudi Arabia gets the prestigious men's tennis tournament it craved, as early as 2028**\
 `The kingdom will host a 56-player men's event, one rung below the Grand Slams, but its place in the tennis calendar is to be confirmed.`\
 https://nytimes.com/athletic/6512718/2025/10/23/tennis-saudi-arabia-atp-tournament-date-calendar/
