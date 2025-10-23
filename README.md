@@ -1,3 +1,11 @@
+**Lando Norris' McLaren 'repercussions' removed after Austin crash review**\
+`Lando Norris' minor sporting sanctions removed by McLaren as it deems Piastri must share blame for Austin sprint race crash`\
+https://nytimes.com/athletic/6744761/2025/10/23/lando-norris-mclaren-repercussions-removed-with-piastri-responsible-for-austin-crash/
+
+**William Nylander, Auston Matthews join forces: 3 thoughts on Leafs' lineup shuffle**\
+`The decision to pair up the two best players on the team is an interesting one. What might it do for Toronto and the two stars in question?`\
+https://nytimes.com/athletic/6744423/2025/10/23/maple-leafs-lineup-william-nylander-auston-matthews/
+
 **Pakistan Bans Radical Islamist Party After Deadly Clashes**\
 `The move underscores the country’s struggle to contain religious extremism without provoking influential clerics who can summon thousands of supporters to the streets.`\
 https://nytimes.com/2025/10/23/world/asia/pakistan-bans-islamist-party.html
@@ -29,8 +37,4 @@ https://nytimes.com/2025/10/23/nyregion/new-york-cannabis-recall-marijuana.html
 **A Pile of Rubble: After 123 Years, the East Wing Is Gone**\
 `Mourners are outraged over President Trump’s demolition of the East Wing to make way for his $300 million ballroom. Others say it was time for change.`\
 https://nytimes.com/2025/10/23/us/politics/east-wing-obituary.html
-
-**South Africa's Wessels given nine-week ban for genitals grab**\
-`Wessels' ban sees him ruled out of South Africa's autumn Tests, forced to miss matches against Japan, France, Italy and Ireland.`\
-https://nytimes.com/athletic/6744297/2025/10/23/rugby-ban-genitals-grab-wessels-south-africa/
 
