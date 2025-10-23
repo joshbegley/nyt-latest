@@ -1,5 +1,9 @@
-**76ers' V.J. Edgecombe's 34 points are third-most in NBA debut**\
-`Edgecombe and Maxey helped offset a four-point, six-rebound performance from Sixers center Joel Embiid.`\
+**Inconsistency rears again to end Wild road trip with drubbing from Devils**\
+`The Wild went 1-3-1 on their road trip, which served as a reality check in terms of how far they still need to go.`\
+https://nytimes.com/athletic/6742048/2025/10/22/wild-inconsistency-devils-road-trip/
+
+**76ers' V.J. Edgecombe's 34 points are third-most for an NBA debut**\
+`Edgecombe and Maxey helped offset a four-point, six-rebound performance from Joel Embiid in Philadelphia's 117-116 win over the Celtics.`\
 https://nytimes.com/athletic/6742077/2025/10/22/v-j-edgecombe-76ers-record/
 
 **Pelosi Says Police May Arrest Federal Agents Who Violate California Law**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/22/crosswords/daily-puzzle-2025-10-23.html
 **How China Raced Ahead of the U.S. on Nuclear Power**\
 `The United States was once the undisputed leader in atomic energy. Now it is trying to catch up.`\
 https://nytimes.com/interactive/2025/10/22/climate/china-us-nuclear-energy-race.html
-
-**Fact-Checking the Second New York Mayoral Debate**\
-`Andrew Cuomo and Curtis Sliwa challenged the front-runner Zohran Mamdani on experience, affordability and policy days before early voting begins.`\
-https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate-fact-check
 
