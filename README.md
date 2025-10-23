@@ -1,3 +1,7 @@
+**Wrexham's first home league win since April will breathe new life into their season**\
+`A 1-0 win against struggling Oxford United has moved Phil Parkinson's team back into the Championship's mid-table `\
+https://nytimes.com/athletic/6736277/2025/10/23/wrexham-oxford-championship-parkinson-breathing-space/
+
 **Is it really ever worth reversing a transfer decision straight away in Fantasy Premier League**\
 `Holly Shand explores something of a taboo topic in FPL, where frustration and instant regret comes with the territory`\
 https://nytimes.com/athletic/6732743/2025/10/23/fantasy-premier-league-transfers-advice-regret/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6713168/2025/10/23/harvey-elliott-aston-villa-premi
 **The Tactics Board: How the 4-2-3-1 works**\
 `Part one of The Athletic's series on football formations takes a close look at the 4-2-3-1`\
 https://nytimes.com/athletic/6700090/2025/10/23/tactics-board-4-2-3-1-formation/
-
-**The Raptors' new-look starting five presents reasons for optimism in opener**\
-`To be successful this season, the Raptors need their ball-dominant wings to not only coexist, but also enhance one another.`\
-https://nytimes.com/athletic/6742137/2025/10/23/toronto-raptors-season-opener/
 
