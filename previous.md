@@ -1,3 +1,7 @@
+**Final N.Y.C. Mayoral Debate Gets Heated**\
+`Zohran Mamdani, Andrew Cuomo and Curtis Sliwa traded personal attacks in the final debate before New York City’s mayoral election on Nov. 4.`\
+https://nytimes.com/video/nyregion/100000010476098/nyc-mayor-debate.html
+
 **E.U. Approves Sweeping Sanctions Targeting Russian Gas and Crypto**\
 `European leaders signed off on the new measures just hours after President Trump imposed sanctions on Russia’s two biggest oil companies.`\
 https://nytimes.com/2025/10/23/world/europe/eu-russia-sanctions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/23/world/asia/scam-centers-myanmar-cambodia.html
 **How to watch Commanders vs. Chiefs: Time, TV, streaming**\
 `Find out how to watch the Washington Commanders play the Kansas City Chiefs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6742528/2025/10/23/commanders-vs-chiefs-stream-how-to-watch-oct-27/
-
-**Danny Higginbotham was afraid to fly. Then he tried hypnosis**\
-`As a defender in the English Premier League for 12 years, Higginbotham rarely had to fly. Only later did it become a big problem.`\
-https://nytimes.com/athletic/6741059/2025/10/23/danny-higginbotham-premier-league-hypnosis-flying/
 

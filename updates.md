@@ -1,3 +1,7 @@
+**Final N.Y.C. Mayoral Debate Gets Heated**\
+`Zohran Mamdani, Andrew Cuomo and Curtis Sliwa traded personal attacks in the final debate before New York City’s mayoral election on Nov. 4.`\
+https://nytimes.com/video/nyregion/100000010476098/nyc-mayor-debate.html
+
 **Americans Have Lost Billions to Online Scams. How Is That Possible?**\
 `The United States, Britain and South Korea have joined a crackdown on groups running frauds from Southeast Asia. They have their work cut out.`\
 https://nytimes.com/2025/10/23/world/asia/scam-centers-myanmar-cambodia.html
