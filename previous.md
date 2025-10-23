@@ -1,3 +1,7 @@
+**Aging Bull? Nikola Vučević rages on in opening night win against the Pistons**\
+`Vučević's age and style of play don't seem to mesh with Chicago is trying to do. Unless he plays like he did Wednesday.`\
+https://nytimes.com/athletic/6742549/2025/10/23/nikola-vucevic-bulls-season-opener-win/
+
 **'He was amazing': V.J. Edgecombe makes history to give 76ers hope**\
 `When the lottery balls fell Philadelphia's way and they were able to draft Edgecombe, a night like Wednesday night was the vision.`\
 https://nytimes.com/athletic/6742245/2025/10/23/vj-edgecombe-76ers-nba-debut/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6742550/2025/10/23/cooper-flagg-mavericks-opening-n
 **Broadway Averts Strike as Musicians Reach Deal With Producers, Union Says**\
 `The tentative agreement, which still requires ratification by union members, comes five days after a similar agreement with actors and stage managers.`\
 https://nytimes.com/2025/10/23/theater/broadway-strike-union-deal.html
-
-**Van Dijk confirms he organised players-only meeting after Man Utd loss**\
-`Liverpool responded to that 2-1 home defeat with a 5-1 victory at Eintracht Frankfurt on Wednesday night.`\
-https://nytimes.com/athletic/6742851/2025/10/23/liverpool-meeting-van-dijk/
 

@@ -1,3 +1,7 @@
+**Aging Bull? Nikola Vučević rages on in opening night win against the Pistons**\
+`Vučević's age and style of play don't seem to mesh with Chicago is trying to do. Unless he plays like he did Wednesday.`\
+https://nytimes.com/athletic/6742549/2025/10/23/nikola-vucevic-bulls-season-opener-win/
+
 **'He was amazing': V.J. Edgecombe makes history to give 76ers hope**\
 `When the lottery balls fell Philadelphia's way and they were able to draft Edgecombe, a night like Wednesday night was the vision.`\
 https://nytimes.com/athletic/6742245/2025/10/23/vj-edgecombe-76ers-nba-debut/
