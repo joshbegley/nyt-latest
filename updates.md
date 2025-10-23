@@ -1,3 +1,11 @@
+**Riccardo Calafiori and controlled chaos theory**\
+`The Italian is in undroppable form – sometimes reminiscent of a galloping horse going forward, he brings unpredictability to attacks`\
+https://nytimes.com/athletic/6732980/2025/10/23/ricciardo-calafiori-and-controlled-chaos-theory/
+
+**Estevao, Chelsea's youngest champions league goalscorer, is a born entertainer**\
+`The exciting Brazilian teenager became Chelsea's youngest Champions League scorer - breaking a record set by a team-mate in the same match`\
+https://nytimes.com/athletic/6741805/2025/10/23/estevao-chelsea-champions-league-youngest/
+
 **Wrexham's first home league win since April will breathe new life into their season**\
 `A 1-0 win against struggling Oxford United has moved Phil Parkinson's team back into the Championship's mid-table `\
 https://nytimes.com/athletic/6736277/2025/10/23/wrexham-oxford-championship-parkinson-breathing-space/
