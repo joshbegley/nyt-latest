@@ -1,3 +1,15 @@
+**International Security Force Will Disarm Hamas, Says Vance**\
+`Speaking from Israel, Vice President JD Vance addressed the delicate issue of disarming Hamas. He said the effort would be led by an international security force, the composition of which is yet to be determined.`\
+https://nytimes.com/video/world/middleeast/100000010476535/international-security-force-disarm-hamas-vance.html
+
+**U.S. Health Workers Recalled From Shutdown Furlough for Medicare, A.C.A. Enrollments**\
+`A federal agency said its employees would return on Monday, with the costs paid by user fees collected from researchers.`\
+https://nytimes.com/2025/10/23/health/medicare-obamacre-federal-workers-furlough-shutdown.html
+
+**2026 Tour de France route analysis - Mont Ventoux for the women, Alpe d’Huez (twice) for the men**\
+`Next year's races will begin in Spain and Switzerland respectively, with fresh twists and some old favourites along the way`\
+https://nytimes.com/athletic/6743267/2025/10/23/2026-tour-de-france-route-analysis/
+
 **College football Week 9 picks ATS: Moving day in the SEC**\
 `The SEC has all three top-25 matchups this week. Which teams will move up in the College Football Playoff race?`\
 https://nytimes.com/athletic/6740460/2025/10/23/college-football-week-9-picks-spread-missouri-vanderbilt-ole-miss-oklahoma/

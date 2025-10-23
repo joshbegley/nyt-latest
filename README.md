@@ -1,3 +1,7 @@
+**A Fortuneteller, a Chaotic Dinner and a Climb: Creative Writing by Teens**\
+`Read these student-written short stories and poems inspired by some recent Times images.`\
+https://nytimes.com/2025/10/23/learning/a-fortuneteller-a-chaotic-dinner-and-a-climb-creative-writing-by-teens.html
+
 **International Security Force Will Disarm Hamas, Says Vance**\
 `Speaking from Israel, Vice President JD Vance addressed the delicate issue of disarming Hamas. He said the effort would be led by an international security force, the composition of which is yet to be determined.`\
 https://nytimes.com/video/world/middleeast/100000010476535/international-security-force-disarm-hamas-vance.html
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/6740460/2025/10/23/college-football-week-9-picks-sp
 `There’s something in the air: a pro-heist frisson.`\
 https://nytimes.com/2025/10/23/opinion/louvre-heist-internet-thrill.html
 
-**Inter Miami announces new contract for Messi**\
+**Lionel Messi signs new Inter Miami contract through 2028 MLS season**\
 `The new deal will see Messi lead the MLS club into its new stadium, Miami Freedom Park, next year.`\
 https://nytimes.com/athletic/6264838/2025/10/23/lionel-messi-new-inter-miami-contract/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/23/dining/shelly-fireman-dead.html
 **Trump Pardons Founder of the Crypto Exchange Binance**\
 `Changpeng Zhao, the richest man in crypto, admitted to money-laundering violations that allowed terrorists and other criminals to move money on Binance.`\
 https://nytimes.com/2025/10/23/technology/trump-pardons-cz-binance.html
-
-**How Kyle Shanahan has kept the 49ers together in what might be his best coaching job yet**\
-`Long known as a great schemer, Shanahan has pressed all the right buttons elsewhere, helping his team overcome a mountain of injuries.`\
-https://nytimes.com/athletic/6743516/2025/10/23/kyle-shanahan-49ers-coach-of-the-year/
 

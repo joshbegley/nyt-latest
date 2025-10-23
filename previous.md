@@ -1,3 +1,15 @@
+**International Security Force Will Disarm Hamas, Says Vance**\
+`Speaking from Israel, Vice President JD Vance addressed the delicate issue of disarming Hamas. He said the effort would be led by an international security force, the composition of which is yet to be determined.`\
+https://nytimes.com/video/world/middleeast/100000010476535/international-security-force-disarm-hamas-vance.html
+
+**U.S. Health Workers Recalled From Shutdown Furlough for Medicare, A.C.A. Enrollments**\
+`A federal agency said its employees would return on Monday, with the costs paid by user fees collected from researchers.`\
+https://nytimes.com/2025/10/23/health/medicare-obamacre-federal-workers-furlough-shutdown.html
+
+**2026 Tour de France route analysis - Mont Ventoux for the women, Alpe d’Huez (twice) for the men**\
+`Next year's races will begin in Spain and Switzerland respectively, with fresh twists and some old favourites along the way`\
+https://nytimes.com/athletic/6743267/2025/10/23/2026-tour-de-france-route-analysis/
+
 **College football Week 9 picks ATS: Moving day in the SEC**\
 `The SEC has all three top-25 matchups this week. Which teams will move up in the College Football Playoff race?`\
 https://nytimes.com/athletic/6740460/2025/10/23/college-football-week-9-picks-spread-missouri-vanderbilt-ole-miss-oklahoma/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/23/technology/trump-pardons-cz-binance.html
 **How Kyle Shanahan has kept the 49ers together in what might be his best coaching job yet**\
 `Long known as a great schemer, Shanahan has pressed all the right buttons elsewhere, helping his team overcome a mountain of injuries.`\
 https://nytimes.com/athletic/6743516/2025/10/23/kyle-shanahan-49ers-coach-of-the-year/
-
-**USMNT's Robinson out for Fulham's Premier League game at Newcastle**\
-`Robinson has made just three league appearances for Fulham so far this season — each of them as a substitute — due to a knee injury.`\
-https://nytimes.com/athletic/6743528/2025/10/23/usmnt-robinson-fulham-injury-update/
-
-**Virginia Democrats Plan to Redraw House Maps in Redistricting Push**\
-`The surprise move could give Democrats two or three additional House seats and is likely to scramble the last couple weeks of campaigning ahead of the Nov. 4 election.`\
-https://nytimes.com/2025/10/23/us/politics/virginia-democrats-redistrict.html
-
-**Documents reveal how one school landed an invite amid conference realignment**\
-`The Bobcats’ revenue-sharing budget across all sports is expected to grow from $4 million in the 2026 fiscal year to $7.2 million in 2029.`\
-https://nytimes.com/athletic/6743652/2025/10/23/pac-12-conference-realignment-texas-state/
 
