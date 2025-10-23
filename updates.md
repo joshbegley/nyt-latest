@@ -1,3 +1,7 @@
+**College golfer aces same hole twice in one day: 'I was in denial' over feat**\
+`Many golfers dream of making just one hole-in-one, but Sewanee sophomore Niel Phillips found magic twice at the Chick-fil-A Invitational.`\
+https://nytimes.com/athletic/6738748/2025/10/22/2-holes-in-one-same-day-college-golfer/
+
 **Cuomo and Mamdani Clash, Again, on Jewish Safety**\
 `Andrew Cuomo attacked Zohran Mamdani after 650 rabbis said Mr. Mamdani’s election would threaten Jews’ safety. Mr. Mamdani said he was being criticized because he could become the city’s first Muslim mayor.`\
 https://nytimes.com/2025/10/22/nyregion/mamdani-rabbis-letter-israel.html
