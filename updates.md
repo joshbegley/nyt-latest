@@ -1,3 +1,19 @@
+**Meta Layoffs Included Employees Who Monitored Risks to User Privacy**\
+`While the company announced job cuts in artificial intelligence, it also expanded plans to replace privacy and risk auditors with more automated systems.`\
+https://nytimes.com/2025/10/23/technology/meta-layoffs-user-privacy.html
+
+**Musk Attacks NASA Leader Over Threat to Reconsider Lunar Contract**\
+`The billionaire’s swipes at Sean Duffy are the latest example of his tangling with members of the Trump administration.`\
+https://nytimes.com/2025/10/23/us/politics/elon-musk-duffy-nasa.html
+
+**Dodgers' Alex Vesia away from team due to 'deeply personal family matter'**\
+`The Dodgers said they will provide an update on Vesia at a later date. `\
+https://nytimes.com/athletic/6745145/2025/10/23/dodgers-alex-vesia-world-series/
+
+**Shohei Ohtani declines joke request to give Blue Jays stuff back**\
+`The World Series provided fodder to look back at the whirlwind final week of Shohei Ohtani’s free agency tour in December 2023.`\
+https://nytimes.com/athletic/6745094/2025/10/23/dodgers-blue-jays-shohei-ohtani-world-series-gifts/
+
 **Angels to have almost entirely new coaching staff under Kurt Suzuki in 2026: Sources**\
 `Because Suzuki’s contract ends after just one season, it could be more of a challenge to put together a coaching staff. `\
 https://nytimes.com/athletic/6745086/2025/10/23/los-angeles-angels-coaching-staff-kurt-suzuki/
