@@ -1,3 +1,19 @@
+**NASCAR, 23XI/Front Row spar at latest antitrust case hearing as trial date looms**\
+`"We're going to trial to hold NASCAR accountable," 23XI Racing and Front Row Motorsports' attorney said Thursday.`\
+https://nytimes.com/athletic/6745047/2025/10/23/nascar-23xi-front-row-antitrust-lawsuit-hearing-trial/
+
+**Testimony at Skaggs trial reveals Eric Kay's termination from Angels was 'voluntary'**\
+`An Angels employee shed some light around the circumstances of Kay's exit from the organization. `\
+https://nytimes.com/athletic/6745092/2025/10/23/angels-tyler-skaggs-trial-eric-kay-voluntary-termination/
+
+**Trump Administration Asserts Authority to House Migrants at All Overseas U.S. Bases**\
+`A Justice Department lawyer made the claim in response to a challenge to the administration’s use of the base at Guantánamo Bay, Cuba, to hold detainees designated for deportation.`\
+https://nytimes.com/2025/10/23/us/politics/dhs-ice-guantanamo.html
+
+**Christian Scott nears end of rehab process. Where does he fit in Mets' plans?**\
+`Scott’s fastball velocity checked in around 94 mph during his bullpen sessions and the right-hander said he recently hit 96 mph. `\
+https://nytimes.com/athletic/6745161/2025/10/23/mets-christian-scott-injury-rotation/
+
 **Blazers coach Chauncey Billups released after arrest in federal betting probe**\
 `Billups agreed to reappear in Eastern District Court in New York on Nov. 24. `\
 https://nytimes.com/athletic/6745258/2025/10/23/chauncey-billups-arrest-gambling-nba-released/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/23/us/politics/elon-musk-duffy-nasa.html
 **Angels to have almost entirely new coaching staff under Kurt Suzuki in 2026: Sources**\
 `With Suzuki’s one-year contract, it could be more of a challenge for the Angels to put together a coaching staff.`\
 https://nytimes.com/athletic/6745086/2025/10/23/los-angeles-angels-coaching-staff-kurt-suzuki/
-
-**Tennis outlet says it altered Marta Kostyuk interview about Aryna Sabalenka, Iga Świątek**\
-`An exchange in which Kostyuk mentioned “testosterone levels” in response to a question about intimidation did not take place.`\
-https://nytimes.com/athletic/6745080/2025/10/23/marta-kostyuk-interview-sabalenka-swiatek/
-
-**Dodgers' Alex Vesia away from team due to 'deeply personal family matter'**\
-`The Dodgers said they will provide an update on Vesia at a later date. `\
-https://nytimes.com/athletic/6745145/2025/10/23/dodgers-alex-vesia-world-series/
-
-**What We Know About the Gambling Cases Involving N.B.A. Players**\
-`Two indictments detailed schemes involving sports betting and rigged poker games, prosecutors said. The link was current and former N.B.A. players and coaches.`\
-https://nytimes.com/2025/10/23/nyregion/nba-gambling-scandal-explained.html
-
-**Shohei Ohtani declines joke request to give Blue Jays stuff back**\
-`The World Series provided fodder to look back at the whirlwind final week of Shohei Ohtani’s free agency tour in December 2023.`\
-https://nytimes.com/athletic/6745094/2025/10/23/dodgers-blue-jays-shohei-ohtani-world-series-gifts/
 
