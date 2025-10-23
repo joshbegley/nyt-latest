@@ -1,3 +1,7 @@
+**The U.S. and Europe Are Trying New Ways to Pressure Russia**\
+`For the first time in his second term, President Trump is imposing new sanctions, but they may not shift the course of Russia’s war in Ukraine.`\
+https://nytimes.com/2025/10/23/world/europe/russia-oil-sanctions-prices.html
+
 **Blue Jays' Bo Bichette took grounders at second base, could play position in World Series**\
 `Toronto manager John Schneider said Thursday that Bichette is feeling good, but still has a few more boxes to check.`\
 https://nytimes.com/athletic/6744663/2025/10/23/blue-jays-bo-bichette-second-base-could-play-position-world-series/

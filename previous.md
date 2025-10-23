@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6744663/2025/10/23/blue-jays-bo-bichette-second-bas
 `Zohran Mamdani entered the final debate in the New York City mayoral race ahead in the polls. Nicholas Fandos, who covers New York politics and government for The New York Times, describes Mr. Mamdani’s strategy to appeal to the wider electorate before early voting begins.`\
 https://nytimes.com/video/nyregion/100000010472876/how-mamdani-has-evolved-in-the-mayoral-race.html
 
-**The U.S. and Europe are Trying New Ways to Pressure Russia**\
+**The U.S. and Europe Are Trying New Ways to Pressure Russia**\
 `For the first time in his second term, President Trump is imposing new sanctions, but they may not shift the course of Russia’s war in Ukraine.`\
 https://nytimes.com/2025/10/23/world/europe/russia-oil-sanctions-prices.html
 
