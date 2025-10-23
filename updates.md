@@ -1,3 +1,11 @@
+**The Wizards know what they did wrong in Milwaukee. Can they correct it?**\
+`A passive start doomed Washington against Giannis Antetokounmpo. Friday is a chance to avoid the same mistake. `\
+https://nytimes.com/athletic/6742455/2025/10/23/washington-wizards-season-opener/
+
+**Thanks a Lot, Boomers**\
+`Hey, boomers! Younger Americans would like a word. We’ve noticed that many of you are pretty upset about the state of the nation. And we get it. We really do. But do you ever stop and ask yourselves how we got here?`\
+https://nytimes.com/video/opinion/100000010436284/thanks-a-lot-boomers.html
+
 **Russians Awake to Trump’s New Oil Sanctions and Largely Shrug**\
 `While oil markets reacted strongly to the sanctions, analysts said the measures were unlikely to significantly change President Vladimir V. Putin’s war calculations.`\
 https://nytimes.com/2025/10/23/world/europe/russia-trump-oil-sanctions.html
