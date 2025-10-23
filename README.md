@@ -1,3 +1,7 @@
+**The Top Three Scary Movies**\
+`Wesley Morris and Eric Hynes, a film curator, talk about some of the most memorable horror movies they’ve ever seen.`\
+https://nytimes.com/video/podcasts/100000010469470/the-top-three-scary-movies.html
+
 **The New York Times in Print for Thursday, Oct. 23, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/23/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6736277/2025/10/23/wrexham-oxford-championship-park
 **Is it really ever worth reversing a transfer decision straight away in Fantasy Premier League**\
 `Holly Shand explores something of a taboo topic in FPL, where frustration and instant regret comes with the territory`\
 https://nytimes.com/athletic/6732743/2025/10/23/fantasy-premier-league-transfers-advice-regret/
-
-**Guglielmo Vicario is Tottenham's man for the here and now**\
-`Vicario may not feel like the kind of goalkeeper that Frank usually favours but his shot-stopping ability is not to be sniffed at`\
-https://nytimes.com/athletic/6741716/2025/10/23/tottenham-hotspur-champions-league-vicario/
 
