@@ -1,3 +1,11 @@
+**16 Stats: Why the New York Rangers are better than their record**\
+`Once the Rangers start finishing their chances, look out. Plus: the Red Wings are off to a great start and a Blue Jays NHL comparable.`\
+https://nytimes.com/athletic/6740776/2025/10/23/16-stats-nhl-rangers-possession/
+
+**Virginia's dream season is more than surprising. It's a father-son bonding experience**\
+`Chad and Chandler Morris have had their separate ups and downs in college football. But they're taking in Virginia's dream season together.`\
+https://nytimes.com/athletic/6740863/2025/10/23/chandler-morris-virginia-chad-morris/
+
 **Chicago Bears Intel: Will early fourth-down hiccups temper Ben Johnson's aggressiveness?**\
 `The Bears hope to be an aggressive and productive fourth-down offense. But the early returns have lagged.`\
 https://nytimes.com/athletic/6740878/2025/10/23/bears-fourth-downs-ben-johnson/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6737484/2025/10/23/vikings-chargers-justin-jefferso
 **Vikings-Chargers predictions: What we're watching in intriguing TNF matchup**\
 `Can Carson Wentz bounce back after a rough performance? And can the Vikings defense keep Chargers QB Justin Herbert in check?`\
 https://nytimes.com/athletic/6740775/2025/10/23/vikings-chargers-predictions-matchups-thursday-night-football/
-
-**New Allen Iverson docuseries on Prime Video brings light to 'The Answer'**\
-` Iverson played basketball with a fire matched by few. His docuseries on Prime Video gives more of an insight into who he is.`\
-https://nytimes.com/athletic/6737950/2025/10/23/allen-iverson-docuseries-prime-video-nba/
-
-**Why haven't the WNBA and players union reached a deal?**\
-`The deadline to reach a deal is Oct. 31, but revenue sharing remains a major wedge issue. `\
-https://nytimes.com/athletic/6740675/2025/10/23/wnba-cba-players-union-deal-negotiations/
 
