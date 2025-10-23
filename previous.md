@@ -7,7 +7,7 @@ https://nytimes.com/2025/10/23/technology/meta-layoffs-user-privacy.html
 https://nytimes.com/2025/10/23/us/politics/elon-musk-duffy-nasa.html
 
 **Angels to have almost entirely new coaching staff under Kurt Suzuki in 2026: Sources**\
-`Because Suzuki’s contract ends after just one season, it could be more of a challenge to put together a coaching staff. `\
+`With Suzuki’s one-year contract, it could be more of a challenge for the Angels to put together a coaching staff.`\
 https://nytimes.com/athletic/6745086/2025/10/23/los-angeles-angels-coaching-staff-kurt-suzuki/
 
 **Tennis outlet says it altered Marta Kostyuk interview about Aryna Sabalenka, Iga Świątek**\

@@ -1,3 +1,7 @@
+**Angels to have almost entirely new coaching staff under Kurt Suzuki in 2026: Sources**\
+`With Suzuki’s one-year contract, it could be more of a challenge for the Angels to put together a coaching staff.`\
+https://nytimes.com/athletic/6745086/2025/10/23/los-angeles-angels-coaching-staff-kurt-suzuki/
+
 **Meta Layoffs Included Employees Who Monitored Risks to User Privacy**\
 `While the company announced job cuts in artificial intelligence, it also expanded plans to replace privacy and risk auditors with more automated systems.`\
 https://nytimes.com/2025/10/23/technology/meta-layoffs-user-privacy.html
