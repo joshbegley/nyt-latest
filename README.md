@@ -1,3 +1,7 @@
+**Meta Layoffs Included Employees Who Monitored Risks to User Privacy**\
+`While the company announced job cuts in artificial intelligence, it also expanded plans to replace privacy and risk auditors with more automated systems.`\
+https://nytimes.com/2025/10/23/technology/meta-layoffs-user-privacy.html
+
 **Musk Attacks NASA Leader Over Threat to Reconsider Lunar Contract**\
 `The billionaire’s swipes at Sean Duffy are the latest example of his tangling with members of the Trump administration.`\
 https://nytimes.com/2025/10/23/us/politics/elon-musk-duffy-nasa.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6745053/2025/10/23/bengals-logan-wilson-trade-reque
 **Trump Says He Will Not Seek Authorization for Cartel Strikes**\
 `The president said he would bypass Congress rather than ask for approval for his military campaign against drug traffickers, even as he said it would expand from sea to land.`\
 https://nytimes.com/2025/10/23/us/politics/trump-military-authorization-cartel-strikes.html
-
-**What We Know About the N.B.A. Betting Scandal**\
-`Mike Vorkunov of The Athletic breaks down the bombshell gambling scandal that led to the arrests of Miami Heat guard Terry Rozier and Chauncey Billups, head coach of the Portland Trail Blazers.`\
-https://nytimes.com/video/the-athletic/100000010478210/what-we-know-about-the-nba-betting-scandal.html
 
