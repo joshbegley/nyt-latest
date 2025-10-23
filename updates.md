@@ -1,3 +1,11 @@
+**Cuomo Joins Adams at Knicks Game. Is an Endorsement in the Cards?**\
+`Former Gov. Andrew M. Cuomo and Mayor Eric Adams looked like the best of friends as they sat together at Madison Square Garden right after the debate.`\
+https://nytimes.com/2025/10/22/nyregion/eric-adams-cuomo-knicks.html
+
+**N.Y.C. Mayoral Candidates Trade Zingers in Final Debate**\
+`The candidates sparred over their policies, personalities and how they would deal with President Trump in the second and final debate of the mayoral campaign.`\
+https://nytimes.com/2025/10/22/nyregion/nyc-mayor-debate-zingers.html
+
 **7 Takeaways From the Final N.Y.C. Mayoral Debate**\
 `Zohran Mamdani, Andrew M. Cuomo and Curtis Sliwa continued attacking one another, with Mr. Mamdani and Mr. Cuomo the main targets.`\
 https://nytimes.com/2025/10/22/nyregion/nyc-mayor-debate-takeaways.html

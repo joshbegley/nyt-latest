@@ -1,3 +1,11 @@
+**Cuomo Joins Adams at Knicks Game. Is an Endorsement in the Cards?**\
+`Former Gov. Andrew M. Cuomo and Mayor Eric Adams looked like the best of friends as they sat together at Madison Square Garden right after the debate.`\
+https://nytimes.com/2025/10/22/nyregion/eric-adams-cuomo-knicks.html
+
+**N.Y.C. Mayoral Candidates Trade Zingers in Final Debate**\
+`The candidates sparred over their policies, personalities and how they would deal with President Trump in the second and final debate of the mayoral campaign.`\
+https://nytimes.com/2025/10/22/nyregion/nyc-mayor-debate-zingers.html
+
 **7 Takeaways From the Final N.Y.C. Mayoral Debate**\
 `Zohran Mamdani, Andrew M. Cuomo and Curtis Sliwa continued attacking one another, with Mr. Mamdani and Mr. Cuomo the main targets.`\
 https://nytimes.com/2025/10/22/nyregion/nyc-mayor-debate-takeaways.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/22/nyregion/mamdani-rabbis-letter-israel.html
 **“You sent seniors to their deaths in nursing homes.”**\
 `By Benjamin Oreskes`\
 https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/fact-check-nursing-homes
-
-**Queens Tenants Were Urged to Report Immigrants to ICE, Officials Say**\
-`A sign posted in the lobby of an apartment building listed “immigration” alongside crimes it said should be reported to a tip line, state officials said.`\
-https://nytimes.com/2025/10/22/nyregion/queens-landlord-ice-reports-immigrants.html
-
-**“You had the worst attendance record in the Assembly.”**\
-`By Benjamin Oreskes`\
-https://nytimes.com/live/2025/10/22/nyregion/nyc-mayor-debate/you-had-the-worst-attendance-record-in-the-assembly
 
