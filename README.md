@@ -1,3 +1,7 @@
+**Republicans Who Have Rarely Opposed Trump Raise Questions About His Drug War**\
+`The president said he wouldn’t seek congressional approval for his expanding military offensive against cartels, but some in his party believe Congress should weigh in.`\
+https://nytimes.com/2025/10/24/us/politics/republicans-trump-drug-war.html
+
 **Why We Can’t All Get Along, and What to Do About It**\
 `Readers respond to an essay about whether we can break the present cycle of heated and sometimes violent disagreement.`\
 https://nytimes.com/2025/10/24/opinion/american-disagreement.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6747165/2025/10/24/carter-hart-contract-golden-knig
 **A Woman Self-Deported, Hoping to Shield Her Son. He Was Detained Anyway.**\
 `Joel Camas, 16, had been without his mother for about four weeks after she voluntarily returned to Ecuador. His lawyer had hoped his age would shield him.`\
 https://nytimes.com/2025/10/24/nyregion/teenager-detained-mother-self-deported.html
-
-**Rangers call up Othmann after Rempe injured in fight with Ryan Reaves**\
-`In an interesting twist, the Rangers have decided to make Othmann their first forward recall of the season.`\
-https://nytimes.com/athletic/6747113/2025/10/24/rangers-matt-rempe-injury-brennan-othmann/
 
