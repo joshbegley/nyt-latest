@@ -1,3 +1,7 @@
+**U.S. gymnast Donnell Whittenburg wins still rings gold, 10 years after last world medal**\
+`American Donnell Whittenburg won gold in the still rings competition Friday at the Artistic Gymnastics World Championships, his first win in a major international competition and first medal in 10 years.`\
+https://nytimes.com/athletic/6746508/2025/10/24/donnell-whittenburg-gymnastics-world-championships-gold-still-rings/
+
 **NBA scandals overshadow greatness on the court, and that's the real travesty**\
 `The Warriors and Nuggets played an early season classic on Thursday, but all anybody could talk about was the integrity of the league.`\
 https://nytimes.com/athletic/6746215/2025/10/24/nba-gambling-warriors-nuggets-column/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6740976/2025/10/24/nfl-week-8-national-tight-ends-d
 **So Long, East Wing**\
 `We look back at the history of this corner of the White House.`\
 https://nytimes.com/2025/10/24/briefing/so-long-east-wing.html
-
-**Possible Bears trades at the deadline? Mailbag plus Week 8 picks**\
-`While it's unlikely the Bears make any moves before the Nov. 4 deadline, GM Ryan Poles has shown he is not afraid to be aggressive. `\
-https://nytimes.com/athletic/6744863/2025/10/24/bears-trade-deadline-mailbag-ravens/
 
