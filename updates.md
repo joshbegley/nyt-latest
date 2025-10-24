@@ -1,3 +1,15 @@
+**U.S. Sanctions Colombia’s Leader, One of President Trump’s Harshest Critics**\
+`The United States Treasury Department accused President Gustavo Petro of allowing drug trafficking to flourish.`\
+https://nytimes.com/2025/10/24/world/americas/us-sanctions-colombia-president-petro-drugs.html
+
+**Eagles' A.J. Brown out Sunday vs. Giants with hamstring injury**\
+`Brown did not leave last week's game with an injury, so it's unclear when it occurred.`\
+https://nytimes.com/athletic/6747934/2025/10/24/aj-brown-out-eagles-giants/
+
+**We Traveled the Real California That ‘One Battle After Another’ Imagined**\
+`Paul Thomas Anderson’s film spotlights unseen corners of the state. To find them, our photographer traveled California from tip to tip.`\
+https://nytimes.com/2025/10/24/movies/one-battle-after-another-filming-location-california.html
+
 **Trump’s Son Is Poised to Profit From Pentagon Drone Proposal**\
 `A small company that has been manufacturing motors domestically for only a few weeks and has Donald Trump Jr. as an adviser won a parts order from the Army.`\
 https://nytimes.com/2025/10/24/us/politics/trump-drones-pentagon.html

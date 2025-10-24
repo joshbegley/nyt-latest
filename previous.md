@@ -1,3 +1,15 @@
+**U.S. Sanctions Colombia’s Leader, One of President Trump’s Harshest Critics**\
+`The United States Treasury Department accused President Gustavo Petro of allowing drug trafficking to flourish.`\
+https://nytimes.com/2025/10/24/world/americas/us-sanctions-colombia-president-petro-drugs.html
+
+**Eagles' A.J. Brown out Sunday vs. Giants with hamstring injury**\
+`Brown did not leave last week's game with an injury, so it's unclear when it occurred.`\
+https://nytimes.com/athletic/6747934/2025/10/24/aj-brown-out-eagles-giants/
+
+**We Traveled the Real California That ‘One Battle After Another’ Imagined**\
+`Paul Thomas Anderson’s film spotlights unseen corners of the state. To find them, our photographer traveled California from tip to tip.`\
+https://nytimes.com/2025/10/24/movies/one-battle-after-another-filming-location-california.html
+
 **Trump’s Son Is Poised to Profit From Pentagon Drone Proposal**\
 `A small company that has been manufacturing motors domestically for only a few weeks and has Donald Trump Jr. as an adviser won a parts order from the Army.`\
 https://nytimes.com/2025/10/24/us/politics/trump-drones-pentagon.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/10/24/us/alabama-nitrogen-execution-anthony-boyd.html
 **Is it time to sell your Shohei Ohtani baseball cards?**\
 `Collectors are faced with a dilemma as Ohtani's cards rapidly rise in value.`\
 https://nytimes.com/athletic/6747458/2025/10/24/shohei-ohtani-rookie-card-values/
-
-**Blue Jays confident in Bo Bichette's health, athleticism ahead of Game 1 start at second**\
-`Bichette has never played second base in the major leagues. He gets his first crack at the position in Game 1 of the World Series.`\
-https://nytimes.com/athletic/6747862/2025/10/24/blue-jays-bo-bichette-second-base-world-series/
-
-**Food Banks Offer Groceries for Furloughed Federal Workers**\
-`In the Washington region, the Capital Area Food Bank is providing food distribution specifically for federal workers and contractors who are going without pay.`\
-https://nytimes.com/2025/10/24/us/politics/food-banks-federal-workers-trump.html
-
-**Xbox’s Prized Sci-Fi Franchise Is Heading to PlayStation**\
-`As part of a strategic shift away from exclusivity, Microsoft is bringing Halo to Sony’s competing console for the first time.`\
-https://nytimes.com/2025/10/24/arts/halo-playstation-microsoft-xbox.html
 
