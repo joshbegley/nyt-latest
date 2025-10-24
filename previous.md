@@ -1,3 +1,7 @@
+**New Star of an Ad Campaign: The Louvre Heist Ladder**\
+`After thieves stole more than a hundred million dollars’ worth of jewelry from the Louvre using a lift truck, the manufacturer decided to capitalize on the connection.`\
+https://nytimes.com/video/world/europe/100000010478760/louvre-robbery-german-campaign-bocker.html
+
 **Fantasy Premier League live Q&A: Gameweek 9 advice from Ben Dinnery**\
 `Join Ben Dinnery for a live Gameweek 9 Q&A from 1pm-2pm UK time today`\
 https://nytimes.com/athletic/6743245/2025/10/24/fantasy-premier-league-gameweek-9-q-and-a/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/24/nyregion/trump-james-shame-campaign.html
 **Finding His Russian Jewish Roots in American Soul Food**\
 `When a Russian émigré documented the closing of a soul food restaurant in Washington, D.C., he discovered much in common with his own history.`\
 https://nytimes.com/2025/10/24/insider/finding-his-russian-jewish-roots-in-american-soul-food.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/10/24/crosswords/spelling-bee-forum.html
 

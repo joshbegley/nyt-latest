@@ -1,3 +1,7 @@
+**New Star of an Ad Campaign: The Louvre Heist Ladder**\
+`After thieves stole more than a hundred million dollars’ worth of jewelry from the Louvre using a lift truck, the manufacturer decided to capitalize on the connection.`\
+https://nytimes.com/video/world/europe/100000010478760/louvre-robbery-german-campaign-bocker.html
+
 **Fantasy Premier League live Q&A: Gameweek 9 advice from Ben Dinnery**\
 `Join Ben Dinnery for a live Gameweek 9 Q&A from 1pm-2pm UK time today`\
 https://nytimes.com/athletic/6743245/2025/10/24/fantasy-premier-league-gameweek-9-q-and-a/
