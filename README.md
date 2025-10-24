@@ -1,3 +1,7 @@
+**A Place for Friends**\
+`Kelvin Zhou makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/10/23/crosswords/daily-puzzle-2025-10-24.html
+
 **USWNT 1, Portugal 2: Uncharacteristic mistakes leave the U.S. disappointed in loss**\
 `The U.S. conceded two set piece goals for the first time in recent memory, looking uncharacteristically disjointed. `\
 https://nytimes.com/athletic/6745539/2025/10/23/uswnt-loss-portugal-mistakes/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6745448/2025/10/23/dodgers-vs-blue-jays-stream-how-
 **Tensions Mount as Agents, Including Gregory Bovino, Clash With Chicagoans**\
 `Mr. Bovino, a Border Patrol leader, appeared to use tear gas during a confrontation with residents on Thursday. Plaintiffs in a suit over federal tactics say that violated a court order.`\
 https://nytimes.com/2025/10/23/us/politics/gregory-bovino-chicago-immigration.html
-
-**Target to Cut 1,800 Corporate Jobs in Efficiency Drive**\
-`The retail chain’s incoming chief executive, who will take over in February, cited “too many layers and overlapping work” in a memo.`\
-https://nytimes.com/2025/10/23/business/target-job-cuts.html
 
