@@ -1,4 +1,8 @@
-**'There's gonna be hiccups': NBA coaches, player react to NBA betting investigation**\
+**Quote of the Day: PUTIN DISMISSES LATEST SANCTIONS**\
+`Quotation of the Day for Friday, October 24, 2025.`\
+https://nytimes.com/2025/10/23/pageoneplus/quote-of-the-day-putin-dismisses-latest-sanctions.html
+
+**'There's gonna be hiccups': Coaches, player react to NBA betting investigation**\
 `"Our players are well aware, all players are well aware, of what they're allowed to do, what they're not allowed to do," Steve Kerr said.`\
 https://nytimes.com/athletic/6745819/2025/10/23/nba-coaches-players-react-to-betting-scandal/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/23/crosswords/daily-puzzle-2025-10-24.html
 **USWNT 1, Portugal 2: Uncharacteristic mistakes leave the U.S. disappointed in loss**\
 `The U.S. conceded two set piece goals for the first time in recent memory, looking uncharacteristically disjointed. `\
 https://nytimes.com/athletic/6745539/2025/10/23/uswnt-loss-portugal-mistakes/
-
-**Protester Who Played ‘Star Wars’ Song Sues After Arrest in Washington**\
-`Sam O’Hara was playing the “Imperial March” theme from the movie while protesting the deployment of National Guard troops in the capital when he was handcuffed by city police officers.`\
-https://nytimes.com/2025/10/23/us/politics/protester-who-played-star-wars-song-sues-after-arrest-in-washington.html
 
