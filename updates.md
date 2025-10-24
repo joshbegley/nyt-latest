@@ -1,3 +1,15 @@
+**Aaron Rodgers' ex-Packers teammates dish on Steelers QB: 'I always appreciate him'**\
+`For the first time, Rodgers will face the team he was with for 18 seasons on Sunday night, when the Packers visit the Steelers.`\
+https://nytimes.com/athletic/6745502/2025/10/24/aaron-rodgers-packers-teammates-jordan-love/
+
+**In-state recruiting wars, potential drama and more Michigan-Michigan State storylines**\
+`An undertone of desperation runs through the buildup to Saturday night’s game between No. 25 Michigan (5-2) and Michigan State (3-4).`\
+https://nytimes.com/athletic/6743952/2025/10/24/michigan-michigan-state-college-football-rivalry/
+
+**NFL Week 8 schedule rankings: Top 5 Sunday games to celebrate National Tight Ends Day**\
+`Sunday marks National Tight Ends Day, which lands somewhere between an NFL in-joke and a celebration of physical strength.`\
+https://nytimes.com/athletic/6740976/2025/10/24/nfl-week-8-national-tight-ends-day-how-to-watch/
+
 **So Long, East Wing**\
 `We look back at the history of this corner of the White House.`\
 https://nytimes.com/2025/10/24/briefing/so-long-east-wing.html
