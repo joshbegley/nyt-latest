@@ -1,3 +1,11 @@
+**Week 8 fantasy football intel, predictions using player prop lines**\
+`Brad Evans scours the sportsbooks to find fantasy intel that can help you in your Week 8 lineups. `\
+https://nytimes.com/athletic/6743701/2025/10/24/fantasy-football-intel-week-8-player-props/
+
+**‘Springsteen: Deliver Me From Nowhere’ | Anatomy of a Scene**\
+`Scott Cooper narrates a sequence from his film, featuring Jeremy Allen White playing Bruce Springsteen.`\
+https://nytimes.com/video/movies/100000010476355/springsteen-deliver-me-from-nowhere-scene.html
+
 **Mitoma a doubt for Brighton's Man Utd game after ankle issue**\
 `The 28-year-old has missed their last two matches with an injury to his left ankle.`\
 https://nytimes.com/athletic/6746230/2025/10/24/mitoma-brighton-injury-update/

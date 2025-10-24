@@ -1,3 +1,11 @@
+**Week 8 fantasy football intel, predictions using player prop lines**\
+`Brad Evans scours the sportsbooks to find fantasy intel that can help you in your Week 8 lineups. `\
+https://nytimes.com/athletic/6743701/2025/10/24/fantasy-football-intel-week-8-player-props/
+
+**‘Springsteen: Deliver Me From Nowhere’ | Anatomy of a Scene**\
+`Scott Cooper narrates a sequence from his film, featuring Jeremy Allen White playing Bruce Springsteen.`\
+https://nytimes.com/video/movies/100000010476355/springsteen-deliver-me-from-nowhere-scene.html
+
 **Mitoma a doubt for Brighton's Man Utd game after ankle issue**\
 `The 28-year-old has missed their last two matches with an injury to his left ankle.`\
 https://nytimes.com/athletic/6746230/2025/10/24/mitoma-brighton-injury-update/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6746187/2025/10/24/nuggets-warriors-aaron-gordon-50
 **We Asked Mamdani, Cuomo and Sliwa 10 Questions. Here’s What They Said.**\
 `We interviewed the leading candidates for New York City mayor about their experience, their plans for the city and their favorite subway seat.`\
 https://nytimes.com/2025/10/24/nyregion/mamdani-cuomo-sliwa-10-questions.html
-
-**Holding Hands**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2025/10/24/learning/holding-hands.html
-
-**How to Vote Early in New York City, Where It’s Not Too Late to Register**\
-`New Yorkers can vote early in the race for mayor and other contests starting Saturday, Oct. 25 — which is also the voter registration deadline.`\
-https://nytimes.com/2025/10/24/nyregion/nyc-election-what-to-know.html
 
