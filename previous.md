@@ -1,3 +1,15 @@
+**Joseph Woll returning to Maple Leafs after extended personal leave**\
+`An update regarding how Woll will be reintegrated into the Leafs is expected in the near future.`\
+https://nytimes.com/athletic/6747786/2025/10/24/joseph-woll-return-maple-leafs/
+
+**6 Cordless Lamps I Love**\
+`Text by Ivy Elrod`\
+https://nytimes.com/card/2025/10/24/smarter-living/wirecutter/
+
+**What are prop bets, and what does the latest gambling scandal spell for regulation?**\
+`Experts say that some form of regulation when it comes to prop bets is likely necessary to preserve the integrity of the game.`\
+https://nytimes.com/athletic/6747376/2025/10/24/prop-bets-nba-gambling-scandal/
+
 **A Missing Picasso Is Found, and a Small Spanish Town Loses Its Air of Mystery**\
 `For a brief moment, the puzzle of what had happened to Pablo Picasso’s “Still Life With Guitar” infected Deifontes with caper fever.`\
 https://nytimes.com/2025/10/24/world/europe/spain-picasso-missing.html
@@ -6,8 +18,8 @@ https://nytimes.com/2025/10/24/world/europe/spain-picasso-missing.html
 `Sulawesi, Indonesia, blurs the boundaries between myth and ecology. What might it reveal about our past – or destiny?`\
 https://nytimes.com/interactive/2025/10/24/magazine/sulawesi-indonesia-earth-secrets-biodiversity.html
 
-**Canucks acquire forward Lukas Reichel in trade with Blackhawks**\
-`Reichel was a first-round pick in the 2020 NHL Draft.`\
+**Canucks acquire Lukas Reichel in trade with Blackhawks**\
+`A 2020 first-round pick, Reichel going from Chicago to Vancouver is a classic change-of-scenery trade.`\
 https://nytimes.com/athletic/6747844/2025/10/24/canucks-trade-blackhawks-lukas-reichel/
 
 **Falcons QB Michael Penix Jr. listed as questionable for Dolphins game**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6747387/2025/10/24/tony-vitello-sf-giants-tennessee
 **6 Items From the Gene Hackman Auction: His Art, Scripts and Galaga**\
 `The actor, who died this year at 95, led a quiet life in New Mexico. An auction of his belongings offers insights into his life and work.`\
 https://nytimes.com/2025/10/24/movies/gene-hackman-auction.html
-
-**Among the East Wing Rubble: The Presidency’s ‘Best Perk’**\
-`Nixon watched “Patton” there. Obama hosted the “Lincoln” cast. Built in 1942, the White House’s private movie theater offered refuge and entertainment.`\
-https://nytimes.com/2025/10/24/movies/white-house-movie-theater.html
-
-**Trump to Use $130 Million Donation to Help Pay Troops**\
-`It is not clear how far the gift will go toward covering the salaries of the nation’s 1.3 million troops.`\
-https://nytimes.com/2025/10/24/us/politics/trump-military-pay-donation.html
-
-**The Man at the Center of Trump’s $20 Billion Lifeline**\
-`$20 billion bailout for Argentina comes with strings attached — namely, that the ruling party of his ally, President Javier Milei of Argentina, must prevail in the country’s legislative elections this month.`\
-https://nytimes.com/video/world/americas/100000010474096/the-man-at-the-center-of-trumps-20-billion-lifeline.html
 

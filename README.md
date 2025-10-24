@@ -1,3 +1,11 @@
+**Food Banks Offer Groceries for Furloughed Federal Workers**\
+`In the Washington region, the Capital Area Food Bank is providing food distribution specifically for federal workers and contractors who are going without pay.`\
+https://nytimes.com/2025/10/24/us/politics/food-banks-federal-workers-trump.html
+
+**Xbox’s Prized Sci-Fi Franchise Is Heading to PlayStation**\
+`As part of a strategic shift away from exclusivity, Microsoft is bringing Halo to Sony’s competing console for the first time.`\
+https://nytimes.com/2025/10/24/arts/halo-playstation-microsoft-xbox.html
+
 **Joseph Woll returning to Maple Leafs after extended personal leave**\
 `An update regarding how Woll will be reintegrated into the Leafs is expected in the near future.`\
 https://nytimes.com/athletic/6747786/2025/10/24/joseph-woll-return-maple-leafs/
@@ -6,7 +14,7 @@ https://nytimes.com/athletic/6747786/2025/10/24/joseph-woll-return-maple-leafs/
 `Text by Ivy Elrod`\
 https://nytimes.com/card/2025/10/24/smarter-living/wirecutter/
 
-**What are prop bets, and what does the latest gambling scandal spell for regulation?**\
+**What are prop bets, and what does the latest gambling scandal mean for regulation?**\
 `Experts say that some form of regulation when it comes to prop bets is likely necessary to preserve the integrity of the game.`\
 https://nytimes.com/athletic/6747376/2025/10/24/prop-bets-nba-gambling-scandal/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6747652/2025/10/24/falcons-michael-penix-jr-kirk-co
 **Landslide Kills 3 in Haiti, and More Rain From Tropical Storm Melissa Is on the Way**\
 `Officials across the Caribbean prepare for days of heavy rain from the storm.`\
 https://nytimes.com/2025/10/24/weather/tropical-storm-melissa-haiti-dominican-republic-jamaica.html
-
-**Tony Vitello discusses timeline, reasons for leaving Tennessee for Giants: 'It was selfish'**\
-`Vitello spoke with local media in Knoxville, Tenn. about his decision to leave the Volunteers for the major leagues.`\
-https://nytimes.com/athletic/6747387/2025/10/24/tony-vitello-sf-giants-tennessee-manager-timeline/
-
-**6 Items From the Gene Hackman Auction: His Art, Scripts and Galaga**\
-`The actor, who died this year at 95, led a quiet life in New Mexico. An auction of his belongings offers insights into his life and work.`\
-https://nytimes.com/2025/10/24/movies/gene-hackman-auction.html
 

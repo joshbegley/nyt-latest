@@ -1,3 +1,19 @@
+**Joseph Woll returning to Maple Leafs after extended personal leave**\
+`An update regarding how Woll will be reintegrated into the Leafs is expected in the near future.`\
+https://nytimes.com/athletic/6747786/2025/10/24/joseph-woll-return-maple-leafs/
+
+**6 Cordless Lamps I Love**\
+`Text by Ivy Elrod`\
+https://nytimes.com/card/2025/10/24/smarter-living/wirecutter/
+
+**What are prop bets, and what does the latest gambling scandal spell for regulation?**\
+`Experts say that some form of regulation when it comes to prop bets is likely necessary to preserve the integrity of the game.`\
+https://nytimes.com/athletic/6747376/2025/10/24/prop-bets-nba-gambling-scandal/
+
+**Canucks acquire Lukas Reichel in trade with Blackhawks**\
+`A 2020 first-round pick, Reichel going from Chicago to Vancouver is a classic change-of-scenery trade.`\
+https://nytimes.com/athletic/6747844/2025/10/24/canucks-trade-blackhawks-lukas-reichel/
+
 **A Missing Picasso Is Found, and a Small Spanish Town Loses Its Air of Mystery**\
 `For a brief moment, the puzzle of what had happened to Pablo Picasso’s “Still Life With Guitar” infected Deifontes with caper fever.`\
 https://nytimes.com/2025/10/24/world/europe/spain-picasso-missing.html
