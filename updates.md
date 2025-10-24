@@ -1,3 +1,11 @@
+**2025 World Series MVP odds: History says Shohei Ohtani is not a lock to win**\
+`Shohei Ohtani is favored to win World Series MVP, which is no surprise, but history says he probably won't win it.`\
+https://nytimes.com/athletic/6743939/2025/10/24/world-series-mvp-odds-shohei-ohtani/
+
+**Next week’s waiver wire: Xavier Legette and more players to add — before the Week 9 rush**\
+`John Laghezza helps you beat the rush by projecting Week 9's waiver-wire targets. His advice — add Xavier Legette now. `\
+https://nytimes.com/athletic/6742934/2025/10/24/next-weeks-waiver-wire-week-9-xavier-legette/
+
 **Can Economic Populism Save the Democratic Party?**\
 `Jared Abbott, the director of the Center for Working-Class Politics, discusses what it would take for Democrats to better appeal to working-class voters.`\
 https://nytimes.com/2025/10/24/opinion/ezra-klein-podcast-jared-abbott.html
