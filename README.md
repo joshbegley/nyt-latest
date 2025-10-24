@@ -1,3 +1,7 @@
+**D.C. Seeks to Block National Guard Deployment in Court**\
+`During a hearing on Friday, lawyers told a judge that National Guard troops sent from Republican-led states had been conducting conduct law enforcement work.`\
+https://nytimes.com/2025/10/24/us/politics/national-guard-dc-lawsuit.html
+
 **What Happens When a Storm Like Melissa Doesn’t Move**\
 `Melissa is moving at a sluggish pace and could dump a lot of rain in one place. Jamaica and Haiti are likely to see the most.`\
 https://nytimes.com/2025/10/24/weather/hurricane-melissa-slow-forecast-haiti-jamaica-rain.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010479219/trump-canada-trade-talks.h
 **J. William Middendorf II, 81, Dies; Navy Secretary and Musical Diplomat**\
 `A G.O.P. fund-raiser, he was the Navy chief under Gerald R. Ford and held ambassadorships in the 1970s and ’80s. He gained notice for his classical music compositions.`\
 https://nytimes.com/2025/10/24/us/politics/j-william-middendorf-ii-dead.html
-
-**What Is the U.S.S. Gerald R. Ford, and Why Is It Heading to Latin America?**\
-`The Pentagon is sending the Ford Carrier Strike Group, with several warships and thousands of sailors, to the region as the Trump administration ramps up attacks on boats it claims are carrying drugs.`\
-https://nytimes.com/2025/10/24/us/politics/uss-gerald-ford-explainer.html
 

@@ -1,3 +1,7 @@
+**What Happens When a Storm Like Melissa Doesn’t Move**\
+`Melissa is moving at a sluggish pace and could dump a lot of rain in one place. Jamaica and Haiti are likely to see the most.`\
+https://nytimes.com/2025/10/24/weather/hurricane-melissa-slow-forecast-haiti-jamaica-rain.html
+
 **Barbara Gips, Creator of Memorable Movie Catchphrases, Dies at 89**\
 `Her best-known tagline was also her first to be published, written for “Alien”: “In space no one can hear you scream.”`\
 https://nytimes.com/2025/10/24/movies/barbara-gips-dead.html

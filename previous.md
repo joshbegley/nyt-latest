@@ -1,3 +1,7 @@
+**What Happens When a Storm Like Melissa Doesn’t Move**\
+`Melissa is moving at a sluggish pace and could dump a lot of rain in one place. Jamaica and Haiti are likely to see the most.`\
+https://nytimes.com/2025/10/24/weather/hurricane-melissa-slow-forecast-haiti-jamaica-rain.html
+
 **Barbara Gips, Creator of Memorable Movie Catchphrases, Dies at 89**\
 `Her best-known tagline was also her first to be published, written for “Alien”: “In space no one can hear you scream.”`\
 https://nytimes.com/2025/10/24/movies/barbara-gips-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/24/us/politics/j-william-middendorf-ii-dead.html
 **What Is the U.S.S. Gerald R. Ford, and Why Is It Heading to Latin America?**\
 `The Pentagon is sending the Ford Carrier Strike Group, with several warships and thousands of sailors, to the region as the Trump administration ramps up attacks on boats it claims are carrying drugs.`\
 https://nytimes.com/2025/10/24/us/politics/uss-gerald-ford-explainer.html
-
-**What’s Fall Without a Good Pea Coat?**\
-`A roundup of the latest takes on the classic style.`\
-https://nytimes.com/2025/10/24/t-magazine/mens-pea-coat-fall.html
 
