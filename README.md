@@ -1,3 +1,19 @@
+**A Restaurant Run by Teens in a Town Overrun by Guns**\
+`Shootings have long plagued the city of Montgomery, Ala., where poverty levels are high and good jobs are scarce. That’s My Dog Jr. offers teenagers a moneymaking opportunity — and $3.99 hot dogs.`\
+https://nytimes.com/2025/10/24/us/montgomery-thats-my-dog-jr-gun-violence.html
+
+**Eagles-Giants, Part II: What changed in two weeks and what must improve in rematch?**\
+`The Eagles' loss to the Giants is still fresh in their minds. `\
+https://nytimes.com/athletic/6746956/2025/10/24/eagles-giants-rematch/
+
+**Review: Arvo Pärt Gets the 90th Birthday Concert He Deserves**\
+`The Estonian Festival Orchestra made its North American debut at Carnegie Hall, offering a broad, excellently played survey of Pärt’s music.`\
+https://nytimes.com/2025/10/24/arts/music/estonian-festival-orchestra-arvo-part-carnegie-hall-review.html
+
+**Pitchers Alex Vesia, Tanner Scott not on Dodgers' World Series roster**\
+`Alex Vesia is not with the team in Toronto while he deals with what the team called a "deeply personal familiar matter."`\
+https://nytimes.com/athletic/6747087/2025/10/24/alex-vesia-tanner-scott-off-world-series-roster/
+
 **Lowetide: Is the Oilers' 5-on-5 scoring finally arriving?**\
 `On Thursday night against the Canadiens, the Oilers scored four goals at five-on-five in 50 minutes.`\
 https://nytimes.com/athletic/6743786/2025/10/24/edmonton-oilers-stats-montreal-canadiens-game/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/24/movies/five-science-fiction-movies-to-stream-now.
 **Lionel Messi is still remarkable - these stats, visuals and data prove it**\
 `Lionel Messi signed a new contract with Inter Miami on Thursday. Even at 38, he shows no signs of slowing down`\
 https://nytimes.com/athletic/6746855/2025/10/24/lionel-messi-inter-miami-analysis-new-contract/
-
-**A Paris Art Event So Exclusive That Breaking Into the Louvre Might Be Easier**\
-`A “pre-preview” of Art Basel Paris this week drew some of the world’s wealthiest art collectors. Dealers were hoping to shed some of the recent gloom that the art market has faced.`\
-https://nytimes.com/2025/10/24/arts/design/art-basel-paris.html
-
-**NBA trends I'm watching: Ja Morant's new partner, Bennedict Mathurin's drives and more**\
-`Here are some of the things that caught Fred Katz's eye in the first week of the NBA regular season.`\
-https://nytimes.com/athletic/6746781/2025/10/24/ja-morant-bennedict-mathurin-nba-trends/
-
-**How does gambling on NHL games work? Is the league susceptible to a scandal?**\
-`Bettors have several ways to wager on the NHL, which is very secretive about players' injuries.`\
-https://nytimes.com/athletic/6745276/2025/10/24/nhl-gambling-betting-nba/
-
-**Drake Maye's pivotal fantasy football challenge for Week 8: An elite Browns defense**\
-`Can the Patriots' QB handle the Browns pass rush? Plus, the top fantasy news from around the NFL.`\
-https://nytimes.com/athletic/6746846/2025/10/24/fantasy-football-news-week-8-drake-maye/
 
