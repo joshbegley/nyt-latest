@@ -1,3 +1,7 @@
+**Avalanche, Hurricanes turn back the clock by wearing Nordiques, Whalers throwback jerseys**\
+`The Nordiques and Whalers were both members of the NHL's Adams Division between 1981 and 1995.`\
+https://nytimes.com/athletic/6745755/2025/10/23/avalanche-hurricanes-nordiques-whalers-throwback-jerseys/
+
 **Chargers' Derwin James, Vikings' Christian Darrisaw ruled out with injuries**\
 `James left after the first defensive series with an ankle injury while Darrisaw was knocked out with a knee injury.`\
 https://nytimes.com/athletic/6745675/2025/10/23/chargers-vikings-injuries-tnf-derwin-james-christian-darrisaw/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6745503/2025/10/23/rangers-matt-rempe-injury-fight-
 **Referee who reversed Kirby Smart timeout removed from SEC officiating lineup: Sources**\
 `Ken Williamson was head referee in a Georgia-Auburn game that included a higher-than-usual number of questionable calls.`\
 https://nytimes.com/athletic/6745399/2025/10/23/sec-referee-removed-auburn-georgia/
-
-**How to watch Dodgers at Blue Jays: World Series Game 1 Time, TV, streaming**\
-`Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6745448/2025/10/23/dodgers-vs-blue-jays-stream-how-to-watch-oct-24/
 
