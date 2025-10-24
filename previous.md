@@ -1,3 +1,19 @@
+**High Five -- around the world in five games**\
+`The MLS playoffs begin with Lionel Messi in action, a full-blooded battle in Edinburgh and more to look forward to.`\
+https://nytimes.com/athletic/6745419/2025/10/24/high-five-around-the-world-in-five-games-4/
+
+**The New York Times in Print for Friday, Oct. 24, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/24/todays-new-york-times
+
+**You Can Kill a Democracy Without a Dictator**\
+`What happens when the state doesn’t curb predatory private powers?`\
+https://nytimes.com/2025/10/24/opinion/peru-dictator-democracy-boluarte.html
+
+**The U.S. and China Are One Misstep Away From War**\
+`Dangerous close calls are rising, but the U.S. and China still lack the communication channels needed to stop a crisis from becoming a war.`\
+https://nytimes.com/2025/10/24/opinion/us-china-war-trump-xi.html
+
 **Plotting a Heist? This German Company Wants to Give You a Lift.**\
 `The brazen daylight robbery of the Louvre on Sunday has turned into a marketing opportunity for Böcker, a German maker of cranes and elevators whose product was used in the heist.`\
 https://nytimes.com/2025/10/24/world/europe/louvre-robbery-german-campaign-bocker.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6742870/2025/10/24/donnarumma-manchester-city-analy
 **Aston Villa's calamitous loss to a team with a microwave in the trophy cabinet**\
 `Aston Villa managed to lose 2-1 against Go Ahead Eagles in the Europa League on Thursday night`\
 https://nytimes.com/athletic/6744923/2025/10/24/aston-villa-go-ahead-eagles-microwave/
-
-**Tosan Evbuomwan: A Brit in the NBA**\
-`The New York Knicks small forward is a rarity: a British player in the NBA. He recounts his journey to the 'Mecca' of basketball`\
-https://nytimes.com/athletic/6742476/2025/10/24/tosan-evbuomwan-knicks-basketball-british/
-
-**Newcastle are in a great position with Tonali’s future, but others require resolution**\
-`Newcastle have tied Sandro Tonali to a longer deal but Ross Wilson's immediate priority as sporting director is further contract extensions`\
-https://nytimes.com/athletic/6742539/2025/10/24/newcastle-contracts-latest-sven-botman-bruno-guimaraes/
-
-**Arsenal have 10 different Premier League scorers this season. How does it compare?**\
-`No other Premier League side has hit double figures yet, highlighting how Arsenal are not over-reliant on one player to get their goals`\
-https://nytimes.com/athletic/6739488/2025/10/24/arsenals-premier-league-scorers/
-
-**Handle with care: Why Slot is facing a daunting challenge with Salah**\
-`Liverpool's head coach must navigate a treacherous path as he tries to keep everyone happy at Anfield`\
-https://nytimes.com/athletic/6743103/2025/10/24/arne-slot-mohamed-salah-liverpool/
 

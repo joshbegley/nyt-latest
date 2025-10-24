@@ -1,3 +1,19 @@
+**High Five -- around the world in five games**\
+`The MLS playoffs begin with Lionel Messi in action, a full-blooded battle in Edinburgh and more to look forward to.`\
+https://nytimes.com/athletic/6745419/2025/10/24/high-five-around-the-world-in-five-games-4/
+
+**The New York Times in Print for Friday, Oct. 24, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/24/todays-new-york-times
+
+**You Can Kill a Democracy Without a Dictator**\
+`What happens when the state doesn’t curb predatory private powers?`\
+https://nytimes.com/2025/10/24/opinion/peru-dictator-democracy-boluarte.html
+
+**The U.S. and China Are One Misstep Away From War**\
+`Dangerous close calls are rising, but the U.S. and China still lack the communication channels needed to stop a crisis from becoming a war.`\
+https://nytimes.com/2025/10/24/opinion/us-china-war-trump-xi.html
+
 **Plotting a Heist? This German Company Wants to Give You a Lift.**\
 `The brazen daylight robbery of the Louvre on Sunday has turned into a marketing opportunity for Böcker, a German maker of cranes and elevators whose product was used in the heist.`\
 https://nytimes.com/2025/10/24/world/europe/louvre-robbery-german-campaign-bocker.html
