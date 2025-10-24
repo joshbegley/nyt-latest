@@ -1,3 +1,23 @@
+**Giants taking risk by relying on injury prone kicker Graham Gano again**\
+`Plus, Vic Fangio praises Jaxson Dart.`\
+https://nytimes.com/athletic/6746447/2025/10/24/giants-eagles-injury-kicker-graham-gano/
+
+**What are NBA officials' points of emphasis this season, and will they stick around?**\
+`These aren't rule changes; more accurately, they are rules that are being tightened up.`\
+https://nytimes.com/athletic/6740150/2025/10/24/nba-referees-points-of-emphasis-2025-26/
+
+**Trump Called a Canadian Ad Fake. It Faithfully Reproduces Reagan’s Words.**\
+`The anti-tariff ad, which Trump pointed to in cutting off trade talks with Canada, uses several sound bytes from an April 1987 speech, though not in the order President Ronald Reagan said them.`\
+https://nytimes.com/2025/10/24/us/politics/trump-tariffs-canada-reagan-tv-ad-video.html
+
+**Barca's Raphinha expected to be sidelined for a further month after setback**\
+`The Brazilian had been hoping to prove his fitness in time to play a part in Sunday's Clasico.`\
+https://nytimes.com/athletic/6742880/2025/10/24/raphinha-injury-latest-barcelona-clasico/
+
+**Maguire, Mount injury doubts for Man Utd ahead of Brighton**\
+`Both players featured against Liverpool on Sunday, securing Amorim's first back-to-back league wins.`\
+https://nytimes.com/athletic/6746662/2025/10/24/maguire-mount-manchester-united-injury-brighton/
+
 **Out with 'secret' scrimmages, in with exhibition 'Feast Week'? How college hoops' preseason has changed**\
 `College basketball's preseason used to be closed-door scrimmages and exhibitions against DII opponents. Not anymore.`\
 https://nytimes.com/athletic/6746610/2025/10/24/college-basketball-preseason-exhibition-schedule/
