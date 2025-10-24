@@ -1,3 +1,15 @@
+**How does gambling on NHL games work? Is the league susceptible to a scandal?**\
+`Bettors have several ways to wager on the NHL, which is very secretive about players' injuries.`\
+https://nytimes.com/athletic/6745276/2025/10/24/nhl-gambling-betting-nba/
+
+**Drake Maye's pivotal fantasy football challenge for Week 8: An elite Browns defense**\
+`Can the Patriots' QB handle the Browns pass rush? Plus, the top fantasy news from around the NFL.`\
+https://nytimes.com/athletic/6746846/2025/10/24/fantasy-football-news-week-8-drake-maye/
+
+**Bo Bichette on Blue Jays World Series roster for potential final shot at glory in Toronto**\
+`After a seven-week absence, Bichette made good on his promise to rejoin the Blue Jays roster for the World Series.`\
+https://nytimes.com/athletic/6747042/2025/10/24/bo-bichette-world-series-roster-blue-jays/
+
 **College football best bets Week 9: Washington to cover vs. Illinois leads 7 spread bets**\
 `Austin Mock's College Football Projection Model has identified a handful of best bets for Week 9.`\
 https://nytimes.com/athletic/6746837/2025/10/24/college-football-best-bets-week-9-washington-illinois-point-spreads/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6746950/2025/10/24/evanilson-injury-bournemouth-for
 **Quiet Night in N.B.A. Yields Two High-Scoring Overtime Games**\
 `It was a wild night that included the Oklahoma City Thunder star Shai Gilgeous-Alexander leading his team to victory with a career-high 55 points.`\
 https://nytimes.com/video/the-athletic/100000010479078/quiet-night-in-nba-yields-two-high-scoring-overtime-games.html
-
-**The Pursuit of Happiness with Deepak Chopra**\
-`Join us in  Sicily to explore what “wellness” means to different generations. We discover an advanced technology that analyzes how our skin will age. And, finally, the holistic health guru Deepak Chopra discusses the connections between wellness, happiness and beauty.`\
-https://nytimes.com/paidpost/loreal-groupe/the-pursuit-of-happiness-with-deepak-chopra.html
-
-**The 1990s Fashion Whisperer**\
-`Remembering Melanie Ward, whose singular eye and tireless work as a stylist shaped the look of a decade.`\
-https://nytimes.com/2025/10/24/style/melanie-ward-1990s-style.html
-
-**Chargers Drub Vikings in Thursday Night Football**\
-`The Los Angeles Chargers beat the Minnesota Vikings 37-10 Thursday behind a big game from Justin Herbert.`\
-https://nytimes.com/video/the-athletic/100000010479066/chargers-drub-vikings-in-thursday-night-football.html
 

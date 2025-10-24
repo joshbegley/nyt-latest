@@ -1,3 +1,15 @@
+**How does gambling on NHL games work? Is the league susceptible to a scandal?**\
+`Bettors have several ways to wager on the NHL, which is very secretive about players' injuries.`\
+https://nytimes.com/athletic/6745276/2025/10/24/nhl-gambling-betting-nba/
+
+**Drake Maye's pivotal fantasy football challenge for Week 8: An elite Browns defense**\
+`Can the Patriots' QB handle the Browns pass rush? Plus, the top fantasy news from around the NFL.`\
+https://nytimes.com/athletic/6746846/2025/10/24/fantasy-football-news-week-8-drake-maye/
+
+**Bo Bichette on Blue Jays World Series roster for potential final shot at glory in Toronto**\
+`After a seven-week absence, Bichette made good on his promise to rejoin the Blue Jays roster for the World Series.`\
+https://nytimes.com/athletic/6747042/2025/10/24/bo-bichette-world-series-roster-blue-jays/
+
 **College football best bets Week 9: Washington to cover vs. Illinois leads 7 spread bets**\
 `Austin Mock's College Football Projection Model has identified a handful of best bets for Week 9.`\
 https://nytimes.com/athletic/6746837/2025/10/24/college-football-best-bets-week-9-washington-illinois-point-spreads/
