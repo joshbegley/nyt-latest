@@ -1,3 +1,15 @@
+**A Missing Picasso Is Found, and a Small Spanish Town Loses Its Air of Mystery**\
+`For a brief moment, the puzzle of what had happened to Pablo Picasso’s “Still Life With Guitar” infected Deifontes with caper fever.`\
+https://nytimes.com/2025/10/24/world/europe/spain-picasso-missing.html
+
+**The Island That Keeps the Earth’s Secrets**\
+`Sulawesi, Indonesia, blurs the boundaries between myth and ecology. What might it reveal about our past – or destiny?`\
+https://nytimes.com/interactive/2025/10/24/magazine/sulawesi-indonesia-earth-secrets-biodiversity.html
+
+**Canucks acquire forward Lukas Reichel in trade with Blackhawks**\
+`Reichel was a first-round pick in the 2020 NHL Draft.`\
+https://nytimes.com/athletic/6747844/2025/10/24/canucks-trade-blackhawks-lukas-reichel/
+
 **Falcons QB Michael Penix Jr. listed as questionable for Dolphins game**\
 `With Penix Jr. nursing a bone bruise in his left knee, a decision on the starter won't be made until Sunday.`\
 https://nytimes.com/athletic/6747652/2025/10/24/falcons-michael-penix-jr-kirk-cousins/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/24/us/politics/trump-military-pay-donation.html
 **The Man at the Center of Trump’s $20 Billion Lifeline**\
 `$20 billion bailout for Argentina comes with strings attached — namely, that the ruling party of his ally, President Javier Milei of Argentina, must prevail in the country’s legislative elections this month.`\
 https://nytimes.com/video/world/americas/100000010474096/the-man-at-the-center-of-trumps-20-billion-lifeline.html
-
-**Ravens' Lamar Jackson full participant at practice, status vs. Bears questionable**\
-`The Ravens are 0-2 this season without Jackson and 1-5 overall. A loss versus the Bears could all but end the team's playoff hopes.`\
-https://nytimes.com/athletic/6747299/2025/10/24/ravens-qb-lamar-jackson-injury-bears/
-
-**How to watch Warriors vs. Trail Blazers: Time, TV, streaming**\
-`Find out how to watch the Golden State Warriors play the Portland Trail Blazers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6747756/2025/10/24/warriors-vs-trail-blazers-stream-how-to-watch-oct-24/
-
-**How to watch Pistons vs. Rockets: Time, TV, streaming**\
-`Find out how to watch the Detroit Pistons play the Houston Rockets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6747754/2025/10/24/pistons-vs-rockets-stream-how-to-watch-oct-24/
 

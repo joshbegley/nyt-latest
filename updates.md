@@ -1,3 +1,15 @@
+**A Missing Picasso Is Found, and a Small Spanish Town Loses Its Air of Mystery**\
+`For a brief moment, the puzzle of what had happened to Pablo Picasso’s “Still Life With Guitar” infected Deifontes with caper fever.`\
+https://nytimes.com/2025/10/24/world/europe/spain-picasso-missing.html
+
+**The Island That Keeps the Earth’s Secrets**\
+`Sulawesi, Indonesia, blurs the boundaries between myth and ecology. What might it reveal about our past – or destiny?`\
+https://nytimes.com/interactive/2025/10/24/magazine/sulawesi-indonesia-earth-secrets-biodiversity.html
+
+**Canucks acquire forward Lukas Reichel in trade with Blackhawks**\
+`Reichel was a first-round pick in the 2020 NHL Draft.`\
+https://nytimes.com/athletic/6747844/2025/10/24/canucks-trade-blackhawks-lukas-reichel/
+
 **Falcons QB Michael Penix Jr. listed as questionable for Dolphins game**\
 `With Penix Jr. nursing a bone bruise in his left knee, a decision on the starter won't be made until Sunday.`\
 https://nytimes.com/athletic/6747652/2025/10/24/falcons-michael-penix-jr-kirk-cousins/
