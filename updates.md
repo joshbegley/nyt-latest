@@ -1,3 +1,11 @@
+**Trump to Investigate Whether China Abided by 2020 Trade Deal**\
+`The administration announced its trade investigation on Friday, ahead of a summit between U.S. and Chinese leaders.`\
+https://nytimes.com/2025/10/24/us/politics/trump-investigation-china-trade-deal.html
+
+**FIA reinstated Russian official facing US, UK sanctions to World Motor Sport Council**\
+`Viktor Kiryanov was a member of the WMSC prior to Russia’s invasion of Ukraine in February 2022`\
+https://nytimes.com/athletic/6747629/2025/10/24/f1-fia-viktor-kiryanov-reinstated-russia-sanctions/
+
 **Federal Surge Called Off Across the Bay Area, Officials Confirm**\
 `President Trump had said on Thursday that he called off the deployment in San Francisco. Two federal officials said on Friday that the action applied across the region.`\
 https://nytimes.com/2025/10/24/us/bay-area-san-francisco-trump-immigration.html
