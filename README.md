@@ -1,40 +1,40 @@
-**Trump to Investigate Whether China Abided by 2020 Trade Deal**\
-`The administration announced its trade investigation on Friday, ahead of a summit between U.S. and Chinese leaders.`\
-https://nytimes.com/2025/10/24/us/politics/trump-investigation-china-trade-deal.html
+**Trump to Use $130 Million Donation to Help Pay Troops**\
+`It is not clear how far the gift will go toward covering the salaries of the nation’s 1.3 million troops.`\
+https://nytimes.com/2025/10/24/us/politics/trump-military-pay-donation.html
 
-**FIA reinstated Russian official facing US, UK sanctions to World Motor Sport Council**\
-`Viktor Kiryanov was a member of the WMSC prior to Russia’s invasion of Ukraine in February 2022`\
-https://nytimes.com/athletic/6747629/2025/10/24/f1-fia-viktor-kiryanov-reinstated-russia-sanctions/
+**The Man at the Center of Trump’s $20 Billion Lifeline**\
+`$20 billion bailout for Argentina comes with strings attached — namely, that the ruling party of his ally, President Javier Milei of Argentina, must prevail in the country’s legislative elections this month.`\
+https://nytimes.com/video/world/americas/100000010474096/the-man-at-the-center-of-trumps-20-billion-lifeline.html
 
-**Federal Surge Called Off Across the Bay Area, Officials Confirm**\
-`President Trump had said on Thursday that he called off the deployment in San Francisco. Two federal officials said on Friday that the action applied across the region.`\
-https://nytimes.com/2025/10/24/us/bay-area-san-francisco-trump-immigration.html
+**Ravens' Lamar Jackson full participant at practice, status vs. Bears questionable**\
+`The Ravens are 0-2 this season without Jackson and 1-5 overall. A loss versus the Bears could all but end the team's playoff hopes.`\
+https://nytimes.com/athletic/6747299/2025/10/24/ravens-qb-lamar-jackson-injury-bears/
 
-**How Lunar Photography Brought the Heavens Down to Earth**\
-`No explorers ever traveled farther from home than the Apollo astronauts. As artists, they’re still underrated.`\
-https://nytimes.com/interactive/2025/10/24/arts/moon-photos-apollo-nasa.html
+**How to watch Warriors vs. Trail Blazers: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the Portland Trail Blazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6747756/2025/10/24/warriors-vs-trail-blazers-stream-how-to-watch-oct-24/
 
-**College football Week 9 projected scores: Model predicts every FBS vs. FBS game**\
-`Austin Mock's model projects the point differentials and point totals for every FBS vs. FBS college football game in Week 9.`\
-https://nytimes.com/athletic/6747543/2025/10/24/college-football-week-9-projected-scores-model/
+**How to watch Pistons vs. Rockets: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the Houston Rockets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6747754/2025/10/24/pistons-vs-rockets-stream-how-to-watch-oct-24/
 
-**Texas Cheat ’Em? U.S. Details How Mob Lured High Rollers Into Poker Trap**\
-`A Manhattan apartment was at the center of a Mafia-run ring that used former N.B.A. players as bait and technology to read cards, prosecutors say.`\
-https://nytimes.com/2025/10/24/nyregion/nba-mafia-rigged-poker-games.html
+**How to watch Timberwolves vs. Lakers: Time, TV, streaming**\
+`Find out how to watch the Minnesota Timberwolves play the Los Angeles Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6747752/2025/10/24/timberwolves-vs-lakers-stream-how-to-watch-oct-24/
 
-**The Giants fan's guide to becoming the biggest Toronto Blue Jays fan on the planet**\
-`The World Series isn't fun without a rooting interest. It's not hard to root against LA but this is why you should root for the Blue Jays.`\
-https://nytimes.com/athletic/6744100/2025/10/24/sf-giants-world-series-rooting-toronto-blue-jays/
+**How to watch Cavaliers vs. Nets: Time, TV, streaming**\
+`Find out how to watch the Cleveland Cavaliers play the Brooklyn Nets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6747749/2025/10/24/cavaliers-vs-nets-stream-how-to-watch-oct-24/
 
-**The U.S. is evacuating some workers from Guantánamo as Melissa inches closer to Cuba.**\
-`By Carol Rosenberg`\
-https://nytimes.com/live/2025/10/23/weather/tropical-storm-melissa-hurricane/guantanamo-bay-cuba-hurricane-melissa
+**How to watch Spurs vs. Pelicans: Time, TV, streaming**\
+`Find out how to watch the San Antonio Spurs play the New Orleans Pelicans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6747750/2025/10/24/spurs-vs-pelicans-stream-how-to-watch-oct-24/
 
-**Maple Leafs trade watch: Is Yegor Chinakhov a fit?**\
-`The 2020 first-round pick is a speedy, high-IQ and offensively minded player with a dangerous shot`\
-https://nytimes.com/athletic/6747312/2025/10/24/maple-leafs-trade-target-yegor-chinakhov/
+**How to watch Wizards vs. Mavericks: Time, TV, streaming**\
+`Find out how to watch the Washington Wizards play the Dallas Mavericks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6747746/2025/10/24/wizards-vs-mavericks-stream-how-to-watch-oct-24/
 
-**British Drug Dealer Is Sentenced for Pro-Russian Attack Plots**\
-`Dylan Earl recruited people to set fire to two London warehouses containing aid bound for Ukraine, the police said. He was also convicted of plotting against a dissident Russian restaurant owner.`\
-https://nytimes.com/2025/10/24/world/europe/britain-sentence-pro-russian-plots.html
+**How to watch Jazz vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Utah Jazz play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6747744/2025/10/24/jazz-vs-kings-stream-how-to-watch-oct-24/
 
