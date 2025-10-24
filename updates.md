@@ -1,3 +1,15 @@
+**Celtics' Jaylen Brown says NBA hasn't prepared players for current gambling climate**\
+`Jaylen Brown said the NBA needs to be more open to holding conversations with players about the new environment.`\
+https://nytimes.com/athletic/6747505/2025/10/24/celtics-jaylen-brown-nba-gambling-climate/
+
+**Flashback: Your Weekly History Quiz, Oct. 25, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/10/24/upshot/flashback.html
+
+**Panthers' Andy Dalton to start vs. Bills; Bryce Young listed as doubtful**\
+`Bryce Young is expected to be out at least this week with an ankle injury that he suffered against the Jets.`\
+https://nytimes.com/athletic/6740292/2025/10/24/andy-dalton-panthers-starting-bryce-young/
+
 **Troy Vincent says league office wasn't involved in officiating Lions' trick play vs. Chiefs**\
 `Despite Dan Campbell's claims he was told New York got involved, the NFL says the play was fully officiated on the field.`\
 https://nytimes.com/athletic/6747405/2025/10/24/lions-chiefs-trick-play-nfl-replay-new-york/
