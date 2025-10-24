@@ -1,3 +1,19 @@
+**10 observations: Sidney Crosby, Ben Kindel lead Penguins to win over Panthers**\
+`Crosby, Kindel and Tristan Jarry led the way as the Penguins won their fourth straight game in a 5-3 decision over defending champ Florida. `\
+https://nytimes.com/athletic/6745211/2025/10/24/penguins-panthers-sidney-crosby-ben-kindel/
+
+**What to know about the NBA's debut on Prime: Celtics-Knicks, Edwards vs. Dončić**\
+`Knicks-Celtics and Timberwolves-Lakers are the spotlight games. Here's what viewership needs to know ahead of Friday's Prime exclusives.`\
+https://nytimes.com/athletic/6740432/2025/10/24/amazon-prime-nba-celtics-knicks-timberwolves-lakers-how-to-watch/
+
+**D'Andre Swift and the Bears' soft-spoken running backs are suddenly making noise**\
+`After a frustrating first month, the Bears' quiet run game has come to life in a big way.`\
+https://nytimes.com/athletic/6741171/2025/10/24/bears-d-andre-swift-running-backs/
+
+**Robert Saleh got his groove back with the 49ers: 'I’m recovering the missing pieces'**\
+`Saleh might have been the 49ers' top offseason acquisition, and no NFL assistant coach has made a bigger impact this season.`\
+https://nytimes.com/athletic/6734853/2025/10/24/robert-saleh-49ers-defensive-coordinator-jets-head-coach/
+
 **Inside the tight friendship of 3 NFL general managers**\
 `“We’re best of friends but uber-competitive and want to win at everything,” Schoen said of Morgan and Beane.`\
 https://nytimes.com/athletic/6745157/2025/10/24/dan-morgan-brandon-beane-joe-schoen-bills-panthers-general-managers-friends/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6745994/2025/10/24/tiago-splitter-trail-blazers/
 **Vikings unravel against Chargers, raising hard questions about the team’s connectivity**\
 `Calling Thursday night’s 37-10 loss to the Chargers an obliteration does not quite do the showing justice.`\
 https://nytimes.com/athletic/6746190/2025/10/24/vikings-chargers-tnf-questions/
-
-**After dismal first period, Rangers suffer most concerning loss of the season**\
-`Thursday's game was straight out of the Rangers' 2024-25 playbook: poor defensive play, lulls in urgency and a result reflecting both.`\
-https://nytimes.com/athletic/6745909/2025/10/24/rangers-sharks-concerning-loss-first-period/
-
-**NHL rumblings: Frustrated Flames exploring trade market, teams calling on Yegor Chinakhov, more**\
-`Off to a 1-6-1 start and flailing offensively, the Flames will likely become sellers unless they get going soon.`\
-https://nytimes.com/athletic/6744962/2025/10/24/nhl-trade-rumblings-flames-chinakhov/
-
-**'It's just embarrassing': More moral victories for Bruins after sixth straight loss**\
-`The Bruins scored five goals against the Ducks. That wasn't enough to earn a badly needed victory.`\
-https://nytimes.com/athletic/6745868/2025/10/24/bruins-moral-victory-sturm-ducks/
-
-**Red Bull ends to ‘silly games’ with McLaren after grid tape removal attempts**\
-`Red Bull's team boss tells The Athletic "silly games" that "got out of hand" with McLaren in removing Lando Norris grid spot tape are over`\
-https://nytimes.com/athletic/6746249/2025/10/24/red-bull-f1-grid-tape-2025-mexican-gp/
 
