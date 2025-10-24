@@ -1,3 +1,7 @@
+**Map: Minor Earthquake Strikes Southern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/10/23/us/earthquake-california-minor.html
+
 **Trump Says He’s Cutting Off Trade Negotiations With Canada**\
 `The president said his move, which again throws relations with one of the United States’ closest trading partners into turmoil, was motivated by an advertisement he deemed fraudulent.`\
 https://nytimes.com/2025/10/23/us/politics/trump-trade-negotiation-canada.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/10/23/us/politics/protester-who-played-star-wars-song-s
 **Suspect in Palisades Fire Pleads Not Guilty to Setting Blaze**\
 `Prosecutors say Jonathan Rinderknecht deliberately set a fire in January that led to one of the most destructive blazes in California history. If convicted, he would face up to 45 years in prison.`\
 https://nytimes.com/2025/10/23/us/los-angeles-palisades-fire-suspect-arraigned-charges.html
-
-**The NBA once opposed legalized sports betting. Under Adam Silver, it has embraced it**\
-`In light of Thursday's federal indictments, we track the NBA’s evolving attitude on legalized sports betting under commissioner Adam Silver.`\
-https://nytimes.com/athletic/6745307/2025/10/23/nba-gambling-betting-timeline-adam-silver/
 
