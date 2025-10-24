@@ -1,3 +1,15 @@
+**Red Light: A youth-fueled hat trick of NHL hat tricks**\
+`Celebrini, Logan Cooley and Taylor Raddysh each scored three goals on a high-scoring night around the NHL.`\
+https://nytimes.com/athletic/6746965/2025/10/24/red-light-nhl-newsletter-hat-tricks/
+
+**The Windup: Last-minute World Series storylines**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6747010/2025/10/24/world-series-dodgers-blue-jays-the-windup/
+
+**The Bounce: Key points to the NBA gambling scandal. Plus, Steph and SGA go off**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6746848/2025/10/24/the-bounce-nba-gambling-scandal-steph-curry-shai-gilgeous-alexander/
+
 **Bournemouth's Evanilson to miss Forest match, could return for Man City**\
 `Iraola added that Enes Unal, who has been out since January with an anterior cruciate ligament tear, is "training fully".`\
 https://nytimes.com/athletic/6746950/2025/10/24/evanilson-injury-bournemouth-forest-kroupi/
