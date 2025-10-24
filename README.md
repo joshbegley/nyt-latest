@@ -2,9 +2,9 @@
 `"Our players are well aware, all players are well aware, of what they're allowed to do, what they're not allowed to do," Steve Kerr said.`\
 https://nytimes.com/athletic/6745819/2025/10/23/nba-coaches-players-react-to-betting-scandal/
 
-**Chargers-Vikings takeaways: Justin Herbert does great, Carson Wentz not so much**\
+**Chargers-Vikings takeaways: Justin Herbert dominates, Carson Wentz not so much**\
 `Herbert threw three touchdown passes to lead the Chargers to a 37-10 rout of the Vikings on Thursday night.`\
-https://nytimes.com/athletic/6745428/2025/10/23/chargers-vikings-takeaways-justin-herbert-does-great-carson-wentz-not-so-much/
+https://nytimes.com/athletic/6745428/2025/10/23/chargers-vikings-takeaways-nfl/
 
 **Map: Minor Earthquake Strikes Southern California**\
 `View the location of the quake’s epicenter and shake area.`\
