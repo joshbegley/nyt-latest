@@ -1,3 +1,11 @@
+**Is it time to sell your Shohei Ohtani baseball cards?**\
+`Collectors are faced with a dilemma as Ohtani's cards rapidly rise in value`\
+https://nytimes.com/athletic/6747458/2025/10/24/shohei-ohtani-rookie-card-values/
+
+**Blue Jays confident in Bo Bichette's health, athleticism ahead of Game 1 start at second**\
+`Bichette has never played second base in the major leagues. He gets his first crack at the position in Game 1 of the World Series.`\
+https://nytimes.com/athletic/6747862/2025/10/24/blue-jays-bo-bichette-second-base-world-series/
+
 **Food Banks Offer Groceries for Furloughed Federal Workers**\
 `In the Washington region, the Capital Area Food Bank is providing food distribution specifically for federal workers and contractors who are going without pay.`\
 https://nytimes.com/2025/10/24/us/politics/food-banks-federal-workers-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/10/24/magazine/sulawesi-indonesia-earth-sec
 **Canucks acquire Lukas Reichel in trade with Blackhawks**\
 `A 2020 first-round pick, Reichel going from Chicago to Vancouver is a classic change-of-scenery trade.`\
 https://nytimes.com/athletic/6747844/2025/10/24/canucks-trade-blackhawks-lukas-reichel/
-
-**Falcons QB Michael Penix Jr. listed as questionable for Dolphins game**\
-`With Penix Jr. nursing a bone bruise in his left knee, a decision on the starter won't be made until Sunday.`\
-https://nytimes.com/athletic/6747652/2025/10/24/falcons-michael-penix-jr-kirk-cousins/
-
-**Landslide Kills 3 in Haiti, and More Rain From Tropical Storm Melissa Is on the Way**\
-`Officials across the Caribbean prepare for days of heavy rain from the storm.`\
-https://nytimes.com/2025/10/24/weather/tropical-storm-melissa-haiti-dominican-republic-jamaica.html
 
