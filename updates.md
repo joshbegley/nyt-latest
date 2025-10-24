@@ -1,3 +1,11 @@
+**British Drug Dealer Is Sentenced for Pro-Russian Attack Plots**\
+`Dylan Earl recruited people to set fire to two London warehouses containing aid bound for Ukraine, the police said. He was also convicted of plotting against a dissident Russian restaurant owner.`\
+https://nytimes.com/2025/10/24/world/europe/britain-sentence-pro-russian-plots.html
+
+**In a First for a Woman in France, Life Sentence Imposed for Murder of Schoolgirl**\
+`Dahbia Benkired, an Algerian woman, was convicted of raping and killing 12-year-old Lola Daviet, in a case that outraged France and raised questions about the deportation of migrants.`\
+https://nytimes.com/2025/10/24/world/europe/life-sentence-french-girl-murder.html
+
 **Trump Officials Float New Plan for Abrego Garcia: Send Him to Liberia**\
 `The proposal was the latest twist in a byzantine saga that has transformed the Salvadoran migrant into one of the best-known symbols of President Trump’s aggressive deportation agenda.`\
 https://nytimes.com/2025/10/24/us/politics/trump-abrego-garcia-liberia.html
