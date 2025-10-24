@@ -1,3 +1,11 @@
+**New Trump-Canada Spat Spotlights ‘Captain Canada,’ the Ontario Premier**\
+`Doug Ford has built a reputation for picking fights with President Trump and getting under his skin with publicity-grabbing moves as U.S. tariffs have harmed Ontario’s economy.`\
+https://nytimes.com/2025/10/24/world/canada/doug-ford-trump-reagan-ad.html
+
+**For the Jets, no Sauce Gardner, no Garrett Wilson and no starting QB named for Week 8**\
+`The Jets are still in search of their first win under head coach Aaron Glenn.`\
+https://nytimes.com/athletic/6747227/2025/10/24/new-york-jets-sauce-gardner-garrett-wilson-injuries/
+
 **For the Jets, no Sauce Gardner, no Garrett Wilson, and no starting QB named for Week 8**\
 `The Jets are still in search of their first win under head coach Aaron Glenn.`\
 https://nytimes.com/athletic/6747227/2025/10/24/new-york-jets-sauce-gardner-garrett-wilson-injuries/

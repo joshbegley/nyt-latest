@@ -1,3 +1,11 @@
+**Why We Can’t All Get Along, and What to Do About It**\
+`Readers respond to an essay about whether we can break the present cycle of heated and sometimes violent disagreement.`\
+https://nytimes.com/2025/10/24/opinion/american-disagreement.html
+
+**This Fast, Protein-Packed Chili Will Fuel Your Halloween**\
+`Genevieve Ko’s lighter, brighter take on the budget-friendly classic is the perfect counterpoint to all that holiday candy.`\
+https://nytimes.com/2025/10/24/dining/protein-chili-halloween.html
+
 **New Trump-Canada Spat Spotlights ‘Captain Canada,’ the Ontario Premier**\
 `Doug Ford has built a reputation for picking fights with President Trump and getting under his skin with publicity-grabbing moves as U.S. tariffs have harmed Ontario’s economy.`\
 https://nytimes.com/2025/10/24/world/canada/doug-ford-trump-reagan-ad.html
@@ -29,8 +37,4 @@ https://nytimes.com/2025/10/24/nyregion/teenager-detained-mother-self-deported.h
 **Rangers call up Othmann after Rempe injured in fight with Ryan Reaves**\
 `In an interesting twist, the Rangers have decided to make Othmann their first forward recall of the season.`\
 https://nytimes.com/athletic/6747113/2025/10/24/rangers-matt-rempe-injury-brennan-othmann/
-
-**Carter-Vickers out for 'between three and five months' with Achilles injury**\
-`Carter-Vickers, 27, played the full 90 minutes in Celtic's 2-1 Europa League win against Sturm Graz on Thursday.`\
-https://nytimes.com/athletic/6747127/2025/10/24/usmnt-cameron-carter-vickers-achilles-injury/
 
