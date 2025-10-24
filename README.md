@@ -1,5 +1,9 @@
-**Avalanche, Hurricanes turn back the clock by wearing Nordiques, Whalers throwback jerseys**\
-`The Nordiques and Whalers were both members of the NHL's Adams Division between 1981 and 1995.`\
+**Thunder edge Pacers in double OT in NBA Finals rematch**\
+`The Pacers, playing without Tyrese Haliburton, could not overcome Gilgeous-Alexander, the 2025 regular-season and NBA Finals MVP.`\
+https://nytimes.com/athletic/6745815/2025/10/23/shai-gilgeous-alexander-drops-55-as-thunder-edge-pacers-in-double-ot-in-nba-finals-rematch/
+
+**Avalanche, Hurricanes turn back the clock with Nordiques, Whalers throwback jerseys**\
+`The Nordiques and Whalers were members of the NHL's Adams Division between 1981 and 1995.`\
 https://nytimes.com/athletic/6745755/2025/10/23/avalanche-hurricanes-nordiques-whalers-throwback-jerseys/
 
 **Chargers' Derwin James, Vikings' Christian Darrisaw ruled out with injuries**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6745307/2025/10/23/nba-gambling-betting-timeline-ad
 **Rangers' Matt Rempe injured after fighting Sharks' Ryan Reaves**\
 `The two NHL heavyweights exchanged blows in the first period, and Rempe left the penalty box early to go to the dressing room.`\
 https://nytimes.com/athletic/6745503/2025/10/23/rangers-matt-rempe-injury-fight-ryan-reaves/
-
-**Referee who reversed Kirby Smart timeout removed from SEC officiating lineup: Sources**\
-`Ken Williamson was head referee in a Georgia-Auburn game that included a higher-than-usual number of questionable calls.`\
-https://nytimes.com/athletic/6745399/2025/10/23/sec-referee-removed-auburn-georgia/
 
