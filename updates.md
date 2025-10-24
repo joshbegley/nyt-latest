@@ -1,3 +1,7 @@
+**Troy Vincent says league office wasn't involved in officiating Lions' trick play vs. Chiefs**\
+`Despite Dan Campbell's claims he was told New York got involved, the NFL says the play was fully officiated on the field.`\
+https://nytimes.com/athletic/6747405/2025/10/24/lions-chiefs-trick-play-nfl-replay-new-york/
+
 **F.D.A. Approves New Menopause Drug**\
 `The drug, one of the few nonhormonal options for menopausal women, reduced hot flashes and night sweats, and appears to help with sleep issues.`\
 https://nytimes.com/2025/10/24/well/fda-menopause-drug-lynkuet.html
