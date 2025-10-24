@@ -1,3 +1,7 @@
+**Chargers' Derwin James, Vikings' Christian Darrisaw ruled out with injuries**\
+`James left after the first defensive series with an ankle injury while Darrisaw was knocked out with a knee injury.`\
+https://nytimes.com/athletic/6745675/2025/10/23/chargers-vikings-injuries-tnf-derwin-james-christian-darrisaw/
+
 **A Place for Friends**\
 `Kelvin Zhou makes his New York Times Crossword debut.`\
 https://nytimes.com/2025/10/23/crosswords/daily-puzzle-2025-10-24.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6745399/2025/10/23/sec-referee-removed-auburn-georg
 **How to watch Dodgers at Blue Jays: World Series Game 1 Time, TV, streaming**\
 `Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6745448/2025/10/23/dodgers-vs-blue-jays-stream-how-to-watch-oct-24/
-
-**Tensions Mount as Agents, Including Gregory Bovino, Clash With Chicagoans**\
-`Mr. Bovino, a Border Patrol leader, appeared to use tear gas during a confrontation with residents on Thursday. Plaintiffs in a suit over federal tactics say that violated a court order.`\
-https://nytimes.com/2025/10/23/us/politics/gregory-bovino-chicago-immigration.html
 

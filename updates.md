@@ -1,3 +1,7 @@
+**Chargers' Derwin James, Vikings' Christian Darrisaw ruled out with injuries**\
+`James left after the first defensive series with an ankle injury while Darrisaw was knocked out with a knee injury.`\
+https://nytimes.com/athletic/6745675/2025/10/23/chargers-vikings-injuries-tnf-derwin-james-christian-darrisaw/
+
 **A Place for Friends**\
 `Kelvin Zhou makes his New York Times Crossword debut.`\
 https://nytimes.com/2025/10/23/crosswords/daily-puzzle-2025-10-24.html
