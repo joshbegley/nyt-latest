@@ -1,3 +1,7 @@
+**Stephen Colbert Tears Into the White House Demolition**\
+`The East Wing now “looks like a rotisserie chicken your dog got into,” Colbert said on Thursday.`\
+https://nytimes.com/2025/10/24/arts/television/stephen-colbert-east-wing-demolition.html
+
 **Big Five: Europe's top games this weekend**\
 `The Athletic has hand-picked five of the most intriguing weekend fixtures from around Europe.`\
 https://nytimes.com/athletic/6745173/2025/10/24/big-five-europes-top-games-this-weekend-4/
