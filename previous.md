@@ -1,3 +1,15 @@
+**Falcons QB Michael Penix Jr. listed as questionable for Dolphins game**\
+`With Penix Jr. nursing a bone bruise in his left knee, a decision on the starter won't be made until Sunday.`\
+https://nytimes.com/athletic/6747652/2025/10/24/falcons-michael-penix-jr-kirk-cousins/
+
+**Landslide Kills 3 in Haiti, and More Rain From Tropical Storm Melissa Is on the Way**\
+`Officials across the Caribbean prepare for days of heavy rain from the storm.`\
+https://nytimes.com/2025/10/24/weather/tropical-storm-melissa-haiti-dominican-republic-jamaica.html
+
+**Tony Vitello discusses timeline, reasons for leaving Tennessee for Giants: 'It was selfish'**\
+`Vitello spoke with local media in Knoxville, Tenn. about his decision to leave the Volunteers for the major leagues.`\
+https://nytimes.com/athletic/6747387/2025/10/24/tony-vitello-sf-giants-tennessee-manager-timeline/
+
 **6 Items From the Gene Hackman Auction: His Art, Scripts and Galaga**\
 `The actor, who died this year at 95, led a quiet life in New Mexico. An auction of his belongings offers insights into his life and work.`\
 https://nytimes.com/2025/10/24/movies/gene-hackman-auction.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6747756/2025/10/24/warriors-vs-trail-blazers-stream
 **How to watch Pistons vs. Rockets: Time, TV, streaming**\
 `Find out how to watch the Detroit Pistons play the Houston Rockets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6747754/2025/10/24/pistons-vs-rockets-stream-how-to-watch-oct-24/
-
-**How to watch Timberwolves vs. Lakers: Time, TV, streaming**\
-`Find out how to watch the Minnesota Timberwolves play the Los Angeles Lakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6747752/2025/10/24/timberwolves-vs-lakers-stream-how-to-watch-oct-24/
-
-**How to watch Cavaliers vs. Nets: Time, TV, streaming**\
-`Find out how to watch the Cleveland Cavaliers play the Brooklyn Nets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6747749/2025/10/24/cavaliers-vs-nets-stream-how-to-watch-oct-24/
-
-**How to watch Spurs vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the San Antonio Spurs play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6747750/2025/10/24/spurs-vs-pelicans-stream-how-to-watch-oct-24/
 
