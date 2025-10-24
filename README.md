@@ -1,3 +1,15 @@
+**Red Light: A youth-fueled hat trick of NHL hat tricks**\
+`Celebrini, Logan Cooley and Taylor Raddysh each scored three goals on a high-scoring night around the NHL.`\
+https://nytimes.com/athletic/6746965/2025/10/24/red-light-nhl-newsletter-hat-tricks/
+
+**The Windup: Last-minute World Series storylines**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6747010/2025/10/24/world-series-dodgers-blue-jays-the-windup/
+
+**The Bounce: Key points to the NBA gambling scandal. Plus, Steph and SGA go off**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6746848/2025/10/24/the-bounce-nba-gambling-scandal-steph-curry-shai-gilgeous-alexander/
+
 **Bournemouth's Evanilson to miss Forest match, could return for Man City**\
 `Iraola added that Enes Unal, who has been out since January with an anterior cruciate ligament tear, is "training fully".`\
 https://nytimes.com/athletic/6746950/2025/10/24/evanilson-injury-bournemouth-forest-kroupi/
@@ -21,16 +33,4 @@ https://nytimes.com/video/the-athletic/100000010479066/chargers-drub-vikings-in-
 **Gabriel an injury doubt for Arsenal against Crystal Palace**\
 `Captain Martin Odegaard, Kai Havertz, Noni Madueke and Gabriel Jesus are not in contention for the weekend.`\
 https://nytimes.com/athletic/6746899/2025/10/24/gabriel-arsenal-injury-doubt/
-
-**Frank: 'No time-frame' on Romero return but not a 'longer' injury**\
-`Romero picked up an injury in the warm-up before last Sunday’s 2-1 home defeat to Aston Villa.`\
-https://nytimes.com/athletic/6746921/2025/10/24/cristian-romero-tottenham-injury-latest/
-
-**Outlaw tanking. Abolish the draft. Solve the NBA’s crisis**\
-`The federal gambling probe presents an intractable problem for the league that isn't easy to solve. (Or is it?)`\
-https://nytimes.com/athletic/6744994/2025/10/24/nba-gambling-investigation-tanking-draft-lottery/
-
-**U.S. Says 6 Are Killed in Its Latest Strike on a Boat in the Caribbean**\
-`The Trump administration announced another attack, its 10th, in its campaign against what it said were vessels smuggling drugs headed for the United States.`\
-https://nytimes.com/2025/10/24/us/politics/caribbean-sea-boat-strike-us-venezuela.html
 
