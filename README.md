@@ -1,3 +1,15 @@
+**What Saudi Arabia's new tournament means for its increasingly cozy relationship with tennis**\
+`Ever since Saudi Arabia turned golf upside down with the LIV Tour in 2022, tennis' powerbrokers have been aware of a potential equivalent.`\
+https://nytimes.com/athletic/6510768/2025/10/24/tennis-saudi-arabia-investment-atp-masters/
+
+**Live Updates: Trump Cuts Off Trade Talks With Canada**\
+`President Trump expressed anger over an ad that featured President Ronald Reagan criticizing the effects of tariffs in 1987. The move added uncertainty to U.S.-Canadian relations.`\
+https://nytimes.com/live/2025/10/24/us/trump-canada-news
+
+**Rebuilding Israeli-Held Parts of Gaza: Workable or Another U.S. Pipe Dream?**\
+`There are many questions about whether the idea is feasible or doomed from the outset.`\
+https://nytimes.com/2025/10/24/world/middleeast/gaza-rebuilding-israel-hamas-us.html
+
 **Wemby's masterpiece leads to surge in NBA MVP odds after just one game**\
 `Victor Wembanyama surged up the MVP odds board with his massive season debut on Wednesday.`\
 https://nytimes.com/athletic/6744049/2025/10/24/victor-wembanyama-nba-mvp-odds/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6745263/2025/10/24/arthur-smith-pittsburgh-steelers
 **The New York Times International Edition in Print for Saturday, Oct. 25, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/10/24/todays-new-york-times-international-edition
-
-**Vladimir Guerrero Jr. and the Blue Jays are swinging harder — and hitting better**\
-`Swinging harder does not always mean more success, but it does when hitters do it the right way. Guerrero and the Jays are getting it right.`\
-https://nytimes.com/athletic/6744356/2025/10/24/blue-jays-vladimir-guerrero-jr-bat-speed/
-
-**2025 World Series MVP odds: History says Shohei Ohtani is not a lock to win**\
-`Shohei Ohtani is favored to win World Series MVP, which is no surprise, but history says he probably won't win it.`\
-https://nytimes.com/athletic/6743939/2025/10/24/world-series-mvp-odds-shohei-ohtani/
-
-**Next week’s waiver wire: Xavier Legette and more players to add — before the Week 9 rush**\
-`John Laghezza helps you beat the rush by projecting Week 9's waiver-wire targets. His advice — add Xavier Legette now. `\
-https://nytimes.com/athletic/6742934/2025/10/24/next-weeks-waiver-wire-week-9-xavier-legette/
 
