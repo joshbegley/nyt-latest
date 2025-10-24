@@ -1,3 +1,11 @@
+**Who is Damon Jones, the former NBA player charged with sharing LeBron injury secrets?**\
+`"He’s a really funny dude. He’s a great storyteller. But he was never a part of the staff," a team source said of Jones.`\
+https://nytimes.com/athletic/6747914/2025/10/24/damon-jones-former-nba-player-feds-info-lakers/
+
+**Trump Is Putting Election Deniers in Charge of Elections**\
+`Now that he is back in the White House, he has made some of them more powerful than ever.`\
+https://nytimes.com/2025/10/24/us/politics/election-deniers-trump-administration.html
+
 **Nebojsa Pavkovic, Yugoslav General Convicted of War Crimes, Dies at 79**\
 `Found guilty in 2009, he had been serving a 22-year sentence but was released for health reasons at the request of the Serbian government.`\
 https://nytimes.com/2025/10/24/world/europe/nebojsa-pavkovic-dead.html
@@ -7,7 +15,7 @@ https://nytimes.com/2025/10/24/world/europe/nebojsa-pavkovic-dead.html
 https://nytimes.com/video/us/politics/100000010479219/trump-canada-trade-talks.html
 
 **J. William Middendorf II, 81, Dies; Navy Secretary and Musical Diplomat**\
-`A G.O.P. fund-raiser, he was the Navy chief under Gerald R. Ford and held ambassadorships in the 1970s and ’80s. He also gained notice for his classical music compositions.`\
+`A G.O.P. fund-raiser, he was the Navy chief under Gerald R. Ford and held ambassadorships in the 1970s and ’80s. He gained notice for his classical music compositions.`\
 https://nytimes.com/2025/10/24/us/politics/j-william-middendorf-ii-dead.html
 
 **What Is the U.S.S. Gerald R. Ford, and Why Is It Heading to Latin America?**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/24/briefing/us-aircraft-carrier-world-series.html
 **Vikings QB J.J. McCarthy in line to start Week 9 vs. Lions**\
 `McCarthy, the Vikings' second-year QB, has missed the past five games with a high ankle sprain.`\
 https://nytimes.com/athletic/6747938/2025/10/24/vikings-jj-mccarthy-injury-return-lions/
-
-**USMNT’s Aaronson scores first PL goal in more than three years in Leeds win**\
-`The 25-year-old's last top flight goal came against Chelsea — then managed by current England head coach Thomas Tuchel — in August 2022.`\
-https://nytimes.com/athletic/6747999/2025/10/24/usmnt-brenden-aaronson-leeds-goal/
-
-**U.S. Sanctions Colombia’s Leader, One of President Trump’s Harshest Critics**\
-`The United States Treasury Department accused President Gustavo Petro of allowing drug trafficking to flourish.`\
-https://nytimes.com/2025/10/24/world/americas/us-sanctions-colombia-president-petro-drugs.html
 
