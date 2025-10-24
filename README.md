@@ -1,3 +1,19 @@
+**Nebojsa Pavkovic, Yugoslav General Convicted of War Crimes, Dies at 79**\
+`Found guilty in 2009, he had been serving a 22-year sentence but was released for health reasons at the request of the Serbian government.`\
+https://nytimes.com/2025/10/24/world/europe/nebojsa-pavkovic-dead.html
+
+**Trump Ends Trade Talks with Canada After Anti-Tariff TV Ad Airs**\
+`An ad, bought by the province of Ontario, sent an anti-tariff message using sound bites from an address President Ronald Reagan made decades ago. President Trump claimed the ad was “fraud” and terminated trade talks with Canada.`\
+https://nytimes.com/video/us/politics/100000010479219/trump-canada-trade-talks.html
+
+**J. William Middendorf II, 81, Dies; Navy Secretary and Musical Diplomat**\
+`A G.O.P. fund-raiser, he was the Navy chief under Gerald R. Ford and held ambassadorships in the 1970s and ’80s. He also gained notice for his classical music compositions.`\
+https://nytimes.com/2025/10/24/us/politics/j-william-middendorf-ii-dead.html
+
+**What Is the U.S.S. Gerald R. Ford, and Why Is It Heading to Latin America?**\
+`The Pentagon is sending the Ford Carrier Strike Group, with several warships and thousands of sailors, to the region as the Trump administration ramps up attacks on boats it claims are carrying drugs.`\
+https://nytimes.com/2025/10/24/us/politics/uss-gerald-ford-explainer.html
+
 **What’s Fall Without a Good Pea Coat?**\
 `A roundup of the latest takes on the classic style.`\
 https://nytimes.com/2025/10/24/t-magazine/mens-pea-coat-fall.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6747999/2025/10/24/usmnt-brenden-aaronson-leeds-goa
 **U.S. Sanctions Colombia’s Leader, One of President Trump’s Harshest Critics**\
 `The United States Treasury Department accused President Gustavo Petro of allowing drug trafficking to flourish.`\
 https://nytimes.com/2025/10/24/world/americas/us-sanctions-colombia-president-petro-drugs.html
-
-**Eagles' A.J. Brown out Sunday vs. Giants with hamstring injury**\
-`Brown did not leave last week's game with an injury, so it's unclear when it occurred.`\
-https://nytimes.com/athletic/6747934/2025/10/24/aj-brown-out-eagles-giants/
-
-**We Traveled the Real California That ‘One Battle After Another’ Imagined**\
-`Paul Thomas Anderson’s film spotlights unseen corners of the state. To find them, our photographer traveled California from tip to tip.`\
-https://nytimes.com/2025/10/24/movies/one-battle-after-another-filming-location-california.html
-
-**Trump’s Son Is Poised to Profit From Pentagon Drone Proposal**\
-`A small company that has been manufacturing motors domestically for only a few weeks and has Donald Trump Jr. as an adviser won a parts order from the Army.`\
-https://nytimes.com/2025/10/24/us/politics/trump-drones-pentagon.html
-
-**Sonia Raman agrees to deal to become Seattle Storm's head coach: Sources**\
-`Raman, who replaces Noelle Quinn, will be tasked with stewarding the development of 2025 No. 2 pick Dominique Malonga, a rising star.`\
-https://nytimes.com/athletic/6747951/2025/10/24/sonia-raman-coach-seattle-storm-wnba/
 
