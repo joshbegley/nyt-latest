@@ -1,3 +1,15 @@
+**2 People Shot at Protest Site Outside Coast Guard Base in California**\
+`Coast Guard police fired rounds at a moving van that accelerated toward the base in reverse and did not follow commands to stop, the authorities say.`\
+https://nytimes.com/2025/10/24/us/coast-guard-shots-fired-protest.html
+
+**Red Sox begin making big changes to address shaky defense**\
+`After leading the league in errors, the Red Sox will double the number of coaches in the minor leagues who are focused full-time on defense.`\
+https://nytimes.com/athletic/6746773/2025/10/24/red-sox-defense-coaching-changes/
+
+**Carter Hart signing 2-year contract to join Vegas Golden Knights: Sources**\
+`Hart had joined Vegas on a professional tryout agreement last week.`\
+https://nytimes.com/athletic/6747165/2025/10/24/carter-hart-contract-golden-knights/
+
 **A Woman Self-Deported, Hoping to Shield Her Son. He Was Detained Anyway.**\
 `Joel Camas, 16, had been without his mother for about four weeks after she voluntarily returned to Ecuador. His lawyer had hoped his age would shield him.`\
 https://nytimes.com/2025/10/24/nyregion/teenager-detained-mother-self-deported.html
