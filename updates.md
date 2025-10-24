@@ -1,3 +1,7 @@
+**Pereira has 'no doubt' he can turn Wolves' season around**\
+`Wolves are bottom of the table with no wins from eight games and face 17th-placed Burnley at Molineux on Sunday.`\
+https://nytimes.com/athletic/6746902/2025/10/24/vitor-pereira-wolves-burnley/
+
 **NHL Power Rankings: Hurricanes leap to No. 1 and we've chosen Our Guys for each team**\
 `We're back with a new weekly ranking and we have a new set of our favorite players from each team.`\
 https://nytimes.com/athletic/6745958/2025/10/24/nhl-power-rankings-our-guys/
