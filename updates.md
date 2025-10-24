@@ -1,3 +1,7 @@
+**Trump Says He’s Cutting Off Trade Negotiations With Canada**\
+`The president said his move, which again throws relations with one of the United States’ closest trading partners into turmoil, was motivated by an advertisement he deemed fraudulent.`\
+https://nytimes.com/2025/10/23/us/politics/trump-trade-negotiation-canada.html
+
 **Thunder edge Pacers in double OT in NBA Finals rematch**\
 `The Pacers, playing without Tyrese Haliburton, could not overcome Gilgeous-Alexander, the 2025 regular-season and NBA Finals MVP.`\
 https://nytimes.com/athletic/6745815/2025/10/23/shai-gilgeous-alexander-drops-55-as-thunder-edge-pacers-in-double-ot-in-nba-finals-rematch/
