@@ -1,3 +1,19 @@
+**Federal Workers Have Started Missing Paychecks During the Shutdown**\
+`Thousands missed their first paychecks this week, with no end in sight to the government shutdown that began on Oct. 1.`\
+https://nytimes.com/2025/10/24/us/politics/federal-workers-missing-paychecks-shutdown.html
+
+**His former QBs benched and bashed, Arthur Smith coordinates Aaron Rodgers' bounceback**\
+`The Steelers' second-year offensive coordinator is finding success with yet another very different quarterback.`\
+https://nytimes.com/athletic/6745263/2025/10/24/arthur-smith-pittsburgh-steelers-offensive-coordinator/
+
+**The New York Times International Edition in Print for Saturday, Oct. 25, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/10/24/todays-new-york-times-international-edition
+
+**Vladimir Guerrero Jr. and the Blue Jays are swinging harder — and hitting better**\
+`Swinging harder does not always mean more success, but it does when hitters do it the right way. Guerrero and the Jays are getting it right.`\
+https://nytimes.com/athletic/6744356/2025/10/24/blue-jays-vladimir-guerrero-jr-bat-speed/
+
 **2025 World Series MVP odds: History says Shohei Ohtani is not a lock to win**\
 `Shohei Ohtani is favored to win World Series MVP, which is no surprise, but history says he probably won't win it.`\
 https://nytimes.com/athletic/6743939/2025/10/24/world-series-mvp-odds-shohei-ohtani/

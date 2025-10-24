@@ -1,3 +1,15 @@
+**Who Were the Palestinian Prisoners Freed by Israel?**\
+`Under the cease-fire deal, Israel released 250 Palestinians serving long sentences for violent attacks. More than 1,700 others had been detained in Gaza and held without charge.`\
+https://nytimes.com/2025/10/24/world/middleeast/israel-palestinian-prisoners-freed.html
+
+**Olivia Dean Adds Love to the Mix**\
+`The chart-topping British singer’s music defies genres, because she’s more interested in feelings than styles.`\
+https://nytimes.com/2025/10/24/arts/music/olivia-dean.html
+
+**Benitez appointed Panathinaikos head coach**\
+`Benitez returns to management after being sacked by Celta Vigo in March 2024, where he won just five of 28 games in charge.`\
+https://nytimes.com/athletic/6744689/2025/10/24/rafa-benitez-panathinaikos-manager/
+
 **Federal Workers Have Started Missing Paychecks During the Shutdown**\
 `Thousands missed their first paychecks this week, with no end in sight to the government shutdown that began on Oct. 1.`\
 https://nytimes.com/2025/10/24/us/politics/federal-workers-missing-paychecks-shutdown.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6742934/2025/10/24/next-weeks-waiver-wire-week-9-xa
 **Can Economic Populism Save the Democratic Party?**\
 `Jared Abbott, the director of the Center for Working-Class Politics, discusses what it would take for Democrats to better appeal to working-class voters.`\
 https://nytimes.com/2025/10/24/opinion/ezra-klein-podcast-jared-abbott.html
-
-**Letitia James to Appear in Court as Battle Over Trump-Urged Prosecution Begins**\
-`The New York attorney general, indicted by President Trump’s handpicked prosecutor in the Eastern District of Virginia, is expected to plead not guilty in her arraignment on Friday.`\
-https://nytimes.com/2025/10/24/us/politics/letitia-james-court.html
-
-**How to Make Sense of the Federal Forces on the Streets**\
-`As President Trump deploys ICE, Border Patrol, the National Guard and other forces to U.S. cities, here’s how to tell them apart — and what their powers are.`\
-https://nytimes.com/interactive/2025/10/24/us/us-federal-agents-national-guard-ice-fbi.html
-
-**How the San Francisco Mayor Avoided Trump’s Enforcement Surge**\
-`Daniel Lurie, the San Francisco mayor, relied on powerful tech executives and his own low-key approach to help his liberal city escape a rush of federal agents.`\
-https://nytimes.com/2025/10/24/us/daniel-lurie-trump-san-francisco.html
 
