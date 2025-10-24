@@ -1,3 +1,7 @@
+**She's trying for Singapore's first world gymnastics medal — in between school exams**\
+`Earlier this week, Yap qualified for Saturday's balance beam final in Jakarta. In between, she had to make a trip home to be a student.`\
+https://nytimes.com/athletic/6745283/2025/10/24/gymnastics-world-championships-olympics-amanda-yap/
+
 **The Wider Costs of the N.B.A. Insider-Trading Scandal**\
 `Criminal charges over a wide-ranging betting ring have called into question the sports world’s embrace of legalized gambling.`\
 https://nytimes.com/2025/10/24/business/dealbook/nba-insider-trading-gambling.html

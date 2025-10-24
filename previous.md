@@ -1,3 +1,7 @@
+**She's trying for Singapore's first world gymnastics medal — in between school exams**\
+`Earlier this week, Yap qualified for Saturday's balance beam final in Jakarta. In between, she had to make a trip home to be a student.`\
+https://nytimes.com/athletic/6745283/2025/10/24/gymnastics-world-championships-olympics-amanda-yap/
+
 **The Wider Costs of the N.B.A. Insider-Trading Scandal**\
 `Criminal charges over a wide-ranging betting ring have called into question the sports world’s embrace of legalized gambling.`\
 https://nytimes.com/2025/10/24/business/dealbook/nba-insider-trading-gambling.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/24/world/middleeast/gaza-ceasefire-israel-hamas-rubi
 **What to expect from the 2025 World Series broadcast: Announcers, schedule and more**\
 `Here's what viewers need to know about the upcoming World Series coverage on Fox (and Sportsnet, if you live in Canada).`\
 https://nytimes.com/athletic/6741930/2025/10/24/mlb-world-series-dodgers-blue-jays-fox-schedule-how-to-watch/
-
-**Data showing a resilient economy largely reflect spending by the rich.**\
-`By Ben Casselman and Colby Smith`\
-https://nytimes.com/live/2025/10/24/business/cpi-inflation-tariffs-fed/data-showing-a-resilient-economy-largely-reflect-spending-by-the-rich
 
