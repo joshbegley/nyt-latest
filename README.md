@@ -1,3 +1,11 @@
+**The Prospects: Reigan Heskey, England Under-17 and Manchester City**\
+`The son of former Liverpool striker Emile Heskey will be one of the key England players at the Under-17 World Cup in Qatar next month`\
+https://nytimes.com/athletic/6736871/2025/10/24/heskey-man-city-england-world-cup-under-17/
+
+**El Clasico's English stars: Will Bellingham, Rashford, Alexander-Arnold all play?**\
+`All three could feature in Sunday's La Liga match, the season's first meeting between the bitter rivals`\
+https://nytimes.com/athletic/6743233/2025/10/24/barcelona-real-madrid-clasico-bellingham-rashford-trent/
+
 **With Power Move on Rare Earths, China Plays Both Victim and Bully**\
 `In weaponizing its dominance over the crucial minerals, Beijing is using tactics that it once denounced, potentially alienating nations it wants to court.`\
 https://nytimes.com/2025/10/24/world/asia/china-trade-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/24/style/rae-atkinson-josh-rael-wedding.html
 **Four Decades Later, They Felt Like ‘We Had Never Lost Touch’**\
 `Wanda Urbanska and David Chaffetz met at Harvard in 1977 and were instantly attracted to each other. They reconnected during the pandemic.`\
 https://nytimes.com/2025/10/24/style/wanda-urbanska-david-chaffetz-wedding.html
-
-**India’s Most Valuable Export: Tens of Millions of Workers**\
-`India plans to send its vast work force abroad to countries with labor shortages, like Germany and Japan.`\
-https://nytimes.com/2025/10/24/business/india-labor-mobility-migration-germany-japan.html
-
-**Their Romantic Shorthand: ‘Walking Into a Room Together’**\
-`Damon Locks surprised Tara Willis on their wedding day with a song he composed based on that metaphor for their relationship.`\
-https://nytimes.com/2025/10/24/style/tara-willis-damon-locks-wedding.html
 
