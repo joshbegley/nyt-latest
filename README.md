@@ -1,3 +1,7 @@
+**Eberechi Eze on his love of chess and what he misses about Crystal Palace**\
+`Eberechi Eze returns to his former school to talk to pupils about chess and Sunday's game against Crystal Palace`\
+https://nytimes.com/athletic/6743316/2025/10/24/eberechi-eze-arsenal-crystal-palace-chess/
+
 **Stephen Colbert Tears Into the White House Demolition**\
 `The East Wing now “looks like a rotisserie chicken your dog got into,” Colbert said on Thursday.`\
 https://nytimes.com/2025/10/24/arts/television/stephen-colbert-east-wing-demolition.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/24/opinion/peru-dictator-democracy-boluarte.html
 **The U.S. and China Are One Misstep Away From War**\
 `Dangerous close calls are rising, but the U.S. and China still lack the communication channels needed to stop a crisis from becoming a war.`\
 https://nytimes.com/2025/10/24/opinion/us-china-war-trump-xi.html
-
-**Plotting a Heist? This German Company Wants to Give You a Lift.**\
-`The brazen daylight robbery of the Louvre on Sunday has turned into a marketing opportunity for Böcker, a German maker of cranes and elevators whose product was used in the heist.`\
-https://nytimes.com/2025/10/24/world/europe/louvre-robbery-german-campaign-bocker.html
 
