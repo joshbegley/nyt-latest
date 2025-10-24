@@ -1,3 +1,11 @@
+**The U.S. is evacuating some workers from Guantánamo as Melissa inches closer to Cuba.**\
+`By Carol Rosenberg`\
+https://nytimes.com/live/2025/10/23/weather/tropical-storm-melissa-hurricane/guantanamo-bay-cuba-hurricane-melissa
+
+**Maple Leafs trade watch: Is Yegor Chinakhov a fit?**\
+`The 2020 first-round pick is a speedy, high-IQ and offensively minded player with a dangerous shot`\
+https://nytimes.com/athletic/6747312/2025/10/24/maple-leafs-trade-target-yegor-chinakhov/
+
 **British Drug Dealer Is Sentenced for Pro-Russian Attack Plots**\
 `Dylan Earl recruited people to set fire to two London warehouses containing aid bound for Ukraine, the police said. He was also convicted of plotting against a dissident Russian restaurant owner.`\
 https://nytimes.com/2025/10/24/world/europe/britain-sentence-pro-russian-plots.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/10/24/us/politics/east-wing-trump-power.html
 **A.I. Slop Is Cocomelon for Adults**\
 `Kevin Roose and Casey Newton, the hosts of “Hard Fork” at The New York Times, watch and react to the viral glass fruit-cutting A.I. slop.`\
 https://nytimes.com/video/podcasts/100000010479110/ai-slop-is-cocomelon-for-adults.html
-
-**Maraq Digaag (Spiced Chicken Soup)**\
-`This aromatic and revitalizing spiced chicken soup soup is the lesser known sibling of maraq ari, a traditional Somali goat soup beloved for both its nutritious and healing properties.`\
-https://nytimes.com/video/dining/100000010479187/maraq-digaag-spiced-chicken-soup.html
-
-**Tinned Fish Hand Rolls**\
-`With tinned fish, tender rice and mixed vegetables, these meal-worthy hand rolls are all at once rich, fresh, crunchy and tender.`\
-https://nytimes.com/video/dining/100000010479173/tinned-fish-hand-rolls.html
 
