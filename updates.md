@@ -1,3 +1,7 @@
+**A Place for Friends**\
+`Kelvin Zhou makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/10/23/crosswords/daily-puzzle-2025-10-24.html
+
 **USWNT 1, Portugal 2: Uncharacteristic mistakes leave the U.S. disappointed in loss**\
 `The U.S. conceded two set piece goals for the first time in recent memory, looking uncharacteristically disjointed. `\
 https://nytimes.com/athletic/6745539/2025/10/23/uswnt-loss-portugal-mistakes/
