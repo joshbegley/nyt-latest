@@ -1,3 +1,7 @@
+**Fire Engulfs Bus in Southern India, Killing 20**\
+`A motorcycle struck the bus and got lodged in it, creating sparks that ignited the fuel tank, the police in Andhra Pradesh State said.`\
+https://nytimes.com/2025/10/24/world/asia/india-bus-crash-fire.html
+
 **She's trying for Singapore's first world gymnastics medal — in between school exams**\
 `Earlier this week, Yap qualified for Saturday's balance beam final in Jakarta. In between, she had to make a trip home to be a student.`\
 https://nytimes.com/athletic/6745283/2025/10/24/gymnastics-world-championships-olympics-amanda-yap/

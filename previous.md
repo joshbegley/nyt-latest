@@ -1,3 +1,7 @@
+**Fire Engulfs Bus in Southern India, Killing 20**\
+`A motorcycle struck the bus and got lodged in it, creating sparks that ignited the fuel tank, the police in Andhra Pradesh State said.`\
+https://nytimes.com/2025/10/24/world/asia/india-bus-crash-fire.html
+
 **She's trying for Singapore's first world gymnastics medal — in between school exams**\
 `Earlier this week, Yap qualified for Saturday's balance beam final in Jakarta. In between, she had to make a trip home to be a student.`\
 https://nytimes.com/athletic/6745283/2025/10/24/gymnastics-world-championships-olympics-amanda-yap/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6746215/2025/10/24/nba-gambling-warriors-nuggets-co
 **U.S. Diplomats Will Work With Troops to Maintain Gaza Cease-Fire, Rubio Says**\
 `Secretary of State Marco Rubio said during a visit to Israel that the State Department would increase its presence at a center set up to monitor the peace deal.`\
 https://nytimes.com/2025/10/24/world/middleeast/gaza-ceasefire-israel-hamas-rubio-us.html
-
-**What to expect from the 2025 World Series broadcast: Announcers, schedule and more**\
-`Here's what viewers need to know about the upcoming World Series coverage on Fox (and Sportsnet, if you live in Canada).`\
-https://nytimes.com/athletic/6741930/2025/10/24/mlb-world-series-dodgers-blue-jays-fox-schedule-how-to-watch/
 
