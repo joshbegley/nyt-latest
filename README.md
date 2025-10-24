@@ -1,3 +1,7 @@
+**Fantasy Premier League live Q&A: Gameweek 9 advice from Ben Dinnery**\
+`Join Ben Dinnery for a live Gameweek 9 Q&A from 1pm-2pm UK time today`\
+https://nytimes.com/athletic/6743245/2025/10/24/fantasy-premier-league-gameweek-9-q-and-a/
+
 **Europe’s Persistence in Supporting Ukraine Is Bearing Fruit**\
 `European leaders want to build on President Trump’s sanctions on Russia with new commitments of financial and military support for Kyiv.`\
 https://nytimes.com/2025/10/24/world/europe/europe-ukraine-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/24/insider/finding-his-russian-jewish-roots-in-ameri
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/10/24/crosswords/spelling-bee-forum.html
-
-**Speed Limits Are Taking the Wind Out of Cyclists’ Exhilarating Commutes**\
-`With new regulations on electric bike speed, fans of the gray Citi Bike — lovingly known as the White Stallion or the Ghost — are facing a slower, safer future.`\
-https://nytimes.com/2025/10/24/nyregion/electric-citi-bike-speeds-new-york-city.html
 
