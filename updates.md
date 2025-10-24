@@ -1,3 +1,7 @@
+**College football best bets Week 9: Washington to cover vs. Illinois leads 7 spread bets**\
+`Austin Mock's College Football Projection Model has identified a handful of best bets for Week 9.`\
+https://nytimes.com/athletic/6746837/2025/10/24/college-football-best-bets-week-9-washington-illinois-point-spreads/
+
 **Red Light: A youth-fueled hat trick of NHL hat tricks**\
 `Celebrini, Logan Cooley and Taylor Raddysh each scored three goals on a high-scoring night around the NHL.`\
 https://nytimes.com/athletic/6746965/2025/10/24/red-light-nhl-newsletter-hat-tricks/

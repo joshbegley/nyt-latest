@@ -1,3 +1,7 @@
+**College football best bets Week 9: Washington to cover vs. Illinois leads 7 spread bets**\
+`Austin Mock's College Football Projection Model has identified a handful of best bets for Week 9.`\
+https://nytimes.com/athletic/6746837/2025/10/24/college-football-best-bets-week-9-washington-illinois-point-spreads/
+
 **Red Light: A youth-fueled hat trick of NHL hat tricks**\
 `Celebrini, Logan Cooley and Taylor Raddysh each scored three goals on a high-scoring night around the NHL.`\
 https://nytimes.com/athletic/6746965/2025/10/24/red-light-nhl-newsletter-hat-tricks/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/10/24/style/melanie-ward-1990s-style.html
 **Chargers Drub Vikings in Thursday Night Football**\
 `The Los Angeles Chargers beat the Minnesota Vikings 37-10 Thursday behind a big game from Justin Herbert.`\
 https://nytimes.com/video/the-athletic/100000010479066/chargers-drub-vikings-in-thursday-night-football.html
-
-**Gabriel an injury doubt for Arsenal against Crystal Palace**\
-`Captain Martin Odegaard, Kai Havertz, Noni Madueke and Gabriel Jesus are not in contention for the weekend.`\
-https://nytimes.com/athletic/6746899/2025/10/24/gabriel-arsenal-injury-doubt/
 
