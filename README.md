@@ -1,3 +1,7 @@
+**Referee who reversed Kirby Smart timeout removed from SEC officiating lineup: Sources**\
+`Ken Williamson was head referee in a Georgia-Auburn game that included a higher-than-usual number of questionable calls.`\
+https://nytimes.com/athletic/6745399/2025/10/23/sec-referee-removed-auburn-georgia/
+
 **How to watch Dodgers at Blue Jays: World Series Game 1 Time, TV, streaming**\
 `Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6745448/2025/10/23/dodgers-vs-blue-jays-stream-how-to-watch-oct-24/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6745161/2025/10/23/mets-christian-scott-injury-rota
 **Blazers coach Chauncey Billups released after arrest in federal betting probe**\
 `Billups agreed to reappear in Eastern District Court in New York on Nov. 24. `\
 https://nytimes.com/athletic/6745258/2025/10/23/chauncey-billups-arrest-gambling-nba-released/
-
-**U.S. B-1 Bombers Flew Near Venezuelan Air Space**\
-`The long-range B-1 bombers can carry up to 75,000 pounds of guided and unguided munitions, the largest nonnuclear payload of any aircraft in the Air Force arsenal.`\
-https://nytimes.com/2025/10/23/us/politics/us-b1-bombers-venezuela.html
 
