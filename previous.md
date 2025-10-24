@@ -1,40 +1,40 @@
-**Hampton out of England's Brazil friendly with elbow injury**\
-`The upcoming friendlies against Brazil and Australia are the national team's first since their European Championship win over the summer.`\
-https://nytimes.com/athletic/6746422/2025/10/24/hannah-hampton-england-injury/
+**So Long, East Wing**\
+`We look back at the history of this corner of the White House.`\
+https://nytimes.com/2025/10/24/briefing/so-long-east-wing.html
 
-**TAFC: Is Messi's new deal good for everyone? Plus: Haaland's meat and 'raw milk' diet**\
-`Today in TAFC: A look at the impact of Lionel Messi's new Inter Miami contract. Plus: Could Hearts finally end the duopoly in Scotland?`\
-https://nytimes.com/athletic/6746303/2025/10/24/messi-inter-miami-contract-2028/
+**Possible Bears trades at the deadline? Mailbag plus Week 8 picks**\
+`While it's unlikely the Bears make any moves before the Nov. 4 deadline, GM Ryan Poles has shown he is not afraid to be aggressive. `\
+https://nytimes.com/athletic/6744863/2025/10/24/bears-trade-deadline-mailbag-ravens/
 
-**On a Roll, European Leaders Meet to Bolster Support for Ukraine**\
-`Britain, the host, is framing a meeting of the “coalition of the willing” as an effort to fortify Kyiv for the winter fighting months.`\
-https://nytimes.com/2025/10/24/world/europe/coalition-of-the-willing-zelensky-uk.html
+**Bill Skelechick? How a Charlotte yard turned into a Halloween tableau of Bill Belichick and Jordon Hudson**\
+`What started as boredom in 2020 has turned into a yearly tradition for Travis Dove: Pop-culture-themed Halloween displays.`\
+https://nytimes.com/athletic/6744978/2025/10/24/bill-belichick-unc-skeleton-halloween/
 
-**Elena Rybakina qualifies for WTA Tour Finals, overtaking Mirra Andreeva with late-season surge**\
-`Rybakina's six wins in a row have propelled her past Andreeva with just one week of tournaments left in the season.`\
-https://nytimes.com/athletic/6746319/2025/10/24/wta-tour-finals-players-qualified-2025/
+**The Athletic’s Friday football quiz question #78**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/6744382/2025/10/24/the-athletics-friday-football-quiz-question-78/
 
-**Man United complete signing of England youth goalkeeper from Derby**\
-`Charlie Hardy, 16, will go into the club’s academy system and under-18s side managed by Darren Fletcher.`\
-https://nytimes.com/athletic/6746460/2025/10/24/manchester-united-charlie-hardy-derby-signing/
+**Steelers vs. Packers presents Aaron Rodgers rare opportunity to join exclusive all-32 club**\
+`Only four quarterbacks in NFL history have beaten all current 32 teams. Rodgers can join them on Sunday.`\
+https://nytimes.com/athletic/6744723/2025/10/24/aaron-rodgers-steelers-packers-wins-32-teams/
 
-**With NBA mired in scandals, Adam Silver is in the spotlight. Can he meet the moment?**\
-`NBA commissioner Adam Silver will have to blend patience and justice while navigating between the two scandals facing his league. `\
-https://nytimes.com/athletic/6744732/2025/10/24/nba-adam-silver-gambling-scandal/
+**'Sugar Boo'? 'Fishy'? 'Hot Wheels'? It's another weird NHL nickname quiz**\
+`How many weird player nicknames from Hockey-Reference can you name?`\
+https://nytimes.com/athletic/6744333/2025/10/24/nhl-player-nicknames-hockey-reference/
 
-**Sheffield Wednesday placed in administration, set for 12-point deduction**\
-`Wednesday will now fall to minus six points after 11 games of the Championship season.`\
-https://nytimes.com/athletic/6746323/2025/10/24/sheffield-wednesday-administration-chansiri/
+**Why the unexpectedly good Blackhawks aren't sweating their next NHL Draft slot**\
+`The Blackhawks were widely expected to be one of the two worst teams in the league. Eight games in, they look much better than that.`\
+https://nytimes.com/athletic/6744308/2025/10/24/blackhawks-rebuild-nhl-draft/
 
-**Maresca raised training concerns with Guiu: ‘He changed and he got the chance’**\
-`The striker met with Maresca ahead of the Liverpool game on October 4 to ask why he was not getting any minutes.`\
-https://nytimes.com/athletic/6746440/2025/10/24/chelsea-marc-guiu-training/
+**David Adelman unplugged: On Nikola Jokić, an energized Jamal Murray and a ruthless West**\
+`It's a new year (with new faces) in Denver, and the Nuggets coach is adamant that his team doesn't 'stand on stuff' it did in the past.`\
+https://nytimes.com/athletic/6740528/2025/10/24/nuggets-david-adelman-talks-nikola-jokic-jamal-murray-nbas-ruthless-west-and-more/
 
-**The Pulse: An NBA betting scandal erupts**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6745754/2025/10/24/an-nba-betting-scandal-erupts-plus-gauging-the-blue-jays-chances/
+**Harmony in goal: Blue Jackets' Elvis Merzlikins, Jet Greaves enjoying partnership, success**\
+`One of the biggest questions about the Blue Jackets' roster has turned into a winning formula thus far.`\
+https://nytimes.com/athletic/6744699/2025/10/24/blue-jackets-goalies-merzlikins-greaves-partnership/
 
-**Among George Springer's siblings, competition is a family affair**\
-`"She kind of gets on my case a little bit more than I would like her to," George Springer said of his sister Lena after Game 7 of the ALCS.`\
-https://nytimes.com/athletic/6745862/2025/10/24/george-springer-blue-jays-world-series-family/
+**Meet the 49ers' unsung hero DB, who is also the 'ultimate energy giver'**\
+`Chase Lucas hasn't played much, but he's made an outsized impact for the 49ers, including two game-sealing plays.`\
+https://nytimes.com/athletic/6745426/2025/10/24/chase-lucas-49ers-defensive-back/
 
