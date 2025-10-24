@@ -1,3 +1,7 @@
+**The NBA once opposed legalized sports betting. Under Adam Silver, it has embraced it**\
+`In light of Thursday's federal indictments, we track the NBA’s evolving attitude on legalized sports betting under commissioner Adam Silver.`\
+https://nytimes.com/athletic/6745307/2025/10/23/nba-gambling-betting-timeline-adam-silver/
+
 **Rangers' Matt Rempe injured after fighting Ryan Reaves**\
 `The two NHL heavyweights exchanged blows in the first period, and Rempe left the penalty box early to go to the dressing room.`\
 https://nytimes.com/athletic/6745503/2025/10/23/rangers-matt-rempe-injury-fight-ryan-reaves/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6745092/2025/10/23/angels-tyler-skaggs-trial-eric-k
 **Trump Administration Asserts Authority to House Migrants at All Overseas U.S. Bases**\
 `A Justice Department lawyer made the claim in response to a challenge to the administration’s use of the base at Guantánamo Bay, Cuba, to hold detainees designated for deportation.`\
 https://nytimes.com/2025/10/23/us/politics/dhs-ice-guantanamo.html
-
-**Christian Scott nears end of rehab process. Where does he fit in Mets' plans?**\
-`Scott’s fastball velocity checked in around 94 mph during his bullpen sessions and the right-hander said he recently hit 96 mph. `\
-https://nytimes.com/athletic/6745161/2025/10/23/mets-christian-scott-injury-rotation/
 
