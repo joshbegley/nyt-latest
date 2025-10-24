@@ -1,3 +1,7 @@
+**Avalanche, Hurricanes turn back the clock by wearing Nordiques, Whalers throwback jerseys**\
+`The Nordiques and Whalers were both members of the NHL's Adams Division between 1981 and 1995.`\
+https://nytimes.com/athletic/6745755/2025/10/23/avalanche-hurricanes-nordiques-whalers-throwback-jerseys/
+
 **Chargers' Derwin James, Vikings' Christian Darrisaw ruled out with injuries**\
 `James left after the first defensive series with an ankle injury while Darrisaw was knocked out with a knee injury.`\
 https://nytimes.com/athletic/6745675/2025/10/23/chargers-vikings-injuries-tnf-derwin-james-christian-darrisaw/
