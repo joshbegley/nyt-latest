@@ -1,3 +1,7 @@
+**Fantasy Premier League live Q&A: Gameweek 9 advice from Ben Dinnery**\
+`Join Ben Dinnery for a live Gameweek 9 Q&A from 1pm-2pm UK time today`\
+https://nytimes.com/athletic/6743245/2025/10/24/fantasy-premier-league-gameweek-9-q-and-a/
+
 **Europe’s Persistence in Supporting Ukraine Is Bearing Fruit**\
 `European leaders want to build on President Trump’s sanctions on Russia with new commitments of financial and military support for Kyiv.`\
 https://nytimes.com/2025/10/24/world/europe/europe-ukraine-russia.html
