@@ -1,3 +1,11 @@
+**What’s Fall Without a Good Pea Coat?**\
+`A roundup of the latest takes on the classic style.`\
+https://nytimes.com/2025/10/24/t-magazine/mens-pea-coat-fall.html
+
+**Jury Awards $42 Million in Death of Inmate at Private Jail in Louisiana**\
+`Erie Moore, a retired millworker and father of three, died in 2015, a month after guards slammed him headfirst to the floor at the Richwood Correctional Center, lawyers for his family said.`\
+https://nytimes.com/2025/10/24/us/louisiana-prison-death-verdict.html
+
 **The U.S. Is Deploying an Aircraft Carrier to Latin America**\
 `Also, the World Series begins. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/10/24/briefing/us-aircraft-carrier-world-series.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/24/us/politics/trump-drones-pentagon.html
 **Sonia Raman agrees to deal to become Seattle Storm's head coach: Sources**\
 `Raman, who replaces Noelle Quinn, will be tasked with stewarding the development of 2025 No. 2 pick Dominique Malonga, a rising star.`\
 https://nytimes.com/athletic/6747951/2025/10/24/sonia-raman-coach-seattle-storm-wnba/
-
-**Scoop City: Rodgers vs. Packers for the first time**\
-`Aaron Rodgers' game against the Packers, your thoughts on Mike Tomlin, what film says about Tua and Week 8's most important game`\
-https://nytimes.com/athletic/6747922/2025/10/24/aaron-rodgers-steelers-packers-favre-bears-ravens-tua/
-
-**Nights Out With Malala, Making Time to Be Herself**\
-`Basketball and Dua Lipa are on the schedule during a New York jaunt with the Nobel laureate, whose intimate memoir finds her juggling activism and married life.`\
-https://nytimes.com/2025/10/24/books/review/malala-yousafzai-memoir-finding-my-way.html
 

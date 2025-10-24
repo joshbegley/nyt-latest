@@ -1,3 +1,11 @@
+**What’s Fall Without a Good Pea Coat?**\
+`A roundup of the latest takes on the classic style.`\
+https://nytimes.com/2025/10/24/t-magazine/mens-pea-coat-fall.html
+
+**Jury Awards $42 Million in Death of Inmate at Private Jail in Louisiana**\
+`Erie Moore, a retired millworker and father of three, died in 2015, a month after guards slammed him headfirst to the floor at the Richwood Correctional Center, lawyers for his family said.`\
+https://nytimes.com/2025/10/24/us/louisiana-prison-death-verdict.html
+
 **The U.S. Is Deploying an Aircraft Carrier to Latin America**\
 `Also, the World Series begins. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/10/24/briefing/us-aircraft-carrier-world-series.html
