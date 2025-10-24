@@ -1,3 +1,7 @@
+**How to watch Dodgers at Blue Jays: World Series Game 1 Time, TV, streaming**\
+`Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6745448/2025/10/23/dodgers-vs-blue-jays-stream-how-to-watch-oct-24/
+
 **Tensions Mount as Agents, Including Gregory Bovino, Clash With Chicagoans**\
 `Mr. Bovino, a Border Patrol leader, appeared to use tear gas during a confrontation with residents on Thursday. Plaintiffs in a suit over federal tactics say that violated a court order.`\
 https://nytimes.com/2025/10/23/us/politics/gregory-bovino-chicago-immigration.html
