@@ -1,5 +1,5 @@
 **USWNT 1, Portugal 2: Uncharacteristic mistakes leave the U.S. disappointed in loss**\
-`The U.S. conceded two set piece goals for the first time in recent memory, looking uncharacteristically disjointed `\
+`The U.S. conceded two set piece goals for the first time in recent memory, looking uncharacteristically disjointed. `\
 https://nytimes.com/athletic/6745539/2025/10/23/uswnt-loss-portugal-mistakes/
 
 **Protester Who Played ‘Star Wars’ Song Sues After Arrest in Washington**\
