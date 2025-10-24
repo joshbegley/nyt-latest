@@ -1,3 +1,15 @@
+**Food Banks Offer Groceries for Furloughed Federal Workers**\
+`In the Washington region, the Capital Area Food Bank is providing food distribution specifically for federal workers and contractors who are going without pay.`\
+https://nytimes.com/2025/10/24/us/politics/food-banks-federal-workers-trump.html
+
+**Xbox’s Prized Sci-Fi Franchise Is Heading to PlayStation**\
+`As part of a strategic shift away from exclusivity, Microsoft is bringing Halo to Sony’s competing console for the first time.`\
+https://nytimes.com/2025/10/24/arts/halo-playstation-microsoft-xbox.html
+
+**What are prop bets, and what does the latest gambling scandal mean for regulation?**\
+`Experts say that some form of regulation when it comes to prop bets is likely necessary to preserve the integrity of the game.`\
+https://nytimes.com/athletic/6747376/2025/10/24/prop-bets-nba-gambling-scandal/
+
 **Joseph Woll returning to Maple Leafs after extended personal leave**\
 `An update regarding how Woll will be reintegrated into the Leafs is expected in the near future.`\
 https://nytimes.com/athletic/6747786/2025/10/24/joseph-woll-return-maple-leafs/
