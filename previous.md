@@ -1,3 +1,19 @@
+**City Guides**\
+``\
+https://nytimes.com/spotlight/city-guides
+
+**Sabres notes: Bernard-Docker reflects, Kesselring close to return, goalie questions**\
+`The Sabres have a home-and-home against the Toronto Maple Leafs on the schedule this weekend.`\
+https://nytimes.com/athletic/6747333/2025/10/24/sabres-kesselring-upl-bernard-docker/
+
+**The Future of Aruba**\
+`Meet students stewarding Aruba’s future. Join as they discuss the island’s culture and preservation.`\
+https://nytimes.com/paidpost/aruba-tourism-authority/the-future-of-aruba.html
+
+**A Beautiful Place with Beautiful People**\
+`Learn the meaning of “Masha Danki” and discover Aruba’s culture of warmth and inclusivity.`\
+https://nytimes.com/paidpost/aruba-tourism-authority/a-beautiful-place-with-beautiful-people.html
+
 **Next face of the NHL? Macklin Celebrini's family, friends, teammates on why he'll live up to the hype**\
 `Celebrini's five-point night at MSG on Thursday was an early signature moment for a player seen by NHL peers as a superstar in the making.`\
 https://nytimes.com/athletic/6744779/2025/10/24/macklin-celebrini-sharks-nhl-hype/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/24/dining/protein-chili-halloween.html
 **New Trump-Canada Spat Spotlights ‘Captain Canada,’ the Ontario Premier**\
 `Doug Ford has built a reputation for picking fights with President Trump and getting under his skin with publicity-grabbing moves as U.S. tariffs have harmed Ontario’s economy.`\
 https://nytimes.com/2025/10/24/world/canada/doug-ford-trump-reagan-ad.html
-
-**For the Jets, no Sauce Gardner, no Garrett Wilson and no starting QB named for Week 8**\
-`The Jets are still in search of their first win under head coach Aaron Glenn.`\
-https://nytimes.com/athletic/6747227/2025/10/24/new-york-jets-sauce-gardner-garrett-wilson-injuries/
-
-**Fernandes: The Saudi offer, Amorim's project, 300 Man Utd games, and his future**\
-`Manchester United's captain opens up on his unsettled summer, the Amorim 'project' and what comes next`\
-https://nytimes.com/athletic/6746976/2025/10/24/bruno-fernandes-transfer-saudi-arabia/
-
-**2 People Shot at Protest Site Outside Coast Guard Base in California**\
-`Coast Guard police fired rounds at a moving van that accelerated toward the base in reverse and did not follow commands to stop, the authorities say.`\
-https://nytimes.com/2025/10/24/us/coast-guard-shots-fired-protest.html
-
-**Red Sox begin making more big changes to address shaky defense**\
-`After leading the league in errors, the Red Sox will double the number of coaches in the minor leagues who are focused full-time on defense.`\
-https://nytimes.com/athletic/6746773/2025/10/24/red-sox-defense-coaching-changes/
 

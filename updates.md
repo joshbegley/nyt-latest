@@ -1,3 +1,19 @@
+**City Guides**\
+``\
+https://nytimes.com/spotlight/city-guides
+
+**Sabres notes: Bernard-Docker reflects, Kesselring close to return, goalie questions**\
+`The Sabres have a home-and-home against the Toronto Maple Leafs on the schedule this weekend.`\
+https://nytimes.com/athletic/6747333/2025/10/24/sabres-kesselring-upl-bernard-docker/
+
+**The Future of Aruba**\
+`Meet students stewarding Aruba’s future. Join as they discuss the island’s culture and preservation.`\
+https://nytimes.com/paidpost/aruba-tourism-authority/the-future-of-aruba.html
+
+**A Beautiful Place with Beautiful People**\
+`Learn the meaning of “Masha Danki” and discover Aruba’s culture of warmth and inclusivity.`\
+https://nytimes.com/paidpost/aruba-tourism-authority/a-beautiful-place-with-beautiful-people.html
+
 **Next face of the NHL? Macklin Celebrini's family, friends, teammates on why he'll live up to the hype**\
 `Celebrini's five-point night at MSG on Thursday was an early signature moment for a player seen by NHL peers as a superstar in the making.`\
 https://nytimes.com/athletic/6744779/2025/10/24/macklin-celebrini-sharks-nhl-hype/
