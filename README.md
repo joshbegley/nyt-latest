@@ -1,3 +1,15 @@
+**What are NBA officials' points of emphasis this season, and will they stick around?**\
+`These aren't rule changes; more accurately, they are rules that are being tightened up.`\
+https://nytimes.com/athletic/6740150/2025/10/24/nba-referees-points-of-emphasis-2025-26/
+
+**Trump Called a Canadian Ad Fake. It Faithfully Reproduces Reagan’s Words.**\
+`The anti-tariff ad, which Trump pointed to in cutting off trade talks with Canada, uses several sound bytes from an April 1987 speech, though not in the order President Ronald Reagan said them.`\
+https://nytimes.com/2025/10/24/us/politics/trump-tariffs-canada-reagan-tv-ad-video.html
+
+**Barca's Raphinha expected to be sidelined for a further month after setback**\
+`The Brazilian had been hoping to prove his fitness in time to play a part in Sunday's Clasico.`\
+https://nytimes.com/athletic/6742880/2025/10/24/raphinha-injury-latest-barcelona-clasico/
+
 **Out with 'secret' scrimmages, in with exhibition 'Feast Week'? How college hoops' preseason has changed**\
 `College basketball's preseason used to be closed-door scrimmages and exhibitions against DII opponents. Not anymore.`\
 https://nytimes.com/athletic/6746610/2025/10/24/college-basketball-preseason-exhibition-schedule/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/24/business/interest-rates-cds-savings-accounts.html
 **Bonds Should Be Boring. But They’ve Been on a Roller Coaster.**\
 `Despite reassuring bond returns lately, troubles abound in what was once a sleepy haven for risk-averse investors.`\
 https://nytimes.com/2025/10/24/business/bonds-trump-market-stocks-investing.html
-
-**Fire Engulfs Bus in Southern India, Killing 20**\
-`A motorcycle struck the bus and got lodged in it, creating sparks that ignited the fuel tank, the police in Andhra Pradesh State said.`\
-https://nytimes.com/2025/10/24/world/asia/india-bus-crash-fire.html
-
-**She's trying for Singapore's first world gymnastics medal — in between school exams**\
-`Earlier this week, Yap qualified for Saturday's balance beam final in Jakarta. In between, she had to make a trip home to be a student.`\
-https://nytimes.com/athletic/6745283/2025/10/24/gymnastics-world-championships-olympics-amanda-yap/
-
-**The Wider Costs of the N.B.A. Insider-Trading Scandal**\
-`Criminal charges over a wide-ranging betting ring have called into question the sports world’s embrace of legalized gambling.`\
-https://nytimes.com/2025/10/24/business/dealbook/nba-insider-trading-gambling.html
 
