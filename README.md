@@ -1,3 +1,7 @@
+**Nottingham Forest can 'finally breathe' again. This was the perfect start for Dyche**\
+`A first win since the opening day of the season was exactly the result the incoming manager needed to restore some joy at the City Ground`\
+https://nytimes.com/athletic/6745501/2025/10/24/nottingham-forest-sean-dyche-porto/
+
 **High Five -- around the world in five games**\
 `The MLS playoffs begin with Lionel Messi in action, a full-blooded battle in Edinburgh and more to look forward to.`\
 https://nytimes.com/athletic/6745419/2025/10/24/high-five-around-the-world-in-five-games-4/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6741079/2025/10/24/fantasy-premier-league-bargains-
 **How Donnarumma is changing the way Manchester City build up play**\
 `The Italy goalkeeper arrived with a reputation as an old-school shot-stopper who was less confident playing out from the back`\
 https://nytimes.com/athletic/6742870/2025/10/24/donnarumma-manchester-city-analysis/
-
-**Aston Villa's calamitous loss to a team with a microwave in the trophy cabinet**\
-`Aston Villa managed to lose 2-1 against Go Ahead Eagles in the Europa League on Thursday night`\
-https://nytimes.com/athletic/6744923/2025/10/24/aston-villa-go-ahead-eagles-microwave/
 
