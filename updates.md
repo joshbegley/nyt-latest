@@ -1,3 +1,7 @@
+**Federal Surge Called Off Across the Bay Area, Officials Confirm**\
+`President Trump had said on Thursday that he called off the deployment in San Francisco. Two federal officials said on Friday that the action applied across the region.`\
+https://nytimes.com/2025/10/24/us/bay-area-san-francisco-trump-immigration.html
+
 **How Lunar Photography Brought the Heavens Down to Earth**\
 `No explorers ever traveled farther from home than the Apollo astronauts. As artists, they’re still underrated.`\
 https://nytimes.com/interactive/2025/10/24/arts/moon-photos-apollo-nasa.html

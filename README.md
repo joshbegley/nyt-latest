@@ -1,3 +1,11 @@
+**Trump to Investigate Whether China Abided by 2020 Trade Deal**\
+`The administration announced its trade investigation on Friday, ahead of a summit between U.S. and Chinese leaders.`\
+https://nytimes.com/2025/10/24/us/politics/trump-investigation-china-trade-deal.html
+
+**FIA reinstated Russian official facing US, UK sanctions to World Motor Sport Council**\
+`Viktor Kiryanov was a member of the WMSC prior to Russia’s invasion of Ukraine in February 2022`\
+https://nytimes.com/athletic/6747629/2025/10/24/f1-fia-viktor-kiryanov-reinstated-russia-sanctions/
+
 **Federal Surge Called Off Across the Bay Area, Officials Confirm**\
 `President Trump had said on Thursday that he called off the deployment in San Francisco. Two federal officials said on Friday that the action applied across the region.`\
 https://nytimes.com/2025/10/24/us/bay-area-san-francisco-trump-immigration.html
@@ -29,8 +37,4 @@ https://nytimes.com/athletic/6747312/2025/10/24/maple-leafs-trade-target-yegor-c
 **British Drug Dealer Is Sentenced for Pro-Russian Attack Plots**\
 `Dylan Earl recruited people to set fire to two London warehouses containing aid bound for Ukraine, the police said. He was also convicted of plotting against a dissident Russian restaurant owner.`\
 https://nytimes.com/2025/10/24/world/europe/britain-sentence-pro-russian-plots.html
-
-**In a First for a Woman in France, Life Sentence Imposed for Murder of Schoolgirl**\
-`Dahbia Benkired, an Algerian woman, was convicted of raping and killing 12-year-old Lola Daviet, in a case that outraged France and raised questions about the deportation of migrants.`\
-https://nytimes.com/2025/10/24/world/europe/life-sentence-french-girl-murder.html
 
