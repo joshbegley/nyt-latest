@@ -1,3 +1,11 @@
+**Fed Prepares Bank-Friendly Changes to Annual Stress Tests**\
+`The Federal Reserve Board is poised to start releasing in advance models it uses to test the biggest banks’ readiness to withstand economic shocks.`\
+https://nytimes.com/2025/10/24/business/federal-reserve-banks-stress-tests.html
+
+**Hakeem Jeffries Gives Mamdani Last-Minute Endorsement for N.Y.C. Mayor**\
+`Mr. Jeffries, the House minority leader, had resisted backing Zohran Mamdani, the Democratic nominee, for months. But his support gives the nominee a late boost.`\
+https://nytimes.com/2025/10/24/nyregion/hakeem-jeffries-zohran-mamdani-endorsement.html
+
 **Celtics' Jaylen Brown says NBA hasn't prepared players for current gambling climate**\
 `Jaylen Brown said the NBA needs to be more open to holding conversations with players about the new environment.`\
 https://nytimes.com/athletic/6747505/2025/10/24/celtics-jaylen-brown-nba-gambling-climate/
