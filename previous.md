@@ -1,3 +1,7 @@
+**Barbara Gips, Creator of Memorable Movie Catchphrases, Dies at 89**\
+`Her best-known tagline was also her first to be published, written for “Alien”: “In space no one can hear you scream.”`\
+https://nytimes.com/2025/10/24/movies/barbara-gips-dead.html
+
 **Trump Administration Won’t Use Emergency Funds for Food Stamps During Shutdown**\
 `The Agriculture Department said that it would not use the funds to cover benefits in November, imperiling a program 42 million people use to pay for groceries.`\
 https://nytimes.com/2025/10/24/us/politics/trump-food-stamps-shutdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/24/us/politics/uss-gerald-ford-explainer.html
 **What’s Fall Without a Good Pea Coat?**\
 `A roundup of the latest takes on the classic style.`\
 https://nytimes.com/2025/10/24/t-magazine/mens-pea-coat-fall.html
-
-**Jury Awards $42 Million in Death of Inmate at Private Jail in Louisiana**\
-`Erie Moore, a retired millworker and father of three, died in 2015, a month after guards slammed him headfirst to the floor at the Richwood Correctional Center, lawyers for his family said.`\
-https://nytimes.com/2025/10/24/us/louisiana-prison-death-verdict.html
 

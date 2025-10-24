@@ -1,3 +1,7 @@
+**Barbara Gips, Creator of Memorable Movie Catchphrases, Dies at 89**\
+`Her best-known tagline was also her first to be published, written for “Alien”: “In space no one can hear you scream.”`\
+https://nytimes.com/2025/10/24/movies/barbara-gips-dead.html
+
 **Trump Administration Won’t Use Emergency Funds for Food Stamps During Shutdown**\
 `The Agriculture Department said that it would not use the funds to cover benefits in November, imperiling a program 42 million people use to pay for groceries.`\
 https://nytimes.com/2025/10/24/us/politics/trump-food-stamps-shutdown.html
