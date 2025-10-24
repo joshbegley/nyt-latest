@@ -1,3 +1,7 @@
+**Giants taking risk by relying on injury prone kicker Graham Gano again**\
+`Plus, Vic Fangio praises Jaxson Dart.`\
+https://nytimes.com/athletic/6746447/2025/10/24/giants-eagles-injury-kicker-graham-gano/
+
 **What are NBA officials' points of emphasis this season, and will they stick around?**\
 `These aren't rule changes; more accurately, they are rules that are being tightened up.`\
 https://nytimes.com/athletic/6740150/2025/10/24/nba-referees-points-of-emphasis-2025-26/
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/6746610/2025/10/24/college-basketball-preseason-exh
 `Recipients, including retirees and their spouses, as well as those who receive disability benefits and Supplemental Security Income, will see the additional benefit starting in January.`\
 https://nytimes.com/2025/10/24/business/social-security-cola-cost-of-living.html
 
-**Maguire, Mount injury doubts for Man Utd ahead of Brighton match**\
+**Maguire, Mount injury doubts for Man Utd ahead of Brighton**\
 `Both players featured against Liverpool on Sunday, securing Amorim's first back-to-back league wins.`\
 https://nytimes.com/athletic/6746662/2025/10/24/maguire-mount-manchester-united-injury-brighton/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6746614/2025/10/24/wnba-players-letter-union-zohran
 **Pay Attention to Your Savings Now, Just Before the Fed Considers a Rate Cut**\
 `To ensure that your cash is getting the best return, compare the options among high-yield savings accounts and C.D.s.`\
 https://nytimes.com/2025/10/24/business/interest-rates-cds-savings-accounts.html
-
-**Bonds Should Be Boring. But They’ve Been on a Roller Coaster.**\
-`Despite reassuring bond returns lately, troubles abound in what was once a sleepy haven for risk-averse investors.`\
-https://nytimes.com/2025/10/24/business/bonds-trump-market-stocks-investing.html
 
