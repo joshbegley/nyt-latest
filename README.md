@@ -14,8 +14,8 @@ https://nytimes.com/2025/10/24/movies/one-battle-after-another-filming-location-
 `A small company that has been manufacturing motors domestically for only a few weeks and has Donald Trump Jr. as an adviser won a parts order from the Army.`\
 https://nytimes.com/2025/10/24/us/politics/trump-drones-pentagon.html
 
-**Sonia Raman agrees to deal to become next coach of Seattle Storm**\
-`Sonia Raman is replacing Noelle Quinn, who had been Seattle’s coach from 2021-2025.`\
+**Sonia Raman agrees to deal to become Seattle Storm's head coach: Sources**\
+`Raman, who replaces Noelle Quinn, will be tasked with stewarding the development of 2025 No. 2 pick Dominique Malonga, a rising star.`\
 https://nytimes.com/athletic/6747951/2025/10/24/sonia-raman-coach-seattle-storm-wnba/
 
 **Scoop City: Rodgers vs. Packers for the first time**\
