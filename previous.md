@@ -1,3 +1,7 @@
+**Spurs have added more specialists to their staff - and they're not done yet**\
+`Sporting director Fabio Paratici has said Spurs 'need more specialisation' among their backroom personnel - the process is well underway`\
+https://nytimes.com/athletic/6743728/2025/10/24/tottenham-staff-recruitment-medical/
+
 **Ndiaye looks to have taken his game to the next level at Everton – here's how…**\
 `The Senegal winger has raised his level this season after the faith shown in him`\
 https://nytimes.com/athletic/6742885/2025/10/24/iliman-ndiaye-everton-premier-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6743103/2025/10/24/arne-slot-mohamed-salah-liverpoo
 **Premier League predictions: Man United vs Brighton, Arsenal vs Crystal Palace and the rest of Matchday 9**\
 `Who's leading after Matchday 8? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 9?`\
 https://nytimes.com/athletic/6742706/2025/10/24/premier-league-predictions-md9/
-
-**Harry Maguire is much more than just a 'Slab-head'**\
-`The much-maligned defender has become a serious goal threat for United at crucial moments in some big matches`\
-https://nytimes.com/athletic/6743925/2025/10/24/harry-maguire-manchester-united-goals/
 

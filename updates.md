@@ -1,3 +1,7 @@
+**Spurs have added more specialists to their staff - and they're not done yet**\
+`Sporting director Fabio Paratici has said Spurs 'need more specialisation' among their backroom personnel - the process is well underway`\
+https://nytimes.com/athletic/6743728/2025/10/24/tottenham-staff-recruitment-medical/
+
 **Ndiaye looks to have taken his game to the next level at Everton – here's how…**\
 `The Senegal winger has raised his level this season after the faith shown in him`\
 https://nytimes.com/athletic/6742885/2025/10/24/iliman-ndiaye-everton-premier-league/
