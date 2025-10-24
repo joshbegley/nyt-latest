@@ -1,3 +1,7 @@
+**Sonia Raman agrees to deal to become Seattle Storm's head coach: Sources**\
+`Raman, who replaces Noelle Quinn, will be tasked with stewarding the development of 2025 No. 2 pick Dominique Malonga, a rising star.`\
+https://nytimes.com/athletic/6747951/2025/10/24/sonia-raman-coach-seattle-storm-wnba/
+
 **U.S. Sanctions Colombia’s Leader, One of President Trump’s Harshest Critics**\
 `The United States Treasury Department accused President Gustavo Petro of allowing drug trafficking to flourish.`\
 https://nytimes.com/2025/10/24/world/americas/us-sanctions-colombia-president-petro-drugs.html
