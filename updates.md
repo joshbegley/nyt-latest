@@ -1,3 +1,11 @@
+**For the Jets, no Sauce Gardner, no Garrett Wilson, and no starting QB named for Week 8**\
+`The Jets are still in search of their first win under head coach Aaron Glenn.`\
+https://nytimes.com/athletic/6747227/2025/10/24/new-york-jets-sauce-gardner-garrett-wilson-injuries/
+
+**Fernandes: The Saudi offer, Amorim's project, 300 Man Utd games, and his future**\
+`Manchester United's captain opens up on his unsettled summer, the Amorim 'project' and what comes next`\
+https://nytimes.com/athletic/6746976/2025/10/24/bruno-fernandes-transfer-saudi-arabia/
+
 **Red Sox begin making more big changes to address shaky defense**\
 `After leading the league in errors, the Red Sox will double the number of coaches in the minor leagues who are focused full-time on defense.`\
 https://nytimes.com/athletic/6746773/2025/10/24/red-sox-defense-coaching-changes/

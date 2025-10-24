@@ -1,4 +1,8 @@
-**For the Jets, no Sauce Gardner, no Garrett Wilson, and no starting QB named for Week 8**\
+**New Trump-Canada Spat Spotlights ‘Captain Canada,’ the Ontario Premier**\
+`Doug Ford has built a reputation for picking fights with President Trump and getting under his skin with publicity-grabbing moves as U.S. tariffs have harmed Ontario’s economy.`\
+https://nytimes.com/2025/10/24/world/canada/doug-ford-trump-reagan-ad.html
+
+**For the Jets, no Sauce Gardner, no Garrett Wilson and no starting QB named for Week 8**\
 `The Jets are still in search of their first win under head coach Aaron Glenn.`\
 https://nytimes.com/athletic/6747227/2025/10/24/new-york-jets-sauce-gardner-garrett-wilson-injuries/
 
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6747113/2025/10/24/rangers-matt-rempe-injury-brenna
 **Carter-Vickers out for 'between three and five months' with Achilles injury**\
 `Carter-Vickers, 27, played the full 90 minutes in Celtic's 2-1 Europa League win against Sturm Graz on Thursday.`\
 https://nytimes.com/athletic/6747127/2025/10/24/usmnt-cameron-carter-vickers-achilles-injury/
-
-**What to know about the report.**\
-`By Colby Smith`\
-https://nytimes.com/live/2025/10/24/business/cpi-inflation-tariffs-fed/what-to-know-about-the-report
 

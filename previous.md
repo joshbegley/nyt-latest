@@ -1,3 +1,11 @@
+**For the Jets, no Sauce Gardner, no Garrett Wilson, and no starting QB named for Week 8**\
+`The Jets are still in search of their first win under head coach Aaron Glenn.`\
+https://nytimes.com/athletic/6747227/2025/10/24/new-york-jets-sauce-gardner-garrett-wilson-injuries/
+
+**Fernandes: The Saudi offer, Amorim's project, 300 Man Utd games, and his future**\
+`Manchester United's captain opens up on his unsettled summer, the Amorim 'project' and what comes next`\
+https://nytimes.com/athletic/6746976/2025/10/24/bruno-fernandes-transfer-saudi-arabia/
+
 **2 People Shot at Protest Site Outside Coast Guard Base in California**\
 `Coast Guard police fired rounds at a moving van that accelerated toward the base in reverse and did not follow commands to stop, the authorities say.`\
 https://nytimes.com/2025/10/24/us/coast-guard-shots-fired-protest.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6747127/2025/10/24/usmnt-cameron-carter-vickers-ach
 **What to know about the report.**\
 `By Colby Smith`\
 https://nytimes.com/live/2025/10/24/business/cpi-inflation-tariffs-fed/what-to-know-about-the-report
-
-**How to watch Bucks vs. Raptors: Time, TV, streaming**\
-`Find out how to watch the Milwaukee Bucks play the Toronto Raptors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6747195/2025/10/24/bucks-vs-raptors-stream-how-to-watch-oct-24/
-
-**How to watch Hawks vs. Magic: Time, TV, streaming**\
-`Find out how to watch the Atlanta Hawks play the Orlando Magic, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6747190/2025/10/24/hawks-vs-magic-stream-how-to-watch-oct-24/
 
