@@ -1,3 +1,15 @@
+**Man United complete signing of England youth goalkeeper from Derby**\
+`Charlie Hardy, 16, will go into the club’s academy system and under-18s side managed by Darren Fletcher.`\
+https://nytimes.com/athletic/6746460/2025/10/24/manchester-united-charlie-hardy-derby-signing/
+
+**With NBA mired in scandals, Adam Silver is in the spotlight. Can he meet the moment?**\
+`NBA commissioner Adam Silver will have to blend patience and justice while navigating between the two scandals facing his league. `\
+https://nytimes.com/athletic/6744732/2025/10/24/nba-adam-silver-gambling-scandal/
+
+**Sheffield Wednesday placed in administration, set for 12-point deduction**\
+`Wednesday will now fall to minus six points after 11 games of the Championship season.`\
+https://nytimes.com/athletic/6746323/2025/10/24/sheffield-wednesday-administration-chansiri/
+
 **Maresca raised training concerns with Guiu: ‘He changed and he got the chance’**\
 `The striker met with Maresca ahead of the Liverpool game on October 4 to ask why he was not getting any minutes.`\
 https://nytimes.com/athletic/6746440/2025/10/24/chelsea-marc-guiu-training/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6745668/2025/10/24/chicago-cubs-cade-horton-develop
 **Slot: Isak a doubt for Brentford, not worried about Salah's goalscoring**\
 `Isak was substituted at half-time during Liverpool’s 5-1 victory over Eintracht Frankfurt on Wednesday with a suspected groin complaint.`\
 https://nytimes.com/athletic/6742833/2025/10/24/alexander-isak-injury-liverpool-brentford/
-
-**The Flyers aren’t panicking about Matvei Michkov’s slow start. Here’s why**\
-`Michkov has two points in seven games this season, but the Flyers aren’t concerned about that.`\
-https://nytimes.com/athletic/6745117/2025/10/24/flyers-matvei-michkov-2025-26-season/
-
-**Trump Official Warns California Against Arresting Federal Agents**\
-`Deputy U.S. Attorney General Todd Blanche told top California leaders that they would be prosecuted if they arrested federal agents performing immigration raids.`\
-https://nytimes.com/2025/10/24/us/federal-ice-agents-arrests-california-pelosi.html
-
-**10 observations: Sidney Crosby, Ben Kindel lead Penguins to win over Panthers**\
-`Crosby, Kindel and Tristan Jarry led the way as the Penguins won their fourth straight game in a 5-3 decision over defending champ Florida. `\
-https://nytimes.com/athletic/6745211/2025/10/24/penguins-panthers-sidney-crosby-ben-kindel/
 
