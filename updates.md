@@ -1,3 +1,7 @@
+**Eberechi Eze on his love of chess and what he misses about Crystal Palace**\
+`Eberechi Eze returns to his former school to talk to pupils about chess and Sunday's game against Crystal Palace`\
+https://nytimes.com/athletic/6743316/2025/10/24/eberechi-eze-arsenal-crystal-palace-chess/
+
 **Crystal Palace's profligacy problem**\
 `Palace had 14 shots in their first home game in the main stages of a major European competition. One was on target — it is a recurring issue`\
 https://nytimes.com/athletic/6736593/2025/10/24/crystal-palace-profligacy-problem-oliver-glasner/
