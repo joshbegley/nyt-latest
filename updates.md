@@ -1,3 +1,7 @@
+**Crystal Palace's profligacy problem**\
+`Palace had 14 shots in their first home game in the main stages of a major European competition. One was on target — it is a recurring issue`\
+https://nytimes.com/athletic/6736593/2025/10/24/crystal-palace-profligacy-problem-oliver-glasner/
+
 **Stephen Colbert Tears Into the White House Demolition**\
 `The East Wing now “looks like a rotisserie chicken your dog got into,” Colbert said on Thursday.`\
 https://nytimes.com/2025/10/24/arts/television/stephen-colbert-east-wing-demolition.html

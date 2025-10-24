@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6745173/2025/10/24/big-five-europes-top-games-this-
 https://nytimes.com/2025/10/24/learning/word-of-the-day-sheaf.html
 
 **Crystal Palace's profligacy problem**\
-`Palace had 14 shots in their first home game in the main stages of a major European competition. One was on target - it is a recurring issue`\
+`Palace had 14 shots in their first home game in the main stages of a major European competition. One was on target — it is a recurring issue`\
 https://nytimes.com/athletic/6736593/2025/10/24/crystal-palace-profligacy-problem-oliver-glasner/
 
 **Nottingham Forest can 'finally breathe' again. This was the perfect start for Dyche**\
