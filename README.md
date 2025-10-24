@@ -1,3 +1,7 @@
+**Stephen Colbert Tears Into the White House Demolition**\
+`The East Wing now “looks like a rotisserie chicken your dog got into,” Colbert said on Thursday.`\
+https://nytimes.com/2025/10/24/arts/television/stephen-colbert-east-wing-demolition.html
+
 **Big Five: Europe's top games this weekend**\
 `The Athletic has hand-picked five of the most intriguing weekend fixtures from around Europe.`\
 https://nytimes.com/athletic/6745173/2025/10/24/big-five-europes-top-games-this-weekend-4/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/24/opinion/us-china-war-trump-xi.html
 **Plotting a Heist? This German Company Wants to Give You a Lift.**\
 `The brazen daylight robbery of the Louvre on Sunday has turned into a marketing opportunity for Böcker, a German maker of cranes and elevators whose product was used in the heist.`\
 https://nytimes.com/2025/10/24/world/europe/louvre-robbery-german-campaign-bocker.html
-
-**Spurs have added more specialists to their staff - and they're not done yet**\
-`Sporting director Fabio Paratici has said Spurs 'need more specialisation' among their backroom personnel - the process is well underway`\
-https://nytimes.com/athletic/6743728/2025/10/24/tottenham-staff-recruitment-medical/
 
