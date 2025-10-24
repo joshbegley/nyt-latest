@@ -18,7 +18,7 @@ https://nytimes.com/2025/10/24/world/europe/spain-picasso-missing.html
 `Sulawesi, Indonesia, blurs the boundaries between myth and ecology. What might it reveal about our past – or destiny?`\
 https://nytimes.com/interactive/2025/10/24/magazine/sulawesi-indonesia-earth-secrets-biodiversity.html
 
-**Canucks acquire forward Lukas Reichel in trade with Blackhawks**\
+**Canucks acquire Lukas Reichel in trade with Blackhawks**\
 `A 2020 first-round pick, Reichel going from Chicago to Vancouver is a classic change-of-scenery trade.`\
 https://nytimes.com/athletic/6747844/2025/10/24/canucks-trade-blackhawks-lukas-reichel/
 
