@@ -1,3 +1,11 @@
+**Sirikit, Thailand’s Former Queen, Is Dead at 93**\
+`As the glamorous wife of King Bhumibol Adulyadej, she supported local causes and traveled the world, charming government leaders and the public.`\
+https://nytimes.com/2025/10/24/world/asia/queen-sirikit-thailand-dead.html
+
+**Senior Border Patrol Official Throws Tear Gas at Chicago Residents**\
+`Gregory Bovino, a senior Border Patrol official, threw a tear gas canister at a large group of Chicago residents on Thursday. Tensions escalated after officials arrested a security guard in a mall parking lot.`\
+https://nytimes.com/video/us/politics/100000010479421/border-patrol-official-throws-tear-gas-chicago.html
+
 **D.C. Seeks to Block National Guard Deployment in Court**\
 `During a hearing on Friday, lawyers told a judge that National Guard troops sent from Republican-led states had been conducting conduct law enforcement work.`\
 https://nytimes.com/2025/10/24/us/politics/national-guard-dc-lawsuit.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/24/us/politics/election-deniers-trump-administration
 **Nebojsa Pavkovic, Yugoslav General Convicted of War Crimes, Dies at 79**\
 `Found guilty in 2009, he had been serving a 22-year sentence but was released for health reasons at the request of the Serbian government.`\
 https://nytimes.com/2025/10/24/world/europe/nebojsa-pavkovic-dead.html
-
-**Trump Ends Trade Talks with Canada After Anti-Tariff TV Ad Airs**\
-`An ad, bought by the province of Ontario, sent an anti-tariff message using sound bites from an address President Ronald Reagan made decades ago. President Trump claimed the ad was “fraud” and terminated trade talks with Canada.`\
-https://nytimes.com/video/us/politics/100000010479219/trump-canada-trade-talks.html
-
-**J. William Middendorf II, 81, Dies; Navy Secretary and Musical Diplomat**\
-`A G.O.P. fund-raiser, he was the Navy chief under Gerald R. Ford and held ambassadorships in the 1970s and ’80s. He gained notice for his classical music compositions.`\
-https://nytimes.com/2025/10/24/us/politics/j-william-middendorf-ii-dead.html
 
