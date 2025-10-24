@@ -1,5 +1,9 @@
+**Lengthy Execution by Nitrogen Gas in Alabama Renews Concerns Over Method**\
+`Anthony Boyd was the eighth person executed by nitrogen gas since Alabama began using the method last year. His execution came over the strenuous objection of three liberal Supreme Court justices.`\
+https://nytimes.com/2025/10/24/us/alabama-nitrogen-execution-anthony-boyd.html
+
 **Is it time to sell your Shohei Ohtani baseball cards?**\
-`Collectors are faced with a dilemma as Ohtani's cards rapidly rise in value`\
+`Collectors are faced with a dilemma as Ohtani's cards rapidly rise in value.`\
 https://nytimes.com/athletic/6747458/2025/10/24/shohei-ohtani-rookie-card-values/
 
 **Blue Jays confident in Bo Bichette's health, athleticism ahead of Game 1 start at second**\
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/6747376/2025/10/24/prop-bets-nba-gambling-scandal/
 **A Missing Picasso Is Found, and a Small Spanish Town Loses Its Air of Mystery**\
 `For a brief moment, the puzzle of what had happened to Pablo Picasso’s “Still Life With Guitar” infected Deifontes with caper fever.`\
 https://nytimes.com/2025/10/24/world/europe/spain-picasso-missing.html
-
-**The Island That Keeps the Earth’s Secrets**\
-`Sulawesi, Indonesia, blurs the boundaries between myth and ecology. What might it reveal about our past – or destiny?`\
-https://nytimes.com/interactive/2025/10/24/magazine/sulawesi-indonesia-earth-secrets-biodiversity.html
-
-**Canucks acquire Lukas Reichel in trade with Blackhawks**\
-`A 2020 first-round pick, Reichel going from Chicago to Vancouver is a classic change-of-scenery trade.`\
-https://nytimes.com/athletic/6747844/2025/10/24/canucks-trade-blackhawks-lukas-reichel/
 
