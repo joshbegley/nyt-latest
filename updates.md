@@ -1,3 +1,11 @@
+**Suspect in Palisades Fire Pleads Not Guilty to Setting Blaze**\
+`Prosecutors say Jonathan Rinderknecht deliberately set a fire in January that led to one of the most destructive blazes in California history. If convicted, he would face up to 45 years in prison.`\
+https://nytimes.com/2025/10/23/us/los-angeles-palisades-fire-suspect-arraigned-charges.html
+
+**Rangers' Matt Rempe injured after fighting Sharks' Ryan Reaves**\
+`The two NHL heavyweights exchanged blows in the first period, and Rempe left the penalty box early to go to the dressing room.`\
+https://nytimes.com/athletic/6745503/2025/10/23/rangers-matt-rempe-injury-fight-ryan-reaves/
+
 **The NBA once opposed legalized sports betting. Under Adam Silver, it has embraced it**\
 `In light of Thursday's federal indictments, we track the NBA’s evolving attitude on legalized sports betting under commissioner Adam Silver.`\
 https://nytimes.com/athletic/6745307/2025/10/23/nba-gambling-betting-timeline-adam-silver/
