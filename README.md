@@ -1,3 +1,7 @@
+**Pereira has 'no doubt' he can turn Wolves' season around**\
+`Wolves are bottom of the table with no wins from eight games and face 17th-placed Burnley at Molineux on Sunday.`\
+https://nytimes.com/athletic/6746902/2025/10/24/vitor-pereira-wolves-burnley/
+
 **NHL Power Rankings: Hurricanes leap to No. 1 and we've chosen Our Guys for each team**\
 `We're back with a new weekly ranking and we have a new set of our favorite players from each team.`\
 https://nytimes.com/athletic/6745958/2025/10/24/nhl-power-rankings-our-guys/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6742880/2025/10/24/raphinha-injury-latest-barcelona
 **Out with 'secret' scrimmages, in with exhibition 'Feast Week'? How preseason has changed**\
 `College basketball's preseason used to be closed-door scrimmages and exhibitions against DII opponents. Not anymore.`\
 https://nytimes.com/athletic/6746610/2025/10/24/college-basketball-preseason-exhibition-schedule/
-
-**Social Security Announces a 2.8% Cost-of-Living Increase for Beneficiaries**\
-`Recipients, including retirees and their spouses, as well as those who receive disability benefits and Supplemental Security Income, will see the additional benefit starting in January.`\
-https://nytimes.com/2025/10/24/business/social-security-cola-cost-of-living.html
 

@@ -1,3 +1,15 @@
+**NHL Power Rankings: Hurricanes leap to No. 1 and we've chosen Our Guys for each team**\
+`We're back with a new weekly ranking and we have a new set of our favorite players from each team.`\
+https://nytimes.com/athletic/6745958/2025/10/24/nhl-power-rankings-our-guys/
+
+**UConn-Louisville game in Germany moved because of government shutdown**\
+`The Huskies and Cardinals will play at the Naval Academy in Maryland instead of on an Air Force base overseas.`\
+https://nytimes.com/athletic/6746754/2025/10/24/armed-forces-classic-moved-out-of-germany-because-of-government-shutdown/
+
+**Shutdown Could Cancel Next Inflation Report**\
+`Since the shutdown began, the Bureau of Labor Statistics has not been gathering the new data it needs to produce future reports, since its staff is furloughed.`\
+https://nytimes.com/2025/10/24/business/inflation-cpi-report-october-shutdown.html
+
 **Gasoline prices drove up inflation in September but were down from a year ago.**\
 `Prices at the pump were up for the month but remained lower than they were the year before.`\
 https://nytimes.com/live/2025/10/24/business/cpi-inflation-tariffs-fed/gasoline-prices-drove-up-inflation-in-september-but-were-down-from-a-year-ago
