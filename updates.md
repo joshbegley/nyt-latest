@@ -1,3 +1,7 @@
+**Hampton out of England's Brazil friendly with elbow injury**\
+`The upcoming friendlies against Brazil and Australia are the national team's first since their European Championship win over the summer.`\
+https://nytimes.com/athletic/6746422/2025/10/24/hannah-hampton-england-injury/
+
 **TAFC: Is Messi's new deal good for everyone? Plus: Haaland's meat and 'raw milk' diet**\
 `Today in TAFC: A look at the impact of Lionel Messi's new Inter Miami contract. Plus: Could Hearts finally end the duopoly in Scotland?`\
 https://nytimes.com/athletic/6746303/2025/10/24/messi-inter-miami-contract-2028/

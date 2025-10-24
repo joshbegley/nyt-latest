@@ -1,3 +1,7 @@
+**Hampton out of England's Brazil friendly with elbow injury**\
+`The upcoming friendlies against Brazil and Australia are the national team's first since their European Championship win over the summer.`\
+https://nytimes.com/athletic/6746422/2025/10/24/hannah-hampton-england-injury/
+
 **TAFC: Is Messi's new deal good for everyone? Plus: Haaland's meat and 'raw milk' diet**\
 `Today in TAFC: A look at the impact of Lionel Messi's new Inter Miami contract. Plus: Could Hearts finally end the duopoly in Scotland?`\
 https://nytimes.com/athletic/6746303/2025/10/24/messi-inter-miami-contract-2028/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6745754/2025/10/24/an-nba-betting-scandal-erupts-pl
 **Among George Springer's siblings, competition is a family affair**\
 `"She kind of gets on my case a little bit more than I would like her to," George Springer said of his sister Lena after Game 7 of the ALCS.`\
 https://nytimes.com/athletic/6745862/2025/10/24/george-springer-blue-jays-world-series-family/
-
-**Dillon Gabriel doesn't care what you think. He wants to prove himself (and the Browns) right**\
-`Gabriel isn't yet a star or an established answer for Cleveland. He is, however, fully committed to his craft and what it takes to be great.`\
-https://nytimes.com/athletic/6741193/2025/10/24/browns-quarterback-dillon-gabriel-career/
 
