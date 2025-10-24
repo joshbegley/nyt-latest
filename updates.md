@@ -1,3 +1,15 @@
+**The U.S. Is Deploying an Aircraft Carrier to Latin America**\
+`Also, the World Series begins. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/10/24/briefing/us-aircraft-carrier-world-series.html
+
+**Vikings QB J.J. McCarthy in line to start Week 9 vs. Lions**\
+`McCarthy, the Vikings' second-year QB, has missed the past five games with a high ankle sprain.`\
+https://nytimes.com/athletic/6747938/2025/10/24/vikings-jj-mccarthy-injury-return-lions/
+
+**USMNT’s Aaronson scores first PL goal in more than three years in Leeds win**\
+`The 25-year-old's last top flight goal came against Chelsea — then managed by current England head coach Thomas Tuchel — in August 2022.`\
+https://nytimes.com/athletic/6747999/2025/10/24/usmnt-brenden-aaronson-leeds-goal/
+
 **Sonia Raman agrees to deal to become Seattle Storm's head coach: Sources**\
 `Raman, who replaces Noelle Quinn, will be tasked with stewarding the development of 2025 No. 2 pick Dominique Malonga, a rising star.`\
 https://nytimes.com/athletic/6747951/2025/10/24/sonia-raman-coach-seattle-storm-wnba/

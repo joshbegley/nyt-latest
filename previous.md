@@ -1,3 +1,15 @@
+**The U.S. Is Deploying an Aircraft Carrier to Latin America**\
+`Also, the World Series begins. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/10/24/briefing/us-aircraft-carrier-world-series.html
+
+**Vikings QB J.J. McCarthy in line to start Week 9 vs. Lions**\
+`McCarthy, the Vikings' second-year QB, has missed the past five games with a high ankle sprain.`\
+https://nytimes.com/athletic/6747938/2025/10/24/vikings-jj-mccarthy-injury-return-lions/
+
+**USMNT’s Aaronson scores first PL goal in more than three years in Leeds win**\
+`The 25-year-old's last top flight goal came against Chelsea — then managed by current England head coach Thomas Tuchel — in August 2022.`\
+https://nytimes.com/athletic/6747999/2025/10/24/usmnt-brenden-aaronson-leeds-goal/
+
 **U.S. Sanctions Colombia’s Leader, One of President Trump’s Harshest Critics**\
 `The United States Treasury Department accused President Gustavo Petro of allowing drug trafficking to flourish.`\
 https://nytimes.com/2025/10/24/world/americas/us-sanctions-colombia-president-petro-drugs.html
@@ -25,12 +37,4 @@ https://nytimes.com/athletic/6747922/2025/10/24/aaron-rodgers-steelers-packers-f
 **Nights Out With Malala, Making Time to Be Herself**\
 `Basketball and Dua Lipa are on the schedule during a New York jaunt with the Nobel laureate, whose intimate memoir finds her juggling activism and married life.`\
 https://nytimes.com/2025/10/24/books/review/malala-yousafzai-memoir-finding-my-way.html
-
-**Lengthy Execution by Nitrogen Gas in Alabama Renews Concerns Over Method**\
-`Anthony Boyd was the eighth person executed by nitrogen gas since Alabama began using the method last year. His execution came over the strenuous objection of three liberal Supreme Court justices.`\
-https://nytimes.com/2025/10/24/us/alabama-nitrogen-execution-anthony-boyd.html
-
-**Is it time to sell your Shohei Ohtani baseball cards?**\
-`Collectors are faced with a dilemma as Ohtani's cards rapidly rise in value.`\
-https://nytimes.com/athletic/6747458/2025/10/24/shohei-ohtani-rookie-card-values/
 
