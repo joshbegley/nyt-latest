@@ -1,3 +1,11 @@
+**British Drug Dealer Is Sentenced for Pro-Russian Attack Plots**\
+`Dylan Earl recruited people to set fire to two London warehouses containing aid bound for Ukraine, the police said. He was also convicted of plotting against a dissident Russian restaurant owner.`\
+https://nytimes.com/2025/10/24/world/europe/britain-sentence-pro-russian-plots.html
+
+**In a First for a Woman in France, Life Sentence Imposed for Murder of Schoolgirl**\
+`Dahbia Benkired, an Algerian woman, was convicted of raping and killing 12-year-old Lola Daviet, in a case that outraged France and raised questions about the deportation of migrants.`\
+https://nytimes.com/2025/10/24/world/europe/life-sentence-french-girl-murder.html
+
 **Trump Officials Float New Plan for Abrego Garcia: Send Him to Liberia**\
 `The proposal was the latest twist in a byzantine saga that has transformed the Salvadoran migrant into one of the best-known symbols of President Trump’s aggressive deportation agenda.`\
 https://nytimes.com/2025/10/24/us/politics/trump-abrego-garcia-liberia.html
@@ -25,16 +33,4 @@ https://nytimes.com/video/dining/100000010479187/maraq-digaag-spiced-chicken-sou
 **Tinned Fish Hand Rolls**\
 `With tinned fish, tender rice and mixed vegetables, these meal-worthy hand rolls are all at once rich, fresh, crunchy and tender.`\
 https://nytimes.com/video/dining/100000010479173/tinned-fish-hand-rolls.html
-
-**Submit your questions for Jeremy Rutherford’s St. Louis Blues mailbag**\
-`Have a question about the Blues? Submit it here and The Athletic’s Jeremy Rutherford will address a selection in his upcoming mailbag.`\
-https://nytimes.com/athletic/6747553/2025/10/24/blues-mailbag-jeremy-rutherford-october-2025/
-
-**USMNT won't stage January camp ahead of the 2026 World Cup. Here's why.**\
-`The yearly exercise that almost exclusively features domestic-based players won't take place this winter, The Athletic has learned`\
-https://nytimes.com/athletic/6740330/2025/10/24/usmnt-january-camp-2026-mls-world-cup-pochettino/
-
-**Fed Prepares Bank-Friendly Changes to Annual Stress Tests**\
-`The Federal Reserve Board is poised to start releasing in advance models it uses to test the biggest banks’ readiness to withstand economic shocks.`\
-https://nytimes.com/2025/10/24/business/federal-reserve-banks-stress-tests.html
 
