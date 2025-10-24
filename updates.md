@@ -1,3 +1,11 @@
+**How Lunar Photography Brought the Heavens Down to Earth**\
+`No explorers ever traveled farther from home than the Apollo astronauts. As artists, they’re still underrated.`\
+https://nytimes.com/interactive/2025/10/24/arts/moon-photos-apollo-nasa.html
+
+**College football Week 9 projected scores: Model predicts every FBS vs. FBS game**\
+`Austin Mock's model projects the point differentials and point totals for every FBS vs. FBS college football game in Week 9.`\
+https://nytimes.com/athletic/6747543/2025/10/24/college-football-week-9-projected-scores-model/
+
 **Texas Cheat ’Em? U.S. Details How Mob Lured High Rollers Into Poker Trap**\
 `A Manhattan apartment was at the center of a Mafia-run ring that used former N.B.A. players as bait and technology to read cards, prosecutors say.`\
 https://nytimes.com/2025/10/24/nyregion/nba-mafia-rigged-poker-games.html

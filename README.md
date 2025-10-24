@@ -1,3 +1,7 @@
+**Federal Surge Called Off Across the Bay Area, Officials Confirm**\
+`President Trump had said on Thursday that he called off the deployment in San Francisco. Two federal officials said on Friday that the action applied across the region.`\
+https://nytimes.com/2025/10/24/us/bay-area-san-francisco-trump-immigration.html
+
 **How Lunar Photography Brought the Heavens Down to Earth**\
 `No explorers ever traveled farther from home than the Apollo astronauts. As artists, they’re still underrated.`\
 https://nytimes.com/interactive/2025/10/24/arts/moon-photos-apollo-nasa.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/10/24/world/europe/britain-sentence-pro-russian-plots.h
 **In a First for a Woman in France, Life Sentence Imposed for Murder of Schoolgirl**\
 `Dahbia Benkired, an Algerian woman, was convicted of raping and killing 12-year-old Lola Daviet, in a case that outraged France and raised questions about the deportation of migrants.`\
 https://nytimes.com/2025/10/24/world/europe/life-sentence-french-girl-murder.html
-
-**Trump Officials Float New Plan for Abrego Garcia: Send Him to Liberia**\
-`The proposal was the latest twist in a byzantine saga that has transformed the Salvadoran migrant into one of the best-known symbols of President Trump’s aggressive deportation agenda.`\
-https://nytimes.com/2025/10/24/us/politics/trump-abrego-garcia-liberia.html
 
