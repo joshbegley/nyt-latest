@@ -1,3 +1,11 @@
+**The Prospects: Reigan Heskey, England Under-17 and Manchester City**\
+`The son of former Liverpool striker Emile Heskey will be one of the key England players at the Under-17 World Cup in Qatar next month`\
+https://nytimes.com/athletic/6736871/2025/10/24/heskey-man-city-england-world-cup-under-17/
+
+**El Clasico's English stars: Will Bellingham, Rashford, Alexander-Arnold all play?**\
+`All three could feature in Sunday's La Liga match, the season's first meeting between the bitter rivals`\
+https://nytimes.com/athletic/6743233/2025/10/24/barcelona-real-madrid-clasico-bellingham-rashford-trent/
+
 **With Power Move on Rare Earths, China Plays Both Victim and Bully**\
 `In weaponizing its dominance over the crucial minerals, Beijing is using tactics that it once denounced, potentially alienating nations it wants to court.`\
 https://nytimes.com/2025/10/24/world/asia/china-trade-trump.html
