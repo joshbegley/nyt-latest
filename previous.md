@@ -1,3 +1,15 @@
+**Lionel Messi is still remarkable - these stats, visuals and data prove it**\
+`Lionel Messi signed a new contract with Inter Miami on Thursday. Even at 38, he shows no signs of slowing down`\
+https://nytimes.com/athletic/6746855/2025/10/24/lionel-messi-inter-miami-analysis-new-contract/
+
+**A Paris Art Event So Exclusive That Breaking Into the Louvre Might Be Easier**\
+`A “pre-preview” of Art Basel Paris this week drew some of the world’s wealthiest art collectors. Dealers were hoping to shed some of the recent gloom that the art market has faced.`\
+https://nytimes.com/2025/10/24/arts/design/art-basel-paris.html
+
+**NBA trends I'm watching: Ja Morant's new partner, Bennedict Mathurin's drives and more**\
+`Here are some of the things that caught Fred Katz's eye in the first week of the NBA regular season.`\
+https://nytimes.com/athletic/6746781/2025/10/24/ja-morant-bennedict-mathurin-nba-trends/
+
 **How does gambling on NHL games work? Is the league susceptible to a scandal?**\
 `Bettors have several ways to wager on the NHL, which is very secretive about players' injuries.`\
 https://nytimes.com/athletic/6745276/2025/10/24/nhl-gambling-betting-nba/
@@ -25,12 +37,4 @@ https://nytimes.com/athletic/6747010/2025/10/24/world-series-dodgers-blue-jays-t
 **The Bounce: Key points to the NBA gambling scandal. Plus, Steph and SGA go off**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6746848/2025/10/24/the-bounce-nba-gambling-scandal-steph-curry-shai-gilgeous-alexander/
-
-**Bournemouth's Evanilson to miss Forest match, could return for Man City**\
-`Iraola added that Enes Unal, who has been out since January with an anterior cruciate ligament tear, is "training fully".`\
-https://nytimes.com/athletic/6746950/2025/10/24/evanilson-injury-bournemouth-forest-kroupi/
-
-**Quiet Night in N.B.A. Yields Two High-Scoring Overtime Games**\
-`It was a wild night that included the Oklahoma City Thunder star Shai Gilgeous-Alexander leading his team to victory with a career-high 55 points.`\
-https://nytimes.com/video/the-athletic/100000010479078/quiet-night-in-nba-yields-two-high-scoring-overtime-games.html
 
