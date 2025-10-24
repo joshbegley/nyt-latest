@@ -1,3 +1,15 @@
+**U.S. Flies Drones Over Gaza to Monitor Cease-Fire, Officials Say**\
+`The surveillance missions are part of a U.S.-led international effort to ensure the fragile cease-fire between Israel and Hamas holds.`\
+https://nytimes.com/2025/10/24/world/middleeast/us-flies-drones-over-gaza-ceasefire.html
+
+**Scotty Bowman, misunderstood genius, enters Penguins' Hall of Fame with love from his players**\
+`The Penguins of that era wish to dispel any rumors about their alleged dislike for Hall of Fame coach Scotty Bowman. `\
+https://nytimes.com/athletic/6747306/2025/10/24/penguins-scotty-bowman-hate-rumor-nhl/
+
+**Brian Daboll, Cam Skattebo, Giants fined for violating NFL's concussion protocol**\
+`The Giants were fined $200,000, while Daboll was fined $100,000 and Skattebo $15,000 for "conduct detrimental to the league."`\
+https://nytimes.com/athletic/6713852/2025/10/24/giants-fined-brian-daboll-cam-skattebo-concussion-protocol/
+
 **City Guides**\
 ``\
 https://nytimes.com/spotlight/city-guides
