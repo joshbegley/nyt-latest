@@ -1,3 +1,23 @@
+**NBA scandals overshadow greatness on the court, and that's the real travesty**\
+`The Warriors and Nuggets played an early season classic on Thursday, but all anybody could talk about was the integrity of the league.`\
+https://nytimes.com/athletic/6746215/2025/10/24/nba-gambling-warriors-nuggets-column/
+
+**U.S. Diplomats Will Work With Troops to Maintain Gaza Cease-Fire, Rubio Says**\
+`Secretary of State Marco Rubio said during a visit to Israel that the State Department would increase its presence at a center set up to monitor the peace deal.`\
+https://nytimes.com/2025/10/24/world/middleeast/gaza-ceasefire-israel-hamas-rubio-us.html
+
+**What to expect from the 2025 World Series broadcast: Announcers, schedule and more**\
+`Here's what viewers need to know about the upcoming World Series coverage on Fox (and Sportsnet, if you live in Canada).`\
+https://nytimes.com/athletic/6741930/2025/10/24/mlb-world-series-dodgers-blue-jays-fox-schedule-how-to-watch/
+
+**Data showing a resilient economy largely reflect spending by the rich.**\
+`By Ben Casselman and Colby Smith`\
+https://nytimes.com/live/2025/10/24/business/cpi-inflation-tariffs-fed/data-showing-a-resilient-economy-largely-reflect-spending-by-the-rich
+
+**Cowboys LB DeMarvion Overshown says he's stronger, faster, more explosive since knee injury**\
+`"The sky's the limit for me," said Overshown, who has a target return date of Week 11 against the Raiders on Monday night.`\
+https://nytimes.com/athletic/6745389/2025/10/24/cowboys-demarvion-overshown-injury-update-return/
+
 **Aaron Rodgers' ex-Packers teammates dish on Steelers QB: 'I always appreciate him'**\
 `For the first time, Rodgers will face the team he was with for 18 seasons on Sunday night, when the Packers visit the Steelers.`\
 https://nytimes.com/athletic/6745502/2025/10/24/aaron-rodgers-packers-teammates-jordan-love/
