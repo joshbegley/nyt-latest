@@ -1,3 +1,11 @@
+**South Korea Tries to Curb Anti-China Protests Ahead of Xi Visit**\
+`The recent surge in demonstrations by far-right groups presents a challenge for the South Korean government, as it prepares to host both Xi Jinping, the leader of China, and President Trump.`\
+https://nytimes.com/2025/10/24/world/asia/south-korea-china-protests.html
+
+**Aaron Gordon's career-high 50 points can't save Nuggets**\
+`"They're asking if I wanted the game ball, and no, I don't want the game ball," Gordon said after a 137-131 overtime loss to the Warriors.`\
+https://nytimes.com/athletic/6746187/2025/10/24/nuggets-warriors-aaron-gordon-50-points/
+
 **We Asked Mamdani, Cuomo and Sliwa 10 Questions. Here’s What They Said.**\
 `We interviewed the leading candidates for New York City mayor about their experience, their plans for the city and their favorite subway seat.`\
 https://nytimes.com/2025/10/24/nyregion/mamdani-cuomo-sliwa-10-questions.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/24/nyregion/electric-citi-bike-speeds-new-york-city.
 **There Are 6 Ballot Measures In New York City. Here’s an Overview.**\
 `Voters will have a chance to weigh in on ballot questions concerning the housing crisis and when local elections should be held.`\
 https://nytimes.com/2025/10/24/nyregion/nyc-ballot-measures-proposals.html
-
-**Eberechi Eze on his love of chess and what he misses about Crystal Palace**\
-`Eberechi Eze returns to his former school to talk to pupils about chess and Sunday's game against Crystal Palace`\
-https://nytimes.com/athletic/6743316/2025/10/24/eberechi-eze-arsenal-crystal-palace-chess/
-
-**Stephen Colbert Tears Into the White House Demolition**\
-`The East Wing now “looks like a rotisserie chicken your dog got into,” Colbert said on Thursday.`\
-https://nytimes.com/2025/10/24/arts/television/stephen-colbert-east-wing-demolition.html
 

@@ -1,3 +1,11 @@
+**South Korea Tries to Curb Anti-China Protests Ahead of Xi Visit**\
+`The recent surge in demonstrations by far-right groups presents a challenge for the South Korean government, as it prepares to host both Xi Jinping, the leader of China, and President Trump.`\
+https://nytimes.com/2025/10/24/world/asia/south-korea-china-protests.html
+
+**Aaron Gordon's career-high 50 points can't save Nuggets**\
+`"They're asking if I wanted the game ball, and no, I don't want the game ball," Gordon said after a 137-131 overtime loss to the Warriors.`\
+https://nytimes.com/athletic/6746187/2025/10/24/nuggets-warriors-aaron-gordon-50-points/
+
 **We Asked Mamdani, Cuomo and Sliwa 10 Questions. Here’s What They Said.**\
 `We interviewed the leading candidates for New York City mayor about their experience, their plans for the city and their favorite subway seat.`\
 https://nytimes.com/2025/10/24/nyregion/mamdani-cuomo-sliwa-10-questions.html
