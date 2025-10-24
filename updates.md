@@ -1,3 +1,11 @@
+**Tensions Mount as Agents, Including Gregory Bovino, Clash With Chicagoans**\
+`Mr. Bovino, a Border Patrol leader, appeared to use tear gas during a confrontation with residents on Thursday. Plaintiffs in a suit over federal tactics say that violated a court order.`\
+https://nytimes.com/2025/10/23/us/politics/gregory-bovino-chicago-immigration.html
+
+**Target to Cut 1,800 Corporate Jobs in Efficiency Drive**\
+`The retail chain’s incoming chief executive, who will take over in February, cited “too many layers and overlapping work” in a memo.`\
+https://nytimes.com/2025/10/23/business/target-job-cuts.html
+
 **USWNT celebrates Alex Morgan's 'legendary' career**\
 `In many ways, Morgan’s entire career was spent preparing to pass that torch for future generations.`\
 https://nytimes.com/athletic/6744327/2025/10/23/alex-morgan-uswnt-celebration/

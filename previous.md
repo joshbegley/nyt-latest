@@ -1,3 +1,11 @@
+**Tensions Mount as Agents, Including Gregory Bovino, Clash With Chicagoans**\
+`Mr. Bovino, a Border Patrol leader, appeared to use tear gas during a confrontation with residents on Thursday. Plaintiffs in a suit over federal tactics say that violated a court order.`\
+https://nytimes.com/2025/10/23/us/politics/gregory-bovino-chicago-immigration.html
+
+**Target to Cut 1,800 Corporate Jobs in Efficiency Drive**\
+`The retail chain’s incoming chief executive, who will take over in February, cited “too many layers and overlapping work” in a memo.`\
+https://nytimes.com/2025/10/23/business/target-job-cuts.html
+
 **USWNT celebrates Alex Morgan's 'legendary' career**\
 `In many ways, Morgan’s entire career was spent preparing to pass that torch for future generations.`\
 https://nytimes.com/athletic/6744327/2025/10/23/alex-morgan-uswnt-celebration/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/23/us/politics/us-b1-bombers-venezuela.html
 **From Truman to Trump: A Tale of Two White House Renovations**\
 `President Harry S. Truman consulted Congress, architects and a fine arts commission on everything from construction plans to fabric samples. President Trump is taking a different approach.`\
 https://nytimes.com/2025/10/23/us/politics/white-house-renovations-trump-ballroom.html
-
-**Meta Layoffs Included Employees Who Monitored Risks to User Privacy**\
-`While the company announced job cuts in artificial intelligence, it also expanded plans to replace privacy and risk auditors with more automated systems.`\
-https://nytimes.com/2025/10/23/technology/meta-layoffs-user-privacy.html
-
-**Musk Attacks NASA Leader Over Threat to Reconsider Lunar Contract**\
-`The billionaire’s swipes at Sean Duffy are the latest example of his tangling with members of the Trump administration.`\
-https://nytimes.com/2025/10/23/us/politics/elon-musk-duffy-nasa.html
 
