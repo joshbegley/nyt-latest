@@ -1,3 +1,7 @@
+**Plotting a Heist? This German Company Wants to Give You a Lift**\
+`The brazen daylight robbery of the Louvre on Sunday has turned into a marketing opportunity for Böcker, a German maker of cranes and elevators whose product was used in the heist.`\
+https://nytimes.com/2025/10/24/world/europe/louvre-robbery-german-campaign-bocker.html
+
 **Spurs have added more specialists to their staff - and they're not done yet**\
 `Sporting director Fabio Paratici has said Spurs 'need more specialisation' among their backroom personnel - the process is well underway`\
 https://nytimes.com/athletic/6743728/2025/10/24/tottenham-staff-recruitment-medical/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6739488/2025/10/24/arsenals-premier-league-scorers/
 **Handle with care: Why Slot is facing a daunting challenge with Salah**\
 `Liverpool's head coach must navigate a treacherous path as he tries to keep everyone happy at Anfield`\
 https://nytimes.com/athletic/6743103/2025/10/24/arne-slot-mohamed-salah-liverpool/
-
-**Premier League predictions: Man United vs Brighton, Arsenal vs Crystal Palace and the rest of Matchday 9**\
-`Who's leading after Matchday 8? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 9?`\
-https://nytimes.com/athletic/6742706/2025/10/24/premier-league-predictions-md9/
 
