@@ -1,3 +1,11 @@
+**Thunder edge Pacers in double OT in NBA Finals rematch**\
+`The Pacers, playing without Tyrese Haliburton, could not overcome Gilgeous-Alexander, the 2025 regular-season and NBA Finals MVP.`\
+https://nytimes.com/athletic/6745815/2025/10/23/shai-gilgeous-alexander-drops-55-as-thunder-edge-pacers-in-double-ot-in-nba-finals-rematch/
+
+**Avalanche, Hurricanes turn back the clock with Nordiques, Whalers throwback jerseys**\
+`The Nordiques and Whalers were members of the NHL's Adams Division between 1981 and 1995.`\
+https://nytimes.com/athletic/6745755/2025/10/23/avalanche-hurricanes-nordiques-whalers-throwback-jerseys/
+
 **Avalanche, Hurricanes turn back the clock by wearing Nordiques, Whalers throwback jerseys**\
 `The Nordiques and Whalers were both members of the NHL's Adams Division between 1981 and 1995.`\
 https://nytimes.com/athletic/6745755/2025/10/23/avalanche-hurricanes-nordiques-whalers-throwback-jerseys/
