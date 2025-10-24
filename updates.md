@@ -1,3 +1,7 @@
+**USMNT won't stage January camp in 2026, ahead of the World Cup. Here's why.**\
+`The yearly exercise that almost exclusively features domestic-based players won't take place this winter, The Athletic has learned`\
+https://nytimes.com/athletic/6740330/2025/10/24/usmnt-january-camp-2026-mls-world-cup-pochettino/
+
 **Fed Prepares Bank-Friendly Changes to Annual Stress Tests**\
 `The Federal Reserve Board is poised to start releasing in advance models it uses to test the biggest banks’ readiness to withstand economic shocks.`\
 https://nytimes.com/2025/10/24/business/federal-reserve-banks-stress-tests.html
