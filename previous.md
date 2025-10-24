@@ -1,40 +1,40 @@
-**Wemby's masterpiece leads to surge in NBA MVP odds after just one game**\
-`Victor Wembanyama surged up the MVP odds board with his massive season debut on Wednesday.`\
-https://nytimes.com/athletic/6744049/2025/10/24/victor-wembanyama-nba-mvp-odds/
+**Inside the tight friendship of 3 NFL general managers**\
+`“We’re best of friends but uber-competitive and want to win at everything,” Schoen said of Morgan and Beane.`\
+https://nytimes.com/athletic/6745157/2025/10/24/dan-morgan-brandon-beane-joe-schoen-bills-panthers-general-managers-friends/
 
-**Who Were the Palestinian Prisoners Freed by Israel?**\
-`Under the cease-fire deal, Israel released 250 Palestinians serving long sentences for violent attacks. More than 1,700 others had been detained in Gaza and held without charge.`\
-https://nytimes.com/2025/10/24/world/middleeast/israel-palestinian-prisoners-freed.html
+**AD Mitchell hopes to regain Colts' trust: 'I hope I haven't played my last offensive snap'**\
+`Colts head coach Shane Steichen said Mitchell has "been in the right mindset" since the Week 4 gaffe vs. the Rams.`\
+https://nytimes.com/athletic/6745446/2025/10/24/ad-mitchell-colts-titans-fumble/
 
-**Olivia Dean Adds Love to the Mix**\
-`The chart-topping British singer’s music defies genres, because she’s more interested in feelings than styles.`\
-https://nytimes.com/2025/10/24/arts/music/olivia-dean.html
+**Canadiens should find plenty of wins in Oilers loss**\
+`From a five-on-five, a game management, and a consistency perspective, the Canadiens can look at a loss to the Oilers as a building block.`\
+https://nytimes.com/athletic/6746058/2025/10/24/canadiens-loss-oilers-growth/
 
-**Benitez appointed Panathinaikos head coach**\
-`Benitez returns to management after being sacked by Celta Vigo in March 2024, where he won just five of 28 games in charge.`\
-https://nytimes.com/athletic/6744689/2025/10/24/rafa-benitez-panathinaikos-manager/
+**‘A game of Whac-A-Mole’: What went wrong in the USWNT's worst performance under Hayes?**\
+`For the first time in her 17 months in charge, Hayes watched her players try to solve problems as individuals rather than as a collective.`\
+https://nytimes.com/athletic/6745927/2025/10/24/united-states-women-portugal-hayes/
 
-**Federal Workers Have Started Missing Paychecks During the Shutdown**\
-`Thousands missed their first paychecks this week, with no end in sight to the government shutdown that began on Oct. 1.`\
-https://nytimes.com/2025/10/24/us/politics/federal-workers-missing-paychecks-shutdown.html
+**Who is Tiago Splitter? Meet the Trail Blazers' interim head coach**\
+`The former NBA champion with the Spurs takes over for Chauncey Billups, who was indicted after a gambling investigation.`\
+https://nytimes.com/athletic/6745994/2025/10/24/tiago-splitter-trail-blazers/
 
-**His former QBs benched and bashed, Arthur Smith coordinates Aaron Rodgers' bounceback**\
-`The Steelers' second-year offensive coordinator is finding success with yet another very different quarterback.`\
-https://nytimes.com/athletic/6745263/2025/10/24/arthur-smith-pittsburgh-steelers-offensive-coordinator/
+**Vikings unravel against Chargers, raising hard questions about the team’s connectivity**\
+`Calling Thursday night’s 37-10 loss to the Chargers an obliteration does not quite do the showing justice.`\
+https://nytimes.com/athletic/6746190/2025/10/24/vikings-chargers-tnf-questions/
 
-**The New York Times International Edition in Print for Saturday, Oct. 25, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/10/24/todays-new-york-times-international-edition
+**After dismal first period, Rangers suffer most concerning loss of the season**\
+`Thursday's game was straight out of the Rangers' 2024-25 playbook: poor defensive play, lulls in urgency and a result reflecting both.`\
+https://nytimes.com/athletic/6745909/2025/10/24/rangers-sharks-concerning-loss-first-period/
 
-**Vladimir Guerrero Jr. and the Blue Jays are swinging harder — and hitting better**\
-`Swinging harder does not always mean more success, but it does when hitters do it the right way. Guerrero and the Jays are getting it right.`\
-https://nytimes.com/athletic/6744356/2025/10/24/blue-jays-vladimir-guerrero-jr-bat-speed/
+**NHL rumblings: Frustrated Flames exploring trade market, teams calling on Yegor Chinakhov, more**\
+`Off to a 1-6-1 start and flailing offensively, the Flames will likely become sellers unless they get going soon.`\
+https://nytimes.com/athletic/6744962/2025/10/24/nhl-trade-rumblings-flames-chinakhov/
 
-**2025 World Series MVP odds: History says Shohei Ohtani is not a lock to win**\
-`Shohei Ohtani is favored to win World Series MVP, which is no surprise, but history says he probably won't win it.`\
-https://nytimes.com/athletic/6743939/2025/10/24/world-series-mvp-odds-shohei-ohtani/
+**'It's just embarrassing': More moral victories for Bruins after sixth straight loss**\
+`The Bruins scored five goals against the Ducks. That wasn't enough to earn a badly needed victory.`\
+https://nytimes.com/athletic/6745868/2025/10/24/bruins-moral-victory-sturm-ducks/
 
-**Next week’s waiver wire: Xavier Legette and more players to add — before the Week 9 rush**\
-`John Laghezza helps you beat the rush by projecting Week 9's waiver-wire targets. His advice — add Xavier Legette now. `\
-https://nytimes.com/athletic/6742934/2025/10/24/next-weeks-waiver-wire-week-9-xavier-legette/
+**Red Bull ends to ‘silly games’ with McLaren after grid tape removal attempts**\
+`Red Bull's team boss tells The Athletic "silly games" that "got out of hand" with McLaren in removing Lando Norris grid spot tape are over`\
+https://nytimes.com/athletic/6746249/2025/10/24/red-bull-f1-grid-tape-2025-mexican-gp/
 
