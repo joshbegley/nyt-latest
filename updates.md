@@ -1,3 +1,7 @@
+**Nights Out With Malala, Making Time to Be Herself**\
+`Basketball and Dua Lipa are on the schedule during a New York jaunt with the Nobel laureate, whose intimate memoir finds her juggling activism and married life.`\
+https://nytimes.com/2025/10/24/books/review/malala-yousafzai-memoir-finding-my-way.html
+
 **Lengthy Execution by Nitrogen Gas in Alabama Renews Concerns Over Method**\
 `Anthony Boyd was the eighth person executed by nitrogen gas since Alabama began using the method last year. His execution came over the strenuous objection of three liberal Supreme Court justices.`\
 https://nytimes.com/2025/10/24/us/alabama-nitrogen-execution-anthony-boyd.html
