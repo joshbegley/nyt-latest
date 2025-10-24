@@ -1,3 +1,15 @@
+**TAFC: Is Messi's new deal good for everyone? Plus: Haaland's meat and 'raw milk' diet**\
+`Today in TAFC: A look at the impact of Lionel Messi's new Inter Miami contract. Plus: Could Hearts finally end the duopoly in Scotland?`\
+https://nytimes.com/athletic/6746303/2025/10/24/messi-inter-miami-contract-2028/
+
+**On a Roll, European Leaders Meet to Bolster Support for Ukraine**\
+`Britain, the host, is framing a meeting of the “coalition of the willing” as an effort to fortify Kyiv for the winter fighting months.`\
+https://nytimes.com/2025/10/24/world/europe/coalition-of-the-willing-zelensky-uk.html
+
+**Elena Rybakina qualifies for WTA Tour Finals, overtaking Mirra Andreeva with late-season surge**\
+`Rybakina's six wins in a row have propelled her past Andreeva with just one week of tournaments left in the season.`\
+https://nytimes.com/athletic/6746319/2025/10/24/wta-tour-finals-players-qualified-2025/
+
 **Man United complete signing of England youth goalkeeper from Derby**\
 `Charlie Hardy, 16, will go into the club’s academy system and under-18s side managed by Darren Fletcher.`\
 https://nytimes.com/athletic/6746460/2025/10/24/manchester-united-charlie-hardy-derby-signing/
