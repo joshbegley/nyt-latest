@@ -1,40 +1,40 @@
-**'There's gonna be hiccups': NBA coaches, player react to NBA betting investigation**\
-`"Our players are well aware, all players are well aware, of what they're allowed to do, what they're not allowed to do," Steve Kerr said.`\
-https://nytimes.com/athletic/6745819/2025/10/23/nba-coaches-players-react-to-betting-scandal/
+**With Power Move on Rare Earths, China Plays Both Victim and Bully**\
+`In weaponizing its dominance over the crucial minerals, Beijing is using tactics that it once denounced, potentially alienating nations it wants to court.`\
+https://nytimes.com/2025/10/24/world/asia/china-trade-trump.html
 
-**Chargers-Vikings takeaways: Justin Herbert dominates, Carson Wentz not so much**\
-`Herbert threw three touchdown passes to lead the Chargers to a 37-10 rout of the Vikings on Thursday night.`\
-https://nytimes.com/athletic/6745428/2025/10/23/chargers-vikings-takeaways-nfl/
+**Reece James, Romeo Lavia and Chelsea's different approach to managing comebacks**\
+`Chelsea beat Ajax with a heavily-rotated side on Wednesday night - it is all part of the club's plans to limit injury absences`\
+https://nytimes.com/athletic/6743608/2025/10/24/reece-james-romeo-lavia-and-how-chelsea-are-taking-a-different-approach-to-managing-players/
 
-**Map: Minor Earthquake Strikes Southern California**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/10/23/us/earthquake-california-minor.html
+**Connections: Sports Edition hints for Oct. 24, 2025, puzzle No. 396**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6745863/2025/10/24/connections-sports-edition-hints-for-oct-24-2025/
 
-**Trump Says He’s Cutting Off Trade Negotiations With Canada**\
-`The president said his move, which again throws relations with one of the United States’ closest trading partners into turmoil, was motivated by an advertisement he deemed fraudulent.`\
-https://nytimes.com/2025/10/23/us/politics/trump-trade-negotiation-canada.html
+**At a Brooklyn Funeral, an Uncle’s Memory Sparked a New Love**\
+`Gianina Thompson went to the funeral to mourn her uncle. Esteban Casanova went to pay his respects. Somewhere between grief and celebration, they found each other and have been together ever since.`\
+https://nytimes.com/2025/10/24/style/gianina-thompson-esteban-casanova-wedding.html
 
-**Thunder edge Pacers in double OT in NBA Finals rematch**\
-`The Pacers, playing without Tyrese Haliburton, could not overcome Gilgeous-Alexander, the 2025 regular-season and NBA Finals MVP.`\
-https://nytimes.com/athletic/6745815/2025/10/23/shai-gilgeous-alexander-thunder-pacers-highlights/
+**Corrections: Oct. 24, 2025**\
+`Corrections that appeared in print on Friday, Oct. 24, 2025.`\
+https://nytimes.com/2025/10/24/pageoneplus/corrections-oct-24-2025.html
 
-**Avalanche, Hurricanes turn back the clock with Nordiques, Whalers throwback jerseys**\
-`The Nordiques and Whalers were members of the NHL's Adams Division between 1981 and 1995.`\
-https://nytimes.com/athletic/6745755/2025/10/23/avalanche-hurricanes-nordiques-whalers-throwback-jerseys/
+**A Coachella Encounter Leads to Love and Lots of Caviar**\
+`Lily Rosenthal, a food influencer, and Mason Royal, a chef, met at a music festival and bonded over their love of food. Two years later, they created their own food festival for their wedding.`\
+https://nytimes.com/2025/10/24/style/lily-rosenthal-mason-royal-wedding-coachella.html
 
-**Chargers' Derwin James, Vikings' Christian Darrisaw ruled out with injuries**\
-`James left after the first defensive series with an ankle injury while Darrisaw was knocked out with a knee injury.`\
-https://nytimes.com/athletic/6745675/2025/10/23/chargers-vikings-injuries-tnf-derwin-james-christian-darrisaw/
+**Their Relationship Almost Became a Wreck. Then They Got on Track.**\
+`While living in Texas, Josh Rael and Rae Atkinson were close to breaking up, but a “reckoning” put marriage back on the horizon.`\
+https://nytimes.com/2025/10/24/style/rae-atkinson-josh-rael-wedding.html
 
-**A Place for Friends**\
-`Kelvin Zhou makes his New York Times Crossword debut.`\
-https://nytimes.com/2025/10/23/crosswords/daily-puzzle-2025-10-24.html
+**Four Decades Later, They Felt Like ‘We Had Never Lost Touch’**\
+`Wanda Urbanska and David Chaffetz met at Harvard in 1977 and were instantly attracted to each other. They reconnected during the pandemic.`\
+https://nytimes.com/2025/10/24/style/wanda-urbanska-david-chaffetz-wedding.html
 
-**USWNT 1, Portugal 2: Uncharacteristic mistakes leave the U.S. disappointed in loss**\
-`The U.S. conceded two set piece goals for the first time in recent memory, looking uncharacteristically disjointed. `\
-https://nytimes.com/athletic/6745539/2025/10/23/uswnt-loss-portugal-mistakes/
+**India’s Most Valuable Export: Tens of Millions of Workers**\
+`India plans to send its vast work force abroad to countries with labor shortages, like Germany and Japan.`\
+https://nytimes.com/2025/10/24/business/india-labor-mobility-migration-germany-japan.html
 
-**Protester Who Played ‘Star Wars’ Song Sues After Arrest in Washington**\
-`Sam O’Hara was playing the “Imperial March” theme from the movie while protesting the deployment of National Guard troops in the capital when he was handcuffed by city police officers.`\
-https://nytimes.com/2025/10/23/us/politics/protester-who-played-star-wars-song-sues-after-arrest-in-washington.html
+**Their Romantic Shorthand: ‘Walking Into a Room Together’**\
+`Damon Locks surprised Tara Willis on their wedding day with a song he composed based on that metaphor for their relationship.`\
+https://nytimes.com/2025/10/24/style/tara-willis-damon-locks-wedding.html
 
