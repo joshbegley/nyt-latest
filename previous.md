@@ -1,40 +1,40 @@
-**The Prospects: Reigan Heskey, England Under-17 and Manchester City**\
-`The son of former Liverpool striker Emile Heskey will be one of the key England players at the Under-17 World Cup in Qatar next month`\
-https://nytimes.com/athletic/6736871/2025/10/24/heskey-man-city-england-world-cup-under-17/
+**Ndiaye looks to have taken his game to the next level at Everton – here's how…**\
+`The Senegal winger has raised his level this season after the faith shown in him`\
+https://nytimes.com/athletic/6742885/2025/10/24/iliman-ndiaye-everton-premier-league/
 
-**El Clasico's English stars: Will Bellingham, Rashford, Alexander-Arnold all play?**\
-`All three could feature in Sunday's La Liga match, the season's first meeting between the bitter rivals`\
-https://nytimes.com/athletic/6743233/2025/10/24/barcelona-real-madrid-clasico-bellingham-rashford-trent/
+**FPL: The bargains who can replace your misfiring stars**\
+`Your big names might not be picking up FPL points but don't fret, there are plenty of cheap and mid-priced options providing value for money`\
+https://nytimes.com/athletic/6741079/2025/10/24/fantasy-premier-league-bargains-salah/
 
-**With Power Move on Rare Earths, China Plays Both Victim and Bully**\
-`In weaponizing its dominance over the crucial minerals, Beijing is using tactics that it once denounced, potentially alienating nations it wants to court.`\
-https://nytimes.com/2025/10/24/world/asia/china-trade-trump.html
+**How Donnarumma is changing the way Manchester City build up play**\
+`The Italy goalkeeper arrived with a reputation as an old-school shot-stopper who was less confident playing out from the back`\
+https://nytimes.com/athletic/6742870/2025/10/24/donnarumma-manchester-city-analysis/
 
-**Reece James, Romeo Lavia and Chelsea's different approach to managing comebacks**\
-`Chelsea beat Ajax with a heavily-rotated side on Wednesday night - it is all part of the club's plans to limit injury absences`\
-https://nytimes.com/athletic/6743608/2025/10/24/reece-james-romeo-lavia-and-how-chelsea-are-taking-a-different-approach-to-managing-players/
+**Aston Villa's calamitous loss to a team with a microwave in the trophy cabinet**\
+`Aston Villa managed to lose 2-1 against Go Ahead Eagles in the Europa League on Thursday night`\
+https://nytimes.com/athletic/6744923/2025/10/24/aston-villa-go-ahead-eagles-microwave/
 
-**Connections: Sports Edition hints for Oct. 24, 2025, puzzle No. 396**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6745863/2025/10/24/connections-sports-edition-hints-for-oct-24-2025/
+**Tosan Evbuomwan: A Brit in the NBA**\
+`The New York Knicks small forward is a rarity: a British player in the NBA. He recounts his journey to the 'Mecca' of basketball`\
+https://nytimes.com/athletic/6742476/2025/10/24/tosan-evbuomwan-knicks-basketball-british/
 
-**At a Brooklyn Funeral, an Uncle’s Memory Sparked a New Love**\
-`Gianina Thompson went to the funeral to mourn her uncle. Esteban Casanova went to pay his respects. Somewhere between grief and celebration, they found each other and have been together ever since.`\
-https://nytimes.com/2025/10/24/style/gianina-thompson-esteban-casanova-wedding.html
+**Newcastle are in a great position with Tonali’s future, but others require resolution**\
+`Newcastle have tied Sandro Tonali to a longer deal but Ross Wilson's immediate priority as sporting director is further contract extensions`\
+https://nytimes.com/athletic/6742539/2025/10/24/newcastle-contracts-latest-sven-botman-bruno-guimaraes/
 
-**Corrections: Oct. 24, 2025**\
-`Corrections that appeared in print on Friday, Oct. 24, 2025.`\
-https://nytimes.com/2025/10/24/pageoneplus/corrections-oct-24-2025.html
+**Arsenal have 10 different Premier League scorers this season. How does it compare?**\
+`No other Premier League side has hit double figures yet, highlighting how Arsenal are not over-reliant on one player to get their goals`\
+https://nytimes.com/athletic/6739488/2025/10/24/arsenals-premier-league-scorers/
 
-**A Coachella Encounter Leads to Love and Lots of Caviar**\
-`Lily Rosenthal, a food influencer, and Mason Royal, a chef, met at a music festival and bonded over their love of food. Two years later, they created their own food festival for their wedding.`\
-https://nytimes.com/2025/10/24/style/lily-rosenthal-mason-royal-wedding-coachella.html
+**Handle with care: Why Slot is facing a daunting challenge with Salah**\
+`Liverpool's head coach must navigate a treacherous path as he tries to keep everyone happy at Anfield`\
+https://nytimes.com/athletic/6743103/2025/10/24/arne-slot-mohamed-salah-liverpool/
 
-**Their Relationship Almost Became a Wreck. Then They Got on Track.**\
-`While living in Texas, Josh Rael and Rae Atkinson were close to breaking up, but a “reckoning” put marriage back on the horizon.`\
-https://nytimes.com/2025/10/24/style/rae-atkinson-josh-rael-wedding.html
+**Premier League predictions: Man United vs Brighton, Arsenal vs Crystal Palace and the rest of Matchday 9**\
+`Who's leading after Matchday 8? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 9?`\
+https://nytimes.com/athletic/6742706/2025/10/24/premier-league-predictions-md9/
 
-**Four Decades Later, They Felt Like ‘We Had Never Lost Touch’**\
-`Wanda Urbanska and David Chaffetz met at Harvard in 1977 and were instantly attracted to each other. They reconnected during the pandemic.`\
-https://nytimes.com/2025/10/24/style/wanda-urbanska-david-chaffetz-wedding.html
+**Harry Maguire is much more than just a 'Slab-head'**\
+`The much-maligned defender has become a serious goal threat for United at crucial moments in some big matches`\
+https://nytimes.com/athletic/6743925/2025/10/24/harry-maguire-manchester-united-goals/
 
