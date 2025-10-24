@@ -1,3 +1,15 @@
+**Commanders' Terry McLaurin opens up about his injury and up-and-down year**\
+`Terry McLaurin, who is expected to return on Monday night against the Kansas City Chiefs, has never experienced a year quite like this one.`\
+https://nytimes.com/athletic/6748085/2025/10/24/commanders-terry-mclaurin-opens-up-about-his-injury-and-up-and-down-year/
+
+**Bannon Claims ‘There Is a Plan’ For Trump to Run for a Third Term**\
+`The claim comes after months of President Trump toying with the idea, insisting that he is “not joking” about defying a constitutionally-mandated term limit.`\
+https://nytimes.com/2025/10/24/us/politics/president-trump-2028-steve-bannon.html
+
+**Twins narrow managerial search to 4 candidates with familiar names still involved**\
+`Multiple league sources believe the Twins are leaning toward hiring a candidate with whom they’re familiar.`\
+https://nytimes.com/athletic/6748156/2025/10/24/twins-manager-search/
+
 **Sirikit, Glamorous Former Queen of Thailand Who Wielded Power, Dies at 93**\
 `As the wife of King Bhumibol Adulyadej, she supported local causes and traveled the world, charming government leaders and the public.`\
 https://nytimes.com/2025/10/24/world/asia/queen-sirikit-thailand-dead.html
