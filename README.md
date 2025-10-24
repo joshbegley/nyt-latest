@@ -1,3 +1,11 @@
+**Trump Officials Float New Plan for Abrego Garcia: Send Him to Liberia**\
+`The proposal was the latest twist in a byzantine saga that has transformed the Salvadoran migrant into one of the best-known symbols of President Trump’s aggressive deportation agenda.`\
+https://nytimes.com/2025/10/24/us/politics/trump-abrego-garcia-liberia.html
+
+**Man Utd raise concerns with Premier League over number of midweek games**\
+`Between now and Christmas, United will play only one match at Old Trafford on a weekend — against Brighton & Hove Albion on Saturday.`\
+https://nytimes.com/athletic/6747209/2025/10/24/manchester-united-fixtures-midweek/
+
 **What It Means That Apps Are Coming to ChatGPT**\
 `Kevin Roose and Casey Newton, the hosts of “Hard Fork” at The New York Times, discuss OpenAI’s recent announcement that apps will soon be integrated into ChatGPT.`\
 https://nytimes.com/video/podcasts/100000010479107/what-it-means-that-apps-are-coming-to-chatgpt.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6740330/2025/10/24/usmnt-january-camp-2026-mls-worl
 **Fed Prepares Bank-Friendly Changes to Annual Stress Tests**\
 `The Federal Reserve Board is poised to start releasing in advance models it uses to test the biggest banks’ readiness to withstand economic shocks.`\
 https://nytimes.com/2025/10/24/business/federal-reserve-banks-stress-tests.html
-
-**Hakeem Jeffries Gives Mamdani Last-Minute Endorsement for N.Y.C. Mayor**\
-`Mr. Jeffries, the House minority leader, had resisted backing Zohran Mamdani, the Democratic nominee, for months. But his support provides a late boost.`\
-https://nytimes.com/2025/10/24/nyregion/hakeem-jeffries-zohran-mamdani-endorsement.html
-
-**Celtics' Jaylen Brown says NBA hasn't prepared players for current gambling climate**\
-`Jaylen Brown said the NBA needs to be more open to holding conversations with players about the new environment.`\
-https://nytimes.com/athletic/6747505/2025/10/24/celtics-jaylen-brown-nba-gambling-climate/
 
