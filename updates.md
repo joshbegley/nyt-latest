@@ -1,3 +1,11 @@
+**The Flyers aren’t panicking about Matvei Michkov’s slow start. Here’s why**\
+`Michkov has two points in seven games this season, but the Flyers aren’t concerned about that.`\
+https://nytimes.com/athletic/6745117/2025/10/24/flyers-matvei-michkov-2025-26-season/
+
+**Trump Official Warns California Against Arresting Federal Agents**\
+`Deputy U.S. Attorney General Todd Blanche told top California leaders that they would be prosecuted if they arrested federal agents performing immigration raids.`\
+https://nytimes.com/2025/10/24/us/federal-ice-agents-arrests-california-pelosi.html
+
 **10 observations: Sidney Crosby, Ben Kindel lead Penguins to win over Panthers**\
 `Crosby, Kindel and Tristan Jarry led the way as the Penguins won their fourth straight game in a 5-3 decision over defending champ Florida. `\
 https://nytimes.com/athletic/6745211/2025/10/24/penguins-panthers-sidney-crosby-ben-kindel/
