@@ -1,3 +1,15 @@
+**TAFC: Is Messi's new deal good for everyone? Plus: Haaland's meat and 'raw milk' diet**\
+`Today in TAFC: A look at the impact of Lionel Messi's new Inter Miami contract. Plus: Could Hearts finally end the duopoly in Scotland?`\
+https://nytimes.com/athletic/6746303/2025/10/24/messi-inter-miami-contract-2028/
+
+**On a Roll, European Leaders Meet to Bolster Support for Ukraine**\
+`Britain, the host, is framing a meeting of the “coalition of the willing” as an effort to fortify Kyiv for the winter fighting months.`\
+https://nytimes.com/2025/10/24/world/europe/coalition-of-the-willing-zelensky-uk.html
+
+**Elena Rybakina qualifies for WTA Tour Finals, overtaking Mirra Andreeva with late-season surge**\
+`Rybakina's six wins in a row have propelled her past Andreeva with just one week of tournaments left in the season.`\
+https://nytimes.com/athletic/6746319/2025/10/24/wta-tour-finals-players-qualified-2025/
+
 **Man United complete signing of England youth goalkeeper from Derby**\
 `Charlie Hardy, 16, will go into the club’s academy system and under-18s side managed by Darren Fletcher.`\
 https://nytimes.com/athletic/6746460/2025/10/24/manchester-united-charlie-hardy-derby-signing/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6745862/2025/10/24/george-springer-blue-jays-world-
 **Dillon Gabriel doesn't care what you think. He wants to prove himself (and the Browns) right**\
 `Gabriel isn't yet a star or an established answer for Cleveland. He is, however, fully committed to his craft and what it takes to be great.`\
 https://nytimes.com/athletic/6741193/2025/10/24/browns-quarterback-dillon-gabriel-career/
-
-**The best stadiums in college football, as chosen by our readers**\
-`The Athletic ranked the best stadiums in college football earlier this week. Now it's your turn. Here's who readers picked.`\
-https://nytimes.com/athletic/6744371/2025/10/24/college-football-stadium-rankings-fan-favorites/
-
-**What Cade Horton's rapid development says about the Cubs' pitching plans**\
-`This season, Horton, a rookie, impressed teammates and coaches with his composure and ability to absorb information.`\
-https://nytimes.com/athletic/6745668/2025/10/24/chicago-cubs-cade-horton-development-pitching-plans/
-
-**Slot: Isak a doubt for Brentford, not worried about Salah's goalscoring**\
-`Isak was substituted at half-time during Liverpool’s 5-1 victory over Eintracht Frankfurt on Wednesday with a suspected groin complaint.`\
-https://nytimes.com/athletic/6742833/2025/10/24/alexander-isak-injury-liverpool-brentford/
 
