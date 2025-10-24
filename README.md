@@ -2,7 +2,7 @@
 `Coast Guard police fired rounds at a moving van that accelerated toward the base in reverse and did not follow commands to stop, the authorities say.`\
 https://nytimes.com/2025/10/24/us/coast-guard-shots-fired-protest.html
 
-**Red Sox begin making big changes to address shaky defense**\
+**Red Sox begin making more big changes to address shaky defense**\
 `After leading the league in errors, the Red Sox will double the number of coaches in the minor leagues who are focused full-time on defense.`\
 https://nytimes.com/athletic/6746773/2025/10/24/red-sox-defense-coaching-changes/
 
