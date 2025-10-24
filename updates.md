@@ -1,3 +1,7 @@
+**Gabriel an injury doubt for Arsenal against Crystal Palace**\
+`Captain Martin Odegaard, Kai Havertz, Noni Madueke and Gabriel Jesus are not in contention for the weekend.`\
+https://nytimes.com/athletic/6746899/2025/10/24/gabriel-arsenal-injury-doubt/
+
 **Frank: 'No time-frame' on Romero return but not a 'longer' injury**\
 `Romero picked up an injury in the warm-up before last Sunday’s 2-1 home defeat to Aston Villa.`\
 https://nytimes.com/athletic/6746921/2025/10/24/cristian-romero-tottenham-injury-latest/
