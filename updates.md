@@ -1,3 +1,7 @@
+**Referee who reversed Kirby Smart timeout removed from SEC officiating lineup: Sources**\
+`Ken Williamson was head referee in a Georgia-Auburn game that included a higher-than-usual number of questionable calls.`\
+https://nytimes.com/athletic/6745399/2025/10/23/sec-referee-removed-auburn-georgia/
+
 **How to watch Dodgers at Blue Jays: World Series Game 1 Time, TV, streaming**\
 `Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6745448/2025/10/23/dodgers-vs-blue-jays-stream-how-to-watch-oct-24/
