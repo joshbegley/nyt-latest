@@ -1,3 +1,15 @@
+**Republicans Who Have Rarely Opposed Trump Raise Questions About His Drug War**\
+`The president said he wouldn’t seek congressional approval for his expanding military offensive against cartels, but some in his party believe Congress should weigh in.`\
+https://nytimes.com/2025/10/24/us/politics/republicans-trump-drug-war.html
+
+**Why We Can’t All Get Along, and What to Do About It**\
+`Readers respond to an essay about whether we can break the present cycle of heated and sometimes violent disagreement.`\
+https://nytimes.com/2025/10/24/opinion/american-disagreement.html
+
+**This Fast, Protein-Packed Chili Will Fuel Your Halloween**\
+`Genevieve Ko’s lighter, brighter take on the budget-friendly classic is the perfect counterpoint to all that holiday candy.`\
+https://nytimes.com/2025/10/24/dining/protein-chili-halloween.html
+
 **New Trump-Canada Spat Spotlights ‘Captain Canada,’ the Ontario Premier**\
 `Doug Ford has built a reputation for picking fights with President Trump and getting under his skin with publicity-grabbing moves as U.S. tariffs have harmed Ontario’s economy.`\
 https://nytimes.com/2025/10/24/world/canada/doug-ford-trump-reagan-ad.html
