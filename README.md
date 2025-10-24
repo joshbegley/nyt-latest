@@ -1,3 +1,7 @@
+**Wemby's masterpiece leads to surge in NBA MVP odds after just one game**\
+`Victor Wembanyama surged up the MVP odds board with his massive season debut on Wednesday.`\
+https://nytimes.com/athletic/6744049/2025/10/24/victor-wembanyama-nba-mvp-odds/
+
 **Who Were the Palestinian Prisoners Freed by Israel?**\
 `Under the cease-fire deal, Israel released 250 Palestinians serving long sentences for violent attacks. More than 1,700 others had been detained in Gaza and held without charge.`\
 https://nytimes.com/2025/10/24/world/middleeast/israel-palestinian-prisoners-freed.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6743939/2025/10/24/world-series-mvp-odds-shohei-oht
 **Next week’s waiver wire: Xavier Legette and more players to add — before the Week 9 rush**\
 `John Laghezza helps you beat the rush by projecting Week 9's waiver-wire targets. His advice — add Xavier Legette now. `\
 https://nytimes.com/athletic/6742934/2025/10/24/next-weeks-waiver-wire-week-9-xavier-legette/
-
-**Can Economic Populism Save the Democratic Party?**\
-`Jared Abbott, the director of the Center for Working-Class Politics, discusses what it would take for Democrats to better appeal to working-class voters.`\
-https://nytimes.com/2025/10/24/opinion/ezra-klein-podcast-jared-abbott.html
 
