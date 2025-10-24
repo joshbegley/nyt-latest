@@ -1,3 +1,7 @@
+**USWNT 1, Portugal 2: Uncharacteristic mistakes leave the U.S. disappointed in loss**\
+`The U.S. conceded two set piece goals for the first time in recent memory, looking uncharacteristically disjointed `\
+https://nytimes.com/athletic/6745539/2025/10/23/uswnt-loss-portugal-mistakes/
+
 **Protester Who Played ‘Star Wars’ Song Sues After Arrest in Washington**\
 `Sam O’Hara was playing the “Imperial March” theme from the movie while protesting the deployment of National Guard troops in the capital when he was handcuffed by city police officers.`\
 https://nytimes.com/2025/10/23/us/politics/protester-who-played-star-wars-song-sues-after-arrest-in-washington.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/10/23/us/politics/gregory-bovino-chicago-immigration.ht
 **Target to Cut 1,800 Corporate Jobs in Efficiency Drive**\
 `The retail chain’s incoming chief executive, who will take over in February, cited “too many layers and overlapping work” in a memo.`\
 https://nytimes.com/2025/10/23/business/target-job-cuts.html
-
-**USWNT celebrates Alex Morgan's 'legendary' career**\
-`In many ways, Morgan’s entire career was spent preparing to pass that torch for future generations.`\
-https://nytimes.com/athletic/6744327/2025/10/23/alex-morgan-uswnt-celebration/
 

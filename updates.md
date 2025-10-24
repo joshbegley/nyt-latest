@@ -1,3 +1,7 @@
+**Protester Who Played ‘Star Wars’ Song Sues After Arrest in Washington**\
+`Sam O’Hara was playing the “Imperial March” theme from the movie while protesting the deployment of National Guard troops in the capital when he was handcuffed by city police officers.`\
+https://nytimes.com/2025/10/23/us/politics/protester-who-played-star-wars-song-sues-after-arrest-in-washington.html
+
 **Suspect in Palisades Fire Pleads Not Guilty to Setting Blaze**\
 `Prosecutors say Jonathan Rinderknecht deliberately set a fire in January that led to one of the most destructive blazes in California history. If convicted, he would face up to 45 years in prison.`\
 https://nytimes.com/2025/10/23/us/los-angeles-palisades-fire-suspect-arraigned-charges.html
