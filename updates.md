@@ -1,3 +1,15 @@
+**F.D.A. Approves New Menopause Drug**\
+`The drug, one of the few nonhormonal options for menopausal women, reduced hot flashes and night sweats, and appears to help with sleep issues.`\
+https://nytimes.com/2025/10/24/well/fda-menopause-drug-lynkuet.html
+
+**U.S. Flies Drones Over Gaza to Monitor Cease-Fire, Officials Say**\
+`The surveillance missions are part of a U.S.-led international effort to ensure the fragile cease-fire between Israel and Hamas holds.`\
+https://nytimes.com/2025/10/24/world/middleeast/us-gaza-ceasefire-drones.html
+
+**Next face of NHL? Celebrini's family, friends, teammates on why he'll live up to the hype**\
+`Celebrini's five-point night at MSG on Thursday was an early signature moment for a player seen by NHL peers as a superstar in the making.`\
+https://nytimes.com/athletic/6744779/2025/10/24/macklin-celebrini-sharks-nhl-hype/
+
 **U.S. Flies Drones Over Gaza to Monitor Cease-Fire, Officials Say**\
 `The surveillance missions are part of a U.S.-led international effort to ensure the fragile cease-fire between Israel and Hamas holds.`\
 https://nytimes.com/2025/10/24/world/middleeast/us-flies-drones-over-gaza-ceasefire.html

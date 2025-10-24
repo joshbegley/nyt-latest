@@ -1,3 +1,7 @@
+**Troy Vincent says league office wasn't involved in officiating Lions' trick play vs. Chiefs**\
+`Despite Dan Campbell's claims he was told New York got involved, the NFL says the play was fully officiated on the field.`\
+https://nytimes.com/athletic/6747405/2025/10/24/lions-chiefs-trick-play-nfl-replay-new-york/
+
 **F.D.A. Approves New Menopause Drug**\
 `The drug, one of the few nonhormonal options for menopausal women, reduced hot flashes and night sweats, and appears to help with sleep issues.`\
 https://nytimes.com/2025/10/24/well/fda-menopause-drug-lynkuet.html
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/aruba-tourism-authority/a-beautiful-place-with-beau
 **Next face of NHL? Celebrini's family, friends, teammates on why he'll live up to the hype**\
 `Celebrini's five-point night at MSG on Thursday was an early signature moment for a player seen by NHL peers as a superstar in the making.`\
 https://nytimes.com/athletic/6744779/2025/10/24/macklin-celebrini-sharks-nhl-hype/
-
-**Review: In ‘Six Quiet Dogs,’ Ordinary Sound Gives Way to Poetry**\
-`Abigail Levine’s new work, at Target Margin Theater, is terrific as a kind of enhanced reading, but lags on the level of choreography.`\
-https://nytimes.com/2025/10/24/arts/dance/six-quiet-dogs-review.html
 
