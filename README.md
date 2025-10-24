@@ -1,3 +1,15 @@
+**NHL Power Rankings: Hurricanes leap to No. 1 and we've chosen Our Guys for each team**\
+`We're back with a new weekly ranking and we have a new set of our favorite players from each team.`\
+https://nytimes.com/athletic/6745958/2025/10/24/nhl-power-rankings-our-guys/
+
+**UConn-Louisville game in Germany moved because of government shutdown**\
+`The Huskies and Cardinals will play at the Naval Academy in Maryland instead of on an Air Force base overseas.`\
+https://nytimes.com/athletic/6746754/2025/10/24/armed-forces-classic-moved-out-of-germany-because-of-government-shutdown/
+
+**Shutdown Could Cancel Next Inflation Report**\
+`Since the shutdown began, the Bureau of Labor Statistics has not been gathering the new data it needs to produce future reports, since its staff is furloughed.`\
+https://nytimes.com/2025/10/24/business/inflation-cpi-report-october-shutdown.html
+
 **Gasoline prices drove up inflation in September but were down from a year ago.**\
 `Prices at the pump were up for the month but remained lower than they were the year before.`\
 https://nytimes.com/live/2025/10/24/business/cpi-inflation-tariffs-fed/gasoline-prices-drove-up-inflation-in-september-but-were-down-from-a-year-ago
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6746610/2025/10/24/college-basketball-preseason-exh
 **Social Security Announces a 2.8% Cost-of-Living Increase for Beneficiaries**\
 `Recipients, including retirees and their spouses, as well as those who receive disability benefits and Supplemental Security Income, will see the additional benefit starting in January.`\
 https://nytimes.com/2025/10/24/business/social-security-cola-cost-of-living.html
-
-**Maguire, Mount injury doubts for Man Utd ahead of Brighton**\
-`Both players featured against Liverpool on Sunday, securing Amorim's first back-to-back league wins.`\
-https://nytimes.com/athletic/6746662/2025/10/24/maguire-mount-manchester-united-injury-brighton/
-
-**Stephen Curry is still magical, and the Warriors have every reason to believe**\
-`Closing in on 38, Curry showed Thursday he's still more wonderful than washed. And after two games, the Warriors' plan is looking validated.`\
-https://nytimes.com/athletic/6745975/2025/10/24/stephen-curry-golden-state-warriors-denver-nuggets/
-
-**More than 70 legislators, including Zohran Mamdani, sign letter in support of WNBA union**\
-`The WNBPA and WNBA are in tense labor negotiations as they near an Oct. 31 deadline to strike a deal.`\
-https://nytimes.com/athletic/6746614/2025/10/24/wnba-players-letter-union-zohran-mamdani/
 
