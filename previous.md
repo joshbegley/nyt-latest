@@ -1,3 +1,11 @@
+**Sonia Raman agrees to deal to become next coach of Seattle Storm**\
+`Sonia Raman is replacing Noelle Quinn, who had been Seattle’s coach from 2021-2025.`\
+https://nytimes.com/athletic/6747951/2025/10/24/sonia-raman-coach-seattle-storm-wnba/
+
+**Scoop City: Rodgers vs. Packers for the first time**\
+`Aaron Rodgers' game against the Packers, your thoughts on Mike Tomlin, what film says about Tua and Week 8's most important game`\
+https://nytimes.com/athletic/6747922/2025/10/24/aaron-rodgers-steelers-packers-favre-bears-ravens-tua/
+
 **Nights Out With Malala, Making Time to Be Herself**\
 `Basketball and Dua Lipa are on the schedule during a New York jaunt with the Nobel laureate, whose intimate memoir finds her juggling activism and married life.`\
 https://nytimes.com/2025/10/24/books/review/malala-yousafzai-memoir-finding-my-way.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/10/24/arts/halo-playstation-microsoft-xbox.html
 **Joseph Woll returning to Maple Leafs after extended personal leave**\
 `An update regarding how Woll will be reintegrated into the Leafs is expected in the near future.`\
 https://nytimes.com/athletic/6747786/2025/10/24/joseph-woll-return-maple-leafs/
-
-**6 Cordless Lamps I Love**\
-`Text by Ivy Elrod`\
-https://nytimes.com/card/2025/10/24/smarter-living/wirecutter/
-
-**What are prop bets, and what does the latest gambling scandal mean for regulation?**\
-`Experts say that some form of regulation when it comes to prop bets is likely necessary to preserve the integrity of the game.`\
-https://nytimes.com/athletic/6747376/2025/10/24/prop-bets-nba-gambling-scandal/
 

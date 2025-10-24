@@ -1,3 +1,11 @@
+**Sonia Raman agrees to deal to become next coach of Seattle Storm**\
+`Sonia Raman is replacing Noelle Quinn, who had been Seattle’s coach from 2021-2025.`\
+https://nytimes.com/athletic/6747951/2025/10/24/sonia-raman-coach-seattle-storm-wnba/
+
+**Scoop City: Rodgers vs. Packers for the first time**\
+`Aaron Rodgers' game against the Packers, your thoughts on Mike Tomlin, what film says about Tua and Week 8's most important game`\
+https://nytimes.com/athletic/6747922/2025/10/24/aaron-rodgers-steelers-packers-favre-bears-ravens-tua/
+
 **Nights Out With Malala, Making Time to Be Herself**\
 `Basketball and Dua Lipa are on the schedule during a New York jaunt with the Nobel laureate, whose intimate memoir finds her juggling activism and married life.`\
 https://nytimes.com/2025/10/24/books/review/malala-yousafzai-memoir-finding-my-way.html
