@@ -1,3 +1,7 @@
+**Crystal Palace's profligacy problem**\
+`Palace had 14 shots in their first home game in the main stages of a major European competition. One was on target - it is a recurring issue`\
+https://nytimes.com/athletic/6736593/2025/10/24/crystal-palace-profligacy-problem-oliver-glasner/
+
 **Nottingham Forest can 'finally breathe' again. This was the perfect start for Dyche**\
 `A first win since the opening day of the season was exactly the result the incoming manager needed to restore some joy at the City Ground`\
 https://nytimes.com/athletic/6745501/2025/10/24/nottingham-forest-sean-dyche-porto/
