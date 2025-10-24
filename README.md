@@ -1,3 +1,7 @@
+**Trump’s Son Is Poised to Profit From Pentagon Drone Proposal**\
+`A small company that has been manufacturing motors domestically for only a few weeks and has Donald Trump Jr. as an adviser won a parts order from the Army.`\
+https://nytimes.com/2025/10/24/us/politics/trump-drones-pentagon.html
+
 **Sonia Raman agrees to deal to become next coach of Seattle Storm**\
 `Sonia Raman is replacing Noelle Quinn, who had been Seattle’s coach from 2021-2025.`\
 https://nytimes.com/athletic/6747951/2025/10/24/sonia-raman-coach-seattle-storm-wnba/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/10/24/us/politics/food-banks-federal-workers-trump.html
 **Xbox’s Prized Sci-Fi Franchise Is Heading to PlayStation**\
 `As part of a strategic shift away from exclusivity, Microsoft is bringing Halo to Sony’s competing console for the first time.`\
 https://nytimes.com/2025/10/24/arts/halo-playstation-microsoft-xbox.html
-
-**Joseph Woll returning to Maple Leafs after extended personal leave**\
-`An update regarding how Woll will be reintegrated into the Leafs is expected in the near future.`\
-https://nytimes.com/athletic/6747786/2025/10/24/joseph-woll-return-maple-leafs/
 
