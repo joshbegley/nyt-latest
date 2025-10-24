@@ -1,3 +1,15 @@
+**The Giants fan's guide to becoming the biggest Toronto Blue Jays fan on the planet**\
+`The World Series isn't fun without a rooting interest. It's not hard to root against LA but this is why you should root for the Blue Jays.`\
+https://nytimes.com/athletic/6744100/2025/10/24/sf-giants-world-series-rooting-toronto-blue-jays/
+
+**The U.S. is evacuating some workers from Guantánamo as Melissa inches closer to Cuba.**\
+`By Carol Rosenberg`\
+https://nytimes.com/live/2025/10/23/weather/tropical-storm-melissa-hurricane/guantanamo-bay-cuba-hurricane-melissa
+
+**Maple Leafs trade watch: Is Yegor Chinakhov a fit?**\
+`The 2020 first-round pick is a speedy, high-IQ and offensively minded player with a dangerous shot`\
+https://nytimes.com/athletic/6747312/2025/10/24/maple-leafs-trade-target-yegor-chinakhov/
+
 **British Drug Dealer Is Sentenced for Pro-Russian Attack Plots**\
 `Dylan Earl recruited people to set fire to two London warehouses containing aid bound for Ukraine, the police said. He was also convicted of plotting against a dissident Russian restaurant owner.`\
 https://nytimes.com/2025/10/24/world/europe/britain-sentence-pro-russian-plots.html
