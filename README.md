@@ -1,3 +1,7 @@
+**Carter Hart signing 2-year contract to join Vegas Golden Knights: Sources**\
+`Hart had joined Vegas on a professional tryout agreement last week.`\
+https://nytimes.com/athletic/6747165/2025/10/24/carter-hart-contract-golden-knights/
+
 **A Woman Self-Deported, Hoping to Shield Her Son. He Was Detained Anyway.**\
 `Joel Camas, 16, had been without his mother for about four weeks after she voluntarily returned to Ecuador. His lawyer had hoped his age would shield him.`\
 https://nytimes.com/2025/10/24/nyregion/teenager-detained-mother-self-deported.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6747192/2025/10/24/maple-leafs-vs-sabres-stream-how
 **How to watch Capitals vs. Blue Jackets: Time, TV, streaming**\
 `Find out how to watch the Washington Capitals play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6747188/2025/10/24/capitals-vs-blue-jackets-stream-how-to-watch-oct-24/
-
-**How to watch Sharks vs. Devils: Time, TV, streaming**\
-`Find out how to watch the San Jose Sharks play the New Jersey Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6747187/2025/10/24/sharks-vs-devils-stream-how-to-watch-oct-24/
 
