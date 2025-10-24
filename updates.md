@@ -1,3 +1,7 @@
+**Europe’s Persistence in Supporting Ukraine Is Bearing Fruit**\
+`European leaders want to build on President Trump’s sanctions on Russia with new commitments of financial and military support for Kyiv.`\
+https://nytimes.com/2025/10/24/world/europe/europe-ukraine-russia.html
+
 **South Korea Tries to Curb Anti-China Protests Ahead of Xi Visit**\
 `The recent surge in demonstrations by far-right groups presents a challenge for the South Korean government, as it prepares to host both Xi Jinping, the leader of China, and President Trump.`\
 https://nytimes.com/2025/10/24/world/asia/south-korea-china-protests.html
