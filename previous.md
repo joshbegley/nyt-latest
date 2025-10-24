@@ -1,40 +1,40 @@
-**Week 8 fantasy football intel, predictions using player prop lines**\
-`Brad Evans scours the sportsbooks to find fantasy intel that can help you in your Week 8 lineups. `\
-https://nytimes.com/athletic/6743701/2025/10/24/fantasy-football-intel-week-8-player-props/
+**Can Economic Populism Save the Democratic Party?**\
+`Jared Abbott, the director of the Center for Working-Class Politics, discusses what it would take for Democrats to better appeal to working-class voters.`\
+https://nytimes.com/2025/10/24/opinion/ezra-klein-podcast-jared-abbott.html
 
-**‘Springsteen: Deliver Me From Nowhere’ | Anatomy of a Scene**\
-`Scott Cooper narrates a sequence from his film, featuring Jeremy Allen White playing Bruce Springsteen.`\
-https://nytimes.com/video/movies/100000010476355/springsteen-deliver-me-from-nowhere-scene.html
+**Letitia James to Appear in Court as Battle Over Trump-Urged Prosecution Begins**\
+`The New York attorney general, indicted by President Trump’s handpicked prosecutor in the Eastern District of Virginia, is expected to plead not guilty in her arraignment on Friday.`\
+https://nytimes.com/2025/10/24/us/politics/letitia-james-court.html
 
-**Mitoma a doubt for Brighton's Man Utd game after ankle issue**\
-`The 28-year-old has missed their last two matches with an injury to his left ankle.`\
-https://nytimes.com/athletic/6746230/2025/10/24/mitoma-brighton-injury-update/
+**How to Make Sense of the Federal Forces on the Streets**\
+`As President Trump deploys ICE, Border Patrol, the National Guard and other forces to U.S. cities, here’s how to tell them apart — and what their powers are.`\
+https://nytimes.com/interactive/2025/10/24/us/us-federal-agents-national-guard-ice-fbi.html
 
-**Labour Party Pushed Into Third Place in Wales Special Election**\
-`Plaid Cymru, a center-left nationalist party, defeated the right-wing Reform U.K. and Prime Minister Keir Starmer’s Labour in a race seen as a test of his popularity.`\
-https://nytimes.com/2025/10/24/world/europe/wales-election.html
+**How the San Francisco Mayor Avoided Trump’s Enforcement Surge**\
+`Daniel Lurie, the San Francisco mayor, relied on powerful tech executives and his own low-key approach to help his liberal city escape a rush of federal agents.`\
+https://nytimes.com/2025/10/24/us/daniel-lurie-trump-san-francisco.html
 
-**New Star of an Ad Campaign: The Louvre Heist Ladder**\
-`After thieves stole more than a hundred million dollars’ worth of jewelry from the Louvre using a lift truck, the manufacturer decided to capitalize on the connection.`\
-https://nytimes.com/video/world/europe/100000010478760/louvre-robbery-german-campaign-bocker.html
+**Stream These 5 Titles Before They Leave Netflix in November**\
+`A Stephen King adaptation and a recent horror phenomenon are among the titles U.S. subscribers can still catch during scary movie season before they leave.`\
+https://nytimes.com/2025/10/24/arts/television/netflix-leaving-november.html
 
-**Fantasy Premier League live Q&A: Gameweek 9 advice from Ben Dinnery**\
-`Join Ben Dinnery for a live Gameweek 9 Q&A from 1pm-2pm UK time today`\
-https://nytimes.com/athletic/6743245/2025/10/24/fantasy-premier-league-gameweek-9-q-and-a/
+**The New York Times News Quiz, Oct. 24, 2025**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/10/24/briefing/louvre-robbery-trump-ballroom-news-quiz.html
 
-**Europe’s Persistence in Supporting Ukraine Is Bearing Fruit**\
-`European leaders want to build on President Trump’s sanctions on Russia with new commitments of financial and military support for Kyiv.`\
-https://nytimes.com/2025/10/24/world/europe/europe-ukraine-russia.html
+**What to Do When a Person Won’t. Stop. Talking.**\
+`Take back the conversation with these tips.`\
+https://nytimes.com/2025/10/24/well/wont-stop-talking-help.html
 
-**South Korea Tries to Curb Anti-China Protests Ahead of Xi Visit**\
-`The recent surge in demonstrations by far-right groups presents a challenge for the South Korean government, as it prepares to host both Xi Jinping, the leader of China, and President Trump.`\
-https://nytimes.com/2025/10/24/world/asia/south-korea-china-protests.html
+**When My Family Lived in the White House I Resented It. Now I Mourn It.**\
+`The East Wing was where Eleanor Roosevelt walked. It was where Jacqueline Kennedy planned the Rose Garden. Now it’s all but gone.`\
+https://nytimes.com/2025/10/24/opinion/east-wing-white-house-patti-davis-reagan.html
 
-**Aaron Gordon's career-high 50 points can't save Nuggets**\
-`"They're asking if I wanted the game ball, and no, I don't want the game ball," Gordon said after a 137-131 overtime loss to the Warriors.`\
-https://nytimes.com/athletic/6746187/2025/10/24/nuggets-warriors-aaron-gordon-50-points/
+**Was a Sports Betting Scandal Inevitable?**\
+`As legalized betting has become ubiquitous in American sport, the opportunities for cheating, like those outlined in a recent federal indictment, have multiplied.`\
+https://nytimes.com/2025/10/24/nyregion/nba-sports-betting-gambling-scandal.html
 
-**We Asked Mamdani, Cuomo and Sliwa 10 Questions. Here’s What They Said.**\
-`We interviewed the leading candidates for New York City mayor about their experience, their plans for the city and their favorite subway seat.`\
-https://nytimes.com/2025/10/24/nyregion/mamdani-cuomo-sliwa-10-questions.html
+**What’s the Most Impressive Sports Performance You’ve Ever Seen?**\
+`The Dodgers pitcher Shohei Ohtani recently delivered what some are calling the greatest game in baseball history, smashing three home runs and striking out 10 in six scoreless innings. Were you watching?`\
+https://nytimes.com/2025/10/24/learning/whats-the-most-impressive-sports-performance-youve-ever-seen.html
 
