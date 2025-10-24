@@ -1,3 +1,11 @@
+**Mitoma a doubt for Brighton's Man Utd game after ankle issue**\
+`The 28-year-old has missed their last two matches with an injury to his left ankle.`\
+https://nytimes.com/athletic/6746230/2025/10/24/mitoma-brighton-injury-update/
+
+**Labour Party Pushed Into Third Place in Wales Special Election**\
+`Plaid Cymru, a center-left nationalist party, defeated the right-wing Reform U.K. and Prime Minister Keir Starmer’s Labour in a race seen as a test of his popularity.`\
+https://nytimes.com/2025/10/24/world/europe/wales-election.html
+
 **New Star of an Ad Campaign: The Louvre Heist Ladder**\
 `After thieves stole more than a hundred million dollars’ worth of jewelry from the Louvre using a lift truck, the manufacturer decided to capitalize on the connection.`\
 https://nytimes.com/video/world/europe/100000010478760/louvre-robbery-german-campaign-bocker.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/24/learning/holding-hands.html
 **How to Vote Early in New York City, Where It’s Not Too Late to Register**\
 `New Yorkers can vote early in the race for mayor and other contests starting Saturday, Oct. 25 — which is also the voter registration deadline.`\
 https://nytimes.com/2025/10/24/nyregion/nyc-election-what-to-know.html
-
-**Letitia James Case Shows Ruthlessness of Justice Dept. in Trump’s Grip**\
-`For President Trump, creating an aura of criminality around the indicted New York attorney general — through public scrutiny of her and her relatives — may be as important as a conviction.`\
-https://nytimes.com/2025/10/24/nyregion/trump-james-shame-campaign.html
-
-**Finding His Russian Jewish Roots in American Soul Food**\
-`When a Russian émigré documented the closing of a soul food restaurant in Washington, D.C., he discovered much in common with his own history.`\
-https://nytimes.com/2025/10/24/insider/finding-his-russian-jewish-roots-in-american-soul-food.html
 

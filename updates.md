@@ -1,3 +1,11 @@
+**Mitoma a doubt for Brighton's Man Utd game after ankle issue**\
+`The 28-year-old has missed their last two matches with an injury to his left ankle.`\
+https://nytimes.com/athletic/6746230/2025/10/24/mitoma-brighton-injury-update/
+
+**Labour Party Pushed Into Third Place in Wales Special Election**\
+`Plaid Cymru, a center-left nationalist party, defeated the right-wing Reform U.K. and Prime Minister Keir Starmer’s Labour in a race seen as a test of his popularity.`\
+https://nytimes.com/2025/10/24/world/europe/wales-election.html
+
 **New Star of an Ad Campaign: The Louvre Heist Ladder**\
 `After thieves stole more than a hundred million dollars’ worth of jewelry from the Louvre using a lift truck, the manufacturer decided to capitalize on the connection.`\
 https://nytimes.com/video/world/europe/100000010478760/louvre-robbery-german-campaign-bocker.html
