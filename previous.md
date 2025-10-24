@@ -1,3 +1,7 @@
+**Slot: Isak a doubt for Brentford, not worried about Salah's goalscoring**\
+`Isak was substituted at half-time during Liverpool’s 5-1 victory over Eintracht Frankfurt on Wednesday with a suspected groin complaint.`\
+https://nytimes.com/athletic/6742833/2025/10/24/alexander-isak-injury-liverpool-brentford/
+
 **The Flyers aren’t panicking about Matvei Michkov’s slow start. Here’s why**\
 `Michkov has two points in seven games this season, but the Flyers aren’t concerned about that.`\
 https://nytimes.com/athletic/6745117/2025/10/24/flyers-matvei-michkov-2025-26-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6745446/2025/10/24/ad-mitchell-colts-titans-fumble/
 **Canadiens should find plenty of wins in Oilers loss**\
 `From a five-on-five, a game management, and a consistency perspective, the Canadiens can look at a loss to the Oilers as a building block.`\
 https://nytimes.com/athletic/6746058/2025/10/24/canadiens-loss-oilers-growth/
-
-**‘A game of Whac-A-Mole’: What went wrong in the USWNT's worst performance under Hayes?**\
-`For the first time in her 17 months in charge, Hayes watched her players try to solve problems as individuals rather than as a collective.`\
-https://nytimes.com/athletic/6745927/2025/10/24/united-states-women-portugal-hayes/
 

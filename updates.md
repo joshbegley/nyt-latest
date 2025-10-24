@@ -1,3 +1,7 @@
+**Slot: Isak a doubt for Brentford, not worried about Salah's goalscoring**\
+`Isak was substituted at half-time during Liverpool’s 5-1 victory over Eintracht Frankfurt on Wednesday with a suspected groin complaint.`\
+https://nytimes.com/athletic/6742833/2025/10/24/alexander-isak-injury-liverpool-brentford/
+
 **The Flyers aren’t panicking about Matvei Michkov’s slow start. Here’s why**\
 `Michkov has two points in seven games this season, but the Flyers aren’t concerned about that.`\
 https://nytimes.com/athletic/6745117/2025/10/24/flyers-matvei-michkov-2025-26-season/
