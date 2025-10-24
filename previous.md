@@ -1,3 +1,11 @@
+**Next face of the NHL? Macklin Celebrini's family, friends, teammates on why he'll live up to the hype**\
+`Celebrini's five-point night at MSG on Thursday was an early signature moment for a player seen by NHL peers as a superstar in the making.`\
+https://nytimes.com/athletic/6744779/2025/10/24/macklin-celebrini-sharks-nhl-hype/
+
+**Review: In ‘Six Quiet Dogs,’ Ordinary Sound Gives Way to Poetry**\
+`Abigail Levine’s new work, at Target Margin Theater, is terrific as a kind of enhanced reading, but lags on the level of choreography.`\
+https://nytimes.com/2025/10/24/arts/dance/six-quiet-dogs-review.html
+
 **Republicans Who Have Rarely Opposed Trump Raise Questions About His Drug War**\
 `The president said he wouldn’t seek congressional approval for his expanding military offensive against cartels, but some in his party believe Congress should weigh in.`\
 https://nytimes.com/2025/10/24/us/politics/republicans-trump-drug-war.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/24/us/coast-guard-shots-fired-protest.html
 **Red Sox begin making more big changes to address shaky defense**\
 `After leading the league in errors, the Red Sox will double the number of coaches in the minor leagues who are focused full-time on defense.`\
 https://nytimes.com/athletic/6746773/2025/10/24/red-sox-defense-coaching-changes/
-
-**Carter Hart signing 2-year contract to join Vegas Golden Knights: Sources**\
-`Hart had joined Vegas on a professional tryout agreement last week.`\
-https://nytimes.com/athletic/6747165/2025/10/24/carter-hart-contract-golden-knights/
-
-**A Woman Self-Deported, Hoping to Shield Her Son. He Was Detained Anyway.**\
-`Joel Camas, 16, had been without his mother for about four weeks after she voluntarily returned to Ecuador. His lawyer had hoped his age would shield him.`\
-https://nytimes.com/2025/10/24/nyregion/teenager-detained-mother-self-deported.html
 
