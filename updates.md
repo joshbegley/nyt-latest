@@ -1,3 +1,7 @@
+**Trump’s Son Is Poised to Profit From Pentagon Drone Proposal**\
+`A small company that has been manufacturing motors domestically for only a few weeks and has Donald Trump Jr. as an adviser won a parts order from the Army.`\
+https://nytimes.com/2025/10/24/us/politics/trump-drones-pentagon.html
+
 **Sonia Raman agrees to deal to become next coach of Seattle Storm**\
 `Sonia Raman is replacing Noelle Quinn, who had been Seattle’s coach from 2021-2025.`\
 https://nytimes.com/athletic/6747951/2025/10/24/sonia-raman-coach-seattle-storm-wnba/
