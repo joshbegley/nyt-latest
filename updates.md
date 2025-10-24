@@ -1,3 +1,7 @@
+**Nottingham Forest can 'finally breathe' again. This was the perfect start for Dyche**\
+`A first win since the opening day of the season was exactly the result the incoming manager needed to restore some joy at the City Ground`\
+https://nytimes.com/athletic/6745501/2025/10/24/nottingham-forest-sean-dyche-porto/
+
 **High Five -- around the world in five games**\
 `The MLS playoffs begin with Lionel Messi in action, a full-blooded battle in Edinburgh and more to look forward to.`\
 https://nytimes.com/athletic/6745419/2025/10/24/high-five-around-the-world-in-five-games-4/

@@ -1,3 +1,7 @@
+**Crystal Palace's profligacy problem**\
+`Palace had 14 shots in their first home game in the main stages of a major European competition. One was on target - it is a recurring issue`\
+https://nytimes.com/athletic/6736593/2025/10/24/crystal-palace-profligacy-problem-oliver-glasner/
+
 **Nottingham Forest can 'finally breathe' again. This was the perfect start for Dyche**\
 `A first win since the opening day of the season was exactly the result the incoming manager needed to restore some joy at the City Ground`\
 https://nytimes.com/athletic/6745501/2025/10/24/nottingham-forest-sean-dyche-porto/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6742885/2025/10/24/iliman-ndiaye-everton-premier-le
 **FPL: The bargains who can replace your misfiring stars**\
 `Your big names might not be picking up FPL points but don't fret, there are plenty of cheap and mid-priced options providing value for money`\
 https://nytimes.com/athletic/6741079/2025/10/24/fantasy-premier-league-bargains-salah/
-
-**How Donnarumma is changing the way Manchester City build up play**\
-`The Italy goalkeeper arrived with a reputation as an old-school shot-stopper who was less confident playing out from the back`\
-https://nytimes.com/athletic/6742870/2025/10/24/donnarumma-manchester-city-analysis/
 
