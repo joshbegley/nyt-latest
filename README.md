@@ -1,3 +1,7 @@
+**Texas Cheat ’Em? U.S. Details How Mob Lured High Rollers Into Poker Trap**\
+`A Manhattan apartment was at the center of a Mafia-run ring that used former N.B.A. players as bait and technology to read cards, prosecutors say.`\
+https://nytimes.com/2025/10/24/nyregion/nba-mafia-rigged-poker-games.html
+
 **The Giants fan's guide to becoming the biggest Toronto Blue Jays fan on the planet**\
 `The World Series isn't fun without a rooting interest. It's not hard to root against LA but this is why you should root for the Blue Jays.`\
 https://nytimes.com/athletic/6744100/2025/10/24/sf-giants-world-series-rooting-toronto-blue-jays/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6747209/2025/10/24/manchester-united-fixtures-midwe
 **What It Means That Apps Are Coming to ChatGPT**\
 `Kevin Roose and Casey Newton, the hosts of “Hard Fork” at The New York Times, discuss OpenAI’s recent announcement that apps will soon be integrated into ChatGPT.`\
 https://nytimes.com/video/podcasts/100000010479107/what-it-means-that-apps-are-coming-to-chatgpt.html
-
-**Amid the Rubble of the East Wing, Lessons in How Trump Exercises Power**\
-`From the first day of his second term, President Trump has taken an ends-justify-the-means approach to his presidency.`\
-https://nytimes.com/2025/10/24/us/politics/east-wing-trump-power.html
 
