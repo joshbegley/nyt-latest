@@ -1,3 +1,7 @@
+**Rangers' Matt Rempe injured after fighting Ryan Reaves**\
+`The two NHL heavyweights exchanged blows in the first period, and Rempe left the penalty box early to go to the dressing room.`\
+https://nytimes.com/athletic/6745503/2025/10/23/rangers-matt-rempe-injury-fight-ryan-reaves/
+
 **Referee who reversed Kirby Smart timeout removed from SEC officiating lineup: Sources**\
 `Ken Williamson was head referee in a Georgia-Auburn game that included a higher-than-usual number of questionable calls.`\
 https://nytimes.com/athletic/6745399/2025/10/23/sec-referee-removed-auburn-georgia/

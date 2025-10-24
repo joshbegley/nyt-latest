@@ -1,3 +1,7 @@
+**Rangers' Matt Rempe injured after fighting Ryan Reaves**\
+`The two NHL heavyweights exchanged blows in the first period, and Rempe left the penalty box early to go to the dressing room.`\
+https://nytimes.com/athletic/6745503/2025/10/23/rangers-matt-rempe-injury-fight-ryan-reaves/
+
 **Referee who reversed Kirby Smart timeout removed from SEC officiating lineup: Sources**\
 `Ken Williamson was head referee in a Georgia-Auburn game that included a higher-than-usual number of questionable calls.`\
 https://nytimes.com/athletic/6745399/2025/10/23/sec-referee-removed-auburn-georgia/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/23/us/politics/dhs-ice-guantanamo.html
 **Christian Scott nears end of rehab process. Where does he fit in Mets' plans?**\
 `Scott’s fastball velocity checked in around 94 mph during his bullpen sessions and the right-hander said he recently hit 96 mph. `\
 https://nytimes.com/athletic/6745161/2025/10/23/mets-christian-scott-injury-rotation/
-
-**Blazers coach Chauncey Billups released after arrest in federal betting probe**\
-`Billups agreed to reappear in Eastern District Court in New York on Nov. 24. `\
-https://nytimes.com/athletic/6745258/2025/10/23/chauncey-billups-arrest-gambling-nba-released/
 
