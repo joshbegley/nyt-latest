@@ -1,3 +1,11 @@
+**6 Items From the Gene Hackman Auction: His Art, Scripts and Galaga**\
+`The actor, who died this year at 95, led a quiet life in New Mexico. An auction of his belongings offers insights into his life and work.`\
+https://nytimes.com/2025/10/24/movies/gene-hackman-auction.html
+
+**Among the East Wing Rubble: The Presidency’s ‘Best Perk’**\
+`Nixon watched “Patton” there. Obama hosted the “Lincoln” cast. Built in 1942, the White House’s private movie theater offered refuge and entertainment.`\
+https://nytimes.com/2025/10/24/movies/white-house-movie-theater.html
+
 **Trump to Use $130 Million Donation to Help Pay Troops**\
 `It is not clear how far the gift will go toward covering the salaries of the nation’s 1.3 million troops.`\
 https://nytimes.com/2025/10/24/us/politics/trump-military-pay-donation.html
