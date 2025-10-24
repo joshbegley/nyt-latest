@@ -1,3 +1,11 @@
+**Big Five: Europe's top games this weekend**\
+`The Athletic has hand-picked five of the most intriguing weekend fixtures from around Europe.`\
+https://nytimes.com/athletic/6745173/2025/10/24/big-five-europes-top-games-this-weekend-4/
+
+**Word of the Day: sheaf**\
+`This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/24/learning/word-of-the-day-sheaf.html
+
 **Crystal Palace's profligacy problem**\
 `Palace had 14 shots in their first home game in the main stages of a major European competition. One was on target - it is a recurring issue`\
 https://nytimes.com/athletic/6736593/2025/10/24/crystal-palace-profligacy-problem-oliver-glasner/

@@ -1,3 +1,11 @@
+**Big Five: Europe's top games this weekend**\
+`The Athletic has hand-picked five of the most intriguing weekend fixtures from around Europe.`\
+https://nytimes.com/athletic/6745173/2025/10/24/big-five-europes-top-games-this-weekend-4/
+
+**Word of the Day: sheaf**\
+`This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/24/learning/word-of-the-day-sheaf.html
+
 **Crystal Palace's profligacy problem**\
 `Palace had 14 shots in their first home game in the main stages of a major European competition. One was on target - it is a recurring issue`\
 https://nytimes.com/athletic/6736593/2025/10/24/crystal-palace-profligacy-problem-oliver-glasner/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/24/world/europe/louvre-robbery-german-campaign-bocke
 **Spurs have added more specialists to their staff - and they're not done yet**\
 `Sporting director Fabio Paratici has said Spurs 'need more specialisation' among their backroom personnel - the process is well underway`\
 https://nytimes.com/athletic/6743728/2025/10/24/tottenham-staff-recruitment-medical/
-
-**Ndiaye looks to have taken his game to the next level at Everton – here's how…**\
-`The Senegal winger has raised his level this season after the faith shown in him`\
-https://nytimes.com/athletic/6742885/2025/10/24/iliman-ndiaye-everton-premier-league/
-
-**FPL: The bargains who can replace your misfiring stars**\
-`Your big names might not be picking up FPL points but don't fret, there are plenty of cheap and mid-priced options providing value for money`\
-https://nytimes.com/athletic/6741079/2025/10/24/fantasy-premier-league-bargains-salah/
 
