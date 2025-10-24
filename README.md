@@ -1,3 +1,15 @@
+**Commanders' Terry McLaurin opens up about his injury and up-and-down year**\
+`Terry McLaurin, who is expected to return on Monday night against the Kansas City Chiefs, has never experienced a year quite like this one.`\
+https://nytimes.com/athletic/6748085/2025/10/24/commanders-terry-mclaurin-opens-up-about-his-injury-and-up-and-down-year/
+
+**Bannon Claims ‘There Is a Plan’ For Trump to Run for a Third Term**\
+`The claim comes after months of President Trump toying with the idea, insisting that he is “not joking” about defying a constitutionally-mandated term limit.`\
+https://nytimes.com/2025/10/24/us/politics/president-trump-2028-steve-bannon.html
+
+**Twins narrow managerial search to 4 candidates with familiar names still involved**\
+`Multiple league sources believe the Twins are leaning toward hiring a candidate with whom they’re familiar.`\
+https://nytimes.com/athletic/6748156/2025/10/24/twins-manager-search/
+
 **Sirikit, Glamorous Former Queen of Thailand Who Wielded Power, Dies at 93**\
 `As the wife of King Bhumibol Adulyadej, she supported local causes and traveled the world, charming government leaders and the public.`\
 https://nytimes.com/2025/10/24/world/asia/queen-sirikit-thailand-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/24/us/politics/trump-food-stamps-shutdown.html
 **‘Slam Frank,’ a Daring Satire, and ‘Crooked Cross’ Demand Our Attention**\
 `A gleefully provocative new musical and a quiet 1930s domestic drama speak to each other across time, resounding quite loudly in our present.`\
 https://nytimes.com/2025/10/24/theater/slam-frank-crooked-cross-review.html
-
-**Who is Damon Jones, the former NBA player charged with sharing LeBron injury secrets?**\
-`"He’s a really funny dude. He’s a great storyteller. But he was never a part of the staff," a team source said of Jones.`\
-https://nytimes.com/athletic/6747914/2025/10/24/damon-jones-former-nba-player-feds-info-lakers/
-
-**Trump Is Putting Election Deniers in Charge of Elections**\
-`Now that he is back in the White House, he has made some of them more powerful than ever.`\
-https://nytimes.com/2025/10/24/us/politics/election-deniers-trump-administration.html
-
-**Nebojsa Pavkovic, Yugoslav General Convicted of War Crimes, Dies at 79**\
-`Found guilty in 2009, he had been serving a 22-year sentence but was released for health reasons at the request of the Serbian government.`\
-https://nytimes.com/2025/10/24/world/europe/nebojsa-pavkovic-dead.html
 
