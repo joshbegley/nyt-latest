@@ -1,3 +1,19 @@
+**Wemby's masterpiece leads to surge in NBA MVP odds after just one game**\
+`Victor Wembanyama surged up the MVP odds board with his massive season debut on Wednesday.`\
+https://nytimes.com/athletic/6744049/2025/10/24/victor-wembanyama-nba-mvp-odds/
+
+**Who Were the Palestinian Prisoners Freed by Israel?**\
+`Under the cease-fire deal, Israel released 250 Palestinians serving long sentences for violent attacks. More than 1,700 others had been detained in Gaza and held without charge.`\
+https://nytimes.com/2025/10/24/world/middleeast/israel-palestinian-prisoners-freed.html
+
+**Olivia Dean Adds Love to the Mix**\
+`The chart-topping British singer’s music defies genres, because she’s more interested in feelings than styles.`\
+https://nytimes.com/2025/10/24/arts/music/olivia-dean.html
+
+**Benitez appointed Panathinaikos head coach**\
+`Benitez returns to management after being sacked by Celta Vigo in March 2024, where he won just five of 28 games in charge.`\
+https://nytimes.com/athletic/6744689/2025/10/24/rafa-benitez-panathinaikos-manager/
+
 **Federal Workers Have Started Missing Paychecks During the Shutdown**\
 `Thousands missed their first paychecks this week, with no end in sight to the government shutdown that began on Oct. 1.`\
 https://nytimes.com/2025/10/24/us/politics/federal-workers-missing-paychecks-shutdown.html
