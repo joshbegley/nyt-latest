@@ -1,3 +1,11 @@
+**2 People Shot at Protest Site Outside Coast Guard Base in California**\
+`Coast Guard police fired rounds at a moving van that accelerated toward the base in reverse and did not follow commands to stop, the authorities say.`\
+https://nytimes.com/2025/10/24/us/coast-guard-shots-fired-protest.html
+
+**Red Sox begin making big changes to address shaky defense**\
+`After leading the league in errors, the Red Sox will double the number of coaches in the minor leagues who are focused full-time on defense.`\
+https://nytimes.com/athletic/6746773/2025/10/24/red-sox-defense-coaching-changes/
+
 **Carter Hart signing 2-year contract to join Vegas Golden Knights: Sources**\
 `Hart had joined Vegas on a professional tryout agreement last week.`\
 https://nytimes.com/athletic/6747165/2025/10/24/carter-hart-contract-golden-knights/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6747195/2025/10/24/bucks-vs-raptors-stream-how-to-w
 **How to watch Hawks vs. Magic: Time, TV, streaming**\
 `Find out how to watch the Atlanta Hawks play the Orlando Magic, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6747190/2025/10/24/hawks-vs-magic-stream-how-to-watch-oct-24/
-
-**How to watch Maple Leafs vs. Sabres: Time, TV, streaming**\
-`Find out how to watch the Toronto Maple Leafs play the Buffalo Sabres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6747192/2025/10/24/maple-leafs-vs-sabres-stream-how-to-watch-oct-24/
-
-**How to watch Capitals vs. Blue Jackets: Time, TV, streaming**\
-`Find out how to watch the Washington Capitals play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6747188/2025/10/24/capitals-vs-blue-jackets-stream-how-to-watch-oct-24/
 
