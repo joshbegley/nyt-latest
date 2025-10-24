@@ -1,3 +1,7 @@
+**D.C. Seeks to Block National Guard Deployment in Court**\
+`During a hearing on Friday, lawyers told a judge that National Guard troops sent from Republican-led states had been conducting conduct law enforcement work.`\
+https://nytimes.com/2025/10/24/us/politics/national-guard-dc-lawsuit.html
+
 **What Happens When a Storm Like Melissa Doesn’t Move**\
 `Melissa is moving at a sluggish pace and could dump a lot of rain in one place. Jamaica and Haiti are likely to see the most.`\
 https://nytimes.com/2025/10/24/weather/hurricane-melissa-slow-forecast-haiti-jamaica-rain.html
