@@ -1,3 +1,7 @@
+**Chargers-Vikings takeaways: Justin Herbert dominates, Carson Wentz not so much**\
+`Herbert threw three touchdown passes to lead the Chargers to a 37-10 rout of the Vikings on Thursday night.`\
+https://nytimes.com/athletic/6745428/2025/10/23/chargers-vikings-takeaways-nfl/
+
 **'There's gonna be hiccups': NBA coaches, player react to NBA betting investigation**\
 `"Our players are well aware, all players are well aware, of what they're allowed to do, what they're not allowed to do," Steve Kerr said.`\
 https://nytimes.com/athletic/6745819/2025/10/23/nba-coaches-players-react-to-betting-scandal/
