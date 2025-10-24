@@ -1,3 +1,7 @@
+**The Giants fan's guide to becoming the biggest Toronto Blue Jays fan on the planet**\
+`The World Series isn't fun without a rooting interest. It's not hard to root against LA but this is why you should root for the Blue Jays.`\
+https://nytimes.com/athletic/6744100/2025/10/24/sf-giants-world-series-rooting-toronto-blue-jays/
+
 **The U.S. is evacuating some workers from Guantánamo as Melissa inches closer to Cuba.**\
 `By Carol Rosenberg`\
 https://nytimes.com/live/2025/10/23/weather/tropical-storm-melissa-hurricane/guantanamo-bay-cuba-hurricane-melissa
@@ -29,8 +33,4 @@ https://nytimes.com/video/podcasts/100000010479107/what-it-means-that-apps-are-c
 **Amid the Rubble of the East Wing, Lessons in How Trump Exercises Power**\
 `From the first day of his second term, President Trump has taken an ends-justify-the-means approach to his presidency.`\
 https://nytimes.com/2025/10/24/us/politics/east-wing-trump-power.html
-
-**A.I. Slop Is Cocomelon for Adults**\
-`Kevin Roose and Casey Newton, the hosts of “Hard Fork” at The New York Times, watch and react to the viral glass fruit-cutting A.I. slop.`\
-https://nytimes.com/video/podcasts/100000010479110/ai-slop-is-cocomelon-for-adults.html
 
