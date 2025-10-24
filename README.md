@@ -1,3 +1,7 @@
+**Trump Says He’s Cutting Off Trade Negotiations With Canada**\
+`The president said his move, which again throws relations with one of the United States’ closest trading partners into turmoil, was motivated by an advertisement he deemed fraudulent.`\
+https://nytimes.com/2025/10/23/us/politics/trump-trade-negotiation-canada.html
+
 **Thunder edge Pacers in double OT in NBA Finals rematch**\
 `The Pacers, playing without Tyrese Haliburton, could not overcome Gilgeous-Alexander, the 2025 regular-season and NBA Finals MVP.`\
 https://nytimes.com/athletic/6745815/2025/10/23/shai-gilgeous-alexander-drops-55-as-thunder-edge-pacers-in-double-ot-in-nba-finals-rematch/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/10/23/us/los-angeles-palisades-fire-suspect-arraigned-c
 **The NBA once opposed legalized sports betting. Under Adam Silver, it has embraced it**\
 `In light of Thursday's federal indictments, we track the NBA’s evolving attitude on legalized sports betting under commissioner Adam Silver.`\
 https://nytimes.com/athletic/6745307/2025/10/23/nba-gambling-betting-timeline-adam-silver/
-
-**Rangers' Matt Rempe injured after fighting Sharks' Ryan Reaves**\
-`The two NHL heavyweights exchanged blows in the first period, and Rempe left the penalty box early to go to the dressing room.`\
-https://nytimes.com/athletic/6745503/2025/10/23/rangers-matt-rempe-injury-fight-ryan-reaves/
 
