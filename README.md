@@ -1,3 +1,11 @@
+**How Lunar Photography Brought the Heavens Down to Earth**\
+`No explorers ever traveled farther from home than the Apollo astronauts. As artists, they’re still underrated.`\
+https://nytimes.com/interactive/2025/10/24/arts/moon-photos-apollo-nasa.html
+
+**College football Week 9 projected scores: Model predicts every FBS vs. FBS game**\
+`Austin Mock's model projects the point differentials and point totals for every FBS vs. FBS college football game in Week 9.`\
+https://nytimes.com/athletic/6747543/2025/10/24/college-football-week-9-projected-scores-model/
+
 **Texas Cheat ’Em? U.S. Details How Mob Lured High Rollers Into Poker Trap**\
 `A Manhattan apartment was at the center of a Mafia-run ring that used former N.B.A. players as bait and technology to read cards, prosecutors say.`\
 https://nytimes.com/2025/10/24/nyregion/nba-mafia-rigged-poker-games.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/10/24/world/europe/life-sentence-french-girl-murder.htm
 **Trump Officials Float New Plan for Abrego Garcia: Send Him to Liberia**\
 `The proposal was the latest twist in a byzantine saga that has transformed the Salvadoran migrant into one of the best-known symbols of President Trump’s aggressive deportation agenda.`\
 https://nytimes.com/2025/10/24/us/politics/trump-abrego-garcia-liberia.html
-
-**Man Utd raise concerns with Premier League over number of midweek games**\
-`Between now and Christmas, United will play only one match at Old Trafford on a weekend — against Brighton & Hove Albion on Saturday.`\
-https://nytimes.com/athletic/6747209/2025/10/24/manchester-united-fixtures-midweek/
-
-**What It Means That Apps Are Coming to ChatGPT**\
-`Kevin Roose and Casey Newton, the hosts of “Hard Fork” at The New York Times, discuss OpenAI’s recent announcement that apps will soon be integrated into ChatGPT.`\
-https://nytimes.com/video/podcasts/100000010479107/what-it-means-that-apps-are-coming-to-chatgpt.html
 
