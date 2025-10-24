@@ -1,3 +1,7 @@
+**Nights Out With Malala, Making Time to Be Herself**\
+`Basketball and Dua Lipa are on the schedule during a New York jaunt with the Nobel laureate, whose intimate memoir finds her juggling activism and married life.`\
+https://nytimes.com/2025/10/24/books/review/malala-yousafzai-memoir-finding-my-way.html
+
 **Lengthy Execution by Nitrogen Gas in Alabama Renews Concerns Over Method**\
 `Anthony Boyd was the eighth person executed by nitrogen gas since Alabama began using the method last year. His execution came over the strenuous objection of three liberal Supreme Court justices.`\
 https://nytimes.com/2025/10/24/us/alabama-nitrogen-execution-anthony-boyd.html
@@ -29,8 +33,4 @@ https://nytimes.com/card/2025/10/24/smarter-living/wirecutter/
 **What are prop bets, and what does the latest gambling scandal mean for regulation?**\
 `Experts say that some form of regulation when it comes to prop bets is likely necessary to preserve the integrity of the game.`\
 https://nytimes.com/athletic/6747376/2025/10/24/prop-bets-nba-gambling-scandal/
-
-**A Missing Picasso Is Found, and a Small Spanish Town Loses Its Air of Mystery**\
-`For a brief moment, the puzzle of what had happened to Pablo Picasso’s “Still Life With Guitar” infected Deifontes with caper fever.`\
-https://nytimes.com/2025/10/24/world/europe/spain-picasso-missing.html
 

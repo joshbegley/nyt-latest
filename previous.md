@@ -1,3 +1,15 @@
+**Lengthy Execution by Nitrogen Gas in Alabama Renews Concerns Over Method**\
+`Anthony Boyd was the eighth person executed by nitrogen gas since Alabama began using the method last year. His execution came over the strenuous objection of three liberal Supreme Court justices.`\
+https://nytimes.com/2025/10/24/us/alabama-nitrogen-execution-anthony-boyd.html
+
+**Is it time to sell your Shohei Ohtani baseball cards?**\
+`Collectors are faced with a dilemma as Ohtani's cards rapidly rise in value.`\
+https://nytimes.com/athletic/6747458/2025/10/24/shohei-ohtani-rookie-card-values/
+
+**Blue Jays confident in Bo Bichette's health, athleticism ahead of Game 1 start at second**\
+`Bichette has never played second base in the major leagues. He gets his first crack at the position in Game 1 of the World Series.`\
+https://nytimes.com/athletic/6747862/2025/10/24/blue-jays-bo-bichette-second-base-world-series/
+
 **Food Banks Offer Groceries for Furloughed Federal Workers**\
 `In the Washington region, the Capital Area Food Bank is providing food distribution specifically for federal workers and contractors who are going without pay.`\
 https://nytimes.com/2025/10/24/us/politics/food-banks-federal-workers-trump.html
@@ -21,20 +33,4 @@ https://nytimes.com/athletic/6747376/2025/10/24/prop-bets-nba-gambling-scandal/
 **A Missing Picasso Is Found, and a Small Spanish Town Loses Its Air of Mystery**\
 `For a brief moment, the puzzle of what had happened to Pablo Picasso’s “Still Life With Guitar” infected Deifontes with caper fever.`\
 https://nytimes.com/2025/10/24/world/europe/spain-picasso-missing.html
-
-**The Island That Keeps the Earth’s Secrets**\
-`Sulawesi, Indonesia, blurs the boundaries between myth and ecology. What might it reveal about our past – or destiny?`\
-https://nytimes.com/interactive/2025/10/24/magazine/sulawesi-indonesia-earth-secrets-biodiversity.html
-
-**Canucks acquire Lukas Reichel in trade with Blackhawks**\
-`A 2020 first-round pick, Reichel going from Chicago to Vancouver is a classic change-of-scenery trade.`\
-https://nytimes.com/athletic/6747844/2025/10/24/canucks-trade-blackhawks-lukas-reichel/
-
-**Falcons QB Michael Penix Jr. listed as questionable for Dolphins game**\
-`With Penix Jr. nursing a bone bruise in his left knee, a decision on the starter won't be made until Sunday.`\
-https://nytimes.com/athletic/6747652/2025/10/24/falcons-michael-penix-jr-kirk-cousins/
-
-**Landslide Kills 3 in Haiti, and More Rain From Tropical Storm Melissa Is on the Way**\
-`Officials across the Caribbean prepare for days of heavy rain from the storm.`\
-https://nytimes.com/2025/10/24/weather/tropical-storm-melissa-haiti-dominican-republic-jamaica.html
 
