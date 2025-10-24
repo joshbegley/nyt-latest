@@ -1,3 +1,7 @@
+**Sirikit, Glamorous Former Queen of Thailand Who Wielded Power, Dies at 93**\
+`As the wife of King Bhumibol Adulyadej, she supported local causes and traveled the world, charming government leaders and the public.`\
+https://nytimes.com/2025/10/24/world/asia/queen-sirikit-thailand-dead.html
+
 **Sirikit, Thailand’s Former Queen, Is Dead at 93**\
 `As the glamorous wife of King Bhumibol Adulyadej, she supported local causes and traveled the world, charming government leaders and the public.`\
 https://nytimes.com/2025/10/24/world/asia/queen-sirikit-thailand-dead.html
