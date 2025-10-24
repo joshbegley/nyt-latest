@@ -1,3 +1,7 @@
+**Plotting a Heist? This German Company Wants to Give You a Lift.**\
+`The brazen daylight robbery of the Louvre on Sunday has turned into a marketing opportunity for Böcker, a German maker of cranes and elevators whose product was used in the heist.`\
+https://nytimes.com/2025/10/24/world/europe/louvre-robbery-german-campaign-bocker.html
+
 **Plotting a Heist? This German Company Wants to Give You a Lift**\
 `The brazen daylight robbery of the Louvre on Sunday has turned into a marketing opportunity for Böcker, a German maker of cranes and elevators whose product was used in the heist.`\
 https://nytimes.com/2025/10/24/world/europe/louvre-robbery-german-campaign-bocker.html
