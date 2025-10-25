@@ -1,3 +1,7 @@
+**Missouri QB Beau Pribula leaves Vanderbilt game with leg injury**\
+`Missouri quarterback Beau Pribula, a Penn State transfer, left Saturday's game with Vanderbilt with a leg injury in the third quarter.`\
+https://nytimes.com/athletic/6749971/2025/10/25/beau-pribula-missouri-injury-vanderbilt/
+
 **Neutrogena Recalls Makeup Wipes Over Bacterial Contamination Concerns**\
 `The recalled wipes were distributed in Florida, Georgia, South Carolina and Texas, according to the Food and Drug Administration.`\
 https://nytimes.com/2025/10/25/business/neutrogena-makeup-wipes-recall.html
