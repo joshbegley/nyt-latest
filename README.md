@@ -1,3 +1,7 @@
+**How to watch Islanders vs. Flyers: Time, TV, streaming**\
+`Find out how to watch the New York Islanders play the Philadelphia Flyers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6748960/2025/10/25/islanders-vs-flyers-stream-how-to-watch-oct-25/
+
 **Toronto's Daulton Varsho tries to hit grounders to the pitcher. The Dodgers wish he would**\
 `The Blue Jays outfielder tied Game 1 with a 109-mph missile over the center-field fence, much higher and farther than its intended target.`\
 https://nytimes.com/athletic/6748788/2025/10/25/daulton-varsho-blue-jays-home-run/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6747096/2025/10/25/nba-wembanyama-luka-doncic-break
 **Hugo González promising in debut, but 0-2 Celtics still learning 'new way of life'**\
 `González drew the Jalen Brunson assignment during his first NBA minutes against the Knicks.`\
 https://nytimes.com/athletic/6748633/2025/10/25/celtics-knicks-hugo-gonzalez-nba-debut/
-
-**NASCAR Cup Series at Martinsville odds, predictions for final cut before Championship**\
-`Sunday's race will decide the Championship 4. How might the day play out? `\
-https://nytimes.com/athletic/6747396/2025/10/25/nascar-cup-series-martinsville-odds-predictions-playoffs/
 

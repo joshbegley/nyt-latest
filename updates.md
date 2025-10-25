@@ -1,3 +1,7 @@
+**Toronto's Daulton Varsho tries to hit grounders to the pitcher. The Dodgers wish he would**\
+`The Blue Jays outfielder tied Game 1 with a 109-mph missile over the center-field fence, much higher and farther than its intended target.`\
+https://nytimes.com/athletic/6748788/2025/10/25/daulton-varsho-blue-jays-home-run/
+
 **Personal History**\
 `Good morning. The good things in our lives are the result of fantastic webs of interconnected prerequisites.`\
 https://nytimes.com/2025/10/25/briefing/personal-history.html
