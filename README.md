@@ -1,3 +1,7 @@
+**Jalen Duren ejected for elbowing Amen Thompson, but Pistons rally to defeat Rockets**\
+`The Pistons' center held his jersey high as he departed the floor, but his team banded together to send Houston to its second straight loss.`\
+https://nytimes.com/athletic/6748626/2025/10/25/jalen-duren-ejected-amen-thompson-pistons-rockets/
+
 **How McCaffrey went from the USWNT to being Public Enemy No 1 in England's lower leagues**\
 `The American striker, and businesswoman, has big plans for the east London club`\
 https://nytimes.com/athletic/6713189/2025/10/25/steph-mccaffrey-uswnt-leyton-orient/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6746530/2025/10/25/real-madrid-barcelona-el-clasico
 **A new Clasico fault line for Real Madrid and Barcelona: The Miami fallout**\
 `A dramatic week in Spanish football culminates with El Clasico on Sunday, following fresh tension between Real Madrid and Barcelona`\
 https://nytimes.com/athletic/6747112/2025/10/25/real-madrid-barcelona-clasico-miami-fallout/
-
-**Where Trump Is Headed in Asia, and What Each Country Wants From Him**\
-`From Kuala Lumpur to Gyeongju, President Trump is casting himself as a deal-maker and peace negotiator, while a wary region looks for tariff relief and steadier ties.`\
-https://nytimes.com/2025/10/25/world/asia/trump-japan-korea-china.html
 
