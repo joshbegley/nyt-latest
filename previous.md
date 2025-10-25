@@ -1,3 +1,11 @@
+**Man Struck and Killed on Virginia Highway While Fleeing ICE**\
+`ICE officers were in the process of detaining Josue Castro-Rivera, 24, of Honduras, before he ran onto a busy highway in Norfolk and was struck by a pickup truck, officials said.`\
+https://nytimes.com/2025/10/25/us/ice-honduran-killed-virginia.html
+
+**Vandy tops Missouri as last-second Hail Mary comes up inches short**\
+`In one of the biggest games in Vanderbilt history, a last-second Hail Mary by Missouri came up just short to keep Vandy's CFP dreams going.`\
+https://nytimes.com/athletic/6750062/2025/10/25/vanderbilt-missouri-score-result-football/
+
 **Trump Administration Live Updates: President to Start Asia Visit With Tariffs and China on Agenda**\
 `The swing through Malaysia, Japan and South Korea is expected to test President Trump’s skills as a statesman and negotiator.`\
 https://nytimes.com/live/2025/10/25/us/trump-asia-news
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6749989/2025/10/25/arne-slot-liverpool-summer-signi
 **Lando Norris storms to Mexico GP pole as title rivals Verstappen and Piastri struggle**\
 `McLaren's Lando Norris scored a dominant pole position for the 2025 Mexico City GP, with his F1 title rivals struggling behind`\
 https://nytimes.com/athletic/6749941/2025/10/25/mexico-gp-qualifying-results/
-
-**Kraken's Brandon Montour reveals brother’s death from ALS**\
-`The emotional Seattle defenseman said his brother, Cameron Noble-Montour, is "probably smiling and chirping me up there for crying."`\
-https://nytimes.com/athletic/6749934/2025/10/25/kraken-brandon-montour-brother-death-als/
-
-**Talkin’ ’Bout My Generation**\
-`Gary Larson and Doug Peterson time-traveled for decades to make this puzzle.`\
-https://nytimes.com/2025/10/25/crosswords/daily-puzzle-2025-10-26.html
 

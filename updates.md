@@ -1,3 +1,11 @@
+**Man Struck and Killed on Virginia Highway While Fleeing ICE**\
+`ICE officers were in the process of detaining Josue Castro-Rivera, 24, of Honduras, before he ran onto a busy highway in Norfolk and was struck by a pickup truck, officials said.`\
+https://nytimes.com/2025/10/25/us/ice-honduran-killed-virginia.html
+
+**Vandy tops Missouri as last-second Hail Mary comes up inches short**\
+`In one of the biggest games in Vanderbilt history, a last-second Hail Mary by Missouri came up just short to keep Vandy's CFP dreams going.`\
+https://nytimes.com/athletic/6750062/2025/10/25/vanderbilt-missouri-score-result-football/
+
 **Trump Administration Live Updates: President to Start Asia Visit With Tariffs and China on Agenda**\
 `The swing through Malaysia, Japan and South Korea is expected to test President Trump’s skills as a statesman and negotiator.`\
 https://nytimes.com/live/2025/10/25/us/trump-asia-news
