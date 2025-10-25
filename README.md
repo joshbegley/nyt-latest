@@ -1,9 +1,13 @@
-**Lando Norris sweeps to commanding Mexico GP pole as Verstappen and Piastri toil**\
+**Slot says Liverpool defeat one of his worst**\
+`The Premier League champions have lost four games in a row after their 3-2 defeat to Brentford on Saturday.`\
+https://nytimes.com/athletic/6749989/2025/10/25/arne-slot-liverpool-summer-signings-poor-form/
+
+**Lando Norris storms to Mexico GP pole as title rivals Verstappen and Piastri struggle**\
 `McLaren's Lando Norris scored a dominant pole position for the 2025 Mexico City GP, with his F1 title rivals struggling behind`\
 https://nytimes.com/athletic/6749941/2025/10/25/mexico-gp-qualifying-results/
 
 **Kraken's Brandon Montour reveals brother’s death from ALS**\
-`The emotional Seattle defenseman said his brother is "probably smiling and chirping me up there for crying."`\
+`The emotional Seattle defenseman said his brother, Cameron Noble-Montour, is "probably smiling and chirping me up there for crying."`\
 https://nytimes.com/athletic/6749934/2025/10/25/kraken-brandon-montour-brother-death-als/
 
 **Talkin’ ’Bout My Generation**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6744776/2025/10/25/liverpool-brentford-result-analy
 **Trump Announces Tariff Increase on Canada Over Reagan Ad Spat**\
 `The ad, which will stop airing on Monday, used audio of a 1987 address by Ronald Reagan making a case against tariffs.`\
 https://nytimes.com/2025/10/25/world/canada/trump-tariffs-reagan-ad.html
-
-**Ex-L.A.P.D. Officer Indicted in On-Duty Shooting of Unarmed Homeless Man**\
-`Clifford Proctor, 60, was charged with second-degree murder in the 2015 killing of Brendon Glenn during an attempted arrest.`\
-https://nytimes.com/2025/10/25/us/lapd-homeless-shooting-murder-charge.html
 
