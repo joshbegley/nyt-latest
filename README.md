@@ -1,3 +1,11 @@
+**North Texas QB sets school, conference records with 608 passing yards**\
+`Mestemaker's passing yardage total is the 10th-highest single game total by an FBS quarterback since 1995.`\
+https://nytimes.com/athletic/6748483/2025/10/24/north-texas-qb-drew-mestemaker-record/
+
+**Dodgers-Blue Jays Game 1 takeaways: Toronto jumps out to series lead with huge sixth inning**\
+`The Blue Jays chased Blake Snell in the sixth inning and blew Game 1 of the World Series open with a grand slam from Addison Barger.`\
+https://nytimes.com/athletic/6748163/2025/10/24/dodgers-blue-jays-world-series-game-1-results-takeaways-mlb/
+
 **Blue Jays smash Dodger mystique with home run binge to take World Series Game 1**\
 `Dodger starting pitching came into the night with an impeccable record. The Blue Jays quickly marred that as they coasted to a Game 1 win. `\
 https://nytimes.com/athletic/6748522/2025/10/24/blue-jays-win-game-1-world-series-dodgers/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/24/crosswords/daily-puzzle-2025-10-25.html
 **Trump Administration Plans a Shake-Up at ICE to Speed Deportations**\
 `The preliminary plan stems from frustration over the pace of the deportations, which are lagging behind President Trump’s demands.`\
 https://nytimes.com/2025/10/24/us/politics/trump-deportations-ice.html
-
-**Dodgers spending, success aren't grounds for a salary cap, says union head Tony Clark**\
-`Clark does not believe that the success of the Dodgers means only a cap can fix the league's imbalances.  `\
-https://nytimes.com/athletic/6748385/2025/10/24/dodgers-world-series-spending-salary-cap-tony-clark/
-
-**Immigration Crackdown Spreads Through Chicago, Including Wealthy Neighborhoods**\
-`Federal agents detained a man on the city’s North Side on Friday, and residents emerged from their homes, yelling and blowing whistles.`\
-https://nytimes.com/2025/10/24/us/trump-immigration-crackdown-chicago-lakeview.html
 
