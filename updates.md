@@ -1,3 +1,7 @@
+**Talkin’ ’Bout My Generation**\
+`Gary Larson and Doug Peterson time-traveled for decades to make this puzzle.`\
+https://nytimes.com/2025/10/25/crosswords/daily-puzzle-2025-10-26.html
+
 **Missouri QB Beau Pribula leaves Vanderbilt game with leg injury**\
 `Missouri quarterback Beau Pribula, a Penn State transfer, left Saturday's game with Vanderbilt with a leg injury in the third quarter.`\
 https://nytimes.com/athletic/6749971/2025/10/25/beau-pribula-missouri-injury-vanderbilt/
