@@ -1,3 +1,15 @@
+**Sabres thoughts: Mattias Samuelsson's big night, Alex Lyon's heroics lead to win over Leafs**\
+`Samuelsson scored twice in the Sabres' 5-3 win over the Maple Leafs on Friday.`\
+https://nytimes.com/athletic/6748530/2025/10/24/sabres-maple-leafs-mattias-samuelsson-alex-lyon/
+
+**Mavericks fans resume 'Fire Nico' chants after loss to Wizards**\
+`The crowd calls for Harrison’s job are growing significantly louder — literally.`\
+https://nytimes.com/athletic/6748558/2025/10/24/mavericks-fans-fire-nico-chants-resume/
+
+**‘We don't need you’: Blue Jays fans let Shohei Ohtani how they feel in Game 1 rout**\
+`As it turns out, the Blue Jays didn't need Ohtani on Friday to win Game 1 of the 2025 World Series. `\
+https://nytimes.com/athletic/6748581/2025/10/24/shohei-ohtani-toronto-fans-chant/
+
 **Blue Jays smash Dodger mystique with home run binge to take World Series Game 1**\
 `Dodger starting pitching came into Friday with an impeccable record. The Blue Jays quickly marred that as they coasted to an 11-4 win.`\
 https://nytimes.com/athletic/6748522/2025/10/24/blue-jays-win-game-1-world-series-dodgers/
