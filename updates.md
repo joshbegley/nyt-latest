@@ -1,3 +1,15 @@
+**Justice Department Will Monitor Elections in California and New Jersey**\
+`The Trump administration said that monitors will watch polling in two states, led by Democrats, where key races or issues are on the ballot.`\
+https://nytimes.com/2025/10/24/us/politics/doj-election-monitors-california-new-jersey.html
+
+**Trump Leaves Behind a Reeling Washington to Chase a Deal With China**\
+`President Trump is embarking on a six-day diplomatic tour of Asia, testing his role as a statesman and negotiator as he pursues a trade deal with Beijing.`\
+https://nytimes.com/2025/10/24/us/politics/trump-china-trade-deal.html
+
+**Adams Eyes a Reality TV Star Who Could Help Block a Mamdani Rent Freeze**\
+`Mayor Eric Adams has only weeks left in office, but he can use them to appoint people with the ability to shape policy beyond his tenure.`\
+https://nytimes.com/2025/10/24/nyregion/eleonora-srugo-eric-adams-rent-board.html
+
 **Adams Eyes a Reality TV Star to Help Block a Future Mamdani Rent Freeze**\
 `Mayor Eric Adams has only weeks left in office, but he can use them to appoint people with the ability to shape policy beyond his tenure.`\
 https://nytimes.com/2025/10/24/nyregion/eleonora-srugo-eric-adams-rent-board.html
