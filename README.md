@@ -1,3 +1,7 @@
+**Toronto's Daulton Varsho tries to hit grounders to the pitcher. The Dodgers wish he would**\
+`The Blue Jays outfielder tied Game 1 with a 109-mph missile over the center-field fence, much higher and farther than its intended target.`\
+https://nytimes.com/athletic/6748788/2025/10/25/daulton-varsho-blue-jays-home-run/
+
 **Personal History**\
 `Good morning. The good things in our lives are the result of fantastic webs of interconnected prerequisites.`\
 https://nytimes.com/2025/10/25/briefing/personal-history.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6748633/2025/10/25/celtics-knicks-hugo-gonzalez-nba
 **NASCAR Cup Series at Martinsville odds, predictions for final cut before Championship**\
 `Sunday's race will decide the Championship 4. How might the day play out? `\
 https://nytimes.com/athletic/6747396/2025/10/25/nascar-cup-series-martinsville-odds-predictions-playoffs/
-
-**My Best Friend’s Affair Is Eating at Me. Should I Tell?**\
-`I hoped it would end. It hasn’t.`\
-https://nytimes.com/2025/10/25/magazine/magazine-email/best-friend-affair-ethics.html
 
