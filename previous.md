@@ -1,3 +1,7 @@
+**Benita Valente, Acclaimed Bel Canto Soprano, Is Dead at 91**\
+`Her career spanned decades, included performances at the Metropolitan Opera and brought her effusive praise from critics and operaphiles.`\
+https://nytimes.com/2025/10/25/arts/music/benita-valente-dead.html
+
 **How to watch Suns vs. Nuggets: Time, TV, streaming**\
 `Find out how to watch the Phoenix Suns play the Denver Nuggets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6749818/2025/10/25/suns-vs-nuggets-stream-how-to-watch-oct-25/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/25/us/arthur-waskow-dead.html
 **Judge Dismisses Most Claims Against Tate Brothers in Florida Lawsuit**\
 `Andrew Tate, an online influencer, and his brother Tristan, have been in a legal battle with a woman who accused them of harassing her after she gave testimony in Romania.`\
 https://nytimes.com/2025/10/25/world/europe/andrew-tate-florida-charges.html
-
-**WATCH: The biggest (and luckiest) NFL play of the season**\
-`The Broncos entered the fourth quarter against the Giants down 19-0 and proceeded to score 33 points for the win.`\
-https://nytimes.com/athletic/6748016/2025/10/25/denver-broncos-comeback-video-analysis/
 

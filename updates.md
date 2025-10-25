@@ -1,3 +1,7 @@
+**Benita Valente, Acclaimed Bel Canto Soprano, Is Dead at 91**\
+`Her career spanned decades, included performances at the Metropolitan Opera and brought her effusive praise from critics and operaphiles.`\
+https://nytimes.com/2025/10/25/arts/music/benita-valente-dead.html
+
 **How to watch Suns vs. Nuggets: Time, TV, streaming**\
 `Find out how to watch the Phoenix Suns play the Denver Nuggets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6749818/2025/10/25/suns-vs-nuggets-stream-how-to-watch-oct-25/
