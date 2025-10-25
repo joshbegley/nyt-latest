@@ -1,3 +1,7 @@
+**Take a Look at Rare Photos of Red Lightning in New Zealand**\
+`Three photographers were able to capture the red sprite phenomenon, when lightning flashes above thunderstorms, in high definition against the Milky Way.`\
+https://nytimes.com/2025/10/25/science/red-lightning-new-zealand.html
+
 **A night of comebacks for Spain felt like the start of a new era under Bermudez**\
 `Spain beat Sweden 4-0 on Friday night but the return of several players felt like a significant moment of change`\
 https://nytimes.com/athletic/6748697/2025/10/25/spain-new-era-jenni-hermoso/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6748274/2025/10/25/leeds-united-brenden-aaronson-we
 **How to watch Dodgers at Blue Jays: World Series Game 2 Time, TV, streaming**\
 `Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6748694/2025/10/25/how-to-watch-dodgers-vs-blue-jays-world-series-game-2-tv-channel-and-streaming-options-for-october-25/
-
-**At home opener, some Raptors fans get distracted by World Series 'neighbours'**\
-`The Raptors crowd, generally decked out in red and black, sported far more blue than usual with Blue Jays gear from previous World Series.`\
-https://nytimes.com/athletic/6748446/2025/10/25/at-home-opener-some-raptors-fans-get-distracted-by-world-series-neighbours/
 
