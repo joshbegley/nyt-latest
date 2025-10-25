@@ -1,4 +1,12 @@
-**Newcastle 2 Fulham 1 - How important was Bruno Guimaraes' late winner? How was Botman injured?**\
+**The Briefing: Chelsea 1 Sunderland 2 - Loss shows required level, Garnacho's throwback celebration**\
+`Chelsea fell to a late 2-1 loss to Sunderland on Saturday afternoon`\
+https://nytimes.com/athletic/6744728/2025/10/25/chelsea-sunderland-result-score-report-analysis/
+
+**Trump’s Path of Destruction Is Far-Reaching**\
+`From Venezuela to the East Wing of the White House.`\
+https://nytimes.com/2025/10/25/opinion/trump-venezuela-white-house-mamdani.html
+
+**Newcastle 2 Fulham 1: How important was Bruno Guimaraes' late winner? How was Botman injured?**\
 `Analysis of Newcastle United's Premier League victory at home to Fulham`\
 https://nytimes.com/athletic/6744729/2025/10/25/newcastle-2-fulham-1-highlights/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6748803/2025/10/25/jonathan-kuminga-playing-well-wa
 **Donor Who Gave $130 Million to Pay Troops Is Reclusive Heir to Mellon Fortune**\
 `Timothy Mellon is a billionaire and a major financial backer of President Trump.`\
 https://nytimes.com/2025/10/25/us/politics/timothy-mellon-donation-troops.html
-
-**In a game where Luka scored 49, the biggest play for the Lakers was a missed dunk**\
-`Deandre Ayton attacking the rim with force fueled hope inside the Lakers' locker room that this year’s team has a higher ceiling.`\
-https://nytimes.com/athletic/6748738/2025/10/25/lakers-luka-doncic-deandre-ayton-dunk/
-
-**Timberwolves' defense has been nowhere to be found for most of the first 2 games**\
-`After being shredded by Luka Dončić and the Lakers, the Timberwolves are still looking to rediscover their defensive edge.`\
-https://nytimes.com/athletic/6748409/2025/10/25/timberwolves-defense-struggles-lakers/
 

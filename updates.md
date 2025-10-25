@@ -1,3 +1,15 @@
+**The Briefing: Chelsea 1 Sunderland 2 - Loss shows required level, Garnacho's throwback celebration**\
+`Chelsea fell to a late 2-1 loss to Sunderland on Saturday afternoon`\
+https://nytimes.com/athletic/6744728/2025/10/25/chelsea-sunderland-result-score-report-analysis/
+
+**Trump’s Path of Destruction Is Far-Reaching**\
+`From Venezuela to the East Wing of the White House.`\
+https://nytimes.com/2025/10/25/opinion/trump-venezuela-white-house-mamdani.html
+
+**Newcastle 2 Fulham 1: How important was Bruno Guimaraes' late winner? How was Botman injured?**\
+`Analysis of Newcastle United's Premier League victory at home to Fulham`\
+https://nytimes.com/athletic/6744729/2025/10/25/newcastle-2-fulham-1-highlights/
+
 **Newcastle 2 Fulham 1 - How important was Bruno Guimaraes' late winner? How was Botman injured?**\
 `Analysis of Newcastle United's Premier League victory at home to Fulham`\
 https://nytimes.com/athletic/6744729/2025/10/25/newcastle-2-fulham-1-highlights/
