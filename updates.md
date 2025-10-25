@@ -1,3 +1,11 @@
+**How to watch Suns vs. Nuggets: Time, TV, streaming**\
+`Find out how to watch the Phoenix Suns play the Denver Nuggets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6749818/2025/10/25/suns-vs-nuggets-stream-how-to-watch-oct-25/
+
+**How to watch Oilers vs. Kraken: Time, TV, streaming**\
+`Find out how to watch the Edmonton Oilers play the Seattle Kraken, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6749816/2025/10/25/oilers-vs-kraken-stream-how-to-watch-oct-25/
+
 **June Lockhart, Beloved Television Mother, Dies at 100**\
 `She exuded earnest maternal wisdom and wistful contentment as a farm wife on “Lassie” and, later, as an interplanetary castaway on “Lost in Space.”`\
 https://nytimes.com/2025/10/25/arts/television/june-lockhart-dead.html
