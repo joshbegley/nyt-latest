@@ -1,3 +1,7 @@
+**Jalen Duren ejected for elbowing Amen Thompson, but Pistons rally to defeat Rockets**\
+`The Pistons' center held his jersey high as he departed the floor, but his team banded together to send Houston to its second straight loss.`\
+https://nytimes.com/athletic/6748626/2025/10/25/jalen-duren-ejected-amen-thompson-pistons-rockets/
+
 **How McCaffrey went from the USWNT to being Public Enemy No 1 in England's lower leagues**\
 `The American striker, and businesswoman, has big plans for the east London club`\
 https://nytimes.com/athletic/6713189/2025/10/25/steph-mccaffrey-uswnt-leyton-orient/
