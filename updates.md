@@ -1,3 +1,11 @@
+**Virginia thwarts UNC 2-point try in OT to stay unbeaten in ACC, drop Heels to 2-5**\
+`Virginia remained undefeated in ACC play on a day when it didn't score in the second half.`\
+https://nytimes.com/athletic/6749765/2025/10/25/unc-virginia-score-result/
+
+**Francisco Pinto Balsemão, 88, Dies; Portuguese Prime Minister and Press Champion**\
+`In the wake of a revolution, he helped found a leading political party and tried to conciliate warring left and right factions, although his success was limited.`\
+https://nytimes.com/2025/10/25/world/europe/francisco-pinto-balsemao-dead.html
+
 **College Football Playoff 2025 projections: The most likely bracket with Week 9 underway**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/10/25/college-football-playoff-bracket-projections-odds/
