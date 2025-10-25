@@ -1,3 +1,23 @@
+**Trump Administration Live Updates: President to Start Asia Visit With Tariffs and China on Agenda**\
+`The swing through Malaysia, Japan and South Korea is expected to test President Trump’s skills as a statesman and negotiator.`\
+https://nytimes.com/live/2025/10/25/us/trump-asia-news
+
+**The ‘Sleeper Issue’ at the Heart of Trump’s Trade War**\
+`Concern is increasing throughout Southeast Asia as U.S. officials, intent on slowing China, have yet to say how they will define the origin country of imports.`\
+https://nytimes.com/2025/10/25/business/trump-tariffs-southeast-asia-transshipment.html
+
+**Where ‘The Daily’ Gets Its Music**\
+`A conversation with the composers who give the show its signature sound.`\
+https://nytimes.com/2025/10/25/podcasts/the-daily/music-composers.html
+
+**In Trump, Families of Cambodian Troops Detained by Thailand See Hope**\
+`They are expecting President Trump will do for their loved ones what he did for the hostages held by Hamas: set in motion a plan that leads to their release.`\
+https://nytimes.com/2025/10/25/world/asia/trump-cambodia-thailand-peace.html
+
+**A Furniture Town Reels From Trump’s Tariffs (and Braces for More)**\
+`Malaysia’s “Furniture City,” the town of Muar, was already losing ground. Then President Trump put kitchen cabinets in his sights.`\
+https://nytimes.com/2025/10/25/world/asia/malaysia-trump-tariffs-furniture.html
+
 **USWNT forward Lynn Biyendolo announces pregnancy**\
 `Coach Emma Hayes outlined a new “360 approach” ensuring USWNT players receive holistic support through pregnancy.`\
 https://nytimes.com/athletic/6749939/2025/10/25/uswnt-lynn-biyendolo-pregnancy-announcement/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6749934/2025/10/25/kraken-brandon-montour-brother-d
 **Talkin’ ’Bout My Generation**\
 `Gary Larson and Doug Peterson time-traveled for decades to make this puzzle.`\
 https://nytimes.com/2025/10/25/crosswords/daily-puzzle-2025-10-26.html
-
-**Missouri QB Beau Pribula leaves Vanderbilt game with leg injury**\
-`Missouri quarterback Beau Pribula, a Penn State transfer, left Saturday's game with Vanderbilt with a leg injury in the third quarter.`\
-https://nytimes.com/athletic/6749971/2025/10/25/beau-pribula-missouri-injury-vanderbilt/
-
-**Neutrogena Recalls Makeup Wipes Over Bacterial Contamination Concerns**\
-`The recalled wipes were distributed in Florida, Georgia, South Carolina and Texas, according to the Food and Drug Administration.`\
-https://nytimes.com/2025/10/25/business/neutrogena-makeup-wipes-recall.html
-
-**Pep Guardiola admits Manchester City were 'a mess' in Villa Park defeat last season**\
-`Before Sunday's rematch, the Manchester City manager looks back at December's loss there as a low point for his 2024-25 side`\
-https://nytimes.com/athletic/6746995/2025/10/25/pep-guardiola-man-city-mess-last-season/
-
-**Ravens clarify Lamar Jackson's injury report status in statement**\
-`"Because Lamar didn’t take starter reps in practice, we updated our report to reflect his practice participation," the Ravens stated.`\
-https://nytimes.com/athletic/6749873/2025/10/25/lamar-jackson-injury-update-report-ravens/
-
-**The Briefing: Brentford 3 Liverpool 2 - Is Slot's title defence already over?**\
-`The major talking points dissected from a dramatic game at the Gtech Community Stadium`\
-https://nytimes.com/athletic/6744776/2025/10/25/liverpool-brentford-result-analysis/
 
