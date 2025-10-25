@@ -1,3 +1,11 @@
+**Rutgers Fraternity Is Closed After Student Is Injured in Hazing Episode**\
+`The Alpha Sigma Phi national organization permanently shut down its Rutgers chapter after concluding that hazing had occurred when a student was critically hurt this month.`\
+https://nytimes.com/2025/10/25/nyregion/rutgers-fraternity-closed-hazing.html
+
+**Commanders to get Terry McLaurin, Deebo Samuel back vs. Chiefs**\
+`Washington won't have QB Jayden Daniels on Sunday, but two other key playmakers will return to the lineup against Kansas City.`\
+https://nytimes.com/athletic/6749351/2025/10/25/commanders-terry-mclaurin-deebo-samuel-return/
+
 **Commanders to get Terry McLaurin, Deebo Samuel back vs. Chiefs**\
 `Washington won't have QB Jayden Daniels on Sunday, but will have two playmakers in the lineup against Kansas City.`\
 https://nytimes.com/athletic/6749351/2025/10/25/commanders-terry-mclaurin-deebo-samuel-return/
