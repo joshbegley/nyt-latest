@@ -1,3 +1,7 @@
+**Commanders to get Terry McLaurin, Deebo Samuel back vs. Chiefs**\
+`Washington won't have QB Jayden Daniels on Sunday, but will have two playmakers in the lineup against Kansas City.`\
+https://nytimes.com/athletic/6749351/2025/10/25/commanders-terry-mclaurin-deebo-samuel-return/
+
 **Canadiens forward Patrik Laine to miss 3-4 months with core muscle injury**\
 `Laine's core muscle injury is the latest in a long line of setbacks and challenges for him.`\
 https://nytimes.com/athletic/6749486/2025/10/25/patrik-laine-injury-out-canadiens/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6749488/2025/10/25/thunder-vs-hawks-stream-how-to-w
 **How to watch Hornets vs. 76ers: Time, TV, streaming**\
 `Find out how to watch the Charlotte Hornets play the Philadelphia 76ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6749485/2025/10/25/hornets-vs-76ers-stream-how-to-watch-oct-25/
-
-**How to watch Kings vs. Predators: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Kings play the Nashville Predators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6749483/2025/10/25/kings-vs-predators-stream-how-to-watch-oct-25/
 

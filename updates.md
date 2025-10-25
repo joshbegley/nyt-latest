@@ -1,3 +1,7 @@
+**Canadiens forward Patrik Laine to miss 3-4 months with core muscle injury**\
+`Laine's core muscle injury is the latest in a long line of setbacks and challenges for him.`\
+https://nytimes.com/athletic/6749486/2025/10/25/patrik-laine-injury-out-canadiens/
+
 **Clippers bounce back in home opener by running and adjusting lineups around stars**\
 `"As we go further in the season, we learn who we are, we learn what works against different teams, and we go from there," James Harden said.`\
 https://nytimes.com/athletic/6749230/2025/10/25/clippers-home-opener-win/
