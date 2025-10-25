@@ -1,3 +1,7 @@
+**Blue Jays smash Dodger mystique with home run binge to take World Series Game 1**\
+`Dodger starting pitching came into Friday with an impeccable record. The Blue Jays quickly marred that as they coasted to an 11-4 win.`\
+https://nytimes.com/athletic/6748522/2025/10/24/blue-jays-win-game-1-world-series-dodgers/
+
 **North Texas QB sets school, conference records with 608 passing yards**\
 `Mestemaker's passing yardage total is the 10th-highest single game total by an FBS quarterback since 1995.`\
 https://nytimes.com/athletic/6748483/2025/10/24/north-texas-qb-drew-mestemaker-record/
