@@ -1,3 +1,7 @@
+**How to watch Islanders vs. Flyers: Time, TV, streaming**\
+`Find out how to watch the New York Islanders play the Philadelphia Flyers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6748960/2025/10/25/islanders-vs-flyers-stream-how-to-watch-oct-25/
+
 **Toronto's Daulton Varsho tries to hit grounders to the pitcher. The Dodgers wish he would**\
 `The Blue Jays outfielder tied Game 1 with a 109-mph missile over the center-field fence, much higher and farther than its intended target.`\
 https://nytimes.com/athletic/6748788/2025/10/25/daulton-varsho-blue-jays-home-run/

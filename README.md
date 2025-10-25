@@ -1,3 +1,7 @@
+**‘Not happy just being here’: Blue Jays assert themselves in World Series Game 1 rout**\
+`The Jays, at least outwardly, believe they’re the best team in baseball. They now stand three wins away from claiming that title.`\
+https://nytimes.com/athletic/6748687/2025/10/25/toronto-blue-jays-game-1-world-series-meeting/
+
 **How to watch Islanders vs. Flyers: Time, TV, streaming**\
 `Find out how to watch the New York Islanders play the Philadelphia Flyers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6748960/2025/10/25/islanders-vs-flyers-stream-how-to-watch-oct-25/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6746526/2025/10/25/cota-turn-1-club/
 **My 2025-26 NBA All-Breakout Team: Wemby, Luka, Bennedict Mathurin and ... Mamu?**\
 `Breakouts come in many forms: from fringe contributor to regular starter, or from superstar to MVP contender.`\
 https://nytimes.com/athletic/6747096/2025/10/25/nba-wembanyama-luka-doncic-breakout-players/
-
-**Hugo González promising in debut, but 0-2 Celtics still learning 'new way of life'**\
-`González drew the Jalen Brunson assignment during his first NBA minutes against the Knicks.`\
-https://nytimes.com/athletic/6748633/2025/10/25/celtics-knicks-hugo-gonzalez-nba-debut/
 
