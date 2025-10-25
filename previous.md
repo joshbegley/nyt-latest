@@ -1,3 +1,11 @@
+**In Playoff separation game, Ole Miss comes back to defeat Oklahoma, strengthening resume**\
+`Ole Miss improved to 7-1 and doesn't have a ranked team left on its schedule.`\
+https://nytimes.com/athletic/6749734/2025/10/25/ole-miss-oklahoma-score-result/
+
+**Bears take another hit in secondary, place nickel CB Kyler Gordon on IR**\
+`The Bears will head into Baltimore, and possibly multiple games, without any of their original starting cornerbacks.`\
+https://nytimes.com/athletic/6749777/2025/10/25/bears-kyler-gordon-injury-updates/
+
 **Benita Valente, Acclaimed Bel Canto Soprano, Is Dead at 91**\
 `Her career spanned decades, included performances at the Metropolitan Opera and brought her effusive praise from critics and operaphiles.`\
 https://nytimes.com/2025/10/25/arts/music/benita-valente-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/25/sports/baseball/blue-jays-dodgers-trump-canada-us
 **Man Utd 4 Brighton 2 - What has Ruben Amorim improved to earn three successive wins?**\
 `Analysis of Manchester United's victory over Brighton in the Premier League`\
 https://nytimes.com/athletic/6744775/2025/10/25/man-utd-4-brighton-2-highlights/
-
-**Arthur Waskow, 92, Influential Rabbi and Activist for Social Justice, Dies**\
-`Through more than two dozen books and two organizations he helped start, he had a profound impact on the intellectual and political life of Jewish congregations in the United States.`\
-https://nytimes.com/2025/10/25/us/arthur-waskow-dead.html
-
-**Judge Dismisses Most Claims Against Tate Brothers in Florida Lawsuit**\
-`Andrew Tate, an online influencer, and his brother Tristan, have been in a legal battle with a woman who accused them of harassing her after she gave testimony in Romania.`\
-https://nytimes.com/2025/10/25/world/europe/andrew-tate-florida-charges.html
 

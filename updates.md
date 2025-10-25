@@ -1,3 +1,11 @@
+**In Playoff separation game, Ole Miss comes back to defeat Oklahoma, strengthening resume**\
+`Ole Miss improved to 7-1 and doesn't have a ranked team left on its schedule.`\
+https://nytimes.com/athletic/6749734/2025/10/25/ole-miss-oklahoma-score-result/
+
+**Bears take another hit in secondary, place nickel CB Kyler Gordon on IR**\
+`The Bears will head into Baltimore, and possibly multiple games, without any of their original starting cornerbacks.`\
+https://nytimes.com/athletic/6749777/2025/10/25/bears-kyler-gordon-injury-updates/
+
 **Benita Valente, Acclaimed Bel Canto Soprano, Is Dead at 91**\
 `Her career spanned decades, included performances at the Metropolitan Opera and brought her effusive praise from critics and operaphiles.`\
 https://nytimes.com/2025/10/25/arts/music/benita-valente-dead.html
