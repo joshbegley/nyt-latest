@@ -1,3 +1,27 @@
+**‘See You in 4 Years’: Trump Drives Canadians Away From Western New York**\
+`The presence of Canadian visitors in Western New York has dropped off since the start of the year following tensions between Washington and Ottawa.`\
+https://nytimes.com/2025/10/25/nyregion/new-york-border-canadian-visitors-trump.html
+
+**New York Is the Center of Basketball. And Basketball Betting Scandals.**\
+`Point shaving. Gambling rings. Illegal poker games. Prosecutors in New York have seen it all.`\
+https://nytimes.com/2025/10/25/nyregion/new-york-basketball-betting-scandals.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/25/crosswords/spelling-bee-forum.html
+
+**How Jordi Fernández, the Brooklyn Nets Coach, Spends an N.B.A. Off Day**\
+`Mr. Fernández starts game days with meditation. But when he’s off, his children keep him running all across the city.`\
+https://nytimes.com/2025/10/25/nyregion/routine-jordi-fernandez-brooklyn-nets.html
+
+**In Letitia James Case, Some Black Women See Their Own Family Sacrifices**\
+`The federal indictment of New York’s attorney general centers on a home she purchased for a relative. It is an act that rings deeply familiar to many.`\
+https://nytimes.com/2025/10/25/nyregion/letitia-james-black-women-tradition-family-support.html
+
+**West Ham face a defining period on and off the pitch. They do not look ready for it**\
+`West Ham fell to a 2-1 defeat against Leeds United on Friday night`\
+https://nytimes.com/athletic/6746911/2025/10/25/west-ham-leeds-transfer-window-analysis/
+
 **Brenden Aaronson's big step forward and a flash of hope for Leeds**\
 `Brenden Aaronson was central to Leeds United's 2-1 win over West Ham on Friday night`\
 https://nytimes.com/athletic/6748274/2025/10/25/leeds-united-brenden-aaronson-west-ham/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6748446/2025/10/25/at-home-opener-some-raptors-fans
 **The New York Times in Print for Saturday, Oct. 25, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/25/todays-new-york-times
-
-**Luka Dončić lights up Timberwolves for 49 points to avenge playoff defeat**\
-`Dončić became the first player in NBA history to begin the season with consecutive 40-point, 10-rebound and 5-assist games.`\
-https://nytimes.com/athletic/6748645/2025/10/25/luka-doncic-highlights-lakers-timberwolves/
-
-**Jalen Duren ejected for elbowing Amen Thompson, but Pistons rally to defeat Rockets**\
-`The Pistons' center held his jersey high as he departed the floor, but his team banded together to send Houston to its second straight loss.`\
-https://nytimes.com/athletic/6748626/2025/10/25/jalen-duren-ejected-amen-thompson-pistons-rockets/
-
-**How McCaffrey went from the USWNT to being Public Enemy No 1 in England's lower leagues**\
-`The American striker, and businesswoman, has big plans for the east London club`\
-https://nytimes.com/athletic/6713189/2025/10/25/steph-mccaffrey-uswnt-leyton-orient/
-
-**What Liverpool can learn from their defeats this season - according to their opponents**\
-`Reporters who cover Crystal Palace, Galatasaray, Chelsea and Man Utd explain what lessons Arne Slot could draw from their teams' wins`\
-https://nytimes.com/athletic/6740397/2025/10/25/liverpool-defeats-tactics-guide/
-
-**Manchester United have one home game in 50 days - here's why that matters**\
-`The team's lighter schedule with no Europe and an early Carabao Cup exit has real consequences for the whole Old Trafford ecosystem`\
-https://nytimes.com/athletic/6746188/2025/10/25/man-utd-fixtures-old-trafford/
-
-**Chauncey Billups fooled me, too, it appears. Why his shocking arrest cuts so deep**\
-`The somber image of Chauncey Billups at his hearing is in stark contrast to who he appeared to be during his time as coach in Portland.`\
-https://nytimes.com/athletic/6748387/2025/10/25/chauncey-billups-arrest-blazers-warriors/
 
