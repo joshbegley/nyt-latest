@@ -1,3 +1,7 @@
+**Personal History**\
+`Good morning. The good things in our lives are the result of fantastic webs of interconnected prerequisites.`\
+https://nytimes.com/2025/10/25/briefing/personal-history.html
+
 **How to watch Brentford vs, Liverpool for U.S. fans: Reds try to shake a crisis stretch**\
 `Here's how fans in U.S. markets can watch Liverpool visit Brentford on Saturday.`\
 https://nytimes.com/athletic/6742627/2025/10/25/liverpool-brentford-us-tv-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6747396/2025/10/25/nascar-cup-series-martinsville-o
 **My Best Friend’s Affair Is Eating at Me. Should I Tell?**\
 `I hoped it would end. It hasn’t.`\
 https://nytimes.com/2025/10/25/magazine/magazine-email/best-friend-affair-ethics.html
-
-**As NFL tight ends enjoy a golden era, passing on lessons has become personal**\
-`Stewards of the tight end position like George Kittle and Logan Paulsen aim to give all they know to a new generation of players.`\
-https://nytimes.com/athletic/6735452/2025/10/25/nfl-tight-ends-career-training-position/
 
