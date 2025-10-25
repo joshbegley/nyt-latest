@@ -1,3 +1,7 @@
+**USWNT forward Lynn Biyendolo announces pregnancy**\
+`Coach Emma Hayes outlined a new “360 approach” ensuring USWNT players receive holistic support through pregnancy.`\
+https://nytimes.com/athletic/6749939/2025/10/25/uswnt-lynn-biyendolo-pregnancy-announcement/
+
 **Slot says Liverpool defeat one of his worst**\
 `The Premier League champions have lost four games in a row after their 3-2 defeat to Brentford on Saturday.`\
 https://nytimes.com/athletic/6749989/2025/10/25/arne-slot-liverpool-summer-signings-poor-form/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6749873/2025/10/25/lamar-jackson-injury-update-repo
 **The Briefing: Brentford 3 Liverpool 2 - Is Slot's title defence already over?**\
 `The major talking points dissected from a dramatic game at the Gtech Community Stadium`\
 https://nytimes.com/athletic/6744776/2025/10/25/liverpool-brentford-result-analysis/
-
-**Trump Announces Tariff Increase on Canada Over Reagan Ad Spat**\
-`The ad, which will stop airing on Monday, used audio of a 1987 address by Ronald Reagan making a case against tariffs.`\
-https://nytimes.com/2025/10/25/world/canada/trump-tariffs-reagan-ad.html
 
