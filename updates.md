@@ -1,3 +1,11 @@
+**North Texas QB sets school, conference records with 608 passing yards**\
+`Mestemaker's passing yardage total is the 10th-highest single game total by an FBS quarterback since 1995.`\
+https://nytimes.com/athletic/6748483/2025/10/24/north-texas-qb-drew-mestemaker-record/
+
+**Dodgers-Blue Jays Game 1 takeaways: Toronto jumps out to series lead with huge sixth inning**\
+`The Blue Jays chased Blake Snell in the sixth inning and blew Game 1 of the World Series open with a grand slam from Addison Barger.`\
+https://nytimes.com/athletic/6748163/2025/10/24/dodgers-blue-jays-world-series-game-1-results-takeaways-mlb/
+
 **Blue Jays smash Dodger mystique with home run binge to take World Series Game 1**\
 `Dodger starting pitching came into the night with an impeccable record. The Blue Jays quickly marred that as they coasted to a Game 1 win. `\
 https://nytimes.com/athletic/6748522/2025/10/24/blue-jays-win-game-1-world-series-dodgers/
