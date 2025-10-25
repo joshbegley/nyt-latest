@@ -1,3 +1,15 @@
+**Man Utd 4 Brighton 2 - What has Ruben Amorim improved to earn three successive wins?**\
+`Analysis of Manchester United's victory over Brighton in the Premier League`\
+https://nytimes.com/athletic/6744775/2025/10/25/man-utd-4-brighton-2-highlights/
+
+**Arthur Waskow, 92, Influential Rabbi and Activist for Social Justice, Dies**\
+`Through more than two dozen books and two organizations he helped start, he had a profound impact on the intellectual and political life of Jewish congregations in the United States.`\
+https://nytimes.com/2025/10/25/us/arthur-waskow-dead.html
+
+**Judge Dismisses Most Claims Against Tate Brothers in Florida Lawsuit**\
+`Andrew Tate, an online influencer, and his brother Tristan, have been in a legal battle with a woman who accused them of harassing her after she gave testimony in Romania.`\
+https://nytimes.com/2025/10/25/world/europe/andrew-tate-florida-charges.html
+
 **WATCH: The biggest (and luckiest) NFL play of the season**\
 `The Broncos entered the fourth quarter against the Giants down 19-0 and proceeded to score 33 points for the win.`\
 https://nytimes.com/athletic/6748016/2025/10/25/denver-broncos-comeback-video-analysis/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6749486/2025/10/25/patrik-laine-injury-out-canadien
 **Clippers bounce back in home opener by running and adjusting lineups around stars**\
 `"As we go further in the season, we learn who we are, we learn what works against different teams, and we go from there," James Harden said.`\
 https://nytimes.com/athletic/6749230/2025/10/25/clippers-home-opener-win/
-
-**How to watch Mammoth vs. Wild: Time, TV, streaming**\
-`Find out how to watch the Utah Mammoth play the Minnesota Wild, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6749498/2025/10/25/mammoth-vs-wild-stream-how-to-watch-oct-25/
-
-**How to watch Canadiens vs. Canucks: Time, TV, streaming**\
-`Find out how to watch the Montreal Canadiens play the Vancouver Canucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6749496/2025/10/25/canadiens-vs-canucks-stream-how-to-watch-oct-25/
-
-**How to watch Blues vs. Red Wings: Time, TV, streaming**\
-`Find out how to watch the St. Louis Blues play the Detroit Red Wings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6749494/2025/10/25/blues-vs-red-wings-stream-how-to-watch-oct-25/
 
