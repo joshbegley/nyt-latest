@@ -1,3 +1,7 @@
+**A night of comebacks for Spain felt like the start of a new era under Bermudez**\
+`Spain beat Sweden 4-0 on Friday night but the return of several players felt like a significant moment of change`\
+https://nytimes.com/athletic/6748697/2025/10/25/spain-new-era-jenni-hermoso/
+
 **How to watch Dodgers at Blue Jays: World Series Game 2 Time, TV, streaming**\
 `Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6748694/2025/10/25/how-to-watch-dodgers-vs-blue-jays-world-series-game-2-tv-channel-and-streaming-options-for-october-25/

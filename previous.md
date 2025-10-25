@@ -1,3 +1,7 @@
+**A night of comebacks for Spain felt like the start of a new era under Bermudez**\
+`Spain beat Sweden 4-0 on Friday night but the return of several players felt like a significant moment of change`\
+https://nytimes.com/athletic/6748697/2025/10/25/spain-new-era-jenni-hermoso/
+
 **‘See You in 4 Years’: Trump Drives Canadians Away From Western New York**\
 `The presence of Canadian visitors in Western New York has dropped off since the start of the year following tensions between Washington and Ottawa.`\
 https://nytimes.com/2025/10/25/nyregion/new-york-border-canadian-visitors-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6748694/2025/10/25/how-to-watch-dodgers-vs-blue-jay
 **At home opener, some Raptors fans get distracted by World Series 'neighbours'**\
 `The Raptors crowd, generally decked out in red and black, sported far more blue than usual with Blue Jays gear from previous World Series.`\
 https://nytimes.com/athletic/6748446/2025/10/25/at-home-opener-some-raptors-fans-get-distracted-by-world-series-neighbours/
-
-**The New York Times in Print for Saturday, Oct. 25, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/10/25/todays-new-york-times
 
