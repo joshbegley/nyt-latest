@@ -1,5 +1,9 @@
+**Rutgers Fraternity Is Closed After Student Is Injured in Hazing Episode**\
+`The Alpha Sigma Phi national organization permanently shut down its Rutgers chapter after concluding that hazing had occurred when a student was critically hurt this month.`\
+https://nytimes.com/2025/10/25/nyregion/rutgers-fraternity-closed-hazing.html
+
 **Commanders to get Terry McLaurin, Deebo Samuel back vs. Chiefs**\
-`Washington won't have QB Jayden Daniels on Sunday, but will have two playmakers in the lineup against Kansas City.`\
+`Washington won't have QB Jayden Daniels on Sunday, but two other key playmakers will return to the lineup against Kansas City.`\
 https://nytimes.com/athletic/6749351/2025/10/25/commanders-terry-mclaurin-deebo-samuel-return/
 
 **Canadiens forward Patrik Laine to miss 3-4 months with core muscle injury**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6749490/2025/10/25/golden-knights-vs-panthers-strea
 **How to watch Thunder vs. Hawks: Time, TV, streaming**\
 `Find out how to watch the Oklahoma City Thunder play the Atlanta Hawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6749488/2025/10/25/thunder-vs-hawks-stream-how-to-watch-oct-25/
-
-**How to watch Hornets vs. 76ers: Time, TV, streaming**\
-`Find out how to watch the Charlotte Hornets play the Philadelphia 76ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6749485/2025/10/25/hornets-vs-76ers-stream-how-to-watch-oct-25/
 
