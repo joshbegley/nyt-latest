@@ -1,3 +1,7 @@
+**Missouri QB Beau Pribula leaves Vanderbilt game with leg injury**\
+`Missouri quarterback Beau Pribula, a Penn State transfer, left Saturday's game with Vanderbilt with a leg injury in the third quarter.`\
+https://nytimes.com/athletic/6749971/2025/10/25/beau-pribula-missouri-injury-vanderbilt/
+
 **Neutrogena Recalls Makeup Wipes Over Bacterial Contamination Concerns**\
 `The recalled wipes were distributed in Florida, Georgia, South Carolina and Texas, according to the Food and Drug Administration.`\
 https://nytimes.com/2025/10/25/business/neutrogena-makeup-wipes-recall.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6749765/2025/10/25/unc-virginia-score-result/
 **Francisco Pinto Balsemão, 88, Dies; Portuguese Prime Minister and Press Champion**\
 `In the wake of a revolution, he helped found a leading political party and tried to conciliate warring left and right factions, although his success was limited.`\
 https://nytimes.com/2025/10/25/world/europe/francisco-pinto-balsemao-dead.html
-
-**Did Cheating Accusations Have Anything to Do With the Death of a Chess Grandmaster?**\
-`Daniel Naroditsky, a top American player with an online following, was found dead in Charlotte, N.C., after talking about being accused of cheating by a former world champion.`\
-https://nytimes.com/2025/10/25/style/chess-cheating-death.html
 
