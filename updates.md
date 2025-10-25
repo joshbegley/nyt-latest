@@ -1,3 +1,7 @@
+**Kamala Harris Suggests She Is Considering Another Presidential Run**\
+`Ms. Harris, in an interview with the BBC, gave her strongest indication yet that she was thinking about making another bid for the Oval Office.`\
+https://nytimes.com/2025/10/25/us/politics/kamala-harris-presidential-race.html
+
 **The Briefing: Chelsea 1 Sunderland 2 - Loss shows required level, Garnacho's throwback celebration**\
 `Chelsea fell to a late 2-1 loss to Sunderland on Saturday afternoon`\
 https://nytimes.com/athletic/6744728/2025/10/25/chelsea-sunderland-result-score-report-analysis/
