@@ -1,3 +1,7 @@
+**Take a Look at Rare Photos of Red Lightning in New Zealand**\
+`Three photographers were able to capture the red sprite phenomenon, when lightning flashes above thunderstorms, in high definition against the Milky Way.`\
+https://nytimes.com/2025/10/25/science/red-lightning-new-zealand.html
+
 **A night of comebacks for Spain felt like the start of a new era under Bermudez**\
 `Spain beat Sweden 4-0 on Friday night but the return of several players felt like a significant moment of change`\
 https://nytimes.com/athletic/6748697/2025/10/25/spain-new-era-jenni-hermoso/
