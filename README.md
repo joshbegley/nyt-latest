@@ -1,40 +1,40 @@
-**Weird & Wild: Barger's pinch slam punctuates Blue Jays' history-making Game 1**\
-`Let’s explain what made Barger's blast so special, and yet so hard to believe. Weird & Wild breaks down a Game 1 few could have imagined. `\
-https://nytimes.com/athletic/6748912/2025/10/25/addison-barger-world-series-grand-slam-bluejays/
+**NHL's biggest surprises early in 2025-26: Struggling stars, unexpected starts and more**\
+`What has been each team's biggest surprise so far, good, bad or ugly? The Athletic posed that question this week to its NHL staff.`\
+https://nytimes.com/athletic/6747865/2025/10/25/nhl-2025-26-season-biggest-surprises/
 
-**‘Not happy just being here’: Blue Jays assert themselves in World Series Game 1 rout**\
-`The Jays, at least outwardly, believe they’re the best team in baseball. They now stand three wins away from claiming that title.`\
-https://nytimes.com/athletic/6748687/2025/10/25/toronto-blue-jays-game-1-world-series-meeting/
+**Opposites Kevin Stevens, Ron Francis were 'magic together' — and Penguins' backbone**\
+`Stevens and Francis are opposite personalities but were great together, and they'll enter the Penguins Hall of Fame on Saturday.`\
+https://nytimes.com/athletic/6748026/2025/10/25/penguins-hall-of-fame-kevin-stevens-ron-francis/
 
-**How to watch Islanders vs. Flyers: Time, TV, streaming**\
-`Find out how to watch the New York Islanders play the Philadelphia Flyers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6748960/2025/10/25/islanders-vs-flyers-stream-how-to-watch-oct-25/
+**Why Mark Scheifele's pursuit of Winnipeg Jets scoring records is so complicated**\
+`Winnipeg's history of NHL teams makes counting records as clear as mud. As Scheifele rises up the ranks, it's clear to him who he's chasing.`\
+https://nytimes.com/athletic/6744652/2025/10/25/mark-scheifele-winnipeg-jets-records/
 
-**Toronto's Daulton Varsho tries to hit grounders to the pitcher. The Dodgers wish he would**\
-`The Blue Jays outfielder tied Game 1 with a 109-mph missile over the center-field fence, much higher and farther than its intended target.`\
-https://nytimes.com/athletic/6748788/2025/10/25/daulton-varsho-blue-jays-home-run/
+**Alex Ovechkin at 1,500 games: A rare one-franchise wonder, and how it almost all fell apart**\
+`ARLINGTON, Va.`\
+https://nytimes.com/athletic/6747608/2025/10/25/ovechkin-1500-games-capitals/
 
-**Personal History**\
-`Good morning. The good things in our lives are the result of fantastic webs of interconnected prerequisites.`\
-https://nytimes.com/2025/10/25/briefing/personal-history.html
+**Blackhawks thoughts: Spencer Knight's hot start, Roman Kantserov's offensive surge**\
+`Through eight games, the Chicago Blackhawks look different than the past few years. Here's what I'm seeing.`\
+https://nytimes.com/athletic/6747091/2025/10/25/blackhawks-spencer-knights-roman-kantserov/
 
-**How to watch Brentford vs, Liverpool for U.S. fans: Reds try to shake a crisis stretch**\
-`Here's how fans in U.S. markets can watch Liverpool visit Brentford on Saturday.`\
-https://nytimes.com/athletic/6742627/2025/10/25/liverpool-brentford-us-tv-how-to-watch/
+**Burnin’ Down the House**\
+`Demolition Man builds a monument to his wrecking-ball style.`\
+https://nytimes.com/2025/10/25/opinion/trump-white-house-east-wing-demolition.html
 
-**Take our college football quiz! What you need to know about Week 9**\
-`All college football fans know that chaos often strikes when a weekend of games doesn&#8217;t appear to be the most attractive.`\
-https://nytimes.com/athletic/6747284/2025/10/25/college-football-week-9-preview-quiz-links/
+**Jak Crawford has worked to be F1's next American. The path there is uncertain**\
+`The F2 title contender made his practice debut at Mexico City. But with few F1 seats available, his wait may continue`\
+https://nytimes.com/athletic/6748353/2025/10/25/jak-crawford-f1-american-driver/
 
-**NFL Week 8 roundtable: Cowboys-Broncos, Aaron Rodgers meets Packers, Bills upset alert**\
-`A top offense and defense collide when the Cowboys meet the Broncos. Also, are the Chiefs back? Our writers discuss all things Week 8.`\
-https://nytimes.com/athletic/6747019/2025/10/25/nfl-week-8-predictions-cowboys-broncos-rodgers-packers/
+**Trump Wants an Easy Win in Venezuela. He Won’t Get One.**\
+`History suggests that an effort to overthrow Nicolás Maduro could be disastrous for the region and ultimately harm the U.S.`\
+https://nytimes.com/2025/10/25/opinion/venezuela-panama-trump-regime-change.html
 
-**Blue Jackets coach Dean Evason vents after tight game with Capitals unravels late**\
-`A disputed five-minute penalty with 7:25 left dramatically cut the chances of erasing a two-goal deficit.`\
-https://nytimes.com/athletic/6748464/2025/10/25/blue-jackets-dean-evason-capitals/
+**The Corruption Behind Trump’s East Wing Demolition**\
+`As of Oct. 24, the White House’s East Wing is all but a pile of debris. The New York Times Opinion’s editor Kathleen Kingsbury unpacks the public outrage and reveals why you should be concerned about this move by President Trump.`\
+https://nytimes.com/video/opinion/100000010479681/the-corruption-behind-trumps-east-wing-demolition.html
 
-**COTA's Turn 1 hill is F1's budget paradise. A luxury club will soon rise above it**\
-`With a packed general admission area that feels essential rather than an afterthought, Austin Turn 1 has become something rare in modern F1.`\
-https://nytimes.com/athletic/6746526/2025/10/25/cota-turn-1-club/
+**Better Trump’s Ballroom Than Obama’s Tower**\
+`One president’s project seems more defensible than another’s.`\
+https://nytimes.com/2025/10/25/opinion/trump-white-house-demolition-ballroom.html
 
