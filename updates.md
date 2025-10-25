@@ -1,3 +1,7 @@
+**Bryce Harper 'hurt' by trade speculation after Dave Dombrowski's comments about his season**\
+`“I have given my all to Philly from the start,” Harper told The Athletic. “Now there is trade talk? I made every effort to avoid this." `\
+https://nytimes.com/athletic/6749605/2025/10/25/bryce-harper-phillies-dave-dombrowski-comments/
+
 **Predators captain Roman Josi week to week with upper-body injury**\
 `The Predators said that Josi, 35, is not sidelined in relation to his diagnosis of Postural Orthostatic Tachycardia Syndrome (POTS).`\
 https://nytimes.com/athletic/6749666/2025/10/25/nashville-predators-roman-josi-injury/
