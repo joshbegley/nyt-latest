@@ -1,3 +1,7 @@
+**Neutrogena Recalls Makeup Wipes Over Bacterial Contamination Concerns**\
+`The recalled wipes were distributed in Florida, Georgia, South Carolina and Texas, according to the Food and Drug Administration.`\
+https://nytimes.com/2025/10/25/business/neutrogena-makeup-wipes-recall.html
+
 **Pep Guardiola admits Manchester City were 'a mess' in Villa Park defeat last season**\
 `Before Sunday's rematch, the Manchester City manager looks back at December's loss there as a low point for his 2024-25 side`\
 https://nytimes.com/athletic/6746995/2025/10/25/pep-guardiola-man-city-mess-last-season/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/25/world/europe/francisco-pinto-balsemao-dead.html
 **Did Cheating Accusations Have Anything to Do With the Death of a Chess Grandmaster?**\
 `Daniel Naroditsky, a top American player with an online following, was found dead in Charlotte, N.C., after talking about being accused of cheating by a former world champion.`\
 https://nytimes.com/2025/10/25/style/chess-cheating-death.html
-
-**College Football Playoff 2025 projections: The most likely bracket with Week 9 underway**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/10/25/college-football-playoff-bracket-projections-odds/
 
