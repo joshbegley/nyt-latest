@@ -1,3 +1,7 @@
+**'Best player in the world': Giannis' 31 point, 20 rebound night leaves teammates in awe**\
+`Antetokounmpo and Denver Nuggets center Nikola Jokić are tied for the most 30-20-5 games among active players.`\
+https://nytimes.com/athletic/6749251/2025/10/25/giannis-antetokounmpo-bucks-win-over-raptors/
+
 **'The best player in the world': Giannis scores 31, grabs 20 rebounds in win over Raptors**\
 `Antetokounmpo and Denver Nuggets center Nikola Jokić are tied for the most 30-20-5 games among active players.`\
 https://nytimes.com/athletic/6749251/2025/10/25/giannis-antetokounmpo-bucks-win-over-raptors/
