@@ -1,3 +1,7 @@
+**The Pulse: Max's epic comeback try**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6748029/2025/10/25/could-max-verstappen-pull-off-the-unthinkable-plus-blue-jays-go-bam/
+
 **Madrid's Alexander-Arnold, Carvajal, Huijsen all available for El Clasico**\
 `All three defenders have missed Madrid's most recent matches with various muscular injuries.`\
 https://nytimes.com/athletic/6742923/2025/10/25/real-madrid-team-news-barcelona/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6748166/2025/10/25/everything-fantasy-football-mana
 **How much does the Oilers' sluggish start really matter?**\
 `In a year where all that matters is winning the Stanley Cup, does the start to the season really matter to the Oilers?`\
 https://nytimes.com/athletic/6748069/2025/10/25/edmonton-oilers-season-start-connor-mcdavid/
-
-**Bruins’ defense is a disaster, and there’s no help coming**\
-`The Bruins expected defense to be their strength this season. Between growing pains, a new system and injury, it’s been the opposite.`\
-https://nytimes.com/athletic/6747759/2025/10/25/bruins-defense-no-help-coming/
 

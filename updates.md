@@ -1,3 +1,7 @@
+**The Pulse: Max's epic comeback try**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6748029/2025/10/25/could-max-verstappen-pull-off-the-unthinkable-plus-blue-jays-go-bam/
+
 **Madrid's Alexander-Arnold, Carvajal, Huijsen all available for El Clasico**\
 `All three defenders have missed Madrid's most recent matches with various muscular injuries.`\
 https://nytimes.com/athletic/6742923/2025/10/25/real-madrid-team-news-barcelona/
