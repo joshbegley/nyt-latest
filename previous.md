@@ -1,3 +1,7 @@
+**The Sprint for City Hall**\
+`A busy, ugly, head-spinning week in the mayor’s race leads New Yorkers into the early-voting period.`\
+https://nytimes.com/card/2025/10/25/nyregion/nyc-mayor-election-mamdani-cuomo-sliwa
+
 **Being In an N.B.A. Player’s Entourage Is Fun. Now, It Can Be a Gambling Edge, Too.**\
 `The federal indictments against N.B.A. players and others for illegal betting exposed a new wrinkle in the way old friends can benefit from their access to an athlete.`\
 https://nytimes.com/2025/10/25/business/nba-gambling-scandal-players.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/25/opinion/prince-andrew-royal-family.html
 **Keeping the House Absent, Johnson Marginalizes Congress and Himself**\
 `The speaker’s decision to hold the House in an indefinite hiatus during the shutdown is his latest move to diminish the role of the legislative branch — and his own post.`\
 https://nytimes.com/2025/10/25/us/politics/mike-johnson-speaker-congress.html
-
-**Do Home Buyers Have to Show Proof of Citizenship?**\
-`Immigration status can be a factor in mortgage eligibility.`\
-https://nytimes.com/2025/10/25/realestate/buyers-proof-of-citizenship.html
 

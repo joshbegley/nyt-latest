@@ -1,3 +1,7 @@
+**The Sprint for City Hall**\
+`A busy, ugly, head-spinning week in the mayor’s race leads New Yorkers into the early-voting period.`\
+https://nytimes.com/card/2025/10/25/nyregion/nyc-mayor-election-mamdani-cuomo-sliwa
+
 **Being In an N.B.A. Player’s Entourage Is Fun. Now, It Can Be a Gambling Edge, Too.**\
 `The federal indictments against N.B.A. players and others for illegal betting exposed a new wrinkle in the way old friends can benefit from their access to an athlete.`\
 https://nytimes.com/2025/10/25/business/nba-gambling-scandal-players.html
