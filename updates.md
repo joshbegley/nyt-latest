@@ -1,3 +1,7 @@
+**Chauncey Billups fooled me, too, it appears. Why his shocking arrest cuts so deep**\
+`The somber image of Chauncey Billups at his hearing is in stark contrast to who he appeared to be during his time as coach in Portland.`\
+https://nytimes.com/athletic/6748387/2025/10/25/chauncey-billups-arrest-blazers-warriors/
+
 **The New York Times in Print for Saturday, Oct. 25, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/25/todays-new-york-times

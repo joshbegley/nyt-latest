@@ -22,8 +22,8 @@ https://nytimes.com/athletic/6740397/2025/10/25/liverpool-defeats-tactics-guide/
 `The team's lighter schedule with no Europe and an early Carabao Cup exit has real consequences for the whole Old Trafford ecosystem`\
 https://nytimes.com/athletic/6746188/2025/10/25/man-utd-fixtures-old-trafford/
 
-**Chauncey Billups fooled me too, it appears. Why his shocking arrest cuts so deep**\
-`The somber image of Chauncey Billups at his hearing cuts against who he appeared to be during his time in Portland. `\
+**Chauncey Billups fooled me, too, it appears. Why his shocking arrest cuts so deep**\
+`The somber image of Chauncey Billups at his hearing is in stark contrast to who he appeared to be during his time as coach in Portland.`\
 https://nytimes.com/athletic/6748387/2025/10/25/chauncey-billups-arrest-blazers-warriors/
 
 **Colby Bishop on coming back from heart surgery: 'You have to sign a death waiver'**\
