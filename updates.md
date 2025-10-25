@@ -1,14 +1,6 @@
-**Adams Eyes a Reality TV Star to Help Block a Future Mamdani Rent Freeze**\
-`Mayor Eric Adams has only weeks left in office, but he can use them to appoint people with the ability to shape policy beyond his tenure.`\
-https://nytimes.com/2025/10/24/nyregion/eleonora-srugo-eric-adams-rent-board.html
-
-**Mamdani Says Rivals Are Pushing Hate as Mayor’s Race Enters Last Stretch**\
-`Zohran Mamdani’s opponents, Andrew Cuomo and Curtis Sliwa, denied accusations they that are stoking Islamophobia with their rhetoric and actions.`\
-https://nytimes.com/2025/10/24/nyregion/mamdani-cuomo-muslim-mayor.html
-
 **Commanders' Terry McLaurin opens up about his injury and up-and-down year**\
 `Terry McLaurin, who is expected to return on Monday night against the Kansas City Chiefs, has never experienced a year quite like this one.`\
-https://nytimes.com/athletic/6748085/2025/10/24/commanders-terry-mclaurin-opens-up-injury/
+https://nytimes.com/athletic/6748085/2025/10/24/commanders-terry-mclaurin-opens-up-about-his-injury-and-up-and-down-year/
 
 **Bannon Claims ‘There Is a Plan’ For Trump to Run for a Third Term**\
 `The claim comes after months of President Trump toying with the idea, insisting that he is “not joking” about defying a constitutionally-mandated term limit.`\
@@ -37,4 +29,12 @@ https://nytimes.com/2025/10/24/weather/hurricane-melissa-slow-forecast-haiti-jam
 **Barbara Gips, Creator of Memorable Movie Catchphrases, Dies at 89**\
 `Her best-known tagline was also her first to be published, written for “Alien”: “In space no one can hear you scream.”`\
 https://nytimes.com/2025/10/24/movies/barbara-gips-dead.html
+
+**Trump Administration Won’t Use Emergency Funds for Food Stamps During Shutdown**\
+`The Agriculture Department said that it would not use the funds to cover benefits in November, imperiling a program 42 million people use to pay for groceries.`\
+https://nytimes.com/2025/10/24/us/politics/trump-food-stamps-shutdown.html
+
+**‘Slam Frank,’ a Daring Satire, and ‘Crooked Cross’ Demand Our Attention**\
+`A gleefully provocative new musical and a quiet 1930s domestic drama speak to each other across time, resounding quite loudly in our present.`\
+https://nytimes.com/2025/10/24/theater/slam-frank-crooked-cross-review.html
 
