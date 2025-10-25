@@ -1,3 +1,19 @@
+**How McCaffrey went from the USWNT to being Public Enemy No 1 in England's lower leagues**\
+`The American striker, and businesswoman, has big plans for the east London club`\
+https://nytimes.com/athletic/6713189/2025/10/25/steph-mccaffrey-uswnt-leyton-orient/
+
+**What Liverpool can learn from their defeats this season - according to their opponents**\
+`Reporters who cover Crystal Palace, Galatasaray, Chelsea and Man Utd explain what lessons Arne Slot could draw from their teams' wins`\
+https://nytimes.com/athletic/6740397/2025/10/25/liverpool-defeats-tactics-guide/
+
+**Manchester United have one home game in 50 days - here's why that matters**\
+`The team's lighter schedule with no Europe and an early Carabao Cup exit has real consequences for the whole Old Trafford ecosystem`\
+https://nytimes.com/athletic/6746188/2025/10/25/man-utd-fixtures-old-trafford/
+
+**Chauncey Billups fooled me too, it appears. Why his shocking arrest cuts so deep**\
+`The somber image of Chauncey Billups at his hearing cuts against who he appeared to be during his time in Portland. `\
+https://nytimes.com/athletic/6748387/2025/10/25/chauncey-billups-arrest-blazers-warriors/
+
 **Colby Bishop on coming back from heart surgery: 'You have to sign a death waiver'**\
 `A routine pre-season check revealed a life-threatening issue with the Portsmouth striker's aortic valve. This is his journey back to playing`\
 https://nytimes.com/athletic/6739580/2025/10/25/colby-bishop-interview/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6747112/2025/10/25/real-madrid-barcelona-clasico-mi
 **Where Trump Is Headed in Asia, and What Each Country Wants From Him**\
 `From Kuala Lumpur to Gyeongju, President Trump is casting himself as a deal-maker and peace negotiator, while a wary region looks for tariff relief and steadier ties.`\
 https://nytimes.com/2025/10/25/world/asia/trump-japan-korea-china.html
-
-**Quote of the Day: U.S. Aid Cut, Hunger and Illness Grow in Somalia**\
-`Quotation of the Day for Saturday, October 25, 2025.`\
-https://nytimes.com/2025/10/25/pageoneplus/quote-of-the-day-us-aid-cut-hunger-and-illness-grow-in-somalia.html
-
-**Asia, Caught in the Middle, Faces Trump and Xi’s Tug of War**\
-`President Trump’s visit shows how the United States and China are vying for influence in Asia over trade, technology and the fate of Taiwan.`\
-https://nytimes.com/2025/10/25/world/asia/trump-china-trade-deal-xi.html
-
-**Presidents Are Limited to Two Terms. He’s Running for His Fourth.**\
-`The main opposition candidates in the Ivory Coast’s presidential election have been barred from the race. Critics say the vote has been rigged.`\
-https://nytimes.com/2025/10/25/world/africa/ivory-coast-election.html
-
-**‘You Love It or You Hate It’: Pumpkin Spice Lattes Divide Europe**\
-`One of America’s favorite fall drinks shows up in Brussels and Antwerp, but rarely in Paris and Rome. It has yet to reach the ubiquity — or the sugar content — of its stateside counterpart.`\
-https://nytimes.com/2025/10/25/world/europe/pumpkin-spice-latte-coffee-europe.html
 
