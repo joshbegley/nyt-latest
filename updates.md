@@ -1,3 +1,11 @@
+**Trump Administration Plans a Shake-up at ICE to Speed Deportations**\
+`The preliminary plan stems from frustration over the pace of the deportations, which are lagging behind President Trump’s demands.`\
+https://nytimes.com/2025/10/24/us/politics/trump-deportations-ice.html
+
+**Dodgers spending, success aren't grounds for a salary cap, says union head Tony Clark**\
+`Clark does not believe that the success of the Dodgers means only a cap can fix the league's imbalances.  `\
+https://nytimes.com/athletic/6748385/2025/10/24/dodgers-world-series-spending-salary-cap-tony-clark/
+
 **Adam Silver 'deeply disturbed' by allegations in federal NBA gambling investigation**\
 `Silver also explained why the NBA's own investigation previously found no wrongdoing by Heat guard Terry Rozier.`\
 https://nytimes.com/athletic/6748339/2025/10/24/adam-silver-response-nba-gambling-investigation/

@@ -1,3 +1,11 @@
+**Trump Administration Plans a Shake-up at ICE to Speed Deportations**\
+`The preliminary plan stems from frustration over the pace of the deportations, which are lagging behind President Trump’s demands.`\
+https://nytimes.com/2025/10/24/us/politics/trump-deportations-ice.html
+
+**Dodgers spending, success aren't grounds for a salary cap, says union head Tony Clark**\
+`Clark does not believe that the success of the Dodgers means only a cap can fix the league's imbalances.  `\
+https://nytimes.com/athletic/6748385/2025/10/24/dodgers-world-series-spending-salary-cap-tony-clark/
+
 **Immigration Crackdown Spreads Through Chicago, Including Wealthy Neighborhoods**\
 `Federal agents detained a man on the city’s North Side on Friday, and residents emerged from their homes, yelling and blowing whistles.`\
 https://nytimes.com/2025/10/24/us/trump-immigration-crackdown-chicago-lakeview.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/24/nyregion/eleonora-srugo-eric-adams-rent-board.htm
 **Mamdani Says Rivals Are Pushing Hate as Mayor’s Race Enters Last Stretch**\
 `Zohran Mamdani’s opponents, Andrew Cuomo and Curtis Sliwa, denied accusations that they are stoking Islamophobia with their rhetoric and actions.`\
 https://nytimes.com/2025/10/24/nyregion/mamdani-cuomo-muslim-mayor.html
-
-**Commanders' Terry McLaurin opens up about his injury and up-and-down year**\
-`McLaurin, who is expected to return Monday night against the Kansas City Chiefs, has never experienced a year quite like this one.`\
-https://nytimes.com/athletic/6748085/2025/10/24/commanders-terry-mclaurin-opens-up-injury/
-
-**Bannon Claims ‘There Is a Plan’ for Trump to Run for a Third Term**\
-`The claim comes after months of President Trump toying with the idea, insisting that he is “not joking” about defying a constitutionally-mandated term limit.`\
-https://nytimes.com/2025/10/24/us/politics/president-trump-2028-steve-bannon.html
 
