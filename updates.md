@@ -1,3 +1,11 @@
+**Brody Malone wins horizontal bar world gymnastics title, a new cap on his comeback**\
+`The American gymnast was injured and unsure of his future in the sport two years ago. Now, he's a world champion again.`\
+https://nytimes.com/athletic/6748961/2025/10/25/brody-malone-gymnastics-world-championships-horizontal-bar-gold/
+
+**The Dodgers dreaded a bullpen blowup like this, and now they're down 0-1**\
+`The Dodgers' bullpen owns a 6.16 ERA in the postseason after an epic dud to open the World Series.`\
+https://nytimes.com/athletic/6748649/2025/10/25/dodgers-blue-jays-world-series-game-1-bullpen/
+
 **NHL's biggest surprises early in 2025-26: Struggling stars, unexpected starts and more**\
 `What has been each team's biggest surprise so far, good, bad or ugly? The Athletic posed that question this week to its NHL staff.`\
 https://nytimes.com/athletic/6747865/2025/10/25/nhl-2025-26-season-biggest-surprises/

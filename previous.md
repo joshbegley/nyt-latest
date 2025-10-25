@@ -1,3 +1,11 @@
+**Brody Malone wins horizontal bar world gymnastics title, a new cap on his comeback**\
+`The American gymnast was injured and unsure of his future in the sport two years ago. Now, he's a world champion again.`\
+https://nytimes.com/athletic/6748961/2025/10/25/brody-malone-gymnastics-world-championships-horizontal-bar-gold/
+
+**The Dodgers dreaded a bullpen blowup like this, and now they're down 0-1**\
+`The Dodgers' bullpen owns a 6.16 ERA in the postseason after an epic dud to open the World Series.`\
+https://nytimes.com/athletic/6748649/2025/10/25/dodgers-blue-jays-world-series-game-1-bullpen/
+
 **NHL's biggest surprises early in 2025-26: Struggling stars, unexpected starts and more**\
 `What has been each team's biggest surprise so far, good, bad or ugly? The Athletic posed that question this week to its NHL staff.`\
 https://nytimes.com/athletic/6747865/2025/10/25/nhl-2025-26-season-biggest-surprises/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6748353/2025/10/25/jak-crawford-f1-american-driver/
 **Trump Wants an Easy Win in Venezuela. He Won’t Get One.**\
 `History suggests that an effort to overthrow Nicolás Maduro could be disastrous for the region and ultimately harm the U.S.`\
 https://nytimes.com/2025/10/25/opinion/venezuela-panama-trump-regime-change.html
-
-**The Corruption Behind Trump’s East Wing Demolition**\
-`As of Oct. 24, the White House’s East Wing is all but a pile of debris. The New York Times Opinion’s editor Kathleen Kingsbury unpacks the public outrage and reveals why you should be concerned about this move by President Trump.`\
-https://nytimes.com/video/opinion/100000010479681/the-corruption-behind-trumps-east-wing-demolition.html
-
-**Better Trump’s Ballroom Than Obama’s Tower**\
-`One president’s project seems more defensible than another’s.`\
-https://nytimes.com/2025/10/25/opinion/trump-white-house-demolition-ballroom.html
 
