@@ -1,3 +1,35 @@
+**Rwanda accepts top Sudan clubs into domestic league due to ongoing Civil War**\
+`Al Hilal and Al Merrikh played the 2024-25 season in Mauritania, north west Africa, due to the unstable political situation in Sudan.`\
+https://nytimes.com/athletic/6749024/2025/10/25/sudan-civil-war-football-rwanda/
+
+**Scoop City: Fantasy tips to win Week 8**\
+`With six teams on a bye, every fantasy manager could use a little help. Here's how to survive the Bye-mageddon.`\
+https://nytimes.com/athletic/6748166/2025/10/25/everything-fantasy-football-managers-need-to-know-for-week-8/
+
+**How much does the Oilers' sluggish start really matter?**\
+`In a year where all that matters is winning the Stanley Cup, does the start to the season really matter to the Oilers?`\
+https://nytimes.com/athletic/6748069/2025/10/25/edmonton-oilers-season-start-connor-mcdavid/
+
+**Bruins’ defense is a disaster, and there’s no help coming**\
+`The Bruins expected defense to be their strength this season. Between growing pains, a new system and injury, it’s been the opposite.`\
+https://nytimes.com/athletic/6747759/2025/10/25/bruins-defense-no-help-coming/
+
+**Is there enough talent for NHL expansion? Odds Sidney Crosby gets traded? Ask CJ**\
+`Also in Chris Johnston's mailbag: Who's playing their way onto Olympic rosters early in the season, and who's the league's top prankster?`\
+https://nytimes.com/athletic/6743951/2025/10/25/nhl-expansion-crosby-laine-olympics/
+
+**What we've learned about the Wild and their underperforming vets heading into a critical homestand**\
+`The number of underperforming Wild veterans has become alarming early in the 2025-26 season. Can they turn it around?`\
+https://nytimes.com/athletic/6747966/2025/10/25/wild-veterans-underperforming-critical-homestand/
+
+**Starring in Videos Is No Longer a Job Just for the Social Media Team**\
+`Companies from Delta Air Lines to Portillo’s are asking all sorts of employees, sometimes through formal programs, to help build the brand.`\
+https://nytimes.com/2025/10/25/business/dealbook/employee-social-media-influencers.html
+
+**'We were relentless': How the Wizards and Kyshawn George shocked the Mavericks**\
+`George dominated on offense, and Washington posted one of its best defensive games in years to stun Dallas.  `\
+https://nytimes.com/athletic/6748837/2025/10/25/wizards-mavericks-kyshawn-george-cooper-flagg/
+
 **Brody Malone wins horizontal bar world gymnastics title, a new cap on his comeback**\
 `The American gymnast was injured and unsure of his future in the sport two years ago. Now, he's a world champion again.`\
 https://nytimes.com/athletic/6748961/2025/10/25/brody-malone-gymnastics-world-championships-horizontal-bar-gold/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6748961/2025/10/25/brody-malone-gymnastics-world-ch
 **The Dodgers dreaded a bullpen blowup like this, and now they're down 0-1**\
 `The Dodgers' bullpen owns a 6.16 ERA in the postseason after an epic dud to open the World Series.`\
 https://nytimes.com/athletic/6748649/2025/10/25/dodgers-blue-jays-world-series-game-1-bullpen/
-
-**NHL's biggest surprises early in 2025-26: Struggling stars, unexpected starts and more**\
-`What has been each team's biggest surprise so far, good, bad or ugly? The Athletic posed that question this week to its NHL staff.`\
-https://nytimes.com/athletic/6747865/2025/10/25/nhl-2025-26-season-biggest-surprises/
-
-**Opposites Kevin Stevens, Ron Francis were 'magic together' — and Penguins' backbone**\
-`Stevens and Francis are opposite personalities but were great together, and they'll enter the Penguins Hall of Fame on Saturday.`\
-https://nytimes.com/athletic/6748026/2025/10/25/penguins-hall-of-fame-kevin-stevens-ron-francis/
-
-**Why Mark Scheifele's pursuit of Winnipeg Jets scoring records is so complicated**\
-`Winnipeg's history of NHL teams makes counting records as clear as mud. As Scheifele rises up the ranks, it's clear to him who he's chasing.`\
-https://nytimes.com/athletic/6744652/2025/10/25/mark-scheifele-winnipeg-jets-records/
-
-**Alex Ovechkin at 1,500 games: A rare one-franchise wonder, and how it almost all fell apart**\
-`ARLINGTON, Va.`\
-https://nytimes.com/athletic/6747608/2025/10/25/ovechkin-1500-games-capitals/
-
-**Blackhawks thoughts: Spencer Knight's hot start, Roman Kantserov's offensive surge**\
-`Through eight games, the Chicago Blackhawks look different than the past few years. Here's what I'm seeing.`\
-https://nytimes.com/athletic/6747091/2025/10/25/blackhawks-spencer-knights-roman-kantserov/
-
-**Burnin’ Down the House**\
-`Demolition Man builds a monument to his wrecking-ball style.`\
-https://nytimes.com/2025/10/25/opinion/trump-white-house-east-wing-demolition.html
-
-**Jak Crawford has worked to be F1's next American. The path there is uncertain**\
-`The F2 title contender made his practice debut at Mexico City. But with few F1 seats available, his wait may continue`\
-https://nytimes.com/athletic/6748353/2025/10/25/jak-crawford-f1-american-driver/
-
-**Trump Wants an Easy Win in Venezuela. He Won’t Get One.**\
-`History suggests that an effort to overthrow Nicolás Maduro could be disastrous for the region and ultimately harm the U.S.`\
-https://nytimes.com/2025/10/25/opinion/venezuela-panama-trump-regime-change.html
 
