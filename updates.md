@@ -1,3 +1,7 @@
+**June Lockhart, Beloved Television Mother, Dies at 100**\
+`She exuded earnest maternal wisdom and wistful contentment as a farm wife on “Lassie” and, later, as an interplanetary castaway on “Lost in Space.”`\
+https://nytimes.com/2025/10/25/arts/television/june-lockhart-dead.html
+
 **Bryce Harper 'hurt' by trade speculation after Dave Dombrowski's comments about his season**\
 `“I have given my all to Philly from the start,” Harper told The Athletic. “Now there is trade talk? I made every effort to avoid this." `\
 https://nytimes.com/athletic/6749605/2025/10/25/bryce-harper-phillies-dave-dombrowski-comments/

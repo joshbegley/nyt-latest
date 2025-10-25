@@ -1,3 +1,7 @@
+**June Lockhart, Beloved Television Mother, Dies at 100**\
+`She exuded earnest maternal wisdom and wistful contentment as a farm wife on “Lassie” and, later, as an interplanetary castaway on “Lost in Space.”`\
+https://nytimes.com/2025/10/25/arts/television/june-lockhart-dead.html
+
 **Bryce Harper 'hurt' by trade speculation after Dave Dombrowski's comments about his season**\
 `“I have given my all to Philly from the start,” Harper told The Athletic. “Now there is trade talk? I made every effort to avoid this." `\
 https://nytimes.com/athletic/6749605/2025/10/25/bryce-harper-phillies-dave-dombrowski-comments/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6746254/2025/10/25/wrexham-middlesbrough-result-ana
 **With Tyrod Taylor hurt, Justin Fields to remain Jets' starting quarterback in Week 8**\
 `With Tyrod Taylor hurt, Justin Fields will remain the Jets' starter against the Cincinnati Bengals on Sunday.`\
 https://nytimes.com/athletic/6749608/2025/10/25/justin-fields-week-8-starting-qb-nfl/
-
-**Rutgers Fraternity Is Closed After Student Is Injured in Hazing Episode**\
-`The Alpha Sigma Phi national organization permanently shut down its Rutgers chapter after concluding that hazing had occurred when a student was critically hurt this month.`\
-https://nytimes.com/2025/10/25/nyregion/rutgers-fraternity-closed-hazing.html
 
