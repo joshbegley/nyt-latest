@@ -1,3 +1,7 @@
+**Kamala Harris Suggests She Is Considering Another Presidential Run**\
+`Ms. Harris, in an interview with the BBC, gave her strongest indication yet that she was thinking about making another bid for the Oval Office.`\
+https://nytimes.com/2025/10/25/us/politics/kamala-harris-presidential-race.html
+
 **The Briefing: Chelsea 1 Sunderland 2 - Loss shows required level, Garnacho's throwback celebration**\
 `Chelsea fell to a late 2-1 loss to Sunderland on Saturday afternoon`\
 https://nytimes.com/athletic/6744728/2025/10/25/chelsea-sunderland-result-score-report-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/25/world/europe/pope-leo-latin-mass-traditionalists.
 **Warriors' Jonathan Kuminga steps up by playing 'decisive basketball' in first week**\
 `"We love the way he's approached everything since training camp and expect more of that," Warriors guard Stephen Curry said.`\
 https://nytimes.com/athletic/6748803/2025/10/25/jonathan-kuminga-playing-well-warriors/
-
-**Donor Who Gave $130 Million to Pay Troops Is Reclusive Heir to Mellon Fortune**\
-`Timothy Mellon is a billionaire and a major financial backer of President Trump.`\
-https://nytimes.com/2025/10/25/us/politics/timothy-mellon-donation-troops.html
 
