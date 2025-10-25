@@ -1,3 +1,15 @@
+**Adams Eyes a Reality TV Star to Help Block a Future Mamdani Rent Freeze**\
+`Mayor Eric Adams has only weeks left in office, but he can use them to appoint people with the ability to shape policy beyond his tenure.`\
+https://nytimes.com/2025/10/24/nyregion/eleonora-srugo-eric-adams-rent-board.html
+
+**Mamdani Says Rivals Are Pushing Hate as Mayor’s Race Enters Last Stretch**\
+`Zohran Mamdani’s opponents, Andrew Cuomo and Curtis Sliwa, denied accusations they that are stoking Islamophobia with their rhetoric and actions.`\
+https://nytimes.com/2025/10/24/nyregion/mamdani-cuomo-muslim-mayor.html
+
+**Commanders' Terry McLaurin opens up about his injury and up-and-down year**\
+`Terry McLaurin, who is expected to return on Monday night against the Kansas City Chiefs, has never experienced a year quite like this one.`\
+https://nytimes.com/athletic/6748085/2025/10/24/commanders-terry-mclaurin-opens-up-injury/
+
 **Commanders' Terry McLaurin opens up about his injury and up-and-down year**\
 `Terry McLaurin, who is expected to return on Monday night against the Kansas City Chiefs, has never experienced a year quite like this one.`\
 https://nytimes.com/athletic/6748085/2025/10/24/commanders-terry-mclaurin-opens-up-about-his-injury-and-up-and-down-year/
