@@ -1,3 +1,7 @@
+**Pep Guardiola admits Manchester City were 'a mess' in Villa Park defeat last season**\
+`Before Sunday's rematch, the Manchester City manager looks back at December's loss there as a low point for his 2024-25 side`\
+https://nytimes.com/athletic/6746995/2025/10/25/pep-guardiola-man-city-mess-last-season/
+
 **Ravens clarify Lamar Jackson's injury report status in statement**\
 `"Because Lamar didn’t take starter reps in practice, we updated our report to reflect his practice participation," the Ravens stated.`\
 https://nytimes.com/athletic/6749873/2025/10/25/lamar-jackson-injury-update-report-ravens/
