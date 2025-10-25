@@ -1,3 +1,7 @@
+**Weird & Wild: Barger's pinch slam punctuates Blue Jays' history-making Game 1**\
+`Let’s explain what made Barger's blast so special, and yet so hard to believe. Weird & Wild breaks down a Game 1 few could have imagined. `\
+https://nytimes.com/athletic/6748912/2025/10/25/addison-barger-world-series-grand-slam-bluejays/
+
 **‘Not happy just being here’: Blue Jays assert themselves in World Series Game 1 rout**\
 `The Jays, at least outwardly, believe they’re the best team in baseball. They now stand three wins away from claiming that title.`\
 https://nytimes.com/athletic/6748687/2025/10/25/toronto-blue-jays-game-1-world-series-meeting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6748464/2025/10/25/blue-jackets-dean-evason-capital
 **COTA's Turn 1 hill is F1's budget paradise. A luxury club will soon rise above it**\
 `With a packed general admission area that feels essential rather than an afterthought, Austin Turn 1 has become something rare in modern F1.`\
 https://nytimes.com/athletic/6746526/2025/10/25/cota-turn-1-club/
-
-**My 2025-26 NBA All-Breakout Team: Wemby, Luka, Bennedict Mathurin and ... Mamu?**\
-`Breakouts come in many forms: from fringe contributor to regular starter, or from superstar to MVP contender.`\
-https://nytimes.com/athletic/6747096/2025/10/25/nba-wembanyama-luka-doncic-breakout-players/
 

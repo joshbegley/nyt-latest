@@ -1,3 +1,7 @@
+**‘Not happy just being here’: Blue Jays assert themselves in World Series Game 1 rout**\
+`The Jays, at least outwardly, believe they’re the best team in baseball. They now stand three wins away from claiming that title.`\
+https://nytimes.com/athletic/6748687/2025/10/25/toronto-blue-jays-game-1-world-series-meeting/
+
 **How to watch Islanders vs. Flyers: Time, TV, streaming**\
 `Find out how to watch the New York Islanders play the Philadelphia Flyers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6748960/2025/10/25/islanders-vs-flyers-stream-how-to-watch-oct-25/
