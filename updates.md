@@ -1,3 +1,7 @@
+**Why is it Called a Handicap in Golf?**\
+`The term ‘‘handicap’’ in golf has some strange origins — and is older than you might expect.`\
+https://nytimes.com/video/the-athletic/100000010459540/why-is-it-called-a-handicap-in-golf.html
+
 **Russini: What I’m hearing from Jerry Jones and Jeffrey Lurie, plus the latest trade deadline buzz**\
 `Also: Woody Johnson on his ownership of the Jets, Jimmy Haslam on Shedeur Sanders and an intriguing potential NFL coaching candidate.`\
 https://nytimes.com/athletic/6747218/2025/10/25/nfl-trade-rumors-news-aj-brown-jerry-jones-targets/
