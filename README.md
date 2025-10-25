@@ -1,3 +1,7 @@
+**Lando Norris sweeps to commanding Mexico GP pole as Verstappen and Piastri toil**\
+`McLaren's Lando Norris scored a dominant pole position for the 2025 Mexico City GP, with his F1 title rivals struggling behind`\
+https://nytimes.com/athletic/6749941/2025/10/25/mexico-gp-qualifying-results/
+
 **Kraken's Brandon Montour reveals brother’s death from ALS**\
 `The emotional Seattle defenseman said his brother is "probably smiling and chirping me up there for crying."`\
 https://nytimes.com/athletic/6749934/2025/10/25/kraken-brandon-montour-brother-death-als/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/25/world/canada/trump-tariffs-reagan-ad.html
 **Ex-L.A.P.D. Officer Indicted in On-Duty Shooting of Unarmed Homeless Man**\
 `Clifford Proctor, 60, was charged with second-degree murder in the 2015 killing of Brendon Glenn during an attempted arrest.`\
 https://nytimes.com/2025/10/25/us/lapd-homeless-shooting-murder-charge.html
-
-**Navy Begins Evacuating Families From Guantánamo Bay Ahead of Hurricane Melissa**\
-`The base commander on Saturday expanded a previous evacuation order to include “non-mission-essential U.S. citizens.”`\
-https://nytimes.com/2025/10/25/us/politics/guantanamo-bay-hurricane-melissa-evacuations.html
 
