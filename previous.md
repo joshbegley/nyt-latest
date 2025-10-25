@@ -1,40 +1,40 @@
-**Take a Look at Rare Photos of Red Lightning in New Zealand**\
-`Three photographers were able to capture the red sprite phenomenon, when lightning flashes above thunderstorms, in high definition against the Milky Way.`\
-https://nytimes.com/2025/10/25/science/red-lightning-new-zealand.html
+**Being In an N.B.A. Player’s Entourage Is Fun. Now, It Can Be a Gambling Edge, Too.**\
+`The federal indictments against N.B.A. players and others for illegal betting exposed a new wrinkle in the way old friends can benefit from their access to an athlete.`\
+https://nytimes.com/2025/10/25/business/nba-gambling-scandal-players.html
 
-**A night of comebacks for Spain felt like the start of a new era under Bermudez**\
-`Spain beat Sweden 4-0 on Friday night but the return of several players felt like a significant moment of change`\
-https://nytimes.com/athletic/6748697/2025/10/25/spain-new-era-jenni-hermoso/
+**Trump’s Plans for the East Wing Keep Changing. Here’s a Look.**\
+`Here’s what we know about Mr. Trump’s plans to remodel the torn-down East Wing.`\
+https://nytimes.com/interactive/2025/10/25/us/politics/trump-east-wing-ballroom-plans.html
 
-**‘See You in 4 Years’: Trump Drives Canadians Away From Western New York**\
-`The presence of Canadian visitors in Western New York has dropped off since the start of the year following tensions between Washington and Ottawa.`\
-https://nytimes.com/2025/10/25/nyregion/new-york-border-canadian-visitors-trump.html
+**Trump’s Russia Sanctions Shift War Dynamics to the Energy Front**\
+`As winter slows the pace of battlefield combat, Moscow and Kyiv are betting on campaigns against each other’s energy assets to break a stalemate in the conflict.`\
+https://nytimes.com/2025/10/25/world/europe/trump-russia-sanctions-war-dynamics.html
 
-**New York Is the Center of Basketball. And Basketball Betting Scandals.**\
-`Point shaving. Gambling rings. Illegal poker games. Prosecutors in New York have seen it all.`\
-https://nytimes.com/2025/10/25/nyregion/new-york-basketball-betting-scandals.html
+**What to Expect From Tropical Storm Melissa This Weekend and Beyond**\
+`After it lashes the Caribbean this weekend, there’s still uncertainty about where the storm will go next. Here are the scenarios, one day at a time.`\
+https://nytimes.com/2025/10/25/weather/hurricane-melissa-forecast-florida.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/10/25/crosswords/spelling-bee-forum.html
+**Trump Is All In on Milei. What About Argentines?**\
+`President Javier Milei of Argentina has earned U.S. support, but he faces a critical legislative election at home amid voter anger over job losses and corruption scandals.`\
+https://nytimes.com/2025/10/25/world/americas/argentina-elections-milei.html
 
-**How Jordi Fernández, the Brooklyn Nets Coach, Spends an N.B.A. Off Day**\
-`Mr. Fernández starts game days with meditation. But when he’s off, his children keep him running all across the city.`\
-https://nytimes.com/2025/10/25/nyregion/routine-jordi-fernandez-brooklyn-nets.html
+**Hold the Fish? A Brazilian Chef Chafes at a Menu Request for a Prince’s Event.**\
+`He was asked to cater a climate event for Prince William and 700 guests. But for a renowned chef who wanted to showcase the Amazon’s culinary tradition, it was like “asking Iron Maiden to play jazz.”`\
+https://nytimes.com/2025/10/25/world/americas/brazil-chef-menu-william-sustainability.html
 
-**In Letitia James Case, Some Black Women See Their Own Family Sacrifices**\
-`The federal indictment of New York’s attorney general centers on a home she purchased for a relative. It is an act that rings deeply familiar to many.`\
-https://nytimes.com/2025/10/25/nyregion/letitia-james-black-women-tradition-family-support.html
+**How Trump Is Getting Some Workers Paid Despite the Shutdown**\
+`President Trump has been reprogramming funds to pay workers during the shutdown who are essential to his political agenda. Tony Romm, a New York Times reporter covering economic policy, explains the moves, and the questions they’ve raised.`\
+https://nytimes.com/video/us/politics/100000010478109/how-trump-is-getting-some-workers-paid-despite-the-shutdown.html
 
-**West Ham face a defining period on and off the pitch. They do not look ready for it**\
-`West Ham fell to a 2-1 defeat against Leeds United on Friday night`\
-https://nytimes.com/athletic/6746911/2025/10/25/west-ham-leeds-transfer-window-analysis/
+**Monarchy Is a Lottery. Sometimes You Get a Dud.**\
+`The inordinate gilded privilege of being a member of the royal family takes anything but the strongest character and ruins all the good in it.`\
+https://nytimes.com/2025/10/25/opinion/prince-andrew-royal-family.html
 
-**Brenden Aaronson's big step forward and a flash of hope for Leeds**\
-`Brenden Aaronson was central to Leeds United's 2-1 win over West Ham on Friday night`\
-https://nytimes.com/athletic/6748274/2025/10/25/leeds-united-brenden-aaronson-west-ham/
+**Keeping the House Absent, Johnson Marginalizes Congress and Himself**\
+`The speaker’s decision to hold the House in an indefinite hiatus during the shutdown is his latest move to diminish the role of the legislative branch — and his own post.`\
+https://nytimes.com/2025/10/25/us/politics/mike-johnson-speaker-congress.html
 
-**How to watch Dodgers at Blue Jays: World Series Game 2 Time, TV, streaming**\
-`Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6748694/2025/10/25/how-to-watch-dodgers-vs-blue-jays-world-series-game-2-tv-channel-and-streaming-options-for-october-25/
+**Do Home Buyers Have to Show Proof of Citizenship?**\
+`Immigration status can be a factor in mortgage eligibility.`\
+https://nytimes.com/2025/10/25/realestate/buyers-proof-of-citizenship.html
 
