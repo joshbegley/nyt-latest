@@ -1,3 +1,7 @@
+**Balances**\
+`Byron Walden drives up with a slippery themeless puzzle.`\
+https://nytimes.com/2025/10/24/crosswords/daily-puzzle-2025-10-25.html
+
 **Trump Administration Plans a Shake-Up at ICE to Speed Deportations**\
 `The preliminary plan stems from frustration over the pace of the deportations, which are lagging behind President Trump’s demands.`\
 https://nytimes.com/2025/10/24/us/politics/trump-deportations-ice.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/24/us/politics/trump-china-trade-deal.html
 **Adams Eyes a Reality TV Star Who Could Help Block a Mamdani Rent Freeze**\
 `Mayor Eric Adams has only weeks left in office, but he can use them to appoint people with the ability to shape policy beyond his tenure.`\
 https://nytimes.com/2025/10/24/nyregion/eleonora-srugo-eric-adams-rent-board.html
-
-**Mamdani Says Rivals Are Pushing Hate as Mayor’s Race Enters Last Stretch**\
-`Zohran Mamdani’s opponents, Andrew Cuomo and Curtis Sliwa, denied accusations that they are stoking Islamophobia with their rhetoric and actions.`\
-https://nytimes.com/2025/10/24/nyregion/mamdani-cuomo-muslim-mayor.html
 
