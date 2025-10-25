@@ -1,3 +1,15 @@
+**Sabres thoughts: Mattias Samuelsson's big night, Alex Lyon's heroics lead to win over Leafs**\
+`Samuelsson scored twice in the Sabres' 5-3 win over the Maple Leafs on Friday.`\
+https://nytimes.com/athletic/6748530/2025/10/24/sabres-maple-leafs-mattias-samuelsson-alex-lyon/
+
+**Mavericks fans resume 'Fire Nico' chants after loss to Wizards**\
+`The crowd calls for Harrison’s job are growing significantly louder — literally.`\
+https://nytimes.com/athletic/6748558/2025/10/24/mavericks-fans-fire-nico-chants-resume/
+
+**‘We don't need you’: Blue Jays fans let Shohei Ohtani how they feel in Game 1 rout**\
+`As it turns out, the Blue Jays didn't need Ohtani on Friday to win Game 1 of the 2025 World Series. `\
+https://nytimes.com/athletic/6748581/2025/10/24/shohei-ohtani-toronto-fans-chant/
+
 **North Texas QB sets school, conference records with 608 passing yards**\
 `Mestemaker's passing yardage total is the 10th-highest single game total by an FBS quarterback since 1995.`\
 https://nytimes.com/athletic/6748483/2025/10/24/north-texas-qb-drew-mestemaker-record/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6748278/2025/10/24/messi-scores-twice-miami-wins/
 **What we saw from Leafs' loss to Sabres: Potential Nylander injury looms**\
 `Nylander left Friday's game against the Sabres after taking a cross-check to his midsection from Jason Zucker.`\
 https://nytimes.com/athletic/6748373/2025/10/24/maple-leafs-william-nylander-injury-sabres/
-
-**Drake scores first in World Series subplot feud with Kendrick Lamar**\
-`After the Blue Jays showed the Toronto rapper on the scoreboard, they scored the next 11 runs to take an 11-2 lead over the Dodgers.`\
-https://nytimes.com/athletic/6748419/2025/10/24/drake-kendrick-lamar-world-series-game-1/
-
-**Balances**\
-`Byron Walden drives up with a slippery themeless puzzle.`\
-https://nytimes.com/2025/10/24/crosswords/daily-puzzle-2025-10-25.html
-
-**Trump Administration Plans a Shake-Up at ICE to Speed Deportations**\
-`The preliminary plan stems from frustration over the pace of the deportations, which are lagging behind President Trump’s demands.`\
-https://nytimes.com/2025/10/24/us/politics/trump-deportations-ice.html
 
