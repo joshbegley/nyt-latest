@@ -1,3 +1,7 @@
+**Watch: Travis Hunter's breakout performance a sign of what's to come in Jaguars' offense**\
+`The Jaguars are starting to figure out ways to feed Hunter the ball on offense, which should mean good things for QB Trevor Lawrence.`\
+https://nytimes.com/athletic/6749065/2025/10/25/travis-hunter-film-breakdown-jaguars-trevor-lawrence/
+
 **Mikaela Shiffrin fourth in Alpine skiing opener; Julia Scheib, Paula Moltzan top podium**\
 `Scheib ended a 10-year Austrian drought, and Moltzan and Shiffrin had big days for the American squad in the Alpine skiing season opener.`\
 https://nytimes.com/athletic/6747606/2025/10/25/mikaela-shiffrin-alpine-skiing-world-cup-julia-scheib-paula-moltzan/

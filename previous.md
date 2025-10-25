@@ -1,3 +1,7 @@
+**Watch: Travis Hunter's breakout performance a sign of what's to come in Jaguars' offense**\
+`The Jaguars are starting to figure out ways to feed Hunter the ball on offense, which should mean good things for QB Trevor Lawrence.`\
+https://nytimes.com/athletic/6749065/2025/10/25/travis-hunter-film-breakdown-jaguars-trevor-lawrence/
+
 **Mikaela Shiffrin fourth in Alpine skiing opener; Julia Scheib, Paula Moltzan top podium**\
 `Scheib ended a 10-year Austrian drought, and Moltzan and Shiffrin had big days for the American squad in the Alpine skiing season opener.`\
 https://nytimes.com/athletic/6747606/2025/10/25/mikaela-shiffrin-alpine-skiing-world-cup-julia-scheib-paula-moltzan/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/25/business/dealbook/employee-social-media-influence
 **'We were relentless': How the Wizards and Kyshawn George shocked the Mavericks**\
 `George dominated on offense, and Washington posted one of its best defensive games in years to stun Dallas.  `\
 https://nytimes.com/athletic/6748837/2025/10/25/wizards-mavericks-kyshawn-george-cooper-flagg/
-
-**Brody Malone wins horizontal bar world gymnastics title, a new cap on his comeback**\
-`The American gymnast was injured and unsure of his future in the sport two years ago. Now, he's a world champion again.`\
-https://nytimes.com/athletic/6748961/2025/10/25/brody-malone-gymnastics-world-championships-horizontal-bar-gold/
 
