@@ -1,3 +1,7 @@
+**Adam Silver 'deeply disturbed' by federal gambling investigation**\
+`During Friday night’s Amazon Prime broadcast of the Celtics-Knicks game, NBA commissioner Adam Silver gave his first public comments...`\
+https://nytimes.com/athletic/6748339/2025/10/24/adam-silver-response-nba-gambling-investigation/
+
 **Mamdani Says His Rivals Are Pushing Hate in Final Days of N.Y.C. Mayoral Election**\
 `Assemblyman Zohran Mamdani spoke about the impact of Islamophobia on his family during a campaign event in the Bronx. At a mayoral debate earlier this week, his opponent Curtis Sliwa had accused him of supporting “global jihad.”`\
 https://nytimes.com/video/us/politics/100000010480722/mamdani-nyc-mayoral-election-condems-hate.html
