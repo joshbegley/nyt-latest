@@ -1,3 +1,7 @@
+**Congress requests briefing from Adam Silver on NBA gambling scandal by Oct. 31**\
+`The letter stated that illegal sports betting based on non-public information in the NBA "is not a new problem," citing Tim Donaghy in 2007.`\
+https://nytimes.com/athletic/6748485/2025/10/24/congress-adam-silver-nba-gambling-scandal/
+
 **Drake scores first in World Series subplot feud with Kendrick Lamar**\
 `After the Blue Jays showed the Toronto rapper on the scoreboard, they scored the next 11 runs to take an 11-2 lead over the Dodgers.`\
 https://nytimes.com/athletic/6748419/2025/10/24/drake-kendrick-lamar-world-series-game-1/

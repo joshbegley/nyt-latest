@@ -1,3 +1,7 @@
+**Congress requests briefing from Adam Silver on NBA gambling scandal by Oct. 31**\
+`The letter stated that illegal sports betting based on non-public information in the NBA "is not a new problem," citing Tim Donaghy in 2007.`\
+https://nytimes.com/athletic/6748485/2025/10/24/congress-adam-silver-nba-gambling-scandal/
+
 **MLB union leader Tony Clark supports elimination of prop bets after NBA gambling scandal**\
 `MLBPA leadership says that they have long had concerns about prop betting, where specific player outcomes are at issue. `\
 https://nytimes.com/athletic/6748455/2025/10/24/mlb-union-eliminate-prop-betting-tony-clark/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/24/us/trump-immigration-crackdown-chicago-lakeview.h
 **Adam Silver 'deeply disturbed' by allegations in federal NBA gambling investigation**\
 `Silver also explained why the NBA's own investigation previously found no wrongdoing by Heat guard Terry Rozier.`\
 https://nytimes.com/athletic/6748339/2025/10/24/adam-silver-response-nba-gambling-investigation/
-
-**Mamdani Says His Rivals Are Pushing Hate in Final Days of N.Y.C. Mayoral Election**\
-`Assemblyman Zohran Mamdani spoke about the impact of Islamophobia on his family during a campaign event in the Bronx. At a mayoral debate earlier this week, his opponent Curtis Sliwa had accused him of supporting “global jihad.”`\
-https://nytimes.com/video/us/politics/100000010480722/mamdani-nyc-mayoral-election-condems-hate.html
 

@@ -1,3 +1,7 @@
+**Blue Jays smash Dodger mystique with home run binge to take World Series Game 1**\
+`Dodger starting pitching came into the night with an impeccable record. The Blue Jays quickly marred that as they coasted to a Game 1 win. `\
+https://nytimes.com/athletic/6748522/2025/10/24/blue-jays-win-game-1-world-series-dodgers/
+
 **Congress requests briefing from Adam Silver on NBA gambling scandal by Oct. 31**\
 `The letter stated that illegal sports betting based on non-public information in the NBA "is not a new problem," citing Tim Donaghy in 2007.`\
 https://nytimes.com/athletic/6748485/2025/10/24/congress-adam-silver-nba-gambling-scandal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6748385/2025/10/24/dodgers-world-series-spending-sa
 **Immigration Crackdown Spreads Through Chicago, Including Wealthy Neighborhoods**\
 `Federal agents detained a man on the city’s North Side on Friday, and residents emerged from their homes, yelling and blowing whistles.`\
 https://nytimes.com/2025/10/24/us/trump-immigration-crackdown-chicago-lakeview.html
-
-**Adam Silver 'deeply disturbed' by allegations in federal NBA gambling investigation**\
-`Silver also explained why the NBA's own investigation previously found no wrongdoing by Heat guard Terry Rozier.`\
-https://nytimes.com/athletic/6748339/2025/10/24/adam-silver-response-nba-gambling-investigation/
 
