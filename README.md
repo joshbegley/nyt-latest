@@ -1,3 +1,7 @@
+**Mamdani Says His Rivals Are Pushing Hate in Final Days of N.Y.C. Mayoral Election**\
+`Assemblyman Zohran Mamdani spoke about the impact of Islamophobia on his family during a campaign event in the Bronx. At a mayoral debate earlier this week, his opponent Curtis Sliwa had accused him of supporting “global jihad.”`\
+https://nytimes.com/video/us/politics/100000010480722/mamdani-nyc-mayoral-election-condems-hate.html
+
 **NFL sends memo reminding league personnel of gambling policy in wake of NBA scandal**\
 `The NFL outlined in the memo what is prohibited, including placing any bets on NFL football games or throwing or fixing games.`\
 https://nytimes.com/athletic/6747906/2025/10/24/nfl-gambling-memo-nba-scandal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6748156/2025/10/24/twins-manager-search/
 **Sirikit, Glamorous Former Queen of Thailand Who Wielded Power, Dies at 93**\
 `As the wife of King Bhumibol Adulyadej, she supported local causes and traveled the world, charming government leaders and the public.`\
 https://nytimes.com/2025/10/24/world/asia/queen-sirikit-thailand-dead.html
-
-**Senior Border Patrol Official Throws Tear Gas at Chicago Residents**\
-`Gregory Bovino, a senior Border Patrol official, threw a tear gas canister at a large group of Chicago residents on Thursday. Tensions escalated after officials arrested a security guard in a mall parking lot.`\
-https://nytimes.com/video/us/politics/100000010479421/border-patrol-official-throws-tear-gas-chicago.html
 
