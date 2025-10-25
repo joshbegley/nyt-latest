@@ -1,3 +1,7 @@
+**Personal History**\
+`Good morning. The good things in our lives are the result of fantastic webs of interconnected prerequisites.`\
+https://nytimes.com/2025/10/25/briefing/personal-history.html
+
 **How to watch Brentford vs, Liverpool for U.S. fans: Reds try to shake a crisis stretch**\
 `Here's how fans in U.S. markets can watch Liverpool visit Brentford on Saturday.`\
 https://nytimes.com/athletic/6742627/2025/10/25/liverpool-brentford-us-tv-how-to-watch/
