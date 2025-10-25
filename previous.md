@@ -3,7 +3,7 @@
 https://nytimes.com/2025/10/24/us/trump-immigration-crackdown-chicago-lakeview.html
 
 **Adam Silver 'deeply disturbed' by allegations in federal NBA gambling investigation**\
-`Silver also explained why the NBA's own investigation cleared Terry Rozier of wrongdoing when the government's was able to charge him. `\
+`Silver also explained why the NBA's own investigation previously found no wrongdoing by Heat guard Terry Rozier.`\
 https://nytimes.com/athletic/6748339/2025/10/24/adam-silver-response-nba-gambling-investigation/
 
 **Mamdani Says His Rivals Are Pushing Hate in Final Days of N.Y.C. Mayoral Election**\

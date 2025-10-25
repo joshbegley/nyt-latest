@@ -1,3 +1,7 @@
+**Adam Silver 'deeply disturbed' by allegations in federal NBA gambling investigation**\
+`Silver also explained why the NBA's own investigation previously found no wrongdoing by Heat guard Terry Rozier.`\
+https://nytimes.com/athletic/6748339/2025/10/24/adam-silver-response-nba-gambling-investigation/
+
 **Bannon Claims ‘There Is a Plan’ for Trump to Run for a Third Term**\
 `The claim comes after months of President Trump toying with the idea, insisting that he is “not joking” about defying a constitutionally-mandated term limit.`\
 https://nytimes.com/2025/10/24/us/politics/president-trump-2028-steve-bannon.html
