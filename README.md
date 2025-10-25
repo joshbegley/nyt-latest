@@ -1,3 +1,7 @@
+**Why is it Called a Handicap in Golf?**\
+`The term ‘‘handicap’’ in golf has some strange origins — and is older than you might expect.`\
+https://nytimes.com/video/the-athletic/100000010459540/why-is-it-called-a-handicap-in-golf.html
+
 **Russini: What I’m hearing from Jerry Jones and Jeffrey Lurie, plus the latest trade deadline buzz**\
 `Also: Woody Johnson on his ownership of the Jets, Jimmy Haslam on Shedeur Sanders and an intriguing potential NFL coaching candidate.`\
 https://nytimes.com/athletic/6747218/2025/10/25/nfl-trade-rumors-news-aj-brown-jerry-jones-targets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6749140/2025/10/25/ducks-vs-lightning-stream-how-to
 **Watch: Travis Hunter's breakout performance a sign of what's to come in Jaguars' offense**\
 `The Jaguars are starting to figure out ways to feed Hunter the ball on offense, which should mean good things for QB Trevor Lawrence.`\
 https://nytimes.com/athletic/6749065/2025/10/25/travis-hunter-film-breakdown-jaguars-trevor-lawrence/
-
-**Mikaela Shiffrin fourth in Alpine skiing opener; Julia Scheib, Paula Moltzan top podium**\
-`Scheib ended a 10-year Austrian drought, and Moltzan and Shiffrin had big days for the American squad in the Alpine skiing season opener.`\
-https://nytimes.com/athletic/6747606/2025/10/25/mikaela-shiffrin-alpine-skiing-world-cup-julia-scheib-paula-moltzan/
 
