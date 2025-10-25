@@ -1,3 +1,7 @@
+**Clippers bounce back in home opener by running and adjusting lineups around stars**\
+`"As we go further in the season, we learn who we are, we learn what works against different teams, and we go from there," James Harden said.`\
+https://nytimes.com/athletic/6749230/2025/10/25/clippers-home-opener-win/
+
 **How to watch Mammoth vs. Wild: Time, TV, streaming**\
 `Find out how to watch the Utah Mammoth play the Minnesota Wild, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6749498/2025/10/25/mammoth-vs-wild-stream-how-to-watch-oct-25/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6749483/2025/10/25/kings-vs-predators-stream-how-to
 **How to watch Bulls vs. Magic: Time, TV, streaming**\
 `Find out how to watch the Chicago Bulls play the Orlando Magic, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6749480/2025/10/25/bulls-vs-magic-stream-how-to-watch-oct-25/
-
-**How to watch Pacers vs. Grizzlies: Time, TV, streaming**\
-`Find out how to watch the Indiana Pacers play the Memphis Grizzlies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6749478/2025/10/25/pacers-vs-grizzlies-stream-how-to-watch-oct-25/
 
