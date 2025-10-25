@@ -1,3 +1,11 @@
+**Did Cheating Accusations Have Anything to Do With the Death of a Chess Grandmaster?**\
+`Daniel Naroditsky, a top American player with an online following, was found dead in Charlotte, N.C., after talking about being accused of cheating by a former world champion.`\
+https://nytimes.com/2025/10/25/style/chess-cheating-death.html
+
+**In Playoff separation game, Ole Miss comes back to defeat Oklahoma, strengthening resume**\
+`No. 8 Ole Miss improved to 7-1 and doesn't have a ranked team left on its schedule after wining 34-26 at No. 13 Oklahoma on Saturday.`\
+https://nytimes.com/athletic/6749734/2025/10/25/ole-miss-oklahoma-score-result/
+
 **In Playoff separation game, Ole Miss comes back to defeat Oklahoma, strengthening resume**\
 `Ole Miss improved to 7-1 and doesn't have a ranked team left on its schedule.`\
 https://nytimes.com/athletic/6749734/2025/10/25/ole-miss-oklahoma-score-result/

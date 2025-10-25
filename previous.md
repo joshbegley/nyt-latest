@@ -1,5 +1,9 @@
+**Did Cheating Accusations Have Anything to Do With the Death of a Chess Grandmaster?**\
+`Daniel Naroditsky, a top American player with an online following, was found dead in Charlotte, N.C., after talking about being accused of cheating by a former world champion.`\
+https://nytimes.com/2025/10/25/style/chess-cheating-death.html
+
 **In Playoff separation game, Ole Miss comes back to defeat Oklahoma, strengthening resume**\
-`Ole Miss improved to 7-1 and doesn't have a ranked team left on its schedule.`\
+`No. 8 Ole Miss improved to 7-1 and doesn't have a ranked team left on its schedule after wining 34-26 at No. 13 Oklahoma on Saturday.`\
 https://nytimes.com/athletic/6749734/2025/10/25/ole-miss-oklahoma-score-result/
 
 **Bears take another hit in secondary, place nickel CB Kyler Gordon on IR**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6749666/2025/10/25/nashville-predators-roman-josi-i
 **Canada-U.S. Tensions Stay on the Ball Field as Blue Jays Stun Dodgers**\
 `At Game 1 of the World Series in Toronto on Friday, overt politics were absent. Unity between the two nations was on display before the first pitch.`\
 https://nytimes.com/2025/10/25/sports/baseball/blue-jays-dodgers-trump-canada-us.html
-
-**Man Utd 4 Brighton 2 - What has Ruben Amorim improved to earn three successive wins?**\
-`Analysis of Manchester United's victory over Brighton in the Premier League`\
-https://nytimes.com/athletic/6744775/2025/10/25/man-utd-4-brighton-2-highlights/
 
