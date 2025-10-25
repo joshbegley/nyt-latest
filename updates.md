@@ -1,3 +1,11 @@
+**Papal Permission for Latin Mass in St. Peter’s Gives Traditionalists Hope**\
+`Pope Francis greatly limited the use of the traditional Latin Mass, believing it sowed division. Traditionalist Catholics are hoping Pope Leo charts a different path.`\
+https://nytimes.com/2025/10/25/world/europe/pope-leo-latin-mass-traditionalists.html
+
+**Warriors' Jonathan Kuminga steps up by playing 'decisive basketball' in first week**\
+`"We love the way he's approached everything since training camp and expect more of that," Warriors guard Stephen Curry said.`\
+https://nytimes.com/athletic/6748803/2025/10/25/jonathan-kuminga-playing-well-warriors/
+
 **Donor Who Gave $130 Million to Pay Troops Is Reclusive Heir to Mellon Fortune**\
 `Timothy Mellon is a billionaire and a major financial backer of President Trump.`\
 https://nytimes.com/2025/10/25/us/politics/timothy-mellon-donation-troops.html
