@@ -1,3 +1,7 @@
+**Commanders to get Terry McLaurin, Deebo Samuel back vs. Chiefs**\
+`Washington won't have QB Jayden Daniels on Sunday, but will have two playmakers in the lineup against Kansas City.`\
+https://nytimes.com/athletic/6749351/2025/10/25/commanders-terry-mclaurin-deebo-samuel-return/
+
 **Canadiens forward Patrik Laine to miss 3-4 months with core muscle injury**\
 `Laine's core muscle injury is the latest in a long line of setbacks and challenges for him.`\
 https://nytimes.com/athletic/6749486/2025/10/25/patrik-laine-injury-out-canadiens/
