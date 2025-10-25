@@ -1,3 +1,11 @@
+**Timberwolves' defense has been nowhere to be found for most of the first 2 games**\
+`After being shredded by Luka Dončić and the Lakers, the Timberwolves are still looking to rediscover their defensive edge.`\
+https://nytimes.com/athletic/6748409/2025/10/25/timberwolves-defense-struggles-lakers/
+
+**The Thrills Have Eyes**\
+`Put edible googly eyes on your Spooky season bakes; watch eyes light up (pun intended).`\
+https://nytimes.com/2025/10/25/dining/the-thrills-have-eyes.html
+
 **Why is it Called a Handicap in Golf?**\
 `The term ‘‘handicap’’ in golf has some strange origins — and is older than you might expect.`\
 https://nytimes.com/video/the-athletic/100000010459540/why-is-it-called-a-handicap-in-golf.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6749144/2025/10/25/avalanche-vs-bruins-stream-how-t
 **How to watch Sabres vs. Maple Leafs: Time, TV, streaming**\
 `Find out how to watch the Buffalo Sabres play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6749143/2025/10/25/sabres-vs-maple-leafs-stream-how-to-watch-oct-25/
-
-**How to watch Ducks vs. Lightning: Time, TV, streaming**\
-`Find out how to watch the Anaheim Ducks play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6749140/2025/10/25/ducks-vs-lightning-stream-how-to-watch-oct-25/
-
-**Watch: Travis Hunter's breakout performance a sign of what's to come in Jaguars' offense**\
-`The Jaguars are starting to figure out ways to feed Hunter the ball on offense, which should mean good things for QB Trevor Lawrence.`\
-https://nytimes.com/athletic/6749065/2025/10/25/travis-hunter-film-breakdown-jaguars-trevor-lawrence/
 
