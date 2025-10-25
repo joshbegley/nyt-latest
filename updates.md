@@ -1,3 +1,11 @@
+**NFL sends memo reminding league personnel of gambling policy in wake of NBA scandal**\
+`The NFL outlined in the memo what is prohibited, including placing any bets on NFL football games or throwing or fixing games.`\
+https://nytimes.com/athletic/6747906/2025/10/24/nfl-gambling-memo-nba-scandal/
+
+**Mamdani Says Rivals Are Pushing Hate as Mayor’s Race Enters Last Stretch**\
+`Zohran Mamdani’s opponents, Andrew Cuomo and Curtis Sliwa, denied accusations that they are stoking Islamophobia with their rhetoric and actions.`\
+https://nytimes.com/2025/10/24/nyregion/mamdani-cuomo-muslim-mayor.html
+
 **Justice Department Will Monitor Elections in California and New Jersey**\
 `The Trump administration said that monitors will watch polling in two states, led by Democrats, where key races or issues are on the ballot.`\
 https://nytimes.com/2025/10/24/us/politics/doj-election-monitors-california-new-jersey.html

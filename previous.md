@@ -1,3 +1,7 @@
+**NFL sends memo reminding league personnel of gambling policy in wake of NBA scandal**\
+`The NFL outlined in the memo what is prohibited, including placing any bets on NFL football games or throwing or fixing games.`\
+https://nytimes.com/athletic/6747906/2025/10/24/nfl-gambling-memo-nba-scandal/
+
 **Justice Department Will Monitor Elections in California and New Jersey**\
 `The Trump administration said that monitors will watch polling in two states, led by Democrats, where key races or issues are on the ballot.`\
 https://nytimes.com/2025/10/24/us/politics/doj-election-monitors-california-new-jersey.html
@@ -11,7 +15,7 @@ https://nytimes.com/2025/10/24/us/politics/trump-china-trade-deal.html
 https://nytimes.com/2025/10/24/nyregion/eleonora-srugo-eric-adams-rent-board.html
 
 **Mamdani Says Rivals Are Pushing Hate as Mayor’s Race Enters Last Stretch**\
-`Zohran Mamdani’s opponents, Andrew Cuomo and Curtis Sliwa, denied accusations they that are stoking Islamophobia with their rhetoric and actions.`\
+`Zohran Mamdani’s opponents, Andrew Cuomo and Curtis Sliwa, denied accusations that they are stoking Islamophobia with their rhetoric and actions.`\
 https://nytimes.com/2025/10/24/nyregion/mamdani-cuomo-muslim-mayor.html
 
 **Commanders' Terry McLaurin opens up about his injury and up-and-down year**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/24/world/asia/queen-sirikit-thailand-dead.html
 **Senior Border Patrol Official Throws Tear Gas at Chicago Residents**\
 `Gregory Bovino, a senior Border Patrol official, threw a tear gas canister at a large group of Chicago residents on Thursday. Tensions escalated after officials arrested a security guard in a mall parking lot.`\
 https://nytimes.com/video/us/politics/100000010479421/border-patrol-official-throws-tear-gas-chicago.html
-
-**D.C. Seeks to Block National Guard Deployment in Court**\
-`During a hearing on Friday, lawyers told a judge that National Guard troops sent from Republican-led states had been conducting conduct law enforcement work.`\
-https://nytimes.com/2025/10/24/us/politics/national-guard-dc-lawsuit.html
 
