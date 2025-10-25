@@ -1,3 +1,7 @@
+**Anthony Hopkins on Quitting Drinking and Finding God**\
+`Summary TK; should be hidden on the body of the article itself.`\
+https://nytimes.com/2025/10/25/magazine/anthony-hopkins-interview.html
+
 **The Sprint for City Hall**\
 `A busy, ugly, head-spinning week in the mayor’s race leads New Yorkers into the early-voting period.`\
 https://nytimes.com/card/2025/10/25/nyregion/nyc-mayor-election-mamdani-cuomo-sliwa
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010478109/how-trump-is-getting-some-
 **Monarchy Is a Lottery. Sometimes You Get a Dud.**\
 `The inordinate gilded privilege of being a member of the royal family takes anything but the strongest character and ruins all the good in it.`\
 https://nytimes.com/2025/10/25/opinion/prince-andrew-royal-family.html
-
-**Keeping the House Absent, Johnson Marginalizes Congress and Himself**\
-`The speaker’s decision to hold the House in an indefinite hiatus during the shutdown is his latest move to diminish the role of the legislative branch — and his own post.`\
-https://nytimes.com/2025/10/25/us/politics/mike-johnson-speaker-congress.html
 

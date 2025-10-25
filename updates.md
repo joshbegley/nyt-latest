@@ -1,3 +1,7 @@
+**Anthony Hopkins on Quitting Drinking and Finding God**\
+`Summary TK; should be hidden on the body of the article itself.`\
+https://nytimes.com/2025/10/25/magazine/anthony-hopkins-interview.html
+
 **The Sprint for City Hall**\
 `A busy, ugly, head-spinning week in the mayor’s race leads New Yorkers into the early-voting period.`\
 https://nytimes.com/card/2025/10/25/nyregion/nyc-mayor-election-mamdani-cuomo-sliwa
