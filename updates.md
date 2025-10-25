@@ -1,3 +1,7 @@
+**Trump Administration Plans a Shake-Up at ICE to Speed Deportations**\
+`The preliminary plan stems from frustration over the pace of the deportations, which are lagging behind President Trump’s demands.`\
+https://nytimes.com/2025/10/24/us/politics/trump-deportations-ice.html
+
 **Trump Administration Plans a Shake-up at ICE to Speed Deportations**\
 `The preliminary plan stems from frustration over the pace of the deportations, which are lagging behind President Trump’s demands.`\
 https://nytimes.com/2025/10/24/us/politics/trump-deportations-ice.html
