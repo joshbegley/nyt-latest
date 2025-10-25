@@ -1,3 +1,7 @@
+**Adam Silver 'deeply disturbed' by allegations in federal NBA gambling investigation**\
+`Silver also explained why the NBA's own investigation cleared Terry Rozier of wrongdoing when the government's was able to charge him. `\
+https://nytimes.com/athletic/6748339/2025/10/24/adam-silver-response-nba-gambling-investigation/
+
 **Immigration Crackdown Spreads Through Chicago, Including Wealthy Neighborhoods**\
 `Federal agents detained a man on the city’s North Side on Friday, and residents emerged from their homes, yelling and blowing whistles.`\
 https://nytimes.com/2025/10/24/us/trump-immigration-crackdown-chicago-lakeview.html
