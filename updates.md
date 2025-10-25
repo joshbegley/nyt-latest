@@ -1,3 +1,15 @@
+**Slot says Liverpool defeat one of his worst**\
+`The Premier League champions have lost four games in a row after their 3-2 defeat to Brentford on Saturday.`\
+https://nytimes.com/athletic/6749989/2025/10/25/arne-slot-liverpool-summer-signings-poor-form/
+
+**Lando Norris storms to Mexico GP pole as title rivals Verstappen and Piastri struggle**\
+`McLaren's Lando Norris scored a dominant pole position for the 2025 Mexico City GP, with his F1 title rivals struggling behind`\
+https://nytimes.com/athletic/6749941/2025/10/25/mexico-gp-qualifying-results/
+
+**Kraken's Brandon Montour reveals brother’s death from ALS**\
+`The emotional Seattle defenseman said his brother, Cameron Noble-Montour, is "probably smiling and chirping me up there for crying."`\
+https://nytimes.com/athletic/6749934/2025/10/25/kraken-brandon-montour-brother-death-als/
+
 **Lando Norris sweeps to commanding Mexico GP pole as Verstappen and Piastri toil**\
 `McLaren's Lando Norris scored a dominant pole position for the 2025 Mexico City GP, with his F1 title rivals struggling behind`\
 https://nytimes.com/athletic/6749941/2025/10/25/mexico-gp-qualifying-results/
