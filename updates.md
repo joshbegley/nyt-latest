@@ -1,3 +1,7 @@
+**Luka Dončić lights up Timberwolves for 49 points to avenge playoff defeat**\
+`Dončić became the first player in NBA history to begin the season with consecutive 40-point, 10-rebound and 5-assist games.`\
+https://nytimes.com/athletic/6748645/2025/10/25/luka-doncic-highlights-lakers-timberwolves/
+
 **Jalen Duren ejected for elbowing Amen Thompson, but Pistons rally to defeat Rockets**\
 `The Pistons' center held his jersey high as he departed the floor, but his team banded together to send Houston to its second straight loss.`\
 https://nytimes.com/athletic/6748626/2025/10/25/jalen-duren-ejected-amen-thompson-pistons-rockets/

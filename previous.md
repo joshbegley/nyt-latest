@@ -1,3 +1,7 @@
+**Luka Dončić lights up Timberwolves for 49 points to avenge playoff defeat**\
+`Dončić became the first player in NBA history to begin the season with consecutive 40-point, 10-rebound and 5-assist games.`\
+https://nytimes.com/athletic/6748645/2025/10/25/luka-doncic-highlights-lakers-timberwolves/
+
 **Jalen Duren ejected for elbowing Amen Thompson, but Pistons rally to defeat Rockets**\
 `The Pistons' center held his jersey high as he departed the floor, but his team banded together to send Houston to its second straight loss.`\
 https://nytimes.com/athletic/6748626/2025/10/25/jalen-duren-ejected-amen-thompson-pistons-rockets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6730112/2025/10/25/crystal-palace-ian-wright-arsena
 **Real Madrid vs Barcelona: The four tactical issues that could decide El Clasico**\
 `The Athletic looks at the key areas where the game will be won and lost ahead of their top-of-the-table La Liga clash`\
 https://nytimes.com/athletic/6746530/2025/10/25/real-madrid-barcelona-el-clasico-tactical-preview/
-
-**A new Clasico fault line for Real Madrid and Barcelona: The Miami fallout**\
-`A dramatic week in Spanish football culminates with El Clasico on Sunday, following fresh tension between Real Madrid and Barcelona`\
-https://nytimes.com/athletic/6747112/2025/10/25/real-madrid-barcelona-clasico-miami-fallout/
 

@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, Oct. 25, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/25/todays-new-york-times
+
 **Luka Dončić lights up Timberwolves for 49 points to avenge playoff defeat**\
 `Dončić became the first player in NBA history to begin the season with consecutive 40-point, 10-rebound and 5-assist games.`\
 https://nytimes.com/athletic/6748645/2025/10/25/luka-doncic-highlights-lakers-timberwolves/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6746274/2025/10/25/premier-league-form-liverpool/
 **'It was like hearing Lady Di had died': Revisiting the day Ian Wright left Palace for Arsenal**\
 `Eberechi Eze was not the first Palace player to be tempted away by Arsenal – the scars of Wright's exit in 1991 still smart`\
 https://nytimes.com/athletic/6730112/2025/10/25/crystal-palace-ian-wright-arsenal-oral-history/
-
-**Real Madrid vs Barcelona: The four tactical issues that could decide El Clasico**\
-`The Athletic looks at the key areas where the game will be won and lost ahead of their top-of-the-table La Liga clash`\
-https://nytimes.com/athletic/6746530/2025/10/25/real-madrid-barcelona-el-clasico-tactical-preview/
 
