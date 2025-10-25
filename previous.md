@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6748278/2025/10/24/messi-scores-twice-miami-wins/
 https://nytimes.com/athletic/6748373/2025/10/24/maple-leafs-william-nylander-injury-sabres/
 
 **Drake scores first in World Series subplot feud with Kendrick Lamar**\
-`The Toronto rapper was shown on the Rogers Centre scoreboard heading to the fourth inning, and the Blue Jays wound up tying the Dodgers 2-2.`\
+`Ever since the Blue Jays showed the Toronto rapper on the scoreboard, they scored the next 11 runs to take an 11-2 lead over the Dodgers.`\
 https://nytimes.com/athletic/6748419/2025/10/24/drake-kendrick-lamar-world-series-game-1/
 
 **Balances**\

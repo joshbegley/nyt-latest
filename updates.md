@@ -1,3 +1,7 @@
+**Drake scores first in World Series subplot feud with Kendrick Lamar**\
+`Ever since the Blue Jays showed the Toronto rapper on the scoreboard, they scored the next 11 runs to take an 11-2 lead over the Dodgers.`\
+https://nytimes.com/athletic/6748419/2025/10/24/drake-kendrick-lamar-world-series-game-1/
+
 **MLB union leader Tony Clark supports elimination of prop bets after NBA gambling scandal**\
 `MLBPA leadership says that they have long had concerns about prop betting, where specific player outcomes are at issue. `\
 https://nytimes.com/athletic/6748455/2025/10/24/mlb-union-eliminate-prop-betting-tony-clark/
