@@ -1,3 +1,11 @@
+**The Briefing: Brentford 3 Liverpool 2 - Is Slot's title defence already over?**\
+`The major talking points dissected from a dramatic game at the Gtech Community Stadium`\
+https://nytimes.com/athletic/6744776/2025/10/25/liverpool-brentford-result-analysis/
+
+**Trump Announces Tariff Hike on Canada Over Reagan Ad Spat**\
+`The ad, which will stop airing on Monday, used audio of a 1987 address by Ronald Reagan making a case against tariffs.`\
+https://nytimes.com/2025/10/25/world/canada/trump-tariffs-reagan-ad.html
+
 **Ex-L.A.P.D. Officer Indicted in On-Duty Shooting of Unarmed Homeless Man**\
 `Clifford Proctor, 60, was charged with second-degree murder in the 2015 killing of Brendon Glenn during an attempted arrest.`\
 https://nytimes.com/2025/10/25/us/lapd-homeless-shooting-murder-charge.html

@@ -2,7 +2,7 @@
 `The major talking points dissected from a dramatic game at the Gtech Community Stadium`\
 https://nytimes.com/athletic/6744776/2025/10/25/liverpool-brentford-result-analysis/
 
-**Trump Announces Tariff Hike on Canada Over Reagan Ad Spat**\
+**Trump Announces Tariff Increase on Canada Over Reagan Ad Spat**\
 `The ad, which will stop airing on Monday, used audio of a 1987 address by Ronald Reagan making a case against tariffs.`\
 https://nytimes.com/2025/10/25/world/canada/trump-tariffs-reagan-ad.html
 
