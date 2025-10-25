@@ -1,3 +1,7 @@
+**'The best player in the world': Giannis scores 31, grabs 20 rebounds in win over Raptors**\
+`Antetokounmpo and Denver Nuggets center Nikola Jokić are tied for the most 30-20-5 games among active players.`\
+https://nytimes.com/athletic/6749251/2025/10/25/giannis-antetokounmpo-bucks-win-over-raptors/
+
 **Man arrested after Australia cricket players allegedly ‘touched inappropriately’ in India**\
 `The incident occurred on Thursday in the city of Indore as the players walked to a cafe.`\
 https://nytimes.com/athletic/6749154/2025/10/25/cricket-australia-players-women-india/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6748409/2025/10/25/timberwolves-defense-struggles-l
 **The Thrills Have Eyes**\
 `Put edible googly eyes on your Spooky season bakes; watch eyes light up (pun intended).`\
 https://nytimes.com/2025/10/25/dining/the-thrills-have-eyes.html
-
-**Why is it Called a Handicap in Golf?**\
-`The term ‘‘handicap’’ in golf has some strange origins — and is older than you might expect.`\
-https://nytimes.com/video/the-athletic/100000010459540/why-is-it-called-a-handicap-in-golf.html
 
