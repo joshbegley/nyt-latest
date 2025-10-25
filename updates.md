@@ -1,3 +1,7 @@
+**WATCH: The biggest (and luckiest) NFL play of the season**\
+`The Broncos entered the fourth quarter against the Giants down 19-0 and proceeded to score 33 points for the win.`\
+https://nytimes.com/athletic/6748016/2025/10/25/denver-broncos-comeback-video-analysis/
+
 **Wrexham proved their progress at Middlesbrough - now they must push for more**\
 `A point at promotion chasers was creditable but it also showed how far Phil Parkinson's side have to go to challenge`\
 https://nytimes.com/athletic/6746254/2025/10/25/wrexham-middlesbrough-result-analysis/
