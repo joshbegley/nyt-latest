@@ -1,3 +1,7 @@
+**West Ham face a defining period on and off the pitch. They do not look ready for it**\
+`West Ham fell to a 2-1 defeat against Leeds United on Friday night`\
+https://nytimes.com/athletic/6746911/2025/10/25/west-ham-leeds-transfer-window-analysis/
+
 **Brenden Aaronson's big step forward and a flash of hope for Leeds**\
 `Brenden Aaronson was central to Leeds United's 2-1 win over West Ham on Friday night`\
 https://nytimes.com/athletic/6748274/2025/10/25/leeds-united-brenden-aaronson-west-ham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6740397/2025/10/25/liverpool-defeats-tactics-guide/
 **Manchester United have one home game in 50 days - here's why that matters**\
 `The team's lighter schedule with no Europe and an early Carabao Cup exit has real consequences for the whole Old Trafford ecosystem`\
 https://nytimes.com/athletic/6746188/2025/10/25/man-utd-fixtures-old-trafford/
-
-**Chauncey Billups fooled me, too, it appears. Why his shocking arrest cuts so deep**\
-`The somber image of Chauncey Billups at his hearing is in stark contrast to who he appeared to be during his time as coach in Portland.`\
-https://nytimes.com/athletic/6748387/2025/10/25/chauncey-billups-arrest-blazers-warriors/
 
