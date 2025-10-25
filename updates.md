@@ -1,3 +1,7 @@
+**Rosenthal: Like they've done all postseason, the Blue Jays keep piling up quality at-bats**\
+`“We’re not easy outs,” outfielder Nathan Lukes said. “This entire game, we all proved it.”`\
+https://nytimes.com/athletic/6748838/2025/10/25/toronto-blue-jays-world-series-hitting/
+
 **Anthony Hopkins on Quitting Drinking and Finding God**\
 `Summary TK; should be hidden on the body of the article itself.`\
 https://nytimes.com/2025/10/25/magazine/anthony-hopkins-interview.html
