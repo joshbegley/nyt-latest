@@ -1,3 +1,5 @@
+
+
 **Papal Permission for Latin Mass in St. Peter’s Gives Traditionalists Hope**\
 `Pope Francis greatly limited the use of the traditional Latin Mass, believing it sowed division. Traditionalist Catholics are hoping Pope Leo charts a different path.`\
 https://nytimes.com/2025/10/25/world/europe/pope-leo-latin-mass-traditionalists.html
