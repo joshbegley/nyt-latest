@@ -1,3 +1,11 @@
+**How to watch Suns vs. Nuggets: Time, TV, streaming**\
+`Find out how to watch the Phoenix Suns play the Denver Nuggets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6749818/2025/10/25/suns-vs-nuggets-stream-how-to-watch-oct-25/
+
+**How to watch Oilers vs. Kraken: Time, TV, streaming**\
+`Find out how to watch the Edmonton Oilers play the Seattle Kraken, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6749816/2025/10/25/oilers-vs-kraken-stream-how-to-watch-oct-25/
+
 **June Lockhart, Beloved Television Mother, Dies at 100**\
 `She exuded earnest maternal wisdom and wistful contentment as a farm wife on “Lassie” and, later, as an interplanetary castaway on “Lost in Space.”`\
 https://nytimes.com/2025/10/25/arts/television/june-lockhart-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/25/world/europe/andrew-tate-florida-charges.html
 **WATCH: The biggest (and luckiest) NFL play of the season**\
 `The Broncos entered the fourth quarter against the Giants down 19-0 and proceeded to score 33 points for the win.`\
 https://nytimes.com/athletic/6748016/2025/10/25/denver-broncos-comeback-video-analysis/
-
-**Wrexham proved their progress at Middlesbrough - now they must push for more**\
-`A point at promotion chasers was creditable but it also showed how far Phil Parkinson's side have to go to challenge`\
-https://nytimes.com/athletic/6746254/2025/10/25/wrexham-middlesbrough-result-analysis/
-
-**With Tyrod Taylor hurt, Justin Fields to remain Jets' starting quarterback in Week 8**\
-`With Tyrod Taylor hurt, Justin Fields will remain the Jets' starter against the Cincinnati Bengals on Sunday.`\
-https://nytimes.com/athletic/6749608/2025/10/25/justin-fields-week-8-starting-qb-nfl/
 
