@@ -34,7 +34,7 @@ https://nytimes.com/2025/10/24/nyregion/mamdani-cuomo-muslim-mayor.html
 `McLaurin, who is expected to return Monday night against the Kansas City Chiefs, has never experienced a year quite like this one.`\
 https://nytimes.com/athletic/6748085/2025/10/24/commanders-terry-mclaurin-opens-up-injury/
 
-**Bannon Claims ‘There Is a Plan’ For Trump to Run for a Third Term**\
+**Bannon Claims ‘There Is a Plan’ for Trump to Run for a Third Term**\
 `The claim comes after months of President Trump toying with the idea, insisting that he is “not joking” about defying a constitutionally-mandated term limit.`\
 https://nytimes.com/2025/10/24/us/politics/president-trump-2028-steve-bannon.html
 
