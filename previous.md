@@ -28,7 +28,7 @@ https://nytimes.com/athletic/6748274/2025/10/25/leeds-united-brenden-aaronson-we
 
 **How to watch Dodgers at Blue Jays: World Series Game 2 Time, TV, streaming**\
 `Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6748694/2025/10/25/dodgers-vs-blue-jays-stream-how-to-watch-oct-25/
+https://nytimes.com/athletic/6748694/2025/10/25/how-to-watch-dodgers-vs-blue-jays-world-series-game-2-tv-channel-and-streaming-options-for-october-25/
 
 **At home opener, some Raptors fans get distracted by World Series 'neighbours'**\
 `The Raptors crowd, generally decked out in red and black, sported far more blue than usual with Blue Jays gear from previous World Series.`\

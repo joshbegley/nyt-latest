@@ -1,3 +1,7 @@
+**How to watch Dodgers at Blue Jays: World Series Game 2 Time, TV, streaming**\
+`Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6748694/2025/10/25/how-to-watch-dodgers-vs-blue-jays-world-series-game-2-tv-channel-and-streaming-options-for-october-25/
+
 **‘See You in 4 Years’: Trump Drives Canadians Away From Western New York**\
 `The presence of Canadian visitors in Western New York has dropped off since the start of the year following tensions between Washington and Ottawa.`\
 https://nytimes.com/2025/10/25/nyregion/new-york-border-canadian-visitors-trump.html
