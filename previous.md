@@ -1,3 +1,15 @@
+**Colby Bishop on coming back from heart surgery: 'You have to sign a death waiver'**\
+`A routine pre-season check revealed a life-threatening issue with the Portsmouth striker's aortic valve. This is his journey back to playing`\
+https://nytimes.com/athletic/6739580/2025/10/25/colby-bishop-interview/
+
+**Looking beyond short-term results to understand when a team really is in poor form**\
+`Recent results are the most obvious indicator, but delve a little deeper and we can get a better sense of a team's peaks and troughs`\
+https://nytimes.com/athletic/6746274/2025/10/25/premier-league-form-liverpool/
+
+**'It was like hearing Lady Di had died': Revisiting the day Ian Wright left Palace for Arsenal**\
+`Eberechi Eze was not the first Palace player to be tempted away by Arsenal – the scars of Wright's exit in 1991 still smart`\
+https://nytimes.com/athletic/6730112/2025/10/25/crystal-palace-ian-wright-arsenal-oral-history/
+
 **Real Madrid vs Barcelona: The four tactical issues that could decide El Clasico**\
 `The Athletic looks at the key areas where the game will be won and lost ahead of their top-of-the-table La Liga clash`\
 https://nytimes.com/athletic/6746530/2025/10/25/real-madrid-barcelona-el-clasico-tactical-preview/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/25/world/africa/ivory-coast-election.html
 **‘You Love It or You Hate It’: Pumpkin Spice Lattes Divide Europe**\
 `One of America’s favorite fall drinks shows up in Brussels and Antwerp, but rarely in Paris and Rome. It has yet to reach the ubiquity — or the sugar content — of its stateside counterpart.`\
 https://nytimes.com/2025/10/25/world/europe/pumpkin-spice-latte-coffee-europe.html
-
-**In Fight Against Malaria, an Unexpected — and Snuggly — Shield**\
-`Treating baby wraps with a mosquito repellent shows promising protection against a top killer of children.`\
-https://nytimes.com/2025/10/25/health/insecticide-treated-baby-wraps-carriers-malaria.html
-
-**Connections: Sports Edition Coach: Hints for Oct. 25, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6748494/2025/10/25/connections-sports-edition-hints-for-oct-25-2025/
-
-**Corrections: Oct. 25, 2025**\
-`Corrections that appeared in print on Saturday, Oct. 25, 2025.`\
-https://nytimes.com/2025/10/25/pageoneplus/corrections-oct-25-2025.html
 
