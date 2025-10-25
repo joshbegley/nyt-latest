@@ -1,3 +1,11 @@
+**Mamdani Says His Rivals Are Pushing Hate in Final Days of N.Y.C. Mayoral Election**\
+`Assemblyman Zohran Mamdani spoke about the impact of Islamophobia on his family during a campaign event in the Bronx. At a mayoral debate earlier this week, his opponent Curtis Sliwa had accused him of supporting “global jihad.”`\
+https://nytimes.com/video/us/politics/100000010480722/mamdani-nyc-mayoral-election-condems-hate.html
+
+**Commanders' Terry McLaurin opens up about his injury and up-and-down year**\
+`McLaurin, who is expected to return Monday night against the Kansas City Chiefs, has never experienced a year quite like this one.`\
+https://nytimes.com/athletic/6748085/2025/10/24/commanders-terry-mclaurin-opens-up-injury/
+
 **NFL sends memo reminding league personnel of gambling policy in wake of NBA scandal**\
 `The NFL outlined in the memo what is prohibited, including placing any bets on NFL football games or throwing or fixing games.`\
 https://nytimes.com/athletic/6747906/2025/10/24/nfl-gambling-memo-nba-scandal/
