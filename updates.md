@@ -1,3 +1,11 @@
+**Ex-L.A.P.D. Officer Indicted in On-Duty Shooting of Unarmed Homeless Man**\
+`Clifford Proctor, 60, was charged with second-degree murder in the 2015 killing of Brendon Glenn during an attempted arrest.`\
+https://nytimes.com/2025/10/25/us/lapd-homeless-shooting-murder-charge.html
+
+**Navy Begins Evacuating Families From Guantánamo Bay Ahead of Hurricane Melissa**\
+`The base commander on Saturday expanded a previous evacuation order to include “non-mission-essential U.S. citizens.”`\
+https://nytimes.com/2025/10/25/us/politics/guantanamo-bay-hurricane-melissa-evacuations.html
+
 **Ole Miss topples Oklahoma on the road, taking huge step toward CFP bid**\
 `No. 8 Ole Miss improved to 7-1 and doesn't have a ranked team left on its schedule after wining 34-26 at No. 13 Oklahoma on Saturday.`\
 https://nytimes.com/athletic/6749734/2025/10/25/ole-miss-oklahoma-score-result/
