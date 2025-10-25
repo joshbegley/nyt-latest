@@ -1,3 +1,7 @@
+**Brenden Aaronson's big step forward and a flash of hope for Leeds**\
+`Brenden Aaronson was central to Leeds United's 2-1 win over West Ham on Friday night`\
+https://nytimes.com/athletic/6748274/2025/10/25/leeds-united-brenden-aaronson-west-ham/
+
 **How to watch Dodgers at Blue Jays: World Series Game 2 Time, TV, streaming**\
 `Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6748694/2025/10/25/dodgers-vs-blue-jays-stream-how-to-watch-oct-25/

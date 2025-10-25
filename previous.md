@@ -1,3 +1,7 @@
+**Brenden Aaronson's big step forward and a flash of hope for Leeds**\
+`Brenden Aaronson was central to Leeds United's 2-1 win over West Ham on Friday night`\
+https://nytimes.com/athletic/6748274/2025/10/25/leeds-united-brenden-aaronson-west-ham/
+
 **How to watch Dodgers at Blue Jays: World Series Game 2 Time, TV, streaming**\
 `Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6748694/2025/10/25/dodgers-vs-blue-jays-stream-how-to-watch-oct-25/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6746188/2025/10/25/man-utd-fixtures-old-trafford/
 **Chauncey Billups fooled me, too, it appears. Why his shocking arrest cuts so deep**\
 `The somber image of Chauncey Billups at his hearing is in stark contrast to who he appeared to be during his time as coach in Portland.`\
 https://nytimes.com/athletic/6748387/2025/10/25/chauncey-billups-arrest-blazers-warriors/
-
-**Colby Bishop on coming back from heart surgery: 'You have to sign a death waiver'**\
-`A routine pre-season check revealed a life-threatening issue with the Portsmouth striker's aortic valve. This is his journey back to playing`\
-https://nytimes.com/athletic/6739580/2025/10/25/colby-bishop-interview/
 
