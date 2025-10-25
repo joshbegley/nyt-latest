@@ -1,3 +1,11 @@
+**Timberwolves' defense has been nowhere to be found for most of the first 2 games**\
+`After being shredded by Luka Dončić and the Lakers, the Timberwolves are still looking to rediscover their defensive edge.`\
+https://nytimes.com/athletic/6748409/2025/10/25/timberwolves-defense-struggles-lakers/
+
+**The Thrills Have Eyes**\
+`Put edible googly eyes on your Spooky season bakes; watch eyes light up (pun intended).`\
+https://nytimes.com/2025/10/25/dining/the-thrills-have-eyes.html
+
 **Why is it Called a Handicap in Golf?**\
 `The term ‘‘handicap’’ in golf has some strange origins — and is older than you might expect.`\
 https://nytimes.com/video/the-athletic/100000010459540/why-is-it-called-a-handicap-in-golf.html

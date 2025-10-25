@@ -1,3 +1,11 @@
+**Donor Who Gave $130 Million to Pay Troops Is Reclusive Heir to Mellon Fortune**\
+`Timothy Mellon is a billionaire and a major financial backer of President Trump.`\
+https://nytimes.com/2025/10/25/us/politics/timothy-mellon-donation-troops.html
+
+**In a game where Luka scored 49, the biggest play for the Lakers was a missed dunk**\
+`Deandre Ayton attacking the rim with force fueled hope inside the Lakers' locker room that this year’s team has a higher ceiling.`\
+https://nytimes.com/athletic/6748738/2025/10/25/lakers-luka-doncic-deandre-ayton-dunk/
+
 **Timberwolves' defense has been nowhere to be found for most of the first 2 games**\
 `After being shredded by Luka Dončić and the Lakers, the Timberwolves are still looking to rediscover their defensive edge.`\
 https://nytimes.com/athletic/6748409/2025/10/25/timberwolves-defense-struggles-lakers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6748029/2025/10/25/could-max-verstappen-pull-off-th
 **Madrid's Alexander-Arnold, Carvajal, Huijsen all available for El Clasico**\
 `All three defenders have missed Madrid's most recent matches with various muscular injuries.`\
 https://nytimes.com/athletic/6742923/2025/10/25/real-madrid-team-news-barcelona/
-
-**How to watch Avalanche vs. Bruins: Time, TV, streaming**\
-`Find out how to watch the Colorado Avalanche play the Boston Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6749144/2025/10/25/avalanche-vs-bruins-stream-how-to-watch-oct-25/
-
-**How to watch Sabres vs. Maple Leafs: Time, TV, streaming**\
-`Find out how to watch the Buffalo Sabres play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6749143/2025/10/25/sabres-vs-maple-leafs-stream-how-to-watch-oct-25/
 
