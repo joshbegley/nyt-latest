@@ -1,3 +1,7 @@
+**Mikaela Shiffrin fourth in Alpine skiing opener; Julia Scheib, Paula Moltzan top podium**\
+`Scheib ended a 10-year Austrian drought, and Moltzan and Shiffrin had big days for the American squad in the Alpine skiing season opener.`\
+https://nytimes.com/athletic/6747606/2025/10/25/mikaela-shiffrin-alpine-skiing-world-cup-julia-scheib-paula-moltzan/
+
 **Rwanda accepts top Sudan clubs into domestic league due to ongoing civil war**\
 `Al Hilal and Al Merrikh played the 2024-25 season in Mauritania, north west Africa, due to the unstable political situation in Sudan.`\
 https://nytimes.com/athletic/6749024/2025/10/25/sudan-civil-war-football-rwanda/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6748837/2025/10/25/wizards-mavericks-kyshawn-george
 **Brody Malone wins horizontal bar world gymnastics title, a new cap on his comeback**\
 `The American gymnast was injured and unsure of his future in the sport two years ago. Now, he's a world champion again.`\
 https://nytimes.com/athletic/6748961/2025/10/25/brody-malone-gymnastics-world-championships-horizontal-bar-gold/
-
-**The Dodgers dreaded a bullpen blowup like this, and now they're down 0-1**\
-`The Dodgers' bullpen owns a 6.16 ERA in the postseason after an epic dud to open the World Series.`\
-https://nytimes.com/athletic/6748649/2025/10/25/dodgers-blue-jays-world-series-game-1-bullpen/
 

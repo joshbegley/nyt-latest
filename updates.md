@@ -1,3 +1,7 @@
+**Mikaela Shiffrin fourth in Alpine skiing opener; Julia Scheib, Paula Moltzan top podium**\
+`Scheib ended a 10-year Austrian drought, and Moltzan and Shiffrin had big days for the American squad in the Alpine skiing season opener.`\
+https://nytimes.com/athletic/6747606/2025/10/25/mikaela-shiffrin-alpine-skiing-world-cup-julia-scheib-paula-moltzan/
+
 **Rwanda accepts top Sudan clubs into domestic league due to ongoing civil war**\
 `Al Hilal and Al Merrikh played the 2024-25 season in Mauritania, north west Africa, due to the unstable political situation in Sudan.`\
 https://nytimes.com/athletic/6749024/2025/10/25/sudan-civil-war-football-rwanda/
