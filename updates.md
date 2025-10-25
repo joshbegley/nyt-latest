@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, Oct. 25, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/25/todays-new-york-times
+
 **Luka Dončić lights up Timberwolves for 49 points to avenge playoff defeat**\
 `Dončić became the first player in NBA history to begin the season with consecutive 40-point, 10-rebound and 5-assist games.`\
 https://nytimes.com/athletic/6748645/2025/10/25/luka-doncic-highlights-lakers-timberwolves/
