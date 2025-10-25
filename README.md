@@ -1,3 +1,11 @@
+**Virginia thwarts UNC 2-point try in OT to stay unbeaten in ACC, drop Heels to 2-5**\
+`Virginia remained undefeated in ACC play on a day when it didn't score in the second half.`\
+https://nytimes.com/athletic/6749765/2025/10/25/unc-virginia-score-result/
+
+**Francisco Pinto Balsemão, 88, Dies; Portuguese Prime Minister and Press Champion**\
+`In the wake of a revolution, he helped found a leading political party and tried to conciliate warring left and right factions, although his success was limited.`\
+https://nytimes.com/2025/10/25/world/europe/francisco-pinto-balsemao-dead.html
+
 **Did Cheating Accusations Have Anything to Do With the Death of a Chess Grandmaster?**\
 `Daniel Naroditsky, a top American player with an online following, was found dead in Charlotte, N.C., after talking about being accused of cheating by a former world champion.`\
 https://nytimes.com/2025/10/25/style/chess-cheating-death.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6749816/2025/10/25/oilers-vs-kraken-stream-how-to-w
 **June Lockhart, Beloved Television Mother, Dies at 100**\
 `She exuded earnest maternal wisdom and wistful contentment as a farm wife on “Lassie” and, later, as an interplanetary castaway on “Lost in Space.”`\
 https://nytimes.com/2025/10/25/arts/television/june-lockhart-dead.html
-
-**Bryce Harper 'hurt' by trade speculation after Dave Dombrowski's comments about his season**\
-`“I have given my all to Philly from the start,” Harper told The Athletic. “Now there is trade talk? I made every effort to avoid this." `\
-https://nytimes.com/athletic/6749605/2025/10/25/bryce-harper-phillies-dave-dombrowski-comments/
-
-**Predators captain Roman Josi week to week with upper-body injury**\
-`The Predators said that Josi, 35, is not sidelined in relation to his diagnosis of Postural Orthostatic Tachycardia Syndrome (POTS).`\
-https://nytimes.com/athletic/6749666/2025/10/25/nashville-predators-roman-josi-injury/
 

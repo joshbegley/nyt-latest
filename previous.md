@@ -2,6 +2,10 @@
 `Daniel Naroditsky, a top American player with an online following, was found dead in Charlotte, N.C., after talking about being accused of cheating by a former world champion.`\
 https://nytimes.com/2025/10/25/style/chess-cheating-death.html
 
+**College Football Playoff 2025 projections: The most likely bracket with Week 9 underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/10/25/college-football-playoff-bracket-projections-odds/
+
 **In Playoff separation game, Ole Miss comes back to defeat Oklahoma, strengthening resume**\
 `No. 8 Ole Miss improved to 7-1 and doesn't have a ranked team left on its schedule after wining 34-26 at No. 13 Oklahoma on Saturday.`\
 https://nytimes.com/athletic/6749734/2025/10/25/ole-miss-oklahoma-score-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6749605/2025/10/25/bryce-harper-phillies-dave-dombr
 **Predators captain Roman Josi week to week with upper-body injury**\
 `The Predators said that Josi, 35, is not sidelined in relation to his diagnosis of Postural Orthostatic Tachycardia Syndrome (POTS).`\
 https://nytimes.com/athletic/6749666/2025/10/25/nashville-predators-roman-josi-injury/
-
-**Canada-U.S. Tensions Stay on the Ball Field as Blue Jays Stun Dodgers**\
-`At Game 1 of the World Series in Toronto on Friday, overt politics were absent. Unity between the two nations was on display before the first pitch.`\
-https://nytimes.com/2025/10/25/sports/baseball/blue-jays-dodgers-trump-canada-us.html
 
