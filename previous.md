@@ -1,3 +1,7 @@
+**How to watch Dodgers at Blue Jays: World Series Game 2 Time, TV, streaming**\
+`Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6748694/2025/10/25/dodgers-vs-blue-jays-stream-how-to-watch-oct-25/
+
 **At home opener, some Raptors fans get distracted by World Series 'neighbours'**\
 `The Raptors crowd, generally decked out in red and black, sported far more blue than usual with Blue Jays gear from previous World Series.`\
 https://nytimes.com/athletic/6748446/2025/10/25/at-home-opener-some-raptors-fans-get-distracted-by-world-series-neighbours/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6748387/2025/10/25/chauncey-billups-arrest-blazers-
 **Colby Bishop on coming back from heart surgery: 'You have to sign a death waiver'**\
 `A routine pre-season check revealed a life-threatening issue with the Portsmouth striker's aortic valve. This is his journey back to playing`\
 https://nytimes.com/athletic/6739580/2025/10/25/colby-bishop-interview/
-
-**Looking beyond short-term results to understand when a team really is in poor form**\
-`Recent results are the most obvious indicator, but delve a little deeper and we can get a better sense of a team's peaks and troughs`\
-https://nytimes.com/athletic/6746274/2025/10/25/premier-league-form-liverpool/
 

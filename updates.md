@@ -1,3 +1,7 @@
+**How to watch Dodgers at Blue Jays: World Series Game 2 Time, TV, streaming**\
+`Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6748694/2025/10/25/dodgers-vs-blue-jays-stream-how-to-watch-oct-25/
+
 **At home opener, some Raptors fans get distracted by World Series 'neighbours'**\
 `The Raptors crowd, generally decked out in red and black, sported far more blue than usual with Blue Jays gear from previous World Series.`\
 https://nytimes.com/athletic/6748446/2025/10/25/at-home-opener-some-raptors-fans-get-distracted-by-world-series-neighbours/
