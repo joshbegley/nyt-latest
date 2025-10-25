@@ -1,3 +1,19 @@
+**Madrid's Alexander-Arnold, Carvajal, Huijsen all available for El Clasico**\
+`All three defenders have missed Madrid's most recent matches with various muscular injuries.`\
+https://nytimes.com/athletic/6742923/2025/10/25/real-madrid-team-news-barcelona/
+
+**How to watch Avalanche vs. Bruins: Time, TV, streaming**\
+`Find out how to watch the Colorado Avalanche play the Boston Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6749144/2025/10/25/avalanche-vs-bruins-stream-how-to-watch-oct-25/
+
+**How to watch Sabres vs. Maple Leafs: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6749143/2025/10/25/sabres-vs-maple-leafs-stream-how-to-watch-oct-25/
+
+**How to watch Ducks vs. Lightning: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6749140/2025/10/25/ducks-vs-lightning-stream-how-to-watch-oct-25/
+
 **Watch: Travis Hunter's breakout performance a sign of what's to come in Jaguars' offense**\
 `The Jaguars are starting to figure out ways to feed Hunter the ball on offense, which should mean good things for QB Trevor Lawrence.`\
 https://nytimes.com/athletic/6749065/2025/10/25/travis-hunter-film-breakdown-jaguars-trevor-lawrence/

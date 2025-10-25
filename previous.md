@@ -1,3 +1,19 @@
+**Madrid's Alexander-Arnold, Carvajal, Huijsen all available for El Clasico**\
+`All three defenders have missed Madrid's most recent matches with various muscular injuries.`\
+https://nytimes.com/athletic/6742923/2025/10/25/real-madrid-team-news-barcelona/
+
+**How to watch Avalanche vs. Bruins: Time, TV, streaming**\
+`Find out how to watch the Colorado Avalanche play the Boston Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6749144/2025/10/25/avalanche-vs-bruins-stream-how-to-watch-oct-25/
+
+**How to watch Sabres vs. Maple Leafs: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6749143/2025/10/25/sabres-vs-maple-leafs-stream-how-to-watch-oct-25/
+
+**How to watch Ducks vs. Lightning: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6749140/2025/10/25/ducks-vs-lightning-stream-how-to-watch-oct-25/
+
 **Watch: Travis Hunter's breakout performance a sign of what's to come in Jaguars' offense**\
 `The Jaguars are starting to figure out ways to feed Hunter the ball on offense, which should mean good things for QB Trevor Lawrence.`\
 https://nytimes.com/athletic/6749065/2025/10/25/travis-hunter-film-breakdown-jaguars-trevor-lawrence/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6748069/2025/10/25/edmonton-oilers-season-start-con
 **Bruins’ defense is a disaster, and there’s no help coming**\
 `The Bruins expected defense to be their strength this season. Between growing pains, a new system and injury, it’s been the opposite.`\
 https://nytimes.com/athletic/6747759/2025/10/25/bruins-defense-no-help-coming/
-
-**Is there enough talent for NHL expansion? Odds Sidney Crosby gets traded? Ask CJ**\
-`Also in Chris Johnston's mailbag: Who's playing their way onto Olympic rosters early in the season, and who's the league's top prankster?`\
-https://nytimes.com/athletic/6743951/2025/10/25/nhl-expansion-crosby-laine-olympics/
-
-**What we've learned about the Wild and their underperforming vets heading into a critical homestand**\
-`The number of underperforming Wild veterans has become alarming early in the 2025-26 season. Can they turn it around?`\
-https://nytimes.com/athletic/6747966/2025/10/25/wild-veterans-underperforming-critical-homestand/
-
-**Starring in Videos Is No Longer a Job Just for the Social Media Team**\
-`Companies from Delta Air Lines to Portillo’s are asking all sorts of employees, sometimes through formal programs, to help build the brand.`\
-https://nytimes.com/2025/10/25/business/dealbook/employee-social-media-influencers.html
-
-**'We were relentless': How the Wizards and Kyshawn George shocked the Mavericks**\
-`George dominated on offense, and Washington posted one of its best defensive games in years to stun Dallas.  `\
-https://nytimes.com/athletic/6748837/2025/10/25/wizards-mavericks-kyshawn-george-cooper-flagg/
 
