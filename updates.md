@@ -1,3 +1,7 @@
+**Ole Miss topples Oklahoma on the road, taking huge step toward CFP bid**\
+`No. 8 Ole Miss improved to 7-1 and doesn't have a ranked team left on its schedule after wining 34-26 at No. 13 Oklahoma on Saturday.`\
+https://nytimes.com/athletic/6749734/2025/10/25/ole-miss-oklahoma-score-result/
+
 **Virginia thwarts UNC 2-point try in OT to stay unbeaten in ACC, drop Heels to 2-5**\
 `Virginia remained undefeated in ACC play on a day when it didn't score in the second half.`\
 https://nytimes.com/athletic/6749765/2025/10/25/unc-virginia-score-result/

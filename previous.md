@@ -14,7 +14,7 @@ https://nytimes.com/2025/10/25/style/chess-cheating-death.html
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/10/25/college-football-playoff-bracket-projections-odds/
 
-**In Playoff separation game, Ole Miss comes back to defeat Oklahoma, strengthening resume**\
+**Ole Miss topples Oklahoma on the road, taking huge step toward CFP bid**\
 `No. 8 Ole Miss improved to 7-1 and doesn't have a ranked team left on its schedule after wining 34-26 at No. 13 Oklahoma on Saturday.`\
 https://nytimes.com/athletic/6749734/2025/10/25/ole-miss-oklahoma-score-result/
 
