@@ -1,3 +1,7 @@
+**Weird & Wild: Barger's pinch slam punctuates Blue Jays' history-making Game 1**\
+`Let’s explain what made Barger's blast so special, and yet so hard to believe. Weird & Wild breaks down a Game 1 few could have imagined. `\
+https://nytimes.com/athletic/6748912/2025/10/25/addison-barger-world-series-grand-slam-bluejays/
+
 **‘Not happy just being here’: Blue Jays assert themselves in World Series Game 1 rout**\
 `The Jays, at least outwardly, believe they’re the best team in baseball. They now stand three wins away from claiming that title.`\
 https://nytimes.com/athletic/6748687/2025/10/25/toronto-blue-jays-game-1-world-series-meeting/
