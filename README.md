@@ -1,3 +1,7 @@
+**Warriors' Jonathan Kuminga steps up by playing 'decisive basketball' in first week**\
+`"We love the way he's approached everything since training camp and expect more of that," Warriors guard Stephen Curry said.`\
+https://nytimes.com/athletic/6748803/2025/10/25/jonathan-kuminga-playing-well-warriors/
+
 **Donor Who Gave $130 Million to Pay Troops Is Reclusive Heir to Mellon Fortune**\
 `Timothy Mellon is a billionaire and a major financial backer of President Trump.`\
 https://nytimes.com/2025/10/25/us/politics/timothy-mellon-donation-troops.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6749066/2025/10/25/eagles-devonta-smith-aj-brown-br
 **The Pulse: Max's epic comeback try**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6748029/2025/10/25/could-max-verstappen-pull-off-the-unthinkable-plus-blue-jays-go-bam/
-
-**Madrid's Alexander-Arnold, Carvajal, Huijsen all available for El Clasico**\
-`All three defenders have missed Madrid's most recent matches with various muscular injuries.`\
-https://nytimes.com/athletic/6742923/2025/10/25/real-madrid-team-news-barcelona/
 
