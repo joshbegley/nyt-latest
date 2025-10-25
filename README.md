@@ -1,3 +1,11 @@
+**Ex-L.A.P.D. Officer Indicted in On-Duty Shooting of Unarmed Homeless Man**\
+`Clifford Proctor, 60, was charged with second-degree murder in the 2015 killing of Brendon Glenn during an attempted arrest.`\
+https://nytimes.com/2025/10/25/us/lapd-homeless-shooting-murder-charge.html
+
+**Navy Begins Evacuating Families From Guantánamo Bay Ahead of Hurricane Melissa**\
+`The base commander on Saturday expanded a previous evacuation order to include “non-mission-essential U.S. citizens.”`\
+https://nytimes.com/2025/10/25/us/politics/guantanamo-bay-hurricane-melissa-evacuations.html
+
 **Virginia thwarts UNC 2-point try in OT to stay unbeaten in ACC, drop Heels to 2-5**\
 `Virginia remained undefeated in ACC play on a day when it didn't score in the second half.`\
 https://nytimes.com/athletic/6749765/2025/10/25/unc-virginia-score-result/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/25/arts/music/benita-valente-dead.html
 **How to watch Suns vs. Nuggets: Time, TV, streaming**\
 `Find out how to watch the Phoenix Suns play the Denver Nuggets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6749818/2025/10/25/suns-vs-nuggets-stream-how-to-watch-oct-25/
-
-**How to watch Oilers vs. Kraken: Time, TV, streaming**\
-`Find out how to watch the Edmonton Oilers play the Seattle Kraken, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6749816/2025/10/25/oilers-vs-kraken-stream-how-to-watch-oct-25/
-
-**June Lockhart, Beloved Television Mother, Dies at 100**\
-`She exuded earnest maternal wisdom and wistful contentment as a farm wife on “Lassie” and, later, as an interplanetary castaway on “Lost in Space.”`\
-https://nytimes.com/2025/10/25/arts/television/june-lockhart-dead.html
 
