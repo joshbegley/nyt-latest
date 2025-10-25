@@ -1,3 +1,7 @@
+**Wrexham proved their progress at Middlesbrough - now they must push for more**\
+`A point at promotion chasers was creditable but it also showed how far Phil Parkinson's side have to go to challenge`\
+https://nytimes.com/athletic/6746254/2025/10/25/wrexham-middlesbrough-result-analysis/
+
 **With Tyrod Taylor hurt, Justin Fields to remain Jets' starting quarterback in Week 8**\
 `With Tyrod Taylor hurt, Justin Fields will remain the Jets' starter against the Cincinnati Bengals on Sunday.`\
 https://nytimes.com/athletic/6749608/2025/10/25/justin-fields-week-8-starting-qb-nfl/

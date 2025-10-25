@@ -1,3 +1,7 @@
+**Wrexham proved their progress at Middlesbrough - now they must push for more**\
+`A point at promotion chasers was creditable but it also showed how far Phil Parkinson's side have to go to challenge`\
+https://nytimes.com/athletic/6746254/2025/10/25/wrexham-middlesbrough-result-analysis/
+
 **With Tyrod Taylor hurt, Justin Fields to remain Jets' starting quarterback in Week 8**\
 `With Tyrod Taylor hurt, Justin Fields will remain the Jets' starter against the Cincinnati Bengals on Sunday.`\
 https://nytimes.com/athletic/6749608/2025/10/25/justin-fields-week-8-starting-qb-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6749494/2025/10/25/blues-vs-red-wings-stream-how-to
 **How to watch Blue Jackets vs. Penguins: Time, TV, streaming**\
 `Find out how to watch the Columbus Blue Jackets play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6749492/2025/10/25/blue-jackets-vs-penguins-stream-how-to-watch-oct-25/
-
-**How to watch Golden Knights vs. Panthers: Time, TV, streaming**\
-`Find out how to watch the Vegas Golden Knights play the Florida Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6749490/2025/10/25/golden-knights-vs-panthers-stream-how-to-watch-oct-25/
 

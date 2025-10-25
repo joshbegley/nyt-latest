@@ -1,3 +1,7 @@
+**WATCH: The biggest (and luckiest) NFL play of the season**\
+`The Broncos entered the fourth quarter against the Giants down 19-0 and proceeded to score 33 points for the win.`\
+https://nytimes.com/athletic/6748016/2025/10/25/denver-broncos-comeback-video-analysis/
+
 **Wrexham proved their progress at Middlesbrough - now they must push for more**\
 `A point at promotion chasers was creditable but it also showed how far Phil Parkinson's side have to go to challenge`\
 https://nytimes.com/athletic/6746254/2025/10/25/wrexham-middlesbrough-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6749496/2025/10/25/canadiens-vs-canucks-stream-how-
 **How to watch Blues vs. Red Wings: Time, TV, streaming**\
 `Find out how to watch the St. Louis Blues play the Detroit Red Wings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6749494/2025/10/25/blues-vs-red-wings-stream-how-to-watch-oct-25/
-
-**How to watch Blue Jackets vs. Penguins: Time, TV, streaming**\
-`Find out how to watch the Columbus Blue Jackets play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6749492/2025/10/25/blue-jackets-vs-penguins-stream-how-to-watch-oct-25/
 
