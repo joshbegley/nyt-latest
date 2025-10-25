@@ -1,3 +1,7 @@
+**Kraken's Brandon Montour reveals brother’s death from ALS**\
+`The emotional Seattle defenseman said his brother is "probably smiling and chirping me up there for crying."`\
+https://nytimes.com/athletic/6749934/2025/10/25/kraken-brandon-montour-brother-death-als/
+
 **Talkin’ ’Bout My Generation**\
 `Gary Larson and Doug Peterson time-traveled for decades to make this puzzle.`\
 https://nytimes.com/2025/10/25/crosswords/daily-puzzle-2025-10-26.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/25/us/lapd-homeless-shooting-murder-charge.html
 **Navy Begins Evacuating Families From Guantánamo Bay Ahead of Hurricane Melissa**\
 `The base commander on Saturday expanded a previous evacuation order to include “non-mission-essential U.S. citizens.”`\
 https://nytimes.com/2025/10/25/us/politics/guantanamo-bay-hurricane-melissa-evacuations.html
-
-**Virginia thwarts UNC 2-point try in OT to stay unbeaten in ACC, drop Heels to 2-5**\
-`Virginia remained undefeated in ACC play on a day when it didn't score in the second half.`\
-https://nytimes.com/athletic/6749765/2025/10/25/unc-virginia-score-result/
 

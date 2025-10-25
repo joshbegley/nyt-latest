@@ -1,3 +1,7 @@
+**Kraken's Brandon Montour reveals brother’s death from ALS**\
+`The emotional Seattle defenseman said his brother is "probably smiling and chirping me up there for crying."`\
+https://nytimes.com/athletic/6749934/2025/10/25/kraken-brandon-montour-brother-death-als/
+
 **Talkin’ ’Bout My Generation**\
 `Gary Larson and Doug Peterson time-traveled for decades to make this puzzle.`\
 https://nytimes.com/2025/10/25/crosswords/daily-puzzle-2025-10-26.html
