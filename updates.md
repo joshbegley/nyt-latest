@@ -1,3 +1,7 @@
+**USWNT forward Lynn Biyendolo announces pregnancy**\
+`Coach Emma Hayes outlined a new “360 approach” ensuring USWNT players receive holistic support through pregnancy.`\
+https://nytimes.com/athletic/6749939/2025/10/25/uswnt-lynn-biyendolo-pregnancy-announcement/
+
 **Slot says Liverpool defeat one of his worst**\
 `The Premier League champions have lost four games in a row after their 3-2 defeat to Brentford on Saturday.`\
 https://nytimes.com/athletic/6749989/2025/10/25/arne-slot-liverpool-summer-signings-poor-form/
