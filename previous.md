@@ -1,3 +1,7 @@
+**Canada-U.S. Tensions Stay on the Ball Field as Blue Jays Stun Dodgers**\
+`At Game 1 of the World Series in Toronto on Friday, overt politics were absent. Unity between the two nations was on display before the first pitch.`\
+https://nytimes.com/2025/10/25/sports/baseball/blue-jays-dodgers-trump-canada-us.html
+
 **Man Utd 4 Brighton 2 - What has Ruben Amorim improved to earn three successive wins?**\
 `Analysis of Manchester United's victory over Brighton in the Premier League`\
 https://nytimes.com/athletic/6744775/2025/10/25/man-utd-4-brighton-2-highlights/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6749351/2025/10/25/commanders-terry-mclaurin-deebo-
 **Canadiens forward Patrik Laine to miss 3-4 months with core muscle injury**\
 `Laine's core muscle injury is the latest in a long line of setbacks and challenges for him.`\
 https://nytimes.com/athletic/6749486/2025/10/25/patrik-laine-injury-out-canadiens/
-
-**Clippers bounce back in home opener by running and adjusting lineups around stars**\
-`"As we go further in the season, we learn who we are, we learn what works against different teams, and we go from there," James Harden said.`\
-https://nytimes.com/athletic/6749230/2025/10/25/clippers-home-opener-win/
 

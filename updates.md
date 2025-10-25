@@ -1,3 +1,7 @@
+**Canada-U.S. Tensions Stay on the Ball Field as Blue Jays Stun Dodgers**\
+`At Game 1 of the World Series in Toronto on Friday, overt politics were absent. Unity between the two nations was on display before the first pitch.`\
+https://nytimes.com/2025/10/25/sports/baseball/blue-jays-dodgers-trump-canada-us.html
+
 **Man Utd 4 Brighton 2 - What has Ruben Amorim improved to earn three successive wins?**\
 `Analysis of Manchester United's victory over Brighton in the Premier League`\
 https://nytimes.com/athletic/6744775/2025/10/25/man-utd-4-brighton-2-highlights/

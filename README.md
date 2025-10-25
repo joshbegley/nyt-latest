@@ -1,3 +1,7 @@
+**Predators captain Roman Josi week to week with upper-body injury**\
+`The Predators said that Josi, 35, is not sidelined in relation to his diagnosis of Postural Orthostatic Tachycardia Syndrome (POTS).`\
+https://nytimes.com/athletic/6749666/2025/10/25/nashville-predators-roman-josi-injury/
+
 **Canada-U.S. Tensions Stay on the Ball Field as Blue Jays Stun Dodgers**\
 `At Game 1 of the World Series in Toronto on Friday, overt politics were absent. Unity between the two nations was on display before the first pitch.`\
 https://nytimes.com/2025/10/25/sports/baseball/blue-jays-dodgers-trump-canada-us.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/25/nyregion/rutgers-fraternity-closed-hazing.html
 **Commanders to get Terry McLaurin, Deebo Samuel back vs. Chiefs**\
 `Washington won't have QB Jayden Daniels on Sunday, but two other key playmakers will return to the lineup against Kansas City.`\
 https://nytimes.com/athletic/6749351/2025/10/25/commanders-terry-mclaurin-deebo-samuel-return/
-
-**Canadiens forward Patrik Laine to miss 3-4 months with core muscle injury**\
-`Laine's core muscle injury is the latest in a long line of setbacks and challenges for him.`\
-https://nytimes.com/athletic/6749486/2025/10/25/patrik-laine-injury-out-canadiens/
 
