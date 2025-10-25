@@ -1,3 +1,7 @@
+**Rwanda accepts top Sudan clubs into domestic league due to ongoing civil war**\
+`Al Hilal and Al Merrikh played the 2024-25 season in Mauritania, north west Africa, due to the unstable political situation in Sudan.`\
+https://nytimes.com/athletic/6749024/2025/10/25/sudan-civil-war-football-rwanda/
+
 **Rwanda accepts top Sudan clubs into domestic league due to ongoing Civil War**\
 `Al Hilal and Al Merrikh played the 2024-25 season in Mauritania, north west Africa, due to the unstable political situation in Sudan.`\
 https://nytimes.com/athletic/6749024/2025/10/25/sudan-civil-war-football-rwanda/
