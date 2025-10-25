@@ -1,3 +1,11 @@
+**Real Madrid vs Barcelona: The four tactical issues that could decide El Clasico**\
+`The Athletic looks at the key areas where the game will be won and lost ahead of their top-of-the-table La Liga clash`\
+https://nytimes.com/athletic/6746530/2025/10/25/real-madrid-barcelona-el-clasico-tactical-preview/
+
+**A new Clasico fault line for Real Madrid and Barcelona: The Miami fallout**\
+`A dramatic week in Spanish football culminates with El Clasico on Sunday, following fresh tension between Real Madrid and Barcelona`\
+https://nytimes.com/athletic/6747112/2025/10/25/real-madrid-barcelona-clasico-miami-fallout/
+
 **Where Trump Is Headed in Asia, and What Each Country Wants From Him**\
 `From Kuala Lumpur to Gyeongju, President Trump is casting himself as a deal-maker and peace negotiator, while a wary region looks for tariff relief and steadier ties.`\
 https://nytimes.com/2025/10/25/world/asia/trump-japan-korea-china.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6748494/2025/10/25/connections-sports-edition-hints
 **Corrections: Oct. 25, 2025**\
 `Corrections that appeared in print on Saturday, Oct. 25, 2025.`\
 https://nytimes.com/2025/10/25/pageoneplus/corrections-oct-25-2025.html
-
-**Sabres thoughts: Mattias Samuelsson's big night, Alex Lyon's heroics lead to win over Leafs**\
-`Samuelsson scored twice in the Sabres' 5-3 win over the Maple Leafs on Friday.`\
-https://nytimes.com/athletic/6748530/2025/10/24/sabres-maple-leafs-mattias-samuelsson-alex-lyon/
-
-**Mavericks fans resume 'Fire Nico' chants after loss to Wizards**\
-`The crowd calls for Harrison’s job are growing significantly louder — literally.`\
-https://nytimes.com/athletic/6748558/2025/10/24/mavericks-fans-fire-nico-chants-resume/
 
