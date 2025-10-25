@@ -1,3 +1,7 @@
+**Predators captain Roman Josi week to week with upper-body injury**\
+`The Predators said that Josi, 35, is not sidelined in relation to his diagnosis of Postural Orthostatic Tachycardia Syndrome (POTS).`\
+https://nytimes.com/athletic/6749666/2025/10/25/nashville-predators-roman-josi-injury/
+
 **Canada-U.S. Tensions Stay on the Ball Field as Blue Jays Stun Dodgers**\
 `At Game 1 of the World Series in Toronto on Friday, overt politics were absent. Unity between the two nations was on display before the first pitch.`\
 https://nytimes.com/2025/10/25/sports/baseball/blue-jays-dodgers-trump-canada-us.html
