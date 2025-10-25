@@ -1,3 +1,7 @@
+**With Tyrod Taylor hurt, Justin Fields to remain Jets' starting quarterback in Week 8**\
+`With Tyrod Taylor hurt, Justin Fields will remain the Jets' starter against the Cincinnati Bengals on Sunday.`\
+https://nytimes.com/athletic/6749608/2025/10/25/justin-fields-week-8-starting-qb-nfl/
+
 **Rutgers Fraternity Is Closed After Student Is Injured in Hazing Episode**\
 `The Alpha Sigma Phi national organization permanently shut down its Rutgers chapter after concluding that hazing had occurred when a student was critically hurt this month.`\
 https://nytimes.com/2025/10/25/nyregion/rutgers-fraternity-closed-hazing.html

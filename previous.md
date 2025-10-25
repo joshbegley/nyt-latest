@@ -1,3 +1,7 @@
+**With Tyrod Taylor hurt, Justin Fields to remain Jets' starting quarterback in Week 8**\
+`With Tyrod Taylor hurt, Justin Fields will remain the Jets' starter against the Cincinnati Bengals on Sunday.`\
+https://nytimes.com/athletic/6749608/2025/10/25/justin-fields-week-8-starting-qb-nfl/
+
 **Rutgers Fraternity Is Closed After Student Is Injured in Hazing Episode**\
 `The Alpha Sigma Phi national organization permanently shut down its Rutgers chapter after concluding that hazing had occurred when a student was critically hurt this month.`\
 https://nytimes.com/2025/10/25/nyregion/rutgers-fraternity-closed-hazing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6749492/2025/10/25/blue-jackets-vs-penguins-stream-
 **How to watch Golden Knights vs. Panthers: Time, TV, streaming**\
 `Find out how to watch the Vegas Golden Knights play the Florida Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6749490/2025/10/25/golden-knights-vs-panthers-stream-how-to-watch-oct-25/
-
-**How to watch Thunder vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the Oklahoma City Thunder play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6749488/2025/10/25/thunder-vs-hawks-stream-how-to-watch-oct-25/
 
