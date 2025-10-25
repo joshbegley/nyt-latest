@@ -1,3 +1,11 @@
+**What we saw from Leafs' loss to Sabres: Potential Nylander injury looms**\
+`Nylander left Friday's game against the Sabres after taking a cross-check to his midsection from Jason Zucker.`\
+https://nytimes.com/athletic/6748373/2025/10/24/maple-leafs-william-nylander-injury-sabres/
+
+**Drake scores first in World Series subplot feud with Kendrick Lamar**\
+`The Toronto rapper was shown on the Rogers Centre scoreboard heading to the fourth inning, and the Blue Jays wound up tying the Dodgers 2-2.`\
+https://nytimes.com/athletic/6748419/2025/10/24/drake-kendrick-lamar-world-series-game-1/
+
 **Balances**\
 `Byron Walden drives up with a slippery themeless puzzle.`\
 https://nytimes.com/2025/10/24/crosswords/daily-puzzle-2025-10-25.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6747906/2025/10/24/nfl-gambling-memo-nba-scandal/
 **Justice Department Will Monitor Elections in California and New Jersey**\
 `The Trump administration said that monitors will watch polling in two states, led by Democrats, where key races or issues are on the ballot.`\
 https://nytimes.com/2025/10/24/us/politics/doj-election-monitors-california-new-jersey.html
-
-**Trump Leaves Behind a Reeling Washington to Chase a Deal With China**\
-`President Trump is embarking on a six-day diplomatic tour of Asia, testing his role as a statesman and negotiator as he pursues a trade deal with Beijing.`\
-https://nytimes.com/2025/10/24/us/politics/trump-china-trade-deal.html
-
-**Adams Eyes a Reality TV Star Who Could Help Block a Mamdani Rent Freeze**\
-`Mayor Eric Adams has only weeks left in office, but he can use them to appoint people with the ability to shape policy beyond his tenure.`\
-https://nytimes.com/2025/10/24/nyregion/eleonora-srugo-eric-adams-rent-board.html
 

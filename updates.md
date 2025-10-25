@@ -1,3 +1,11 @@
+**What we saw from Leafs' loss to Sabres: Potential Nylander injury looms**\
+`Nylander left Friday's game against the Sabres after taking a cross-check to his midsection from Jason Zucker.`\
+https://nytimes.com/athletic/6748373/2025/10/24/maple-leafs-william-nylander-injury-sabres/
+
+**Drake scores first in World Series subplot feud with Kendrick Lamar**\
+`The Toronto rapper was shown on the Rogers Centre scoreboard heading to the fourth inning, and the Blue Jays wound up tying the Dodgers 2-2.`\
+https://nytimes.com/athletic/6748419/2025/10/24/drake-kendrick-lamar-world-series-game-1/
+
 **Balances**\
 `Byron Walden drives up with a slippery themeless puzzle.`\
 https://nytimes.com/2025/10/24/crosswords/daily-puzzle-2025-10-25.html
