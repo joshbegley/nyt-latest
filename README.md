@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6748483/2025/10/24/north-texas-qb-drew-mestemaker-r
 https://nytimes.com/athletic/6748163/2025/10/24/dodgers-blue-jays-world-series-game-1-results-takeaways-mlb/
 
 **Blue Jays smash Dodger mystique with home run binge to take World Series Game 1**\
-`Dodger starting pitching came into the night with an impeccable record. The Blue Jays quickly marred that as they coasted to a Game 1 win. `\
+`Dodger starting pitching came into Friday with an impeccable record. The Blue Jays quickly marred that as they coasted to an 11-4 win.`\
 https://nytimes.com/athletic/6748522/2025/10/24/blue-jays-win-game-1-world-series-dodgers/
 
 **Congress requests briefing from Adam Silver on NBA gambling scandal by Oct. 31**\
