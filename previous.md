@@ -1,40 +1,40 @@
-**Sabres thoughts: Mattias Samuelsson's big night, Alex Lyon's heroics lead to win over Leafs**\
-`Samuelsson scored twice in the Sabres' 5-3 win over the Maple Leafs on Friday.`\
-https://nytimes.com/athletic/6748530/2025/10/24/sabres-maple-leafs-mattias-samuelsson-alex-lyon/
+**Real Madrid vs Barcelona: The four tactical issues that could decide El Clasico**\
+`The Athletic looks at the key areas where the game will be won and lost ahead of their top-of-the-table La Liga clash`\
+https://nytimes.com/athletic/6746530/2025/10/25/real-madrid-barcelona-el-clasico-tactical-preview/
 
-**Mavericks fans resume 'Fire Nico' chants after loss to Wizards**\
-`The crowd calls for Harrison’s job are growing significantly louder — literally.`\
-https://nytimes.com/athletic/6748558/2025/10/24/mavericks-fans-fire-nico-chants-resume/
+**A new Clasico fault line for Real Madrid and Barcelona: The Miami fallout**\
+`A dramatic week in Spanish football culminates with El Clasico on Sunday, following fresh tension between Real Madrid and Barcelona`\
+https://nytimes.com/athletic/6747112/2025/10/25/real-madrid-barcelona-clasico-miami-fallout/
 
-**‘We don't need you’: Blue Jays fans let Shohei Ohtani how they feel in Game 1 rout**\
-`As it turns out, the Blue Jays didn't need Ohtani on Friday to win Game 1 of the 2025 World Series. `\
-https://nytimes.com/athletic/6748581/2025/10/24/shohei-ohtani-toronto-fans-chant/
+**Where Trump Is Headed in Asia, and What Each Country Wants From Him**\
+`From Kuala Lumpur to Gyeongju, President Trump is casting himself as a deal-maker and peace negotiator, while a wary region looks for tariff relief and steadier ties.`\
+https://nytimes.com/2025/10/25/world/asia/trump-japan-korea-china.html
 
-**North Texas QB sets school, conference records with 608 passing yards**\
-`Mestemaker's passing yardage total is the 10th-highest single game total by an FBS quarterback since 1995.`\
-https://nytimes.com/athletic/6748483/2025/10/24/north-texas-qb-drew-mestemaker-record/
+**Quote of the Day: U.S. Aid Cut, Hunger and Illness Grow in Somalia**\
+`Quotation of the Day for Saturday, October 25, 2025.`\
+https://nytimes.com/2025/10/25/pageoneplus/quote-of-the-day-us-aid-cut-hunger-and-illness-grow-in-somalia.html
 
-**Dodgers-Blue Jays Game 1 takeaways: Toronto jumps out to series lead with huge sixth inning**\
-`The Blue Jays chased Blake Snell in the sixth inning and blew Game 1 of the World Series open with a grand slam from Addison Barger.`\
-https://nytimes.com/athletic/6748163/2025/10/24/dodgers-blue-jays-world-series-game-1-results-takeaways-mlb/
+**Asia, Caught in the Middle, Faces Trump and Xi’s Tug of War**\
+`President Trump’s visit shows how the United States and China are vying for influence in Asia over trade, technology and the fate of Taiwan.`\
+https://nytimes.com/2025/10/25/world/asia/trump-china-trade-deal-xi.html
 
-**Blue Jays smash Dodger mystique with home run binge to take World Series Game 1**\
-`Dodger starting pitching came into Friday with an impeccable record. The Blue Jays quickly marred that as they coasted to an 11-4 win.`\
-https://nytimes.com/athletic/6748522/2025/10/24/blue-jays-win-game-1-world-series-dodgers/
+**Presidents Are Limited to Two Terms. He’s Running for His Fourth.**\
+`The main opposition candidates in the Ivory Coast’s presidential election have been barred from the race. Critics say the vote has been rigged.`\
+https://nytimes.com/2025/10/25/world/africa/ivory-coast-election.html
 
-**Congress requests briefing from Adam Silver on NBA gambling scandal by Oct. 31**\
-`The letter stated that illegal sports betting based on non-public information in the NBA "is not a new problem," citing Tim Donaghy in 2007.`\
-https://nytimes.com/athletic/6748485/2025/10/24/congress-adam-silver-nba-gambling-scandal/
+**‘You Love It or You Hate It’: Pumpkin Spice Lattes Divide Europe**\
+`One of America’s favorite fall drinks shows up in Brussels and Antwerp, but rarely in Paris and Rome. It has yet to reach the ubiquity — or the sugar content — of its stateside counterpart.`\
+https://nytimes.com/2025/10/25/world/europe/pumpkin-spice-latte-coffee-europe.html
 
-**MLB union leader Tony Clark supports elimination of prop bets after NBA gambling scandal**\
-`MLBPA leadership says that they have long had concerns about prop betting, where specific player outcomes are at issue. `\
-https://nytimes.com/athletic/6748455/2025/10/24/mlb-union-eliminate-prop-betting-tony-clark/
+**In Fight Against Malaria, an Unexpected — and Snuggly — Shield**\
+`Treating baby wraps with a mosquito repellent shows promising protection against a top killer of children.`\
+https://nytimes.com/2025/10/25/health/insecticide-treated-baby-wraps-carriers-malaria.html
 
-**Messi celebrates his new deal with 2 goals in Miami's playoff win over Nashville**\
-`Lionel Messi scores the opening goal for Inter Miami in a win over Nashville in their MLS playoff opener.`\
-https://nytimes.com/athletic/6748278/2025/10/24/messi-scores-twice-miami-wins/
+**Connections: Sports Edition Coach: Hints for Oct. 25, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6748494/2025/10/25/connections-sports-edition-hints-for-oct-25-2025/
 
-**What we saw from Leafs' loss to Sabres: Potential Nylander injury looms**\
-`Nylander left Friday's game against the Sabres after taking a cross-check to his midsection from Jason Zucker.`\
-https://nytimes.com/athletic/6748373/2025/10/24/maple-leafs-william-nylander-injury-sabres/
+**Corrections: Oct. 25, 2025**\
+`Corrections that appeared in print on Saturday, Oct. 25, 2025.`\
+https://nytimes.com/2025/10/25/pageoneplus/corrections-oct-25-2025.html
 
