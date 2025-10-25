@@ -1,3 +1,7 @@
+**Blue Jays smash Dodger mystique with home run binge to take World Series Game 1**\
+`Dodger starting pitching came into the night with an impeccable record. The Blue Jays quickly marred that as they coasted to a Game 1 win. `\
+https://nytimes.com/athletic/6748522/2025/10/24/blue-jays-win-game-1-world-series-dodgers/
+
 **Congress requests briefing from Adam Silver on NBA gambling scandal by Oct. 31**\
 `The letter stated that illegal sports betting based on non-public information in the NBA "is not a new problem," citing Tim Donaghy in 2007.`\
 https://nytimes.com/athletic/6748485/2025/10/24/congress-adam-silver-nba-gambling-scandal/
