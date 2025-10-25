@@ -1,3 +1,15 @@
+**Trevor Zegras offering hope that Flyers' low-risk bet on him could pay off**\
+`Zegras scored two goals and three points in the Flyers' 4-3 shootout win over the Islanders on Saturday.`\
+https://nytimes.com/athletic/6750043/2025/10/25/flyers-trevor-zegras-trade-nhl/
+
+**What Is the ASEAN Summit, the First Event on Trump’s Tour of Asia?**\
+`President Trump is traveling to Malaysia for the event, his first destination in a nearly weeklong trip.`\
+https://nytimes.com/2025/10/25/world/asia/what-is-asean-summit-trump.html
+
+**Here’s the latest.**\
+`By Sui-Lee Wee`\
+https://nytimes.com/live/2025/10/25/us/trump-asia-news/heres-the-latest
+
 **Man Struck and Killed on Virginia Highway While Fleeing ICE**\
 `ICE officers were in the process of detaining Josue Castro-Rivera, 24, of Honduras, before he ran onto a busy highway in Norfolk and was struck by a pickup truck, officials said.`\
 https://nytimes.com/2025/10/25/us/ice-honduran-killed-virginia.html

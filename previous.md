@@ -1,3 +1,15 @@
+**Trevor Zegras offering hope that Flyers' low-risk bet on him could pay off**\
+`Zegras scored two goals and three points in the Flyers' 4-3 shootout win over the Islanders on Saturday.`\
+https://nytimes.com/athletic/6750043/2025/10/25/flyers-trevor-zegras-trade-nhl/
+
+**What Is the ASEAN Summit, the First Event on Trump’s Tour of Asia?**\
+`President Trump is traveling to Malaysia for the event, his first destination in a nearly weeklong trip.`\
+https://nytimes.com/2025/10/25/world/asia/what-is-asean-summit-trump.html
+
+**Here’s the latest.**\
+`By Sui-Lee Wee`\
+https://nytimes.com/live/2025/10/25/us/trump-asia-news/heres-the-latest
+
 **Man Struck and Killed on Virginia Highway While Fleeing ICE**\
 `ICE officers were in the process of detaining Josue Castro-Rivera, 24, of Honduras, before he ran onto a busy highway in Norfolk and was struck by a pickup truck, officials said.`\
 https://nytimes.com/2025/10/25/us/ice-honduran-killed-virginia.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/25/world/asia/trump-cambodia-thailand-peace.html
 **A Furniture Town Reels From Trump’s Tariffs (and Braces for More)**\
 `Malaysia’s “Furniture City,” the town of Muar, was already losing ground. Then President Trump put kitchen cabinets in his sights.`\
 https://nytimes.com/2025/10/25/world/asia/malaysia-trump-tariffs-furniture.html
-
-**USWNT forward Lynn Biyendolo announces pregnancy**\
-`Coach Emma Hayes outlined a new “360 approach” ensuring USWNT players receive holistic support through pregnancy.`\
-https://nytimes.com/athletic/6749939/2025/10/25/uswnt-lynn-biyendolo-pregnancy-announcement/
-
-**Slot says Liverpool defeat one of his worst**\
-`The Premier League champions have lost four games in a row after their 3-2 defeat to Brentford on Saturday.`\
-https://nytimes.com/athletic/6749989/2025/10/25/arne-slot-liverpool-summer-signings-poor-form/
-
-**Lando Norris storms to Mexico GP pole as title rivals Verstappen and Piastri struggle**\
-`McLaren's Lando Norris scored a dominant pole position for the 2025 Mexico City GP, with his F1 title rivals struggling behind`\
-https://nytimes.com/athletic/6749941/2025/10/25/mexico-gp-qualifying-results/
 
