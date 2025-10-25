@@ -1,3 +1,7 @@
+**Newcastle 2 Fulham 1 - How important was Bruno Guimaraes' late winner? How was Botman injured?**\
+`Analysis of Newcastle United's Premier League victory at home to Fulham`\
+https://nytimes.com/athletic/6744729/2025/10/25/newcastle-2-fulham-1-highlights/
+
 **'Best player in the world': Giannis' 31-point, 20-rebound night leaves teammates in awe**\
 `Antetokounmpo and Denver Nuggets center Nikola Jokić are tied for the most 30-20-5 games among active players.`\
 https://nytimes.com/athletic/6749251/2025/10/25/giannis-antetokounmpo-bucks-win-over-raptors/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6748738/2025/10/25/lakers-luka-doncic-deandre-ayton
 **Timberwolves' defense has been nowhere to be found for most of the first 2 games**\
 `After being shredded by Luka Dončić and the Lakers, the Timberwolves are still looking to rediscover their defensive edge.`\
 https://nytimes.com/athletic/6748409/2025/10/25/timberwolves-defense-struggles-lakers/
-
-**The Thrills Have Eyes**\
-`Put edible googly eyes on your Spooky season bakes; watch eyes light up (pun intended).`\
-https://nytimes.com/2025/10/25/dining/the-thrills-have-eyes.html
 
