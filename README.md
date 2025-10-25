@@ -1,3 +1,7 @@
+**Papal Permission for Latin Mass in St. Peter’s Gives Traditionalists Hope**\
+`Pope Francis greatly limited the use of the traditional Latin Mass, believing it sowed division. Traditionalist Catholics are hoping Pope Leo charts a different path.`\
+https://nytimes.com/2025/10/25/world/europe/pope-leo-latin-mass-traditionalists.html
+
 **Warriors' Jonathan Kuminga steps up by playing 'decisive basketball' in first week**\
 `"We love the way he's approached everything since training camp and expect more of that," Warriors guard Stephen Curry said.`\
 https://nytimes.com/athletic/6748803/2025/10/25/jonathan-kuminga-playing-well-warriors/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/25/world/europe/louvre-heist-jewelry-thieves.html
 **Eagles notes: DeVonta Smith in spotlight without A.J. Brown, Brandon Graham waits 2 more weeks**\
 `Plus: Saquon Barkley is still waiting for his first 100-yard rushing performance. Is this week when he plays his best game of the season?`\
 https://nytimes.com/athletic/6749066/2025/10/25/eagles-devonta-smith-aj-brown-brandon-graham/
-
-**The Pulse: Max's epic comeback try**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6748029/2025/10/25/could-max-verstappen-pull-off-the-unthinkable-plus-blue-jays-go-bam/
 
