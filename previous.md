@@ -1,3 +1,7 @@
+**Alabama escapes South Carolina to remain a top SEC, CFP contender**\
+`Alabama’s road triumph follows a stretch of four victories over ranked opponents in four consecutive weeks.`\
+https://nytimes.com/athletic/6750109/2025/10/25/alabama-south-carolina-score-result/
+
 **Trevor Zegras offering hope that Flyers' low-risk bet on him could pay off**\
 `Zegras scored two goals and three points in the Flyers' 4-3 shootout win over the Islanders on Saturday.`\
 https://nytimes.com/athletic/6750043/2025/10/25/flyers-trevor-zegras-trade-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/25/podcasts/the-daily/music-composers.html
 **In Trump, Families of Cambodian Troops Detained by Thailand See Hope**\
 `They are expecting President Trump will do for their loved ones what he did for the hostages held by Hamas: set in motion a plan that leads to their release.`\
 https://nytimes.com/2025/10/25/world/asia/trump-cambodia-thailand-peace.html
-
-**A Furniture Town Reels From Trump’s Tariffs (and Braces for More)**\
-`Malaysia’s “Furniture City,” the town of Muar, was already losing ground. Then President Trump put kitchen cabinets in his sights.`\
-https://nytimes.com/2025/10/25/world/asia/malaysia-trump-tariffs-furniture.html
 
