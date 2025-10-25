@@ -1,3 +1,11 @@
+**The Briefing: Brentford 3 Liverpool 2 - Is Slot's title defence already over?**\
+`The major talking points dissected from a dramatic game at the Gtech Community Stadium`\
+https://nytimes.com/athletic/6744776/2025/10/25/liverpool-brentford-result-analysis/
+
+**Trump Announces Tariff Hike on Canada Over Reagan Ad Spat**\
+`The ad, which will stop airing on Monday, used audio of a 1987 address by Ronald Reagan making a case against tariffs.`\
+https://nytimes.com/2025/10/25/world/canada/trump-tariffs-reagan-ad.html
+
 **Ex-L.A.P.D. Officer Indicted in On-Duty Shooting of Unarmed Homeless Man**\
 `Clifford Proctor, 60, was charged with second-degree murder in the 2015 killing of Brendon Glenn during an attempted arrest.`\
 https://nytimes.com/2025/10/25/us/lapd-homeless-shooting-murder-charge.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6749734/2025/10/25/ole-miss-oklahoma-score-result/
 **Bears take another hit in secondary, place nickel CB Kyler Gordon on IR**\
 `The Bears will head into Baltimore, and possibly multiple games, without any of their original starting cornerbacks.`\
 https://nytimes.com/athletic/6749777/2025/10/25/bears-kyler-gordon-injury-updates/
-
-**Benita Valente, Acclaimed Bel Canto Soprano, Is Dead at 91**\
-`Her career spanned decades, included performances at the Metropolitan Opera and brought her effusive praise from critics and operaphiles.`\
-https://nytimes.com/2025/10/25/arts/music/benita-valente-dead.html
-
-**How to watch Suns vs. Nuggets: Time, TV, streaming**\
-`Find out how to watch the Phoenix Suns play the Denver Nuggets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6749818/2025/10/25/suns-vs-nuggets-stream-how-to-watch-oct-25/
 
