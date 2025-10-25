@@ -1,3 +1,7 @@
+**Eagles notes: DeVonta Smith in spotlight without A.J. Brown, Brandon Graham waits 2 more weeks**\
+`Plus: Saquon Barkley is still waiting for his first 100-yard rushing performance. Is this week when he plays his best game of the season?`\
+https://nytimes.com/athletic/6749066/2025/10/25/eagles-devonta-smith-aj-brown-brandon-graham/
+
 **The Pulse: Max's epic comeback try**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6748029/2025/10/25/could-max-verstappen-pull-off-the-unthinkable-plus-blue-jays-go-bam/

@@ -1,3 +1,7 @@
+**Eagles notes: DeVonta Smith in spotlight without A.J. Brown, Brandon Graham waits 2 more weeks**\
+`Plus: Saquon Barkley is still waiting for his first 100-yard rushing performance. Is this week when he plays his best game of the season?`\
+https://nytimes.com/athletic/6749066/2025/10/25/eagles-devonta-smith-aj-brown-brandon-graham/
+
 **The Pulse: Max's epic comeback try**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6748029/2025/10/25/could-max-verstappen-pull-off-the-unthinkable-plus-blue-jays-go-bam/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6749024/2025/10/25/sudan-civil-war-football-rwanda/
 **Scoop City: Fantasy tips to win Week 8**\
 `With six teams on a bye, every fantasy manager could use a little help. Here's how to survive the Bye-mageddon.`\
 https://nytimes.com/athletic/6748166/2025/10/25/everything-fantasy-football-managers-need-to-know-for-week-8/
-
-**How much does the Oilers' sluggish start really matter?**\
-`In a year where all that matters is winning the Stanley Cup, does the start to the season really matter to the Oilers?`\
-https://nytimes.com/athletic/6748069/2025/10/25/edmonton-oilers-season-start-connor-mcdavid/
 
