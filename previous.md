@@ -1,3 +1,7 @@
+**At home opener, some Raptors fans get distracted by World Series 'neighbours'**\
+`The Raptors crowd, generally decked out in red and black, sported far more blue than usual with Blue Jays gear from previous World Series.`\
+https://nytimes.com/athletic/6748446/2025/10/25/at-home-opener-some-raptors-fans-get-distracted-by-world-series-neighbours/
+
 **The New York Times in Print for Saturday, Oct. 25, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/25/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6739580/2025/10/25/colby-bishop-interview/
 **Looking beyond short-term results to understand when a team really is in poor form**\
 `Recent results are the most obvious indicator, but delve a little deeper and we can get a better sense of a team's peaks and troughs`\
 https://nytimes.com/athletic/6746274/2025/10/25/premier-league-form-liverpool/
-
-**'It was like hearing Lady Di had died': Revisiting the day Ian Wright left Palace for Arsenal**\
-`Eberechi Eze was not the first Palace player to be tempted away by Arsenal – the scars of Wright's exit in 1991 still smart`\
-https://nytimes.com/athletic/6730112/2025/10/25/crystal-palace-ian-wright-arsenal-oral-history/
 

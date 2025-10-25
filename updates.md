@@ -1,3 +1,7 @@
+**At home opener, some Raptors fans get distracted by World Series 'neighbours'**\
+`The Raptors crowd, generally decked out in red and black, sported far more blue than usual with Blue Jays gear from previous World Series.`\
+https://nytimes.com/athletic/6748446/2025/10/25/at-home-opener-some-raptors-fans-get-distracted-by-world-series-neighbours/
+
 **Chauncey Billups fooled me, too, it appears. Why his shocking arrest cuts so deep**\
 `The somber image of Chauncey Billups at his hearing is in stark contrast to who he appeared to be during his time as coach in Portland.`\
 https://nytimes.com/athletic/6748387/2025/10/25/chauncey-billups-arrest-blazers-warriors/
