@@ -1,3 +1,7 @@
+**No takeaways, too many penalties add up to gloomy Bears loss in Baltimore**\
+`The math is simple. Through seven games, when the Bears get more than one takeaway, they are 4-0. When they get one or zero, they're 0-3.`\
+https://nytimes.com/athletic/6752092/2025/10/26/bears-ravens-loss-penalties-greenberg/
+
 **Broncos star Pat Surtain II knocked out of game with shoulder injury**\
 `The reigning Defensive Player of the Year had to leave Sunday's game after injuring his left shoulder.`\
 https://nytimes.com/athletic/6752202/2025/10/26/pat-surtain-broncos-shoulder-injury-ruled-out/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/26/crosswords/daily-puzzle-2025-10-27.html
 **Masterful Norris wins, Bearman impresses, disaster for Hamilton: Mexico City briefing**\
 `Lando Norris wins the Mexico City Grand Prix to regain the F1 drivers' championship lead, while Haas' Ollie Bearman has a day to remember`\
 https://nytimes.com/athletic/6751859/2025/10/26/mexico-city-grand-prix-briefing-norris-wins-bearman-impresses-disaster-for-hamilton/
-
-**Dallas Goedert, George Kittle among those who star on 'National Tight Ends Day'**\
-`Goedert moved past Travis Kelce to take the lead with five career touchdowns on the holiday that began in 2018.`\
-https://nytimes.com/athletic/6752014/2025/10/26/dallas-goedert-george-kittle-national-tight-ends-day/
 
