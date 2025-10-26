@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6752191/2025/10/26/bears-caleb-williams-offense-slo
 https://nytimes.com/video/the-athletic/100000010482690/jets-fourth-quarter-comeback-secures-first-win-of-the-season.html
 
 **Buccaneers-Saints takeaways: Tampa Bay nabs 4 takeaways, New Orleans makes QB change**\
-`New Orleans benched Spencer Rattler in the third quarter`\
+`New Orleans benched Spencer Rattler in the third quarter.`\
 https://nytimes.com/athletic/6752183/2025/10/26/buccaneers-saints-takeaways-tampa-bay-nabs-4-takeaways/
 
 **We’ve seen enough: The 49ers desperately need to trade for a pass rusher ... or two**\
