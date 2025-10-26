@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6751470/2025/10/26/capitals-fire-mitch-love/
 
+**Capitals fire assistant coach Mitch Love following season-long suspension**\
+`The Capitals fired assistant coach Mitch Love on Sunday afternoon after the NHL suspended him for the 2025-26 season.
+`\
+https://nytimes.com/athletic/6751470/2025/10/26/capitals-fire-mitch-love/
+
 **Why Bruno Guimaraes is scoring goals again**\
 `In a post-Alexander Isak world, Newcastle's offensive structure is evolving and Guimaraes' contributions are proving invaluable`\
 https://nytimes.com/athletic/6742860/2025/10/26/bruno-guimaraes-goals-newcastle/
