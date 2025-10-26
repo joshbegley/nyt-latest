@@ -2,6 +2,10 @@
 `Saturday’s victory over the Avalanche was not a turning point. But it could be a first step out of the darkness.`\
 https://nytimes.com/athletic/6750096/2025/10/25/bruins-avalanche-morgan-geekie-losing-streak/
 
+**College Football Playoff 2025 projections: The most likely bracket with Week 9 underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/10/25/college-football-playoff-bracket-projections-odds/
+
 **Lane Kiffin chirps Oklahoma player after win: 'You're quieter now'**\
 `"(Oklahoma's David Stone) yelled at me during the game like five times (about) how great they were and we can't score on them," Kiffin said.`\
 https://nytimes.com/athletic/6750060/2025/10/25/lane-kiffin-ole-miss-oklahoma-player-comment-exchange/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6750062/2025/10/25/vanderbilt-missouri-score-result
 **Trump Administration Live Updates: President to Start Asia Visit With Tariffs and China on Agenda**\
 `The swing through Malaysia, Japan and South Korea is expected to test President Trump’s skills as a statesman and negotiator.`\
 https://nytimes.com/live/2025/10/25/us/trump-asia-news
-
-**The ‘Sleeper Issue’ at the Heart of Trump’s Trade War**\
-`Concern is increasing throughout Southeast Asia as U.S. officials, intent on slowing China, have yet to say how they will define the origin country of imports.`\
-https://nytimes.com/2025/10/25/business/trump-tariffs-southeast-asia-transshipment.html
 

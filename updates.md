@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: The most likely bracket with Week 9 underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/10/25/college-football-playoff-bracket-projections-odds/
+
 **Warning signs still flashing after Bruins snap 6-game losing streak**\
 `Saturday’s victory over the Avalanche was not a turning point. But it could be a first step out of the darkness.`\
 https://nytimes.com/athletic/6750096/2025/10/25/bruins-avalanche-morgan-geekie-losing-streak/
