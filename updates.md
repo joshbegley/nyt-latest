@@ -1,3 +1,7 @@
+**England's soft underbelly has been exposed. Again**\
+`It may only have been a friendly, but there were familiar failings on show in England's 2-1 defeat to Brazil`\
+https://nytimes.com/athletic/6749965/2025/10/26/englands-soft-underbelly-has-been-exposed-again/
+
 **Manchester United look good. Their investments look smart. It is a moment to enjoy**\
 `'The money was well invested,' said Brighton's coach after Manchester United's £200m front three enjoyed a good day`\
 https://nytimes.com/athletic/5972766/2025/10/26/manchester-united-look-good-their-investments-look-smart-it-is-a-moment-to-enjoy/
