@@ -1,3 +1,27 @@
+**After Texas A&M finally tamed LSU in Death Valley, it's time to believe in the Aggies**\
+`“We have bigger aspirations for where we can go than anybody else,” Mike Elko said. “As we win, I think other people will catch up.”`\
+https://nytimes.com/athletic/6750626/2025/10/26/texas-am-lsu-score-result-contenders/
+
+**Brian Kelly sounded like a coach out of answers — he may soon be out of time**\
+`Kelly has failed in the biggest games at LSU. He’s just 5-11 against ranked opponents during his three-plus seasons. `\
+https://nytimes.com/athletic/6750627/2025/10/26/brian-kelly-hot-seat-lsu-coach/
+
+**Michigan State’s Jonathan Smith era is just starting, and probably soon ending**\
+`The head football coach at Michigan State has to be dynamic, a difference maker. This one isn’t.`\
+https://nytimes.com/athletic/6750576/2025/10/26/michigan-state-jonathan-smith-firing/
+
+**The shutout sommelier: Uncorking Panthers goalie Sergei Bobrovsky's postgame wine raffles**\
+`Unscrewing the cork on the two-time Stanley Cup-winning netminder's tradition, which was inspired by another legend's love of wine.`\
+https://nytimes.com/athletic/6713550/2025/10/26/florida-panthers-goalie-sergei-bobrovsky-wine/
+
+**Iowa dominates Minnesota in the most 'Iowa' way possible — and is now in the CFP discussion**\
+`Without a flashy passing game, Iowa’s style of play generates plenty of detractors. And that's perfectly fine with coach Kirk Ferentz. `\
+https://nytimes.com/athletic/6750391/2025/10/26/iowa-hawkeyes-minnesota-floyd-rosedale-playoff/
+
+**Chinese and U.S. Officials Reach Framework of a Trade Deal**\
+`Negotiators announced on Sunday they have preliminarily agreed on several issues ahead of an expected meeting between President Trump and Xi Jinping this week.`\
+https://nytimes.com/2025/10/26/business/china-us-trade.html
+
 **This college football season, everyone's a Playoff contender — except for the teams we expected**\
 `LSU's Playoff hopes are extinguished, but unexpected seasons from Houston, Virginia and Cincinnati fuel a wide-open Playoff race.`\
 https://nytimes.com/athletic/6750748/2025/10/26/college-football-playoff-race-after-week-9/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6750357/2025/10/26/vanderbilt-win-missouri-sec-play
 **In a star-studded Dodgers lineup, 'silent assassin' Will Smith quietly gets the job done**\
 `Smith, the 32nd pick in the 2016 draft, has provided almost three times as much value as any other first-rounder in his class.`\
 https://nytimes.com/athletic/6750641/2025/10/26/will-smith-dodgers-world-series/
-
-**Trump Opens Trip With Trade Deals in Southeast Asia**\
-`The U.S. announced agreements on Sunday with Malaysia, Thailand and Cambodia, securing support for its efforts to pressure China on trade and critical minerals.`\
-https://nytimes.com/2025/10/26/business/trump-trade-deals-asean.html
-
-**How to watch Everton vs. Tottenham from U.S.: Spurs aim for win at Hill Dickinson Stadium**\
-`Everton is undefeated at its new home in Liverpool. Will Tottenham be the club that delivers the first loss?`\
-https://nytimes.com/athletic/6748056/2025/10/26/tottenham-everton-spurs-how-to-watch-us/
-
-**10 observations: Absence of Ben Kindel, Harrison Brunicke shows in Penguins' loss**\
-`The Penguins pulled off quite a comeback to earn a point, but fell in a shootout to the Blue Jackets 5-4 on Saturday.`\
-https://nytimes.com/athletic/6750360/2025/10/26/penguins-blue-jackets-ben-kindel-harrison-brunicke/
-
-**Blue Jackets beat Penguins in shootout — and they might be rewriting the script**\
-`Kirill Marchenko's game-deciding shootout goal helps Columbus to another road victory, something they struggled with last season.`\
-https://nytimes.com/athletic/6750259/2025/10/26/blue-jackets-beat-penguins-in-shootout-and-do-what-they-normally-dont/
-
-**Rosenthal: In a brilliant Game 2, Yoshinobu Yamamoto showed why he was worth all of the fuss**\
-`The Dodgers' $325 million pitcher dominated the Blue Jays in the first World Series complete game since 2015. `\
-https://nytimes.com/athletic/6750661/2025/10/26/yoshinobu-yamamoto-dodgers-world-series-complete-game/
-
-**Ivan Demidov is showing the difference he makes for the Canadiens**\
-`Demidov's insertion into the Canadiens' top power-play unit was inevitable, but it was important for him to show he had earned it.`\
-https://nytimes.com/athletic/6750601/2025/10/26/ivan-demidov-canadiens-play-nhl/
 

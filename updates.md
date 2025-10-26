@@ -1,3 +1,27 @@
+**After Texas A&M finally tamed LSU in Death Valley, it's time to believe in the Aggies**\
+`“We have bigger aspirations for where we can go than anybody else,” Mike Elko said. “As we win, I think other people will catch up.”`\
+https://nytimes.com/athletic/6750626/2025/10/26/texas-am-lsu-score-result-contenders/
+
+**Brian Kelly sounded like a coach out of answers — he may soon be out of time**\
+`Kelly has failed in the biggest games at LSU. He’s just 5-11 against ranked opponents during his three-plus seasons. `\
+https://nytimes.com/athletic/6750627/2025/10/26/brian-kelly-hot-seat-lsu-coach/
+
+**Michigan State’s Jonathan Smith era is just starting, and probably soon ending**\
+`The head football coach at Michigan State has to be dynamic, a difference maker. This one isn’t.`\
+https://nytimes.com/athletic/6750576/2025/10/26/michigan-state-jonathan-smith-firing/
+
+**The shutout sommelier: Uncorking Panthers goalie Sergei Bobrovsky's postgame wine raffles**\
+`Unscrewing the cork on the two-time Stanley Cup-winning netminder's tradition, which was inspired by another legend's love of wine.`\
+https://nytimes.com/athletic/6713550/2025/10/26/florida-panthers-goalie-sergei-bobrovsky-wine/
+
+**Iowa dominates Minnesota in the most 'Iowa' way possible — and is now in the CFP discussion**\
+`Without a flashy passing game, Iowa’s style of play generates plenty of detractors. And that's perfectly fine with coach Kirk Ferentz. `\
+https://nytimes.com/athletic/6750391/2025/10/26/iowa-hawkeyes-minnesota-floyd-rosedale-playoff/
+
+**Chinese and U.S. Officials Reach Framework of a Trade Deal**\
+`Negotiators announced on Sunday they have preliminarily agreed on several issues ahead of an expected meeting between President Trump and Xi Jinping this week.`\
+https://nytimes.com/2025/10/26/business/china-us-trade.html
+
 **This college football season, everyone's a Playoff contender — except for the teams we expected**\
 `LSU's Playoff hopes are extinguished, but unexpected seasons from Houston, Virginia and Cincinnati fuel a wide-open Playoff race.`\
 https://nytimes.com/athletic/6750748/2025/10/26/college-football-playoff-race-after-week-9/
