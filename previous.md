@@ -1,3 +1,27 @@
+**The New York Times From a New Point of View**\
+`As the newspaper dabbled in virtual reality, subscribers were given a tool to see the experiment come to life.`\
+https://nytimes.com/2025/10/26/insider/google-cardboard.html
+
+**As the Left’s Biggest Stars Unite Behind Mamdani, a Bigger Test Awaits**\
+`Senator Bernie Sanders and Representative Alexandria Ocasio-Cortez will join Zohran Mamdani on Sunday to help push his bid to win the Nov. 4 election for mayor of New York City.`\
+https://nytimes.com/2025/10/26/nyregion/mamdani-sanders-aoc-rally.html
+
+**‘Nobody Knew This Wasn’t My Dog’**\
+`The ripple effect of an online sale, a man who is still who he was and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/10/26/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/26/crosswords/spelling-bee-forum.html
+
+**Can Cuomo Sway Trump Voters Away From the Republican on the Ballot?**\
+`Former Gov. Andrew M. Cuomo, a Democrat running on a third-party line, has appeared repeatedly on Staten Island and shifted his messaging in ways that seem designed to court Republican voters.`\
+https://nytimes.com/2025/10/26/nyregion/cuomo-republican-voters-mayor.html
+
+**Alvin Bragg, Seeking Re-election, Is Not Mentioning His Best-Known Case**\
+`He is the only prosecutor to convict a president. But mentioning Donald Trump to him on the campaign trail is a conversation stopper.`\
+https://nytimes.com/2025/10/26/nyregion/bragg-trump-campaign.html
+
 **Arne Slot and Liverpool are running out of excuses**\
 `The Dutchman has pleaded mitigation for his Premier League champions, but is it justified?`\
 https://nytimes.com/athletic/6749753/2025/10/26/liverpool-arne-slot-excuses/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6740383/2025/10/26/sean-dyche-three-managers-one-se
 **Sheffield Wednesday's day of defiance: 'It's been soul-destroying... but at least we have a club'**\
 `Administration almost certainly means relegation but Wednesday's fans are just grateful their future is looking brighter`\
 https://nytimes.com/athletic/6749687/2025/10/26/sheffield-wednesdays-day-of-defiance-its-been-soul-destroying-but-at-least-we-have-a-club/
-
-**Vance Criticizes Mamdani’s Comments About Islamophobia After 9/11**\
-`Zohran Mamdani said the vice president’s attack on social media was one in a series of “cheap jokes about Islamophobia.”`\
-https://nytimes.com/2025/10/26/nyregion/jd-vance-mamdani.html
-
-**How many defensive records could Arsenal break this season?**\
-`From Chelsea's 15 goals conceded in 2004-05, to Cagliari's 11-goal season in 1969-70, these are the records Arsenal are chasing  `\
-https://nytimes.com/athletic/6733387/2025/10/26/arsenal-goals-conceded-defensive-record/
-
-**The New York Times in Print for Sunday, Oct. 26, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/10/26/todays-new-york-times
-
-**The Wish to Be Seen**\
-`The first time photographer Laylah Amatullah Barrayn saw a portrait of Omar ibn Said, she felt he was speaking to her.`\
-https://nytimes.com/2025/10/26/opinion/slavery-memory-photograph-omar-ibn-said.html
-
-**England's soft underbelly has been exposed. Again**\
-`It may only have been a friendly, but there were familiar failings on show in England's 2-1 defeat to Brazil`\
-https://nytimes.com/athletic/6749965/2025/10/26/englands-soft-underbelly-has-been-exposed-again/
-
-**Manchester United look good. Their investments look smart. It is a moment to enjoy**\
-`'The money was well invested,' said Brighton's coach after Manchester United's £200m front three enjoyed a good day`\
-https://nytimes.com/athletic/5972766/2025/10/26/manchester-united-look-good-their-investments-look-smart-it-is-a-moment-to-enjoy/
 
