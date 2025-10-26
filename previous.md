@@ -1,6 +1,6 @@
-**How Emery became Guardiola's kryptonite at Villa Park**\
-`Three straight home wins over Manchester City have been achieved in a variety of ingenious ways`\
-https://nytimes.com/athletic/6751401/2025/10/26/unai-emery-pep-guardiola-tactics/
+**Has Emery become Pep’s kryptonite at Villa Park?**\
+`Sunday was only the third occasion in Guardiola's career that he has lost three consecutive away matches against the same opponent`\
+https://nytimes.com/athletic/6751401/2025/10/26/aston-villa-man-city-emery-guardiola/
 
 **Capitals fire assistant coach Mitch Love following season-long suspension**\
 `The Capitals fired assistant coach Mitch Love on Sunday afternoon after the NHL suspended him for the 2025-26 season.
@@ -13,7 +13,7 @@ https://nytimes.com/2025/10/26/movies/drew-struzan-dead.html
 
 **How Canada Is Dealing With Its Latest Tussle With President Trump**\
 `Prime Minister Mark Carney is focusing on what the country can control, including looking for economic partnerships abroad, especially in Asia.`\
-https://nytimes.com/2025/10/26/us/politics/how-canada-is-dealing-with-its-latest-tussle-with-president-trump.html
+https://nytimes.com/2025/10/26/us/politics/canada-tariffs-trump-carney.html
 
 **Sid Davis, Reporter Who Witnessed Johnson’s Swearing-In, Dies at 97**\
 `A veteran journalist, he covered the assassination of President John F. Kennedy and provided the pool report on the ceremony aboard Air Force One.`\
