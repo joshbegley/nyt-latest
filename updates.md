@@ -1,3 +1,11 @@
+**‘No Idea How Long People Can Hold Out’: Federal Workers Feel Brunt of Shutdown**\
+`As more than one million government employees go without pay, many are turning to side jobs and food banks to make ends meet.`\
+https://nytimes.com/2025/10/26/us/politics/federal-workers-shutdown-pay.html
+
+**Rickard Rakell out 6-8 weeks with broken hand; Ville Koivunen recalled**\
+`The Penguins announced that Rakell underwent successful surgery Sunday morning.`\
+https://nytimes.com/athletic/6751350/2025/10/26/penguins-rickard-rakell-injury-ville-koivunen/
+
 **A Big Department Store Pivots to a Catalog**\
 `With a 100-page gift guide, Nordstrom wants to find customers where they are — at home.`\
 https://nytimes.com/2025/10/26/style/nordstrom-catalog.html
