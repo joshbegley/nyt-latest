@@ -1,3 +1,7 @@
+**Arne Slot and Liverpool are running out of excuses**\
+`The Dutchman has pleaded mitigation for his Premier League champions. But is it justified?`\
+https://nytimes.com/athletic/6749753/2025/10/26/liverpool-arne-slot-excuses/
+
 **The New York Times From a New Point of View**\
 `As the newspaper dabbled in virtual reality, subscribers were given a tool to see the experiment come to life.`\
 https://nytimes.com/2025/10/26/insider/google-cardboard.html
