@@ -1,3 +1,7 @@
+**Yamamoto's throwback dominance secures Game 2 for Dodgers, ties World Series 1-1**\
+`The Dodger starter threw the first World Series complete game in a decade to even the series with the Toronto Blue Jays at one game apiece. `\
+https://nytimes.com/athletic/6750338/2025/10/25/mlb-world-series-dodgers-blue-jays-yoshinobu-yamamoto-complete-game/
+
 **Red-hot Logan Cooley lights up Wild during ugly start to 6-game homestand: Takeaways**\
 `The former University of Minnesota star scored two goals and three points in Utah's 6-2 win over the Wild on Saturday.`\
 https://nytimes.com/athletic/6750179/2025/10/25/wild-mammoth-logan-cooley-takeaways/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6750096/2025/10/25/bruins-avalanche-morgan-geekie-l
 **College Football Playoff 2025 projections: The most likely bracket with Week 9 underway**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/10/25/college-football-playoff-bracket-projections-odds/
-
-**Lane Kiffin chirps Oklahoma player after win: 'You're quieter now'**\
-`"(Oklahoma's David Stone) yelled at me during the game like five times (about) how great they were and we can't score on them," Kiffin said.`\
-https://nytimes.com/athletic/6750060/2025/10/25/lane-kiffin-ole-miss-oklahoma-player-comment-exchange/
 

@@ -1,3 +1,12 @@
+**Yamamoto's throwback dominance secures Game 2 for Dodgers, ties World Series 1-1**\
+`The Dodger starter threw the first World Series complete game in a decade to even the series with the Toronto Blue Jays at one game apiece. `\
+https://nytimes.com/athletic/6750338/2025/10/25/mlb-world-series-dodgers-blue-jays-yoshinobu-yamamoto-complete-game/
+
+**Senators goalie Linus Ullmark leaves crease, enters scrum at other end of the ice**\
+`Ullmark was penalized for goaltender participation beyond center ice after skating the length of the ice to join a scrum vs. Washington.
+`\
+https://nytimes.com/athletic/6750267/2025/10/25/senators-linus-ullmark-goalie-fight-capitals/
+
 **Senators goalie Linus Ullmark leaves crease, enters scrum at other end of the ice**\
 `Ullmark was penalized for goaltender participation beyond center ice after skating the length of the ice to join a scrum vs. Washington.
 `\

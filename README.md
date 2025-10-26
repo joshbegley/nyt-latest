@@ -1,3 +1,7 @@
+**Sabres thoughts: Ukko-Pekka Luukkonen's missed opportunity in overtime loss to Leafs**\
+`Luukkonen couldn't come up with the saves that mattered to help his team in a 4-3 loss to Toronto.`\
+https://nytimes.com/athletic/6750339/2025/10/25/sabres-maple-leafs-ukko-pekka-luukkonen/
+
 **Yamamoto's throwback dominance secures Game 2 for Dodgers, ties World Series 1-1**\
 `The Dodger starter threw the first World Series complete game in a decade to even the series with the Toronto Blue Jays at one game apiece. `\
 https://nytimes.com/athletic/6750338/2025/10/25/mlb-world-series-dodgers-blue-jays-yoshinobu-yamamoto-complete-game/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6750108/2025/10/25/texas-mississippi-state-arch-man
 **Warning signs still flashing after Bruins snap 6-game losing streak**\
 `Saturday’s victory over the Avalanche was not a turning point. But it could be a first step out of the darkness.`\
 https://nytimes.com/athletic/6750096/2025/10/25/bruins-avalanche-morgan-geekie-losing-streak/
-
-**College Football Playoff 2025 projections: The most likely bracket with Week 9 underway**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/10/25/college-football-playoff-bracket-projections-odds/
 
