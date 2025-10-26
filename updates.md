@@ -1,3 +1,11 @@
+**With Trump’s Asia Trip, Speculation Mounts of a Meeting With Kim Jong-un**\
+`President Trump has repeatedly said that he wants to see the North Korean leader again. Mr. Kim has indicated that he is open to the idea — but only under a strict condition.`\
+https://nytimes.com/2025/10/25/world/asia/asia-trump-kim-jong-un.html
+
+**Arch Manning leads Texas in huge comeback but exits in OT with injury**\
+`Texas quarterback Arch Manning was injured in overtime after leading the Longhorns back from down 17 in a win at Mississippi State.`\
+https://nytimes.com/athletic/6750108/2025/10/25/texas-mississippi-state-arch-manning-injury-sarkisian/
+
 **Brennan Othmann addresses trade rumors and Rangers shuffle lineup**\
 `Othmann's latest opportunity with New York may come with additional motives as his name swirls in trade talks.`\
 https://nytimes.com/athletic/6749945/2025/10/25/rangers-brennan-othmann-trade-rumors/
