@@ -1,3 +1,11 @@
+**Giants RB Cam Skattebo carted off field vs. Eagles with leg injury**\
+`As Skattebo lay on the ground, Giants teammates were seen taking a knee in an emotional moment.`\
+https://nytimes.com/athletic/6751532/2025/10/26/cam-skattebo-ankle-injury-carted-off-giants/
+
+**AP Top 25: LSU falls out as Vandy reaches highest ranking since 1937**\
+`Ohio State, Indiana, Texas A&M, Alabama and Georgia remain atop the AP poll this week, but there's plenty of movement below.`\
+https://nytimes.com/athletic/6751449/2025/10/26/ap-top-25-rankings-lsu-vanderbilt/
+
 **Trump, Long Erratic on the World Stage, Reaches a New Level**\
 `Whether because of his increasingly mercurial approach or despite it, President Trump has won some foreign policy victories in his second term. The question now is whether he can build on his record.`\
 https://nytimes.com/2025/10/26/us/politics/trump-erratic-foreign-policy.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/26/weather/jamaica-worst-storms-hurricane-melissa.ht
 **Arsenal 'unsure' on Saliba, Rice injuries after Palace win - Arteta**\
 `Bukayo Saka and Riccardo Calafiori were also substituted in the 1-0 victory on Sunday.`\
 https://nytimes.com/athletic/6751407/2025/10/26/arsenal-injuries-saliba-saka-rice/
-
-**Real Madrid 2 Barcelona 1: Yamal’s big talk backfires as Bellingham seals Clasico win**\
-`Our expert team of writers analyse the biggest talking points from El Clasico `\
-https://nytimes.com/athletic/6747610/2025/10/26/real-madrid-barcelona-bellingham-yamal-mbappe/
-
-**Hurricane Melissa’s Wind Speeds Doubled in Less Than a Day**\
-`Melissa grew from a tropical storm to a Category 4 hurricane in a matter of hours.`\
-https://nytimes.com/2025/10/26/weather/hurricane-melissa-rapid-intensification-jamaica.html
 

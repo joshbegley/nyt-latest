@@ -1,8 +1,12 @@
+**Trump, Long Erratic on the World Stage, Reaches a New Level**\
+`Whether because of his increasingly mercurial approach or despite it, President Trump has won some foreign policy victories in his second term. The question now is whether he can build on his record.`\
+https://nytimes.com/2025/10/26/us/politics/trump-erratic-foreign-policy.html
+
 **Palestinian Leader Lays Out Succession Plan, Elevating Deputy as Apparent Heir**\
 `Mahmoud Abbas, the president of the Palestinian Authority, clarified a succession plan after more than two decades in control. He said if he vacated his role, his deputy would rule for a short period until elections could be held.`\
 https://nytimes.com/2025/10/26/world/middleeast/palestinian-authority-abbas-deputy-succession.html
 
-**Anthony Richardson has surgery, hopes to return to Colts this season**\
+**Anthony Richardson has surgery, hopes to return to Colts this season: Sources**\
 `Richardson, the No. 4 pick in the 2023 NFL Draft, lost a duel with Daniel Jones during training camp for the Colts’ starting QB spot.`\
 https://nytimes.com/athletic/6751396/2025/10/26/anthony-richardson-surgery-orbital-fracture-colts/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6747610/2025/10/26/real-madrid-barcelona-bellingham
 **Hurricane Melissa’s Wind Speeds Doubled in Less Than a Day**\
 `Melissa grew from a tropical storm to a Category 4 hurricane in a matter of hours.`\
 https://nytimes.com/2025/10/26/weather/hurricane-melissa-rapid-intensification-jamaica.html
-
-**Images of Black Beauty and Belonging**\
-`In the transporting monograph “Tyler Mitchell: Wish This Was Real,” the gifted young photographer traces a path from high fashion to his Georgia roots.`\
-https://nytimes.com/2025/10/26/books/review/tyler-mitchell-wish-this-was-real.html
 
