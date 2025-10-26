@@ -1,3 +1,7 @@
+**Manfred defends sports gambling partnerships because they provide 'crucial' data**\
+`In an environment where sports betting exists, Manfred said, MLB needs to partner with legal companies for the data they provide.`\
+https://nytimes.com/athletic/6750304/2025/10/25/mlb-commissioner-manfred-sports-betting-partnerships/
+
 **Senators goalie Linus Ullmark leaves crease, enters scrum at other end of the ice**\
 `Ullmark was penalized for goaltender participation beyond center ice after skating the length of the ice to join a scrum vs. Washington.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6750060/2025/10/25/lane-kiffin-ole-miss-oklahoma-pl
 **Alabama escapes South Carolina to remain a top SEC, CFP contender**\
 `Alabama’s 29-22 road win follows a stretch of four victories over ranked opponents in consecutive weeks. The Tide have won seven straight.`\
 https://nytimes.com/athletic/6750109/2025/10/25/alabama-south-carolina-score-result/
-
-**Trevor Zegras offering hope that Flyers' low-risk bet on him could pay off**\
-`Zegras scored two goals and three points in the Flyers' 4-3 shootout win over the Islanders on Saturday.`\
-https://nytimes.com/athletic/6750043/2025/10/25/flyers-trevor-zegras-trade-nhl/
 
