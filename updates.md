@@ -1,3 +1,7 @@
+**Quick forward progress whistle negates Jalen Hurts' tush push fumble**\
+`Fox rules analyst Dean Blandino said, "To me, he is pushing forward, he is reaching. That is an early whistle, in my opinion."`\
+https://nytimes.com/athletic/6751506/2025/10/26/eagles-tush-push-fumble-forward-progress/
+
 **Giants RB Cam Skattebo ruled out vs. Eagles after first half ankle injury**\
 `As Skattebo lay on the ground, Giants teammates were seen taking a knee in an emotional moment.`\
 https://nytimes.com/athletic/6751532/2025/10/26/cam-skattebo-ankle-injury-carted-off-giants/

@@ -1,5 +1,5 @@
 **Quick forward progress whistle negates Jalen Hurts' tush push fumble**\
-`Fox rules analyst Dean Blandino: "To me, he is pushing forward, he is reaching. That is an early whistle, in my opinion."`\
+`Fox rules analyst Dean Blandino said, "To me, he is pushing forward, he is reaching. That is an early whistle, in my opinion."`\
 https://nytimes.com/athletic/6751506/2025/10/26/eagles-tush-push-fumble-forward-progress/
 
 **Everton 0 Tottenham 3 – How did Van de Ven end Moyes' unbeaten home and set-piece record?**\
