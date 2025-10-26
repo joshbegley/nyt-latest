@@ -26,11 +26,11 @@ https://nytimes.com/athletic/6751616/2025/10/26/oilers-vs-canucks-stream-how-to-
 `Find out how to watch the Los Angeles Lakers play the Sacramento Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6751614/2025/10/26/lakers-vs-kings-stream-how-to-watch-oct-26/
 
-**Giants RB Cam Skattebo carted off field vs. Eagles with leg injury**\
+**Giants RB Cam Skattebo ruled out vs. Eagles after first half ankle injury**\
 `As Skattebo lay on the ground, Giants teammates were seen taking a knee in an emotional moment.`\
 https://nytimes.com/athletic/6751532/2025/10/26/cam-skattebo-ankle-injury-carted-off-giants/
 
-**AP Top 25: LSU falls out as Vandy reaches highest ranking since 1937**\
+**AP Top 25: LSU falls out as Vandy earns highest ranking since 1937**\
 `Ohio State, Indiana, Texas A&M, Alabama and Georgia remain atop the AP poll this week, but there's plenty of movement below.`\
 https://nytimes.com/athletic/6751449/2025/10/26/ap-top-25-rankings-lsu-vanderbilt/
 

@@ -1,3 +1,11 @@
+**Giants RB Cam Skattebo ruled out vs. Eagles after first half ankle injury**\
+`As Skattebo lay on the ground, Giants teammates were seen taking a knee in an emotional moment.`\
+https://nytimes.com/athletic/6751532/2025/10/26/cam-skattebo-ankle-injury-carted-off-giants/
+
+**AP Top 25: LSU falls out as Vandy earns highest ranking since 1937**\
+`Ohio State, Indiana, Texas A&M, Alabama and Georgia remain atop the AP poll this week, but there's plenty of movement below.`\
+https://nytimes.com/athletic/6751449/2025/10/26/ap-top-25-rankings-lsu-vanderbilt/
+
 **Quick forward progress whistle negates Jalen Hurts' tush push fumble**\
 `Fox rules analyst Dean Blandino: "To me, he is pushing forward, he is reaching. That is an early whistle, in my opinion."`\
 https://nytimes.com/athletic/6751506/2025/10/26/eagles-tush-push-fumble-forward-progress/
