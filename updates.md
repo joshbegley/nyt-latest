@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6750267/2025/10/25/senators-linus-ullmark-goalie-fi
 `\
 https://nytimes.com/athletic/6750267/2025/10/25/senators-linus-ullmark-goalie-fight-capitals/
 
+**Senators goalie Linus Ullmark leaves crease, enters scrum at other end of the ice**\
+`Ullmark was penalized for goaltender participation beyond center ice after skating the length of the ice to join a scrum vs. Washington.
+`\
+https://nytimes.com/athletic/6750267/2025/10/25/senators-linus-ullmark-goalie-fight-capitals/
+
 **Manfred defends sports gambling partnerships because they provide 'crucial' data**\
 `In an environment where sports betting exists, Manfred said, MLB needs to partner with legal companies for the data they provide.`\
 https://nytimes.com/athletic/6750304/2025/10/25/mlb-commissioner-manfred-sports-betting-partnerships/
