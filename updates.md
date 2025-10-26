@@ -1,3 +1,7 @@
+**Carol Davis, Raiders co-owner and wife of the late Al Davis, dies at 93**\
+`"Carol provided unbridled support and unparalleled guidance to the Davis family and the Raiders organization," the team said.`\
+https://nytimes.com/athletic/6752098/2025/10/26/carol-davis-raiders-death/
+
 **Inadvertent whistle takes Buccaneers touchdown off the board vs. Saints**\
 `Antoine Winfield Jr. was denied a defensive touchdown when the officials mistakingly whistled the play dead.`\
 https://nytimes.com/athletic/6752079/2025/10/26/buccaneers-saints-inadvertent-whistle-touchdown-negated/
