@@ -1,3 +1,11 @@
+**Hurricane Melissa Could Be One of the Strongest Storms to Strike Jamaica**\
+`Direct landfalls from big hurricanes are rare for Jamaica. Melissa could pummel the island as an “upper-end” Category 4 hurricane, forecasters said.`\
+https://nytimes.com/2025/10/26/weather/jamaica-worst-storms-hurricane-melissa.html
+
+**Real Madrid 2 Barcelona 1: Yamal’s big talk backfires as Bellingham seals Clasico win**\
+`Our expert team of writers analyse the biggest talking points from El Clasico `\
+https://nytimes.com/athletic/6747610/2025/10/26/real-madrid-barcelona-bellingham-yamal-mbappe/
+
 **Arsenal 'unsure' on Saliba, Rice injuries after Palace win - Arteta**\
 `Bukayo Saka and Riccardo Calafiori were also substituted in the 1-0 victory on Sunday.`\
 https://nytimes.com/athletic/6751407/2025/10/26/arsenal-injuries-saliba-saka-rice/

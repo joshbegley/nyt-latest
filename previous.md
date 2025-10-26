@@ -1,8 +1,12 @@
+**Hurricane Melissa Could Be One of the Strongest Storms to Strike Jamaica**\
+`Direct landfalls from big hurricanes are rare for Jamaica. Melissa could pummel the island as an “upper-end” Category 4 hurricane, forecasters said.`\
+https://nytimes.com/2025/10/26/weather/jamaica-worst-storms-hurricane-melissa.html
+
 **Arsenal 'unsure' on Saliba, Rice injuries after Palace win - Arteta**\
 `Bukayo Saka and Riccardo Calafiori were also substituted in the 1-0 victory on Sunday.`\
 https://nytimes.com/athletic/6751407/2025/10/26/arsenal-injuries-saliba-saka-rice/
 
-**Real Madrid 2 Barcelona 1 - Yamal’s big talk backfires as Bellingham seals Clasico win**\
+**Real Madrid 2 Barcelona 1: Yamal’s big talk backfires as Bellingham seals Clasico win**\
 `Our expert team of writers analyse the biggest talking points from El Clasico `\
 https://nytimes.com/athletic/6747610/2025/10/26/real-madrid-barcelona-bellingham-yamal-mbappe/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6751296/2025/10/26/nick-mangold-jets-obituary-kidne
 **Egypt Aids Search for Bodies of Dead Captives in Gaza**\
 `The assistance is part of an international effort to reinforce the fragile cease-fire between Israel and Hamas.`\
 https://nytimes.com/2025/10/26/world/middleeast/egypt-gaza-captives-bodies-search.html
-
-**Trump and Xi Could ‘Consummate’ TikTok Deal This Week, Bessent Says**\
-`Treasury Secretary Scott Bessent said on “Face the Nation” on Sunday that China and the United States had reached “a final deal on TikTok,” but offered few details.`\
-https://nytimes.com/2025/10/26/us/politics/trump-xi-tiktok-deal-bessent.html
 
