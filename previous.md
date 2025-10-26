@@ -1,3 +1,7 @@
+**Jalen Hurts throws four TDs in Eagles win, while Giants' Cam Skattebo goes down**\
+`Hurts finished 15-for-20 with 179 yards and found three different teammates in the end zone.`\
+https://nytimes.com/athletic/6751698/2025/10/26/giants-eagles-score-result-takeaways-week-8/
+
 **Breece Hall leads explosive offense as Jets get first win of the season**\
 `Hall accounted for three touchdowns as the Jets had more than 500 yards of total offense in their comeback victory.`\
 https://nytimes.com/athletic/6751680/2025/10/26/jets-bengals-score-result-takeaways-week-8/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6751534/2025/10/26/browns-patriots-score-result-tak
 `The Dolphins QB bounced back after being benched last week, while Atlanta's Kirk Cousins struggled in place of Michael Penix Jr.`\
 https://nytimes.com/athletic/6744110/2025/10/26/dolphins-falcons-score-result-takeaways-week-8/
 
-**Bills-Panthers takeaways: Buffalo, James Cook roll over Panthers**\
+**Bills-Panthers takeaways: Buffalo, James Cook roll over Carolina**\
 `The Bills overcame a two-game losing streak with an emphatic 40-9 win over the Panthers on Sunday.`\
 https://nytimes.com/athletic/6751656/2025/10/26/bills-panthers-score-result-takeaways-week-8/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6751604/2025/10/26/chauncey-billups-jb-bickerstaff-
 **Luka Dončić has left finger sprain and leg contusion, will be reevaluated in a week**\
 `The Dončić loss is a tough one for the Lakers, as they also have been without LeBron James, who has been sidelined with sciatica.`\
 https://nytimes.com/athletic/6751696/2025/10/26/luka-doncic-lakers-injury-finger-leg-reevaluation/
-
-**Has Emery become Pep’s kryptonite at Villa Park?**\
-`Sunday was only the third occasion in Guardiola's career that he has lost three consecutive away matches against the same opponent`\
-https://nytimes.com/athletic/6751401/2025/10/26/aston-villa-man-city-emery-guardiola/
 
