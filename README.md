@@ -1,3 +1,11 @@
+**The Briefing: Aston Villa 1 Man City 0 - Why did Guardiola suffer in his graveyard again?**\
+`Analysing the major talking points from the Premier League game at Villa Park`\
+https://nytimes.com/athletic/6747587/2025/10/26/aston-villa-manchester-result-analysis/
+
+**The Briefing: Arsenal 1 Palace 0 - Eze's perfect role? Vital to capitalise on results? Mosquera importance?**\
+`Eze's goal against his former club, more threat from set pieces, and Arsenal remain top - we break down the talking points.`\
+https://nytimes.com/athletic/6747583/2025/10/26/arsenal-eberechi-eze-crystal-palace/
+
 **The Pulse: New Playoff crashers all over**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6750567/2025/10/26/a-bunch-of-new-teams-are-crashing-the-college-football-playoff/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6751252/2025/10/26/kings-vs-blackhawks-stream-how-t
 **How to watch Mammoth vs. Jets: Time, TV, streaming**\
 `Find out how to watch the Utah Mammoth play the Winnipeg Jets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6751250/2025/10/26/mammoth-vs-jets-stream-how-to-watch-oct-26/
-
-**How to watch Golden Knights vs. Lightning: Time, TV, streaming**\
-`Find out how to watch the Vegas Golden Knights play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6751248/2025/10/26/golden-knights-vs-lightning-stream-how-to-watch-oct-26/
-
-**How to watch Sharks vs. Wild: Time, TV, streaming**\
-`Find out how to watch the San Jose Sharks play the Minnesota Wild, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6751246/2025/10/26/sharks-vs-wild-stream-how-to-watch-oct-26/
 
