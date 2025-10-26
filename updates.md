@@ -1,3 +1,16 @@
+**Pistons coach J.B. Bickerstaff supports Chauncey Billups, calls gambling 'scary situation'**\
+`"I hate to see what he's going through right now," Bickerstaff said of Billups, who was arrested Thursday as part of an FBI gambling probe.`\
+https://nytimes.com/athletic/6751604/2025/10/26/chauncey-billups-jb-bickerstaff-pistons-nba-arrest-gambling/
+
+**Luka Dončić has left finger sprain and leg contusion, will be reevaluated in a week**\
+`The Dončić loss is a tough one for the Lakers, as they also have been without LeBron James, who has been sidelined with sciatica.`\
+https://nytimes.com/athletic/6751696/2025/10/26/luka-doncic-lakers-injury-finger-leg-reevaluation/
+
+**Capitals fire assistant coach Mitch Love following season-long suspension**\
+`The Capitals fired assistant coach Mitch Love on Sunday afternoon after the NHL suspended him for the 2025-26 season.
+`\
+https://nytimes.com/athletic/6751470/2025/10/26/capitals-fire-mitch-love/
+
 **Capitals fire assistant coach Mitch Love following season-long suspension**\
 `The Capitals fired assistant coach Mitch Love on Sunday afternoon after the NHL suspended him for the 2025-26 season.
 `\

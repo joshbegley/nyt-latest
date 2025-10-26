@@ -1,3 +1,11 @@
+**Pistons coach J.B. Bickerstaff supports Chauncey Billups, calls gambling 'scary situation'**\
+`"I hate to see what he's going through right now," Bickerstaff said of Billups, who was arrested Thursday as part of an FBI gambling probe.`\
+https://nytimes.com/athletic/6751604/2025/10/26/chauncey-billups-jb-bickerstaff-pistons-nba-arrest-gambling/
+
+**Luka Dončić has left finger sprain and leg contusion, will be reevaluated in a week**\
+`The Dončić loss is a tough one for the Lakers, as they also have been without LeBron James, who has been sidelined with sciatica.`\
+https://nytimes.com/athletic/6751696/2025/10/26/luka-doncic-lakers-injury-finger-leg-reevaluation/
+
 **Has Emery become Pep’s kryptonite at Villa Park?**\
 `Sunday was only the third occasion in Guardiola's career that he has lost three consecutive away matches against the same opponent`\
 https://nytimes.com/athletic/6751401/2025/10/26/aston-villa-man-city-emery-guardiola/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6751506/2025/10/26/eagles-tush-push-fumble-forward-
 **Everton 0 Tottenham 3 – How did Van de Ven end Moyes' unbeaten home and set-piece record?**\
 `Analysis of Tottenham's Premier League game away to Everton`\
 https://nytimes.com/athletic/6747611/2025/10/26/everton-0-tottenham-3-highlights/
-
-**How to watch Trail Blazers vs. Clippers: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the Los Angeles Clippers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6751622/2025/10/26/trail-blazers-vs-clippers-stream-how-to-watch-oct-26/
-
-**How to watch Rangers vs. Flames: Time, TV, streaming**\
-`Find out how to watch the New York Rangers play the Calgary Flames, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6751620/2025/10/26/rangers-vs-flames-stream-how-to-watch-oct-26/
 
