@@ -1,3 +1,11 @@
+**No Corrections: Oct. 27, 2025**\
+`No corrections appeared in print on Monday, Oct. 27, 2025.`\
+https://nytimes.com/2025/10/26/corrections/no-corrections-oct-27-2025.html
+
+**Amid MVP chants, Patriots QB Drake Maye delivers his best game yet**\
+`Despite being sacked six times, Maye lit up the Browns — the NFL's top-ranked defense — for 282 passing yards and three touchdowns.`\
+https://nytimes.com/athletic/6752150/2025/10/26/drake-maye-patriots-browns-mvp/
+
 **Brian Kelly, LSU in standoff over staff changes amid slump: Sources**\
 `Kelly left the football facility, as did pretty much everyone else on the LSU staff, as they awaited resolution.`\
 https://nytimes.com/athletic/6752139/2025/10/26/brian-kelly-lsu-scott-woodward/

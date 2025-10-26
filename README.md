@@ -1,8 +1,16 @@
+**Do Lanes Matter in Sprinting Races?**\
+`The conventional wisdom says the middle lanes are ideal for sprinting. New research challenges this long-held theory. Here’s how.`\
+https://nytimes.com/video/the-athletic/100000010446797/do-lanes-matter-in-sprinting-races.html
+
+**Lewis Hamilton: 'Pretty nuts' to be only F1 driver penalized for Mexico GP corner cutting**\
+`Lewis Hamilton questions the officiating decisions in the 2025 Mexico City GP, where he was penalized during a battle with Max Verstappen`\
+https://nytimes.com/athletic/6752306/2025/10/26/lewis-hamilton-mexico-gp-penalty/
+
 **No Corrections: Oct. 27, 2025**\
 `No corrections appeared in print on Monday, Oct. 27, 2025.`\
 https://nytimes.com/2025/10/26/corrections/no-corrections-oct-27-2025.html
 
-**Amid MVP chants, Patriots QB Drake Maye delivers his best game yet**\
+**Amid 'MVP' chants, Patriots QB Drake Maye delivers his best game yet**\
 `Despite being sacked six times, Maye lit up the Browns — the NFL's top-ranked defense — for 282 passing yards and three touchdowns.`\
 https://nytimes.com/athletic/6752150/2025/10/26/drake-maye-patriots-browns-mvp/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6752167/2025/10/26/49ers-texans-nfl-trade-deadline/
 **No takeaways, too many penalties add up to gloomy Bears loss in Baltimore**\
 `The math is simple. Through seven games, when the Bears get more than one takeaway, they are 4-0. When they get one or zero, they're 0-3.`\
 https://nytimes.com/athletic/6752092/2025/10/26/bears-ravens-loss-penalties-greenberg/
-
-**Broncos star Pat Surtain II knocked out of game with shoulder injury**\
-`The reigning Defensive Player of the Year had to leave Sunday's game after injuring his left shoulder.`\
-https://nytimes.com/athletic/6752202/2025/10/26/pat-surtain-broncos-shoulder-injury-ruled-out/
-
-**Japan Deals With the Price of Playing to Trump: $550 Billion**\
-`A new prime minister must decide whether to maintain the previous administration’s deferential negotiating strategy that secured a contentious trade deal.`\
-https://nytimes.com/2025/10/26/business/japan-investment-trump-tariffs.html
 

@@ -1,3 +1,11 @@
+**No Corrections: Oct. 27, 2025**\
+`No corrections appeared in print on Monday, Oct. 27, 2025.`\
+https://nytimes.com/2025/10/26/corrections/no-corrections-oct-27-2025.html
+
+**Amid MVP chants, Patriots QB Drake Maye delivers his best game yet**\
+`Despite being sacked six times, Maye lit up the Browns — the NFL's top-ranked defense — for 282 passing yards and three touchdowns.`\
+https://nytimes.com/athletic/6752150/2025/10/26/drake-maye-patriots-browns-mvp/
+
 **Brian Kelly, LSU in standoff over staff changes amid slump: Sources**\
 `Kelly left the football facility, as did pretty much everyone else on the LSU staff, as they awaited resolution.`\
 https://nytimes.com/athletic/6752139/2025/10/26/brian-kelly-lsu-scott-woodward/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6752202/2025/10/26/pat-surtain-broncos-shoulder-inj
 **Japan Deals With the Price of Playing to Trump: $550 Billion**\
 `A new prime minister must decide whether to maintain the previous administration’s deferential negotiating strategy that secured a contentious trade deal.`\
 https://nytimes.com/2025/10/26/business/japan-investment-trump-tariffs.html
-
-**Falcons 'humbled' by floundering Dolphins in second straight dud of a loss**\
-`The Falcons have lost two straight games in ugly fashion since their impressive win over the Bills on "Monday Night Football."`\
-https://nytimes.com/athletic/6752143/2025/10/26/falcons-loss-dolphins-bijan-robinson-kirk-cousins/
-
-**Carol Davis, Raiders co-owner and wife of the late Al Davis, dies at 93**\
-`"Carol provided unbridled support and unparalleled guidance to the Davis family and the Raiders organization," the team said.`\
-https://nytimes.com/athletic/6752098/2025/10/26/carol-davis-raiders-death/
 
