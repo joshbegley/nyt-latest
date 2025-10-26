@@ -1,3 +1,7 @@
+**Texas A&M routs LSU in Death Valley, an all-systems failure for Brian Kelly**\
+`It was Texas A&M’s first win in Baton Rouge since 1994. They had not won in six tries at Tiger Stadium since joining the SEC in 2012.`\
+https://nytimes.com/athletic/6750385/2025/10/25/lsu-texas-am-score-result/
+
 **Dodgers-Blue Jays Game 2 takeaways: Los Angeles uses battery power to tie World Series**\
 `Will Smith added a homer and three RBIs, while Yoshinobu Yamamoto threw his second complete game of the postseason. `\
 https://nytimes.com/athletic/6750194/2025/10/25/dodgers-blue-jays-world-series-game-2-results-takeaways-mlb/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/10/25/world/asia/asia-trump-kim-jong-un.html
 **Brennan Othmann addresses trade rumors and Rangers shuffle lineup**\
 `Othmann's latest opportunity with New York may come with additional motives as his name swirls in trade talks.`\
 https://nytimes.com/athletic/6749945/2025/10/25/rangers-brennan-othmann-trade-rumors/
-
-**Arch Manning leads Texas in huge comeback but exits in OT with injury**\
-`Texas quarterback Arch Manning was injured in overtime after leading the Longhorns back from down 17 in a win at Mississippi State.`\
-https://nytimes.com/athletic/6750108/2025/10/25/texas-mississippi-state-arch-manning-injury-sarkisian/
 
