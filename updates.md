@@ -1,3 +1,7 @@
+**Dallas Goedert, George Kittle among those who star on 'National Tight Ends Day'**\
+`Goedert moved past Travis Kelce to take the lead with five career touchdowns on the holiday that began in 2018.`\
+https://nytimes.com/athletic/6752014/2025/10/26/dallas-goedert-george-kittle-national-tight-ends-day/
+
 **The Russia-Ukraine Energy War**\
 `Both sides are targeting energy assets to try to break the deadlock on the battlefield.`\
 https://nytimes.com/2025/10/26/world/russia-ukraine-energy-war-louvre-arrest.html

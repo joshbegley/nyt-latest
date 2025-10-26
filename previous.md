@@ -1,3 +1,7 @@
+**Dallas Goedert, George Kittle among those who star on 'National Tight Ends Day'**\
+`Goedert moved past Travis Kelce to take the lead with five career touchdowns on the holiday that began in 2018.`\
+https://nytimes.com/athletic/6752014/2025/10/26/dallas-goedert-george-kittle-national-tight-ends-day/
+
 **The Russia-Ukraine Energy War**\
 `Both sides are targeting energy assets to try to break the deadlock on the battlefield.`\
 https://nytimes.com/2025/10/26/world/russia-ukraine-energy-war-louvre-arrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6751534/2025/10/26/browns-patriots-score-result-tak
 **Dolphins-Falcons takeaways: Tua Tagovailoa dominates against listless Atlanta**\
 `The Dolphins QB bounced back after being benched last week, while Atlanta's Kirk Cousins struggled in place of Michael Penix Jr.`\
 https://nytimes.com/athletic/6744110/2025/10/26/dolphins-falcons-score-result-takeaways-week-8/
-
-**Bills-Panthers takeaways: Buffalo, James Cook roll over Carolina**\
-`The Bills overcame a two-game losing streak with an emphatic 40-9 win over the Panthers on Sunday.`\
-https://nytimes.com/athletic/6751656/2025/10/26/bills-panthers-score-result-takeaways-week-8/
 
