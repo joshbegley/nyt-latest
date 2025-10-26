@@ -1,3 +1,11 @@
+**Three managers in a season sounds chaotic. Can it work?**\
+`Sean Dyche is the third person to take charge of Nottingham Forest and it is still October. What does history tell us about such churn?`\
+https://nytimes.com/athletic/6740383/2025/10/26/sean-dyche-three-managers-one-season/
+
+**Sheffield Wednesday's day of defiance: 'It's been soul-destroying... but at least we have a club'**\
+`Administration almost certainly means relegation but Wednesday's fans are just grateful their future is looking brighter`\
+https://nytimes.com/athletic/6749687/2025/10/26/sheffield-wednesdays-day-of-defiance-its-been-soul-destroying-but-at-least-we-have-a-club/
+
 **Vance Criticizes Mamdani’s Comments About Islamophobia After 9/11**\
 `Zohran Mamdani said the vice president’s attack on social media was one in a series of “cheap jokes about Islamophobia.”`\
 https://nytimes.com/2025/10/26/nyregion/jd-vance-mamdani.html

@@ -1,3 +1,11 @@
+**Three managers in a season sounds chaotic. Can it work?**\
+`Sean Dyche is the third person to take charge of Nottingham Forest and it is still October. What does history tell us about such churn?`\
+https://nytimes.com/athletic/6740383/2025/10/26/sean-dyche-three-managers-one-season/
+
+**Sheffield Wednesday's day of defiance: 'It's been soul-destroying... but at least we have a club'**\
+`Administration almost certainly means relegation but Wednesday's fans are just grateful their future is looking brighter`\
+https://nytimes.com/athletic/6749687/2025/10/26/sheffield-wednesdays-day-of-defiance-its-been-soul-destroying-but-at-least-we-have-a-club/
+
 **Vance Criticizes Mamdani’s Comments About Islamophobia After 9/11**\
 `Zohran Mamdani said the vice president’s attack on social media was one in a series of “cheap jokes about Islamophobia.”`\
 https://nytimes.com/2025/10/26/nyregion/jd-vance-mamdani.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6746750/2025/10/26/what-el-clasico-really-means/
 **The five stages of Lamine Yamal: Lessons from watching him grow at Barcelona**\
 `From record-breaking 15-year-old debutant to Ballon d'Or contender. This is our story of following Lamine Yamal`\
 https://nytimes.com/athletic/6651927/2025/10/26/lamine-yamal-barcelona-clasico-real-madrid/
-
-**How Italy won the 1982 World Cup: A slow start, Rossi's resurgence, and Tardelli's iconic scream**\
-`Michael Cox's history of World Cup winners reaches Italy's third title, won in Spain `\
-https://nytimes.com/athletic/6734114/2025/10/26/world-cup-winners-italy-1982/
-
-**A Break-In That Shook France**\
-`The robbery at the Louvre left behind more than broken glass. It battered the pride of a nation that is increasingly glum about itself and its direction.`\
-https://nytimes.com/2025/10/26/world/europe/louvre-break-in-shook-france.html
 
