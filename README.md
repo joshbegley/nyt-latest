@@ -1,3 +1,7 @@
+**How Ottawa earned its most dominant victory of the season over Washington: Takeaways**\
+`Also, what might have led to a two-person goalie scrum that had Linus Ullmark skate the full length of the ice. `\
+https://nytimes.com/athletic/6750243/2025/10/26/senators-capitals-win-ullmark-cozens/
+
 **SEC vibes after Week 9: From great (Vanderbilt) to terrible (LSU), and plenty in between**\
 `People I see, weary of me
 Showing my good side
@@ -40,8 +44,4 @@ https://nytimes.com/live/2025/10/26/us/trump-news
 **The Working Class Has Shifted Left on ‘Virtually Everything’**\
 `Jared Abbott, the director of the Center for Working-Class Politics, explains why working-class voters feel a “representation gap” from the Democratic Party despite shifting left on most issues over the last few decades.`\
 https://nytimes.com/video/opinion/100000010472169/the-working-class-has-shifted-left-on-virtually-everything.html
-
-**Could there be more to college football's 'shirtless dudes' trend than meets the eye?**\
-`There's something wholesome about this movement, despite the partial nudity.`\
-https://nytimes.com/athletic/6750394/2025/10/26/college-football-shirtless-trend-male-loneliness/
 
