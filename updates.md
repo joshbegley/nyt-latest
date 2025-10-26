@@ -1,3 +1,8 @@
+**Senators goalie Linus Ullmark leaves crease, enters scrum at other end of the ice**\
+`Ullmark was penalized for goaltender participation beyond center ice after skating the length of the ice to join a scrum vs. Washington.
+`\
+https://nytimes.com/athletic/6750267/2025/10/25/senators-linus-ullmark-goalie-fight-capitals/
+
 **Sabres thoughts: Ukko-Pekka Luukkonen's missed opportunity in overtime loss to Leafs**\
 `Luukkonen couldn't come up with the saves that mattered to help his team in a 4-3 loss to Toronto.`\
 https://nytimes.com/athletic/6750339/2025/10/25/sabres-maple-leafs-ukko-pekka-luukkonen/
