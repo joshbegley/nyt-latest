@@ -1,3 +1,7 @@
+**Texas survives MSU with big comeback as Arch Manning exits in OT**\
+`Texas quarterback Arch Manning was injured in overtime after leading the Longhorns back from down 17 in a win at Mississippi State.`\
+https://nytimes.com/athletic/6750108/2025/10/25/texas-mississippi-state-arch-manning-injury-sarkisian/
+
 **Warning signs still flashing after Bruins snap 6-game losing streak**\
 `Saturday’s victory over the Avalanche was not a turning point. But it could be a first step out of the darkness.`\
 https://nytimes.com/athletic/6750096/2025/10/25/bruins-avalanche-morgan-geekie-losing-streak/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/25/us/ice-honduran-killed-virginia.html
 **Vandy tops Missouri as last-second Hail Mary comes up inches short**\
 `In one of the biggest games in Vanderbilt history, a last-second Hail Mary by Missouri came up just short to keep Vandy's CFP dreams going.`\
 https://nytimes.com/athletic/6750062/2025/10/25/vanderbilt-missouri-score-result-football/
-
-**Trump Administration Live Updates: President to Start Asia Visit With Tariffs and China on Agenda**\
-`The swing through Malaysia, Japan and South Korea is expected to test President Trump’s skills as a statesman and negotiator.`\
-https://nytimes.com/live/2025/10/25/us/trump-asia-news
 

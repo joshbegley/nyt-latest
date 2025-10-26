@@ -1,3 +1,7 @@
+**Texas survives MSU with big comeback as Arch Manning exits in OT**\
+`Texas quarterback Arch Manning was injured in overtime after leading the Longhorns back from down 17 in a win at Mississippi State.`\
+https://nytimes.com/athletic/6750108/2025/10/25/texas-mississippi-state-arch-manning-injury-sarkisian/
+
 **College Football Playoff 2025 projections: The most likely bracket with Week 9 underway**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/10/25/college-football-playoff-bracket-projections-odds/
