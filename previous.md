@@ -1,3 +1,7 @@
+**Michigan vs. Michigan State: Wolverines run past Sparty, keep hold of Paul Bunyan Trophy**\
+`Michigan was far from perfect, but it was much better than MSU, which remains winless in the Big Ten in Jonathan Smith's second season.`\
+https://nytimes.com/athletic/6750463/2025/10/25/michigan-michigan-state-score-result-takeaway-college-football-2/
+
 **Texas A&M routs LSU in Death Valley, an all-systems failure for Brian Kelly**\
 `It was Texas A&M’s first win in Baton Rouge since 1994. They had not won in six tries at Tiger Stadium since joining the SEC in 2012.`\
 https://nytimes.com/athletic/6750385/2025/10/25/lsu-texas-am-score-result/
@@ -34,8 +38,4 @@ https://nytimes.com/video/books/review/100000010477576/tyler-mitchell-breaks-dow
 **With Trump’s Asia Trip, Speculation Mounts of a Meeting With Kim Jong-un**\
 `President Trump has repeatedly said that he wants to see the North Korean leader again. Mr. Kim has indicated that he is open to the idea — but only under a strict condition.`\
 https://nytimes.com/2025/10/25/world/asia/asia-trump-kim-jong-un.html
-
-**Brennan Othmann addresses trade rumors and Rangers shuffle lineup**\
-`Othmann's latest opportunity with New York may come with additional motives as his name swirls in trade talks.`\
-https://nytimes.com/athletic/6749945/2025/10/25/rangers-brennan-othmann-trade-rumors/
 
