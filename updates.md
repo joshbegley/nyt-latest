@@ -1,3 +1,7 @@
+**Tyler Mitchell Breaks Down Three Photos From His New Book**\
+`Erica Ackerberg, a Times photo editor, calls the photographer Tyler Mitchell to chat about three photos from his new book, “Wish This Was Real.”`\
+https://nytimes.com/video/books/review/100000010477576/tyler-mitchell-breaks-down-three-photos-from-his-new-book.html
+
 **With Trump’s Asia Trip, Speculation Mounts of a Meeting With Kim Jong-un**\
 `President Trump has repeatedly said that he wants to see the North Korean leader again. Mr. Kim has indicated that he is open to the idea — but only under a strict condition.`\
 https://nytimes.com/2025/10/25/world/asia/asia-trump-kim-jong-un.html

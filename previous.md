@@ -1,3 +1,7 @@
+**Tyler Mitchell Breaks Down Three Photos From His New Book**\
+`Erica Ackerberg, a Times photo editor, calls the photographer Tyler Mitchell to chat about three photos from his new book, “Wish This Was Real.”`\
+https://nytimes.com/video/books/review/100000010477576/tyler-mitchell-breaks-down-three-photos-from-his-new-book.html
+
 **With Trump’s Asia Trip, Speculation Mounts of a Meeting With Kim Jong-un**\
 `President Trump has repeatedly said that he wants to see the North Korean leader again. Mr. Kim has indicated that he is open to the idea — but only under a strict condition.`\
 https://nytimes.com/2025/10/25/world/asia/asia-trump-kim-jong-un.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6750043/2025/10/25/flyers-trevor-zegras-trade-nhl/
 **What Is the ASEAN Summit, the First Event on Trump’s Tour of Asia?**\
 `President Trump is traveling to Malaysia for the event, his first destination in a nearly weeklong trip.`\
 https://nytimes.com/2025/10/25/world/asia/what-is-asean-summit-trump.html
-
-**Here’s the latest.**\
-`By Sui-Lee Wee`\
-https://nytimes.com/live/2025/10/25/us/trump-asia-news/heres-the-latest
 
