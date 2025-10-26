@@ -1,4 +1,8 @@
 **Utah deals Colorado its largest loss of the Deion Sanders era**\
+`Prior to Saturday, Sanders’ largest margin of defeat as Buffaloes coach was 42 points, in a 56-14 loss at Washington State in November 2023.`\
+https://nytimes.com/athletic/6750643/2025/10/26/utah-colorado-score-deion-sanders/
+
+**Utah deals Colorado its largest loss of the Deion Sanders era**\
 `Prior to tonight, Sanders’ largest margin of defeat as Buffaloes coach was 42 points, in a 56-14 loss at Washington State in November 2023.`\
 https://nytimes.com/athletic/6750643/2025/10/26/utah-colorado-score-deion-sanders/
 
