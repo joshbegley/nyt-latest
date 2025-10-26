@@ -1,3 +1,18 @@
+**SEC vibes after Week 9: From great (Vanderbilt) to terrible (LSU), and plenty in between**\
+`People I see, weary of me
+Showing my good side
+I can see how people look down
+I’m on the outside
+Here’s where the story ends
+Oh, here’s where the story ends
+— The Sundays, 1990
+Oh Brian Kelly … sigh.`\
+https://nytimes.com/athletic/6751028/2025/10/26/sec-football-rankings-week-9-vanderbilt-ole-miss-lsu/
+
+**College Football Playoff 2025 projections: How did Week 9 change the most likely bracket?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/10/26/college-football-playoff-bracket-projections-odds/
+
 **College Football Playoff bracket prediction: Welcome to the field, Vanderbilt**\
 `It was a chalky kind of week in college football, which led to some movement but no massive shake-ups in this updated CFP bracket.`\
 https://nytimes.com/athletic/6750336/2025/10/26/college-football-playoff-bracket-predictions-update/
