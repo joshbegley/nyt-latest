@@ -1,3 +1,7 @@
+**Rescuing My Daughter From the Cult of Labubu**\
+`I thought our frenzied quest to find the trendy doll would teach my daughter a lesson. It did, just not the one I expected.`\
+https://nytimes.com/2025/10/26/opinion/labubu-parenting-consumerism.html
+
 **How Ottawa earned its most dominant victory of the season over Washington: Takeaways**\
 `Also, what might have led to a two-person goalie scrum that had Linus Ullmark skate the full length of the ice. `\
 https://nytimes.com/athletic/6750243/2025/10/26/senators-capitals-win-ullmark-cozens/

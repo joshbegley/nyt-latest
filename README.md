@@ -6,11 +6,11 @@ https://nytimes.com/athletic/6750243/2025/10/26/senators-capitals-win-ullmark-co
 `People I see, weary of me
 Showing my good side
 I can see how people look down
-I’m on the outside
-Here’s where the story ends
-Oh, here’s where the story ends
-— The Sundays, 1990
-Oh Brian Kelly … sigh.`\
+I&#8217;m on the outside
+Here&#8217;s where the story ends
+Oh, here&#8217;s where the story ends
+— The Sundays, &#8220;Here&#8217;s Where the Story Ends&#8221;
+Oh, Brian Kelly … sigh.`\
 https://nytimes.com/athletic/6751028/2025/10/26/sec-football-rankings-week-9-vanderbilt-ole-miss-lsu/
 
 **College Football Playoff 2025 projections: How did Week 9 change the most likely bracket?**\
