@@ -1,3 +1,7 @@
+**How Emery became Guardiola's kryptonite at Villa Park**\
+`Three straight home wins over Manchester City have been achieved in a variety of ingenious ways`\
+https://nytimes.com/athletic/6751401/2025/10/26/unai-emery-pep-guardiola-tactics/
+
 **Capitals fire assistant coach Mitch Love following season-long suspension**\
 `The Capitals fired assistant coach Mitch Love on Sunday afternoon after the NHL suspended him for the 2025-26 season.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6751622/2025/10/26/trail-blazers-vs-clippers-stream
 **How to watch Rangers vs. Flames: Time, TV, streaming**\
 `Find out how to watch the New York Rangers play the Calgary Flames, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6751620/2025/10/26/rangers-vs-flames-stream-how-to-watch-oct-26/
-
-**How to watch Raptors vs. Mavericks: Time, TV, streaming**\
-`Find out how to watch the Toronto Raptors play the Dallas Mavericks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6751618/2025/10/26/raptors-vs-mavericks-stream-how-to-watch-oct-26/
 
