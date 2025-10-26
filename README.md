@@ -1,3 +1,15 @@
+**Until Saturday: Eight first-time Playoff teams?**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6751026/2025/10/26/college-football-playoff-new-teams-until-saturday/
+
+**We Tried 25 Different Mayonnaises — Here Are the Winners**\
+`Our team taste tested 25 different mayonnaises in the span of two days. Here are the three winners.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010459677/we-tried-25-different-mayonnaises-here-are-the-winners.html
+
+**Trump Administration Live Updates: U.S. and Chinese Officials Reach Framework of a Trade Deal**\
+``\
+https://nytimes.com/live/2025/10/26/us/trump-news
+
 **The Working Class Has Shifted Left on ‘Virtually Everything’**\
 `Jared Abbott, the director of the Center for Working-Class Politics, explains why working-class voters feel a “representation gap” from the Democratic Party despite shifting left on most issues over the last few decades.`\
 https://nytimes.com/video/opinion/100000010472169/the-working-class-has-shifted-left-on-virtually-everything.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6744221/2025/10/26/nfl-week-8-aaron-rodgers-packers
 **Halloween Season Is Here. Bring on the Horror.**\
 `Why are scary movies doing so well right now?`\
 https://nytimes.com/2025/10/26/us/halloween-season-is-here-bring-on-the-horror.html
-
-**PSG defender Eva Gaetino earns another chance with the USWNT: 'I couldn't stop crying'**\
-`The defender's call-up comes as head coach Emma Hayes continues to learn about the USWNT's depth.`\
-https://nytimes.com/athletic/6749778/2025/10/26/eva-gaetino-uswnt-call-up-emma-hayes/
-
-**WATCH: How the Bears have improved their run game**\
-`Over the first month of the season, the Chicago Bears fielded one of the worst rushing attacks in the league.`\
-https://nytimes.com/athletic/6747995/2025/10/26/chicago-bears-run-game-video-analysis/
-
-**Lowetide: Roby Jarventie is NHL-ready but do the Oilers have room?**\
-`So far this season, Jarventie is easily the best player on the AHL Bakersfield Condors.`\
-https://nytimes.com/athletic/6749507/2025/10/26/roby-jarventie-oilers-ahl-prospect/
 
