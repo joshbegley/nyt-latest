@@ -1,3 +1,7 @@
+**Mermaid’s Milieu**\
+`Tarun Krishnamurthy’s third Times puzzle comes with more than a few complications.`\
+https://nytimes.com/2025/10/26/crosswords/daily-puzzle-2025-10-27.html
+
 **Masterful Norris wins, Bearman impresses, disaster for Hamilton: Mexico City briefing**\
 `Lando Norris wins the Mexico City Grand Prix to regain the drivers' championship lead, while Haas' Ollie Bearman has a day to remember`\
 https://nytimes.com/athletic/6751859/2025/10/26/mexico-city-grand-prix-briefing-norris-wins-bearman-impresses-disaster-for-hamilton/

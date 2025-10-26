@@ -1,3 +1,7 @@
+**Mermaid’s Milieu**\
+`Tarun Krishnamurthy’s third Times puzzle comes with more than a few complications.`\
+https://nytimes.com/2025/10/26/crosswords/daily-puzzle-2025-10-27.html
+
 **Masterful Norris wins, Bearman impresses, disaster for Hamilton: Mexico City briefing**\
 `Lando Norris wins the Mexico City Grand Prix to regain the drivers' championship lead, while Haas' Ollie Bearman has a day to remember`\
 https://nytimes.com/athletic/6751859/2025/10/26/mexico-city-grand-prix-briefing-norris-wins-bearman-impresses-disaster-for-hamilton/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6751698/2025/10/26/giants-eagles-score-result-takea
 **Breece Hall leads explosive offense as Jets get first win of the season**\
 `Hall accounted for three touchdowns as the Jets had more than 500 yards of total offense in their comeback victory.`\
 https://nytimes.com/athletic/6751680/2025/10/26/jets-bengals-score-result-takeaways-week-8/
-
-**'MVP' chants for Drake Maye as Patriots rout Browns: Takeaways**\
-`New England improves to 6-2, its best start since the Belichick-Brady Patriots started 8-0 in 2019.`\
-https://nytimes.com/athletic/6751534/2025/10/26/browns-patriots-score-result-takeaways-week-8/
 
