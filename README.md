@@ -1,3 +1,7 @@
+**Brighton’s biggest worry was scoring goals. Now they can’t stop conceding them**\
+`After giving United ‘four gifts’, Brighton have now only kept one clean sheet in their last 21 league outings. It is a worrying statistic`\
+https://nytimes.com/athletic/6749284/2025/10/26/brighton-manchester-united-premier-league-analysis/
+
 **Are Sunderland good?**\
 `The win away to Chelsea was far from a fluke: it was a culmination of all Regis Le Bris’ Sunderland have built.`\
 https://nytimes.com/athletic/6750099/2025/10/26/sunderland-premier-league-chelsea/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/26/nyregion/cuomo-republican-voters-mayor.html
 **Alvin Bragg, Seeking Re-election, Is Not Mentioning His Best-Known Case**\
 `He is the only prosecutor to convict a president. But mentioning Donald Trump to him on the campaign trail is a conversation stopper.`\
 https://nytimes.com/2025/10/26/nyregion/bragg-trump-campaign.html
-
-**Arne Slot and Liverpool are running out of excuses**\
-`The Dutchman has pleaded mitigation for his Premier League champions. But is it justified?`\
-https://nytimes.com/athletic/6749753/2025/10/26/liverpool-arne-slot-excuses/
 
