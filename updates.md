@@ -1,3 +1,7 @@
+**Bayern confirm Boateng will not return for coaching internship after protests**\
+`The former Germany international was found guilty of domestic violence against his ex-girlfriend in 2021.`\
+https://nytimes.com/athletic/6749875/2025/10/26/jerome-boateng-bayern-munich-protests/
+
 **Arne Slot and Liverpool are running out of excuses**\
 `The Dutchman has pleaded mitigation for his Premier League champions. But is it justified?`\
 https://nytimes.com/athletic/6749753/2025/10/26/liverpool-arne-slot-excuses/
