@@ -1,3 +1,11 @@
+**The Working Class Has Shifted Left on ‘Virtually Everything’**\
+`Jared Abbott, the director of the Center for Working-Class Politics, explains why working-class voters feel a “representation gap” from the Democratic Party despite shifting left on most issues over the last few decades.`\
+https://nytimes.com/video/opinion/100000010472169/the-working-class-has-shifted-left-on-virtually-everything.html
+
+**Could there be more to college football's 'shirtless dudes' trend than meets the eye?**\
+`There's something wholesome about this movement, despite the partial nudity.`\
+https://nytimes.com/athletic/6750394/2025/10/26/college-football-shirtless-trend-male-loneliness/
+
 **How to watch Celtics vs. Pistons: Time, TV, streaming**\
 `Find out how to watch the Boston Celtics play the Detroit Pistons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6751005/2025/10/26/celtics-vs-pistons-stream-how-to-watch-oct-26/
