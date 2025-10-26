@@ -1,3 +1,7 @@
+**Chelsea need to play like they have a point to prove every week, not just in high-profile games**\
+`Chelsea have shown they do have the quality and ability to be a good side. But they also cannot be trusted yet to do it on a regular basis`\
+https://nytimes.com/athletic/6749970/2025/10/26/chelsea-maresca-sunderland-inconsistent/
+
 **Bayern confirm Boateng will not return for coaching internship after protests**\
 `The former Germany international was found guilty of domestic violence against his ex-girlfriend in 2021.`\
 https://nytimes.com/athletic/6749875/2025/10/26/jerome-boateng-bayern-munich-protests/
