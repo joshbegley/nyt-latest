@@ -1,3 +1,7 @@
+**The Pulse: New Playoff crashers all over**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6750567/2025/10/26/a-bunch-of-new-teams-are-crashing-the-college-football-playoff/
+
 **How to watch Stars vs. Predators: Time, TV, streaming**\
 `Find out how to watch the Dallas Stars play the Nashville Predators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6751262/2025/10/26/stars-vs-predators-stream-how-to-watch-oct-26/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6751248/2025/10/26/golden-knights-vs-lightning-stre
 **How to watch Sharks vs. Wild: Time, TV, streaming**\
 `Find out how to watch the San Jose Sharks play the Minnesota Wild, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6751246/2025/10/26/sharks-vs-wild-stream-how-to-watch-oct-26/
-
-**You Need a Back-Pocket Chicken Dinner**\
-`You can make Yasmin Fahr’s crispy baked tomato-oregano chicken as is, or punch it up with grated garlic and pepper flakes.`\
-https://nytimes.com/2025/10/26/dining/you-need-a-back-pocket-chicken-dinner.html
 

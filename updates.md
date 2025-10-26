@@ -1,3 +1,7 @@
+**The Pulse: New Playoff crashers all over**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6750567/2025/10/26/a-bunch-of-new-teams-are-crashing-the-college-football-playoff/
+
 **How to watch Stars vs. Predators: Time, TV, streaming**\
 `Find out how to watch the Dallas Stars play the Nashville Predators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6751262/2025/10/26/stars-vs-predators-stream-how-to-watch-oct-26/
