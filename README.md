@@ -1,3 +1,7 @@
+**Manchester United look good. Their investments look smart. It is a moment to enjoy**\
+`'The money was well invested,' said Brighton's coach after Manchester United's £200m front three enjoyed a good day`\
+https://nytimes.com/athletic/5972766/2025/10/26/manchester-united-look-good-their-investments-look-smart-it-is-a-moment-to-enjoy/
+
 **What El Clasico really means: 'You love something so much, and hate it in equal measure'**\
 `Before the rivals meet on Sunday, voices across Spanish football's great divide share their views on what makes this fixture unique`\
 https://nytimes.com/athletic/6746750/2025/10/26/what-el-clasico-really-means/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/26/pageoneplus/corrections-oct-26-2025.html
 **Michigan vs. Michigan State: Wolverines run past Sparty, keep hold of Paul Bunyan Trophy**\
 `Michigan was far from perfect, but it was much better than MSU, which remains winless in the Big Ten in Jonathan Smith's second season.`\
 https://nytimes.com/athletic/6750463/2025/10/25/michigan-michigan-state-score-result-takeaway-college-football-2/
-
-**Texas A&M routs LSU in Death Valley, an all-systems failure for Brian Kelly**\
-`It was Texas A&M’s first win in Baton Rouge since 1994. They had not won in six tries at Tiger Stadium since joining the SEC in 2012.`\
-https://nytimes.com/athletic/6750385/2025/10/25/lsu-texas-am-score-result/
 
