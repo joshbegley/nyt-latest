@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6750267/2025/10/25/senators-linus-ullmark-goalie-fight-capitals/
 
+**Senators goalie Linus Ullmark leaves crease, enters scrum at other end of the ice**\
+`Ullmark was penalized for goaltender participation beyond center ice after skating the length of the ice to join a scrum vs. Washington.
+`\
+https://nytimes.com/athletic/6750267/2025/10/25/senators-linus-ullmark-goalie-fight-capitals/
+
 **Michigan vs. Michigan State: Wolverines run past Sparty, keep hold of Paul Bunyan Trophy**\
 `Michigan was far from perfect, but it was much better than MSU, which remains winless in the Big Ten in Jonathan Smith's second season.`\
 https://nytimes.com/athletic/6750463/2025/10/25/michigan-michigan-state-score-result-takeaway-college-football-2/
