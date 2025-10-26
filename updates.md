@@ -1,3 +1,8 @@
+**Capitals fire assistant coach Mitch Love following season-long suspension**\
+`The Capitals fired assistant coach Mitch Love on Sunday afternoon after the NHL suspended him for the 2025-26 season.
+`\
+https://nytimes.com/athletic/6751470/2025/10/26/capitals-fire-mitch-love/
+
 **Bills-Panthers takeaways: Buffalo, James Cook roll over Panthers**\
 `The Bills overcame a two-game losing streak with an emphatic 40-9 win over the Panthers on Sunday.`\
 https://nytimes.com/athletic/6751656/2025/10/26/bills-panthers-score-result-takeaways-week-8/
