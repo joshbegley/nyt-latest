@@ -1,3 +1,7 @@
+**Arne Slot and Liverpool are running out of excuses**\
+`The Dutchman has pleaded mitigation for his Premier League champions, but is it justified?`\
+https://nytimes.com/athletic/6749753/2025/10/26/liverpool-arne-slot-excuses/
+
 **Utah deals Colorado its largest loss of the Deion Sanders era**\
 `Prior to Saturday, Sanders’ largest margin of defeat as Buffaloes coach was 42 points, in a 56-14 loss at Washington State in November 2023.`\
 https://nytimes.com/athletic/6750643/2025/10/26/utah-colorado-score-deion-sanders/
