@@ -1,3 +1,11 @@
+**Arsenal 'unsure' on Saliba, Rice injuries after Palace win - Arteta**\
+`Bukayo Saka and Riccardo Calafiori were also substituted in the 1-0 victory on Sunday.`\
+https://nytimes.com/athletic/6751407/2025/10/26/arsenal-injuries-saliba-saka-rice/
+
+**Real Madrid 2 Barcelona 1 - Yamal’s big talk backfires as Bellingham seals Clasico win**\
+`Our expert team of writers analyse the biggest talking points from El Clasico `\
+https://nytimes.com/athletic/6747610/2025/10/26/real-madrid-barcelona-bellingham-yamal-mbappe/
+
 **Hurricane Melissa’s Wind Speeds Doubled in Less Than a Day**\
 `Melissa grew from a tropical storm to a Category 4 hurricane in a matter of hours.`\
 https://nytimes.com/2025/10/26/weather/hurricane-melissa-rapid-intensification-jamaica.html
