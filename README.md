@@ -1,3 +1,7 @@
+**Vance Criticizes Mamdani’s Comments About Islamophobia After 9/11**\
+`Zohran Mamdani said the vice president’s attack on social media was one in a series of “cheap jokes about Islamophobia.”`\
+https://nytimes.com/2025/10/26/nyregion/jd-vance-mamdani.html
+
 **How many defensive records could Arsenal break this season?**\
 `From Chelsea's 15 goals conceded in 2004-05, to Cagliari's 11-goal season in 1969-70, these are the records Arsenal are chasing  `\
 https://nytimes.com/athletic/6733387/2025/10/26/arsenal-goals-conceded-defensive-record/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6734114/2025/10/26/world-cup-winners-italy-1982/
 **A Break-In That Shook France**\
 `The robbery at the Louvre left behind more than broken glass. It battered the pride of a nation that is increasingly glum about itself and its direction.`\
 https://nytimes.com/2025/10/26/world/europe/louvre-break-in-shook-france.html
-
-**Quote of the Day: Living With Parkinson’s, Gibson Now Leads a New Team**\
-`Quotation of the Day for Sunday, October 26, 2025.`\
-https://nytimes.com/2025/10/26/pageoneplus/quote-of-the-day-living-with-parkinsons-gibson-now-leads-a-new-team.html
 
