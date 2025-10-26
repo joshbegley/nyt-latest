@@ -1,3 +1,11 @@
+**MLB getting closer to bringing big leaguers to 2028 Los Angeles Olympics**\
+`Commissioner Rob Manfred also said that Canada is a possibility for MLB expansion in the next decade.`\
+https://nytimes.com/athletic/6750516/2025/10/26/mlb-los-angeles-2028-olympics-major-leaguers/
+
+**The New York Times International Edition in Print for Monday, Oct. 27, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/10/26/todays-new-york-times-international-edition
+
 **How to watch Avalanche vs. Devils: Time, TV, streaming**\
 `Find out how to watch the Colorado Avalanche play the New Jersey Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6750837/2025/10/26/avalanche-vs-devils-stream-how-to-watch-oct-26/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/26/movies/jeremy-allen-white-springsteen-deliver-me-
 **Making Dances for Taylor Swift? Check. And the Met Opera? No Sweat.**\
 `The choreographer Mandy Moore feels at home everywhere. She even sees herself as a kind of dance therapist. “Teach them the love first and the steps later.”`\
 https://nytimes.com/2025/10/26/arts/dance/mandy-moore-taylor-swift-ophelia.html
-
-**In Trump-Friendly Iowa, the President’s Policies Have Hit Hard**\
-`The state has become a stronghold for President Trump. Now, his efforts on trade, energy and immigration are squeezing farmers, disrupting labor and threatening industries.`\
-https://nytimes.com/2025/10/26/us/politics/iowa-trump-economy.html
-
-**How Venezuela’s Autocrat Uses Crypto to Fight Trump’s Sanctions**\
-`President Nicolás Maduro’s opponents hope a new period of economic pain will finally topple his government. He is using cryptocurrency to hold on.`\
-https://nytimes.com/2025/10/26/world/americas/trump-maduro-venezuela-economy.html
 

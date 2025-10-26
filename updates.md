@@ -1,3 +1,11 @@
+**MLB getting closer to bringing big leaguers to 2028 Los Angeles Olympics**\
+`Commissioner Rob Manfred also said that Canada is a possibility for MLB expansion in the next decade.`\
+https://nytimes.com/athletic/6750516/2025/10/26/mlb-los-angeles-2028-olympics-major-leaguers/
+
+**The New York Times International Edition in Print for Monday, Oct. 27, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/10/26/todays-new-york-times-international-edition
+
 **How to watch Avalanche vs. Devils: Time, TV, streaming**\
 `Find out how to watch the Colorado Avalanche play the New Jersey Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6750837/2025/10/26/avalanche-vs-devils-stream-how-to-watch-oct-26/
