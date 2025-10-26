@@ -1,3 +1,15 @@
+**NFL Week 8 top storylines: Aaron Rodgers vs. Packers, Giants-Eagles rematch**\
+`Also: Will the Ravens or Texans get much-needed wins? How will Jets QB Justin Fields fare vs. the Bengals after Woody Johnson's comments?`\
+https://nytimes.com/athletic/6744221/2025/10/26/nfl-week-8-aaron-rodgers-packers-jets-drama/
+
+**Halloween Season Is Here. Bring on the Horror.**\
+`Why are scary movies doing so well right now?`\
+https://nytimes.com/2025/10/26/us/halloween-season-is-here-bring-on-the-horror.html
+
+**PSG defender Eva Gaetino earns another chance with the USWNT: 'I couldn't stop crying'**\
+`The defender's call-up comes as head coach Emma Hayes continues to learn about the USWNT's depth.`\
+https://nytimes.com/athletic/6749778/2025/10/26/eva-gaetino-uswnt-call-up-emma-hayes/
+
 **WATCH: How the Bears have improved their run game**\
 `Over the first month of the season, the Chicago Bears fielded one of the worst rushing attacks in the league.`\
 https://nytimes.com/athletic/6747995/2025/10/26/chicago-bears-run-game-video-analysis/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6750478/2025/10/26/philadelphia-76ers-embiid-drummo
 **Under Trump’s Aegis, Cambodia and Thailand Agree to Resolve Border Dispute**\
 `It remains unclear whether the two nations can achieve lasting peace, but that did not deter President Trump from brandishing himself as a peacemaker.`\
 https://nytimes.com/2025/10/26/world/asia/trump-cambodia-thailand.html
-
-**Arizona State's loss to Houston shows how vulnerable mistake-prone Sun Devils have become**\
-`Life in the Big 12 is a walk on the tight rope, leaning this way and that, trying to maintain balance. Saturday night, ASU slipped.`\
-https://nytimes.com/athletic/6750611/2025/10/26/arizona-state-sun-devils-houston-loss-big-12-mistakes/
-
-**Blue Jays turn back to ‘intense’ Max Scherzer’s electricity for pivotal Game 3**\
-`For the three-time Cy Young Award winner, it’s always October. His passion will be put to the test with the series tied 1-1.`\
-https://nytimes.com/athletic/6750630/2025/10/26/dodgers-blue-jays-max-scherzer-game-3-start/
-
-**Yoshinobu Yamamoto adds latest chapter to his postseason legend: 'Just not normal'**\
-`Yamamoto became the first pitcher since Curt Schilling in 2001 to throw a complete game in back-to-back postseason starts.`\
-https://nytimes.com/athletic/6750612/2025/10/26/dodgers-yoshinobu-yamamoto-mlb-world-series/
 

@@ -1,3 +1,15 @@
+**NFL Week 8 top storylines: Aaron Rodgers vs. Packers, Giants-Eagles rematch**\
+`Also: Will the Ravens or Texans get much-needed wins? How will Jets QB Justin Fields fare vs. the Bengals after Woody Johnson's comments?`\
+https://nytimes.com/athletic/6744221/2025/10/26/nfl-week-8-aaron-rodgers-packers-jets-drama/
+
+**Halloween Season Is Here. Bring on the Horror.**\
+`Why are scary movies doing so well right now?`\
+https://nytimes.com/2025/10/26/us/halloween-season-is-here-bring-on-the-horror.html
+
+**PSG defender Eva Gaetino earns another chance with the USWNT: 'I couldn't stop crying'**\
+`The defender's call-up comes as head coach Emma Hayes continues to learn about the USWNT's depth.`\
+https://nytimes.com/athletic/6749778/2025/10/26/eva-gaetino-uswnt-call-up-emma-hayes/
+
 **WATCH: How the Bears have improved their run game**\
 `Over the first month of the season, the Chicago Bears fielded one of the worst rushing attacks in the league.`\
 https://nytimes.com/athletic/6747995/2025/10/26/chicago-bears-run-game-video-analysis/
