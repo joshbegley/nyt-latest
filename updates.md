@@ -1,5 +1,9 @@
 **A Big Department Store Pivots to a Catalog**\
 `With a 100-page gift guide, Nordstrom wants to find customers where they are — at home.`\
+https://nytimes.com/2025/10/26/style/nordstrom-catalog.html
+
+**A Big Department Store Pivots to a Catalog**\
+`With a 100-page gift guide, Nordstrom wants to find customers where they are — at home.`\
 https://nytimes.com/2025/10/26/style/a-big-department-store-pivots-to-a-catalog.html
 
 **Nick Mangold, former All-Pro center for the Jets, dies at 41**\
