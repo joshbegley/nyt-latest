@@ -1,3 +1,31 @@
+**Quick forward progress whistle negates Jalen Hurts' tush push fumble**\
+`Fox rules analyst Dean Blandino: "To me, he is pushing forward, he is reaching. That is an early whistle, in my opinion."`\
+https://nytimes.com/athletic/6751506/2025/10/26/eagles-tush-push-fumble-forward-progress/
+
+**Everton 0 Tottenham 3 – How did Van de Ven end Moyes' unbeaten home and set-piece record?**\
+`Analysis of Tottenham's Premier League game away to Everton`\
+https://nytimes.com/athletic/6747611/2025/10/26/everton-0-tottenham-3-highlights/
+
+**How to watch Trail Blazers vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the Portland Trail Blazers play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6751622/2025/10/26/trail-blazers-vs-clippers-stream-how-to-watch-oct-26/
+
+**How to watch Rangers vs. Flames: Time, TV, streaming**\
+`Find out how to watch the New York Rangers play the Calgary Flames, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6751620/2025/10/26/rangers-vs-flames-stream-how-to-watch-oct-26/
+
+**How to watch Raptors vs. Mavericks: Time, TV, streaming**\
+`Find out how to watch the Toronto Raptors play the Dallas Mavericks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6751618/2025/10/26/raptors-vs-mavericks-stream-how-to-watch-oct-26/
+
+**How to watch Oilers vs. Canucks: Time, TV, streaming**\
+`Find out how to watch the Edmonton Oilers play the Vancouver Canucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6751616/2025/10/26/oilers-vs-canucks-stream-how-to-watch-oct-26/
+
+**How to watch Lakers vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6751614/2025/10/26/lakers-vs-kings-stream-how-to-watch-oct-26/
+
 **Giants RB Cam Skattebo carted off field vs. Eagles with leg injury**\
 `As Skattebo lay on the ground, Giants teammates were seen taking a knee in an emotional moment.`\
 https://nytimes.com/athletic/6751532/2025/10/26/cam-skattebo-ankle-injury-carted-off-giants/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6751449/2025/10/26/ap-top-25-rankings-lsu-vanderbil
 **Trump, Long Erratic on the World Stage, Reaches a New Level**\
 `Whether because of his increasingly mercurial approach or despite it, President Trump has won some foreign policy victories in his second term. The question now is whether he can build on his record.`\
 https://nytimes.com/2025/10/26/us/politics/trump-erratic-foreign-policy.html
-
-**Palestinian Leader Lays Out Succession Plan, Elevating Deputy as Apparent Heir**\
-`Mahmoud Abbas, the president of the Palestinian Authority, clarified a succession plan after more than two decades in control. He said if he vacated his role, his deputy would rule for a short period until elections could be held.`\
-https://nytimes.com/2025/10/26/world/middleeast/palestinian-authority-abbas-deputy-succession.html
-
-**Anthony Richardson has surgery, hopes to return to Colts this season: Sources**\
-`Richardson, the No. 4 pick in the 2023 NFL Draft, lost a duel with Daniel Jones during training camp for the Colts’ starting QB spot.`\
-https://nytimes.com/athletic/6751396/2025/10/26/anthony-richardson-surgery-orbital-fracture-colts/
-
-**How Mickey Mantle and George W. Bush ended up on Derek Jeter's 2007 Topps card**\
-`The most talked-about baseball card of early 2007 included a couple of surprise cameos. `\
-https://nytimes.com/athletic/6751368/2025/10/26/derek-jeter-mickey-mantle-george-bush-topps/
-
-**Newsom Says He Will Consider a 2028 Presidential Run After the Midterms**\
-`The California governor acknowledged in an interview Sunday on CBS that he would give the question serious thought after the 2026 elections.`\
-https://nytimes.com/2025/10/26/us/politics/gavin-newsom-2028-race.html
-
-**Pereira says Wolves fans should be 'proud' of team after altercation with home support**\
-`Both Pereira and striker Jorgen Strand Larsen approached fans after Burnley scored a stoppage-time winner at Molineux on Sunday.`\
-https://nytimes.com/athletic/6751467/2025/10/26/pereira-wolves-fans-angry/
-
-**Hurricane Melissa Could Be One of the Strongest Storms to Strike Jamaica**\
-`Direct landfalls from big hurricanes are rare for Jamaica. Melissa could pummel the island as an “upper-end” Category 4 hurricane, forecasters said.`\
-https://nytimes.com/2025/10/26/weather/jamaica-worst-storms-hurricane-melissa.html
-
-**Arsenal 'unsure' on Saliba, Rice injuries after Palace win - Arteta**\
-`Bukayo Saka and Riccardo Calafiori were also substituted in the 1-0 victory on Sunday.`\
-https://nytimes.com/athletic/6751407/2025/10/26/arsenal-injuries-saliba-saka-rice/
 
