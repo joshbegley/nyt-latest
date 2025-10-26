@@ -1,3 +1,7 @@
+**College Football Playoff bracket prediction: Welcome to the field, Vanderbilt**\
+`It was a chalky kind of week in college football, which led to some movement but no massive shake-ups in this updated CFP bracket.`\
+https://nytimes.com/athletic/6750336/2025/10/26/college-football-playoff-bracket-predictions-update/
+
 **Labubus Ate My Daughter**\
 `I thought our frenzied quest to find the trendy doll would teach my daughter a lesson. It did, just not the one I expected.`\
 https://nytimes.com/2025/10/26/opinion/labubu-parenting-consumerism.html
