@@ -1,3 +1,14 @@
+**SEC vibes after Week 9: From great (Vanderbilt) to terrible (LSU), and plenty in between**\
+`People I see, weary of me
+Showing my good side
+I can see how people look down
+I&#8217;m on the outside
+Here&#8217;s where the story ends
+Oh, here&#8217;s where the story ends
+— The Sundays, &#8220;Here&#8217;s Where the Story Ends&#8221;
+Oh, Brian Kelly … sigh.`\
+https://nytimes.com/athletic/6751028/2025/10/26/sec-football-rankings-week-9-vanderbilt-ole-miss-lsu/
+
 **Rescuing My Daughter From the Cult of Labubu**\
 `I thought our frenzied quest to find the trendy doll would teach my daughter a lesson. It did, just not the one I expected.`\
 https://nytimes.com/2025/10/26/opinion/labubu-parenting-consumerism.html
