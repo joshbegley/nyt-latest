@@ -1,16 +1,13 @@
+**You Need a Back-Pocket Chicken Dinner**\
+`You can make Yasmin Fahr’s crispy baked tomato-oregano chicken as is, or punch it up with grated garlic and pepper flakes.`\
+https://nytimes.com/2025/10/26/dining/you-need-a-back-pocket-chicken-dinner.html
+
 **How Ottawa earned its most dominant victory of the season over Washington: Takeaways**\
 `Also, what might have led to a two-person goalie scrum that had Linus Ullmark skate the full length of the ice. `\
 https://nytimes.com/athletic/6750243/2025/10/26/senators-capitals-win-ullmark-cozens/
 
 **SEC vibes after Week 9: From great (Vanderbilt) to terrible (LSU), and plenty in between**\
-`People I see, weary of me
-Showing my good side
-I can see how people look down
-I&#8217;m on the outside
-Here&#8217;s where the story ends
-Oh, here&#8217;s where the story ends
-— The Sundays, &#8220;Here&#8217;s Where the Story Ends&#8221;
-Oh, Brian Kelly … sigh.`\
+`The good times keep on rolling for Vanderbilt and Texas A&M in the Week 9 SEC vibes rankings.`\
 https://nytimes.com/athletic/6751028/2025/10/26/sec-football-rankings-week-9-vanderbilt-ole-miss-lsu/
 
 **College Football Playoff 2025 projections: How did Week 9 change the most likely bracket?**\
@@ -40,8 +37,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010459677/we-tried-25-
 **Trump Administration Live Updates: U.S. and Chinese Officials Reach Framework of a Trade Deal**\
 ``\
 https://nytimes.com/live/2025/10/26/us/trump-news
-
-**The Working Class Has Shifted Left on ‘Virtually Everything’**\
-`Jared Abbott, the director of the Center for Working-Class Politics, explains why working-class voters feel a “representation gap” from the Democratic Party despite shifting left on most issues over the last few decades.`\
-https://nytimes.com/video/opinion/100000010472169/the-working-class-has-shifted-left-on-virtually-everything.html
 

@@ -1,3 +1,11 @@
+**You Need a Back-Pocket Chicken Dinner**\
+`You can make Yasmin Fahr’s crispy baked tomato-oregano chicken as is, or punch it up with grated garlic and pepper flakes.`\
+https://nytimes.com/2025/10/26/dining/you-need-a-back-pocket-chicken-dinner.html
+
+**SEC vibes after Week 9: From great (Vanderbilt) to terrible (LSU), and plenty in between**\
+`The good times keep on rolling for Vanderbilt and Texas A&M in the Week 9 SEC vibes rankings.`\
+https://nytimes.com/athletic/6751028/2025/10/26/sec-football-rankings-week-9-vanderbilt-ole-miss-lsu/
+
 **SEC vibes after Week 9: From great (Vanderbilt) to terrible (LSU), and plenty in between**\
 `People I see, weary of me
 Showing my good side
