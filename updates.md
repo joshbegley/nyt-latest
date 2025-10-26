@@ -1,3 +1,7 @@
+**Giants RB Cam Skattebo ruled out vs. Eagles after dislocating ankle**\
+`As Skattebo lay on the ground, Giants teammates were seen taking a knee in an emotional moment.`\
+https://nytimes.com/athletic/6751532/2025/10/26/cam-skattebo-ankle-injury-carted-off-giants/
+
 **Sid Davis, Reporter Who Witnessed Johnson’s Swearing-In, Dies at 97**\
 `A veteran journalist, he covered the assassination of President John F. Kennedy and provided the pool report on the ceremony aboard Air Force One.`\
 https://nytimes.com/2025/10/26/obituaries/sid-davis-dead.html
