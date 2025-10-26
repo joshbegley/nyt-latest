@@ -1,3 +1,8 @@
+**Senators goalie Linus Ullmark leaves crease, enters scrum at other end of the ice**\
+`Ullmark was penalized for goaltender participation beyond center ice after skating the length of the ice to join a scrum vs. Washington.
+`\
+https://nytimes.com/athletic/6750267/2025/10/25/senators-linus-ullmark-goalie-fight-capitals/
+
 **Tyler Mitchell Breaks Down Three Photos From His New Book**\
 `Erica Ackerberg, a Times photo editor, calls the photographer Tyler Mitchell to chat about three photos from his new book, “Wish This Was Real.”`\
 https://nytimes.com/video/books/review/100000010477576/tyler-mitchell-breaks-down-three-photos-from-his-new-book.html
