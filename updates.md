@@ -1,3 +1,7 @@
+**A Spiritual Vibe Shift**\
+`We explore Americans’ changing attitudes toward religion.`\
+https://nytimes.com/2025/10/26/briefing/a-spiritual-vibe-shift.html
+
 **NFL Week 8 top storylines: Aaron Rodgers vs. Packers, Giants-Eagles rematch**\
 `Also: Will the Ravens or Texans get much-needed wins? How will Jets QB Justin Fields fare vs. the Bengals after Woody Johnson's comments?`\
 https://nytimes.com/athletic/6744221/2025/10/26/nfl-week-8-aaron-rodgers-packers-jets-drama/

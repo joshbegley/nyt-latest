@@ -1,3 +1,11 @@
+**How to watch Celtics vs. Pistons: Time, TV, streaming**\
+`Find out how to watch the Boston Celtics play the Detroit Pistons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6751005/2025/10/26/celtics-vs-pistons-stream-how-to-watch-oct-26/
+
+**How to watch Nets vs. Spurs: Time, TV, streaming**\
+`Find out how to watch the Brooklyn Nets play the San Antonio Spurs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6751003/2025/10/26/nets-vs-spurs-stream-how-to-watch-oct-26/
+
 **A Spiritual Vibe Shift**\
 `We explore Americans’ changing attitudes toward religion.`\
 https://nytimes.com/2025/10/26/briefing/a-spiritual-vibe-shift.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6750701/2025/10/26/college-football-scores-results-
 **Behind freshman QB Bear Bachmeier, BYU climbs to 8-0: 'We just go win'**\
 `“We keep asking him to do more, and he keeps doing it,” BYU coach Kalani Sitake said of QB Bear Bachmeier.`\
 https://nytimes.com/athletic/6750569/2025/10/26/byu-football-bear-bachmeier-iowa-state/
-
-**Michigan-MSU final thoughts: It's time to retire some recent rivalry narratives**\
-`Jim Harbaugh, Mark Dantonio and Mel Tucker are long gone from the sidelines, and this rivalry is no longer the toxic mess it was in 2022.`\
-https://nytimes.com/athletic/6750677/2025/10/26/michigan-msu-rivalry-final-thoughts/
-
-**While it's still early, these Sixers show spark of hope, resilience with 2-0 start**\
-`On a night when the entire team celebrated with Quentin Grimes when he hit the deciding shot, a few things became clear about the Sixers.`\
-https://nytimes.com/athletic/6750478/2025/10/26/philadelphia-76ers-embiid-drummond/
 
