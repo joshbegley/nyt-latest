@@ -1,3 +1,11 @@
+**Nick Mangold, former All-Pro center for the Jets, dies at 41**\
+`Less than two weeks ago, Mangold publicly announced he needed a kidney transplant and asked for help finding a donor.`\
+https://nytimes.com/athletic/6751296/2025/10/26/nick-mangold-jets-obituary-kidney-disease/
+
+**Egypt Aids Search for Bodies of Dead Captives in Gaza**\
+`The assistance is part of an international effort to reinforce the fragile cease-fire between Israel and Hamas.`\
+https://nytimes.com/2025/10/26/world/middleeast/egypt-gaza-captives-bodies-search.html
+
 **Trump and Xi Could ‘Consummate’ TikTok Deal This Week, Bessent Says**\
 `Treasury Secretary Scott Bessent said on “Face the Nation” on Sunday that China and the United States had reached “a final deal on TikTok,” but offered few details.`\
 https://nytimes.com/2025/10/26/us/politics/trump-xi-tiktok-deal-bessent.html

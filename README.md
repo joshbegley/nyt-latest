@@ -1,3 +1,7 @@
+**A Big Department Store Pivots to a Catalog**\
+`With a 100-page gift guide, Nordstrom wants to find customers where they are — at home.`\
+https://nytimes.com/2025/10/26/style/a-big-department-store-pivots-to-a-catalog.html
+
 **Nick Mangold, former All-Pro center for the Jets, dies at 41**\
 `Less than two weeks ago, Mangold publicly announced he needed a kidney transplant and asked for help finding a donor.`\
 https://nytimes.com/athletic/6751296/2025/10/26/nick-mangold-jets-obituary-kidney-disease/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6751260/2025/10/26/pacers-vs-timberwolves-stream-ho
 **How to watch Hornets vs. Wizards: Time, TV, streaming**\
 `Find out how to watch the Charlotte Hornets play the Washington Wizards, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6751258/2025/10/26/hornets-vs-wizards-stream-how-to-watch-oct-26/
-
-**How to watch Knicks vs. Heat: Time, TV, streaming**\
-`Find out how to watch the New York Knicks play the Miami Heat, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6751256/2025/10/26/knicks-vs-heat-stream-how-to-watch-oct-26/
 

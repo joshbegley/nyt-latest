@@ -1,3 +1,11 @@
+**Nick Mangold, former All-Pro center for the Jets, dies at 41**\
+`Less than two weeks ago, Mangold publicly announced he needed a kidney transplant and asked for help finding a donor.`\
+https://nytimes.com/athletic/6751296/2025/10/26/nick-mangold-jets-obituary-kidney-disease/
+
+**Egypt Aids Search for Bodies of Dead Captives in Gaza**\
+`The assistance is part of an international effort to reinforce the fragile cease-fire between Israel and Hamas.`\
+https://nytimes.com/2025/10/26/world/middleeast/egypt-gaza-captives-bodies-search.html
+
 **Trump and Xi Could ‘Consummate’ TikTok Deal This Week, Bessent Says**\
 `Treasury Secretary Scott Bessent said on “Face the Nation” on Sunday that China and the United States had reached “a final deal on TikTok,” but offered few details.`\
 https://nytimes.com/2025/10/26/us/politics/trump-xi-tiktok-deal-bessent.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6751258/2025/10/26/hornets-vs-wizards-stream-how-to
 **How to watch Knicks vs. Heat: Time, TV, streaming**\
 `Find out how to watch the New York Knicks play the Miami Heat, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6751256/2025/10/26/knicks-vs-heat-stream-how-to-watch-oct-26/
-
-**How to watch Bucks vs. Cavaliers: Time, TV, streaming**\
-`Find out how to watch the Milwaukee Bucks play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6751255/2025/10/26/bucks-vs-cavaliers-stream-how-to-watch-oct-26/
-
-**How to watch Kings vs. Blackhawks: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Kings play the Chicago Blackhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6751252/2025/10/26/kings-vs-blackhawks-stream-how-to-watch-oct-26/
 
