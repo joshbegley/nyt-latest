@@ -1,3 +1,11 @@
+**The Briefing: Aston Villa 1 Man City 0 - Why did Guardiola suffer in his graveyard again?**\
+`Analysing the major talking points from the Premier League game at Villa Park`\
+https://nytimes.com/athletic/6747587/2025/10/26/aston-villa-manchester-result-analysis/
+
+**The Briefing: Arsenal 1 Palace 0 - Eze's perfect role? Vital to capitalise on results? Mosquera importance?**\
+`Eze's goal against his former club, more threat from set pieces, and Arsenal remain top - we break down the talking points.`\
+https://nytimes.com/athletic/6747583/2025/10/26/arsenal-eberechi-eze-crystal-palace/
+
 **The Pulse: New Playoff crashers all over**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6750567/2025/10/26/a-bunch-of-new-teams-are-crashing-the-college-football-playoff/
