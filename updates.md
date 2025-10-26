@@ -1,3 +1,11 @@
+**Liam Rosenior interview: 'If you have multicultural staff, you improve your players so much quicker'**\
+`The Strasbourg head coach speaks on The Athletic FC podcast about coaching, empathy and melting pot changing rooms.`\
+https://nytimes.com/athletic/6740096/2025/10/26/liam-rosenior-interview-black-history-month/
+
+**Police Make Arrests in Louvre Robbery, Authorities Say**\
+`Four thieves broke into the famed Paris museum last week and stole over $100 million in historical jewelry, shocking France and the world. It is unclear how many people were arrested.`\
+https://nytimes.com/2025/10/26/world/europe/louvre-heist-arrests.html
+
 **MLB getting closer to bringing big leaguers to 2028 Los Angeles Olympics**\
 `Commissioner Rob Manfred also said that Canada is a possibility for MLB expansion in the next decade.`\
 https://nytimes.com/athletic/6750516/2025/10/26/mlb-los-angeles-2028-olympics-major-leaguers/
