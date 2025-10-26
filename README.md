@@ -1,3 +1,15 @@
+**Blame injuries for the loss in Houston, but the 49ers won't: 'They kicked our ass'**\
+`"We've got to take it like men and come back, hopefully a little pissed off, and play better next week," Kyle Shanahan said.`\
+https://nytimes.com/athletic/6752236/2025/10/26/49ers-injuries-texans-kyle-shanahan/
+
+**Cowboys-Broncos takeaways: Denver wins fifth straight as Dallas sputters**\
+`The Broncos asserted their dominance over the Cowboys and AFC West in a big win at Mile High.`\
+https://nytimes.com/athletic/6744122/2025/10/26/cowboys-broncos-score-result-takeaways-week-8/
+
+**NASCAR Championship 4 is set: William Byron, Kyle Larson join wide-open field**\
+`Byron dominates at Martinsville on Sunday, joining Larson, Denny Hamlin and Chase Briscoe as finalists. Here's why each could win title.`\
+https://nytimes.com/athletic/6752235/2025/10/26/nascar-championship-4-is-set-william-byron-kyle-larson-join-wide-open-field/
+
 **Do Lanes Matter in Sprinting Races?**\
 `The conventional wisdom says the middle lanes are ideal for sprinting. New research challenges this long-held theory. Here’s how.`\
 https://nytimes.com/video/the-athletic/100000010446797/do-lanes-matter-in-sprinting-races.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6752191/2025/10/26/bears-caleb-williams-offense-slo
 **Jets’ Fourth-Quarter Comeback Secures First Win of the Season**\
 `Behind 502 yards of offense, the New York Jets scored a season-high 39 points to pull off a shocking road comeback against the Cincinnati Bengals and earn their first victory.`\
 https://nytimes.com/video/the-athletic/100000010482690/jets-fourth-quarter-comeback-secures-first-win-of-the-season.html
-
-**Buccaneers-Saints takeaways: Tampa Bay nabs 4 takeaways, New Orleans makes QB change**\
-`New Orleans benched Spencer Rattler in the third quarter.`\
-https://nytimes.com/athletic/6752183/2025/10/26/buccaneers-saints-takeaways-tampa-bay-nabs-4-takeaways/
-
-**We’ve seen enough: The 49ers desperately need to trade for a pass rusher ... or two**\
-`Only one team, the Jacksonville Jaguars, has fewer sacks than the 49ers this season. The Jaguars have also played one fewer game.`\
-https://nytimes.com/athletic/6752167/2025/10/26/49ers-texans-nfl-trade-deadline/
-
-**No takeaways, too many penalties add up to gloomy Bears loss in Baltimore**\
-`The math is simple. Through seven games, when the Bears get more than one takeaway, they are 4-0. When they get one or zero, they're 0-3.`\
-https://nytimes.com/athletic/6752092/2025/10/26/bears-ravens-loss-penalties-greenberg/
 
