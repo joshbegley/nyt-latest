@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6751470/2025/10/26/capitals-fire-mitch-love/
 
+**Capitals fire assistant coach Mitch Love following season-long suspension**\
+`The Capitals fired assistant coach Mitch Love on Sunday afternoon after the NHL suspended him for the 2025-26 season.
+`\
+https://nytimes.com/athletic/6751470/2025/10/26/capitals-fire-mitch-love/
+
 **Has Emery become Pep’s kryptonite at Villa Park?**\
 `Sunday was only the third occasion in Guardiola's career that he has lost three consecutive away matches against the same opponent`\
 https://nytimes.com/athletic/6751401/2025/10/26/aston-villa-man-city-emery-guardiola/
