@@ -1,3 +1,8 @@
+**Senators goalie Linus Ullmark leaves crease, enters scrum at other end of the ice**\
+`Ullmark was penalized for goaltender participation beyond center ice after skating the length of the ice to join a scrum vs. Washington.
+`\
+https://nytimes.com/athletic/6750267/2025/10/25/senators-linus-ullmark-goalie-fight-capitals/
+
 **Red-hot Logan Cooley lights up Wild during ugly start to 6-game homestand: Takeaways**\
 `The former University of Minnesota star scored two goals and three points in Utah's 6-2 win over the Wild on Saturday.`\
 https://nytimes.com/athletic/6750179/2025/10/25/wild-mammoth-logan-cooley-takeaways/
