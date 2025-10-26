@@ -1,3 +1,11 @@
+**This college football season, everyone's a Playoff contender — except for the teams we expected**\
+`LSU's Playoff hopes are extinguished, but unexpected seasons from Houston, Virginia and Cincinnati fuel a wide-open Playoff race.`\
+https://nytimes.com/athletic/6750748/2025/10/26/college-football-playoff-race-after-week-9/
+
+**World Series Game 2 Weird & Wild: Dodgers' quest to repeat is more historic than you think**\
+`After their Game 2 win, the Dodgers are close enough to taste it. They’re just not quite close enough to fully comprehend it.`\
+https://nytimes.com/athletic/6750795/2025/10/26/dodgers-repeat-world-series-championships-game-2/
+
 **Forget what you knew about Vanderbilt. Saturday showed times have changed**\
 `Vanderbilt welcomed "College GameDay" to campus and won a top-15 matchup for the first time. Do you believe in the 7-1 Commodores yet?`\
 https://nytimes.com/athletic/6750357/2025/10/26/vanderbilt-win-missouri-sec-playoff-college-gameday/
