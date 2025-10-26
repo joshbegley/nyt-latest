@@ -1,3 +1,14 @@
+**SEC vibes after Week 9: From great (Vanderbilt) to terrible (LSU), and plenty in between**\
+`People I see, weary of me
+Showing my good side
+I can see how people look down
+I’m on the outside
+Here’s where the story ends
+Oh, here’s where the story ends
+— The Sundays, 1990
+Oh Brian Kelly … sigh.`\
+https://nytimes.com/athletic/6751028/2025/10/26/sec-football-rankings-week-9-vanderbilt-ole-miss-lsu/
+
 **College Football Playoff 2025 projections: How did Week 9 change the most likely bracket?**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/10/26/college-football-playoff-bracket-projections-odds/
@@ -33,8 +44,4 @@ https://nytimes.com/video/opinion/100000010472169/the-working-class-has-shifted-
 **Could there be more to college football's 'shirtless dudes' trend than meets the eye?**\
 `There's something wholesome about this movement, despite the partial nudity.`\
 https://nytimes.com/athletic/6750394/2025/10/26/college-football-shirtless-trend-male-loneliness/
-
-**How to watch Celtics vs. Pistons: Time, TV, streaming**\
-`Find out how to watch the Boston Celtics play the Detroit Pistons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6751005/2025/10/26/celtics-vs-pistons-stream-how-to-watch-oct-26/
 
