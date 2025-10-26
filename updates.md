@@ -1,3 +1,15 @@
+**Warning signs still flashing after Bruins snap 6-game losing streak**\
+`Saturday’s victory over the Avalanche was not a turning point. But it could be a first step out of the darkness.`\
+https://nytimes.com/athletic/6750096/2025/10/25/bruins-avalanche-morgan-geekie-losing-streak/
+
+**Lane Kiffin chirps Oklahoma player after win: 'You're quieter now'**\
+`"(Oklahoma's David Stone) yelled at me during the game like five times (about) how great they were and we can't score on them," Kiffin said.`\
+https://nytimes.com/athletic/6750060/2025/10/25/lane-kiffin-ole-miss-oklahoma-player-comment-exchange/
+
+**Alabama escapes South Carolina to remain a top SEC, CFP contender**\
+`Alabama’s 29-22 road win follows a stretch of four victories over ranked opponents in consecutive weeks. The Tide have won seven straight.`\
+https://nytimes.com/athletic/6750109/2025/10/25/alabama-south-carolina-score-result/
+
 **Alabama escapes South Carolina to remain a top SEC, CFP contender**\
 `Alabama’s road triumph follows a stretch of four victories over ranked opponents in four consecutive weeks.`\
 https://nytimes.com/athletic/6750109/2025/10/25/alabama-south-carolina-score-result/
