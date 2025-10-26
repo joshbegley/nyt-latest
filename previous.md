@@ -1,3 +1,15 @@
+**Arizona State's loss to Houston shows how vulnerable mistake-prone Sun Devils have become**\
+`Life in the Big 12 is a walk on the tight rope, leaning this way and that, trying to maintain balance. Saturday night, ASU slipped.`\
+https://nytimes.com/athletic/6750611/2025/10/26/arizona-state-sun-devils-houston-loss-big-12-mistakes/
+
+**Blue Jays turn back to ‘intense’ Max Scherzer’s electricity for pivotal Game 3**\
+`For the three-time Cy Young Award winner, it’s always October. His passion will be put to the test with the series tied 1-1.`\
+https://nytimes.com/athletic/6750630/2025/10/26/dodgers-blue-jays-max-scherzer-game-3-start/
+
+**Yoshinobu Yamamoto adds latest chapter to his postseason legend: 'Just not normal'**\
+`Yamamoto became the first pitcher since Curt Schilling in 2001 to throw a complete game in back-to-back postseason starts.`\
+https://nytimes.com/athletic/6750612/2025/10/26/dodgers-yoshinobu-yamamoto-mlb-world-series/
+
 **Wardley stuns Parker in heavyweight upset - is Usyk next?**\
 `Wardley is now in line for a shot at all the heavyweight belts with a match-up against Usyk, but boxing is never quite as clear cut.`\
 https://nytimes.com/athletic/6750884/2025/10/26/wardley-parker-heavyweight-fight-usyk/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6713550/2025/10/26/florida-panthers-goalie-sergei-b
 **Iowa dominates Minnesota in the most 'Iowa' way possible — and is now in the CFP discussion**\
 `Without a flashy passing game, Iowa’s style of play generates plenty of detractors. And that's perfectly fine with coach Kirk Ferentz. `\
 https://nytimes.com/athletic/6750391/2025/10/26/iowa-hawkeyes-minnesota-floyd-rosedale-playoff/
-
-**Chinese and U.S. Officials Reach Framework of a Trade Deal**\
-`Negotiators announced on Sunday they have preliminarily agreed on several issues ahead of an expected meeting between President Trump and Xi Jinping this week.`\
-https://nytimes.com/2025/10/26/business/china-us-trade.html
-
-**This college football season, everyone's a Playoff contender — except for the teams we expected**\
-`LSU's Playoff hopes are extinguished, but unexpected seasons from Vandy, Houston, Virginia and Cincinnati fuel a wide-open Playoff race.`\
-https://nytimes.com/athletic/6750748/2025/10/26/college-football-playoff-race-after-week-9/
-
-**World Series Game 2 Weird & Wild: Dodgers' quest to repeat is more historic than you think**\
-`After their Game 2 win, the Dodgers are close enough to taste it. They’re just not quite close enough to fully comprehend it.`\
-https://nytimes.com/athletic/6750795/2025/10/26/dodgers-repeat-world-series-championships-game-2/
 
