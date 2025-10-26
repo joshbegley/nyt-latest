@@ -1,3 +1,7 @@
+**How Ottawa earned its most dominant victory of the season over Washington: Takeaways**\
+`Also, what might have led to a two-person goalie scrum that had Linus Ullmark skate the full length of the ice. `\
+https://nytimes.com/athletic/6750243/2025/10/26/senators-capitals-win-ullmark-cozens/
+
 **SEC vibes after Week 9: From great (Vanderbilt) to terrible (LSU), and plenty in between**\
 `People I see, weary of me
 Showing my good side
