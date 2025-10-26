@@ -1,3 +1,7 @@
+**No takeaways, too many penalties add up to gloomy Bears loss in Baltimore**\
+`The math is simple. Through seven games, when the Bears get more than one takeaway, they are 4-0. When they get one or zero, they're 0-3.`\
+https://nytimes.com/athletic/6752092/2025/10/26/bears-ravens-loss-penalties-greenberg/
+
 **Broncos star Pat Surtain II knocked out of game with shoulder injury**\
 `The reigning Defensive Player of the Year had to leave Sunday's game after injuring his left shoulder.`\
 https://nytimes.com/athletic/6752202/2025/10/26/pat-surtain-broncos-shoulder-injury-ruled-out/
