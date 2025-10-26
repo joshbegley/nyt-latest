@@ -1,3 +1,7 @@
+**Trump Opens Trip With Trade Deals in Southeast Asia**\
+`The U.S. announced agreements on Sunday with Malaysia, Thailand and Cambodia, securing support for its efforts to pressure China on trade and critical minerals.`\
+https://nytimes.com/2025/10/26/business/trump-trade-deals-asean.html
+
 **How to watch Everton vs. Tottenham from U.S.: Spurs aim for win at Hill Dickinson Stadium**\
 `Everton is undefeated at its new home in Liverpool. Will Tottenham be the club that delivers the first loss?`\
 https://nytimes.com/athletic/6748056/2025/10/26/tottenham-everton-spurs-how-to-watch-us/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/26/opinion/trump-foreign-policy.html
 **Bruce Springsteen, Man Crush**\
 `Kids fell hard for Springsteen because he didn’t provoke or challenge, boast or tease; he inhabited and affirmed.`\
 https://nytimes.com/2025/10/26/opinion/bruce-springsteen-jeremy-allen-white.html
-
-**Wordle Review No. 1,591**\
-`Scroll down for hints and conversation about the puzzle for Monday, Oct. 27, 2025.`\
-https://nytimes.com/2025/10/26/crosswords/wordle-review-1591.html
 
