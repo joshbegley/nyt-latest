@@ -1,3 +1,7 @@
+**Palestinian Leader Lays Out Succession Plan, Elevating Deputy as Apparent Heir**\
+`Mahmoud Abbas, the president of the Palestinian Authority, clarified a succession plan after more than two decades in control. He said if he vacated his role, his deputy would rule for a short period until elections could be held.`\
+https://nytimes.com/2025/10/26/world/middleeast/palestinian-authority-abbas-deputy-succession.html
+
 **Anthony Richardson has surgery, hopes to return to Colts this season**\
 `Richardson, the No. 4 pick in the 2023 NFL Draft, lost a duel with Daniel Jones during training camp for the Colts’ starting QB spot.`\
 https://nytimes.com/athletic/6751396/2025/10/26/anthony-richardson-surgery-orbital-fracture-colts/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/26/weather/hurricane-melissa-rapid-intensification-j
 **Images of Black Beauty and Belonging**\
 `In the transporting monograph “Tyler Mitchell: Wish This Was Real,” the gifted young photographer traces a path from high fashion to his Georgia roots.`\
 https://nytimes.com/2025/10/26/books/review/tyler-mitchell-wish-this-was-real.html
-
-**‘No Idea How Long People Can Hold Out’: Federal Workers Feel Brunt of Shutdown**\
-`As more than one million government employees go without pay, many are turning to side jobs and food banks to make ends meet.`\
-https://nytimes.com/2025/10/26/us/politics/federal-workers-shutdown-pay.html
 
