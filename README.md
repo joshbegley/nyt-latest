@@ -1,3 +1,7 @@
+**College Football Playoff bracket prediction: Welcome to the field, Vanderbilt**\
+`It was a chalky kind of week in college football, which led to some movement but no massive shake-ups in this updated CFP bracket.`\
+https://nytimes.com/athletic/6750336/2025/10/26/college-football-playoff-bracket-predictions-update/
+
 **Labubus Ate My Daughter**\
 `I thought our frenzied quest to find the trendy doll would teach my daughter a lesson. It did, just not the one I expected.`\
 https://nytimes.com/2025/10/26/opinion/labubu-parenting-consumerism.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6751005/2025/10/26/celtics-vs-pistons-stream-how-to
 **How to watch Nets vs. Spurs: Time, TV, streaming**\
 `Find out how to watch the Brooklyn Nets play the San Antonio Spurs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6751003/2025/10/26/nets-vs-spurs-stream-how-to-watch-oct-26/
-
-**A Spiritual Vibe Shift**\
-`We explore Americans’ changing attitudes toward religion.`\
-https://nytimes.com/2025/10/26/briefing/a-spiritual-vibe-shift.html
 
