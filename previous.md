@@ -1,3 +1,7 @@
+**Are Sunderland good?**\
+`The win away to Chelsea was far from a fluke: it was a culmination of all Regis Le Bris’ Sunderland have built.`\
+https://nytimes.com/athletic/6750099/2025/10/26/sunderland-premier-league-chelsea/
+
 **Chelsea need to play like they have a point to prove every week, not just in high-profile games**\
 `Chelsea have shown they do have the quality and ability to be a good side. But they also cannot be trusted yet to do it on a regular basis`\
 https://nytimes.com/athletic/6749970/2025/10/26/chelsea-maresca-sunderland-inconsistent/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/26/nyregion/bragg-trump-campaign.html
 **Arne Slot and Liverpool are running out of excuses**\
 `The Dutchman has pleaded mitigation for his Premier League champions. But is it justified?`\
 https://nytimes.com/athletic/6749753/2025/10/26/liverpool-arne-slot-excuses/
-
-**Utah deals Colorado its largest loss of the Deion Sanders era**\
-`Prior to Saturday, Sanders’ largest margin of defeat as Buffaloes coach was 42 points, in a 56-14 loss at Washington State in November 2023.`\
-https://nytimes.com/athletic/6750643/2025/10/26/utah-colorado-score-deion-sanders/
 
