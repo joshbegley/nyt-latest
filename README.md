@@ -1,3 +1,7 @@
+**Under Trump’s Aegis, Cambodia and Thailand Agree to Resolve Border Dispute**\
+`It remains unclear whether the two nations can achieve lasting peace, but that did not deter President Trump from brandishing himself as a peacemaker.`\
+https://nytimes.com/2025/10/26/world/asia/trump-cambodia-thailand.html
+
 **Arizona State's loss to Houston shows how vulnerable mistake-prone Sun Devils have become**\
 `Life in the Big 12 is a walk on the tight rope, leaning this way and that, trying to maintain balance. Saturday night, ASU slipped.`\
 https://nytimes.com/athletic/6750611/2025/10/26/arizona-state-sun-devils-houston-loss-big-12-mistakes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6750576/2025/10/26/michigan-state-jonathan-smith-fi
 **The shutout sommelier: Uncorking Panthers goalie Sergei Bobrovsky's postgame wine raffles**\
 `Unscrewing the cork on the two-time Stanley Cup-winning netminder's tradition, which was inspired by another legend's love of wine.`\
 https://nytimes.com/athletic/6713550/2025/10/26/florida-panthers-goalie-sergei-bobrovsky-wine/
-
-**Iowa dominates Minnesota in the most 'Iowa' way possible — and is now in the CFP discussion**\
-`Without a flashy passing game, Iowa’s style of play generates plenty of detractors. And that's perfectly fine with coach Kirk Ferentz. `\
-https://nytimes.com/athletic/6750391/2025/10/26/iowa-hawkeyes-minnesota-floyd-rosedale-playoff/
 
