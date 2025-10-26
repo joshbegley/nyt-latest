@@ -1,3 +1,7 @@
+**Falcons 'humbled' by floundering Dolphins in second straight dud of a loss**\
+`The Falcons have lost two straight games in ugly fashion since their impressive win over the Bills on "Monday Night Football."`\
+https://nytimes.com/athletic/6752143/2025/10/26/falcons-loss-dolphins-bijan-robinson-kirk-cousins/
+
 **Masterful Norris wins, Bearman impresses, disaster for Hamilton: Mexico City briefing**\
 `Lando Norris wins the Mexico City Grand Prix to regain the F1 drivers' championship lead, while Haas' Ollie Bearman has a day to remember`\
 https://nytimes.com/athletic/6751859/2025/10/26/mexico-city-grand-prix-briefing-norris-wins-bearman-impresses-disaster-for-hamilton/

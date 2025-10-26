@@ -1,3 +1,11 @@
+**Broncos star Pat Surtain II knocked out of game with shoulder injury**\
+`The reigning Defensive Player of the Year had to leave Sunday's game after injuring his left shoulder.`\
+https://nytimes.com/athletic/6752202/2025/10/26/pat-surtain-broncos-shoulder-injury-ruled-out/
+
+**Japan Deals With the Price of Playing to Trump: $550 Billion**\
+`A new prime minister must decide whether to maintain the previous administration’s deferential negotiating strategy that secured a contentious trade deal.`\
+https://nytimes.com/2025/10/26/business/japan-investment-trump-tariffs.html
+
 **Falcons 'humbled' by floundering Dolphins in second straight dud of a loss**\
 `The Falcons have lost two straight games in ugly fashion since their impressive win over the Bills on "Monday Night Football."`\
 https://nytimes.com/athletic/6752143/2025/10/26/falcons-loss-dolphins-bijan-robinson-kirk-cousins/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6751859/2025/10/26/mexico-city-grand-prix-briefing-
 **Dallas Goedert, George Kittle among those who star on 'National Tight Ends Day'**\
 `Goedert moved past Travis Kelce to take the lead with five career touchdowns on the holiday that began in 2018.`\
 https://nytimes.com/athletic/6752014/2025/10/26/dallas-goedert-george-kittle-national-tight-ends-day/
-
-**The Russia-Ukraine Energy War**\
-`Both sides are targeting energy assets to try to break the deadlock on the battlefield.`\
-https://nytimes.com/2025/10/26/world/russia-ukraine-energy-war-louvre-arrest.html
-
-**El Clasico ends in chaos: Why police were needed in Real Madrid 2 Barcelona 1**\
-`Real Madrid and Barcelona players clashed after the final whistle in Sunday's La Liga Clasico`\
-https://nytimes.com/athletic/6751502/2025/10/26/el-clasico-ends-in-chaos-why-police-were-needed-in-real-madrid-2-barcelona-1/
 

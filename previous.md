@@ -1,3 +1,7 @@
+**Falcons 'humbled' by floundering Dolphins in second straight dud of a loss**\
+`The Falcons have lost two straight games in ugly fashion since their impressive win over the Bills on "Monday Night Football."`\
+https://nytimes.com/athletic/6752143/2025/10/26/falcons-loss-dolphins-bijan-robinson-kirk-cousins/
+
 **Carol Davis, Raiders co-owner and wife of the late Al Davis, dies at 93**\
 `"Carol provided unbridled support and unparalleled guidance to the Davis family and the Raiders organization," the team said.`\
 https://nytimes.com/athletic/6752098/2025/10/26/carol-davis-raiders-death/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/26/world/russia-ukraine-energy-war-louvre-arrest.htm
 **El Clasico ends in chaos: Why police were needed in Real Madrid 2 Barcelona 1**\
 `Real Madrid and Barcelona players clashed after the final whistle in Sunday's La Liga Clasico`\
 https://nytimes.com/athletic/6751502/2025/10/26/el-clasico-ends-in-chaos-why-police-were-needed-in-real-madrid-2-barcelona-1/
-
-**Tyler Huntley solid in spot start vs. Bears as Ravens end skid: Takeaways**\
-`Journeyman QB completes 17 of 22 passes for 186 yards in place of injured Lamar Jackson.`\
-https://nytimes.com/athletic/6751523/2025/10/26/bears-ravens-score-result-takeaways-week-8/
 
