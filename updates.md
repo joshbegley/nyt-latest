@@ -1,3 +1,7 @@
+**Jamaica Braces for a Direct Hit by Hurricane Melissa**\
+`The fast developing storm was expected to bring “unprecedented” amounts of rain to several island countries.`\
+https://nytimes.com/video/weather/100000010482585/hurricane-melissa-jamaica-storm.html
+
 **Mermaid’s Milieu**\
 `Tarun Krishnamurthy’s third Times puzzle comes with more than a few complications.`\
 https://nytimes.com/2025/10/26/crosswords/daily-puzzle-2025-10-27.html

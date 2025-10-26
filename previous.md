@@ -1,3 +1,7 @@
+**Jamaica Braces for a Direct Hit by Hurricane Melissa**\
+`The fast developing storm was expected to bring “unprecedented” amounts of rain to several island countries.`\
+https://nytimes.com/video/weather/100000010482585/hurricane-melissa-jamaica-storm.html
+
 **Mermaid’s Milieu**\
 `Tarun Krishnamurthy’s third Times puzzle comes with more than a few complications.`\
 https://nytimes.com/2025/10/26/crosswords/daily-puzzle-2025-10-27.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/26/style/bette-midler-new-york-restoration-gardens.h
 **Jalen Hurts throws four TDs in Eagles win, while Giants' Cam Skattebo goes down**\
 `Hurts finished 15-for-20 with 179 yards and found three different teammates in the end zone.`\
 https://nytimes.com/athletic/6751698/2025/10/26/giants-eagles-score-result-takeaways-week-8/
-
-**Breece Hall leads explosive offense as Jets get first win of the season**\
-`Hall accounted for three touchdowns as the Jets had more than 500 yards of total offense in their comeback victory.`\
-https://nytimes.com/athletic/6751680/2025/10/26/jets-bengals-score-result-takeaways-week-8/
 
