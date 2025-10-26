@@ -1,3 +1,7 @@
+**Masterful Norris wins, Bearman impresses, disaster for Hamilton: Mexico City briefing**\
+`Lando Norris wins the Mexico City Grand Prix to regain the drivers' championship lead, while Haas' Ollie Bearman has a day to remember`\
+https://nytimes.com/athletic/6751859/2025/10/26/mexico-city-grand-prix-briefing-norris-wins-bearman-impresses-disaster-for-hamilton/
+
 **Dallas Goedert, George Kittle among those who star on 'National Tight Ends Day'**\
 `Goedert moved past Travis Kelce to take the lead with five career touchdowns on the holiday that began in 2018.`\
 https://nytimes.com/athletic/6752014/2025/10/26/dallas-goedert-george-kittle-national-tight-ends-day/

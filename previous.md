@@ -1,3 +1,7 @@
+**Masterful Norris wins, Bearman impresses, disaster for Hamilton: Mexico City briefing**\
+`Lando Norris wins the Mexico City Grand Prix to regain the drivers' championship lead, while Haas' Ollie Bearman has a day to remember`\
+https://nytimes.com/athletic/6751859/2025/10/26/mexico-city-grand-prix-briefing-norris-wins-bearman-impresses-disaster-for-hamilton/
+
 **Dallas Goedert, George Kittle among those who star on 'National Tight Ends Day'**\
 `Goedert moved past Travis Kelce to take the lead with five career touchdowns on the holiday that began in 2018.`\
 https://nytimes.com/athletic/6752014/2025/10/26/dallas-goedert-george-kittle-national-tight-ends-day/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6751680/2025/10/26/jets-bengals-score-result-takeaw
 **'MVP' chants for Drake Maye as Patriots rout Browns: Takeaways**\
 `New England improves to 6-2, its best start since the Belichick-Brady Patriots started 8-0 in 2019.`\
 https://nytimes.com/athletic/6751534/2025/10/26/browns-patriots-score-result-takeaways-week-8/
-
-**Dolphins-Falcons takeaways: Tua Tagovailoa dominates against listless Atlanta**\
-`The Dolphins QB bounced back after being benched last week, while Atlanta's Kirk Cousins struggled in place of Michael Penix Jr.`\
-https://nytimes.com/athletic/6744110/2025/10/26/dolphins-falcons-score-result-takeaways-week-8/
 
