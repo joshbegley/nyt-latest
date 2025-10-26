@@ -1,3 +1,11 @@
+**Newsom Says He Will Consider a 2028 Presidential Run After the Midterms**\
+`The California governor acknowledged in an interview Sunday on CBS that he would give the question serious thought after the 2026 elections.`\
+https://nytimes.com/2025/10/26/us/politics/gavin-newsom-2028-race.html
+
+**Pereira says Wolves fans should be 'proud' of team after altercation with home support**\
+`Both Pereira and striker Jorgen Strand Larsen approached fans after Burnley scored a stoppage-time winner at Molineux on Sunday.`\
+https://nytimes.com/athletic/6751467/2025/10/26/pereira-wolves-fans-angry/
+
 **Hurricane Melissa Could Be One of the Strongest Storms to Strike Jamaica**\
 `Direct landfalls from big hurricanes are rare for Jamaica. Melissa could pummel the island as an “upper-end” Category 4 hurricane, forecasters said.`\
 https://nytimes.com/2025/10/26/weather/jamaica-worst-storms-hurricane-melissa.html

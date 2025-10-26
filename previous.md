@@ -1,3 +1,11 @@
+**Newsom Says He Will Consider a 2028 Presidential Run After the Midterms**\
+`The California governor acknowledged in an interview Sunday on CBS that he would give the question serious thought after the 2026 elections.`\
+https://nytimes.com/2025/10/26/us/politics/gavin-newsom-2028-race.html
+
+**Pereira says Wolves fans should be 'proud' of team after altercation with home support**\
+`Both Pereira and striker Jorgen Strand Larsen approached fans after Burnley scored a stoppage-time winner at Molineux on Sunday.`\
+https://nytimes.com/athletic/6751467/2025/10/26/pereira-wolves-fans-angry/
+
 **Hurricane Melissa Could Be One of the Strongest Storms to Strike Jamaica**\
 `Direct landfalls from big hurricanes are rare for Jamaica. Melissa could pummel the island as an “upper-end” Category 4 hurricane, forecasters said.`\
 https://nytimes.com/2025/10/26/weather/jamaica-worst-storms-hurricane-melissa.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6751350/2025/10/26/penguins-rickard-rakell-injury-v
 **A Big Department Store Pivots to a Catalog**\
 `With a 100-page gift guide, Nordstrom wants to find customers where they are — at home.`\
 https://nytimes.com/2025/10/26/style/nordstrom-catalog.html
-
-**Nick Mangold, former All-Pro center for the Jets, dies at 41**\
-`Less than two weeks ago, Mangold publicly announced he needed a kidney transplant and asked for help finding a donor.`\
-https://nytimes.com/athletic/6751296/2025/10/26/nick-mangold-jets-obituary-kidney-disease/
-
-**Egypt Aids Search for Bodies of Dead Captives in Gaza**\
-`The assistance is part of an international effort to reinforce the fragile cease-fire between Israel and Hamas.`\
-https://nytimes.com/2025/10/26/world/middleeast/egypt-gaza-captives-bodies-search.html
 
