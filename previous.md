@@ -1,3 +1,23 @@
+**Brian Kelly, LSU in standoff over staff changes amid slump: Sources**\
+`Kelly left the football facility, as did pretty much everyone else on the LSU staff, as they awaited resolution.`\
+https://nytimes.com/athletic/6752139/2025/10/26/brian-kelly-lsu-scott-woodward/
+
+**For Caleb Williams and the Bears offense, ill-timed sloppiness remains the constant**\
+`A day full of struggle left the Chicago Bears offense with a sobering reality check. Their rut may be deeper than they realized.`\
+https://nytimes.com/athletic/6752191/2025/10/26/bears-caleb-williams-offense-sloppy-ravens/
+
+**Jets’ Fourth-Quarter Comeback Secures First Win of the Season**\
+`Behind 502 yards of offense, the New York Jets scored a season-high 39 points to pull off a shocking road comeback against the Cincinnati Bengals and earn their first victory.`\
+https://nytimes.com/video/the-athletic/100000010482690/jets-fourth-quarter-comeback-secures-first-win-of-the-season.html
+
+**Buccaneers-Saints takeaways: Tampa Bay nabs 4 takeaways, New Orleans makes QB change**\
+`New Orleans benched Spencer Rattler in the third quarter.`\
+https://nytimes.com/athletic/6752183/2025/10/26/buccaneers-saints-takeaways-tampa-bay-nabs-4-takeaways/
+
+**We’ve seen enough: The 49ers desperately need to trade for a pass rusher ... or two**\
+`Only one team, the Jacksonville Jaguars, has fewer sacks than the 49ers this season. The Jaguars have also played one fewer game.`\
+https://nytimes.com/athletic/6752167/2025/10/26/49ers-texans-nfl-trade-deadline/
+
 **No takeaways, too many penalties add up to gloomy Bears loss in Baltimore**\
 `The math is simple. Through seven games, when the Bears get more than one takeaway, they are 4-0. When they get one or zero, they're 0-3.`\
 https://nytimes.com/athletic/6752092/2025/10/26/bears-ravens-loss-penalties-greenberg/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6752143/2025/10/26/falcons-loss-dolphins-bijan-robi
 **Carol Davis, Raiders co-owner and wife of the late Al Davis, dies at 93**\
 `"Carol provided unbridled support and unparalleled guidance to the Davis family and the Raiders organization," the team said.`\
 https://nytimes.com/athletic/6752098/2025/10/26/carol-davis-raiders-death/
-
-**Inadvertent whistle takes Buccaneers touchdown off the board vs. Saints**\
-`Antoine Winfield Jr. was denied a defensive touchdown when the officials mistakingly whistled the play dead.`\
-https://nytimes.com/athletic/6752079/2025/10/26/buccaneers-saints-inadvertent-whistle-touchdown-negated/
-
-**Is it over for the tush push? Are the Jets turning a corner? Our experts' Week 8 takeaways**\
-`Also: How high is the ceiling for Drake Maye and the Patriots? Does Kirk Cousins have anything left? Do the Ravens have life?`\
-https://nytimes.com/athletic/6751179/2025/10/26/nfl-takeaways-week-8-scores-results/
-
-**Jamaica Braces for a Direct Hit by Hurricane Melissa**\
-`The fast developing storm was expected to bring “unprecedented” amounts of rain to several island countries.`\
-https://nytimes.com/video/weather/100000010482585/hurricane-melissa-jamaica-storm.html
-
-**Mermaid’s Milieu**\
-`Tarun Krishnamurthy’s third Times puzzle comes with more than a few complications.`\
-https://nytimes.com/2025/10/26/crosswords/daily-puzzle-2025-10-27.html
-
-**Masterful Norris wins, Bearman impresses, disaster for Hamilton: Mexico City briefing**\
-`Lando Norris wins the Mexico City Grand Prix to regain the F1 drivers' championship lead, while Haas' Ollie Bearman has a day to remember`\
-https://nytimes.com/athletic/6751859/2025/10/26/mexico-city-grand-prix-briefing-norris-wins-bearman-impresses-disaster-for-hamilton/
 
