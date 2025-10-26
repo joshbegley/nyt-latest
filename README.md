@@ -1,3 +1,7 @@
+**Bayern confirm Boateng will not return for coaching internship after protests**\
+`The former Germany international was found guilty of domestic violence against his ex-girlfriend in 2021.`\
+https://nytimes.com/athletic/6749875/2025/10/26/jerome-boateng-bayern-munich-protests/
+
 **The New York Times From a New Point of View**\
 `As the newspaper dabbled in virtual reality, subscribers were given a tool to see the experiment come to life.`\
 https://nytimes.com/2025/10/26/insider/google-cardboard.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6750643/2025/10/26/utah-colorado-score-deion-sander
 **Three managers in a season sounds chaotic. Can it work?**\
 `Sean Dyche is the third person to take charge of Nottingham Forest and it is still October. What does history tell us about such churn?`\
 https://nytimes.com/athletic/6740383/2025/10/26/sean-dyche-three-managers-one-season/
-
-**Sheffield Wednesday's day of defiance: 'It's been soul-destroying... but at least we have a club'**\
-`Administration almost certainly means relegation but Wednesday's fans are just grateful their future is looking brighter`\
-https://nytimes.com/athletic/6749687/2025/10/26/sheffield-wednesdays-day-of-defiance-its-been-soul-destroying-but-at-least-we-have-a-club/
 
