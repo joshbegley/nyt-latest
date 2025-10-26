@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6750267/2025/10/25/senators-linus-ullmark-goalie-fi
 `\
 https://nytimes.com/athletic/6750267/2025/10/25/senators-linus-ullmark-goalie-fight-capitals/
 
+**Senators goalie Linus Ullmark leaves crease, enters scrum at other end of the ice**\
+`Ullmark was penalized for goaltender participation beyond center ice after skating the length of the ice to join a scrum vs. Washington.
+`\
+https://nytimes.com/athletic/6750267/2025/10/25/senators-linus-ullmark-goalie-fight-capitals/
+
 **Texas A&M routs LSU in Death Valley, an all-systems failure for Brian Kelly**\
 `It was Texas A&M’s first win in Baton Rouge since 1994. They had not won in six tries at Tiger Stadium since joining the SEC in 2012.`\
 https://nytimes.com/athletic/6750385/2025/10/25/lsu-texas-am-score-result/
