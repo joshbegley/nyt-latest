@@ -1,3 +1,27 @@
+**WATCH: How the Bears have improved their run game**\
+`Over the first month of the season, the Chicago Bears fielded one of the worst rushing attacks in the league.`\
+https://nytimes.com/athletic/6747995/2025/10/26/chicago-bears-run-game-video-analysis/
+
+**Lowetide: Roby Jarventie is NHL-ready but do the Oilers have room?**\
+`So far this season, Jarventie is easily the best player on the AHL Bakersfield Condors.`\
+https://nytimes.com/athletic/6749507/2025/10/26/roby-jarventie-oilers-ahl-prospect/
+
+**Mandel's Final Thoughts: Will Brian Kelly's $53M buyout be enough for LSU to keep him?**\
+`While three top-10 SEC teams won in dramatic fashion, Texas A&M had no trouble against flailing LSU. Here's what to know about Week 9.`\
+https://nytimes.com/athletic/6750701/2025/10/26/college-football-scores-results-week-9/
+
+**Behind freshman QB Bear Bachmeier, BYU climbs to 8-0: 'We just go win'**\
+`“We keep asking him to do more, and he keeps doing it,” BYU coach Kalani Sitake said of QB Bear Bachmeier.`\
+https://nytimes.com/athletic/6750569/2025/10/26/byu-football-bear-bachmeier-iowa-state/
+
+**Michigan-MSU final thoughts: It's time to retire some recent rivalry narratives**\
+`Jim Harbaugh, Mark Dantonio and Mel Tucker are long gone from the sidelines, and this rivalry is no longer the toxic mess it was in 2022.`\
+https://nytimes.com/athletic/6750677/2025/10/26/michigan-msu-rivalry-final-thoughts/
+
+**While it's still early, these Sixers show spark of hope, resilience with 2-0 start**\
+`On a night when the entire team celebrated with Quentin Grimes when he hit the deciding shot, a few things became clear about the Sixers.`\
+https://nytimes.com/athletic/6750478/2025/10/26/philadelphia-76ers-embiid-drummond/
+
 **Under Trump’s Aegis, Cambodia and Thailand Agree to Resolve Border Dispute**\
 `It remains unclear whether the two nations can achieve lasting peace, but that did not deter President Trump from brandishing himself as a peacemaker.`\
 https://nytimes.com/2025/10/26/world/asia/trump-cambodia-thailand.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6750630/2025/10/26/dodgers-blue-jays-max-scherzer-g
 **Yoshinobu Yamamoto adds latest chapter to his postseason legend: 'Just not normal'**\
 `Yamamoto became the first pitcher since Curt Schilling in 2001 to throw a complete game in back-to-back postseason starts.`\
 https://nytimes.com/athletic/6750612/2025/10/26/dodgers-yoshinobu-yamamoto-mlb-world-series/
-
-**Wardley stuns Parker in heavyweight upset - is Usyk next?**\
-`Wardley is now in line for a shot at all the heavyweight belts with a match-up against Usyk, but boxing is never quite as clear cut.`\
-https://nytimes.com/athletic/6750884/2025/10/26/wardley-parker-heavyweight-fight-usyk/
-
-**Sudanese Paramilitaries Claim Control of Key Army Garrison in Darfur**\
-`The Rapid Support Forces said it had seized the army headquarters in El Fasher, its last major obstacle to controlling the sprawling western region of Sudan.`\
-https://nytimes.com/2025/10/26/world/africa/sudan-army-base.html
-
-**After Texas A&M finally tamed LSU in Death Valley, it's time to believe in the Aggies**\
-`“We have bigger aspirations for where we can go than anybody else,” Mike Elko said. “As we win, I think other people will catch up.”`\
-https://nytimes.com/athletic/6750626/2025/10/26/texas-am-lsu-score-result-contenders/
-
-**Brian Kelly sounded like a coach out of answers — he may soon be out of time**\
-`Kelly has failed in the biggest games at LSU. He’s just 5-11 against ranked opponents during his three-plus seasons. `\
-https://nytimes.com/athletic/6750627/2025/10/26/brian-kelly-hot-seat-lsu-coach/
-
-**Michigan State’s Jonathan Smith era is just starting, and probably soon ending**\
-`The head football coach at Michigan State has to be dynamic, a difference maker. This one isn’t.`\
-https://nytimes.com/athletic/6750576/2025/10/26/michigan-state-jonathan-smith-firing/
-
-**The shutout sommelier: Uncorking Panthers goalie Sergei Bobrovsky's postgame wine raffles**\
-`Unscrewing the cork on the two-time Stanley Cup-winning netminder's tradition, which was inspired by another legend's love of wine.`\
-https://nytimes.com/athletic/6713550/2025/10/26/florida-panthers-goalie-sergei-bobrovsky-wine/
 
