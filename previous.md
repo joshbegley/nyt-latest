@@ -1,3 +1,7 @@
+**Dodgers-Blue Jays Game 2 takeaways: Los Angeles uses battery power to tie World Series**\
+`Will Smith added a homer and three RBIs, while Yoshinobu Yamamoto threw his second complete game of the postseason. `\
+https://nytimes.com/athletic/6750194/2025/10/25/dodgers-blue-jays-world-series-game-2-results-takeaways-mlb/
+
 **Sabres thoughts: Ukko-Pekka Luukkonen's missed opportunity in overtime loss to Leafs**\
 `Luukkonen couldn't come up with the saves that mattered to help his team in a 4-3 loss to Toronto.`\
 https://nytimes.com/athletic/6750339/2025/10/25/sabres-maple-leafs-ukko-pekka-luukkonen/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6749945/2025/10/25/rangers-brennan-othmann-trade-ru
 **Arch Manning leads Texas in huge comeback but exits in OT with injury**\
 `Texas quarterback Arch Manning was injured in overtime after leading the Longhorns back from down 17 in a win at Mississippi State.`\
 https://nytimes.com/athletic/6750108/2025/10/25/texas-mississippi-state-arch-manning-injury-sarkisian/
-
-**Warning signs still flashing after Bruins snap 6-game losing streak**\
-`Saturday’s victory over the Avalanche was not a turning point. But it could be a first step out of the darkness.`\
-https://nytimes.com/athletic/6750096/2025/10/25/bruins-avalanche-morgan-geekie-losing-streak/
 
