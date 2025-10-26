@@ -1,3 +1,8 @@
+**Senators goalie Linus Ullmark leaves crease, enters scrum at other end of the ice**\
+`Ullmark was penalized for goaltender participation beyond center ice after skating the length of the ice to join a scrum vs. Washington.
+`\
+https://nytimes.com/athletic/6750267/2025/10/25/senators-linus-ullmark-goalie-fight-capitals/
+
 **Dodgers-Blue Jays Game 2 takeaways: Los Angeles uses battery power to tie World Series**\
 `Will Smith added a homer and three RBIs, while Yoshinobu Yamamoto threw his second complete game of the postseason. `\
 https://nytimes.com/athletic/6750194/2025/10/25/dodgers-blue-jays-world-series-game-2-results-takeaways-mlb/
