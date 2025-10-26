@@ -1,3 +1,11 @@
+**How to watch Celtics vs. Pistons: Time, TV, streaming**\
+`Find out how to watch the Boston Celtics play the Detroit Pistons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6751005/2025/10/26/celtics-vs-pistons-stream-how-to-watch-oct-26/
+
+**How to watch Nets vs. Spurs: Time, TV, streaming**\
+`Find out how to watch the Brooklyn Nets play the San Antonio Spurs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6751003/2025/10/26/nets-vs-spurs-stream-how-to-watch-oct-26/
+
 **A Spiritual Vibe Shift**\
 `We explore Americans’ changing attitudes toward religion.`\
 https://nytimes.com/2025/10/26/briefing/a-spiritual-vibe-shift.html

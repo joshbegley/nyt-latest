@@ -1,3 +1,11 @@
+**The Working Class Has Shifted Left on ‘Virtually Everything’**\
+`Jared Abbott, the director of the Center for Working-Class Politics, explains why working-class voters feel a “representation gap” from the Democratic Party despite shifting left on most issues over the last few decades.`\
+https://nytimes.com/video/opinion/100000010472169/the-working-class-has-shifted-left-on-virtually-everything.html
+
+**Could there be more to college football's 'shirtless dudes' trend than meets the eye?**\
+`There's something wholesome about this movement, despite the partial nudity.`\
+https://nytimes.com/athletic/6750394/2025/10/26/college-football-shirtless-trend-male-loneliness/
+
 **How to watch Celtics vs. Pistons: Time, TV, streaming**\
 `Find out how to watch the Boston Celtics play the Detroit Pistons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6751005/2025/10/26/celtics-vs-pistons-stream-how-to-watch-oct-26/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6747995/2025/10/26/chicago-bears-run-game-video-ana
 **Lowetide: Roby Jarventie is NHL-ready but do the Oilers have room?**\
 `So far this season, Jarventie is easily the best player on the AHL Bakersfield Condors.`\
 https://nytimes.com/athletic/6749507/2025/10/26/roby-jarventie-oilers-ahl-prospect/
-
-**Mandel's Final Thoughts: Will Brian Kelly's $53M buyout be enough for LSU to keep him?**\
-`While three top-10 SEC teams won in dramatic fashion, Texas A&M had no trouble against flailing LSU. Here's what to know about Week 9.`\
-https://nytimes.com/athletic/6750701/2025/10/26/college-football-scores-results-week-9/
-
-**Behind freshman QB Bear Bachmeier, BYU climbs to 8-0: 'We just go win'**\
-`“We keep asking him to do more, and he keeps doing it,” BYU coach Kalani Sitake said of QB Bear Bachmeier.`\
-https://nytimes.com/athletic/6750569/2025/10/26/byu-football-bear-bachmeier-iowa-state/
 
