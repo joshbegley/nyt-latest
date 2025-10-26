@@ -1,13 +1,5 @@
-**Warning signs still flashing after Bruins snap 6-game losing streak**\
-`Saturday’s victory over the Avalanche was not a turning point. But it could be a first step out of the darkness.`\
-https://nytimes.com/athletic/6750096/2025/10/25/bruins-avalanche-morgan-geekie-losing-streak/
-
-**Lane Kiffin chirps Oklahoma player after win: 'You're quieter now'**\
-`"(Oklahoma's David Stone) yelled at me during the game like five times (about) how great they were and we can't score on them," Kiffin said.`\
-https://nytimes.com/athletic/6750060/2025/10/25/lane-kiffin-ole-miss-oklahoma-player-comment-exchange/
-
 **Alabama escapes South Carolina to remain a top SEC, CFP contender**\
-`Alabama’s 29-22 road win follows a stretch of four victories over ranked opponents in consecutive weeks. The Tide have won seven straight.`\
+`Alabama’s road triumph follows a stretch of four victories over ranked opponents in four consecutive weeks.`\
 https://nytimes.com/athletic/6750109/2025/10/25/alabama-south-carolina-score-result/
 
 **Trevor Zegras offering hope that Flyers' low-risk bet on him could pay off**\
@@ -37,4 +29,12 @@ https://nytimes.com/live/2025/10/25/us/trump-asia-news
 **The ‘Sleeper Issue’ at the Heart of Trump’s Trade War**\
 `Concern is increasing throughout Southeast Asia as U.S. officials, intent on slowing China, have yet to say how they will define the origin country of imports.`\
 https://nytimes.com/2025/10/25/business/trump-tariffs-southeast-asia-transshipment.html
+
+**Where ‘The Daily’ Gets Its Music**\
+`A conversation with the composers who give the show its signature sound.`\
+https://nytimes.com/2025/10/25/podcasts/the-daily/music-composers.html
+
+**In Trump, Families of Cambodian Troops Detained by Thailand See Hope**\
+`They are expecting President Trump will do for their loved ones what he did for the hostages held by Hamas: set in motion a plan that leads to their release.`\
+https://nytimes.com/2025/10/25/world/asia/trump-cambodia-thailand-peace.html
 
