@@ -1,3 +1,11 @@
+**Anthony Richardson has surgery, hopes to return to Colts this season**\
+`Richardson, the No. 4 pick in the 2023 NFL Draft, lost a duel with Daniel Jones during training camp for the Colts’ starting QB spot.`\
+https://nytimes.com/athletic/6751396/2025/10/26/anthony-richardson-surgery-orbital-fracture-colts/
+
+**How Mickey Mantle and George W. Bush ended up on Derek Jeter's 2007 Topps card**\
+`The most talked-about baseball card of early 2007 included a couple of surprise cameos. `\
+https://nytimes.com/athletic/6751368/2025/10/26/derek-jeter-mickey-mantle-george-bush-topps/
+
 **Newsom Says He Will Consider a 2028 Presidential Run After the Midterms**\
 `The California governor acknowledged in an interview Sunday on CBS that he would give the question serious thought after the 2026 elections.`\
 https://nytimes.com/2025/10/26/us/politics/gavin-newsom-2028-race.html
