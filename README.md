@@ -1,3 +1,7 @@
+**Utah deals Colorado its largest loss of the Deion Sanders era**\
+`Prior to tonight, Sanders’ largest margin of defeat as Buffaloes coach was 42 points, in a 56-14 loss at Washington State in November 2023.`\
+https://nytimes.com/athletic/6750643/2025/10/26/utah-colorado-score-deion-sanders/
+
 **Three managers in a season sounds chaotic. Can it work?**\
 `Sean Dyche is the third person to take charge of Nottingham Forest and it is still October. What does history tell us about such churn?`\
 https://nytimes.com/athletic/6740383/2025/10/26/sean-dyche-three-managers-one-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5972766/2025/10/26/manchester-united-look-good-thei
 **What El Clasico really means: 'You love something so much, and hate it in equal measure'**\
 `Before the rivals meet on Sunday, voices across Spanish football's great divide share their views on what makes this fixture unique`\
 https://nytimes.com/athletic/6746750/2025/10/26/what-el-clasico-really-means/
-
-**The five stages of Lamine Yamal: Lessons from watching him grow at Barcelona**\
-`From record-breaking 15-year-old debutant to Ballon d'Or contender. This is our story of following Lamine Yamal`\
-https://nytimes.com/athletic/6651927/2025/10/26/lamine-yamal-barcelona-clasico-real-madrid/
 
