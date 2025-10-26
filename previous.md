@@ -1,3 +1,7 @@
+**Red-hot Logan Cooley lights up Wild during ugly start to 6-game homestand: Takeaways**\
+`The former University of Minnesota star scored two goals and three points in Utah's 6-2 win over the Wild on Saturday.`\
+https://nytimes.com/athletic/6750179/2025/10/25/wild-mammoth-logan-cooley-takeaways/
+
 **Manfred defends sports gambling partnerships because they provide 'crucial' data**\
 `In an environment where sports betting exists, Manfred said, MLB needs to partner with legal companies for the data they provide.`\
 https://nytimes.com/athletic/6750304/2025/10/25/mlb-commissioner-manfred-sports-betting-partnerships/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6560541/2025/10/25/college-football-playoff-bracket
 **Lane Kiffin chirps Oklahoma player after win: 'You're quieter now'**\
 `"(Oklahoma's David Stone) yelled at me during the game like five times (about) how great they were and we can't score on them," Kiffin said.`\
 https://nytimes.com/athletic/6750060/2025/10/25/lane-kiffin-ole-miss-oklahoma-player-comment-exchange/
-
-**Alabama escapes South Carolina to remain a top SEC, CFP contender**\
-`Alabama’s 29-22 road win follows a stretch of four victories over ranked opponents in consecutive weeks. The Tide have won seven straight.`\
-https://nytimes.com/athletic/6750109/2025/10/25/alabama-south-carolina-score-result/
 
