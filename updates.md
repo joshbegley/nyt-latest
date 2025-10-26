@@ -1,3 +1,16 @@
+**Caribbean Braces for Hurricane Melissa**\
+`A fast developing storm was expected to bring “unprecedented” amounts of rain to several countries, meteorologists said.`\
+https://nytimes.com/2025/10/26/us/politics/caribbean-braces-for-hurricane-melissa.html
+
+**Putin Says Russia Now Has Nuclear-Powered Missile**\
+`Because of its power source, the Burevestnik can remain airborne far longer than other nuclear-armed missiles.`\
+https://nytimes.com/2025/10/26/world/europe/russia-burevestnik-missile.html
+
+**Capitals fire assistant coach Mitch Love following season-long suspension**\
+`The Capitals fired assistant coach Mitch Love on Sunday afternoon after the NHL suspended him for the 2025-26 season.
+`\
+https://nytimes.com/athletic/6751470/2025/10/26/capitals-fire-mitch-love/
+
 **Capitals fire assistant coach Mitch Love following season-long suspension**\
 `The Capitals fired assistant coach Mitch Love on Sunday afternoon after the NHL suspended him for the 2025-26 season.
 `\

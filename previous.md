@@ -1,3 +1,11 @@
+**Caribbean Braces for Hurricane Melissa**\
+`A fast developing storm was expected to bring “unprecedented” amounts of rain to several countries, meteorologists said.`\
+https://nytimes.com/2025/10/26/us/politics/caribbean-braces-for-hurricane-melissa.html
+
+**Putin Says Russia Now Has Nuclear-Powered Missile**\
+`Because of its power source, the Burevestnik can remain airborne far longer than other nuclear-armed missiles.`\
+https://nytimes.com/2025/10/26/world/europe/russia-burevestnik-missile.html
+
 **Why Bruno Guimaraes is scoring goals again**\
 `In a post-Alexander Isak world, Newcastle's offensive structure is evolving and Guimaraes' contributions are proving invaluable`\
 https://nytimes.com/athletic/6742860/2025/10/26/bruno-guimaraes-goals-newcastle/
@@ -30,12 +38,4 @@ https://nytimes.com/2025/10/26/us/politics/canada-tariffs-trump-carney.html
 **Sid Davis, Reporter Who Witnessed Johnson’s Swearing-In, Dies at 97**\
 `A veteran journalist, he covered the assassination of President John F. Kennedy and provided the pool report on the ceremony aboard Air Force One.`\
 https://nytimes.com/2025/10/26/obituaries/sid-davis-dead.html
-
-**Food Banks Brace for Overwhelming Demand as SNAP Cutoff Looms**\
-`Growing need and decreased resources are squeezing the charitable food system beyond its capacity, leaders say.`\
-https://nytimes.com/2025/10/26/us/food-banks-snap-shutdown-hunger-trump.html
-
-**Quick forward progress whistle negates Jalen Hurts' tush push fumble**\
-`Fox rules analyst Dean Blandino said, "To me, he is pushing forward, he is reaching. That is an early whistle, in my opinion."`\
-https://nytimes.com/athletic/6751506/2025/10/26/eagles-tush-push-fumble-forward-progress/
 
