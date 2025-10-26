@@ -1,3 +1,7 @@
+**Brighton’s biggest worry was scoring goals. Now they can’t stop conceding them**\
+`After giving United ‘four gifts’, Brighton have now only kept one clean sheet in their last 21 league outings. It is a worrying statistic`\
+https://nytimes.com/athletic/6749284/2025/10/26/brighton-manchester-united-premier-league-analysis/
+
 **Chelsea need to play like they have a point to prove every week, not just in high-profile games**\
 `Maresca’s team have shown they do have the quality and ability. But they also cannot be trusted yet to do it on a regular basis`\
 https://nytimes.com/athletic/6749970/2025/10/26/chelsea-maresca-sunderland-inconsistent/
