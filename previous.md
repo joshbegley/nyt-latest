@@ -1,3 +1,11 @@
+**Wardley stuns Parker in heavyweight upset - is Usyk next?**\
+`Wardley is now in line for a shot at all the heavyweight belts with a match-up against Usyk, but boxing is never quite as clear cut.`\
+https://nytimes.com/athletic/6750884/2025/10/26/wardley-parker-heavyweight-fight-usyk/
+
+**Sudanese Paramilitaries Claim Control of Key Army Garrison in Darfur**\
+`The Rapid Support Forces said it had seized the army headquarters in El Fasher, its last major obstacle to controlling the sprawling western region of Sudan.`\
+https://nytimes.com/2025/10/26/world/africa/sudan-army-base.html
+
 **After Texas A&M finally tamed LSU in Death Valley, it's time to believe in the Aggies**\
 `“We have bigger aspirations for where we can go than anybody else,” Mike Elko said. “As we win, I think other people will catch up.”`\
 https://nytimes.com/athletic/6750626/2025/10/26/texas-am-lsu-score-result-contenders/
@@ -23,18 +31,10 @@ https://nytimes.com/athletic/6750391/2025/10/26/iowa-hawkeyes-minnesota-floyd-ro
 https://nytimes.com/2025/10/26/business/china-us-trade.html
 
 **This college football season, everyone's a Playoff contender — except for the teams we expected**\
-`LSU's Playoff hopes are extinguished, but unexpected seasons from Houston, Virginia and Cincinnati fuel a wide-open Playoff race.`\
+`LSU's Playoff hopes are extinguished, but unexpected seasons from Vandy, Houston, Virginia and Cincinnati fuel a wide-open Playoff race.`\
 https://nytimes.com/athletic/6750748/2025/10/26/college-football-playoff-race-after-week-9/
 
 **World Series Game 2 Weird & Wild: Dodgers' quest to repeat is more historic than you think**\
 `After their Game 2 win, the Dodgers are close enough to taste it. They’re just not quite close enough to fully comprehend it.`\
 https://nytimes.com/athletic/6750795/2025/10/26/dodgers-repeat-world-series-championships-game-2/
-
-**Forget what you knew about Vanderbilt. Saturday showed times have changed**\
-`Vanderbilt welcomed "College GameDay" to campus and won a top-15 matchup for the first time. Do you believe in the 7-1 Commodores yet?`\
-https://nytimes.com/athletic/6750357/2025/10/26/vanderbilt-win-missouri-sec-playoff-college-gameday/
-
-**In a star-studded Dodgers lineup, 'silent assassin' Will Smith quietly gets the job done**\
-`Smith, the 32nd pick in the 2016 draft, has provided almost three times as much value as any other first-rounder in his class.`\
-https://nytimes.com/athletic/6750641/2025/10/26/will-smith-dodgers-world-series/
 

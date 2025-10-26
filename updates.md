@@ -1,3 +1,15 @@
+**Wardley stuns Parker in heavyweight upset - is Usyk next?**\
+`Wardley is now in line for a shot at all the heavyweight belts with a match-up against Usyk, but boxing is never quite as clear cut.`\
+https://nytimes.com/athletic/6750884/2025/10/26/wardley-parker-heavyweight-fight-usyk/
+
+**Sudanese Paramilitaries Claim Control of Key Army Garrison in Darfur**\
+`The Rapid Support Forces said it had seized the army headquarters in El Fasher, its last major obstacle to controlling the sprawling western region of Sudan.`\
+https://nytimes.com/2025/10/26/world/africa/sudan-army-base.html
+
+**This college football season, everyone's a Playoff contender — except for the teams we expected**\
+`LSU's Playoff hopes are extinguished, but unexpected seasons from Vandy, Houston, Virginia and Cincinnati fuel a wide-open Playoff race.`\
+https://nytimes.com/athletic/6750748/2025/10/26/college-football-playoff-race-after-week-9/
+
 **After Texas A&M finally tamed LSU in Death Valley, it's time to believe in the Aggies**\
 `“We have bigger aspirations for where we can go than anybody else,” Mike Elko said. “As we win, I think other people will catch up.”`\
 https://nytimes.com/athletic/6750626/2025/10/26/texas-am-lsu-score-result-contenders/
