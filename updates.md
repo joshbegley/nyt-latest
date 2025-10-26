@@ -1,3 +1,7 @@
+**Masterful Norris wins, Bearman impresses, disaster for Hamilton: Mexico City briefing**\
+`Lando Norris wins the Mexico City Grand Prix to regain the F1 drivers' championship lead, while Haas' Ollie Bearman has a day to remember`\
+https://nytimes.com/athletic/6751859/2025/10/26/mexico-city-grand-prix-briefing-norris-wins-bearman-impresses-disaster-for-hamilton/
+
 **Carol Davis, Raiders co-owner and wife of the late Al Davis, dies at 93**\
 `"Carol provided unbridled support and unparalleled guidance to the Davis family and the Raiders organization," the team said.`\
 https://nytimes.com/athletic/6752098/2025/10/26/carol-davis-raiders-death/
