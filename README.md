@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6751616/2025/10/26/oilers-vs-canucks-stream-how-to-
 `Find out how to watch the Los Angeles Lakers play the Sacramento Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6751614/2025/10/26/lakers-vs-kings-stream-how-to-watch-oct-26/
 
-**Giants RB Cam Skattebo ruled out vs. Eagles after first half ankle injury**\
+**Giants RB Cam Skattebo ruled out vs. Eagles after dislocating ankle**\
 `As Skattebo lay on the ground, Giants teammates were seen taking a knee in an emotional moment.`\
 https://nytimes.com/athletic/6751532/2025/10/26/cam-skattebo-ankle-injury-carted-off-giants/
 
