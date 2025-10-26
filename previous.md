@@ -1,3 +1,11 @@
+**Labubus Ate My Daughter**\
+`I thought our frenzied quest to find the trendy doll would teach my daughter a lesson. It did, just not the one I expected.`\
+https://nytimes.com/2025/10/26/opinion/labubu-parenting-consumerism.html
+
+**Stop Blaming Boomers, and Do Something**\
+`Sampling the outpouring of responses to an Opinion video about the boomers and their successors. Also: The Democrats’ message.`\
+https://nytimes.com/2025/10/26/opinion/boomers-gen-z-millennials.html
+
 **Until Saturday: Eight first-time Playoff teams?**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6751026/2025/10/26/college-football-playoff-new-teams-until-saturday/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6751003/2025/10/26/nets-vs-spurs-stream-how-to-watc
 **A Spiritual Vibe Shift**\
 `We explore Americans’ changing attitudes toward religion.`\
 https://nytimes.com/2025/10/26/briefing/a-spiritual-vibe-shift.html
-
-**NFL Week 8 top storylines: Aaron Rodgers vs. Packers, Giants-Eagles rematch**\
-`Also: Will the Ravens or Texans get much-needed wins? How will Jets QB Justin Fields fare vs. the Bengals after Woody Johnson's comments?`\
-https://nytimes.com/athletic/6744221/2025/10/26/nfl-week-8-aaron-rodgers-packers-jets-drama/
-
-**Halloween Season Is Here. Bring on the Horror.**\
-`Why are scary movies doing so well right now?`\
-https://nytimes.com/2025/10/26/us/halloween-season-is-here-bring-on-the-horror.html
 

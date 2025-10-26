@@ -1,3 +1,11 @@
+**Labubus Ate My Daughter**\
+`I thought our frenzied quest to find the trendy doll would teach my daughter a lesson. It did, just not the one I expected.`\
+https://nytimes.com/2025/10/26/opinion/labubu-parenting-consumerism.html
+
+**Stop Blaming Boomers, and Do Something**\
+`Sampling the outpouring of responses to an Opinion video about the boomers and their successors. Also: The Democrats’ message.`\
+https://nytimes.com/2025/10/26/opinion/boomers-gen-z-millennials.html
+
 **Until Saturday: Eight first-time Playoff teams?**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6751026/2025/10/26/college-football-playoff-new-teams-until-saturday/
