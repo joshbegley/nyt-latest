@@ -1,3 +1,7 @@
+**Carol Davis, Raiders co-owner and wife of the late Al Davis, dies at 93**\
+`"Carol provided unbridled support and unparalleled guidance to the Davis family and the Raiders organization," the team said.`\
+https://nytimes.com/athletic/6752098/2025/10/26/carol-davis-raiders-death/
+
 **Inadvertent whistle takes Buccaneers touchdown off the board vs. Saints**\
 `Antoine Winfield Jr. was denied a defensive touchdown when the officials mistakingly whistled the play dead.`\
 https://nytimes.com/athletic/6752079/2025/10/26/buccaneers-saints-inadvertent-whistle-touchdown-negated/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6751502/2025/10/26/el-clasico-ends-in-chaos-why-pol
 **Tyler Huntley solid in spot start vs. Bears as Ravens end skid: Takeaways**\
 `Journeyman QB completes 17 of 22 passes for 186 yards in place of injured Lamar Jackson.`\
 https://nytimes.com/athletic/6751523/2025/10/26/bears-ravens-score-result-takeaways-week-8/
-
-**Texans-49ers takeaways: Houston's offense bounces back at home**\
-`Key takeaways from the Houston Texans' 26-15 win over the San Francisco 49ers on Sunday.`\
-https://nytimes.com/athletic/6751753/2025/10/26/49ers-texans-score-result-takeaways-week-8/
 
