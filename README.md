@@ -23,7 +23,7 @@ https://nytimes.com/2025/10/26/nyregion/cuomo-republican-voters-mayor.html
 https://nytimes.com/2025/10/26/nyregion/bragg-trump-campaign.html
 
 **Arne Slot and Liverpool are running out of excuses**\
-`The Dutchman has pleaded mitigation for his Premier League champions, but is it justified?`\
+`The Dutchman has pleaded mitigation for his Premier League champions. But is it justified?`\
 https://nytimes.com/athletic/6749753/2025/10/26/liverpool-arne-slot-excuses/
 
 **Utah deals Colorado its largest loss of the Deion Sanders era**\
