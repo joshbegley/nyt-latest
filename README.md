@@ -1,3 +1,7 @@
+**England's soft underbelly has been exposed. Again**\
+`It may only have been a friendly, but there were familiar failings on show in England's 2-1 defeat to Brazil`\
+https://nytimes.com/athletic/6749965/2025/10/26/englands-soft-underbelly-has-been-exposed-again/
+
 **Manchester United look good. Their investments look smart. It is a moment to enjoy**\
 `'The money was well invested,' said Brighton's coach after Manchester United's £200m front three enjoyed a good day`\
 https://nytimes.com/athletic/5972766/2025/10/26/manchester-united-look-good-their-investments-look-smart-it-is-a-moment-to-enjoy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6750340/2025/10/26/connections-sports-edition-hints
 **Corrections: Oct. 26, 2025**\
 `Corrections that appeared in print on Sunday, Oct. 26, 2025.`\
 https://nytimes.com/2025/10/26/pageoneplus/corrections-oct-26-2025.html
-
-**Michigan vs. Michigan State: Wolverines run past Sparty, keep hold of Paul Bunyan Trophy**\
-`Michigan was far from perfect, but it was much better than MSU, which remains winless in the Big Ten in Jonathan Smith's second season.`\
-https://nytimes.com/athletic/6750463/2025/10/25/michigan-michigan-state-score-result-takeaway-college-football-2/
 

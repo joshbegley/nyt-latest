@@ -1,3 +1,7 @@
+**Manchester United look good. Their investments look smart. It is a moment to enjoy**\
+`'The money was well invested,' said Brighton's coach after Manchester United's £200m front three enjoyed a good day`\
+https://nytimes.com/athletic/5972766/2025/10/26/manchester-united-look-good-their-investments-look-smart-it-is-a-moment-to-enjoy/
+
 **What El Clasico really means: 'You love something so much, and hate it in equal measure'**\
 `Before the rivals meet on Sunday, voices across Spanish football's great divide share their views on what makes this fixture unique`\
 https://nytimes.com/athletic/6746750/2025/10/26/what-el-clasico-really-means/
