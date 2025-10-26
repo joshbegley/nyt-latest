@@ -1,3 +1,11 @@
+**Sid Davis, Reporter Who Witnessed Johnson’s Swearing-In, Dies at 97**\
+`A veteran journalist, he covered the assassination of President John F. Kennedy and provided the pool report on the ceremony aboard Air Force One.`\
+https://nytimes.com/2025/10/26/obituaries/sid-davis-dead.html
+
+**Food Banks Brace for Overwhelming Demand as SNAP Cutoff Looms**\
+`Growing need and decreased resources are squeezing the charitable food system beyond its capacity, leaders say.`\
+https://nytimes.com/2025/10/26/us/food-banks-snap-shutdown-hunger-trump.html
+
 **Quick forward progress whistle negates Jalen Hurts' tush push fumble**\
 `Fox rules analyst Dean Blandino said, "To me, he is pushing forward, he is reaching. That is an early whistle, in my opinion."`\
 https://nytimes.com/athletic/6751506/2025/10/26/eagles-tush-push-fumble-forward-progress/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6751614/2025/10/26/lakers-vs-kings-stream-how-to-wa
 **Giants RB Cam Skattebo ruled out vs. Eagles after first half ankle injury**\
 `As Skattebo lay on the ground, Giants teammates were seen taking a knee in an emotional moment.`\
 https://nytimes.com/athletic/6751532/2025/10/26/cam-skattebo-ankle-injury-carted-off-giants/
-
-**AP Top 25: LSU falls out as Vandy earns highest ranking since 1937**\
-`Ohio State, Indiana, Texas A&M, Alabama and Georgia remain atop the AP poll this week, but there's plenty of movement below.`\
-https://nytimes.com/athletic/6751449/2025/10/26/ap-top-25-rankings-lsu-vanderbilt/
-
-**Trump, Long Erratic on the World Stage, Reaches a New Level**\
-`Whether because of his increasingly mercurial approach or despite it, President Trump has won some foreign policy victories in his second term. The question now is whether he can build on his record.`\
-https://nytimes.com/2025/10/26/us/politics/trump-erratic-foreign-policy.html
 
