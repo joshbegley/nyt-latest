@@ -1,3 +1,7 @@
+**Images of Black Beauty and Belonging**\
+`In the transporting monograph “Tyler Mitchell: Wish This Was Real,” the gifted young photographer traces a path from high fashion to his Georgia roots.`\
+https://nytimes.com/2025/10/26/books/review/tyler-mitchell-wish-this-was-real.html
+
 **‘No Idea How Long People Can Hold Out’: Federal Workers Feel Brunt of Shutdown**\
 `As more than one million government employees go without pay, many are turning to side jobs and food banks to make ends meet.`\
 https://nytimes.com/2025/10/26/us/politics/federal-workers-shutdown-pay.html

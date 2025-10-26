@@ -1,3 +1,7 @@
+**Images of Black Beauty and Belonging**\
+`In the transporting monograph “Tyler Mitchell: Wish This Was Real,” the gifted young photographer traces a path from high fashion to his Georgia roots.`\
+https://nytimes.com/2025/10/26/books/review/tyler-mitchell-wish-this-was-real.html
+
 **‘No Idea How Long People Can Hold Out’: Federal Workers Feel Brunt of Shutdown**\
 `As more than one million government employees go without pay, many are turning to side jobs and food banks to make ends meet.`\
 https://nytimes.com/2025/10/26/us/politics/federal-workers-shutdown-pay.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6747583/2025/10/26/arsenal-eberechi-eze-crystal-pal
 **The Pulse: New Playoff crashers all over**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6750567/2025/10/26/a-bunch-of-new-teams-are-crashing-the-college-football-playoff/
-
-**How to watch Stars vs. Predators: Time, TV, streaming**\
-`Find out how to watch the Dallas Stars play the Nashville Predators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6751262/2025/10/26/stars-vs-predators-stream-how-to-watch-oct-26/
 

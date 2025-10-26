@@ -1,3 +1,7 @@
+**Hurricane Melissa’s Wind Speeds Doubled in Less Than a Day**\
+`Melissa grew from a tropical storm to a Category 4 hurricane in a matter of hours.`\
+https://nytimes.com/2025/10/26/weather/hurricane-melissa-rapid-intensification-jamaica.html
+
 **Images of Black Beauty and Belonging**\
 `In the transporting monograph “Tyler Mitchell: Wish This Was Real,” the gifted young photographer traces a path from high fashion to his Georgia roots.`\
 https://nytimes.com/2025/10/26/books/review/tyler-mitchell-wish-this-was-real.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6747587/2025/10/26/aston-villa-manchester-result-an
 **The Briefing: Arsenal 1 Palace 0 – Eze's perfect role? Vital to capitalise on results? Mosquera importance?**\
 `Eze's goal against his former club, more threat from set pieces, and Arsenal remain top. We break down the talking points from north London`\
 https://nytimes.com/athletic/6747583/2025/10/26/arsenal-eberechi-eze-crystal-palace/
-
-**The Pulse: New Playoff crashers all over**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6750567/2025/10/26/a-bunch-of-new-teams-are-crashing-the-college-football-playoff/
 
