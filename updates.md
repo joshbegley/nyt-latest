@@ -1,3 +1,7 @@
+**Palestinian Leader Lays Out Succession Plan, Elevating Deputy as Apparent Heir**\
+`Mahmoud Abbas, the president of the Palestinian Authority, clarified a succession plan after more than two decades in control. He said if he vacated his role, his deputy would rule for a short period until elections could be held.`\
+https://nytimes.com/2025/10/26/world/middleeast/palestinian-authority-abbas-deputy-succession.html
+
 **Anthony Richardson has surgery, hopes to return to Colts this season**\
 `Richardson, the No. 4 pick in the 2023 NFL Draft, lost a duel with Daniel Jones during training camp for the Colts’ starting QB spot.`\
 https://nytimes.com/athletic/6751396/2025/10/26/anthony-richardson-surgery-orbital-fracture-colts/
