@@ -1,3 +1,7 @@
+**Chelsea need to play like they have a point to prove every week, not just in high-profile games**\
+`Maresca’s team have shown they do have the quality and ability. But they also cannot be trusted yet to do it on a regular basis`\
+https://nytimes.com/athletic/6749970/2025/10/26/chelsea-maresca-sunderland-inconsistent/
+
 **Are Sunderland good?**\
 `The win away to Chelsea was far from a fluke: it was a culmination of all Regis Le Bris’ Sunderland have built.`\
 https://nytimes.com/athletic/6750099/2025/10/26/sunderland-premier-league-chelsea/
