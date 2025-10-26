@@ -1,3 +1,11 @@
+**Inadvertent whistle takes Buccaneers touchdown off the board vs. Saints**\
+`Antoine Winfield Jr. was denied a defensive touchdown when the officials mistakingly whistled the play dead.`\
+https://nytimes.com/athletic/6752079/2025/10/26/buccaneers-saints-inadvertent-whistle-touchdown-negated/
+
+**Is it over for the tush push? Are the Jets turning a corner? Our experts' Week 8 takeaways**\
+`Also: How high is the ceiling for Drake Maye and the Patriots? Does Kirk Cousins have anything left? Do the Ravens have life?`\
+https://nytimes.com/athletic/6751179/2025/10/26/nfl-takeaways-week-8-scores-results/
+
 **Jamaica Braces for a Direct Hit by Hurricane Melissa**\
 `The fast developing storm was expected to bring “unprecedented” amounts of rain to several island countries.`\
 https://nytimes.com/video/weather/100000010482585/hurricane-melissa-jamaica-storm.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6751523/2025/10/26/bears-ravens-score-result-takeaw
 **Texans-49ers takeaways: Houston's offense bounces back at home**\
 `Key takeaways from the Houston Texans' 26-15 win over the San Francisco 49ers on Sunday.`\
 https://nytimes.com/athletic/6751753/2025/10/26/49ers-texans-score-result-takeaways-week-8/
-
-**Bette Midler, New York Gardener, Is Ready to Talk Trash (and Compost)**\
-`She’s been planting greenery in the city for 30 years through her charity — and still loves celebrating spooky season.`\
-https://nytimes.com/2025/10/26/style/bette-midler-new-york-restoration-gardens.html
-
-**Jalen Hurts throws four TDs in Eagles win, while Giants' Cam Skattebo goes down**\
-`Hurts finished 15-for-20 with 179 yards and found three different teammates in the end zone.`\
-https://nytimes.com/athletic/6751698/2025/10/26/giants-eagles-score-result-takeaways-week-8/
 
