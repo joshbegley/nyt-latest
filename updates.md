@@ -1,3 +1,7 @@
+**Utah deals Colorado its largest loss of the Deion Sanders era**\
+`Prior to tonight, Sanders’ largest margin of defeat as Buffaloes coach was 42 points, in a 56-14 loss at Washington State in November 2023.`\
+https://nytimes.com/athletic/6750643/2025/10/26/utah-colorado-score-deion-sanders/
+
 **Three managers in a season sounds chaotic. Can it work?**\
 `Sean Dyche is the third person to take charge of Nottingham Forest and it is still October. What does history tell us about such churn?`\
 https://nytimes.com/athletic/6740383/2025/10/26/sean-dyche-three-managers-one-season/
