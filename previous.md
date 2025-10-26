@@ -1,3 +1,7 @@
+**Why Bruno Guimaraes is scoring goals again**\
+`In a post-Alexander Isak world, Newcastle's offensive structure is evolving and Guimaraes' contributions are proving invaluable`\
+https://nytimes.com/athletic/6742860/2025/10/26/bruno-guimaraes-goals-newcastle/
+
 **Pistons coach J.B. Bickerstaff supports Chauncey Billups, calls gambling 'scary situation'**\
 `"I hate to see what he's going through right now," Bickerstaff said of Billups, who was arrested Thursday as part of an FBI gambling probe.`\
 https://nytimes.com/athletic/6751604/2025/10/26/chauncey-billups-jb-bickerstaff-pistons-nba-arrest-gambling/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/10/26/us/food-banks-snap-shutdown-hunger-trump.html
 **Quick forward progress whistle negates Jalen Hurts' tush push fumble**\
 `Fox rules analyst Dean Blandino said, "To me, he is pushing forward, he is reaching. That is an early whistle, in my opinion."`\
 https://nytimes.com/athletic/6751506/2025/10/26/eagles-tush-push-fumble-forward-progress/
-
-**Everton 0 Tottenham 3 – How did Van de Ven end Moyes' unbeaten home and set-piece record?**\
-`Analysis of Tottenham's Premier League game away to Everton`\
-https://nytimes.com/athletic/6747611/2025/10/26/everton-0-tottenham-3-highlights/
 
