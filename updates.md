@@ -1,3 +1,7 @@
+**Hurricane Melissa’s Wind Speeds Doubled in Less Than a Day**\
+`Melissa grew from a tropical storm to a Category 4 hurricane in a matter of hours.`\
+https://nytimes.com/2025/10/26/weather/hurricane-melissa-rapid-intensification-jamaica.html
+
 **Images of Black Beauty and Belonging**\
 `In the transporting monograph “Tyler Mitchell: Wish This Was Real,” the gifted young photographer traces a path from high fashion to his Georgia roots.`\
 https://nytimes.com/2025/10/26/books/review/tyler-mitchell-wish-this-was-real.html

@@ -1,3 +1,11 @@
+**Arsenal 'unsure' on Saliba, Rice injuries after Palace win - Arteta**\
+`Bukayo Saka and Riccardo Calafiori were also substituted in the 1-0 victory on Sunday.`\
+https://nytimes.com/athletic/6751407/2025/10/26/arsenal-injuries-saliba-saka-rice/
+
+**Real Madrid 2 Barcelona 1 - Yamal’s big talk backfires as Bellingham seals Clasico win**\
+`Our expert team of writers analyse the biggest talking points from El Clasico `\
+https://nytimes.com/athletic/6747610/2025/10/26/real-madrid-barcelona-bellingham-yamal-mbappe/
+
 **Hurricane Melissa’s Wind Speeds Doubled in Less Than a Day**\
 `Melissa grew from a tropical storm to a Category 4 hurricane in a matter of hours.`\
 https://nytimes.com/2025/10/26/weather/hurricane-melissa-rapid-intensification-jamaica.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/26/world/middleeast/egypt-gaza-captives-bodies-searc
 **Trump and Xi Could ‘Consummate’ TikTok Deal This Week, Bessent Says**\
 `Treasury Secretary Scott Bessent said on “Face the Nation” on Sunday that China and the United States had reached “a final deal on TikTok,” but offered few details.`\
 https://nytimes.com/2025/10/26/us/politics/trump-xi-tiktok-deal-bessent.html
-
-**The Briefing: Aston Villa 1 Man City 0 - Why did Guardiola suffer in his graveyard again?**\
-`Analysing the major talking points from the Premier League game at Villa Park`\
-https://nytimes.com/athletic/6747587/2025/10/26/aston-villa-manchester-result-analysis/
-
-**The Briefing: Arsenal 1 Palace 0 – Eze's perfect role? Vital to capitalise on results? Mosquera importance?**\
-`Eze's goal against his former club, more threat from set pieces, and Arsenal remain top. We break down the talking points from north London`\
-https://nytimes.com/athletic/6747583/2025/10/26/arsenal-eberechi-eze-crystal-palace/
 
