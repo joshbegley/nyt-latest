@@ -1,8 +1,12 @@
+**With Trump’s Asia Trip, Speculation Mounts of a Meeting With Kim Jong-un**\
+`President Trump has repeatedly said that he wants to see the North Korean leader again. Mr. Kim has indicated that he is open to the idea — but only under a strict condition.`\
+https://nytimes.com/2025/10/25/world/asia/asia-trump-kim-jong-un.html
+
 **Brennan Othmann addresses trade rumors and Rangers shuffle lineup**\
 `Othmann's latest opportunity with New York may come with additional motives as his name swirls in trade talks.`\
 https://nytimes.com/athletic/6749945/2025/10/25/rangers-brennan-othmann-trade-rumors/
 
-**Texas survives MSU with big comeback as Arch Manning exits in OT**\
+**Arch Manning leads Texas in huge comeback but exits in OT with injury**\
 `Texas quarterback Arch Manning was injured in overtime after leading the Longhorns back from down 17 in a win at Mississippi State.`\
 https://nytimes.com/athletic/6750108/2025/10/25/texas-mississippi-state-arch-manning-injury-sarkisian/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/25/world/asia/what-is-asean-summit-trump.html
 **Here’s the latest.**\
 `By Sui-Lee Wee`\
 https://nytimes.com/live/2025/10/25/us/trump-asia-news/heres-the-latest
-
-**Man Struck and Killed on Virginia Highway While Fleeing ICE**\
-`ICE officers were in the process of detaining Josue Castro-Rivera, 24, of Honduras, before he ran onto a busy highway in Norfolk and was struck by a pickup truck, officials said.`\
-https://nytimes.com/2025/10/25/us/ice-honduran-killed-virginia.html
 

@@ -1,3 +1,7 @@
+**Brennan Othmann addresses trade rumors and Rangers shuffle lineup**\
+`Othmann's latest opportunity with New York may come with additional motives as his name swirls in trade talks.`\
+https://nytimes.com/athletic/6749945/2025/10/25/rangers-brennan-othmann-trade-rumors/
+
 **Texas survives MSU with big comeback as Arch Manning exits in OT**\
 `Texas quarterback Arch Manning was injured in overtime after leading the Longhorns back from down 17 in a win at Mississippi State.`\
 https://nytimes.com/athletic/6750108/2025/10/25/texas-mississippi-state-arch-manning-injury-sarkisian/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/10/25/us/trump-asia-news/heres-the-latest
 **Man Struck and Killed on Virginia Highway While Fleeing ICE**\
 `ICE officers were in the process of detaining Josue Castro-Rivera, 24, of Honduras, before he ran onto a busy highway in Norfolk and was struck by a pickup truck, officials said.`\
 https://nytimes.com/2025/10/25/us/ice-honduran-killed-virginia.html
-
-**Vandy tops Missouri as last-second Hail Mary comes up inches short**\
-`In one of the biggest games in Vanderbilt history, a last-second Hail Mary by Missouri came up just short to keep Vandy's CFP dreams going.`\
-https://nytimes.com/athletic/6750062/2025/10/25/vanderbilt-missouri-score-result-football/
 

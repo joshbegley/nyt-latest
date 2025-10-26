@@ -1,3 +1,7 @@
+**Brennan Othmann addresses trade rumors and Rangers shuffle lineup**\
+`Othmann's latest opportunity with New York may come with additional motives as his name swirls in trade talks.`\
+https://nytimes.com/athletic/6749945/2025/10/25/rangers-brennan-othmann-trade-rumors/
+
 **Texas survives MSU with big comeback as Arch Manning exits in OT**\
 `Texas quarterback Arch Manning was injured in overtime after leading the Longhorns back from down 17 in a win at Mississippi State.`\
 https://nytimes.com/athletic/6750108/2025/10/25/texas-mississippi-state-arch-manning-injury-sarkisian/
