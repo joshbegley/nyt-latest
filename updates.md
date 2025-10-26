@@ -1,3 +1,11 @@
+**Trump and Xi Could ‘Consummate’ TikTok Deal This Week, Bessent Says**\
+`Treasury Secretary Scott Bessent said on “Face the Nation” on Sunday that China and the United States had reached “a final deal on TikTok,” but offered few details.`\
+https://nytimes.com/2025/10/26/us/politics/trump-xi-tiktok-deal-bessent.html
+
+**The Briefing: Arsenal 1 Palace 0 – Eze's perfect role? Vital to capitalise on results? Mosquera importance?**\
+`Eze's goal against his former club, more threat from set pieces, and Arsenal remain top. We break down the talking points from north London`\
+https://nytimes.com/athletic/6747583/2025/10/26/arsenal-eberechi-eze-crystal-palace/
+
 **The Briefing: Aston Villa 1 Man City 0 - Why did Guardiola suffer in his graveyard again?**\
 `Analysing the major talking points from the Premier League game at Villa Park`\
 https://nytimes.com/athletic/6747587/2025/10/26/aston-villa-manchester-result-analysis/
