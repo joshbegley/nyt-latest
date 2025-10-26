@@ -1,3 +1,11 @@
+**Forget what you knew about Vanderbilt. Saturday showed times have changed**\
+`Vanderbilt welcomed "College GameDay" to campus and won a top-15 matchup for the first time. Do you believe in the 7-1 Commodores yet?`\
+https://nytimes.com/athletic/6750357/2025/10/26/vanderbilt-win-missouri-sec-playoff-college-gameday/
+
+**In a star-studded Dodgers lineup, 'silent assassin' Will Smith quietly gets the job done**\
+`Smith, the 32nd pick in the 2016 draft, has provided almost three times as much value as any other first-rounder in his class.`\
+https://nytimes.com/athletic/6750641/2025/10/26/will-smith-dodgers-world-series/
+
 **Trump Opens Trip With Trade Deals in Southeast Asia**\
 `The U.S. announced agreements on Sunday with Malaysia, Thailand and Cambodia, securing support for its efforts to pressure China on trade and critical minerals.`\
 https://nytimes.com/2025/10/26/business/trump-trade-deals-asean.html
