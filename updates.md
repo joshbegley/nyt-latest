@@ -1,3 +1,23 @@
+**The Russia-Ukraine Energy War**\
+`Both sides are targeting energy assets to try to break the deadlock on the battlefield.`\
+https://nytimes.com/2025/10/26/world/russia-ukraine-energy-war-louvre-arrest.html
+
+**El Clasico ends in chaos: Why police were needed in Real Madrid 2 Barcelona 1**\
+`Real Madrid and Barcelona players clashed after the final whistle in Sunday's La Liga Clasico`\
+https://nytimes.com/athletic/6751502/2025/10/26/el-clasico-ends-in-chaos-why-police-were-needed-in-real-madrid-2-barcelona-1/
+
+**Tyler Huntley solid in spot start vs. Bears as Ravens end skid: Takeaways**\
+`Journeyman QB completes 17 of 22 passes for 186 yards in place of injured Lamar Jackson.`\
+https://nytimes.com/athletic/6751523/2025/10/26/bears-ravens-score-result-takeaways-week-8/
+
+**Texans-49ers takeaways: Houston's offense bounces back at home**\
+`Key takeaways from the Houston Texans' 26-15 win over the San Francisco 49ers on Sunday.`\
+https://nytimes.com/athletic/6751753/2025/10/26/49ers-texans-score-result-takeaways-week-8/
+
+**Bette Midler, New York Gardener, Is Ready to Talk Trash (and Compost)**\
+`She’s been planting greenery in the city for 30 years through her charity — and still loves celebrating spooky season.`\
+https://nytimes.com/2025/10/26/style/bette-midler-new-york-restoration-gardens.html
+
 **Jalen Hurts throws four TDs in Eagles win, while Giants' Cam Skattebo goes down**\
 `Hurts finished 15-for-20 with 179 yards and found three different teammates in the end zone.`\
 https://nytimes.com/athletic/6751698/2025/10/26/giants-eagles-score-result-takeaways-week-8/

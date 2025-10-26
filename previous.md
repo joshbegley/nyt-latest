@@ -1,3 +1,23 @@
+**The Russia-Ukraine Energy War**\
+`Both sides are targeting energy assets to try to break the deadlock on the battlefield.`\
+https://nytimes.com/2025/10/26/world/russia-ukraine-energy-war-louvre-arrest.html
+
+**El Clasico ends in chaos: Why police were needed in Real Madrid 2 Barcelona 1**\
+`Real Madrid and Barcelona players clashed after the final whistle in Sunday's La Liga Clasico`\
+https://nytimes.com/athletic/6751502/2025/10/26/el-clasico-ends-in-chaos-why-police-were-needed-in-real-madrid-2-barcelona-1/
+
+**Tyler Huntley solid in spot start vs. Bears as Ravens end skid: Takeaways**\
+`Journeyman QB completes 17 of 22 passes for 186 yards in place of injured Lamar Jackson.`\
+https://nytimes.com/athletic/6751523/2025/10/26/bears-ravens-score-result-takeaways-week-8/
+
+**Texans-49ers takeaways: Houston's offense bounces back at home**\
+`Key takeaways from the Houston Texans' 26-15 win over the San Francisco 49ers on Sunday.`\
+https://nytimes.com/athletic/6751753/2025/10/26/49ers-texans-score-result-takeaways-week-8/
+
+**Bette Midler, New York Gardener, Is Ready to Talk Trash (and Compost)**\
+`She’s been planting greenery in the city for 30 years through her charity — and still loves celebrating spooky season.`\
+https://nytimes.com/2025/10/26/style/bette-midler-new-york-restoration-gardens.html
+
 **Jalen Hurts throws four TDs in Eagles win, while Giants' Cam Skattebo goes down**\
 `Hurts finished 15-for-20 with 179 yards and found three different teammates in the end zone.`\
 https://nytimes.com/athletic/6751698/2025/10/26/giants-eagles-score-result-takeaways-week-8/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6744110/2025/10/26/dolphins-falcons-score-result-ta
 **Bills-Panthers takeaways: Buffalo, James Cook roll over Carolina**\
 `The Bills overcame a two-game losing streak with an emphatic 40-9 win over the Panthers on Sunday.`\
 https://nytimes.com/athletic/6751656/2025/10/26/bills-panthers-score-result-takeaways-week-8/
-
-**Caribbean Braces for Hurricane Melissa**\
-`A fast developing storm was expected to bring “unprecedented” amounts of rain to several countries, meteorologists said.`\
-https://nytimes.com/2025/10/26/world/americas/hurricane-melissa-caribbean-rain-flood.html
-
-**Putin Says Russia Now Has Nuclear-Powered Missile**\
-`Because of its power source, the Burevestnik can remain airborne far longer than other nuclear-armed missiles.`\
-https://nytimes.com/2025/10/26/world/europe/russia-burevestnik-missile.html
-
-**Why Bruno Guimaraes is scoring goals again**\
-`In a post-Alexander Isak world, Newcastle's offensive structure is evolving and Guimaraes' contributions are proving invaluable`\
-https://nytimes.com/athletic/6742860/2025/10/26/bruno-guimaraes-goals-newcastle/
-
-**Pistons coach J.B. Bickerstaff supports Chauncey Billups, calls gambling 'scary situation'**\
-`"I hate to see what he's going through right now," Bickerstaff said of Billups, who was arrested Thursday as part of an FBI gambling probe.`\
-https://nytimes.com/athletic/6751604/2025/10/26/chauncey-billups-jb-bickerstaff-pistons-nba-arrest-gambling/
-
-**Luka Dončić has left finger sprain and leg contusion, will be reevaluated in a week**\
-`The Dončić loss is a tough one for the Lakers, as they also have been without LeBron James, who has been sidelined with sciatica.`\
-https://nytimes.com/athletic/6751696/2025/10/26/luka-doncic-lakers-injury-finger-leg-reevaluation/
 
