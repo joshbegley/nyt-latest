@@ -1,3 +1,11 @@
+**What El Clasico really means: 'You love something so much, and hate it in equal measure'**\
+`Before the rivals meet on Sunday, voices across Spanish football's great divide share their views on what makes this fixture unique`\
+https://nytimes.com/athletic/6746750/2025/10/26/what-el-clasico-really-means/
+
+**The five stages of Lamine Yamal: Lessons from watching him grow at Barcelona**\
+`From record-breaking 15-year-old debutant to Ballon d'Or contender. This is our story of following Lamine Yamal`\
+https://nytimes.com/athletic/6651927/2025/10/26/lamine-yamal-barcelona-clasico-real-madrid/
+
 **How Italy won the 1982 World Cup: A slow start, Rossi's resurgence, and Tardelli's iconic scream**\
 `Michael Cox's history of World Cup winners reaches Italy's third title, won in Spain `\
 https://nytimes.com/athletic/6734114/2025/10/26/world-cup-winners-italy-1982/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6750463/2025/10/25/michigan-michigan-state-score-re
 **Texas A&M routs LSU in Death Valley, an all-systems failure for Brian Kelly**\
 `It was Texas A&M’s first win in Baton Rouge since 1994. They had not won in six tries at Tiger Stadium since joining the SEC in 2012.`\
 https://nytimes.com/athletic/6750385/2025/10/25/lsu-texas-am-score-result/
-
-**Dodgers-Blue Jays Game 2 takeaways: Los Angeles uses battery power to tie World Series**\
-`Will Smith added a homer and three RBIs, while Yoshinobu Yamamoto threw his second complete game of the postseason. `\
-https://nytimes.com/athletic/6750194/2025/10/25/dodgers-blue-jays-world-series-game-2-results-takeaways-mlb/
-
-**Sabres thoughts: Ukko-Pekka Luukkonen's missed opportunity in overtime loss to Leafs**\
-`Luukkonen couldn't come up with the saves that mattered to help his team in a 4-3 loss to Toronto.`\
-https://nytimes.com/athletic/6750339/2025/10/25/sabres-maple-leafs-ukko-pekka-luukkonen/
 

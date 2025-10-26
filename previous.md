@@ -1,3 +1,27 @@
+**How Italy won the 1982 World Cup: A slow start, Rossi's resurgence, and Tardelli's iconic scream**\
+`Michael Cox's history of World Cup winners reaches Italy's third title, won in Spain `\
+https://nytimes.com/athletic/6734114/2025/10/26/world-cup-winners-italy-1982/
+
+**A Break-In That Shook France**\
+`The robbery at the Louvre left behind more than broken glass. It battered the pride of a nation that is increasingly glum about itself and its direction.`\
+https://nytimes.com/2025/10/26/world/europe/louvre-break-in-shook-france.html
+
+**Quote of the Day: Living With Parkinson’s, Gibson Now Leads a New Team**\
+`Quotation of the Day for Sunday, October 26, 2025.`\
+https://nytimes.com/2025/10/26/pageoneplus/quote-of-the-day-living-with-parkinsons-gibson-now-leads-a-new-team.html
+
+**The NBA betting scandal, the Dodgers, & raising Amon-Ra St. Brown**\
+`"The Athletic Show" takes viewers beyond the box scores and into the fascinating corners of professional athletics most fans never see.`\
+https://nytimes.com/athletic/6737930/2025/10/26/athletic-show-nba-betting-dodgers/
+
+**Connections: Sports Edition Coach: Hints for Oct. 26, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6750340/2025/10/26/connections-sports-edition-hints-for-oct-26-2025/
+
+**Corrections: Oct. 26, 2025**\
+`Corrections that appeared in print on Sunday, Oct. 26, 2025.`\
+https://nytimes.com/2025/10/26/pageoneplus/corrections-oct-26-2025.html
+
 **Michigan vs. Michigan State: Wolverines run past Sparty, keep hold of Paul Bunyan Trophy**\
 `Michigan was far from perfect, but it was much better than MSU, which remains winless in the Big Ten in Jonathan Smith's second season.`\
 https://nytimes.com/athletic/6750463/2025/10/25/michigan-michigan-state-score-result-takeaway-college-football-2/
@@ -13,29 +37,4 @@ https://nytimes.com/athletic/6750194/2025/10/25/dodgers-blue-jays-world-series-g
 **Sabres thoughts: Ukko-Pekka Luukkonen's missed opportunity in overtime loss to Leafs**\
 `Luukkonen couldn't come up with the saves that mattered to help his team in a 4-3 loss to Toronto.`\
 https://nytimes.com/athletic/6750339/2025/10/25/sabres-maple-leafs-ukko-pekka-luukkonen/
-
-**Yamamoto's throwback dominance secures Game 2 for Dodgers, ties World Series 1-1**\
-`The Dodger starter threw the first World Series complete game in a decade to even the series with the Toronto Blue Jays at one game apiece. `\
-https://nytimes.com/athletic/6750338/2025/10/25/mlb-world-series-dodgers-blue-jays-yoshinobu-yamamoto-complete-game/
-
-**Red-hot Logan Cooley lights up Wild during ugly start to 6-game homestand: Takeaways**\
-`The former University of Minnesota star scored two goals and three points in Utah's 6-2 win over the Wild on Saturday.`\
-https://nytimes.com/athletic/6750179/2025/10/25/wild-mammoth-logan-cooley-takeaways/
-
-**Manfred defends sports gambling partnerships because they provide 'crucial' data**\
-`In an environment where sports betting exists, Manfred said, MLB needs to partner with legal companies for the data they provide.`\
-https://nytimes.com/athletic/6750304/2025/10/25/mlb-commissioner-manfred-sports-betting-partnerships/
-
-**Senators goalie Linus Ullmark leaves crease, enters scrum at other end of the ice**\
-`Ullmark was penalized for goaltender participation beyond center ice after skating the length of the ice to join a scrum vs. Washington.
-`\
-https://nytimes.com/athletic/6750267/2025/10/25/senators-linus-ullmark-goalie-fight-capitals/
-
-**Tyler Mitchell Breaks Down Three Photos From His New Book**\
-`Erica Ackerberg, a Times photo editor, calls the photographer Tyler Mitchell to chat about three photos from his new book, “Wish This Was Real.”`\
-https://nytimes.com/video/books/review/100000010477576/tyler-mitchell-breaks-down-three-photos-from-his-new-book.html
-
-**With Trump’s Asia Trip, Speculation Mounts of a Meeting With Kim Jong-un**\
-`President Trump has repeatedly said that he wants to see the North Korean leader again. Mr. Kim has indicated that he is open to the idea — but only under a strict condition.`\
-https://nytimes.com/2025/10/25/world/asia/asia-trump-kim-jong-un.html
 
