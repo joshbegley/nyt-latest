@@ -1,3 +1,7 @@
+**How to watch Avalanche vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Colorado Avalanche play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6750837/2025/10/26/avalanche-vs-devils-stream-how-to-watch-oct-26/
+
 **7 Voters Weigh In on Trump’s New Ballroom**\
 `There is outrage. But also optimism. And then there is the question: Given everything else going on, why now?`\
 https://nytimes.com/2025/10/26/us/politics/trump-white-house-ballroom-voters-reaction.html

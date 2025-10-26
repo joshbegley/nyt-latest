@@ -1,3 +1,7 @@
+**How to watch Avalanche vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Colorado Avalanche play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6750837/2025/10/26/avalanche-vs-devils-stream-how-to-watch-oct-26/
+
 **7 Voters Weigh In on Trump’s New Ballroom**\
 `There is outrage. But also optimism. And then there is the question: Given everything else going on, why now?`\
 https://nytimes.com/2025/10/26/us/politics/trump-white-house-ballroom-voters-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/26/us/politics/iowa-trump-economy.html
 **How Venezuela’s Autocrat Uses Crypto to Fight Trump’s Sanctions**\
 `President Nicolás Maduro’s opponents hope a new period of economic pain will finally topple his government. He is using cryptocurrency to hold on.`\
 https://nytimes.com/2025/10/26/world/americas/trump-maduro-venezuela-economy.html
-
-**Argentina’s Javier Milei Faces a Critical Midterm Election: What to Know**\
-`The vote is a key gauge of whether Argentines still back his cost-cutting, pro-market experiment, and whether he can govern effectively for the next two years.`\
-https://nytimes.com/2025/10/26/world/americas/argentina-election-javier-milei.html
 
