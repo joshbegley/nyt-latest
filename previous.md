@@ -1,3 +1,19 @@
+**Vance Criticizes Mamdani’s Comments About Islamophobia After 9/11**\
+`Zohran Mamdani said the vice president’s attack on social media was one in a series of “cheap jokes about Islamophobia.”`\
+https://nytimes.com/2025/10/26/nyregion/jd-vance-mamdani.html
+
+**How many defensive records could Arsenal break this season?**\
+`From Chelsea's 15 goals conceded in 2004-05, to Cagliari's 11-goal season in 1969-70, these are the records Arsenal are chasing  `\
+https://nytimes.com/athletic/6733387/2025/10/26/arsenal-goals-conceded-defensive-record/
+
+**The New York Times in Print for Sunday, Oct. 26, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/26/todays-new-york-times
+
+**The Wish to Be Seen**\
+`The first time photographer Laylah Amatullah Barrayn saw a portrait of Omar ibn Said, she felt he was speaking to her.`\
+https://nytimes.com/2025/10/26/opinion/slavery-memory-photograph-omar-ibn-said.html
+
 **England's soft underbelly has been exposed. Again**\
 `It may only have been a friendly, but there were familiar failings on show in England's 2-1 defeat to Brazil`\
 https://nytimes.com/athletic/6749965/2025/10/26/englands-soft-underbelly-has-been-exposed-again/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6734114/2025/10/26/world-cup-winners-italy-1982/
 **A Break-In That Shook France**\
 `The robbery at the Louvre left behind more than broken glass. It battered the pride of a nation that is increasingly glum about itself and its direction.`\
 https://nytimes.com/2025/10/26/world/europe/louvre-break-in-shook-france.html
-
-**Quote of the Day: Living With Parkinson’s, Gibson Now Leads a New Team**\
-`Quotation of the Day for Sunday, October 26, 2025.`\
-https://nytimes.com/2025/10/26/pageoneplus/quote-of-the-day-living-with-parkinsons-gibson-now-leads-a-new-team.html
-
-**The NBA betting scandal, the Dodgers, & raising Amon-Ra St. Brown**\
-`"The Athletic Show" takes viewers beyond the box scores and into the fascinating corners of professional athletics most fans never see.`\
-https://nytimes.com/athletic/6737930/2025/10/26/athletic-show-nba-betting-dodgers/
-
-**Connections: Sports Edition Coach: Hints for Oct. 26, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6750340/2025/10/26/connections-sports-edition-hints-for-oct-26-2025/
-
-**Corrections: Oct. 26, 2025**\
-`Corrections that appeared in print on Sunday, Oct. 26, 2025.`\
-https://nytimes.com/2025/10/26/pageoneplus/corrections-oct-26-2025.html
 
