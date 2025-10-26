@@ -1,3 +1,15 @@
+**Breece Hall leads explosive offense as Jets get first win of the season**\
+`Hall accounted for three touchdowns as the Jets had more than 500 yards of total offense in their comeback victory.`\
+https://nytimes.com/athletic/6751680/2025/10/26/jets-bengals-score-result-takeaways-week-8/
+
+**'MVP' chants for Drake Maye as Patriots rout Browns: Takeaways**\
+`New England improves to 6-2, its best start since the Belichick-Brady Patriots started 8-0 in 2019.`\
+https://nytimes.com/athletic/6751534/2025/10/26/browns-patriots-score-result-takeaways-week-8/
+
+**Dolphins-Falcons takeaways: Tua Tagovailoa dominates against listless Atlanta**\
+`The Dolphins QB bounced back after being benched last week, while Atlanta's Kirk Cousins struggled in place of Michael Penix Jr.`\
+https://nytimes.com/athletic/6744110/2025/10/26/dolphins-falcons-score-result-takeaways-week-8/
+
 **Bills-Panthers takeaways: Buffalo, James Cook roll over Panthers**\
 `The Bills overcame a two-game losing streak with an emphatic 40-9 win over the Panthers on Sunday.`\
 https://nytimes.com/athletic/6751656/2025/10/26/bills-panthers-score-result-takeaways-week-8/
@@ -25,17 +37,4 @@ https://nytimes.com/athletic/6751696/2025/10/26/luka-doncic-lakers-injury-finger
 **Has Emery become Pep’s kryptonite at Villa Park?**\
 `Sunday was only the third occasion in Guardiola's career that he has lost three consecutive away matches against the same opponent`\
 https://nytimes.com/athletic/6751401/2025/10/26/aston-villa-man-city-emery-guardiola/
-
-**Capitals fire assistant coach Mitch Love following season-long suspension**\
-`The Capitals fired assistant coach Mitch Love on Sunday afternoon after the NHL suspended him for the 2025-26 season.
-`\
-https://nytimes.com/athletic/6751470/2025/10/26/capitals-fire-mitch-love/
-
-**Drew Struzan, Masterly Painter of Movie Posters, Dies at 78**\
-`He created realistic imagery for the “Star Wars” franchise, the Indiana Jones films and the “Back to the Future” trilogy. He also put Alice Cooper in a tuxedo and tails for an album cover.`\
-https://nytimes.com/2025/10/26/movies/drew-struzan-dead.html
-
-**How Canada Is Dealing With Its Latest Tussle With President Trump**\
-`Prime Minister Mark Carney is focusing on what the country can control, including looking for economic partnerships abroad, especially in Asia.`\
-https://nytimes.com/2025/10/26/us/politics/canada-tariffs-trump-carney.html
 

@@ -1,3 +1,15 @@
+**Breece Hall leads explosive offense as Jets get first win of the season**\
+`Hall accounted for three touchdowns as the Jets had more than 500 yards of total offense in their comeback victory.`\
+https://nytimes.com/athletic/6751680/2025/10/26/jets-bengals-score-result-takeaways-week-8/
+
+**'MVP' chants for Drake Maye as Patriots rout Browns: Takeaways**\
+`New England improves to 6-2, its best start since the Belichick-Brady Patriots started 8-0 in 2019.`\
+https://nytimes.com/athletic/6751534/2025/10/26/browns-patriots-score-result-takeaways-week-8/
+
+**Dolphins-Falcons takeaways: Tua Tagovailoa dominates against listless Atlanta**\
+`The Dolphins QB bounced back after being benched last week, while Atlanta's Kirk Cousins struggled in place of Michael Penix Jr.`\
+https://nytimes.com/athletic/6744110/2025/10/26/dolphins-falcons-score-result-takeaways-week-8/
+
 **Capitals fire assistant coach Mitch Love following season-long suspension**\
 `The Capitals fired assistant coach Mitch Love on Sunday afternoon after the NHL suspended him for the 2025-26 season.
 `\
