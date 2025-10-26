@@ -1,3 +1,11 @@
+**What El Clasico really means: 'You love something so much, and hate it in equal measure'**\
+`Before the rivals meet on Sunday, voices across Spanish football's great divide share their views on what makes this fixture unique`\
+https://nytimes.com/athletic/6746750/2025/10/26/what-el-clasico-really-means/
+
+**The five stages of Lamine Yamal: Lessons from watching him grow at Barcelona**\
+`From record-breaking 15-year-old debutant to Ballon d'Or contender. This is our story of following Lamine Yamal`\
+https://nytimes.com/athletic/6651927/2025/10/26/lamine-yamal-barcelona-clasico-real-madrid/
+
 **How Italy won the 1982 World Cup: A slow start, Rossi's resurgence, and Tardelli's iconic scream**\
 `Michael Cox's history of World Cup winners reaches Italy's third title, won in Spain `\
 https://nytimes.com/athletic/6734114/2025/10/26/world-cup-winners-italy-1982/
