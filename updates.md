@@ -1,3 +1,7 @@
+**Under Trump’s Aegis, Cambodia and Thailand Agree to Resolve Border Dispute**\
+`It remains unclear whether the two nations can achieve lasting peace, but that did not deter President Trump from brandishing himself as a peacemaker.`\
+https://nytimes.com/2025/10/26/world/asia/trump-cambodia-thailand.html
+
 **Arizona State's loss to Houston shows how vulnerable mistake-prone Sun Devils have become**\
 `Life in the Big 12 is a walk on the tight rope, leaning this way and that, trying to maintain balance. Saturday night, ASU slipped.`\
 https://nytimes.com/athletic/6750611/2025/10/26/arizona-state-sun-devils-houston-loss-big-12-mistakes/

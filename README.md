@@ -1,3 +1,7 @@
+**While it's still early, these Sixers show spark of hope, resilience with 2-0 start**\
+`On a night when the entire team celebrated with Quentin Grimes when he hit the deciding shot, a few things became clear about the Sixers.`\
+https://nytimes.com/athletic/6750478/2025/10/26/philadelphia-76ers-embiid-drummond/
+
 **Under Trump’s Aegis, Cambodia and Thailand Agree to Resolve Border Dispute**\
 `It remains unclear whether the two nations can achieve lasting peace, but that did not deter President Trump from brandishing himself as a peacemaker.`\
 https://nytimes.com/2025/10/26/world/asia/trump-cambodia-thailand.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6750627/2025/10/26/brian-kelly-hot-seat-lsu-coach/
 **Michigan State’s Jonathan Smith era is just starting, and probably soon ending**\
 `The head football coach at Michigan State has to be dynamic, a difference maker. This one isn’t.`\
 https://nytimes.com/athletic/6750576/2025/10/26/michigan-state-jonathan-smith-firing/
-
-**The shutout sommelier: Uncorking Panthers goalie Sergei Bobrovsky's postgame wine raffles**\
-`Unscrewing the cork on the two-time Stanley Cup-winning netminder's tradition, which was inspired by another legend's love of wine.`\
-https://nytimes.com/athletic/6713550/2025/10/26/florida-panthers-goalie-sergei-bobrovsky-wine/
 
