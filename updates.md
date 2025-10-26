@@ -1,3 +1,16 @@
+**Capitals fire assistant coach Mitch Love following season-long suspension**\
+`The Capitals fired assistant coach Mitch Love on Sunday afternoon after the NHL suspended him for the 2025-26 season.
+`\
+https://nytimes.com/athletic/6751470/2025/10/26/capitals-fire-mitch-love/
+
+**Drew Struzan, Masterly Painter of Movie Posters, Dies at 78**\
+`He created realistic imagery for the “Star Wars” franchise, the Indiana Jones films and the “Back to the Future” trilogy. He also put Alice Cooper in a tuxedo and tails for an album cover.`\
+https://nytimes.com/2025/10/26/movies/drew-struzan-dead.html
+
+**How Canada Is Dealing With Its Latest Tussle With President Trump**\
+`Prime Minister Mark Carney is focusing on what the country can control, including looking for economic partnerships abroad, especially in Asia.`\
+https://nytimes.com/2025/10/26/us/politics/how-canada-is-dealing-with-its-latest-tussle-with-president-trump.html
+
 **Giants RB Cam Skattebo ruled out vs. Eagles after dislocating ankle**\
 `As Skattebo lay on the ground, Giants teammates were seen taking a knee in an emotional moment.`\
 https://nytimes.com/athletic/6751532/2025/10/26/cam-skattebo-ankle-injury-carted-off-giants/

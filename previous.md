@@ -1,3 +1,16 @@
+**Capitals fire assistant coach Mitch Love following season-long suspension**\
+`The Capitals fired assistant coach Mitch Love on Sunday afternoon after the NHL suspended him for the 2025-26 season.
+`\
+https://nytimes.com/athletic/6751470/2025/10/26/capitals-fire-mitch-love/
+
+**Drew Struzan, Masterly Painter of Movie Posters, Dies at 78**\
+`He created realistic imagery for the “Star Wars” franchise, the Indiana Jones films and the “Back to the Future” trilogy. He also put Alice Cooper in a tuxedo and tails for an album cover.`\
+https://nytimes.com/2025/10/26/movies/drew-struzan-dead.html
+
+**How Canada Is Dealing With Its Latest Tussle With President Trump**\
+`Prime Minister Mark Carney is focusing on what the country can control, including looking for economic partnerships abroad, especially in Asia.`\
+https://nytimes.com/2025/10/26/us/politics/how-canada-is-dealing-with-its-latest-tussle-with-president-trump.html
+
 **Sid Davis, Reporter Who Witnessed Johnson’s Swearing-In, Dies at 97**\
 `A veteran journalist, he covered the assassination of President John F. Kennedy and provided the pool report on the ceremony aboard Air Force One.`\
 https://nytimes.com/2025/10/26/obituaries/sid-davis-dead.html
@@ -25,16 +38,4 @@ https://nytimes.com/athletic/6751620/2025/10/26/rangers-vs-flames-stream-how-to-
 **How to watch Raptors vs. Mavericks: Time, TV, streaming**\
 `Find out how to watch the Toronto Raptors play the Dallas Mavericks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6751618/2025/10/26/raptors-vs-mavericks-stream-how-to-watch-oct-26/
-
-**How to watch Oilers vs. Canucks: Time, TV, streaming**\
-`Find out how to watch the Edmonton Oilers play the Vancouver Canucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6751616/2025/10/26/oilers-vs-canucks-stream-how-to-watch-oct-26/
-
-**How to watch Lakers vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Lakers play the Sacramento Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6751614/2025/10/26/lakers-vs-kings-stream-how-to-watch-oct-26/
-
-**Giants RB Cam Skattebo ruled out vs. Eagles after dislocating ankle**\
-`As Skattebo lay on the ground, Giants teammates were seen taking a knee in an emotional moment.`\
-https://nytimes.com/athletic/6751532/2025/10/26/cam-skattebo-ankle-injury-carted-off-giants/
 
