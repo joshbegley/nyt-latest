@@ -1,3 +1,11 @@
+**Senior Living: Real Estate and Aging**\
+`The changing nature of retirement communities, intergenerational housing and aging in place as America prepares for the “silver tsunami.”`\
+https://nytimes.com/spotlight/real-estate-news-seniors
+
+**Scoop City: Risers and fallers after Sunday of Week 8**\
+`Denver stays on track to win the AFC West, Justin Fields and Mike McDaniel get badly-needed wins and Cam Ward calls out his coach`\
+https://nytimes.com/athletic/6754434/2025/10/27/nfl-week-8-risers-fallers-broncos-ravens-drake-maye-scoop-city/
+
 **Submit your Astros questions for Chandler Rome’s upcoming mailbag**\
 `Chandler Rome will answer readers' questions for an upcoming Astros mailbag. `\
 https://nytimes.com/athletic/6754337/2025/10/27/houston-astros-mailbag-questions-offseason/
@@ -18,7 +26,7 @@ https://nytimes.com/2025/10/27/weather/hurricane-melissa-jamaica-forecast.html
 `Brad Treliving said it isn't unreasonable to expect to see Woll play in conditioning games with the AHL's Toronto Marlies.`\
 https://nytimes.com/athletic/6754166/2025/10/27/leafs-joseph-woll-update-treliving/
 
-**Mavericks will finally retire former No. 1 pick Mark Aguirre’s jersey**\
+**Mavericks to finally retire former No. 1 pick Mark Aguirre’s jersey**\
 `The Mavericks drafted Aguirre with the No. 1 pick in 1981, and in seven-plus seasons he was a three-time All-Star selection.`\
 https://nytimes.com/athletic/6754189/2025/10/27/mavericks-mark-aguirre-jersey-retirement-dallas/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/27/arts/television/kissinger-review-pbs.html
 **What I'm hearing on the Penguins: The future vs. a surprisingly good present**\
 `Kyle Dubas' eyes remain on the future despite the Penguins' surprisingly good start.`\
 https://nytimes.com/athletic/6752980/2025/10/27/pittsburgh-penguins-future-nhl-dubas/
-
-**John Dickerson, Anchor and Correspondent, to Leave CBS News**\
-`He is a veteran anchor with a long family legacy at CBS, and his exit presages a series of changes expected at the broadcast news division.`\
-https://nytimes.com/2025/10/27/business/john-dickerson-cbs-news-exit.html
-
-**How and Where the National Guard Has Deployed to U.S. Cities**\
-`See where the troops called upon by President Trump are working, what they are doing, and under whose authority.`\
-https://nytimes.com/interactive/2025/10/27/us/us-national-guard-deployments.html
 

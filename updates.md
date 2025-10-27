@@ -1,3 +1,11 @@
+**Submit your Astros questions for Chandler Rome’s upcoming mailbag**\
+`Chandler Rome will answer readers' questions for an upcoming Astros mailbag. `\
+https://nytimes.com/athletic/6754337/2025/10/27/houston-astros-mailbag-questions-offseason/
+
+**This Is What the Future of the Democratic Party Should Be**\
+`Since their devastating defeat in the 2024 election, Democrats have been confronting the party’s shortcomings, including their failure to connect with the working class.`\
+https://nytimes.com/video/opinion/100000010479590/this-is-what-the-future-of-the-democratic-party-should-be.html
+
 **Maple Leafs GM delivers update on Joseph Woll's return**\
 `Brad Treliving said it isn't unreasonable to expect to see Woll play in conditioning games with the AHL's Toronto Marlies.`\
 https://nytimes.com/athletic/6754166/2025/10/27/leafs-joseph-woll-update-treliving/
