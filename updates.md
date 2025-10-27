@@ -1,3 +1,7 @@
+**Ranking college football's open coaching jobs: LSU, Penn State or Florida?**\
+`This could be the most active coaching carousel college football has seen in many years.`\
+https://nytimes.com/athletic/6662286/2025/10/27/college-football-open-coaching-jobs-rankings/
+
 **Potentially available running backs who can save your fantasy football season**\
 `KC Joyner ranks running backs who could save your season after Week 8 gave us clarity and injuries. `\
 https://nytimes.com/athletic/6753571/2025/10/27/fantasy-football-running-back-rankings-second-half/

@@ -1,3 +1,7 @@
+**Ranking college football's open coaching jobs: LSU, Penn State or Florida?**\
+`This could be the most active coaching carousel college football has seen in many years.`\
+https://nytimes.com/athletic/6662286/2025/10/27/college-football-open-coaching-jobs-rankings/
+
 **Potentially available running backs who can save your fantasy football season**\
 `KC Joyner ranks running backs who could save your season after Week 8 gave us clarity and injuries. `\
 https://nytimes.com/athletic/6753571/2025/10/27/fantasy-football-running-back-rankings-second-half/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/27/business/media/taylor-sheridan-nbc-universal-para
 **More change at Spurs: Rebecca Caplehorn to leave the club in January**\
 `Caplehorn's duties are set to be taken on by a new director of football operations, who is yet to be named.`\
 https://nytimes.com/athletic/6754053/2025/10/27/rebecca-caplehorn-tottenham-exit/
-
-**How to watch Cavaliers vs. Pistons: Time, TV, streaming**\
-`Find out how to watch the Cleveland Cavaliers play the Detroit Pistons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6754136/2025/10/27/cavaliers-vs-pistons-stream-how-to-watch-oct-27/
 

@@ -1,3 +1,11 @@
+**Fantasy football Week 8 recap: Christian Watson debuts, Tyrone Tracy is a must-add**\
+`Jake Ciely's Week 8 recap podcast featuring early waiver suggestions Tyrone Tracy, Dylan Sampson and more. `\
+https://nytimes.com/athletic/6754119/2025/10/27/fantasy-football-week-8-recap-and-early-waivers-speed-run-christian-watson-tyrone-tracy-and-more/
+
+**At Vogue World Los Angeles, Lights, Camera, Corporate Sponsors**\
+`Gavin Newsom, Anna Wintour, Doja Cat and a handful of Hollywood stars came to celebrate Tinseltown and all its fashion.`\
+https://nytimes.com/2025/10/27/style/vogue-world-los-angeles.html
+
 **Ranking college football's open coaching jobs: LSU, Penn State or Florida?**\
 `This could be the most active coaching carousel college football has seen in many years.`\
 https://nytimes.com/athletic/6662286/2025/10/27/college-football-open-coaching-jobs-rankings/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/americas/100000010483666/hurricane-melissa-jamai
 **Thiago Silva's son invited to England Under-15 training camp**\
 `Although both of his parents are Brazilian, FIFA rules him eligible as he has lived in the country since 2020.`\
 https://nytimes.com/athletic/6754040/2025/10/27/thiago-silva-son-england-brazil/
-
-**Taylor Sheridan Signs Deal With NBCUniversal**\
-`Mr. Sheridan, a prolific TV producer, will leave Paramount when his contract expires, according to two people with knowledge of the decision.`\
-https://nytimes.com/2025/10/27/business/media/taylor-sheridan-nbc-universal-paramount.html
-
-**More change at Spurs: Rebecca Caplehorn to leave the club in January**\
-`Caplehorn's duties are set to be taken on by a new director of football operations, who is yet to be named.`\
-https://nytimes.com/athletic/6754053/2025/10/27/rebecca-caplehorn-tottenham-exit/
 
