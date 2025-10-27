@@ -18,7 +18,7 @@ https://nytimes.com/2025/10/27/well/move/long-short-walks-health.html
 `“Know when to attack and when to put on the brakes,” Mr. Franke said in one of his last online posts. Dave Portnoy, the Barstool Sports founder, said he died suddenly over the weekend.`\
 https://nytimes.com/2025/10/27/sports/cody-beef-franke-dead.html
 
-**Amazon Braces for Major Cuts to Its White Collar Work Force**\
+**Amazon Braces for Major Cuts to Its White-Collar Work Force**\
 `The company is looking to cut costs starting this week as it continues to spend aggressively on artificial intelligence. Another round of cuts is expected in January.`\
 https://nytimes.com/2025/10/27/technology/amazon-layoffs.html
 
