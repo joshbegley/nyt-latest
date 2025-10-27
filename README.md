@@ -1,3 +1,11 @@
+**Storm Drenches Central Florida Creating ‘Particularly Dangerous’ Situation**\
+`A rare flash flood emergency was declared for parts of Lake County on Sunday, which received up to 18 inches of rain.`\
+https://nytimes.com/2025/10/27/us/flash-flooding-florida.html
+
+**Vitor Pereira exacerbated a toxic situation. Fans’ goodwill has been exhausted**\
+`In the short term, Vitor Pereira looks set to get time to improve Wolves' fortunes, but his long-term future at the club appears bleak`\
+https://nytimes.com/athletic/6751650/2025/10/27/wolverhampton-wanderers-burnley-vitor-pereira-analysis/
+
 **Business of Football: John Textor's £400m bid for Wolves and why it's complicated**\
 `Wolves, John Textor, Dragan Solak, Southampton and DAZN are the topics in this week's Business of Football column`\
 https://nytimes.com/athletic/6740730/2025/10/27/wolves-john-textor-bid/
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6752274/2025/10/27/jaxson-dart-cam-brian-daboll/
 **Why Lewis Hamilton got penalized in Mexico – and Max Verstappen didn't**\
 `Lewis Hamilton was penalized during his battle with Max Verstappen in F1's 2025 Mexico City GP. Here's why`\
 https://nytimes.com/athletic/6752656/2025/10/27/lewis-hamilton-mexico-gp-penalty-explained-f1-max-verstappen/
-
-**The Commanders seem off-course. Maybe this is where they always were?**\
-`The 2025 Commanders appear unlike the breakout 2024 team, thanks to some costly mistakes, a slew of injuries and a more difficult schedule.`\
-https://nytimes.com/athletic/6752684/2025/10/27/washington-commanders-age-disappointment/
-
-**As New Yorkers Flood Early Voting Sites, Undecideds Become Prized Target**\
-`Zohran Mamdani, the front-runner for mayor of New York City, has built his lead in part by relying on a huge ground-game operation.`\
-https://nytimes.com/2025/10/27/nyregion/early-voting-mayors-race-mamdani-cuomo-sliwa.html
 
