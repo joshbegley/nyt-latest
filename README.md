@@ -1,3 +1,15 @@
+**At Mamdani Rally, a Moment of Unity Goes Sideways for Hochul**\
+`Gov. Kathy Hochul received a tepid response from a stadium filled with Zohran Mamdani supporters, whose chants of “Tax the rich” forced her to stop her speech.`\
+https://nytimes.com/2025/10/27/nyregion/hochul-mamdani-rally.html
+
+**Jack Smith Asks Justice Dept. for Guidance on Testifying to Congress**\
+`Republicans have accused some people who worked for Mr. Smith, the former special counsel who investigated President Trump, of hiding behind grand jury secrecy rules.`\
+https://nytimes.com/2025/10/27/us/politics/jack-smith-guidance-congressional-testimony.html
+
+**49ers minutia minute: Worst time of possession of the Kyle Shanahan era**\
+`The 49ers plan to open the practice window for guard Ben Bartch but not for receiver Brandon Aiyuk, who remains week to week.`\
+https://nytimes.com/athletic/6755176/2025/10/27/49ers-kyle-shanahan-offense-texans/
+
 **Lionel Messi says MLS must loosen purse strings in order to grow**\
 `MLS’ salary cap rules are a staple of the league, but Messi says it limits the ability of the league to attract top talent.`\
 https://nytimes.com/athletic/6755250/2025/10/27/lionel-messi-interview-mls-us-soccer/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/27/us/politics/trump-third-term-politics.html
 **Defunct Upper West Side Movie Theater May Reopen in 2028**\
 `The landmark Metro Theater is being renamed Uptown Film Center and will include five screens and about 470 seats.`\
 https://nytimes.com/2025/10/27/movies/uptown-film-center-metro-theater.html
-
-**The storm’s strength grew out of warmer-than-usual Caribbean waters.**\
-`By Sachi Kitajima Mulkey`\
-https://nytimes.com/live/2025/10/27/weather/hurricane-melissa-jamaica/the-storms-strength-grew-out-of-warmer-than-usual-caribbean-waters
-
-**Dodgers' Mookie Betts wins 2025 Roberto Clemente Award**\
-`Betts started the 5050 Foundation which is dedicated to breaking barriers for underserved youth.`\
-https://nytimes.com/athletic/6755135/2025/10/27/mookie-betts-wins-roberto-clemente-award-dodgers/
-
-**Stephen Strasburg returns to San Diego State as a coach**\
-`Strasburg rose to stardom with the Aztecs before becoming a three-time MLB All-Star and MVP of the 2019 World Series.`\
-https://nytimes.com/athletic/6755046/2025/10/27/stephen-strasburg-san-diego-state-coach-mlb/
 
