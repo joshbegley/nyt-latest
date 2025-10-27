@@ -1,40 +1,42 @@
-**Trump Administration Live Updates: President Is Set to Meet Emperor of Japan**\
-``\
-https://nytimes.com/live/2025/10/27/us/trump-asia-news
+**Top 50 MLB free agents: Contract predictions, team fits for Kyle Tucker, Kyle Schwarber, more**\
+`Tucker and Schwarber lead this year's free agency class. See which teams could land the top talent and how much each player could command.`\
+https://nytimes.com/athletic/6719990/2025/10/27/mlb-free-agents-2025-contract-team-predictions/
 
-**Word of the Day: neophyte**\
-`This word has appeared in 46 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/10/27/learning/word-of-the-day-neophyte.html
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>We&#8217;re now up to 12 teams looking for new coaches next season. I feel confident saying it will soon expand to 16. But let&#8217;s hope not 24 or 28.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6753346/2025/10/27/submit-a-question-for-stewart-mandels-college-football-mailbag-320/
 
-**Pino's indiscipline cost Palace dear but patience is required**\
-`The Spaniard’s bright start has faded as Palace have found life difficult following their 19-game unbeaten run coming to an end`\
-https://nytimes.com/athletic/6745318/2025/10/27/yeremy-pino-crystal-palace/
+**These 3 letters in Chiefs' facility have sparked Patrick Mahomes — and K.C.'s offense**\
+`The Chiefs have worn new "AAF" shirts the last few weeks. Here's how the acronym has helped the team unlock more from Mahomes.`\
+https://nytimes.com/athletic/6749648/2025/10/27/chiefs-patrick-mahomes-aggressive-offense/
 
-**Le Tissier has made case for England centre-back role - her talent there should not be wasted**\
-`Le Tissier should be at the top of the pecking order among Wiegman’s centre-back options. The problem is England lack depth at right-back`\
-https://nytimes.com/athletic/6750930/2025/10/27/maya-le-tissier-england-centre-back/
+**The Giants have a top-heavy payroll, but they should still have flexibility this offseason**\
+`The Giants won't threaten the luxury tax, more than likely, but they will still have flexibility to go after players of their choosing.`\
+https://nytimes.com/athletic/6732161/2025/10/27/san-francisco-giants-2026-free-agency/
 
-**Sean Dyche and a stark lesson in the challenge he faces at Forest**\
-`After the high of beating Porto, work is needed to get out of the Premier League relegation zone`\
-https://nytimes.com/athletic/6751629/2025/10/27/sean-dyche-nottingham-forest-lesson/
+**Why life is only going to get tougher for Jaxson Dart and the Giants**\
+`The jolt Dart provided has worn off quickly as the Giants find themselves with a familiar 2-6 record near the season's midpoint.`\
+https://nytimes.com/athletic/6752274/2025/10/27/jaxson-dart-cam-brian-daboll/
 
-**Arsenal don't need to produce classics every week – this win was about the bigger picture**\
-`This hard-fought victory over Crystal Palace was reflective of Arsenal’s wider qualities and couldn't have come at a more opportune moment`\
-https://nytimes.com/athletic/6751406/2025/10/27/arsenal-crystal-palace-premier-league-win/
+**Why Lewis Hamilton got penalized in Mexico – and Max Verstappen didn't**\
+`Lewis Hamilton was penalized during his battle with Max Verstappen in F1's 2025 Mexico City GP. Here's why`\
+https://nytimes.com/athletic/6752656/2025/10/27/lewis-hamilton-mexico-gp-penalty-explained-f1-max-verstappen/
 
-**Breaking down Liverpool's serious tactical problems**\
-`The problems with Arne Slot's side run way deeper than this run, and were masked in early-season six-game winning streak`\
-https://nytimes.com/athletic/6750202/2025/10/27/liverpools-brentford-slot-system-problems/
+**The Commanders seem off-course. Maybe this is where they always were?**\
+`The 2025 Commanders appear unlike the breakout 2024 team, thanks to some costly mistakes, a slew of injuries and a more difficult schedule.`\
+https://nytimes.com/athletic/6752684/2025/10/27/washington-commanders-age-disappointment/
 
-**Stopping Haaland means stopping City right now. Will it cost them the title?**\
-`Do City have the nous and tactical variety to keep up with Arsenal? Their defeat to Aston Villa suggested not`\
-https://nytimes.com/athletic/6751052/2025/10/27/erling-haaland-man-city-title-chances/
+**As New Yorkers Flood Early Voting Sites, Undecideds Become Prized Target**\
+`Zohran Mamdani, the front-runner for mayor of New York City, has built his lead in part by relying on a huge ground-game operation.`\
+https://nytimes.com/2025/10/27/nyregion/early-voting-mayors-race-mamdani-cuomo-sliwa.html
 
-**The New York Times in Print for Monday, Oct. 27, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/10/27/todays-new-york-times
+**How former can't-miss NFL prospect Robert Gallery survived a descent into darkness**\
+`After 10 surgeries and eight NFL seasons came brain fog, ringing in his ears, memory voids, tequila, rage and thoughts of taking his life.`\
+https://nytimes.com/athletic/6713102/2025/10/27/robert-gallery-raiders-psychedelic-drug/
 
-**‘Down Cemetery Road,’ and More Things to Watch on TV This Week**\
-`The new Apple TV show airs, and many Halloween episodes and movies are available to stream.`\
-https://nytimes.com/2025/10/27/arts/television/down-cemetery-road-tv-this-week.html
+**Why America’s Debate Over Which Children Are ‘Gifted’ Won’t Go Away**\
+`Gifted programs could be shutting out millions of high-performing Black and Latino children from low-income families. Can districts fix their advanced education problem?`\
+https://nytimes.com/2025/10/27/nyregion/gifted-programs-controversial.html
 
