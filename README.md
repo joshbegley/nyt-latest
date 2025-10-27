@@ -1,3 +1,11 @@
+**Ravens' Lamar Jackson expected to return Thursday vs. Dolphins**\
+`“I feel very confident about it,” coach John Harbaugh said when asked about Jackson’s status for Thursday’s primetime matchup.`\
+https://nytimes.com/athletic/6755303/2025/10/27/lamar-jackson-week-9-return-ravens-dolphins-nfl/
+
+**What Do You and the N.Y.C. Mayoral Candidates Agree On?**\
+`Answer 14 questions and we’ll show you where you align with the three leading candidates for mayor of New York City.`\
+https://nytimes.com/interactive/2025/10/27/nyregion/nyc-mayor-quiz-mamdani-cuomo-sliwa.html
+
 **At Mamdani Rally, a Moment of Unity Goes Sideways for Hochul**\
 `Gov. Kathy Hochul received a tepid response from a stadium filled with Zohran Mamdani supporters, whose chants of “Tax the rich” forced her to stop her speech.`\
 https://nytimes.com/2025/10/27/nyregion/hochul-mamdani-rally.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/27/us/politics/afge-federal-workers-union-government
 **Cuba’s president hits back at critics of his government’s storm preparation.**\
 `By Emiliano Rodríguez Mega`\
 https://nytimes.com/live/2025/10/27/weather/hurricane-melissa-jamaica/cubas-president-hits-back-at-critics-of-his-governments-storm-preparation
-
-**It’s Unconstitutional, but Trump Keeps Musing About a 3rd Term**\
-`A president who has chafed at the limits on his power sees political benefit in talking about remaining in office.`\
-https://nytimes.com/2025/10/27/us/politics/trump-third-term-politics.html
-
-**Defunct Upper West Side Movie Theater May Reopen in 2028**\
-`The landmark Metro Theater is being renamed Uptown Film Center and will include five screens and about 470 seats.`\
-https://nytimes.com/2025/10/27/movies/uptown-film-center-metro-theater.html
 
