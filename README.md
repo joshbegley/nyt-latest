@@ -1,3 +1,11 @@
+**How to watch Blue Jays at Dodgers: World Series Game 3 Time, TV, streaming**\
+`Find out how to watch the Toronto Blue Jays play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6752453/2025/10/26/blue-jays-vs-dodgers-stream-how-to-watch-oct-27/
+
+**Bears can't contain Ravens QB Tyler Huntley as their takeaway magic runs out**\
+`Down two starters, the Bears defense didn't do enough to affect Lamar Jackson's backup as their takeaway streak — and win streak — ended.`\
+https://nytimes.com/athletic/6752224/2025/10/26/bears-defense-ravens-tyler-huntley/
+
 **Can Faster Buses Really Be Free?**\
 `An analysis of the possible promise and fundamental tension in one of Zohran Mamdani’s big plans for New York.`\
 https://nytimes.com/interactive/2025/10/26/upshot/fast-free-buses.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/the-athletic/100000010446797/do-lanes-matter-in-sprint
 **Lewis Hamilton: 'Pretty nuts' to be only F1 driver penalized for Mexico GP corner cutting**\
 `Lewis Hamilton questions the officiating decisions in the 2025 Mexico City GP, where he was penalized during a battle with Max Verstappen`\
 https://nytimes.com/athletic/6752306/2025/10/26/lewis-hamilton-mexico-gp-penalty/
-
-**No Corrections: Oct. 27, 2025**\
-`No corrections appeared in print on Monday, Oct. 27, 2025.`\
-https://nytimes.com/2025/10/26/corrections/no-corrections-oct-27-2025.html
-
-**Amid 'MVP' chants, Patriots QB Drake Maye delivers his best game yet**\
-`Despite being sacked six times, Maye lit up the Browns — the NFL's top-ranked defense — for 282 passing yards and three touchdowns.`\
-https://nytimes.com/athletic/6752150/2025/10/26/drake-maye-patriots-browns-mvp/
 
