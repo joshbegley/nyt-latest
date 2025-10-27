@@ -1,3 +1,7 @@
+**Top Federal Workers’ Union Breaks With Democrats on Shutdown**\
+`The American Federation of Government Employees, in a shift, called on Congress to immediately reopen the government without the health care measures sought by Democratic lawmakers.`\
+https://nytimes.com/2025/10/27/us/politics/afge-federal-workers-union-government-shutdown.html
+
 **Cuba’s president hits back at critics of his government’s storm preparation.**\
 `By Emiliano Rodríguez Mega`\
 https://nytimes.com/live/2025/10/27/weather/hurricane-melissa-jamaica/cubas-president-hits-back-at-critics-of-his-governments-storm-preparation

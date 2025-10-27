@@ -1,3 +1,7 @@
+**Top Federal Workers’ Union Breaks With Democrats on Shutdown**\
+`The American Federation of Government Employees, in a shift, called on Congress to immediately reopen the government without the health care measures sought by Democratic lawmakers.`\
+https://nytimes.com/2025/10/27/us/politics/afge-federal-workers-union-government-shutdown.html
+
 **Cuba’s president hits back at critics of his government’s storm preparation.**\
 `By Emiliano Rodríguez Mega`\
 https://nytimes.com/live/2025/10/27/weather/hurricane-melissa-jamaica/cubas-president-hits-back-at-critics-of-his-governments-storm-preparation
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6751082/2025/10/27/celtic-manager-martin-oneill-rod
 **A Powerful Storm Nears Jamaica**\
 `Also, the partisan redistricting battle keeps growing. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/10/27/briefing/hurricane-melissa-jamaica-redistricting-indiana.html
-
-**With Springer set to hear more boos, both managers weigh in ahead of Game 3**\
-`Eight years after the Astros beat the Dodgers in the 2017 Fall Classic, fans in L.A. are still likely to let that series' MVP hear it.`\
-https://nytimes.com/athletic/6755120/2025/10/27/george-springer-blue-jays-dodgers-world-series-boos/
 

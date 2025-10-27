@@ -1,3 +1,7 @@
+**22 Years After His Death, Warren Zevon Is Getting His Due**\
+`The singer and songwriter was the focus of a tribute concert in Los Angeles on Friday. Next month, he’ll be honored by the Rock & Roll Hall of Fame.`\
+https://nytimes.com/2025/10/27/arts/music/warren-zevon-tribute.html
+
 **Top Federal Workers’ Union Breaks With Democrats on Shutdown**\
 `The American Federation of Government Employees, in a shift, called on Congress to immediately reopen the government without the health care measures sought by Democratic lawmakers.`\
 https://nytimes.com/2025/10/27/us/politics/afge-federal-workers-union-government-shutdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6755129/2025/10/27/ryan-kesler-sexual-conduct-charg
 **Rodgers quits Celtic, branded 'toxic, misleading'; replaced by O’Neill**\
 `It comes a day after the Scottish champions fell to a 3-1 defeat at Hearts, opening up an eight-point gap at the top of the league.`\
 https://nytimes.com/athletic/6751082/2025/10/27/celtic-manager-martin-oneill-rodgers-leaves/
-
-**A Powerful Storm Nears Jamaica**\
-`Also, the partisan redistricting battle keeps growing. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/10/27/briefing/hurricane-melissa-jamaica-redistricting-indiana.html
 
