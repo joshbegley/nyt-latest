@@ -1,3 +1,11 @@
+**What Happens When a Hurricane Like Melissa Doesn’t Move**\
+`Melissa’s sluggish pace could see it dump a lot of rain in one place. Jamaica and Haiti are likely to see the most.`\
+https://nytimes.com/2025/10/27/weather/storm-parks.html
+
+**Going Down the Junk Food Rabbit Hole**\
+`Alice Callahan, a reporter for the Well desk, explored the history of ultraprocessed foods and how they became a major threat to our health.`\
+https://nytimes.com/2025/10/27/insider/ultraprocessed-food-junk-history.html
+
 **In Battle for Congress, Virginia Democrats to Begin Votes to Redraw Maps**\
 `State lawmakers are convening to take a vote that would allow redistricting before next year’s midterms, though the process would take months.`\
 https://nytimes.com/2025/10/27/us/virginia-redistricting-vote.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/27/us/politics/trump-mri-third-term.html
 **Carney Says He Will Meet With Xi in South Korea**\
 `The meeting between Prime Minister Mark Carney of Canada and Xi Jinping, China’s top leader, scheduled for later this week, appeared to signal a pivot to Asia after decades of poor relations between his country and Beijing.`\
 https://nytimes.com/2025/10/27/us/politics/carney-xi-meeting-china-canada.html
-
-**USMNT Player Tracker: Adams key to Bournemouth brilliance, Sargent struggles continue**\
-`Our weekly round up of U.S. players' contributions in Europe's major leagues features recent highs for Tyler Adams and lows for Josh Sargent`\
-https://nytimes.com/athletic/6753620/2025/10/27/adams-bournemouth-sargent-norwich-usmnt/
-
-**Indiana Governor Calls Special Session to Boost Republicans in Congress**\
-`Indiana is the latest state to consider redrawing its maps at the request of the Trump administration, though it was not clear if Republicans have enough votes.`\
-https://nytimes.com/2025/10/27/us/indiana-redistricting-special-session.html
 

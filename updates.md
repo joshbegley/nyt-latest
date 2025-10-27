@@ -1,3 +1,7 @@
+**Indiana Governor Calls Special Session to Boost Republicans in Congress**\
+`Indiana is the latest state to consider redrawing its maps at the request of the Trump administration, though it was not clear if Republicans have enough votes.`\
+https://nytimes.com/2025/10/27/us/indiana-redistricting-special-session.html
+
 **In Battle for Congress, Virginia Democrats to Begin Votes to Redraw Maps**\
 `State lawmakers are convening to take a vote that would allow redistricting before next year’s midterms, though the process would take months.`\
 https://nytimes.com/2025/10/27/us/virginia-redistricting-vote.html

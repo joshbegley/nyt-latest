@@ -34,7 +34,7 @@ https://nytimes.com/2025/10/27/us/politics/carney-xi-meeting-china-canada.html
 `Our weekly round up of U.S. players' contributions in Europe's major leagues features recent highs for Tyler Adams and lows for Josh Sargent`\
 https://nytimes.com/athletic/6753620/2025/10/27/adams-bournemouth-sargent-norwich-usmnt/
 
-**Indiana Republicans Call Special Session to Gain Power in Congress**\
-`Indiana is the latest state to consider redrawing congressional maps at the request of the Trump administration, in its bid to maintain Republican control of the House.`\
+**Indiana Governor Calls Special Session to Boost Republicans in Congress**\
+`Indiana is the latest state to consider redrawing its maps at the request of the Trump administration, though it was not clear if Republicans have enough votes.`\
 https://nytimes.com/2025/10/27/us/indiana-redistricting-special-session.html
 
