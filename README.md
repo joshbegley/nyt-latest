@@ -1,3 +1,7 @@
+**Fantasy football Week 8 takeaways: Lots of tricks, and a few treats — like Jonathan Taylor**\
+`Michael Salfino shares his observations for a Week 8 laden with blowouts and injuries, but also some notable running back performances.`\
+https://nytimes.com/athletic/6752355/2025/10/27/fantasy-football-jonathan-taylor-james-cook/
+
 **How Spurs bullied Pickford and Everton to dominate them at two crucial corners**\
 `Everton no longer have a set-piece coach of their own but their defensive record had been the best in the league - until Sunday`\
 https://nytimes.com/athletic/6752017/2025/10/27/everton-pickford-spurs-corners/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/27/world/europe/britain-china-national-security-econ
 **Heat Virtually Wipes Out 2 Key Coral Species Off Florida**\
 `Quotation of the Day for Monday, October 27, 2025.`\
 https://nytimes.com/2025/10/27/pageoneplus/heat-virtually-wipes-out-2-key-coral-species-off-florida.html
-
-**Connections: Sports Edition Coach: Hints for Oct. 27, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6753049/2025/10/27/connections-sports-edition-hints-for-oct-27-2025/
 
