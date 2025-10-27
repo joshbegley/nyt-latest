@@ -1,3 +1,15 @@
+**Stephen Strasburg returns to San Diego State as a coach**\
+`Strasburg rose to stardom with the Aztecs before becoming a three-time MLB All-Star and MVP of the 2019 World Series.`\
+https://nytimes.com/athletic/6755046/2025/10/27/stephen-strasburg-san-diego-state-coach-mlb/
+
+**Retired NHL center Ryan Kesler charged with fourth-degree criminal sexual conduct, pleads not guilty**\
+`Kesler, a retired NHL center, has been charged with two misdemeanor counts of criminal sexual conduct in the fourth degree.`\
+https://nytimes.com/athletic/6755129/2025/10/27/ryan-kesler-sexual-conduct-charge-pleads-not-guilty/
+
+**O'Neill, Maloney to take interim charge at Celtic as Rodgers resigns**\
+`It comes a day after the Scottish champions fell to a 3-1 defeat at Hearts, opening up an eight-point gap at the top of the league.`\
+https://nytimes.com/athletic/6751082/2025/10/27/celtic-manager-martin-oneill-rodgers-leaves/
+
 **A Powerful Storm Nears Jamaica**\
 `Also, the partisan redistricting battle keeps growing. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/10/27/briefing/hurricane-melissa-jamaica-redistricting-indiana.html
