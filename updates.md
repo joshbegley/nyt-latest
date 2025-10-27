@@ -1,3 +1,7 @@
+**Aaron Rodgers, Packers are both right where they belong 3 years after separation**\
+`While Jordan Love has grown into the player the Packers envisioned, Rodgers still has enough to give the Steelers a fighting chance.`\
+https://nytimes.com/athletic/6753286/2025/10/27/aaron-rodgers-packers-steelers-reunion-snf/
+
 **Paul Biya, World’s Oldest President, Extends Rule Over Cameroon**\
 `Official election results gave him an eighth term that, if completed, will last until he is 99. Mr. Biya is one of many leaders well over 70 across Africa, the world’s youngest continent.`\
 https://nytimes.com/2025/10/27/world/africa/paul-biya-cameroon-election-old.html
