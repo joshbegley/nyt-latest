@@ -1,3 +1,11 @@
+**Justin Fields goes from 'crying' in his closet to leading Jets to first win**\
+`The quarterback helped lead New York to 23 points in the fourth quarter to win 39-38 in Chicago's first victory of the season.`\
+https://nytimes.com/athletic/6752311/2025/10/26/justin-fields-crying-jets-win/
+
+**Brian Daboll needs a 9-game master class to save the Giants and himself**\
+`Daboll will need to be an in-his-prime Bill Belichick, with a little in-his-prime Nick Saban sprinkled in to help New York. `\
+https://nytimes.com/athletic/6752348/2025/10/26/brian-daboll-needs-next-9-games-giants/
+
 **'I feel like I could go again': James Cook's historic day lifts Bills in cathartic win vs. Panthers**\
 `Cook ran 19 times for 216 yards and two touchdowns in the blowout.`\
 https://nytimes.com/athletic/6752297/2025/10/26/bills-panthers-james-cook-rushing-win/
