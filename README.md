@@ -1,6 +1,10 @@
+**Trump Says a Recent M.R.I. Scan Was ‘Perfect,’ and He’d ‘Love’ a Third Term**\
+`President Trump made the comments on the second day of his trip to Asia. The Constitution limits presidents to two terms, but Mr. Trump has suggested he might try to circumvent it.`\
+https://nytimes.com/2025/10/27/us/politics/trump-mri-third-term.html
+
 **With U.S. relations on the rocks, Canada’s prime minister says he will meet China’s top leader.**\
 `Prime Minister Mark Carney of Canada announced the meeting with Xi Jinping, which appeared to signal a pivot to Asia after decades of poor relations between his country and Beijing.`\
-https://nytimes.com/live/2025/10/27/us/trump-asia-news/with-us-relations-on-the-rocks-canadas-prime-minister-says-he-will-meet-chinas-top-leader
+https://nytimes.com/2025/10/27/us/politics/carney-xi-meeting-china-canada.html
 
 **USMNT Player Tracker: Adams key to Bournemouth brilliance, Sargent struggles continue**\
 `Our weekly round up of U.S. players' contributions in Europe's major leagues features recent highs for Tyler Adams and lows for Josh Sargent`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/27/arts/music/anthony-jackson-dead.html
 **Hopes of a China Trade Deal Lift Global Markets**\
 `Investors sent major global indexes higher on optimism that President Trump and China’s top leader, Xi Jinping, could reach a wider agreement this week.`\
 https://nytimes.com/2025/10/27/business/dealbook/china-trade-deal-market-rally.html
-
-**De Bruyne facing lengthy spell on the sidelines with hamstring injury**\
-`De Bruyne clutched the back of his right leg immediately after opening the scoring from the spot in the win over Inter Milan.`\
-https://nytimes.com/athletic/6753679/2025/10/27/kevin-de-bruyne-injury-napoli/
 
