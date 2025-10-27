@@ -1,3 +1,19 @@
+**Can You Force Your Children to Bury You in Some Weird Way?**\
+`A ruling on San Diego-style reef burials.`\
+https://nytimes.com/interactive/2025/10/27/magazine/26mag-hodgmanquiz.html
+
+**Montana Cabins That Were a Real Catch**\
+`Looking for a place they could enjoy their passion for fishing, a couple found much more: two cabins on 14 acres of land.`\
+https://nytimes.com/2025/10/27/realestate/montana-cabins-that-were-a-real-catch.html
+
+**What Happens When a Hurricane Like Melissa Doesn’t Move**\
+`Melissa’s sluggish pace could see it dump a lot of rain in one place. Jamaica and Haiti are likely to see the most.`\
+https://nytimes.com/2025/10/27/weather/storm-parks.html
+
+**Going Down the Junk Food Rabbit Hole**\
+`Alice Callahan, a reporter for the Well desk, explored the history of ultraprocessed foods and how they became a major threat to our health.`\
+https://nytimes.com/2025/10/27/insider/ultraprocessed-food-junk-history.html
+
 **In Battle for Congress, Virginia Democrats to Begin Votes to Redraw Maps**\
 `State lawmakers are convening to take a vote that would allow redistricting before next year’s midterms, though the process would take months.`\
 https://nytimes.com/2025/10/27/us/virginia-redistricting-vote.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/podcasts/100000010483251/anthony-hopkins-thinks-his-mo
 **Anthony Hopkins on Being Estranged From His Daughter**\
 `On “The Interview,” David Marchese asked the actor Anthony Hopkins about his painful estrangement from his only child.`\
 https://nytimes.com/video/podcasts/100000010483284/anthony-hopkins-on-being-estranged-from-his-daughter.html
-
-**Trump Says a Recent M.R.I. Scan Was ‘Perfect,’ and He’d ‘Love’ a Third Term**\
-`President Trump made the comments on the second day of his trip to Asia. The Constitution limits presidents to two terms, but Mr. Trump has suggested he might try to circumvent it.`\
-https://nytimes.com/2025/10/27/us/politics/trump-mri-third-term.html
-
-**Carney Says He Will Meet With Xi in South Korea**\
-`The meeting between Prime Minister Mark Carney of Canada and Xi Jinping, China’s top leader, scheduled for later this week, appeared to signal a pivot to Asia after decades of poor relations between his country and Beijing.`\
-https://nytimes.com/2025/10/27/us/politics/carney-xi-meeting-china-canada.html
-
-**USMNT Player Tracker: Adams key to Bournemouth brilliance, Sargent struggles continue**\
-`Our weekly round up of U.S. players' contributions in Europe's major leagues features recent highs for Tyler Adams and lows for Josh Sargent`\
-https://nytimes.com/athletic/6753620/2025/10/27/adams-bournemouth-sargent-norwich-usmnt/
-
-**Indiana Governor Calls Special Session to Boost Republicans in Congress**\
-`Indiana is the latest state to consider redrawing its maps at the request of the Trump administration, though it was not clear if Republicans have enough votes.`\
-https://nytimes.com/2025/10/27/us/indiana-redistricting-special-session.html
 

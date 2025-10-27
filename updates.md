@@ -1,3 +1,19 @@
+**Can You Force Your Children to Bury You in Some Weird Way?**\
+`A ruling on San Diego-style reef burials.`\
+https://nytimes.com/interactive/2025/10/27/magazine/26mag-hodgmanquiz.html
+
+**Montana Cabins That Were a Real Catch**\
+`Looking for a place they could enjoy their passion for fishing, a couple found much more: two cabins on 14 acres of land.`\
+https://nytimes.com/2025/10/27/realestate/montana-cabins-that-were-a-real-catch.html
+
+**What Happens When a Hurricane Like Melissa Doesn’t Move**\
+`Melissa’s sluggish pace could see it dump a lot of rain in one place. Jamaica and Haiti are likely to see the most.`\
+https://nytimes.com/2025/10/27/weather/storm-parks.html
+
+**Going Down the Junk Food Rabbit Hole**\
+`Alice Callahan, a reporter for the Well desk, explored the history of ultraprocessed foods and how they became a major threat to our health.`\
+https://nytimes.com/2025/10/27/insider/ultraprocessed-food-junk-history.html
+
 **Indiana Governor Calls Special Session to Boost Republicans in Congress**\
 `Indiana is the latest state to consider redrawing its maps at the request of the Trump administration, though it was not clear if Republicans have enough votes.`\
 https://nytimes.com/2025/10/27/us/indiana-redistricting-special-session.html
