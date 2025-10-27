@@ -1,3 +1,15 @@
+**Senior Living: Real Estate and Aging**\
+`The changing nature of retirement communities, intergenerational housing and aging in place as America prepares for the “silver tsunami.”`\
+https://nytimes.com/spotlight/real-estate-news-seniors
+
+**Scoop City: Risers and fallers after Sunday of Week 8**\
+`Denver stays on track to win the AFC West, Justin Fields and Mike McDaniel get badly-needed wins and Cam Ward calls out his coach`\
+https://nytimes.com/athletic/6754434/2025/10/27/nfl-week-8-risers-fallers-broncos-ravens-drake-maye-scoop-city/
+
+**Mavericks to finally retire former No. 1 pick Mark Aguirre’s jersey**\
+`The Mavericks drafted Aguirre with the No. 1 pick in 1981, and in seven-plus seasons he was a three-time All-Star selection.`\
+https://nytimes.com/athletic/6754189/2025/10/27/mavericks-mark-aguirre-jersey-retirement-dallas/
+
 **Submit your Astros questions for Chandler Rome’s upcoming mailbag**\
 `Chandler Rome will answer readers' questions for an upcoming Astros mailbag. `\
 https://nytimes.com/athletic/6754337/2025/10/27/houston-astros-mailbag-questions-offseason/

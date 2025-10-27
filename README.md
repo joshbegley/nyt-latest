@@ -1,3 +1,35 @@
+**NBA reviewing injury reporting in light of FBI illegal gambling probe**\
+`The NBA is reviewing its rules regarding injury announcements, as well as how it educates league personnel and players.`\
+https://nytimes.com/athletic/6754247/2025/10/27/nba-injury-reporting-indictments-review/
+
+**Three Chicken Dishes to Experience in N.Y.C.**\
+`The New York Times’s Food contributor Luke Fortney tried as many experiential chickens dishes as he could handle. These three are winner-winners.`\
+https://nytimes.com/video/dining/100000010483766/three-chicken-dishes-to-experience-in-nyc.html
+
+**Magnolia Bakery’s Banana Pudding**\
+`To many, the banana pudding at the famed New York City shop Magnolia Bakery is even more iconic than the store’s beloved cupcakes. Airy, creamy and delightfully reminiscent of childhood packaged snacks, this dessert is both a crowd pleaser and easy to assemble.`\
+https://nytimes.com/video/dining/100000010483395/magnolia-bakerys-banana-pudding.html
+
+**Erykah Badu Is a Muse, and Is Looking for One, Too**\
+`“I don’t think ‘Ms. Jackson’ was actually about me.” Erykah Badu discussed her role as hip-hop muse and what she looks for in a partner with the “Popcast” hosts Joe Coscarelli and Jon Caramanica.`\
+https://nytimes.com/video/podcasts/100000010483373/erykah-badu-is-a-muse-and-is-looking-for-one-too.html
+
+**Even Erykah Badu Doubts Herself Because of Social Media**\
+`The musician Erykah Badu joined the“Popcast” hosts Joe Coscarelli and Jon Caramanica to talk about her experience with self-doubt and social media.`\
+https://nytimes.com/video/podcasts/100000010483375/even-erykah-badu-doubts-herself-because-of-social-media.html
+
+**Why OpenAI Stirred Chaos in Hollywood**\
+`The “Hard Fork” hosts Kevin Roose and Casey Newton discuss recent news surrounding the “Breaking Bad” star Bryan Cranston and OpenAI’s new app, Sora 2.`\
+https://nytimes.com/video/podcasts/100000010483356/why-openai-stirred-chaos-in-hollywood.html
+
+**Titans deal CB Roger McCreary to Rams for 2026 draft picks**\
+`The Titans will acquire a conditional fifth-round pick in the 2026 NFL Draft and give up their 2026 conditional sixth-round pick.`\
+https://nytimes.com/athletic/6754415/2025/10/27/roger-mccreary-titans-rams-trade-news-nfl/
+
+**Texas' Arch Manning in concussion protocol, status vs. Vanderbilt unknown**\
+`Manning exited Saturday's win over Mississippi State after he hit his head on the ground while diving forward in overtime.`\
+https://nytimes.com/athletic/6754352/2025/10/27/arch-manning-injury-status-texas-vanderbilt/
+
 **Senior Living: Real Estate and Aging**\
 `The changing nature of retirement communities, intergenerational housing and aging in place as America prepares for the “silver tsunami.”`\
 https://nytimes.com/spotlight/real-estate-news-seniors
@@ -5,36 +37,4 @@ https://nytimes.com/spotlight/real-estate-news-seniors
 **Scoop City: Risers and fallers after Sunday of Week 8**\
 `Denver stays on track to win the AFC West, Justin Fields and Mike McDaniel get badly-needed wins and Cam Ward calls out his coach`\
 https://nytimes.com/athletic/6754434/2025/10/27/nfl-week-8-risers-fallers-broncos-ravens-drake-maye-scoop-city/
-
-**Submit your Astros questions for Chandler Rome’s upcoming mailbag**\
-`Chandler Rome will answer readers' questions for an upcoming Astros mailbag. `\
-https://nytimes.com/athletic/6754337/2025/10/27/houston-astros-mailbag-questions-offseason/
-
-**This Is What the Future of the Democratic Party Should Be**\
-`Since their devastating defeat in the 2024 election, Democrats have been confronting the party’s shortcomings, including their failure to connect with the working class.`\
-https://nytimes.com/video/opinion/100000010479590/this-is-what-the-future-of-the-democratic-party-should-be.html
-
-**College football Week 10 odds: Big prestige games that have lost some luster**\
-`The college football season hits November with three top-25 matchups and a pair of prestige rivalries that lost some luster.`\
-https://nytimes.com/athletic/6754122/2025/10/27/college-football-week-10-odds-ohio-state-penn-state/
-
-**What to Expect From Hurricane Melissa as It Makes Landfall**\
-`The storm is forecast to hit Jamaica as soon as Monday night before moving on to Cuba.`\
-https://nytimes.com/2025/10/27/weather/hurricane-melissa-jamaica-forecast.html
-
-**Maple Leafs GM delivers update on Joseph Woll's return**\
-`Brad Treliving said it isn't unreasonable to expect to see Woll play in conditioning games with the AHL's Toronto Marlies.`\
-https://nytimes.com/athletic/6754166/2025/10/27/leafs-joseph-woll-update-treliving/
-
-**Mavericks to finally retire former No. 1 pick Mark Aguirre’s jersey**\
-`The Mavericks drafted Aguirre with the No. 1 pick in 1981, and in seven-plus seasons he was a three-time All-Star selection.`\
-https://nytimes.com/athletic/6754189/2025/10/27/mavericks-mark-aguirre-jersey-retirement-dallas/
-
-**‘Kissinger’ Review: What It Used to Mean to Make America Great**\
-`A PBS documentary profiles the storied diplomat who was obsessed, for better and worse, with keeping his adopted country safe during the Cold War.`\
-https://nytimes.com/2025/10/27/arts/television/kissinger-review-pbs.html
-
-**What I'm hearing on the Penguins: The future vs. a surprisingly good present**\
-`Kyle Dubas' eyes remain on the future despite the Penguins' surprisingly good start.`\
-https://nytimes.com/athletic/6752980/2025/10/27/pittsburgh-penguins-future-nhl-dubas/
 
