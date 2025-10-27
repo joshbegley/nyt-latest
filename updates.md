@@ -1,3 +1,7 @@
+**Is the U.S. Losing in Vietnam? Russia, North Korea and China Are Gaining.**\
+`U.S. allies worry that American volatility and Russian outreach and arms sales, in particular, are driving Vietnam into a new phase.`\
+https://nytimes.com/2025/10/27/world/asia/vietnam-russia-relations.html
+
 **As This President Tours Asia, Democracy’s Ideals Aren’t on the Agenda**\
 `Several of the leaders President Trump will encounter are either autocrats or presiding over fragile democracies. And some admire his willingness to break the rules.`\
 https://nytimes.com/2025/10/27/us/politics/trump-asia-democracy.html
