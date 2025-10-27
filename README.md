@@ -1,3 +1,7 @@
+**'Finally!': Saquon Barkley shows 2024 version never left with 150-yard performance vs. Giants**\
+`Barkley hadn't had one of his signature breakout games this season.`\
+https://nytimes.com/athletic/6752499/2025/10/26/eagles-giants-saquon-barkley-rushing-performance/
+
 **Eyes on OG Anunoby: Observing the Knicks' do-it-all wing in Miami for a night**\
 `Watching and observing Anunoby's every move for one night in Miami.`\
 https://nytimes.com/athletic/6751548/2025/10/26/knicks-heat-og-anunoby-observations/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6752440/2025/10/26/uswnt-portugal-bounce-back-win/
 **Cam Skattebo will be tough for Giants to replace in more ways than one**\
 `Skattebo suffered a dislocated ankle in Sunday's loss to the Eagles. “I was devastated,” said Jaxson Dart, his QB and fellow rookie.`\
 https://nytimes.com/athletic/6752281/2025/10/26/cam-skattebo-giants-ankle-injury/
-
-**Eagles restore red-zone dominance in part by utilizing Dallas Goedert**\
-`Goedert's seven touchdown receptions lead all NFL tight ends.`\
-https://nytimes.com/athletic/6751376/2025/10/26/eagles-giants-restore-red-zone-tight-end-dallas-goedert/
 
