@@ -1,3 +1,7 @@
+**Defunct Upper West Side Movie Theater May Reopen in 2028**\
+`The landmark Metro Theater is being renamed Uptown Film Center and will include five screens and about 470 seats.`\
+https://nytimes.com/2025/10/27/movies/uptown-film-center-metro-theater.html
+
 **The storm’s strength grew out of warmer-than-usual Caribbean waters.**\
 `By Sachi Kitajima Mulkey`\
 https://nytimes.com/live/2025/10/27/weather/hurricane-melissa-jamaica/the-storms-strength-grew-out-of-warmer-than-usual-caribbean-waters
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6755062/2025/10/27/tv-ratings-blue-jays-world-serie
 **Ja Morant says he doesn’t care to be NBA’s next face: ‘I just play my game’**\
 `Morant has been mentioned in a group of young players who have the superstar ability to take over when LeBron James and Steph Curry retire.`\
 https://nytimes.com/athletic/6754811/2025/10/27/ja-morant-grizzlies-comments-face-of-the-league/
-
-**Which Is Better, One Long Walk or Many Short Ones?**\
-`A new analysis is one of the first to study whether spacing steps out or consolidating them was linked to better health outcomes.`\
-https://nytimes.com/2025/10/27/well/move/long-short-walks-health.html
 
