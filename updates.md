@@ -1,3 +1,7 @@
+**Bills win big, but wide receiver issues remain while defensive tackle injuries pile up**\
+`Some of the wide receiver numbers out of the blowout win are shocking.`\
+https://nytimes.com/athletic/6752393/2025/10/26/bills-panthers-win-wide-receiver-ed-oliver-injury/
+
 **Mexico GP: Submit your questions for our F1 mailbag**\
 `What stood out to you on Sunday in Mexico City? `\
 https://nytimes.com/athletic/6752616/2025/10/26/f1-mexico-city-grand-prix-mailbag/

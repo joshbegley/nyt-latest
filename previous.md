@@ -1,3 +1,7 @@
+**Bills win big, but wide receiver issues remain while defensive tackle injuries pile up**\
+`Some of the wide receiver numbers out of the blowout win are shocking.`\
+https://nytimes.com/athletic/6752393/2025/10/26/bills-panthers-win-wide-receiver-ed-oliver-injury/
+
 **Mexico GP: Submit your questions for our F1 mailbag**\
 `What stood out to you on Sunday in Mexico City? `\
 https://nytimes.com/athletic/6752616/2025/10/26/f1-mexico-city-grand-prix-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6752348/2025/10/26/brian-daboll-needs-next-9-games-
 **'I feel like I could go again': James Cook's historic day lifts Bills in cathartic win vs. Panthers**\
 `Cook ran 19 times for 216 yards and two touchdowns in the blowout.`\
 https://nytimes.com/athletic/6752297/2025/10/26/bills-panthers-james-cook-rushing-win/
-
-**After Andy Dalton's dismal day, Bryce Young can't get back soon enough for Panthers**\
-`Andy Dalton had three costly turnovers and James Cook ran for 216 yards against Carolina's defense.`\
-https://nytimes.com/athletic/6752304/2025/10/26/panthers-andy-dalton-turnovers-loss-bills/
 
