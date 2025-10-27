@@ -1,3 +1,7 @@
+**Pino's indiscipline cost Palace dear but patience is required**\
+`The Spaniard’s bright start has faded as Palace have found life difficult following their 19-game unbeaten run coming to an end`\
+https://nytimes.com/athletic/6745318/2025/10/27/yeremy-pino-crystal-palace/
+
 **Le Tissier has made case for England centre-back role - her talent there should not be wasted**\
 `Le Tissier should be at the top of the pecking order among Wiegman’s centre-back options. The problem is England lack depth at right-back`\
 https://nytimes.com/athletic/6750930/2025/10/27/maya-le-tissier-england-centre-back/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/27/opinion/israel-hamas-gaza-peace.html
 **Fantasy football Week 8 takeaways: Lots of tricks, and a few treats — like Jonathan Taylor**\
 `Michael Salfino shares his observations for a Week 8 laden with blowouts and injuries, but also some notable running back performances.`\
 https://nytimes.com/athletic/6752355/2025/10/27/fantasy-football-jonathan-taylor-james-cook/
-
-**How Spurs bullied Pickford and Everton to dominate them at two crucial corners**\
-`Everton no longer have a set-piece coach of their own but their defensive record had been the best in the league - until Sunday`\
-https://nytimes.com/athletic/6752017/2025/10/27/everton-pickford-spurs-corners/
 

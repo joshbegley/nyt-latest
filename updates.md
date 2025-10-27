@@ -1,3 +1,11 @@
+**Le Tissier has made case for England centre-back role - her talent there should not be wasted**\
+`Le Tissier should be at the top of the pecking order among Wiegman’s centre-back options. The problem is England lack depth at right-back`\
+https://nytimes.com/athletic/6750930/2025/10/27/maya-le-tissier-england-centre-back/
+
+**Sean Dyche and a stark lesson in the challenge he faces at Forest**\
+`After the high of beating Porto, work is needed to get out of the Premier League relegation zone`\
+https://nytimes.com/athletic/6751629/2025/10/27/sean-dyche-nottingham-forest-lesson/
+
 **Arsenal don't need to produce classics every week – this win was about the bigger picture**\
 `This hard-fought victory over Crystal Palace was reflective of Arsenal’s wider qualities and couldn't have come at a more opportune moment`\
 https://nytimes.com/athletic/6751406/2025/10/27/arsenal-crystal-palace-premier-league-win/
