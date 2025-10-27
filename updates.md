@@ -1,3 +1,7 @@
+**How to watch North Carolina vs. Syracuse: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the Syracuse Orange, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6753515/2025/10/27/north-carolina-vs-syracuse-stream-how-to-watch-oct-31/
+
 **3 Takeaways From Vietnam’s Drift Toward Russia and Away From America**\
 `The Times examined weapons sales documents from a Russian arms supplier and interviewed dozens of officials from Vietnam, the United States and other countries in the region.`\
 https://nytimes.com/2025/10/27/world/asia/3-takeaways-from-vietnams-drift-toward-russia-and-away-from-america.html

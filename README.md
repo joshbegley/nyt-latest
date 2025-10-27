@@ -1,3 +1,7 @@
+**The Day Anthony Hopkins Quit Drinking**\
+`The Academy Award-winning actor Anthony Hopkins talks to David Marchese about his storied career, his estrangement from his only child and more.`\
+https://nytimes.com/video/podcasts/100000010483064/the-day-anthony-hopkins-quit-drinking.html
+
 **How to watch North Carolina vs. Syracuse: Time, TV, streaming**\
 `Find out how to watch the North Carolina Tar Heels play the Syracuse Orange, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6753515/2025/10/27/north-carolina-vs-syracuse-stream-how-to-watch-oct-31/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6753341/2025/10/27/aaron-rodgers-pittsburgh-steeler
 **The New York Times International Edition in Print for Tuesday, Oct. 28, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/10/27/todays-new-york-times-international-edition
-
-**Is the U.S. Losing in Vietnam? Russia, North Korea and China Are Gaining.**\
-`U.S. allies worry that American volatility and Russian outreach and arms sales, in particular, are driving Vietnam into a new phase.`\
-https://nytimes.com/2025/10/27/world/asia/vietnam-russia-relations.html
 
