@@ -1,3 +1,7 @@
+**Word of the Day: neophyte**\
+`This word has appeared in 46 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/27/learning/word-of-the-day-neophyte.html
+
 **Pino's indiscipline cost Palace dear but patience is required**\
 `The Spaniard’s bright start has faded as Palace have found life difficult following their 19-game unbeaten run coming to an end`\
 https://nytimes.com/athletic/6745318/2025/10/27/yeremy-pino-crystal-palace/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/27/arts/television/down-cemetery-road-tv-this-week.h
 **Peace in Gaza Comes Down to This**\
 `Washington must dedicate itself to making sure an international stabilization force is established for Gaza. It’s the linchpin.`\
 https://nytimes.com/2025/10/27/opinion/israel-hamas-gaza-peace.html
-
-**Fantasy football Week 8 takeaways: Lots of tricks, and a few treats — like Jonathan Taylor**\
-`Michael Salfino shares his observations for a Week 8 laden with blowouts and injuries, but also some notable running back performances.`\
-https://nytimes.com/athletic/6752355/2025/10/27/fantasy-football-jonathan-taylor-james-cook/
 
