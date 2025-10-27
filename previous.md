@@ -1,3 +1,7 @@
+**Daboll: Giants RB Cam Skattebo's ankle surgery 'went well'**\
+`Skattebo underwent surgery Sunday night in Philadelphia after dislocating his ankle when he landed awkwardly during the game.`\
+https://nytimes.com/athletic/6754936/2025/10/27/cam-skattebo-surgery-injury-giants/
+
 **Does LSU recruit itself? Not quite, but it's close — and that's why it's such an attractive job**\
 `On a per capita basis, the state ranks fourth nationally in producing the most three-, four- and five-star recruits over the last 10 years.`\
 https://nytimes.com/athletic/6754929/2025/10/27/lsu-football-recruiting-coaching-job-ranking/
@@ -29,12 +33,4 @@ https://nytimes.com/live/2025/10/27/weather/hurricane-melissa-jamaica/jamaicans-
 **Trump Asks Supreme Court to Let Him Fire the Top Copyright Official**\
 `An appeals court sided with the director of the U.S. Copyright Office, saying her role is to work with Congress.`\
 https://nytimes.com/2025/10/27/us/politics/trump-supreme-court-copyright-official.html
-
-**Qualcomm Unveils New Line of Chips to Join the A.I. Boom**\
-`Qualcomm, which is known for its chips in smartphones, also announced a deal with Humain, a Saudi-backed A.I. company. The news sent Qualcomm’s share price soaring.`\
-https://nytimes.com/2025/10/27/technology/qualcomm-ai-chips.html
-
-**How to watch Vanderbilt vs. Texas: Time, TV, streaming**\
-`Find out how to watch the Vanderbilt Commodores play the Texas Longhorns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6754913/2025/10/27/vanderbilt-vs-texas-stream-how-to-watch-nov-1/
 

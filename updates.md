@@ -1,3 +1,7 @@
+**Daboll: Giants RB Cam Skattebo's ankle surgery 'went well'**\
+`Skattebo underwent surgery Sunday night in Philadelphia after dislocating his ankle when he landed awkwardly during the game.`\
+https://nytimes.com/athletic/6754936/2025/10/27/cam-skattebo-surgery-injury-giants/
+
 **Does LSU recruit itself? Not quite, but it's close — and that's why it's such an attractive job**\
 `On a per capita basis, the state ranks fourth nationally in producing the most three-, four- and five-star recruits over the last 10 years.`\
 https://nytimes.com/athletic/6754929/2025/10/27/lsu-football-recruiting-coaching-job-ranking/

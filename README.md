@@ -1,3 +1,7 @@
+**Bringing Back California’s Kelp Forests One Smash at a Time**\
+`Scientists and divers are slowly reviving the underwater forests along California’s northern coast by planting kelp seedlings and smashing the sea urchins before they gobble it up.`\
+https://nytimes.com/video/climate/100000010483700/smashing-sea-urchins-saving-californias-kelp-forests.html
+
 **Daboll: Giants RB Cam Skattebo's ankle surgery 'went well'**\
 `Skattebo underwent surgery Sunday night in Philadelphia after dislocating his ankle when he landed awkwardly during the game.`\
 https://nytimes.com/athletic/6754936/2025/10/27/cam-skattebo-surgery-injury-giants/
@@ -25,12 +29,4 @@ https://nytimes.com/athletic/6754583/2025/10/27/broncos-pat-surtain-injury-statu
 **Fantasy hockey: Rest of season rankings and player projections for 2025-26**\
 `Dom Luszczyszyn offers up his first in-season update to his 2025-26 fantasy hockey rest-of-season rankings and player projections.`\
 https://nytimes.com/athletic/6754590/2025/10/27/fantasy-hockey-rest-of-season-rankings-player-projections-2025-26/
-
-**Jamaicans in South Florida are preparing supplies to be sent to the island after Melissa.**\
-`By Patricia Mazzei`\
-https://nytimes.com/live/2025/10/27/weather/hurricane-melissa-jamaica/jamaicans-south-florida-prepare-supplies
-
-**Trump Asks Supreme Court to Let Him Fire the Top Copyright Official**\
-`An appeals court sided with the director of the U.S. Copyright Office, saying her role is to work with Congress.`\
-https://nytimes.com/2025/10/27/us/politics/trump-supreme-court-copyright-official.html
 
