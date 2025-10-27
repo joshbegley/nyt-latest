@@ -1,3 +1,11 @@
+**Villa reach agreement with Ivorian club for teenage striker to join in 2027**\
+`Ibrahim Dosso will join the club and sign a professional contract when he turns 18, which will be January 1, 2027.`\
+https://nytimes.com/athletic/6753419/2025/10/27/aston-villa-sign-striker-ibrahim-dosso/
+
+**The Double-Digit ‘Democratic Penalty’**\
+`Jared Abbott, the director of the Center for Working-Class Politics, explains what polling data reveals about the Democratic Party’s brand.`\
+https://nytimes.com/video/opinion/100000010472170/the-double-digit-democratic-penalty.html
+
 **The Supreme Court Owes the Country an Explanation for Its Big Decisions**\
 `The Times editorial board critiques the Supreme Court’s overuse of the emergency docket to deliver consequential decisions without explaining its reasoning.`\
 https://nytimes.com/video/opinion/100000010479597/the-supreme-court-owes-the-country-an-explanation-for-its-big-decisions.html

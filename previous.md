@@ -1,3 +1,11 @@
+**Villa reach agreement with Ivorian club for teenage striker to join in 2027**\
+`Ibrahim Dosso will join the club and sign a professional contract when he turns 18, which will be January 1, 2027.`\
+https://nytimes.com/athletic/6753419/2025/10/27/aston-villa-sign-striker-ibrahim-dosso/
+
+**The Double-Digit ‘Democratic Penalty’**\
+`Jared Abbott, the director of the Center for Working-Class Politics, explains what polling data reveals about the Democratic Party’s brand.`\
+https://nytimes.com/video/opinion/100000010472170/the-double-digit-democratic-penalty.html
+
 **The Supreme Court Owes the Country an Explanation for Its Big Decisions**\
 `The Times editorial board critiques the Supreme Court’s overuse of the emergency docket to deliver consequential decisions without explaining its reasoning.`\
 https://nytimes.com/video/opinion/100000010479597/the-supreme-court-owes-the-country-an-explanation-for-its-big-decisions.html
@@ -29,14 +37,4 @@ https://nytimes.com/athletic/6753357/2025/10/27/pat-cummins-australia-ashes-engl
 **Top 50 MLB free agents: Contract predictions, team fits for Kyle Tucker, Kyle Schwarber, more**\
 `Tucker and Schwarber lead this year's free agency class. See which teams could land the top talent and how much each player could command.`\
 https://nytimes.com/athletic/6719990/2025/10/27/mlb-free-agents-2025-contract-team-predictions/
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>We&#8217;re now up to 12 teams looking for new coaches next season. I feel confident saying it will soon expand to 16. But let&#8217;s hope not 24 or 28.</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6753346/2025/10/27/submit-a-question-for-stewart-mandels-college-football-mailbag-320/
-
-**These 3 letters in Chiefs' facility have sparked Patrick Mahomes — and K.C.'s offense**\
-`The Chiefs have worn new "AAF" shirts the last few weeks. Here's how the acronym has helped the team unlock more from Mahomes.`\
-https://nytimes.com/athletic/6749648/2025/10/27/chiefs-patrick-mahomes-aggressive-offense/
 
