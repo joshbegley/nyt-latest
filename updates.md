@@ -1,3 +1,7 @@
+**Search Underway After Crew Member Goes Overboard on Viking Cruise**\
+`The Italian Coast Guard was assisting in the search for the crew member, the cruise company said.`\
+https://nytimes.com/2025/10/27/world/europe/crew-member-search-viking-star-cruise.html
+
 **Metro-North Expansion in the Bronx is Likely Delayed Three Years**\
 `The Metropolitan Transportation Authority blamed the delays on Amtrak, its federal partner, adding that partial service could still be delivered on time.`\
 https://nytimes.com/2025/10/27/nyregion/metro-north-bronx-penn-access.html

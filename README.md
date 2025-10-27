@@ -11,7 +11,7 @@ https://nytimes.com/2025/10/27/us/politics/trump-china-trade-deal-talks.html
 https://nytimes.com/athletic/6754430/2025/10/27/nfl-overreaction-monday-week-9/
 
 **Search Underway After Crew Member Goes Overboard on Viking Cruise**\
-`The Italian Coast Guard was assisting in the search for the crew member, the cruise company said.`\
+`The Italian Coast Guard was assisting in the search, the cruise company said. The cruise was taking passengers from Greece to Italy.`\
 https://nytimes.com/2025/10/27/world/europe/crew-member-search-viking-star-cruise.html
 
 **Flyers assign prospect Jett Luchanko back to juniors — What does it mean for him?**\
