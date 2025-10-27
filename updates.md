@@ -1,3 +1,15 @@
+**At Mamdani Rally, a Moment of Unity Goes Sideways for Hochul**\
+`Gov. Kathy Hochul received a tepid response from a stadium filled with Zohran Mamdani supporters, whose chants of “Tax the rich” forced her to stop her speech.`\
+https://nytimes.com/2025/10/27/nyregion/hochul-mamdani-rally.html
+
+**Jack Smith Asks Justice Dept. for Guidance on Testifying to Congress**\
+`Republicans have accused some people who worked for Mr. Smith, the former special counsel who investigated President Trump, of hiding behind grand jury secrecy rules.`\
+https://nytimes.com/2025/10/27/us/politics/jack-smith-guidance-congressional-testimony.html
+
+**49ers minutia minute: Worst time of possession of the Kyle Shanahan era**\
+`The 49ers plan to open the practice window for guard Ben Bartch but not for receiver Brandon Aiyuk, who remains week to week.`\
+https://nytimes.com/athletic/6755176/2025/10/27/49ers-kyle-shanahan-offense-texans/
+
 **Lionel Messi says MLS must loosen purse strings in order to grow**\
 `MLS’ salary cap rules are a staple of the league, but Messi says it limits the ability of the league to attract top talent.`\
 https://nytimes.com/athletic/6755250/2025/10/27/lionel-messi-interview-mls-us-soccer/
