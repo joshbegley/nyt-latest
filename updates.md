@@ -1,3 +1,7 @@
+**Tyler Huntley helps breathe life into a Ravens season that was headed off the rails**\
+`Huntley, in his third stint with Baltimore, led the offense in a game the team needed to keep its playoff hopes alive this season.`\
+https://nytimes.com/athletic/6752409/2025/10/26/tyler-huntley-ravens-season-win-bears/
+
 **Jets’ first win comes with tears, screams and, for once, a mastery of the unexpected**\
 `Justin Fields and Breece Hall — who provided a trick play touchdown — fueled a thrilling first victory for Aaron Glenn.`\
 https://nytimes.com/athletic/6752596/2025/10/26/new-york-jets-win-cincinnati-bengals/

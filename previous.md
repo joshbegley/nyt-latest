@@ -1,3 +1,7 @@
+**Tyler Huntley helps breathe life into a Ravens season that was headed off the rails**\
+`Huntley, in his third stint with Baltimore, led the offense in a game the team needed to keep its playoff hopes alive this season.`\
+https://nytimes.com/athletic/6752409/2025/10/26/tyler-huntley-ravens-season-win-bears/
+
 **Jets’ first win comes with tears, screams and, for once, a mastery of the unexpected**\
 `Justin Fields and Breece Hall — who provided a trick play touchdown — fueled a thrilling first victory for Aaron Glenn.`\
 https://nytimes.com/athletic/6752596/2025/10/26/new-york-jets-win-cincinnati-bengals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6752228/2025/10/26/browns-myles-garrett-sacks-patri
 **Justin Fields goes from 'crying' in his closet to leading Jets to first win**\
 `The quarterback helped lead New York to 23 points in the fourth quarter to win 39-38 in Chicago's first victory of the season.`\
 https://nytimes.com/athletic/6752311/2025/10/26/justin-fields-crying-jets-win/
-
-**Brian Daboll needs a 9-game master class to save the Giants and himself**\
-`Daboll will need to be an in-his-prime Bill Belichick, with a little in-his-prime Nick Saban sprinkled in to help New York. `\
-https://nytimes.com/athletic/6752348/2025/10/26/brian-daboll-needs-next-9-games-giants/
 
