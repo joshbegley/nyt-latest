@@ -1,3 +1,15 @@
+**With U.S. relations on the rocks, Canada’s prime minister says he will meet China’s top leader.**\
+`Prime Minister Mark Carney of Canada announced the meeting with Xi Jinping, which appeared to signal a pivot to Asia after decades of poor relations between his country and Beijing.`\
+https://nytimes.com/live/2025/10/27/us/trump-asia-news/with-us-relations-on-the-rocks-canadas-prime-minister-says-he-will-meet-chinas-top-leader
+
+**USMNT Player Tracker: Adams key to Bournemouth brilliance, Sargent struggles continue**\
+`Our weekly round up of U.S. players' contributions in Europe's major leagues features recent highs for Tyler Adams and lows for Josh Sargent`\
+https://nytimes.com/athletic/6753620/2025/10/27/adams-bournemouth-sargent-norwich-usmnt/
+
+**Indiana Republicans Call Special Session to Gain Power in Congress**\
+`Indiana is the latest state to consider redrawing congressional maps at the request of the Trump administration, in its bid to maintain Republican control of the House.`\
+https://nytimes.com/2025/10/27/us/indiana-redistricting-special-session.html
+
 **Mandel: Who on earth will fill all these top-tier college football coaching jobs?**\
 `Will the lack of splashy candidates this hiring just doom the cycle to repeat itself?`\
 https://nytimes.com/athletic/6753687/2025/10/27/college-football-coach-firings-hiring-candidates/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/27/business/dealbook/china-trade-deal-market-rally.h
 **De Bruyne facing lengthy spell on the sidelines with hamstring injury**\
 `De Bruyne clutched the back of his right leg immediately after opening the scoring from the spot in the win over Inter Milan.`\
 https://nytimes.com/athletic/6753679/2025/10/27/kevin-de-bruyne-injury-napoli/
-
-**Inside Newcastle Q&A: Chris Waugh answers your questions**\
-`Our Newcastle reporter is here to answer any questions you may have ahead of the Carabao Cup fixture against Spurs`\
-https://nytimes.com/athletic/6753639/2025/10/27/inside-newcastle-qa-chris-waugh-spurs-carabao-cup/
-
-**Rob Blake's reset: Former Kings GM on holding himself accountable and preparing for another shot**\
-`After parting with the Kings in May, Blake tells The Athletic he isn't done with the NHL. "I want to stay in the game as much as possible."`\
-https://nytimes.com/athletic/6751601/2025/10/27/rob-blake-kings-general-manager/
-
-**Questions arise on Angels' lack of memorial for Tyler Skaggs as important testimony looms**\
-`Eric Kay's wife Camela Kay, and Angels team president John Carpino, could be called to testify this week. `\
-https://nytimes.com/athletic/6752651/2025/10/27/angels-tyler-skaggs-trial-memorial-testimony/
 
