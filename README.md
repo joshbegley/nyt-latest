@@ -1,3 +1,7 @@
+**New College of Florida, a Conservative Bulwark, Will Sign Trump’s ‘Compact’**\
+`The school, once a progressive college, was remade by Gov. Ron DeSantis’s administration. Now, it is the first school to agree to the Trump administration’s list of demands.`\
+https://nytimes.com/2025/10/27/us/politics/new-college-florida-trump-compact.html
+
 **Madrid's Carvajal to undergo keyhole surgery on knee injury**\
 `The 33-year-old Spain international felt discomfort following Madrid's Clasico victory over Barcelona before undergoing tests on Monday.`\
 https://nytimes.com/athletic/6754736/2025/10/27/dani-carvajal-injury-real-madrid/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6754837/2025/10/27/bruins-vs-senators-stream-how-to
 **How to watch Hawks vs. Bulls: Time, TV, streaming**\
 `Find out how to watch the Atlanta Hawks play the Chicago Bulls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6754835/2025/10/27/hawks-vs-bulls-stream-how-to-watch-oct-27/
-
-**How to watch Celtics vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the Boston Celtics play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6754833/2025/10/27/celtics-vs-pelicans-stream-how-to-watch-oct-27/
 
