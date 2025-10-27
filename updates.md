@@ -1,3 +1,7 @@
+**Austin Reaves scores career-high 51 points as short-handed Lakers beat Kings**\
+`Without two of their stars, the incredibly short-handed Lakers leaned on Reaves to deliver their first road win in Sacramento.`\
+https://nytimes.com/athletic/6753090/2025/10/27/austin-reaves-lakers-kings-51-points/
+
 **U.S. Assessment of Israeli Shooting of Journalist Divided American Officials**\
 `A U.S. colonel has gone public with his concern that official findings about the 2022 killing of a Palestinian American reporter were soft-pedaled to appease Israel.`\
 https://nytimes.com/2025/10/27/world/middleeast/shooting-palestinian-american-journalist.html

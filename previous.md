@@ -1,3 +1,7 @@
+**Austin Reaves scores career-high 51 points as short-handed Lakers beat Kings**\
+`Without two of their stars, the incredibly short-handed Lakers leaned on Reaves to deliver their first road win in Sacramento.`\
+https://nytimes.com/athletic/6753090/2025/10/27/austin-reaves-lakers-kings-51-points/
+
 **U.S. Assessment of Israeli Shooting of Journalist Divided American Officials**\
 `A U.S. colonel has gone public with his concern that official findings about the 2022 killing of a Palestinian American reporter were soft-pedaled to appease Israel.`\
 https://nytimes.com/2025/10/27/world/middleeast/shooting-palestinian-american-journalist.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/27/health/diptheria-somalia-vaccines.html
 **Giannis Antetokounmpo is channeling his inner Shaq to begin the season**\
 `The Bucks are going to play hard and "make every single night a bar fight," Antetokounmpo said after their 118-113 loss to the Cavaliers.`\
 https://nytimes.com/athletic/6752627/2025/10/26/giannis-antetokounmpo-bucks-nba-doc-rivers/
-
-**Shohei Ohtani responds to Blue Jays fans taunts: 'My wife really appreciated it'**\
-`During Games 1 and 2, fans chanted "We don't need you!" at the two-way phenom, a dig at his free agency campaign from two winters ago.`\
-https://nytimes.com/athletic/6752940/2025/10/26/dodgers-blue-jays-world-series-shohei-ohtani-response/
 
