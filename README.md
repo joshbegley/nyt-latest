@@ -1,3 +1,11 @@
+**Lionel Messi says MLS must loosen purse strings in order to grow**\
+`MLS’ salary cap rules are a staple of the league, but Messi says it limits the ability of the league to attract top talent.`\
+https://nytimes.com/athletic/6755250/2025/10/27/lionel-messi-interview-mls-us-soccer/
+
+**Milei’s Win in Argentina Was Rebuke of the Past, Aided by Trump**\
+`President Javier Milei emerged from the election with an even tighter bond with the United States and a bigger mandate to pass transformative economic plans.`\
+https://nytimes.com/2025/10/27/world/americas/argentina-milei-election.html
+
 **22 Years After His Death, Warren Zevon Is Getting His Due**\
 `The singer and songwriter was the focus of a tribute concert in Los Angeles on Friday. Next month, he’ll be honored by the Rock & Roll Hall of Fame.`\
 https://nytimes.com/2025/10/27/arts/music/warren-zevon-tribute.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6755135/2025/10/27/mookie-betts-wins-roberto-clemen
 **Stephen Strasburg returns to San Diego State as a coach**\
 `Strasburg rose to stardom with the Aztecs before becoming a three-time MLB All-Star and MVP of the 2019 World Series.`\
 https://nytimes.com/athletic/6755046/2025/10/27/stephen-strasburg-san-diego-state-coach-mlb/
-
-**Retired NHL center Ryan Kesler charged with fourth-degree criminal sexual conduct, pleads not guilty**\
-`Kesler, a retired NHL center, has been charged with two misdemeanor counts of criminal sexual conduct in the fourth degree.`\
-https://nytimes.com/athletic/6755129/2025/10/27/ryan-kesler-sexual-conduct-charge-pleads-not-guilty/
-
-**Rodgers quits Celtic, branded 'toxic, misleading'; replaced by O’Neill**\
-`It comes a day after the Scottish champions fell to a 3-1 defeat at Hearts, opening up an eight-point gap at the top of the league.`\
-https://nytimes.com/athletic/6751082/2025/10/27/celtic-manager-martin-oneill-rodgers-leaves/
 
