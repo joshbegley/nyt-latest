@@ -1,3 +1,7 @@
+**Dodgers' Dave Roberts clarifies ‘intent’ comments after extended travel day**\
+`The Dodgers were scheduled to work out at 5 p.m. at Dodger Stadium. They did not arrive until about that time.`\
+https://nytimes.com/athletic/6752848/2025/10/26/dodgers-blue-jays-world-series-dave-roberts-comments/
+
 **Orioles to hire ex-Guardians bench coach Craig Albernaz as manager: Source**\
 `A nine-year career minor leaguer, Albernaz first began his coaching career in 2015 with the Tampa Bay Rays.`\
 https://nytimes.com/athletic/6752760/2025/10/26/baltimore-orioles-craig-albernaz-manager-reports/

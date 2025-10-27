@@ -1,3 +1,7 @@
+**Blackhawks start strong again but struggle to finish off Kings: Observations**\
+`The Blackhawks struggled to hit the net despite a strong push at the start of the game, and the Kings took advantage.`\
+https://nytimes.com/athletic/6752554/2025/10/26/blackhawks-power-play-turnovers-blashill-kings/
+
 **Dodgers' Dave Roberts clarifies ‘intent’ comments after extended travel day**\
 `The Dodgers were scheduled to work out at 5 p.m. at Dodger Stadium. They did not arrive until about that time.`\
 https://nytimes.com/athletic/6752848/2025/10/26/dodgers-blue-jays-world-series-dave-roberts-comments/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6752707/2025/10/26/brian-kelly-lsu-firing-decision-
 **'Finally!': Saquon Barkley shows 2024 version never left with 150-yard performance vs. Giants**\
 `Barkley hadn't had one of his signature breakout games this season.`\
 https://nytimes.com/athletic/6752499/2025/10/26/eagles-giants-saquon-barkley-rushing-performance/
-
-**Eyes on OG Anunoby: Observing the Knicks' do-it-all wing in Miami for a night**\
-`Watching and observing Anunoby's every move for one night in Miami.`\
-https://nytimes.com/athletic/6751548/2025/10/26/knicks-heat-og-anunoby-observations/
 
