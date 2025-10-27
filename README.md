@@ -1,3 +1,7 @@
+**Mandel: Who on earth will fill all these top-tier college football coaching jobs?**\
+`Will the lack of splashy candidates this hiring just doom the cycle to repeat itself?`\
+https://nytimes.com/athletic/6753687/2025/10/27/college-football-coach-firings-hiring-candidates/
+
 **NBA Rewind: A tale of great games and a disturbing gambling scandal in Week 1**\
 `Which teams are trending up and which ones are down after the first few games? And how are the new TV partners doing?`\
 https://nytimes.com/athletic/6747665/2025/10/27/nba-opening-week-rewind-shai-gilgeous-alexander-gambling/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6751601/2025/10/27/rob-blake-kings-general-manager/
 **Questions arise on Angels' lack of memorial for Tyler Skaggs as important testimony looms**\
 `Eric Kay's wife Camela Kay, and Angels team president John Carpino, could be called to testify this week. `\
 https://nytimes.com/athletic/6752651/2025/10/27/angels-tyler-skaggs-trial-memorial-testimony/
-
-**FPL Gameweek 9 review: It's time to sell Joao Pedro, and Man United are on the rise**\
-`Bryan Mbeumo, Matheus Cunha and Jean-Philippe Mateta are climbing the priority list but other attackers are not firing`\
-https://nytimes.com/athletic/6751843/2025/10/27/fantasy-premier-league-gameweek-9-review/
 
