@@ -1,3 +1,7 @@
+**With U.S. relations on the rocks, Canada’s prime minister says he will meet China’s top leader.**\
+`Prime Minister Mark Carney of Canada announced the meeting with Xi Jinping, which appeared to signal a pivot to Asia after decades of poor relations between his country and Beijing.`\
+https://nytimes.com/live/2025/10/27/us/trump-asia-news/with-us-relations-on-the-rocks-canadas-prime-minister-says-he-will-meet-chinas-top-leader
+
 **USMNT Player Tracker: Adams key to Bournemouth brilliance, Sargent struggles continue**\
 `Our weekly round up of U.S. players' contributions in Europe's major leagues features recent highs for Tyler Adams and lows for Josh Sargent`\
 https://nytimes.com/athletic/6753620/2025/10/27/adams-bournemouth-sargent-norwich-usmnt/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/27/business/dealbook/china-trade-deal-market-rally.h
 **De Bruyne facing lengthy spell on the sidelines with hamstring injury**\
 `De Bruyne clutched the back of his right leg immediately after opening the scoring from the spot in the win over Inter Milan.`\
 https://nytimes.com/athletic/6753679/2025/10/27/kevin-de-bruyne-injury-napoli/
-
-**Inside Newcastle Q&A: Chris Waugh answers your questions**\
-`Our Newcastle reporter is here to answer any questions you may have ahead of the Carabao Cup fixture against Spurs`\
-https://nytimes.com/athletic/6753639/2025/10/27/inside-newcastle-qa-chris-waugh-spurs-carabao-cup/
 
