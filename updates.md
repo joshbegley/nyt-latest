@@ -1,3 +1,11 @@
+**Taylor Sheridan Signs Deal With NBCUniversal**\
+`Mr. Sheridan, a prolific TV producer, will leave Paramount when his contract expires, according to two people with knowledge of the decision.`\
+https://nytimes.com/2025/10/27/business/media/taylor-sheridan-nbc-universal-paramount.html
+
+**More change at Spurs: Rebecca Caplehorn to leave the club in January**\
+`Caplehorn's duties are set to be taken on by a new director of football operations, who is yet to be named.`\
+https://nytimes.com/athletic/6754053/2025/10/27/rebecca-caplehorn-tottenham-exit/
+
 **How to watch Cavaliers vs. Pistons: Time, TV, streaming**\
 `Find out how to watch the Cleveland Cavaliers play the Detroit Pistons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6754136/2025/10/27/cavaliers-vs-pistons-stream-how-to-watch-oct-27/

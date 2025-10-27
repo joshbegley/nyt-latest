@@ -1,3 +1,11 @@
+**Taylor Sheridan Signs Deal With NBCUniversal**\
+`Mr. Sheridan, a prolific TV producer, will leave Paramount when his contract expires, according to two people with knowledge of the decision.`\
+https://nytimes.com/2025/10/27/business/media/taylor-sheridan-nbc-universal-paramount.html
+
+**More change at Spurs: Rebecca Caplehorn to leave the club in January**\
+`Caplehorn's duties are set to be taken on by a new director of football operations, who is yet to be named.`\
+https://nytimes.com/athletic/6754053/2025/10/27/rebecca-caplehorn-tottenham-exit/
+
 **How to watch Cavaliers vs. Pistons: Time, TV, streaming**\
 `Find out how to watch the Cleveland Cavaliers play the Detroit Pistons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6754136/2025/10/27/cavaliers-vs-pistons-stream-how-to-watch-oct-27/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6753058/2025/10/27/vancouver-canucks-record-standin
 **A West Texas Children’s Clinic Where Vaccine Suspicion Is Encouraged**\
 `Parents who come to Pia Habersang’s practice in Amarillo shun vaccinations, with the encouragement of the clinic’s nurse practitioner; the health secretary, Robert F. Kennedy Jr.; and President Trump.`\
 https://nytimes.com/2025/10/27/us/politics/antivax-clinic-texas.html
-
-**NFL Week 9 odds, spreads: Chiefs travel to Buffalo as 1-point favorite**\
-`Week 9 features several matchups closer than a field goal, and an AFC Championship Game rematch.`\
-https://nytimes.com/athletic/6753936/2025/10/27/nfl-week-9-odds-spreads-chiefs-bills/
-
-**The Windup: What we learned from games 1 and 2**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6753350/2025/10/27/world-series-game-1-2-recap-the-windup/
 
