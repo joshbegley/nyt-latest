@@ -1,3 +1,7 @@
+**Path to the Winter Olympics: U.S. figure skating, women's Alpine open with a bang**\
+`U.S. figure skating is in its best position in years, American women impressed in the Alpine opener, and more as the Olympic season begins.`\
+https://nytimes.com/athletic/6750935/2025/10/27/2026-winter-olympics-amber-glenn-mikaela-shiffrin-marco-odermatt/
+
 **Canes are no strangers to chasing big names. Is more to come for another run?**\
 `The Hurricanes are off to yet another great start to the regular season, but everyone in Carolina has one eye on next spring.`\
 https://nytimes.com/athletic/6751602/2025/10/27/carolina-hurricanes-tulsky-trade-stanley-cup/
