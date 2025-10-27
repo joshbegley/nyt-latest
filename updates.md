@@ -1,3 +1,15 @@
+**Trapped Between U.S. and China, South Korea Feels Trade War’s Pressure**\
+`A preliminary tariff deal with President Trump called for a large investment in the United States, while China has warned Seoul not to side with Washington.`\
+https://nytimes.com/2025/10/27/business/south-korea-trump-tariffs.html
+
+**Lawsuit Plunges New York Into the National Gerrymandering Fight**\
+`A suit filed by an election law firm contends that the state’s 11th Congressional District, represented by a Republican, is drawn in a way that disenfranchises Black and Latino voters.`\
+https://nytimes.com/2025/10/27/nyregion/new-york-state-redistricting-lawsuit.html
+
+**Thiago Silva's son invited to England Under-15 training camp**\
+`Although both of his parents are Brazilian, FIFA rules him eligible as he has lived in the country since 2020.`\
+https://nytimes.com/athletic/6754040/2025/10/27/thiago-silva-son-england-brazil/
+
 **Hurricane Melissa Strengthens to a Category 5 Storm**\
 `Officials warned that Hurricane Melissa, which intensified into a Category 5 storm early Monday morning, could cause catastrophic damage in Jamaica as it moves through the Caribbean.`\
 https://nytimes.com/video/world/americas/100000010483666/hurricane-melissa-jamaica-caribbean.html

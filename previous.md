@@ -1,8 +1,16 @@
+**Trapped Between U.S. and China, South Korea Feels Trade War’s Pressure**\
+`A preliminary tariff deal with President Trump called for a large investment in the United States, while China has warned Seoul not to side with Washington.`\
+https://nytimes.com/2025/10/27/business/south-korea-trump-tariffs.html
+
+**Lawsuit Plunges New York Into the National Gerrymandering Fight**\
+`A suit filed by an election law firm contends that the state’s 11th Congressional District, represented by a Republican, is drawn in a way that disenfranchises Black and Latino voters.`\
+https://nytimes.com/2025/10/27/nyregion/new-york-state-redistricting-lawsuit.html
+
 **Hurricane Melissa Strengthens to a Category 5 Storm**\
 `Officials warned that Hurricane Melissa, which intensified into a Category 5 storm early Monday morning, could cause catastrophic damage in Jamaica as it moves through the Caribbean.`\
 https://nytimes.com/video/world/americas/100000010483666/hurricane-melissa-jamaica-caribbean.html
 
-**Silva's son invited to England Under-15 training camp**\
+**Thiago Silva's son invited to England Under-15 training camp**\
 `Although both of his parents are Brazilian, FIFA rules him eligible as he has lived in the country since 2020.`\
 https://nytimes.com/athletic/6754040/2025/10/27/thiago-silva-son-england-brazil/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6753328/2025/10/27/heisman-trophy-odds-ty-simpson-f
 **How to watch Blues vs. Penguins: Time, TV, streaming**\
 `Find out how to watch the St. Louis Blues play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6754131/2025/10/27/blues-vs-penguins-stream-how-to-watch-oct-27/
-
-**1,000 Nonessential Workers and Military Relatives Evacuated from Guantánamo Bay**\
-`Wartime detainees and their guards remain, housed in hurricane-proof buildings.`\
-https://nytimes.com/2025/10/27/weather/us-navy-guantanamo-bay-evacuations.html
-
-**What we're seeing from the Canucks' first 10 games: 5 observations**\
-`What do we make of the Canucks' 5-5 start through the first 10 games of the regular season?`\
-https://nytimes.com/athletic/6753058/2025/10/27/vancouver-canucks-record-standings-stats-2025/
 
