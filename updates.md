@@ -1,3 +1,15 @@
+**Mexico GP: Submit your questions for our F1 mailbag**\
+`What stood out to you on Sunday in Mexico City? `\
+https://nytimes.com/athletic/6752616/2025/10/26/f1-mexico-city-grand-prix-mailbag/
+
+**Bengals defense dooming another season, appears more lost than ever in loss to Jets**\
+`Cincinnati's offense put up 38 points and it still wasn't enough to overcome a defense that couldn't stop the previously 0-7 Jets.`\
+https://nytimes.com/athletic/6752520/2025/10/26/bengals-defense-loss-jets-al-golden/
+
+**Myles Garrett's career day couldn't save Browns from another uninspiring loss**\
+`The six-time All-Pro had a new career high with five sacks, but New England still put up 32 points and won in blowout fashion. `\
+https://nytimes.com/athletic/6752228/2025/10/26/browns-myles-garrett-sacks-patriots/
+
 **USWNT returns to basics, beating Portugal 3-1 in rematch**\
 `Coach Emma Hayes said the performance reminded the U.S. of how it can play.`\
 https://nytimes.com/athletic/6752440/2025/10/26/uswnt-portugal-bounce-back-win/
