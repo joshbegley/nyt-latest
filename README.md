@@ -1,3 +1,7 @@
+**Cuba’s president hits back at critics of his government’s storm preparation.**\
+`By Emiliano Rodríguez Mega`\
+https://nytimes.com/live/2025/10/27/weather/hurricane-melissa-jamaica/cubas-president-hits-back-at-critics-of-his-governments-storm-preparation
+
 **It’s Unconstitutional, but Trump Keeps Musing About a 3rd Term**\
 `A president who has chafed at the limits on his power sees political benefit in talking about remaining in office.`\
 https://nytimes.com/2025/10/27/us/politics/trump-third-term-politics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/27/briefing/hurricane-melissa-jamaica-redistricting-
 **With Springer set to hear more boos, both managers weigh in ahead of Game 3**\
 `Eight years after the Astros beat the Dodgers in the 2017 Fall Classic, fans in L.A. are still likely to let that series' MVP hear it.`\
 https://nytimes.com/athletic/6755120/2025/10/27/george-springer-blue-jays-dodgers-world-series-boos/
-
-**More than one-sixth of Canada's population watched Blue Jays-Dodgers in Game 1**\
-`During the regular season, Sportsnet averaged 906,800 viewers per game, up 51 percent over last season. `\
-https://nytimes.com/athletic/6755062/2025/10/27/tv-ratings-blue-jays-world-series-game-1/
 
