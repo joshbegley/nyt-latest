@@ -1,3 +1,7 @@
+**Bringing Back California’s Kelp Forests One Smash at a Time**\
+`Scientists and divers are slowly reviving the underwater forests along California’s northern coast by planting kelp seedlings and smashing the sea urchins before they gobble it up.`\
+https://nytimes.com/video/climate/100000010483700/smashing-sea-urchins-saving-californias-kelp-forests.html
+
 **Daboll: Giants RB Cam Skattebo's ankle surgery 'went well'**\
 `Skattebo underwent surgery Sunday night in Philadelphia after dislocating his ankle when he landed awkwardly during the game.`\
 https://nytimes.com/athletic/6754936/2025/10/27/cam-skattebo-surgery-injury-giants/

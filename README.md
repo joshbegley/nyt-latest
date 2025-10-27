@@ -1,3 +1,7 @@
+**Vikings placing Carson Wentz on IR with season-ending shoulder injury**\
+`With Wentz out for the season, the Vikings are expected to start J.J. McCarthy on Sunday against the Lions in Detroit.`\
+https://nytimes.com/athletic/6754991/2025/10/27/carson-wentz-shoulder-injury-surgery-vikings-qb/
+
 **Bringing Back California’s Kelp Forests One Smash at a Time**\
 `Scientists and divers are slowly reviving the underwater forests along California’s northern coast by planting kelp seedlings and smashing the sea urchins before they gobble it up.`\
 https://nytimes.com/video/climate/100000010483700/smashing-sea-urchins-saving-californias-kelp-forests.html
@@ -25,8 +29,4 @@ https://nytimes.com/2025/10/27/us/candace-avalos-arson-portland-city-councilor.h
 **Broncos mum on Pat Surtain's status as prep begins for critical matchup with Texans**\
 `Broncos wide receiver and Pro Bowl returner Marvin Mims Jr. is in the NFL's concussion protocol after absorbing a hit late in Sunday's game.`\
 https://nytimes.com/athletic/6754583/2025/10/27/broncos-pat-surtain-injury-status/
-
-**Fantasy hockey: Rest of season rankings and player projections for 2025-26**\
-`Dom Luszczyszyn offers up his first in-season update to his 2025-26 fantasy hockey rest-of-season rankings and player projections.`\
-https://nytimes.com/athletic/6754590/2025/10/27/fantasy-hockey-rest-of-season-rankings-player-projections-2025-26/
 
