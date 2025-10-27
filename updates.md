@@ -1,3 +1,7 @@
+**How Spurs bullied Pickford and Everton to dominate them at two crucial corners**\
+`Everton no longer have a set-piece coach of their own but their defensive record had been the best in the league - until Sunday`\
+https://nytimes.com/athletic/6752017/2025/10/27/everton-pickford-spurs-corners/
+
 **'Chucky' Lozano left out again but San Diego make winning start in MLS playoffs**\
 `San Diego FC won their first-ever MLS playoff match, with a 2-1 win over the Portland Timbers on Sunday, but did so without their star signing.`\
 https://nytimes.com/athletic/6752625/2025/10/27/chucky-lozano-left-out-again-but-san-diego-make-winning-start-in-mls-playoffs/
