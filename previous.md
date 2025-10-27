@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6752017/2025/10/27/everton-pickford-spurs-corners/
 
 **'Chucky' Lozano left out again, but San Diego makes winning start in MLS playoffs**\
-`San Diego won Sunday despite the absence of Lozano, who was left off the game day roster following a 'verbal altercation.'`\
+`San Diego won Sunday despite the absence of Lozano, who was left off the game day roster following a "verbal altercation."`\
 https://nytimes.com/athletic/6752625/2025/10/27/chucky-lozano-left-out-again-but-san-diego-make-winning-start-in-mls-playoffs/
 
 **The Briefing: Is it Arsenal's title to lose? Should Slot be a bit less open? Are Wolves doomed?**\
