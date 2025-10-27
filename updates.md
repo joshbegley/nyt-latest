@@ -1,3 +1,15 @@
+**‘Kissinger’ Review: What It Used to Mean to Make America Great**\
+`A PBS documentary profiles the storied diplomat who was obsessed, for better and worse, with keeping his adopted country safe during the Cold War.`\
+https://nytimes.com/2025/10/27/arts/television/kissinger-review-pbs.html
+
+**What I'm hearing on the Penguins: The future vs. a surprisingly good present**\
+`Kyle Dubas' eyes remain on the future despite the Penguins' surprisingly good start.`\
+https://nytimes.com/athletic/6752980/2025/10/27/pittsburgh-penguins-future-nhl-dubas/
+
+**John Dickerson, Anchor and Correspondent, to Leave CBS News**\
+`He is a veteran anchor with a long family legacy at CBS, and his exit presages a series of changes expected at the broadcast news division.`\
+https://nytimes.com/2025/10/27/business/john-dickerson-cbs-news-exit.html
+
 **How and Where the National Guard Has Deployed to U.S. Cities**\
 `See where the troops called upon by President Trump are working, what they are doing, and under whose authority.`\
 https://nytimes.com/interactive/2025/10/27/us/us-national-guard-deployments.html

@@ -1,3 +1,15 @@
+**‘Kissinger’ Review: What It Used to Mean to Make America Great**\
+`A PBS documentary profiles the storied diplomat who was obsessed, for better and worse, with keeping his adopted country safe during the Cold War.`\
+https://nytimes.com/2025/10/27/arts/television/kissinger-review-pbs.html
+
+**What I'm hearing on the Penguins: The future vs. a surprisingly good present**\
+`Kyle Dubas' eyes remain on the future despite the Penguins' surprisingly good start.`\
+https://nytimes.com/athletic/6752980/2025/10/27/pittsburgh-penguins-future-nhl-dubas/
+
+**John Dickerson, Anchor and Correspondent, to Leave CBS News**\
+`He is a veteran anchor with a long family legacy at CBS, and his exit presages a series of changes expected at the broadcast news division.`\
+https://nytimes.com/2025/10/27/business/john-dickerson-cbs-news-exit.html
+
 **How and Where the National Guard Has Deployed to U.S. Cities**\
 `See where the troops called upon by President Trump are working, what they are doing, and under whose authority.`\
 https://nytimes.com/interactive/2025/10/27/us/us-national-guard-deployments.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6753571/2025/10/27/fantasy-football-running-back-ra
 **World’s Oldest President on Record Wins Eighth Term**\
 `At the age of 92, Paul Biya secured an eighth term as president of Cameroon that, if completed, will last until he is nearly 100. Many young Cameroonians have refused to accept the results.`\
 https://nytimes.com/video/world/africa/100000010483233/worlds-oldest-president-on-record-wins-eighth-term.html
-
-**Reflections on a Ballroom, and an East Wing in Ruins**\
-`Sampling the outpouring of responses to a column by Ross Douthat about the East Wing and the ballroom. Also: Everyday acts of grace; Canada and President Trump.`\
-https://nytimes.com/2025/10/27/opinion/white-house-east-wing-ballroom-trump.html
-
-**Trapped Between U.S. and China, South Korea Feels Trade War’s Pressure**\
-`A preliminary tariff deal with President Trump called for a large investment in the United States, while China has warned Seoul not to side with Washington.`\
-https://nytimes.com/2025/10/27/business/south-korea-trump-tariffs.html
-
-**Lawsuit Plunges New York Into the National Gerrymandering Fight**\
-`A suit filed by an election law firm contends that the state’s 11th Congressional District, represented by a Republican, is drawn in a way that disenfranchises Black and Latino voters.`\
-https://nytimes.com/2025/10/27/nyregion/new-york-state-redistricting-lawsuit.html
 
