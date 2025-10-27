@@ -1,3 +1,7 @@
+**Silva's son invited to England Under-15 training camp**\
+`Although both of his parents are Brazilian, FIFA rules him eligible as he has lived in the country since 2020.`\
+https://nytimes.com/athletic/6754040/2025/10/27/thiago-silva-son-england-brazil/
+
 **Taylor Sheridan Signs Deal With NBCUniversal**\
 `Mr. Sheridan, a prolific TV producer, will leave Paramount when his contract expires, according to two people with knowledge of the decision.`\
 https://nytimes.com/2025/10/27/business/media/taylor-sheridan-nbc-universal-paramount.html
