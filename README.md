@@ -1,3 +1,7 @@
+**Dodgers' Dave Roberts clarifies ‘intent’ comments after extended travel day**\
+`The Dodgers were scheduled to work out at 5 p.m. at Dodger Stadium. They did not arrive until about that time.`\
+https://nytimes.com/athletic/6752848/2025/10/26/dodgers-blue-jays-world-series-dave-roberts-comments/
+
 **Orioles to hire ex-Guardians bench coach Craig Albernaz as manager: Source**\
 `A nine-year career minor leaguer, Albernaz first began his coaching career in 2015 with the Tampa Bay Rays.`\
 https://nytimes.com/athletic/6752760/2025/10/26/baltimore-orioles-craig-albernaz-manager-reports/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6752499/2025/10/26/eagles-giants-saquon-barkley-rus
 **Eyes on OG Anunoby: Observing the Knicks' do-it-all wing in Miami for a night**\
 `Watching and observing Anunoby's every move for one night in Miami.`\
 https://nytimes.com/athletic/6751548/2025/10/26/knicks-heat-og-anunoby-observations/
-
-**‘It: Welcome to Derry’ Season 1 Premiere Recap: Nuclear Family**\
-`Based on the 1986 Stephen King novel, “It,” the new HBO series sets a disturbing and terrifying tone right from the jump.`\
-https://nytimes.com/2025/10/26/arts/television/it-welcome-to-derry-recap-season-1-premiere.html
 
