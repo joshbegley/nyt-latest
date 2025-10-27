@@ -1,3 +1,15 @@
+**Cam Skattebo will be tough for Giants to replace in more ways than one**\
+`Skattebo suffered a dislocated ankle in Sunday's loss to the Eagles. “I was devastated,” said Jaxson Dart, his QB and fellow rookie.`\
+https://nytimes.com/athletic/6752281/2025/10/26/cam-skattebo-giants-ankle-injury/
+
+**Eagles restore red-zone dominance in part by utilizing Dallas Goedert**\
+`Goedert's seven touchdown receptions lead all NFL tight ends.`\
+https://nytimes.com/athletic/6751376/2025/10/26/eagles-giants-restore-red-zone-tight-end-dallas-goedert/
+
+**Despite career day by Myles Garrett, Browns couldn't keep up in loss to Patriots**\
+`The six-time All-Pro had a new career-high with five sacks, but New England still put up 32 points and won in blowout fashion. `\
+https://nytimes.com/athletic/6752228/2025/10/26/browns-myles-garrett-sacks-patriots/
+
 **Justin Fields goes from 'crying' in his closet to leading Jets to first win**\
 `The quarterback helped lead New York to 23 points in the fourth quarter to win 39-38 in Chicago's first victory of the season.`\
 https://nytimes.com/athletic/6752311/2025/10/26/justin-fields-crying-jets-win/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6752453/2025/10/26/blue-jays-vs-dodgers-stream-how-
 **Bears can't contain Ravens QB Tyler Huntley as their takeaway magic runs out**\
 `Down two starters, the Bears defense didn't do enough to affect Lamar Jackson's backup as their takeaway streak — and win streak — ended.`\
 https://nytimes.com/athletic/6752224/2025/10/26/bears-defense-ravens-tyler-huntley/
-
-**Can Faster Buses Really Be Free?**\
-`An analysis of the possible promise and fundamental tension in one of Zohran Mamdani’s big plans for New York.`\
-https://nytimes.com/interactive/2025/10/26/upshot/fast-free-buses.html
-
-**John Harbaugh on Ravens' handling of Lamar Jackson injury designation: 'Honest mistake'**\
-`Harbaugh, in his 18th season as Baltimore's head coach, said: "I'm not involved with those rules. I don't know those rules."`\
-https://nytimes.com/athletic/6752270/2025/10/26/john-harbaugh-ravens-lamar-jackson-injury-designation-mistake/
-
-**Japan’s New Leader Faces an Early Test: Winning Over Trump**\
-`As Prime Minister Sanae Takaichi seeks reassurance from President Trump on trade and security, she will likely play up her ties to Shinzo Abe, a mutual friend.`\
-https://nytimes.com/2025/10/26/world/asia/japan-trump-takaichi.html
 
