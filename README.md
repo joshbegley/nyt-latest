@@ -1,3 +1,7 @@
+**Is the U.S. Losing in Vietnam? Russia, North Korea and China Are Gaining.**\
+`U.S. allies worry that American volatility and Russian outreach and arms sales, in particular, are driving Vietnam into a new phase.`\
+https://nytimes.com/2025/10/27/world/asia/vietnam-russia-relations.html
+
 **As This President Tours Asia, Democracy’s Ideals Aren’t on the Agenda**\
 `Several of the leaders President Trump will encounter are either autocrats or presiding over fragile democracies. And some admire his willingness to break the rules.`\
 https://nytimes.com/2025/10/27/us/politics/trump-asia-democracy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/27/us/politics/virginia-governors-race.html
 **Strains in Short-Term Markets Raise Urgency of Fed’s Balance Sheet Debate**\
 `Warning signs in crucial money markets have raised the prospect that the central bank will soon stop reducing its portfolio of government debt and mortgage bond holdings.`\
 https://nytimes.com/2025/10/27/business/federal-reserve-balance-sheet-tightening.html
-
-**Why Trump’s Asia Visit Is Consequential**\
-`President Trump has embarked on a six-day diplomatic tour of Asia, testing his role as a statesman and negotiator as he pursues a trade deal with China. Erica L. Green, the White House correspondent for The New York Times, explains what’s at stake.`\
-https://nytimes.com/video/world/asia/100000010477965/why-trumps-asia-visit-is-consequential.html
 

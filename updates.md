@@ -1,3 +1,7 @@
+**As This President Tours Asia, Democracy’s Ideals Aren’t on the Agenda**\
+`Several of the leaders President Trump will encounter are either autocrats or presiding over fragile democracies. And some admire his willingness to break the rules.`\
+https://nytimes.com/2025/10/27/us/politics/trump-asia-democracy.html
+
 **How to watch Ravens vs. Dolphins: Time, TV, streaming**\
 `Find out how to watch the Baltimore Ravens play the Miami Dolphins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6753481/2025/10/27/ravens-vs-dolphins-stream-how-to-watch-oct-30/
