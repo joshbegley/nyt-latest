@@ -1,3 +1,11 @@
+**Breaking down Liverpool's serious tactical problems**\
+`The problems with Arne Slot's side run way deeper than this run, and were masked in early-season six-game winning streak`\
+https://nytimes.com/athletic/6750202/2025/10/27/liverpools-brentford-slot-system-problems/
+
+**Stopping Haaland means stopping City right now. Will it cost them the title?**\
+`Do City have the nous and tactical variety to keep up with Arsenal? Their defeat to Aston Villa suggested not`\
+https://nytimes.com/athletic/6751052/2025/10/27/erling-haaland-man-city-title-chances/
+
 **The New York Times in Print for Monday, Oct. 27, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/27/todays-new-york-times
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6751807/2025/10/27/arsenal-title-premier-league/
 **Austin Reaves scores career-high 51 points as short-handed Lakers beat Kings**\
 `Without two of their stars, the incredibly short-handed Lakers leaned on Reaves to deliver their first road win in Sacramento.`\
 https://nytimes.com/athletic/6753090/2025/10/27/austin-reaves-lakers-kings-51-points/
-
-**U.S. Assessment of Israeli Shooting of Journalist Divided American Officials**\
-`A U.S. colonel has gone public with his concern that official findings about the 2022 killing of a Palestinian American reporter were soft-pedaled to appease Israel.`\
-https://nytimes.com/2025/10/27/world/middleeast/shooting-palestinian-american-journalist.html
-
-**Packers-Steelers takeaways: Jordan Love dominates reunion with Aaron Rodgers**\
-`Jordan Love threw three touchdown passes and Tucker Kraft starred on National Tight Ends Day as Green Bay won 35-25.`\
-https://nytimes.com/athletic/6752138/2025/10/27/packers-steelers-score-result-takeaways-week-8/
 

@@ -1,3 +1,11 @@
+**Breaking down Liverpool's serious tactical problems**\
+`The problems with Arne Slot's side run way deeper than this run, and were masked in early-season six-game winning streak`\
+https://nytimes.com/athletic/6750202/2025/10/27/liverpools-brentford-slot-system-problems/
+
+**Stopping Haaland means stopping City right now. Will it cost them the title?**\
+`Do City have the nous and tactical variety to keep up with Arsenal? Their defeat to Aston Villa suggested not`\
+https://nytimes.com/athletic/6751052/2025/10/27/erling-haaland-man-city-title-chances/
+
 **The New York Times in Print for Monday, Oct. 27, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/27/todays-new-york-times
