@@ -1,3 +1,7 @@
+**Young Broncos spur blowout of Cowboys as offense shows encouraging signs**\
+`Denver rookies R.J. Harvey and Pat Bryant combined for four touchdowns as the Broncos cruised. Next up: the stingy Texans defense.`\
+https://nytimes.com/athletic/6752717/2025/10/26/broncos-offense-cowboys-sean-payton-rj-harvey/
+
 **Skidding Wild rally to force overtime, but Celebrini does them in: Takeaways**\
 `Despite having the puck for almost the entirety of overtime, the Wild couldn't complete the comeback against the Sharks.`\
 https://nytimes.com/athletic/6752268/2025/10/26/wild-kaprizov-giveaways-hartman-injury-sharks/
@@ -10,8 +14,8 @@ https://nytimes.com/athletic/6752705/2025/10/26/lsu-football-coaching-search-bri
 `There aren’t expected to be a lot of big-name candidates available, especially ones who have won big in the SEC.`\
 https://nytimes.com/athletic/6752762/2025/10/26/lsu-coaching-candidates-brian-kelly-fired/
 
-**Jaylen Brown says winless Celtics need to fix defensive rebounding problems**\
-`Through three games, Boston's defensive rebound rate ranks last in the league at 58.8 percent.`\
+**Jaylen Brown: Winless Celtics need to fix defensive rebounding problems**\
+`Through three games, Boston's defensive rebounding rate ranks last in the league at 58.8 percent.`\
 https://nytimes.com/athletic/6752583/2025/10/26/jaylen-brown-celtics-defensive-rebounding/
 
 **The lesson to learn from Brian Kelly's LSU tenure: Don't just hire the big name**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/26/arts/television/it-welcome-to-derry-recap-season-
 **Tyler Huntley helps breathe life into a Ravens season that was headed off the rails**\
 `Huntley, in his third stint with Baltimore, led the offense in a game the team needed to keep its playoff hopes alive this season.`\
 https://nytimes.com/athletic/6752409/2025/10/26/tyler-huntley-ravens-season-win-bears/
-
-**Jets’ first win comes with tears, screams and, for once, a mastery of the unexpected**\
-`Justin Fields and Breece Hall — who provided a trick play touchdown — fueled a thrilling first victory for Aaron Glenn.`\
-https://nytimes.com/athletic/6752596/2025/10/26/new-york-jets-win-cincinnati-bengals/
 

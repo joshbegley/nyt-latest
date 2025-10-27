@@ -1,3 +1,7 @@
+**Skidding Wild rally to force overtime, but Celebrini does them in: Takeaways**\
+`Despite having the puck for almost the entirety of overtime, the Wild couldn't complete the comeback against the Sharks.`\
+https://nytimes.com/athletic/6752268/2025/10/26/wild-kaprizov-giveaways-hartman-injury-sharks/
+
 **LSU job profile with Brian Kelly out: Anything can happen in a coaching search like this**\
 `LSU abruptly firing Kelly opens one of college football's most prestigious jobs, where the three most recent coaches won national titles.`\
 https://nytimes.com/athletic/6752705/2025/10/26/lsu-football-coaching-search-brian-kelly-fired/

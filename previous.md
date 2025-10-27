@@ -1,3 +1,7 @@
+**Skidding Wild rally to force overtime, but Celebrini does them in: Takeaways**\
+`Despite having the puck for almost the entirety of overtime, the Wild couldn't complete the comeback against the Sharks.`\
+https://nytimes.com/athletic/6752268/2025/10/26/wild-kaprizov-giveaways-hartman-injury-sharks/
+
 **LSU job profile with Brian Kelly out: Anything can happen in a coaching search like this**\
 `LSU abruptly firing Kelly opens one of college football's most prestigious jobs, where the three most recent coaches won national titles.`\
 https://nytimes.com/athletic/6752705/2025/10/26/lsu-football-coaching-search-brian-kelly-fired/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6752409/2025/10/26/tyler-huntley-ravens-season-win-
 **Jets’ first win comes with tears, screams and, for once, a mastery of the unexpected**\
 `Justin Fields and Breece Hall — who provided a trick play touchdown — fueled a thrilling first victory for Aaron Glenn.`\
 https://nytimes.com/athletic/6752596/2025/10/26/new-york-jets-win-cincinnati-bengals/
-
-**Bills win big, but wide receiver issues remain while defensive tackle injuries pile up**\
-`Some of the wide receiver numbers out of the blowout win are shocking.`\
-https://nytimes.com/athletic/6752393/2025/10/26/bills-panthers-win-wide-receiver-ed-oliver-injury/
 
