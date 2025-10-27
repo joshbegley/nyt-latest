@@ -1,3 +1,7 @@
+**USWNT returns to basics, beating Portugal 3-1 in rematch**\
+`Coach Emma Hayes said the performance reminded the U.S. of how it can play.`\
+https://nytimes.com/athletic/6752440/2025/10/26/uswnt-portugal-bounce-back-win/
+
 **Cam Skattebo will be tough for Giants to replace in more ways than one**\
 `Skattebo suffered a dislocated ankle in Sunday's loss to the Eagles. “I was devastated,” said Jaxson Dart, his QB and fellow rookie.`\
 https://nytimes.com/athletic/6752281/2025/10/26/cam-skattebo-giants-ankle-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6752188/2025/10/26/titans-colts-score-result-takeaw
 **How to watch Blue Jays at Dodgers: World Series Game 3 Time, TV, streaming**\
 `Find out how to watch the Toronto Blue Jays play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6752453/2025/10/26/blue-jays-vs-dodgers-stream-how-to-watch-oct-27/
-
-**Bears can't contain Ravens QB Tyler Huntley as their takeaway magic runs out**\
-`Down two starters, the Bears defense didn't do enough to affect Lamar Jackson's backup as their takeaway streak — and win streak — ended.`\
-https://nytimes.com/athletic/6752224/2025/10/26/bears-defense-ravens-tyler-huntley/
 
