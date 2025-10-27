@@ -1,3 +1,7 @@
+**Climate Factors Make Jamaica Especially Vulnerable to Hurricane Melissa**\
+`More frequent and intense storms, sea-level rise and extensive rainfall fueled by climate change mean the island nation is likely to be hit especially hard by this week’s storm.`\
+https://nytimes.com/2025/10/27/climate/hurricane-melissa-climate-change.html
+
 **NBA reviewing injury reporting in light of FBI illegal gambling probe**\
 `The NBA is reviewing its rules regarding injury announcements, as well as how it educates league personnel and players.`\
 https://nytimes.com/athletic/6754247/2025/10/27/nba-injury-reporting-indictments-review/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6754352/2025/10/27/arch-manning-injury-status-texas
 **Senior Living: Real Estate and Aging**\
 `The changing nature of retirement communities, intergenerational housing and aging in place as America prepares for the “silver tsunami.”`\
 https://nytimes.com/spotlight/real-estate-news-seniors
-
-**Scoop City: Risers and fallers after Sunday of Week 8**\
-`Denver stays on track to win the AFC West, Justin Fields and Mike McDaniel get badly-needed wins and Cam Ward calls out his coach`\
-https://nytimes.com/athletic/6754434/2025/10/27/nfl-week-8-risers-fallers-broncos-ravens-drake-maye-scoop-city/
 
