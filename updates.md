@@ -1,3 +1,7 @@
+**Word of the Day: neophyte**\
+`This word has appeared in 46 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/27/learning/word-of-the-day-neophyte.html
+
 **Pino's indiscipline cost Palace dear but patience is required**\
 `The Spaniard’s bright start has faded as Palace have found life difficult following their 19-game unbeaten run coming to an end`\
 https://nytimes.com/athletic/6745318/2025/10/27/yeremy-pino-crystal-palace/
