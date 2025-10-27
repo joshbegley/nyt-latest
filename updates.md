@@ -1,3 +1,11 @@
+**TAFC: Yamal, Vinicius Jr and police chaos in Clasico. Plus: Messi still making difference**\
+`Today in TAFC: Unpicking the chaos in Real Madrid's 2-1 win over Barcelona. Plus: Why Messi is still so vital to Inter Miami after new deal`\
+https://nytimes.com/athletic/6753442/2025/10/27/yamal-vinicius-jr-police-clasico-messi-tafc/
+
+**Is A.I. a Bubble?**\
+`We explain the fears on Wall Street.`\
+https://nytimes.com/2025/10/27/briefing/is-ai-a-bubble.html
+
 **Path to the Winter Olympics: U.S. figure skating, women's Alpine open with a bang**\
 `U.S. figure skating is in its best position in years, American women impressed in the Alpine opener, and more as the Olympic season begins.`\
 https://nytimes.com/athletic/6750935/2025/10/27/2026-winter-olympics-amber-glenn-mikaela-shiffrin-marco-odermatt/
