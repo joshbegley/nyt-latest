@@ -2,7 +2,7 @@
 `Investors sent major global indexes higher on optimism that President Trump and China’s top leader, Xi Jinping, could reach a wider agreement this week.`\
 https://nytimes.com/2025/10/27/business/dealbook/china-trade-deal-market-rally.html
 
-**De Bruyne facing lengthy spell on the sidelines with thigh tear**\
+**De Bruyne facing lengthy spell on the sidelines with hamstring injury**\
 `De Bruyne clutched the back of his right leg immediately after opening the scoring from the spot in the win over Inter Milan.`\
 https://nytimes.com/athletic/6753679/2025/10/27/kevin-de-bruyne-injury-napoli/
 
