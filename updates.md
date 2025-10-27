@@ -1,3 +1,11 @@
+**College football Week 10 odds: Big prestige games that have lost some luster**\
+`The college football season hits November with three top-25 matchups and a pair of prestige rivalries that lost some luster.`\
+https://nytimes.com/athletic/6754122/2025/10/27/college-football-week-10-odds-ohio-state-penn-state/
+
+**What to Expect From Hurricane Melissa as It Makes Landfall**\
+`The storm is forecast to hit Jamaica as soon as Monday night before moving on to Cuba.`\
+https://nytimes.com/2025/10/27/weather/hurricane-melissa-jamaica-forecast.html
+
 **Maple Leafs GM delivers update on Joseph Woll's return**\
 `Brad Treliving said it isn’t unreasonable to expect to see Woll play conditioning games with the AHL's Toronto Marlies.`\
 https://nytimes.com/athletic/6754166/2025/10/27/leafs-joseph-woll-update-treliving/

@@ -1,3 +1,11 @@
+**College football Week 10 odds: Big prestige games that have lost some luster**\
+`The college football season hits November with three top-25 matchups and a pair of prestige rivalries that lost some luster.`\
+https://nytimes.com/athletic/6754122/2025/10/27/college-football-week-10-odds-ohio-state-penn-state/
+
+**What to Expect From Hurricane Melissa as It Makes Landfall**\
+`The storm is forecast to hit Jamaica as soon as Monday night before moving on to Cuba.`\
+https://nytimes.com/2025/10/27/weather/hurricane-melissa-jamaica-forecast.html
+
 **Maple Leafs GM delivers update on Joseph Woll's return**\
 `Brad Treliving said it isn’t unreasonable to expect to see Woll play conditioning games with the AHL's Toronto Marlies.`\
 https://nytimes.com/athletic/6754166/2025/10/27/leafs-joseph-woll-update-treliving/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6754153/2025/10/27/bills-ed-oliver-biceps-defensive
 **Fantasy football Week 8 recap: Christian Watson debuts, Tyrone Tracy is a must-add**\
 `Jake Ciely's Week 8 recap podcast featuring early waiver suggestions Tyrone Tracy, Dylan Sampson and more. `\
 https://nytimes.com/athletic/6754119/2025/10/27/fantasy-football-week-8-recap-and-early-waivers-speed-run-christian-watson-tyrone-tracy-and-more/
-
-**At Vogue World Los Angeles, Lights, Camera, Corporate Sponsors**\
-`Gavin Newsom, Anna Wintour, Doja Cat and a handful of Hollywood stars came to celebrate Tinseltown and all its fashion.`\
-https://nytimes.com/2025/10/27/style/vogue-world-los-angeles.html
-
-**Ranking college football's open coaching jobs: LSU, Penn State or Florida?**\
-`This could be the most active coaching carousel college football has seen in many years.`\
-https://nytimes.com/athletic/6662286/2025/10/27/college-football-open-coaching-jobs-rankings/
 
