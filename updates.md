@@ -1,3 +1,11 @@
+**With Springer set to hear more boos, both managers weigh in ahead of Game 3**\
+`Eight years after the Astros beat the Dodgers in the 2017 Fall Classic, fans in L.A. are still likely to let that series' MVP hear it.`\
+https://nytimes.com/athletic/6755120/2025/10/27/george-springer-blue-jays-dodgers-world-series-boos/
+
+**Amazon Braces for Major Cuts to Its White-Collar Work Force**\
+`The company is looking to cut costs starting this week as it continues to spend aggressively on artificial intelligence. Another round of cuts is expected in January.`\
+https://nytimes.com/2025/10/27/technology/amazon-layoffs.html
+
 **More than one-sixth of Canada's population watched Blue Jays-Dodgers in Game 1**\
 `During the regular season, Sportsnet averaged 906,800 viewers per game, up 51 percent over last season. `\
 https://nytimes.com/athletic/6755062/2025/10/27/tv-ratings-blue-jays-world-series-game-1/
