@@ -1,40 +1,40 @@
-**TAFC: Yamal, Vinicius Jr and police chaos in Clasico. Plus: Messi still making difference**\
-`Today in TAFC: Unpicking the chaos in Real Madrid's 2-1 win over Barcelona. Plus: Why Messi is still so vital to Inter Miami after new deal`\
-https://nytimes.com/athletic/6753442/2025/10/27/yamal-vinicius-jr-police-clasico-messi-tafc/
+**Ben Rice's swing-change success may have earned him Yankees' Opening Day starting job**\
+`After a swing change propelled him to a breakout season, Rice may deserve a shot at the Yankees’ full-time starting first base job in 2026.`\
+https://nytimes.com/athletic/6744396/2025/10/27/ben-rice-swing-change-yankees-first-base-2026/
 
-**Is A.I. a Bubble?**\
-`We explain the fears on Wall Street.`\
-https://nytimes.com/2025/10/27/briefing/is-ai-a-bubble.html
+**Phillies mailbag: 2026 payroll, adding a righty bat, Justin Crawford's role**\
+`Where will the Phillies' 2026 payroll land? Not counting Kyle Schwarber and J.T. Realmuto, they have almost $40M in departing free agents.`\
+https://nytimes.com/athletic/6747514/2025/10/27/phillies-2026-payroll-offseason-moves/
 
-**Path to the Winter Olympics: U.S. figure skating, women's Alpine open with a bang**\
-`U.S. figure skating is in its best position in years, American women impressed in the Alpine opener, and more as the Olympic season begins.`\
-https://nytimes.com/athletic/6750935/2025/10/27/2026-winter-olympics-amber-glenn-mikaela-shiffrin-marco-odermatt/
+**After Detroit debacle, Blues coach Jim Montgomery keeps the faith: 'I know it's coming'**\
+`The Blues, who surrendered a 4-0 lead in a 6-4 loss to Detroit Saturday, have lost four of their last five games.`\
+https://nytimes.com/athletic/6751408/2025/10/27/blues-montgomery-coaching-red-wings/
 
-**Canes are no strangers to chasing big names. Is more to come for another run?**\
-`The Hurricanes are off to yet another great start to the regular season, but everyone in Carolina has one eye on next spring.`\
-https://nytimes.com/athletic/6751602/2025/10/27/carolina-hurricanes-tulsky-trade-stanley-cup/
+**Red Sox have 2 goals to help Kristian Campbell get on track: Rest and strength**\
+`The Red Sox see the offseason as the perfect time for Campbell to reset and reboot after a tumultuous rookie season.`\
+https://nytimes.com/athletic/6747578/2025/10/27/kristian-campbell-red-sox-offseason/
 
-**North Carolina's struggles continue under Bill Belichick — is it talent or scheme?**\
-`How many good players do the Tar Heels truly have? Not many, especially when it comes to the offensive skill positions.`\
-https://nytimes.com/athletic/6744320/2025/10/27/north-carolina-football-bill-belichick-roster/
+**WNBA mailbag: CBA negotiation, free agency and expansion draft answers**\
+`What can be done to improve WNBA officiating? Our expert Ben Pickman answers readers' questions.`\
+https://nytimes.com/athletic/6748534/2025/10/27/wnba-offseason-mailbag-cba-free-agency/
 
-**Women's college basketball 2025-26 preseason top 25: Can anyone contend with UConn?**\
-`Will South Carolina win the SEC? Which young team will step up? Sabreena Merchant breaks down the college basketball landscape.`\
-https://nytimes.com/athletic/6747963/2025/10/27/womens-college-basketball-preseason-top-25/
+**The sports equinox is back. Here's how to watch all 4 leagues on Monday**\
+`This quasi-holiday happens about once a year, when North America's "big four" leagues all have games on the same night.`\
+https://nytimes.com/athletic/6744212/2025/10/27/sports-equinox-2025-world-series-nfl-nba-nhl-schedule/
 
-**Monday Morning Leafs Report: Is this October like all the rest?**\
-`This October looks similar to previous ones, yet something feels a little different, a little more precarious, a little more uncertain.`\
-https://nytimes.com/athletic/6751341/2025/10/27/maple-leafs-october-monday-morning-leafs-report/
+**Demidov’s eyes, defending leads, Laine’s absence: Canadiens weekly notebook**\
+`Also in this week's notebook: Sam Montembeault's thought process through his struggles and Oliver Kapanen's ambidextrous faceoffs.`\
+https://nytimes.com/athletic/6752744/2025/10/27/canadiens-demidov-laine-montembeault-lines/
 
-**The Pulse: The saddest NFL fan bases after Week 8**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6753041/2025/10/27/nfl-week-8-browns-steelers-the-pulse/
+**'We are in this together': Bill Guerin meets with the captains about the Wild's poor start**\
+`"I'm concerned because it's very fixable," Guerin said. "I'm concerned because we're not playing for our identity.”`\
+https://nytimes.com/athletic/6752993/2025/10/27/bill-guerin-minnesota-wild-slump-start/
 
-**NHL weekend rankings: Wild, Penguins, and 5 early surprises I'm starting to buy**\
-`It is (say the line!) still early, but some of the trends around the league sure look like they might stick around long-term.`\
-https://nytimes.com/athletic/6752657/2025/10/27/nhl-weekend-rankings-wild-penguins-early-surprises/
+**The Dodgers are eerily quiet at the plate: Here's how they plan to get rolling**\
+`The Dodgers might bench the struggling Andy Pages in hopes of getting more production from the bottom of the lineup.`\
+https://nytimes.com/athletic/6752982/2025/10/27/shohei-ohtani-dodgers-world-series-mlb-game3/
 
-**Commanders at Chiefs on MNF: Mahomes' MVP push, sports equinox and broadcast props**\
-`This week's MNF showcase has the surging Patrick Mahomes and the shorthanded Washington Commanders. It's part of the sports equinox, too.`\
-https://nytimes.com/athletic/6747952/2025/10/27/commanders-chiefs-mahomes-daniels-injury-mnf-how-to-watch/
+**Analyzing the Lions' offense at the bye: Jared Goff sharp leading high-scoring unit**\
+`Detroit's offense ranks third in scoring offense (30.7), fifth in yards per play (5.9) and ninth in yards per game (357.3).`\
+https://nytimes.com/athletic/6749812/2025/10/27/lions-offense-jared-goff-amon-ra-st-brown/
 
