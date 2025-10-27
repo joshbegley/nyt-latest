@@ -1,3 +1,11 @@
+**Madrid's Carvajal to undergo keyhole surgery on knee injury**\
+`The 33-year-old Spain international felt discomfort following Madrid's Clasico victory over Barcelona before undergoing tests on Monday.`\
+https://nytimes.com/athletic/6754736/2025/10/27/dani-carvajal-injury-real-madrid/
+
+**Pig Kidney Removed From Transplant Patient After Nine Months**\
+`Tim Andrews, 67, lived with a genetically modified organ longer than any other recipient.`\
+https://nytimes.com/2025/10/27/health/pig-kidney-tim-andrews.html
+
 **How to watch Nuggets vs. Timberwolves: Time, TV, streaming**\
 `Find out how to watch the Denver Nuggets play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6754847/2025/10/27/nuggets-vs-timberwolves-stream-how-to-watch-oct-27/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6754835/2025/10/27/hawks-vs-bulls-stream-how-to-wat
 **How to watch Celtics vs. Pelicans: Time, TV, streaming**\
 `Find out how to watch the Boston Celtics play the New Orleans Pelicans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6754833/2025/10/27/celtics-vs-pelicans-stream-how-to-watch-oct-27/
-
-**How to watch Nets vs. Rockets: Time, TV, streaming**\
-`Find out how to watch the Brooklyn Nets play the Houston Rockets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6754832/2025/10/27/nets-vs-rockets-stream-how-to-watch-oct-27/
-
-**How to watch Thunder vs. Mavericks: Time, TV, streaming**\
-`Find out how to watch the Oklahoma City Thunder play the Dallas Mavericks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6754831/2025/10/27/thunder-vs-mavericks-stream-how-to-watch-oct-27/
 
