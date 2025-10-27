@@ -1,3 +1,5 @@
+
+
 **Climate Factors Make Jamaica Especially Vulnerable to Hurricane Melissa**\
 `More frequent and intense storms, sea-level rise and extensive rainfall fueled by climate change mean the island nation is likely to be hit especially hard by this week’s storm.`\
 https://nytimes.com/2025/10/27/climate/hurricane-melissa-climate-change.html
