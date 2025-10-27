@@ -1,3 +1,7 @@
+**Jets’ first win comes with tears, screams and, for once, a mastery of the unexpected**\
+`Justin Fields and Breece Hall — who provided a trick play touchdown — fueled a thrilling first victory for Aaron Glenn.`\
+https://nytimes.com/athletic/6752596/2025/10/26/new-york-jets-win-cincinnati-bengals/
+
 **Bills win big, but wide receiver issues remain while defensive tackle injuries pile up**\
 `Some of the wide receiver numbers out of the blowout win are shocking.`\
 https://nytimes.com/athletic/6752393/2025/10/26/bills-panthers-win-wide-receiver-ed-oliver-injury/
