@@ -1,3 +1,15 @@
+**Feldman's candidates to replace Brian Kelly at LSU, from Kiffin to Sumrall**\
+`There aren’t expected to be a lot of big-name candidates available, especially ones who have won big in the SEC.`\
+https://nytimes.com/athletic/6752762/2025/10/26/lsu-coaching-candidates-brian-kelly-fired/
+
+**Winless Celtics need to fix defensive rebounding problems, Jaylen Brown says**\
+`Through three games, they rank last in the league defensive rebound rate at 58.8 percent`\
+https://nytimes.com/athletic/6752583/2025/10/26/jaylen-brown-celtics-defensive-rebounding/
+
+**The lesson LSU and others should learn from the Brian Kelly tenure: Don't just hire the big name**\
+`Kelly was never the right fit at LSU, a lesson the school should heed as it goes looking again.`\
+https://nytimes.com/athletic/6752707/2025/10/26/brian-kelly-lsu-firing-decision-scott-woodward/
+
 **'Finally!': Saquon Barkley shows 2024 version never left with 150-yard performance vs. Giants**\
 `Barkley hadn't had one of his signature breakout games this season.`\
 https://nytimes.com/athletic/6752499/2025/10/26/eagles-giants-saquon-barkley-rushing-performance/
