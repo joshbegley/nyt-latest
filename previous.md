@@ -1,3 +1,7 @@
+**Arsenal don't need to produce classics every week – this win was about the bigger picture**\
+`This hard-fought victory over Crystal Palace was reflective of Arsenal’s wider qualities and couldn't have come at a more opportune moment`\
+https://nytimes.com/athletic/6751406/2025/10/27/arsenal-crystal-palace-premier-league-win/
+
 **Breaking down Liverpool's serious tactical problems**\
 `The problems with Arne Slot's side run way deeper than this run, and were masked in early-season six-game winning streak`\
 https://nytimes.com/athletic/6750202/2025/10/27/liverpools-brentford-slot-system-problems/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6752625/2025/10/27/chucky-lozano-left-out-again-but
 **The Briefing: Is it Arsenal's title to lose? Should Slot be a bit less open? Are Wolves doomed?**\
 `Analysing the key talking points from the Premier League weekend - including Arsenal's title, Slot's openness and Wolves' inevitable woes`\
 https://nytimes.com/athletic/6751807/2025/10/27/arsenal-title-premier-league/
-
-**Austin Reaves scores career-high 51 points as short-handed Lakers beat Kings**\
-`Without two of their stars, the incredibly short-handed Lakers leaned on Reaves to deliver their first road win in Sacramento.`\
-https://nytimes.com/athletic/6753090/2025/10/27/austin-reaves-lakers-kings-51-points/
 

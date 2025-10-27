@@ -1,3 +1,11 @@
+**Le Tissier has made case for England centre-back role - her talent there should not be wasted**\
+`Le Tissier should be at the top of the pecking order among Wiegman’s centre-back options. The problem is England lack depth at right-back`\
+https://nytimes.com/athletic/6750930/2025/10/27/maya-le-tissier-england-centre-back/
+
+**Sean Dyche and a stark lesson in the challenge he faces at Forest**\
+`After the high of beating Porto, work is needed to get out of the Premier League relegation zone`\
+https://nytimes.com/athletic/6751629/2025/10/27/sean-dyche-nottingham-forest-lesson/
+
 **Arsenal don't need to produce classics every week – this win was about the bigger picture**\
 `This hard-fought victory over Crystal Palace was reflective of Arsenal’s wider qualities and couldn't have come at a more opportune moment`\
 https://nytimes.com/athletic/6751406/2025/10/27/arsenal-crystal-palace-premier-league-win/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6752355/2025/10/27/fantasy-football-jonathan-taylor
 **How Spurs bullied Pickford and Everton to dominate them at two crucial corners**\
 `Everton no longer have a set-piece coach of their own but their defensive record had been the best in the league - until Sunday`\
 https://nytimes.com/athletic/6752017/2025/10/27/everton-pickford-spurs-corners/
-
-**'Chucky' Lozano left out again, but San Diego makes winning start in MLS playoffs**\
-`San Diego won Sunday despite the absence of Lozano, who was left off the game day roster following a "verbal altercation."`\
-https://nytimes.com/athletic/6752625/2025/10/27/chucky-lozano-left-out-again-but-san-diego-make-winning-start-in-mls-playoffs/
-
-**The Briefing: Is it Arsenal's title to lose? Should Slot be a bit less open? Are Wolves doomed?**\
-`Analysing the key talking points from the Premier League weekend - including Arsenal's title, Slot's openness and Wolves' inevitable woes`\
-https://nytimes.com/athletic/6751807/2025/10/27/arsenal-title-premier-league/
 

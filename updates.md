@@ -1,3 +1,7 @@
+**Arsenal don't need to produce classics every week – this win was about the bigger picture**\
+`This hard-fought victory over Crystal Palace was reflective of Arsenal’s wider qualities and couldn't have come at a more opportune moment`\
+https://nytimes.com/athletic/6751406/2025/10/27/arsenal-crystal-palace-premier-league-win/
+
 **Breaking down Liverpool's serious tactical problems**\
 `The problems with Arne Slot's side run way deeper than this run, and were masked in early-season six-game winning streak`\
 https://nytimes.com/athletic/6750202/2025/10/27/liverpools-brentford-slot-system-problems/
