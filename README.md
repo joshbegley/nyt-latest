@@ -1,3 +1,7 @@
+**The Supreme Court Owes the Country an Explanation for Its Big Decisions**\
+`The Times editorial board critiques the Supreme Court’s overuse of the emergency docket to deliver consequential decisions without explaining its reasoning.`\
+https://nytimes.com/video/opinion/100000010479597/the-supreme-court-owes-the-country-an-explanation-for-its-big-decisions.html
+
 **Vinicius Jr's Clasico tantrum and what it says about his relationship with Alonso**\
 `The Real Madrid star and his new coach have not got off to an idyllic start, as became clear to the world in their win against Barcelona`\
 https://nytimes.com/athletic/6753367/2025/10/27/vinicius-jr-real-madrid-alonso-clasico/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6753346/2025/10/27/submit-a-question-for-stewart-ma
 **These 3 letters in Chiefs' facility have sparked Patrick Mahomes — and K.C.'s offense**\
 `The Chiefs have worn new "AAF" shirts the last few weeks. Here's how the acronym has helped the team unlock more from Mahomes.`\
 https://nytimes.com/athletic/6749648/2025/10/27/chiefs-patrick-mahomes-aggressive-offense/
-
-**The Giants have a top-heavy payroll, but they should still have flexibility this offseason**\
-`The Giants won't threaten the luxury tax, more than likely, but they will still have flexibility to go after players of their choosing.`\
-https://nytimes.com/athletic/6732161/2025/10/27/san-francisco-giants-2026-free-agency/
 
