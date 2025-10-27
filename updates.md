@@ -1,3 +1,15 @@
+**Potentially available running backs who can save your fantasy football season**\
+`KC Joyner ranks running backs who could save your season after Week 8 gave us clarity and injuries. `\
+https://nytimes.com/athletic/6753571/2025/10/27/fantasy-football-running-back-rankings-second-half/
+
+**World’s Oldest President on Record Wins Eighth Term**\
+`At the age of 92, Paul Biya secured an eighth term as president of Cameroon that, if completed, will last until he is nearly 100. Many young Cameroonians have refused to accept the results.`\
+https://nytimes.com/video/world/africa/100000010483233/worlds-oldest-president-on-record-wins-eighth-term.html
+
+**Reflections on a Ballroom, and an East Wing in Ruins**\
+`Sampling the outpouring of responses to a column by Ross Douthat about the East Wing and the ballroom. Also: Everyday acts of grace; Canada and President Trump.`\
+https://nytimes.com/2025/10/27/opinion/white-house-east-wing-ballroom-trump.html
+
 **Trapped Between U.S. and China, South Korea Feels Trade War’s Pressure**\
 `A preliminary tariff deal with President Trump called for a large investment in the United States, while China has warned Seoul not to side with Washington.`\
 https://nytimes.com/2025/10/27/business/south-korea-trump-tariffs.html
