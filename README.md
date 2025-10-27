@@ -1,3 +1,7 @@
+**Brian Daboll needs a 9-game master class to save the Giants and himself**\
+`Daboll will need to be an in-his-prime Bill Belichick, with a little in-his-prime Nick Saban sprinkled in to help New York. `\
+https://nytimes.com/athletic/6752348/2025/10/26/brian-daboll-needs-next-9-games-giants/
+
 **'I feel like I could go again': James Cook's historic day lifts Bills in cathartic win vs. Panthers**\
 `Cook ran 19 times for 216 yards and two touchdowns in the blowout.`\
 https://nytimes.com/athletic/6752297/2025/10/26/bills-panthers-james-cook-rushing-win/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/26/world/asia/japan-trump-takaichi.html
 **Blame injuries for the loss in Houston, but the 49ers won't: 'They kicked our ass'**\
 `"We've got to take it like men and come back, hopefully a little pissed off, and play better next week," Kyle Shanahan said.`\
 https://nytimes.com/athletic/6752236/2025/10/26/49ers-injuries-texans-kyle-shanahan/
-
-**Cowboys-Broncos takeaways: Denver wins fifth straight as Dallas sputters**\
-`The Broncos asserted their dominance over the Cowboys and AFC West in a big win at Mile High.`\
-https://nytimes.com/athletic/6744122/2025/10/26/cowboys-broncos-score-result-takeaways-week-8/
 
