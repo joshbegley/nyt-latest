@@ -1,3 +1,7 @@
+**Chris Armas out as Colorado Rapids manager**\
+`Colorado joins the growing list of MLS clubs in need of a new manager after not renewing Armas's deal`\
+https://nytimes.com/athletic/6754682/2025/10/27/chris-armas-colorado-rapids-manager-part-ways/
+
 **Russia Aims Drone Attacks at Civilians, a War Crime, U.N. Inquiry Says**\
 `In the city of Kherson, in southern Ukraine, small drones routinely target ordinary people by dropping hand grenades, and record video documenting their attacks, a U.N. commission reported.`\
 https://nytimes.com/2025/10/27/world/europe/russia-drones-target-civilians.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/27/us/politics/trump-china-trade-deal-talks.html
 **NFL overreactions: Ravens-Dolphins is going to be a shoot-out**\
 `Toby Mergler makes early Week 9 picks wildly over-indexing on vibes, small sample sizes and comparisons to pop culture classics.`\
 https://nytimes.com/athletic/6754430/2025/10/27/nfl-overreaction-monday-week-9/
-
-**Search Underway After Crew Member Goes Overboard on Viking Cruise**\
-`The Italian Coast Guard was assisting in the search, the cruise company said. The cruise was taking passengers from Greece to Italy.`\
-https://nytimes.com/2025/10/27/world/europe/crew-member-search-viking-star-cruise.html
 
