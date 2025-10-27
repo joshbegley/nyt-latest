@@ -1,3 +1,7 @@
+**Jets’ first win comes with tears, screams and, for once, a mastery of the unexpected**\
+`Justin Fields and Breece Hall — who provided a trick play touchdown — fueled a thrilling first victory for Aaron Glenn.`\
+https://nytimes.com/athletic/6752596/2025/10/26/new-york-jets-win-cincinnati-bengals/
+
 **Bills win big, but wide receiver issues remain while defensive tackle injuries pile up**\
 `Some of the wide receiver numbers out of the blowout win are shocking.`\
 https://nytimes.com/athletic/6752393/2025/10/26/bills-panthers-win-wide-receiver-ed-oliver-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6752311/2025/10/26/justin-fields-crying-jets-win/
 **Brian Daboll needs a 9-game master class to save the Giants and himself**\
 `Daboll will need to be an in-his-prime Bill Belichick, with a little in-his-prime Nick Saban sprinkled in to help New York. `\
 https://nytimes.com/athletic/6752348/2025/10/26/brian-daboll-needs-next-9-games-giants/
-
-**'I feel like I could go again': James Cook's historic day lifts Bills in cathartic win vs. Panthers**\
-`Cook ran 19 times for 216 yards and two touchdowns in the blowout.`\
-https://nytimes.com/athletic/6752297/2025/10/26/bills-panthers-james-cook-rushing-win/
 
