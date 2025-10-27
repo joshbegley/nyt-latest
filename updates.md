@@ -1,3 +1,7 @@
+**Cuba’s president hits back at critics of his government’s storm preparation.**\
+`By Emiliano Rodríguez Mega`\
+https://nytimes.com/live/2025/10/27/weather/hurricane-melissa-jamaica/cubas-president-hits-back-at-critics-of-his-governments-storm-preparation
+
 **Rodgers quits Celtic, branded 'toxic, misleading'; replaced by O’Neill**\
 `It comes a day after the Scottish champions fell to a 3-1 defeat at Hearts, opening up an eight-point gap at the top of the league.`\
 https://nytimes.com/athletic/6751082/2025/10/27/celtic-manager-martin-oneill-rodgers-leaves/
