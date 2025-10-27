@@ -1,3 +1,7 @@
+**Anthony Hopkins Thinks His Movies Aren’t Important**\
+`The actor Anthony Hopkins reflected on some of his best-known performances in a conversation with David Marchese on “The Interview.”`\
+https://nytimes.com/video/podcasts/100000010483251/anthony-hopkins-thinks-his-movies-arent-important.html
+
 **Anthony Hopkins on Being Estranged From His Daughter**\
 `On “The Interview,” David Marchese asked the actor Anthony Hopkins about his painful estrangement from his only child.`\
 https://nytimes.com/video/podcasts/100000010483284/anthony-hopkins-on-being-estranged-from-his-daughter.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/27/science/archaeology-spain-skulls.html
 **Can You Match These First Lines to Their Novels?**\
 `The opening line of a book is your first step into the story. See how many you remember from these notable works published in the 1980s.`\
 https://nytimes.com/interactive/2025/10/27/books/review/1980s-novels-quiz.html
-
-**Anthony Jackson, Master of the Electric Bass, Is Dead at 73**\
-`Besides his work with pop stars and jazz greats, he is credited with helping to invent the six-string contrabass guitar.`\
-https://nytimes.com/2025/10/27/arts/music/anthony-jackson-dead.html
 
