@@ -1,3 +1,11 @@
+**How and Where the National Guard Has Deployed to U.S. Cities**\
+`See where the troops called upon by President Trump are working, what they are doing, and under whose authority.`\
+https://nytimes.com/interactive/2025/10/27/us/us-national-guard-deployments.html
+
+**Bills expect star DT Ed Oliver to be out indefinitely with torn biceps: Source**\
+`The defensive tackle group has been ravaged by injury this season, and Oliver's injury is a major setback for the Bills' defense.`\
+https://nytimes.com/athletic/6754153/2025/10/27/bills-ed-oliver-biceps-defensive-tackle-injury/
+
 **Fantasy football Week 8 recap: Christian Watson debuts, Tyrone Tracy is a must-add**\
 `Jake Ciely's Week 8 recap podcast featuring early waiver suggestions Tyrone Tracy, Dylan Sampson and more. `\
 https://nytimes.com/athletic/6754119/2025/10/27/fantasy-football-week-8-recap-and-early-waivers-speed-run-christian-watson-tyrone-tracy-and-more/

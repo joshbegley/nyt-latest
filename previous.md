@@ -1,3 +1,11 @@
+**How and Where the National Guard Has Deployed to U.S. Cities**\
+`See where the troops called upon by President Trump are working, what they are doing, and under whose authority.`\
+https://nytimes.com/interactive/2025/10/27/us/us-national-guard-deployments.html
+
+**Bills expect star DT Ed Oliver to be out indefinitely with torn biceps: Source**\
+`The defensive tackle group has been ravaged by injury this season, and Oliver's injury is a major setback for the Bills' defense.`\
+https://nytimes.com/athletic/6754153/2025/10/27/bills-ed-oliver-biceps-defensive-tackle-injury/
+
 **Fantasy football Week 8 recap: Christian Watson debuts, Tyrone Tracy is a must-add**\
 `Jake Ciely's Week 8 recap podcast featuring early waiver suggestions Tyrone Tracy, Dylan Sampson and more. `\
 https://nytimes.com/athletic/6754119/2025/10/27/fantasy-football-week-8-recap-and-early-waivers-speed-run-christian-watson-tyrone-tracy-and-more/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/27/business/south-korea-trump-tariffs.html
 **Lawsuit Plunges New York Into the National Gerrymandering Fight**\
 `A suit filed by an election law firm contends that the state’s 11th Congressional District, represented by a Republican, is drawn in a way that disenfranchises Black and Latino voters.`\
 https://nytimes.com/2025/10/27/nyregion/new-york-state-redistricting-lawsuit.html
-
-**Hurricane Melissa Strengthens to a Category 5 Storm**\
-`Officials warned that Hurricane Melissa, which intensified into a Category 5 storm early Monday morning, could cause catastrophic damage in Jamaica as it moves through the Caribbean.`\
-https://nytimes.com/video/world/americas/100000010483666/hurricane-melissa-jamaica-caribbean.html
-
-**Thiago Silva's son invited to England Under-15 training camp**\
-`Although both of his parents are Brazilian, FIFA rules him eligible as he has lived in the country since 2020.`\
-https://nytimes.com/athletic/6754040/2025/10/27/thiago-silva-son-england-brazil/
 
