@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6752281/2025/10/26/cam-skattebo-giants-ankle-injury
 https://nytimes.com/athletic/6751376/2025/10/26/eagles-giants-restore-red-zone-tight-end-dallas-goedert/
 
 **Despite career day by Myles Garrett, Browns couldn't keep up in loss to Patriots**\
-`The six-time All-Pro had a new career-high with five sacks, but New England still put up 32 points and won in blowout fashion. `\
+`The six-time All-Pro had a new career high with five sacks, but New England still put up 32 points and won in blowout fashion. `\
 https://nytimes.com/athletic/6752228/2025/10/26/browns-myles-garrett-sacks-patriots/
 
 **Justin Fields goes from 'crying' in his closet to leading Jets to first win**\
