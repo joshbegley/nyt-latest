@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: N.B.A. Scandal, Halloween Candy, Chicago Rat Hole**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/10/27/learning/27StudentNewsQuiz.html
+
 **Police Investigate Possible Arson at Home of Portland City Councilor**\
 `The police said a fire that damaged cars and a carport at the home of City Councilor Candace Avalos was “suspicious in nature.” No arrests have been made.`\
 https://nytimes.com/2025/10/27/us/candace-avalos-arson-portland-city-councilor.html
