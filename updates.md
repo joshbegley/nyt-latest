@@ -1,3 +1,7 @@
+**Dodgers' Mookie Betts wins 2025 Roberto Clemente Award**\
+`Betts started the 5050 Foundation which is dedicated to breaking barriers for underserved youth.`\
+https://nytimes.com/athletic/6755135/2025/10/27/mookie-betts-wins-roberto-clemente-award-dodgers/
+
 **Stephen Strasburg returns to San Diego State as a coach**\
 `Strasburg rose to stardom with the Aztecs before becoming a three-time MLB All-Star and MVP of the 2019 World Series.`\
 https://nytimes.com/athletic/6755046/2025/10/27/stephen-strasburg-san-diego-state-coach-mlb/

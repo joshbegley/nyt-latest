@@ -1,3 +1,7 @@
+**The storm’s strength grew out of warmer-than-usual Caribbean waters.**\
+`By Sachi Kitajima Mulkey`\
+https://nytimes.com/live/2025/10/27/weather/hurricane-melissa-jamaica/the-storms-strength-grew-out-of-warmer-than-usual-caribbean-waters
+
 **Dodgers' Mookie Betts wins 2025 Roberto Clemente Award**\
 `Betts started the 5050 Foundation which is dedicated to breaking barriers for underserved youth.`\
 https://nytimes.com/athletic/6755135/2025/10/27/mookie-betts-wins-roberto-clemente-award-dodgers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6754811/2025/10/27/ja-morant-grizzlies-comments-fac
 **Which Is Better, One Long Walk or Many Short Ones?**\
 `A new analysis is one of the first to study whether spacing steps out or consolidating them was linked to better health outcomes.`\
 https://nytimes.com/2025/10/27/well/move/long-short-walks-health.html
-
-**Cody ‘Beef’ Franke, Barstool Golf Influencer, Dies at 31**\
-`“Know when to attack and when to put on the brakes,” Mr. Franke said in one of his last online posts. Dave Portnoy, the Barstool Sports founder, said he died suddenly over the weekend.`\
-https://nytimes.com/2025/10/27/sports/cody-beef-franke-dead.html
 

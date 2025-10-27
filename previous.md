@@ -1,3 +1,7 @@
+**Dodgers' Mookie Betts wins 2025 Roberto Clemente Award**\
+`Betts started the 5050 Foundation which is dedicated to breaking barriers for underserved youth.`\
+https://nytimes.com/athletic/6755135/2025/10/27/mookie-betts-wins-roberto-clemente-award-dodgers/
+
 **Stephen Strasburg returns to San Diego State as a coach**\
 `Strasburg rose to stardom with the Aztecs before becoming a three-time MLB All-Star and MVP of the 2019 World Series.`\
 https://nytimes.com/athletic/6755046/2025/10/27/stephen-strasburg-san-diego-state-coach-mlb/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/27/well/move/long-short-walks-health.html
 **Cody ‘Beef’ Franke, Barstool Golf Influencer, Dies at 31**\
 `“Know when to attack and when to put on the brakes,” Mr. Franke said in one of his last online posts. Dave Portnoy, the Barstool Sports founder, said he died suddenly over the weekend.`\
 https://nytimes.com/2025/10/27/sports/cody-beef-franke-dead.html
-
-**Amazon Braces for Major Cuts to Its White-Collar Work Force**\
-`The company is looking to cut costs starting this week as it continues to spend aggressively on artificial intelligence. Another round of cuts is expected in January.`\
-https://nytimes.com/2025/10/27/technology/amazon-layoffs.html
 
