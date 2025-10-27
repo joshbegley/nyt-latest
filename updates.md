@@ -1,3 +1,15 @@
+**Can Faster Buses Really Be Free?**\
+`An analysis of the possible promise and fundamental tension in one of Zohran Mamdani’s big plans for New York.`\
+https://nytimes.com/interactive/2025/10/26/upshot/fast-free-buses.html
+
+**John Harbaugh on Ravens' handling of Lamar Jackson injury designation: 'Honest mistake'**\
+`Harbaugh, in his 18th season as Baltimore's head coach, said: "I'm not involved with those rules. I don't know those rules."`\
+https://nytimes.com/athletic/6752270/2025/10/26/john-harbaugh-ravens-lamar-jackson-injury-designation-mistake/
+
+**Japan’s New Leader Faces an Early Test: Winning Over Trump**\
+`As Prime Minister Sanae Takaichi seeks reassurance from President Trump on trade and security, she will likely play up her ties to Shinzo Abe, a mutual friend.`\
+https://nytimes.com/2025/10/26/world/asia/japan-trump-takaichi.html
+
 **Blame injuries for the loss in Houston, but the 49ers won't: 'They kicked our ass'**\
 `"We've got to take it like men and come back, hopefully a little pissed off, and play better next week," Kyle Shanahan said.`\
 https://nytimes.com/athletic/6752236/2025/10/26/49ers-injuries-texans-kyle-shanahan/
