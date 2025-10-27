@@ -1,3 +1,11 @@
+**Submit your Astros questions for Chandler Rome’s upcoming mailbag**\
+`Chandler Rome will answer readers' questions for an upcoming Astros mailbag. `\
+https://nytimes.com/athletic/6754337/2025/10/27/houston-astros-mailbag-questions-offseason/
+
+**This Is What the Future of the Democratic Party Should Be**\
+`Since their devastating defeat in the 2024 election, Democrats have been confronting the party’s shortcomings, including their failure to connect with the working class.`\
+https://nytimes.com/video/opinion/100000010479590/this-is-what-the-future-of-the-democratic-party-should-be.html
+
 **College football Week 10 odds: Big prestige games that have lost some luster**\
 `The college football season hits November with three top-25 matchups and a pair of prestige rivalries that lost some luster.`\
 https://nytimes.com/athletic/6754122/2025/10/27/college-football-week-10-odds-ohio-state-penn-state/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/27/business/john-dickerson-cbs-news-exit.html
 **How and Where the National Guard Has Deployed to U.S. Cities**\
 `See where the troops called upon by President Trump are working, what they are doing, and under whose authority.`\
 https://nytimes.com/interactive/2025/10/27/us/us-national-guard-deployments.html
-
-**Bills expect star DT Ed Oliver to be out indefinitely with torn biceps: Source**\
-`The defensive tackle group has been ravaged by injury this season, and Oliver's injury is a major setback for the Bills' defense.`\
-https://nytimes.com/athletic/6754153/2025/10/27/bills-ed-oliver-biceps-defensive-tackle-injury/
-
-**Fantasy football Week 8 recap: Christian Watson debuts, Tyrone Tracy is a must-add**\
-`Jake Ciely's Week 8 recap podcast featuring early waiver suggestions Tyrone Tracy, Dylan Sampson and more. `\
-https://nytimes.com/athletic/6754119/2025/10/27/fantasy-football-week-8-recap-and-early-waivers-speed-run-christian-watson-tyrone-tracy-and-more/
 

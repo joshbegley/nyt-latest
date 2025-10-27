@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6754122/2025/10/27/college-football-week-10-odds-oh
 https://nytimes.com/2025/10/27/weather/hurricane-melissa-jamaica-forecast.html
 
 **Maple Leafs GM delivers update on Joseph Woll's return**\
-`Brad Treliving said it isn’t unreasonable to expect to see Woll play conditioning games with the AHL's Toronto Marlies.`\
+`Brad Treliving said it isn't unreasonable to expect to see Woll play in conditioning games with the AHL's Toronto Marlies.`\
 https://nytimes.com/athletic/6754166/2025/10/27/leafs-joseph-woll-update-treliving/
 
 **Mavericks will finally retire former No. 1 pick Mark Aguirre’s jersey**\
