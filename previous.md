@@ -34,7 +34,7 @@ https://nytimes.com/issue/todayspaper/2025/10/27/todays-new-york-times
 `The new Apple TV show airs, and many Halloween episodes and movies are available to stream.`\
 https://nytimes.com/2025/10/27/arts/television/down-cemetery-road-tv-this-week.html
 
-**Peace in Gaza Comes Down to This**\
+**The Only Thing That Can Keep the Peace in Gaza**\
 `Washington must dedicate itself to making sure an international stabilization force is established for Gaza. It’s the linchpin.`\
 https://nytimes.com/2025/10/27/opinion/israel-hamas-gaza-peace.html
 
