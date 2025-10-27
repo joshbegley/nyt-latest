@@ -1,3 +1,11 @@
+**Mexico GP: Submit your questions for our F1 mailbag**\
+`What stood out to you on Sunday in Mexico City? `\
+https://nytimes.com/athletic/6752616/2025/10/26/f1-mexico-city-grand-prix-mailbag/
+
+**Bengals defense dooming another season, appears more lost than ever in loss to Jets**\
+`Cincinnati's offense put up 38 points and it still wasn't enough to overcome a defense that couldn't stop the previously 0-7 Jets.`\
+https://nytimes.com/athletic/6752520/2025/10/26/bengals-defense-loss-jets-al-golden/
+
 **USWNT returns to basics, beating Portugal 3-1 in rematch**\
 `Coach Emma Hayes said the performance reminded the U.S. of how it can play.`\
 https://nytimes.com/athletic/6752440/2025/10/26/uswnt-portugal-bounce-back-win/
@@ -10,7 +18,7 @@ https://nytimes.com/athletic/6752281/2025/10/26/cam-skattebo-giants-ankle-injury
 `Goedert's seven touchdown receptions lead all NFL tight ends.`\
 https://nytimes.com/athletic/6751376/2025/10/26/eagles-giants-restore-red-zone-tight-end-dallas-goedert/
 
-**Despite career day by Myles Garrett, Browns couldn't keep up in loss to Patriots**\
+**Myles Garrett's career day couldn't save Browns from another uninspiring loss**\
 `The six-time All-Pro had a new career high with five sacks, but New England still put up 32 points and won in blowout fashion. `\
 https://nytimes.com/athletic/6752228/2025/10/26/browns-myles-garrett-sacks-patriots/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6752297/2025/10/26/bills-panthers-james-cook-rushin
 **After Andy Dalton's dismal day, Bryce Young can't get back soon enough for Panthers**\
 `Andy Dalton had three costly turnovers and James Cook ran for 216 yards against Carolina's defense.`\
 https://nytimes.com/athletic/6752304/2025/10/26/panthers-andy-dalton-turnovers-loss-bills/
-
-**Titans-Colts takeaways: Daniel Jones, Jonathan Taylor torch Tennessee**\
-`Colts running back Jonathan Taylor looks like a league MVP candidate, and Indianapolis has won four straight for the first time since 2018.`\
-https://nytimes.com/athletic/6752188/2025/10/26/titans-colts-score-result-takeaways-week-8/
-
-**How to watch Blue Jays at Dodgers: World Series Game 3 Time, TV, streaming**\
-`Find out how to watch the Toronto Blue Jays play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6752453/2025/10/26/blue-jays-vs-dodgers-stream-how-to-watch-oct-27/
 
