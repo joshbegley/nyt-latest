@@ -1,3 +1,11 @@
+**Maple Leafs GM delivers update on Joseph Woll's return**\
+`Brad Treliving said it isn’t unreasonable to expect to see Woll play conditioning games with the AHL's Toronto Marlies.`\
+https://nytimes.com/athletic/6754166/2025/10/27/leafs-joseph-woll-update-treliving/
+
+**Mavericks will finally retire former No. 1 pick Mark Aguirre’s jersey**\
+`The Mavericks drafted Aguirre with the No. 1 pick in 1981, and in seven-plus seasons he was a three-time All-Star selection.`\
+https://nytimes.com/athletic/6754189/2025/10/27/mavericks-mark-aguirre-jersey-retirement-dallas/
+
 **‘Kissinger’ Review: What It Used to Mean to Make America Great**\
 `A PBS documentary profiles the storied diplomat who was obsessed, for better and worse, with keeping his adopted country safe during the Cold War.`\
 https://nytimes.com/2025/10/27/arts/television/kissinger-review-pbs.html
