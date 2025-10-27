@@ -1,3 +1,11 @@
+**Ravens' Lamar Jackson expected to return Thursday vs. Dolphins**\
+`“I feel very confident about it,” coach John Harbaugh said when asked about Jackson’s status for Thursday’s primetime matchup.`\
+https://nytimes.com/athletic/6755303/2025/10/27/lamar-jackson-week-9-return-ravens-dolphins-nfl/
+
+**What Do You and the N.Y.C. Mayoral Candidates Agree On?**\
+`Answer 14 questions and we’ll show you where you align with the three leading candidates for mayor of New York City.`\
+https://nytimes.com/interactive/2025/10/27/nyregion/nyc-mayor-quiz-mamdani-cuomo-sliwa.html
+
 **At Mamdani Rally, a Moment of Unity Goes Sideways for Hochul**\
 `Gov. Kathy Hochul received a tepid response from a stadium filled with Zohran Mamdani supporters, whose chants of “Tax the rich” forced her to stop her speech.`\
 https://nytimes.com/2025/10/27/nyregion/hochul-mamdani-rally.html
