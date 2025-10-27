@@ -1,3 +1,7 @@
+**Blackhawks start strong again but struggle to finish off Kings: Observations**\
+`The Blackhawks struggled to hit the net despite a strong push at the start of the game, and the Kings took advantage.`\
+https://nytimes.com/athletic/6752554/2025/10/26/blackhawks-power-play-turnovers-blashill-kings/
+
 **Dodgers' Dave Roberts clarifies ‘intent’ comments after extended travel day**\
 `The Dodgers were scheduled to work out at 5 p.m. at Dodger Stadium. They did not arrive until about that time.`\
 https://nytimes.com/athletic/6752848/2025/10/26/dodgers-blue-jays-world-series-dave-roberts-comments/
