@@ -1,3 +1,7 @@
+**Map: 6.0-Magnitude Earthquake Strikes Turkey**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/10/27/world/middleeast/earthquake-turkey.html
+
 **Weekly Student News Quiz: N.B.A. Scandal, Halloween Candy, Chicago Rat Hole**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/10/27/learning/27StudentNewsQuiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6754913/2025/10/27/vanderbilt-vs-texas-stream-how-t
 **How to watch Duke vs. Clemson: Time, TV, streaming**\
 `Find out how to watch the Duke Blue Devils play the Clemson Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6754911/2025/10/27/duke-vs-clemson-stream-how-to-watch-nov-1/
-
-**How to watch Louisville vs. Virginia Tech: Time, TV, streaming**\
-`Find out how to watch the Louisville Cardinals play the Virginia Tech Hokies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6754909/2025/10/27/louisville-vs-virginia-tech-stream-how-to-watch-nov-1/
 

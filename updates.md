@@ -1,3 +1,7 @@
+**Map: 6.0-Magnitude Earthquake Strikes Turkey**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/10/27/world/middleeast/earthquake-turkey.html
+
 **Weekly Student News Quiz: N.B.A. Scandal, Halloween Candy, Chicago Rat Hole**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/10/27/learning/27StudentNewsQuiz.html
