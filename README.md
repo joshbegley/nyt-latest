@@ -1,3 +1,7 @@
+**Paul Biya, World’s Oldest President, Extends Rule Over Cameroon**\
+`Official election results gave him an eighth term that, if completed, will last until he is 99. Mr. Biya is one of many leaders well over 70 across Africa, the world’s youngest continent.`\
+https://nytimes.com/2025/10/27/world/africa/paul-biya-cameroon-election-old.html
+
 **Notre Dame Mailbag: Freeman as a hot job candidate, Carr's outlook and more**\
 `Realistically Freeman has everything he wants at Notre Dame, short of extra NIL funds, which every coach wants. `\
 https://nytimes.com/athletic/6747609/2025/10/27/notre-dame-mailbag-marcus-freeman-cj-carr/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6733046/2025/10/27/igor-tudor-juventus-sacked/
 **Ben Rice's swing-change success may have earned him Yankees' Opening Day starting job**\
 `After a swing change propelled him to a breakout season, Rice may deserve a shot at the Yankees’ full-time starting first base job in 2026.`\
 https://nytimes.com/athletic/6744396/2025/10/27/ben-rice-swing-change-yankees-first-base-2026/
-
-**Phillies mailbag: 2026 payroll, adding a righty bat, Justin Crawford's role**\
-`Where will the Phillies' 2026 payroll land? Not counting Kyle Schwarber and J.T. Realmuto, they have almost $40M in departing free agents.`\
-https://nytimes.com/athletic/6747514/2025/10/27/phillies-2026-payroll-offseason-moves/
 
