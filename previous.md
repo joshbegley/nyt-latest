@@ -1,3 +1,19 @@
+**In Latest Battle for Congress, Virginia Democrats to Begin Votes to Redraw Maps**\
+`State lawmakers are convening to take a vote that would allow redistricting before next year’s midterms, though the process would take months.`\
+https://nytimes.com/2025/10/27/us/virginia-redistricting-vote.html
+
+**Vaccine Skepticism Comes for Pet Owners, Too**\
+`Anti-vaccine sentiment is spilling over into veterinary medicine, making some owners hesitant to vaccinate their pets, even for fatal diseases like rabies.`\
+https://nytimes.com/2025/10/27/science/vaccines-pets-dogs-cats.html
+
+**Finding Herself First, Then Finding Love**\
+`When Lauren Chan, the first lesbian Sports Illustrated Swimsuit Edition cover model, met Hayley Kosan, a film director, Ms. Chan was navigating a journey of self-discovery.`\
+https://nytimes.com/2025/10/27/style/lauren-chan-hayley-kosan-wedding.html
+
+**What to Know About Vaccinating Your Dog or Cat**\
+`Vaccine hesitancy is on the rise among pet owners. Here are answers to some common questions about animal vaccines.`\
+https://nytimes.com/2025/10/27/science/pets-vaccines-dogs-cats.html
+
 **Anthony Hopkins Thinks His Movies Aren’t Important**\
 `The actor Anthony Hopkins reflected on some of his best-known performances in a conversation with David Marchese on “The Interview.”`\
 https://nytimes.com/video/podcasts/100000010483251/anthony-hopkins-thinks-his-movies-arent-important.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6753620/2025/10/27/adams-bournemouth-sargent-norwic
 **Indiana Republicans Call Special Session to Gain Power in Congress**\
 `Indiana is the latest state to consider redrawing congressional maps at the request of the Trump administration, in its bid to maintain Republican control of the House.`\
 https://nytimes.com/2025/10/27/us/indiana-redistricting-special-session.html
-
-**Mandel: Who on earth will fill all these top-tier college football coaching jobs?**\
-`Will the lack of splashy candidates this hiring just doom the cycle to repeat itself?`\
-https://nytimes.com/athletic/6753687/2025/10/27/college-football-coach-firings-hiring-candidates/
-
-**NBA Rewind: A tale of great games and a disturbing gambling scandal in Week 1**\
-`Which teams are trending up and which ones are down after the first few games? And how are the new TV partners doing?`\
-https://nytimes.com/athletic/6747665/2025/10/27/nba-opening-week-rewind-shai-gilgeous-alexander-gambling/
-
-**In Ancient Spain, a Nail Through the Skull Could Mean Enmity, or Honor**\
-`Skulls displayed in public 2,000 years ago were intended as a warning to enemies and a celebration of comrades, a new paper argues.`\
-https://nytimes.com/2025/10/27/science/archaeology-spain-skulls.html
-
-**Can You Match These First Lines to Their Novels?**\
-`The opening line of a book is your first step into the story. See how many you remember from these notable works published in the 1980s.`\
-https://nytimes.com/interactive/2025/10/27/books/review/1980s-novels-quiz.html
 
