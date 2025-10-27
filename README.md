@@ -1,3 +1,11 @@
+**TAFC: Yamal, Vinicius Jr and police chaos in Clasico. Plus: Messi still making difference**\
+`Today in TAFC: Unpicking the chaos in Real Madrid's 2-1 win over Barcelona. Plus: Why Messi is still so vital to Inter Miami after new deal`\
+https://nytimes.com/athletic/6753442/2025/10/27/yamal-vinicius-jr-police-clasico-messi-tafc/
+
+**Is A.I. a Bubble?**\
+`We explain the fears on Wall Street.`\
+https://nytimes.com/2025/10/27/briefing/is-ai-a-bubble.html
+
 **Path to the Winter Olympics: U.S. figure skating, women's Alpine open with a bang**\
 `U.S. figure skating is in its best position in years, American women impressed in the Alpine opener, and more as the Olympic season begins.`\
 https://nytimes.com/athletic/6750935/2025/10/27/2026-winter-olympics-amber-glenn-mikaela-shiffrin-marco-odermatt/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6752657/2025/10/27/nhl-weekend-rankings-wild-pengui
 **Commanders at Chiefs on MNF: Mahomes' MVP push, sports equinox and broadcast props**\
 `This week's MNF showcase has the surging Patrick Mahomes and the shorthanded Washington Commanders. It's part of the sports equinox, too.`\
 https://nytimes.com/athletic/6747952/2025/10/27/commanders-chiefs-mahomes-daniels-injury-mnf-how-to-watch/
-
-**A New Dynamic in the Trump-Netanyahu Relationship**\
-`Since an Israel-Hamas cease-fire deal came into effect, the U.S. effort to sustain it appears to have constrained Prime Minister Benjamin Netanyahu.`\
-https://nytimes.com/2025/10/27/world/middleeast/trump-netanyahu-relationship.html
-
-**Discouraged in Denver: Will the Cowboys improve the roster? Is there a path to the playoffs?**\
-`The Cowboys haven't lost consecutive games this season and Brian Schottenheimer stressed they can't let this loss turn into two or three.`\
-https://nytimes.com/athletic/6752996/2025/10/27/cowboys-ugly-loss-roster-trade-deadline/
 
