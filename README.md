@@ -1,3 +1,7 @@
+**Hurricane Melissa Strengthens to a Category 5 Storm**\
+`Officials warned that Hurricane Melissa, which intensified into a Category 5 storm early Monday morning, could cause catastrophic damage in Jamaica as it moves through the Caribbean.`\
+https://nytimes.com/video/world/americas/100000010483666/hurricane-melissa-jamaica-caribbean.html
+
 **Silva's son invited to England Under-15 training camp**\
 `Although both of his parents are Brazilian, FIFA rules him eligible as he has lived in the country since 2020.`\
 https://nytimes.com/athletic/6754040/2025/10/27/thiago-silva-son-england-brazil/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/27/weather/us-navy-guantanamo-bay-evacuations.html
 **What we're seeing from the Canucks' first 10 games: 5 observations**\
 `What do we make of the Canucks' 5-5 start through the first 10 games of the regular season?`\
 https://nytimes.com/athletic/6753058/2025/10/27/vancouver-canucks-record-standings-stats-2025/
-
-**A West Texas Children’s Clinic Where Vaccine Suspicion Is Encouraged**\
-`Parents who come to Pia Habersang’s practice in Amarillo shun vaccinations, with the encouragement of the clinic’s nurse practitioner; the health secretary, Robert F. Kennedy Jr.; and President Trump.`\
-https://nytimes.com/2025/10/27/us/politics/antivax-clinic-texas.html
 
