@@ -1,3 +1,7 @@
+**Former Liverpool goalkeeping coach Jose Manuel Ochotorena dies aged 64**\
+`The Spaniard was an important part of Rafa Benitez’s backroom team during the Champions League win in 2005 and FA Cup success in 2006.`\
+https://nytimes.com/athletic/6753668/2025/10/27/jose-manuel-ochotorena-liverpool-dies/
+
 **Aaron Rodgers, Packers are both right where they belong 3 years after separation**\
 `While Jordan Love has grown into the player the Packers envisioned, Rodgers still has enough to give the Steelers a fighting chance.`\
 https://nytimes.com/athletic/6753286/2025/10/27/aaron-rodgers-packers-steelers-reunion-snf/
