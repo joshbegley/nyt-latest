@@ -1,3 +1,11 @@
+**A Powerful Storm Nears Jamaica**\
+`Also, the partisan redistricting battle keeps growing. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/10/27/briefing/hurricane-melissa-jamaica-redistricting-indiana.html
+
+**Ex-wife of Eric Kay says she saw Angels players passing out pills on team plane**\
+`Camela Kay's early testimony was in direct contrast with Angels' employees testimony from earlier in the trial.`\
+https://nytimes.com/athletic/6754985/2025/10/27/eric-kay-camela-angels-pills-team-plane/
+
 **With Springer set to hear more boos, both managers weigh in ahead of Game 3**\
 `Eight years after the Astros beat the Dodgers in the 2017 Fall Classic, fans in L.A. are still likely to let that series' MVP hear it.`\
 https://nytimes.com/athletic/6755120/2025/10/27/george-springer-blue-jays-dodgers-world-series-boos/

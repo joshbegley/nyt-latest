@@ -1,3 +1,7 @@
+**A Powerful Storm Nears Jamaica**\
+`Also, the partisan redistricting battle keeps growing. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/10/27/briefing/hurricane-melissa-jamaica-redistricting-indiana.html
+
 **With Springer set to hear more boos, both managers weigh in ahead of Game 3**\
 `Eight years after the Astros beat the Dodgers in the 2017 Fall Classic, fans in L.A. are still likely to let that series' MVP hear it.`\
 https://nytimes.com/athletic/6755120/2025/10/27/george-springer-blue-jays-dodgers-world-series-boos/
@@ -22,7 +26,7 @@ https://nytimes.com/2025/10/27/sports/cody-beef-franke-dead.html
 `The company is looking to cut costs starting this week as it continues to spend aggressively on artificial intelligence. Another round of cuts is expected in January.`\
 https://nytimes.com/2025/10/27/technology/amazon-layoffs.html
 
-**Wife of Eric Kay says she saw Angels players passing out pills on team plane**\
+**Ex-wife of Eric Kay says she saw Angels players passing out pills on team plane**\
 `Camela Kay's early testimony was in direct contrast with Angels' employees testimony from earlier in the trial.`\
 https://nytimes.com/athletic/6754985/2025/10/27/eric-kay-camela-angels-pills-team-plane/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/27/world/immigration-labor-india-japan.html
 **A Student Publication at Harvard Invoked Hitler. Now It Has Been Suspended.**\
 `The Harvard Salient, a conservative outlet, used a phrase that echoed a speech given by Hitler. Its board paused its operations over material it called “reprehensible, abusive and demeaning.”`\
 https://nytimes.com/2025/10/27/us/harvard-salient-hitler-suspended-magazine.html
-
-**Vikings placing Carson Wentz on IR with season-ending shoulder injury**\
-`With Wentz out for the season, the Vikings are expected to start J.J. McCarthy on Sunday against the Lions in Detroit.`\
-https://nytimes.com/athletic/6754991/2025/10/27/carson-wentz-shoulder-injury-surgery-vikings-qb/
 

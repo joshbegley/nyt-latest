@@ -1,3 +1,7 @@
+**O'Neill, Maloney to take interim charge at Celtic as Rodgers resigns**\
+`It comes a day after the Scottish champions fell to a 3-1 defeat at Hearts, opening up an eight-point gap at the top of the league.`\
+https://nytimes.com/athletic/6751082/2025/10/27/celtic-manager-martin-oneill-rodgers-leaves/
+
 **A Powerful Storm Nears Jamaica**\
 `Also, the partisan redistricting battle keeps growing. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/10/27/briefing/hurricane-melissa-jamaica-redistricting-indiana.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6754985/2025/10/27/eric-kay-camela-angels-pills-tea
 **Rebranding Immigration**\
 `India wants to send its vast work force abroad. It may have found a way around a word that stokes opposition in many countries.`\
 https://nytimes.com/2025/10/27/world/immigration-labor-india-japan.html
-
-**A Student Publication at Harvard Invoked Hitler. Now It Has Been Suspended.**\
-`The Harvard Salient, a conservative outlet, used a phrase that echoed a speech given by Hitler. Its board paused its operations over material it called “reprehensible, abusive and demeaning.”`\
-https://nytimes.com/2025/10/27/us/harvard-salient-hitler-suspended-magazine.html
 
