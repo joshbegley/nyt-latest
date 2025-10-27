@@ -1,9 +1,13 @@
+**Anthony Hopkins on Being Estranged From His Daughter**\
+`On “The Interview,” David Marchese asked the actor Anthony Hopkins about his painful estrangement from his only child.`\
+https://nytimes.com/video/podcasts/100000010483284/anthony-hopkins-on-being-estranged-from-his-daughter.html
+
 **Trump Says a Recent M.R.I. Scan Was ‘Perfect,’ and He’d ‘Love’ a Third Term**\
 `President Trump made the comments on the second day of his trip to Asia. The Constitution limits presidents to two terms, but Mr. Trump has suggested he might try to circumvent it.`\
 https://nytimes.com/2025/10/27/us/politics/trump-mri-third-term.html
 
-**With U.S. relations on the rocks, Canada’s prime minister says he will meet China’s top leader.**\
-`Prime Minister Mark Carney of Canada announced the meeting with Xi Jinping, which appeared to signal a pivot to Asia after decades of poor relations between his country and Beijing.`\
+**Carney Says He Will Meet With Xi in South Korea**\
+`The meeting between Prime Minister Mark Carney of Canada and Xi Jinping, China’s top leader, scheduled for later this week, appeared to signal a pivot to Asia after decades of poor relations between his country and Beijing.`\
 https://nytimes.com/2025/10/27/us/politics/carney-xi-meeting-china-canada.html
 
 **USMNT Player Tracker: Adams key to Bournemouth brilliance, Sargent struggles continue**\
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/10/27/books/review/1980s-novels-quiz.html
 **Anthony Jackson, Master of the Electric Bass, Is Dead at 73**\
 `Besides his work with pop stars and jazz greats, he is credited with helping to invent the six-string contrabass guitar.`\
 https://nytimes.com/2025/10/27/arts/music/anthony-jackson-dead.html
-
-**Hopes of a China Trade Deal Lift Global Markets**\
-`Investors sent major global indexes higher on optimism that President Trump and China’s top leader, Xi Jinping, could reach a wider agreement this week.`\
-https://nytimes.com/2025/10/27/business/dealbook/china-trade-deal-market-rally.html
 
