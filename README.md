@@ -1,40 +1,40 @@
-**The Day Anthony Hopkins Quit Drinking**\
-`The Academy Award-winning actor Anthony Hopkins talks to David Marchese about his storied career, his estrangement from his only child and more.`\
-https://nytimes.com/video/podcasts/100000010483064/the-day-anthony-hopkins-quit-drinking.html
+**Commanders at Chiefs on MNF: Mahomes' MVP push, sports equinox and broadcast props**\
+`This week's MNF showcase has the surging Patrick Mahomes and the shorthanded Washington Commanders. It's part of the sports equinox, too.`\
+https://nytimes.com/athletic/6747952/2025/10/27/commanders-chiefs-mahomes-daniels-injury-mnf-how-to-watch/
 
-**How to watch North Carolina vs. Syracuse: Time, TV, streaming**\
-`Find out how to watch the North Carolina Tar Heels play the Syracuse Orange, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6753515/2025/10/27/north-carolina-vs-syracuse-stream-how-to-watch-oct-31/
+**A New Dynamic in the Trump-Netanyahu Relationship**\
+`Since an Israel-Hamas cease-fire deal came into effect, the U.S. effort to sustain it appears to have constrained Prime Minister Benjamin Netanyahu.`\
+https://nytimes.com/2025/10/27/world/middleeast/trump-netanyahu-relationship.html
 
-**3 Takeaways From Vietnam’s Drift Toward Russia and Away From America**\
-`The Times examined weapons sales documents from a Russian arms supplier and interviewed dozens of officials from Vietnam, the United States and other countries in the region.`\
-https://nytimes.com/2025/10/27/world/asia/3-takeaways-from-vietnams-drift-toward-russia-and-away-from-america.html
+**Discouraged in Denver: Will the Cowboys improve the roster? Is there a path to the playoffs?**\
+`The Cowboys haven't lost consecutive games this season and Brian Schottenheimer stressed they can't let this loss turn into two or three.`\
+https://nytimes.com/athletic/6752996/2025/10/27/cowboys-ugly-loss-roster-trade-deadline/
 
-**The Eagles' offense is suddenly surging. Could A.J. Brown be traded?**\
-`Without Brown on Sunday, the Eagles' offense looked as close as it has been to its 2024 version.`\
-https://nytimes.com/athletic/6753491/2025/10/27/nfl-trade-deadline-eagles-aj-brown/
+**Why does Austin Reaves keep ending up next to NBA legends? Even he's stumped**\
+`Sunday's 51-point night wasn’t the first time Reaves found himself in rare air. It probably won’t be the last, either.`\
+https://nytimes.com/athletic/6753372/2025/10/27/lakers-austin-reaves-points-kings/
 
-**What can the NFL learn from the NBA's gambling scandal? Do injury reports need a makeover?**\
-`The handling of Lamar Jackson's injury status before Sunday's game should have the NFL on high alert amid the NBA gambling scandal.`\
-https://nytimes.com/athletic/6753485/2025/10/27/nba-gambling-nfl-lamar-jackson-injury/
+**Was Connor McDavid's discount OK with NHLPA? Is big-name free agency dead? Ask CJ, part 2**\
+`Also in Chris Johnston's mailbag: Who's facing more Olympics pressure: Canada or the U.S.? And could the Hall of Fame make a Jagr exception?`\
+https://nytimes.com/athletic/6747501/2025/10/27/connor-mcdavid-free-agency-olympics-nhl/
 
-**What the Caleb Williams-Ben Johnson pairing has shown so far, and what might come next**\
-`Caleb Williams' first eight games with Ben Johnson look a lot like Jared Goff's. But is Williams, like Goff was, on the edge of a breakout?`\
-https://nytimes.com/athletic/6753467/2025/10/27/caleb-williams-ben-johnson-jared-goff/
+**Men's college basketball preseason Top 25: In wide open year, Michigan, Kentucky start at the top**\
+`A new trend of marquee preseason matchups has given us some data points when it comes to ranking teams before the season begins.`\
+https://nytimes.com/athletic/6751366/2025/10/27/mens-college-basketball-preseason-top-25/
 
-**NFL coaches on the hot seat: Why Brian Daboll’s status is more complex than you think — Pick Six**\
-`What matters more for Daboll's future: the Giants' record, or Jaxson Dart's development? And what about the Dolphins, Browns and Cardinals?`\
-https://nytimes.com/athletic/6727378/2025/10/27/nfl-coaches-hot-seat-brian-daboll-giants/
+**What I think and what I know about the Edmonton Oilers' first 10 games**\
+`There hasn’t been a lot to like so far, yet upside and reasons for optimism remain.`\
+https://nytimes.com/athletic/6753401/2025/10/27/edmonton-oilers-10-games-what-i-know/
 
-**What we learned in NFL Week 8: Packers offense flips a switch, Jets win a big one**\
-`The story of Sunday's most anticipated matchup ended up being about the former understudy, not the aging icon.`\
-https://nytimes.com/athletic/6752515/2025/10/27/nfl-week-8-takeaways-packers-steelers-jordan-love/
+**Wizards (really!) have some promising young talent, but they still need some lottery luck**\
+`Washington could actually, next season, harbor thoughts of actually mattering again in the Eastern Conference.`\
+https://nytimes.com/athletic/6752372/2025/10/27/wizards-talent-need-luck-tre-johnson/
 
-**Aaron Rodgers' Packers reunion spoiled by another dud from the defense**\
-`For a second straight week, the Steelers defense came up short in a primetime loss.`\
-https://nytimes.com/athletic/6753341/2025/10/27/aaron-rodgers-pittsburgh-steelers-loss-packers/
+**'He's him': How Jordan Love made a statement in comeback win over Steelers**\
+`Love completed 29-of-37 passes for 360 yards and three touchdowns in a 35-25 win over the Steelers on Sunday night.`\
+https://nytimes.com/athletic/6753305/2025/10/27/packers-steelers-snf-jordan-love-aaron-rodgers/
 
-**The New York Times International Edition in Print for Tuesday, Oct. 28, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/10/27/todays-new-york-times-international-edition
+**Oakland Ballers, Google take fans inside the game in new virtual reality film**\
+`The short fully immersive virtual reality film features the full game-day experience for the Oakland Ballers and their fans.`\
+https://nytimes.com/athletic/6735790/2025/10/27/oakland-ballers-google-xr-virtual-reality-film/
 
