@@ -1,3 +1,7 @@
+**These 3 letters in Chiefs' facility have sparked Patrick Mahomes — and K.C.'s offense**\
+`The Chiefs have worn new "AAF" shirts the last few weeks. Here's how the acronym has helped the team unlock more from Mahomes.`\
+https://nytimes.com/athletic/6749648/2025/10/27/chiefs-patrick-mahomes-aggressive-offense/
+
 **The Bounce: Early-season NBA trends: Are the Thunder on 74-win watch already?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6753971/2025/10/27/nba-early-season-trends-wemby-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/27/insider/ultraprocessed-food-junk-history.html
 **In Battle for Congress, Virginia Democrats to Begin Votes to Redraw Maps**\
 `State lawmakers are convening to take a vote that would allow redistricting before next year’s midterms, though the process would take months.`\
 https://nytimes.com/2025/10/27/us/virginia-redistricting-vote.html
-
-**Vaccine Skepticism Comes for Pet Owners, Too**\
-`Anti-vaccine sentiment is spilling over into veterinary medicine, making some owners hesitant to vaccinate their pets, even for fatal diseases like rabies.`\
-https://nytimes.com/2025/10/27/science/vaccines-pets-dogs-cats.html
 
