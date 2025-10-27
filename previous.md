@@ -1,3 +1,11 @@
+**Packers earn first win in Pittsburgh since 1970**\
+`Aaron Rodgers faced his former team for the first time. Jordan Love, the quarterback he mentored, stole the show.`\
+https://nytimes.com/video/the-athletic/100000010483682/packers-earn-first-win-in-pittsburgh-since-1970.html
+
+**Step by Step, How China Seized Control of Critical Minerals**\
+`China’s far-reaching rules already affect manufacturers of semiconductors, cars and many other products. They will soon become much broader.`\
+https://nytimes.com/2025/10/27/business/china-rare-earth-export-controls.html
+
 **Red Bulls oust coach Sandro Schwarz, make sweeping management changes**\
 `The Red Bulls are making significant changes after missing the MLS playoffs for the first time in 15 years`\
 https://nytimes.com/athletic/6754046/2025/10/27/new-york-red-bulls-manager-sandro-schwarz-fired/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6753888/2025/10/27/nba-power-rankings-knicks-warrio
 **NASCAR Martinsville takeaways: Championship field set, William Byron elevates his game**\
 `William Byron ran the race of his life to get into the Championship 4, Team Penske got shut out, and more from the weekend at Martinsville.`\
 https://nytimes.com/athletic/6753746/2025/10/27/nascar-martinsville-takeaways-championship-4-william-byron/
-
-**Can You Force Your Children to Bury You in Some Weird Way?**\
-`A ruling on San Diego-style reef burials.`\
-https://nytimes.com/interactive/2025/10/27/magazine/26mag-hodgmanquiz.html
-
-**Montana Cabins That Were a Real Catch**\
-`Looking for a place they could enjoy their passion for fishing, a couple found much more: two cabins on 14 acres of land.`\
-https://nytimes.com/2025/10/27/realestate/montana-cabins-that-were-a-real-catch.html
 

@@ -1,3 +1,11 @@
+**Packers earn first win in Pittsburgh since 1970**\
+`Aaron Rodgers faced his former team for the first time. Jordan Love, the quarterback he mentored, stole the show.`\
+https://nytimes.com/video/the-athletic/100000010483682/packers-earn-first-win-in-pittsburgh-since-1970.html
+
+**Step by Step, How China Seized Control of Critical Minerals**\
+`China’s far-reaching rules already affect manufacturers of semiconductors, cars and many other products. They will soon become much broader.`\
+https://nytimes.com/2025/10/27/business/china-rare-earth-export-controls.html
+
 **Red Bulls oust coach Sandro Schwarz, make sweeping management changes**\
 `The Red Bulls are making significant changes after missing the MLS playoffs for the first time in 15 years`\
 https://nytimes.com/athletic/6754046/2025/10/27/new-york-red-bulls-manager-sandro-schwarz-fired/
