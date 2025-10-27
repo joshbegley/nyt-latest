@@ -1,3 +1,11 @@
+**'Chucky' Lozano left out again but San Diego make winning start in MLS playoffs**\
+`San Diego FC won their first-ever MLS playoff match, with a 2-1 win over the Portland Timbers on Sunday, but did so without their star signing.`\
+https://nytimes.com/athletic/6752625/2025/10/27/chucky-lozano-left-out-again-but-san-diego-make-winning-start-in-mls-playoffs/
+
+**The Briefing: Is it Arsenal's title to lose? Should Slot be a bit less open? Are Wolves doomed?**\
+`Analysing the key talking points from the Premier League weekend - including Arsenal's title, Slot's openness and Wolves' inevitable woes`\
+https://nytimes.com/athletic/6751807/2025/10/27/arsenal-title-premier-league/
+
 **Austin Reaves scores career-high 51 points as short-handed Lakers beat Kings**\
 `Without two of their stars, the incredibly short-handed Lakers leaned on Reaves to deliver their first road win in Sacramento.`\
 https://nytimes.com/athletic/6753090/2025/10/27/austin-reaves-lakers-kings-51-points/

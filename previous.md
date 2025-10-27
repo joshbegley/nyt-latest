@@ -1,3 +1,11 @@
+**'Chucky' Lozano left out again but San Diego make winning start in MLS playoffs**\
+`San Diego FC won their first-ever MLS playoff match, with a 2-1 win over the Portland Timbers on Sunday, but did so without their star signing.`\
+https://nytimes.com/athletic/6752625/2025/10/27/chucky-lozano-left-out-again-but-san-diego-make-winning-start-in-mls-playoffs/
+
+**The Briefing: Is it Arsenal's title to lose? Should Slot be a bit less open? Are Wolves doomed?**\
+`Analysing the key talking points from the Premier League weekend - including Arsenal's title, Slot's openness and Wolves' inevitable woes`\
+https://nytimes.com/athletic/6751807/2025/10/27/arsenal-title-premier-league/
+
 **Austin Reaves scores career-high 51 points as short-handed Lakers beat Kings**\
 `Without two of their stars, the incredibly short-handed Lakers leaned on Reaves to deliver their first road win in Sacramento.`\
 https://nytimes.com/athletic/6753090/2025/10/27/austin-reaves-lakers-kings-51-points/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6753049/2025/10/27/connections-sports-edition-hints
 **Pistons' victory over Celtics an 'identity win' with defensive effort, bench energy**\
 `"We just executed our system better," Pistons guard Cade Cunningham said of the defensive adjustments.`\
 https://nytimes.com/athletic/6752695/2025/10/27/pistons-celtics-nba-defense-bench-play/
-
-**Diphtheria, a Once Vanquished Killer of Children, Is Resurgent**\
-`A Somali hospital ward packed with gasping children shows how war, climate and mistrust of vaccines is fueling the disease’s return.`\
-https://nytimes.com/2025/10/27/health/diptheria-somalia-vaccines.html
-
-**Giannis Antetokounmpo is channeling his inner Shaq to begin the season**\
-`The Bucks are going to play hard and "make every single night a bar fight," Antetokounmpo said after their 118-113 loss to the Cavaliers.`\
-https://nytimes.com/athletic/6752627/2025/10/26/giannis-antetokounmpo-bucks-nba-doc-rivers/
 
