@@ -1,3 +1,7 @@
+**Rodgers quits Celtic, branded 'toxic, misleading'; replaced by O’Neill**\
+`It comes a day after the Scottish champions fell to a 3-1 defeat at Hearts, opening up an eight-point gap at the top of the league.`\
+https://nytimes.com/athletic/6751082/2025/10/27/celtic-manager-martin-oneill-rodgers-leaves/
+
 **It’s Unconstitutional, but Trump Keeps Musing About a 3rd Term**\
 `A president who has chafed at the limits on his power sees political benefit in talking about remaining in office.`\
 https://nytimes.com/2025/10/27/us/politics/trump-third-term-politics.html
