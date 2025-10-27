@@ -1,3 +1,11 @@
+**Young Broncos spur blowout of Cowboys as offense shows encouraging signs**\
+`Denver rookies R.J. Harvey and Pat Bryant combined for four touchdowns as the Broncos cruised. Next up: the stingy Texans defense.`\
+https://nytimes.com/athletic/6752717/2025/10/26/broncos-offense-cowboys-sean-payton-rj-harvey/
+
+**Jaylen Brown: Winless Celtics need to fix defensive rebounding problems**\
+`Through three games, Boston's defensive rebounding rate ranks last in the league at 58.8 percent.`\
+https://nytimes.com/athletic/6752583/2025/10/26/jaylen-brown-celtics-defensive-rebounding/
+
 **Skidding Wild rally to force overtime, but Celebrini does them in: Takeaways**\
 `Despite having the puck for almost the entirety of overtime, the Wild couldn't complete the comeback against the Sharks.`\
 https://nytimes.com/athletic/6752268/2025/10/26/wild-kaprizov-giveaways-hartman-injury-sharks/
