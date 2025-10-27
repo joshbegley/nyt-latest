@@ -1,3 +1,11 @@
+**Business of Football: John Textor's £400m bid for Wolves and why it's complicated**\
+`Wolves, John Textor, Dragan Solak, Southampton and DAZN are the topics in this week's Business of Football column`\
+https://nytimes.com/athletic/6740730/2025/10/27/wolves-john-textor-bid/
+
+**Australia captain Cummins loses race to be fit for first Ashes Test**\
+`The 32-year-old has not bowled since Australia's 3-0 series win over the West Indies in July due to a stress fracture in his back.`\
+https://nytimes.com/athletic/6753357/2025/10/27/pat-cummins-australia-ashes-england-fit/
+
 **Top 50 MLB free agents: Contract predictions, team fits for Kyle Tucker, Kyle Schwarber, more**\
 `Tucker and Schwarber lead this year's free agency class. See which teams could land the top talent and how much each player could command.`\
 https://nytimes.com/athletic/6719990/2025/10/27/mlb-free-agents-2025-contract-team-predictions/
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6752684/2025/10/27/washington-commanders-age-disapp
 **As New Yorkers Flood Early Voting Sites, Undecideds Become Prized Target**\
 `Zohran Mamdani, the front-runner for mayor of New York City, has built his lead in part by relying on a huge ground-game operation.`\
 https://nytimes.com/2025/10/27/nyregion/early-voting-mayors-race-mamdani-cuomo-sliwa.html
-
-**How former can't-miss NFL prospect Robert Gallery survived a descent into darkness**\
-`After 10 surgeries and eight NFL seasons came brain fog, ringing in his ears, memory voids, tequila, rage and thoughts of taking his life.`\
-https://nytimes.com/athletic/6713102/2025/10/27/robert-gallery-raiders-psychedelic-drug/
-
-**Why America’s Debate Over Which Children Are ‘Gifted’ Won’t Go Away**\
-`Gifted programs could be shutting out millions of high-performing Black and Latino children from low-income families. Can districts fix their advanced education problem?`\
-https://nytimes.com/2025/10/27/nyregion/gifted-programs-controversial.html
 
