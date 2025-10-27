@@ -1,3 +1,11 @@
+**Potentially available running backs who can save your fantasy football season**\
+`KC Joyner ranks running backs who could save your season after Week 8 gave us clarity and injuries. `\
+https://nytimes.com/athletic/6753571/2025/10/27/fantasy-football-running-back-rankings-second-half/
+
+**World’s Oldest President on Record Wins Eighth Term**\
+`At the age of 92, Paul Biya secured an eighth term as president of Cameroon that, if completed, will last until he is nearly 100. Many young Cameroonians have refused to accept the results.`\
+https://nytimes.com/video/world/africa/100000010483233/worlds-oldest-president-on-record-wins-eighth-term.html
+
 **Reflections on a Ballroom, and an East Wing in Ruins**\
 `Sampling the outpouring of responses to a column by Ross Douthat about the East Wing and the ballroom. Also: Everyday acts of grace; Canada and President Trump.`\
 https://nytimes.com/2025/10/27/opinion/white-house-east-wing-ballroom-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6754053/2025/10/27/rebecca-caplehorn-tottenham-exit
 **How to watch Cavaliers vs. Pistons: Time, TV, streaming**\
 `Find out how to watch the Cleveland Cavaliers play the Detroit Pistons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6754136/2025/10/27/cavaliers-vs-pistons-stream-how-to-watch-oct-27/
-
-**How to watch Magic vs. 76ers: Time, TV, streaming**\
-`Find out how to watch the Orlando Magic play the Philadelphia 76ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6754133/2025/10/27/magic-vs-76ers-stream-how-to-watch-oct-27/
-
-**Heisman Trophy odds: Finally some stability in the race**\
-`The top three contenders for the Heisman Trophy remained the same this week.`\
-https://nytimes.com/athletic/6753328/2025/10/27/heisman-trophy-odds-ty-simpson-fernando-mendoza-julian-sayin/
 
