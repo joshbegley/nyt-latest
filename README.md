@@ -1,3 +1,11 @@
+**Maple Leafs GM delivers update on Joseph Woll's return**\
+`Brad Treliving said it isn’t unreasonable to expect to see Woll play conditioning games with the AHL's Toronto Marlies.`\
+https://nytimes.com/athletic/6754166/2025/10/27/leafs-joseph-woll-update-treliving/
+
+**Mavericks will finally retire former No. 1 pick Mark Aguirre’s jersey**\
+`The Mavericks drafted Aguirre with the No. 1 pick in 1981, and in seven-plus seasons he was a three-time All-Star selection.`\
+https://nytimes.com/athletic/6754189/2025/10/27/mavericks-mark-aguirre-jersey-retirement-dallas/
+
 **‘Kissinger’ Review: What It Used to Mean to Make America Great**\
 `A PBS documentary profiles the storied diplomat who was obsessed, for better and worse, with keeping his adopted country safe during the Cold War.`\
 https://nytimes.com/2025/10/27/arts/television/kissinger-review-pbs.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/27/style/vogue-world-los-angeles.html
 **Ranking college football's open coaching jobs: LSU, Penn State or Florida?**\
 `This could be the most active coaching carousel college football has seen in many years.`\
 https://nytimes.com/athletic/6662286/2025/10/27/college-football-open-coaching-jobs-rankings/
-
-**Potentially available running backs who can save your fantasy football season**\
-`KC Joyner ranks running backs who could save your season after Week 8 gave us clarity and injuries. `\
-https://nytimes.com/athletic/6753571/2025/10/27/fantasy-football-running-back-rankings-second-half/
-
-**World’s Oldest President on Record Wins Eighth Term**\
-`At the age of 92, Paul Biya secured an eighth term as president of Cameroon that, if completed, will last until he is nearly 100. Many young Cameroonians have refused to accept the results.`\
-https://nytimes.com/video/world/africa/100000010483233/worlds-oldest-president-on-record-wins-eighth-term.html
 
