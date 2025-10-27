@@ -1,3 +1,15 @@
+**LSU job profile with Brian Kelly out: Anything can happen in a coaching search like this**\
+`LSU abruptly firing Kelly opens one of college football's most prestigious jobs, where the three most recent coaches won national titles.`\
+https://nytimes.com/athletic/6752705/2025/10/26/lsu-football-coaching-search-brian-kelly-fired/
+
+**Jaylen Brown says winless Celtics need to fix defensive rebounding problems**\
+`Through three games, Boston's defensive rebound rate ranks last in the league at 58.8 percent.`\
+https://nytimes.com/athletic/6752583/2025/10/26/jaylen-brown-celtics-defensive-rebounding/
+
+**The lesson to learn from Brian Kelly's LSU tenure: Don't just hire the big name**\
+`Kelly was never the right fit at LSU, a lesson the school should heed as it goes looking again.`\
+https://nytimes.com/athletic/6752707/2025/10/26/brian-kelly-lsu-firing-decision-scott-woodward/
+
 **Feldman's candidates to replace Brian Kelly at LSU, from Kiffin to Sumrall**\
 `There aren’t expected to be a lot of big-name candidates available, especially ones who have won big in the SEC.`\
 https://nytimes.com/athletic/6752762/2025/10/26/lsu-coaching-candidates-brian-kelly-fired/
