@@ -1,3 +1,7 @@
+**NHL weekend rankings: Wild, Penguins, and 5 early surprises I'm starting to buy**\
+`It is (say the line!) still early, but some of the trends around the league sure look like they might stick around long-term.`\
+https://nytimes.com/athletic/6752657/2025/10/27/nhl-weekend-rankings-wild-penguins-early-surprises/
+
 **Commanders at Chiefs on MNF: Mahomes' MVP push, sports equinox and broadcast props**\
 `This week's MNF showcase has the surging Patrick Mahomes and the shorthanded Washington Commanders. It's part of the sports equinox, too.`\
 https://nytimes.com/athletic/6747952/2025/10/27/commanders-chiefs-mahomes-daniels-injury-mnf-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6752372/2025/10/27/wizards-talent-need-luck-tre-joh
 **'He's him': How Jordan Love made a statement in comeback win over Steelers**\
 `Love completed 29-of-37 passes for 360 yards and three touchdowns in a 35-25 win over the Steelers on Sunday night.`\
 https://nytimes.com/athletic/6753305/2025/10/27/packers-steelers-snf-jordan-love-aaron-rodgers/
-
-**Oakland Ballers, Google take fans inside the game in new virtual reality film**\
-`The short fully immersive virtual reality film features the full game-day experience for the Oakland Ballers and their fans.`\
-https://nytimes.com/athletic/6735790/2025/10/27/oakland-ballers-google-xr-virtual-reality-film/
 
