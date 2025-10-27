@@ -1,3 +1,15 @@
+**New College of Florida, a Conservative Bulwark, Will Sign Trump’s ‘Compact’**\
+`The school, once a progressive college, was remade by Gov. Ron DeSantis’s administration. Now, it is the first school to agree to the Trump administration’s list of demands.`\
+https://nytimes.com/2025/10/27/us/politics/new-college-florida-trump-compact.html
+
+**Madrid's Carvajal to undergo keyhole surgery on knee injury**\
+`The 33-year-old Spain international felt discomfort following Madrid's Clasico victory over Barcelona before undergoing tests on Monday.`\
+https://nytimes.com/athletic/6754736/2025/10/27/dani-carvajal-injury-real-madrid/
+
+**Pig Kidney Removed From Transplant Patient After Nine Months**\
+`Tim Andrews, 67, lived with a genetically modified organ longer than any other recipient.`\
+https://nytimes.com/2025/10/27/health/pig-kidney-tim-andrews.html
+
 **How to watch Nuggets vs. Timberwolves: Time, TV, streaming**\
 `Find out how to watch the Denver Nuggets play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6754847/2025/10/27/nuggets-vs-timberwolves-stream-how-to-watch-oct-27/
