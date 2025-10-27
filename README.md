@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6755046/2025/10/27/stephen-strasburg-san-diego-stat
 `Kesler, a retired NHL center, has been charged with two misdemeanor counts of criminal sexual conduct in the fourth degree.`\
 https://nytimes.com/athletic/6755129/2025/10/27/ryan-kesler-sexual-conduct-charge-pleads-not-guilty/
 
-**Rodgers quits Celtic, branded 'toxic' in club statement; replaced by O’Neill**\
+**Rodgers quits Celtic, branded 'toxic, misleading'; replaced by O’Neill**\
 `It comes a day after the Scottish champions fell to a 3-1 defeat at Hearts, opening up an eight-point gap at the top of the league.`\
 https://nytimes.com/athletic/6751082/2025/10/27/celtic-manager-martin-oneill-rodgers-leaves/
 

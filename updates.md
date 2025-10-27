@@ -1,3 +1,15 @@
+**It’s Unconstitutional, but Trump Keeps Musing About a 3rd Term**\
+`A president who has chafed at the limits on his power sees political benefit in talking about remaining in office.`\
+https://nytimes.com/2025/10/27/us/politics/trump-third-term-politics.html
+
+**Defunct Upper West Side Movie Theater May Reopen in 2028**\
+`The landmark Metro Theater is being renamed Uptown Film Center and will include five screens and about 470 seats.`\
+https://nytimes.com/2025/10/27/movies/uptown-film-center-metro-theater.html
+
+**Rodgers quits Celtic, branded 'toxic' in club statement; replaced by O’Neill**\
+`It comes a day after the Scottish champions fell to a 3-1 defeat at Hearts, opening up an eight-point gap at the top of the league.`\
+https://nytimes.com/athletic/6751082/2025/10/27/celtic-manager-martin-oneill-rodgers-leaves/
+
 **The storm’s strength grew out of warmer-than-usual Caribbean waters.**\
 `By Sachi Kitajima Mulkey`\
 https://nytimes.com/live/2025/10/27/weather/hurricane-melissa-jamaica/the-storms-strength-grew-out-of-warmer-than-usual-caribbean-waters
