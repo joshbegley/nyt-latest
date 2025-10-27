@@ -1,3 +1,7 @@
+**Police Investigate Possible Arson at Home of Portland City Councilor**\
+`The police said a fire that damaged cars and a carport at the home of City Councilor Candace Avalos was “suspicious in nature.” No arrests have been made.`\
+https://nytimes.com/2025/10/27/us/candace-avalos-arson-portland-city-councilor.html
+
 **Broncos mum on Pat Surtain's status as prep begins for critical matchup with Texans**\
 `Broncos wide receiver and Pro Bowl returner Marvin Mims Jr. is in the NFL's concussion protocol after absorbing a hit late in Sunday's game.`\
 https://nytimes.com/athletic/6754583/2025/10/27/broncos-pat-surtain-injury-status/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6754909/2025/10/27/louisville-vs-virginia-tech-stre
 **How to watch Georgia vs. Florida: Time, TV, streaming**\
 `Find out how to watch the Georgia Bulldogs play the Florida Gators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6754907/2025/10/27/georgia-vs-florida-stream-how-to-watch-nov-1/
-
-**How to watch Michigan State vs. Minnesota: Time, TV, streaming**\
-`Find out how to watch the Michigan State Spartans play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6754903/2025/10/27/michigan-state-vs-minnesota-stream-how-to-watch-nov-1/
 

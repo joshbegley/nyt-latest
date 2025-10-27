@@ -1,40 +1,40 @@
-**New College of Florida, a Conservative Bulwark, Will Sign Trump’s ‘Compact’**\
-`The school, once a progressive college, was remade by Gov. Ron DeSantis’s administration. Now, it is the first school to agree to the Trump administration’s list of demands.`\
-https://nytimes.com/2025/10/27/us/politics/new-college-florida-trump-compact.html
+**Broncos mum on Pat Surtain's status as prep begins for critical matchup with Texans**\
+`Broncos wide receiver and Pro Bowl returner Marvin Mims Jr. is in the NFL's concussion protocol after absorbing a hit late in Sunday's game.`\
+https://nytimes.com/athletic/6754583/2025/10/27/broncos-pat-surtain-injury-status/
 
-**Madrid's Carvajal to undergo keyhole surgery on knee injury**\
-`The 33-year-old Spain international felt discomfort following Madrid's Clasico victory over Barcelona before undergoing tests on Monday.`\
-https://nytimes.com/athletic/6754736/2025/10/27/dani-carvajal-injury-real-madrid/
+**Fantasy hockey: Rest of season rankings and player projections for 2025-26**\
+`Dom Luszczyszyn offers up his first in-season update to his 2025-26 fantasy hockey rest-of-season rankings and player projections.`\
+https://nytimes.com/athletic/6754590/2025/10/27/fantasy-hockey-rest-of-season-rankings-player-projections-2025-26/
 
-**Pig Kidney Removed From Transplant Patient After Nine Months**\
-`Tim Andrews, 67, lived with a genetically modified organ longer than any other recipient.`\
-https://nytimes.com/2025/10/27/health/pig-kidney-tim-andrews.html
+**Jamaicans in South Florida are preparing supplies to be sent to the island after Melissa.**\
+`By Patricia Mazzei`\
+https://nytimes.com/live/2025/10/27/weather/hurricane-melissa-jamaica/jamaicans-south-florida-prepare-supplies
 
-**How to watch Nuggets vs. Timberwolves: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6754847/2025/10/27/nuggets-vs-timberwolves-stream-how-to-watch-oct-27/
+**Trump Asks Supreme Court to Let Him Fire the Top Copyright Official**\
+`An appeals court sided with the director of the U.S. Copyright Office, saying her role is to work with Congress.`\
+https://nytimes.com/2025/10/27/us/politics/trump-supreme-court-copyright-official.html
 
-**How to watch Suns vs. Jazz: Time, TV, streaming**\
-`Find out how to watch the Phoenix Suns play the Utah Jazz, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6754845/2025/10/27/suns-vs-jazz-stream-how-to-watch-oct-27/
+**Qualcomm Unveils New Line of Chips to Join the A.I. Boom**\
+`Qualcomm, which is known for its chips in smartphones, also announced a deal with Humain, a Saudi-backed A.I. company. The news sent Qualcomm’s share price soaring.`\
+https://nytimes.com/2025/10/27/technology/qualcomm-ai-chips.html
 
-**How to watch Grizzlies vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the Memphis Grizzlies play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6754843/2025/10/27/grizzlies-vs-warriors-stream-how-to-watch-oct-27/
+**How to watch Vanderbilt vs. Texas: Time, TV, streaming**\
+`Find out how to watch the Vanderbilt Commodores play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6754913/2025/10/27/vanderbilt-vs-texas-stream-how-to-watch-nov-1/
 
-**How to watch Trail Blazers vs. Lakers: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the Los Angeles Lakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6754841/2025/10/27/trail-blazers-vs-lakers-stream-how-to-watch-oct-27/
+**How to watch Duke vs. Clemson: Time, TV, streaming**\
+`Find out how to watch the Duke Blue Devils play the Clemson Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6754911/2025/10/27/duke-vs-clemson-stream-how-to-watch-nov-1/
 
-**How to watch Raptors vs. Spurs: Time, TV, streaming**\
-`Find out how to watch the Toronto Raptors play the San Antonio Spurs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6754839/2025/10/27/raptors-vs-spurs-stream-how-to-watch-oct-27/
+**How to watch Louisville vs. Virginia Tech: Time, TV, streaming**\
+`Find out how to watch the Louisville Cardinals play the Virginia Tech Hokies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6754909/2025/10/27/louisville-vs-virginia-tech-stream-how-to-watch-nov-1/
 
-**How to watch Bruins vs. Senators: Time, TV, streaming**\
-`Find out how to watch the Boston Bruins play the Ottawa Senators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6754837/2025/10/27/bruins-vs-senators-stream-how-to-watch-oct-27/
+**How to watch Georgia vs. Florida: Time, TV, streaming**\
+`Find out how to watch the Georgia Bulldogs play the Florida Gators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6754907/2025/10/27/georgia-vs-florida-stream-how-to-watch-nov-1/
 
-**How to watch Hawks vs. Bulls: Time, TV, streaming**\
-`Find out how to watch the Atlanta Hawks play the Chicago Bulls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6754835/2025/10/27/hawks-vs-bulls-stream-how-to-watch-oct-27/
+**How to watch Michigan State vs. Minnesota: Time, TV, streaming**\
+`Find out how to watch the Michigan State Spartans play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6754903/2025/10/27/michigan-state-vs-minnesota-stream-how-to-watch-nov-1/
 
