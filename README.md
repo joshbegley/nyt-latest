@@ -1,3 +1,15 @@
+**The New York Times in Print for Monday, Oct. 27, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/27/todays-new-york-times
+
+**‘Down Cemetery Road,’ and More Things to Watch on TV This Week**\
+`The new Apple TV show airs, and many Halloween episodes and movies are available to stream.`\
+https://nytimes.com/2025/10/27/arts/television/down-cemetery-road-tv-this-week.html
+
+**Peace in Gaza Comes Down to This**\
+`Washington must dedicate itself to making sure an international stabilization force is established for Gaza. It’s the linchpin.`\
+https://nytimes.com/2025/10/27/opinion/israel-hamas-gaza-peace.html
+
 **Fantasy football Week 8 takeaways: Lots of tricks, and a few treats — like Jonathan Taylor**\
 `Michael Salfino shares his observations for a Week 8 laden with blowouts and injuries, but also some notable running back performances.`\
 https://nytimes.com/athletic/6752355/2025/10/27/fantasy-football-jonathan-taylor-james-cook/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/27/world/middleeast/shooting-palestinian-american-jo
 **Packers-Steelers takeaways: Jordan Love dominates reunion with Aaron Rodgers**\
 `Jordan Love threw three touchdown passes and Tucker Kraft starred on National Tight Ends Day as Green Bay won 35-25.`\
 https://nytimes.com/athletic/6752138/2025/10/27/packers-steelers-score-result-takeaways-week-8/
-
-**2 U.S. Navy Aircraft Go Down in South China Sea**\
-`A helicopter and a fighter jet went down in separate incidents while operating from a U.S. aircraft carrier on Sunday, the Navy said. The crews were rescued.`\
-https://nytimes.com/2025/10/27/world/asia/navy-aircraft-crash-south-china-sea.html
-
-**In U.K., China Is a Threat and a Coveted Trade Partner**\
-`A botched spying case prompted accusations that the British government was soft on China, highlighting tensions between economic and national security interests.`\
-https://nytimes.com/2025/10/27/world/europe/britain-china-national-security-economy.html
-
-**Heat Virtually Wipes Out 2 Key Coral Species Off Florida**\
-`Quotation of the Day for Monday, October 27, 2025.`\
-https://nytimes.com/2025/10/27/pageoneplus/heat-virtually-wipes-out-2-key-coral-species-off-florida.html
 
