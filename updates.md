@@ -1,3 +1,7 @@
+**The U.N. food agency fears it will not have enough to feed people in Haiti.**\
+`By Frances Robles, David C. Adams and André Paultre`\
+https://nytimes.com/live/2025/10/27/weather/hurricane-melissa-jamaica/the-un-food-agency-fears-it-will-not-have-enough-to-feed-people-in-haiti
+
 **Chris Armas out as Colorado Rapids manager**\
 `Colorado joins the growing list of MLS clubs in need of a new manager after not renewing Armas's deal`\
 https://nytimes.com/athletic/6754682/2025/10/27/chris-armas-colorado-rapids-manager-part-ways/
