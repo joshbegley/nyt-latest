@@ -1,3 +1,7 @@
+**NHL weekend rankings: Wild, Penguins, and 5 early surprises I'm starting to buy**\
+`It is (say the line!) still early, but some of the trends around the league sure look like they might stick around long-term.`\
+https://nytimes.com/athletic/6752657/2025/10/27/nhl-weekend-rankings-wild-penguins-early-surprises/
+
 **Commanders at Chiefs on MNF: Mahomes' MVP push, sports equinox and broadcast props**\
 `This week's MNF showcase has the surging Patrick Mahomes and the shorthanded Washington Commanders. It's part of the sports equinox, too.`\
 https://nytimes.com/athletic/6747952/2025/10/27/commanders-chiefs-mahomes-daniels-injury-mnf-how-to-watch/
