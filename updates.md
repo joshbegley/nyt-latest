@@ -1,3 +1,7 @@
+**Does LSU recruit itself? Not quite, but it's close — and that's why it's such an attractive job**\
+`On a per capita basis, the state ranks fourth nationally in producing the most three-, four- and five-star recruits over the last 10 years.`\
+https://nytimes.com/athletic/6754929/2025/10/27/lsu-football-recruiting-coaching-job-ranking/
+
 **Map: 6.0-Magnitude Earthquake Strikes Turkey**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/10/27/world/middleeast/earthquake-turkey.html
