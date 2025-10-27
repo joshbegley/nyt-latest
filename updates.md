@@ -1,3 +1,7 @@
+**Pino's indiscipline cost Palace dear but patience is required**\
+`The Spaniard’s bright start has faded as Palace have found life difficult following their 19-game unbeaten run coming to an end`\
+https://nytimes.com/athletic/6745318/2025/10/27/yeremy-pino-crystal-palace/
+
 **Le Tissier has made case for England centre-back role - her talent there should not be wasted**\
 `Le Tissier should be at the top of the pecking order among Wiegman’s centre-back options. The problem is England lack depth at right-back`\
 https://nytimes.com/athletic/6750930/2025/10/27/maya-le-tissier-england-centre-back/
