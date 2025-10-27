@@ -1,3 +1,7 @@
+**Police Investigate Possible Arson at Home of Portland City Councilor**\
+`The police said a fire that damaged cars and a carport at the home of City Councilor Candace Avalos was “suspicious in nature.” No arrests have been made.`\
+https://nytimes.com/2025/10/27/us/candace-avalos-arson-portland-city-councilor.html
+
 **Broncos mum on Pat Surtain's status as prep begins for critical matchup with Texans**\
 `Broncos wide receiver and Pro Bowl returner Marvin Mims Jr. is in the NFL's concussion protocol after absorbing a hit late in Sunday's game.`\
 https://nytimes.com/athletic/6754583/2025/10/27/broncos-pat-surtain-injury-status/
