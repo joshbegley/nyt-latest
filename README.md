@@ -1,3 +1,7 @@
+**Russia Aims Drone Attacks at Civilians, a War Crime, U.N. Inquiry Says**\
+`In the city of Kherson, in southern Ukraine, small drones routinely target ordinary people by dropping hand grenades, and record video documenting their attacks, a U.N. commission reported.`\
+https://nytimes.com/2025/10/27/world/europe/russia-drones-target-civilians.html
+
 **Trump Claims Recent M.R.I. Scan Was ‘Perfect’**\
 `While speaking to reporters aboard Air Force One, President Trump said that his recent M.R.I. results were “perfect,” but declined to say why his doctors had ordered the scan. Mr. Trump again brought up that he’d be open to serving a third term.`\
 https://nytimes.com/video/us/politics/100000010484049/trump-mri-scan-third-presidential-term.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6754430/2025/10/27/nfl-overreaction-monday-week-9/
 **Search Underway After Crew Member Goes Overboard on Viking Cruise**\
 `The Italian Coast Guard was assisting in the search, the cruise company said. The cruise was taking passengers from Greece to Italy.`\
 https://nytimes.com/2025/10/27/world/europe/crew-member-search-viking-star-cruise.html
-
-**Flyers assign prospect Jett Luchanko back to juniors — what does it mean for him?**\
-`In four games, Luchanko was scoreless with one shot on goal, two penalty minutes and a minus-3 rating.`\
-https://nytimes.com/athletic/6754447/2025/10/27/flyers-jett-luchanko-juniors/
 
