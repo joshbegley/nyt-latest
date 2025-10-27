@@ -1,3 +1,11 @@
+**Vinicius Jr's Clasico tantrum and what it says about his relationship with Alonso**\
+`The Real Madrid star and his new coach have not got off to an idyllic start, as became clear to the world in their win against Barcelona`\
+https://nytimes.com/athletic/6753367/2025/10/27/vinicius-jr-real-madrid-alonso-clasico/
+
+**Victory for Milei’s Party in Argentina Election**\
+`The party of President Javier Milei of Argentina triumphed in Sunday’s legislative midterm election, a victory that was crucial for continuing his austerity measures.`\
+https://nytimes.com/video/world/americas/100000010482829/argentina-election-javier-milei.html
+
 **Storm Drenches Central Florida, Creating ‘Particularly Dangerous’ Situation**\
 `A rare flash flood emergency was declared for parts of Lake County on Sunday, which received up to 18 inches of rain.`\
 https://nytimes.com/2025/10/27/us/flash-flooding-florida.html
