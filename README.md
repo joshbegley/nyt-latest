@@ -1,3 +1,7 @@
+**The U.N. food agency fears it will not have enough to feed people in Haiti.**\
+`By Frances Robles, David C. Adams and André Paultre`\
+https://nytimes.com/live/2025/10/27/weather/hurricane-melissa-jamaica/the-un-food-agency-fears-it-will-not-have-enough-to-feed-people-in-haiti
+
 **Chris Armas out as Colorado Rapids manager**\
 `Colorado joins the growing list of MLS clubs in need of a new manager after not renewing Armas's deal`\
 https://nytimes.com/athletic/6754682/2025/10/27/chris-armas-colorado-rapids-manager-part-ways/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/27/nyregion/metro-north-bronx-penn-access.html
 **Trump’s China Deal May Avert a Crisis of His Own Making**\
 `The Trump administration is hailing a potential deal that may return the U.S.-China relationship to where it was before the president began a trade war against Beijing.`\
 https://nytimes.com/2025/10/27/us/politics/trump-china-trade-deal-talks.html
-
-**NFL overreactions: Ravens-Dolphins is going to be a shoot-out**\
-`Toby Mergler makes early Week 9 picks wildly over-indexing on vibes, small sample sizes and comparisons to pop culture classics.`\
-https://nytimes.com/athletic/6754430/2025/10/27/nfl-overreaction-monday-week-9/
 
