@@ -1,3 +1,7 @@
+**Sources: Tata Martino the frontrunner for Atlanta job, to return as manager**\
+`Martino could be making a sensational return to Atlanta, where the club has a coaching vacancy after firing Ronny Deila`\
+https://nytimes.com/athletic/6754403/2025/10/27/tata-martino-the-frontrunner-for-atlanta-united-job-to-return-as-manager-sources/
+
 **Like This Year’s Other Major Storms, Melissa Appears Likely to Miss U.S.**\
 `Most forecast models show the hurricane moving on a path that would keep it well east of Florida.`\
 https://nytimes.com/2025/10/27/weather/hurricane-melissa-florida.html
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6754430/2025/10/27/nfl-overreaction-monday-week-9/
 `The Italian Coast Guard was assisting in the search, the cruise company said. The cruise was taking passengers from Greece to Italy.`\
 https://nytimes.com/2025/10/27/world/europe/crew-member-search-viking-star-cruise.html
 
-**Flyers assign prospect Jett Luchanko back to juniors — What does it mean for him?**\
+**Flyers assign prospect Jett Luchanko back to juniors — what does it mean for him?**\
 `In four games, Luchanko was scoreless with one shot on goal, two penalty minutes and a minus-3 rating.`\
 https://nytimes.com/athletic/6754447/2025/10/27/flyers-jett-luchanko-juniors/
 
 **Jack DeJohnette: 7 Essential Recordings**\
 `The drummer and pianist, who died on Sunday at 83, was a master of many styles and an ever-evolving innovator.`\
 https://nytimes.com/2025/10/27/arts/music/jack-dejohnette-songs-albums.html
-
-**Jack DeJohnette, Revered Jazz Drummer, Dies at 83**\
-`Endowed with spectacular range, he played with Miles Davis, led New Directions and Special Edition, and spent decades with Keith Jarrett’s Standards Trio.`\
-https://nytimes.com/2025/10/27/arts/music/jack-dejohnette-dead.html
 

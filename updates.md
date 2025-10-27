@@ -1,3 +1,19 @@
+**Like This Year’s Other Major Storms, Melissa Appears Likely to Miss U.S.**\
+`Most forecast models show the hurricane moving on a path that would keep it well east of Florida.`\
+https://nytimes.com/2025/10/27/weather/hurricane-melissa-florida.html
+
+**NFL survivor pool mailbag: Submit your questions for Week 9**\
+`Put your NFL survivor pool questions here and our experts will answer them in this week's advice column.`\
+https://nytimes.com/athletic/6754548/2025/10/27/week-9-nfl-survivor-pool-help-mailbag/
+
+**A'ja Wilson and Bam Adebayo's long, charming road to acknowledging their relationship**\
+`Reigning WNBA MVP A'ja Wilson melted fans' hearts when she called Miami Heat center Bam Adebayo her "boyfriend" for the first time publicly.`\
+https://nytimes.com/athletic/6754327/2025/10/27/aja-wilson-bam-adebayo-relationship-dating/
+
+**Search Underway After Crew Member Goes Overboard on Viking Cruise**\
+`The Italian Coast Guard was assisting in the search, the cruise company said. The cruise was taking passengers from Greece to Italy.`\
+https://nytimes.com/2025/10/27/world/europe/crew-member-search-viking-star-cruise.html
+
 **Search Underway After Crew Member Goes Overboard on Viking Cruise**\
 `The Italian Coast Guard was assisting in the search for the crew member, the cruise company said.`\
 https://nytimes.com/2025/10/27/world/europe/crew-member-search-viking-star-cruise.html
