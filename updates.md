@@ -1,3 +1,19 @@
+**Which Is Better, One Long Walk or Many Short Ones?**\
+`A new analysis is one of the first to study whether spacing steps out or consolidating them was linked to better health outcomes.`\
+https://nytimes.com/2025/10/27/well/move/long-short-walks-health.html
+
+**Cody ‘Beef’ Franke, Barstool Golf Influencer, Dies at 31**\
+`“Know when to attack and when to put on the brakes,” Mr. Franke said in one of his last online posts. Dave Portnoy, the Barstool Sports founder, said he died suddenly over the weekend.`\
+https://nytimes.com/2025/10/27/sports/cody-beef-franke-dead.html
+
+**Amazon Braces for Major Cuts to Its White Collar Work Force**\
+`The company is looking to cut costs starting this week as it continues to spend aggressively on artificial intelligence. Another round of cuts is expected in January.`\
+https://nytimes.com/2025/10/27/technology/amazon-braces-for-layoffs-white-collar-jobs.html
+
+**Wife of Eric Kay says she saw Angels players passing out pills on team plane**\
+`Camela Kay's early testimony was in direct contrast with Angels' employees testimony from earlier in the trial.`\
+https://nytimes.com/athletic/6754985/2025/10/27/eric-kay-camela-angels-pills-team-plane/
+
 **Rebranding Immigration**\
 `India wants to send its vast work force abroad. It may have found a way around a word that stokes opposition in many countries.`\
 https://nytimes.com/2025/10/27/world/immigration-labor-india-japan.html

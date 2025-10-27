@@ -1,3 +1,7 @@
+**Ja Morant says he doesn’t care to be NBA’s next face: ‘I just play my game’**\
+`Morant has been mentioned in a group of young players who have the superstar ability to take over when LeBron James and Steph Curry retire.`\
+https://nytimes.com/athletic/6754811/2025/10/27/ja-morant-grizzlies-comments-face-of-the-league/
+
 **Which Is Better, One Long Walk or Many Short Ones?**\
 `A new analysis is one of the first to study whether spacing steps out or consolidating them was linked to better health outcomes.`\
 https://nytimes.com/2025/10/27/well/move/long-short-walks-health.html
