@@ -1,3 +1,35 @@
+**Notre Dame Mailbag: Freeman as a hot job candidate, Carr's outlook and more**\
+`Realistically Freeman has everything he wants at Notre Dame, short of extra NIL funds, which every coach wants. `\
+https://nytimes.com/athletic/6747609/2025/10/27/notre-dame-mailbag-marcus-freeman-cj-carr/
+
+**Why the sports equinox has become a yearly event**\
+`What was once a rare event — each of the major North American sports leagues playing on the same day — has become a more frequent occurrence`\
+https://nytimes.com/athletic/6746823/2025/10/27/sports-equinox-nfl-nhl-nba-mlb-mls/
+
+**Cooper Flagg 'feels great' after notching first NBA win**\
+`"Feels great," Flagg said about earning his first win as an NBA player.`\
+https://nytimes.com/athletic/6753213/2025/10/27/mavericks-cooper-flagg-first-nba-win/
+
+**Losses 'becoming a trend' for Rangers, who again fall to the NHL's worst**\
+`For the second game in a row, the Rangers lost to the team that started the day with the NHL's worst record.`\
+https://nytimes.com/athletic/6752721/2025/10/27/rangers-lose-to-flames-worst-record/
+
+**For Lando Norris, boos and an F1 title lead reveal McLaren's delicate position**\
+`Norris took the championship lead for the first time since April, but he's only one point ahead of Piastri with four races left`\
+https://nytimes.com/athletic/6752964/2025/10/27/lando-norris-mexico-gp-f1-championship/
+
+**Wrexham, Cardiff, and a north-south Wales rivalry that is about more than just football**\
+`On Tuesday, Wrexham will face Cardiff for the first time in 21 years – a lot has changed at the two clubs since their last meeting...`\
+https://nytimes.com/athletic/6703144/2025/10/27/wrexham-cardiff-north-south-wales-rivalry/
+
+**The Athletic 136: Memphis re-enters the race, and is Oregon slipping?**\
+`Week 9 may have lacked the major upsets of previous weeks, but plenty of games played a key role in conference races and the CFP picture.`\
+https://nytimes.com/athletic/6753277/2025/10/27/college-football-team-rankings-oregon-memphis/
+
+**Tudor sacked by Juventus after seven months in charge**\
+`The 47-year-old’s last game was a 1-0 loss to Lazio on Sunday, leaving the side in eighth in Serie A.`\
+https://nytimes.com/athletic/6733046/2025/10/27/igor-tudor-juventus-sacked/
+
 **Ben Rice's swing-change success may have earned him Yankees' Opening Day starting job**\
 `After a swing change propelled him to a breakout season, Rice may deserve a shot at the Yankees’ full-time starting first base job in 2026.`\
 https://nytimes.com/athletic/6744396/2025/10/27/ben-rice-swing-change-yankees-first-base-2026/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6744396/2025/10/27/ben-rice-swing-change-yankees-fi
 **Phillies mailbag: 2026 payroll, adding a righty bat, Justin Crawford's role**\
 `Where will the Phillies' 2026 payroll land? Not counting Kyle Schwarber and J.T. Realmuto, they have almost $40M in departing free agents.`\
 https://nytimes.com/athletic/6747514/2025/10/27/phillies-2026-payroll-offseason-moves/
-
-**After Detroit debacle, Blues coach Jim Montgomery keeps the faith: 'I know it's coming'**\
-`The Blues, who surrendered a 4-0 lead in a 6-4 loss to Detroit Saturday, have lost four of their last five games.`\
-https://nytimes.com/athletic/6751408/2025/10/27/blues-montgomery-coaching-red-wings/
-
-**Red Sox have 2 goals to help Kristian Campbell get on track: Rest and strength**\
-`The Red Sox see the offseason as the perfect time for Campbell to reset and reboot after a tumultuous rookie season.`\
-https://nytimes.com/athletic/6747578/2025/10/27/kristian-campbell-red-sox-offseason/
-
-**WNBA mailbag: CBA negotiation, free agency and expansion draft answers**\
-`What can be done to improve WNBA officiating? Our expert Ben Pickman answers readers' questions.`\
-https://nytimes.com/athletic/6748534/2025/10/27/wnba-offseason-mailbag-cba-free-agency/
-
-**The sports equinox is back. Here's how to watch all 4 leagues on Monday**\
-`This quasi-holiday happens about once a year, when North America's "big four" leagues all have games on the same night.`\
-https://nytimes.com/athletic/6744212/2025/10/27/sports-equinox-2025-world-series-nfl-nba-nhl-schedule/
-
-**Demidov’s eyes, defending leads, Laine’s absence: Canadiens weekly notebook**\
-`Also in this week's notebook: Sam Montembeault's thought process through his struggles and Oliver Kapanen's ambidextrous faceoffs.`\
-https://nytimes.com/athletic/6752744/2025/10/27/canadiens-demidov-laine-montembeault-lines/
-
-**'We are in this together': Bill Guerin meets with the captains about the Wild's poor start**\
-`"I'm concerned because it's very fixable," Guerin said. "I'm concerned because we're not playing for our identity.”`\
-https://nytimes.com/athletic/6752993/2025/10/27/bill-guerin-minnesota-wild-slump-start/
-
-**The Dodgers are eerily quiet at the plate: Here's how they plan to get rolling**\
-`The Dodgers might bench the struggling Andy Pages in hopes of getting more production from the bottom of the lineup.`\
-https://nytimes.com/athletic/6752982/2025/10/27/shohei-ohtani-dodgers-world-series-mlb-game3/
-
-**Analyzing the Lions' offense at the bye: Jared Goff sharp leading high-scoring unit**\
-`Detroit's offense ranks third in scoring offense (30.7), fifth in yards per play (5.9) and ninth in yards per game (357.3).`\
-https://nytimes.com/athletic/6749812/2025/10/27/lions-offense-jared-goff-amon-ra-st-brown/
 
