@@ -1,3 +1,7 @@
+**With Springer set to hear more boos, both managers weigh in ahead of Game 3**\
+`Eight years after the Astros beat the Dodgers in the 2017 Fall Classic, fans in L.A. are still likely to let that series' MVP hear it.`\
+https://nytimes.com/athletic/6755120/2025/10/27/george-springer-blue-jays-dodgers-world-series-boos/
+
 **More than one-sixth of Canada's population watched Blue Jays-Dodgers in Game 1**\
 `During the regular season, Sportsnet averaged 906,800 viewers per game, up 51 percent over last season. `\
 https://nytimes.com/athletic/6755062/2025/10/27/tv-ratings-blue-jays-world-series-game-1/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/27/us/harvard-salient-hitler-suspended-magazine.html
 **Vikings placing Carson Wentz on IR with season-ending shoulder injury**\
 `With Wentz out for the season, the Vikings are expected to start J.J. McCarthy on Sunday against the Lions in Detroit.`\
 https://nytimes.com/athletic/6754991/2025/10/27/carson-wentz-shoulder-injury-surgery-vikings-qb/
-
-**Bringing Back California’s Kelp Forests One Smash at a Time**\
-`Scientists and divers are slowly reviving the underwater forests along California’s northern coast by planting kelp seedlings and smashing the sea urchins before they gobble it up.`\
-https://nytimes.com/video/climate/100000010483700/smashing-sea-urchins-saving-californias-kelp-forests.html
 
