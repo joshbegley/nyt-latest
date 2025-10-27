@@ -1,3 +1,11 @@
+**Villa's Cash signs new four-year deal until 2029**\
+`Cash's new four-year deal also contains the option of a possible 12-month extension, as reported by The Athletic on October 21.`\
+https://nytimes.com/athletic/6753688/2025/10/27/aston-villa-news-cash-new-contract/
+
+**ICE Detains British Media Commentator**\
+`Sami Hamdi, who often speaks against Israel, was in the United States on a speaking tour. The Department of Homeland Security said his visa had been revoked.`\
+https://nytimes.com/2025/10/27/us/sami-hamdi-detained-ice.html
+
 **Former Liverpool goalkeeping coach Jose Manuel Ochotorena dies aged 64**\
 `The Spaniard was an important part of Rafa Benitez’s backroom team during the Champions League win in 2005 and FA Cup success in 2006.`\
 https://nytimes.com/athletic/6753668/2025/10/27/jose-manuel-ochotorena-liverpool-dies/
