@@ -1,3 +1,11 @@
+**USWNT returns to basics, beating Portugal 3-1 in rematch**\
+`Coach Emma Hayes said the performance reminded the U.S. of how it can play.`\
+https://nytimes.com/athletic/6752440/2025/10/26/uswnt-portugal-bounce-back-win/
+
+**Despite career day by Myles Garrett, Browns couldn't keep up in loss to Patriots**\
+`The six-time All-Pro had a new career high with five sacks, but New England still put up 32 points and won in blowout fashion. `\
+https://nytimes.com/athletic/6752228/2025/10/26/browns-myles-garrett-sacks-patriots/
+
 **Cam Skattebo will be tough for Giants to replace in more ways than one**\
 `Skattebo suffered a dislocated ankle in Sunday's loss to the Eagles. “I was devastated,” said Jaxson Dart, his QB and fellow rookie.`\
 https://nytimes.com/athletic/6752281/2025/10/26/cam-skattebo-giants-ankle-injury/
