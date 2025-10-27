@@ -1,3 +1,23 @@
+**Canes are no strangers to chasing big names. Is more to come for another run?**\
+`The Hurricanes are off to yet another great start to the regular season, but everyone in Carolina has one eye on next spring.`\
+https://nytimes.com/athletic/6751602/2025/10/27/carolina-hurricanes-tulsky-trade-stanley-cup/
+
+**North Carolina's struggles continue under Bill Belichick — is it talent or scheme?**\
+`How many good players do the Tar Heels truly have? Not many, especially when it comes to the offensive skill positions.`\
+https://nytimes.com/athletic/6744320/2025/10/27/north-carolina-football-bill-belichick-roster/
+
+**Women's college basketball 2025-26 preseason top 25: Can anyone contend with UConn?**\
+`Will South Carolina win the SEC? Which young team will step up? Sabreena Merchant breaks down the college basketball landscape.`\
+https://nytimes.com/athletic/6747963/2025/10/27/womens-college-basketball-preseason-top-25/
+
+**Monday Morning Leafs Report: Is this October like all the rest?**\
+`This October looks similar to previous ones, yet something feels a little different, a little more precarious, a little more uncertain.`\
+https://nytimes.com/athletic/6751341/2025/10/27/maple-leafs-october-monday-morning-leafs-report/
+
+**The Pulse: The saddest NFL fan bases after Week 8**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6753041/2025/10/27/nfl-week-8-browns-steelers-the-pulse/
+
 **NHL weekend rankings: Wild, Penguins, and 5 early surprises I'm starting to buy**\
 `It is (say the line!) still early, but some of the trends around the league sure look like they might stick around long-term.`\
 https://nytimes.com/athletic/6752657/2025/10/27/nhl-weekend-rankings-wild-penguins-early-surprises/

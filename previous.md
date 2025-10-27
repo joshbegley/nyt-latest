@@ -1,3 +1,23 @@
+**Canes are no strangers to chasing big names. Is more to come for another run?**\
+`The Hurricanes are off to yet another great start to the regular season, but everyone in Carolina has one eye on next spring.`\
+https://nytimes.com/athletic/6751602/2025/10/27/carolina-hurricanes-tulsky-trade-stanley-cup/
+
+**North Carolina's struggles continue under Bill Belichick — is it talent or scheme?**\
+`How many good players do the Tar Heels truly have? Not many, especially when it comes to the offensive skill positions.`\
+https://nytimes.com/athletic/6744320/2025/10/27/north-carolina-football-bill-belichick-roster/
+
+**Women's college basketball 2025-26 preseason top 25: Can anyone contend with UConn?**\
+`Will South Carolina win the SEC? Which young team will step up? Sabreena Merchant breaks down the college basketball landscape.`\
+https://nytimes.com/athletic/6747963/2025/10/27/womens-college-basketball-preseason-top-25/
+
+**Monday Morning Leafs Report: Is this October like all the rest?**\
+`This October looks similar to previous ones, yet something feels a little different, a little more precarious, a little more uncertain.`\
+https://nytimes.com/athletic/6751341/2025/10/27/maple-leafs-october-monday-morning-leafs-report/
+
+**The Pulse: The saddest NFL fan bases after Week 8**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6753041/2025/10/27/nfl-week-8-browns-steelers-the-pulse/
+
 **NHL weekend rankings: Wild, Penguins, and 5 early surprises I'm starting to buy**\
 `It is (say the line!) still early, but some of the trends around the league sure look like they might stick around long-term.`\
 https://nytimes.com/athletic/6752657/2025/10/27/nhl-weekend-rankings-wild-penguins-early-surprises/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6752996/2025/10/27/cowboys-ugly-loss-roster-trade-d
 **Why does Austin Reaves keep ending up next to NBA legends? Even he's stumped**\
 `Sunday's 51-point night wasn’t the first time Reaves found himself in rare air. It probably won’t be the last, either.`\
 https://nytimes.com/athletic/6753372/2025/10/27/lakers-austin-reaves-points-kings/
-
-**Was Connor McDavid's discount OK with NHLPA? Is big-name free agency dead? Ask CJ, part 2**\
-`Also in Chris Johnston's mailbag: Who's facing more Olympics pressure: Canada or the U.S.? And could the Hall of Fame make a Jagr exception?`\
-https://nytimes.com/athletic/6747501/2025/10/27/connor-mcdavid-free-agency-olympics-nhl/
-
-**Men's college basketball preseason Top 25: In wide open year, Michigan, Kentucky start at the top**\
-`A new trend of marquee preseason matchups has given us some data points when it comes to ranking teams before the season begins.`\
-https://nytimes.com/athletic/6751366/2025/10/27/mens-college-basketball-preseason-top-25/
-
-**What I think and what I know about the Edmonton Oilers' first 10 games**\
-`There hasn’t been a lot to like so far, yet upside and reasons for optimism remain.`\
-https://nytimes.com/athletic/6753401/2025/10/27/edmonton-oilers-10-games-what-i-know/
-
-**Wizards (really!) have some promising young talent, but they still need some lottery luck**\
-`Washington could actually, next season, harbor thoughts of actually mattering again in the Eastern Conference.`\
-https://nytimes.com/athletic/6752372/2025/10/27/wizards-talent-need-luck-tre-johnson/
-
-**'He's him': How Jordan Love made a statement in comeback win over Steelers**\
-`Love completed 29-of-37 passes for 360 yards and three touchdowns in a 35-25 win over the Steelers on Sunday night.`\
-https://nytimes.com/athletic/6753305/2025/10/27/packers-steelers-snf-jordan-love-aaron-rodgers/
 
