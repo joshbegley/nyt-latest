@@ -1,3 +1,11 @@
+**Stephen Strasburg returns to San Diego State as a coach**\
+`Strasburg rose to stardom with the Aztecs before becoming a three-time MLB All-Star and MVP of the 2019 World Series.`\
+https://nytimes.com/athletic/6755046/2025/10/27/stephen-strasburg-san-diego-state-coach-mlb/
+
+**Retired NHL center Ryan Kesler charged with fourth-degree criminal sexual conduct, pleads not guilty**\
+`Kesler, a retired NHL center, has been charged with two misdemeanor counts of criminal sexual conduct in the fourth degree.`\
+https://nytimes.com/athletic/6755129/2025/10/27/ryan-kesler-sexual-conduct-charge-pleads-not-guilty/
+
 **O'Neill, Maloney to take interim charge at Celtic as Rodgers resigns**\
 `It comes a day after the Scottish champions fell to a 3-1 defeat at Hearts, opening up an eight-point gap at the top of the league.`\
 https://nytimes.com/athletic/6751082/2025/10/27/celtic-manager-martin-oneill-rodgers-leaves/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/27/sports/cody-beef-franke-dead.html
 **Amazon Braces for Major Cuts to Its White-Collar Work Force**\
 `The company is looking to cut costs starting this week as it continues to spend aggressively on artificial intelligence. Another round of cuts is expected in January.`\
 https://nytimes.com/2025/10/27/technology/amazon-layoffs.html
-
-**Ex-wife of Eric Kay says she saw Angels players passing out pills on team plane**\
-`Camela Kay's early testimony was in direct contrast with Angels' employees testimony from earlier in the trial.`\
-https://nytimes.com/athletic/6754985/2025/10/27/eric-kay-camela-angels-pills-team-plane/
-
-**Rebranding Immigration**\
-`India wants to send its vast work force abroad. It may have found a way around a word that stokes opposition in many countries.`\
-https://nytimes.com/2025/10/27/world/immigration-labor-india-japan.html
 
