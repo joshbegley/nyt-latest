@@ -1,3 +1,7 @@
+**How to watch Ravens vs. Dolphins: Time, TV, streaming**\
+`Find out how to watch the Baltimore Ravens play the Miami Dolphins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6753481/2025/10/27/ravens-vs-dolphins-stream-how-to-watch-oct-30/
+
 **A Glistening Makeover for a Rockefeller Center Icon**\
 `Prometheus, the statue in the center’s lower plaza at the back of the skating rink, is being regilded. The work is expected to be done before the Christmas tree lighting.`\
 https://nytimes.com/2025/10/27/nyregion/prometheus-statue-rockefeller-center.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010477965/why-trumps-asia-visit-is-co
 **Who Is Cameron Crowe Kidding With the Title of His Memoir?**\
 `The rock journalist turned writer turned filmmaker styles himself “The Uncool” in his new book.`\
 https://nytimes.com/2025/10/27/books/review/cameron-crowe-uncool-memoir.html
-
-**Jill Lepore: ‘Most Forms of Tyranny Do Come to an End’**\
-`The Harvard historian on why change requires “determination and imagination.”`\
-https://nytimes.com/2025/10/27/opinion/americas-next-story-jill-lepore.html
 

@@ -1,40 +1,40 @@
-**Villa reach agreement with Ivorian club for teenage striker to join in 2027**\
-`Ibrahim Dosso will join the club and sign a professional contract when he turns 18, which will be January 1, 2027.`\
-https://nytimes.com/athletic/6753419/2025/10/27/aston-villa-sign-striker-ibrahim-dosso/
+**A Glistening Makeover for a Rockefeller Center Icon**\
+`Prometheus, the statue in the center’s lower plaza at the back of the skating rink, is being regilded. The work is expected to be done before the Christmas tree lighting.`\
+https://nytimes.com/2025/10/27/nyregion/prometheus-statue-rockefeller-center.html
 
-**The Double-Digit ‘Democratic Penalty’**\
-`Jared Abbott, the director of the Center for Working-Class Politics, explains what polling data reveals about the Democratic Party’s brand.`\
-https://nytimes.com/video/opinion/100000010472170/the-double-digit-democratic-penalty.html
+**Will Trump’s Tariffs Survive Supreme Court’s ‘Major Questions’ Test?**\
+`The justices used the doctrine, a judicially created method of reading statutes, to thwart several major Biden programs.`\
+https://nytimes.com/2025/10/27/us/politics/trump-tariffs-supreme-courts-major-questions-doctrine.html
 
-**The Supreme Court Owes the Country an Explanation for Its Big Decisions**\
-`The Times editorial board critiques the Supreme Court’s overuse of the emergency docket to deliver consequential decisions without explaining its reasoning.`\
-https://nytimes.com/video/opinion/100000010479597/the-supreme-court-owes-the-country-an-explanation-for-its-big-decisions.html
+**What Should I Wear to a Halloween Party if I Hate Dressing Up?**\
+`If forcing yourself into a costume is the scariest part of your holiday, our critic has some guidance for low-effort outfits that still get in the spirit.`\
+https://nytimes.com/2025/10/27/fashion/halloween-costume-ideas-easy.html
 
-**Vinicius Jr's Clasico tantrum and what it says about his relationship with Alonso**\
-`The Real Madrid star and his new coach have not got off to an idyllic start, as became clear to the world in their win against Barcelona`\
-https://nytimes.com/athletic/6753367/2025/10/27/vinicius-jr-real-madrid-alonso-clasico/
+**For Shame, North Carolina. For Shame.**\
+`Republicans aren’t just gerrymandering my state. They’re erasing its political identity.`\
+https://nytimes.com/2025/10/27/opinion/north-carolina-gerrymander-republicans.html
 
-**Victory for Milei’s Party in Argentina’s Midterm Election**\
-`The party of President Javier Milei of Argentina triumphed in Sunday’s legislative midterm election, a victory that was crucial for continuing his austerity measures.`\
-https://nytimes.com/video/world/americas/100000010482829/argentina-election-javier-milei.html
+**Ballrooms May Be a Gilded Relic, but They Still Have Their Devotees**\
+`Once a mainstay of the Gilded Age, the grand banquet hall lost its luster with high society. But you can still find one if you look in the right places.`\
+https://nytimes.com/2025/10/27/realestate/ballrooms-white-house.html
 
-**Storm Drenches Central Florida, Creating ‘Particularly Dangerous’ Situation**\
-`A rare flash flood emergency was declared for parts of Lake County on Sunday, which received up to 18 inches of rain.`\
-https://nytimes.com/2025/10/27/us/flash-flooding-florida.html
+**Why Attacks on Spanberger Don’t Seem to Stick in Va. Governor’s Race**\
+`Abigail Spanberger, the Democratic nominee, has a commanding lead in polls. Her Republican rival, Winsome Earle-Sears, has focused on a texting scandal involving the Democrat running for attorney general.`\
+https://nytimes.com/2025/10/27/us/politics/virginia-governors-race.html
 
-**Vitor Pereira exacerbated a toxic situation. Fans’ goodwill has been exhausted**\
-`In the short term, Vitor Pereira looks set to get time to improve Wolves' fortunes, but his long-term future at the club appears bleak`\
-https://nytimes.com/athletic/6751650/2025/10/27/wolverhampton-wanderers-burnley-vitor-pereira-analysis/
+**Strains in Short-Term Markets Raise Urgency of Fed’s Balance Sheet Debate**\
+`Warning signs in crucial money markets have raised the prospect that the central bank will soon stop reducing its portfolio of government debt and mortgage bond holdings.`\
+https://nytimes.com/2025/10/27/business/federal-reserve-balance-sheet-tightening.html
 
-**Business of Football: John Textor's £400m bid for Wolves and why it's complicated**\
-`Wolves, John Textor, Dragan Solak, Southampton and DAZN are the topics in this week's Business of Football column`\
-https://nytimes.com/athletic/6740730/2025/10/27/wolves-john-textor-bid/
+**Why Trump’s Asia Visit Is Consequential**\
+`President Trump has embarked on a six-day diplomatic tour of Asia, testing his role as a statesman and negotiator as he pursues a trade deal with China. Erica L. Green, the White House correspondent for The New York Times, explains what’s at stake.`\
+https://nytimes.com/video/world/asia/100000010477965/why-trumps-asia-visit-is-consequential.html
 
-**Australia captain Cummins loses race to be fit for first Ashes Test**\
-`The 32-year-old has not bowled since Australia's 3-0 series win over the West Indies in July due to a stress fracture in his back.`\
-https://nytimes.com/athletic/6753357/2025/10/27/pat-cummins-australia-ashes-england-fit/
+**Who Is Cameron Crowe Kidding With the Title of His Memoir?**\
+`The rock journalist turned writer turned filmmaker styles himself “The Uncool” in his new book.`\
+https://nytimes.com/2025/10/27/books/review/cameron-crowe-uncool-memoir.html
 
-**Top 50 MLB free agents: Contract predictions, team fits for Kyle Tucker, Kyle Schwarber, more**\
-`Tucker and Schwarber lead this year's free agency class. See which teams could land the top talent and how much each player could command.`\
-https://nytimes.com/athletic/6719990/2025/10/27/mlb-free-agents-2025-contract-team-predictions/
+**Jill Lepore: ‘Most Forms of Tyranny Do Come to an End’**\
+`The Harvard historian on why change requires “determination and imagination.”`\
+https://nytimes.com/2025/10/27/opinion/americas-next-story-jill-lepore.html
 
