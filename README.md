@@ -1,3 +1,7 @@
+**Trump Claims Recent M.R.I. Scan Was ‘Perfect’**\
+`While speaking to reporters aboard Air Force One, President Trump said that his recent M.R.I. results were “perfect,” but declined to say why his doctors had ordered the scan. Mr. Trump again brought up that he’d be open to serving a third term.`\
+https://nytimes.com/video/us/politics/100000010484049/trump-mri-scan-third-presidential-term.html
+
 **Sources: Tata Martino the frontrunner for Atlanta job, to return as manager**\
 `Martino could be making a sensational return to Atlanta, where the club has a coaching vacancy after firing Ronny Deila`\
 https://nytimes.com/athletic/6754403/2025/10/27/tata-martino-the-frontrunner-for-atlanta-united-job-to-return-as-manager-sources/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/27/world/europe/crew-member-search-viking-star-cruis
 **Flyers assign prospect Jett Luchanko back to juniors — what does it mean for him?**\
 `In four games, Luchanko was scoreless with one shot on goal, two penalty minutes and a minus-3 rating.`\
 https://nytimes.com/athletic/6754447/2025/10/27/flyers-jett-luchanko-juniors/
-
-**Jack DeJohnette: 7 Essential Recordings**\
-`The drummer and pianist, who died on Sunday at 83, was a master of many styles and an ever-evolving innovator.`\
-https://nytimes.com/2025/10/27/arts/music/jack-dejohnette-songs-albums.html
 

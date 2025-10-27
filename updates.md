@@ -1,3 +1,11 @@
+**Sources: Tata Martino the frontrunner for Atlanta job, to return as manager**\
+`Martino could be making a sensational return to Atlanta, where the club has a coaching vacancy after firing Ronny Deila`\
+https://nytimes.com/athletic/6754403/2025/10/27/tata-martino-the-frontrunner-for-atlanta-united-job-to-return-as-manager-sources/
+
+**Flyers assign prospect Jett Luchanko back to juniors — what does it mean for him?**\
+`In four games, Luchanko was scoreless with one shot on goal, two penalty minutes and a minus-3 rating.`\
+https://nytimes.com/athletic/6754447/2025/10/27/flyers-jett-luchanko-juniors/
+
 **Like This Year’s Other Major Storms, Melissa Appears Likely to Miss U.S.**\
 `Most forecast models show the hurricane moving on a path that would keep it well east of Florida.`\
 https://nytimes.com/2025/10/27/weather/hurricane-melissa-florida.html
