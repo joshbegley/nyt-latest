@@ -1,40 +1,36 @@
-**Packers earn first win in Pittsburgh since 1970**\
-`Aaron Rodgers faced his former team for the first time. Jordan Love, the quarterback he mentored, stole the show.`\
-https://nytimes.com/video/the-athletic/100000010483682/packers-earn-first-win-in-pittsburgh-since-1970.html
+**How to watch Cavaliers vs. Pistons: Time, TV, streaming**\
+`Find out how to watch the Cleveland Cavaliers play the Detroit Pistons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6754136/2025/10/27/cavaliers-vs-pistons-stream-how-to-watch-oct-27/
 
-**Step by Step, How China Seized Control of Critical Minerals**\
-`China’s far-reaching rules already affect manufacturers of semiconductors, cars and many other products. They will soon become much broader.`\
-https://nytimes.com/2025/10/27/business/china-rare-earth-export-controls.html
+**How to watch Magic vs. 76ers: Time, TV, streaming**\
+`Find out how to watch the Orlando Magic play the Philadelphia 76ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6754133/2025/10/27/magic-vs-76ers-stream-how-to-watch-oct-27/
 
-**Red Bulls oust coach Sandro Schwarz, make sweeping management changes**\
-`The Red Bulls are making significant changes after missing the MLS playoffs for the first time in 15 years`\
-https://nytimes.com/athletic/6754046/2025/10/27/new-york-red-bulls-manager-sandro-schwarz-fired/
+**Heisman Trophy odds: Finally some stability in the race**\
+`The top three contenders for the Heisman Trophy remained the same this week.`\
+https://nytimes.com/athletic/6753328/2025/10/27/heisman-trophy-odds-ty-simpson-fernando-mendoza-julian-sayin/
 
-**Mets adding Troy Snitker to hitting staff: Source**\
-`After a disappointing 83-79 season, the Mets dismissed the majority of their coaching staff, including both hitting coaches.`\
-https://nytimes.com/athletic/6754009/2025/10/27/mets-troy-snitker-hire-hitting-coach/
+**How to watch Blues vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the St. Louis Blues play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6754131/2025/10/27/blues-vs-penguins-stream-how-to-watch-oct-27/
 
-**The Perfect Sandwich Doesn’t Exi—**\
-`Ali Slagle’s gooey-centered grilled cheeses are cooked on a sheet pan, making a fast, easy classic even more convenient.`\
-https://nytimes.com/2025/10/27/dining/the-perfect-sandwich-doesnt-exi.html
+**1,000 Nonessential Workers and Military Relatives Evacuated from Guantánamo Bay**\
+`Wartime detainees and their guards remain, housed in hurricane-proof buildings.`\
+https://nytimes.com/2025/10/27/weather/us-navy-guantanamo-bay-evacuations.html
 
-**These 3 letters in Chiefs' facility have sparked Patrick Mahomes — and K.C.'s offense**\
-`The Chiefs have worn new "AAF" shirts the last few weeks. Here's how the acronym has helped the team unlock more from Mahomes.`\
-https://nytimes.com/athletic/6749648/2025/10/27/chiefs-patrick-mahomes-aggressive-offense/
+**What we're seeing from the Canucks' first 10 games: 5 observations**\
+`What do we make of the Canucks' 5-5 start through the first 10 games of the regular season?`\
+https://nytimes.com/athletic/6753058/2025/10/27/vancouver-canucks-record-standings-stats-2025/
 
-**The Bounce: Early-season NBA trends: Are the Thunder on 74-win watch already?**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6753971/2025/10/27/nba-early-season-trends-wemby-the-bounce/
+**A West Texas Children’s Clinic Where Vaccine Suspicion Is Encouraged**\
+`Parents who come to Pia Habersang’s practice in Amarillo shun vaccinations, with the encouragement of the clinic’s nurse practitioner; the health secretary, Robert F. Kennedy Jr.; and President Trump.`\
+https://nytimes.com/2025/10/27/us/politics/antivax-clinic-texas.html
 
-**A Conductor Returns to New York After His Unhappy Philharmonic Tenure**\
-`Jaap van Zweden left the New York Philharmonic in 2024. Now he’s returning to the city with his new orchestra at Carnegie Hall.`\
-https://nytimes.com/2025/10/27/arts/music/jaap-van-zweden-carnegie-hall.html
+**NFL Week 9 odds, spreads: Chiefs travel to Buffalo as 1-point favorite**\
+`Week 9 features several matchups closer than a field goal, and an AFC Championship Game rematch.`\
+https://nytimes.com/athletic/6753936/2025/10/27/nfl-week-9-odds-spreads-chiefs-bills/
 
-**NBA Power Rankings: Knicks and Warriors rise, and we have questions for everyone**\
-`Less than a week into the season, what has us scratching our heads so far?`\
-https://nytimes.com/athletic/6753888/2025/10/27/nba-power-rankings-knicks-warriors-lakers/
-
-**NASCAR Martinsville takeaways: Championship field set, William Byron elevates his game**\
-`William Byron ran the race of his life to get into the Championship 4, Team Penske got shut out, and more from the weekend at Martinsville.`\
-https://nytimes.com/athletic/6753746/2025/10/27/nascar-martinsville-takeaways-championship-4-william-byron/
+**The Windup: What we learned from games 1 and 2**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6753350/2025/10/27/world-series-game-1-2-recap-the-windup/
 
