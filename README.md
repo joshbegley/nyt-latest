@@ -1,3 +1,15 @@
+**Like This Year’s Other Major Storms, Melissa Appears Likely to Miss U.S.**\
+`Most forecast models show the hurricane moving on a path that would keep it well east of Florida.`\
+https://nytimes.com/2025/10/27/weather/hurricane-melissa-florida.html
+
+**NFL survivor pool mailbag: Submit your questions for Week 9**\
+`Put your NFL survivor pool questions here and our experts will answer them in this week's advice column.`\
+https://nytimes.com/athletic/6754548/2025/10/27/week-9-nfl-survivor-pool-help-mailbag/
+
+**A'ja Wilson and Bam Adebayo's long, charming road to acknowledging their relationship**\
+`Reigning WNBA MVP A'ja Wilson melted fans' hearts when she called Miami Heat center Bam Adebayo her "boyfriend" for the first time publicly.`\
+https://nytimes.com/athletic/6754327/2025/10/27/aja-wilson-bam-adebayo-relationship-dating/
+
 **Metro-North Expansion in the Bronx is Likely Delayed Three Years**\
 `The Metropolitan Transportation Authority blamed the delays on Amtrak, its federal partner, adding that partial service could still be delivered on time.`\
 https://nytimes.com/2025/10/27/nyregion/metro-north-bronx-penn-access.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/27/arts/music/jack-dejohnette-songs-albums.html
 **Jack DeJohnette, Revered Jazz Drummer, Dies at 83**\
 `Endowed with spectacular range, he played with Miles Davis, led New Directions and Special Edition, and spent decades with Keith Jarrett’s Standards Trio.`\
 https://nytimes.com/2025/10/27/arts/music/jack-dejohnette-dead.html
-
-**U.S. Gives Mexico More Time to Meet Demands to Avoid Tariffs**\
-`Taxes on goods from Mexico had been set to go into effect at the end of the week.`\
-https://nytimes.com/2025/10/27/us/politics/trump-mexico-trade-tariff-negotiations.html
-
-**A preview of The Athletic’s live coverage this week**\
-`Our live coverage this week includes the conclusion of the 2025 World Series, NFL and Premier League action, and more`\
-https://nytimes.com/athletic/6751739/2025/10/27/live-coverage-weekly-schedule-2/
-
-**Behind the Dismantling of the C.D.C.: Reform or ‘Humiliation’?**\
-`The agency has lost a third of its work force this year. The Trump administration maintains that the losses are necessary, but critics say that there is no real plan, only animosity.`\
-https://nytimes.com/2025/10/27/health/cdc-kennedy.html
 
