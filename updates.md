@@ -1,3 +1,15 @@
+**The New York Times in Print for Monday, Oct. 27, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/27/todays-new-york-times
+
+**‘Down Cemetery Road,’ and More Things to Watch on TV This Week**\
+`The new Apple TV show airs, and many Halloween episodes and movies are available to stream.`\
+https://nytimes.com/2025/10/27/arts/television/down-cemetery-road-tv-this-week.html
+
+**Peace in Gaza Comes Down to This**\
+`Washington must dedicate itself to making sure an international stabilization force is established for Gaza. It’s the linchpin.`\
+https://nytimes.com/2025/10/27/opinion/israel-hamas-gaza-peace.html
+
 **Fantasy football Week 8 takeaways: Lots of tricks, and a few treats — like Jonathan Taylor**\
 `Michael Salfino shares his observations for a Week 8 laden with blowouts and injuries, but also some notable running back performances.`\
 https://nytimes.com/athletic/6752355/2025/10/27/fantasy-football-jonathan-taylor-james-cook/
