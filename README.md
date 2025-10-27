@@ -1,3 +1,7 @@
+**The Pulse: The saddest NFL fan bases after Week 8**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6753041/2025/10/27/nfl-week-8-browns-steelers-the-pulse/
+
 **NHL weekend rankings: Wild, Penguins, and 5 early surprises I'm starting to buy**\
 `It is (say the line!) still early, but some of the trends around the league sure look like they might stick around long-term.`\
 https://nytimes.com/athletic/6752657/2025/10/27/nhl-weekend-rankings-wild-penguins-early-surprises/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6753401/2025/10/27/edmonton-oilers-10-games-what-i-
 **Wizards (really!) have some promising young talent, but they still need some lottery luck**\
 `Washington could actually, next season, harbor thoughts of actually mattering again in the Eastern Conference.`\
 https://nytimes.com/athletic/6752372/2025/10/27/wizards-talent-need-luck-tre-johnson/
-
-**'He's him': How Jordan Love made a statement in comeback win over Steelers**\
-`Love completed 29-of-37 passes for 360 yards and three touchdowns in a 35-25 win over the Steelers on Sunday night.`\
-https://nytimes.com/athletic/6753305/2025/10/27/packers-steelers-snf-jordan-love-aaron-rodgers/
 
