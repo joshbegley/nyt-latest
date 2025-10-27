@@ -1,3 +1,7 @@
+**Orioles to hire ex-Guardians bench coach Craig Albernaz as manager: Source**\
+`A nine-year career minor leaguer, Albernaz first began his coaching career in 2015 with the Tampa Bay Rays.`\
+https://nytimes.com/athletic/6752760/2025/10/26/baltimore-orioles-craig-albernaz-manager-reports/
+
 **Young Broncos spur blowout of Cowboys as offense shows encouraging signs**\
 `Denver rookies R.J. Harvey and Pat Bryant combined for four touchdowns as the Broncos cruised. Next up: the stingy Texans defense.`\
 https://nytimes.com/athletic/6752717/2025/10/26/broncos-offense-cowboys-sean-payton-rj-harvey/

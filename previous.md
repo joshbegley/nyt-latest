@@ -1,3 +1,7 @@
+**Orioles to hire ex-Guardians bench coach Craig Albernaz as manager: Source**\
+`A nine-year career minor leaguer, Albernaz first began his coaching career in 2015 with the Tampa Bay Rays.`\
+https://nytimes.com/athletic/6752760/2025/10/26/baltimore-orioles-craig-albernaz-manager-reports/
+
 **Young Broncos spur blowout of Cowboys as offense shows encouraging signs**\
 `Denver rookies R.J. Harvey and Pat Bryant combined for four touchdowns as the Broncos cruised. Next up: the stingy Texans defense.`\
 https://nytimes.com/athletic/6752717/2025/10/26/broncos-offense-cowboys-sean-payton-rj-harvey/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6751548/2025/10/26/knicks-heat-og-anunoby-observati
 **‘It: Welcome to Derry’ Season 1 Premiere Recap: Nuclear Family**\
 `Based on the 1986 Stephen King novel, “It,” the new HBO series sets a disturbing and terrifying tone right from the jump.`\
 https://nytimes.com/2025/10/26/arts/television/it-welcome-to-derry-recap-season-1-premiere.html
-
-**Tyler Huntley helps breathe life into a Ravens season that was headed off the rails**\
-`Huntley, in his third stint with Baltimore, led the offense in a game the team needed to keep its playoff hopes alive this season.`\
-https://nytimes.com/athletic/6752409/2025/10/26/tyler-huntley-ravens-season-win-bears/
 
