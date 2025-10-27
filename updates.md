@@ -1,3 +1,15 @@
+**Anthony Hopkins Thinks His Movies Aren’t Important**\
+`The actor Anthony Hopkins reflected on some of his best-known performances in a conversation with David Marchese on “The Interview.”`\
+https://nytimes.com/video/podcasts/100000010483251/anthony-hopkins-thinks-his-movies-arent-important.html
+
+**Anthony Hopkins on Being Estranged From His Daughter**\
+`On “The Interview,” David Marchese asked the actor Anthony Hopkins about his painful estrangement from his only child.`\
+https://nytimes.com/video/podcasts/100000010483284/anthony-hopkins-on-being-estranged-from-his-daughter.html
+
+**Carney Says He Will Meet With Xi in South Korea**\
+`The meeting between Prime Minister Mark Carney of Canada and Xi Jinping, China’s top leader, scheduled for later this week, appeared to signal a pivot to Asia after decades of poor relations between his country and Beijing.`\
+https://nytimes.com/2025/10/27/us/politics/carney-xi-meeting-china-canada.html
+
 **Trump Says a Recent M.R.I. Scan Was ‘Perfect,’ and He’d ‘Love’ a Third Term**\
 `President Trump made the comments on the second day of his trip to Asia. The Constitution limits presidents to two terms, but Mr. Trump has suggested he might try to circumvent it.`\
 https://nytimes.com/2025/10/27/us/politics/trump-mri-third-term.html
