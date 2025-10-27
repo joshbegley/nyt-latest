@@ -1,3 +1,11 @@
+**How to watch Blue Jays at Dodgers: World Series Game 3 Time, TV, streaming**\
+`Find out how to watch the Toronto Blue Jays play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6752453/2025/10/26/blue-jays-vs-dodgers-stream-how-to-watch-oct-27/
+
+**Bears can't contain Ravens QB Tyler Huntley as their takeaway magic runs out**\
+`Down two starters, the Bears defense didn't do enough to affect Lamar Jackson's backup as their takeaway streak — and win streak — ended.`\
+https://nytimes.com/athletic/6752224/2025/10/26/bears-defense-ravens-tyler-huntley/
+
 **Can Faster Buses Really Be Free?**\
 `An analysis of the possible promise and fundamental tension in one of Zohran Mamdani’s big plans for New York.`\
 https://nytimes.com/interactive/2025/10/26/upshot/fast-free-buses.html
