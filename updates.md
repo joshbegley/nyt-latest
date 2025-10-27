@@ -1,3 +1,19 @@
+**Storm Drenches Central Florida Creating ‘Particularly Dangerous’ Situation**\
+`A rare flash flood emergency was declared for parts of Lake County on Sunday, which received up to 18 inches of rain.`\
+https://nytimes.com/2025/10/27/us/flash-flooding-florida.html
+
+**Vitor Pereira exacerbated a toxic situation. Fans’ goodwill has been exhausted**\
+`In the short term, Vitor Pereira looks set to get time to improve Wolves' fortunes, but his long-term future at the club appears bleak`\
+https://nytimes.com/athletic/6751650/2025/10/27/wolverhampton-wanderers-burnley-vitor-pereira-analysis/
+
+**Business of Football: John Textor's £400m bid for Wolves and why it's complicated**\
+`Wolves, John Textor, Dragan Solak, Southampton and DAZN are the topics in this week's Business of Football column`\
+https://nytimes.com/athletic/6740730/2025/10/27/wolves-john-textor-bid/
+
+**Australia captain Cummins loses race to be fit for first Ashes Test**\
+`The 32-year-old has not bowled since Australia's 3-0 series win over the West Indies in July due to a stress fracture in his back.`\
+https://nytimes.com/athletic/6753357/2025/10/27/pat-cummins-australia-ashes-england-fit/
+
 **Top 50 MLB free agents: Contract predictions, team fits for Kyle Tucker, Kyle Schwarber, more**\
 `Tucker and Schwarber lead this year's free agency class. See which teams could land the top talent and how much each player could command.`\
 https://nytimes.com/athletic/6719990/2025/10/27/mlb-free-agents-2025-contract-team-predictions/
