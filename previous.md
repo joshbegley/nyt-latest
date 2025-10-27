@@ -1,3 +1,15 @@
+**'Finally!': Saquon Barkley shows 2024 version never left with 150-yard performance vs. Giants**\
+`Barkley hadn't had one of his signature breakout games this season.`\
+https://nytimes.com/athletic/6752499/2025/10/26/eagles-giants-saquon-barkley-rushing-performance/
+
+**Eyes on OG Anunoby: Observing the Knicks' do-it-all wing in Miami for a night**\
+`Watching and observing Anunoby's every move for one night in Miami.`\
+https://nytimes.com/athletic/6751548/2025/10/26/knicks-heat-og-anunoby-observations/
+
+**‘It: Welcome to Derry’ Season 1 Premiere Recap: Nuclear Family**\
+`Based on the 1986 Stephen King novel, “It,” the new HBO series sets a disturbing and terrifying tone right from the jump.`\
+https://nytimes.com/2025/10/26/arts/television/it-welcome-to-derry-recap-season-1-premiere.html
+
 **Tyler Huntley helps breathe life into a Ravens season that was headed off the rails**\
 `Huntley, in his third stint with Baltimore, led the offense in a game the team needed to keep its playoff hopes alive this season.`\
 https://nytimes.com/athletic/6752409/2025/10/26/tyler-huntley-ravens-season-win-bears/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6752440/2025/10/26/uswnt-portugal-bounce-back-win/
 **Cam Skattebo will be tough for Giants to replace in more ways than one**\
 `Skattebo suffered a dislocated ankle in Sunday's loss to the Eagles. “I was devastated,” said Jaxson Dart, his QB and fellow rookie.`\
 https://nytimes.com/athletic/6752281/2025/10/26/cam-skattebo-giants-ankle-injury/
-
-**Eagles restore red-zone dominance in part by utilizing Dallas Goedert**\
-`Goedert's seven touchdown receptions lead all NFL tight ends.`\
-https://nytimes.com/athletic/6751376/2025/10/26/eagles-giants-restore-red-zone-tight-end-dallas-goedert/
-
-**Myles Garrett's career day couldn't save Browns from another uninspiring loss**\
-`The six-time All-Pro had a new career high with five sacks, but New England still put up 32 points and won in blowout fashion. `\
-https://nytimes.com/athletic/6752228/2025/10/26/browns-myles-garrett-sacks-patriots/
-
-**Justin Fields goes from 'crying' in his closet to leading Jets to first win**\
-`The quarterback helped lead New York to 23 points in the fourth quarter to win 39-38 in Chicago's first victory of the season.`\
-https://nytimes.com/athletic/6752311/2025/10/26/justin-fields-crying-jets-win/
 

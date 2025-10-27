@@ -1,3 +1,15 @@
+**'Finally!': Saquon Barkley shows 2024 version never left with 150-yard performance vs. Giants**\
+`Barkley hadn't had one of his signature breakout games this season.`\
+https://nytimes.com/athletic/6752499/2025/10/26/eagles-giants-saquon-barkley-rushing-performance/
+
+**Eyes on OG Anunoby: Observing the Knicks' do-it-all wing in Miami for a night**\
+`Watching and observing Anunoby's every move for one night in Miami.`\
+https://nytimes.com/athletic/6751548/2025/10/26/knicks-heat-og-anunoby-observations/
+
+**‘It: Welcome to Derry’ Season 1 Premiere Recap: Nuclear Family**\
+`Based on the 1986 Stephen King novel, “It,” the new HBO series sets a disturbing and terrifying tone right from the jump.`\
+https://nytimes.com/2025/10/26/arts/television/it-welcome-to-derry-recap-season-1-premiere.html
+
 **Tyler Huntley helps breathe life into a Ravens season that was headed off the rails**\
 `Huntley, in his third stint with Baltimore, led the offense in a game the team needed to keep its playoff hopes alive this season.`\
 https://nytimes.com/athletic/6752409/2025/10/26/tyler-huntley-ravens-season-win-bears/
