@@ -1,3 +1,7 @@
+**Former Liverpool goalkeeping coach Jose Manuel Ochotorena dies aged 64**\
+`The Spaniard was an important part of Rafa Benitez’s backroom team during the Champions League win in 2005 and FA Cup success in 2006.`\
+https://nytimes.com/athletic/6753668/2025/10/27/jose-manuel-ochotorena-liverpool-dies/
+
 **Aaron Rodgers, Packers are both right where they belong 3 years after separation**\
 `While Jordan Love has grown into the player the Packers envisioned, Rodgers still has enough to give the Steelers a fighting chance.`\
 https://nytimes.com/athletic/6753286/2025/10/27/aaron-rodgers-packers-steelers-reunion-snf/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6703144/2025/10/27/wrexham-cardiff-north-south-wale
 **The Athletic 136: Memphis re-enters the race, and is Oregon slipping?**\
 `Week 9 may have lacked the major upsets of previous weeks, but plenty of games played a key role in conference races and the CFP picture.`\
 https://nytimes.com/athletic/6753277/2025/10/27/college-football-team-rankings-oregon-memphis/
-
-**Tudor sacked by Juventus after seven months in charge**\
-`The 47-year-old’s last game was a 1-0 loss to Lazio on Sunday, leaving the side in eighth in Serie A.`\
-https://nytimes.com/athletic/6733046/2025/10/27/igor-tudor-juventus-sacked/
 
