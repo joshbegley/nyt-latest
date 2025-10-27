@@ -1,3 +1,11 @@
+**Trump Says a Recent M.R.I. Scan Was ‘Perfect,’ and He’d ‘Love’ a Third Term**\
+`President Trump made the comments on the second day of his trip to Asia. The Constitution limits presidents to two terms, but Mr. Trump has suggested he might try to circumvent it.`\
+https://nytimes.com/2025/10/27/us/politics/trump-mri-third-term.html
+
+**With U.S. relations on the rocks, Canada’s prime minister says he will meet China’s top leader.**\
+`Prime Minister Mark Carney of Canada announced the meeting with Xi Jinping, which appeared to signal a pivot to Asia after decades of poor relations between his country and Beijing.`\
+https://nytimes.com/2025/10/27/us/politics/carney-xi-meeting-china-canada.html
+
 **With U.S. relations on the rocks, Canada’s prime minister says he will meet China’s top leader.**\
 `Prime Minister Mark Carney of Canada announced the meeting with Xi Jinping, which appeared to signal a pivot to Asia after decades of poor relations between his country and Beijing.`\
 https://nytimes.com/live/2025/10/27/us/trump-asia-news/with-us-relations-on-the-rocks-canadas-prime-minister-says-he-will-meet-chinas-top-leader
