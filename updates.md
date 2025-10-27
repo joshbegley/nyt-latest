@@ -1,3 +1,7 @@
+**The Supreme Court Owes the Country an Explanation for Its Big Decisions**\
+`The Times editorial board critiques the Supreme Court’s overuse of the emergency docket to deliver consequential decisions without explaining its reasoning.`\
+https://nytimes.com/video/opinion/100000010479597/the-supreme-court-owes-the-country-an-explanation-for-its-big-decisions.html
+
 **Victory for Milei’s Party in Argentina’s Midterm Election**\
 `The party of President Javier Milei of Argentina triumphed in Sunday’s legislative midterm election, a victory that was crucial for continuing his austerity measures.`\
 https://nytimes.com/video/world/americas/100000010482829/argentina-election-javier-milei.html
