@@ -1,3 +1,7 @@
+**How to watch North Carolina vs. Syracuse: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the Syracuse Orange, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6753515/2025/10/27/north-carolina-vs-syracuse-stream-how-to-watch-oct-31/
+
 **3 Takeaways From Vietnam’s Drift Toward Russia and Away From America**\
 `The Times examined weapons sales documents from a Russian arms supplier and interviewed dozens of officials from Vietnam, the United States and other countries in the region.`\
 https://nytimes.com/2025/10/27/world/asia/3-takeaways-from-vietnams-drift-toward-russia-and-away-from-america.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todaysinyt/2025/10/27/todays-new-york-times-internatio
 **Is the U.S. Losing in Vietnam? Russia, North Korea and China Are Gaining.**\
 `U.S. allies worry that American volatility and Russian outreach and arms sales, in particular, are driving Vietnam into a new phase.`\
 https://nytimes.com/2025/10/27/world/asia/vietnam-russia-relations.html
-
-**As This President Tours Asia, Democracy’s Ideals Aren’t on the Agenda**\
-`Several of the leaders President Trump will encounter are either autocrats or presiding over fragile democracies. And some admire his willingness to break the rules.`\
-https://nytimes.com/2025/10/27/us/politics/trump-asia-democracy.html
 
