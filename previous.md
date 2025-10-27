@@ -1,4 +1,4 @@
-**Storm Drenches Central Florida Creating ‘Particularly Dangerous’ Situation**\
+**Storm Drenches Central Florida, Creating ‘Particularly Dangerous’ Situation**\
 `A rare flash flood emergency was declared for parts of Lake County on Sunday, which received up to 18 inches of rain.`\
 https://nytimes.com/2025/10/27/us/flash-flooding-florida.html
 
