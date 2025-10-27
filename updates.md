@@ -1,3 +1,15 @@
+**Cam Skattebo will be tough for Giants to replace in more ways than one**\
+`Skattebo suffered a dislocated ankle in Sunday's loss to the Eagles. “I was devastated,” said Jaxson Dart, his QB and fellow rookie.`\
+https://nytimes.com/athletic/6752281/2025/10/26/cam-skattebo-giants-ankle-injury/
+
+**Eagles restore red-zone dominance in part by utilizing Dallas Goedert**\
+`Goedert's seven touchdown receptions lead all NFL tight ends.`\
+https://nytimes.com/athletic/6751376/2025/10/26/eagles-giants-restore-red-zone-tight-end-dallas-goedert/
+
+**Despite career day by Myles Garrett, Browns couldn't keep up in loss to Patriots**\
+`The six-time All-Pro had a new career-high with five sacks, but New England still put up 32 points and won in blowout fashion. `\
+https://nytimes.com/athletic/6752228/2025/10/26/browns-myles-garrett-sacks-patriots/
+
 **Justin Fields goes from 'crying' in his closet to leading Jets to first win**\
 `The quarterback helped lead New York to 23 points in the fourth quarter to win 39-38 in Chicago's first victory of the season.`\
 https://nytimes.com/athletic/6752311/2025/10/26/justin-fields-crying-jets-win/
