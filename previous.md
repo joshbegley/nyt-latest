@@ -1,3 +1,11 @@
+**Jack DeJohnette: 7 Essential Recordings**\
+`The drummer and pianist, who died on Sunday at 83, was a master of many styles and an ever-evolving innovator.`\
+https://nytimes.com/2025/10/27/arts/music/jack-dejohnette-songs-albums.html
+
+**Jack DeJohnette, Revered Jazz Drummer, Dies at 83**\
+`Endowed with spectacular range, he played with Miles Davis, led New Directions and Special Edition, and spent decades with Keith Jarrett’s Standards Trio.`\
+https://nytimes.com/2025/10/27/arts/music/jack-dejohnette-dead.html
+
 **U.S. Gives Mexico More Time to Meet Demands to Avoid Tariffs**\
 `Taxes on goods from Mexico had been set to go into effect at the end of the week.`\
 https://nytimes.com/2025/10/27/us/politics/trump-mexico-trade-tariff-negotiations.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/dining/100000010483766/three-chicken-dishes-to-experie
 **Magnolia Bakery’s Banana Pudding**\
 `To many, the banana pudding at the famed New York City shop Magnolia Bakery is even more iconic than the store’s beloved cupcakes. Airy, creamy and delightfully reminiscent of childhood packaged snacks, this dessert is both a crowd pleaser and easy to assemble.`\
 https://nytimes.com/video/dining/100000010483395/magnolia-bakerys-banana-pudding.html
-
-**Erykah Badu Is a Muse, and Is Looking for One, Too**\
-`“I don’t think ‘Ms. Jackson’ was actually about me.” Erykah Badu discussed her role as hip-hop muse and what she looks for in a partner with the “Popcast” hosts Joe Coscarelli and Jon Caramanica.`\
-https://nytimes.com/video/podcasts/100000010483373/erykah-badu-is-a-muse-and-is-looking-for-one-too.html
-
-**Even Erykah Badu Doubts Herself Because of Social Media**\
-`The musician Erykah Badu joined the“Popcast” hosts Joe Coscarelli and Jon Caramanica to talk about her experience with self-doubt and social media.`\
-https://nytimes.com/video/podcasts/100000010483375/even-erykah-badu-doubts-herself-because-of-social-media.html
 

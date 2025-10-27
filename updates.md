@@ -1,3 +1,11 @@
+**Jack DeJohnette: 7 Essential Recordings**\
+`The drummer and pianist, who died on Sunday at 83, was a master of many styles and an ever-evolving innovator.`\
+https://nytimes.com/2025/10/27/arts/music/jack-dejohnette-songs-albums.html
+
+**Jack DeJohnette, Revered Jazz Drummer, Dies at 83**\
+`Endowed with spectacular range, he played with Miles Davis, led New Directions and Special Edition, and spent decades with Keith Jarrett’s Standards Trio.`\
+https://nytimes.com/2025/10/27/arts/music/jack-dejohnette-dead.html
+
 **U.S. Gives Mexico More Time to Meet Demands to Avoid Tariffs**\
 `Taxes on goods from Mexico had been set to go into effect at the end of the week.`\
 https://nytimes.com/2025/10/27/us/politics/trump-mexico-trade-tariff-negotiations.html

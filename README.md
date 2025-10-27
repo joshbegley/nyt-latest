@@ -1,3 +1,23 @@
+**Metro-North Expansion in the Bronx is Likely Delayed Three Years**\
+`The Metropolitan Transportation Authority blamed the delays on Amtrak, its federal partner, adding that partial service could still be delivered on time.`\
+https://nytimes.com/2025/10/27/nyregion/metro-north-bronx-penn-access.html
+
+**Trump’s China Deal May Avert a Crisis of His Own Making**\
+`The Trump administration is hailing a potential deal that may return the U.S.-China relationship to where it was before the president began a trade war against Beijing.`\
+https://nytimes.com/2025/10/27/us/politics/trump-china-trade-deal-talks.html
+
+**NFL overreactions: Ravens-Dolphins is going to be a shoot-out**\
+`Toby Mergler makes early Week 9 picks wildly over-indexing on vibes, small sample sizes and comparisons to pop culture classics.`\
+https://nytimes.com/athletic/6754430/2025/10/27/nfl-overreaction-monday-week-9/
+
+**Crew Member Goes Overboard on Viking Cruise in Mediterranean**\
+`The Italian Coast Guard was assisting in the search for the crew member, the cruise company said.`\
+https://nytimes.com/2025/10/27/world/europe/crew-member-search-viking-star-cruise.html
+
+**Flyers assign prospect Jett Luchanko back to juniors — What does it mean for him?**\
+`In four games, Luchanko was scoreless with one shot on goal, two penalty minutes and a minus-3 rating.`\
+https://nytimes.com/athletic/6754447/2025/10/27/flyers-jett-luchanko-juniors/
+
 **Jack DeJohnette: 7 Essential Recordings**\
 `The drummer and pianist, who died on Sunday at 83, was a master of many styles and an ever-evolving innovator.`\
 https://nytimes.com/2025/10/27/arts/music/jack-dejohnette-songs-albums.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6751739/2025/10/27/live-coverage-weekly-schedule-2/
 **Behind the Dismantling of the C.D.C.: Reform or ‘Humiliation’?**\
 `The agency has lost a third of its work force this year. The Trump administration maintains that the losses are necessary, but critics say that there is no real plan, only animosity.`\
 https://nytimes.com/2025/10/27/health/cdc-kennedy.html
-
-**Anthony Edwards will miss 2 weeks with hamstring strain: Source**\
-`Edwards had an MRI on Monday that revealed the extent of the injury, which is a big blow to the Timberwolves. `\
-https://nytimes.com/athletic/6754475/2025/10/27/anthony-edwards-injury-update-hamstring-timberwolves-nba/
-
-**Climate Factors Make Jamaica Especially Vulnerable to Hurricane Melissa**\
-`More frequent and intense storms, sea-level rise and extensive rainfall fueled by climate change mean the island nation is likely to be hit especially hard by this week’s storm.`\
-https://nytimes.com/2025/10/27/climate/hurricane-melissa-climate-change.html
-
-**NBA reviewing injury reporting in light of FBI illegal gambling probe**\
-`The NBA is reviewing its rules regarding injury announcements, as well as how it educates league personnel and players.`\
-https://nytimes.com/athletic/6754247/2025/10/27/nba-injury-reporting-indictments-review/
-
-**Three Chicken Dishes to Experience in N.Y.C.**\
-`The New York Times’s Food contributor Luke Fortney tried as many experiential chickens dishes as he could handle. These three are winner-winners.`\
-https://nytimes.com/video/dining/100000010483766/three-chicken-dishes-to-experience-in-nyc.html
-
-**Magnolia Bakery’s Banana Pudding**\
-`To many, the banana pudding at the famed New York City shop Magnolia Bakery is even more iconic than the store’s beloved cupcakes. Airy, creamy and delightfully reminiscent of childhood packaged snacks, this dessert is both a crowd pleaser and easy to assemble.`\
-https://nytimes.com/video/dining/100000010483395/magnolia-bakerys-banana-pudding.html
 
