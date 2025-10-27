@@ -10,7 +10,7 @@ https://nytimes.com/2025/10/27/us/politics/trump-china-trade-deal-talks.html
 `Toby Mergler makes early Week 9 picks wildly over-indexing on vibes, small sample sizes and comparisons to pop culture classics.`\
 https://nytimes.com/athletic/6754430/2025/10/27/nfl-overreaction-monday-week-9/
 
-**Crew Member Goes Overboard on Viking Cruise in Mediterranean**\
+**Search Underway After Crew Member Goes Overboard on Viking Cruise**\
 `The Italian Coast Guard was assisting in the search for the crew member, the cruise company said.`\
 https://nytimes.com/2025/10/27/world/europe/crew-member-search-viking-star-cruise.html
 

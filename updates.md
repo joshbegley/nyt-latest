@@ -1,3 +1,23 @@
+**Metro-North Expansion in the Bronx is Likely Delayed Three Years**\
+`The Metropolitan Transportation Authority blamed the delays on Amtrak, its federal partner, adding that partial service could still be delivered on time.`\
+https://nytimes.com/2025/10/27/nyregion/metro-north-bronx-penn-access.html
+
+**Trump’s China Deal May Avert a Crisis of His Own Making**\
+`The Trump administration is hailing a potential deal that may return the U.S.-China relationship to where it was before the president began a trade war against Beijing.`\
+https://nytimes.com/2025/10/27/us/politics/trump-china-trade-deal-talks.html
+
+**NFL overreactions: Ravens-Dolphins is going to be a shoot-out**\
+`Toby Mergler makes early Week 9 picks wildly over-indexing on vibes, small sample sizes and comparisons to pop culture classics.`\
+https://nytimes.com/athletic/6754430/2025/10/27/nfl-overreaction-monday-week-9/
+
+**Crew Member Goes Overboard on Viking Cruise in Mediterranean**\
+`The Italian Coast Guard was assisting in the search for the crew member, the cruise company said.`\
+https://nytimes.com/2025/10/27/world/europe/crew-member-search-viking-star-cruise.html
+
+**Flyers assign prospect Jett Luchanko back to juniors — What does it mean for him?**\
+`In four games, Luchanko was scoreless with one shot on goal, two penalty minutes and a minus-3 rating.`\
+https://nytimes.com/athletic/6754447/2025/10/27/flyers-jett-luchanko-juniors/
+
 **Jack DeJohnette: 7 Essential Recordings**\
 `The drummer and pianist, who died on Sunday at 83, was a master of many styles and an ever-evolving innovator.`\
 https://nytimes.com/2025/10/27/arts/music/jack-dejohnette-songs-albums.html
