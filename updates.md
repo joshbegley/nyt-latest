@@ -1,3 +1,7 @@
+**Fantasy football Week 8 takeaways: Lots of tricks, and a few treats — like Jonathan Taylor**\
+`Michael Salfino shares his observations for a Week 8 laden with blowouts and injuries, but also some notable running back performances.`\
+https://nytimes.com/athletic/6752355/2025/10/27/fantasy-football-jonathan-taylor-james-cook/
+
 **'Chucky' Lozano left out again, but San Diego makes winning start in MLS playoffs**\
 `San Diego won Sunday despite the absence of Lozano, who was left off the game day roster following a "verbal altercation."`\
 https://nytimes.com/athletic/6752625/2025/10/27/chucky-lozano-left-out-again-but-san-diego-make-winning-start-in-mls-playoffs/
