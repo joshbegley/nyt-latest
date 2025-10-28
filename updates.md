@@ -1,3 +1,11 @@
+**Trump Threatens ‘More Than the National Guard’ In U.S. Cities**\
+`During a speech to American troops, President Trump said he would escalate his crackdown on crime and immigration to active duty branches of the military if he decides it is appropriate.`\
+https://nytimes.com/video/world/asia/100000010485546/trump-national-guard-japan.html
+
+**Israeli Military Says It Killed 3 Militants Near Jenin in West Bank**\
+`The Israeli military said it killed three militants in an operation that involved the first airstrike in the West Bank in months. Hamas said two of the men had been fighters in its armed wing.`\
+https://nytimes.com/video/world/middleeast/100000010485695/jenin-west-bank-israel-hamas.html
+
 **Would Term Limits for Congress Help or Hurt?**\
 `Readers respond to an Opinion guest essay by Gov. Ron DeSantis and former Representative David Trone.`\
 https://nytimes.com/2025/10/28/opinion/term-limits-desantis.html

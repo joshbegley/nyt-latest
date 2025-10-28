@@ -1,3 +1,7 @@
+**Zadar, Croatia**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/things-to-do-zadar
+
 **Trump Threatens ‘More Than the National Guard’ In U.S. Cities**\
 `During a speech to American troops, President Trump said he would escalate his crackdown on crime and immigration to active duty branches of the military if he decides it is appropriate.`\
 https://nytimes.com/video/world/asia/100000010485546/trump-national-guard-japan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/28/us/politics/trump-food-stamps-snap-lawsuit.html
 **The Perimenopause Whisper Network**\
 `For some women, it feels like the only way to get medical care is to know someone who knows someone who can Whatsapp your book club group chat.`\
 https://nytimes.com/2025/10/28/style/the-perimenopause-whisper-network.html
-
-**Lauri Markkanen becomes first Jazz player since Karl Malone to score 50-plus**\
-`In Monday's overtime win over the Suns, Markkanen became the first Jazz player to score at least 50 points since 1998.`\
-https://nytimes.com/athletic/6756696/2025/10/28/lauri-markkanen-jazz-51-point-career-high/
 
