@@ -1,3 +1,7 @@
+**Kitchens**\
+``\
+https://nytimes.com/spotlight/kitchens
+
 **Volunteers Step In to Help Understaffed NOAA Track Hurricane Melissa**\
 `Staffing cuts and a federal government shutdown are stretching scientists’ ability to make valuable hurricane observations.`\
 https://nytimes.com/2025/10/28/climate/noaa-volunteers-hurricane-melissa.html
@@ -25,12 +29,4 @@ https://nytimes.com/athletic/6757456/2025/10/28/nations-league-spain-sweden-fran
 **Father Admits to Killing 4 Children Found in Car Trunk, Sheriff Says**\
 `The victims, who ranged in age from 6 to 18, had been dead for a long time when sheriff’s deputies in Zebulon, N.C., found them on Monday night, the authorities said.`\
 https://nytimes.com/2025/10/28/us/north-carolina-father-killed-children.html
-
-**Explosions Seen Over Gaza Skyline After Netanyahu Orders New Strikes**\
-`There were explosions over the Gaza skyline after Prime Minister Benjamin Netanyahu of Israeli accused Hamas of violating the cease-fire and ordered the military to resume strikes in Gaza.`\
-https://nytimes.com/video/world/middleeast/100000010486900/israel-launches-new-airstrikes-gaza.html
-
-**Mikael Granlund's absence adds to Ducks' early injury woes**\
-`Granlund is expected to be re-evaluated by team doctors on Thursday after Anaheim returns home from its five-game road trip.`\
-https://nytimes.com/athletic/6757891/2025/10/28/mikael-granlund-ducks-injury/
 

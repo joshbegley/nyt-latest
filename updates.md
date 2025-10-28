@@ -1,3 +1,15 @@
+**Volunteers Step In to Help Understaffed NOAA Track Hurricane Melissa**\
+`Staffing cuts and a federal government shutdown are stretching scientists’ ability to make valuable hurricane observations.`\
+https://nytimes.com/2025/10/28/climate/noaa-volunteers-hurricane-melissa.html
+
+**U.N. prepares to send food and supplies to the Caribbean after Hurricane Melissa.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2025/10/28/weather/hurricane-melissa-jamaica-landfall/hurricane-melissa-un-aid-caribbean
+
+**Mathurin, Toppin set to miss extended time as Pacers' injury list grows longer**\
+`The two key players join a growing Pacers injury list that includes Andrew Nembhard, T.J. McConnell and, of course, Tyrese Haliburton.`\
+https://nytimes.com/athletic/6757914/2025/10/28/pacers-injuries-list-bennedict-mathurin-obi-toppin/
+
 **The New Orleans Drink That’s Back From the Dead**\
 `With an unforgettable name, the Obituary has been down but never out.`\
 https://nytimes.com/2025/10/28/dining/obituary-cocktail-new-orleans.html
