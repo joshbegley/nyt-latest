@@ -1,3 +1,11 @@
+**Trump Threatens ‘More Than the National Guard’ In U.S. Cities**\
+`During a speech to American troops, President Trump said he would escalate his crackdown on crime and immigration to active duty branches of the military if he decides it is appropriate.`\
+https://nytimes.com/video/world/asia/100000010485546/trump-national-guard-japan.html
+
+**Israeli Military Says It Killed 3 Militants Near Jenin in West Bank**\
+`The Israeli military said it killed three militants in an operation that involved the first airstrike in the West Bank in months. Hamas said two of the men had been fighters in its armed wing.`\
+https://nytimes.com/video/world/middleeast/100000010485695/jenin-west-bank-israel-hamas.html
+
 **Would Term Limits for Congress Help or Hurt?**\
 `Readers respond to an Opinion guest essay by Gov. Ron DeSantis and former Representative David Trone.`\
 https://nytimes.com/2025/10/28/opinion/term-limits-desantis.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/28/style/the-perimenopause-whisper-network.html
 **Lauri Markkanen becomes first Jazz player since Karl Malone to score 50-plus**\
 `In Monday's overtime win over the Suns, Markkanen became the first Jazz player to score at least 50 points since 1998.`\
 https://nytimes.com/athletic/6756696/2025/10/28/lauri-markkanen-jazz-51-point-career-high/
-
-**In Two Solo Plays, a Search for Belonging and Parental Love**\
-`Ari’el Stachel’s “Other” and Zoë Kim’s “Did You Eat?” are self-interrogations that deal with family, race and identity.`\
-https://nytimes.com/2025/10/28/theater/ariel-stachel-other-zoe-kim-did-you-eat.html
-
-**Steven Hatfill, Covid Vaccine Critic, Is Ousted From HHS**\
-`Dr. Hatfill said he was pushed out by Health Secretary Robert F. Kennedy Jr.’s chief of staff, who fired him when he refused to resign.`\
-https://nytimes.com/2025/10/28/us/politics/hatfill-covid-hhs-ousted.html
 
