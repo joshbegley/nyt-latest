@@ -1,4 +1,8 @@
-**Israeli Conducts First Airstrike in West Bank in Months, Killing 3**\
+**FIA reveals no F1 2024 cost cap breaches after wait for results**\
+`Only Aston Martin, who committed a minor procedural breach but did not exceed the cost cap, failed to fully comply with the regulations.`\
+https://nytimes.com/athletic/6756466/2025/10/28/f1-fia-cost-cap-2024/
+
+**Israel Conducts First Airstrike in West Bank in Months, Kills 3**\
 `A militant group allied with Hamas confirmed the deaths, which were part of an increase in fighting in the Palestinian territory during a surge of settler violence.`\
 https://nytimes.com/2025/10/28/world/middleeast/jenin-west-bank-airstrike-israel.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6756143/2025/10/28/wembanyama-mvp-lakers-austin-rea
 **Melissa’s Powerful Winds Could Be Even Worse in Jamaica’s Mountains**\
 `Gusts in higher elevations could be up to 30 percent stronger, the National Hurricane Center said.`\
 https://nytimes.com/2025/10/28/weather/hurricane-melissa-jamaica-mountains-winds.html
-
-**NBA national TV game guide: Superlatives for Knicks-Bucks, Lakers-Wolves and more**\
-`Here's what to check for around the NBA this week, plus superlatives for each prime-time listing.`\
-https://nytimes.com/athletic/6754615/2025/10/28/nba-nbc-schedule-knicks-bucks-lakers-how-to-watch/
 
