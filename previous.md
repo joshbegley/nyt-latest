@@ -1,3 +1,23 @@
+**Mayfield, Darnold examples of Williams' 'potentially monstrous' payoff for Bears**\
+`Robert Mays and Derrik Klassen take a measured look at the Bears QB on the latest episode of "The Athletic Football Show."`\
+https://nytimes.com/athletic/6756012/2025/10/28/caleb-williams-monstrous-payoff-bears-the-athletic-football-show/
+
+**Until Saturday: Wildest October coaching carousel ever**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6757438/2025/10/28/college-football-coaching-carousel-lsu-until-saturday/
+
+**Super Bowl odds: Chiefs remain on top after all contenders win**\
+`Week 8 saw 13 of the top 14 Super Bowl contenders in BetMGM's odds win, which means the pecking order remained mostly the same.`\
+https://nytimes.com/athletic/6757282/2025/10/28/super-bowl-odds-chiefs-bills-lions-packers/
+
+**SEC's Sankey urges NCAA to rethink allowing college athletes to bet on pro sports**\
+`“This policy change represents a major step in the wrong direction,” Sankey said.`\
+https://nytimes.com/athletic/6757283/2025/10/28/greg-sankey-ncaa-college-athletes-sports-betting/
+
+**How Formula 1's cost cap works: Rules, penalties and past breaches explained**\
+`The sport's $135 million spending limit aims to create parity — but compliance isn't always simple`\
+https://nytimes.com/athletic/6757239/2025/10/28/formula-1-cost-cap-explained/
+
 **NFL MVP odds: Drake Maye and Jonathan Taylor declare themselves**\
 `Could we have our first non-quarterback MVP in 13 years? Can a sophomore QB challenge the top spot?`\
 https://nytimes.com/athletic/6754716/2025/10/28/nfl-mvp-odds-drake-maye-jonathan-taylor/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/10/28/world/europe/britain-asylum-seekers.html
 **‘The Beginning of a Movement’: Snapshots From a Mamdani Rally**\
 `Zohran Mamdani’s rally on Sunday nearly filled Forest Hills Stadium in Queens, which holds 13,000 attendees. Here’s why some of them went, in their own words.`\
 https://nytimes.com/2025/10/28/nyregion/photos-mamdani-aoc-bernie-rally.html
-
-**Netanyahu Orders Strikes on Gaza, Saying Hamas Violated Cease-Fire**\
-`The office of the Israeli Prime Minister said on Tuesday evening that he had ordered “forceful strikes” after Hamas fired on Israeli troops and failed to return hostages’ bodies.`\
-https://nytimes.com/2025/10/28/world/middleeast/israel-gaza-netanyahu-strikes.html
-
-**Bring a Crew for Askili Orchard’s Georgian Spread**\
-`Rare Japanese Wagyu, private movie screenings with themed menus and more restaurant news.`\
-https://nytimes.com/2025/10/28/dining/nyc-restaurant-news.html
-
-**Critical fantasy football insights for Week 9: Drake Maye for MVP, Breece Hall's back**\
-`Brandon Funston and Jess Bryant look at usage metrics to give actionable Week 9 fantasy football advice. `\
-https://nytimes.com/athletic/6754005/2025/10/28/critical-fantasy-football-insights-week-9/
-
-**Zadar, Croatia**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/things-to-do-zadar
-
-**Trump Threatens ‘More Than the National Guard’ In U.S. Cities**\
-`During a speech to American troops, President Trump said he would escalate his crackdown on crime and immigration to active duty branches of the military if he decides it is appropriate.`\
-https://nytimes.com/video/world/asia/100000010485546/trump-national-guard-japan.html
 
