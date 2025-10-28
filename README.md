@@ -1,3 +1,11 @@
+**Once Again: The Pope Likes That Other Chicago Team, Not the Cubs**\
+`Although he posed with a Cubs jersey on Monday, a gift from a religious leader also from Chicago, Pope Leo is a longtime fan of the Chicago White Sox. Some people can’t seem to keep it straight.`\
+https://nytimes.com/2025/10/28/world/europe/pope-white-sox-chicago-baseball.html
+
+**Felipe Massa's $80M F1 'Crashgate' lawsuit heads to London court this week: Here's what to know**\
+`Nelson Piquet Jr.'s crash in 2008 was a sliding doors moment in the drivers' championship – this challenge, 17 years later, is unprecedented`\
+https://nytimes.com/athletic/6755583/2025/10/28/felipe-massa-crashgate-f1-lawsuit-hearing/
+
 **Seth Meyers Thinks Trump Is Trolling With Third-Term Talk**\
 `The president says he hasn’t really thought about a third term. Meyers said that was “like James Cameron saying he hasn’t thought about ‘Avatar 4.’”`\
 https://nytimes.com/2025/10/28/arts/television/seth-meyers-trump-third-term.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6755816/2025/10/28/dodgers-blue-jays-game-3-18-inni
 **How to watch Cincinnati vs. Utah: Time, TV, streaming**\
 `Find out how to watch the Cincinnati Bearcats play the Utah Utes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6756068/2025/10/28/cincinnati-vs-utah-stream-how-to-watch-nov-1/
-
-**President Trump’s Trip to Asia**\
-`He has played the roles of dealmaker, peacemaker and showman, on a tour filled with pomp and circumstance.`\
-https://nytimes.com/2025/10/28/world/asia/trump-asia-photos.html
-
-**Man Admits in Court to Killing Shinzo Abe, Former Prime Minister of Japan**\
-`Tetsuya Yamagami, 45, was charged with killing Mr. Abe with a homemade gun during an election campaign event in 2022.`\
-https://nytimes.com/2025/10/28/world/asia/japan-shinzo-abe-assassination-suspect-guilty.html
 
