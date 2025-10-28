@@ -1,3 +1,7 @@
+**Would Aroldis Chapman ever pitch for the Yankees again? 'Not even dead'**\
+`Chapman also said he would rather retire than play for the Yankees if he were traded there.`\
+https://nytimes.com/athletic/6756805/2025/10/28/aroldis-chapman-blasts-yankees-retire/
+
 **House Report Details Biden’s Decline, Claiming He Was Impaired as President**\
 `The Oversight Committee said aides to former President Joseph R. Biden Jr. covered up his deterioration and asserted that many of his decisions are “void.” The committee’s ranking Democrat called the report a “sham investigation.”`\
 https://nytimes.com/2025/10/28/us/politics/biden-decline-impairment-president-house-report.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6756761/2025/10/28/wnba-cba-deadline-agreement/
 **The Fierce Jockeying for House Seats That Don’t Exist (Yet)**\
 `Democrats in California are already starting campaigns and declaring their intentions for hypothetical seats that voters must first approve in the Nov. 4 election.`\
 https://nytimes.com/2025/10/28/us/politics/california-prop-50-house-congress.html
-
-**MacKenzie Scott Backs Disaster Recovery in Marginalized Communities**\
-`The billionaire’s $60 million donation to the Center for Disaster Philanthropy counters cuts to federal emergency assistance and diversity programs.`\
-https://nytimes.com/2025/10/28/climate/mackenzie-scott-disaster-gift.html
 
