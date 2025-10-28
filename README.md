@@ -1,3 +1,7 @@
+**Forecasters Abort Flight Into the Eye of Hurricane Melissa**\
+`A hurricane hunter aircraft, tasked with collecting weather data for NOAA, aborted its mission into the eye of Hurricane Melissa after encountering extreme turbulence.`\
+https://nytimes.com/video/world/americas/100000010485197/hurricane-hunter-melissa.html
+
 **Here’s the latest.**\
 `By Jovan Johnson, Camille Williams, Judson Jones, Nazaneen Ghaffar, Yan Zhuang and Livia Albeck-Ripka`\
 https://nytimes.com/live/2025/10/28/weather/hurricane-melissa-jamaica-landfall/heres-the-latest
@@ -6,7 +10,7 @@ https://nytimes.com/live/2025/10/28/weather/hurricane-melissa-jamaica-landfall/h
 `The Category 5 storm is the most powerful in the Atlantic Ocean this year. The authorities in Jamaica and Cuba have issued evacuation orders for tens of thousands of people.`\
 https://nytimes.com/live/2025/10/28/weather/hurricane-melissa-jamaica-landfall
 
-**What's it like to catch Shohei Ohtani's home run at the World Series? This Dodger fan can tell you**\
+**What's it like to catch Shohei Ohtani's home run at the World Series? This Dodgers fan can tell you**\
 `David Aguilar, who has been a Dodgers fan for 50 years, will leave Game 3 with quite the souvenir and story. `\
 https://nytimes.com/athletic/6755854/2025/10/28/shohei-ohtani-home-run-dodgers-world-series/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6754313/2025/10/28/connections-sports-edition-hints
 **Fantasy football waiver wire Week 9: Tyrone Tracy, Bam Knight, streamers**\
 `Jake Ciely surfaces some viable fantasy football pickups for Week 9, but they all take a back seat to Tyrone Tracy.`\
 https://nytimes.com/athletic/6755266/2025/10/28/fantasy-football-waiver-wire-week-9-tyrone-tracy-bam-knight-streamers/
-
-**Corrections: Oct. 28, 2025**\
-`Corrections that appeared in print on Tuesday, Oct. 28, 2025.`\
-https://nytimes.com/2025/10/28/pageoneplus/corrections-oct-28-2025.html
 
