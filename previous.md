@@ -1,3 +1,11 @@
+**How to watch Cincinnati vs. Utah: Time, TV, streaming**\
+`Find out how to watch the Cincinnati Bearcats play the Utah Utes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6756068/2025/10/28/cincinnati-vs-utah-stream-how-to-watch-nov-1/
+
+**President Trump’s Trip to Asia**\
+`He has played the roles of dealmaker, peacemaker and showman, on a tour filled with pomp and circumstance.`\
+https://nytimes.com/2025/10/28/world/asia/trump-asia-photos.html
+
 **Man Admits in Court to Killing Shinzo Abe, Former Prime Minister of Japan**\
 `Tetsuya Yamagami, 45, was charged with killing Mr. Abe with a homemade gun during an election campaign event in 2022.`\
 https://nytimes.com/2025/10/28/world/asia/japan-shinzo-abe-assassination-suspect-guilty.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6502056/2025/10/28/charalampos-kostoulas-brighton-i
 **Frank's Spurs don't always thrill - so maybe they're at the cutting edge**\
 `Tottenham have been largely no-frills so far this season, but sit third in the Premier League - should fans adjust their thinking?`\
 https://nytimes.com/athletic/6743736/2025/10/28/thomas-frank-tottenham-style/
-
-**How 'phenomenal' Timber has grown into one of Arteta's key players**\
-`Jurrien Timber's injuries stalled his start at Arsenal. But now he has developed into a 'phenomenal' player`\
-https://nytimes.com/athletic/6753545/2025/10/28/jurrien-timber-phenomenal-arsenal/
-
-**Inside Newcastle Q&A: Wissa return date, Wilson making changes, impact of Osula and more**\
-`Newcastle reporter Chris Waugh answers readers' questions about all the most pressing issues at St James' Park.`\
-https://nytimes.com/athletic/6753440/2025/10/28/inside-newcastle-wissa/
 

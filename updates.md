@@ -1,3 +1,11 @@
+**How to watch Cincinnati vs. Utah: Time, TV, streaming**\
+`Find out how to watch the Cincinnati Bearcats play the Utah Utes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6756068/2025/10/28/cincinnati-vs-utah-stream-how-to-watch-nov-1/
+
+**President Trump’s Trip to Asia**\
+`He has played the roles of dealmaker, peacemaker and showman, on a tour filled with pomp and circumstance.`\
+https://nytimes.com/2025/10/28/world/asia/trump-asia-photos.html
+
 **Man Admits in Court to Killing Shinzo Abe, Former Prime Minister of Japan**\
 `Tetsuya Yamagami, 45, was charged with killing Mr. Abe with a homemade gun during an election campaign event in 2022.`\
 https://nytimes.com/2025/10/28/world/asia/japan-shinzo-abe-assassination-suspect-guilty.html
