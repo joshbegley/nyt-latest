@@ -1,3 +1,7 @@
+**NBA national TV game guide: Superlatives for Knicks-Bucks, Lakers-Wolves and more**\
+`Here's what to check for around the NBA this week, plus superlatives for each prime-time listing.`\
+https://nytimes.com/athletic/6754615/2025/10/28/nba-nbc-schedule-knicks-bucks-lakers-how-to-watch/
+
 **Ravens seem more likely to add than subtract before trade deadline. But who's available?**\
 `Now just two games out of first place in the AFC North, Baltimore could look for ways to bolster its roster ahead of the trade deadline. `\
 https://nytimes.com/athletic/6755887/2025/10/28/ravens-buyers-2025-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6754440/2025/10/28/best-big-ten-college-football-st
 **Stock watch: The Jets players rising, falling or confusing to start the season**\
 `The Jets are nine games into 2025-26 with some players off to the races, others struggling to find their rhythm and one embracing chaos.`\
 https://nytimes.com/athletic/6754203/2025/10/28/winnipeg-jets-stock-watch-scheifele-toews-stanley/
-
-**The 10 best things I saw in college football recruiting over the weekend**\
-`Wide receiver Josiah Dozier, a South Florida commit from Alabama, had one of the best catches by a high school football player this season. `\
-https://nytimes.com/athletic/6754685/2025/10/28/ollege-football-recruiting-thoughts-week-9/
 
