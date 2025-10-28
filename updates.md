@@ -1,3 +1,15 @@
+**Patriots trading DE Keion White to pass-rush-needy 49ers: Sources**\
+`Keion White will help replace Nick Bosa, who was lost to a torn ACL in Week 3.`\
+https://nytimes.com/athletic/6758357/2025/10/28/keion-white-trade-49ers-patriots/
+
+**Cuba Is No Stranger to Hurricanes**\
+`In the last 25 years, a total of 10 major hurricanes have lashed the island. “Cuba is right in the center of things,” a weather historian said.`\
+https://nytimes.com/2025/10/28/weather/hurricane-melissa-landfall-cuba.html
+
+**The Top 10 Architectural Sites to See in Mumbai**\
+`In contrast to the Indian city’s scores of residential towers, its best buildings are lower to the ground — and a flamboyant reflection of its multiculturalism.`\
+https://nytimes.com/2025/10/28/t-magazine/mumbai-architecture-buildings-guide.html
+
 **Agyemang injury during England's win over Australia 'looks bad'**\
 `The 19-year-old Kopa Trophy nominee came on for Alessia Russo but went down after challenging for the ball in the second half.`\
 https://nytimes.com/athletic/6758163/2025/10/28/agyemang-england-injury-stretcher/
