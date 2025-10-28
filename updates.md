@@ -1,3 +1,7 @@
+**Critical fantasy football insights for Week 9: Drake Maye for MVP, Breece Hall's back**\
+`Brandon Funston and Jess Bryant look at usage metrics to give actionable Week 9 fantasy football advice. `\
+https://nytimes.com/athletic/6754005/2025/10/28/critical-fantasy-football-insights-week-9/
+
 **Zadar, Croatia**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-zadar

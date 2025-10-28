@@ -1,3 +1,15 @@
+**‘The Beginning of a Movement’: Snapshots From a Mamdani Rally**\
+`Zohran Mamdani’s rally on Sunday nearly filled Forest Hills Stadium in Queens. Here’s why some of them went, in their own words.`\
+https://nytimes.com/2025/10/28/nyregion/photos-mamdani-aoc-bernie-rally.html
+
+**Netanyahu Orders New Strikes on Gaza**\
+`Weeks into a tenuous cease-fire with Hamas, the office of the Israeli Prime Minister said on Tuesday evening that he had ordered “forceful strikes” in Gaza.`\
+https://nytimes.com/2025/10/28/world/middleeast/israel-gaza-netanyahu-strikes.html
+
+**Bring a Crew for Askili Orchard’s Georgian Spread**\
+`Rare Japanese Wagyu, private movie screenings with themed menus and more restaurant news.`\
+https://nytimes.com/2025/10/28/dining/nyc-restaurant-news.html
+
 **Critical fantasy football insights for Week 9: Drake Maye for MVP, Breece Hall's back**\
 `Brandon Funston and Jess Bryant look at usage metrics to give actionable Week 9 fantasy football advice. `\
 https://nytimes.com/athletic/6754005/2025/10/28/critical-fantasy-football-insights-week-9/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6755231/2025/10/28/deshon-elliott-pittsburgh-steele
 **gws-best-pastry-nyc**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/best-pastry-nyc
-
-**Jewish Heirs Sue the Met, Saying a van Gogh It Sold Was Nazi Loot**\
-`The museum says it had no idea at the time, but the heirs say the Met curator who bought and sold the work, a former U.S. Army specialist on looting, should have known better.`\
-https://nytimes.com/2025/10/28/arts/design/jewish-heirs-sue-met-van-gogh-nazi-loot.html
-
-**Pat and Cam Spencer bring fans to their feet during last-second matchup**\
-`Brothers Cam and Pat Spencer went one-on-one at the end of the Golden State Warriors 131-118 win over the Memphis Grizzlies in Chase Center`\
-https://nytimes.com/athletic/6757016/2025/10/28/warriors-grizzlies-pat-cam-spencer-brothers/
-
-**Dozens of States Sue Trump Administration Over Planned Food Stamp Cuts**\
-`The states petitioned a federal court days after the Agriculture Dept. said it would not take emergency steps to provide aid during the government shutdown.`\
-https://nytimes.com/2025/10/28/us/politics/trump-food-stamps-snap-lawsuit.html
 
