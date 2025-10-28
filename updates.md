@@ -1,3 +1,7 @@
+**On the Menu for Trump in Tokyo: American Rice**\
+`Rice is a point of pride in Japan, and the choice was a break from the typical diplomatic practice of showcasing local ingredients.`\
+https://nytimes.com/2025/10/28/world/asia/trump-japan-america-rice.html
+
 **Blowout loss to Cavs exposes problem areas for Pistons**\
 `Detroit's offense remains too stagnant, as evidenced by a long dry spell against Cleveland at home.`\
 https://nytimes.com/athletic/6755998/2025/10/28/pistons-loss-offense-cavs/
