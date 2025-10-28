@@ -1,3 +1,27 @@
+**Halloween Candy**\
+`What’s your favorite? Are there any you avoid?`\
+https://nytimes.com/2025/10/28/learning/halloween-candy.html
+
+**Should the Mayor Control N.Y.C. Schools? Mamdani and Cuomo Don’t Agree.**\
+`Zohran Mamdani and the teachers’ union have called for changes in mayoral control. Andrew M. Cuomo and some education leaders say that would be a grave mistake.`\
+https://nytimes.com/2025/10/28/nyregion/new-york-city-schools-mayoral-control.html
+
+**10,000 Tales From a 17th-Century Crypt**\
+`In Milan, bones that piled under a hospital over a half-century shed light on the health and habits of some of the Renaissance era’s most impoverished people.`\
+https://nytimes.com/2025/10/28/science/archaeology-milan-crypt.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/28/crosswords/spelling-bee-forum.html
+
+**Blue Jays-Dodgers Game 3 takeaways: Freddie Freeman lifts L.A. in 18-inning classic**\
+`The longest game in World Series history was a treat of October theater. In the end, the Dodgers got the win and a 2-1 series lead.`\
+https://nytimes.com/athletic/6755855/2025/10/28/dodgers-blue-jays-world-series-game-3-results-takeaways-mlb/
+
+**Dodgers outlast Blue Jays in classic, 18-inning Game 3 to take 2-1 lead in World Series**\
+`The joint-longest World Series game ever was filled with dramatic play after another, until Freddie Freeman finally won it with a walk-off.`\
+https://nytimes.com/athletic/6755816/2025/10/28/dodgers-blue-jays-game-3-18-innings/
+
 **How to watch Cincinnati vs. Utah: Time, TV, streaming**\
 `Find out how to watch the Cincinnati Bearcats play the Utah Utes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6756068/2025/10/28/cincinnati-vs-utah-stream-how-to-watch-nov-1/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/10/28/world/asia/japan-shinzo-abe-assassination-suspect
 **Trump Wins Praise in Japan, but No Movements on Trade**\
 `President Trump and Sanae Takaichi, the Japanese prime minister, traded compliments during a stop in Tokyo, but signaled no major breakthrough in ongoing trade negotiations.`\
 https://nytimes.com/2025/10/28/us/politics/trump-takaichi-japan-meeting.html
-
-**How to watch Blue Jays at Dodgers: World Series Game 3 Time, TV, streaming**\
-`Find out how to watch the Toronto Blue Jays play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6756023/2025/10/28/blue-jays-vs-dodgers-stream-how-to-watch-oct-28/
-
-**Word of the Day: repertory**\
-`This word has appeared in 154 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/10/28/learning/word-of-the-day-repertory.html
-
-**This Liverpool XI can stop the rot at Anfield**\
-`Radical changes are needed to pull the champions out of their slump`\
-https://nytimes.com/athletic/6754096/2025/10/28/liverpool-team-premier-league-selection/
-
-**Inside England's World Cup pursuit: Hard work, coffee club and quiz nights**\
-`South Africa await in Wednesday's semi-final in Guwahati as Nat Sciver-Brunt's team seek to reach a third successive World Cup final`\
-https://nytimes.com/athletic/6753391/2025/10/28/england-women-world-cup-india-bell-filer/
-
-**Charalampos Kostoulas: 'I dreamed of the Premier League. I didn't think it would come so fast'**\
-`The 18-year-old Greek forward scored his first goal for Brighton in the defeat to Manchester United on Saturday`\
-https://nytimes.com/athletic/6502056/2025/10/28/charalampos-kostoulas-brighton-interview/
-
-**Frank's Spurs don't always thrill - so maybe they're at the cutting edge**\
-`Tottenham have been largely no-frills so far this season, but sit third in the Premier League - should fans adjust their thinking?`\
-https://nytimes.com/athletic/6743736/2025/10/28/thomas-frank-tottenham-style/
 
