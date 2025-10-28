@@ -1,3 +1,11 @@
+**Michael McKee, Fervent Advocate for Tenants’ Rights, Dies at 85**\
+`A broken window transformed him into a professional organizer and lobbyist to regulate rents and restrain landlords.`\
+https://nytimes.com/2025/10/28/nyregion/michael-mckee-dead.html
+
+**How Celtic turned 'toxic'**\
+`Brendan Rodgers left Celtic on Monday — with the club heavily criticising their now former manager`\
+https://nytimes.com/athletic/6757433/2025/10/28/celtic-brendan-rodgers-analysis/
+
 **Johnson Dismisses Trump 2028 Talk — But Applauds the ‘Trolling’**\
 `The speaker said he did not see a path to amending the Constitution to allow the president to seek a third term, but that it was fun to pretend he could to inflame Democrats.`\
 https://nytimes.com/2025/10/28/us/politics/johnson-trump-2028-constitution.html
