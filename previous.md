@@ -1,3 +1,15 @@
+**Following in the Footsteps of Charlie Kirk?**\
+`In a crowded field of would-be successors, Brilyn Hollyhand hopes to capture the minds of young conservatives across America.`\
+https://nytimes.com/2025/10/28/style/brilyn-hollyhand-charlie-kirk-young-republicans.html
+
+**As the Dodgers' relievers put forth a heroic Game 3 effort, they honored Alex Vesia**\
+`Dodgers relievers all had the No. 51 stitched on the side of their caps in honor of Vesia, who is dealing with a “deeply personal matter."`\
+https://nytimes.com/athletic/6758138/2025/10/28/dodgers-bullpen-alex-vesia-honored/
+
+**Hurricane Melissa Is Rewriting the Record Books**\
+`The storm is one of the strongest on record in the Atlantic Ocean.`\
+https://nytimes.com/2025/10/28/weather/hurricane-melissa-strongest-storms-atlantic-record.html
+
 **Hurricane Melissa Makes Landfall**\
 `Hurricane Melissa, a Category 5 storm, made landfall near New Hope, Jamaica, on Tuesday. With wind speeds of 185 miles per hour and sustained winds stronger than those of Hurricane Katrina, Melissa is now the fifth-strongest hurricane on record in the Atlantic Ocean.`\
 https://nytimes.com/video/weather/100000010486530/hurricane-melissa-makes-landfall.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6758089/2025/10/28/ravens-lamar-jackson-return-inju
 **Trump’s Pick for Ambassador to Kuwait on Path to Failure**\
 `Three Republican senators whose votes would be needed to advance Amer Ghalib’s nomination said they would oppose him, all but assuring it would stall.`\
 https://nytimes.com/2025/10/28/us/politics/trumps-pick-for-ambassador-to-kuwait-on-path-to-failure.html
-
-**George Springer's status to play is 'hour to hour' ahead of World Series Game 4**\
-`Springer left Game 3 in the seventh inning clutching his right side after a swing. His status remains murky hours before first pitch.`\
-https://nytimes.com/athletic/6757808/2025/10/28/george-springer-blue-jays-health-world-series/
-
-**Anyone Who’s Anyone Got Their Start at Joe’s Pub**\
-`Despite its small stage, the cabaret space inside New York’s Public Theater building has made an outsize imprint on the city’s art scene.`\
-https://nytimes.com/2025/10/28/t-magazine/joes-pub.html
-
-**At Least 64 Dead in Rio de Janeiro as Authorities Crack Down on Drug Gangs**\
-`The authorities said the deadliest operation in Rio’s history had killed four police officers and at least 60 other people. It was an attack on “narco-terrorists,” the state governor said.`\
-https://nytimes.com/2025/10/28/world/brazil-rio-de-janeiro-police-drug-raids-deaths.html
 
