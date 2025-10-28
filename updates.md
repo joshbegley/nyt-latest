@@ -1,3 +1,11 @@
+**Charalampos Kostoulas: 'I dreamed of the Premier League. I didn't think it would come so fast'**\
+`The 18-year-old Greek forward scored his first goal for Brighton in the defeat to Manchester United on Saturday`\
+https://nytimes.com/athletic/6502056/2025/10/28/charalampos-kostoulas-brighton-interview/
+
+**Frank's Spurs don't always thrill - so maybe they're at the cutting edge**\
+`Tottenham have been largely no-frills so far this season, but sit third in the Premier League - should fans adjust their thinking?`\
+https://nytimes.com/athletic/6743736/2025/10/28/thomas-frank-tottenham-style/
+
 **How 'phenomenal' Timber has grown into one of Arteta's key players**\
 `Jurrien Timber's injuries stalled his start at Arsenal. But now he has developed into a 'phenomenal' player`\
 https://nytimes.com/athletic/6753545/2025/10/28/jurrien-timber-phenomenal-arsenal/

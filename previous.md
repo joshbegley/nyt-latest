@@ -1,3 +1,11 @@
+**Charalampos Kostoulas: 'I dreamed of the Premier League. I didn't think it would come so fast'**\
+`The 18-year-old Greek forward scored his first goal for Brighton in the defeat to Manchester United on Saturday`\
+https://nytimes.com/athletic/6502056/2025/10/28/charalampos-kostoulas-brighton-interview/
+
+**Frank's Spurs don't always thrill - so maybe they're at the cutting edge**\
+`Tottenham have been largely no-frills so far this season, but sit third in the Premier League - should fans adjust their thinking?`\
+https://nytimes.com/athletic/6743736/2025/10/28/thomas-frank-tottenham-style/
+
 **How 'phenomenal' Timber has grown into one of Arteta's key players**\
 `Jurrien Timber's injuries stalled his start at Arsenal. But now he has developed into a 'phenomenal' player`\
 https://nytimes.com/athletic/6753545/2025/10/28/jurrien-timber-phenomenal-arsenal/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6742894/2025/10/28/underlapping-left-backs-tactics-
 **Bundesliga Briefing: Lennart Karl's name is no longer being whispered at Bayern**\
 `The teenager followed up his midweek Champions League goal with an incredible strike in the Bundesliga at the weekend`\
 https://nytimes.com/athletic/6753489/2025/10/28/bundesliga-briefing-lennart-karl-bayern-munich/
-
-**The New York Times in Print for Tuesday, Oct. 28, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/10/28/todays-new-york-times
-
-**Don’t Count on Xi and Trump to Steady the World**\
-`The meeting in South Korea will be between two powerful men who govern by impulse, not institutions — and that’s dangerous.`\
-https://nytimes.com/2025/10/28/opinion/us-china-strongmen.html
 

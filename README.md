@@ -1,3 +1,11 @@
+**This Liverpool XI can stop the rot at Anfield**\
+`Radical changes are needed to pull the champions out of their slump`\
+https://nytimes.com/athletic/6754096/2025/10/28/liverpool-team-premier-league-selection/
+
+**Inside England's World Cup pursuit: Hard work, coffee club and quiz nights**\
+`South Africa await in Wednesday's semi-final in Guwahati as Nat Sciver-Brunt's team seek to reach a third successive World Cup final`\
+https://nytimes.com/athletic/6753391/2025/10/28/england-women-world-cup-india-bell-filer/
+
 **Charalampos Kostoulas: 'I dreamed of the Premier League. I didn't think it would come so fast'**\
 `The 18-year-old Greek forward scored his first goal for Brighton in the defeat to Manchester United on Saturday`\
 https://nytimes.com/athletic/6502056/2025/10/28/charalampos-kostoulas-brighton-interview/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6754322/2025/10/28/can-anyone-catch-arsenal/
 **Row Z: Tickets to watch Chelsea... sort of, plus Slot's back for more and Man City's kit crime**\
 `If you want to watch Chelsea with a club legend, you now can, while there are yet more explanations for Liverpool's troubles...`\
 https://nytimes.com/athletic/6753436/2025/10/28/row-z-chelsea-arne-slot/
-
-**How underlapping left-backs became football's new attacking weapon**\
-`Coaches are being reminded of how much value an aggressive-running full-back can bring`\
-https://nytimes.com/athletic/6742894/2025/10/28/underlapping-left-backs-tactics-calafiori/
-
-**Bundesliga Briefing: Lennart Karl's name is no longer being whispered at Bayern**\
-`The teenager followed up his midweek Champions League goal with an incredible strike in the Bundesliga at the weekend`\
-https://nytimes.com/athletic/6753489/2025/10/28/bundesliga-briefing-lennart-karl-bayern-munich/
 
