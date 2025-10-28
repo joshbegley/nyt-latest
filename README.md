@@ -1,3 +1,7 @@
+**Jonathan Toews brings healthy body and attitude to first game against Blackhawks**\
+`For the first time in his career, Jonathan Toews is preparing to play against the Blackhawks. Many — including Toews — doubted it'd happen.`\
+https://nytimes.com/athletic/6754877/2025/10/28/jonathan-toews-health-blackhawks-jets-nhl-return/
+
 **Where do teams get their best players? What Player Tiers data tells us about team building**\
 `Breaking down how the top 150 NHL players heading into this season ended up on their current teams, and what that says about the league.`\
 https://nytimes.com/athletic/6755065/2025/10/28/nhl-player-tiers-roster-building-trades-drafting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6744992/2025/10/28/world-series-blue-jays-george-sp
 **The Hidden Victims of America’s Wildfires**\
 `The story of one young man who started fighting wildfires as a teenager, and was diagnosed with an aggressive cancer on the eve of his 25th birthday.`\
 https://nytimes.com/2025/10/28/podcasts/the-daily/wildfires-firefighters-cancer.html
-
-**Is it finally Denny Hamlin's time to win the NASCAR Cup Series title?**\
-`Hamlin is a sure Hall of Famer. But his resume his missing one thing — a Cup Series title. Now, at 44, he has one of his best shots at it.`\
-https://nytimes.com/athletic/6749731/2025/10/28/denny-hamlin-nascar-championship-4-race/
 
