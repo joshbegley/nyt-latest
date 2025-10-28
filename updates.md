@@ -1,3 +1,11 @@
+**Hunger and Cold Loom as Shutdown Imperils Funding for Antipoverty Programs**\
+`Within days, tens of millions of low-income Americans may lose assistance for food, child care and utilities if the federal government remains shut down.`\
+https://nytimes.com/2025/10/27/us/politics/trump-shutdown-snap-food-stamps-aid.html
+
+**Full Time: Early picks for the USWNT's 2027 World Cup squad**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6755629/2025/10/27/uswnt-world-cup-roster-prediction-full-time/
+
 **Missed ball-strike call leads to costly pickoff in World Series Game 3**\
 `Instead of taking a 1-0 lead, a puzzling play that went down as a pickoff at first left the Blue Jays scoreless in the second inning.`\
 https://nytimes.com/athletic/6755615/2025/10/27/dodgers-blue-jays-game-3-missed-call/
