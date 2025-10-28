@@ -1,3 +1,15 @@
+**In Two Solo Plays, a Search for Belonging and Parental Love**\
+`Ari’el Stachel’s “Other” and Zoë Kim’s “Did You Eat?” are self-interrogations that deal with family, race and identity.`\
+https://nytimes.com/2025/10/28/theater/ariel-stachel-other-zoe-kim-did-you-eat.html
+
+**Steven Hatfill, Covid Vaccine Critic, Is Ousted From HHS**\
+`Dr. Hatfill said he was pushed out by Health Secretary Robert F. Kennedy Jr.’s chief of staff, who fired him when he refused to resign.`\
+https://nytimes.com/2025/10/28/us/politics/hatfill-covid-hhs-ousted.html
+
+**Explaining the Turkish referee betting scandal – and what happens now**\
+`Analysing the latest major controversy to hit Turkish football and what the implications could be`\
+https://nytimes.com/athletic/6756785/2025/10/28/turkey-referee-betting-scandal-explained/
+
 **Arsenal injuries: Martinelli and Saliba to miss Carabao Cup tie against Brighton**\
 `Declan Rice, Riccardo Calafiori and Bukayo Saka are all available for the game at the Emirates Stadium.`\
 https://nytimes.com/athletic/6756439/2025/10/28/arsenal-injuries-martinelli-saliba-brighton/
