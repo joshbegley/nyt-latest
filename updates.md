@@ -1,3 +1,7 @@
+**Man Admits in Court to Killing Shinzo Abe, Former Prime Minister of Japan**\
+`Tetsuya Yamagami, 45, was charged with killing Mr. Abe with a homemade gun during an election campaign event in 2022.`\
+https://nytimes.com/2025/10/28/world/asia/japan-shinzo-abe-assassination-suspect-guilty.html
+
 **Trump Wins Praise in Japan, but No Movements on Trade**\
 `President Trump and Sanae Takaichi, the Japanese prime minister, traded compliments during a stop in Tokyo, but signaled no major breakthrough in ongoing trade negotiations.`\
 https://nytimes.com/2025/10/28/us/politics/trump-takaichi-japan-meeting.html

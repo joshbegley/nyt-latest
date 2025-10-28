@@ -1,3 +1,7 @@
+**Man Admits in Court to Killing Shinzo Abe, Former Prime Minister of Japan**\
+`Tetsuya Yamagami, 45, was charged with killing Mr. Abe with a homemade gun during an election campaign event in 2022.`\
+https://nytimes.com/2025/10/28/world/asia/japan-shinzo-abe-assassination-suspect-guilty.html
+
 **Trump Wins Praise in Japan, but No Movements on Trade**\
 `President Trump and Sanae Takaichi, the Japanese prime minister, traded compliments during a stop in Tokyo, but signaled no major breakthrough in ongoing trade negotiations.`\
 https://nytimes.com/2025/10/28/us/politics/trump-takaichi-japan-meeting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6753545/2025/10/28/jurrien-timber-phenomenal-arsena
 **Inside Newcastle Q&A: Wissa return date, Wilson making changes, impact of Osula and more**\
 `Newcastle reporter Chris Waugh answers readers' questions about all the most pressing issues at St James' Park.`\
 https://nytimes.com/athletic/6753440/2025/10/28/inside-newcastle-wissa/
-
-**James Horncastle's Serie A Briefing: Tempers flare, McTominay scores, Juventus sack Tudor**\
-`After a rocky week, Napoli demonstrated why they won the title last season in a fractious 3-1 defeat of rivals Inter`\
-https://nytimes.com/athletic/6751414/2025/10/28/horncastle-serie-a-briefing-napoli-inter-conte/
 
