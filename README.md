@@ -1,3 +1,7 @@
+**NBA's early trend: pressure for 94 feet; plus Grizzlies' super-efficient rookie and more**\
+`The NBA is a copycat league, and the full-court pressure trend is the tactic to crib from other staffs. Plus, phantom shots, real blocks.`\
+https://nytimes.com/athletic/6753950/2025/10/28/nba-first-week-defense-rookies-trends/
+
 **Kenny Dalglish film review: An outstanding piece of work covering triumph, greatness and tragedy**\
 `Liverpool fan and Oscar-winner Asif Kapadia portrays an incredible playing and managerial career and the effects of Hillsborough`\
 https://nytimes.com/athletic/6751944/2025/10/28/sir-kenny-dalglish-film-review-liverpool/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/10/28/nyregion/nyc-mayor-election-news/curtis-sliw
 **Will Bill Gates’s ‘Strategic Pivot’ Shake Up Climate Policy?**\
 `The billionaire philanthropist said it was a mistake to focus so much on “near-term emissions goals,” a position that could generate serious debate.`\
 https://nytimes.com/2025/10/28/business/dealbook/bill-gates-climate-pivot.html
-
-**Are the Sabres turning a corner? What I think and what I know through 9 games**\
-`The Sabres have been a different team since the first week of the season. Here are some things to take note of in the early going.`\
-https://nytimes.com/athletic/6756421/2025/10/28/sabres-josh-doan-zach-benson/
 
