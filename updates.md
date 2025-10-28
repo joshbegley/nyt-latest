@@ -1,3 +1,7 @@
+**Chiefs vs. Commanders takeaways: Kansas City dominates second half to win third straight game**\
+`It took a while to clean up some mistakes, but the Chiefs offense couldn’t have played much better coming out of the halftime break.`\
+https://nytimes.com/athletic/6755669/2025/10/27/commanders-chiefs-score-result-takeaways-mnf-nfl/
+
 **Crosby reaches 1,700 points, Malkin tied for NHL scoring lead as Penguins roll**\
 `Sidney Crosby and Evgeni Malkin continued to turn back the clock, while Parker Wotherspoon and Erik Karlsson impressed from the blue line.`\
 https://nytimes.com/athletic/6755633/2025/10/27/penguins-crosby-malkin-scoring-blues/
