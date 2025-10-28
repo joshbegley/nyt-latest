@@ -1,3 +1,7 @@
+**Melissa’s Powerful Winds Could Be Even Worse in Jamaica’s Mountains**\
+`Gusts in higher elevations could be up to 30 percent stronger, the National Hurricane Center said.`\
+https://nytimes.com/2025/10/28/weather/hurricane-melissa-jamaica-mountains-winds.html
+
 **NBA national TV game guide: Superlatives for Knicks-Bucks, Lakers-Wolves and more**\
 `Here's what to check for around the NBA this week, plus superlatives for each prime-time listing.`\
 https://nytimes.com/athletic/6754615/2025/10/28/nba-nbc-schedule-knicks-bucks-lakers-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6754887/2025/10/28/world-sevens-football-teams/
 **Big Ten stadium superlatives: Who has the most underrated (and overrated) venue?**\
 `The Big Ten was heavily featured in our college football stadium rankings. Here's what our writers like (and dislike) in the conference.`\
 https://nytimes.com/athletic/6754440/2025/10/28/best-big-ten-college-football-stadiums/
-
-**Stock watch: The Jets players rising, falling or confusing to start the season**\
-`The Jets are nine games into 2025-26 with some players off to the races, others struggling to find their rhythm and one embracing chaos.`\
-https://nytimes.com/athletic/6754203/2025/10/28/winnipeg-jets-stock-watch-scheifele-toews-stanley/
 

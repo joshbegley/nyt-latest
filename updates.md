@@ -1,3 +1,7 @@
+**Melissa’s Powerful Winds Could Be Even Worse in Jamaica’s Mountains**\
+`Gusts in higher elevations could be up to 30 percent stronger, the National Hurricane Center said.`\
+https://nytimes.com/2025/10/28/weather/hurricane-melissa-jamaica-mountains-winds.html
+
 **NBA national TV game guide: Superlatives for Knicks-Bucks, Lakers-Wolves and more**\
 `Here's what to check for around the NBA this week, plus superlatives for each prime-time listing.`\
 https://nytimes.com/athletic/6754615/2025/10/28/nba-nbc-schedule-knicks-bucks-lakers-how-to-watch/
