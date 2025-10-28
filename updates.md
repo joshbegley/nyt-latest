@@ -1,3 +1,19 @@
+**Jamaicans in New York ‘Pray, Pray, Pray’ as Melissa Approaches Their Island Nation**\
+`Hurricane Melissa was on a direct path to strike Jamaica on Tuesday morning.`\
+https://nytimes.com/2025/10/27/weather/new-york-jamaican-community.html
+
+**Fan falls from upper level during Penguins goal celebration vs. Blues**\
+`Witnesses said the man appeared to be unconscious when medical personnel on hand at PPG Paints Arena rushed to his aid.`\
+https://nytimes.com/athletic/6755517/2025/10/27/pittsburgh-penguins-fan-fall-arena-blues/
+
+**How to watch Arizona vs. Colorado: Time, TV, streaming**\
+`Find out how to watch the Arizona Wildcats play the Colorado Buffaloes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6755413/2025/10/27/how-to-watch-arizona-vs-colorado-tv-channel-and-streaming-options-for-november-1/
+
+**How to watch Oklahoma vs. Tennessee: Time, TV, streaming**\
+`Find out how to watch the Oklahoma Sooners play the Tennessee Volunteers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6755414/2025/10/27/how-to-watch-no-18-oklahoma-vs-no-14-tennessee-tv-channel-and-streaming-options-for-november-1/
+
 **Ivory Coast President Secures 4th Term in Election Without Top Opponents**\
 `President Alassane Ouattara won 89.77 percent of the vote, but critics called the elections flawed after two main challengers were barred from running.`\
 https://nytimes.com/2025/10/27/world/africa/ivory-coast-president-election-ouattara-wins.html
