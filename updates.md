@@ -1,3 +1,15 @@
+**Would Term Limits for Congress Help or Hurt?**\
+`Readers respond to an Opinion guest essay by Gov. Ron DeSantis and former Representative David Trone.`\
+https://nytimes.com/2025/10/28/opinion/term-limits-desantis.html
+
+**DeShon Elliott's injury is a devastating blow for a struggling Steelers defense**\
+`There's been a noticeable difference in the Steelers' defensive performance with and without the veteran safety.`\
+https://nytimes.com/athletic/6755231/2025/10/28/deshon-elliott-pittsburgh-steelers-injury/
+
+**gws-best-pastry-nyc**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/best-pastry-nyc
+
 **Jewish Heirs Sue the Met, Saying a van Gogh It Sold Was Nazi Loot**\
 `The museum says it had no idea at the time, but the heirs say the Met curator who bought and sold the work, a former U.S. Army specialist on looting, should have known better.`\
 https://nytimes.com/2025/10/28/arts/design/jewish-heirs-sue-met-van-gogh-nazi-loot.html
