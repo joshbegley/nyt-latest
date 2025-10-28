@@ -1,3 +1,7 @@
+**USWNT coach Emma Hayes reflects on attending first Monday Night Football game in Kansas City**\
+`The U.S. will play New Zealand at CPKC Stadium on Wednesday, the first time the USWNT plays at the iconic NWSL venue.`\
+https://nytimes.com/athletic/6758419/2025/10/28/uswnt-emma-hayes-monday-night-football-kansas-city/
+
 **Just Before Trump’s Visit to South Korea, North Test-Fires Missiles**\
 `The country has yet to respond to President Trump’s overtures to meet again with Kim Jong-un, its leader.`\
 https://nytimes.com/2025/10/28/world/asia/north-korea-kim-missile-trump.html
@@ -31,10 +35,6 @@ https://nytimes.com/2025/10/28/world/asia/south-korea-gyeongju-apec-hosting.html
 https://nytimes.com/athletic/6758324/2025/10/28/stars-thomas-harley-contract-extension/
 
 **Patriots trading DE Keion White to pass-rush-needy 49ers: Sources**\
-`Keion White will help replace Nick Bosa, who was lost to a torn ACL in Week 3.`\
+`The 6-foot-5, 285-pound White will look to help San Francisco's defense, which lost Nick Bosa to a season-ending torn ACL in Week 3.`\
 https://nytimes.com/athletic/6758357/2025/10/28/keion-white-trade-49ers-patriots/
-
-**Cuba Is No Stranger to Hurricanes**\
-`In the last 25 years, a total of 10 major hurricanes have lashed the island. “Cuba is right in the center of things,” a weather historian said.`\
-https://nytimes.com/2025/10/28/weather/hurricane-melissa-landfall-cuba.html
 
