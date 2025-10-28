@@ -1,3 +1,7 @@
+**Red Light: Let's draft Tuesday's jam-packed 32-team NHL schedule**\
+`The NHL is going full firehose mode on us, with all 32 teams in action across 16 games. The best part: The starts will be staggered.`\
+https://nytimes.com/athletic/6756892/2025/10/28/nhl-schedule-tv-how-to-watch-red-light-newsletter/
+
 **U.S. Military Kills 14 More People Accused of Smuggling Drugs on Boats**\
 `Defense Secretary Pete Hegseth said that the three strikes hit four boats in international waters and that there had been one survivor.`\
 https://nytimes.com/2025/10/28/us/politics/us-military-boat-strikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/28/us/politics/trump-japan-national-guard-us-cities.
 **OpenAI Restructures to Become a More Traditional For-Profit Company**\
 `The artificial intelligence company said that the nonprofit that controlled the organization would receive a $130 billion stake in the new company.`\
 https://nytimes.com/2025/10/28/technology/openai-restructure-for-profit-company.html
-
-**WNBA CBA will not meet deadline, players' union legal counsel says**\
-`The deadline to reach a deal is Friday, but the league and union could agree to an extension, which would postpone the deadline.`\
-https://nytimes.com/athletic/6756761/2025/10/28/wnba-cba-deadline-agreement/
 
