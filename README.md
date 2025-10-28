@@ -1,3 +1,7 @@
+**Agyemang taken off on stretcher during England's win against Australia**\
+`The 19-year-old Kopa Trophy nominee came on for Alessia Russo but went down after challenging for the ball in the second half.`\
+https://nytimes.com/athletic/6758163/2025/10/28/agyemang-england-injury-stretcher/
+
 **Bill de Blasio Denies Questioning Mamdani’s Agenda in British Newspaper**\
 `The former New York City mayor said comments attributed to him about Zohran Mamdani, reported in The Times of London on Tuesday, were fabricated.`\
 https://nytimes.com/2025/10/28/nyregion/bill-de-blasio-mamdani-agenda.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/28/weather/hurricane-melissa-strongest-storms-atlant
 **Hurricane Melissa Makes Landfall**\
 `Hurricane Melissa, a Category 5 storm, made landfall near New Hope, Jamaica, on Tuesday. With wind speeds of 185 miles per hour and sustained winds stronger than those of Hurricane Katrina, Melissa is now the fifth-strongest hurricane on record in the Atlantic Ocean.`\
 https://nytimes.com/video/weather/100000010486530/hurricane-melissa-makes-landfall.html
-
-**RB Leipzig supporter dies after medical emergency at DFB-Pokal game**\
-`The incident occurred while the fan was entering the stadium. A minute's silence was held at the start of the second half.`\
-https://nytimes.com/athletic/6758181/2025/10/28/rb-leipzig-fan-dies/
 
