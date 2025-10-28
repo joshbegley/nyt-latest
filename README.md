@@ -1,3 +1,15 @@
+**Trump Administration Reinstalls Confederate Statue in Washington**\
+`The statue of Albert Pike, a Confederate general who worked closely with slave-owning Native American tribes, is the only monument of its kind in the nation’s capital.`\
+https://nytimes.com/2025/10/28/us/politics/confederate-statue-trump.html
+
+**G.O.P. Senators Urge Vance to Cancel Plan to Increase Beef Imports**\
+`In a closed-door meeting with the vice president, Republicans vented about a White House plan for Argentine beef they said would hurt ranchers in their states.`\
+https://nytimes.com/2025/10/28/us/politics/beef-imports-ranchers-argentina.html
+
+**What to know about Pat Surtain's recovery timeline, replacement Kris Abrams-Draine**\
+`An IR decision with Surtain may hinge on whether the Broncos believe the star CB could return for Nov. 30 game vs. Commanders.`\
+https://nytimes.com/athletic/6757335/2025/10/28/pat-surtain-injury-broncos-kris-abrams-draine/
+
 **Cameron Norrie knocks erratic Carlos Alcaraz out of Paris Masters**\
 `Norrie took advantage of a flood of errors from Alcaraz for his first win over a world No. 1.`\
 https://nytimes.com/athletic/6758031/2025/10/28/norrie-alcaraz-paris-masters-result-analysis/
@@ -21,16 +33,4 @@ https://nytimes.com/2025/10/28/climate/noaa-volunteers-hurricane-melissa.html
 **U.N. prepares to send food and supplies to the Caribbean after Hurricane Melissa.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2025/10/28/weather/hurricane-melissa-jamaica-landfall/hurricane-melissa-un-aid-caribbean
-
-**Mathurin, Toppin set to miss extended time as Pacers' injury list grows longer**\
-`The two key players join a growing Pacers injury list that includes Andrew Nembhard, T.J. McConnell and, of course, Tyrese Haliburton.`\
-https://nytimes.com/athletic/6757914/2025/10/28/pacers-injuries-list-bennedict-mathurin-obi-toppin/
-
-**The New Orleans Drink That’s Back From the Dead**\
-`With an unforgettable name, the Obituary has been down but never out.`\
-https://nytimes.com/2025/10/28/dining/obituary-cocktail-new-orleans.html
-
-**Midair Fork Attack Forces International Flight to Divert to Boston**\
-`A 28-year-old man stabbed two teenagers during a flight from Chicago to Frankfurt, according to federal prosecutors.`\
-https://nytimes.com/2025/10/28/us/plane-fork-attack-boston.html
 

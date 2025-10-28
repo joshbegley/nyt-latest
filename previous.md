@@ -1,3 +1,7 @@
+**Cameron Norrie knocks erratic Carlos Alcaraz out of Paris Masters**\
+`Norrie took advantage of a flood of errors from Alcaraz for his first win over a world No. 1.`\
+https://nytimes.com/athletic/6758031/2025/10/28/norrie-alcaraz-paris-masters-result-analysis/
+
 **The Two Big Questions Surrounding Bill Gates’s Climate Memo**\
 `The Microsoft co-founder wrote a lengthy memo warning against climate alarmism. Will it change how people talk about the issue or who funds climate action?`\
 https://nytimes.com/2025/10/28/climate/the-two-big-questions-surrounding-bill-gatess-climate-memo.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/10/28/dining/obituary-cocktail-new-orleans.html
 **Midair Fork Attack Forces International Flight to Divert to Boston**\
 `A 28-year-old man stabbed two teenagers during a flight from Chicago to Frankfurt, according to federal prosecutors.`\
 https://nytimes.com/2025/10/28/us/plane-fork-attack-boston.html
-
-**Spain reach Nations League final after beating Sweden**\
-`Defending champions Spain won 1-0 on Tuesday to add to their 4-0 first-leg result and secure their place in the final.`\
-https://nytimes.com/athletic/6757456/2025/10/28/nations-league-spain-sweden-france-germany/
 

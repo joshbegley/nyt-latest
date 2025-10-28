@@ -1,3 +1,7 @@
+**Cameron Norrie knocks erratic Carlos Alcaraz out of Paris Masters**\
+`Norrie took advantage of a flood of errors from Alcaraz for his first win over a world No. 1.`\
+https://nytimes.com/athletic/6758031/2025/10/28/norrie-alcaraz-paris-masters-result-analysis/
+
 **The Two Big Questions Surrounding Bill Gates’s Climate Memo**\
 `The Microsoft co-founder wrote a lengthy memo warning against climate alarmism. Will it change how people talk about the issue or who funds climate action?`\
 https://nytimes.com/2025/10/28/climate/the-two-big-questions-surrounding-bill-gatess-climate-memo.html
