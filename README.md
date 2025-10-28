@@ -1,3 +1,7 @@
+**Critical fantasy football insights for Week 9: Drake Maye for MVP, Breece Hall's back**\
+`Brandon Funston and Jess Bryant look at usage metrics to give actionable Week 9 fantasy football advice. `\
+https://nytimes.com/athletic/6754005/2025/10/28/critical-fantasy-football-insights-week-9/
+
 **Zadar, Croatia**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-zadar
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6757016/2025/10/28/warriors-grizzlies-pat-cam-spenc
 **Dozens of States Sue Trump Administration Over Planned Food Stamp Cuts**\
 `The states petitioned a federal court days after the Agriculture Dept. said it would not take emergency steps to provide aid during the government shutdown.`\
 https://nytimes.com/2025/10/28/us/politics/trump-food-stamps-snap-lawsuit.html
-
-**The Perimenopause Whisper Network**\
-`For some women, it feels like the only way to get medical care is to know someone who knows someone who can Whatsapp your book club group chat.`\
-https://nytimes.com/2025/10/28/style/the-perimenopause-whisper-network.html
 

@@ -1,3 +1,7 @@
+**Zadar, Croatia**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/things-to-do-zadar
+
 **Trump Threatens ‘More Than the National Guard’ In U.S. Cities**\
 `During a speech to American troops, President Trump said he would escalate his crackdown on crime and immigration to active duty branches of the military if he decides it is appropriate.`\
 https://nytimes.com/video/world/asia/100000010485546/trump-national-guard-japan.html
