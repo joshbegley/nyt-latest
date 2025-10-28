@@ -1,3 +1,7 @@
+**What’s the Fastest Ever N.B.A. Ejection?**\
+`What’s the fastest ejection in N.B.A. history? The official rulebook lists eight offenses that could get a player or coach ejected, but some get ejected faster than others.`\
+https://nytimes.com/video/the-athletic/100000010459538/whats-the-fastest-ever-nba-ejection.html
+
 **Once Again: The Pope Likes That Other Chicago Team, Not the Cubs**\
 `Although he posed with a Cubs jersey on Monday, a gift from a religious leader also from Chicago, Pope Leo is a longtime fan of the Chicago White Sox. Some people can’t seem to keep it straight.`\
 https://nytimes.com/2025/10/28/world/europe/pope-white-sox-chicago-baseball.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6755855/2025/10/28/dodgers-blue-jays-world-series-g
 **Dodgers outlast Blue Jays in classic, 18-inning Game 3 to take 2-1 lead in World Series**\
 `The joint-longest World Series game ever was filled with dramatic play after another, until Freddie Freeman finally won it with a walk-off.`\
 https://nytimes.com/athletic/6755816/2025/10/28/dodgers-blue-jays-game-3-18-innings/
-
-**How to watch Cincinnati vs. Utah: Time, TV, streaming**\
-`Find out how to watch the Cincinnati Bearcats play the Utah Utes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6756068/2025/10/28/cincinnati-vs-utah-stream-how-to-watch-nov-1/
 
