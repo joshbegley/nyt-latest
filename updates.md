@@ -1,3 +1,7 @@
+**Jamaican Officials Worry That Not Enough People Are Evacuating Ahead of Melissa**\
+`As Hurricane Melissa barrels toward the island nation, only a fraction of residents have headed to evacuation centers.`\
+https://nytimes.com/2025/10/27/weather/jamaica-evacuation-orders-shelters.html
+
 **Peacock Mondays, time-zone Tuesdays: Decoding this season's NBA TV schedule**\
 `There are new NBA broadcast crews to become familiar with, as well as what might be a slightly confusing TV schedule.`\
 https://nytimes.com/athletic/6755604/2025/10/27/nba-tv-schedule-amazon-nbc-espn/
