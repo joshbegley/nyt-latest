@@ -1,3 +1,7 @@
+**Ivory Coast President Secures 4th Term in Election Without Top Opponents**\
+`President Alassane Ouattara won 89.77 percent of the vote, but critics called the elections flawed after two main challengers were barred from running.`\
+https://nytimes.com/2025/10/27/world/africa/ivory-coast-president-election-ouattara-wins.html
+
 **Longtime Astros pitching coach Bill Murphy leaving for Pirates: Sources**\
 `Under Murphy, over the past four seasons, Houston’s pitching staff boasted baseball’s lowest ERA and second-highest strikeouts per nine.`\
 https://nytimes.com/athletic/6755441/2025/10/27/astros-bill-murphy-pitching-coach-pirates-sources/
