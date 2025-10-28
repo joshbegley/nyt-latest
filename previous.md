@@ -1,3 +1,15 @@
+**Federal Union’s Demand to End Shutdown Fails to Sway Democrats**\
+`Senate Republicans cited a call by the American Federation of Government Employees to pass a funding extension in an attempt to pressure Democrats to relent. The effort fell flat.`\
+https://nytimes.com/2025/10/28/us/politics/federal-unions-demand-to-end-shutdown-fails-to-sway-democrats.html
+
+**Draymond Green defends NBA, commissioner Adam Silver amid gambling probe**\
+`"Let's not try to act like Adam Silver has just built this league that does not care about people gambling," Green said.`\
+https://nytimes.com/athletic/6758134/2025/10/28/draymond-green-defends-nba-commissioner-adam-silver-gambling-probe/
+
+**In a joint appearance, Cuomo and Adams argue Mamdani isn’t a real Democrat.**\
+`By Jeffery C. Mays`\
+https://nytimes.com/live/2025/10/28/nyregion/nyc-mayor-election-news/in-a-joint-appearance-cuomo-and-adams-argue-mamdani-isnt-a-real-democrat
+
 **Hurricane Melissa Hit Jamaica With Devastating Force**\
 `Also, the U.S. attacked four more boats. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/10/28/briefing/hurricane-melissa-jamaica-misty-copeland.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6758181/2025/10/28/rb-leipzig-fan-dies/
 **Guard Is Convicted of Pursuing Jail Smugglers and Firing at Them**\
 `Leon Wilson, a veteran correctional officer at the Metropolitan Detention Center, chased the people from the lockup’s parking lot to the Brooklyn Bridge.`\
 https://nytimes.com/2025/10/28/nyregion/metropolitan-detention-center-guard-convicted.html
-
-**Trump’s Hand in Argentina**\
-`The president’s intervention on behalf of Argentina’s leader fits into a long history of American involvement in the elections of other countries.`\
-https://nytimes.com/2025/10/28/world/trump-argentina-election-influence.html
-
-**Scenes From the Caribbean as Hurricane Melissa Hits**\
-`The system made landfall in Jamaica on Tuesday afternoon, causing widespread flooding and destruction.`\
-https://nytimes.com/2025/10/28/weather/hurricane-melissa-caribbean-photos-video.html
-
-**Ravens 'excited' for Lamar Jackson's return: 'It's great having him back'**\
-`QB expresses support for offensive coordinator Todd Monken, says he was the vet responsible for removal of games from the locker room.`\
-https://nytimes.com/athletic/6758089/2025/10/28/ravens-lamar-jackson-return-injury-dolphins/
 
