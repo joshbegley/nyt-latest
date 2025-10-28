@@ -1,3 +1,7 @@
+**Elon Musk Challenges Wikipedia With His Own A.I. Encyclopedia**\
+`The billionaire launched his A.I.-powered version, Grokipedia, on Monday.`\
+https://nytimes.com/2025/10/27/technology/grokipedia-launch-elon-musk.html
+
 **White House Withdraws Nominee for Top State Department Job**\
 `Joel Rayburn had been questioned over ties to a former Trump administration official who admitted to defying the president’s push to withdraw troops from Syria during his first term.`\
 https://nytimes.com/2025/10/27/us/politics/trump-middle-east-state-department-nominee-rayburn.html

@@ -1,3 +1,11 @@
+**Longtime Astros pitching coach Bill Murphy leaving for Pirates: Sources**\
+`Under Murphy, over the past four seasons, Houston’s pitching staff boasted baseball’s lowest ERA and second-highest strikeouts per nine.`\
+https://nytimes.com/athletic/6755441/2025/10/27/astros-bill-murphy-pitching-coach-pirates-sources/
+
+**Michigan, Sherrone Moore won't appeal $30M fine in Stalions investigation**\
+`The head coach, university and Stalions initially planned to fight the NCAA's ruling after its investigation of impermissible scouting.`\
+https://nytimes.com/athletic/6755370/2025/10/27/michigan-sherrone-moore-connor-stalions-no-appeal/
+
 **Elon Musk Challenges Wikipedia With His Own A.I. Encyclopedia**\
 `The billionaire launched his A.I.-powered version, Grokipedia, on Monday.`\
 https://nytimes.com/2025/10/27/technology/grokipedia-launch-elon-musk.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6755399/2025/10/27/purdue-vs-michigan-stream-how-to
 **How to watch Mississippi State vs. Arkansas: Time, TV, streaming**\
 `Find out how to watch the Mississippi State Bulldogs play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6755396/2025/10/27/mississippi-state-vs-arkansas-stream-how-to-watch-nov-1/
-
-**How to watch Kentucky vs. Auburn: Time, TV, streaming**\
-`Find out how to watch the Kentucky Wildcats play the Auburn Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6755386/2025/10/27/kentucky-vs-auburn-stream-how-to-watch-nov-1/
-
-**How to watch Virginia vs. California: Time, TV, streaming**\
-`Find out how to watch the Virginia Cavaliers play the California Golden Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6755382/2025/10/27/virginia-vs-california-stream-how-to-watch-nov-1/
 

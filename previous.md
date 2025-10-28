@@ -1,3 +1,7 @@
+**Elon Musk Challenges Wikipedia With His Own A.I. Encyclopedia**\
+`The billionaire launched his A.I.-powered version, Grokipedia, on Monday.`\
+https://nytimes.com/2025/10/27/technology/grokipedia-launch-elon-musk.html
+
 **White House Withdraws Nominee for Top State Department Job**\
 `Joel Rayburn had been questioned over ties to a former Trump administration official who admitted to defying the president’s push to withdraw troops from Syria during his first term.`\
 https://nytimes.com/2025/10/27/us/politics/trump-middle-east-state-department-nominee-rayburn.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6755386/2025/10/27/kentucky-vs-auburn-stream-how-to
 **How to watch Virginia vs. California: Time, TV, streaming**\
 `Find out how to watch the Virginia Cavaliers play the California Golden Bears, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6755382/2025/10/27/virginia-vs-california-stream-how-to-watch-nov-1/
-
-**How to watch Georgia Tech vs. North Carolina State: Time, TV, streaming**\
-`Find out how to watch the Georgia Tech Yellow Jackets play the North Carolina State Wolfpack, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6755383/2025/10/27/georgia-tech-vs-north-carolina-state-stream-how-to-watch-nov-1/
 
