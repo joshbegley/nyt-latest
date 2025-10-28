@@ -1,3 +1,11 @@
+**Blue Jays' George Springer exits Game 3 after awkward swing in 7th inning**\
+`Entering Monday, Springer had been dealing with a series of injuries this postseason, including knee and wrist issues.`\
+https://nytimes.com/athletic/6755775/2025/10/27/dodgers-blue-jays-george-springer-game-3-exit/
+
+**Victor Wembanyama's absurd stat-stuffing continues as Spurs start 4-0**\
+`Wembanyama continues to put on a dazzling display as the Spurs enjoy first 4-0 start since the 2017-2018 season.`\
+https://nytimes.com/athletic/6755773/2025/10/27/victor-wembanyama-spurs-giannis-antetokounmpo-nba/
+
 **With Dexterity**\
 `Adrianne Baik’s Tuesday puzzle belongs in the Louvre.`\
 https://nytimes.com/2025/10/27/crosswords/daily-puzzle-2025-10-28.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/27/weather/new-york-jamaican-community.html
 **Fan injured in fall at Pens game, the third this year at a Pittsburgh venue**\
 `Accident occurs days after a worker fell at Steelers' Acrisure Stadium. Earlier this year, a fan fell from the stands at PNC Park.`\
 https://nytimes.com/athletic/6755517/2025/10/27/pittsburgh-penguins-fan-fall-arena-blues/
-
-**Ivory Coast President Secures 4th Term in Election Without Top Opponents**\
-`President Alassane Ouattara won 89.77 percent of the vote, but critics called the elections flawed after two main challengers were barred from running.`\
-https://nytimes.com/2025/10/27/world/africa/ivory-coast-president-election-ouattara-wins.html
-
-**Longtime Astros pitching coach Bill Murphy leaving for Pirates: Sources**\
-`Under Murphy, over the past four seasons, Houston’s pitching staff boasted baseball’s lowest ERA and second-highest strikeouts per nine.`\
-https://nytimes.com/athletic/6755441/2025/10/27/astros-bill-murphy-pitching-coach-pirates-sources/
 
