@@ -1,3 +1,7 @@
+**Hurricane Melissa Hit Jamaica With Devastating Force**\
+`Also, the U.S. attacked four more boats. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/10/28/briefing/hurricane-melissa-jamaica-misty-copeland.html
+
 **Following in the Footsteps of Charlie Kirk?**\
 `In a crowded field of would-be successors, Brilyn Hollyhand hopes to capture the minds of young conservatives across America.`\
 https://nytimes.com/2025/10/28/style/brilyn-hollyhand-charlie-kirk-young-republicans.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/28/weather/hurricane-melissa-caribbean-photos-video.
 **Ravens 'excited' for Lamar Jackson's return: 'It's great having him back'**\
 `QB expresses support for offensive coordinator Todd Monken, says he was the vet responsible for removal of games from the locker room.`\
 https://nytimes.com/athletic/6758089/2025/10/28/ravens-lamar-jackson-return-injury-dolphins/
-
-**Trump’s Pick for Ambassador to Kuwait on Path to Failure**\
-`Three Republican senators whose votes would be needed to advance Amer Ghalib’s nomination said they would oppose him, all but assuring it would stall.`\
-https://nytimes.com/2025/10/28/us/politics/trumps-pick-for-ambassador-to-kuwait-on-path-to-failure.html
 
