@@ -1,3 +1,7 @@
+**The New Orleans Drink That’s Back From the Dead**\
+`With an unforgettable name, the Obituary has been down but never out.`\
+https://nytimes.com/2025/10/28/dining/obituary-cocktail-new-orleans.html
+
 **Midair Fork Attack Forces International Flight to Divert to Boston**\
 `A 28-year-old man stabbed two teenagers during a flight from Chicago to Frankfurt, according to federal prosecutors.`\
 https://nytimes.com/2025/10/28/us/plane-fork-attack-boston.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6757538/2025/10/28/longest-sporting-events-blue-jay
 **Convicted child rapist Van de Velde denied visa for World Championships**\
 `Van de Velde had been selected to represent the Netherlands at the competition, as he did at last year's Olympic Games in Paris.`\
 https://nytimes.com/athletic/6757557/2025/10/28/van-de-velde-volleyball-australia-visa/
-
-**How to watch Red Wings vs. Blues: Time, TV, streaming**\
-`Find out how to watch the Detroit Red Wings play the St. Louis Blues, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6757807/2025/10/28/red-wings-vs-blues-stream-how-to-watch-oct-28/
 
