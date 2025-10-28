@@ -1,3 +1,11 @@
+**Explosions Seen Over Gaza Skyline After Netanyahu Orders New Strikes**\
+`There were explosions over the Gaza skyline after Prime Minister Benjamin Netanyahu of Israeli accused Hamas of violating the cease-fire and ordered the military to resume strikes in Gaza.`\
+https://nytimes.com/video/world/middleeast/100000010486900/israel-launches-new-airstrikes-gaza.html
+
+**Mikael Granlund's absence adds to Ducks' early injury woes**\
+`Granlund is expected to be re-evaluated by team doctors on Thursday after Anaheim returns home from its five-game road trip.`\
+https://nytimes.com/athletic/6757891/2025/10/28/mikael-granlund-ducks-injury/
+
 **Ask a Journalist: Crafting Personal Essays**\
 `Miya Lee, the editor of Modern Love projects, joins us for the month of November to discuss narrative writing. Post your comments and questions for her by Nov. 15.`\
 https://nytimes.com/2025/10/28/learning/lesson-plans/ask-a-journalist-crafting-personal-essays.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6757798/2025/10/28/hornets-vs-heat-stream-how-to-wa
 **How to watch Mammoth vs. Oilers: Time, TV, streaming**\
 `Find out how to watch the Utah Mammoth play the Edmonton Oilers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6757794/2025/10/28/mammoth-vs-oilers-stream-how-to-watch-oct-28/
-
-**How to watch Kings vs. Thunder: Time, TV, streaming**\
-`Find out how to watch the Sacramento Kings play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6757795/2025/10/28/kings-vs-thunder-stream-how-to-watch-oct-28/
-
-**How to watch Golden Knights vs. Hurricanes: Time, TV, streaming**\
-`Find out how to watch the Vegas Golden Knights play the Carolina Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6757791/2025/10/28/golden-knights-vs-hurricanes-stream-how-to-watch-oct-28/
 
