@@ -1,3 +1,23 @@
+**Scott Van Pelt a top candidate for ESPN’s 5 p.m. weekday show slot**\
+`ESPN is zeroing in on its plan for its high-profile early-evening programming window, reports The Athletic's Andrew Marchand.`\
+https://nytimes.com/athletic/6755369/2025/10/28/scott-van-pelt-espn-burke-magnus-sportscenter/
+
+**QB stock report: Daniel Jones is the latest second-act success story**\
+`“We do more as teams to screw up these guys than anything the quarterbacks do.”`\
+https://nytimes.com/athletic/6755490/2025/10/28/qb-stock-report-daniel-jones-rankings/
+
+**NFL Week 9 Power Rankings: The Colts run game, Micah Parsons and other scary things**\
+`The Week 9 power rankings arrive with a new No. 1, the Packers and Eagles on the rise and something scary about each team. Happy Halloween!`\
+https://nytimes.com/athletic/6753906/2025/10/28/nfl-power-rankings-week-9-colts-micah-parsons-halloween/
+
+**The New York Times International Edition in Print for Wednesday, Oct. 29, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/10/28/todays-new-york-times-international-edition
+
+**A Tidy Dutch Town Offers a Window Into a Messy Dutch Election**\
+`Two years after a shock win for the far-right Geert Wilders, the Netherlands is returning to the polls. His hometown shows the pain points of the country’s volatile politics.`\
+https://nytimes.com/2025/10/28/world/europe/netherlands-geert-wilders-election.html
+
 **Will Trump Meet Kim Jong-un Again? He’s Very Open to the Idea.**\
 `President Trump has said he hopes the North Korean leader will reach out so they can meet again. But there has been no public response from Mr. Kim.`\
 https://nytimes.com/2025/10/28/us/politics/trump-kim-jong-un-north-korea.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/10/28/world/europe/autobahn-speeding-father-son-essay.h
 **Sudan’s Military Withdraws From Key City in Darfur After Monthlong Battle**\
 `Sudan’s military chief, Gen. Abdel Fattah al-Burhan, confirmed that his forces had withdrawn from El Fasher, a decisive shift in control of the sprawling Darfur region of Sudan.`\
 https://nytimes.com/2025/10/28/world/africa/sudan-el-fasher-burhan-rsf.html
-
-**Amid a Record Party Investment, Two Candidates for Governor Join Forces**\
-`Rep. Mikie Sherrill of New Jersey and former Rep. Abigail Spanberger of Virginia will appear together on Wednesday, hoping to energize Democratic campaign volunteers, and voters.`\
-https://nytimes.com/2025/10/28/us/politics/amid-a-record-party-investment-two-candidates-for-governor-join-forces.html
-
-**The Israeli Right’s Plan to Carve Up Gaza**\
-`Amit Segal, a prominent Israeli right-wing commentator, envisions the future of the Gaza Strip.`\
-https://nytimes.com/2025/10/28/opinion/ezra-klein-podcast-amit-segal.html
-
-**More Food Reaches Gaza, but It’s Still Not Enough**\
-`Aid to the devastated territory has increased since the cease-fire took effect and prices have fallen. But many trucks going into Gaza are bringing food and commercial goods to sell that most people cannot afford.`\
-https://nytimes.com/2025/10/28/nyregion/more-food-reaches-gaza-but-its-still-not-enough.html
-
-**Back with the Patriots, Josh McDaniels is thriving again as an offensive coordinator**\
-`Back for his third stint with the Patriots, offensive coordinator McDaniels has played a big part in Drake Maye's breakout season.`\
-https://nytimes.com/athletic/6754537/2025/10/28/josh-mcdaniels-patriots-offensive-coordinator-drake-maye/
-
-**Josh Hawley: No American Should Go to Bed Hungry**\
-`Congress must prevent Americans from losing food assistance.`\
-https://nytimes.com/2025/10/28/opinion/josh-hawley-snap.html
 
