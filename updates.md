@@ -1,3 +1,7 @@
+**Radiation Fears Bring MAHA and MAGA Movements Into Conflict**\
+`The Trump administration is considering tighter safety rules on the weak radiations of cellphones even as it pursues looser regulations on the deadly emanations of the nuclear industry.`\
+https://nytimes.com/2025/10/28/science/radiation-nuclear-5g-maha.html
+
 **Patrick Mahomes Passes for 3 Touchdowns in Kansas City’s Win Over Washington**\
 `Patrick Mahomes, the Kansas City quarterback, led his team to three straight touchdown drives in the second half on the way to a 28-7 victory over the Washington Commanders.`\
 https://nytimes.com/video/the-athletic/100000010485498/patrick-mahomes-passes-for-3-touchdowns-in-kansas-citys-win-over-washington.html
