@@ -1,3 +1,15 @@
+**Should 2-6 Giants be buyers at deadline to help Jaxson Dart develop?**\
+`Dart is now set to forge into an unrelenting schedule with arguably the worst collection of playmakers in the NFL.`\
+https://nytimes.com/athletic/6755893/2025/10/28/giants-nfl-trade-deadline-preview/
+
+**Whatnot Raises $225 Million as Investors Bet on Livestream Shopping**\
+`The start-up is among the biggest names in a fast-growing part of e-commerce that is effectively a kind of QVC for the TikTok era.`\
+https://nytimes.com/2025/10/28/business/dealbook/whatnot-livestream-shopping-fundraise.html
+
+**Billionaire-Backed Super PACs Have Donated to Cuomo’s Mayoral Campaign**\
+`Super PACs supporting former Gov. Andrew Cuomo have raised more than $40 million from donors.`\
+https://nytimes.com/2025/10/28/nyregion/cuomo-nyc-mayor-super-pacs.html
+
 **On ‘Daily Show,’ Mamdani Makes Play for ‘New Yorkers Who Are Skeptical’**\
 `Zohran Mamdani was greeted warmly in an interview with Jon Stewart, who told him: “You are clearly right now in the front-running position. I can tell, because they’ve gone 9/11 on you.”`\
 https://nytimes.com/2025/10/28/nyregion/zohran-mamdani-daily-show-interview.html
