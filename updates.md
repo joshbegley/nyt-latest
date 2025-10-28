@@ -1,3 +1,7 @@
+**Dodgers-Blue Jays 18-inning marathon 'worth it' for sleep-deprived fans**\
+`The Dodgers and Blue Jays kept fans up way past their bedtimes Monday night — and delivered an October classic worth staying up for.`\
+https://nytimes.com/athletic/6756941/2025/10/28/dodgers-blue-jays-world-series-fans-sleep-deprived/
+
 **Fantasy football market share report: Sell high on Rice, McConkey reclaims alpha role**\
 `Michael Salfino looks at touches and targets to offer Week 9 advice, like avoiding the KC backfield and selling Rashee Rice at a premium.`\
 https://nytimes.com/athletic/6757207/2025/10/28/fantasy-football-market-share-report-week-8-usage/
