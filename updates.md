@@ -1,3 +1,15 @@
+**Four in serious condition after Flamengo fan bus overturned on highway**\
+`The supporters were travelling to Avellaneda for the second leg of Flamengo's Copa Libertadores semi-final against Racing Club.`\
+https://nytimes.com/athletic/6756613/2025/10/28/flamengo-fans-copa-libertadores/
+
+**Guardiola says no timeframe on Rodri's return but 'hopefully soon'**\
+`A call is still to be made on Erling Haaland's availability after he picked up a knock against Aston Villa on Sunday.`\
+https://nytimes.com/athletic/6756678/2025/10/28/rodri-haaland-manchester-city-injury-update/
+
+**WTA Tour hires Valerie Camillo, veteran of NBA, MLB and NHL, as chair to replace Steve Simon**\
+`Camillo will lead the tour at a time of transition across the tennis world.`\
+https://nytimes.com/athletic/6754584/2025/10/28/wta-tour-chair-valerie-camillo-steve-simon/
+
 **How the Eyes Age — and What to Do About It**\
 `With the most fragile skin on the face, the eye area has a way of recording every squint and smile. Preserving bounce and structure in that region has gotten easier, with help from a next-gen lifting eye cream by Estée Lauder.
 `\
