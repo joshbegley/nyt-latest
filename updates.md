@@ -1,3 +1,15 @@
+**Newsom to Redistricting Donors: Stop Giving Me Money**\
+`In an unusual show of confidence, Gov. Gavin Newsom said he raised enough cash more than a week before the California redistricting election.`\
+https://nytimes.com/2025/10/28/us/newsom-redistricting-donors-proposition-50.html
+
+**U.S. Accuses TikTok User of Threatening Pam Bondi**\
+`Federal prosecutors in Minnesota said a 29-year-old man posted an image that encouraged his TikTok followers to harm the U.S. Attorney General.`\
+https://nytimes.com/2025/10/28/us/minnesota-threat-pam-bondi-tiktok.html
+
+**With 'brotherhood' and depth, the Bulls continue to surprise a week into the season**\
+`Billy Donovan isn't sticking with set lineups and rotations. So far, it's working wonders in Chicago.`\
+https://nytimes.com/athletic/6756553/2025/10/28/bulls-hawks-nba-billy-donovan/
+
 **Fantasy football Week 9 drops: Sun sets on Golden, Gadsden eclipses Johnston**\
 `Gary Davenport suggests players who can be swept away from fantasy rosters ahead of Week 9.`\
 https://nytimes.com/athletic/6755957/2025/10/28/fantasy-football-week-9-drops-golden-johnston/

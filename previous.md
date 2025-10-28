@@ -1,3 +1,15 @@
+**Newsom to Redistricting Donors: Stop Giving Me Money**\
+`In an unusual show of confidence, Gov. Gavin Newsom said he raised enough cash more than a week before the California redistricting election.`\
+https://nytimes.com/2025/10/28/us/newsom-redistricting-donors-proposition-50.html
+
+**U.S. Accuses TikTok User of Threatening Pam Bondi**\
+`Federal prosecutors in Minnesota said a 29-year-old man posted an image that encouraged his TikTok followers to harm the U.S. Attorney General.`\
+https://nytimes.com/2025/10/28/us/minnesota-threat-pam-bondi-tiktok.html
+
+**With 'brotherhood' and depth, the Bulls continue to surprise a week into the season**\
+`Billy Donovan isn't sticking with set lineups and rotations. So far, it's working wonders in Chicago.`\
+https://nytimes.com/athletic/6756553/2025/10/28/bulls-hawks-nba-billy-donovan/
+
 **Fantasy football Week 9 drops: Sun sets on Golden, Gadsden eclipses Johnston**\
 `Gary Davenport suggests players who can be swept away from fantasy rosters ahead of Week 9.`\
 https://nytimes.com/athletic/6755957/2025/10/28/fantasy-football-week-9-drops-golden-johnston/
@@ -26,16 +38,4 @@ https://nytimes.com/2025/10/28/nyregion/early-voting-nyc-mayoral-election.html
 **NBA's early trend: pressure for 94 feet; plus Grizzlies' super-efficient rookie and more**\
 `The NBA is a copycat league, and the full-court pressure trend is the tactic to crib from other staffs. Plus, phantom shots, real blocks.`\
 https://nytimes.com/athletic/6753950/2025/10/28/nba-first-week-defense-rookies-trends/
-
-**Kenny Dalglish film review: An outstanding piece of work covering triumph, greatness and tragedy**\
-`Liverpool fan and Oscar-winner Asif Kapadia portrays an incredible playing and managerial career and the effects of Hillsborough`\
-https://nytimes.com/athletic/6751944/2025/10/28/sir-kenny-dalglish-film-review-liverpool/
-
-**Can a Start-Up Make Computer Chips Cheaper Than the Industry’s Giants?**\
-`Substrate, a San Francisco company, is trying to take on powerhouses like the Dutch company ASML.`\
-https://nytimes.com/2025/10/28/business/can-a-start-up-make-computer-chips-cheaper-than-the-industrys-giants.html
-
-**Touches of Blue for Dinner by the Sea**\
-`Dashing men’s wear stood out for its coordinated colors.`\
-https://nytimes.com/2025/10/28/style/street-style-look-mens-wear-coordinated-colors.html
 
