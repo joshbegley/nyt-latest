@@ -1,3 +1,11 @@
+**NCAA ordered to pay $18 million to former college football player**\
+`A former South Carolina State football player was awarded $18 million by a jury in a concussion case. `\
+https://nytimes.com/athletic/6754722/2025/10/28/ncaa-south-carolina-state-concussion-lawsuit/
+
+**LaTroy Hawkins eyes coaching for Twins, wants to blend human element with analytics**\
+`Hawkins is around the club for a week at a time once a month in his current setup. He thinks he can be more impactful in a larger role.`\
+https://nytimes.com/athletic/6758022/2025/10/28/latroy-hawkins-wants-to-coach-twins-mlb/
+
 **World Series bullpen check: Who is likely to be available after the 18-inning marathon?**\
 `Both teams emptied their bullpens during Monday night's 18-inning game. A look at how available each reliever is likely to be on Tuesday.`\
 https://nytimes.com/athletic/6758026/2025/10/28/world-series-bullpen-availability-dodgers-blue-jays/
