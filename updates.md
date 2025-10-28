@@ -1,3 +1,7 @@
+**With Adams out of the race, police unions are declining to endorse another candidate.**\
+`By Maria Cramer`\
+https://nytimes.com/live/2025/10/28/nyregion/nyc-mayor-election-news/nypd-unions-no-endorsements
+
 **How to watch Colts vs. Steelers: Time, TV, streaming**\
 `Find out how to watch the Indianapolis Colts play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6757728/2025/10/28/colts-vs-steelers-stream-how-to-watch-nov-2/
