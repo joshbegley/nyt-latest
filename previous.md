@@ -1,3 +1,19 @@
+**Blowout loss to Cavs exposes problem areas for Pistons**\
+`Detroit's offense remains too stagnant, as evidenced by a long dry spell against Cleveland at home.`\
+https://nytimes.com/athletic/6755998/2025/10/28/pistons-loss-offense-cavs/
+
+**Weird & Wild: World Series Game 3 was one for the ages, 6 hours and 39 minutes of madness**\
+`These are the games that live on forever. These are the home runs that never come down. These are the memories that don’t ever fade.`\
+https://nytimes.com/athletic/6756450/2025/10/28/world-series-game-3-dodgers-blue-jays-facts/
+
+**Curtis Sliwa is not about to give up the spotlight.**\
+`Mr. Sliwa, the Republican nominee for mayor of New York City, finds himself a major player in the race. He’s under heavy pressure to drop out.`\
+https://nytimes.com/live/2025/10/28/nyregion/nyc-mayor-election-news/curtis-sliwa-is-not-about-to-give-up-the-spotlight
+
+**Will Bill Gates’s ‘Strategic Pivot’ Shake Up Climate Policy?**\
+`The billionaire philanthropist said it was a mistake to focus so much on “near-term emissions goals,” a position that could generate serious debate.`\
+https://nytimes.com/2025/10/28/business/dealbook/bill-gates-climate-pivot.html
+
 **Are the Sabres turning a corner? What I think and what I know through 9 games**\
 `The Sabres have been a different team since the first week of the season. Here are some things to take note of in the early going.`\
 https://nytimes.com/athletic/6756421/2025/10/28/sabres-josh-doan-zach-benson/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/28/nyregion/cuomo-nyc-mayor-super-pacs.html
 **On ‘Daily Show,’ Mamdani Makes Play for ‘New Yorkers Who Are Skeptical’**\
 `Zohran Mamdani was greeted warmly in an interview with Jon Stewart, who told him: “You are clearly right now in the front-running position. I can tell, because they’ve gone 9/11 on you.”`\
 https://nytimes.com/2025/10/28/nyregion/zohran-mamdani-daily-show-interview.html
-
-**Here’s the latest.**\
-`By Nicholas Fandos`\
-https://nytimes.com/live/2025/10/28/nyregion/nyc-mayor-election-news/heres-the-latest
-
-**Live Updates: Unpredictable New York City Mayor’s Race Enters Final Week**\
-`Assemblyman Zohran Mamdani remains the front-runner and former Gov. Andrew M. Cuomo is trying to catch him, while Curtis Sliwa refuses to be forced from the race. More than 200,000 ballots have already been cast.`\
-https://nytimes.com/live/2025/10/28/nyregion/nyc-mayor-election-news
-
-**Ohio State midseason superlatives: Who are Ohio State's offensive and defensive MVPs?**\
-`At midseason, Ohio State has remained unscathed by chaos. Which players have stood out and surprised? `\
-https://nytimes.com/athletic/6755283/2025/10/28/ohio-state-julian-sayin-arvell-reese/
-
-**Breece Hall among 5 reasonable targets for Chargers ahead of NFL trade deadline**\
-`The Chargers could use help at running back and along the offensive and defensive lines. `\
-https://nytimes.com/athletic/6755167/2025/10/28/chargers-trade-deadline-targets-breece-hall/
 
