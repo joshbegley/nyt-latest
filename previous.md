@@ -1,3 +1,19 @@
+**Lily Allen Confronts the Tabloids by Becoming One**\
+`The British singer and songwriter’s new album, “West End Girl,” is a salacious autobiography. For pop fans hungry for real-life details, it’s proving irresistible.`\
+https://nytimes.com/2025/10/28/arts/music/lily-allen-west-end-girl.html
+
+**From globetrotting with LaMelo to diving deep on Giannis, how Mirin Fader sees storytelling**\
+`There has never been a more fascinating time for storytelling in the NBA, writes Mirin Fader.`\
+https://nytimes.com/athletic/6755324/2025/10/28/mirin-fader-nba-writer-the-athletic/
+
+**Jerry Jones: Cowboys haven't had 'anything close to a deal' for Maxx Crosby or Trey Hendrickson**\
+`Jerry Jones also addressed Trevon Diggs' latest knee injury and if the team rushed him back too soon. "No. Not at all," he said.`\
+https://nytimes.com/athletic/6756868/2025/10/28/cowboys-trade-deadline-maxx-crosby-trey-hendrickson/
+
+**A Broadway Tradition Is Fluttering Into History**\
+`Broadway plans to replace the cast-change slips that are stuffed into Playbills with QR codes. Some understudies and theater buffs will mourn their loss.`\
+https://nytimes.com/2025/10/28/theater/broadway-cast-change-slips-playbill.html
+
 **Our thoughts, top hits, and final grades for 2025-26 Topps Basketball cards**\
 `Our findings on Topps' first flagship basketball set since regaining the NBA license. `\
 https://nytimes.com/athletic/6755353/2025/10/28/topps-basketball-cards-hobby-box-nba-collectors/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6756892/2025/10/28/nhl-schedule-tv-how-to-watch-red
 **U.S. Military Kills 14 More People Accused of Smuggling Drugs on Boats**\
 `Defense Secretary Pete Hegseth said that the three strikes hit four boats in international waters and that there had been one survivor.`\
 https://nytimes.com/2025/10/28/us/politics/us-military-boat-strikes.html
-
-**Would Aroldis Chapman ever pitch for the Yankees again? 'Not even dead'**\
-`Chapman also said he would rather retire than play for the Yankees if he were traded there.`\
-https://nytimes.com/athletic/6756805/2025/10/28/aroldis-chapman-blasts-yankees-retire/
-
-**House Report Details Biden’s Decline, Claiming He Was Impaired as President**\
-`The Oversight Committee said aides to former President Joseph R. Biden Jr. covered up his deterioration and asserted that many of his decisions are “void.” The committee’s ranking Democrat called the report a “sham investigation.”`\
-https://nytimes.com/2025/10/28/us/politics/biden-decline-impairment-president-house-report.html
-
-**Japanese Executives Called On by Trump Pledge U.S. Investment**\
-`Toyota said it would sell some of its U.S.-made cars in Japan, one of a number of announcements by companies responding to U.S. pressure over trade imbalances.`\
-https://nytimes.com/2025/10/28/business/trump-japan-toyota.html
-
-**Some Jewish Mamdani Supporters Say Cuomo Is ‘Flattening’ Their Community**\
-`Volunteer canvassers for Zohran Mamdani gathered over the weekend in hopes of combatting Andrew M. Cuomo’s closing pitch to Jewish voters.`\
-https://nytimes.com/2025/10/28/nyregion/mamdani-jewish-supporters.html
 
