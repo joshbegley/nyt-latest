@@ -1,3 +1,11 @@
+**Anti-Vax for Dogs?**\
+`We explain how pet owners are expressing vaccine hesitancy.`\
+https://nytimes.com/2025/10/28/briefing/anti-vax-for-dogs.html
+
+**Kenny Dillingham's Arizona State roots run deep, but this coaching cycle could test that**\
+`The outside interest will rattle nerves in the desert, mostly for one reason: Loyalty in college football is difficult to trust these days.`\
+https://nytimes.com/athletic/6755872/2025/10/28/kenny-dillingham-arizona-state-sun-devils-lsu-head-coach/
+
 **The Pulse: A World Series instant classic**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6754011/2025/10/28/dodgers-blue-jays-game-3-the-pulse/
