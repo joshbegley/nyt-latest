@@ -1,3 +1,11 @@
+**After 0-3 start, Pelicans face an early-season crossroads moment**\
+`A mysterious Zion Williamson injury preceded an embarrassing loss to the Celtics. Could major changes be on the way?`\
+https://nytimes.com/athletic/6756336/2025/10/28/pelicans-willie-green-0-3-start/
+
+**Will Klein, the Dodgers’ last resort, is their latest World Series hero**\
+`“Will Klein,” Dodgers first baseman and walk-off hero Freddie Freeman said afterwards, admiringly. “MVP of this game.”`\
+https://nytimes.com/athletic/6756247/2025/10/28/will-klein-dodgers-world-series/
+
 **Bucks make waves in first 3 games, but new week brings anticipated challenges**\
 `AJ Green in Spain action, Ryan Rollins' adjustments and hard fouls on Giannis are among Milwaukee's early trends to watch.`\
 https://nytimes.com/athletic/6754522/2025/10/28/bucks-nba-giannis-aj-green-ryan-rollins/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6755887/2025/10/28/ravens-buyers-2025-trade-deadlin
 **Shohei Ohtani's historic, draining performance begs question before Game 4 start: What's next?**\
 `"I’m sure he’ll set another record or something," Mookie Betts said of Game 4, which was set to start 17 hours after Monday's marathon.`\
 https://nytimes.com/athletic/6756253/2025/10/28/shohei-ohtani-dodgers-game-3/
-
-**Inside the mind of Tulane's Jon Sumrall: Current logistics wiz, future SEC coach?**\
-`With a .791 winning percentage in three-plus seasons as a head coach, Sumrall has many assuming he'll be running a big-time program soon.`\
-https://nytimes.com/athletic/6751310/2025/10/28/jon-sumrall-tulane-sec-coaching-carousel/
-
-**New Giants manager Tony Vitello has a unique advantage as he makes a historic transition**\
-`"I think it's a great move," Pat Murphy said. "I think Buster Posey is trying to get it right and not just following normal patterns."`\
-https://nytimes.com/athletic/6755592/2025/10/28/sf-giants-manager-tony-vitello-has-historic-transition/
 

@@ -1,3 +1,11 @@
+**After 0-3 start, Pelicans face an early-season crossroads moment**\
+`A mysterious Zion Williamson injury preceded an embarrassing loss to the Celtics. Could major changes be on the way?`\
+https://nytimes.com/athletic/6756336/2025/10/28/pelicans-willie-green-0-3-start/
+
+**Will Klein, the Dodgers’ last resort, is their latest World Series hero**\
+`“Will Klein,” Dodgers first baseman and walk-off hero Freddie Freeman said afterwards, admiringly. “MVP of this game.”`\
+https://nytimes.com/athletic/6756247/2025/10/28/will-klein-dodgers-world-series/
+
 **Bucks make waves in first 3 games, but new week brings anticipated challenges**\
 `AJ Green in Spain action, Ryan Rollins' adjustments and hard fouls on Giannis are among Milwaukee's early trends to watch.`\
 https://nytimes.com/athletic/6754522/2025/10/28/bucks-nba-giannis-aj-green-ryan-rollins/
