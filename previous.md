@@ -1,3 +1,15 @@
+**WNBA CBA will not meet deadline, players' union legal counsel says**\
+`The deadline to reach a deal is Friday, but the league and union could agree to an extension, which would postpone the deadline.`\
+https://nytimes.com/athletic/6756761/2025/10/28/wnba-cba-deadline-agreement/
+
+**The Fierce Jockeying for House Seats That Don’t Exist (Yet)**\
+`Democrats in California are already starting campaigns and declaring their intentions for hypothetical seats that voters must first approve in the Nov. 4 election.`\
+https://nytimes.com/2025/10/28/us/politics/california-prop-50-house-congress.html
+
+**MacKenzie Scott Backs Disaster Recovery in Marginalized Communities**\
+`The billionaire’s $60 million donation to the Center for Disaster Philanthropy counters cuts to federal emergency assistance and diversity programs.`\
+https://nytimes.com/2025/10/28/climate/mackenzie-scott-disaster-gift.html
+
 **Scolded by Trump, Canada’s Prime Minister Turns to Asia for Trade**\
 `Mark Carney is pitching Canada as a predictable and responsible alternative to the United States.`\
 https://nytimes.com/2025/10/28/world/canada/carney-asia-trade-trump.html
@@ -19,22 +31,10 @@ https://nytimes.com/2025/10/28/us/newsom-redistricting-donors-proposition-50.htm
 https://nytimes.com/2025/10/28/us/minnesota-threat-pam-bondi-tiktok.html
 
 **With 'brotherhood' and depth, the Bulls continue to surprise a week into the season**\
-`Billy Donovan isn't sticking with set lineups and rotations. So far, it's working wonders in Chicago.`\
+`Bulls coach Billy Donovan isn't sticking with set lineups and rotations. So far, it's working wonders in Chicago.`\
 https://nytimes.com/athletic/6756553/2025/10/28/bulls-hawks-nba-billy-donovan/
 
 **Fantasy football Week 9 drops: Sun sets on Golden, Gadsden eclipses Johnston**\
 `Gary Davenport suggests players who can be swept away from fantasy rosters ahead of Week 9.`\
 https://nytimes.com/athletic/6755957/2025/10/28/fantasy-football-week-9-drops-golden-johnston/
-
-**Four in serious condition after Flamengo fan bus overturned on highway**\
-`The supporters were travelling to Avellaneda for the second leg of Flamengo's Copa Libertadores semi-final against Racing Club.`\
-https://nytimes.com/athletic/6756613/2025/10/28/flamengo-fans-copa-libertadores/
-
-**Guardiola says no timeframe on Rodri's return but 'hopefully soon'**\
-`A call is still to be made on Erling Haaland's availability after he picked up a knock against Aston Villa on Sunday.`\
-https://nytimes.com/athletic/6756678/2025/10/28/rodri-haaland-manchester-city-injury-update/
-
-**WTA Tour hires Valerie Camillo, veteran of NBA, MLB and NHL, as chair to replace Steve Simon**\
-`Camillo will lead the tour at a time of transition across the tennis world.`\
-https://nytimes.com/athletic/6754584/2025/10/28/wta-tour-chair-valerie-camillo-steve-simon/
 

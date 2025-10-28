@@ -1,3 +1,19 @@
+**WNBA CBA will not meet deadline, players' union legal counsel says**\
+`The deadline to reach a deal is Friday, but the league and union could agree to an extension, which would postpone the deadline.`\
+https://nytimes.com/athletic/6756761/2025/10/28/wnba-cba-deadline-agreement/
+
+**The Fierce Jockeying for House Seats That Don’t Exist (Yet)**\
+`Democrats in California are already starting campaigns and declaring their intentions for hypothetical seats that voters must first approve in the Nov. 4 election.`\
+https://nytimes.com/2025/10/28/us/politics/california-prop-50-house-congress.html
+
+**MacKenzie Scott Backs Disaster Recovery in Marginalized Communities**\
+`The billionaire’s $60 million donation to the Center for Disaster Philanthropy counters cuts to federal emergency assistance and diversity programs.`\
+https://nytimes.com/2025/10/28/climate/mackenzie-scott-disaster-gift.html
+
+**With 'brotherhood' and depth, the Bulls continue to surprise a week into the season**\
+`Bulls coach Billy Donovan isn't sticking with set lineups and rotations. So far, it's working wonders in Chicago.`\
+https://nytimes.com/athletic/6756553/2025/10/28/bulls-hawks-nba-billy-donovan/
+
 **Scolded by Trump, Canada’s Prime Minister Turns to Asia for Trade**\
 `Mark Carney is pitching Canada as a predictable and responsible alternative to the United States.`\
 https://nytimes.com/2025/10/28/world/canada/carney-asia-trade-trump.html
