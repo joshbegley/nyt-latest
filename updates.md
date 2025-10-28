@@ -1,3 +1,15 @@
+**How to watch Chiefs vs. Bills: Time, TV, streaming**\
+`Find out how to watch the Kansas City Chiefs play the Buffalo Bills, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6758468/2025/10/28/chiefs-vs-bills-stream-how-to-watch-nov-2/
+
+**How to watch Saints vs. Rams: Time, TV, streaming**\
+`Find out how to watch the New Orleans Saints play the Los Angeles Rams, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6758451/2025/10/28/saints-vs-rams-stream-how-to-watch-nov-2/
+
+**How to watch Jaguars vs. Raiders: Time, TV, streaming**\
+`Find out how to watch the Jacksonville Jaguars play the Las Vegas Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6758446/2025/10/28/jaguars-vs-raiders-stream-how-to-watch-nov-2/
+
 **Jamaica’s health care system has emerged as one of Hurricane Melissa’s victims.**\
 `By Emiliano Rodríguez Mega`\
 https://nytimes.com/live/2025/10/28/weather/hurricane-melissa-jamaica-landfall/hurricane-melissa-aid
