@@ -1,3 +1,15 @@
+**Bucks make waves in first 3 games, but new week brings anticipated challenges**\
+`AJ Green in Spain action, Ryan Rollins' adjustments and hard fouls on Giannis are among Milwaukee's early trends to watch.`\
+https://nytimes.com/athletic/6754522/2025/10/28/bucks-nba-giannis-aj-green-ryan-rollins/
+
+**Prunella Scales, Sybil on ‘Fawlty Towers,’ Dies at 93**\
+`Best known “for playing unfortunate wives,” she had a decades-long career in the theater and on television.`\
+https://nytimes.com/2025/10/28/obituaries/prunella-scales-dead.html
+
+**Rosenthal: After 18 inning epic, what will the Dodgers and Blue Jays have left for Game 4?**\
+`The teams combined for 609 pitches and six hours and 39 minutes of World Series insanity in Monday's Game 3. `\
+https://nytimes.com/athletic/6756409/2025/10/28/world-series-game-4-dodgers-blue-jays/
+
 **Wemby for MVP, the Lakers' Austin Reaves dilemma and more early NBA observations**\
 `The Spurs' young big man is doing things we've never seen. Plus: notes on the Sixers, Hawks, Warriors and more.`\
 https://nytimes.com/athletic/6756143/2025/10/28/wembanyama-mvp-lakers-austin-reaves-nba/

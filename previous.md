@@ -1,3 +1,15 @@
+**Bucks make waves in first 3 games, but new week brings anticipated challenges**\
+`AJ Green in Spain action, Ryan Rollins' adjustments and hard fouls on Giannis are among Milwaukee's early trends to watch.`\
+https://nytimes.com/athletic/6754522/2025/10/28/bucks-nba-giannis-aj-green-ryan-rollins/
+
+**Prunella Scales, Sybil on ‘Fawlty Towers,’ Dies at 93**\
+`Best known “for playing unfortunate wives,” she had a decades-long career in the theater and on television.`\
+https://nytimes.com/2025/10/28/obituaries/prunella-scales-dead.html
+
+**Rosenthal: After 18 inning epic, what will the Dodgers and Blue Jays have left for Game 4?**\
+`The teams combined for 609 pitches and six hours and 39 minutes of World Series insanity in Monday's Game 3. `\
+https://nytimes.com/athletic/6756409/2025/10/28/world-series-game-4-dodgers-blue-jays/
+
 **Wemby for MVP, the Lakers' Austin Reaves dilemma and more early NBA observations**\
 `The Spurs' young big man is doing things we've never seen. Plus: notes on the Sixers, Hawks, Warriors and more.`\
 https://nytimes.com/athletic/6756143/2025/10/28/wembanyama-mvp-lakers-austin-reaves-nba/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6751310/2025/10/28/jon-sumrall-tulane-sec-coaching-
 **New Giants manager Tony Vitello has a unique advantage as he makes a historic transition**\
 `"I think it's a great move," Pat Murphy said. "I think Buster Posey is trying to get it right and not just following normal patterns."`\
 https://nytimes.com/athletic/6755592/2025/10/28/sf-giants-manager-tony-vitello-has-historic-transition/
-
-**When evaluating NFL Draft QB prospects, how much does starting experience matter?**\
-`The 2026 NFL Draft quarterback class could be light on starting experience. Will that make it more difficult to evaluate those prospects?`\
-https://nytimes.com/athletic/6747595/2025/10/28/nfl-draft-2026-quarterbacks-experience-moore-simpson/
-
-**Wild insider: Lack of physicality is costing the defense — 'We have to be harder'**\
-`Through Sunday, the Wild defense ranked 24th in the NHL with 48 hits in 10 games — 49 behind the league-leading Vegas Golden Knights.`\
-https://nytimes.com/athletic/6754676/2025/10/28/wild-defense-physicality-daemon-hunt/
-
-**Kansas City Current and San Diego Wave join World Sevens Football tournament in U.S.**\
-`The NWSL powerhouses will represent the U.S. in the inaugural World Sevens Football (W7F) Americas tournament in December.`\
-https://nytimes.com/athletic/6754887/2025/10/28/world-sevens-football-teams/
 
