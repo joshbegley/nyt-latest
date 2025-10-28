@@ -1,3 +1,11 @@
+**Blue Jays' George Springer exits Game 3 after awkward swing in 7th inning**\
+`Entering Monday, Springer had been dealing with a series of injuries this postseason, including knee and wrist issues.`\
+https://nytimes.com/athletic/6755775/2025/10/27/dodgers-blue-jays-george-springer-game-3-exit/
+
+**Victor Wembanyama's absurd stat-stuffing continues as Spurs start 4-0**\
+`Wembanyama continues to put on a dazzling display as the Spurs enjoy first 4-0 start since the 2017-2018 season.`\
+https://nytimes.com/athletic/6755773/2025/10/27/victor-wembanyama-spurs-giannis-antetokounmpo-nba/
+
 **Fan injured in fall at Pens game, the third this year at a Pittsburgh venue**\
 `Accident occurs days after a worker fell at Steelers' Acrisure Stadium. Earlier this year, a fan fell from the stands at PNC Park.`\
 https://nytimes.com/athletic/6755517/2025/10/27/pittsburgh-penguins-fan-fall-arena-blues/
