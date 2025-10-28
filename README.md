@@ -1,3 +1,7 @@
+**Arsenal injuries: Martinelli and Saliba to miss Carabao Cup tie against Brighton**\
+`Declan Rice, Riccardo Calafiori and Bukayo Saka are all available for the game at the Emirates Stadium.`\
+https://nytimes.com/athletic/6756439/2025/10/28/arsenal-injuries-martinelli-saliba-brighton/
+
 **I rode shotgun with an F1 driver at 180mph. One track wants more fans to do the same**\
 `F1's invite-only hot lap program serves VIPs. COTA's answer? A theme park where anyone can ride the track`\
 https://nytimes.com/athletic/6755468/2025/10/28/f1-hot-laps-pirelli-cota/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/28/theater/broadway-cast-change-slips-playbill.html
 **Our thoughts, top hits, and final grades for 2025-26 Topps Basketball cards**\
 `Our findings on Topps' first flagship basketball set since regaining the NBA license. `\
 https://nytimes.com/athletic/6755353/2025/10/28/topps-basketball-cards-hobby-box-nba-collectors/
-
-**A Quick Chili That’s So Good It’s Scary**\
-`Genevieve Ko’s new turkey chili recipe is packed with protein and fiber and comes together in under half an hour.`\
-https://nytimes.com/2025/10/28/dining/a-quick-chili-thats-so-good-its-scary.html
 
