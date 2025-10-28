@@ -1,3 +1,7 @@
+**Hurricane Melissa Makes Landfall**\
+`Hurricane Melissa, a Category 5 storm, made landfall near New Hope, Jamaica, on Tuesday. With wind speeds of 185 miles per hour and sustained winds stronger than those of Hurricane Katrina, Melissa is now the fifth-strongest hurricane on record in the Atlantic Ocean.`\
+https://nytimes.com/video/weather/100000010486530/hurricane-melissa-makes-landfall.html
+
 **RB Leipzig supporter dies after medical emergency at DFB-Pokal game**\
 `The incident occurred while the fan was entering the stadium. A minute's silence was held at the start of the second half.`\
 https://nytimes.com/athletic/6758181/2025/10/28/rb-leipzig-fan-dies/
@@ -15,7 +19,7 @@ https://nytimes.com/2025/10/28/world/trump-argentina-election-influence.html
 https://nytimes.com/2025/10/28/weather/hurricane-melissa-caribbean-photos-video.html
 
 **Ravens 'excited' for Lamar Jackson's return: 'It's great having him back'**\
-`The Ravens understand that their best chance at going on a run and re-entering the playoff mix comes with their star quarterback playing.`\
+`QB expresses support for offensive coordinator Todd Monken, says he was the vet responsible for removal of games from the locker room.`\
 https://nytimes.com/athletic/6758089/2025/10/28/ravens-lamar-jackson-return-injury-dolphins/
 
 **Trump’s Pick for Ambassador to Kuwait on Path to Failure**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/28/t-magazine/joes-pub.html
 **At Least 64 Dead in Rio de Janeiro as Authorities Crack Down on Drug Gangs**\
 `The authorities said the deadliest operation in Rio’s history had killed four police officers and at least 60 other people. It was an attack on “narco-terrorists,” the state governor said.`\
 https://nytimes.com/2025/10/28/world/brazil-rio-de-janeiro-police-drug-raids-deaths.html
-
-**Virginia Attorney General Election 2025: Latest Polls**\
-`Track the latest polls about Democrat Jay Jones and Republican incumbent Jason Miyares in the Virginia attorney general election.`\
-https://nytimes.com/interactive/polls/virginia-attorney-general-election-polls-2025.html
 
