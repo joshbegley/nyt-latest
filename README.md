@@ -1,3 +1,15 @@
+**Trump’s Pick for Ambassador to Kuwait on Path to Failure**\
+`Three Republican senators whose votes would be needed to advance Amer Ghalib’s nomination said they would oppose him, all but assuring it would stall.`\
+https://nytimes.com/2025/10/28/us/politics/trumps-pick-for-ambassador-to-kuwait-on-path-to-failure.html
+
+**George Springer's status to play is 'hour to hour' ahead of World Series Game 4**\
+`Springer left Game 3 in the seventh inning clutching his right side after a swing. His status remains murky hours before first pitch.`\
+https://nytimes.com/athletic/6757808/2025/10/28/george-springer-blue-jays-health-world-series/
+
+**Anyone Who’s Anyone Got Their Start at Joe’s Pub**\
+`Despite its small stage, the cabaret space inside New York’s Public Theater building has made an outsize imprint on the city’s art scene.`\
+https://nytimes.com/2025/10/28/t-magazine/joes-pub.html
+
 **At Least 64 Dead in Rio de Janeiro as Authorities Crack Down on Drug Gangs**\
 `The authorities said the deadliest operation in Rio’s history had killed four police officers and at least 60 other people. It was an attack on “narco-terrorists,” the state governor said.`\
 https://nytimes.com/2025/10/28/world/brazil-rio-de-janeiro-police-drug-raids-deaths.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6754722/2025/10/28/ncaa-south-carolina-state-concus
 **LaTroy Hawkins eyes coaching for Twins, wants to blend human element with analytics**\
 `Hawkins is around the club for a week at a time once a month in his current setup. He thinks he can be more impactful in a larger role.`\
 https://nytimes.com/athletic/6758022/2025/10/28/latroy-hawkins-wants-to-coach-twins-mlb/
-
-**World Series bullpen check: Who is likely to be available after the 18-inning marathon?**\
-`Both teams emptied their bullpens during Monday night's 18-inning game. A look at how available each reliever is likely to be on Tuesday.`\
-https://nytimes.com/athletic/6758026/2025/10/28/world-series-bullpen-availability-dodgers-blue-jays/
-
-**A Timeline of Trump’s Strikes on Vessels He Says Are Smuggling Drugs**\
-`President Trump’s military campaign has killed at least 57 people in the waters off Central and South America. The strikes have been widely criticized as illegal.`\
-https://nytimes.com/article/trump-drug-boat-strikes-timeline.html
-
-**F.C.C. Changes Course on the Price of Prisoners’ Phone Calls**\
-`Brendan Carr, the F.C.C. chairman, cited security concerns in rolling back most of the lower costs he voted for last year.`\
-https://nytimes.com/2025/10/28/upshot/prisoners-phone-calls-prices.html
 
