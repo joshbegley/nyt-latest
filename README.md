@@ -14,7 +14,7 @@ https://nytimes.com/2025/10/28/science/archaeology-milan-crypt.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/10/28/crosswords/spelling-bee-forum.html
 
-**Blue Jays-Dodgers Game 3 takeaways: Freddie Freeman lifts L.A. in 18-inning classic**\
+**Blue Jays-Dodgers Game 3 takeaways: Freddie Freeman's HR ends 18-inning classic**\
 `The longest game in World Series history was a treat of October theater. In the end, the Dodgers got the win and a 2-1 series lead.`\
 https://nytimes.com/athletic/6755855/2025/10/28/dodgers-blue-jays-world-series-game-3-results-takeaways-mlb/
 
