@@ -1,3 +1,7 @@
+**Word of the Day: repertory**\
+`This word has appeared in 154 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/28/learning/word-of-the-day-repertory.html
+
 **This Liverpool XI can stop the rot at Anfield**\
 `Radical changes are needed to pull the champions out of their slump`\
 https://nytimes.com/athletic/6754096/2025/10/28/liverpool-team-premier-league-selection/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/28/world/americas/jamaica-hurricane-melissa-resorts.
 **Can anyone catch Arsenal?**\
 `The Athletic's writers look at how Mikel Arteta's side might get chased down by their Premier League rivals - and why they won't `\
 https://nytimes.com/athletic/6754322/2025/10/28/can-anyone-catch-arsenal/
-
-**Row Z: Tickets to watch Chelsea... sort of, plus Slot's back for more and Man City's kit crime**\
-`If you want to watch Chelsea with a club legend, you now can, while there are yet more explanations for Liverpool's troubles...`\
-https://nytimes.com/athletic/6753436/2025/10/28/row-z-chelsea-arne-slot/
 
