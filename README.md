@@ -1,3 +1,15 @@
+**Bundesliga Briefing: Lennart Karl's name is no longer being whispered at Bayern**\
+`The teenager followed up his midweek Champions League goal with an incredible strike in the Bundesliga at the weekend`\
+https://nytimes.com/athletic/6753489/2025/10/28/bundesliga-briefing-lennart-karl-bayern-munich/
+
+**The New York Times in Print for Tuesday, Oct. 28, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/28/todays-new-york-times
+
+**Don’t Count on Xi and Trump to Steady the World**\
+`The meeting in South Korea will be between two powerful men who govern by impulse, not institutions — and that’s dangerous.`\
+https://nytimes.com/2025/10/28/opinion/us-china-strongmen.html
+
 **Forecasters Abort Flight Into the Eye of Hurricane Melissa**\
 `A hurricane hunter aircraft, tasked with collecting weather data for NOAA, aborted its mission into the eye of Hurricane Melissa after encountering extreme turbulence.`\
 https://nytimes.com/video/world/americas/100000010485197/hurricane-hunter-melissa.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6753559/2025/10/28/football-manager-2026-richest-te
 **Beyond Trade War, China’s Xi Looks to Press Trump on Taiwan**\
 `China’s leader wants to weaken American support for Taiwan. But first he will want clarity about President Trump’s stance toward the island.`\
 https://nytimes.com/2025/10/28/world/asia/trump-tariffs-china-taiwan.html
-
-**Bill Gates Says Climate Change ‘Will Not Lead to Humanity’s Demise’**\
-`In a memo, the Microsoft co-founder warned against a “doomsday outlook” and appears to have shifted some of his views about climate change.`\
-https://nytimes.com/2025/10/28/climate/bill-gates-climate-change-humanity.html
-
-**Connections: Sports Edition Coach: Hints for Oct. 28, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6754313/2025/10/28/connections-sports-edition-hints-for-oct-28-2025/
-
-**Fantasy football waiver wire Week 9: Tyrone Tracy, Bam Knight, streamers**\
-`Jake Ciely surfaces some viable fantasy football pickups for Week 9, but they all take a back seat to Tyrone Tracy.`\
-https://nytimes.com/athletic/6755266/2025/10/28/fantasy-football-waiver-wire-week-9-tyrone-tracy-bam-knight-streamers/
 
