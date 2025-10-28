@@ -1,3 +1,7 @@
+**Hurricane Hunters Found Something in Melissa’s Eye: Trapped Birds**\
+`The news “underscores the profound ecological toll that Hurricane Melissa will have on Jamaica’s biodiversity,” said one expert on the island.`\
+https://nytimes.com/2025/10/27/weather/hurricane-melissa-hunters-birds.html
+
 **Jamaicans in New York ‘Pray, Pray, Pray’ as Melissa Approaches Their Island Nation**\
 `Hurricane Melissa was on a direct path to strike Jamaica on Tuesday morning.`\
 https://nytimes.com/2025/10/27/weather/new-york-jamaican-community.html

@@ -1,3 +1,7 @@
+**Hurricane Hunters Found Something in Melissa’s Eye: Trapped Birds**\
+`The news “underscores the profound ecological toll that Hurricane Melissa will have on Jamaica’s biodiversity,” said one expert on the island.`\
+https://nytimes.com/2025/10/27/weather/hurricane-melissa-hunters-birds.html
+
 **Jamaicans in New York ‘Pray, Pray, Pray’ as Melissa Approaches Their Island Nation**\
 `Hurricane Melissa was on a direct path to strike Jamaica on Tuesday morning.`\
 https://nytimes.com/2025/10/27/weather/new-york-jamaican-community.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/27/weather/hurricane-hunter-melissa.html
 **How to watch Arizona vs. Colorado: Time, TV, streaming**\
 `Find out how to watch the Arizona Wildcats play the Colorado Buffaloes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6755413/2025/10/27/how-to-watch-arizona-vs-colorado-tv-channel-and-streaming-options-for-november-1/
-
-**How to watch Oklahoma vs. Tennessee: Time, TV, streaming**\
-`Find out how to watch the Oklahoma Sooners play the Tennessee Volunteers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6755414/2025/10/27/how-to-watch-no-18-oklahoma-vs-no-14-tennessee-tv-channel-and-streaming-options-for-november-1/
 
