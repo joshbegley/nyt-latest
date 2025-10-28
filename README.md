@@ -1,3 +1,15 @@
+**How to watch Chiefs vs. Bills: Time, TV, streaming**\
+`Find out how to watch the Kansas City Chiefs play the Buffalo Bills, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6758468/2025/10/28/chiefs-vs-bills-stream-how-to-watch-nov-2/
+
+**How to watch Saints vs. Rams: Time, TV, streaming**\
+`Find out how to watch the New Orleans Saints play the Los Angeles Rams, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6758451/2025/10/28/saints-vs-rams-stream-how-to-watch-nov-2/
+
+**How to watch Jaguars vs. Raiders: Time, TV, streaming**\
+`Find out how to watch the Jacksonville Jaguars play the Las Vegas Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6758446/2025/10/28/jaguars-vs-raiders-stream-how-to-watch-nov-2/
+
 **Jamaica’s health care system has emerged as one of Hurricane Melissa’s victims.**\
 `By Emiliano Rodríguez Mega`\
 https://nytimes.com/live/2025/10/28/weather/hurricane-melissa-jamaica-landfall/hurricane-melissa-aid
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/28/t-magazine/mumbai-architecture-buildings-guide.ht
 **Agyemang injury during England's win over Australia 'looks bad'**\
 `The 19-year-old Kopa Trophy nominee came on for Alessia Russo but went down after challenging for the ball in the second half.`\
 https://nytimes.com/athletic/6758163/2025/10/28/agyemang-england-injury-stretcher/
-
-**De Blasio Says U.K. Newspaper Fabricated His Quotes Questioning Mamdani**\
-`The former New York City mayor said comments attributed to him about Zohran Mamdani, reported in The Times of London on Tuesday, were fabricated.`\
-https://nytimes.com/2025/10/28/nyregion/bill-de-blasio-mamdani-agenda.html
-
-**Federal Union’s Demand to End Shutdown Fails to Sway Democrats**\
-`Senate Republicans cited a call by the American Federation of Government Employees to pass a funding extension in an attempt to pressure Democrats to relent. The effort fell flat.`\
-https://nytimes.com/2025/10/28/us/politics/afge-federal-workers-union-shutdown.html
-
-**Draymond Green defends NBA, commissioner Adam Silver amid gambling probe**\
-`"Let's not try to act like Adam Silver has just built this league that does not care about people gambling," Green said.`\
-https://nytimes.com/athletic/6758134/2025/10/28/draymond-green-defends-nba-commissioner-adam-silver-gambling-probe/
 
