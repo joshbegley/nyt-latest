@@ -1,3 +1,7 @@
+**A Broadway Tradition Is Fluttering Into History**\
+`Broadway plans to replace the cast-change slips that are stuffed into Playbills with QR codes. Some understudies and theater buffs will mourn their loss.`\
+https://nytimes.com/2025/10/28/theater/broadway-cast-change-slips-playbill.html
+
 **Our thoughts, top hits, and final grades for 2025-26 Topps Basketball cards**\
 `Our findings on Topps' first flagship basketball set since regaining the NBA license. `\
 https://nytimes.com/athletic/6755353/2025/10/28/topps-basketball-cards-hobby-box-nba-collectors/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/28/us/politics/biden-decline-impairment-president-ho
 **Japanese Executives Called On by Trump Pledge U.S. Investment**\
 `Toyota said it would sell some of its U.S.-made cars in Japan, one of a number of announcements by companies responding to U.S. pressure over trade imbalances.`\
 https://nytimes.com/2025/10/28/business/trump-japan-toyota.html
-
-**Some Jewish Mamdani Supporters Say Cuomo Is ‘Flattening’ Their Community**\
-`Volunteer canvassers for Zohran Mamdani gathered over the weekend in hopes of combatting Andrew M. Cuomo’s closing pitch to Jewish voters.`\
-https://nytimes.com/2025/10/28/nyregion/mamdani-jewish-supporters.html
 

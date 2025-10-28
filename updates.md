@@ -1,3 +1,11 @@
+**Our thoughts, top hits, and final grades for 2025-26 Topps Basketball cards**\
+`Our findings on Topps' first flagship basketball set since regaining the NBA license. `\
+https://nytimes.com/athletic/6755353/2025/10/28/topps-basketball-cards-hobby-box-nba-collectors/
+
+**A Quick Chili That’s So Good It’s Scary**\
+`Genevieve Ko’s new turkey chili recipe is packed with protein and fiber and comes together in under half an hour.`\
+https://nytimes.com/2025/10/28/dining/a-quick-chili-thats-so-good-its-scary.html
+
 **UPS Says It Has Cut 48,000 Workers This Year**\
 `The delivery company said about 70 percent of the layoffs affected drivers and warehouse workers.`\
 https://nytimes.com/2025/10/28/business/ups-layoffs-48000-workers-this-year.html

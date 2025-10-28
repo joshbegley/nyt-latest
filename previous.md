@@ -1,3 +1,11 @@
+**Our thoughts, top hits, and final grades for 2025-26 Topps Basketball cards**\
+`Our findings on Topps' first flagship basketball set since regaining the NBA license. `\
+https://nytimes.com/athletic/6755353/2025/10/28/topps-basketball-cards-hobby-box-nba-collectors/
+
+**A Quick Chili That’s So Good It’s Scary**\
+`Genevieve Ko’s new turkey chili recipe is packed with protein and fiber and comes together in under half an hour.`\
+https://nytimes.com/2025/10/28/dining/a-quick-chili-thats-so-good-its-scary.html
+
 **UPS Says It Has Cut 48,000 Workers This Year**\
 `The delivery company said about 70 percent of the layoffs affected drivers and warehouse workers.`\
 https://nytimes.com/2025/10/28/business/ups-layoffs-48000-workers-this-year.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/28/business/trump-japan-toyota.html
 **Some Jewish Mamdani Supporters Say Cuomo Is ‘Flattening’ Their Community**\
 `Volunteer canvassers for Zohran Mamdani gathered over the weekend in hopes of combatting Andrew M. Cuomo’s closing pitch to Jewish voters.`\
 https://nytimes.com/2025/10/28/nyregion/mamdani-jewish-supporters.html
-
-**The Bounce: Surprise unbeaten teams. Plus, Beef Court rules on Ant vs. SGA shoe-down**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6756861/2025/10/28/unbeaten-teams-nba-anthony-edwards-sga-the-bounce/
-
-**Melissa’s Winds Are Stronger Than Hurricane Katrina’s Were in 2005**\
-`Hours from landfall, Hurricane Melissa is also slow moving like Hurricane Harvey in 2017, which could mean catastrophic flooding.`\
-https://nytimes.com/2025/10/28/weather/hurricane-melissa-winds-strength-katrina.html
 
