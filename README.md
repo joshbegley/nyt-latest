@@ -1,3 +1,15 @@
+**Should 2-6 Giants be buyers at deadline to help Jaxson Dart develop?**\
+`Dart is now set to forge into an unrelenting schedule with arguably the worst collection of playmakers in the NFL.`\
+https://nytimes.com/athletic/6755893/2025/10/28/giants-nfl-trade-deadline-preview/
+
+**Whatnot Raises $225 Million as Investors Bet on Livestream Shopping**\
+`The start-up is among the biggest names in a fast-growing part of e-commerce that is effectively a kind of QVC for the TikTok era.`\
+https://nytimes.com/2025/10/28/business/dealbook/whatnot-livestream-shopping-fundraise.html
+
+**Billionaire-Backed Super PACs Have Donated to Cuomo’s Mayoral Campaign**\
+`Super PACs supporting former Gov. Andrew Cuomo have raised more than $40 million from donors.`\
+https://nytimes.com/2025/10/28/nyregion/cuomo-nyc-mayor-super-pacs.html
+
 **On ‘Daily Show,’ Mamdani Makes Play for ‘New Yorkers Who Are Skeptical’**\
 `Zohran Mamdani was greeted warmly in an interview with Jon Stewart, who told him: “You are clearly right now in the front-running position. I can tell, because they’ve gone 9/11 on you.”`\
 https://nytimes.com/2025/10/28/nyregion/zohran-mamdani-daily-show-interview.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6751044/2025/10/28/saudi-arabia-qatar-world-cup-con
 **Lowetide: Is Oilers winger Vasily Podkolzin finding another gear?**\
 `There are signs that Podkolzin is going to be a more substantial scorer for the Oilers in 2025-26.`\
 https://nytimes.com/athletic/6751454/2025/10/28/edmonton-oilers-vasily-podkolzin-stats-leon-draisaitl/
-
-**Texas Sues Tylenol Makers, Claiming They Hid Autism Risks**\
-`The lawsuit follows claims by President Trump that linked use by pregnant women of acetaminophen to autism, a connection that is unproven.`\
-https://nytimes.com/2025/10/28/health/tylenol-autism-texas-lawsuit.html
-
-**Pickleball's 'crown jewel' puts the sport's GOAT up with three former tennis players**\
-`Waters, pickleball's most decorated women's player, will join Eugenie Bouchard against Agassi and James Blake.`\
-https://nytimes.com/athletic/6754534/2025/10/28/pickleball-slam-anna-leigh-waters-andre-agassi/
-
-**FIA reveals no F1 2024 cost cap breaches after wait for results**\
-`Only Aston Martin, who committed a minor procedural breach but did not exceed the cost cap, failed to fully comply with the regulations.`\
-https://nytimes.com/athletic/6756466/2025/10/28/f1-fia-cost-cap-2024/
 
