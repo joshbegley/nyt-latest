@@ -1,3 +1,11 @@
+**Red Light: Let's draft Tuesday's jam-packed 32-team NHL schedule**\
+`The NHL is going full firehose mode on us, with all 32 teams in action across 16 games. The best part: The starts will be staggered.`\
+https://nytimes.com/athletic/6756892/2025/10/28/nhl-schedule-tv-how-to-watch-red-light-newsletter/
+
+**U.S. Military Kills 14 More People Accused of Smuggling Drugs on Boats**\
+`Defense Secretary Pete Hegseth said that the three strikes hit four boats in international waters and that there had been one survivor.`\
+https://nytimes.com/2025/10/28/us/politics/us-military-boat-strikes.html
+
 **Would Aroldis Chapman ever pitch for the Yankees again? 'Not even dead'**\
 `Chapman also said he would rather retire than play for the Yankees if he were traded there.`\
 https://nytimes.com/athletic/6756805/2025/10/28/aroldis-chapman-blasts-yankees-retire/
