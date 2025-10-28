@@ -1,3 +1,15 @@
+**Bundesliga Briefing: Lennart Karl's name is no longer being whispered at Bayern**\
+`The teenager followed up his midweek Champions League goal with an incredible strike in the Bundesliga at the weekend`\
+https://nytimes.com/athletic/6753489/2025/10/28/bundesliga-briefing-lennart-karl-bayern-munich/
+
+**The New York Times in Print for Tuesday, Oct. 28, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/28/todays-new-york-times
+
+**Don’t Count on Xi and Trump to Steady the World**\
+`The meeting in South Korea will be between two powerful men who govern by impulse, not institutions — and that’s dangerous.`\
+https://nytimes.com/2025/10/28/opinion/us-china-strongmen.html
+
 **Forecasters Abort Flight Into the Eye of Hurricane Melissa**\
 `A hurricane hunter aircraft, tasked with collecting weather data for NOAA, aborted its mission into the eye of Hurricane Melissa after encountering extreme turbulence.`\
 https://nytimes.com/video/world/americas/100000010485197/hurricane-hunter-melissa.html
