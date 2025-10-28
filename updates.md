@@ -1,3 +1,11 @@
+**Jonathan Toews brings healthy body and attitude to first game against Blackhawks**\
+`For the first time in his career, Jonathan Toews is preparing to play against the Blackhawks. Many — including Toews — doubted it'd happen.`\
+https://nytimes.com/athletic/6754877/2025/10/28/jonathan-toews-health-blackhawks-jets-nhl-return/
+
+**Where do teams get their best players? What Player Tiers data tells us about team building**\
+`Breaking down how the top 150 NHL players heading into this season ended up on their current teams, and what that says about the league.`\
+https://nytimes.com/athletic/6755065/2025/10/28/nhl-player-tiers-roster-building-trades-drafting/
+
 **Bears have a penalty problem. What bothers Ben Johnson most about the flood of flags?**\
 `The Bears have been penalized more than their opponent in every game this season. The problem has fast become a plague.`\
 https://nytimes.com/athletic/6755243/2025/10/28/bears-penalty-problem-ben-johnson/

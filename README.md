@@ -1,3 +1,7 @@
+**A Black Composer Was a Star, Then Faded. Is It Time to Shine Again?**\
+`Samuel Coleridge-Taylor devotees are working to revive his music and legacy coinciding with the 150th anniversary of his birth.`\
+https://nytimes.com/2025/10/28/arts/music/samuel-coleridge-taylor-150th-anniversary.html
+
 **Jonathan Toews brings healthy body and attitude to first game against Blackhawks**\
 `For the first time in his career, Jonathan Toews is preparing to play against the Blackhawks. Many — including Toews — doubted it'd happen.`\
 https://nytimes.com/athletic/6754877/2025/10/28/jonathan-toews-health-blackhawks-jets-nhl-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6754159/2025/10/28/lsu-kim-mulkey-program-builder/
 **Why George Springer's Whalers batting gloves are going to the Hockey Hall of Fame**\
 `The Blue Jays veteran and fan of the former Hartford NHL franchise is donating his gloves to the Hall of Fame in Toronto — not Cooperstown.`\
 https://nytimes.com/athletic/6744992/2025/10/28/world-series-blue-jays-george-springer-hockey/
-
-**The Hidden Victims of America’s Wildfires**\
-`The story of one young man who started fighting wildfires as a teenager, and was diagnosed with an aggressive cancer on the eve of his 25th birthday.`\
-https://nytimes.com/2025/10/28/podcasts/the-daily/wildfires-firefighters-cancer.html
 
