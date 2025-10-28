@@ -1,3 +1,7 @@
+**NFL MVP odds: Drake Maye and Jonathan Taylor declare themselves**\
+`Could we have our first non-quarterback MVP in 13 years? Can a sophomore QB challenge the top spot?`\
+https://nytimes.com/athletic/6754716/2025/10/28/nfl-mvp-odds-drake-maye-jonathan-taylor/
+
 **For Years, Islands Have Warned of Climate Disaster. They’ve Seen Little Help.**\
 `As Hurricane Melissa threatens island nations across the Caribbean, many are already burdened by debt from a string of climate-fueled crises.`\
 https://nytimes.com/2025/10/28/climate/hurricane-jamaica-caribbean.html
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/things-to-do-zadar
 **Trump Threatens ‘More Than the National Guard’ In U.S. Cities**\
 `During a speech to American troops, President Trump said he would escalate his crackdown on crime and immigration to active duty branches of the military if he decides it is appropriate.`\
 https://nytimes.com/video/world/asia/100000010485546/trump-national-guard-japan.html
-
-**Israeli Military Says It Killed 3 Militants Near Jenin in West Bank**\
-`The Israeli military said it killed three militants in an operation that involved the first airstrike in the West Bank in months. Hamas said two of the men had been fighters in its armed wing.`\
-https://nytimes.com/video/world/middleeast/100000010485695/jenin-west-bank-israel-hamas.html
 
