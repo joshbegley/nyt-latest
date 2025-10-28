@@ -1,3 +1,15 @@
+**‘The Beginning of a Movement’: Snapshots From a Mamdani Rally**\
+`Zohran Mamdani’s rally on Sunday nearly filled Forest Hills Stadium in Queens, which holds 13,000 attendees. Here’s why some of them went, in their own words.`\
+https://nytimes.com/2025/10/28/nyregion/photos-mamdani-aoc-bernie-rally.html
+
+**Netanyahu Orders New Strikes on Gaza**\
+`Weeks into a tenuous cease-fire with Hamas, the office of the Israeli Prime Minister said on Tuesday evening that he had ordered “forceful strikes” in Gaza.`\
+https://nytimes.com/2025/10/28/world/middleeast/israel-gaza-netanyahu-strikes.html
+
+**Bring a Crew for Askili Orchard’s Georgian Spread**\
+`Rare Japanese Wagyu, private movie screenings with themed menus and more restaurant news.`\
+https://nytimes.com/2025/10/28/dining/nyc-restaurant-news.html
+
 **Critical fantasy football insights for Week 9: Drake Maye for MVP, Breece Hall's back**\
 `Brandon Funston and Jess Bryant look at usage metrics to give actionable Week 9 fantasy football advice. `\
 https://nytimes.com/athletic/6754005/2025/10/28/critical-fantasy-football-insights-week-9/
