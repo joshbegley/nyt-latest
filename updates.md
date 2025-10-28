@@ -1,3 +1,7 @@
+**Patrick Mahomes Passes for 3 Touchdowns in Kansas City’s Win Over Washington**\
+`Patrick Mahomes, the Kansas City quarterback, led his team to three straight touchdown drives in the second half on the way to a 28-7 victory over the Washington Commanders.`\
+https://nytimes.com/video/the-athletic/100000010485498/patrick-mahomes-passes-for-3-touchdowns-in-kansas-citys-win-over-washington.html
+
 **What’s the Fastest Ever N.B.A. Ejection?**\
 `What’s the fastest ejection in N.B.A. history? The official rulebook lists eight offenses that could get a player or coach ejected, but some get ejected faster than others.`\
 https://nytimes.com/video/the-athletic/100000010459538/whats-the-fastest-ever-nba-ejection.html
