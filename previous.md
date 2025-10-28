@@ -1,3 +1,7 @@
+**Missed ball-strike call leads to costly pickoff in World Series Game 3**\
+`Instead of taking a 1-0 lead, a puzzling play that went down as a pickoff at first left the Blue Jays scoreless in the second inning.`\
+https://nytimes.com/athletic/6755615/2025/10/27/dodgers-blue-jays-game-3-missed-call/
+
 **Hurricane Hunters Found Something in Melissa’s Eye: Trapped Birds**\
 `The news “underscores the profound ecological toll that Hurricane Melissa will have on Jamaica’s biodiversity,” said one expert on the island.`\
 https://nytimes.com/2025/10/27/weather/hurricane-melissa-hunters-birds.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/27/us/politics/trump-middle-east-state-department-no
 **Turbulence Caused by Melissa Forces NOAA to Abort Flight Into Eye of Storm**\
 `Conditions were too dangerous to continue — even for the people who fly into hurricanes for a living.`\
 https://nytimes.com/2025/10/27/weather/hurricane-hunter-melissa.html
-
-**How to watch Arizona vs. Colorado: Time, TV, streaming**\
-`Find out how to watch the Arizona Wildcats play the Colorado Buffaloes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6755413/2025/10/27/how-to-watch-arizona-vs-colorado-tv-channel-and-streaming-options-for-november-1/
 
