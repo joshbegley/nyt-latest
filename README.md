@@ -1,3 +1,11 @@
+**After Law Firm Deals With Trump, D.C. Bar Warns of Ethical Jeopardy**\
+`The bar group’s ethics committee says firms that make a deal with the government may need to get waivers from clients with opposing interests.`\
+https://nytimes.com/2025/10/28/us/politics/trump-settlements-law-firms-ethical-issues.html
+
+**Saints making change at quarterback with rookie Tyler Shough replacing Spencer Rattler**\
+`The Saints are 1-7 this season in eight starts under Rattler.`\
+https://nytimes.com/athletic/6757381/2025/10/28/saints-tyler-shough-quarterback-starter/
+
 **Patriots and CB Marcus Jones agree to 3-year extension: Source**\
 `Jones has returned to playing as arguably the NFL’s best punt returner under new coach Mike Vrabel while playing in the secondary.`\
 https://nytimes.com/athletic/6757271/2025/10/28/patriots-marcus-jones-extension-cornerback/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6757438/2025/10/28/college-football-coaching-carous
 **Super Bowl odds: Chiefs remain on top after all contenders win**\
 `Week 8 saw 13 of the top 14 Super Bowl contenders in BetMGM's odds win, which means the pecking order remained mostly the same.`\
 https://nytimes.com/athletic/6757282/2025/10/28/super-bowl-odds-chiefs-bills-lions-packers/
-
-**SEC's Sankey urges NCAA to rethink allowing college athletes to bet on pro sports**\
-`“This policy change represents a major step in the wrong direction,” Sankey said.`\
-https://nytimes.com/athletic/6757283/2025/10/28/greg-sankey-ncaa-college-athletes-sports-betting/
-
-**How Formula 1's cost cap works: Rules, penalties and past breaches explained**\
-`The sport's $135 million spending limit aims to create parity — but compliance isn't always simple`\
-https://nytimes.com/athletic/6757239/2025/10/28/formula-1-cost-cap-explained/
 
