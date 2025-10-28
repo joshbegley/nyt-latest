@@ -1,3 +1,7 @@
+**Official’s Access to F.B.I. Files in Charlie Kirk Case Drew Pushback**\
+`An inquiry by Joe Kent, who leads the National Counterterrorism Center, is said to have alarmed Kash Patel, the F.B.I. director.`\
+https://nytimes.com/2025/10/28/us/politics/fbi-files-charlie-kirk-case.html
+
 **Trump Administration Reinstalls Confederate Statue in Washington**\
 `The statue of Albert Pike, a Confederate general who worked closely with slave-owning Native American tribes, is the only monument of its kind in the nation’s capital.`\
 https://nytimes.com/2025/10/28/us/politics/confederate-statue-trump.html
@@ -29,8 +33,4 @@ https://nytimes.com/spotlight/kitchens
 **Volunteers Step In to Help Understaffed NOAA Track Hurricane Melissa**\
 `Staffing cuts and a federal government shutdown are stretching scientists’ ability to make valuable hurricane observations.`\
 https://nytimes.com/2025/10/28/climate/noaa-volunteers-hurricane-melissa.html
-
-**U.N. prepares to send food and supplies to the Caribbean after Hurricane Melissa.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2025/10/28/weather/hurricane-melissa-jamaica-landfall/hurricane-melissa-un-aid-caribbean
 
