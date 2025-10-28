@@ -1,3 +1,7 @@
+**Where do teams get their best players? What Player Tiers data tells us about team building**\
+`Breaking down how the top 150 NHL players heading into this season ended up on their current teams, and what that says about the league.`\
+https://nytimes.com/athletic/6755065/2025/10/28/nhl-player-tiers-roster-building-trades-drafting/
+
 **Bears have a penalty problem. What bothers Ben Johnson most about the flood of flags?**\
 `The Bears have been penalized more than their opponent in every game this season. The problem has fast become a plague.`\
 https://nytimes.com/athletic/6755243/2025/10/28/bears-penalty-problem-ben-johnson/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/28/podcasts/the-daily/wildfires-firefighters-cancer.
 **Is it finally Denny Hamlin's time to win the NASCAR Cup Series title?**\
 `Hamlin is a sure Hall of Famer. But his resume his missing one thing — a Cup Series title. Now, at 44, he has one of his best shots at it.`\
 https://nytimes.com/athletic/6749731/2025/10/28/denny-hamlin-nascar-championship-4-race/
-
-**Behind the NHL's hardest point shot: How an unlikely 199-pound defenseman smashes pucks 105.05 mph**\
-`Undersized by NHL standards, the Panthers' Gustav Forsling clocked the hardest shot by any NHL defenseman in 2024-25. Here's how.`\
-https://nytimes.com/athletic/6744983/2025/10/28/nhl-hardest-point-shot-panthers-gustav-forsling/
 
