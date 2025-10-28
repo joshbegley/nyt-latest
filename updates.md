@@ -1,3 +1,11 @@
+**This Liverpool XI can stop the rot at Anfield**\
+`Radical changes are needed to pull the champions out of their slump`\
+https://nytimes.com/athletic/6754096/2025/10/28/liverpool-team-premier-league-selection/
+
+**Inside England's World Cup pursuit: Hard work, coffee club and quiz nights**\
+`South Africa await in Wednesday's semi-final in Guwahati as Nat Sciver-Brunt's team seek to reach a third successive World Cup final`\
+https://nytimes.com/athletic/6753391/2025/10/28/england-women-world-cup-india-bell-filer/
+
 **Charalampos Kostoulas: 'I dreamed of the Premier League. I didn't think it would come so fast'**\
 `The 18-year-old Greek forward scored his first goal for Brighton in the defeat to Manchester United on Saturday`\
 https://nytimes.com/athletic/6502056/2025/10/28/charalampos-kostoulas-brighton-interview/
