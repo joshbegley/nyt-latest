@@ -1,3 +1,15 @@
+**Volunteers Step In to Help Understaffed NOAA Track Hurricane Melissa**\
+`Staffing cuts and a federal government shutdown are stretching scientists’ ability to make valuable hurricane observations.`\
+https://nytimes.com/2025/10/28/climate/noaa-volunteers-hurricane-melissa.html
+
+**U.N. prepares to send food and supplies to the Caribbean after Hurricane Melissa.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2025/10/28/weather/hurricane-melissa-jamaica-landfall/hurricane-melissa-un-aid-caribbean
+
+**Mathurin, Toppin set to miss extended time as Pacers' injury list grows longer**\
+`The two key players join a growing Pacers injury list that includes Andrew Nembhard, T.J. McConnell and, of course, Tyrese Haliburton.`\
+https://nytimes.com/athletic/6757914/2025/10/28/pacers-injuries-list-bennedict-mathurin-obi-toppin/
+
 **The New Orleans Drink That’s Back From the Dead**\
 `With an unforgettable name, the Obituary has been down but never out.`\
 https://nytimes.com/2025/10/28/dining/obituary-cocktail-new-orleans.html
@@ -21,16 +33,4 @@ https://nytimes.com/video/world/middleeast/100000010486900/israel-launches-new-a
 **Mikael Granlund's absence adds to Ducks' early injury woes**\
 `Granlund is expected to be re-evaluated by team doctors on Thursday after Anaheim returns home from its five-game road trip.`\
 https://nytimes.com/athletic/6757891/2025/10/28/mikael-granlund-ducks-injury/
-
-**Ask a Journalist: Crafting Personal Essays**\
-`Miya Lee, the editor of Modern Love projects, joins us for the month of November to discuss narrative writing. Post your comments and questions for her by Nov. 15.`\
-https://nytimes.com/2025/10/28/learning/lesson-plans/ask-a-journalist-crafting-personal-essays.html
-
-**The longest events in sports: What other matchups have delivered drama like Game 3?**\
-`In honor of the World Series' Game 3 marathon, we looked back at other epics across all sports. `\
-https://nytimes.com/athletic/6757538/2025/10/28/longest-sporting-events-blue-jays-dodgers-world-series/
-
-**Convicted child rapist Van de Velde denied visa for World Championships**\
-`Van de Velde had been selected to represent the Netherlands at the competition, as he did at last year's Olympic Games in Paris.`\
-https://nytimes.com/athletic/6757557/2025/10/28/van-de-velde-volleyball-australia-visa/
 
