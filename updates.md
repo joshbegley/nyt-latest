@@ -1,3 +1,19 @@
+**Jamaica’s health care system has emerged as one of Hurricane Melissa’s victims.**\
+`By Emiliano Rodríguez Mega`\
+https://nytimes.com/live/2025/10/28/weather/hurricane-melissa-jamaica-landfall/hurricane-melissa-aid
+
+**South Korea’s Hosting Anxiety: A City Rich in History but Not Hotel Rooms**\
+`The authorities have been scrambling to accommodate this year’s Asia-Pacific Economic Cooperation forum at Gyeongju, which is known for tombs, temples and pagodas.`\
+https://nytimes.com/2025/10/28/world/asia/south-korea-gyeongju-apec-hosting.html
+
+**Stars, Thomas Harley finalizing 8-year, $10.59 million AAV contract extension: Sources**\
+`Harley will become the Stars’ highest-paid defenseman and second-highest AAV player behind winger Mikko Rantanen.`\
+https://nytimes.com/athletic/6758324/2025/10/28/stars-thomas-harley-contract-extension/
+
+**Federal Union’s Demand to End Shutdown Fails to Sway Democrats**\
+`Senate Republicans cited a call by the American Federation of Government Employees to pass a funding extension in an attempt to pressure Democrats to relent. The effort fell flat.`\
+https://nytimes.com/2025/10/28/us/politics/afge-federal-workers-union-shutdown.html
+
 **Patriots trading DE Keion White to pass-rush-needy 49ers: Sources**\
 `Keion White will help replace Nick Bosa, who was lost to a torn ACL in Week 3.`\
 https://nytimes.com/athletic/6758357/2025/10/28/keion-white-trade-49ers-patriots/
