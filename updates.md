@@ -1,3 +1,7 @@
+**NBA's early trend: pressure for 94 feet; plus Grizzlies' super-efficient rookie and more**\
+`The NBA is a copycat league, and the full-court pressure trend is the tactic to crib from other staffs. Plus, phantom shots, real blocks.`\
+https://nytimes.com/athletic/6753950/2025/10/28/nba-first-week-defense-rookies-trends/
+
 **Kenny Dalglish film review: An outstanding piece of work covering triumph, greatness and tragedy**\
 `Liverpool fan and Oscar-winner Asif Kapadia portrays an incredible playing and managerial career and the effects of Hillsborough`\
 https://nytimes.com/athletic/6751944/2025/10/28/sir-kenny-dalglish-film-review-liverpool/
