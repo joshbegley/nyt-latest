@@ -1,3 +1,7 @@
+**Peacock Mondays, time-zone Tuesdays: Decoding this season's NBA TV schedule**\
+`There are new NBA broadcast crews to become familiar with, as well as what might be a slightly confusing TV schedule.`\
+https://nytimes.com/athletic/6755604/2025/10/27/nba-tv-schedule-amazon-nbc-espn/
+
 **Victor Wembanyama's absurd stat-stuffing continues as Spurs start 4-0**\
 `Wembanyama scored a team-high 24 points and 15 rebounds on 7-of-8 shooting and went 10-of-10 from the free-throw line Monday.`\
 https://nytimes.com/athletic/6755773/2025/10/27/victor-wembanyama-spurs-giannis-antetokounmpo-nba/
