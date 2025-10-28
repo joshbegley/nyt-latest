@@ -1,40 +1,40 @@
-**Radiation Fears Bring MAHA and MAGA Movements Into Conflict**\
-`The Trump administration is considering tighter safety rules on the weak radiations of cellphones even as it pursues looser regulations on the deadly emanations of the nuclear industry.`\
-https://nytimes.com/2025/10/28/science/radiation-nuclear-5g-maha.html
+**Amid a Record Party Investment, Two Candidates for Governor Join Forces**\
+`Rep. Mikie Sherrill of New Jersey and former Rep. Abigail Spanberger of Virginia will appear together on Wednesday, hoping to energize Democratic campaign volunteers, and voters.`\
+https://nytimes.com/2025/10/28/us/politics/amid-a-record-party-investment-two-candidates-for-governor-join-forces.html
 
-**Patrick Mahomes Passes for 3 Touchdowns in Kansas City’s Win Over Washington**\
-`Patrick Mahomes, the Kansas City quarterback, led his team to three straight touchdown drives in the second half on the way to a 28-7 victory over the Washington Commanders.`\
-https://nytimes.com/video/the-athletic/100000010485498/patrick-mahomes-passes-for-3-touchdowns-in-kansas-citys-win-over-washington.html
+**The Israeli Right’s Plan to Carve Up Gaza**\
+`Amit Segal, a prominent Israeli right-wing commentator, envisions the future of the Gaza Strip.`\
+https://nytimes.com/2025/10/28/opinion/ezra-klein-podcast-amit-segal.html
 
-**What’s the Fastest Ever N.B.A. Ejection?**\
-`What’s the fastest ejection in N.B.A. history? The official rulebook lists eight offenses that could get a player or coach ejected, but some get ejected faster than others.`\
-https://nytimes.com/video/the-athletic/100000010459538/whats-the-fastest-ever-nba-ejection.html
+**More Food Reaches Gaza, but It’s Still Not Enough**\
+`Aid to the devastated territory has increased since the cease-fire took effect and prices have fallen. But many trucks going into Gaza are bringing food and commercial goods to sell that most people cannot afford.`\
+https://nytimes.com/2025/10/28/nyregion/more-food-reaches-gaza-but-its-still-not-enough.html
 
-**Once Again: The Pope Likes That Other Chicago Team, Not the Cubs**\
-`Although he posed with a Cubs jersey on Monday, a gift from a religious leader also from Chicago, Pope Leo is a longtime fan of the Chicago White Sox. Some people can’t seem to keep it straight.`\
-https://nytimes.com/2025/10/28/world/europe/pope-white-sox-chicago-baseball.html
+**Back with the Patriots, Josh McDaniels is thriving again as an offensive coordinator**\
+`Back for his third stint with the Patriots, offensive coordinator McDaniels has played a big part in Drake Maye's breakout season.`\
+https://nytimes.com/athletic/6754537/2025/10/28/josh-mcdaniels-patriots-offensive-coordinator-drake-maye/
 
-**Felipe Massa's $80M F1 'Crashgate' lawsuit heads to London court this week: Here's what to know**\
-`Nelson Piquet Jr.'s crash in 2008 was a sliding doors moment in the drivers' championship – this challenge, 17 years later, is unprecedented`\
-https://nytimes.com/athletic/6755583/2025/10/28/felipe-massa-crashgate-f1-lawsuit-hearing/
+**Josh Hawley: No American Should Go to Bed Hungry**\
+`Congress must prevent Americans from losing food assistance.`\
+https://nytimes.com/2025/10/28/opinion/josh-hawley-snap.html
 
-**Seth Meyers Thinks Trump Is Trolling With Third-Term Talk**\
-`The president says he hasn’t really thought about a third term. Meyers said that was “like James Cameron saying he hasn’t thought about ‘Avatar 4.’”`\
-https://nytimes.com/2025/10/28/arts/television/seth-meyers-trump-third-term.html
+**If You Were Given a One-Way Ticket to Mars, Would You Go?**\
+`Attendees at the annual Mars Society convention considered that question. How would you answer?`\
+https://nytimes.com/2025/10/28/learning/if-you-were-given-a-one-way-ticket-to-mars-would-you-go.html
 
-**Halloween Candy**\
-`What’s your favorite? Are there any you avoid?`\
-https://nytimes.com/2025/10/28/learning/halloween-candy.html
+**Fed’s Policy Path Looks More Treacherous as Shutdown Delays Critical Data**\
+`The central bank is poised to lower interest rates again on Wednesday despite having only a partial view of how the economy is faring.`\
+https://nytimes.com/2025/10/28/business/fed-interest-rates-shutdown-data.html
 
-**Should the Mayor Control N.Y.C. Schools? Mamdani and Cuomo Don’t Agree.**\
-`Zohran Mamdani and the teachers’ union have called for changes in mayoral control. Andrew M. Cuomo and some education leaders say that would be a grave mistake.`\
-https://nytimes.com/2025/10/28/nyregion/new-york-city-schools-mayoral-control.html
+**Second thoughts: Falcons understand frustration, but don't expect any offensive changes**\
+`Despite struggling against the Dolphins, the Falcons won't be making a change at offensive coordinator this week, coach Raheem Morris said.`\
+https://nytimes.com/athletic/6755031/2025/10/28/falcons-dolphins-offensive-struggles-zac-robinson/
 
-**10,000 Tales From a 17th-Century Crypt**\
-`In Milan, bones that piled under a hospital over a half-century shed light on the health and habits of some of the Renaissance era’s most impoverished people.`\
-https://nytimes.com/2025/10/28/science/archaeology-milan-crypt.html
+**Tear Gas Can Be Dangerous. The Rules on How to Use It Vary.**\
+`The repeated use of tear gas by federal immigration officers in Chicago has renewed a debate about how chemical irritants should be used by law enforcement personnel.`\
+https://nytimes.com/2025/10/28/us/tear-gas-chicago-immigration-enforcement.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/10/28/crosswords/spelling-bee-forum.html
+**Judge Expected to Quiz Border Patrol Leader Over Immigration Crackdown Tactics**\
+`Gregory Bovino, a border patrol official who has become a public face of President Trump’s crackdown, was ordered to appear in a Chicago courtroom.`\
+https://nytimes.com/2025/10/28/us/chicago-bovino-tear-gas.html
 
