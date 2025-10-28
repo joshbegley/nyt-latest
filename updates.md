@@ -1,3 +1,7 @@
+**Cuomo, Adams, Cuomo? Paterson Will Make Third Endorsement in Mayor’s Race.**\
+`Former Gov. David  A. Paterson appears to be of two minds when it comes to endorsing a candidate for New York mayor.`\
+https://nytimes.com/2025/10/28/nyregion/paterson-cuomo-endorsement.html
+
 **Lily Allen Confronts the Tabloids by Becoming One**\
 `The British singer and songwriter’s new album, “West End Girl,” is a salacious autobiography. For pop fans hungry for real-life details, it’s proving irresistible.`\
 https://nytimes.com/2025/10/28/arts/music/lily-allen-west-end-girl.html

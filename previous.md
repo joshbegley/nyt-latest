@@ -1,3 +1,7 @@
+**Cuomo, Adams, Cuomo? Paterson Will Make Third Endorsement in Mayor’s Race.**\
+`Former Gov. David  A. Paterson appears to be of two minds when it comes to endorsing a candidate for New York mayor.`\
+https://nytimes.com/2025/10/28/nyregion/paterson-cuomo-endorsement.html
+
 **Lily Allen Confronts the Tabloids by Becoming One**\
 `The British singer and songwriter’s new album, “West End Girl,” is a salacious autobiography. For pop fans hungry for real-life details, it’s proving irresistible.`\
 https://nytimes.com/2025/10/28/arts/music/lily-allen-west-end-girl.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/28/us/politics/trump-colombia-petro.html
 **Red Light: Let's draft Tuesday's jam-packed 32-team NHL schedule**\
 `The NHL is going full firehose mode on us, with all 32 teams in action across 16 games. The best part: The starts will be staggered.`\
 https://nytimes.com/athletic/6756892/2025/10/28/nhl-schedule-tv-how-to-watch-red-light-newsletter/
-
-**U.S. Military Kills 14 More People Accused of Smuggling Drugs on Boats**\
-`Defense Secretary Pete Hegseth said that the three strikes hit four boats in international waters and that there had been one survivor.`\
-https://nytimes.com/2025/10/28/us/politics/us-military-boat-strikes.html
 

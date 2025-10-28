@@ -1,3 +1,7 @@
+**It’s Easier Than Ever to Turn Your Dial to a Live Event**\
+`Broadcast TV continues to draw big audiences. And they are increasingly getting special events, award shows and sports — lots of sports.`\
+https://nytimes.com/2025/10/28/business/media/broadcast-tv-live-events.html
+
 **Cuomo, Adams, Cuomo? Paterson Will Make Third Endorsement in Mayor’s Race.**\
 `Former Gov. David  A. Paterson appears to be of two minds when it comes to endorsing a candidate for New York mayor.`\
 https://nytimes.com/2025/10/28/nyregion/paterson-cuomo-endorsement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/28/business/ups-layoffs-48000-workers-this-year.html
 **Trump’s Feud With Colombian Leader Threatens U.S. Antidrug Efforts**\
 `President Trump said he is cutting U.S. aid. Gustavo Petro, a leftist guerrilla turned president, has called Mr. Trump’s boat strikes murder.`\
 https://nytimes.com/2025/10/28/us/politics/trump-colombia-petro.html
-
-**Red Light: Let's draft Tuesday's jam-packed 32-team NHL schedule**\
-`The NHL is going full firehose mode on us, with all 32 teams in action across 16 games. The best part: The starts will be staggered.`\
-https://nytimes.com/athletic/6756892/2025/10/28/nhl-schedule-tv-how-to-watch-red-light-newsletter/
 
