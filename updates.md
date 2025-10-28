@@ -1,3 +1,19 @@
+**The Pulse: A World Series instant classic**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6754011/2025/10/28/dodgers-blue-jays-game-3-the-pulse/
+
+**From Ohtani to Vlad Jr., 10 moments to remember from an epic World Series Game 3**\
+`Baseball games do not get better than this. This was Martin Scorsese and James Joyce, an epic clash of wills on the grandest stage.`\
+https://nytimes.com/athletic/6756144/2025/10/28/dodgers-blue-jays-game-3-moments-to-remember/
+
+**Year 2 QB review: How Caleb Williams, Drake Maye and others from '24 draft are progressing**\
+`The 2024 first-round pick starters have seen varying levels of success while some need to keep adapting their skillsets.`\
+https://nytimes.com/athletic/6755115/2025/10/28/caleb-williams-drake-maye-2024-qbs-review/
+
+**A Black Composer Was a Star, Then Faded. Is It Time to Shine Again?**\
+`Samuel Coleridge-Taylor devotees are working to revive his music and legacy coinciding with the 150th anniversary of his birth.`\
+https://nytimes.com/2025/10/28/arts/music/samuel-coleridge-taylor-150th-anniversary.html
+
 **Jonathan Toews brings healthy body and attitude to first game against Blackhawks**\
 `For the first time in his career, Jonathan Toews is preparing to play against the Blackhawks. Many — including Toews — doubted it'd happen.`\
 https://nytimes.com/athletic/6754877/2025/10/28/jonathan-toews-health-blackhawks-jets-nhl-return/
