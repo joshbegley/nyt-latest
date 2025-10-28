@@ -1,3 +1,7 @@
+**Trump Wins Praise in Japan, but No Movements on Trade**\
+`President Trump and Sanae Takaichi, the Japanese prime minister, traded compliments during a stop in Tokyo, but signaled no major breakthrough in ongoing trade negotiations.`\
+https://nytimes.com/2025/10/28/us/politics/trump-takaichi-japan-meeting.html
+
 **How to watch Blue Jays at Dodgers: World Series Game 3 Time, TV, streaming**\
 `Find out how to watch the Toronto Blue Jays play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6756023/2025/10/28/blue-jays-vs-dodgers-stream-how-to-watch-oct-28/
