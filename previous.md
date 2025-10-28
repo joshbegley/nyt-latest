@@ -1,3 +1,23 @@
+**Jewish Heirs Sue the Met, Saying a van Gogh It Sold Was Nazi Loot**\
+`The museum says it had no idea at the time, but the heirs say the Met curator who bought and sold the work, a former U.S. Army specialist on looting, should have known better.`\
+https://nytimes.com/2025/10/28/arts/design/jewish-heirs-sue-met-van-gogh-nazi-loot.html
+
+**Pat and Cam Spencer bring fans to their feet during last-second matchup**\
+`Brothers Cam and Pat Spencer went one-on-one at the end of the Golden State Warriors 131-118 win over the Memphis Grizzlies in Chase Center`\
+https://nytimes.com/athletic/6757016/2025/10/28/warriors-grizzlies-pat-cam-spencer-brothers/
+
+**Dozens of States Sue Trump Administration Over Planned Food Stamp Cuts**\
+`The states petitioned a federal court days after the Agriculture Dept. said it would not take emergency steps to provide aid during the government shutdown.`\
+https://nytimes.com/2025/10/28/us/politics/trump-food-stamps-snap-lawsuit.html
+
+**The Perimenopause Whisper Network**\
+`For some women, it feels like the only way to get medical care is to know someone who knows someone who can Whatsapp your book club group chat.`\
+https://nytimes.com/2025/10/28/style/the-perimenopause-whisper-network.html
+
+**Lauri Markkanen becomes first Jazz player since Karl Malone to score 50-plus**\
+`In Monday's overtime win over the Suns, Markkanen became the first Jazz player to score at least 50 points since 1998.`\
+https://nytimes.com/athletic/6756696/2025/10/28/lauri-markkanen-jazz-51-point-career-high/
+
 **In Two Solo Plays, a Search for Belonging and Parental Love**\
 `Ari’el Stachel’s “Other” and Zoë Kim’s “Did You Eat?” are self-interrogations that deal with family, race and identity.`\
 https://nytimes.com/2025/10/28/theater/ariel-stachel-other-zoe-kim-did-you-eat.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6756439/2025/10/28/arsenal-injuries-martinelli-sali
 **I rode shotgun with an F1 driver at 180mph. One track wants more fans to do the same**\
 `F1's invite-only hot lap program serves VIPs. COTA's answer? A theme park where anyone can ride the track`\
 https://nytimes.com/athletic/6755468/2025/10/28/f1-hot-laps-pirelli-cota/
-
-**Attacking Mamdani’s Muslim faith, Cuomo has played to voters’ fears.**\
-`Andrew Cuomo is escalating his warnings that “mayhem” would follow a victory by Zohran Mamdani — even posting an A.I.-generated video that depicts his supporters as criminals.`\
-https://nytimes.com/live/2025/10/28/nyregion/nyc-mayor-election-news/attacking-mamdanis-muslim-faith-cuomo-has-played-to-voters-fears
-
-**It’s Easier Than Ever to Turn Your Dial to a Live Event**\
-`Broadcast TV continues to draw big audiences. And they are increasingly getting special events, award shows and sports — lots of sports.`\
-https://nytimes.com/2025/10/28/business/media/broadcast-tv-live-events.html
-
-**Cuomo, Adams, Cuomo? Paterson Will Make Third Endorsement in Mayor’s Race.**\
-`Former Gov. David  A. Paterson appears to be of two minds when it comes to endorsing a candidate for New York mayor.`\
-https://nytimes.com/2025/10/28/nyregion/paterson-cuomo-endorsement.html
-
-**Lily Allen Confronts the Tabloids by Becoming One**\
-`The British singer and songwriter’s new album, “West End Girl,” is a salacious autobiography. For pop fans hungry for real-life details, it’s proving irresistible.`\
-https://nytimes.com/2025/10/28/arts/music/lily-allen-west-end-girl.html
-
-**From globetrotting with LaMelo to diving deep on Giannis, how Mirin Fader sees storytelling**\
-`There has never been a more fascinating time for storytelling in the NBA, writes Mirin Fader.`\
-https://nytimes.com/athletic/6755324/2025/10/28/mirin-fader-nba-writer-the-athletic/
 
