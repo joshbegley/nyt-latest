@@ -1,3 +1,11 @@
+**World Series odds: What does Shohei Ohtani have in store next?**\
+`The Dodgers are clear favorites to win the World Series and the odds around Shohei Ohtani are projecting another special performance.`\
+https://nytimes.com/athletic/6757186/2025/10/28/world-series-odds-dodgers-blue-jays-shohei-ohtani/
+
+**Is the Mayor’s Race Tightening?**\
+`The candidates make their last push for undecided New Yorkers with early voting underway.`\
+https://nytimes.com/2025/10/28/nyregion/nyc-mayor-election-mamdani-cuomo-polls.html
+
 **After Law Firm Deals With Trump, D.C. Bar Warns of Ethical Jeopardy**\
 `The bar group’s ethics committee says firms that make a deal with the government may need to get waivers from clients with opposing interests.`\
 https://nytimes.com/2025/10/28/us/politics/trump-settlements-law-firms-ethical-issues.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6756977/2025/10/28/kansas-city-2026-world-cup-fan-f
 **Mayfield, Darnold examples of Williams' 'potentially monstrous' payoff for Bears**\
 `Robert Mays and Derrik Klassen take a measured look at the Bears QB on the latest episode of "The Athletic Football Show."`\
 https://nytimes.com/athletic/6756012/2025/10/28/caleb-williams-monstrous-payoff-bears-the-athletic-football-show/
-
-**Until Saturday: Wildest October coaching carousel ever**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6757438/2025/10/28/college-football-coaching-carousel-lsu-until-saturday/
-
-**Super Bowl odds: Chiefs remain on top after all contenders win**\
-`Week 8 saw 13 of the top 14 Super Bowl contenders in BetMGM's odds win, which means the pecking order remained mostly the same.`\
-https://nytimes.com/athletic/6757282/2025/10/28/super-bowl-odds-chiefs-bills-lions-packers/
 

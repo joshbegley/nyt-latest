@@ -1,3 +1,11 @@
+**World Series odds: What does Shohei Ohtani have in store next?**\
+`The Dodgers are clear favorites to win the World Series and the odds around Shohei Ohtani are projecting another special performance.`\
+https://nytimes.com/athletic/6757186/2025/10/28/world-series-odds-dodgers-blue-jays-shohei-ohtani/
+
+**Is the Mayor’s Race Tightening?**\
+`The candidates make their last push for undecided New Yorkers with early voting underway.`\
+https://nytimes.com/2025/10/28/nyregion/nyc-mayor-election-mamdani-cuomo-polls.html
+
 **After Law Firm Deals With Trump, D.C. Bar Warns of Ethical Jeopardy**\
 `The bar group’s ethics committee says firms that make a deal with the government may need to get waivers from clients with opposing interests.`\
 https://nytimes.com/2025/10/28/us/politics/trump-settlements-law-firms-ethical-issues.html
