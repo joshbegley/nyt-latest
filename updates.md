@@ -1,3 +1,15 @@
+**Trump and Japan’s New Prime Minister Trade Compliments**\
+`Prime Minister Sanae Takaichi of Japan welcomed President Trump to a gold-gilded palace in Tokyo on Tuesday. While they traded niceties, there was little progress on trade talks.`\
+https://nytimes.com/video/world/asia/100000010485211/trump-takaichi-japan-meeting.html
+
+**Father-Son Bonding at 2 Miles Per Minute on Germany’s Fabled Autobahn**\
+`Late for a rock concert, dads’ rules about driving are (legally) broken as the speedometer hits 125 m.p.h. on a highway where there are no speed limits.`\
+https://nytimes.com/2025/10/28/world/europe/autobahn-speeding-father-son-essay.html
+
+**Sudan’s Military Withdraws From Key City in Darfur After Monthlong Battle**\
+`Sudan’s military chief, Gen. Abdel Fattah al-Burhan, confirmed that his forces had withdrawn from El Fasher, a decisive shift in control of the sprawling Darfur region of Sudan.`\
+https://nytimes.com/2025/10/28/world/africa/sudan-el-fasher-burhan-rsf.html
+
 **Amid a Record Party Investment, Two Candidates for Governor Join Forces**\
 `Rep. Mikie Sherrill of New Jersey and former Rep. Abigail Spanberger of Virginia will appear together on Wednesday, hoping to energize Democratic campaign volunteers, and voters.`\
 https://nytimes.com/2025/10/28/us/politics/amid-a-record-party-investment-two-candidates-for-governor-join-forces.html
