@@ -1,3 +1,7 @@
+**Hurricane Melissa Hit Jamaica With Devastating Force**\
+`Also, the U.S. attacked four more boats. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/10/28/briefing/hurricane-melissa-jamaica-misty-copeland.html
+
 **Following in the Footsteps of Charlie Kirk?**\
 `In a crowded field of would-be successors, Brilyn Hollyhand hopes to capture the minds of young conservatives across America.`\
 https://nytimes.com/2025/10/28/style/brilyn-hollyhand-charlie-kirk-young-republicans.html
