@@ -1,3 +1,11 @@
+**Are the Sabres turning a corner? What I think and what I know through 9 games**\
+`The Sabres have been a different team since the first week of the season. Here are some things to take note of in the early going.`\
+https://nytimes.com/athletic/6756421/2025/10/28/sabres-josh-doan-zach-benson/
+
+**Amateur footballer suffers fractured skull after attack during game in Liverpool**\
+`Richard Agbasoga, a temporary NHS worker from Ghana, was playing for Ormskirk West End against Calci FC in England’s 12th tier on Saturday.`\
+https://nytimes.com/athletic/6754541/2025/10/28/footballer-assault-fractured-skull/
+
 **Should 2-6 Giants be buyers at deadline to help Jaxson Dart develop?**\
 `Dart is now set to forge into an unrelenting schedule with arguably the worst collection of playmakers in the NFL.`\
 https://nytimes.com/athletic/6755893/2025/10/28/giants-nfl-trade-deadline-preview/

@@ -1,3 +1,11 @@
+**Curtis Sliwa is not about to give up the spotlight.**\
+`Mr. Sliwa, the Republican nominee for mayor of New York City, finds himself a major player in the race. He’s under heavy pressure to drop out.`\
+https://nytimes.com/live/2025/10/28/nyregion/nyc-mayor-election-news/curtis-sliwa-is-not-about-to-give-up-the-spotlight
+
+**Will Bill Gates’s ‘Strategic Pivot’ Shake Up Climate Policy?**\
+`The billionaire philanthropist said it was a mistake to focus so much on “near-term emissions goals,” a position that could generate serious debate.`\
+https://nytimes.com/2025/10/28/business/dealbook/bill-gates-climate-pivot.html
+
 **Are the Sabres turning a corner? What I think and what I know through 9 games**\
 `The Sabres have been a different team since the first week of the season. Here are some things to take note of in the early going.`\
 https://nytimes.com/athletic/6756421/2025/10/28/sabres-josh-doan-zach-benson/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/10/28/nyregion/nyc-mayor-election-news/heres-the-l
 **Live Updates: Unpredictable New York City Mayor’s Race Enters Final Week**\
 `Assemblyman Zohran Mamdani remains the front-runner and former Gov. Andrew M. Cuomo is trying to catch him, while Curtis Sliwa refuses to be forced from the race. More than 200,000 ballots have already been cast.`\
 https://nytimes.com/live/2025/10/28/nyregion/nyc-mayor-election-news
-
-**Ohio State midseason superlatives: Who are Ohio State's offensive and defensive MVPs?**\
-`At midseason, Ohio State has remained unscathed by chaos. Which players have stood out and surprised? `\
-https://nytimes.com/athletic/6755283/2025/10/28/ohio-state-julian-sayin-arvell-reese/
-
-**Breece Hall among 5 reasonable targets for Chargers ahead of NFL trade deadline**\
-`The Chargers could use help at running back and along the offensive and defensive lines. `\
-https://nytimes.com/athletic/6755167/2025/10/28/chargers-trade-deadline-targets-breece-hall/
 
