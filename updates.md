@@ -1,3 +1,11 @@
+**Japanese Executives Called On by Trump Pledge U.S. Investment**\
+`Toyota said it would sell some of its U.S.-made cars in Japan, one of a number of announcements by companies responding to U.S. pressure over trade imbalances.`\
+https://nytimes.com/2025/10/28/business/trump-japan-toyota.html
+
+**Some Jewish Mamdani Supporters Say Cuomo Is ‘Flattening’ Their Community**\
+`Volunteer canvassers for Zohran Mamdani gathered over the weekend in hopes of combatting Andrew M. Cuomo’s closing pitch to Jewish voters.`\
+https://nytimes.com/2025/10/28/nyregion/some-jewish-mamdani-supporters-say-cuomo-is-flattening-their-community.html
+
 **The Bounce: Surprise unbeaten teams. Plus, Beef Court rules on Ant vs. SGA shoe-down**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6756861/2025/10/28/unbeaten-teams-nba-anthony-edwards-sga-the-bounce/

@@ -1,3 +1,11 @@
+**Japanese Executives Called On by Trump Pledge U.S. Investment**\
+`Toyota said it would sell some of its U.S.-made cars in Japan, one of a number of announcements by companies responding to U.S. pressure over trade imbalances.`\
+https://nytimes.com/2025/10/28/business/trump-japan-toyota.html
+
+**Some Jewish Mamdani Supporters Say Cuomo Is ‘Flattening’ Their Community**\
+`Volunteer canvassers for Zohran Mamdani gathered over the weekend in hopes of combatting Andrew M. Cuomo’s closing pitch to Jewish voters.`\
+https://nytimes.com/2025/10/28/nyregion/some-jewish-mamdani-supporters-say-cuomo-is-flattening-their-community.html
+
 **The Bounce: Surprise unbeaten teams. Plus, Beef Court rules on Ant vs. SGA shoe-down**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6756861/2025/10/28/unbeaten-teams-nba-anthony-edwards-sga-the-bounce/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/28/climate/mackenzie-scott-disaster-gift.html
 **Scolded by Trump, Canada’s Prime Minister Turns to Asia for Trade**\
 `Mark Carney is pitching Canada as a predictable and responsible alternative to the United States.`\
 https://nytimes.com/2025/10/28/world/canada/carney-asia-trade-trump.html
-
-**Dallas Mavericks fans swap Cooper Flagg's last name into national anthem lyric**\
-`Dallas Mavericks fans have made a fast tradition of singing Cooper Flagg's name during the national anthem at home games.`\
-https://nytimes.com/athletic/6756501/2025/10/28/cooper-flagg-mavericks-fans-national-anthem/
-
-**The Windup: All of Game 3's historic layers**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6756639/2025/10/28/world-series-game-3-dodgers-the-windup/
 
