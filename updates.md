@@ -1,3 +1,7 @@
+**White House Withdraws Nominee for Top State Department Job**\
+`Joel Rayburn had been questioned over ties to a former Trump administration official who admitted to defying the president’s push to withdraw troops from Syria during his first term.`\
+https://nytimes.com/2025/10/27/us/politics/trump-middle-east-state-department-nominee-rayburn.html
+
 **Turbulence Caused by Melissa Forces NOAA to Abort Flight Into Eye of Storm**\
 `Conditions were too dangerous to continue — even for the people who fly into hurricanes for a living.`\
 https://nytimes.com/2025/10/27/weather/hurricane-hunter-melissa.html

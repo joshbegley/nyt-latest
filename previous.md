@@ -1,3 +1,7 @@
+**White House Withdraws Nominee for Top State Department Job**\
+`Joel Rayburn had been questioned over ties to a former Trump administration official who admitted to defying the president’s push to withdraw troops from Syria during his first term.`\
+https://nytimes.com/2025/10/27/us/politics/trump-middle-east-state-department-nominee-rayburn.html
+
 **Turbulence Caused by Melissa Forces NOAA to Abort Flight Into Eye of Storm**\
 `Conditions were too dangerous to continue — even for the people who fly into hurricanes for a living.`\
 https://nytimes.com/2025/10/27/weather/hurricane-hunter-melissa.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6755382/2025/10/27/virginia-vs-california-stream-ho
 **How to watch Georgia Tech vs. North Carolina State: Time, TV, streaming**\
 `Find out how to watch the Georgia Tech Yellow Jackets play the North Carolina State Wolfpack, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6755383/2025/10/27/georgia-tech-vs-north-carolina-state-stream-how-to-watch-nov-1/
-
-**How to watch USC vs. Nebraska: Time, TV, streaming**\
-`Find out how to watch the USC Trojans play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6755379/2025/10/27/usc-vs-nebraska-stream-how-to-watch-nov-1/
 
