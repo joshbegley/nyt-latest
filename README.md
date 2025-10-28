@@ -1,3 +1,11 @@
+**Are the Sabres turning a corner? What I think and what I know through 9 games**\
+`The Sabres have been a different team since the first week of the season. Here are some things to take note of in the early going.`\
+https://nytimes.com/athletic/6756421/2025/10/28/sabres-josh-doan-zach-benson/
+
+**Amateur footballer suffers fractured skull after attack during game in Liverpool**\
+`Richard Agbasoga, a temporary NHS worker from Ghana, was playing for Ormskirk West End against Calci FC in England’s 12th tier on Saturday.`\
+https://nytimes.com/athletic/6754541/2025/10/28/footballer-assault-fractured-skull/
+
 **Should 2-6 Giants be buyers at deadline to help Jaxson Dart develop?**\
 `Dart is now set to forge into an unrelenting schedule with arguably the worst collection of playmakers in the NFL.`\
 https://nytimes.com/athletic/6755893/2025/10/28/giants-nfl-trade-deadline-preview/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6755283/2025/10/28/ohio-state-julian-sayin-arvell-r
 **Breece Hall among 5 reasonable targets for Chargers ahead of NFL trade deadline**\
 `The Chargers could use help at running back and along the offensive and defensive lines. `\
 https://nytimes.com/athletic/6755167/2025/10/28/chargers-trade-deadline-targets-breece-hall/
-
-**Saudi Arabia, Qatar and a 2026 World Cup qualifying controversy**\
-`Saudi Arabia and Qatar's opponents have complained about advantages the two countries had in qualifying for the 2026 World Cup`\
-https://nytimes.com/athletic/6751044/2025/10/28/saudi-arabia-qatar-world-cup-controversy/
-
-**Lowetide: Is Oilers winger Vasily Podkolzin finding another gear?**\
-`There are signs that Podkolzin is going to be a more substantial scorer for the Oilers in 2025-26.`\
-https://nytimes.com/athletic/6751454/2025/10/28/edmonton-oilers-vasily-podkolzin-stats-leon-draisaitl/
 
