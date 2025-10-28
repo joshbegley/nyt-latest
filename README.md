@@ -1,3 +1,7 @@
+**On the Menu for Trump in Tokyo: American Rice**\
+`Rice is a point of pride in Japan, and the choice was a break from the typical diplomatic practice of showcasing local ingredients.`\
+https://nytimes.com/2025/10/28/world/asia/trump-japan-america-rice.html
+
 **Blowout loss to Cavs exposes problem areas for Pistons**\
 `Detroit's offense remains too stagnant, as evidenced by a long dry spell against Cleveland at home.`\
 https://nytimes.com/athletic/6755998/2025/10/28/pistons-loss-offense-cavs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/28/business/dealbook/whatnot-livestream-shopping-fun
 **Billionaire-Backed Super PACs Have Donated to Cuomo’s Mayoral Campaign**\
 `Super PACs supporting former Gov. Andrew Cuomo have raised more than $40 million from donors.`\
 https://nytimes.com/2025/10/28/nyregion/cuomo-nyc-mayor-super-pacs.html
-
-**On ‘Daily Show,’ Mamdani Makes Play for ‘New Yorkers Who Are Skeptical’**\
-`Zohran Mamdani was greeted warmly in an interview with Jon Stewart, who told him: “You are clearly right now in the front-running position. I can tell, because they’ve gone 9/11 on you.”`\
-https://nytimes.com/2025/10/28/nyregion/zohran-mamdani-daily-show-interview.html
 
