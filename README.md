@@ -1,3 +1,7 @@
+**Milner and Howell to miss Brighton's Carabao Cup tie at Arsenal**\
+`Milner, 39, was limping towards the end of Saturday's 4-2 defeat to Manchester United.`\
+https://nytimes.com/athletic/6756261/2025/10/28/james-milner-injury-brighton-arsenal-harry-howell/
+
 **Scott Van Pelt a top candidate for ESPN’s 5 p.m. weekday show slot**\
 `ESPN is zeroing in on its plan for its high-profile early-evening programming window, reports The Athletic's Andrew Marchand.`\
 https://nytimes.com/athletic/6755369/2025/10/28/scott-van-pelt-espn-burke-magnus-sportscenter/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010485211/trump-takaichi-japan-meetin
 **Father-Son Bonding at 2 Miles Per Minute on Germany’s Fabled Autobahn**\
 `Late for a rock concert, dads’ rules about driving are (legally) broken as the speedometer hits 125 m.p.h. on a highway where there are no speed limits.`\
 https://nytimes.com/2025/10/28/world/europe/autobahn-speeding-father-son-essay.html
-
-**Sudan’s Military Withdraws From Key City in Darfur After Monthlong Battle**\
-`Sudan’s military chief, Gen. Abdel Fattah al-Burhan, confirmed that his forces had withdrawn from El Fasher, a decisive shift in control of the sprawling Darfur region of Sudan.`\
-https://nytimes.com/2025/10/28/world/africa/sudan-el-fasher-burhan-rsf.html
 
