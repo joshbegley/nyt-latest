@@ -1,3 +1,15 @@
+**How 'phenomenal' Timber has grown into one of Arteta's key players**\
+`Jurrien Timber's injuries stalled his start at Arsenal. But now he has developed into a 'phenomenal' player`\
+https://nytimes.com/athletic/6753545/2025/10/28/jurrien-timber-phenomenal-arsenal/
+
+**Inside Newcastle Q&A: Wissa return date, Wilson making changes, impact of Osula and more**\
+`Newcastle reporter Chris Waugh answers readers' questions about all the most pressing issues at St James' Park.`\
+https://nytimes.com/athletic/6753440/2025/10/28/inside-newcastle-wissa/
+
+**James Horncastle's Serie A Briefing: Tempers flare, McTominay scores, Juventus sack Tudor**\
+`After a rocky week, Napoli demonstrated why they won the title last season in a fractious 3-1 defeat of rivals Inter`\
+https://nytimes.com/athletic/6751414/2025/10/28/horncastle-serie-a-briefing-napoli-inter-conte/
+
 **Jamaica’s Beach Towns and Fishing Villages Brace for Hurricane Melissa**\
 `Stranded vacationers on the island, which depends on tourism, used their beds to block their windows in case the powerful storm shattered the glass.`\
 https://nytimes.com/2025/10/28/world/americas/jamaica-hurricane-melissa-resorts.html
@@ -25,16 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/10/28/todays-new-york-times
 **Don’t Count on Xi and Trump to Steady the World**\
 `The meeting in South Korea will be between two powerful men who govern by impulse, not institutions — and that’s dangerous.`\
 https://nytimes.com/2025/10/28/opinion/us-china-strongmen.html
-
-**Forecasters Abort Flight Into the Eye of Hurricane Melissa**\
-`A hurricane hunter aircraft, tasked with collecting weather data for NOAA, aborted its mission into the eye of Hurricane Melissa after encountering extreme turbulence.`\
-https://nytimes.com/video/world/americas/100000010485197/hurricane-hunter-melissa.html
-
-**Here’s the latest.**\
-`By Jovan Johnson, Camille Williams, Judson Jones, Nazaneen Ghaffar, Yan Zhuang and Livia Albeck-Ripka`\
-https://nytimes.com/live/2025/10/28/weather/hurricane-melissa-jamaica-landfall/heres-the-latest
-
-**Live Updates: Jamaica Warns Hurricane Melissa Will Bring Catastrophic Winds and Rain**\
-`The Category 5 storm is the most powerful in the Atlantic Ocean this year. The authorities in Jamaica and Cuba have issued evacuation orders for tens of thousands of people.`\
-https://nytimes.com/live/2025/10/28/weather/hurricane-melissa-jamaica-landfall
 
