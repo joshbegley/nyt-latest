@@ -1,3 +1,7 @@
+**Victor Wembanyama's absurd stat-stuffing continues as Spurs start 4-0**\
+`Wembanyama scored a team-high 24 points and 15 rebounds on 7-of-8 shooting and went 10-of-10 from the free-throw line Monday.`\
+https://nytimes.com/athletic/6755773/2025/10/27/victor-wembanyama-spurs-giannis-antetokounmpo-nba/
+
 **Blue Jays' George Springer exits Game 3 after awkward swing in 7th inning**\
 `Entering Monday, Springer had been dealing with a series of injuries this postseason, including knee and wrist issues.`\
 https://nytimes.com/athletic/6755775/2025/10/27/dodgers-blue-jays-george-springer-game-3-exit/

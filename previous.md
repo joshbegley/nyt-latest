@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6755775/2025/10/27/dodgers-blue-jays-george-springer-game-3-exit/
 
 **Victor Wembanyama's absurd stat-stuffing continues as Spurs start 4-0**\
-`Wembanyama continues to put on a dazzling display as the Spurs enjoy first 4-0 start since the 2017-2018 season.`\
+`Wembanyama scored a team-high 24 points and 15 rebounds on 7-of-8 shooting and went 10-of-10 from the free-throw line Monday.`\
 https://nytimes.com/athletic/6755773/2025/10/27/victor-wembanyama-spurs-giannis-antetokounmpo-nba/
 
 **With Dexterity**\

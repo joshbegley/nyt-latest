@@ -1,3 +1,7 @@
+**Peacock Mondays, time-zone Tuesdays: Decoding this season's NBA TV schedule**\
+`There are new NBA broadcast crews to become familiar with, as well as what might be a slightly confusing TV schedule.`\
+https://nytimes.com/athletic/6755604/2025/10/27/nba-tv-schedule-amazon-nbc-espn/
+
 **Blue Jays' George Springer exits Game 3 after awkward swing in 7th inning**\
 `Entering Monday, Springer had been dealing with a series of injuries this postseason, including knee and wrist issues.`\
 https://nytimes.com/athletic/6755775/2025/10/27/dodgers-blue-jays-george-springer-game-3-exit/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/27/weather/hurricane-melissa-hunters-birds.html
 **Jamaicans in New York ‘Pray, Pray, Pray’ as Melissa Approaches Their Island Nation**\
 `Hurricane Melissa was on a direct path to strike Jamaica on Tuesday morning.`\
 https://nytimes.com/2025/10/27/weather/new-york-jamaican-community.html
-
-**Fan injured in fall at Pens game, the third this year at a Pittsburgh venue**\
-`Accident occurs days after a worker fell at Steelers' Acrisure Stadium. Earlier this year, a fan fell from the stands at PNC Park.`\
-https://nytimes.com/athletic/6755517/2025/10/27/pittsburgh-penguins-fan-fall-arena-blues/
 
