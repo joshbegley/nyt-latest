@@ -1,3 +1,11 @@
+**Hundreds of thousands of Cubans have already evacuated in anticipation of the hurricane.**\
+`By Ed Augustin`\
+https://nytimes.com/2025/10/28/weather/hundreds-of-thousands-of-cubans-have-already-evacuated-in-anticipation-of-the-hurricane.html
+
+**Netanyahu Orders Strikes on Gaza, Saying Hamas Violated Cease-Fire**\
+`The office of the Israeli Prime Minister said on Tuesday evening that he had ordered “forceful strikes” after Hamas fired on Israeli troops and failed to return hostages’ bodies.`\
+https://nytimes.com/2025/10/28/world/middleeast/israel-gaza-netanyahu-strikes.html
+
 **For Years, Islands Have Warned of Climate Disaster. They’ve Seen Little Help.**\
 `As Hurricane Melissa threatens island nations across the Caribbean, many are already burdened by debt from a string of climate-fueled crises.`\
 https://nytimes.com/2025/10/28/climate/hurricane-jamaica-caribbean.html
