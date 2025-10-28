@@ -1,3 +1,11 @@
+**Once Again: The Pope Likes That Other Chicago Team, Not the Cubs**\
+`Although he posed with a Cubs jersey on Monday, a gift from a religious leader also from Chicago, Pope Leo is a longtime fan of the Chicago White Sox. Some people can’t seem to keep it straight.`\
+https://nytimes.com/2025/10/28/world/europe/pope-white-sox-chicago-baseball.html
+
+**Felipe Massa's $80M F1 'Crashgate' lawsuit heads to London court this week: Here's what to know**\
+`Nelson Piquet Jr.'s crash in 2008 was a sliding doors moment in the drivers' championship – this challenge, 17 years later, is unprecedented`\
+https://nytimes.com/athletic/6755583/2025/10/28/felipe-massa-crashgate-f1-lawsuit-hearing/
+
 **Seth Meyers Thinks Trump Is Trolling With Third-Term Talk**\
 `The president says he hasn’t really thought about a third term. Meyers said that was “like James Cameron saying he hasn’t thought about ‘Avatar 4.’”`\
 https://nytimes.com/2025/10/28/arts/television/seth-meyers-trump-third-term.html
