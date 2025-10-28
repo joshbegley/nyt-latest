@@ -1,3 +1,7 @@
+**Fan injured in fall at Pens game, the third this year at a Pittsburgh venue**\
+`Accident occurs days after a worker fell at Steelers' Acrisure Stadium. Earlier this year, a fan fell from the stands at PNC Park.`\
+https://nytimes.com/athletic/6755517/2025/10/27/pittsburgh-penguins-fan-fall-arena-blues/
+
 **With Dexterity**\
 `Adrianne Baik’s Tuesday puzzle belongs in the Louvre.`\
 https://nytimes.com/2025/10/27/crosswords/daily-puzzle-2025-10-28.html

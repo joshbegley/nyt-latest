@@ -26,8 +26,8 @@ https://nytimes.com/2025/10/27/weather/hurricane-melissa-hunters-birds.html
 `Hurricane Melissa was on a direct path to strike Jamaica on Tuesday morning.`\
 https://nytimes.com/2025/10/27/weather/new-york-jamaican-community.html
 
-**Fan falls from upper level during Penguins goal celebration vs. Blues**\
-`Witnesses said the man appeared to be unconscious when medical personnel on hand at PPG Paints Arena rushed to his aid.`\
+**Fan injured in fall at Pens game, the third this year at a Pittsburgh venue**\
+`Accident occurs days after a worker fell at Steelers' Acrisure Stadium. Earlier this year, a fan fell from the stands at PNC Park.`\
 https://nytimes.com/athletic/6755517/2025/10/27/pittsburgh-penguins-fan-fall-arena-blues/
 
 **Ivory Coast President Secures 4th Term in Election Without Top Opponents**\
