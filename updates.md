@@ -1,3 +1,15 @@
+**Convicted child rapist Van de Velde denied visa for World Championships**\
+`Van de Velde had been selected to represent the Netherlands at the competition, as he did at last year's Olympic Games in Paris.`\
+https://nytimes.com/athletic/6757557/2025/10/28/van-de-velde-volleyball-australia-visa/
+
+**How to watch Red Wings vs. Blues: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the St. Louis Blues, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6757807/2025/10/28/red-wings-vs-blues-stream-how-to-watch-oct-28/
+
+**How to watch Knicks vs. Bucks: Time, TV, streaming**\
+`Find out how to watch the New York Knicks play the Milwaukee Bucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6757804/2025/10/28/knicks-vs-bucks-stream-how-to-watch-oct-28/
+
 **How to watch Kings vs. Sharks: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Kings play the San Jose Sharks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6757799/2025/10/28/kings-vs-sharks-stream-how-to-watch-oct-28/
