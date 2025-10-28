@@ -1,40 +1,40 @@
+**How to watch Colts vs. Steelers: Time, TV, streaming**\
+`Find out how to watch the Indianapolis Colts play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6757728/2025/10/28/colts-vs-steelers-stream-how-to-watch-nov-2/
+
+**How to watch Bears vs. Bengals: Time, TV, streaming**\
+`Find out how to watch the Chicago Bears play the Cincinnati Bengals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6757725/2025/10/28/bears-vs-bengals-stream-how-to-watch-nov-2/
+
+**How to watch 49ers vs. Giants: Time, TV, streaming**\
+`Find out how to watch the San Francisco 49ers play the New York Giants, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6757723/2025/10/28/49ers-vs-giants-stream-how-to-watch-nov-2/
+
+**How to watch Broncos vs. Texans: Time, TV, streaming**\
+`Find out how to watch the Denver Broncos play the Houston Texans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6757720/2025/10/28/broncos-vs-texans-stream-how-to-watch-nov-2/
+
+**How to watch Falcons vs. Patriots: Time, TV, streaming**\
+`Find out how to watch the Atlanta Falcons play the New England Patriots, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6757716/2025/10/28/falcons-vs-patriots-stream-how-to-watch-nov-2/
+
+**How to watch Vikings vs. Lions: Time, TV, streaming**\
+`Find out how to watch the Minnesota Vikings play the Detroit Lions, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6757714/2025/10/28/vikings-vs-lions-stream-how-to-watch-nov-2/
+
+**How to watch Chargers vs. Titans: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Chargers play the Tennessee Titans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6757712/2025/10/28/chargers-vs-titans-stream-how-to-watch-nov-2/
+
+**How to watch Panthers vs. Packers: Time, TV, streaming**\
+`Find out how to watch the Carolina Panthers play the Green Bay Packers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6757708/2025/10/28/panthers-vs-packers-stream-how-to-watch-nov-2/
+
 **Michael McKee, Fervent Advocate for Tenants’ Rights, Dies at 85**\
-`A broken window transformed him into a professional organizer and lobbyist to regulate rents and restrain landlords.`\
+`A broken window transformed him into a professional organizer and lobbyist to regulate rents and restrain landlords in New York.`\
 https://nytimes.com/2025/10/28/nyregion/michael-mckee-dead.html
 
 **How Celtic turned 'toxic'**\
 `Brendan Rodgers left Celtic on Monday — with the club heavily criticising their now former manager`\
 https://nytimes.com/athletic/6757433/2025/10/28/celtic-brendan-rodgers-analysis/
-
-**Johnson Dismisses Trump 2028 Talk — But Applauds the ‘Trolling’**\
-`The speaker said he did not see a path to amending the Constitution to allow the president to seek a third term, but that it was fun to pretend he could to inflame Democrats.`\
-https://nytimes.com/2025/10/28/us/politics/johnson-trump-2028-constitution.html
-
-**What Zohran Mamdani Learned as an Africana Studies Major at Bowdoin**\
-`The mayoral candidate has said his education was formative. But critics say that his degree exemplifies how colleges steep students in leftist dogma.`\
-https://nytimes.com/2025/10/28/us/politics/zohran-mamdani-bowdoin-college-new-york-mayor-election.html
-
-**Starlink is keeping some people in Jamaica online during the storm, but for how long?**\
-`By Pranav Baskar`\
-https://nytimes.com/live/2025/10/28/weather/hurricane-melissa-jamaica-landfall/starlink-is-keeping-some-people-in-jamaica-online-during-the-storm-but-for-how-long
-
-**10 Accused of Cyberbullying France’s First Lady Stand Trial. Here’s What to Know.**\
-`Brigitte Macron filed a criminal complaint in Paris after claims about her gender and her relationship with President Emmanuel Macron went viral. The accused deny wrongdoing.`\
-https://nytimes.com/2025/10/28/world/europe/brigitte-macron-cyberbullying-trial.html
-
-**12 Hours in the Smoke**\
-`Across the country, wildfire fighters work for weeks at a time in poisonous smoke. The government says they are protected. We tested the air at one fire to find out why they are still dying.`\
-https://nytimes.com/interactive/2025/10/28/us/smoke-exposure.html
-
-**Hurricane Melissa Snarls Travel Across the Caribbean**\
-`Airlines canceled flights and cruise lines rerouted ships to avoid the storm, which could affect destinations like the Bahamas and the Turks and Caicos next.`\
-https://nytimes.com/2025/10/28/weather/hurricane-melissa-snarls-travel-across-the-caribbean.html
-
-**Paramilitary Group Takes Key City From Sudan’s Military**\
-`Sudan’s military said that it had withdrawn from the besieged city of El Fasher in Darfur, where the Rapid Support Forces captured the city’s main military base and were reportedly shooting civilians trying to flee.`\
-https://nytimes.com/video/world/africa/100000010486454/sudan-darfur-rsf-el-fasher.html
-
-**Shutdown Makes Air Travel System ‘Less Safe,’ Air Traffic Controllers Say**\
-`Controllers have urged air passengers to contact their representatives to end the shutdown. The transportation secretary also warned of consequences for travel, though he said the system remained safe.`\
-https://nytimes.com/2025/10/28/us/politics/shutdown-air-traffic-controllers-duffy.html
 

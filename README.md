@@ -1,3 +1,7 @@
+**With Adams out of the race, police unions are declining to endorse another candidate.**\
+`By Maria Cramer`\
+https://nytimes.com/live/2025/10/28/nyregion/nyc-mayor-election-news/nypd-unions-no-endorsements
+
 **How to watch Colts vs. Steelers: Time, TV, streaming**\
 `Find out how to watch the Indianapolis Colts play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6757728/2025/10/28/colts-vs-steelers-stream-how-to-watch-nov-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6757708/2025/10/28/panthers-vs-packers-stream-how-t
 **Michael McKee, Fervent Advocate for Tenants’ Rights, Dies at 85**\
 `A broken window transformed him into a professional organizer and lobbyist to regulate rents and restrain landlords in New York.`\
 https://nytimes.com/2025/10/28/nyregion/michael-mckee-dead.html
-
-**How Celtic turned 'toxic'**\
-`Brendan Rodgers left Celtic on Monday — with the club heavily criticising their now former manager`\
-https://nytimes.com/athletic/6757433/2025/10/28/celtic-brendan-rodgers-analysis/
 
