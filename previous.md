@@ -1,3 +1,7 @@
+**Bill de Blasio Denies Questioning Mamdani’s Agenda in British Newspaper**\
+`The former New York City mayor said comments attributed to him about Zohran Mamdani, reported in The Times of London on Tuesday, were fabricated.`\
+https://nytimes.com/2025/10/28/nyregion/bill-de-blasio-mamdani-agenda.html
+
 **Federal Union’s Demand to End Shutdown Fails to Sway Democrats**\
 `Senate Republicans cited a call by the American Federation of Government Employees to pass a funding extension in an attempt to pressure Democrats to relent. The effort fell flat.`\
 https://nytimes.com/2025/10/28/us/politics/federal-unions-demand-to-end-shutdown-fails-to-sway-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/weather/100000010486530/hurricane-melissa-makes-landfa
 **RB Leipzig supporter dies after medical emergency at DFB-Pokal game**\
 `The incident occurred while the fan was entering the stadium. A minute's silence was held at the start of the second half.`\
 https://nytimes.com/athletic/6758181/2025/10/28/rb-leipzig-fan-dies/
-
-**Guard Is Convicted of Pursuing Jail Smugglers and Firing at Them**\
-`Leon Wilson, a veteran correctional officer at the Metropolitan Detention Center, chased the people from the lockup’s parking lot to the Brooklyn Bridge.`\
-https://nytimes.com/2025/10/28/nyregion/metropolitan-detention-center-guard-convicted.html
 

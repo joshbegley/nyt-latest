@@ -1,3 +1,7 @@
+**Bill de Blasio Denies Questioning Mamdani’s Agenda in British Newspaper**\
+`The former New York City mayor said comments attributed to him about Zohran Mamdani, reported in The Times of London on Tuesday, were fabricated.`\
+https://nytimes.com/2025/10/28/nyregion/bill-de-blasio-mamdani-agenda.html
+
 **Federal Union’s Demand to End Shutdown Fails to Sway Democrats**\
 `Senate Republicans cited a call by the American Federation of Government Employees to pass a funding extension in an attempt to pressure Democrats to relent. The effort fell flat.`\
 https://nytimes.com/2025/10/28/us/politics/federal-unions-demand-to-end-shutdown-fails-to-sway-democrats.html
