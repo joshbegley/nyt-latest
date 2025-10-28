@@ -1,3 +1,11 @@
+**Jewish Heirs Sue the Met, Saying a van Gogh It Sold Was Nazi Loot**\
+`The museum says it had no idea at the time, but the heirs say the Met curator who bought and sold the work, a former U.S. Army specialist on looting, should have known better.`\
+https://nytimes.com/2025/10/28/arts/design/jewish-heirs-sue-met-van-gogh-nazi-loot.html
+
+**Pat and Cam Spencer bring fans to their feet during last-second matchup**\
+`Brothers Cam and Pat Spencer went one-on-one at the end of the Golden State Warriors 131-118 win over the Memphis Grizzlies in Chase Center`\
+https://nytimes.com/athletic/6757016/2025/10/28/warriors-grizzlies-pat-cam-spencer-brothers/
+
 **Dozens of States Sue Trump Administration Over Planned Food Stamp Cuts**\
 `The states petitioned a federal court days after the Agriculture Dept. said it would not take emergency steps to provide aid during the government shutdown.`\
 https://nytimes.com/2025/10/28/us/politics/trump-food-stamps-snap-lawsuit.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6756439/2025/10/28/arsenal-injuries-martinelli-sali
 **I rode shotgun with an F1 driver at 180mph. One track wants more fans to do the same**\
 `F1's invite-only hot lap program serves VIPs. COTA's answer? A theme park where anyone can ride the track`\
 https://nytimes.com/athletic/6755468/2025/10/28/f1-hot-laps-pirelli-cota/
-
-**Attacking Mamdani’s Muslim faith, Cuomo has played to voters’ fears.**\
-`Andrew Cuomo is escalating his warnings that “mayhem” would follow a victory by Zohran Mamdani — even posting an A.I.-generated video that depicts his supporters as criminals.`\
-https://nytimes.com/live/2025/10/28/nyregion/nyc-mayor-election-news/attacking-mamdanis-muslim-faith-cuomo-has-played-to-voters-fears
-
-**It’s Easier Than Ever to Turn Your Dial to a Live Event**\
-`Broadcast TV continues to draw big audiences. And they are increasingly getting special events, award shows and sports — lots of sports.`\
-https://nytimes.com/2025/10/28/business/media/broadcast-tv-live-events.html
 
