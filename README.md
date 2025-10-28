@@ -2,7 +2,7 @@
 `Only Aston Martin, who committed a minor procedural breach but did not exceed the cost cap, failed to fully comply with the regulations.`\
 https://nytimes.com/athletic/6756466/2025/10/28/f1-fia-cost-cap-2024/
 
-**Israel Conducts First Airstrike in West Bank in Months, Kills 3**\
+**Israel Conducts First Airstrike in West Bank in Months and Kills 3**\
 `A militant group allied with Hamas confirmed the deaths, which were part of an increase in fighting in the Palestinian territory during a surge of settler violence.`\
 https://nytimes.com/2025/10/28/world/middleeast/jenin-west-bank-airstrike-israel.html
 
@@ -24,7 +24,7 @@ https://nytimes.com/athletic/6754522/2025/10/28/bucks-nba-giannis-aj-green-ryan-
 
 **Prunella Scales, Sybil on ‘Fawlty Towers,’ Dies at 93**\
 `Best known “for playing unfortunate wives,” she had a decades-long career in the theater and on television.`\
-https://nytimes.com/2025/10/28/obituaries/prunella-scales-dead.html
+https://nytimes.com/2025/10/28/arts/television/prunella-scales-dead.html
 
 **Rosenthal: After 18 inning epic, what will the Dodgers and Blue Jays have left for Game 4?**\
 `The teams combined for 609 pitches and six hours and 39 minutes of World Series insanity in Monday's Game 3. `\

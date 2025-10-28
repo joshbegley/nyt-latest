@@ -1,3 +1,15 @@
+**FIA reveals no F1 2024 cost cap breaches after wait for results**\
+`Only Aston Martin, who committed a minor procedural breach but did not exceed the cost cap, failed to fully comply with the regulations.`\
+https://nytimes.com/athletic/6756466/2025/10/28/f1-fia-cost-cap-2024/
+
+**Israel Conducts First Airstrike in West Bank in Months, Kills 3**\
+`A militant group allied with Hamas confirmed the deaths, which were part of an increase in fighting in the Palestinian territory during a surge of settler violence.`\
+https://nytimes.com/2025/10/28/world/middleeast/jenin-west-bank-airstrike-israel.html
+
+**Inside Real Madrid: Will Vinicius Jr face punishment over Clasico outburst?**\
+`After Sunday's Clasico win over Barcelona, there's a lot to catch up on at Real Madrid`\
+https://nytimes.com/athletic/6756210/2025/10/28/real-madrid-vinicius-barcelona-alonso-news/
+
 **After 0-3 start, Pelicans face an early-season crossroads moment**\
 `A mysterious Zion Williamson injury preceded an embarrassing loss to the Celtics. Could major changes be on the way?`\
 https://nytimes.com/athletic/6756336/2025/10/28/pelicans-willie-green-0-3-start/

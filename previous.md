@@ -1,3 +1,15 @@
+**FIA reveals no F1 2024 cost cap breaches after wait for results**\
+`Only Aston Martin, who committed a minor procedural breach but did not exceed the cost cap, failed to fully comply with the regulations.`\
+https://nytimes.com/athletic/6756466/2025/10/28/f1-fia-cost-cap-2024/
+
+**Israel Conducts First Airstrike in West Bank in Months, Kills 3**\
+`A militant group allied with Hamas confirmed the deaths, which were part of an increase in fighting in the Palestinian territory during a surge of settler violence.`\
+https://nytimes.com/2025/10/28/world/middleeast/jenin-west-bank-airstrike-israel.html
+
+**Inside Real Madrid: Will Vinicius Jr face punishment over Clasico outburst?**\
+`After Sunday's Clasico win over Barcelona, there's a lot to catch up on at Real Madrid`\
+https://nytimes.com/athletic/6756210/2025/10/28/real-madrid-vinicius-barcelona-alonso-news/
+
 **After 0-3 start, Pelicans face an early-season crossroads moment**\
 `A mysterious Zion Williamson injury preceded an embarrassing loss to the Celtics. Could major changes be on the way?`\
 https://nytimes.com/athletic/6756336/2025/10/28/pelicans-willie-green-0-3-start/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6756143/2025/10/28/wembanyama-mvp-lakers-austin-rea
 **Melissa’s Powerful Winds Could Be Even Worse in Jamaica’s Mountains**\
 `Gusts in higher elevations could be up to 30 percent stronger, the National Hurricane Center said.`\
 https://nytimes.com/2025/10/28/weather/hurricane-melissa-jamaica-mountains-winds.html
-
-**NBA national TV game guide: Superlatives for Knicks-Bucks, Lakers-Wolves and more**\
-`Here's what to check for around the NBA this week, plus superlatives for each prime-time listing.`\
-https://nytimes.com/athletic/6754615/2025/10/28/nba-nbc-schedule-knicks-bucks-lakers-how-to-watch/
-
-**Ravens seem more likely to add than subtract before trade deadline. But who's available?**\
-`Now just two games out of first place in the AFC North, Baltimore could look for ways to bolster its roster ahead of the trade deadline. `\
-https://nytimes.com/athletic/6755887/2025/10/28/ravens-buyers-2025-trade-deadline/
-
-**Shohei Ohtani's historic, draining performance begs question before Game 4 start: What's next?**\
-`"I’m sure he’ll set another record or something," Mookie Betts said of Game 4, which was set to start 17 hours after Monday's marathon.`\
-https://nytimes.com/athletic/6756253/2025/10/28/shohei-ohtani-dodgers-game-3/
 
