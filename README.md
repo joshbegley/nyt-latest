@@ -2,6 +2,10 @@
 `ESPN is zeroing in on its plan for its high-profile early-evening programming window, reports The Athletic's Andrew Marchand.`\
 https://nytimes.com/athletic/6755369/2025/10/28/scott-van-pelt-espn-burke-magnus-sportscenter/
 
+**QB stock report: Daniel Jones is the latest second-act success story**\
+`“We do more as teams to screw up these guys than anything the quarterbacks do.”`\
+https://nytimes.com/athletic/6755490/2025/10/28/qb-stock-report-daniel-jones-rankings/
+
 **NFL Week 9 Power Rankings: The Colts run game, Micah Parsons and other scary things**\
 `The Week 9 power rankings arrive with a new No. 1, the Packers and Eagles on the rise and something scary about each team. Happy Halloween!`\
 https://nytimes.com/athletic/6753906/2025/10/28/nfl-power-rankings-week-9-colts-micah-parsons-halloween/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/28/world/europe/autobahn-speeding-father-son-essay.h
 **Sudan’s Military Withdraws From Key City in Darfur After Monthlong Battle**\
 `Sudan’s military chief, Gen. Abdel Fattah al-Burhan, confirmed that his forces had withdrawn from El Fasher, a decisive shift in control of the sprawling Darfur region of Sudan.`\
 https://nytimes.com/2025/10/28/world/africa/sudan-el-fasher-burhan-rsf.html
-
-**Amid a Record Party Investment, Two Candidates for Governor Join Forces**\
-`Rep. Mikie Sherrill of New Jersey and former Rep. Abigail Spanberger of Virginia will appear together on Wednesday, hoping to energize Democratic campaign volunteers, and voters.`\
-https://nytimes.com/2025/10/28/us/politics/amid-a-record-party-investment-two-candidates-for-governor-join-forces.html
 
