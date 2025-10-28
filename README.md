@@ -1,3 +1,15 @@
+**Patriots trading DE Keion White to pass-rush-needy 49ers: Sources**\
+`Keion White will help replace Nick Bosa, who was lost to a torn ACL in Week 3.`\
+https://nytimes.com/athletic/6758357/2025/10/28/keion-white-trade-49ers-patriots/
+
+**Cuba Is No Stranger to Hurricanes**\
+`In the last 25 years, a total of 10 major hurricanes have lashed the island. “Cuba is right in the center of things,” a weather historian said.`\
+https://nytimes.com/2025/10/28/weather/hurricane-melissa-landfall-cuba.html
+
+**The Top 10 Architectural Sites to See in Mumbai**\
+`In contrast to the Indian city’s scores of residential towers, its best buildings are lower to the ground — and a flamboyant reflection of its multiculturalism.`\
+https://nytimes.com/2025/10/28/t-magazine/mumbai-architecture-buildings-guide.html
+
 **Agyemang injury during England's win over Australia 'looks bad'**\
 `The 19-year-old Kopa Trophy nominee came on for Alessia Russo but went down after challenging for the ball in the second half.`\
 https://nytimes.com/athletic/6758163/2025/10/28/agyemang-england-injury-stretcher/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/28/briefing/hurricane-melissa-jamaica-misty-copeland
 **Following in the Footsteps of Charlie Kirk?**\
 `In a crowded field of would-be successors, Brilyn Hollyhand hopes to capture the minds of young conservatives across America.`\
 https://nytimes.com/2025/10/28/style/brilyn-hollyhand-charlie-kirk-young-republicans.html
-
-**As the Dodgers' relievers put forth a heroic Game 3 effort, they honored Alex Vesia**\
-`Dodgers relievers all had the No. 51 stitched on the side of their caps in honor of Vesia, who is dealing with a “deeply personal matter."`\
-https://nytimes.com/athletic/6758138/2025/10/28/dodgers-bullpen-alex-vesia-honored/
-
-**Hurricane Melissa Is Rewriting the Record Books**\
-`The storm is one of the strongest on record in the Atlantic Ocean.`\
-https://nytimes.com/2025/10/28/weather/hurricane-melissa-strongest-storms-atlantic-record.html
-
-**Hurricane Melissa Makes Landfall**\
-`Hurricane Melissa, a Category 5 storm, made landfall near New Hope, Jamaica, on Tuesday. With wind speeds of 185 miles per hour and sustained winds stronger than those of Hurricane Katrina, Melissa is now the fifth-strongest hurricane on record in the Atlantic Ocean.`\
-https://nytimes.com/video/weather/100000010486530/hurricane-melissa-makes-landfall.html
 
