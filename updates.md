@@ -1,3 +1,15 @@
+**Starlink is keeping some people in Jamaica online during the storm, but for how long?**\
+`By Pranav Baskar`\
+https://nytimes.com/live/2025/10/28/weather/hurricane-melissa-jamaica-landfall/starlink-is-keeping-some-people-in-jamaica-online-during-the-storm-but-for-how-long
+
+**10 Accused of Cyberbullying France’s First Lady Stand Trial. Here’s What to Know.**\
+`Brigitte Macron filed a criminal complaint in Paris after claims about her gender and her relationship with President Emmanuel Macron went viral. The accused deny wrongdoing.`\
+https://nytimes.com/2025/10/28/world/europe/brigitte-macron-cyberbullying-trial.html
+
+**12 Hours in the Smoke**\
+`Across the country, wildfire fighters work for weeks at a time in poisonous smoke. The government says they are protected. We tested the air at one fire to find out why they are still dying.`\
+https://nytimes.com/interactive/2025/10/28/us/smoke-exposure.html
+
 **Hurricane Melissa Snarls Travel Across the Caribbean**\
 `Airlines canceled flights and cruise lines rerouted ships to avoid the storm, which could affect destinations like the Bahamas and the Turks and Caicos next.`\
 https://nytimes.com/2025/10/28/weather/hurricane-melissa-snarls-travel-across-the-caribbean.html
