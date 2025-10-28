@@ -1,3 +1,7 @@
+**Seth Meyers Thinks Trump Is Trolling With Third-Term Talk**\
+`The president says he hasn’t really thought about a third term. Meyers said that was “like James Cameron saying he hasn’t thought about ‘Avatar 4.’”`\
+https://nytimes.com/2025/10/28/arts/television/seth-meyers-trump-third-term.html
+
 **Halloween Candy**\
 `What’s your favorite? Are there any you avoid?`\
 https://nytimes.com/2025/10/28/learning/halloween-candy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/28/world/asia/trump-asia-photos.html
 **Man Admits in Court to Killing Shinzo Abe, Former Prime Minister of Japan**\
 `Tetsuya Yamagami, 45, was charged with killing Mr. Abe with a homemade gun during an election campaign event in 2022.`\
 https://nytimes.com/2025/10/28/world/asia/japan-shinzo-abe-assassination-suspect-guilty.html
-
-**Trump Wins Praise in Japan, but No Movements on Trade**\
-`President Trump and Sanae Takaichi, the Japanese prime minister, traded compliments during a stop in Tokyo, but signaled no major breakthrough in ongoing trade negotiations.`\
-https://nytimes.com/2025/10/28/us/politics/trump-takaichi-japan-meeting.html
 
