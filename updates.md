@@ -1,3 +1,15 @@
+**Trump’s Pick for Ambassador to Kuwait on Path to Failure**\
+`Three Republican senators whose votes would be needed to advance Amer Ghalib’s nomination said they would oppose him, all but assuring it would stall.`\
+https://nytimes.com/2025/10/28/us/politics/trumps-pick-for-ambassador-to-kuwait-on-path-to-failure.html
+
+**George Springer's status to play is 'hour to hour' ahead of World Series Game 4**\
+`Springer left Game 3 in the seventh inning clutching his right side after a swing. His status remains murky hours before first pitch.`\
+https://nytimes.com/athletic/6757808/2025/10/28/george-springer-blue-jays-health-world-series/
+
+**Anyone Who’s Anyone Got Their Start at Joe’s Pub**\
+`Despite its small stage, the cabaret space inside New York’s Public Theater building has made an outsize imprint on the city’s art scene.`\
+https://nytimes.com/2025/10/28/t-magazine/joes-pub.html
+
 **At Least 64 Dead in Rio de Janeiro as Authorities Crack Down on Drug Gangs**\
 `The authorities said the deadliest operation in Rio’s history had killed four police officers and at least 60 other people. It was an attack on “narco-terrorists,” the state governor said.`\
 https://nytimes.com/2025/10/28/world/brazil-rio-de-janeiro-police-drug-raids-deaths.html
