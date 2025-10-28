@@ -1,3 +1,7 @@
+**Fantasy football Week 9 drops: Sun sets on Golden, Gadsden eclipses Johnston**\
+`Gary Davenport suggests players who can be swept away from fantasy rosters ahead of Week 9.`\
+https://nytimes.com/athletic/6755957/2025/10/28/fantasy-football-week-9-drops-golden-johnston/
+
 **Four in serious condition after Flamengo fan bus overturned on highway**\
 `The supporters were travelling to Avellaneda for the second leg of Flamengo's Copa Libertadores semi-final against Racing Club.`\
 https://nytimes.com/athletic/6756613/2025/10/28/flamengo-fans-copa-libertadores/
