@@ -1,3 +1,7 @@
+**Virginia Attorney General Election 2025: Latest Polls**\
+`Track the latest polls about Democrat Jay Jones and Republican incumbent Jason Miyares in the Virginia attorney general election.`\
+https://nytimes.com/interactive/polls/virginia-attorney-general-election-polls-2025.html
+
 **Trump’s Pick for Ambassador to Kuwait on Path to Failure**\
 `Three Republican senators whose votes would be needed to advance Amer Ghalib’s nomination said they would oppose him, all but assuring it would stall.`\
 https://nytimes.com/2025/10/28/us/politics/trumps-pick-for-ambassador-to-kuwait-on-path-to-failure.html

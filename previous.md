@@ -16,7 +16,7 @@ https://nytimes.com/2025/10/28/world/brazil-rio-de-janeiro-police-drug-raids-dea
 
 **Virginia Attorney General Election 2025: Latest Polls**\
 `Track the latest polls about Democrat Jay Jones and Republican incumbent Jason Miyares in the Virginia attorney general election.`\
-https://nytimes.com/interactive/2025/polls/virginia-attorney-general-election-polls-2025.html
+https://nytimes.com/interactive/polls/virginia-attorney-general-election-polls-2025.html
 
 **Hurricane Melissa Hits Jamaica as One of the Most Powerful on Record**\
 `The Category 5 storm, whose sustained wind speeds surpassed those of Hurricane Katrina, peeled roofs off homes, swelled rivers and drew dire warnings from officials.`\
