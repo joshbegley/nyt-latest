@@ -1,3 +1,11 @@
+**Will Trump Meet Kim Jong-un Again? He’s Very Open to the Idea.**\
+`President Trump has said he hopes the North Korean leader will reach out so they can meet again. But there has been no public response from Mr. Kim.`\
+https://nytimes.com/2025/10/28/us/politics/trump-kim-jong-un-north-korea.html
+
+**Trump Administration Live Updates: Fanfare on President’s Japan Trip, but no Trade Breakthrough**\
+``\
+https://nytimes.com/live/2025/10/28/us/trump-news-japan
+
 **Trump and Japan’s New Prime Minister Trade Compliments**\
 `Prime Minister Sanae Takaichi of Japan welcomed President Trump to a gold-gilded palace in Tokyo on Tuesday. While they traded niceties, there was little progress on trade talks.`\
 https://nytimes.com/video/world/asia/100000010485211/trump-takaichi-japan-meeting.html
