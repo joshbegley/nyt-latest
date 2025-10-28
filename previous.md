@@ -1,3 +1,23 @@
+**World Series bullpen check: Who is likely to be available after the 18-inning marathon?**\
+`Both teams emptied their bullpens during Monday night's 18-inning game. A look at how available each reliever is likely to be on Tuesday.`\
+https://nytimes.com/athletic/6758026/2025/10/28/world-series-bullpen-availability-dodgers-blue-jays/
+
+**A Timeline of Trump’s Strikes on Vessels He Says Are Smuggling Drugs**\
+`President Trump’s military campaign has killed at least 57 people in the waters off Central and South America. The strikes have been widely criticized as illegal.`\
+https://nytimes.com/article/trump-drug-boat-strikes-timeline.html
+
+**F.C.C. Changes Course on the Price of Prisoners’ Phone Calls**\
+`Brendan Carr, the F.C.C. chairman, cited security concerns in rolling back most of the lower costs he voted for last year.`\
+https://nytimes.com/2025/10/28/upshot/prisoners-phone-calls-prices.html
+
+**Lily Allen and David Harbour List Their Brooklyn Brownstone**\
+`The musician and the actor, who separated months ago, are asking just under $8 million. Also, the Weeknd and Mark Wahlberg buy estates in South Florida. Roseanne Barr sells her nut farm.`\
+https://nytimes.com/2025/10/28/realestate/lily-allen-david-harbour-weeknd-wahlberg-home-sales.html
+
+**Official’s Access to F.B.I. Files in Charlie Kirk Case Drew Pushback**\
+`An inquiry by Joe Kent, who leads the National Counterterrorism Center, is said to have alarmed Kash Patel, the F.B.I. director.`\
+https://nytimes.com/2025/10/28/us/politics/fbi-files-charlie-kirk-case.html
+
 **Trump Administration Reinstalls Confederate Statue in Washington**\
 `The statue of Albert Pike, a Confederate general who worked closely with slave-owning Native American tribes, is the only monument of its kind in the nation’s capital.`\
 https://nytimes.com/2025/10/28/us/politics/confederate-statue-trump.html
@@ -17,20 +37,4 @@ https://nytimes.com/athletic/6758031/2025/10/28/norrie-alcaraz-paris-masters-res
 **The Two Big Questions Surrounding Bill Gates’s Climate Memo**\
 `The Microsoft co-founder wrote a lengthy memo warning against climate alarmism. Will it change how people talk about the issue or who funds climate action?`\
 https://nytimes.com/2025/10/28/climate/the-two-big-questions-surrounding-bill-gatess-climate-memo.html
-
-**College Football Playoff odds: 10 teams favored to get in with 2 contenders lurking**\
-`The College Football Playoff picture cleared up significantly after Week 9. Will that remain the case or will Week 10 serve some upsets?`\
-https://nytimes.com/athletic/6757474/2025/10/28/college-football-playoff-odds-texas-am-ole-miss/
-
-**Kitchens**\
-``\
-https://nytimes.com/spotlight/kitchens
-
-**Volunteers Step In to Help Understaffed NOAA Track Hurricane Melissa**\
-`Staffing cuts and a federal government shutdown are stretching scientists’ ability to make valuable hurricane observations.`\
-https://nytimes.com/2025/10/28/climate/noaa-volunteers-hurricane-melissa.html
-
-**U.N. prepares to send food and supplies to the Caribbean after Hurricane Melissa.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2025/10/28/weather/hurricane-melissa-jamaica-landfall/hurricane-melissa-un-aid-caribbean
 
