@@ -1,3 +1,15 @@
+**Dozens of States Sue Trump Administration Over Planned Food Stamp Cuts**\
+`The states petitioned a federal court days after the Agriculture Dept. said it would not take emergency steps to provide aid during the government shutdown.`\
+https://nytimes.com/2025/10/28/us/politics/trump-food-stamps-snap-lawsuit.html
+
+**The Perimenopause Whisper Network**\
+`For some women, it feels like the only way to get medical care is to know someone who knows someone who can Whatsapp your book club group chat.`\
+https://nytimes.com/2025/10/28/style/the-perimenopause-whisper-network.html
+
+**Lauri Markkanen becomes first Jazz player since Karl Malone to score 50-plus**\
+`In Monday's overtime win over the Suns, Markkanen became the first Jazz player to score at least 50 points since 1998.`\
+https://nytimes.com/athletic/6756696/2025/10/28/lauri-markkanen-jazz-51-point-career-high/
+
 **In Two Solo Plays, a Search for Belonging and Parental Love**\
 `Ari’el Stachel’s “Other” and Zoë Kim’s “Did You Eat?” are self-interrogations that deal with family, race and identity.`\
 https://nytimes.com/2025/10/28/theater/ariel-stachel-other-zoe-kim-did-you-eat.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/10/28/nyregion/nyc-mayor-election-news/attacking-m
 **It’s Easier Than Ever to Turn Your Dial to a Live Event**\
 `Broadcast TV continues to draw big audiences. And they are increasingly getting special events, award shows and sports — lots of sports.`\
 https://nytimes.com/2025/10/28/business/media/broadcast-tv-live-events.html
-
-**Cuomo, Adams, Cuomo? Paterson Will Make Third Endorsement in Mayor’s Race.**\
-`Former Gov. David  A. Paterson appears to be of two minds when it comes to endorsing a candidate for New York mayor.`\
-https://nytimes.com/2025/10/28/nyregion/paterson-cuomo-endorsement.html
-
-**Lily Allen Confronts the Tabloids by Becoming One**\
-`The British singer and songwriter’s new album, “West End Girl,” is a salacious autobiography. For pop fans hungry for real-life details, it’s proving irresistible.`\
-https://nytimes.com/2025/10/28/arts/music/lily-allen-west-end-girl.html
-
-**From globetrotting with LaMelo to diving deep on Giannis, how Mirin Fader sees storytelling**\
-`There has never been a more fascinating time for storytelling in the NBA, writes Mirin Fader.`\
-https://nytimes.com/athletic/6755324/2025/10/28/mirin-fader-nba-writer-the-athletic/
 
