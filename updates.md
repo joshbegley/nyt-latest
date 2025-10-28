@@ -1,3 +1,11 @@
+**Hundreds of thousands of Cubans have already evacuated in anticipation of the hurricane.**\
+`By Ed Augustin`\
+https://nytimes.com/live/2025/10/28/weather/hurricane-melissa-jamaica-landfall/hundreds-of-thousands-of-cubans-have-already-evacuated-in-anticipation-of-the-hurricane
+
+**Britain Plans to Convert Two Military Bases to House Asylum Seekers**\
+`The government has been under pressure to shut down hotels accommodating migrants as public anger rises.`\
+https://nytimes.com/2025/10/28/world/europe/britain-asylum-seekers.html
+
 **‘The Beginning of a Movement’: Snapshots From a Mamdani Rally**\
 `Zohran Mamdani’s rally on Sunday nearly filled Forest Hills Stadium in Queens, which holds 13,000 attendees. Here’s why some of them went, in their own words.`\
 https://nytimes.com/2025/10/28/nyregion/photos-mamdani-aoc-bernie-rally.html
