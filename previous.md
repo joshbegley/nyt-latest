@@ -1,3 +1,15 @@
+**Scolded by Trump, Canada’s Prime Minister Turns to Asia for Trade**\
+`Mark Carney is pitching Canada as a predictable and responsible alternative to the United States.`\
+https://nytimes.com/2025/10/28/world/canada/carney-asia-trade-trump.html
+
+**Dallas Mavericks fans swap Cooper Flagg's last name into national anthem lyric**\
+`Dallas Mavericks fans have made a fast tradition of singing Cooper Flagg's name during the national anthem at home games.`\
+https://nytimes.com/athletic/6756501/2025/10/28/cooper-flagg-mavericks-fans-national-anthem/
+
+**The Windup: All of Game 3's historic layers**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6756639/2025/10/28/world-series-game-3-dodgers-the-windup/
+
 **Newsom to Redistricting Donors: Stop Giving Me Money**\
 `In an unusual show of confidence, Gov. Gavin Newsom said he raised enough cash more than a week before the California redistricting election.`\
 https://nytimes.com/2025/10/28/us/newsom-redistricting-donors-proposition-50.html
@@ -25,17 +37,4 @@ https://nytimes.com/athletic/6756678/2025/10/28/rodri-haaland-manchester-city-in
 **WTA Tour hires Valerie Camillo, veteran of NBA, MLB and NHL, as chair to replace Steve Simon**\
 `Camillo will lead the tour at a time of transition across the tennis world.`\
 https://nytimes.com/athletic/6754584/2025/10/28/wta-tour-chair-valerie-camillo-steve-simon/
-
-**How the Eyes Age — and What to Do About It**\
-`With the most fragile skin on the face, the eye area has a way of recording every squint and smile. Preserving bounce and structure in that region has gotten easier, with help from a next-gen lifting eye cream by Estée Lauder.
-`\
-https://nytimes.com/paidpost/estee-lauder-advanced-night-repair-eye-lift-sculpt/how-the-eyes-age-and-what-to-do-about-it.html
-
-**Early Voting Is Underway in the N.Y.C. Mayor Race. What Can It Tell Us?**\
-`As more than 220,000 New Yorkers cast early ballots, the campaigns of both Zohran Mamdani and Andrew Cuomo remained upbeat.`\
-https://nytimes.com/2025/10/28/nyregion/early-voting-nyc-mayoral-election.html
-
-**NBA's early trend: pressure for 94 feet; plus Grizzlies' super-efficient rookie and more**\
-`The NBA is a copycat league, and the full-court pressure trend is the tactic to crib from other staffs. Plus, phantom shots, real blocks.`\
-https://nytimes.com/athletic/6753950/2025/10/28/nba-first-week-defense-rookies-trends/
 

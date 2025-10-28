@@ -1,3 +1,15 @@
+**Scolded by Trump, Canada’s Prime Minister Turns to Asia for Trade**\
+`Mark Carney is pitching Canada as a predictable and responsible alternative to the United States.`\
+https://nytimes.com/2025/10/28/world/canada/carney-asia-trade-trump.html
+
+**Dallas Mavericks fans swap Cooper Flagg's last name into national anthem lyric**\
+`Dallas Mavericks fans have made a fast tradition of singing Cooper Flagg's name during the national anthem at home games.`\
+https://nytimes.com/athletic/6756501/2025/10/28/cooper-flagg-mavericks-fans-national-anthem/
+
+**The Windup: All of Game 3's historic layers**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6756639/2025/10/28/world-series-game-3-dodgers-the-windup/
+
 **Newsom to Redistricting Donors: Stop Giving Me Money**\
 `In an unusual show of confidence, Gov. Gavin Newsom said he raised enough cash more than a week before the California redistricting election.`\
 https://nytimes.com/2025/10/28/us/newsom-redistricting-donors-proposition-50.html
