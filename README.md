@@ -1,3 +1,11 @@
+**Johnson Dismisses Trump 2028 Talk — But Applauds the ‘Trolling’**\
+`The speaker said he did not see a path to amending the Constitution to allow the president to seek a third term, but that it was fun to pretend he could to inflame Democrats.`\
+https://nytimes.com/2025/10/28/us/politics/johnson-trump-2028-constitution.html
+
+**What Zohran Mamdani Learned as an Africana Studies Major at Bowdoin**\
+`The mayoral candidate has said his education was formative. But critics say that his degree exemplifies how colleges steep students in leftist dogma.`\
+https://nytimes.com/2025/10/28/us/politics/zohran-mamdani-bowdoin-college-new-york-mayor-election.html
+
 **Starlink is keeping some people in Jamaica online during the storm, but for how long?**\
 `By Pranav Baskar`\
 https://nytimes.com/live/2025/10/28/weather/hurricane-melissa-jamaica-landfall/starlink-is-keeping-some-people-in-jamaica-online-during-the-storm-but-for-how-long
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6757221/2025/10/28/orlando-magic-fast-pace/
 **Will a Dodgers Title Bring a Salary Cap to the M.L.B.?**\
 `M.L.B.’s owners look likely to lock out the players when the collective bargaining agreement expires in December 2026 in an effort to bring a cap to the sport.`\
 https://nytimes.com/video/sports/100000010486188/will-a-dodgers-title-bring-a-salary-cap-to-the-mlb.html
-
-**Sour Cream and Onion Biscuits**\
-`These quick, buttery biscuits taste very much like sour cream and onion chips, but the ingredient list doesn’t include either: The tangy flavor is buttermilk and grated Parmesan. Along with chives, the combination manages to taste remarkably like the beloved chip flavor.`\
-https://nytimes.com/video/dining/100000010486103/sour-cream-and-onion-biscuits.html
-
-**Dodgers-Blue Jays 18-inning marathon 'worth it' for sleep-deprived fans**\
-`The Dodgers and Blue Jays kept fans up way past their bedtimes Monday night — and delivered an October classic worth staying up for.`\
-https://nytimes.com/athletic/6756941/2025/10/28/dodgers-blue-jays-world-series-fans-sleep-deprived/
 
