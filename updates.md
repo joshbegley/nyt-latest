@@ -1,3 +1,8 @@
+**How the Eyes Age — and What to Do About It**\
+`With the most fragile skin on the face, the eye area has a way of recording every squint and smile. Preserving bounce and structure in that region has gotten easier, with help from a next-gen lifting eye cream by Estée Lauder.
+`\
+https://nytimes.com/paidpost/estee-lauder-advanced-night-repair-eye-lift-sculpt/how-the-eyes-age-and-what-to-do-about-it.html
+
 **Early Voting Is Underway in the N.Y.C. Mayor Race. What Can It Tell Us?**\
 `As more than 220,000 New Yorkers cast early ballots, the campaigns of both Zohran Mamdani and Andrew Cuomo remained upbeat.`\
 https://nytimes.com/2025/10/28/nyregion/early-voting-nyc-mayoral-election.html

@@ -1,3 +1,8 @@
+**How the Eyes Age — and What to Do About It**\
+`With the most fragile skin on the face, the eye area has a way of recording every squint and smile. Preserving bounce and structure in that region has gotten easier, with help from a next-gen lifting eye cream by Estée Lauder.
+`\
+https://nytimes.com/paidpost/estee-lauder-advanced-night-repair-eye-lift-sculpt/how-the-eyes-age-and-what-to-do-about-it.html
+
 **Early Voting Is Underway in the N.Y.C. Mayor Race. What Can It Tell Us?**\
 `As more than 220,000 New Yorkers cast early ballots, the campaigns of both Zohran Mamdani and Andrew Cuomo remained upbeat.`\
 https://nytimes.com/2025/10/28/nyregion/early-voting-nyc-mayoral-election.html
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/6755998/2025/10/28/pistons-loss-offense-cavs/
 **Weird & Wild: World Series Game 3 was one for the ages, 6 hours and 39 minutes of madness**\
 `These are the games that live on forever. These are the home runs that never come down. These are the memories that don’t ever fade.`\
 https://nytimes.com/athletic/6756450/2025/10/28/world-series-game-3-dodgers-blue-jays-facts/
-
-**Curtis Sliwa is not about to give up the spotlight.**\
-`Mr. Sliwa, the Republican nominee for mayor of New York City, finds himself a major player in the race. He’s under heavy pressure to drop out.`\
-https://nytimes.com/live/2025/10/28/nyregion/nyc-mayor-election-news/curtis-sliwa-is-not-about-to-give-up-the-spotlight
 
