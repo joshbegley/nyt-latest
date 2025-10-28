@@ -1,3 +1,7 @@
+**Ivory Coast President Secures 4th Term in Election Without Top Opponents**\
+`President Alassane Ouattara won 89.77 percent of the vote, but critics called the elections flawed after two main challengers were barred from running.`\
+https://nytimes.com/2025/10/27/world/africa/ivory-coast-president-election-ouattara-wins.html
+
 **Longtime Astros pitching coach Bill Murphy leaving for Pirates: Sources**\
 `Under Murphy, over the past four seasons, Houston’s pitching staff boasted baseball’s lowest ERA and second-highest strikeouts per nine.`\
 https://nytimes.com/athletic/6755441/2025/10/27/astros-bill-murphy-pitching-coach-pirates-sources/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6755407/2025/10/27/south-carolina-vs-ole-miss-strea
 **How to watch Purdue vs. Michigan: Time, TV, streaming**\
 `Find out how to watch the Purdue Boilermakers play the Michigan Wolverines, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6755399/2025/10/27/purdue-vs-michigan-stream-how-to-watch-nov-1/
-
-**How to watch Mississippi State vs. Arkansas: Time, TV, streaming**\
-`Find out how to watch the Mississippi State Bulldogs play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6755396/2025/10/27/mississippi-state-vs-arkansas-stream-how-to-watch-nov-1/
 
