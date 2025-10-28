@@ -1,3 +1,11 @@
+**Hurricane Melissa Snarls Travel Across the Caribbean**\
+`Airlines canceled flights and cruise lines rerouted ships to avoid the storm, which could affect destinations like the Bahamas and the Turks and Caicos next.`\
+https://nytimes.com/2025/10/28/weather/hurricane-melissa-snarls-travel-across-the-caribbean.html
+
+**Paramilitary Group Takes Key City From Sudan’s Military**\
+`Sudan’s military said that it had withdrawn from the besieged city of El Fasher in Darfur, where the Rapid Support Forces captured the city’s main military base and were reportedly shooting civilians trying to flee.`\
+https://nytimes.com/video/world/africa/100000010486454/sudan-darfur-rsf-el-fasher.html
+
 **Shutdown Makes Air Travel System ‘Less Safe,’ Air Traffic Controllers Say**\
 `Controllers have urged air passengers to contact their representatives to end the shutdown. The transportation secretary also warned of consequences for travel, though he said the system remained safe.`\
 https://nytimes.com/2025/10/28/us/politics/shutdown-air-traffic-controllers-duffy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6757414/2025/10/28/blues-jake-neighbours-injury-leg
 **Trump Administration Backs Plan for New Nuclear Plants**\
 `The federal government announced that it would back an effort to build several Westinghouse nuclear reactors, but offered few details.`\
 https://nytimes.com/2025/10/28/business/energy-environment/trump-nuclear-westinghouse-deal.html
-
-**11 Songs for the Witching Hour**\
-`Get into the spooky season zone with Björk, Spellling, Salem and more.`\
-https://nytimes.com/2025/10/28/arts/music/amplifier-newsletter-halloween-witching-songs.html
-
-**World Series odds: What does Shohei Ohtani have in store next?**\
-`The Dodgers are clear favorites to win the World Series and the odds around Shohei Ohtani are projecting another special performance.`\
-https://nytimes.com/athletic/6757186/2025/10/28/world-series-odds-dodgers-blue-jays-shohei-ohtani/
 
