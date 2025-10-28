@@ -1,5 +1,5 @@
 **‘The Beginning of a Movement’: Snapshots From a Mamdani Rally**\
-`Zohran Mamdani’s rally on Sunday nearly filled Forest Hills Stadium in Queens. Here’s why some of them went, in their own words.`\
+`Zohran Mamdani’s rally on Sunday nearly filled Forest Hills Stadium in Queens, which holds 13,000 attendees. Here’s why some of them went, in their own words.`\
 https://nytimes.com/2025/10/28/nyregion/photos-mamdani-aoc-bernie-rally.html
 
 **Netanyahu Orders New Strikes on Gaza**\
