@@ -1,3 +1,7 @@
+**Wemby for MVP, the Lakers' Austin Reaves dilemma and more early NBA observations**\
+`The Spurs' young big man is doing things we've never seen. Plus: notes on the Sixers, Hawks, Warriors and more.`\
+https://nytimes.com/athletic/6756143/2025/10/28/wembanyama-mvp-lakers-austin-reaves-nba/
+
 **Melissa’s Powerful Winds Could Be Even Worse in Jamaica’s Mountains**\
 `Gusts in higher elevations could be up to 30 percent stronger, the National Hurricane Center said.`\
 https://nytimes.com/2025/10/28/weather/hurricane-melissa-jamaica-mountains-winds.html

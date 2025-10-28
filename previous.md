@@ -1,3 +1,7 @@
+**Wemby for MVP, the Lakers' Austin Reaves dilemma and more early NBA observations**\
+`The Spurs' young big man is doing things we've never seen. Plus: notes on the Sixers, Hawks, Warriors and more.`\
+https://nytimes.com/athletic/6756143/2025/10/28/wembanyama-mvp-lakers-austin-reaves-nba/
+
 **Melissa’s Powerful Winds Could Be Even Worse in Jamaica’s Mountains**\
 `Gusts in higher elevations could be up to 30 percent stronger, the National Hurricane Center said.`\
 https://nytimes.com/2025/10/28/weather/hurricane-melissa-jamaica-mountains-winds.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6754676/2025/10/28/wild-defense-physicality-daemon-
 **Kansas City Current and San Diego Wave join World Sevens Football tournament in U.S.**\
 `The NWSL powerhouses will represent the U.S. in the inaugural World Sevens Football (W7F) Americas tournament in December.`\
 https://nytimes.com/athletic/6754887/2025/10/28/world-sevens-football-teams/
-
-**Big Ten stadium superlatives: Who has the most underrated (and overrated) venue?**\
-`The Big Ten was heavily featured in our college football stadium rankings. Here's what our writers like (and dislike) in the conference.`\
-https://nytimes.com/athletic/6754440/2025/10/28/best-big-ten-college-football-stadiums/
 
