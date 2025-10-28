@@ -1,3 +1,7 @@
+**Seth Meyers Thinks Trump Is Trolling With Third-Term Talk**\
+`The president says he hasn’t really thought about a third term. Meyers said that was “like James Cameron saying he hasn’t thought about ‘Avatar 4.’”`\
+https://nytimes.com/2025/10/28/arts/television/seth-meyers-trump-third-term.html
+
 **Halloween Candy**\
 `What’s your favorite? Are there any you avoid?`\
 https://nytimes.com/2025/10/28/learning/halloween-candy.html
@@ -14,7 +18,7 @@ https://nytimes.com/2025/10/28/science/archaeology-milan-crypt.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/10/28/crosswords/spelling-bee-forum.html
 
-**Blue Jays-Dodgers Game 3 takeaways: Freddie Freeman lifts L.A. in 18-inning classic**\
+**Blue Jays-Dodgers Game 3 takeaways: Freddie Freeman's HR ends 18-inning classic**\
 `The longest game in World Series history was a treat of October theater. In the end, the Dodgers got the win and a 2-1 series lead.`\
 https://nytimes.com/athletic/6755855/2025/10/28/dodgers-blue-jays-world-series-game-3-results-takeaways-mlb/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/28/world/asia/trump-asia-photos.html
 **Man Admits in Court to Killing Shinzo Abe, Former Prime Minister of Japan**\
 `Tetsuya Yamagami, 45, was charged with killing Mr. Abe with a homemade gun during an election campaign event in 2022.`\
 https://nytimes.com/2025/10/28/world/asia/japan-shinzo-abe-assassination-suspect-guilty.html
-
-**Trump Wins Praise in Japan, but No Movements on Trade**\
-`President Trump and Sanae Takaichi, the Japanese prime minister, traded compliments during a stop in Tokyo, but signaled no major breakthrough in ongoing trade negotiations.`\
-https://nytimes.com/2025/10/28/us/politics/trump-takaichi-japan-meeting.html
 

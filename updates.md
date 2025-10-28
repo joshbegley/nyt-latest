@@ -1,3 +1,11 @@
+**Seth Meyers Thinks Trump Is Trolling With Third-Term Talk**\
+`The president says he hasn’t really thought about a third term. Meyers said that was “like James Cameron saying he hasn’t thought about ‘Avatar 4.’”`\
+https://nytimes.com/2025/10/28/arts/television/seth-meyers-trump-third-term.html
+
+**Blue Jays-Dodgers Game 3 takeaways: Freddie Freeman's HR ends 18-inning classic**\
+`The longest game in World Series history was a treat of October theater. In the end, the Dodgers got the win and a 2-1 series lead.`\
+https://nytimes.com/athletic/6755855/2025/10/28/dodgers-blue-jays-world-series-game-3-results-takeaways-mlb/
+
 **Halloween Candy**\
 `What’s your favorite? Are there any you avoid?`\
 https://nytimes.com/2025/10/28/learning/halloween-candy.html
