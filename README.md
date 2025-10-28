@@ -1,3 +1,7 @@
+**I rode shotgun with an F1 driver at 180mph. One track wants more fans to do the same**\
+`F1's invite-only hot lap program serves VIPs. COTA's answer? A theme park where anyone can ride the track`\
+https://nytimes.com/athletic/6755468/2025/10/28/f1-hot-laps-pirelli-cota/
+
 **Attacking Mamdani’s Muslim faith, Cuomo has played to voters’ fears.**\
 `Andrew Cuomo is escalating his warnings that “mayhem” would follow a victory by Zohran Mamdani — even posting an A.I.-generated video that depicts his supporters as criminals.`\
 https://nytimes.com/live/2025/10/28/nyregion/nyc-mayor-election-news/attacking-mamdanis-muslim-faith-cuomo-has-played-to-voters-fears
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6755353/2025/10/28/topps-basketball-cards-hobby-box
 **A Quick Chili That’s So Good It’s Scary**\
 `Genevieve Ko’s new turkey chili recipe is packed with protein and fiber and comes together in under half an hour.`\
 https://nytimes.com/2025/10/28/dining/a-quick-chili-thats-so-good-its-scary.html
-
-**UPS Says It Has Cut 48,000 Workers This Year**\
-`The delivery company said about 70 percent of the layoffs affected drivers and warehouse workers.`\
-https://nytimes.com/2025/10/28/business/ups-layoffs-48000-workers-this-year.html
 

@@ -1,3 +1,7 @@
+**Attacking Mamdani’s Muslim faith, Cuomo has played to voters’ fears.**\
+`Andrew Cuomo is escalating his warnings that “mayhem” would follow a victory by Zohran Mamdani — even posting an A.I.-generated video that depicts his supporters as criminals.`\
+https://nytimes.com/live/2025/10/28/nyregion/nyc-mayor-election-news/attacking-mamdanis-muslim-faith-cuomo-has-played-to-voters-fears
+
 **It’s Easier Than Ever to Turn Your Dial to a Live Event**\
 `Broadcast TV continues to draw big audiences. And they are increasingly getting special events, award shows and sports — lots of sports.`\
 https://nytimes.com/2025/10/28/business/media/broadcast-tv-live-events.html
