@@ -1,3 +1,7 @@
+**Crosby reaches 1,700 points, Malkin tied for NHL scoring lead as Penguins roll**\
+`Sidney Crosby and Evgeni Malkin continued to turn back the clock, while Parker Wotherspoon and Erik Karlsson impressed from the blue line.`\
+https://nytimes.com/athletic/6755633/2025/10/27/penguins-crosby-malkin-scoring-blues/
+
 **Jamaican Officials Worry That Not Enough People Are Evacuating Ahead of Melissa**\
 `As Hurricane Melissa barrels toward the island nation, only a fraction of residents have headed to evacuation centers.`\
 https://nytimes.com/2025/10/27/weather/jamaica-evacuation-orders-shelters.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6755629/2025/10/27/uswnt-world-cup-roster-predictio
 **Missed ball-strike call leads to costly pickoff in World Series Game 3**\
 `Instead of taking a 1-0 lead, a puzzling play that went down as a pickoff at first left the Blue Jays scoreless in the second inning.`\
 https://nytimes.com/athletic/6755615/2025/10/27/dodgers-blue-jays-game-3-missed-call/
-
-**Hurricane Hunters Found Something in Melissa’s Eye: Trapped Birds**\
-`The news “underscores the profound ecological toll that Hurricane Melissa will have on Jamaica’s biodiversity,” said one expert on the island.`\
-https://nytimes.com/2025/10/27/weather/hurricane-melissa-hunters-birds.html
 
