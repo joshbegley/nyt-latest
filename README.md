@@ -1,3 +1,7 @@
+**How to watch Blue Jays at Dodgers: World Series Game 3 Time, TV, streaming**\
+`Find out how to watch the Toronto Blue Jays play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6756023/2025/10/28/blue-jays-vs-dodgers-stream-how-to-watch-oct-28/
+
 **Word of the Day: repertory**\
 `This word has appeared in 154 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/10/28/learning/word-of-the-day-repertory.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6751414/2025/10/28/horncastle-serie-a-briefing-napo
 **Jamaica’s Beach Towns and Fishing Villages Brace for Hurricane Melissa**\
 `Stranded vacationers on the island, which depends on tourism, used their beds to block their windows in case the powerful storm shattered the glass.`\
 https://nytimes.com/2025/10/28/world/americas/jamaica-hurricane-melissa-resorts.html
-
-**Can anyone catch Arsenal?**\
-`The Athletic's writers look at how Mikel Arteta's side might get chased down by their Premier League rivals - and why they won't `\
-https://nytimes.com/athletic/6754322/2025/10/28/can-anyone-catch-arsenal/
 
