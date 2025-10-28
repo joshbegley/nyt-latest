@@ -1,3 +1,7 @@
+**Early Voting Is Underway in the N.Y.C. Mayor Race. What Can It Tell Us?**\
+`As more than 220,000 New Yorkers cast early ballots, the campaigns of both Zohran Mamdani and Andrew Cuomo remained upbeat.`\
+https://nytimes.com/2025/10/28/nyregion/early-voting-nyc-mayoral-election.html
+
 **NBA's early trend: pressure for 94 feet; plus Grizzlies' super-efficient rookie and more**\
 `The NBA is a copycat league, and the full-court pressure trend is the tactic to crib from other staffs. Plus, phantom shots, real blocks.`\
 https://nytimes.com/athletic/6753950/2025/10/28/nba-first-week-defense-rookies-trends/

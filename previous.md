@@ -1,3 +1,7 @@
+**Early Voting Is Underway in the N.Y.C. Mayor Race. What Can It Tell Us?**\
+`As more than 220,000 New Yorkers cast early ballots, the campaigns of both Zohran Mamdani and Andrew Cuomo remained upbeat.`\
+https://nytimes.com/2025/10/28/nyregion/early-voting-nyc-mayoral-election.html
+
 **NBA's early trend: pressure for 94 feet; plus Grizzlies' super-efficient rookie and more**\
 `The NBA is a copycat league, and the full-court pressure trend is the tactic to crib from other staffs. Plus, phantom shots, real blocks.`\
 https://nytimes.com/athletic/6753950/2025/10/28/nba-first-week-defense-rookies-trends/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6756450/2025/10/28/world-series-game-3-dodgers-blue
 **Curtis Sliwa is not about to give up the spotlight.**\
 `Mr. Sliwa, the Republican nominee for mayor of New York City, finds himself a major player in the race. He’s under heavy pressure to drop out.`\
 https://nytimes.com/live/2025/10/28/nyregion/nyc-mayor-election-news/curtis-sliwa-is-not-about-to-give-up-the-spotlight
-
-**Will Bill Gates’s ‘Strategic Pivot’ Shake Up Climate Policy?**\
-`The billionaire philanthropist said it was a mistake to focus so much on “near-term emissions goals,” a position that could generate serious debate.`\
-https://nytimes.com/2025/10/28/business/dealbook/bill-gates-climate-pivot.html
 
