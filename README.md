@@ -1,8 +1,8 @@
-**Agyemang taken off on stretcher during England's win against Australia**\
+**Agyemang injury during England's win over Australia 'looks bad'**\
 `The 19-year-old Kopa Trophy nominee came on for Alessia Russo but went down after challenging for the ball in the second half.`\
 https://nytimes.com/athletic/6758163/2025/10/28/agyemang-england-injury-stretcher/
 
-**Bill de Blasio Denies Questioning Mamdani’s Agenda in British Newspaper**\
+**De Blasio Says U.K. Newspaper Fabricated His Quotes Questioning Mamdani**\
 `The former New York City mayor said comments attributed to him about Zohran Mamdani, reported in The Times of London on Tuesday, were fabricated.`\
 https://nytimes.com/2025/10/28/nyregion/bill-de-blasio-mamdani-agenda.html
 
