@@ -1,3 +1,7 @@
+**U.S. Military Kills 14 More People Accused of Smuggling Drugs on Boats**\
+`Defense Secretary Pete Hegseth said that the three strikes hit four boats in international waters and that there had been one survivor.`\
+https://nytimes.com/2025/10/28/us/politics/us-military-boat-strikes.html
+
 **Would Aroldis Chapman ever pitch for the Yankees again? 'Not even dead'**\
 `Chapman also said he would rather retire than play for the Yankees if he were traded there.`\
 https://nytimes.com/athletic/6756805/2025/10/28/aroldis-chapman-blasts-yankees-retire/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/28/technology/openai-restructure-for-profit-company.
 **WNBA CBA will not meet deadline, players' union legal counsel says**\
 `The deadline to reach a deal is Friday, but the league and union could agree to an extension, which would postpone the deadline.`\
 https://nytimes.com/athletic/6756761/2025/10/28/wnba-cba-deadline-agreement/
-
-**The Fierce Jockeying for House Seats That Don’t Exist (Yet)**\
-`Democrats in California are already starting campaigns and declaring their intentions for hypothetical seats that voters must first approve in the Nov. 4 election.`\
-https://nytimes.com/2025/10/28/us/politics/california-prop-50-house-congress.html
 

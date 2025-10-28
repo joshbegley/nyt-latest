@@ -1,10 +1,18 @@
+**Would Aroldis Chapman ever pitch for the Yankees again? 'Not even dead'**\
+`Chapman also said he would rather retire than play for the Yankees if he were traded there.`\
+https://nytimes.com/athletic/6756805/2025/10/28/aroldis-chapman-blasts-yankees-retire/
+
+**House Report Details Biden’s Decline, Claiming He Was Impaired as President**\
+`The Oversight Committee said aides to former President Joseph R. Biden Jr. covered up his deterioration and asserted that many of his decisions are “void.” The committee’s ranking Democrat called the report a “sham investigation.”`\
+https://nytimes.com/2025/10/28/us/politics/biden-decline-impairment-president-house-report.html
+
 **Japanese Executives Called On by Trump Pledge U.S. Investment**\
 `Toyota said it would sell some of its U.S.-made cars in Japan, one of a number of announcements by companies responding to U.S. pressure over trade imbalances.`\
 https://nytimes.com/2025/10/28/business/trump-japan-toyota.html
 
 **Some Jewish Mamdani Supporters Say Cuomo Is ‘Flattening’ Their Community**\
 `Volunteer canvassers for Zohran Mamdani gathered over the weekend in hopes of combatting Andrew M. Cuomo’s closing pitch to Jewish voters.`\
-https://nytimes.com/2025/10/28/nyregion/some-jewish-mamdani-supporters-say-cuomo-is-flattening-their-community.html
+https://nytimes.com/2025/10/28/nyregion/mamdani-jewish-supporters.html
 
 **The Bounce: Surprise unbeaten teams. Plus, Beef Court rules on Ant vs. SGA shoe-down**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6756761/2025/10/28/wnba-cba-deadline-agreement/
 **The Fierce Jockeying for House Seats That Don’t Exist (Yet)**\
 `Democrats in California are already starting campaigns and declaring their intentions for hypothetical seats that voters must first approve in the Nov. 4 election.`\
 https://nytimes.com/2025/10/28/us/politics/california-prop-50-house-congress.html
-
-**MacKenzie Scott Backs Disaster Recovery in Marginalized Communities**\
-`The billionaire’s $60 million donation to the Center for Disaster Philanthropy counters cuts to federal emergency assistance and diversity programs.`\
-https://nytimes.com/2025/10/28/climate/mackenzie-scott-disaster-gift.html
-
-**Scolded by Trump, Canada’s Prime Minister Turns to Asia for Trade**\
-`Mark Carney is pitching Canada as a predictable and responsible alternative to the United States.`\
-https://nytimes.com/2025/10/28/world/canada/carney-asia-trade-trump.html
 

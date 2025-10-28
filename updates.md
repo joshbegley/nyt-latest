@@ -1,3 +1,15 @@
+**Would Aroldis Chapman ever pitch for the Yankees again? 'Not even dead'**\
+`Chapman also said he would rather retire than play for the Yankees if he were traded there.`\
+https://nytimes.com/athletic/6756805/2025/10/28/aroldis-chapman-blasts-yankees-retire/
+
+**House Report Details Biden’s Decline, Claiming He Was Impaired as President**\
+`The Oversight Committee said aides to former President Joseph R. Biden Jr. covered up his deterioration and asserted that many of his decisions are “void.” The committee’s ranking Democrat called the report a “sham investigation.”`\
+https://nytimes.com/2025/10/28/us/politics/biden-decline-impairment-president-house-report.html
+
+**Some Jewish Mamdani Supporters Say Cuomo Is ‘Flattening’ Their Community**\
+`Volunteer canvassers for Zohran Mamdani gathered over the weekend in hopes of combatting Andrew M. Cuomo’s closing pitch to Jewish voters.`\
+https://nytimes.com/2025/10/28/nyregion/mamdani-jewish-supporters.html
+
 **Japanese Executives Called On by Trump Pledge U.S. Investment**\
 `Toyota said it would sell some of its U.S.-made cars in Japan, one of a number of announcements by companies responding to U.S. pressure over trade imbalances.`\
 https://nytimes.com/2025/10/28/business/trump-japan-toyota.html
