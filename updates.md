@@ -1,3 +1,7 @@
+**Crosby reaches 1,700 points, Malkin tied for NHL scoring lead as Penguins roll**\
+`Sidney Crosby and Evgeni Malkin continued to turn back the clock, while Parker Wotherspoon and Erik Karlsson impressed from the blue line.`\
+https://nytimes.com/athletic/6755633/2025/10/27/penguins-crosby-malkin-scoring-blues/
+
 **Jamaican Officials Worry That Not Enough People Are Evacuating Ahead of Melissa**\
 `As Hurricane Melissa barrels toward the island nation, only a fraction of residents have headed to evacuation centers.`\
 https://nytimes.com/2025/10/27/weather/jamaica-evacuation-orders-shelters.html
