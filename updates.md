@@ -1,3 +1,7 @@
+**It’s Easier Than Ever to Turn Your Dial to a Live Event**\
+`Broadcast TV continues to draw big audiences. And they are increasingly getting special events, award shows and sports — lots of sports.`\
+https://nytimes.com/2025/10/28/business/media/broadcast-tv-live-events.html
+
 **Cuomo, Adams, Cuomo? Paterson Will Make Third Endorsement in Mayor’s Race.**\
 `Former Gov. David  A. Paterson appears to be of two minds when it comes to endorsing a candidate for New York mayor.`\
 https://nytimes.com/2025/10/28/nyregion/paterson-cuomo-endorsement.html
