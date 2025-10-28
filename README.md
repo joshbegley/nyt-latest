@@ -1,3 +1,7 @@
+**Chiefs vs. Commanders takeaways: Kansas City dominates second half to win third straight game**\
+`It took a while to clean up some mistakes, but the Chiefs offense couldn’t have played much better coming out of the halftime break.`\
+https://nytimes.com/athletic/6755669/2025/10/27/commanders-chiefs-score-result-takeaways-mnf-nfl/
+
 **Crosby reaches 1,700 points, Malkin tied for NHL scoring lead as Penguins roll**\
 `Sidney Crosby and Evgeni Malkin continued to turn back the clock, while Parker Wotherspoon and Erik Karlsson impressed from the blue line.`\
 https://nytimes.com/athletic/6755633/2025/10/27/penguins-crosby-malkin-scoring-blues/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/27/us/politics/trump-shutdown-snap-food-stamps-aid.h
 **Full Time: Early picks for the USWNT's 2027 World Cup squad**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6755629/2025/10/27/uswnt-world-cup-roster-prediction-full-time/
-
-**Missed ball-strike call leads to costly pickoff in World Series Game 3**\
-`Instead of taking a 1-0 lead, a puzzling play that went down as a pickoff at first left the Blue Jays scoreless in the second inning.`\
-https://nytimes.com/athletic/6755615/2025/10/27/dodgers-blue-jays-game-3-missed-call/
 
