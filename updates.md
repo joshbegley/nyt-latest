@@ -1,3 +1,7 @@
+**With Dexterity**\
+`Adrianne Baik’s Tuesday puzzle belongs in the Louvre.`\
+https://nytimes.com/2025/10/27/crosswords/daily-puzzle-2025-10-28.html
+
 **Pacers to sign three-time slam dunk champ Mac McClung: Sources**\
 `The deal marks McClung’s first standard NBA contract, as Indiana looks to bolster its backcourt.`\
 https://nytimes.com/athletic/6755624/2025/10/27/pacers-mac-mcclung-signing/

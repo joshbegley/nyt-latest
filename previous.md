@@ -1,3 +1,7 @@
+**With Dexterity**\
+`Adrianne Baik’s Tuesday puzzle belongs in the Louvre.`\
+https://nytimes.com/2025/10/27/crosswords/daily-puzzle-2025-10-28.html
+
 **Pacers to sign three-time slam dunk champ Mac McClung: Sources**\
 `The deal marks McClung’s first standard NBA contract, as Indiana looks to bolster its backcourt.`\
 https://nytimes.com/athletic/6755624/2025/10/27/pacers-mac-mcclung-signing/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/27/world/africa/ivory-coast-president-election-ouatt
 **Longtime Astros pitching coach Bill Murphy leaving for Pirates: Sources**\
 `Under Murphy, over the past four seasons, Houston’s pitching staff boasted baseball’s lowest ERA and second-highest strikeouts per nine.`\
 https://nytimes.com/athletic/6755441/2025/10/27/astros-bill-murphy-pitching-coach-pirates-sources/
-
-**Michigan, Sherrone Moore won't appeal $30M fine in Stalions investigation**\
-`The head coach, university and Stalions initially planned to fight the NCAA's ruling after its investigation of impermissible scouting.`\
-https://nytimes.com/athletic/6755370/2025/10/27/michigan-sherrone-moore-connor-stalions-no-appeal/
 
