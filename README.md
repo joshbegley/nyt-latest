@@ -1,3 +1,7 @@
+**The Bounce: Surprise unbeaten teams. Plus, Beef Court rules on Ant vs. SGA shoe-down**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6756861/2025/10/28/unbeaten-teams-nba-anthony-edwards-sga-the-bounce/
+
 **Melissa’s Winds Are Stronger Than Hurricane Katrina’s Were in 2005**\
 `Hours from landfall, Hurricane Melissa is also slow moving like Hurricane Harvey in 2017, which could mean catastrophic flooding.`\
 https://nytimes.com/2025/10/28/weather/hurricane-melissa-winds-strength-katrina.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6756501/2025/10/28/cooper-flagg-mavericks-fans-nati
 **The Windup: All of Game 3's historic layers**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6756639/2025/10/28/world-series-game-3-dodgers-the-windup/
-
-**Newsom to Redistricting Donors: Stop Giving Me Money**\
-`In an unusual show of confidence, Gov. Gavin Newsom said he raised enough cash more than a week before the California redistricting election.`\
-https://nytimes.com/2025/10/28/us/newsom-redistricting-donors-proposition-50.html
 
