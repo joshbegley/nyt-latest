@@ -1,3 +1,7 @@
+**Dodgers-Blue Jays 18-inning marathon 'worth it' for sleep-deprived fans**\
+`The Dodgers and Blue Jays kept fans up way past their bedtimes Monday night — and delivered an October classic worth staying up for.`\
+https://nytimes.com/athletic/6756941/2025/10/28/dodgers-blue-jays-world-series-fans-sleep-deprived/
+
 **Fantasy football market share report: Sell high on Rice, McConkey reclaims alpha role**\
 `Michael Salfino looks at touches and targets to offer Week 9 advice, like avoiding the KC backfield and selling Rashee Rice at a premium.`\
 https://nytimes.com/athletic/6757207/2025/10/28/fantasy-football-market-share-report-week-8-usage/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6757381/2025/10/28/saints-tyler-shough-quarterback-
 **Patriots and CB Marcus Jones agree to 3-year extension: Source**\
 `Jones has returned to playing as arguably the NFL’s best punt returner under new coach Mike Vrabel while playing in the secondary.`\
 https://nytimes.com/athletic/6757271/2025/10/28/patriots-marcus-jones-extension-cornerback/
-
-**Mamdani Weighs In on Long-Running Fight Over Elizabeth Street Garden**\
-`The city has been trying to build housing on the site of the Manhattan garden for at least a decade, but has met with fierce opposition in the community.`\
-https://nytimes.com/2025/10/28/nyregion/mamdani-elizabeth-street-garden.html
 
