@@ -1,3 +1,19 @@
+**Shutdown Makes Air Travel System ‘Less Safe,’ Air Traffic Controllers Say**\
+`Controllers have urged air passengers to contact their representatives to end the shutdown. The transportation secretary also warned of consequences for travel, though he said the system remained safe.`\
+https://nytimes.com/2025/10/28/us/politics/shutdown-air-traffic-controllers-duffy.html
+
+**What's wrong with the Orlando Magic?**\
+`The Magic are 1-3. Why are they struggling? And can they fix it? `\
+https://nytimes.com/athletic/6757221/2025/10/28/orlando-magic-fast-pace/
+
+**Will a Dodgers Title Bring a Salary Cap to the M.L.B.?**\
+`M.L.B.’s owners look likely to lock out the players when the collective bargaining agreement expires in December 2026 in an effort to bring a cap to the sport.`\
+https://nytimes.com/video/sports/100000010486188/will-a-dodgers-title-bring-a-salary-cap-to-the-mlb.html
+
+**Sour Cream and Onion Biscuits**\
+`These quick, buttery biscuits taste very much like sour cream and onion chips, but the ingredient list doesn’t include either: The tangy flavor is buttermilk and grated Parmesan. Along with chives, the combination manages to taste remarkably like the beloved chip flavor.`\
+https://nytimes.com/video/dining/100000010486103/sour-cream-and-onion-biscuits.html
+
 **Dodgers-Blue Jays 18-inning marathon 'worth it' for sleep-deprived fans**\
 `The Dodgers and Blue Jays kept fans up way past their bedtimes Monday night — and delivered an October classic worth staying up for.`\
 https://nytimes.com/athletic/6756941/2025/10/28/dodgers-blue-jays-world-series-fans-sleep-deprived/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/28/arts/music/amplifier-newsletter-halloween-witchin
 **World Series odds: What does Shohei Ohtani have in store next?**\
 `The Dodgers are clear favorites to win the World Series and the odds around Shohei Ohtani are projecting another special performance.`\
 https://nytimes.com/athletic/6757186/2025/10/28/world-series-odds-dodgers-blue-jays-shohei-ohtani/
-
-**Is the Mayor’s Race Tightening?**\
-`The candidates make their last push for undecided New Yorkers with early voting underway.`\
-https://nytimes.com/2025/10/28/nyregion/nyc-mayor-election-mamdani-cuomo-polls.html
-
-**After Law Firm Deals With Trump, D.C. Bar Warns of Ethical Jeopardy**\
-`The bar group’s ethics committee says firms that make a deal with the government may need to get waivers from clients with opposing interests.`\
-https://nytimes.com/2025/10/28/us/politics/trump-settlements-law-firms-ethical-issues.html
-
-**Saints making change at quarterback with rookie Tyler Shough replacing Spencer Rattler**\
-`The Saints are 1-7 this season in eight starts under Rattler.`\
-https://nytimes.com/athletic/6757381/2025/10/28/saints-tyler-shough-quarterback-starter/
-
-**Patriots and CB Marcus Jones agree to 3-year extension: Source**\
-`Jones has returned to playing as arguably the NFL’s best punt returner under new coach Mike Vrabel while playing in the secondary.`\
-https://nytimes.com/athletic/6757271/2025/10/28/patriots-marcus-jones-extension-cornerback/
 

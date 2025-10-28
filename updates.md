@@ -1,3 +1,7 @@
+**Trump Administration Backs Plan for New Nuclear Plants**\
+`The federal government announced that it would back an effort to build several Westinghouse nuclear reactors, but offered few details.`\
+https://nytimes.com/2025/10/28/business/energy-environment/trump-nuclear-westinghouse-deal.html
+
 **Dodgers-Blue Jays 18-inning marathon 'worth it' for sleep-deprived fans**\
 `The Dodgers and Blue Jays kept fans up way past their bedtimes Monday night — and delivered an October classic worth staying up for.`\
 https://nytimes.com/athletic/6756941/2025/10/28/dodgers-blue-jays-world-series-fans-sleep-deprived/

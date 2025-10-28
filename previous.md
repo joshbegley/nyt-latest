@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6757207/2025/10/28/fantasy-football-market-share-re
 https://nytimes.com/athletic/6757414/2025/10/28/blues-jake-neighbours-injury-leg/
 
 **Trump Administration Backs Plan for New Nuclear Plants**\
-`The federal government announced on Tuesday that it would back an effort to build several new Westinghouse nuclear reactors, but offered few details.`\
+`The federal government announced that it would back an effort to build several Westinghouse nuclear reactors, but offered few details.`\
 https://nytimes.com/2025/10/28/business/energy-environment/trump-nuclear-westinghouse-deal.html
 
 **11 Songs for the Witching Hour**\
