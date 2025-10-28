@@ -1,40 +1,40 @@
-**Anti-Vax for Dogs?**\
-`We explain how pet owners are expressing vaccine hesitancy.`\
-https://nytimes.com/2025/10/28/briefing/anti-vax-for-dogs.html
+**Ravens seem more likely to add than subtract before trade deadline. But who's available?**\
+`Now just two games out of first place in the AFC North, Baltimore could look for ways to bolster its roster ahead of the trade deadline. `\
+https://nytimes.com/athletic/6755887/2025/10/28/ravens-buyers-2025-trade-deadline/
 
-**Kenny Dillingham's Arizona State roots run deep, but this coaching cycle could test that**\
-`The outside interest will rattle nerves in the desert, mostly for one reason: Loyalty in college football is difficult to trust these days.`\
-https://nytimes.com/athletic/6755872/2025/10/28/kenny-dillingham-arizona-state-sun-devils-lsu-head-coach/
+**Shohei Ohtani's historic, draining performance begs question before Game 4 start: What's next?**\
+`"I’m sure he’ll set another record or something," Mookie Betts said of Game 4, which was set to start 17 hours after Monday's marathon.`\
+https://nytimes.com/athletic/6756253/2025/10/28/shohei-ohtani-dodgers-game-3/
 
-**The Pulse: A World Series instant classic**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6754011/2025/10/28/dodgers-blue-jays-game-3-the-pulse/
+**Inside the mind of Tulane's Jon Sumrall: Current logistics wiz, future SEC coach?**\
+`With a .791 winning percentage in three-plus seasons as a head coach, Sumrall has many assuming he'll be running a big-time program soon.`\
+https://nytimes.com/athletic/6751310/2025/10/28/jon-sumrall-tulane-sec-coaching-carousel/
 
-**From Ohtani to Vlad Jr., 10 moments to remember from an epic World Series Game 3**\
-`Baseball games do not get better than this. This was Martin Scorsese and James Joyce, an epic clash of wills on the grandest stage.`\
-https://nytimes.com/athletic/6756144/2025/10/28/dodgers-blue-jays-game-3-moments-to-remember/
+**New Giants manager Tony Vitello has a unique advantage as he makes a historic transition**\
+`"I think it's a great move," Pat Murphy said. "I think Buster Posey is trying to get it right and not just following normal patterns."`\
+https://nytimes.com/athletic/6755592/2025/10/28/sf-giants-manager-tony-vitello-has-historic-transition/
 
-**Year 2 QB review: How Caleb Williams, Drake Maye and others from '24 draft are progressing**\
-`The 2024 first-round pick starters have seen varying levels of success while some need to keep adapting their skillsets.`\
-https://nytimes.com/athletic/6755115/2025/10/28/caleb-williams-drake-maye-2024-qbs-review/
+**When evaluating NFL Draft QB prospects, how much does starting experience matter?**\
+`The 2026 NFL Draft quarterback class could be light on starting experience. Will that make it more difficult to evaluate those prospects?`\
+https://nytimes.com/athletic/6747595/2025/10/28/nfl-draft-2026-quarterbacks-experience-moore-simpson/
 
-**A Black Composer Was a Star, Then Faded. Is It Time to Shine Again?**\
-`Samuel Coleridge-Taylor devotees are working to revive his music and legacy coinciding with the 150th anniversary of his birth.`\
-https://nytimes.com/2025/10/28/arts/music/samuel-coleridge-taylor-150th-anniversary.html
+**Wild insider: Lack of physicality is costing the defense — 'We have to be harder'**\
+`Through Sunday, the Wild defense ranked 24th in the NHL with 48 hits in 10 games — 49 behind the league-leading Vegas Golden Knights.`\
+https://nytimes.com/athletic/6754676/2025/10/28/wild-defense-physicality-daemon-hunt/
 
-**Jonathan Toews brings healthy body and attitude to first game against Blackhawks**\
-`For the first time in his career, Jonathan Toews is preparing to play against the Blackhawks. Many — including Toews — doubted it'd happen.`\
-https://nytimes.com/athletic/6754877/2025/10/28/jonathan-toews-health-blackhawks-jets-nhl-return/
+**Kansas City Current and San Diego Wave join World Sevens Football tournament in U.S.**\
+`The NWSL powerhouses will represent the U.S. in the inaugural World Sevens Football (W7F) Americas tournament in December.`\
+https://nytimes.com/athletic/6754887/2025/10/28/world-sevens-football-teams/
 
-**Where do teams get their best players? What Player Tiers data tells us about team building**\
-`Breaking down how the top 150 NHL players heading into this season ended up on their current teams, and what that says about the league.`\
-https://nytimes.com/athletic/6755065/2025/10/28/nhl-player-tiers-roster-building-trades-drafting/
+**Big Ten stadium superlatives: Who has the most underrated (and overrated) venue?**\
+`The Big Ten was heavily featured in our college football stadium rankings. Here's what our writers like (and dislike) in the conference.`\
+https://nytimes.com/athletic/6754440/2025/10/28/best-big-ten-college-football-stadiums/
 
-**Bears have a penalty problem. What bothers Ben Johnson most about the flood of flags?**\
-`The Bears have been penalized more than their opponent in every game this season. The problem has fast become a plague.`\
-https://nytimes.com/athletic/6755243/2025/10/28/bears-penalty-problem-ben-johnson/
+**Stock watch: The Jets players rising, falling or confusing to start the season**\
+`The Jets are nine games into 2025-26 with some players off to the races, others struggling to find their rhythm and one embracing chaos.`\
+https://nytimes.com/athletic/6754203/2025/10/28/winnipeg-jets-stock-watch-scheifele-toews-stanley/
 
-**Chiefs were 15-2 and made the Super Bowl last year. But are they having more fun now?**\
-`This was the scene inside a celebratory Chiefs locker room after a third straight dominant win — this one against the Washington Commanders.`\
-https://nytimes.com/athletic/6755354/2025/10/28/chiefs-patrick-mahomes-fun-commanders/
+**The 10 best things I saw in college football recruiting over the weekend**\
+`Wide receiver Josiah Dozier, a South Florida commit from Alabama, had one of the best catches by a high school football player this season. `\
+https://nytimes.com/athletic/6754685/2025/10/28/ollege-football-recruiting-thoughts-week-9/
 
