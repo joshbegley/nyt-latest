@@ -1,3 +1,19 @@
+**Forecasters Abort Flight Into the Eye of Hurricane Melissa**\
+`A hurricane hunter aircraft, tasked with collecting weather data for NOAA, aborted its mission into the eye of Hurricane Melissa after encountering extreme turbulence.`\
+https://nytimes.com/video/world/americas/100000010485197/hurricane-hunter-melissa.html
+
+**Here’s the latest.**\
+`By Jovan Johnson, Camille Williams, Judson Jones, Nazaneen Ghaffar, Yan Zhuang and Livia Albeck-Ripka`\
+https://nytimes.com/live/2025/10/28/weather/hurricane-melissa-jamaica-landfall/heres-the-latest
+
+**Live Updates: Jamaica Warns Hurricane Melissa Will Bring Catastrophic Winds and Rain**\
+`The Category 5 storm is the most powerful in the Atlantic Ocean this year. The authorities in Jamaica and Cuba have issued evacuation orders for tens of thousands of people.`\
+https://nytimes.com/live/2025/10/28/weather/hurricane-melissa-jamaica-landfall
+
+**What's it like to catch Shohei Ohtani's home run at the World Series? This Dodgers fan can tell you**\
+`David Aguilar, who has been a Dodgers fan for 50 years, will leave Game 3 with quite the souvenir and story. `\
+https://nytimes.com/athletic/6755854/2025/10/28/shohei-ohtani-home-run-dodgers-world-series/
+
 **What's it like to catch Shohei Ohtani's home run at the World Series? This Dodger fan can tell you**\
 `David Aguilar, who has been a Dodgers fan for 50 years, will leave Game 3 with quite the souvenir and story. `\
 https://nytimes.com/athletic/6755854/2025/10/28/shohei-ohtani-home-run-dodgers-world-series/
