@@ -1,3 +1,11 @@
+**After Law Firm Deals With Trump, D.C. Bar Warns of Ethical Jeopardy**\
+`The bar group’s ethics committee says firms that make a deal with the government may need to get waivers from clients with opposing interests.`\
+https://nytimes.com/2025/10/28/us/politics/trump-settlements-law-firms-ethical-issues.html
+
+**Saints making change at quarterback with rookie Tyler Shough replacing Spencer Rattler**\
+`The Saints are 1-7 this season in eight starts under Rattler.`\
+https://nytimes.com/athletic/6757381/2025/10/28/saints-tyler-shough-quarterback-starter/
+
 **Patriots and CB Marcus Jones agree to 3-year extension: Source**\
 `Jones has returned to playing as arguably the NFL’s best punt returner under new coach Mike Vrabel while playing in the secondary.`\
 https://nytimes.com/athletic/6757271/2025/10/28/patriots-marcus-jones-extension-cornerback/
