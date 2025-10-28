@@ -1,3 +1,7 @@
+**NFL MVP odds: Drake Maye and Jonathan Taylor declare themselves**\
+`Could we have our first non-quarterback MVP in 13 years? Can a sophomore QB challenge the top spot?`\
+https://nytimes.com/athletic/6754716/2025/10/28/nfl-mvp-odds-drake-maye-jonathan-taylor/
+
 **Hundreds of thousands of Cubans have already evacuated in anticipation of the hurricane.**\
 `By Ed Augustin`\
 https://nytimes.com/2025/10/28/weather/hundreds-of-thousands-of-cubans-have-already-evacuated-in-anticipation-of-the-hurricane.html
