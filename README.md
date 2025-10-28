@@ -1,3 +1,11 @@
+**Will Trump Meet Kim Jong-un Again? He’s Very Open to the Idea.**\
+`President Trump has said he hopes the North Korean leader will reach out so they can meet again. But there has been no public response from Mr. Kim.`\
+https://nytimes.com/2025/10/28/us/politics/trump-kim-jong-un-north-korea.html
+
+**Trump Administration Live Updates: Fanfare on President’s Japan Trip, but no Trade Breakthrough**\
+``\
+https://nytimes.com/live/2025/10/28/us/trump-news-japan
+
 **Trump and Japan’s New Prime Minister Trade Compliments**\
 `Prime Minister Sanae Takaichi of Japan welcomed President Trump to a gold-gilded palace in Tokyo on Tuesday. While they traded niceties, there was little progress on trade talks.`\
 https://nytimes.com/video/world/asia/100000010485211/trump-takaichi-japan-meeting.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6754537/2025/10/28/josh-mcdaniels-patriots-offensiv
 **Josh Hawley: No American Should Go to Bed Hungry**\
 `Congress must prevent Americans from losing food assistance.`\
 https://nytimes.com/2025/10/28/opinion/josh-hawley-snap.html
-
-**If You Were Given a One-Way Ticket to Mars, Would You Go?**\
-`Attendees at the annual Mars Society convention considered that question. How would you answer?`\
-https://nytimes.com/2025/10/28/learning/if-you-were-given-a-one-way-ticket-to-mars-would-you-go.html
-
-**Fed’s Policy Path Looks More Treacherous as Shutdown Delays Critical Data**\
-`The central bank is poised to lower interest rates again on Wednesday despite having only a partial view of how the economy is faring.`\
-https://nytimes.com/2025/10/28/business/fed-interest-rates-shutdown-data.html
 
