@@ -1,3 +1,11 @@
+**NCAA ordered to pay $18 million to former college football player**\
+`A former South Carolina State football player was awarded $18 million by a jury in a concussion case. `\
+https://nytimes.com/athletic/6754722/2025/10/28/ncaa-south-carolina-state-concussion-lawsuit/
+
+**LaTroy Hawkins eyes coaching for Twins, wants to blend human element with analytics**\
+`Hawkins is around the club for a week at a time once a month in his current setup. He thinks he can be more impactful in a larger role.`\
+https://nytimes.com/athletic/6758022/2025/10/28/latroy-hawkins-wants-to-coach-twins-mlb/
+
 **World Series bullpen check: Who is likely to be available after the 18-inning marathon?**\
 `Both teams emptied their bullpens during Monday night's 18-inning game. A look at how available each reliever is likely to be on Tuesday.`\
 https://nytimes.com/athletic/6758026/2025/10/28/world-series-bullpen-availability-dodgers-blue-jays/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/28/us/politics/beef-imports-ranchers-argentina.html
 **What to know about Pat Surtain's recovery timeline, replacement Kris Abrams-Draine**\
 `An IR decision with Surtain may hinge on whether the Broncos believe the star CB could return for Nov. 30 game vs. Commanders.`\
 https://nytimes.com/athletic/6757335/2025/10/28/pat-surtain-injury-broncos-kris-abrams-draine/
-
-**Cameron Norrie knocks erratic Carlos Alcaraz out of Paris Masters**\
-`Norrie took advantage of a flood of errors from Alcaraz for his first win over a world No. 1.`\
-https://nytimes.com/athletic/6758031/2025/10/28/norrie-alcaraz-paris-masters-result-analysis/
-
-**The Two Big Questions Surrounding Bill Gates’s Climate Memo**\
-`The Microsoft co-founder wrote a lengthy memo warning against climate alarmism. Will it change how people talk about the issue or who funds climate action?`\
-https://nytimes.com/2025/10/28/climate/the-two-big-questions-surrounding-bill-gatess-climate-memo.html
 
