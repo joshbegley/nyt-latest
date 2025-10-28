@@ -1,3 +1,11 @@
+**Arsenal injuries: Martinelli and Saliba to miss Carabao Cup tie against Brighton**\
+`Declan Rice, Riccardo Calafiori and Bukayo Saka are all available for the game at the Emirates Stadium.`\
+https://nytimes.com/athletic/6756439/2025/10/28/arsenal-injuries-martinelli-saliba-brighton/
+
+**I rode shotgun with an F1 driver at 180mph. One track wants more fans to do the same**\
+`F1's invite-only hot lap program serves VIPs. COTA's answer? A theme park where anyone can ride the track`\
+https://nytimes.com/athletic/6755468/2025/10/28/f1-hot-laps-pirelli-cota/
+
 **Attacking Mamdani’s Muslim faith, Cuomo has played to voters’ fears.**\
 `Andrew Cuomo is escalating his warnings that “mayhem” would follow a victory by Zohran Mamdani — even posting an A.I.-generated video that depicts his supporters as criminals.`\
 https://nytimes.com/live/2025/10/28/nyregion/nyc-mayor-election-news/attacking-mamdanis-muslim-faith-cuomo-has-played-to-voters-fears

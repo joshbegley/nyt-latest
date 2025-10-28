@@ -1,3 +1,15 @@
+**In Two Solo Plays, a Search for Belonging and Parental Love**\
+`Ari’el Stachel’s “Other” and Zoë Kim’s “Did You Eat?” are self-interrogations that deal with family, race and identity.`\
+https://nytimes.com/2025/10/28/theater/ariel-stachel-other-zoe-kim-did-you-eat.html
+
+**Steven Hatfill, Covid Vaccine Critic, Is Ousted From HHS**\
+`Dr. Hatfill said he was pushed out by Health Secretary Robert F. Kennedy Jr.’s chief of staff, who fired him when he refused to resign.`\
+https://nytimes.com/2025/10/28/us/politics/hatfill-covid-hhs-ousted.html
+
+**Explaining the Turkish referee betting scandal – and what happens now**\
+`Analysing the latest major controversy to hit Turkish football and what the implications could be`\
+https://nytimes.com/athletic/6756785/2025/10/28/turkey-referee-betting-scandal-explained/
+
 **Arsenal injuries: Martinelli and Saliba to miss Carabao Cup tie against Brighton**\
 `Declan Rice, Riccardo Calafiori and Bukayo Saka are all available for the game at the Emirates Stadium.`\
 https://nytimes.com/athletic/6756439/2025/10/28/arsenal-injuries-martinelli-saliba-brighton/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/28/arts/music/lily-allen-west-end-girl.html
 **From globetrotting with LaMelo to diving deep on Giannis, how Mirin Fader sees storytelling**\
 `There has never been a more fascinating time for storytelling in the NBA, writes Mirin Fader.`\
 https://nytimes.com/athletic/6755324/2025/10/28/mirin-fader-nba-writer-the-athletic/
-
-**Jerry Jones: Cowboys haven't had 'anything close to a deal' for Maxx Crosby or Trey Hendrickson**\
-`Jerry Jones also addressed Trevon Diggs' latest knee injury and if the team rushed him back too soon. "No. Not at all," he said.`\
-https://nytimes.com/athletic/6756868/2025/10/28/cowboys-trade-deadline-maxx-crosby-trey-hendrickson/
-
-**A Broadway Tradition Is Fluttering Into History**\
-`Broadway plans to replace the cast-change slips that are stuffed into Playbills with QR codes. Some understudies and theater buffs will mourn their loss.`\
-https://nytimes.com/2025/10/28/theater/broadway-cast-change-slips-playbill.html
-
-**Our thoughts, top hits, and final grades for 2025-26 Topps Basketball cards**\
-`Our findings on Topps' first flagship basketball set since regaining the NBA license. `\
-https://nytimes.com/athletic/6755353/2025/10/28/topps-basketball-cards-hobby-box-nba-collectors/
 
