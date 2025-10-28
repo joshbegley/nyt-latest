@@ -1,3 +1,11 @@
+**Patriots and CB Marcus Jones agree to 3-year extension: Source**\
+`Jones has returned to playing as arguably the NFL’s best punt returner under new coach Mike Vrabel while playing in the secondary.`\
+https://nytimes.com/athletic/6757271/2025/10/28/patriots-marcus-jones-extension-cornerback/
+
+**Mamdani Weighs In on Long-Running Fight Over Elizabeth Street Garden**\
+`The city has been trying to build housing on the site of the Manhattan garden for at least a decade, but has met with fierce opposition in the community.`\
+https://nytimes.com/2025/10/28/nyregion/mamdani-elizabeth-street-garden.html
+
 **Raiders lose George Atkinson, another tie to league's glorious, fierce past**\
 `Atkinson, who died Monday, was a walking tribute to the old, lost era of professional football when players saw themselves as gladiators.`\
 https://nytimes.com/athletic/6757165/2025/10/28/raiders-lose-george-atkinson-nfl-soul-patrol/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6757283/2025/10/28/greg-sankey-ncaa-college-athlete
 **How Formula 1's cost cap works: Rules, penalties and past breaches explained**\
 `The sport's $135 million spending limit aims to create parity — but compliance isn't always simple`\
 https://nytimes.com/athletic/6757239/2025/10/28/formula-1-cost-cap-explained/
-
-**NFL MVP odds: Drake Maye and Jonathan Taylor declare themselves**\
-`Could we have our first non-quarterback MVP in 13 years? Can a sophomore QB challenge the top spot?`\
-https://nytimes.com/athletic/6754716/2025/10/28/nfl-mvp-odds-drake-maye-jonathan-taylor/
-
-**For Years, Islands Have Warned of Climate Disaster. They’ve Seen Little Help.**\
-`As Hurricane Melissa threatens island nations across the Caribbean, many are already burdened by debt from a string of climate-fueled crises.`\
-https://nytimes.com/2025/10/28/climate/hurricane-jamaica-caribbean.html
 
