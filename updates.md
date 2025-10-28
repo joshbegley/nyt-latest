@@ -1,3 +1,7 @@
+**Pacers to sign three-time slam dunk champ Mac McClung: Sources**\
+`The deal marks McClung’s first standard NBA contract, as Indiana looks to bolster its backcourt.`\
+https://nytimes.com/athletic/6755624/2025/10/27/pacers-mac-mcclung-signing/
+
 **Hunger and Cold Loom as Shutdown Imperils Funding for Antipoverty Programs**\
 `Within days, tens of millions of low-income Americans may lose assistance for food, child care and utilities if the federal government remains shut down.`\
 https://nytimes.com/2025/10/27/us/politics/trump-shutdown-snap-food-stamps-aid.html

@@ -1,3 +1,7 @@
+**Pacers to sign three-time slam dunk champ Mac McClung: Sources**\
+`The deal marks McClung’s first standard NBA contract, as Indiana looks to bolster its backcourt.`\
+https://nytimes.com/athletic/6755624/2025/10/27/pacers-mac-mcclung-signing/
+
 **Hunger and Cold Loom as Shutdown Imperils Funding for Antipoverty Programs**\
 `Within days, tens of millions of low-income Americans may lose assistance for food, child care and utilities if the federal government remains shut down.`\
 https://nytimes.com/2025/10/27/us/politics/trump-shutdown-snap-food-stamps-aid.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6755441/2025/10/27/astros-bill-murphy-pitching-coac
 **Michigan, Sherrone Moore won't appeal $30M fine in Stalions investigation**\
 `The head coach, university and Stalions initially planned to fight the NCAA's ruling after its investigation of impermissible scouting.`\
 https://nytimes.com/athletic/6755370/2025/10/27/michigan-sherrone-moore-connor-stalions-no-appeal/
-
-**Elon Musk Challenges Wikipedia With His Own A.I. Encyclopedia**\
-`The billionaire launched his A.I.-powered version, Grokipedia, on Monday.`\
-https://nytimes.com/2025/10/27/technology/grokipedia-launch-elon-musk.html
 
