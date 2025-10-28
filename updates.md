@@ -1,3 +1,7 @@
+**What's it like to catch Shohei Ohtani's home run at the World Series? This Dodger fan can tell you**\
+`David Aguilar, who has been a Dodgers fan for 50 years, will leave Game 3 with quite the souvenir and story. `\
+https://nytimes.com/athletic/6755854/2025/10/28/shohei-ohtani-home-run-dodgers-world-series/
+
 **Trump Argues in Formal Appeal That His Conviction Was ‘Fatally Marred’**\
 `In 2024, a jury found that Donald J. Trump approved a scheme to falsify business records to conceal a hush-money payment to a porn star. He became the first felon president.`\
 https://nytimes.com/2025/10/28/nyregion/trump-hush-money-appeal.html
