@@ -1,3 +1,19 @@
+**Kenny Dalglish film review: An outstanding piece of work covering triumph, greatness and tragedy**\
+`Liverpool fan and Oscar-winner Asif Kapadia portrays an incredible playing and managerial career and the effects of Hillsborough`\
+https://nytimes.com/athletic/6751944/2025/10/28/sir-kenny-dalglish-film-review-liverpool/
+
+**Can a Start-Up Make Computer Chips Cheaper Than the Industry’s Giants?**\
+`Substrate, a San Francisco company, is trying to take on powerhouses like the Dutch company ASML.`\
+https://nytimes.com/2025/10/28/business/can-a-start-up-make-computer-chips-cheaper-than-the-industrys-giants.html
+
+**Touches of Blue for Dinner by the Sea**\
+`Dashing men’s wear stood out for its coordinated colors.`\
+https://nytimes.com/2025/10/28/style/street-style-look-mens-wear-coordinated-colors.html
+
+**Inside Barcelona: El Clasico fallout spreads beyond Lamine Yamal**\
+`Sunday's 2-1 defeat by Real Madrid in El Clasico is still fresh in Barcelona minds`\
+https://nytimes.com/athletic/6756555/2025/10/28/barcelona-yamal-clasico-fallout-madrid-elche/
+
 **On the Menu for Trump in Tokyo: American Rice**\
 `Rice is a point of pride in Japan, and the choice was a break from the typical diplomatic practice of showcasing local ingredients.`\
 https://nytimes.com/2025/10/28/world/asia/trump-japan-america-rice.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/28/business/dealbook/bill-gates-climate-pivot.html
 **Are the Sabres turning a corner? What I think and what I know through 9 games**\
 `The Sabres have been a different team since the first week of the season. Here are some things to take note of in the early going.`\
 https://nytimes.com/athletic/6756421/2025/10/28/sabres-josh-doan-zach-benson/
-
-**Amateur footballer suffers fractured skull after attack during game in Liverpool**\
-`Richard Agbasoga, a temporary NHS worker from Ghana, was playing for Ormskirk West End against Calci FC in England’s 12th tier on Saturday.`\
-https://nytimes.com/athletic/6754541/2025/10/28/footballer-assault-fractured-skull/
-
-**Should 2-6 Giants be buyers at deadline to help Jaxson Dart develop?**\
-`Dart is now set to forge into an unrelenting schedule with arguably the worst collection of playmakers in the NFL.`\
-https://nytimes.com/athletic/6755893/2025/10/28/giants-nfl-trade-deadline-preview/
-
-**Whatnot Raises $225 Million as Investors Bet on Livestream Shopping**\
-`The start-up is among the biggest names in a fast-growing part of e-commerce that is effectively a kind of QVC for the TikTok era.`\
-https://nytimes.com/2025/10/28/business/dealbook/whatnot-livestream-shopping-fundraise.html
-
-**Billionaire-Backed Super PACs Have Donated to Cuomo’s Mayoral Campaign**\
-`Super PACs supporting former Gov. Andrew Cuomo have raised more than $40 million from donors.`\
-https://nytimes.com/2025/10/28/nyregion/cuomo-nyc-mayor-super-pacs.html
 

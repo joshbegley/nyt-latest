@@ -1,3 +1,19 @@
+**Kenny Dalglish film review: An outstanding piece of work covering triumph, greatness and tragedy**\
+`Liverpool fan and Oscar-winner Asif Kapadia portrays an incredible playing and managerial career and the effects of Hillsborough`\
+https://nytimes.com/athletic/6751944/2025/10/28/sir-kenny-dalglish-film-review-liverpool/
+
+**Can a Start-Up Make Computer Chips Cheaper Than the Industry’s Giants?**\
+`Substrate, a San Francisco company, is trying to take on powerhouses like the Dutch company ASML.`\
+https://nytimes.com/2025/10/28/business/can-a-start-up-make-computer-chips-cheaper-than-the-industrys-giants.html
+
+**Touches of Blue for Dinner by the Sea**\
+`Dashing men’s wear stood out for its coordinated colors.`\
+https://nytimes.com/2025/10/28/style/street-style-look-mens-wear-coordinated-colors.html
+
+**Inside Barcelona: El Clasico fallout spreads beyond Lamine Yamal**\
+`Sunday's 2-1 defeat by Real Madrid in El Clasico is still fresh in Barcelona minds`\
+https://nytimes.com/athletic/6756555/2025/10/28/barcelona-yamal-clasico-fallout-madrid-elche/
+
 **On the Menu for Trump in Tokyo: American Rice**\
 `Rice is a point of pride in Japan, and the choice was a break from the typical diplomatic practice of showcasing local ingredients.`\
 https://nytimes.com/2025/10/28/world/asia/trump-japan-america-rice.html
