@@ -4,7 +4,7 @@ https://nytimes.com/2025/10/28/climate/hurricane-jamaica-caribbean.html
 
 **Hundreds of thousands of Cubans have already evacuated in anticipation of the hurricane.**\
 `By Ed Augustin`\
-https://nytimes.com/live/2025/10/28/weather/hurricane-melissa-jamaica-landfall/hundreds-of-thousands-of-cubans-have-already-evacuated-in-anticipation-of-the-hurricane
+https://nytimes.com/2025/10/28/weather/hundreds-of-thousands-of-cubans-have-already-evacuated-in-anticipation-of-the-hurricane.html
 
 **Britain Plans to Convert Two Military Bases to House Asylum Seekers**\
 `The government has been under pressure to shut down hotels accommodating migrants as public anger rises.`\
@@ -14,8 +14,8 @@ https://nytimes.com/2025/10/28/world/europe/britain-asylum-seekers.html
 `Zohran Mamdani’s rally on Sunday nearly filled Forest Hills Stadium in Queens, which holds 13,000 attendees. Here’s why some of them went, in their own words.`\
 https://nytimes.com/2025/10/28/nyregion/photos-mamdani-aoc-bernie-rally.html
 
-**Netanyahu Orders New Strikes on Gaza**\
-`Weeks into a tenuous cease-fire with Hamas, the office of the Israeli Prime Minister said on Tuesday evening that he had ordered “forceful strikes” in Gaza.`\
+**Netanyahu Orders Strikes on Gaza, Saying Hamas Violated Cease-Fire**\
+`The office of the Israeli Prime Minister said on Tuesday evening that he had ordered “forceful strikes” after Hamas fired on Israeli troops and failed to return hostages’ bodies.`\
 https://nytimes.com/2025/10/28/world/middleeast/israel-gaza-netanyahu-strikes.html
 
 **Bring a Crew for Askili Orchard’s Georgian Spread**\

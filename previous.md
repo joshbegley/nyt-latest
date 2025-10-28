@@ -1,3 +1,7 @@
+**For Years, Islands Have Warned of Climate Disaster. They’ve Seen Little Help.**\
+`As Hurricane Melissa threatens island nations across the Caribbean, many are already burdened by debt from a string of climate-fueled crises.`\
+https://nytimes.com/2025/10/28/climate/hurricane-jamaica-caribbean.html
+
 **Hundreds of thousands of Cubans have already evacuated in anticipation of the hurricane.**\
 `By Ed Augustin`\
 https://nytimes.com/live/2025/10/28/weather/hurricane-melissa-jamaica-landfall/hundreds-of-thousands-of-cubans-have-already-evacuated-in-anticipation-of-the-hurricane
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010485546/trump-national-guard-japan.
 **Israeli Military Says It Killed 3 Militants Near Jenin in West Bank**\
 `The Israeli military said it killed three militants in an operation that involved the first airstrike in the West Bank in months. Hamas said two of the men had been fighters in its armed wing.`\
 https://nytimes.com/video/world/middleeast/100000010485695/jenin-west-bank-israel-hamas.html
-
-**Would Term Limits for Congress Help or Hurt?**\
-`Readers respond to an Opinion guest essay by Gov. Ron DeSantis and former Representative David Trone.`\
-https://nytimes.com/2025/10/28/opinion/term-limits-desantis.html
 
