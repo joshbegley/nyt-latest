@@ -1,3 +1,11 @@
+**Johnson Dismisses Trump 2028 Talk — But Applauds the ‘Trolling’**\
+`The speaker said he did not see a path to amending the Constitution to allow the president to seek a third term, but that it was fun to pretend he could to inflame Democrats.`\
+https://nytimes.com/2025/10/28/us/politics/johnson-trump-2028-constitution.html
+
+**What Zohran Mamdani Learned as an Africana Studies Major at Bowdoin**\
+`The mayoral candidate has said his education was formative. But critics say that his degree exemplifies how colleges steep students in leftist dogma.`\
+https://nytimes.com/2025/10/28/us/politics/zohran-mamdani-bowdoin-college-new-york-mayor-election.html
+
 **Starlink is keeping some people in Jamaica online during the storm, but for how long?**\
 `By Pranav Baskar`\
 https://nytimes.com/live/2025/10/28/weather/hurricane-melissa-jamaica-landfall/starlink-is-keeping-some-people-in-jamaica-online-during-the-storm-but-for-how-long

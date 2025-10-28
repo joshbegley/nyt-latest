@@ -1,3 +1,11 @@
+**Michael McKee, Fervent Advocate for Tenants’ Rights, Dies at 85**\
+`A broken window transformed him into a professional organizer and lobbyist to regulate rents and restrain landlords.`\
+https://nytimes.com/2025/10/28/nyregion/michael-mckee-dead.html
+
+**How Celtic turned 'toxic'**\
+`Brendan Rodgers left Celtic on Monday — with the club heavily criticising their now former manager`\
+https://nytimes.com/athletic/6757433/2025/10/28/celtic-brendan-rodgers-analysis/
+
 **Johnson Dismisses Trump 2028 Talk — But Applauds the ‘Trolling’**\
 `The speaker said he did not see a path to amending the Constitution to allow the president to seek a third term, but that it was fun to pretend he could to inflame Democrats.`\
 https://nytimes.com/2025/10/28/us/politics/johnson-trump-2028-constitution.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/africa/100000010486454/sudan-darfur-rsf-el-fashe
 **Shutdown Makes Air Travel System ‘Less Safe,’ Air Traffic Controllers Say**\
 `Controllers have urged air passengers to contact their representatives to end the shutdown. The transportation secretary also warned of consequences for travel, though he said the system remained safe.`\
 https://nytimes.com/2025/10/28/us/politics/shutdown-air-traffic-controllers-duffy.html
-
-**What's wrong with the Orlando Magic?**\
-`The Magic are 1-3. Why are they struggling? And can they fix it? `\
-https://nytimes.com/athletic/6757221/2025/10/28/orlando-magic-fast-pace/
-
-**Will a Dodgers Title Bring a Salary Cap to the M.L.B.?**\
-`M.L.B.’s owners look likely to lock out the players when the collective bargaining agreement expires in December 2026 in an effort to bring a cap to the sport.`\
-https://nytimes.com/video/sports/100000010486188/will-a-dodgers-title-bring-a-salary-cap-to-the-mlb.html
 
