@@ -1,3 +1,7 @@
+**Starlink is keeping some people in Jamaica online during the storm, but for how long?**\
+`By Pranav Baskar`\
+https://nytimes.com/live/2025/10/28/weather/hurricane-melissa-jamaica-landfall/starlink-is-keeping-some-people-in-jamaica-online-during-the-storm-but-for-how-long
+
 **10 Accused of Cyberbullying France’s First Lady Stand Trial. Here’s What to Know.**\
 `Brigitte Macron filed a criminal complaint in Paris after claims about her gender and her relationship with President Emmanuel Macron went viral. The accused deny wrongdoing.`\
 https://nytimes.com/2025/10/28/world/europe/brigitte-macron-cyberbullying-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/dining/100000010486103/sour-cream-and-onion-biscuits.h
 **Dodgers-Blue Jays 18-inning marathon 'worth it' for sleep-deprived fans**\
 `The Dodgers and Blue Jays kept fans up way past their bedtimes Monday night — and delivered an October classic worth staying up for.`\
 https://nytimes.com/athletic/6756941/2025/10/28/dodgers-blue-jays-world-series-fans-sleep-deprived/
-
-**Fantasy football market share report: Sell high on Rice, McConkey reclaims alpha role**\
-`Michael Salfino looks at touches and targets to offer Week 9 advice, like avoiding the KC backfield and selling Rashee Rice at a premium.`\
-https://nytimes.com/athletic/6757207/2025/10/28/fantasy-football-market-share-report-week-8-usage/
 
