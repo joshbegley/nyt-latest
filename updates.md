@@ -1,3 +1,11 @@
+**When Caregiving Makes Women Ill**\
+`Eastern Europeans have migrated in droves to take care of Italy’s aged and infirm. Then they started getting sick, with an ailment dubbed ‘Italy syndrome.’`\
+https://nytimes.com/2025/10/29/world/europe/when-caregiving-makes-women-ill.html
+
+**A.J. Brown on his relationship with Jalen Hurts, why he doesn't do drugs, more**\
+`There are a lot of layers to the star wide receiver who helped lead the Philadelphia Eagles to their second Super Bowl title last season`\
+https://nytimes.com/athletic/6758436/2025/10/29/aj-brown-jalen-hurts-relationship-life-no-drugs/
+
 **What does A.J. Brown want? Eagles' star WR chases greatness — on his terms**\
 `Brown needs the football, but not for the reasons you think.`\
 https://nytimes.com/athletic/6721175/2025/10/29/eagles-aj-brown-wr-titans-trade-super-bowl/

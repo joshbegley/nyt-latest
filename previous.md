@@ -1,3 +1,11 @@
+**When Caregiving Makes Women Ill**\
+`Eastern Europeans have migrated in droves to take care of Italy’s aged and infirm. Then they started getting sick, with an ailment dubbed ‘Italy syndrome.’`\
+https://nytimes.com/2025/10/29/world/europe/when-caregiving-makes-women-ill.html
+
+**A.J. Brown on his relationship with Jalen Hurts, why he doesn't do drugs, more**\
+`There are a lot of layers to the star wide receiver who helped lead the Philadelphia Eagles to their second Super Bowl title last season`\
+https://nytimes.com/athletic/6758436/2025/10/29/aj-brown-jalen-hurts-relationship-life-no-drugs/
+
 **What does A.J. Brown want? Eagles' star WR chases greatness — on his terms**\
 `Brown needs the football, but not for the reasons you think.`\
 https://nytimes.com/athletic/6721175/2025/10/29/eagles-aj-brown-wr-titans-trade-super-bowl/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/29/climate/klamath-salmon-recovery.html
 **How Will I Feed My Family Now?**\
 `I rely on SNAP benefits. That requires constant trade-offs.`\
 https://nytimes.com/2025/10/29/opinion/snap-shutdown-food-stamps.html
-
-**What to Watch at the Federal Reserve’s October Meeting**\
-`The U.S. central bank is widely expected to cut interest rates for the second meeting in a row even though the government shutdown is obscuring officials’ view of the economy.`\
-https://nytimes.com/2025/10/29/business/fed-interest-rates-decision.html
-
-**In This Mick Herron TV Adaptation, Women Take the Lead**\
-`“Down Cemetery Road,” with Ruth Wilson and Emma Thompson, arrives on Apple TV+ on Wednesday. It’s the latest thriller based on books by Herron, the “Slow Horses” author.`\
-https://nytimes.com/2025/10/29/arts/television/down-cemetery-road-mick-herron-ruth-wilson-emma-thompson.html
 
