@@ -1,3 +1,11 @@
+**Everton have £70m of new talent sitting on the bench - but need to be patient**\
+`Hurrying Thierno Barry, Tyler Dibling and Adam Aznou would be counterproductive as they need time to develop their considerable potential`\
+https://nytimes.com/athletic/6756513/2025/10/29/everton-summer-signings-bench-patience/
+
+**Newcastle, united: How the city's football, rugby and basketball teams are working together**\
+`A look at how three of the city's sports teams are helping each other improve in many different areas`\
+https://nytimes.com/athletic/6757072/2025/10/29/newcastle-united-sports-teams/
+
 **'Hatty' time! Blackhawks' Connor Bedard nets his first NHL hat trick**\
 `It's hard to believe it took this long, but the young Chicago star finally scored three times in a game Tuesday vs the Senators.`\
 https://nytimes.com/athletic/6758829/2025/10/29/blackhawks-connor-bedard-hat-trick/
