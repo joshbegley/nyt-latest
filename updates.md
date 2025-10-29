@@ -1,3 +1,11 @@
+**What Can Hollywood Learn From New Media?**\
+`A new production company wants to make as many video podcasts and newsletters as films and television shows.`\
+https://nytimes.com/2025/10/29/business/media/hollywood-new-media-run-a-muck-ilene-chaiken.html
+
+**Josh Hawley’s Plea for Food Assistance**\
+`Readers respond to the senator’s Opinion guest essay about the possible cutoff of SNAP benefits.`\
+https://nytimes.com/2025/10/29/opinion/josh-hawley-food-assistance-snap.html
+
 **gws-goonies-astoria-oregon**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/goonies-astoria-oregon
