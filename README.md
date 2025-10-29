@@ -1,3 +1,7 @@
+**Daniel Radcliffe Will Return to Broadway in ‘Every Brilliant Thing’**\
+`The “Harry Potter” alumnus, who won a Tony Award last year, will star in a solo play that involves something unexpected: audience participation.`\
+https://nytimes.com/2025/10/29/theater/daniel-radcliffe-broadway.html
+
 **Trump Has Likened Himself to a King. South Korea Gave Him a Crown.**\
 `President Trump received a replica of a golden crown excavated from an ancient royal tomb in Gyeongju. He called it “very special.”`\
 https://nytimes.com/2025/10/29/world/asia/trump-south-korea-crown-gyeongju.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6757642/2025/10/29/rams-trade-deadline-buyers-roger
 **Hurricane Melissa Has Arrived in Cuba**\
 `The storm hit Jamaica as one of the strongest Atlantic hurricanes ever.`\
 https://nytimes.com/2025/10/29/us/jamaica-melissa-destruction-cuba-hurricane.html
-
-**Chris Finch challenges Rudy Gobert, Jaden McDaniels as Wolves defense falters**\
-`Minnesota's defense figured to be its strength this season. But so far, the Wolves rank near the bottom of the league on that end.`\
-https://nytimes.com/athletic/6755608/2025/10/29/rudy-gobert-jaden-mcdaniels-timberwolves-defense/
 
