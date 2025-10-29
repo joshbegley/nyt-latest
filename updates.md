@@ -1,3 +1,7 @@
+**Wild felt they were 'better team' in 4-3 overtime loss to Jets; takeaways**\
+`Minnesota will need more from two of their best players if they want to turn things around. `\
+https://nytimes.com/athletic/6759057/2025/10/29/minnesota-wild-overtime-loss-jets-takeaways/
+
 **Penguins organization furious with Flyers, NHL officials after wild shootout loss**\
 `Eight misconducts were given out at the end of OT as the Penguins-Flyers rivalry heated up on Tuesday and Pittsburgh fell in a shootout.`\
 https://nytimes.com/athletic/6758795/2025/10/29/penguins-flyers-nhl-officials-shootout/
