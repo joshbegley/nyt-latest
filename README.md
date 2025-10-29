@@ -1,3 +1,7 @@
+**After 10 games, 7 Winnipeg Jets takeaways and what they mean**\
+`Let's dig into what Winnipeg has been doing well, what it hasn't, how it can get better, and more.`\
+https://nytimes.com/athletic/6757555/2025/10/29/winnipeg-jets-after-10-games/
+
 **Daniel Radcliffe Will Return to Broadway in ‘Every Brilliant Thing’**\
 `The “Harry Potter” alumnus, who won a Tony Award last year, will star in a solo play that involves something unexpected: audience participation.`\
 https://nytimes.com/2025/10/29/theater/daniel-radcliffe-broadway.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/americas/100000010488155/trump-third-term-limit.
 **After adding CB help, will the Rams remain buyers at the trade deadline?**\
 `The Rams made a trade for Roger McCreary to bolster their cornerback room. What other moves could the team consider before the deadline?`\
 https://nytimes.com/athletic/6757642/2025/10/29/rams-trade-deadline-buyers-roger-mccreary/
-
-**Hurricane Melissa Has Arrived in Cuba**\
-`The storm hit Jamaica as one of the strongest Atlantic hurricanes ever.`\
-https://nytimes.com/2025/10/29/us/jamaica-melissa-destruction-cuba-hurricane.html
 
