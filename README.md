@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6759999/2025/10/29/backyard-baseball-animated-speci
 `Israel’s military released a drone video of the incident in Gaza, and The New York Times analyzed the footage.`\
 https://nytimes.com/2025/10/29/world/europe/gaza-hamas-israel-remains.html
 
-**Edward J. Blakely, 87, Dies; Oversaw Katrina Recovery in New Orleans**\
+**Edward J. Blakely, 87, Dies; Hired to Oversee Katrina Recovery in New Orleans**\
 `An urban planner who specialized in disaster recovery, he was brought in to revive the city after the 2005 storm. The task proved larger than one man could handle.`\
 https://nytimes.com/2025/10/29/climate/edward-j-blakely-dead.html
 
