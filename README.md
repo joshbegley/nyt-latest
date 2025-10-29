@@ -1,3 +1,7 @@
+**Putin Announces Test of Tsunami-Making Nuclear Weapon**\
+`The test comes days after President Vladimir V. Putin announced the previous trial of another Russian nuclear weapon.`\
+https://nytimes.com/2025/10/29/world/europe/russia-missile-poseidon-putin-nuclear-tests.html
+
 **Tampa named host of College Football Playoff title game for 2028 season**\
 `This season’s title game will be Jan. 19 in Miami. The next two sites are Las Vegas (January 2027) and New Orleans (January 2028).`\
 https://nytimes.com/athletic/6760221/2025/10/29/college-football-playoff-national-title-game-2028-tampa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6760199/2025/10/29/rockets-vs-raptors-stream-how-to
 **How to watch Cavaliers vs. Celtics: Time, TV, streaming**\
 `Find out how to watch the Cleveland Cavaliers play the Boston Celtics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6760197/2025/10/29/cavaliers-vs-celtics-stream-how-to-watch-oct-29/
-
-**How to watch Magic vs. Pistons: Time, TV, streaming**\
-`Find out how to watch the Orlando Magic play the Detroit Pistons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6760195/2025/10/29/magic-vs-pistons-stream-how-to-watch-oct-29/
 
