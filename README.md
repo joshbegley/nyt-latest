@@ -1,3 +1,7 @@
+**Clippers spent 2 years dominating Warriors. Then their offense collapsed**\
+`The Clippers will see the Warriors three more times, including the season finale. On Tuesday, LA didn't look ready for prime time at all.`\
+https://nytimes.com/athletic/6759266/2025/10/29/clippers-warriors-result-offense-struggles/
+
 **Bears adding C.J. Gardner-Johnson to injury-depleted secondary: Source**\
 `Gardner-Johnson played three seasons under Dennis Allen in New Orleans from 2019-2021 and also overlapped with Ben Johnson in Detroit.`\
 https://nytimes.com/athletic/6759930/2025/10/29/bears-sign-cj-gardner-johnson/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/29/magazine/kale-rice-halloumi-dish.html
 **Street Battles Rage in Ukrainian City After Russian Troops Enter Stronghold**\
 `Moscow’s forces infiltrated Pokrovsk after months of attacks on the city, a strategic part of Ukraine’s eastern defenses.`\
 https://nytimes.com/2025/10/29/world/europe/ukraine-russia-street-battles-pokrovsk.html
-
-**How might Bills use CB Maxwell Hairston against Chiefs after solid NFL debut?**\
-`The rookie saw his first game action after sustaining an injury early in training camp.`\
-https://nytimes.com/athletic/6758179/2025/10/29/bills-chiefs-rookie-cb-maxwell-hairston/
 
