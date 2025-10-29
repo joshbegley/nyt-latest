@@ -1,3 +1,15 @@
+**What does A.J. Brown want? Eagles' star WR chases greatness — on his terms**\
+`Brown needs the football, but not for the reasons you think.`\
+https://nytimes.com/athletic/6721175/2025/10/29/eagles-aj-brown-wr-titans-trade-super-bowl/
+
+**Jets have trade deadline decisions to make on Breece Hall, Quinnen Williams and others**\
+`The 1-7 Jets have to decide who among their young nucleus would be worth including in a deal.`\
+https://nytimes.com/athletic/6757570/2025/10/29/new-york-jets-trade-deadline-breece-hall-quinnen-williams/
+
+**The New York Times International Edition in Print for Thursday, Oct. 30, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/10/29/todays-new-york-times-international-edition
+
 **Is Legalized Gambling Ruining Sports?**\
 `A federal investigation into illegal gambling has rocked the N.B.A. and the sports world. Does it change how you view the game?`\
 https://nytimes.com/2025/10/29/learning/is-legalized-gambling-ruining-sports.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/29/business/fed-interest-rates-decision.html
 **In This Mick Herron TV Adaptation, Women Take the Lead**\
 `“Down Cemetery Road,” with Ruth Wilson and Emma Thompson, arrives on Apple TV+ on Wednesday. It’s the latest thriller based on books by Herron, the “Slow Horses” author.`\
 https://nytimes.com/2025/10/29/arts/television/down-cemetery-road-mick-herron-ruth-wilson-emma-thompson.html
-
-**Delivery Workers and Street Vendors Join Forces**\
-`The two groups, both mainly made up of immigrants, are pressing the City Council for more protections.`\
-https://nytimes.com/2025/10/29/nyregion/delivery-workers-street-vendors-city-council.html
-
-**The Empty Promises of Trump’s Imperial Presidency**\
-`It may take an imperial Congress to correct its flaws.`\
-https://nytimes.com/2025/10/29/opinion/snap-hunger-republicans-congress.html
-
-**$2.7 Million Homes in Florida, New Jersey and California**\
-`A house with a guest cottage in Key West, a farmhouse in Annandale and a midcentury modern home in Dana Point`\
-https://nytimes.com/2025/10/29/realestate/2-7-million-homes-in-florida-new-jersey-and-california.html
 
