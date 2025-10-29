@@ -1,3 +1,27 @@
+**U.S. Says It Will Cut Troops in Eastern Europe**\
+`About 700 troops are expected to be withdrawn as Trump administration officials shift resources to the Indo-Pacific region.`\
+https://nytimes.com/2025/10/29/world/europe/us-troops-eastern-europe-romania.html
+
+**48 Hours Without A.I.**\
+`A.`\
+https://nytimes.com/video/technology/100000010483638/48-hours-without-ai.html
+
+**This Butternut Squash Pasta Is Hearty (but Not Heavy)**\
+`By Melissa Clark`\
+https://nytimes.com/2025/10/29/dining/this-butternut-squash-pasta-is-hearty-but-not-heavy.html
+
+**Would Mamdani Be New York’s First Immigrant Mayor? Not by a Long Shot.**\
+`If Zohran Mamdani is elected, he would join a list of more than two dozen mayors of New York City born overseas.`\
+https://nytimes.com/2025/10/29/nyregion/nyc-immigrant-mayors-mamdani.html
+
+**‘Coexistence, My Ass!’ Review: Facing Conflict With Comedy**\
+`Noam Shuster Eliassi spreads the message that Palestinians and Israelis should live as equals.`\
+https://nytimes.com/2025/10/29/movies/coexistence-my-ass-review.html
+
+**CSC hires former federal prosecutor Katie Medearis as head of enforcement**\
+`Medearis will oversee compliance and enforcement of college sports’ newly implemented revenue-sharing system.`\
+https://nytimes.com/athletic/6759995/2025/10/29/college-sports-commission-katie-medearis/
+
 **Mammoth sign Logan Cooley to 8-year, $80 million extension**\
 `The contract has a $10 million AAV and does not carry any bonuses. Cooley has 121 points in 168 career games.`\
 https://nytimes.com/athletic/6759998/2025/10/29/mammoth-utah-logan-cooley-extension/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/10/29/world/asia/trump-south-north-korea-kim.html
 **The Bounce: Giannis makes a New York statement. Plus, the Concern-O-Meter debuts**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6760007/2025/10/29/giannis-nba-concerns-the-bounce/
-
-**As China and U.S. Fight Over Energy, Korea Is Stuck in the Middle**\
-`It needs the United States for defense and has spent billions building factories in America. But a Trump trade deal this week with China could erase a Korean edge in the U.S. market.`\
-https://nytimes.com/2025/10/29/climate/china-us-korea-clean-energy-tariffs.html
-
-**Melissa causó graves daños en las infraestructuras de Jamaica, dicen las autoridades**\
-`La mayor parte de la isla, de dos millones de habitantes, se quedó sin internet y los principales aeropuertos cerraron. Kingston, la capital, se salvó en su mayor parte.`\
-https://nytimes.com/live/2025/10/29/espanol/huracan-melissa/huracan-melissa-danos-damnificados-muertos
-
-**Explained: Why the Premier League can show Saturday 3pms over Christmas - but won't**\
-`The league has yet to announce its UK broadcast picks for the period, with fans unsure how many games they will be able to watch live.`\
-https://nytimes.com/athletic/6759615/2025/10/29/premier-league-boxing-day-blackout/
-
-**The Windup: Blue Jays still beating the odds**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6759983/2025/10/29/world-series-game-4-the-windup/
-
-**Nick Offerman on Meditative Woodworking**\
-`Woodworker, author, and actor Nick Offerman describes how woodworking can be a spiritual or meditative experience.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010488504/nick-offerman-on-meditative-woodworking.html
-
-**Six secondhand shopping tips**\
-`Six Wirecutter writers share their advice for shopping secondhand for clothing, home decor, and tableware.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010488522/six-secondhand-shopping-tips.html
 
