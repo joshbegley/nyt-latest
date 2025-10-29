@@ -1,40 +1,40 @@
-**Trump, in South Korea for Summit, Is Given a Prize and Crown**\
-`President Lee Jae Myung of South Korea gave President Trump a replica of an ancient crown and a national prize. Crowds gathered nearby to protest his visit.`\
-https://nytimes.com/video/world/asia/100000010487758/trump-south-korea-apec.html
+**What's gone wrong for the Bears in the red zone? Plenty**\
+`Ben Johnson’s offense should shine in the red zone, thanks in part to a revamped offensive line and a dual-threat QB. It hasn't.`\
+https://nytimes.com/athletic/6758081/2025/10/29/bears-red-zone-struggles-caleb-williams/
 
-**When Caregiving Makes Women Ill**\
-`Eastern Europeans have migrated in droves to take care of Italy’s aged and infirm. Then they started getting sick, with an ailment dubbed ‘Italy syndrome.’`\
-https://nytimes.com/2025/10/29/world/europe/when-caregiving-makes-women-ill.html
+**Panthers' trade deadline primer: Is Chuba Hubbard available? Will they seek pass rusher?**\
+`If the Panthers are to be tempted to make a deal, pass rusher is the position Dan Morgan and company could be eyeing.`\
+https://nytimes.com/athletic/6757997/2025/10/29/carolina-panthers-trade-deadline-chuba-hubbard/
 
-**A.J. Brown on his relationship with Jalen Hurts, why he doesn't do drugs, more**\
-`There are a lot of layers to the star wide receiver who helped lead the Philadelphia Eagles to their second Super Bowl title last season`\
-https://nytimes.com/athletic/6758436/2025/10/29/aj-brown-jalen-hurts-relationship-life-no-drugs/
+**Lions safety Brian Branch returns after suspension: 'Just gotta be smarter'**\
+`After the secondary stepped up vs. the Bucs and his teammates showed their support, Branch is "ready to go to war for them any day."`\
+https://nytimes.com/athletic/6758374/2025/10/29/lions-brian-branch-suspension-return-vikings/
 
-**What does A.J. Brown want? Eagles' star WR chases greatness — on his terms**\
-`Brown needs the football, but not for the reasons you think.`\
-https://nytimes.com/athletic/6721175/2025/10/29/eagles-aj-brown-wr-titans-trade-super-bowl/
+**The Vikings need LT Christian Darrisaw. Why is he still not back to full strength?**\
+`Darrisaw has played only 55 percent of the Vikings' offensive snaps this season. The team needs him back and healthy — ASAP.`\
+https://nytimes.com/athletic/6757670/2025/10/29/christian-darrisaw-vikings-injury-status/
 
-**Jets have trade deadline decisions to make on Breece Hall, Quinnen Williams and others**\
-`The 1-7 Jets have to decide who among their young nucleus would be worth including in a deal.`\
-https://nytimes.com/athletic/6757570/2025/10/29/new-york-jets-trade-deadline-breece-hall-quinnen-williams/
+**Matt Berninger traded his notebook for a baseball. And the words kept coming**\
+`For The National’s frontman, the way forward was written on rawhide.`\
+https://nytimes.com/athletic/6755600/2025/10/29/the-national-matt-berninger-baseball-and-writing/
 
-**The New York Times International Edition in Print for Thursday, Oct. 30, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/10/29/todays-new-york-times-international-edition
+**2026 NHL Draft top prospects: Who's pushing Gavin McKenna at No. 1 in Pronman's ranking?**\
+`Gavin McKenna remains the top prospect, and he looks like a standard first-overall type of prospect.`\
+https://nytimes.com/athletic/6754147/2025/10/29/nhl-draft-top-prospects-2026-gavin-mckenna-pronman/
 
-**Is Legalized Gambling Ruining Sports?**\
-`A federal investigation into illegal gambling has rocked the N.B.A. and the sports world. Does it change how you view the game?`\
-https://nytimes.com/2025/10/29/learning/is-legalized-gambling-ruining-sports.html
+**Rosenthal: As World Series pressure tightens, resilient Blue Jays insist on keeping things loose**\
+`Ahead of Game 4, Toronto's clubhouse showed no signs of the epic 18-inning loss the team had sustained the previous night. `\
+https://nytimes.com/athletic/6759351/2025/10/29/toronto-blue-jays-world-series-resilience/
 
-**A Nazi Tattoo Exposes Democrats’ Greatest Weakness**\
-`Do Democrats know what the working class actually looks like?`\
-https://nytimes.com/2025/10/29/opinion/nazi-tattoo-graham-platner-democrats.html
+**Do the Bruins have enough time to turn it around for good?**\
+`Yes, the Bruins beat the Islanders on Tuesday night. No, they still don't look like they're ready to win consistently.`\
+https://nytimes.com/athletic/6759039/2025/10/29/bruins-sturm-system-islanders/
 
-**How to Celebrate Halloween Across the 5 Boroughs**\
-`A small sampling of the many New York neighborhoods that go all out with festive décor.`\
-https://nytimes.com/2025/10/29/realestate/halloween-neighborhood-guide.html
+**What's next if the WNBA doesn't reach a CBA agreement by Friday's deadline?**\
+`Is a work stoppage in the future? `\
+https://nytimes.com/athletic/6758355/2025/10/29/wnba-cba-labor-union-deadline/
 
-**A River Restoration in Oregon Gets Fast Results: The Salmon Swam Right Back**\
-`The fish had been missing from the headwaters of the Klamath River for more than a century. Just a year after the removal of a final dam, they’ve returned.`\
-https://nytimes.com/2025/10/29/climate/klamath-salmon-recovery.html
+**Edwards: The Knicks don't need Giannis Antetokounmpo. They need time**\
+`The Knicks aren't where they want to be yet, and that's OK.`\
+https://nytimes.com/athletic/6758806/2025/10/29/knicks-giannis-antetokounmpo-bucks/
 
