@@ -1,3 +1,23 @@
+**Toyota Says $10 Billion U.S. Investment Touted by Trump Isn’t New**\
+`Japanese officials have called into question some elements of the flurry of big new investments announced by President Trump during his Japan visit.`\
+https://nytimes.com/2025/10/29/business/trump-toyota-10-billion.html
+
+**Japan to Send Troops to Help Stop Bear Attacks**\
+`With the number of people killed by bears reaching a record nationwide, the defense ministry is preparing to send the military to one badly hit area to set traps.`\
+https://nytimes.com/2025/10/29/world/asia/japan-bear-attacks-military.html
+
+**What's wrong with Florida State under Mike Norvell (again)?**\
+`Florida State raised hopes for a bounce-back season after beating Alabama. Now it's struggling again at 3-4. Why can't it win anymore?`\
+https://nytimes.com/athletic/6757736/2025/10/29/florida-state-mike-norvell-recruiting-record/
+
+**The Pulse: The Blue Jays are unflappable**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6758929/2025/10/29/blue-jays-dodgers-game-4-the-pulse/
+
+**Saka says Gyokeres has 'settled in well' but Arsenal need to 'adapt' to striker**\
+`Saka spoke on the impacts that Gyokeres and Eze have made since joining Arsenal last summer while also diffusing burgeoning title talk.`\
+https://nytimes.com/athletic/6759524/2025/10/29/arsenal-bukayo-saka-viktor-gyokeres/
+
 **A Game 4 loss leaves the Dodgers no choice: As usual, they'll have to clinch a title on the road**\
 `The Dodgers may still celebrate again this postseason, but it'll have to be in the Rogers Centre this weekend. `\
 https://nytimes.com/athletic/6759239/2025/10/29/los-angeles-dodgers-road-world-series/
