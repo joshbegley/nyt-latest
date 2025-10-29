@@ -1,3 +1,19 @@
+**Twins' biggest offseason needs: 3 glaring roster weaknesses requiring outside help**\
+`If the Twins have any notion of a competitive 2026, three glaring roster issues need to be addressed, likely with outside additions.`\
+https://nytimes.com/athletic/6743274/2025/10/29/twins-offseason-needs-bullpen-bats-first-base/
+
+**Mercedes Reports a Drop in Profit but Maintains Forecast**\
+`The German carmaker held its outlook steady and said it would buy back more than $2 billion in shares, as sales of its high-end models improved.`\
+https://nytimes.com/2025/10/29/world/europe/mercedes-profit-tariffs.html
+
+**Canadiens continue to collect wins, but need to show more maturity in how they get them**\
+`The Canadiens pulled out another overtime win thanks to Cole Caufield, but a young team will need to learn what it takes to close out games.`\
+https://nytimes.com/athletic/6759387/2025/10/29/montreal-canadiens-wins-maturity/
+
+**Browns could add to their 2026 draft pick total by being sellers at trade deadline**\
+`Cleveland has a handful of players it would likely part ways with for teams looking for pass-rush or running back help. `\
+https://nytimes.com/athletic/6758253/2025/10/29/browns-trade-deadline-2026-nfl-draft/
+
 **College football Week 10 streaming guide: Vandy in Austin, 'GameDay' in Utah**\
 `This weekend has entertainment value and chaos potential on its horizon. Both befit the unhinged trip that is 2025 FBS play.`\
 https://nytimes.com/athletic/6755582/2025/10/29/college-football-week-10-vanderbilt-texas-utah-how-to-watch/
