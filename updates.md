@@ -1,3 +1,7 @@
+**Trump, in South Korea for Summit, Is Given a Prize and Crown**\
+`President Lee Jae Myung of South Korea gave President Trump a replica of an ancient crown and a national prize. Crowds gathered nearby to protest his visit.`\
+https://nytimes.com/video/world/asia/100000010487758/trump-south-korea-apec.html
+
 **When Caregiving Makes Women Ill**\
 `Eastern Europeans have migrated in droves to take care of Italy’s aged and infirm. Then they started getting sick, with an ailment dubbed ‘Italy syndrome.’`\
 https://nytimes.com/2025/10/29/world/europe/when-caregiving-makes-women-ill.html
