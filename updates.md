@@ -1,3 +1,11 @@
+**Georgia sheriff committed to recovering Shaq's stolen SUV: 'We have search warrants'**\
+`Investigators are working to find a custom Range Rover built for Shaquille O'Neal, which went missing this month in Georgia.`\
+https://nytimes.com/athletic/6760404/2025/10/29/shaquille-oneal-range-rover-stolen/
+
+**Tiny Love Stories: ‘We Are a Comedy of Errors’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/10/29/style/tiny-modern-love-stories-we-are-a-comedy-of-errors.html
+
 **A Flowing Toast to Diane von Furstenberg, Queen of the Wrap Dress**\
 `Tycoons and fashion glitterati honored the designer at the Perelman Performing Arts Center in Lower Manhattan.`\
 https://nytimes.com/2025/10/29/style/diane-von-furstenberg-icons-of-culture-gala.html
