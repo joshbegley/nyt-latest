@@ -1,3 +1,23 @@
+**Four Decades After It Was Stolen, a Renaissance Treasure Returns to Rome**\
+`The Italian art police still don’t know who took the brilliantly illuminated manuscript page from a Franciscan friary, and many more pages have yet to be found.`\
+https://nytimes.com/2025/10/29/world/europe/stolen-manuscript-return-rome.html
+
+**Microsoft Increases Investments Amid A.I. Race**\
+`The company reported that it spent a higher-than-expected $34.9 billion in capital expenditures during its quarter.`\
+https://nytimes.com/2025/10/29/business/microsoft-quarterly-earnings.html
+
+**Five Houses Collapse in North Carolina’s Outer Banks**\
+`Stormy weather, strong winds and erosion have swept away more than a dozen houses on the barrier islands since mid-September.`\
+https://nytimes.com/2025/10/29/us/outer-banks-homes-collapsing-ocean.html
+
+**Outer Banks Homes Collapse Into Ocean in North Carolina**\
+`Stormy weather, strong winds and erosion caused more homes to collapse into the sea along the Cape Hatteras National Seashore in North Carolina.`\
+https://nytimes.com/video/weather/100000010489096/homes-collapsing-outer-banks-ocean.html
+
+**Submit your questions for Kevin Fishbain's Bears mailbag**\
+`The Bears are 4-3 after a disappointing performance in Baltimore and preparing to face the Bengals in Cincinnati. What's on your mind?`\
+https://nytimes.com/athletic/6761095/2025/10/29/bears-mailbag-questions-47/
+
 **Karine Jean-Pierre and a Book Tour Most Authors Would Not Dream Of**\
 `The Biden White House press secretary, peddling a book that makes Democrats unhappy, gives an “absolute train wreck’’ of an interview to The New Yorker.`\
 https://nytimes.com/2025/10/29/us/politics/karine-jean-pierre-book.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/10/29/us/chicago-immigration-protest-indictments.html
 **Alexis deBoschnek’s Dinner Party Tips**\
 `Cookbook author Alexis deBoschnek shares three hosting tips for how she throws a memorable dinner party.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010488483/alexis-deboschneks-dinner-party-tips.html
-
-**A Sacred Space Where 90-Year-Old Jazz Records Reign**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/hot-club-of-new-york-jazz-78s
-
-**Commanders rule out Terry McLaurin vs. Seahawks with quad re-injury**\
-`Coach Dan Quinn said the hope is McLaurin isn’t out long-term, but the team will reassess his health next week.`\
-https://nytimes.com/athletic/6760898/2025/10/29/terry-mclaurin-out-injury-quad-commanders-seahawks/
-
-**‘Auction’ Review: The Art World’s Gilded Hustle**\
-`This shrewd and diverting French drama takes as its inspiration the rediscovery of a long-lost Egon Schiele masterwork.`\
-https://nytimes.com/2025/10/29/movies/auction-review-pascal-bonitzer.html
-
-**Sliwa brushes off defections by fellow Republicans.**\
-`By Talya Minsberg`\
-https://nytimes.com/live/2025/10/29/nyregion/nyc-mayor-election-news/sliwa-brushes-off-defections-by-fellow-republicans
-
-**gws-ventfort-hall-gilded-age-berkshires**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/ventfort-hall-gilded-age-berkshires
 
