@@ -1,3 +1,11 @@
+**Xabi Alonso’s Real Madrid revolution has caused an early rift with big stars**\
+`Real Madrid have made a great start to the season, but problems in the dressing room have surfaced`\
+https://nytimes.com/athletic/6757096/2025/10/29/real-madrid-xabi-alonso-clasico-rift-big-stars/
+
+**Sam Kerr is back leading Australia, but it hasn't been easy**\
+`The country's record goalscorer has endured a turbulent period on and off the field but is now looking to the future`\
+https://nytimes.com/athletic/6758397/2025/10/29/sam-kerr-australia-captain-england/
+
 **Wrexham's night of pain will sting for a very long time**\
 `Phil Parkinson's side lost a winnable game, local pride, and the chance of a big cup draw in Tuesday's defeat to Cardiff `\
 https://nytimes.com/athletic/6753948/2025/10/29/wrexham-cardiff-carabao-cup-result-analysis/
