@@ -1,3 +1,11 @@
+**Judge Cuts Greenpeace Pipeline Protest Award Nearly in Half**\
+`A North Dakota judge reduced the jury’s award to the pipeline company Energy Transfer to roughly $345 million, from $667 million.`\
+https://nytimes.com/2025/10/29/climate/greenpeace-dakota-access-pipeline-damages.html
+
+**After seeking LeBron James' advice, Jaylen Brown teases new 'haircut' on stream**\
+`Jaylen Brown on why he is balding: "I blame Boston. Ten years of stress, the media, the championships."`\
+https://nytimes.com/athletic/6761341/2025/10/29/jaylen-brown-celtics-nba-lebron-james-haircut/
+
 **Slot defends Liverpool selection with 'only 15 players available'**\
 `Slot made 10 changes to the side who lost at Brentford on Saturday, but the defeat to Palace marked a sixth loss in seven for Liverpool.`\
 https://nytimes.com/athletic/6761471/2025/10/29/liverpool-team-crystal-palace-slot/

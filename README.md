@@ -1,3 +1,7 @@
+**Large Fire at Texas Cotton Gin Prompts Evacuation Order**\
+`Residents of nearly a dozen streets in Gregory, Texas, north of Corpus Christi, were ordered to leave their homes as firefighters battled the blaze from the ground and the air.`\
+https://nytimes.com/2025/10/29/us/cotton-gin-fire-texas-gregory.html
+
 **Judge Cuts Greenpeace Pipeline Protest Award Nearly in Half**\
 `A North Dakota judge reduced the jury’s award to the pipeline company Energy Transfer to roughly $345 million, from $667 million.`\
 https://nytimes.com/2025/10/29/climate/greenpeace-dakota-access-pipeline-damages.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/29/business/starbucks-quarterly-earnings.html
 **'Playing for himself': Maresca frustrated by Delap after 'embarrassing' red card**\
 `Chelsea’s head coach was left furious with the forward for his ill-discipline on what was his first appearance for two months.`\
 https://nytimes.com/athletic/6761405/2025/10/29/enzo-maresca-liam-delap-red-card/
-
-**Over 130 Killed in Bloody Crackdown on Drug Gangs in Rio de Janeiro**\
-`The death toll in Rio’s deadliest police operation in history rose to 132 people, the state authorities say, sparking outrage and a reckoning.`\
-https://nytimes.com/2025/10/29/world/americas/rio-brazil-police-raid-deaths.html
 
