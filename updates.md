@@ -1,3 +1,7 @@
+**Why this Giannis Antetokounmpo move wasn't a travel — even if it (maybe) should be**\
+`Was Giannis Antetokounmpo's now-viral drive against the Knicks a legal move or a travel? We examine the NBA rule book to explain.`\
+https://nytimes.com/athletic/6760365/2025/10/29/giannis-antetokounmpo-travel-bucks-knicks/
+
 **After shenanigans vs. Penguins, Trevor Zegras may be becoming a Flyers fan favorite**\
 `In training camp, coach Rick Tocchet pushed Zegras about his reputation for "doing stuff for clicks on social media."`\
 https://nytimes.com/athletic/6760636/2025/10/29/trevor-zegras-flyers-penguins/
