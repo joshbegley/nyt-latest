@@ -1,4 +1,8 @@
-**Sam Kerr is back leading Australia - but it hasn't been easy**\
+**Xabi Alonso’s Real Madrid revolution has caused an early rift with big stars**\
+`Real Madrid have made a great start to the season, but problems in the dressing room have surfaced`\
+https://nytimes.com/athletic/6757096/2025/10/29/real-madrid-xabi-alonso-clasico-rift-big-stars/
+
+**Sam Kerr is back leading Australia, but it hasn't been easy**\
 `The country's record goalscorer has endured a turbulent period on and off the field but is now looking to the future`\
 https://nytimes.com/athletic/6758397/2025/10/29/sam-kerr-australia-captain-england/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/29/arts/television/stephen-colbert-trump-mri.html
 **How to watch Seahawks vs. Commanders: Time, TV, streaming**\
 `Find out how to watch the Seattle Seahawks play the Washington Commanders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6759217/2025/10/29/seahawks-vs-commanders-stream-how-to-watch-nov-2/
-
-**How to watch Blue Jays at Dodgers: World Series Game 5 Time, TV, streaming**\
-`Find out how to watch the Toronto Blue Jays play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6759200/2025/10/29/blue-jays-vs-dodgers-stream-how-to-watch-oct-29/
 
