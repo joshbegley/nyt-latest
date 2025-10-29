@@ -1,3 +1,15 @@
+**Beloved 1997 computer game 'Backyard Baseball' to return as 2D animated special**\
+`The animated show, based on a popular 1997 computer game, will be released on YouTube and shown at Dave & Buster's locations across the U.S.`\
+https://nytimes.com/athletic/6759999/2025/10/29/backyard-baseball-animated-special/
+
+**Video Analysis Shows Staged Recovery of Israeli Hostage Remains**\
+`Israel’s military released a drone video of the incident in Gaza, and The New York Times analyzed the footage.`\
+https://nytimes.com/2025/10/29/world/europe/gaza-hamas-israel-remains.html
+
+**Edward J. Blakely, Who Oversaw Katrina Recovery in New Orleans, Dies at 87**\
+`An urban planner who specialized in disaster recovery, he was brought in to revive the city after the 2005 storm. The task proved larger than one man could handle.`\
+https://nytimes.com/2025/10/29/climate/edward-j-blakely-dead.html
+
 **Can the James Baldwin Typebot Tell Us the Meaning of Life?**\
 `In the financial district of Manhattan, an A.I.-equipped typewriter, fueled by James Baldwin’s works, types back at you with answers to your questions.`\
 https://nytimes.com/2025/10/29/arts/design/james-baldwin-ai-typewriter.html
@@ -21,20 +33,4 @@ https://nytimes.com/2025/10/29/espanol/tiempo-y-clima/jamaica-turistas-rescate-a
 **Cuomo faces criticism for canceling event at Park Slope synagogue.**\
 `By Emma G. Fitzsimmons`\
 https://nytimes.com/live/2025/10/29/nyregion/nyc-mayor-election-news/cuomo-faces-criticism-for-canceling-event-at-park-slope-synagogue
-
-**Cam Skattebo suffered fibula fracture, ligament rupture in ankle injury**\
-`Skattebo underwent a successful surgery to repair the injuries Sunday, and the Giants expect the rookie back during the offseason.`\
-https://nytimes.com/athletic/6760401/2025/10/29/cam-skattebo-giants-injury-update/
-
-**Mamdani’s Candidacy Roils Jewish Communities Across the Country**\
-`Zohran Mamdani, the Democratic candidate for mayor of New York City, has said he cannot support Israel as long as it is an officially Jewish state. More than 1,100 American rabbis are warning that the safety of Jews is at risk.`\
-https://nytimes.com/2025/10/29/us/politics/zohran-mamdani-jews-rabbis.html
-
-**Prosecutors Who Called Jan. 6 Attackers a ‘Mob of Rioters’ on Are Punished**\
-`The prosecutors were put on leave after filing a sentencing memo in the case of a man who showed up armed outside the home of former President Barack Obama.`\
-https://nytimes.com/2025/10/29/us/politics/prosecutors-jan-6-trump.html
-
-**A Bodega Group Opposed Mamdani’s Grocery Plan. Now It’s Endorsing Him.**\
-`The president of United Bodegas of America said on Wednesday that the Democratic mayoral candidate offered the best path for his members’ success.`\
-https://nytimes.com/2025/10/29/nyregion/mamdani-bodegas-endorsement.html
 

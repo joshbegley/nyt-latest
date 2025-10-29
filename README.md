@@ -1,3 +1,15 @@
+**Sanctions Lifted on a Putin-Backed Autocrat After Lobbying by Trump Allies**\
+`The move benefits the Serbian politician Milorad Dodik, who had received support from Rudolph W. Giuliani, Michael T. Flynn, Laura Loomer and high-priced lobbyists.`\
+https://nytimes.com/2025/10/29/us/politics/milorad-dodik-sanctions-trump.html
+
+**G.M. Will Cut 1,750 Jobs in Electric Vehicle Business**\
+`The layoffs at factories in Michigan, Ohio and Tennessee follow the elimination of a $7,500 federal tax credit for electric cars.`\
+https://nytimes.com/2025/10/29/business/general-motors-electric-vehicles-layoff.html
+
+**At Home With**\
+``\
+https://nytimes.com/series/at-home-with
+
 **Beloved 1997 computer game 'Backyard Baseball' to return as 2D animated special**\
 `The animated show, based on a popular 1997 computer game, will be released on YouTube and shown at Dave & Buster's locations across the U.S.`\
 https://nytimes.com/athletic/6759999/2025/10/29/backyard-baseball-animated-special/
@@ -6,7 +18,7 @@ https://nytimes.com/athletic/6759999/2025/10/29/backyard-baseball-animated-speci
 `Israel’s military released a drone video of the incident in Gaza, and The New York Times analyzed the footage.`\
 https://nytimes.com/2025/10/29/world/europe/gaza-hamas-israel-remains.html
 
-**Edward J. Blakely, Who Oversaw Katrina Recovery in New Orleans, Dies at 87**\
+**Edward J. Blakely, 87, Dies; Oversaw Katrina Recovery in New Orleans**\
 `An urban planner who specialized in disaster recovery, he was brought in to revive the city after the 2005 storm. The task proved larger than one man could handle.`\
 https://nytimes.com/2025/10/29/climate/edward-j-blakely-dead.html
 
@@ -21,16 +33,4 @@ https://nytimes.com/2025/10/29/us/politics/democrats-republicans-shutdown-impass
 **From Wemby to Curry to Maxey, NBA sets mark for 40-point games in first week**\
 `NBA has seen an early scoring surge with 16 instances of 40-point games in the first week`\
 https://nytimes.com/athletic/6760525/2025/10/29/buckets-by-the-bushel-nba-sets-a-mark-for-40-point-games-in-first-week/
-
-**What’s in Our Queue? Emmylou Harris**\
-`Text by Vivek Shankar`\
-https://nytimes.com/card/2025/10/29/arts/editors-recommendations-emmylou
-
-**En Jamaica, todos los turistas están a salvo, dice el gobierno**\
-`Veinticinco mil turistas pasaron la tormenta en la isla y todos se encuentran a salvo, según el ministro de Turismo.`\
-https://nytimes.com/2025/10/29/espanol/tiempo-y-clima/jamaica-turistas-rescate-aeropuerto-evacuacion.html
-
-**Cuomo faces criticism for canceling event at Park Slope synagogue.**\
-`By Emma G. Fitzsimmons`\
-https://nytimes.com/live/2025/10/29/nyregion/nyc-mayor-election-news/cuomo-faces-criticism-for-canceling-event-at-park-slope-synagogue
 

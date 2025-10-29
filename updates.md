@@ -1,3 +1,15 @@
+**Beloved 1997 computer game 'Backyard Baseball' to return as 2D animated special**\
+`The animated show, based on a popular 1997 computer game, will be released on YouTube and shown at Dave & Buster's locations across the U.S.`\
+https://nytimes.com/athletic/6759999/2025/10/29/backyard-baseball-animated-special/
+
+**Video Analysis Shows Staged Recovery of Israeli Hostage Remains**\
+`Israel’s military released a drone video of the incident in Gaza, and The New York Times analyzed the footage.`\
+https://nytimes.com/2025/10/29/world/europe/gaza-hamas-israel-remains.html
+
+**Edward J. Blakely, Who Oversaw Katrina Recovery in New Orleans, Dies at 87**\
+`An urban planner who specialized in disaster recovery, he was brought in to revive the city after the 2005 storm. The task proved larger than one man could handle.`\
+https://nytimes.com/2025/10/29/climate/edward-j-blakely-dead.html
+
 **Can the James Baldwin Typebot Tell Us the Meaning of Life?**\
 `In the financial district of Manhattan, an A.I.-equipped typewriter, fueled by James Baldwin’s works, types back at you with answers to your questions.`\
 https://nytimes.com/2025/10/29/arts/design/james-baldwin-ai-typewriter.html
