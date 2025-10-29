@@ -1,3 +1,7 @@
+**TAFC: A World Cup 2026 qualifying controversy. Plus: Friction for Alonso at Madrid**\
+`Today in TAFC: Why Qatar and Saudi Arabia's World Cup qualification caused a furore. Plus: a referees' betting scandal and a rift at Real`\
+https://nytimes.com/athletic/6759547/2025/10/29/world-cup-2026-saudi-qatar-alonso-tafc/
+
 **Israeli Strikes in Gaza Kill at Least 100, Local Health Officials Say**\
 `Israel said the cease-fire had resumed after what appeared to be the deadliest day since the truce deal was agreed this month.`\
 https://nytimes.com/2025/10/29/world/middleeast/deadliest-day-gaza-strikes-overnight-ceasefire.html
