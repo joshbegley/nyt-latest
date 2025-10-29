@@ -1,3 +1,7 @@
+**76ers overcome 19-point deficit to improve to 4-0 with OT victory over Wizards**\
+`This is only Philly's second 4-0 start since its 2001 NBA Finals run (2019-20).`\
+https://nytimes.com/athletic/6758859/2025/10/28/tyrese-maxey-sixers-comeback-win-wizards/
+
 **Federal Judge Disqualifies Trump-Backed Prosecutor in Los Angeles**\
 `The court ruled that Bill Essayli had been acting “unlawfully” as U.S. attorney in Los Angeles but that he could stay on as the office’s top deputy for now.`\
 https://nytimes.com/2025/10/28/us/us-attorney-bill-essayli-los-angeles-ruling.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/28/us/politics/trump-national-guard-oregon-court.htm
 **White House Fires Commission Overseeing Trump’s D.C. Building Projects**\
 `The Commission of Fine Arts, an independent federal agency, was established by Congress to advise the president on urban planning and historical preservation.`\
 https://nytimes.com/2025/10/28/us/politics/trump-white-house-commission-fine-arts.html
-
-**Trump Officials in Charge of Food Aid Leave Their Posts**\
-`The departures of the head of the Agriculture Department’s Food and Nutrition Service and a senior policy adviser spurred worries on Capitol Hill as food aid benefits could halt.`\
-https://nytimes.com/2025/10/28/us/politics/trump-usda-food-nutrition.html
 

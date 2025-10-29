@@ -1,3 +1,23 @@
+**Federal Judge Disqualifies Trump-Backed Prosecutor in Los Angeles**\
+`The court ruled that Bill Essayli had been acting “unlawfully” as U.S. attorney in Los Angeles but that he could stay on as the office’s top deputy for now.`\
+https://nytimes.com/2025/10/28/us/us-attorney-bill-essayli-los-angeles-ruling.html
+
+**NBC's NBA nostalgia: Bob Costas narrates previews for Knicks-Bucks, Clippers-Warriors**\
+`Bob Costas narrating previews for Bucks-Knicks, Warriors-Clippers adds to lore of the NBA's return to NBC.`\
+https://nytimes.com/athletic/6758763/2025/10/28/bob-costas-nba-nbc-knicks-bucks-clippers-warriors/
+
+**Knies, Domi's breakout games balance Leafs' power-play issues, tired Stolarz: 3 thoughts**\
+`The Leafs put together their best second period of the season so far to beat the Flames on the first night of a back-to-back.`\
+https://nytimes.com/athletic/6758628/2025/10/28/maple-leafs-domi-knies-stolarz-power-play/
+
+**‘Liberation’ Review: A Tony-Worthy Ensemble Plotting Revolution**\
+`Bess Wohl’s play, about a consciousness-raising group in 1970s Ohio, transfers to Broadway where it remains powerfully moving — and funny.`\
+https://nytimes.com/2025/10/28/theater/liberation-review-broadway-bess-wohl.html
+
+**A Puzzle With Bite**\
+`John Donegan wants you to sink your teeth into his crossword.`\
+https://nytimes.com/2025/10/28/crosswords/daily-puzzle-2025-10-29.html
+
 **Footage Shows Initial Aftermath of New Israeli Strikes in Gaza**\
 `Videos from the Palestinian Red Crescent Society showed people recovering bodies and rushing to a hospital in Gaza City after Israel resumed its strikes.`\
 https://nytimes.com/video/world/middleeast/100000010487494/israel-launches-new-strikes-gaza.html
