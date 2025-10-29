@@ -1,3 +1,11 @@
+**What Can Hollywood Learn From New Media?**\
+`A new production company wants to make as many video podcasts and newsletters as films and television shows.`\
+https://nytimes.com/2025/10/29/business/media/hollywood-new-media-run-a-muck-ilene-chaiken.html
+
+**Josh Hawley’s Plea for Food Assistance**\
+`Readers respond to the senator’s Opinion guest essay about the possible cutoff of SNAP benefits.`\
+https://nytimes.com/2025/10/29/opinion/josh-hawley-food-assistance-snap.html
+
 **gws-goonies-astoria-oregon**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/goonies-astoria-oregon
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6760379/2025/10/29/yankees-broadcasts-john-flaherty
 **How Japan’s New Prime Minister Bonded With Trump**\
 `Trump will meet Japan’s new prime minister, Sanae Takaichi, on Tuesday (10/28). A look at how she will approach President Trump in order to rekindle the close relationship he had with her mentor, former Prime Minister Shinzo Abe.`\
 https://nytimes.com/video/world/asia/100000010485242/how-japans-new-prime-minister-bonded-with-trump.html
-
-**All International Visitors to Jamaica Are Accounted For, the Government Says**\
-`Twenty-five thousand tourists rode out the storm on the island, and all are safe, according to the tourism minister.`\
-https://nytimes.com/2025/10/29/weather/jamaica-tourists-visitors-storm.html
-
-**NFL Week 9 survivor pool picks, strategy: Use 'em if you got 'em (LA's Version)**\
-`Adam Gretz and Renee Miller took your questions and gave their own survivor pool advice for NFL Week 9.`\
-https://nytimes.com/athletic/6760175/2025/10/29/nfl-week-9-survivor-pool-picks-strategy-chargers/
 
