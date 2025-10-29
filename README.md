@@ -30,8 +30,8 @@ https://nytimes.com/2025/10/29/us/florida-universities-h-1b-workers-desantis.htm
 `Xi now sees our weakness and will try to exploit it, perhaps leaving America a diminished presence in Asia.`\
 https://nytimes.com/2025/10/29/opinion/china-us-trade-war-xi-trump.html
 
-**Why Zach Hyman's return from injury is delayed**\
-`The Oilers winger won’t be ready in his first opportunity to come off LTIR from a dislocated right wrist, and his status is week to week.
+**Why Zach Hyman's return to the Oilers from injury is delayed**\
+`The Edmonton winger won’t be ready in his first opportunity to come off LTIR from a dislocated right wrist, and his status is week to week.
 `\
 https://nytimes.com/athletic/6761142/2025/10/29/zach-hyman-oilers-injury-return/
 

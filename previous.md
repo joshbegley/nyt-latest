@@ -1,3 +1,11 @@
+**Dutch Voters Seem to Reject Far-Right Party in Tight Election**\
+`A center-left party was poised to become the country’s largest political party, according to exit polls. Geert Wilders suffered a setback, with his anti-immigrant party expected to lose 12 seats.`\
+https://nytimes.com/2025/10/29/world/europe/netherlands-elections-geert-wilders.html
+
+**Covid and Flu Can Triple Your Risk of Heart Attack**\
+`A new analysis adds to the research about the link between viral infections and heart disease.`\
+https://nytimes.com/2025/10/29/well/viral-infections-covid-flu-heart-attacks.html
+
 **'Doing the wrong things for the right reasons': Wild need Kirill Kaprizov to adopt a 'less is more' approach**\
 `The Wild are digging a hole with a 3-5-3 start, and their soon-to-be $17 million man hasn't been able to right the ship.`\
 https://nytimes.com/athletic/6759245/2025/10/29/kirill-kaprizov-wild-early-struggles/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6761142/2025/10/29/zach-hyman-oilers-injury-return/
 **Architectural Sites to See in Mumbai**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/mumbai-architecture-buildings-guide
-
-**As Trump Weighs Sale of Advanced A.I. Chips to China, Critics Sound Alarm**\
-`The president signaled he would discuss the sale of Nvidia’s Blackwell chips in a summit on Thursday, a move U.S. officials warned would be a “massive” national security mistake.`\
-https://nytimes.com/2025/10/29/us/politics/trump-china-nvidia-chips-sales.html
-
-**Meta Raises Its Spending Forecast on A.I. to Above $70 Billion**\
-`The Silicon Valley company projected more spending this year and said it would continue in 2026 as it hires A.I. researchers and builds data centers to power the technology.`\
-https://nytimes.com/2025/10/29/technology/meta-spending-ai.html
 

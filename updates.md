@@ -1,3 +1,16 @@
+**Dutch Voters Seem to Reject Far-Right Party in Tight Election**\
+`A center-left party was poised to become the country’s largest political party, according to exit polls. Geert Wilders suffered a setback, with his anti-immigrant party expected to lose 12 seats.`\
+https://nytimes.com/2025/10/29/world/europe/netherlands-elections-geert-wilders.html
+
+**Covid and Flu Can Triple Your Risk of Heart Attack**\
+`A new analysis adds to the research about the link between viral infections and heart disease.`\
+https://nytimes.com/2025/10/29/well/viral-infections-covid-flu-heart-attacks.html
+
+**Why Zach Hyman's return from injury is delayed**\
+`The Oilers winger won’t be ready in his first opportunity to come off LTIR from a dislocated right wrist, and his status is week to week.
+`\
+https://nytimes.com/athletic/6761142/2025/10/29/zach-hyman-oilers-injury-return/
+
 **Why Zach Hyman's return from injury is delayed**\
 `The Oilers winger won’t be ready in his first opportunity to come off LTIR from a dislocated right wrist, and his status is week to week.
 `\
