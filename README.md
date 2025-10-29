@@ -1,3 +1,7 @@
+**Obamacare Prices Become Public, Highlighting Big Increases**\
+`The government website now shows consumers how much their health insurance costs will increase next year, as Congress remains at an impasse over the plans’ subsidies.`\
+https://nytimes.com/2025/10/29/health/obamacare-prices-health-insurance.html
+
 **En vivo: El huracán Melissa llega Cuba tras su paso destructivo por Jamaica**\
 `La tormenta causó daños generalizados a las infraestructuras jamaiquinas y cortó el acceso a internet a la mayoría de la población. Cuba evacuó a unas 750.000 personas antes de su llegada.`\
 https://nytimes.com/live/2025/10/29/espanol/huracan-melissa
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6758179/2025/10/29/bills-chiefs-rookie-cb-maxwell-h
 **Long throws, long delays. Does something need to be done?**\
 `The return of the tactic means the ball is in play for a shorter period. Rule changes are being discused but is that the way to go?`\
 https://nytimes.com/athletic/6759581/2025/10/29/long-throw-delays-brentford/
-
-**Character.AI to Bar Children Under 18 From Using Its Chatbots**\
-`The start-up, which creates A.I. companions, faces lawsuits from families who have accused Character.AI’s chatbots of leading teenagers to kill themselves.`\
-https://nytimes.com/2025/10/29/technology/characterai-underage-users.html
 
