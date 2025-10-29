@@ -1,3 +1,15 @@
+**What does A.J. Brown want? Eagles' star WR chases greatness — on his terms**\
+`Brown needs the football, but not for the reasons you think.`\
+https://nytimes.com/athletic/6721175/2025/10/29/eagles-aj-brown-wr-titans-trade-super-bowl/
+
+**Jets have trade deadline decisions to make on Breece Hall, Quinnen Williams and others**\
+`The 1-7 Jets have to decide who among their young nucleus would be worth including in a deal.`\
+https://nytimes.com/athletic/6757570/2025/10/29/new-york-jets-trade-deadline-breece-hall-quinnen-williams/
+
+**The New York Times International Edition in Print for Thursday, Oct. 30, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/10/29/todays-new-york-times-international-edition
+
 **Is Legalized Gambling Ruining Sports?**\
 `A federal investigation into illegal gambling has rocked the N.B.A. and the sports world. Does it change how you view the game?`\
 https://nytimes.com/2025/10/29/learning/is-legalized-gambling-ruining-sports.html
