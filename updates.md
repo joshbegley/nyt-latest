@@ -1,3 +1,7 @@
+**U.S. Middle East Envoy Presses Lebanon to Disarm Hezbollah**\
+`The visit by the envoy, Morgan Ortagus, coincided with a spike in Israeli attacks on Hezbollah in recent weeks that has stoked fears of a renewed conflict.`\
+https://nytimes.com/2025/10/29/world/middleeast/us-middle-east-envoy-presses-lebanon-to-disarm-hezbollah.html
+
 **U.S. Says It Will Cut Troops in Eastern Europe**\
 `About 700 troops are expected to be withdrawn as Trump administration officials shift resources to the Indo-Pacific region.`\
 https://nytimes.com/2025/10/29/world/europe/us-troops-eastern-europe-romania.html

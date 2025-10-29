@@ -1,3 +1,7 @@
+**U.S. Middle East Envoy Presses Lebanon to Disarm Hezbollah**\
+`The visit by the envoy, Morgan Ortagus, coincided with a spike in Israeli attacks on Hezbollah in recent weeks that has stoked fears of a renewed conflict.`\
+https://nytimes.com/2025/10/29/world/middleeast/us-middle-east-envoy-presses-lebanon-to-disarm-hezbollah.html
+
 **U.S. Says It Will Cut Troops in Eastern Europe**\
 `About 700 troops are expected to be withdrawn as Trump administration officials shift resources to the Indo-Pacific region.`\
 https://nytimes.com/2025/10/29/world/europe/us-troops-eastern-europe-romania.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/29/espanol/tiempo-y-clima/huracan-melissa-cuba.html
 **Feted as a Peacemaker in South Korea, Trump Finds Purpose for Overtures to Kim Jong-un**\
 `President Trump lamented not being able to speak with Mr. Kim, the North Korean leader, but vowed to end the decades of hostilities between the two Koreas.`\
 https://nytimes.com/2025/10/29/world/asia/trump-south-north-korea-kim.html
-
-**The Bounce: Giannis makes a New York statement. Plus, the Concern-O-Meter debuts**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6760007/2025/10/29/giannis-nba-concerns-the-bounce/
 
