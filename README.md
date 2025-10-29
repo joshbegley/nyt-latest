@@ -1,5 +1,9 @@
+**In return from injury, Blue Jackets' Miles Wood doesn't miss a beat**\
+`Wood scored the tying goal in the third period, then netted his first career overtime winner in a 4-3 comeback win over the Sabres.`\
+https://nytimes.com/athletic/6758835/2025/10/28/blue-jackets-sabres-miles-wood-goal-injury/
+
 **Blue Jays-Dodgers Game 4 takeaways: Toronto outlasts Ohtani to even series**\
-`A day after losing in 18 innings, the Blue Jays scored early and often to ensure a trip back to Toronto for Game 6 and 7.`\
+`A day after losing in 18 innings, the Blue Jays scored early and often to ensure a trip back to Toronto for games 6 and 7.`\
 https://nytimes.com/athletic/6758902/2025/10/28/dodgers-blue-jays-world-series-game-4-results-takeaways-mlb/
 
 **Ex-wife of Eric Kay continues testimony as both sides present competing narratives**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/28/theater/liberation-review-broadway-bess-wohl.html
 **A Puzzle With Bite**\
 `John Donegan wants you to sink your teeth into his crossword.`\
 https://nytimes.com/2025/10/28/crosswords/daily-puzzle-2025-10-29.html
-
-**Footage Shows Initial Aftermath of New Israeli Strikes in Gaza**\
-`Videos from the Palestinian Red Crescent Society showed people recovering bodies and rushing to a hospital in Gaza City after Israel resumed its strikes.`\
-https://nytimes.com/video/world/middleeast/100000010487494/israel-launches-new-strikes-gaza.html
 

@@ -1,3 +1,15 @@
+**Blue Jays-Dodgers Game 4 takeaways: Toronto outlasts Ohtani to even series**\
+`A day after losing in 18 innings, the Blue Jays scored early and often to ensure a trip back to Toronto for Game 6 and 7.`\
+https://nytimes.com/athletic/6758902/2025/10/28/dodgers-blue-jays-world-series-game-4-results-takeaways-mlb/
+
+**Ex-wife of Eric Kay continues testimony as both sides present competing narratives**\
+`Camela Kay says she warned club officials about then-husband's drug use, while Angels lawyer cites inconcistencies in her testimony.`\
+https://nytimes.com/athletic/6758818/2025/10/28/skaggs-trial-angels-witness-testimony-drugs/
+
+**Relentless Blue Jays make Shohei Ohtani seem briefly mortal with series-tying Game 4 win**\
+`Ohtani tried to singlehandedly hold off the Blue Jays. Collectively, they proved too much for him. `\
+https://nytimes.com/athletic/6758930/2025/10/28/blue-jays-game-4-shohei-ohtani-dodgers-vladimir-guerrero/
+
 **76ers overcome 19-point deficit, improve to 4-0 with OT victory over Wizards**\
 `This is Philly's second 4-0 start since its 2001 NBA Finals run.`\
 https://nytimes.com/athletic/6758859/2025/10/28/tyrese-maxey-sixers-comeback-win-wizards/
