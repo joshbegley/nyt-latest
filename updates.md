@@ -1,3 +1,15 @@
+**Trump Suggests He Knows He Can’t Run Again: ‘It’s Too Bad’**\
+`Despite the Constitution’s two-term limit, Trump had mused for months about a third term.`\
+https://nytimes.com/2025/10/29/us/politics/third-term-limit.html
+
+**Hurricane Melissa Caused Severe Infrastructure Damage, Jamaica Says**\
+`Most of the island of two million people was without internet service, and major airports were closed. Kingston, the capital, was mostly spared.`\
+https://nytimes.com/2025/10/29/world/americas/hurricane-melissa-jamaica-damage-deaths.html
+
+**What Amorim has changed at Man Utd: Lammens' long kicks, faster attacks, no outswinging corners**\
+`How going direct helped to solve some of Manchester United's biggest problems and deliver their best run of form under Ruben Amorim`\
+https://nytimes.com/athletic/6756693/2025/10/29/ruben-amorims-manchester-united-what-changed/
+
 **How the 19th-Century Opium War Shapes Xi’s Trade Clash With Trump**\
 `China’s leader draws on lessons from Lin Zexu, a Qing official whose defiance of Britain led to China’s humiliating defeat but made him a national hero.`\
 https://nytimes.com/2025/10/29/world/asia/trump-china-xi-opium-trade.html

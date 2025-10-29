@@ -1,3 +1,15 @@
+**Trump Suggests He Knows He Can’t Run Again: ‘It’s Too Bad’**\
+`Despite the Constitution’s two-term limit, Trump had mused for months about a third term.`\
+https://nytimes.com/2025/10/29/us/politics/third-term-limit.html
+
+**Hurricane Melissa Caused Severe Infrastructure Damage, Jamaica Says**\
+`Most of the island of two million people was without internet service, and major airports were closed. Kingston, the capital, was mostly spared.`\
+https://nytimes.com/2025/10/29/world/americas/hurricane-melissa-jamaica-damage-deaths.html
+
+**What Amorim has changed at Man Utd: Lammens' long kicks, faster attacks, no outswinging corners**\
+`How going direct helped to solve some of Manchester United's biggest problems and deliver their best run of form under Ruben Amorim`\
+https://nytimes.com/athletic/6756693/2025/10/29/ruben-amorims-manchester-united-what-changed/
+
 **How the 19th-Century Opium War Shapes Xi’s Trade Clash With Trump**\
 `China’s leader draws on lessons from Lin Zexu, a Qing official whose defiance of Britain led to China’s humiliating defeat but made him a national hero.`\
 https://nytimes.com/2025/10/29/world/asia/trump-china-xi-opium-trade.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/29/world/europe/annabel-goldsmith-dead.html
 **Corrections: Oct. 29, 2025**\
 `Corrections that appeared in print on Wednesday, Oct. 29, 2025.`\
 https://nytimes.com/2025/10/29/pageoneplus/corrections-oct-29-2025.html
-
-**Quote of the Day: Democrats Hit Back in Arena of Verbal Combat**\
-`Quotation of the Day for Wednesday, October 29, 2025.`\
-https://nytimes.com/2025/10/28/pageoneplus/quote-of-the-day-democrats-hit-back-in-arena-of-verbal-combat.html
-
-**Michael Jordan explains why he believes NBA doesn't need load management**\
-`Jordan offered his insights on load management in the NBA: He doesn’t like it. "I never wanted to miss a game."`\
-https://nytimes.com/athletic/6758983/2025/10/28/michael-jordan-nba-nbc-load-management/
-
-**Trump Administration Live Updates: President Arrives in South Korea**\
-``\
-https://nytimes.com/live/2025/10/28/us/trump-news-south-korea
 

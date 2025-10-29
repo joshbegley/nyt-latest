@@ -1,3 +1,7 @@
+**Howson on his return to Leeds as an Under-21 player-coach: 'I feel extremely lucky'**\
+`After more than 13 years away from Elland Road, Howson is back to where it all began to complete the most treasured arc of his career`\
+https://nytimes.com/athletic/6757705/2025/10/29/jonny-howson-leeds-united-interview/
+
 **Trump Suggests He Knows He Can’t Run Again: ‘It’s Too Bad’**\
 `Despite the Constitution’s two-term limit, Trump had mused for months about a third term.`\
 https://nytimes.com/2025/10/29/us/politics/third-term-limit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6757092/2025/10/29/connections-sports-edition-hints
 **Annabel Goldsmith, a Queen of British High Society, Dies at 91**\
 `Annabel’s, the club that Ms. Goldsmith’s first husband named after her, opened in the 1960s and is still one of London’s most exclusive nightspots.`\
 https://nytimes.com/2025/10/29/world/europe/annabel-goldsmith-dead.html
-
-**Corrections: Oct. 29, 2025**\
-`Corrections that appeared in print on Wednesday, Oct. 29, 2025.`\
-https://nytimes.com/2025/10/29/pageoneplus/corrections-oct-29-2025.html
 
