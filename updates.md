@@ -1,3 +1,19 @@
+**Architectural Sites to See in Mumbai**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/mumbai-architecture-buildings-guide
+
+**As Trump Weighs Sale of Advanced A.I. Chips to China, Critics Sound Alarm**\
+`The president signaled he would discuss the sale of Nvidia’s Blackwell chips in a summit on Thursday, a move U.S. officials warned would be a “massive” national security mistake.`\
+https://nytimes.com/2025/10/29/us/politics/trump-china-nvidia-chips-sales.html
+
+**Meta Raises Its Spending Forecast on A.I. to Above $70 Billion**\
+`The Silicon Valley company projected more spending this year and said it would continue in 2026 as it hires A.I. researchers and builds data centers to power the technology.`\
+https://nytimes.com/2025/10/29/technology/meta-spending-ai.html
+
+**Alphabet Revenue Up 16% With Strong Cloud Sales**\
+`The internet company said profit for the quarter was up 33 percent, to just under $35 billion.`\
+https://nytimes.com/2025/10/29/technology/alphabet-google-earnings.html
+
 **Four Decades After It Was Stolen, a Renaissance Treasure Returns to Rome**\
 `The Italian art police still don’t know who took the brilliantly illuminated manuscript page from a Franciscan friary, and many more pages have yet to be found.`\
 https://nytimes.com/2025/10/29/world/europe/stolen-manuscript-return-rome.html
