@@ -1,3 +1,11 @@
+**Commanders rule out Terry McLaurin vs. Seahawks with quad re-injury**\
+`Coach Dan Quinn said the hope is McLaurin isn’t out long-term, but the team will reassess his health next week.`\
+https://nytimes.com/athletic/6760898/2025/10/29/terry-mclaurin-out-injury-quad-commanders-seahawks/
+
+**‘Auction’ Review: The Art World’s Gilded Hustle**\
+`This shrewd and diverting French drama takes as its inspiration the rediscovery of a long-lost Egon Schiele masterwork.`\
+https://nytimes.com/2025/10/29/movies/auction-review-pascal-bonitzer.html
+
 **Sliwa brushes off defections by fellow Republicans.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/10/29/nyregion/nyc-mayor-election-news/sliwa-brushes-off-defections-by-fellow-republicans
