@@ -1,3 +1,11 @@
+**A Spooky Season of Phantoms, a Bat Boy and More**\
+`From Broadway to the small screen, these unnerving theater productions are not just about horror and frights.`\
+https://nytimes.com/2025/10/29/theater/bat-boy-phantom-of-opera.html
+
+**NFL Week 9 confidence picks: Put your points on the Rams, Packers and Chargers**\
+`After a 10-3 Week 8, KC Joyner gives his confidence picks for NFL Week 9.`\
+https://nytimes.com/athletic/6759456/2025/10/29/nfl-week-9-confidence-picks-rams-packers-chargers/
+
 **gws-eleni-petaloti-leonidas-trampoukis-brooklyn-home**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/eleni-petaloti-leonidas-trampoukis-brooklyn-home
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6760175/2025/10/29/nfl-week-9-survivor-pool-picks-s
 **Investigating the Secret History of a ‘Lawless’ War**\
 `Over the course of four years, a Pulitzer Prize-winning journalist spoke with dozens of elite military personnel about misconduct in Afghanistan by their peers.`\
 https://nytimes.com/2025/10/29/insider/investigating-the-secret-history-of-a-lawless-war.html
-
-**MLS 2025 salaries: Messi remains top; Highest, lowest spenders revealed**\
-`The MLSPA has revealed its latest salary figures – and there's a reason why Thomas Müller and Rodrigo De Paul don't rank high just yet`\
-https://nytimes.com/athletic/6759980/2025/10/29/mls-salaries-2025-messi-son-muller-de-paul-team-spending/
-
-**France Adds Consent to Its Rape Law After Yearslong Fight**\
-`The new legislation was adopted after dozens of men were convicted of raping Gisèle Pelicot while she was drugged by her husband.`\
-https://nytimes.com/2025/10/29/world/europe/france-consent-rape-law.html
 
