@@ -1,3 +1,7 @@
+**Former Hate Crimes Chief Accuses Adams of Anti-Muslim Bias**\
+`Hassan Naveed, who was fired from City Hall last year, claimed in a lawsuit that he was asked what he thought about “beheaded babies.”`\
+https://nytimes.com/2025/10/28/nyregion/adams-muslims-lawsuit.html
+
 **Flyers combine a learning experience with a deserved victory against Penguins**\
 `The Flyers struggled in the third period, but kept it together for a shootout victory against their in-state rivals.`\
 https://nytimes.com/athletic/6758928/2025/10/28/flyers-shootout-pressure-tocchet-penguins/
