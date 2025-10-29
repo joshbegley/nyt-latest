@@ -1,3 +1,27 @@
+**Trump Has Likened Himself to a King. South Korea Gave Him a Crown.**\
+`President Trump received a replica of a golden crown excavated from an ancient royal tomb in Gyeongju. He called it “very special.”`\
+https://nytimes.com/2025/10/29/world/asia/trump-south-korea-crown-gyeongju.html
+
+**Lowetide: Evan Bouchard, the Oilers and a history of puck moving defencemen**\
+`Bouchard plays a cerebral game, while also looking overwhelmed when he's not at his best.`\
+https://nytimes.com/athletic/6756964/2025/10/29/evan-bouchard-edmonton-oilers-stats-history-defencemen/
+
+**For Nebraska, a Blackout and another chance versus a ranked opponent in USC**\
+`Nebraska hasn’t played a November home game of this magnitude since Michigan State visited in 2013 en route to a Big Ten championship.`\
+https://nytimes.com/athletic/6758331/2025/10/29/nebraska-blackout-usc-football-ranked-opponent/
+
+**Here’s the latest.**\
+`By Dana Rubinstein`\
+https://nytimes.com/live/2025/10/29/nyregion/nyc-mayor-election-news/heres-the-latest
+
+**Live Updates: N.Y.C. Mayoral Candidates Jockey for Advantage as Early Voting Continues**\
+`Nearly 300,000 New Yorkers have already cast ballots, and they skew older, in what may be an encouraging sign for Andrew Cuomo as he labors to catch the front-runner Zohran Mamdani.`\
+https://nytimes.com/live/2025/10/29/nyregion/nyc-mayor-election-news
+
+**Money to Help Nations Cope With Climate Disasters Is Declining, U.N. Says**\
+`In 2021, rich countries vowed to spend more to help poor countries adapt to warming. That goal is unlikely to be met, a new report finds.`\
+https://nytimes.com/2025/10/29/climate/aid-poor-countries-adaptation-climate-united-nations.html
+
 **Trump Says ‘It’s Too Bad’ He Can’t Run for a Third Term**\
 `Speaking to reporters on Air Force One on the way to South Korea, President Trump said it was “too bad” that he couldn’t run again in 2028.`\
 https://nytimes.com/video/world/americas/100000010488155/trump-third-term-limit.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/10/29/us/jamaica-melissa-destruction-cuba-hurricane.htm
 **Chris Finch challenges Rudy Gobert, Jaden McDaniels as Wolves defense falters**\
 `Minnesota's defense figured to be its strength this season. But so far, the Wolves rank near the bottom of the league on that end.`\
 https://nytimes.com/athletic/6755608/2025/10/29/rudy-gobert-jaden-mcdaniels-timberwolves-defense/
-
-**The Dodgers' offense hasn't gotten going, and it's running out of time**\
-`Dave Roberts hinted at lineup changes after another tepid performance by the Dodgers' star-studded lineup. `\
-https://nytimes.com/athletic/6759098/2025/10/29/dodgers-mlb-world-series-offense/
-
-**In Game 4 win, Shane Bieber shows why Blue Jays risked trading for him**\
-`Bieber spun 5 1/3 innings of one-run ball as the Blue Jays topped the Dodgers 6-2 to even the best-of-seven series at two apiece.`\
-https://nytimes.com/athletic/6759082/2025/10/29/blue-jays-shane-bieber-game-4/
-
-**Blue Jays keep pushing aside baseball’s biggest stars on quest for World Series title**\
-`All throughout October, the Blue Jays have faced monstrous threats with equally monstrous star power. Each time they've answered.`\
-https://nytimes.com/athletic/6759243/2025/10/29/blue-jays-dodgers-world-series-star-power/
-
-**Radio Free Asia Will Halt News Operations Amid Shutdown**\
-`Until this month, Radio Free Asia had successfully resisted Trump officials who had tried to render it obsolete.`\
-https://nytimes.com/2025/10/29/us/politics/radio-free-asia-close.html
-
-**South Korea Says U.S. Agreed to 15% Tariffs**\
-`Seoul will invest $200 billion, or as much as $20 billion a year, and set aside another $150 billion to invest in its American shipbuilding operations, a South Korean official said.`\
-https://nytimes.com/2025/10/29/us/politics/tariff.html
-
-**Should the Commanders, buy, sell or stand pat at the NFL trade deadline?**\
-`Washington is 3-5 with a game to go before Tuesday’s trade deadline. Here are the arguments for buying, selling and doing nothing.`\
-https://nytimes.com/athletic/6759594/2025/10/29/commanders-trade-deadline-buy-sell/
 
