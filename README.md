@@ -1,3 +1,15 @@
+**Knies, Domi's breakout games balance Leafs' power-play issues, tired Stolarz: 3 thoughts**\
+`The Leafs put together their best second period of the season so far to beat the Flames on the first night of a back-to-back.`\
+https://nytimes.com/athletic/6758628/2025/10/28/maple-leafs-domi-knies-stolarz-power-play/
+
+**‘Liberation’ Review: A Tony-Worthy Ensemble Plotting Revolution**\
+`Bess Wohl’s play, about a consciousness-raising group in 1970s Ohio, transfers to Broadway where it remains powerfully moving — and funny.`\
+https://nytimes.com/2025/10/28/theater/liberation-review-broadway-bess-wohl.html
+
+**A Puzzle With Bite**\
+`John Donegan wants you to sink your teeth into his crossword.`\
+https://nytimes.com/2025/10/28/crosswords/daily-puzzle-2025-10-29.html
+
 **Footage Shows Initial Aftermath of New Israeli Strikes in Gaza**\
 `Videos from the Palestinian Red Crescent Society showed people recovering bodies and rushing to a hospital in Gaza City after Israel resumed its strikes.`\
 https://nytimes.com/video/world/middleeast/100000010487494/israel-launches-new-strikes-gaza.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6758518/2025/10/28/s-kyle-dugger-steelers-patriots-
 **Fired by Team Trump, Former U.S. Attorney Joins Team Newsom**\
 `Michele Beckwith was ousted by President Trump less than six hours after instructing a top immigration official to abide by the Constitution in his immigration raids.`\
 https://nytimes.com/2025/10/28/us/trump-fired-us-attorney-michele-beckwith-new-job.html
-
-**Kyle Dugger trade grades: Steelers address ailing secondary, Patriots finally find a taker**\
-`The Steelers acquired Dugger for a late-round pick swap.`\
-https://nytimes.com/athletic/6758636/2025/10/28/kyle-dugger-steelers-patriots-trade-grade/
-
-**WNBA offers players extension on CBA negotiations: Sources**\
-`With the current collective bargaining agreement set to expire on Friday, the WNBA has offered the union a 30-day extension.`\
-https://nytimes.com/athletic/6758591/2025/10/28/wnba-cba-negotiation-deadline-extension-offered-players/
-
-**J.T. Miller's Vancouver return brings flood of memories, emotions and contentment**\
-`"You can't go back and change anything," Miller said as he returned to Vancouver for the first time since being traded to the Rangers.`\
-https://nytimes.com/athletic/6758272/2025/10/28/jt-miller-rangers-canucks-return/
 
