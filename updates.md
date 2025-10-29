@@ -1,3 +1,11 @@
+**In return from injury, Blue Jackets' Miles Wood doesn't miss a beat**\
+`Wood scored the tying goal in the third period, then netted his first career overtime winner in a 4-3 comeback win over the Sabres.`\
+https://nytimes.com/athletic/6758835/2025/10/28/blue-jackets-sabres-miles-wood-goal-injury/
+
+**Blue Jays-Dodgers Game 4 takeaways: Toronto outlasts Ohtani to even series**\
+`A day after losing in 18 innings, the Blue Jays scored early and often to ensure a trip back to Toronto for games 6 and 7.`\
+https://nytimes.com/athletic/6758902/2025/10/28/dodgers-blue-jays-world-series-game-4-results-takeaways-mlb/
+
 **Blue Jays-Dodgers Game 4 takeaways: Toronto outlasts Ohtani to even series**\
 `A day after losing in 18 innings, the Blue Jays scored early and often to ensure a trip back to Toronto for Game 6 and 7.`\
 https://nytimes.com/athletic/6758902/2025/10/28/dodgers-blue-jays-world-series-game-4-results-takeaways-mlb/
