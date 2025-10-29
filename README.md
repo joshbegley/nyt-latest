@@ -1,3 +1,11 @@
+**Michael Jordan explains why he believes the NBA doesn't need load management**\
+`Jordan offered his insights on load management in the NBA: He doesn’t like it. "I never wanted to miss a game."`\
+https://nytimes.com/athletic/6758983/2025/10/28/michael-jordan-nba-nbc-load-management/
+
+**Trump Administration Live Updates: President Arrives in South Korea**\
+``\
+https://nytimes.com/live/2025/10/28/us/trump-news-south-korea
+
 **Former Hate Crimes Chief Accuses Adams of Anti-Muslim Bias**\
 `Hassan Naveed, who was fired from City Hall last year, claimed in a lawsuit that he was asked what he thought about “beheaded babies.”`\
 https://nytimes.com/2025/10/28/nyregion/adams-muslims-lawsuit.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6758859/2025/10/28/tyrese-maxey-sixers-comeback-win
 **Federal Judge Disqualifies Trump-Backed Prosecutor in Los Angeles**\
 `The court ruled that Bill Essayli had been acting “unlawfully” as U.S. attorney in Los Angeles but that he could stay on as the office’s top deputy for now.`\
 https://nytimes.com/2025/10/28/us/us-attorney-bill-essayli-los-angeles-ruling.html
-
-**NBC's NBA nostalgia: Bob Costas narrates previews for Knicks-Bucks, Clippers-Warriors**\
-`Bob Costas narrating previews for Bucks-Knicks, Warriors-Clippers adds to lore of the NBA's return to NBC.`\
-https://nytimes.com/athletic/6758763/2025/10/28/bob-costas-nba-nbc-knicks-bucks-clippers-warriors/
-
-**Knies, Domi's breakout games balance Leafs' power-play issues, tired Stolarz: 3 thoughts**\
-`The Leafs put together their best second period of the season so far to beat the Flames on the first night of a back-to-back.`\
-https://nytimes.com/athletic/6758628/2025/10/28/maple-leafs-domi-knies-stolarz-power-play/
 
