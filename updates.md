@@ -1,3 +1,11 @@
+**Hurricane Melissa Has Arrived in Cuba**\
+`The storm hit Jamaica as one of the strongest Atlantic hurricanes ever.`\
+https://nytimes.com/2025/10/29/us/jamaica-melissa-destruction-cuba-hurricane.html
+
+**Chris Finch challenges Rudy Gobert, Jaden McDaniels as Wolves defense falters**\
+`Minnesota's defense figured to be its strength this season. But so far, the Wolves rank near the bottom of the league on that end.`\
+https://nytimes.com/athletic/6755608/2025/10/29/rudy-gobert-jaden-mcdaniels-timberwolves-defense/
+
 **The Dodgers' offense hasn't gotten going, and it's running out of time**\
 `Dave Roberts hinted at lineup changes after another tepid performance by the Dodgers' star-studded lineup. `\
 https://nytimes.com/athletic/6759098/2025/10/29/dodgers-mlb-world-series-offense/
