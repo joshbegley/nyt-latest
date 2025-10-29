@@ -1,3 +1,7 @@
+**A Game 4 loss leaves the Dodgers no choice: As usual, they'll have to clinch a title on the road**\
+`The Dodgers may still celebrate again this postseason, but it'll have to be in the Rogers Centre this weekend. `\
+https://nytimes.com/athletic/6759239/2025/10/29/los-angeles-dodgers-road-world-series/
+
 **What's gone wrong for the Bears in the red zone? Plenty**\
 `Ben Johnson’s offense should shine in the red zone, thanks in part to a revamped offensive line and a dual-threat QB. It hasn't.`\
 https://nytimes.com/athletic/6758081/2025/10/29/bears-red-zone-struggles-caleb-williams/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6759039/2025/10/29/bruins-sturm-system-islanders/
 **What's next if the WNBA doesn't reach a CBA agreement by Friday's deadline?**\
 `Is a work stoppage in the future? `\
 https://nytimes.com/athletic/6758355/2025/10/29/wnba-cba-labor-union-deadline/
-
-**Edwards: The Knicks don't need Giannis Antetokounmpo. They need time**\
-`The Knicks aren't where they want to be yet, and that's OK.`\
-https://nytimes.com/athletic/6758806/2025/10/29/knicks-giannis-antetokounmpo-bucks/
 
