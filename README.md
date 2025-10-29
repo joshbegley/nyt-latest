@@ -1,3 +1,7 @@
+**Dowman, 15, becomes Arsenal's youngest-ever starter in cup tie with Brighton**\
+`At 15 years and 302 days old, Dowman comfortably broke the previous record which was held by Jack Porter at 16 years 72 days.`\
+https://nytimes.com/athletic/6760675/2025/10/29/max-dowman-arsenal-youngest-starter/
+
 **Sanctions Lifted on a Putin-Backed Autocrat After Lobbying by Trump Allies**\
 `The move benefits the Serbian politician Milorad Dodik, who had received support from Rudolph W. Giuliani, Michael T. Flynn, Laura Loomer and high-priced lobbyists.`\
 https://nytimes.com/2025/10/29/us/politics/milorad-dodik-sanctions-trump.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/10/29/arts/design/james-baldwin-ai-typewriter.html
 **What Can Break the Shutdown Impasse?**\
 `Significant milestones over the next few weeks could shuffle the status quo. For now, both sides remain dug in as the closure heads into a fifth week.`\
 https://nytimes.com/2025/10/29/us/politics/democrats-republicans-shutdown-impasse.html
-
-**From Wemby to Curry to Maxey, NBA sets mark for 40-point games in first week**\
-`NBA has seen an early scoring surge with 16 instances of 40-point games in the first week`\
-https://nytimes.com/athletic/6760525/2025/10/29/buckets-by-the-bushel-nba-sets-a-mark-for-40-point-games-in-first-week/
 
