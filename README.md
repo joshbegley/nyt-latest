@@ -1,3 +1,7 @@
+**Why this Giannis Antetokounmpo move wasn't a travel — even if it (maybe) should be**\
+`Was Giannis Antetokounmpo's now-viral drive against the Knicks a legal move or a travel? We examine the NBA rule book to explain.`\
+https://nytimes.com/athletic/6760365/2025/10/29/giannis-antetokounmpo-travel-bucks-knicks/
+
 **After shenanigans vs. Penguins, Trevor Zegras may be becoming a Flyers fan favorite**\
 `In training camp, coach Rick Tocchet pushed Zegras about his reputation for "doing stuff for clicks on social media."`\
 https://nytimes.com/athletic/6760636/2025/10/29/trevor-zegras-flyers-penguins/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6759999/2025/10/29/backyard-baseball-animated-speci
 **Video Analysis Shows Staged Recovery of Israeli Hostage Remains**\
 `Israel’s military released a drone video of the incident in Gaza, and The New York Times analyzed the footage.`\
 https://nytimes.com/2025/10/29/world/europe/gaza-hamas-israel-remains.html
-
-**Edward J. Blakely, 87, Dies; Hired to Oversee Katrina Recovery in New Orleans**\
-`An urban planner who specialized in disaster recovery, he was brought in to revive the city after the 2005 storm. The task proved larger than one man could handle.`\
-https://nytimes.com/2025/10/29/climate/edward-j-blakely-dead.html
 
