@@ -1,3 +1,11 @@
+**What Could’ve Been for My Favorite ’90s Rapper**\
+`Our critic’s latest Song of the Week is a track by Nas with a posthumous verse by Big L, the New York M.C. who was murdered in his prime.`\
+https://nytimes.com/video/podcasts/100000010489365/what-couldve-been-for-my-favorite-90s-rapper.html
+
+**Jamaicans in Bermuda struggle to reach relatives on the storm-ravaged island.**\
+`By Don Burgess`\
+https://nytimes.com/live/2025/10/29/weather/hurricane-melissa-cuba-jamaica/jamaicans-in-bermuda-struggle-to-reach-relatives-on-the-storm-ravaged-island
+
 **‘Dracula’ Review: Fangs Out**\
 `In this provocation, the Romanian filmmaker Radu Jude takes on the Dracula myth and a real-life horror show known as Vlad the Impaler.`\
 https://nytimes.com/2025/10/29/movies/dracula-review-radu-jude.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/29/world/asia/china-praise-trump-xi.html
 **Obamacare Prices Set to Increase Significantly**\
 `Also, the Caribbean begins to assess damage from Melissa. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/10/29/briefing/obamacare-prices-hurricane-melissa-damage.html
-
-**How to Shave Properly**\
-`A guide to removing facial hair like a professional.`\
-https://nytimes.com/2025/10/29/t-magazine/how-to-shave-properly.html
-
-**Nigerian Nobel Laureate Says the U.S. Revoked His Visa**\
-`The author Wole Soyinka, a vocal critic of President Trump, told the Nigerian press he did not attend a visa renewal interview requested by the State Department.`\
-https://nytimes.com/2025/10/29/books/wole-soyinka-visa-revoked.html
 
