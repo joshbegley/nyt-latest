@@ -1,3 +1,11 @@
+**Cuba’s President Warns of ‘Very Difficult Night’ as Melissa Nears**\
+`More than 735,000 people had evacuated ahead of the storm’s expected arrival on Wednesday, officials said.`\
+https://nytimes.com/2025/10/29/weather/hurricane-melissa-cuba-president.html
+
+**Kevin Danso: How Tottenham's 'Magnet Head' is effortlessly filling the Romero void**\
+`When Romero suffered an injury last season, Tottenham’s back line were plunged into chaos. This time around, Kevin Danso is plugging the gap`\
+https://nytimes.com/athletic/6756412/2025/10/29/kevin-danso-tottenham-romero/
+
 **Everton have £70m of new talent sitting on the bench - but need to be patient**\
 `Hurrying Thierno Barry, Tyler Dibling and Adam Aznou would be counterproductive as they need time to develop their considerable potential`\
 https://nytimes.com/athletic/6756513/2025/10/29/everton-summer-signings-bench-patience/

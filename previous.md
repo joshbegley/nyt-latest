@@ -1,3 +1,11 @@
+**Cuba’s President Warns of ‘Very Difficult Night’ as Melissa Nears**\
+`More than 735,000 people had evacuated ahead of the storm’s expected arrival on Wednesday, officials said.`\
+https://nytimes.com/2025/10/29/weather/hurricane-melissa-cuba-president.html
+
+**Kevin Danso: How Tottenham's 'Magnet Head' is effortlessly filling the Romero void**\
+`When Romero suffered an injury last season, Tottenham’s back line were plunged into chaos. This time around, Kevin Danso is plugging the gap`\
+https://nytimes.com/athletic/6756412/2025/10/29/kevin-danso-tottenham-romero/
+
 **Everton have £70m of new talent sitting on the bench - but need to be patient**\
 `Hurrying Thierno Barry, Tyler Dibling and Adam Aznou would be counterproductive as they need time to develop their considerable potential`\
 https://nytimes.com/athletic/6756513/2025/10/29/everton-summer-signings-bench-patience/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6757392/2025/10/29/chelsea-defence-enzo-maresca-pre
 **British boxing, Black promoters and an unspoken problem: 'You've got to force change'**\
 `Some of the sport's biggest names are Black but very few are in positions of real power. Why? `\
 https://nytimes.com/athletic/6752038/2025/10/29/boxing-black-promoters-managers-trainers/
-
-**The 20 best teams to manage in Football Manager 2026**\
-`From the game's biggest transfer budget to Belgian third-division strugglers, these are the saves you should attempt`\
-https://nytimes.com/athletic/6754116/2025/10/29/football-manager-2026-best-teams-fm26/
-
-**The New York Times in Print for Wednesday, Oct. 29, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/10/29/todays-new-york-times
 

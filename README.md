@@ -14,6 +14,10 @@ https://nytimes.com/athletic/6756513/2025/10/29/everton-summer-signings-bench-pa
 `A look at how three of the city's sports teams are helping each other improve in many different areas`\
 https://nytimes.com/athletic/6757072/2025/10/29/newcastle-united-sports-teams/
 
+**Dark arts of away changing rooms: Pink paint, cold showers, no toilet paper**\
+`How do clubs change the conditions in away changing rooms to put off the opposition? And does it work?`\
+https://nytimes.com/athletic/6756809/2025/10/29/away-changing-rooms-pink-paint-showers-toilets/
+
 **'Hatty' time! Blackhawks' Connor Bedard nets his first NHL hat trick**\
 `It's hard to believe it took this long, but the young Chicago star finally scored three times in a game Tuesday vs the Senators.`\
 https://nytimes.com/athletic/6758829/2025/10/29/blackhawks-connor-bedard-hat-trick/
@@ -25,10 +29,6 @@ https://nytimes.com/athletic/6756194/2025/10/29/marc-guehi-liverpool-transfer-fa
 **When Haaland blanks, who scores? Analysing Manchester City's supporting cast**\
 `Pep Guardiola has a wealth of attacking options — but it is not clear which combinations will bring more goals`\
 https://nytimes.com/athletic/6754141/2025/10/29/when-haaland-blanks-who-scores-analyzing-the-manchester-city-attack/
-
-**Dark arts of away changing rooms: Pink paint, cold showers, no toilet paper**\
-`How do clubs change the conditions in away changing rooms to put off the opposition? And does it work?`\
-https://nytimes.com/athletic/6756809/2025/10/29/away-changing-rooms-pink-paint-showers-toilets/
 
 **Chelsea have used seven centre-back pairings so far - will lack of consistency start to bite?**\
 `Manager Enzo Maresca has been dealt a tough hand with injuries at the heart of his defence but it is vital he finds a consistent solution`\
