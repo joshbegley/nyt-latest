@@ -1,5 +1,17 @@
-**Dutch Voters Seem to Reject Far-Right Party in Tight Election**\
-`A center-left party was poised to become the country’s largest political party, according to exit polls. Geert Wilders suffered a setback, with his anti-immigrant party expected to lose 12 seats.`\
+**The Warnings Before the Hurricane**\
+`Island countries understood that a day like this would come.`\
+https://nytimes.com/2025/10/29/world/the-warnings-before-the-hurricane.html
+
+**Judge Rebukes Justice Dept. Over Efforts to Obtain Confidential Patient Details**\
+`In a scathing order, a judge in Washington State said the government’s real purpose was to intimidate providers into dropping or paring back transgender care.`\
+https://nytimes.com/2025/10/29/us/politics/justice-dept-transgender-patients.html
+
+**Mamdani Revisits a Bronx Corner Where He Made an Early Campaign Video**\
+`The mayoral candidate went back to the same streets where he filmed a widely circulated video a year ago, but this time he cut a very different figure.`\
+https://nytimes.com/2025/10/29/nyregion/mamdani-bronx.html
+
+**Dutch Voters Deliver Setback to Geert Wilders**\
+`A center-left party was poised to become the country’s largest political party, according to exit polls. The anti-immigrant Party for Freedom, led by Mr. Wilders, was expected to lose 12 seats.`\
 https://nytimes.com/2025/10/29/world/europe/netherlands-elections-geert-wilders.html
 
 **Covid and Flu Can Triple Your Risk of Heart Attack**\
@@ -25,17 +37,4 @@ https://nytimes.com/athletic/6760006/2025/10/29/john-wolford-vikings-sign-qb-jj-
 **Florida Universities to Stop Hiring Foreign H-1B Workers Under DeSantis Plan**\
 `The governor’s announcement follows a Trump administration plan to charge institutions $100,000 to bring in workers from other countries using the visas.`\
 https://nytimes.com/2025/10/29/us/florida-universities-h-1b-workers-desantis.html
-
-**Trump Lost to China**\
-`Xi now sees our weakness and will try to exploit it, perhaps leaving America a diminished presence in Asia.`\
-https://nytimes.com/2025/10/29/opinion/china-us-trade-war-xi-trump.html
-
-**Why Zach Hyman's return to the Oilers from injury is delayed**\
-`The Edmonton winger won’t be ready in his first opportunity to come off LTIR from a dislocated right wrist, and his status is week to week.
-`\
-https://nytimes.com/athletic/6761142/2025/10/29/zach-hyman-oilers-injury-return/
-
-**Architectural Sites to See in Mumbai**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/mumbai-architecture-buildings-guide
 
