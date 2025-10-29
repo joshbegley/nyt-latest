@@ -1,3 +1,11 @@
+**Gov. Jeff Landry says LSU AD Scott Woodward won’t choose next football coach**\
+`LSU recently fired Brian Kelly and may owe him $53 million. Landry also expressed frustration with the buyout LSU faces.`\
+https://nytimes.com/athletic/6761090/2025/10/29/lsu-football-coach-jeff-landry-scott-woodward/
+
+**Deputies Put Down 5 Escaped Monkeys They Were Wrongly Told Had Covid**\
+`Three other rhesus monkeys were still on the loose as of Wednesday after the truck carrying them rolled over on a highway in Mississippi, law enforcement officials said.`\
+https://nytimes.com/2025/10/29/us/monkeys-euthanized-mistake-tulane-mississippi.html
+
 **Bloomberg Gives $1.5 Million to Pro-Cuomo Super PAC**\
 `Michael R. Bloomberg, the former New York City mayor, had stayed out of the race since backing former Gov. Andrew M. Cuomo’s failed Democratic primary campaign.`\
 https://nytimes.com/2025/10/29/nyregion/bloomberg-cuomo-super-pac.html
