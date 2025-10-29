@@ -1,3 +1,7 @@
+**In Fight for Control of Congress, Virginia House Takes Step Toward New Map**\
+`Republicans in Texas, North Carolina and Missouri have passed new maps while Democrats in California, Illinois and Virginia are pursuing similar efforts in response.`\
+https://nytimes.com/2025/10/29/us/virginia-congress-redistricting-midterms.html
+
 **Large Fire at Texas Cotton Gin Prompts Evacuation Order**\
 `Residents of nearly a dozen streets in Gregory, Texas, north of Corpus Christi, were ordered to leave their homes as firefighters battled the blaze from the ground and the air.`\
 https://nytimes.com/2025/10/29/us/cotton-gin-fire-texas-gregory.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/29/world/africa/massacre-sudan-saudi-hospital.html
 **Starbucks Reports a Modest Sales Increase in Latest Quarter**\
 `Net income fell 85 percent, however, because of charges related to store closures and corporate layoffs.`\
 https://nytimes.com/2025/10/29/business/starbucks-quarterly-earnings.html
-
-**'Playing for himself': Maresca frustrated by Delap after 'embarrassing' red card**\
-`Chelsea’s head coach was left furious with the forward for his ill-discipline on what was his first appearance for two months.`\
-https://nytimes.com/athletic/6761405/2025/10/29/enzo-maresca-liam-delap-red-card/
 

@@ -1,3 +1,7 @@
+**Large Fire at Texas Cotton Gin Prompts Evacuation Order**\
+`Residents of nearly a dozen streets in Gregory, Texas, north of Corpus Christi, were ordered to leave their homes as firefighters battled the blaze from the ground and the air.`\
+https://nytimes.com/2025/10/29/us/cotton-gin-fire-texas-gregory.html
+
 **Judge Cuts Greenpeace Pipeline Protest Award Nearly in Half**\
 `A North Dakota judge reduced the jury’s award to the pipeline company Energy Transfer to roughly $345 million, from $667 million.`\
 https://nytimes.com/2025/10/29/climate/greenpeace-dakota-access-pipeline-damages.html
