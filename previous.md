@@ -1,3 +1,15 @@
+**Cam Skattebo suffered fibula fracture, ligament rupture in ankle injury**\
+`Skattebo underwent a successful surgery to repair the injuries Sunday, and the Giants expect the rookie back during the offseason.`\
+https://nytimes.com/athletic/6760401/2025/10/29/cam-skattebo-giants-injury-update/
+
+**Mamdani’s Candidacy Roils Jewish Communities Across the Country**\
+`Zohran Mamdani, the Democratic candidate for mayor of New York City, has said he cannot support Israel as long as it is an officially Jewish state. More than 1,100 American rabbis are warning that the safety of Jews is at risk.`\
+https://nytimes.com/2025/10/29/us/politics/zohran-mamdani-jews-rabbis.html
+
+**Prosecutors Who Called Jan. 6 Attackers a ‘Mob of Rioters’ on Are Punished**\
+`The prosecutors were put on leave after filing a sentencing memo in the case of a man who showed up armed outside the home of former President Barack Obama.`\
+https://nytimes.com/2025/10/29/us/politics/prosecutors-jan-6-trump.html
+
 **A Bodega Group Opposed Mamdani’s Grocery Plan. Now It’s Endorsing Him.**\
 `The president of United Bodegas of America said on Wednesday that the Democratic mayoral candidate offered the best path for his members’ success.`\
 https://nytimes.com/2025/10/29/nyregion/mamdani-bodegas-endorsement.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/29/opinion/josh-hawley-food-assistance-snap.html
 **gws-goonies-astoria-oregon**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/goonies-astoria-oregon
-
-**A Spooky Season of Phantoms, a Bat Boy and More**\
-`From Broadway to the small screen, these unnerving theater productions are not just about horror and frights.`\
-https://nytimes.com/2025/10/29/theater/bat-boy-phantom-of-opera.html
-
-**NFL Week 9 confidence picks: Put your points on the Rams, Packers and Chargers**\
-`After a 10-3 Week 8, KC Joyner gives his confidence picks for NFL Week 9.`\
-https://nytimes.com/athletic/6759456/2025/10/29/nfl-week-9-confidence-picks-rams-packers-chargers/
-
-**gws-eleni-petaloti-leonidas-trampoukis-brooklyn-home**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/eleni-petaloti-leonidas-trampoukis-brooklyn-home
 

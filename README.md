@@ -1,3 +1,7 @@
+**Cuomo faces criticism for canceling event at Park Slope synagogue.**\
+`By Emma G. Fitzsimmons`\
+https://nytimes.com/live/2025/10/29/nyregion/nyc-mayor-election-news/cuomo-faces-criticism-for-canceling-event-at-park-slope-synagogue
+
 **Cam Skattebo suffered fibula fracture, ligament rupture in ankle injury**\
 `Skattebo underwent a successful surgery to repair the injuries Sunday, and the Giants expect the rookie back during the offseason.`\
 https://nytimes.com/athletic/6760401/2025/10/29/cam-skattebo-giants-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/29/business/media/hollywood-new-media-run-a-muck-ile
 **Josh Hawley’s Plea for Food Assistance**\
 `Readers respond to the senator’s Opinion guest essay about the possible cutoff of SNAP benefits.`\
 https://nytimes.com/2025/10/29/opinion/josh-hawley-food-assistance-snap.html
-
-**gws-goonies-astoria-oregon**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/goonies-astoria-oregon
 
