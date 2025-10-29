@@ -1,3 +1,8 @@
+**Why Zach Hyman's return from injury is delayed**\
+`The Oilers winger won’t be ready in his first opportunity to come off LTIR from a dislocated right wrist, and his status is week to week.
+`\
+https://nytimes.com/athletic/6761142/2025/10/29/zach-hyman-oilers-injury-return/
+
 **'Doing the wrong things for the right reasons': Wild need Kirill Kaprizov to adopt a 'less is more' approach**\
 `The Wild are digging a hole with a 3-5-3 start, and their soon-to-be $17 million man hasn't been able to right the ship.`\
 https://nytimes.com/athletic/6759245/2025/10/29/kirill-kaprizov-wild-early-struggles/

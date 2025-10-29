@@ -1,3 +1,7 @@
+**Dutch Voters Seem to Reject Far-Right Party in Tight Election**\
+`A center-left party was poised to become the country’s largest political party, according to exit polls. Geert Wilders suffered a setback, with his anti-immigrant party expected to lose 12 seats.`\
+https://nytimes.com/2025/10/29/world/europe/netherlands-elections-geert-wilders.html
+
 **Covid and Flu Can Triple Your Risk of Heart Attack**\
 `A new analysis adds to the research about the link between viral infections and heart disease.`\
 https://nytimes.com/2025/10/29/well/viral-infections-covid-flu-heart-attacks.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6761142/2025/10/29/zach-hyman-oilers-injury-return/
 **Architectural Sites to See in Mumbai**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/mumbai-architecture-buildings-guide
-
-**As Trump Weighs Sale of Advanced A.I. Chips to China, Critics Sound Alarm**\
-`The president signaled he would discuss the sale of Nvidia’s Blackwell chips in a summit on Thursday, a move U.S. officials warned would be a “massive” national security mistake.`\
-https://nytimes.com/2025/10/29/us/politics/trump-china-nvidia-chips-sales.html
 
