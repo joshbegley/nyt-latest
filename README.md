@@ -1,3 +1,15 @@
+**Blue Jays-Dodgers Game 4 takeaways: Toronto outlasts Ohtani to even series**\
+`A day after losing in 18 innings, the Blue Jays scored early and often to ensure a trip back to Toronto for Game 6 and 7.`\
+https://nytimes.com/athletic/6758902/2025/10/28/dodgers-blue-jays-world-series-game-4-results-takeaways-mlb/
+
+**Ex-wife of Eric Kay continues testimony as both sides present competing narratives**\
+`Camela Kay says she warned club officials about then-husband's drug use, while Angels lawyer cites inconcistencies in her testimony.`\
+https://nytimes.com/athletic/6758818/2025/10/28/skaggs-trial-angels-witness-testimony-drugs/
+
+**Relentless Blue Jays make Shohei Ohtani seem briefly mortal with series-tying Game 4 win**\
+`Ohtani tried to singlehandedly hold off the Blue Jays. Collectively, they proved too much for him. `\
+https://nytimes.com/athletic/6758930/2025/10/28/blue-jays-game-4-shohei-ohtani-dodgers-vladimir-guerrero/
+
 **76ers overcome 19-point deficit, improve to 4-0 with OT victory over Wizards**\
 `This is Philly's second 4-0 start since its 2001 NBA Finals run.`\
 https://nytimes.com/athletic/6758859/2025/10/28/tyrese-maxey-sixers-comeback-win-wizards/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/28/crosswords/daily-puzzle-2025-10-29.html
 **Footage Shows Initial Aftermath of New Israeli Strikes in Gaza**\
 `Videos from the Palestinian Red Crescent Society showed people recovering bodies and rushing to a hospital in Gaza City after Israel resumed its strikes.`\
 https://nytimes.com/video/world/middleeast/100000010487494/israel-launches-new-strikes-gaza.html
-
-**Keion White trade grades: 49ers add needed depth on the edge, Patriots keep an eye on the future**\
-`White started 13 games for the Patriots in 2024.`\
-https://nytimes.com/athletic/6758704/2025/10/28/keion-white-49ers-patriots-trade-grade/
-
-**Appeals Court to Reconsider Oregon National Guard Deployment Trump Wants**\
-`Judges in the Ninth Circuit voted to have a larger panel reconsider a decision that could have allowed President Trump to use soldiers at the Portland, Ore., immigration building.`\
-https://nytimes.com/2025/10/28/us/politics/trump-national-guard-oregon-court.html
-
-**White House Fires Commission Overseeing Trump’s D.C. Building Projects**\
-`The Commission of Fine Arts, an independent federal agency, was established by Congress to advise the president on urban planning and historical preservation.`\
-https://nytimes.com/2025/10/28/us/politics/trump-white-house-commission-fine-arts.html
 
