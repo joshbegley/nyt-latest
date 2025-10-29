@@ -1,3 +1,7 @@
+**The Fed may soon stop reducing its debt and mortgage bond holdings.**\
+`By Joe Rennison and Colby Smith`\
+https://nytimes.com/live/2025/10/29/business/federal-reserve-interest-rates/the-fed-may-soon-stop-reducing-its-debt-and-mortgage-bond-holdings
+
 **Protests as Tanzania Votes, With Opposition Leaders Barred From Running**\
 `The East African country’s Party of Revolution, one of the longest-ruling parties on the continent, seeks to keep its grip on power.`\
 https://nytimes.com/2025/10/29/world/africa/tanzania-presidential-election.html

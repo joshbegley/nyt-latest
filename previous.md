@@ -1,3 +1,7 @@
+**The Fed may soon stop reducing its debt and mortgage bond holdings.**\
+`By Joe Rennison and Colby Smith`\
+https://nytimes.com/live/2025/10/29/business/federal-reserve-interest-rates/the-fed-may-soon-stop-reducing-its-debt-and-mortgage-bond-holdings
+
 **Protests as Tanzania Votes, With Opposition Leaders Barred From Running**\
 `The East African country’s Party of Revolution, one of the longest-ruling parties on the continent, seeks to keep its grip on power.`\
 https://nytimes.com/2025/10/29/world/africa/tanzania-presidential-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/29/magazine/magazine-email/kids-moving-abroad-ethics
 **Life Lessons from (Very Old) Bowhead Whales**\
 `A gene that helped bowheads adapt to frigid Arctic waters also granted them extraordinary longevity. Could it help aging humans become more resilient?`\
 https://nytimes.com/2025/10/29/science/genetics-bowhead-whales-longevity.html
-
-**L.A. Fire Victims Face a Choice: Take a Settlement or Hold Out for More**\
-`The utility whose equipment has been linked to the devastating Eaton fire in January is offering to pay fire survivors. But if they accept, they would be giving up their right to sue.`\
-https://nytimes.com/2025/10/29/us/los-angeles-eaton-fire-victims-settlement-offer.html
 
