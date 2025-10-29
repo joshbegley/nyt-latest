@@ -1,3 +1,7 @@
+**In Fight for Control of Congress, Virginia House Takes Step Toward New Map**\
+`Republicans in Texas, North Carolina and Missouri have passed new maps while Democrats in California, Illinois and Virginia are pursuing similar efforts in response.`\
+https://nytimes.com/2025/10/29/us/virginia-congress-redistricting-midterms.html
+
 **Large Fire at Texas Cotton Gin Prompts Evacuation Order**\
 `Residents of nearly a dozen streets in Gregory, Texas, north of Corpus Christi, were ordered to leave their homes as firefighters battled the blaze from the ground and the air.`\
 https://nytimes.com/2025/10/29/us/cotton-gin-fire-texas-gregory.html
