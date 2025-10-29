@@ -1,3 +1,7 @@
+**Toyota Says $10 Billion U.S. Investment Touted by Trump Isn’t New**\
+`Japanese officials have called into question some elements of the flurry of big new investments announced by President Trump during his Japan visit.`\
+https://nytimes.com/2025/10/29/business/trump-toyota-10-billion.html
+
 **Japan to Send Troops to Help Stop Bear Attacks**\
 `With the number of people killed by bears reaching a record nationwide, the defense ministry is preparing to send the military to one badly hit area to set traps.`\
 https://nytimes.com/2025/10/29/world/asia/japan-bear-attacks-military.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6758374/2025/10/29/lions-brian-branch-suspension-re
 **The Vikings need LT Christian Darrisaw. Why is he still not back to full strength?**\
 `Darrisaw has played only 55 percent of the Vikings' offensive snaps this season. The team needs him back and healthy — ASAP.`\
 https://nytimes.com/athletic/6757670/2025/10/29/christian-darrisaw-vikings-injury-status/
-
-**Matt Berninger traded his notebook for a baseball. And the words kept coming**\
-`For The National’s frontman, the way forward was written on rawhide.`\
-https://nytimes.com/athletic/6755600/2025/10/29/the-national-matt-berninger-baseball-and-writing/
 
