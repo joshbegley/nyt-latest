@@ -1,3 +1,11 @@
+**South Korea Says U.S. Agreed to 15% Tariffs**\
+`Seoul will invest $200 billion, or as much as $20 billion a year, and set aside another $150 billion to invest in its American shipbuilding operations, a South Korean official said.`\
+https://nytimes.com/2025/10/29/us/politics/tariff.html
+
+**Should the Commanders, buy, sell or stand pat at the NFL trade deadline?**\
+`Washington is 3-5 with a game to go before Tuesday’s trade deadline. Here are the arguments for buying, selling and doing nothing.`\
+https://nytimes.com/athletic/6759594/2025/10/29/commanders-trade-deadline-buy-sell/
+
 **Paramount to Lay Off 2,000 Employees**\
 `The job cuts are the result of a merger with Skydance, the Hollywood studio founded by David Ellison.`\
 https://nytimes.com/2025/10/29/business/media/paramount-layoffs-skydance.html
