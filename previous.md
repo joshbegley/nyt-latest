@@ -1,3 +1,11 @@
+**Keion White trade grades: 49ers add needed depth on the edge, Patriots keep an eye on the future**\
+`White started 13 games for the Patriots in 2024.`\
+https://nytimes.com/athletic/6758704/2025/10/28/keion-white-49ers-patriots-trade-grade/
+
+**Appeals Court to Reconsider Oregon National Guard Deployment Trump Wants**\
+`Judges in the Ninth Circuit voted to have a larger panel reconsider a decision that could have allowed President Trump to use soldiers at the Portland, Ore., immigration building.`\
+https://nytimes.com/2025/10/28/us/politics/trump-national-guard-oregon-court.html
+
 **White House Fires Commission Overseeing Trump’s D.C. Building Projects**\
 `The Commission of Fine Arts, an independent federal agency, was established by Congress to advise the president on urban planning and historical preservation.`\
 https://nytimes.com/2025/10/28/us/politics/trump-white-house-commission-fine-arts.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6758272/2025/10/28/jt-miller-rangers-canucks-return
 **Administration Must Restore Some Mental Health Grants, Court Says**\
 `The funding was part of a bipartisan measure that Congress approved in response to school shootings, but the Trump administration argued that the grants violated civil rights law.`\
 https://nytimes.com/2025/10/28/us/politics/administration-must-restore-some-mental-health-grants-court-says.html
-
-**With Some G.O.P. Backing, Senate Votes to End Trump’s Brazil Tariffs**\
-`A handful of Republicans crossed party lines to side with Democrats in the first of several votes this week aimed at challenging the president’s trade war.`\
-https://nytimes.com/2025/10/28/us/politics/senate-vote-trump-brazil-tariffs.html
-
-**USWNT coach Emma Hayes reflects on attending first Monday Night Football game in Kansas City**\
-`The U.S. will play New Zealand at CPKC Stadium on Wednesday, the first time the USWNT plays at the iconic NWSL venue.`\
-https://nytimes.com/athletic/6758419/2025/10/28/uswnt-emma-hayes-monday-night-football-kansas-city/
 

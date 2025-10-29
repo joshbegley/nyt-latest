@@ -1,3 +1,11 @@
+**Keion White trade grades: 49ers add needed depth on the edge, Patriots keep an eye on the future**\
+`White started 13 games for the Patriots in 2024.`\
+https://nytimes.com/athletic/6758704/2025/10/28/keion-white-49ers-patriots-trade-grade/
+
+**Appeals Court to Reconsider Oregon National Guard Deployment Trump Wants**\
+`Judges in the Ninth Circuit voted to have a larger panel reconsider a decision that could have allowed President Trump to use soldiers at the Portland, Ore., immigration building.`\
+https://nytimes.com/2025/10/28/us/politics/trump-national-guard-oregon-court.html
+
 **White House Fires Commission Overseeing Trump’s D.C. Building Projects**\
 `The Commission of Fine Arts, an independent federal agency, was established by Congress to advise the president on urban planning and historical preservation.`\
 https://nytimes.com/2025/10/28/us/politics/trump-white-house-commission-fine-arts.html
