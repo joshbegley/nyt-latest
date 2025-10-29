@@ -1,3 +1,7 @@
+**Big Tech Faces Tough Questions Over the A.I. Spending Spree**\
+`Investors have rewarded tech giants for investing heavily in the technology. But bubble concerns are growing.`\
+https://nytimes.com/2025/10/29/business/dealbook/tech-ai-spending-spree.html
+
 **After 10 games, 7 Winnipeg Jets takeaways and what they mean**\
 `Let's dig into what Winnipeg has been doing well, what it hasn't, how it can get better, and more.`\
 https://nytimes.com/athletic/6757555/2025/10/29/winnipeg-jets-after-10-games/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/29/climate/aid-poor-countries-adaptation-climate-uni
 **Trump Says ‘It’s Too Bad’ He Can’t Run for a Third Term**\
 `Speaking to reporters on Air Force One on the way to South Korea, President Trump said it was “too bad” that he couldn’t run again in 2028.`\
 https://nytimes.com/video/world/americas/100000010488155/trump-third-term-limit.html
-
-**After adding CB help, will the Rams remain buyers at the trade deadline?**\
-`The Rams made a trade for Roger McCreary to bolster their cornerback room. What other moves could the team consider before the deadline?`\
-https://nytimes.com/athletic/6757642/2025/10/29/rams-trade-deadline-buyers-roger-mccreary/
 
