@@ -1,3 +1,11 @@
+**Here is the latest.**\
+`By Emiliano Rodríguez Mega, Jovan Johnson, Camille Williams and Francesca Regalado`\
+https://nytimes.com/live/2025/10/29/weather/hurricane-melissa-cuba-jamaica/here-is-the-latest
+
+**Live Updates: Hurricane Melissa Strengthens on Its Way to Cuba After Lashing Jamaica**\
+`The storm caused widespread damage in Jamaica to infrastructure and cut internet access for most of its two million people. Cuba has evacuated about 750,000 people ahead of the storm.`\
+https://nytimes.com/live/2025/10/29/weather/hurricane-melissa-cuba-jamaica
+
 **Wild felt they were 'better team' in 4-3 overtime loss to Jets; takeaways**\
 `Minnesota will need more from two of their best players if they want to turn things around. `\
 https://nytimes.com/athletic/6759057/2025/10/29/minnesota-wild-overtime-loss-jets-takeaways/

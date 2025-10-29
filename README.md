@@ -1,3 +1,23 @@
+**Chelsea have used seven centre-back pairings so far - will lack of consistency start to bite?**\
+`Manager Enzo Maresca has been dealt a tough hand with injuries at the heart of his defence but it is vital he finds a consistent solution`\
+https://nytimes.com/athletic/6757392/2025/10/29/chelsea-defence-enzo-maresca-premier-league/
+
+**British boxing, Black promoters and an unspoken problem: 'You've got to force change'**\
+`Some of the sport's biggest names are Black but very few are in positions of real power. Why? `\
+https://nytimes.com/athletic/6752038/2025/10/29/boxing-black-promoters-managers-trainers/
+
+**The 20 best teams to manage in Football Manager 2026**\
+`From the game's biggest transfer budget to Belgian third-division strugglers, these are the saves you should attempt`\
+https://nytimes.com/athletic/6754116/2025/10/29/football-manager-2026-best-teams-fm26/
+
+**The New York Times in Print for Wednesday, Oct. 29, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/29/todays-new-york-times
+
+**The Canadians Are Right About Reagan and Free Trade**\
+`Reagan would not have approved of Trump’s tariffs.`\
+https://nytimes.com/2025/10/29/opinion/trump-reagan-tariffs-canada.html
+
 **Here is the latest.**\
 `By Emiliano Rodríguez Mega, Jovan Johnson, Camille Williams and Francesca Regalado`\
 https://nytimes.com/live/2025/10/29/weather/hurricane-melissa-cuba-jamaica/here-is-the-latest
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6758795/2025/10/29/penguins-flyers-nhl-officials-sh
 **Howson on his return to Leeds as an Under-21 player-coach: 'I feel extremely lucky'**\
 `After more than 13 years away from Elland Road, Howson is back to where it all began to complete the most treasured arc of his career`\
 https://nytimes.com/athletic/6757705/2025/10/29/jonny-howson-leeds-united-interview/
-
-**Trump Suggests He Knows He Can’t Run Again: ‘It’s Too Bad’**\
-`Despite the Constitution’s two-term limit, Trump had mused for months about a third term.`\
-https://nytimes.com/2025/10/29/us/politics/third-term-limit.html
-
-**Hurricane Melissa Caused Severe Infrastructure Damage, Jamaica Says**\
-`Most of the island of two million people was without internet service, and major airports were closed. Kingston, the capital, was mostly spared.`\
-https://nytimes.com/2025/10/29/world/americas/hurricane-melissa-jamaica-damage-deaths.html
-
-**What Amorim has changed at Man Utd: Lammens' long kicks, faster attacks, no outswinging corners**\
-`How going direct helped to solve some of Manchester United's biggest problems and deliver their best run of form under Ruben Amorim`\
-https://nytimes.com/athletic/6756693/2025/10/29/ruben-amorims-manchester-united-what-changed/
-
-**How the 19th-Century Opium War Shapes Xi’s Trade Clash With Trump**\
-`China’s leader draws on lessons from Lin Zexu, a Qing official whose defiance of Britain led to China’s humiliating defeat but made him a national hero.`\
-https://nytimes.com/2025/10/29/world/asia/trump-china-xi-opium-trade.html
-
-**The Netherlands’ Election Is a Referendum on the Far Right**\
-`Geert Wilders and his far-right party blew up the Dutch governing coalition this year. Will that cost their party seats in Parliament?`\
-https://nytimes.com/2025/10/29/world/europe/netherlands-election-geert-wilders.html
 
