@@ -1,3 +1,11 @@
+**Flyers combine a learning experience with a deserved victory against Penguins**\
+`The Flyers struggled in the third period, but kept it together for a shootout victory against their in-state rivals.`\
+https://nytimes.com/athletic/6758928/2025/10/28/flyers-shootout-pressure-tocchet-penguins/
+
+**Relentless Blue Jays make Shohei Ohtani seem briefly mortal with series-tying Game 4 win**\
+`Shohei Ohtani tried to singlehandedly hold off the Blue Jays. They proved too much for him in a 6-2 win over the Dodgers in Game 4.`\
+https://nytimes.com/athletic/6758930/2025/10/28/blue-jays-game-4-shohei-ohtani-dodgers-vladimir-guerrero/
+
 **In return from injury, Blue Jackets' Miles Wood doesn't miss a beat**\
 `Wood scored the tying goal in the third period, then netted his first career overtime winner in a 4-3 comeback win over the Sabres.`\
 https://nytimes.com/athletic/6758835/2025/10/28/blue-jackets-sabres-miles-wood-goal-injury/

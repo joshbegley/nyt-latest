@@ -1,3 +1,7 @@
+**Former Hate Crimes Chief Accuses Adams of Anti-Muslim Bias**\
+`Hassan Naveed, who was fired from City Hall last year, claimed in a lawsuit that he was asked what he thought about “beheaded babies.”`\
+https://nytimes.com/2025/10/28/nyregion/adams-muslims-lawsuit.html
+
 **Flyers combine a learning experience with a deserved victory against Penguins**\
 `The Flyers struggled in the third period, but kept it together for a shootout victory against their in-state rivals.`\
 https://nytimes.com/athletic/6758928/2025/10/28/flyers-shootout-pressure-tocchet-penguins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6758763/2025/10/28/bob-costas-nba-nbc-knicks-bucks-
 **Knies, Domi's breakout games balance Leafs' power-play issues, tired Stolarz: 3 thoughts**\
 `The Leafs put together their best second period of the season so far to beat the Flames on the first night of a back-to-back.`\
 https://nytimes.com/athletic/6758628/2025/10/28/maple-leafs-domi-knies-stolarz-power-play/
-
-**‘Liberation’ Review: A Tony-Worthy Ensemble Plotting Revolution**\
-`Bess Wohl’s play, about a consciousness-raising group in 1970s Ohio, transfers to Broadway where it remains powerfully moving — and funny.`\
-https://nytimes.com/2025/10/28/theater/liberation-review-broadway-bess-wohl.html
 
