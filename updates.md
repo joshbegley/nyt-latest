@@ -1,3 +1,15 @@
+**En vivo: El huracán Melissa llega Cuba tras su paso destructivo por Jamaica**\
+`La tormenta causó daños generalizados a las infraestructuras jamaiquinas y cortó el acceso a internet a la mayoría de la población. Cuba evacuó a unas 750.000 personas antes de su llegada.`\
+https://nytimes.com/live/2025/10/29/espanol/huracan-melissa
+
+**In final campaign ad, Cuomo seeks to cast himself as a unifier.**\
+`By Matthew Haag`\
+https://nytimes.com/live/2025/10/29/nyregion/nyc-mayor-election-news/in-final-campaign-ad-cuomo-seeks-to-cast-himself-as-a-unifier
+
+**Street Battles Rage in Ukrainian City After Russian Troops Enter Stronghold**\
+`Moscow’s forces infiltrated Pokrovsk after months of attacks on the city, a strategic part of Ukraine’s eastern defenses.`\
+https://nytimes.com/2025/10/29/world/europe/ukraine-russia-street-battles-pokrovsk.html
+
 **Pedri set to be sidelined until after international break with hamstring injury**\
 `Pedri has appeared in all but one of Barcelona's competitive matches since Hansi Flick was appointed as head coach.`\
 https://nytimes.com/athletic/6759787/2025/10/29/pedri-barcelona-injury-news/
