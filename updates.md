@@ -1,3 +1,11 @@
+**Michael Jordan explains why he believes the NBA doesn't need load management**\
+`Jordan offered his insights on load management in the NBA: He doesn’t like it. "I never wanted to miss a game."`\
+https://nytimes.com/athletic/6758983/2025/10/28/michael-jordan-nba-nbc-load-management/
+
+**Trump Administration Live Updates: President Arrives in South Korea**\
+``\
+https://nytimes.com/live/2025/10/28/us/trump-news-south-korea
+
 **Former Hate Crimes Chief Accuses Adams of Anti-Muslim Bias**\
 `Hassan Naveed, who was fired from City Hall last year, claimed in a lawsuit that he was asked what he thought about “beheaded babies.”`\
 https://nytimes.com/2025/10/28/nyregion/adams-muslims-lawsuit.html
