@@ -1,3 +1,11 @@
+**Fired by Team Trump, Former U.S. Attorney Joins Team Newsom**\
+`Michele Beckwith was ousted by President Trump less than six hours after instructing a top immigration official to abide by the Constitution in his immigration raids.`\
+https://nytimes.com/2025/10/28/us/trump-fired-us-attorney-michele-beckwith-new-job.html
+
+**Kyle Dugger trade grades: Steelers address ailing secondary, Patriots finally find a taker**\
+`The Steelers acquired Dugger for a late-round pick swap.`\
+https://nytimes.com/athletic/6758636/2025/10/28/kyle-dugger-steelers-patriots-trade-grade/
+
 **WNBA offers players extension on CBA negotiations: Sources**\
 `With the current collective bargaining agreement set to expire on Friday, the WNBA has offered the union a 30-day extension.`\
 https://nytimes.com/athletic/6758591/2025/10/28/wnba-cba-negotiation-deadline-extension-offered-players/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/10/28/nyregion/nyc-mayor-election-news/the-mayoral
 **How to watch Chiefs vs. Bills: Time, TV, streaming**\
 `Find out how to watch the Kansas City Chiefs play the Buffalo Bills, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6758468/2025/10/28/how-to-watch-chiefs-vs-bills-tv-channel-and-streaming-options-for-november-2/
-
-**How to watch Saints vs. Rams: Time, TV, streaming**\
-`Find out how to watch the New Orleans Saints play the Los Angeles Rams, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6758451/2025/10/28/how-to-watch-saints-vs-rams-tv-channel-and-streaming-options-for-november-2/
-
-**How to watch Jaguars vs. Raiders: Time, TV, streaming**\
-`Find out how to watch the Jacksonville Jaguars play the Las Vegas Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6758446/2025/10/28/how-to-watch-jaguars-vs-raiders-tv-channel-and-streaming-options-for-november-2/
 

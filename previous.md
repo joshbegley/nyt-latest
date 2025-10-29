@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6758272/2025/10/28/jt-miller-rangers-canucks-return
 `The funding was part of a bipartisan measure that Congress approved in response to school shootings, but the Trump administration argued that the grants violated civil rights law.`\
 https://nytimes.com/2025/10/28/us/politics/administration-must-restore-some-mental-health-grants-court-says.html
 
-**With Some G.O.P. Support, Senate Votes to End Trump’s Brazil Tariffs**\
+**With Some G.O.P. Backing, Senate Votes to End Trump’s Brazil Tariffs**\
 `A handful of Republicans crossed party lines to side with Democrats in the first of several votes this week aimed at challenging the president’s trade war.`\
 https://nytimes.com/2025/10/28/us/politics/senate-vote-trump-brazil-tariffs.html
 

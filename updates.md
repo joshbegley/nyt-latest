@@ -1,3 +1,7 @@
+**With Some G.O.P. Backing, Senate Votes to End Trump’s Brazil Tariffs**\
+`A handful of Republicans crossed party lines to side with Democrats in the first of several votes this week aimed at challenging the president’s trade war.`\
+https://nytimes.com/2025/10/28/us/politics/senate-vote-trump-brazil-tariffs.html
+
 **WNBA offers players extension on CBA negotiations: Sources**\
 `With the current collective bargaining agreement set to expire on Friday, the WNBA has offered the union a 30-day extension.`\
 https://nytimes.com/athletic/6758591/2025/10/28/wnba-cba-negotiation-deadline-extension-offered-players/
