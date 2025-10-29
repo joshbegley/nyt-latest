@@ -23,7 +23,7 @@ https://nytimes.com/2025/10/29/nyregion/mikie-sherrill-new-jersey-governor.html
 https://nytimes.com/2025/10/29/nyregion/andrew-cuomo-podcast-radio.html
 
 **Wrexham's night of pain will sting for a very long time**\
-`Phil Parkinson's side lost a winnable game, local pride and the chance of a big cup draw in Tuesday's defeat to Cardiff `\
+`Phil Parkinson's side lost a winnable game, local pride, and the chance of a big cup draw in Tuesday's defeat to Cardiff `\
 https://nytimes.com/athletic/6753948/2025/10/29/wrexham-cardiff-carabao-cup-result-analysis/
 
 **Stephen Colbert Spots Something in Trump’s ‘Perfect’ M.R.I. Scan**\
