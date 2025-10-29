@@ -1,3 +1,7 @@
+**Protests as Tanzania Votes, With Opposition Leaders Barred From Running**\
+`The East African country’s Party of Revolution, one of the longest-ruling parties on the continent, seeks to keep its grip on power.`\
+https://nytimes.com/2025/10/29/world/africa/tanzania-presidential-election.html
+
 **Cuomo Earned Almost $5 Million From Consulting in 2024, Returns Show**\
 `Most of Andrew Cuomo’s income came from Innovation Strategies, a company created for his consulting work before he ran for mayor of New York City. He has not disclosed his clients.`\
 https://nytimes.com/2025/10/29/nyregion/cuomo-tax-return-millionaire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/29/science/genetics-bowhead-whales-longevity.html
 **L.A. Fire Victims Face a Choice: Take a Settlement or Hold Out for More**\
 `The utility whose equipment has been linked to the devastating Eaton fire in January is offering to pay fire survivors. But if they accept, they would be giving up their right to sue.`\
 https://nytimes.com/2025/10/29/us/los-angeles-eaton-fire-victims-settlement-offer.html
-
-**IRS document: Terry Rozier owed $8.2 million in unpaid income tax in 2023**\
-`The IRS put a lien on Rozier's property in November 2023, months after the government alleges he aided an illegal sports betting ring.`\
-https://nytimes.com/athletic/6760081/2025/10/29/terry-rozier-unpaid-income-tax-lien/
 
