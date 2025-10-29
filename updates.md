@@ -1,3 +1,23 @@
+**How might Bills use CB Maxwell Hairston against Chiefs after solid NFL debut?**\
+`The rookie saw his first game action after sustaining an injury early in training camp.`\
+https://nytimes.com/athletic/6758179/2025/10/29/bills-chiefs-rookie-cb-maxwell-hairston/
+
+**Long throws, long delays. Does something need to be done?**\
+`The return of the tactic means the ball is in play for a shorter period. Rule changes are being discused but is that the way to go?`\
+https://nytimes.com/athletic/6759581/2025/10/29/long-throw-delays-brentford/
+
+**Character.AI to Bar Children Under 18 From Using Its Chatbots**\
+`The start-up, which creates A.I. companions, faces lawsuits from families who have accused Character.AI’s chatbots of leading teenagers to kill themselves.`\
+https://nytimes.com/2025/10/29/technology/characterai-underage-users.html
+
+**Big Wellness Finds an Easy Target With Perimenopause**\
+`Will ashwagandha cure my “cortisol face”?`\
+https://nytimes.com/2025/10/29/opinion/menopause-supplements-wellness.html
+
+**My Good Friend Doesn’t Let Me Get a Word in Edgewise. Help!**\
+`A reader’s patience is wearing thin with an otherwise fun and generous friend who leaves much to be desired as a conversational partner.`\
+https://nytimes.com/2025/10/29/style/friend-bad-listener.html
+
 **Vinicius Jr apologises to Madrid fans, teammates for outburst; Alonso left out**\
 `The winger reacted strongly to his substitution on Sunday, saying "I'm leaving the team, it's better if I leave, I'm leaving".`\
 https://nytimes.com/athletic/6759755/2025/10/29/vinicius-jr-real-madrid-apology-alonso/
