@@ -1,3 +1,7 @@
+**Penguins organization furious with Flyers, NHL officials after wild shootout loss**\
+`Eight misconducts were given out at the end of OT as the Penguins-Flyers rivalry heated up on Tuesday and Pittsburgh fell in a shootout.`\
+https://nytimes.com/athletic/6758795/2025/10/29/penguins-flyers-nhl-officials-shootout/
+
 **Howson on his return to Leeds as an Under-21 player-coach: 'I feel extremely lucky'**\
 `After more than 13 years away from Elland Road, Howson is back to where it all began to complete the most treasured arc of his career`\
 https://nytimes.com/athletic/6757705/2025/10/29/jonny-howson-leeds-united-interview/

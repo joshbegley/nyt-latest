@@ -1,3 +1,7 @@
+**Wild felt they were 'better team' in 4-3 overtime loss to Jets; takeaways**\
+`Minnesota will need more from two of their best players if they want to turn things around. `\
+https://nytimes.com/athletic/6759057/2025/10/29/minnesota-wild-overtime-loss-jets-takeaways/
+
 **Penguins organization furious with Flyers, NHL officials after wild shootout loss**\
 `Eight misconducts were given out at the end of OT as the Penguins-Flyers rivalry heated up on Tuesday and Pittsburgh fell in a shootout.`\
 https://nytimes.com/athletic/6758795/2025/10/29/penguins-flyers-nhl-officials-shootout/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/29/world/europe/netherlands-election-housing.html
 **Fantasy football rankings Week 9: Sleepers, starts, projections, Best Halloween candy**\
 `Jake Ciely runs through his player rankings for Week 9, and breaks out his annual Halloween-themed candy ranks.`\
 https://nytimes.com/athletic/6758019/2025/10/29/fantasy-football-rankings-week-9-sleepers-starts-projections-best-halloween-candy/
-
-**Connections: Sports Edition Coach: Hints for Oct. 29, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6757092/2025/10/29/connections-sports-edition-hints-for-oct-29-2025/
 
