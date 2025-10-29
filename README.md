@@ -1,3 +1,11 @@
+**Here is the latest.**\
+`By Emiliano Rodríguez Mega, Jovan Johnson, Camille Williams and Francesca Regalado`\
+https://nytimes.com/live/2025/10/29/weather/hurricane-melissa-cuba-jamaica/here-is-the-latest
+
+**Live Updates: Hurricane Melissa Strengthens on Its Way to Cuba After Lashing Jamaica**\
+`The storm caused widespread damage in Jamaica to infrastructure and cut internet access for most of its two million people. Cuba has evacuated about 750,000 people ahead of the storm.`\
+https://nytimes.com/live/2025/10/29/weather/hurricane-melissa-cuba-jamaica
+
 **Wild felt they were 'better team' in 4-3 overtime loss to Jets; takeaways**\
 `Minnesota will need more from two of their best players if they want to turn things around. `\
 https://nytimes.com/athletic/6759057/2025/10/29/minnesota-wild-overtime-loss-jets-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/29/world/asia/trump-china-xi-opium-trade.html
 **The Netherlands’ Election Is a Referendum on the Far Right**\
 `Geert Wilders and his far-right party blew up the Dutch governing coalition this year. Will that cost their party seats in Parliament?`\
 https://nytimes.com/2025/10/29/world/europe/netherlands-election-geert-wilders.html
-
-**As the Dutch Vote, One Issue Carries the Day: Affordable Housing**\
-`The small European nation of 18 million people is in the middle of its worst housing crunch in decades. But there is no quick political solution.`\
-https://nytimes.com/2025/10/29/world/europe/netherlands-election-housing.html
-
-**Fantasy football rankings Week 9: Sleepers, starts, projections, Best Halloween candy**\
-`Jake Ciely runs through his player rankings for Week 9, and breaks out his annual Halloween-themed candy ranks.`\
-https://nytimes.com/athletic/6758019/2025/10/29/fantasy-football-rankings-week-9-sleepers-starts-projections-best-halloween-candy/
 
