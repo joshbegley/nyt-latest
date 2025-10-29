@@ -1,3 +1,23 @@
+**A Work of Genius or a Complete Mess? Even Its Author Can’t Decide.**\
+`Helen DeWitt’s bewildering co-written novel, “Your Name Here,” took almost 20 years to publish, a process that nearly drove her to despair.`\
+https://nytimes.com/2025/10/29/books/helen-dewitt-your-name-here.html
+
+**Boeing Reports Bigger Quarterly Loss but Sales Improved**\
+`The aerospace company was hurt by the delay of a new plane but made progress on increasing production of the 737 Max, its most popular aircraft.`\
+https://nytimes.com/2025/10/29/business/boeing-earnings-third-quarter.html
+
+**This Vibrantly Green Rice Is Also a Feast for the Eyes**\
+`Rich with kale and halloumi, this elegant rice dish is special enough for just about any occasion.`\
+https://nytimes.com/2025/10/29/magazine/kale-rice-halloumi-dish.html
+
+**Street Battles Rage in Ukrainian City After Russian Troops Enter Stronghold**\
+`Moscow’s forces infiltrated Pokrovsk after months of attacks on the city, a strategic part of Ukraine’s eastern defenses.`\
+https://nytimes.com/2025/10/29/world/europe/street-battles-pokrovsk-ukraine-russia.html
+
+**Vinicius Jr apologises to Madrid fans, team-mates for outburst; Alonso left out**\
+`The winger reacted strongly to his substitution on Sunday, saying "I'm leaving the team, it's better if I leave, I'm leaving".`\
+https://nytimes.com/athletic/6759755/2025/10/29/vinicius-jr-real-madrid-apology-alonso/
+
 **How might Bills use CB Maxwell Hairston against Chiefs after solid NFL debut?**\
 `The rookie saw his first game action after sustaining an injury early in training camp.`\
 https://nytimes.com/athletic/6758179/2025/10/29/bills-chiefs-rookie-cb-maxwell-hairston/
