@@ -1,3 +1,15 @@
+**A Bodega Group Opposed Mamdani’s Grocery Plan. Now It’s Endorsing Him.**\
+`The president of United Bodegas of America said on Wednesday that the Democratic mayoral candidate offered the best path for his members’ success.`\
+https://nytimes.com/2025/10/29/nyregion/mamdani-bodegas-endorsement.html
+
+**Arch Manning returns to practice but remains in concussion protocol ahead of Vanderbilt game**\
+`Manning is coming off the most productive game of his career, in which he threw for a career-high 346 yards to go along with three TDs.`\
+https://nytimes.com/athletic/6760540/2025/10/29/arch-manning-concussion-protocol-texas-vanderbilt/
+
+**Why Spiders Are the Ultimate Interior Decorators**\
+`Scientists offer a new idea for why orb-weaving arachnids add decorations known as stabilimenta to their webs.`\
+https://nytimes.com/2025/10/29/science/spider-webs-stabilimenta.html
+
 **When it comes to sports gambling, many things can be true at once: MoneyCall**\
 `More in this week's sports business cheat sheet: Latest on the WNBA labor standoff! NBA on TV has never been better! Lionel Messi!`\
 https://nytimes.com/athletic/6760466/2025/10/29/sports-gambling-terry-rozier-nba-moneycall/

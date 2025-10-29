@@ -1,3 +1,15 @@
+**A Bodega Group Opposed Mamdani’s Grocery Plan. Now It’s Endorsing Him.**\
+`The president of United Bodegas of America said on Wednesday that the Democratic mayoral candidate offered the best path for his members’ success.`\
+https://nytimes.com/2025/10/29/nyregion/mamdani-bodegas-endorsement.html
+
+**Arch Manning returns to practice but remains in concussion protocol ahead of Vanderbilt game**\
+`Manning is coming off the most productive game of his career, in which he threw for a career-high 346 yards to go along with three TDs.`\
+https://nytimes.com/athletic/6760540/2025/10/29/arch-manning-concussion-protocol-texas-vanderbilt/
+
+**Why Spiders Are the Ultimate Interior Decorators**\
+`Scientists offer a new idea for why orb-weaving arachnids add decorations known as stabilimenta to their webs.`\
+https://nytimes.com/2025/10/29/science/spider-webs-stabilimenta.html
+
 **When it comes to sports gambling, many things can be true at once: MoneyCall**\
 `More in this week's sports business cheat sheet: Latest on the WNBA labor standoff! NBA on TV has never been better! Lionel Messi!`\
 https://nytimes.com/athletic/6760466/2025/10/29/sports-gambling-terry-rozier-nba-moneycall/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6759456/2025/10/29/nfl-week-9-confidence-picks-rams
 **gws-eleni-petaloti-leonidas-trampoukis-brooklyn-home**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/eleni-petaloti-leonidas-trampoukis-brooklyn-home
-
-**Mavericks guard Brandon Williams arrested on marijuana possession charge**\
-`Williams, 25, allegedly had less than two ounces of marijuana, and thus was charged with a misdemeanor.`\
-https://nytimes.com/athletic/6760318/2025/10/29/mavericks-brandon-williams-arrest-marijuana-possession/
-
-**Essential Books**\
-`The New York Times Book Review on the essential authors who have shaped our world.`\
-https://nytimes.com/column/essential-books-authors
-
-**Yankees broadcasts to drop longtime analyst John Flaherty as part of latest moves**\
-`Flaherty had been on Yankee broadcasts for two decades after playing three seasons with the team.`\
-https://nytimes.com/athletic/6760379/2025/10/29/yankees-broadcasts-john-flaherty-yes/
 
