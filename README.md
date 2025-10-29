@@ -1,3 +1,7 @@
+**Trump, in South Korea for Summit, Is Given a Prize and Crown**\
+`President Lee Jae Myung of South Korea gave President Trump a replica of an ancient crown and a national prize. Crowds gathered nearby to protest his visit.`\
+https://nytimes.com/video/world/asia/100000010487758/trump-south-korea-apec.html
+
 **When Caregiving Makes Women Ill**\
 `Eastern Europeans have migrated in droves to take care of Italy’s aged and infirm. Then they started getting sick, with an ailment dubbed ‘Italy syndrome.’`\
 https://nytimes.com/2025/10/29/world/europe/when-caregiving-makes-women-ill.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/29/realestate/halloween-neighborhood-guide.html
 **A River Restoration in Oregon Gets Fast Results: The Salmon Swam Right Back**\
 `The fish had been missing from the headwaters of the Klamath River for more than a century. Just a year after the removal of a final dam, they’ve returned.`\
 https://nytimes.com/2025/10/29/climate/klamath-salmon-recovery.html
-
-**How Will I Feed My Family Now?**\
-`I rely on SNAP benefits. That requires constant trade-offs.`\
-https://nytimes.com/2025/10/29/opinion/snap-shutdown-food-stamps.html
 
