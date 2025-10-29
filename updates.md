@@ -1,3 +1,7 @@
+**Nick Offerman on Meditative Woodworking**\
+`Woodworker, author, and actor Nick Offerman describes how woodworking can be a spiritual or meditative experience.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010488504/nick-offerman-on-meditative-woodworking.html
+
 **After ominous warnings about Mamdani, Cuomo seeks to cast himself as a unifier.**\
 `By Matthew Haag`\
 https://nytimes.com/live/2025/10/29/nyregion/nyc-mayor-election-news/in-final-campaign-ad-cuomo-seeks-to-cast-himself-as-a-unifier

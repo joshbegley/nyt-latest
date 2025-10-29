@@ -1,3 +1,7 @@
+**Nick Offerman on Meditative Woodworking**\
+`Woodworker, author, and actor Nick Offerman describes how woodworking can be a spiritual or meditative experience.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010488504/nick-offerman-on-meditative-woodworking.html
+
 **Six secondhand shopping tips**\
 `Six Wirecutter writers share their advice for shopping secondhand for clothing, home decor, and tableware.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010488522/six-secondhand-shopping-tips.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/10/29/nyregion/nyc-mayor-election-news/in-final-ca
 **Pedri set to be sidelined until after international break with hamstring injury**\
 `Pedri has appeared in all but one of Barcelona's competitive matches since Hansi Flick was appointed as head coach.`\
 https://nytimes.com/athletic/6759787/2025/10/29/pedri-barcelona-injury-news/
-
-**A Work of Genius or a Complete Mess? Even Its Author Can’t Decide.**\
-`Helen DeWitt’s bewildering co-written novel, “Your Name Here,” took almost 20 years to publish, a process that nearly drove her to despair.`\
-https://nytimes.com/2025/10/29/books/helen-dewitt-your-name-here.html
 
