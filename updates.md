@@ -1,3 +1,7 @@
+**U.S. Military Will Assist Disaster Relief Efforts in Jamaica**\
+`State Department officials have asked the Pentagon to join the U.S. response to Hurricane Melissa, in a test of the Trump administration’s disaster-response capabilities after major cuts to foreign aid.`\
+https://nytimes.com/2025/10/29/weather/usaid-hurricane-melissa.html
+
 **Supreme Court Asks for More Info in Trump Request to Deploy National Guard in Chicago**\
 `President Trump has ordered troops to Portland, Ore., Los Angeles, Washington and Chicago over the objections of state and local officials.`\
 https://nytimes.com/2025/10/29/us/politics/supreme-court-trump-national-guard.html
