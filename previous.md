@@ -1,3 +1,7 @@
+**After Cubs’ playoff run, slight turnover is coming to Craig Counsell’s staff**\
+`Alex Smith, who maintained a steady presence on the field and in the clubhouse, will join the Detroit Tigers.`\
+https://nytimes.com/athletic/6761320/2025/10/29/chicago-cubs-craig-counsell-staff-changes/
+
 **Gov. Jeff Landry says LSU AD Scott Woodward won’t choose next football coach**\
 `LSU recently fired Brian Kelly and may owe him $53 million. Landry also expressed frustration with the buyout LSU faces.`\
 https://nytimes.com/athletic/6761090/2025/10/29/lsu-football-coach-jeff-landry-scott-woodward/
@@ -23,7 +27,7 @@ https://nytimes.com/2025/10/29/briefing/obamacare-prices-hurricane-melissa-damag
 https://nytimes.com/2025/10/29/t-magazine/how-to-shave-properly.html
 
 **Nigerian Nobel Laureate Says the U.S. Revoked His Visa**\
-`Author Wole Soyinka, a vocal critic of President Trump, told the Nigerian press he did not attend a visa renewal interview requested by the State Department.`\
+`The author Wole Soyinka, a vocal critic of President Trump, told the Nigerian press he did not attend a visa renewal interview requested by the State Department.`\
 https://nytimes.com/2025/10/29/books/wole-soyinka-visa-revoked.html
 
 **The Briefing: Wolves 3 Chelsea 4 - Gittens stars despite late scare and how much longer can Pereira go on?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6753900/2025/10/29/wolves-chelsea-briefing-gittens-
 **Newcastle 2 Tottenham 0 - Why are Howe's side so good in the Carabao Cup? Was opener unfair on Spence?**\
 `Analysis of Newcastle United's Carabao Cup win over Spurs`\
 https://nytimes.com/athletic/6753915/2025/10/29/newcastle-2-tottenham-0-highlights/
-
-**U.S. Military Will Assist Disaster Relief Efforts in Jamaica**\
-`State Department officials have asked the Pentagon to join the U.S. response to Hurricane Melissa, in a test of the Trump administration’s disaster-response capabilities after major cuts to foreign aid.`\
-https://nytimes.com/2025/10/29/weather/usaid-hurricane-melissa.html
 
