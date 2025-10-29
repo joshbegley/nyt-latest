@@ -1,3 +1,19 @@
+**Bloomberg Gives $1.5 Million to Pro-Cuomo Super PAC**\
+`Michael R. Bloomberg, the former New York City mayor, had stayed out of the race since backing former Gov. Andrew M. Cuomo’s failed Democratic primary campaign.`\
+https://nytimes.com/2025/10/29/nyregion/bloomberg-cuomo-super-pac.html
+
+**Chinese Officials Heap Praise on Trump and Xi Before They Meet**\
+`President Trump and the Chinese leader Xi Jinping are being described as “irreplaceable” and “world class leaders” before a meeting seen as critical for shoring up a trade truce.`\
+https://nytimes.com/2025/10/29/world/asia/china-praise-trump-xi.html
+
+**Obamacare Prices Set to Increase Significantly**\
+`Also, the Caribbean begins to assess damage from Melissa. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/10/29/briefing/obamacare-prices-hurricane-melissa-damage.html
+
+**How to Shave Properly**\
+`A guide to removing facial hair like a professional.`\
+https://nytimes.com/2025/10/29/t-magazine/how-to-shave-properly.html
+
 **Nigerian Nobel Laureate Says the U.S. Revoked His Visa**\
 `Author Wole Soyinka, a vocal critic of President Trump, told the Nigerian press he did not attend a visa renewal interview requested by the State Department.`\
 https://nytimes.com/2025/10/29/books/wole-soyinka-visa-revoked.html
@@ -17,20 +33,4 @@ https://nytimes.com/2025/10/29/weather/usaid-hurricane-melissa.html
 **Supreme Court Asks for More Info in Trump Request to Deploy National Guard in Chicago**\
 `President Trump has ordered troops to Portland, Ore., Los Angeles, Washington and Chicago over the objections of state and local officials.`\
 https://nytimes.com/2025/10/29/us/politics/supreme-court-trump-national-guard.html
-
-**Hurricane Melissa Leaves Trail of Destruction**\
-`Officials are still searching for survivors in the deadly aftermath of Hurricane Melissa.`\
-https://nytimes.com/video/world/americas/100000010489300/jamaica-cuba-hurricane-melissa-aftermath.html
-
-**Two Suspects ‘Partially Admitted’ to Louvre Heist, Prosecutor Says**\
-`Investigators revealed new information about the Louvre heist. Both suspects had a criminal record and were traced using DNA samples left at the crime scene.`\
-https://nytimes.com/video/world/europe/100000010490042/two-suspects-partially-admitted-to-louvre-heist-prosecutor-says.html
-
-**The Briefing: Liverpool 0 Crystal Palace 3 - 10 changes and a new system but the same outcome for Slot**\
-`Mark Carey and Gregg Evans analyse the main talking points from Liverpool's loss to Crystal Palace`\
-https://nytimes.com/athletic/6753914/2025/10/29/liverpool-crystal-palace-analysis/
-
-**The Briefing: Arsenal 2 Brighton 0 - How impressive was Max Dowman? Who staked a claim? Did rotation work?**\
-`Arsenal reached the Carabao Cup quarter-finals with victory over Brighton at the Emirates.`\
-https://nytimes.com/athletic/6753899/2025/10/29/arsenal-max-dowman-nwaneri-arteta/
 
