@@ -1,3 +1,11 @@
+**Fed Cuts Interest Rates for Second Time This Year**\
+`Fed Chair Jerome Powell announced that the Federal Reserve would cut interest rates by another quarter point on Wednesday, the second cut this year.`\
+https://nytimes.com/video/us/politics/100000010490110/fed-cuts-interest-rates-for-second-time-this-year.html
+
+**NBPA to challenge NBA's move to place Heat guard Terry Rozier on unpaid leave**\
+`Move came after player was among those arrested last week for his alleged role in a sports gambling scheme.`\
+https://nytimes.com/athletic/6761496/2025/10/29/terry-rozier-unpaid-leave-gambling-scheme/
+
 **In Fight for Control of Congress, Virginia House Takes Step Toward New Map**\
 `Republicans in Texas, North Carolina and Missouri have passed new maps while Democrats in California, Illinois and Virginia are pursuing similar efforts in response.`\
 https://nytimes.com/2025/10/29/us/virginia-congress-redistricting-midterms.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6759930/2025/10/29/bears-sign-cj-gardner-johnson/
 **Burglars in Disguise. Millions in Jewels Taken. But This Was in Queens.**\
 `Thieves dressed as construction workers stole $3.2 million in jewels and cash from a jewelry store owner’s family home, the police said.`\
 https://nytimes.com/2025/10/29/nyregion/jewel-theft-jamaica-hills-queens.html
-
-**Hundreds Killed in Massacre at Sudanese Hospital, W.H.O. Warns**\
-`The hospital had served as the last refuge for many starving or injured civilians in El Fasher, a major battleground in Darfur recently seized by the Rapid Support Forces.`\
-https://nytimes.com/2025/10/29/world/africa/massacre-sudan-saudi-hospital.html
-
-**Starbucks Reports a Modest Sales Increase in Latest Quarter**\
-`Net income fell 85 percent, however, because of charges related to store closures and corporate layoffs.`\
-https://nytimes.com/2025/10/29/business/starbucks-quarterly-earnings.html
 
