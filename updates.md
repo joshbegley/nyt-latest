@@ -1,3 +1,11 @@
+**Senate Votes to End Trump’s Brazil Tariffs**\
+`A handful of Republicans crossed party lines to side with Democrats in the first of several votes this week aimed at challenging the president’s trade war.`\
+https://nytimes.com/2025/10/28/us/politics/senate-vote-trump-brazil-tariffs.html
+
+**USWNT coach Emma Hayes reflects on attending first Monday Night Football game in Kansas City**\
+`The U.S. will play New Zealand at CPKC Stadium on Wednesday, the first time the USWNT plays at the iconic NWSL venue.`\
+https://nytimes.com/athletic/6758419/2025/10/28/uswnt-emma-hayes-monday-night-football-kansas-city/
+
 **Just Before Trump’s Visit to South Korea, North Test-Fires Missiles**\
 `The country has yet to respond to President Trump’s overtures to meet again with Kim Jong-un, its leader.`\
 https://nytimes.com/2025/10/28/world/asia/north-korea-kim-missile-trump.html
