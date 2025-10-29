@@ -1,3 +1,11 @@
+**As China and U.S. Fight Over Energy, Korea Is Stuck in the Middle**\
+`It needs the United States for defense and has spent billions building factories in America. But a Trump trade deal this week with China could erase a Korean edge in the U.S. market.`\
+https://nytimes.com/2025/10/29/climate/china-us-korea-clean-energy-tariffs.html
+
+**Melissa causó graves daños en las infraestructuras de Jamaica, dicen las autoridades**\
+`La mayor parte de la isla, de dos millones de habitantes, se quedó sin internet y los principales aeropuertos cerraron. Kingston, la capital, se salvó en su mayor parte.`\
+https://nytimes.com/live/2025/10/29/espanol/huracan-melissa/huracan-melissa-danos-damnificados-muertos
+
 **Explained: Why the Premier League can show Saturday 3pms over Christmas - but won't**\
 `The league has yet to announce its UK broadcast picks for the period, with fans unsure how many games they will be able to watch live.`\
 https://nytimes.com/athletic/6759615/2025/10/29/premier-league-boxing-day-blackout/

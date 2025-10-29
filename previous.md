@@ -1,3 +1,11 @@
+**As China and U.S. Fight Over Energy, Korea Is Stuck in the Middle**\
+`It needs the United States for defense and has spent billions building factories in America. But a Trump trade deal this week with China could erase a Korean edge in the U.S. market.`\
+https://nytimes.com/2025/10/29/climate/china-us-korea-clean-energy-tariffs.html
+
+**Melissa causó graves daños en las infraestructuras de Jamaica, dicen las autoridades**\
+`La mayor parte de la isla, de dos millones de habitantes, se quedó sin internet y los principales aeropuertos cerraron. Kingston, la capital, se salvó en su mayor parte.`\
+https://nytimes.com/live/2025/10/29/espanol/huracan-melissa/huracan-melissa-danos-damnificados-muertos
+
 **Explained: Why the Premier League can show Saturday 3pms over Christmas - but won't**\
 `The league has yet to announce its UK broadcast picks for the period, with fans unsure how many games they will be able to watch live.`\
 https://nytimes.com/athletic/6759615/2025/10/29/premier-league-boxing-day-blackout/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6759266/2025/10/29/clippers-warriors-result-offense
 **Bears adding C.J. Gardner-Johnson to injury-depleted secondary: Source**\
 `Gardner-Johnson played three seasons under Dennis Allen in New Orleans from 2019-2021 and also overlapped with Ben Johnson in Detroit.`\
 https://nytimes.com/athletic/6759930/2025/10/29/bears-sign-cj-gardner-johnson/
-
-**Obamacare Prices Become Public, Highlighting Big Increases**\
-`The government website now shows consumers how much their health insurance costs will increase next year, as Congress remains at an impasse over the plans’ subsidies.`\
-https://nytimes.com/2025/10/29/health/obamacare-prices-health-insurance.html
-
-**En vivo: El huracán Melissa llega a Cuba tras su paso destructivo por Jamaica**\
-`El ciclón causó daños generalizados a las infraestructuras jamaiquinas y cortó el acceso a internet a la mayoría de la población. Cuba evacuó a unas 750.000 personas antes de su llegada.`\
-https://nytimes.com/live/2025/10/29/espanol/huracan-melissa
 
