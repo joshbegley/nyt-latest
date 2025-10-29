@@ -1,3 +1,7 @@
+**A Work of Genius or a Complete Mess? Even Its Author Can’t Decide.**\
+`Helen DeWitt’s bewildering co-written novel, “Your Name Here,” took almost 20 years to publish, a process that nearly drove her to despair.`\
+https://nytimes.com/2025/10/29/books/helen-dewitt-your-name-here.html
+
 **Boeing Reports Bigger Quarterly Loss but Sales Improved**\
 `The aerospace company was hurt by the delay of a new plane but made progress on increasing production of the 737 Max, its most popular aircraft.`\
 https://nytimes.com/2025/10/29/business/boeing-earnings-third-quarter.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/29/style/friend-bad-listener.html
 **Vinicius Jr apologises to Madrid fans, team-mates for outburst; Alonso left out**\
 `The winger reacted strongly to his substitution on Sunday, saying "I'm leaving the team, it's better if I leave, I'm leaving".`\
 https://nytimes.com/athletic/6759755/2025/10/29/vinicius-jr-real-madrid-apology-alonso/
-
-**College Football Playoff bubble watch: How many teams could the ACC get in?**\
-`Miami, Georgia Tech and Louisville all have paths to an at-large bid, while Virginia is undefeated in ACC play.`\
-https://nytimes.com/athletic/6759644/2025/10/29/college-football-playoff-bubble-georgia-tech-miami-louisville/
 
