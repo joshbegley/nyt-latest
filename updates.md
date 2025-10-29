@@ -1,3 +1,19 @@
+**Mammoth sign Logan Cooley to 8-year, $80 million extension**\
+`The contract has a $10 million AAV and does not carry any bonuses. Cooley has 121 points in 168 career games.`\
+https://nytimes.com/athletic/6759998/2025/10/29/mammoth-utah-logan-cooley-extension/
+
+**El huracán Melissa azota el este de Cuba durante la noche**\
+`Más de 735.000 personas habían sido evacuadas ante la llegada del ciclón categoría 3 el miércoles, dijeron las autoridades.`\
+https://nytimes.com/2025/10/29/espanol/tiempo-y-clima/huracan-melissa-cuba.html
+
+**Feted as a Peacemaker in South Korea, Trump Finds Purpose for Overtures to Kim Jong-un**\
+`President Trump lamented not being able to speak with Mr. Kim, the North Korean leader, but vowed to end the decades of hostilities between the two Koreas.`\
+https://nytimes.com/2025/10/29/world/asia/trump-south-north-korea-kim.html
+
+**The Bounce: Giannis makes a New York statement. Plus, the Concern-O-Meter debuts**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6760007/2025/10/29/giannis-nba-concerns-the-bounce/
+
 **As China and U.S. Fight Over Energy, Korea Is Stuck in the Middle**\
 `It needs the United States for defense and has spent billions building factories in America. But a Trump trade deal this week with China could erase a Korean edge in the U.S. market.`\
 https://nytimes.com/2025/10/29/climate/china-us-korea-clean-energy-tariffs.html
