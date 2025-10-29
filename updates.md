@@ -1,3 +1,11 @@
+**Investigating the Secret History of a ‘Lawless’ War**\
+`Over the course of four years, a Pulitzer Prize-winning journalist spoke with dozens of elite military personnel about misconduct in Afghanistan by their peers.`\
+https://nytimes.com/2025/10/29/insider/investigating-the-secret-history-of-a-lawless-war.html
+
+**MLS 2025 salaries: Messi remains top; Highest, lowest spenders revealed**\
+`The MLSPA has revealed its latest salary figures – and there's a reason why Thomas Müller and Rodrigo De Paul don't rank high just yet`\
+https://nytimes.com/athletic/6759980/2025/10/29/mls-salaries-2025-messi-son-muller-de-paul-team-spending/
+
 **France Adds Consent to Its Rape Law After Yearslong Fight**\
 `The new legislation was adopted after dozens of men were convicted of raping Gisèle Pelicot while she was drugged by her husband.`\
 https://nytimes.com/2025/10/29/world/europe/france-consent-rape-law.html
