@@ -1,3 +1,11 @@
+**After 10 games, 7 Winnipeg Jets takeaways and what they mean**\
+`Let's dig into what Winnipeg has been doing well, what it hasn't, how it can get better, and more.`\
+https://nytimes.com/athletic/6757555/2025/10/29/winnipeg-jets-after-10-games/
+
+**Daniel Radcliffe Will Return to Broadway in ‘Every Brilliant Thing’**\
+`The “Harry Potter” alumnus, who won a Tony Award last year, will star in a solo play that involves something unexpected: audience participation.`\
+https://nytimes.com/2025/10/29/theater/daniel-radcliffe-broadway.html
+
 **Trump Has Likened Himself to a King. South Korea Gave Him a Crown.**\
 `President Trump received a replica of a golden crown excavated from an ancient royal tomb in Gyeongju. He called it “very special.”`\
 https://nytimes.com/2025/10/29/world/asia/trump-south-korea-crown-gyeongju.html
