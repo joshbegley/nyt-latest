@@ -1,3 +1,7 @@
+**The Briefing: Arsenal 2 Brighton 0 - How impressive was Max Dowman? Who staked a claim? Did rotation work?**\
+`Arsenal reached the Carabao Cup quarter-finals with victory over Brighton at the Emirates.`\
+https://nytimes.com/athletic/6753899/2025/10/29/arsenal-max-dowman-nwaneri-arteta/
+
 **Bjorn Andresen, Reluctant ‘Most Beautiful Boy,’ Dies at 70**\
 `At 15, he played the muse to an ailing composer in Luchino Visconti’s film “Death in Venice.” He later said he’d felt sexualized by the director.`\
 https://nytimes.com/2025/10/29/movies/bjorn-andresen-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/29/nyregion/mamdani-bronx.html
 **Dutch Voters Deliver Setback to Geert Wilders**\
 `A center-left party was poised to become the country’s largest political party, according to exit polls. The anti-immigrant Party for Freedom, led by Mr. Wilders, was expected to lose 12 seats.`\
 https://nytimes.com/2025/10/29/world/europe/netherlands-elections-geert-wilders.html
-
-**Covid and Flu Can Triple Your Risk of Heart Attack**\
-`A new analysis adds to the research about the link between viral infections and heart disease.`\
-https://nytimes.com/2025/10/29/well/viral-infections-covid-flu-heart-attacks.html
 
