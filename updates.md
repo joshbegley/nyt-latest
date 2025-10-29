@@ -1,3 +1,7 @@
+**NFL Week 9 survivor pool picks, strategy: Use 'em if you got 'em (LA's Version)**\
+`Adam Gretz and Renee Miller took your questions and gave their own survivor pool advice for NFL Week 9.`\
+https://nytimes.com/athletic/6760175/2025/10/29/nfl-week-9-survivor-pool-picks-strategy-chargers/
+
 **Investigating the Secret History of a ‘Lawless’ War**\
 `Over the course of four years, a Pulitzer Prize-winning journalist spoke with dozens of elite military personnel about misconduct in Afghanistan by their peers.`\
 https://nytimes.com/2025/10/29/insider/investigating-the-secret-history-of-a-lawless-war.html

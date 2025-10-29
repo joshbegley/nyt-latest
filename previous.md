@@ -1,3 +1,7 @@
+**NFL Week 9 survivor pool picks, strategy: Use 'em if you got 'em (LA's Version)**\
+`Adam Gretz and Renee Miller took your questions and gave their own survivor pool advice for NFL Week 9.`\
+https://nytimes.com/athletic/6760175/2025/10/29/nfl-week-9-survivor-pool-picks-strategy-chargers/
+
 **Investigating the Secret History of a ‘Lawless’ War**\
 `Over the course of four years, a Pulitzer Prize-winning journalist spoke with dozens of elite military personnel about misconduct in Afghanistan by their peers.`\
 https://nytimes.com/2025/10/29/insider/investigating-the-secret-history-of-a-lawless-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/10/29/business/federal-reserve-interest-rates/the-
 **Protests as Tanzania Votes, With Opposition Leaders Barred From Running**\
 `The East African country’s Party of Revolution, one of the longest-ruling parties on the continent, seeks to keep its grip on power.`\
 https://nytimes.com/2025/10/29/world/africa/tanzania-presidential-election.html
-
-**Cuomo Earned Almost $5 Million From Consulting in 2024, Returns Show**\
-`Most of Andrew Cuomo’s income came from Innovation Strategies, a company created for his consulting work before he ran for mayor of New York City. He has not disclosed his clients.`\
-https://nytimes.com/2025/10/29/nyregion/cuomo-tax-return-millionaire.html
 
