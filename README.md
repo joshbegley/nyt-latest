@@ -1,3 +1,15 @@
+**'Doing the wrong things for the right reasons': Wild need Kirill Kaprizov to adopt a 'less is more' approach**\
+`The Wild are digging a hole with a 3-5-3 start, and their soon-to-be $17 million man hasn't been able to right the ship.`\
+https://nytimes.com/athletic/6759245/2025/10/29/kirill-kaprizov-wild-early-struggles/
+
+**100 days to the 2026 Winter Olympics: Athletes to watch on the road to Milan-Cortina**\
+`As we hit the final stretch to the Winter Olympics, here's a primer of the athletes and stories to watch leading to Milan-Cortina.`\
+https://nytimes.com/athletic/6754193/2025/10/29/2026-winter-olympics-100-days-athletes-to-watch/
+
+**Champions League beer sponsor to change with three-decade Heineken agreement ending**\
+`Heineken, the world's second biggest brewer, has been synonymous with the Champions League since 1994 and has two years left on its deal.`\
+https://nytimes.com/athletic/6761156/2025/10/29/champions-league-sponsor-heineken-contract/
+
 **Vikings sign QB John Wolford to practice squad as insurance for J.J. McCarthy**\
 `Wolford joins the fold alongside young QBs McCarthy and Max Brosmer in the aftermath of Carson Wentz being placed on season-ending IR.`\
 https://nytimes.com/athletic/6760006/2025/10/29/john-wolford-vikings-sign-qb-jj-mccarthy/
@@ -26,12 +38,4 @@ https://nytimes.com/2025/10/29/us/politics/trump-china-nvidia-chips-sales.html
 **Meta Raises Its Spending Forecast on A.I. to Above $70 Billion**\
 `The Silicon Valley company projected more spending this year and said it would continue in 2026 as it hires A.I. researchers and builds data centers to power the technology.`\
 https://nytimes.com/2025/10/29/technology/meta-spending-ai.html
-
-**Alphabet Revenue Up 16% With Strong Cloud Sales**\
-`The internet company said profit for the quarter was up 33 percent, to just under $35 billion.`\
-https://nytimes.com/2025/10/29/technology/alphabet-google-earnings.html
-
-**Four Decades After It Was Stolen, a Renaissance Treasure Returns to Rome**\
-`The Italian art police still don’t know who took the brilliantly illuminated manuscript page from a Franciscan friary, and many more pages have yet to be found.`\
-https://nytimes.com/2025/10/29/world/europe/stolen-manuscript-return-rome.html
 

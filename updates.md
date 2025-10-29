@@ -1,3 +1,20 @@
+**Vikings sign QB John Wolford to practice squad as insurance for J.J. McCarthy**\
+`Wolford joins the fold alongside young QBs McCarthy and Max Brosmer in the aftermath of Carson Wentz being placed on season-ending IR.`\
+https://nytimes.com/athletic/6760006/2025/10/29/john-wolford-vikings-sign-qb-jj-mccarthy/
+
+**Florida Universities to Stop Hiring Foreign H-1B Workers Under DeSantis Plan**\
+`The governor’s announcement follows a Trump administration plan to charge institutions $100,000 to bring in workers from other countries using the visas.`\
+https://nytimes.com/2025/10/29/us/florida-universities-h-1b-workers-desantis.html
+
+**Trump Lost to China**\
+`Xi now sees our weakness and will try to exploit it, perhaps leaving America a diminished presence in Asia.`\
+https://nytimes.com/2025/10/29/opinion/china-us-trade-war-xi-trump.html
+
+**Why Zach Hyman's return from injury is delayed**\
+`The Oilers winger won’t be ready in his first opportunity to come off LTIR from a dislocated right wrist, and his status is week to week.
+`\
+https://nytimes.com/athletic/6761142/2025/10/29/zach-hyman-oilers-injury-return/
+
 **Architectural Sites to See in Mumbai**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/mumbai-architecture-buildings-guide
