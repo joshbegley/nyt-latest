@@ -1,3 +1,7 @@
+**76ers overcome 19-point deficit, improve to 4-0 with OT victory over Wizards**\
+`This is Philly's second 4-0 start since its 2001 NBA Finals run.`\
+https://nytimes.com/athletic/6758859/2025/10/28/tyrese-maxey-sixers-comeback-win-wizards/
+
 **76ers overcome 19-point deficit to improve to 4-0 with OT victory over Wizards**\
 `This is only Philly's second 4-0 start since its 2001 NBA Finals run (2019-20).`\
 https://nytimes.com/athletic/6758859/2025/10/28/tyrese-maxey-sixers-comeback-win-wizards/
