@@ -26,13 +26,13 @@ https://nytimes.com/live/2025/10/29/business/federal-reserve-interest-rates
 `How should I weigh my children’s emotional needs against my own need for healing, belonging and growth?`\
 https://nytimes.com/2025/10/29/magazine/magazine-email/kids-moving-abroad-ethics.html
 
-**L.A. Fire Victims Face a Choice: Take a Settlement or Hold Out for More**\
-`The utility whose equipment has been linked to the devastating Eaton fire in January is offering to pay fire survivors. But if they accept, they would be giving up their right to sue.`\
-https://nytimes.com/2025/10/29/us/los-angeles-eaton-fire-victims-settlement-offer.html
-
 **Life Lessons from (Very Old) Bowhead Whales**\
 `A gene that helped bowheads adapt to frigid Arctic waters also granted them extraordinary longevity. Could it help aging humans become more resilient?`\
 https://nytimes.com/2025/10/29/science/genetics-bowhead-whales-longevity.html
+
+**L.A. Fire Victims Face a Choice: Take a Settlement or Hold Out for More**\
+`The utility whose equipment has been linked to the devastating Eaton fire in January is offering to pay fire survivors. But if they accept, they would be giving up their right to sue.`\
+https://nytimes.com/2025/10/29/us/los-angeles-eaton-fire-victims-settlement-offer.html
 
 **IRS document: Terry Rozier owed $8.2 million in unpaid income tax in 2023**\
 `The IRS put a lien on Rozier's property in November 2023, months after the government alleges he aided an illegal sports betting ring.`\
