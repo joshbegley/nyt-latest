@@ -1,3 +1,7 @@
+**Quote of the Day: Democrats Hit Back in Arena of Verbal Combat**\
+`Quotation of the Day for Wednesday, October 29, 2025.`\
+https://nytimes.com/2025/10/28/pageoneplus/quote-of-the-day-democrats-hit-back-in-arena-of-verbal-combat.html
+
 **Michael Jordan explains why he believes the NBA doesn't need load management**\
 `Jordan offered his insights on load management in the NBA: He doesn’t like it. "I never wanted to miss a game."`\
 https://nytimes.com/athletic/6758983/2025/10/28/michael-jordan-nba-nbc-load-management/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6758930/2025/10/28/blue-jays-game-4-shohei-ohtani-d
 **76ers overcome 19-point deficit, improve to 4-0 with OT victory over Wizards**\
 `This is Philly's second 4-0 start since its 2001 NBA Finals run.`\
 https://nytimes.com/athletic/6758859/2025/10/28/tyrese-maxey-sixers-comeback-win-wizards/
-
-**Federal Judge Disqualifies Trump-Backed Prosecutor in Los Angeles**\
-`The court ruled that Bill Essayli had been acting “unlawfully” as U.S. attorney in Los Angeles but that he could stay on as the office’s top deputy for now.`\
-https://nytimes.com/2025/10/28/us/us-attorney-bill-essayli-los-angeles-ruling.html
 
