@@ -1,3 +1,7 @@
+**Scoop City: Meet the 26-year-old rookie quarterback**\
+`Takeaways from an interview with A.J. Brown, plus the Saints' newest starting quarterback and Mike Sando's note on the Packers. `\
+https://nytimes.com/athletic/6760789/2025/10/29/saints-tyler-shough-starting-scoop-city-nfl/
+
 **How to watch Kings vs. Bulls: Time, TV, streaming**\
 `Find out how to watch the Sacramento Kings play the Chicago Bulls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6760855/2025/10/29/kings-vs-bulls-stream-how-to-watch-oct-29/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6760843/2025/10/29/hawks-vs-nets-stream-how-to-watc
 **Portland, Ore.**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-portland-oregon
-
-**Quinnipiac Poll Shows Mamdani With 10-Point Lead in N.Y.C. Mayor’s Race**\
-`The survey, released less than a week before Election Day, found that Zohran Mamdani had lost a bit of support, Andrew Cuomo had gained none and slightly more voters were undecided.`\
-https://nytimes.com/2025/10/29/nyregion/nyc-mayor-quinnipiac-poll.html
 
