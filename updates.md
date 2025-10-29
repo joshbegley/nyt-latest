@@ -1,3 +1,19 @@
+**The Dodgers' offense hasn't gotten going, and it's running out of time**\
+`Dave Roberts hinted at lineup changes after another tepid performance by the Dodgers' star-studded lineup. `\
+https://nytimes.com/athletic/6759098/2025/10/29/dodgers-mlb-world-series-offense/
+
+**In Game 4 win, Shane Bieber shows why Blue Jays risked trading for him**\
+`Bieber spun 5 1/3 innings of one-run ball as the Blue Jays topped the Dodgers 6-2 to even the best-of-seven series at two apiece.`\
+https://nytimes.com/athletic/6759082/2025/10/29/blue-jays-shane-bieber-game-4/
+
+**Blue Jays keep pushing aside baseball’s biggest stars on quest for World Series title**\
+`All throughout October, the Blue Jays have faced monstrous threats with equally monstrous star power. Each time they've answered.`\
+https://nytimes.com/athletic/6759243/2025/10/29/blue-jays-dodgers-world-series-star-power/
+
+**Radio Free Asia Will Halt News Operations Amid Shutdown**\
+`Until this month, Radio Free Asia had successfully resisted Trump officials who had tried to render it obsolete.`\
+https://nytimes.com/2025/10/29/us/politics/radio-free-asia-close.html
+
 **South Korea Says U.S. Agreed to 15% Tariffs**\
 `Seoul will invest $200 billion, or as much as $20 billion a year, and set aside another $150 billion to invest in its American shipbuilding operations, a South Korean official said.`\
 https://nytimes.com/2025/10/29/us/politics/tariff.html

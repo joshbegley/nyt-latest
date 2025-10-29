@@ -1,3 +1,11 @@
+**Hurricane Melissa Has Arrived in Cuba**\
+`The storm hit Jamaica as one of the strongest Atlantic hurricanes ever.`\
+https://nytimes.com/2025/10/29/us/jamaica-melissa-destruction-cuba-hurricane.html
+
+**Chris Finch challenges Rudy Gobert, Jaden McDaniels as Wolves defense falters**\
+`Minnesota's defense figured to be its strength this season. But so far, the Wolves rank near the bottom of the league on that end.`\
+https://nytimes.com/athletic/6755608/2025/10/29/rudy-gobert-jaden-mcdaniels-timberwolves-defense/
+
 **The Dodgers' offense hasn't gotten going, and it's running out of time**\
 `Dave Roberts hinted at lineup changes after another tepid performance by the Dodgers' star-studded lineup. `\
 https://nytimes.com/athletic/6759098/2025/10/29/dodgers-mlb-world-series-offense/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/29/business/media/paramount-layoffs-skydance.html
 **Twins' biggest offseason needs: 3 glaring roster weaknesses requiring outside help**\
 `If the Twins have any notion of a competitive 2026, three glaring roster issues need to be addressed, likely with outside additions.`\
 https://nytimes.com/athletic/6743274/2025/10/29/twins-offseason-needs-bullpen-bats-first-base/
-
-**Mercedes Reports a Drop in Profit but Maintains Forecast**\
-`The German carmaker held its outlook steady and said it would buy back more than $2 billion in shares, as sales of its high-end models improved.`\
-https://nytimes.com/2025/10/29/world/europe/mercedes-profit-tariffs.html
-
-**Canadiens continue to collect wins, but need to show more maturity in how they get them**\
-`The Canadiens pulled out another overtime win thanks to Cole Caufield, but a young team will need to learn what it takes to close out games.`\
-https://nytimes.com/athletic/6759387/2025/10/29/montreal-canadiens-wins-maturity/
 

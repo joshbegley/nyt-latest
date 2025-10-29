@@ -1,3 +1,19 @@
+**The Dodgers' offense hasn't gotten going, and it's running out of time**\
+`Dave Roberts hinted at lineup changes after another tepid performance by the Dodgers' star-studded lineup. `\
+https://nytimes.com/athletic/6759098/2025/10/29/dodgers-mlb-world-series-offense/
+
+**In Game 4 win, Shane Bieber shows why Blue Jays risked trading for him**\
+`Bieber spun 5 1/3 innings of one-run ball as the Blue Jays topped the Dodgers 6-2 to even the best-of-seven series at two apiece.`\
+https://nytimes.com/athletic/6759082/2025/10/29/blue-jays-shane-bieber-game-4/
+
+**Blue Jays keep pushing aside baseball’s biggest stars on quest for World Series title**\
+`All throughout October, the Blue Jays have faced monstrous threats with equally monstrous star power. Each time they've answered.`\
+https://nytimes.com/athletic/6759243/2025/10/29/blue-jays-dodgers-world-series-star-power/
+
+**Radio Free Asia Will Halt News Operations Amid Shutdown**\
+`Until this month, Radio Free Asia had successfully resisted Trump officials who had tried to render it obsolete.`\
+https://nytimes.com/2025/10/29/us/politics/radio-free-asia-close.html
+
 **South Korea Says U.S. Agreed to 15% Tariffs**\
 `Seoul will invest $200 billion, or as much as $20 billion a year, and set aside another $150 billion to invest in its American shipbuilding operations, a South Korean official said.`\
 https://nytimes.com/2025/10/29/us/politics/tariff.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/29/world/europe/mercedes-profit-tariffs.html
 **Canadiens continue to collect wins, but need to show more maturity in how they get them**\
 `The Canadiens pulled out another overtime win thanks to Cole Caufield, but a young team will need to learn what it takes to close out games.`\
 https://nytimes.com/athletic/6759387/2025/10/29/montreal-canadiens-wins-maturity/
-
-**Browns could add to their 2026 draft pick total by being sellers at trade deadline**\
-`Cleveland has a handful of players it would likely part ways with for teams looking for pass-rush or running back help. `\
-https://nytimes.com/athletic/6758253/2025/10/29/browns-trade-deadline-2026-nfl-draft/
-
-**College football Week 10 streaming guide: Vandy in Austin, 'GameDay' in Utah**\
-`This weekend has entertainment value and chaos potential on its horizon. Both befit the unhinged trip that is 2025 FBS play.`\
-https://nytimes.com/athletic/6755582/2025/10/29/college-football-week-10-vanderbilt-texas-utah-how-to-watch/
-
-**Juventus set to appoint Spalletti as new head coach**\
-`The Italian would take over from Igor Tudor, who was sacked on Monday after a loss to Lazio extended their winless streak to eight.`\
-https://nytimes.com/athletic/6753980/2025/10/29/spalletti-juventus-head-coach-new/
-
-**Why the Yankees' No. 1 free-agent target should be Kyle Tucker, not Cody Bellinger**\
-`Before deciding whether to reunite with Bellinger, the Yankees should exhaust all efforts to sign Tucker. Here's why. `\
-https://nytimes.com/athletic/6757466/2025/10/29/yankees-free-agents-kyle-tucker-cody-bellinger/
 
