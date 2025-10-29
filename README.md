@@ -1,4 +1,12 @@
-**Dowman, 15, becomes Arsenal's youngest-ever starter in cup tie with Brighton**\
+**After shenanigans vs. Penguins, Trevor Zegras may be becoming a Flyers fan favorite**\
+`In training camp, coach Rick Tocchet pushed Zegras about his reputation for "doing stuff for clicks on social media."`\
+https://nytimes.com/athletic/6760636/2025/10/29/trevor-zegras-flyers-penguins/
+
+**Judge Sentences Men Who Tried to Kill Iranian Activist to 25 Years**\
+`Prosecutors said that Rafit Amirov and Polad Omarov were working for an Iranian general when they stalked Masih Alinejad in Brooklyn. She has sought women’s rights in the theocracy for years.`\
+https://nytimes.com/2025/10/29/nyregion/masih-alinejad-hitmen-sentence.html
+
+**Dowman, 15, becomes Arsenal's youngest-ever starter in cup tie vs Brighton**\
 `At 15 years and 302 days old, Dowman comfortably broke the previous record which was held by Jack Porter at 16 years 72 days.`\
 https://nytimes.com/athletic/6760675/2025/10/29/max-dowman-arsenal-youngest-starter/
 
@@ -25,12 +33,4 @@ https://nytimes.com/2025/10/29/world/europe/gaza-hamas-israel-remains.html
 **Edward J. Blakely, 87, Dies; Oversaw Katrina Recovery in New Orleans**\
 `An urban planner who specialized in disaster recovery, he was brought in to revive the city after the 2005 storm. The task proved larger than one man could handle.`\
 https://nytimes.com/2025/10/29/climate/edward-j-blakely-dead.html
-
-**Can the James Baldwin Typebot Tell Us the Meaning of Life?**\
-`In the financial district of Manhattan, an A.I.-equipped typewriter, fueled by James Baldwin’s works, types back at you with answers to your questions.`\
-https://nytimes.com/2025/10/29/arts/design/james-baldwin-ai-typewriter.html
-
-**What Can Break the Shutdown Impasse?**\
-`Significant milestones over the next few weeks could shuffle the status quo. For now, both sides remain dug in as the closure heads into a fifth week.`\
-https://nytimes.com/2025/10/29/us/politics/democrats-republicans-shutdown-impasse.html
 
