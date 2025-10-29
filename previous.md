@@ -1,3 +1,15 @@
+**Vinicius Jr apologises to Madrid fans, teammates for outburst; Alonso left out**\
+`The winger reacted strongly to his substitution on Sunday, saying "I'm leaving the team, it's better if I leave, I'm leaving".`\
+https://nytimes.com/athletic/6759755/2025/10/29/vinicius-jr-real-madrid-apology-alonso/
+
+**College Football Playoff bubble watch: How many teams could the ACC get in?**\
+`Miami, Georgia Tech and Louisville all have paths to an at-large bid, while Virginia is undefeated in ACC play.`\
+https://nytimes.com/athletic/6759644/2025/10/29/college-football-playoff-bubble-georgia-tech-miami-louisville/
+
+**Maple Leafs after 10: Is Craig Berube the right man behind the bench?**\
+`The Leafs have struggled to control play since Craig Berube took over behind the bench. It's time to start asking tough questions.`\
+https://nytimes.com/athletic/6757963/2025/10/29/maple-leafs-after-10-craig-berube/
+
 **Big Tech Faces Tough Questions Over the A.I. Spending Spree**\
 `Investors have rewarded tech giants for investing heavily in the technology. But bubble concerns are growing.`\
 https://nytimes.com/2025/10/29/business/dealbook/tech-ai-spending-spree.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6758331/2025/10/29/nebraska-blackout-usc-football-r
 **Here’s the latest.**\
 `By Dana Rubinstein`\
 https://nytimes.com/live/2025/10/29/nyregion/nyc-mayor-election-news/heres-the-latest
-
-**Live Updates: N.Y.C. Mayoral Candidates Jockey for Advantage as Early Voting Continues**\
-`Nearly 300,000 New Yorkers have already cast ballots, and they skew older, in what may be an encouraging sign for Andrew Cuomo as he labors to catch the front-runner Zohran Mamdani.`\
-https://nytimes.com/live/2025/10/29/nyregion/nyc-mayor-election-news
-
-**Money to Help Nations Cope With Climate Disasters Is Declining, U.N. Says**\
-`In 2021, rich countries vowed to spend more to help poor countries adapt to warming. That goal is unlikely to be met, a new report finds.`\
-https://nytimes.com/2025/10/29/climate/aid-poor-countries-adaptation-climate-united-nations.html
-
-**Trump Says ‘It’s Too Bad’ He Can’t Run for a Third Term**\
-`Speaking to reporters on Air Force One on the way to South Korea, President Trump said it was “too bad” that he couldn’t run again in 2028.`\
-https://nytimes.com/video/world/americas/100000010488155/trump-third-term-limit.html
 

@@ -1,3 +1,15 @@
+**Vinicius Jr apologises to Madrid fans, teammates for outburst; Alonso left out**\
+`The winger reacted strongly to his substitution on Sunday, saying "I'm leaving the team, it's better if I leave, I'm leaving".`\
+https://nytimes.com/athletic/6759755/2025/10/29/vinicius-jr-real-madrid-apology-alonso/
+
+**College Football Playoff bubble watch: How many teams could the ACC get in?**\
+`Miami, Georgia Tech and Louisville all have paths to an at-large bid, while Virginia is undefeated in ACC play.`\
+https://nytimes.com/athletic/6759644/2025/10/29/college-football-playoff-bubble-georgia-tech-miami-louisville/
+
+**Maple Leafs after 10: Is Craig Berube the right man behind the bench?**\
+`The Leafs have struggled to control play since Craig Berube took over behind the bench. It's time to start asking tough questions.`\
+https://nytimes.com/athletic/6757963/2025/10/29/maple-leafs-after-10-craig-berube/
+
 **Big Tech Faces Tough Questions Over the A.I. Spending Spree**\
 `Investors have rewarded tech giants for investing heavily in the technology. But bubble concerns are growing.`\
 https://nytimes.com/2025/10/29/business/dealbook/tech-ai-spending-spree.html

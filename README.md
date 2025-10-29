@@ -1,3 +1,23 @@
+**How might Bills use CB Maxwell Hairston against Chiefs after solid NFL debut?**\
+`The rookie saw his first game action after sustaining an injury early in training camp.`\
+https://nytimes.com/athletic/6758179/2025/10/29/bills-chiefs-rookie-cb-maxwell-hairston/
+
+**Long throws, long delays. Does something need to be done?**\
+`The return of the tactic means the ball is in play for a shorter period. Rule changes are being discused but is that the way to go?`\
+https://nytimes.com/athletic/6759581/2025/10/29/long-throw-delays-brentford/
+
+**Character.AI to Bar Children Under 18 From Using Its Chatbots**\
+`The start-up, which creates A.I. companions, faces lawsuits from families who have accused Character.AI’s chatbots of leading teenagers to kill themselves.`\
+https://nytimes.com/2025/10/29/technology/characterai-underage-users.html
+
+**Big Wellness Finds an Easy Target With Perimenopause**\
+`Will ashwagandha cure my “cortisol face”?`\
+https://nytimes.com/2025/10/29/opinion/menopause-supplements-wellness.html
+
+**My Good Friend Doesn’t Let Me Get a Word in Edgewise. Help!**\
+`A reader’s patience is wearing thin with an otherwise fun and generous friend who leaves much to be desired as a conversational partner.`\
+https://nytimes.com/2025/10/29/style/friend-bad-listener.html
+
 **Vinicius Jr apologises to Madrid fans, teammates for outburst; Alonso left out**\
 `The winger reacted strongly to his substitution on Sunday, saying "I'm leaving the team, it's better if I leave, I'm leaving".`\
 https://nytimes.com/athletic/6759755/2025/10/29/vinicius-jr-real-madrid-apology-alonso/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/10/29/business/dealbook/tech-ai-spending-spree.html
 **After 10 games, 7 Winnipeg Jets takeaways and what they mean**\
 `Let's dig into what Winnipeg has been doing well, what it hasn't, how it can get better, and more.`\
 https://nytimes.com/athletic/6757555/2025/10/29/winnipeg-jets-after-10-games/
-
-**Daniel Radcliffe Will Return to Broadway in ‘Every Brilliant Thing’**\
-`The “Harry Potter” alumnus, who won a Tony Award last year, will star in a solo play that involves something unexpected: audience participation.`\
-https://nytimes.com/2025/10/29/theater/daniel-radcliffe-broadway.html
-
-**Trump Has Likened Himself to a King. South Korea Gave Him a Crown.**\
-`President Trump received a replica of a golden crown excavated from an ancient royal tomb in Gyeongju. He called it “very special.”`\
-https://nytimes.com/2025/10/29/world/asia/trump-south-korea-crown-gyeongju.html
-
-**Lowetide: Evan Bouchard, the Oilers and a history of puck moving defencemen**\
-`Bouchard plays a cerebral game, while also looking overwhelmed when he's not at his best.`\
-https://nytimes.com/athletic/6756964/2025/10/29/evan-bouchard-edmonton-oilers-stats-history-defencemen/
-
-**For Nebraska, a Blackout and another chance versus a ranked opponent in USC**\
-`Nebraska hasn’t played a November home game of this magnitude since Michigan State visited in 2013 en route to a Big Ten championship.`\
-https://nytimes.com/athletic/6758331/2025/10/29/nebraska-blackout-usc-football-ranked-opponent/
-
-**Here’s the latest.**\
-`By Dana Rubinstein`\
-https://nytimes.com/live/2025/10/29/nyregion/nyc-mayor-election-news/heres-the-latest
 
