@@ -1,3 +1,15 @@
+**Six secondhand shopping tips**\
+`Six Wirecutter writers share their advice for shopping secondhand for clothing, home decor, and tableware.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010488522/six-secondhand-shopping-tips.html
+
+**Estas son las últimas noticias**\
+`By Emiliano Rodríguez Mega, Jovan Johnson, Camille Williams and Francesca Regalado`\
+https://nytimes.com/live/2025/10/29/espanol/huracan-melissa/estas-son-las-ultimas-noticias
+
+**Mamdani Still Hasn’t Said Whether He Supports Ballot Housing Proposals**\
+`Zohran Mamdani, the front-runner in the New York City mayor’s race, has dodged questions about his position on ballot measures that seek to address the housing crisis, a key issue.`\
+https://nytimes.com/2025/10/29/nyregion/zohran-mamdani-housing-ballot-measures.html
+
 **Clippers spent 2 years dominating Warriors. Then their offense collapsed**\
 `The Clippers will see the Warriors three more times, including the season finale. On Tuesday, LA didn't look ready for prime time at all.`\
 https://nytimes.com/athletic/6759266/2025/10/29/clippers-warriors-result-offense-struggles/

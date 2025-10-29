@@ -1,3 +1,15 @@
+**Six secondhand shopping tips**\
+`Six Wirecutter writers share their advice for shopping secondhand for clothing, home decor, and tableware.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010488522/six-secondhand-shopping-tips.html
+
+**Estas son las últimas noticias**\
+`By Emiliano Rodríguez Mega, Jovan Johnson, Camille Williams and Francesca Regalado`\
+https://nytimes.com/live/2025/10/29/espanol/huracan-melissa/estas-son-las-ultimas-noticias
+
+**Mamdani Still Hasn’t Said Whether He Supports Ballot Housing Proposals**\
+`Zohran Mamdani, the front-runner in the New York City mayor’s race, has dodged questions about his position on ballot measures that seek to address the housing crisis, a key issue.`\
+https://nytimes.com/2025/10/29/nyregion/zohran-mamdani-housing-ballot-measures.html
+
 **Clippers spent 2 years dominating Warriors. Then their offense collapsed**\
 `The Clippers will see the Warriors three more times, including the season finale. On Tuesday, LA didn't look ready for prime time at all.`\
 https://nytimes.com/athletic/6759266/2025/10/29/clippers-warriors-result-offense-struggles/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6759787/2025/10/29/pedri-barcelona-injury-news/
 **A Work of Genius or a Complete Mess? Even Its Author Can’t Decide.**\
 `Helen DeWitt’s bewildering co-written novel, “Your Name Here,” took almost 20 years to publish, a process that nearly drove her to despair.`\
 https://nytimes.com/2025/10/29/books/helen-dewitt-your-name-here.html
-
-**Boeing Reports Bigger Quarterly Loss but Sales Improved**\
-`The aerospace company was hurt by the delay of a new plane but made progress on increasing production of the 737 Max, its most popular aircraft.`\
-https://nytimes.com/2025/10/29/business/boeing-earnings-third-quarter.html
-
-**This Vibrantly Green Rice Is Also a Feast for the Eyes**\
-`Rich with kale and halloumi, this elegant rice dish is special enough for just about any occasion.`\
-https://nytimes.com/2025/10/29/magazine/kale-rice-halloumi-dish.html
-
-**Street Battles Rage in Ukrainian City After Russian Troops Enter Stronghold**\
-`Moscow’s forces infiltrated Pokrovsk after months of attacks on the city, a strategic part of Ukraine’s eastern defenses.`\
-https://nytimes.com/2025/10/29/world/europe/ukraine-russia-street-battles-pokrovsk.html
 
