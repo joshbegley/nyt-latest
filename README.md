@@ -1,3 +1,11 @@
+**Joe Flacco dealing with injured throwing shoulder, status for Sunday uncertain**\
+`Flacco appeared to injure his shoulder in Cincinnati's Week 8 loss to the New York Jets.`\
+https://nytimes.com/athletic/6760353/2025/10/29/bengals-joe-flacco-shoulder-injury/
+
+**Nobody Wants This (Product Placement)**\
+`Did a Netflix show wade too far into advertising in its second season? Many viewers found it distracting, even if some of it was organic.`\
+https://nytimes.com/2025/10/29/style/nobody-wants-this-advertising.html
+
 **The Fed may soon stop reducing its debt and mortgage bond holdings.**\
 `By Joe Rennison and Colby Smith`\
 https://nytimes.com/live/2025/10/29/business/federal-reserve-interest-rates/the-fed-may-soon-stop-reducing-its-debt-and-mortgage-bond-holdings
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/29/business/economy/fed-interest-rate-loans-mortgage
 **Live Updates: Fed to Set Rates With Shutdown Obscuring View of the Economy**\
 `The Federal Reserve is poised to cut interest rates for a second time this year, but officials are operating with limited information about how the economy is faring.`\
 https://nytimes.com/live/2025/10/29/business/federal-reserve-interest-rates
-
-**I Co-Parent My Kids. Would It Be Wrong to Move Abroad?**\
-`How should I weigh my children’s emotional needs against my own need for healing, belonging and growth?`\
-https://nytimes.com/2025/10/29/magazine/magazine-email/kids-moving-abroad-ethics.html
-
-**Life Lessons from (Very Old) Bowhead Whales**\
-`A gene that helped bowheads adapt to frigid Arctic waters also granted them extraordinary longevity. Could it help aging humans become more resilient?`\
-https://nytimes.com/2025/10/29/science/genetics-bowhead-whales-longevity.html
 
