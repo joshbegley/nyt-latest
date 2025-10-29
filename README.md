@@ -1,3 +1,7 @@
+**New York City Loves a Little Treat. Here Are Our 46 Favorites.**\
+`Cake slices, sundaes, morning buns, noodles and shakes — all $20 or under — for your immediate consumption.`\
+https://nytimes.com/2025/10/29/dining/coffee-ice-cream-candy-nyc-treats.html
+
 **We Want to Know: What Are Your Favorite Little Treats in New York City?**\
 `We shared our favorite small edible luxuries; now we want to hear about yours.`\
 https://nytimes.com/2025/10/29/dining/little-treat-reader-callout.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6760195/2025/10/29/magic-vs-pistons-stream-how-to-w
 **Aidan Hutchinson, Lions agree to 4-year, $180 million extension: Agent**\
 `Hutchinson has picked up this season right where he left off before his injury in 2024 and the Lions were ready to extend him.`\
 https://nytimes.com/athletic/6565234/2025/10/29/aidan-hutchinson-contract-extension-lions/
-
-**‘Nobody Wants This’ Is Back. So Is Jewish Debate Over Its Depictions.**\
-`Season 1 of the hit Netflix rom-com caught heat for its portrayal of Judaism, Jewish women in particular. With Season 2 now out, viewers are watching closely.`\
-https://nytimes.com/2025/10/29/arts/television/nobody-wants-this-season-2-jewish-women.html
 
