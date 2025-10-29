@@ -1,3 +1,15 @@
+**Slot defends Liverpool selection with 'only 15 players available'**\
+`Slot made 10 changes to the side who lost at Brentford on Saturday, but the defeat to Palace marked a sixth loss in seven for Liverpool.`\
+https://nytimes.com/athletic/6761471/2025/10/29/liverpool-team-crystal-palace-slot/
+
+**Bears take a chance on C.J. Gardner-Johnson to help depleted secondary**\
+`Gardner-Johnson played three seasons under Dennis Allen in New Orleans from 2019-2021 and also overlapped with Ben Johnson in Detroit.`\
+https://nytimes.com/athletic/6759930/2025/10/29/bears-sign-cj-gardner-johnson/
+
+**Shohei Ohtani could pitch again in this World Series. What role would make sense?**\
+`If Ohtani is the starting pitcher in Game 7 in Toronto, the Dodgers would not lose their designated hitter if he stopped pitching.`\
+https://nytimes.com/athletic/6761407/2025/10/29/shohei-ohtani-pitching-world-series-game-7/
+
 **Twins to hire Derek Shelton as manager, reunite with a familiar face: Source**\
 `Shelton, who becomes the 15th manager in Twins' history, served as the team's bench coach for two seasons in 2018-19.`\
 https://nytimes.com/athletic/6760977/2025/10/29/twins-derek-shelton-manager-hire/
