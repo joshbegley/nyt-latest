@@ -1,3 +1,11 @@
+**Gov. Jeff Landry says LSU AD Scott Woodward won’t choose next football coach**\
+`LSU recently fired Brian Kelly and may owe him $53 million. Landry also expressed frustration with the buyout LSU faces.`\
+https://nytimes.com/athletic/6761090/2025/10/29/lsu-football-coach-jeff-landry-scott-woodward/
+
+**Deputies Put Down 5 Escaped Monkeys They Were Wrongly Told Had Covid**\
+`Three other rhesus monkeys were still on the loose as of Wednesday after the truck carrying them rolled over on a highway in Mississippi, law enforcement officials said.`\
+https://nytimes.com/2025/10/29/us/monkeys-euthanized-mistake-tulane-mississippi.html
+
 **Bloomberg Gives $1.5 Million to Pro-Cuomo Super PAC**\
 `Michael R. Bloomberg, the former New York City mayor, had stayed out of the race since backing former Gov. Andrew M. Cuomo’s failed Democratic primary campaign.`\
 https://nytimes.com/2025/10/29/nyregion/bloomberg-cuomo-super-pac.html
@@ -29,8 +37,4 @@ https://nytimes.com/athletic/6753915/2025/10/29/newcastle-2-tottenham-0-highligh
 **U.S. Military Will Assist Disaster Relief Efforts in Jamaica**\
 `State Department officials have asked the Pentagon to join the U.S. response to Hurricane Melissa, in a test of the Trump administration’s disaster-response capabilities after major cuts to foreign aid.`\
 https://nytimes.com/2025/10/29/weather/usaid-hurricane-melissa.html
-
-**Supreme Court Asks for More Info in Trump Request to Deploy National Guard in Chicago**\
-`President Trump has ordered troops to Portland, Ore., Los Angeles, Washington and Chicago over the objections of state and local officials.`\
-https://nytimes.com/2025/10/29/us/politics/supreme-court-trump-national-guard.html
 
