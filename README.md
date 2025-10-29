@@ -1,3 +1,7 @@
+**Mammoth sign Logan Cooley to 8-year, $80 million extension**\
+`The contract has a $10 million AAV and does not carry any bonuses. Cooley has 121 points in 168 career games.`\
+https://nytimes.com/athletic/6759998/2025/10/29/mammoth-utah-logan-cooley-extension/
+
 **El huracán Melissa azota el este de Cuba durante la noche**\
 `Más de 735.000 personas habían sido evacuadas ante la llegada del ciclón categoría 3 el miércoles, dijeron las autoridades.`\
 https://nytimes.com/2025/10/29/espanol/tiempo-y-clima/huracan-melissa-cuba.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010488504/nick-offerma
 **Six secondhand shopping tips**\
 `Six Wirecutter writers share their advice for shopping secondhand for clothing, home decor, and tableware.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010488522/six-secondhand-shopping-tips.html
-
-**Estas son las últimas noticias**\
-`By Emiliano Rodríguez Mega, Jovan Johnson, Camille Williams and Francesca Regalado`\
-https://nytimes.com/live/2025/10/29/espanol/huracan-melissa/estas-son-las-ultimas-noticias
 
