@@ -1,3 +1,11 @@
+**Putin Announces Test of Tsunami-Making Nuclear Weapon**\
+`The test comes days after President Vladimir V. Putin announced the previous trial of another Russian nuclear weapon.`\
+https://nytimes.com/2025/10/29/world/europe/russia-missile-poseidon-putin-nuclear-tests.html
+
+**Tampa named host of College Football Playoff title game for 2028 season**\
+`This season’s title game will be Jan. 19 in Miami. The next two sites are Las Vegas (January 2027) and New Orleans (January 2028).`\
+https://nytimes.com/athletic/6760221/2025/10/29/college-football-playoff-national-title-game-2028-tampa/
+
 **New York City Loves a Little Treat. Here Are Our 46 Favorites.**\
 `Cake slices, sundaes, morning buns, noodles and shakes — all $20 or under — for your immediate consumption.`\
 https://nytimes.com/2025/10/29/dining/coffee-ice-cream-candy-nyc-treats.html
