@@ -1,3 +1,7 @@
+**Footage Shows Initial Aftermath of New Israeli Strikes in Gaza**\
+`Videos from the Palestinian Red Crescent Society showed people recovering bodies and rushing to a hospital in Gaza City after Israel resumed its strikes.`\
+https://nytimes.com/video/world/middleeast/100000010487494/israel-launches-new-strikes-gaza.html
+
 **Keion White trade grades: 49ers add needed depth on the edge, Patriots keep an eye on the future**\
 `White started 13 games for the Patriots in 2024.`\
 https://nytimes.com/athletic/6758704/2025/10/28/keion-white-49ers-patriots-trade-grade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6758591/2025/10/28/wnba-cba-negotiation-deadline-ex
 **J.T. Miller's Vancouver return brings flood of memories, emotions and contentment**\
 `"You can't go back and change anything," Miller said as he returned to Vancouver for the first time since being traded to the Rangers.`\
 https://nytimes.com/athletic/6758272/2025/10/28/jt-miller-rangers-canucks-return/
-
-**Administration Must Restore Some Mental Health Grants, Court Says**\
-`The funding was part of a bipartisan measure that Congress approved in response to school shootings, but the Trump administration argued that the grants violated civil rights law.`\
-https://nytimes.com/2025/10/28/us/politics/administration-must-restore-some-mental-health-grants-court-says.html
 

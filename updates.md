@@ -1,3 +1,7 @@
+**Footage Shows Initial Aftermath of New Israeli Strikes in Gaza**\
+`Videos from the Palestinian Red Crescent Society showed people recovering bodies and rushing to a hospital in Gaza City after Israel resumed its strikes.`\
+https://nytimes.com/video/world/middleeast/100000010487494/israel-launches-new-strikes-gaza.html
+
 **Keion White trade grades: 49ers add needed depth on the edge, Patriots keep an eye on the future**\
 `White started 13 games for the Patriots in 2024.`\
 https://nytimes.com/athletic/6758704/2025/10/28/keion-white-49ers-patriots-trade-grade/
