@@ -1,3 +1,11 @@
+**Explained: Why the Premier League can show Saturday 3pms over Christmas - but won't**\
+`The league has yet to announce its UK broadcast picks for the period, with fans unsure how many games they will be able to watch live.`\
+https://nytimes.com/athletic/6759615/2025/10/29/premier-league-boxing-day-blackout/
+
+**En vivo: El huracán Melissa llega a Cuba tras su paso destructivo por Jamaica**\
+`El ciclón causó daños generalizados a las infraestructuras jamaiquinas y cortó el acceso a internet a la mayoría de la población. Cuba evacuó a unas 750.000 personas antes de su llegada.`\
+https://nytimes.com/live/2025/10/29/espanol/huracan-melissa
+
 **The Windup: Blue Jays still beating the odds**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6759983/2025/10/29/world-series-game-4-the-windup/
