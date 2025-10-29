@@ -1,3 +1,7 @@
+**Bears adding C.J. Gardner-Johnson to injury-depleted secondary: Source**\
+`Gardner-Johnson played three seasons under Dennis Allen in New Orleans from 2019-2021 and also overlapped with Ben Johnson in Detroit.`\
+https://nytimes.com/athletic/6759930/2025/10/29/bears-sign-cj-gardner-johnson/
+
 **Obamacare Prices Become Public, Highlighting Big Increases**\
 `The government website now shows consumers how much their health insurance costs will increase next year, as Congress remains at an impasse over the plans’ subsidies.`\
 https://nytimes.com/2025/10/29/health/obamacare-prices-health-insurance.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/29/world/europe/ukraine-russia-street-battles-pokrov
 **How might Bills use CB Maxwell Hairston against Chiefs after solid NFL debut?**\
 `The rookie saw his first game action after sustaining an injury early in training camp.`\
 https://nytimes.com/athletic/6758179/2025/10/29/bills-chiefs-rookie-cb-maxwell-hairston/
-
-**Long throws, long delays. Does something need to be done?**\
-`The return of the tactic means the ball is in play for a shorter period. Rule changes are being discused but is that the way to go?`\
-https://nytimes.com/athletic/6759581/2025/10/29/long-throw-delays-brentford/
 

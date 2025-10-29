@@ -1,3 +1,7 @@
+**Obamacare Prices Become Public, Highlighting Big Increases**\
+`The government website now shows consumers how much their health insurance costs will increase next year, as Congress remains at an impasse over the plans’ subsidies.`\
+https://nytimes.com/2025/10/29/health/obamacare-prices-health-insurance.html
+
 **En vivo: El huracán Melissa llega Cuba tras su paso destructivo por Jamaica**\
 `La tormenta causó daños generalizados a las infraestructuras jamaiquinas y cortó el acceso a internet a la mayoría de la población. Cuba evacuó a unas 750.000 personas antes de su llegada.`\
 https://nytimes.com/live/2025/10/29/espanol/huracan-melissa
