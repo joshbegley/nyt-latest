@@ -1,3 +1,11 @@
+**What’s in Our Queue? Emmylou Harris**\
+`Text by Vivek Shankar`\
+https://nytimes.com/card/2025/10/29/arts/editors-recommendations-emmylou
+
+**En Jamaica, todos los turistas están a salvo, dice el gobierno**\
+`Veinticinco mil turistas pasaron la tormenta en la isla y todos se encuentran a salvo, según el ministro de Turismo.`\
+https://nytimes.com/2025/10/29/espanol/tiempo-y-clima/jamaica-turistas-rescate-aeropuerto-evacuacion.html
+
 **Cuomo faces criticism for canceling event at Park Slope synagogue.**\
 `By Emma G. Fitzsimmons`\
 https://nytimes.com/live/2025/10/29/nyregion/nyc-mayor-election-news/cuomo-faces-criticism-for-canceling-event-at-park-slope-synagogue
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/29/science/spider-webs-stabilimenta.html
 **When it comes to sports gambling, many things can be true at once: MoneyCall**\
 `More in this week's sports business cheat sheet: Latest on the WNBA labor standoff! NBA on TV has never been better! Lionel Messi!`\
 https://nytimes.com/athletic/6760466/2025/10/29/sports-gambling-terry-rozier-nba-moneycall/
-
-**What Can Hollywood Learn From New Media?**\
-`A new production company wants to make as many video podcasts and newsletters as films and television shows.`\
-https://nytimes.com/2025/10/29/business/media/hollywood-new-media-run-a-muck-ilene-chaiken.html
-
-**Josh Hawley’s Plea for Food Assistance**\
-`Readers respond to the senator’s Opinion guest essay about the possible cutoff of SNAP benefits.`\
-https://nytimes.com/2025/10/29/opinion/josh-hawley-food-assistance-snap.html
 
