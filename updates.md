@@ -1,3 +1,7 @@
+**When it comes to sports gambling, many things can be true at once: MoneyCall**\
+`More in this week's sports business cheat sheet: Latest on the WNBA labor standoff! NBA on TV has never been better! Lionel Messi!`\
+https://nytimes.com/athletic/6760466/2025/10/29/sports-gambling-terry-rozier-nba-moneycall/
+
 **What Can Hollywood Learn From New Media?**\
 `A new production company wants to make as many video podcasts and newsletters as films and television shows.`\
 https://nytimes.com/2025/10/29/business/media/hollywood-new-media-run-a-muck-ilene-chaiken.html

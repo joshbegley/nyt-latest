@@ -1,3 +1,7 @@
+**When it comes to sports gambling, many things can be true at once: MoneyCall**\
+`More in this week's sports business cheat sheet: Latest on the WNBA labor standoff! NBA on TV has never been better! Lionel Messi!`\
+https://nytimes.com/athletic/6760466/2025/10/29/sports-gambling-terry-rozier-nba-moneycall/
+
 **What Can Hollywood Learn From New Media?**\
 `A new production company wants to make as many video podcasts and newsletters as films and television shows.`\
 https://nytimes.com/2025/10/29/business/media/hollywood-new-media-run-a-muck-ilene-chaiken.html
@@ -33,8 +37,4 @@ https://nytimes.com/column/essential-books-authors
 **Yankees broadcasts to drop longtime analyst John Flaherty as part of latest moves**\
 `Flaherty had been on Yankee broadcasts for two decades after playing three seasons with the team.`\
 https://nytimes.com/athletic/6760379/2025/10/29/yankees-broadcasts-john-flaherty-yes/
-
-**How Japan’s New Prime Minister Bonded With Trump**\
-`Trump will meet Japan’s new prime minister, Sanae Takaichi, on Tuesday (10/28). A look at how she will approach President Trump in order to rekindle the close relationship he had with her mentor, former Prime Minister Shinzo Abe.`\
-https://nytimes.com/video/world/asia/100000010485242/how-japans-new-prime-minister-bonded-with-trump.html
 
