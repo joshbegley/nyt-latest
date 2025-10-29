@@ -1,3 +1,11 @@
+**gws-ventfort-hall-gilded-age-berkshires**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/ventfort-hall-gilded-age-berkshires
+
+**Hurricane Melissa Brought ‘Unprecedented Devastation’ to Jamaica, U.N. Official says**\
+`Roads, infrastructure and the electricity grid were battered, and over one million people, a third of the population, were directly affected by the storm the official said.`\
+https://nytimes.com/2025/10/29/world/americas/jamaica-hurricane-melissa-un.html
+
 **F.D.A. Moves to Speed Approvals for Cheaper Copycat Drugs**\
 `The agency announced moves to cut regulatory obstacles for the makers of biosimilar drugs, which are akin to generics and may help lower drug costs.`\
 https://nytimes.com/2025/10/29/health/fda-drug-prices-biosimilars.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/29/us/politics/fbi-gabbard-counterintelligence.html
 **Ranking the Giants' offseason needs: From rotation help to infield reinforcements**\
 `The Giants have several areas of need, but some are more pressing than others, with pitching being the biggest priority, `\
 https://nytimes.com/athletic/6727197/2025/10/29/sf-giants-offseason-needs-2025-2026/
-
-**Georgia sheriff committed to recovering Shaq's stolen SUV: 'We have search warrants'**\
-`Investigators are working to find a custom Range Rover built for Shaquille O'Neal, which went missing this month in Georgia.`\
-https://nytimes.com/athletic/6760404/2025/10/29/shaquille-oneal-range-rover-stolen/
-
-**Tiny Love Stories: ‘We Are a Comedy of Errors’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/10/29/style/tiny-modern-love-stories-we-are-a-comedy-of-errors.html
 

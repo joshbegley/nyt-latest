@@ -1,3 +1,11 @@
+**gws-ventfort-hall-gilded-age-berkshires**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/ventfort-hall-gilded-age-berkshires
+
+**Hurricane Melissa Brought ‘Unprecedented Devastation’ to Jamaica, U.N. Official says**\
+`Roads, infrastructure and the electricity grid were battered, and over one million people, a third of the population, were directly affected by the storm the official said.`\
+https://nytimes.com/2025/10/29/world/americas/jamaica-hurricane-melissa-un.html
+
 **F.D.A. Moves to Speed Approvals for Cheaper Copycat Drugs**\
 `The agency announced moves to cut regulatory obstacles for the makers of biosimilar drugs, which are akin to generics and may help lower drug costs.`\
 https://nytimes.com/2025/10/29/health/fda-drug-prices-biosimilars.html
