@@ -1,3 +1,15 @@
+**gws-goonies-astoria-oregon**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/goonies-astoria-oregon
+
+**A Spooky Season of Phantoms, a Bat Boy and More**\
+`From Broadway to the small screen, these unnerving theater productions are not just about horror and frights.`\
+https://nytimes.com/2025/10/29/theater/bat-boy-phantom-of-opera.html
+
+**NFL Week 9 confidence picks: Put your points on the Rams, Packers and Chargers**\
+`After a 10-3 Week 8, KC Joyner gives his confidence picks for NFL Week 9.`\
+https://nytimes.com/athletic/6759456/2025/10/29/nfl-week-9-confidence-picks-rams-packers-chargers/
+
 **gws-eleni-petaloti-leonidas-trampoukis-brooklyn-home**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/eleni-petaloti-leonidas-trampoukis-brooklyn-home
