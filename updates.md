@@ -1,3 +1,7 @@
+**Protests as Tanzania Votes, With Opposition Leaders Barred From Running**\
+`The East African country’s Party of Revolution, one of the longest-ruling parties on the continent, seeks to keep its grip on power.`\
+https://nytimes.com/2025/10/29/world/africa/tanzania-presidential-election.html
+
 **Cuomo Earned Almost $5 Million From Consulting in 2024, Returns Show**\
 `Most of Andrew Cuomo’s income came from Innovation Strategies, a company created for his consulting work before he ran for mayor of New York City. He has not disclosed his clients.`\
 https://nytimes.com/2025/10/29/nyregion/cuomo-tax-return-millionaire.html
