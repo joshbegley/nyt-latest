@@ -26,7 +26,7 @@ https://nytimes.com/2025/10/29/health/obamacare-prices-health-insurance.html
 `La tormenta causó daños generalizados a las infraestructuras jamaiquinas y cortó el acceso a internet a la mayoría de la población. Cuba evacuó a unas 750.000 personas antes de su llegada.`\
 https://nytimes.com/live/2025/10/29/espanol/huracan-melissa
 
-**In final campaign ad, Cuomo seeks to cast himself as a unifier.**\
+**After ominous warnings about Mamdani, Cuomo seeks to cast himself as a unifier.**\
 `By Matthew Haag`\
 https://nytimes.com/live/2025/10/29/nyregion/nyc-mayor-election-news/in-final-campaign-ad-cuomo-seeks-to-cast-himself-as-a-unifier
 

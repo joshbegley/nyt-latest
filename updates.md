@@ -1,3 +1,7 @@
+**After ominous warnings about Mamdani, Cuomo seeks to cast himself as a unifier.**\
+`By Matthew Haag`\
+https://nytimes.com/live/2025/10/29/nyregion/nyc-mayor-election-news/in-final-campaign-ad-cuomo-seeks-to-cast-himself-as-a-unifier
+
 **Six secondhand shopping tips**\
 `Six Wirecutter writers share their advice for shopping secondhand for clothing, home decor, and tableware.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010488522/six-secondhand-shopping-tips.html
