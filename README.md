@@ -1,3 +1,7 @@
+**How to watch Blue Jays at Dodgers: World Series Game 5 Time, TV, streaming**\
+`Find out how to watch the Toronto Blue Jays play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6759200/2025/10/29/blue-jays-vs-dodgers-stream-how-to-watch-oct-29/
+
 **Ahead of Trump-Xi Meeting, China Doubles Down on Tech Ambitions**\
 `China’s leader signaled in its next five-year plan that he is committed to competing in manufacturing and technology despite tensions with Washington.`\
 https://nytimes.com/2025/10/29/world/asia/trump-xi-china-industrial-plan.html
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/6757072/2025/10/29/newcastle-united-sports-teams/
 `How do clubs change the conditions in away changing rooms to put off the opposition? And does it work?`\
 https://nytimes.com/athletic/6756809/2025/10/29/away-changing-rooms-pink-paint-showers-toilets/
 
-**'Hatty' time! Blackhawks' Connor Bedard nets his first NHL hat trick**\
-`It's hard to believe it took this long, but the young Chicago star finally scored three times in a game Tuesday vs the Senators.`\
+**Connor Bedard nets first NHL hat trick as Blackhawks beat Senators**\
+`It's hard to believe it took this long, but the young Chicago star finally scored three times in a game Tuesday against the Senators.`\
 https://nytimes.com/athletic/6758829/2025/10/29/blackhawks-connor-bedard-hat-trick/
-
-**Guehi is the missed transfer that could haunt Liverpool**\
-`Failing to sign the Crystal Palace defender in the summer now looks like a costly blow `\
-https://nytimes.com/athletic/6756194/2025/10/29/marc-guehi-liverpool-transfer-failed/
 
