@@ -1,3 +1,11 @@
+**F.D.A. Moves to Speed Approvals for Cheaper Copycat Drugs**\
+`The agency announced moves to cut regulatory obstacles for the makers of biosimilar drugs, which are akin to generics and may help lower drug costs.`\
+https://nytimes.com/2025/10/29/health/fda-drug-prices-biosimilars.html
+
+**Development Project in Mamdani’s Assembly District Is Moving Forward**\
+`The city’s push to rezone parts of Long Island City in Queens to allow for more housing cleared a key hurdle in the City Council.`\
+https://nytimes.com/2025/10/29/nyregion/long-island-city-rezoning-queens.html
+
 **Nvidia Is Now Worth $5 Trillion as It Consolidates Power in A.I. Boom**\
 `The A.I. chip maker has become a linchpin in the Trump administration’s trade negotiations in Asia.`\
 https://nytimes.com/2025/10/29/technology/nvidia-value-market-ai.html
