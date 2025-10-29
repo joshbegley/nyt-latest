@@ -1,3 +1,23 @@
+**New York City Loves a Little Treat. Here Are Our 46 Favorites.**\
+`Cake slices, sundaes, morning buns, noodles and shakes — all $20 or under — for your immediate consumption.`\
+https://nytimes.com/2025/10/29/dining/coffee-ice-cream-candy-nyc-treats.html
+
+**We Want to Know: What Are Your Favorite Little Treats in New York City?**\
+`We shared our favorite small edible luxuries; now we want to hear about yours.`\
+https://nytimes.com/2025/10/29/dining/little-treat-reader-callout.html
+
+**Real Madrid seeking 'damages' from UEFA over Super League**\
+`A Madrid court on Wednesday dismissed appeals lodged by UEFA, the Spanish FA and La Liga over the Super League.`\
+https://nytimes.com/athletic/6759949/2025/10/29/real-madrid-court-uefa-super-league/
+
+**Cuomo Blasts Mamdani for His Rent-Stabilized Unit. But He Had One, Too.**\
+`Former Gov. Andrew M. Cuomo lived in what he once described as “a dump, just one long hallway.”`\
+https://nytimes.com/2025/10/29/nyregion/cuomo-rent-stabilized-apartment.html
+
+**Aidan Hutchinson, Lions agree to 4-year, $180 million extension: Agent**\
+`Hutchinson has picked up this season right where he left off before his injury in 2024 and the Lions were ready to extend him.`\
+https://nytimes.com/athletic/6565234/2025/10/29/aidan-hutchinson-contract-extension-lions/
+
 **‘What Truce Is This?’: Gazans Reel After Israeli Strikes Kill Dozens**\
 `Israel launched deadly attacks on Gaza after accusing Hamas of violating the cease-fire, which Hamas denied. Local health officials in Gaza reported the strikes killed at least 100 people, including 35 children.`\
 https://nytimes.com/video/world/middleeast/100000010488253/gaza-israeli-strikes-deadly-ceasefire.html
