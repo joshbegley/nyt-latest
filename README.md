@@ -1,3 +1,15 @@
+**El huracán Melissa azota el este de Cuba durante la noche**\
+`Más de 735.000 personas habían sido evacuadas ante la llegada del ciclón categoría 3 el miércoles, dijeron las autoridades.`\
+https://nytimes.com/2025/10/29/espanol/tiempo-y-clima/huracan-melissa-cuba.html
+
+**Feted as a Peacemaker in South Korea, Trump Finds Purpose for Overtures to Kim Jong-un**\
+`President Trump lamented not being able to speak with Mr. Kim, the North Korean leader, but vowed to end the decades of hostilities between the two Koreas.`\
+https://nytimes.com/2025/10/29/world/asia/trump-south-north-korea-kim.html
+
+**The Bounce: Giannis makes a New York statement. Plus, the Concern-O-Meter debuts**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6760007/2025/10/29/giannis-nba-concerns-the-bounce/
+
 **As China and U.S. Fight Over Energy, Korea Is Stuck in the Middle**\
 `It needs the United States for defense and has spent billions building factories in America. But a Trump trade deal this week with China could erase a Korean edge in the U.S. market.`\
 https://nytimes.com/2025/10/29/climate/china-us-korea-clean-energy-tariffs.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010488522/six-secondha
 **Estas son las últimas noticias**\
 `By Emiliano Rodríguez Mega, Jovan Johnson, Camille Williams and Francesca Regalado`\
 https://nytimes.com/live/2025/10/29/espanol/huracan-melissa/estas-son-las-ultimas-noticias
-
-**Mamdani Still Hasn’t Said Whether He Supports Ballot Housing Proposals**\
-`Zohran Mamdani, the front-runner in the New York City mayor’s race, has dodged questions about his position on ballot measures that seek to address the housing crisis, a key issue.`\
-https://nytimes.com/2025/10/29/nyregion/zohran-mamdani-housing-ballot-measures.html
-
-**Clippers spent 2 years dominating Warriors. Then their offense collapsed**\
-`The Clippers will see the Warriors three more times, including the season finale. On Tuesday, LA didn't look ready for prime time at all.`\
-https://nytimes.com/athletic/6759266/2025/10/29/clippers-warriors-result-offense-struggles/
-
-**Bears adding C.J. Gardner-Johnson to injury-depleted secondary: Source**\
-`Gardner-Johnson played three seasons under Dennis Allen in New Orleans from 2019-2021 and also overlapped with Ben Johnson in Detroit.`\
-https://nytimes.com/athletic/6759930/2025/10/29/bears-sign-cj-gardner-johnson/
 
