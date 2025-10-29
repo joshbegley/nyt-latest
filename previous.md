@@ -1,3 +1,11 @@
+**Hurricane Melissa Makes Landfall in Cuba**\
+`Hurricane Melissa made landfall in Cuba early Wednesday, after leaving a path of destruction across Jamaica.`\
+https://nytimes.com/video/world/americas/100000010487755/hurricane-melissa-jamaica-damage-deaths.html
+
+**How Trumpism Has Affected Israeli Politics**\
+`Amit Segal, a prominent Israeli right-wing commentator, traces the evolution of Israeli politics since Trump’s political rise.`\
+https://nytimes.com/video/opinion/100000010475360/how-trumpism-has-affected-israeli-politics.html
+
 **Xabi Alonso’s Real Madrid revolution has caused an early rift with big stars**\
 `Real Madrid have made a great start to the season, but problems in the dressing room have surfaced`\
 https://nytimes.com/athletic/6757096/2025/10/29/real-madrid-xabi-alonso-clasico-rift-big-stars/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/29/nyregion/andrew-cuomo-podcast-radio.html
 **Wrexham's night of pain will sting for a very long time**\
 `Phil Parkinson's side lost a winnable game, local pride, and the chance of a big cup draw in Tuesday's defeat to Cardiff `\
 https://nytimes.com/athletic/6753948/2025/10/29/wrexham-cardiff-carabao-cup-result-analysis/
-
-**Stephen Colbert Spots Something in Trump’s ‘Perfect’ M.R.I. Scan**\
-`“Wait a second, what’s that in his stomach? It’s the Epstein files!” the “Late Show” host said.`\
-https://nytimes.com/2025/10/29/arts/television/stephen-colbert-trump-mri.html
-
-**How to watch Seahawks vs. Commanders: Time, TV, streaming**\
-`Find out how to watch the Seattle Seahawks play the Washington Commanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6759217/2025/10/29/seahawks-vs-commanders-stream-how-to-watch-nov-2/
 

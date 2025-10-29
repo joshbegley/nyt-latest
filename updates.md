@@ -1,3 +1,11 @@
+**Hurricane Melissa Makes Landfall in Cuba**\
+`Hurricane Melissa made landfall in Cuba early Wednesday, after leaving a path of destruction across Jamaica.`\
+https://nytimes.com/video/world/americas/100000010487755/hurricane-melissa-jamaica-damage-deaths.html
+
+**How Trumpism Has Affected Israeli Politics**\
+`Amit Segal, a prominent Israeli right-wing commentator, traces the evolution of Israeli politics since Trump’s political rise.`\
+https://nytimes.com/video/opinion/100000010475360/how-trumpism-has-affected-israeli-politics.html
+
 **Xabi Alonso’s Real Madrid revolution has caused an early rift with big stars**\
 `Real Madrid have made a great start to the season, but problems in the dressing room have surfaced`\
 https://nytimes.com/athletic/6757096/2025/10/29/real-madrid-xabi-alonso-clasico-rift-big-stars/
