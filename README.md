@@ -1,3 +1,7 @@
+**Commanders rule out Terry McLaurin vs. Seahawks with quad re-injury**\
+`Coach Dan Quinn said the hope is McLaurin isn’t out long-term, but the team will reassess his health next week.`\
+https://nytimes.com/athletic/6760898/2025/10/29/terry-mclaurin-out-injury-quad-commanders-seahawks/
+
 **‘Auction’ Review: The Art World’s Gilded Hustle**\
 `This shrewd and diverting French drama takes as its inspiration the rediscovery of a long-lost Egon Schiele masterwork.`\
 https://nytimes.com/2025/10/29/movies/auction-review-pascal-bonitzer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/29/world/europe/louvre-theft-suspects-confession.htm
 **Eagles trade WR John Metchie III to Jets for CB Michael Carter II: Source**\
 `The two teams also swapped late round picks to complete the deal. `\
 https://nytimes.com/athletic/6760966/2025/10/29/eagles-jets-trade-john-metchie-michael-carter-ii/
-
-**How Did Hurricane Melissa Become So Strong?**\
-`Hurricane Melissa was bigger than the historic hurricanes Katrina, Maria and Milton. Judson Jones and Nazaneen Ghaffar, reporters on our weather team, discuss the storm and how it got so huge.`\
-https://nytimes.com/video/weather/100000010486477/how-did-hurricane-melissa-become-so-strong.html
 
