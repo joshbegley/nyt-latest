@@ -27,7 +27,7 @@ https://nytimes.com/2025/10/29/briefing/obamacare-prices-hurricane-melissa-damag
 https://nytimes.com/2025/10/29/t-magazine/how-to-shave-properly.html
 
 **Nigerian Nobel Laureate Says the U.S. Revoked His Visa**\
-`Author Wole Soyinka, a vocal critic of President Trump, told the Nigerian press he did not attend a visa renewal interview requested by the State Department.`\
+`The author Wole Soyinka, a vocal critic of President Trump, told the Nigerian press he did not attend a visa renewal interview requested by the State Department.`\
 https://nytimes.com/2025/10/29/books/wole-soyinka-visa-revoked.html
 
 **The Briefing: Wolves 3 Chelsea 4 - Gittens stars despite late scare and how much longer can Pereira go on?**\
