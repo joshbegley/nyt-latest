@@ -1,3 +1,7 @@
+**Sliwa brushes off defections by fellow Republicans.**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/10/29/nyregion/nyc-mayor-election-news/sliwa-brushes-off-defections-by-fellow-republicans
+
 **gws-ventfort-hall-gilded-age-berkshires**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/ventfort-hall-gilded-age-berkshires

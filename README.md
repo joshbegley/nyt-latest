@@ -1,3 +1,7 @@
+**‘Auction’ Review: The Art World’s Gilded Hustle**\
+`This shrewd and diverting French drama takes as its inspiration the rediscovery of a long-lost Egon Schiele masterwork.`\
+https://nytimes.com/2025/10/29/movies/auction-review-pascal-bonitzer.html
+
 **Sliwa brushes off defections by fellow Republicans.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/10/29/nyregion/nyc-mayor-election-news/sliwa-brushes-off-defections-by-fellow-republicans
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6760966/2025/10/29/eagles-jets-trade-john-metchie-m
 **How Did Hurricane Melissa Become So Strong?**\
 `Hurricane Melissa was bigger than the historic hurricanes Katrina, Maria and Milton. Judson Jones and Nazaneen Ghaffar, reporters on our weather team, discuss the storm and how it got so huge.`\
 https://nytimes.com/video/weather/100000010486477/how-did-hurricane-melissa-become-so-strong.html
-
-**F.B.I. Opposes Push for Gabbard to Take Lead on Counterintelligence**\
-`The F.B.I. made the disclosure in a pointed letter that underscored broader concern over a House bill that would give more authority to Tulsi Gabbard, the director of national intelligence.`\
-https://nytimes.com/2025/10/29/us/politics/fbi-gabbard-counterintelligence.html
 

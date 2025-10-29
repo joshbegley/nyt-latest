@@ -1,3 +1,7 @@
+**Sliwa brushes off defections by fellow Republicans.**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/10/29/nyregion/nyc-mayor-election-news/sliwa-brushes-off-defections-by-fellow-republicans
+
 **gws-ventfort-hall-gilded-age-berkshires**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/ventfort-hall-gilded-age-berkshires
@@ -33,8 +37,4 @@ https://nytimes.com/video/weather/100000010486477/how-did-hurricane-melissa-beco
 **F.B.I. Opposes Push for Gabbard to Take Lead on Counterintelligence**\
 `The F.B.I. made the disclosure in a pointed letter that underscored broader concern over a House bill that would give more authority to Tulsi Gabbard, the director of national intelligence.`\
 https://nytimes.com/2025/10/29/us/politics/fbi-gabbard-counterintelligence.html
-
-**Ranking the Giants' offseason needs: From rotation help to infield reinforcements**\
-`The Giants have several areas of need, but some are more pressing than others, with pitching being the biggest priority, `\
-https://nytimes.com/athletic/6727197/2025/10/29/sf-giants-offseason-needs-2025-2026/
 
