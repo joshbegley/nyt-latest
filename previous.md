@@ -1,3 +1,27 @@
+**Sam Kerr is back leading Australia - but it hasn't been easy**\
+`The country's record goalscorer has endured a turbulent period on and off the field but is now looking to the future`\
+https://nytimes.com/athletic/6758397/2025/10/29/sam-kerr-australia-captain-england/
+
+**A Roll of the Dice**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2025/10/29/learning/a-roll-of-the-dice.html
+
+**In Third Run for Governor, Ciattarelli Mixes MAGA Into His Agenda**\
+`Jack Ciattarelli, the Republican nominee for governor of New Jersey, is betting that Trump supporters will turn out and support him, even without Mr. Trump atop the ticket.`\
+https://nytimes.com/2025/10/29/nyregion/jack-ciattarelli-republican-governor-new-jersey.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/29/crosswords/spelling-bee-forum.html
+
+**A Fan of ‘Ruthless Competence,’ She Wants to Be Governor of New Jersey**\
+`Representative Mikie Sherrill’s campaign represents a Rorschach test for the Democratic Party as she runs in Tuesday’s election against a Trump-endorsed Republican, Jack Ciattarelli.`\
+https://nytimes.com/2025/10/29/nyregion/mikie-sherrill-new-jersey-governor.html
+
+**How Andrew Cuomo’s Dreams of Becoming a Radio Star Fell Apart**\
+`After he resigned as governor, Mr. Cuomo looked to restore his name while taking on a new lucrative career as a podcast host. Things did not go according to plan.`\
+https://nytimes.com/2025/10/29/nyregion/andrew-cuomo-podcast-radio.html
+
 **Wrexham's night of pain will sting for a very long time**\
 `Phil Parkinson's side lost a winnable game, local pride and the chance of a big cup draw in Tuesday's defeat to Cardiff `\
 https://nytimes.com/athletic/6753948/2025/10/29/wrexham-cardiff-carabao-cup-result-analysis/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6759217/2025/10/29/seahawks-vs-commanders-stream-ho
 **How to watch Blue Jays at Dodgers: World Series Game 5 Time, TV, streaming**\
 `Find out how to watch the Toronto Blue Jays play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6759200/2025/10/29/blue-jays-vs-dodgers-stream-how-to-watch-oct-29/
-
-**Ahead of Trump-Xi Meeting, China Doubles Down on Tech Ambitions**\
-`China’s leader signaled in its next five-year plan that he is committed to competing in manufacturing and technology despite tensions with Washington.`\
-https://nytimes.com/2025/10/29/world/asia/trump-xi-china-industrial-plan.html
-
-**Word of the Day: prolix**\
-`This word has appeared in one article on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/10/29/learning/word-of-the-day-prolix.html
-
-**'This is my city': Giannis Antetokounmpo makes a statement on floor and after beating Knicks**\
-`"I love when it's tough; I thrive when it's tough," Antetokounmpo yelled to a lively Fiserv Forum crowd. "When you make it tough, I thrive."`\
-https://nytimes.com/athletic/6758946/2025/10/29/giannis-antetokounmpo-bucks-knicks-nba/
-
-**Cuba’s President Warns of ‘Very Difficult Night’ as Melissa Nears**\
-`More than 735,000 people had evacuated ahead of the storm’s expected arrival on Wednesday, officials said.`\
-https://nytimes.com/2025/10/29/weather/hurricane-melissa-cuba-president.html
-
-**Kevin Danso: How Tottenham's 'Magnet Head' is effortlessly filling the Romero void**\
-`When Romero suffered an injury last season, Tottenham’s back line were plunged into chaos. This time around, Kevin Danso is plugging the gap`\
-https://nytimes.com/athletic/6756412/2025/10/29/kevin-danso-tottenham-romero/
-
-**Everton have £70m of new talent sitting on the bench - but need to be patient**\
-`Hurrying Thierno Barry, Tyler Dibling and Adam Aznou would be counterproductive as they need time to develop their considerable potential`\
-https://nytimes.com/athletic/6756513/2025/10/29/everton-summer-signings-bench-patience/
 
