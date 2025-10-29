@@ -1,40 +1,40 @@
-**Putin Announces Test of Tsunami-Making Nuclear Weapon**\
-`The test comes days after President Vladimir V. Putin announced the previous trial of another Russian nuclear weapon.`\
-https://nytimes.com/2025/10/29/world/europe/russia-missile-poseidon-putin-nuclear-tests.html
+**Cuomo Earned Almost $5 Million From Consulting in 2024, Returns Show**\
+`Most of Andrew Cuomo’s income came from Innovation Strategies, a company created for his consulting work before he ran for mayor of New York City. He has not disclosed his clients.`\
+https://nytimes.com/2025/10/29/nyregion/cuomo-tax-return-millionaire.html
 
-**Tampa named host of College Football Playoff title game for 2028 season**\
-`This season’s title game will be Jan. 19 in Miami. The next two sites are Las Vegas (January 2027) and New Orleans (January 2028).`\
-https://nytimes.com/athletic/6760221/2025/10/29/college-football-playoff-national-title-game-2028-tampa/
+**Three of the Best Bodega Meals in N.Y.C.**\
+`New York Times’s Food contributor Luke Fortney shows us some of his favorite bodega spots in N.Y.C.`\
+https://nytimes.com/video/dining/100000010486964/three-of-the-best-bodega-meals-in-nyc.html
 
-**New York City Loves a Little Treat. Here Are Our 46 Favorites.**\
-`Cake slices, sundaes, morning buns, noodles and shakes — all $20 or under — for your immediate consumption.`\
-https://nytimes.com/2025/10/29/dining/coffee-ice-cream-candy-nyc-treats.html
+**Three Places Bringing CDMX to N.Y.C.**\
+`New restaurants and bakeries in Woodside, Bed-Stuy and on the Lower East Side bring the sweet swagger of CDMX to the city.`\
+https://nytimes.com/video/dining/100000010486960/three-places-bringing-cdmx-to-nyc.html
 
-**We Want to Know: What Are Your Favorite Little Treats in New York City?**\
-`We shared our favorite small edible luxuries; now we want to hear about yours.`\
-https://nytimes.com/2025/10/29/dining/little-treat-reader-callout.html
+**In 40 Years of Forecasting, I’ve Never Seen a Hurricane Like Melissa**\
+`Western Jamaica experienced something near to the worst tropical cyclone impacts our planet can produce.`\
+https://nytimes.com/2025/10/29/opinion/hurricane-melissa-jamaica-cuba.html
 
-**Real Madrid seeking 'damages' from UEFA over Super League**\
-`A Madrid court on Wednesday dismissed appeals lodged by UEFA, the Spanish FA and La Liga over the Super League.`\
-https://nytimes.com/athletic/6759949/2025/10/29/real-madrid-court-uefa-super-league/
+**What the Fed’s Rate Decision Means for Your Finances**\
+`See how the central bank’s interest rate stance influences car loans, credit cards, mortgages, savings and student loans.`\
+https://nytimes.com/2025/10/29/business/economy/fed-interest-rate-loans-mortgages.html
 
-**Cuomo Blasts Mamdani for His Rent-Stabilized Unit. But He Had One, Too.**\
-`Former Gov. Andrew M. Cuomo lived in what he once described as “a dump, just one long hallway.”`\
-https://nytimes.com/2025/10/29/nyregion/cuomo-rent-stabilized-apartment.html
+**Live Updates: Fed to Set Rates With Shutdown Obscuring View of the Economy**\
+`The Federal Reserve is poised to cut interest rates for a second time this year, but officials are operating with limited information about how the economy is faring.`\
+https://nytimes.com/live/2025/10/29/business/federal-reserve-interest-rates
 
-**‘What Truce Is This?’: Gazans Reel After Israeli Strikes Kill Dozens**\
-`Israel launched deadly attacks on Gaza after accusing Hamas of violating the cease-fire, which Hamas denied. Local health officials in Gaza reported the strikes killed at least 100 people, including 35 children.`\
-https://nytimes.com/video/world/middleeast/100000010488253/gaza-israeli-strikes-deadly-ceasefire.html
+**I Co-Parent My Kids. Would It Be Wrong to Move Abroad?**\
+`How should I weigh my children’s emotional needs against my own need for healing, belonging and growth?`\
+https://nytimes.com/2025/10/29/magazine/magazine-email/kids-moving-abroad-ethics.html
 
-**Broncos signing 41-year-old TE Marcedes Lewis to practice squad: Source**\
-`Lewis fills a need as a blocking tight end after the Broncos lost Nate Adkins to a knee injury Sunday, and Lucas Krull is on IR.`\
-https://nytimes.com/athletic/6760072/2025/10/29/broncos-marcedes-lewis-practice-squad-sign/
+**Life Lessons from (Very Old) Bowhead Whales**\
+`A gene that helped bowheads adapt to frigid Arctic waters also granted them extraordinary longevity. Could it help aging humans become more resilient?`\
+https://nytimes.com/2025/10/29/science/genetics-bowhead-whales-longevity.html
 
-**How to watch Rockets vs. Raptors: Time, TV, streaming**\
-`Find out how to watch the Houston Rockets play the Toronto Raptors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6760199/2025/10/29/rockets-vs-raptors-stream-how-to-watch-oct-29/
+**L.A. Fire Victims Face a Choice: Take a Settlement or Hold Out for More**\
+`The utility whose equipment has been linked to the devastating Eaton fire in January is offering to pay fire survivors. But if they accept, they would be giving up their right to sue.`\
+https://nytimes.com/2025/10/29/us/los-angeles-eaton-fire-victims-settlement-offer.html
 
-**How to watch Cavaliers vs. Celtics: Time, TV, streaming**\
-`Find out how to watch the Cleveland Cavaliers play the Boston Celtics, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6760197/2025/10/29/cavaliers-vs-celtics-stream-how-to-watch-oct-29/
+**IRS document: Terry Rozier owed $8.2 million in unpaid income tax in 2023**\
+`The IRS put a lien on Rozier's property in November 2023, months after the government alleges he aided an illegal sports betting ring.`\
+https://nytimes.com/athletic/6760081/2025/10/29/terry-rozier-unpaid-income-tax-lien/
 
