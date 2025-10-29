@@ -1,3 +1,11 @@
+**Fired by Team Trump, Former U.S. Attorney Joins Team Newsom**\
+`Michele Beckwith was ousted by President Trump less than six hours after instructing a top immigration official to abide by the Constitution in his immigration raids.`\
+https://nytimes.com/2025/10/28/us/trump-fired-us-attorney-michele-beckwith-new-job.html
+
+**Kyle Dugger trade grades: Steelers address ailing secondary, Patriots finally find a taker**\
+`The Steelers acquired Dugger for a late-round pick swap.`\
+https://nytimes.com/athletic/6758636/2025/10/28/kyle-dugger-steelers-patriots-trade-grade/
+
 **With Some G.O.P. Backing, Senate Votes to End Trump’s Brazil Tariffs**\
 `A handful of Republicans crossed party lines to side with Democrats in the first of several votes this week aimed at challenging the president’s trade war.`\
 https://nytimes.com/2025/10/28/us/politics/senate-vote-trump-brazil-tariffs.html
