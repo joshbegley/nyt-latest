@@ -1,3 +1,11 @@
+**Trump Says ‘It’s Too Bad’ He Can’t Run for a Third Term**\
+`Speaking to reporters on Air Force One on the way to South Korea, President Trump said it was “too bad” that he couldn’t run again in 2028.`\
+https://nytimes.com/video/world/americas/100000010488155/trump-third-term-limit.html
+
+**After adding CB help, will the Rams remain buyers at the trade deadline?**\
+`The Rams made a trade for Roger McCreary to bolster their cornerback room. What other moves could the team consider before the deadline?`\
+https://nytimes.com/athletic/6757642/2025/10/29/rams-trade-deadline-buyers-roger-mccreary/
+
 **Hurricane Melissa Has Arrived in Cuba**\
 `The storm hit Jamaica as one of the strongest Atlantic hurricanes ever.`\
 https://nytimes.com/2025/10/29/us/jamaica-melissa-destruction-cuba-hurricane.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/29/us/politics/tariff.html
 **Should the Commanders, buy, sell or stand pat at the NFL trade deadline?**\
 `Washington is 3-5 with a game to go before Tuesday’s trade deadline. Here are the arguments for buying, selling and doing nothing.`\
 https://nytimes.com/athletic/6759594/2025/10/29/commanders-trade-deadline-buy-sell/
-
-**Paramount to Lay Off 2,000 Employees**\
-`The job cuts are the result of a merger with Skydance, the Hollywood studio founded by David Ellison.`\
-https://nytimes.com/2025/10/29/business/media/paramount-layoffs-skydance.html
-
-**Twins' biggest offseason needs: 3 glaring roster weaknesses requiring outside help**\
-`If the Twins have any notion of a competitive 2026, three glaring roster issues need to be addressed, likely with outside additions.`\
-https://nytimes.com/athletic/6743274/2025/10/29/twins-offseason-needs-bullpen-bats-first-base/
 

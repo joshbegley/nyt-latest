@@ -1,3 +1,11 @@
+**Trump Says ‘It’s Too Bad’ He Can’t Run for a Third Term**\
+`Speaking to reporters on Air Force One on the way to South Korea, President Trump said it was “too bad” that he couldn’t run again in 2028.`\
+https://nytimes.com/video/world/americas/100000010488155/trump-third-term-limit.html
+
+**After adding CB help, will the Rams remain buyers at the trade deadline?**\
+`The Rams made a trade for Roger McCreary to bolster their cornerback room. What other moves could the team consider before the deadline?`\
+https://nytimes.com/athletic/6757642/2025/10/29/rams-trade-deadline-buyers-roger-mccreary/
+
 **Hurricane Melissa Has Arrived in Cuba**\
 `The storm hit Jamaica as one of the strongest Atlantic hurricanes ever.`\
 https://nytimes.com/2025/10/29/us/jamaica-melissa-destruction-cuba-hurricane.html
