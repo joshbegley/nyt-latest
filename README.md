@@ -1,6 +1,6 @@
 **'Hatty' time! Blackhawks' Connor Bedard nets his first NHL hat trick**\
 `It's hard to believe it took this long, but the young Chicago star finally scored three times in a game Tuesday vs the Senators.`\
-https://nytimes.com/athletic/6758829/2025/10/29/blackhawks-connor-bedard-nets-his-first-nhl-hat-trick/
+https://nytimes.com/athletic/6758829/2025/10/29/blackhawks-connor-bedard-hat-trick/
 
 **Guehi is the missed transfer that could haunt Liverpool**\
 `Failing to sign the Crystal Palace defender in the summer now looks like a costly blow `\
