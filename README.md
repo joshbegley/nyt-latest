@@ -1,3 +1,7 @@
+**White House Fires Commission Overseeing Trump’s D.C. Building Projects**\
+`The Commission of Fine Arts, an independent federal agency, was established by Congress to advise the president on urban planning and historical preservation.`\
+https://nytimes.com/2025/10/28/us/politics/trump-white-house-commission-fine-arts.html
+
 **Trump Officials in Charge of Food Aid Leave Their Posts**\
 `The departures of the head of the Agriculture Department’s Food and Nutrition Service and a senior policy adviser spurred worries on Capitol Hill as food aid benefits could halt.`\
 https://nytimes.com/2025/10/28/us/politics/trump-usda-food-nutrition.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/28/us/politics/senate-vote-trump-brazil-tariffs.html
 **USWNT coach Emma Hayes reflects on attending first Monday Night Football game in Kansas City**\
 `The U.S. will play New Zealand at CPKC Stadium on Wednesday, the first time the USWNT plays at the iconic NWSL venue.`\
 https://nytimes.com/athletic/6758419/2025/10/28/uswnt-emma-hayes-monday-night-football-kansas-city/
-
-**Just Before Trump’s Visit to South Korea, North Test-Fires Missiles**\
-`The country has yet to respond to President Trump’s overtures to meet again with Kim Jong-un, its leader.`\
-https://nytimes.com/2025/10/28/world/asia/north-korea-kim-missile-trump.html
 
