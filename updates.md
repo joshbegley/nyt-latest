@@ -1,3 +1,11 @@
+**Clippers spent 2 years dominating Warriors. Then their offense collapsed**\
+`The Clippers will see the Warriors three more times, including the season finale. On Tuesday, LA didn't look ready for prime time at all.`\
+https://nytimes.com/athletic/6759266/2025/10/29/clippers-warriors-result-offense-struggles/
+
+**Bears adding C.J. Gardner-Johnson to injury-depleted secondary: Source**\
+`Gardner-Johnson played three seasons under Dennis Allen in New Orleans from 2019-2021 and also overlapped with Ben Johnson in Detroit.`\
+https://nytimes.com/athletic/6759930/2025/10/29/bears-sign-cj-gardner-johnson/
+
 **Obamacare Prices Become Public, Highlighting Big Increases**\
 `The government website now shows consumers how much their health insurance costs will increase next year, as Congress remains at an impasse over the plans’ subsidies.`\
 https://nytimes.com/2025/10/29/health/obamacare-prices-health-insurance.html
