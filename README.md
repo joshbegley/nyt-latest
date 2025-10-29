@@ -1,3 +1,11 @@
+**gws-eleni-petaloti-leonidas-trampoukis-brooklyn-home**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/eleni-petaloti-leonidas-trampoukis-brooklyn-home
+
+**Mavericks guard Brandon Williams arrested on marijuana possession charge**\
+`Williams, 25, allegedly had less than two ounces of marijuana, and thus was charged with a misdemeanor.`\
+https://nytimes.com/athletic/6760318/2025/10/29/mavericks-brandon-williams-arrest-marijuana-possession/
+
 **Essential Books**\
 `The New York Times Book Review on the essential authors who have shaped our world.`\
 https://nytimes.com/column/essential-books-authors
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6759980/2025/10/29/mls-salaries-2025-messi-son-mull
 **France Adds Consent to Its Rape Law After Yearslong Fight**\
 `The new legislation was adopted after dozens of men were convicted of raping Gisèle Pelicot while she was drugged by her husband.`\
 https://nytimes.com/2025/10/29/world/europe/france-consent-rape-law.html
-
-**An Old-Fashioned Halloween Store That Won’t Give Up the Ghost**\
-`Halloween Adventure, a fixture in Lower Manhattan, has long prided itself on being a place where customers and employees can express themselves.`\
-https://nytimes.com/2025/10/29/nyregion/halloween-adventure-nyc.html
-
-**Donald Trump Jr. Pitches ‘Patriotic Capitalism’ at Saudi Summit**\
-`His firm, 1789 Capital, has been investing in artificial intelligence and defense technology — and, he said, it has an “understanding” of President Trump’s plans.`\
-https://nytimes.com/2025/10/29/business/donald-trump-jr-1789-capital-saudi-arabia.html
 
