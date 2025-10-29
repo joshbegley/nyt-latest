@@ -1,3 +1,11 @@
+**South Korea Says U.S. Agreed to 15% Tariffs**\
+`Seoul will invest $200 billion, or as much as $20 billion a year, and set aside another $150 billion to invest in its American shipbuilding operations, a South Korean official said.`\
+https://nytimes.com/2025/10/29/us/politics/tariff.html
+
+**Should the Commanders, buy, sell or stand pat at the NFL trade deadline?**\
+`Washington is 3-5 with a game to go before Tuesday’s trade deadline. Here are the arguments for buying, selling and doing nothing.`\
+https://nytimes.com/athletic/6759594/2025/10/29/commanders-trade-deadline-buy-sell/
+
 **Paramount to Lay Off 2,000 Employees**\
 `The job cuts are the result of a merger with Skydance, the Hollywood studio founded by David Ellison.`\
 https://nytimes.com/2025/10/29/business/media/paramount-layoffs-skydance.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6753980/2025/10/29/spalletti-juventus-head-coach-ne
 **Why the Yankees' No. 1 free-agent target should be Kyle Tucker, not Cody Bellinger**\
 `Before deciding whether to reunite with Bellinger, the Yankees should exhaust all efforts to sign Tucker. Here's why. `\
 https://nytimes.com/athletic/6757466/2025/10/29/yankees-free-agents-kyle-tucker-cody-bellinger/
-
-**Jordan Love continues to emerge as one of NFL's most reliable passers: Quick Outs**\
-`Love used a savvy, accurate performance to dismantle the Steelers' defense, while the Eagles' offense leaned into a positive shift.`\
-https://nytimes.com/athletic/6758810/2025/10/29/nfl-quick-outs-jordan-love-ravens-eagles/
-
-**How Bucky McMillan rose from high school coach to the SEC in just 5 years**\
-`Bucky Ball is a religion in Birmingham, Ala. Now, McMillan is trying to win with it at the highest level of college basketball.`\
-https://nytimes.com/athletic/6757652/2025/10/29/bucky-mcmillan-texas-am-new-basketball-coach/
 

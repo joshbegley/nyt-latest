@@ -1,3 +1,7 @@
+**Paramount to Lay Off 2,000 Employees**\
+`The job cuts are the result of a merger with Skydance, the Hollywood studio founded by David Ellison.`\
+https://nytimes.com/2025/10/29/business/media/paramount-layoffs-skydance.html
+
 **Twins' biggest offseason needs: 3 glaring roster weaknesses requiring outside help**\
 `If the Twins have any notion of a competitive 2026, three glaring roster issues need to be addressed, likely with outside additions.`\
 https://nytimes.com/athletic/6743274/2025/10/29/twins-offseason-needs-bullpen-bats-first-base/

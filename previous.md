@@ -1,3 +1,7 @@
+**Paramount to Lay Off 2,000 Employees**\
+`The job cuts are the result of a merger with Skydance, the Hollywood studio founded by David Ellison.`\
+https://nytimes.com/2025/10/29/business/media/paramount-layoffs-skydance.html
+
 **Twins' biggest offseason needs: 3 glaring roster weaknesses requiring outside help**\
 `If the Twins have any notion of a competitive 2026, three glaring roster issues need to be addressed, likely with outside additions.`\
 https://nytimes.com/athletic/6743274/2025/10/29/twins-offseason-needs-bullpen-bats-first-base/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6758810/2025/10/29/nfl-quick-outs-jordan-love-raven
 **How Bucky McMillan rose from high school coach to the SEC in just 5 years**\
 `Bucky Ball is a religion in Birmingham, Ala. Now, McMillan is trying to win with it at the highest level of college basketball.`\
 https://nytimes.com/athletic/6757652/2025/10/29/bucky-mcmillan-texas-am-new-basketball-coach/
-
-**Drance: J.T. Miller's return to Vancouver, and the trade that nobody really won**\
-`The game between the Rangers and Canucks on Tuesday laid bare an uncomfortable on-ice reality for both organizations.`\
-https://nytimes.com/athletic/6756145/2025/10/29/jt-miller-vancouver-canucks-new-york-rangers-trade/
 
