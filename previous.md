@@ -1,3 +1,7 @@
+**'This is my city': Giannis Antetokounmpo makes a statement on floor and after beating Knicks**\
+`"I love when it's tough; I thrive when it's tough," Antetokounmpo yelled to a lively Fiserv Forum crowd. "When you make it tough, I thrive."`\
+https://nytimes.com/athletic/6758946/2025/10/29/giannis-antetokounmpo-bucks-knicks-nba/
+
 **Cuba’s President Warns of ‘Very Difficult Night’ as Melissa Nears**\
 `More than 735,000 people had evacuated ahead of the storm’s expected arrival on Wednesday, officials said.`\
 https://nytimes.com/2025/10/29/weather/hurricane-melissa-cuba-president.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6754141/2025/10/29/when-haaland-blanks-who-scores-a
 **Chelsea have used seven centre-back pairings so far - will lack of consistency start to bite?**\
 `Manager Enzo Maresca has been dealt a tough hand with injuries at the heart of his defence but it is vital he finds a consistent solution`\
 https://nytimes.com/athletic/6757392/2025/10/29/chelsea-defence-enzo-maresca-premier-league/
-
-**British boxing, Black promoters and an unspoken problem: 'You've got to force change'**\
-`Some of the sport's biggest names are Black but very few are in positions of real power. Why? `\
-https://nytimes.com/athletic/6752038/2025/10/29/boxing-black-promoters-managers-trainers/
 

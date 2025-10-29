@@ -1,3 +1,7 @@
+**'This is my city': Giannis Antetokounmpo makes a statement on floor and after beating Knicks**\
+`"I love when it's tough; I thrive when it's tough," Antetokounmpo yelled to a lively Fiserv Forum crowd. "When you make it tough, I thrive."`\
+https://nytimes.com/athletic/6758946/2025/10/29/giannis-antetokounmpo-bucks-knicks-nba/
+
 **Cuba’s President Warns of ‘Very Difficult Night’ as Melissa Nears**\
 `More than 735,000 people had evacuated ahead of the storm’s expected arrival on Wednesday, officials said.`\
 https://nytimes.com/2025/10/29/weather/hurricane-melissa-cuba-president.html
