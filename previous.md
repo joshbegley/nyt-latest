@@ -1,3 +1,7 @@
+**The Windup: Blue Jays still beating the odds**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6759983/2025/10/29/world-series-game-4-the-windup/
+
 **Nick Offerman on Meditative Woodworking**\
 `Woodworker, author, and actor Nick Offerman describes how woodworking can be a spiritual or meditative experience.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010488504/nick-offerman-on-meditative-woodworking.html
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6759930/2025/10/29/bears-sign-cj-gardner-johnson/
 `The government website now shows consumers how much their health insurance costs will increase next year, as Congress remains at an impasse over the plans’ subsidies.`\
 https://nytimes.com/2025/10/29/health/obamacare-prices-health-insurance.html
 
-**En vivo: El huracán Melissa llega Cuba tras su paso destructivo por Jamaica**\
+**En vivo: El huracán Melissa llega a Cuba tras su paso destructivo por Jamaica**\
 `La tormenta causó daños generalizados a las infraestructuras jamaiquinas y cortó el acceso a internet a la mayoría de la población. Cuba evacuó a unas 750.000 personas antes de su llegada.`\
 https://nytimes.com/live/2025/10/29/espanol/huracan-melissa
 
 **After ominous warnings about Mamdani, Cuomo seeks to cast himself as a unifier.**\
 `By Matthew Haag`\
 https://nytimes.com/live/2025/10/29/nyregion/nyc-mayor-election-news/in-final-campaign-ad-cuomo-seeks-to-cast-himself-as-a-unifier
-
-**Pedri set to be sidelined until after international break with hamstring injury**\
-`Pedri has appeared in all but one of Barcelona's competitive matches since Hansi Flick was appointed as head coach.`\
-https://nytimes.com/athletic/6759787/2025/10/29/pedri-barcelona-injury-news/
 

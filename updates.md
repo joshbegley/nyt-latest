@@ -1,3 +1,11 @@
+**The Windup: Blue Jays still beating the odds**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6759983/2025/10/29/world-series-game-4-the-windup/
+
+**En vivo: El huracán Melissa llega a Cuba tras su paso destructivo por Jamaica**\
+`La tormenta causó daños generalizados a las infraestructuras jamaiquinas y cortó el acceso a internet a la mayoría de la población. Cuba evacuó a unas 750.000 personas antes de su llegada.`\
+https://nytimes.com/live/2025/10/29/espanol/huracan-melissa
+
 **Nick Offerman on Meditative Woodworking**\
 `Woodworker, author, and actor Nick Offerman describes how woodworking can be a spiritual or meditative experience.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010488504/nick-offerman-on-meditative-woodworking.html
