@@ -1,3 +1,11 @@
+**The Fed Resisted Trump. Good.**\
+`The Federal Reserve didn’t comply with President Trump’s wishes.`\
+https://nytimes.com/2025/10/29/opinion/federal-reserve-powell-miran-schmid-inflation.html
+
+**Carabao Cup QF draw: Cardiff host Chelsea, Arsenal face Crystal Palace**\
+`The four quarter-final matches will take place in the week starting December 15.`\
+https://nytimes.com/athletic/6760169/2025/10/29/carabao-cup-quarter-final-draw-teams/
+
 **What Could’ve Been for My Favorite ’90s Rapper**\
 `Our critic’s latest Song of the Week is a track by Nas with a posthumous verse by Big L, the New York M.C. who was murdered in his prime.`\
 https://nytimes.com/video/podcasts/100000010489365/what-couldve-been-for-my-favorite-90s-rapper.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/29/us/monkeys-euthanized-mistake-tulane-mississippi.
 **Bloomberg Gives $1.5 Million to Pro-Cuomo Super PAC**\
 `Michael R. Bloomberg, the former New York City mayor, had stayed out of the race since backing former Gov. Andrew M. Cuomo’s failed Democratic primary campaign.`\
 https://nytimes.com/2025/10/29/nyregion/bloomberg-cuomo-super-pac.html
-
-**Chinese Officials Heap Praise on Trump and Xi Before They Meet**\
-`President Trump and the Chinese leader Xi Jinping are being described as “irreplaceable” and “world class leaders” before a meeting seen as critical for shoring up a trade truce.`\
-https://nytimes.com/2025/10/29/world/asia/china-praise-trump-xi.html
-
-**Obamacare Prices Set to Increase Significantly**\
-`Also, the Caribbean begins to assess damage from Melissa. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/10/29/briefing/obamacare-prices-hurricane-melissa-damage.html
 

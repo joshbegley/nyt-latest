@@ -1,3 +1,19 @@
+**What Could’ve Been for My Favorite ’90s Rapper**\
+`Our critic’s latest Song of the Week is a track by Nas with a posthumous verse by Big L, the New York M.C. who was murdered in his prime.`\
+https://nytimes.com/video/podcasts/100000010489365/what-couldve-been-for-my-favorite-90s-rapper.html
+
+**Jamaicans in Bermuda struggle to reach relatives on the storm-ravaged island.**\
+`By Don Burgess`\
+https://nytimes.com/live/2025/10/29/weather/hurricane-melissa-cuba-jamaica/jamaicans-in-bermuda-struggle-to-reach-relatives-on-the-storm-ravaged-island
+
+**‘Dracula’ Review: Fangs Out**\
+`In this provocation, the Romanian filmmaker Radu Jude takes on the Dracula myth and a real-life horror show known as Vlad the Impaler.`\
+https://nytimes.com/2025/10/29/movies/dracula-review-radu-jude.html
+
+**More Americans May Soon Feel the Shutdown’s Effects**\
+`More paychecks aren’t going out, and nutrition benefits may lapse. The government shutdown is growing more painful, and the fight over why is intensifying.`\
+https://nytimes.com/2025/10/29/us/politics/shutdown-snap-food-politics.html
+
 **After Cubs’ playoff run, slight turnover is coming to Craig Counsell’s staff**\
 `Alex Smith, who maintained a steady presence on the field and in the clubhouse, will join the Detroit Tigers.`\
 https://nytimes.com/athletic/6761320/2025/10/29/chicago-cubs-craig-counsell-staff-changes/
