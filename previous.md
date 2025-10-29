@@ -1,3 +1,11 @@
+**Portland, Ore.**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/things-to-do-portland-oregon
+
+**Quinnipiac Poll Shows Mamdani With 10-Point Lead in N.Y.C. Mayor’s Race**\
+`The survey, released less than a week before Election Day, found that Zohran Mamdani had lost a bit of support, Andrew Cuomo had gained none and slightly more voters were undecided.`\
+https://nytimes.com/2025/10/29/nyregion/nyc-mayor-quinnipiac-poll.html
+
 **Why this Giannis Antetokounmpo move wasn't a travel — even if it (maybe) should be**\
 `Was Giannis Antetokounmpo's now-viral drive against the Knicks a legal move or a travel? We examine the NBA rule book to explain.`\
 https://nytimes.com/athletic/6760365/2025/10/29/giannis-antetokounmpo-travel-bucks-knicks/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/10/29/business/general-motors-electric-vehicles-layoff.
 **At Home With**\
 ``\
 https://nytimes.com/series/at-home-with
-
-**Beloved 1997 computer game 'Backyard Baseball' to return as 2D animated special**\
-`The animated show, based on a popular 1997 computer game, will be released on YouTube and shown at Dave & Buster's locations across the U.S.`\
-https://nytimes.com/athletic/6759999/2025/10/29/backyard-baseball-animated-special/
-
-**Video Analysis Shows Staged Recovery of Israeli Hostage Remains**\
-`Israel’s military released a drone video of the incident in Gaza, and The New York Times analyzed the footage.`\
-https://nytimes.com/2025/10/29/world/europe/gaza-hamas-israel-remains.html
 

@@ -1,3 +1,11 @@
+**Portland, Ore.**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/things-to-do-portland-oregon
+
+**Quinnipiac Poll Shows Mamdani With 10-Point Lead in N.Y.C. Mayor’s Race**\
+`The survey, released less than a week before Election Day, found that Zohran Mamdani had lost a bit of support, Andrew Cuomo had gained none and slightly more voters were undecided.`\
+https://nytimes.com/2025/10/29/nyregion/nyc-mayor-quinnipiac-poll.html
+
 **Why this Giannis Antetokounmpo move wasn't a travel — even if it (maybe) should be**\
 `Was Giannis Antetokounmpo's now-viral drive against the Knicks a legal move or a travel? We examine the NBA rule book to explain.`\
 https://nytimes.com/athletic/6760365/2025/10/29/giannis-antetokounmpo-travel-bucks-knicks/
