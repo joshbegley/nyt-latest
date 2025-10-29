@@ -1,3 +1,11 @@
+**Hundreds Killed in Massacre at Sudanese Hospital, W.H.O. Warns**\
+`The hospital had served as the last refuge for many starving or injured civilians in El Fasher, a major battleground in Darfur recently seized by the Rapid Support Forces.`\
+https://nytimes.com/2025/10/29/world/africa/massacre-sudan-saudi-hospital.html
+
+**Starbucks Reports a Modest Sales Increase in Latest Quarter**\
+`Net income fell 85 percent, however, because of charges related to store closures and corporate layoffs.`\
+https://nytimes.com/2025/10/29/business/starbucks-quarterly-earnings.html
+
 **'Playing for himself': Maresca frustrated by Delap after 'embarrassing' red card**\
 `Chelsea’s head coach was left furious with the forward for his ill-discipline on what was his first appearance for two months.`\
 https://nytimes.com/athletic/6761405/2025/10/29/enzo-maresca-liam-delap-red-card/

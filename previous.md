@@ -1,3 +1,11 @@
+**Hundreds Killed in Massacre at Sudanese Hospital, W.H.O. Warns**\
+`The hospital had served as the last refuge for many starving or injured civilians in El Fasher, a major battleground in Darfur recently seized by the Rapid Support Forces.`\
+https://nytimes.com/2025/10/29/world/africa/massacre-sudan-saudi-hospital.html
+
+**Starbucks Reports a Modest Sales Increase in Latest Quarter**\
+`Net income fell 85 percent, however, because of charges related to store closures and corporate layoffs.`\
+https://nytimes.com/2025/10/29/business/starbucks-quarterly-earnings.html
+
 **'Playing for himself': Maresca frustrated by Delap after 'embarrassing' red card**\
 `Chelsea’s head coach was left furious with the forward for his ill-discipline on what was his first appearance for two months.`\
 https://nytimes.com/athletic/6761405/2025/10/29/enzo-maresca-liam-delap-red-card/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/10/29/weather/hurricane-melissa-cuba-jamaica/jamai
 **‘Dracula’ Review: Fangs Out**\
 `In this provocation, the Romanian filmmaker Radu Jude takes on the Dracula myth and a real-life horror show known as Vlad the Impaler.`\
 https://nytimes.com/2025/10/29/movies/dracula-review-radu-jude.html
-
-**More Americans May Soon Feel the Shutdown’s Effects**\
-`More paychecks aren’t going out, and nutrition benefits may lapse. The government shutdown is growing more painful, and the fight over why is intensifying.`\
-https://nytimes.com/2025/10/29/us/politics/shutdown-snap-food-politics.html
-
-**After Cubs’ playoff run, slight turnover is coming to Craig Counsell’s staff**\
-`Alex Smith, who maintained a steady presence on the field and in the clubhouse, will join the Detroit Tigers.`\
-https://nytimes.com/athletic/6761320/2025/10/29/chicago-cubs-craig-counsell-staff-changes/
 
