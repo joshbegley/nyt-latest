@@ -1,3 +1,11 @@
+**Federal Judge Disqualifies Trump-Backed Prosecutor in Los Angeles**\
+`The court ruled that Bill Essayli had been acting “unlawfully” as U.S. attorney in Los Angeles but that he could stay on as the office’s top deputy for now.`\
+https://nytimes.com/2025/10/28/us/us-attorney-bill-essayli-los-angeles-ruling.html
+
+**NBC's NBA nostalgia: Bob Costas narrates previews for Knicks-Bucks, Clippers-Warriors**\
+`Bob Costas narrating previews for Bucks-Knicks, Warriors-Clippers adds to lore of the NBA's return to NBC.`\
+https://nytimes.com/athletic/6758763/2025/10/28/bob-costas-nba-nbc-knicks-bucks-clippers-warriors/
+
 **Knies, Domi's breakout games balance Leafs' power-play issues, tired Stolarz: 3 thoughts**\
 `The Leafs put together their best second period of the season so far to beat the Flames on the first night of a back-to-back.`\
 https://nytimes.com/athletic/6758628/2025/10/28/maple-leafs-domi-knies-stolarz-power-play/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/28/us/politics/trump-white-house-commission-fine-art
 **Trump Officials in Charge of Food Aid Leave Their Posts**\
 `The departures of the head of the Agriculture Department’s Food and Nutrition Service and a senior policy adviser spurred worries on Capitol Hill as food aid benefits could halt.`\
 https://nytimes.com/2025/10/28/us/politics/trump-usda-food-nutrition.html
-
-**Patriots agree to trade safety Kyle Dugger to Steelers: Sources**\
-`Dugger, who spent his entire career with New England, is headed to Pittsburgh. The teams will swap a sixth-round and seventh-round pick.`\
-https://nytimes.com/athletic/6758518/2025/10/28/s-kyle-dugger-steelers-patriots-trade-news/
-
-**Fired by Team Trump, Former U.S. Attorney Joins Team Newsom**\
-`Michele Beckwith was ousted by President Trump less than six hours after instructing a top immigration official to abide by the Constitution in his immigration raids.`\
-https://nytimes.com/2025/10/28/us/trump-fired-us-attorney-michele-beckwith-new-job.html
 
