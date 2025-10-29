@@ -1,3 +1,19 @@
+**'Hatty' time! Blackhawks' Connor Bedard nets his first NHL hat trick**\
+`It's hard to believe it took this long, but the young Chicago star finally scored three times in a game Tuesday vs the Senators.`\
+https://nytimes.com/athletic/6758829/2025/10/29/blackhawks-connor-bedard-hat-trick/
+
+**Guehi is the missed transfer that could haunt Liverpool**\
+`Failing to sign the Crystal Palace defender in the summer now looks like a costly blow `\
+https://nytimes.com/athletic/6756194/2025/10/29/marc-guehi-liverpool-transfer-failed/
+
+**When Haaland blanks, who scores? Analysing Manchester City's supporting cast**\
+`Pep Guardiola has a wealth of attacking options — but it is not clear which combinations will bring more goals`\
+https://nytimes.com/athletic/6754141/2025/10/29/when-haaland-blanks-who-scores-analyzing-the-manchester-city-attack/
+
+**Dark arts of away changing rooms: Pink paint, cold showers, no toilet paper**\
+`How do clubs change the conditions in away changing rooms to put off the opposition? And does it work?`\
+https://nytimes.com/athletic/6756809/2025/10/29/away-changing-rooms-pink-paint-showers-toilets/
+
 **Chelsea have used seven centre-back pairings so far - will lack of consistency start to bite?**\
 `Manager Enzo Maresca has been dealt a tough hand with injuries at the heart of his defence but it is vital he finds a consistent solution`\
 https://nytimes.com/athletic/6757392/2025/10/29/chelsea-defence-enzo-maresca-premier-league/
