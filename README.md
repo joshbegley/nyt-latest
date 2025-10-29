@@ -1,3 +1,7 @@
+**Architectural Sites to See in Mumbai**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/mumbai-architecture-buildings-guide
+
 **As Trump Weighs Sale of Advanced A.I. Chips to China, Critics Sound Alarm**\
 `The president signaled he would discuss the sale of Nvidia’s Blackwell chips in a summit on Thursday, a move U.S. officials warned would be a “massive” national security mistake.`\
 https://nytimes.com/2025/10/29/us/politics/trump-china-nvidia-chips-sales.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/weather/100000010489096/homes-collapsing-outer-banks-o
 **Submit your questions for Kevin Fishbain's Bears mailbag**\
 `The Bears are 4-3 after a disappointing performance in Baltimore and preparing to face the Bengals in Cincinnati. What's on your mind?`\
 https://nytimes.com/athletic/6761095/2025/10/29/bears-mailbag-questions-47/
-
-**Karine Jean-Pierre and a Book Tour Most Authors Would Not Dream Of**\
-`The Biden White House press secretary, peddling a book that makes Democrats unhappy, gives an “absolute train wreck’’ of an interview to The New Yorker.`\
-https://nytimes.com/2025/10/29/us/politics/karine-jean-pierre-book.html
 
