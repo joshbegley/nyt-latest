@@ -1,3 +1,19 @@
+**Israeli Strikes in Gaza Kill at Least 100, Local Health Officials Say**\
+`Israel said the cease-fire had resumed after what appeared to be the deadliest day since the truce deal was agreed this month.`\
+https://nytimes.com/2025/10/29/world/middleeast/deadliest-day-gaza-strikes-overnight-ceasefire.html
+
+**Vietnam Prevents BBC Journalist From Leaving the Country**\
+`The reporter’s passport has been held by the authorities since August. Rights advocates want British officials to raise the issue with Vietnam’s visiting leader.`\
+https://nytimes.com/2025/10/29/world/asia/vietnam-bbc-journalist-passport.html
+
+**Weird & Wild: Vlad Guerrero Jr.'s World Series-changing swing tops Dodgers — and his dad**\
+`Guerrero’s Game 4 homer wasn’t just huge because it helped even this Series. Amid his prodigious postseason, a look at Vlad Jr. vs. Vlad Sr.`\
+https://nytimes.com/athletic/6759417/2025/10/29/vladimir-guerrero-jr-world-series-bluejays/
+
+**A Game 4 loss leaves the Dodgers no choice: As usual, they'll have to clinch a title on the road**\
+`The Dodgers may still celebrate again this postseason, but it'll have to be at Rogers Centre this weekend. `\
+https://nytimes.com/athletic/6759239/2025/10/29/los-angeles-dodgers-road-world-series/
+
 **Toyota Says $10 Billion U.S. Investment Touted by Trump Isn’t New**\
 `Japanese officials have called into question some elements of the flurry of big new investments announced by President Trump during his Japan visit.`\
 https://nytimes.com/2025/10/29/business/trump-toyota-10-billion.html
