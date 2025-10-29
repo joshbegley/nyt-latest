@@ -1,3 +1,15 @@
+**As Trump Weighs Sale of Advanced A.I. Chips to China, Critics Sound Alarm**\
+`The president signaled he would discuss the sale of Nvidia’s Blackwell chips in a summit on Thursday, a move U.S. officials warned would be a “massive” national security mistake.`\
+https://nytimes.com/2025/10/29/us/politics/trump-china-nvidia-chips-sales.html
+
+**Meta Raises Its Spending Forecast on A.I. to Above $70 Billion**\
+`The Silicon Valley company projected more spending this year and said it would continue in 2026 as it hires A.I. researchers and builds data centers to power the technology.`\
+https://nytimes.com/2025/10/29/technology/meta-spending-ai.html
+
+**Alphabet Revenue Up 16% With Strong Cloud Sales**\
+`The internet company said profit for the quarter was up 33 percent, to just under $35 billion.`\
+https://nytimes.com/2025/10/29/technology/alphabet-google-earnings.html
+
 **Four Decades After It Was Stolen, a Renaissance Treasure Returns to Rome**\
 `The Italian art police still don’t know who took the brilliantly illuminated manuscript page from a Franciscan friary, and many more pages have yet to be found.`\
 https://nytimes.com/2025/10/29/world/europe/stolen-manuscript-return-rome.html
@@ -21,20 +33,4 @@ https://nytimes.com/athletic/6761095/2025/10/29/bears-mailbag-questions-47/
 **Karine Jean-Pierre and a Book Tour Most Authors Would Not Dream Of**\
 `The Biden White House press secretary, peddling a book that makes Democrats unhappy, gives an “absolute train wreck’’ of an interview to The New Yorker.`\
 https://nytimes.com/2025/10/29/us/politics/karine-jean-pierre-book.html
-
-**Brad Marchand takes leave from Panthers to coach junior team after tragedy**\
-`Marchand is stepping away from the Panthers to go behind the bench in Halifax on Wednesday night after a tragedy in his friend's family.`\
-https://nytimes.com/athletic/6760826/2025/10/29/brad-marchand-panthers-coach-halifax-tragedy/
-
-**Stormy Weather in New York City Expected to Clear Ahead of the Marathon**\
-`“Sunday is going to bring the best weather of the week,” a meteorologist with the National Weather Service said.`\
-https://nytimes.com/2025/10/29/weather/new-york-city-rain-storm.html
-
-**Protesters of Immigration Crackdown, Including House Candidate, Indicted**\
-`Six people, including the congressional candidate Kat Abughazaleh, were indicted by a grand jury in Chicago. Ten others were arrested on charges stemming from California protests.`\
-https://nytimes.com/2025/10/29/us/chicago-immigration-protest-indictments.html
-
-**Alexis deBoschnek’s Dinner Party Tips**\
-`Cookbook author Alexis deBoschnek shares three hosting tips for how she throws a memorable dinner party.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010488483/alexis-deboschneks-dinner-party-tips.html
 
