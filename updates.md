@@ -1,3 +1,7 @@
+**Fantasy football best and worst Week 9 matchups: Stream Aaron Rodgers and more**\
+`KC Joyner gives his top matchups of the week to help fantasy managers with tough start/sit decisions. `\
+https://nytimes.com/athletic/6756398/2025/10/29/fantasy-football-best-and-worst-week-9-matchups-stream-aaron-rodgers-start-travis-etienne/
+
 **Hurricane Melissa Makes Landfall in Cuba**\
 `Hurricane Melissa made landfall in Cuba early Wednesday, after leaving a path of destruction across Jamaica.`\
 https://nytimes.com/video/world/americas/100000010487755/hurricane-melissa-jamaica-damage-deaths.html

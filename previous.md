@@ -1,3 +1,7 @@
+**Fantasy football best and worst Week 9 matchups: Stream Aaron Rodgers and more**\
+`KC Joyner gives his top matchups of the week to help fantasy managers with tough start/sit decisions. `\
+https://nytimes.com/athletic/6756398/2025/10/29/fantasy-football-best-and-worst-week-9-matchups-stream-aaron-rodgers-start-travis-etienne/
+
 **Hurricane Melissa Makes Landfall in Cuba**\
 `Hurricane Melissa made landfall in Cuba early Wednesday, after leaving a path of destruction across Jamaica.`\
 https://nytimes.com/video/world/americas/100000010487755/hurricane-melissa-jamaica-damage-deaths.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/29/nyregion/mikie-sherrill-new-jersey-governor.html
 **How Andrew Cuomo’s Dreams of Becoming a Radio Star Fell Apart**\
 `After he resigned as governor, Mr. Cuomo looked to restore his name while taking on a new lucrative career as a podcast host. Things did not go according to plan.`\
 https://nytimes.com/2025/10/29/nyregion/andrew-cuomo-podcast-radio.html
-
-**Wrexham's night of pain will sting for a very long time**\
-`Phil Parkinson's side lost a winnable game, local pride, and the chance of a big cup draw in Tuesday's defeat to Cardiff `\
-https://nytimes.com/athletic/6753948/2025/10/29/wrexham-cardiff-carabao-cup-result-analysis/
 
