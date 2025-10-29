@@ -1,3 +1,19 @@
+**'Hatty' time! Blackhawks' Connor Bedard nets his first NHL hat trick**\
+`It's hard to believe it took this long, but the young Chicago star finally scored three times in a game Tuesday vs the Senators.`\
+https://nytimes.com/athletic/6758829/2025/10/29/blackhawks-connor-bedard-nets-his-first-nhl-hat-trick/
+
+**Guehi is the missed transfer that could haunt Liverpool**\
+`Failing to sign the Crystal Palace defender in the summer now looks like a costly blow `\
+https://nytimes.com/athletic/6756194/2025/10/29/marc-guehi-liverpool-transfer-failed/
+
+**When Haaland blanks, who scores? Analysing Manchester City's supporting cast**\
+`Pep Guardiola has a wealth of attacking options — but it is not clear which combinations will bring more goals`\
+https://nytimes.com/athletic/6754141/2025/10/29/when-haaland-blanks-who-scores-analyzing-the-manchester-city-attack/
+
+**Dark arts of away changing rooms: Pink paint, cold showers, no toilet paper**\
+`How do clubs change the conditions in away changing rooms to put off the opposition? And does it work?`\
+https://nytimes.com/athletic/6756809/2025/10/29/away-changing-rooms-pink-paint-showers-toilets/
+
 **Chelsea have used seven centre-back pairings so far - will lack of consistency start to bite?**\
 `Manager Enzo Maresca has been dealt a tough hand with injuries at the heart of his defence but it is vital he finds a consistent solution`\
 https://nytimes.com/athletic/6757392/2025/10/29/chelsea-defence-enzo-maresca-premier-league/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/29/opinion/trump-reagan-tariffs-canada.html
 **Here is the latest.**\
 `By Emiliano Rodríguez Mega, Jovan Johnson, Camille Williams and Francesca Regalado`\
 https://nytimes.com/live/2025/10/29/weather/hurricane-melissa-cuba-jamaica/here-is-the-latest
-
-**Live Updates: Hurricane Melissa Strengthens on Its Way to Cuba After Lashing Jamaica**\
-`The storm caused widespread damage in Jamaica to infrastructure and cut internet access for most of its two million people. Cuba has evacuated about 750,000 people ahead of the storm.`\
-https://nytimes.com/live/2025/10/29/weather/hurricane-melissa-cuba-jamaica
-
-**Wild felt they were 'better team' in 4-3 overtime loss to Jets; takeaways**\
-`Minnesota will need more from two of their best players if they want to turn things around. `\
-https://nytimes.com/athletic/6759057/2025/10/29/minnesota-wild-overtime-loss-jets-takeaways/
-
-**Penguins organization furious with Flyers, NHL officials after wild shootout loss**\
-`Eight misconducts were given out at the end of OT as the Penguins-Flyers rivalry heated up on Tuesday and Pittsburgh fell in a shootout.`\
-https://nytimes.com/athletic/6758795/2025/10/29/penguins-flyers-nhl-officials-shootout/
-
-**Howson on his return to Leeds as an Under-21 player-coach: 'I feel extremely lucky'**\
-`After more than 13 years away from Elland Road, Howson is back to where it all began to complete the most treasured arc of his career`\
-https://nytimes.com/athletic/6757705/2025/10/29/jonny-howson-leeds-united-interview/
 
