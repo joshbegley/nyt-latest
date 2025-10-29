@@ -1,3 +1,11 @@
+**Stephen Colbert Spots Something in Trump’s ‘Perfect’ M.R.I. Scan**\
+`“Wait a second, what’s that in his stomach? It’s the Epstein files!” the “Late Show” host said.`\
+https://nytimes.com/2025/10/29/arts/television/stephen-colbert-trump-mri.html
+
+**How to watch Seahawks vs. Commanders: Time, TV, streaming**\
+`Find out how to watch the Seattle Seahawks play the Washington Commanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6759217/2025/10/29/seahawks-vs-commanders-stream-how-to-watch-nov-2/
+
 **How to watch Blue Jays at Dodgers: World Series Game 5 Time, TV, streaming**\
 `Find out how to watch the Toronto Blue Jays play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6759200/2025/10/29/blue-jays-vs-dodgers-stream-how-to-watch-oct-29/

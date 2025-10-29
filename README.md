@@ -1,3 +1,7 @@
+**Wrexham's night of pain will sting for a very long time**\
+`Phil Parkinson's side lost a winnable game, local pride and the chance of a big cup draw in Tuesday's defeat to Cardiff `\
+https://nytimes.com/athletic/6753948/2025/10/29/wrexham-cardiff-carabao-cup-result-analysis/
+
 **Stephen Colbert Spots Something in Trump’s ‘Perfect’ M.R.I. Scan**\
 `“Wait a second, what’s that in his stomach? It’s the Epstein files!” the “Late Show” host said.`\
 https://nytimes.com/2025/10/29/arts/television/stephen-colbert-trump-mri.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6756412/2025/10/29/kevin-danso-tottenham-romero/
 **Everton have £70m of new talent sitting on the bench - but need to be patient**\
 `Hurrying Thierno Barry, Tyler Dibling and Adam Aznou would be counterproductive as they need time to develop their considerable potential`\
 https://nytimes.com/athletic/6756513/2025/10/29/everton-summer-signings-bench-patience/
-
-**Newcastle, united: How the city's football, rugby and basketball teams are working together**\
-`A look at how three of the city's sports teams are helping each other improve in many different areas`\
-https://nytimes.com/athletic/6757072/2025/10/29/newcastle-united-sports-teams/
 
