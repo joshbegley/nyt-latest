@@ -1,4 +1,8 @@
-**Senate Votes to End Trump’s Brazil Tariffs**\
+**Administration Must Restore Some Mental Health Grants, Court Says**\
+`The funding was part of a bipartisan measure that Congress approved in response to school shootings, but the Trump administration argued that the grants violated civil rights law.`\
+https://nytimes.com/2025/10/28/us/politics/administration-must-restore-some-mental-health-grants-court-says.html
+
+**With Some G.O.P. Support, Senate Votes to End Trump’s Brazil Tariffs**\
 `A handful of Republicans crossed party lines to side with Democrats in the first of several votes this week aimed at challenging the president’s trade war.`\
 https://nytimes.com/2025/10/28/us/politics/senate-vote-trump-brazil-tariffs.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/10/28/weather/hurricane-melissa-jamaica-landfall/h
 **South Korea’s Hosting Anxiety: A City Rich in History but Not Hotel Rooms**\
 `The authorities have been scrambling to accommodate this year’s Asia-Pacific Economic Cooperation forum in Gyeongju, which is known for tombs, temples and pagodas.`\
 https://nytimes.com/2025/10/28/world/asia/south-korea-gyeongju-apec-hosting.html
-
-**Stars, Thomas Harley finalizing 8-year, $10.59 million AAV contract extension: Sources**\
-`Harley will become the Stars' highest-paid defenseman and second-highest AAV player behind winger Mikko Rantanen.`\
-https://nytimes.com/athletic/6758324/2025/10/28/stars-thomas-harley-contract-extension/
 
