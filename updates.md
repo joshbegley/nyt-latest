@@ -1,3 +1,7 @@
+**Big Tech Faces Tough Questions Over the A.I. Spending Spree**\
+`Investors have rewarded tech giants for investing heavily in the technology. But bubble concerns are growing.`\
+https://nytimes.com/2025/10/29/business/dealbook/tech-ai-spending-spree.html
+
 **After 10 games, 7 Winnipeg Jets takeaways and what they mean**\
 `Let's dig into what Winnipeg has been doing well, what it hasn't, how it can get better, and more.`\
 https://nytimes.com/athletic/6757555/2025/10/29/winnipeg-jets-after-10-games/

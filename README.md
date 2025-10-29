@@ -1,3 +1,7 @@
+**Maple Leafs after 10: Is Craig Berube the right man behind the bench?**\
+`The Leafs have struggled to control play since Craig Berube took over behind the bench. It's time to start asking tough questions.`\
+https://nytimes.com/athletic/6757963/2025/10/29/maple-leafs-after-10-craig-berube/
+
 **Big Tech Faces Tough Questions Over the A.I. Spending Spree**\
 `Investors have rewarded tech giants for investing heavily in the technology. But bubble concerns are growing.`\
 https://nytimes.com/2025/10/29/business/dealbook/tech-ai-spending-spree.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/10/29/nyregion/nyc-mayor-election-news
 **Money to Help Nations Cope With Climate Disasters Is Declining, U.N. Says**\
 `In 2021, rich countries vowed to spend more to help poor countries adapt to warming. That goal is unlikely to be met, a new report finds.`\
 https://nytimes.com/2025/10/29/climate/aid-poor-countries-adaptation-climate-united-nations.html
-
-**Trump Says ‘It’s Too Bad’ He Can’t Run for a Third Term**\
-`Speaking to reporters on Air Force One on the way to South Korea, President Trump said it was “too bad” that he couldn’t run again in 2028.`\
-https://nytimes.com/video/world/americas/100000010488155/trump-third-term-limit.html
 
