@@ -1,3 +1,7 @@
+**Illinois Man Charged With Threatening Trump on Social Media**\
+`Derek Lopez, 27, defended his posts as performance art and free speech, according to an affidavit. The F.B.I. said he continued to use threatening language despite a warning from agents.`\
+https://nytimes.com/2025/10/30/us/trump-threats-instagram-charges-illinois.html
+
 **Newcastle have not lost a Carabao Cup game for 681 days. This is why they're so good at them**\
 `Newcastle are on a run of 17 victories, 15 in normal time and two via shootout, with 32 goals scored and only nine conceded`\
 https://nytimes.com/athletic/6759361/2025/10/30/newcastle-681-days-carabao-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/30/crosswords/spelling-bee-forum.html
 **How a Former Trump Golf Club Worker Was Mistakenly Deported to Mexico**\
 `When Alejandro Juarez was returned to his homeland, federal agents told him that they were just following orders. Those orders were wrong.`\
 https://nytimes.com/2025/10/30/nyregion/immigrant-wrongly-deported-mexico.html
-
-**Your Guide to the 2025 New York City Marathon**\
-`Everything you need to know about Sunday’s five-borough race.`\
-https://nytimes.com/2025/10/30/nyregion/2025-nyc-marathon-guide.html
 
