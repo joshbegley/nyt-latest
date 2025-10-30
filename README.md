@@ -1,3 +1,7 @@
+**How the NFL uses ‘expedited review’ to change officiating decisions during games**\
+`Inside the NFL's 'replay nirvana,' the league attempts to increase the accuracy of its calls while keeping game times down?`\
+https://nytimes.com/athletic/6760613/2025/10/30/nfl-expedited-review-process-referees-officials/
+
 **Here’s How Much Obamacare Prices Are Rising Across the Country**\
 `The new prices make it official: Americans will need to pay more for insurance next year if extra subsidies are allowed to expire.`\
 https://nytimes.com/interactive/2025/10/30/upshot/obamacare-subsidies-new-prices.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/30/us/politics/food-stamps-shutdown.html
 **Soybean Farmers Find Relief in U.S. Trade Truce With China**\
 `President Trump said China would end its boycott and resume buying millions of tons of American soybeans.`\
 https://nytimes.com/2025/10/30/business/economy/soybean-farmers-us-china-truce.html
-
-**John Wall joins Wizards broadcast team**\
-`Wall was named to five All-Star teams during his Wizards tenure and he holds the franchise career records for assists.`\
-https://nytimes.com/athletic/6763278/2025/10/30/john-wall-wizards-broadcast/
 
