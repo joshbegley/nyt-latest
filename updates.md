@@ -1,3 +1,7 @@
+**Emery doubling down on tried and trusted Villa players is a sign of focus on here and now**\
+`The Villa head coach relies on loyalty and, after a tough start, believes relying on trusted players will bring success`\
+https://nytimes.com/athletic/6756317/2025/10/30/unai-emery-aston-villa-contracts/
+
 **Nine games, seven goals: Why is Sarr so effective against Liverpool?**\
 `Two more goals in the Carabao Cup extended his remarkable record against the Premier League champions`\
 https://nytimes.com/athletic/6760075/2025/10/30/ismaila-sarr-liverpool-palace/
