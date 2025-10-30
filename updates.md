@@ -1,3 +1,7 @@
+**Federal Airport Workers Collect Food Aid**\
+`As growing numbers of federal aviation workers missed paychecks nearly a month into the government shutdown, some began collecting food assistance.`\
+https://nytimes.com/video/us/politics/100000010490265/federal-airport-workers-collect-food-aid.html
+
 **Cuomo Says Mamdani Could ‘Kill’ New York and Democratic Party if Elected**\
 `In an interview with the sports host Stephen A. Smith, former Gov. Andrew M. Cuomo offered a dark prophecy for a Mamdani mayoralty.`\
 https://nytimes.com/2025/10/29/nyregion/cuomo-mamdani-democrats-nyc-mayor.html
