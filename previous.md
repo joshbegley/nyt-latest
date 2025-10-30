@@ -1,3 +1,7 @@
+**French Police Arrest 5 More in Louvre Robbery Investigation**\
+`The authorities have detained seven suspects in total, but have not recovered the stolen jewels`\
+https://nytimes.com/2025/10/30/world/europe/louvre-heist-arrests-paris.html
+
 **Revisiting 18 NFL trades at last year's deadline: Several solid moves, but a bunch of duds**\
 `As teams try to make their postseason push, a reminder: History suggests midseason trades are far from a lock to help bolster a roster.`\
 https://nytimes.com/athletic/6760070/2025/10/30/nfl-trade-deadline-2024-best-worst-trades/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/30/world/asia/trump-asia-summit-food.html
 **Centrist Party Ties Dutch Election as Far-Right Party Loses Seats**\
 `The socially progressive Democrats 66 were neck and neck with the far-right party of Geert Wilders, who faced a significant setback in an election he forced.`\
 https://nytimes.com/2025/10/30/world/europe/dutch-elections-geert-wilders-rob-jetten.html
-
-**Surreal Creatures Gather at Michigan’s Cranbrook Art Museum**\
-`Plus: a new book from Chantal Joffe and Olivia Laing, satin flats for holiday parties and more recommendations from T Magazine.`\
-https://nytimes.com/2025/10/30/t-magazine/haas-brothers-cranbrook-art-museum.html
 
