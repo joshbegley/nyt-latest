@@ -1,3 +1,7 @@
+**gws-bringing-new-life-to-empty-subway-shops**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/bringing-new-life-to-empty-subway-shops
+
 **Juventus have a smart new coach in Luciano Spalletti - now the club needs to get its act together**\
 `Juventus have a new coach but the executive leadership has come in for a lot of criticism as the spirit of the club has faded`\
 https://nytimes.com/athletic/6759612/2025/10/30/juventus-spalletti-coach/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6763001/2025/10/30/alfie-whiteman-tottenham-retirem
 **NCAA penalizes former CMU coach McElwain, 3 others in Stalions case**\
 `CMU agreed to a series of NCAA penalties for the actions of staff members who arranged for Connor Stalions to gain sideline access.`\
 https://nytimes.com/athletic/6763777/2025/10/30/ncaa-penalties-connor-stalions-central-michigan/
-
-**Was Arne Slot right about Liverpool's squad size and his '15-16' available players?**\
-`Arne Slot's comments drew a critical reaction and may be disrespectful to some players but the evidence suggests he was being accurate`\
-https://nytimes.com/athletic/6763446/2025/10/30/arne-slot-liverpool-squad-size/
 
