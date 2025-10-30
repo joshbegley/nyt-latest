@@ -1,3 +1,7 @@
+**Why Trump’s Boat Killings Would Be Hard to Prosecute**\
+`Even if critics who call President Trump’s boat attacks “murder” are right as a matter of law, it would not be easy to get the matter into a court.`\
+https://nytimes.com/2025/10/30/us/politics/trump-boat-killings-prosecutions.html
+
 **Islanders scratch Mathew Barzal for being late: 'That’s the culture of our team'**\
 `Barzal will not play in the Islanders' game Thursday night against the Hurricanes after showing up late to a morning practice.`\
 https://nytimes.com/athletic/6763821/2025/10/30/islanders-mathew-barzal-scratch-hurricanes/
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/athletic/tudor/adpost.html
 **The World Has Again Failed to Prevent Atrocities in Darfur**\
 `Reports are emerging of atrocities in Darfur. The Trump and Biden administrations could have tried harder to prevent them.`\
 https://nytimes.com/2025/10/30/opinion/rsf-el-fasher-darfur.html
-
-**Far Right Projected to Lose Ground to the Center Left in Dutch Election**\
-`In a major loss for Geert Wilders’s far-right, his populist Party for Freedom was poised to lose ground to the socially progressive Democrats 66 of Rob Jetten after Wednesday’s Dutch election. Mr. Jetten, 38, could take the first chance to form a new government.`\
-https://nytimes.com/video/world/europe/100000010490960/wilders-loss-dutch-elections.html
 
