@@ -1,3 +1,7 @@
+**NCAA basketball tournaments will use player availability reports**\
+`The NCAA says that player availability reports aim to protect player "well-being and competition integrity from sports betting influences."`\
+https://nytimes.com/athletic/6764840/2025/10/30/ncaa-player-availability-reports-betting-march-madness/
+
 **Luka Dončić could return for Lakers at NBA Cup Friday**\
 `Dončić has missed the Lakers' last three games after scoring 49 points in the team’s first win of the season last week against Minnesota.`\
 https://nytimes.com/athletic/6764789/2025/10/30/luka-doncic-lakers-return-injury-nba-cup/
