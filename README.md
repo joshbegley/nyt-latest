@@ -1,3 +1,11 @@
+**Trump Officials Move Into Military Residences in D.C. Area**\
+`Defense Secretary Pete Hegseth moved into a home at Fort McNair traditionally reserved for the Army’s vice chief of staff. Secretary of State Marco Rubio and others also now live in military housing.`\
+https://nytimes.com/2025/10/30/us/politics/trump-officials-military-housing.html
+
+**Comey Attacks Perjury and Obstruction Charges in New Motions**\
+`The court filings added to the legal challenges that James B. Comey’s defense team has already raised against the indictment.`\
+https://nytimes.com/2025/10/30/us/politics/james-comey-trump-justice-dept-charges.html
+
 **Pro-Cuomo PAC Tells Donors Mayor’s Race Is Still ‘Very Winnable’**\
 `The committee, Put NYC First, urged donors to keep giving money to help Andrew M. Cuomo’s independent campaign despite new polling suggesting that the Democratic candidate, Zohran Mamdani, is ahead.`\
 https://nytimes.com/2025/10/30/nyregion/cuomo-pac-election-mamdani.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/30/us/politics/louisiana-snap-benefit-cuts.html
 **Who Is Watching the Watchers?**\
 `The U.S. government doesn’t — and technically can’t — watch citizens every minute of every day. Palantir’s C.T.O. thinks the world would be safer if that ability were controlled, but still existed.`\
 https://nytimes.com/video/opinion/100000010478098/who-is-watching-the-watchers.html
-
-**Palantir’s C.T.O. on ICE: ‘People Voted on This’**\
-`Disagreement over how the Trump administration has approached deportations “is the beauty of the political process,” Palantir’s C.T.O., Shyam Sankar, argues on “Interesting Times.”`\
-https://nytimes.com/video/opinion/100000010478100/palantirs-cto-on-ice-people-voted-on-this.html
-
-**Marthe Gautier, 96, Dies; Had Key Role in Down Syndrome Breakthrough**\
-`She had to fight for recognition after a male colleague took credit for her work in identifying an extra chromosome as the cause of that genetic condition.`\
-https://nytimes.com/2025/10/30/health/marthe-gautier-dead.html
 
