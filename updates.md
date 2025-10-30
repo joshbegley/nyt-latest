@@ -1,3 +1,27 @@
+**Nine games, seven goals: Why is Sarr so effective against Liverpool?**\
+`Two more goals in the Carabao Cup extended his remarkable record against the Premier League champions`\
+https://nytimes.com/athletic/6760075/2025/10/30/ismaila-sarr-liverpool-palace/
+
+**Brighton's silverware blow, frustration for Boscagli but a step forward for Baleba**\
+`One of the club's ambitions is to win a trophy but a potential route to success was closed off with defeat at Arsenal in the Carabao Cup`\
+https://nytimes.com/athletic/6756896/2025/10/30/brighton-arsenal-carabao-cup-baleba/
+
+**What happened after Tony Adams said: 'I’m an alcoholic' - 'Tony has changed lives. He has saved lives'**\
+`It is 25 years since the former England and Arsenal captain founded the Sporting Chance Clinic, helping athletes with addiction problems`\
+https://nytimes.com/athletic/6756901/2025/10/30/tony-adams-addiction/
+
+**The Alternative Premier League Table: No 10 - Which new faces are delivering goals for their teams?**\
+`A look at how each Premier League club's new additions have performed in front of goal so far this season`\
+https://nytimes.com/athletic/6759731/2025/10/30/the-alternative-premier-league-table-new-players-scoring-goals/
+
+**Mookie Betts after World Series Game 5: 'I've just been terrible'**\
+`The star shortstop is now 3-for-23 in this World Series and has just nine hits in 55 at-bats since the Wild Card Series.`\
+https://nytimes.com/athletic/6762241/2025/10/30/mookie-betts-dodgers-world-series/
+
+**Austin Reaves' buzzer-beater lifts short-handed Lakers past Timberwolves**\
+`In the game's most important moment, Reaves called his own number.`\
+https://nytimes.com/athletic/6762260/2025/10/30/austin-reaves-buzzer-beater-lakers-timberwolves/
+
 **FPL: The Premier League fixture swings to target for Gameweek 10**\
 `Using insights from the fixture ticker, recent form, and underlying data, here are the clubs (and players) that have the best schedules`\
 https://nytimes.com/athletic/6758176/2025/10/30/fantasy-premier-league-gameweek-10-tips-fpl/
