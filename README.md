@@ -8,7 +8,7 @@ https://nytimes.com/athletic/6763902/2025/10/30/chauncey-billups-hires-attorney-
 
 **Chasing gold now comes with $100K for U.S. Olympic and Paralympic athletes**\
 `Elite athletes who spend their young adulthood training will now have access to grant funding and life insurance after they retire.`\
-https://nytimes.com/athletic/6763541/2025/10/30/u-s-olympic-and-paralympic-athletes-to-get-100000-for-making-the-team/
+https://nytimes.com/athletic/6763541/2025/10/30/u-s-olympic-paralympic-athletes-payments/
 
 **OKC Thunder's Nikola Topić diagnosed with testicular cancer**\
 `GM Sam Presti said doctors are optimistic about Topić's condition and recommended he begin chemotherapy.`\
