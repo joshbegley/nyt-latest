@@ -1,3 +1,7 @@
+**Older New Yorkers Brace for Food Stamp Cuts: ‘I’m Just Praying’**\
+`The SNAP program is losing federal funding on Saturday. Many older people won’t be able to easily line up at food pantries or go out and get second jobs.`\
+https://nytimes.com/2025/10/30/nyregion/nyc-snap-food-stamps-shutdown.html
+
 **Miami**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-miami
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6763902/2025/10/30/chauncey-billups-hires-attorney-
 **Chasing gold now comes with $100K for U.S. Olympic and Paralympic athletes**\
 `Elite athletes who spend their young adulthood training will now have access to grant funding and life insurance after they retire.`\
 https://nytimes.com/athletic/6763541/2025/10/30/u-s-olympic-paralympic-athletes-payments/
-
-**OKC Thunder's Nikola Topić diagnosed with testicular cancer**\
-`GM Sam Presti said doctors are optimistic about Topić's condition and recommended he begin chemotherapy.`\
-https://nytimes.com/athletic/6763885/2025/10/30/okc-thunder-nikola-topic-testicular-cancer/
 

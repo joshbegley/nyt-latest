@@ -1,3 +1,11 @@
+**Miami**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/things-to-do-miami
+
+**Lawsuit alleges UCLA plans to move home football games from Rose Bowl to SoFi Stadium**\
+`UCLA said they would be able to generate $15-$25 million more in revenue if they moved to SoFi Stadium, which has suite and club seating. `\
+https://nytimes.com/athletic/6762331/2025/10/30/rose-bowl-lawsuit-ucla-sofi-stadium/
+
 **What Teenagers Are Saying About Being ‘Cringe’**\
 `In response to an article about “climbing cringe mountain,” students discuss embarrassment, surveillance and finding the courage to be themselves.`\
 https://nytimes.com/2025/10/30/learning/what-teenagers-are-saying-about-being-cringe.html
