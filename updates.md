@@ -1,3 +1,11 @@
+**Sean Combs Transferred to Federal Prison in New Jersey**\
+`The music mogul was sentenced earlier this month to 50 months in prison for two counts of transportation to engage in prostitution.`\
+https://nytimes.com/2025/10/30/arts/music/sean-combs-diddy-prison.html
+
+**Mamdani Leads in Latest Polls**\
+`Three new polls show Zohran Mamdani leading the New York City mayoral race. The two other major candidates, Andrew Cuomo and Curtis Sliwa, made their last appeals to voters before election day.`\
+https://nytimes.com/video/us/elections/100000010491269/new-york-city-election-polls.html
+
 **Mamdani Leads in Latest Polls**\
 `Three new polls show Zohran Mamdani leading the New York City mayoral race. The two other major candidates, Andrew Cuomo and Curtis Sliwa, are made their last appeals to voters before election day.`\
 https://nytimes.com/video/us/elections/100000010491269/new-york-city-election-polls.html
