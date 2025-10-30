@@ -1,3 +1,11 @@
+**Chiefs trade deadline primer: Here are the positions K.C. is most likely to target**\
+`The Chiefs, for a change, might not be active before the NFL trade deadline. But they're most likely to listen on two positions.`\
+https://nytimes.com/athletic/6760612/2025/10/30/chiefs-trade-deadline-targets/
+
+**Ravens at Dolphins on TNF: Spooky showdown in Miami, with curses old and new**\
+`Lamar Jackson and Tua Tagovailoa take the field on Thursday night. Like your football with omens? This matchup delivers.`\
+https://nytimes.com/athletic/6760608/2025/10/30/ravens-dolphins-tnf-lamar-jackson-how-to-watch/
+
 **Panthers' OL depth will be tested with Bryce Young expected to return vs. Packers**\
 `Right tackle Taylor Moton hopes to play Sunday. Guard Chandler Zavala expects to be activated from injured reserve before the game.`\
 https://nytimes.com/athletic/6761342/2025/10/30/panthers-offensive-line-bryce-young-packers/

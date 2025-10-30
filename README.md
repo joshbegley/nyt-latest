@@ -1,3 +1,23 @@
+**The Pulse: The Blue Jays flap closer to a title**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6759877/2025/10/30/blue-jays-dodgers-trey-yesavage-the-pulse/
+
+**Dwayne ‘The Rock Johnson’ Is Finally Going There**\
+`Wesley talks to Sam Anderson, who recently spent a day with Johnson for the New York Times Magazine.`\
+https://nytimes.com/video/podcasts/100000010484062/dwayne-the-rock-johnson-is-finally-going-there.html
+
+**Behind John Tavares’ fanatical drive to 500 NHL goals with the Leafs**\
+`Nothing about Tavares' journey to becoming the 49th player in NHL history to score 500 career goals happened by accident.`\
+https://nytimes.com/athletic/6753795/2025/10/30/john-tavares-maple-leafs-500-goals/
+
+**Frustration rises in Minnesota after Timberwolves stumble again: 'There's no excuse'**\
+`Defense and point guard play are two major issues for the Wolves, who lost to a Lakers team missing LeBron James and Luka Dončić.`\
+https://nytimes.com/athletic/6761946/2025/10/30/timberwolves-defense-point-guards-lakers/
+
+**After dominant Game 5, the Blue Jays head home for a moment 32 years in the making**\
+`Nobody in the Blue Jays’ lineup for Game 5 of the World Series, an emphatic 6-1 thumping of the Dodgers, was alive in 1993.`\
+https://nytimes.com/athletic/6762547/2025/10/30/toronto-blue-jays-world-series-moment/
+
 **Chiefs trade deadline primer: Here are the positions K.C. is most likely to target**\
 `The Chiefs, for a change, might not be active before the NFL trade deadline. But they're most likely to listen on two positions.`\
 https://nytimes.com/athletic/6760612/2025/10/30/chiefs-trade-deadline-targets/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6762009/2025/10/30/lions-trade-deadline-injuries-po
 **Carson Wentz: 'I knew what I was signing up for' in facing Chargers with torn labrum**\
 `Wentz took the heat off coach Kevin O'Connell, who was under fire for leaving him in the game. Now, the job goes back to J.J. McCarthy.`\
 https://nytimes.com/athletic/6761387/2025/10/30/carson-wentz-injury-kevin-oconnell-jj-mccarthy/
-
-**The power of a handwritten letter: Why a college basketball coach writes hundreds every month**\
-`Even if it takes more time, some coaches like Buzz Williams see value in writing by hand. Research suggests they might be on to something.`\
-https://nytimes.com/athletic/6760986/2025/10/30/buzz-williams-college-basketball-handwritten-letters-maryland/
-
-**Rosenthal: As the Dodgers face elimination, their deficiencies are showing up everywhere**\
-`Of the 31 teams that previously faced a three games to two deficit in the World Series, only eight came back to win.`\
-https://nytimes.com/athletic/6762468/2025/10/30/los-angeles-dodgers-world-series-elimination/
-
-**Pete Alonso vs. Kyle Schwarber, Alex Bregman interest and more: Red Sox mailbag, Part 1**\
-`Will Boston have to far outbid other teams for Bregman, and how would Alonso and Schwarber fit in the Red Sox lineup?`\
-https://nytimes.com/athletic/6760754/2025/10/30/red-sox-free-agent-options-alonso-schwarber-bregman/
-
-**What's Trending in the NFL: Injuries that have shaped the NFL landscape in 2025**\
-`Even if it gave us a fun roller-coaster ride in Joe Flacco, the Bengals losing Joe Burrow was a cruel twist of fate.`\
-https://nytimes.com/athletic/6761280/2025/10/30/nfl-trends-week-9-2025-injuries/
-
-**NHL’s scariest starts: Players starting the 2025-26 season terrifyingly slow**\
-`It’s time for our annual roster of the NHL’s scariest starts, relative to expectations.`\
-https://nytimes.com/athletic/6759904/2025/10/30/nhl-slow-starts-2025-26/
 
