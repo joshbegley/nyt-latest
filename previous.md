@@ -1,3 +1,27 @@
+**Mamdani Seeks to Freeze Rents on Stabilized Units. What About the Rest?**\
+`Some three million New Yorkers live in apartments with rent levels set by the market. They would not benefit from Mr. Mamdani’s rent freeze.`\
+https://nytimes.com/2025/10/30/nyregion/mamdani-freeze-rent-apartments.html
+
+**How Do You Feel About Travel Right Now? We Want to Hear From You.**\
+`We’re curious about how you are making travel decisions in a time of economic uncertainty, more premium services and the expanding reach of loyalty programs.`\
+https://nytimes.com/2025/10/30/travel/travel-economy-airlines-loyalty-programs.html
+
+**Six Arrested in Robbery of Precious-Metal Refinery in France**\
+`The robbers used explosives to gain entry to a precious-metal company in Lyon, French officials said. The police recovered the items.`\
+https://nytimes.com/2025/10/30/world/europe/gold-robbery-lyon-france.html
+
+**Chiang Mai, Thailand**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/things-to-do-chiang-mai
+
+**U.S. Says It Is Prepared to Aid Cuba After Extensive Hurricane Damage**\
+`Secretary of State Marco Rubio said the State Department had issued a formal Declaration of Humanitarian Assistance for Cuba, where U.S. government aid is rare.`\
+https://nytimes.com/2025/10/30/weather/cuba-hurricane-melissa-us-aid-rubio.html
+
+**Art Gallery Shows to See in November**\
+`This week in Newly Reviewed, Jillian Steinhauer covers E.E. Ikeler’s cosmic diagrams, Veronica Ryan’s resolute casualness, Tega Brain and Sam Lavigne’s climate change interventions.`\
+https://nytimes.com/2025/10/30/arts/art-gallery-shows-to-see-in-november.html
+
 **Unrivaled women's basketball league announces 8 head coaches, 3 new players**\
 `The league announced a number of significant changes ahead of its second year.`\
 https://nytimes.com/athletic/6764232/2025/10/30/unrivaled-basketball-coaches-players/
@@ -13,28 +37,4 @@ https://nytimes.com/newsgraphics/card-story/italy-umbria-new-hotels
 **Why Trump’s Talk About Nuclear Testing Is Dangerous**\
 `The president’s ambiguity on nuclear testing is worrisome not only because America’s public can’t know what he means, but because America’s adversaries don’t.`\
 https://nytimes.com/2025/10/30/opinion/trump-nuclear-testing-russia-china.html
-
-**F1 'Crashgate' 'one of the biggest scandals in sports history', says Felipe Massa’s lawyer**\
-`Nick De Marco KC, representing Massa, was speaking at the second day of the ‘Crashgate’ hearing at London’s High Court on Thursday.`\
-https://nytimes.com/athletic/6764002/2025/10/30/f1-crashgate-felipe-massa/
-
-**Pumpkins or Zombies: How Scary Should Halloween Be?**\
-`Smiling jack-o’-lanterns and spooky ghosts are being upstaged by towering skeletons and dismembered bodies. Are you a fan of the trend toward bigger and scarier?`\
-https://nytimes.com/2025/10/30/learning/pumpkins-or-zombies-how-scary-should-halloween-be.html
-
-**MLBPA bans agent Jim Murray over double dealing with MLB during 2020 COVID negotiations**\
-`The MLBPA alleged the prominent agent revealed confidential union information to the league office and helped MLB craft proposals. `\
-https://nytimes.com/athletic/6761313/2025/10/30/mlbpa-bans-agent-jim-murray-double-dealing/
-
-**A Meteorologist Explains Hurricane Melissa**\
-`The hurricane that tore through the Caribbean this week broke records, rapidly intensifying and surprising some meteorologists.`\
-https://nytimes.com/2025/10/30/climate/a-meteorologist-explains-hurricane-melissa.html
-
-**Democrats Condemn Trump Administration for Secrecy on Boat Strikes**\
-`Senator Mark Warner said the administration’s decision to hold a Republicans-only briefing on the campaign was “corrosive to our democracy.”`\
-https://nytimes.com/2025/10/30/us/politics/trump-democrats-boat-strikes.html
-
-**Ted Huffman, Director and Writer, to Lead Major Opera Festival**\
-`The Aix-en-Provence Festival in France has named Huffman to succeed the visionary Pierre Audi, who died earlier this year.`\
-https://nytimes.com/2025/10/30/arts/music/ted-huffman-aix-festival.html
 

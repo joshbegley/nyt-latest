@@ -8,7 +8,7 @@ https://nytimes.com/2025/10/30/travel/travel-economy-airlines-loyalty-programs.h
 
 **Six Arrested in Robbery of Precious-Metal Refinery in France**\
 `The robbers used explosives to gain entry to a precious-metal company in Lyon, French officials said. The police recovered the items.`\
-https://nytimes.com/2025/10/30/world/europe/gold-robbery-lyon-france.html
+https://nytimes.com/2025/10/30/world/europe/robbery-lyon-france.html
 
 **Chiang Mai, Thailand**\
 `(No description)`\
