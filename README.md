@@ -1,3 +1,23 @@
+**Ultra-Orthodox Community Protests Israel’s Military Draft**\
+`Hundreds of thousands of ultra-Orthodox Jews demonstrated against the military draft in Israel.`\
+https://nytimes.com/video/world/middleeast/100000010491967/israel-ultra-orthodox-demonstration-military-draft.html
+
+**6 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2025/10/30/books/review/new-recommended-books.html
+
+**I Now Mispronounce You the Likely Next Mayor of New York City**\
+`A lot of people seem to trip over Zohran Mamdani’s name. The reason may not be as simple as it seems.`\
+https://nytimes.com/2025/10/30/opinion/mispronouncing-mamdani.html
+
+**What’s Going On in This Graph? | Nov. 5, 2025**\
+`What do you notice about how much it costs the U.S. government to make a penny, nickel, dime and quarter? What questions does this graph raise for you?`\
+https://nytimes.com/2025/10/30/learning/whats-going-on-in-this-graph-nov-5-2025.html
+
+**What’s Going On in This Picture? | Nov. 3, 2025**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2025/10/30/learning/whats-going-on-in-this-picture-nov-3-2025.html
+
 **Trump Rule Could Bar Some Public Servants From Student Loan Forgiveness**\
 `A new rule could disqualify certain employers from the Public Service Loan Forgiveness program that are deemed to be engaged in “illegal activities.”`\
 https://nytimes.com/2025/10/30/business/trump-student-loan-forgiveness-public-service.html
@@ -13,28 +33,4 @@ https://nytimes.com/athletic/6763925/2025/10/30/cowboys-defense-problems-matt-eb
 **Until Saturday: At LSU, weird is once again the norm**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6764067/2025/10/30/lsu-coaching-search-jeff-landry-until-saturday/
-
-**Older New Yorkers Brace for Food Stamp Cuts: ‘I’m Just Praying’**\
-`The SNAP program is losing federal funding on Saturday. Many older people won’t be able to easily line up at food pantries or go out and get second jobs.`\
-https://nytimes.com/2025/10/30/nyregion/nyc-snap-food-stamps-shutdown.html
-
-**Miami**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/things-to-do-miami
-
-**What Teenagers Are Saying About Being ‘Cringe’**\
-`In response to an article about “climbing cringe mountain,” students discuss embarrassment, surveillance and finding the courage to be themselves.`\
-https://nytimes.com/2025/10/30/learning/what-teenagers-are-saying-about-being-cringe.html
-
-**Submit your questions for The Athletic’s ACC football mailbag**\
-`<p>We head into the final month of the regular season with Georgia Tech and Virginia a combined 9-0 in the ACC and Florida State and North Carolina a combined 0-7.`\
-https://nytimes.com/athletic/6764054/2025/10/30/submit-your-questions-for-the-athletics-acc-football-mailbag-15/
-
-**Lawsuit alleges UCLA plans to move home football games from Rose Bowl to SoFi Stadium**\
-`Lawsuit claims a move would bring harm to Pasadena and its residents that "could easily exceed a billion dollars."`\
-https://nytimes.com/athletic/6762331/2025/10/30/rose-bowl-lawsuit-ucla-sofi-stadium/
-
-**NFL best bets Week 9: Picking a side in the Chiefs-Bills showdown**\
-`Austin Mock uses his NFL projection model to pick out a handful of bets for Week 9.`\
-https://nytimes.com/athletic/6763906/2025/10/30/nfl-best-bets-week-9-chiefs-bills/
 
