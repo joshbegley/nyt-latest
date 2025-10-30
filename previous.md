@@ -1,3 +1,7 @@
+**Luka Dončić could return for Lakers at NBA Cup Friday**\
+`Dončić has missed the Lakers' last three games after scoring 49 points in the team’s first win of the season last week against Minnesota.`\
+https://nytimes.com/athletic/6764789/2025/10/30/luka-doncic-lakers-return-injury-nba-cup/
+
 **‘Trees in Hot Tubs’: Riding Out Hurricane Melissa at a Beach Resort**\
 `A Texas woman stranded in Jamaica with her family described what it was like to experience the catastrophic storm while sheltering at a Sandals resort.`\
 https://nytimes.com/2025/10/30/travel/hurricane-melissa-jamaica-resort.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/elections/100000010491269/new-york-city-election-po
 **Executions and Mass Casualties: Videos Show Horror Unfolding in Sudan**\
 `Evidence of atrocities emerging from the city of El Fasher stoked fears that the Sudanese region of Darfur is plunging, once again, into a cycle of genocidal violence.`\
 https://nytimes.com/2025/10/30/world/africa/sudan-el-fasher-atrocities-executions-video.html
-
-**Trump Officials Move Into Military Residences in D.C. Area**\
-`Defense Secretary Pete Hegseth moved into a home at Fort McNair traditionally reserved for the Army’s vice chief of staff. Secretary of State Marco Rubio and others also now live in military housing.`\
-https://nytimes.com/2025/10/30/us/politics/trump-officials-military-housing.html
 
