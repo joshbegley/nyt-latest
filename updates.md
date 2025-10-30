@@ -1,3 +1,15 @@
+**This is the Cade Cunningham the Pistons need**\
+`Looking like the All-NBA version of himself, Cunningham went off for 30 points, 10 assists and six rebounds on Wednesday.`\
+https://nytimes.com/athletic/6762301/2025/10/30/cade-cunningham-pistons-magic-win/
+
+**Lavelle is a ‘magician’ for USWNT and Gotham – and now her leadership is casting a spell**\
+`As the second-most capped player for the U.S. this international window, Lavelle found herself navigating a newfound guidance role`\
+https://nytimes.com/athletic/6762476/2025/10/30/rose-lavelle-generational-talent-uswnt-gotham/
+
+**Is Blues' core broken? Should they demote Logan Mailloux? Stop blending lines? Mailbag, part 1**\
+`Plus, debating options for the power play, including newly called-up Dalibor Dvorsky, and the best plan for Logan Mailloux.`\
+https://nytimes.com/athletic/6757193/2025/10/30/blues-core-montgomery-lines-mailbag/
+
 **China’s Pause on Rare Earth Controls: What to Know**\
 `China has suspended export controls announced this month, but was conspicuously silent about rules imposed earlier, which are snarling global supply chains.`\
 https://nytimes.com/2025/10/30/business/china-rare-earth-export-controls.html
