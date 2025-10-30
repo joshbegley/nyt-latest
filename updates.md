@@ -1,3 +1,11 @@
+**Everton's academy is in transition. Is it on course to deliver 'homegrown superstars'?**\
+`The U18s' victory over Liverpool on Wednesday was the latest encouraging sign, but there is plenty of change going on behind the scenes`\
+https://nytimes.com/athletic/6762866/2025/10/30/everton-academy-youth-liverpool/
+
+**Packers mailbag: Submit your questions for beat writer Matt Schneidman**\
+`Share what's on your mind as Green Bay prepares to host the Carolina Panthers on Sunday.`\
+https://nytimes.com/athletic/6763220/2025/10/30/packers-mailbag-questions-matt-schneidman-panthers/
+
 **What we learned about the NHL in October: The Sam Reinhart problem, Mammoth's hot start**\
 `Plus, an Avalanche of power-play goals, Dylan Larkin the faceoff specialist and Ivan Demidov and Lane Hutson’s chemistry.`\
 https://nytimes.com/athletic/6761113/2025/10/30/nhl-panthers-sam-reinhart/

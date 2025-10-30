@@ -1,3 +1,11 @@
+**Everton's academy is in transition. Is it on course to deliver 'homegrown superstars'?**\
+`The U18s' victory over Liverpool on Wednesday was the latest encouraging sign, but there is plenty of change going on behind the scenes`\
+https://nytimes.com/athletic/6762866/2025/10/30/everton-academy-youth-liverpool/
+
+**Packers mailbag: Submit your questions for beat writer Matt Schneidman**\
+`Share what's on your mind as Green Bay prepares to host the Carolina Panthers on Sunday.`\
+https://nytimes.com/athletic/6763220/2025/10/30/packers-mailbag-questions-matt-schneidman-panthers/
+
 **What we learned about the NHL in October: The Sam Reinhart problem, Mammoth's hot start**\
 `Plus, an Avalanche of power-play goals, Dylan Larkin the faceoff specialist and Ivan Demidov and Lane Hutson’s chemistry.`\
 https://nytimes.com/athletic/6761113/2025/10/30/nhl-panthers-sam-reinhart/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/30/business/kpop-demon-hunters-halloween-costume.htm
 **After seeking LeBron James' advice, Jaylen Brown teases new 'haircut' on stream**\
 `Jaylen Brown on why he is balding: "I blame Boston. Ten years of stress, the media, the championships."`\
 https://nytimes.com/athletic/6761341/2025/10/30/jaylen-brown-hair-dye-lebron/
-
-**Growing up is hard to do but fun to watch: Evaluating the Sharks' first 10 games**\
-`Over the start of the 2025-26 season, the Sharks have looked good, bad and everything in between.`\
-https://nytimes.com/athletic/6761940/2025/10/30/san-jose-sharks-10-games-celebrini-askarov-misa/
-
-**Calley Means, a Kennedy Adviser, Has Left the White House**\
-`Mr. Means quietly departed his federal role about a month ago. His sister has been nominated for surgeon general.`\
-https://nytimes.com/2025/10/30/health/calley-means-kennedy-adviser-departure.html
 
