@@ -1,3 +1,11 @@
+**Chasing gold now comes with $100K for U.S. Olympic and Paralympic athletes**\
+`Elite athletes who spend their young adulthood training will now have access to grant funding and life insurance after they retire.`\
+https://nytimes.com/athletic/6763541/2025/10/30/u-s-olympic-paralympic-athletes-payments/
+
+**Martin Nečas re-signs with Avalanche for 8 years, $11.5 million AAV — Here's how it got done**\
+`Nečas is off to an excellent start this season, with seven goals and six assists in 11 games.`\
+https://nytimes.com/athletic/6763910/2025/10/30/martin-necas-contract-avalanche/
+
 **Patricia Crowther, Who Brought Witchcraft Out of the Shadows, Dies at 97**\
 `As a high priestess of Wicca, a branch of modern paganism founded in England, she promoted an image of witches as early feminists who were benevolent and spiritual.`\
 https://nytimes.com/2025/10/30/style/patricia-crowther-dead.html
