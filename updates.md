@@ -1,3 +1,7 @@
+**Prince Andrew to Be Stripped of His Royal Title**\
+`The extraordinary move caps his fall from grace over his ties to the convicted sexual predator Jeffrey Epstein.`\
+https://nytimes.com/2025/10/30/world/europe/uk-prince-andrew-title.html
+
 **Ultra-Orthodox Community Protests Israel’s Military Draft**\
 `Hundreds of thousands of ultra-Orthodox Jews demonstrated against the military draft in Israel.`\
 https://nytimes.com/video/world/middleeast/100000010491967/israel-ultra-orthodox-demonstration-military-draft.html
