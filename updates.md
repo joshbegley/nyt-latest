@@ -1,3 +1,7 @@
+**Liverpool fans backed Arne Slot's selection gamble but patience is starting to run thin**\
+`Arne Slot's team lost 3-0 to Crystal Palace. The game against Aston Villa now feels huge`\
+https://nytimes.com/athletic/6761894/2025/10/30/liverpool-crystal-palace-analysis-arne-slot/
+
 **Nwaneri, a beautiful goal and a reminder of Arsenal's original record-breaker**\
 `It is easy forget how far Nwaneri has come at just 18, on nights like this, he and Lewis-Skelly become elder statesmen.`\
 https://nytimes.com/athletic/6761769/2025/10/30/arsenal-ehtna-nwaneri-max-dowman-hale-end/
