@@ -1,3 +1,7 @@
+**Man Utd have 'clear plan' to invest in and improve squad, Wilcox says**\
+`United committed an initial £216million (€245m, $284m) on five new players in the summer transfer window.`\
+https://nytimes.com/athletic/6762890/2025/10/30/manchester-united-jason-wilcox-mutv-interview/
+
 **Mamdani Holds Onto Strong Lead in Two New Polls Ahead of Election Day**\
 `One poll of likely voters, from Emerson College, showed Zohran Mamdani widening his lead over former Gov. Andrew M. Cuomo to 25 percentage points.`\
 https://nytimes.com/2025/10/30/nyregion/emerson-marist-poll-mamdani-nyc-mayor.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6760751/2025/10/30/fantasy-football-matchup-ranking
 **This is the Cade Cunningham the Pistons need**\
 `Looking like the All-NBA version of himself, Cunningham went off for 30 points, 10 assists and six rebounds on Wednesday.`\
 https://nytimes.com/athletic/6762301/2025/10/30/cade-cunningham-pistons-magic-win/
-
-**China’s Pause on Rare Earth Controls: What to Know**\
-`China has suspended export controls announced this month, but was conspicuously silent about rules imposed earlier, which are snarling global supply chains.`\
-https://nytimes.com/2025/10/30/business/china-rare-earth-export-controls.html
 
