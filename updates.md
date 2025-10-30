@@ -1,3 +1,11 @@
+**Raptors' poor starts, iffy rebounding are reasons for concern after fourth straight loss**\
+`Without Jakob Poeltl, the Raptors can't measure up to the Rockets, who had a 53-22 advantage in rebounds and won 139-121 on Wednesday.`\
+https://nytimes.com/athletic/6761994/2025/10/29/raptors-poor-starts-early-struggles/
+
+**USWNT 6, New Zealand 0: Emma Sears scores first professional hat trick**\
+`The U.S. scored the most goals in a single game under head coach Emma Hayes on Wednesday.`\
+https://nytimes.com/athletic/6761895/2025/10/29/uswnt-new-zealand-emma-sears-hat-trick/
+
 **Trump Meets China’s Xi**\
 `President Trump and China’s top leader, Xi Jinping, shook hands in Busan, South Korea, on Thursday.`\
 https://nytimes.com/video/admin/100000010490457/trump-xi-south-korea.html

@@ -1,3 +1,7 @@
+**Raptors' poor starts, iffy rebounding are reasons for concern after fourth straight loss**\
+`Without Jakob Poeltl, the Raptors can't measure up to the Rockets, who had a 53-22 advantage in rebounds and won 139-121 on Wednesday.`\
+https://nytimes.com/athletic/6761994/2025/10/29/raptors-poor-starts-early-struggles/
+
 **After morning meeting, Blue Jackets' checking line erupts to lead rout of Leafs**\
 `All three skaters on the Blue Jackets' third line set or matched career highs against the Leafs.`\
 https://nytimes.com/athletic/6761974/2025/10/29/blue-jackets-coyle-sillinger-olivier-leafs/
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/6761925/2025/10/29/kyle-singler-duke-basketball-thu
 https://nytimes.com/athletic/6762049/2025/10/29/blue-jays-trey-yesavage-world-series-rookie-record/
 
 **USWNT 6, New Zealand 0: Emma Sears scores first professional hat trick**\
-`The U.S. scored the most goals in a single game under Emma Hayes on Wednesday.`\
+`The U.S. scored the most goals in a single game under head coach Emma Hayes on Wednesday.`\
 https://nytimes.com/athletic/6761895/2025/10/29/uswnt-new-zealand-emma-sears-hat-trick/
 
 **Mirtle: Maple Leafs' difficult start to season takes disastrous turn in Columbus**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/admin/100000010490457/trump-xi-south-korea.html
 **Lower leg injury causes Anthony Davis to leave Mavericks-Pacers matchup**\
 `Davis was limited to nine games last season with the Mavericks due to an adductor strain.`\
 https://nytimes.com/athletic/6761980/2025/10/29/anthony-davis-mavericks-leg-injury/
-
-**She Said She Was Rescuing Chickens. A Jury Convicted Her of Conspiracy.**\
-`Zoe Rosenberg, a California animal rights activist, was found guilty of conspiracy and trespassing for taking four chickens from a poultry plant.`\
-https://nytimes.com/2025/10/29/us/animal-rights-activist-convicted-sonoma-chickens.html
 
