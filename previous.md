@@ -1,3 +1,7 @@
+**‘Trees in Hot Tubs’: Riding Out Hurricane Melissa at a Beach Resort**\
+`A Texas woman stranded in Jamaica with her family described what it was like to experience the catastrophic storm while sheltering at a Sandals resort.`\
+https://nytimes.com/2025/10/30/travel/hurricane-melissa-jamaica-resort.html
+
 **‘Bat Boy: The Musical’ Review: He’s Just Trying to Fit In**\
 `For its gala, New York City Center revives an antic show about a half-man tabloid sensation, with catchy music and lyrics by the versatile Laurence O’Keefe.`\
 https://nytimes.com/2025/10/30/theater/bat-boy-the-musical-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/30/world/africa/sudan-el-fasher-atrocities-execution
 **Trump Officials Move Into Military Residences in D.C. Area**\
 `Defense Secretary Pete Hegseth moved into a home at Fort McNair traditionally reserved for the Army’s vice chief of staff. Secretary of State Marco Rubio and others also now live in military housing.`\
 https://nytimes.com/2025/10/30/us/politics/trump-officials-military-housing.html
-
-**Comey Attacks Perjury and Obstruction Charges in New Motions**\
-`The court filings added to the legal challenges that James B. Comey’s defense team has already raised against the indictment.`\
-https://nytimes.com/2025/10/30/us/politics/james-comey-trump-justice-dept-charges.html
 

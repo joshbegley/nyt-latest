@@ -1,3 +1,7 @@
+**‘Trees in Hot Tubs’: Riding Out Hurricane Melissa at a Beach Resort**\
+`A Texas woman stranded in Jamaica with her family described what it was like to experience the catastrophic storm while sheltering at a Sandals resort.`\
+https://nytimes.com/2025/10/30/travel/hurricane-melissa-jamaica-resort.html
+
 **‘Bat Boy: The Musical’ Review: He’s Just Trying to Fit In**\
 `For its gala, New York City Center revives an antic show about a half-man tabloid sensation, with catchy music and lyrics by the versatile Laurence O’Keefe.`\
 https://nytimes.com/2025/10/30/theater/bat-boy-the-musical-review.html
