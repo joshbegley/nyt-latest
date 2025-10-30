@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6761925/2025/10/29/kyle-singler-duke-basketball-thu
 https://nytimes.com/athletic/6762049/2025/10/29/blue-jays-trey-yesavage-world-series-rookie-record/
 
 **USWNT 6, New Zealand 0: Emma Sears scores first professional hat trick**\
-`The U.S. scored the most goals in a single game under Emma Hayes on Wednesday.`\
+`The U.S. scored the most goals in a single game under head coach Emma Hayes on Wednesday.`\
 https://nytimes.com/athletic/6761895/2025/10/29/uswnt-new-zealand-emma-sears-hat-trick/
 
 **Mirtle: Maple Leafs' difficult start to season takes disastrous turn in Columbus**\
