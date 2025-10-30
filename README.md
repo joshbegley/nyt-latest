@@ -18,8 +18,8 @@ https://nytimes.com/athletic/6759448/2025/10/30/bournemouth-premier-league-analy
 `The star shortstop is now 3-for-22 in this World Series and has just nine hits in 55 at-bats since the Wild Card Series.`\
 https://nytimes.com/athletic/6762241/2025/10/30/mookie-betts-dodgers-world-series/
 
-**Austin Reaves buzzer beater lifts short-handed Lakers past Timberwolves**\
-`In the game’s most important moment, Reaves called his own number.`\
+**Austin Reaves' buzzer-beater lifts short-handed Lakers past Timberwolves**\
+`In the game's most important moment, Reaves called his own number.`\
 https://nytimes.com/athletic/6762260/2025/10/30/austin-reaves-buzzer-beater-lakers-timberwolves/
 
 **Here’s the latest.**\
