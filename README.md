@@ -1,3 +1,7 @@
+**Bonus Puzzles**\
+``\
+https://nytimes.com/spotlight/bonus-puzzles
+
 **Jamaicans face downed trees, ripped roofs and miles of mud after the powerful storm.**\
 `By Victor Mather`\
 https://nytimes.com/live/2025/10/30/weather/hurricane-melissa/jamaicans-face-downed-trees-ripped-roofs-and-miles-of-mud-after-the-powerful-storm
@@ -18,7 +22,7 @@ https://nytimes.com/2025/10/30/nyregion/washington-square-park-drugs.html
 `How a pioneering personalized therapy can change medical outcomes for patients with certain relapsed or refractory B-cell lymphomas.`\
 https://nytimes.com/paidpost/breyanzi-10-17/breyanzi/advancing-hope-in-the-fight-against-cancer.html
 
-**How the NFL uses ‘expedited review’ to change officiating decisions during games**\
+**How NFL uses ‘expedited review’ to change officiating decisions during games**\
 `Inside the NFL's 'replay nirvana,' the league attempts to increase the accuracy of its calls while keeping game times down?`\
 https://nytimes.com/athletic/6760613/2025/10/30/nfl-expedited-review-process-referees-officials/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6763537/2025/10/30/magic-vs-hornets-stream-how-to-w
 **How to watch Stars vs. Lightning: Time, TV, streaming**\
 `Find out how to watch the Dallas Stars play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6763534/2025/10/30/stars-vs-lightning-stream-how-to-watch-oct-30/
-
-**How to watch Sabres vs. Bruins: Time, TV, streaming**\
-`Find out how to watch the Buffalo Sabres play the Boston Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6763535/2025/10/30/sabres-vs-bruins-stream-how-to-watch-oct-30/
 
