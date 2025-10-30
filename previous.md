@@ -1,3 +1,7 @@
+**Puck Acquires Air Mail, a Newsletter Merger for the Well-Heeled Inbox**\
+`Graydon Carter, the legendary Vanity Fair editor who founded Air Mail, is leaving the company.`\
+https://nytimes.com/2025/10/30/business/media/puck-buys-airmail.html
+
 **Sean Combs Transferred to Federal Prison in New Jersey**\
 `The music mogul was sentenced earlier this month to 50 months in prison for two counts of transportation to engage in prostitution.`\
 https://nytimes.com/2025/10/30/arts/music/sean-combs-diddy-prison.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6764640/2025/10/30/betting-for-by-dummies-bills-ohi
 **Panthers' QB conundrum: Andy Dalton's thumb broken, Bryce Young's ankle progressing**\
 `Dalton played through the injury last week. Young says he continues to "feel better and better" after full day of practice.`\
 https://nytimes.com/athletic/6764615/2025/10/30/panthers-bryce-young-andy-dalton-injury-update/
-
-**Who Is Driving U.S. Attacks in the Caribbean?**\
-`What’s the main goal of the U.S. military buildup in the Caribbean, and who in the Trump administration is behind it? Anatoly Kurmanaev, a New York Times reporter who covered Venezuela, discusses with Katrin Bennhold what we know and don’t know.`\
-https://nytimes.com/video/world/americas/100000010488549/who-is-driving-us-attacks-in-the-caribbean.html
 

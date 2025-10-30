@@ -1,3 +1,7 @@
+**Puck Acquires Air Mail, a Newsletter Merger for the Well-Heeled Inbox**\
+`Graydon Carter, the legendary Vanity Fair editor who founded Air Mail, is leaving the company.`\
+https://nytimes.com/2025/10/30/business/media/puck-buys-airmail.html
+
 **Sean Combs Transferred to Federal Prison in New Jersey**\
 `The music mogul was sentenced earlier this month to 50 months in prison for two counts of transportation to engage in prostitution.`\
 https://nytimes.com/2025/10/30/arts/music/sean-combs-diddy-prison.html

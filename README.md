@@ -1,3 +1,7 @@
+**A Top Trump Official Had to Sell His Stock. He May Have Saved Millions.**\
+`Frank Bisignano, who holds top jobs at the Social Security Administration and the I.R.S., sold his stake in Fiserv before the company’s stock cratered this week.`\
+https://nytimes.com/2025/10/30/us/politics/frank-bisignano-fiserv-stock-price.html
+
 **Puck Acquires Air Mail, a Newsletter Merger for the Well-Heeled Inbox**\
 `Graydon Carter, the legendary Vanity Fair editor who founded Air Mail, is leaving the company.`\
 https://nytimes.com/2025/10/30/business/media/puck-buys-airmail.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/30/briefing/trump-nuclear-tests-prince-andrew-title.
 **Betting for (by) dummies: Why the Bills should cover and a traditional OSU-PSU under**\
 `Jon Greenberg and Zac Jackson place bets ahead of a busy weekend of football. Will their picks be treats or tricks?`\
 https://nytimes.com/athletic/6764640/2025/10/30/betting-for-by-dummies-bills-ohio-state/
-
-**Panthers' QB conundrum: Andy Dalton's thumb broken, Bryce Young's ankle progressing**\
-`Dalton played through the injury last week. Young says he continues to "feel better and better" after full day of practice.`\
-https://nytimes.com/athletic/6764615/2025/10/30/panthers-bryce-young-andy-dalton-injury-update/
 
