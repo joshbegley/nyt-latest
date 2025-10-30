@@ -1,3 +1,7 @@
+**Diego Leon scored a super goal for Man Utd U21s. So how is the first team's 'little brother' doing?**\
+`Bruno Fernandes and Casemiro are among the first-team players to have taken Diego Leon under their wing as he starts to find his feet`\
+https://nytimes.com/athletic/6760310/2025/10/30/diego-leon-manchester-united-highlights/
+
 **Nikola Jokić joins Oscar Robertson on short list for NBA history in Nuggets' blowout win over Pelicans**\
 `It wouldn't be an NBA season without Nikola Jokić finding ways to unique stuff the stat sheet.`\
 https://nytimes.com/athletic/6762061/2025/10/30/nikola-jokic-nuggets-triple-double-oscar-robertson-nba/
