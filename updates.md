@@ -1,3 +1,7 @@
+**'We are in dire straits' - Pub-goers of Wolverhampton on Vitor Pereira, Fosun and the future**\
+`The Wolves manager used to frequent local pubs, but that is no more. A cup defeat has now been added to a terrible start in the league.`\
+https://nytimes.com/athletic/6761818/2025/10/30/wolves-fosun-vitor-pereira/
+
 **Nwaneri, a beautiful goal and a night Arsenal's original record-breaker became elder statesman**\
 `It is easy forget how far Nwaneri has come, on nights like this, he leads the way for other Hale End stars like Dowman and Harriman-Annous`\
 https://nytimes.com/athletic/6761769/2025/10/30/arsenal-ehtna-nwaneri-max-dowman-hale-end/
