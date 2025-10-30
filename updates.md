@@ -1,3 +1,11 @@
+**Patricia Crowther, Who Brought Witchcraft Out of the Shadows, Dies at 97**\
+`As a high priestess of Wicca, a branch of modern paganism founded in England, she promoted an image of witches as early feminists who were benevolent and spiritual.`\
+https://nytimes.com/2025/10/30/style/patricia-crowther-dead.html
+
+**NBA coach Chauncey Billups hires defense attorney who worked for Trump, Giuliani**\
+`Marc Mukasey has defended several high-profile clients, including President Donald Trump and Aspiration co-founder Joseph Sanberg.`\
+https://nytimes.com/athletic/6763902/2025/10/30/chauncey-billups-hires-attorney-marc-mukasey/
+
 **Chasing gold now comes with $100K for U.S. Olympic and Paralympic athletes**\
 `Elite athletes who spend their young adulthood training will now have access to grant money and life insurance after they're retired.`\
 https://nytimes.com/athletic/6763541/2025/10/30/u-s-olympic-and-paralympic-athletes-to-get-100000-for-making-the-team/

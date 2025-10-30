@@ -7,7 +7,7 @@ https://nytimes.com/2025/10/30/style/patricia-crowther-dead.html
 https://nytimes.com/athletic/6763902/2025/10/30/chauncey-billups-hires-attorney-marc-mukasey/
 
 **Chasing gold now comes with $100K for U.S. Olympic and Paralympic athletes**\
-`Elite athletes who spend their young adulthood training will now have access to grant money and life insurance after they're retired.`\
+`Elite athletes who spend their young adulthood training will now have access to grant funding and life insurance after they retire.`\
 https://nytimes.com/athletic/6763541/2025/10/30/u-s-olympic-and-paralympic-athletes-to-get-100000-for-making-the-team/
 
 **OKC Thunder's Nikola Topić diagnosed with testicular cancer**\
@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6759612/2025/10/30/juventus-spalletti-coach/
 https://nytimes.com/interactive/2025/10/30/books/stephen-king-books-quiz.html
 
 **Martin Nečas re-signs with Avalanche for 8 years, $11.5 million AAV — Here's how it got done**\
-`Nečas is off to the best start of his career, with seven goals and six assists in 11 games.`\
+`Nečas is off to an excellent start this season, with seven goals and six assists in 11 games.`\
 https://nytimes.com/athletic/6763910/2025/10/30/martin-necas-contract-avalanche/
 
 **Why Trump’s Boat Killings Would Be Hard to Prosecute**\
