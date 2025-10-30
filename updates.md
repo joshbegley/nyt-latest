@@ -1,3 +1,7 @@
+**Unrivaled women's basketball league announces 8 head coaches, 3 new players**\
+`The league announced a number of significant changes ahead of its second year.`\
+https://nytimes.com/athletic/6764232/2025/10/30/unrivaled-basketball-coaches-players/
+
 **Amid Flattened Homes, Jamaica Starts to Assess Hurricane Melissa’s Damage**\
 `The Jamaican authorities said they were not able to confirm the death toll from the storm yet, but expected it to rise in the coming days. At least 30 people died in Haiti, officials said.`\
 https://nytimes.com/2025/10/30/us/hurricane-melissa-jamaica.html
