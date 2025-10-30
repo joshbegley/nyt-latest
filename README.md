@@ -1,3 +1,7 @@
+**Liverpool fans backed Arne Slot's selection gamble but patience is starting to run thin**\
+`Arne Slot's team lost 3-0 to Crystal Palace. The game against Aston Villa now feels huge`\
+https://nytimes.com/athletic/6761894/2025/10/30/liverpool-crystal-palace-analysis-arne-slot/
+
 **Nwaneri, a beautiful goal and a reminder of Arsenal's original record-breaker**\
 `It is easy forget how far Nwaneri has come at just 18, on nights like this, he and Lewis-Skelly become elder statesmen.`\
 https://nytimes.com/athletic/6761769/2025/10/30/arsenal-ehtna-nwaneri-max-dowman-hale-end/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6760075/2025/10/30/ismaila-sarr-liverpool-palace/
 **Brighton's silverware blow, frustration for Boscagli but a step forward for Baleba**\
 `One of the club's ambitions is to win a trophy but a potential route to success was closed off with defeat at Arsenal in the Carabao Cup`\
 https://nytimes.com/athletic/6756896/2025/10/30/brighton-arsenal-carabao-cup-baleba/
-
-**What happened after Tony Adams said: 'I’m an alcoholic' - 'Tony has changed lives. He has saved lives'**\
-`It is 25 years since the former England and Arsenal captain founded the Sporting Chance Clinic, helping athletes with addiction problems`\
-https://nytimes.com/athletic/6756901/2025/10/30/tony-adams-addiction/
 
