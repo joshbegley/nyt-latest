@@ -1,3 +1,7 @@
+**Prince Andrew to Be Stripped of His Royal Title**\
+`The extraordinary move caps his fall from grace over his ties to the convicted sexual predator Jeffrey Epstein.`\
+https://nytimes.com/2025/10/30/world/europe/uk-prince-andrew-title.html
+
 **Ultra-Orthodox Community Protests Israel’s Military Draft**\
 `Hundreds of thousands of ultra-Orthodox Jews demonstrated against the military draft in Israel.`\
 https://nytimes.com/video/world/middleeast/100000010491967/israel-ultra-orthodox-demonstration-military-draft.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6764050/2025/10/30/nfl-week-9-projected-scores-poin
 **As trade deadline nears, DC Matt Eberflus says Cowboys have what they need to fix defense**\
 `Dallas’ opponents are averaging 405 yards and 31 points per game. "Defense just has to pick it up," Jadeveon Clowney said.`\
 https://nytimes.com/athletic/6763925/2025/10/30/cowboys-defense-problems-matt-eberflus/
-
-**Until Saturday: At LSU, weird is once again the norm**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6764067/2025/10/30/lsu-coaching-search-jeff-landry-until-saturday/
 
