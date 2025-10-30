@@ -1,3 +1,15 @@
+**Nebraska, Rhule agree to contract extension, quieting Penn State speculation**\
+`The new deal keeps Rhule, 50, under contract at Nebraska through 2032.`\
+https://nytimes.com/athletic/6763702/2025/10/30/nebraska-matt-rhule-contract-extension-penn-state/
+
+**INSPIRED BY SPEED, BUILT WITH PRECISION**\
+`TUDOR doubles down in 2025 with Visa Cash App Racing Bulls Formula One Team as an official partner, powering the team to the front of the grid.`\
+https://nytimes.com/paidpost/athletic/tudor/adpost.html
+
+**The World Has Again Failed to Prevent Atrocities in Darfur**\
+`Reports are emerging of atrocities in Darfur. The Trump and Biden administrations could have tried harder to prevent them.`\
+https://nytimes.com/2025/10/30/opinion/rsf-el-fasher-darfur.html
+
 **Far Right Projected to Lose Ground to the Center Left in Dutch Election**\
 `In a major loss for Geert Wilders’s far-right, his populist Party for Freedom was poised to lose ground to the socially progressive Democrats 66 of Rob Jetten after Wednesday’s Dutch election. Mr. Jetten, 38, could take the first chance to form a new government.`\
 https://nytimes.com/video/world/europe/100000010490960/wilders-loss-dutch-elections.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6759565/2025/10/30/football-manager-26-review/
 **Little Word of a TikTok Deal Out of Trump-Xi Meeting**\
 `Neither President Trump nor Chinese officials indicated any new developments for the popular video app. Treasury Secretary Scott Bessent previously suggested they could “consummate” transfer of control from its Chinese owner.`\
 https://nytimes.com/2025/10/30/us/politics/trump-xi-tiktok-deal.html
-
-**WTA Tour Finals draw, schedule and results: Coco Gauff bids to defend title in Riyadh**\
-`Gauff, the world No. 3, will have to fight off three compatriots and the top two in the world to retain her crown.`\
-https://nytimes.com/athletic/6763218/2025/10/30/wta-tour-finals-draw-schedule-results-2025/
-
-**Bonus Puzzles**\
-``\
-https://nytimes.com/spotlight/bonus-puzzles
-
-**Jamaicans face downed trees, ripped roofs and miles of mud after Hurricane Melissa.**\
-`By Victor Mather`\
-https://nytimes.com/live/2025/10/30/weather/hurricane-melissa/jamaicans-face-downed-trees-ripped-roofs-and-miles-of-mud-after-the-powerful-storm
 
