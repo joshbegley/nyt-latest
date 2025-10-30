@@ -1,3 +1,11 @@
+**gws-bringing-new-life-to-empty-subway-shops**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/bringing-new-life-to-empty-subway-shops
+
+**Juventus have a smart new coach in Luciano Spalletti - now the club needs to get its act together**\
+`Juventus have a new coach but the executive leadership has come in for a lot of criticism as the spirit of the club has faded`\
+https://nytimes.com/athletic/6759612/2025/10/30/juventus-spalletti-coach/
+
 **Answer 4 Questions. Leave With Your Next Stephen King Book.**\
 `Whether you’re a hard-core horror junkie or a scaredy-cat, he’s written something for you.`\
 https://nytimes.com/interactive/2025/10/30/books/stephen-king-books-quiz.html
