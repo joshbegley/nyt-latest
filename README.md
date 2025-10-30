@@ -30,7 +30,3 @@ https://nytimes.com/athletic/6764312/2025/10/30/penguins-vs-wild-stream-how-to-w
 `Find out how to watch the New York Rangers play the Edmonton Oilers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6764310/2025/10/30/rangers-vs-oilers-stream-how-to-watch-oct-30/
 
-**How to watch Wizards vs. Thunder: Time, TV, streaming**\
-`Find out how to watch the Washington Wizards play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6764308/2025/10/30/wizards-vs-thunder-stream-how-to-watch-oct-30/
-

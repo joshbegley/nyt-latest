@@ -1,36 +1,36 @@
-**Prince Andrew to Be Stripped of His Royal Title**\
-`The extraordinary move caps his fall from grace over his ties to the convicted sexual predator Jeffrey Epstein.`\
-https://nytimes.com/2025/10/30/world/europe/uk-prince-andrew-title.html
+**How to watch Blackhawks vs. Jets: Time, TV, streaming**\
+`Find out how to watch the Chicago Blackhawks play the Winnipeg Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6764324/2025/10/30/blackhawks-vs-jets-stream-how-to-watch-oct-30/
 
-**Ultra-Orthodox Community Protests Israel’s Military Draft**\
-`Hundreds of thousands of ultra-Orthodox Jews demonstrated against the military draft in Israel.`\
-https://nytimes.com/video/world/middleeast/100000010491967/israel-ultra-orthodox-demonstration-military-draft.html
+**How to watch Islanders vs. Hurricanes: Time, TV, streaming**\
+`Find out how to watch the New York Islanders play the Carolina Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6764322/2025/10/30/islanders-vs-hurricanes-stream-how-to-watch-oct-30/
 
-**6 New Books We Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://nytimes.com/2025/10/30/books/review/new-recommended-books.html
+**How to watch Heat vs. Spurs: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the San Antonio Spurs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6764320/2025/10/30/heat-vs-spurs-stream-how-to-watch-oct-30/
 
-**I Now Mispronounce You the Likely Next Mayor of New York City**\
-`A lot of people seem to trip over Zohran Mamdani’s name. The reason may not be as simple as it seems.`\
-https://nytimes.com/2025/10/30/opinion/mispronouncing-mamdani.html
+**How to watch Warriors vs. Bucks: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the Milwaukee Bucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6764318/2025/10/30/warriors-vs-bucks-stream-how-to-watch-oct-30/
 
-**What’s Going On in This Graph? | Nov. 5, 2025**\
-`What do you notice about how much it costs the U.S. government to make a penny, nickel, dime and quarter? What questions does this graph raise for you?`\
-https://nytimes.com/2025/10/30/learning/whats-going-on-in-this-graph-nov-5-2025.html
+**How to watch Devils vs. Sharks: Time, TV, streaming**\
+`Find out how to watch the New Jersey Devils play the San Jose Sharks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6764316/2025/10/30/devils-vs-sharks-stream-how-to-watch-oct-30/
 
-**What’s Going On in This Picture? | Nov. 3, 2025**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2025/10/30/learning/whats-going-on-in-this-picture-nov-3-2025.html
+**How to watch Red Wings vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the Los Angeles Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6764314/2025/10/30/red-wings-vs-kings-stream-how-to-watch-oct-30/
 
-**Trump Rule Could Bar Some Public Servants From Student Loan Forgiveness**\
-`A new rule could disqualify certain employers from the Public Service Loan Forgiveness program that are deemed to be engaged in “illegal activities.”`\
-https://nytimes.com/2025/10/30/business/trump-student-loan-forgiveness-public-service.html
+**How to watch Penguins vs. Wild: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Penguins play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6764312/2025/10/30/penguins-vs-wild-stream-how-to-watch-oct-30/
 
-**NFL Week 9 projected scores: Model predicts point spreads and totals for every game**\
-`Austin Mock's projection model predicts point spreads and point totals for NFL Week 9. We compare it to betting lines.`\
-https://nytimes.com/athletic/6764050/2025/10/30/nfl-week-9-projected-scores-point-spreads-totals/
+**How to watch Rangers vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the New York Rangers play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6764310/2025/10/30/rangers-vs-oilers-stream-how-to-watch-oct-30/
 
-**As trade deadline nears, DC Matt Eberflus says Cowboys have what they need to fix defense**\
-`Dallas’ opponents are averaging 405 yards and 31 points per game. "Defense just has to pick it up," Jadeveon Clowney said.`\
-https://nytimes.com/athletic/6763925/2025/10/30/cowboys-defense-problems-matt-eberflus/
+**How to watch Wizards vs. Thunder: Time, TV, streaming**\
+`Find out how to watch the Washington Wizards play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6764308/2025/10/30/wizards-vs-thunder-stream-how-to-watch-oct-30/
 
