@@ -1,3 +1,7 @@
+**Key fantasy football questions for Week 9: Travis Hunter a WR2? TreVeyon time?**\
+`Dalton Del Don looks at the key fantasy football topics for Week 9, including the roles of rookies Travis Hunter and TreVeyon Henderson.`\
+https://nytimes.com/athletic/6761301/2025/10/30/key-fantasy-football-questions-week-9-hunter-treveyon/
+
 **Fantasy football matchup rankings Week 9 | Strength of schedule**\
 `Jake Ciely's Week 9 matchup rankings can help you with difficult start/sit decisions this week. `\
 https://nytimes.com/athletic/6760751/2025/10/30/fantasy-football-matchup-rankings-week-9-strength-of-schedule/

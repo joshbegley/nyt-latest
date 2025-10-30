@@ -1,3 +1,7 @@
+**Key fantasy football questions for Week 9: Travis Hunter a WR2? TreVeyon time?**\
+`Dalton Del Don looks at the key fantasy football topics for Week 9, including the roles of rookies Travis Hunter and TreVeyon Henderson.`\
+https://nytimes.com/athletic/6761301/2025/10/30/key-fantasy-football-questions-week-9-hunter-treveyon/
+
 **Fantasy football matchup rankings Week 9 | Strength of schedule**\
 `Jake Ciely's Week 9 matchup rankings can help you with difficult start/sit decisions this week. `\
 https://nytimes.com/athletic/6760751/2025/10/30/fantasy-football-matchup-rankings-week-9-strength-of-schedule/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6762476/2025/10/30/rose-lavelle-generational-talent
 **Phillies mailbag: Ranger Suárez, Alec Bohm and this offseason's most compelling figure**\
 `There are endless questions about how this offseason will unfold, and so many of you had good ones to ponder. Let's answer another batch.`\
 https://nytimes.com/athletic/6759989/2025/10/30/phillies-mailbag-ranger-suarez-alec-bohm-and-this-offseasons-most-compelling-figure/
-
-**Is Blues' core broken? Should they demote Logan Mailloux? Stop blending lines? Mailbag, part 1**\
-`Plus, debating options for the power play, including newly called-up Dalibor Dvorsky, what's wrong with Joel Hofer?`\
-https://nytimes.com/athletic/6757193/2025/10/30/blues-core-montgomery-lines-mailbag/
 
