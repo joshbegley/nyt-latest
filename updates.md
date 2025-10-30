@@ -1,3 +1,11 @@
+**Giants' Dexter Lawrence fires back at Carl Banks' 'delusional' criticism**\
+`Banks' harsh criticism was surprising, considering he works for the Giants as the color analyst on radio broadcasts. `\
+https://nytimes.com/athletic/6762972/2025/10/30/giants-dexter-lawrence-carl-banks-criticism/
+
+**Eight Eagles Thoughts: Jalen Hurts MVP candidate, where to play Cooper DeJean, post-bye success**\
+`Plus, Jalyx Hunt's stock is rising`\
+https://nytimes.com/athletic/6762078/2025/10/30/jalen-hurts-mvp-candidate-cooper-dejean-bye-week/
+
 **Why Investors Seem Underwhelmed by the Trump-Xi Meeting**\
 `The highly anticipated event covered a lot of ground on tariff and trade barriers, but questions remain about reaching a lasting accord.`\
 https://nytimes.com/2025/10/30/business/dealbook/trump-xi-china-meeting.html
