@@ -1,3 +1,7 @@
+**Their Professors Caught Them Cheating. They Used A.I. to Apologize.**\
+`Two professors at the University of Illinois Urbana-Champaign said they grew suspicious after receiving identical apologies from dozens of students they had accused of academic dishonesty.`\
+https://nytimes.com/2025/10/29/us/university-illinois-students-cheating-ai.html
+
 **Jamaica and Haiti Tally Hurricane Victims as Melissa Slams Cuba**\
 `About 20 people, including children, died in a Haitian community and at least three bodies were found in Jamaica, officials said, as they began to assess the huge storm’s damage.`\
 https://nytimes.com/2025/10/29/world/americas/hurrican-melissa-jamaica-cuba-haiti.html

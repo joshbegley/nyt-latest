@@ -1,3 +1,15 @@
+**A Strong Sense of Direction**\
+`Howard Neuthaler’s puzzle lifts the spirit.`\
+https://nytimes.com/2025/10/29/crosswords/daily-puzzle-2025-10-30.html
+
+**Trump Threatens to Resume Nuclear Weapons Testing, Minutes Before Xi Meeting**\
+`Just minutes before he was scheduled to meet President Xi Jinping of China, the president threatened on social media to resume nuclear testing for the first time in 33 years.`\
+https://nytimes.com/2025/10/29/us/politics/trump-nuclear-weapons-testing.html
+
+**Right knee sprain causes Trae Young to leave Atlanta's matchup against Nets**\
+`Trae Young's slow start to 2025-26 season continues due to right knee sprain vs. Nets`\
+https://nytimes.com/athletic/6761911/2025/10/29/trae-young-hawks-injury-knee-nets/
+
 **Their Professors Caught Them Cheating. They Used A.I. to Apologize.**\
 `Two professors at the University of Illinois Urbana-Champaign said they grew suspicious after receiving identical apologies from dozens of students they had accused of academic dishonesty.`\
 https://nytimes.com/2025/10/29/us/university-illinois-students-cheating-ai.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/29/nyregion/cuomo-mamdani-democrats-nyc-mayor.html
 **U.S. Military Kills Four More People Accused of Smuggling Drugs on Boats**\
 `Defense Secretary Pete Hegseth said the latest strike took place on Wednesday in the eastern Pacific. It came two days after the deadliest set of strikes in the weekslong campaign in Latin America.`\
 https://nytimes.com/2025/10/29/us/politics/military-drug-boat-strikes.html
-
-**Marcedes Lewis didn't hesitate on a 20th season to be with first-place Broncos**\
-`The 41-year-old tight end was "at peace" with moving on to life after football, but he couldn't resist the opportunity in Denver.`\
-https://nytimes.com/athletic/6761707/2025/10/29/marcedes-lewis-denver-broncos-sean-payton/
-
-**Tracking U.S. Military Killings in Boat Attacks**\
-`In two months, the Trump administration has killed dozens of people it accused of smuggling drugs aboard boats. Here are the acknowledged strikes so far.`\
-https://nytimes.com/interactive/2025/10/29/us/us-caribbean-pacific-boat-strikes.html
-
-**Tennessee Man Released After Month in Jail Over Charlie Kirk Post**\
-`The authorities claimed that the meme Larry Bushart shared on Facebook had been perceived as a threat of mass violence, leading to a felony charge that has now been dropped.`\
-https://nytimes.com/2025/10/29/us/tennessee-man-released-after-month-in-jail-over-charlie-kirk-post.html
 
