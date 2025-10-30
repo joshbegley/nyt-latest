@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: President Says China Will Ease Limits on Rare Earths**\
+`President Trump, who announced the rare earths measures after meeting China’s leader in South Korea, also said that the U.S. would reduce some tariffs on Chinese goods.`\
+https://nytimes.com/live/2025/10/30/us/trump-xi-china-news
+
+**London’s West End Will Now Look After This Bear**\
+`Over nearly seven decades Paddington Bear has enjoyed a lasting popularity. Now, he’s the star of a new musical.`\
+https://nytimes.com/2025/10/30/arts/paddington-the-musical-history.html
+
 **U.S. Beef and Thousand Island Dressing: Trump’s Food Tour of Asia**\
 `The menus on the president’s tour of three countries in Asia reflected the culinary acrobatics the host nations performed to accommodate his palate and foreign policy goals.`\
 https://nytimes.com/2025/10/30/world/asia/trump-asia-summit-food.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/30/movies/documentaries-streaming.html
 **Andrew Cuomo, Scraping and Scrambling, Is Still Running as Andrew Cuomo**\
 `The former governor, a distant second in most polls of the New York City mayor’s race, is working harder to attract voters and remind them who he is.`\
 https://nytimes.com/2025/10/30/nyregion/andrew-cuomo-campaign.html
-
-**What Hobby Would You Like to See Become Cool Again?**\
-`Sewing is growing in popularity. Are you be willing to try it?`\
-https://nytimes.com/2025/10/30/learning/what-hobby-would-you-like-to-see-become-cool-again.html
-
-**Monet Was Reluctant. Venice Seduced Him.**\
-`Even on vacation, the father of French impressionism couldn’t resist the pull of optics and art history. A lush blockbuster show in Brooklyn helps you see why.`\
-https://nytimes.com/2025/10/30/arts/design/monet-venice-brooklyn-museum-review.html
 
