@@ -1,3 +1,11 @@
+**Former Duke star Kyle Singler arrested on domestic abuse charge in Oklahoma**\
+`Singler's arrest comes 11 months after he posted a rambling Instagram video that prompted messages of concern from fellow players.`\
+https://nytimes.com/athletic/6761925/2025/10/29/kyle-singler-duke-basketball-thunder-arrest-assault-charge/
+
+**Blue Jays' Trey Yesavage sets World Series rookie strikeout record in Game 5**\
+`Making just his eighth big-league start overall, Yesavage showed why the Blue Jays fast-tracked him through the minor leagues.`\
+https://nytimes.com/athletic/6762049/2025/10/29/blue-jays-trey-yesavage-world-series-rookie-record/
+
 **USWNT 6, New Zealand 0: Emma Sears scores first professional hat trick**\
 `The U.S. scored the most goals in a single game under Emma Hayes on Wednesday.`\
 https://nytimes.com/athletic/6761895/2025/10/29/uswnt-new-zealand-emma-sears-hat-trick/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/29/us/politics/trump-nuclear-weapons-testing.html
 **Right knee sprain causes Trae Young to leave Atlanta's matchup against Nets**\
 `Trae Young's slow start to 2025-26 season continues due to right knee sprain vs. Nets`\
 https://nytimes.com/athletic/6761911/2025/10/29/trae-young-hawks-injury-knee-nets/
-
-**Their Professors Caught Them Cheating. They Used A.I. to Apologize.**\
-`Two professors at the University of Illinois Urbana-Champaign said they grew suspicious after receiving identical apologies from dozens of students they had accused of academic dishonesty.`\
-https://nytimes.com/2025/10/29/us/university-illinois-students-cheating-ai.html
-
-**Jamaica and Haiti Tally Hurricane Victims as Melissa Slams Cuba**\
-`About 20 people, including children, died in a Haitian community and at least three bodies were found in Jamaica, officials said, as they began to assess the huge storm’s damage.`\
-https://nytimes.com/2025/10/29/world/americas/hurrican-melissa-jamaica-cuba-haiti.html
 
