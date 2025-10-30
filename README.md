@@ -1,3 +1,7 @@
+**Mamdani Seeks to Freeze Rents on Stabilized Units. What About the Rest?**\
+`Some three million New Yorkers live in apartments with rent levels set by the market. They would not benefit from Mr. Mamdani’s rent freeze.`\
+https://nytimes.com/2025/10/30/nyregion/mamdani-freeze-rent-apartments.html
+
 **How Do You Feel About Travel Right Now? We Want to Hear From You.**\
 `We’re curious about how you are making travel decisions in a time of economic uncertainty, more premium services and the expanding reach of loyalty programs.`\
 https://nytimes.com/2025/10/30/travel/travel-economy-airlines-loyalty-programs.html
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/italy-umbria-new-hotels
 **Why Trump’s Talk About Nuclear Testing Is Dangerous**\
 `The president’s ambiguity on nuclear testing is worrisome not only because America’s public can’t know what he means, but because America’s adversaries don’t.`\
 https://nytimes.com/2025/10/30/opinion/trump-nuclear-testing-russia-china.html
-
-**F1 'Crashgate' 'one of the biggest scandals in sports history', says Felipe Massa’s lawyer**\
-`Nick De Marco KC, representing Massa, was speaking at the second day of the ‘Crashgate’ hearing at London’s High Court on Thursday.`\
-https://nytimes.com/athletic/6764002/2025/10/30/f1-crashgate-felipe-massa/
 
