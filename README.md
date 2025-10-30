@@ -1,3 +1,15 @@
+**Jamaica and Haiti Tally Hurricane Victims as Melissa Slams Cuba**\
+`About 20 people, including children, died in a Haitian community and at least three bodies were found in Jamaica, officials said, as they began to assess the huge storm’s damage.`\
+https://nytimes.com/2025/10/29/world/americas/hurrican-melissa-jamaica-cuba-haiti.html
+
+**At event with Italian Americans, Cuomo laces into Mamdani for his stance on Columbus.**\
+`By Mark Bonamo`\
+https://nytimes.com/live/2025/10/29/nyregion/nyc-mayor-election-news/at-event-with-italian-americans-cuomo-laces-into-mamdani-for-his-stance-on-columbus
+
+**Melissa Leaves Black River, Centuries-Old Jamaican Port Town, ‘Totally Destroyed’**\
+`At least two people in the town died, and its historical buildings were reduced to rubble.`\
+https://nytimes.com/2025/10/29/world/americas/hurricane-melissa-black-river-amaica.html
+
 **Federal Airport Workers Collect Food Aid**\
 `As growing numbers of federal aviation workers missed paychecks nearly a month into the government shutdown, some began collecting food assistance.`\
 https://nytimes.com/video/us/politics/100000010490265/federal-airport-workers-collect-food-aid.html
@@ -11,7 +23,7 @@ https://nytimes.com/2025/10/29/nyregion/cuomo-mamdani-democrats-nyc-mayor.html
 https://nytimes.com/2025/10/29/us/politics/military-drug-boat-strikes.html
 
 **Marcedes Lewis didn't hesitate on a 20th season to be with first-place Broncos**\
-`The 41-year-old tight end was "at peace" with moving on to life after football, but couldn't resist the opportunity in Denver.`\
+`The 41-year-old tight end was "at peace" with moving on to life after football, but he couldn't resist the opportunity in Denver.`\
 https://nytimes.com/athletic/6761707/2025/10/29/marcedes-lewis-denver-broncos-sean-payton/
 
 **Tracking U.S. Military Killings in Boat Attacks**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/29/us/tennessee-man-released-after-month-in-jail-ove
 **Fed Cuts Interest Rates for Second Time This Year**\
 `Fed Chair Jerome Powell announced that the Federal Reserve would cut interest rates by another quarter point on Wednesday, the second cut this year.`\
 https://nytimes.com/video/us/politics/100000010490110/fed-cuts-interest-rates-for-second-time-this-year.html
-
-**NBPA to challenge NBA's move to place Heat guard Terry Rozier on unpaid leave**\
-`Move came after player was among those arrested last week for his alleged role in a sports gambling scheme.`\
-https://nytimes.com/athletic/6761496/2025/10/29/terry-rozier-unpaid-leave-gambling-scheme/
-
-**In Fight for Control of Congress, Virginia House Takes Step Toward New Map**\
-`Republicans in Texas, North Carolina and Missouri have passed new maps while Democrats in California, Illinois and Virginia are pursuing similar efforts in response.`\
-https://nytimes.com/2025/10/29/us/virginia-congress-redistricting-midterms.html
-
-**Large Fire at Texas Cotton Gin Prompts Evacuation Order**\
-`Residents of nearly a dozen streets in Gregory, Texas, north of Corpus Christi, were ordered to leave their homes as firefighters battled the blaze from the ground and the air.`\
-https://nytimes.com/2025/10/29/us/cotton-gin-fire-texas-gregory.html
 
