@@ -1,3 +1,11 @@
+**Trump Officials Move Into Military Residences in D.C. Area**\
+`Defense Secretary Pete Hegseth moved into a home at Fort McNair traditionally reserved for the Army’s vice chief of staff. Secretary of State Marco Rubio and others also now live in military housing.`\
+https://nytimes.com/2025/10/30/us/politics/trump-officials-military-housing.html
+
+**Comey Attacks Perjury and Obstruction Charges in New Motions**\
+`The court filings added to the legal challenges that James B. Comey’s defense team has already raised against the indictment.`\
+https://nytimes.com/2025/10/30/us/politics/james-comey-trump-justice-dept-charges.html
+
 **Pro-Cuomo PAC Tells Donors Mayor’s Race Is Still ‘Very Winnable’**\
 `The committee, Put NYC First, urged donors to keep giving money to help Andrew M. Cuomo’s independent campaign despite new polling suggesting that the Democratic candidate, Zohran Mamdani, is ahead.`\
 https://nytimes.com/2025/10/30/nyregion/cuomo-pac-election-mamdani.html
