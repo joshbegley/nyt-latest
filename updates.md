@@ -1,3 +1,11 @@
+**Cuomo Says Mamdani Could ‘Kill’ New York and Democratic Party if Elected**\
+`In an interview with the sports host Stephen A. Smith, former Gov. Andrew M. Cuomo offered a dark prophecy for a Mamdani mayoralty.`\
+https://nytimes.com/2025/10/29/nyregion/cuomo-mamdani-democrats-nyc-mayor.html
+
+**U.S. Military Kills Four More People Accused of Smuggling Drugs on Boats**\
+`Defense Secretary Pete Hegseth said the latest strike took place on Wednesday in the eastern Pacific. It came two days after the deadliest set of strikes in the weekslong campaign in Latin America.`\
+https://nytimes.com/2025/10/29/us/politics/military-drug-boat-strikes.html
+
 **Marcedes Lewis didn't hesitate on a 20th season to be with first-place Broncos**\
 `The 41-year-old tight end was "at peace" with moving on to life after football, but couldn't resist the opportunity in Denver.`\
 https://nytimes.com/athletic/6761707/2025/10/29/marcedes-lewis-denver-broncos-sean-payton/
