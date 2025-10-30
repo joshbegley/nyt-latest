@@ -1,3 +1,7 @@
+**She Said She Was Rescuing Chickens. A Jury Convicted Her of Trespassing.**\
+`Zoe Rosenberg, a California animal rights activist, was found guilty of conspiracy and trespassing for taking four chickens from a poultry plant.`\
+https://nytimes.com/2025/10/29/us/animal-rights-activist-convicted-sonoma-chickens.html
+
 **John Tavares becomes 49th NHL player to score 500 career goals**\
 `Tavares has scored 228 goals for the Maple Leafs in just 526 games.`\
 https://nytimes.com/athletic/6758107/2025/10/29/john-tavares-500-goals-nhl-maple-leafs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/29/world/americas/hurricane-melissa-black-river-amai
 **Federal Airport Workers Collect Food Aid**\
 `As growing numbers of federal aviation workers missed paychecks nearly a month into the government shutdown, some began collecting food assistance.`\
 https://nytimes.com/video/us/politics/100000010490265/federal-airport-workers-collect-food-aid.html
-
-**Cuomo Says Mamdani Could ‘Kill’ New York and Democratic Party if Elected**\
-`In an interview with the sports host Stephen A. Smith, former Gov. Andrew M. Cuomo offered a dark prophecy for a Mamdani mayoralty.`\
-https://nytimes.com/2025/10/29/nyregion/cuomo-mamdani-democrats-nyc-mayor.html
 
