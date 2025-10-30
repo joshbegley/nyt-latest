@@ -1,3 +1,7 @@
+**NCAA basketball tournaments will use player availability reports**\
+`The NCAA says that player availability reports aim to protect player "well-being and competition integrity from sports betting influences."`\
+https://nytimes.com/athletic/6764840/2025/10/30/ncaa-player-availability-reports-betting-march-madness/
+
 **Luka Dončić could return for Lakers at NBA Cup Friday**\
 `Dončić has missed the Lakers' last three games after scoring 49 points in the team’s first win of the season last week against Minnesota.`\
 https://nytimes.com/athletic/6764789/2025/10/30/luka-doncic-lakers-return-injury-nba-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/30/arts/music/sean-combs-diddy-prison.html
 **Mamdani Leads in Latest Polls**\
 `Three new polls show Zohran Mamdani leading the New York City mayoral race. The two other major candidates, Andrew Cuomo and Curtis Sliwa, made their last appeals to voters before election day.`\
 https://nytimes.com/video/us/elections/100000010491269/new-york-city-election-polls.html
-
-**Executions and Mass Casualties: Videos Show Horror Unfolding in Sudan**\
-`Evidence of atrocities emerging from the city of El Fasher stoked fears that the Sudanese region of Darfur is plunging, once again, into a cycle of genocidal violence.`\
-https://nytimes.com/2025/10/30/world/africa/sudan-el-fasher-atrocities-executions-video.html
 
