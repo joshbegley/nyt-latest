@@ -1,3 +1,7 @@
+**Who are Real Madrid's winners and losers under Xabi Alonso?**\
+`Which players at the Bernabeu have benefited most from the rebuild under Carlo Ancelotti's replacement? Mario Cortegana takes a look`\
+https://nytimes.com/athletic/6760532/2025/10/30/real-madrid-alonso-mbappe-vinicius-guler/
+
 **The Tactics Board: How the 4-4-2 works**\
 `Part two of The Athletic's series on football formations takes a close look at the classic 4-4-2`\
 https://nytimes.com/athletic/6736358/2025/10/30/tactics-board-4-4-2-formation/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6762002/2025/10/29/dodgers-blue-jays-world-series-g
 **Rookie Trey Yesavage's brilliance has Blue Jays one win away from glory**\
 `Yesavage struck out 12 as the Blue Jays bested his Dodger counterpart, Blake Snell, for the second time this series. `\
 https://nytimes.com/athletic/6762037/2025/10/29/blue-jays-trey-yesavage-game-5-world-series-win/
-
-**Former Duke star Kyle Singler arrested on domestic abuse charge in Oklahoma**\
-`Singler's arrest comes 11 months after he posted a rambling Instagram video that prompted messages of concern from fellow players.`\
-https://nytimes.com/athletic/6761925/2025/10/29/kyle-singler-duke-basketball-thunder-arrest-assault-charge/
 
