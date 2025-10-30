@@ -1,3 +1,7 @@
+**Martin Nečas re-signs with Avalanche for 8 years, $11.5 million AAV**\
+`Nečas is off to the best start of his career, with seven goals and six assists in 11 games.`\
+https://nytimes.com/athletic/6763910/2025/10/30/martin-necas-contract-avalanche/
+
 **Why Trump’s Boat Killings Would Be Hard to Prosecute**\
 `Even if critics who call President Trump’s boat attacks “murder” are right as a matter of law, it would not be easy to get the matter into a court.`\
 https://nytimes.com/2025/10/30/us/politics/trump-boat-killings-prosecutions.html
