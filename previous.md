@@ -1,4 +1,12 @@
-**Amorim: Man Utd will 'struggle' due to AFCON absences**\
+**Russia Says It Didn’t Test Nuclear Weapons, but Would if the U.S. Did**\
+`Dmitry Peskov, a Kremlin spokesman, told Russian news agencies that recent drone and missile tests were not nuclear weapons tests.`\
+https://nytimes.com/2025/10/30/us/politics/russia-nuclear-weapons-tests.html
+
+**Volkswagen, Hit by Tariffs, Reports $1.5 Billion Loss and Warns of Chip Shortage**\
+`Europe’s largest automaker said that a shortage of semiconductors could further hurt productivity.`\
+https://nytimes.com/2025/10/30/business/volkswagen-tariffs-chip-shortages.html
+
+**Amorim: Man Utd may 'struggle' due to AFCON absences**\
 `The attacking pair could miss up to six Premier League games while on international duty over December and January.`\
 https://nytimes.com/athletic/6763180/2025/10/30/mbeumo-amad-manchester-united-afcon/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6761113/2025/10/30/nhl-panthers-sam-reinhart/
 **The Windup: Blue Jays making all kinds of history**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6762961/2025/10/30/trey-yesavage-game-5-the-windup/
-
-**How Broncos' Alex Palczewski turned to technology to make a tricky position switch**\
-`The Denver guard hadn't played on the left side of the line since "the Obama administration," but he has thrived in place of Ben Powers.`\
-https://nytimes.com/athletic/6763060/2025/10/30/broncos-alex-palczewski-left-guard/
-
-**Christmas Eve tie? Four games in eight days? When Arsenal-Palace could be played**\
-`Palace face Arsenal in the Carabao Cup quarter-finals, but there are scheduling issues with both clubs in European competition.`\
-https://nytimes.com/athletic/6761398/2025/10/30/arsenal-crystal-palace-carabao-cup-when/
 

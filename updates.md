@@ -1,3 +1,15 @@
+**Russia Says It Didn’t Test Nuclear Weapons, but Would if the U.S. Did**\
+`Dmitry Peskov, a Kremlin spokesman, told Russian news agencies that recent drone and missile tests were not nuclear weapons tests.`\
+https://nytimes.com/2025/10/30/us/politics/russia-nuclear-weapons-tests.html
+
+**Volkswagen, Hit by Tariffs, Reports $1.5 Billion Loss and Warns of Chip Shortage**\
+`Europe’s largest automaker said that a shortage of semiconductors could further hurt productivity.`\
+https://nytimes.com/2025/10/30/business/volkswagen-tariffs-chip-shortages.html
+
+**Amorim: Man Utd may 'struggle' due to AFCON absences**\
+`The attacking pair could miss up to six Premier League games while on international duty over December and January.`\
+https://nytimes.com/athletic/6763180/2025/10/30/mbeumo-amad-manchester-united-afcon/
+
 **Amorim: Man Utd will 'struggle' due to AFCON absences**\
 `The attacking pair could miss up to six Premier League games while on international duty over December and January.`\
 https://nytimes.com/athletic/6763180/2025/10/30/mbeumo-amad-manchester-united-afcon/
