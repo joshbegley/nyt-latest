@@ -1,3 +1,11 @@
+**What we learned about the NHL in October: The Sam Reinhart problem, Mammoth's hot start**\
+`Plus, an Avalanche of power-play goals, Dylan Larkin the faceoff specialist and Ivan Demidov and Lane Hutson’s chemistry.`\
+https://nytimes.com/athletic/6761113/2025/10/30/nhl-panthers-sam-reinhart/
+
+**The Windup: Blue Jays making all kinds of history**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6762961/2025/10/30/trey-yesavage-game-5-the-windup/
+
 **How Broncos' Alex Palczewski turned to technology to make a tricky position switch**\
 `The Denver guard hadn't played on the left side of the line since "the Obama administration," but he has thrived in place of Ben Powers.`\
 https://nytimes.com/athletic/6763060/2025/10/30/broncos-alex-palczewski-left-guard/
