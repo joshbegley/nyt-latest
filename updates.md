@@ -1,3 +1,7 @@
+**Lower leg injury causes Anthony Davis to leave Mavericks-Pacers matchup**\
+`Davis was limited to nine games last season with the Mavericks due to an adductor strain.`\
+https://nytimes.com/athletic/6761980/2025/10/29/anthony-davis-mavericks-leg-injury/
+
 **She Said She Was Rescuing Chickens. A Jury Convicted Her of Trespassing.**\
 `Zoe Rosenberg, a California animal rights activist, was found guilty of conspiracy and trespassing for taking four chickens from a poultry plant.`\
 https://nytimes.com/2025/10/29/us/animal-rights-activist-convicted-sonoma-chickens.html
