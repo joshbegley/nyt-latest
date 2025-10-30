@@ -1,3 +1,11 @@
+**Answer 4 Questions. Leave With Your Next Stephen King Book.**\
+`Whether you’re a hard-core horror junkie or a scaredy-cat, he’s written something for you.`\
+https://nytimes.com/interactive/2025/10/30/books/stephen-king-books-quiz.html
+
+**Martin Nečas re-signs with Avalanche for 8 years, $11.5 million AAV — Here's how it got done**\
+`Nečas is off to the best start of his career, with seven goals and six assists in 11 games.`\
+https://nytimes.com/athletic/6763910/2025/10/30/martin-necas-contract-avalanche/
+
 **Martin Nečas re-signs with Avalanche for 8 years, $11.5 million AAV**\
 `Nečas is off to the best start of his career, with seven goals and six assists in 11 games.`\
 https://nytimes.com/athletic/6763910/2025/10/30/martin-necas-contract-avalanche/

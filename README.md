@@ -1,3 +1,7 @@
+**Juventus have a smart new coach in Luciano Spalletti - now the club needs to get its act together**\
+`Juventus have a new coach but the executive leadership has come in for a lot of criticism as the spirit of the club has faded`\
+https://nytimes.com/athletic/6759612/2025/10/30/juventus-spalletti-coach/
+
 **Answer 4 Questions. Leave With Your Next Stephen King Book.**\
 `Whether you’re a hard-core horror junkie or a scaredy-cat, he’s written something for you.`\
 https://nytimes.com/interactive/2025/10/30/books/stephen-king-books-quiz.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6763777/2025/10/30/ncaa-penalties-connor-stalions-c
 **Was Arne Slot right about Liverpool's squad size and his '15-16' available players?**\
 `Arne Slot's comments drew a critical reaction and may be disrespectful to some players but the evidence suggests he was being accurate`\
 https://nytimes.com/athletic/6763446/2025/10/30/arne-slot-liverpool-squad-size/
-
-**NBA approves Los Angeles Lakers majority stake sale to Mark Walter**\
-`Walter, who has owned the Los Angeles Dodgers since 2012, now owns 85 percent of the Lakers.`\
-https://nytimes.com/athletic/6763776/2025/10/30/los-angeles-lakers-sale-mark-walter/
 
