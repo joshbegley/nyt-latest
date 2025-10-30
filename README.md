@@ -1,3 +1,7 @@
+**Trump’s Test Threat Could Fuel Nuclear Tensions With China**\
+`Beijing has been expanding its arsenal, and distrust between China and the United States over nuclear weapons has deepened, with little hope of an agreement.`\
+https://nytimes.com/live/2025/10/28/us/trump-news-south-korea/nuclear-test-ban
+
 **Illinois Man Charged With Threatening Trump on Social Media**\
 `Derek Lopez, 27, defended his posts as performance art and free speech, according to an affidavit. The F.B.I. said he continued to use threatening language despite a warning from agents.`\
 https://nytimes.com/2025/10/30/us/trump-threats-instagram-charges-illinois.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/30/nyregion/zohran-mamdani-howeowners.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/10/30/crosswords/spelling-bee-forum.html
-
-**How a Former Trump Golf Club Worker Was Mistakenly Deported to Mexico**\
-`When Alejandro Juarez was returned to his homeland, federal agents told him that they were just following orders. Those orders were wrong.`\
-https://nytimes.com/2025/10/30/nyregion/immigrant-wrongly-deported-mexico.html
 
