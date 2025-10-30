@@ -1,3 +1,11 @@
+**Mamdani Leads in Latest Polls**\
+`Three new polls show Zohran Mamdani leading the New York City mayoral race. The two other major candidates, Andrew Cuomo and Curtis Sliwa, are made their last appeals to voters before election day.`\
+https://nytimes.com/video/us/elections/100000010491269/new-york-city-election-polls.html
+
+**Executions and Mass Casualties: Videos Show Horror Unfolding in Sudan**\
+`Evidence of atrocities emerging from the city of El Fasher stoked fears that the Sudanese region of Darfur is plunging, once again, into a cycle of genocidal violence.`\
+https://nytimes.com/2025/10/30/world/africa/sudan-el-fasher-atrocities-executions-video.html
+
 **Trump Officials Move Into Military Residences in D.C. Area**\
 `Defense Secretary Pete Hegseth moved into a home at Fort McNair traditionally reserved for the Army’s vice chief of staff. Secretary of State Marco Rubio and others also now live in military housing.`\
 https://nytimes.com/2025/10/30/us/politics/trump-officials-military-housing.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/americas/100000010488549/who-is-driving-us-attac
 **Do You Rely on Food Stamps? Tell Us About How You’re Preparing for the Loss of Assistance.**\
 `As food assistance funding runs out, Times reporters want to hear from people who rely on it, or who work to help feed people in their community.`\
 https://nytimes.com/2025/10/30/us/snap-food-stamps.html
-
-**The Threat of Lost Food Benefits Is Rattling the Vulnerable in Louisiana**\
-`The state has vowed to step in and provide food assistance for many who face a cut-off in federal SNAP aid. But there is still fear and anxiety about how to get by.`\
-https://nytimes.com/2025/10/30/us/politics/louisiana-snap-benefit-cuts.html
-
-**Who Is Watching the Watchers?**\
-`The U.S. government doesn’t — and technically can’t — watch citizens every minute of every day. Palantir’s C.T.O. thinks the world would be safer if that ability were controlled, but still existed.`\
-https://nytimes.com/video/opinion/100000010478098/who-is-watching-the-watchers.html
 

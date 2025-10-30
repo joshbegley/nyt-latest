@@ -1,5 +1,9 @@
+**Sean Combs Transferred to Federal Prison in New Jersey**\
+`The music mogul was sentenced earlier this month to 50 months in prison for two counts of transportation to engage in prostitution.`\
+https://nytimes.com/2025/10/30/arts/music/sean-combs-diddy-prison.html
+
 **Mamdani Leads in Latest Polls**\
-`Three new polls show Zohran Mamdani leading the New York City mayoral race. The two other major candidates, Andrew Cuomo and Curtis Sliwa, are made their last appeals to voters before election day.`\
+`Three new polls show Zohran Mamdani leading the New York City mayoral race. The two other major candidates, Andrew Cuomo and Curtis Sliwa, made their last appeals to voters before election day.`\
 https://nytimes.com/video/us/elections/100000010491269/new-york-city-election-polls.html
 
 **Executions and Mass Casualties: Videos Show Horror Unfolding in Sudan**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6764615/2025/10/30/panthers-bryce-young-andy-dalton
 **Who Is Driving U.S. Attacks in the Caribbean?**\
 `What’s the main goal of the U.S. military buildup in the Caribbean, and who in the Trump administration is behind it? Anatoly Kurmanaev, a New York Times reporter who covered Venezuela, discusses with Katrin Bennhold what we know and don’t know.`\
 https://nytimes.com/video/world/americas/100000010488549/who-is-driving-us-attacks-in-the-caribbean.html
-
-**Do You Rely on Food Stamps? Tell Us About How You’re Preparing for the Loss of Assistance.**\
-`As food assistance funding runs out, Times reporters want to hear from people who rely on it, or who work to help feed people in their community.`\
-https://nytimes.com/2025/10/30/us/snap-food-stamps.html
 

@@ -1,3 +1,11 @@
+**Mamdani Leads in Latest Polls**\
+`Three new polls show Zohran Mamdani leading the New York City mayoral race. The two other major candidates, Andrew Cuomo and Curtis Sliwa, are made their last appeals to voters before election day.`\
+https://nytimes.com/video/us/elections/100000010491269/new-york-city-election-polls.html
+
+**Executions and Mass Casualties: Videos Show Horror Unfolding in Sudan**\
+`Evidence of atrocities emerging from the city of El Fasher stoked fears that the Sudanese region of Darfur is plunging, once again, into a cycle of genocidal violence.`\
+https://nytimes.com/2025/10/30/world/africa/sudan-el-fasher-atrocities-executions-video.html
+
 **Trump Officials Move Into Military Residences in D.C. Area**\
 `Defense Secretary Pete Hegseth moved into a home at Fort McNair traditionally reserved for the Army’s vice chief of staff. Secretary of State Marco Rubio and others also now live in military housing.`\
 https://nytimes.com/2025/10/30/us/politics/trump-officials-military-housing.html
