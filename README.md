@@ -1,3 +1,7 @@
+**College football Week 10 picks ATS: Could Navy-North Texas be a better game than PSU-OSU?**\
+`Several contenders face do or die games this week, while the battle for the American Conference is shaping up to be a barn-burner.`\
+https://nytimes.com/athletic/6759099/2025/10/30/college-football-picks-spread-week-10/
+
 **How States Are Preparing for a Freeze in Federal Food Assistance**\
 `The Supplemental Nutritional Assistance Program will run out of money on Saturday. Some governors are shifting state money to cover part of the shortfall, bolster food pantries or both.`\
 https://nytimes.com/2025/10/30/us/politics/snap-states.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/10/30/weather/hurricane-melissa/jamaicans-face-dow
 **Wood close to Nottm Forest return after injury, but out of Man Utd visit**\
 `Last season’s 20-goal top scorer picked up a knee problem while with New Zealand during the last international break.`\
 https://nytimes.com/athletic/6763565/2025/10/30/nottingham-forest-team-news-chris-wood-injury/
-
-**Blue Jays jump Dodgers, now favored to win World Series**\
-`With back-to-back wins in Los Angeles, the Blue Jays shocked the world and the odds board.`\
-https://nytimes.com/athletic/6763138/2025/10/30/world-series-odds-blue-jays-dodgers/
 

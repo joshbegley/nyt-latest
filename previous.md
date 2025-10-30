@@ -1,3 +1,11 @@
+**How States Are Preparing for a Freeze in Federal Food Assistance**\
+`The Supplemental Nutritional Assistance Program will run out of money on Saturday. Some governors are shifting state money to cover part of the shortfall, bolster food pantries or both.`\
+https://nytimes.com/2025/10/30/us/politics/snap-states.html
+
+**Review: To Cure the Sick, ‘Le Grand Bal’ Prescribes a Rave**\
+`The French troupe Compagnie Dyptik is making its United States debut with a show seemingly inspired by pandemic isolation and its aftermath.`\
+https://nytimes.com/2025/10/30/arts/dance/compagnie-dyptik-le-grand-bal-review.html
+
 **What’s Andrew Cuomo’s Plan to Help New York City Renters?**\
 `Andrew Cuomo says he’ll make rent-stabilization more fair if he is mayor, but his plan could make finding an apartment in New York City even more difficult.`\
 https://nytimes.com/video/us/politics/100000010449816/whats-andrew-cuomos-plan-to-help-new-york-city-renters.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6763565/2025/10/30/nottingham-forest-team-news-chri
 **Blue Jays jump Dodgers, now favored to win World Series**\
 `With back-to-back wins in Los Angeles, the Blue Jays shocked the world and the odds board.`\
 https://nytimes.com/athletic/6763138/2025/10/30/world-series-odds-blue-jays-dodgers/
-
-**U.S. Charges 19 With Flooding Washington Square Park With Drugs**\
-`Prosecutors said dealers had sold millions of doses of heroin and fentanyl. The police in New York have responded to dozens of overdoses in the park and surrounding area in recent years.`\
-https://nytimes.com/2025/10/30/nyregion/washington-square-park-drugs.html
-
-**Advancing Hope in the Fight Against Cancer**\
-`How a pioneering personalized therapy can change medical outcomes for patients with certain relapsed or refractory B-cell lymphomas.`\
-https://nytimes.com/paidpost/breyanzi-10-17/breyanzi/advancing-hope-in-the-fight-against-cancer.html
 
