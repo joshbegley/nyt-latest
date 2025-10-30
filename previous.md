@@ -1,40 +1,40 @@
-**Trump’s Test Threat Could Fuel Nuclear Tensions With China**\
-`Beijing has been expanding its arsenal, and distrust between China and the United States over nuclear weapons has deepened, with little hope of an agreement.`\
-https://nytimes.com/2025/10/29/us/politics/nuclear-test-ban.html
+**Centrist Party Ties Dutch Election as Far-Right Party Loses Seats**\
+`The socially progressive Democrats 66 were neck and neck with the far-right party of Geert Wilders, who faced a significant setback in an election he forced.`\
+https://nytimes.com/2025/10/30/world/europe/dutch-elections-geert-wilders-rob-jetten.html
 
-**Illinois Man Charged With Threatening Trump on Social Media**\
-`Derek Lopez, 27, defended his posts as performance art and free speech, according to an affidavit. The F.B.I. said he continued to use threatening language despite a warning from agents.`\
-https://nytimes.com/2025/10/30/us/trump-threats-instagram-charges-illinois.html
+**Surreal Creatures Gather at Michigan’s Cranbrook Art Museum**\
+`Plus: a new book from Chantal Joffe and Olivia Laing, satin flats for holiday parties and more recommendations from T Magazine.`\
+https://nytimes.com/2025/10/30/t-magazine/haas-brothers-cranbrook-art-museum.html
 
-**Newcastle have not lost a Carabao Cup game for 681 days. This is why they're so good at them**\
-`Newcastle are on a run of 17 victories, 15 in normal time and two via shootout, with 32 goals scored and only nine conceded`\
-https://nytimes.com/athletic/6759361/2025/10/30/newcastle-681-days-carabao-cup/
+**Inmates Win $6 Million Settlement for Abuse Claims Against Prison Officers**\
+`The inmates said the officers carried out a weekslong campaign of violence in 2020 at the state’s lone maximum security prison.`\
+https://nytimes.com/2025/10/30/us/massachusetts-inmates-abuse-settlement.html
 
-**Nico Gonzalez's Swansea display will give Man City hope he can step up and cover for Rodri**\
-`Manchester City overcame Swansea 3-1 on Wednesday night and Nico Gonzalez impressed in the No 6 position`\
-https://nytimes.com/athletic/6762462/2025/10/30/nico-gonzalez-manchester-city-rodri-swansea-analysis/
+**Portland or Seattle? A Senior Couple Wanted an Urban Getaway for About $725,000.**\
+`After years of driving to a California home for vacations, two 'committed Pacific Northwesterners' wanted to be in a downtown area with shops and restaurants.`\
+https://nytimes.com/interactive/2025/10/30/realestate/portland-seattle-home-listings-sale.html
 
-**Flying**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2025/10/30/learning/flying.html
+**A Month Without Data Muddles the Economic Picture**\
+`Tariffs and uncertainty were already making the economy hard to read. The loss of government data during the shutdown has made the situation much worse.`\
+https://nytimes.com/2025/10/30/business/a-month-without-data-muddles-the-economic-picture.html
 
-**50 Years Ago, My Father Wrote the Headline That Refuses to Die**\
-`It’s rare that a headline outlasts the person who wrote it. But long after my father’s death, “Ford to City: Drop Dead” still reverberates.`\
-https://nytimes.com/2025/10/30/nyregion/william-brink-gerald-ford-headline.html
+**Three Great Documentaries to Stream**\
+`In this month’s picks, a chilling true-crime entry, a movie about an execution equipment manufacturer and a devilish doc from the “Exorcist” director William Friedkin.`\
+https://nytimes.com/2025/10/30/movies/documentaries-streaming.html
 
-**New York Survived Its 1975 Crisis. Will Trump Push It Back to the Brink?**\
-`The Daily News headline “Ford to City: Drop Dead” stunned the city at a time of budgetary peril. New York’s finances are far stronger today, but antagonism from Washington poses a fresh risk.`\
-https://nytimes.com/2025/10/30/nyregion/ford-nyc-financial-crisis-trump.html
+**Andrew Cuomo, Scraping and Scrambling, Is Still Running as Andrew Cuomo**\
+`The former governor, a distant second in most polls of the New York City mayor’s race, is working harder to attract voters and remind them who he is.`\
+https://nytimes.com/2025/10/30/nyregion/andrew-cuomo-campaign.html
 
-**These Are the Best Places to Cheer for the New York City Marathon**\
-`Here’s our guide to picking a good cheering location, whether you are following one runner’s progress or looking for a good spot to park yourself for the day.`\
-https://nytimes.com/2025/10/30/nyregion/nyc-marathon-cheering-guide-spectators.html
+**What Hobby Would You Like to See Become Cool Again?**\
+`Sewing is growing in popularity. Are you be willing to try it?`\
+https://nytimes.com/2025/10/30/learning/what-hobby-would-you-like-to-see-become-cool-again.html
 
-**Where Mamdani Found the Blueprints to Run for Mayor**\
-`Before Zohran Mamdani became a state legislator, he helped South Asian New Yorkers who were in danger of losing their homes because of tax liens and job losses.`\
-https://nytimes.com/2025/10/30/nyregion/zohran-mamdani-howeowners.html
+**Monet Was Reluctant. Venice Seduced Him.**\
+`Even on vacation, the father of French impressionism couldn’t resist the pull of optics and art history. A lush blockbuster show in Brooklyn helps you see why.`\
+https://nytimes.com/2025/10/30/arts/design/monet-venice-brooklyn-museum-review.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/10/30/crosswords/spelling-bee-forum.html
+**Harlem’s Remarkable New Studio Museum Redefines 125th Street**\
+`After seven years and $160 million, the museum has an uplifting home on a street that has always been a barometer of Harlem’s fortunes and aspirations.`\
+https://nytimes.com/2025/10/30/arts/design/studio-museum-harlem-adjaye.html
 
