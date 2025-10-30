@@ -1,3 +1,19 @@
+**Jamaica and Haiti Tally Hurricane Victims as Melissa Slams Cuba**\
+`About 20 people, including children, died in a Haitian community and at least three bodies were found in Jamaica, officials said, as they began to assess the huge storm’s damage.`\
+https://nytimes.com/2025/10/29/world/americas/hurrican-melissa-jamaica-cuba-haiti.html
+
+**At event with Italian Americans, Cuomo laces into Mamdani for his stance on Columbus.**\
+`By Mark Bonamo`\
+https://nytimes.com/live/2025/10/29/nyregion/nyc-mayor-election-news/at-event-with-italian-americans-cuomo-laces-into-mamdani-for-his-stance-on-columbus
+
+**Melissa Leaves Black River, Centuries-Old Jamaican Port Town, ‘Totally Destroyed’**\
+`At least two people in the town died, and its historical buildings were reduced to rubble.`\
+https://nytimes.com/2025/10/29/world/americas/hurricane-melissa-black-river-amaica.html
+
+**Marcedes Lewis didn't hesitate on a 20th season to be with first-place Broncos**\
+`The 41-year-old tight end was "at peace" with moving on to life after football, but he couldn't resist the opportunity in Denver.`\
+https://nytimes.com/athletic/6761707/2025/10/29/marcedes-lewis-denver-broncos-sean-payton/
+
 **Federal Airport Workers Collect Food Aid**\
 `As growing numbers of federal aviation workers missed paychecks nearly a month into the government shutdown, some began collecting food assistance.`\
 https://nytimes.com/video/us/politics/100000010490265/federal-airport-workers-collect-food-aid.html
