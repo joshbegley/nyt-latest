@@ -1,3 +1,7 @@
+**Newcastle have not lost a Carabao Cup game for 681 days. This is why they're so good at them**\
+`Newcastle are on a run of 17 victories, 15 in normal time and two via shootout, with 32 goals scored and only nine conceded`\
+https://nytimes.com/athletic/6759361/2025/10/30/newcastle-681-days-carabao-cup/
+
 **Nico Gonzalez's Swansea display will give Man City hope he can step up and cover for Rodri**\
 `Manchester City overcame Swansea 3-1 on Wednesday night and Nico Gonzalez impressed in the No 6 position`\
 https://nytimes.com/athletic/6762462/2025/10/30/nico-gonzalez-manchester-city-rodri-swansea-analysis/
