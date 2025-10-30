@@ -1,40 +1,41 @@
-**Point Şengün and vintage KD have helped the Rockets' offense take flight**\
-`Defense was supposed to be Houston's strength, as it was a year ago. Yet it's thriving on the other end of the floor.`\
-https://nytimes.com/athletic/6762568/2025/10/30/rockets-offense-nba-alperen-sengun-kevin-durant/
+**Phillies mailbag: Ranger Suárez, Alec Bohm and this offseason's most compelling figure**\
+`There are endless questions about how this offseason will unfold, and so many of you had good ones to ponder. Let's answer another batch.`\
+https://nytimes.com/athletic/6759989/2025/10/30/phillies-mailbag-ranger-suarez-alec-bohm-and-this-offseasons-most-compelling-figure/
 
-**Trump and Xi Ease Off the Trade War, but New Nuclear Threat Brings a Chill**\
-`The two leaders reached an agreement on fentanyl, some tariffs and rare earths, at least for a year. But even as the global trade picture cleared a little, Mr. Trump spurred new worries about nuclear proliferation.`\
-https://nytimes.com/2025/10/30/us/politics/trump-xi-trade-meeting.html
+**Questioning the team's core, Montgomery's line blender and more: Blues mailbag, Part 1**\
+`Plus, debating options for the power play, including newly called-up Dalibor Dvorsky, and the best plan for Logan Mailloux.`\
+https://nytimes.com/athletic/6757193/2025/10/30/blues-core-montgomery-lines-mailbag/
 
-**TAFC: Messi's $20m salary and MLS' future. Plus: 15-year-old Dowman makes history**\
-`MLS salaries have been revealed, and there are no prizes for guessing its top earner. But what does it say about the competition?`\
-https://nytimes.com/athletic/6762730/2025/10/30/messi-salary-mls-dowman-tafc/
+**Submit your questions for Zack Meisel’s Guardians mailbag**\
+`<p>With the offseason on deck, many new baseball questions are starting to arise. Zack Meisel is here to answer them. Whether it&#8217;s about Guardians, baseball, sports or the universe, you can submit yours below for a chance to be answered in a future mailbag.</p>
+`\
+https://nytimes.com/athletic/6761044/2025/10/30/guardians-mailbag-2025-2026-offseason/
 
-**Australian cricketer, 17, dies after being hit by ball**\
-`The teenager was warming up with his team-mates in training nets when the incident occurred.`\
-https://nytimes.com/athletic/6762579/2025/10/30/australia-cricketer-death-ben-austin/
+**This Week in Sports Trivia: October 30, 2025**\
+`How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
+https://nytimes.com/athletic/6760830/2025/10/30/this-week-in-sports-trivia-october-30-2025/
 
-**Weird & Wild: Yesavage's gem cements his place among playoff greats — but he's one of a kind**\
-`Let's run through eight fun facts to help explain how cool, shocking and unforgettable the story of the Blue Jays’ 22-year-old has become.`\
-https://nytimes.com/athletic/6762591/2025/10/30/trey-yesavage-world-series-game-5-bluejays-mlb-playoff-history/
+**Women's college basketball freshmen to watch**\
+`Who will be this year's Freshman of the Year? Look to UConn again.`\
+https://nytimes.com/athletic/6747508/2025/10/30/womens-college-basketball-freshmen-to-watch-addie-deal-at-iowa-sienna-betts-at-ucla-more/
 
-**Connections: Sports Edition Coach: Hints for Oct. 30, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6762767/2025/10/30/connections-sports-edition-hints-for-oct-30-2025/
+**From backyard rinks in Edmonton to the Rangers, Matthew Robertson chases his NHL dream**\
+`It's been years since Matthew Robertson was last home to see an Edmonton winter. This time, he's on an NHL roster at last.`\
+https://nytimes.com/athletic/6761043/2025/10/30/rangers-matthew-robertson-rookie-season-nhl/
 
-**Bulls deny Zach LaVine his revenge, stay unbeaten in best start in four years**\
-`The Bulls shook off the return of their one-time star to keep their undefeated start to the season going in a 126-113 win over the Kings.`\
-https://nytimes.com/athletic/6762564/2025/10/30/bulls-kings-zach-lavine-return/
+**Packers' urgency evident in benching of marquee free-agent signing Nate Hobbs**\
+`Hobbs played every defensive snap at cornerback in Weeks 6 and 7 before playing just four of 63 defensive snaps in Week 8.`\
+https://nytimes.com/athletic/6761190/2025/10/30/packers-nate-hobbs-benched/
 
-**Women's college basketball: 5 questions for the 2025-26 season**\
-`Will South Carolina look different this season? Chantel Jennings answers pressing preseason questions.`\
-https://nytimes.com/athletic/6747395/2025/10/30/womens-college-basketball-preseason-questions-uconn/
+**Yohe: Dubas deserves credit for Penguins' short- and long-term future**\
+`Under the radar, Kyle Dubas is on a heater. Suddenly, the Penguins have hope because of the work he has done. `\
+https://nytimes.com/athletic/6761724/2025/10/30/penguins-kyle-dubas-draft-trades-direction/
 
-**Science Practice | A Study on a Rodent-Shaped Sidewalk Impression**\
-`What animal made an infamous indentation in a Chicago sidewalk? A new study offers clues. Hint: It wasn’t a rat.`\
-https://nytimes.com/2025/10/30/learning/science-practice-a-study-on-a-rodent-shaped-sidewalk-impression.html
+**Matas Buzelis buzz growing as Bulls stay undefeated with win over Zach LaVine, Kings**\
+`A confident Buzelis, who scored 27 points on 11-for-18 shooting, has the Bulls 4-0 and loving life at the top.`\
+https://nytimes.com/athletic/6762221/2025/10/30/bulls-matas-buzelis-buzz-kings-zach-lavine/
 
-**The Pulse: The Blue Jays flap closer to a title**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6759877/2025/10/30/blue-jays-dodgers-trey-yesavage-the-pulse/
+**Is USC built to make a late-season run? 5 thoughts on the Trojans heading into November**\
+`USC is getting strong play from QB Jayden Maiava, but the Trojans must improve on defense in the final month of the season. `\
+https://nytimes.com/athletic/6761232/2025/10/30/usc-football-lincoln-riley-jayden-maiava-schedule/
 
