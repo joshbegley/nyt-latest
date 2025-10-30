@@ -1,3 +1,7 @@
+**Marcedes Lewis didn't hesitate on a 20th season to be with first-place Broncos**\
+`The 41-year-old tight end was "at peace" with moving on to life after football, but couldn't resist the opportunity in Denver.`\
+https://nytimes.com/athletic/6761707/2025/10/29/marcedes-lewis-denver-broncos-sean-payton/
+
 **Tracking U.S. Military Killings in Boat Attacks**\
 `In two months, the Trump administration has killed dozens of people it accused of smuggling drugs aboard boats. Here are the acknowledged strikes so far.`\
 https://nytimes.com/interactive/2025/10/29/us/us-caribbean-pacific-boat-strikes.html

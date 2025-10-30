@@ -1,3 +1,7 @@
+**Marcedes Lewis didn't hesitate on a 20th season to be with first-place Broncos**\
+`The 41-year-old tight end was "at peace" with moving on to life after football, but couldn't resist the opportunity in Denver.`\
+https://nytimes.com/athletic/6761707/2025/10/29/marcedes-lewis-denver-broncos-sean-payton/
+
 **Tracking U.S. Military Killings in Boat Attacks**\
 `In two months, the Trump administration has killed dozens of people it accused of smuggling drugs aboard boats. Here are the acknowledged strikes so far.`\
 https://nytimes.com/interactive/2025/10/29/us/us-caribbean-pacific-boat-strikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6761341/2025/10/29/jaylen-brown-celtics-nba-lebron-
 **Slot defends Liverpool selection with 'only 15 players available'**\
 `Slot made 10 changes to the side who lost at Brentford on Saturday, but the defeat to Palace marked a sixth loss in seven for Liverpool.`\
 https://nytimes.com/athletic/6761471/2025/10/29/liverpool-team-crystal-palace-slot/
-
-**Twins to hire Derek Shelton as manager, reunite with a familiar face: Source**\
-`Shelton, who becomes the 15th manager in Twins' history, served as the team's bench coach for two seasons in 2018-19.`\
-https://nytimes.com/athletic/6760977/2025/10/29/twins-derek-shelton-manager-hire/
 
