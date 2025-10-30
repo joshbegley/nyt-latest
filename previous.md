@@ -1,3 +1,11 @@
+**Trump Revived a Cold War Debate**\
+`Also, Prince Andrew is being stripped of his royal title. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/10/30/briefing/trump-nuclear-tests-prince-andrew-title.html
+
+**Betting for (by) dummies: Why the Bills should cover and a traditional OSU-PSU under**\
+`Jon Greenberg and Zac Jackson place bets ahead of a busy weekend of football. Will their picks be treats or tricks?`\
+https://nytimes.com/athletic/6764640/2025/10/30/betting-for-by-dummies-bills-ohio-state/
+
 **Panthers' QB conundrum: Andy Dalton's thumb broken, Bryce Young's ankle progressing**\
 `Dalton played through the injury last week. Young says he continues to "feel better and better" after full day of practice.`\
 https://nytimes.com/athletic/6764615/2025/10/30/panthers-bryce-young-andy-dalton-injury-update/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/30/health/marthe-gautier-dead.html
 **Letitia James Questions Authority of Prosecutor Who Is Investigating Her**\
 `The appointment of the U.S. attorney in Albany, N.Y., John A. Sarcone, is at least the fifth to be questioned in the courts.`\
 https://nytimes.com/2025/10/30/nyregion/letitia-james-investigation-subpoenas.html
-
-**Who Walked Away Stronger in U.S.-China Trade Talks?**\
-`Xi Jinping secured concessions from Donald Trump in exchange for returning to the status quo.`\
-https://nytimes.com/2025/10/30/world/xi-trump-trade-talks.html
-
-**With China Truce, U.S. National Security Controls Now Appear Up for Negotiation**\
-`Some analysts say Beijing won a major victory in its trade talks: Getting the U.S. to withdraw a national security measure that previously was not under discussion.`\
-https://nytimes.com/2025/10/30/us/politics/china-trump-trade-security-chips-minerals.html
 

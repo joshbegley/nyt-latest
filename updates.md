@@ -1,3 +1,11 @@
+**Trump Revived a Cold War Debate**\
+`Also, Prince Andrew is being stripped of his royal title. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/10/30/briefing/trump-nuclear-tests-prince-andrew-title.html
+
+**Betting for (by) dummies: Why the Bills should cover and a traditional OSU-PSU under**\
+`Jon Greenberg and Zac Jackson place bets ahead of a busy weekend of football. Will their picks be treats or tricks?`\
+https://nytimes.com/athletic/6764640/2025/10/30/betting-for-by-dummies-bills-ohio-state/
+
 **Panthers' QB conundrum: Andy Dalton's thumb broken, Bryce Young's ankle progressing**\
 `Dalton played through the injury last week. Young says he continues to "feel better and better" after full day of practice.`\
 https://nytimes.com/athletic/6764615/2025/10/30/panthers-bryce-young-andy-dalton-injury-update/
