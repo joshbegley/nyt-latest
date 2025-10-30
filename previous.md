@@ -1,3 +1,11 @@
+**Tracking U.S. Military Killings in Boat Attacks**\
+`In two months, the Trump administration has killed dozens of people it accused of smuggling drugs aboard boats. Here are the acknowledged strikes so far.`\
+https://nytimes.com/interactive/2025/10/29/us/us-caribbean-pacific-boat-strikes.html
+
+**Tennessee Man Released After Month in Jail Over Charlie Kirk Post**\
+`The authorities claimed that the meme Larry Bushart shared on Facebook had been perceived as a threat of mass violence, leading to a felony charge that has now been dropped.`\
+https://nytimes.com/2025/10/29/us/tennessee-man-released-after-month-in-jail-over-charlie-kirk-post.html
+
 **Fed Cuts Interest Rates for Second Time This Year**\
 `Fed Chair Jerome Powell announced that the Federal Reserve would cut interest rates by another quarter point on Wednesday, the second cut this year.`\
 https://nytimes.com/video/us/politics/100000010490110/fed-cuts-interest-rates-for-second-time-this-year.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6761471/2025/10/29/liverpool-team-crystal-palace-sl
 **Twins to hire Derek Shelton as manager, reunite with a familiar face: Source**\
 `Shelton, who becomes the 15th manager in Twins' history, served as the team's bench coach for two seasons in 2018-19.`\
 https://nytimes.com/athletic/6760977/2025/10/29/twins-derek-shelton-manager-hire/
-
-**Bears take a chance on C.J. Gardner-Johnson to help depleted secondary**\
-`Gardner-Johnson played three seasons under Dennis Allen in New Orleans from 2019-2021 and also overlapped with Ben Johnson in Detroit.`\
-https://nytimes.com/athletic/6759930/2025/10/29/bears-sign-cj-gardner-johnson/
-
-**Burglars in Disguise. Millions in Jewels Taken. But This Was in Queens.**\
-`Thieves dressed as construction workers stole $3.2 million in jewels and cash from a jewelry store owner’s family home, the police said.`\
-https://nytimes.com/2025/10/29/nyregion/jewel-theft-jamaica-hills-queens.html
 

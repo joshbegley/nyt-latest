@@ -1,3 +1,11 @@
+**Tracking U.S. Military Killings in Boat Attacks**\
+`In two months, the Trump administration has killed dozens of people it accused of smuggling drugs aboard boats. Here are the acknowledged strikes so far.`\
+https://nytimes.com/interactive/2025/10/29/us/us-caribbean-pacific-boat-strikes.html
+
+**Tennessee Man Released After Month in Jail Over Charlie Kirk Post**\
+`The authorities claimed that the meme Larry Bushart shared on Facebook had been perceived as a threat of mass violence, leading to a felony charge that has now been dropped.`\
+https://nytimes.com/2025/10/29/us/tennessee-man-released-after-month-in-jail-over-charlie-kirk-post.html
+
 **Fed Cuts Interest Rates for Second Time This Year**\
 `Fed Chair Jerome Powell announced that the Federal Reserve would cut interest rates by another quarter point on Wednesday, the second cut this year.`\
 https://nytimes.com/video/us/politics/100000010490110/fed-cuts-interest-rates-for-second-time-this-year.html
