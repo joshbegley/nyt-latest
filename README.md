@@ -1,3 +1,7 @@
+**Calley Means, a Kennedy Adviser, Has Left the White House**\
+`Mr. Means quietly departed his federal role about a month ago. His sister has been nominated for surgeon general.`\
+https://nytimes.com/2025/10/30/health/calley-means-kennedy-adviser-departure.html
+
 **Giants' Dexter Lawrence fires back at Carl Banks' 'delusional' criticism**\
 `Banks' harsh criticism was surprising, considering he works for the Giants as the color analyst on radio broadcasts. `\
 https://nytimes.com/athletic/6762972/2025/10/30/giants-dexter-lawrence-carl-banks-criticism/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6762890/2025/10/30/manchester-united-jason-wilcox-m
 **Mamdani Holds Onto Strong Lead in Two New Polls Ahead of Election Day**\
 `One poll of likely voters, from Emerson College, showed Zohran Mamdani widening his lead over former Gov. Andrew M. Cuomo to 25 percentage points.`\
 https://nytimes.com/2025/10/30/nyregion/emerson-marist-poll-mamdani-nyc-mayor.html
-
-**Here’s the latest.**\
-`By Jeffery C. Mays and Matthew Haag`\
-https://nytimes.com/live/2025/10/30/nyregion/nyc-mayor-election-news/heres-the-latest
 
