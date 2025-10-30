@@ -1,3 +1,15 @@
+**As ICE Raids Upend L.A., Mexican Immigrants Vent, and a Diplomat Listens**\
+`Weekly public meetings at the Mexican consulate in Los Angeles have become a place where immigrants ask for help to a host of problems, big and small.`\
+https://nytimes.com/2025/10/30/us/immigration-raids-los-angeles-mexican-diplomat.html
+
+**Trump Administration Tells Court It Has Money It Can’t Spend to Prevent Food Stamp Cuts**\
+`States have sued the federal government to force the release of aid during the shutdown, with a key hearing set for Thursday.`\
+https://nytimes.com/2025/10/30/us/politics/food-stamps-shutdown.html
+
+**Soybean Farmers Find Relief in U.S. Trade Truce With China**\
+`President Trump said China would end its boycott and resume buying millions of tons of American soybeans.`\
+https://nytimes.com/2025/10/30/business/soybean-farmers-us-china-truce.html
+
 **John Wall joins Wizards broadcast team**\
 `Wall was named to five All-Star teams during his Wizards tenure and he holds the franchise career records for assists.`\
 https://nytimes.com/athletic/6763278/2025/10/30/john-wall-wizards-broadcast/
@@ -21,16 +33,4 @@ https://nytimes.com/2025/10/30/dining/a-speedy-curry-recipe-to-memorize-and-make
 **Study Finds Evidence That Text-Based Therapy Eases Depression**\
 `A large-scale randomized trial of texting therapy concluded that its outcomes were as good as video sessions in treating depression.`\
 https://nytimes.com/2025/10/30/health/text-therapy-effectiveness.html
-
-**The Case of the Tiny Tyrannosaurus Might Have Been Cracked**\
-`Did certain small tyrannosaur fossils belong to “teen rex” or another species? New analysis of a recent fossil appears to have settled the debate.`\
-https://nytimes.com/2025/10/30/science/nanotyrannus-tyrannosaurus-rex-fossil.html
-
-**5 Tips When Consulting ‘Dr.’ ChatGPT**\
-`Experts weigh in on the benefits and harms.`\
-https://nytimes.com/2025/10/30/well/chatgpt-health-questions.html
-
-**AFC North Whiparound: Trade deadline talk, best unit moving forward and candy comps**\
-`Lamar Jackson returns Thursday night, the Steelers and Bengals look to bounce back from Week 8 losses and the Browns take a break.`\
-https://nytimes.com/athletic/6763177/2025/10/30/afc-north-whiparound-browns-bengals-steelers-ravens-week-9/
 

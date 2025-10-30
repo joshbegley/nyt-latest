@@ -1,3 +1,7 @@
+**John Wall joins Wizards broadcast team**\
+`Wall was named to five All-Star teams during his Wizards tenure and he holds the franchise career records for assists.`\
+https://nytimes.com/athletic/6763278/2025/10/30/john-wall-wizards-broadcast/
+
 **Nationals set to hire Rays' Blake Butera, youngest MLB manager in decades: Source**\
 `Butera will be the youngest MLB manager in more than 50 years.`\
 https://nytimes.com/athletic/6763384/2025/10/30/nationals-youngest-mlb-manager-blake-butera/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/10/30/well/chatgpt-health-questions.html
 **AFC North Whiparound: Trade deadline talk, best unit moving forward and candy comps**\
 `Lamar Jackson returns Thursday night, the Steelers and Bengals look to bounce back from Week 8 losses and the Browns take a break.`\
 https://nytimes.com/athletic/6763177/2025/10/30/afc-north-whiparound-browns-bengals-steelers-ravens-week-9/
-
-**The Bounce: Austin Reaves can't be stopped. Plus, Draymond defends Adam Silver**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6763309/2025/10/30/austin-reaves-lakers-cade-cunningham-nba-draymond-thebounce/
 

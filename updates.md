@@ -1,3 +1,7 @@
+**John Wall joins Wizards broadcast team**\
+`Wall was named to five All-Star teams during his Wizards tenure and he holds the franchise career records for assists.`\
+https://nytimes.com/athletic/6763278/2025/10/30/john-wall-wizards-broadcast/
+
 **Nationals set to hire Rays' Blake Butera, youngest MLB manager in decades: Source**\
 `Butera will be the youngest MLB manager in more than 50 years.`\
 https://nytimes.com/athletic/6763384/2025/10/30/nationals-youngest-mlb-manager-blake-butera/
