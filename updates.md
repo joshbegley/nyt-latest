@@ -1,3 +1,11 @@
+**Wood close to Nottm Forest return after injury, but out of Man Utd visit**\
+`Last season’s 20-goal top scorer picked up a knee problem while with New Zealand during the last international break.`\
+https://nytimes.com/athletic/6763565/2025/10/30/nottingham-forest-team-news-chris-wood-injury/
+
+**Blue Jays jump Dodgers, now favored to win World Series**\
+`With back-to-back wins in Los Angeles, the Blue Jays shocked the world and the odds board.`\
+https://nytimes.com/athletic/6763138/2025/10/30/world-series-odds-blue-jays-dodgers/
+
 **U.S. Charges 19 With Flooding Washington Square Park With Drugs**\
 `Prosecutors said dealers had sold millions of doses of heroin and fentanyl. The police in New York have responded to dozens of overdoses in the park and surrounding area in recent years.`\
 https://nytimes.com/2025/10/30/nyregion/washington-square-park-drugs.html
