@@ -1,3 +1,15 @@
+**U.S. Charges 19 With Flooding Washington Square Park With Drugs**\
+`Prosecutors said dealers had sold millions of doses of heroin and fentanyl. The police in New York have responded to dozens of overdoses in the park and surrounding area in recent years.`\
+https://nytimes.com/2025/10/30/nyregion/washington-square-park-drugs.html
+
+**Advancing Hope in the Fight Against Cancer**\
+`How a pioneering personalized therapy can change medical outcomes for patients with certain relapsed or refractory B-cell lymphomas.`\
+https://nytimes.com/paidpost/breyanzi-10-17/breyanzi/advancing-hope-in-the-fight-against-cancer.html
+
+**How the NFL uses ‘expedited review’ to change officiating decisions during games**\
+`Inside the NFL's 'replay nirvana,' the league attempts to increase the accuracy of its calls while keeping game times down?`\
+https://nytimes.com/athletic/6760613/2025/10/30/nfl-expedited-review-process-referees-officials/
+
 **Here’s How Much Obamacare Prices Are Rising Across the Country**\
 `The new prices make it official: Americans will need to pay more for insurance next year if extra subsidies are allowed to expire.`\
 https://nytimes.com/interactive/2025/10/30/upshot/obamacare-subsidies-new-prices.html

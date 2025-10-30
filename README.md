@@ -1,3 +1,7 @@
+**Blue Jays jump Dodgers, now favored to win World Series**\
+`With back-to-back wins in Los Angeles, the Blue Jays shocked the world and the odds board.`\
+https://nytimes.com/athletic/6763138/2025/10/30/world-series-odds-blue-jays-dodgers/
+
 **U.S. Charges 19 With Flooding Washington Square Park With Drugs**\
 `Prosecutors said dealers had sold millions of doses of heroin and fentanyl. The police in New York have responded to dozens of overdoses in the park and surrounding area in recent years.`\
 https://nytimes.com/2025/10/30/nyregion/washington-square-park-drugs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6763531/2025/10/30/predators-vs-flyers-stream-how-t
 **How to watch Flames vs. Senators: Time, TV, streaming**\
 `Find out how to watch the Calgary Flames play the Ottawa Senators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6763528/2025/10/30/flames-vs-senators-stream-how-to-watch-oct-30/
-
-**As ICE Raids Upend L.A., Mexican Immigrants Vent, and a Diplomat Listens**\
-`Weekly public meetings at the Mexican consulate in Los Angeles have become a place where immigrants ask for help to a host of problems, big and small.`\
-https://nytimes.com/2025/10/30/us/immigration-raids-los-angeles-mexican-diplomat.html
 
