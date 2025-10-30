@@ -1,3 +1,7 @@
+**Miami**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/things-to-do-miami
+
 **What Teenagers Are Saying About Being ‘Cringe’**\
 `In response to an article about “climbing cringe mountain,” students discuss embarrassment, surveillance and finding the courage to be themselves.`\
 https://nytimes.com/2025/10/30/learning/what-teenagers-are-saying-about-being-cringe.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/10/30/learning/what-teenagers-are-saying-about-being-cr
 https://nytimes.com/athletic/6764054/2025/10/30/submit-your-questions-for-the-athletics-acc-football-mailbag-15/
 
 **Lawsuit alleges UCLA plans to move home football games from Rose Bowl to SoFi Stadium**\
-`UCLA said they would be able to generate $15- $25 million more in revenue if they moved to SoFi Stadium, which has suite and club seating. `\
+`UCLA said they would be able to generate $15-$25 million more in revenue if they moved to SoFi Stadium, which has suite and club seating. `\
 https://nytimes.com/athletic/6762331/2025/10/30/rose-bowl-lawsuit-ucla-sofi-stadium/
 
 **NFL best bets Week 9: Picking a side in the Chiefs-Bills showdown**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6763541/2025/10/30/u-s-olympic-paralympic-athletes-
 **OKC Thunder's Nikola Topić diagnosed with testicular cancer**\
 `GM Sam Presti said doctors are optimistic about Topić's condition and recommended he begin chemotherapy.`\
 https://nytimes.com/athletic/6763885/2025/10/30/okc-thunder-nikola-topic-testicular-cancer/
-
-**gws-bringing-new-life-to-empty-subway-shops**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/bringing-new-life-to-empty-subway-shops
 

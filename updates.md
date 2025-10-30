@@ -1,3 +1,23 @@
+**What Teenagers Are Saying About Being ‘Cringe’**\
+`In response to an article about “climbing cringe mountain,” students discuss embarrassment, surveillance and finding the courage to be themselves.`\
+https://nytimes.com/2025/10/30/learning/what-teenagers-are-saying-about-being-cringe.html
+
+**Submit your questions for The Athletic’s ACC football mailbag**\
+`<p>We head into the final month of the regular season with Georgia Tech and Virginia a combined 9-0 in the ACC and Florida State and North Carolina a combined 0-7.`\
+https://nytimes.com/athletic/6764054/2025/10/30/submit-your-questions-for-the-athletics-acc-football-mailbag-15/
+
+**Lawsuit alleges UCLA plans to move home football games from Rose Bowl to SoFi Stadium**\
+`UCLA said they would be able to generate $15- $25 million more in revenue if they moved to SoFi Stadium, which has suite and club seating. `\
+https://nytimes.com/athletic/6762331/2025/10/30/rose-bowl-lawsuit-ucla-sofi-stadium/
+
+**NFL best bets Week 9: Picking a side in the Chiefs-Bills showdown**\
+`Austin Mock uses his NFL projection model to pick out a handful of bets for Week 9.`\
+https://nytimes.com/athletic/6763906/2025/10/30/nfl-best-bets-week-9-chiefs-bills/
+
+**Will Real Madrid really sue UEFA for €4.5bn over the European Super League?**\
+`The Spanish club say they will take legal action against European football's governing body over their failed Super League project`\
+https://nytimes.com/athletic/6762723/2025/10/30/real-madrid-uefa-super-league-news/
+
 **Chasing gold now comes with $100K for U.S. Olympic and Paralympic athletes**\
 `Elite athletes who spend their young adulthood training will now have access to grant funding and life insurance after they retire.`\
 https://nytimes.com/athletic/6763541/2025/10/30/u-s-olympic-paralympic-athletes-payments/

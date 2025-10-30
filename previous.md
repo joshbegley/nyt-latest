@@ -1,3 +1,23 @@
+**What Teenagers Are Saying About Being ‘Cringe’**\
+`In response to an article about “climbing cringe mountain,” students discuss embarrassment, surveillance and finding the courage to be themselves.`\
+https://nytimes.com/2025/10/30/learning/what-teenagers-are-saying-about-being-cringe.html
+
+**Submit your questions for The Athletic’s ACC football mailbag**\
+`<p>We head into the final month of the regular season with Georgia Tech and Virginia a combined 9-0 in the ACC and Florida State and North Carolina a combined 0-7.`\
+https://nytimes.com/athletic/6764054/2025/10/30/submit-your-questions-for-the-athletics-acc-football-mailbag-15/
+
+**Lawsuit alleges UCLA plans to move home football games from Rose Bowl to SoFi Stadium**\
+`UCLA said they would be able to generate $15- $25 million more in revenue if they moved to SoFi Stadium, which has suite and club seating. `\
+https://nytimes.com/athletic/6762331/2025/10/30/rose-bowl-lawsuit-ucla-sofi-stadium/
+
+**NFL best bets Week 9: Picking a side in the Chiefs-Bills showdown**\
+`Austin Mock uses his NFL projection model to pick out a handful of bets for Week 9.`\
+https://nytimes.com/athletic/6763906/2025/10/30/nfl-best-bets-week-9-chiefs-bills/
+
+**Will Real Madrid really sue UEFA for €4.5bn over the European Super League?**\
+`The Spanish club say they will take legal action against European football's governing body over their failed Super League project`\
+https://nytimes.com/athletic/6762723/2025/10/30/real-madrid-uefa-super-league-news/
+
 **Patricia Crowther, Who Brought Witchcraft Out of the Shadows, Dies at 97**\
 `As a high priestess of Wicca, a branch of modern paganism founded in England, she promoted an image of witches as early feminists who were benevolent and spiritual.`\
 https://nytimes.com/2025/10/30/style/patricia-crowther-dead.html
@@ -17,20 +37,4 @@ https://nytimes.com/athletic/6763885/2025/10/30/okc-thunder-nikola-topic-testicu
 **gws-bringing-new-life-to-empty-subway-shops**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/bringing-new-life-to-empty-subway-shops
-
-**Juventus have a smart new coach in Luciano Spalletti - now the club needs to get its act together**\
-`Juventus have a new coach but the executive leadership has come in for a lot of criticism as the spirit of the club has faded`\
-https://nytimes.com/athletic/6759612/2025/10/30/juventus-spalletti-coach/
-
-**Answer 4 Questions. Leave With Your Next Stephen King Book.**\
-`Whether you’re a hard-core horror junkie or a scaredy-cat, he’s written something for you.`\
-https://nytimes.com/interactive/2025/10/30/books/stephen-king-books-quiz.html
-
-**Martin Nečas re-signs with Avalanche for 8 years, $11.5 million AAV — Here's how it got done**\
-`Nečas is off to an excellent start this season, with seven goals and six assists in 11 games.`\
-https://nytimes.com/athletic/6763910/2025/10/30/martin-necas-contract-avalanche/
-
-**Why Trump’s Boat Killings Would Be Hard to Prosecute**\
-`Even if critics who call President Trump’s boat attacks “murder” are right as a matter of law, it would not be easy to get the matter into a court.`\
-https://nytimes.com/2025/10/30/us/politics/trump-boat-killings-prosecutions.html
 
