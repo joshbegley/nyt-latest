@@ -1,3 +1,7 @@
+**What’s Andrew Cuomo’s Plan to Help New York City Renters?**\
+`Andrew Cuomo says he’ll make rent-stabilization more fair if he is mayor, but his plan could make finding an apartment in New York City even more difficult.`\
+https://nytimes.com/video/us/politics/100000010449816/whats-andrew-cuomos-plan-to-help-new-york-city-renters.html
+
 **Football Manager 26 review: Was the two-year wait worth it?**\
 `Ahead of its official release next week, there has been plenty of criticism online of the beta version. So what works and what does not?`\
 https://nytimes.com/athletic/6759565/2025/10/30/football-manager-26-review/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/30/nyregion/washington-square-park-drugs.html
 **Advancing Hope in the Fight Against Cancer**\
 `How a pioneering personalized therapy can change medical outcomes for patients with certain relapsed or refractory B-cell lymphomas.`\
 https://nytimes.com/paidpost/breyanzi-10-17/breyanzi/advancing-hope-in-the-fight-against-cancer.html
-
-**How NFL uses ‘expedited review’ to change officiating decisions during games**\
-`Inside the NFL's 'replay nirvana,' the league attempts to increase the accuracy of its calls while keeping game times down?`\
-https://nytimes.com/athletic/6760613/2025/10/30/nfl-expedited-review-process-referees-officials/
 
