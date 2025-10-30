@@ -1,3 +1,7 @@
+**Letitia James Questions Authority of Prosecutor Who Is Investigating Her**\
+`The appointment of the U.S. attorney in Albany, N.Y., John A. Sarcone, is at least the fifth to be questioned in the courts.`\
+https://nytimes.com/2025/10/30/nyregion/letitia-james-investigation-subpoenas.html
+
 **Who Walked Away Stronger in U.S.-China Trade Talks?**\
 `Xi Jinping secured concessions from Donald Trump in exchange for returning to the status quo.`\
 https://nytimes.com/2025/10/30/world/xi-trump-trade-talks.html
