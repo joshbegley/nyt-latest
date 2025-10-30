@@ -1,3 +1,11 @@
+**Chasing gold now comes with $100K for U.S. Olympic and Paralympic athletes**\
+`Elite athletes who spend their young adulthood training will now have access to grant money and life insurance after they're retired.`\
+https://nytimes.com/athletic/6763541/2025/10/30/u-s-olympic-and-paralympic-athletes-to-get-100000-for-making-the-team/
+
+**OKC Thunder's Nikola Topić diagnosed with testicular cancer**\
+`GM Sam Presti said doctors are optimistic about Topić's condition and recommended he begin chemotherapy.`\
+https://nytimes.com/athletic/6763885/2025/10/30/okc-thunder-nikola-topic-testicular-cancer/
+
 **gws-bringing-new-life-to-empty-subway-shops**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/bringing-new-life-to-empty-subway-shops
