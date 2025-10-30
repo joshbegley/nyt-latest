@@ -1,3 +1,19 @@
+**Agyemang ruled out for season with ACL injury**\
+`Agyemang was carried off the pitch on a stretcher in the 80th minute of England's 3-0 win against Australia at Pride Park on Tuesday.`\
+https://nytimes.com/athletic/6759678/2025/10/30/michelle-agyemang-injury-acl/
+
+**Trump and Xi Agree to a Yearlong Trade Truce**\
+`The deal rolls back many tariffs and retaliatory measures.`\
+https://nytimes.com/2025/10/30/us/trump-and-xi-agree-to-a-yearlong-trade-truce.html
+
+**‘Not So Bulletproof’: A Far-Right Party Faces Rebuke in the Netherlands**\
+`Geert Wilders suffered a loss of support as a center-left party staged major gains, an election result that could offer lessons for Europe’s far right.`\
+https://nytimes.com/2025/10/30/world/europe/netherlands-election-parliament-wilders.html
+
+**Lavelle remains a ‘magician’ for USWNT and Gotham – and her magic is rubbing off**\
+`As the second-most capped player for the U.S. this international window, Lavelle found herself navigating a newfound leadership role`\
+https://nytimes.com/athletic/6762476/2025/10/30/rose-lavelle-generational-talent-uswnt-gotham/
+
 **Phillies mailbag: Ranger Suárez, Alec Bohm and this offseason's most compelling figure**\
 `There are endless questions about how this offseason will unfold, and so many of you had good ones to ponder. Let's answer another batch.`\
 https://nytimes.com/athletic/6759989/2025/10/30/phillies-mailbag-ranger-suarez-alec-bohm-and-this-offseasons-most-compelling-figure/
@@ -22,20 +38,4 @@ https://nytimes.com/athletic/6747508/2025/10/30/womens-college-basketball-freshm
 **From backyard rinks in Edmonton to the Rangers, Matthew Robertson chases his NHL dream**\
 `It's been years since Matthew Robertson was last home to see an Edmonton winter. This time, he's on an NHL roster at last.`\
 https://nytimes.com/athletic/6761043/2025/10/30/rangers-matthew-robertson-rookie-season-nhl/
-
-**Packers' urgency evident in benching of marquee free-agent signing Nate Hobbs**\
-`Hobbs played every defensive snap at cornerback in Weeks 6 and 7 before playing just four of 63 defensive snaps in Week 8.`\
-https://nytimes.com/athletic/6761190/2025/10/30/packers-nate-hobbs-benched/
-
-**Yohe: Dubas deserves credit for Penguins' short- and long-term future**\
-`Under the radar, Kyle Dubas is on a heater. Suddenly, the Penguins have hope because of the work he has done. `\
-https://nytimes.com/athletic/6761724/2025/10/30/penguins-kyle-dubas-draft-trades-direction/
-
-**Matas Buzelis buzz growing as Bulls stay undefeated with win over Zach LaVine, Kings**\
-`A confident Buzelis, who scored 27 points on 11-for-18 shooting, has the Bulls 4-0 and loving life at the top.`\
-https://nytimes.com/athletic/6762221/2025/10/30/bulls-matas-buzelis-buzz-kings-zach-lavine/
-
-**Is USC built to make a late-season run? 5 thoughts on the Trojans heading into November**\
-`USC is getting strong play from QB Jayden Maiava, but the Trojans must improve on defense in the final month of the season. `\
-https://nytimes.com/athletic/6761232/2025/10/30/usc-football-lincoln-riley-jayden-maiava-schedule/
 
