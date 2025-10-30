@@ -1,3 +1,7 @@
+**Newcastle have not lost a Carabao Cup game for 681 days. This is why they're so good at them**\
+`Newcastle are on a run of 17 victories, 15 in normal time and two via shootout, with 32 goals scored and only nine conceded`\
+https://nytimes.com/athletic/6759361/2025/10/30/newcastle-681-days-carabao-cup/
+
 **Nico Gonzalez's Swansea display will give Man City hope he can step up and cover for Rodri**\
 `Manchester City overcame Swansea 3-1 on Wednesday night and Nico Gonzalez impressed in the No 6 position`\
 https://nytimes.com/athletic/6762462/2025/10/30/nico-gonzalez-manchester-city-rodri-swansea-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/30/nyregion/immigrant-wrongly-deported-mexico.html
 **Your Guide to the 2025 New York City Marathon**\
 `Everything you need to know about Sunday’s five-borough race.`\
 https://nytimes.com/2025/10/30/nyregion/2025-nyc-marathon-guide.html
-
-**'We are in dire straits' - Pub-goers of Wolverhampton on Vitor Pereira, Fosun and the future**\
-`The Wolves manager used to frequent local pubs, but that is no more. A cup defeat has now been added to a terrible start in the league.`\
-https://nytimes.com/athletic/6761818/2025/10/30/wolves-fosun-vitor-pereira/
 
