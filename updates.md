@@ -1,3 +1,7 @@
+**Nikola Jokić joins Oscar Robertson on short list for NBA history in Nuggets' blowout win over Pelicans**\
+`It wouldn't be an NBA season without Nikola Jokić finding ways to unique stuff the stat sheet.`\
+https://nytimes.com/athletic/6762061/2025/10/30/nikola-jokic-nuggets-triple-double-oscar-robertson-nba/
+
 **Who are Real Madrid's winners and losers under Xabi Alonso?**\
 `Which players at the Bernabeu have benefited most from the rebuild under Carlo Ancelotti's replacement? Mario Cortegana takes a look`\
 https://nytimes.com/athletic/6760532/2025/10/30/real-madrid-alonso-mbappe-vinicius-guler/

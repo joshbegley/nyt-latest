@@ -1,3 +1,7 @@
+**Diego Leon scored a super goal for Man Utd U21s. So how is the first team's 'little brother' doing?**\
+`Bruno Fernandes and Casemiro are among the first-team players to have taken Diego Leon under their wing as he starts to find his feet`\
+https://nytimes.com/athletic/6760310/2025/10/30/diego-leon-manchester-united-highlights/
+
 **Nikola Jokić joins Oscar Robertson on short list for NBA history in Nuggets' blowout win over Pelicans**\
 `It wouldn't be an NBA season without Nikola Jokić finding ways to unique stuff the stat sheet.`\
 https://nytimes.com/athletic/6762061/2025/10/30/nikola-jokic-nuggets-triple-double-oscar-robertson-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6761994/2025/10/29/raptors-poor-starts-early-strugg
 **After morning meeting, Blue Jackets' checking line erupts to lead rout of Leafs**\
 `All three skaters on the Blue Jackets' third line set or matched career highs against the Leafs.`\
 https://nytimes.com/athletic/6761974/2025/10/29/blue-jackets-coyle-sillinger-olivier-leafs/
-
-**Blue Jays-Dodgers Game 5 takeaways: Trey Yesavage's masterpiece lifts Toronto**\
-`The World Series will now shift back to Toronto, with the Blue Jays just one win away. But first they'll have to face Yoshinobu Yamamoto. `\
-https://nytimes.com/athletic/6762002/2025/10/29/dodgers-blue-jays-world-series-game-5-results-takeaways-mlb/
 
