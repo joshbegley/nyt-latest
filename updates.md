@@ -1,3 +1,7 @@
+**Pro-Cuomo PAC Tells Donors Mayor’s Race Is Still ‘Very Winnable’**\
+`The committee, Put NYC First, urged donors to keep giving money to help Andrew M. Cuomo’s independent campaign despite new polling suggesting that the Democratic candidate, Zohran Mamdani, is ahead.`\
+https://nytimes.com/2025/10/30/nyregion/cuomo-pac-election-mamdani.html
+
 **Trump Revived a Cold War Debate**\
 `Also, Prince Andrew is being stripped of his royal title. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/10/30/briefing/trump-nuclear-tests-prince-andrew-title.html

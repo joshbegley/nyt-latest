@@ -1,3 +1,7 @@
+**Pro-Cuomo PAC Tells Donors Mayor’s Race Is Still ‘Very Winnable’**\
+`The committee, Put NYC First, urged donors to keep giving money to help Andrew M. Cuomo’s independent campaign despite new polling suggesting that the Democratic candidate, Zohran Mamdani, is ahead.`\
+https://nytimes.com/2025/10/30/nyregion/cuomo-pac-election-mamdani.html
+
 **Trump Revived a Cold War Debate**\
 `Also, Prince Andrew is being stripped of his royal title. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/10/30/briefing/trump-nuclear-tests-prince-andrew-title.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010478100/palantirs-cto-on-ice-people-vo
 **Marthe Gautier, 96, Dies; Had Key Role in Down Syndrome Breakthrough**\
 `She had to fight for recognition after a male colleague took credit for her work in identifying an extra chromosome as the cause of that genetic condition.`\
 https://nytimes.com/2025/10/30/health/marthe-gautier-dead.html
-
-**Letitia James Questions Authority of Prosecutor Who Is Investigating Her**\
-`The appointment of the U.S. attorney in Albany, N.Y., John A. Sarcone, is at least the fifth to be questioned in the courts.`\
-https://nytimes.com/2025/10/30/nyregion/letitia-james-investigation-subpoenas.html
 
