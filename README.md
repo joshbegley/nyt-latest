@@ -1,3 +1,11 @@
+**Giants' Dexter Lawrence fires back at Carl Banks' 'delusional' criticism**\
+`Banks' harsh criticism was surprising, considering he works for the Giants as the color analyst on radio broadcasts. `\
+https://nytimes.com/athletic/6762972/2025/10/30/giants-dexter-lawrence-carl-banks-criticism/
+
+**Eight Eagles Thoughts: Jalen Hurts MVP candidate, where to play Cooper DeJean, post-bye success**\
+`Plus, Jalyx Hunt's stock is rising`\
+https://nytimes.com/athletic/6762078/2025/10/30/jalen-hurts-mvp-candidate-cooper-dejean-bye-week/
+
 **Why Investors Seem Underwhelmed by the Trump-Xi Meeting**\
 `The highly anticipated event covered a lot of ground on tariff and trade barriers, but questions remain about reaching a lasting accord.`\
 https://nytimes.com/2025/10/30/business/dealbook/trump-xi-china-meeting.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/30/nyregion/emerson-marist-poll-mamdani-nyc-mayor.ht
 **Here’s the latest.**\
 `By Jeffery C. Mays and Matthew Haag`\
 https://nytimes.com/live/2025/10/30/nyregion/nyc-mayor-election-news/heres-the-latest
-
-**N.Y.C. Mayor’s Race Live Updates: Two New Polls Show Mamdani With Commanding Lead**\
-`Zohran Mamdani continues to do well in surveys of likely voters, as his main rivals, Andrew M. Cuomo and Curtis Sliwa, strive to catch him. More than 370,000 New Yorkers have already voted early.`\
-https://nytimes.com/live/2025/10/30/nyregion/nyc-mayor-election-news
-
-**A 'brilliant' mind: Nebraska volleyball freshman Manaia Ogbechie aims to change the game**\
-`"When I'm on the court, it's for everybody else. And that makes it so easy," said Ogbechie, a 6-foot-3 middle blocker.`\
-https://nytimes.com/athletic/6761908/2025/10/30/nebraska-volleyball-manaia-ogbechie/
 

@@ -1,3 +1,7 @@
+**Why Investors Seem Underwhelmed by the Trump-Xi Meeting**\
+`The highly anticipated event covered a lot of ground on tariff and trade barriers, but questions remain about reaching a lasting accord.`\
+https://nytimes.com/2025/10/30/business/dealbook/trump-xi-china-meeting.html
+
 **Mandel: LSU was this coaching carousel's best job — then the governor grabbed the mic**\
 `Louisiana Gov. Jeff Landry's comments about taking the LSU search away from AD Scott Woodward might cause any top candidate to think twice.`\
 https://nytimes.com/athletic/6762366/2025/10/30/lsu-football-coach-governor-jeff-landry-louisiana/
