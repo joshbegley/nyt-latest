@@ -1,3 +1,7 @@
+**Nikola Jokić joins Oscar Robertson on short list for NBA history in Nuggets' blowout win over Pelicans**\
+`It wouldn't be an NBA season without Nikola Jokić finding ways to unique stuff the stat sheet.`\
+https://nytimes.com/athletic/6762061/2025/10/30/nikola-jokic-nuggets-triple-double-oscar-robertson-nba/
+
 **Who are Real Madrid's winners and losers under Xabi Alonso?**\
 `Which players at the Bernabeu have benefited most from the rebuild under Carlo Ancelotti's replacement? Mario Cortegana takes a look`\
 https://nytimes.com/athletic/6760532/2025/10/30/real-madrid-alonso-mbappe-vinicius-guler/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6761974/2025/10/29/blue-jackets-coyle-sillinger-oli
 **Blue Jays-Dodgers Game 5 takeaways: Trey Yesavage's masterpiece lifts Toronto**\
 `The World Series will now shift back to Toronto, with the Blue Jays just one win away. But first they'll have to face Yoshinobu Yamamoto. `\
 https://nytimes.com/athletic/6762002/2025/10/29/dodgers-blue-jays-world-series-game-5-results-takeaways-mlb/
-
-**Rookie Trey Yesavage's brilliance has Blue Jays one win away from glory**\
-`Yesavage struck out 12 as the Blue Jays bested his Dodger counterpart, Blake Snell, for the second time this series. `\
-https://nytimes.com/athletic/6762037/2025/10/29/blue-jays-trey-yesavage-game-5-world-series-win/
 
