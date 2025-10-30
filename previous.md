@@ -1,3 +1,15 @@
+**After morning meeting, Blue Jackets' checking line erupts to lead rout of Leafs**\
+`All three skaters on the Blue Jackets' third line set or matched career highs against the Leafs.`\
+https://nytimes.com/athletic/6761974/2025/10/29/blue-jackets-coyle-sillinger-olivier-leafs/
+
+**Blue Jays-Dodgers Game 5 takeaways: Trey Yesavage's masterpiece lifts Toronto**\
+`The World Series will now shift back to Toronto, with the Blue Jays just one win away. But first, they'll have to face Yoshinobu Yamamoto. `\
+https://nytimes.com/athletic/6762002/2025/10/29/dodgers-blue-jays-world-series-game-5-results-takeaways-mlb/
+
+**Rookie Trey Yesavage's brilliance has Blue Jays one win away from glory**\
+`Yesavage struck out 12 as the Blue Jays bested his Dodger counterpart, Blake Snell, for the second time this series. `\
+https://nytimes.com/athletic/6762037/2025/10/29/blue-jays-trey-yesavage-game-5-world-series-win/
+
 **Former Duke star Kyle Singler arrested on domestic abuse charge in Oklahoma**\
 `Singler's arrest comes 11 months after he posted a rambling Instagram video that prompted messages of concern from fellow players.`\
 https://nytimes.com/athletic/6761925/2025/10/29/kyle-singler-duke-basketball-thunder-arrest-assault-charge/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/29/us/animal-rights-activist-convicted-sonoma-chicke
 **John Tavares becomes 49th NHL player to score 500 career goals**\
 `Tavares has scored 228 goals for the Maple Leafs in just 526 games.`\
 https://nytimes.com/athletic/6758107/2025/10/29/john-tavares-500-goals-nhl-maple-leafs/
-
-**A Strong Sense of Direction**\
-`Howard Neuthaler’s puzzle lifts the spirit.`\
-https://nytimes.com/2025/10/29/crosswords/daily-puzzle-2025-10-30.html
-
-**Trump Threatens to Resume Nuclear Weapons Testing, Minutes Before Xi Meeting**\
-`Just minutes before he was scheduled to meet President Xi Jinping of China, the president threatened on social media to resume nuclear testing for the first time in 33 years.`\
-https://nytimes.com/2025/10/29/us/politics/trump-nuclear-weapons-testing.html
-
-**Right knee sprain causes Trae Young to leave Atlanta's matchup against Nets**\
-`Trae Young's slow start to 2025-26 season continues due to right knee sprain vs. Nets`\
-https://nytimes.com/athletic/6761911/2025/10/29/trae-young-hawks-injury-knee-nets/
 

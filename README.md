@@ -26,6 +26,10 @@ https://nytimes.com/athletic/6761895/2025/10/29/uswnt-new-zealand-emma-sears-hat
 `After a nightmare 6-3 loss to the Blue Jackets, Toronto is now on pace for just 82 points after the first month of the season.`\
 https://nytimes.com/athletic/6761957/2025/10/29/maple-leafs-blue-jackets-john-tavares/
 
+**Trump Meets China’s Xi**\
+`President Trump and China’s top leader, Xi Jinping, shook hands in Busan, South Korea, on Thursday.`\
+https://nytimes.com/video/admin/100000010490457/trump-xi-south-korea.html
+
 **Lower leg injury causes Anthony Davis to leave Mavericks-Pacers matchup**\
 `Davis was limited to nine games last season with the Mavericks due to an adductor strain.`\
 https://nytimes.com/athletic/6761980/2025/10/29/anthony-davis-mavericks-leg-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6761980/2025/10/29/anthony-davis-mavericks-leg-inju
 **She Said She Was Rescuing Chickens. A Jury Convicted Her of Conspiracy.**\
 `Zoe Rosenberg, a California animal rights activist, was found guilty of conspiracy and trespassing for taking four chickens from a poultry plant.`\
 https://nytimes.com/2025/10/29/us/animal-rights-activist-convicted-sonoma-chickens.html
-
-**John Tavares becomes 49th NHL player to score 500 career goals**\
-`Tavares has scored 228 goals for the Maple Leafs in just 526 games.`\
-https://nytimes.com/athletic/6758107/2025/10/29/john-tavares-500-goals-nhl-maple-leafs/
 
