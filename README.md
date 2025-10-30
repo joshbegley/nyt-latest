@@ -1,3 +1,11 @@
+**Cuomo Says Mamdani Could ‘Kill’ New York and Democratic Party if Elected**\
+`In an interview with the sports host Stephen A. Smith, former Gov. Andrew M. Cuomo offered a dark prophecy for a Mamdani mayoralty.`\
+https://nytimes.com/2025/10/29/nyregion/cuomo-mamdani-democrats-nyc-mayor.html
+
+**U.S. Military Kills Four More People Accused of Smuggling Drugs on Boats**\
+`Defense Secretary Pete Hegseth said the latest strike took place on Wednesday in the eastern Pacific. It came two days after the deadliest set of strikes in the weekslong campaign in Latin America.`\
+https://nytimes.com/2025/10/29/us/politics/military-drug-boat-strikes.html
+
 **Marcedes Lewis didn't hesitate on a 20th season to be with first-place Broncos**\
 `The 41-year-old tight end was "at peace" with moving on to life after football, but couldn't resist the opportunity in Denver.`\
 https://nytimes.com/athletic/6761707/2025/10/29/marcedes-lewis-denver-broncos-sean-payton/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/29/us/cotton-gin-fire-texas-gregory.html
 **Judge Cuts Greenpeace Pipeline Protest Award Nearly in Half**\
 `A North Dakota judge reduced the jury’s award to the pipeline company Energy Transfer to roughly $345 million, from $667 million.`\
 https://nytimes.com/2025/10/29/climate/greenpeace-dakota-access-pipeline-damages.html
-
-**After seeking LeBron James' advice, Jaylen Brown teases new 'haircut' on stream**\
-`Jaylen Brown on why he is balding: "I blame Boston. Ten years of stress, the media, the championships."`\
-https://nytimes.com/athletic/6761341/2025/10/29/jaylen-brown-celtics-nba-lebron-james-haircut/
-
-**Slot defends Liverpool selection with 'only 15 players available'**\
-`Slot made 10 changes to the side who lost at Brentford on Saturday, but the defeat to Palace marked a sixth loss in seven for Liverpool.`\
-https://nytimes.com/athletic/6761471/2025/10/29/liverpool-team-crystal-palace-slot/
 
