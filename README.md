@@ -1,3 +1,11 @@
+**U.S. Charges 19 With Flooding Washington Square Park With Drugs**\
+`Prosecutors said dealers had sold millions of doses of heroin and fentanyl. The police in New York have responded to dozens of overdoses in the park and surrounding area in recent years.`\
+https://nytimes.com/2025/10/30/nyregion/washington-square-park-drugs.html
+
+**Advancing Hope in the Fight Against Cancer**\
+`How a pioneering personalized therapy can change medical outcomes for patients with certain relapsed or refractory B-cell lymphomas.`\
+https://nytimes.com/paidpost/breyanzi-10-17/breyanzi/advancing-hope-in-the-fight-against-cancer.html
+
 **How the NFL uses ‘expedited review’ to change officiating decisions during games**\
 `Inside the NFL's 'replay nirvana,' the league attempts to increase the accuracy of its calls while keeping game times down?`\
 https://nytimes.com/athletic/6760613/2025/10/30/nfl-expedited-review-process-referees-officials/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6763528/2025/10/30/flames-vs-senators-stream-how-to
 **As ICE Raids Upend L.A., Mexican Immigrants Vent, and a Diplomat Listens**\
 `Weekly public meetings at the Mexican consulate in Los Angeles have become a place where immigrants ask for help to a host of problems, big and small.`\
 https://nytimes.com/2025/10/30/us/immigration-raids-los-angeles-mexican-diplomat.html
-
-**Trump Administration Tells Court It Has Money It Can’t Spend to Prevent Food Stamp Cuts**\
-`States have sued the federal government to force the release of aid during the shutdown, with a key hearing set for Thursday.`\
-https://nytimes.com/2025/10/30/us/politics/food-stamps-shutdown.html
-
-**Soybean Farmers Find Relief in U.S. Trade Truce With China**\
-`President Trump said China would end its boycott and resume buying millions of tons of American soybeans.`\
-https://nytimes.com/2025/10/30/business/economy/soybean-farmers-us-china-truce.html
 
