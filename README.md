@@ -1,3 +1,7 @@
+**Unrivaled women's basketball league announces 8 head coaches, 3 new players**\
+`The league announced a number of significant changes ahead of its second year.`\
+https://nytimes.com/athletic/6764232/2025/10/30/unrivaled-basketball-coaches-players/
+
 **Amid Flattened Homes, Jamaica Starts to Assess Hurricane Melissa’s Damage**\
 `The Jamaican authorities said they were not able to confirm the death toll from the storm yet, but expected it to rise in the coming days. At least 30 people died in Haiti, officials said.`\
 https://nytimes.com/2025/10/30/us/hurricane-melissa-jamaica.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/30/us/politics/trump-democrats-boat-strikes.html
 **Ted Huffman, Director and Writer, to Lead Major Opera Festival**\
 `The Aix-en-Provence Festival in France has named Huffman to succeed the visionary Pierre Audi, who died earlier this year.`\
 https://nytimes.com/2025/10/30/arts/music/ted-huffman-aix-festival.html
-
-**gws-coffee-ice-cream-candy-nyc-treats**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/coffee-ice-cream-candy-nyc-treats
 
