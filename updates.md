@@ -1,3 +1,15 @@
+**A Strong Sense of Direction**\
+`Howard Neuthaler’s puzzle lifts the spirit.`\
+https://nytimes.com/2025/10/29/crosswords/daily-puzzle-2025-10-30.html
+
+**Trump Threatens to Resume Nuclear Weapons Testing, Minutes Before Xi Meeting**\
+`Just minutes before he was scheduled to meet President Xi Jinping of China, the president threatened on social media to resume nuclear testing for the first time in 33 years.`\
+https://nytimes.com/2025/10/29/us/politics/trump-nuclear-weapons-testing.html
+
+**Right knee sprain causes Trae Young to leave Atlanta's matchup against Nets**\
+`Trae Young's slow start to 2025-26 season continues due to right knee sprain vs. Nets`\
+https://nytimes.com/athletic/6761911/2025/10/29/trae-young-hawks-injury-knee-nets/
+
 **Their Professors Caught Them Cheating. They Used A.I. to Apologize.**\
 `Two professors at the University of Illinois Urbana-Champaign said they grew suspicious after receiving identical apologies from dozens of students they had accused of academic dishonesty.`\
 https://nytimes.com/2025/10/29/us/university-illinois-students-cheating-ai.html
