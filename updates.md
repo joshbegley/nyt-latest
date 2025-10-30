@@ -1,3 +1,7 @@
+**Are 49ers still looking for an edge? Five deals that make sense as deadline nears**\
+`Yes, the 49ers acquired a pair of defensive linemen earlier this week. But neither is exactly the edge pass rusher the 49ers currently lack.`\
+https://nytimes.com/athletic/6764787/2025/10/30/49ers-trade-deadline-looking-for-edge-five-deals/
+
 **NCAA basketball tournaments will use player availability reports**\
 `The NCAA says that player availability reports aim to protect player "well-being and competition integrity from sports betting influences."`\
 https://nytimes.com/athletic/6764840/2025/10/30/ncaa-player-availability-reports-betting-march-madness/

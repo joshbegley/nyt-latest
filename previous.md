@@ -1,3 +1,7 @@
+**Are 49ers still looking for an edge? Five deals that make sense as deadline nears**\
+`Yes, the 49ers acquired a pair of defensive linemen earlier this week. But neither is exactly the edge pass rusher the 49ers currently lack.`\
+https://nytimes.com/athletic/6764787/2025/10/30/49ers-trade-deadline-looking-for-edge-five-deals/
+
 **NCAA basketball tournaments will use player availability reports**\
 `The NCAA says that player availability reports aim to protect player "well-being and competition integrity from sports betting influences."`\
 https://nytimes.com/athletic/6764840/2025/10/30/ncaa-player-availability-reports-betting-march-madness/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/30/business/media/puck-buys-airmail.html
 **Sean Combs Transferred to Federal Prison in New Jersey**\
 `The music mogul was sentenced earlier this month to 50 months in prison for two counts of transportation to engage in prostitution.`\
 https://nytimes.com/2025/10/30/arts/music/sean-combs-diddy-prison.html
-
-**Mamdani Leads in Latest Polls**\
-`Three new polls show Zohran Mamdani leading the New York City mayoral race. The two other major candidates, Andrew Cuomo and Curtis Sliwa, made their last appeals to voters before election day.`\
-https://nytimes.com/video/us/elections/100000010491269/new-york-city-election-polls.html
 
