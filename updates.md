@@ -1,3 +1,11 @@
+**Trump Rule Could Bar Some Public Servants From Student Loan Forgiveness**\
+`A new rule could disqualify certain employers from the Public Service Loan Forgiveness program that are deemed to be engaged in “illegal activities.”`\
+https://nytimes.com/2025/10/30/business/trump-student-loan-forgiveness-public-service.html
+
+**As trade deadline nears, DC Matt Eberflus says Cowboys have what they need to fix defense**\
+`Dallas’ opponents are averaging 405 yards and 31 points per game. "Defense just has to pick it up," Jadeveon Clowney said.`\
+https://nytimes.com/athletic/6763925/2025/10/30/cowboys-defense-problems-matt-eberflus/
+
 **NFL Week 9 projected scores: Model predicts point spreads and totals for every game**\
 `Austin Mock's projection model predicts point spreads and point totals for NFL Week 9. We compare it to betting lines.`\
 https://nytimes.com/athletic/6764050/2025/10/30/nfl-week-9-projected-scores-point-spreads-totals/

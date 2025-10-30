@@ -1,8 +1,12 @@
+**Trump Rule Could Bar Some Public Servants From Student Loan Forgiveness**\
+`A new rule could disqualify certain employers from the Public Service Loan Forgiveness program that are deemed to be engaged in “illegal activities.”`\
+https://nytimes.com/2025/10/30/business/trump-student-loan-forgiveness-public-service.html
+
 **NFL Week 9 projected scores: Model predicts point spreads and totals for every game**\
 `Austin Mock's projection model predicts point spreads and point totals for NFL Week 9. We compare it to betting lines.`\
 https://nytimes.com/athletic/6764050/2025/10/30/nfl-week-9-projected-scores-point-spreads-totals/
 
-**As trade deadline nears, DC Matt Eberlus says Cowboys have what they need to fix defense**\
+**As trade deadline nears, DC Matt Eberflus says Cowboys have what they need to fix defense**\
 `Dallas’ opponents are averaging 405 yards and 31 points per game. "Defense just has to pick it up," Jadeveon Clowney said.`\
 https://nytimes.com/athletic/6763925/2025/10/30/cowboys-defense-problems-matt-eberflus/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6762331/2025/10/30/rose-bowl-lawsuit-ucla-sofi-stad
 **NFL best bets Week 9: Picking a side in the Chiefs-Bills showdown**\
 `Austin Mock uses his NFL projection model to pick out a handful of bets for Week 9.`\
 https://nytimes.com/athletic/6763906/2025/10/30/nfl-best-bets-week-9-chiefs-bills/
-
-**Will Real Madrid really sue UEFA for €4.5bn over the European Super League?**\
-`The Spanish club say they will take legal action against European football's governing body over their failed Super League project`\
-https://nytimes.com/athletic/6762723/2025/10/30/real-madrid-uefa-super-league-news/
 
