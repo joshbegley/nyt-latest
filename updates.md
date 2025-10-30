@@ -1,3 +1,11 @@
+**Growing up is hard to do but fun to watch: Evaluating the Sharks' first 10 games**\
+`Over the start of the 2025-26 season, the Sharks have looked good, bad and everything in between.`\
+https://nytimes.com/athletic/6761940/2025/10/30/san-jose-sharks-10-games-celebrini-askarov-misa/
+
+**Calley Means, a Kennedy Adviser, Has Left the White House**\
+`Mr. Means quietly departed his federal role about a month ago. His sister has been nominated for surgeon general.`\
+https://nytimes.com/2025/10/30/health/calley-means-kennedy-adviser-departure.html
+
 **Giants' Dexter Lawrence fires back at Carl Banks' 'delusional' criticism**\
 `Banks' harsh criticism was surprising, considering he works for the Giants as the color analyst on radio broadcasts. `\
 https://nytimes.com/athletic/6762972/2025/10/30/giants-dexter-lawrence-carl-banks-criticism/
