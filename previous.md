@@ -1,3 +1,27 @@
+**Trump and Xi Ease Off the Trade War, but New Nuclear Threat Brings a Chill**\
+`The two leaders reached an agreement on fentanyl, some tariffs and rare earths, at least for a year. But even as the global trade picture cleared a little, Mr. Trump spurred new worries about nuclear proliferation.`\
+https://nytimes.com/2025/10/30/us/politics/trump-xi-trade-meeting.html
+
+**TAFC: Messi's $20m salary and MLS' future. Plus: 15-year-old Dowman makes history**\
+`MLS salaries have been revealed, and there are no prizes for guessing its top earner. But what does it say about the competition?`\
+https://nytimes.com/athletic/6762730/2025/10/30/messi-salary-mls-dowman-tafc/
+
+**Australian cricketer, 17, dies after being hit by ball**\
+`The teenager was warming up with his team-mates in training nets when the incident occurred.`\
+https://nytimes.com/athletic/6762579/2025/10/30/australia-cricketer-death-ben-austin/
+
+**Weird & Wild: Yesavage's gem cements his place among playoff greats — but he's one of a kind**\
+`Let's run through eight fun facts to help explain how cool, shocking and unforgettable the story of the Blue Jays’ 22-year-old has become.`\
+https://nytimes.com/athletic/6762591/2025/10/30/trey-yesavage-world-series-game-5-bluejays-mlb-playoff-history/
+
+**Connections: Sports Edition Coach: Hints for Oct. 30, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6762767/2025/10/30/connections-sports-edition-hints-for-oct-30-2025/
+
+**Bulls deny Zach LaVine his revenge, stay unbeaten in best start in four years**\
+`The Bulls shook off the return of their one-time star to keep their undefeated start to the season going in a 126-113 win over the Kings.`\
+https://nytimes.com/athletic/6762564/2025/10/30/bulls-kings-zach-lavine-return/
+
 **Women's college basketball: 5 questions for the 2025-26 season**\
 `Will South Carolina look different this season? Chantel Jennings answers pressing preseason questions.`\
 https://nytimes.com/athletic/6747395/2025/10/30/womens-college-basketball-preseason-questions-uconn/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6759877/2025/10/30/blue-jays-dodgers-trey-yesavage-
 **Dwayne ‘The Rock Johnson’ Is Finally Going There**\
 `Wesley talks to Sam Anderson, who recently spent a day with Johnson for the New York Times Magazine.`\
 https://nytimes.com/video/podcasts/100000010484062/dwayne-the-rock-johnson-is-finally-going-there.html
-
-**Behind John Tavares’ fanatical drive to 500 NHL goals with the Leafs**\
-`Nothing about Tavares' journey to becoming the 49th player in NHL history to score 500 career goals happened by accident.`\
-https://nytimes.com/athletic/6753795/2025/10/30/john-tavares-maple-leafs-500-goals/
-
-**Frustration rises in Minnesota after Timberwolves stumble again: 'There's no excuse'**\
-`Defense and point guard play are two major issues for the Wolves, who lost to a Lakers team missing LeBron James and Luka Dončić.`\
-https://nytimes.com/athletic/6761946/2025/10/30/timberwolves-defense-point-guards-lakers/
-
-**After dominant Game 5, the Blue Jays head home for a moment 32 years in the making**\
-`Nobody in the Blue Jays’ lineup for Game 5 of the World Series, an emphatic 6-1 thumping of the Dodgers, was alive in 1993.`\
-https://nytimes.com/athletic/6762547/2025/10/30/toronto-blue-jays-world-series-moment/
-
-**Chiefs trade deadline primer: Here are the positions K.C. is most likely to target**\
-`The Chiefs, for a change, might not be active before the NFL trade deadline. But they're most likely to listen on two positions.`\
-https://nytimes.com/athletic/6760612/2025/10/30/chiefs-trade-deadline-targets/
-
-**Ravens at Dolphins on TNF: Spooky showdown in Miami, with curses old and new**\
-`Lamar Jackson and Tua Tagovailoa take the field on Thursday night. Like your football with omens? This matchup delivers.`\
-https://nytimes.com/athletic/6760608/2025/10/30/ravens-dolphins-tnf-lamar-jackson-how-to-watch/
-
-**Panthers' OL depth will be tested with Bryce Young expected to return vs. Packers**\
-`Right tackle Taylor Moton hopes to play Sunday. Guard Chandler Zavala expects to be activated from injured reserve before the game.`\
-https://nytimes.com/athletic/6761342/2025/10/30/panthers-offensive-line-bryce-young-packers/
 

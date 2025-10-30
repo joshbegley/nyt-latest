@@ -1,3 +1,7 @@
+**Point Şengün and vintage KD have helped the Rockets' offense take flight**\
+`Defense was supposed to be Houston's strength, as it was a year ago. Yet it's thriving on the other end of the floor.`\
+https://nytimes.com/athletic/6762568/2025/10/30/rockets-offense-nba-alperen-sengun-kevin-durant/
+
 **Trump and Xi Ease Off the Trade War, but New Nuclear Threat Brings a Chill**\
 `The two leaders reached an agreement on fentanyl, some tariffs and rare earths, at least for a year. But even as the global trade picture cleared a little, Mr. Trump spurred new worries about nuclear proliferation.`\
 https://nytimes.com/2025/10/30/us/politics/trump-xi-trade-meeting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/30/learning/science-practice-a-study-on-a-rodent-sha
 **The Pulse: The Blue Jays flap closer to a title**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6759877/2025/10/30/blue-jays-dodgers-trey-yesavage-the-pulse/
-
-**Dwayne ‘The Rock Johnson’ Is Finally Going There**\
-`Wesley talks to Sam Anderson, who recently spent a day with Johnson for the New York Times Magazine.`\
-https://nytimes.com/video/podcasts/100000010484062/dwayne-the-rock-johnson-is-finally-going-there.html
 
