@@ -1,3 +1,11 @@
+**Far Right Projected to Lose Ground to the Center Left in Dutch Election**\
+`In a major loss for Geert Wilders’s far-right, his populist Party for Freedom was poised to lose ground to the socially progressive Democrats 66 of Rob Jetten after Wednesday’s Dutch election. Mr. Jetten, 38, could take the first chance to form a new government.`\
+https://nytimes.com/video/world/europe/100000010490960/wilders-loss-dutch-elections.html
+
+**College football Week 10 picks ATS: Could Navy-North Texas be a better game than PSU-OSU?**\
+`Several contenders face do or die games this week, while the battle for the American Conference is shaping up to be a barn-burner.`\
+https://nytimes.com/athletic/6759099/2025/10/30/college-football-picks-spread-week-10/
+
 **How States Are Preparing for a Freeze in Federal Food Assistance**\
 `The Supplemental Nutritional Assistance Program will run out of money on Saturday. Some governors are shifting state money to cover part of the shortfall, bolster food pantries or both.`\
 https://nytimes.com/2025/10/30/us/politics/snap-states.html
@@ -26,15 +34,7 @@ https://nytimes.com/athletic/6763218/2025/10/30/wta-tour-finals-draw-schedule-re
 ``\
 https://nytimes.com/spotlight/bonus-puzzles
 
-**Jamaicans face downed trees, ripped roofs and miles of mud after the powerful storm.**\
+**Jamaicans face downed trees, ripped roofs and miles of mud after Hurricane Melissa.**\
 `By Victor Mather`\
 https://nytimes.com/live/2025/10/30/weather/hurricane-melissa/jamaicans-face-downed-trees-ripped-roofs-and-miles-of-mud-after-the-powerful-storm
-
-**Wood close to Nottm Forest return after injury, but out of Man Utd visit**\
-`Last season’s 20-goal top scorer picked up a knee problem while with New Zealand during the last international break.`\
-https://nytimes.com/athletic/6763565/2025/10/30/nottingham-forest-team-news-chris-wood-injury/
-
-**Blue Jays jump Dodgers, now favored to win World Series**\
-`With back-to-back wins in Los Angeles, the Blue Jays shocked the world and the odds board.`\
-https://nytimes.com/athletic/6763138/2025/10/30/world-series-odds-blue-jays-dodgers/
 
