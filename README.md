@@ -1,3 +1,7 @@
+**Amorim: Man Utd will 'struggle' due to AFCON absences**\
+`The attacking pair could miss up to six Premier League games while on international duty over December and January.`\
+https://nytimes.com/athletic/6763180/2025/10/30/mbeumo-amad-manchester-united-afcon/
+
 **Can New York City Buses Be Both Fast and Free?**\
 `Our reporter Larry Buchanan collects data on the B41 bus in Brooklyn to find out why New York City buses are the slowest in the nation and whether Zohran Mamdani’s campaign pledge to make buses free would speed them up.`\
 https://nytimes.com/video/upshot/100000010473160/can-new-york-city-buses-be-both-fast-and-free.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6763060/2025/10/30/broncos-alex-palczewski-left-gua
 **Christmas Eve tie? Four games in eight days? When Arsenal-Palace could be played**\
 `Palace face Arsenal in the Carabao Cup quarter-finals, but there are scheduling issues with both clubs in European competition.`\
 https://nytimes.com/athletic/6761398/2025/10/30/arsenal-crystal-palace-carabao-cup-when/
-
-**Kent State names Mark Carney head coach, removing interim tag after 2 wins in 3 weeks**\
-`Kent State is the first of 12 FBS schools with head-coaching vacancies to fill its job. `\
-https://nytimes.com/athletic/6763083/2025/10/30/kent-state-mark-carney-head-coach-hire/
 
