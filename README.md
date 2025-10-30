@@ -1,3 +1,7 @@
+**Amid Flattened Homes, Jamaica Starts to Assess Hurricane Melissa’s Damage**\
+`The Jamaican authorities said they were not able to confirm the death toll from the storm yet, but expected it to rise in the coming days. At least 30 people died in Haiti, officials said.`\
+https://nytimes.com/2025/10/30/us/hurricane-melissa-jamaica.html
+
 **6 New Hotels Put Umbria on the Map**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/italy-umbria-new-hotels
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/30/arts/music/ted-huffman-aix-festival.html
 **gws-coffee-ice-cream-candy-nyc-treats**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/coffee-ice-cream-candy-nyc-treats
-
-**Rio’s Deadliest Crackdown on Drug Gangs Sparks Outrage**\
-`Residents in Rio de Janeiro questioned the methods the authorities used in a large-scale police operation targeting drug gangs that has become the deadliest crackdown in the city’s history.`\
-https://nytimes.com/video/world/americas/100000010492269/rio-brazil-drug-gangs-raids.html
 
