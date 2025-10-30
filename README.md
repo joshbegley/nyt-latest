@@ -1,6 +1,6 @@
 **Trump’s Test Threat Could Fuel Nuclear Tensions With China**\
 `Beijing has been expanding its arsenal, and distrust between China and the United States over nuclear weapons has deepened, with little hope of an agreement.`\
-https://nytimes.com/live/2025/10/28/us/trump-news-south-korea/nuclear-test-ban
+https://nytimes.com/2025/10/29/us/politics/nuclear-test-ban.html
 
 **Illinois Man Charged With Threatening Trump on Social Media**\
 `Derek Lopez, 27, defended his posts as performance art and free speech, according to an affidavit. The F.B.I. said he continued to use threatening language despite a warning from agents.`\
