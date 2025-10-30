@@ -1,3 +1,15 @@
+**Why Trump’s Boat Killings Would Be Hard to Prosecute**\
+`Even if critics who call President Trump’s boat attacks “murder” are right as a matter of law, it would not be easy to get the matter into a court.`\
+https://nytimes.com/2025/10/30/us/politics/trump-boat-killings-prosecutions.html
+
+**Islanders scratch Mathew Barzal for being late: 'That’s the culture of our team'**\
+`Barzal will not play in the Islanders' game Thursday night against the Hurricanes after showing up late to a morning practice.`\
+https://nytimes.com/athletic/6763821/2025/10/30/islanders-mathew-barzal-scratch-hurricanes/
+
+**NBA approves Los Angeles Lakers majority stake sale to Mark Walter**\
+`Walter, who has owned the Los Angeles Dodgers since 2012, now owns 85 percent of the Lakers.`\
+https://nytimes.com/athletic/6763776/2025/10/30/los-angeles-lakers-sale-mark-walter/
+
 **Eight Perfect Pumpkin Recipes**\
 `And three recipes for those pumpkin seeds.`\
 https://nytimes.com/2025/10/30/dining/eight-perfect-pumpkin-recipes.html
