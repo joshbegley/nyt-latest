@@ -1,3 +1,11 @@
+**Fantasy football matchup rankings Week 9 | Strength of schedule**\
+`Jake Ciely's Week 9 matchup rankings can help you with difficult start/sit decisions this week. `\
+https://nytimes.com/athletic/6760751/2025/10/30/fantasy-football-matchup-rankings-week-9-strength-of-schedule/
+
+**Is Blues' core broken? Should they demote Logan Mailloux? Stop blending lines? Mailbag, part 1**\
+`Plus, debating options for the power play, including newly called-up Dalibor Dvorsky, what's wrong with Joel Hofer?`\
+https://nytimes.com/athletic/6757193/2025/10/30/blues-core-montgomery-lines-mailbag/
+
 **This is the Cade Cunningham the Pistons need**\
 `Looking like the All-NBA version of himself, Cunningham went off for 30 points, 10 assists and six rebounds on Wednesday.`\
 https://nytimes.com/athletic/6762301/2025/10/30/cade-cunningham-pistons-magic-win/

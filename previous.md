@@ -1,3 +1,7 @@
+**Fantasy football matchup rankings Week 9 | Strength of schedule**\
+`Jake Ciely's Week 9 matchup rankings can help you with difficult start/sit decisions this week. `\
+https://nytimes.com/athletic/6760751/2025/10/30/fantasy-football-matchup-rankings-week-9-strength-of-schedule/
+
 **This is the Cade Cunningham the Pistons need**\
 `Looking like the All-NBA version of himself, Cunningham went off for 30 points, 10 assists and six rebounds on Wednesday.`\
 https://nytimes.com/athletic/6762301/2025/10/30/cade-cunningham-pistons-magic-win/
@@ -31,11 +35,6 @@ https://nytimes.com/athletic/6762476/2025/10/30/rose-lavelle-generational-talent
 https://nytimes.com/athletic/6759989/2025/10/30/phillies-mailbag-ranger-suarez-alec-bohm-and-this-offseasons-most-compelling-figure/
 
 **Is Blues' core broken? Should they demote Logan Mailloux? Stop blending lines? Mailbag, part 1**\
-`Plus, debating options for the power play, including newly called-up Dalibor Dvorsky, and the best plan for Logan Mailloux.`\
+`Plus, debating options for the power play, including newly called-up Dalibor Dvorsky, what's wrong with Joel Hofer?`\
 https://nytimes.com/athletic/6757193/2025/10/30/blues-core-montgomery-lines-mailbag/
-
-**Submit your questions for Zack Meisel’s Guardians mailbag**\
-`<p>With the offseason on deck, many new baseball questions are starting to arise. Zack Meisel is here to answer them. Whether it&#8217;s about Guardians, baseball, sports or the universe, you can submit yours below for a chance to be answered in a future mailbag.</p>
-`\
-https://nytimes.com/athletic/6761044/2025/10/30/guardians-mailbag-2025-2026-offseason/
 
