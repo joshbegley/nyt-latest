@@ -1,3 +1,11 @@
+**Nwaneri, a beautiful goal and a reminder of Arsenal's original record-breaker**\
+`It is easy forget how far Nwaneri has come at just 18, on nights like this, he and Lewis-Skelly become elder statesmen.`\
+https://nytimes.com/athletic/6761769/2025/10/30/arsenal-ehtna-nwaneri-max-dowman-hale-end/
+
+**Maresca finally said what needs to be said about Chelsea's red card problem**\
+`Chelsea have had a number of sendings off in recent weeks. On Wednesday, Maresca chose to speak out about them`\
+https://nytimes.com/athletic/6761684/2025/10/30/enzo-maresca-chelsea-red-card-liam-delap/
+
 **How to watch Cardinals vs. Cowboys: Time, TV, streaming**\
 `Find out how to watch the Arizona Cardinals play the Dallas Cowboys, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6762354/2025/10/30/cardinals-vs-cowboys-stream-how-to-watch-nov-3/

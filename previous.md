@@ -1,3 +1,11 @@
+**Nwaneri, a beautiful goal and a reminder of Arsenal's original record-breaker**\
+`It is easy forget how far Nwaneri has come at just 18, on nights like this, he and Lewis-Skelly become elder statesmen.`\
+https://nytimes.com/athletic/6761769/2025/10/30/arsenal-ehtna-nwaneri-max-dowman-hale-end/
+
+**Maresca finally said what needs to be said about Chelsea's red card problem**\
+`Chelsea have had a number of sendings off in recent weeks. On Wednesday, Maresca chose to speak out about them`\
+https://nytimes.com/athletic/6761684/2025/10/30/enzo-maresca-chelsea-red-card-liam-delap/
+
 **How to watch Cardinals vs. Cowboys: Time, TV, streaming**\
 `Find out how to watch the Arizona Cardinals play the Dallas Cowboys, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6762354/2025/10/30/cardinals-vs-cowboys-stream-how-to-watch-nov-3/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6756896/2025/10/30/brighton-arsenal-carabao-cup-bal
 **What happened after Tony Adams said: 'I’m an alcoholic' - 'Tony has changed lives. He has saved lives'**\
 `It is 25 years since the former England and Arsenal captain founded the Sporting Chance Clinic, helping athletes with addiction problems`\
 https://nytimes.com/athletic/6756901/2025/10/30/tony-adams-addiction/
-
-**The Alternative Premier League Table: No 10 - Which new faces are delivering goals for their teams?**\
-`A look at how each Premier League club's new additions have performed in front of goal so far this season`\
-https://nytimes.com/athletic/6759731/2025/10/30/the-alternative-premier-league-table-new-players-scoring-goals/
-
-**FPL: The Premier League fixture swings to target for Gameweek 10**\
-`Using insights from the fixture ticker, recent form, and underlying data, here are the clubs (and players) that have the best schedules`\
-https://nytimes.com/athletic/6758176/2025/10/30/fantasy-premier-league-gameweek-10-tips-fpl/
 
