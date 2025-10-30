@@ -1,3 +1,7 @@
+**Fantasy basketball hot topics of the week: Miami's pace, Reed Sheppard's defense and more**\
+`Stan Son identifies the hot topics in fantasy basketball this week, including the Miami tempo machine.`\
+https://nytimes.com/athletic/6763853/2025/10/30/fantasy-basketball-hot-topics-miami-sheppard/
+
 **Bidding Opens for Penn Station’s Long-Delayed Transformation**\
 `The Trump administration put out a call Thursday for imaginative proposals for turning the busiest transportation hub in North America into a world-class gateway to New York City.`\
 https://nytimes.com/2025/10/30/nyregion/trump-penn-station.html
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6764318/2025/10/30/warriors-vs-bucks-stream-how-to-
 **How to watch Devils vs. Sharks: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the San Jose Sharks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6764316/2025/10/30/devils-vs-sharks-stream-how-to-watch-oct-30/
-
-**How to watch Red Wings vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Detroit Red Wings play the Los Angeles Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6764314/2025/10/30/red-wings-vs-kings-stream-how-to-watch-oct-30/
 
