@@ -1,8 +1,12 @@
+**Mirtle: Maple Leafs' difficult start to season takes disastrous turn in Columbus**\
+`After a nightmare 6-3 loss to the Blue Jackets, Toronto is now on pace for just 82 points after the first month of the season.`\
+https://nytimes.com/athletic/6761957/2025/10/29/maple-leafs-blue-jackets-john-tavares/
+
 **Lower leg injury causes Anthony Davis to leave Mavericks-Pacers matchup**\
 `Davis was limited to nine games last season with the Mavericks due to an adductor strain.`\
 https://nytimes.com/athletic/6761980/2025/10/29/anthony-davis-mavericks-leg-injury/
 
-**She Said She Was Rescuing Chickens. A Jury Convicted Her of Trespassing.**\
+**She Said She Was Rescuing Chickens. A Jury Convicted Her of Conspiracy.**\
 `Zoe Rosenberg, a California animal rights activist, was found guilty of conspiracy and trespassing for taking four chickens from a poultry plant.`\
 https://nytimes.com/2025/10/29/us/animal-rights-activist-convicted-sonoma-chickens.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/29/world/americas/hurrican-melissa-jamaica-cuba-hait
 **At event with Italian Americans, Cuomo laces into Mamdani for his stance on Columbus.**\
 `By Mark Bonamo`\
 https://nytimes.com/live/2025/10/29/nyregion/nyc-mayor-election-news/at-event-with-italian-americans-cuomo-laces-into-mamdani-for-his-stance-on-columbus
-
-**Melissa Leaves Black River, Centuries-Old Jamaican Port Town, ‘Totally Destroyed’**\
-`At least two people in the town died, and its historical buildings were reduced to rubble.`\
-https://nytimes.com/2025/10/29/world/americas/hurricane-melissa-black-river-amaica.html
 
