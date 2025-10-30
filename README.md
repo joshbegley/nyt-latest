@@ -1,3 +1,7 @@
+**How Broncos' Alex Palczewski turned to technology to make a tricky position switch**\
+`The Denver guard hadn't played on the left side of the line since "the Obama administration," but he has thrived in place of Ben Powers.`\
+https://nytimes.com/athletic/6763060/2025/10/30/broncos-alex-palczewski-left-guard/
+
 **Christmas Eve tie? Four games in eight days? When Arsenal-Palace could be played**\
 `Palace face Arsenal in the Carabao Cup quarter-finals, but there are scheduling issues with both clubs in European competition.`\
 https://nytimes.com/athletic/6761398/2025/10/30/arsenal-crystal-palace-carabao-cup-when/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6762972/2025/10/30/giants-dexter-lawrence-carl-bank
 **Eight Eagles Thoughts: Jalen Hurts MVP candidacy, where to play Cooper DeJean, post-bye success**\
 `Plus, Jalyx Hunt's stock is rising`\
 https://nytimes.com/athletic/6762078/2025/10/30/jalen-hurts-mvp-candidate-cooper-dejean-bye-week/
-
-**Why Investors Seem Underwhelmed by the Trump-Xi Meeting**\
-`The highly anticipated event covered a lot of ground on tariff and trade barriers, but questions remain about reaching a lasting accord.`\
-https://nytimes.com/2025/10/30/business/dealbook/trump-xi-china-meeting.html
 
