@@ -1,3 +1,7 @@
+**The Windup: Blue Jays making all kinds of history**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6762961/2025/10/30/trey-yesavage-game-5-the-windup/
+
 **How Broncos' Alex Palczewski turned to technology to make a tricky position switch**\
 `The Denver guard hadn't played on the left side of the line since "the Obama administration," but he has thrived in place of Ben Powers.`\
 https://nytimes.com/athletic/6763060/2025/10/30/broncos-alex-palczewski-left-guard/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/30/health/calley-means-kennedy-adviser-departure.htm
 **Giants' Dexter Lawrence fires back at Carl Banks' 'delusional' criticism**\
 `Banks' harsh criticism was surprising, considering he works for the Giants as the color analyst on radio broadcasts. `\
 https://nytimes.com/athletic/6762972/2025/10/30/giants-dexter-lawrence-carl-banks-criticism/
-
-**Eight Eagles Thoughts: Jalen Hurts MVP candidacy, where to play Cooper DeJean, post-bye success**\
-`Plus, Jalyx Hunt's stock is rising`\
-https://nytimes.com/athletic/6762078/2025/10/30/jalen-hurts-mvp-candidate-cooper-dejean-bye-week/
 
