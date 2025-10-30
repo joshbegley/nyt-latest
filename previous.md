@@ -1,3 +1,23 @@
+**A Speedy Curry Recipe to Memorize and Make Your Own**\
+`Ashley Lonsdale’s curry shrimp and sweet potato welcomes whichever protein and vegetables you’d like to swap in (but I’d keep the sweet potato).`\
+https://nytimes.com/2025/10/30/dining/a-speedy-curry-recipe-to-memorize-and-make-your-own.html
+
+**Study Finds Evidence That Text-Based Therapy Eases Depression**\
+`A large-scale randomized trial of texting therapy concluded that its outcomes were as good as video sessions in treating depression.`\
+https://nytimes.com/2025/10/30/health/text-therapy-effectiveness.html
+
+**The Case of the Tiny Tyrannosaurus Might Have Been Cracked**\
+`Did certain small tyrannosaur fossils belong to “teen rex” or another species? New analysis of a recent fossil appears to have settled the debate.`\
+https://nytimes.com/2025/10/30/science/nanotyrannus-tyrannosaurus-rex-fossil.html
+
+**5 Tips When Consulting ‘Dr.’ ChatGPT**\
+`Experts weigh in on the benefits and harms.`\
+https://nytimes.com/2025/10/30/well/chatgpt-health-questions.html
+
+**AFC North Whiparound: Trade deadline talk, best unit moving forward and candy comps**\
+`Lamar Jackson returns Thursday night, the Steelers and Bengals look to bounce back from Week 8 losses and the Browns take a break.`\
+https://nytimes.com/athletic/6763177/2025/10/30/afc-north-whiparound-browns-bengals-steelers-ravens-week-9/
+
 **The Bounce: Austin Reaves can't be stopped. Plus, Draymond defends Adam Silver**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6763309/2025/10/30/austin-reaves-lakers-cade-cunningham-nba-draymond-thebounce/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6757933/2025/10/30/fantasy-football-injuries-inacti
 **Canucks thoughts: Kane's start, Demko's usage, the injury bug and more**\
 `The Canucks have lost four of their last five games and are about to start a three-game Central Division road trip.`\
 https://nytimes.com/athletic/6762231/2025/10/30/canucks-schedule-kane-demko-hughes-garland/
-
-**PSG's Doue set for 'several weeks' out with thigh injury**\
-`The 20-year-old was taken off the pitch on a stretcher during the second half of the Ligue 1 side's draw with Lorient on Wednesday.`\
-https://nytimes.com/athletic/6762704/2025/10/30/desire-doue-injury-update-psg/
-
-**Russia Says It Didn’t Test Nuclear Weapons, but Would if the U.S. Did**\
-`Dmitry Peskov, a Kremlin spokesman, told Russian news agencies that recent drone and missile tests were not nuclear weapons tests.`\
-https://nytimes.com/2025/10/30/us/politics/russia-nuclear-weapons-tests.html
-
-**Volkswagen, Hit by Tariffs, Reports $1.5 Billion Loss and Warns of Chip Shortage**\
-`Europe’s largest automaker said that a shortage of semiconductors could further hurt productivity.`\
-https://nytimes.com/2025/10/30/business/volkswagen-tariffs-chip-shortages.html
-
-**Amorim: Man Utd may 'struggle' due to AFCON absences**\
-`The attacking pair could miss up to six Premier League games while on international duty over December and January.`\
-https://nytimes.com/athletic/6763180/2025/10/30/mbeumo-amad-manchester-united-afcon/
-
-**Can New York City Buses Be Both Fast and Free?**\
-`Our reporter Larry Buchanan collects data on the B41 bus in Brooklyn to find out why New York City buses are the slowest in the nation and whether Zohran Mamdani’s campaign pledge to make buses free would speed them up.`\
-https://nytimes.com/video/upshot/100000010473160/can-new-york-city-buses-be-both-fast-and-free.html
 

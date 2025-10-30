@@ -1,3 +1,23 @@
+**A Speedy Curry Recipe to Memorize and Make Your Own**\
+`Ashley Lonsdale’s curry shrimp and sweet potato welcomes whichever protein and vegetables you’d like to swap in (but I’d keep the sweet potato).`\
+https://nytimes.com/2025/10/30/dining/a-speedy-curry-recipe-to-memorize-and-make-your-own.html
+
+**Study Finds Evidence That Text-Based Therapy Eases Depression**\
+`A large-scale randomized trial of texting therapy concluded that its outcomes were as good as video sessions in treating depression.`\
+https://nytimes.com/2025/10/30/health/text-therapy-effectiveness.html
+
+**The Case of the Tiny Tyrannosaurus Might Have Been Cracked**\
+`Did certain small tyrannosaur fossils belong to “teen rex” or another species? New analysis of a recent fossil appears to have settled the debate.`\
+https://nytimes.com/2025/10/30/science/nanotyrannus-tyrannosaurus-rex-fossil.html
+
+**5 Tips When Consulting ‘Dr.’ ChatGPT**\
+`Experts weigh in on the benefits and harms.`\
+https://nytimes.com/2025/10/30/well/chatgpt-health-questions.html
+
+**AFC North Whiparound: Trade deadline talk, best unit moving forward and candy comps**\
+`Lamar Jackson returns Thursday night, the Steelers and Bengals look to bounce back from Week 8 losses and the Browns take a break.`\
+https://nytimes.com/athletic/6763177/2025/10/30/afc-north-whiparound-browns-bengals-steelers-ravens-week-9/
+
 **The Bounce: Austin Reaves can't be stopped. Plus, Draymond defends Adam Silver**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6763309/2025/10/30/austin-reaves-lakers-cade-cunningham-nba-draymond-thebounce/
