@@ -1,3 +1,7 @@
+**How England can win the Ashes, according to Mark Waugh**\
+`Interview: Australian great wants a competitive Ashes series – and believes Bazball can help deliver it`\
+https://nytimes.com/athletic/6759445/2025/10/30/mark-waugh-australia-england-ashes/
+
 **Emery doubling down on tried and trusted Villa players is a sign of focus on here and now**\
 `The Villa head coach relies on loyalty and, after a tough start, believes relying on trusted players will bring success`\
 https://nytimes.com/athletic/6756317/2025/10/30/unai-emery-aston-villa-contracts/

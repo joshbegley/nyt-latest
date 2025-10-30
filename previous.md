@@ -1,3 +1,7 @@
+**How England can win the Ashes, according to Mark Waugh**\
+`Interview: Australian great wants a competitive Ashes series – and believes Bazball can help deliver it`\
+https://nytimes.com/athletic/6759445/2025/10/30/mark-waugh-australia-england-ashes/
+
 **Emery doubling down on tried and trusted Villa players is a sign of focus on here and now**\
 `The Villa head coach relies on loyalty and, after a tough start, believes relying on trusted players will bring success`\
 https://nytimes.com/athletic/6756317/2025/10/30/unai-emery-aston-villa-contracts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6760186/2025/10/30/premier-league-managers-fitness-
 **When will the rest of the Premier League take Bournemouth seriously?**\
 `Andoni Iraola's team are second in the Premier League after nine games — here's why they deserve to be there`\
 https://nytimes.com/athletic/6759448/2025/10/30/bournemouth-premier-league-analysis/
-
-**Mookie Betts after World Series Game 5: 'I've just been terrible'**\
-`The star shortstop is now 3-for-23 in this World Series and has just nine hits in 55 at-bats since the Wild Card Series.`\
-https://nytimes.com/athletic/6762241/2025/10/30/mookie-betts-dodgers-world-series/
 
