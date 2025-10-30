@@ -1,3 +1,7 @@
+**Trump Meets China’s Xi**\
+`President Trump and China’s top leader, Xi Jinping, shook hands in Busan, South Korea, on Thursday.`\
+https://nytimes.com/video/admin/100000010490457/trump-xi-south-korea.html
+
 **After morning meeting, Blue Jackets' checking line erupts to lead rout of Leafs**\
 `All three skaters on the Blue Jackets' third line set or matched career highs against the Leafs.`\
 https://nytimes.com/athletic/6761974/2025/10/29/blue-jackets-coyle-sillinger-olivier-leafs/
