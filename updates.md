@@ -1,3 +1,11 @@
+**She Said She Was Rescuing Chickens. A Jury Convicted Her of Trespassing.**\
+`Zoe Rosenberg, a California animal rights activist, was found guilty of conspiracy and trespassing for taking four chickens from a poultry plant.`\
+https://nytimes.com/2025/10/29/us/animal-rights-activist-convicted-sonoma-chickens.html
+
+**John Tavares becomes 49th NHL player to score 500 career goals**\
+`Tavares has scored 228 goals for the Maple Leafs in just 526 games.`\
+https://nytimes.com/athletic/6758107/2025/10/29/john-tavares-500-goals-nhl-maple-leafs/
+
 **A Strong Sense of Direction**\
 `Howard Neuthaler’s puzzle lifts the spirit.`\
 https://nytimes.com/2025/10/29/crosswords/daily-puzzle-2025-10-30.html

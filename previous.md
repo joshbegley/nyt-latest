@@ -1,3 +1,11 @@
+**She Said She Was Rescuing Chickens. A Jury Convicted Her of Trespassing.**\
+`Zoe Rosenberg, a California animal rights activist, was found guilty of conspiracy and trespassing for taking four chickens from a poultry plant.`\
+https://nytimes.com/2025/10/29/us/animal-rights-activist-convicted-sonoma-chickens.html
+
+**John Tavares becomes 49th NHL player to score 500 career goals**\
+`Tavares has scored 228 goals for the Maple Leafs in just 526 games.`\
+https://nytimes.com/athletic/6758107/2025/10/29/john-tavares-500-goals-nhl-maple-leafs/
+
 **A Strong Sense of Direction**\
 `Howard Neuthaler’s puzzle lifts the spirit.`\
 https://nytimes.com/2025/10/29/crosswords/daily-puzzle-2025-10-30.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/29/world/americas/hurricane-melissa-black-river-amai
 **Federal Airport Workers Collect Food Aid**\
 `As growing numbers of federal aviation workers missed paychecks nearly a month into the government shutdown, some began collecting food assistance.`\
 https://nytimes.com/video/us/politics/100000010490265/federal-airport-workers-collect-food-aid.html
-
-**Cuomo Says Mamdani Could ‘Kill’ New York and Democratic Party if Elected**\
-`In an interview with the sports host Stephen A. Smith, former Gov. Andrew M. Cuomo offered a dark prophecy for a Mamdani mayoralty.`\
-https://nytimes.com/2025/10/29/nyregion/cuomo-mamdani-democrats-nyc-mayor.html
-
-**U.S. Military Kills Four More People Accused of Smuggling Drugs on Boats**\
-`Defense Secretary Pete Hegseth said the latest strike took place on Wednesday in the eastern Pacific. It came two days after the deadliest set of strikes in the weekslong campaign in Latin America.`\
-https://nytimes.com/2025/10/29/us/politics/military-drug-boat-strikes.html
 
