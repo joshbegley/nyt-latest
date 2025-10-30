@@ -1,3 +1,11 @@
+**The Bounce: Austin Reaves can't be stopped. Plus, Draymond defends Adam Silver**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6763309/2025/10/30/austin-reaves-lakers-cade-cunningham-nba-draymond-thebounce/
+
+**Can You Pass Your Date’s Background Check?**\
+`Unwilling to put their hearts or safety on the line, people looking for love online go all out to vet potential partners.`\
+https://nytimes.com/2025/10/30/well/dating-facetime-coffee-screen.html
+
 **French Magazine Acknowledges Breaching Prince William and Catherine’s Privacy**\
 `The couple had sued Paris Match for publishing paparazzi photos of them and their children on a ski vacation.`\
 https://nytimes.com/2025/10/30/world/europe/william-catherine-paris-match-royals.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6763180/2025/10/30/mbeumo-amad-manchester-united-af
 **Can New York City Buses Be Both Fast and Free?**\
 `Our reporter Larry Buchanan collects data on the B41 bus in Brooklyn to find out why New York City buses are the slowest in the nation and whether Zohran Mamdani’s campaign pledge to make buses free would speed them up.`\
 https://nytimes.com/video/upshot/100000010473160/can-new-york-city-buses-be-both-fast-and-free.html
-
-**Leeds United mailbag: Ask our reporter Beren Cross your questions**\
-`Want to know the latest from Elland Road? Ask away for our latest Leeds United mailbag`\
-https://nytimes.com/athletic/6763261/2025/10/30/leeds-united-mailbag-beren-cross/
-
-**Fantasy trends and hidden gems: Alex Iafallo, Andrei Svechnikov among major value movers**\
-`Before checking in on upcoming four-game streamers and light-night targets, Shayna Goldman looks at October's biggest risers and fallers.`\
-https://nytimes.com/athletic/6762139/2025/10/30/fantasy-trends-hidden-gems-risers-fallers-sleepers/
 
