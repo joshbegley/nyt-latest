@@ -1,3 +1,19 @@
+**Christmas Eve tie? Four games in eight days? When Arsenal-Palace could be played**\
+`Palace face Arsenal in the Carabao Cup quarter-finals, but there are scheduling issues with both clubs in European competition.`\
+https://nytimes.com/athletic/6761398/2025/10/30/arsenal-crystal-palace-carabao-cup-when/
+
+**Kent State names Mark Carney head coach, removing interim tag after 2 wins in 3 weeks**\
+`Kent State is the first of 12 FBS schools with head-coaching vacancies to fill its job. `\
+https://nytimes.com/athletic/6763083/2025/10/30/kent-state-mark-carney-head-coach-hire/
+
+**After seeking LeBron James' advice, Jaylen Brown teases new 'haircut' on stream**\
+`Jaylen Brown on why he is balding: "I blame Boston. Ten years of stress, the media, the championships."`\
+https://nytimes.com/athletic/6761341/2025/10/30/jaylen-brown-hair-dye-lebron/
+
+**Eight Eagles Thoughts: Jalen Hurts MVP candidacy, where to play Cooper DeJean, post-bye success**\
+`Plus, Jalyx Hunt's stock is rising`\
+https://nytimes.com/athletic/6762078/2025/10/30/jalen-hurts-mvp-candidate-cooper-dejean-bye-week/
+
 **He Studied Why Some Female Birds Look Like Males**\
 `Jay Falk explored a fundamental question: How do genes give rise to different bodies? But without funding, “there’s not really a future here.”`\
 https://nytimes.com/2025/10/30/science/lost-science-falk-hummingbirds.html

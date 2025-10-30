@@ -1,3 +1,11 @@
+**Christmas Eve tie? Four games in eight days? When Arsenal-Palace could be played**\
+`Palace face Arsenal in the Carabao Cup quarter-finals, but there are scheduling issues with both clubs in European competition.`\
+https://nytimes.com/athletic/6761398/2025/10/30/arsenal-crystal-palace-carabao-cup-when/
+
+**Kent State names Mark Carney head coach, removing interim tag after 2 wins in 3 weeks**\
+`Kent State is the first of 12 FBS schools with head-coaching vacancies to fill its job. `\
+https://nytimes.com/athletic/6763083/2025/10/30/kent-state-mark-carney-head-coach-hire/
+
 **He Studied Why Some Female Birds Look Like Males**\
 `Jay Falk explored a fundamental question: How do genes give rise to different bodies? But without funding, “there’s not really a future here.”`\
 https://nytimes.com/2025/10/30/science/lost-science-falk-hummingbirds.html
@@ -5,6 +13,10 @@ https://nytimes.com/2025/10/30/science/lost-science-falk-hummingbirds.html
 **Good Luck Finding a ‘KPop Demon Hunters’ Costume This Halloween**\
 `Characters from the hit Netflix film are among the most coveted outfits this year, and scarcity has forced some to improvise.`\
 https://nytimes.com/2025/10/30/business/kpop-demon-hunters-halloween-costume.html
+
+**After seeking LeBron James' advice, Jaylen Brown teases new 'haircut' on stream**\
+`Jaylen Brown on why he is balding: "I blame Boston. Ten years of stress, the media, the championships."`\
+https://nytimes.com/athletic/6761341/2025/10/30/jaylen-brown-hair-dye-lebron/
 
 **Growing up is hard to do but fun to watch: Evaluating the Sharks' first 10 games**\
 `Over the start of the 2025-26 season, the Sharks have looked good, bad and everything in between.`\
@@ -18,23 +30,11 @@ https://nytimes.com/2025/10/30/health/calley-means-kennedy-adviser-departure.htm
 `Banks' harsh criticism was surprising, considering he works for the Giants as the color analyst on radio broadcasts. `\
 https://nytimes.com/athletic/6762972/2025/10/30/giants-dexter-lawrence-carl-banks-criticism/
 
-**Eight Eagles Thoughts: Jalen Hurts MVP candidate, where to play Cooper DeJean, post-bye success**\
+**Eight Eagles Thoughts: Jalen Hurts MVP candidacy, where to play Cooper DeJean, post-bye success**\
 `Plus, Jalyx Hunt's stock is rising`\
 https://nytimes.com/athletic/6762078/2025/10/30/jalen-hurts-mvp-candidate-cooper-dejean-bye-week/
 
 **Why Investors Seem Underwhelmed by the Trump-Xi Meeting**\
 `The highly anticipated event covered a lot of ground on tariff and trade barriers, but questions remain about reaching a lasting accord.`\
 https://nytimes.com/2025/10/30/business/dealbook/trump-xi-china-meeting.html
-
-**Mandel: LSU was this coaching carousel's best job — then the governor grabbed the mic**\
-`Louisiana Gov. Jeff Landry's comments about taking the LSU search away from AD Scott Woodward might cause any top candidate to think twice.`\
-https://nytimes.com/athletic/6762366/2025/10/30/lsu-football-coach-governor-jeff-landry-louisiana/
-
-**5 More Louvre Heist Suspects Arrested, Prosecutor Says**\
-`The police have arrested five more suspects in connection with the theft at the Louvre Museum in Paris, the Paris prosecutor said on Thursday. Seven people total have now been arrested, but authorities have not yet retrieved the stolen jewelry.`\
-https://nytimes.com/video/world/europe/100000010490835/5-more-louvre-heist-suspects-arrested-prosecutor-says.html
-
-**Israel’s Ultra-Orthodox Set for ‘March of the Million’ Against Military Draft**\
-`Mass demonstrations are planned in Jerusalem on Thursday against efforts to end a decades-old exemption from military service for Israel’s Haredi religious students.`\
-https://nytimes.com/2025/10/30/world/middleeast/israel-ultra-orthodox-demonstration-military-draft.html
 
