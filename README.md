@@ -2,7 +2,7 @@
 `Austin Mock's projection model predicts point spreads and point totals for NFL Week 9. We compare it to betting lines.`\
 https://nytimes.com/athletic/6764050/2025/10/30/nfl-week-9-projected-scores-point-spreads-totals/
 
-**As trade deadline nears, DC Matt Eberlus says Cowboys have what they need to fix defense**\
+**As trade deadline nears, DC Matt Eberflus says Cowboys have what they need to fix defense**\
 `Dallas’ opponents are averaging 405 yards and 31 points per game. "Defense just has to pick it up," Jadeveon Clowney said.`\
 https://nytimes.com/athletic/6763925/2025/10/30/cowboys-defense-problems-matt-eberflus/
 

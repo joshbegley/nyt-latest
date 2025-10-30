@@ -1,3 +1,19 @@
+**NFL Week 9 projected scores: Model predicts point spreads and totals for every game**\
+`Austin Mock's projection model predicts point spreads and point totals for NFL Week 9. We compare it to betting lines.`\
+https://nytimes.com/athletic/6764050/2025/10/30/nfl-week-9-projected-scores-point-spreads-totals/
+
+**As trade deadline nears, DC Matt Eberlus says Cowboys have what they need to fix defense**\
+`Dallas’ opponents are averaging 405 yards and 31 points per game. "Defense just has to pick it up," Jadeveon Clowney said.`\
+https://nytimes.com/athletic/6763925/2025/10/30/cowboys-defense-problems-matt-eberflus/
+
+**Until Saturday: At LSU, weird is once again the norm**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6764067/2025/10/30/lsu-coaching-search-jeff-landry-until-saturday/
+
+**Older New Yorkers Brace for Food Stamp Cuts: ‘I’m Just Praying’**\
+`The SNAP program is losing federal funding on Saturday. Many older people won’t be able to easily line up at food pantries or go out and get second jobs.`\
+https://nytimes.com/2025/10/30/nyregion/nyc-snap-food-stamps-shutdown.html
+
 **Miami**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-miami
@@ -11,7 +27,7 @@ https://nytimes.com/2025/10/30/learning/what-teenagers-are-saying-about-being-cr
 https://nytimes.com/athletic/6764054/2025/10/30/submit-your-questions-for-the-athletics-acc-football-mailbag-15/
 
 **Lawsuit alleges UCLA plans to move home football games from Rose Bowl to SoFi Stadium**\
-`UCLA said they would be able to generate $15-$25 million more in revenue if they moved to SoFi Stadium, which has suite and club seating. `\
+`Lawsuit claims a move would bring harm to Pasadena and its residents that "could easily exceed a billion dollars."`\
 https://nytimes.com/athletic/6762331/2025/10/30/rose-bowl-lawsuit-ucla-sofi-stadium/
 
 **NFL best bets Week 9: Picking a side in the Chiefs-Bills showdown**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6763906/2025/10/30/nfl-best-bets-week-9-chiefs-bill
 **Will Real Madrid really sue UEFA for €4.5bn over the European Super League?**\
 `The Spanish club say they will take legal action against European football's governing body over their failed Super League project`\
 https://nytimes.com/athletic/6762723/2025/10/30/real-madrid-uefa-super-league-news/
-
-**Patricia Crowther, Who Brought Witchcraft Out of the Shadows, Dies at 97**\
-`As a high priestess of Wicca, a branch of modern paganism founded in England, she promoted an image of witches as early feminists who were benevolent and spiritual.`\
-https://nytimes.com/2025/10/30/style/patricia-crowther-dead.html
-
-**NBA coach Chauncey Billups hires defense attorney who worked for Trump, Giuliani**\
-`Marc Mukasey has defended several high-profile clients, including President Donald Trump and Aspiration co-founder Joseph Sanberg.`\
-https://nytimes.com/athletic/6763902/2025/10/30/chauncey-billups-hires-attorney-marc-mukasey/
-
-**Chasing gold now comes with $100K for U.S. Olympic and Paralympic athletes**\
-`Elite athletes who spend their young adulthood training will now have access to grant funding and life insurance after they retire.`\
-https://nytimes.com/athletic/6763541/2025/10/30/u-s-olympic-paralympic-athletes-payments/
-
-**OKC Thunder's Nikola Topić diagnosed with testicular cancer**\
-`GM Sam Presti said doctors are optimistic about Topić's condition and recommended he begin chemotherapy.`\
-https://nytimes.com/athletic/6763885/2025/10/30/okc-thunder-nikola-topic-testicular-cancer/
 

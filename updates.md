@@ -1,3 +1,23 @@
+**NFL Week 9 projected scores: Model predicts point spreads and totals for every game**\
+`Austin Mock's projection model predicts point spreads and point totals for NFL Week 9. We compare it to betting lines.`\
+https://nytimes.com/athletic/6764050/2025/10/30/nfl-week-9-projected-scores-point-spreads-totals/
+
+**As trade deadline nears, DC Matt Eberlus says Cowboys have what they need to fix defense**\
+`Dallas’ opponents are averaging 405 yards and 31 points per game. "Defense just has to pick it up," Jadeveon Clowney said.`\
+https://nytimes.com/athletic/6763925/2025/10/30/cowboys-defense-problems-matt-eberflus/
+
+**Until Saturday: At LSU, weird is once again the norm**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6764067/2025/10/30/lsu-coaching-search-jeff-landry-until-saturday/
+
+**Older New Yorkers Brace for Food Stamp Cuts: ‘I’m Just Praying’**\
+`The SNAP program is losing federal funding on Saturday. Many older people won’t be able to easily line up at food pantries or go out and get second jobs.`\
+https://nytimes.com/2025/10/30/nyregion/nyc-snap-food-stamps-shutdown.html
+
+**Lawsuit alleges UCLA plans to move home football games from Rose Bowl to SoFi Stadium**\
+`Lawsuit claims a move would bring harm to Pasadena and its residents that "could easily exceed a billion dollars."`\
+https://nytimes.com/athletic/6762331/2025/10/30/rose-bowl-lawsuit-ucla-sofi-stadium/
+
 **Miami**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-miami
