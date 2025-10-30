@@ -1,3 +1,7 @@
+**U.S. Beef and Thousand Island Dressing: Trump’s Food Tour of Asia**\
+`The menus on the president’s tour of three countries in Asia reflected the culinary acrobatics the host nations performed to accommodate his palate and foreign policy goals.`\
+https://nytimes.com/2025/10/30/world/asia/trump-asia-summit-food.html
+
 **Centrist Party Ties Dutch Election as Far-Right Party Loses Seats**\
 `The socially progressive Democrats 66 were neck and neck with the far-right party of Geert Wilders, who faced a significant setback in an election he forced.`\
 https://nytimes.com/2025/10/30/world/europe/dutch-elections-geert-wilders-rob-jetten.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/30/learning/what-hobby-would-you-like-to-see-become-
 **Monet Was Reluctant. Venice Seduced Him.**\
 `Even on vacation, the father of French impressionism couldn’t resist the pull of optics and art history. A lush blockbuster show in Brooklyn helps you see why.`\
 https://nytimes.com/2025/10/30/arts/design/monet-venice-brooklyn-museum-review.html
-
-**Harlem’s Remarkable New Studio Museum Redefines 125th Street**\
-`After seven years and $160 million, the museum has an uplifting home on a street that has always been a barometer of Harlem’s fortunes and aspirations.`\
-https://nytimes.com/2025/10/30/arts/design/studio-museum-harlem-adjaye.html
 

@@ -1,3 +1,7 @@
+**U.S. Beef and Thousand Island Dressing: Trump’s Food Tour of Asia**\
+`The menus on the president’s tour of three countries in Asia reflected the culinary acrobatics the host nations performed to accommodate his palate and foreign policy goals.`\
+https://nytimes.com/2025/10/30/world/asia/trump-asia-summit-food.html
+
 **Centrist Party Ties Dutch Election as Far-Right Party Loses Seats**\
 `The socially progressive Democrats 66 were neck and neck with the far-right party of Geert Wilders, who faced a significant setback in an election he forced.`\
 https://nytimes.com/2025/10/30/world/europe/dutch-elections-geert-wilders-rob-jetten.html
