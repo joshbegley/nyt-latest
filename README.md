@@ -28,7 +28,7 @@ https://nytimes.com/2025/10/30/us/politics/trump-vance-airport-travel-shutdown.h
 
 **Apple’s iPhones Fuel Record Sales and Profit**\
 `The company’s revenue rose to above $100 billion in the quarter for the first time and profit soared 86 percent.`\
-https://nytimes.com/2025/10/30/business/apples-iphones-fuel-record-sales-and-profit.html
+https://nytimes.com/2025/10/30/business/apple-earnings.html
 
 **Mamdani Seeks to Freeze Rents on Stabilized Units. What About the Rest?**\
 `Some three million New Yorkers live in apartments with rent levels set by the market. They would not benefit from Mr. Mamdani’s rent freeze.`\
