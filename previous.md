@@ -1,40 +1,40 @@
-**French Police Arrest 5 More in Louvre Robbery Investigation**\
-`The authorities have detained seven suspects in total, but have not recovered the stolen jewels`\
-https://nytimes.com/2025/10/30/world/europe/louvre-heist-arrests-paris.html
+**Panthers' OL depth will be tested with Bryce Young expected to return vs. Packers**\
+`Right tackle Taylor Moton hopes to play Sunday. Guard Chandler Zavala expects to be activated from injured reserve before the game.`\
+https://nytimes.com/athletic/6761342/2025/10/30/panthers-offensive-line-bryce-young-packers/
 
-**Revisiting 18 NFL trades at last year's deadline: Several solid moves, but a bunch of duds**\
-`As teams try to make their postseason push, a reminder: History suggests midseason trades are far from a lock to help bolster a roster.`\
-https://nytimes.com/athletic/6760070/2025/10/30/nfl-trade-deadline-2024-best-worst-trades/
+**The Lions at the trade deadline: Managing injuries, plus potential positions of interest**\
+`Detroit has dealt with injuries this season, especially in the secondary, but expect Terrion Arnold, D.J. Reed and Kerby Joseph back soon.`\
+https://nytimes.com/athletic/6762009/2025/10/30/lions-trade-deadline-injuries-positions/
 
-**The unforeseen rise of Trey Yesavage, part-time student and full-time World Series hero**\
-`On the biggest stage, the 22-year-old righty etched himself into baseball lore, dominating MVPs and future Hall of Famers.`\
-https://nytimes.com/athletic/6762305/2025/10/30/blue-jays-world-series-trey-yesavage-development/
+**Carson Wentz: 'I knew what I was signing up for' in facing Chargers with torn labrum**\
+`Wentz took the heat off coach Kevin O'Connell, who was under fire for leaving him in the game. Now, the job goes back to J.J. McCarthy.`\
+https://nytimes.com/athletic/6761387/2025/10/30/carson-wentz-injury-kevin-oconnell-jj-mccarthy/
 
-**Steelers trade deadline: Do they still need another wide receiver — and if so, who?**\
-`Roman Wilson's breakout game on Sunday night might have been enough to take Pittsburgh out of the trade market.`\
-https://nytimes.com/athletic/6761423/2025/10/30/pittsburgh-steelers-trade-deadline/
+**The power of a handwritten letter: Why a college basketball coach writes hundreds every month**\
+`Even if it takes more time, some coaches like Buzz Williams see value in writing by hand. Research suggests they might be on to something.`\
+https://nytimes.com/athletic/6760986/2025/10/30/buzz-williams-college-basketball-handwritten-letters-maryland/
 
-**The New York Times International Edition in Print for Friday, Oct. 31, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/10/30/todays-new-york-times-international-edition
+**Rosenthal: As the Dodgers face elimination, their deficiencies are showing up everywhere**\
+`Of the 31 teams that previously faced a three games to two deficit in the World Series, only eight came back to win.`\
+https://nytimes.com/athletic/6762468/2025/10/30/los-angeles-dodgers-world-series-elimination/
 
-**Here is the latest.**\
-`By André Paultre, Jovan Johnson and Camille Williams`\
-https://nytimes.com/live/2025/10/30/weather/hurricane-melissa/here-is-the-latest
+**Pete Alonso vs. Kyle Schwarber, Alex Bregman interest and more: Red Sox mailbag, Part 1**\
+`Will Boston have to far outbid other teams for Bregman, and how would Alonso and Schwarber fit in the Red Sox lineup?`\
+https://nytimes.com/athletic/6760754/2025/10/30/red-sox-free-agent-options-alonso-schwarber-bregman/
 
-**Trump Administration Live Updates: President Says China Will Ease Limits on Rare Earths**\
-`President Trump, who announced the rare earths measures after meeting China’s leader in South Korea, also said that the U.S. would reduce some tariffs on Chinese goods.`\
-https://nytimes.com/live/2025/10/30/us/trump-xi-china-news
+**What's Trending in the NFL: Injuries that have shaped the NFL landscape in 2025**\
+`Even if it gave us a fun roller-coaster ride in Joe Flacco, the Bengals losing Joe Burrow was a cruel twist of fate.`\
+https://nytimes.com/athletic/6761280/2025/10/30/nfl-trends-week-9-2025-injuries/
 
-**London’s West End Will Now Look After This Bear**\
-`Over nearly seven decades Paddington Bear has enjoyed a lasting popularity. Now, he’s the star of a new musical.`\
-https://nytimes.com/2025/10/30/arts/paddington-the-musical-history.html
+**NHL’s scariest starts: Players starting the 2025-26 season terrifyingly slow**\
+`It’s time for our annual roster of the NHL’s scariest starts, relative to expectations.`\
+https://nytimes.com/athletic/6759904/2025/10/30/nhl-slow-starts-2025-26/
 
-**U.S. Beef and Thousand Island Dressing: Trump’s Food Tour of Asia**\
-`The menus on the president’s tour of three countries in Asia reflected the culinary acrobatics the host nations performed to accommodate his palate and foreign policy goals.`\
-https://nytimes.com/2025/10/30/world/asia/trump-asia-summit-food.html
+**As more NFL stars reach celebrity status, how do they navigate the fame?**\
+`With celebrity relationships like Travis Kelce and Taylor Swift, NFL stars are finding themselves more in the spotlight than ever before.`\
+https://nytimes.com/athletic/6744017/2025/10/30/nfl-athletes-celebrities-kelce-taylor-swift-burrow-josh-allen/
 
-**Centrist Party Ties Dutch Election as Far-Right Party Loses Seats**\
-`The socially progressive Democrats 66 were neck and neck with the far-right party of Geert Wilders, who faced a significant setback in an election he forced.`\
-https://nytimes.com/2025/10/30/world/europe/dutch-elections-geert-wilders-rob-jetten.html
+**Vic's Picks, Week 9: Why we like the home-underdog Bills against the Chiefs**\
+`James Cook is cooking, and Buffalo has beaten Kansas City in four consecutive regular-season meetings.`\
+https://nytimes.com/athletic/6758162/2025/10/30/nfl-week-9-picks-predictions-betting-2025/
 
