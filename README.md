@@ -1,3 +1,15 @@
+**Football Manager 26 review: Was the two-year wait worth it?**\
+`Ahead of its official release next week, there has been plenty of criticism online of the beta version. So what works and what does not?`\
+https://nytimes.com/athletic/6759565/2025/10/30/football-manager-26-review/
+
+**Little Word of a TikTok Deal Out of Trump-Xi Meeting**\
+`Neither President Trump nor Chinese officials indicated any new developments for the popular video app. Treasury Secretary Scott Bessent previously suggested they could “consummate” transfer of control from its Chinese owner.`\
+https://nytimes.com/2025/10/30/us/politics/trump-xi-tiktok-deal.html
+
+**WTA Tour Finals draw, schedule and results: Coco Gauff bids to defend title in Riyadh**\
+`Gauff, the world No. 3, will have to fight off three compatriots and the top two in the world to retain her crown.`\
+https://nytimes.com/athletic/6763218/2025/10/30/wta-tour-finals-draw-schedule-results-2025/
+
 **Bonus Puzzles**\
 ``\
 https://nytimes.com/spotlight/bonus-puzzles
@@ -25,16 +37,4 @@ https://nytimes.com/paidpost/breyanzi-10-17/breyanzi/advancing-hope-in-the-fight
 **How NFL uses ‘expedited review’ to change officiating decisions during games**\
 `Inside the NFL's 'replay nirvana,' the league attempts to increase the accuracy of its calls while keeping game times down?`\
 https://nytimes.com/athletic/6760613/2025/10/30/nfl-expedited-review-process-referees-officials/
-
-**Here’s How Much Obamacare Prices Are Rising Across the Country**\
-`The new prices make it official: Americans will need to pay more for insurance next year if extra subsidies are allowed to expire.`\
-https://nytimes.com/interactive/2025/10/30/upshot/obamacare-subsidies-new-prices.html
-
-**How to watch Magic vs. Hornets: Time, TV, streaming**\
-`Find out how to watch the Orlando Magic play the Charlotte Hornets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6763537/2025/10/30/magic-vs-hornets-stream-how-to-watch-oct-30/
-
-**How to watch Stars vs. Lightning: Time, TV, streaming**\
-`Find out how to watch the Dallas Stars play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6763534/2025/10/30/stars-vs-lightning-stream-how-to-watch-oct-30/
 
