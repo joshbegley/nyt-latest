@@ -1,3 +1,15 @@
+**Democrats Condemn Trump Administration for Secrecy on Boat Strikes**\
+`Senator Mark Warner said the administration’s decision to hold a Republicans-only briefing on the campaign was “corrosive to our democracy.”`\
+https://nytimes.com/2025/10/30/us/politics/trump-democrats-boat-strikes.html
+
+**Ted Huffman, Director and Writer, to Lead Major Opera Festival**\
+`The Aix-en-Provence Festival in France has named Huffman to succeed the visionary Pierre Audi, who died earlier this year.`\
+https://nytimes.com/2025/10/30/arts/music/ted-huffman-aix-festival.html
+
+**gws-coffee-ice-cream-candy-nyc-treats**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/coffee-ice-cream-candy-nyc-treats
+
 **Rio’s Deadliest Crackdown on Drug Gangs Sparks Outrage**\
 `Residents in Rio de Janeiro questioned the methods the authorities used in a large-scale police operation targeting drug gangs that has become the deadliest crackdown in the city’s history.`\
 https://nytimes.com/video/world/americas/100000010492269/rio-brazil-drug-gangs-raids.html
@@ -21,16 +33,4 @@ https://nytimes.com/video/dining/100000010491272/11-things-we-learned-about-cake
 **Some Little Treats Around New York City**\
 `Little treat culture — defined by this news organization as “the habit of indulging in small luxuries” — is most certainly in the running for phrase of the year. But where can they be found and which ones are worth your hard-earned dollars?`\
 https://nytimes.com/video/dining/100000010491267/some-little-treats-around-new-york-city.html
-
-**Soy-Glazed Mushroom Rice Bowl**\
-`Laced with a simple mixture of soy sauce and chile-garlic sauce, our Cooking contributor Ifrah Ahmed’s mushroom and cabbage rice bowl comes together quickly, with minimal effort and time.`\
-https://nytimes.com/video/dining/100000010491259/soy-glazed-mushroom-rice-bowl.html
-
-**Thai Hot Pot, Thai Fusion, Thai Fancy, Oh My!**\
-`Upper West Side, your time has finally come. Plus, upscale Thai near Union Square.`\
-https://nytimes.com/2025/10/30/dining/thai-hot-pot-thai-fusion-thai-fancy-oh-my.html
-
-**Fantasy basketball hot topics of the week: Miami's pace, Reed Sheppard's defense and more**\
-`Stan Son identifies the hot topics in fantasy basketball this week, including the Miami tempo machine.`\
-https://nytimes.com/athletic/6763853/2025/10/30/fantasy-basketball-hot-topics-miami-sheppard/
 

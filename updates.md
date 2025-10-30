@@ -1,3 +1,15 @@
+**Democrats Condemn Trump Administration for Secrecy on Boat Strikes**\
+`Senator Mark Warner said the administration’s decision to hold a Republicans-only briefing on the campaign was “corrosive to our democracy.”`\
+https://nytimes.com/2025/10/30/us/politics/trump-democrats-boat-strikes.html
+
+**Ted Huffman, Director and Writer, to Lead Major Opera Festival**\
+`The Aix-en-Provence Festival in France has named Huffman to succeed the visionary Pierre Audi, who died earlier this year.`\
+https://nytimes.com/2025/10/30/arts/music/ted-huffman-aix-festival.html
+
+**gws-coffee-ice-cream-candy-nyc-treats**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/coffee-ice-cream-candy-nyc-treats
+
 **Rio’s Deadliest Crackdown on Drug Gangs Sparks Outrage**\
 `Residents in Rio de Janeiro questioned the methods the authorities used in a large-scale police operation targeting drug gangs that has become the deadliest crackdown in the city’s history.`\
 https://nytimes.com/video/world/americas/100000010492269/rio-brazil-drug-gangs-raids.html
