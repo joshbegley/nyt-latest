@@ -1,3 +1,7 @@
+**USWNT 6, New Zealand 0: Emma Sears scores first professional hat trick**\
+`The U.S. scored the most goals in a single game under Emma Hayes on Wednesday.`\
+https://nytimes.com/athletic/6761895/2025/10/29/uswnt-new-zealand-emma-sears-hat-trick/
+
 **Mirtle: Maple Leafs' difficult start to season takes disastrous turn in Columbus**\
 `After a nightmare 6-3 loss to the Blue Jackets, Toronto is now on pace for just 82 points after the first month of the season.`\
 https://nytimes.com/athletic/6761957/2025/10/29/maple-leafs-blue-jackets-john-tavares/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/29/us/university-illinois-students-cheating-ai.html
 **Jamaica and Haiti Tally Hurricane Victims as Melissa Slams Cuba**\
 `About 20 people, including children, died in a Haitian community and at least three bodies were found in Jamaica, officials said, as they began to assess the huge storm’s damage.`\
 https://nytimes.com/2025/10/29/world/americas/hurrican-melissa-jamaica-cuba-haiti.html
-
-**At event with Italian Americans, Cuomo laces into Mamdani for his stance on Columbus.**\
-`By Mark Bonamo`\
-https://nytimes.com/live/2025/10/29/nyregion/nyc-mayor-election-news/at-event-with-italian-americans-cuomo-laces-into-mamdani-for-his-stance-on-columbus
 
