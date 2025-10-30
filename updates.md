@@ -1,3 +1,11 @@
+**Who Is Driving U.S. Attacks in the Caribbean?**\
+`What’s the main goal of the U.S. military buildup in the Caribbean, and who in the Trump administration is behind it? Anatoly Kurmanaev, a New York Times reporter who covered Venezuela, discusses with Katrin Bennhold what we know and don’t know.`\
+https://nytimes.com/video/world/americas/100000010488549/who-is-driving-us-attacks-in-the-caribbean.html
+
+**Do You Rely on Food Stamps? Tell Us About How You’re Preparing for the Loss of Assistance.**\
+`As food assistance funding runs out, Times reporters want to hear from people who rely on it, or who work to help feed people in their community.`\
+https://nytimes.com/2025/10/30/us/snap-food-stamps.html
+
 **The Threat of Lost Food Benefits Is Rattling the Vulnerable in Louisiana**\
 `The state has vowed to step in and provide food assistance for many who face a cut-off in federal SNAP aid. But there is still fear and anxiety about how to get by.`\
 https://nytimes.com/2025/10/30/us/politics/louisiana-snap-benefit-cuts.html
