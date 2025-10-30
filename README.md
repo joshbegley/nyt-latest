@@ -1,3 +1,11 @@
+**Israel’s Ultra-Orthodox Set For ‘March of the Million’ Against Military Draft**\
+`Mass demonstrations are planned in Jerusalem on Thursday against efforts to end a decades-old exemption from military service for Israel’s Haredi religious students.`\
+https://nytimes.com/2025/10/30/world/middleeast/israel-ultra-orthodox-demonstration-military-draft.html
+
+**Delhi Tried to Make It Rain. Here’s Why It Failed.**\
+`Officials experimented with cloud seeding to try and reduce environmental pollutants as residents choke on filthy air.`\
+https://nytimes.com/2025/10/30/world/asia/india-rain-pollution-cloud-seeding.html
+
 **Man Utd have 'clear plan' to invest in and improve squad, Wilcox says**\
 `United committed an initial £216million (€245m, $284m) on five new players in the summer transfer window.`\
 https://nytimes.com/athletic/6762890/2025/10/30/manchester-united-jason-wilcox-mutv-interview/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6760732/2025/10/30/georgia-football-defense-issues/
 **Key fantasy football questions for Week 9: Travis Hunter a WR2? TreVeyon time?**\
 `Dalton Del Don looks at the key fantasy football topics for Week 9, including the roles of rookies Travis Hunter and TreVeyon Henderson.`\
 https://nytimes.com/athletic/6761301/2025/10/30/key-fantasy-football-questions-week-9-hunter-treveyon/
-
-**Fantasy football matchup rankings Week 9 | Strength of schedule**\
-`Jake Ciely's Week 9 matchup rankings can help you with difficult start/sit decisions this week. `\
-https://nytimes.com/athletic/6760751/2025/10/30/fantasy-football-matchup-rankings-week-9-strength-of-schedule/
-
-**This is the Cade Cunningham the Pistons need**\
-`Looking like the All-NBA version of himself, Cunningham went off for 30 points, 10 assists and six rebounds on Wednesday.`\
-https://nytimes.com/athletic/6762301/2025/10/30/cade-cunningham-pistons-magic-win/
 
