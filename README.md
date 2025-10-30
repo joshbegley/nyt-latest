@@ -1,3 +1,11 @@
+**Women's college basketball: 5 questions for the 2025-26 season**\
+`Will South Carolina look different this season? Chantel Jennings answers pressing preseason questions.`\
+https://nytimes.com/athletic/6747395/2025/10/30/womens-college-basketball-preseason-questions-uconn/
+
+**Science Practice | A Study on a Rodent-Shaped Sidewalk Impression**\
+`What animal made an infamous indentation in a Chicago sidewalk? A new study offers clues. Hint: It wasn’t a rat.`\
+https://nytimes.com/2025/10/30/learning/science-practice-a-study-on-a-rodent-shaped-sidewalk-impression.html
+
 **The Pulse: The Blue Jays flap closer to a title**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6759877/2025/10/30/blue-jays-dodgers-trey-yesavage-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6760608/2025/10/30/ravens-dolphins-tnf-lamar-jackso
 **Panthers' OL depth will be tested with Bryce Young expected to return vs. Packers**\
 `Right tackle Taylor Moton hopes to play Sunday. Guard Chandler Zavala expects to be activated from injured reserve before the game.`\
 https://nytimes.com/athletic/6761342/2025/10/30/panthers-offensive-line-bryce-young-packers/
-
-**The Lions at the trade deadline: Managing injuries, plus potential positions of interest**\
-`Detroit has dealt with injuries this season, especially in the secondary, but expect Terrion Arnold, D.J. Reed and Kerby Joseph back soon.`\
-https://nytimes.com/athletic/6762009/2025/10/30/lions-trade-deadline-injuries-positions/
-
-**Carson Wentz: 'I knew what I was signing up for' in facing Chargers with torn labrum**\
-`Wentz took the heat off coach Kevin O'Connell, who was under fire for leaving him in the game. Now, the job goes back to J.J. McCarthy.`\
-https://nytimes.com/athletic/6761387/2025/10/30/carson-wentz-injury-kevin-oconnell-jj-mccarthy/
 
