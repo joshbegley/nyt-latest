@@ -1,3 +1,7 @@
+**Blue Jays-Dodgers Game 5 takeaways: Trey Yesavage's masterpiece lifts Toronto**\
+`The World Series will now shift back to Toronto, with the Blue Jays just one win away. But first they'll have to face Yoshinobu Yamamoto. `\
+https://nytimes.com/athletic/6762002/2025/10/29/dodgers-blue-jays-world-series-game-5-results-takeaways-mlb/
+
 **Raptors' poor starts, iffy rebounding are reasons for concern after fourth straight loss**\
 `Without Jakob Poeltl, the Raptors can't measure up to the Rockets, who had a 53-22 advantage in rebounds and won 139-121 on Wednesday.`\
 https://nytimes.com/athletic/6761994/2025/10/29/raptors-poor-starts-early-struggles/

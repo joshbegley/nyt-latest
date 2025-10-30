@@ -1,3 +1,7 @@
+**Quote of the Day: College Is Selling Black History Murals to Avert Financial Crisis**\
+`Quotation of the Day for Thursday, October 30, 2025.`\
+https://nytimes.com/2025/10/29/pageoneplus/quote-of-the-day-college-is-selling-black-history-murals-to-avert-financial-crisis.html
+
 **Raptors' poor starts, iffy rebounding are reasons for concern after fourth straight loss**\
 `Without Jakob Poeltl, the Raptors can't measure up to the Rockets, who had a 53-22 advantage in rebounds and won 139-121 on Wednesday.`\
 https://nytimes.com/athletic/6761994/2025/10/29/raptors-poor-starts-early-struggles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6761957/2025/10/29/maple-leafs-blue-jackets-john-ta
 **Trump Meets China’s Xi**\
 `President Trump and China’s top leader, Xi Jinping, shook hands in Busan, South Korea, on Thursday.`\
 https://nytimes.com/video/admin/100000010490457/trump-xi-south-korea.html
-
-**Lower leg injury causes Anthony Davis to leave Mavericks-Pacers matchup**\
-`Davis was limited to nine games last season with the Mavericks due to an adductor strain.`\
-https://nytimes.com/athletic/6761980/2025/10/29/anthony-davis-mavericks-leg-injury/
 

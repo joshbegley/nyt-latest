@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6761994/2025/10/29/raptors-poor-starts-early-strugg
 https://nytimes.com/athletic/6761974/2025/10/29/blue-jackets-coyle-sillinger-olivier-leafs/
 
 **Blue Jays-Dodgers Game 5 takeaways: Trey Yesavage's masterpiece lifts Toronto**\
-`The World Series will now shift back to Toronto, with the Blue Jays just one win away. But first, they'll have to face Yoshinobu Yamamoto. `\
+`The World Series will now shift back to Toronto, with the Blue Jays just one win away. But first they'll have to face Yoshinobu Yamamoto. `\
 https://nytimes.com/athletic/6762002/2025/10/29/dodgers-blue-jays-world-series-game-5-results-takeaways-mlb/
 
 **Rookie Trey Yesavage's brilliance has Blue Jays one win away from glory**\
