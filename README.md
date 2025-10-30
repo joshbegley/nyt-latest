@@ -1,3 +1,15 @@
+**Weird & Wild: Yesavage's gem cements his place among playoff greats — but he's one of a kind**\
+`Let's run through eight fun facts to help explain how cool, shocking and unforgettable the story of the Blue Jays’ 22-year-old has become.`\
+https://nytimes.com/athletic/6762591/2025/10/30/trey-yesavage-world-series-game-5-bluejays-mlb-playoff-history/
+
+**Connections: Sports Edition Coach: Hints for Oct. 30, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6762767/2025/10/30/connections-sports-edition-hints-for-oct-30-2025/
+
+**Bulls deny Zach LaVine his revenge, stay unbeaten in best start in four years**\
+`The Bulls shook off the return of their one-time star to keep their undefeated start to the season going in a 126-113 win over the Kings.`\
+https://nytimes.com/athletic/6762564/2025/10/30/bulls-kings-zach-lavine-return/
+
 **Women's college basketball: 5 questions for the 2025-26 season**\
 `Will South Carolina look different this season? Chantel Jennings answers pressing preseason questions.`\
 https://nytimes.com/athletic/6747395/2025/10/30/womens-college-basketball-preseason-questions-uconn/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6761946/2025/10/30/timberwolves-defense-point-guard
 **After dominant Game 5, the Blue Jays head home for a moment 32 years in the making**\
 `Nobody in the Blue Jays’ lineup for Game 5 of the World Series, an emphatic 6-1 thumping of the Dodgers, was alive in 1993.`\
 https://nytimes.com/athletic/6762547/2025/10/30/toronto-blue-jays-world-series-moment/
-
-**Chiefs trade deadline primer: Here are the positions K.C. is most likely to target**\
-`The Chiefs, for a change, might not be active before the NFL trade deadline. But they're most likely to listen on two positions.`\
-https://nytimes.com/athletic/6760612/2025/10/30/chiefs-trade-deadline-targets/
-
-**Ravens at Dolphins on TNF: Spooky showdown in Miami, with curses old and new**\
-`Lamar Jackson and Tua Tagovailoa take the field on Thursday night. Like your football with omens? This matchup delivers.`\
-https://nytimes.com/athletic/6760608/2025/10/30/ravens-dolphins-tnf-lamar-jackson-how-to-watch/
-
-**Panthers' OL depth will be tested with Bryce Young expected to return vs. Packers**\
-`Right tackle Taylor Moton hopes to play Sunday. Guard Chandler Zavala expects to be activated from injured reserve before the game.`\
-https://nytimes.com/athletic/6761342/2025/10/30/panthers-offensive-line-bryce-young-packers/
 
