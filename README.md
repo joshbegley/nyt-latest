@@ -1,3 +1,23 @@
+**Revisiting 18 NFL trades at last year's deadline: Several solid moves, but a bunch of duds**\
+`As teams try to make their postseason push, a reminder: History suggests midseason trades are far from a lock to help bolster a roster.`\
+https://nytimes.com/athletic/6760070/2025/10/30/nfl-trade-deadline-2024-best-worst-trades/
+
+**The unforeseen rise of Trey Yesavage, part-time student and full-time World Series hero**\
+`On the biggest stage, the 22-year-old righty etched himself into baseball lore, dominating MVPs and future Hall of Famers.`\
+https://nytimes.com/athletic/6762305/2025/10/30/blue-jays-world-series-trey-yesavage-development/
+
+**Steelers trade deadline: Do they still need another wide receiver — and if so, who?**\
+`Roman Wilson's breakout game on Sunday night might have been enough to take Pittsburgh out of the trade market.`\
+https://nytimes.com/athletic/6761423/2025/10/30/pittsburgh-steelers-trade-deadline/
+
+**The New York Times International Edition in Print for Friday, Oct. 31, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/10/30/todays-new-york-times-international-edition
+
+**Here is the latest.**\
+`By André Paultre, Jovan Johnson and Camille Williams`\
+https://nytimes.com/live/2025/10/30/weather/hurricane-melissa/here-is-the-latest
+
 **Trump Administration Live Updates: President Says China Will Ease Limits on Rare Earths**\
 `President Trump, who announced the rare earths measures after meeting China’s leader in South Korea, also said that the U.S. would reduce some tariffs on Chinese goods.`\
 https://nytimes.com/live/2025/10/30/us/trump-xi-china-news
@@ -17,24 +37,4 @@ https://nytimes.com/2025/10/30/world/europe/dutch-elections-geert-wilders-rob-je
 **Surreal Creatures Gather at Michigan’s Cranbrook Art Museum**\
 `Plus: a new book from Chantal Joffe and Olivia Laing, satin flats for holiday parties and more recommendations from T Magazine.`\
 https://nytimes.com/2025/10/30/t-magazine/haas-brothers-cranbrook-art-museum.html
-
-**Inmates Win $6 Million Settlement for Abuse Claims Against Prison Officers**\
-`The inmates said the officers carried out a weekslong campaign of violence in 2020 at the state’s lone maximum security prison.`\
-https://nytimes.com/2025/10/30/us/massachusetts-inmates-abuse-settlement.html
-
-**Portland or Seattle? A Senior Couple Wanted an Urban Getaway for About $725,000.**\
-`After years of driving to a California home for vacations, two 'committed Pacific Northwesterners' wanted to be in a downtown area with shops and restaurants.`\
-https://nytimes.com/interactive/2025/10/30/realestate/portland-seattle-home-listings-sale.html
-
-**A Month Without Data Muddles the Economic Picture**\
-`Tariffs and uncertainty were already making the economy hard to read. The loss of government data during the shutdown has made the situation much worse.`\
-https://nytimes.com/2025/10/30/business/a-month-without-data-muddles-the-economic-picture.html
-
-**Three Great Documentaries to Stream**\
-`In this month’s picks, a chilling true-crime entry, a movie about an execution equipment manufacturer and a devilish doc from the “Exorcist” director William Friedkin.`\
-https://nytimes.com/2025/10/30/movies/documentaries-streaming.html
-
-**Andrew Cuomo, Scraping and Scrambling, Is Still Running as Andrew Cuomo**\
-`The former governor, a distant second in most polls of the New York City mayor’s race, is working harder to attract voters and remind them who he is.`\
-https://nytimes.com/2025/10/30/nyregion/andrew-cuomo-campaign.html
 
