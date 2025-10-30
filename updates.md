@@ -1,3 +1,7 @@
+**Fantasy basketball hot topics of the week: Miami's pace, Reed Sheppard's defense and more**\
+`Stan Son identifies the hot topics in fantasy basketball this week, including the Miami tempo machine.`\
+https://nytimes.com/athletic/6763853/2025/10/30/fantasy-basketball-hot-topics-miami-sheppard/
+
 **Bidding Opens for Penn Station’s Long-Delayed Transformation**\
 `The Trump administration put out a call Thursday for imaginative proposals for turning the busiest transportation hub in North America into a world-class gateway to New York City.`\
 https://nytimes.com/2025/10/30/nyregion/trump-penn-station.html
