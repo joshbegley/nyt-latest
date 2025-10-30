@@ -1,3 +1,19 @@
+**‘Bat Boy: The Musical’ Review: He’s Just Trying to Fit In**\
+`For its gala, New York City Center revives an antic show about a half-man tabloid sensation, with catchy music and lyrics by the versatile Laurence O’Keefe.`\
+https://nytimes.com/2025/10/30/theater/bat-boy-the-musical-review.html
+
+**Adams condemned an anti-Israel art exhibit. His subtext seemed to be the mayoral race.**\
+`By Dana Rubinstein`\
+https://nytimes.com/live/2025/10/30/nyregion/nyc-mayor-election-news/adams-condemned-an-anti-israel-art-exhibit-his-subtext-seemed-to-be-the-mayoral-race
+
+**Testing America’s Nuclear Bombs: What to Know**\
+`Though the country’s nuclear arsenal has undergone no explosive testing for decades, federal experts say it can reliably obliterate targets halfway around the globe.`\
+https://nytimes.com/2025/10/30/science/us-nuclear-weapons-atomic-bombs.html
+
+**A Top Trump Official Had to Sell His Stock. He May Have Saved Millions.**\
+`Frank Bisignano, who holds top jobs at the Social Security Administration and the I.R.S., sold his stake in Fiserv before the company’s stock cratered this week.`\
+https://nytimes.com/2025/10/30/us/politics/frank-bisignano-fiserv-stock-price.html
+
 **Puck Acquires Air Mail, a Newsletter Merger for the Well-Heeled Inbox**\
 `Graydon Carter, the legendary Vanity Fair editor who founded Air Mail, is leaving the company.`\
 https://nytimes.com/2025/10/30/business/media/puck-buys-airmail.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/30/us/politics/trump-officials-military-housing.html
 **Comey Attacks Perjury and Obstruction Charges in New Motions**\
 `The court filings added to the legal challenges that James B. Comey’s defense team has already raised against the indictment.`\
 https://nytimes.com/2025/10/30/us/politics/james-comey-trump-justice-dept-charges.html
-
-**Pro-Cuomo PAC Tells Donors Mayor’s Race Is Still ‘Very Winnable’**\
-`The committee, Put NYC First, urged donors to keep giving money to help Andrew M. Cuomo’s independent campaign despite new polling suggesting that the Democratic candidate, Zohran Mamdani, is ahead.`\
-https://nytimes.com/2025/10/30/nyregion/cuomo-pac-election-mamdani.html
-
-**Trump Revived a Cold War Debate**\
-`Also, Prince Andrew is being stripped of his royal title. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/10/30/briefing/trump-nuclear-tests-prince-andrew-title.html
-
-**Betting for (by) dummies: Why the Bills should cover and a traditional OSU-PSU under**\
-`Jon Greenberg and Zac Jackson place bets ahead of a busy weekend of football. Will their picks be treats or tricks?`\
-https://nytimes.com/athletic/6764640/2025/10/30/betting-for-by-dummies-bills-ohio-state/
-
-**Panthers' QB conundrum: Andy Dalton's thumb broken, Bryce Young's ankle progressing**\
-`Dalton played through the injury last week. Young says he continues to "feel better and better" after full day of practice.`\
-https://nytimes.com/athletic/6764615/2025/10/30/panthers-bryce-young-andy-dalton-injury-update/
 

@@ -1,3 +1,19 @@
+**‘Bat Boy: The Musical’ Review: He’s Just Trying to Fit In**\
+`For its gala, New York City Center revives an antic show about a half-man tabloid sensation, with catchy music and lyrics by the versatile Laurence O’Keefe.`\
+https://nytimes.com/2025/10/30/theater/bat-boy-the-musical-review.html
+
+**Adams condemned an anti-Israel art exhibit. His subtext seemed to be the mayoral race.**\
+`By Dana Rubinstein`\
+https://nytimes.com/live/2025/10/30/nyregion/nyc-mayor-election-news/adams-condemned-an-anti-israel-art-exhibit-his-subtext-seemed-to-be-the-mayoral-race
+
+**Testing America’s Nuclear Bombs: What to Know**\
+`Though the country’s nuclear arsenal has undergone no explosive testing for decades, federal experts say it can reliably obliterate targets halfway around the globe.`\
+https://nytimes.com/2025/10/30/science/us-nuclear-weapons-atomic-bombs.html
+
+**A Top Trump Official Had to Sell His Stock. He May Have Saved Millions.**\
+`Frank Bisignano, who holds top jobs at the Social Security Administration and the I.R.S., sold his stake in Fiserv before the company’s stock cratered this week.`\
+https://nytimes.com/2025/10/30/us/politics/frank-bisignano-fiserv-stock-price.html
+
 **Puck Acquires Air Mail, a Newsletter Merger for the Well-Heeled Inbox**\
 `Graydon Carter, the legendary Vanity Fair editor who founded Air Mail, is leaving the company.`\
 https://nytimes.com/2025/10/30/business/media/puck-buys-airmail.html
