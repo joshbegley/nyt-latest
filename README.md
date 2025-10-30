@@ -1,3 +1,7 @@
+**'We are in dire straits' - Pub-goers of Wolverhampton on Vitor Pereira, Fosun and the future**\
+`The Wolves manager used to frequent local pubs, but that is no more. A cup defeat has now been added to a terrible start in the league.`\
+https://nytimes.com/athletic/6761818/2025/10/30/wolves-fosun-vitor-pereira/
+
 **Liverpool fans backed Arne Slot's selection gamble but patience is starting to run thin**\
 `Arne Slot's team lost 3-0 to Crystal Palace. The game against Aston Villa now feels huge`\
 https://nytimes.com/athletic/6761894/2025/10/30/liverpool-crystal-palace-analysis-arne-slot/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6756317/2025/10/30/unai-emery-aston-villa-contracts
 **Nine games, seven goals: Why is Sarr so effective against Liverpool?**\
 `Two more goals in the Carabao Cup extended his remarkable record against the Premier League champions`\
 https://nytimes.com/athletic/6760075/2025/10/30/ismaila-sarr-liverpool-palace/
-
-**Brighton's silverware blow, frustration for Boscagli but a step forward for Baleba**\
-`One of the club's ambitions is to win a trophy but a potential route to success was closed off with defeat at Arsenal in the Carabao Cup`\
-https://nytimes.com/athletic/6756896/2025/10/30/brighton-arsenal-carabao-cup-baleba/
 

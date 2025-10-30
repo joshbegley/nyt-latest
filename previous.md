@@ -2,8 +2,8 @@
 `Arne Slot's team lost 3-0 to Crystal Palace. The game against Aston Villa now feels huge`\
 https://nytimes.com/athletic/6761894/2025/10/30/liverpool-crystal-palace-analysis-arne-slot/
 
-**Nwaneri, a beautiful goal and a reminder of Arsenal's original record-breaker**\
-`It is easy forget how far Nwaneri has come at just 18, on nights like this, he and Lewis-Skelly become elder statesmen.`\
+**Nwaneri, a beautiful goal and a night Arsenal's original record-breaker became elder statesman**\
+`It is easy forget how far Nwaneri has come, on nights like this, he leads the way for other Hale End stars like Dowman and Harriman-Annous`\
 https://nytimes.com/athletic/6761769/2025/10/30/arsenal-ehtna-nwaneri-max-dowman-hale-end/
 
 **Maresca finally said what needs to be said about Chelsea's red card problem**\
