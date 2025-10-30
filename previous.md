@@ -1,3 +1,7 @@
+**How to watch Cardinals vs. Cowboys: Time, TV, streaming**\
+`Find out how to watch the Arizona Cardinals play the Dallas Cowboys, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6762354/2025/10/30/cardinals-vs-cowboys-stream-how-to-watch-nov-3/
+
 **Word of the Day: rectitude**\
 `This word has appeared in 12 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/10/30/learning/word-of-the-day-rectitude.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6759731/2025/10/30/the-alternative-premier-league-t
 **FPL: The Premier League fixture swings to target for Gameweek 10**\
 `Using insights from the fixture ticker, recent form, and underlying data, here are the clubs (and players) that have the best schedules`\
 https://nytimes.com/athletic/6758176/2025/10/30/fantasy-premier-league-gameweek-10-tips-fpl/
-
-**A day in the life of Philipp Lahm: Grassroots football and Bayern vs Dortmund**\
-`The Athletic spent the day with Philipp Lahm around Bayern Munich's game with Borussia Dortmund`\
-https://nytimes.com/athletic/6759606/2025/10/30/philipp-lahm-day-in-life-bayern-dortmund/
 

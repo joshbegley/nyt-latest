@@ -1,3 +1,7 @@
+**How to watch Cardinals vs. Cowboys: Time, TV, streaming**\
+`Find out how to watch the Arizona Cardinals play the Dallas Cowboys, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6762354/2025/10/30/cardinals-vs-cowboys-stream-how-to-watch-nov-3/
+
 **Word of the Day: rectitude**\
 `This word has appeared in 12 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/10/30/learning/word-of-the-day-rectitude.html
