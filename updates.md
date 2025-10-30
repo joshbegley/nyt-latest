@@ -1,3 +1,15 @@
+**Former Duke star Kyle Singler arrested on domestic abuse charge in Oklahoma**\
+`Singler's arrest comes 11 months after he posted a rambling Instagram video that prompted messages of concern from fellow players.`\
+https://nytimes.com/athletic/6761925/2025/10/29/kyle-singler-duke-basketball-thunder-arrest-assault-charge/
+
+**Blue Jays' Trey Yesavage sets World Series rookie strikeout record in Game 5**\
+`Making just his eighth big-league start overall, Yesavage showed why the Blue Jays fast-tracked him through the minor leagues.`\
+https://nytimes.com/athletic/6762049/2025/10/29/blue-jays-trey-yesavage-world-series-rookie-record/
+
+**USWNT 6, New Zealand 0: Emma Sears scores first professional hat trick**\
+`The U.S. scored the most goals in a single game under Emma Hayes on Wednesday.`\
+https://nytimes.com/athletic/6761895/2025/10/29/uswnt-new-zealand-emma-sears-hat-trick/
+
 **Mirtle: Maple Leafs' difficult start to season takes disastrous turn in Columbus**\
 `After a nightmare 6-3 loss to the Blue Jackets, Toronto is now on pace for just 82 points after the first month of the season.`\
 https://nytimes.com/athletic/6761957/2025/10/29/maple-leafs-blue-jackets-john-tavares/
