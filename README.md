@@ -1,3 +1,15 @@
+**NCAA penalizes former CMU coach McElwain, 3 others in Stalions case**\
+`CMU agreed to a series of NCAA penalties for the actions of staff members who arranged for Connor Stalions to gain sideline access.`\
+https://nytimes.com/athletic/6763777/2025/10/30/ncaa-penalties-connor-stalions-central-michigan/
+
+**Was Arne Slot right about Liverpool's squad size and his '15-16' available players?**\
+`Arne Slot's comments drew a critical reaction and may be disrespectful to some players but the evidence suggests he was being accurate`\
+https://nytimes.com/athletic/6763446/2025/10/30/arne-slot-liverpool-squad-size/
+
+**NBA approves Los Angeles Lakers majority stake sale to Mark Walter**\
+`Walter, who also owns the Los Angeles Dodgers, now owns 85 percent of the Lakers.`\
+https://nytimes.com/athletic/6763776/2025/10/30/los-angeles-lakers-sale-mark-walter/
+
 **Nebraska, Rhule agree to contract extension, quieting Penn State speculation**\
 `The new deal keeps Rhule, 50, under contract at Nebraska through 2032.`\
 https://nytimes.com/athletic/6763702/2025/10/30/nebraska-matt-rhule-contract-extension-penn-state/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/30/us/politics/snap-states.html
 **Review: To Cure the Sick, ‘Le Grand Bal’ Prescribes a Rave**\
 `The French troupe Compagnie Dyptik is making its United States debut with a show seemingly inspired by pandemic isolation and its aftermath.`\
 https://nytimes.com/2025/10/30/arts/dance/compagnie-dyptik-le-grand-bal-review.html
-
-**What’s Andrew Cuomo’s Plan to Help New York City Renters?**\
-`Andrew Cuomo says he’ll make rent-stabilization more fair if he is mayor, but his plan could make finding an apartment in New York City even more difficult.`\
-https://nytimes.com/video/us/politics/100000010449816/whats-andrew-cuomos-plan-to-help-new-york-city-renters.html
-
-**Football Manager 26 review: Was the two-year wait worth it?**\
-`Ahead of its official release next week, there has been plenty of criticism online of the beta version. So what works and what does not?`\
-https://nytimes.com/athletic/6759565/2025/10/30/football-manager-26-review/
-
-**Little Word of a TikTok Deal Out of Trump-Xi Meeting**\
-`Neither President Trump nor Chinese officials indicated any new developments for the popular video app. Treasury Secretary Scott Bessent previously suggested they could “consummate” transfer of control from its Chinese owner.`\
-https://nytimes.com/2025/10/30/us/politics/trump-xi-tiktok-deal.html
 
