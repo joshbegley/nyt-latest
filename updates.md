@@ -1,3 +1,15 @@
+**Israel’s Ultra-Orthodox Set For ‘March of the Million’ Against Military Draft**\
+`Mass demonstrations are planned in Jerusalem on Thursday against efforts to end a decades-old exemption from military service for Israel’s Haredi religious students.`\
+https://nytimes.com/2025/10/30/world/middleeast/israel-ultra-orthodox-demonstration-military-draft.html
+
+**Delhi Tried to Make It Rain. Here’s Why It Failed.**\
+`Officials experimented with cloud seeding to try and reduce environmental pollutants as residents choke on filthy air.`\
+https://nytimes.com/2025/10/30/world/asia/india-rain-pollution-cloud-seeding.html
+
+**Man Utd have 'clear plan' to invest in and improve squad, Wilcox says**\
+`United committed an initial £216million (€245m, $284m) on five new players in the summer transfer window.`\
+https://nytimes.com/athletic/6762890/2025/10/30/manchester-united-jason-wilcox-mutv-interview/
+
 **Mamdani Holds Onto Strong Lead in Two New Polls Ahead of Election Day**\
 `One poll of likely voters, from Emerson College, showed Zohran Mamdani widening his lead over former Gov. Andrew M. Cuomo to 25 percentage points.`\
 https://nytimes.com/2025/10/30/nyregion/emerson-marist-poll-mamdani-nyc-mayor.html
