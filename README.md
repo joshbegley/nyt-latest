@@ -1,3 +1,11 @@
+**Eight Perfect Pumpkin Recipes**\
+`And three recipes for those pumpkin seeds.`\
+https://nytimes.com/2025/10/30/dining/eight-perfect-pumpkin-recipes.html
+
+**Alfie Whiteman: Why I left Spurs and football for a new career as a photographer and director**\
+`The goalkeeper was with Spurs from the age of 10 and won a Europa League medal in May but walked away in pursuit of happiness`\
+https://nytimes.com/athletic/6763001/2025/10/30/alfie-whiteman-tottenham-retirement-director-photographer/
+
 **NCAA penalizes former CMU coach McElwain, 3 others in Stalions case**\
 `CMU agreed to a series of NCAA penalties for the actions of staff members who arranged for Connor Stalions to gain sideline access.`\
 https://nytimes.com/athletic/6763777/2025/10/30/ncaa-penalties-connor-stalions-central-michigan/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000010490960/wilders-loss-dutch-electi
 **College football Week 10 picks ATS: Could Navy-North Texas be a better game than PSU-OSU?**\
 `Several contenders face do or die games this week, while the battle for the American Conference is shaping up to be a barn-burner.`\
 https://nytimes.com/athletic/6759099/2025/10/30/college-football-picks-spread-week-10/
-
-**How States Are Preparing for a Freeze in Federal Food Assistance**\
-`The Supplemental Nutritional Assistance Program will run out of money on Saturday. Some governors are shifting state money to cover part of the shortfall, bolster food pantries or both.`\
-https://nytimes.com/2025/10/30/us/politics/snap-states.html
-
-**Review: To Cure the Sick, ‘Le Grand Bal’ Prescribes a Rave**\
-`The French troupe Compagnie Dyptik is making its United States debut with a show seemingly inspired by pandemic isolation and its aftermath.`\
-https://nytimes.com/2025/10/30/arts/dance/compagnie-dyptik-le-grand-bal-review.html
 
