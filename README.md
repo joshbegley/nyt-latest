@@ -1,3 +1,7 @@
+**Islanders scratch Mathew Barzal for being late: 'That’s the culture of our team'**\
+`Barzal will not play in the Islanders' game Thursday night against the Hurricanes after showing up late to a morning practice.`\
+https://nytimes.com/athletic/6763821/2025/10/30/islanders-mathew-barzal-scratch-hurricanes/
+
 **Eight Perfect Pumpkin Recipes**\
 `And three recipes for those pumpkin seeds.`\
 https://nytimes.com/2025/10/30/dining/eight-perfect-pumpkin-recipes.html
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6763777/2025/10/30/ncaa-penalties-connor-stalions-c
 https://nytimes.com/athletic/6763446/2025/10/30/arne-slot-liverpool-squad-size/
 
 **NBA approves Los Angeles Lakers majority stake sale to Mark Walter**\
-`Walter, who also owns the Los Angeles Dodgers, now owns 85 percent of the Lakers.`\
+`Walter, who has owned the Los Angeles Dodgers since 2012, now owns 85 percent of the Lakers.`\
 https://nytimes.com/athletic/6763776/2025/10/30/los-angeles-lakers-sale-mark-walter/
 
 **Nebraska, Rhule agree to contract extension, quieting Penn State speculation**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/30/opinion/rsf-el-fasher-darfur.html
 **Far Right Projected to Lose Ground to the Center Left in Dutch Election**\
 `In a major loss for Geert Wilders’s far-right, his populist Party for Freedom was poised to lose ground to the socially progressive Democrats 66 of Rob Jetten after Wednesday’s Dutch election. Mr. Jetten, 38, could take the first chance to form a new government.`\
 https://nytimes.com/video/world/europe/100000010490960/wilders-loss-dutch-elections.html
-
-**College football Week 10 picks ATS: Could Navy-North Texas be a better game than PSU-OSU?**\
-`Several contenders face do or die games this week, while the battle for the American Conference is shaping up to be a barn-burner.`\
-https://nytimes.com/athletic/6759099/2025/10/30/college-football-picks-spread-week-10/
 
