@@ -1,3 +1,7 @@
+**What Palantir Sees**\
+`The tech company’s C.T.O. on surveillance, A.I. and the future of war`\
+https://nytimes.com/video/opinion/100000010478095/what-palantir-sees.html
+
 **Trump’s Test Threat Could Fuel Nuclear Tensions With China**\
 `Beijing has been expanding its arsenal, and distrust between China and the United States over nuclear weapons has deepened, with little hope of an agreement.`\
 https://nytimes.com/2025/10/29/us/politics/nuclear-test-ban.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/30/nyregion/nyc-marathon-cheering-guide-spectators.h
 **Where Mamdani Found the Blueprints to Run for Mayor**\
 `Before Zohran Mamdani became a state legislator, he helped South Asian New Yorkers who were in danger of losing their homes because of tax liens and job losses.`\
 https://nytimes.com/2025/10/30/nyregion/zohran-mamdani-howeowners.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/10/30/crosswords/spelling-bee-forum.html
 
