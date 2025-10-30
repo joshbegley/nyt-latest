@@ -1,3 +1,19 @@
+**With China Truce, U.S. National Security Controls Now Appear Up for Negotiation**\
+`Some analysts say Beijing won a major victory in its trade talks: Getting the U.S. to withdraw a national security measure that previously was not under discussion.`\
+https://nytimes.com/2025/10/30/us/politics/china-trump-trade-security-chips-minerals.html
+
+**Hey, Lefties! Trump Has Stolen Your Game.**\
+`MAGA is using left ideas to destroy the left.`\
+https://nytimes.com/2025/10/30/opinion/trump-conservatives-progressives.html
+
+**World Series ticket prices surge as Dodgers-Blue Jays returns to Toronto**\
+`Tickets for Game 6 at Rogers Centre are starting at around $1,180, with the average resale price near $1,857.`\
+https://nytimes.com/athletic/6764117/2025/10/30/canada-world-series-ticket-market-heats-up/
+
+**Apple’s iPhones Fuel Record Sales and Profit**\
+`The company’s revenue rose to above $100 billion in the quarter for the first time and profit soared 86 percent.`\
+https://nytimes.com/2025/10/30/business/apple-earnings.html
+
 **Trump’s Call to Resume Nuclear Testing After Decades Revives a Cold War Debate**\
 `President Trump explained the order by saying other, unnamed nations were testing their own nuclear weapons, even though no country has tested since 2017.`\
 https://nytimes.com/2025/10/30/us/politics/trumps-nuclear-testing-cold-war.html
