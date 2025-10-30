@@ -1,3 +1,11 @@
+**Women's college basketball: 5 questions for the 2025-26 season**\
+`Will South Carolina look different this season? Chantel Jennings answers pressing preseason questions.`\
+https://nytimes.com/athletic/6747395/2025/10/30/womens-college-basketball-preseason-questions-uconn/
+
+**Science Practice | A Study on a Rodent-Shaped Sidewalk Impression**\
+`What animal made an infamous indentation in a Chicago sidewalk? A new study offers clues. Hint: It wasn’t a rat.`\
+https://nytimes.com/2025/10/30/learning/science-practice-a-study-on-a-rodent-shaped-sidewalk-impression.html
+
 **The Pulse: The Blue Jays flap closer to a title**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6759877/2025/10/30/blue-jays-dodgers-trey-yesavage-the-pulse/
