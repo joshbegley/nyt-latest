@@ -1,3 +1,15 @@
+**With China Truce, U.S. National Security Controls Now Appear Up for Negotiation**\
+`Some analysts say Beijing won a major victory in its trade talks: Getting the U.S. to withdraw a national security measure that previously was not under discussion.`\
+https://nytimes.com/2025/10/30/us/politics/china-trump-trade-security-chips-minerals.html
+
+**Hey, Lefties! Trump Has Stolen Your Game.**\
+`MAGA is using left ideas to destroy the left.`\
+https://nytimes.com/2025/10/30/opinion/trump-conservatives-progressives.html
+
+**World Series ticket prices surge as Dodgers-Blue Jays returns to Toronto**\
+`Tickets for Game 6 at Rogers Centre are starting at around $1,180, with the average resale price near $1,857.`\
+https://nytimes.com/athletic/6764117/2025/10/30/canada-world-series-ticket-market-heats-up/
+
 **Trump’s Call to Resume Nuclear Testing After Decades Revives a Cold War Debate**\
 `President Trump explained the order by saying other, unnamed nations were testing their own nuclear weapons, even though no country has tested since 2017.`\
 https://nytimes.com/2025/10/30/us/politics/trumps-nuclear-testing-cold-war.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/30/nyregion/mamdani-freeze-rent-apartments.html
 **How Do You Feel About Travel Right Now? We Want to Hear From You.**\
 `We’re curious about how you are making travel decisions in a time of economic uncertainty, more premium services and the expanding reach of loyalty programs.`\
 https://nytimes.com/2025/10/30/travel/travel-economy-airlines-loyalty-programs.html
-
-**Six Arrested in Robbery of Precious-Metal Refinery in France**\
-`The robbers used explosives to gain entry to a precious-metal company in Lyon, French officials said. The police recovered the items.`\
-https://nytimes.com/2025/10/30/world/europe/robbery-lyon-france.html
-
-**Chiang Mai, Thailand**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/things-to-do-chiang-mai
-
-**U.S. Says It Is Prepared to Aid Cuba After Extensive Hurricane Damage**\
-`Secretary of State Marco Rubio said the State Department had issued a formal Declaration of Humanitarian Assistance for Cuba, where U.S. government aid is rare.`\
-https://nytimes.com/2025/10/30/weather/cuba-hurricane-melissa-us-aid-rubio.html
 
