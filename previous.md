@@ -1,3 +1,11 @@
+**Mandel: LSU was this coaching carousel's best job — then the governor grabbed the mic**\
+`Louisiana Gov. Jeff Landry's comments about taking the LSU search away from AD Scott Woodward might cause any top candidate to think twice.`\
+https://nytimes.com/athletic/6762366/2025/10/30/lsu-football-coach-governor-jeff-landry-louisiana/
+
+**5 More Louvre Heist Suspects Arrested, Prosecutor Says**\
+`The police have arrested five more suspects in connection with the theft at the Louvre Museum in Paris, the Paris prosecutor said on Thursday. Seven people total have now been arrested, but authorities have not yet retrieved the stolen jewelry.`\
+https://nytimes.com/video/world/europe/100000010490835/5-more-louvre-heist-suspects-arrested-prosecutor-says.html
+
 **Israel’s Ultra-Orthodox Set For ‘March of the Million’ Against Military Draft**\
 `Mass demonstrations are planned in Jerusalem on Thursday against efforts to end a decades-old exemption from military service for Israel’s Haredi religious students.`\
 https://nytimes.com/2025/10/30/world/middleeast/israel-ultra-orthodox-demonstration-military-draft.html
@@ -15,11 +23,11 @@ https://nytimes.com/athletic/6762890/2025/10/30/manchester-united-jason-wilcox-m
 https://nytimes.com/2025/10/30/nyregion/emerson-marist-poll-mamdani-nyc-mayor.html
 
 **Here’s the latest.**\
-`By Jeffery C. Mays`\
+`By Jeffery C. Mays and Matthew Haag`\
 https://nytimes.com/live/2025/10/30/nyregion/nyc-mayor-election-news/heres-the-latest
 
 **N.Y.C. Mayor’s Race Live Updates: Two New Polls Show Mamdani With Commanding Lead**\
-`Zohran Mamdani continues to do well in surveys of likely voters, as his main rivals, Andrew M. Cuomo and Curtis Sliwa, strive to catch him.`\
+`Zohran Mamdani continues to do well in surveys of likely voters, as his main rivals, Andrew M. Cuomo and Curtis Sliwa, strive to catch him. More than 370,000 New Yorkers have already voted early.`\
 https://nytimes.com/live/2025/10/30/nyregion/nyc-mayor-election-news
 
 **A 'brilliant' mind: Nebraska volleyball freshman Manaia Ogbechie aims to change the game**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6761908/2025/10/30/nebraska-volleyball-manaia-ogbec
 **In Todd McLellan's first game back in L.A., it's not just the bench that's familiar**\
 `Todd McLellan hasn't been behind a bench at Crypto.com Arena since January 2024. Some things have changed. Others haven't.`\
 https://nytimes.com/athletic/6761781/2025/10/30/todd-mclellan-kings-return-red-wings/
-
-**Why is Georgia's defense mediocre this season? Here's what the personnel data says**\
-`It’s a jolt to see mediocrity out of a Smart-coached defense that has the usual array of blue chips.`\
-https://nytimes.com/athletic/6760732/2025/10/30/georgia-football-defense-issues/
-
-**Key fantasy football questions for Week 9: Travis Hunter a WR2? TreVeyon time?**\
-`Dalton Del Don looks at the key fantasy football topics for Week 9, including the roles of rookies Travis Hunter and TreVeyon Henderson.`\
-https://nytimes.com/athletic/6761301/2025/10/30/key-fantasy-football-questions-week-9-hunter-treveyon/
 

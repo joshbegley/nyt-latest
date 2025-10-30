@@ -1,3 +1,7 @@
+**Why Investors Seem Underwhelmed by the Trump-Xi Meeting**\
+`The highly anticipated event covered a lot of ground on tariff and trade barriers, but questions remain about reaching a lasting accord.`\
+https://nytimes.com/2025/10/30/business/dealbook/trump-xi-china-meeting.html
+
 **Mandel: LSU was this coaching carousel's best job — then the governor grabbed the mic**\
 `Louisiana Gov. Jeff Landry's comments about taking the LSU search away from AD Scott Woodward might cause any top candidate to think twice.`\
 https://nytimes.com/athletic/6762366/2025/10/30/lsu-football-coach-governor-jeff-landry-louisiana/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/10/30/nyregion/nyc-mayor-election-news
 **A 'brilliant' mind: Nebraska volleyball freshman Manaia Ogbechie aims to change the game**\
 `"When I'm on the court, it's for everybody else. And that makes it so easy," said Ogbechie, a 6-foot-3 middle blocker.`\
 https://nytimes.com/athletic/6761908/2025/10/30/nebraska-volleyball-manaia-ogbechie/
-
-**In Todd McLellan's first game back in L.A., it's not just the bench that's familiar**\
-`Todd McLellan hasn't been behind a bench at Crypto.com Arena since January 2024. Some things have changed. Others haven't.`\
-https://nytimes.com/athletic/6761781/2025/10/30/todd-mclellan-kings-return-red-wings/
 
