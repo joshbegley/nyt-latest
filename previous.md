@@ -1,3 +1,7 @@
+**Panthers' QB conundrum: Andy Dalton's thumb broken, Bryce Young's ankle progressing**\
+`Dalton played through the injury last week. Young says he continues to "feel better and better" after full day of practice.`\
+https://nytimes.com/athletic/6764615/2025/10/30/panthers-bryce-young-andy-dalton-injury-update/
+
 **Who Is Driving U.S. Attacks in the Caribbean?**\
 `What’s the main goal of the U.S. military buildup in the Caribbean, and who in the Trump administration is behind it? Anatoly Kurmanaev, a New York Times reporter who covered Venezuela, discusses with Katrin Bennhold what we know and don’t know.`\
 https://nytimes.com/video/world/americas/100000010488549/who-is-driving-us-attacks-in-the-caribbean.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/30/world/xi-trump-trade-talks.html
 **With China Truce, U.S. National Security Controls Now Appear Up for Negotiation**\
 `Some analysts say Beijing won a major victory in its trade talks: Getting the U.S. to withdraw a national security measure that previously was not under discussion.`\
 https://nytimes.com/2025/10/30/us/politics/china-trump-trade-security-chips-minerals.html
-
-**Hey, Lefties! Trump Has Stolen Your Game.**\
-`MAGA is using left ideas to destroy the left.`\
-https://nytimes.com/2025/10/30/opinion/trump-conservatives-progressives.html
 

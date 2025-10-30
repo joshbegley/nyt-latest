@@ -1,3 +1,7 @@
+**Panthers' QB conundrum: Andy Dalton's thumb broken, Bryce Young's ankle progressing**\
+`Dalton played through the injury last week. Young says he continues to "feel better and better" after full day of practice.`\
+https://nytimes.com/athletic/6764615/2025/10/30/panthers-bryce-young-andy-dalton-injury-update/
+
 **Who Is Driving U.S. Attacks in the Caribbean?**\
 `What’s the main goal of the U.S. military buildup in the Caribbean, and who in the Trump administration is behind it? Anatoly Kurmanaev, a New York Times reporter who covered Venezuela, discusses with Katrin Bennhold what we know and don’t know.`\
 https://nytimes.com/video/world/americas/100000010488549/who-is-driving-us-attacks-in-the-caribbean.html
