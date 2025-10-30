@@ -18,8 +18,8 @@ https://nytimes.com/2025/10/30/us/trump-and-xi-agree-to-a-yearlong-trade-truce.h
 `Geert Wilders suffered a loss of support as a center-left party staged major gains, an election result that could offer lessons for Europe’s far right.`\
 https://nytimes.com/2025/10/30/world/europe/netherlands-election-parliament-wilders.html
 
-**Lavelle remains a ‘magician’ for USWNT and Gotham. Now her leadership is casting a spell**\
-`As the second-most capped player for the U.S. this international window, Lavelle found herself navigating a newfound leadership role`\
+**Lavelle is a ‘magician’ for USWNT and Gotham – and now her leadership is casting a spell**\
+`As the second-most capped player for the U.S. this international window, Lavelle found herself navigating a newfound guidance role`\
 https://nytimes.com/athletic/6762476/2025/10/30/rose-lavelle-generational-talent-uswnt-gotham/
 
 **Phillies mailbag: Ranger Suárez, Alec Bohm and this offseason's most compelling figure**\

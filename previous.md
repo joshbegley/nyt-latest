@@ -1,3 +1,27 @@
+**China’s Pause on Rare Earth Controls: What to Know**\
+`China has suspended export controls announced this month, but was conspicuously silent about rules imposed earlier, which are snarling global supply chains.`\
+https://nytimes.com/2025/10/30/business/china-rare-earth-export-controls.html
+
+**Agyemang ruled out for season with ACL injury**\
+`The 19-year-old was carried off the pitch on a stretcher in the 80th minute of England's 3-0 win against Australia at Pride Park on Tuesday.`\
+https://nytimes.com/athletic/6759678/2025/10/30/michelle-agyemang-injury-acl/
+
+**Can Jim Knowles slow the Buckeyes down? Previewing Ohio State vs. Penn Sate**\
+`Ohio State-Penn State is not the marquee matchup many expected. Will Knowles and the Nittany Lions have any surprises in Columbus?`\
+https://nytimes.com/athletic/6760373/2025/10/30/ohio-state-penn-state-preview-prediction-jim-knowles/
+
+**Trump and Xi Agree to a Yearlong Trade Truce**\
+`The deal rolls back many tariffs and retaliatory measures.`\
+https://nytimes.com/2025/10/30/us/trump-and-xi-agree-to-a-yearlong-trade-truce.html
+
+**‘Not So Bulletproof’: A Far-Right Party Faces Rebuke in the Netherlands**\
+`Geert Wilders suffered a loss of support as a center-left party staged major gains, an election result that could offer lessons for Europe’s far right.`\
+https://nytimes.com/2025/10/30/world/europe/netherlands-election-parliament-wilders.html
+
+**Lavelle remains a ‘magician’ for USWNT and Gotham. Now her leadership is casting a spell**\
+`As the second-most capped player for the U.S. this international window, Lavelle found herself navigating a newfound leadership role`\
+https://nytimes.com/athletic/6762476/2025/10/30/rose-lavelle-generational-talent-uswnt-gotham/
+
 **Phillies mailbag: Ranger Suárez, Alec Bohm and this offseason's most compelling figure**\
 `There are endless questions about how this offseason will unfold, and so many of you had good ones to ponder. Let's answer another batch.`\
 https://nytimes.com/athletic/6759989/2025/10/30/phillies-mailbag-ranger-suarez-alec-bohm-and-this-offseasons-most-compelling-figure/
@@ -14,28 +38,4 @@ https://nytimes.com/athletic/6761044/2025/10/30/guardians-mailbag-2025-2026-offs
 **This Week in Sports Trivia: October 30, 2025**\
 `How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
 https://nytimes.com/athletic/6760830/2025/10/30/this-week-in-sports-trivia-october-30-2025/
-
-**Women's college basketball freshmen to watch**\
-`Who will be this year's Freshman of the Year? Look to UConn again.`\
-https://nytimes.com/athletic/6747508/2025/10/30/womens-college-basketball-freshmen-to-watch-addie-deal-at-iowa-sienna-betts-at-ucla-more/
-
-**From backyard rinks in Edmonton to the Rangers, Matthew Robertson chases his NHL dream**\
-`It's been years since Matthew Robertson was last home to see an Edmonton winter. This time, he's on an NHL roster at last.`\
-https://nytimes.com/athletic/6761043/2025/10/30/rangers-matthew-robertson-rookie-season-nhl/
-
-**Packers' urgency evident in benching of marquee free-agent signing Nate Hobbs**\
-`Hobbs played every defensive snap at cornerback in Weeks 6 and 7 before playing just four of 63 defensive snaps in Week 8.`\
-https://nytimes.com/athletic/6761190/2025/10/30/packers-nate-hobbs-benched/
-
-**Yohe: Dubas deserves credit for Penguins' short- and long-term future**\
-`Under the radar, Kyle Dubas is on a heater. Suddenly, the Penguins have hope because of the work he has done. `\
-https://nytimes.com/athletic/6761724/2025/10/30/penguins-kyle-dubas-draft-trades-direction/
-
-**Matas Buzelis buzz growing as Bulls stay undefeated with win over Zach LaVine, Kings**\
-`A confident Buzelis, who scored 27 points on 11-for-18 shooting, has the Bulls 4-0 and loving life at the top.`\
-https://nytimes.com/athletic/6762221/2025/10/30/bulls-matas-buzelis-buzz-kings-zach-lavine/
-
-**Is USC built to make a late-season run? 5 thoughts on the Trojans heading into November**\
-`USC is getting strong play from QB Jayden Maiava, but the Trojans must improve on defense in the final month of the season. `\
-https://nytimes.com/athletic/6761232/2025/10/30/usc-football-lincoln-riley-jayden-maiava-schedule/
 
