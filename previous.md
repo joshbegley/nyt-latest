@@ -1,3 +1,7 @@
+**Who Walked Away Stronger in U.S.-China Trade Talks?**\
+`Xi Jinping secured concessions from Donald Trump in exchange for returning to the status quo.`\
+https://nytimes.com/2025/10/30/world/xi-trump-trade-talks.html
+
 **With China Truce, U.S. National Security Controls Now Appear Up for Negotiation**\
 `Some analysts say Beijing won a major victory in its trade talks: Getting the U.S. to withdraw a national security measure that previously was not under discussion.`\
 https://nytimes.com/2025/10/30/us/politics/china-trump-trade-security-chips-minerals.html
@@ -12,7 +16,7 @@ https://nytimes.com/athletic/6764117/2025/10/30/canada-world-series-ticket-marke
 
 **Trump’s Call to Resume Nuclear Testing After Decades Revives a Cold War Debate**\
 `President Trump explained the order by saying other, unnamed nations were testing their own nuclear weapons, even though no country has tested since 2017.`\
-https://nytimes.com/2025/10/30/us/politics/trumps-nuclear-testing-cold-war.html
+https://nytimes.com/2025/10/30/us/politics/trump-nuclear-testing-cold-war.html
 
 **Amazon’s Profit Is Up 38% on Strong Performance**\
 `After unexpectedly strong sales and profits across its consumer and cloud businesses, the tech giant said another strong quarter might be ahead.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/30/business/apple-earnings.html
 **Mamdani Seeks to Freeze Rents on Stabilized Units. What About the Rest?**\
 `Some three million New Yorkers live in apartments with rent levels set by the market. They would not benefit from Mr. Mamdani’s rent freeze.`\
 https://nytimes.com/2025/10/30/nyregion/mamdani-freeze-rent-apartments.html
-
-**How Do You Feel About Travel Right Now? We Want to Hear From You.**\
-`We’re curious about how you are making travel decisions in a time of economic uncertainty, more premium services and the expanding reach of loyalty programs.`\
-https://nytimes.com/2025/10/30/travel/travel-economy-airlines-loyalty-programs.html
 

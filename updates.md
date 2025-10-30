@@ -1,3 +1,11 @@
+**Who Walked Away Stronger in U.S.-China Trade Talks?**\
+`Xi Jinping secured concessions from Donald Trump in exchange for returning to the status quo.`\
+https://nytimes.com/2025/10/30/world/xi-trump-trade-talks.html
+
+**Trump’s Call to Resume Nuclear Testing After Decades Revives a Cold War Debate**\
+`President Trump explained the order by saying other, unnamed nations were testing their own nuclear weapons, even though no country has tested since 2017.`\
+https://nytimes.com/2025/10/30/us/politics/trump-nuclear-testing-cold-war.html
+
 **With China Truce, U.S. National Security Controls Now Appear Up for Negotiation**\
 `Some analysts say Beijing won a major victory in its trade talks: Getting the U.S. to withdraw a national security measure that previously was not under discussion.`\
 https://nytimes.com/2025/10/30/us/politics/china-trump-trade-security-chips-minerals.html

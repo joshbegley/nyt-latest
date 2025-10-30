@@ -1,3 +1,7 @@
+**Letitia James Questions Authority of Prosecutor Who Is Investigating Her**\
+`The appointment of the U.S. attorney in Albany, N.Y., John A. Sarcone, is at least the fifth to be questioned in the courts.`\
+https://nytimes.com/2025/10/30/nyregion/letitia-james-investigation-subpoenas.html
+
 **Who Walked Away Stronger in U.S.-China Trade Talks?**\
 `Xi Jinping secured concessions from Donald Trump in exchange for returning to the status quo.`\
 https://nytimes.com/2025/10/30/world/xi-trump-trade-talks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/30/us/politics/trump-vance-airport-travel-shutdown.h
 **Apple’s iPhones Fuel Record Sales and Profit**\
 `The company’s revenue rose to above $100 billion in the quarter for the first time and profit soared 86 percent.`\
 https://nytimes.com/2025/10/30/business/apple-earnings.html
-
-**Mamdani Seeks to Freeze Rents on Stabilized Units. What About the Rest?**\
-`Some three million New Yorkers live in apartments with rent levels set by the market. They would not benefit from Mr. Mamdani’s rent freeze.`\
-https://nytimes.com/2025/10/30/nyregion/mamdani-freeze-rent-apartments.html
 
