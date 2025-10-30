@@ -1,3 +1,11 @@
+**Word of the Day: rectitude**\
+`This word has appeared in 12 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/30/learning/word-of-the-day-rectitude.html
+
+**Late Night Shades South Korea for Giving Trump a Crown**\
+`Desi Lydic called the president’s reception “a ‘yes, king’ rally for Trump.”`\
+https://nytimes.com/2025/10/30/arts/television/late-night-south-korea-trump-crown.html
+
 **How England can win the Ashes, according to Mark Waugh**\
 `Interview: Australian great wants a competitive Ashes series – and believes Bazball can help deliver it`\
 https://nytimes.com/athletic/6759445/2025/10/30/mark-waugh-australia-england-ashes/

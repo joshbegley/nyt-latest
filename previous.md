@@ -1,3 +1,11 @@
+**Word of the Day: rectitude**\
+`This word has appeared in 12 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/30/learning/word-of-the-day-rectitude.html
+
+**Late Night Shades South Korea for Giving Trump a Crown**\
+`Desi Lydic called the president’s reception “a ‘yes, king’ rally for Trump.”`\
+https://nytimes.com/2025/10/30/arts/television/late-night-south-korea-trump-crown.html
+
 **How England can win the Ashes, according to Mark Waugh**\
 `Interview: Australian great wants a competitive Ashes series – and believes Bazball can help deliver it`\
 https://nytimes.com/athletic/6759445/2025/10/30/mark-waugh-australia-england-ashes/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6758176/2025/10/30/fantasy-premier-league-gameweek-
 **A day in the life of Philipp Lahm: Grassroots football and Bayern vs Dortmund**\
 `The Athletic spent the day with Philipp Lahm around Bayern Munich's game with Borussia Dortmund`\
 https://nytimes.com/athletic/6759606/2025/10/30/philipp-lahm-day-in-life-bayern-dortmund/
-
-**Dyche questioned Forest squad's fitness. Is it a new-manager cliche or does he have a point?**\
-`Sean Dyche has questioned the Forest squad's fitness - but is he just discussing a certain 'type' of fitness?`\
-https://nytimes.com/athletic/6760186/2025/10/30/premier-league-managers-fitness-levels/
-
-**When will the rest of the Premier League take Bournemouth seriously?**\
-`Andoni Iraola's team are second in the Premier League after nine games — here's why they deserve to be there`\
-https://nytimes.com/athletic/6759448/2025/10/30/bournemouth-premier-league-analysis/
 
