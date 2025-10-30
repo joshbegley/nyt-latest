@@ -1,3 +1,27 @@
+**The Bounce: Austin Reaves can't be stopped. Plus, Draymond defends Adam Silver**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6763309/2025/10/30/austin-reaves-lakers-cade-cunningham-nba-draymond-thebounce/
+
+**Can You Pass Your Date’s Background Check?**\
+`Unwilling to put their hearts or safety on the line, people looking for love online go all out to vet potential partners.`\
+https://nytimes.com/2025/10/30/well/dating-facetime-coffee-screen.html
+
+**French Magazine Acknowledges Breaching Prince William and Catherine’s Privacy**\
+`The couple had sued Paris Match for publishing paparazzi photos of them and their children on a ski vacation.`\
+https://nytimes.com/2025/10/30/world/europe/william-catherine-paris-match-royals.html
+
+**Fantasy football injuries, inactives, cheat sheet Week 9**\
+`Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 9 player rankings and more.`\
+https://nytimes.com/athletic/6757933/2025/10/30/fantasy-football-injuries-inactives-cheat-sheet-week-9/
+
+**Canucks thoughts: Kane's start, Demko's usage, the injury bug and more**\
+`The Canucks have lost four of their last five games and are about to start a three-game Central Division road trip.`\
+https://nytimes.com/athletic/6762231/2025/10/30/canucks-schedule-kane-demko-hughes-garland/
+
+**PSG's Doue set for 'several weeks' out with thigh injury**\
+`The 20-year-old was taken off the pitch on a stretcher during the second half of the Ligue 1 side's draw with Lorient on Wednesday.`\
+https://nytimes.com/athletic/6762704/2025/10/30/desire-doue-injury-update-psg/
+
 **Russia Says It Didn’t Test Nuclear Weapons, but Would if the U.S. Did**\
 `Dmitry Peskov, a Kremlin spokesman, told Russian news agencies that recent drone and missile tests were not nuclear weapons tests.`\
 https://nytimes.com/2025/10/30/us/politics/russia-nuclear-weapons-tests.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6763180/2025/10/30/mbeumo-amad-manchester-united-af
 **Can New York City Buses Be Both Fast and Free?**\
 `Our reporter Larry Buchanan collects data on the B41 bus in Brooklyn to find out why New York City buses are the slowest in the nation and whether Zohran Mamdani’s campaign pledge to make buses free would speed them up.`\
 https://nytimes.com/video/upshot/100000010473160/can-new-york-city-buses-be-both-fast-and-free.html
-
-**Leeds United mailbag: Ask our reporter Beren Cross your questions**\
-`Want to know the latest from Elland Road? Ask away for our latest Leeds United mailbag`\
-https://nytimes.com/athletic/6763261/2025/10/30/leeds-united-mailbag-beren-cross/
-
-**Fantasy trends and hidden gems: Alex Iafallo, Andrei Svechnikov among major value movers**\
-`Before checking in on upcoming four-game streamers and light-night targets, Shayna Goldman looks at October's biggest risers and fallers.`\
-https://nytimes.com/athletic/6762139/2025/10/30/fantasy-trends-hidden-gems-risers-fallers-sleepers/
-
-**Everton's academy is in transition. Is it on course to deliver 'homegrown superstars'?**\
-`The U18s' victory over Liverpool on Wednesday was the latest encouraging sign, but there is plenty of change going on behind the scenes`\
-https://nytimes.com/athletic/6762866/2025/10/30/everton-academy-youth-liverpool/
-
-**Packers mailbag: Submit your questions for beat writer Matt Schneidman**\
-`Share what's on your mind as Green Bay prepares to host the Carolina Panthers on Sunday.`\
-https://nytimes.com/athletic/6763220/2025/10/30/packers-mailbag-questions-matt-schneidman-panthers/
-
-**What we learned about the NHL in October: The Sam Reinhart problem, Mammoth's hot start**\
-`Plus, an Avalanche of power-play goals, Dylan Larkin the faceoff specialist and Ivan Demidov and Lane Hutson’s chemistry.`\
-https://nytimes.com/athletic/6761113/2025/10/30/nhl-panthers-sam-reinhart/
-
-**The Windup: Blue Jays making all kinds of history**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6762961/2025/10/30/trey-yesavage-game-5-the-windup/
 

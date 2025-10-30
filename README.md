@@ -1,3 +1,7 @@
+**AFC North Whiparound: Trade deadline talk, best unit moving forward and candy comps**\
+`Lamar Jackson returns Thursday night, the Steelers and Bengals look to bounce back from Week 8 losses and the Browns take a break.`\
+https://nytimes.com/athletic/6763177/2025/10/30/afc-north-whiparound-browns-bengals-steelers-ravens-week-9/
+
 **The Bounce: Austin Reaves can't be stopped. Plus, Draymond defends Adam Silver**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6763309/2025/10/30/austin-reaves-lakers-cade-cunningham-nba-draymond-thebounce/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/30/business/volkswagen-tariffs-chip-shortages.html
 **Amorim: Man Utd may 'struggle' due to AFCON absences**\
 `The attacking pair could miss up to six Premier League games while on international duty over December and January.`\
 https://nytimes.com/athletic/6763180/2025/10/30/mbeumo-amad-manchester-united-afcon/
-
-**Can New York City Buses Be Both Fast and Free?**\
-`Our reporter Larry Buchanan collects data on the B41 bus in Brooklyn to find out why New York City buses are the slowest in the nation and whether Zohran Mamdani’s campaign pledge to make buses free would speed them up.`\
-https://nytimes.com/video/upshot/100000010473160/can-new-york-city-buses-be-both-fast-and-free.html
 
