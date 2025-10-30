@@ -1,3 +1,7 @@
+**What Teenagers Are Saying About Being ‘Cringe’**\
+`In response to an article about “climbing cringe mountain,” students discuss embarrassment, surveillance and finding the courage to be themselves.`\
+https://nytimes.com/2025/10/30/learning/what-teenagers-are-saying-about-being-cringe.html
+
 **Submit your questions for The Athletic’s ACC football mailbag**\
 `<p>We head into the final month of the regular season with Georgia Tech and Virginia a combined 9-0 in the ACC and Florida State and North Carolina a combined 0-7.`\
 https://nytimes.com/athletic/6764054/2025/10/30/submit-your-questions-for-the-athletics-acc-football-mailbag-15/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6763885/2025/10/30/okc-thunder-nikola-topic-testicu
 **gws-bringing-new-life-to-empty-subway-shops**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/bringing-new-life-to-empty-subway-shops
-
-**Juventus have a smart new coach in Luciano Spalletti - now the club needs to get its act together**\
-`Juventus have a new coach but the executive leadership has come in for a lot of criticism as the spirit of the club has faded`\
-https://nytimes.com/athletic/6759612/2025/10/30/juventus-spalletti-coach/
 
