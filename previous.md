@@ -1,3 +1,11 @@
+**He Studied Why Some Female Birds Look Like Males**\
+`Jay Falk explored a fundamental question: How do genes give rise to different bodies? But without funding, “there’s not really a future here.”`\
+https://nytimes.com/2025/10/30/science/lost-science-falk-hummingbirds.html
+
+**Good Luck Finding a ‘KPop Demon Hunters’ Costume This Halloween**\
+`Characters from the hit Netflix film are among the most coveted outfits this year, and scarcity has forced some to improvise.`\
+https://nytimes.com/2025/10/30/business/kpop-demon-hunters-halloween-costume.html
+
 **Growing up is hard to do but fun to watch: Evaluating the Sharks' first 10 games**\
 `Over the start of the 2025-26 season, the Sharks have looked good, bad and everything in between.`\
 https://nytimes.com/athletic/6761940/2025/10/30/san-jose-sharks-10-games-celebrini-askarov-misa/
@@ -26,15 +34,7 @@ https://nytimes.com/athletic/6762366/2025/10/30/lsu-football-coach-governor-jeff
 `The police have arrested five more suspects in connection with the theft at the Louvre Museum in Paris, the Paris prosecutor said on Thursday. Seven people total have now been arrested, but authorities have not yet retrieved the stolen jewelry.`\
 https://nytimes.com/video/world/europe/100000010490835/5-more-louvre-heist-suspects-arrested-prosecutor-says.html
 
-**Israel’s Ultra-Orthodox Set For ‘March of the Million’ Against Military Draft**\
+**Israel’s Ultra-Orthodox Set for ‘March of the Million’ Against Military Draft**\
 `Mass demonstrations are planned in Jerusalem on Thursday against efforts to end a decades-old exemption from military service for Israel’s Haredi religious students.`\
 https://nytimes.com/2025/10/30/world/middleeast/israel-ultra-orthodox-demonstration-military-draft.html
-
-**Delhi Tried to Make It Rain. Here’s Why It Failed.**\
-`Officials experimented with cloud seeding to try and reduce environmental pollutants as residents choke on filthy air.`\
-https://nytimes.com/2025/10/30/world/asia/india-rain-pollution-cloud-seeding.html
-
-**Man Utd have 'clear plan' to invest in and improve squad, Wilcox says**\
-`United committed an initial £216million (€245m, $284m) on five new players in the summer transfer window.`\
-https://nytimes.com/athletic/6762890/2025/10/30/manchester-united-jason-wilcox-mutv-interview/
 

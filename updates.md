@@ -1,3 +1,15 @@
+**He Studied Why Some Female Birds Look Like Males**\
+`Jay Falk explored a fundamental question: How do genes give rise to different bodies? But without funding, “there’s not really a future here.”`\
+https://nytimes.com/2025/10/30/science/lost-science-falk-hummingbirds.html
+
+**Good Luck Finding a ‘KPop Demon Hunters’ Costume This Halloween**\
+`Characters from the hit Netflix film are among the most coveted outfits this year, and scarcity has forced some to improvise.`\
+https://nytimes.com/2025/10/30/business/kpop-demon-hunters-halloween-costume.html
+
+**Israel’s Ultra-Orthodox Set for ‘March of the Million’ Against Military Draft**\
+`Mass demonstrations are planned in Jerusalem on Thursday against efforts to end a decades-old exemption from military service for Israel’s Haredi religious students.`\
+https://nytimes.com/2025/10/30/world/middleeast/israel-ultra-orthodox-demonstration-military-draft.html
+
 **Growing up is hard to do but fun to watch: Evaluating the Sharks' first 10 games**\
 `Over the start of the 2025-26 season, the Sharks have looked good, bad and everything in between.`\
 https://nytimes.com/athletic/6761940/2025/10/30/san-jose-sharks-10-games-celebrini-askarov-misa/
