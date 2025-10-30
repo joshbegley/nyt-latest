@@ -1,3 +1,7 @@
+**Six Arrested in Robbery of Precious-Metal Refinery in France**\
+`The robbers used explosives to gain entry to a precious-metal company in Lyon, French officials said. The police recovered the items.`\
+https://nytimes.com/2025/10/30/world/europe/robbery-lyon-france.html
+
 **Mamdani Seeks to Freeze Rents on Stabilized Units. What About the Rest?**\
 `Some three million New Yorkers live in apartments with rent levels set by the market. They would not benefit from Mr. Mamdani’s rent freeze.`\
 https://nytimes.com/2025/10/30/nyregion/mamdani-freeze-rent-apartments.html
