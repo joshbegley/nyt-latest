@@ -1,3 +1,15 @@
+**Nationals set to hire Rays' Blake Butera, youngest MLB manager in decades: Source**\
+`Butera will be the youngest MLB manager in more than 50 years.`\
+https://nytimes.com/athletic/6763384/2025/10/30/nationals-youngest-mlb-manager-blake-butera/
+
+**Mexican motorsports federation blames Liam Lawson for near miss with F1 marshals**\
+`Speaking after the Mexican GP, Lawson called it “pretty unacceptable” and said, “Obviously, there's been a miscommunication somewhere.”`\
+https://nytimes.com/athletic/6763426/2025/10/30/liam-lawson-marshals-mexico-gp-f1/
+
+**Pierre Robert, Philadelphia’s ‘Citizen’ D.J., Dies at 70**\
+`He became a stalwart of Philadelphia’s rock airwaves after moving from California, broadcasting a live show for more than 40 years.`\
+https://nytimes.com/2025/10/30/arts/pierre-robert-dj-dead.html
+
 **A Speedy Curry Recipe to Memorize and Make Your Own**\
 `Ashley Lonsdale’s curry shrimp and sweet potato welcomes whichever protein and vegetables you’d like to swap in (but I’d keep the sweet potato).`\
 https://nytimes.com/2025/10/30/dining/a-speedy-curry-recipe-to-memorize-and-make-your-own.html
