@@ -1,3 +1,7 @@
+**Nico Gonzalez's Swansea display will give Man City hope he can step up and cover for Rodri**\
+`Manchester City overcame Swansea 3-1 on Wednesday night and Nico Gonzalez impressed in the No 6 position`\
+https://nytimes.com/athletic/6762462/2025/10/30/nico-gonzalez-manchester-city-rodri-swansea-analysis/
+
 **Flying**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2025/10/30/learning/flying.html
