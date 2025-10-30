@@ -2,7 +2,7 @@
 `The Wolves manager used to frequent local pubs, but that is no more. A cup defeat has now been added to a terrible start in the league.`\
 https://nytimes.com/athletic/6761818/2025/10/30/wolves-fosun-vitor-pereira/
 
-**Liverpool fans backed Arne Slot's selection gamble but patience is starting to run thin**\
+**Liverpool fans largely backed Arne Slot's selection gamble but it needs to pay off in the games ahead**\
 `Arne Slot's team lost 3-0 to Crystal Palace. The game against Aston Villa now feels huge`\
 https://nytimes.com/athletic/6761894/2025/10/30/liverpool-crystal-palace-analysis-arne-slot/
 

@@ -1,3 +1,7 @@
+**Liverpool fans largely backed Arne Slot's selection gamble but it needs to pay off in the games ahead**\
+`Arne Slot's team lost 3-0 to Crystal Palace. The game against Aston Villa now feels huge`\
+https://nytimes.com/athletic/6761894/2025/10/30/liverpool-crystal-palace-analysis-arne-slot/
+
 **'We are in dire straits' - Pub-goers of Wolverhampton on Vitor Pereira, Fosun and the future**\
 `The Wolves manager used to frequent local pubs, but that is no more. A cup defeat has now been added to a terrible start in the league.`\
 https://nytimes.com/athletic/6761818/2025/10/30/wolves-fosun-vitor-pereira/
