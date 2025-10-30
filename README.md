@@ -1,3 +1,7 @@
+**Federal Airport Workers Collect Food Aid**\
+`As growing numbers of federal aviation workers missed paychecks nearly a month into the government shutdown, some began collecting food assistance.`\
+https://nytimes.com/video/us/politics/100000010490265/federal-airport-workers-collect-food-aid.html
+
 **Cuomo Says Mamdani Could ‘Kill’ New York and Democratic Party if Elected**\
 `In an interview with the sports host Stephen A. Smith, former Gov. Andrew M. Cuomo offered a dark prophecy for a Mamdani mayoralty.`\
 https://nytimes.com/2025/10/29/nyregion/cuomo-mamdani-democrats-nyc-mayor.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/29/us/virginia-congress-redistricting-midterms.html
 **Large Fire at Texas Cotton Gin Prompts Evacuation Order**\
 `Residents of nearly a dozen streets in Gregory, Texas, north of Corpus Christi, were ordered to leave their homes as firefighters battled the blaze from the ground and the air.`\
 https://nytimes.com/2025/10/29/us/cotton-gin-fire-texas-gregory.html
-
-**Judge Cuts Greenpeace Pipeline Protest Award Nearly in Half**\
-`A North Dakota judge reduced the jury’s award to the pipeline company Energy Transfer to roughly $345 million, from $667 million.`\
-https://nytimes.com/2025/10/29/climate/greenpeace-dakota-access-pipeline-damages.html
 
