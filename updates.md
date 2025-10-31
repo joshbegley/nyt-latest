@@ -1,3 +1,7 @@
+**Overlooked No More: Hannah Senesh, Poet and Paratrooper Who Defied the Nazis**\
+`Senesh fled Hungary just before World War II. But unlike most Jews who escaped the Nazis, she went back to fight. Today, she is regarded as a hero in Israel.`\
+https://nytimes.com/2025/10/31/obituaries/hannah-senesh-overlooked.html
+
 **Mexico Winds Down Search for Survivor of U.S. Boat Strike**\
 `The Pentagon said one person survived a U.S. military strike on a boat in the Pacific, but after searching for days, Mexican officials are about to give up.`\
 https://nytimes.com/2025/10/31/us/politics/us-boat-strike-survivor.html
