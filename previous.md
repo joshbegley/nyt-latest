@@ -1,3 +1,19 @@
+**Inside the text messages of the agent who became a ‘mole’ for Rob Manfred and MLB**\
+`The MLB Players Association says that in 2020 negotiations, agent Jim Murray “acted as a ‘mole’” for Manfred and his top lieutenants. `\
+https://nytimes.com/athletic/6766440/2025/10/31/mlbpa-text-messages-jim-murray-banned-agent/
+
+**Federal investigators probing a youth baseball arm of MLB player union: report**\
+`Investigators had already been looking into other areas of the union's finances. `\
+https://nytimes.com/athletic/6766516/2025/10/31/mlbpa-federal-investigation-youth-baseball/
+
+**Dolphins, GM Chris Grier agree to part ways after Miami falls to 2-7**\
+`Grier had been the Dolphins GM since 2016 and oversaw three playoff appearances but no postseason victories.`\
+https://nytimes.com/athletic/6642754/2025/10/31/miami-dolphins-chris-grier-departure/
+
+**What's real and what's a trick? Sorting the NHL's early-season surprises**\
+`Today marks the end of October, meaning 177 NHL games have been played – or 13.5 percent of a full season — in a little less than a month.`\
+https://nytimes.com/athletic/6766560/2025/10/31/nhl-halloween-trends-red-light-newsletter/
+
 **How to watch Celtics vs. 76ers: Time, TV, streaming**\
 `Find out how to watch the Boston Celtics play the Philadelphia 76ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6766731/2025/10/31/celtics-vs-76ers-stream-how-to-watch-oct-31/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/31/us/politics/senate-filibuster-government-shutdown
 **Jaguars WR Travis Hunter headed to IR after non-contact injury**\
 `Hunter injured his knee in a non-contact situation during practice on Thursday.`\
 https://nytimes.com/athletic/6766653/2025/10/31/travis-hunter-jaguars-injury-ir/
-
-**Selma van de Perre, Dutch Jew Who Resisted Nazis, Dies at 103**\
-`“It is impossible not to marvel at her steadiness and courage,” one reviewer wrote after reading her memoir.`\
-https://nytimes.com/2025/10/31/world/europe/selma-van-de-perre-dead.html
-
-**Millions at Risk of Hunger as Food Stamp Freeze Looms**\
-`Forty-two million low-income Americans are expected to lose access to food assistance on Nov. 1, making it the most significant and dire casualty of a governmentwide closure that has stretched into its fifth week.`\
-https://nytimes.com/video/us/politics/100000010493304/snap-food-stamp-freeze.html
-
-**College football Week 10 projected scores: Model predicts every FBS vs. FBS game**\
-`Austin Mock's model projects the points differentials and point totals for every FBS vs. FBS Week 10 college football game.`\
-https://nytimes.com/athletic/6764201/2025/10/31/college-football-week-10-projected-scores-model/
-
-**Pork Chile Verde Revives and Restores**\
-`Kay Chun’s recipe is just the thing to anchor a weekend of monster mashes and graveyard smashes.`\
-https://nytimes.com/2025/10/31/dining/pork-chile-verde-revives-and-restores.html
 
