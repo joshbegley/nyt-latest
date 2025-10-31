@@ -1,3 +1,7 @@
+**The tension of the mayor’s race hangs over a ‘unity’ event with Brooklyn Democrats.**\
+`By Tim Balk`\
+https://nytimes.com/live/2025/10/30/nyregion/nyc-mayor-election-news/the-tension-of-the-mayors-race-hangs-over-a-unity-event-with-brooklyn-democrats
+
 **Flash Flooding Hits New York Neighborhoods**\
 `Flash floods inundated the subway and sent cars floating down city streets.`\
 https://nytimes.com/video/nyregion/newyorktoday/100000010492728/flash-flooding-hits-new-york-neighborhoods.html

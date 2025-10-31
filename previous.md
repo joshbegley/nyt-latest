@@ -1,3 +1,7 @@
+**The tension of the mayor’s race hangs over a ‘unity’ event with Brooklyn Democrats.**\
+`By Tim Balk`\
+https://nytimes.com/live/2025/10/30/nyregion/nyc-mayor-election-news/the-tension-of-the-mayors-race-hangs-over-a-unity-event-with-brooklyn-democrats
+
 **Flash Flooding Hits New York Neighborhoods**\
 `Flash floods inundated the subway and sent cars floating down city streets.`\
 https://nytimes.com/video/nyregion/newyorktoday/100000010492728/flash-flooding-hits-new-york-neighborhoods.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6764787/2025/10/30/49ers-trade-deadline-looking-for
 **NCAA basketball tournaments will use player availability reports**\
 `The NCAA says that player availability reports aim to protect player "well-being and competition integrity from sports betting influences."`\
 https://nytimes.com/athletic/6764840/2025/10/30/ncaa-player-availability-reports-betting-march-madness/
-
-**Luka Dončić could return for Lakers at NBA Cup Friday**\
-`Dončić has missed the Lakers' last three games after scoring 49 points in the team’s first win of the season last week against Minnesota.`\
-https://nytimes.com/athletic/6764789/2025/10/30/luka-doncic-lakers-return-injury-nba-cup/
 
