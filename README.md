@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6767553/2025/10/31/sf-giants-logan-webb-tony-vitell
 https://nytimes.com/2025/10/31/world/africa/darfur-sudan-atrocities.html
 
 **UEFA facing £17.5m claim for alleged theft of new Champions League format**\
-`The governing body has not yet been formally notified of the action but, once it is, will have 20 business days to respond.`\
+`Europe's premier club competition switched to a 36-team 'league phase' last season`\
 https://nytimes.com/athletic/6767369/2025/10/31/uefa-claim-theft-champions-league/
 
 **Zoë Wicomb, Acclaimed South African Author, Dies at 76**\

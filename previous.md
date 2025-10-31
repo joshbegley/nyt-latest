@@ -1,3 +1,7 @@
+**Giants ace Logan Webb on manager Tony Vitello: 'We're all super excited'**\
+`"He seems like he has a ton of energy," Webb said of the Giants' new manager. "He's very smart. He brings a ton of passion."`\
+https://nytimes.com/athletic/6767553/2025/10/31/sf-giants-logan-webb-tony-vitello-super-excited/
+
 **Twenty Years On, Darfur Tips Into Chaos Again**\
 `The world seems unable, or unwilling, to do much to stop a new struggle on an old battlefield, as atrocities sweep villages and towns.`\
 https://nytimes.com/2025/10/31/world/africa/darfur-sudan-atrocities.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/31/us/politics/usha-jd-vance-christianity-religion-h
 **J.J. McCarthy to start for Vikings at quarterback vs. Lions**\
 `For the first time since mid-September, young quarterback J.J. McCarthy will start Sunday for the Minnesota Vikings.`\
 https://nytimes.com/athletic/6767203/2025/10/31/jj-mccarthy-start-vikings-lions/
-
-**Wild need to dig deep and keep this miserable homestand from spiraling**\
-`After three wins in 12 games, it's time for GM Bill Guerin to seriously look at who actually wants to be here. `\
-https://nytimes.com/athletic/6767234/2025/10/31/minnesota-wild-losing-homestand/
 
