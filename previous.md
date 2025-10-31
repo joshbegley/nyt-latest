@@ -1,3 +1,7 @@
+**How to watch Dodgers at Blue Jays: World Series Game 6 Time, TV, streaming**\
+`Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6765057/2025/10/30/dodgers-vs-blue-jays-stream-how-to-watch-oct-31/
+
 **Are 49ers still looking for an edge? Five deals that make sense as deadline nears**\
 `Yes, the 49ers acquired a pair of defensive linemen earlier this week. But neither is exactly the edge pass rusher the 49ers currently lack.`\
 https://nytimes.com/athletic/6764787/2025/10/30/49ers-trade-deadline-looking-for-edge-five-deals/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/30/us/politics/frank-bisignano-fiserv-stock-price.ht
 **Puck Acquires Air Mail, a Newsletter Merger for the Well-Heeled Inbox**\
 `Graydon Carter, the legendary Vanity Fair editor who founded Air Mail, is leaving the company.`\
 https://nytimes.com/2025/10/30/business/media/puck-buys-airmail.html
-
-**Sean Combs Transferred to Federal Prison in New Jersey**\
-`The music mogul was sentenced earlier this month to 50 months in prison for two counts of transportation to engage in prostitution.`\
-https://nytimes.com/2025/10/30/arts/music/sean-combs-diddy-prison.html
 

@@ -1,3 +1,7 @@
+**How to watch Dodgers at Blue Jays: World Series Game 6 Time, TV, streaming**\
+`Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6765057/2025/10/30/dodgers-vs-blue-jays-stream-how-to-watch-oct-31/
+
 **Are 49ers still looking for an edge? Five deals that make sense as deadline nears**\
 `Yes, the 49ers acquired a pair of defensive linemen earlier this week. But neither is exactly the edge pass rusher the 49ers currently lack.`\
 https://nytimes.com/athletic/6764787/2025/10/30/49ers-trade-deadline-looking-for-edge-five-deals/
