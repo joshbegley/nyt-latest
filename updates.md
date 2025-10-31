@@ -1,3 +1,7 @@
+**Turkish FA suspends 149 match officials over referee betting scandal**\
+`Suspensions between eight and 12 months have been imposed.`\
+https://nytimes.com/athletic/6766924/2025/10/31/turkey-refereeing-betting-suspensions/
+
 **A.I. Is Making Death Threats Way More Realistic**\
 `Online harassers are generating images and sounds that simulate their victims in violent situations.`\
 https://nytimes.com/2025/10/31/business/media/artificial-intelligence-death-threats.html

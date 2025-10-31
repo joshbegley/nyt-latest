@@ -1,3 +1,7 @@
+**Turkish FA suspends 149 match officials over referee betting scandal**\
+`Suspensions between eight and 12 months have been imposed.`\
+https://nytimes.com/athletic/6766924/2025/10/31/turkey-refereeing-betting-suspensions/
+
 **A.I. Is Making Death Threats Way More Realistic**\
 `Online harassers are generating images and sounds that simulate their victims in violent situations.`\
 https://nytimes.com/2025/10/31/business/media/artificial-intelligence-death-threats.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6766573/2025/10/31/lebron-james-announces-happy-spo
 **Meet the 2 Mayoral Candidates You Haven’t Heard of**\
 `Irene Estrada and Joseph Hernandez do not even show up in most polls, but they are committed to seeing the race through.`\
 https://nytimes.com/2025/10/31/nyregion/nyc-mayor-adams-walden-estrada-hernandez.html
-
-**Why a lack of Premier League games on December 26 has caused concern in the UK**\
-`There will only be one Premier League game on Boxing Day, which will cause concern around a festive tradition in the UK`\
-https://nytimes.com/athletic/6757212/2025/10/31/premier-league-boxing-day-fixtures-why/
 
