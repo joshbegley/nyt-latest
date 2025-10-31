@@ -1,3 +1,7 @@
+**To infinity and beyond F1. Aston Martin joins forces with Toy Story**\
+`After the success of Drive to Survive and Brad Pitt's F1 film, motorsport teams are looking for new ways to engage a changing fan base`\
+https://nytimes.com/athletic/6762838/2025/10/31/aston-martin-toy-story-f1/
+
 **Girma to be included in Chelsea squad for first time this season**\
 `Girma has missed the opening two months of the WSL season through injury.`\
 https://nytimes.com/athletic/6766823/2025/10/31/naomi-girma-chelsea-injury-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6766812/2025/10/31/sam-leavitt-arizona-state-injury
 **NCAA hosting FCS Showcase for draft-eligible prospects before title game**\
 `Each NFL team has been asked to nominate a list of 10-15 prospects it would like to evaluate at the showcase.`\
 https://nytimes.com/athletic/6766721/2025/10/31/ncaa-fcs-nfl-draft-prospects-showcase/
-
-**As Shutdown Slows Air Traffic Training, These Schools Are Stepping In**\
-`New programs cannot turn out the numbers needed to make up for the controller shortfall. But they hope to have a higher success rate than the Federal Aviation Agency’s official academy.`\
-https://nytimes.com/2025/10/31/us/politics/air-traffic-control-training-shutdown.html
 

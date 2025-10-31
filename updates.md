@@ -1,3 +1,7 @@
+**To infinity and beyond F1. Aston Martin joins forces with Toy Story**\
+`After the success of Drive to Survive and Brad Pitt's F1 film, motorsport teams are looking for new ways to engage a changing fan base`\
+https://nytimes.com/athletic/6762838/2025/10/31/aston-martin-toy-story-f1/
+
 **Girma to be included in Chelsea squad for first time this season**\
 `Girma has missed the opening two months of the WSL season through injury.`\
 https://nytimes.com/athletic/6766823/2025/10/31/naomi-girma-chelsea-injury-return/
