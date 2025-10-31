@@ -1,3 +1,7 @@
+**Jamaica Prepared a Financial Fortress for Disaster. Hurricane Melissa Will Test It.**\
+`All of Jamaica’s financial defenses — insurance, bonds and credit lines — could be deployed to recover from Hurricane Melissa. Will it be enough?`\
+https://nytimes.com/2025/10/30/world/americas/jamaica-hurricane-melissa-disaster-preparedness-finances.html
+
 **Myles Turner opens up on Tyrese Haliburton, Pacers-Bucks and 'fake beefs'**\
 `Turner called Haliburton a troll and a heel, roles he said the Pacer point guard embraces, but also ones shaped by public perception.`\
 https://nytimes.com/athletic/6764921/2025/10/30/myles-turner-tyrese-haliburton-fake-beefs/

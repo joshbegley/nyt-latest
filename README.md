@@ -1,3 +1,7 @@
+**Steve Kerr calls Gregg Popovich a 'pioneer' of load management in NBA**\
+`The Warriors' coach understands the views of his former teammate, Michael Jordan, but also said "I believe in the science."`\
+https://nytimes.com/athletic/6764842/2025/10/30/steve-kerr-gregg-popovich-michael-jordan-load-management/
+
 **Jamaica Prepared a Financial Fortress for Disaster. Hurricane Melissa Will Test It.**\
 `All of Jamaica’s financial defenses — insurance, bonds and credit lines — could be deployed to recover from Hurricane Melissa. Will it be enough?`\
 https://nytimes.com/2025/10/30/world/americas/jamaica-hurricane-melissa-disaster-preparedness-finances.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/30/us/politics/trump-halloween-candy-white-house.htm
 **WNBA and players union agree to extension for CBA negotiations**\
 `The new deadline to reach a deal is Nov. 30.`\
 https://nytimes.com/athletic/6765085/2025/10/30/wnba-players-union-extension-cba/
-
-**How to watch Dodgers at Blue Jays: World Series Game 6 Time, TV, streaming**\
-`Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6765057/2025/10/30/dodgers-vs-blue-jays-stream-how-to-watch-oct-31/
 

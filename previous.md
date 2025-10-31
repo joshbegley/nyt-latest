@@ -1,3 +1,7 @@
+**Jamaica Prepared a Financial Fortress for Disaster. Hurricane Melissa Will Test It.**\
+`All of Jamaica’s financial defenses — insurance, bonds and credit lines — could be deployed to recover from Hurricane Melissa. Will it be enough?`\
+https://nytimes.com/2025/10/30/world/americas/jamaica-hurricane-melissa-disaster-preparedness-finances.html
+
 **Myles Turner opens up on Tyrese Haliburton, Pacers-Bucks and 'fake beefs'**\
 `Turner called Haliburton a troll and a heel, roles he said the Pacer point guard embraces, but also ones shaped by public perception.`\
 https://nytimes.com/athletic/6764921/2025/10/30/myles-turner-tyrese-haliburton-fake-beefs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6765085/2025/10/30/wnba-players-union-extension-cba
 **How to watch Dodgers at Blue Jays: World Series Game 6 Time, TV, streaming**\
 `Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6765057/2025/10/30/dodgers-vs-blue-jays-stream-how-to-watch-oct-31/
-
-**Are 49ers still looking for an edge? Five deals that make sense as deadline nears**\
-`Yes, the 49ers acquired a pair of defensive linemen earlier this week. But neither is exactly the edge pass rusher the 49ers currently lack.`\
-https://nytimes.com/athletic/6764787/2025/10/30/49ers-trade-deadline-looking-for-edge-five-deals/
 
