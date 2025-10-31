@@ -1,3 +1,11 @@
+**Kentucky Woman Receives Package of Human Body Parts by Mistake, Coroner Says**\
+`She was expecting time-sensitive medication, but opened the box to find two arms and four fingers meant to be used in surgical training, the coroner said.`\
+https://nytimes.com/2025/10/31/us/kentucky-severed-arms-fingers.html
+
+**27 U.S. cities and areas apply to host games at 2031 Men’s Rugby World Cup**\
+`The World Rugby CEO also said consideration is being given to taking one-off fixtures to the U.S.`\
+https://nytimes.com/athletic/6767573/2025/10/31/mens-rugby-world-cup2031-united-states-hosts/
+
 **Sources: St. Louis City hiring Corey Wray as sporting director**\
 `Wray replaces Lutz Pfannenstiel, who was fired in August.`\
 https://nytimes.com/athletic/6763383/2025/10/31/st-louis-city-sporting-director-mls-corey-wray/
