@@ -1,3 +1,7 @@
+**Flash Flooding Hits New York Neighborhoods**\
+`Flash floods inundated the subway and sent cars floating down city streets.`\
+https://nytimes.com/video/nyregion/newyorktoday/100000010492728/flash-flooding-hits-new-york-neighborhoods.html
+
 **Man Trapped in Brooklyn Basement Dies as Flash Floods Hit New York Area**\
 `Much of the rainfall came in an intense 20-minute period in the afternoon, officials said. A record two inches fell at LaGuardia Airport.`\
 https://nytimes.com/2025/10/30/nyregion/nyc-floods-brooklyn-basement-death.html
