@@ -1,3 +1,7 @@
+**Athletes' Halloween costumes: Tricks, treats and team spirit**\
+`Athletes' creative costumes remind everyone that they aren’t just competitors — they’re storytellers.`\
+https://nytimes.com/athletic/6767113/2025/10/31/athletes-halloween-costumes-tricks-treats-and-team-spirit-across-the-sports-world/
+
 **Tricks, treats, and team spirit: Halloween across the sports world**\
 `Athletes' creative costumes remind everyone that they aren’t just competitors — they’re storytellers.`\
 https://nytimes.com/athletic/6767113/2025/10/31/athletes-halloween-costumes-tricks-treats-and-team-spirit-across-the-sports-world/
