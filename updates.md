@@ -1,3 +1,7 @@
+**Serie A and Scottish Premiership provide some welcome surprises**\
+`It's not just the Premier League where results this season are spicing things up and adding some variety to the early stages of the title ra`\
+https://nytimes.com/athletic/6765312/2025/10/31/old-firm-derby-serie-a-race/
+
 **Nvidia, Samsung, Hyundai Leaders Share Fried Chicken and Beer**\
 `The leaders of Nvidia, Samsung and Hyundai hung out over Korean fried chicken and beer on Thursday in Seoul. Their casual outing signaled the deepening ties between Nvidia, the American chip maker, and South Korea’s auto and tech conglomerates.`\
 https://nytimes.com/video/world/asia/100000010493238/nvidia-samsung-hyundai-chicken.html
