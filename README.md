@@ -1,3 +1,11 @@
+**U.N. Human Rights Chief Says U.S. Attacks on Accused Drug Smugglers Are Illegal**\
+`The Trump administration’s military strikes on boats near South and Central America violate international law and must be investigated, a top official says.`\
+https://nytimes.com/2025/10/31/world/americas/un-us-military-boat-strikes.html
+
+**Kim Kardashian, We Have Indeed Been to the Moon, NASA Says**\
+`NASA’s chief, Sean Duffy, set the record straight after Kim Kardashian repeated the conspiracy theory that the 1969 moon landing had been faked.`\
+https://nytimes.com/2025/10/31/us/politics/kim-kardashian-moon-landing-nasa-sean-duffy.html
+
 **Week 9 fantasy football intel, predictions using player prop lines**\
 `Brad Evans scours the sportsbooks to find fantasy intel that can help you in your Week 9 lineups. `\
 https://nytimes.com/athletic/6763270/2025/10/31/week-9-fantasy-football-predictions-player-props/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/31/climate/national-parks-orphan-wells.html
 **Pistons are prepped to bring some 'Deeeetroit Basketball' to fans in Mexico City**\
 `The Pistons are the home team in Mexico City which means they're going to be putting on a show for their international fans. `\
 https://nytimes.com/athletic/6766304/2025/10/31/detroit-pistons-mexico-city-nba-fans-international/
-
-**The Bounce: Wembanyama's Spurs make surprising history. Plus, the NBA Cup returns!**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6766222/2025/10/31/wembanyama-spurs-nba-cup-the-bounce/
-
-**The Giants have their manager. Now comes the hard part — giving him a winning roster**\
-`In a best-case scenario, this is the last time Giants fans will need to think about Tony Vitello and the next time will be in the playoffs.`\
-https://nytimes.com/athletic/6764757/2025/10/31/sf-giants-new-manager-offseason-goals/
 

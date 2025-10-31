@@ -1,3 +1,7 @@
+**Week 9 fantasy football intel, predictions using player prop lines**\
+`Brad Evans scours the sportsbooks to find fantasy intel that can help you in your Week 9 lineups. `\
+https://nytimes.com/athletic/6763270/2025/10/31/week-9-fantasy-football-predictions-player-props/
+
 **Can 'luxe' fantasy football tight ends become elite again? It's likely too late.**\
 `Plus, Lamar Jackson's impressive return, J.J. McCarthy retakes the reins and all the other fantasy football news you need to know.`\
 https://nytimes.com/athletic/6766320/2025/10/31/fantasy-football-news-week-9-tight-ends/
