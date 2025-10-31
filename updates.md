@@ -1,3 +1,7 @@
+**TAFC: Real Madrid's $5.2bn legal threat to UEFA. Plus: If Haaland doesn't score for City, who does?**\
+`Today in TAFC: Will Real Madrid really sue UEFA for blocking the European Super League? Plus: Who scores for City if not Haaland?`\
+https://nytimes.com/athletic/6765824/2025/10/31/real-madrid-uefa-super-league-5-2billion/
+
 **Steelers film review: Why Pittsburgh's high-priced defense is struggling**\
 `The league's most expensive defense needs to clean up its communication, technique and execution if it's going to improve.`\
 https://nytimes.com/athletic/6760441/2025/10/31/steelers-film-review-defense-struggles/
