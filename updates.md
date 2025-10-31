@@ -1,3 +1,7 @@
+**2025 Holiday Gift Guide**\
+`From frugal to fancy, we've curated the best gifts to help you check everyone off your list.`\
+https://nytimes.com/interactive/2025/us/holiday-gift-guide.html
+
 **Flashback: Your Weekly History Quiz, Nov. 1, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/10/31/upshot/flashback.html
