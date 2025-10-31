@@ -1,3 +1,11 @@
+**'It said play a back five, so I did' - NWSL coach says she used ChatGPT for tactics**\
+`The 45-year-old former Arsenal coach said she casually quizzed the AI chatbot on ideas it had for individual teams.`\
+https://nytimes.com/athletic/6765823/2025/10/31/nwsl-laura-harvey-chatgpt-ai/
+
+**Alonso says Vinicius Jr matter 'closed' after Clasico outburst**\
+`The Real Madrid forward issued an apology to his “team-mates, the club, and the president” but did not reference Alonso. `\
+https://nytimes.com/athletic/6759975/2025/10/31/xabi-alonso-vinicius-jr-real-madrid/
+
 **Dunk will receive 'all the support he needs' to recover form - Hurzeler**\
 `The long-serving club captain is set to return for Brighton's home game against Leeds United on Saturday.`\
 https://nytimes.com/athletic/6765856/2025/10/31/lewis-dunk-brighton-captain/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/10/31/briefing/quiz-hurricane-snap-world-se
 **Don’t Be Scared of Halloween Candy**\
 `Here’s how to navigate sugar season.`\
 https://nytimes.com/2025/10/31/well/dont-be-scared-of-halloween-candy.html
-
-**Amit Segal on the Future of Governance in Gaza**\
-`Amit Segal, a prominent Israeli right-wing commentator, discusses how he thinks about the future of governance in Gaza.`\
-https://nytimes.com/video/opinion/100000010475358/amit-segal-on-the-future-of-governance-in-gaza.html
-
-**Big Tech’s A.I. Spending Is Accelerating (Again)**\
-`Despite the risk of a bubble, Google, Meta, Microsoft and Amazon plan to spend billions more on artificial intelligence than they already do.`\
-https://nytimes.com/2025/10/31/technology/ai-spending-accelerating.html
 

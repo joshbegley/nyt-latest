@@ -1,3 +1,11 @@
+**'It said play a back five, so I did' - NWSL coach says she used ChatGPT for tactics**\
+`The 45-year-old former Arsenal coach said she casually quizzed the AI chatbot on ideas it had for individual teams.`\
+https://nytimes.com/athletic/6765823/2025/10/31/nwsl-laura-harvey-chatgpt-ai/
+
+**Alonso says Vinicius Jr matter 'closed' after Clasico outburst**\
+`The Real Madrid forward issued an apology to his “team-mates, the club, and the president” but did not reference Alonso. `\
+https://nytimes.com/athletic/6759975/2025/10/31/xabi-alonso-vinicius-jr-real-madrid/
+
 **Dunk will receive 'all the support he needs' to recover form - Hurzeler**\
 `The long-serving club captain is set to return for Brighton's home game against Leeds United on Saturday.`\
 https://nytimes.com/athletic/6765856/2025/10/31/lewis-dunk-brighton-captain/
