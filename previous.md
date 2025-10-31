@@ -1,40 +1,40 @@
-**NBA trends I'm watching: Victor Wembanyama's dark matter, a gem in Washington and more**\
-`Here are some of the things that caught Fred Katz's eye this week in NBA action.`\
-https://nytimes.com/athletic/6764478/2025/10/31/victor-wembanyama-kyshawn-george-nba-trends/
+**How Saudi Arabia and Qatar Benefited From Rule Changes to Reach the World Cup**\
+`A soccer governing body that both countries have helped bankroll gave them extra rest and home-field advantage to set up World Cup qualification.`\
+https://nytimes.com/2025/10/31/world/asia/saudi-arabia-qatar-world-cup-rules.html
 
-**Mikal Bridges takes young Knicks under his wing: 'You can tell his momma raised him right'**\
-`Mikal Bridges' second season in New York couldn't start better, and he's helping others along the way.`\
-https://nytimes.com/athletic/6759966/2025/10/31/knicks-mikal-bridges-veteran-leadership/
+**Why Patrick Mahomes and Josh Allen are the No. 1 TV draw in the NFL**\
+`The Chiefs and Bills resume their epic rivalry in Week 9, a 4:25 ET game on CBS in front of a national audience.`\
+https://nytimes.com/athletic/6753938/2025/10/31/patrick-mahomes-josh-allen-nfl-tv/
 
-**Can Yoshinobu Yamamoto rise to the moment again? The Dodgers are on the brink**\
-`Yamamoto will start Game 6 against the Blue Jays as the Dodgers cling to hopes of back-to-back World Series championships.`\
-https://nytimes.com/athletic/6764114/2025/10/31/dodgers-mlb-yoshinobu-yamamoto-world-series-game-6/
+**Chiefs keep beating Bills in playoffs. But they haven't solved their Josh Allen conundrum**\
+`Here's what's made it so tough for the Chiefs to stop Allen — even with a 4-0 record against him in the playoffs.`\
+https://nytimes.com/athletic/6763771/2025/10/31/chiefs-defending-josh-allen-bills/
 
-**The New York Times International Edition in Print for Saturday, Nov. 1, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/10/31/todays-new-york-times-international-edition
+**As Toronto fans fidget, Sean McDonough re-lives calling the epic 1993 Joe Carter homer**\
+`Across a legendary TV career, play-by-play voice Sean McDonough vividly remembers the all-time memorable finish to the 1993 World Series.`\
+https://nytimes.com/athletic/6750206/2025/10/31/sean-mcdonough-toronto-blue-jays-joe-carter/
 
-**'It said play a back five, so I did' - NWSL coach says she used ChatGPT for tactics**\
-`The 45-year-old former Arsenal coach said she casually quizzed the AI chatbot on ideas it had for individual teams.`\
-https://nytimes.com/athletic/6765823/2025/10/31/nwsl-laura-harvey-chatgpt-ai/
+**Can J.J. McCarthy redeem the Vikings' decisions? If not, the fallout could get messy**\
+`The Vikings have ripped through a slew of quarterbacking scenarios in recent months. Do they now wish they had a do-over?`\
+https://nytimes.com/athletic/6763797/2025/10/31/vikings-season-mccarthy-quarterback/
 
-**Alonso says Vinicius Jr matter 'closed' after Clasico outburst**\
-`The Real Madrid forward issued an apology to his “team-mates, the club, and the president” but did not reference Alonso. `\
-https://nytimes.com/athletic/6759975/2025/10/31/xabi-alonso-vinicius-jr-real-madrid/
+**Chicago Stars will finish bottom of the NWSL, yet the team has plenty to look forward to**\
+`Player testimony was pivotal in turning the Equity Amendment into Illinois law, which paves the way for more Stars stadium opportunities.`\
+https://nytimes.com/athletic/6623616/2025/10/31/chicago-stars-nwsl-future/
 
-**Dunk will receive 'all the support he needs' to recover form - Hurzeler**\
-`The long-serving club captain is set to return for Brighton's home game against Leeds United on Saturday.`\
-https://nytimes.com/athletic/6765856/2025/10/31/lewis-dunk-brighton-captain/
+**Draft, develop, extend: Aidan Hutchinson's deal reinforces the Lions' way**\
+`"We really wanted to get a deal done,” Hutchinson said of his four-year, $180 million extension signed this week.`\
+https://nytimes.com/athletic/6765075/2025/10/31/lions-aidan-hutchinson-extension-homegrown/
 
-**The 20 best free agents to sign in Football Manager 2026**\
-`If you're playing FM26 and working to a tight budget, turning to the free agent market may be your best option...`\
-https://nytimes.com/athletic/6756987/2025/10/31/football-manager-2026-best-free-agents-fm26/
+**Welcome to the 'next big thing' for super shoes: From Nike's Vaporfly to Puma's Fast-R shoe**\
+`At the New York Marathon, Puma can write the next chapter in the story of modern running advances`\
+https://nytimes.com/athletic/6562945/2025/10/31/marathon-running-super-sneaker-nike-puma/
 
-**Three Billionaires Walk Into a Fried Chicken Restaurant**\
-`Jensen Huang, the Nvidia chief executive, and the leaders of Samsung and Hyundai staged a regular-folks outing in Seoul before announcing a business deal.`\
-https://nytimes.com/2025/10/31/business/nvidia-samsung-hyundai-chicken-korea.html
+**Why Novak Djokovic is key to a thrilling ATP Tour Finals Race to Turin**\
+`Paris Masters results have left one spot at the ATP Tour Finals for several players — but Djokovic may offer another.`\
+https://nytimes.com/athletic/6763865/2025/10/31/atp-tour-race-to-turin-tour-finals-qualification/
 
-**Will the Falcons deal Kirk Cousins at the NFL trade deadline? And what about WR?**\
-`The Falcons aren't expected to trade Cousins before the trade deadline, but there are deals that could get done, especially at receiver.`\
-https://nytimes.com/athletic/6763796/2025/10/31/kirk-cousins-nfl-trade-deadline-falcons/
+**Ja'Marr Chase has the Chicago Bears defense on high alert**\
+`Chase's explosion isn't an NFL secret. At Halas Hall, many of the coaches and players have seen it first-hand.`\
+https://nytimes.com/athletic/6764753/2025/10/31/jamarr-chase-chicago-bears-defense-high-alert/
 
