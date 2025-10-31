@@ -1,3 +1,11 @@
+**Mike Tirico will join list of impressive single-day broadcasting feats**\
+`The list includes some impressive names, such as Vin Scully and Bill Raftery.`\
+https://nytimes.com/athletic/6766885/2025/10/31/mike-tirico-sports-broadcasters-double-duty/
+
+**A Halloween Sticker for Early Voters**\
+`The first 1,000 voters at early voting sites across New York City were to receive a “Halloween voter 2025” sticker depicting a pigeon in a witch’s hat.`\
+https://nytimes.com/2025/10/31/nyregion/nyc-mayor-early-voting-halloween-sticker.html
+
 **Staffing Issues Cause Another Day of Air Travel Delays**\
 `Insufficient numbers of air traffic controllers, a byproduct of the government shutdown, were affecting travel hubs across the country.`\
 https://nytimes.com/2025/10/31/us/airport-travel-delays.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6756909/2025/10/31/ravens-fined-nfl-lamar-jackson/
 **Brian Schottenheimer not concerned with Jerry Jones' comments impacting the locker room**\
 `Jones: “Anybody that says I don’t focus on the Cowboys is just living in the moment of frustration, and I get that. And I’m frustrated too.”`\
 https://nytimes.com/athletic/6766969/2025/10/31/jerry-jones-criticism-cowboys/
-
-**Europe’s New Cultural Capital Shapes the Next Generation of Classical Musicians**\
-`The Reina Sofía School Orchestra makes its Carnegie Hall debut, reflecting Madrid’s cultural rise and a new generation of classical musicians.`\
-https://nytimes.com/paidpost/the-reina-sofia-school-orchestra/europes-new-cultural-capital-shapes-the-next-generation-of-classical-musicians.html
-
-**Lyon exploring January loan move for Real Madrid's Endrick**\
-`A simple loan has been mooted, with Madrid paying part of Endrick's wages.`\
-https://nytimes.com/athletic/6760356/2025/10/31/endrick-lyon-transfer-january-real-madrid/
 
