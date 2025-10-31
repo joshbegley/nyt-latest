@@ -1,3 +1,7 @@
+**Week 9 fantasy football intel, predictions using player prop lines**\
+`Brad Evans scours the sportsbooks to find fantasy intel that can help you in your Week 9 lineups. `\
+https://nytimes.com/athletic/6763270/2025/10/31/week-9-fantasy-football-predictions-player-props/
+
 **Can 'luxe' fantasy football tight ends become elite again? It's likely too late.**\
 `Plus, Lamar Jackson's impressive return, J.J. McCarthy retakes the reins and all the other fantasy football news you need to know.`\
 https://nytimes.com/athletic/6766320/2025/10/31/fantasy-football-news-week-9-tight-ends/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6766222/2025/10/31/wembanyama-spurs-nba-cup-the-bou
 **The Giants have their manager. Now comes the hard part — giving him a winning roster**\
 `In a best-case scenario, this is the last time Giants fans will need to think about Tony Vitello and the next time will be in the playoffs.`\
 https://nytimes.com/athletic/6764757/2025/10/31/sf-giants-new-manager-offseason-goals/
-
-**2025 NFL Playoff Simulator: Each team’s path to the postseason as the Ravens get back in the mix**\
-`<p>Welcome to The Athletic’s 2025 NFL Playoff Simulator, where you’ll find everything you need to know about all the ways your favorite team&#8217;s season could end, from a No.`\
-https://nytimes.com/athletic/6513952/2025/10/31/2025-nfl-playoff-simulator-path-postseason/
 
