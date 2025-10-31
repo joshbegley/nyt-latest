@@ -1,3 +1,7 @@
+**Past, present and future collide in loss to Jonathan Toews' Jets: Observations**\
+`It's hard to avoid the pull of nostalgia watching a star of Chicago's most recent golden era on the ice. He won. The Blackhawks did not.`\
+https://nytimes.com/athletic/6765459/2025/10/30/blackhawks-jonathan-toews-past-present-future-jets/
+
 **Ravens-Dolphins takeaways: Lamar Jackson throws 4 TD passes in first start since Week 4**\
 `The star quarterback played his first game since being injured in Week 4, and Baltimore looks like it's starting to gain momentum.`\
 https://nytimes.com/athletic/6765372/2025/10/30/ravens-dolphins-score-result-takeaways-thursday-night-football/

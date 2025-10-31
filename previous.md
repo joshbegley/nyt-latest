@@ -1,3 +1,7 @@
+**Past, present and future collide in loss to Jonathan Toews' Jets: Observations**\
+`It's hard to avoid the pull of nostalgia watching a star of Chicago's most recent golden era on the ice. He won. The Blackhawks did not.`\
+https://nytimes.com/athletic/6765459/2025/10/30/blackhawks-jonathan-toews-past-present-future-jets/
+
 **Ravens-Dolphins takeaways: Lamar Jackson throws 4 TD passes in first start since Week 4**\
 `The star quarterback played his first game since being injured in Week 4, and Baltimore looks like it's starting to gain momentum.`\
 https://nytimes.com/athletic/6765372/2025/10/30/ravens-dolphins-score-result-takeaways-thursday-night-football/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/30/theater/little-bear-ridge-road-review-metcalf.htm
 **Predator in a Pod**\
 `Juliana Tringali Golden opens our solving weekend with some sizzling wordplay.`\
 https://nytimes.com/2025/10/30/crosswords/daily-puzzle-2025-10-31.html
-
-**Buster Posey on Giants manager Tony Vitello: 'He's gonna be OK with ruffling feathers'**\
-`"It's sports, it's entertainment," Posey said. "I mean, for me, there's an argument to be made that we're lacking that severely right now."`\
-https://nytimes.com/athletic/6765203/2025/10/30/sf-giants-manager-tony-vitello-buster-posey-ruffling-feathers/
 
