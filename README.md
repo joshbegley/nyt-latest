@@ -1,3 +1,7 @@
+**Flash Flooding Hits New York Neighborhoods**\
+`Flash floods inundated the subway and sent cars floating down city streets.`\
+https://nytimes.com/video/nyregion/newyorktoday/100000010492728/flash-flooding-hits-new-york-neighborhoods.html
+
 **Man Trapped in Brooklyn Basement Dies as Flash Floods Hit New York Area**\
 `Much of the rainfall came in an intense 20-minute period in the afternoon, officials said. A record two inches fell at LaGuardia Airport.`\
 https://nytimes.com/2025/10/30/nyregion/nyc-floods-brooklyn-basement-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6764840/2025/10/30/ncaa-player-availability-reports
 **Luka Dončić could return for Lakers at NBA Cup Friday**\
 `Dončić has missed the Lakers' last three games after scoring 49 points in the team’s first win of the season last week against Minnesota.`\
 https://nytimes.com/athletic/6764789/2025/10/30/luka-doncic-lakers-return-injury-nba-cup/
-
-**‘Trees in Hot Tubs’: Riding Out Hurricane Melissa at a Beach Resort**\
-`A Texas woman stranded in Jamaica with her family described what it was like to experience the catastrophic storm while sheltering at a Sandals resort.`\
-https://nytimes.com/2025/10/30/travel/hurricane-melissa-jamaica-resort.html
 
