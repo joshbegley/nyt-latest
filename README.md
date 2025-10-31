@@ -1,3 +1,7 @@
+**Serie A and Scottish Premiership provide some welcome surprises**\
+`It's not just the Premier League where results this season are spicing things up and adding some variety to the early stages of the title ra`\
+https://nytimes.com/athletic/6765312/2025/10/31/old-firm-derby-serie-a-race/
+
 **Nvidia, Samsung, Hyundai Leaders Share Fried Chicken and Beer**\
 `The leaders of Nvidia, Samsung and Hyundai hung out over Korean fried chicken and beer on Thursday in Seoul. Their casual outing signaled the deepening ties between Nvidia, the American chip maker, and South Korea’s auto and tech conglomerates.`\
 https://nytimes.com/video/world/asia/100000010493238/nvidia-samsung-hyundai-chicken.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/31/business/media/youtube-tv-disney-espn.html
 **How the Trump-Xi Meeting Eased a Major Trade War**\
 `President Trump and China’s leader Xi Jinping just had a highly anticipated meeting in South Korea. David Pierson, a New York Times foreign correspondent covering China, breaks down what they accomplished and how they de-escalated a major trade war.`\
 https://nytimes.com/video/world/asia/100000010489449/trump-xi-jinping-trade-war.html
-
-**Warriors get what they deserve in loss to Giannis-less Bucks**\
-`Citing mental and physical fatigue by his squad, Steve Kerr said 'It did not look like our team out there.'`\
-https://nytimes.com/athletic/6765672/2025/10/31/golden-state-warriors-lose-giannis-out/
 
