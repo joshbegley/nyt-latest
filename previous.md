@@ -1,3 +1,11 @@
+**Alison Knowles, Artist Who Took Lunch to New Levels, Dies at 92**\
+`An early participant in the eccentric collection of artists known as Fluxus, she was perhaps best known for pieces centered on a humble tuna sandwich and a giant salad.`\
+https://nytimes.com/2025/10/31/arts/alison-knowles-dead.html
+
+**The U.S. Was Ordered to Pay Food Stamp Benefits**\
+`Also, California Democrats are feeling unusually confident. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/10/31/briefing/the-us-was-ordered-to-pay-food-stamp-benefits.html
+
 **Vance Says He Hopes His Wife Embraces Christianity, Setting Off Backlash**\
 `Critics included some Indian Americans, who said the remarks did not respect the religious decisions of Usha Vance, who grew up in a Hindu household.`\
 https://nytimes.com/2025/10/31/us/politics/usha-jd-vance-christianity-religion-hindu.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6767172/2025/10/31/angel-city-sarah-gorden-nwsl-eli
 **New York Judge Dismisses Texas Challenge to the State’s Abortion Shield Law**\
 `The lawsuit was filed against an Ulster County clerk who rebuffed an attempt to enforce a Texas judgment against a New York doctor for sending abortion pills to that state.`\
 https://nytimes.com/2025/10/31/health/new-york-texas-abortion-shield-lawsuit.html
-
-**George Springer returns to Blue Jays' lineup for Game 6**\
-`Springer missed Games 4 and 5 after leaving Game 3 with a side injury.`\
-https://nytimes.com/athletic/6767440/2025/10/31/world-series-george-springer-blue-jays-lineup-game-6/
-
-**Dodgers shuffle lineup again, drop Mookie Betts to fourth before Game 6**\
-`Betts hasn't hit in the cleanup spot since playing for the Red Sox in 2017.`\
-https://nytimes.com/athletic/6767202/2025/10/31/dodgers-lineup-changes-world-series-mookie-betts/
 

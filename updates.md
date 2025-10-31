@@ -1,3 +1,11 @@
+**Alison Knowles, Artist Who Took Lunch to New Levels, Dies at 92**\
+`An early participant in the eccentric collection of artists known as Fluxus, she was perhaps best known for pieces centered on a humble tuna sandwich and a giant salad.`\
+https://nytimes.com/2025/10/31/arts/alison-knowles-dead.html
+
+**The U.S. Was Ordered to Pay Food Stamp Benefits**\
+`Also, California Democrats are feeling unusually confident. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/10/31/briefing/the-us-was-ordered-to-pay-food-stamp-benefits.html
+
 **Vance Says He Hopes His Wife Embraces Christianity, Setting Off Backlash**\
 `Critics included some Indian Americans, who said the remarks did not respect the religious decisions of Usha Vance, who grew up in a Hindu household.`\
 https://nytimes.com/2025/10/31/us/politics/usha-jd-vance-christianity-religion-hindu.html

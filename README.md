@@ -1,3 +1,7 @@
+**Mexico Winds Down Search for Survivor of U.S. Boat Strike**\
+`The Pentagon said one person survived a U.S. military strike on a boat in the Pacific, but after searching for days, Mexican officials are about to give up.`\
+https://nytimes.com/2025/10/31/us/politics/us-boat-strike-survivor.html
+
 **Alison Knowles, Artist Who Took Lunch to New Levels, Dies at 92**\
 `An early participant in the eccentric collection of artists known as Fluxus, she was perhaps best known for pieces centered on a humble tuna sandwich and a giant salad.`\
 https://nytimes.com/2025/10/31/arts/alison-knowles-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6767169/2025/10/31/bengals-joe-flacco-playing-injur
 **Angel City's Sarah Gorden rebuts teammate's call for NWSL gender eligibility policy**\
 `Gorden said an article written by Elizabeth Eddy had undertones that "come across as transphobic and racist as well."`\
 https://nytimes.com/athletic/6767172/2025/10/31/angel-city-sarah-gorden-nwsl-elizabeth-eddy/
-
-**New York Judge Dismisses Texas Challenge to the State’s Abortion Shield Law**\
-`The lawsuit was filed against an Ulster County clerk who rebuffed an attempt to enforce a Texas judgment against a New York doctor for sending abortion pills to that state.`\
-https://nytimes.com/2025/10/31/health/new-york-texas-abortion-shield-lawsuit.html
 
