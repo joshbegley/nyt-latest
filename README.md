@@ -1,3 +1,7 @@
+**At the Supreme Court, Liberal Justices Are Split**\
+`We go inside their strained relationship.`\
+https://nytimes.com/2025/10/31/briefing/at-the-supreme-court-liberal-justices-are-split.html
+
 **NYCFC's unbearable wait inches toward its end with a new stadium on the rise**\
 `As NYCFC braces to host another playoff game at a baseball stadium, its visions of a soccer-specific home are nearing fruition`\
 https://nytimes.com/athletic/6763288/2025/10/31/nycfc-new-stadium-etihad-park-queens-mls/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6762191/2025/10/31/nba-integration-earl-lloyd-chuck
 **Behind the scenes with the All Blacks – an iconic team trying to recover its mystique**\
 `The iconic New Zealand rugby team face Ireland in Chicago on Saturday as they seek to reestablish their dominance in the sport`\
 https://nytimes.com/athletic/6760535/2025/10/31/behind-the-scenes-with-the-all-blacks-rugby/
-
-**The Oilers are having trouble stomaching Evan Bouchard's mistakes – and so is he**\
-`A pair of Bouchard turnovers led to two goals in a 4-3 overtime loss to the New York Rangers on Thursday.`\
-https://nytimes.com/athletic/6765743/2025/10/31/oilers-evan-bouchard-mistakes/
 
