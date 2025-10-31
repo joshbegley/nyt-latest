@@ -1,3 +1,11 @@
+**Leverkusen and Hjulmand are reaping the benefits of Ten Hag's speedy post-Alonso exit**\
+`Leverkusen sacked Erik ten Hag after three games. His arrival and quick exit has helped deal with the post-Xabi Alonso hangover`\
+https://nytimes.com/athletic/6762515/2025/10/31/bayer-leverkusen-kasper-hjulmand-xabi-alonso/
+
+**The New York Times in Print for Friday, Oct. 31, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/31/todays-new-york-times
+
 **Trump Calls on Republicans to End Filibuster in Shutdown Fight**\
 `The president said it was time for G.O.P. leaders to get rid of the longstanding rule requiring most Senate legislation to have 60 votes to pass.`\
 https://nytimes.com/2025/10/31/us/politics/trump-filibuster-shutdown.html
