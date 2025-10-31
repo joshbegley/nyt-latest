@@ -1,3 +1,7 @@
+**What’s Next for Andrew After Losing His Royal Titles?**\
+`King Charles III’s brother will retreat further from public life after additional damaging revelations about his ties to the sexual predator Jeffrey Epstein.`\
+https://nytimes.com/2025/10/31/world/europe/prince-andrew-explainer.html
+
 **T's Nov. 16 Travel Issue**\
 ``\
 https://nytimes.com/issue/t-magazine/2025/10/31/ts-nov-16-travel-issue-2025
