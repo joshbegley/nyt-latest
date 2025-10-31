@@ -1,3 +1,11 @@
+**T's Nov. 16 Travel Issue**\
+``\
+https://nytimes.com/issue/t-magazine/2025/10/31/ts-nov-16-travel-issue-2025
+
+**Donald and Melania Trump Dress Up for Halloween, as Themselves**\
+`It’s a very effective costume.`\
+https://nytimes.com/2025/10/31/style/donald-trupmp-melania-trump-halloween.html
+
 **Amazon’s Big Spending Reignites an A.I. Stock Rally**\
 `Investors cheered the tech giant’s latest results showing that its huge investments in artificial intelligence are beginning to show returns.`\
 https://nytimes.com/2025/10/31/business/dealbook/amazon-ai-stock-rally.html

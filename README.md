@@ -1,3 +1,7 @@
+**What’s Next for Andrew After Losing His Royal Titles?**\
+`King Charles III’s brother will retreat further from public life after additional damaging revelations about his ties to the sexual predator Jeffrey Epstein.`\
+https://nytimes.com/2025/10/31/world/europe/prince-andrew-explainer.html
+
 **T's Nov. 16 Travel Issue**\
 ``\
 https://nytimes.com/issue/t-magazine/2025/10/31/ts-nov-16-travel-issue-2025
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/10/31/nyregion/nyc-mayor-election-news/heres-the-l
 **N.Y.C. Mayor’s Race Live Updates: City Enters Last Stretch of Early Voting**\
 `Zohran Mamdani, who holds a commanding polling lead, urged his supporters to avoid complacency. Nearly 400,000 New Yorkers have cast ballots with three days left in the early-voting period.`\
 https://nytimes.com/live/2025/10/31/nyregion/nyc-mayor-election-news
-
-**How Cincinnati unlocked its offense and QB Brendan Sorsby to become a Big 12 contender**\
-`The Bearcats have rattled off seven straight wins and are sitting tied atop the Big 12 standings with BYU at 5-0 in conference play.`\
-https://nytimes.com/athletic/6764131/2025/10/31/cincinnati-utah-brendan-sorsby-big-12/
 
