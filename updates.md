@@ -1,3 +1,11 @@
+**Falcons QB Michael Penix Jr. set to start vs. Patriots**\
+`Penix missed Atlanta's loss to Miami in Week 8.`\
+https://nytimes.com/athletic/6766407/2025/10/31/falcons-michael-penix-jr-quarterback-start/
+
+**Indiana University Lifts Ban on Printing News in College Newspaper**\
+`The university faced fierce criticism after it fired the director of student media and said that news coverage could be published only online.`\
+https://nytimes.com/2025/10/31/business/media/indiana-university-news-newspaper.html
+
 **Mike Tirico will join list of impressive single-day broadcasting feats**\
 `The list includes some impressive names, such as Vin Scully and Bill Raftery.`\
 https://nytimes.com/athletic/6766885/2025/10/31/mike-tirico-sports-broadcasters-double-duty/
