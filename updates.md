@@ -1,3 +1,7 @@
+**Prince Andrew Is Losing His Titles and His Home**\
+`King Charles III’s younger brother, who fell from grace over his association with Jeffrey Epstein, will no longer be able to call himself a prince. The king is also evicting him from Royal Lodge, where he lives.`\
+https://nytimes.com/video/world/europe/100000010493044/uk-prince-andrew-title.html
+
 **If Elected, How Might Mamdani Use Mayoral Power in Ways That Affect Israel?**\
 `Zohran Mamdani’s opposition to Israel’s treatment of Palestinians could influence New York City’s investments, his appointees and city policing tactics.`\
 https://nytimes.com/2025/10/31/nyregion/mamdani-boycott-israel.html
