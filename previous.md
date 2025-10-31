@@ -22,11 +22,11 @@ https://nytimes.com/live/2025/10/30/nyregion/nyc-mayor-election-news/the-tension
 `Flash floods inundated the subway and sent cars floating down city streets.`\
 https://nytimes.com/video/nyregion/newyorktoday/100000010492728/flash-flooding-hits-new-york-neighborhoods.html
 
-**Man Trapped in Brooklyn Basement Dies as Flash Floods Hit New York Area**\
+**2 Men Die in Basement Flooding as Sudden Downpour Hits New York Area**\
 `Much of the rainfall came in an intense 20-minute period in the afternoon, officials said. A record two inches fell at LaGuardia Airport.`\
 https://nytimes.com/2025/10/30/nyregion/nyc-floods-brooklyn-basement-death.html
 
-**LSU to part ways with AD Scott Woodward after criticism by La. governor: Source**\
+**LSU parts ways with AD Scott Woodward after criticism by Louisiana governor**\
 `The move comes just days after the program fired head football coach Brian Kelly.`\
 https://nytimes.com/athletic/6765094/2025/10/30/lsu-ad-fired-scott-woodward-brian-kelly-governor/
 

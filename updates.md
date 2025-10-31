@@ -1,3 +1,11 @@
+**2 Men Die in Basement Flooding as Sudden Downpour Hits New York Area**\
+`Much of the rainfall came in an intense 20-minute period in the afternoon, officials said. A record two inches fell at LaGuardia Airport.`\
+https://nytimes.com/2025/10/30/nyregion/nyc-floods-brooklyn-basement-death.html
+
+**LSU parts ways with AD Scott Woodward after criticism by Louisiana governor**\
+`The move comes just days after the program fired head football coach Brian Kelly.`\
+https://nytimes.com/athletic/6765094/2025/10/30/lsu-ad-fired-scott-woodward-brian-kelly-governor/
+
 **Buster Posey on Giants manager Tony Vitello: 'He's gonna be OK with ruffling feathers'**\
 `"It's sports, it's entertainment," Posey said. "I mean, for me, there's an argument to be made that we're lacking that severely right now."`\
 https://nytimes.com/athletic/6765203/2025/10/30/sf-giants-manager-tony-vitello-buster-posey-ruffling-feathers/
