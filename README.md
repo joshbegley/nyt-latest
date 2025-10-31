@@ -1,3 +1,11 @@
+**Millions at Risk of Hunger as Food Stamp Freeze Looms**\
+`Forty-two million low-income Americans are expected to lose access to food assistance on Nov. 1, making it the most significant and dire casualty of a governmentwide closure that has stretched into its fifth week.`\
+https://nytimes.com/video/us/politics/100000010493304/snap-food-stamp-freeze.html
+
+**College football Week 10 projected scores: Model predicts every FBS vs. FBS game**\
+`Austin Mock's model projects the points differentials and point totals for every FBS vs. FBS Week 10 college football game.`\
+https://nytimes.com/athletic/6764201/2025/10/31/college-football-week-10-projected-scores-model/
+
 **Pork Chile Verde Revives and Restores**\
 `Kay Chun’s recipe is just the thing to anchor a weekend of monster mashes and graveyard smashes.`\
 https://nytimes.com/2025/10/31/dining/pork-chile-verde-revives-and-restores.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/31/nyregion/new-york-city-halloween-photos.html
 **Palace manager Glasner 'disappointed' by USMNT's handling of Richards**\
 `“My only complaint is the U.S. team didn’t talk to us because Chris was struggling with his calf for many weeks,” Glasner said on Friday.`\
 https://nytimes.com/athletic/6766519/2025/10/31/chris-richards-injury-usmnt-palace/
-
-**Why the NBA's investigation of Terry Rozier raises questions about future gambling probes**\
-`Suspicious prop bets on Terry Rozier were flagged in 2023. But after an NBA investigation, the guard played until his arrest last week.`\
-https://nytimes.com/athletic/6765257/2025/10/31/nba-gambling-investigation-betting-future-rozier/
-
-**LSU leaders: Interim AD Verge Ausberry has 'full authority' in coaching search**\
-`The Friday news conference capped a frenetic week in Baton Rouge that included the departures of Brian Kelly and the AD who hired him.`\
-https://nytimes.com/athletic/6766511/2025/10/31/lsu-coaching-search-verge-ausberry-governor/
 
