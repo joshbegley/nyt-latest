@@ -1,3 +1,19 @@
+**NBA trends I'm watching: Victor Wembanyama's dark matter, a gem in Washington and more**\
+`Here are some of the things that caught Fred Katz's eye this week in NBA action.`\
+https://nytimes.com/athletic/6764478/2025/10/31/victor-wembanyama-kyshawn-george-nba-trends/
+
+**Mikal Bridges takes young Knicks under his wing: 'You can tell his momma raised him right'**\
+`Mikal Bridges' second season in New York couldn't start better, and he's helping others along the way.`\
+https://nytimes.com/athletic/6759966/2025/10/31/knicks-mikal-bridges-veteran-leadership/
+
+**Can Yoshinobu Yamamoto rise to the moment again? The Dodgers are on the brink**\
+`Yamamoto will start Game 6 against the Blue Jays as the Dodgers cling to hopes of back-to-back World Series championships.`\
+https://nytimes.com/athletic/6764114/2025/10/31/dodgers-mlb-yoshinobu-yamamoto-world-series-game-6/
+
+**The New York Times International Edition in Print for Saturday, Nov. 1, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/10/31/todays-new-york-times-international-edition
+
 **'It said play a back five, so I did' - NWSL coach says she used ChatGPT for tactics**\
 `The 45-year-old former Arsenal coach said she casually quizzed the AI chatbot on ideas it had for individual teams.`\
 https://nytimes.com/athletic/6765823/2025/10/31/nwsl-laura-harvey-chatgpt-ai/
