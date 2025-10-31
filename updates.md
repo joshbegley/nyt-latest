@@ -1,3 +1,7 @@
+**An Old Debate Meets a New Solution for N.C.’s Confederate Statues**\
+`Three Confederate statues that were removed from communities around the state are back on view for the public — this time on private land.`\
+https://nytimes.com/2025/10/31/us/north-carolina-confederate-statues.html
+
 **Bill de Blasio and his doppelgänger clear up the mix-up over who likes Mamdani.**\
 `By Emma G. Fitzsimmons`\
 https://nytimes.com/live/2025/10/31/nyregion/nyc-mayor-election-news/bill-de-blasio-and-his-doppelganger-clear-up-the-mix-up-over-who-likes-mamdani
