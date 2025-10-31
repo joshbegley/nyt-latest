@@ -1,3 +1,11 @@
+**JPMorgan Alerted U.S. to Epstein Transfers Involving Wall St. Figures**\
+`After Jeffrey Epstein’s 2019 death, the bank reported more than $1 billion in potentially suspicious transactions.`\
+https://nytimes.com/2025/10/30/business/jpmorgan-jeffrey-epstein.html
+
+**Dodgers manager Dave Roberts wipes out on basepaths while trying to show off October speed**\
+`Thankfully, Roberts appeared fine, or at least as fine as you could be after tasting the infield.`\
+https://nytimes.com/athletic/6765323/2025/10/30/dodgers-world-series-dave-roberts-fall/
+
 **Air Controller Shortage Causes Delays in Orlando and at Other Major Airports**\
 `The F.A.A. warned that a lack of certified air traffic controllers in Orlando could cause delays throughout the East Coast.`\
 https://nytimes.com/2025/10/30/us/politics/orlando-air-traffic-control-airports-shutdown.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/30/world/americas/jamaica-hurricane-melissa-disaster
 **Myles Turner opens up on Tyrese Haliburton, Pacers-Bucks and 'fake beefs'**\
 `Turner called Haliburton a troll and a heel, roles he said the Pacer point guard embraces, but also ones shaped by public perception.`\
 https://nytimes.com/athletic/6764921/2025/10/30/myles-turner-tyrese-haliburton-fake-beefs/
-
-**The tension of the mayor’s race hangs over a ‘unity’ event with Brooklyn Democrats.**\
-`By Tim Balk`\
-https://nytimes.com/live/2025/10/30/nyregion/nyc-mayor-election-news/the-tension-of-the-mayors-race-hangs-over-a-unity-event-with-brooklyn-democrats
-
-**Flash Flooding Hits New York Neighborhoods**\
-`Flash floods inundated the subway and sent cars floating down city streets.`\
-https://nytimes.com/video/nyregion/newyorktoday/100000010492728/flash-flooding-hits-new-york-neighborhoods.html
 

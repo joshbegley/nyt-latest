@@ -1,3 +1,11 @@
+**JPMorgan Alerted U.S. to Epstein Transfers Involving Wall St. Figures**\
+`After Jeffrey Epstein’s 2019 death, the bank reported more than $1 billion in potentially suspicious transactions.`\
+https://nytimes.com/2025/10/30/business/jpmorgan-jeffrey-epstein.html
+
+**Dodgers manager Dave Roberts wipes out on basepaths while trying to show off October speed**\
+`Thankfully, Roberts appeared fine, or at least as fine as you could be after tasting the infield.`\
+https://nytimes.com/athletic/6765323/2025/10/30/dodgers-world-series-dave-roberts-fall/
+
 **Air Controller Shortage Causes Delays in Orlando and at Other Major Airports**\
 `The F.A.A. warned that a lack of certified air traffic controllers in Orlando could cause delays throughout the East Coast.`\
 https://nytimes.com/2025/10/30/us/politics/orlando-air-traffic-control-airports-shutdown.html

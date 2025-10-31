@@ -1,3 +1,11 @@
+**Bucks beat Warriors despite Giannis Antetokounmpo's absence**\
+`Antetokounmpo was scratched 60 minutes before tipoff because of left knee soreness.`\
+https://nytimes.com/athletic/6765388/2025/10/30/bucks-warriors-giannis-antetokounmpo-ryan-rollins/
+
+**Victor Wembanyama stuffs stat sheet to ignite Spurs to first-ever 5-0 start**\
+`Wembanyama ended with 27 points, 18 rebounds, six assists and five blocks to lead San Antonio to its best start ever. `\
+https://nytimes.com/athletic/6765400/2025/10/30/victor-wembanyama-spurs-heat-highlights/
+
 **JPMorgan Alerted U.S. to Epstein Transfers Involving Wall St. Figures**\
 `After Jeffrey Epstein’s 2019 death, the bank reported more than $1 billion in potentially suspicious transactions.`\
 https://nytimes.com/2025/10/30/business/jpmorgan-jeffrey-epstein.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6765203/2025/10/30/sf-giants-manager-tony-vitello-b
 **Steve Kerr calls Gregg Popovich a 'pioneer' of load management in NBA**\
 `The Warriors' coach understands the views of his former teammate, Michael Jordan, but also said "I believe in the science."`\
 https://nytimes.com/athletic/6764842/2025/10/30/steve-kerr-gregg-popovich-michael-jordan-load-management/
-
-**Jamaica Prepared a Financial Fortress for Disaster. Hurricane Melissa Will Test It.**\
-`All of Jamaica’s financial defenses — insurance, bonds and credit lines — could be deployed to recover from Hurricane Melissa. Will it be enough?`\
-https://nytimes.com/2025/10/30/world/americas/jamaica-hurricane-melissa-disaster-preparedness-finances.html
-
-**Myles Turner opens up on Tyrese Haliburton, Pacers-Bucks and 'fake beefs'**\
-`Turner called Haliburton a troll and a heel, roles he said the Pacer point guard embraces, but also ones shaped by public perception.`\
-https://nytimes.com/athletic/6764921/2025/10/30/myles-turner-tyrese-haliburton-fake-beefs/
 
