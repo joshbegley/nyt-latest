@@ -1,3 +1,15 @@
+**Top Senators Say Pentagon Has Not Shared Legal Justification for Boat Strikes**\
+`The Republican chairman and senior Democrat on the Armed Services Committee said on Friday that the Pentagon had not handed over information about the attacks despite repeated requests.`\
+https://nytimes.com/2025/10/31/us/politics/senators-boat-strikes-drugs-trump.html
+
+**JetBlue Flight Makes Emergency Landing in Tampa After Losing Altitude**\
+`The Federal Aviation Administration said the plane “experienced a flight control issue” on Thursday. More than 15 people were taken to hospitals after it was diverted to Florida, officials said.`\
+https://nytimes.com/2025/10/31/travel/jetblue-flight-cancun.html
+
+**Here’s Who Will Be Affected by Disruptions to Federal Food Aid**\
+`More SNAP recipients live in Democratic districts. But the program touches every corner of the country.`\
+https://nytimes.com/2025/10/31/upshot/snap-food-shutdown-trump.html
+
 **The 11.2.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/10/31/the-11225-issue
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/31/books/zoe-wicomb-dead.html
 **Overlooked No More: Hannah Senesh, Poet and Paratrooper Who Defied the Nazis**\
 `Senesh fled Hungary just before World War II. But unlike most Jews who escaped the Nazis, she went back to fight. Today, she is regarded as a hero in Israel.`\
 https://nytimes.com/2025/10/31/obituaries/hannah-senesh-overlooked.html
-
-**Mexico Winds Down Search for Survivor of U.S. Boat Strike**\
-`The Pentagon said one person survived a U.S. military strike on a boat in the Pacific, but after searching for days, Mexican officials are about to give up.`\
-https://nytimes.com/2025/10/31/us/politics/us-boat-strike-survivor.html
-
-**Alison Knowles, Artist Who Took Lunch to New Levels, Dies at 92**\
-`An early participant in the eccentric collection of artists known as Fluxus, she was perhaps best known for pieces centered on a humble tuna sandwich and a giant salad.`\
-https://nytimes.com/2025/10/31/arts/alison-knowles-dead.html
-
-**The U.S. Was Ordered to Pay Food Stamp Benefits**\
-`Also, California Democrats are feeling unusually confident. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/10/31/briefing/the-us-was-ordered-to-pay-food-stamp-benefits.html
 
