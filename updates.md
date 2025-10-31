@@ -1,3 +1,7 @@
+**Zoë Wicomb, Acclaimed South African Author, Dies at 76**\
+`In novels and short stories, she delivered sharp observations of the constraints and contradictions of apartheid and its aftermath.`\
+https://nytimes.com/2025/10/31/books/zoe-wicomb-dead.html
+
 **Overlooked No More: Hannah Senesh, Poet and Paratrooper Who Defied the Nazis**\
 `Senesh fled Hungary just before World War II. But unlike most Jews who escaped the Nazis, she went back to fight. Today, she is regarded as a hero in Israel.`\
 https://nytimes.com/2025/10/31/obituaries/hannah-senesh-overlooked.html
