@@ -1,3 +1,15 @@
+**NHL Power Rankings: A new No. 1, plus your team's top Halloween costume**\
+`We’ve rounded up our favorite Halloween costumes from around the league for our first-ever power rankings costume contest.`\
+https://nytimes.com/athletic/6766180/2025/10/31/nhl-power-rankings-halloween-2/
+
+**A Halloween Tradition People Love to ‘Hate’**\
+`No reference is too obscure for “Gay Halloween” — the rare meme with staying power.`\
+https://nytimes.com/2025/10/31/style/gay-halloween-costumes-meme.html
+
+**The Golden Toilet Returns as a Sotheby’s Headliner, for $10 Million**\
+`The flushable sculpture, “America,” was made by Maurizio Cattelan, the artist whose banana taped to the wall sold for $6.2 million last year.`\
+https://nytimes.com/2025/10/31/arts/design/gold-toilet-sothebys-auction-cattelan-10-million.html
+
 **The Golden Toilet Returns as a Sotheby’s Headliner. The Price? $10 Million.**\
 `The flushable sculpture, “America,” was made by Maurizio Cattelan, the artist whose banana taped to the wall sold for $6.2 million last year.`\
 https://nytimes.com/2025/10/31/arts/design/gold-toilet-sothebys-auction-cattelan-10-million.html
