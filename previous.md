@@ -1,3 +1,27 @@
+**Can 'luxe' fantasy football tight ends become elite again? It's likely too late.**\
+`Plus, Lamar Jackson's impressive return, J.J. McCarthy retakes the reins and all the other fantasy football news you need to know.`\
+https://nytimes.com/athletic/6766320/2025/10/31/fantasy-football-news-week-9-tight-ends/
+
+**Kipchoge says New York Marathon will be his last**\
+`The Kenyan, who has 11 marathon major wins, says his future plans involve running in Antarctica.`\
+https://nytimes.com/athletic/6766413/2025/10/31/eliud-kipchoge-new-york-marathon-retire/
+
+**The Windup: Will the season end tonight?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6765568/2025/10/31/world-series-game-6-the-windup/
+
+**Unlocking the Grid**\
+`The U.S. runs on electricity — lots of it. See where the country’s energy comes from, where it goes and how the grid is changing to face the demands of tomorrow.`\
+https://nytimes.com/paidpost/siemens-energy/unlocking-the-grid.html
+
+**Federal Court to Rule on Fate of Food Stamps During the Shutdown**\
+`States have sued to spare millions of low-income Americans from losing benefits starting on Saturday, after the Trump administration said it would not fund them.`\
+https://nytimes.com/2025/10/31/us/politics/federal-judge-food-stamps.html
+
+**He Alone Tracked Leaky Oil Wells in National Parks. He Was Let Go.**\
+`Forrest Smith was forced to step down last month as the National Park Service’s chief petroleum engineer. He wasn’t replaced.`\
+https://nytimes.com/2025/10/31/climate/national-parks-orphan-wells.html
+
 **Pistons are prepped to bring some 'Deeeetroit Basketball' to fans in Mexico City**\
 `The Pistons are the home team in Mexico City which means they're going to be putting on a show for their international fans. `\
 https://nytimes.com/athletic/6766304/2025/10/31/detroit-pistons-mexico-city-nba-fans-international/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6764757/2025/10/31/sf-giants-new-manager-offseason-
 **2025 NFL Playoff Simulator: Each team’s path to the postseason as the Ravens get back in the mix**\
 `<p>Welcome to The Athletic’s 2025 NFL Playoff Simulator, where you’ll find everything you need to know about all the ways your favorite team&#8217;s season could end, from a No.`\
 https://nytimes.com/athletic/6513952/2025/10/31/2025-nfl-playoff-simulator-path-postseason/
-
-**John Gibson's return to Anaheim a reminder of what he did — and endured — with Ducks**\
-`Gibson returns to Anaheim, where he spent 12 years of his career, on Friday for the first time since being traded to the Red Wings in June.`\
-https://nytimes.com/athletic/6765225/2025/10/31/john-gibson-anaheim-ducks-red-wings/
-
-**Trump Administration Seeks to Return Medical Debt to Credit Reports**\
-`A federal rule restricting the debt’s inclusion has been canceled. Now, the consumer bureau is trying to overturn state restrictions.`\
-https://nytimes.com/2025/10/31/your-money/medical-debt-credit-reports.html
-
-**What If You Spent Every Waking Moment Taking On Elon Musk?**\
-`Aaron Greenspan was once a promising entrepreneur. He has spent the last two decades lobbing grenades at the country’s most powerful tech moguls.`\
-https://nytimes.com/2025/10/31/business/elon-musk-aaron-greenspan-tech.html
-
-**Interest Rates Are Falling. Why Are People Still Buying Money Market Funds?**\
-`The Federal Reserve’s rate cut will reduce investor returns, yet money market funds remain a good deal, our columnist says.`\
-https://nytimes.com/2025/10/31/business/interest-rates-money-markets-stocks-bonds.html
-
-**Golden Knights off to a characteristic strong start: 5 takeaways through 10 games**\
-`From defensive adjustments to Bruce Cassidy's focus on playoff-ready goals, here's what stands out about Vegas so far.`\
-https://nytimes.com/athletic/6764791/2025/10/31/vegas-golden-knights-10-games-cassidy-marner-schmid/
-
-**Police Raided a London Shop. We Tagged Along.**\
-`After her own encounters with thieves, a reporter got to the bottom of a growing epidemic on the city’s streets.`\
-https://nytimes.com/2025/10/31/insider/london-phone-theft.html
 
