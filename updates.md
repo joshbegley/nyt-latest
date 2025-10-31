@@ -1,3 +1,15 @@
+**Scenes From Halloween in New York City**\
+`You know it’s late October when your subway seatmate is Elphaba or Beetlejuice.`\
+https://nytimes.com/2025/10/31/nyregion/new-york-city-halloween-photos.html
+
+**Palace manager Glasner 'disappointed' by USMNT's handling of Richards**\
+`“My only complaint is the U.S. team didn’t talk to us because Chris was struggling with his calf for many weeks,” Glasner said on Friday.`\
+https://nytimes.com/athletic/6766519/2025/10/31/chris-richards-injury-usmnt-palace/
+
+**Cardinals' Bloom hires former Astros farm director, adds pro scouting director**\
+`The front-office changes indicate significant operational shifts under new president of baseball operations Chaim Bloom.`\
+https://nytimes.com/athletic/6764506/2025/10/31/stl-cardinals-front-office-hires-jacob-buffa-douglas/
+
 **Why the NBA's investigation of Terry Rozier raises questions about future gambling probes**\
 `Suspicious prop bets on Terry Rozier were flagged in 2023. But after an NBA investigation, the guard played until his arrest last week.`\
 https://nytimes.com/athletic/6765257/2025/10/31/nba-gambling-investigation-betting-future-rozier/
