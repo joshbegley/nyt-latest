@@ -1,3 +1,7 @@
+**Air Controller Shortage Causes Delays in Orlando and at Other Major Airports**\
+`The F.A.A. warned that a lack of certified air traffic controllers in Orlando could cause delays throughout the East Coast.`\
+https://nytimes.com/2025/10/30/us/politics/orlando-air-traffic-control-airports-shutdown.html
+
 **Enslaved Potter’s Art, Displayed at Boston Museum, Returns to Heirs at Last**\
 `The Museum of Fine Arts, Boston, said David Drake, the artist, had been “deprived of his creations involuntarily and without compensation.”`\
 https://nytimes.com/2025/10/30/us/mfa-boston-david-drake-pottery.html
