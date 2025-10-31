@@ -1,3 +1,7 @@
+**The Golden Toilet Returns as a Sotheby’s Headliner. The Price? $10 Million.**\
+`The flushable sculpture, “America,” was made by Maurizio Cattelan, the artist whose banana taped to the wall sold for $6.2 million last year.`\
+https://nytimes.com/2025/10/31/arts/design/gold-toilet-sothebys-auction-cattelan-10-million.html
+
 **Romero available for Spurs-Chelsea, Udogie and Odobert also fit**\
 `Romero has missed four consecutive matches across the league, Champions League and Carabao Cup with an adductor injury.`\
 https://nytimes.com/athletic/6766445/2025/10/31/tottenham-team-news-romero-udogie-odobert/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6766413/2025/10/31/eliud-kipchoge-new-york-marathon
 **The Windup: Will the season end tonight?**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6765568/2025/10/31/world-series-game-6-the-windup/
-
-**Unlocking the Grid**\
-`The U.S. runs on electricity — lots of it. See where the country’s energy comes from, where it goes and how the grid is changing to face the demands of tomorrow.`\
-https://nytimes.com/paidpost/siemens-energy/unlocking-the-grid.html
 
