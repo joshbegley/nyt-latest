@@ -1,3 +1,7 @@
+**Maresca says Delap apologised to Chelsea squad after Wolves red card**\
+`The head coach was unhappy with the striker after the Wolves game, calling the sending off "embarrassing".`\
+https://nytimes.com/athletic/6766023/2025/10/31/chelsea-enzo-maresca-liam-delap/
+
 **‘I’ve worked too much to be passive’: How Bilal Coulibaly impressed in his season debut**\
 `Playing his first NBA game in nearly seven months, Coulibaly reminded everyone why Washington has high hopes for him. `\
 https://nytimes.com/athletic/6765640/2025/10/31/bilal-coulibaly-wizards-return/
