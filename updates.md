@@ -1,3 +1,7 @@
+**At the Supreme Court, Liberal Justices Are Split**\
+`We go inside their strained relationship.`\
+https://nytimes.com/2025/10/31/briefing/at-the-supreme-court-liberal-justices-are-split.html
+
 **NYCFC's unbearable wait inches toward its end with a new stadium on the rise**\
 `As NYCFC braces to host another playoff game at a baseball stadium, its visions of a soccer-specific home are nearing fruition`\
 https://nytimes.com/athletic/6763288/2025/10/31/nycfc-new-stadium-etihad-park-queens-mls/
