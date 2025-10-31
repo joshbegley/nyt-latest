@@ -1,3 +1,19 @@
+**This is not the first race where Sept. 11 has become an issue for Cuomo.**\
+`By Dana Rubinstein`\
+https://nytimes.com/live/2025/10/31/nyregion/nyc-mayor-election-news/this-is-not-the-first-race-where-sept-11-has-become-an-issue-for-cuomo
+
+**‘Ridiculousness’ Is Ending, and With It an Era for MTV**\
+`The cable channel has run endless reruns of the comedy clip show for several years, a move that was copied by other cable companies.`\
+https://nytimes.com/2025/10/31/business/media/ridiculousness-mtv-cable-programming.html
+
+**‘It: Welcome to Derry’ Season 1, Episode 2 Recap: It Takes a Village**\
+`Unsettling things happen and the town grown-ups hardly seem to notice. Lilly and Ronnie receive unsettling visits from their pasts.`\
+https://nytimes.com/2025/10/31/arts/television/it-welcome-to-derry-recap-season-1-episode-2.html
+
+**What's next for Flyers prospect Jett Luchanko? A trade? World Juniors?**\
+`The Flyers have little, if any, say in the immediate future of a player for whom they still have high hopes.`\
+https://nytimes.com/athletic/6766838/2025/10/31/jett-luchanko-flyers-juniors/
+
 **Rosalía Is Asking a Lot of You With Her New Album**\
 `The Spanish pop star sat Rosalía is asking a lot of audiences with her new album — and that’s the point. “The more we are in the era of dopamine, the more I want the opposite,” she tells Jon Caramanica and Joe Coscarelli on “Popcast.”`\
 https://nytimes.com/video/podcasts/100000010489232/rosalia-is-asking-a-lot-of-you-with-her-new-album.html

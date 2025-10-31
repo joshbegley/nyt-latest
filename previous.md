@@ -1,3 +1,15 @@
+**This is not the first race where Sept. 11 has become an issue for Cuomo.**\
+`By Dana Rubinstein`\
+https://nytimes.com/live/2025/10/31/nyregion/nyc-mayor-election-news/this-is-not-the-first-race-where-sept-11-has-become-an-issue-for-cuomo
+
+**‘Ridiculousness’ Is Ending, and With It an Era for MTV**\
+`The cable channel has run endless reruns of the comedy clip show for several years, a move that was copied by other cable companies.`\
+https://nytimes.com/2025/10/31/business/media/ridiculousness-mtv-cable-programming.html
+
+**‘It: Welcome to Derry’ Season 1, Episode 2 Recap: It Takes a Village**\
+`Unsettling things happen and the town grown-ups hardly seem to notice. Lilly and Ronnie receive unsettling visits from their pasts.`\
+https://nytimes.com/2025/10/31/arts/television/it-welcome-to-derry-recap-season-1-episode-2.html
+
 **Rosalía Is Asking a Lot of You With Her New Album**\
 `The Spanish pop star sat Rosalía is asking a lot of audiences with her new album — and that’s the point. “The more we are in the era of dopamine, the more I want the opposite,” she tells Jon Caramanica and Joe Coscarelli on “Popcast.”`\
 https://nytimes.com/video/podcasts/100000010489232/rosalia-is-asking-a-lot-of-you-with-her-new-album.html
@@ -15,7 +27,7 @@ https://nytimes.com/video/world/americas/100000010493991/hurricane-melissa-damag
 https://nytimes.com/athletic/6767164/2025/10/31/buffalo-sabres-mailbag-october-2025/
 
 **What's next for Flyers prospect Jett Luchanko? A trade? World Juniors?**\
-`The Flyers have little, if any, say in the immediate future of a player for whom that they still have high hopes.`\
+`The Flyers have little, if any, say in the immediate future of a player for whom they still have high hopes.`\
 https://nytimes.com/athletic/6766838/2025/10/31/jett-luchanko-flyers-juniors/
 
 **Solid Gold Toilet Heads to Auction**\
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/100000010493820/gold-toilet-sothebys-auction.html
 **Falcons QB Michael Penix Jr. set to start vs. Patriots**\
 `Penix missed Atlanta's loss to Miami in Week 8.`\
 https://nytimes.com/athletic/6766407/2025/10/31/falcons-michael-penix-jr-quarterback-start/
-
-**Indiana University Lifts Ban on Printing News in College Newspaper**\
-`The university faced fierce criticism after it fired the director of student media and said that news coverage could be published only online.`\
-https://nytimes.com/2025/10/31/business/media/indiana-university-news-newspaper.html
-
-**Mike Tirico will join list of impressive single-day broadcasting feats**\
-`The list includes some impressive names, such as Vin Scully and Bill Raftery.`\
-https://nytimes.com/athletic/6766885/2025/10/31/mike-tirico-sports-broadcasters-double-duty/
-
-**A Halloween Sticker for Early Voters**\
-`The first 1,000 voters at early voting sites across New York City were to receive a “Halloween voter 2025” sticker depicting a pigeon in a witch’s hat.`\
-https://nytimes.com/2025/10/31/nyregion/nyc-mayor-early-voting-halloween-sticker.html
 

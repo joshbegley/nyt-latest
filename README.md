@@ -1,3 +1,19 @@
+**The Ja Morant card featuring Young Dolph and others that became a viral hit**\
+`This 2019 Chronicles card shouldn't be Morant's most well-known rookie card, but that's what it's become`\
+https://nytimes.com/athletic/6766650/2025/10/31/ja-morant-young-dolph-card/
+
+**Deadly Protests Flare After Restricted Election in Tanzania**\
+`As the violence continued for a third day, the United Nations said at least 10 people had been killed. Opposition leaders claimed the death toll could be in the hundreds.`\
+https://nytimes.com/2025/10/31/world/africa/tanzania-deadly-protests-election.html
+
+**Political Protests Turn Deadly in Tanzania**\
+`Post-election violence continued for the third day in Tanzania. At least 10 people have been killed, according to the United Nations.`\
+https://nytimes.com/video/world/africa/100000010493896/tanzania-election-protests.html
+
+**What Do You Fear?**\
+`At “Believing,” we want to hear from you.`\
+https://nytimes.com/2025/10/31/briefing/what-do-you-fear.html
+
 **This is not the first race where Sept. 11 has become an issue for Cuomo.**\
 `By Dana Rubinstein`\
 https://nytimes.com/live/2025/10/31/nyregion/nyc-mayor-election-news/this-is-not-the-first-race-where-sept-11-has-become-an-issue-for-cuomo
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/31/arts/design/kelvin-laverne-dead.html
 **Flooding Remains in Some of the Hardest Hit Areas in Jamaica**\
 `Three days after Hurricane Melissa hit Jamaica, floodwaters have continued to rise in St. Elizabeth Parish because of blocked drainage system. As of Friday, homes and roads remained flooded, and power had not been restored.`\
 https://nytimes.com/video/world/americas/100000010493991/hurricane-melissa-damage-flooding.html
-
-**Sabres mailbag: Submit your questions to Matthew Fairburn**\
-`Have questions about the Sabres as the regular season enters its second month? Submit them here.`\
-https://nytimes.com/athletic/6767164/2025/10/31/buffalo-sabres-mailbag-october-2025/
-
-**What's next for Flyers prospect Jett Luchanko? A trade? World Juniors?**\
-`The Flyers have little, if any, say in the immediate future of a player for whom they still have high hopes.`\
-https://nytimes.com/athletic/6766838/2025/10/31/jett-luchanko-flyers-juniors/
-
-**Solid Gold Toilet Heads to Auction**\
-`A toilet made from about 220 pounds of solid gold is expected to go up for auction in November. Bidding for the fully functional piece by the artist Maurizio Cattelan is expected to start at about $10 million.`\
-https://nytimes.com/video/us/100000010493820/gold-toilet-sothebys-auction.html
-
-**Falcons QB Michael Penix Jr. set to start vs. Patriots**\
-`Penix missed Atlanta's loss to Miami in Week 8.`\
-https://nytimes.com/athletic/6766407/2025/10/31/falcons-michael-penix-jr-quarterback-start/
 
