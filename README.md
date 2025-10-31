@@ -1,3 +1,11 @@
+**T's Nov. 16 Travel Issue**\
+``\
+https://nytimes.com/issue/t-magazine/2025/10/31/ts-nov-16-travel-issue-2025
+
+**Donald and Melania Trump Dress Up for Halloween, as Themselves**\
+`It’s a very effective costume.`\
+https://nytimes.com/2025/10/31/style/donald-trupmp-melania-trump-halloween.html
+
 **Amazon’s Big Spending Reignites an A.I. Stock Rally**\
 `Investors cheered the tech giant’s latest results showing that its huge investments in artificial intelligence are beginning to show returns.`\
 https://nytimes.com/2025/10/31/business/dealbook/amazon-ai-stock-rally.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/10/31/nyregion/nyc-mayor-election-news
 **How Cincinnati unlocked its offense and QB Brendan Sorsby to become a Big 12 contender**\
 `The Bearcats have rattled off seven straight wins and are sitting tied atop the Big 12 standings with BYU at 5-0 in conference play.`\
 https://nytimes.com/athletic/6764131/2025/10/31/cincinnati-utah-brendan-sorsby-big-12/
-
-**The Athletic’s Friday football quiz question #79**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/6764299/2025/10/31/the-athletics-friday-football-quiz-question-79/
-
-**Tarik Skubal, Joe Ryan trade scenarios and Jarren Duran's future: Red Sox mailbag**\
-`The Boston Red Sox have plenty on their to-do list this winter, including adding to the rotation.`\
-https://nytimes.com/athletic/6764671/2025/10/31/red-sox-tarik-skubal-joe-ryan-jarren-duran-mailbag/
 
