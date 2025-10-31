@@ -1,3 +1,11 @@
+**Rosalía Is Asking a Lot of You With Her New Album**\
+`The Spanish pop star sat Rosalía is asking a lot of audiences with her new album — and that’s the point. “The more we are in the era of dopamine, the more I want the opposite,” she tells Jon Caramanica and Joe Coscarelli on “Popcast.”`\
+https://nytimes.com/video/podcasts/100000010489232/rosalia-is-asking-a-lot-of-you-with-her-new-album.html
+
+**Kelvin LaVerne, Creator of Enigmatic Furnishings, Dies at 88**\
+`With his father, Philip, he made idiosyncratic, often monumental bronze work influenced by ancient themes. But was it art or was it furniture?`\
+https://nytimes.com/2025/10/31/arts/design/kelvin-laverne-dead.html
+
 **Flooding Remains in Some of the Hardest Hit Areas in Jamaica**\
 `Three days after Hurricane Melissa hit Jamaica, floodwaters have continued to rise in St. Elizabeth Parish because of blocked drainage system. As of Friday, homes and roads remained flooded, and power had not been restored.`\
 https://nytimes.com/video/world/americas/100000010493991/hurricane-melissa-damage-flooding.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6766885/2025/10/31/mike-tirico-sports-broadcasters-
 **A Halloween Sticker for Early Voters**\
 `The first 1,000 voters at early voting sites across New York City were to receive a “Halloween voter 2025” sticker depicting a pigeon in a witch’s hat.`\
 https://nytimes.com/2025/10/31/nyregion/nyc-mayor-early-voting-halloween-sticker.html
-
-**Staffing Issues Cause Another Day of Air Travel Delays**\
-`Insufficient numbers of air traffic controllers, a byproduct of the government shutdown, were affecting travel hubs across the country.`\
-https://nytimes.com/2025/10/31/us/airport-travel-delays.html
-
-**Scoop City: Assessing Travis Hunter as he hits IR**\
-`What we'd seen from Travis Hunter, one of the most intriguing rookies ever, before his latest injury`\
-https://nytimes.com/athletic/6767095/2025/10/31/travis-hunter-2025-season-review-injury-scoop-city/
 
