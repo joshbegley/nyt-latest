@@ -1,3 +1,7 @@
+**WNBA and players union agree to extension for CBA negotiations**\
+`The new deadline to reach a deal is Nov. 30.`\
+https://nytimes.com/athletic/6765085/2025/10/30/wnba-players-union-extension-cba/
+
 **How to watch Dodgers at Blue Jays: World Series Game 6 Time, TV, streaming**\
 `Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6765057/2025/10/30/dodgers-vs-blue-jays-stream-how-to-watch-oct-31/

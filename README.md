@@ -1,3 +1,11 @@
+**Ohio Republicans Gain Ground in Push for More Seats in Congress**\
+`The map, which is expected to be approved on Friday morning by the state’s redistricting commission, improves Republicans’ odds of picking up two more seats.`\
+https://nytimes.com/2025/10/30/us/politics/ohio-redistricting-deal.html
+
+**Trump Returns to White House in Time to Greet Trick-or-Treaters**\
+`President Trump, who did not wear a costume, and the first lady handed out candy at the annual Halloween celebration at the White House.`\
+https://nytimes.com/2025/10/30/us/politics/trump-halloween-candy-white-house.html
+
 **WNBA and players union agree to extension for CBA negotiations**\
 `The new deadline to reach a deal is Nov. 30.`\
 https://nytimes.com/athletic/6765085/2025/10/30/wnba-players-union-extension-cba/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/30/theater/bat-boy-the-musical-review.html
 **Adams condemned an anti-Israel art exhibit. His subtext seemed to be the mayoral race.**\
 `By Dana Rubinstein`\
 https://nytimes.com/live/2025/10/30/nyregion/nyc-mayor-election-news/adams-condemned-an-anti-israel-art-exhibit-his-subtext-seemed-to-be-the-mayoral-race
-
-**Testing America’s Nuclear Bombs: What to Know**\
-`Though the country’s nuclear arsenal has undergone no explosive testing for decades, federal experts say it can reliably obliterate targets halfway around the globe.`\
-https://nytimes.com/2025/10/30/science/us-nuclear-weapons-atomic-bombs.html
-
-**A Top Trump Official Had to Sell His Stock. He May Have Saved Millions.**\
-`Frank Bisignano, who holds top jobs at the Social Security Administration and the I.R.S., sold his stake in Fiserv before the company’s stock cratered this week.`\
-https://nytimes.com/2025/10/30/us/politics/frank-bisignano-fiserv-stock-price.html
 
