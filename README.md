@@ -1,3 +1,7 @@
+**How to watch Avalanche vs. Golden Knights: Time, TV, streaming**\
+`Find out how to watch the Colorado Avalanche play the Vegas Golden Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6766211/2025/10/31/avalanche-vs-golden-knights-stream-how-to-watch-oct-31/
+
 **Mamdani Takes His Campaign to the Night Shift**\
 `Zohran Mamdani visited LaGuardia Airport and Elmhurst Hospital on Thursday evening, part of the Democratic candidate’s focus on working-class New Yorkers ahead of Tuesday’s mayoral election.`\
 https://nytimes.com/2025/10/31/nyregion/mamdani-night-shift-workers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6766062/2025/10/31/oier-lazkano-red-bull-bora-hansg
 **Trump Administration Live Updates: President Says Abolishing Filibuster Would Let Republicans End Shutdown**\
 ``\
 https://nytimes.com/live/2025/10/31/us/trump-news
-
-**What we're hearing entering Week 10: Where will Penn State turn after Matt Rhule?**\
-`While Lane Kiffin appears to be the No. 1 target in the SEC, the Penn State opening appears to be more of a mystery now.`\
-https://nytimes.com/athletic/6766055/2025/10/31/college-football-coaching-search-news-week-10/
 
