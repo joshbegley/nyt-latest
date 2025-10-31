@@ -1,3 +1,19 @@
+**Flashback: Your Weekly History Quiz, Nov. 1, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/10/31/upshot/flashback.html
+
+**Are Wealth Taxes the Best Way to Tax the Ultra Rich?**\
+`Plans for a wealth tax, which is dividing France, have gotten popular around the world as inequality has widened and government debt has risen.`\
+https://nytimes.com/2025/10/31/business/economy/wealth-tax-france.html
+
+**Democrats’ Battle for Attention, and Trust**\
+`Readers respond to an Opinion guest essay by Chris Hayes. Also: Reining in President Trump; a risk to the Trump library; healing America.`\
+https://nytimes.com/2025/10/31/opinion/democratic-party.html
+
+**‘I’m the Guy on the Floor’: Memories From a Thrilling Marathon Finish**\
+`A dramatic late-race twist in 1983’s New York City Marathon left one runner triumphant, and another on his back. Here’s what they remember.`\
+https://nytimes.com/interactive/2025/10/31/magazine/nyc-marathon-finish-photo-history-rod-dixon.html
+
 **Turkish FA suspends 149 match officials over referee betting scandal**\
 `Suspensions between eight and 12 months have been imposed.`\
 https://nytimes.com/athletic/6766924/2025/10/31/turkey-refereeing-betting-suspensions/
