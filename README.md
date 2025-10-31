@@ -1,3 +1,7 @@
+**Former Brighton director Weir joins Chelsea sister club Strasbourg**\
+`Weir becomes the latest person formerly affiliated with Brighton to either be signed or appointed by BlueCo.`\
+https://nytimes.com/athletic/6767481/2025/10/31/david-weir-chelsea-brighton-blueco-strasbourg/
+
 **Why is Joe Flacco trying to play through a sprained AC joint? Check his history**\
 `“I do feel a sense of obligation being out there for the guys you play with,” Flacco said. “I’m not changing it now.”`\
 https://nytimes.com/athletic/6767169/2025/10/31/bengals-joe-flacco-playing-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/31/style/julio-torres-halloween-party-bushwick.html
 **How to watch Pelicans vs. Clippers: Time, TV, streaming**\
 `Find out how to watch the New Orleans Pelicans play the Los Angeles Clippers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6767361/2025/10/31/pelicans-vs-clippers-stream-how-to-watch-oct-31/
-
-**How to watch Red Wings vs. Ducks: Time, TV, streaming**\
-`Find out how to watch the Detroit Red Wings play the Anaheim Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6767359/2025/10/31/red-wings-vs-ducks-stream-how-to-watch-oct-31/
 
