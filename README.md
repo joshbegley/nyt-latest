@@ -1,3 +1,7 @@
+**Nvidia, Samsung, Hyundai Leaders Share Fried Chicken and Beer**\
+`The leaders of Nvidia, Samsung and Hyundai hung out over Korean fried chicken and beer on Thursday in Seoul. Their casual outing signaled the deepening ties between Nvidia, the American chip maker, and South Korea’s auto and tech conglomerates.`\
+https://nytimes.com/video/world/asia/100000010493238/nvidia-samsung-hyundai-chicken.html
+
 **Jimmy Kimmel Can’t Believe He Agrees With Marjorie Taylor Greene**\
 `“Sometimes you go so far right you come out on the other side,” Kimmel said of the congresswoman, who has clashed with fellow Republicans over health care.`\
 https://nytimes.com/2025/10/31/arts/television/jimmy-kimmel-marjorie-taylor-greene.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010489449/trump-xi-jinping-trade-war.
 **Warriors get what they deserve in loss to Giannis-less Bucks**\
 `Citing mental and physical fatigue by his squad, Steve Kerr said 'It did not look like our team out there.'`\
 https://nytimes.com/athletic/6765672/2025/10/31/golden-state-warriors-lose-giannis-out/
-
-**Word of the Day: felicitous**\
-`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/10/31/learning/word-of-the-day-felicitous.html
 
