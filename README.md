@@ -1,3 +1,19 @@
+**Flashback: Your Weekly History Quiz, Nov. 1, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/10/31/upshot/flashback.html
+
+**Are Wealth Taxes the Best Way to Tax the Ultra Rich?**\
+`Plans for a wealth tax, which is dividing France, have gotten popular around the world as inequality has widened and government debt has risen.`\
+https://nytimes.com/2025/10/31/business/economy/wealth-tax-france.html
+
+**Democrats’ Battle for Attention, and Trust**\
+`Readers respond to an Opinion guest essay by Chris Hayes. Also: Reining in President Trump; a risk to the Trump library; healing America.`\
+https://nytimes.com/2025/10/31/opinion/democratic-party.html
+
+**‘I’m the Guy on the Floor’: Memories From a Thrilling Marathon Finish**\
+`A dramatic late-race twist in 1983’s New York City Marathon left one runner triumphant, and another on his back. Here’s what they remember.`\
+https://nytimes.com/interactive/2025/10/31/magazine/nyc-marathon-finish-photo-history-rod-dixon.html
+
 **Turkish FA suspends 149 match officials over referee betting scandal**\
 `Suspensions between eight and 12 months have been imposed.`\
 https://nytimes.com/athletic/6766924/2025/10/31/turkey-refereeing-betting-suspensions/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6766502/2025/10/31/nba-terry-rozier-playing-gamblin
 **A Republican Seeks to Match Trump’s Gains on Democratic Turf in New Jersey**\
 `With President Trump making inroads with Black and Latino voters, the path to the governor’s office runs through regions Democrats can no longer take for granted.`\
 https://nytimes.com/2025/10/31/nyregion/jack-ciattarelli-mikie-sherrill-new-jersey-black-latino-voters.html
-
-**Virginia Takes First Step Toward New Congressional Maps**\
-`The Democrat-controlled legislature approved an amendment that would allow redistricting next year, but the process will take months.`\
-https://nytimes.com/2025/10/31/us/virginia-redistricting.html
-
-**FIA says Liam Lawson 'not at fault' for marshals incident at Mexico City GP**\
-`This comes after Mexico’s motorsport federation placed the blame on the Racing Bulls driver.`\
-https://nytimes.com/athletic/6766821/2025/10/31/liam-lawson-marshals-f1-mexico/
-
-**LeBron James delivers a Halloween treat — a new children's book**\
-`The NBA star's fourth book delves into teamwork themes revealed during what he calls his favorite holiday, Halloween.`\
-https://nytimes.com/athletic/6766573/2025/10/31/lebron-james-announces-happy-spooky-halloween-a-new-childrens-book/
-
-**Meet the 2 Mayoral Candidates You Haven’t Heard of**\
-`Irene Estrada and Joseph Hernandez do not even show up in most polls, but they are committed to seeing the race through.`\
-https://nytimes.com/2025/10/31/nyregion/nyc-mayor-adams-walden-estrada-hernandez.html
 
