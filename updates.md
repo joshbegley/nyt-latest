@@ -1,3 +1,11 @@
+**A Republican Seeks to Match Trump’s Gains on Democratic Turf in New Jersey**\
+`With President Trump making inroads with Black and Latino voters, the path to the governor’s office runs through regions Democrats can no longer take for granted.`\
+https://nytimes.com/2025/10/31/nyregion/jack-ciattarelli-mikie-sherrill-new-jersey-black-latino-voters.html
+
+**Virginia Takes First Step Toward New Congressional Maps**\
+`The Democrat-controlled legislature approved an amendment that would allow redistricting next year, but the process will take months.`\
+https://nytimes.com/2025/10/31/us/virginia-redistricting.html
+
 **FIA says Liam Lawson 'not at fault' for marshals incident at Mexico City GP**\
 `This comes after Mexico’s motorsport federation placed the blame on the Racing Bulls driver.`\
 https://nytimes.com/athletic/6766821/2025/10/31/liam-lawson-marshals-f1-mexico/

@@ -1,3 +1,11 @@
+**A Republican Seeks to Match Trump’s Gains on Democratic Turf in New Jersey**\
+`With President Trump making inroads with Black and Latino voters, the path to the governor’s office runs through regions Democrats can no longer take for granted.`\
+https://nytimes.com/2025/10/31/nyregion/jack-ciattarelli-mikie-sherrill-new-jersey-black-latino-voters.html
+
+**Virginia Takes First Step Toward New Congressional Maps**\
+`The Democrat-controlled legislature approved an amendment that would allow redistricting next year, but the process will take months.`\
+https://nytimes.com/2025/10/31/us/virginia-redistricting.html
+
 **FIA says Liam Lawson 'not at fault' for marshals incident at Mexico City GP**\
 `This comes after Mexico’s motorsport federation placed the blame on the Racing Bulls driver.`\
 https://nytimes.com/athletic/6766821/2025/10/31/liam-lawson-marshals-f1-mexico/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6766823/2025/10/31/naomi-girma-chelsea-injury-retur
 **Republicans in Congress Show Signs of Angst Over Trump’s Trade War**\
 `Senators opposed the president’s plan to import beef from Argentina and voted three times this week to end his power to enforce sweeping tariffs.`\
 https://nytimes.com/2025/10/31/us/politics/trump-republicans-congress-trade.html
-
-**Premier League confirms only one Boxing Day fixture this year**\
-`Boxing Day is one of the busiest days of the year across English men's football, with a full fixture list typically scheduled.`\
-https://nytimes.com/athletic/6754260/2025/10/31/premier-league-boxing-day-fixtures/
-
-**Mother and Young Daughter Saved From New Jersey Floodwaters**\
-`Torrential rain flooded parts of the tristate region on Thursday. In Bayonne, N.J., a firefighter rescued a mother and her 4-year-old daughter from their car, which was trapped in a flooded underpass.`\
-https://nytimes.com/video/weather/100000010493629/new-jersey-bayonne-flood.html
 
