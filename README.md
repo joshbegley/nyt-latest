@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: President Says Abolishing Filibuster Would Let Republicans End Shutdown**\
+``\
+https://nytimes.com/live/2025/10/31/us/trump-news
+
+**What we're hearing entering Week 10: Where will Penn State turn after Matt Rhule?**\
+`While Lane Kiffin appears to be the No. 1 target in the SEC, the Penn State opening appears to be more of a mystery now.`\
+https://nytimes.com/athletic/6766055/2025/10/31/college-football-coaching-search-news-week-10/
+
 **Odegaard, Madueke and Havertz all pushing to face Spurs, says Arteta**\
 `“The huge boost that is going to be for the squad to have and those players again, after such a long, long time," the Spaniard said.`\
 https://nytimes.com/athletic/6766080/2025/10/31/odegaard-madueke-havertz-fitness-arteta-arsenal/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6594117/2025/10/31/lucas-paqueta-fine-west-ham-bett
 **Exxon’s and Chevron’s Profits Fall as Oil Prices Stay Low**\
 `But the companies and other large oil producers are continuing to increase production because drilling still remains profitable.`\
 https://nytimes.com/2025/10/31/business/energy-environment/exxon-mobil-chevron-earnings.html
-
-**NFL Week 9 schedule rankings: Top 5 Sunday games with horror movie vibes**\
-`The NFL has earned its "witching hour" on Halloween weekend.`\
-https://nytimes.com/athletic/6757551/2025/10/31/nfl-week-9-schedule-chiefs-bills-how-to-watch/
-
-**At the Supreme Court, Liberal Justices Are Split**\
-`We go inside their strained relationship.`\
-https://nytimes.com/2025/10/31/briefing/at-the-supreme-court-liberal-justices-are-split.html
 
