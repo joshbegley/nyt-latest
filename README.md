@@ -1,3 +1,7 @@
+**Maresca says Delap apologised to Chelsea squad after Wolves red card**\
+`The head coach was unhappy with the striker after the Wolves game, calling the sending off "embarrassing".`\
+https://nytimes.com/athletic/6766023/2025/10/31/chelsea-enzo-maresca-liam-delap/
+
 **‘I’ve worked too much to be passive’: How Bilal Coulibaly impressed in his season debut**\
 `Playing his first NBA game in nearly seven months, Coulibaly reminded everyone why Washington has high hopes for him. `\
 https://nytimes.com/athletic/6765640/2025/10/31/bilal-coulibaly-wizards-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6763288/2025/10/31/nycfc-new-stadium-etihad-park-qu
 **Determined Dan Hurley leads the 25 most interesting people in men’s college basketball in 2025-26**\
 `Will Hurley capture a third title in four years? Can Will Wade make NC State relevant? Who will be the nation's top freshman? `\
 https://nytimes.com/athletic/6762960/2025/10/31/dan-hurley-bruce-pearl-duke-north-carolina-college-basketball/
-
-**Week 10’s top 10 college football games: Vanderbilt-Texas, Cincinnati-Utah, OU-Tennessee and more**\
-`Can Nebraska finally beat a ranked opponent? Can Georgia Tech avoid a trap game at NC State? Will Navy remain undefeated? `\
-https://nytimes.com/athletic/6763555/2025/10/31/week-10-top-10-cfb-games/
 
