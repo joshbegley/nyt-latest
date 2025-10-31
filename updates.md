@@ -1,3 +1,7 @@
+**Nvidia, Samsung, Hyundai Leaders Share Fried Chicken and Beer**\
+`The leaders of Nvidia, Samsung and Hyundai hung out over Korean fried chicken and beer on Thursday in Seoul. Their casual outing signaled the deepening ties between Nvidia, the American chip maker, and South Korea’s auto and tech conglomerates.`\
+https://nytimes.com/video/world/asia/100000010493238/nvidia-samsung-hyundai-chicken.html
+
 **Jimmy Kimmel Can’t Believe He Agrees With Marjorie Taylor Greene**\
 `“Sometimes you go so far right you come out on the other side,” Kimmel said of the congresswoman, who has clashed with fellow Republicans over health care.`\
 https://nytimes.com/2025/10/31/arts/television/jimmy-kimmel-marjorie-taylor-greene.html
