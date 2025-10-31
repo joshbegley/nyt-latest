@@ -1,6 +1,18 @@
+**Pistons are prepped to bring some 'Deeeetroit Basketball' to fans in Mexico City**\
+`The Pistons are the home team in Mexico City which means they're going to be putting on a show for their international fans. `\
+https://nytimes.com/athletic/6766304/2025/10/31/detroit-pistons-mexico-city-nba-fans-international/
+
+**The Bounce: Wembanyama's Spurs make surprising history. Plus, the NBA Cup returns!**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6766222/2025/10/31/wembanyama-spurs-nba-cup-the-bounce/
+
 **The Giants have their manager. Now comes the hard part — giving him a winning roster**\
 `In a best-case scenario, this is the last time Giants fans will need to think about Tony Vitello and the next time will be in the playoffs.`\
 https://nytimes.com/athletic/6764757/2025/10/31/sf-giants-new-manager-offseason-goals/
+
+**2025 NFL Playoff Simulator: Each team’s path to the postseason as the Ravens get back in the mix**\
+`<p>Welcome to The Athletic’s 2025 NFL Playoff Simulator, where you’ll find everything you need to know about all the ways your favorite team&#8217;s season could end, from a No.`\
+https://nytimes.com/athletic/6513952/2025/10/31/2025-nfl-playoff-simulator-path-postseason/
 
 **John Gibson's return to Anaheim a reminder of what he did — and endured — with Ducks**\
 `Gibson returns to Anaheim, where he spent 12 years of his career, on Friday for the first time since being traded to the Red Wings in June.`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6764791/2025/10/31/vegas-golden-knights-10-games-ca
 **Police Raided a London Shop. We Tagged Along.**\
 `After her own encounters with thieves, a reporter got to the bottom of a growing epidemic on the city’s streets.`\
 https://nytimes.com/2025/10/31/insider/london-phone-theft.html
-
-**How Rams' addition of Roger McCreary could unlock even more in Quentin Lake**\
-`Lake, who has played at an extremely high level this season, will likely get to roam around even more with McCreary in the fold. `\
-https://nytimes.com/athletic/6765301/2025/10/31/rams-secondary-quentin-lake-roger-mccreary/
-
-**What’s Next for Andrew After He Loses His Royal Titles?**\
-`King Charles III’s brother will retreat further from public life after additional damaging revelations about his ties to the sexual predator Jeffrey Epstein.`\
-https://nytimes.com/2025/10/31/world/europe/prince-andrew-explainer.html
-
-**T's Nov. 16 Travel Issue**\
-``\
-https://nytimes.com/issue/t-magazine/2025/10/31/ts-nov-16-travel-issue-2025
 

@@ -1,3 +1,15 @@
+**Pistons are prepped to bring some 'Deeeetroit Basketball' to fans in Mexico City**\
+`The Pistons are the home team in Mexico City which means they're going to be putting on a show for their international fans. `\
+https://nytimes.com/athletic/6766304/2025/10/31/detroit-pistons-mexico-city-nba-fans-international/
+
+**The Bounce: Wembanyama's Spurs make surprising history. Plus, the NBA Cup returns!**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6766222/2025/10/31/wembanyama-spurs-nba-cup-the-bounce/
+
+**2025 NFL Playoff Simulator: Each team’s path to the postseason as the Ravens get back in the mix**\
+`<p>Welcome to The Athletic’s 2025 NFL Playoff Simulator, where you’ll find everything you need to know about all the ways your favorite team&#8217;s season could end, from a No.`\
+https://nytimes.com/athletic/6513952/2025/10/31/2025-nfl-playoff-simulator-path-postseason/
+
 **The Giants have their manager. Now comes the hard part — giving him a winning roster**\
 `In a best-case scenario, this is the last time Giants fans will need to think about Tony Vitello and the next time will be in the playoffs.`\
 https://nytimes.com/athletic/6764757/2025/10/31/sf-giants-new-manager-offseason-goals/
