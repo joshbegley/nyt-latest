@@ -1,3 +1,27 @@
+**‘I’ve worked too much to be passive’: How Bilal Coulibaly impressed in his season debut**\
+`Playing his first NBA game in nearly seven months, Coulibaly reminded everyone why Washington has high hopes for him. `\
+https://nytimes.com/athletic/6765640/2025/10/31/bilal-coulibaly-wizards-return/
+
+**'Do you still have it, Larry?' Why Ohio State's most accomplished coach can't stop**\
+`Johnson sent all four Ohio State D-linemen to the NFL Draft after a national title. Instead of retiring on top, he embraced a new challenge.`\
+https://nytimes.com/athletic/6763755/2025/10/31/larry-johnson-ohio-state-penn-state/
+
+**Ravens suddenly in the playoff mix after earning 2 wins in 5 days: 'Vibes are high'**\
+`With a healthy and explosive Lamar Jackson, plus a much-improved defense, Baltimore can finally imagine the possibilities of this season.`\
+https://nytimes.com/athletic/6765700/2025/10/31/ravens-win-playoff-picture-dolphins/
+
+**Paqueta avoids fine over compliance with FA's spot-fixing investigation**\
+`The 28-year-old Brazil international has been reprimanded and warned over his future conduct.`\
+https://nytimes.com/athletic/6594117/2025/10/31/lucas-paqueta-fine-west-ham-betting/
+
+**Exxon’s and Chevron’s Profits Fall as Oil Prices Stay Low**\
+`But the companies and other large oil producers are continuing to increase production because drilling still remains profitable.`\
+https://nytimes.com/2025/10/31/business/energy-environment/exxon-mobil-chevron-earnings.html
+
+**NFL Week 9 schedule rankings: Top 5 Sunday games with horror movie vibes**\
+`The NFL has earned its "witching hour" on Halloween weekend.`\
+https://nytimes.com/athletic/6757551/2025/10/31/nfl-week-9-schedule-chiefs-bills-how-to-watch/
+
 **At the Supreme Court, Liberal Justices Are Split**\
 `We go inside their strained relationship.`\
 https://nytimes.com/2025/10/31/briefing/at-the-supreme-court-liberal-justices-are-split.html
