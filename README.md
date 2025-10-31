@@ -1,4 +1,4 @@
-**Ravens-Dolphins takeaways: Lamar Jackson throws 4 touchdown passes in first start since Week 4**\
+**Ravens-Dolphins takeaways: Lamar Jackson throws 4 TD passes in first start since Week 4**\
 `The star quarterback played his first game since being injured in Week 4, and Baltimore looks like it's starting to gain momentum.`\
 https://nytimes.com/athletic/6765372/2025/10/30/ravens-dolphins-score-result-takeaways-thursday-night-football/
 
