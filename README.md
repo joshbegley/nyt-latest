@@ -1,3 +1,11 @@
+**NFL fines Ravens for mishandling Lamar Jackson's injury designation: Source**\
+`The NFL said Baltimore violated the league’s injury report policy by incorrectly listing Jackson’s practice participation status on Oct. 24.`\
+https://nytimes.com/athletic/6756909/2025/10/31/ravens-fined-nfl-lamar-jackson/
+
+**Brian Schottenheimer not concerend with Jerry Jones' comments impacting the locker room**\
+`Jones: “Anybody that says I don’t focus on the Cowboys is just living in the moment of frustration, and I get that. And I’m frustrated too.”`\
+https://nytimes.com/athletic/6766969/2025/10/31/jerry-jones-criticism-cowboys/
+
 **Europe’s New Cultural Capital Shapes the Next Generation of Classical Musicians**\
 `The Reina Sofía School Orchestra makes its Carnegie Hall debut, reflecting Madrid’s cultural rise and a new generation of classical musicians.`\
 https://nytimes.com/paidpost/the-reina-sofia-school-orchestra/europes-new-cultural-capital-shapes-the-next-generation-of-classical-musicians.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/10/31/magazine/nyc-marathon-finish-photo-hi
 **Turkish FA suspends 149 match officials over referee betting scandal**\
 `Suspensions between eight and 12 months have been imposed.`\
 https://nytimes.com/athletic/6766924/2025/10/31/turkey-refereeing-betting-suspensions/
-
-**A.I. Is Making Death Threats Way More Realistic**\
-`Online harassers are generating images and sounds that simulate their victims in violent situations.`\
-https://nytimes.com/2025/10/31/business/media/artificial-intelligence-death-threats.html
-
-**In a Jamaican Town, Melissa Leaves Floods ‘Infested’ by Dead Livestock**\
-`The Category 5 storm ravaged western Jamaica and drenched the small community of New River, where residents were coping with a massive clean up. At least 19 people have died nationwide, officials said.`\
-https://nytimes.com/2025/10/31/world/americas/hurricane-melissa-jamaica-flooding.html
 
