@@ -1,3 +1,15 @@
+**A.I. Is Making Death Threats Way More Realistic**\
+`Online harassers are generating images and sounds that simulate their victims in violent situations.`\
+https://nytimes.com/2025/10/31/business/media/artificial-intelligence-death-threats.html
+
+**In a Jamaican Town, Melissa Leaves Floods ‘Infested’ by Dead Livestock**\
+`The Category 5 storm ravaged western Jamaica and drenched the small community of New River, where residents were coping with a massive clean up. At least 19 people have died nationwide, officials said.`\
+https://nytimes.com/2025/10/31/world/americas/hurricane-melissa-jamaica-flooding.html
+
+**Fantasy football redraft trade values: Two smart injury-related trade targets**\
+`Jakob Sanderson gives a mid-season update to his popular trade value chart. Ja'Marr Chase ascends; Brian Thomas drops. `\
+https://nytimes.com/athletic/6764677/2025/10/31/fantasy-football-redraft-trade-values-week-9/
+
 **NBA explains why Terry Rozier resumed playing amid gambling investigation**\
 `The NBA investigated Terry Rozier after multiple sports books flagged suspicious wagers on him. Then, he kept playing.`\
 https://nytimes.com/athletic/6766502/2025/10/31/nba-terry-rozier-playing-gambling-investigation/
