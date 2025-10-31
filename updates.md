@@ -1,3 +1,19 @@
+**Top Senators Say Pentagon Has Not Shared Legal Justification for Boat Strikes**\
+`The Republican chairman and senior Democrat on the Armed Services Committee said on Friday that the Pentagon had not handed over information about the attacks despite repeated requests.`\
+https://nytimes.com/2025/10/31/us/politics/senators-boat-strikes-drugs-trump.html
+
+**JetBlue Flight Makes Emergency Landing in Tampa After Losing Altitude**\
+`The Federal Aviation Administration said the plane “experienced a flight control issue” on Thursday. More than 15 people were taken to hospitals after it was diverted to Florida, officials said.`\
+https://nytimes.com/2025/10/31/travel/jetblue-flight-cancun.html
+
+**Here’s Who Will Be Affected by Disruptions to Federal Food Aid**\
+`More SNAP recipients live in Democratic districts. But the program touches every corner of the country.`\
+https://nytimes.com/2025/10/31/upshot/snap-food-shutdown-trump.html
+
+**The 11.2.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/10/31/the-11225-issue
+
 **What Tuesday’s Elections Might Tell Us About Trump**\
 `He’s not on the ballot, but the results could carry hints about the future of his movement.`\
 https://nytimes.com/2025/10/31/us/politics/elections-new-jersey-california-trump.html
