@@ -1,3 +1,7 @@
+**Steve Kerr calls Gregg Popovich a 'pioneer' of load management in NBA**\
+`The Warriors' coach understands the views of his former teammate, Michael Jordan, but also said "I believe in the science."`\
+https://nytimes.com/athletic/6764842/2025/10/30/steve-kerr-gregg-popovich-michael-jordan-load-management/
+
 **Jamaica Prepared a Financial Fortress for Disaster. Hurricane Melissa Will Test It.**\
 `All of Jamaica’s financial defenses — insurance, bonds and credit lines — could be deployed to recover from Hurricane Melissa. Will it be enough?`\
 https://nytimes.com/2025/10/30/world/americas/jamaica-hurricane-melissa-disaster-preparedness-finances.html
