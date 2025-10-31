@@ -1,3 +1,11 @@
+**Immigration Agents Clash With Chicago-Area Residents on Halloween**\
+`The state’s governor had called for a pause in the federal immigration crackdown over the Halloween weekend, citing concerns for children’s safety.`\
+https://nytimes.com/2025/10/31/us/politics/chicago-ice-immigration-agents.html
+
+**Trump Renovates the Lincoln Bathroom in Marble and Gold**\
+`President Trump said the new look was “totally in keeping” with the era of Abraham Lincoln.`\
+https://nytimes.com/2025/10/31/us/politics/trump-lincoln-bathroom-white-house.html
+
 **NASA Gets Moon Lander Plan B’s From SpaceX and Blue Origin**\
 `As NASA worries that China will win the next moon race, Elon Musk and his company tangled with critics.`\
 https://nytimes.com/2025/10/31/science/nasa-moon-lander-spacex-blue-origin.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6763383/2025/10/31/st-louis-city-sporting-director-
 **Top Senators Say Pentagon Has Not Shared Legal Justification for Boat Strikes**\
 `The Republican chairman and senior Democrat on the Armed Services Committee said on Friday that the Pentagon had not handed over information about the attacks despite repeated requests.`\
 https://nytimes.com/2025/10/31/us/politics/senators-boat-strikes-drugs-trump.html
-
-**JetBlue Flight Makes Emergency Landing in Tampa After Losing Altitude**\
-`The Federal Aviation Administration said the plane “experienced a flight control issue” on Thursday. More than 15 people were taken to hospitals after it was diverted to Florida, officials said.`\
-https://nytimes.com/2025/10/31/travel/jetblue-flight-cancun.html
-
-**Here’s Who Will Be Affected by Disruptions to Federal Food Aid**\
-`More SNAP recipients live in Democratic districts. But the program touches every corner of the country.`\
-https://nytimes.com/2025/10/31/upshot/snap-food-shutdown-trump.html
 
