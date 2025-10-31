@@ -1,3 +1,7 @@
+**NBA explains why Terry Rozier resumed playing amid gambling investigation**\
+`The NBA investigated Terry Rozier after multiple sports books flagged suspicious wagers on him. Then, he kept playing.`\
+https://nytimes.com/athletic/6766502/2025/10/31/nba-terry-rozier-playing-gambling-investigation/
+
 **A Republican Seeks to Match Trump’s Gains on Democratic Turf in New Jersey**\
 `With President Trump making inroads with Black and Latino voters, the path to the governor’s office runs through regions Democrats can no longer take for granted.`\
 https://nytimes.com/2025/10/31/nyregion/jack-ciattarelli-mikie-sherrill-new-jersey-black-latino-voters.html
