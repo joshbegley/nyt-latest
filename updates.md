@@ -1,3 +1,7 @@
+**Tricks, treats, and team spirit: Halloween across the sports world**\
+`Athletes' creative costumes remind everyone that they aren’t just competitors — they’re storytellers.`\
+https://nytimes.com/athletic/6767113/2025/10/31/athletes-halloween-costumes-tricks-treats-and-team-spirit-across-the-sports-world/
+
 **At a Julio Torres Halloween Party, No Look Is Too Surreal**\
 `A windmill, a cockroach, a salad: A costumed bash in Bushwick drew guests who weren’t shy around a glue gun.`\
 https://nytimes.com/2025/10/31/style/julio-torres-halloween-party-bushwick.html
