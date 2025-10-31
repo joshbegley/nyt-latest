@@ -1,3 +1,7 @@
+**Myles Turner opens up on Tyrese Haliburton, Pacers-Bucks and 'fake beefs'**\
+`Turner called Haliburton a troll and a heel, roles he said the Pacer point guard embraces, but also ones shaped by public perception.`\
+https://nytimes.com/athletic/6764921/2025/10/30/myles-turner-tyrese-haliburton-fake-beefs/
+
 **The tension of the mayor’s race hangs over a ‘unity’ event with Brooklyn Democrats.**\
 `By Tim Balk`\
 https://nytimes.com/live/2025/10/30/nyregion/nyc-mayor-election-news/the-tension-of-the-mayors-race-hangs-over-a-unity-event-with-brooklyn-democrats

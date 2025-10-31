@@ -1,3 +1,7 @@
+**Myles Turner opens up on Tyrese Haliburton, Pacers-Bucks and 'fake beefs'**\
+`Turner called Haliburton a troll and a heel, roles he said the Pacer point guard embraces, but also ones shaped by public perception.`\
+https://nytimes.com/athletic/6764921/2025/10/30/myles-turner-tyrese-haliburton-fake-beefs/
+
 **The tension of the mayor’s race hangs over a ‘unity’ event with Brooklyn Democrats.**\
 `By Tim Balk`\
 https://nytimes.com/live/2025/10/30/nyregion/nyc-mayor-election-news/the-tension-of-the-mayors-race-hangs-over-a-unity-event-with-brooklyn-democrats
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6765057/2025/10/30/dodgers-vs-blue-jays-stream-how-
 **Are 49ers still looking for an edge? Five deals that make sense as deadline nears**\
 `Yes, the 49ers acquired a pair of defensive linemen earlier this week. But neither is exactly the edge pass rusher the 49ers currently lack.`\
 https://nytimes.com/athletic/6764787/2025/10/30/49ers-trade-deadline-looking-for-edge-five-deals/
-
-**NCAA basketball tournaments will use player availability reports**\
-`The NCAA says that player availability reports aim to protect player "well-being and competition integrity from sports betting influences."`\
-https://nytimes.com/athletic/6764840/2025/10/30/ncaa-player-availability-reports-betting-march-madness/
 
