@@ -1,3 +1,7 @@
+**Rico Dowdle to take over as lead back for Panthers this week vs. Packers: Sources**\
+`After Rico Dowdle and Chuba Hubbard split carries the past two weeks, Dowdle's production put him in the spot to start this week.`\
+https://nytimes.com/athletic/6767190/2025/10/31/panthers-rico-dowdle-starting-chuba-hubbard/
+
 **The Ja Morant card featuring Young Dolph and others that became a viral hit**\
 `This 2019 Chronicles card shouldn't be Morant's most well-known rookie card, but that's what it's become`\
 https://nytimes.com/athletic/6766650/2025/10/31/ja-morant-young-dolph-card/
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000010489232/rosalia-is-asking-a-lot-of-yo
 **Kelvin LaVerne, Creator of Enigmatic Furnishings, Dies at 88**\
 `With his father, Philip, he made idiosyncratic, often monumental bronze work influenced by ancient themes. But was it art or was it furniture?`\
 https://nytimes.com/2025/10/31/arts/design/kelvin-laverne-dead.html
-
-**Flooding Remains in Some of the Hardest Hit Areas in Jamaica**\
-`Three days after Hurricane Melissa hit Jamaica, floodwaters have continued to rise in St. Elizabeth Parish because of blocked drainage system. As of Friday, homes and roads remained flooded, and power had not been restored.`\
-https://nytimes.com/video/world/americas/100000010493991/hurricane-melissa-damage-flooding.html
 

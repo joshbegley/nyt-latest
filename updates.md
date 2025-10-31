@@ -1,3 +1,19 @@
+**The Ja Morant card featuring Young Dolph and others that became a viral hit**\
+`This 2019 Chronicles card shouldn't be Morant's most well-known rookie card, but that's what it's become`\
+https://nytimes.com/athletic/6766650/2025/10/31/ja-morant-young-dolph-card/
+
+**Deadly Protests Flare After Restricted Election in Tanzania**\
+`As the violence continued for a third day, the United Nations said at least 10 people had been killed. Opposition leaders claimed the death toll could be in the hundreds.`\
+https://nytimes.com/2025/10/31/world/africa/tanzania-deadly-protests-election.html
+
+**Political Protests Turn Deadly in Tanzania**\
+`Post-election violence continued for the third day in Tanzania. At least 10 people have been killed, according to the United Nations.`\
+https://nytimes.com/video/world/africa/100000010493896/tanzania-election-protests.html
+
+**What Do You Fear?**\
+`At “Believing,” we want to hear from you.`\
+https://nytimes.com/2025/10/31/briefing/what-do-you-fear.html
+
 **This is not the first race where Sept. 11 has become an issue for Cuomo.**\
 `By Dana Rubinstein`\
 https://nytimes.com/live/2025/10/31/nyregion/nyc-mayor-election-news/this-is-not-the-first-race-where-sept-11-has-become-an-issue-for-cuomo
