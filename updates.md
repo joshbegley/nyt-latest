@@ -1,3 +1,11 @@
+**Bill de Blasio and his doppelgänger clear up the mix-up over who likes Mamdani.**\
+`By Emma G. Fitzsimmons`\
+https://nytimes.com/live/2025/10/31/nyregion/nyc-mayor-election-news/bill-de-blasio-and-his-doppelganger-clear-up-the-mix-up-over-who-likes-mamdani
+
+**Notre Dame vs. Boston College predictions: Irish in sync as final CFP push begins**\
+`Of Notre Dame’s final five games, this trip to Boston College might offer the most straightforward path to victory.`\
+https://nytimes.com/athletic/6766442/2025/10/31/notre-dame-boston-college-prediction-matchups/
+
 **Inside the text messages of the agent who became a ‘mole’ for Rob Manfred and MLB**\
 `The MLB Players Association says that in 2020 negotiations, agent Jim Murray “acted as a ‘mole’” for Manfred and his top lieutenants. `\
 https://nytimes.com/athletic/6766440/2025/10/31/mlbpa-text-messages-jim-murray-banned-agent/

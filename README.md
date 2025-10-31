@@ -1,3 +1,7 @@
+**An Old Debate Meets a New Solution for N.C.’s Confederate Statues**\
+`Three Confederate statues that were removed from communities around the state are back on view for the public — this time on private land.`\
+https://nytimes.com/2025/10/31/us/north-carolina-confederate-statues.html
+
 **Bill de Blasio and his doppelgänger clear up the mix-up over who likes Mamdani.**\
 `By Emma G. Fitzsimmons`\
 https://nytimes.com/live/2025/10/31/nyregion/nyc-mayor-election-news/bill-de-blasio-and-his-doppelganger-clear-up-the-mix-up-over-who-likes-mamdani
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/31/world/europe/king-charles-prince-andrew.html
 **How to watch Hawks vs. Pacers: Time, TV, streaming**\
 `Find out how to watch the Atlanta Hawks play the Indiana Pacers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6766727/2025/10/31/hawks-vs-pacers-stream-how-to-watch-oct-31/
-
-**How to watch Islanders vs. Capitals: Time, TV, streaming**\
-`Find out how to watch the New York Islanders play the Washington Capitals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6766725/2025/10/31/islanders-vs-capitals-stream-how-to-watch-oct-31/
 
