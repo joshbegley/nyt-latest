@@ -1,3 +1,7 @@
+**TAFC: Real Madrid's $5.2bn legal threat to UEFA. Plus: If Haaland doesn't score for City, who does?**\
+`Today in TAFC: Will Real Madrid really sue UEFA for blocking the European Super League? Plus: Who scores for City if not Haaland?`\
+https://nytimes.com/athletic/6765824/2025/10/31/real-madrid-uefa-super-league-5-2billion/
+
 **Steelers film review: Why Pittsburgh's high-priced defense is struggling**\
 `The league's most expensive defense needs to clean up its communication, technique and execution if it's going to improve.`\
 https://nytimes.com/athletic/6760441/2025/10/31/steelers-film-review-defense-struggles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6764818/2025/10/31/brian-kelly-lsu-disconnected-rec
 **Xi Delivers Veiled Warning to Nations Not to Take the U.S.’s Side**\
 `At an Asia-Pacific summit, the Chinese leader urged countries to “resist unilateral bullying,” an appeal that seemed at odds with his country’s recent actions.`\
 https://nytimes.com/2025/10/31/world/asia/china-apec-trump-trade.html
-
-**Leafs prospect report: Why it's time to give Dennis Hildeby another NHL shot**\
-`In our first prospect report of 2025-26, let's take a look at reasons for optimism among a group of Leafs prospects enjoying stellar starts.`\
-https://nytimes.com/athletic/6761244/2025/10/31/maple-leafs-prospects-dennis-hildeby-nhl/
 
