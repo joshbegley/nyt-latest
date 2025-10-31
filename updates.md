@@ -1,3 +1,15 @@
+**Vance Says He Hopes His Wife Embraces Christianity, Setting Off Backlash**\
+`Critics included some Indian Americans, who said the remarks did not respect the religious decisions of Usha Vance, who grew up in a Hindu household.`\
+https://nytimes.com/2025/10/31/us/politics/usha-jd-vance-christianity-religion-hindu.html
+
+**J.J. McCarthy to start for Vikings at quarterback vs. Lions**\
+`For the first time since mid-September, young quarterback J.J. McCarthy will start Sunday for the Minnesota Vikings.`\
+https://nytimes.com/athletic/6767203/2025/10/31/jj-mccarthy-start-vikings-lions/
+
+**Wild need to dig deep and keep this miserable homestand from spiraling**\
+`After three wins in 12 games, it's time for GM Bill Guerin to seriously look at who actually wants to be here. `\
+https://nytimes.com/athletic/6767234/2025/10/31/minnesota-wild-losing-homestand/
+
 **Wild need to dig deep and keep this miserable homestand from spiraling**\
 `After three wins in 12 games, it's time for Guerin to seriously look at who actually wants to be here. `\
 https://nytimes.com/athletic/6767234/2025/10/31/minnesota-wild-losing-homestand/

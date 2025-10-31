@@ -1,3 +1,7 @@
+**The U.S. Was Ordered to Pay Food Stamp Benefits**\
+`Also, California Democrats are feeling unusually confident. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/10/31/briefing/the-us-was-ordered-to-pay-food-stamp-benefits.html
+
 **Vance Says He Hopes His Wife Embraces Christianity, Setting Off Backlash**\
 `Critics included some Indian Americans, who said the remarks did not respect the religious decisions of Usha Vance, who grew up in a Hindu household.`\
 https://nytimes.com/2025/10/31/us/politics/usha-jd-vance-christianity-religion-hindu.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/31/health/new-york-texas-abortion-shield-lawsuit.htm
 **George Springer returns to Blue Jays' lineup for Game 6**\
 `Springer missed Games 4 and 5 after leaving Game 3 with a side injury.`\
 https://nytimes.com/athletic/6767440/2025/10/31/world-series-george-springer-blue-jays-lineup-game-6/
-
-**Dodgers shuffle lineup again, drop Mookie Betts to fourth before Game 6**\
-`Betts hasn't hit in the cleanup spot since playing for the Red Sox in 2017.`\
-https://nytimes.com/athletic/6767202/2025/10/31/dodgers-lineup-changes-world-series-mookie-betts/
 
