@@ -1,3 +1,7 @@
+**Three Billionaires Walk Into a Fried Chicken Restaurant**\
+`Jensen Huang, the Nvidia chief executive, and the leaders of Samsung and Hyundai staged a regular-folks outing in Seoul before announcing a business deal.`\
+https://nytimes.com/2025/10/31/business/nvidia-samsung-hyundai-chicken-korea.html
+
 **Will the Falcons deal Kirk Cousins at the NFL trade deadline? And what about WR?**\
 `The Falcons aren't expected to trade Cousins before the trade deadline, but there are deals that could get done, especially at receiver.`\
 https://nytimes.com/athletic/6763796/2025/10/31/kirk-cousins-nfl-trade-deadline-falcons/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/10/31/opinion/trump-autocracy-democracy-rep
 **What’s More Famous: ‘Jaws’ or ‘The Godfather’?**\
 `A ruling on the most subjective and inane dispute of all time.`\
 https://nytimes.com/interactive/2025/10/31/magazine/jaws-godfather-hodgman-quiz.html
-
-**The Unanswered Question From the Biden Autopen Controversy**\
-`What happens when a President’s physical or mental decline makes him unfit to continue to serve?`\
-https://nytimes.com/2025/10/31/opinion/biden-comer-autopen.html
 
