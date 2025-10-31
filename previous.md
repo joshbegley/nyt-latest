@@ -1,40 +1,40 @@
-**TAFC: Real Madrid's $5.2bn legal threat to UEFA. Plus: If Haaland doesn't score for City, who does?**\
-`Today in TAFC: Will Real Madrid really sue UEFA for blocking the European Super League? Plus: Who scores for City if not Haaland?`\
-https://nytimes.com/athletic/6765824/2025/10/31/real-madrid-uefa-super-league-5-2billion/
+**NYCFC's unbearable wait inches toward its end with a new stadium on the rise**\
+`As NYCFC braces to host another playoff game at a baseball stadium, its visions of a soccer-specific home are nearing fruition`\
+https://nytimes.com/athletic/6763288/2025/10/31/nycfc-new-stadium-etihad-park-queens-mls/
 
-**Steelers film review: Why Pittsburgh's high-priced defense is struggling**\
-`The league's most expensive defense needs to clean up its communication, technique and execution if it's going to improve.`\
-https://nytimes.com/athletic/6760441/2025/10/31/steelers-film-review-defense-struggles/
+**Determined Dan Hurley leads the 25 most interesting people in men’s college basketball in 2025-26**\
+`Will Hurley capture a third title in four years? Can Will Wade make NC State relevant? Who will be the nation's top freshman? `\
+https://nytimes.com/athletic/6762960/2025/10/31/dan-hurley-bruce-pearl-duke-north-carolina-college-basketball/
 
-**A handy-dandy guide to the difference between the Maple Leafs and Blue Jays: NHL Grab Bag**\
-`Featuring the inimitable Alan Thicke, technology crossovers and two players with the same name and same major-league fate.`\
-https://nytimes.com/athletic/6765046/2025/10/31/nhl-grab-bag-toronto-blue-jays-leafs/
+**Week 10’s top 10 college football games: Vanderbilt-Texas, Cincinnati-Utah, OU-Tennessee and more**\
+`Can Nebraska finally beat a ranked opponent? Can Georgia Tech avoid a trap game at NC State? Will Navy remain undefeated? `\
+https://nytimes.com/athletic/6763555/2025/10/31/week-10-top-10-cfb-games/
 
-**Why Bills-Chiefs will be huge for Keon Coleman and GM Brandon Beane's trade deadline strategy**\
-`Plus, when Gabe Davis could get back on the field.`\
-https://nytimes.com/athletic/6764413/2025/10/31/bills-chiefs-keon-coleman-steve-smith-trade-deadline/
+**Chargers' Justin Herbert on Joe Alt TD celebration: 'We're both just big kids'**\
+`“If you were like, ‘Hey, what’s Justin and Joe like?’” Ladd McConkey said. "Just watch their celebration, and that sums it up.”`\
+https://nytimes.com/athletic/6764075/2025/10/31/chargers-justin-herbert-joe-alt-viral-celebration/
 
-**As Cubs try to reach the next level, building around Nico Hoerner is a must**\
-`After staying back in Arizona and missing the season-opening trip to Japan, Hoerner played in 164 out of 168 games (including the playoffs).`\
-https://nytimes.com/athletic/6764417/2025/10/31/chicago-cubs-nico-hoerner-cornerstone-player/
+**One scary stat from each NHL team early in the 2025-26 season**\
+`It’s Halloween, and we are almost a month into the season. Here are some early stats from across the league that are downright terrifying.`\
+https://nytimes.com/athletic/6764926/2025/10/31/nhl-2025-26-season-stats-halloween/
 
-**The Pulse: Here come the Ravens**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6765448/2025/10/31/ravens-dolphins-playoffs-the-pulse/
+**Ranking the best men's nonconference games for 2025-2026: Florida-Duke takes No. 1**\
+`This year's nonconference schedule features on-campus showdowns but also major games in New York and Las Vegas. `\
+https://nytimes.com/athletic/6761032/2025/10/31/college-basketball-nonconference-schedule-best-games/
 
-**Slot says Isak likely out of Liverpool-Villa, Gravenberch may start**\
-`Gravenberch has an ankle injury while striker Isak and midfielder Jones both have groin issues.`\
-https://nytimes.com/athletic/6765989/2025/10/31/liverpool-team-news-villa-isak-gravenberch/
+**Six months after his NHL debut, Blues' Dalibor Dvorsky 'played amazing' in his return**\
+`In a loss to the Canucks that otherwise continued many spiraling trends for the Blues, Dvorsky demonstrated what the future could look like.`\
+https://nytimes.com/athletic/6765086/2025/10/31/blues-dalibor-dvorsky-nhl-return/
 
-**A confident Jamie Drysdale may be on the cusp of reaching the next level for Flyers**\
-`Drysdale's path to becoming one of the league’s more effective play-driving defensemen this season starts with his confidence.`\
-https://nytimes.com/athletic/6765408/2025/10/31/jamie-drysdale-flyers-predators-nhl/
+**The NBA integrated 75 years ago with the debuts of three Black players**\
+`The stories and legacies of Earl Lloyd, Chuck Cooper and Nat "Sweetwater" Clifton have been woven into the fabric of the NBA.`\
+https://nytimes.com/athletic/6762191/2025/10/31/nba-integration-earl-lloyd-chuck-cooper-sweetwater-clifton/
 
-**How Brian Kelly was disconnected at LSU: 'Doesn't even know the players' names'**\
-`Days after his firing, the story has formed about how the former coach never got to know his players, and ultimately the program.`\
-https://nytimes.com/athletic/6764818/2025/10/31/brian-kelly-lsu-disconnected-recruiting/
+**Behind the scenes with the All Blacks – an iconic team trying to recover its mystique**\
+`The iconic New Zealand rugby team face Ireland in Chicago on Saturday as they seek to reestablish their dominance in the sport`\
+https://nytimes.com/athletic/6760535/2025/10/31/behind-the-scenes-with-the-all-blacks-rugby/
 
-**Xi Delivers Veiled Warning to Nations Not to Take the U.S.’s Side**\
-`At an Asia-Pacific summit, the Chinese leader urged countries to “resist unilateral bullying,” an appeal that seemed at odds with his country’s recent actions.`\
-https://nytimes.com/2025/10/31/world/asia/china-apec-trump-trade.html
+**The Oilers are having trouble stomaching Evan Bouchard's mistakes – and so is he**\
+`A pair of Bouchard turnovers led to two goals in a 4-3 overtime loss to the New York Rangers on Thursday.`\
+https://nytimes.com/athletic/6765743/2025/10/31/oilers-evan-bouchard-mistakes/
 
