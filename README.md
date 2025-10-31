@@ -1,3 +1,7 @@
+**Sources: St. Louis City hiring Corey Wray as sporting director**\
+`Wray replaces Lutz Pfannenstiel, who was fired in August.`\
+https://nytimes.com/athletic/6763383/2025/10/31/st-louis-city-sporting-director-mls-corey-wray/
+
 **Top Senators Say Pentagon Has Not Shared Legal Justification for Boat Strikes**\
 `The Republican chairman and senior Democrat on the Armed Services Committee said on Friday that the Pentagon had not handed over information about the attacks despite repeated requests.`\
 https://nytimes.com/2025/10/31/us/politics/senators-boat-strikes-drugs-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6767369/2025/10/31/uefa-claim-theft-champions-leagu
 **Zoë Wicomb, Acclaimed South African Author, Dies at 76**\
 `In novels and short stories, she delivered sharp observations of the constraints and contradictions of apartheid and its aftermath.`\
 https://nytimes.com/2025/10/31/books/zoe-wicomb-dead.html
-
-**Overlooked No More: Hannah Senesh, Poet and Paratrooper Who Defied the Nazis**\
-`Senesh fled Hungary just before World War II. But unlike most Jews who escaped the Nazis, she went back to fight. Today, she is regarded as a hero in Israel.`\
-https://nytimes.com/2025/10/31/obituaries/hannah-senesh-overlooked.html
 
