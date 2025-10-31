@@ -1,3 +1,7 @@
+**Blackhawks' past, present and future collide in loss to Jonathan Toews' Jets**\
+`It's hard to avoid the pull of nostalgia watching a star of Chicago's most recent golden era on the ice. He won. The Blackhawks did not.`\
+https://nytimes.com/athletic/6765459/2025/10/30/blackhawks-jonathan-toews-past-present-future-jets/
+
 **Past, present and future collide in loss to Jonathan Toews' Jets: Observations**\
 `It's hard to avoid the pull of nostalgia watching a star of Chicago's most recent golden era on the ice. He won. The Blackhawks did not.`\
 https://nytimes.com/athletic/6765459/2025/10/30/blackhawks-jonathan-toews-past-present-future-jets/
