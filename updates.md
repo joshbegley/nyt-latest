@@ -1,3 +1,7 @@
+**Tracking the Early Vote in New York, New Jersey and Virginia**\
+`See the age breakdown in New York City and the partisanship in New Jersey and Virginia of the voters who have cast ballots so far.`\
+https://nytimes.com/2025/10/31/upshot/early-voters-2025-election.html
+
 **Mace Unleashes Diatribe at Airport Police for Missing Security Escort**\
 `The South Carolina congresswoman went on an extended shouting and cursing “tirade,” according to a police incident report, after security agents who were supposed to escort her failed to meet her as planned.`\
 https://nytimes.com/2025/10/31/us/politics/nancy-mace-airport-police-security.html
