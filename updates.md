@@ -1,3 +1,7 @@
+**Dodgers manager Dave Roberts wipes out on basepaths while trying to show off October speed**\
+`Thankfully, the 53-year-old Roberts appeared fine, or at least as fine as you could be after tasting the infield at Rogers Centre.`\
+https://nytimes.com/athletic/6765323/2025/10/30/dodgers-world-series-dave-roberts-fall/
+
 **Bucks beat Warriors despite Giannis Antetokounmpo's absence**\
 `Antetokounmpo was scratched 60 minutes before tipoff because of left knee soreness.`\
 https://nytimes.com/athletic/6765388/2025/10/30/bucks-warriors-giannis-antetokounmpo-ryan-rollins/
