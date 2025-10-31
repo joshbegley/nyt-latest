@@ -1,3 +1,7 @@
+**Flooding Remains in Some of the Hardest Hit Areas in Jamaica**\
+`Three days after Hurricane Melissa hit Jamaica, floodwaters have continued to rise in St. Elizabeth Parish because of blocked drainage system. As of Friday, homes and roads remained flooded, and power had not been restored.`\
+https://nytimes.com/video/world/americas/100000010493991/hurricane-melissa-damage-flooding.html
+
 **Sabres mailbag: Submit your questions to Matthew Fairburn**\
 `Have questions about the Sabres as the regular season enters its second month? Submit them here.`\
 https://nytimes.com/athletic/6767164/2025/10/31/buffalo-sabres-mailbag-october-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/31/us/airport-travel-delays.html
 **Scoop City: Assessing Travis Hunter as he hits IR**\
 `What we'd seen from Travis Hunter, one of the most intriguing rookies ever, before his latest injury`\
 https://nytimes.com/athletic/6767095/2025/10/31/travis-hunter-2025-season-review-injury-scoop-city/
-
-**Rosalía Swerves Again: Why She Sings in 13 Languages on ‘Lux’**\
-`The singer’s fourth album features 13 different languages, along with appearances by Björk and the London Symphony Orchestra.`\
-https://nytimes.com/video/podcasts/100000010493829/rosalia-swerves-again-why-she-sings-in-13-languages-on-lux.html
 

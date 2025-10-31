@@ -1,3 +1,15 @@
+**Sabres mailbag: Submit your questions to Matthew Fairburn**\
+`Have questions about the Sabres as the regular season enters its second month? Submit them here.`\
+https://nytimes.com/athletic/6767164/2025/10/31/buffalo-sabres-mailbag-october-2025/
+
+**What's next for Flyers prospect Jett Luchanko? A trade? World Juniors?**\
+`The Flyers have little, if any, say in the immediate future of a player for whom that they still have high hopes.`\
+https://nytimes.com/athletic/6766838/2025/10/31/jett-luchanko-flyers-juniors/
+
+**Solid Gold Toilet Heads to Auction**\
+`A toilet made from about 220 pounds of solid gold is expected to go up for auction in November. Bidding for the fully functional piece by the artist Maurizio Cattelan is expected to start at about $10 million.`\
+https://nytimes.com/video/us/100000010493820/gold-toilet-sothebys-auction.html
+
 **Falcons QB Michael Penix Jr. set to start vs. Patriots**\
 `Penix missed Atlanta's loss to Miami in Week 8.`\
 https://nytimes.com/athletic/6766407/2025/10/31/falcons-michael-penix-jr-quarterback-start/

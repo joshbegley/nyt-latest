@@ -1,3 +1,15 @@
+**Sabres mailbag: Submit your questions to Matthew Fairburn**\
+`Have questions about the Sabres as the regular season enters its second month? Submit them here.`\
+https://nytimes.com/athletic/6767164/2025/10/31/buffalo-sabres-mailbag-october-2025/
+
+**What's next for Flyers prospect Jett Luchanko? A trade? World Juniors?**\
+`The Flyers have little, if any, say in the immediate future of a player for whom that they still have high hopes.`\
+https://nytimes.com/athletic/6766838/2025/10/31/jett-luchanko-flyers-juniors/
+
+**Solid Gold Toilet Heads to Auction**\
+`A toilet made from about 220 pounds of solid gold is expected to go up for auction in November. Bidding for the fully functional piece by the artist Maurizio Cattelan is expected to start at about $10 million.`\
+https://nytimes.com/video/us/100000010493820/gold-toilet-sothebys-auction.html
+
 **Falcons QB Michael Penix Jr. set to start vs. Patriots**\
 `Penix missed Atlanta's loss to Miami in Week 8.`\
 https://nytimes.com/athletic/6766407/2025/10/31/falcons-michael-penix-jr-quarterback-start/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6767095/2025/10/31/travis-hunter-2025-season-review
 **Rosalía Swerves Again: Why She Sings in 13 Languages on ‘Lux’**\
 `The singer’s fourth album features 13 different languages, along with appearances by Björk and the London Symphony Orchestra.`\
 https://nytimes.com/video/podcasts/100000010493829/rosalia-swerves-again-why-she-sings-in-13-languages-on-lux.html
-
-**Democrats Ride Anti-Trump Message in Final Days of California Campaign**\
-`Proponents say voters are motivated by stopping President Trump. Republicans have already begun pointing fingers over lackluster fund-raising and coordination.`\
-https://nytimes.com/2025/10/31/us/politics/california-redistricting-proposition-50-trump.html
-
-**A Lesson From Dwayne ‘The Rock’ Johnson on the Perfect Punch**\
-`How does Dwayne “The Rock” Johnson throw the perfect punch? Sam Anderson, a writer for The Times Magazine who recently profiled the actor, recounts the lesson Johnson gave him, motion by motion.`\
-https://nytimes.com/video/podcasts/100000010484055/a-lesson-from-dwayne-the-rock-johnson-on-the-perfect-punch.html
-
-**‘The Rock’ on the Worst Pain He Has Ever Felt**\
-`Sam Anderson, a writer for The New York Times Magazine, joins Wesley Morris to discuss Dwayne “The Rock” Johnson’s latest movie, “The Smashing Machine,” and the worst pain that the actor has ever felt.`\
-https://nytimes.com/video/podcasts/100000010493543/the-rock-on-the-worst-pain-he-has-ever-felt.html
 
