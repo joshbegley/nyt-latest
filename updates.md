@@ -1,3 +1,11 @@
+**Europe’s New Cultural Capital Shapes the Next Generation of Classical Musicians**\
+`The Reina Sofía School Orchestra makes its Carnegie Hall debut, reflecting Madrid’s cultural rise and a new generation of classical musicians.`\
+https://nytimes.com/paidpost/the-reina-sofia-school-orchestra/europes-new-cultural-capital-shapes-the-next-generation-of-classical-musicians.html
+
+**Lyon exploring January loan move for Real Madrid's Endrick**\
+`A simple loan has been mooted, with Madrid paying part of Endrick's wages.`\
+https://nytimes.com/athletic/6760356/2025/10/31/endrick-lyon-transfer-january-real-madrid/
+
 **2025 Holiday Gift Guide**\
 `From frugal to fancy, we've curated the best gifts to help you check everyone off your list.`\
 https://nytimes.com/interactive/2025/us/holiday-gift-guide.html
