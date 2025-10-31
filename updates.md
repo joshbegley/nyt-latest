@@ -1,3 +1,23 @@
+**Tottenham captain Romero available for Chelsea, Udogie & Odobert also fit**\
+`Romero has missed four consecutive matches across the league, Champions League and Carabao Cup with an adductor injury.`\
+https://nytimes.com/athletic/6766445/2025/10/31/tottenham-team-news-romero-udogie-odobert/
+
+**Here’s Why Curtis Sliwa Wears That Red Beret**\
+`The distinctive headpiece traces its origins to a time when both crime and Mr. Sliwa’s public profile were on the rise.`\
+https://nytimes.com/2025/10/31/nyregion/curtis-sliwa-red-beret.html
+
+**College football best bets Week 10: Picks for Georgia-Florida, Tennessee-Oklahoma and more**\
+`Austin Mock's College Football Projection Model has identified a handful of best bets for Week 10.`\
+https://nytimes.com/athletic/6766303/2025/10/31/college-football-best-bets-week-10-oklahoma-tennessee-georgia-florida/
+
+**U.N. Human Rights Chief Says U.S. Attacks on Accused Drug Smugglers Are Illegal**\
+`The Trump administration’s military strikes on boats near South and Central America violate international law and must be investigated, a top official says.`\
+https://nytimes.com/2025/10/31/world/americas/un-us-military-boat-strikes.html
+
+**Kim Kardashian, We Have Indeed Been to the Moon, NASA Says**\
+`NASA’s chief, Sean Duffy, set the record straight after Kim Kardashian repeated the conspiracy theory that the 1969 moon landing had been faked.`\
+https://nytimes.com/2025/10/31/us/politics/kim-kardashian-moon-landing-nasa-sean-duffy.html
+
 **Week 9 fantasy football intel, predictions using player prop lines**\
 `Brad Evans scours the sportsbooks to find fantasy intel that can help you in your Week 9 lineups. `\
 https://nytimes.com/athletic/6763270/2025/10/31/week-9-fantasy-football-predictions-player-props/
