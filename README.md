@@ -1,3 +1,7 @@
+**Tracking the Early Vote in New York, New Jersey and Virginia**\
+`See the age breakdown in New York City and the partisanship in New Jersey and Virginia of the voters who have cast ballots so far.`\
+https://nytimes.com/2025/10/31/upshot/early-voters-2025-election.html
+
 **Mace Unleashes Diatribe at Airport Police for Missing Security Escort**\
 `The South Carolina congresswoman went on an extended shouting and cursing “tirade,” according to a police incident report, after security agents who were supposed to escort her failed to meet her as planned.`\
 https://nytimes.com/2025/10/31/us/politics/nancy-mace-airport-police-security.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/magazine/2025/10/31/the-11225-issue
 **What Tuesday’s Elections Might Tell Us About Trump**\
 `He’s not on the ballot, but the results could carry hints about the future of his movement.`\
 https://nytimes.com/2025/10/31/us/politics/elections-new-jersey-california-trump.html
-
-**Giants ace Logan Webb on manager Tony Vitello: 'We're all super excited'**\
-`"He seems like he has a ton of energy," Webb said of the Giants' new manager. "He's very smart. He brings a ton of passion."`\
-https://nytimes.com/athletic/6767553/2025/10/31/sf-giants-logan-webb-tony-vitello-super-excited/
 
