@@ -1,4 +1,4 @@
-**Tottenham captain Romero available for Chelsea, Udogie & Odobert also fit**\
+**Romero available for Spurs-Chelsea, Udogie and Odobert also fit**\
 `Romero has missed four consecutive matches across the league, Champions League and Carabao Cup with an adductor injury.`\
 https://nytimes.com/athletic/6766445/2025/10/31/tottenham-team-news-romero-udogie-odobert/
 
