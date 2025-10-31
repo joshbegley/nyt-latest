@@ -1,3 +1,23 @@
+**Listen to‘The Preventionist’ Everywhere**\
+`The host of Serial Productions’ new series shares a brief history of the early days of child protection.`\
+https://nytimes.com/2025/10/31/podcasts/serial-newsletter-the-preventionist.html
+
+**Leeds United mailbag: Elland Road redevelopment latest, January plans, loanees**\
+`Leeds United reporter Beren Cross has answered your questions in our latest mailbag`\
+https://nytimes.com/athletic/6766607/2025/10/31/leeds-united-transfer-latest-elland-road/
+
+**Arizona State QB Sam Leavitt will miss the rest of the season with foot injury**\
+`Leavitt will undergo surgery next week to repair an issue that has lingered since Arizona State’s win over Baylor in September. `\
+https://nytimes.com/athletic/6766812/2025/10/31/sam-leavitt-arizona-state-injury/
+
+**NCAA hosting FCS Showcase for draft-eligible prospects before title game**\
+`Each NFL team has been asked to nominate a list of 10-15 prospects it would like to evaluate at the showcase.`\
+https://nytimes.com/athletic/6766721/2025/10/31/ncaa-fcs-nfl-draft-prospects-showcase/
+
+**As Shutdown Slows Air Traffic Training, These Schools Are Stepping In**\
+`New programs cannot turn out the numbers needed to make up for the controller shortfall. But they hope to have a higher success rate than the Federal Aviation Agency’s official academy.`\
+https://nytimes.com/2025/10/31/us/politics/air-traffic-control-training-shutdown.html
+
 **An Old Debate Meets a New Solution for N.C.’s Confederate Statues**\
 `Three Confederate statues that were removed from communities around the state are back on view for the public — this time on private land.`\
 https://nytimes.com/2025/10/31/us/north-carolina-confederate-statues.html
