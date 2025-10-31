@@ -15,7 +15,7 @@ https://nytimes.com/video/world/americas/100000010493991/hurricane-melissa-damag
 https://nytimes.com/athletic/6767164/2025/10/31/buffalo-sabres-mailbag-october-2025/
 
 **What's next for Flyers prospect Jett Luchanko? A trade? World Juniors?**\
-`The Flyers have little, if any, say in the immediate future of a player for whom that they still have high hopes.`\
+`The Flyers have little, if any, say in the immediate future of a player for whom they still have high hopes.`\
 https://nytimes.com/athletic/6766838/2025/10/31/jett-luchanko-flyers-juniors/
 
 **Solid Gold Toilet Heads to Auction**\
