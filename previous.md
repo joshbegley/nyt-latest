@@ -1,3 +1,7 @@
+**Buster Posey on Giants manager Tony Vitello: 'He's gonna be OK with ruffling feathers'**\
+`"It's sports, it's entertainment," Posey said. "I mean, for me, there's an argument to be made that we're lacking that severely right now."`\
+https://nytimes.com/athletic/6765203/2025/10/30/sf-giants-manager-tony-vitello-buster-posey-ruffling-feathers/
+
 **Steve Kerr calls Gregg Popovich a 'pioneer' of load management in NBA**\
 `The Warriors' coach understands the views of his former teammate, Michael Jordan, but also said "I believe in the science."`\
 https://nytimes.com/athletic/6764842/2025/10/30/steve-kerr-gregg-popovich-michael-jordan-load-management/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/30/us/politics/ohio-redistricting-deal.html
 **Trump Returns to White House in Time to Greet Trick-or-Treaters**\
 `President Trump, who did not wear a costume, and the first lady handed out candy at the annual Halloween celebration at the White House.`\
 https://nytimes.com/2025/10/30/us/politics/trump-halloween-candy-white-house.html
-
-**WNBA and players union agree to extension for CBA negotiations**\
-`The new deadline to reach a deal is Nov. 30.`\
-https://nytimes.com/athletic/6765085/2025/10/30/wnba-players-union-extension-cba/
 

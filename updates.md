@@ -1,3 +1,7 @@
+**Buster Posey on Giants manager Tony Vitello: 'He's gonna be OK with ruffling feathers'**\
+`"It's sports, it's entertainment," Posey said. "I mean, for me, there's an argument to be made that we're lacking that severely right now."`\
+https://nytimes.com/athletic/6765203/2025/10/30/sf-giants-manager-tony-vitello-buster-posey-ruffling-feathers/
+
 **Steve Kerr calls Gregg Popovich a 'pioneer' of load management in NBA**\
 `The Warriors' coach understands the views of his former teammate, Michael Jordan, but also said "I believe in the science."`\
 https://nytimes.com/athletic/6764842/2025/10/30/steve-kerr-gregg-popovich-michael-jordan-load-management/
