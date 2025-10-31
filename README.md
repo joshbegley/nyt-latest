@@ -1,3 +1,7 @@
+**Zoë Wicomb, Acclaimed South African Author, Dies at 76**\
+`In novels and short stories, she delivered sharp observations of the constraints and contradictions of apartheid and its aftermath.`\
+https://nytimes.com/2025/10/31/books/zoe-wicomb-dead.html
+
 **Overlooked No More: Hannah Senesh, Poet and Paratrooper Who Defied the Nazis**\
 `Senesh fled Hungary just before World War II. But unlike most Jews who escaped the Nazis, she went back to fight. Today, she is regarded as a hero in Israel.`\
 https://nytimes.com/2025/10/31/obituaries/hannah-senesh-overlooked.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6760666/2025/10/31/brock-purdy-injury-update-49ers-
 **Former Brighton director Weir joins Chelsea sister club Strasbourg**\
 `Weir becomes the latest person formerly affiliated with Brighton to either be signed or appointed by BlueCo.`\
 https://nytimes.com/athletic/6767481/2025/10/31/david-weir-chelsea-brighton-blueco-strasbourg/
-
-**Why is Joe Flacco trying to play through a sprained AC joint? Check his history**\
-`“I do feel a sense of obligation being out there for the guys you play with,” Flacco said. “I’m not changing it now.”`\
-https://nytimes.com/athletic/6767169/2025/10/31/bengals-joe-flacco-playing-injury/
 
