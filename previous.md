@@ -1,3 +1,27 @@
+**Pork Chile Verde Revives and Restores**\
+`Kay Chun’s recipe is just the thing to anchor a weekend of monster mashes and graveyard smashes.`\
+https://nytimes.com/2025/10/31/dining/pork-chile-verde-revives-and-restores.html
+
+**Watch a Tense Scene From ‘A House of Dynamite’**\
+`The film’s director, Kathryn Bigelow, narrates a heightened sequence in which a nuclear missile is headed for the United States.`\
+https://nytimes.com/2025/10/31/movies/a-house-of-dynamite-clip.html
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include convicted swordsmen, crooked cops and bumbling heroes who can’t feel pain.`\
+https://nytimes.com/2025/10/31/movies/action-movies-streaming.html
+
+**‘A House of Dynamite’ | Anatomy of a Scene**\
+`The director Kathryn Bigelow narrates a tense sequence from her film, in which a ballistic missile is headed for the United States.`\
+https://nytimes.com/video/movies/100000010493466/a-house-of-dynamite-scene.html
+
+**How Colts' 2025 offense compares to juggernauts of the past (and present)**\
+`Just how good is this Colts offense? We look at the numbers and compare Indy to some of the league's best in recent memory.`\
+https://nytimes.com/athletic/6766405/2025/10/31/colts-offense-history-analysis/
+
+**16 Cold-Weather Hiking Gifts From REI to Fuel Their Next Adventure**\
+`From essential to extravagant, these will keep your loved ones comfortable and ready for the elements.`\
+https://nytimes.com/paidpost/rei/16-cold-weather-hiking-gifts-from-rei-to-fuel-their-next-adventure.html
+
 **Scenes From Halloween in New York City**\
 `You know it’s late October when your subway seatmate is Elphaba or Beetlejuice.`\
 https://nytimes.com/2025/10/31/nyregion/new-york-city-halloween-photos.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6765257/2025/10/31/nba-gambling-investigation-betti
 **LSU leaders: Interim AD Verge Ausberry has 'full authority' in coaching search**\
 `The Friday news conference capped a frenetic week in Baton Rouge that included the departures of Brian Kelly and the AD who hired him.`\
 https://nytimes.com/athletic/6766511/2025/10/31/lsu-coaching-search-verge-ausberry-governor/
-
-**Cardinals' Bloom hires former Astros farm director, adds pro scouting director**\
-`The front-office changes indicate significant operational shifts under new president of baseball operations Chaim Bloom.`\
-https://nytimes.com/athletic/6764506/2025/10/31/stl-cardinals-front-office-hires-jacob-buffa-douglas/
-
-**NHL Power Rankings: A new No. 1, plus your team's top Halloween costume**\
-`We’ve rounded up our favorite Halloween costumes from around the league for our first-ever power rankings costume contest.`\
-https://nytimes.com/athletic/6766180/2025/10/31/nhl-power-rankings-halloween-2/
-
-**A Halloween Tradition People Love to ‘Hate’**\
-`No reference is too obscure for “Gay Halloween” — the rare meme with staying power.`\
-https://nytimes.com/2025/10/31/style/gay-halloween-costumes-meme.html
-
-**The Golden Toilet Returns as a Sotheby’s Headliner, for $10 Million**\
-`The flushable sculpture, “America,” was made by Maurizio Cattelan, the artist whose banana taped to the wall sold for $6.2 million last year.`\
-https://nytimes.com/2025/10/31/arts/design/gold-toilet-sothebys-auction-cattelan-10-million.html
-
-**Romero available for Spurs-Chelsea, Udogie and Odobert also fit**\
-`Romero has missed four consecutive matches across the league, Champions League and Carabao Cup with an adductor injury.`\
-https://nytimes.com/athletic/6766445/2025/10/31/tottenham-team-news-romero-udogie-odobert/
-
-**Here’s Why Curtis Sliwa Wears That Red Beret**\
-`The distinctive headpiece traces its origins to a time when both crime and Mr. Sliwa’s public profile were on the rise.`\
-https://nytimes.com/2025/10/31/nyregion/curtis-sliwa-red-beret.html
 
