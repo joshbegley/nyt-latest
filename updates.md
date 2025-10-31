@@ -1,3 +1,7 @@
+**Leafs prospect report: Why it's time to give Dennis Hildeby another NHL shot**\
+`In our first prospect report of 2025-26, let's take a look at reasons for optimism among a group of Leafs prospects enjoying stellar starts.`\
+https://nytimes.com/athletic/6761244/2025/10/31/maple-leafs-prospects-dennis-hildeby-nhl/
+
 **How Saudi Arabia and Qatar Benefited From Rule Changes to Reach the World Cup**\
 `A soccer governing body that both countries have helped bankroll gave them extra rest and home-field advantage to set up World Cup qualification.`\
 https://nytimes.com/2025/10/31/world/asia/saudi-arabia-qatar-world-cup-rules.html
