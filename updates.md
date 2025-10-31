@@ -1,3 +1,11 @@
+**Dunk will receive 'all the support he needs' to recover form - Hurzeler**\
+`The long-serving club captain is set to return for Brighton's home game against Leeds United on Saturday.`\
+https://nytimes.com/athletic/6765856/2025/10/31/lewis-dunk-brighton-captain/
+
+**The 20 best free agents to sign in Football Manager 2026**\
+`If you're playing FM26 and working to a tight budget, turning to the free agent market may be your best option...`\
+https://nytimes.com/athletic/6756987/2025/10/31/football-manager-2026-best-free-agents-fm26/
+
 **Three Billionaires Walk Into a Fried Chicken Restaurant**\
 `Jensen Huang, the Nvidia chief executive, and the leaders of Samsung and Hyundai staged a regular-folks outing in Seoul before announcing a business deal.`\
 https://nytimes.com/2025/10/31/business/nvidia-samsung-hyundai-chicken-korea.html
