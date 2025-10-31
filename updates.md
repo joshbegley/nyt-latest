@@ -1,3 +1,7 @@
+**Early Premier League relegation analysis: Who's in trouble?**\
+`Analysing which teams are at most risk of relegation, why, and how they can improve their chances of survival`\
+https://nytimes.com/athletic/6763075/2025/10/31/premier-league-relegation-chances/
+
 **Canada’s Other Superpower Problem**\
 `The leaders of Canada and China will meet for the first time in eight years to try to reset relations after years of acrimony.`\
 https://nytimes.com/2025/10/31/world/canada/carney-xi-meeting-canada-china.html
