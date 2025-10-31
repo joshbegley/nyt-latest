@@ -1,3 +1,7 @@
+**Selma van de Perre, Dutch Jew Who Resisted Nazis, Dies at 103**\
+`“It is impossible not to marvel at her steadiness and courage,” one reviewer wrote after reading her memoir.`\
+https://nytimes.com/2025/10/31/world/europe/selma-van-de-perre-dead.html
+
 **Millions at Risk of Hunger as Food Stamp Freeze Looms**\
 `Forty-two million low-income Americans are expected to lose access to food assistance on Nov. 1, making it the most significant and dire casualty of a governmentwide closure that has stretched into its fifth week.`\
 https://nytimes.com/video/us/politics/100000010493304/snap-food-stamp-freeze.html

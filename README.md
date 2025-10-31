@@ -1,3 +1,11 @@
+**Despite Trump’s Call, Thune Remains Opposed to Changing the Filibuster**\
+`The Senate majority leader is unwilling to pursue the “nuclear option” to blow past a Democratic filibuster and reopen the government.`\
+https://nytimes.com/2025/10/31/us/politics/senate-filibuster-government-shutdown.html
+
+**Jaguars WR Travis Hunter headed to IR after non-contact injury**\
+`Hunter injured his knee in a non-contact situation during practice on Thursday.`\
+https://nytimes.com/athletic/6766653/2025/10/31/travis-hunter-jaguars-injury-ir/
+
 **Selma van de Perre, Dutch Jew Who Resisted Nazis, Dies at 103**\
 `“It is impossible not to marvel at her steadiness and courage,” one reviewer wrote after reading her memoir.`\
 https://nytimes.com/2025/10/31/world/europe/selma-van-de-perre-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/movies/100000010493466/a-house-of-dynamite-scene.html
 **How Colts' 2025 offense compares to juggernauts of the past (and present)**\
 `Just how good is this Colts offense? We look at the numbers and compare Indy to some of the league's best in recent memory.`\
 https://nytimes.com/athletic/6766405/2025/10/31/colts-offense-history-analysis/
-
-**16 Cold-Weather Hiking Gifts From REI to Fuel Their Next Adventure**\
-`From essential to extravagant, these will keep your loved ones comfortable and ready for the elements.`\
-https://nytimes.com/paidpost/rei/16-cold-weather-hiking-gifts-from-rei-to-fuel-their-next-adventure.html
-
-**Scenes From Halloween in New York City**\
-`You know it’s late October when your subway seatmate is Elphaba or Beetlejuice.`\
-https://nytimes.com/2025/10/31/nyregion/new-york-city-halloween-photos.html
 
