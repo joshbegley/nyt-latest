@@ -1,3 +1,8 @@
+**Declan Rice, Bukayo Saka and the perfect corner delivery**\
+`The taker is the most important player in the set-piece routine, and Mikel Arteta's side now have several strong options to choose from
+`\
+https://nytimes.com/athletic/6759562/2025/10/31/declan-rice-bukayo-saka-arsenal-set-pieces/
+
 **What is Arne Slot like when the pressure is really on?**\
 `Six losses in seven games is the worst run of the Liverpool head coach's career - but he has navigated difficult situations before`\
 https://nytimes.com/athletic/6763360/2025/10/31/arne-slot-liverpool-pressure/
