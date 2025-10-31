@@ -22,7 +22,7 @@ https://nytimes.com/interactive/2025/10/31/nyregion/31met-nycm-celebrity-quiz.ht
 `What players, teams and story lines are you excited about?`\
 https://nytimes.com/2025/10/31/learning/basketball-season.html
 
-**If Elected, How Might Mamdani Use Mayoral Power in Anti-Zionist Ways?**\
+**If Elected, How Might Mamdani Use Mayoral Power in Ways That Affect Israel?**\
 `Zohran Mamdani’s opposition to Israel’s treatment of Palestinians could influence New York City’s investments, his appointees and city policing tactics.`\
 https://nytimes.com/2025/10/31/nyregion/mamdani-boycott-israel.html
 

@@ -1,3 +1,7 @@
+**If Elected, How Might Mamdani Use Mayoral Power in Ways That Affect Israel?**\
+`Zohran Mamdani’s opposition to Israel’s treatment of Palestinians could influence New York City’s investments, his appointees and city policing tactics.`\
+https://nytimes.com/2025/10/31/nyregion/mamdani-boycott-israel.html
+
 **Serie A and Scottish Premiership provide some welcome surprises**\
 `It's not just the Premier League where results this season are spicing things up and adding some variety to the early stages of the title ra`\
 https://nytimes.com/athletic/6765312/2025/10/31/old-firm-derby-serie-a-race/
