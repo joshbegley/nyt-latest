@@ -1,3 +1,7 @@
+**Ravens-Dolphins takeaways: Lamar Jackson throws 4 TD passes in first start since Week 4**\
+`The star quarterback played his first game since being injured in Week 4, and Baltimore looks like it's starting to gain momentum.`\
+https://nytimes.com/athletic/6765372/2025/10/30/ravens-dolphins-score-result-takeaways-thursday-night-football/
+
 **Dodgers manager Dave Roberts wipes out on basepaths while trying to show off October speed**\
 `Thankfully, the 53-year-old Roberts appeared fine, or at least as fine as you could be after tasting the infield at Rogers Centre.`\
 https://nytimes.com/athletic/6765323/2025/10/30/dodgers-world-series-dave-roberts-fall/
