@@ -1,3 +1,27 @@
+**Jimmy Kimmel Can’t Believe He Agrees With Marjorie Taylor Greene**\
+`“Sometimes you go so far right you come out on the other side,” Kimmel said of the congresswoman, who has clashed with fellow Republicans over health care.`\
+https://nytimes.com/2025/10/31/arts/television/jimmy-kimmel-marjorie-taylor-greene.html
+
+**Mamdani’s Speech About Being Muslim Resonates Beyond New York City**\
+`A video of a recent address by Zohran Mamdani, the Democratic mayoral candidate, has been viewed more than 25 million times.`\
+https://nytimes.com/2025/10/31/nyregion/mamdanis-speech-about-being-muslim-resonates-beyond-new-york-city.html
+
+**The N.Y.C. Marathon Celebrity Quiz: Can You Guess the Fast and Famous?**\
+`Can you identify these star New York City Marathon runners?`\
+https://nytimes.com/interactive/2025/10/31/nyregion/31met-nycm-celebrity-quiz.html
+
+**Basketball Season**\
+`What players, teams and story lines are you excited about?`\
+https://nytimes.com/2025/10/31/learning/basketball-season.html
+
+**If Elected, How Might Mamdani Use Mayoral Power in Anti-Zionist Ways?**\
+`Zohran Mamdani’s opposition to Israel’s treatment of Palestinians could influence New York City’s investments, his appointees and city policing tactics.`\
+https://nytimes.com/2025/10/31/nyregion/mamdani-boycott-israel.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/31/crosswords/spelling-bee-forum.html
+
 **YouTube TV Users Lose Access to Disney and ESPN**\
 `Talks between YouTube TV and Disney about fees broke down on Thursday ahead of a deadline. YouTube TV said Disney removed its channels from the streaming platform.`\
 https://nytimes.com/2025/10/31/business/media/youtube-tv-disney-espn.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6765672/2025/10/31/golden-state-warriors-lose-giann
 **Word of the Day: felicitous**\
 `This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/10/31/learning/word-of-the-day-felicitous.html
-
-**Spurs have won just four home league matches in a year - are the answers off the pitch?**\
-`A downturn in Tottenham's home form and the atmosphere in N17 have led some fan groups to take action...`\
-https://nytimes.com/athletic/6754187/2025/10/31/tottenham-hotspur-stadium-home-form/
-
-**Are these Ruben Amorim's seven undroppables at Manchester United?**\
-`Manchester United have been on a three-match league winning run — and it is focused around a number of key players`\
-https://nytimes.com/athletic/6744891/2025/10/31/manchester-united-ruben-amorim-starting-line-up-analysis/
-
-**What is Arne Slot like when the pressure is really on?**\
-`Six losses in seven games is the worst run of the Liverpool head coach's career - but he has navigated difficult situations before`\
-https://nytimes.com/athletic/6763360/2025/10/31/arne-slot-liverpool-pressure/
-
-**Early Premier League relegation analysis: Who's in trouble?**\
-`Analysing which teams are at most risk of relegation, why, and how they can improve their chances of survival`\
-https://nytimes.com/athletic/6763075/2025/10/31/premier-league-relegation-chances/
-
-**FPL tips: As the mid-priced forward market heats up, here’s who to consider**\
-`The regressing returns of Joao Pedro in recent weeks have left many FPL teams in need of a surefire option for goals at a reasonable price`\
-https://nytimes.com/athletic/6762600/2025/10/31/fantasy-premier-league-tips-gameweek-10/
-
-**Xabi Alonso and the forever problem of Real Madrid's dressing room**\
-`The Spanish club's new manager has some unhappy players on his hands. He's far from the first to encounter that at the Bernabeu...`\
-https://nytimes.com/athletic/6763240/2025/10/31/xabi-alonso-real-madrid-dressing-room/
 
