@@ -1,3 +1,11 @@
+**Twenty Years On, Darfur Tips Into Chaos Again**\
+`The world seems unable, or unwilling, to do much to stop a new struggle on an old battlefield, as atrocities sweep villages and towns.`\
+https://nytimes.com/2025/10/31/world/africa/darfur-sudan-atrocities.html
+
+**UEFA facing £17.5m claim for alleged theft of new Champions League format**\
+`The governing body has not yet been formally notified of the action but, once it is, will have 20 business days to respond.`\
+https://nytimes.com/athletic/6767369/2025/10/31/uefa-claim-theft-champions-league/
+
 **Zoë Wicomb, Acclaimed South African Author, Dies at 76**\
 `In novels and short stories, she delivered sharp observations of the constraints and contradictions of apartheid and its aftermath.`\
 https://nytimes.com/2025/10/31/books/zoe-wicomb-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6767203/2025/10/31/jj-mccarthy-start-vikings-lions/
 **Wild need to dig deep and keep this miserable homestand from spiraling**\
 `After three wins in 12 games, it's time for GM Bill Guerin to seriously look at who actually wants to be here. `\
 https://nytimes.com/athletic/6767234/2025/10/31/minnesota-wild-losing-homestand/
-
-**Brock Purdy questionable vs. Giants, but Mac Jones will start for 49ers**\
-`Purdy has started just two games this season because of a lingering big toe injury.`\
-https://nytimes.com/athletic/6760666/2025/10/31/brock-purdy-injury-update-49ers-giants/
-
-**Former Brighton director Weir joins Chelsea sister club Strasbourg**\
-`Weir becomes the latest person formerly affiliated with Brighton to either be signed or appointed by BlueCo.`\
-https://nytimes.com/athletic/6767481/2025/10/31/david-weir-chelsea-brighton-blueco-strasbourg/
 
