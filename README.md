@@ -1,3 +1,15 @@
+**Tottenham captain Romero available for Chelsea, Udogie & Odobert also fit**\
+`Romero has missed four consecutive matches across the league, Champions League and Carabao Cup with an adductor injury.`\
+https://nytimes.com/athletic/6766445/2025/10/31/tottenham-team-news-romero-udogie-odobert/
+
+**Here’s Why Curtis Sliwa Wears That Red Beret**\
+`The distinctive headpiece traces its origins to a time when both crime and Mr. Sliwa’s public profile were on the rise.`\
+https://nytimes.com/2025/10/31/nyregion/curtis-sliwa-red-beret.html
+
+**College football best bets Week 10: Picks for Georgia-Florida, Tennessee-Oklahoma and more**\
+`Austin Mock's College Football Projection Model has identified a handful of best bets for Week 10.`\
+https://nytimes.com/athletic/6766303/2025/10/31/college-football-best-bets-week-10-oklahoma-tennessee-georgia-florida/
+
 **U.N. Human Rights Chief Says U.S. Attacks on Accused Drug Smugglers Are Illegal**\
 `The Trump administration’s military strikes on boats near South and Central America violate international law and must be investigated, a top official says.`\
 https://nytimes.com/2025/10/31/world/americas/un-us-military-boat-strikes.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6765568/2025/10/31/world-series-game-6-the-windup/
 **Unlocking the Grid**\
 `The U.S. runs on electricity — lots of it. See where the country’s energy comes from, where it goes and how the grid is changing to face the demands of tomorrow.`\
 https://nytimes.com/paidpost/siemens-energy/unlocking-the-grid.html
-
-**Federal Court to Rule on Fate of Food Stamps During the Shutdown**\
-`States have sued to spare millions of low-income Americans from losing benefits starting on Saturday, after the Trump administration said it would not fund them.`\
-https://nytimes.com/2025/10/31/us/politics/federal-judge-food-stamps.html
-
-**He Alone Tracked Leaky Oil Wells in National Parks. He Was Let Go.**\
-`Forrest Smith was forced to step down last month as the National Park Service’s chief petroleum engineer. He wasn’t replaced.`\
-https://nytimes.com/2025/10/31/climate/national-parks-orphan-wells.html
-
-**Pistons are prepped to bring some 'Deeeetroit Basketball' to fans in Mexico City**\
-`The Pistons are the home team in Mexico City which means they're going to be putting on a show for their international fans. `\
-https://nytimes.com/athletic/6766304/2025/10/31/detroit-pistons-mexico-city-nba-fans-international/
 
