@@ -1,3 +1,11 @@
+**Dodgers shuffle lineup again, drop Mookie Betts to fourth before Game 6**\
+`Betts hasn't hit in the cleanup spot since playing for the Red Sox in 2017.`\
+https://nytimes.com/athletic/6767202/2025/10/31/dodgers-lineup-changes-world-series-mookie-betts/
+
+**What Happened to the Art of the Deal?**\
+`We urge the administration to allow millions of Americans to receive food aid.`\
+https://nytimes.com/2025/10/31/opinion/shutdown-snap-trump-deal.html
+
 **Athletes' Halloween costumes: Tricks, treats and team spirit**\
 `Athletes' creative costumes remind everyone that they aren’t just competitors — they’re storytellers.`\
 https://nytimes.com/athletic/6767113/2025/10/31/athletes-halloween-costumes-tricks-treats-and-team-spirit-across-the-sports-world/

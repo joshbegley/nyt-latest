@@ -1,3 +1,11 @@
+**Dodgers shuffle lineup again, drop Mookie Betts to fourth before Game 6**\
+`Betts hasn't hit in the cleanup spot since playing for the Red Sox in 2017.`\
+https://nytimes.com/athletic/6767202/2025/10/31/dodgers-lineup-changes-world-series-mookie-betts/
+
+**What Happened to the Art of the Deal?**\
+`We urge the administration to allow millions of Americans to receive food aid.`\
+https://nytimes.com/2025/10/31/opinion/shutdown-snap-trump-deal.html
+
 **Athletes' Halloween costumes: Tricks, treats and team spirit**\
 `Athletes' creative costumes remind everyone that they aren’t just competitors — they’re storytellers.`\
 https://nytimes.com/athletic/6767113/2025/10/31/athletes-halloween-costumes-tricks-treats-and-team-spirit-across-the-sports-world/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6767353/2025/10/31/lakers-vs-grizzlies-stream-how-t
 **How to watch Knicks vs. Bulls: Time, TV, streaming**\
 `Find out how to watch the New York Knicks play the Chicago Bulls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6767351/2025/10/31/knicks-vs-bulls-stream-how-to-watch-oct-31/
-
-**How to watch Jazz vs. Suns: Time, TV, streaming**\
-`Find out how to watch the Utah Jazz play the Phoenix Suns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6767349/2025/10/31/jazz-vs-suns-stream-how-to-watch-oct-31/
-
-**Rico Dowdle to take over as lead back for Panthers this week vs. Packers: Sources**\
-`After Rico Dowdle and Chuba Hubbard split carries the past two weeks, Dowdle's production put him in the spot to start this week.`\
-https://nytimes.com/athletic/6767190/2025/10/31/panthers-rico-dowdle-starting-chuba-hubbard/
 
