@@ -1,3 +1,7 @@
+**27 U.S. cities and areas apply to host games at 2031 Men’s Rugby World Cup**\
+`The World Rugby CEO also said consideration is being given to taking one-off fixtures to the U.S.`\
+https://nytimes.com/athletic/6767573/2025/10/31/27-u-s-cities-and-areas-apply-to-host-games-at-2031-mens-rugby-world-cup/
+
 **Sources: St. Louis City hiring Corey Wray as sporting director**\
 `Wray replaces Lutz Pfannenstiel, who was fired in August.`\
 https://nytimes.com/athletic/6763383/2025/10/31/st-louis-city-sporting-director-mls-corey-wray/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/31/world/africa/darfur-sudan-atrocities.html
 **UEFA facing £17.5m claim for alleged theft of new Champions League format**\
 `Europe's premier club competition switched to a 36-team 'league phase' last season`\
 https://nytimes.com/athletic/6767369/2025/10/31/uefa-claim-theft-champions-league/
-
-**Zoë Wicomb, Acclaimed South African Author, Dies at 76**\
-`In novels and short stories, she delivered sharp observations of the constraints and contradictions of apartheid and its aftermath.`\
-https://nytimes.com/2025/10/31/books/zoe-wicomb-dead.html
 

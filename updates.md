@@ -1,3 +1,7 @@
+**Sources: St. Louis City hiring Corey Wray as sporting director**\
+`Wray replaces Lutz Pfannenstiel, who was fired in August.`\
+https://nytimes.com/athletic/6763383/2025/10/31/st-louis-city-sporting-director-mls-corey-wray/
+
 **Top Senators Say Pentagon Has Not Shared Legal Justification for Boat Strikes**\
 `The Republican chairman and senior Democrat on the Armed Services Committee said on Friday that the Pentagon had not handed over information about the attacks despite repeated requests.`\
 https://nytimes.com/2025/10/31/us/politics/senators-boat-strikes-drugs-trump.html
