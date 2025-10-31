@@ -1,3 +1,16 @@
+**How the Trump-Xi Meeting Eased a Major Trade War**\
+`President Trump and China’s leader Xi Jinping just had a highly anticipated meeting in South Korea. David Pierson, a New York Times foreign correspondent covering China, breaks down what they accomplished and how they de-escalated a major trade war.`\
+https://nytimes.com/video/world/asia/100000010489449/trump-xi-jinping-trade-war.html
+
+**Warriors get what they deserve in loss to Giannis-less Bucks**\
+`Citing mental and physical fatigue by his squad, Steve Kerr said 'It did not look like our team out there.'`\
+https://nytimes.com/athletic/6765672/2025/10/31/golden-state-warriors-lose-giannis-out/
+
+**Declan Rice, Bukayo Saka and the perfect corner delivery**\
+`The taker is the most important player in the set-piece routine, and Mikel Arteta's side now have several strong options to choose from
+`\
+https://nytimes.com/athletic/6759562/2025/10/31/declan-rice-bukayo-saka-arsenal-set-pieces/
+
 **Declan Rice, Bukayo Saka and the perfect corner delivery**\
 `The taker is the most important player in the set-piece routine, and Mikel Arteta's side now have several strong options to choose from
 `\
