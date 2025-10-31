@@ -1,3 +1,7 @@
+**The Giants have their manager. Now comes the hard part — giving him a winning roster**\
+`In a best-case scenario, this is the last time Giants fans will need to think about Tony Vitello and the next time will be in the playoffs.`\
+https://nytimes.com/athletic/6764757/2025/10/31/sf-giants-new-manager-offseason-goals/
+
 **John Gibson's return to Anaheim a reminder of what he did — and endured — with Ducks**\
 `Gibson returns to Anaheim, where he spent 12 years of his career, on Friday for the first time since being traded to the Red Wings in June.`\
 https://nytimes.com/athletic/6765225/2025/10/31/john-gibson-anaheim-ducks-red-wings/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/31/world/europe/prince-andrew-explainer.html
 **T's Nov. 16 Travel Issue**\
 ``\
 https://nytimes.com/issue/t-magazine/2025/10/31/ts-nov-16-travel-issue-2025
-
-**Donald and Melania Trump Dress Up for Halloween, as Themselves**\
-`It’s a very effective costume.`\
-https://nytimes.com/2025/10/31/style/donald-trupmp-melania-trump-halloween.html
 
