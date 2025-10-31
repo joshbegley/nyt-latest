@@ -1,3 +1,15 @@
+**Why the NBA's investigation of Terry Rozier raises questions about future gambling probes**\
+`Suspicious prop bets on Terry Rozier were flagged in 2023. But after an NBA investigation, the guard played until his arrest last week.`\
+https://nytimes.com/athletic/6765257/2025/10/31/nba-gambling-investigation-betting-future-rozier/
+
+**LSU leaders: Interim AD Verge Ausberry has 'full authority' in coaching search**\
+`The Friday news conference capped a frenetic week in Baton Rouge that included the departures of Brian Kelly and the AD who hired him.`\
+https://nytimes.com/athletic/6766511/2025/10/31/lsu-coaching-search-verge-ausberry-governor/
+
+**Cardinals' Bloom hires former Astros farm director, adds pro scouting director**\
+`The front-office changes indicate significant operational shifts under Bloom.`\
+https://nytimes.com/athletic/6764506/2025/10/31/stl-cardinals-front-office-hires-jacob-buffa-douglas/
+
 **NHL Power Rankings: A new No. 1, plus your team's top Halloween costume**\
 `We’ve rounded up our favorite Halloween costumes from around the league for our first-ever power rankings costume contest.`\
 https://nytimes.com/athletic/6766180/2025/10/31/nhl-power-rankings-halloween-2/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6766303/2025/10/31/college-football-best-bets-week-
 **U.N. Human Rights Chief Says U.S. Attacks on Accused Drug Smugglers Are Illegal**\
 `The Trump administration’s military strikes on boats near South and Central America violate international law and must be investigated, a top official says.`\
 https://nytimes.com/2025/10/31/world/americas/un-us-military-boat-strikes.html
-
-**Kim Kardashian, We Have Indeed Been to the Moon, NASA Says**\
-`NASA’s chief, Sean Duffy, set the record straight after Kim Kardashian repeated the conspiracy theory that the 1969 moon landing had been faked.`\
-https://nytimes.com/2025/10/31/us/politics/kim-kardashian-moon-landing-nasa-sean-duffy.html
-
-**Week 9 fantasy football intel, predictions using player prop lines**\
-`Brad Evans scours the sportsbooks to find fantasy intel that can help you in your Week 9 lineups. `\
-https://nytimes.com/athletic/6763270/2025/10/31/week-9-fantasy-football-predictions-player-props/
-
-**Can 'luxe' fantasy football tight ends become elite again? It's likely too late.**\
-`Plus, Lamar Jackson's impressive return, J.J. McCarthy retakes the reins and all the other fantasy football news you need to know.`\
-https://nytimes.com/athletic/6766320/2025/10/31/fantasy-football-news-week-9-tight-ends/
 

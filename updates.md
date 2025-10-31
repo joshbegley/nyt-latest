@@ -1,3 +1,15 @@
+**Why the NBA's investigation of Terry Rozier raises questions about future gambling probes**\
+`Suspicious prop bets on Terry Rozier were flagged in 2023. But after an NBA investigation, the guard played until his arrest last week.`\
+https://nytimes.com/athletic/6765257/2025/10/31/nba-gambling-investigation-betting-future-rozier/
+
+**LSU leaders: Interim AD Verge Ausberry has 'full authority' in coaching search**\
+`The Friday news conference capped a frenetic week in Baton Rouge that included the departures of Brian Kelly and the AD who hired him.`\
+https://nytimes.com/athletic/6766511/2025/10/31/lsu-coaching-search-verge-ausberry-governor/
+
+**Cardinals' Bloom hires former Astros farm director, adds pro scouting director**\
+`The front-office changes indicate significant operational shifts under Bloom.`\
+https://nytimes.com/athletic/6764506/2025/10/31/stl-cardinals-front-office-hires-jacob-buffa-douglas/
+
 **NHL Power Rankings: A new No. 1, plus your team's top Halloween costume**\
 `We’ve rounded up our favorite Halloween costumes from around the league for our first-ever power rankings costume contest.`\
 https://nytimes.com/athletic/6766180/2025/10/31/nhl-power-rankings-halloween-2/

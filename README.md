@@ -1,3 +1,11 @@
+**Scenes From Halloween in New York City**\
+`You know it’s late October when your subway seatmate is Elphaba or Beetlejuice.`\
+https://nytimes.com/2025/10/31/nyregion/new-york-city-halloween-photos.html
+
+**Palace manager Glasner 'disappointed' by USMNT's handling of Richards**\
+`“My only complaint is the U.S. team didn’t talk to us because Chris was struggling with his calf for many weeks,” Glasner said on Friday.`\
+https://nytimes.com/athletic/6766519/2025/10/31/chris-richards-injury-usmnt-palace/
+
 **Why the NBA's investigation of Terry Rozier raises questions about future gambling probes**\
 `Suspicious prop bets on Terry Rozier were flagged in 2023. But after an NBA investigation, the guard played until his arrest last week.`\
 https://nytimes.com/athletic/6765257/2025/10/31/nba-gambling-investigation-betting-future-rozier/
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/6765257/2025/10/31/nba-gambling-investigation-betti
 https://nytimes.com/athletic/6766511/2025/10/31/lsu-coaching-search-verge-ausberry-governor/
 
 **Cardinals' Bloom hires former Astros farm director, adds pro scouting director**\
-`The front-office changes indicate significant operational shifts under Bloom.`\
+`The front-office changes indicate significant operational shifts under new president of baseball operations Chaim Bloom.`\
 https://nytimes.com/athletic/6764506/2025/10/31/stl-cardinals-front-office-hires-jacob-buffa-douglas/
 
 **NHL Power Rankings: A new No. 1, plus your team's top Halloween costume**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6766445/2025/10/31/tottenham-team-news-romero-udogi
 **Here’s Why Curtis Sliwa Wears That Red Beret**\
 `The distinctive headpiece traces its origins to a time when both crime and Mr. Sliwa’s public profile were on the rise.`\
 https://nytimes.com/2025/10/31/nyregion/curtis-sliwa-red-beret.html
-
-**College football best bets Week 10: Picks for Georgia-Florida, Tennessee-Oklahoma and more**\
-`Austin Mock's College Football Projection Model has identified a handful of best bets for Week 10.`\
-https://nytimes.com/athletic/6766303/2025/10/31/college-football-best-bets-week-10-oklahoma-tennessee-georgia-florida/
-
-**U.N. Human Rights Chief Says U.S. Attacks on Accused Drug Smugglers Are Illegal**\
-`The Trump administration’s military strikes on boats near South and Central America violate international law and must be investigated, a top official says.`\
-https://nytimes.com/2025/10/31/world/americas/un-us-military-boat-strikes.html
 
