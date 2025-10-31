@@ -1,3 +1,11 @@
+**A Lesson From Dwayne ‘The Rock’ Johnson on the Perfect Punch**\
+`How does Dwayne “The Rock” Johnson throw the perfect punch? Sam Anderson, a writer for The Times Magazine who recently profiled the actor, recounts the lesson Johnson gave him, motion by motion.`\
+https://nytimes.com/video/podcasts/100000010484055/a-lesson-from-dwayne-the-rock-johnson-on-the-perfect-punch.html
+
+**‘The Rock’ on the Worst Pain He Has Ever Felt**\
+`Sam Anderson, a writer for The New York Times Magazine, joins Wesley Morris to discuss Dwayne “The Rock” Johnson’s latest movie, “The Smashing Machine,” and the worst pain that the actor has ever felt.`\
+https://nytimes.com/video/podcasts/100000010493543/the-rock-on-the-worst-pain-he-has-ever-felt.html
+
 **NFL fines Ravens for mishandling Lamar Jackson's injury designation: Source**\
 `The NFL said Baltimore violated the league’s injury report policy by incorrectly listing Jackson’s practice participation status on Oct. 24.`\
 https://nytimes.com/athletic/6756909/2025/10/31/ravens-fined-nfl-lamar-jackson/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/31/business/economy/wealth-tax-france.html
 **Democrats’ Battle for Attention, and Trust**\
 `Readers respond to an Opinion guest essay by Chris Hayes. Also: Reining in President Trump; a risk to the Trump library; healing America.`\
 https://nytimes.com/2025/10/31/opinion/democratic-party.html
-
-**‘I’m the Guy on the Floor’: Memories From a Thrilling Marathon Finish**\
-`A dramatic late-race twist in 1983’s New York City Marathon left one runner triumphant, and another on his back. Here’s what they remember.`\
-https://nytimes.com/interactive/2025/10/31/magazine/nyc-marathon-finish-photo-history-rod-dixon.html
-
-**Turkish FA suspends 149 match officials over referee betting scandal**\
-`Suspensions between eight and 12 months have been imposed.`\
-https://nytimes.com/athletic/6766924/2025/10/31/turkey-refereeing-betting-suspensions/
 
