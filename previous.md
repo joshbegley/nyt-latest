@@ -1,9 +1,29 @@
+**Girma to be included in Chelsea squad for first time this season**\
+`Girma has missed the opening two months of the WSL season through injury.`\
+https://nytimes.com/athletic/6766823/2025/10/31/naomi-girma-chelsea-injury-return/
+
+**Republicans in Congress Show Signs of Heartburn Over Trump’s Trade War**\
+`Senators opposed the president’s plan to import beef from Argentina and voted three times this week to end his power to enforce sweeping tariffs.`\
+https://nytimes.com/2025/10/31/us/politics/trump-republicans-congress-trade.html
+
+**Premier League confirms only one Boxing Day fixture this year**\
+`Boxing Day is one of the busiest days of the year across English men's football, with a full fixture list typically scheduled.`\
+https://nytimes.com/athletic/6754260/2025/10/31/premier-league-boxing-day-fixtures/
+
+**Mother and Young Daughter Saved From New Jersey Floodwaters**\
+`Torrential rain flooded parts of the tristate region on Thursday. In Bayonne, N.J., a firefighter rescued a mother and her 4-year-old daughter from their car, which was trapped in a flooded underpass.`\
+https://nytimes.com/video/weather/100000010493629/new-jersey-bayonne-flood.html
+
+**Book Club: Let’s Discuss ‘The Buffalo Hunter Hunter’**\
+`Stephen Graham Jones’s horror novel offers a visceral take on the vampire legend.`\
+https://nytimes.com/2025/10/31/books/review/podcast-buffalo-hunter-hunter-club.html
+
 **Listen to‘The Preventionist’ Everywhere**\
 `The host of Serial Productions’ new series shares a brief history of the early days of child protection.`\
 https://nytimes.com/2025/10/31/podcasts/serial-newsletter-the-preventionist.html
 
 **Leeds United mailbag: Elland Road redevelopment latest, January plans, loanees**\
-`Leeds United reporter Beren Cross has answered your questions in our latest mailbag`\
+`Beren Cross has answered your questions in our latest mailbag`\
 https://nytimes.com/athletic/6766607/2025/10/31/leeds-united-transfer-latest-elland-road/
 
 **Arizona State QB Sam Leavitt will miss the rest of the season with foot injury**\
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6766721/2025/10/31/ncaa-fcs-nfl-draft-prospects-sho
 **As Shutdown Slows Air Traffic Training, These Schools Are Stepping In**\
 `New programs cannot turn out the numbers needed to make up for the controller shortfall. But they hope to have a higher success rate than the Federal Aviation Agency’s official academy.`\
 https://nytimes.com/2025/10/31/us/politics/air-traffic-control-training-shutdown.html
-
-**An Old Debate Meets a New Solution for N.C.’s Confederate Statues**\
-`Three Confederate statues that were removed from communities around the state are back on view for the public — this time on private land.`\
-https://nytimes.com/2025/10/31/us/north-carolina-confederate-statues.html
-
-**Bill de Blasio and his doppelgänger clear up the mix-up over who likes Mamdani.**\
-`By Emma G. Fitzsimmons`\
-https://nytimes.com/live/2025/10/31/nyregion/nyc-mayor-election-news/bill-de-blasio-and-his-doppelganger-clear-up-the-mix-up-over-who-likes-mamdani
-
-**Notre Dame vs. Boston College predictions: Irish in sync as final CFP push begins**\
-`Of Notre Dame’s final five games, this trip to Boston College might offer the most straightforward path to victory.`\
-https://nytimes.com/athletic/6766442/2025/10/31/notre-dame-boston-college-prediction-matchups/
-
-**Inside the text messages of the agent who became a ‘mole’ for Rob Manfred and MLB**\
-`The MLB Players Association says that in 2020 negotiations, agent Jim Murray “acted as a ‘mole’” for Manfred and his top lieutenants. `\
-https://nytimes.com/athletic/6766440/2025/10/31/mlbpa-text-messages-jim-murray-banned-agent/
-
-**Federal investigators probing a youth baseball arm of MLB player union: report**\
-`Investigators had already been looking into other areas of the union's finances. `\
-https://nytimes.com/athletic/6766516/2025/10/31/mlbpa-federal-investigation-youth-baseball/
 
