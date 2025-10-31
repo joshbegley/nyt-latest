@@ -1,3 +1,7 @@
+**Mace Unleashes Diatribe at Airport Police for Missing Security Escort**\
+`The South Carolina congresswoman went on an extended shouting and cursing “tirade,” according to a police incident report, after security agents who were supposed to escort her failed to meet her as planned.`\
+https://nytimes.com/2025/10/31/us/politics/nancy-mace-airport-police-security.html
+
 **Kentucky Woman Receives Package of Human Body Parts by Mistake, Coroner Says**\
 `She was expecting time-sensitive medication, but opened the box to find two arms and four fingers meant to be used in surgical training, the coroner said.`\
 https://nytimes.com/2025/10/31/us/kentucky-severed-arms-fingers.html
