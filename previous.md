@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Emma G. Fitzsimmons`\
+https://nytimes.com/live/2025/10/31/nyregion/nyc-mayor-election-news/heres-the-latest
+
+**N.Y.C. Mayor’s Race Live Updates: City Enters Last Stretch of Early Voting**\
+`Zohran Mamdani, who holds a commanding polling lead, urged his supporters to avoid complacency. Nearly 400,000 New Yorkers have cast ballots with three days left in the early-voting period.`\
+https://nytimes.com/live/2025/10/31/nyregion/nyc-mayor-election-news
+
 **How Cincinnati unlocked its offense and QB Brendan Sorsby to become a Big 12 contender**\
 `The Bearcats have rattled off seven straight wins and are sitting tied atop the Big 12 standings with BYU at 5-0 in conference play.`\
 https://nytimes.com/athletic/6764131/2025/10/31/cincinnati-utah-brendan-sorsby-big-12/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6766055/2025/10/31/college-football-coaching-search
 **Odegaard, Madueke and Havertz all pushing to face Spurs, says Arteta**\
 `“The huge boost that is going to be for the squad to have and those players again, after such a long, long time," the Spaniard said.`\
 https://nytimes.com/athletic/6766080/2025/10/31/odegaard-madueke-havertz-fitness-arteta-arsenal/
-
-**Nvidia Uncertain if Return to China Is Closer After Trump-Xi Meeting**\
-`Amid skyrocketing demand for artificial intelligence systems, the chip-making giant has been thrust into the economic feud between Beijing and Washington.`\
-https://nytimes.com/2025/10/31/business/jensen-huang-nvidia-china.html
-
-**Maresca says Delap apologised to Chelsea squad after Wolves red card**\
-`The head coach was unhappy with the striker after the Wolves game, calling the sending off "embarrassing".`\
-https://nytimes.com/athletic/6766023/2025/10/31/chelsea-enzo-maresca-liam-delap/
 

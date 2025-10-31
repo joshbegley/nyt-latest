@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Emma G. Fitzsimmons`\
+https://nytimes.com/live/2025/10/31/nyregion/nyc-mayor-election-news/heres-the-latest
+
+**N.Y.C. Mayor’s Race Live Updates: City Enters Last Stretch of Early Voting**\
+`Zohran Mamdani, who holds a commanding polling lead, urged his supporters to avoid complacency. Nearly 400,000 New Yorkers have cast ballots with three days left in the early-voting period.`\
+https://nytimes.com/live/2025/10/31/nyregion/nyc-mayor-election-news
+
 **How Cincinnati unlocked its offense and QB Brendan Sorsby to become a Big 12 contender**\
 `The Bearcats have rattled off seven straight wins and are sitting tied atop the Big 12 standings with BYU at 5-0 in conference play.`\
 https://nytimes.com/athletic/6764131/2025/10/31/cincinnati-utah-brendan-sorsby-big-12/
