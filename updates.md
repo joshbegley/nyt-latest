@@ -1,3 +1,11 @@
+**Bucks beat Warriors despite Giannis Antetokounmpo's absence**\
+`Antetokounmpo was scratched 60 minutes before tipoff because of left knee soreness.`\
+https://nytimes.com/athletic/6765388/2025/10/30/bucks-warriors-giannis-antetokounmpo-ryan-rollins/
+
+**Victor Wembanyama stuffs stat sheet to ignite Spurs to first-ever 5-0 start**\
+`Wembanyama ended with 27 points, 18 rebounds, six assists and five blocks to lead San Antonio to its best start ever. `\
+https://nytimes.com/athletic/6765400/2025/10/30/victor-wembanyama-spurs-heat-highlights/
+
 **JPMorgan Alerted U.S. to Epstein Transfers Involving Wall St. Figures**\
 `After Jeffrey Epstein’s 2019 death, the bank reported more than $1 billion in potentially suspicious transactions.`\
 https://nytimes.com/2025/10/30/business/jpmorgan-jeffrey-epstein.html
