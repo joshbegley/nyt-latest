@@ -1,3 +1,16 @@
+**Spurs have won just four home league matches in a year - are the answers off the pitch?**\
+`A downturn in Tottenham's home form and the atmosphere in N17 have led some fan groups to take action...`\
+https://nytimes.com/athletic/6754187/2025/10/31/tottenham-hotspur-stadium-home-form/
+
+**Are these Ruben Amorim's seven undroppables at Manchester United?**\
+`Manchester United have been on a three-match league winning run — and it is focused around a number of key players`\
+https://nytimes.com/athletic/6744891/2025/10/31/manchester-united-ruben-amorim-starting-line-up-analysis/
+
+**Declan Rice, Bukayo Saka and the perfect corner delivery**\
+`The taker is the most important player in the set-piece routine, and Mikel Arteta's side now have several strong options to choose from
+`\
+https://nytimes.com/athletic/6759562/2025/10/31/declan-rice-bukayo-saka-arsenal-set-pieces/
+
 **Declan Rice, Bukayo Saka and the perfect corner delivery**\
 `The taker is the most important player in the set-piece routine, and Mikel Arteta's side now have several strong options to choose from
 `\
