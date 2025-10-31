@@ -1,3 +1,11 @@
+**Odegaard, Madueke and Havertz all pushing to face Spurs, says Arteta**\
+`“The huge boost that is going to be for the squad to have and those players again, after such a long, long time," the Spaniard said.`\
+https://nytimes.com/athletic/6766080/2025/10/31/odegaard-madueke-havertz-fitness-arteta-arsenal/
+
+**Nvidia Uncertain if Return to China Is Closer After Trump-Xi Meeting**\
+`Amid skyrocketing demand for artificial intelligence systems, the chip-making giant has been thrust into the economic feud between Beijing and Washington.`\
+https://nytimes.com/2025/10/31/business/jensen-huang-nvidia-china.html
+
 **Maresca says Delap apologised to Chelsea squad after Wolves red card**\
 `The head coach was unhappy with the striker after the Wolves game, calling the sending off "embarrassing".`\
 https://nytimes.com/athletic/6766023/2025/10/31/chelsea-enzo-maresca-liam-delap/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6757551/2025/10/31/nfl-week-9-schedule-chiefs-bills
 **At the Supreme Court, Liberal Justices Are Split**\
 `We go inside their strained relationship.`\
 https://nytimes.com/2025/10/31/briefing/at-the-supreme-court-liberal-justices-are-split.html
-
-**NYCFC's unbearable wait inches toward its end with a new stadium on the rise**\
-`As NYCFC braces to host another playoff game at a baseball stadium, its visions of a soccer-specific home are nearing fruition`\
-https://nytimes.com/athletic/6763288/2025/10/31/nycfc-new-stadium-etihad-park-queens-mls/
-
-**Determined Dan Hurley leads the 25 most interesting people in men’s college basketball in 2025-26**\
-`Will Hurley capture a third title in four years? Can Will Wade make NC State relevant? Who will be the nation's top freshman? `\
-https://nytimes.com/athletic/6762960/2025/10/31/dan-hurley-bruce-pearl-duke-north-carolina-college-basketball/
 
