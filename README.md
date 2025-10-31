@@ -1,3 +1,7 @@
+**WNBA and players union agree to extension for CBA negotiations**\
+`The new deadline to reach a deal is Nov. 30.`\
+https://nytimes.com/athletic/6765085/2025/10/30/wnba-players-union-extension-cba/
+
 **How to watch Dodgers at Blue Jays: World Series Game 6 Time, TV, streaming**\
 `Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6765057/2025/10/30/dodgers-vs-blue-jays-stream-how-to-watch-oct-31/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/30/science/us-nuclear-weapons-atomic-bombs.html
 **A Top Trump Official Had to Sell His Stock. He May Have Saved Millions.**\
 `Frank Bisignano, who holds top jobs at the Social Security Administration and the I.R.S., sold his stake in Fiserv before the company’s stock cratered this week.`\
 https://nytimes.com/2025/10/30/us/politics/frank-bisignano-fiserv-stock-price.html
-
-**Puck Acquires Air Mail, a Newsletter Merger for the Well-Heeled Inbox**\
-`Graydon Carter, the legendary Vanity Fair editor who founded Air Mail, is leaving the company.`\
-https://nytimes.com/2025/10/30/business/media/puck-buys-airmail.html
 
