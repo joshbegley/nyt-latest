@@ -1,3 +1,11 @@
+**How to watch Avalanche vs. Golden Knights: Time, TV, streaming**\
+`Find out how to watch the Colorado Avalanche play the Vegas Golden Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6766211/2025/10/31/avalanche-vs-golden-knights-stream-how-to-watch-oct-31/
+
+**Mamdani Takes His Campaign to the Night Shift**\
+`Zohran Mamdani visited LaGuardia Airport and Elmhurst Hospital on Thursday evening, part of the Democratic candidate’s focus on working-class New Yorkers ahead of Tuesday’s mayoral election.`\
+https://nytimes.com/2025/10/31/nyregion/mamdani-night-shift-workers.html
+
 **Here’s the latest.**\
 `By Emma G. Fitzsimmons`\
 https://nytimes.com/live/2025/10/31/nyregion/nyc-mayor-election-news/heres-the-latest
