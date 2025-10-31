@@ -1,3 +1,11 @@
+**NASA Gets Moon Lander Plan B’s From SpaceX and Blue Origin**\
+`As NASA worries that China will win the next moon race, Elon Musk and his company tangled with critics.`\
+https://nytimes.com/2025/10/31/science/nasa-moon-lander-spacex-blue-origin.html
+
+**Republicans Denounce Tucker Carlson for Interview With Nick Fuentes, a White Supremacist**\
+`Senators Ted Cruz and Mitch McConnell criticized Mr. Carlson, as well as Kevin Roberts, the president of the Heritage Foundation, who defended Mr. Carlson as a “close friend.”`\
+https://nytimes.com/2025/10/31/us/politics/tucker-carlson-nick-fuentes.html
+
 **Tracking the Early Vote in New York, New Jersey and Virginia**\
 `See the age breakdown in New York City and the partisanship in New Jersey and Virginia of the voters who have cast ballots so far.`\
 https://nytimes.com/2025/10/31/upshot/early-voters-2025-election.html
