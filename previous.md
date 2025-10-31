@@ -1,3 +1,11 @@
+**Wild need to dig deep and keep this miserable homestand from spiraling**\
+`After three wins in 12 games, it's time for Guerin to seriously look at who actually wants to be here. `\
+https://nytimes.com/athletic/6767234/2025/10/31/minnesota-wild-losing-homestand/
+
+**Brock Purdy questionable vs. Giants, but Mac Jones will start for 49ers**\
+`Purdy has started just two games this season because of a lingering big toe injury.`\
+https://nytimes.com/athletic/6760666/2025/10/31/brock-purdy-injury-update-49ers-giants/
+
 **Former Brighton director Weir joins Chelsea sister club Strasbourg**\
 `Weir becomes the latest person formerly affiliated with Brighton to either be signed or appointed by BlueCo.`\
 https://nytimes.com/athletic/6767481/2025/10/31/david-weir-chelsea-brighton-blueco-strasbourg/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/31/opinion/shutdown-snap-trump-deal.html
 **Athletes' Halloween costumes: Tricks, treats and team spirit**\
 `Athletes' creative costumes remind everyone that they aren’t just competitors — they’re storytellers.`\
 https://nytimes.com/athletic/6767113/2025/10/31/athletes-halloween-costumes-tricks-treats-and-team-spirit-across-the-sports-world/
-
-**At a Julio Torres Halloween Party, No Look Is Too Surreal**\
-`A windmill, a cockroach, a salad: A costumed bash in Bushwick drew guests who weren’t shy around a glue gun.`\
-https://nytimes.com/2025/10/31/style/julio-torres-halloween-party-bushwick.html
-
-**How to watch Pelicans vs. Clippers: Time, TV, streaming**\
-`Find out how to watch the New Orleans Pelicans play the Los Angeles Clippers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6767361/2025/10/31/pelicans-vs-clippers-stream-how-to-watch-oct-31/
 

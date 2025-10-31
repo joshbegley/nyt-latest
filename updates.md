@@ -1,3 +1,11 @@
+**Wild need to dig deep and keep this miserable homestand from spiraling**\
+`After three wins in 12 games, it's time for Guerin to seriously look at who actually wants to be here. `\
+https://nytimes.com/athletic/6767234/2025/10/31/minnesota-wild-losing-homestand/
+
+**Brock Purdy questionable vs. Giants, but Mac Jones will start for 49ers**\
+`Purdy has started just two games this season because of a lingering big toe injury.`\
+https://nytimes.com/athletic/6760666/2025/10/31/brock-purdy-injury-update-49ers-giants/
+
 **Former Brighton director Weir joins Chelsea sister club Strasbourg**\
 `Weir becomes the latest person formerly affiliated with Brighton to either be signed or appointed by BlueCo.`\
 https://nytimes.com/athletic/6767481/2025/10/31/david-weir-chelsea-brighton-blueco-strasbourg/
