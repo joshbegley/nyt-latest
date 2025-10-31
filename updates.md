@@ -1,3 +1,7 @@
+**Former Brighton director Weir joins Chelsea sister club Strasbourg**\
+`Weir becomes the latest person formerly affiliated with Brighton to either be signed or appointed by BlueCo.`\
+https://nytimes.com/athletic/6767481/2025/10/31/david-weir-chelsea-brighton-blueco-strasbourg/
+
 **Why is Joe Flacco trying to play through a sprained AC joint? Check his history**\
 `“I do feel a sense of obligation being out there for the guys you play with,” Flacco said. “I’m not changing it now.”`\
 https://nytimes.com/athletic/6767169/2025/10/31/bengals-joe-flacco-playing-injury/
