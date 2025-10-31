@@ -1,3 +1,11 @@
+**Millions at Risk of Hunger as Food Stamp Freeze Looms**\
+`Forty-two million low-income Americans are expected to lose access to food assistance on Nov. 1, making it the most significant and dire casualty of a governmentwide closure that has stretched into its fifth week.`\
+https://nytimes.com/video/us/politics/100000010493304/snap-food-stamp-freeze.html
+
+**College football Week 10 projected scores: Model predicts every FBS vs. FBS game**\
+`Austin Mock's model projects the points differentials and point totals for every FBS vs. FBS Week 10 college football game.`\
+https://nytimes.com/athletic/6764201/2025/10/31/college-football-week-10-projected-scores-model/
+
 **Pork Chile Verde Revives and Restores**\
 `Kay Chun’s recipe is just the thing to anchor a weekend of monster mashes and graveyard smashes.`\
 https://nytimes.com/2025/10/31/dining/pork-chile-verde-revives-and-restores.html
