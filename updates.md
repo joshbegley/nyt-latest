@@ -1,3 +1,7 @@
+**At a Julio Torres Halloween Party, No Look Is Too Surreal**\
+`A windmill, a cockroach, a salad: A costumed bash in Bushwick drew guests who weren’t shy around a glue gun.`\
+https://nytimes.com/2025/10/31/style/julio-torres-halloween-party-bushwick.html
+
 **How to watch Pelicans vs. Clippers: Time, TV, streaming**\
 `Find out how to watch the New Orleans Pelicans play the Los Angeles Clippers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6767361/2025/10/31/pelicans-vs-clippers-stream-how-to-watch-oct-31/

@@ -1,3 +1,7 @@
+**At a Julio Torres Halloween Party, No Look Is Too Surreal**\
+`A windmill, a cockroach, a salad: A costumed bash in Bushwick drew guests who weren’t shy around a glue gun.`\
+https://nytimes.com/2025/10/31/style/julio-torres-halloween-party-bushwick.html
+
 **How to watch Pelicans vs. Clippers: Time, TV, streaming**\
 `Find out how to watch the New Orleans Pelicans play the Los Angeles Clippers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6767361/2025/10/31/pelicans-vs-clippers-stream-how-to-watch-oct-31/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6767190/2025/10/31/panthers-rico-dowdle-starting-ch
 **The Ja Morant card featuring Young Dolph and others that became a viral hit**\
 `This 2019 Chronicles card shouldn't be Morant's most well-known rookie card, but that's what it's become`\
 https://nytimes.com/athletic/6766650/2025/10/31/ja-morant-young-dolph-card/
-
-**Deadly Protests Flare After Restricted Election in Tanzania**\
-`As the violence continued for a third day, the United Nations said at least 10 people had been killed. Opposition leaders claimed the death toll could be in the hundreds.`\
-https://nytimes.com/2025/10/31/world/africa/tanzania-deadly-protests-election.html
 
