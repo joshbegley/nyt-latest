@@ -1,3 +1,7 @@
+**Early Premier League relegation analysis: Who's in trouble?**\
+`Analysing which teams are at most risk of relegation, why, and how they can improve their chances of survival`\
+https://nytimes.com/athletic/6763075/2025/10/31/premier-league-relegation-chances/
+
 **Declan Rice, Bukayo Saka and the perfect corner delivery**\
 `The taker is the most important player in the set-piece routine, and Mikel Arteta's side now have several strong options to choose from
 `\

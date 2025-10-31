@@ -22,6 +22,10 @@ https://nytimes.com/athletic/6744891/2025/10/31/manchester-united-ruben-amorim-s
 `Six losses in seven games is the worst run of the Liverpool head coach's career - but he has navigated difficult situations before`\
 https://nytimes.com/athletic/6763360/2025/10/31/arne-slot-liverpool-pressure/
 
+**Early Premier League relegation analysis: Who's in trouble?**\
+`Analysing which teams are at most risk of relegation, why, and how they can improve their chances of survival`\
+https://nytimes.com/athletic/6763075/2025/10/31/premier-league-relegation-chances/
+
 **FPL tips: As the mid-priced forward market heats up, here’s who to consider**\
 `The regressing returns of Joao Pedro in recent weeks have left many FPL teams in need of a surefire option for goals at a reasonable price`\
 https://nytimes.com/athletic/6762600/2025/10/31/fantasy-premier-league-tips-gameweek-10/
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6763240/2025/10/31/xabi-alonso-real-madrid-dressing
 **Premier League predictions: Liverpool vs Aston Villa, Spurs vs Chelsea and the rest of Matchday 10**\
 `Who's leading after Matchday 9? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 10?`\
 https://nytimes.com/athletic/6759899/2025/10/31/premier-league-predictions-md10/
-
-**Declan Rice, Bukayo Saka and the perfect corner delivery**\
-`The taker is the most important player in the set-piece routine, and Mikel Arteta's side now have several strong options to choose from
-`\
-https://nytimes.com/athletic/6759562/2025/10/31/declan-rice-bukayo-saka-arsenal-set-pieces/
 
