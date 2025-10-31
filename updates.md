@@ -1,3 +1,7 @@
+**Mexico Winds Down Search for Survivor of U.S. Boat Strike**\
+`The Pentagon said one person survived a U.S. military strike on a boat in the Pacific, but after searching for days, Mexican officials are about to give up.`\
+https://nytimes.com/2025/10/31/us/politics/us-boat-strike-survivor.html
+
 **Alison Knowles, Artist Who Took Lunch to New Levels, Dies at 92**\
 `An early participant in the eccentric collection of artists known as Fluxus, she was perhaps best known for pieces centered on a humble tuna sandwich and a giant salad.`\
 https://nytimes.com/2025/10/31/arts/alison-knowles-dead.html

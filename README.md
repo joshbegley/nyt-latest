@@ -1,3 +1,7 @@
+**Overlooked No More: Hannah Senesh, Poet and Paratrooper Who Defied the Nazis**\
+`Senesh fled Hungary just before World War II. But unlike most Jews who escaped the Nazis, she went back to fight. Today, she is regarded as a hero in Israel.`\
+https://nytimes.com/2025/10/31/obituaries/hannah-senesh-overlooked.html
+
 **Mexico Winds Down Search for Survivor of U.S. Boat Strike**\
 `The Pentagon said one person survived a U.S. military strike on a boat in the Pacific, but after searching for days, Mexican officials are about to give up.`\
 https://nytimes.com/2025/10/31/us/politics/us-boat-strike-survivor.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6767481/2025/10/31/david-weir-chelsea-brighton-blue
 **Why is Joe Flacco trying to play through a sprained AC joint? Check his history**\
 `“I do feel a sense of obligation being out there for the guys you play with,” Flacco said. “I’m not changing it now.”`\
 https://nytimes.com/athletic/6767169/2025/10/31/bengals-joe-flacco-playing-injury/
-
-**Angel City's Sarah Gorden rebuts teammate's call for NWSL gender eligibility policy**\
-`Gorden said an article written by Elizabeth Eddy had undertones that "come across as transphobic and racist as well."`\
-https://nytimes.com/athletic/6767172/2025/10/31/angel-city-sarah-gorden-nwsl-elizabeth-eddy/
 
