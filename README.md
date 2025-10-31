@@ -1,3 +1,7 @@
+**Leafs prospect report: Why it's time to give Dennis Hildeby another NHL shot**\
+`In our first prospect report of 2025-26, let's take a look at reasons for optimism among a group of Leafs prospects enjoying stellar starts.`\
+https://nytimes.com/athletic/6761244/2025/10/31/maple-leafs-prospects-dennis-hildeby-nhl/
+
 **How Saudi Arabia and Qatar Benefited From Rule Changes to Reach the World Cup**\
 `A soccer governing body that both countries have helped bankroll gave them extra rest and home-field advantage to set up World Cup qualification.`\
 https://nytimes.com/2025/10/31/world/asia/saudi-arabia-qatar-world-cup-rules.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6562945/2025/10/31/marathon-running-super-sneaker-n
 **Why Novak Djokovic is key to a thrilling ATP Tour Finals Race to Turin**\
 `Paris Masters results have left one spot at the ATP Tour Finals for several players — but Djokovic may offer another.`\
 https://nytimes.com/athletic/6763865/2025/10/31/atp-tour-race-to-turin-tour-finals-qualification/
-
-**Ja'Marr Chase has the Chicago Bears defense on high alert**\
-`Chase's explosion isn't an NFL secret. At Halas Hall, many of the coaches and players have seen it first-hand.`\
-https://nytimes.com/athletic/6764753/2025/10/31/jamarr-chase-chicago-bears-defense-high-alert/
 
