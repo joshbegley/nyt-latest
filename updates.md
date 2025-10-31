@@ -1,3 +1,7 @@
+**YouTube TV Users Lose Access to Disney and ESPN**\
+`Talks between YouTube TV and Disney about fees broke down on Thursday ahead of a deadline. YouTube TV said Disney removed its channels from the streaming platform.`\
+https://nytimes.com/2025/10/31/business/media/youtube-tv-disney-espn.html
+
 **Early Premier League relegation analysis: Who's in trouble?**\
 `Analysing which teams are at most risk of relegation, why, and how they can improve their chances of survival`\
 https://nytimes.com/athletic/6763075/2025/10/31/premier-league-relegation-chances/

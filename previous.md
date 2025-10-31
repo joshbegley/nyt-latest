@@ -1,3 +1,7 @@
+**YouTube TV Users Lose Access to Disney and ESPN**\
+`Talks between YouTube TV and Disney about fees broke down on Thursday ahead of a deadline. YouTube TV said Disney removed its channels from the streaming platform.`\
+https://nytimes.com/2025/10/31/business/media/youtube-tv-disney-espn.html
+
 **How the Trump-Xi Meeting Eased a Major Trade War**\
 `President Trump and China’s leader Xi Jinping just had a highly anticipated meeting in South Korea. David Pierson, a New York Times foreign correspondent covering China, breaks down what they accomplished and how they de-escalated a major trade war.`\
 https://nytimes.com/video/world/asia/100000010489449/trump-xi-jinping-trade-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6762600/2025/10/31/fantasy-premier-league-tips-game
 **Xabi Alonso and the forever problem of Real Madrid's dressing room**\
 `The Spanish club's new manager has some unhappy players on his hands. He's far from the first to encounter that at the Bernabeu...`\
 https://nytimes.com/athletic/6763240/2025/10/31/xabi-alonso-real-madrid-dressing-room/
-
-**Premier League predictions: Liverpool vs Aston Villa, Spurs vs Chelsea and the rest of Matchday 10**\
-`Who's leading after Matchday 9? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 10?`\
-https://nytimes.com/athletic/6759899/2025/10/31/premier-league-predictions-md10/
 
