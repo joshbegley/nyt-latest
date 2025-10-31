@@ -1,3 +1,7 @@
+**Prince Andrew Is Losing His Titles and His Home**\
+`King Charles III’s younger brother, who fell from grace over his association with Jeffrey Epstein, will no longer be able to call himself a prince. The king is also evicting him from Royal Lodge, where he lives.`\
+https://nytimes.com/video/world/europe/100000010493044/uk-prince-andrew-title.html
+
 **Serie A and Scottish Premiership provide some welcome surprises**\
 `It's not just the Premier League where results this season are spicing things up and adding some variety to the early stages of the title ra`\
 https://nytimes.com/athletic/6765312/2025/10/31/old-firm-derby-serie-a-race/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/31/crosswords/spelling-bee-forum.html
 **YouTube TV Users Lose Access to Disney and ESPN**\
 `Talks between YouTube TV and Disney about fees broke down on Thursday ahead of a deadline. YouTube TV said Disney removed its channels from the streaming platform.`\
 https://nytimes.com/2025/10/31/business/media/youtube-tv-disney-espn.html
-
-**How the Trump-Xi Meeting Eased a Major Trade War**\
-`President Trump and China’s leader Xi Jinping just had a highly anticipated meeting in South Korea. David Pierson, a New York Times foreign correspondent covering China, breaks down what they accomplished and how they de-escalated a major trade war.`\
-https://nytimes.com/video/world/asia/100000010489449/trump-xi-jinping-trade-war.html
 
