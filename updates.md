@@ -1,3 +1,12 @@
+**Word of the Day: felicitous**\
+`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/31/learning/word-of-the-day-felicitous.html
+
+**Declan Rice, Bukayo Saka and the perfect corner delivery**\
+`The taker is the most important player in the set-piece routine, and Mikel Arteta's side now have several strong options to choose from
+`\
+https://nytimes.com/athletic/6759562/2025/10/31/declan-rice-bukayo-saka-arsenal-set-pieces/
+
 **Declan Rice, Bukayo Saka and the perfect corner delivery**\
 `The taker is the most important player in the set-piece routine, and Mikel Arteta's side now have several strong options to choose from
 `\

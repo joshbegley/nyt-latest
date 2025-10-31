@@ -1,3 +1,11 @@
+**How the Trump-Xi Meeting Eased a Major Trade War**\
+`President Trump and China’s leader Xi Jinping just had a highly anticipated meeting in South Korea. David Pierson, a New York Times foreign correspondent covering China, breaks down what they accomplished and how they de-escalated a major trade war.`\
+https://nytimes.com/video/world/asia/100000010489449/trump-xi-jinping-trade-war.html
+
+**Warriors get what they deserve in loss to Giannis-less Bucks**\
+`Citing mental and physical fatigue by his squad, Steve Kerr said 'It did not look like our team out there.'`\
+https://nytimes.com/athletic/6765672/2025/10/31/golden-state-warriors-lose-giannis-out/
+
 **Word of the Day: felicitous**\
 `This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/10/31/learning/word-of-the-day-felicitous.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6759899/2025/10/31/premier-league-predictions-md10/
 `The taker is the most important player in the set-piece routine, and Mikel Arteta's side now have several strong options to choose from
 `\
 https://nytimes.com/athletic/6759562/2025/10/31/declan-rice-bukayo-saka-arsenal-set-pieces/
-
-**The only thing standing between Oliver Glasner and an elite job? The low block**\
-`As seen in the Conference League, Palace are effectively coming unstuck against the game plan they execute so well in the Premier League`\
-https://nytimes.com/athletic/6762814/2025/10/31/glasner-and-crystal-palace-against-low-blocks/
-
-**Leverkusen and Hjulmand are reaping the benefits of Ten Hag's speedy post-Alonso exit**\
-`Leverkusen sacked Erik ten Hag after three games. His arrival and quick exit has helped deal with the post-Xabi Alonso hangover`\
-https://nytimes.com/athletic/6762515/2025/10/31/bayer-leverkusen-kasper-hjulmand-xabi-alonso/
 

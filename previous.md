@@ -1,3 +1,7 @@
+**Word of the Day: felicitous**\
+`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/31/learning/word-of-the-day-felicitous.html
+
 **Spurs have won just four home league matches in a year - are the answers off the pitch?**\
 `A downturn in Tottenham's home form and the atmosphere in N17 have led some fan groups to take action...`\
 https://nytimes.com/athletic/6754187/2025/10/31/tottenham-hotspur-stadium-home-form/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6762814/2025/10/31/glasner-and-crystal-palace-again
 **Leverkusen and Hjulmand are reaping the benefits of Ten Hag's speedy post-Alonso exit**\
 `Leverkusen sacked Erik ten Hag after three games. His arrival and quick exit has helped deal with the post-Xabi Alonso hangover`\
 https://nytimes.com/athletic/6762515/2025/10/31/bayer-leverkusen-kasper-hjulmand-xabi-alonso/
-
-**The New York Times in Print for Friday, Oct. 31, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/10/31/todays-new-york-times
 
