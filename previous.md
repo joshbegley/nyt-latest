@@ -1,3 +1,15 @@
+**Enslaved Potter’s Art, Displayed at Boston Museum, Returns to Heirs at Last**\
+`The Museum of Fine Arts, Boston, said David Drake, the artist, had been “deprived of his creations involuntarily and without compensation.”`\
+https://nytimes.com/2025/10/30/us/mfa-boston-david-drake-pottery.html
+
+**Laurie Metcalf Is Riveting in ‘Little Bear Ridge Road’**\
+`The playwright Samuel D. Hunter makes his Broadway debut with an addition to his Idaho oeuvre, set during the Covid-19 pandemic and its aftermath.`\
+https://nytimes.com/2025/10/30/theater/little-bear-ridge-road-review-metcalf.html
+
+**Predator in a Pod**\
+`Juliana Tringali Golden opens our solving weekend with some sizzling wordplay.`\
+https://nytimes.com/2025/10/30/crosswords/daily-puzzle-2025-10-31.html
+
 **Buster Posey on Giants manager Tony Vitello: 'He's gonna be OK with ruffling feathers'**\
 `"It's sports, it's entertainment," Posey said. "I mean, for me, there's an argument to be made that we're lacking that severely right now."`\
 https://nytimes.com/athletic/6765203/2025/10/30/sf-giants-manager-tony-vitello-buster-posey-ruffling-feathers/
@@ -25,16 +37,4 @@ https://nytimes.com/video/nyregion/newyorktoday/100000010492728/flash-flooding-h
 **2 Men Die in Basement Flooding as Sudden Downpour Hits New York Area**\
 `Much of the rainfall came in an intense 20-minute period in the afternoon, officials said. A record two inches fell at LaGuardia Airport.`\
 https://nytimes.com/2025/10/30/nyregion/nyc-floods-brooklyn-basement-death.html
-
-**LSU parts ways with AD Scott Woodward after criticism by Louisiana governor**\
-`The move comes just days after the program fired head football coach Brian Kelly.`\
-https://nytimes.com/athletic/6765094/2025/10/30/lsu-ad-fired-scott-woodward-brian-kelly-governor/
-
-**Ohio Republicans Gain Ground in Push for More Seats in Congress**\
-`The map, which is expected to be approved on Friday morning by the state’s redistricting commission, improves Republicans’ odds of picking up two more seats.`\
-https://nytimes.com/2025/10/30/us/politics/ohio-redistricting-deal.html
-
-**Trump Returns to White House in Time to Greet Trick-or-Treaters**\
-`President Trump, who did not wear a costume, and the first lady handed out candy at the annual Halloween celebration at the White House.`\
-https://nytimes.com/2025/10/30/us/politics/trump-halloween-candy-white-house.html
 

@@ -1,3 +1,15 @@
+**Enslaved Potter’s Art, Displayed at Boston Museum, Returns to Heirs at Last**\
+`The Museum of Fine Arts, Boston, said David Drake, the artist, had been “deprived of his creations involuntarily and without compensation.”`\
+https://nytimes.com/2025/10/30/us/mfa-boston-david-drake-pottery.html
+
+**Laurie Metcalf Is Riveting in ‘Little Bear Ridge Road’**\
+`The playwright Samuel D. Hunter makes his Broadway debut with an addition to his Idaho oeuvre, set during the Covid-19 pandemic and its aftermath.`\
+https://nytimes.com/2025/10/30/theater/little-bear-ridge-road-review-metcalf.html
+
+**Predator in a Pod**\
+`Juliana Tringali Golden opens our solving weekend with some sizzling wordplay.`\
+https://nytimes.com/2025/10/30/crosswords/daily-puzzle-2025-10-31.html
+
 **2 Men Die in Basement Flooding as Sudden Downpour Hits New York Area**\
 `Much of the rainfall came in an intense 20-minute period in the afternoon, officials said. A record two inches fell at LaGuardia Airport.`\
 https://nytimes.com/2025/10/30/nyregion/nyc-floods-brooklyn-basement-death.html
