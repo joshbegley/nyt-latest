@@ -1,3 +1,11 @@
+**What Tuesday’s Elections Might Tell Us About Trump**\
+`He’s not on the ballot, but the results could carry hints about the future of his movement.`\
+https://nytimes.com/2025/10/31/us/politics/elections-new-jersey-california-trump.html
+
+**UEFA facing £17.5m claim for alleged theft of new Champions League format**\
+`Europe's premier club competition switched to a 36-team 'league phase' last season`\
+https://nytimes.com/athletic/6767369/2025/10/31/uefa-claim-theft-champions-league/
+
 **Giants ace Logan Webb on manager Tony Vitello: 'We're all super excited'**\
 `"He seems like he has a ton of energy," Webb said of the Giants' new manager. "He's very smart. He brings a ton of passion."`\
 https://nytimes.com/athletic/6767553/2025/10/31/sf-giants-logan-webb-tony-vitello-super-excited/

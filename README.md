@@ -1,3 +1,7 @@
+**The 11.2.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/10/31/the-11225-issue
+
 **What Tuesday’s Elections Might Tell Us About Trump**\
 `He’s not on the ballot, but the results could carry hints about the future of his movement.`\
 https://nytimes.com/2025/10/31/us/politics/elections-new-jersey-california-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/31/arts/alison-knowles-dead.html
 **The U.S. Was Ordered to Pay Food Stamp Benefits**\
 `Also, California Democrats are feeling unusually confident. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/10/31/briefing/the-us-was-ordered-to-pay-food-stamp-benefits.html
-
-**Vance Says He Hopes His Wife Embraces Christianity, Setting Off Backlash**\
-`Critics included some Indian Americans, who said the remarks did not respect the religious decisions of Usha Vance, who grew up in a Hindu household.`\
-https://nytimes.com/2025/10/31/us/politics/usha-jd-vance-christianity-religion-hindu.html
 

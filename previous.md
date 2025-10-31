@@ -1,3 +1,7 @@
+**What Tuesday’s Elections Might Tell Us About Trump**\
+`He’s not on the ballot, but the results could carry hints about the future of his movement.`\
+https://nytimes.com/2025/10/31/us/politics/elections-new-jersey-california-trump.html
+
 **Giants ace Logan Webb on manager Tony Vitello: 'We're all super excited'**\
 `"He seems like he has a ton of energy," Webb said of the Giants' new manager. "He's very smart. He brings a ton of passion."`\
 https://nytimes.com/athletic/6767553/2025/10/31/sf-giants-logan-webb-tony-vitello-super-excited/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6767553/2025/10/31/sf-giants-logan-webb-tony-vitell
 https://nytimes.com/2025/10/31/world/africa/darfur-sudan-atrocities.html
 
 **UEFA facing £17.5m claim for alleged theft of new Champions League format**\
-`The governing body has not yet been formally notified of the action but, once it is, will have 20 business days to respond.`\
+`Europe's premier club competition switched to a 36-team 'league phase' last season`\
 https://nytimes.com/athletic/6767369/2025/10/31/uefa-claim-theft-champions-league/
 
 **Zoë Wicomb, Acclaimed South African Author, Dies at 76**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/31/briefing/the-us-was-ordered-to-pay-food-stamp-ben
 **Vance Says He Hopes His Wife Embraces Christianity, Setting Off Backlash**\
 `Critics included some Indian Americans, who said the remarks did not respect the religious decisions of Usha Vance, who grew up in a Hindu household.`\
 https://nytimes.com/2025/10/31/us/politics/usha-jd-vance-christianity-religion-hindu.html
-
-**J.J. McCarthy to start for Vikings at quarterback vs. Lions**\
-`For the first time since mid-September, young quarterback J.J. McCarthy will start Sunday for the Minnesota Vikings.`\
-https://nytimes.com/athletic/6767203/2025/10/31/jj-mccarthy-start-vikings-lions/
 
