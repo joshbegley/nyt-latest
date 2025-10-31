@@ -1,3 +1,7 @@
+**2025 Holiday Gift Guide**\
+`From frugal to fancy, we've curated the best gifts to help you check everyone off your list.`\
+https://nytimes.com/interactive/2025/us/holiday-gift-guide.html
+
 **Flashback: Your Weekly History Quiz, Nov. 1, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/10/31/upshot/flashback.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6764677/2025/10/31/fantasy-football-redraft-trade-v
 **NBA explains why Terry Rozier resumed playing amid gambling investigation**\
 `The NBA investigated Terry Rozier after multiple sports books flagged suspicious wagers on him. Then, he kept playing.`\
 https://nytimes.com/athletic/6766502/2025/10/31/nba-terry-rozier-playing-gambling-investigation/
-
-**A Republican Seeks to Match Trump’s Gains on Democratic Turf in New Jersey**\
-`With President Trump making inroads with Black and Latino voters, the path to the governor’s office runs through regions Democrats can no longer take for granted.`\
-https://nytimes.com/2025/10/31/nyregion/jack-ciattarelli-mikie-sherrill-new-jersey-black-latino-voters.html
 
