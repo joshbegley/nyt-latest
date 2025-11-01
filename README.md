@@ -1,3 +1,7 @@
+**Devils, Jacob Markström agree to 2-year, $6 million AAV extension**\
+`The 35-year-old Swede has an .830 save percentage and 5.13 goals-against average in four games this season.`\
+https://nytimes.com/athletic/6767797/2025/10/31/devils-jacob-markstrom-contract-extension/
+
 **As the Shutdown Pain Grows, Trump Attends to Other Matters**\
 `The president attended a Halloween party Friday and called attention to the marble renovation of a White House bathroom.`\
 https://nytimes.com/2025/10/31/us/politics/trump-shutdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/31/us/kentucky-severed-arms-fingers.html
 **27 U.S. cities and areas apply to host games at 2031 Men’s Rugby World Cup**\
 `The World Rugby CEO also said consideration is being given to taking one-off fixtures to the U.S.`\
 https://nytimes.com/athletic/6767573/2025/10/31/mens-rugby-world-cup2031-united-states-hosts/
-
-**Sources: St. Louis City hiring Corey Wray as sporting director**\
-`Wray replaces Lutz Pfannenstiel, who was fired in August.`\
-https://nytimes.com/athletic/6763383/2025/10/31/st-louis-city-sporting-director-mls-corey-wray/
 
