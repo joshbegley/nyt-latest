@@ -30,8 +30,8 @@ https://nytimes.com/2025/11/01/nyregion/broadway-nyc-marathon-jordan-litz.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/11/01/crosswords/spelling-bee-forum.html
 
-**One word describes the Kieffer Moore hat-trick that helped Wrexham beat Coventry - perfect**\
-`Goals with his right foot, left foot and head saw Kieffer Moore walk home with the match ball - and ended Coventry's unbeaten start`\
+**One word describes the Kieffer Moore hat-trick that helped Wrexham beat Coventry: Perfect**\
+`Goals with his right foot, left foot and head saw Kieffer Moore walk home with the match ball – and ended Coventry's unbeaten start`\
 https://nytimes.com/athletic/6767565/2025/11/01/kieffer-moore-wrexham-perfect-hattrick-coventry/
 
 **How to watch Dodgers at Blue Jays: World Series Game 7 Time, TV, streaming**\
