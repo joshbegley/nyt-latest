@@ -1,4 +1,4 @@
-**Luka Dončić exceeds 40 points for third straight game as Lakers defeat Grizzlies**\
+**Luka Dončić tops 40 points for third straight game as Lakers beat Grizzlies**\
 `Dončić joined Wilt Chamberlain as the only players to score at least 40 points in their first three games of an NBA season.`\
 https://nytimes.com/athletic/6768043/2025/11/01/luka-doncic-highlights-stats-lakers-grizzlies-injury/
 

@@ -1,3 +1,7 @@
+**Can Shohei Ohtani, the Dodgers' Game 7 starter, pitch and hit them to a title?**\
+`A team source confirmed that Ohtani will start Game 7 for the Dodgers against the Blue Jays' 41-year-old future Hall of Famer Max Scherzer.`\
+https://nytimes.com/athletic/6767933/2025/10/31/shohei-ohtani-dodgers-game-7-pitching/
+
 **Luka Dončić exceeds 40 points for third straight game as Lakers defeat Grizzlies**\
 `Dončić joined Wilt Chamberlain as the only players to score at least 40 points in their first three games of an NBA season.`\
 https://nytimes.com/athletic/6768043/2025/11/01/luka-doncic-highlights-stats-lakers-grizzlies-injury/
