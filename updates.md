@@ -1,3 +1,19 @@
+**North Texas topples previously unbeaten Navy 31-17, tightens AAC race**\
+`A week after UNT’s Drew Mestemaker passed for a conference record 608 yards, the Mean Green used their running game to take down Navy.`\
+https://nytimes.com/athletic/6769114/2025/11/01/north-texas-takes-down-previously-unbeaten-navy-tightens-american-athletic-conference-standings/
+
+**SMU knocks off No. 10 Miami in OT to put Hurricanes' CFP hopes in peril**\
+`The win was SMU's first against an AP top-10 team since the Jan. 1, 1983 Sugar Bowl against Pitt and first at home since 1974.`\
+https://nytimes.com/athletic/6769189/2025/11/01/smu-miami-score-result-acc-playoff/
+
+**Front-runner emerges for Mets pitching coach job: Sources**\
+`Justin Willard, 35, is the Boston Red Sox director of pitching and holds several years of experience in pitching development.`\
+https://nytimes.com/athletic/6769109/2025/11/01/mets-pitching-coach-justin-willard/
+
+**The Briefing: Tottenham 0 Chelsea 1 – Can Spurs solve their attacking bluntness? How impressive was Moises Caicedo?**\
+`The Athletic's writers analyse Saturday evening's derby between Spurs and Chelsea in north London`\
+https://nytimes.com/athletic/6756851/2025/11/01/tottenham-chelsea-premier-league-analysis/
+
 **Obama Calls Mamdani to Praise His Campaign and Offers to Be Sounding Board**\
 `Former President Barack Obama told Zohran Mamdani “your campaign has been impressive to watch,” and suggested that he was invested in Mr. Mamdani’s success beyond the election.`\
 https://nytimes.com/2025/11/01/nyregion/zohran-mamdani-barack-obama-election.html
