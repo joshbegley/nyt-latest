@@ -3,7 +3,7 @@
 https://nytimes.com/2025/11/01/arts/music/marcyliena-morgan-dead.html
 
 **Notre Dame pulls away late to win at Boston College, stay in Playoff race: Key takeaways**\
-`Notre Dame did enough to put away Boston College on Saturday, but also made plenty of mistakes.`\
+`Notre Dame did enough to put away Boston College on Saturday but also made plenty of mistakes.`\
 https://nytimes.com/athletic/6769288/2025/11/01/notre-dame-boston-college-score-result/
 
 **Emery expects Mings to be sidelined for 'weeks' with hamstring injury**\
