@@ -1,3 +1,7 @@
+**Can South Korea Manage the Competing Needs of the U.S. and China?**\
+`The country’s new president rolled out the red carpet for China’s leader, Xi Jinping, and President Trump this week, but the superpower rivalry is making it harder to balance relations.`\
+https://nytimes.com/2025/11/01/world/asia/south-korea-china-us.html
+
 **The Pulse: Why Game 7 could be iconic**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6768085/2025/11/01/an-epic-game-7-of-the-world-series-inside-one-of-the-41-biggest-games-ever/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6768663/2025/11/01/avalanche-vs-sharks-stream-how-t
 **How to watch Penguins vs. Jets: Time, TV, streaming**\
 `Find out how to watch the Pittsburgh Penguins play the Winnipeg Jets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6768661/2025/11/01/penguins-vs-jets-stream-how-to-watch-nov-1/
-
-**Once Bitter Rivals, Cuomo and Adams Join Forces in Mayor’s Race**\
-`Mayor Eric Adams and former Gov. Andrew M. Cuomo have campaigned together and had a meeting of the minds on policy since Mr. Adams dropped his re-election bid.`\
-https://nytimes.com/2025/11/01/nyregion/cuomo-adams-new-york-mayor-race.html
 

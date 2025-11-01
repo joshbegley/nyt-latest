@@ -1,3 +1,7 @@
+**Can South Korea Manage the Competing Needs of the U.S. and China?**\
+`The country’s new president rolled out the red carpet for China’s leader, Xi Jinping, and President Trump this week, but the superpower rivalry is making it harder to balance relations.`\
+https://nytimes.com/2025/11/01/world/asia/south-korea-china-us.html
+
 **The Pulse: Why Game 7 could be iconic**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6768085/2025/11/01/an-epic-game-7-of-the-world-series-inside-one-of-the-41-biggest-games-ever/
