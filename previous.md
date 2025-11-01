@@ -1,3 +1,23 @@
+**Doc Rivers on possible SNAP delays: 'We're talking about kids not getting food'**\
+`The Milwaukee Bucks coach delivered an impassioned statement about government food assistance potentially being delayed.`\
+https://nytimes.com/athletic/6769242/2025/11/01/milwaukee-bucks-doc-rivers-snap/
+
+**Trump Threatens Military Action in Nigeria Over Protections for Christians**\
+`Accusing Nigeria of not doing enough to protect Christians from violence, President Trump said he had ordered the Pentagon to prepare for action.`\
+https://nytimes.com/2025/11/01/world/africa/trump-nigeria-military.html
+
+**Georgia's year of comebacks continues as it ekes out win over rival Florida: Key takeaways**\
+`The 'never say die Dawgs' struck again to stay in the race for the SEC Championship Game.`\
+https://nytimes.com/athletic/6769359/2025/11/01/georgia-florida-score-result/
+
+**Forever Young wins Breeders' Cup Classic for Japan's third win**\
+`This year’s Classic featured nine horses after Sovereignty, the 2025 Kentucky Derby and Belmont Stakes winner, was scratched with a fever.`\
+https://nytimes.com/athletic/6769535/2025/11/01/breeders-cup-classic-forever-young-win-yoshito-yahagi/
+
+**Dodgers' Tyler Glasnow may be limited in Game 7 due to 'side discomfort': Report**\
+`Fox's Tom Verducci noted that Glasnow, who threw three pitches at the end of Game 6, is dealing with "a little bit of side discomfort."`\
+https://nytimes.com/athletic/6769541/2025/11/01/tyler-glasnow-los-angeles-dodgers-update/
+
 **Marcyliena Morgan, Founder of Harvard’s Hip-Hop Archive, Dies at 75**\
 `Her university’s vast collection of albums, scholarly essays and other ephemera helped establish rap as a course of serious study on a par with classical music.`\
 https://nytimes.com/2025/11/01/arts/music/marcyliena-morgan-dead.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6769304/2025/11/01/northern-arizona-catch-dark-jays
 **Eagles acquire CB Jaire Alexander from Ravens for sixth-round pick**\
 `The defending Super Bowl champions acquired the defensive back and a draft pick from Baltimore on Saturday.`\
 https://nytimes.com/athletic/6769356/2025/11/01/jaire-alexander-trade-eagles-ravens-nfl/
-
-**Miami is crashing out of the CFP picture in exactly the way you might expect**\
-`The Canes can’t stop tripping over themselves when it matters most.`\
-https://nytimes.com/athletic/6769349/2025/11/01/miami-smu-mario-cristobal-cfp/
-
-**‘Intentional’ Explosion Took Place at Harvard Medical School, Officials Say**\
-`Two people were seen running from the building afterward, the school said. No injuries were reported, the school police said.`\
-https://nytimes.com/2025/11/01/us/harvard-medical-school-explosion.html
-
-**Mamdani is joined by Ro Khanna in hopes of exciting South Asian voters.**\
-`By Benjamin Oreskes`\
-https://nytimes.com/live/2025/11/01/nyregion/nyc-mayor-election-news/mamdani-is-joined-by-ro-khanna-in-hopes-of-exciting-south-asian-voters
-
-**The Buckeyezzzzz: Ohio State is so good it's boring**\
-`It's like watching the Harlem Globetrotters — without the buckets of confetti. That's not a criticism. They're the best team in the country.`\
-https://nytimes.com/athletic/6769358/2025/11/01/ohio-state-buckeyes-best-college-football-team/
-
-**Open-Faced**\
-`There’s no resisting this enormous themeless puzzle from Rafael Musa.`\
-https://nytimes.com/2025/11/01/crosswords/daily-puzzle-2025-11-02.html
 
