@@ -1,40 +1,40 @@
-**Carney Says He Apologized to Trump Over Ad Reviving Reagan’s Tariff Criticism**\
-`The Canadian prime minister also said that he had asked the province of Ontario not to air the ad that later prompted the president to end trade talks.`\
-https://nytimes.com/2025/11/01/world/canada/carney-trump-apology-tariffs-reagan-ad.html
+**There’s a New Work Friend in Town**\
+`And it’s Max Read.`\
+https://nytimes.com/2025/11/01/business/theres-a-new-work-friend-in-town.html
 
-**Hurzeler: 'More attention' on Rutter after Joao Pedro departure**\
-`Rutter has made a slow start to the season at Brighton following the £60million summer sale of Joao Pedro to Chelsea.`\
-https://nytimes.com/athletic/6766084/2025/11/01/brighton-rutter-joao-pedro/
+**A Rare Visitor to Long Island Is Driving Birders Cuckoo**\
+`A common cuckoo, a species native to Europe and Asia, made several recent appearances in Riverhead, N.Y. The birds have been spotted in a handful of places in the lower 48 states, experts said.`\
+https://nytimes.com/2025/11/01/nyregion/rare-cuckoo-sighting-long-island.html
 
-**The secret meetings behind Ruben Amorim's Manchester United appointment, one year on**\
-`Manchester United's executives staged meetings across Europe last summer and autumn before finally appointing Ruben Amorim`\
-https://nytimes.com/athletic/6764537/2025/11/01/ruben-amorim-manchester-united-secret-meetings/
+**Trump’s Team Offers to Keep Some Ballroom Donors Incognito**\
+`Many corporate interests that have donated to the president’s pet project have business before his administration.`\
+https://nytimes.com/2025/11/01/us/politics/trumps-team-offers-to-keep-some-ballroom-donors-incognito.html
 
-**After Days of Protests, Tanzania’s President Is Declared Election Winner**\
-`Election monitors and members of the European Parliament have questioned the election’s integrity, and violent protests have rocked the country.`\
-https://nytimes.com/2025/11/01/world/africa/tanzania-president-election-protest-violence.html
+**This Genetically Engineered Fungus Could Help Fix Your Mosquito Problem**\
+`In experiments, researchers showed that the disease-spreading insects couldn’t resist the sweet smell of a fungus that infected and killed them.`\
+https://nytimes.com/2025/11/01/science/fungus-mosquitoes-genetic-engineering.html
 
-**New York, Long a City of Contradictions, Is Still Turning Up New Ones**\
-`New York City has often set the political, cultural and financial course of the country. Tuesday’s mayoral election — and a New Yorker watching from Washington — could scramble it all.`\
-https://nytimes.com/2025/11/01/nyregion/nyc-mayoral-election-future.html
+**Fed Governor Defends Call for Big Rate Cuts**\
+`In a wide-ranging interview, Stephen I. Miran discussed why he thinks concerns about inflation are overblown and his worries about the economy if the Federal Reserve does not rapidly lower interest rates. Here is a full transcript.`\
+https://nytimes.com/2025/11/01/us/politics/steven-miran-interview-transcript.html
 
-**Governor’s Race Draws Obama and Hannity but Not Trump in Final Days**\
-`Prominent figures have flocked to New Jersey to promote Mikie Sherrill, the Democrat, and Jack Ciattarelli, the Republican, in a race with potential implications for the midterm elections.`\
-https://nytimes.com/2025/11/01/nyregion/mikie-sherrill-jack-ciattarelli-obama-hannity.html
+**Future of Gerrymandering? Here’s How Weird Things Could Look.**\
+`These extreme maps may not be likely, but they might soon be legal, with temptations to go further than ever before.`\
+https://nytimes.com/2025/11/01/upshot/gerrymanders-redistricting-maps.html
 
-**One Bookstore, 3 Sisters and 100 Years**\
-`A Midtown Manhattan anomaly, the Argosy Book Store continues to thrive thanks to the dedication of the three women who have presided over it for decades.`\
-https://nytimes.com/2025/11/01/nyregion/three-sisters-argosy-books.html
+**Shutdowns, Obamacare and the Risks of Bargaining for Policy Wins in a Crisis**\
+`A 2013 attempt to leverage minority power in a health care fight blew up on Republicans. Can today be different for Democrats?`\
+https://nytimes.com/2025/11/01/us/politics/shutdowns-obamacare-republicans-democrats.html
 
-**How a Broadway Star Spends a Day Training for the N.Y.C. Marathon**\
-`Jordan Litz, who plays Fiyero in “Wicked,” gets pulled out of bed by his 2-year-old daughter. Then he’s off for a long run and hours of dancing in two shows.`\
-https://nytimes.com/2025/11/01/nyregion/broadway-nyc-marathon-jordan-litz.html
+**Ready to Run the Marathon (and Eventually Get Back to Real Life)**\
+`For these first-time marathoners, training for race day involved sweat, tears and lots of talking about it.`\
+https://nytimes.com/2025/11/01/style/nyc-marathon-training.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/11/01/crosswords/spelling-bee-forum.html
+**How to Shop for Obamacare When Subsidies Are in Limbo**\
+`Enrollment for A.C.A. health coverage begins Nov. 1, with some staggering price increases. Here is a guide to help you choose a plan while Congress is at an impasse over tax credits.`\
+https://nytimes.com/2025/11/01/health/aca-obamacare-enrollment-health-insurance.html
 
-**One word describes the Kieffer Moore hat-trick that helped Wrexham beat Coventry: Perfect**\
-`Goals with his right foot, left foot and head saw Kieffer Moore walk home with the match ball – and ended Coventry's unbeaten start`\
-https://nytimes.com/athletic/6767565/2025/11/01/kieffer-moore-wrexham-perfect-hattrick-coventry/
+**Saudi Prince Plans Ambitious U.S. Visit, but Opening Ties With Israel Is Unlikely**\
+`The crown prince of Saudi Arabia is pushing for a security pact and a nuclear deal with the United States yet is not expected to recognize Israel soon, despite President Trump’s wishes.`\
+https://nytimes.com/2025/11/01/world/middleeast/mohammed-bin-salman-us-visit.html
 
