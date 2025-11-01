@@ -1,3 +1,7 @@
+**Eagles acquire CB Jaire Alexander from Ravens for 6th round pick**\
+`The defending Super Bowl champions acquired the defensive back and a draft pick from the Baltimore Ravens on Saturday.`\
+https://nytimes.com/athletic/6769356/2025/11/01/jaire-alexander-trade-eagles-ravens-nfl/
+
 **Miami is crashing out of the CFP picture in exactly the way you might expect**\
 `The Canes can’t stop tripping over themselves when it matters most.`\
 https://nytimes.com/athletic/6769349/2025/11/01/miami-smu-mario-cristobal-cfp/
