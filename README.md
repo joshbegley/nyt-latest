@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: Miami, Vandy chances drop; North Texas rising**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/01/college-football-playoff-bracket-projections-odds/
+
 **Doc Rivers on possible SNAP delays: 'We're talking about kids not getting food'**\
 `The Milwaukee Bucks coach delivered an impassioned statement about government food assistance potentially being delayed.`\
 https://nytimes.com/athletic/6769242/2025/11/01/milwaukee-bucks-doc-rivers-snap/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6769242/2025/11/01/milwaukee-bucks-doc-rivers-snap/
 https://nytimes.com/2025/11/01/world/africa/trump-nigeria-military.html
 
 **Georgia's year of comebacks continues as it ekes out win over rival Florida: Key takeaways**\
-`The 'never say die Dawgs' struck again to stay in the race for the SEC Championship Game.`\
+`The "never say die Dawgs" struck again to stay in the race for the SEC Championship Game with a 24-20 win over the Gators on Saturday.`\
 https://nytimes.com/athletic/6769359/2025/11/01/georgia-florida-score-result/
 
 **Forever Young wins Breeders' Cup Classic for Japan's third win**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6769502/2025/11/01/tyrone-mings-injury-latest-aston
 **Northern Arizona's Jayson Raines sees pass until lights go out — and still makes catch**\
 `Raines' 2-point conversion catch didn't count because Northern Arizona's stadium lights went out while the pass was in the air vs. Idaho.`\
 https://nytimes.com/athletic/6769304/2025/11/01/northern-arizona-catch-dark-jayson-raines/
-
-**Eagles acquire CB Jaire Alexander from Ravens for sixth-round pick**\
-`The defending Super Bowl champions acquired the defensive back and a draft pick from Baltimore on Saturday.`\
-https://nytimes.com/athletic/6769356/2025/11/01/jaire-alexander-trade-eagles-ravens-nfl/
 
