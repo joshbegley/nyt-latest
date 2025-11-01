@@ -1,3 +1,7 @@
+**Cuomo Says Diversity Can Be a ‘Strength’ and a ‘Weakness’ in Interview**\
+`Andrew M. Cuomo, after saying he “unequivocally” condemned Islamophobic comments directed at Zohran Mamdani, told MSNBC that “antipathy among groups” could create “friction.”`\
+https://nytimes.com/2025/11/01/nyregion/cuomo-interview-islamophobia-diversity-mamdani.html
+
 **WATCH: How this player has become most dangerous in the NFL**\
 `Eight weeks into the season, Taylor leads the NFL in rushing yards, total scrimmage yards and touchdowns.`\
 https://nytimes.com/athletic/6767478/2025/11/01/colts-jonathan-taylor-film-breakdown-video-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/01/world/asia/south-korea-china-us.html
 **The Pulse: Why Game 7 could be iconic**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6768085/2025/11/01/an-epic-game-7-of-the-world-series-inside-one-of-the-41-biggest-games-ever/
-
-**Scoop City: Fantasy tips to win Week 9**\
-`A pair of rookie running backs are set to elevate to starting roles for the week. Plus, a premier TE returns.`\
-https://nytimes.com/athletic/6768726/2025/11/01/everything-fantasy-football-managers-need-to-know-for-week-9/
 

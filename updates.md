@@ -1,3 +1,7 @@
+**Cuomo Says Diversity Can Be a ‘Strength’ and a ‘Weakness’ in Interview**\
+`Andrew M. Cuomo, after saying he “unequivocally” condemned Islamophobic comments directed at Zohran Mamdani, told MSNBC that “antipathy among groups” could create “friction.”`\
+https://nytimes.com/2025/11/01/nyregion/cuomo-interview-islamophobia-diversity-mamdani.html
+
 **WATCH: How this player has become most dangerous in the NFL**\
 `Eight weeks into the season, Taylor leads the NFL in rushing yards, total scrimmage yards and touchdowns.`\
 https://nytimes.com/athletic/6767478/2025/11/01/colts-jonathan-taylor-film-breakdown-video-analysis/
