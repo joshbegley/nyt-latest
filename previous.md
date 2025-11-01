@@ -1,3 +1,7 @@
+**Tokyo’s Halloween Revelers Aren’t Put Off by Rain**\
+`Neither rain nor strict measures against overcrowding could keep people away from the annual Halloween street party in Shibuya, Tokyo.`\
+https://nytimes.com/card/2025/11/01/world/asia/tokyo-japan-halloween
+
 **Luka Dončić tops 40 points for third straight game as Lakers beat Grizzlies**\
 `Dončić joined Wilt Chamberlain as the only players to score at least 40 points in their first three games of an NBA season.`\
 https://nytimes.com/athletic/6768043/2025/11/01/luka-doncic-highlights-stats-lakers-grizzlies-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6767933/2025/10/31/shohei-ohtani-dodgers-game-7-pit
 **Cozy, Classy and Sporty Socks We Adore **\
 `Text by Zoe Vanderweide`\
 https://nytimes.com/card/2025/11/01/smarter-living/wirecutter/
-
-**Dodgers-Blue Jays Game 6 takeaways: Kiké Hernández, Miguel Rojas combine to force Game 7**\
-`Facing a 3-2 hole, the Dodgers climbed back to force a winner-take-all Game 7 and keep their World Series hopes alive.`\
-https://nytimes.com/athletic/6767806/2025/10/31/dodgers-blue-jays-world-series-game-6-results-takeaways-mlb/
 
