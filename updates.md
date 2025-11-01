@@ -1,3 +1,11 @@
+**Cozy, Classy and Sporty Socks We Adore **\
+`Text by Zoe Vanderweide`\
+https://nytimes.com/card/2025/11/01/smarter-living/wirecutter/
+
+**Dodgers-Blue Jays Game 6 takeaways: Kiké Hernández, Miguel Rojas combine to force Game 7**\
+`Facing a 3-2 hole, the Dodgers climbed back to force a winner-take-all Game 7 and keep their World Series hopes alive.`\
+https://nytimes.com/athletic/6767806/2025/10/31/dodgers-blue-jays-world-series-game-6-results-takeaways-mlb/
+
 **Dodgers-Blue Jays Game 6 takeaways: Kiké Hernández, Miguel Rojas combine to force Game 7**\
 `Facing a 3-2 hole, the Dodgers climbed back to force a winner-take-all Game 7, helping ensure their World Series hopes remain alive.`\
 https://nytimes.com/athletic/6767806/2025/10/31/dodgers-blue-jays-world-series-game-6-results-takeaways-mlb/

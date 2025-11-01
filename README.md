@@ -1,3 +1,11 @@
+**Heidi Klum Has Snakes Coming Out of Her Head (Don’t Look)**\
+`The model and TV personality dressed like Medusa for her annual Halloween party in New York City this year.`\
+https://nytimes.com/2025/10/31/style/heidi-klum-halloween-costume-medusa.html
+
+**Can Shohei Ohtani, expected to take the mound in Game 7, pitch and hit the Dodgers to a title?**\
+`Dodgers manager Dave Roberts said that the two-way superstar will be 'part of the pitching plan' in Game 7.`\
+https://nytimes.com/athletic/6767933/2025/10/31/shohei-ohtani-dodgers-game-7-pitching/
+
 **Cozy, Classy and Sporty Socks We Adore **\
 `Text by Zoe Vanderweide`\
 https://nytimes.com/card/2025/11/01/smarter-living/wirecutter/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/31/us/politics/trump-proof-citizenship-voter-registr
 **What Is Happening With SNAP Benefits During the Shutdown?**\
 `President Trump said that he would heed court rulings ordering his administration to fund food stamps during the government shutdown, but there are complications.`\
 https://nytimes.com/2025/10/31/us/politics/snap-benefits-shutdown.html
-
-**Spectator jumps on Rogers Centre field, disrupts play in Game 6 of World Series**\
-`The spectator was ultimately escorted off the field by four security guards and two uniformed police officers.`\
-https://nytimes.com/athletic/6767906/2025/10/31/blue-jays-dodgers-world-series-game-6-delay/
-
-**Campus Opening?**\
-`Michael Lieberman’s latest themeless puzzle is no pushover.`\
-https://nytimes.com/2025/10/31/crosswords/daily-puzzle-2025-11-01.html
 
