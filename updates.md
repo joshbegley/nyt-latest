@@ -1,3 +1,23 @@
+**How Britain Got Investors to Line Up for Nuclear Power**\
+`Developers have finally broken ground on the project, known as Sizewell C, but getting there meant navigating wary investors and local opposition.`\
+https://nytimes.com/2025/11/01/business/britain-nuclear-power-plant-sizewell.html
+
+**Quote of the Day: Trump’s Talk of Nuclear Tests Recalls Fears of the Cold War**\
+`Quotation of the Day for Saturday, November 1, 2025.`\
+https://nytimes.com/2025/11/01/pageoneplus/quote-of-the-day-trumps-talk-of-nuclear-tests-recalls-fears-of-the-cold-war.html
+
+**For a Literary Saint, Margaret Atwood Can Sure Hold a Grudge**\
+`She had to be pushed to write her new memoir, “Book of Lives.” The result reveals the experiences (and a few slights) that have shaped her work.`\
+https://nytimes.com/2025/11/01/books/review/margaret-atwood-book-of-lives-memoir.html
+
+**Connections: Sports Edition Coach: Hints for Nov. 1, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6766230/2025/11/01/connections-sports-edition-hints-for-nov-1-2025/
+
+**Corrections: Nov. 1, 2025**\
+`Corrections that appeared in print on Saturday, Nov. 1, 2025.`\
+https://nytimes.com/2025/11/01/pageoneplus/corrections-nov-1-2025.html
+
 **Heidi Klum Has Snakes Coming Out of Her Head (Don’t Look)**\
 `The model and TV personality dressed like Medusa for her annual Halloween party in New York City this year.`\
 https://nytimes.com/2025/10/31/style/heidi-klum-halloween-costume-medusa.html
