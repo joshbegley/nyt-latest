@@ -1,3 +1,11 @@
+**What Is Happening With SNAP Benefits During the Shutdown?**\
+`President Trump said that he would heed court rulings ordering his administration to fund food stamps during the government shutdown, but there are complications.`\
+https://nytimes.com/2025/10/31/us/politics/snap-benefits-shutdown.html
+
+**Spectator jumps on Rogers Centre field, disrupts play in Game 6 of World Series**\
+`The spectator was ultimately escorted off the field by four security guards and two uniformed police officers.`\
+https://nytimes.com/athletic/6767906/2025/10/31/blue-jays-dodgers-world-series-game-6-delay/
+
 **Campus Opening?**\
 `Michael Lieberman’s latest themeless puzzle is no pushover.`\
 https://nytimes.com/2025/10/31/crosswords/daily-puzzle-2025-11-01.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/31/us/politics/trump-shutdown.html
 **Immigration Agents Clash With Chicago-Area Residents on Halloween**\
 `The state’s governor had called for a pause in the federal immigration crackdown over the Halloween weekend, citing concerns for children’s safety.`\
 https://nytimes.com/2025/10/31/us/politics/chicago-ice-immigration-agents.html
-
-**Trump Renovates the Lincoln Bathroom in Marble and Gold**\
-`President Trump said the new look was “totally in keeping” with the era of Abraham Lincoln.`\
-https://nytimes.com/2025/10/31/us/politics/trump-lincoln-bathroom-white-house.html
-
-**NASA Gets Moon Lander Plan B’s From SpaceX and Blue Origin**\
-`As NASA worries that China will win the next moon race, Elon Musk and his company tangled with critics.`\
-https://nytimes.com/2025/10/31/science/nasa-moon-lander-spacex-blue-origin.html
 
