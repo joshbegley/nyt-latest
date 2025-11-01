@@ -1,3 +1,7 @@
+**Ohio State turns on the boosters to coast past reeling Penn State**\
+`The battered and broken Nittany Lions lost their fifth straight and still haven't beaten a power-conference opponent.`\
+https://nytimes.com/athletic/6769008/2025/11/01/ohio-state-penn-state-score-result/
+
 **Obama Calls Mamdani to Praise His Campaign, Offers to Be Sounding Board**\
 `Former President Barack Obama told Zohran Mamdani “your campaign has been impressive to watch,” and suggested that he was invested in Mr. Mamdani’s success beyond the election.`\
 https://nytimes.com/2025/11/01/nyregion/zohran-mamdani-barack-obama-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/01/nyregion/muslim-voters-mamdani.html
 **Al Sharpton condemns Islamophobia in the New York City mayor’s race.**\
 `By Jeffery C. Mays`\
 https://nytimes.com/live/2025/11/01/nyregion/nyc-mayor-election-news/al-sharpton-condemns-islamophobia-in-the-new-york-city-mayors-race
-
-**Bompastor accuses Earps of disrespect over Hampton, Wiegman comments**\
-`Writing in her new autobiography, Earps criticised Hampton's behaviour and the way in which Wiegman dropped her as England goalkeeper.`\
-https://nytimes.com/athletic/6768881/2025/11/01/sonia-bompastor-mary-earps-hampton-wiegman/
 
