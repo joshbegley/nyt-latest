@@ -1,3 +1,7 @@
+**Al Sharpton condemns Islamophobia in the New York City mayor’s race.**\
+`By Jeffery C. Mays`\
+https://nytimes.com/live/2025/11/01/nyregion/nyc-mayor-election-news/al-sharpton-condemns-islamophobia-in-the-new-york-city-mayors-race
+
 **Bompastor accuses Earps of disrespect over Hampton, Wiegman comments**\
 `Writing in her new autobiography, Earps criticised Hampton's behaviour and the way in which Wiegman dropped her as England goalkeeper.`\
 https://nytimes.com/athletic/6768881/2025/11/01/sonia-bompastor-mary-earps-hampton-wiegman/

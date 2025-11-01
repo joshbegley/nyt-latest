@@ -1,3 +1,7 @@
+**Al Sharpton condemns Islamophobia in the New York City mayor’s race.**\
+`By Jeffery C. Mays`\
+https://nytimes.com/live/2025/11/01/nyregion/nyc-mayor-election-news/al-sharpton-condemns-islamophobia-in-the-new-york-city-mayors-race
+
 **Bompastor accuses Earps of disrespect over Hampton, Wiegman comments**\
 `Writing in her new autobiography, Earps criticised Hampton's behaviour and the way in which Wiegman dropped her as England goalkeeper.`\
 https://nytimes.com/athletic/6768881/2025/11/01/sonia-bompastor-mary-earps-hampton-wiegman/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6768867/2025/11/01/blues-vs-blue-jackets-stream-how
 **How to watch Stars vs. Panthers: Time, TV, streaming**\
 `Find out how to watch the Dallas Stars play the Florida Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6768865/2025/11/01/stars-vs-panthers-stream-how-to-watch-nov-1/
-
-**How to watch Capitals vs. Sabres: Time, TV, streaming**\
-`Find out how to watch the Washington Capitals play the Buffalo Sabres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6768863/2025/11/01/capitals-vs-sabres-stream-how-to-watch-nov-1/
 
