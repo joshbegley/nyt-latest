@@ -1,3 +1,7 @@
+**Campus Opening?**\
+`Michael Lieberman’s latest themeless puzzle is no pushover.`\
+https://nytimes.com/2025/10/31/crosswords/daily-puzzle-2025-11-01.html
+
 **White House Limits Reporters’ Access to Press Secretary’s Office**\
 `The move broke from generations of precedent and added to the Trump administration’s growing list of restraints on the news media.`\
 https://nytimes.com/2025/10/31/us/politics/trump-white-house-press.html
