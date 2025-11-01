@@ -1,3 +1,7 @@
+**Doc Rivers on possible SNAP delays: 'We're talking about kids not getting food'**\
+`The Milwaukee Bucks coach delivered an impassioned statement about government food assistance potentially being delayed.`\
+https://nytimes.com/athletic/6769242/2025/11/01/milwaukee-bucks-doc-rivers-snap/
+
 **Trump Threatens Military Action in Nigeria Over Protections for Christians**\
 `Accusing Nigeria of not doing enough to protect Christians from violence, President Trump said he had ordered the Pentagon to prepare for action.`\
 https://nytimes.com/2025/11/01/world/africa/trump-nigeria-military.html
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6769359/2025/11/01/georgia-florida-score-result/
 https://nytimes.com/athletic/6769535/2025/11/01/breeders-cup-classic-forever-young-win-yoshito-yahagi/
 
 **Dodgers' Tyler Glasnow may be limited in Game 7 due to 'side discomfort': Report**\
-`Fox's Tom Verducci noted that Glasnow, who threw three pitches at the end of Game 6, is dealing with 'a little bit of side discomfort.'`\
+`Fox's Tom Verducci noted that Glasnow, who threw three pitches at the end of Game 6, is dealing with "a little bit of side discomfort."`\
 https://nytimes.com/athletic/6769541/2025/11/01/tyler-glasnow-los-angeles-dodgers-update/
 
 **Marcyliena Morgan, Founder of Harvard’s Hip-Hop Archive, Dies at 75**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6769304/2025/11/01/northern-arizona-catch-dark-jays
 **Eagles acquire CB Jaire Alexander from Ravens for sixth-round pick**\
 `The defending Super Bowl champions acquired the defensive back and a draft pick from Baltimore on Saturday.`\
 https://nytimes.com/athletic/6769356/2025/11/01/jaire-alexander-trade-eagles-ravens-nfl/
-
-**Miami is crashing out of the CFP picture in exactly the way you might expect**\
-`The Canes can’t stop tripping over themselves when it matters most.`\
-https://nytimes.com/athletic/6769349/2025/11/01/miami-smu-mario-cristobal-cfp/
 
