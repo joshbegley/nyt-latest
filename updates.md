@@ -1,3 +1,7 @@
+**One word describes the Kieffer Moore hat-trick that helped Wrexham beat Coventry - perfect**\
+`Goals with his right foot, left foot and head saw Kieffer Moore walk home with the match ball - and ended Coventry's unbeaten start`\
+https://nytimes.com/athletic/6767565/2025/11/01/kieffer-moore-wrexham-perfect-hattrick-coventry/
+
 **How to watch Dodgers at Blue Jays: World Series Game 7 Time, TV, streaming**\
 `Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6768157/2025/11/01/dodgers-vs-blue-jays-stream-how-to-watch-nov-1/
