@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6769222/2025/11/01/vitor-pereira-wolves-fulham/
 https://nytimes.com/2025/11/01/sports/tennis/wta-five-sets-equal-pay.html
 
 **Vladimir Guerrero Jr. wears Marie-Philip Poulin Team Canada jersey ahead of World Series Game 7**\
-`Vladimir Guerrero Jr. walked into Saturday's winner-take-all World Series finale with a nod to Canada's most clutch athlete ever.`\
+`The Blue Jays first baseman walked into Saturday's winner-take-all World Series finale with a nod to Canada's most clutch athlete ever.`\
 https://nytimes.com/athletic/6769194/2025/11/01/vladimir-guerrero-jr-marie-philip-poulin-team-canada-jersey/
 
 **YouTube TV subscribers frustrated over absence of ESPN college football programming**\
