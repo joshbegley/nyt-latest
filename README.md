@@ -1,3 +1,7 @@
+**Why Novak Djokovic is key to a thrilling ATP Tour Finals Race to Turin**\
+`Paris Masters results have left one spot at the ATP Tour Finals for two players — but Djokovic may offer another.`\
+https://nytimes.com/athletic/6763865/2025/11/01/atp-tour-race-to-turin-tour-finals-qualification/
+
 **A Powerful Doubles Team Heads to the WTA Finals**\
 `Gaby Dabrowski and Erin Routliffe have been playing together since 2023 and won the Finals last year and the U.S. Open twice.`\
 https://nytimes.com/2025/11/01/sports/tennis/wta-finals-doubles-routliffe-dabrowski.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6769109/2025/11/01/mets-pitching-coach-justin-willa
 **Texas keeps Playoff hopes alive as Arch Manning, Horns survive late scare vs. Vanderbilt**\
 `Manning returns from concussion protocol to lead Texas to a 34-31 win over Vanderbilt.`\
 https://nytimes.com/athletic/6769022/2025/11/01/texas-vanderbilt-score-result-takeaway-college-football/
-
-**The Briefing: Tottenham 0 Chelsea 1 – Can Spurs solve their attacking bluntness? How impressive was Moises Caicedo?**\
-`The Athletic's writers analyse Saturday evening's derby between Spurs and Chelsea in north London`\
-https://nytimes.com/athletic/6756851/2025/11/01/tottenham-chelsea-premier-league-analysis/
 
