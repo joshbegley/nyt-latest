@@ -1,3 +1,7 @@
+**One word describes the Kieffer Moore hat-trick that helped Wrexham beat Coventry - perfect**\
+`Goals with his right foot, left foot and head saw Kieffer Moore walk home with the match ball - and ended Coventry's unbeaten start`\
+https://nytimes.com/athletic/6767565/2025/11/01/kieffer-moore-wrexham-perfect-hattrick-coventry/
+
 **How to watch Dodgers at Blue Jays: World Series Game 7 Time, TV, streaming**\
 `Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6768157/2025/11/01/dodgers-vs-blue-jays-stream-how-to-watch-nov-1/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/11/01/todays-new-york-times
 **Tokyo’s Halloween Revelers Aren’t Put Off by Rain**\
 `Neither rain nor strict measures against overcrowding could keep people away from the annual Halloween street party in Shibuya, Tokyo.`\
 https://nytimes.com/card/2025/11/01/world/asia/tokyo-japan-halloween
-
-**Lakers' Luka Dončić drops 40 for third straight game to beat Grizzlies**\
-`Dončić joined Wilt Chamberlain as the only players to score at least 40 points in their first three games of an NBA season.`\
-https://nytimes.com/athletic/6768043/2025/11/01/luka-doncic-highlights-stats-lakers-grizzlies-injury/
 
