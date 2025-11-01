@@ -1,3 +1,7 @@
+**Vladimir Guerrero Jr. wears Marie-Philip Poulin Team Canada jersey ahead of World Series Game 7**\
+`Vladimir Guerrero Jr. walked into Saturday's winner-take-all World Series finale with a nod to Canada's most clutch athlete ever.`\
+https://nytimes.com/athletic/6769194/2025/11/01/vladimir-guerrero-jr-marie-philip-poulin-team-canada-jersey/
+
 **YouTube TV subscribers frustrated over absence of ESPN college football programming**\
 `ESPN and YouTubeTV contract dispute leaves college football unavailable on YouTube TV, much to the chagrin of the fans. `\
 https://nytimes.com/athletic/6768942/2025/11/01/college-football-fans-frustrated-youtube-tv-espn-deal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6769124/2025/11/01/rangers-vs-kraken-stream-how-to-
 **How to watch Blackhawks vs. Oilers: Time, TV, streaming**\
 `Find out how to watch the Chicago Blackhawks play the Edmonton Oilers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6769122/2025/11/01/blackhawks-vs-oilers-stream-how-to-watch-nov-1/
-
-**How to watch Devils vs. Kings: Time, TV, streaming**\
-`Find out how to watch the New Jersey Devils play the Los Angeles Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6769120/2025/11/01/devils-vs-kings-stream-how-to-watch-nov-1/
 
