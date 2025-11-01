@@ -1,3 +1,7 @@
+**The Red Wings are both improved and flawed. What does it mean for their outlook?**\
+`The Red Wings' 5-2 loss in Anaheim Friday showed their flaws, but their improvements this season also point to real opportunity ahead.`\
+https://nytimes.com/athletic/6768118/2025/11/01/red-wings-start-improvements-todd-mclellan/
+
 **Suns show improvement while waiting for Jalen Green, Dillon Brooks to get healthy**\
 `The Suns may struggle all year, but until Jalen Green and Dillon Brooks return to the lineup, they deserve a little time.`\
 https://nytimes.com/athletic/6768144/2025/11/01/phoenix-suns-devin-booker-utah-jazz-jalen-green-dillon-brooks/
