@@ -1,3 +1,15 @@
+**Neil Ryan on managing England at the Under-17 World Cup: ‘It’s about DNA and playing our way’**\
+`The former Manchester United youth coach will guide England’s youngsters in their quest against 47 other nations in Qatar this month`\
+https://nytimes.com/athletic/6757659/2025/11/01/england-under-17-world-cup-qatar-neil-ryan/
+
+**Who are the most two-footed shooters in European football, and does it matter?**\
+`The rise of tactical analysis means attacking players need to become even more unpredictable as they look to release an effort on goal`\
+https://nytimes.com/athletic/6766215/2025/11/01/two-footed-shooters-salah-dembele-semenyo/
+
+**Marathon heavyweights set for possible last dance in New York**\
+`Two marathon greats entering their twilight years will race each other in the New York City Marathon for the first time this Sunday`\
+https://nytimes.com/athletic/6762971/2025/11/01/eliud-kipchoge-kenenisa-bekele-new-york-marathon/
+
 **Tottenham Hotspur vs Chelsea: Season aims, set pieces, views of manager, and prediction**\
 `Tottenham and Chelsea meet on Saturday in the pick of the weekend's Premier League matches – here are the talking points`\
 https://nytimes.com/athletic/6765979/2025/11/01/tottenham-chelsea-preview-prediction-manager/

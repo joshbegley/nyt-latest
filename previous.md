@@ -1,3 +1,15 @@
+**Neil Ryan on managing England at the Under-17 World Cup: ‘It’s about DNA and playing our way’**\
+`The former Manchester United youth coach will guide England’s youngsters in their quest against 47 other nations in Qatar this month`\
+https://nytimes.com/athletic/6757659/2025/11/01/england-under-17-world-cup-qatar-neil-ryan/
+
+**Who are the most two-footed shooters in European football, and does it matter?**\
+`The rise of tactical analysis means attacking players need to become even more unpredictable as they look to release an effort on goal`\
+https://nytimes.com/athletic/6766215/2025/11/01/two-footed-shooters-salah-dembele-semenyo/
+
+**Marathon heavyweights set for possible last dance in New York**\
+`Two marathon greats entering their twilight years will race each other in the New York City Marathon for the first time this Sunday`\
+https://nytimes.com/athletic/6762971/2025/11/01/eliud-kipchoge-kenenisa-bekele-new-york-marathon/
+
 **Tottenham Hotspur vs Chelsea: Season aims, set pieces, views of manager, and prediction**\
 `Tottenham and Chelsea meet on Saturday in the pick of the weekend's Premier League matches – here are the talking points`\
 https://nytimes.com/athletic/6765979/2025/11/01/tottenham-chelsea-preview-prediction-manager/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/01/business/britain-nuclear-power-plant-sizewell.htm
 **Quote of the Day: Trump’s Talk of Nuclear Tests Recalls Fears of the Cold War**\
 `Quotation of the Day for Saturday, November 1, 2025.`\
 https://nytimes.com/2025/11/01/pageoneplus/quote-of-the-day-trumps-talk-of-nuclear-tests-recalls-fears-of-the-cold-war.html
-
-**For a Literary Saint, Margaret Atwood Can Sure Hold a Grudge**\
-`She had to be pushed to write her new memoir, “Book of Lives.” The result reveals the experiences (and a few slights) that have shaped her work.`\
-https://nytimes.com/2025/11/01/books/review/margaret-atwood-book-of-lives-memoir.html
-
-**Connections: Sports Edition Coach: Hints for Nov. 1, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6766230/2025/11/01/connections-sports-edition-hints-for-nov-1-2025/
-
-**Corrections: Nov. 1, 2025**\
-`Corrections that appeared in print on Saturday, Nov. 1, 2025.`\
-https://nytimes.com/2025/11/01/pageoneplus/corrections-nov-1-2025.html
 
