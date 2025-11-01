@@ -1,3 +1,7 @@
+**Suns show improvement while waiting for Jalen Green, Dillon Brooks to get healthy**\
+`The Suns may struggle all year, but until Jalen Green and Dillon Brooks return to the lineup, they deserve a little time.`\
+https://nytimes.com/athletic/6768144/2025/11/01/phoenix-suns-devin-booker-utah-jazz-jalen-green-dillon-brooks/
+
 **How to watch Kings vs. Bucks: Time, TV, streaming**\
 `Find out how to watch the Sacramento Kings play the Milwaukee Bucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6768669/2025/11/01/kings-vs-bucks-stream-how-to-watch-nov-1/
