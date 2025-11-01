@@ -1,3 +1,7 @@
+**The Dodgers kept their heads and keep their season alive to force a Game 7**\
+`Somehow, the Dodgers are here, still alive and gearing up for Game 7: “Everybody ... wants the moment to come to them,”`\
+https://nytimes.com/athletic/6768151/2025/11/01/dodgers-kike-hernandez-double-play-world-series/
+
 **Cuomo’s Pitch as He Claws for Votes: I’m Not the Divider, Mamdani Is**\
 `As Andrew Cuomo tries to gain ground in the New York City mayor’s race, he is trying to splinter some constituencies with natural affinities for the front-runner, Zohran Mamdani.`\
 https://nytimes.com/2025/11/01/nyregion/cuomo-strategy-mamdani.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/01/opinion/men-friendship-celebrities.html
 **The Last Days of a Zombie Mall (With Zombies)**\
 `What does it mean when a cultural epicenter is poised to be little more than a dearly departed corpse?`\
 https://nytimes.com/2025/11/01/opinion/romero-zombie-monroeville-mall-dawn-of-the-dead.html
-
-**For Blackhawks youngsters, life on the road is good (and, sigh, clean) fun**\
-`It might look different these days, but the Blackhawks still find ways to bond and take in some sights on the road.`\
-https://nytimes.com/athletic/6767024/2025/11/01/blackhawks-young-players-road-trip-nhl/
 

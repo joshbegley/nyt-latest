@@ -1,3 +1,7 @@
+**Cuomo’s Pitch as He Claws for Votes: I’m Not the Divider, Mamdani Is**\
+`As Andrew Cuomo tries to gain ground in the New York City mayor’s race, he is trying to splinter some constituencies with natural affinities for the front-runner, Zohran Mamdani.`\
+https://nytimes.com/2025/11/01/nyregion/cuomo-strategy-mamdani.html
+
 **After tough loss, Blue Jays know Game 7 is last chance to capture immortality**\
 `“Game 7, World Series,” Myles Straw said. “It's just the craziest game you're ever gonna ever come across in life.”`\
 https://nytimes.com/athletic/6768107/2025/11/01/blue-jays-dodgers-game-7-world-series/
