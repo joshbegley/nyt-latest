@@ -1,3 +1,7 @@
+**‘Intentional’ Explosion Took Place at Harvard Medical School, Officials Say**\
+`Two people were seen running from the building afterward, the school said. No injuries were reported.`\
+https://nytimes.com/2025/11/01/us/harvard-medical-school-explosion.html
+
 **Eagles acquire CB Jaire Alexander from Ravens for 6th round pick**\
 `The defending Super Bowl champions acquired the defensive back and a draft pick from the Baltimore Ravens on Saturday.`\
 https://nytimes.com/athletic/6769356/2025/11/01/jaire-alexander-trade-eagles-ravens-nfl/

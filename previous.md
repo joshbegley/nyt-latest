@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6769356/2025/11/01/jaire-alexander-trade-eagles-rav
 https://nytimes.com/athletic/6769349/2025/11/01/miami-smu-mario-cristobal-cfp/
 
 **‘Intentional’ Explosion Took Place at Harvard Medical School, Officials Say**\
-`Two people were seen running from the building afterward, the school said. The school is asking the public for help to identify the individuals caught on surveillance video.`\
+`Two people were seen running from the building afterward, the school said. No injuries were reported.`\
 https://nytimes.com/2025/11/01/us/harvard-medical-school-explosion.html
 
 **Mamdani is joined by Ro Khanna in hopes of exciting South Asian voters.**\
