@@ -1,3 +1,19 @@
+**WATCH: How this player has become most dangerous in the NFL**\
+`Eight weeks into the season, Taylor leads the NFL in rushing yards, total scrimmage yards and touchdowns.`\
+https://nytimes.com/athletic/6767478/2025/11/01/colts-jonathan-taylor-film-breakdown-video-analysis/
+
+**Barcelona's Lewandowski and Olmo available for Elche clash; Garcia nearing return**\
+`Despite Pedri's injury, Lewandowski and Olmo's returns are welcome boosts for Barcelona with positive updates on Garcia and Yamal too.`\
+https://nytimes.com/athletic/6768640/2025/11/01/barcelona-injury-team-news-lewandowski-olmo-garcia/
+
+**A Third Trump Term Is Not the Charm**\
+`The Constitution is not a word game.`\
+https://nytimes.com/2025/11/01/opinion/trump-third-term-constitution.html
+
+**Cheesy Cabbage Tteokbokki**\
+`A dish of royalty, tteokbokki consists of chewy Korean rice cakes (tteok) that are stir-fried (bokki) and slicked in a savory-sweet sauce.`\
+https://nytimes.com/video/dining/100000010366683/cheesy-cabbage-tteokbokki.html
+
 **Pumpkin Bread Pudding for Breakfast, Dessert and All the Snacks in Between**\
 `Yossy Arefi’s easy recipe turns a whole can of pumpkin into a luscious, custardy treat.`\
 https://nytimes.com/2025/11/01/dining/pumpkin-bread-pudding-for-breakfast-dessert-and-all-the-snacks-in-between.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6768085/2025/11/01/an-epic-game-7-of-the-world-seri
 **Scoop City: Fantasy tips to win Week 9**\
 `A pair of rookie running backs are set to elevate to starting roles for the week. Plus, a premier TE returns.`\
 https://nytimes.com/athletic/6768726/2025/11/01/everything-fantasy-football-managers-need-to-know-for-week-9/
-
-**Russini: 18 NFL trade deadline nuggets I’m hearing, plus the tush push’s kryptonite**\
-`With the Nov. 4 trade deadline just days away, is your team’s front office handing out treats? This is what our insider is hearing.`\
-https://nytimes.com/athletic/6767924/2025/11/01/nfl-trade-deadline-2025-rumors-news-tush-push/
-
-**These Cookies Changed My Life**\
-`And perhaps my salted butterscotch chocolate chunk cookies will change yours, too.`\
-https://nytimes.com/2025/11/01/dining/these-cookies-changed-my-life.html
-
-**The Red Wings are improved and flawed. What does it mean for their outlook?**\
-`The Red Wings' 5-2 loss in Anaheim Friday showed their flaws, but their improvements this season also point to real opportunity ahead.`\
-https://nytimes.com/athletic/6768118/2025/11/01/red-wings-start-improvements-todd-mclellan/
-
-**How to watch Kings vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the Sacramento Kings play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6768669/2025/11/01/kings-vs-bucks-stream-how-to-watch-nov-1/
 
