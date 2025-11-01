@@ -1,3 +1,7 @@
+**Campus Opening?**\
+`Michael Lieberman’s latest themeless puzzle is no pushover.`\
+https://nytimes.com/2025/10/31/crosswords/daily-puzzle-2025-11-01.html
+
 **White House Limits Reporters’ Access to Press Secretary’s Office**\
 `The move broke from generations of precedent and added to the Trump administration’s growing list of restraints on the news media.`\
 https://nytimes.com/2025/10/31/us/politics/trump-white-house-press.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/31/us/politics/trump-lincoln-bathroom-white-house.ht
 **NASA Gets Moon Lander Plan B’s From SpaceX and Blue Origin**\
 `As NASA worries that China will win the next moon race, Elon Musk and his company tangled with critics.`\
 https://nytimes.com/2025/10/31/science/nasa-moon-lander-spacex-blue-origin.html
-
-**Republicans Denounce Tucker Carlson for Interview With Nick Fuentes, a White Supremacist**\
-`Senators Ted Cruz and Mitch McConnell criticized Mr. Carlson, as well as Kevin Roberts, the president of the Heritage Foundation, who defended Mr. Carlson as a “close friend.”`\
-https://nytimes.com/2025/10/31/us/politics/tucker-carlson-nick-fuentes.html
 
