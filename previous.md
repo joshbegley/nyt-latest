@@ -1,3 +1,7 @@
+**Kawhi Leonard rescues Clippers with buzzer-beating jumper over 2 Pelicans players**\
+`After his turnover led to game-tying free-throws by the Pelicans, Kawhi Leonard redeemed himself with a stepback jumper over two defenders.`\
+https://nytimes.com/athletic/6768109/2025/11/01/kawhi-leonard-game-winner-clippers-pelicans-video/
+
 **Neil Ryan on managing England at the Under-17 World Cup: ‘It’s about DNA and playing our way’**\
 `The former Manchester United youth coach will guide England’s youngsters in their quest against 47 other nations in Qatar this month`\
 https://nytimes.com/athletic/6757659/2025/11/01/england-under-17-world-cup-qatar-neil-ryan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6768043/2025/11/01/luka-doncic-highlights-stats-lak
 **How Britain Got Investors to Line Up for Nuclear Power**\
 `Developers have finally broken ground on the project, known as Sizewell C, but getting there meant navigating wary investors and local opposition.`\
 https://nytimes.com/2025/11/01/business/britain-nuclear-power-plant-sizewell.html
-
-**Quote of the Day: Trump’s Talk of Nuclear Tests Recalls Fears of the Cold War**\
-`Quotation of the Day for Saturday, November 1, 2025.`\
-https://nytimes.com/2025/11/01/pageoneplus/quote-of-the-day-trumps-talk-of-nuclear-tests-recalls-fears-of-the-cold-war.html
 
