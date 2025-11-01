@@ -1,3 +1,7 @@
+**How to watch Dodgers at Blue Jays: World Series Game 7 Time, TV, streaming**\
+`Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6768157/2025/11/01/dodgers-vs-blue-jays-stream-how-to-watch-nov-1/
+
 **Kawhi Leonard rescues Clippers with buzzer-beating jumper over 2 Pelicans players**\
 `After his turnover led to score-tying free-throws by the Pelicans, Leonard redeemed himself with a stepback jumper over two defenders.`\
 https://nytimes.com/athletic/6768109/2025/11/01/kawhi-leonard-game-winner-clippers-pelicans-video/
