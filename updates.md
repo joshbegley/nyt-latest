@@ -1,3 +1,11 @@
+**Hurzeler: 'More attention' on Rutter after Joao Pedro departure**\
+`Rutter has made a slow start to the season at Brighton following the £60million summer sale of Joao Pedro to Chelsea.`\
+https://nytimes.com/athletic/6766084/2025/11/01/brighton-rutter-joao-pedro/
+
+**One word describes the Kieffer Moore hat-trick that helped Wrexham beat Coventry: Perfect**\
+`Goals with his right foot, left foot and head saw Kieffer Moore walk home with the match ball – and ended Coventry's unbeaten start`\
+https://nytimes.com/athletic/6767565/2025/11/01/kieffer-moore-wrexham-perfect-hattrick-coventry/
+
 **The secret meetings behind Ruben Amorim's Manchester United appointment, one year on**\
 `Manchester United's executives staged meetings across Europe last summer and autumn before finally appointing Ruben Amorim`\
 https://nytimes.com/athletic/6764537/2025/11/01/ruben-amorim-manchester-united-secret-meetings/

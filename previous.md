@@ -1,3 +1,7 @@
+**Hurzeler: 'More attention' on Rutter after Joao Pedro departure**\
+`Rutter has made a slow start to the season at Brighton following the £60million summer sale of Joao Pedro to Chelsea.`\
+https://nytimes.com/athletic/6766084/2025/11/01/brighton-rutter-joao-pedro/
+
 **The secret meetings behind Ruben Amorim's Manchester United appointment, one year on**\
 `Manchester United's executives staged meetings across Europe last summer and autumn before finally appointing Ruben Amorim`\
 https://nytimes.com/athletic/6764537/2025/11/01/ruben-amorim-manchester-united-secret-meetings/
@@ -26,15 +30,11 @@ https://nytimes.com/2025/11/01/nyregion/broadway-nyc-marathon-jordan-litz.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/11/01/crosswords/spelling-bee-forum.html
 
-**One word describes the Kieffer Moore hat-trick that helped Wrexham beat Coventry - perfect**\
-`Goals with his right foot, left foot and head saw Kieffer Moore walk home with the match ball - and ended Coventry's unbeaten start`\
+**One word describes the Kieffer Moore hat-trick that helped Wrexham beat Coventry: Perfect**\
+`Goals with his right foot, left foot and head saw Kieffer Moore walk home with the match ball – and ended Coventry's unbeaten start`\
 https://nytimes.com/athletic/6767565/2025/11/01/kieffer-moore-wrexham-perfect-hattrick-coventry/
 
 **How to watch Dodgers at Blue Jays: World Series Game 7 Time, TV, streaming**\
 `Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6768157/2025/11/01/how-to-watch-dodgers-vs-blue-jays-world-series-game-7-tv-channel-and-streaming-options-for-november-1/
-
-**Kawhi Leonard rescues Clippers with buzzer-beating jumper over 2 Pelicans players**\
-`After his turnover led to score-tying free-throws by the Pelicans, Leonard redeemed himself with a stepback jumper over two defenders.`\
-https://nytimes.com/athletic/6768109/2025/11/01/kawhi-leonard-game-winner-clippers-pelicans-video/
 
