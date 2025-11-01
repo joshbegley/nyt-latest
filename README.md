@@ -1,3 +1,7 @@
+**Rohan Bopanna retires from tennis after a record-breaking, remarkable career**\
+`Bopanna, 45, exits tennis after one of the great late-career surges in any sport.`\
+https://nytimes.com/athletic/6768510/2025/11/01/rohan-bopanna-tennis-retirement/
+
 **Kraken's Ryan Lindgren prepares for former team; Kaapo Kakko likely to make season debut**\
 `"It’s going to be weird competing against them," said Lindgren, who's looking forward to Saturday's game against the Rangers.`\
 https://nytimes.com/athletic/6767619/2025/11/01/ryan-lindgren-kaapo-kakko-rangers-kraken/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6768050/2025/11/01/world-series-game-7-umpire/
 **The Dodgers kept their heads and keep their season alive to force a Game 7**\
 `Somehow, the Dodgers are here, still alive and gearing up for Game 7: “Everybody ... wants the moment to come to them,”`\
 https://nytimes.com/athletic/6768151/2025/11/01/dodgers-kike-hernandez-double-play-world-series/
-
-**Cuomo’s Pitch as He Claws for Votes: I’m Not the Divider, Mamdani Is**\
-`As Andrew Cuomo tries to gain ground in the New York City mayor’s race, he is trying to splinter some constituencies with natural affinities for the front-runner, Zohran Mamdani.`\
-https://nytimes.com/2025/11/01/nyregion/cuomo-strategy-mamdani.html
 
