@@ -1,3 +1,15 @@
+**‘Best game structure-wise’: How the Bruins executed their non-negotiable blueprint**\
+`The Bruins finally look legit, and it's because of how they defended in a 2-1 win over the Hurricanes.`\
+https://nytimes.com/athletic/6769270/2025/11/01/bruins-hurricanes-charlie-mcavoy-casey-mittelstadt/
+
+**Trump Administration Must Make Food Stamp Payments Within Days, Judge Says**\
+`The written order came one day after a court told the Trump administration it must pay benefits in the program known as SNAP during the shutdown.`\
+https://nytimes.com/2025/11/01/us/politics/trump-food-stamp-payments.html
+
+**WTA Tour Finals results: Iga Świątek and Elena Rybakina dominate Day 1 in Riyadh**\
+`The best eight WTA tennis players of the year are fighting for supremacy in the season-ending event.`\
+https://nytimes.com/athletic/6763218/2025/11/01/wta-tour-finals-draw-schedule-results-2025/
+
 **Why Novak Djokovic is key to a thrilling ATP Tour Finals Race to Turin**\
 `Paris Masters results have left one spot at the ATP Tour Finals for two players — but Djokovic may offer another.`\
 https://nytimes.com/athletic/6763865/2025/11/01/atp-tour-race-to-turin-tour-finals-qualification/
