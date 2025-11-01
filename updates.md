@@ -1,3 +1,7 @@
+**Once Bitter Rivals, Cuomo and Adams Join Forces in Mayor’s Race**\
+`Mayor Eric Adams and former Gov. Andrew M. Cuomo have campaigned together and had a meeting of the minds on policy since Mr. Adams dropped his re-election bid.`\
+https://nytimes.com/2025/11/01/nyregion/cuomo-adams-new-york-mayor-race.html
+
 **Willa Pearson, 14, becomes youngest player in A-League history**\
 `Pearson started Sydney FC's game against Melbourne City aged 14 years and 312 days.`\
 https://nytimes.com/athletic/6768508/2025/11/01/willa-pearson-a-league-youngest-player-record/
