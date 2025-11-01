@@ -1,3 +1,7 @@
+**The Dodgers kept their heads and keep their season alive to force a Game 7**\
+`Somehow, the Dodgers are here, still alive and gearing up for Game 7: “Everybody ... wants the moment to come to them,”`\
+https://nytimes.com/athletic/6768151/2025/11/01/dodgers-kike-hernandez-double-play-world-series/
+
 **Cuomo’s Pitch as He Claws for Votes: I’m Not the Divider, Mamdani Is**\
 `As Andrew Cuomo tries to gain ground in the New York City mayor’s race, he is trying to splinter some constituencies with natural affinities for the front-runner, Zohran Mamdani.`\
 https://nytimes.com/2025/11/01/nyregion/cuomo-strategy-mamdani.html
