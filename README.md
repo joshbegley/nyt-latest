@@ -1,3 +1,7 @@
+**As the Shutdown Pain Grows, Trump Attends to Other Matters**\
+`The president attended a Halloween party Friday and called attention to the marble renovation of a White House bathroom.`\
+https://nytimes.com/2025/10/31/us/politics/trump-shutdown.html
+
 **Immigration Agents Clash With Chicago-Area Residents on Halloween**\
 `The state’s governor had called for a pause in the federal immigration crackdown over the Halloween weekend, citing concerns for children’s safety.`\
 https://nytimes.com/2025/10/31/us/politics/chicago-ice-immigration-agents.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6767573/2025/10/31/mens-rugby-world-cup2031-united-
 **Sources: St. Louis City hiring Corey Wray as sporting director**\
 `Wray replaces Lutz Pfannenstiel, who was fired in August.`\
 https://nytimes.com/athletic/6763383/2025/10/31/st-louis-city-sporting-director-mls-corey-wray/
-
-**Top Senators Say Pentagon Has Not Shared Legal Justification for Boat Strikes**\
-`The Republican chairman and senior Democrat on the Armed Services Committee said on Friday that the Pentagon had not handed over information about the attacks despite repeated requests.`\
-https://nytimes.com/2025/10/31/us/politics/senators-boat-strikes-drugs-trump.html
 
