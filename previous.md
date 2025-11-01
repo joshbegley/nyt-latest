@@ -1,3 +1,7 @@
+**Josh Giddey, Bulls clinch franchise's best start to season since MJ era**\
+`Led by their rising 23-year-old star, the Bulls, who were expected to be a lottery team this season, are off to their best start since 1996.`\
+https://nytimes.com/athletic/6767855/2025/10/31/chicago-bulls-record-undefeated-josh-giddey/
+
 **Judge Permanently Bars Trump From Requiring Proof of Citizenship for Voter Registration**\
 `The ruling on Friday found that Trump had usurped the power vested in Congress and the states to administer and oversee elections protocols.`\
 https://nytimes.com/2025/10/31/us/politics/trump-proof-citizenship-voter-registration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/31/us/fact-check-trump-snap-food-stamps.html
 **Devils, Jacob Markström agree to 2-year, $6 million AAV extension**\
 `The 35-year-old Swede has an .830 save percentage and 5.13 goals-against average in four games this season.`\
 https://nytimes.com/athletic/6767797/2025/10/31/devils-jacob-markstrom-contract-extension/
-
-**As the Shutdown Pain Grows, Trump Attends to Other Matters**\
-`The president attended a Halloween party Friday and called attention to the marble renovation of a White House bathroom.`\
-https://nytimes.com/2025/10/31/us/politics/trump-shutdown.html
 
