@@ -1,3 +1,11 @@
+**Dyche calls for 'change' to VAR after controversial Man United goal**\
+`Amad Diallo's stunning volley denied Dyche a first league win as Forest boss, leaving the 54-year-old deeply frustrated at United's opener.`\
+https://nytimes.com/athletic/6768986/2025/11/01/sean-dyche-change-var-manchester-united/
+
+**Petrified Cake,A Cat in Hats: Wackiest Looks at Heidi Klum’s Halloween**\
+`The model and television presenter, dressed as Medusa, hosted her annual bash, filled with zany costumes.`\
+https://nytimes.com/2025/11/01/style/heidi-klum-halloween-party-photos-costumes.html
+
 **Sources: USL tabs Premier League chief Tony Scholes to run new first division**\
 `USL is launching a new first-division league in 2028, and it's turning to an experienced Premier League leader to run it`\
 https://nytimes.com/athletic/6761281/2025/11/01/tony-scholes-usl-first-division-premier-league/
