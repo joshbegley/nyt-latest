@@ -1,3 +1,7 @@
+**Willa Pearson, 14, becomes youngest player in A-League history**\
+`Pearson started Sydney FC's game against Melbourne City aged 14 years and 312 days.`\
+https://nytimes.com/athletic/6768508/2025/11/01/willa-pearson-a-league-youngest-player-record/
+
 **Here’s the latest.**\
 `By Michael Gold`\
 https://nytimes.com/live/2025/11/01/nyregion/nyc-mayor-election-news/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6763566/2025/11/01/edmonton-oiles-lines-schedule-st
 **For now, Blue Jackets have found a lethal offensive balance**\
 `At five-on-five play, the Blue Jackets have outscored opponents 26-17 through their first 10 games.`\
 https://nytimes.com/athletic/6767590/2025/11/01/columbus-blue-jackets-bottom-six-balance/
-
-**Can Paul Atkins ‘Make I.P.O.s Great Again’?**\
-`The chair of the Securities and Exchange Commission has a plan to reverse the decline in public listings. His critics say he’s taking swings at the wrong target.`\
-https://nytimes.com/2025/11/01/business/dealbook/paul-atkins-ipos.html
 

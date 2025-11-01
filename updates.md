@@ -1,3 +1,7 @@
+**Willa Pearson, 14, becomes youngest player in A-League history**\
+`Pearson started Sydney FC's game against Melbourne City aged 14 years and 312 days.`\
+https://nytimes.com/athletic/6768508/2025/11/01/willa-pearson-a-league-youngest-player-record/
+
 **Here’s the latest.**\
 `By Michael Gold`\
 https://nytimes.com/live/2025/11/01/nyregion/nyc-mayor-election-news/heres-the-latest
