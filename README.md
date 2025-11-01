@@ -1,3 +1,7 @@
+**Fact-Checking Trump’s Claim About SNAP and Partisanship**\
+`The president said a lapse in SNAP funding would “largely” hurt Democrats. But interruptions to the program will also affect Republicans.`\
+https://nytimes.com/2025/10/31/us/fact-check-trump-snap-food-stamps.html
+
 **Devils, Jacob Markström agree to 2-year, $6 million AAV extension**\
 `The 35-year-old Swede has an .830 save percentage and 5.13 goals-against average in four games this season.`\
 https://nytimes.com/athletic/6767797/2025/10/31/devils-jacob-markstrom-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/31/us/politics/nancy-mace-airport-police-security.ht
 **Kentucky Woman Receives Package of Human Body Parts by Mistake, Coroner Says**\
 `She was expecting time-sensitive medication, but opened the box to find two arms and four fingers meant to be used in surgical training, the coroner said.`\
 https://nytimes.com/2025/10/31/us/kentucky-severed-arms-fingers.html
-
-**27 U.S. cities and areas apply to host games at 2031 Men’s Rugby World Cup**\
-`The World Rugby CEO also said consideration is being given to taking one-off fixtures to the U.S.`\
-https://nytimes.com/athletic/6767573/2025/10/31/mens-rugby-world-cup2031-united-states-hosts/
 
