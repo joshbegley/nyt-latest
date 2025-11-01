@@ -1,3 +1,7 @@
+**After Days of Protests, Tanzania’s President Is Declared Election Winner**\
+`Election monitors and members of the European Parliament have questioned the election’s integrity, and violent protests have rocked the country.`\
+https://nytimes.com/2025/11/01/world/africa/tanzania-president-election-protest-violence.html
+
 **New York, Long a City of Contradictions, Is Still Turning Up New Ones**\
 `New York City has often set the political, cultural and financial course of the country. Tuesday’s mayoral election — and a New Yorker watching from Washington — could scramble it all.`\
 https://nytimes.com/2025/11/01/nyregion/nyc-mayoral-election-future.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6768109/2025/11/01/kawhi-leonard-game-winner-clippe
 **Neil Ryan on managing England at the Under-17 World Cup: ‘It’s about DNA and playing our way’**\
 `The former Manchester United youth coach will guide England’s youngsters in their quest against 47 other nations in Qatar this month`\
 https://nytimes.com/athletic/6757659/2025/11/01/england-under-17-world-cup-qatar-neil-ryan/
-
-**Who are the most two-footed shooters in European football, and does it matter?**\
-`The rise of tactical analysis means attacking players need to become even more unpredictable as they look to release an effort on goal`\
-https://nytimes.com/athletic/6766215/2025/11/01/two-footed-shooters-salah-dembele-semenyo/
 

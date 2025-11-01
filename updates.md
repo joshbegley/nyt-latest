@@ -1,3 +1,7 @@
+**How to watch Dodgers at Blue Jays: World Series Game 7 Time, TV, streaming**\
+`Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6768157/2025/11/01/how-to-watch-dodgers-vs-blue-jays-world-series-game-7-tv-channel-and-streaming-options-for-november-1/
+
 **New York, Long a City of Contradictions, Is Still Turning Up New Ones**\
 `New York City has often set the political, cultural and financial course of the country. Tuesday’s mayoral election — and a New Yorker watching from Washington — could scramble it all.`\
 https://nytimes.com/2025/11/01/nyregion/nyc-mayoral-election-future.html
