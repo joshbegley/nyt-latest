@@ -1,5 +1,5 @@
 **Kawhi Leonard rescues Clippers with buzzer-beating jumper over 2 Pelicans players**\
-`After his turnover led to game-tying free-throws by the Pelicans, Kawhi Leonard redeemed himself with a stepback jumper over two defenders.`\
+`After his turnover led to score-tying free-throws by the Pelicans, Leonard redeemed himself with a stepback jumper over two defenders.`\
 https://nytimes.com/athletic/6768109/2025/11/01/kawhi-leonard-game-winner-clippers-pelicans-video/
 
 **Neil Ryan on managing England at the Under-17 World Cup: ‘It’s about DNA and playing our way’**\
