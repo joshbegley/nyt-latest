@@ -1,3 +1,19 @@
+**How to watch Mavericks vs. Pistons: Time, TV, streaming**\
+`Find out how to watch the Dallas Mavericks play the Detroit Pistons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6769126/2025/11/01/mavericks-vs-pistons-stream-how-to-watch-nov-1/
+
+**How to watch Rangers vs. Kraken: Time, TV, streaming**\
+`Find out how to watch the New York Rangers play the Seattle Kraken, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6769124/2025/11/01/rangers-vs-kraken-stream-how-to-watch-nov-1/
+
+**How to watch Blackhawks vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the Chicago Blackhawks play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6769122/2025/11/01/blackhawks-vs-oilers-stream-how-to-watch-nov-1/
+
+**How to watch Devils vs. Kings: Time, TV, streaming**\
+`Find out how to watch the New Jersey Devils play the Los Angeles Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6769120/2025/11/01/devils-vs-kings-stream-how-to-watch-nov-1/
+
 **Ohio State turns on the boosters to coast past reeling Penn State**\
 `The battered and broken Nittany Lions lost their fifth straight and still haven't beaten a power-conference opponent.`\
 https://nytimes.com/athletic/6769008/2025/11/01/ohio-state-penn-state-score-result/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/11/01/world/europe/france-louvre-heist-arrests.html
 **Dyche calls for 'change' to VAR after controversial Man United goal**\
 `Amad Diallo's stunning volley denied Dyche a first league win as Forest boss, leaving the 54-year-old deeply frustrated at United's opener.`\
 https://nytimes.com/athletic/6768986/2025/11/01/sean-dyche-change-var-manchester-united/
-
-**Petrified Cake, a Cat in Hats: The Wackiest Looks at Heidi Klum’s Halloween**\
-`The model and television presenter, dressed as Medusa, hosted her annual bash, filled with zany costumes.`\
-https://nytimes.com/2025/11/01/style/heidi-klum-halloween-party-photos-costumes.html
-
-**Sources: USL tabs Premier League chief Tony Scholes to run new first division**\
-`USL is launching a new first-division league in 2028, and it's turning to an experienced Premier League leader to run it`\
-https://nytimes.com/athletic/6761281/2025/11/01/tony-scholes-usl-first-division-premier-league/
-
-**Muslim Voters Feel Pride and Fear, for Both Mamdani and Themselves**\
-`After an uptick in Islamophobic comments about Zohran Mamdani, the Democratic nominee for mayor of New York City, some Muslims say they are hopeful but worried about repercussions.`\
-https://nytimes.com/2025/11/01/nyregion/muslim-voters-mamdani.html
-
-**Al Sharpton condemns Islamophobia in the New York City mayor’s race.**\
-`By Jeffery C. Mays`\
-https://nytimes.com/live/2025/11/01/nyregion/nyc-mayor-election-news/al-sharpton-condemns-islamophobia-in-the-new-york-city-mayors-race
 

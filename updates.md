@@ -1,3 +1,19 @@
+**How to watch Mavericks vs. Pistons: Time, TV, streaming**\
+`Find out how to watch the Dallas Mavericks play the Detroit Pistons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6769126/2025/11/01/mavericks-vs-pistons-stream-how-to-watch-nov-1/
+
+**How to watch Rangers vs. Kraken: Time, TV, streaming**\
+`Find out how to watch the New York Rangers play the Seattle Kraken, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6769124/2025/11/01/rangers-vs-kraken-stream-how-to-watch-nov-1/
+
+**How to watch Blackhawks vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the Chicago Blackhawks play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6769122/2025/11/01/blackhawks-vs-oilers-stream-how-to-watch-nov-1/
+
+**How to watch Devils vs. Kings: Time, TV, streaming**\
+`Find out how to watch the New Jersey Devils play the Los Angeles Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6769120/2025/11/01/devils-vs-kings-stream-how-to-watch-nov-1/
+
 **Ohio State turns on the boosters to coast past reeling Penn State**\
 `The battered and broken Nittany Lions lost their fifth straight and still haven't beaten a power-conference opponent.`\
 https://nytimes.com/athletic/6769008/2025/11/01/ohio-state-penn-state-score-result/
