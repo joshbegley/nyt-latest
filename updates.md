@@ -1,3 +1,7 @@
+**After tough loss, Blue Jays know Game 7 is last chance to capture immortality**\
+`“Game 7, World Series,” Myles Straw said. “It's just the craziest game you're ever gonna ever come across in life.”`\
+https://nytimes.com/athletic/6768107/2025/11/01/blue-jays-dodgers-game-7-world-series/
+
 **Earps claims she told Wiegman she felt 'bad behaviour being rewarded' when dropped for Hampton**\
 `Earps has criticised Sarina Wiegman’s handling of the process of deciding England’s No 1 goalkeeper in her new autobiography.`\
 https://nytimes.com/athletic/6767637/2025/11/01/mary-earps-hannah-hampton-sarina-wiegman/

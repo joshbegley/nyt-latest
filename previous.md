@@ -1,3 +1,7 @@
+**After tough loss, Blue Jays know Game 7 is last chance to capture immortality**\
+`“Game 7, World Series,” Myles Straw said. “It's just the craziest game you're ever gonna ever come across in life.”`\
+https://nytimes.com/athletic/6768107/2025/11/01/blue-jays-dodgers-game-7-world-series/
+
 **Earps claims she told Wiegman she felt 'bad behaviour being rewarded' when dropped for Hampton**\
 `Earps has criticised Sarina Wiegman’s handling of the process of deciding England’s No 1 goalkeeper in her new autobiography.`\
 https://nytimes.com/athletic/6767637/2025/11/01/mary-earps-hannah-hampton-sarina-wiegman/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6767024/2025/11/01/blackhawks-young-players-road-tr
 **How the Supreme Court Paved the Way for Revenge Prosecutions**\
 `It was right to decry factional strife. Its remedy was a grave mistake.`\
 https://nytimes.com/2025/11/01/opinion/comey-james-trump-immunity.html
-
-**Weird & Wild: This historically great World Series gets the Game 7 it deserves**\
-`This was how it had to end. This was the story the Dodgers and Blue Jays had to write. We all needed a Game 7. We'll see you Saturday night.`\
-https://nytimes.com/athletic/6768365/2025/11/01/world-series-history-dodgers-bluejays-game-7/
 
