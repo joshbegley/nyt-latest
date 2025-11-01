@@ -1,3 +1,15 @@
+**The Briefing – Brighton 3 Leeds 0: How did Dunk nullify Calvert-Lewin? Will Leeds ever score again at the Amex?**\
+`Leeds continued their woeful form at the Amex Stadium. Beren Cross explains where things went wrong for Daniel Farke's side`\
+https://nytimes.com/athletic/6756828/2025/11/01/brighton-3-leeds-0-briefing/
+
+**Nottingham Forest 2 Man Utd 2 - Did Amad's great goal show Amorim's new set-piece threat? Should Casemiro's have stood?**\
+`Analysis of Manchester United's Premier League game away to Nottingham Forest`\
+https://nytimes.com/athletic/6756830/2025/11/01/nottingham-forest-manchester-united-highlights/
+
+**The Briefing: Burnley 0 Arsenal 2 - Was this Gyokeres' best display so far? Are Declan Rice's corners increasingly undefendable?**\
+`James McNicholas analyses a comfortable win for Arsenal at Turf Moor on Saturday  `\
+https://nytimes.com/athletic/6756829/2025/11/01/burnley-arsenal-premier-league-analysis/
+
 **What the Air You Breathe May Be Doing to Your Brain**\
 `Studies increasingly find links between higher concentrations of certain pollutants and the prevalence of dementia.`\
 https://nytimes.com/2025/11/01/health/alzheimers-dementia-air-pollution.html
