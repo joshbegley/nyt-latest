@@ -1,3 +1,7 @@
+**White House Limits Reporters’ Access to Press Secretary’s Office**\
+`The move broke from generations of precedent and added to the Trump administration’s growing list of restraints on the news media.`\
+https://nytimes.com/2025/10/31/us/politics/trump-white-house-press.html
+
 **Uncertainty Persists for Americans Waiting for Monthly Food Stamps**\
 `Judges on Friday ordered the federal government to continue providing food assistance during the shutdown. But benefits will still most likely be interrupted.`\
 https://nytimes.com/2025/10/31/us/snap-food-stamps-aid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/31/science/nasa-moon-lander-spacex-blue-origin.html
 **Republicans Denounce Tucker Carlson for Interview With Nick Fuentes, a White Supremacist**\
 `Senators Ted Cruz and Mitch McConnell criticized Mr. Carlson, as well as Kevin Roberts, the president of the Heritage Foundation, who defended Mr. Carlson as a “close friend.”`\
 https://nytimes.com/2025/10/31/us/politics/tucker-carlson-nick-fuentes.html
-
-**Tracking the Early Vote in New York, New Jersey and Virginia**\
-`See the age breakdown in New York City and the partisanship in New Jersey and Virginia of the voters who have cast ballots so far.`\
-https://nytimes.com/2025/10/31/upshot/early-voters-2025-election.html
 
