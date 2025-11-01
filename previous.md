@@ -1,3 +1,19 @@
+**How to watch Kings vs. Bucks: Time, TV, streaming**\
+`Find out how to watch the Sacramento Kings play the Milwaukee Bucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6768669/2025/11/01/kings-vs-bucks-stream-how-to-watch-nov-1/
+
+**How to watch Flames vs. Predators: Time, TV, streaming**\
+`Find out how to watch the Calgary Flames play the Nashville Predators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6768667/2025/11/01/flames-vs-predators-stream-how-to-watch-nov-1/
+
+**How to watch Avalanche vs. Sharks: Time, TV, streaming**\
+`Find out how to watch the Colorado Avalanche play the San Jose Sharks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6768663/2025/11/01/avalanche-vs-sharks-stream-how-to-watch-nov-1/
+
+**How to watch Penguins vs. Jets: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Penguins play the Winnipeg Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6768661/2025/11/01/penguins-vs-jets-stream-how-to-watch-nov-1/
+
 **Once Bitter Rivals, Cuomo and Adams Join Forces in Mayor’s Race**\
 `Mayor Eric Adams and former Gov. Andrew M. Cuomo have campaigned together and had a meeting of the minds on policy since Mr. Adams dropped his re-election bid.`\
 https://nytimes.com/2025/11/01/nyregion/cuomo-adams-new-york-mayor-race.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2025/11/01/nyregion/nyc-mayor-election-news
 **Rohan Bopanna retires from tennis after a record-breaking, remarkable career**\
 `Bopanna, 45, exits tennis after one of the great late-career surges in any sport.`\
 https://nytimes.com/athletic/6768510/2025/11/01/rohan-bopanna-tennis-retirement/
-
-**Kraken's Ryan Lindgren prepares for former team; Kaapo Kakko likely to make season debut**\
-`"It’s going to be weird competing against them," said Lindgren, who's looking forward to Saturday's game against the Rangers.`\
-https://nytimes.com/athletic/6767619/2025/11/01/ryan-lindgren-kaapo-kakko-rangers-kraken/
-
-**What to know about the NBA's Mexico City game: Flagg, Cunningham and Día de Muertos**\
-`The NBA's first international export of 2025-26 is a promising one. Here's what viewers should expect from the new Peacock broadcast.`\
-https://nytimes.com/athletic/6760959/2025/11/01/nba-mexico-city-mavericks-pistons-flagg-how-to-watch/
-
-**Inside F1’s TV tech nerve center. Plus, The latest on Red Bull’s non-Verstappen seat**\
-`F1 was showing off its huge TV broadcast HQ this week, which included a visit from one of motorsport's biggest non-F1 stars`\
-https://nytimes.com/athletic/6767133/2025/11/01/f1-tv-broadcast-center/
-
-**Lowetide: What we've learned about Oilers lines after an uncertain October**\
-`The important job for the Oilers is to find chemistry before the playoffs, and there are signs of three units that can work.`\
-https://nytimes.com/athletic/6763566/2025/11/01/edmonton-oiles-lines-schedule-stats-2025/
 
