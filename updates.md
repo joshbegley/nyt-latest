@@ -1,3 +1,15 @@
+**The Buckeyezzzzz: Ohio State is so good it’s boring**\
+`It’s like watching the Harlem Globetrotters. Without the buckets of confetti. That’s not a criticism. They’re the best team in the country.`\
+https://nytimes.com/athletic/6769358/2025/11/01/ohio-state-buckeyes-best-college-football-team/
+
+**Open-Faced**\
+`There’s no resisting this enormous themeless puzzle from Rafael Musa.`\
+https://nytimes.com/2025/11/01/crosswords/daily-puzzle-2025-11-02.html
+
+**Liverpool 2 Aston Villa 0 - Salah's 250: Is he their greatest modern player? How did Emery's plan backfire?**\
+`Analysis of Liverpool's Premier League victory over Aston Villa`\
+https://nytimes.com/athletic/6756852/2025/11/01/liverpool-aston-villa-salah-highlights/
+
 **Liverpool 2 Aston Villa 0 - Salah's 250: is he their greatest modern player? How did Emery's plan backfire?**\
 `Analysis of Liverpool's Premier League victory over Aston Villa`\
 https://nytimes.com/athletic/6756852/2025/11/01/liverpool-aston-villa-salah-highlights/
