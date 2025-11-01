@@ -10,7 +10,7 @@ https://nytimes.com/2025/11/01/world/europe/france-louvre-heist-arrests.html
 `Amad Diallo's stunning volley denied Dyche a first league win as Forest boss, leaving the 54-year-old deeply frustrated at United's opener.`\
 https://nytimes.com/athletic/6768986/2025/11/01/sean-dyche-change-var-manchester-united/
 
-**Petrified Cake,A Cat in Hats: Wackiest Looks at Heidi Klum’s Halloween**\
+**Petrified Cake, A Cat in Hats: Wackiest Looks at Heidi Klum’s Halloween**\
 `The model and television presenter, dressed as Medusa, hosted her annual bash, filled with zany costumes.`\
 https://nytimes.com/2025/11/01/style/heidi-klum-halloween-party-photos-costumes.html
 
