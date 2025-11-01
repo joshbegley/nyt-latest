@@ -1,3 +1,11 @@
+**Dyche calls for 'change' to VAR after controversial Man United goal**\
+`Amad Diallo's stunning volley denied Dyche a first league win as Forest boss, leaving the 54-year-old deeply frustrated at United's opener.`\
+https://nytimes.com/athletic/6768986/2025/11/01/sean-dyche-change-var-manchester-united/
+
+**Petrified Cake,A Cat in Hats: Wackiest Looks at Heidi Klum’s Halloween**\
+`The model and television presenter, dressed as Medusa, hosted her annual bash, filled with zany costumes.`\
+https://nytimes.com/2025/11/01/style/heidi-klum-halloween-party-photos-costumes.html
+
 **Sources: USL tabs Premier League chief Tony Scholes to run new first division**\
 `USL is launching a new first-division league in 2028, and it's turning to an experienced Premier League leader to run it`\
 https://nytimes.com/athletic/6761281/2025/11/01/tony-scholes-usl-first-division-premier-league/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6756829/2025/11/01/burnley-arsenal-premier-league-a
 **What the Air You Breathe May Be Doing to Your Brain**\
 `Studies increasingly find links between higher concentrations of certain pollutants and the prevalence of dementia.`\
 https://nytimes.com/2025/11/01/health/alzheimers-dementia-air-pollution.html
-
-**Rabbi Alvin Kass, N.Y.P.D. Chaplain for Nearly Six Decades, Dies at 89**\
-`The youngest and longest-serving chaplain in New York City history, he was also the first Jewish chief chaplain in the modern era.`\
-https://nytimes.com/2025/11/01/nyregion/rabbi-alvin-kass-dead.html
-
-**How to watch Warriors vs. Pacers: Time, TV, streaming**\
-`Find out how to watch the Golden State Warriors play the Indiana Pacers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6768869/2025/11/01/warriors-vs-pacers-stream-how-to-watch-nov-1/
 
