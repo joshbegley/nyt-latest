@@ -2,7 +2,7 @@
 `Facing a 3-2 hole, the Dodgers climbed back to force a winner-take-all Game 7, helping ensure their World Series hopes remain alive.`\
 https://nytimes.com/athletic/6767806/2025/10/31/dodgers-blue-jays-world-series-game-6-results-takeaways-mlb/
 
-**Bill Belichick earns first Power 4 win as UNC dominates Syracuse**\
+**Bill Belichick gets first Power 4 win as UNC dominates Syracuse**\
 `UNC's offense finished with 425 total yards in its best outing of the year by a nearly 75-yard margin.`\
 https://nytimes.com/athletic/6767965/2025/10/31/bill-belichick-unc-first-power-4-win-syracuse/
 
