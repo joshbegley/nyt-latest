@@ -1,3 +1,7 @@
+**Once Bitter Rivals, Cuomo and Adams Join Forces in Mayor’s Race**\
+`Mayor Eric Adams and former Gov. Andrew M. Cuomo have campaigned together and had a meeting of the minds on policy since Mr. Adams dropped his re-election bid.`\
+https://nytimes.com/2025/11/01/nyregion/cuomo-adams-new-york-mayor-race.html
+
 **Willa Pearson, 14, becomes youngest player in A-League history**\
 `Pearson started Sydney FC's game against Melbourne City aged 14 years and 312 days.`\
 https://nytimes.com/athletic/6768508/2025/11/01/willa-pearson-a-league-youngest-player-record/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6767133/2025/11/01/f1-tv-broadcast-center/
 **Lowetide: What we've learned about Oilers lines after an uncertain October**\
 `The important job for the Oilers is to find chemistry before the playoffs, and there are signs of three units that can work.`\
 https://nytimes.com/athletic/6763566/2025/11/01/edmonton-oiles-lines-schedule-stats-2025/
-
-**For now, Blue Jackets have found a lethal offensive balance**\
-`At five-on-five play, the Blue Jackets have outscored opponents 26-17 through their first 10 games.`\
-https://nytimes.com/athletic/6767590/2025/11/01/columbus-blue-jackets-bottom-six-balance/
 
