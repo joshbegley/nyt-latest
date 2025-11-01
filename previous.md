@@ -1,3 +1,15 @@
+**Suns show improvement while waiting for Jalen Green and Dillon Brooks to get healthy**\
+`The Suns may struggle all year, but until Jalen Green and Dillon Brooks return to the lineup, they deserve a little time.`\
+https://nytimes.com/athletic/6768144/2025/11/01/phoenix-suns-devin-booker-utah-jazz-jalen-green-dillon-brooks/
+
+**N.Y.C. Mayor’s Race Live Updates: Campaign Enters Final Weekend Before Election Day**\
+`Zohran Mamdani holds a considerable lead in most polls, and wealthy supporters of Andrew M. Cuomo are giving him a late financial boost. More than 480,000 New Yorkers have voted early.`\
+https://nytimes.com/live/2025/11/01/nyregion/nyc-mayor-election-news
+
+**Rohan Bopanna retires from tennis after a record-breaking, remarkable career**\
+`Bopanna, 45, exits tennis after one of the great late-career surges in any sport.`\
+https://nytimes.com/athletic/6768510/2025/11/01/rohan-bopanna-tennis-retirement/
+
 **Kraken's Ryan Lindgren prepares for former team; Kaapo Kakko likely to make season debut**\
 `"It’s going to be weird competing against them," said Lindgren, who's looking forward to Saturday's game against the Rangers.`\
 https://nytimes.com/athletic/6767619/2025/11/01/ryan-lindgren-kaapo-kakko-rangers-kraken/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/01/business/dealbook/paul-atkins-ipos.html
 **'Pretty epic ending there': How a wild 9th inning kept Dodgers alive for a Game 7**\
 `The Blue Jays didn't advance this far by playing it safe. That was the mindset of their clubhouse after the loss.`\
 https://nytimes.com/athletic/6767984/2025/11/01/blue-jays-dodgers-world-series-game-6-game-ending-play/
-
-**What's it like to umpire Game 7 of the World Series? We asked an expert**\
-`Dale Scott was a big-league umpire for 32 years, where he worked three World Series, including Game 7 of the 2001 Fall Classic.`\
-https://nytimes.com/athletic/6768050/2025/11/01/world-series-game-7-umpire/
-
-**The Dodgers kept their heads and keep their season alive to force a Game 7**\
-`Somehow, the Dodgers are here, still alive and gearing up for Game 7: “Everybody ... wants the moment to come to them,”`\
-https://nytimes.com/athletic/6768151/2025/11/01/dodgers-kike-hernandez-double-play-world-series/
-
-**Cuomo’s Pitch as He Claws for Votes: I’m Not the Divider, Mamdani Is**\
-`As Andrew Cuomo tries to gain ground in the New York City mayor’s race, he is trying to splinter some constituencies with natural affinities for the front-runner, Zohran Mamdani.`\
-https://nytimes.com/2025/11/01/nyregion/cuomo-strategy-mamdani.html
 

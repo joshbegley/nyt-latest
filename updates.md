@@ -1,3 +1,15 @@
+**Suns show improvement while waiting for Jalen Green and Dillon Brooks to get healthy**\
+`The Suns may struggle all year, but until Jalen Green and Dillon Brooks return to the lineup, they deserve a little time.`\
+https://nytimes.com/athletic/6768144/2025/11/01/phoenix-suns-devin-booker-utah-jazz-jalen-green-dillon-brooks/
+
+**N.Y.C. Mayor’s Race Live Updates: Campaign Enters Final Weekend Before Election Day**\
+`Zohran Mamdani holds a considerable lead in most polls, and wealthy supporters of Andrew M. Cuomo are giving him a late financial boost. More than 480,000 New Yorkers have voted early.`\
+https://nytimes.com/live/2025/11/01/nyregion/nyc-mayor-election-news
+
+**Rohan Bopanna retires from tennis after a record-breaking, remarkable career**\
+`Bopanna, 45, exits tennis after one of the great late-career surges in any sport.`\
+https://nytimes.com/athletic/6768510/2025/11/01/rohan-bopanna-tennis-retirement/
+
 **Kraken's Ryan Lindgren prepares for former team; Kaapo Kakko likely to make season debut**\
 `"It’s going to be weird competing against them," said Lindgren, who's looking forward to Saturday's game against the Rangers.`\
 https://nytimes.com/athletic/6767619/2025/11/01/ryan-lindgren-kaapo-kakko-rangers-kraken/
