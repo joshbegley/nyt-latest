@@ -1,3 +1,15 @@
+**Tottenham Hotspur vs Chelsea: Season aims, set pieces, views of manager, and prediction**\
+`Tottenham and Chelsea meet on Saturday in the pick of the weekend's Premier League matches – here are the talking points`\
+https://nytimes.com/athletic/6765979/2025/11/01/tottenham-chelsea-preview-prediction-manager/
+
+**Tottenham Hotspur vs Chelsea: Where the game can be won and lost tactically**\
+`Where Saturday's big Premier League encounter could be decided`\
+https://nytimes.com/athletic/6765987/2025/11/01/tottenham-chelsea-tactical-preview/
+
+**The New York Times in Print for Saturday, Nov. 1, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/01/todays-new-york-times
+
 **Tokyo’s Halloween Revelers Aren’t Put Off by Rain**\
 `Neither rain nor strict measures against overcrowding could keep people away from the annual Halloween street party in Shibuya, Tokyo.`\
 https://nytimes.com/card/2025/11/01/world/asia/tokyo-japan-halloween
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6766230/2025/11/01/connections-sports-edition-hints
 **Corrections: Nov. 1, 2025**\
 `Corrections that appeared in print on Saturday, Nov. 1, 2025.`\
 https://nytimes.com/2025/11/01/pageoneplus/corrections-nov-1-2025.html
-
-**Heidi Klum Has Snakes Coming Out of Her Head (Don’t Look)**\
-`The model and TV personality dressed like Medusa for her annual Halloween party in New York City this year.`\
-https://nytimes.com/2025/10/31/style/heidi-klum-halloween-costume-medusa.html
-
-**Can Shohei Ohtani, the Dodgers' Game 7 starter, pitch and hit them to a title?**\
-`A team source confirmed Ohtani will start Game 7 for the Dodgers against the Blue Jays' 41-year-old future Hall of Famer Max Scherzer.`\
-https://nytimes.com/athletic/6767933/2025/10/31/shohei-ohtani-dodgers-game-7-pitching/
-
-**Cozy, Classy and Sporty Socks We Adore **\
-`Text by Zoe Vanderweide`\
-https://nytimes.com/card/2025/11/01/smarter-living/wirecutter/
 
