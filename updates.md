@@ -1,3 +1,7 @@
+**Why Novak Djokovic is key to a thrilling ATP Tour Finals Race to Turin**\
+`Paris Masters results have left one spot at the ATP Tour Finals for two players — but Djokovic may offer another.`\
+https://nytimes.com/athletic/6763865/2025/11/01/atp-tour-race-to-turin-tour-finals-qualification/
+
 **A Powerful Doubles Team Heads to the WTA Finals**\
 `Gaby Dabrowski and Erin Routliffe have been playing together since 2023 and won the Finals last year and the U.S. Open twice.`\
 https://nytimes.com/2025/11/01/sports/tennis/wta-finals-doubles-routliffe-dabrowski.html
