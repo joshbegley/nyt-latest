@@ -1,3 +1,7 @@
+**Uncertainty Persists for Americans Waiting for Monthly Food Stamps**\
+`Judges on Friday ordered the federal government to continue providing food assistance during the shutdown. But benefits will still most likely be interrupted.`\
+https://nytimes.com/2025/10/31/us/snap-food-stamps-aid.html
+
 **Coach Rhett Lashlee, SMU finalizing two-year contract extension: Source**\
 `Lashlee is 34-15 in four seasons at SMU, including a College Football Playoff appearance last season.`\
 https://nytimes.com/athletic/6767796/2025/10/31/smu-rhett-lashlee-contract-extension/
