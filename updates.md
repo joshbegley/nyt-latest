@@ -1,3 +1,11 @@
+**Immigration Agents Clash With Chicago-Area Residents on Halloween**\
+`The state’s governor had called for a pause in the federal immigration crackdown over the Halloween weekend, citing concerns for children’s safety.`\
+https://nytimes.com/2025/10/31/us/politics/chicago-ice-immigration-agents.html
+
+**Trump Renovates the Lincoln Bathroom in Marble and Gold**\
+`President Trump said the new look was “totally in keeping” with the era of Abraham Lincoln.`\
+https://nytimes.com/2025/10/31/us/politics/trump-lincoln-bathroom-white-house.html
+
 **NASA Gets Moon Lander Plan B’s From SpaceX and Blue Origin**\
 `As NASA worries that China will win the next moon race, Elon Musk and his company tangled with critics.`\
 https://nytimes.com/2025/10/31/science/nasa-moon-lander-spacex-blue-origin.html
