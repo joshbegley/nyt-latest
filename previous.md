@@ -1,40 +1,40 @@
-**Rosenthal: In a career full of awe-inspiring moments, Shohei Ohtani faces perhaps his biggest challenge yet**\
-`Ohtani will pitch Game 7 of the World Series on three days rest while also serving in his customary spot as leadoff hitter and DH. `\
-https://nytimes.com/athletic/6768245/2025/11/01/shohei-ohtani-world-series-dodgers-starting-pitcher-game-7/
+**Earps claims she told Wiegman she felt 'bad behaviour being rewarded' when dropped for Hampton**\
+`Earps has criticised Sarina Wiegman’s handling of the process of deciding England’s No 1 goalkeeper in her new autobiography.`\
+https://nytimes.com/athletic/6767637/2025/11/01/mary-earps-hannah-hampton-sarina-wiegman/
 
-**After missing their Joe Carter moment, these Blue Jays are set for a Game 7 classic all their own**\
-`What history could tell us about what may be in store for the Blue Jays in Saturday's winner-take-all battle for a World Series title.`\
-https://nytimes.com/athletic/6768299/2025/11/01/world-series-game-7-dodgers-blue-jays/
+**Blues mailbag, part 2: Was Dom right after all? Would a trade help? Dvorsky's upside?**\
+`Also: How can the Blues acquire a franchise player? Are fans overvaluing prospects? Does the slow start change Doug Armstrong's approach?`\
+https://nytimes.com/athletic/6757202/2025/11/01/blues-trade-dvorsky-playoff-odds/
 
-**How to watch Hurricanes vs. Bruins: Time, TV, streaming**\
-`Find out how to watch the Carolina Hurricanes play the Boston Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6768432/2025/11/01/hurricanes-vs-bruins-stream-how-to-watch-nov-1/
+**Penguins report cards: Crosby, Malkin, Karlsson pass with flying colors**\
+`The Penguins are one of the NHL's early surprises, and the player-by-player grades are reflected accordingly.`\
+https://nytimes.com/athletic/6762183/2025/11/01/penguins-report-card-grades-nhl-surprise/
 
-**Quality Time**\
-`Daylight saving time ends tomorrow. The decrease in daylight can be destabilizing — and clarifying.`\
-https://nytimes.com/2025/11/01/briefing/quality-time.html
+**Can Democrats Accept the Obvious?**\
+`Lessons from the Tea Party and recent elections.`\
+https://nytimes.com/2025/11/01/opinion/democrats-tea-party-ideology.html
 
-**Vieira departs Genoa after winless start to Serie A season**\
-`Vieira, 49, departs the Italian club after 11 months in the role and with his side bottom of the top flight.`\
-https://nytimes.com/athletic/6768382/2025/11/01/patrick-vieira-genoa-sacked/
+**Why Won’t Congress Use Its Power?**\
+`Five Republicans just voted with Democrats to block Trump’s tariffs. This proves Congress can act. So why isn’t it using that same power to address hunger, health care costs or undeclared wars? The New York Times Opinion editor, Kathleen Kingsbury, explains.`\
+https://nytimes.com/video/opinion/100000010493410/why-wont-congress-use-its-power.html
 
-**How to watch Liverpool vs. Aston Villa for U.S. fans: Reds try to stop their free fall**\
-`Slumping Liverpool has lost four consecutive EPL matches and hosts red-hot Aston Villa, winners of four straight in league play.`\
-https://nytimes.com/athletic/6767029/2025/11/01/liverpool-aston-villa-how-to-watch-us/
+**Bros Need Some Bros**\
+`Commercial camaraderie underscores how it’s lacking in real life.`\
+https://nytimes.com/2025/11/01/opinion/men-friendship-celebrities.html
 
-**Can Alex Lyon's hot start with Sabres lead to an uncommon late-career breakout?**\
-`The Sabres’ new starting goalie has accumulated plenty of wisdom and dealt with a career’s worth of adversity.`\
-https://nytimes.com/athletic/6762108/2025/11/01/buffalo-sabres-alex-lyon-goalie-stats/
+**The Last Days of a Zombie Mall (With Zombies)**\
+`What does it mean when a cultural epicenter is poised to be little more than a dearly departed corpse?`\
+https://nytimes.com/2025/11/01/opinion/romero-zombie-monroeville-mall-dawn-of-the-dead.html
 
-**Michael Vick, DeSean Jackson teams gave HBCU football another chance to share tradition**\
-`Thursday's game in Philadelphia reaffirmed the attraction and the significance of HBCU matchups.  `\
-https://nytimes.com/athletic/6767217/2025/11/01/michael-vick-desean-jackson-hbcu-football-norfolk-state-delaware-state/
+**For Blackhawks youngsters, life on the road is good (and, sigh, clean) fun**\
+`It might look different these days, but the Blackhawks still find ways to bond and take in some sights on the road.`\
+https://nytimes.com/athletic/6767024/2025/11/01/blackhawks-young-players-road-trip-nhl/
 
-**Tanking is a blight upon the NBA, until you get VJ Edgecombe by ... tanking**\
-`Teams tank because it still works. Or, at least, it works enough.`\
-https://nytimes.com/athletic/6768015/2025/11/01/philadelphia-76ers-lose-celtics-vj-edgecombe-tanking/
+**How the Supreme Court Paved the Way for Revenge Prosecutions**\
+`It was right to decry factional strife. Its remedy was a grave mistake.`\
+https://nytimes.com/2025/11/01/opinion/comey-james-trump-immunity.html
 
-**Take our college football quiz! What you need to know about Week 10**\
-`Get ready for Vanderbilt-Texas, Penn State-Ohio State, Georgia-Florida, Cincinnati-Utah and more in Week 10 of the college football season.`\
-https://nytimes.com/athletic/6764236/2025/11/01/college-football-week-10-preview-quiz-links/
+**Weird & Wild: This historically great World Series gets the Game 7 it deserves**\
+`This was how it had to end. This was the story the Dodgers and Blue Jays had to write. We all needed a Game 7. We'll see you Saturday night.`\
+https://nytimes.com/athletic/6768365/2025/11/01/world-series-history-dodgers-bluejays-game-7/
 
