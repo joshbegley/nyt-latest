@@ -1,3 +1,11 @@
+**The Far Right Targets Their Similarities. Their Differences Define Them.**\
+`Zohran Mamdani, the leading contender in the Nov. 4 New York election, and Sadiq Khan, London’s mayor, are liberal and Muslim, but they’re navigating varied politics, communities and cities.`\
+https://nytimes.com/2025/11/01/world/europe/nyc-mamdani-london-mayor-sadiq-khan.html
+
+**Jennifer Lawrence Regrets Everything She’s Ever Said or Done**\
+`At only 35, the actress has been through the celebrity wringer. Here’s where she landed.`\
+https://nytimes.com/2025/11/01/magazine/jennifer-lawrence-interview.html
+
 **Putin Brandishes Menacing Nuclear Weapons as Talks With U.S. Falter**\
 `Touting new weapons tests, Moscow signals to Washington that it must contend with the Kremlin’s power and negotiate.`\
 https://nytimes.com/2025/11/01/world/europe/putin-trump-ukraine-russia-nuclear-weapons.html
