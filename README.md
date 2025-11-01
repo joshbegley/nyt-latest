@@ -1,8 +1,12 @@
+**Front-runner emerges for Mets pitching coach job: Sources**\
+`Justin Willard, 35, is the Boston Red Sox director of pitching and holds several years of experience in pitching development.`\
+https://nytimes.com/athletic/6769109/2025/11/01/mets-pitching-coach-justin-willard/
+
 **Texas keeps Playoff hopes alive as Arch Manning, Horns survive late scare vs. Vanderbilt**\
 `Manning returns from concussion protocol to lead Texas to a 34-31 win over Vanderbilt.`\
 https://nytimes.com/athletic/6769022/2025/11/01/texas-vanderbilt-score-result-takeaway-college-football/
 
-**The Briefing: Tottenham 0 Chelsea 1 - Can Spurs solve their attacking bluntness? How impressive was Moises Caicedo?**\
+**The Briefing: Tottenham 0 Chelsea 1 – Can Spurs solve their attacking bluntness? How impressive was Moises Caicedo?**\
 `The Athletic's writers analyse Saturday evening's derby between Spurs and Chelsea in north London`\
 https://nytimes.com/athletic/6756851/2025/11/01/tottenham-chelsea-premier-league-analysis/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/01/nyregion/zohran-mamdani-barack-obama-election.htm
 **Arteta: Arsenal to 'wait and see' on Gyokeres injury in Burnley win**\
 `Arsenal are already without Kai Havertz, Gabriel Jesus, Noni Madueke, Martin Odegaard, and Gabriel Martinelli all due to injury issues.`\
 https://nytimes.com/athletic/6768926/2025/11/01/arsenal-gyokeres-injury-news-update-burnley/
-
-**Cardinals QB Jacoby Brissett to start third straight game for Kyler Murray**\
-`The staff will continue to evaluate Murray the next two days to see if the seventh-year quarterback could have a role against Dallas.`\
-https://nytimes.com/athletic/6768995/2025/11/01/cardinals-jacoby-brissett-kyler-murray-cowboys/
 
