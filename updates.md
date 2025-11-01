@@ -1,3 +1,11 @@
+**Coach Rhett Lashlee, SMU finalizing two-year contract extension: Source**\
+`Lashlee is 34-15 in four seasons at SMU, including a College Football Playoff appearance last season.`\
+https://nytimes.com/athletic/6767796/2025/10/31/smu-rhett-lashlee-contract-extension/
+
+**Fact-Checking Trump’s Claim About SNAP and Partisanship**\
+`The president said a lapse in SNAP funding would “largely” hurt Democrats. But interruptions to the program will also affect Republicans.`\
+https://nytimes.com/2025/10/31/us/fact-check-trump-snap-food-stamps.html
+
 **Devils, Jacob Markström agree to 2-year, $6 million AAV extension**\
 `The 35-year-old Swede has an .830 save percentage and 5.13 goals-against average in four games this season.`\
 https://nytimes.com/athletic/6767797/2025/10/31/devils-jacob-markstrom-contract-extension/
