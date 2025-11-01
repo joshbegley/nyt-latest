@@ -1,3 +1,7 @@
+**As the Shutdown Pain Grows, Trump Attends to Other Matters**\
+`The president attended a Halloween party Friday and called attention to the marble renovation of a White House bathroom.`\
+https://nytimes.com/2025/10/31/us/politics/trump-shutdown.html
+
 **Immigration Agents Clash With Chicago-Area Residents on Halloween**\
 `The state’s governor had called for a pause in the federal immigration crackdown over the Halloween weekend, citing concerns for children’s safety.`\
 https://nytimes.com/2025/10/31/us/politics/chicago-ice-immigration-agents.html
