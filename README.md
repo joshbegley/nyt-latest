@@ -1,3 +1,7 @@
+**Luka Dončić exceeds 40 points for third straight game as Lakers defeat Grizzlies**\
+`Dončić joined Wilt Chamberlain as the only players to score at least 40 points in their first three games of an NBA season.`\
+https://nytimes.com/athletic/6768043/2025/11/01/luka-doncic-highlights-stats-lakers-grizzlies-injury/
+
 **How Britain Got Investors to Line Up for Nuclear Power**\
 `Developers have finally broken ground on the project, known as Sizewell C, but getting there meant navigating wary investors and local opposition.`\
 https://nytimes.com/2025/11/01/business/britain-nuclear-power-plant-sizewell.html
@@ -33,8 +37,4 @@ https://nytimes.com/card/2025/11/01/smarter-living/wirecutter/
 **Dodgers-Blue Jays Game 6 takeaways: Kiké Hernández, Miguel Rojas combine to force Game 7**\
 `Facing a 3-2 hole, the Dodgers climbed back to force a winner-take-all Game 7 and keep their World Series hopes alive.`\
 https://nytimes.com/athletic/6767806/2025/10/31/dodgers-blue-jays-world-series-game-6-results-takeaways-mlb/
-
-**Bill Belichick gets first Power 4 win as UNC dominates Syracuse**\
-`UNC's offense finished with 425 total yards in its best outing of the year by a nearly 75-yard margin.`\
-https://nytimes.com/athletic/6767965/2025/10/31/bill-belichick-unc-first-power-4-win-syracuse/
 
