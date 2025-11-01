@@ -1,3 +1,7 @@
+**Coach Rhett Lashlee, SMU finalizing two-year contract extension: Source**\
+`Lashlee is 34-15 in four seasons at SMU, including a College Football Playoff appearance last season.`\
+https://nytimes.com/athletic/6767796/2025/10/31/smu-rhett-lashlee-contract-extension/
+
 **Fact-Checking Trump’s Claim About SNAP and Partisanship**\
 `The president said a lapse in SNAP funding would “largely” hurt Democrats. But interruptions to the program will also affect Republicans.`\
 https://nytimes.com/2025/10/31/us/fact-check-trump-snap-food-stamps.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/31/upshot/early-voters-2025-election.html
 **Mace Unleashes Diatribe at Airport Police for Missing Security Escort**\
 `The South Carolina congresswoman went on an extended shouting and cursing “tirade,” according to a police incident report, after security agents who were supposed to escort her failed to meet her as planned.`\
 https://nytimes.com/2025/10/31/us/politics/nancy-mace-airport-police-security.html
-
-**Kentucky Woman Receives Package of Human Body Parts by Mistake, Coroner Says**\
-`She was expecting time-sensitive medication, but opened the box to find two arms and four fingers meant to be used in surgical training, the coroner said.`\
-https://nytimes.com/2025/10/31/us/kentucky-severed-arms-fingers.html
 
