@@ -1,3 +1,7 @@
+**Uncertainty Persists for Americans Waiting for Monthly Food Stamps**\
+`Judges on Friday ordered the federal government to continue providing food assistance during the shutdown. But benefits will still most likely be interrupted.`\
+https://nytimes.com/2025/10/31/us/snap-food-stamps-aid.html
+
 **Coach Rhett Lashlee, SMU finalizing two-year contract extension: Source**\
 `Lashlee is 34-15 in four seasons at SMU, including a College Football Playoff appearance last season.`\
 https://nytimes.com/athletic/6767796/2025/10/31/smu-rhett-lashlee-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/31/us/politics/tucker-carlson-nick-fuentes.html
 **Tracking the Early Vote in New York, New Jersey and Virginia**\
 `See the age breakdown in New York City and the partisanship in New Jersey and Virginia of the voters who have cast ballots so far.`\
 https://nytimes.com/2025/10/31/upshot/early-voters-2025-election.html
-
-**Mace Unleashes Diatribe at Airport Police for Missing Security Escort**\
-`The South Carolina congresswoman went on an extended shouting and cursing “tirade,” according to a police incident report, after security agents who were supposed to escort her failed to meet her as planned.`\
-https://nytimes.com/2025/10/31/us/politics/nancy-mace-airport-police-security.html
 
