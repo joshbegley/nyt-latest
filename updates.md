@@ -1,3 +1,11 @@
+**Miami is crashing out of the CFP picture in exactly the way you might expect**\
+`The Canes can’t stop tripping over themselves when it matters most.`\
+https://nytimes.com/athletic/6769349/2025/11/01/miami-smu-mario-cristobal-cfp/
+
+**Liverpool 2 Aston Villa 0 – Salah's 250: Is he their greatest modern player? How did Emery's plan backfire?**\
+`Analysis of Liverpool's Premier League victory over Aston Villa`\
+https://nytimes.com/athletic/6756852/2025/11/01/liverpool-aston-villa-salah-highlights/
+
 **‘Intentional’ Explosion Took Place at Harvard Medical School, Officials Say**\
 `Two people were seen running from the building afterward, the school said. The school is asking the public for help to identify the individuals caught on surveillance video.`\
 https://nytimes.com/2025/11/01/us/harvard-medical-school-explosion.html
