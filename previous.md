@@ -1,3 +1,7 @@
+**Dabo calls fourth-down PI in Clemson's loss to Duke 'one of the worst calls'**\
+`Given new life by a late penalty, Duke snapped a 15-game losing streak at Clemson that dates back to 1980.`\
+https://nytimes.com/athletic/6769271/2025/11/01/dabo-swinney-clemson-duke-pass-interference-penalty/
+
 **Iowa State's Benjamin Brahmer carted off, taken to hospital after collapsing on field**\
 `Brahmer was unable to corral a pass from Rocco Becht when Arizona State defensive back Keith Abney drilled him in the fourth quarter.`\
 https://nytimes.com/athletic/6769259/2025/11/01/iowa-state-benjamin-brahmer-injury-arizona-state/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6769222/2025/11/01/vitor-pereira-wolves-fulham/
 **When the Women Played Five Sets at the WTA Finals**\
 `In a push for prize money equal to the men, the tour for 15 years made its format more taxing. ‘We wanted the world to know that we weren’t wilting flowers,’ Martina Navratilova said.`\
 https://nytimes.com/2025/11/01/sports/tennis/wta-five-sets-equal-pay.html
-
-**Vladimir Guerrero Jr. wears Marie-Philip Poulin Team Canada jersey ahead of World Series Game 7**\
-`The Blue Jays first baseman walked into Saturday's winner-take-all World Series finale with a nod to Canada's most clutch athlete ever.`\
-https://nytimes.com/athletic/6769194/2025/11/01/vladimir-guerrero-jr-marie-philip-poulin-team-canada-jersey/
 

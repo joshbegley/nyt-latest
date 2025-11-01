@@ -1,3 +1,7 @@
+**Dabo calls fourth-down PI in Clemson's loss to Duke 'one of the worst calls'**\
+`Given new life by a late penalty, Duke snapped a 15-game losing streak at Clemson that dates back to 1980.`\
+https://nytimes.com/athletic/6769271/2025/11/01/dabo-swinney-clemson-duke-pass-interference-penalty/
+
 **Iowa State's Benjamin Brahmer carted off, taken to hospital after collapsing on field**\
 `Brahmer was unable to corral a pass from Rocco Becht when Arizona State defensive back Keith Abney drilled him in the fourth quarter.`\
 https://nytimes.com/athletic/6769259/2025/11/01/iowa-state-benjamin-brahmer-injury-arizona-state/
