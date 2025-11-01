@@ -1,3 +1,11 @@
+**Bompastor accuses Earps of disrespect over Hampton, Wiegman comments**\
+`Writing in her new autobiography, Earps criticised Hampton's behaviour and the way in which Wiegman dropped her as England goalkeeper.`\
+https://nytimes.com/athletic/6768881/2025/11/01/sonia-bompastor-mary-earps-hampton-wiegman/
+
+**The Briefing: Nottingham Forest 2 Man Utd 2 – Did Amad's great goal show Amorim's new set-piece threat? Should Casemiro's have stood?**\
+`Analysis of Manchester United's Premier League game away to Nottingham Forest`\
+https://nytimes.com/athletic/6756830/2025/11/01/nottingham-forest-manchester-united-highlights/
+
 **The Briefing – Brighton 3 Leeds 0: How did Dunk nullify Calvert-Lewin? Will Leeds ever score again at the Amex?**\
 `Leeds continued their woeful form at the Amex Stadium. Beren Cross explains where things went wrong for Daniel Farke's side`\
 https://nytimes.com/athletic/6756828/2025/11/01/brighton-3-leeds-0-briefing/
