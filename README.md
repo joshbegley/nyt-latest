@@ -1,3 +1,7 @@
+**The Red Wings are both improved and flawed. What does it mean for their outlook?**\
+`The Red Wings' 5-2 loss in Anaheim Friday showed their flaws, but their improvements this season also point to real opportunity ahead.`\
+https://nytimes.com/athletic/6768118/2025/11/01/red-wings-start-improvements-todd-mclellan/
+
 **How to watch Kings vs. Bucks: Time, TV, streaming**\
 `Find out how to watch the Sacramento Kings play the Milwaukee Bucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6768669/2025/11/01/kings-vs-bucks-stream-how-to-watch-nov-1/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6768144/2025/11/01/phoenix-suns-devin-booker-utah-j
 **N.Y.C. Mayor’s Race Live Updates: Campaign Enters Final Weekend Before Election Day**\
 `Zohran Mamdani holds a considerable lead in most polls, and wealthy supporters of Andrew M. Cuomo are giving him a late financial boost. More than 480,000 New Yorkers have voted early.`\
 https://nytimes.com/live/2025/11/01/nyregion/nyc-mayor-election-news
-
-**Rohan Bopanna retires from tennis after a record-breaking, remarkable career**\
-`Bopanna, 45, exits tennis after one of the great late-career surges in any sport.`\
-https://nytimes.com/athletic/6768510/2025/11/01/rohan-bopanna-tennis-retirement/
 
