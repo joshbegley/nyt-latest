@@ -1,3 +1,7 @@
+**Northern Arizona's Jayson Raines sees pass until lights go out — and still makes catch**\
+`Raines' 2-point conversion catch didn't count because Northern Arizona's stadium lights went out while the pass was in the air vs. Idaho.`\
+https://nytimes.com/athletic/6769304/2025/11/01/northern-arizona-catch-dark-jayson-raines/
+
 **Eagles acquire CB Jaire Alexander from Ravens for 6th round pick**\
 `The defending Super Bowl champions acquired the defensive back and a draft pick from the Baltimore Ravens on Saturday.`\
 https://nytimes.com/athletic/6769356/2025/11/01/jaire-alexander-trade-eagles-ravens-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6769271/2025/11/01/dabo-swinney-clemson-duke-pass-i
 **Iowa State's Benjamin Brahmer carted off, taken to hospital after collapsing on field**\
 `Brahmer was unable to corral a pass from Rocco Becht when Arizona State defensive back Keith Abney drilled him in the fourth quarter.`\
 https://nytimes.com/athletic/6769259/2025/11/01/iowa-state-benjamin-brahmer-injury-arizona-state/
-
-**'Not a big problem': Frank relaxed despite Spence and van de Ven snub**\
-`Frank appeared to try to stop the defenders but the duo ignored him and headed off the pitch.`\
-https://nytimes.com/athletic/6769315/2025/11/01/thomas-frank-tottenham-van-de-van-spence/
 

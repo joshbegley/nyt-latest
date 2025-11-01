@@ -1,3 +1,7 @@
+**Northern Arizona's Jayson Raines sees pass until lights go out — and still makes catch**\
+`Raines' 2-point conversion catch didn't count because Northern Arizona's stadium lights went out while the pass was in the air vs. Idaho.`\
+https://nytimes.com/athletic/6769304/2025/11/01/northern-arizona-catch-dark-jayson-raines/
+
 **‘Intentional’ Explosion Took Place at Harvard Medical School, Officials Say**\
 `Two people were seen running from the building afterward, the school said. No injuries were reported.`\
 https://nytimes.com/2025/11/01/us/harvard-medical-school-explosion.html
