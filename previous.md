@@ -1,3 +1,7 @@
+**The Briefing: Tottenham 0 Chelsea 1 - Can Spurs solve their attacking bluntness? How impressive was Moises Caicedo?**\
+`The Athletic's writers analyse Saturday evening's derby between Spurs and Chelsea in north London`\
+https://nytimes.com/athletic/6756851/2025/11/01/tottenham-chelsea-premier-league-analysis/
+
 **How to watch Mavericks vs. Pistons: Time, TV, streaming**\
 `Find out how to watch the Dallas Mavericks play the Detroit Pistons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6769126/2025/11/01/mavericks-vs-pistons-stream-how-to-watch-nov-1/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6768995/2025/11/01/cardinals-jacoby-brissett-kyler-
 **Two More Suspects Charged in Louvre Heist Case**\
 `In addition to the two main suspects, who partially admitted to the robbery, two others have been charged by the Paris prosecutor overseeing the case.`\
 https://nytimes.com/2025/11/01/world/europe/france-louvre-heist-arrests.html
-
-**Dyche calls for 'change' to VAR after controversial Man United goal**\
-`Amad Diallo's stunning volley denied Dyche a first league win as Forest boss, leaving the 54-year-old deeply frustrated at United's opener.`\
-https://nytimes.com/athletic/6768986/2025/11/01/sean-dyche-change-var-manchester-united/
 
