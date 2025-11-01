@@ -1,3 +1,11 @@
+**Russini: 18 NFL trade deadline nuggets I’m hearing, plus the tush push’s kryptonite**\
+`With the Nov. 4 trade deadline just days away, is your team’s front office handing out treats? This is what our insider is hearing.`\
+https://nytimes.com/athletic/6767924/2025/11/01/nfl-trade-deadline-2025-rumors-news-tush-push/
+
+**These Cookies Changed My Life**\
+`And perhaps my salted butterscotch chocolate chunk cookies will change yours, too.`\
+https://nytimes.com/2025/11/01/dining/these-cookies-changed-my-life.html
+
 **The Red Wings are both improved and flawed. What does it mean for their outlook?**\
 `The Red Wings' 5-2 loss in Anaheim Friday showed their flaws, but their improvements this season also point to real opportunity ahead.`\
 https://nytimes.com/athletic/6768118/2025/11/01/red-wings-start-improvements-todd-mclellan/
