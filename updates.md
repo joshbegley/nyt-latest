@@ -1,3 +1,15 @@
+**‘Intentional’ Explosion Took Place at Harvard Medical School, Officials Say**\
+`Two people were seen running from the building afterward, the school said. The school is asking the public for help to identify the individuals caught on surveillance video.`\
+https://nytimes.com/2025/11/01/us/harvard-medical-school-explosion.html
+
+**Mamdani is joined by Ro Khanna in hopes of exciting South Asian voters.**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/11/01/nyregion/nyc-mayor-election-news/mamdani-is-joined-by-ro-khanna-in-hopes-of-exciting-south-asian-voters
+
+**The Buckeyezzzzz: Ohio State is so good it's boring**\
+`It's like watching the Harlem Globetrotters — without the buckets of confetti. That's not a criticism. They're the best team in the country.`\
+https://nytimes.com/athletic/6769358/2025/11/01/ohio-state-buckeyes-best-college-football-team/
+
 **The Buckeyezzzzz: Ohio State is so good it’s boring**\
 `It’s like watching the Harlem Globetrotters. Without the buckets of confetti. That’s not a criticism. They’re the best team in the country.`\
 https://nytimes.com/athletic/6769358/2025/11/01/ohio-state-buckeyes-best-college-football-team/

@@ -1,3 +1,7 @@
+**Miami is crashing out of the CFP picture in exactly the way you might expect**\
+`The Canes can’t stop tripping over themselves when it matters most.`\
+https://nytimes.com/athletic/6769349/2025/11/01/miami-smu-mario-cristobal-cfp/
+
 **‘Intentional’ Explosion Took Place at Harvard Medical School, Officials Say**\
 `Two people were seen running from the building afterward, the school said. The school is asking the public for help to identify the individuals caught on surveillance video.`\
 https://nytimes.com/2025/11/01/us/harvard-medical-school-explosion.html
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6769358/2025/11/01/ohio-state-buckeyes-best-college
 `There’s no resisting this enormous themeless puzzle from Rafael Musa.`\
 https://nytimes.com/2025/11/01/crosswords/daily-puzzle-2025-11-02.html
 
-**Liverpool 2 Aston Villa 0 - Salah's 250: Is he their greatest modern player? How did Emery's plan backfire?**\
+**Liverpool 2 Aston Villa 0 – Salah's 250: Is he their greatest modern player? How did Emery's plan backfire?**\
 `Analysis of Liverpool's Premier League victory over Aston Villa`\
 https://nytimes.com/athletic/6756852/2025/11/01/liverpool-aston-villa-salah-highlights/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6769315/2025/11/01/thomas-frank-tottenham-van-de-va
 **‘Best game structure-wise’: How the Bruins executed their non-negotiable blueprint**\
 `The Bruins finally look legit, and it's because of how they defended in a 2-1 win over the Hurricanes.`\
 https://nytimes.com/athletic/6769270/2025/11/01/bruins-hurricanes-charlie-mcavoy-casey-mittelstadt/
-
-**Trump Administration Must Make Food Stamp Payments Within Days, Judge Says**\
-`The written order came one day after a court told the Trump administration it must pay benefits in the program known as SNAP during the shutdown.`\
-https://nytimes.com/2025/11/01/us/politics/trump-food-stamp-payments.html
 

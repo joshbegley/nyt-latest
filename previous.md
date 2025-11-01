@@ -1,5 +1,13 @@
-**The Buckeyezzzzz: Ohio State is so good it’s boring**\
-`It’s like watching the Harlem Globetrotters. Without the buckets of confetti. That’s not a criticism. They’re the best team in the country.`\
+**‘Intentional’ Explosion Took Place at Harvard Medical School, Officials Say**\
+`Two people were seen running from the building afterward, the school said. The school is asking the public for help to identify the individuals caught on surveillance video.`\
+https://nytimes.com/2025/11/01/us/harvard-medical-school-explosion.html
+
+**Mamdani is joined by Ro Khanna in hopes of exciting South Asian voters.**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/11/01/nyregion/nyc-mayor-election-news/mamdani-is-joined-by-ro-khanna-in-hopes-of-exciting-south-asian-voters
+
+**The Buckeyezzzzz: Ohio State is so good it's boring**\
+`It's like watching the Harlem Globetrotters — without the buckets of confetti. That's not a criticism. They're the best team in the country.`\
 https://nytimes.com/athletic/6769358/2025/11/01/ohio-state-buckeyes-best-college-football-team/
 
 **Open-Faced**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6769270/2025/11/01/bruins-hurricanes-charlie-mcavoy
 **Trump Administration Must Make Food Stamp Payments Within Days, Judge Says**\
 `The written order came one day after a court told the Trump administration it must pay benefits in the program known as SNAP during the shutdown.`\
 https://nytimes.com/2025/11/01/us/politics/trump-food-stamp-payments.html
-
-**WTA Tour Finals results: Iga Świątek and Elena Rybakina dominate Day 1 in Riyadh**\
-`The best eight WTA tennis players of the year are fighting for supremacy in the season-ending event.`\
-https://nytimes.com/athletic/6763218/2025/11/01/wta-tour-finals-draw-schedule-results-2025/
-
-**Why Novak Djokovic is key to a thrilling ATP Tour Finals Race to Turin**\
-`Paris Masters results have left one spot at the ATP Tour Finals for two players — but Djokovic may offer another.`\
-https://nytimes.com/athletic/6763865/2025/11/01/atp-tour-race-to-turin-tour-finals-qualification/
 
