@@ -1,3 +1,11 @@
+**The Pulse: Why Game 7 could be iconic**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6768085/2025/11/01/an-epic-game-7-of-the-world-series-inside-one-of-the-41-biggest-games-ever/
+
+**Scoop City: Fantasy tips to win Week 9**\
+`A pair of rookie running backs are set to elevate to starting roles for the week. Plus, a premier TE returns.`\
+https://nytimes.com/athletic/6768726/2025/11/01/everything-fantasy-football-managers-need-to-know-for-week-9/
+
 **Russini: 18 NFL trade deadline nuggets I’m hearing, plus the tush push’s kryptonite**\
 `With the Nov. 4 trade deadline just days away, is your team’s front office handing out treats? This is what our insider is hearing.`\
 https://nytimes.com/athletic/6767924/2025/11/01/nfl-trade-deadline-2025-rumors-news-tush-push/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6768661/2025/11/01/penguins-vs-jets-stream-how-to-w
 **Once Bitter Rivals, Cuomo and Adams Join Forces in Mayor’s Race**\
 `Mayor Eric Adams and former Gov. Andrew M. Cuomo have campaigned together and had a meeting of the minds on policy since Mr. Adams dropped his re-election bid.`\
 https://nytimes.com/2025/11/01/nyregion/cuomo-adams-new-york-mayor-race.html
-
-**Willa Pearson, 14, becomes youngest player in A-League history**\
-`Pearson started Sydney FC's game against Melbourne City aged 14 years and 312 days.`\
-https://nytimes.com/athletic/6768508/2025/11/01/willa-pearson-a-league-youngest-player-record/
-
-**Here’s the latest.**\
-`By Michael Gold`\
-https://nytimes.com/live/2025/11/01/nyregion/nyc-mayor-election-news/heres-the-latest
 

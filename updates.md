@@ -1,3 +1,11 @@
+**The Pulse: Why Game 7 could be iconic**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6768085/2025/11/01/an-epic-game-7-of-the-world-series-inside-one-of-the-41-biggest-games-ever/
+
+**Scoop City: Fantasy tips to win Week 9**\
+`A pair of rookie running backs are set to elevate to starting roles for the week. Plus, a premier TE returns.`\
+https://nytimes.com/athletic/6768726/2025/11/01/everything-fantasy-football-managers-need-to-know-for-week-9/
+
 **The Red Wings are improved and flawed. What does it mean for their outlook?**\
 `The Red Wings' 5-2 loss in Anaheim Friday showed their flaws, but their improvements this season also point to real opportunity ahead.`\
 https://nytimes.com/athletic/6768118/2025/11/01/red-wings-start-improvements-todd-mclellan/
