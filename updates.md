@@ -1,3 +1,7 @@
+**Vladimir Guerrero Jr. wears Marie-Philip Poulin Team Canada jersey ahead of World Series Game 7**\
+`Vladimir Guerrero Jr. walked into Saturday's winner-take-all World Series finale with a nod to Canada's most clutch athlete ever.`\
+https://nytimes.com/athletic/6769194/2025/11/01/vladimir-guerrero-jr-marie-philip-poulin-team-canada-jersey/
+
 **YouTube TV subscribers frustrated over absence of ESPN college football programming**\
 `ESPN and YouTubeTV contract dispute leaves college football unavailable on YouTube TV, much to the chagrin of the fans. `\
 https://nytimes.com/athletic/6768942/2025/11/01/college-football-fans-frustrated-youtube-tv-espn-deal/

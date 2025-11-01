@@ -1,3 +1,15 @@
+**A Powerful Doubles Team Heads to the WTA Finals**\
+`Gaby Dabrowski and Erin Routliffe have been playing together since 2023 and won the Finals last year and the U.S. Open twice.`\
+https://nytimes.com/2025/11/01/sports/tennis/wta-finals-doubles-routliffe-dabrowski.html
+
+**Pereira labels Wolves' defeat at Fulham 'the worst performance' of his tenure**\
+`Pereira’s side lost 3-0 and had defender Emmanuel Agbadou sent off in the first half.`\
+https://nytimes.com/athletic/6769222/2025/11/01/vitor-pereira-wolves-fulham/
+
+**When the Women Played Five Sets at the WTA Finals**\
+`In a push for prize money equal to the men, the tour for 15 years made its format more taxing. ‘We wanted the world to know that we weren’t wilting flowers,’ Martina Navratilova said.`\
+https://nytimes.com/2025/11/01/sports/tennis/wta-five-sets-equal-pay.html
+
 **Vladimir Guerrero Jr. wears Marie-Philip Poulin Team Canada jersey ahead of World Series Game 7**\
 `Vladimir Guerrero Jr. walked into Saturday's winner-take-all World Series finale with a nod to Canada's most clutch athlete ever.`\
 https://nytimes.com/athletic/6769194/2025/11/01/vladimir-guerrero-jr-marie-philip-poulin-team-canada-jersey/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6769022/2025/11/01/texas-vanderbilt-score-result-ta
 **The Briefing: Tottenham 0 Chelsea 1 – Can Spurs solve their attacking bluntness? How impressive was Moises Caicedo?**\
 `The Athletic's writers analyse Saturday evening's derby between Spurs and Chelsea in north London`\
 https://nytimes.com/athletic/6756851/2025/11/01/tottenham-chelsea-premier-league-analysis/
-
-**How to watch Mavericks vs. Pistons: Time, TV, streaming**\
-`Find out how to watch the Dallas Mavericks play the Detroit Pistons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6769126/2025/11/01/mavericks-vs-pistons-stream-how-to-watch-nov-1/
-
-**How to watch Rangers vs. Kraken: Time, TV, streaming**\
-`Find out how to watch the New York Rangers play the Seattle Kraken, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6769124/2025/11/01/rangers-vs-kraken-stream-how-to-watch-nov-1/
-
-**How to watch Blackhawks vs. Oilers: Time, TV, streaming**\
-`Find out how to watch the Chicago Blackhawks play the Edmonton Oilers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6769122/2025/11/01/blackhawks-vs-oilers-stream-how-to-watch-nov-1/
 
