@@ -1,3 +1,7 @@
+**After Days of Protests, Tanzania’s President Is Declared Election Winner**\
+`Election monitors and members of the European Parliament have questioned the election’s integrity, and violent protests have rocked the country.`\
+https://nytimes.com/2025/11/01/world/africa/tanzania-president-election-protest-violence.html
+
 **How to watch Dodgers at Blue Jays: World Series Game 7 Time, TV, streaming**\
 `Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6768157/2025/11/01/how-to-watch-dodgers-vs-blue-jays-world-series-game-7-tv-channel-and-streaming-options-for-november-1/
