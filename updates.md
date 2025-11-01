@@ -1,3 +1,7 @@
+**What's it like to umpire Game 7 of the World Series? We asked an expert**\
+`Dale Scott was a big-league umpire for 32 years, where he worked three World Series, including Game 7 of the 2001 Fall Classic.`\
+https://nytimes.com/athletic/6768050/2025/11/01/world-series-game-7-umpire/
+
 **The Dodgers kept their heads and keep their season alive to force a Game 7**\
 `Somehow, the Dodgers are here, still alive and gearing up for Game 7: “Everybody ... wants the moment to come to them,”`\
 https://nytimes.com/athletic/6768151/2025/11/01/dodgers-kike-hernandez-double-play-world-series/

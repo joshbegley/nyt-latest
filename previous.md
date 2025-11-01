@@ -1,3 +1,7 @@
+**What's it like to umpire Game 7 of the World Series? We asked an expert**\
+`Dale Scott was a big-league umpire for 32 years, where he worked three World Series, including Game 7 of the 2001 Fall Classic.`\
+https://nytimes.com/athletic/6768050/2025/11/01/world-series-game-7-umpire/
+
 **The Dodgers kept their heads and keep their season alive to force a Game 7**\
 `Somehow, the Dodgers are here, still alive and gearing up for Game 7: “Everybody ... wants the moment to come to them,”`\
 https://nytimes.com/athletic/6768151/2025/11/01/dodgers-kike-hernandez-double-play-world-series/
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010493410/why-wont-congress-use-its-powe
 **Bros Need Some Bros**\
 `Commercial camaraderie underscores how it’s lacking in real life.`\
 https://nytimes.com/2025/11/01/opinion/men-friendship-celebrities.html
-
-**The Last Days of a Zombie Mall (With Zombies)**\
-`What does it mean when a cultural epicenter is poised to be little more than a dearly departed corpse?`\
-https://nytimes.com/2025/11/01/opinion/romero-zombie-monroeville-mall-dawn-of-the-dead.html
 
