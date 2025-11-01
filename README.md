@@ -1,3 +1,23 @@
+**How Britain Got Investors to Line Up for Nuclear Power**\
+`Developers have finally broken ground on the project, known as Sizewell C, but getting there meant navigating wary investors and local opposition.`\
+https://nytimes.com/2025/11/01/business/britain-nuclear-power-plant-sizewell.html
+
+**Quote of the Day: Trump’s Talk of Nuclear Tests Recalls Fears of the Cold War**\
+`Quotation of the Day for Saturday, November 1, 2025.`\
+https://nytimes.com/2025/11/01/pageoneplus/quote-of-the-day-trumps-talk-of-nuclear-tests-recalls-fears-of-the-cold-war.html
+
+**For a Literary Saint, Margaret Atwood Can Sure Hold a Grudge**\
+`She had to be pushed to write her new memoir, “Book of Lives.” The result reveals the experiences (and a few slights) that have shaped her work.`\
+https://nytimes.com/2025/11/01/books/review/margaret-atwood-book-of-lives-memoir.html
+
+**Connections: Sports Edition Coach: Hints for Nov. 1, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6766230/2025/11/01/connections-sports-edition-hints-for-nov-1-2025/
+
+**Corrections: Nov. 1, 2025**\
+`Corrections that appeared in print on Saturday, Nov. 1, 2025.`\
+https://nytimes.com/2025/11/01/pageoneplus/corrections-nov-1-2025.html
+
 **Heidi Klum Has Snakes Coming Out of Her Head (Don’t Look)**\
 `The model and TV personality dressed like Medusa for her annual Halloween party in New York City this year.`\
 https://nytimes.com/2025/10/31/style/heidi-klum-halloween-costume-medusa.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6767806/2025/10/31/dodgers-blue-jays-world-series-g
 **Bill Belichick gets first Power 4 win as UNC dominates Syracuse**\
 `UNC's offense finished with 425 total yards in its best outing of the year by a nearly 75-yard margin.`\
 https://nytimes.com/athletic/6767965/2025/10/31/bill-belichick-unc-first-power-4-win-syracuse/
-
-**Dodgers hold off Blue Jays' ferocious final push to force climactic World Series Game 7**\
-`The Blue Jays pushed the Dodgers to the wire, but Los Angeles was able to hang on to send the series to one final game. `\
-https://nytimes.com/athletic/6767948/2025/10/31/dodgers-blue-jays-game-6-world-series/
-
-**Kevin Porter Jr. to miss 4 weeks with right knee injury: What it means for Bucks**\
-`With their starting point guard sidelined, the Bucks will rely on Ryan Rollins, who scored 32 points in Milwaukee's last game.`\
-https://nytimes.com/athletic/6767916/2025/10/31/kevin-porter-jr-injury-bucks-status/
-
-**Josh Giddey, Bulls clinch franchise's best start to season since MJ era**\
-`Led by their rising 23-year-old star, the Bulls, who were expected to be a lottery team this season, are off to their best start since 1996.`\
-https://nytimes.com/athletic/6767855/2025/10/31/chicago-bulls-record-undefeated-josh-giddey/
-
-**Judge Permanently Bars Trump From Requiring Proof of Citizenship for Voter Registration**\
-`The ruling on Friday found that Trump had usurped the power vested in Congress and the states to administer and oversee elections protocols.`\
-https://nytimes.com/2025/10/31/us/politics/trump-proof-citizenship-voter-registration.html
-
-**What Is Happening With SNAP Benefits During the Shutdown?**\
-`President Trump said that he would heed court rulings ordering his administration to fund food stamps during the government shutdown, but there are complications.`\
-https://nytimes.com/2025/10/31/us/politics/snap-benefits-shutdown.html
 
