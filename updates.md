@@ -1,3 +1,15 @@
+**Pumpkin Bread Pudding for Breakfast, Dessert and All the Snacks in Between**\
+`Yossy Arefi’s easy recipe turns a whole can of pumpkin into a luscious, custardy treat.`\
+https://nytimes.com/2025/11/01/dining/pumpkin-bread-pudding-for-breakfast-dessert-and-all-the-snacks-in-between.html
+
+**Cuomo was contrite about his sexual harassment scandal. Not anymore.**\
+`By Dana Rubinstein and Alyce McFadden`\
+https://nytimes.com/live/2025/11/01/nyregion/nyc-mayor-election-news/cuomo-was-contrite-about-his-sexual-harassment-scandal-not-anymore
+
+**On the Halloween Trail, Mamdani and Sliwa Encounter Revelers Dressed as Them**\
+`For the candidates, the holiday was yet another campaigning opportunity.`\
+https://nytimes.com/2025/11/01/nyregion/mamdani-sliwa-halloween-nyc-costumes.html
+
 **Can South Korea Manage the Competing Needs of the U.S. and China?**\
 `The country’s new president rolled out the red carpet for China’s leader, Xi Jinping, and President Trump this week, but the superpower rivalry is making it harder to balance relations.`\
 https://nytimes.com/2025/11/01/world/asia/south-korea-china-us.html
