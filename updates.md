@@ -1,3 +1,11 @@
+**Heidi Klum Has Snakes Coming Out of Her Head (Don’t Look)**\
+`The model and TV personality dressed like Medusa for her annual Halloween party in New York City this year.`\
+https://nytimes.com/2025/10/31/style/heidi-klum-halloween-costume-medusa.html
+
+**Can Shohei Ohtani, expected to take the mound in Game 7, pitch and hit the Dodgers to a title?**\
+`Dodgers manager Dave Roberts said that the two-way superstar will be 'part of the pitching plan' in Game 7.`\
+https://nytimes.com/athletic/6767933/2025/10/31/shohei-ohtani-dodgers-game-7-pitching/
+
 **Cozy, Classy and Sporty Socks We Adore **\
 `Text by Zoe Vanderweide`\
 https://nytimes.com/card/2025/11/01/smarter-living/wirecutter/
