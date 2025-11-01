@@ -1,3 +1,11 @@
+**Sources: USL tabs Premier League chief Tony Scholes to run new first division**\
+`USL is launching a new first-division league in 2028, and it's turning to an experienced Premier League leader to run it`\
+https://nytimes.com/athletic/6761281/2025/11/01/tony-scholes-usl-first-division-premier-league/
+
+**Muslim Voters Feel Pride and Fear, for Both Mamdani and Themselves**\
+`After an uptick in Islamophobic comments about Zohran Mamdani, the Democratic nominee for mayor of New York City, some Muslims say they are hopeful but worried about repercussions.`\
+https://nytimes.com/2025/11/01/nyregion/muslim-voters-mamdani.html
+
 **Al Sharpton condemns Islamophobia in the New York City mayor’s race.**\
 `By Jeffery C. Mays`\
 https://nytimes.com/live/2025/11/01/nyregion/nyc-mayor-election-news/al-sharpton-condemns-islamophobia-in-the-new-york-city-mayors-race
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/01/nyregion/rabbi-alvin-kass-dead.html
 **How to watch Warriors vs. Pacers: Time, TV, streaming**\
 `Find out how to watch the Golden State Warriors play the Indiana Pacers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6768869/2025/11/01/warriors-vs-pacers-stream-how-to-watch-nov-1/
-
-**How to watch Blues vs. Blue Jackets: Time, TV, streaming**\
-`Find out how to watch the St. Louis Blues play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6768867/2025/11/01/blues-vs-blue-jackets-stream-how-to-watch-nov-1/
-
-**How to watch Stars vs. Panthers: Time, TV, streaming**\
-`Find out how to watch the Dallas Stars play the Florida Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6768865/2025/11/01/stars-vs-panthers-stream-how-to-watch-nov-1/
 
