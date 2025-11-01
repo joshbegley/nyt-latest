@@ -1,3 +1,27 @@
+**Kraken's Ryan Lindgren prepares for former team; Kaapo Kakko likely to make season debut**\
+`"It’s going to be weird competing against them," said Lindgren, who's looking forward to Saturday's game against the Rangers.`\
+https://nytimes.com/athletic/6767619/2025/11/01/ryan-lindgren-kaapo-kakko-rangers-kraken/
+
+**What to know about the NBA's Mexico City game: Flagg, Cunningham and Día de Muertos**\
+`The NBA's first international export of 2025-26 is a promising one. Here's what viewers should expect from the new Peacock broadcast.`\
+https://nytimes.com/athletic/6760959/2025/11/01/nba-mexico-city-mavericks-pistons-flagg-how-to-watch/
+
+**Inside F1’s TV tech nerve center. Plus, The latest on Red Bull’s non-Verstappen seat**\
+`F1 was showing off its huge TV broadcast HQ this week, which included a visit from one of motorsport's biggest non-F1 stars`\
+https://nytimes.com/athletic/6767133/2025/11/01/f1-tv-broadcast-center/
+
+**Lowetide: What we've learned about Oilers lines after an uncertain October**\
+`The important job for the Oilers is to find chemistry before the playoffs, and there are signs of three units that can work.`\
+https://nytimes.com/athletic/6763566/2025/11/01/edmonton-oiles-lines-schedule-stats-2025/
+
+**For now, Blue Jackets have found a lethal offensive balance**\
+`At five-on-five play, the Blue Jackets have outscored opponents 26-17 through their first 10 games.`\
+https://nytimes.com/athletic/6767590/2025/11/01/columbus-blue-jackets-bottom-six-balance/
+
+**Can Paul Atkins ‘Make I.P.O.s Great Again’?**\
+`The chair of the Securities and Exchange Commission has a plan to reverse the decline in public listings. His critics say he’s taking swings at the wrong target.`\
+https://nytimes.com/2025/11/01/business/dealbook/paul-atkins-ipos.html
+
 **'Pretty epic ending there': How a wild 9th inning kept Dodgers alive for a Game 7**\
 `The Blue Jays didn't advance this far by playing it safe. That was the mindset of their clubhouse after the loss.`\
 https://nytimes.com/athletic/6767984/2025/11/01/blue-jays-dodgers-world-series-game-6-game-ending-play/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6768151/2025/11/01/dodgers-kike-hernandez-double-pl
 **Cuomo’s Pitch as He Claws for Votes: I’m Not the Divider, Mamdani Is**\
 `As Andrew Cuomo tries to gain ground in the New York City mayor’s race, he is trying to splinter some constituencies with natural affinities for the front-runner, Zohran Mamdani.`\
 https://nytimes.com/2025/11/01/nyregion/cuomo-strategy-mamdani.html
-
-**After tough loss, Blue Jays know Game 7 is last chance to capture immortality**\
-`“Game 7, World Series,” Myles Straw said. “It's just the craziest game you're ever gonna ever come across in life.”`\
-https://nytimes.com/athletic/6768107/2025/11/01/blue-jays-dodgers-game-7-world-series/
-
-**Earps claims she told Wiegman she felt 'bad behaviour being rewarded' when dropped for Hampton**\
-`Earps has criticised Sarina Wiegman’s handling of the process of deciding England’s No 1 goalkeeper in her new autobiography.`\
-https://nytimes.com/athletic/6767637/2025/11/01/mary-earps-hannah-hampton-sarina-wiegman/
-
-**Blues mailbag, part 2: Was Dom right after all? Would a trade help? Dvorsky's upside?**\
-`Also: How can the Blues acquire a franchise player? Are fans overvaluing prospects? Does the slow start change Doug Armstrong's approach?`\
-https://nytimes.com/athletic/6757202/2025/11/01/blues-trade-dvorsky-playoff-odds/
-
-**Penguins report cards: Crosby, Malkin, Karlsson pass with flying colors**\
-`The Penguins are one of the NHL's early surprises, and the player-by-player grades are reflected accordingly.`\
-https://nytimes.com/athletic/6762183/2025/11/01/penguins-report-card-grades-nhl-surprise/
-
-**Can Democrats Accept the Obvious?**\
-`Lessons from the Tea Party and recent elections.`\
-https://nytimes.com/2025/11/01/opinion/democrats-tea-party-ideology.html
-
-**Why Won’t Congress Use Its Power?**\
-`Five Republicans just voted with Democrats to block Trump’s tariffs. This proves Congress can act. So why isn’t it using that same power to address hunger, health care costs or undeclared wars? The New York Times Opinion editor, Kathleen Kingsbury, explains.`\
-https://nytimes.com/video/opinion/100000010493410/why-wont-congress-use-its-power.html
 
