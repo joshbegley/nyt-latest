@@ -1,3 +1,11 @@
+**Notre Dame pulls away late to win at Boston College, stay in Playoff race: Key takeaways**\
+`Notre Dame did enough to put away Boston College on Saturday, but also made plenty of mistakes.`\
+https://nytimes.com/athletic/6769288/2025/11/01/notre-dame-boston-college-score-result/
+
+**Emery expects Mings to be sidelined for 'weeks' with hamstring injury**\
+`The defender was replaced in the 74th minute after pulling up while racing back in pursuit of Liverpool's Mohamed Salah.`\
+https://nytimes.com/athletic/6769502/2025/11/01/tyrone-mings-injury-latest-aston-villa/
+
 **‘Intentional’ Explosion Took Place at Harvard Medical School, Officials Say**\
 `Two people were seen running from the building afterward, the school said. No injuries were reported, the school police said.`\
 https://nytimes.com/2025/11/01/us/harvard-medical-school-explosion.html

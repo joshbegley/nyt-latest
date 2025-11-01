@@ -1,3 +1,7 @@
+**Marcyliena Morgan, Founder of Harvard’s Hip-Hop Archive, Dies at 75**\
+`Her university’s vast collection of albums, scholarly essays and other ephemera helped establish rap as a course of serious study on a par with classical music.`\
+https://nytimes.com/2025/11/01/arts/music/marcyliena-morgan-dead.html
+
 **Notre Dame pulls away late to win at Boston College, stay in Playoff race: Key takeaways**\
 `Notre Dame did enough to put away Boston College on Saturday, but also made plenty of mistakes.`\
 https://nytimes.com/athletic/6769288/2025/11/01/notre-dame-boston-college-score-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6769358/2025/11/01/ohio-state-buckeyes-best-college
 **Open-Faced**\
 `There’s no resisting this enormous themeless puzzle from Rafael Musa.`\
 https://nytimes.com/2025/11/01/crosswords/daily-puzzle-2025-11-02.html
-
-**Liverpool 2 Aston Villa 0 – Salah's 250: Is he their greatest modern player? How did Emery's plan backfire?**\
-`Analysis of Liverpool's Premier League victory over Aston Villa`\
-https://nytimes.com/athletic/6756852/2025/11/01/liverpool-aston-villa-salah-highlights/
 

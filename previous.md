@@ -1,3 +1,11 @@
+**Notre Dame pulls away late to win at Boston College, stay in Playoff race: Key takeaways**\
+`Notre Dame did enough to put away Boston College on Saturday, but also made plenty of mistakes.`\
+https://nytimes.com/athletic/6769288/2025/11/01/notre-dame-boston-college-score-result/
+
+**Emery expects Mings to be sidelined for 'weeks' with hamstring injury**\
+`The defender was replaced in the 74th minute after pulling up while racing back in pursuit of Liverpool's Mohamed Salah.`\
+https://nytimes.com/athletic/6769502/2025/11/01/tyrone-mings-injury-latest-aston-villa/
+
 **Northern Arizona's Jayson Raines sees pass until lights go out — and still makes catch**\
 `Raines' 2-point conversion catch didn't count because Northern Arizona's stadium lights went out while the pass was in the air vs. Idaho.`\
 https://nytimes.com/athletic/6769304/2025/11/01/northern-arizona-catch-dark-jayson-raines/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/01/crosswords/daily-puzzle-2025-11-02.html
 **Liverpool 2 Aston Villa 0 – Salah's 250: Is he their greatest modern player? How did Emery's plan backfire?**\
 `Analysis of Liverpool's Premier League victory over Aston Villa`\
 https://nytimes.com/athletic/6756852/2025/11/01/liverpool-aston-villa-salah-highlights/
-
-**Dabo calls fourth-down PI in Clemson's loss to Duke 'one of the worst calls'**\
-`Given new life by a late penalty, Duke snapped a 15-game losing streak at Clemson that dates back to 1980.`\
-https://nytimes.com/athletic/6769271/2025/11/01/dabo-swinney-clemson-duke-pass-interference-penalty/
-
-**Iowa State's Benjamin Brahmer carted off, taken to hospital after collapsing on field**\
-`Brahmer was unable to corral a pass from Rocco Becht when Arizona State defensive back Keith Abney drilled him in the fourth quarter.`\
-https://nytimes.com/athletic/6769259/2025/11/01/iowa-state-benjamin-brahmer-injury-arizona-state/
 
