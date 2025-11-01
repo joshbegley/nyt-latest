@@ -1,4 +1,12 @@
-**Liverpool 2 Aston Villa 0 - Salah's 250: is he their greatest modern player? How did Emery's plan backfire?**\
+**The Buckeyezzzzz: Ohio State is so good it’s boring**\
+`It’s like watching the Harlem Globetrotters. Without the buckets of confetti. That’s not a criticism. They’re the best team in the country.`\
+https://nytimes.com/athletic/6769358/2025/11/01/ohio-state-buckeyes-best-college-football-team/
+
+**Open-Faced**\
+`There’s no resisting this enormous themeless puzzle from Rafael Musa.`\
+https://nytimes.com/2025/11/01/crosswords/daily-puzzle-2025-11-02.html
+
+**Liverpool 2 Aston Villa 0 - Salah's 250: Is he their greatest modern player? How did Emery's plan backfire?**\
 `Analysis of Liverpool's Premier League victory over Aston Villa`\
 https://nytimes.com/athletic/6756852/2025/11/01/liverpool-aston-villa-salah-highlights/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6763218/2025/11/01/wta-tour-finals-draw-schedule-re
 **Why Novak Djokovic is key to a thrilling ATP Tour Finals Race to Turin**\
 `Paris Masters results have left one spot at the ATP Tour Finals for two players — but Djokovic may offer another.`\
 https://nytimes.com/athletic/6763865/2025/11/01/atp-tour-race-to-turin-tour-finals-qualification/
-
-**A Powerful Doubles Team Heads to the WTA Finals**\
-`Gaby Dabrowski and Erin Routliffe have been playing together since 2023 and won the Finals last year and the U.S. Open twice.`\
-https://nytimes.com/2025/11/01/sports/tennis/wta-finals-doubles-routliffe-dabrowski.html
-
-**Pereira labels Wolves' defeat at Fulham 'the worst performance' of his tenure**\
-`Pereira’s side lost 3-0 and had defender Emmanuel Agbadou sent off in the first half.`\
-https://nytimes.com/athletic/6769222/2025/11/01/vitor-pereira-wolves-fulham/
 
