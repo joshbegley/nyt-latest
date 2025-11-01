@@ -1,3 +1,7 @@
+**Carney Says He Apologized to Trump Over Ad Reviving Reagan’s Tariff Criticism**\
+`The Canadian prime minister also said that he had asked the province of Ontario not to air the ad that later prompted the president to end trade talks.`\
+https://nytimes.com/2025/11/01/world/canada/carney-trump-apology-tariffs-reagan-ad.html
+
 **Hurzeler: 'More attention' on Rutter after Joao Pedro departure**\
 `Rutter has made a slow start to the season at Brighton following the £60million summer sale of Joao Pedro to Chelsea.`\
 https://nytimes.com/athletic/6766084/2025/11/01/brighton-rutter-joao-pedro/

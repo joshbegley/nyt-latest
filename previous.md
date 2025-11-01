@@ -1,3 +1,7 @@
+**Carney Says He Apologized to Trump Over Ad Reviving Reagan’s Tariff Criticism**\
+`The Canadian prime minister also said that he had asked the province of Ontario not to air the ad that later prompted the president to end trade talks.`\
+https://nytimes.com/2025/11/01/world/canada/carney-trump-apology-tariffs-reagan-ad.html
+
 **Hurzeler: 'More attention' on Rutter after Joao Pedro departure**\
 `Rutter has made a slow start to the season at Brighton following the £60million summer sale of Joao Pedro to Chelsea.`\
 https://nytimes.com/athletic/6766084/2025/11/01/brighton-rutter-joao-pedro/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/01/crosswords/spelling-bee-forum.html
 **One word describes the Kieffer Moore hat-trick that helped Wrexham beat Coventry: Perfect**\
 `Goals with his right foot, left foot and head saw Kieffer Moore walk home with the match ball – and ended Coventry's unbeaten start`\
 https://nytimes.com/athletic/6767565/2025/11/01/kieffer-moore-wrexham-perfect-hattrick-coventry/
-
-**How to watch Dodgers at Blue Jays: World Series Game 7 Time, TV, streaming**\
-`Find out how to watch the Los Angeles Dodgers play the Toronto Blue Jays, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6768157/2025/11/01/how-to-watch-dodgers-vs-blue-jays-world-series-game-7-tv-channel-and-streaming-options-for-november-1/
 
