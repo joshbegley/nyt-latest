@@ -1,3 +1,7 @@
+**The secret meetings behind Ruben Amorim's Manchester United appointment, one year on**\
+`Manchester United's executives staged meetings across Europe last summer and autumn before finally appointing Ruben Amorim`\
+https://nytimes.com/athletic/6764537/2025/11/01/ruben-amorim-manchester-united-secret-meetings/
+
 **After Days of Protests, Tanzania’s President Is Declared Election Winner**\
 `Election monitors and members of the European Parliament have questioned the election’s integrity, and violent protests have rocked the country.`\
 https://nytimes.com/2025/11/01/world/africa/tanzania-president-election-protest-violence.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6768157/2025/11/01/how-to-watch-dodgers-vs-blue-jay
 **Kawhi Leonard rescues Clippers with buzzer-beating jumper over 2 Pelicans players**\
 `After his turnover led to score-tying free-throws by the Pelicans, Leonard redeemed himself with a stepback jumper over two defenders.`\
 https://nytimes.com/athletic/6768109/2025/11/01/kawhi-leonard-game-winner-clippers-pelicans-video/
-
-**Neil Ryan on managing England at the Under-17 World Cup: ‘It’s about DNA and playing our way’**\
-`The former Manchester United youth coach will guide England’s youngsters in their quest against 47 other nations in Qatar this month`\
-https://nytimes.com/athletic/6757659/2025/11/01/england-under-17-world-cup-qatar-neil-ryan/
 
