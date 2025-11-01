@@ -1,3 +1,7 @@
+**On the Halloween Trail, Mamdani and Sliwa Encounter Revelers Dressed as Them**\
+`For the candidates, the holiday was yet another campaigning opportunity.`\
+https://nytimes.com/2025/11/01/nyregion/mamdani-sliwa-halloween-nyc-costumes.html
+
 **Can South Korea Manage the Competing Needs of the U.S. and China?**\
 `The country’s new president rolled out the red carpet for China’s leader, Xi Jinping, and President Trump this week, but the superpower rivalry is making it harder to balance relations.`\
 https://nytimes.com/2025/11/01/world/asia/south-korea-china-us.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6768667/2025/11/01/flames-vs-predators-stream-how-t
 **How to watch Avalanche vs. Sharks: Time, TV, streaming**\
 `Find out how to watch the Colorado Avalanche play the San Jose Sharks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6768663/2025/11/01/avalanche-vs-sharks-stream-how-to-watch-nov-1/
-
-**How to watch Penguins vs. Jets: Time, TV, streaming**\
-`Find out how to watch the Pittsburgh Penguins play the Winnipeg Jets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6768661/2025/11/01/penguins-vs-jets-stream-how-to-watch-nov-1/
 
