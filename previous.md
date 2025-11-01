@@ -1,3 +1,7 @@
+**Dodgers hold off Blue Jays' ferocious final push to force climactic World Series Game 7**\
+`The Blue Jays pushed the Dodgers to the wire, but Los Angeles was able to hang on to send the series to one final game. `\
+https://nytimes.com/athletic/6767948/2025/10/31/dodgers-blue-jays-game-6-world-series/
+
 **Kevin Porter Jr. to miss 4 weeks with right knee injury: What it means for Bucks**\
 `With their starting point guard sidelined, the Bucks will rely on Ryan Rollins, who scored 32 points in Milwaukee's last game.`\
 https://nytimes.com/athletic/6767916/2025/10/31/kevin-porter-jr-injury-bucks-status/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/31/us/snap-food-stamps-aid.html
 **Coach Rhett Lashlee, SMU finalizing two-year contract extension: Source**\
 `Lashlee is 34-15 in four seasons at SMU, including a College Football Playoff appearance last season.`\
 https://nytimes.com/athletic/6767796/2025/10/31/smu-rhett-lashlee-contract-extension/
-
-**Fact-Checking Trump’s Claim About SNAP and Partisanship**\
-`The president said a lapse in SNAP funding would “largely” hurt Democrats. But interruptions to the program will also affect Republicans.`\
-https://nytimes.com/2025/10/31/us/fact-check-trump-snap-food-stamps.html
 

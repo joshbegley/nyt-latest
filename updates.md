@@ -1,3 +1,7 @@
+**Dodgers hold off Blue Jays' ferocious final push to force climactic World Series Game 7**\
+`The Blue Jays pushed the Dodgers to the wire, but Los Angeles was able to hang on to send the series to one final game. `\
+https://nytimes.com/athletic/6767948/2025/10/31/dodgers-blue-jays-game-6-world-series/
+
 **Kevin Porter Jr. to miss 4 weeks with right knee injury: What it means for Bucks**\
 `With their starting point guard sidelined, the Bucks will rely on Ryan Rollins, who scored 32 points in Milwaukee's last game.`\
 https://nytimes.com/athletic/6767916/2025/10/31/kevin-porter-jr-injury-bucks-status/

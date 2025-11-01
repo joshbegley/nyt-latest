@@ -1,3 +1,11 @@
+**Dodgers-Blue Jays Game 6 takeaways: Kiké Hernández, Miguel Rojas combine to force Game 7**\
+`Facing a 3-2 hole, the Dodgers climbed back to force a winner-take-all Game 7, helping ensure their World Series hopes remain alive.`\
+https://nytimes.com/athletic/6767806/2025/10/31/dodgers-blue-jays-world-series-game-6-results-takeaways-mlb/
+
+**Bill Belichick earns first Power 4 win as UNC dominates Syracuse**\
+`UNC's offense finished with 425 total yards in its best outing of the year by a nearly 75-yard margin.`\
+https://nytimes.com/athletic/6767965/2025/10/31/bill-belichick-unc-first-power-4-win-syracuse/
+
 **Dodgers hold off Blue Jays' ferocious final push to force climactic World Series Game 7**\
 `The Blue Jays pushed the Dodgers to the wire, but Los Angeles was able to hang on to send the series to one final game. `\
 https://nytimes.com/athletic/6767948/2025/10/31/dodgers-blue-jays-game-6-world-series/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/31/crosswords/daily-puzzle-2025-11-01.html
 **White House Limits Reporters’ Access to Press Secretary’s Office**\
 `The move broke from generations of precedent and added to the Trump administration’s growing list of restraints on the news media.`\
 https://nytimes.com/2025/10/31/us/politics/trump-white-house-press.html
-
-**Uncertainty Persists for Americans Waiting for Monthly Food Stamps**\
-`Judges on Friday ordered the federal government to continue providing food assistance during the shutdown. But benefits will still most likely be interrupted.`\
-https://nytimes.com/2025/10/31/us/snap-food-stamps-aid.html
-
-**Coach Rhett Lashlee, SMU finalizing two-year contract extension: Source**\
-`Lashlee is 34-15 in four seasons at SMU, including a College Football Playoff appearance last season.`\
-https://nytimes.com/athletic/6767796/2025/10/31/smu-rhett-lashlee-contract-extension/
 
