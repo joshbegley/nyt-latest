@@ -2,7 +2,7 @@
 `Arsenal are already without Kai Havertz, Gabriel Jesus, Noni Madueke, Martin Odegaard, and Gabriel Martinelli all due to injury issues.`\
 https://nytimes.com/athletic/6768926/2025/11/01/arsenal-gyokeres-injury-news-update-burnley/
 
-**Cardinals QB Jacoby Brissett to start third straight game in place of injured Kyler Murray**\
+**Cardinals QB Jacoby Brissett to start third straight game for Kyler Murray**\
 `The staff will continue to evaluate Murray the next two days to see if the seventh-year quarterback could have a role against Dallas.`\
 https://nytimes.com/athletic/6768995/2025/11/01/cardinals-jacoby-brissett-kyler-murray-cowboys/
 
