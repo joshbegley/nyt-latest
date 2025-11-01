@@ -1,3 +1,7 @@
+**Judge Permanently Bars Trump From Requiring Proof of Citizenship for Voter Registration**\
+`The ruling on Friday found that Trump had usurped the power vested in Congress and the states to administer and oversee elections protocols.`\
+https://nytimes.com/2025/10/31/us/politics/trump-proof-citizenship-voter-registration.html
+
 **What Is Happening With SNAP Benefits During the Shutdown?**\
 `President Trump said that he would heed court rulings ordering his administration to fund food stamps during the government shutdown, but there are complications.`\
 https://nytimes.com/2025/10/31/us/politics/snap-benefits-shutdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6767797/2025/10/31/devils-jacob-markstrom-contract-
 **As the Shutdown Pain Grows, Trump Attends to Other Matters**\
 `The president attended a Halloween party Friday and called attention to the marble renovation of a White House bathroom.`\
 https://nytimes.com/2025/10/31/us/politics/trump-shutdown.html
-
-**Immigration Agents Clash With Chicago-Area Residents on Halloween**\
-`The state’s governor had called for a pause in the federal immigration crackdown over the Halloween weekend, citing concerns for children’s safety.`\
-https://nytimes.com/2025/10/31/us/politics/chicago-ice-immigration-agents.html
 
