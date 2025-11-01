@@ -1,3 +1,7 @@
+**Vieira dismissed by Genoa after winless start to Serie A season**\
+`Vieira, 49, departs the Italian club after 11 months in the role and with his side bottom of the top flight.`\
+https://nytimes.com/athletic/6768382/2025/11/01/patrick-vieira-genoa-sacked/
+
 **How to watch Liverpool vs. Aston Villa for U.S. fans: Reds try to stop their free fall**\
 `Slumping Liverpool has lost four consecutive EPL matches and hosts red-hot Aston Villa, winners of four straight in league play.`\
 https://nytimes.com/athletic/6767029/2025/11/01/liverpool-aston-villa-how-to-watch-us/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/01/magazine/magazine-email/sister-in-law-ethics.html
 **NFL Week 9 roundtable: Trade deadline sellers, Chiefs-Bills, and QBs return from injury**\
 `Chiefs-Bills and Broncos-Texans are among Sunday's most interesting games as the trade deadline inches closer.`\
 https://nytimes.com/athletic/6767595/2025/11/01/nfl-week-9-trade-deadline-bills-chiefs/
-
-**Spurned by Trump, Carney Begins Thawing Canada’s China Connection**\
-`The meeting between Prime Minister Mark Carney and Xi Jinping, China’s top leader, came after a long period of tension and estrangement.`\
-https://nytimes.com/2025/11/01/world/canada/canada-china-carney-xi.html
 
