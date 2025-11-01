@@ -1,3 +1,11 @@
+**How to watch Hurricanes vs. Bruins: Time, TV, streaming**\
+`Find out how to watch the Carolina Hurricanes play the Boston Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6768432/2025/11/01/hurricanes-vs-bruins-stream-how-to-watch-nov-1/
+
+**Quality Time**\
+`Daylight saving time ends tomorrow. The decrease in daylight can be destabilizing — and clarifying.`\
+https://nytimes.com/2025/11/01/briefing/quality-time.html
+
 **Vieira departs Genoa after winless start to Serie A season**\
 `Vieira, 49, departs the Italian club after 11 months in the role and with his side bottom of the top flight.`\
 https://nytimes.com/athletic/6768382/2025/11/01/patrick-vieira-genoa-sacked/

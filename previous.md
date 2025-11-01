@@ -1,3 +1,11 @@
+**How to watch Hurricanes vs. Bruins: Time, TV, streaming**\
+`Find out how to watch the Carolina Hurricanes play the Boston Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6768432/2025/11/01/hurricanes-vs-bruins-stream-how-to-watch-nov-1/
+
+**Quality Time**\
+`Daylight saving time ends tomorrow. The decrease in daylight can be destabilizing — and clarifying.`\
+https://nytimes.com/2025/11/01/briefing/quality-time.html
+
 **Vieira departs Genoa after winless start to Serie A season**\
 `Vieira, 49, departs the Italian club after 11 months in the role and with his side bottom of the top flight.`\
 https://nytimes.com/athletic/6768382/2025/11/01/patrick-vieira-genoa-sacked/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6768074/2025/11/01/celtics-win-76ers-josh-minott-im
 **Vikings-Lions predictions: What we're watching for in J.J. McCarthy's return**\
 `Even with the expected return of quarterback J.J. McCarthy, the Vikings will be hard pressed to beat the Lions in Detroit.`\
 https://nytimes.com/athletic/6767107/2025/11/01/vikings-lions-predictions-jj-mccarthy/
-
-**How Should I Deal With My Horrendous Sister-in-Law?**\
-`No one calls her out for her deceitful, violent, abusive behavior.`\
-https://nytimes.com/2025/11/01/magazine/magazine-email/sister-in-law-ethics.html
-
-**NFL Week 9 roundtable: Trade deadline sellers, Chiefs-Bills, and QBs return from injury**\
-`Chiefs-Bills and Broncos-Texans are among Sunday's most interesting games as the trade deadline inches closer.`\
-https://nytimes.com/athletic/6767595/2025/11/01/nfl-week-9-trade-deadline-bills-chiefs/
 
