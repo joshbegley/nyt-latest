@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6769120/2025/11/01/devils-vs-kings-stream-how-to-wa
 `The battered and broken Nittany Lions lost their fifth straight and still haven't beaten a power-conference opponent.`\
 https://nytimes.com/athletic/6769008/2025/11/01/ohio-state-penn-state-score-result/
 
-**Obama Calls Mamdani to Praise His Campaign, Offers to Be Sounding Board**\
+**Obama Calls Mamdani to Praise His Campaign and Offers to Be Sounding Board**\
 `Former President Barack Obama told Zohran Mamdani “your campaign has been impressive to watch,” and suggested that he was invested in Mr. Mamdani’s success beyond the election.`\
 https://nytimes.com/2025/11/01/nyregion/zohran-mamdani-barack-obama-election.html
 

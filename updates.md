@@ -1,3 +1,7 @@
+**Obama Calls Mamdani to Praise His Campaign and Offers to Be Sounding Board**\
+`Former President Barack Obama told Zohran Mamdani “your campaign has been impressive to watch,” and suggested that he was invested in Mr. Mamdani’s success beyond the election.`\
+https://nytimes.com/2025/11/01/nyregion/zohran-mamdani-barack-obama-election.html
+
 **Texas keeps Playoff hopes alive as Arch Manning, Horns survive late scare vs. Vanderbilt**\
 `Manning returns from concussion protocol to lead Texas to a 34-31 win over Vanderbilt.`\
 https://nytimes.com/athletic/6769022/2025/11/01/texas-vanderbilt-score-result-takeaway-college-football/
