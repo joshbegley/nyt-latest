@@ -1,6 +1,6 @@
 **North Texas topples previously unbeaten Navy 31-17, tightens AAC race**\
 `A week after UNT’s Drew Mestemaker passed for a conference record 608 yards, the Mean Green used their running game to take down Navy.`\
-https://nytimes.com/athletic/6769114/2025/11/01/north-texas-takes-down-previously-unbeaten-navy-tightens-american-athletic-conference-standings/
+https://nytimes.com/athletic/6769114/2025/11/01/north-texas-navy-score-result-american-conference/
 
 **SMU knocks off No. 10 Miami in OT to put Hurricanes' CFP hopes in peril**\
 `The win was SMU's first against an AP top-10 team since the Jan. 1, 1983 Sugar Bowl against Pitt and first at home since 1974.`\
