@@ -1,3 +1,7 @@
+**Vieira departs Genoa after winless start to Serie A season**\
+`Vieira, 49, departs the Italian club after 11 months in the role and with his side bottom of the top flight.`\
+https://nytimes.com/athletic/6768382/2025/11/01/patrick-vieira-genoa-sacked/
+
 **Vieira dismissed by Genoa after winless start to Serie A season**\
 `Vieira, 49, departs the Italian club after 11 months in the role and with his side bottom of the top flight.`\
 https://nytimes.com/athletic/6768382/2025/11/01/patrick-vieira-genoa-sacked/
