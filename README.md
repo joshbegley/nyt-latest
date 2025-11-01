@@ -1,3 +1,7 @@
+**Liverpool 2 Aston Villa 0 - Salah's 250: is he their greatest modern player? How did Emery's plan backfire?**\
+`Analysis of Liverpool's Premier League victory over Aston Villa`\
+https://nytimes.com/athletic/6756852/2025/11/01/liverpool-aston-villa-salah-highlights/
+
 **Dabo calls fourth-down PI in Clemson's loss to Duke 'one of the worst calls'**\
 `Given new life by a late penalty, Duke snapped a 15-game losing streak at Clemson that dates back to 1980.`\
 https://nytimes.com/athletic/6769271/2025/11/01/dabo-swinney-clemson-duke-pass-interference-penalty/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/01/sports/tennis/wta-finals-doubles-routliffe-dabrow
 **Pereira labels Wolves' defeat at Fulham 'the worst performance' of his tenure**\
 `Pereira’s side lost 3-0 and had defender Emmanuel Agbadou sent off in the first half.`\
 https://nytimes.com/athletic/6769222/2025/11/01/vitor-pereira-wolves-fulham/
-
-**When the Women Played Five Sets at the WTA Finals**\
-`In a push for prize money equal to the men, the tour for 15 years made its format more taxing. ‘We wanted the world to know that we weren’t wilting flowers,’ Martina Navratilova said.`\
-https://nytimes.com/2025/11/01/sports/tennis/wta-five-sets-equal-pay.html
 
