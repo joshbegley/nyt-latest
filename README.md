@@ -1,3 +1,7 @@
+**‘Best game structure-wise’: How the Bruins executed their non-negotiable blueprint**\
+`The Bruins finally look legit, and it's because of how they defended in a 2-1 win over the Hurricanes.`\
+https://nytimes.com/athletic/6769270/2025/11/01/bruins-hurricanes-charlie-mcavoy-casey-mittelstadt/
+
 **Trump Administration Must Make Food Stamp Payments Within Days, Judge Says**\
 `The written order came one day after a court told the Trump administration it must pay benefits in the program known as SNAP during the shutdown.`\
 https://nytimes.com/2025/11/01/us/politics/trump-food-stamp-payments.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6768942/2025/11/01/college-football-fans-frustrated
 **North Texas topples previously unbeaten Navy 31-17, tightens AAC race**\
 `A week after UNT’s Drew Mestemaker passed for a conference record 608 yards, the Mean Green used their running game to take down Navy.`\
 https://nytimes.com/athletic/6769114/2025/11/01/north-texas-navy-score-result-american-conference/
-
-**SMU knocks off No. 10 Miami in OT to put Hurricanes' CFP hopes in peril**\
-`The win was SMU's first against an AP top-10 team since the Jan. 1, 1983 Sugar Bowl against Pitt and first at home since 1974.`\
-https://nytimes.com/athletic/6769189/2025/11/01/smu-miami-score-result-acc-playoff/
 
