@@ -1,3 +1,7 @@
+**Devils, Jacob Markström agree to 2-year, $6 million AAV extension**\
+`The 35-year-old Swede has an .830 save percentage and 5.13 goals-against average in four games this season.`\
+https://nytimes.com/athletic/6767797/2025/10/31/devils-jacob-markstrom-contract-extension/
+
 **As the Shutdown Pain Grows, Trump Attends to Other Matters**\
 `The president attended a Halloween party Friday and called attention to the marble renovation of a White House bathroom.`\
 https://nytimes.com/2025/10/31/us/politics/trump-shutdown.html
