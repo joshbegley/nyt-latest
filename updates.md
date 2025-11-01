@@ -1,3 +1,11 @@
+**Dodgers-Blue Jays Game 6 takeaways: Kiké Hernández, Miguel Rojas combine to force Game 7**\
+`Facing a 3-2 hole, the Dodgers climbed back to force a winner-take-all Game 7, helping ensure their World Series hopes remain alive.`\
+https://nytimes.com/athletic/6767806/2025/10/31/dodgers-blue-jays-world-series-game-6-results-takeaways-mlb/
+
+**Bill Belichick gets first Power 4 win as UNC dominates Syracuse**\
+`UNC's offense finished with 425 total yards in its best outing of the year by a nearly 75-yard margin.`\
+https://nytimes.com/athletic/6767965/2025/10/31/bill-belichick-unc-first-power-4-win-syracuse/
+
 **Dodgers hold off Blue Jays' ferocious final push to force climactic World Series Game 7**\
 `The Blue Jays pushed the Dodgers to the wire, but Los Angeles was able to hang on to send the series to one final game. `\
 https://nytimes.com/athletic/6767948/2025/10/31/dodgers-blue-jays-game-6-world-series/
