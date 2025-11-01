@@ -1,3 +1,15 @@
+**Arteta: Arsenal to 'wait and see' on Gyokeres injury in Burnley win**\
+`Arsenal are already without Kai Havertz, Gabriel Jesus, Noni Madueke, Martin Odegaard, and Gabriel Martinelli all due to injury issues.`\
+https://nytimes.com/athletic/6768926/2025/11/01/arsenal-gyokeres-injury-news-update-burnley/
+
+**Cardinals QB Jacoby Brissett to start third straight game for Kyler Murray**\
+`The staff will continue to evaluate Murray the next two days to see if the seventh-year quarterback could have a role against Dallas.`\
+https://nytimes.com/athletic/6768995/2025/11/01/cardinals-jacoby-brissett-kyler-murray-cowboys/
+
+**Petrified Cake, a Cat in Hats: The Wackiest Looks at Heidi Klum’s Halloween**\
+`The model and television presenter, dressed as Medusa, hosted her annual bash, filled with zany costumes.`\
+https://nytimes.com/2025/11/01/style/heidi-klum-halloween-party-photos-costumes.html
+
 **Petrified Cake, A Cat in Hats: Wackiest Looks at Heidi Klum’s Halloween**\
 `The model and television presenter, dressed as Medusa, hosted her annual bash, filled with zany costumes.`\
 https://nytimes.com/2025/11/01/style/heidi-klum-halloween-party-photos-costumes.html

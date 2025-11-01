@@ -1,4 +1,8 @@
-**Cardinals QB Jacoby Brissett to start third straight game in place of injured Kyler Murray**\
+**Arteta: Arsenal to 'wait and see' on Gyokeres injury in Burnley win**\
+`Arsenal are already without Kai Havertz, Gabriel Jesus, Noni Madueke, Martin Odegaard, and Gabriel Martinelli all due to injury issues.`\
+https://nytimes.com/athletic/6768926/2025/11/01/arsenal-gyokeres-injury-news-update-burnley/
+
+**Cardinals QB Jacoby Brissett to start third straight game for Kyler Murray**\
 `The staff will continue to evaluate Murray the next two days to see if the seventh-year quarterback could have a role against Dallas.`\
 https://nytimes.com/athletic/6768995/2025/11/01/cardinals-jacoby-brissett-kyler-murray-cowboys/
 
@@ -10,7 +14,7 @@ https://nytimes.com/2025/11/01/world/europe/france-louvre-heist-arrests.html
 `Amad Diallo's stunning volley denied Dyche a first league win as Forest boss, leaving the 54-year-old deeply frustrated at United's opener.`\
 https://nytimes.com/athletic/6768986/2025/11/01/sean-dyche-change-var-manchester-united/
 
-**Petrified Cake, A Cat in Hats: Wackiest Looks at Heidi Klum’s Halloween**\
+**Petrified Cake, a Cat in Hats: The Wackiest Looks at Heidi Klum’s Halloween**\
 `The model and television presenter, dressed as Medusa, hosted her annual bash, filled with zany costumes.`\
 https://nytimes.com/2025/11/01/style/heidi-klum-halloween-party-photos-costumes.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6768881/2025/11/01/sonia-bompastor-mary-earps-hampt
 **The Briefing – Brighton 3 Leeds 0: How did Dunk nullify Calvert-Lewin? Will Leeds ever score again at the Amex?**\
 `Leeds continued their woeful form at the Amex Stadium. Beren Cross explains where things went wrong for Daniel Farke's side`\
 https://nytimes.com/athletic/6756828/2025/11/01/brighton-3-leeds-0-briefing/
-
-**The Briefing: Nottingham Forest 2 Man Utd 2 – Did Amad's great goal show Amorim's new set-piece threat? Should Casemiro's have stood?**\
-`Analysis of Manchester United's Premier League game away to Nottingham Forest`\
-https://nytimes.com/athletic/6756830/2025/11/01/nottingham-forest-manchester-united-highlights/
 
