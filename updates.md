@@ -1,3 +1,15 @@
+**Tottenham Hotspur vs Chelsea: Season aims, set pieces, views of manager, and prediction**\
+`Tottenham and Chelsea meet on Saturday in the pick of the weekend's Premier League matches – here are the talking points`\
+https://nytimes.com/athletic/6765979/2025/11/01/tottenham-chelsea-preview-prediction-manager/
+
+**Tottenham Hotspur vs Chelsea: Where the game can be won and lost tactically**\
+`Where Saturday's big Premier League encounter could be decided`\
+https://nytimes.com/athletic/6765987/2025/11/01/tottenham-chelsea-tactical-preview/
+
+**The New York Times in Print for Saturday, Nov. 1, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/01/todays-new-york-times
+
 **Tokyo’s Halloween Revelers Aren’t Put Off by Rain**\
 `Neither rain nor strict measures against overcrowding could keep people away from the annual Halloween street party in Shibuya, Tokyo.`\
 https://nytimes.com/card/2025/11/01/world/asia/tokyo-japan-halloween
