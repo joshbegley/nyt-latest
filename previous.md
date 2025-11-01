@@ -1,3 +1,7 @@
+**Putin Brandishes Menacing Nuclear Weapons as Talks With U.S. Falter**\
+`Touting new weapons tests, Moscow signals to Washington that it must contend with the Kremlin’s power and negotiate.`\
+https://nytimes.com/2025/11/01/world/europe/putin-trump-ukraine-russia-nuclear-weapons.html
+
 **There’s a New Work Friend in Town**\
 `And it’s Max Read.`\
 https://nytimes.com/2025/11/01/business/theres-a-new-work-friend-in-town.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/01/style/nyc-marathon-training.html
 **How to Shop for Obamacare When Subsidies Are in Limbo**\
 `Enrollment for A.C.A. health coverage begins Nov. 1, with some staggering price increases. Here is a guide to help you choose a plan while Congress is at an impasse over tax credits.`\
 https://nytimes.com/2025/11/01/health/aca-obamacare-enrollment-health-insurance.html
-
-**Saudi Prince Plans Ambitious U.S. Visit, but Opening Ties With Israel Is Unlikely**\
-`The crown prince of Saudi Arabia is pushing for a security pact and a nuclear deal with the United States yet is not expected to recognize Israel soon, despite President Trump’s wishes.`\
-https://nytimes.com/2025/11/01/world/middleeast/mohammed-bin-salman-us-visit.html
 

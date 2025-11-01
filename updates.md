@@ -1,3 +1,7 @@
+**Putin Brandishes Menacing Nuclear Weapons as Talks With U.S. Falter**\
+`Touting new weapons tests, Moscow signals to Washington that it must contend with the Kremlin’s power and negotiate.`\
+https://nytimes.com/2025/11/01/world/europe/putin-trump-ukraine-russia-nuclear-weapons.html
+
 **There’s a New Work Friend in Town**\
 `And it’s Max Read.`\
 https://nytimes.com/2025/11/01/business/theres-a-new-work-friend-in-town.html
