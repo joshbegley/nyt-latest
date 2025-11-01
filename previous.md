@@ -1,3 +1,7 @@
+**Texas keeps Playoff hopes alive as Arch Manning, Horns survive late scare vs. Vanderbilt**\
+`Manning returns from concussion protocol to lead Texas to a 34-31 win over Vanderbilt.`\
+https://nytimes.com/athletic/6769022/2025/11/01/texas-vanderbilt-score-result-takeaway-college-football/
+
 **The Briefing: Tottenham 0 Chelsea 1 - Can Spurs solve their attacking bluntness? How impressive was Moises Caicedo?**\
 `The Athletic's writers analyse Saturday evening's derby between Spurs and Chelsea in north London`\
 https://nytimes.com/athletic/6756851/2025/11/01/tottenham-chelsea-premier-league-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6768926/2025/11/01/arsenal-gyokeres-injury-news-upd
 **Cardinals QB Jacoby Brissett to start third straight game for Kyler Murray**\
 `The staff will continue to evaluate Murray the next two days to see if the seventh-year quarterback could have a role against Dallas.`\
 https://nytimes.com/athletic/6768995/2025/11/01/cardinals-jacoby-brissett-kyler-murray-cowboys/
-
-**Two More Suspects Charged in Louvre Heist Case**\
-`In addition to the two main suspects, who partially admitted to the robbery, two others have been charged by the Paris prosecutor overseeing the case.`\
-https://nytimes.com/2025/11/01/world/europe/france-louvre-heist-arrests.html
 

@@ -1,3 +1,7 @@
+**Texas keeps Playoff hopes alive as Arch Manning, Horns survive late scare vs. Vanderbilt**\
+`Manning returns from concussion protocol to lead Texas to a 34-31 win over Vanderbilt.`\
+https://nytimes.com/athletic/6769022/2025/11/01/texas-vanderbilt-score-result-takeaway-college-football/
+
 **The Briefing: Tottenham 0 Chelsea 1 - Can Spurs solve their attacking bluntness? How impressive was Moises Caicedo?**\
 `The Athletic's writers analyse Saturday evening's derby between Spurs and Chelsea in north London`\
 https://nytimes.com/athletic/6756851/2025/11/01/tottenham-chelsea-premier-league-analysis/
