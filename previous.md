@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By Michael Gold`\
+https://nytimes.com/live/2025/11/01/nyregion/nyc-mayor-election-news/heres-the-latest
+
 **Suns show improvement while waiting for Jalen Green and Dillon Brooks to get healthy**\
 `The Suns may struggle all year, but until Jalen Green and Dillon Brooks return to the lineup, they deserve a little time.`\
 https://nytimes.com/athletic/6768144/2025/11/01/phoenix-suns-devin-booker-utah-jazz-jalen-green-dillon-brooks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6767590/2025/11/01/columbus-blue-jackets-bottom-six
 **Can Paul Atkins ‘Make I.P.O.s Great Again’?**\
 `The chair of the Securities and Exchange Commission has a plan to reverse the decline in public listings. His critics say he’s taking swings at the wrong target.`\
 https://nytimes.com/2025/11/01/business/dealbook/paul-atkins-ipos.html
-
-**'Pretty epic ending there': How a wild 9th inning kept Dodgers alive for a Game 7**\
-`The Blue Jays didn't advance this far by playing it safe. That was the mindset of their clubhouse after the loss.`\
-https://nytimes.com/athletic/6767984/2025/11/01/blue-jays-dodgers-world-series-game-6-game-ending-play/
 

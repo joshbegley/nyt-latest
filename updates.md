@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By Michael Gold`\
+https://nytimes.com/live/2025/11/01/nyregion/nyc-mayor-election-news/heres-the-latest
+
 **Suns show improvement while waiting for Jalen Green and Dillon Brooks to get healthy**\
 `The Suns may struggle all year, but until Jalen Green and Dillon Brooks return to the lineup, they deserve a little time.`\
 https://nytimes.com/athletic/6768144/2025/11/01/phoenix-suns-devin-booker-utah-jazz-jalen-green-dillon-brooks/
