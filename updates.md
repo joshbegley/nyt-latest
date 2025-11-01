@@ -1,3 +1,11 @@
+**Marcyliena Morgan, Founder of Harvard’s Hip-Hop Archive, Dies at 75**\
+`Her university’s vast collection of albums, scholarly essays and other ephemera helped establish rap as a course of serious study on a par with classical music.`\
+https://nytimes.com/2025/11/01/arts/music/marcyliena-morgan-dead.html
+
+**Notre Dame pulls away late to win at Boston College, stay in Playoff race: Key takeaways**\
+`Notre Dame did enough to put away Boston College on Saturday but also made plenty of mistakes.`\
+https://nytimes.com/athletic/6769288/2025/11/01/notre-dame-boston-college-score-result/
+
 **Notre Dame pulls away late to win at Boston College, stay in Playoff race: Key takeaways**\
 `Notre Dame did enough to put away Boston College on Saturday, but also made plenty of mistakes.`\
 https://nytimes.com/athletic/6769288/2025/11/01/notre-dame-boston-college-score-result/
