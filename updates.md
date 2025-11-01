@@ -1,3 +1,7 @@
+**Kevin Porter Jr. to miss 4 weeks with right knee injury: What it means for Bucks**\
+`With their starting point guard sidelined, the Bucks will rely on Ryan Rollins, who scored 32 points in Milwaukee's last game.`\
+https://nytimes.com/athletic/6767916/2025/10/31/kevin-porter-jr-injury-bucks-status/
+
 **Josh Giddey, Bulls clinch franchise's best start to season since MJ era**\
 `Led by their rising 23-year-old star, the Bulls, who were expected to be a lottery team this season, are off to their best start since 1996.`\
 https://nytimes.com/athletic/6767855/2025/10/31/chicago-bulls-record-undefeated-josh-giddey/
