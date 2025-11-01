@@ -1,6 +1,10 @@
+**YouTube TV subscribers frustrated over absence of ESPN college football programming**\
+`ESPN and YouTubeTV contract dispute leaves college football unavailable on YouTube TV, much to the chagrin of the fans. `\
+https://nytimes.com/athletic/6768942/2025/11/01/college-football-fans-frustrated-youtube-tv-espn-deal/
+
 **North Texas topples previously unbeaten Navy 31-17, tightens AAC race**\
 `A week after UNT’s Drew Mestemaker passed for a conference record 608 yards, the Mean Green used their running game to take down Navy.`\
-https://nytimes.com/athletic/6769114/2025/11/01/north-texas-takes-down-previously-unbeaten-navy-tightens-american-athletic-conference-standings/
+https://nytimes.com/athletic/6769114/2025/11/01/north-texas-navy-score-result-american-conference/
 
 **SMU knocks off No. 10 Miami in OT to put Hurricanes' CFP hopes in peril**\
 `The win was SMU's first against an AP top-10 team since the Jan. 1, 1983 Sugar Bowl against Pitt and first at home since 1974.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6769122/2025/11/01/blackhawks-vs-oilers-stream-how-
 **How to watch Devils vs. Kings: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the Los Angeles Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6769120/2025/11/01/devils-vs-kings-stream-how-to-watch-nov-1/
-
-**Ohio State turns on the boosters to coast past reeling Penn State**\
-`The battered and broken Nittany Lions lost their fifth straight and still haven't beaten a power-conference opponent.`\
-https://nytimes.com/athletic/6769008/2025/11/01/ohio-state-penn-state-score-result/
 

@@ -1,3 +1,11 @@
+**YouTube TV subscribers frustrated over absence of ESPN college football programming**\
+`ESPN and YouTubeTV contract dispute leaves college football unavailable on YouTube TV, much to the chagrin of the fans. `\
+https://nytimes.com/athletic/6768942/2025/11/01/college-football-fans-frustrated-youtube-tv-espn-deal/
+
+**North Texas topples previously unbeaten Navy 31-17, tightens AAC race**\
+`A week after UNT’s Drew Mestemaker passed for a conference record 608 yards, the Mean Green used their running game to take down Navy.`\
+https://nytimes.com/athletic/6769114/2025/11/01/north-texas-navy-score-result-american-conference/
+
 **North Texas topples previously unbeaten Navy 31-17, tightens AAC race**\
 `A week after UNT’s Drew Mestemaker passed for a conference record 608 yards, the Mean Green used their running game to take down Navy.`\
 https://nytimes.com/athletic/6769114/2025/11/01/north-texas-takes-down-previously-unbeaten-navy-tightens-american-athletic-conference-standings/
