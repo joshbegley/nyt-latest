@@ -1,3 +1,11 @@
+**Nottingham Forest 2 Man Utd 2 - Did Amad's great goal show Amorim's new set-piece threat? Should Casemiro's have stood?**\
+`Analysis of Manchester United's Premier League game away to Nottingham Forest`\
+https://nytimes.com/athletic/6756830/2025/11/01/nottingham-forest-manchester-united-highlights/
+
+**The Briefing: Burnley 0 Arsenal 2 - Was this Gyokeres' best display so far? Are Declan Rice's corners increasingly undefendable?**\
+`James McNicholas analyses a comfortable win for Arsenal at Turf Moor on Saturday  `\
+https://nytimes.com/athletic/6756829/2025/11/01/burnley-arsenal-premier-league-analysis/
+
 **What the Air You Breathe May Be Doing to Your Brain**\
 `Studies increasingly find links between higher concentrations of certain pollutants and the prevalence of dementia.`\
 https://nytimes.com/2025/11/01/health/alzheimers-dementia-air-pollution.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6768862/2025/11/01/rockets-vs-celtics-stream-how-to
 **How to watch Canucks vs. Wild: Time, TV, streaming**\
 `Find out how to watch the Vancouver Canucks play the Minnesota Wild, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6768859/2025/11/01/canucks-vs-wild-stream-how-to-watch-nov-1/
-
-**How to watch Senators vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the Ottawa Senators play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6768857/2025/11/01/senators-vs-canadiens-stream-how-to-watch-nov-1/
-
-**How to watch Maple Leafs vs. Flyers: Time, TV, streaming**\
-`Find out how to watch the Toronto Maple Leafs play the Philadelphia Flyers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6768855/2025/11/01/maple-leafs-vs-flyers-stream-how-to-watch-nov-1/
 
