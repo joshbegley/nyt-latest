@@ -1,3 +1,7 @@
+**Obama Calls Mamdani to Praise His Campaign, Offers to Be Sounding Board**\
+`Former President Barack Obama told Zohran Mamdani “your campaign has been impressive to watch,” and suggested that he was invested in Mr. Mamdani’s success beyond the election.`\
+https://nytimes.com/2025/11/01/nyregion/zohran-mamdani-barack-obama-election.html
+
 **Arteta: Arsenal to 'wait and see' on Gyokeres injury in Burnley win**\
 `Arsenal are already without Kai Havertz, Gabriel Jesus, Noni Madueke, Martin Odegaard, and Gabriel Martinelli all due to injury issues.`\
 https://nytimes.com/athletic/6768926/2025/11/01/arsenal-gyokeres-injury-news-update-burnley/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/11/01/nyregion/nyc-mayor-election-news/al-sharpton
 **Bompastor accuses Earps of disrespect over Hampton, Wiegman comments**\
 `Writing in her new autobiography, Earps criticised Hampton's behaviour and the way in which Wiegman dropped her as England goalkeeper.`\
 https://nytimes.com/athletic/6768881/2025/11/01/sonia-bompastor-mary-earps-hampton-wiegman/
-
-**The Briefing – Brighton 3 Leeds 0: How did Dunk nullify Calvert-Lewin? Will Leeds ever score again at the Amex?**\
-`Leeds continued their woeful form at the Amex Stadium. Beren Cross explains where things went wrong for Daniel Farke's side`\
-https://nytimes.com/athletic/6756828/2025/11/01/brighton-3-leeds-0-briefing/
 
