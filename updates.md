@@ -1,3 +1,7 @@
+**'Pretty epic ending there': How a wild 9th inning kept Dodgers alive for a Game 7**\
+`The Blue Jays didn't advance this far by playing it safe. That was the mindset of their clubhouse after the loss.`\
+https://nytimes.com/athletic/6767984/2025/11/01/blue-jays-dodgers-world-series-game-6-game-ending-play/
+
 **What's it like to umpire Game 7 of the World Series? We asked an expert**\
 `Dale Scott was a big-league umpire for 32 years, where he worked three World Series, including Game 7 of the 2001 Fall Classic.`\
 https://nytimes.com/athletic/6768050/2025/11/01/world-series-game-7-umpire/
