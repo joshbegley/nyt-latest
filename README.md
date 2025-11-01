@@ -1,3 +1,11 @@
+**Iowa State's Benjamin Brahmer carted off, taken to hospital after collapsing on field**\
+`Brahmer was unable to corral a pass from Rocco Becht when Arizona State defensive back Keith Abney drilled him in the fourth quarter.`\
+https://nytimes.com/athletic/6769259/2025/11/01/iowa-state-benjamin-brahmer-injury-arizona-state/
+
+**'Not a big problem': Frank relaxed despite Spence and van de Ven snub**\
+`Frank appeared to try to stop the defenders but the duo ignored him and headed off the pitch.`\
+https://nytimes.com/athletic/6769315/2025/11/01/thomas-frank-tottenham-van-de-van-spence/
+
 **‘Best game structure-wise’: How the Bruins executed their non-negotiable blueprint**\
 `The Bruins finally look legit, and it's because of how they defended in a 2-1 win over the Hurricanes.`\
 https://nytimes.com/athletic/6769270/2025/11/01/bruins-hurricanes-charlie-mcavoy-casey-mittelstadt/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/01/sports/tennis/wta-five-sets-equal-pay.html
 **Vladimir Guerrero Jr. wears Marie-Philip Poulin Team Canada jersey ahead of World Series Game 7**\
 `The Blue Jays first baseman walked into Saturday's winner-take-all World Series finale with a nod to Canada's most clutch athlete ever.`\
 https://nytimes.com/athletic/6769194/2025/11/01/vladimir-guerrero-jr-marie-philip-poulin-team-canada-jersey/
-
-**YouTube TV subscribers frustrated over absence of ESPN college football programming**\
-`ESPN and YouTubeTV contract dispute leaves college football unavailable on YouTube TV, much to the chagrin of the fans. `\
-https://nytimes.com/athletic/6768942/2025/11/01/college-football-fans-frustrated-youtube-tv-espn-deal/
-
-**North Texas topples previously unbeaten Navy 31-17, tightens AAC race**\
-`A week after UNT’s Drew Mestemaker passed for a conference record 608 yards, the Mean Green used their running game to take down Navy.`\
-https://nytimes.com/athletic/6769114/2025/11/01/north-texas-navy-score-result-american-conference/
 
