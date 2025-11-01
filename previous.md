@@ -1,3 +1,7 @@
+**Shohei's Dodgers favored in World Series Game 7 against Blue Jays**\
+`After forcing a Game 7 on the road, the Dodgers are favored to win the winner-take-all finale in Toronto.`\
+https://nytimes.com/athletic/6768039/2025/11/01/world-series-game-7-odds-ohtani-dodgers-blue-jays/
+
 **Juan Ramón Matta Ballesteros, 80, Dies; Cartel Kingpin Fed Cocaine Boom**\
 `Before being imprisoned in the late 1980s, he made a fortune as a Honduran power broker connecting Colombian and Mexican cartels.`\
 https://nytimes.com/2025/11/01/world/americas/juan-ramon-matta-ballesteros-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/11/01/nyregion/nyc-mayor-election-news/cuomo-was-c
 **On the Halloween Trail, Mamdani and Sliwa Encounter Revelers Dressed as Them**\
 `For the candidates, the holiday was yet another campaigning opportunity.`\
 https://nytimes.com/2025/11/01/nyregion/mamdani-sliwa-halloween-nyc-costumes.html
-
-**Can South Korea Manage the Competing Needs of the U.S. and China?**\
-`The country’s new president rolled out the red carpet for China’s leader, Xi Jinping, and President Trump this week, but the superpower rivalry is making it harder to balance relations.`\
-https://nytimes.com/2025/11/01/world/asia/south-korea-china-us.html
 
