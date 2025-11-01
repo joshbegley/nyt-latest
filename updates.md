@@ -1,3 +1,11 @@
+**What the Air You Breathe May Be Doing to Your Brain**\
+`Studies increasingly find links between higher concentrations of certain pollutants and the prevalence of dementia.`\
+https://nytimes.com/2025/11/01/health/alzheimers-dementia-air-pollution.html
+
+**Rabbi Alvin Kass, N.Y.P.D. Chaplain for Nearly Six Decades, Dies at 89**\
+`The youngest and longest-serving chaplain in New York City history, he was also the first Jewish chief chaplain in the modern era.`\
+https://nytimes.com/2025/11/01/nyregion/rabbi-alvin-kass-dead.html
+
 **How to watch Warriors vs. Pacers: Time, TV, streaming**\
 `Find out how to watch the Golden State Warriors play the Indiana Pacers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6768869/2025/11/01/warriors-vs-pacers-stream-how-to-watch-nov-1/
