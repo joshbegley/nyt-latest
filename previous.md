@@ -1,3 +1,7 @@
+**Juan Ramón Matta Ballesteros, 80, Dies; Cartel Kingpin Fed Cocaine Boom**\
+`Before being imprisoned in the late 1980s, he made a fortune as a Honduran power broker connecting Colombian and Mexican cartels.`\
+https://nytimes.com/2025/11/01/world/americas/juan-ramon-matta-ballesteros-dead.html
+
 **Cuomo Says Diversity Can Be a ‘Strength’ and a ‘Weakness’ in Interview**\
 `Andrew M. Cuomo, after saying he “unequivocally” condemned Islamophobic comments directed at Zohran Mamdani, told MSNBC that “antipathy among groups” could create “friction.”`\
 https://nytimes.com/2025/11/01/nyregion/cuomo-interview-islamophobia-diversity-mamdani.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/01/nyregion/mamdani-sliwa-halloween-nyc-costumes.htm
 **Can South Korea Manage the Competing Needs of the U.S. and China?**\
 `The country’s new president rolled out the red carpet for China’s leader, Xi Jinping, and President Trump this week, but the superpower rivalry is making it harder to balance relations.`\
 https://nytimes.com/2025/11/01/world/asia/south-korea-china-us.html
-
-**The Pulse: Why Game 7 could be iconic**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6768085/2025/11/01/an-epic-game-7-of-the-world-series-inside-one-of-the-41-biggest-games-ever/
 

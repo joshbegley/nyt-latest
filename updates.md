@@ -1,3 +1,7 @@
+**Juan Ramón Matta Ballesteros, 80, Dies; Cartel Kingpin Fed Cocaine Boom**\
+`Before being imprisoned in the late 1980s, he made a fortune as a Honduran power broker connecting Colombian and Mexican cartels.`\
+https://nytimes.com/2025/11/01/world/americas/juan-ramon-matta-ballesteros-dead.html
+
 **Cuomo Says Diversity Can Be a ‘Strength’ and a ‘Weakness’ in Interview**\
 `Andrew M. Cuomo, after saying he “unequivocally” condemned Islamophobic comments directed at Zohran Mamdani, told MSNBC that “antipathy among groups” could create “friction.”`\
 https://nytimes.com/2025/11/01/nyregion/cuomo-interview-islamophobia-diversity-mamdani.html
