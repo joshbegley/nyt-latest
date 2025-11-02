@@ -1,3 +1,11 @@
+**Rangers win third straight for first time in nearly a year, plus 10 observations**\
+`New York has stumbled on home ice thus far but proved itself a road warrior with a third consecutive win Saturday night to cap a long trip.`\
+https://nytimes.com/athletic/6769999/2025/11/02/new-york-rangers-win-third-straight/
+
+**Miguel Rojas cements place in Dodgers' history: 'Biggest hit he's ever had in his life'**\
+`Clayton Kershaw said of the surprise hero: 'Just another guy going above and beyond to help us win a World Series.'`\
+https://nytimes.com/athletic/6770181/2025/11/02/dodgers-world-series-miguel-rojas-home-run/
+
 **Why Oklahoma could stick around in the Playoff race — even with another loss**\
 `Oklahoma has one of the nation's toughest schedules, and its win at Tennessee on Saturday could make it an interesting Playoff test case.`\
 https://nytimes.com/athletic/6770108/2025/11/02/oklahoma-college-football-playoff-chances-tennessee/
