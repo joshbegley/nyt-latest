@@ -1,3 +1,7 @@
+**Sunday Sauce**\
+`In many Italian American households, Sunday means there’s red sauce simmering all day on the stove. Here’s how to make Sunday sauce.`\
+https://nytimes.com/video/dining/100000010366558/sunday-sauce.html
+
 **‘S.N.L.’ Holds Its Own Debate of New York City Mayoral Hopefuls**\
 `Andrew Cuomo (Miles Teller, the host), duked it out with Zohran Mamdani (Ramy Youssef) and Curtis Sliwa (Shane Gillis). George Santos was back with a confession.`\
 https://nytimes.com/2025/11/02/arts/television/snl-debate-nyc-mayoral-hopefuls.html
