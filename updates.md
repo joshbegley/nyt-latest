@@ -1,3 +1,7 @@
+**Two new crossing points for pedestrians in Manhattan and Brooklyn.**\
+`By Jennie Coughlin`\
+https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/two-new-crossing-points-for-pedestrians-in-manhattan-and-brooklyn
+
 **Marcel Hug wins a record 7th New York City Marathon men’s wheelchair race.**\
 `Known as the Silver Bullet, he led from start to finish.`\
 https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/marcel-hug-wins-a-record-7th-new-york-city-marathon-mens-wheelchair-race

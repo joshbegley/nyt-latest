@@ -1,3 +1,7 @@
+**Two new crossing points for pedestrians in Manhattan and Brooklyn.**\
+`By Jennie Coughlin`\
+https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/two-new-crossing-points-for-pedestrians-in-manhattan-and-brooklyn
+
 **Marcel Hug wins a record 7th New York City Marathon men’s wheelchair race.**\
 `Known as the Silver Bullet, he led from start to finish.`\
 https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/marcel-hug-wins-a-record-7th-new-york-city-marathon-mens-wheelchair-race
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/02/opinion/ai-privacy.html
 **Sunday Sauce**\
 `In many Italian American households, Sunday means there’s red sauce simmering all day on the stove. Here’s how to make Sunday sauce.`\
 https://nytimes.com/video/dining/100000010366558/sunday-sauce.html
-
-**Tracking Tropical Storm Kalmaegi**\
-`See the likely path and wind arrival times for Kalmaegi`\
-https://nytimes.com/interactive/2025/11/02/weather/kalmaegi-map-path-tracker.html
 
