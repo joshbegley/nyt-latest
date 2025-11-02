@@ -1,3 +1,15 @@
+**How Chelsea's press smothered Spurs - the perfect illustration of exploiting weakness**\
+`The most impressive thing about Chelsea's press against Tottenham was that they covered the majority of Tottenham's solutions`\
+https://nytimes.com/athletic/6770380/2025/11/02/chelsea-press-tottenham-frank-maresca/
+
+**Aston Villa's all-or-nothing approach is risky and against Liverpool it failed**\
+`Aston Villa are struggling to create clear chances and avoidable errors were punished by Liverpool at Anfield`\
+https://nytimes.com/athletic/6769641/2025/11/02/aston-villa-liverpool-tactics-analysis/
+
+**Nebraska QB Raiola out for season with broken fibula: Source**\
+`Raiola ends his sophomore season with 2,000 yards passing in nine games. True freshman TJ Lateef is expected to take over as starter.`\
+https://nytimes.com/athletic/6771424/2025/11/02/dylan-raiola-injury-nebraska-football/
+
 **Chargers star tackle Joe Alt carted off with ankle injury, ruled questionable**\
 `Alt missed three games earlier this season with a right high ankle sprain.`\
 https://nytimes.com/athletic/6771340/2025/11/02/chargers-joe-alt-injury-leaves-game/
