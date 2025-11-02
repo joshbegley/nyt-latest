@@ -1,3 +1,15 @@
+**Still parts ways with Southampton after 16 games in charge**\
+`Ruben Martinez, Clément Lemaitre and Carl Martin have also left their positions as coaching staff at the club.`\
+https://nytimes.com/athletic/6739294/2025/11/02/will-still-southampton-parts-ways-championship/
+
+**5 Die, Including 3 Children, in Halloween Night House Fire**\
+`The cousin of a state assemblyman, his wife and children died in the fire in Paterson, N.J. Seven other relatives survived the blaze.`\
+https://nytimes.com/2025/11/02/nyregion/halloween-fire-paterson-new-jersey.html
+
+**AP Top 25: Notre Dame back in top 10; Miami plummets to No. 18**\
+`Ohio State, Indiana, Texas A&M, Alabama and Georgia remain atop the AP Top 25 college football poll ahead of the first Playoff rankings.`\
+https://nytimes.com/athletic/6771221/2025/11/02/ap-top-25-cfp-rankings-notre-dame/
+
 **‘Keep Listening’: An Undecided Republican Lawmaker Weighs New Voting Maps**\
 `As redistricting efforts spread across the country, an Indiana state senator said he isn’t sure how he will vote on a plan that President Trump supports.`\
 https://nytimes.com/2025/11/02/us/indiana-redistricting-terre-haute.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/11/02/nyregion/nyc-mayor-election-news/nyc-rabbi-m
 **8 Memorable Looks at the New York City Marathon**\
 `Held on a Halloween weekend, this year’s race had a mother-and-daughter duo dressed as cows, a human-size banana and Ken (without Barbie).`\
 https://nytimes.com/2025/11/02/style/new-york-marathon-fashion.html
-
-**The Briefing - Manchester City 3 Bournemouth 1: Two more goals for Haaland, fast breaks undo Iraola's side**\
-`Manchester City beat Bournemouth 3-1 to go second in the Premier League. Here are the key talking points...`\
-https://nytimes.com/athletic/6761098/2025/11/02/manchester-city-3-bournemouth-1-premier-league-result/
-
-**South Carolina fires offensive coordinator Mike Shula amid 4-game losing streak**\
-`The next full-time offensive coordinator will be Shane Beamer’s fourth in six seasons in Columbia.`\
-https://nytimes.com/athletic/6771092/2025/11/02/mike-shula-fired-south-carolina/
-
-**Auburn fires head coach Hugh Freeze amid Year 3 spiral**\
-`Freeze's time at Auburn was marked by close losses to rivals and elite teams, but also embarrassing home losses.`\
-https://nytimes.com/athletic/6719975/2025/11/02/auburn-fires-hugh-freeze/
 
