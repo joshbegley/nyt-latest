@@ -1,3 +1,19 @@
+**Pereira sacked by Wolves after winless start to Premier League season**\
+`Pereira signed a new contract at the club in September through to 2028`\
+https://nytimes.com/athletic/6637763/2025/11/02/vitor-pereira-wolves-manager-sacked/
+
+**Ohio State's stability goes beyond who calls plays. Win over Jim Knowles, Penn State shows it**\
+`More than even the impact of this season, Saturday's win showed growth in the program Ryan Day is building.`\
+https://nytimes.com/athletic/6769375/2025/11/02/ohio-state-penn-state-jim-knowles-matt-patricia/
+
+**The swing of Will Smith's life powers another World Series title: 'This is special'**\
+`On a team full of superstars, Will Smith keeps a low-profile, but his go-ahead homer took the spotlight in Game 7. `\
+https://nytimes.com/athletic/6770301/2025/11/02/dodgers-world-series-will-smith-homer/
+
+**‘We ran out of some magic’: Blue Jays’ brilliant season comes to bitter end in World Series**\
+`Vladimir Guerrero Jr. and Bo Bichette made so many memories — but the end of their special season brought pain.`\
+https://nytimes.com/athletic/6770174/2025/11/02/blue-jays-season-end-game-7/
+
 **Gangster. Gutsy. Greatness. Yoshinobu Yamamoto authors a World Series for the ages**\
 `The Dodger pitcher's three-win MVP effort left his teammates astounded throughout the Fall Classic. `\
 https://nytimes.com/athletic/6770420/2025/11/02/yoshinobu-yamamoto-dodgers-world-series-mvp/

@@ -1,9 +1,17 @@
+**Meet Your News Friend, the New Host of The Morning**\
+`Sam Sifton wants readers to know: Everything is going to be all right, and you’re not alone.`\
+https://nytimes.com/2025/11/02/world/02themorning-meet-sam-sifton.html
+
+**How to track your favorite runners.**\
+`By Jennie Coughlin`\
+https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/how-to-track-your-favorite-runners
+
 **Pereira sacked by Wolves after winless start to Premier League season**\
 `Pereira signed a new contract at the club in September through to 2028`\
 https://nytimes.com/athletic/6637763/2025/11/02/vitor-pereira-wolves-manager-sacked/
 
 **Ohio State's stability goes beyond who calls plays. Win over Jim Knowles, Penn State shows it**\
-`More than even the impact of this season, Saturday's win showed growth in the program Ryan Day is building.`\
+`Ohio State is a self-sustaining program that doesn't live or die by one coordinator. That's harder than it looks.`\
 https://nytimes.com/athletic/6769375/2025/11/02/ohio-state-penn-state-jim-knowles-matt-patricia/
 
 **The swing of Will Smith's life powers another World Series title: 'This is special'**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6770028/2025/11/02/world-series-game-7-dodgers-blue
 **Blue Jays fans mourn World Series loss to Dodgers and what could have been**\
 `Fans of "Canada's team" were left devastated after the Blue Jays suffered a heartbreaking loss to the Dodgers in Game 7 of the World Series.`\
 https://nytimes.com/athletic/6770196/2025/11/02/toronto-blue-jays-fans-world-series-loss-dodgers/
-
-**Have Arch Manning and Texas found another gear? Here's what's changed**\
-`The Longhorns offense is suddenly on a roll, as Manning threw for 328 yards and three TDs in the 34-31 win over No. 9 Vanderbilt.`\
-https://nytimes.com/athletic/6770000/2025/11/02/texas-football-arch-manning-vanderbilt/
-
-**Rosenthal: In their path to back-to-back titles, Dodgers showcase passion, perseverance and grit**\
-`Perhaps other teams can’t spend as much money. But they sure can try to emulate the Dodgers’ other qualities.`\
-https://nytimes.com/athletic/6770381/2025/11/02/los-angeles-dodgers-world-series-champions/
 
