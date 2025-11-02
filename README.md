@@ -1,3 +1,7 @@
+**In a Dark Year, Los Angeles Basks in the Dodgers’ Glow**\
+`Scars of wildfires and immigration raids won’t soon fade, but like the city itself, the Dodgers persevered and gave Southern California residents the rally they needed.`\
+https://nytimes.com/2025/11/02/us/los-angeles-celebrates-dodgers.html
+
 **Even for Some Mamdani Supporters, His Thin Résumé Is Cause for Concern**\
 `Many voters struggle with a fundamental question about Zohran Mamdani’s candidacy: Is a 34-year-old state assemblyman ready to lead the nation’s largest city?`\
 https://nytimes.com/2025/11/02/nyregion/mamdani-experience-mayor.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6769201/2025/11/02/liverpool-aston-villa-arne-slot-
 **The futures of Pereira and Wolves seem sadly, grimly inevitable**\
 `How this season ends for Wolves looks simple to predict, but there are precious few easy answers to the biggest questions at Molineux.`\
 https://nytimes.com/athletic/6769576/2025/11/02/vitor-pereira-wolves-future-premier-league/
-
-**What Women Really Want: Work Boundaries**\
-`Discussion of women in the workplace often focuses on flexible hours, but what’s actually needed is shift work — pioneered by the medical profession.`\
-https://nytimes.com/2025/11/02/opinion/women-work-force-flexibility-shifts.html
 
