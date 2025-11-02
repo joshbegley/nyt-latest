@@ -22,8 +22,8 @@ https://nytimes.com/athletic/6771218/2025/11/02/vikings-lions-score-result-takea
 `Given new life by a late penalty, Duke snapped a 15-game losing streak at Clemson that dates back to 1980.`\
 https://nytimes.com/athletic/6769271/2025/11/02/dabo-swinney-clemson-duke-pass-interference-penalty/
 
-**Broncos-Texans takeaways: C.J. Stroud leaves game, Broncos show late-game heroics**\
-`It is becoming a familiar script. Bo Nix struggled early, but found his rhythm in the fourth quarter.`\
+**Broncos' late-game heroics beat Texans; C.J. Stroud suffers concussion**\
+`It is becoming a familiar script. Denver QB Bo Nix struggled early, but found his rhythm in the fourth quarter for an 18-15 win.`\
 https://nytimes.com/athletic/6771025/2025/11/02/broncos-texans-score-result-takeaways-week-9-nfl/
 
 **49ers fear rookie DE Mykel Williams has ACL injury, await tests Monday**\
