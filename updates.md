@@ -1,3 +1,15 @@
+**Panthers RB Rico Dowdle penalized for 'Key & Peele'-inspired TD celebration**\
+`New England's Stefon Diggs did a similar celebration earlier Sunday and was not penalized.`\
+https://nytimes.com/athletic/6771462/2025/11/02/rico-dowdle-penalty-key-and-peele/
+
+**F.D.A. Drug Unit Chief Is Placed on Leave, and Cites a ‘Toxic’ Environment**\
+`The official, Dr. George F. Tidmarsh, a top regulator at the agency, said disagreements over a new program to rapidly approve medications had caused tensions with agency officials.`\
+https://nytimes.com/2025/11/02/health/fda-drug-unit-chief.html
+
+**Packers tight end Tucker Kraft ruled out with leg injury**\
+`The injury came while Kraft was blocking on a Josh Jacobs run, when left guard Sean Rhyan inadvertently stepped on his leg.`\
+https://nytimes.com/athletic/6771414/2025/11/02/tucker-kraft-packers-injury-update/
+
 **A Thrilling Finish to N.Y.C. Marathon as Kenyans Dominate Elite Races**\
 `It was a record-setting day as more than 50,000 athletes packed the streets for the 2025 New York City Marathon. Benson Kipruto and Hellen Obiri triumphed.`\
 https://nytimes.com/2025/11/02/nyregion/nyc-marathon-elite-races-winners-records.html
