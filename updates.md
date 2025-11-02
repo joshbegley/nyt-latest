@@ -1,3 +1,7 @@
+**Panthers-Packers takeaways: Rico Dowdle leads Carolina to upset**\
+`Running back rushed for 130 yards and two touchdowns, including a decisive 19-yard burst that set up the game-winning field goal.`\
+https://nytimes.com/athletic/6771502/2025/11/02/panthers-packers-score-result-takeaways-week-9-nfl/
+
 **Are the Packers pretenders? Did the Steelers expose the Colts? Our experts' Week 9 takeaways**\
 `Also: J.J. McCarthy made a promising return for the Vikings, and the Bears beat the Bengals in one of the season's wildest games.`\
 https://nytimes.com/athletic/6771188/2025/11/02/nfl-takeaways-week-9-scores-results/
