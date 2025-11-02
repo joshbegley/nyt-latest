@@ -1,5 +1,9 @@
+**In rocky start, Shohei Ohtani's delays between innings become point of contention**\
+`Jays manager John Schneider met with umpires to discuss the time Ohtani was receiving between innings.`\
+https://nytimes.com/athletic/6769648/2025/11/01/shohei-ohtani-pitching-game-7-warmup-delay/
+
 **War Powers Law Does Not Apply to Trump’s Boat Strikes, Administration Says**\
-`The stance deepened the idea that a Vietnam-era law, which says congressionally unauthorized deployments into “hostilities” must end after 60 days, does not apply to airstrike campaigns.`\
+`The move deepened the idea that a Vietnam-era law, which says congressionally unauthorized deployments into “hostilities” must end after 60 days, does not apply to airstrike campaigns.`\
 https://nytimes.com/2025/11/01/us/politics/trump-boat-attacks-war-powers.html
 
 **2 Arrested in Britain After Stabbing on Train**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6769535/2025/11/01/breeders-cup-classic-forever-you
 **Dodgers' Tyler Glasnow may be limited in Game 7 due to 'side discomfort': Report**\
 `Fox's Tom Verducci noted that Glasnow, who threw three pitches at the end of Game 6, is dealing with "a little bit of side discomfort."`\
 https://nytimes.com/athletic/6769541/2025/11/01/tyler-glasnow-los-angeles-dodgers-update/
-
-**Marcyliena Morgan, Founder of Harvard’s Hip-Hop Archive, Dies at 75**\
-`Her university’s vast collection of albums, scholarly essays and other ephemera helped establish rap as a course of serious study on a par with classical music.`\
-https://nytimes.com/2025/11/01/arts/music/marcyliena-morgan-dead.html
 
