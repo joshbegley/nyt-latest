@@ -1,3 +1,7 @@
+**Dodgers-Blue Jays Game 7 takeaways: Late-game homers, Yamamoto's MVP effort fuel repeat title**\
+`The Dodgers triumphed once again thanks to game-changing homers and 2 2/3 scoreless innings from the man who won Game 6.`\
+https://nytimes.com/athletic/6769714/2025/11/02/dodgers-blue-jays-world-series-game-7-results-takeaways-mlb/
+
 **Death Toll Rises From Hurricane Melissa as Many Communities Remain Cut off**\
 `Authorities have yet to reach dozens of communities in Jamaica, raising the question of how many people really died in last week’s storm.`\
 https://nytimes.com/2025/11/02/world/americas/jamaica-hurricane-melissa-death-toll.html
