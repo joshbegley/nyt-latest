@@ -1,3 +1,19 @@
+**After crushing World Series defeat, 3 key offseason questions for the Blue Jays**\
+`Questions loom over the futures of Bo Bichette, the starting rotation and the organization's leaders`\
+https://nytimes.com/athletic/6770148/2025/11/02/blue-jays-3-offseason-questions/
+
+**McCullough: Clayton Kershaw rides off into the sunset like he always wanted, as a champion**\
+`Kershaw's final World Series, and final outing, were as storybook as the come. “You can’t script that. You can’t write it up.”`\
+https://nytimes.com/athletic/6770129/2025/11/02/clayton-kershaw-retirement-dodgers-world-series-champion/
+
+**Van Dijk calls Rooney's Liverpool leadership criticism 'lazy'**\
+`Rooney questioned the body language of both Van Dijk and Mohamed Salah following last weekend's 3-2 defeat at Brentford.`\
+https://nytimes.com/athletic/6770491/2025/11/02/virgil-van-dijk-wayne-rooney-liverpool/
+
+**For now, Florida State can keep punting Mike Norvell decision and $55M quandary**\
+`FSU celebrated a dominant win over Wake Forest, but whether it is good enough to justify giving Norvell a seventh year remains uncertain`\
+https://nytimes.com/athletic/6770041/2025/11/02/wake-forest-florida-state-mike-norvell/
+
 **Rangers win third straight for first time in nearly a year, plus 10 observations**\
 `New York has stumbled on home ice thus far but proved itself a road warrior with a third consecutive win Saturday night to cap a long trip.`\
 https://nytimes.com/athletic/6769999/2025/11/02/new-york-rangers-win-third-straight/
