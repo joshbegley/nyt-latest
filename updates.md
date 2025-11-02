@@ -1,3 +1,15 @@
+**Until Saturday: Yet another major hot seat**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6770601/2025/11/02/hugh-freeze-auburn-coaching-carousel-until-saturday/
+
+**How to watch the race from home or on your device.**\
+`(No description)`\
+https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/how-to-watch-the-race-from-home-or-on-your-device
+
+**College Football Playoff 2025 projections: Miami, Vandy chances drop; North Texas rising**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/02/college-football-playoff-bracket-projections-odds/
+
 **How to watch Pelicans vs. Thunder: Time, TV, streaming**\
 `Find out how to watch the New Orleans Pelicans play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6770595/2025/11/02/pelicans-vs-thunder-stream-how-to-watch-nov-2/
