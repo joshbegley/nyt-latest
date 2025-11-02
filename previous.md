@@ -1,3 +1,7 @@
+**India win maiden cricket World Cup after beating South Africa**\
+`The hosts had made the final after beating defending champions Australia, ending their run of 15 consecutive match wins in the tournament.`\
+https://nytimes.com/athletic/6771219/2025/11/02/india-cricket-world-cup-win-women/
+
 **Auburn job profile: What is realistic on The Plains in the new SEC?**\
 `High-level consistency is hard to come by at Auburn. What does that mean for the coaching search ahead?`\
 https://nytimes.com/athletic/6770793/2025/11/02/auburn-football-coaching-search-job-profile/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/02/style/big-stars-at-lacmas-big-night.html
 **Maria Riva, Dietrich Daughter Who Demystified the Legend, Dies at 100**\
 `She was her mother’s handmaiden and aide-de-camp. In 1993, her blockbuster biography told of the awful price she paid.`\
 https://nytimes.com/2025/11/02/arts/television/maria-riva-dead.html
-
-**Close Finish in N.Y.C. Marathon Men’s Race Was One of the Closest Ever**\
-`Some past New York marathons have been extremely tight. Benson Kipruto’s split-second victory was a photo finish.`\
-https://nytimes.com/2025/11/02/nyregion/nyc-marathon-mens-race-close-finish.html
 

@@ -1,3 +1,7 @@
+**India win maiden cricket World Cup after beating South Africa**\
+`The hosts had made the final after beating defending champions Australia, ending their run of 15 consecutive match wins in the tournament.`\
+https://nytimes.com/athletic/6771219/2025/11/02/india-cricket-world-cup-win-women/
+
 **Auburn job profile: What is realistic on The Plains in the new SEC?**\
 `High-level consistency is hard to come by at Auburn. What does that mean for the coaching search ahead?`\
 https://nytimes.com/athletic/6770793/2025/11/02/auburn-football-coaching-search-job-profile/
