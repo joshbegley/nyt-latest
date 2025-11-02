@@ -1,3 +1,19 @@
+**In a Dark Year, Los Angeles Basks in the Dodgers’ Glow**\
+`Scars of wildfires and immigration raids won’t soon fade, but like the city itself, the Dodgers persevered and gave Southern California residents the rally they needed.`\
+https://nytimes.com/2025/11/02/us/los-angeles-celebrates-dodgers.html
+
+**Even for Some Mamdani Supporters, His Thin Résumé Is Cause for Concern**\
+`Many voters struggle with a fundamental question about Zohran Mamdani’s candidacy: Is a 34-year-old state assemblyman ready to lead the nation’s largest city?`\
+https://nytimes.com/2025/11/02/nyregion/mamdani-experience-mayor.html
+
+**‘I Could Hardly Believe I Was About to Run the New York City Marathon’**\
+`A pick-me-up after the race, a chilly fellow traveler in the Village and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/11/02/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/02/crosswords/spelling-bee-forum.html
+
 **This Is the Way You Beat Trump — and Trumpism**\
 `Democrats do not just need to win more people. They also need to win more places.`\
 https://nytimes.com/2025/11/02/opinion/democrats-liberalism-elections-crick.html
