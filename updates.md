@@ -1,3 +1,15 @@
+**Auburn job profile: What is realistic on The Plains in the new SEC?**\
+`High-level consistency is hard to come by at Auburn. What does that mean for the coaching search ahead?`\
+https://nytimes.com/athletic/6770793/2025/11/02/auburn-football-coaching-search-job-profile/
+
+**N.Y.C. rabbi moves off sidelines to condemn Mamdani amid Jewish divide.**\
+`Rabbi Angela Buchdahl of Central Synagogue in Manhattan took issue with Zohran Mamdani’s view of Israel, but said that religious leaders should not be in the endorsement business.`\
+https://nytimes.com/live/2025/11/02/nyregion/nyc-mayor-election-news/nyc-rabbi-moves-off-sidelines-to-condemn-mamdani-amid-jewish-divide
+
+**South Carolina fires offensive coordinator Mike Shula amid 4-game losing streak**\
+`The next full-time offensive coordinator will be Shane Beamer’s fourth in six seasons in Columbia.`\
+https://nytimes.com/athletic/6771092/2025/11/02/mike-shula-fired-south-carolina/
+
 **8 Memorable Looks at the New York City Marathon**\
 `Held on a Halloween weekend, this year’s race had a mother-and-daughter duo dressed as cows, a human-size banana and Ken (without Barbie).`\
 https://nytimes.com/2025/11/02/style/new-york-marathon-fashion.html
