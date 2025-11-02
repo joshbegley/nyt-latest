@@ -1,3 +1,15 @@
+**A Thrilling Finish to N.Y.C. Marathon as Kenyans Dominate Elite Races**\
+`It was a record-setting day as more than 50,000 athletes packed the streets for the 2025 New York City Marathon. Benson Kipruto and Hellen Obiri triumphed.`\
+https://nytimes.com/2025/11/02/nyregion/nyc-marathon-elite-races-winners-records.html
+
+**Packers tight end Tucker Kraft carted to the locker room with leg injury**\
+`The injury came while Kraft was blocking on a Josh Jacobs run, when left guard Sean Rhyan inadvertently stepped on his leg.`\
+https://nytimes.com/athletic/6771414/2025/11/02/tucker-kraft-packers-injury-update/
+
+**Feldman's candidates to replace Hugh Freeze at Auburn: Sumrall? Franklin? Jimbo?**\
+`The Tigers' optimal candidate pool feels like a mixed bag between Group of 6 upstarts and retreads.`\
+https://nytimes.com/athletic/6771348/2025/11/02/auburn-football-coaching-search-candidates/
+
 **He’s planning to run the marathon, and then do two performances in ‘Wicked.’**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/hes-planning-to-run-the-marathon-and-then-do-two-performances-in-wicked
@@ -10,7 +22,7 @@ https://nytimes.com/athletic/6770380/2025/11/02/chelsea-press-tottenham-frank-ma
 `Aston Villa are struggling to create clear chances and avoidable errors were punished by Liverpool at Anfield`\
 https://nytimes.com/athletic/6769641/2025/11/02/aston-villa-liverpool-tactics-analysis/
 
-**Nebraska QB Raiola out for season with broken fibula: Source**\
+**Nebraska QB Raiola out for season with broken fibula**\
 `Raiola ends his sophomore season with 2,000 yards passing in nine games. True freshman TJ Lateef is expected to take over as starter.`\
 https://nytimes.com/athletic/6771424/2025/11/02/dylan-raiola-injury-nebraska-football/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/02/world/middleeast/abuse-case-israeli-soldiers-dism
 **How to watch Heat vs. Lakers: Time, TV, streaming**\
 `Find out how to watch the Miami Heat play the Los Angeles Lakers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6771361/2025/11/02/heat-vs-lakers-stream-how-to-watch-nov-2/
-
-**How to watch Spurs vs. Suns: Time, TV, streaming**\
-`Find out how to watch the San Antonio Spurs play the Phoenix Suns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6771359/2025/11/02/spurs-vs-suns-stream-how-to-watch-nov-2/
-
-**How to watch Red Wings vs. Sharks: Time, TV, streaming**\
-`Find out how to watch the Detroit Red Wings play the San Jose Sharks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6771357/2025/11/02/red-wings-vs-sharks-stream-how-to-watch-nov-2/
-
-**How to watch Devils vs. Ducks: Time, TV, streaming**\
-`Find out how to watch the New Jersey Devils play the Anaheim Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6771352/2025/11/02/devils-vs-ducks-stream-how-to-watch-nov-2/
 

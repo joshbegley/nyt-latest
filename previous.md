@@ -1,3 +1,7 @@
+**He’s planning to run the marathon, and then do two performances in ‘Wicked.’**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/hes-planning-to-run-the-marathon-and-then-do-two-performances-in-wicked
+
 **How Chelsea's press smothered Spurs - the perfect illustration of exploiting weakness**\
 `The most impressive thing about Chelsea's press against Tottenham was that they covered the majority of Tottenham's solutions`\
 https://nytimes.com/athletic/6770380/2025/11/02/chelsea-press-tottenham-frank-maresca/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6771357/2025/11/02/red-wings-vs-sharks-stream-how-t
 **How to watch Devils vs. Ducks: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the Anaheim Ducks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6771352/2025/11/02/devils-vs-ducks-stream-how-to-watch-nov-2/
-
-**A New York marathon tradition: getting your name in The New York Times.**\
-`By Taylor Robinson`\
-https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/a-new-york-marathon-tradition-getting-your-name-in-the-new-york-times
 

@@ -1,3 +1,7 @@
+**He’s planning to run the marathon, and then do two performances in ‘Wicked.’**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/hes-planning-to-run-the-marathon-and-then-do-two-performances-in-wicked
+
 **How Chelsea's press smothered Spurs - the perfect illustration of exploiting weakness**\
 `The most impressive thing about Chelsea's press against Tottenham was that they covered the majority of Tottenham's solutions`\
 https://nytimes.com/athletic/6770380/2025/11/02/chelsea-press-tottenham-frank-maresca/
