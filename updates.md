@@ -1,3 +1,7 @@
+**Joel Embiid's "lewd gesture" against Celtics draws fine from NBA**\
+`The NBA has fined Philadelphia 76ers star center Joel Embiid $50,000 after his "DX Chop" on Friday.`\
+https://nytimes.com/athletic/6771811/2025/11/02/joel-embiid-76ers-fine-dx-chop-celtics-nba/
+
 **Panthers-Packers takeaways: Rico Dowdle leads Carolina to upset**\
 `Running back rushed for 130 yards and two touchdowns, including a decisive 19-yard burst that set up the game-winning field goal.`\
 https://nytimes.com/athletic/6771502/2025/11/02/panthers-packers-score-result-takeaways-week-9-nfl/

@@ -1,3 +1,7 @@
+**Joel Embiid's "lewd gesture" against Celtics draws fine from NBA**\
+`The NBA has fined Philadelphia 76ers star center Joel Embiid $50,000 after his "DX Chop" on Friday.`\
+https://nytimes.com/athletic/6771811/2025/11/02/joel-embiid-76ers-fine-dx-chop-celtics-nba/
+
 **Are the Packers pretenders? Did the Steelers expose the Colts? Our experts' Week 9 takeaways**\
 `Also: J.J. McCarthy made a promising return for the Vikings, and the Bears beat the Bengals in one of the season's wildest games.`\
 https://nytimes.com/athletic/6771188/2025/11/02/nfl-takeaways-week-9-scores-results/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6771136/2025/11/02/colts-steelers-score-result-take
 **Vikings-Lions takeaways: J.J. McCarthy's return sparks Minnesota to win**\
 `QB injects life into a Vikings team that had been reeling, throwing for two touchdowns and running for another. `\
 https://nytimes.com/athletic/6771218/2025/11/02/vikings-lions-score-result-takeaways-week-9-nfl/
-
-**Swinney fined $10,000 for ripping fourth-down PI in loss to Duke: 'One of the worst calls'**\
-`Given new life by a late penalty, Duke snapped a 15-game losing streak at Clemson that dates back to 1980.`\
-https://nytimes.com/athletic/6769271/2025/11/02/dabo-swinney-clemson-duke-pass-interference-penalty/
 
