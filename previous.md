@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6769263/2025/11/02/relentless-arsenal-burnley-rice-
 https://nytimes.com/athletic/6768773/2025/11/02/amad-manchester-united-gamble/
 
 **Yoshinobu Yamamoto wins World Series MVP with historic ironman performance**\
-`Yamamoto came in to pitch the final two innings for the Dodgers, recording one strikeout while giving up just one hit and a walk.`\
+`Yamamoto came in to pitch the final 2 2/3 innings for the Dodgers, one day after he threw 96 pitches and collected the win in Game 6.`\
 https://nytimes.com/athletic/6769980/2025/11/02/yoshinobu-yamamoto-world-series-mvp-dodgers/
 
 **Who is favored to win the 2026 World Series? The answer won't shock you**\
