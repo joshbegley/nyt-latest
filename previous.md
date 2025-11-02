@@ -1,3 +1,11 @@
+**Fire in Northwest Mexico Kills at Least 23**\
+`The fire ripped through a store in Hermosillo, a city in Sonora State. The governor said that minors were among the victims.`\
+https://nytimes.com/2025/11/01/world/americas/mexico-fire-hermosillo-sonora.html
+
+**College Football Playoff 2025 projections: Miami, Vandy chances drop; North Texas rising**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/01/college-football-playoff-bracket-projections-odds/
+
 **Oklahoma tops Tennessee in CFP elimination game behind big kicks, defensive TD**\
 `No. 18 Oklahoma beat No. 14 Tennessee 33-27 on Saturday in what was effectively a College Football Playoff elimination game in Knoxville.`\
 https://nytimes.com/athletic/6769787/2025/11/01/tennessee-oklahoma-score-result-football-playoff/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6769788/2025/11/01/michigan-purdue-score-result/
 **Mavs coach Jason Kidd suggests Kyrie Irving could return from injury before end of 2025**\
 `Until Saturday in Mexico City, the Mavericks were hesitant to put any sort of timetable on Irving's return, which Kidd says may be in 2025.`\
 https://nytimes.com/athletic/6769656/2025/11/01/kyrie-irving-return-jason-kidd/
-
-**USC vs. Nebraska: Huskers still can't beat a ranked opponent, QB Dylan Raiola hurt**\
-`Raiola was injured when hit by defensive end Anthony Lucas on a first-down play from the USC 23-yard line.`\
-https://nytimes.com/athletic/6769747/2025/11/01/usc-nebraska-dylan-raiola-injury/
-
-**Dodgers', Blue Jays' benches empty in fourth after Andrés Giménez hit by pitch**\
-`Players from both benches and bullpens collected in the infield, but there were no punches or ejections.`\
-https://nytimes.com/athletic/6769704/2025/11/01/world-series-game-7-benches-clear-gimenez-wrobleski/
 

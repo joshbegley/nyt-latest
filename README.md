@@ -1,3 +1,35 @@
+**Quote of the Day: Frazzled Burglars Left Clues at the Louvre**\
+`Quotation of the Day for Sunday, November 2, 2025.`\
+https://nytimes.com/2025/11/02/pageoneplus/quote-of-the-day-frazzled-burglars-left-clues-at-the-louvre.html
+
+**An Outlier in Irish Politics Has Become the Country’s President**\
+`Propelled by anti-establishment fervor, Catherine Connolly was elected last week with a landmark popular mandate.`\
+https://nytimes.com/2025/11/02/world/europe/ireland-president-catherine-connolly.html
+
+**These Cats Do It for Glory, Not Salmon. (No, It’s the Salmon.)**\
+`Speed eating contests are part of a growing list of pet-related events in Thailand that also include competitions for skateboarding dogs and felines that look like cows.`\
+https://nytimes.com/2025/11/02/world/asia/thailand-pets-speed-eating-contests.html
+
+**In Chinese American Families, There’s a Generational Split on Mamdani**\
+`Many older Chinese immigrants are shifting to the political right, dividing from their children, a trend playing out in the New York City mayor’s race.`\
+https://nytimes.com/2025/11/02/business/zohran-mamdani-chinese.html
+
+**'The Athletic Show': Is it time to get rid of the NBA Draft?**\
+`"The Athletic Show" takes viewers beyond the box scores and into the fascinating corners of professional athletics most fans never see.`\
+https://nytimes.com/athletic/6764338/2025/11/02/the-athletic-show-nba-draft-debate/
+
+**Forget a Wedding Reception. They’ll See You at the Bar.**\
+`Some couples are forgoing fancy receptions and just going out after a small ceremony — or going home.`\
+https://nytimes.com/2025/11/02/style/small-wedding-ceremony-no-reception.html
+
+**Connections: Sports Edition Coach: Hints for Nov. 2, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6769778/2025/11/02/connections-sports-edition-hints-for-nov-2-2025/
+
+**Corrections: Nov. 2, 2025**\
+`Corrections that appeared in print on Sunday, Nov. 2, 2025.`\
+https://nytimes.com/2025/11/02/pageoneplus/corrections-nov-2-2025.html
+
 **Fire in Northwest Mexico Kills at Least 23**\
 `The fire ripped through a store in Hermosillo, a city in Sonora State. The governor said that minors were among the victims.`\
 https://nytimes.com/2025/11/01/world/americas/mexico-fire-hermosillo-sonora.html
@@ -5,36 +37,4 @@ https://nytimes.com/2025/11/01/world/americas/mexico-fire-hermosillo-sonora.html
 **College Football Playoff 2025 projections: Miami, Vandy chances drop; North Texas rising**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/11/01/college-football-playoff-bracket-projections-odds/
-
-**Oklahoma tops Tennessee in CFP elimination game behind big kicks, defensive TD**\
-`No. 18 Oklahoma beat No. 14 Tennessee 33-27 on Saturday in what was effectively a College Football Playoff elimination game in Knoxville.`\
-https://nytimes.com/athletic/6769787/2025/11/01/tennessee-oklahoma-score-result-football-playoff/
-
-**Vladimir Tarasenko breaks out as Wild get a much-needed win: Takeaways**\
-`The Wild never trailed, were perfect on the penalty kill and looked dominant on home ice during a 5-2 win over the injury-riddled Canucks.`\
-https://nytimes.com/athletic/6769504/2025/11/01/wild-canucks-vladimir-tarasenko-takeaways/
-
-**NC State hands Georgia Tech first loss, adding to mess in ACC's CFP race**\
-`The Wolfpack has now capitalized on their last two opportunities to take down a top-10 team at home.`\
-https://nytimes.com/athletic/6769810/2025/11/01/nc-state-georgia-tech-acc-playoff-race/
-
-**'Daisy Dukes' or not, college football players will keep wearing shorts until they can't**\
-`Kirk Herbstreit and Deion Sanders aren't keen on the biker-shorts trend, but the NCAA and coaches aren't enforcing the pants rule.`\
-https://nytimes.com/athletic/6769720/2025/11/01/daisy-dukes-college-football-biker-shorts/
-
-**Sean Monahan's first of the season, Jet Greaves' strong outing, propel Blue Jackets**\
-`Monahan scored his first goal of the season in the Blue Jackets' 3-2 win over the St. Louis Blues on Saturday`\
-https://nytimes.com/athletic/6769699/2025/11/01/blue-jackets-blues-sean-monahan-jet-greaves/
-
-**Colorado, Deion Sanders demolished by Arizona in 52-17 drubbing**\
-`Across their last eight quarters, the Buffaloes have been outscored 105-24.`\
-https://nytimes.com/athletic/6769803/2025/11/01/colorado-arizona-college-football-demolished/
-
-**Michigan narrowly beats Purdue, but listless season continues as Bryce Underwood struggles**\
-`Michigan stands at 7-2, but the Wolverines haven't found a great rhythm even against weaker opponents in the Big Ten.`\
-https://nytimes.com/athletic/6769788/2025/11/01/michigan-purdue-score-result/
-
-**Mavs coach Jason Kidd suggests Kyrie Irving could return from injury before end of 2025**\
-`Until Saturday in Mexico City, the Mavericks were hesitant to put any sort of timetable on Irving's return, which Kidd says may be in 2025.`\
-https://nytimes.com/athletic/6769656/2025/11/01/kyrie-irving-return-jason-kidd/
 

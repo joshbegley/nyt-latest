@@ -1,3 +1,11 @@
+**Fire in Northwest Mexico Kills at Least 23**\
+`The fire ripped through a store in Hermosillo, a city in Sonora State. The governor said that minors were among the victims.`\
+https://nytimes.com/2025/11/01/world/americas/mexico-fire-hermosillo-sonora.html
+
+**College Football Playoff 2025 projections: Miami, Vandy chances drop; North Texas rising**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/01/college-football-playoff-bracket-projections-odds/
+
 **Oklahoma tops Tennessee in CFP elimination game behind big kicks, defensive TD**\
 `No. 18 Oklahoma beat No. 14 Tennessee 33-27 on Saturday in what was effectively a College Football Playoff elimination game in Knoxville.`\
 https://nytimes.com/athletic/6769787/2025/11/01/tennessee-oklahoma-score-result-football-playoff/
