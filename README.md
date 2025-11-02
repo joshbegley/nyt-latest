@@ -1,3 +1,11 @@
+**Susannah Scaroni repeats as champion in women’s wheelchair race.**\
+`Scaroni, who lives in Illinois, led from start to finish, winning convincingly.`\
+https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/susannah-scaroni-repeats-as-champion-in-womens-wheelchair-race
+
+**At least 3 people are killed in the latest U.S. strike on a boat in the Caribbean Sea, Hegseth says.**\
+`By Carol Rosenberg`\
+https://nytimes.com/live/2025/11/02/us/trump-news/at-least-3-people-are-killed-in-the-latest-us-strike-on-a-boat-in-the-caribbean-sea-hegseth-says
+
 **Two new crossing points for pedestrians in Manhattan and Brooklyn.**\
 `By Jennie Coughlin`\
 https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/two-new-crossing-points-for-pedestrians-in-manhattan-and-brooklyn
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/11/02/us/trump-news
 **The Promise and Peril of the Political Center**\
 `Readers respond to an editorial about moving to the center. Also: No-phone time during the Sabbath; the energy crisis.`\
 https://nytimes.com/2025/11/02/opinion/political-center.html
-
-**A.I. Is Deciding Who You Are**\
-`In the age of A.I., personal data is anything but personal.`\
-https://nytimes.com/2025/11/02/opinion/ai-privacy.html
-
-**Sunday Sauce**\
-`In many Italian American households, Sunday means there’s red sauce simmering all day on the stove. Here’s how to make Sunday sauce.`\
-https://nytimes.com/video/dining/100000010366558/sunday-sauce.html
 
