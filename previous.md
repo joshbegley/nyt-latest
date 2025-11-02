@@ -1,5 +1,5 @@
 **2 Arrested in Britain After Stabbing on Train**\
-`Prime Minister Keir Starmer of Britain denounced the attack and advised people in the area to “follow the advice of the police.”`\
+`Prime Minister Keir Starmer of Britain denounced the attack, which left nine victims with “life-threatening injuries.”`\
 https://nytimes.com/2025/11/01/world/europe/britain-stabbing-train.html
 
 **Hawks' Trae Young to be re-evaluated in 4 weeks after MRI shows MCL sprain**\
