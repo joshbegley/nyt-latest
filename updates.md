@@ -1,3 +1,7 @@
+**Chargers star tackle Joe Alt carted off with ankle injury, ruled questionable**\
+`Alt missed three games earlier this season with a right high ankle sprain.`\
+https://nytimes.com/athletic/6771340/2025/11/02/chargers-joe-alt-injury-leaves-game/
+
 **Defense Lawyers Demand Dismissal of Abuse Case Against Israeli Soldiers**\
 `The chief legal officer of Israel’s military resigned after authorizing the leak of a video in the case involving grave abuse of a Palestinian detainee. That further politicized a fraught case.`\
 https://nytimes.com/2025/11/02/world/middleeast/abuse-case-israeli-soldiers-dismissal.html

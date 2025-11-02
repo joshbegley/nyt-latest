@@ -1,3 +1,7 @@
+**Chargers star tackle Joe Alt carted off with ankle injury, ruled questionable**\
+`Alt missed three games earlier this season with a right high ankle sprain.`\
+https://nytimes.com/athletic/6771340/2025/11/02/chargers-joe-alt-injury-leaves-game/
+
 **Defense Lawyers Demand Dismissal of Abuse Case Against Israeli Soldiers**\
 `The chief legal officer of Israel’s military resigned after authorizing the leak of a video in the case involving grave abuse of a Palestinian detainee. That further politicized a fraught case.`\
 https://nytimes.com/2025/11/02/world/middleeast/abuse-case-israeli-soldiers-dismissal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/02/nyregion/halloween-fire-paterson-new-jersey.html
 **AP Top 25: Notre Dame back in top 10; Miami plummets to No. 18**\
 `Ohio State, Indiana, Texas A&M, Alabama and Georgia remain atop the AP Top 25 college football poll ahead of the first Playoff rankings.`\
 https://nytimes.com/athletic/6771221/2025/11/02/ap-top-25-cfp-rankings-notre-dame/
-
-**‘Keep Listening’: An Undecided Republican Lawmaker Weighs New Voting Maps**\
-`As redistricting efforts spread across the country, an Indiana state senator said he isn’t sure how he will vote on a plan that President Trump supports.`\
-https://nytimes.com/2025/11/02/us/indiana-redistricting-terre-haute.html
 
