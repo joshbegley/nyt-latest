@@ -1,3 +1,7 @@
+**2 Arrested in Britain After Stabbing on Train**\
+`Prime Minister Keir Starmer of Britain denounced the attack and advised people in the area to “follow the advice of the police.”`\
+https://nytimes.com/2025/11/01/world/europe/britain-stabbing-train.html
+
 **Hawks' Trae Young to be re-evaluated in 4 weeks after MRI shows MCL sprain**\
 `A four-week absence means Young will miss at least 14 more games.`\
 https://nytimes.com/athletic/6769601/2025/11/01/trae-young-injury-update-mcl-out-4-weeks/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/01/arts/music/marcyliena-morgan-dead.html
 **Notre Dame pulls away late to win at Boston College, stay in Playoff race: Key takeaways**\
 `Notre Dame did enough to put away Boston College on Saturday but also made plenty of mistakes.`\
 https://nytimes.com/athletic/6769288/2025/11/01/notre-dame-boston-college-score-result/
-
-**Emery expects Mings to be sidelined for 'weeks' with hamstring injury**\
-`The defender was replaced in the 74th minute after pulling up while racing back in pursuit of Liverpool's Mohamed Salah.`\
-https://nytimes.com/athletic/6769502/2025/11/01/tyrone-mings-injury-latest-aston-villa/
 
