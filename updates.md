@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Kalmaegi**\
+`See the likely path and wind arrival times for Kalmaegi`\
+https://nytimes.com/interactive/2025/11/02/weather/kalmaegi-map-path-tracker.html
+
 **Until Saturday: Yet another major hot seat**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6770601/2025/11/02/hugh-freeze-auburn-coaching-carousel-until-saturday/

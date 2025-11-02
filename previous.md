@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Kalmaegi**\
+`See the likely path and wind arrival times for Kalmaegi`\
+https://nytimes.com/interactive/2025/11/02/weather/kalmaegi-map-path-tracker.html
+
 **Until Saturday: Yet another major hot seat**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6770601/2025/11/02/hugh-freeze-auburn-coaching-carousel-until-saturday/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/02/world/europe/uk-train-stabbing-huntingdon.html
 **Mandel's Final Thoughts: Texas still has its goals intact. Miami? Not so much**\
 `What we learned in Week 10 of the college football season about trusting Miami, the wild ACC, Texas ascending and much more.`\
 https://nytimes.com/athletic/6770201/2025/11/02/college-football-scores-results-week-10/
-
-**The story of the 2025 Dodgers: From Mookie's illness to Ohtani pitching to repeat champions**\
-`Here's the story of the 2025 Los Angeles Dodgers, a team that entered the season as immense favorites and came back to repeat as champions.`\
-https://nytimes.com/athletic/6769509/2025/11/02/dodgers-world-series-season-recap/
 
