@@ -1,3 +1,19 @@
+**The Briefing - Manchester City 3 Bournemouth 1: Two more goals for Haaland, fast breaks undo Iraola's side**\
+`Manchester City beat Bournemouth 3-1 to go second in the Premier League. Here are the key talking points...`\
+https://nytimes.com/athletic/6761098/2025/11/02/manchester-city-3-bournemouth-1-premier-league-result/
+
+**South Carolina fires offensive coordinator Mike Shula amid 4-game losing streak: Reports**\
+`The next full-time offensive coordinator will be Shane Beamer’s fourth in six seasons in Columbia.`\
+https://nytimes.com/athletic/6771092/2025/11/02/mike-shula-fired-south-carolina/
+
+**Auburn fires head coach Hugh Freeze amid Year 3 spiral**\
+`Freeze's time at Auburn was marked by close losses to rivals and elite teams, but also embarrassing home losses.`\
+https://nytimes.com/athletic/6719975/2025/11/02/auburn-fires-hugh-freeze/
+
+**The downfall of Pereira at Wolves: Why he's gone 45 days after new contract and what it cost**\
+`Just six weeks after a new deal was signed, Pereira is out and Wolves find themselves in a familiar position. Here's how it happened`\
+https://nytimes.com/athletic/6770744/2025/11/02/vitor-pereira-wolves-jeff-shi-exit/
+
 **Big Stars at LACMA’s Big Night**\
 `Demi Moore, Doja Cat, Elle Fanning, Angela Bassett and Edward Norton made the scene at a Gucci-powered fund-raiser for the Los Angeles County Museum of Art.`\
 https://nytimes.com/2025/11/02/style/big-stars-at-lacmas-big-night.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/who-are-t
 **OPEC Plus Signals Cautious Approach to Oil Production**\
 `Eight members of the oil cartel agreed on Sunday to a small increase but said they would now pause in adding more oil, reflecting market concerns about an oversupply.`\
 https://nytimes.com/2025/11/02/business/opec-plus-oil.html
-
-**At 74, He Started Running. At 91, He’s a Marathoner.**\
-`This is Koichi Kitabatake’s third New York City Marathon. He is one of only seven nonagenarian runners in the race’s history.`\
-https://nytimes.com/2025/11/02/nyregion/oldest-runner-nyc-marathon.html
-
-**5 German Climbers Are Killed by Avalanche in Italian Alps**\
-`The climbers were in two groups in northern Italy on Saturday night when an avalanche struck. Two people survived.`\
-https://nytimes.com/2025/11/02/world/europe/german-mountaineers-killed-avalanche-italy.html
-
-**How LeBron James, Billie Jean King and other sports icons reacted to Saturday's epic Game 7**\
-`All-time greats from across the sports landscape were left in awe by Saturday's classic Game 7.`\
-https://nytimes.com/athletic/6770660/2025/11/02/world-series-game-seven-sports-world-reactions/
-
-**Yoshinobu Yamamoto's best rookie card still hasn't been claimed**\
-`As collectors scramble to acquire the World Series MVP's rookie cards, the very best one is still waiting to be pulled.`\
-https://nytimes.com/athletic/6770790/2025/11/02/yoshinobu-yamamoto-debut-patch-rookie-card/
 
