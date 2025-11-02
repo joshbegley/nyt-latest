@@ -1,3 +1,11 @@
+**In rocky start, Shohei Ohtani's delays between innings become point of contention**\
+`Jays manager John Schneider met with umpires to discuss the time Ohtani was receiving between innings.`\
+https://nytimes.com/athletic/6769648/2025/11/01/shohei-ohtani-pitching-game-7-warmup-delay/
+
+**War Powers Law Does Not Apply to Trump’s Boat Strikes, Administration Says**\
+`The move deepened the idea that a Vietnam-era law, which says congressionally unauthorized deployments into “hostilities” must end after 60 days, does not apply to airstrike campaigns.`\
+https://nytimes.com/2025/11/01/us/politics/trump-boat-attacks-war-powers.html
+
 **War Powers Law Does Not Apply to Trump’s Boat Strikes, Administration Says**\
 `The stance deepened the idea that a Vietnam-era law, which says congressionally unauthorized deployments into “hostilities” must end after 60 days, does not apply to airstrike campaigns.`\
 https://nytimes.com/2025/11/01/us/politics/trump-boat-attacks-war-powers.html

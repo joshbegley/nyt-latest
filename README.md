@@ -1,3 +1,7 @@
+**Leafs' Chris Tanev stretchered off ice after collision with Matvei Michkov**\
+`The head-to-head contact looked to be accidental, and Michkov was given a two-minute minor for interference on the play.`\
+https://nytimes.com/athletic/6769713/2025/11/01/maple-leafs-chris-tanev-injury-flyers-michkov/
+
 **In rocky start, Shohei Ohtani's delays between innings become point of contention**\
 `Jays manager John Schneider met with umpires to discuss the time Ohtani was receiving between innings.`\
 https://nytimes.com/athletic/6769648/2025/11/01/shohei-ohtani-pitching-game-7-warmup-delay/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6769359/2025/11/01/georgia-florida-score-result/
 **Forever Young wins Breeders' Cup Classic for Japan's third win**\
 `This year’s Classic featured nine horses after Sovereignty, the 2025 Kentucky Derby and Belmont Stakes winner, was scratched with a fever.`\
 https://nytimes.com/athletic/6769535/2025/11/01/breeders-cup-classic-forever-young-win-yoshito-yahagi/
-
-**Dodgers' Tyler Glasnow may be limited in Game 7 due to 'side discomfort': Report**\
-`Fox's Tom Verducci noted that Glasnow, who threw three pitches at the end of Game 6, is dealing with "a little bit of side discomfort."`\
-https://nytimes.com/athletic/6769541/2025/11/01/tyler-glasnow-los-angeles-dodgers-update/
 
