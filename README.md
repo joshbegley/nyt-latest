@@ -10,6 +10,10 @@ https://nytimes.com/video/opinion/100000010495041/this-is-how-the-democratic-par
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/02/todays-new-york-times
 
+**Arne Slot found a winning formula by getting the big calls right against Aston Villa**\
+`Trickier tests await Liverpool over the next seven days, but Arne Slot now has a blueprint from which he can build on`\
+https://nytimes.com/athletic/6769201/2025/11/02/liverpool-aston-villa-arne-slot-analysis/
+
 **The futures of Pereira and Wolves seem sadly, grimly inevitable**\
 `The result of this season looks simple to predict, but there are precious few easy answers to the biggest questions at Molineux.`\
 https://nytimes.com/athletic/6769576/2025/11/02/vitor-pereira-wolves-future-premier-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6769282/2025/11/02/var-corners-manchester-united-no
 **Arsenal don't give a damn**\
 `“I think the first half was one of the best that we've played,” said Mikel Arteta of a display of dominant relentlessness`\
 https://nytimes.com/athletic/6769263/2025/11/02/relentless-arsenal-burnley-rice-gabriel/
-
-**Amad epitomises the risks and rewards of Amorim's system in a league defined by strength, size and set pieces**\
-`"If I have a different guy there, maybe we could defend that better," said Amorim of Amad but also explained why he wants him as a wing-back`\
-https://nytimes.com/athletic/6768773/2025/11/02/amad-manchester-united-gamble/
 
