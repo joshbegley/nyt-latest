@@ -22,7 +22,7 @@ https://nytimes.com/2025/11/02/us/indiana-redistricting-terre-haute.html
 `After taking a hard hit to the shoulder while sliding, Stroud headed to the locker room.`\
 https://nytimes.com/athletic/6771234/2025/11/02/c-j-stroud-exits-texans-broncos-concussion/
 
-**India win maiden cricket World Cup after beating South Africa**\
+**India win maiden women's cricket World Cup after beating South Africa**\
 `The hosts had made the final after beating defending champions Australia, ending their run of 15 consecutive match wins in the tournament.`\
 https://nytimes.com/athletic/6771219/2025/11/02/india-cricket-world-cup-win-women/
 

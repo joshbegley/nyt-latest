@@ -1,3 +1,7 @@
+**A New York marathon tradition: getting your name in The New York Times.**\
+`By Taylor Robinson`\
+https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/a-new-york-marathon-tradition-getting-your-name-in-the-new-york-times
+
 **Still parts ways with Southampton after 16 games in charge**\
 `Ruben Martinez, Clément Lemaitre and Carl Martin have also left their positions as coaching staff at the club.`\
 https://nytimes.com/athletic/6739294/2025/11/02/will-still-southampton-parts-ways-championship/
