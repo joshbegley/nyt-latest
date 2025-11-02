@@ -1,3 +1,15 @@
+**Meet Your News Friend, the New Host of The Morning**\
+`Sam Sifton wants readers to know: Everything is going to be all right, and you’re not alone.`\
+https://nytimes.com/2025/11/02/world/02themorning-meet-sam-sifton.html
+
+**How to track your favorite runners.**\
+`By Jennie Coughlin`\
+https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/how-to-track-your-favorite-runners
+
+**Ohio State's stability goes beyond who calls plays. Win over Jim Knowles, Penn State shows it**\
+`Ohio State is a self-sustaining program that doesn't live or die by one coordinator. That's harder than it looks.`\
+https://nytimes.com/athletic/6769375/2025/11/02/ohio-state-penn-state-jim-knowles-matt-patricia/
+
 **Pereira sacked by Wolves after winless start to Premier League season**\
 `Pereira signed a new contract at the club in September through to 2028`\
 https://nytimes.com/athletic/6637763/2025/11/02/vitor-pereira-wolves-manager-sacked/
