@@ -1,3 +1,7 @@
+**Nottingham Forest offer support to fans on train involved in mass stabbing**\
+`Forest said many of the club's London-based fans were travelling on the train after their Premier League fixture against Manchester United.`\
+https://nytimes.com/athletic/6770923/2025/11/02/nottingham-forest-train-stabbing/
+
 **Benson Kipruto wins the men’s race.**\
 `By Scott Cacciola`\
 https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/benson-kipruto-wins-the-mens-race
