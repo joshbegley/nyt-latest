@@ -1,3 +1,11 @@
+**Arsenal don't give a damn**\
+`“I think the first half was one of the best that we've played,” said Mikel Arteta of a display of dominant relentlessness`\
+https://nytimes.com/athletic/6769263/2025/11/02/relentless-arsenal-burnley-rice-gabriel/
+
+**Amad epitomises the risks and rewards of Amorim's system in a league defined by strength, size and set pieces**\
+`"If I have a different guy there, maybe we could defend that better," said Amorim of Amad but also explained why he wants him as a wing-back`\
+https://nytimes.com/athletic/6768773/2025/11/02/amad-manchester-united-gamble/
+
 **Yoshinobu Yamamoto wins World Series MVP with historic ironman performance**\
 `Yamamoto came in to pitch the final two innings for the Dodgers, recording one strikeout while giving up just one hit and a walk.`\
 https://nytimes.com/athletic/6769980/2025/11/02/yoshinobu-yamamoto-world-series-mvp-dodgers/
