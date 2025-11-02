@@ -1,3 +1,7 @@
+**Gunman Kills Mayor Who Wanted Police to Target Mexico’s Drug Gangs**\
+`Carlos Manzo, a mayor in the state of Michoacán, had repeatedly asked President Claudia Sheinbaum for more resources. He was shot outside a church.`\
+https://nytimes.com/2025/11/02/world/americas/manzo-mayor-mexico-killed.html
+
 **This Is How the Democratic Party Beats Trump**\
 `Democrats do not just need to win more people. They also need to win more places.`\
 https://nytimes.com/video/opinion/100000010495041/this-is-how-the-democratic-party-beats-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6769263/2025/11/02/relentless-arsenal-burnley-rice-
 **Amad epitomises the risks and rewards of Amorim's system in a league defined by strength, size and set pieces**\
 `"If I have a different guy there, maybe we could defend that better," said Amorim of Amad but also explained why he wants him as a wing-back`\
 https://nytimes.com/athletic/6768773/2025/11/02/amad-manchester-united-gamble/
-
-**Yoshinobu Yamamoto wins World Series MVP with historic ironman performance**\
-`Yamamoto came in to pitch the final 2 2/3 innings for the Dodgers, one day after he threw 96 pitches and collected the win in Game 6.`\
-https://nytimes.com/athletic/6769980/2025/11/02/yoshinobu-yamamoto-world-series-mvp-dodgers/
 

@@ -1,3 +1,7 @@
+**The futures of Pereira and Wolves seem sadly, grimly inevitable**\
+`The result of this season looks simple to predict, but there are precious few easy answers to the biggest questions at Molineux.`\
+https://nytimes.com/athletic/6769576/2025/11/02/vitor-pereira-wolves-future-premier-league/
+
 **The futures of both Vitor Pereira and Wolves seem sadly, grimly inevitable**\
 `The result of this season looks simple to predict, but there are precious few easy answers to the biggest questions at Molineux.`\
 https://nytimes.com/athletic/6769576/2025/11/02/vitor-pereira-wolves-future-premier-league/
