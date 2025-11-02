@@ -1,3 +1,19 @@
+**The Briefing - Manchester City 3 Bournemouth 1: Two more goals for Haaland, fast breaks undo Iraola's side**\
+`Manchester City beat Bournemouth 3-1 to go second in the Premier League. Here are the key talking points...`\
+https://nytimes.com/athletic/6761098/2025/11/02/manchester-city-3-bournemouth-1-premier-league-result/
+
+**South Carolina fires offensive coordinator Mike Shula amid 4-game losing streak: Reports**\
+`The next full-time offensive coordinator will be Shane Beamer’s fourth in six seasons in Columbia.`\
+https://nytimes.com/athletic/6771092/2025/11/02/mike-shula-fired-south-carolina/
+
+**Auburn fires head coach Hugh Freeze amid Year 3 spiral**\
+`Freeze's time at Auburn was marked by close losses to rivals and elite teams, but also embarrassing home losses.`\
+https://nytimes.com/athletic/6719975/2025/11/02/auburn-fires-hugh-freeze/
+
+**The downfall of Pereira at Wolves: Why he's gone 45 days after new contract and what it cost**\
+`Just six weeks after a new deal was signed, Pereira is out and Wolves find themselves in a familiar position. Here's how it happened`\
+https://nytimes.com/athletic/6770744/2025/11/02/vitor-pereira-wolves-jeff-shi-exit/
+
 **Big Stars at LACMA’s Big Night**\
 `Demi Moore, Doja Cat, Elle Fanning, Angela Bassett and Edward Norton made the scene at a Gucci-powered fund-raiser for the Los Angeles County Museum of Art.`\
 https://nytimes.com/2025/11/02/style/big-stars-at-lacmas-big-night.html
