@@ -1,3 +1,7 @@
+**Why Oklahoma could stick around in the Playoff race — even with another loss**\
+`Oklahoma has one of the nation's toughest schedules, and its win at Tennessee on Saturday could make it an interesting Playoff test case.`\
+https://nytimes.com/athletic/6770108/2025/11/02/oklahoma-college-football-playoff-chances-tennessee/
+
 **In Game 7, Dodgers, Blue Jays deliver fitting finale to World Series that had 'everything'**\
 `Digesting the moments, memories and history lessons from a Game 7 — and World Series — that kept us riveted from start to finish. `\
 https://nytimes.com/athletic/6770378/2025/11/02/dodgers-blue-jays-game-7-world-series-history/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/02/world/02themorning-meet-sam-sifton.html
 **How to track your favorite runners.**\
 `By Jennie Coughlin`\
 https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/how-to-track-your-favorite-runners
-
-**Pereira sacked by Wolves after winless start to Premier League season**\
-`Pereira signed a new contract at the club in September through to 2028`\
-https://nytimes.com/athletic/6637763/2025/11/02/vitor-pereira-wolves-manager-sacked/
 
