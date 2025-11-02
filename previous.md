@@ -1,3 +1,15 @@
+**It comes down to Turin: Jannik Sinner takes No. 1 race with Carlos Alcaraz to ATP Tour Finals**\
+`Sinner will regain world No. 1 for one week, before the season-ending tournament defines who will hold the ranking at its end.`\
+https://nytimes.com/athletic/6770750/2025/11/02/tennis-world-no-1-sinner-alcaraz-atp-tour/
+
+**Hellen Obiri of Kenya wins the women’s elite race.**\
+`By Scott Cacciola`\
+https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/hellen-obiri-of-kenya-wins-the-womens-elite-race
+
+**West Ham 3 Newcastle 1 - Why are Howe's side so bad away from home? Where does it leave them?**\
+`Analysis of Newcastle's Premier League game away to West Ham`\
+https://nytimes.com/athletic/6761096/2025/11/02/west-ham-3-newcastle-1-highlights/
+
 **A Classic Southern Chicken From a Classic Southern Guy**\
 `Craig Claiborne’s smothered chicken is savory, satisfying simplicity.`\
 https://nytimes.com/2025/11/02/dining/a-classic-southern-chicken-from-a-classic-southern-guy.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/02/briefing/why-zohran-mamdani-isnt-shy-about-faith.
 **The Windup: The Game 7 this World Series deserved**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6770707/2025/11/02/world-series-game-7-windup/
-
-**Pistons' Cade Cunningham, Jalen Duren show chemistry, create career nights in Mexico City**\
-`The Pistons' win Saturday against the Mavericks foreshadowed what the Cunningham-Duren duo can become with adequate reps and time to grow.`\
-https://nytimes.com/athletic/6770270/2025/11/02/cade-cunningham-jalen-duren-pistons-mexico-city/
-
-**Alexander-Arnold 'would not celebrate' scoring against Liverpool**\
-`Tuesday's Champions League match at Anfield will be the first time the 27-year-old has faced his boyhood club since leaving in the summer.`\
-https://nytimes.com/athletic/6770522/2025/11/02/trent-alexander-arnold-real-madrid-liverpool-return/
-
-**Notre Dame's sloppiest win so far fosters more annoyance than alarm bells**\
-`The Notre Dame that showed up at Boston College may coast into the College Football Playoff, but it wouldn’t stay long.`\
-https://nytimes.com/athletic/6770663/2025/11/02/notre-dame-boston-college-cfp-marcus-freeman/
 

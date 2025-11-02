@@ -1,3 +1,15 @@
+**It comes down to Turin: Jannik Sinner takes No. 1 race with Carlos Alcaraz to ATP Tour Finals**\
+`Sinner will regain world No. 1 for one week, before the season-ending tournament defines who will hold the ranking at its end.`\
+https://nytimes.com/athletic/6770750/2025/11/02/tennis-world-no-1-sinner-alcaraz-atp-tour/
+
+**Hellen Obiri of Kenya wins the women’s elite race.**\
+`By Scott Cacciola`\
+https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/hellen-obiri-of-kenya-wins-the-womens-elite-race
+
+**West Ham 3 Newcastle 1 - Why are Howe's side so bad away from home? Where does it leave them?**\
+`Analysis of Newcastle's Premier League game away to West Ham`\
+https://nytimes.com/athletic/6761096/2025/11/02/west-ham-3-newcastle-1-highlights/
+
 **A Classic Southern Chicken From a Classic Southern Guy**\
 `Craig Claiborne’s smothered chicken is savory, satisfying simplicity.`\
 https://nytimes.com/2025/11/02/dining/a-classic-southern-chicken-from-a-classic-southern-guy.html
