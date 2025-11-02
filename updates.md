@@ -1,3 +1,7 @@
+**A Massacre Unfolding in Sudan**\
+`My colleague Declan Walsh writes about the humanitarian crisis in Darfur — and how the world is now largely looking away.`\
+https://nytimes.com/2025/11/02/world/darfur-sudan-ukraine-jamaica-japan.html
+
 **Panthers RB Rico Dowdle penalized for 'Key & Peele'-inspired TD celebration**\
 `New England's Stefon Diggs did a similar celebration earlier Sunday and was not penalized.`\
 https://nytimes.com/athletic/6771462/2025/11/02/rico-dowdle-penalty-key-and-peele/
