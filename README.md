@@ -1,3 +1,11 @@
+**Arsenal don't give a damn**\
+`“I think the first half was one of the best that we've played,” said Mikel Arteta of a display of dominant relentlessness`\
+https://nytimes.com/athletic/6769263/2025/11/02/relentless-arsenal-burnley-rice-gabriel/
+
+**Amad epitomises the risks and rewards of Amorim's system in a league defined by strength, size and set pieces**\
+`"If I have a different guy there, maybe we could defend that better," said Amorim of Amad but also explained why he wants him as a wing-back`\
+https://nytimes.com/athletic/6768773/2025/11/02/amad-manchester-united-gamble/
+
 **Yoshinobu Yamamoto wins World Series MVP with historic ironman performance**\
 `Yamamoto came in to pitch the final two innings for the Dodgers, recording one strikeout while giving up just one hit and a walk.`\
 https://nytimes.com/athletic/6769980/2025/11/02/yoshinobu-yamamoto-world-series-mvp-dodgers/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/02/pageoneplus/quote-of-the-day-frazzled-burglars-le
 **An Outlier in Irish Politics Has Become the Country’s President**\
 `Propelled by anti-establishment fervor, Catherine Connolly was elected last week with a landmark popular mandate.`\
 https://nytimes.com/2025/11/02/world/europe/ireland-president-catherine-connolly.html
-
-**These Cats Do It for Glory, Not Salmon. (No, It’s the Salmon.)**\
-`Speed eating contests are part of a growing list of pet-related events in Thailand that also include competitions for skateboarding dogs and felines that look like cows.`\
-https://nytimes.com/2025/11/02/world/asia/thailand-pets-speed-eating-contests.html
-
-**In Chinese American Families, There’s a Generational Split on Mamdani**\
-`Many older Chinese immigrants are shifting to the political right, dividing from their children, a trend playing out in the New York City mayor’s race.`\
-https://nytimes.com/2025/11/02/business/zohran-mamdani-chinese.html
 
