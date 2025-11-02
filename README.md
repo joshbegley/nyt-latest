@@ -1,3 +1,7 @@
+**Police Arrest Two British Men in Stabbing Rampage on Train**\
+`U.K. officials said they did not believe the attack on a train to London was connected to terrorism. Two of the 11 people wounded in the stabbing spree remain in critical condition, the police said.`\
+https://nytimes.com/2025/11/02/world/europe/uk-train-stabbing-huntingdon.html
+
 **Mandel's Final Thoughts: Texas still has its goals intact. Miami? Not so much**\
 `What we learned in Week 10 of the college football season about trusting Miami, the wild ACC, Texas ascending and much more.`\
 https://nytimes.com/athletic/6770201/2025/11/02/college-football-scores-results-week-10/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6770129/2025/11/02/clayton-kershaw-retirement-dodge
 **Van Dijk calls Rooney's Liverpool leadership criticism 'lazy'**\
 `Rooney questioned the body language of both Van Dijk and Mohamed Salah following last weekend's 3-2 defeat at Brentford.`\
 https://nytimes.com/athletic/6770491/2025/11/02/virgil-van-dijk-wayne-rooney-liverpool/
-
-**For now, Florida State can keep punting Mike Norvell decision and $55M quandary**\
-`FSU celebrated a dominant win over Wake Forest, but whether it is good enough to justify giving Norvell a seventh year remains uncertain`\
-https://nytimes.com/athletic/6770041/2025/11/02/wake-forest-florida-state-mike-norvell/
 
