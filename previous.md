@@ -1,3 +1,11 @@
+**NC State hands Georgia Tech first loss, adding to mess in ACC's CFP race**\
+`The Wolfpack has now capitalized on their last two opportunities to take down a top-10 team at home.`\
+https://nytimes.com/athletic/6769810/2025/11/01/nc-state-georgia-tech-acc-playoff-race/
+
+**'Daisy Dukes' or not, college football players will keep wearing shorts until they can't**\
+`Kirk Herbstreit and Deion Sanders aren't keen on the biker-shorts trend, but the NCAA and coaches aren't enforcing the pants rule.`\
+https://nytimes.com/athletic/6769720/2025/11/01/daisy-dukes-college-football-biker-shorts/
+
 **Sean Monahan's first of the season, Jet Greaves' strong outing, propel Blue Jackets**\
 `Monahan scored his first goal of the season in the Blue Jackets' 3-2 win over the St. Louis Blues on Saturday`\
 https://nytimes.com/athletic/6769699/2025/11/01/blue-jackets-blues-sean-monahan-jet-greaves/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6769707/2025/11/01/nashville-beats-inter-miami-push
 **Georgia has mastered the fourth-quarter comeback. But it's not sustainable**\
 `If Georgia wants to win a national championship this year, it must show better focus, play and execution across four quarters.`\
 https://nytimes.com/athletic/6769622/2025/11/01/georgia-florida-comeback-win-college-football/
-
-**Leafs' Chris Tanev stretchered off ice after collision with Matvei Michkov**\
-`Tanev took accidental head-to-head contact in his first game back from a concussion he suffered Oct. 21 against New Jersey.`\
-https://nytimes.com/athletic/6769713/2025/11/01/maple-leafs-chris-tanev-injury-flyers-michkov/
-
-**In rocky start, Shohei Ohtani's delays between innings become point of contention**\
-`Jays manager John Schneider met with umpires to discuss the time Ohtani was receiving between innings.`\
-https://nytimes.com/athletic/6769648/2025/11/01/shohei-ohtani-pitching-game-7-warmup-delay/
 

@@ -1,3 +1,11 @@
+**NC State hands Georgia Tech first loss, adding to mess in ACC's CFP race**\
+`The Wolfpack has now capitalized on their last two opportunities to take down a top-10 team at home.`\
+https://nytimes.com/athletic/6769810/2025/11/01/nc-state-georgia-tech-acc-playoff-race/
+
+**'Daisy Dukes' or not, college football players will keep wearing shorts until they can't**\
+`Kirk Herbstreit and Deion Sanders aren't keen on the biker-shorts trend, but the NCAA and coaches aren't enforcing the pants rule.`\
+https://nytimes.com/athletic/6769720/2025/11/01/daisy-dukes-college-football-biker-shorts/
+
 **Sean Monahan's first of the season, Jet Greaves' strong outing, propel Blue Jackets**\
 `Monahan scored his first goal of the season in the Blue Jackets' 3-2 win over the St. Louis Blues on Saturday`\
 https://nytimes.com/athletic/6769699/2025/11/01/blue-jackets-blues-sean-monahan-jet-greaves/
