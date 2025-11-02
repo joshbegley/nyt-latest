@@ -1,3 +1,7 @@
+**Gunman Kills Mayor Who Wanted Police to Target Mexico’s Drug Gangs**\
+`Carlos Manzo, a mayor in the state of Michoacán, had repeatedly asked President Claudia Sheinbaum for more resources. He was shot outside a church.`\
+https://nytimes.com/2025/11/02/world/americas/manzo-mayor-mexico-killed.html
+
 **The futures of Pereira and Wolves seem sadly, grimly inevitable**\
 `The result of this season looks simple to predict, but there are precious few easy answers to the biggest questions at Molineux.`\
 https://nytimes.com/athletic/6769576/2025/11/02/vitor-pereira-wolves-future-premier-league/
