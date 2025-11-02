@@ -1,3 +1,15 @@
+**How Liberalism Wins**\
+`Democrats do not just need to win more people. They also need to win more places.`\
+https://nytimes.com/2025/11/02/opinion/democrats-liberalism-elections-crick.html
+
+**This Is How the Democratic Party Beats Trump**\
+`Democrats do not just need to win more people. They also need to win more places.`\
+https://nytimes.com/video/opinion/100000010495041/this-is-how-the-democratic-party-beats-trump.html
+
+**What Women Really Want: Work Boundaries**\
+`Discussion of women in the workplace often focuses on flexible hours, but what’s actually needed is shift work — pioneered by the medical profession.`\
+https://nytimes.com/2025/11/02/opinion/women-work-force-flexibility-shifts.html
+
 **Thomas Frank faces dissent from players and fans as creativity vacuum draws Nuno parallels**\
 `Frank needs to find an attacking spark from somewhere to avoid being permanently viewed in the same way as Nuno's tenure`\
 https://nytimes.com/athletic/6769437/2025/11/02/thomas-frank-spurs-dissent-nuno/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6767993/2025/11/02/2026-world-series-odds-dodgers-y
 **Dodgers-Blue Jays Game 7 takeaways: Late-game homers, Yamamoto's MVP effort fuel repeat title**\
 `The Dodgers triumphed once again thanks to game-changing homers and 2 2/3 scoreless innings from the man who won Game 6.`\
 https://nytimes.com/athletic/6769714/2025/11/02/dodgers-blue-jays-world-series-game-7-results-takeaways-mlb/
-
-**Death Toll Rises From Hurricane Melissa as Many Communities Remain Cut off**\
-`Authorities have yet to reach dozens of communities in Jamaica, raising the question of how many people really died in last week’s storm.`\
-https://nytimes.com/2025/11/02/world/americas/jamaica-hurricane-melissa-death-toll.html
-
-**Down but never out, indefatigable Dodgers are back-to-back World Series champs**\
-`The Dodgers were on the verge of elimination in the ninth in Toronto. They stormed back to win an all-time great Game 7 in extra innings.`\
-https://nytimes.com/athletic/6769881/2025/11/02/los-angeles-dodgers-world-series-champions-blue-jays-game-7/
-
-**Why the five-substitute era has not been good for football**\
-`Lawmakers have completely overlooked the impact of introducing extra substitutes: it increases the tempo of the game and increases fatigue`\
-https://nytimes.com/athletic/6766071/2025/11/02/substitutes-premier-league-too-many/
 

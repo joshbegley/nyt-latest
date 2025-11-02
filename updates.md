@@ -1,3 +1,7 @@
+**Down but never out, indefatigable Dodgers are back-to-back World Series champs**\
+`The Dodgers were on the verge of elimination in the ninth in Toronto. They stormed back to win an all-time great Game 7 in extra innings.`\
+https://nytimes.com/athletic/6769881/2025/11/02/los-angeles-dodgers-world-series-champions-blue-jays-game-7/
+
 **Thomas Frank faces dissent from players and fans as creativity vacuum draws Nuno parallels**\
 `Frank needs to find an attacking spark from somewhere to avoid being permanently viewed in the same way as Nuno's tenure`\
 https://nytimes.com/athletic/6769437/2025/11/02/thomas-frank-spurs-dissent-nuno/
