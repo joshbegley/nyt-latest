@@ -1,3 +1,7 @@
+**Benson Kipruto wins New York City Marathon in thrilling photo finish**\
+`Hellen Obiri sets a course record while winning on the women's side.`\
+https://nytimes.com/athletic/6770979/2025/11/02/new-york-marathon-benson-kipruto-photo-finish/
+
 **Isiah Kiner-Falefa was told to stay close to third. Did it cost the Blue Jays the World Series?**\
 `The Blue Jays had plenty of chances to win their first World Series since 1993. But none will be more scrutinized than IKF in the ninth.`\
 https://nytimes.com/athletic/6770725/2025/11/02/isiah-kiner-falefa-blue-jays-game-7-world-series/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6770912/2025/11/02/76ers-vs-nets-stream-how-to-watc
 **How to watch Hawks vs. Cavaliers: Time, TV, streaming**\
 `Find out how to watch the Atlanta Hawks play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6770910/2025/11/02/hawks-vs-cavaliers-stream-how-to-watch-nov-2/
-
-**How to watch Blue Jackets vs. Islanders: Time, TV, streaming**\
-`Find out how to watch the Columbus Blue Jackets play the New York Islanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6770908/2025/11/02/blue-jackets-vs-islanders-stream-how-to-watch-nov-2/
 
