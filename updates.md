@@ -1,3 +1,11 @@
+**At 74, He Started Running. At 91, He’s a Marathoner.**\
+`This is Koichi Kitabatake’s third New York City Marathon. He is one of only seven nonagenarian runners in the race’s history.`\
+https://nytimes.com/2025/11/02/nyregion/oldest-runner-nyc-marathon.html
+
+**5 German Climbers Are Killed by Avalanche in Italian Alps**\
+`The climbers were in two groups in northern Italy on Saturday night when an avalanche struck. Two people survived.`\
+https://nytimes.com/2025/11/02/world/europe/german-mountaineers-killed-avalanche-italy.html
+
 **How LeBron James, Billie Jean King and other sports icons reacted to Saturday's epic Game 7**\
 `All-time greats from across the sports landscape were left in awe by Saturday's classic Game 7.`\
 https://nytimes.com/athletic/6770660/2025/11/02/world-series-game-seven-sports-world-reactions/
