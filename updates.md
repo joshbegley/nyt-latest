@@ -1,3 +1,7 @@
+**Swinney fined $10,000 for ripping fourth-down PI in loss to Duke: 'One of the worst calls'**\
+`Given new life by a late penalty, Duke snapped a 15-game losing streak at Clemson that dates back to 1980.`\
+https://nytimes.com/athletic/6769271/2025/11/02/dabo-swinney-clemson-duke-pass-interference-penalty/
+
 **Colts-Steelers takeaways: Daniel Jones commits 5 turnovers in Pittsburgh win**\
 `The mistakes were too much to overcome for the Colts, who lost despite outgaining the Steelers 368-225.`\
 https://nytimes.com/athletic/6771136/2025/11/02/colts-steelers-score-result-takeaways-week-9-nfl/
