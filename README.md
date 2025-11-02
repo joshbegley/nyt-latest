@@ -1,6 +1,10 @@
+**Jaguars' Cam Little makes NFL-record 68-yard field goal vs. Raiders**\
+`Little, who made a 70-yard field goal in a preseason game this year, beat the record of 66 yards set by Justin Tucker in 2021.`\
+https://nytimes.com/athletic/6771730/2025/11/02/cam-little-jaguars-field-goal-68-yards-nfl-record/
+
 **Steelers fans hold funeral for defense, unit responds in dominant win**\
 `The defense funeral appears to have changed the mojo.`\
-https://nytimes.com/athletic/6771715/2025/11/02/steelers-fans-hold-funeral-for-defense-unit-responds-in-dominant-win/
+https://nytimes.com/athletic/6771715/2025/11/02/steelers-fans-funeral-defense-colts/
 
 **Bears win back-and-forth thriller against Flacco and the Bengals**\
 `Caleb Williams' 58-yard touchdown pass to Colston Loveland with 17 seconds remaining sealed a wild win for the Bears.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6771025/2025/11/02/broncos-texans-score-result-take
 **49ers fear rookie DE Mykel Williams has ACL injury, await tests Monday**\
 `Williams' injury, which comes two days before the trade deadline, means the 49ers might not be finished adding to their defensive line.`\
 https://nytimes.com/athletic/6771609/2025/11/02/49ers-mykel-williams-acl-injury-update/
-
-**Map: 6.3-Magnitude Earthquake Strikes Afghanistan**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/11/02/world/afghanistan-quake-tracker.html
 

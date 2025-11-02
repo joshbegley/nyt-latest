@@ -1,3 +1,11 @@
+**Steelers fans hold funeral for defense, unit responds in dominant win**\
+`The defense funeral appears to have changed the mojo.`\
+https://nytimes.com/athletic/6771715/2025/11/02/steelers-fans-hold-funeral-for-defense-unit-responds-in-dominant-win/
+
+**Panthers-Packers takeaways: Rico Dowdle leads Carolina to upset win**\
+`Running back rushed for 130 yards and two touchdowns, including a decisive 19-yard burst that set up the game-winning field goal.`\
+https://nytimes.com/athletic/6771502/2025/11/02/panthers-packers-score-result-takeaways-week-9-nfl/
+
 **Bears win back-and-forth thriller against Flacco and the Bengals**\
 `Caleb Williams' 58-yard touchdown pass to Colston Loveland with 17 seconds remaining sealed a wild win for the Bears.`\
 https://nytimes.com/athletic/6764211/2025/11/02/bears-bengals-score-result-takeaways-week-9-nfl/
