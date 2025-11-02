@@ -1,3 +1,7 @@
+**Sanchez performing 'at my best' after initial 'struggle' at Chelsea**\
+`The goalkeeper said he is "happy'"and "confident" after joining the London club from Brighton in 2023.`\
+https://nytimes.com/athletic/6770735/2025/11/02/robert-sanchez-chelsea-best-form/
+
 **Colts-Steelers takeaways: Daniel Jones commits 5 turnovers in Pittsburgh win**\
 `The mistakes were too much to overcome for the Colts, who lost despite outgaining the Steelers 368-225.`\
 https://nytimes.com/athletic/6771136/2025/11/02/colts-steelers-score-result-takeaways-week-9-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/02/us/politics/trump-nuclear-testing-explosions.html
 **Patriots outlast Falcons to win sixth straight: Takeaways**\
 `New England earned its seventh win of the season after Atlanta's Parker Romo missed a potential game-tying PAT in the final minutes.`\
 https://nytimes.com/athletic/6764229/2025/11/02/falcons-patriots-score-result-takeaways-week-9-nfl/
-
-**Chargers-Titans takeaways: Justin Herbert helps L.A. overcome mistakes in win**\
-`Justin Herbert threw a pick six in the first quarter, but the Chargers rallied to win their second straight.`\
-https://nytimes.com/athletic/6771140/2025/11/02/chargers-titans-score-result-takeaways-week-9-nfl/
 
