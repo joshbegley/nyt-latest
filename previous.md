@@ -1,3 +1,7 @@
+**Death Toll Rises From Hurricane Melissa as Many Communities Remain Cut off**\
+`Authorities have yet to reach dozens of communities in Jamaica, raising the question of how many people really died in last week’s storm.`\
+https://nytimes.com/2025/11/02/world/americas/jamaica-hurricane-melissa-death-toll.html
+
 **Down but never out, indefatigable Dodgers are back-to-back World Series champs**\
 `The Dodgers were on the verge of elimination in the ninth inning. They stormed back to win an all-time great game in extra innings.`\
 https://nytimes.com/athletic/6769881/2025/11/02/los-angeles-dodgers-world-series-champions-blue-jays-game-7/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/02/style/small-wedding-ceremony-no-reception.html
 **Connections: Sports Edition Coach: Hints for Nov. 2, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6769778/2025/11/02/connections-sports-edition-hints-for-nov-2-2025/
-
-**Corrections: Nov. 2, 2025**\
-`Corrections that appeared in print on Sunday, Nov. 2, 2025.`\
-https://nytimes.com/2025/11/02/pageoneplus/corrections-nov-2-2025.html
 
