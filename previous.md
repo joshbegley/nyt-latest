@@ -1,3 +1,7 @@
+**What time does the marathon start?**\
+`By Jennie Coughlin`\
+https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/what-time-does-the-marathon-start
+
 **What we learned about the Playoff: Making sense of the ACC and reassessing the Big Ten**\
 `The ACC's traditional powers have been overtaken this season, but it could affect the conference's chance at getting multiple CFP bids.`\
 https://nytimes.com/athletic/6770087/2025/11/02/college-football-playoff-race-after-week-10/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/02/us/im-going-to-stretch-it-anxiety-over-snap-leads
 **Austin Asked Voters to Raise Taxes for the Homeless. It’s Not Going Well.**\
 `A proposed tax hike before the city on Tuesday has become a referendum on governance in the fast-changing Texas capital.`\
 https://nytimes.com/2025/11/02/us/austin-tax-vote.html
-
-**To Celebrate Day of the Dead, One Mexican Town Digs Up Its Dead**\
-`Pomuch, Mexico, is one of the last places where residents clean their relatives’ bones. Now they are grappling with a new challenge: tourists.`\
-https://nytimes.com/2025/11/02/world/americas/mexico-day-of-the-dead-bones-pomuch.html
 
