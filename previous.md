@@ -1,3 +1,11 @@
+**Thomas Frank faces dissent from players and fans as creativity vacuum draws Nuno parallels**\
+`Frank needs to find an attacking spark from somewhere to avoid being permanently viewed in the same way as Nuno's tenure`\
+https://nytimes.com/athletic/6769437/2025/11/02/thomas-frank-spurs-dissent-nuno/
+
+**VAR could have corrected Man United's controversial corner in seconds. It's a simple way to help officials**\
+`Cameras made judging whether the ball had gone out or not a simple, objective call – but it was outside of VAR's remit. Should that change?`\
+https://nytimes.com/athletic/6769282/2025/11/02/var-corners-manchester-united-nottingham-forest/
+
 **Arsenal don't give a damn**\
 `“I think the first half was one of the best that we've played,” said Mikel Arteta of a display of dominant relentlessness`\
 https://nytimes.com/athletic/6769263/2025/11/02/relentless-arsenal-burnley-rice-gabriel/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6769881/2025/11/02/los-angeles-dodgers-world-series
 **Why the five-substitute era has not been good for football**\
 `Lawmakers have completely overlooked the impact of introducing extra substitutes: it increases the tempo of the game and increases fatigue`\
 https://nytimes.com/athletic/6766071/2025/11/02/substitutes-premier-league-too-many/
-
-**Quote of the Day: Frazzled Burglars Left Clues at the Louvre**\
-`Quotation of the Day for Sunday, November 2, 2025.`\
-https://nytimes.com/2025/11/02/pageoneplus/quote-of-the-day-frazzled-burglars-left-clues-at-the-louvre.html
-
-**An Outlier in Irish Politics Has Become the Country’s President**\
-`Propelled by anti-establishment fervor, Catherine Connolly was elected last week with a landmark popular mandate.`\
-https://nytimes.com/2025/11/02/world/europe/ireland-president-catherine-connolly.html
 

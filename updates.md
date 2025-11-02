@@ -1,3 +1,11 @@
+**Thomas Frank faces dissent from players and fans as creativity vacuum draws Nuno parallels**\
+`Frank needs to find an attacking spark from somewhere to avoid being permanently viewed in the same way as Nuno's tenure`\
+https://nytimes.com/athletic/6769437/2025/11/02/thomas-frank-spurs-dissent-nuno/
+
+**VAR could have corrected Man United's controversial corner in seconds. It's a simple way to help officials**\
+`Cameras made judging whether the ball had gone out or not a simple, objective call – but it was outside of VAR's remit. Should that change?`\
+https://nytimes.com/athletic/6769282/2025/11/02/var-corners-manchester-united-nottingham-forest/
+
 **Arsenal don't give a damn**\
 `“I think the first half was one of the best that we've played,” said Mikel Arteta of a display of dominant relentlessness`\
 https://nytimes.com/athletic/6769263/2025/11/02/relentless-arsenal-burnley-rice-gabriel/
