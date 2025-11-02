@@ -1,3 +1,7 @@
+**Auburn job profile: What is realistic on The Plains in the new SEC?**\
+`High-level consistency is hard to come by at Auburn. What does that mean for the coaching search ahead?`\
+https://nytimes.com/athletic/6770793/2025/11/02/auburn-football-coaching-search-job-profile/
+
 **N.Y.C. rabbi moves off sidelines to condemn Mamdani amid Jewish divide.**\
 `Rabbi Angela Buchdahl of Central Synagogue in Manhattan took issue with Zohran Mamdani’s view of Israel, but said that religious leaders should not be in the endorsement business.`\
 https://nytimes.com/live/2025/11/02/nyregion/nyc-mayor-election-news/nyc-rabbi-moves-off-sidelines-to-condemn-mamdani-amid-jewish-divide
@@ -10,7 +14,7 @@ https://nytimes.com/2025/11/02/style/new-york-marathon-fashion.html
 `Manchester City beat Bournemouth 3-1 to go second in the Premier League. Here are the key talking points...`\
 https://nytimes.com/athletic/6761098/2025/11/02/manchester-city-3-bournemouth-1-premier-league-result/
 
-**South Carolina fires offensive coordinator Mike Shula amid 4-game losing streak: Reports**\
+**South Carolina fires offensive coordinator Mike Shula amid 4-game losing streak**\
 `The next full-time offensive coordinator will be Shane Beamer’s fourth in six seasons in Columbia.`\
 https://nytimes.com/athletic/6771092/2025/11/02/mike-shula-fired-south-carolina/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/02/arts/television/maria-riva-dead.html
 **Close Finish in N.Y.C. Marathon Men’s Race Was One of the Closest Ever**\
 `Some past New York marathons have been extremely tight. Benson Kipruto’s split-second victory was a photo finish.`\
 https://nytimes.com/2025/11/02/nyregion/nyc-marathon-mens-race-close-finish.html
-
-**SEC finally has clarity in season of parity: Vibes after Week 10**\
-`Four teams have risen to the top of the SEC — both in the Playoff race and in terms of the vibes.`\
-https://nytimes.com/athletic/6770945/2025/11/02/sec-football-rankings-week-10-ole-miss-georgia-auburn/
 
