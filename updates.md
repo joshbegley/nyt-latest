@@ -1,3 +1,11 @@
+**War Powers Law Does Not Apply to Trump’s Boat Strikes, Administration Says**\
+`The stance deepened the idea that a Vietnam-era law, which says congressionally unauthorized deployments into “hostilities” must end after 60 days, does not apply to airstrike campaigns.`\
+https://nytimes.com/2025/11/01/us/politics/trump-boat-attacks-war-powers.html
+
+**2 Arrested in Britain After Stabbing on Train**\
+`Prime Minister Keir Starmer of Britain denounced the attack, which the police said left nine victims with “life-threatening injuries.”`\
+https://nytimes.com/2025/11/01/world/europe/britain-stabbing-train.html
+
 **2 Arrested in Britain After Stabbing on Train**\
 `Prime Minister Keir Starmer of Britain denounced the attack, which left nine victims with “life-threatening injuries.”`\
 https://nytimes.com/2025/11/01/world/europe/britain-stabbing-train.html

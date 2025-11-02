@@ -1,5 +1,9 @@
+**War Powers Law Does Not Apply to Trump’s Boat Strikes, Administration Says**\
+`The stance deepened the idea that a Vietnam-era law, which says congressionally unauthorized deployments into “hostilities” must end after 60 days, does not apply to airstrike campaigns.`\
+https://nytimes.com/2025/11/01/us/politics/trump-boat-attacks-war-powers.html
+
 **2 Arrested in Britain After Stabbing on Train**\
-`Prime Minister Keir Starmer of Britain denounced the attack, which left nine victims with “life-threatening injuries.”`\
+`Prime Minister Keir Starmer of Britain denounced the attack, which the police said left nine victims with “life-threatening injuries.”`\
 https://nytimes.com/2025/11/01/world/europe/britain-stabbing-train.html
 
 **Hawks' Trae Young to be re-evaluated in 4 weeks after MRI shows MCL sprain**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6769541/2025/11/01/tyler-glasnow-los-angeles-dodger
 **Marcyliena Morgan, Founder of Harvard’s Hip-Hop Archive, Dies at 75**\
 `Her university’s vast collection of albums, scholarly essays and other ephemera helped establish rap as a course of serious study on a par with classical music.`\
 https://nytimes.com/2025/11/01/arts/music/marcyliena-morgan-dead.html
-
-**Notre Dame pulls away late to win at Boston College, stay in Playoff race: Key takeaways**\
-`Notre Dame did enough to put away Boston College on Saturday but also made plenty of mistakes.`\
-https://nytimes.com/athletic/6769288/2025/11/01/notre-dame-boston-college-score-result/
 
