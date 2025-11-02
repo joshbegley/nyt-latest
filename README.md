@@ -1,3 +1,15 @@
+**Until Saturday: Yet another major hot seat**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6770601/2025/11/02/hugh-freeze-auburn-coaching-carousel-until-saturday/
+
+**How to watch the race from home or on your device.**\
+`(No description)`\
+https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/how-to-watch-the-race-from-home-or-on-your-device
+
+**College Football Playoff 2025 projections: Miami, Vandy chances drop; North Texas rising**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/02/college-football-playoff-bracket-projections-odds/
+
 **How to watch Pelicans vs. Thunder: Time, TV, streaming**\
 `Find out how to watch the New Orleans Pelicans play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6770595/2025/11/02/pelicans-vs-thunder-stream-how-to-watch-nov-2/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6770201/2025/11/02/college-football-scores-results-
 **The story of the 2025 Dodgers: From Mookie's illness to Ohtani pitching to repeat champions**\
 `Here's the story of the 2025 Los Angeles Dodgers, a team that entered the season as immense favorites and came back to repeat as champions.`\
 https://nytimes.com/athletic/6769509/2025/11/02/dodgers-world-series-season-recap/
-
-**Rudy Gobert stands tall, Donte DiVincenzo barks back for Timberwolves**\
-`Gobert played like the four-time Defensive Player of the Year he is as the Wolves dominated the third quarter.`\
-https://nytimes.com/athletic/6769463/2025/11/02/timberwolves-rudy-gobert-donte-divincenzo/
-
-**Mavericks, Cooper Flagg are struggling to score, but don't expect changes to approach**\
-`The No. 1 pick is adjusting to life in the NBA in an unfamiliar role, but Mavericks coach Jason Kidd thinks it will pay off down the line.`\
-https://nytimes.com/athletic/6770262/2025/11/02/mavericks-cooper-flagg-struggling-offense/
-
-**Canadiens driven by the power of confidence, coach who understands it intimately**\
-`From Sam Montembeault to Jayden Struble to Ivan Demidov to Alex Newhook, a Canadiens win Saturday was defined by confidence from its coach.`\
-https://nytimes.com/athletic/6770142/2025/11/02/canadiens-driven-confidence-coach/
 
