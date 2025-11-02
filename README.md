@@ -1,3 +1,15 @@
+**How LeBron James, Billie Jean King and other sports icons reacted to Saturday's epic Game 7**\
+`All-time greats from across the sports landscape were left in awe by Saturday's classic Game 7.`\
+https://nytimes.com/athletic/6770660/2025/11/02/world-series-game-seven-sports-world-reactions/
+
+**Yoshinobu Yamamoto's best rookie card still hasn't been claimed**\
+`As collectors scramble to acquire the World Series MVP's rookie cards, the very best one is still waiting to be pulled.`\
+https://nytimes.com/athletic/6770790/2025/11/02/yoshinobu-yamamoto-debut-patch-rookie-card/
+
+**Syria’s President to Visit Washington for First Time Since Taking Power**\
+`The president, Ahmed al-Shara, was, until recently, wanted by the United States as a terrorist with a $10 million bounty on his head.`\
+https://nytimes.com/2025/11/02/us/politics/syrian-president-al-shara-washington-visit.html
+
 **Benson Kipruto wins New York City Marathon in thrilling photo finish**\
 `Hellen Obiri sets a course record while winning on the women's side.`\
 https://nytimes.com/athletic/6770979/2025/11/02/new-york-marathon-benson-kipruto-photo-finish/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/benson-ki
 **Lowetide: Oilers avoid October crisis but it still feels like a missed opportunity**\
 `Picking the Oilers, as currently populated, to return to the Stanley Cup Final for the third year in a row is unwise.`\
 https://nytimes.com/athletic/6768948/2025/11/02/edmonton-oilers-stats-standings-2025/
-
-**How to watch Jazz vs. Hornets: Time, TV, streaming**\
-`Find out how to watch the Utah Jazz play the Charlotte Hornets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6770914/2025/11/02/jazz-vs-hornets-stream-how-to-watch-nov-2/
-
-**How to watch 76ers vs. Nets: Time, TV, streaming**\
-`Find out how to watch the Philadelphia 76ers play the Brooklyn Nets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6770912/2025/11/02/76ers-vs-nets-stream-how-to-watch-nov-2/
-
-**How to watch Hawks vs. Cavaliers: Time, TV, streaming**\
-`Find out how to watch the Atlanta Hawks play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6770910/2025/11/02/hawks-vs-cavaliers-stream-how-to-watch-nov-2/
 
