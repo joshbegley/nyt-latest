@@ -1,3 +1,19 @@
+**Are the Packers pretenders? Did the Steelers expose the Colts? Our experts' Week 9 takeaways**\
+`Also: J.J. McCarthy made a promising return for the Vikings, and the Bears beat the Bengals in one of the season's wildest games.`\
+https://nytimes.com/athletic/6771188/2025/11/02/nfl-takeaways-week-9-scores-results/
+
+**Dispense Carefully**\
+`Kevin Christian and Andrea Carla Michaels start off our solving week right.`\
+https://nytimes.com/2025/11/02/crosswords/daily-puzzle-2025-11-03.html
+
+**Jaguars' Cam Little makes NFL-record 68-yard field goal vs. Raiders**\
+`Little, who made a 70-yard field goal in a preseason game this year, beat the record of 66 yards set by Justin Tucker in 2021.`\
+https://nytimes.com/athletic/6771730/2025/11/02/cam-little-jaguars-field-goal-68-yards-nfl-record/
+
+**Steelers fans hold funeral for defense, unit responds in dominant win**\
+`The defense funeral appears to have changed the mojo.`\
+https://nytimes.com/athletic/6771715/2025/11/02/steelers-fans-funeral-defense-colts/
+
 **Steelers fans hold funeral for defense, unit responds in dominant win**\
 `The defense funeral appears to have changed the mojo.`\
 https://nytimes.com/athletic/6771715/2025/11/02/steelers-fans-hold-funeral-for-defense-unit-responds-in-dominant-win/
