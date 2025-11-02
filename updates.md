@@ -1,3 +1,7 @@
+**Vladimir Tarasenko breaks out as Wild get a much-needed win: Takeaways**\
+`The Wild never trailed, were perfect on the penalty kill and looked dominant on home ice during a 5-2 win over the injury-riddled Canucks.`\
+https://nytimes.com/athletic/6769504/2025/11/01/wild-canucks-vladimir-tarasenko-takeaways/
+
 **USC vs. Nebraska: Huskers still can't beat a ranked opponent, QB Dylan Raiola hurt**\
 `Raiola was injured when hit by defensive end Anthony Lucas on a first-down play from the USC 23-yard line.`\
 https://nytimes.com/athletic/6769747/2025/11/01/usc-nebraska-dylan-raiola-injury/
