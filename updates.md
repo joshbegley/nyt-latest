@@ -1,3 +1,11 @@
+**Georgia has mastered the fourth-quarter comeback. But it's not sustainable**\
+`If Georgia wants to win a national championship this year, it must show better focus, play and execution across four quarters.`\
+https://nytimes.com/athletic/6769622/2025/11/01/georgia-florida-comeback-win-college-football/
+
+**Leafs' Chris Tanev stretchered off ice after collision with Matvei Michkov**\
+`Tanev took accidental head-to-head contact in his first game back from a concussion he suffered on Oct. 21 against New Jersey.`\
+https://nytimes.com/athletic/6769713/2025/11/01/maple-leafs-chris-tanev-injury-flyers-michkov/
+
 **Leafs' Chris Tanev stretchered off ice after collision with Matvei Michkov**\
 `The head-to-head contact looked to be accidental, and Michkov was given a two-minute minor for interference on the play.`\
 https://nytimes.com/athletic/6769713/2025/11/01/maple-leafs-chris-tanev-injury-flyers-michkov/

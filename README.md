@@ -1,3 +1,11 @@
+**Dodgers', Blue Jays' benches empty in 4th after Andrés Giménez hit by pitch**\
+`Players from both benches and bullpens collected in the infield, but there were no punches or ejections.`\
+https://nytimes.com/athletic/6769704/2025/11/01/world-series-game-7-benches-clear-gimenez-wrobleski/
+
+**Nashville beats Inter Miami, pushes Messi to a familiar playoff brink**\
+`Lionel Messi and Inter Miami lost in Nashville and now face a nervy Game 3 to decide the series as they seek to avoid a first round exit.`\
+https://nytimes.com/athletic/6769707/2025/11/01/nashville-beats-inter-miami-pushes-lionel-messi-to-a-familiar-playoff-brink/
+
 **Georgia has mastered the fourth-quarter comeback. But it's not sustainable**\
 `If Georgia wants to win a national championship this year, it must show better focus, play and execution across four quarters.`\
 https://nytimes.com/athletic/6769622/2025/11/01/georgia-florida-comeback-win-college-football/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6560541/2025/11/01/college-football-playoff-bracket
 **Doc Rivers on possible SNAP delays: 'We're talking about kids not getting food'**\
 `The Milwaukee Bucks coach delivered an impassioned statement about government food assistance potentially being delayed.`\
 https://nytimes.com/athletic/6769242/2025/11/01/milwaukee-bucks-doc-rivers-snap/
-
-**Trump Threatens Military Action in Nigeria Over Protections for Christians**\
-`Accusing Nigeria of not doing enough to protect Christians from violence, President Trump said he had ordered the Pentagon to prepare for action.`\
-https://nytimes.com/2025/11/01/world/africa/trump-nigeria-military.html
-
-**Georgia's year of comebacks continues as it ekes out win over rival Florida: Key takeaways**\
-`The "never say die Dawgs" struck again to stay in the race for the SEC Championship Game with a 24-20 win over the Gators on Saturday.`\
-https://nytimes.com/athletic/6769359/2025/11/01/georgia-florida-score-result/
 

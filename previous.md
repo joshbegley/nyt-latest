@@ -1,5 +1,9 @@
+**Georgia has mastered the fourth-quarter comeback. But it's not sustainable**\
+`If Georgia wants to win a national championship this year, it must show better focus, play and execution across four quarters.`\
+https://nytimes.com/athletic/6769622/2025/11/01/georgia-florida-comeback-win-college-football/
+
 **Leafs' Chris Tanev stretchered off ice after collision with Matvei Michkov**\
-`The head-to-head contact looked to be accidental, and Michkov was given a two-minute minor for interference on the play.`\
+`Tanev took accidental head-to-head contact in his first game back from a concussion he suffered on Oct. 21 against New Jersey.`\
 https://nytimes.com/athletic/6769713/2025/11/01/maple-leafs-chris-tanev-injury-flyers-michkov/
 
 **In rocky start, Shohei Ohtani's delays between innings become point of contention**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/01/world/africa/trump-nigeria-military.html
 **Georgia's year of comebacks continues as it ekes out win over rival Florida: Key takeaways**\
 `The "never say die Dawgs" struck again to stay in the race for the SEC Championship Game with a 24-20 win over the Gators on Saturday.`\
 https://nytimes.com/athletic/6769359/2025/11/01/georgia-florida-score-result/
-
-**Forever Young wins Breeders' Cup Classic for Japan's third win**\
-`This year’s Classic featured nine horses after Sovereignty, the 2025 Kentucky Derby and Belmont Stakes winner, was scratched with a fever.`\
-https://nytimes.com/athletic/6769535/2025/11/01/breeders-cup-classic-forever-young-win-yoshito-yahagi/
 
