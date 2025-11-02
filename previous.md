@@ -1,3 +1,11 @@
+**Down but never out, indefatigable Dodgers are back-to-back World Series champs**\
+`The Dodgers were on the verge of elimination in the ninth inning. They stormed back to win an all-time great game in extra innings.`\
+https://nytimes.com/athletic/6769881/2025/11/02/los-angeles-dodgers-world-series-champions-blue-jays-game-7/
+
+**Why the five-substitute era has not been good for football**\
+`Lawmakers have completely overlooked the impact of introducing extra substitutes: it increases the tempo of the game and increases fatigue`\
+https://nytimes.com/athletic/6766071/2025/11/02/substitutes-premier-league-too-many/
+
 **Quote of the Day: Frazzled Burglars Left Clues at the Louvre**\
 `Quotation of the Day for Sunday, November 2, 2025.`\
 https://nytimes.com/2025/11/02/pageoneplus/quote-of-the-day-frazzled-burglars-left-clues-at-the-louvre.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6769778/2025/11/02/connections-sports-edition-hints
 **Corrections: Nov. 2, 2025**\
 `Corrections that appeared in print on Sunday, Nov. 2, 2025.`\
 https://nytimes.com/2025/11/02/pageoneplus/corrections-nov-2-2025.html
-
-**Fire in Northwest Mexico Kills at Least 23**\
-`The fire ripped through a store in Hermosillo, a city in Sonora State. The governor said that minors were among the victims.`\
-https://nytimes.com/2025/11/01/world/americas/mexico-fire-hermosillo-sonora.html
-
-**College Football Playoff 2025 projections: Miami, Vandy chances drop; North Texas rising**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/11/01/college-football-playoff-bracket-projections-odds/
 
