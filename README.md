@@ -22,8 +22,8 @@ https://nytimes.com/athletic/6769788/2025/11/01/michigan-purdue-score-result/
 `Until Saturday in Mexico City, the Mavericks were hesitant to put any sort of timetable on Irving's return, which Kidd says may be in 2025.`\
 https://nytimes.com/athletic/6769656/2025/11/01/kyrie-irving-return-jason-kidd/
 
-**Nebraska QB Dylan Raiola leaves USC game in third quarter with injury**\
-`He was injured when hit by defensive end Anthony Lucas on a first-down play from the USC 23-yard line.`\
+**USC vs. Nebraska: Huskers still can't beat a ranked opponent, QB Dylan Raiola hurt**\
+`Raiola was injured when hit by defensive end Anthony Lucas on a first-down play from the USC 23-yard line.`\
 https://nytimes.com/athletic/6769747/2025/11/01/usc-nebraska-dylan-raiola-injury/
 
 **Dodgers', Blue Jays' benches empty in fourth after Andrés Giménez hit by pitch**\
