@@ -1,3 +1,7 @@
+**Broncos-Texans takeaways: Stroud leaves game, Broncos show late-game heroics**\
+`Bo Nix finds rhythm in fourth quarter`\
+https://nytimes.com/athletic/6771025/2025/11/02/broncos-texans-score-result-takeaways-week-9-nfl/
+
 **49ers fear rookie DE Mykel Williams has ACL injury, await tests Monday**\
 `Williams' injury, which comes two days before the trade deadline, means the 49ers might not be finished adding to their defensive line.`\
 https://nytimes.com/athletic/6771609/2025/11/02/49ers-mykel-williams-acl-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/02/world/darfur-sudan-ukraine-jamaica-japan.html
 **Panthers RB Rico Dowdle penalized for 'Key & Peele'-inspired TD celebration**\
 `New England's Stefon Diggs did a similar celebration earlier Sunday and was not penalized.`\
 https://nytimes.com/athletic/6771462/2025/11/02/rico-dowdle-penalty-key-and-peele/
-
-**F.D.A. Drug Unit Chief Is Placed on Leave, and Cites a ‘Toxic’ Environment**\
-`The official, Dr. George F. Tidmarsh, a top regulator at the agency, said disagreements over a new program to rapidly approve medications had caused tensions with agency officials.`\
-https://nytimes.com/2025/11/02/health/fda-drug-unit-chief.html
 

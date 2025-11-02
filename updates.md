@@ -1,3 +1,7 @@
+**Broncos-Texans takeaways: Stroud leaves game, Broncos show late-game heroics**\
+`Bo Nix finds rhythm in fourth quarter`\
+https://nytimes.com/athletic/6771025/2025/11/02/broncos-texans-score-result-takeaways-week-9-nfl/
+
 **49ers fear rookie DE Mykel Williams has ACL injury, await tests Monday**\
 `Williams' injury, which comes two days before the trade deadline, means the 49ers might not be finished adding to their defensive line.`\
 https://nytimes.com/athletic/6771609/2025/11/02/49ers-mykel-williams-acl-injury-update/
