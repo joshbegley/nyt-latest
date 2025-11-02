@@ -1,3 +1,11 @@
+**Colorado, Deion Sanders demolished by Arizona in 52-17 drubbing**\
+`Across their last eight quarters, the Buffaloes have been outscored 105-24.`\
+https://nytimes.com/athletic/6769803/2025/11/01/colorado-arizona-college-football-demolished/
+
+**Michigan narrowly beats Purdue, but Bryce Underwood unable to turnaround play in listless season**\
+`Michigan stands at 7-2, but the Wolverines haven't found a great rhythm even against weaker opponents in the Big Ten.`\
+https://nytimes.com/athletic/6769788/2025/11/01/michigan-purdue-score-result/
+
 **Mavs coach Jason Kidd suggests Kyrie Irving could return from injury before end of 2025**\
 `Until Saturday in Mexico City, the Mavericks were hesitant to put any sort of timetable on Irving's return, which Kidd says may be in 2025.`\
 https://nytimes.com/athletic/6769656/2025/11/01/kyrie-irving-return-jason-kidd/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6769648/2025/11/01/shohei-ohtani-pitching-game-7-wa
 **War Powers Law Does Not Apply to Trump’s Boat Strikes, Administration Says**\
 `The move deepened the idea that a Vietnam-era law, which says congressionally unauthorized deployments into “hostilities” must end after 60 days, does not apply to airstrike campaigns.`\
 https://nytimes.com/2025/11/01/us/politics/trump-boat-attacks-war-powers.html
-
-**2 Arrested in Britain After Stabbing on Train**\
-`Prime Minister Keir Starmer of Britain denounced the attack, which the police said left nine victims with “life-threatening injuries.”`\
-https://nytimes.com/2025/11/01/world/europe/britain-stabbing-train.html
-
-**Hawks' Trae Young to be re-evaluated in 4 weeks after MRI shows MCL sprain**\
-`A four-week absence means Young will miss at least 14 more games.`\
-https://nytimes.com/athletic/6769601/2025/11/01/trae-young-injury-update-mcl-out-4-weeks/
 
