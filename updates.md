@@ -1,3 +1,15 @@
+**How Liberalism Wins**\
+`Democrats do not just need to win more people. They also need to win more places.`\
+https://nytimes.com/2025/11/02/opinion/democrats-liberalism-elections-crick.html
+
+**This Is How the Democratic Party Beats Trump**\
+`Democrats do not just need to win more people. They also need to win more places.`\
+https://nytimes.com/video/opinion/100000010495041/this-is-how-the-democratic-party-beats-trump.html
+
+**What Women Really Want: Work Boundaries**\
+`Discussion of women in the workplace often focuses on flexible hours, but what’s actually needed is shift work — pioneered by the medical profession.`\
+https://nytimes.com/2025/11/02/opinion/women-work-force-flexibility-shifts.html
+
 **Down but never out, indefatigable Dodgers are back-to-back World Series champs**\
 `The Dodgers were on the verge of elimination in the ninth in Toronto. They stormed back to win an all-time great Game 7 in extra innings.`\
 https://nytimes.com/athletic/6769881/2025/11/02/los-angeles-dodgers-world-series-champions-blue-jays-game-7/
