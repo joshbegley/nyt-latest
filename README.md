@@ -1,3 +1,7 @@
+**How much are the prizes for the winners?**\
+`By Taylor Robinson`\
+https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/how-much-are-the-prizes-for-the-winners
+
 **Marcel Hug and Susannah Scaroni Are the Wheelchair Winners, Again.**\
 `Hug and Scaroni were also dual champions in 2022, when they both set course records.`\
 https://nytimes.com/2025/11/02/nyregion/marcel-hug-susannah-scaroni-nyc-marathon.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/susannah-
 **At least 3 people are killed in the latest U.S. strike on a boat in the Caribbean Sea, Hegseth says.**\
 `By Carol Rosenberg`\
 https://nytimes.com/live/2025/11/02/us/trump-news/at-least-3-people-are-killed-in-the-latest-us-strike-on-a-boat-in-the-caribbean-sea-hegseth-says
-
-**Two new crossing points for pedestrians in Manhattan and Brooklyn.**\
-`By Jennie Coughlin`\
-https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/two-new-crossing-points-for-pedestrians-in-manhattan-and-brooklyn
 
