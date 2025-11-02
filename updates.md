@@ -1,3 +1,7 @@
+**Chargers-Titans takeaways: Justin Herbert helps L.A. overcome mistakes in win**\
+`Justin Herbert threw a pick six in the first quarter, but the Chargers rallied to win their second straight.`\
+https://nytimes.com/athletic/6771140/2025/11/02/chargers-titans-score-result-takeaways-week-9-nfl/
+
 **The New York City Marathon in Photos and Videos**\
 `Some 55,000 people came out to race through the five boroughs on a sunny Sunday.`\
 https://nytimes.com/2025/11/02/nyregion/nyc-marathon-photos-videos.html
