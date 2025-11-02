@@ -1,3 +1,11 @@
+**49ers-Giants takeaways: San Francisco's offense returns to life in 34-24 win**\
+`The San Francisco 49ers' offense rebounded in Week 9 to roll over the New York Giants at MetLife Stadium.`\
+https://nytimes.com/athletic/6771510/2025/11/02/49ers-giants-score-result-takeaways-week-9-nfl/
+
+**Patriots outlast Falcons to win sixth straight: Takeaways**\
+`New England earned its seventh win of the season after Atlanta's Parker Romo missed a potential game-tying PAT in the final minutes.`\
+https://nytimes.com/athletic/6764229/2025/11/02/falcons-patriots-score-result-takeaways-week-9-nfl/
+
 **Swinney fined $10,000 for ripping fourth-down PI in loss to Duke: 'One of the worst calls'**\
 `Given new life by a late penalty, Duke snapped a 15-game losing streak at Clemson that dates back to 1980.`\
 https://nytimes.com/athletic/6769271/2025/11/02/dabo-swinney-clemson-duke-pass-interference-penalty/

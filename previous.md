@@ -23,15 +23,15 @@ https://nytimes.com/athletic/6771609/2025/11/02/49ers-mykel-williams-acl-injury-
 https://nytimes.com/interactive/2025/11/02/world/afghanistan-quake-tracker.html
 
 **49ers-Giants takeaways: San Francisco's offense returns to life in 34-24 win**\
-`The San Francisco 49ers' offense rebounded in Week 9 to roll over New York Giants at MetLife Stadium.`\
+`The San Francisco 49ers' offense rebounded in Week 9 to roll over the New York Giants at MetLife Stadium.`\
 https://nytimes.com/athletic/6771510/2025/11/02/49ers-giants-score-result-takeaways-week-9-nfl/
 
 **New Weapons Testing Won’t Include Nuclear Explosions, Energy Secretary Says**\
 `Energy Secretary Chris Wright said the testing ordered up in a surprise announcement by President Trump last week would focus on “the other parts” of nuclear weaponry.`\
 https://nytimes.com/2025/11/02/us/politics/trump-nuclear-testing-explosions.html
 
-**Patriots outlast Falcons to win sixth straight**\
-`The Patriots earned their seventh win of the season after Atlanta kicker Parker Romo missed a game-tying PAT in the final minutes.`\
+**Patriots outlast Falcons to win sixth straight: Takeaways**\
+`New England earned its seventh win of the season after Atlanta's Parker Romo missed a potential game-tying PAT in the final minutes.`\
 https://nytimes.com/athletic/6764229/2025/11/02/falcons-patriots-score-result-takeaways-week-9-nfl/
 
 **Chargers-Titans takeaways: Justin Herbert helps L.A. overcome mistakes in win**\
