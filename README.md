@@ -1,3 +1,19 @@
+**After crushing World Series defeat, 3 key offseason questions for the Blue Jays**\
+`Questions loom over the futures of Bo Bichette, the starting rotation and the organization's leaders`\
+https://nytimes.com/athletic/6770148/2025/11/02/blue-jays-3-offseason-questions/
+
+**McCullough: Clayton Kershaw rides off into the sunset like he always wanted, as a champion**\
+`Kershaw's final World Series, and final outing, were as storybook as the come. “You can’t script that. You can’t write it up.”`\
+https://nytimes.com/athletic/6770129/2025/11/02/clayton-kershaw-retirement-dodgers-world-series-champion/
+
+**Van Dijk calls Rooney's Liverpool leadership criticism 'lazy'**\
+`Rooney questioned the body language of both Van Dijk and Mohamed Salah following last weekend's 3-2 defeat at Brentford.`\
+https://nytimes.com/athletic/6770491/2025/11/02/virgil-van-dijk-wayne-rooney-liverpool/
+
+**For now, Florida State can keep punting Mike Norvell decision and $55M quandary**\
+`FSU celebrated a dominant win over Wake Forest, but whether it is good enough to justify giving Norvell a seventh year remains uncertain`\
+https://nytimes.com/athletic/6770041/2025/11/02/wake-forest-florida-state-mike-norvell/
+
 **Rangers win third straight for first time in nearly a year, plus 10 observations**\
 `New York has stumbled on home ice thus far but proved itself a road warrior with a third consecutive win Saturday night to cap a long trip.`\
 https://nytimes.com/athletic/6769999/2025/11/02/new-york-rangers-win-third-straight/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6766915/2025/11/02/peyton-manning-josh-allen-places
 **'A new month': How Jared Spurgeon's players' only meeting sparked a slump-busting victory**\
 `"We really talked about things," Vinnie Hinostroza said. "We know how special this group is. ... We just got to put it together."`\
 https://nytimes.com/athletic/6769856/2025/11/02/wild-beat-canucks-jared-spurgeon-players-only-meeting/
-
-**MLB All-Playoff team features stars like Vlad, Shohei, Raleigh and Skubal**\
-`This year's All-Playoff team is dominated by stars, from MVP candidates to rookie pitchers who stepped up when it mattered most.`\
-https://nytimes.com/athletic/6767096/2025/11/02/all-playoff-team-vlad-shohei-raleigh-skubal-shine-in-star-studded-postseason/
-
-**Cubs offseason agenda: How will Jed Hoyer level up a playoff team?**\
-`The Cubs have taken a few chances while mostly utilizing a conservative approach to roster building. Will that change this offseason?`\
-https://nytimes.com/athletic/6769383/2025/11/02/cubs-offseason-agenda-jed-hoyer-trades-japanese-players/
-
-**What is the Blackhawks' identity? It's a work in progress, but it's working and progressing**\
-`Chicago got a good point against a good team. But learning to escape a game like this with two points is all part of the process.`\
-https://nytimes.com/athletic/6770098/2025/11/02/chicago-blackhawks-oilers-game-observations/
-
-**The Double Standard for Female Candidates**\
-`In the New Jersey governor’s race, the Democratic candidate, Mikie Sherrill, is polling well. So why is there so much anxiety? The journalist Molly Jong-Fast visited her campaign and found a major disconnect between the public critique and the strong candidate she saw in person.`\
-https://nytimes.com/video/opinion/100000010494154/the-double-standard-for-female-candidates.html
 
