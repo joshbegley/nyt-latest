@@ -1,3 +1,15 @@
+**O’Neil, Edwards, Carrick prominent among Wolves head coach candidates**\
+`Vitor Pereira was sacked on Sunday following the 3-0 defeat to Fulham`\
+https://nytimes.com/athletic/6770496/2025/11/02/oneil-edwards-carrick-wolves-manager-next/
+
+**Why Zohran Mamdani Isn’t Shy About Faith**\
+`The front-runner to become New York City’s mayor has deployed the language of religion to appeal to working class voters. Some experts say the Democratic Party should pay attention.`\
+https://nytimes.com/2025/11/02/briefing/why-zohran-mamdani-isnt-shy-about-faith.html
+
+**The Windup: The Game 7 this World Series deserved**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6770707/2025/11/02/world-series-game-7-windup/
+
 **Pistons' Cade Cunningham, Jalen Duren show chemistry, create career nights in Mexico City**\
 `The Pistons' win Saturday against the Mavericks foreshadowed what the Cunningham-Duren duo can become with adequate reps and time to grow.`\
 https://nytimes.com/athletic/6770270/2025/11/02/cade-cunningham-jalen-duren-pistons-mexico-city/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/two-new-c
 **Marcel Hug wins a record 7th New York City Marathon men’s wheelchair race.**\
 `Known as the Silver Bullet, he led from start to finish.`\
 https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/marcel-hug-wins-a-record-7th-new-york-city-marathon-mens-wheelchair-race
-
-**Predicting the College Football Playoff after Week 10: Virginia moves in from open ACC**\
-`Saturday delivered some shakeups to the College Football Playoff ahead of the selection committee's first rankings release on Tuesday.`\
-https://nytimes.com/athletic/6770042/2025/11/02/college-football-playoff-bracket-prediction-after-week-10/
-
-**Early voters are younger than usual this year, data shows.**\
-`By Francesca Paris and William P. Davis`\
-https://nytimes.com/live/2025/11/02/nyregion/nyc-mayor-election-news/early-voters-are-younger-than-usual-this-year-data-shows
-
-**‘S.N.L.’ Holds Its Own Debate of New York City Mayoral Hopefuls**\
-`Andrew Cuomo (Miles Teller, the host), duked it out with Zohran Mamdani (Ramy Youssef) and Curtis Sliwa (Shane Gillis). George Santos was back with a confession.`\
-https://nytimes.com/2025/11/02/arts/television/snl-debate-nyc-mayoral-hopefuls.html
 
