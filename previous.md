@@ -1,4 +1,16 @@
-**Nottingham Forest offer support to fans on train involved in mass stabbing**\
+**Isiah Kiner-Falefa was told to stay close to third. Did it cost the Blue Jays the World Series?**\
+`The Blue Jays had plenty of chances to win their first World Series since 1993. But none will be more scrutinized than IKF in the ninth.`\
+https://nytimes.com/athletic/6770725/2025/11/02/isiah-kiner-falefa-blue-jays-game-7-world-series/
+
+**Bob Trumpy, Bengals tight end and TV/radio personality, dies at 80**\
+`Trumpy, who scored the Bengals' first-ever receiving TD, went on to become a trailblazing radio host and a staple of NBC sports coverage.`\
+https://nytimes.com/athletic/6770988/2025/11/02/bob-trumpy-dies-cincinnati-bengals/
+
+**At the Start, Dogs Help Runners Relax Before the New York Marathon**\
+`To help soothe the athletes’ nerves, the New York Road Runners have for the last several years provided a bit of therapeutic support. Specifically, therapy dogs.`\
+https://nytimes.com/2025/11/02/nyregion/therapy-dogs-new-york-city-marathon.html
+
+**Forest offer support to fans on train involved in mass stabbing**\
 `Forest said many of the club's London-based fans were travelling on the train after their Premier League fixture against Manchester United.`\
 https://nytimes.com/athletic/6770923/2025/11/02/nottingham-forest-train-stabbing/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6770910/2025/11/02/hawks-vs-cavaliers-stream-how-to
 **How to watch Blue Jackets vs. Islanders: Time, TV, streaming**\
 `Find out how to watch the Columbus Blue Jackets play the New York Islanders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6770908/2025/11/02/blue-jackets-vs-islanders-stream-how-to-watch-nov-2/
-
-**How to watch Flames vs. Flyers: Time, TV, streaming**\
-`Find out how to watch the Calgary Flames play the Philadelphia Flyers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6770906/2025/11/02/flames-vs-flyers-stream-how-to-watch-nov-2/
-
-**How to watch Bulls vs. Knicks: Time, TV, streaming**\
-`Find out how to watch the Chicago Bulls play the New York Knicks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6770904/2025/11/02/bulls-vs-knicks-stream-how-to-watch-nov-2/
-
-**How to watch Grizzlies vs. Raptors: Time, TV, streaming**\
-`Find out how to watch the Memphis Grizzlies play the Toronto Raptors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6770902/2025/11/02/grizzlies-vs-raptors-stream-how-to-watch-nov-2/
 
