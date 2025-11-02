@@ -1,3 +1,7 @@
+**Rosenthal: In their path to back-to-back titles, Dodgers showcase passion, perseverance and grit**\
+`Perhaps other teams can’t spend as much money. But they sure can try to emulate the Dodgers’ other qualities.`\
+https://nytimes.com/athletic/6770381/2025/11/02/los-angeles-dodgers-world-series-champions/
+
 **Mistakes doomed the Senators against the Canadiens. Their lineup choices didn't help**\
 `Drake Batherson's errant pass led to a frustrating end for the Ottawa Senators in a game they chased, then led, then lost.`\
 https://nytimes.com/athletic/6769478/2025/11/02/senators-canadiens-batherson-spence/

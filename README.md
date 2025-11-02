@@ -1,3 +1,7 @@
+**Have Arch Manning and Texas found another gear? Here's what's changed**\
+`The Longhorns offense is suddenly on a roll, as Manning threw for 328 yards and three TDs in the 34-31 win over No. 9 Vanderbilt.`\
+https://nytimes.com/athletic/6770000/2025/11/02/texas-football-arch-manning-vanderbilt/
+
 **Rosenthal: In their path to back-to-back titles, Dodgers showcase passion, perseverance and grit**\
 `Perhaps other teams can’t spend as much money. But they sure can try to emulate the Dodgers’ other qualities.`\
 https://nytimes.com/athletic/6770381/2025/11/02/los-angeles-dodgers-world-series-champions/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/02/crosswords/connections-companion-876.html
 **Can a Painting Make a Skeptic Believe?**\
 `Fra Angelico’s work is not merely artistically significant. It is a spiritual experience.`\
 https://nytimes.com/2025/11/02/opinion/fra-angelico-artist-paintings-faith.html
-
-**Strands Sidekick No. 610**\
-`Scroll down for hints and conversation about the puzzle for Monday, Nov. 3, 2025.`\
-https://nytimes.com/2025/11/02/crosswords/strands-sidekick-610.html
 

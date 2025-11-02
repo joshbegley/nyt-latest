@@ -1,3 +1,7 @@
+**Rosenthal: In their path to back-to-back titles, Dodgers showcase passion, perseverance and grit**\
+`Perhaps other teams can’t spend as much money. But they sure can try to emulate the Dodgers’ other qualities.`\
+https://nytimes.com/athletic/6770381/2025/11/02/los-angeles-dodgers-world-series-champions/
+
 **Mistakes doomed the Senators against the Canadiens. Their lineup choices didn't help**\
 `Drake Batherson's errant pass led to a frustrating end for the Ottawa Senators in a game they chased, then led, then lost.`\
 https://nytimes.com/athletic/6769478/2025/11/02/senators-canadiens-batherson-spence/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/02/opinion/fra-angelico-artist-paintings-faith.html
 **Strands Sidekick No. 610**\
 `Scroll down for hints and conversation about the puzzle for Monday, Nov. 3, 2025.`\
 https://nytimes.com/2025/11/02/crosswords/strands-sidekick-610.html
-
-**What time does the marathon start?**\
-`By Jennie Coughlin`\
-https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/what-time-does-the-marathon-start
 
