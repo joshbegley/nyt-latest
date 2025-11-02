@@ -1,3 +1,7 @@
+**Who is favored to win the 2026 World Series? The answer won't shock you**\
+`The Dodgers opened as favorites to win the 2026 World Series with the Yankees, Phillies and Mets viewed as the top contenders.`\
+https://nytimes.com/athletic/6767993/2025/11/02/2026-world-series-odds-dodgers-yankees-phillies-mets/
+
 **Dodgers-Blue Jays Game 7 takeaways: Late-game homers, Yamamoto's MVP effort fuel repeat title**\
 `The Dodgers triumphed once again thanks to game-changing homers and 2 2/3 scoreless innings from the man who won Game 6.`\
 https://nytimes.com/athletic/6769714/2025/11/02/dodgers-blue-jays-world-series-game-7-results-takeaways-mlb/

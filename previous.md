@@ -1,3 +1,7 @@
+**Who is favored to win the 2026 World Series? The answer won't shock you**\
+`The Dodgers opened as favorites to win the 2026 World Series with the Yankees, Phillies and Mets viewed as the top contenders.`\
+https://nytimes.com/athletic/6767993/2025/11/02/2026-world-series-odds-dodgers-yankees-phillies-mets/
+
 **Dodgers-Blue Jays Game 7 takeaways: Late-game homers, Yamamoto's MVP effort fuel repeat title**\
 `The Dodgers triumphed once again thanks to game-changing homers and 2 2/3 scoreless innings from the man who won Game 6.`\
 https://nytimes.com/athletic/6769714/2025/11/02/dodgers-blue-jays-world-series-game-7-results-takeaways-mlb/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/02/business/zohran-mamdani-chinese.html
 **'The Athletic Show': Is it time to get rid of the NBA Draft?**\
 `"The Athletic Show" takes viewers beyond the box scores and into the fascinating corners of professional athletics most fans never see.`\
 https://nytimes.com/athletic/6764338/2025/11/02/the-athletic-show-nba-draft-debate/
-
-**Forget a Wedding Reception. They’ll See You at the Bar.**\
-`Some couples are forgoing fancy receptions and just going out after a small ceremony — or going home.`\
-https://nytimes.com/2025/11/02/style/small-wedding-ceremony-no-reception.html
 
