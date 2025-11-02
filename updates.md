@@ -1,3 +1,7 @@
+**Hawks' Trae Young to be re-evaluated in 4 weeks after MRI shows MCL sprain**\
+`A four-week absence means Young will miss at least 14 more games.`\
+https://nytimes.com/athletic/6769601/2025/11/01/trae-young-injury-update-mcl-out-4-weeks/
+
 **College Football Playoff 2025 projections: Miami, Vandy chances drop; North Texas rising**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/11/01/college-football-playoff-bracket-projections-odds/
