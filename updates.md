@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/11/02/nyregion/nyc-mayor-election-news/heres-the-latest
+
+**N.Y.C. Mayor’s Race Live Updates: Candidates Court Supporters on Last Day of Early Voting**\
+`Zohran Mamdani, the front-runner, and his rivals, Andrew M. Cuomo and Curtis Sliwa, are racing to turn out voters before Election Day on Tuesday. Polls are open Sunday from 9 a.m. to 5 p.m.`\
+https://nytimes.com/live/2025/11/02/nyregion/nyc-mayor-election-news
+
 **Police Arrest Two British Men in Stabbing Rampage on Train**\
 `U.K. officials said they did not believe the attack on a train to London was connected to terrorism. Two of the 11 people wounded in the stabbing spree remain in critical condition, the police said.`\
 https://nytimes.com/2025/11/02/world/europe/uk-train-stabbing-huntingdon.html

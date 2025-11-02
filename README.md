@@ -1,3 +1,11 @@
+**How to watch Pelicans vs. Thunder: Time, TV, streaming**\
+`Find out how to watch the New Orleans Pelicans play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6770595/2025/11/02/pelicans-vs-thunder-stream-how-to-watch-nov-2/
+
+**How to watch Lightning vs. Mammoth: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the Utah Mammoth, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6770593/2025/11/02/lightning-vs-mammoth-stream-how-to-watch-nov-2/
+
 **Here’s the latest.**\
 `By Benjamin Oreskes`\
 https://nytimes.com/live/2025/11/02/nyregion/nyc-mayor-election-news/heres-the-latest
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6770262/2025/11/02/mavericks-cooper-flagg-strugglin
 **Canadiens driven by the power of confidence, coach who understands it intimately**\
 `From Sam Montembeault to Jayden Struble to Ivan Demidov to Alex Newhook, a Canadiens win Saturday was defined by confidence from its coach.`\
 https://nytimes.com/athletic/6770142/2025/11/02/canadiens-driven-confidence-coach/
-
-**The New Host of The Morning**\
-`I’m Sam Sifton. Before we get to the news today, I’d like to tell you a little about myself. You ought to know who’s writing to you.`\
-https://nytimes.com/2025/11/02/world/sam-sifton-new-york-city-marathon-dodgers.html
-
-**After crushing World Series defeat, 3 key offseason questions for the Blue Jays**\
-`Questions loom over the futures of Bo Bichette, the starting rotation and the organization's leaders`\
-https://nytimes.com/athletic/6770148/2025/11/02/blue-jays-3-offseason-questions/
 
