@@ -1,3 +1,19 @@
+**Gangster. Gutsy. Greatness. Yoshinobu Yamamoto authors a World Series for the ages**\
+`The Dodger pitcher's three-win MVP effort left his teammates astounded throughout the Fall Classic. `\
+https://nytimes.com/athletic/6770420/2025/11/02/yoshinobu-yamamoto-dodgers-world-series-mvp/
+
+**Where are the best places to cheer?**\
+`By Jennie Coughlin`\
+https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/where-are-the-best-places-to-cheer
+
+**From Miggy's shot to Yamamoto's MVP, 10 moments to remember from an all-time World Series Game 7**\
+`Less than a week after Game 3 was all anyone could talk about, Game 7 of the 2025 World Series delivered an all-timer with epic scope.`\
+https://nytimes.com/athletic/6770028/2025/11/02/world-series-game-7-dodgers-blue-jays-10-moments/
+
+**Blue Jays fans mourn World Series loss to Dodgers and what could have been**\
+`Fans of "Canada's team" were left devastated after the Blue Jays suffered a heartbreaking loss to the Dodgers in Game 7 of the World Series.`\
+https://nytimes.com/athletic/6770196/2025/11/02/toronto-blue-jays-fans-world-series-loss-dodgers/
+
 **Have Arch Manning and Texas found another gear? Here's what's changed**\
 `The Longhorns offense is suddenly on a roll, as Manning threw for 328 yards and three TDs in the 34-31 win over No. 9 Vanderbilt.`\
 https://nytimes.com/athletic/6770000/2025/11/02/texas-football-arch-manning-vanderbilt/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/11/02/podcasts/the-daily/sunday-special-the-year-in-gam
 **Mexico’s Dead Demand a Reckoning**\
 `The sheer scale of everyday horror has shaken Mexico’s traditional relationship with death.`\
 https://nytimes.com/2025/11/02/opinion/mexico-day-of-the-dead.html
-
-**Bill Gates Has a Point**\
-`Climate change is not a giant meteor crashing into Earth. We will not all suffer equally.`\
-https://nytimes.com/2025/11/02/opinion/bill-gates-climate-change-apocalypse.html
-
-**Wordle Review No. 1598**\
-`Scroll down for hints and conversation about the puzzle for Monday, Nov. 3, 2025.`\
-https://nytimes.com/2025/11/02/crosswords/wordle-review-1598.html
-
-**Connections Companion No. 876**\
-`Scroll down for hints and conversation about the puzzle for Monday, Nov. 3, 2025.`\
-https://nytimes.com/2025/11/02/crosswords/connections-companion-876.html
-
-**Can a Painting Make a Skeptic Believe?**\
-`Fra Angelico’s work is not merely artistically significant. It is a spiritual experience.`\
-https://nytimes.com/2025/11/02/opinion/fra-angelico-artist-paintings-faith.html
 
