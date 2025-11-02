@@ -1,3 +1,7 @@
+**Marcel Hug and Susannah Scaroni Are the Wheelchair Winners, Again.**\
+`Hug and Scaroni were also dual champions in 2022, when they both set course records.`\
+https://nytimes.com/2025/11/02/nyregion/marcel-hug-susannah-scaroni-nyc-marathon.html
+
 **O’Neil, Edwards, Carrick prominent among Wolves head coach candidates**\
 `Vitor Pereira was sacked on Sunday following the 3-0 defeat to Fulham`\
 https://nytimes.com/athletic/6770496/2025/11/02/oneil-edwards-carrick-wolves-manager-next/

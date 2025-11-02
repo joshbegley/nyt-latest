@@ -1,3 +1,7 @@
+**Marcel Hug and Susannah Scaroni Are the Wheelchair Winners, Again.**\
+`Hug and Scaroni were also dual champions in 2022, when they both set course records.`\
+https://nytimes.com/2025/11/02/nyregion/marcel-hug-susannah-scaroni-nyc-marathon.html
+
 **O’Neil, Edwards, Carrick prominent among Wolves head coach candidates**\
 `Vitor Pereira was sacked on Sunday following the 3-0 defeat to Fulham`\
 https://nytimes.com/athletic/6770496/2025/11/02/oneil-edwards-carrick-wolves-manager-next/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/11/02/us/trump-news/at-least-3-people-are-killed-i
 **Two new crossing points for pedestrians in Manhattan and Brooklyn.**\
 `By Jennie Coughlin`\
 https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/two-new-crossing-points-for-pedestrians-in-manhattan-and-brooklyn
-
-**Marcel Hug wins a record 7th New York City Marathon men’s wheelchair race.**\
-`Known as the Silver Bullet, he led from start to finish.`\
-https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/marcel-hug-wins-a-record-7th-new-york-city-marathon-mens-wheelchair-race
 
