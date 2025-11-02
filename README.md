@@ -1,3 +1,23 @@
+**The weather is ideal for New York City to turn out for the world’s largest road race.**\
+`By Scott Cacciola`\
+https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/the-weather-is-ideal-for-new-york-city-to-turn-out-for-the-worlds-largest-road-race
+
+**Josh Allen vs. Patrick Mahomes, Part 10, test for red-hot Colts highlight Week 9 NFL action**\
+`Two of this generation's premier quarterbacks square off again with Allen looking to improve on his 4-1 regular-season mark vs. Mahomes.`\
+https://nytimes.com/athletic/6764068/2025/11/02/nfl-week-9-storylines-josh-allen-patrick-mahomes/
+
+**The New York Times International Edition in Print for Monday, Nov. 3, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/11/02/todays-new-york-times-international-edition
+
+**Welcome to Marathon Day! 55,000 Athletes Are Heading to the Start**\
+`Eliud Kipchoge, the two-time Olympic marathon champion, is making his New York debut, and Sifan Hassan will be competing just nine weeks after winning the Sydney Marathon.`\
+https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates
+
+**That Time When China’s Leader Joked About Espionage**\
+`Xi Jinping gave two cellphones to South Korea’s president, who asked how secure they were. “You can check if there’s a backdoor,” he said with a laugh.`\
+https://nytimes.com/2025/11/02/world/asia/xi-jinping-china-south-korea-spying.html
+
 **‘I’m Going to Stretch It’: Anxiety Over SNAP Leads to Hard Choices**\
 `At one grocery store in Massachusetts, SNAP recipients faced growing fears, dwindling funds and lighter shopping carts.`\
 https://nytimes.com/2025/11/02/us/im-going-to-stretch-it-anxiety-over-snap-leads-to-hard-choices.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/11/02/us/politics/trump-strategy-food-stamps.html
 **Will Trump’s Tariff Deal Tilt the Playing Field Back Toward China?**\
 `The president’s trade truce with China has lowered U.S. tariffs to a level that could pause a longer-term effort to reduce America’s dependence on Beijing.`\
 https://nytimes.com/2025/11/02/business/economy/trump-tariff-deal-china.html
-
-**Anger Over ICE Raids Is Driving Some Latino Voters to the Polls**\
-`Democrats are concerned that the immigration crackdown will hurt Latino turnout on Tuesday. Republicans dispute that the raids will play any role in the election.`\
-https://nytimes.com/2025/11/02/us/politics/elections-latino-turnout-ice-raids.html
-
-**Builders Find Hardship in Trump’s Tariffs and Deportations**\
-`Material costs are rising, workers are scarce and customers are delaying new construction plans.`\
-https://nytimes.com/2025/11/02/business/construction-tariffs-immigration-trump.html
-
-**Anger Over Immigration Raids Motivates Some Latino Voters**\
-`In Bell Gardens, a city in southeast Los Angeles County, early voters said that anger and frustration over months of aggressive immigration enforcement in their neighborhoods had prompted them to participate in this year’s election.`\
-https://nytimes.com/video/us/elections/100000010487891/mmigration-raids-motivate-latino-voters.html
-
-**Cleaning Bones for Day of the Dead**\
-`Practitioners of an annual ritual to clean deceased relatives’ bones are grappling with a new challenge: tourists. Jack Nicas, our Mexico City bureau chief, visits Pomuch, a town in Eastern Mexico that celebrates Día de Muertos unlike any other place.`\
-https://nytimes.com/video/world/americas/100000010490142/cleaning-bones-for-day-of-the-dead.html
-
-**Democrats Running for Governor Stick to a Familiar Theme: Fight Trump**\
-`While other Democrats have tried to address their party’s failings with new strategies, Abigail Spanberger in Virginia and Mikie Sherrill in New Jersey are hoping to once again tap into anger at the president.`\
-https://nytimes.com/2025/11/02/us/politics/virginia-new-jersey-democrats.html
 
