@@ -1,3 +1,11 @@
+**Panthers RB Rico Dowdle penalized for 'Key & Peele'-inspired TD celebration**\
+`New England's Stefon Diggs did a similar celebration earlier Sunday and was not penalized.`\
+https://nytimes.com/athletic/6771462/2025/11/02/rico-dowdle-penalty-key-and-peele/
+
+**F.D.A. Drug Unit Chief Is Placed on Leave, and Cites a ‘Toxic’ Environment**\
+`The official, Dr. George F. Tidmarsh, a top regulator at the agency, said disagreements over a new program to rapidly approve medications had caused tensions with agency officials.`\
+https://nytimes.com/2025/11/02/health/fda-drug-unit-chief.html
+
 **A Thrilling Finish to N.Y.C. Marathon as Kenyans Dominate Elite Races**\
 `It was a record-setting day as more than 50,000 athletes packed the streets for the 2025 New York City Marathon. Benson Kipruto and Hellen Obiri triumphed.`\
 https://nytimes.com/2025/11/02/nyregion/nyc-marathon-elite-races-winners-records.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6771424/2025/11/02/dylan-raiola-injury-nebraska-foo
 **Chargers star tackle Joe Alt carted off with ankle injury, ruled questionable**\
 `Alt missed three games earlier this season with a right high ankle sprain.`\
 https://nytimes.com/athletic/6771340/2025/11/02/chargers-joe-alt-injury-leaves-game/
-
-**Defense Lawyers Demand Dismissal of Abuse Case Against Israeli Soldiers**\
-`The chief legal officer of Israel’s military resigned after authorizing the leak of a video in the case involving grave abuse of a Palestinian detainee. That further politicized a fraught case.`\
-https://nytimes.com/2025/11/02/world/middleeast/abuse-case-israeli-soldiers-dismissal.html
-
-**How to watch Heat vs. Lakers: Time, TV, streaming**\
-`Find out how to watch the Miami Heat play the Los Angeles Lakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6771361/2025/11/02/heat-vs-lakers-stream-how-to-watch-nov-2/
 
