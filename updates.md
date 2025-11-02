@@ -1,3 +1,7 @@
+**Leafs' Chris Tanev stretchered off ice after collision with Matvei Michkov**\
+`The head-to-head contact looked to be accidental, and Michkov was given a two-minute minor for interference on the play.`\
+https://nytimes.com/athletic/6769713/2025/11/01/maple-leafs-chris-tanev-injury-flyers-michkov/
+
 **In rocky start, Shohei Ohtani's delays between innings become point of contention**\
 `Jays manager John Schneider met with umpires to discuss the time Ohtani was receiving between innings.`\
 https://nytimes.com/athletic/6769648/2025/11/01/shohei-ohtani-pitching-game-7-warmup-delay/
