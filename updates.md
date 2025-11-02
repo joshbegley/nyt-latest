@@ -1,3 +1,19 @@
+**How LeBron James, Billie Jean King and other sports icons reacted to Saturday's epic Game 7**\
+`All-time greats from across the sports landscape were left in awe by Saturday's classic Game 7.`\
+https://nytimes.com/athletic/6770660/2025/11/02/world-series-game-seven-sports-world-reactions/
+
+**Yoshinobu Yamamoto's best rookie card still hasn't been claimed**\
+`As collectors scramble to acquire the World Series MVP's rookie cards, the very best one is still waiting to be pulled.`\
+https://nytimes.com/athletic/6770790/2025/11/02/yoshinobu-yamamoto-debut-patch-rookie-card/
+
+**Syria’s President to Visit Washington for First Time Since Taking Power**\
+`The president, Ahmed al-Shara, was, until recently, wanted by the United States as a terrorist with a $10 million bounty on his head.`\
+https://nytimes.com/2025/11/02/us/politics/syrian-president-al-shara-washington-visit.html
+
+**Benson Kipruto wins New York City Marathon in thrilling photo finish**\
+`Hellen Obiri sets a course record while winning on the women's side.`\
+https://nytimes.com/athletic/6770979/2025/11/02/new-york-marathon-benson-kipruto-photo-finish/
+
 **Isiah Kiner-Falefa was told to stay close to third. Did it cost the Blue Jays the World Series?**\
 `The Blue Jays had plenty of chances to win their first World Series since 1993. But none will be more scrutinized than IKF in the ninth.`\
 https://nytimes.com/athletic/6770725/2025/11/02/isiah-kiner-falefa-blue-jays-game-7-world-series/

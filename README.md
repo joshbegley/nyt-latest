@@ -1,3 +1,11 @@
+**At 74, He Started Running. At 91, He’s a Marathoner.**\
+`This is Koichi Kitabatake’s third New York City Marathon. He is one of only seven nonagenarian runners in the race’s history.`\
+https://nytimes.com/2025/11/02/nyregion/oldest-runner-nyc-marathon.html
+
+**5 German Climbers Are Killed by Avalanche in Italian Alps**\
+`The climbers were in two groups in northern Italy on Saturday night when an avalanche struck. Two people survived.`\
+https://nytimes.com/2025/11/02/world/europe/german-mountaineers-killed-avalanche-italy.html
+
 **How LeBron James, Billie Jean King and other sports icons reacted to Saturday's epic Game 7**\
 `All-time greats from across the sports landscape were left in awe by Saturday's classic Game 7.`\
 https://nytimes.com/athletic/6770660/2025/11/02/world-series-game-seven-sports-world-reactions/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/02/nyregion/therapy-dogs-new-york-city-marathon.html
 **Forest offer support to fans on train involved in mass stabbing**\
 `Forest said many of the club's London-based fans were travelling on the train after their Premier League fixture against Manchester United.`\
 https://nytimes.com/athletic/6770923/2025/11/02/nottingham-forest-train-stabbing/
-
-**Benson Kipruto wins the men’s race.**\
-`By Scott Cacciola`\
-https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/benson-kipruto-wins-the-mens-race
-
-**Lowetide: Oilers avoid October crisis but it still feels like a missed opportunity**\
-`Picking the Oilers, as currently populated, to return to the Stanley Cup Final for the third year in a row is unwise.`\
-https://nytimes.com/athletic/6768948/2025/11/02/edmonton-oilers-stats-standings-2025/
 
