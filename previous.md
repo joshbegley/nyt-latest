@@ -1,3 +1,7 @@
+**Colts-Steelers takeaways: Daniel Jones commits 5 turnovers in Pittsburgh win**\
+`The mistakes were too much to overcome for the Colts, who lost despite outgaining the Steelers 368-225.`\
+https://nytimes.com/athletic/6771136/2025/11/02/colts-steelers-score-result-takeaways-week-9-nfl/
+
 **Vikings-Lions takeaways: J.J. McCarthy's return sparks Minnesota to win**\
 `QB injects life into a Vikings team that had been reeling, throwing for two touchdowns and running for another. `\
 https://nytimes.com/athletic/6771218/2025/11/02/vikings-lions-score-result-takeaways-week-9-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6771140/2025/11/02/chargers-titans-score-result-tak
 **The New York City Marathon in Photos and Videos**\
 `Some 55,000 people came out to race through the five boroughs on a sunny Sunday.`\
 https://nytimes.com/2025/11/02/nyregion/nyc-marathon-photos-videos.html
-
-**A Massacre Unfolding in Sudan**\
-`My colleague Declan Walsh writes about the humanitarian crisis in Darfur — and how the world is now largely looking away.`\
-https://nytimes.com/2025/11/02/world/darfur-sudan-ukraine-jamaica-japan.html
 

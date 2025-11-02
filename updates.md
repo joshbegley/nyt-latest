@@ -1,3 +1,7 @@
+**Colts-Steelers takeaways: Daniel Jones commits 5 turnovers in Pittsburgh win**\
+`The mistakes were too much to overcome for the Colts, who lost despite outgaining the Steelers 368-225.`\
+https://nytimes.com/athletic/6771136/2025/11/02/colts-steelers-score-result-takeaways-week-9-nfl/
+
 **Vikings-Lions takeaways: J.J. McCarthy's return sparks Minnesota to win**\
 `QB injects life into a Vikings team that had been reeling, throwing for two touchdowns and running for another. `\
 https://nytimes.com/athletic/6771218/2025/11/02/vikings-lions-score-result-takeaways-week-9-nfl/

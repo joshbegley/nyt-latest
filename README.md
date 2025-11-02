@@ -6,6 +6,10 @@ https://nytimes.com/athletic/6771136/2025/11/02/colts-steelers-score-result-take
 `QB injects life into a Vikings team that had been reeling, throwing for two touchdowns and running for another. `\
 https://nytimes.com/athletic/6771218/2025/11/02/vikings-lions-score-result-takeaways-week-9-nfl/
 
+**Swinney fined $10,000 for ripping fourth-down PI in loss to Duke: 'One of the worst calls'**\
+`Given new life by a late penalty, Duke snapped a 15-game losing streak at Clemson that dates back to 1980.`\
+https://nytimes.com/athletic/6769271/2025/11/02/dabo-swinney-clemson-duke-pass-interference-penalty/
+
 **Broncos-Texans takeaways: Stroud leaves game, Broncos show late-game heroics**\
 `Bo Nix finds rhythm in fourth quarter`\
 https://nytimes.com/athletic/6771025/2025/11/02/broncos-texans-score-result-takeaways-week-9-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6764229/2025/11/02/falcons-patriots-score-result-ta
 **Chargers-Titans takeaways: Justin Herbert helps L.A. overcome mistakes in win**\
 `Justin Herbert threw a pick six in the first quarter, but the Chargers rallied to win their second straight.`\
 https://nytimes.com/athletic/6771140/2025/11/02/chargers-titans-score-result-takeaways-week-9-nfl/
-
-**The New York City Marathon in Photos and Videos**\
-`Some 55,000 people came out to race through the five boroughs on a sunny Sunday.`\
-https://nytimes.com/2025/11/02/nyregion/nyc-marathon-photos-videos.html
 
