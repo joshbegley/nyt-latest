@@ -1,3 +1,7 @@
+**A New York marathon tradition: getting your name in The New York Times.**\
+`By Taylor Robinson`\
+https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/a-new-york-marathon-tradition-getting-your-name-in-the-new-york-times
+
 **Still parts ways with Southampton after 16 games in charge**\
 `Ruben Martinez, Clément Lemaitre and Carl Martin have also left their positions as coaching staff at the club.`\
 https://nytimes.com/athletic/6739294/2025/11/02/will-still-southampton-parts-ways-championship/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6770793/2025/11/02/auburn-football-coaching-search-
 **N.Y.C. rabbi moves off sidelines to condemn Mamdani amid Jewish divide.**\
 `Rabbi Angela Buchdahl of Central Synagogue in Manhattan took issue with Zohran Mamdani’s view of Israel, but said that religious leaders should not be in the endorsement business.`\
 https://nytimes.com/live/2025/11/02/nyregion/nyc-mayor-election-news/nyc-rabbi-moves-off-sidelines-to-condemn-mamdani-amid-jewish-divide
-
-**8 Memorable Looks at the New York City Marathon**\
-`Held on a Halloween weekend, this year’s race had a mother-and-daughter duo dressed as cows, a human-size banana and Ken (without Barbie).`\
-https://nytimes.com/2025/11/02/style/new-york-marathon-fashion.html
 
