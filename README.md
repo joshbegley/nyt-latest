@@ -1,3 +1,11 @@
+**Mavs coach Jason Kidd suggests Kyrie Irving could return from injury before end of 2025**\
+`Until Saturday in Mexico City, the Mavericks were hesitant to put any sort of timetable on Irving's return, which Kidd says may be in 2025.`\
+https://nytimes.com/athletic/6769656/2025/11/01/kyrie-irving-return-jason-kidd/
+
+**Nebraska QB Dylan Raiola leaves USC game in third quarter with injury**\
+`He was injured when hit by defensive end Anthony Lucas on a first-down play from the USC 23-yard line.`\
+https://nytimes.com/athletic/6769747/2025/11/01/usc-nebraska-dylan-raiola-injury/
+
 **Dodgers', Blue Jays' benches empty in 4th after Andrés Giménez hit by pitch**\
 `Players from both benches and bullpens collected in the infield, but there were no punches or ejections.`\
 https://nytimes.com/athletic/6769704/2025/11/01/world-series-game-7-benches-clear-gimenez-wrobleski/
@@ -11,7 +19,7 @@ https://nytimes.com/athletic/6769707/2025/11/01/nashville-beats-inter-miami-push
 https://nytimes.com/athletic/6769622/2025/11/01/georgia-florida-comeback-win-college-football/
 
 **Leafs' Chris Tanev stretchered off ice after collision with Matvei Michkov**\
-`Tanev took accidental head-to-head contact in his first game back from a concussion he suffered on Oct. 21 against New Jersey.`\
+`Tanev took accidental head-to-head contact in his first game back from a concussion he suffered Oct. 21 against New Jersey.`\
 https://nytimes.com/athletic/6769713/2025/11/01/maple-leafs-chris-tanev-injury-flyers-michkov/
 
 **In rocky start, Shohei Ohtani's delays between innings become point of contention**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/01/world/europe/britain-stabbing-train.html
 **Hawks' Trae Young to be re-evaluated in 4 weeks after MRI shows MCL sprain**\
 `A four-week absence means Young will miss at least 14 more games.`\
 https://nytimes.com/athletic/6769601/2025/11/01/trae-young-injury-update-mcl-out-4-weeks/
-
-**College Football Playoff 2025 projections: Miami, Vandy chances drop; North Texas rising**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/11/01/college-football-playoff-bracket-projections-odds/
-
-**Doc Rivers on possible SNAP delays: 'We're talking about kids not getting food'**\
-`The Milwaukee Bucks coach delivered an impassioned statement about government food assistance potentially being delayed.`\
-https://nytimes.com/athletic/6769242/2025/11/01/milwaukee-bucks-doc-rivers-snap/
 

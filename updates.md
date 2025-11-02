@@ -1,3 +1,11 @@
+**Dodgers', Blue Jays' benches empty in 4th after Andrés Giménez hit by pitch**\
+`Players from both benches and bullpens collected in the infield, but there were no punches or ejections.`\
+https://nytimes.com/athletic/6769704/2025/11/01/world-series-game-7-benches-clear-gimenez-wrobleski/
+
+**Nashville beats Inter Miami, pushes Messi to a familiar playoff brink**\
+`Lionel Messi and Inter Miami lost in Nashville and now face a nervy Game 3 to decide the series as they seek to avoid a first round exit.`\
+https://nytimes.com/athletic/6769707/2025/11/01/nashville-beats-inter-miami-pushes-lionel-messi-to-a-familiar-playoff-brink/
+
 **Georgia has mastered the fourth-quarter comeback. But it's not sustainable**\
 `If Georgia wants to win a national championship this year, it must show better focus, play and execution across four quarters.`\
 https://nytimes.com/athletic/6769622/2025/11/01/georgia-florida-comeback-win-college-football/
