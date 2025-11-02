@@ -1,3 +1,7 @@
+**Benson Kipruto wins the men’s race.**\
+`By Scott Cacciola`\
+https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/benson-kipruto-wins-the-mens-race
+
 **Benson Kipruto win’s the men’s race.**\
 `By Scott Cacciola`\
 https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/benson-kipruto-wins-the-mens-race
