@@ -1,3 +1,23 @@
+**Defense Lawyers Demand Dismissal of Abuse Case Against Israeli Soldiers**\
+`The chief legal officer of Israel’s military resigned after authorizing the leak of a video in the case involving grave abuse of a Palestinian detainee. That further politicized a fraught case.`\
+https://nytimes.com/2025/11/02/world/middleeast/abuse-case-israeli-soldiers-dismissal.html
+
+**How to watch Heat vs. Lakers: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Los Angeles Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6771361/2025/11/02/heat-vs-lakers-stream-how-to-watch-nov-2/
+
+**How to watch Spurs vs. Suns: Time, TV, streaming**\
+`Find out how to watch the San Antonio Spurs play the Phoenix Suns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6771359/2025/11/02/spurs-vs-suns-stream-how-to-watch-nov-2/
+
+**How to watch Red Wings vs. Sharks: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the San Jose Sharks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6771357/2025/11/02/red-wings-vs-sharks-stream-how-to-watch-nov-2/
+
+**How to watch Devils vs. Ducks: Time, TV, streaming**\
+`Find out how to watch the New Jersey Devils play the Anaheim Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6771352/2025/11/02/devils-vs-ducks-stream-how-to-watch-nov-2/
+
 **A New York marathon tradition: getting your name in The New York Times.**\
 `By Taylor Robinson`\
 https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/a-new-york-marathon-tradition-getting-your-name-in-the-new-york-times
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6771221/2025/11/02/ap-top-25-cfp-rankings-notre-dam
 **‘Keep Listening’: An Undecided Republican Lawmaker Weighs New Voting Maps**\
 `As redistricting efforts spread across the country, an Indiana state senator said he isn’t sure how he will vote on a plan that President Trump supports.`\
 https://nytimes.com/2025/11/02/us/indiana-redistricting-terre-haute.html
-
-**C.J. Stroud exits game after hard hit, being evaluated for concussion**\
-`After taking a hard hit to the shoulder while sliding, Stroud headed to the locker room.`\
-https://nytimes.com/athletic/6771234/2025/11/02/c-j-stroud-exits-texans-broncos-concussion/
-
-**India win maiden cricket World Cup after beating South Africa**\
-`The hosts had made the final after beating defending champions Australia, ending their run of 15 consecutive match wins in the tournament.`\
-https://nytimes.com/athletic/6771219/2025/11/02/india-cricket-world-cup-win-women/
-
-**Ranking college football's 12 open coaching jobs: LSU No. 1; where does Auburn sit?**\
-`This could be the most active coaching carousel college football has seen in many years.`\
-https://nytimes.com/athletic/6662286/2025/11/02/college-football-open-coaching-jobs-rankings/
-
-**Auburn job profile: What is realistic on The Plains in the new SEC?**\
-`High-level consistency is hard to come by at Auburn. What does that mean for the coaching search ahead?`\
-https://nytimes.com/athletic/6770793/2025/11/02/auburn-football-coaching-search-job-profile/
-
-**N.Y.C. rabbi moves off sidelines to condemn Mamdani amid Jewish divide.**\
-`Rabbi Angela Buchdahl of Central Synagogue in Manhattan took issue with Zohran Mamdani’s view of Israel, but said that religious leaders should not be in the endorsement business.`\
-https://nytimes.com/live/2025/11/02/nyregion/nyc-mayor-election-news/nyc-rabbi-moves-off-sidelines-to-condemn-mamdani-amid-jewish-divide
 
