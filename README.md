@@ -1,3 +1,7 @@
+**Vladimir Tarasenko breaks out as Wild get a much-needed win: Takeaways**\
+`The Wild never trailed, were perfect on the penalty kill and looked dominant on home ice during a 5-2 win over the injury-riddled Canucks.`\
+https://nytimes.com/athletic/6769504/2025/11/01/wild-canucks-vladimir-tarasenko-takeaways/
+
 **NC State hands Georgia Tech first loss, adding to mess in ACC's CFP race**\
 `The Wolfpack has now capitalized on their last two opportunities to take down a top-10 team at home.`\
 https://nytimes.com/athletic/6769810/2025/11/01/nc-state-georgia-tech-acc-playoff-race/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6769704/2025/11/01/world-series-game-7-benches-clea
 **Nashville beats Inter Miami, pushes Messi to a familiar playoff brink**\
 `Lionel Messi and Inter Miami lost in Nashville and now face a nervy Game 3 to decide the series as they seek to avoid a first round exit.`\
 https://nytimes.com/athletic/6769707/2025/11/01/nashville-beats-inter-miami-pushes-lionel-messi-playoff-brink/
-
-**Georgia has mastered the fourth-quarter comeback. But it's not sustainable**\
-`If Georgia wants to win a national championship this year, it must show better focus, play and execution across four quarters.`\
-https://nytimes.com/athletic/6769622/2025/11/01/georgia-florida-comeback-win-college-football/
 

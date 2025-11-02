@@ -1,3 +1,7 @@
+**USC vs. Nebraska: Huskers still can't beat a ranked opponent, QB Dylan Raiola hurt**\
+`Raiola was injured when hit by defensive end Anthony Lucas on a first-down play from the USC 23-yard line.`\
+https://nytimes.com/athletic/6769747/2025/11/01/usc-nebraska-dylan-raiola-injury/
+
 **NC State hands Georgia Tech first loss, adding to mess in ACC's CFP race**\
 `The Wolfpack has now capitalized on their last two opportunities to take down a top-10 team at home.`\
 https://nytimes.com/athletic/6769810/2025/11/01/nc-state-georgia-tech-acc-playoff-race/
