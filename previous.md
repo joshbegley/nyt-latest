@@ -1,3 +1,7 @@
+**Sunday Sauce**\
+`In many Italian American households, Sunday means there’s red sauce simmering all day on the stove.`\
+https://nytimes.com/video/dining/100000010366558/sunday-sauce.html
+
 **Tracking Tropical Storm Kalmaegi**\
 `See the likely path and wind arrival times for Kalmaegi`\
 https://nytimes.com/interactive/2025/11/02/weather/kalmaegi-map-path-tracker.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/11/02/nyregion/nyc-mayor-election-news
 **Police Arrest Two British Men in Stabbing Rampage on Train**\
 `U.K. officials said they did not believe the attack on a train to London was connected to terrorism. Two of the 11 people wounded in the stabbing spree remain in critical condition, the police said.`\
 https://nytimes.com/2025/11/02/world/europe/uk-train-stabbing-huntingdon.html
-
-**Mandel's Final Thoughts: Texas still has its goals intact. Miami? Not so much**\
-`What we learned in Week 10 of the college football season about trusting Miami, the wild ACC, Texas ascending and much more.`\
-https://nytimes.com/athletic/6770201/2025/11/02/college-football-scores-results-week-10/
 

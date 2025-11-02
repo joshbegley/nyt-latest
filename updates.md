@@ -1,3 +1,7 @@
+**Sunday Sauce**\
+`In many Italian American households, Sunday means there’s red sauce simmering all day on the stove.`\
+https://nytimes.com/video/dining/100000010366558/sunday-sauce.html
+
 **Tracking Tropical Storm Kalmaegi**\
 `See the likely path and wind arrival times for Kalmaegi`\
 https://nytimes.com/interactive/2025/11/02/weather/kalmaegi-map-path-tracker.html
