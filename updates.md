@@ -1,3 +1,15 @@
+**Marcel Hug wins a record 7th New York City Marathon men’s wheelchair race.**\
+`Known as the Silver Bullet, he led from start to finish.`\
+https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/marcel-hug-wins-a-record-7th-new-york-city-marathon-mens-wheelchair-race
+
+**Predicting the College Football Playoff after Week 10: Virginia moves in from open ACC**\
+`Saturday delivered some shakeups to the College Football Playoff ahead of the selection committee's first rankings release on Tuesday.`\
+https://nytimes.com/athletic/6770042/2025/11/02/college-football-playoff-bracket-prediction-after-week-10/
+
+**Early voters are younger than usual this year, data shows.**\
+`By Francesca Paris and William P. Davis`\
+https://nytimes.com/live/2025/11/02/nyregion/nyc-mayor-election-news/early-voters-are-younger-than-usual-this-year-data-shows
+
 **Sunday Sauce**\
 `In many Italian American households, Sunday means there’s red sauce simmering all day on the stove. Here’s how to make Sunday sauce.`\
 https://nytimes.com/video/dining/100000010366558/sunday-sauce.html
