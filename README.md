@@ -1,3 +1,7 @@
+**Chargers-Titans takeaways: Justin Herbert helps L.A. overcome mistakes in win**\
+`Justin Herbert threw a pick six in the first quarter, but the Chargers rallied to win their second straight.`\
+https://nytimes.com/athletic/6771140/2025/11/02/chargers-titans-score-result-takeaways-week-9-nfl/
+
 **The New York City Marathon in Photos and Videos**\
 `Some 55,000 people came out to race through the five boroughs on a sunny Sunday.`\
 https://nytimes.com/2025/11/02/nyregion/nyc-marathon-photos-videos.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/hes-plann
 **How Chelsea's press smothered Spurs - the perfect illustration of exploiting weakness**\
 `The most impressive thing about Chelsea's press against Tottenham was that they covered the majority of Tottenham's solutions`\
 https://nytimes.com/athletic/6770380/2025/11/02/chelsea-press-tottenham-frank-maresca/
-
-**Aston Villa's all-or-nothing approach is risky and against Liverpool it failed**\
-`Aston Villa are struggling to create clear chances and avoidable errors were punished by Liverpool at Anfield`\
-https://nytimes.com/athletic/6769641/2025/11/02/aston-villa-liverpool-tactics-analysis/
 
