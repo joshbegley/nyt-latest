@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6769656/2025/11/01/kyrie-irving-return-jason-kidd/
 `He was injured when hit by defensive end Anthony Lucas on a first-down play from the USC 23-yard line.`\
 https://nytimes.com/athletic/6769747/2025/11/01/usc-nebraska-dylan-raiola-injury/
 
-**Dodgers', Blue Jays' benches empty in 4th after Andrés Giménez hit by pitch**\
+**Dodgers', Blue Jays' benches empty in fourth after Andrés Giménez hit by pitch**\
 `Players from both benches and bullpens collected in the infield, but there were no punches or ejections.`\
 https://nytimes.com/athletic/6769704/2025/11/01/world-series-game-7-benches-clear-gimenez-wrobleski/
 
