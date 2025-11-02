@@ -1,3 +1,7 @@
+**The New York City Marathon in Photos and Videos**\
+`Some 55,000 people came out to race through the five boroughs on a sunny Sunday.`\
+https://nytimes.com/2025/11/02/nyregion/nyc-marathon-photos-videos.html
+
 **A Massacre Unfolding in Sudan**\
 `My colleague Declan Walsh writes about the humanitarian crisis in Darfur — and how the world is now largely looking away.`\
 https://nytimes.com/2025/11/02/world/darfur-sudan-ukraine-jamaica-japan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6770380/2025/11/02/chelsea-press-tottenham-frank-ma
 **Aston Villa's all-or-nothing approach is risky and against Liverpool it failed**\
 `Aston Villa are struggling to create clear chances and avoidable errors were punished by Liverpool at Anfield`\
 https://nytimes.com/athletic/6769641/2025/11/02/aston-villa-liverpool-tactics-analysis/
-
-**Nebraska QB Raiola out for season with broken fibula**\
-`Raiola ends his sophomore season with 2,000 yards passing in nine games. True freshman TJ Lateef is expected to take over as starter.`\
-https://nytimes.com/athletic/6771424/2025/11/02/dylan-raiola-injury-nebraska-football/
 
