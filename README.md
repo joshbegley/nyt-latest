@@ -1,3 +1,7 @@
+**Dodgers-Blue Jays Game 7 takeaways: Late-game homers, Yamamoto's MVP effort fuel repeat title**\
+`The Dodgers triumphed once again thanks to game-changing homers and 2 2/3 scoreless innings from the man who won Game 6.`\
+https://nytimes.com/athletic/6769714/2025/11/02/dodgers-blue-jays-world-series-game-7-results-takeaways-mlb/
+
 **Death Toll Rises From Hurricane Melissa as Many Communities Remain Cut off**\
 `Authorities have yet to reach dozens of communities in Jamaica, raising the question of how many people really died in last week’s storm.`\
 https://nytimes.com/2025/11/02/world/americas/jamaica-hurricane-melissa-death-toll.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6764338/2025/11/02/the-athletic-show-nba-draft-deba
 **Forget a Wedding Reception. They’ll See You at the Bar.**\
 `Some couples are forgoing fancy receptions and just going out after a small ceremony — or going home.`\
 https://nytimes.com/2025/11/02/style/small-wedding-ceremony-no-reception.html
-
-**Connections: Sports Edition Coach: Hints for Nov. 2, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6769778/2025/11/02/connections-sports-edition-hints-for-nov-2-2025/
 
