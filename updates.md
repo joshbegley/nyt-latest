@@ -1,3 +1,11 @@
+**How to watch Pelicans vs. Thunder: Time, TV, streaming**\
+`Find out how to watch the New Orleans Pelicans play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6770595/2025/11/02/pelicans-vs-thunder-stream-how-to-watch-nov-2/
+
+**How to watch Lightning vs. Mammoth: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the Utah Mammoth, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6770593/2025/11/02/lightning-vs-mammoth-stream-how-to-watch-nov-2/
+
 **Here’s the latest.**\
 `By Benjamin Oreskes`\
 https://nytimes.com/live/2025/11/02/nyregion/nyc-mayor-election-news/heres-the-latest
