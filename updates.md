@@ -1,3 +1,7 @@
+**8 Memorable Looks at the New York City Marathon**\
+`Held on a Halloween weekend, this year’s race had a mother-and-daughter duo dressed as cows, a human-size banana and Ken (without Barbie).`\
+https://nytimes.com/2025/11/02/style/new-york-marathon-fashion.html
+
 **The Briefing - Manchester City 3 Bournemouth 1: Two more goals for Haaland, fast breaks undo Iraola's side**\
 `Manchester City beat Bournemouth 3-1 to go second in the Premier League. Here are the key talking points...`\
 https://nytimes.com/athletic/6761098/2025/11/02/manchester-city-3-bournemouth-1-premier-league-result/

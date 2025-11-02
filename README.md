@@ -1,3 +1,7 @@
+**N.Y.C. rabbi moves off sidelines to condemn Mamdani amid Jewish divide.**\
+`Rabbi Angela Buchdahl of Central Synagogue in Manhattan took issue with Zohran Mamdani’s view of Israel, but said that religious leaders should not be in the endorsement business.`\
+https://nytimes.com/live/2025/11/02/nyregion/nyc-mayor-election-news/nyc-rabbi-moves-off-sidelines-to-condemn-mamdani-amid-jewish-divide
+
 **8 Memorable Looks at the New York City Marathon**\
 `Held on a Halloween weekend, this year’s race had a mother-and-daughter duo dressed as cows, a human-size banana and Ken (without Barbie).`\
 https://nytimes.com/2025/11/02/style/new-york-marathon-fashion.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/02/nyregion/nyc-marathon-mens-race-close-finish.html
 **SEC finally has clarity in season of parity: Vibes after Week 10**\
 `Four teams have risen to the top of the SEC — both in the Playoff race and in terms of the vibes.`\
 https://nytimes.com/athletic/6770945/2025/11/02/sec-football-rankings-week-10-ole-miss-georgia-auburn/
-
-**Who are the celebrities running today?**\
-`(No description)`\
-https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/who-are-the-celebrities-running-today
 
