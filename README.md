@@ -1,3 +1,27 @@
+**Mandel's Final Thoughts: Texas still has its goals intact. Miami? Not so much**\
+`What we learned in Week 10 of the college football season about trusting Miami, the wild ACC, Texas ascending and much more.`\
+https://nytimes.com/athletic/6770201/2025/11/02/college-football-scores-results-week-10/
+
+**The story of the 2025 Dodgers: From Mookie's illness to Ohtani pitching to repeat champions**\
+`Here's the story of the 2025 Los Angeles Dodgers, a team that entered the season as immense favorites and came back to repeat as champions.`\
+https://nytimes.com/athletic/6769509/2025/11/02/dodgers-world-series-season-recap/
+
+**Rudy Gobert stands tall, Donte DiVincenzo barks back for Timberwolves**\
+`Gobert played like the four-time Defensive Player of the Year he is as the Wolves dominated the third quarter.`\
+https://nytimes.com/athletic/6769463/2025/11/02/timberwolves-rudy-gobert-donte-divincenzo/
+
+**Mavericks, Cooper Flagg are struggling to score, but don't expect changes to approach**\
+`The No. 1 pick is adjusting to life in the NBA in an unfamiliar role, but Mavericks coach Jason Kidd thinks it will pay off down the line.`\
+https://nytimes.com/athletic/6770262/2025/11/02/mavericks-cooper-flagg-struggling-offense/
+
+**Canadiens driven by the power of confidence, coach who understands it intimately**\
+`From Sam Montembeault to Jayden Struble to Ivan Demidov to Alex Newhook, a Canadiens win Saturday was defined by confidence from its coach.`\
+https://nytimes.com/athletic/6770142/2025/11/02/canadiens-driven-confidence-coach/
+
+**The New Host of The Morning**\
+`I’m Sam Sifton. Before we get to the news today, I’d like to tell you a little about myself. You ought to know who’s writing to you.`\
+https://nytimes.com/2025/11/02/world/sam-sifton-new-york-city-marathon-dodgers.html
+
 **After crushing World Series defeat, 3 key offseason questions for the Blue Jays**\
 `Questions loom over the futures of Bo Bichette, the starting rotation and the organization's leaders`\
 https://nytimes.com/athletic/6770148/2025/11/02/blue-jays-3-offseason-questions/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6770491/2025/11/02/virgil-van-dijk-wayne-rooney-liv
 **For now, Florida State can keep punting Mike Norvell decision and $55M quandary**\
 `FSU celebrated a dominant win over Wake Forest, but whether it is good enough to justify giving Norvell a seventh year remains uncertain`\
 https://nytimes.com/athletic/6770041/2025/11/02/wake-forest-florida-state-mike-norvell/
-
-**Rangers win third straight for first time in nearly a year, plus 10 observations**\
-`New York has stumbled on home ice thus far but proved itself a road warrior with a third consecutive win Saturday night to cap a long trip.`\
-https://nytimes.com/athletic/6769999/2025/11/02/new-york-rangers-win-third-straight/
-
-**Miguel Rojas cements place in Dodgers' history: 'Biggest hit he's ever had in his life'**\
-`Clayton Kershaw said of the surprise hero: 'Just another guy going above and beyond to help us win a World Series.'`\
-https://nytimes.com/athletic/6770181/2025/11/02/dodgers-world-series-miguel-rojas-home-run/
-
-**Why Oklahoma could stick around in the Playoff race — even with another loss**\
-`Oklahoma has one of the nation's toughest schedules, and its win at Tennessee on Saturday could make it an interesting Playoff test case.`\
-https://nytimes.com/athletic/6770108/2025/11/02/oklahoma-college-football-playoff-chances-tennessee/
-
-**In Game 7, Dodgers, Blue Jays deliver fitting finale to World Series that had 'everything'**\
-`Digesting the moments, memories and history lessons from a Game 7 — and World Series — that kept us riveted from start to finish. `\
-https://nytimes.com/athletic/6770378/2025/11/02/dodgers-blue-jays-game-7-world-series-history/
-
-**Peyton Manning, Josh Allen aim to break Buffalo's century-old sports curse**\
-`Manning explored some of Buffalo's sports history and even threw a barrel over Niagara Falls, which hasn't been allowed in decades.`\
-https://nytimes.com/athletic/6766915/2025/11/02/peyton-manning-josh-allen-places-buffalo-premiere/
-
-**'A new month': How Jared Spurgeon's players' only meeting sparked a slump-busting victory**\
-`"We really talked about things," Vinnie Hinostroza said. "We know how special this group is. ... We just got to put it together."`\
-https://nytimes.com/athletic/6769856/2025/11/02/wild-beat-canucks-jared-spurgeon-players-only-meeting/
 
