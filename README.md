@@ -10,7 +10,7 @@ https://nytimes.com/2025/11/02/health/fda-drug-unit-chief.html
 `It was a record-setting day as more than 50,000 athletes packed the streets for the 2025 New York City Marathon. Benson Kipruto and Hellen Obiri triumphed.`\
 https://nytimes.com/2025/11/02/nyregion/nyc-marathon-elite-races-winners-records.html
 
-**Packers tight end Tucker Kraft carted to the locker room with leg injury**\
+**Packers tight end Tucker Kraft ruled out with leg injury**\
 `The injury came while Kraft was blocking on a Josh Jacobs run, when left guard Sean Rhyan inadvertently stepped on his leg.`\
 https://nytimes.com/athletic/6771414/2025/11/02/tucker-kraft-packers-injury-update/
 
