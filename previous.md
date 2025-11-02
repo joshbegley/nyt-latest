@@ -1,3 +1,31 @@
+**In Game 7, Dodgers, Blue Jays deliver fitting finale to World Series that had 'everything'**\
+`Digesting the moments, memories and history lessons from a Game 7 — and World Series — that kept us riveted from start to finish. `\
+https://nytimes.com/athletic/6770378/2025/11/02/dodgers-blue-jays-game-7-world-series-history/
+
+**Peyton Manning, Josh Allen aim to break Buffalo's century-old sports curse**\
+`Manning explored some of Buffalo's sports history and even threw a barrel over Niagara Falls, which hasn't been allowed in decades.`\
+https://nytimes.com/athletic/6766915/2025/11/02/peyton-manning-josh-allen-places-buffalo-premiere/
+
+**'A new month': How Jared Spurgeon's players' only meeting sparked a slump-busting victory**\
+`"We really talked about things," Vinnie Hinostroza said. "We know how special this group is. ... We just got to put it together."`\
+https://nytimes.com/athletic/6769856/2025/11/02/wild-beat-canucks-jared-spurgeon-players-only-meeting/
+
+**MLB All-Playoff team features stars like Vlad, Shohei, Raleigh and Skubal**\
+`This year's All-Playoff team is dominated by stars, from MVP candidates to rookie pitchers who stepped up when it mattered most.`\
+https://nytimes.com/athletic/6767096/2025/11/02/all-playoff-team-vlad-shohei-raleigh-skubal-shine-in-star-studded-postseason/
+
+**Cubs offseason agenda: How will Jed Hoyer level up a playoff team?**\
+`The Cubs have taken a few chances while mostly utilizing a conservative approach to roster building. Will that change this offseason?`\
+https://nytimes.com/athletic/6769383/2025/11/02/cubs-offseason-agenda-jed-hoyer-trades-japanese-players/
+
+**What is the Blackhawks' identity? It's a work in progress, but it's working and progressing**\
+`Chicago got a good point against a good team. But learning to escape a game like this with two points is all part of the process.`\
+https://nytimes.com/athletic/6770098/2025/11/02/chicago-blackhawks-oilers-game-observations/
+
+**The Double Standard for Female Candidates**\
+`In the New Jersey governor’s race, the Democratic candidate, Mikie Sherrill, is polling well. So why is there so much anxiety? The journalist Molly Jong-Fast visited her campaign and found a major disconnect between the public critique and the strong candidate she saw in person.`\
+https://nytimes.com/video/opinion/100000010494154/the-double-standard-for-female-candidates.html
+
 **Meet Your News Friend, the New Host of The Morning**\
 `Sam Sifton wants readers to know: Everything is going to be all right, and you’re not alone.`\
 https://nytimes.com/2025/11/02/world/02themorning-meet-sam-sifton.html
@@ -9,32 +37,4 @@ https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/how-to-tr
 **Pereira sacked by Wolves after winless start to Premier League season**\
 `Pereira signed a new contract at the club in September through to 2028`\
 https://nytimes.com/athletic/6637763/2025/11/02/vitor-pereira-wolves-manager-sacked/
-
-**Ohio State's stability goes beyond who calls plays. Win over Jim Knowles, Penn State shows it**\
-`Ohio State is a self-sustaining program that doesn't live or die by one coordinator. That's harder than it looks.`\
-https://nytimes.com/athletic/6769375/2025/11/02/ohio-state-penn-state-jim-knowles-matt-patricia/
-
-**The swing of Will Smith's life powers another World Series title: 'This is special'**\
-`On a team full of superstars, Will Smith keeps a low-profile, but his go-ahead homer took the spotlight in Game 7. `\
-https://nytimes.com/athletic/6770301/2025/11/02/dodgers-world-series-will-smith-homer/
-
-**‘We ran out of some magic’: Blue Jays’ brilliant season comes to bitter end in World Series**\
-`Vladimir Guerrero Jr. and Bo Bichette made so many memories — but the end of their special season brought pain.`\
-https://nytimes.com/athletic/6770174/2025/11/02/blue-jays-season-end-game-7/
-
-**Gangster. Gutsy. Greatness. Yoshinobu Yamamoto authors a World Series for the ages**\
-`The Dodger pitcher's three-win MVP effort left his teammates astounded throughout the Fall Classic. `\
-https://nytimes.com/athletic/6770420/2025/11/02/yoshinobu-yamamoto-dodgers-world-series-mvp/
-
-**Where are the best places to cheer?**\
-`By Jennie Coughlin`\
-https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/where-are-the-best-places-to-cheer
-
-**From Miggy's shot to Yamamoto's MVP, 10 moments to remember from an all-time World Series Game 7**\
-`Less than a week after Game 3 was all anyone could talk about, Game 7 of the 2025 World Series delivered an all-timer with epic scope.`\
-https://nytimes.com/athletic/6770028/2025/11/02/world-series-game-7-dodgers-blue-jays-10-moments/
-
-**Blue Jays fans mourn World Series loss to Dodgers and what could have been**\
-`Fans of "Canada's team" were left devastated after the Blue Jays suffered a heartbreaking loss to the Dodgers in Game 7 of the World Series.`\
-https://nytimes.com/athletic/6770196/2025/11/02/toronto-blue-jays-fans-world-series-loss-dodgers/
 
