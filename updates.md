@@ -1,3 +1,7 @@
+**Arne Slot found a winning formula by getting the big calls right against Aston Villa**\
+`Trickier tests await Liverpool over the next seven days, but Arne Slot now has a blueprint from which he can build on`\
+https://nytimes.com/athletic/6769201/2025/11/02/liverpool-aston-villa-arne-slot-analysis/
+
 **Gunman Kills Mayor Who Wanted Police to Target Mexico’s Drug Gangs**\
 `Carlos Manzo, a mayor in the state of Michoacán, had repeatedly asked President Claudia Sheinbaum for more resources. He was shot outside a church.`\
 https://nytimes.com/2025/11/02/world/americas/manzo-mayor-mexico-killed.html
