@@ -6,6 +6,10 @@ https://nytimes.com/video/opinion/100000010495041/this-is-how-the-democratic-par
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/02/todays-new-york-times
 
+**The futures of both Vitor Pereira and Wolves seem sadly, grimly inevitable**\
+`The result of this season looks simple to predict, but there are precious few easy answers to the biggest questions at Molineux.`\
+https://nytimes.com/athletic/6769576/2025/11/02/vitor-pereira-wolves-future-premier-league/
+
 **How Liberalism Wins**\
 `Democrats do not just need to win more people. They also need to win more places.`\
 https://nytimes.com/2025/11/02/opinion/democrats-liberalism-elections-crick.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6768773/2025/11/02/amad-manchester-united-gamble/
 **Yoshinobu Yamamoto wins World Series MVP with historic ironman performance**\
 `Yamamoto came in to pitch the final 2 2/3 innings for the Dodgers, one day after he threw 96 pitches and collected the win in Game 6.`\
 https://nytimes.com/athletic/6769980/2025/11/02/yoshinobu-yamamoto-world-series-mvp-dodgers/
-
-**Who is favored to win the 2026 World Series? The answer won't shock you**\
-`The Dodgers opened as favorites to win the 2026 World Series with the Yankees, Phillies and Mets viewed as the top contenders.`\
-https://nytimes.com/athletic/6767993/2025/11/02/2026-world-series-odds-dodgers-yankees-phillies-mets/
 
