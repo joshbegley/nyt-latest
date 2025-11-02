@@ -1,3 +1,11 @@
+**Colorado, Deion Sanders demolished by Arizona in 52-17 drubbing**\
+`Across their last eight quarters, the Buffaloes have been outscored 105-24.`\
+https://nytimes.com/athletic/6769803/2025/11/01/colorado-arizona-college-football-demolished/
+
+**Michigan narrowly beats Purdue, but Bryce Underwood unable to turnaround play in listless season**\
+`Michigan stands at 7-2, but the Wolverines haven't found a great rhythm even against weaker opponents in the Big Ten.`\
+https://nytimes.com/athletic/6769788/2025/11/01/michigan-purdue-score-result/
+
 **Nashville beats Inter Miami, pushes Messi to a familiar playoff brink**\
 `Lionel Messi and Inter Miami lost in Nashville and now face a nervy Game 3 to decide the series as they seek to avoid a first round exit.`\
 https://nytimes.com/athletic/6769707/2025/11/01/nashville-beats-inter-miami-pushes-lionel-messi-playoff-brink/
