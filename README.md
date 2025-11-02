@@ -1,3 +1,7 @@
+**Here’s the marathon course map.**\
+`(No description)`\
+https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/heres-the-marathon-course-map
+
 **The weather is ideal for New York City to turn out for the world’s largest road race.**\
 `By Scott Cacciola`\
 https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/the-weather-is-ideal-for-new-york-city-to-turn-out-for-the-worlds-largest-road-race
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/02/world/americas/mexico-day-of-the-dead-bones-pomuc
 **Food Stamp Cuts Expose Trump’s Strategy to Use Shutdown to Advance Agenda**\
 `The president has stretched the limits of his powers to help those at the heart of his agenda, not the many in greatest need.`\
 https://nytimes.com/2025/11/02/us/politics/trump-strategy-food-stamps.html
-
-**Will Trump’s Tariff Deal Tilt the Playing Field Back Toward China?**\
-`The president’s trade truce with China has lowered U.S. tariffs to a level that could pause a longer-term effort to reduce America’s dependence on Beijing.`\
-https://nytimes.com/2025/11/02/business/economy/trump-tariff-deal-china.html
 
