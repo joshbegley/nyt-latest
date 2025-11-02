@@ -1,3 +1,23 @@
+**49ers fear rookie DE Mykel Williams has ACL injury, await tests Monday**\
+`Williams' injury, which comes two days before the trade deadline, means the 49ers might not be finished adding to their defensive line.`\
+https://nytimes.com/athletic/6771609/2025/11/02/49ers-mykel-williams-acl-injury-update/
+
+**Map: 6.3-Magnitude Earthquake Strikes Afghanistan**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/11/02/world/afghanistan-quake-tracker.html
+
+**49ers-Giants Takeaways: San Francisco's offense returns to life in 34-24 win**\
+`The San Francisco 49ers' offense rebounded in Week 9 to roll over New York Giants at MetLife Stadium.`\
+https://nytimes.com/athletic/6771510/2025/11/02/49ers-giants-score-result-takeaways-week-9-nfl/
+
+**New Weapons Testing Won’t Include Nuclear Explosions, Energy Secretary Says**\
+`Energy Secretary Chris Wright said the testing ordered up in a surprise announcement by President Trump last week would focus on “the other parts” of nuclear weaponry.`\
+https://nytimes.com/2025/11/02/us/politics/trump-nuclear-testing-explosions.html
+
+**Patriots outlast Falcons to win sixth straight**\
+`The Patriots earned their seventh win of the season after Atlanta kicker Parker Romo missed a game-tying PAT in the final minutes.`\
+https://nytimes.com/athletic/6764229/2025/11/02/falcons-patriots-score-result-takeaways-week-9-nfl/
+
 **Chargers-Titans takeaways: Justin Herbert helps L.A. overcome mistakes in win**\
 `Justin Herbert threw a pick six in the first quarter, but the Chargers rallied to win their second straight.`\
 https://nytimes.com/athletic/6771140/2025/11/02/chargers-titans-score-result-takeaways-week-9-nfl/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6771462/2025/11/02/rico-dowdle-penalty-key-and-peel
 **F.D.A. Drug Unit Chief Is Placed on Leave, and Cites a ‘Toxic’ Environment**\
 `The official, Dr. George F. Tidmarsh, a top regulator at the agency, said disagreements over a new program to rapidly approve medications had caused tensions with agency officials.`\
 https://nytimes.com/2025/11/02/health/fda-drug-unit-chief.html
-
-**A Thrilling Finish to N.Y.C. Marathon as Kenyans Dominate Elite Races**\
-`It was a record-setting day as more than 50,000 athletes packed the streets for the 2025 New York City Marathon. Benson Kipruto and Hellen Obiri triumphed.`\
-https://nytimes.com/2025/11/02/nyregion/nyc-marathon-elite-races-winners-records.html
-
-**Packers tight end Tucker Kraft ruled out with leg injury**\
-`The injury came while Kraft was blocking on a Josh Jacobs run, when left guard Sean Rhyan inadvertently stepped on his leg.`\
-https://nytimes.com/athletic/6771414/2025/11/02/tucker-kraft-packers-injury-update/
-
-**Feldman's candidates to replace Hugh Freeze at Auburn: Sumrall? Franklin? Jimbo?**\
-`The Tigers' optimal candidate pool feels like a mixed bag between Group of 6 upstarts and retreads.`\
-https://nytimes.com/athletic/6771348/2025/11/02/auburn-football-coaching-search-candidates/
-
-**He’s planning to run the marathon, and then do two performances in ‘Wicked.’**\
-`By Talya Minsberg`\
-https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/hes-planning-to-run-the-marathon-and-then-do-two-performances-in-wicked
-
-**How Chelsea's press smothered Spurs - the perfect illustration of exploiting weakness**\
-`The most impressive thing about Chelsea's press against Tottenham was that they covered the majority of Tottenham's solutions`\
-https://nytimes.com/athletic/6770380/2025/11/02/chelsea-press-tottenham-frank-maresca/
 
