@@ -1,3 +1,7 @@
+**Yoshinobu Yamamoto wins World Series MVP with historic ironman performance**\
+`Yamamoto came in to pitch the final two innings for the Dodgers, recording one strikeout while giving up just one hit and a walk.`\
+https://nytimes.com/athletic/6769980/2025/11/02/yoshinobu-yamamoto-world-series-mvp-dodgers/
+
 **Who is favored to win the 2026 World Series? The answer won't shock you**\
 `The Dodgers opened as favorites to win the 2026 World Series with the Yankees, Phillies and Mets viewed as the top contenders.`\
 https://nytimes.com/athletic/6767993/2025/11/02/2026-world-series-odds-dodgers-yankees-phillies-mets/
