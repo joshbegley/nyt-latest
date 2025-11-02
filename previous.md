@@ -1,3 +1,7 @@
+**Canadians Mourn a Loss by Underdogs Who Brought a Nation Together**\
+`The Blue Jays, Canada’s only M.L.B. team, were a salve for a country hit by President Trump’s threats and tariffs. Then the Dodgers ended their thrilling postseason run.`\
+https://nytimes.com/2025/11/02/world/canada/blue-jays-dodgers-world-series-canada.html
+
 **Warriors burned down the stretch in Indy by lack of execution and focus**\
 `A fully healthy Golden State team had trouble finishing off another undermanned group on Saturday night, leading to a second straight loss.`\
 https://nytimes.com/athletic/6770006/2025/11/02/warriors-execution-focus-loss-pacers/
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010495041/this-is-how-the-democratic-par
 **The New York Times in Print for Sunday, Nov. 2, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/02/todays-new-york-times
-
-**Arne Slot found a winning formula by getting the big calls right against Aston Villa**\
-`Trickier tests await Liverpool over the next seven days, but Arne Slot now has a blueprint from which he can build on`\
-https://nytimes.com/athletic/6769201/2025/11/02/liverpool-aston-villa-arne-slot-analysis/
 

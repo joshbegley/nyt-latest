@@ -1,3 +1,7 @@
+**Canadians Mourn a Loss by Underdogs Who Brought a Nation Together**\
+`The Blue Jays, Canada’s only M.L.B. team, were a salve for a country hit by President Trump’s threats and tariffs. Then the Dodgers ended their thrilling postseason run.`\
+https://nytimes.com/2025/11/02/world/canada/blue-jays-dodgers-world-series-canada.html
+
 **Warriors burned down the stretch in Indy by lack of execution and focus**\
 `A fully healthy Golden State team had trouble finishing off another undermanned group on Saturday night, leading to a second straight loss.`\
 https://nytimes.com/athletic/6770006/2025/11/02/warriors-execution-focus-loss-pacers/
