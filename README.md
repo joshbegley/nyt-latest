@@ -1,10 +1,14 @@
-**How Liberalism Wins**\
-`Democrats do not just need to win more people. They also need to win more places.`\
-https://nytimes.com/2025/11/02/opinion/democrats-liberalism-elections-crick.html
-
 **This Is How the Democratic Party Beats Trump**\
 `Democrats do not just need to win more people. They also need to win more places.`\
 https://nytimes.com/video/opinion/100000010495041/this-is-how-the-democratic-party-beats-trump.html
+
+**The New York Times in Print for Sunday, Nov. 2, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/02/todays-new-york-times
+
+**How Liberalism Wins**\
+`Democrats do not just need to win more people. They also need to win more places.`\
+https://nytimes.com/2025/11/02/opinion/democrats-liberalism-elections-crick.html
 
 **What Women Really Want: Work Boundaries**\
 `Discussion of women in the workplace often focuses on flexible hours, but what’s actually needed is shift work — pioneered by the medical profession.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6769980/2025/11/02/yoshinobu-yamamoto-world-series-
 **Who is favored to win the 2026 World Series? The answer won't shock you**\
 `The Dodgers opened as favorites to win the 2026 World Series with the Yankees, Phillies and Mets viewed as the top contenders.`\
 https://nytimes.com/athletic/6767993/2025/11/02/2026-world-series-odds-dodgers-yankees-phillies-mets/
-
-**Dodgers-Blue Jays Game 7 takeaways: Late-game homers, Yamamoto's MVP effort fuel repeat title**\
-`The Dodgers triumphed once again thanks to game-changing homers and 2 2/3 scoreless innings from the man who won Game 6.`\
-https://nytimes.com/athletic/6769714/2025/11/02/dodgers-blue-jays-world-series-game-7-results-takeaways-mlb/
 
