@@ -1,3 +1,7 @@
+**Benson Kipruto win’s the men’s race.**\
+`By Scott Cacciola`\
+https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/benson-kipruto-wins-the-mens-race
+
 **Lowetide: Oilers avoid October crisis but it still feels like a missed opportunity**\
 `Picking the Oilers, as currently populated, to return to the Stanley Cup Final for the third year in a row is unwise.`\
 https://nytimes.com/athletic/6768948/2025/11/02/edmonton-oilers-stats-standings-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6770902/2025/11/02/grizzlies-vs-raptors-stream-how-
 **It comes down to Turin: Jannik Sinner takes No. 1 race with Carlos Alcaraz to ATP Tour Finals**\
 `Sinner will regain world No. 1 for one week, before the season-ending tournament defines who will hold the ranking at its end.`\
 https://nytimes.com/athletic/6770750/2025/11/02/tennis-world-no-1-sinner-alcaraz-atp-tour/
-
-**Hellen Obiri of Kenya wins the women’s elite race.**\
-`By Scott Cacciola`\
-https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/hellen-obiri-of-kenya-wins-the-womens-elite-race
 
