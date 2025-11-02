@@ -1,3 +1,7 @@
+**Warriors burned down the stretch in Indy by lack of execution and focus**\
+`A fully healthy Golden State team had trouble finishing off another undermanned group on Saturday night, leading to a second straight loss.`\
+https://nytimes.com/athletic/6770006/2025/11/02/warriors-execution-focus-loss-pacers/
+
 **In a Dark Year, Los Angeles Basks in the Dodgers’ Glow**\
 `Scars of wildfires and immigration raids won’t soon fade, but like the city itself, the Dodgers persevered and gave Southern California residents the rally they needed.`\
 https://nytimes.com/2025/11/02/us/los-angeles-celebrates-dodgers.html
