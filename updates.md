@@ -1,3 +1,11 @@
+**A Classic Southern Chicken From a Classic Southern Guy**\
+`Craig Claiborne’s smothered chicken is savory, satisfying simplicity.`\
+https://nytimes.com/2025/11/02/dining/a-classic-southern-chicken-from-a-classic-southern-guy.html
+
+**Final thoughts: After sub-par win vs. Purdue, are Wolverines fooling themselves?**\
+`Either the Ohio State game will be another I-told-you-so moment for Michigan, or it will be a reckoning.`\
+https://nytimes.com/athletic/6770715/2025/11/02/michigan-purdue-final-thoughts-jordan-marshall/
+
 **How much are the prizes for the winners?**\
 `By Taylor Robinson`\
 https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/how-much-are-the-prizes-for-the-winners
