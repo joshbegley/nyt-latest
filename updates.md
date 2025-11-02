@@ -1,3 +1,7 @@
+**Oklahoma tops Tennessee in CFP elimination game behind big kicks, defensive TD**\
+`No. 18 Oklahoma beat No. 14 Tennessee 33-27 on Saturday in what was effectively a College Football Playoff elimination game in Knoxville.`\
+https://nytimes.com/athletic/6769787/2025/11/01/tennessee-oklahoma-score-result-football-playoff/
+
 **Vladimir Tarasenko breaks out as Wild get a much-needed win: Takeaways**\
 `The Wild never trailed, were perfect on the penalty kill and looked dominant on home ice during a 5-2 win over the injury-riddled Canucks.`\
 https://nytimes.com/athletic/6769504/2025/11/01/wild-canucks-vladimir-tarasenko-takeaways/
