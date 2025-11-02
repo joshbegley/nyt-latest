@@ -1,3 +1,7 @@
+**Big Stars at LACMA’s Big Night**\
+`Demi Moore, Doja Cat, Elle Fanning, Angela Bassett and Edward Norton made the scene at a Gucci-powered fund-raiser for the Los Angeles County Museum of Art.`\
+https://nytimes.com/2025/11/02/style/big-stars-at-lacmas-big-night.html
+
 **Maria Riva, Dietrich Daughter Who Demystified the Legend, Dies at 100**\
 `She was her mother’s handmaiden and aide-de-camp. In 1993, her blockbuster biography told of the awful price she paid.`\
 https://nytimes.com/2025/11/02/arts/television/maria-riva-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6770660/2025/11/02/world-series-game-seven-sports-w
 **Yoshinobu Yamamoto's best rookie card still hasn't been claimed**\
 `As collectors scramble to acquire the World Series MVP's rookie cards, the very best one is still waiting to be pulled.`\
 https://nytimes.com/athletic/6770790/2025/11/02/yoshinobu-yamamoto-debut-patch-rookie-card/
-
-**Syria’s President to Visit Washington for First Time Since Taking Power**\
-`The president, Ahmed al-Shara, was, until recently, wanted by the United States as a terrorist with a $10 million bounty on his head.`\
-https://nytimes.com/2025/11/02/us/politics/syrian-president-al-shara-washington-visit.html
 

@@ -1,3 +1,7 @@
+**Big Stars at LACMA’s Big Night**\
+`Demi Moore, Doja Cat, Elle Fanning, Angela Bassett and Edward Norton made the scene at a Gucci-powered fund-raiser for the Los Angeles County Museum of Art.`\
+https://nytimes.com/2025/11/02/style/big-stars-at-lacmas-big-night.html
+
 **Maria Riva, Dietrich Daughter Who Demystified the Legend, Dies at 100**\
 `She was her mother’s handmaiden and aide-de-camp. In 1993, her blockbuster biography told of the awful price she paid.`\
 https://nytimes.com/2025/11/02/arts/television/maria-riva-dead.html
