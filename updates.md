@@ -1,3 +1,7 @@
+**Nashville beats Inter Miami, pushes Messi to a familiar playoff brink**\
+`Lionel Messi and Inter Miami lost in Nashville and now face a nervy Game 3 to decide the series as they seek to avoid a first round exit.`\
+https://nytimes.com/athletic/6769707/2025/11/01/nashville-beats-inter-miami-pushes-lionel-messi-playoff-brink/
+
 **Mavs coach Jason Kidd suggests Kyrie Irving could return from injury before end of 2025**\
 `Until Saturday in Mexico City, the Mavericks were hesitant to put any sort of timetable on Irving's return, which Kidd says may be in 2025.`\
 https://nytimes.com/athletic/6769656/2025/11/01/kyrie-irving-return-jason-kidd/
