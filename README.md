@@ -19,7 +19,7 @@ https://nytimes.com/2025/11/02/opinion/political-center.html
 https://nytimes.com/2025/11/02/opinion/ai-privacy.html
 
 **Sunday Sauce**\
-`In many Italian American households, Sunday means there’s red sauce simmering all day on the stove.`\
+`In many Italian American households, Sunday means there’s red sauce simmering all day on the stove. Here’s how to make Sunday sauce.`\
 https://nytimes.com/video/dining/100000010366558/sunday-sauce.html
 
 **Tracking Tropical Storm Kalmaegi**\
