@@ -1,3 +1,7 @@
+**In Game 7, Dodgers, Blue Jays deliver fitting finale to World Series that had 'everything'**\
+`Digesting the moments, memories and history lessons from a Game 7 — and World Series — that kept us riveted from start to finish. `\
+https://nytimes.com/athletic/6770378/2025/11/02/dodgers-blue-jays-game-7-world-series-history/
+
 **Peyton Manning, Josh Allen aim to break Buffalo's century-old sports curse**\
 `Manning explored some of Buffalo's sports history and even threw a barrel over Niagara Falls, which hasn't been allowed in decades.`\
 https://nytimes.com/athletic/6766915/2025/11/02/peyton-manning-josh-allen-places-buffalo-premiere/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/how-to-tr
 **Pereira sacked by Wolves after winless start to Premier League season**\
 `Pereira signed a new contract at the club in September through to 2028`\
 https://nytimes.com/athletic/6637763/2025/11/02/vitor-pereira-wolves-manager-sacked/
-
-**Ohio State's stability goes beyond who calls plays. Win over Jim Knowles, Penn State shows it**\
-`Ohio State is a self-sustaining program that doesn't live or die by one coordinator. That's harder than it looks.`\
-https://nytimes.com/athletic/6769375/2025/11/02/ohio-state-penn-state-jim-knowles-matt-patricia/
 
