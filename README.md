@@ -1,3 +1,11 @@
+**New Weapons Testing Won’t Include Nuclear Explosions, Energy Secretary Says**\
+`Energy Secretary Chris Wright said the testing ordered up in a surprise announcement by President Trump last week would focus on “the other parts” of nuclear weaponry.`\
+https://nytimes.com/2025/11/02/us/politics/trump-nuclear-testing-explosions.html
+
+**Patriots outlast Falcons to win sixth straight**\
+`The Patriots earned their seventh win of the season after Atlanta kicker Parker Romo missed a game-tying PAT in the final minutes.`\
+https://nytimes.com/athletic/6764229/2025/11/02/falcons-patriots-score-result-takeaways-week-9-nfl/
+
 **Chargers-Titans takeaways: Justin Herbert helps L.A. overcome mistakes in win**\
 `Justin Herbert threw a pick six in the first quarter, but the Chargers rallied to win their second straight.`\
 https://nytimes.com/athletic/6771140/2025/11/02/chargers-titans-score-result-takeaways-week-9-nfl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6771414/2025/11/02/tucker-kraft-packers-injury-upda
 **Feldman's candidates to replace Hugh Freeze at Auburn: Sumrall? Franklin? Jimbo?**\
 `The Tigers' optimal candidate pool feels like a mixed bag between Group of 6 upstarts and retreads.`\
 https://nytimes.com/athletic/6771348/2025/11/02/auburn-football-coaching-search-candidates/
-
-**He’s planning to run the marathon, and then do two performances in ‘Wicked.’**\
-`By Talya Minsberg`\
-https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/hes-planning-to-run-the-marathon-and-then-do-two-performances-in-wicked
-
-**How Chelsea's press smothered Spurs - the perfect illustration of exploiting weakness**\
-`The most impressive thing about Chelsea's press against Tottenham was that they covered the majority of Tottenham's solutions`\
-https://nytimes.com/athletic/6770380/2025/11/02/chelsea-press-tottenham-frank-maresca/
 
