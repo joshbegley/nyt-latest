@@ -1,3 +1,11 @@
+**Sanchez performing 'at my best' after initial 'struggle' at Chelsea**\
+`The goalkeeper said he is "happy'"and "confident" after joining the London club from Brighton in 2023.`\
+https://nytimes.com/athletic/6770735/2025/11/02/robert-sanchez-chelsea-best-form/
+
+**Broncos beat Texans with late-game heroics; C.J. Stroud suffers concussion**\
+`Bo Nix found his rhythm in the fourth quarter and Wil Lutz's 34-yard field goal as time expired led Denver to an 18-15 win.`\
+https://nytimes.com/athletic/6771025/2025/11/02/broncos-texans-score-result-takeaways-week-9-nfl/
+
 **49ers-Giants takeaways: San Francisco's offense returns to life in 34-24 win**\
 `The San Francisco 49ers' offense rebounded in Week 9 to roll over the New York Giants at MetLife Stadium.`\
 https://nytimes.com/athletic/6771510/2025/11/02/49ers-giants-score-result-takeaways-week-9-nfl/

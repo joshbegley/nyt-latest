@@ -1,3 +1,7 @@
+**Sanchez performing 'at my best' after initial 'struggle' at Chelsea**\
+`The goalkeeper said he is "happy'"and "confident" after joining the London club from Brighton in 2023.`\
+https://nytimes.com/athletic/6770735/2025/11/02/robert-sanchez-chelsea-best-form/
+
 **Colts-Steelers takeaways: Daniel Jones commits 5 turnovers in Pittsburgh win**\
 `The mistakes were too much to overcome for the Colts, who lost despite outgaining the Steelers 368-225.`\
 https://nytimes.com/athletic/6771136/2025/11/02/colts-steelers-score-result-takeaways-week-9-nfl/
@@ -10,8 +14,8 @@ https://nytimes.com/athletic/6771218/2025/11/02/vikings-lions-score-result-takea
 `Given new life by a late penalty, Duke snapped a 15-game losing streak at Clemson that dates back to 1980.`\
 https://nytimes.com/athletic/6769271/2025/11/02/dabo-swinney-clemson-duke-pass-interference-penalty/
 
-**Broncos-Texans takeaways: Stroud leaves game, Broncos show late-game heroics**\
-`Bo Nix finds rhythm in fourth quarter`\
+**Broncos beat Texans with late-game heroics; C.J. Stroud suffers concussion**\
+`Bo Nix found his rhythm in the fourth quarter and Wil Lutz's 34-yard field goal as time expired led Denver to an 18-15 win.`\
 https://nytimes.com/athletic/6771025/2025/11/02/broncos-texans-score-result-takeaways-week-9-nfl/
 
 **49ers fear rookie DE Mykel Williams has ACL injury, await tests Monday**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/02/us/politics/trump-nuclear-testing-explosions.html
 **Patriots outlast Falcons to win sixth straight: Takeaways**\
 `New England earned its seventh win of the season after Atlanta's Parker Romo missed a potential game-tying PAT in the final minutes.`\
 https://nytimes.com/athletic/6764229/2025/11/02/falcons-patriots-score-result-takeaways-week-9-nfl/
-
-**Chargers-Titans takeaways: Justin Herbert helps L.A. overcome mistakes in win**\
-`Justin Herbert threw a pick six in the first quarter, but the Chargers rallied to win their second straight.`\
-https://nytimes.com/athletic/6771140/2025/11/02/chargers-titans-score-result-takeaways-week-9-nfl/
 
