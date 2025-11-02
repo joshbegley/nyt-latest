@@ -1,3 +1,15 @@
+**How Chelsea's press smothered Spurs - the perfect illustration of exploiting weakness**\
+`The most impressive thing about Chelsea's press against Tottenham was that they covered the majority of Tottenham's solutions`\
+https://nytimes.com/athletic/6770380/2025/11/02/chelsea-press-tottenham-frank-maresca/
+
+**Aston Villa's all-or-nothing approach is risky and against Liverpool it failed**\
+`Aston Villa are struggling to create clear chances and avoidable errors were punished by Liverpool at Anfield`\
+https://nytimes.com/athletic/6769641/2025/11/02/aston-villa-liverpool-tactics-analysis/
+
+**Nebraska QB Raiola out for season with broken fibula: Source**\
+`Raiola ends his sophomore season with 2,000 yards passing in nine games. True freshman TJ Lateef is expected to take over as starter.`\
+https://nytimes.com/athletic/6771424/2025/11/02/dylan-raiola-injury-nebraska-football/
+
 **Chargers star tackle Joe Alt carted off with ankle injury, ruled questionable**\
 `Alt missed three games earlier this season with a right high ankle sprain.`\
 https://nytimes.com/athletic/6771340/2025/11/02/chargers-joe-alt-injury-leaves-game/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6771352/2025/11/02/devils-vs-ducks-stream-how-to-wa
 **A New York marathon tradition: getting your name in The New York Times.**\
 `By Taylor Robinson`\
 https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/a-new-york-marathon-tradition-getting-your-name-in-the-new-york-times
-
-**Still parts ways with Southampton after 16 games in charge**\
-`Ruben Martinez, Clément Lemaitre and Carl Martin have also left their positions as coaching staff at the club.`\
-https://nytimes.com/athletic/6739294/2025/11/02/will-still-southampton-parts-ways-championship/
-
-**5 Die, Including 3 Children, in Halloween Night House Fire**\
-`The cousin of a state assemblyman, his wife and children died in the fire in Paterson, N.J. Seven other relatives survived the blaze.`\
-https://nytimes.com/2025/11/02/nyregion/halloween-fire-paterson-new-jersey.html
-
-**AP Top 25: Notre Dame back in top 10; Miami plummets to No. 18**\
-`Ohio State, Indiana, Texas A&M, Alabama and Georgia remain atop the AP Top 25 college football poll ahead of the first Playoff rankings.`\
-https://nytimes.com/athletic/6771221/2025/11/02/ap-top-25-cfp-rankings-notre-dame/
 
