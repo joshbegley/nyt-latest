@@ -1,3 +1,7 @@
+**What we learned about the Playoff: Making sense of the ACC and reassessing the Big Ten**\
+`The ACC's traditional powers have been overtaken this season, but it could affect the conference's chance at getting multiple CFP bids.`\
+https://nytimes.com/athletic/6770087/2025/11/02/college-football-playoff-race-after-week-10/
+
 **Here’s the marathon course map.**\
 `(No description)`\
 https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/heres-the-marathon-course-map

@@ -1,3 +1,7 @@
+**What we learned about the Playoff: Making sense of the ACC and reassessing the Big Ten**\
+`The ACC's traditional powers have been overtaken this season, but it could affect the conference's chance at getting multiple CFP bids.`\
+https://nytimes.com/athletic/6770087/2025/11/02/college-football-playoff-race-after-week-10/
+
 **Here’s the marathon course map.**\
 `(No description)`\
 https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/heres-the-marathon-course-map
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/02/us/austin-tax-vote.html
 **To Celebrate Day of the Dead, One Mexican Town Digs Up Its Dead**\
 `Pomuch, Mexico, is one of the last places where residents clean their relatives’ bones. Now they are grappling with a new challenge: tourists.`\
 https://nytimes.com/2025/11/02/world/americas/mexico-day-of-the-dead-bones-pomuch.html
-
-**Food Stamp Cuts Expose Trump’s Strategy to Use Shutdown to Advance Agenda**\
-`The president has stretched the limits of his powers to help those at the heart of his agenda, not the many in greatest need.`\
-https://nytimes.com/2025/11/02/us/politics/trump-strategy-food-stamps.html
 
