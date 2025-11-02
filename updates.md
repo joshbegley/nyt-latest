@@ -1,3 +1,11 @@
+**Vikings-Lions takeaways: J.J. McCarthy's return sparks Minnesota to win**\
+`QB injects life into a Vikings team that had been reeling, throwing for two touchdowns and running for another. `\
+https://nytimes.com/athletic/6771218/2025/11/02/vikings-lions-score-result-takeaways-week-9-nfl/
+
+**49ers-Giants takeaways: San Francisco's offense returns to life in 34-24 win**\
+`The San Francisco 49ers' offense rebounded in Week 9 to roll over New York Giants at MetLife Stadium.`\
+https://nytimes.com/athletic/6771510/2025/11/02/49ers-giants-score-result-takeaways-week-9-nfl/
+
 **Broncos-Texans takeaways: Stroud leaves game, Broncos show late-game heroics**\
 `Bo Nix finds rhythm in fourth quarter`\
 https://nytimes.com/athletic/6771025/2025/11/02/broncos-texans-score-result-takeaways-week-9-nfl/
