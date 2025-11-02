@@ -1,3 +1,7 @@
+**The New York Times in Print for Sunday, Nov. 2, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/02/todays-new-york-times
+
 **Yoshinobu Yamamoto wins World Series MVP with historic ironman performance**\
 `Yamamoto came in to pitch the final 2 2/3 innings for the Dodgers, one day after he threw 96 pitches and collected the win in Game 6.`\
 https://nytimes.com/athletic/6769980/2025/11/02/yoshinobu-yamamoto-world-series-mvp-dodgers/
