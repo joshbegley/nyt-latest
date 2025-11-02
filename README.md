@@ -1,10 +1,14 @@
+**Steelers fans hold funeral for defense, unit responds in dominant win**\
+`The defense funeral appears to have changed the mojo.`\
+https://nytimes.com/athletic/6771715/2025/11/02/steelers-fans-hold-funeral-for-defense-unit-responds-in-dominant-win/
+
 **Bears win back-and-forth thriller against Flacco and the Bengals**\
 `Caleb Williams' 58-yard touchdown pass to Colston Loveland with 17 seconds remaining sealed a wild win for the Bears.`\
 https://nytimes.com/athletic/6764211/2025/11/02/bears-bengals-score-result-takeaways-week-9-nfl/
 
-**Rico Dowdle leads Panthers to upset win over Packers**\
-`Behind an offensive line held together by tape and determination, Rico Dowdle delivered the performance of his career — and perhaps the defining moment of Carolina’s season.`\
-https://nytimes.com/athletic/6771502/2025/11/02/panters-packers-takeaways-upset-win-packers/
+**Panthers-Packers takeaways: Rico Dowdle leads Carolina to upset win**\
+`Running back rushed for 130 yards and two touchdowns, including a decisive 19-yard burst that set up the game-winning field goal.`\
+https://nytimes.com/athletic/6771502/2025/11/02/panthers-packers-score-result-takeaways-week-9-nfl/
 
 **Sanchez performing 'at my best' after initial 'struggle' at Chelsea**\
 `The goalkeeper said he is "happy'"and "confident" after joining the London club from Brighton in 2023.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6771609/2025/11/02/49ers-mykel-williams-acl-injury-
 **Map: 6.3-Magnitude Earthquake Strikes Afghanistan**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/11/02/world/afghanistan-quake-tracker.html
-
-**49ers-Giants takeaways: San Francisco's offense returns to life in 34-24 win**\
-`The San Francisco 49ers' offense rebounded in Week 9 to roll over the New York Giants at MetLife Stadium.`\
-https://nytimes.com/athletic/6771510/2025/11/02/49ers-giants-score-result-takeaways-week-9-nfl/
 

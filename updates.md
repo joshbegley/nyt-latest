@@ -1,3 +1,11 @@
+**Bears win back-and-forth thriller against Flacco and the Bengals**\
+`Caleb Williams' 58-yard touchdown pass to Colston Loveland with 17 seconds remaining sealed a wild win for the Bears.`\
+https://nytimes.com/athletic/6764211/2025/11/02/bears-bengals-score-result-takeaways-week-9-nfl/
+
+**Broncos' late-game heroics beat Texans; C.J. Stroud suffers concussion**\
+`It is becoming a familiar script. Denver QB Bo Nix struggled early, but found his rhythm in the fourth quarter for an 18-15 win.`\
+https://nytimes.com/athletic/6771025/2025/11/02/broncos-texans-score-result-takeaways-week-9-nfl/
+
 **Rico Dowdle leads Panthers to upset win over Packers**\
 `Behind an offensive line held together by tape and determination, Rico Dowdle delivered the performance of his career — and perhaps the defining moment of Carolina’s season.`\
 https://nytimes.com/athletic/6771502/2025/11/02/panters-packers-takeaways-upset-win-packers/
