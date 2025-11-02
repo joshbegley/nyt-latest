@@ -1,3 +1,23 @@
+**‘S.N.L.’ Holds Its Own Debate of New York City Mayoral Hopefuls**\
+`Andrew Cuomo (Miles Teller, the host), duked it out with Zohran Mamdani (Ramy Youssef) and Curtis Sliwa (Shane Gillis). George Santos was back with a confession.`\
+https://nytimes.com/2025/11/02/arts/television/snl-debate-nyc-mayoral-hopefuls.html
+
+**Evaluating the Ducks’ first 10 games: Leo Carlsson upping his game to another level**\
+`The 20-year-old No. 2 pick in 2023 has 15 points in 10 games this season.`\
+https://nytimes.com/athletic/6769607/2025/11/02/anaheim-ducks-leo-carlsson-nhl/
+
+**Trump Administration Live Updates: SNAP’s Future Is Uncertain, Despite Order to Continue During the Shutdown**\
+``\
+https://nytimes.com/live/2025/11/02/us/trump-news
+
+**The Promise and Peril of the Political Center**\
+`Readers respond to an editorial about moving to the center. Also: No-phone time during the Sabbath; the energy crisis.`\
+https://nytimes.com/2025/11/02/opinion/political-center.html
+
+**A.I. Is Deciding Who You Are**\
+`In the age of A.I., personal data is anything but personal.`\
+https://nytimes.com/2025/11/02/opinion/ai-privacy.html
+
 **Sunday Sauce**\
 `In many Italian American households, Sunday means there’s red sauce simmering all day on the stove.`\
 https://nytimes.com/video/dining/100000010366558/sunday-sauce.html
@@ -17,24 +37,4 @@ https://nytimes.com/live/2025/11/02/nyregion/nyc-marathon-live-updates/how-to-wa
 **College Football Playoff 2025 projections: Miami, Vandy chances drop; North Texas rising**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/11/02/college-football-playoff-bracket-projections-odds/
-
-**How to watch Pelicans vs. Thunder: Time, TV, streaming**\
-`Find out how to watch the New Orleans Pelicans play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6770595/2025/11/02/pelicans-vs-thunder-stream-how-to-watch-nov-2/
-
-**How to watch Lightning vs. Mammoth: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Lightning play the Utah Mammoth, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6770593/2025/11/02/lightning-vs-mammoth-stream-how-to-watch-nov-2/
-
-**Here’s the latest.**\
-`By Benjamin Oreskes`\
-https://nytimes.com/live/2025/11/02/nyregion/nyc-mayor-election-news/heres-the-latest
-
-**N.Y.C. Mayor’s Race Live Updates: Candidates Court Supporters on Last Day of Early Voting**\
-`Zohran Mamdani, the front-runner, and his rivals, Andrew M. Cuomo and Curtis Sliwa, are racing to turn out voters before Election Day on Tuesday. Polls are open Sunday from 9 a.m. to 5 p.m.`\
-https://nytimes.com/live/2025/11/02/nyregion/nyc-mayor-election-news
-
-**Police Arrest Two British Men in Stabbing Rampage on Train**\
-`U.K. officials said they did not believe the attack on a train to London was connected to terrorism. Two of the 11 people wounded in the stabbing spree remain in critical condition, the police said.`\
-https://nytimes.com/2025/11/02/world/europe/uk-train-stabbing-huntingdon.html
 
