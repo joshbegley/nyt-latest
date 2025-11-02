@@ -1,3 +1,11 @@
+**Sean Monahan's first of the season, Jet Greaves' strong outing, propel Blue Jackets**\
+`Monahan scored his first goal of the season in the Blue Jackets' 3-2 win over the St. Louis Blues on Saturday`\
+https://nytimes.com/athletic/6769699/2025/11/01/blue-jackets-blues-sean-monahan-jet-greaves/
+
+**Michigan narrowly beats Purdue, but listless season continues as Bryce Underwood struggles**\
+`Michigan stands at 7-2, but the Wolverines haven't found a great rhythm even against weaker opponents in the Big Ten.`\
+https://nytimes.com/athletic/6769788/2025/11/01/michigan-purdue-score-result/
+
 **Colorado, Deion Sanders demolished by Arizona in 52-17 drubbing**\
 `Across their last eight quarters, the Buffaloes have been outscored 105-24.`\
 https://nytimes.com/athletic/6769803/2025/11/01/colorado-arizona-college-football-demolished/
