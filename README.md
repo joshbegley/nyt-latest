@@ -1,3 +1,7 @@
+**Bears win back-and-forth thriller against Flacco and the Bengals**\
+`Caleb Williams' 58-yard touchdown pass to Colston Loveland with 17 seconds remaining sealed a wild win for the Bears.`\
+https://nytimes.com/athletic/6764211/2025/11/02/bears-bengals-score-result-takeaways-week-9-nfl/
+
 **Rico Dowdle leads Panthers to upset win over Packers**\
 `Behind an offensive line held together by tape and determination, Rico Dowdle delivered the performance of his career — and perhaps the defining moment of Carolina’s season.`\
 https://nytimes.com/athletic/6771502/2025/11/02/panters-packers-takeaways-upset-win-packers/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/11/02/world/afghanistan-quake-tracker.html
 **49ers-Giants takeaways: San Francisco's offense returns to life in 34-24 win**\
 `The San Francisco 49ers' offense rebounded in Week 9 to roll over the New York Giants at MetLife Stadium.`\
 https://nytimes.com/athletic/6771510/2025/11/02/49ers-giants-score-result-takeaways-week-9-nfl/
-
-**New Weapons Testing Won’t Include Nuclear Explosions, Energy Secretary Says**\
-`Energy Secretary Chris Wright said the testing ordered up in a surprise announcement by President Trump last week would focus on “the other parts” of nuclear weaponry.`\
-https://nytimes.com/2025/11/02/us/politics/trump-nuclear-testing-explosions.html
 

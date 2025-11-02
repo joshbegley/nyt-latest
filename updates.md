@@ -1,3 +1,11 @@
+**Rico Dowdle leads Panthers to upset win over Packers**\
+`Behind an offensive line held together by tape and determination, Rico Dowdle delivered the performance of his career — and perhaps the defining moment of Carolina’s season.`\
+https://nytimes.com/athletic/6771502/2025/11/02/panters-packers-takeaways-upset-win-packers/
+
+**Broncos-Texans takeaways: C.J. Stroud leaves game, Broncos show late-game heroics**\
+`It is becoming a familiar script. Bo Nix struggled early, but found his rhythm in the fourth quarter.`\
+https://nytimes.com/athletic/6771025/2025/11/02/broncos-texans-score-result-takeaways-week-9-nfl/
+
 **Sanchez performing 'at my best' after initial 'struggle' at Chelsea**\
 `The goalkeeper said he is "happy'"and "confident" after joining the London club from Brighton in 2023.`\
 https://nytimes.com/athletic/6770735/2025/11/02/robert-sanchez-chelsea-best-form/
