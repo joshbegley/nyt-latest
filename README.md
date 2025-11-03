@@ -1,3 +1,7 @@
+**'Madness': Inside the Bears' mind-blowing, roller-coaster victory in Cincinnati**\
+`The zaniness began with the opening kickoff and peaked with an improbable final touchdown in one of the wildest Bears wins in recent memory.`\
+https://nytimes.com/athletic/6771990/2025/11/02/bears-wild-finish-bengals/
+
 **Kyle Larson pulls off a NASCAR Hail Mary to win his second Cup Series title**\
 `Everything was going Denny Hamlin's way Sunday. And then a late caution changed everything and gave Kyle Larson a path to title No. 2.`\
 https://nytimes.com/athletic/6772176/2025/11/02/kyle-larson-nascar-championship-race-denny-hamlin/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6771963/2025/11/02/shai-gilgeous-alexander-oscar-ro
 **Bills outlast Patrick Mahomes, snap Chiefs' winning streak in key AFC battle: Takeaways**\
 `Mahomes endured his toughest outing of the season as the Bills overpowered the Chiefs 28-21.`\
 https://nytimes.com/athletic/6771866/2025/11/02/chiefs-patrick-mahomes-score-result-takeaways-week-9-nfl/
-
-**Denny Hamlin’s most agonizing day: ‘In this moment, I never want to race again’**\
-`Everything was lining up for Hamlin to claim his elusive first NASCAR Cup Series title. Then came another cruel twist of fate.`\
-https://nytimes.com/athletic/6772087/2025/11/02/denny-hamlin-nascar-championship-race-kyle-larson/
 

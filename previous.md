@@ -1,3 +1,11 @@
+**Kyle Larson pulls off a NASCAR Hail Mary to win his second Cup Series title**\
+`Everything was going Denny Hamlin's way Sunday. And then a late caution changed everything and gave Kyle Larson a path to title No. 2.`\
+https://nytimes.com/athletic/6772176/2025/11/02/kyle-larson-nascar-championship-race-denny-hamlin/
+
+**Blue Jackets overcome sluggish start, then fritter away late lead in loss to Islanders**\
+`The Blue Jackets managed to build a lead after a rough start but gave up two goals in the final 67 seconds.`\
+https://nytimes.com/athletic/6771986/2025/11/02/blue-jackets-islanders-merzlikins-coyle/
+
 **Steelers defense comes back to life in 'statement' win over powerful Colts**\
 `Pittsburgh snapped a two-game losing streak with a vintage performance.`\
 https://nytimes.com/athletic/6771904/2025/11/02/pittsburgh-steelers-defense-indianapolis-colts-victory/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6771866/2025/11/02/chiefs-patrick-mahomes-score-res
 **Denny Hamlin’s most agonizing day: ‘In this moment, I never want to race again’**\
 `Everything was lining up for Hamlin to claim his elusive first NASCAR Cup Series title. Then came another cruel twist of fate.`\
 https://nytimes.com/athletic/6772087/2025/11/02/denny-hamlin-nascar-championship-race-kyle-larson/
-
-**What Ben Johnson, Caleb Williams and Colston Loveland saw on the Bears' winning TD**\
-`Johnson got the coverage he wanted, Williams delivered the pass and Loveland went the distance to save the day for the Bears.`\
-https://nytimes.com/athletic/6771968/2025/11/02/bears-colston-loveland-caleb-williams-bengals/
-
-**Chargers rally around Daiyan Henley after brother's killing: 'This game was for him'**\
-`Henley's brother, Jabari, died Friday in Los Angeles of multiple gunshot wounds, with the cause of death ruled a homicide.`\
-https://nytimes.com/athletic/6771954/2025/11/02/chargers-daiyan-henley-brother-jabari-death/
 

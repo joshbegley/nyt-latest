@@ -1,3 +1,11 @@
+**Kyle Larson pulls off a NASCAR Hail Mary to win his second Cup Series title**\
+`Everything was going Denny Hamlin's way Sunday. And then a late caution changed everything and gave Kyle Larson a path to title No. 2.`\
+https://nytimes.com/athletic/6772176/2025/11/02/kyle-larson-nascar-championship-race-denny-hamlin/
+
+**Blue Jackets overcome sluggish start, then fritter away late lead in loss to Islanders**\
+`The Blue Jackets managed to build a lead after a rough start but gave up two goals in the final 67 seconds.`\
+https://nytimes.com/athletic/6771986/2025/11/02/blue-jackets-islanders-merzlikins-coyle/
+
 **Steelers defense comes back to life in 'statement' win over powerful Colts**\
 `Pittsburgh snapped a two-game losing streak with a vintage performance.`\
 https://nytimes.com/athletic/6771904/2025/11/02/pittsburgh-steelers-defense-indianapolis-colts-victory/
