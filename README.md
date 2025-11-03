@@ -1,3 +1,7 @@
+**NWSL Decision Day recap: Racing celebrates, Current earns crucial win and an exciting rematch**\
+`Who's in and who's out: Recapping the key moments from the 2025 NWSL Decision Day.`\
+https://nytimes.com/athletic/6772244/2025/11/02/nwsl-decision-day-2025-recap/
+
 **Judge Rules Against Trump’s Oregon National Guard Deployment**\
 `The ruling prevents the Trump administration from sending in Guard soldiers to protect an Immigration and Customs Enforcement facility in Portland, at least until Friday.`\
 https://nytimes.com/2025/11/02/us/politics/trump-oregon-national-guard-deployment.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6772310/2025/11/02/toronto-raptors-blue-jays-hope/
 **2025 Gold Glove Award winners: 3 players win for the fourth time**\
 `There was only one player total from the Dodgers and Blue Jays. Nine players are first-time winners.`\
 https://nytimes.com/athletic/6772120/2025/11/02/gold-glove-winners-2025-mlb/
-
-**Jaguars-Raiders takeaways: Offensive explosion late in game leads to thrilling Jacksonville win**\
-`A record-long field goal "ignited" the Jaguars to a 30-29 overtime victory over the Raiders.`\
-https://nytimes.com/athletic/6772275/2025/11/02/jaguars-raiders-score-result-takeaways-week-9-nfl/
 
