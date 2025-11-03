@@ -1,3 +1,19 @@
+**Food Aid Program for Low-Income Women and Children Gets More Temporary Funding**\
+`An injection of $450 million for WIC comes as the Trump administration announced it would only fund partial benefits for another food aid program, the Supplemental Nutrition Assistance Program, or SNAP, for November.`\
+https://nytimes.com/2025/11/03/us/politics/wic-snap-food-aid.html
+
+**The Jamaican Families Torn Apart by Hurricane Melissa**\
+`Days after a powerful hurricane made landfall in Jamaica, thousands of residents are now homeless and trying to make sense of how they narrowly survived.`\
+https://nytimes.com/video/world/americas/100000010495376/hurricane-melissa-damage-jamaica-black-river.html
+
+**2 Lawsuits Challenge New Rule Limiting Student Loan Forgiveness for Public Servants**\
+`Nonprofit groups and state officials warned that the rule could be used to penalize organizations and agencies at odds with the Trump administration’s political agenda.`\
+https://nytimes.com/2025/11/03/us/politics/student-loan-forgiveness-public-servants-trump.html
+
+**Browns coach Kevin Stefanski turns over play-calling duties to OC Tommy Rees**\
+`Cleveland's offense ranks 31st in the NFL in yards per game and 30th in points per game. `\
+https://nytimes.com/athletic/6774119/2025/11/03/browns-kevin-stefanski-play-calling-tommy-rees/
+
 **Browns coach Kevin Stefanski turns play-calling duties over to OC Tommy Rees**\
 `Cleveland's offense ranks 31st in the NFL in yards per game and 30th in points per game. `\
 https://nytimes.com/athletic/6774119/2025/11/03/browns-kevin-stefanski-play-calling-tommy-rees/

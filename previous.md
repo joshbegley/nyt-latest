@@ -1,4 +1,16 @@
-**Browns coach Kevin Stefanski turns play-calling duties over to OC Tommy Rees**\
+**Food Aid Program for Low-Income Women and Children Gets More Temporary Funding**\
+`An injection of $450 million for WIC comes as the Trump administration announced it would only fund partial benefits for another food aid program, the Supplemental Nutrition Assistance Program, or SNAP, for November.`\
+https://nytimes.com/2025/11/03/us/politics/wic-snap-food-aid.html
+
+**The Jamaican Families Torn Apart by Hurricane Melissa**\
+`Days after a powerful hurricane made landfall in Jamaica, thousands of residents are now homeless and trying to make sense of how they narrowly survived.`\
+https://nytimes.com/video/world/americas/100000010495376/hurricane-melissa-damage-jamaica-black-river.html
+
+**2 Lawsuits Challenge New Rule Limiting Student Loan Forgiveness for Public Servants**\
+`Nonprofit groups and state officials warned that the rule could be used to penalize organizations and agencies at odds with the Trump administration’s political agenda.`\
+https://nytimes.com/2025/11/03/us/politics/student-loan-forgiveness-public-servants-trump.html
+
+**Browns coach Kevin Stefanski turns over play-calling duties to OC Tommy Rees**\
 `Cleveland's offense ranks 31st in the NFL in yards per game and 30th in points per game. `\
 https://nytimes.com/athletic/6774119/2025/11/03/browns-kevin-stefanski-play-calling-tommy-rees/
 
@@ -21,20 +33,4 @@ https://nytimes.com/athletic/6774031/2025/11/03/marlins-promote-gabe-kapler-gene
 **Myles Turner prepares for 'mixed emotions' in first game against Pacers**\
 `Monday’s game will be the first time that Turner plays against his former team in the city he spent the first 10 years of his NBA career.`\
 https://nytimes.com/athletic/6773948/2025/11/03/bucks-myles-turner-pacers-return/
-
-**Four teams that are undervalued heading into the men's college basketball season**\
-`Jim Root gives his best advice on which teams are undervalued from a betting perspective ahead of the NCAA men's basketball season.`\
-https://nytimes.com/athletic/6773562/2025/11/03/2026-college-basketball-best-futures-bets-predictions-picks-long-shots/
-
-**How to watch New Orleans vs. Oklahoma State: Time, TV, streaming**\
-`Find out how to watch the New Orleans Privateers play the Oklahoma State Cowgirls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6774181/2025/11/03/new-orleans-vs-oklahoma-state-stream-how-to-watch-nov-3/
-
-**Rockies move on from finalists for top baseball operations job: Sources**\
-`The Diamondbacks' Amiel Sawdaye and Guardians' Matt Forman were the only finalists as of last week.`\
-https://nytimes.com/athletic/6774079/2025/11/03/rockies-reopen-gm-search-sawdaye-forman/
-
-**Inside Newcastle Q&A: Did Howe lose his cool? Are the new signings working?**\
-`After a poor performance in defeat at West Ham over the weekend, we answer your pressing questions about Newcastle`\
-https://nytimes.com/athletic/6772908/2025/11/03/inside-newcastle-q-a-did-howe-lose-his-cool-are-the-new-signings-working/
 
