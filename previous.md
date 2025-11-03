@@ -1,40 +1,40 @@
-**How to watch Louisville vs. UConn: Time, TV, streaming**\
-`Find out how to watch the Louisville Cardinals play the UConn Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6773616/2025/11/03/louisville-vs-uconn-stream-how-to-watch-nov-4/
+**Why you should target Drake London, Mark Andrews in fantasy football trades**\
+`KC Joyner looks at rest-of-season schedules to locate trade targets and players to ship out before their value plummets. `\
+https://nytimes.com/athletic/6773254/2025/11/03/fantasy-football-trade-targets-players-schedule/
 
-**The Windup: Still thinking about this Game 7 play**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6772692/2025/11/03/world-series-recap-offseason-the-windup/
+**USMNT Player Tracker: Adams gets long-awaited goal and Richards minutes row**\
+`From the Premier League to Serie A and the Championship to the Scottish League Cup, here's how the U.S players fared in Europe this week`\
+https://nytimes.com/athletic/6773307/2025/11/03/usmnt-player-tracker-world-cup-premier-league-tyler-adams-chris-richards/
 
-**How to watch Incarnate Word vs. Texas: Time, TV, streaming**\
-`Find out how to watch the Incarnate Word Cardinals play the Texas Longhorns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6773613/2025/11/03/incarnate-word-vs-texas-stream-how-to-watch-nov-3/
+**Has Gracie Mansion Ever Had a Democratic Socialist?**\
+`Zohran Mamdani’s opponents have portrayed his Democratic Socialists of America affiliation as unusual, but he is not the first New York politician — or would-be mayor — with ties to the group.`\
+https://nytimes.com/2025/11/03/nyregion/democratic-socialism-zohran-mamdani-city-hall-dinkins.html
 
-**How to watch Belmont vs. Oklahoma: Time, TV, streaming**\
-`Find out how to watch the Belmont Bruins play the Oklahoma Sooners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6773610/2025/11/03/belmont-vs-oklahoma-stream-how-to-watch-nov-3/
+**France Threatens to Ban Shein Over Sale of ‘Childlike’ Sex Dolls**\
+`The controversy adds to a growing backlash in France against the giant Chinese online retailer as it prepares to open its first physical store on Wednesday in Paris.`\
+https://nytimes.com/2025/11/03/business/shein-france-sex-dolls.html
 
-**How to watch Cal vs. Vanderbilt: Time, TV, streaming**\
-`Find out how to watch the California Golden Bears play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6773608/2025/11/03/cal-vs-vanderbilt-stream-how-to-watch-nov-3/
+**How to watch Baylor vs. Duke: Time, TV, streaming**\
+`Find out how to watch the Baylor Bears play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6773638/2025/11/03/baylor-vs-duke-stream-how-to-watch-nov-3/
 
-**Will fans with YouTube TV be able to watch ‘Monday Night Football' tonight?**\
-`The stand-off between the distributor with 10 million subscribers and the content company controlling premium sports TV rights continues.`\
-https://nytimes.com/athletic/6773561/2025/11/03/youtubetv-disney-espn-monday-night-football-cowboys/
+**How to watch St. Thomas vs. Iowa State: Time, TV, streaming**\
+`Find out how to watch the Saint Thomas Tommies play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6773636/2025/11/03/st-thomas-vs-iowa-state-stream-how-to-watch-nov-3/
 
-**How to watch Southern vs. Iowa: Time, TV, streaming**\
-`Find out how to watch the Southern Jaguars play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6773600/2025/11/03/southern-vs-iowa-stream-how-to-watch-nov-3/
+**After Fleeing a Massacre, Survivors Encountered Still More Gunfire and Abductions**\
+`Thousands of people who witnessed atrocities have tried to escape El Fasher in Sudan’s Darfur region since paramilitary fighters seized that city in late October.`\
+https://nytimes.com/2025/11/03/world/africa/sudan-el-fasher-darfur-massacre-rsf.html
 
-**How to watch North Carolina Central vs. North Carolina: Time, TV, streaming**\
-`Find out how to watch the North Carolina Central Eagles play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6773597/2025/11/03/north-carolina-central-vs-north-carolina-stream-how-to-watch-nov-3/
+**You Don’t Need to Swipe Right. A.I. Is Transforming Dating Apps.**\
+`Meet your artificial intelligence matchmakers. These A.I. tools are changing dating apps, so users don’t have to swipe through an endless scroll of profiles.`\
+https://nytimes.com/2025/11/03/technology/ai-dating-apps.html
 
-**How to watch Norfolk State vs. Ole Miss: Time, TV, streaming**\
-`Find out how to watch the Norfolk State Spartans play the Ole Miss Rebels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6773595/2025/11/03/norfolk-state-vs-ole-miss-stream-how-to-watch-nov-3/
+**How to watch Le Moyne vs. St. John's: Time, TV, streaming**\
+`Find out how to watch the Le Moyne Dolphins play the St. John's Red Storm, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6773632/2025/11/03/le-moyne-vs-st-john-s-stream-how-to-watch-nov-3/
 
-**Trump Administration Faces Court Deadline on Food Stamp Benefits**\
-`The government must inform two courts how, and when, it intends to pay benefits in November, as the shutdown continues.`\
-https://nytimes.com/2025/11/03/business/snap-food-stamps-trump.html
+**Facebook Dating Is a Surprise Hit for the Social Network**\
+`Facebook’s free dating service has 21 million users, more than the popular dating app Hinge, as the social network reinvents itself.`\
+https://nytimes.com/2025/11/03/technology/facebook-dating-surprise-hit.html
 
