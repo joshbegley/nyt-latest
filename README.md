@@ -1,3 +1,27 @@
+**Arsenal-Palace Carabao Cup quarter-final set for December 23**\
+`The scheduling of the game means both sides will have only one day's rest following Premier League action on December 21.`\
+https://nytimes.com/athletic/6763276/2025/11/03/crystal-palace-arsenal-carabao-cup-when/
+
+**How to watch Loyola (MD) vs. Maryland: Time, TV, streaming**\
+`Find out how to watch the Loyola (MD) Greyhounds play the Maryland Terrapins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6773795/2025/11/03/loyola-md-vs-maryland-stream-how-to-watch-nov-3/
+
+**How to watch Indiana State vs. IU Indianapolis: Time, TV, streaming**\
+`Find out how to watch the Indiana State Sycamores play the IU Indianapolis Jaguars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6773793/2025/11/03/indiana-state-vs-iu-indianapolis-stream-how-to-watch-nov-3/
+
+**How to watch Gardner-Webb vs. Queens (NC): Time, TV, streaming**\
+`Find out how to watch the Gardner-Webb Runnin' Bulldogs play the Queens (NC) Royals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6773791/2025/11/03/gardner-webb-vs-queens-nc-stream-how-to-watch-nov-3/
+
+**How to watch Morehead State vs. Kentucky: Time, TV, streaming**\
+`Find out how to watch the Morehead State Eagles play the Kentucky Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6773790/2025/11/03/morehead-state-vs-kentucky-stream-how-to-watch-nov-3/
+
+**How to watch Grand Canyon vs. South Carolina: Time, TV, streaming**\
+`Find out how to watch the Grand Canyon Antelopes play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6773787/2025/11/03/grand-canyon-vs-south-carolina-stream-how-to-watch-nov-3/
+
 **Knee Arthritis? Exercise Can Help Manage the Pain.**\
 `This uncomfortable condition is increasingly common as you age. But it doesn’t mean you can’t work out.`\
 https://nytimes.com/2025/11/03/well/move/knee-osteoarthritis-exercise-advice.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/11/03/well/mind/dementia-steps-study.html
 **The Bounce: Things are getting tense in Memphis and New Orleans**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6773513/2025/11/03/ja-morant-grizzlies-zion-williamson-pelicans-the-bounce/
-
-**‘Filling, Healthy and Inexpensive to Make’**\
-`My chickpea stew with orzo and mustard greens is a welcoming vehicle for whatever leafy greens you’ve got.`\
-https://nytimes.com/2025/11/03/dining/filling-healthy-and-inexpensive-to-make.html
-
-**La Scala Honors Shostakovich with a New Vision of his Original ‘Lady Macbeth’**\
-`Banned for decades in the Soviet Union for its dissonance and bawdiness, the opera returns as La Scala’s season opener amid the 50th anniversary of Shostakovich’s death.`\
-https://nytimes.com/2025/11/03/arts/la-scala-shostakovich-lady-macbeth.html
-
-**Meet the Billionaire Trying to Save College Football From Itself**\
-`Cody Campbell, an oilman, has spent millions paying students to play football at Texas Tech. Now he worries that people like him are ruining college sports.`\
-https://nytimes.com/2025/11/03/business/college-football-cody-campbell-texas-tech.html
-
-**A Creator of Enigmas Tackles Debussy’s Operatic Masterpiece**\
-`The Italian director Romeo Castellucci, known for his avant-garde theater productions, will take on Debussy’s “Pelléas et Mélisande” in his La Scala debut.`\
-https://nytimes.com/2025/11/03/arts/castellucci-debussy-lascala-opera.html
-
-**NBA Power Rankings: Lakers, Rockets rise; Cavs fall; rotation check-ins for everyone**\
-`Two weeks is about the length of a playoff series, and it's enough time to break down what key contributors are, well, contributing.`\
-https://nytimes.com/athletic/6773370/2025/11/03/nba-power-rankings-lakers-rockets-warriors-defense/
-
-**La Scala’s First ‘Ring’ in a Decade Passes the Wagnerian Flame**\
-`Two conductors — a mentor and a protégé, both trained as pianists — bring precision and lyricism to the first new staging of Wagner’s epic in a decade.`\
-https://nytimes.com/2025/11/03/arts/la-scala-wagner-ring-cycle.html
 
