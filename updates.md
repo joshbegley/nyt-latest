@@ -1,3 +1,7 @@
+**How Maduro Future-Proofed His Dictatorship**\
+`Venezuela’s president has built a system in which the only people who can truly tear down his dictatorship are the ones with the most to lose from its demise.`\
+https://nytimes.com/2025/11/03/opinion/maduro-venezuela-autocracy.html
+
 **N.J. Democrats Hope Early Vote Advantage Is Enough as Race Enters Last Days**\
 `As a close race for governor between Mikie Sherrill and Jack Ciattarelli comes to a close, the two campaigns were reading the tea leaves and pulling out the stops.`\
 https://nytimes.com/2025/11/03/nyregion/nj-democrats-hope-early-vote-advantage-is-enough-as-race-enters-last-days.html
