@@ -35,6 +35,6 @@ https://nytimes.com/athletic/6772022/2025/11/02/giants-49ers-jaxson-dart/
 https://nytimes.com/athletic/6771999/2025/11/02/panthers-beat-packers-rico-dowdle/
 
 **Large Earthquake Strikes Northern Afghanistan**\
-`The quake struck on Monday near Mazar-i-Sharif, a city known for its magnificent Blue Mosque. The extent of the damage was not immediately clear.`\
+`The 6.3-magnitude quake struck on Monday near Mazar-i-Sharif, a city known for its magnificent Blue Mosque. The extent of the damage was not immediately clear.`\
 https://nytimes.com/2025/11/02/world/asia/afghanistan-earthquake-blue-mosque.html
 
