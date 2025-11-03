@@ -1,3 +1,19 @@
+**Arrests in Louvre Heist Show Power of DNA Databases in Solving Crimes**\
+`France’s trove of DNA profiles has helped solve high-profile crimes and was used to find some of the Louvre suspects, and it is growing. The police can also access other countries’ databases.`\
+https://nytimes.com/2025/11/03/world/europe/louvre-heist-dna-databases.html
+
+**No Corrections: Nov. 3, 2025**\
+`No corrections appeared in print on Monday, Nov. 3, 2025.`\
+https://nytimes.com/2025/11/03/pageoneplus/no-corrections-nov-3-2025.html
+
+**Quote of the Day: In Dark Year for Los Angeles, Dodgers’ Win Is Soothing Glow**\
+`Quotation of the Day for Monday, November 3, 2025.`\
+https://nytimes.com/2025/11/03/pageoneplus/quote-of-the-day-in-dark-year-for-los-angeles-dodgers-win-is-soothing-glow.html
+
+**Connections: Sports Edition Coach: Hints for Nov. 3, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6772351/2025/11/03/connections-sports-edition-hints-for-nov-3-2025/
+
 **Josh Allen was 'slotted' and 'vibing': How Bills still upset Chiefs without wideout production**\
 `The Bills' tight ends and James Cook played big roles in the win.`\
 https://nytimes.com/athletic/6772536/2025/11/02/josh-allen-bills-win-chiefs/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6772508/2025/11/02/son-heung-min-and-denis-bouanga-
 **Thunder's Shai Gilgeous-Alexander says 'everybody's safe' after break-in**\
 `“Everything else can come and go, but my loved ones are safe, so I’m OK. I’m happy," Gilgeous-Alexander said.`\
 https://nytimes.com/athletic/6772410/2025/11/02/shai-gilgeous-alexander-thunder-break-in/
-
-**Jayden Daniels suffers gruesome left arm injury during Commanders' loss to Seahawks**\
-`Daniels was injured midway through the fourth quarter as the Washington Commanders badly trailed the Seattle Seahawks.`\
-https://nytimes.com/athletic/6772596/2025/11/02/jayden-daniels-arm-injury-leaves-game-commanders-seattle/
-
-**After losses by Spurs, Bulls, the Thunder are the NBA's only remaining unbeaten**\
-`The defending champion Thunder continued their dominant start with another big win, leaving as the NBA's lone remaining unbeaten.`\
-https://nytimes.com/athletic/6772205/2025/11/02/thunder-spurs-bulls-nba-shai-gilgeous-alexander-victor-wembanyama/
-
-**Trump Says War With Venezuela Is Unlikely but Suggests Maduro’s Time Is Up**\
-`In an interview with “60 Minutes,” President Trump was circumspect on potential escalation targeting Venezuela. He was also pressed on deportations, the government shutdown and his recent demand for nuclear tests.`\
-https://nytimes.com/2025/11/02/us/politics/trump-venezuela-shutdown-nuclear.html
-
-**Son, Müller on collision course; Updated MLS playoff bracket**\
-`MLS's playoff field continues to be whittled down through the best-of-3 first round. Here's the full schedule and road to MLS Cup`\
-https://nytimes.com/athletic/6740291/2025/11/02/mls-cup-2025-playoff-bracket-full-postseason-schedule-updated-results/
 
