@@ -1,3 +1,15 @@
+**A preview of The Athletic’s live coverage this week**\
+`Our live coverage this week includes the NFL trade deadline, Champions League action, Formula One and more`\
+https://nytimes.com/athletic/6770517/2025/11/03/live-coverage-weekly-schedule-3/
+
+**Word of the Day: protagonist**\
+`This word has appeared in 517 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/03/learning/word-of-the-day-protagonist.html
+
+**With ‘a Billion’ Eyes on Them, India’s Women Lift Cricket World Cup**\
+`A team that faced seemingly insurmountable odds wins its first championship, with wider ramifications for the role women play in public life.`\
+https://nytimes.com/2025/11/03/world/asia/india-women-cricket-world-cup.html
+
 **With ‘A Billion’ Eyes on Them, India’s Women Lift Cricket World Cup**\
 `A team that faced seemingly insurmountable odds wins its first championship, with wider ramifications for the role women play in public life.`\
 https://nytimes.com/2025/11/03/world/asia/india-women-cricket-world-cup.html
