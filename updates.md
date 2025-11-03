@@ -1,3 +1,7 @@
+**Denny Hamlin’s most agonizing day: ‘In this moment, I never want to race again’**\
+`Everything was lining up for Hamlin to claim his elusive first NASCAR Cup Series title. Then came another cruel twist of fate.`\
+https://nytimes.com/athletic/6772087/2025/11/02/denny-hamlin-nascar-championship-race-kyle-larson/
+
 **With upset of Packers and wind to their back, are the Panthers ready to make a run?**\
 `Rico Dowdle ran 25 times for 130 yards and two TDs and Ryan Fitzgerald's 49-yard field goal pushed the Panthers to 5-4 this season.`\
 https://nytimes.com/athletic/6771999/2025/11/02/panthers-beat-packers-rico-dowdle/

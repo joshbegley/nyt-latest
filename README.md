@@ -1,3 +1,11 @@
+**Bears Outlast Bengals in Wild Back-and-Forth Game**\
+`The Chicago Bears beat the Cincinnati Bengals, 47-42, in Week 9, scoring the winning touchdown with 17 seconds left after surviving a late defensive collapse.`\
+https://nytimes.com/video/the-athletic/100000010497980/bears-outlast-bengals-in-wild-back-and-forth-game.html
+
+**Someday, Jaxson Dart will make all the Giants' misery disappear**\
+`It doesn't matter that the 2-7 Giants are going nowhere. Dart is going to be a star, and his confidence might be the most impressive trait.`\
+https://nytimes.com/athletic/6772022/2025/11/02/giants-49ers-jaxson-dart/
+
 **With upset of Packers and wind to their back, are the Panthers ready to make a run?**\
 `Rico Dowdle ran 25 times for 130 yards and two TDs and Ryan Fitzgerald's 49-yard field goal pushed the Panthers to 5-4 this season.`\
 https://nytimes.com/athletic/6771999/2025/11/02/panthers-beat-packers-rico-dowdle/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6771954/2025/11/02/chargers-daiyan-henley-brother-j
 **Mac Jones shines for 49ers yet again, in what might be his last chance this season**\
 `Jones didn't miss a pass in the first half and improved to 5-2 as a starter this season, as Brock Purdy nears his return from injury.`\
 https://nytimes.com/athletic/6771915/2025/11/02/mac-jones-49ers-giants-brock-purdy/
-
-**Explosion at Harvard Building Affected Small Section of Hallway, Officials Say**\
-`There was no structural damage to the building, they said, as investigators pursued two suspects.`\
-https://nytimes.com/2025/11/02/us/explosion-harvard-damage.html
-
-**10-Minute Challenge: A Vase of Flowers**\
-`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
-https://nytimes.com/interactive/2025/11/02/upshot/ten-minute-challenge-flowers.html
 
