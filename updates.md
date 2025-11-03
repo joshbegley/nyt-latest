@@ -1,3 +1,15 @@
+**Women's college basketball tips off with Duke-Baylor, Cal-Vanderbilt doubleheader in Paris**\
+`The women's college basketball season starts Monday, with a highly anticipated doubleheader in Paris. Here's how to watch both games.`\
+https://nytimes.com/athletic/6767762/2025/11/03/womens-college-basketball-duke-baylor-cal-vanderbilt-paris/
+
+**Our Election Guide**\
+`Tomorrow is an off-year Election Day across the United States. We explain what is happening.`\
+https://nytimes.com/2025/11/03/briefing/our-election-guide.html
+
+**Yankees offseason calendar: Key dates, Rule 5 eligible players, arbitration figures**\
+`To set the stage for the Yankees' offseason agenda, here’s a look at the key dates and how they affect the club.`\
+https://nytimes.com/athletic/6766844/2025/11/03/yankees-offseason-calendar-2025-2026-key-dates/
+
 **Canadiens weekly notebook: Bolduc’s self-awareness, a lab session with Matheson and more**\
 `Also in the Canadiens notebook: Oliver Kapanen's transition to the penalty kill and some perspective on Ivan Demidov's rookie performance.`\
 https://nytimes.com/athletic/6772739/2025/11/03/canadiens-bolduc-matheson-debate-kapanen-penalty-kill/

@@ -1,3 +1,15 @@
+**Women's college basketball tips off with Duke-Baylor, Cal-Vanderbilt doubleheader in Paris**\
+`The women's college basketball season starts Monday, with a highly anticipated doubleheader in Paris. Here's how to watch both games.`\
+https://nytimes.com/athletic/6767762/2025/11/03/womens-college-basketball-duke-baylor-cal-vanderbilt-paris/
+
+**Our Election Guide**\
+`Tomorrow is an off-year Election Day across the United States. We explain what is happening.`\
+https://nytimes.com/2025/11/03/briefing/our-election-guide.html
+
+**Yankees offseason calendar: Key dates, Rule 5 eligible players, arbitration figures**\
+`To set the stage for the Yankees' offseason agenda, here’s a look at the key dates and how they affect the club.`\
+https://nytimes.com/athletic/6766844/2025/11/03/yankees-offseason-calendar-2025-2026-key-dates/
+
 **Canadiens weekly notebook: Bolduc’s self-awareness, a lab session with Matheson and more**\
 `Also in the Canadiens notebook: Oliver Kapanen's transition to the penalty kill and some perspective on Ivan Demidov's rookie performance.`\
 https://nytimes.com/athletic/6772739/2025/11/03/canadiens-bolduc-matheson-debate-kapanen-penalty-kill/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6771813/2025/11/03/blackhawks-power-rankings-bedard
 **Guardians offseason agenda: coaching hires, roster shuffling and boosting the offense**\
 `The Guardians have until the end of the week to decide on John Means' $6 million club option for 2026 after his Tommy John rehab year.`\
 https://nytimes.com/athletic/6771032/2025/11/03/cleveland-guardians-offseason-moves-2025/
-
-**Connor Ingram is 'building a foundation on rock bottom' in road back to NHL**\
-`Ingram is playing in the AHL after being traded to the Edmonton Oilers organization in October.`\
-https://nytimes.com/athletic/6771322/2025/11/03/connor-ingram-nhl-edmonton-oilers-ahl-stats/
-
-**Men's college basketball's opening night is a missed opportunity. Here's how to fix it**\
-`There's only one matchup of ranked teams on the first night of the college basketball season — a night that should be more of a spectacle.`\
-https://nytimes.com/athletic/6771624/2025/11/03/college-basketball-opening-night-games/
-
-**Evaluating Vladar, Michkov, Luchanko and more: 12 Flyers thoughts after 12 games**\
-`Plus: an injury update on Tyson Foerster, plans for the restricted free agents and learning Tocchet's game plans.`\
-https://nytimes.com/athletic/6772221/2025/11/03/flyers-12-games-vladar-michkov-luchanko/
 
