@@ -1,3 +1,19 @@
+**Why the Blackhawks recalled first-round pick Oliver Moore sooner than expected**\
+`The Blackhawks called up Moore, a speedy, 20-year-old forward, on Monday.`\
+https://nytimes.com/athletic/6774223/2025/11/03/blackhawks-oliver-moore-called-up-nhl-prospect/
+
+**ABC and ESPN are blacked out on YouTube TV. Here are the next options for subscribers**\
+`Carriage beef between Google and Disney leaves YouTube TV users without access to major sports telecasts this week.`\
+https://nytimes.com/athletic/6773997/2025/11/03/abc-espn-youtube-tv-how-to-watch/
+
+**Ask Mirtle Anything: Submit your NHL questions for James' next mailbag**\
+`<p>We&#8217;re through the first month of the NHL season and teams are starting to approach the 15-game mark.`\
+https://nytimes.com/athletic/6774394/2025/11/03/submit-your-nhl-questions-for-james-mirtles-next-mailbag/
+
+**Scoop City: Risers and fallers after Week 9**\
+`Bills, Steelers and Vikings are rising as the Packers and Falcons trend down`\
+https://nytimes.com/athletic/6774351/2025/11/03/nfl-risers-fallers-week-9-bills-steelers-vikings/
+
 **Jon Stewart Signs Extension for ‘Daily Show’ Through 2026**\
 `Mr. Stewart’s contract was set to expire in December, though he expressed publicly last month that he wanted to keep hosting the show.`\
 https://nytimes.com/2025/11/03/business/media/jon-stewart-daily-show-extension.html
