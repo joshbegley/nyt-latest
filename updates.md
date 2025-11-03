@@ -1,3 +1,19 @@
+**N.J. Democrats Hope Early Vote Advantage Is Enough as Race Enters Last Days**\
+`As a close race for governor between Mikie Sherrill and Jack Ciattarelli comes to a close, the two campaigns were reading the tea leaves and pulling out the stops.`\
+https://nytimes.com/2025/11/03/nyregion/nj-democrats-hope-early-vote-advantage-is-enough-as-race-enters-last-days.html
+
+**These 5 Key Voting Groups Could Decide the Mayor’s Race**\
+`From religion to race, age to ethnicity, pockets of New Yorkers represent key blocs that can unlock tens of thousands of votes in a citywide race.`\
+https://nytimes.com/2025/11/03/nyregion/nyc-mayoral-election-voting-blocs.html
+
+**A Bloody Prison Beating Was Caught on Video. No Guards Were Punished.**\
+`A New York prisoner accused corrections officers of assault and sexual abuse. State officials deemed his claims unfounded despite footage of the encounter.`\
+https://nytimes.com/2025/11/03/nyregion/ny-prison-guards-inmate-video.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/03/crosswords/spelling-bee-forum.html
+
 **Are there 'signs of life' for Celtic, Rangers and Scottish football?**\
 `It's been a terrible season for the Old Firm – and Scottish football in general – but did the Scottish Cup semi-final show all is not lost?`\
 https://nytimes.com/athletic/6771495/2025/11/03/celtic-rangers-scottish-league-cup-result/

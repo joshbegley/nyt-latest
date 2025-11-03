@@ -1,3 +1,19 @@
+**N.J. Democrats Hope Early Vote Advantage Is Enough as Race Enters Last Days**\
+`As a close race for governor between Mikie Sherrill and Jack Ciattarelli comes to a close, the two campaigns were reading the tea leaves and pulling out the stops.`\
+https://nytimes.com/2025/11/03/nyregion/nj-democrats-hope-early-vote-advantage-is-enough-as-race-enters-last-days.html
+
+**These 5 Key Voting Groups Could Decide the Mayor’s Race**\
+`From religion to race, age to ethnicity, pockets of New Yorkers represent key blocs that can unlock tens of thousands of votes in a citywide race.`\
+https://nytimes.com/2025/11/03/nyregion/nyc-mayoral-election-voting-blocs.html
+
+**A Bloody Prison Beating Was Caught on Video. No Guards Were Punished.**\
+`A New York prisoner accused corrections officers of assault and sexual abuse. State officials deemed his claims unfounded despite footage of the encounter.`\
+https://nytimes.com/2025/11/03/nyregion/ny-prison-guards-inmate-video.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/03/crosswords/spelling-bee-forum.html
+
 **N.Y.C. Mayoral Candidates Make Final Push on Last Day of Early Voting**\
 `Zohran Mamdani, Andrew Cuomo and Curtis Sliwa spent Sunday, the last day of early voting, zigzagging across New York City to deliver their final messages and urge people to go to the polls.`\
 https://nytimes.com/video/us/elections/100000010497970/nyc-mayoral-election-voting-blocs.html
@@ -21,22 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/11/03/todays-new-york-times
 **‘All’s Fair,’ Plus 7 Things to Watch on TV This Week**\
 `Ryan Murphy’s new show airs on Hulu and two mockumentaries have their season premieres.`\
 https://nytimes.com/2025/11/03/arts/television/alls-fair-tv-this-week.html
-
-**Maduro Might Not Last. But His System Could Survive.**\
-`Maduro has built a system in which the only people who can truly tear down the dictatorship are the ones with the most to lose from its demise.`\
-https://nytimes.com/2025/11/03/opinion/maduro-venezuela-autocracy.html
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>We spent the first two months of the season paring the list of coaches. Now it&#8217;s time to start narrowing down the CFP field.</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6772749/2025/11/03/submit-a-question-for-stewart-mandels-college-football-mailbag-321/
-
-**Are there 'signs of life' for Celtic, Rangers and Scottish football?**\
-`It's been a terrible season for the Old Firm – and Scottish football in general – but did the Scottish Cup semi-final show all is not lost?`\
-https://nytimes.com/athletic/6771495/2025/11/03/celtic-rangers-scottish-league-cup-result/
-
-**How Manchester City fed Erling Haaland by embracing chaos**\
-`Bournemouth are disruptors. Pep Guardiola's solution was simple: he used their manufactured chaos against them to unleash Haaland`\
-https://nytimes.com/athletic/6770944/2025/11/03/erling-haaland-man-city-chaos/
 
