@@ -1,3 +1,11 @@
+**Bears Outlast Bengals in Wild Back-and-Forth Game**\
+`The Chicago Bears beat the Cincinnati Bengals, 47-42, in Week 9, scoring the winning touchdown with 17 seconds left after surviving a late defensive collapse.`\
+https://nytimes.com/video/the-athletic/100000010497980/bears-outlast-bengals-in-wild-back-and-forth-game.html
+
+**Someday, Jaxson Dart will make all the Giants' misery disappear**\
+`It doesn't matter that the 2-7 Giants are going nowhere. Dart is going to be a star, and his confidence might be the most impressive trait.`\
+https://nytimes.com/athletic/6772022/2025/11/02/giants-49ers-jaxson-dart/
+
 **Denny Hamlin’s most agonizing day: ‘In this moment, I never want to race again’**\
 `Everything was lining up for Hamlin to claim his elusive first NASCAR Cup Series title. Then came another cruel twist of fate.`\
 https://nytimes.com/athletic/6772087/2025/11/02/denny-hamlin-nascar-championship-race-kyle-larson/
