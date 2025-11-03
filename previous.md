@@ -1,3 +1,11 @@
+**Fantasy football Week 9 takeaways: Joe Flacco, Kyle Monangai grab the spotlight**\
+`Michael Salfino shares his observations for Week 9, including headliner performances from an unlikely cast of characters.`\
+https://nytimes.com/athletic/6771789/2025/11/03/fantasy-football-week-9-takeaways-joe-flacco-kyle-monangai-grab-the-spotlight/
+
+**Salah's 250 Liverpool goals: Record 16 vs Man Utd and scoring at a faster rate than Ian Rush**\
+`Breaking down the Egyptian's incredible scoring after his latest milestone`\
+https://nytimes.com/athletic/6770404/2025/11/03/salah-250-liverpool-goals-broken-down/
+
 **Arrests in Louvre Heist Show Power of DNA Databases in Solving Crimes**\
 `France’s trove of DNA profiles has helped solve high-profile crimes and was used to find some of the Louvre suspects, and it is growing. The police can also access other countries’ databases.`\
 https://nytimes.com/2025/11/03/world/europe/louvre-heist-dna-databases.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6772244/2025/11/02/nwsl-decision-day-2025-recap/
 **Judge Rules Against Trump’s Oregon National Guard Deployment**\
 `The ruling prevents the Trump administration from sending in Guard soldiers to protect an Immigration and Customs Enforcement facility in Portland, at least until Friday.`\
 https://nytimes.com/2025/11/02/us/politics/trump-oregon-national-guard-deployment.html
-
-**Son and Bouanga see LAFC past Austin and set up clash with Muller's Whitecaps**\
-`Successive wins in the best-of-three series was a sign that LAFC may be peaking at just the right time.`\
-https://nytimes.com/athletic/6772508/2025/11/02/son-heung-min-and-denis-bouanga-see-lafc-past-austin-in-mls-playoffs/
-
-**Thunder's Shai Gilgeous-Alexander says 'everybody's safe' after break-in**\
-`“Everything else can come and go, but my loved ones are safe, so I’m OK. I’m happy," Gilgeous-Alexander said.`\
-https://nytimes.com/athletic/6772410/2025/11/02/shai-gilgeous-alexander-thunder-break-in/
 

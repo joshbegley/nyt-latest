@@ -1,3 +1,11 @@
+**Fantasy football Week 9 takeaways: Joe Flacco, Kyle Monangai grab the spotlight**\
+`Michael Salfino shares his observations for Week 9, including headliner performances from an unlikely cast of characters.`\
+https://nytimes.com/athletic/6771789/2025/11/03/fantasy-football-week-9-takeaways-joe-flacco-kyle-monangai-grab-the-spotlight/
+
+**Salah's 250 Liverpool goals: Record 16 vs Man Utd and scoring at a faster rate than Ian Rush**\
+`Breaking down the Egyptian's incredible scoring after his latest milestone`\
+https://nytimes.com/athletic/6770404/2025/11/03/salah-250-liverpool-goals-broken-down/
+
 **Arrests in Louvre Heist Show Power of DNA Databases in Solving Crimes**\
 `France’s trove of DNA profiles has helped solve high-profile crimes and was used to find some of the Louvre suspects, and it is growing. The police can also access other countries’ databases.`\
 https://nytimes.com/2025/11/03/world/europe/louvre-heist-dna-databases.html
