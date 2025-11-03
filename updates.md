@@ -1,3 +1,7 @@
+**Barry Bonds, Roger Clemens up for election to Hall of Fame via Contemporary Era ballot**\
+`Both were linked to steroid use during their playing careers and not elected to the Hall of Fame by writers.`\
+https://nytimes.com/athletic/6773629/2025/11/03/barry-bonds-roger-clemens-hall-of-fame-ballot-2/
+
 **How to watch Bucks vs. Pacers: Time, TV, streaming**\
 `Find out how to watch the Milwaukee Bucks play the Indiana Pacers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6773836/2025/11/03/bucks-vs-pacers-stream-how-to-watch-nov-3/
