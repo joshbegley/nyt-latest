@@ -1,3 +1,7 @@
+**The Lions' offense hasn't looked quite right and Vikings exposed some of those issues**\
+`"It was probably one of the worst games we played in a long time,” Detroit coach Dan Campbell said after the loss.`\
+https://nytimes.com/athletic/6771929/2025/11/02/lions-lose-offensive-issues-vikings/
+
 **Daniel Jones, Colts just provided plenty of fuel for their doubters — how will they respond?**\
 `In a loss to the Steelers, Indianapolis turned it over six times, with Jones accounting for five.`\
 https://nytimes.com/athletic/6772227/2025/11/02/indianapolis-colts-steelers-loss-turnovers/
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6772168/2025/11/02/jj-mccarthy-vikings-lions-week-9
 https://nytimes.com/2025/11/02/nyregion/nyc-mayor-early-voting.html
 
 **Bengals offense's frustration boils. Where's the fire from a historically bad defense?**\
-`Joe Flacco and Cincinnati's high-powered offense did their part vs. the Bears, but another defensive collapse let it go to waste again.`\
+`Joe Flacco and Cincinnati's high-powered offense did their part against the Bears, but another defensive collapse let it go to waste again.`\
 https://nytimes.com/athletic/6772209/2025/11/02/bengals-bad-defense-bears-zac-taylor/
 
 **'Madness': Inside the Bears' mind-blowing, roller-coaster victory in Cincinnati**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6771904/2025/11/02/pittsburgh-steelers-defense-indi
 **Bears Outlast Bengals in Wild Back-and-Forth Game**\
 `The Chicago Bears beat the Cincinnati Bengals, 47-42, in Week 9, scoring the winning touchdown with 17 seconds left after surviving a late defensive collapse.`\
 https://nytimes.com/video/the-athletic/100000010497980/bears-outlast-bengals-in-wild-back-and-forth-game.html
-
-**Someday, Jaxson Dart will make all the Giants' misery disappear**\
-`It doesn't matter that the 2-7 Giants are going nowhere. Dart is going to be a star, and his confidence might be the most impressive trait.`\
-https://nytimes.com/athletic/6772022/2025/11/02/giants-49ers-jaxson-dart/
 

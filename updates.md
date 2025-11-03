@@ -1,3 +1,15 @@
+**Daniel Jones, Colts just provided plenty of fuel for their doubters — how will they respond?**\
+`In a loss to the Steelers, Indianapolis turned it over six times, with Jones accounting for five.`\
+https://nytimes.com/athletic/6772227/2025/11/02/indianapolis-colts-steelers-loss-turnovers/
+
+**J.J. McCarthy energizes Vikings in emotional, potentially season-altering win over Lions**\
+`The second-year QB was far from perfect, but he threw for two touchdowns and ran for another score, and the Vikings defense did just enough.`\
+https://nytimes.com/athletic/6772168/2025/11/02/jj-mccarthy-vikings-lions-week-9-return-injury/
+
+**N.Y.C. Early Voting Ends With 735,000 Ballots Cast, as Younger Voters Surge**\
+`This year’s mayoral race saw the highest early in-person turnout ever for a nonpresidential election in New York.`\
+https://nytimes.com/2025/11/02/nyregion/nyc-mayor-early-voting.html
+
 **N.Y.C. Early Voting Ends With 735,000 Ballots Cast, as Younger Voters Surge**\
 `This year’s mayoral race saw the highest early in-person turnout for a nonpresidential election in New York.`\
 https://nytimes.com/2025/11/02/nyregion/nyc-mayor-early-voting.html
