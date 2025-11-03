@@ -1,3 +1,7 @@
+**How Tucker Kraft's significant knee injury hurts the Packers, and what's next**\
+`Kraft, one of the NFL's best tight ends and one of the Packers' most important players, will likely be out an extended period of time.`\
+https://nytimes.com/athletic/6771834/2025/11/02/tucker-kraft-knee-injury-packers/
+
 **Saints-Rams takeaways: Matthew Stafford throws 4 TD passes in blowout of New Orleans**\
 `The Rams had a massive advantage in time of possession, including holding the ball for nearly 14 minutes in the third quarter`\
 https://nytimes.com/athletic/6771867/2025/11/02/saints-rams-takeaways-matthew-stafford-throws-4-td-passes-in-blowout-of-new-orleans/
