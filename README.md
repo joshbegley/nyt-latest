@@ -1,3 +1,7 @@
+**2025 Gold Glove Award winners: 3 players win for the fourth time**\
+`There was only one player total from the Dodgers and Blue Jays. Nine players are first-time winners.`\
+https://nytimes.com/athletic/6772120/2025/11/02/gold-glove-winners-2025-mlb/
+
 **Jaguars-Raiders takeaways: Offensive explosion late in game leads to thrilling Jacksonville win**\
 `A record-long field goal "ignited" the Jaguars to a 30-29 overtime victory over the Raiders.`\
 https://nytimes.com/athletic/6772275/2025/11/02/jaguars-raiders-score-result-takeaways-week-9-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6771990/2025/11/02/bears-wild-finish-bengals/
 **Kyle Larson pulls off a NASCAR Hail Mary to win his second Cup Series title**\
 `Everything was going Denny Hamlin's way Sunday. And then a late caution changed everything and gave Kyle Larson a path to title No. 2.`\
 https://nytimes.com/athletic/6772176/2025/11/02/kyle-larson-nascar-championship-race-denny-hamlin/
-
-**Blue Jackets overcome sluggish start, then fritter away late lead in loss to Islanders**\
-`The Blue Jackets managed to build a lead after a rough start but gave up two goals in the final 67 seconds.`\
-https://nytimes.com/athletic/6771986/2025/11/02/blue-jackets-islanders-merzlikins-coyle/
 
