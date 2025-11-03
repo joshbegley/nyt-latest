@@ -1,3 +1,7 @@
+**Raptors trying to rekindle hope as Toronto mourns the Blue Jays**\
+`TORONTO — Hello, Toronto sports fans.`\
+https://nytimes.com/athletic/6772310/2025/11/02/toronto-raptors-blue-jays-hope/
+
 **2025 Gold Glove Award winners: 3 players win for the fourth time**\
 `There was only one player total from the Dodgers and Blue Jays. Nine players are first-time winners.`\
 https://nytimes.com/athletic/6772120/2025/11/02/gold-glove-winners-2025-mlb/
