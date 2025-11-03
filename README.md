@@ -1,3 +1,15 @@
+**The Athletic 136: Amid ACC chaos, don't forget about Louisville**\
+`After Week 10, the jumbled-up ACC makes putting together a 12-team field, let alone a ranking of the entire FBS, a lot more difficult.`\
+https://nytimes.com/athletic/6772805/2025/11/03/college-football-team-rankings-louisville-miami/
+
+**FPL Gameweek 10 takeaways: Eyeing Enzo, the Gyokeres issue, and differential Salah**\
+`From Arsenal’s incredible defensive run to the latest dilemma up front with Gyokeres and Salah, there’s plenty to unpack`\
+https://nytimes.com/athletic/6771332/2025/11/03/fantasy-premier-league-gameweek-10-salah-gyokeres-enzo-haaland/
+
+**Inside Newcastle Q&A: Chris Waugh answers your questions**\
+`After the defeat at West Ham, put your Newcastle questions to our writer Chris Waugh, and he will endeavour to answer as many as possible`\
+https://nytimes.com/athletic/6773150/2025/11/03/newcastle-united-qa-premier-league-eddie-howe/
+
 **Kimberly-Clark Agrees to Buy Kenvue, Maker of Tylenol, for $40 Billion**\
 `The owner of Kleenex and Huggies will acquire the embattled company, which has fought claims by the Trump administration that a common pain reliever is linked to harmful side effects.`\
 https://nytimes.com/2025/11/03/business/kimberly-clark-kenvue.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/03/briefing/our-election-guide.html
 **Yankees offseason calendar: Key dates, Rule 5 eligible players, arbitration figures**\
 `To set the stage for New York's offseason agenda, here’s a look at the key dates and how they affect the club.`\
 https://nytimes.com/athletic/6766844/2025/11/03/yankees-offseason-calendar-key-dates/
-
-**Canadiens weekly notebook: Bolduc’s self-awareness, a lab session with Matheson and more**\
-`Also in the Canadiens notebook: Oliver Kapanen's transition to the penalty kill and some perspective on Ivan Demidov's rookie performance.`\
-https://nytimes.com/athletic/6772739/2025/11/03/canadiens-bolduc-matheson-debate-kapanen-penalty-kill/
-
-**Wild insider: Marián Gaborík hopes fans can experience 2003 again, plus Weston's special day**\
-`Plus: Vladimir Tarasenko's good luck charm, and childhood chemistry striking up again on the third line.`\
-https://nytimes.com/athletic/6770825/2025/11/03/minnesota-wild-gaborik-tarasenko-hinostroza/
-
-**What happens after you get traded? NFL players explain, in their own words**\
-`NFL players who are traded during the season have to learn far more than a new playbook and a new route to work. `\
-https://nytimes.com/athletic/6771233/2025/11/03/nfl-trade-deadline-players-explain/
 
