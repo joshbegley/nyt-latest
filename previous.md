@@ -1,3 +1,11 @@
+**2 Men Plotted Attack in Michigan on Halloween, U.S. Says**\
+`The two men face federal charges of planning a terrorist attack inspired by the Islamic State.`\
+https://nytimes.com/2025/11/03/us/politics/michigan-terror-attack-halloween.html
+
+**Chargers star tackle Joe Alt will undergo season-ending surgery**\
+`Alt was carted off in the first half of Sunday's game at Tennessee with an ankle injury.`\
+https://nytimes.com/athletic/6774805/2025/11/03/joe-alt-season-ending-ankle-injury-chargers/
+
 **Review: Ratmansky’s Astonishing ‘Fugue’ Finds a Home in Denmark**\
 `Dedicated to Ukraine, Alexei Ratmansky’s evening-length ballet “The Art of the Fugue” is both dispassionately unsentimental and profoundly moving.`\
 https://nytimes.com/2025/11/03/arts/dance/review-alexei-ratmansky-royal-danish-ballet-art-of-the-fugue.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/03/world/cricket-women-india-new-york-zohran-mamdani
 **Donna Jean Godchaux-MacKay, Grateful Dead Singer, Dies at 78**\
 `She helped shape the band’s sound in the 1970s, a decade that took the band to new heights.`\
 https://nytimes.com/2025/11/03/arts/music/donna-jean-godchaux-grateful-dead.html
-
-**Bears lose defensive end Dayo Odeyingbo to torn Achilles**\
-`The Bears are squarely in the trade market for a possible starter to help the pass rush after a rash of injuries.`\
-https://nytimes.com/athletic/6774633/2025/11/03/bears-dayo-odeyingbo-achilles-injury/
-
-**How Bernie Sanders Sees Things**\
-`Bernie Sanders has been on a country-wide tour called Fighting Oligarchy. In this episode of “The Opinions” with David Leonhardt, he explains why that’s so important right now and reveals what question he wishes more reporters would ask him.`\
-https://nytimes.com/video/opinion/100000010489809/how-bernie-sanders-sees-things.html
 

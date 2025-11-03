@@ -1,3 +1,11 @@
+**2 Men Plotted Attack in Michigan on Halloween, U.S. Says**\
+`The two men face federal charges of planning a terrorist attack inspired by the Islamic State.`\
+https://nytimes.com/2025/11/03/us/politics/michigan-terror-attack-halloween.html
+
+**Chargers star tackle Joe Alt will undergo season-ending surgery**\
+`Alt was carted off in the first half of Sunday's game at Tennessee with an ankle injury.`\
+https://nytimes.com/athletic/6774805/2025/11/03/joe-alt-season-ending-ankle-injury-chargers/
+
 **Review: Ratmansky’s Astonishing ‘Fugue’ Finds a Home in Denmark**\
 `Dedicated to Ukraine, Alexei Ratmansky’s evening-length ballet “The Art of the Fugue” is both dispassionately unsentimental and profoundly moving.`\
 https://nytimes.com/2025/11/03/arts/dance/review-alexei-ratmansky-royal-danish-ballet-art-of-the-fugue.html
