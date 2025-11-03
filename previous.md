@@ -1,8 +1,16 @@
+**Southampton in talks to sign former midfielder Romeu**\
+`The midfielder originally joined the south-coast side in 2015 and has been without a club since leaving Barcelona this summer.`\
+https://nytimes.com/athletic/6773647/2025/11/03/oriol-romeu-southampton-transfer-barcelona/
+
+**Why I expect the Broncos to stand pat at the NFL trade deadline: Kosmider**\
+`Denver could explore additions at tight end or receiver, but Sean Payton insists the Broncos "like what we currently have" on the roster.`\
+https://nytimes.com/athletic/6773285/2025/11/03/denver-broncos-nfl-trade-deadline-payton/
+
 **Why you should target Drake London, Mark Andrews in fantasy football trades**\
 `KC Joyner looks at rest-of-season schedules to locate trade targets and players to ship out before their value plummets. `\
 https://nytimes.com/athletic/6773254/2025/11/03/fantasy-football-trade-targets-players-schedule/
 
-**USMNT Player Tracker: Adams gets long-awaited goal and Richards minutes row**\
+**Adams' long-awaited goal and explaining the Richards row – USMNT Player Tracker**\
 `From the Premier League to Serie A and the Championship to the Scottish League Cup, here's how the U.S players fared in Europe this week`\
 https://nytimes.com/athletic/6773307/2025/11/03/usmnt-player-tracker-world-cup-premier-league-tyler-adams-chris-richards/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/03/world/africa/sudan-el-fasher-darfur-massacre-rsf.
 **You Don’t Need to Swipe Right. A.I. Is Transforming Dating Apps.**\
 `Meet your artificial intelligence matchmakers. These A.I. tools are changing dating apps, so users don’t have to swipe through an endless scroll of profiles.`\
 https://nytimes.com/2025/11/03/technology/ai-dating-apps.html
-
-**How to watch Le Moyne vs. St. John's: Time, TV, streaming**\
-`Find out how to watch the Le Moyne Dolphins play the St. John's Red Storm, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6773632/2025/11/03/le-moyne-vs-st-john-s-stream-how-to-watch-nov-3/
-
-**Facebook Dating Is a Surprise Hit for the Social Network**\
-`Facebook’s free dating service has 21 million users, more than the popular dating app Hinge, as the social network reinvents itself.`\
-https://nytimes.com/2025/11/03/technology/facebook-dating-surprise-hit.html
 
