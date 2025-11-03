@@ -1,40 +1,40 @@
-**Bernie Sanders: ‘There Ain’t Much of a Democratic Party’**\
-`The Vermont senator on how to take the country back from elites on both sides of the aisle.`\
-https://nytimes.com/video/opinion/100000010489830/bernie-sanders-there-aint-much-of-a-democratic-party.html
+**What the IBX Rail Project Could Mean for Brooklyn and Queens**\
+`The proposed light rail would be the biggest expansion of the city’s transit system since the GG line was created almost 90 years ago.`\
+https://nytimes.com/2025/11/03/nyregion/ibx-rail-brooklyn-queens.html
 
-**N.J. Democrats Hope Early Vote Advantage Is Enough as Race Enters Last Days**\
-`As a close race for governor between Mikie Sherrill and Jack Ciattarelli comes to a close, the two campaigns were reading the tea leaves and pulling out the stops.`\
-https://nytimes.com/2025/11/03/nyregion/nj-democrats-hope-early-vote-advantage-is-enough-as-race-enters-last-days.html
+**The Lovely Loneliness of Sunday Afternoons in Autumn**\
+`The fading of hummingbirds, butterflies and leaves brings both melancholy and exquisite beauty.`\
+https://nytimes.com/2025/11/03/opinion/seasons-nature-fall.html
 
-**These 5 Key Voting Groups Could Decide the Mayor’s Race**\
-`From religion to race, age to ethnicity, pockets of New Yorkers represent key blocs that can unlock tens of thousands of votes in a citywide race.`\
-https://nytimes.com/2025/11/03/nyregion/nyc-mayoral-election-voting-blocs.html
+**With an Eye on the Midterms, Trump Fuels a Nationwide Scramble for Power**\
+`President Trump is imploring lawmakers to redraw their congressional maps to stave off Democratic control of the House. But the debate over redistricting has revealed fissures within both parties.`\
+https://nytimes.com/2025/11/03/us/politics/midterm-elections-redistricting-trump.html
 
-**A Bloody Prison Beating Was Caught on Video. No Guards Were Punished.**\
-`A New York prisoner accused corrections officers of assault and sexual abuse. State officials deemed his claims unfounded despite footage of the encounter.`\
-https://nytimes.com/2025/11/03/nyregion/ny-prison-guards-inmate-video.html
+**When Can You Wear a Sheer Dress?**\
+`The naked look is popular on the red carpet, but the trend can be risky for everyday. Our critic gives advice for dressing down — with caution.`\
+https://nytimes.com/2025/11/03/fashion/naked-sheer-outfits.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/11/03/crosswords/spelling-bee-forum.html
+**Elections on Tuesday Offer Democrats a Chance to Get Off the Mat**\
+`Democrats have no federal contests that would allow them to check President Trump’s power, but governors’ races, mayoral contests and referendums will test momentum and divisions in both parties.`\
+https://nytimes.com/2025/11/03/us/politics/us-elections-democrats-trump.html
 
-**N.Y.C. Mayoral Candidates Make Final Push on Last Day of Early Voting**\
-`Zohran Mamdani, Andrew Cuomo and Curtis Sliwa spent Sunday, the last day of early voting, zigzagging across New York City to deliver their final messages and urge people to go to the polls.`\
-https://nytimes.com/video/us/elections/100000010497970/nyc-mayoral-election-voting-blocs.html
+**A South African Choreographer’s ‘Pinch Me’ Moment in Paris**\
+`Mthuthuzeli November was determined to get out of his impoverished home town. Now has his work alongside George Balanchine at the Paris Opera Ballet.`\
+https://nytimes.com/2025/11/03/arts/dance/mthuthuzeli-november-rhapsodies-paris-opera-ballet.html
 
-**A preview of The Athletic’s live coverage this week**\
-`Our live coverage this week includes the NFL trade deadline, Champions League action, Formula One and more`\
-https://nytimes.com/athletic/6770517/2025/11/03/live-coverage-weekly-schedule-3/
+**Martha Stewart Transformed the Dinner Party. Was That a Good Thing?**\
+`With “Entertaining,” a seminal cookbook that’s being newly reissued, the original lifestyle influencer changed the culture and built her empire.`\
+https://nytimes.com/2025/11/03/dining/martha-stewart-entertaining-dinner-parties.html
 
-**Word of the Day: protagonist**\
-`This word has appeared in 517 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/11/03/learning/word-of-the-day-protagonist.html
+**$2 Million Homes in California**\
+`A midcentury modern in Palm Desert, a home perched over the Pacific in Jenner and a ranch house in Los Angeles.`\
+https://nytimes.com/2025/11/03/realestate/2-million-dollar-homes-palm-desert-sonoma-los-angeles.html
 
-**With ‘a Billion’ Eyes on Them, India’s Women Lift Cricket World Cup**\
-`A team that faced seemingly insurmountable odds wins its first championship, with wider ramifications for the role women play in public life.`\
-https://nytimes.com/2025/11/03/world/asia/india-women-cricket-world-cup.html
+**The Nationwide Battle Over Electoral Maps**\
+`What began with Texas drawing what could be five new Republican districts in the House of Representatives at President Trump’s behest has spiraled into a nationwide redistricting race. Nick Corasaniti, a New York Times reporter covering national politics, gives an overview.`\
+https://nytimes.com/video/us/elections/100000010489716/the-nationwide-battle-over-electoral-maps.html
 
-**The New York Times in Print for Monday, Nov. 3, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/11/03/todays-new-york-times
+**Supreme Court Confronts Trump and His Tariffs in Test of Presidential Power**\
+`The justices face so-called legitimacy dilemma as they deal with a tricky legal dispute and a president who has made clear he would view defeat as a personal insult.`\
+https://nytimes.com/2025/11/03/us/politics/supreme-court-trump-tariffs.html
 
