@@ -1,4 +1,4 @@
-**With ‘A Billion’ Eyes on Them, India’s Women Lift Cricket World Cup**\
+**With ‘a Billion’ Eyes on Them, India’s Women Lift Cricket World Cup**\
 `A team that faced seemingly insurmountable odds wins its first championship, with wider ramifications for the role women play in public life.`\
 https://nytimes.com/2025/11/03/world/asia/india-women-cricket-world-cup.html
 

@@ -1,3 +1,7 @@
+**With ‘A Billion’ Eyes on Them, India’s Women Lift Cricket World Cup**\
+`A team that faced seemingly insurmountable odds wins its first championship, with wider ramifications for the role women play in public life.`\
+https://nytimes.com/2025/11/03/world/asia/india-women-cricket-world-cup.html
+
 **Are there 'signs of life' for Celtic, Rangers and Scottish football after cup clash?**\
 `It's been a terrible season for the Old Firm – and Scottish football in general – but did the Scottish Cup semi-final show all is not lost?`\
 https://nytimes.com/athletic/6771495/2025/11/03/celtic-rangers-scottish-league-cup-result/
