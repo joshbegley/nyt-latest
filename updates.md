@@ -1,3 +1,11 @@
+**Donna Jean Godchaux-MacKay, Grateful Dead Singer, Dies at 78**\
+`She helped shape the band’s sound in the 1970s, a decade that took the band to new heights.`\
+https://nytimes.com/2025/11/03/arts/music/donna-jean-godchaux-grateful-dead.html
+
+**Bears lose defensive end Dayo Odeyingbo to torn Achilles**\
+`The Bears are squarely in the trade market for a possible starter to help the pass rush after a rash of injuries.`\
+https://nytimes.com/athletic/6774633/2025/11/03/bears-dayo-odeyingbo-achilles-injury/
+
 **Bears lose defensive end Dayo Odeyingbo to torn Achilles: Report**\
 `The Bears are squarely in the trade market for a possible starter to help the pass rush after a rash of injuries.`\
 https://nytimes.com/athletic/6774633/2025/11/03/bears-dayo-odeyingbo-achilles-injury/

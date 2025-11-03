@@ -1,4 +1,8 @@
-**Bears lose defensive end Dayo Odeyingbo to torn Achilles: Report**\
+**Donna Jean Godchaux-MacKay, Grateful Dead Singer, Dies at 78**\
+`She helped shape the band’s sound in the 1970s, a decade that took the band to new heights.`\
+https://nytimes.com/2025/11/03/arts/music/donna-jean-godchaux-grateful-dead.html
+
+**Bears lose defensive end Dayo Odeyingbo to torn Achilles**\
 `The Bears are squarely in the trade market for a possible starter to help the pass rush after a rash of injuries.`\
 https://nytimes.com/athletic/6774633/2025/11/03/bears-dayo-odeyingbo-achilles-injury/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6774689/2025/11/03/georgia-vs-mississippi-state-str
 **How to watch Texas A&M vs. Missouri: Time, TV, streaming**\
 `Find out how to watch the Texas A&M Aggies play the Missouri Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6774687/2025/11/03/texas-a-m-vs-missouri-stream-how-to-watch-nov-8/
-
-**How to watch Syracuse vs. Miami (FL): Time, TV, streaming**\
-`Find out how to watch the Syracuse Orange play the Miami (FL) Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6774685/2025/11/03/syracuse-vs-miami-fl-stream-how-to-watch-nov-8/
 
