@@ -1,3 +1,7 @@
+**TAFC: What do (Spurs) fans want? Plus: Son looking ominous in MLS play-offs**\
+`Today in TAFC: Why Spurs fans are frustrated, despite being fifth in the Premier League. Plus: Son shines in MLS play-offs, Messi stutters`\
+https://nytimes.com/athletic/6772960/2025/11/03/tottenham-frank-chelsea-premier-league/
+
 **NHL weekend rankings: Spiraling Blues, lackluster Leafs, and a mediocre East**\
 `The NHL is proud of its parity, but all but four teams in the Eastern Conference sitting on either 13 or 14 points is probably overkill.`\
 https://nytimes.com/athletic/6771768/2025/11/03/nhl-weekend-rankings-blues-leafs-eastern-conference/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6771938/2025/11/03/giants-defense-struggles-49ers/
 **I worked with the Dodgers’ Andrew Friedman for years. These two leadership traits stood out**\
 `Joe Maddon worked with Andrew Friedman for nine years. Maddon said Friedman straddled the analytics and human side of baseball.`\
 https://nytimes.com/athletic/6771891/2025/11/03/dodgers-andrew-friedman-world-series-champions-dynasty/
-
-**Sam Darnold, Seahawks display dominant skill, culture against Commanders**\
-`Sunday night's blowout victory featured important contributions from players who have spent time on Seattle's "ready squad."`\
-https://nytimes.com/athletic/6772841/2025/11/03/seahawks-commanders-sam-darnold/
 
