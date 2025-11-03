@@ -1,3 +1,31 @@
+**After Cam Little's record 68-yard field goal, the 70-yard barrier seems likely to fall next**\
+`Thanks to rule changes and advanced training methods, NFL kickers are converting long field goals at record rates.`\
+https://nytimes.com/athletic/6773771/2025/11/03/cam-little-nfl-long-field-goals/
+
+**Mamdani’s Stance on Gaza Drew Pro-Palestinian Activists to His Campaign**\
+`The campaign became “a funnel for all this dispersed energy and passion,” said one volunteer, who had been an active campus protester.`\
+https://nytimes.com/2025/11/03/nyregion/mamdani-gaza.html
+
+**Diane Ladd, Versatile Film Actress, Is Dead at 89**\
+`She was a three-time Oscar contender playing strikingly different characters, in once case starring alongside her daughter and fellow nominee, Laura Dern.`\
+https://nytimes.com/2025/11/03/movies/diane-ladd-dead.html
+
+**NFL survivor pool mailbag: Submit your questions for Week 10**\
+`Put your NFL survivor pool questions here and our experts will answer them in this week's advice column.`\
+https://nytimes.com/athletic/6774901/2025/11/03/nfl-survivor-pool-help-mailbag-week-10/
+
+**Agent arrested after Premier League player allegedly threatened with firearm**\
+`The Metropolitan Police confirmed the incident occurred in London in September.`\
+https://nytimes.com/athletic/6773985/2025/11/03/premier-league-player-gun-agent-arrest/
+
+**Trump’s China Trade Policy Is a Hot Mess**\
+`As he so often does, the president is pushing the wrong answer to the right question on trade policy with Beijing.`\
+https://nytimes.com/2025/11/03/opinion/trump-china-trade-tariffs.html
+
+**Steelers to sign one of Aaron Rodgers' 'favorite' receivers to practice squad: Source**\
+`The Steelers made a move at wide receiver the day before the NFL trade deadline.`\
+https://nytimes.com/athletic/6774788/2025/11/03/pittsburgh-steelers-marquez-valdes-scantling/
+
 **2 Men Plotted Attack in Michigan on Halloween, U.S. Says**\
 `The two men face federal charges of planning a terrorist attack inspired by the Islamic State.`\
 https://nytimes.com/2025/11/03/us/politics/michigan-terror-attack-halloween.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6774805/2025/11/03/joe-alt-season-ending-ankle-inju
 **Review: Ratmansky’s Astonishing ‘Fugue’ Finds a Home in Denmark**\
 `Dedicated to Ukraine, Alexei Ratmansky’s evening-length ballet “The Art of the Fugue” is both dispassionately unsentimental and profoundly moving.`\
 https://nytimes.com/2025/11/03/arts/dance/review-alexei-ratmansky-royal-danish-ballet-art-of-the-fugue.html
-
-**Canada to welcome England-born CB Jones, remains in talks with Mexico's Flores**\
-`Jesse Marsch continues to work the dual-national circuit as he crafts Canada's 2026 World Cup roster`\
-https://nytimes.com/athletic/6774722/2025/11/03/alfie-jones-canada-england-middlesbrough-marcelo-flores/
-
-**The Best Movies and TV Shows Coming to Netflix in November**\
-`The newest horror film from Guillermo del Toro and the final season of “Stranger Things” are among the highlights for U.S. subscribers.`\
-https://nytimes.com/2025/11/03/arts/television/netflix-new-best-november.html
-
-**Supreme Court Grapples With Suit by Soldier Injured in Bombing on U.S. Base**\
-`The lawsuit stemmed from a 2016 suicide attack in Afghanistan by a former Taliban member hired as a subcontractor on an American military base.`\
-https://nytimes.com/2025/11/03/us/politics/supreme-court-soldier-bombing-lawsuit.html
-
-**What’s Going to Happen With the A.I. Mental Health Crisis?**\
-`The “Hard Fork” hosts Kevin Roose and Casey Newton talk about major developments in the world of chatbots, safety and mental health.`\
-https://nytimes.com/video/podcasts/100000010499733/whats-going-to-happen-with-the-ai-mental-health-crisis.html
-
-**When Chuseok Means a Full Moon and Handmade Rice Cakes**\
-`Leaders and supporters of Gyopo, a Los Angeles arts and culture organization, honored the holiday, also known as Korean Thanksgiving, with a joyous feast.`\
-https://nytimes.com/2025/11/03/t-magazine/when-chuseok-means-a-full-moon-and-handmade-rice-cakes.html
-
-**A Big Moment for Women in India**\
-`My colleague Mujib Mashal writes about how a huge victory on the cricket ground could change the lives of women and girls.`\
-https://nytimes.com/2025/11/03/world/cricket-women-india-new-york-zohran-mamdani-bangkok.html
-
-**Donna Jean Godchaux-MacKay, Grateful Dead Singer, Dies at 78**\
-`She helped shape the band’s sound in the 1970s, a decade that took the band to new heights.`\
-https://nytimes.com/2025/11/03/arts/music/donna-jean-godchaux-grateful-dead.html
 
