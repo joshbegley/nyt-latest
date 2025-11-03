@@ -1,3 +1,7 @@
+**Mail-In Ballots Solidify Narrow Win for Dutch Centrist Party**\
+`The center-left D66 party edged the far-right party of Geert Wilders in the popular vote, giving it the first crack at forming a new government.`\
+https://nytimes.com/2025/11/03/world/europe/netherlands-elections-d66-wilders.html
+
 **After Cam Little's record 68-yard field goal, the 70-yard barrier seems likely to fall next**\
 `Thanks to rule changes and advanced training methods, NFL kickers are converting long field goals at record rates.`\
 https://nytimes.com/athletic/6773771/2025/11/03/cam-little-nfl-long-field-goals/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/03/us/politics/michigan-terror-attack-halloween.html
 **Chargers star tackle Joe Alt will undergo season-ending surgery**\
 `Alt was carted off in the first half of Sunday's game at Tennessee with an ankle injury.`\
 https://nytimes.com/athletic/6774805/2025/11/03/joe-alt-season-ending-ankle-injury-chargers/
-
-**Review: Ratmansky’s Astonishing ‘Fugue’ Finds a Home in Denmark**\
-`Dedicated to Ukraine, Alexei Ratmansky’s evening-length ballet “The Art of the Fugue” is both dispassionately unsentimental and profoundly moving.`\
-https://nytimes.com/2025/11/03/arts/dance/review-alexei-ratmansky-royal-danish-ballet-art-of-the-fugue.html
 

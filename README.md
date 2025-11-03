@@ -1,3 +1,15 @@
+**'I missed it': Commanders' Dan Quinn takes responsibility for Jayden Daniels injury**\
+`In more bad news, cornerback Marshon Lattimore (ACL) and returner Luke McCaffrey (broken collarbone) will both miss the rest of the season.`\
+https://nytimes.com/athletic/6774872/2025/11/03/jayden-daniels-discolated-elbow-dan-quinn/
+
+**Watch: How the NFL salary cap impacts teams at the trade deadline**\
+`NFL teams must remain salary-cap compliant at all times during the season, even when wheeling and dealing at the trade deadline.`\
+https://nytimes.com/athletic/6774630/2025/11/03/nfl-salary-cap-trade-deadline-video/
+
+**Victor Conte, founder of Balco lab at center of Barry Bonds steroid scandal, dies at 75**\
+`Conte organized PED distribution ring for professional athletes in the early 2000s.`\
+https://nytimes.com/athletic/6774631/2025/11/03/victor-conte-balco-barry-bonds-steroids-dies/
+
 **Mail-In Ballots Solidify Narrow Win for Dutch Centrist Party**\
 `The center-left D66 party edged the far-right party of Geert Wilders in the popular vote, giving it the first crack at forming a new government.`\
 https://nytimes.com/2025/11/03/world/europe/netherlands-elections-d66-wilders.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6773985/2025/11/03/premier-league-player-gun-agent-
 **Trump’s China Trade Policy Is a Hot Mess**\
 `As he so often does, the president is pushing the wrong answer to the right question on trade policy with Beijing.`\
 https://nytimes.com/2025/11/03/opinion/trump-china-trade-tariffs.html
-
-**Steelers to sign one of Aaron Rodgers' 'favorite' receivers to practice squad: Source**\
-`The Steelers made a move at wide receiver the day before the NFL trade deadline.`\
-https://nytimes.com/athletic/6774788/2025/11/03/pittsburgh-steelers-marquez-valdes-scantling/
-
-**2 Men Plotted Attack in Michigan on Halloween, U.S. Says**\
-`The two men face federal charges of planning a terrorist attack inspired by the Islamic State.`\
-https://nytimes.com/2025/11/03/us/politics/michigan-terror-attack-halloween.html
-
-**Chargers star tackle Joe Alt will undergo season-ending surgery**\
-`Alt was carted off in the first half of Sunday's game at Tennessee with an ankle injury.`\
-https://nytimes.com/athletic/6774805/2025/11/03/joe-alt-season-ending-ankle-injury-chargers/
 
