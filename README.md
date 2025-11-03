@@ -1,3 +1,7 @@
+**Drunk Driver Who Killed 4 at Manhattan Picnic Is Convicted of Murder**\
+`Daniel Hyden, who was a substance abuse counselor, had written a book about sobriety. He crashed his pickup through a fence and into a barbecue.`\
+https://nytimes.com/2025/11/03/nyregion/manhattan-drunken-driving-conviction.html
+
 **How to watch Campbell vs. Wisconsin: Time, TV, streaming**\
 `Find out how to watch the Campbell Fighting Camels play the Wisconsin Badgers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6774028/2025/11/03/campbell-vs-wisconsin-stream-how-to-watch-nov-3/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6773955/2025/11/03/packers-tucker-kraft-torn-acl/
 **How Does SML Make Experimental Jazz Albums? Very Unconventionally.**\
 `The Los Angeles quintet was born onstage, and that’s exactly how it records LPs: by capturing live performances and twisting them, sometimes beyond recognition.`\
 https://nytimes.com/2025/11/03/arts/music/sml-how-you-been.html
-
-**Tennessee starting guard dismissed from women's basketball team after second arrest**\
-`Tennessee Lady Volunteers starting senior Ruby Whitehorn dismissed from team after second arrest.`\
-https://nytimes.com/athletic/6773819/2025/11/03/tennessee-starting-senior-ruby-whitehorn-dismissed-from-team-after-second-arrest/
 
