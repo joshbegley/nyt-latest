@@ -1,3 +1,11 @@
+**Trump Says He Doesn’t Know Crypto Billionaire He Pardoned**\
+`Changpeng Zhao had admitted to violations that allowed criminals to move money on the cryptocurrency exchange he founded, which struck a lucrative deal involving the Trump family’s own crypto enterprise.`\
+https://nytimes.com/2025/11/03/us/politics/trump-60-minutes-interview-binance-cz-pardon.html
+
+**Alexander Isak out of Liverpool-Real Madrid, Curtis Jones training**\
+`Alisson and Jeremie Frimpong have been ruled out until after the international break due to hamstring issues. `\
+https://nytimes.com/athletic/6773936/2025/11/03/isak-liverpool-jones-alisson-frimpong-injuries/
+
 **In Mexico, Killer Whales Take Down Great White Sharks**\
 `A pod of orcas in the Gulf of California has repeatedly hunted juvenile white sharks to feast on their livers.`\
 https://nytimes.com/2025/11/03/science/white-sharks-orcas.html
