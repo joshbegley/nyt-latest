@@ -1,3 +1,7 @@
+**2025 Gold Glove Award winners: 3 players win for the fourth time**\
+`There was only one player total from the Dodgers and Blue Jays. Nine players are first-time winners.`\
+https://nytimes.com/athletic/6772120/2025/11/02/gold-glove-winners-2025-mlb/
+
 **Dylan Harper suffers a left calf injury against Suns, leaves early**\
 `The San Antonio Spurs’ injury woes were exacerbated Sunday when Dylan Harper injured his left calf.`\
 https://nytimes.com/athletic/6772372/2025/11/02/dylan-harper-spurs-nba-injury/
