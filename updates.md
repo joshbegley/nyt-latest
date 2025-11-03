@@ -1,3 +1,7 @@
+**Mamdani Mocks Cuomo After Trump Offers His Backing**\
+`“I know how hard you worked for this,” Zohran Mamdani said on social media after his chief rival in the New York City mayor’s race, former Gov. Andrew M. Cuomo, received tepid support from President Trump.`\
+https://nytimes.com/2025/11/03/nyregion/trump-cuomo-endorsement-mamdani.html
+
 **OpenAI Signs $38 Billion Cloud Computing Deal With Amazon**\
 `After signing agreements to use computing power from Nvidia, AMD and Oracle, OpenAI is partnering with the world’s largest cloud computing company.`\
 https://nytimes.com/2025/11/03/technology/openai-amazon-cloud-computing.html
