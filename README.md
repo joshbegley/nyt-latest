@@ -1,3 +1,7 @@
+**Joey Barton's social media posts 'beyond what is tolerable in society', court hears**\
+`Barton's posts about about pundits Eni Aluko and Lucy Ward, and broadcaster Jeremy Vine, are the subject of a trial taking place this week.`\
+https://nytimes.com/athletic/6774285/2025/11/03/joey-barton-social-media-court/
+
 **Trump’s ‘Great Gatsby’ Party Did Not Accept SNAP**\
 `It’s the roaring 2020s!`\
 https://nytimes.com/2025/11/03/opinion/trumps-great-gatsby-party-did-not-accept-snap.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/03/us/politics/wic-snap-food-aid.html
 **The Jamaican Families Torn Apart by Hurricane Melissa**\
 `Days after a powerful hurricane made landfall in Jamaica, thousands of residents are now homeless and trying to make sense of how they narrowly survived.`\
 https://nytimes.com/video/world/americas/100000010495376/hurricane-melissa-damage-jamaica-black-river.html
-
-**2 Lawsuits Challenge New Rule Limiting Student Loan Forgiveness for Public Servants**\
-`Nonprofit groups and state officials warned that the rule could be used to penalize organizations and agencies at odds with the Trump administration’s political agenda.`\
-https://nytimes.com/2025/11/03/us/politics/student-loan-forgiveness-public-servants-trump.html
 
