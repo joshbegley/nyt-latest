@@ -1,40 +1,40 @@
-**Ravens GM Eric DeCosta loves to be aggressive at trade deadline. This year, he may need to**\
-`Making an addition or two ahead of this year's deadline feels far more like a necessity than a luxury for the 3-5 Ravens. `\
-https://nytimes.com/athletic/6770614/2025/11/03/ravens-eric-decosta-nfl-trade-deadline/
+**Canadiens weekly notebook: Bolduc’s self-awareness, a lab session with Matheson and more**\
+`Also in the Canadiens notebook: Oliver Kapanen's transition to the penalty kill and some perspective on Ivan Demidov's rookie performance.`\
+https://nytimes.com/athletic/6772739/2025/11/03/canadiens-bolduc-matheson-debate-kapanen-penalty-kill/
 
-**Inside Real Madrid: Vinicius Jr latest, Alexander-Arnold fitness, Alonso's Anfield veto**\
-`With a Champions League trip to Liverpool to come on Tuesday, here's the latest news and talking points at Real Madrid`\
-https://nytimes.com/athletic/6773029/2025/11/03/real-madrid-news-vinicius-champions-league/
+**Wild insider: Marián Gaborík hopes fans can experience 2003 again, plus Weston's special day**\
+`Plus: Vladimir Tarasenko's good luck charm, and childhood chemistry striking up again on the third line.`\
+https://nytimes.com/athletic/6770825/2025/11/03/minnesota-wild-gaborik-tarasenko-hinostroza/
 
-**Mamdani Takes In the Knicks From the Rafters, After Cuomo Sat Courtside**\
-`By catching a Knicks game on Sunday, Zohran Mamdani honored a political tradition of attending a sporting event on the campaign trail. But he sat in the cheap(ish) seats.`\
-https://nytimes.com/2025/11/03/nyregion/mamdani-knicks-nba-cuomo.html
+**What happens after you get traded? NFL players explain, in their own words**\
+`NFL players who are traded during the season have to learn far more than a new playbook and a new route to work. `\
+https://nytimes.com/athletic/6771233/2025/11/03/nfl-trade-deadline-players-explain/
 
-**How Emanuel Sharp learned to live with the moment he won't escape — and why he's still fearless**\
-`Houston's final play of last season still haunts Emanuel Sharp — but now the Cougars want to make their comeback.`\
-https://nytimes.com/athletic/6767186/2025/11/03/emanuel-sharp-houston-basketball/
+**Matt LaFleur's head-scratching decision costs Packers in upset loss to Panthers**\
+`LaFleur is a seventh-year head coach of one of the NFL's best teams since he arrived, but he didn't always look like it on Sunday.`\
+https://nytimes.com/athletic/6772246/2025/11/03/matt-lafleur-coaching-decisions-packers-panthers/
 
-**TAFC: What do (Spurs) fans want? Plus: Son looking ominous in MLS play-offs**\
-`Today in TAFC: Why Spurs fans are frustrated, despite being fifth in the Premier League. Plus: Son shines in MLS play-offs, Messi stutters`\
-https://nytimes.com/athletic/6772960/2025/11/03/tottenham-frank-chelsea-premier-league/
+**Bears made and defied history in 47-42 victory. Can you believe what you just saw?**\
+`The Bears don't win shootouts, but somehow they did against the Bengals behind the heroics of the two rookies who got game balls.`\
+https://nytimes.com/athletic/6772422/2025/11/03/bears-bengals-shootout-colston-loveland-kyle-monangai/
 
-**NHL weekend rankings: Spiraling Blues, lackluster Leafs, and a mediocre East**\
-`The NHL is proud of its parity, but all but four teams in the Eastern Conference sitting on either 13 or 14 points is probably overkill.`\
-https://nytimes.com/athletic/6771768/2025/11/03/nhl-weekend-rankings-blues-leafs-eastern-conference/
+**Blackhawks power rankings: Bedard makes the leap, attendance takes a dive**\
+`Things are looking up in Chicago, and Connor Bedard and Spencer Knight are leading the way.`\
+https://nytimes.com/athletic/6771813/2025/11/03/blackhawks-power-rankings-bedard-attendance-knight/
 
-**Cardinals at Cowboys on MNF: YouTube TV, high scoring projections, hijinks on the telecast**\
-`Dallas hosts Arizona on "Monday Night Football." Here's a quick primer on the teams, the telecast and the odds as we close out Week 9.`\
-https://nytimes.com/athletic/6766601/2025/11/03/cowboys-cardinals-monday-night-football-watch-youtube-tv/
+**Guardians offseason agenda: coaching hires, roster shuffling and boosting the offense**\
+`The Guardians have until the end of the week to decide on John Means' $6 million club option for 2026 after his Tommy John rehab year.`\
+https://nytimes.com/athletic/6771032/2025/11/03/cleveland-guardians-offseason-moves-2025/
 
-**World Juniors stock watch: Who's making their case for Canada, USA rosters?**\
-`These prospects are trending up or down in their efforts to crack their respective World Junior teams.`\
-https://nytimes.com/athletic/6770938/2025/11/03/world-juniors-2026-canada-usa-rosters-stock-watch/
+**Connor Ingram is 'building a foundation on rock bottom' in road back to NHL**\
+`Ingram is playing in the AHL after being traded to the Edmonton Oilers organization in October.`\
+https://nytimes.com/athletic/6771322/2025/11/03/connor-ingram-nhl-edmonton-oilers-ahl-stats/
 
-**What I'm seeing from the Red Wings: Detroit secures a winning trip**\
-`The Red Wings have won three of their first four games on this swing out West. `\
-https://nytimes.com/athletic/6772707/2025/11/03/detroit-red-wings-moritz-seider-cam-talbot/
+**Men's college basketball's opening night is a missed opportunity. Here's how to fix it**\
+`There's only one matchup of ranked teams on the first night of the college basketball season — a night that should be more of a spectacle.`\
+https://nytimes.com/athletic/6771624/2025/11/03/college-basketball-opening-night-games/
 
-**Bills defense shuts down Patrick Mahomes, Josh Allen's magnificent game and other observations**\
-`The Bills defense got aggressive in their approach to the Kansas City quarterback in Sunday's win.`\
-https://nytimes.com/athletic/6772662/2025/11/03/josh-allen-bills-defense-observations/
+**Evaluating Vladar, Michkov, Luchanko and more: 12 Flyers thoughts after 12 games**\
+`Plus: an injury update on Tyson Foerster, plans for the restricted free agents and learning Tocchet's game plans.`\
+https://nytimes.com/athletic/6772221/2025/11/03/flyers-12-games-vladar-michkov-luchanko/
 
