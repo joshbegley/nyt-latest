@@ -1,3 +1,7 @@
+**10-Minute Challenge: A Vase of Flowers**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2025/11/02/upshot/ten-minute-challenge-flowers.html
+
 **Penix, Morris believe Patriots simulated snap count on crucial play**\
 `The television replay didn't appear to show the Patriots' front seven clapping.`\
 https://nytimes.com/athletic/6771991/2025/11/02/penix-morris-believe-patriots-simulated-snap-count-on-crucial-play/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/02/obituaries/martha-layne-collins-dead.html
 **As Patriots top Falcons to move to 7-2, it's time to make a trade before the deadline**\
 `The Patriots eked out a win against the visiting Falcons, but there are areas that need to be improved. Why not go all in with a trade?`\
 https://nytimes.com/athletic/6771815/2025/11/02/patriots-falcons-nfl-trade-deadline/
-
-**Thousands Celebrate the 54th New York City Marathon**\
-`Starting in Staten Island and winding through all five boroughs, the 26.2-mile race brought fans out in the thousands to cheer for professional and first-time marathon runners.`\
-https://nytimes.com/video/us/100000010496916/new-york-city-marathon.html
 
