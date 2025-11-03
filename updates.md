@@ -1,3 +1,7 @@
+**Medieval Tower Partially Collapses in Rome**\
+`The Torre dei Conti, a 13th-century medieval tower near Rome’s Colosseum, partially collapsed on Monday. Two restoration workers had to be rescued, and a third suffered critical injuries.`\
+https://nytimes.com/video/world/europe/100000010498672/torre-dei-conti-collapse-rome.html
+
 **'The transfer didn't work': Fullkrug's agent says West Ham exit 'makes sense'**\
 `The 32-year-old has struggled for form and fitness since signing a four-year deal with West Ham in August 2024 after joining from Dortmund.`\
 https://nytimes.com/athletic/6773271/2025/11/03/niclas-fullkrug-west-ham-future/
