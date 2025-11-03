@@ -1,3 +1,7 @@
+**A Big Moment for Women in India**\
+`My colleague Mujib Mashal writes about how a huge victory on the cricket ground could change the lives of women and girls.`\
+https://nytimes.com/2025/11/03/world/cricket-women-india-new-york-zohran-mamdani-bangkok.html
+
 **Donna Jean Godchaux-MacKay, Grateful Dead Singer, Dies at 78**\
 `She helped shape the band’s sound in the 1970s, a decade that took the band to new heights.`\
 https://nytimes.com/2025/11/03/arts/music/donna-jean-godchaux-grateful-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/11/03/us/gun-ranges-brain-injuries.html
 **How to watch Georgia vs. Mississippi State: Time, TV, streaming**\
 `Find out how to watch the Georgia Bulldogs play the Mississippi State Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6774689/2025/11/03/georgia-vs-mississippi-state-stream-how-to-watch-nov-8/
-
-**How to watch Texas A&M vs. Missouri: Time, TV, streaming**\
-`Find out how to watch the Texas A&M Aggies play the Missouri Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6774687/2025/11/03/texas-a-m-vs-missouri-stream-how-to-watch-nov-8/
 

@@ -1,3 +1,7 @@
+**A Big Moment for Women in India**\
+`My colleague Mujib Mashal writes about how a huge victory on the cricket ground could change the lives of women and girls.`\
+https://nytimes.com/2025/11/03/world/cricket-women-india-new-york-zohran-mamdani-bangkok.html
+
 **Donna Jean Godchaux-MacKay, Grateful Dead Singer, Dies at 78**\
 `She helped shape the band’s sound in the 1970s, a decade that took the band to new heights.`\
 https://nytimes.com/2025/11/03/arts/music/donna-jean-godchaux-grateful-dead.html
