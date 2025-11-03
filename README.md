@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6771963/2025/11/02/shai-gilgeous-alexander-oscar-ro
 https://nytimes.com/athletic/6771866/2025/11/02/chiefs-patrick-mahomes-score-result-takeaways-week-9-nfl/
 
 **Denny Hamlin’s most agonizing day: ‘In this moment, I never want to race again’**\
-`Everything was lining up for Denny Hamlin to claim his elusive first NASCAR Cup Series title. Then came another cruel twist of fate.`\
+`Everything was lining up for Hamlin to claim his elusive first NASCAR Cup Series title. Then came another cruel twist of fate.`\
 https://nytimes.com/athletic/6772087/2025/11/02/denny-hamlin-nascar-championship-race-kyle-larson/
 
 **What Ben Johnson, Caleb Williams and Colston Loveland saw on the Bears' winning TD**\
