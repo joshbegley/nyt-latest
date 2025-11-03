@@ -1,3 +1,7 @@
+**Thunder's Shai Gilgeous-Alexander says 'everybody's safe' after break-in**\
+`“Everything else can come and go, but my loved ones are safe, so I’m OK. I’m happy," Gilgeous-Alexander said.`\
+https://nytimes.com/athletic/6772410/2025/11/02/shai-gilgeous-alexander-thunder-break-in/
+
 **Jayden Daniels leaves Washington Commanders game with gruesome left arm injury**\
 `Daniels was injured midway through the fourth quarter as the Washington Commanders trailed the Seattle Seahawks.`\
 https://nytimes.com/athletic/6772596/2025/11/02/jayden-daniels-arm-injury-leaves-game-commanders-seattle/

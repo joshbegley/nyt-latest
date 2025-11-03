@@ -1,3 +1,7 @@
+**Thunder's Shai Gilgeous-Alexander says 'everybody's safe' after break-in**\
+`“Everything else can come and go, but my loved ones are safe, so I’m OK. I’m happy," Gilgeous-Alexander said.`\
+https://nytimes.com/athletic/6772410/2025/11/02/shai-gilgeous-alexander-thunder-break-in/
+
 **Jayden Daniels leaves Washington Commanders game with gruesome left arm injury**\
 `Daniels was injured midway through the fourth quarter as the Washington Commanders trailed the Seattle Seahawks.`\
 https://nytimes.com/athletic/6772596/2025/11/02/jayden-daniels-arm-injury-leaves-game-commanders-seattle/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6771929/2025/11/02/lions-lose-offensive-issues-viki
 **Daniel Jones, Colts just provided plenty of fuel for their doubters — how will they respond?**\
 `In a loss to the Steelers, Indianapolis turned it over six times, with Jones accounting for five.`\
 https://nytimes.com/athletic/6772227/2025/11/02/indianapolis-colts-steelers-loss-turnovers/
-
-**J.J. McCarthy energizes Vikings in emotional, potentially season-altering win over Lions**\
-`The second-year QB was far from perfect, but he threw for two touchdowns and ran for another score, and the Vikings defense did just enough.`\
-https://nytimes.com/athletic/6772168/2025/11/02/jj-mccarthy-vikings-lions-week-9-return-injury/
 
