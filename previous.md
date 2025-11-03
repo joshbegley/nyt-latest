@@ -1,3 +1,11 @@
+**Mamdani Takes In the Knicks From the Rafters, After Cuomo Sat Courtside**\
+`By catching a Knicks game on Sunday, Zohran Mamdani honored a political tradition of attending a sporting event on the campaign trail. But he sat in the cheap(ish) seats.`\
+https://nytimes.com/2025/11/03/nyregion/mamdani-knicks-nba-cuomo.html
+
+**How Emanuel Sharp learned to live with the moment he won't escape — and why he's still fearless**\
+`Houston's final play of last season still haunts Emanuel Sharp — but now the Cougars want to make their comeback.`\
+https://nytimes.com/athletic/6767186/2025/11/03/emanuel-sharp-houston-basketball/
+
 **TAFC: What do (Spurs) fans want? Plus: Son looking ominous in MLS play-offs**\
 `Today in TAFC: Why Spurs fans are frustrated, despite being fifth in the Premier League. Plus: Son shines in MLS play-offs, Messi stutters`\
 https://nytimes.com/athletic/6772960/2025/11/03/tottenham-frank-chelsea-premier-league/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6772389/2025/11/03/college-football-bowl-projection
 **How does Canada find players who can handle the pressure? Ryan Getzlaf's Olympic role, NHL future**\
 `Ryan Getzlaf, who won Olympic gold with Canada twice as a player, is serving in a role something like an adviser to GM Doug Armstrong.`\
 https://nytimes.com/athletic/6767031/2025/11/03/canada-olympics-ryan-getzlaf/
-
-**'Unacceptable': Giants defense allows over 30 points for third straight game in latest loss**\
-`The defense was supposed to be strong this season, but it's collapsed over the last few weeks.`\
-https://nytimes.com/athletic/6771938/2025/11/03/giants-defense-struggles-49ers/
-
-**I worked with the Dodgers’ Andrew Friedman for years. These two leadership traits stood out**\
-`Joe Maddon worked with Andrew Friedman for nine years. Maddon said Friedman straddled the analytics and human side of baseball.`\
-https://nytimes.com/athletic/6771891/2025/11/03/dodgers-andrew-friedman-world-series-champions-dynasty/
 

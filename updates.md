@@ -1,3 +1,11 @@
+**Mamdani Takes In the Knicks From the Rafters, After Cuomo Sat Courtside**\
+`By catching a Knicks game on Sunday, Zohran Mamdani honored a political tradition of attending a sporting event on the campaign trail. But he sat in the cheap(ish) seats.`\
+https://nytimes.com/2025/11/03/nyregion/mamdani-knicks-nba-cuomo.html
+
+**How Emanuel Sharp learned to live with the moment he won't escape — and why he's still fearless**\
+`Houston's final play of last season still haunts Emanuel Sharp — but now the Cougars want to make their comeback.`\
+https://nytimes.com/athletic/6767186/2025/11/03/emanuel-sharp-houston-basketball/
+
 **Bills defense shuts down Patrick Mahomes, Josh Allen's magnificent game and other observations**\
 `The Bills defense got aggressive in their approach to the Kansas City quarterback in Sunday's win.`\
 https://nytimes.com/athletic/6772662/2025/11/03/josh-allen-bills-defense-observations/
