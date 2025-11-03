@@ -1,3 +1,7 @@
+**Jennifer Lawrence on ‘Breaking Up’ With Hollywood**\
+`At the peak of Jennifer Lawrence’s fame, it seemed like people couldn’t get enough. Privately, she was waiting for the backlash. On “The Interview,” Lawrence discussed her decision to take a break from acting.`\
+https://nytimes.com/video/podcasts/100000010498529/jennifer-lawrence-on-breaking-up-with-hollywood.html
+
 **How to watch Raiders vs. Broncos: Time, TV, streaming**\
 `Find out how to watch the Las Vegas Raiders play the Denver Broncos, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6773010/2025/11/03/raiders-vs-broncos-stream-how-to-watch-nov-6/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/03/arts/dance/mthuthuzeli-november-rhapsodies-paris-
 **Martha Stewart Transformed the Dinner Party. Was That a Good Thing?**\
 `With “Entertaining,” a seminal cookbook that’s being newly reissued, the original lifestyle influencer changed the culture and built her empire.`\
 https://nytimes.com/2025/11/03/dining/martha-stewart-entertaining-dinner-parties.html
-
-**$2 Million Homes in California**\
-`A midcentury modern in Palm Desert, a home perched over the Pacific in Jenner and a ranch house in Los Angeles.`\
-https://nytimes.com/2025/11/03/realestate/2-million-dollar-homes-palm-desert-sonoma-los-angeles.html
 

@@ -1,3 +1,7 @@
+**Jennifer Lawrence on ‘Breaking Up’ With Hollywood**\
+`At the peak of Jennifer Lawrence’s fame, it seemed like people couldn’t get enough. Privately, she was waiting for the backlash. On “The Interview,” Lawrence discussed her decision to take a break from acting.`\
+https://nytimes.com/video/podcasts/100000010498529/jennifer-lawrence-on-breaking-up-with-hollywood.html
+
 **How to watch Raiders vs. Broncos: Time, TV, streaming**\
 `Find out how to watch the Las Vegas Raiders play the Denver Broncos, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6773010/2025/11/03/raiders-vs-broncos-stream-how-to-watch-nov-6/
