@@ -1,3 +1,7 @@
+**TAFC: What do (Spurs) fans want? Plus: Son looking ominous in MLS play-offs**\
+`Today in TAFC: Why Spurs fans are frustrated, despite being fifth in the Premier League. Plus: Son shines in MLS play-offs, Messi stutters`\
+https://nytimes.com/athletic/6772960/2025/11/03/tottenham-frank-chelsea-premier-league/
+
 **NHL weekend rankings: Spiraling Blues, lackluster Leafs, and a mediocre East**\
 `The NHL is proud of its parity, but all but four teams in the Eastern Conference sitting on either 13 or 14 points is probably overkill.`\
 https://nytimes.com/athletic/6771768/2025/11/03/nhl-weekend-rankings-blues-leafs-eastern-conference/
