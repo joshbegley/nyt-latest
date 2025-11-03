@@ -1,3 +1,11 @@
+**The Lions' offense hasn't looked quite right and Vikings exposed some of those issues**\
+`"It was probably one of the worst games we played in a long time,” Detroit coach Dan Campbell said after the loss.`\
+https://nytimes.com/athletic/6771929/2025/11/02/lions-lose-offensive-issues-vikings/
+
+**Bengals offense's frustration boils. Where's the fire from a historically bad defense?**\
+`Joe Flacco and Cincinnati's high-powered offense did their part against the Bears, but another defensive collapse let it go to waste again.`\
+https://nytimes.com/athletic/6772209/2025/11/02/bengals-bad-defense-bears-zac-taylor/
+
 **Daniel Jones, Colts just provided plenty of fuel for their doubters — how will they respond?**\
 `In a loss to the Steelers, Indianapolis turned it over six times, with Jones accounting for five.`\
 https://nytimes.com/athletic/6772227/2025/11/02/indianapolis-colts-steelers-loss-turnovers/
