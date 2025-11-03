@@ -1,5 +1,5 @@
 **Kimberly-Clark Agrees to Buy Kenvue, Maker of Tylenol, for $40 Billion**\
-`The owner of Kleenex and Huggies will acquire the embattled company, which has fought claims by the Trump administration that a common pain reliever was linked to harmful side effects.`\
+`The owner of Kleenex and Huggies will acquire the embattled company, which has fought claims by the Trump administration that a common pain reliever is linked to harmful side effects.`\
 https://nytimes.com/2025/11/03/business/kimberly-clark-kenvue.html
 
 **Can Michigan basketball meet the moment? 5 pressing questions for a revamped roster**\
