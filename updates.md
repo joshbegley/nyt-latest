@@ -1,3 +1,7 @@
+**Are there 'signs of life' for Celtic, Rangers and Scottish football after cup clash?**\
+`It's been a terrible season for the Old Firm – and Scottish football in general – but did the Scottish Cup semi-final show all is not lost?`\
+https://nytimes.com/athletic/6771495/2025/11/03/celtic-rangers-scottish-league-cup-result/
+
 **Leeds barely laid a glove on Brighton. That's why this defeat was so alarming**\
 `For only the second time in 10 matches Leeds were outclassed. Picking up points in their next two fixtures is now of vital significance`\
 https://nytimes.com/athletic/6769500/2025/11/03/leeds-united-daniel-farke-brighton/
