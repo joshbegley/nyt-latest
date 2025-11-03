@@ -1,3 +1,15 @@
+**Deadly Quake in Afghanistan Damages Magnificent Blue Mosque**\
+`A 6.3-magnitude earthquake struck northern Afghanistan, killing at least 15 people and injuring hundreds of others. The quake damaged one of the country’s most iconic landmarks, the 15th-century Blue Mosque.`\
+https://nytimes.com/video/world/asia/100000010498277/afghanistan-earthquake-blue-mosque.html
+
+**How to watch Tulane vs. Memphis: Time, TV, streaming**\
+`Find out how to watch the Tulane Green Wave play the Memphis Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6773034/2025/11/03/tulane-vs-memphis-stream-how-to-watch-nov-7/
+
+**How to watch Northwestern vs. USC: Time, TV, streaming**\
+`Find out how to watch the Northwestern Wildcats play the USC Trojans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6773031/2025/11/03/northwestern-vs-usc-stream-how-to-watch-nov-7/
+
 **Re-stacking AFC contenders: Bills, Chiefs still favorites? Who else is dangerous? — Pick Six**\
 `What was once a three-team race between the Bills, Chiefs and Ravens is now complicated, with several upstarts jumping into the mix.`\
 https://nytimes.com/athletic/6770739/2025/11/03/bills-chiefs-nfl-super-bowl-odds-afc-pick-six/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6772995/2025/11/03/bears-bengals-caleb-williams-col
 **Does Tucker Kraft's injury dent the Packers' championship chances?**\
 `Kraft had become the centerpiece of the Packers' Super Bowl worthy offense before hurting his knee Sunday.`\
 https://nytimes.com/athletic/6772809/2025/11/03/tucker-kraft-injury-packers-pick-six/
-
-**The Vikings trusted J.J. McCarthy to deliver the knockout blow, and he came through**\
-`McCarthy completed only 14 passes, but he came through with a gutsy play in a tough situation in Detroit.`\
-https://nytimes.com/athletic/6772999/2025/11/03/jj-mccarthy-vikings-lions-jalen-nailor/
-
-**A Dodgers dynasty with no end in sight: Is this just the beginning?**\
-`With Ohtani under contract for 8 more seasons and a farm system that ranks among the best in the sport, the Dodgers could keep rolling.`\
-https://nytimes.com/athletic/6771710/2025/11/03/dodgers-dynasty-world-series-shohei-ohtani/
-
-**The New York Times International Edition in Print for Tuesday, Nov. 4, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/11/03/todays-new-york-times-international-edition
 

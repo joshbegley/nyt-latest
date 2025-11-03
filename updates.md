@@ -1,3 +1,15 @@
+**Deadly Quake in Afghanistan Damages Magnificent Blue Mosque**\
+`A 6.3-magnitude earthquake struck northern Afghanistan, killing at least 15 people and injuring hundreds of others. The quake damaged one of the country’s most iconic landmarks, the 15th-century Blue Mosque.`\
+https://nytimes.com/video/world/asia/100000010498277/afghanistan-earthquake-blue-mosque.html
+
+**How to watch Tulane vs. Memphis: Time, TV, streaming**\
+`Find out how to watch the Tulane Green Wave play the Memphis Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6773034/2025/11/03/tulane-vs-memphis-stream-how-to-watch-nov-7/
+
+**How to watch Northwestern vs. USC: Time, TV, streaming**\
+`Find out how to watch the Northwestern Wildcats play the USC Trojans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6773031/2025/11/03/northwestern-vs-usc-stream-how-to-watch-nov-7/
+
 **Re-stacking AFC contenders: Bills, Chiefs still favorites? Who else is dangerous? — Pick Six**\
 `What was once a three-team race between the Bills, Chiefs and Ravens is now complicated, with several upstarts jumping into the mix.`\
 https://nytimes.com/athletic/6770739/2025/11/03/bills-chiefs-nfl-super-bowl-odds-afc-pick-six/
