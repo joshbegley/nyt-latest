@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6774845/2025/11/03/lakers-luka-doncic-austin-reaves
 https://nytimes.com/video/opinion/100000010491344/the-anti-federalists-saw-it-coming.html
 
 **'I missed it': Commanders' Dan Quinn takes responsibility for Jayden Daniels injury**\
-`In more bad news, cornerback Marshon Lattimore (ACL) and returner Luke McCaffrey (broken collarbone) will both miss the rest of the season.`\
+`In more bad news, cornerback Marshon Lattimore (ACL) and returner Luke McCaffrey (broken collarbone) will miss the rest of the season.`\
 https://nytimes.com/athletic/6774872/2025/11/03/jayden-daniels-dislocated-elbow-dan-quinn/
 
 **Watch: How the NFL salary cap impacts teams at the trade deadline**\

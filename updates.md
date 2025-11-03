@@ -1,3 +1,7 @@
+**'I missed it': Commanders' Dan Quinn takes responsibility for Jayden Daniels injury**\
+`In more bad news, cornerback Marshon Lattimore (ACL) and returner Luke McCaffrey (broken collarbone) will miss the rest of the season.`\
+https://nytimes.com/athletic/6774872/2025/11/03/jayden-daniels-dislocated-elbow-dan-quinn/
+
 **How the Democratic Party Can Beat Trumpism**\
 `The Democratic Party does not need to choose to be one thing. It needs to choose to be more things.`\
 https://nytimes.com/video/opinion/100000010495235/how-the-democratic-party-can-beat-trumpism.html
