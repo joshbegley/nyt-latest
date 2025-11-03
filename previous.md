@@ -1,5 +1,9 @@
+**Winning ugly? Why Broncos' win in Houston showcased traits of a real contender**\
+`The Broncos proved again they are the NFL's best fourth-quarter team, the biggest reason to believe they can vie for a championship.`\
+https://nytimes.com/athletic/6771861/2025/11/02/broncos-beat-texans-bo-nix-sean-payton/
+
 **Saints-Rams takeaways: Matthew Stafford throws 4 TD passes in blowout of New Orleans**\
-`The Rams had a massive advantage in time of possession, including holding the ball for nearly 14 minutes in the third quarter`\
+`The Rams had a massive advantage in time of possession, including holding the ball for nearly 14 minutes in the third quarter.`\
 https://nytimes.com/athletic/6771867/2025/11/02/saints-rams-takeaways-matthew-stafford-throws-4-td-passes-in-blowout-of-new-orleans/
 
 **Martha Layne Collins, 88, Dies; Kentucky’s First Female Governor**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6771188/2025/11/02/nfl-takeaways-week-9-scores-resu
 **Dispense Carefully**\
 `Kevin Christian and Andrea Carla Michaels start off our solving week right.`\
 https://nytimes.com/2025/11/02/crosswords/daily-puzzle-2025-11-03.html
-
-**Jaguars' Cam Little makes NFL-record 68-yard field goal vs. Raiders**\
-`Little, who made a 70-yard field goal in a preseason game this year, beat the record of 66 yards set by Justin Tucker in 2021.`\
-https://nytimes.com/athletic/6771730/2025/11/02/cam-little-jaguars-field-goal-68-yards-nfl-record/
 
