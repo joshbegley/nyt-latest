@@ -1,3 +1,7 @@
+**Browns coach Kevin Stefanski turns play-calling duties over to OC Tommy Rees**\
+`Cleveland's offense ranks 31st in the NFL in yards per game and 30th in points per game. `\
+https://nytimes.com/athletic/6774119/2025/11/03/browns-kevin-stefanski-play-calling-tommy-rees/
+
 **Protesters Demand Justice After a Mayor Is Killed in Mexico**\
 `Protesters stormed a government building after Mayor Carlos Manzo of Uruapan was shot and killed while at a Day of the Dead celebration. The outspoken mayor often denounced cartels and criticized the government’s approach to dealing with them.`\
 https://nytimes.com/video/world/americas/100000010499270/mexico-mayor-killed-michoacan.html

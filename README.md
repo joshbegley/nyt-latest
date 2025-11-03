@@ -1,4 +1,4 @@
-**Browns coach Kevin Stefanski turns play-calling duties over to OC Tommy Rees**\
+**Browns coach Kevin Stefanski turns over play-calling duties to OC Tommy Rees**\
 `Cleveland's offense ranks 31st in the NFL in yards per game and 30th in points per game. `\
 https://nytimes.com/athletic/6774119/2025/11/03/browns-kevin-stefanski-play-calling-tommy-rees/
 

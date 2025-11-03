@@ -1,3 +1,7 @@
+**Browns coach Kevin Stefanski turns play-calling duties over to OC Tommy Rees**\
+`Cleveland's offense ranks 31st in the NFL in yards per game and 30th in points per game. `\
+https://nytimes.com/athletic/6774119/2025/11/03/browns-kevin-stefanski-play-calling-tommy-rees/
+
 **New Yorkers came out en masse to vote early.**\
 `By Matthew Haag`\
 https://nytimes.com/live/2025/11/03/nyregion/nyc-mayor-election-news/new-yorkers-came-out-en-masse-to-vote-early
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6774079/2025/11/03/rockies-reopen-gm-search-sawdaye
 **Inside Newcastle Q&A: Did Howe lose his cool? Are the new signings working?**\
 `After a poor performance in defeat at West Ham over the weekend, we answer your pressing questions about Newcastle`\
 https://nytimes.com/athletic/6772908/2025/11/03/inside-newcastle-q-a-did-howe-lose-his-cool-are-the-new-signings-working/
-
-**Is it time to recall Danny Welbeck to the England squad?**\
-`Not only is the Brighton striker scoring plenty of goals, he is the sort of character suited to a tournament squad`\
-https://nytimes.com/athletic/6773847/2025/11/03/danny-welbeck-england-recall/
 
