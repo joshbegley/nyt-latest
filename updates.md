@@ -1,3 +1,19 @@
+**Mac Jones shines for 49ers yet again, in what might be his last chance this season**\
+`Jones didn't miss a pass in the first half and improved to 5-2 as a starter this season, as Brock Purdy nears his return from injury.`\
+https://nytimes.com/athletic/6771915/2025/11/02/mac-jones-49ers-giants-brock-purdy/
+
+**Explosion at Harvard Building Affected Small Section of Hallway, Officials Say**\
+`There was no structural damage to the building, they said, as investigators pursued two suspects.`\
+https://nytimes.com/2025/11/02/us/explosion-harvard-damage.html
+
+**Penix Jr., Morris believe Patriots simulated snap count on crucial play**\
+`The television replay didn't appear to show the Patriots' front seven clapping.`\
+https://nytimes.com/athletic/6771991/2025/11/02/snap-count-simulation/
+
+**Josh Allen, Bills beat Chiefs for 5th straight time in regular season: Takeaways**\
+`Allen ran for two touchdowns and passed for another and the Buffalo defense denied a Patrick Mahomes Hail Mary pass attempt to win 28-21.`\
+https://nytimes.com/athletic/6771855/2025/11/02/bills-josh-allen-score-result-takeaways-week-9-nfl/
+
 **Penix Jr., Morris believe Patriots simulated snap count on crucial play**\
 `The television replay didn't appear to show the Patriots' front seven clapping.`\
 https://nytimes.com/athletic/6771991/2025/11/02/penix-morris-believe-patriots-simulated-snap-count-on-crucial-play/
