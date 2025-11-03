@@ -1,3 +1,7 @@
+**Hegseth Vows Stronger Ties With a Vietnam Skeptical of U.S. Commitment**\
+`After months of uncertainty over U.S. aid, the defense secretary pledged that Washington would keep funding programs that help address the wounds of the Vietnam War.`\
+https://nytimes.com/2025/11/03/world/asia/vietnam-war-hegseth-trip.html
+
 **Ravens GM Eric DeCosta loves to be aggressive at trade deadline. This year, he may need to**\
 `Making an addition or two ahead of this year's deadline feels far more like a necessity than a luxury for the 3-5 Ravens. `\
 https://nytimes.com/athletic/6770614/2025/11/03/ravens-eric-decosta-nfl-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6770938/2025/11/03/world-juniors-2026-canada-usa-ro
 **What I'm seeing from the Red Wings: Detroit secures a winning trip**\
 `The Red Wings have won three of their first four games on this swing out West. `\
 https://nytimes.com/athletic/6772707/2025/11/03/detroit-red-wings-moritz-seider-cam-talbot/
-
-**Bills defense shuts down Patrick Mahomes, Josh Allen's magnificent game and other observations**\
-`The Bills defense got aggressive in their approach to the Kansas City quarterback in Sunday's win.`\
-https://nytimes.com/athletic/6772662/2025/11/03/josh-allen-bills-defense-observations/
 
