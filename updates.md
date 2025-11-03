@@ -1,3 +1,11 @@
+**NBA Rewind: Ja Morant causes a stir, and are we ready for the Spurs?**\
+`Catching up on the weekend in the NBA, including who's hot (Bucks) and who's not (Pelicans).`\
+https://nytimes.com/athletic/6765270/2025/11/03/nba-rewind-ja-morant-san-antonio-spurs/
+
+**F1 decides what driver radio clips you hear. The process is always changing**\
+`F1's decisions over the airing of team radio messages have formed part of a recent debate on the sport's broadcasting. Here's how they work`\
+https://nytimes.com/athletic/6773087/2025/11/03/how-f1-team-radio-works/
+
 **Torre dei Conti Partially Collapses in Rome, Causing Injuries**\
 `The medieval tower, near the Colosseum, was undergoing restoration work. One man was seriously injured, Italian news media reported.`\
 https://nytimes.com/2025/11/03/world/europe/tower-collapse-rome-colosseum-torre-dei-conti.html
