@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6771834/2025/11/02/tucker-kraft-knee-injury-packers
 https://nytimes.com/athletic/6771854/2025/11/02/josh-hart-knicks-hand-nerve-injury/
 
 **Joel Embiid's 'lewd gesture' against Celtics draws fine from NBA**\
-`The NBA has fined Philadelphia 76ers star center Joel Embiid $50,000 after his "DX Chop" on Friday.`\
+`The seven-time All-Star was fined $50,000 after his "DX Chop."`\
 https://nytimes.com/athletic/6771811/2025/11/02/joel-embiid-76ers-fine-dx-chop-celtics-nba/
 
 **Are the Packers pretenders? Did the Steelers expose the Colts? Our experts' Week 9 takeaways**\
