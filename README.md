@@ -1,3 +1,11 @@
+**La Scala Honors Shostakovich with a New Vision of his Original ‘Lady Macbeth’**\
+`Banned for decades in the Soviet Union for its dissonance and bawdiness, the opera returns as La Scala’s season opener amid the 50th anniversary of Shostakovich’s death.`\
+https://nytimes.com/2025/11/03/arts/la-scala-shostakovich-lady-macbeth.html
+
+**Meet the Billionaire Trying to Save College Football From Itself**\
+`Cody Campbell, an oilman, has spent millions paying students to play football at Texas Tech. Now he worries that people like him are ruining college sports.`\
+https://nytimes.com/2025/11/03/business/college-football-cody-campbell-texas-tech.html
+
 **A Creator of Enigmas Tackles Debussy’s Operatic Masterpiece**\
 `The Italian director Romeo Castellucci, known for his avant-garde theater productions, will take on Debussy’s “Pelléas et Mélisande” in his La Scala debut.`\
 https://nytimes.com/2025/11/03/arts/castellucci-debussy-lascala-opera.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6773307/2025/11/03/usmnt-player-tracker-world-cup-p
 **Has Gracie Mansion Ever Had a Democratic Socialist?**\
 `Zohran Mamdani’s opponents have portrayed his Democratic Socialists of America affiliation as unusual, but he is not the first New York politician — or would-be mayor — with ties to the group.`\
 https://nytimes.com/2025/11/03/nyregion/democratic-socialism-zohran-mamdani-city-hall-dinkins.html
-
-**France Threatens to Ban Shein Over Sale of ‘Childlike’ Sex Dolls**\
-`The controversy adds to a growing backlash in France against the giant Chinese online retailer as it prepares to open its first physical store on Wednesday in Paris.`\
-https://nytimes.com/2025/11/03/business/shein-france-sex-dolls.html
-
-**How to watch Baylor vs. Duke: Time, TV, streaming**\
-`Find out how to watch the Baylor Bears play the Duke Blue Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6773638/2025/11/03/baylor-vs-duke-stream-how-to-watch-nov-3/
 

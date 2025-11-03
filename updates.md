@@ -1,3 +1,15 @@
+**A Creator of Enigmas Tackles Debussy’s Operatic Masterpiece**\
+`The Italian director Romeo Castellucci, known for his avant-garde theater productions, will take on Debussy’s “Pelléas et Mélisande” in his La Scala debut.`\
+https://nytimes.com/2025/11/03/arts/castellucci-debussy-lascala-opera.html
+
+**NBA Power Rankings: Lakers, Rockets rise; Cavs fall; rotation check-ins for everyone**\
+`Two weeks is about the length of a playoff series, and it's enough time to break down what key contributors are, well, contributing.`\
+https://nytimes.com/athletic/6773370/2025/11/03/nba-power-rankings-lakers-rockets-warriors-defense/
+
+**La Scala’s First ‘Ring’ in a Decade Passes the Wagnerian Flame**\
+`Two conductors — a mentor and a protégé, both trained as pianists — bring precision and lyricism to the first new staging of Wagner’s epic in a decade.`\
+https://nytimes.com/2025/11/03/arts/la-scala-wagner-ring-cycle.html
+
 **Southampton in talks to sign former midfielder Romeu**\
 `The midfielder originally joined the south-coast side in 2015 and has been without a club since leaving Barcelona this summer.`\
 https://nytimes.com/athletic/6773647/2025/11/03/oriol-romeu-southampton-transfer-barcelona/
