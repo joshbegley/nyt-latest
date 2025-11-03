@@ -1,3 +1,7 @@
+**Inside Real Madrid: Vinicius Jr latest, Alexander-Arnold fitness, Alonso's Anfield veto**\
+`With a Champions League trip to Liverpool to come on Tuesday, here's the latest news and talking points at Real Madrid`\
+https://nytimes.com/athletic/6773029/2025/11/03/real-madrid-news-vinicius-champions-league/
+
 **Mamdani Takes In the Knicks From the Rafters, After Cuomo Sat Courtside**\
 `By catching a Knicks game on Sunday, Zohran Mamdani honored a political tradition of attending a sporting event on the campaign trail. But he sat in the cheap(ish) seats.`\
 https://nytimes.com/2025/11/03/nyregion/mamdani-knicks-nba-cuomo.html

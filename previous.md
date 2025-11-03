@@ -1,3 +1,7 @@
+**Inside Real Madrid: Vinicius Jr latest, Alexander-Arnold fitness, Alonso's Anfield veto**\
+`With a Champions League trip to Liverpool to come on Tuesday, here's the latest news and talking points at Real Madrid`\
+https://nytimes.com/athletic/6773029/2025/11/03/real-madrid-news-vinicius-champions-league/
+
 **Mamdani Takes In the Knicks From the Rafters, After Cuomo Sat Courtside**\
 `By catching a Knicks game on Sunday, Zohran Mamdani honored a political tradition of attending a sporting event on the campaign trail. But he sat in the cheap(ish) seats.`\
 https://nytimes.com/2025/11/03/nyregion/mamdani-knicks-nba-cuomo.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6772662/2025/11/03/josh-allen-bills-defense-observa
 **Bowl projections: Can UNC, Clemson, FSU and more reach the six-win mark?**\
 `Beyond the College Football Playoff race, there are some interesting developing stories in the push for bowl season.`\
 https://nytimes.com/athletic/6772389/2025/11/03/college-football-bowl-projections-matchups-week-10/
-
-**How does Canada find players who can handle the pressure? Ryan Getzlaf's Olympic role, NHL future**\
-`Ryan Getzlaf, who won Olympic gold with Canada twice as a player, is serving in a role something like an adviser to GM Doug Armstrong.`\
-https://nytimes.com/athletic/6767031/2025/11/03/canada-olympics-ryan-getzlaf/
 
