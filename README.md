@@ -1,3 +1,7 @@
+**Trump Endorses Cuomo for N.Y.C. Mayor on Eve of Election**\
+`The president wrote that if Zohran Mamdani were to win, it would be “highly unlikely” that the city would receive federal funding beyond a bare minimum.`\
+https://nytimes.com/2025/11/03/nyregion/trump-cuomo-endorse-nyc-mayor.html
+
 **The Battle in Virginia Over an Activist Who Protested Stephen Miller**\
 `Criminal inquiries pit the Miller family’s safety concerns against the First Amendment rights of an activist in Northern Virginia critical of the administration.`\
 https://nytimes.com/2025/11/03/us/politics/stephen-miller-activist-battle-free-speech.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/03/us/politics/durango-colorado-ice-protester.html
 **The Trump Administration Plans to Offer Only Partial Food Stamp Benefits**\
 `Also, Election Day is tomorrow for millions of Americans. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/11/03/briefing/food-stamps-tylenol-maker-margaret-atwood.html
-
-**How the Democratic Party Can Beat Trumpism**\
-`The Democratic Party does not need to choose to be one thing. It needs to choose to be more things.`\
-https://nytimes.com/video/opinion/100000010495235/how-the-democratic-party-can-beat-trumpism.html
 
