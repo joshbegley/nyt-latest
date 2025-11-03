@@ -1,3 +1,7 @@
+**How the Democratic Party Can Beat Trumpism**\
+`The Democratic Party does not need to choose to be one thing. It needs to choose to be more things.`\
+https://nytimes.com/video/opinion/100000010495235/how-the-democratic-party-can-beat-trumpism.html
+
 **What Is the Human Cost of Haute Couture?**\
 `“Lacrima,” a play from the French playwright and director Caroline Guiela Nguyen, explores the hidden stories woven into luxury fashion.`\
 https://nytimes.com/2025/11/03/style/lacrima-bam-nyc-play-caroline-guiela-nguyen.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/03/world/europe/netherlands-elections-d66-wilders.ht
 **After Cam Little's record 68-yard field goal, the 70-yard barrier seems likely to fall next**\
 `Thanks to rule changes and advanced training methods, NFL kickers are converting long field goals at record rates.`\
 https://nytimes.com/athletic/6773771/2025/11/03/cam-little-nfl-long-field-goals/
-
-**Mamdani’s Stance on Gaza Drew Pro-Palestinian Activists to His Campaign**\
-`The campaign became “a funnel for all this dispersed energy and passion,” said one volunteer, who had been an active campus protester.`\
-https://nytimes.com/2025/11/03/nyregion/mamdani-gaza.html
 
