@@ -34,7 +34,7 @@ https://nytimes.com/2025/11/03/world/asia/india-women-cricket-world-cup.html
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/03/todays-new-york-times
 
-**‘All’s Fair,’ Plus 7 Things to Watch on TV This Week**\
-`Ryan Murphy’s new show airs on Hulu and two mockumentaries have their season premieres.`\
-https://nytimes.com/2025/11/03/arts/television/alls-fair-tv-this-week.html
+**How Maduro Future-Proofed His Dictatorship**\
+`Venezuela’s president has built a system in which the only people who can truly tear down his dictatorship are the ones with the most to lose from its demise.`\
+https://nytimes.com/2025/11/03/opinion/maduro-venezuela-autocracy.html
 
