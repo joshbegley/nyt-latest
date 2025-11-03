@@ -1,40 +1,40 @@
-**With Acquisition, Kimberly-Clark Bets That Tylenol Can Weather the Storm**\
-`The consumer products giant reached a $40 billion deal to buy Kenvue, the maker of Tylenol, despite a barrage of unproven claims from President Trump and others that use of the pain reliever during pregnancy can cause autism.`\
-https://nytimes.com/2025/11/03/science/tylenol-autism-kimberly-clark-kenvue.html
+**Dillon Dingler won a Gold Glove in his first full MLB season. Is this just the start?**\
+`Dingler has realized his potential and just bested Alejandro Kirk and Carlos Narváez for an AL Gold Glove Award.`\
+https://nytimes.com/athletic/6774433/2025/11/03/dillon-dingler-wins-gold-glove-tigers/
 
-**Men's college basketball national title odds: Purdue opens as favorite ahead of Houston**\
-`As the season is about to start, Purdue is the favorite to win the national championship, with Houston, Duke and Kentucky following.`\
-https://nytimes.com/athletic/6774228/2025/11/03/mens-college-basketball-national-title-odds-purdue-houston/
+**NCAA women’s college basketball title odds: South Carolina, UCLA chasing UConn**\
+`A quick-hit guide to the favorites in the women's tournament and how roster shifts have affected the market.`\
+https://nytimes.com/athletic/6774380/2025/11/03/2026-ncaa-womens-college-basketball-odds-uconn-south-carolina-usc/
 
-**NFL overreactions: THOSE Packers are supposed to beat THOSE Eagles??**\
-`Toby Mergler makes early Week 10 picks wildly over-indexing on vibes, small sample sizes and comparisons to pop culture classics.`\
-https://nytimes.com/athletic/6774230/2025/11/03/nfl-overreaction-monday-week-10/
+**Racing finished in ninth place the past four NWSL seasons. This year, they broke the curse**\
+`Racing Louisville ended a four-year run of finishing the NWSL season in ninth on Sunday.`\
+https://nytimes.com/athletic/6772955/2025/11/03/racing-louisville-nwsl-playoff-bound/
 
-**How to watch Wizards vs. Knicks: Time, TV, streaming**\
-`Find out how to watch the Washington Wizards play the New York Knicks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6774615/2025/11/03/wizards-vs-knicks-stream-how-to-watch-nov-3/
+**Target Shooting Could Be Causing Brain Injuries. We Measured the Danger.**\
+`The Times tested the blast waves of several popular civilian guns at an indoor range and found that repeated firing could add up to potentially harmful exposure.`\
+https://nytimes.com/interactive/2025/11/03/us/gun-ranges-brain-injuries.html
 
-**How to watch Jazz vs. Celtics: Time, TV, streaming**\
-`Find out how to watch the Utah Jazz play the Boston Celtics, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6774613/2025/11/03/jazz-vs-celtics-stream-how-to-watch-nov-3/
+**How to watch Georgia vs. Mississippi State: Time, TV, streaming**\
+`Find out how to watch the Georgia Bulldogs play the Mississippi State Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6774689/2025/11/03/georgia-vs-mississippi-state-stream-how-to-watch-nov-8/
 
-**How to watch Mavericks vs. Rockets: Time, TV, streaming**\
-`Find out how to watch the Dallas Mavericks play the Houston Rockets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6774611/2025/11/03/mavericks-vs-rockets-stream-how-to-watch-nov-3/
+**How to watch Texas A&M vs. Missouri: Time, TV, streaming**\
+`Find out how to watch the Texas A&M Aggies play the Missouri Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6774687/2025/11/03/texas-a-m-vs-missouri-stream-how-to-watch-nov-8/
 
-**How to watch Heat vs. Clippers: Time, TV, streaming**\
-`Find out how to watch the Miami Heat play the Los Angeles Clippers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6774609/2025/11/03/heat-vs-clippers-stream-how-to-watch-nov-3/
+**How to watch Syracuse vs. Miami (FL): Time, TV, streaming**\
+`Find out how to watch the Syracuse Orange play the Miami (FL) Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6774685/2025/11/03/syracuse-vs-miami-fl-stream-how-to-watch-nov-8/
 
-**How to watch Lakers vs. Trail Blazers: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Lakers play the Portland Trail Blazers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6774607/2025/11/03/lakers-vs-trail-blazers-stream-how-to-watch-nov-3/
+**How to watch Oregon vs. Iowa: Time, TV, streaming**\
+`Find out how to watch the Oregon Ducks play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6774681/2025/11/03/oregon-vs-iowa-stream-how-to-watch-nov-8/
 
-**How to watch Penguins vs. Maple Leafs: Time, TV, streaming**\
-`Find out how to watch the Pittsburgh Penguins play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6774605/2025/11/03/penguins-vs-maple-leafs-stream-how-to-watch-nov-3/
+**How to watch Indiana vs. Penn State: Time, TV, streaming**\
+`Find out how to watch the Indiana Hoosiers play the Penn State Nittany Lions, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6774679/2025/11/03/indiana-vs-penn-state-stream-how-to-watch-nov-8/
 
-**How to watch Oilers vs. Blues: Time, TV, streaming**\
-`Find out how to watch the Edmonton Oilers play the St. Louis Blues, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6774602/2025/11/03/oilers-vs-blues-stream-how-to-watch-nov-3/
+**How to watch Colorado vs. West Virginia: Time, TV, streaming**\
+`Find out how to watch the Colorado Buffaloes play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6774677/2025/11/03/colorado-vs-west-virginia-stream-how-to-watch-nov-8/
 

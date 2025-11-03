@@ -1,3 +1,7 @@
+**With Acquisition, Kimberly-Clark Bets That Tylenol Can Weather the Storm**\
+`The consumer products giant reached a $40 billion deal to buy Kenvue, the maker of Tylenol, despite a barrage of unproven claims from President Trump and others that use of the pain reliever during pregnancy can cause autism.`\
+https://nytimes.com/2025/11/03/science/tylenol-autism-kimberly-clark-kenvue.html
+
 **Men's college basketball national title odds: Purdue opens as favorite ahead of Houston**\
 `As the season is about to start, Purdue is the favorite to win the national championship, with Houston, Duke and Kentucky following.`\
 https://nytimes.com/athletic/6774228/2025/11/03/mens-college-basketball-national-title-odds-purdue-houston/
