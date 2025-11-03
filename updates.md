@@ -1,3 +1,7 @@
+**Kawhi Leonard is finally healthy again, but he's still searching for consistency**\
+`Leonard has had some big games and some puzzling ones, and the Clippers' performance has tended to follow its star.`\
+https://nytimes.com/athletic/6771802/2025/11/03/clippers-kawhi-leonard-nba-season/
+
 **2025 Heisman Trophy odds: Julian Sayin makes his move**\
 `The Heisman race is far from decided, but Julian Sayin is the clear frontrunner entering the second week of November.`\
 https://nytimes.com/athletic/6772839/2025/11/03/heisman-trophy-odds-julian-sayin/

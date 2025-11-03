@@ -1,3 +1,11 @@
+**Trump Administration Faces Court Deadline on Food Stamp Benefits**\
+`The government must inform two courts how, and when, it intends to pay benefits in November, as the shutdown continues.`\
+https://nytimes.com/2025/11/03/business/snap-food-stamps-trump.html
+
+**Van de Ven, Spence apologised 'unprompted' for Chelsea snub, says Frank**\
+`Van de Ven and Spence appeared to refuse a request from Frank to applaud supporters after Saturday's defeat by Chelsea.`\
+https://nytimes.com/athletic/6773518/2025/11/03/tottenham-thomas-frank-van-de-ven-spence/
+
 **Kawhi Leonard is finally healthy again, but he's still searching for consistency**\
 `Leonard has had some big games and some puzzling ones, and the Clippers' performance has tended to follow its star.`\
 https://nytimes.com/athletic/6771802/2025/11/03/clippers-kawhi-leonard-nba-season/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/03/books/review/margaret-atwood-book-of-lives.html
 **Scunthorpe footballer among 11 victims of knife attack on UK train**\
 `In a statement, the club said Jonathan Gjoshe was currently in hospital with "non life-threatening injuries".`\
 https://nytimes.com/athletic/6773383/2025/11/03/scunthorpe-united-footballer-jonathan-gjoshe-among-11-victims-of-knife-attack-on-uk-train/
-
-**Mamdani Mocks Cuomo After Trump Offers His Reluctant Backing**\
-`“I know how hard you worked for this,” Zohran Mamdani said on social media after his chief rival in the New York City mayor’s race, former Gov. Andrew M. Cuomo, received tepid support from President Trump.`\
-https://nytimes.com/2025/11/03/nyregion/trump-cuomo-endorsement-mamdani.html
-
-**OpenAI Signs $38 Billion Cloud Computing Deal With Amazon**\
-`After signing agreements to use computing power from Nvidia, AMD and Oracle, OpenAI is teaming up with the world’s largest cloud computing company.`\
-https://nytimes.com/2025/11/03/technology/openai-amazon-cloud-computing.html
 
