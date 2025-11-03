@@ -1,3 +1,11 @@
+**A Creator of Enigmas Tackles Debussy’s Operatic Masterpiece**\
+`The Italian director Romeo Castellucci, known for his avant-garde theater productions, will take on Debussy’s “Pelléas et Mélisande” in his La Scala debut.`\
+https://nytimes.com/2025/11/03/arts/castellucci-debussy-lascala-opera.html
+
+**NBA Power Rankings: Lakers, Rockets rise; Cavs fall; rotation check-ins for everyone**\
+`Two weeks is about the length of a playoff series, and it's enough time to break down what key contributors are, well, contributing.`\
+https://nytimes.com/athletic/6773370/2025/11/03/nba-power-rankings-lakers-rockets-warriors-defense/
+
 **La Scala’s First ‘Ring’ in a Decade Passes the Wagnerian Flame**\
 `Two conductors — a mentor and a protégé, both trained as pianists — bring precision and lyricism to the first new staging of Wagner’s epic in a decade.`\
 https://nytimes.com/2025/11/03/arts/la-scala-wagner-ring-cycle.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/03/business/shein-france-sex-dolls.html
 **How to watch Baylor vs. Duke: Time, TV, streaming**\
 `Find out how to watch the Baylor Bears play the Duke Blue Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6773638/2025/11/03/baylor-vs-duke-stream-how-to-watch-nov-3/
-
-**How to watch St. Thomas vs. Iowa State: Time, TV, streaming**\
-`Find out how to watch the Saint Thomas Tommies play the Iowa State Cyclones, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6773636/2025/11/03/st-thomas-vs-iowa-state-stream-how-to-watch-nov-3/
-
-**After Fleeing a Massacre, Survivors Encountered Still More Gunfire and Abductions**\
-`Thousands of people who witnessed atrocities have tried to escape El Fasher in Sudan’s Darfur region since paramilitary fighters seized that city in late October.`\
-https://nytimes.com/2025/11/03/world/africa/sudan-el-fasher-darfur-massacre-rsf.html
 
