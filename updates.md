@@ -1,3 +1,7 @@
+**NHL weekend rankings: Spiraling Blues, lackluster Leafs, and a mediocre East**\
+`The NHL is proud of its parity, but all but four teams in the Eastern Conference sitting on either 13 or 14 points is probably overkill.`\
+https://nytimes.com/athletic/6771768/2025/11/03/nhl-weekend-rankings-blues-leafs-eastern-conference/
+
 **Cardinals at Cowboys on MNF: YouTube TV, high scoring projections, hijinks on the telecast**\
 `Dallas hosts Arizona on "Monday Night Football." Here's a quick primer on the teams, the telecast and the odds as we close out Week 9.`\
 https://nytimes.com/athletic/6766601/2025/11/03/cowboys-cardinals-monday-night-football-watch-youtube-tv/
