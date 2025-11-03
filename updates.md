@@ -1,3 +1,15 @@
+**The New York Times in Print for Monday, Nov. 3, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/03/todays-new-york-times
+
+**‘All’s Fair,’ Plus 7 Things to Watch on TV This Week**\
+`Ryan Murphy’s new show airs on Hulu and two mockumentaries have their season premieres.`\
+https://nytimes.com/2025/11/03/arts/television/alls-fair-tv-this-week.html
+
+**Maduro Might Not Last. But His System Could Survive.**\
+`Maduro has built a system in which the only people who can truly tear down the dictatorship are the ones with the most to lose from its demise.`\
+https://nytimes.com/2025/11/03/opinion/maduro-venezuela-autocracy.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>We spent the first two months of the season paring the list of coaches. Now it&#8217;s time to start narrowing down the CFP field.</p>
 <p>Leave your questions here. Please include your city.</p>
