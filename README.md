@@ -1,3 +1,7 @@
+**Kawhi Leonard is finally healthy again, but he's still searching for consistency**\
+`Leonard has had some big games and some puzzling ones, and the Clippers' performance has tended to follow its star.`\
+https://nytimes.com/athletic/6771802/2025/11/03/clippers-kawhi-leonard-nba-season/
+
 **2025 Heisman Trophy odds: Julian Sayin makes his move**\
 `The Heisman race is far from decided, but Julian Sayin is the clear frontrunner entering the second week of November.`\
 https://nytimes.com/athletic/6772839/2025/11/03/heisman-trophy-odds-julian-sayin/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/03/nyregion/trump-cuomo-endorsement-mamdani.html
 **OpenAI Signs $38 Billion Cloud Computing Deal With Amazon**\
 `After signing agreements to use computing power from Nvidia, AMD and Oracle, OpenAI is teaming up with the world’s largest cloud computing company.`\
 https://nytimes.com/2025/11/03/technology/openai-amazon-cloud-computing.html
-
-**Ford Foundation’s New Leader Vows to Protect Elections and the Rule of Law**\
-`Heather K. Gerken, a voting rights scholar and former dean of Yale Law School, plans to intensify its emphasis on democracy as it girds for attacks from the Trump administration.`\
-https://nytimes.com/2025/11/03/us/politics/ford-foundation-heather-gerken-trump.html
 
