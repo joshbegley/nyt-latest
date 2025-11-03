@@ -1,3 +1,15 @@
+**Son and Bouanga see LAFC past Austin in MLS playoffs**\
+`Son Heung-min was 0n target and created an assist for two-goal Denis Bouanga as Los Angeles FC set up a meeting with Thomas Muller and the Vancouver Whitecaps in the Western Conference semifinals with a 4-1 win at Austin FC in on Sunday.`\
+https://nytimes.com/athletic/6772508/2025/11/02/son-heung-min-and-denis-bouanga-see-lafc-past-austin-in-mls-playoffs/
+
+**Jayden Daniels suffers gruesome left arm injury during Commanders' loss to Seahawks**\
+`Daniels was injured midway through the fourth quarter as the Washington Commanders badly trailed the Seattle Seahawks.`\
+https://nytimes.com/athletic/6772596/2025/11/02/jayden-daniels-arm-injury-leaves-game-commanders-seattle/
+
+**After losses by Spurs, Bulls, the Thunder are the NBA's only remaining unbeaten**\
+`The defending champion Thunder continued their dominant start with another big win, leaving as the NBA's lone remaining unbeaten.`\
+https://nytimes.com/athletic/6772205/2025/11/02/thunder-spurs-bulls-nba-shai-gilgeous-alexander-victor-wembanyama/
+
 **Thunder's Shai Gilgeous-Alexander says 'everybody's safe' after break-in**\
 `“Everything else can come and go, but my loved ones are safe, so I’m OK. I’m happy," Gilgeous-Alexander said.`\
 https://nytimes.com/athletic/6772410/2025/11/02/shai-gilgeous-alexander-thunder-break-in/
