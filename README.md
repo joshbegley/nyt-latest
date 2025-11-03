@@ -1,3 +1,7 @@
+**NBA Rewind: Ja Morant causes a stir, and are we ready for the Spurs?**\
+`Catching up on the weekend in the NBA, including who's hot (Bucks) and who's not (Pelicans).`\
+https://nytimes.com/athletic/6765270/2025/11/03/nba-rewind-ja-morant-san-antonio-spurs/
+
 **F1 decides what driver radio clips you hear. The process is always changing**\
 `F1's decisions over the airing of team radio messages have formed part of a recent debate on the sport's broadcasting. Here's how they work`\
 https://nytimes.com/athletic/6773087/2025/11/03/how-f1-team-radio-works/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6771905/2025/11/03/nebraska-dylan-raiola-usc-loss/
 **Inside Barcelona: Injuries, a friendly in Peru and are they finally returning to the Camp Nou?**\
 `Could Barca really play a friendly in Peru over the winter break? And what are their hopes for an open training session at the Camp Nou?`\
 https://nytimes.com/athletic/6773045/2025/11/03/inside-barcelona-camp-nou-peru-friendly/
-
-**Wolves in talks over O'Neil reunion, Ten Hag among club's other options**\
-`Wolves are exploring a reunion with O'Neil in parallel to other options, with no decision on Vitor Pereira's successor expected this week.`\
-https://nytimes.com/athletic/6770826/2025/11/03/wolves-gary-oneil-erik-ten-hag-manager/
 
