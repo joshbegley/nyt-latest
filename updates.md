@@ -1,3 +1,11 @@
+**Protesters Demand Justice After a Mayor Is Killed in Mexico**\
+`Protesters stormed a government building after Mayor Carlos Manzo of Uruapan was shot and killed while at a Day of the Dead celebration. The outspoken mayor often denounced cartels and criticized the government’s approach to dealing with them.`\
+https://nytimes.com/video/world/americas/100000010499270/mexico-mayor-killed-michoacan.html
+
+**Rockies move on from finalists for top baseball operations job: Sources**\
+`The Diamondbacks' Amiel Sawdaye and Guardians' Matt Forman were the only finalists as of last week.`\
+https://nytimes.com/athletic/6774079/2025/11/03/rockies-reopen-gm-search-sawdaye-forman/
+
 **What I'm hearing about the Penguins: Brunicke's future, lagging ticket sales**\
 `The decision to keep Brunicke or to send him back to the Western Hockey League isn't so simple anymore. `\
 https://nytimes.com/athletic/6773736/2025/11/03/penguins-harrison-brunicke-ticket-sales-nhl/
