@@ -1,3 +1,15 @@
+**Are there 'signs of life' for Celtic, Rangers and Scottish football after their cup clash?**\
+`It's been a terrible season for the Old Firm – and Scottish football in general – but did the Scottish Cup semi-final show all is not lost?`\
+https://nytimes.com/athletic/6771495/2025/11/03/celtic-rangers-scottish-league-cup-result/
+
+**The saga of Mary Earps and Hannah Hampton proves our heroes are human**\
+`An extract of Mary Earps’ new autobiography was published at the weekend and there's a temptation to reach for the big, obvious take`\
+https://nytimes.com/athletic/6770329/2025/11/03/mary-earps-autobiography-reaction/
+
+**Newcastle's worst performance under Eddie Howe? It was pretty s*****\
+`A great opportunity for Newcastle United had become a great test. The results from the test are in: abject failure`\
+https://nytimes.com/athletic/6771133/2025/11/03/newcastle-howe-worst-performance/
+
 **Brighton dodge the Bananenschale. Now Hurzeler will demand this kind of performance**\
 `Everything pointed to three points against Leeds, which is when Brighton supporters get worried`\
 https://nytimes.com/athletic/6716161/2025/11/03/brighton-bananenschale-fabian-hurzeler-leeds/
