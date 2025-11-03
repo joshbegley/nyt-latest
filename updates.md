@@ -1,3 +1,7 @@
+**Former Atlanta Hawks senior VP charged with embezzling $3.8M to buy Porsche, tickets**\
+`The SVP of finance, who no longer works for the Hawks, is accused of changing financial reports to hide his company credit card charges.`\
+https://nytimes.com/athletic/6774870/2025/11/03/lester-jones-hawks-finance-vp-charged-embezzling/
+
 **A Sea of Blue and White in Downtown L.A.**\
 `Tens of thousands of Dodger fans attended a parade and rally on Monday, a joyful moment celebrating the team’s World Series win in what has been a turbulent year for Los Angeles.`\
 https://nytimes.com/2025/11/03/us/los-angeles-dodgers-parade.html
