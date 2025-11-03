@@ -1,3 +1,7 @@
+**Leeds barely laid a glove on Brighton. That's why this defeat was so alarming**\
+`For only the second time in 10 matches Leeds were outclassed. Picking up points in their next two fixtures is now of vital significance`\
+https://nytimes.com/athletic/6769500/2025/11/03/leeds-united-daniel-farke-brighton/
+
 **The New York Times in Print for Monday, Nov. 3, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/03/todays-new-york-times
