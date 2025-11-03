@@ -1,3 +1,7 @@
+**N.Y.C. Mayoral Candidates Make Final Push on Last Day of Early Voting**\
+`Zohran Mamdani, Andrew Cuomo and Curtis Sliwa spent Sunday, the last day of early voting, zigzagging across New York City to deliver their final messages and urge people to go to the polls.`\
+https://nytimes.com/video/us/elections/100000010497970/nyc-mayoral-election-voting-blocs.html
+
 **A preview of The Athletic’s live coverage this week**\
 `Our live coverage this week includes the NFL trade deadline, Champions League action, Formula One and more`\
 https://nytimes.com/athletic/6770517/2025/11/03/live-coverage-weekly-schedule-3/
