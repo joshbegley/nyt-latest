@@ -1,3 +1,11 @@
+**How Tucker Kraft's significant knee injury hurts the Packers and what's next**\
+`Kraft, one of the NFL's best tight ends and one of the Packers' most important players, will likely be out an extended period of time.`\
+https://nytimes.com/athletic/6771834/2025/11/02/tucker-kraft-knee-injury-packers/
+
+**Knicks wing Josh Hart says hand injury is nerve-related, affects fingers**\
+`The affliction affects the fourth finger the most, but feeling is also going in and out of his middle and pinky fingers, Hart said.`\
+https://nytimes.com/athletic/6771854/2025/11/02/josh-hart-knicks-hand-nerve-injury/
+
 **Joel Embiid's "lewd gesture" against Celtics draws fine from NBA**\
 `The NBA has fined Philadelphia 76ers star center Joel Embiid $50,000 after his "DX Chop" on Friday.`\
 https://nytimes.com/athletic/6771811/2025/11/02/joel-embiid-76ers-fine-dx-chop-celtics-nba/

@@ -1,3 +1,7 @@
+**Thousands Celebrate the 54th New York City Marathon**\
+`Starting in Staten Island and winding through all five boroughs, the 26.2-mile race brought fans out in the thousands to cheer for professional and first-time marathon runners.`\
+https://nytimes.com/video/us/100000010496916/new-york-city-marathon.html
+
 **How Tucker Kraft's significant knee injury hurts the Packers and what's next**\
 `Kraft, one of the NFL's best tight ends and one of the Packers' most important players, will likely be out an extended period of time.`\
 https://nytimes.com/athletic/6771834/2025/11/02/tucker-kraft-knee-injury-packers/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6771834/2025/11/02/tucker-kraft-knee-injury-packers
 `The affliction affects the fourth finger the most, but feeling is also going in and out of his middle and pinky fingers, Hart said.`\
 https://nytimes.com/athletic/6771854/2025/11/02/josh-hart-knicks-hand-nerve-injury/
 
-**Joel Embiid's "lewd gesture" against Celtics draws fine from NBA**\
+**Joel Embiid's 'lewd gesture' against Celtics draws fine from NBA**\
 `The NBA has fined Philadelphia 76ers star center Joel Embiid $50,000 after his "DX Chop" on Friday.`\
 https://nytimes.com/athletic/6771811/2025/11/02/joel-embiid-76ers-fine-dx-chop-celtics-nba/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6764211/2025/11/02/bears-bengals-score-result-takea
 **Panthers-Packers takeaways: Rico Dowdle leads Carolina to upset**\
 `Running back rushed for 130 yards and two touchdowns, including a decisive 19-yard burst that set up the game-winning field goal.`\
 https://nytimes.com/athletic/6771502/2025/11/02/panthers-packers-score-result-takeaways-week-9-nfl/
-
-**Sanchez performing 'at my best' after initial 'struggle' at Chelsea**\
-`The goalkeeper said he is "happy'"and "confident" after joining the London club from Brighton in 2023.`\
-https://nytimes.com/athletic/6770735/2025/11/02/robert-sanchez-chelsea-best-form/
 
