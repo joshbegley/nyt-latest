@@ -1,3 +1,7 @@
+**‘The Boat,’ Despised Floating Jail Near Rikers, Heads for the Scrap Heap**\
+`The jail barge, officially called the Vernon C. Bain Center, was a relic of the crack cocaine era. It was notorious even among Rikers Island’s many troubled lockups.`\
+https://nytimes.com/2025/11/03/nyregion/rikers-floating-jail-towed-scrap.html
+
 **Former Atlanta Hawks senior VP charged with embezzling $3.8M to buy Porsche, tickets**\
 `The SVP of finance, who no longer works for the Hawks, is accused of changing financial reports to hide his company credit card charges.`\
 https://nytimes.com/athletic/6774870/2025/11/03/lester-jones-hawks-finance-vp-charged-embezzling/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6774845/2025/11/03/lakers-luka-doncic-austin-reaves
 **The Anti-Federalists Saw It Coming**\
 `In this episode of “The Opinions,” David French breaks down why parts of the original Constitution lend themselves to abuse — and which three amendments could stop another shutdown like this one. “But first,” he says, “we have to get through this moment.”`\
 https://nytimes.com/video/opinion/100000010491344/the-anti-federalists-saw-it-coming.html
-
-**'I missed it': Commanders' Dan Quinn takes responsibility for Jayden Daniels injury**\
-`In more bad news, cornerback Marshon Lattimore (ACL) and returner Luke McCaffrey (broken collarbone) will miss the rest of the season.`\
-https://nytimes.com/athletic/6774872/2025/11/03/jayden-daniels-dislocated-elbow-dan-quinn/
 

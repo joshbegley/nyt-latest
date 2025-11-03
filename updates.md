@@ -1,3 +1,7 @@
+**‘The Boat,’ Despised Floating Jail Near Rikers, Heads for the Scrap Heap**\
+`The jail barge, officially called the Vernon C. Bain Center, was a relic of the crack cocaine era. It was notorious even among Rikers Island’s many troubled lockups.`\
+https://nytimes.com/2025/11/03/nyregion/rikers-floating-jail-towed-scrap.html
+
 **Former Atlanta Hawks senior VP charged with embezzling $3.8M to buy Porsche, tickets**\
 `The SVP of finance, who no longer works for the Hawks, is accused of changing financial reports to hide his company credit card charges.`\
 https://nytimes.com/athletic/6774870/2025/11/03/lester-jones-hawks-finance-vp-charged-embezzling/
