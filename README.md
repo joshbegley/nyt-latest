@@ -1,4 +1,16 @@
-**Winning ugly? Why Broncos' win in Houston showcased traits of a real contender**\
+**49ers can't get too high despite handling Giants, as injury strikes yet again**\
+`A bad opponent and another — potentially — bad injury assure that the 49ers won't get overconfident after Sunday's win in New York.`\
+https://nytimes.com/athletic/6771846/2025/11/02/49ers-giants-win-injury-mykel-williams/
+
+**Josh Allen, Bills beat Chiefs for 5th straight time in regular season: Takeaways**\
+`Alen ran for two touchdowns and passed for another and the Buffalo defense denied a Patrick Mahomes Hail Mary pass attempt to win 28-21.`\
+https://nytimes.com/athletic/6771855/2025/11/02/bills-josh-allen-score-result-takeaways-week-9-nfl/
+
+**As Giants bottom out with loss to 49ers, there's little hope of turnaround with this regime**\
+`The Giants allowed a severely depleted 49ers team come in and get a commanding win.`\
+https://nytimes.com/athletic/6771877/2025/11/02/giants-jaxson-dart-brian-daboll-loss-49ers/
+
+**Winning ugly? Why Broncos' win in Houston showcases traits of a real contender**\
 `The Broncos proved again they are the NFL's best fourth-quarter team, the biggest reason to believe they can vie for a championship.`\
 https://nytimes.com/athletic/6771861/2025/11/02/broncos-beat-texans-bo-nix-sean-payton/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6771834/2025/11/02/tucker-kraft-knee-injury-packers
 **Knicks wing Josh Hart says hand injury is nerve-related, affects fingers**\
 `The affliction affects the fourth finger the most, but feeling is also going in and out of his middle and pinky fingers, Hart said.`\
 https://nytimes.com/athletic/6771854/2025/11/02/josh-hart-knicks-hand-nerve-injury/
-
-**Joel Embiid's 'lewd gesture' against Celtics draws fine from NBA**\
-`The seven-time All-Star was fined $50,000 after his "DX Chop."`\
-https://nytimes.com/athletic/6771811/2025/11/02/joel-embiid-76ers-fine-dx-chop-celtics-nba/
-
-**Are the Packers pretenders? Did the Steelers expose the Colts? Our experts' Week 9 takeaways**\
-`Also: J.J. McCarthy made a promising return for the Vikings, and the Bears beat the Bengals in one of the season's wildest games.`\
-https://nytimes.com/athletic/6771188/2025/11/02/nfl-takeaways-week-9-scores-results/
-
-**Dispense Carefully**\
-`Kevin Christian and Andrea Carla Michaels start off our solving week right.`\
-https://nytimes.com/2025/11/02/crosswords/daily-puzzle-2025-11-03.html
 
