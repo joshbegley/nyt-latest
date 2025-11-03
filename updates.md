@@ -1,3 +1,11 @@
+**49ers first-round DE Mykel Williams out for season with torn ACL: Source**\
+`Williams is the second 49ers defensive end to be lost for the year with a torn ACL, joining Nick Bosa.`\
+https://nytimes.com/athletic/6774410/2025/11/03/49ers-mykel-williams-injury-update-acl/
+
+**Marchand: In ESPN and YouTube TV standoff, the fans are the biggest loser**\
+`For 10 million subscribers, a missed college football Saturday on ABC and ESPN networks is rolling over to NFL's "Monday Night Football."`\
+https://nytimes.com/athletic/6774454/2025/11/03/espn-disney-youtubetv-google/
+
 **Halloween Becomes Another Target of the Kremlin’s Culture Wars**\
 `The Russian authorities canceled a festival in St. Petersburg, branding it “Satanist,” as part of a larger assault on anything viewed as a Western influence.`\
 https://nytimes.com/2025/11/03/world/europe/halloween-party-canceled-russia.html
