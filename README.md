@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6773562/2025/11/03/2026-college-basketball-best-fut
 `Find out how to watch the New Orleans Privateers play the Oklahoma State Cowgirls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6774181/2025/11/03/new-orleans-vs-oklahoma-state-stream-how-to-watch-nov-3/
 
-**Rockies move on from finalists for top baseball operations job**\
+**Rockies move on from finalists for top baseball operations job: Sources**\
 `The Diamondbacks' Amiel Sawdaye and Guardians' Matt Forman were the only finalists as of last week.`\
 https://nytimes.com/athletic/6774079/2025/11/03/rockies-reopen-gm-search-sawdaye-forman/
 
