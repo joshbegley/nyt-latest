@@ -1,3 +1,15 @@
+**How to watch Southern vs. Iowa: Time, TV, streaming**\
+`Find out how to watch the Southern Jaguars play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6773600/2025/11/03/southern-vs-iowa-stream-how-to-watch-nov-3/
+
+**How to watch North Carolina Central vs. North Carolina: Time, TV, streaming**\
+`Find out how to watch the North Carolina Central Eagles play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6773597/2025/11/03/north-carolina-central-vs-north-carolina-stream-how-to-watch-nov-3/
+
+**How to watch Norfolk State vs. Ole Miss: Time, TV, streaming**\
+`Find out how to watch the Norfolk State Spartans play the Ole Miss Rebels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6773595/2025/11/03/norfolk-state-vs-ole-miss-stream-how-to-watch-nov-3/
+
 **Trump Administration Faces Court Deadline on Food Stamp Benefits**\
 `The government must inform two courts how, and when, it intends to pay benefits in November, as the shutdown continues.`\
 https://nytimes.com/2025/11/03/business/snap-food-stamps-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/03/nyregion/mamdani-march-brooklyn-bridge-nyc-mayor-
 **What to Know About the Louvre Heist Investigation**\
 `Three of the four people whom the police believe carried out the theft have been arrested. But the jewelry is nowhere to be found.`\
 https://nytimes.com/2025/11/03/world/europe/louvre-museum-robbery-suspects-investigation.html
-
-**Jaelan Phillips trade grades: Eagles address major weakness, as Dolphins prepare for future**\
-`The Eagles' pass rush has been a problem so far this season. GM Howie Roseman clearly believes Phillips can be a big part of the solution. `\
-https://nytimes.com/athletic/6773441/2025/11/03/jaelan-phillips-trade-grades-eagles-dolphins/
-
-**Margaret Atwood Leans Into Her Dark Side in a New Memoir**\
-`“Book of Lives” offers two distinct versions of the esteemed novelist: “Peggy Nature” and “the brooder.”`\
-https://nytimes.com/2025/11/03/books/review/margaret-atwood-book-of-lives.html
-
-**Scunthorpe footballer among 11 victims of knife attack on UK train**\
-`In a statement, the club said Jonathan Gjoshe was currently in hospital with "non life-threatening injuries".`\
-https://nytimes.com/athletic/6773383/2025/11/03/scunthorpe-united-footballer-jonathan-gjoshe-among-11-victims-of-knife-attack-on-uk-train/
 
