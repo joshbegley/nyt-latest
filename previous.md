@@ -1,3 +1,7 @@
+**Alexander-Arnold 'available' for Madrid-Liverpool, Alonso says**\
+`The 27-year-old made 354 appearances for his boyhood club but is not expected to start as they travel to Anfield on Tuesday. `\
+https://nytimes.com/athletic/6774377/2025/11/03/alexander-arnold-real-madrid-liverpool-available-alonso/
+
 **Why the Blackhawks recalled first-round pick Oliver Moore sooner than expected**\
 `The Blackhawks called up Moore, a speedy, 20-year-old forward, on Monday.`\
 https://nytimes.com/athletic/6774223/2025/11/03/blackhawks-oliver-moore-called-up-nhl-prospect/
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000010498770/are-ai-companions-dangerous-t
 **Joey Barton's social media posts 'beyond what is tolerable in society', court hears**\
 `Barton's posts about about pundits Eni Aluko and Lucy Ward, and broadcaster Jeremy Vine, are the subject of a trial taking place this week.`\
 https://nytimes.com/athletic/6774285/2025/11/03/joey-barton-social-media-court/
-
-**Trump’s ‘Great Gatsby’ Party Did Not Accept SNAP**\
-`It’s the roaring 2020s!`\
-https://nytimes.com/2025/11/03/opinion/trumps-great-gatsby-party-did-not-accept-snap.html
 

@@ -1,3 +1,7 @@
+**Alexander-Arnold 'available' for Madrid-Liverpool, Alonso says**\
+`The 27-year-old made 354 appearances for his boyhood club but is not expected to start as they travel to Anfield on Tuesday. `\
+https://nytimes.com/athletic/6774377/2025/11/03/alexander-arnold-real-madrid-liverpool-available-alonso/
+
 **Why the Blackhawks recalled first-round pick Oliver Moore sooner than expected**\
 `The Blackhawks called up Moore, a speedy, 20-year-old forward, on Monday.`\
 https://nytimes.com/athletic/6774223/2025/11/03/blackhawks-oliver-moore-called-up-nhl-prospect/
