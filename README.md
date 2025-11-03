@@ -1,3 +1,7 @@
+**Jon Stewart Signs Extension for ‘Daily Show’ Through 2026**\
+`Mr. Stewart’s contract was set to expire in December, though he expressed publicly last month that he wanted to keep hosting the show.`\
+https://nytimes.com/2025/11/03/business/media/jon-stewart-daily-show-extension.html
+
 **Three Places to Get Thai Food That’s Anything but Tired**\
 `Thai restaurants are becoming sleeker and spendier. Their chefs are spotlighting regional foods and serving them in extravagant settings you wouldn’t believe or throwing the rules out altogether. Here are three new spots worth checking out.`\
 https://nytimes.com/video/dining/100000010498906/three-places-to-get-thai-food-thats-anything-but-tired.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6774267/2025/11/03/chiefs-josh-simmons-rejoins-team
 **Bengals mailbag: Submit your questions to beat writer Paul Dehner Jr.**\
 `What's on your mind as the Bengals head into their bye week at 3-6?`\
 https://nytimes.com/athletic/6774316/2025/11/03/bengals-mailbag-request-paul-dehner/
-
-**Red Wings questions? Submit them here for Max Bultman's mailbag**\
-`Send in your Red Wings questions, and Max Bultman may answer them in an upcoming mailbag.`\
-https://nytimes.com/athletic/6773982/2025/11/03/red-wings-question-submissions-max-bultman/
 
