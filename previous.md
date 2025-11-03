@@ -1,3 +1,15 @@
+**10-Minute Challenge: A Vase of Flowers**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2025/11/02/upshot/ten-minute-challenge-flowers.html
+
+**Penix, Morris believe Patriots simulated snap count on crucial play**\
+`The television replay didn't appear to show the Patriots' front seven clapping.`\
+https://nytimes.com/athletic/6771991/2025/11/02/penix-morris-believe-patriots-simulated-snap-count-on-crucial-play/
+
+**Another week, another way to lose as Falcons fall to Patriots**\
+`Atlanta dropped its third straight overall and eighth straight to New England on Sunday, missing a late PAT and losing 24-23.`\
+https://nytimes.com/athletic/6771824/2025/11/02/falcons-patriots-loss-parker-romo-week-9/
+
 **49ers can't get too high despite handling Giants, as injury strikes yet again**\
 `A bad opponent and another — potentially — bad injury assure that the 49ers won't get overconfident after Sunday's win in New York.`\
 https://nytimes.com/athletic/6771846/2025/11/02/49ers-giants-win-injury-mykel-williams/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/02/obituaries/martha-layne-collins-dead.html
 **As Patriots top Falcons to move to 7-2, it's time to make a trade before the deadline**\
 `The Patriots eked out a win against the visiting Falcons, but there are areas that need to be improved. Why not go all in with a trade?`\
 https://nytimes.com/athletic/6771815/2025/11/02/patriots-falcons-nfl-trade-deadline/
-
-**Thousands Celebrate the 54th New York City Marathon**\
-`Starting in Staten Island and winding through all five boroughs, the 26.2-mile race brought fans out in the thousands to cheer for professional and first-time marathon runners.`\
-https://nytimes.com/video/us/100000010496916/new-york-city-marathon.html
-
-**How Tucker Kraft's significant knee injury hurts the Packers, and what's next**\
-`Kraft, one of the NFL's best tight ends and one of the Packers' most important players, will likely be out an extended period of time.`\
-https://nytimes.com/athletic/6771834/2025/11/02/tucker-kraft-knee-injury-packers/
-
-**Knicks wing Josh Hart says hand injury is nerve-related, affects fingers**\
-`The affliction affects the fourth finger the most, but feeling is also going in and out of his middle and pinky fingers, Hart said.`\
-https://nytimes.com/athletic/6771854/2025/11/02/josh-hart-knicks-hand-nerve-injury/
 

@@ -1,3 +1,15 @@
+**10-Minute Challenge: A Vase of Flowers**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2025/11/02/upshot/ten-minute-challenge-flowers.html
+
+**Penix, Morris believe Patriots simulated snap count on crucial play**\
+`The television replay didn't appear to show the Patriots' front seven clapping.`\
+https://nytimes.com/athletic/6771991/2025/11/02/penix-morris-believe-patriots-simulated-snap-count-on-crucial-play/
+
+**Another week, another way to lose as Falcons fall to Patriots**\
+`Atlanta dropped its third straight overall and eighth straight to New England on Sunday, missing a late PAT and losing 24-23.`\
+https://nytimes.com/athletic/6771824/2025/11/02/falcons-patriots-loss-parker-romo-week-9/
+
 **49ers can't get too high despite handling Giants, as injury strikes yet again**\
 `A bad opponent and another — potentially — bad injury assure that the 49ers won't get overconfident after Sunday's win in New York.`\
 https://nytimes.com/athletic/6771846/2025/11/02/49ers-giants-win-injury-mykel-williams/
