@@ -1,3 +1,11 @@
+**La Scala Honors Shostakovich with a New Vision of his Original ‘Lady Macbeth’**\
+`Banned for decades in the Soviet Union for its dissonance and bawdiness, the opera returns as La Scala’s season opener amid the 50th anniversary of Shostakovich’s death.`\
+https://nytimes.com/2025/11/03/arts/la-scala-shostakovich-lady-macbeth.html
+
+**Meet the Billionaire Trying to Save College Football From Itself**\
+`Cody Campbell, an oilman, has spent millions paying students to play football at Texas Tech. Now he worries that people like him are ruining college sports.`\
+https://nytimes.com/2025/11/03/business/college-football-cody-campbell-texas-tech.html
+
 **A Creator of Enigmas Tackles Debussy’s Operatic Masterpiece**\
 `The Italian director Romeo Castellucci, known for his avant-garde theater productions, will take on Debussy’s “Pelléas et Mélisande” in his La Scala debut.`\
 https://nytimes.com/2025/11/03/arts/castellucci-debussy-lascala-opera.html
