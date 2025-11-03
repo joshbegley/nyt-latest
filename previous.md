@@ -1,6 +1,16 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>We spent the first two months of the season paring the list of coaches. Now it&#8217;s time to start narrowing down the CFP field.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6772749/2025/11/03/submit-a-question-for-stewart-mandels-college-football-mailbag-321/
+
 **Are there 'signs of life' for Celtic, Rangers and Scottish football after their cup clash?**\
 `It's been a terrible season for the Old Firm – and Scottish football in general – but did the Scottish Cup semi-final show all is not lost?`\
 https://nytimes.com/athletic/6771495/2025/11/03/celtic-rangers-scottish-league-cup-result/
+
+**How Manchester City fed Erling Haaland by embracing chaos**\
+`Bournemouth are disruptors. Pep Guardiola's solution was simple: he used their manufactured chaos against them to unleash Haaland`\
+https://nytimes.com/athletic/6770944/2025/11/03/erling-haaland-man-city-chaos/
 
 **The saga of Mary Earps and Hannah Hampton proves our heroes are human**\
 `An extract of Mary Earps’ new autobiography was published at the weekend and there's a temptation to reach for the big, obvious take`\
@@ -29,12 +39,4 @@ https://nytimes.com/athletic/6771127/2025/11/03/players-clap-fans-spurs-wolves/
 **The BookKeeper: Exploring the dizzying world of Barcelona's finances, levers and debts**\
 `Step inside the fascinating story of Barcelona's money problems, told like never before in the latest edition of The BookKeeper`\
 https://nytimes.com/athletic/6754098/2025/11/03/barcelona-finances-analysis-laporta-camp-nou/
-
-**Caicedo vs Rice – Is Chelsea's midfielder the 'best on the planet' in his position?**\
-`Moises Caicedo and Declan Rice were signed for big money but have proven their worth for both Chelsea and Arsenal respectively`\
-https://nytimes.com/athletic/6769598/2025/11/03/moises-caicedo-declan-rice-vote/
-
-**The day West Ham woke up: Could we see another Nunolution?**\
-`The struggling London club put in their best display of the season against Newcastle and will be hoping it's a sign of things to come`\
-https://nytimes.com/athletic/6770627/2025/11/03/west-ham-nuno-premier-league-win/
 

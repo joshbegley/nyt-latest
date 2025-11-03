@@ -1,3 +1,13 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>We spent the first two months of the season paring the list of coaches. Now it&#8217;s time to start narrowing down the CFP field.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6772749/2025/11/03/submit-a-question-for-stewart-mandels-college-football-mailbag-321/
+
+**How Manchester City fed Erling Haaland by embracing chaos**\
+`Bournemouth are disruptors. Pep Guardiola's solution was simple: he used their manufactured chaos against them to unleash Haaland`\
+https://nytimes.com/athletic/6770944/2025/11/03/erling-haaland-man-city-chaos/
+
 **Are there 'signs of life' for Celtic, Rangers and Scottish football after their cup clash?**\
 `It's been a terrible season for the Old Firm – and Scottish football in general – but did the Scottish Cup semi-final show all is not lost?`\
 https://nytimes.com/athletic/6771495/2025/11/03/celtic-rangers-scottish-league-cup-result/
