@@ -1,3 +1,11 @@
+**How to watch Raiders vs. Broncos: Time, TV, streaming**\
+`Find out how to watch the Las Vegas Raiders play the Denver Broncos, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6773010/2025/11/03/raiders-vs-broncos-stream-how-to-watch-nov-6/
+
+**Cowboys 'extensively working' on potential trades, but will they make one?**\
+`The Cowboys play the Cardinals tonight in front of the trade deadline Tuesday. Will Dallas make a play for an edge rusher?`\
+https://nytimes.com/athletic/6771168/2025/11/03/cowboys-trade-deadline-maxx-crosby-mnf/
+
 **What the IBX Rail Project Could Mean for Brooklyn and Queens**\
 `The proposed light rail would be the biggest expansion of the city’s transit system since the GG line was created almost 90 years ago.`\
 https://nytimes.com/2025/11/03/nyregion/ibx-rail-brooklyn-queens.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/03/dining/martha-stewart-entertaining-dinner-parties
 **$2 Million Homes in California**\
 `A midcentury modern in Palm Desert, a home perched over the Pacific in Jenner and a ranch house in Los Angeles.`\
 https://nytimes.com/2025/11/03/realestate/2-million-dollar-homes-palm-desert-sonoma-los-angeles.html
-
-**The Nationwide Battle Over Electoral Maps**\
-`What began with Texas drawing what could be five new Republican districts in the House of Representatives at President Trump’s behest has spiraled into a nationwide redistricting race. Nick Corasaniti, a New York Times reporter covering national politics, gives an overview.`\
-https://nytimes.com/video/us/elections/100000010489716/the-nationwide-battle-over-electoral-maps.html
-
-**Supreme Court Confronts Trump and His Tariffs in Test of Presidential Power**\
-`The justices face so-called legitimacy dilemma as they deal with a tricky legal dispute and a president who has made clear he would view defeat as a personal insult.`\
-https://nytimes.com/2025/11/03/us/politics/supreme-court-trump-tariffs.html
 
