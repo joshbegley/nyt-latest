@@ -1,3 +1,11 @@
+**The Netherlands Will Return Looted Pharoah-Era Artifact to Egypt**\
+`The 3,500-year-old artifact, likely stolen from Egypt during the Arab Spring in 2011 or 2012, was found at an elite European art fair in Maastricht.`\
+https://nytimes.com/2025/11/03/world/europe/ancient-egypt-sculpture-return-netherlands.html
+
+**NFL Week 10 odds, spreads: Who is in for a divisional trap game?**\
+`Several divisional matchups in Week 10 could pose traps for the NFL's favored teams.`\
+https://nytimes.com/athletic/6773567/2025/11/03/nfl-week-10-odds-spreads-packers-favored-over-eagles-and-several-potential-trap-games/
+
 **Arsenal-Palace Carabao Cup quarter-final set for December 23**\
 `The scheduling of the game means both sides will have only one day's rest following Premier League action on December 21.`\
 https://nytimes.com/athletic/6763276/2025/11/03/crystal-palace-arsenal-carabao-cup-when/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/03/well/move/knee-osteoarthritis-exercise-advice.htm
 **Trial Begins for Man Accused of Lobbing a Sandwich at a Federal Agent**\
 `Jury selection started on Monday for Sean C. Dunn, who was charged with misdemeanor assault after hitting a federal agent with a “sub-style sandwich.”`\
 https://nytimes.com/2025/11/03/us/politics/dc-sandwich-guy-trial.html
-
-**Walking a Few Thousand Steps a Day May Reduce Alzheimer’s Risk**\
-`A new study suggests that exercise can be particularly beneficial for older people at a higher risk for the disease.`\
-https://nytimes.com/2025/11/03/well/mind/dementia-steps-study.html
-
-**The Bounce: Things are getting tense in Memphis and New Orleans**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6773513/2025/11/03/ja-morant-grizzlies-zion-williamson-pelicans-the-bounce/
 
