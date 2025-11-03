@@ -1,3 +1,11 @@
+**New Yorkers came out en masse to vote early.**\
+`By Matthew Haag`\
+https://nytimes.com/live/2025/11/03/nyregion/nyc-mayor-election-news/new-yorkers-came-out-en-masse-to-vote-early
+
+**Capitals' Pierre-Luc Dubois out for 'extended period of time' with injury**\
+`Dubois has yet to record a point in six games this season.`\
+https://nytimes.com/athletic/6774041/2025/11/03/pierre-luc-dubois-injury-capitals/
+
 **Trump Says He Doesn’t Know Crypto Billionaire He Pardoned**\
 `Changpeng Zhao had admitted to violations that allowed criminals to move money on the cryptocurrency exchange he founded, which struck a lucrative deal involving the Trump family’s own crypto enterprise.`\
 https://nytimes.com/2025/11/03/us/politics/trump-60-minutes-interview-binance-cz-pardon.html

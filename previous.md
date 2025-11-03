@@ -1,3 +1,11 @@
+**New Yorkers came out en masse to vote early.**\
+`By Matthew Haag`\
+https://nytimes.com/live/2025/11/03/nyregion/nyc-mayor-election-news/new-yorkers-came-out-en-masse-to-vote-early
+
+**Capitals' Pierre-Luc Dubois out for 'extended period of time' with injury**\
+`Dubois has yet to record a point in six games this season.`\
+https://nytimes.com/athletic/6774041/2025/11/03/pierre-luc-dubois-injury-capitals/
+
 **Trump Says He Doesn’t Know Crypto Billionaire He Pardoned**\
 `Changpeng Zhao had admitted to violations that allowed criminals to move money on the cryptocurrency exchange he founded, which struck a lucrative deal involving the Trump family’s own crypto enterprise.`\
 https://nytimes.com/2025/11/03/us/politics/trump-60-minutes-interview-binance-cz-pardon.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6774026/2025/11/03/north-dakota-vs-alabama-stream-h
 **How to watch Green Bay vs. Kansas: Time, TV, streaming**\
 `Find out how to watch the Green Bay Phoenix play the Kansas Jayhawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6774018/2025/11/03/green-bay-vs-kansas-stream-how-to-watch-nov-3/
-
-**How to watch Bethune-Cookman vs. Auburn: Time, TV, streaming**\
-`Find out how to watch the Bethune-Cookman Wildcats play the Auburn Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6774022/2025/11/03/bethune-cookman-vs-auburn-stream-how-to-watch-nov-3/
-
-**How to watch Fairleigh Dickinson vs. Iowa State: Time, TV, streaming**\
-`Find out how to watch the Fairleigh Dickinson Knights play the Iowa State Cyclones, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6774024/2025/11/03/fairleigh-dickinson-vs-iowa-state-stream-how-to-watch-nov-3/
 
