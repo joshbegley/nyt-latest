@@ -1,3 +1,7 @@
+**What Is the Human Cost of Haute Couture?**\
+`“Lacrima,” a play from the French playwright and director Caroline Guiela Nguyen, explores the hidden stories woven into luxury fashion.`\
+https://nytimes.com/2025/11/03/style/lacrima-bam-nyc-play-caroline-guiela-nguyen.html
+
 **Trump’s ‘Forever Shutdown’**\
 `The president seems to think “the shutdown gives him more power,” Jamelle Bouie says at the round table on “The Opinions” with Michelle Cottle and David French. But what Trump doesn’t seem to understand, he argues, are the practical implications of keeping this going.`\
 https://nytimes.com/video/opinion/100000010491338/trumps-forever-shutdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6773771/2025/11/03/cam-little-nfl-long-field-goals/
 **Mamdani’s Stance on Gaza Drew Pro-Palestinian Activists to His Campaign**\
 `The campaign became “a funnel for all this dispersed energy and passion,” said one volunteer, who had been an active campus protester.`\
 https://nytimes.com/2025/11/03/nyregion/mamdani-gaza.html
-
-**Diane Ladd, Versatile Film Actress, Is Dead at 89**\
-`She was a three-time Oscar contender playing strikingly different characters, in one case starring alongside her daughter and fellow nominee, Laura Dern.`\
-https://nytimes.com/2025/11/03/movies/diane-ladd-dead.html
 
