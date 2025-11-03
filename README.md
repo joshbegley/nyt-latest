@@ -1,3 +1,11 @@
+**A preview of The Athletic’s live coverage this week**\
+`Our live coverage this week includes the NFL trade deadline, Champions League action, Formula One and more`\
+https://nytimes.com/athletic/6770517/2025/11/03/live-coverage-weekly-schedule-3/
+
+**Word of the Day: protagonist**\
+`This word has appeared in 517 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/03/learning/word-of-the-day-protagonist.html
+
 **With ‘a Billion’ Eyes on Them, India’s Women Lift Cricket World Cup**\
 `A team that faced seemingly insurmountable odds wins its first championship, with wider ramifications for the role women play in public life.`\
 https://nytimes.com/2025/11/03/world/asia/india-women-cricket-world-cup.html
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6770944/2025/11/03/erling-haaland-man-city-chaos/
 **The saga of Mary Earps and Hannah Hampton proves our heroes are human**\
 `An extract of Mary Earps’ new autobiography was published at the weekend and there's a temptation to reach for the big, obvious take`\
 https://nytimes.com/athletic/6770329/2025/11/03/mary-earps-autobiography-reaction/
-
-**Newcastle's worst performance under Eddie Howe? It was pretty s*****\
-`A great opportunity for Newcastle United had become a great test. The results from the test are in: abject failure`\
-https://nytimes.com/athletic/6771133/2025/11/03/newcastle-howe-worst-performance/
-
-**Leeds barely laid a glove on Brighton. That's why this defeat was so alarming**\
-`For only the second time in 10 matches Leeds were outclassed. Picking up points in their next two fixtures is now of vital significance`\
-https://nytimes.com/athletic/6769500/2025/11/03/leeds-united-daniel-farke-brighton/
 
