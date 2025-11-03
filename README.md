@@ -1,9 +1,13 @@
+**Scunthorpe footballer among 11 victims of knife attack on UK train**\
+`In a statement, the club said Jonathan Gjoshe was currently in hospital with "non life-threatening injuries".`\
+https://nytimes.com/athletic/6773383/2025/11/03/scunthorpe-united-footballer-jonathan-gjoshe-among-11-victims-of-knife-attack-on-uk-train/
+
 **Mamdani Mocks Cuomo After Trump Offers His Backing**\
 `“I know how hard you worked for this,” Zohran Mamdani said on social media after his chief rival in the New York City mayor’s race, former Gov. Andrew M. Cuomo, received tepid support from President Trump.`\
 https://nytimes.com/2025/11/03/nyregion/trump-cuomo-endorsement-mamdani.html
 
 **OpenAI Signs $38 Billion Cloud Computing Deal With Amazon**\
-`After signing agreements to use computing power from Nvidia, AMD and Oracle, OpenAI is partnering with the world’s largest cloud computing company.`\
+`After signing agreements to use computing power from Nvidia, AMD and Oracle, OpenAI is teaming up with the world’s largest cloud computing company.`\
 https://nytimes.com/2025/11/03/technology/openai-amazon-cloud-computing.html
 
 **Ford Foundation’s New Leader Vows to Protect Elections and the Rule of Law**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6772724/2025/11/03/raiders-jaguars-loss-pete-carrol
 **The Economic and Legal Case Against Trump’s Tariffs**\
 `A key part of the president’s trade policy faces scrutiny by the Supreme Court this week, with huge implications for business.`\
 https://nytimes.com/2025/11/03/business/dealbook/trump-tariffs-supreme-court.html
-
-**The Pulse: Who’s in and out at NFL’s halfway mark**\
-`Welcome to The Pulse, The Athletic's daily newsletter.`\
-https://nytimes.com/athletic/6772865/2025/11/03/nfl-playoff-picture-week-9-the-pulse/
 
