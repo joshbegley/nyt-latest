@@ -1,3 +1,11 @@
+**Bengals mailbag: Submit your questions to beat writer Paul Dehner Jr.**\
+`What's on your mind as the Bengals head into their bye week at 3-6?`\
+https://nytimes.com/athletic/6774316/2025/11/03/bengals-mailbag-request-paul-dehner/
+
+**Red Wings questions? Submit them here for Max Bultman's mailbag**\
+`Send in your Red Wings questions, and Max Bultman may answer them in an upcoming mailbag.`\
+https://nytimes.com/athletic/6773982/2025/11/03/red-wings-question-submissions-max-bultman/
+
 **Food Aid Program for Low-Income Women and Children Gets More Temporary Funding**\
 `An injection of $450 million for WIC comes as the Trump administration announced it would only fund partial benefits for another food aid program, the Supplemental Nutrition Assistance Program, or SNAP, for November.`\
 https://nytimes.com/2025/11/03/us/politics/wic-snap-food-aid.html
