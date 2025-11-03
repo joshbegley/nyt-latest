@@ -1,3 +1,19 @@
+**49ers can't get too high despite handling Giants, as injury strikes yet again**\
+`A bad opponent and another — potentially — bad injury assure that the 49ers won't get overconfident after Sunday's win in New York.`\
+https://nytimes.com/athletic/6771846/2025/11/02/49ers-giants-win-injury-mykel-williams/
+
+**Josh Allen, Bills beat Chiefs for 5th straight time in regular season: Takeaways**\
+`Alen ran for two touchdowns and passed for another and the Buffalo defense denied a Patrick Mahomes Hail Mary pass attempt to win 28-21.`\
+https://nytimes.com/athletic/6771855/2025/11/02/bills-josh-allen-score-result-takeaways-week-9-nfl/
+
+**As Giants bottom out with loss to 49ers, there's little hope of turnaround with this regime**\
+`The Giants allowed a severely depleted 49ers team come in and get a commanding win.`\
+https://nytimes.com/athletic/6771877/2025/11/02/giants-jaxson-dart-brian-daboll-loss-49ers/
+
+**Winning ugly? Why Broncos' win in Houston showcases traits of a real contender**\
+`The Broncos proved again they are the NFL's best fourth-quarter team, the biggest reason to believe they can vie for a championship.`\
+https://nytimes.com/athletic/6771861/2025/11/02/broncos-beat-texans-bo-nix-sean-payton/
+
 **Winning ugly? Why Broncos' win in Houston showcased traits of a real contender**\
 `The Broncos proved again they are the NFL's best fourth-quarter team, the biggest reason to believe they can vie for a championship.`\
 https://nytimes.com/athletic/6771861/2025/11/02/broncos-beat-texans-bo-nix-sean-payton/
