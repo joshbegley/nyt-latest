@@ -1,3 +1,11 @@
+**What’s Going to Happen With the A.I. Mental Health Crisis?**\
+`The “Hard Fork” hosts Kevin Roose and Casey Newton talk about major developments in the world of chatbots, safety and mental health.`\
+https://nytimes.com/video/podcasts/100000010499733/whats-going-to-happen-with-the-ai-mental-health-crisis.html
+
+**When Chuseok Means a Full Moon and Handmade Rice Cakes**\
+`Leaders and supporters of Gyopo, a Los Angeles arts and culture organization, honored the holiday, also known as Korean Thanksgiving, with a joyous feast.`\
+https://nytimes.com/2025/11/03/t-magazine/when-chuseok-means-a-full-moon-and-handmade-rice-cakes.html
+
 **A Big Moment for Women in India**\
 `My colleague Mujib Mashal writes about how a huge victory on the cricket ground could change the lives of women and girls.`\
 https://nytimes.com/2025/11/03/world/cricket-women-india-new-york-zohran-mamdani-bangkok.html
