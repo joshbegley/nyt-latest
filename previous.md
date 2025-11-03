@@ -1,3 +1,15 @@
+**A Sea of Blue and White in Downtown L.A.**\
+`Tens of thousands of Dodger fans attended a parade and rally on Monday, a joyful moment celebrating the team’s World Series win in what has been a turbulent year for Los Angeles.`\
+https://nytimes.com/2025/11/03/us/los-angeles-dodgers-parade.html
+
+**An Altercation With ICE Prompts a Police Chief to Push Back**\
+`At the Durango, Colo., police chief’s request, Colorado law enforcement will investigate whether a federal agent broke the law when he appeared to put a protester in a chokehold.`\
+https://nytimes.com/2025/11/03/us/politics/durango-colorado-ice-protester.html
+
+**The Trump Administration Plans to Offer Only Partial Food Stamp Benefits**\
+`Also, Election Day is tomorrow for millions of Americans. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/11/03/briefing/food-stamps-tylenol-maker-margaret-atwood.html
+
 **How the Democratic Party Can Beat Trumpism**\
 `The Democratic Party does not need to choose to be one thing. It needs to choose to be more things.`\
 https://nytimes.com/video/opinion/100000010495235/how-the-democratic-party-can-beat-trumpism.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6774872/2025/11/03/jayden-daniels-dislocated-elbow-
 **Watch: How the NFL salary cap impacts teams at the trade deadline**\
 `NFL teams must remain salary-cap compliant at all times during the season, even when wheeling and dealing at the trade deadline.`\
 https://nytimes.com/athletic/6774630/2025/11/03/nfl-salary-cap-trade-deadline-video/
-
-**Victor Conte, founder of Balco lab at center of Barry Bonds steroid scandal, dies at 75**\
-`Conte organized PED distribution ring for professional athletes in the early 2000s.`\
-https://nytimes.com/athletic/6774631/2025/11/03/victor-conte-balco-barry-bonds-steroids-dies/
-
-**Mail-In Ballots Solidify Narrow Win for Dutch Centrist Party**\
-`The center-left D66 party edged the far-right party of Geert Wilders in the popular vote, giving it the first crack at forming a new government.`\
-https://nytimes.com/2025/11/03/world/europe/netherlands-elections-d66-wilders.html
-
-**After Cam Little's record 68-yard field goal, the 70-yard barrier seems likely to fall next**\
-`Thanks to rule changes and advanced training methods, NFL kickers are converting long field goals at record rates.`\
-https://nytimes.com/athletic/6773771/2025/11/03/cam-little-nfl-long-field-goals/
 

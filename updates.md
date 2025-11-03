@@ -1,3 +1,15 @@
+**A Sea of Blue and White in Downtown L.A.**\
+`Tens of thousands of Dodger fans attended a parade and rally on Monday, a joyful moment celebrating the team’s World Series win in what has been a turbulent year for Los Angeles.`\
+https://nytimes.com/2025/11/03/us/los-angeles-dodgers-parade.html
+
+**An Altercation With ICE Prompts a Police Chief to Push Back**\
+`At the Durango, Colo., police chief’s request, Colorado law enforcement will investigate whether a federal agent broke the law when he appeared to put a protester in a chokehold.`\
+https://nytimes.com/2025/11/03/us/politics/durango-colorado-ice-protester.html
+
+**The Trump Administration Plans to Offer Only Partial Food Stamp Benefits**\
+`Also, Election Day is tomorrow for millions of Americans. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/11/03/briefing/food-stamps-tylenol-maker-margaret-atwood.html
+
 **'I missed it': Commanders' Dan Quinn takes responsibility for Jayden Daniels injury**\
 `In more bad news, cornerback Marshon Lattimore (ACL) and returner Luke McCaffrey (broken collarbone) will miss the rest of the season.`\
 https://nytimes.com/athletic/6774872/2025/11/03/jayden-daniels-dislocated-elbow-dan-quinn/
