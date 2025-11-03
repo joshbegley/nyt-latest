@@ -1,3 +1,11 @@
+**Review: Ratmansky’s Astonishing ‘Fugue’ Finds a Home in Denmark**\
+`Dedicated to Ukraine, Alexei Ratmansky’s evening-length ballet “The Art of the Fugue” is both dispassionately unsentimental and profoundly moving.`\
+https://nytimes.com/2025/11/03/arts/dance/review-alexei-ratmansky-royal-danish-ballet-art-of-the-fugue.html
+
+**Canada to welcome England-born CB Jones, remains in talks with Mexico's Flores**\
+`Jesse Marsch continues to work the dual-national circuit as he crafts Canada's 2026 World Cup roster`\
+https://nytimes.com/athletic/6774722/2025/11/03/alfie-jones-canada-england-middlesbrough-marcelo-flores/
+
 **The Best Movies and TV Shows Coming to Netflix in November**\
 `The newest horror film from Guillermo del Toro and the final season of “Stranger Things” are among the highlights for U.S. subscribers.`\
 https://nytimes.com/2025/11/03/arts/television/netflix-new-best-november.html

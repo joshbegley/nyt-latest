@@ -1,3 +1,11 @@
+**Review: Ratmansky’s Astonishing ‘Fugue’ Finds a Home in Denmark**\
+`Dedicated to Ukraine, Alexei Ratmansky’s evening-length ballet “The Art of the Fugue” is both dispassionately unsentimental and profoundly moving.`\
+https://nytimes.com/2025/11/03/arts/dance/review-alexei-ratmansky-royal-danish-ballet-art-of-the-fugue.html
+
+**Canada to welcome England-born CB Jones, remains in talks with Mexico's Flores**\
+`Jesse Marsch continues to work the dual-national circuit as he crafts Canada's 2026 World Cup roster`\
+https://nytimes.com/athletic/6774722/2025/11/03/alfie-jones-canada-england-middlesbrough-marcelo-flores/
+
 **The Best Movies and TV Shows Coming to Netflix in November**\
 `The newest horror film from Guillermo del Toro and the final season of “Stranger Things” are among the highlights for U.S. subscribers.`\
 https://nytimes.com/2025/11/03/arts/television/netflix-new-best-november.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6774633/2025/11/03/bears-dayo-odeyingbo-achilles-in
 **How Bernie Sanders Sees Things**\
 `Bernie Sanders has been on a country-wide tour called Fighting Oligarchy. In this episode of “The Opinions” with David Leonhardt, he explains why that’s so important right now and reveals what question he wishes more reporters would ask him.`\
 https://nytimes.com/video/opinion/100000010489809/how-bernie-sanders-sees-things.html
-
-**Bernie Sanders: Democrats Are ‘Way Out of Touch’**\
-`In this episode of “The Opinions,” Senator Bernie Sanders tells David Leonhardt that the party and its leadership need to make big changes to start winning election.`\
-https://nytimes.com/video/opinion/100000010489789/bernie-sanders-democrats-are-way-out-of-touch.html
-
-**Dillon Dingler won a Gold Glove in his first full MLB season. Is this just the start?**\
-`Dingler has realized his potential and just bested Alejandro Kirk and Carlos Narváez for an AL Gold Glove Award.`\
-https://nytimes.com/athletic/6774433/2025/11/03/dillon-dingler-wins-gold-glove-tigers/
 
