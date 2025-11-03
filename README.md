@@ -1,4 +1,8 @@
-**Wolves in talks over O'Neil reunion but ten Hag among club's other options**\
+**Inside Barcelona: Injuries, a friendly in Peru and are they finally returning to the Camp Nou?**\
+`Could Barca really play a friendly in Peru over the winter break? And what are their hopes for an open training session at the Camp Nou?`\
+https://nytimes.com/athletic/6773045/2025/11/03/inside-barcelona-camp-nou-peru-friendly/
+
+**Wolves in talks over O'Neil reunion, Ten Hag among club's other options**\
 `Wolves are exploring a reunion with O'Neil in parallel to other options, with no decision on Vitor Pereira's successor expected this week.`\
 https://nytimes.com/athletic/6770826/2025/11/03/wolves-gary-oneil-erik-ten-hag-manager/
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/11/03/nyregion/nyc-mayor-election-news/heres-the-l
 **N.Y.C. Mayor’s Race Live Updates: Candidates Make Final Push Before Election Day**\
 `Early voting ended Sunday, with more than 735,000 ballots cast. Polls are closed Monday but will reopen on Tuesday from 6 a.m. to 9 p.m.`\
 https://nytimes.com/live/2025/11/03/nyregion/nyc-mayor-election-news
-
-**Women's college basketball tips off with Duke-Baylor, Cal-Vanderbilt doubleheader in Paris**\
-`The women's college basketball season starts Monday, with a highly anticipated doubleheader in Paris. Here's how to watch both games.`\
-https://nytimes.com/athletic/6767762/2025/11/03/womens-college-basketball-duke-baylor-cal-vanderbilt-paris/
 
