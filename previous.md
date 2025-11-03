@@ -1,3 +1,11 @@
+**N.Y.C. Early Voting Ends With 735,000 Ballots Cast, as Younger Voters Surge**\
+`This year’s mayoral race saw the highest early in-person turnout for a nonpresidential election in New York.`\
+https://nytimes.com/2025/11/02/nyregion/nyc-mayor-early-voting.html
+
+**Bengals offense's frustration boils. Where's the fire from a historically bad defense?**\
+`Joe Flacco and Cincinnati's high-powered offense did their part vs. the Bears, but another defensive collapse let it go to waste again.`\
+https://nytimes.com/athletic/6772209/2025/11/02/bengals-bad-defense-bears-zac-taylor/
+
 **'Madness': Inside the Bears' mind-blowing, roller-coaster victory in Cincinnati**\
 `The zaniness began with the opening kickoff and peaked with an improbable final touchdown in one of the wildest Bears wins in recent memory.`\
 https://nytimes.com/athletic/6771990/2025/11/02/bears-wild-finish-bengals/
@@ -27,14 +35,6 @@ https://nytimes.com/athletic/6772022/2025/11/02/giants-49ers-jaxson-dart/
 https://nytimes.com/athletic/6771999/2025/11/02/panthers-beat-packers-rico-dowdle/
 
 **Large Earthquake Strikes Northern Afghanistan**\
-`The quake struck on Monday near Mazar-i-Sharif, a city known for its magnificent Blue Mosque. The extent of the damage was not immediately clear.`\
+`The 6.3-magnitude quake struck on Monday near Mazar-i-Sharif, a city known for its magnificent Blue Mosque. The extent of the damage was not immediately clear.`\
 https://nytimes.com/2025/11/02/world/asia/afghanistan-earthquake-blue-mosque.html
-
-**Shai Gilgeous-Alexander ties Oscar Robertson streak of 20-point games**\
-`In just under a calendar year, Gilgeous-Alexander has gone from a well-recognized bucket to one of the most distinctive scorers ever.`\
-https://nytimes.com/athletic/6771963/2025/11/02/shai-gilgeous-alexander-oscar-robertson-wilt-chamberlain-20-points-nba/
-
-**Bills outlast Patrick Mahomes, snap Chiefs' winning streak in key AFC battle: Takeaways**\
-`Mahomes endured his toughest outing of the season as the Bills overpowered the Chiefs 28-21.`\
-https://nytimes.com/athletic/6771866/2025/11/02/chiefs-patrick-mahomes-score-result-takeaways-week-9-nfl/
 
