@@ -1,3 +1,15 @@
+**OpenAI Signs $38 Billion Cloud Computing Deal With Amazon**\
+`After signing agreements to use computing power from Nvidia, AMD and Oracle, OpenAI is partnering with the world’s largest cloud computing company.`\
+https://nytimes.com/2025/11/03/technology/openai-amazon-cloud-computing.html
+
+**Ford Foundation’s New Leader Vows to Protect Elections and the Rule of Law**\
+`Heather K. Gerken, a voting rights scholar and former dean of Yale Law School, plans to intensify its emphasis on democracy as it girds for attacks from the Trump administration.`\
+https://nytimes.com/2025/11/03/us/politics/ford-foundation-heather-gerken-trump.html
+
+**Medieval Tower Partly Collapses in Rome**\
+`The Torre dei Conti, a 13th-century medieval tower near Rome’s Colosseum, partially collapsed on Monday. Two restoration workers had to be rescued, and a third suffered critical injuries.`\
+https://nytimes.com/video/world/europe/100000010498672/torre-dei-conti-collapse-rome.html
+
 **Now is Cavaliers' time to experiment. They know there's plenty of gas in the tank**\
 `It's not 15-0, but Cavs are using early part of the season to get comfortable in the uncomfortable — such as playing through Evan Mobley.`\
 https://nytimes.com/athletic/6772701/2025/11/03/cavaliers-hawks-early-season-experiments/
