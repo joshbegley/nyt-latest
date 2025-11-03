@@ -1,3 +1,11 @@
+**The Netherlands Will Return Looted Pharoah-Era Artifact to Egypt**\
+`The 3,500-year-old artifact, likely stolen from Egypt during the Arab Spring in 2011 or 2012, was found at an elite European art fair in Maastricht.`\
+https://nytimes.com/2025/11/03/world/europe/ancient-egypt-sculpture-return-netherlands.html
+
+**NFL Week 10 odds, spreads: Who is in for a divisional trap game?**\
+`Several divisional matchups in Week 10 could pose traps for the NFL's favored teams.`\
+https://nytimes.com/athletic/6773567/2025/11/03/nfl-week-10-odds-spreads-packers-favored-over-eagles-and-several-potential-trap-games/
+
 **Arsenal-Palace Carabao Cup quarter-final set for December 23**\
 `The scheduling of the game means both sides will have only one day's rest following Premier League action on December 21.`\
 https://nytimes.com/athletic/6763276/2025/11/03/crystal-palace-arsenal-carabao-cup-when/
