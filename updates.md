@@ -1,3 +1,7 @@
+**Jaguars-Raiders takeaways: Offensive explosion late in game leads to thrilling Jacksonville win**\
+`A record-long field goal "ignited" the Jaguars to a 30-29 overtime victory over the Raiders.`\
+https://nytimes.com/athletic/6772275/2025/11/02/jaguars-raiders-score-result-takeaways-week-9-nfl/
+
 **Dylan Harper suffered a left calf injury against Suns, leaves early**\
 `The San Antonio Spurs’ injury woes were exacerbated Sunday when Dylan Harper injured his left calf.`\
 https://nytimes.com/athletic/6772372/2025/11/02/dylan-harper-spurs-nba-injury/

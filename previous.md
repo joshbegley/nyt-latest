@@ -1,3 +1,7 @@
+**Jaguars-Raiders takeaways: Offensive explosion late in game leads to thrilling Jacksonville win**\
+`A record-long field goal "ignited" the Jaguars to a 30-29 overtime victory over the Raiders.`\
+https://nytimes.com/athletic/6772275/2025/11/02/jaguars-raiders-score-result-takeaways-week-9-nfl/
+
 **Dylan Harper suffered a left calf injury against Suns, leaves early**\
 `The San Antonio Spurs’ injury woes were exacerbated Sunday when Dylan Harper injured his left calf.`\
 https://nytimes.com/athletic/6772372/2025/11/02/dylan-harper-spurs-nba-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6772176/2025/11/02/kyle-larson-nascar-championship-
 **Blue Jackets overcome sluggish start, then fritter away late lead in loss to Islanders**\
 `The Blue Jackets managed to build a lead after a rough start but gave up two goals in the final 67 seconds.`\
 https://nytimes.com/athletic/6771986/2025/11/02/blue-jackets-islanders-merzlikins-coyle/
-
-**Steelers defense comes back to life in 'statement' win over powerful Colts**\
-`Pittsburgh snapped a two-game losing streak with a vintage performance.`\
-https://nytimes.com/athletic/6771904/2025/11/02/pittsburgh-steelers-defense-indianapolis-colts-victory/
 
