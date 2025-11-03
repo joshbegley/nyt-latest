@@ -1,3 +1,7 @@
+**Ravens GM Eric DeCosta loves to be aggressive at trade deadline. This year, he may need to**\
+`Making an addition or two ahead of this year's deadline feels far more like a necessity than a luxury for the 3-5 Ravens. `\
+https://nytimes.com/athletic/6770614/2025/11/03/ravens-eric-decosta-nfl-trade-deadline/
+
 **Inside Real Madrid: Vinicius Jr latest, Alexander-Arnold fitness, Alonso's Anfield veto**\
 `With a Champions League trip to Liverpool to come on Tuesday, here's the latest news and talking points at Real Madrid`\
 https://nytimes.com/athletic/6773029/2025/11/03/real-madrid-news-vinicius-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6772707/2025/11/03/detroit-red-wings-moritz-seider-
 **Bills defense shuts down Patrick Mahomes, Josh Allen's magnificent game and other observations**\
 `The Bills defense got aggressive in their approach to the Kansas City quarterback in Sunday's win.`\
 https://nytimes.com/athletic/6772662/2025/11/03/josh-allen-bills-defense-observations/
-
-**Bowl projections: Can UNC, Clemson, FSU and more reach the six-win mark?**\
-`Beyond the College Football Playoff race, there are some interesting developing stories in the push for bowl season.`\
-https://nytimes.com/athletic/6772389/2025/11/03/college-football-bowl-projections-matchups-week-10/
 

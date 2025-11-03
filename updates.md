@@ -1,3 +1,7 @@
+**Ravens GM Eric DeCosta loves to be aggressive at trade deadline. This year, he may need to**\
+`Making an addition or two ahead of this year's deadline feels far more like a necessity than a luxury for the 3-5 Ravens. `\
+https://nytimes.com/athletic/6770614/2025/11/03/ravens-eric-decosta-nfl-trade-deadline/
+
 **Inside Real Madrid: Vinicius Jr latest, Alexander-Arnold fitness, Alonso's Anfield veto**\
 `With a Champions League trip to Liverpool to come on Tuesday, here's the latest news and talking points at Real Madrid`\
 https://nytimes.com/athletic/6773029/2025/11/03/real-madrid-news-vinicius-champions-league/
