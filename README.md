@@ -1,3 +1,15 @@
+**Knee Arthritis? Exercise Can Help Manage the Pain.**\
+`This uncomfortable condition is increasingly common as you age. But it doesn’t mean you can’t work out.`\
+https://nytimes.com/2025/11/03/well/move/knee-osteoarthritis-exercise-advice.html
+
+**Trial Begins for Man Accused of Lobbing a Sandwich at a Federal Agent**\
+`Jury selection started on Monday for Sean C. Dunn, who was charged with misdemeanor assault after hitting a federal agent with a “sub-style sandwich.”`\
+https://nytimes.com/2025/11/03/us/politics/dc-sandwich-guy-trial.html
+
+**Walking a Few Thousand Steps a Day May Reduce Alzheimer’s Risk**\
+`A new study suggests that exercise can be particularly beneficial for older people at a higher risk for the disease.`\
+https://nytimes.com/2025/11/03/well/mind/dementia-steps-study.html
+
 **The Bounce: Things are getting tense in Memphis and New Orleans**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6773513/2025/11/03/ja-morant-grizzlies-zion-williamson-pelicans-the-bounce/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6773370/2025/11/03/nba-power-rankings-lakers-rocket
 **La Scala’s First ‘Ring’ in a Decade Passes the Wagnerian Flame**\
 `Two conductors — a mentor and a protégé, both trained as pianists — bring precision and lyricism to the first new staging of Wagner’s epic in a decade.`\
 https://nytimes.com/2025/11/03/arts/la-scala-wagner-ring-cycle.html
-
-**Southampton in talks to sign former midfielder Romeu**\
-`The midfielder originally joined the south-coast side in 2015 and has been without a club since leaving Barcelona this summer.`\
-https://nytimes.com/athletic/6773647/2025/11/03/oriol-romeu-southampton-transfer-barcelona/
-
-**Why I expect the Broncos to stand pat at the NFL trade deadline: Kosmider**\
-`Denver could explore additions at tight end or receiver, but Sean Payton insists the Broncos "like what we currently have" on the roster.`\
-https://nytimes.com/athletic/6773285/2025/11/03/denver-broncos-nfl-trade-deadline-payton/
-
-**Why you should target Drake London, Mark Andrews in fantasy football trades**\
-`KC Joyner looks at rest-of-season schedules to locate trade targets and players to ship out before their value plummets. `\
-https://nytimes.com/athletic/6773254/2025/11/03/fantasy-football-trade-targets-players-schedule/
 

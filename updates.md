@@ -1,3 +1,11 @@
+**The Bounce: Things are getting tense in Memphis and New Orleans**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6773513/2025/11/03/ja-morant-grizzlies-zion-williamson-pelicans-the-bounce/
+
+**‘Filling, Healthy and Inexpensive to Make’**\
+`My chickpea stew with orzo and mustard greens is a welcoming vehicle for whatever leafy greens you’ve got.`\
+https://nytimes.com/2025/11/03/dining/filling-healthy-and-inexpensive-to-make.html
+
 **La Scala Honors Shostakovich with a New Vision of his Original ‘Lady Macbeth’**\
 `Banned for decades in the Soviet Union for its dissonance and bawdiness, the opera returns as La Scala’s season opener amid the 50th anniversary of Shostakovich’s death.`\
 https://nytimes.com/2025/11/03/arts/la-scala-shostakovich-lady-macbeth.html

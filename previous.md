@@ -1,3 +1,11 @@
+**The Bounce: Things are getting tense in Memphis and New Orleans**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6773513/2025/11/03/ja-morant-grizzlies-zion-williamson-pelicans-the-bounce/
+
+**‘Filling, Healthy and Inexpensive to Make’**\
+`My chickpea stew with orzo and mustard greens is a welcoming vehicle for whatever leafy greens you’ve got.`\
+https://nytimes.com/2025/11/03/dining/filling-healthy-and-inexpensive-to-make.html
+
 **La Scala Honors Shostakovich with a New Vision of his Original ‘Lady Macbeth’**\
 `Banned for decades in the Soviet Union for its dissonance and bawdiness, the opera returns as La Scala’s season opener amid the 50th anniversary of Shostakovich’s death.`\
 https://nytimes.com/2025/11/03/arts/la-scala-shostakovich-lady-macbeth.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6773285/2025/11/03/denver-broncos-nfl-trade-deadlin
 **Why you should target Drake London, Mark Andrews in fantasy football trades**\
 `KC Joyner looks at rest-of-season schedules to locate trade targets and players to ship out before their value plummets. `\
 https://nytimes.com/athletic/6773254/2025/11/03/fantasy-football-trade-targets-players-schedule/
-
-**Adams' long-awaited goal and explaining the Richards row – USMNT Player Tracker**\
-`From the Premier League to Serie A and the Championship to the Scottish League Cup, here's how the U.S players fared in Europe this week`\
-https://nytimes.com/athletic/6773307/2025/11/03/usmnt-player-tracker-world-cup-premier-league-tyler-adams-chris-richards/
-
-**Has Gracie Mansion Ever Had a Democratic Socialist?**\
-`Zohran Mamdani’s opponents have portrayed his Democratic Socialists of America affiliation as unusual, but he is not the first New York politician — or would-be mayor — with ties to the group.`\
-https://nytimes.com/2025/11/03/nyregion/democratic-socialism-zohran-mamdani-city-hall-dinkins.html
 
