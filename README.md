@@ -1,3 +1,11 @@
+**Martha Layne Collins, 88, Dies; Kentucky’s First Female Governor**\
+`She rose from a junior high school teacher to the state’s top official, and helped persuade Toyota to build its first American factory in Georgetown, Ky.`\
+https://nytimes.com/2025/11/02/obituaries/martha-layne-collins-dead.html
+
+**As Patriots top Falcons to move to 7-2, it's time to make a trade before the deadline**\
+`The Patriots eked out a win against the visiting Falcons, but there are areas that need to be improved. Why not go all in with a trade?`\
+https://nytimes.com/athletic/6771815/2025/11/02/patriots-falcons-nfl-trade-deadline/
+
 **Thousands Celebrate the 54th New York City Marathon**\
 `Starting in Staten Island and winding through all five boroughs, the 26.2-mile race brought fans out in the thousands to cheer for professional and first-time marathon runners.`\
 https://nytimes.com/video/us/100000010496916/new-york-city-marathon.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6771730/2025/11/02/cam-little-jaguars-field-goal-68
 **Steelers fans hold funeral for defense, unit responds in dominant win**\
 `The defense funeral appears to have changed the mojo.`\
 https://nytimes.com/athletic/6771715/2025/11/02/steelers-fans-funeral-defense-colts/
-
-**Bears win back-and-forth thriller against Flacco and the Bengals**\
-`Caleb Williams' 58-yard touchdown pass to Colston Loveland with 17 seconds remaining sealed a wild win for the Bears.`\
-https://nytimes.com/athletic/6764211/2025/11/02/bears-bengals-score-result-takeaways-week-9-nfl/
-
-**Panthers-Packers takeaways: Rico Dowdle leads Carolina to upset**\
-`Running back rushed for 130 yards and two touchdowns, including a decisive 19-yard burst that set up the game-winning field goal.`\
-https://nytimes.com/athletic/6771502/2025/11/02/panthers-packers-score-result-takeaways-week-9-nfl/
 
