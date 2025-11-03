@@ -1,3 +1,11 @@
+**Thousands Celebrate the 54th New York City Marathon**\
+`Starting in Staten Island and winding through all five boroughs, the 26.2-mile race brought fans out in the thousands to cheer for professional and first-time marathon runners.`\
+https://nytimes.com/video/us/100000010496916/new-york-city-marathon.html
+
+**Joel Embiid's 'lewd gesture' against Celtics draws fine from NBA**\
+`The NBA has fined Philadelphia 76ers star center Joel Embiid $50,000 after his "DX Chop" on Friday.`\
+https://nytimes.com/athletic/6771811/2025/11/02/joel-embiid-76ers-fine-dx-chop-celtics-nba/
+
 **How Tucker Kraft's significant knee injury hurts the Packers and what's next**\
 `Kraft, one of the NFL's best tight ends and one of the Packers' most important players, will likely be out an extended period of time.`\
 https://nytimes.com/athletic/6771834/2025/11/02/tucker-kraft-knee-injury-packers/
