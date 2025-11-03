@@ -1,3 +1,11 @@
+**In Mexico, Killer Whales Take Down Great White Sharks**\
+`A pod of orcas in the Gulf of California has repeatedly hunted juvenile white sharks to feast on their livers.`\
+https://nytimes.com/2025/11/03/science/white-sharks-orcas.html
+
+**The ‘All’s Fair’ Guide to Modern Divorce**\
+` A guide to divorce, inspired by the new Ryan Murphy series “All’s Fair.”`\
+https://nytimes.com/paidpost/hulu/the-alls-fair-guide-to-modern-divorce.html
+
 **Drunk Driver Who Killed 4 at Manhattan Picnic Is Convicted of Murder**\
 `Daniel Hyden, who was a substance abuse counselor, had written a book about sobriety. He crashed his pickup through a fence and into a barbecue.`\
 https://nytimes.com/2025/11/03/nyregion/manhattan-drunken-driving-conviction.html

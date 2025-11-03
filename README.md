@@ -1,3 +1,11 @@
+**Trump Says He Doesn’t Know Crypto Billionaire He Pardoned**\
+`Changpeng Zhao had admitted to violations that allowed criminals to move money on the cryptocurrency exchange he founded, which struck a lucrative deal involving the Trump family’s own crypto enterprise.`\
+https://nytimes.com/2025/11/03/us/politics/trump-60-minutes-interview-binance-cz-pardon.html
+
+**Alexander Isak out of Liverpool-Real Madrid, Curtis Jones training**\
+`Alisson and Jeremie Frimpong have been ruled out until after the international break due to hamstring issues. `\
+https://nytimes.com/athletic/6773936/2025/11/03/isak-liverpool-jones-alisson-frimpong-injuries/
+
 **In Mexico, Killer Whales Take Down Great White Sharks**\
 `A pod of orcas in the Gulf of California has repeatedly hunted juvenile white sharks to feast on their livers.`\
 https://nytimes.com/2025/11/03/science/white-sharks-orcas.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6774022/2025/11/03/bethune-cookman-vs-auburn-stream
 **How to watch Fairleigh Dickinson vs. Iowa State: Time, TV, streaming**\
 `Find out how to watch the Fairleigh Dickinson Knights play the Iowa State Cyclones, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6774024/2025/11/03/fairleigh-dickinson-vs-iowa-state-stream-how-to-watch-nov-3/
-
-**How to watch Lehigh vs. Houston: Time, TV, streaming**\
-`Find out how to watch the Lehigh Mountain Hawks play the Houston Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6774023/2025/11/03/lehigh-vs-houston-stream-how-to-watch-nov-3/
-
-**Something Is Seriously Amiss in America**\
-`Readers respond to a column by David Brooks, “The Rot Creeping Into Our Minds.” Also: Republican election stunts.`\
-https://nytimes.com/2025/11/03/opinion/us-politics.html
 
