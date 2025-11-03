@@ -1,3 +1,7 @@
+**Dylan Harper suffered a left calf injury against Suns, leaves early**\
+`The San Antonio Spurs’ injury woes were exacerbated Sunday when Dylan Harper injured his left calf.`\
+https://nytimes.com/athletic/6772372/2025/11/02/dylan-harper-spurs-nba-injury/
+
 **The Lions' offense hasn't looked quite right and Vikings exposed some of those issues**\
 `"It was probably one of the worst games we played in a long time,” Detroit coach Dan Campbell said after the loss.`\
 https://nytimes.com/athletic/6771929/2025/11/02/lions-lose-offensive-issues-vikings/

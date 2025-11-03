@@ -1,3 +1,7 @@
+**Dylan Harper suffered a left calf injury against Suns, leaves early**\
+`The San Antonio Spurs’ injury woes were exacerbated Sunday when Dylan Harper injured his left calf.`\
+https://nytimes.com/athletic/6772372/2025/11/02/dylan-harper-spurs-nba-injury/
+
 **The Lions' offense hasn't looked quite right and Vikings exposed some of those issues**\
 `"It was probably one of the worst games we played in a long time,” Detroit coach Dan Campbell said after the loss.`\
 https://nytimes.com/athletic/6771929/2025/11/02/lions-lose-offensive-issues-vikings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6771986/2025/11/02/blue-jackets-islanders-merzlikin
 **Steelers defense comes back to life in 'statement' win over powerful Colts**\
 `Pittsburgh snapped a two-game losing streak with a vintage performance.`\
 https://nytimes.com/athletic/6771904/2025/11/02/pittsburgh-steelers-defense-indianapolis-colts-victory/
-
-**Bears Outlast Bengals in Wild Back-and-Forth Game**\
-`The Chicago Bears beat the Cincinnati Bengals, 47-42, in Week 9, scoring the winning touchdown with 17 seconds left after surviving a late defensive collapse.`\
-https://nytimes.com/video/the-athletic/100000010497980/bears-outlast-bengals-in-wild-back-and-forth-game.html
 
