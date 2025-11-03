@@ -1,3 +1,7 @@
+**Bernie Sanders: ‘There Ain’t Much of a Democratic Party’**\
+`The Vermont senator on how to take the country back from elites on both sides of the aisle.`\
+https://nytimes.com/video/opinion/100000010489830/bernie-sanders-there-aint-much-of-a-democratic-party.html
+
 **How Maduro Future-Proofed His Dictatorship**\
 `Venezuela’s president has built a system in which the only people who can truly tear down his dictatorship are the ones with the most to lose from its demise.`\
 https://nytimes.com/2025/11/03/opinion/maduro-venezuela-autocracy.html

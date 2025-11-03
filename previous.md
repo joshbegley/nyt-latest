@@ -1,3 +1,7 @@
+**Bernie Sanders: ‘There Ain’t Much of a Democratic Party’**\
+`The Vermont senator on how to take the country back from elites on both sides of the aisle.`\
+https://nytimes.com/video/opinion/100000010489830/bernie-sanders-there-aint-much-of-a-democratic-party.html
+
 **N.J. Democrats Hope Early Vote Advantage Is Enough as Race Enters Last Days**\
 `As a close race for governor between Mikie Sherrill and Jack Ciattarelli comes to a close, the two campaigns were reading the tea leaves and pulling out the stops.`\
 https://nytimes.com/2025/11/03/nyregion/nj-democrats-hope-early-vote-advantage-is-enough-as-race-enters-last-days.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/03/world/asia/india-women-cricket-world-cup.html
 **The New York Times in Print for Monday, Nov. 3, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/03/todays-new-york-times
-
-**How Maduro Future-Proofed His Dictatorship**\
-`Venezuela’s president has built a system in which the only people who can truly tear down his dictatorship are the ones with the most to lose from its demise.`\
-https://nytimes.com/2025/11/03/opinion/maduro-venezuela-autocracy.html
 
