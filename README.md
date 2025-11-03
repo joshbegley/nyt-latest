@@ -1,3 +1,7 @@
+**With ‘A Billion’ Eyes on Them, India’s Women Lift Cricket World Cup**\
+`A team that faced seemingly insurmountable odds wins its first championship, with wider ramifications for the role women play in public life.`\
+https://nytimes.com/2025/11/03/world/asia/india-women-cricket-world-cup.html
+
 **The New York Times in Print for Monday, Nov. 3, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/03/todays-new-york-times
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6771133/2025/11/03/newcastle-howe-worst-performance
 **Leeds barely laid a glove on Brighton. That's why this defeat was so alarming**\
 `For only the second time in 10 matches Leeds were outclassed. Picking up points in their next two fixtures is now of vital significance`\
 https://nytimes.com/athletic/6769500/2025/11/03/leeds-united-daniel-farke-brighton/
-
-**Brighton dodge the Bananenschale. Now Hurzeler will demand this kind of performance**\
-`Everything pointed to three points against Leeds, which is when Brighton supporters get worried`\
-https://nytimes.com/athletic/6716161/2025/11/03/brighton-bananenschale-fabian-hurzeler-leeds/
 
