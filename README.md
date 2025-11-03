@@ -1,3 +1,7 @@
+**Men's college basketball national title odds: Purdue opens as favorite ahead of Houston**\
+`As the season is about to start, Purdue is the favorite to win the national championship, with Houston, Duke and Kentucky following.`\
+https://nytimes.com/athletic/6774228/2025/11/03/mens-college-basketball-national-title-odds-purdue-houston/
+
 **NFL overreactions: THOSE Packers are supposed to beat THOSE Eagles??**\
 `Toby Mergler makes early Week 10 picks wildly over-indexing on vibes, small sample sizes and comparisons to pop culture classics.`\
 https://nytimes.com/athletic/6774230/2025/11/03/nfl-overreaction-monday-week-10/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6774602/2025/11/03/oilers-vs-blues-stream-how-to-wa
 **How to watch Kings vs. Nuggets: Time, TV, streaming**\
 `Find out how to watch the Sacramento Kings play the Denver Nuggets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6774601/2025/11/03/kings-vs-nuggets-stream-how-to-watch-nov-3/
-
-**How to watch Blackhawks vs. Kraken: Time, TV, streaming**\
-`Find out how to watch the Chicago Blackhawks play the Seattle Kraken, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6774604/2025/11/03/blackhawks-vs-kraken-stream-how-to-watch-nov-3/
 
