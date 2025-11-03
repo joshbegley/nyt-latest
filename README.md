@@ -1,3 +1,7 @@
+**Kimberly-Clark Agrees to Buy Kenvue, Maker of Tylenol, for $40 Billion**\
+`The owner of Kleenex and Huggies will acquire the embattled company, which has fought claims by the Trump administration that a common pain reliever was linked to harmful side effects.`\
+https://nytimes.com/2025/11/03/business/kimberly-clark-kenvue.html
+
 **Can Michigan basketball meet the moment? 5 pressing questions for a revamped roster**\
 `Offseason roster-building was a success. Now, the team-building is ongoing for a Michigan men's basketball team with soaring expectations.`\
 https://nytimes.com/athletic/6771100/2025/11/03/michigan-wolverines-mens-basketball-preview/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6770825/2025/11/03/minnesota-wild-gaborik-tarasenko
 **What happens after you get traded? NFL players explain, in their own words**\
 `NFL players who are traded during the season have to learn far more than a new playbook and a new route to work. `\
 https://nytimes.com/athletic/6771233/2025/11/03/nfl-trade-deadline-players-explain/
-
-**Matt LaFleur's head-scratching decision costs Packers in upset loss to Panthers**\
-`LaFleur is a seventh-year head coach of one of the NFL's best teams since he arrived, but he didn't always look like it on Sunday.`\
-https://nytimes.com/athletic/6772246/2025/11/03/matt-lafleur-coaching-decisions-packers-panthers/
 

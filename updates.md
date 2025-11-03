@@ -1,3 +1,19 @@
+**Can Michigan basketball meet the moment? 5 pressing questions for a revamped roster**\
+`Offseason roster-building was a success. Now, the team-building is ongoing for a Michigan men's basketball team with soaring expectations.`\
+https://nytimes.com/athletic/6771100/2025/11/03/michigan-wolverines-mens-basketball-preview/
+
+**Here’s the latest.**\
+`By Maya King`\
+https://nytimes.com/live/2025/11/03/nyregion/nyc-mayor-election-news/heres-the-latest
+
+**N.Y.C. Mayor’s Race Live Updates: Candidates Make Final Push Before Election Day**\
+`Early voting ended Sunday, with more than 735,000 ballots cast. Polls are closed Monday but will reopen on Tuesday from 6 a.m. to 9 p.m.`\
+https://nytimes.com/live/2025/11/03/nyregion/nyc-mayor-election-news
+
+**Yankees offseason calendar: Key dates, Rule 5 eligible players, arbitration figures**\
+`To set the stage for New York's offseason agenda, here’s a look at the key dates and how they affect the club.`\
+https://nytimes.com/athletic/6766844/2025/11/03/yankees-offseason-calendar-key-dates/
+
 **Women's college basketball tips off with Duke-Baylor, Cal-Vanderbilt doubleheader in Paris**\
 `The women's college basketball season starts Monday, with a highly anticipated doubleheader in Paris. Here's how to watch both games.`\
 https://nytimes.com/athletic/6767762/2025/11/03/womens-college-basketball-duke-baylor-cal-vanderbilt-paris/
