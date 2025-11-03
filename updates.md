@@ -1,3 +1,7 @@
+**What I'm hearing about the Penguins: Brunicke's future, lagging ticket sales**\
+`The decision to keep Brunicke or to send him back to the Western Hockey League isn't so simple anymore. `\
+https://nytimes.com/athletic/6773736/2025/11/03/penguins-harrison-brunicke-ticket-sales-nhl/
+
 **Marlins promote Gabe Kapler to general manager**\
 `The former Giants and Phillies manager had been an assistant GM in Miami since December 2023.`\
 https://nytimes.com/athletic/6774031/2025/11/03/marlins-promote-gabe-kapler-general-manager/

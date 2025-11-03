@@ -1,3 +1,7 @@
+**What I'm hearing about the Penguins: Brunicke's future, lagging ticket sales**\
+`The decision to keep Brunicke or to send him back to the Western Hockey League isn't so simple anymore. `\
+https://nytimes.com/athletic/6773736/2025/11/03/penguins-harrison-brunicke-ticket-sales-nhl/
+
 **Marlins promote Gabe Kapler to general manager**\
 `The former Giants and Phillies manager had been an assistant GM in Miami since December 2023.`\
 https://nytimes.com/athletic/6774031/2025/11/03/marlins-promote-gabe-kapler-general-manager/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6773666/2025/11/03/wolves-gary-oneil-shi-fosun/
 **New Yorkers came out en masse to vote early.**\
 `By Matthew Haag`\
 https://nytimes.com/live/2025/11/03/nyregion/nyc-mayor-election-news/new-yorkers-came-out-en-masse-to-vote-early
-
-**Capitals' Pierre-Luc Dubois out for 'extended period of time' with injury**\
-`Dubois has yet to record a point in six games this season.`\
-https://nytimes.com/athletic/6774041/2025/11/03/pierre-luc-dubois-injury-capitals/
 
