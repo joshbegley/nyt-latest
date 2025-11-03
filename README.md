@@ -1,3 +1,7 @@
+**Trump Says War With Venezuela Is Unlikely but Suggests Maduro’s Time Is Up**\
+`In an interview with “60 Minutes,” President Trump was circumspect on potential escalation targeting Venezuela. He was also pressed on deportations, the government shutdown and his recent demand for nuclear tests.`\
+https://nytimes.com/2025/11/02/us/politics/trump-venezuela-shutdown-nuclear.html
+
 **Raptors trying to rekindle hope as Toronto mourns the Blue Jays**\
 `The Raptors have to provide a baseline of hope for Toronto to truly buy in, and they haven’t come out by making a statement.`\
 https://nytimes.com/athletic/6772310/2025/11/02/toronto-raptors-blue-jays-hope/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/02/nyregion/nyc-mayor-early-voting.html
 **Bengals offense's frustration boils. Where's the fire from a historically bad defense?**\
 `Joe Flacco and Cincinnati's high-powered offense did their part against the Bears, but another defensive collapse let it go to waste again.`\
 https://nytimes.com/athletic/6772209/2025/11/02/bengals-bad-defense-bears-zac-taylor/
-
-**'Madness': Inside the Bears' mind-blowing, roller-coaster victory in Cincinnati**\
-`The zaniness began with the opening kickoff and peaked with an improbable final touchdown in one of the wildest Bears wins in recent memory.`\
-https://nytimes.com/athletic/6771990/2025/11/02/bears-wild-finish-bengals/
 

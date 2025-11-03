@@ -1,4 +1,8 @@
 **Raptors trying to rekindle hope as Toronto mourns the Blue Jays**\
+`The Raptors have to provide a baseline of hope for Toronto to truly buy in, and they haven’t come out by making a statement.`\
+https://nytimes.com/athletic/6772310/2025/11/02/toronto-raptors-blue-jays-hope/
+
+**Raptors trying to rekindle hope as Toronto mourns the Blue Jays**\
 `TORONTO — Hello, Toronto sports fans.`\
 https://nytimes.com/athletic/6772310/2025/11/02/toronto-raptors-blue-jays-hope/
 
