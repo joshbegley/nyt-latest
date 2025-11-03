@@ -1,3 +1,11 @@
+**Bills defense shuts down Patrick Mahomes, Josh Allen's magnificent game and other observations**\
+`The Bills defense got aggressive in their approach to the Kansas City quarterback in Sunday's win.`\
+https://nytimes.com/athletic/6772662/2025/11/03/josh-allen-bills-defense-observations/
+
+**'Unacceptable': Giants defense allows over 30 points for third straight game in latest loss**\
+`The defense was supposed to be strong this season, but it's collapsed over the last few weeks.`\
+https://nytimes.com/athletic/6771938/2025/11/03/giants-defense-struggles-49ers/
+
 **TAFC: What do (Spurs) fans want? Plus: Son looking ominous in MLS play-offs**\
 `Today in TAFC: Why Spurs fans are frustrated, despite being fifth in the Premier League. Plus: Son shines in MLS play-offs, Messi stutters`\
 https://nytimes.com/athletic/6772960/2025/11/03/tottenham-frank-chelsea-premier-league/

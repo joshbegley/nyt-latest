@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6770938/2025/11/03/world-juniors-2026-canada-usa-ro
 https://nytimes.com/athletic/6772707/2025/11/03/detroit-red-wings-moritz-seider-cam-talbot/
 
 **Bills defense shuts down Patrick Mahomes, Josh Allen's magnificent game and other observations**\
-`The Bills defense got aggressive in their approach to Patrick Mahomes.`\
+`The Bills defense got aggressive in their approach to the Kansas City quarterback in Sunday's win.`\
 https://nytimes.com/athletic/6772662/2025/11/03/josh-allen-bills-defense-observations/
 
 **Bowl projections: Can UNC, Clemson, FSU and more reach the six-win mark?**\
@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6772389/2025/11/03/college-football-bowl-projection
 `Ryan Getzlaf, who won Olympic gold with Canada twice as a player, is serving in a role something like an adviser to GM Doug Armstrong.`\
 https://nytimes.com/athletic/6767031/2025/11/03/canada-olympics-ryan-getzlaf/
 
-**"Unacceptable": Giants defense allows over 30 points for third straight game in latest loss**\
+**'Unacceptable': Giants defense allows over 30 points for third straight game in latest loss**\
 `The defense was supposed to be strong this season, but it's collapsed over the last few weeks.`\
 https://nytimes.com/athletic/6771938/2025/11/03/giants-defense-struggles-49ers/
 
