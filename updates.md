@@ -1,3 +1,7 @@
+**Margaret Atwood Leans Into Her Dark Side in a New Memoir**\
+`“Book of Lives” offers two distinct versions of the esteemed novelist: “Peggy Nature” and “the brooder.”`\
+https://nytimes.com/2025/11/03/books/review/margaret-atwood-book-of-lives.html
+
 **Scunthorpe footballer among 11 victims of knife attack on UK train**\
 `In a statement, the club said Jonathan Gjoshe was currently in hospital with "non life-threatening injuries".`\
 https://nytimes.com/athletic/6773383/2025/11/03/scunthorpe-united-footballer-jonathan-gjoshe-among-11-victims-of-knife-attack-on-uk-train/
