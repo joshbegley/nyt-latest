@@ -1,3 +1,11 @@
+**49ers first-round DE Mykel Williams out for season with torn ACL: Source**\
+`Williams is the second 49ers defensive end to be lost for the year with a torn ACL, joining Nick Bosa.`\
+https://nytimes.com/athletic/6774410/2025/11/03/49ers-mykel-williams-injury-update-acl/
+
+**Marchand: In ESPN and YouTube TV standoff, the fans are the biggest loser**\
+`For 10 million subscribers, a missed college football Saturday on ABC and ESPN networks is rolling over to NFL's "Monday Night Football."`\
+https://nytimes.com/athletic/6774454/2025/11/03/espn-disney-youtubetv-google/
+
 **Halloween Becomes Another Target of the Kremlin’s Culture Wars**\
 `The Russian authorities canceled a festival in St. Petersburg, branding it “Satanist,” as part of a larger assault on anything viewed as a Western influence.`\
 https://nytimes.com/2025/11/03/world/europe/halloween-party-canceled-russia.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6774223/2025/11/03/blackhawks-oliver-moore-called-u
 **ABC and ESPN are blacked out on YouTube TV. Here are the next options for subscribers**\
 `Carriage beef between Google and Disney leaves YouTube TV users without access to major sports telecasts this week.`\
 https://nytimes.com/athletic/6773997/2025/11/03/abc-espn-youtube-tv-how-to-watch/
-
-**Ask Mirtle Anything: Submit your NHL questions for James' next mailbag**\
-`<p>We&#8217;re through the first month of the NHL season and teams are starting to approach the 15-game mark.`\
-https://nytimes.com/athletic/6774394/2025/11/03/submit-your-nhl-questions-for-james-mirtles-next-mailbag/
-
-**Scoop City: Risers and fallers after Week 9**\
-`Bills, Steelers and Vikings are rising as the Packers and Falcons trend down`\
-https://nytimes.com/athletic/6774351/2025/11/03/nfl-risers-fallers-week-9-bills-steelers-vikings/
 
