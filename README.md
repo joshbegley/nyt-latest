@@ -1,40 +1,40 @@
-**How Suns limited Victor Wembanyama and handed Spurs their first loss**\
-`The Suns are still trying to figure out what it can do and what it cannot not. Sunday's win was a good step.`\
-https://nytimes.com/athletic/6772769/2025/11/03/suns-limit-victor-wembanyama-spurs-first-loss/
+**Cardinals at Cowboys on MNF: YouTube TV, high scoring projections, hijinks on the telecast**\
+`Dallas hosts Arizona on "Monday Night Football." Here's a quick primer on the teams, the telecast and the odds as we close out Week 9.`\
+https://nytimes.com/athletic/6766601/2025/11/03/cowboys-cardinals-monday-night-football-watch-youtube-tv/
 
-**The case for 2025: Why the Dodgers and Blue Jays just played the greatest Game 7 in history**\
-`What made it so compelling was not a standout moment or singular performance but a confluence of chaos.`\
-https://nytimes.com/athletic/6772362/2025/11/03/dodgers-blue-jays-game-7-world-series/
+**World Juniors stock watch: Who's making their case for Canada, USA rosters?**\
+`These prospects are trending up or down in their efforts to crack their respective World Junior teams.`\
+https://nytimes.com/athletic/6770938/2025/11/03/world-juniors-2026-canada-usa-rosters-stock-watch/
 
-**To kick or receive? Debating the pros and cons of NFL overtime coin toss strategy**\
-`Kickoff first is seemingly the accepted preference for the new NFL overtime rules. But is it really the best strategy? `\
-https://nytimes.com/athletic/6704819/2025/11/03/nfl-overtime-coin-toss-strategy-pros-cons/
+**What I'm seeing from the Red Wings: Detroit secures a winning trip**\
+`The Red Wings have won three of their first four games on this swing out West. `\
+https://nytimes.com/athletic/6772707/2025/11/03/detroit-red-wings-moritz-seider-cam-talbot/
 
-**What I'm hearing so far from scouts about the 2026 NBA Draft class**\
-`Games that matter are starting in college basketball, but we've already learned a lot through practices and preseason action.`\
-https://nytimes.com/athletic/6759326/2025/11/03/nba-draft-2026-peterson-boozer-dybantsa/
+**Bills defense shuts down Patrick Mahomes, Josh Allen's magnificent game and other observations**\
+`The Bills defense got aggressive in their approach to Patrick Mahomes.`\
+https://nytimes.com/athletic/6772662/2025/11/03/josh-allen-bills-defense-observations/
 
-**Jayden Daniels' catastrophic injury could — and should — have been avoided**\
-`After Washington's franchise quarterback was injured in garbage time Sunday night, it's more than fair to ask why he was even in the game.`\
-https://nytimes.com/athletic/6772024/2025/11/03/jayden-daniels-injury-elbow-commanders/
+**Bowl projections: Can UNC, Clemson, FSU and more reach the six-win mark?**\
+`Beyond the College Football Playoff race, there are some interesting developing stories in the push for bowl season.`\
+https://nytimes.com/athletic/6772389/2025/11/03/college-football-bowl-projections-matchups-week-10/
 
-**The Kansas City Chiefs are 5-4 — and probably still the NFL's best team**\
-`The Chiefs enter their bye week as one of the most confounding teams in the NFL. Here's what they said after their loss to the Bills.`\
-https://nytimes.com/athletic/6771279/2025/11/03/chiefs-patrick-mahomes-bills-loss-afc-west/
+**How does Canada find players who can handle the pressure? Ryan Getzlaf's Olympic role, NHL future**\
+`Ryan Getzlaf, who won Olympic gold with Canada twice as a player, is serving in a role something like an adviser to GM Doug Armstrong.`\
+https://nytimes.com/athletic/6767031/2025/11/03/canada-olympics-ryan-getzlaf/
 
-**Deadly Quake in Afghanistan Damages Magnificent Blue Mosque**\
-`A 6.3-magnitude earthquake struck northern Afghanistan, killing at least 15 people and injuring hundreds of others. The quake damaged one of the country’s most iconic landmarks, the 15th-century Blue Mosque.`\
-https://nytimes.com/video/world/asia/100000010498277/afghanistan-earthquake-blue-mosque.html
+**"Unacceptable": Giants defense allows over 30 points for third straight game in latest loss**\
+`The defense was supposed to be strong this season, but it's collapsed over the last few weeks.`\
+https://nytimes.com/athletic/6771938/2025/11/03/giants-defense-struggles-49ers/
 
-**How to watch Tulane vs. Memphis: Time, TV, streaming**\
-`Find out how to watch the Tulane Green Wave play the Memphis Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6773034/2025/11/03/tulane-vs-memphis-stream-how-to-watch-nov-7/
+**I worked with the Dodgers’ Andrew Friedman for years. These two leadership traits stood out**\
+`Joe Maddon worked with Andrew Friedman for nine years. Maddon said Friedman straddled the analytics and human side of baseball.`\
+https://nytimes.com/athletic/6771891/2025/11/03/dodgers-andrew-friedman-world-series-champions-dynasty/
 
-**How to watch Northwestern vs. USC: Time, TV, streaming**\
-`Find out how to watch the Northwestern Wildcats play the USC Trojans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6773031/2025/11/03/northwestern-vs-usc-stream-how-to-watch-nov-7/
+**Sam Darnold, Seahawks display dominant skill, culture against Commanders**\
+`Sunday night's blowout victory featured important contributions from players who have spent time on Seattle's "ready squad."`\
+https://nytimes.com/athletic/6772841/2025/11/03/seahawks-commanders-sam-darnold/
 
-**Re-stacking AFC contenders: Bills, Chiefs still favorites? Who else is dangerous? — Pick Six**\
-`What was once a three-team race between the Bills, Chiefs and Ravens is now complicated, with several upstarts jumping into the mix.`\
-https://nytimes.com/athletic/6770739/2025/11/03/bills-chiefs-nfl-super-bowl-odds-afc-pick-six/
+**Pete Crow-Armstrong wins first Gold Glove after becoming star of defense-first Cubs team   **\
+`After a spectacular season that helped lift the Cubs back into the playoffs, Crow-Armstrong was awarded his first Gold Glove.`\
+https://nytimes.com/athletic/6772646/2025/11/03/pete-crow-armstrong-wins-first-gold-glove/
 
