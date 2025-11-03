@@ -1,3 +1,7 @@
+**Now is Cavaliers' time to experiment. They know there's plenty of gas in the tank**\
+`It's not 15-0, but Cavs are using early part of the season to get comfortable in the uncomfortable — such as playing through Evan Mobley.`\
+https://nytimes.com/athletic/6772701/2025/11/03/cavaliers-hawks-early-season-experiments/
+
 **Medieval Tower Partially Collapses in Rome**\
 `The Torre dei Conti, a 13th-century medieval tower near Rome’s Colosseum, partially collapsed on Monday. Two restoration workers had to be rescued, and a third suffered critical injuries.`\
 https://nytimes.com/video/world/europe/100000010498672/torre-dei-conti-collapse-rome.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6765270/2025/11/03/nba-rewind-ja-morant-san-antonio
 **F1 decides what driver radio clips you hear. The process is always changing**\
 `F1's decisions over the airing of team radio messages have formed part of a recent debate on the sport's broadcasting. Here's how they work`\
 https://nytimes.com/athletic/6773087/2025/11/03/how-f1-team-radio-works/
-
-**Torre dei Conti Partially Collapses in Rome, Causing Injuries**\
-`The medieval tower, near the Colosseum, was undergoing restoration work. One man was seriously injured, Italian news media reported.`\
-https://nytimes.com/2025/11/03/world/europe/tower-collapse-rome-colosseum-torre-dei-conti.html
 
