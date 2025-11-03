@@ -1,6 +1,18 @@
+**Trump’s ‘Forever Shutdown’**\
+`The president seems to think “the shutdown gives him more power,” Jamelle Bouie says at the round table on “The Opinions” with Michelle Cottle and David French. But what Trump doesn’t seem to understand, he argues, are the practical implications of keeping this going.`\
+https://nytimes.com/video/opinion/100000010491338/trumps-forever-shutdown.html
+
+**Lakers stars Luka Dončić, Austin Reaves out vs. Blazers with injuries**\
+`Dončić will miss his fourth game of the season with a left leg contusion while Reaves is out with right groin soreness.`\
+https://nytimes.com/athletic/6774845/2025/11/03/lakers-luka-doncic-austin-reaves-injuries/
+
+**The Anti-Federalists Saw It Coming**\
+`In this episode of “The Opinions,” David French breaks down why parts of the original Constitution lend themselves to abuse — and which three amendments could stop another shutdown like this one. “But first,” he says, “we have to get through this moment.”`\
+https://nytimes.com/video/opinion/100000010491344/the-anti-federalists-saw-it-coming.html
+
 **'I missed it': Commanders' Dan Quinn takes responsibility for Jayden Daniels injury**\
 `In more bad news, cornerback Marshon Lattimore (ACL) and returner Luke McCaffrey (broken collarbone) will both miss the rest of the season.`\
-https://nytimes.com/athletic/6774872/2025/11/03/jayden-daniels-discolated-elbow-dan-quinn/
+https://nytimes.com/athletic/6774872/2025/11/03/jayden-daniels-dislocated-elbow-dan-quinn/
 
 **Watch: How the NFL salary cap impacts teams at the trade deadline**\
 `NFL teams must remain salary-cap compliant at all times during the season, even when wheeling and dealing at the trade deadline.`\
@@ -23,18 +35,6 @@ https://nytimes.com/athletic/6773771/2025/11/03/cam-little-nfl-long-field-goals/
 https://nytimes.com/2025/11/03/nyregion/mamdani-gaza.html
 
 **Diane Ladd, Versatile Film Actress, Is Dead at 89**\
-`She was a three-time Oscar contender playing strikingly different characters, in once case starring alongside her daughter and fellow nominee, Laura Dern.`\
+`She was a three-time Oscar contender playing strikingly different characters, in one case starring alongside her daughter and fellow nominee, Laura Dern.`\
 https://nytimes.com/2025/11/03/movies/diane-ladd-dead.html
-
-**NFL survivor pool mailbag: Submit your questions for Week 10**\
-`Put your NFL survivor pool questions here and our experts will answer them in this week's advice column.`\
-https://nytimes.com/athletic/6774901/2025/11/03/nfl-survivor-pool-help-mailbag-week-10/
-
-**Agent arrested after Premier League player allegedly threatened with firearm**\
-`The Metropolitan Police confirmed the incident occurred in London in September.`\
-https://nytimes.com/athletic/6773985/2025/11/03/premier-league-player-gun-agent-arrest/
-
-**Trump’s China Trade Policy Is a Hot Mess**\
-`As he so often does, the president is pushing the wrong answer to the right question on trade policy with Beijing.`\
-https://nytimes.com/2025/11/03/opinion/trump-china-trade-tariffs.html
 
