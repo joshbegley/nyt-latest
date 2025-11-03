@@ -1,3 +1,11 @@
+**In Mexico, Killer Whales Take Down Great White Sharks**\
+`A pod of orcas in the Gulf of California has repeatedly hunted juvenile white sharks to feast on their livers.`\
+https://nytimes.com/2025/11/03/science/white-sharks-orcas.html
+
+**The ‘All’s Fair’ Guide to Modern Divorce**\
+` A guide to divorce, inspired by the new Ryan Murphy series “All’s Fair.”`\
+https://nytimes.com/paidpost/hulu/the-alls-fair-guide-to-modern-divorce.html
+
 **Drunk Driver Who Killed 4 at Manhattan Picnic Is Convicted of Murder**\
 `Daniel Hyden, who was a substance abuse counselor, had written a book about sobriety. He crashed his pickup through a fence and into a barbecue.`\
 https://nytimes.com/2025/11/03/nyregion/manhattan-drunken-driving-conviction.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6774023/2025/11/03/lehigh-vs-houston-stream-how-to-
 **Something Is Seriously Amiss in America**\
 `Readers respond to a column by David Brooks, “The Rot Creeping Into Our Minds.” Also: Republican election stunts.`\
 https://nytimes.com/2025/11/03/opinion/us-politics.html
-
-**Packers tight end Tucker Kraft has torn ACL: Source**\
-`Green Bay's budding star will miss the rest of the 2025 season after the knee injury suffered against the Panthers on Sunday.`\
-https://nytimes.com/athletic/6773955/2025/11/03/packers-tucker-kraft-torn-acl/
-
-**How Does SML Make Experimental Jazz Albums? Very Unconventionally.**\
-`The Los Angeles quintet was born onstage, and that’s exactly how it records LPs: by capturing live performances and twisting them, sometimes beyond recognition.`\
-https://nytimes.com/2025/11/03/arts/music/sml-how-you-been.html
 
