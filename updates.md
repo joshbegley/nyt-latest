@@ -1,3 +1,11 @@
+**Jayden Daniels leaves Washington Commanders game with gruesome left arm injury**\
+`Daniels was injured midway through the fourth quarter as the Washington Commanders trailed the Seattle Seahawks.`\
+https://nytimes.com/athletic/6772596/2025/11/02/jayden-daniels-arm-injury-leaves-game-commanders-seattle/
+
+**After losses by Spurs, Bulls, the Thunder are the NBA's only remaining unbeaten**\
+`The defending champion Thunder continued their dominant start with another big win, leaving as the NBA's lone remaining unbeaten`\
+https://nytimes.com/athletic/6772205/2025/11/02/thunder-spurs-bulls-nba-shai-gilgeous-alexander-victor-wembanyama/
+
 **Trump Says War With Venezuela Is Unlikely but Suggests Maduro’s Time Is Up**\
 `In an interview with “60 Minutes,” President Trump was circumspect on potential escalation targeting Venezuela. He was also pressed on deportations, the government shutdown and his recent demand for nuclear tests.`\
 https://nytimes.com/2025/11/02/us/politics/trump-venezuela-shutdown-nuclear.html
