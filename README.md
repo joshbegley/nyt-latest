@@ -1,3 +1,11 @@
+**Wolves in talks over O'Neil reunion but ten Hag among club's other options**\
+`Wolves are exploring a reunion with O'Neil in parallel to other options, with no decision on Vitor Pereira's successor expected this week.`\
+https://nytimes.com/athletic/6770826/2025/11/03/wolves-gary-oneil-erik-ten-hag-manager/
+
+**Dolphins trade linebacker Jaelan Phillips to Eagles: Sources**\
+`When healthy, Phillips — a first-round pick in 2021 — has been a reliable pass rusher in his first five NFL seasons.`\
+https://nytimes.com/athletic/6754348/2025/11/03/jaelan-phillips-trade-eagles-dolphins/
+
 **The Athletic 136: Amid ACC chaos, don't forget about Louisville**\
 `After Week 10, the jumbled-up ACC makes putting together a 12-team field, let alone a ranking of the entire FBS, a lot more difficult.`\
 https://nytimes.com/athletic/6772805/2025/11/03/college-football-team-rankings-louisville-miami/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/11/03/nyregion/nyc-mayor-election-news
 **Women's college basketball tips off with Duke-Baylor, Cal-Vanderbilt doubleheader in Paris**\
 `The women's college basketball season starts Monday, with a highly anticipated doubleheader in Paris. Here's how to watch both games.`\
 https://nytimes.com/athletic/6767762/2025/11/03/womens-college-basketball-duke-baylor-cal-vanderbilt-paris/
-
-**Our Election Guide**\
-`Tomorrow is an off-year Election Day across the United States. We explain what is happening.`\
-https://nytimes.com/2025/11/03/briefing/our-election-guide.html
-
-**Yankees offseason calendar: Key dates, Rule 5 eligible players, arbitration figures**\
-`To set the stage for New York's offseason agenda, here’s a look at the key dates and how they affect the club.`\
-https://nytimes.com/athletic/6766844/2025/11/03/yankees-offseason-calendar-key-dates/
 
