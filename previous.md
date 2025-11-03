@@ -32,7 +32,7 @@ https://nytimes.com/2025/11/03/opinion/maduro-venezuela-autocracy.html
 `\
 https://nytimes.com/athletic/6772749/2025/11/03/submit-a-question-for-stewart-mandels-college-football-mailbag-321/
 
-**Are there 'signs of life' for Celtic, Rangers and Scottish football after cup clash?**\
+**Are there 'signs of life' for Celtic, Rangers and Scottish football?**\
 `It's been a terrible season for the Old Firm – and Scottish football in general – but did the Scottish Cup semi-final show all is not lost?`\
 https://nytimes.com/athletic/6771495/2025/11/03/celtic-rangers-scottish-league-cup-result/
 

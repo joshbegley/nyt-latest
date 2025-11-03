@@ -1,3 +1,7 @@
+**Are there 'signs of life' for Celtic, Rangers and Scottish football?**\
+`It's been a terrible season for the Old Firm – and Scottish football in general – but did the Scottish Cup semi-final show all is not lost?`\
+https://nytimes.com/athletic/6771495/2025/11/03/celtic-rangers-scottish-league-cup-result/
+
 **N.Y.C. Mayoral Candidates Make Final Push on Last Day of Early Voting**\
 `Zohran Mamdani, Andrew Cuomo and Curtis Sliwa spent Sunday, the last day of early voting, zigzagging across New York City to deliver their final messages and urge people to go to the polls.`\
 https://nytimes.com/video/us/elections/100000010497970/nyc-mayoral-election-voting-blocs.html
