@@ -1,3 +1,7 @@
+**'Madness': Inside the Bears' mind-blowing, roller-coaster victory in Cincinnati**\
+`The zaniness began with the opening kickoff and peaked with an improbable final touchdown in one of the wildest Bears wins in recent memory.`\
+https://nytimes.com/athletic/6771990/2025/11/02/bears-wild-finish-bengals/
+
 **Kyle Larson pulls off a NASCAR Hail Mary to win his second Cup Series title**\
 `Everything was going Denny Hamlin's way Sunday. And then a late caution changed everything and gave Kyle Larson a path to title No. 2.`\
 https://nytimes.com/athletic/6772176/2025/11/02/kyle-larson-nascar-championship-race-denny-hamlin/
