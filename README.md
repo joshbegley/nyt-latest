@@ -1,3 +1,15 @@
+**Halloween Becomes Another Target of the Kremlin’s Culture Wars**\
+`The Russian authorities canceled a festival in St. Petersburg, branding it “Satanist,” as part of a larger assault on anything viewed as a Western influence.`\
+https://nytimes.com/2025/11/03/world/europe/halloween-party-canceled-russia.html
+
+**It's Never Too Late to Love Again**\
+`There’s no feeling like new love — from the euphoric early days to the adventure and discovery that follows.`\
+https://nytimes.com/paidpost/bumble/its-never-too-late-to-love-again.html
+
+**What to Know About Trump’s Threat of Military Action in Nigeria**\
+`The president said he would halt all aid and go in “guns-a-blazing” to target militants.`\
+https://nytimes.com/2025/11/03/world/africa/trump-nigeria-military-christians.html
+
 **College football Week 11 odds: Big 12 showdown takes center stage**\
 `Texas Tech hosts BYU in the biggest matchup of Week 11. The Red Raiders are big favorites against the undefeated Cougars.`\
 https://nytimes.com/athletic/6773846/2025/11/03/college-football-week-11-odds-texas-tech-byu/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6774394/2025/11/03/submit-your-nhl-questions-for-ja
 **Scoop City: Risers and fallers after Week 9**\
 `Bills, Steelers and Vikings are rising as the Packers and Falcons trend down`\
 https://nytimes.com/athletic/6774351/2025/11/03/nfl-risers-fallers-week-9-bills-steelers-vikings/
-
-**Jon Stewart Signs Extension for ‘Daily Show’ Through 2026**\
-`Mr. Stewart’s contract was set to expire in December, though he expressed publicly last month that he wanted to keep hosting the show.`\
-https://nytimes.com/2025/11/03/business/media/jon-stewart-daily-show-extension.html
-
-**Three Places to Get Thai Food That’s Anything but Tired**\
-`Thai restaurants are becoming sleeker and spendier. Their chefs are spotlighting regional foods and serving them in extravagant settings you wouldn’t believe or throwing the rules out altogether. Here are three new spots worth checking out.`\
-https://nytimes.com/video/dining/100000010498906/three-places-to-get-thai-food-thats-anything-but-tired.html
-
-**11 Thanksgiving Restaurants for Every Type of Eater**\
-`Where to snag a reservation this turkey day in New York.`\
-https://nytimes.com/2025/11/03/dining/nyc-restaurants-open-thanksgiving.html
 
