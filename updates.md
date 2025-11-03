@@ -1,3 +1,23 @@
+**How to watch Southern vs. Iowa: Time, TV, streaming**\
+`Find out how to watch the Southern Jaguars play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6773600/2025/11/03/southern-vs-iowa-stream-how-to-watch-nov-3/
+
+**How to watch North Carolina Central vs. North Carolina: Time, TV, streaming**\
+`Find out how to watch the North Carolina Central Eagles play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6773597/2025/11/03/north-carolina-central-vs-north-carolina-stream-how-to-watch-nov-3/
+
+**How to watch Norfolk State vs. Ole Miss: Time, TV, streaming**\
+`Find out how to watch the Norfolk State Spartans play the Ole Miss Rebels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6773595/2025/11/03/norfolk-state-vs-ole-miss-stream-how-to-watch-nov-3/
+
+**Trump Administration Faces Court Deadline on Food Stamp Benefits**\
+`The government must inform two courts how, and when, it intends to pay benefits in November, as the shutdown continues.`\
+https://nytimes.com/2025/11/03/business/snap-food-stamps-trump.html
+
+**Van de Ven, Spence apologised 'unprompted' for Chelsea snub, says Frank**\
+`Van de Ven and Spence appeared to refuse a request from Frank to applaud supporters after Saturday's defeat by Chelsea.`\
+https://nytimes.com/athletic/6773518/2025/11/03/tottenham-thomas-frank-van-de-ven-spence/
+
 **Kawhi Leonard is finally healthy again, but he's still searching for consistency**\
 `Leonard has had some big games and some puzzling ones, and the Clippers' performance has tended to follow its star.`\
 https://nytimes.com/athletic/6771802/2025/11/03/clippers-kawhi-leonard-nba-season/
