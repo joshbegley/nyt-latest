@@ -32,11 +32,11 @@ https://nytimes.com/athletic/6770329/2025/11/03/mary-earps-autobiography-reactio
 `A great opportunity for Newcastle United had become a great test. The results from the test are in: abject failure`\
 https://nytimes.com/athletic/6771133/2025/11/03/newcastle-howe-worst-performance/
 
+**Leeds barely laid a glove on Brighton. That's why this defeat was so alarming**\
+`For only the second time in 10 matches Leeds were outclassed. Picking up points in their next two fixtures is now of vital significance`\
+https://nytimes.com/athletic/6769500/2025/11/03/leeds-united-daniel-farke-brighton/
+
 **Brighton dodge the Bananenschale. Now Hurzeler will demand this kind of performance**\
 `Everything pointed to three points against Leeds, which is when Brighton supporters get worried`\
 https://nytimes.com/athletic/6716161/2025/11/03/brighton-bananenschale-fabian-hurzeler-leeds/
-
-**Crystal Palace don't just score from transitions. They are thriving from set pieces too**\
-`Since Oliver Glasner’s arrival, Palace have had success both in and out of open play`\
-https://nytimes.com/athletic/6762883/2025/11/03/crystal-palace-set-pieces-oliver-glasner/
 
