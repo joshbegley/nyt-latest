@@ -1,3 +1,7 @@
+**Denny Hamlin’s most agonizing day: ‘In this moment, I never want to race again’**\
+`Everything was lining up for Denny Hamlin to claim his elusive first NASCAR Cup Series title. Then came another cruel twist of fate.`\
+https://nytimes.com/athletic/6772087/2025/11/02/denny-hamlin-nascar-championship-race-kyle-larson/
+
 **What Ben Johnson, Caleb Williams and Colston Loveland saw on the Bears' winning TD**\
 `Johnson got the coverage he wanted, Williams delivered the pass and Loveland went the distance to save the day for the Bears.`\
 https://nytimes.com/athletic/6771968/2025/11/02/bears-colston-loveland-caleb-williams-bengals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6771846/2025/11/02/49ers-giants-win-injury-mykel-wi
 **Josh Allen, Bills beat Chiefs for 5th straight time in regular season: Takeaways**\
 `Allen ran for two touchdowns and passed for another and the Buffalo defense denied a Patrick Mahomes Hail Mary pass attempt to win 28-21.`\
 https://nytimes.com/athletic/6771855/2025/11/02/bills-josh-allen-score-result-takeaways-week-9-nfl/
-
-**As Giants bottom out with loss to 49ers, there's little hope of turnaround with this regime**\
-`The Giants allowed a severely depleted 49ers team come in and get a commanding win.`\
-https://nytimes.com/athletic/6771877/2025/11/02/giants-jaxson-dart-brian-daboll-loss-49ers/
 

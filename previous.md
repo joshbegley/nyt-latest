@@ -1,3 +1,11 @@
+**What Ben Johnson, Caleb Williams and Colston Loveland saw on the Bears' winning TD**\
+`Johnson got the coverage he wanted, Williams delivered the pass and Loveland went the distance to save the day for the Bears.`\
+https://nytimes.com/athletic/6771968/2025/11/02/bears-colston-loveland-caleb-williams-bengals/
+
+**Chargers rally around Daiyan Henley after brother's killing: 'This game was for him'**\
+`Henley's brother, Jabari, died Friday in Los Angeles of multiple gunshot wounds, with the cause of death ruled a homicide.`\
+https://nytimes.com/athletic/6771954/2025/11/02/chargers-daiyan-henley-brother-jabari-death/
+
 **Mac Jones shines for 49ers yet again, in what might be his last chance this season**\
 `Jones didn't miss a pass in the first half and improved to 5-2 as a starter this season, as Brock Purdy nears his return from injury.`\
 https://nytimes.com/athletic/6771915/2025/11/02/mac-jones-49ers-giants-brock-purdy/
@@ -12,7 +20,7 @@ https://nytimes.com/interactive/2025/11/02/upshot/ten-minute-challenge-flowers.h
 
 **Penix Jr., Morris believe Patriots simulated snap count on crucial play**\
 `The television replay didn't appear to show the Patriots' front seven clapping.`\
-https://nytimes.com/athletic/6771991/2025/11/02/snap-count-simulation/
+https://nytimes.com/athletic/6771991/2025/11/02/falcons-patriots-snap-count-simulation/
 
 **Another week, another way to lose as Falcons fall to Patriots**\
 `Atlanta dropped its third straight overall and eighth straight to New England on Sunday, missing a late PAT and losing 24-23.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6771855/2025/11/02/bills-josh-allen-score-result-ta
 **As Giants bottom out with loss to 49ers, there's little hope of turnaround with this regime**\
 `The Giants allowed a severely depleted 49ers team come in and get a commanding win.`\
 https://nytimes.com/athletic/6771877/2025/11/02/giants-jaxson-dart-brian-daboll-loss-49ers/
-
-**Winning ugly? Why Broncos' win in Houston showcases traits of a real contender**\
-`The Broncos proved again they are the NFL's best fourth-quarter team, the biggest reason to believe they can vie for a championship.`\
-https://nytimes.com/athletic/6771861/2025/11/02/broncos-beat-texans-bo-nix-sean-payton/
-
-**Saints-Rams takeaways: Matthew Stafford throws 4 TD passes in blowout of New Orleans**\
-`The Rams had a massive advantage in time of possession, including holding the ball for nearly 14 minutes in the third quarter.`\
-https://nytimes.com/athletic/6771867/2025/11/02/saints-rams-takeaways-matthew-stafford-throws-4-td-passes-in-blowout-of-new-orleans/
 

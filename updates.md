@@ -1,3 +1,15 @@
+**What Ben Johnson, Caleb Williams and Colston Loveland saw on the Bears' winning TD**\
+`Johnson got the coverage he wanted, Williams delivered the pass and Loveland went the distance to save the day for the Bears.`\
+https://nytimes.com/athletic/6771968/2025/11/02/bears-colston-loveland-caleb-williams-bengals/
+
+**Chargers rally around Daiyan Henley after brother's killing: 'This game was for him'**\
+`Henley's brother, Jabari, died Friday in Los Angeles of multiple gunshot wounds, with the cause of death ruled a homicide.`\
+https://nytimes.com/athletic/6771954/2025/11/02/chargers-daiyan-henley-brother-jabari-death/
+
+**Penix Jr., Morris believe Patriots simulated snap count on crucial play**\
+`The television replay didn't appear to show the Patriots' front seven clapping.`\
+https://nytimes.com/athletic/6771991/2025/11/02/falcons-patriots-snap-count-simulation/
+
 **Mac Jones shines for 49ers yet again, in what might be his last chance this season**\
 `Jones didn't miss a pass in the first half and improved to 5-2 as a starter this season, as Brock Purdy nears his return from injury.`\
 https://nytimes.com/athletic/6771915/2025/11/02/mac-jones-49ers-giants-brock-purdy/
