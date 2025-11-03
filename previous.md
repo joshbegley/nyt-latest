@@ -2,7 +2,7 @@
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2025/11/02/upshot/ten-minute-challenge-flowers.html
 
-**Penix, Morris believe Patriots simulated snap count on crucial play**\
+**Penix Jr., Morris believe Patriots simulated snap count on crucial play**\
 `The television replay didn't appear to show the Patriots' front seven clapping.`\
 https://nytimes.com/athletic/6771991/2025/11/02/penix-morris-believe-patriots-simulated-snap-count-on-crucial-play/
 
