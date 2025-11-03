@@ -1,3 +1,7 @@
+**In Israel, an Unfamiliar Word Is Heard: Peace**\
+`A new kind of Mideast peace process is underway, as a determined Trump administration and its allies in the Muslim world seek to broaden a tenuous cease-fire between Israel and Hamas.`\
+https://nytimes.com/2025/11/03/world/middleeast/in-israel-an-unfamiliar-word-is-heard-peace.html
+
 **Jennifer Lawrence on ‘Breaking Up’ With Hollywood**\
 `At the peak of Jennifer Lawrence’s fame, it seemed like people couldn’t get enough. Privately, she was waiting for the backlash. On “The Interview,” Lawrence discussed her decision to take a break from acting.`\
 https://nytimes.com/video/podcasts/100000010498529/jennifer-lawrence-on-breaking-up-with-hollywood.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/03/us/politics/us-elections-democrats-trump.html
 **A South African Choreographer’s ‘Pinch Me’ Moment in Paris**\
 `Mthuthuzeli November was determined to get out of his impoverished home town. Now has his work alongside George Balanchine at the Paris Opera Ballet.`\
 https://nytimes.com/2025/11/03/arts/dance/mthuthuzeli-november-rhapsodies-paris-opera-ballet.html
-
-**Martha Stewart Transformed the Dinner Party. Was That a Good Thing?**\
-`With “Entertaining,” a seminal cookbook that’s being newly reissued, the original lifestyle influencer changed the culture and built her empire.`\
-https://nytimes.com/2025/11/03/dining/martha-stewart-entertaining-dinner-parties.html
 
