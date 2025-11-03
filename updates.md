@@ -1,3 +1,27 @@
+**2025 Heisman Trophy odds: Julian Sayin makes his move**\
+`The Heisman race is far from decided, but Julian Sayin is the clear frontrunner entering the second week of November.`\
+https://nytimes.com/athletic/6772839/2025/11/03/heisman-trophy-odds-julian-sayin/
+
+**Oxlade-Chamberlain training at Arsenal while a free agent**\
+`The 32-year-old had his contract terminated by Besiktas in August and previously attracted interest from Birmingham City.`\
+https://nytimes.com/athletic/6773277/2025/11/03/alex-oxlade-chamberlain-arsenal/
+
+**Mamdani Crosses Brooklyn Bridge at Sunrise to Signal ‘New Day’ for City**\
+`Zohran Mamdani, the Democratic front-runner in the New York City mayoral race, marched under the bridge’s arches with elected officials, holding a banner that said, “Our Time Is Now.”`\
+https://nytimes.com/2025/11/03/nyregion/mamdani-march-brooklyn-bridge-nyc-mayor-election.html
+
+**What to Know About the Louvre Heist Investigation**\
+`Three of the four people whom the police believe carried out the theft have been arrested. But the jewelry is nowhere to be found.`\
+https://nytimes.com/2025/11/03/world/europe/louvre-museum-robbery-suspects-investigation.html
+
+**Jaelan Phillips trade grades: Eagles address major weakness, as Dolphins prepare for future**\
+`The Eagles' pass rush has been a problem so far this season. GM Howie Roseman clearly believes Phillips can be a big part of the solution. `\
+https://nytimes.com/athletic/6773441/2025/11/03/jaelan-phillips-trade-grades-eagles-dolphins/
+
+**Mamdani Mocks Cuomo After Trump Offers His Reluctant Backing**\
+`“I know how hard you worked for this,” Zohran Mamdani said on social media after his chief rival in the New York City mayor’s race, former Gov. Andrew M. Cuomo, received tepid support from President Trump.`\
+https://nytimes.com/2025/11/03/nyregion/trump-cuomo-endorsement-mamdani.html
+
 **Margaret Atwood Leans Into Her Dark Side in a New Memoir**\
 `“Book of Lives” offers two distinct versions of the esteemed novelist: “Peggy Nature” and “the brooder.”`\
 https://nytimes.com/2025/11/03/books/review/margaret-atwood-book-of-lives.html
