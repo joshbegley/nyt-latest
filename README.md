@@ -1,3 +1,15 @@
+**Are there 'signs of life' for Celtic, Rangers and Scottish football after their cup clash?**\
+`It's been a terrible season for the Old Firm – and Scottish football in general – but did the Scottish Cup semi-final show all is not lost?`\
+https://nytimes.com/athletic/6771495/2025/11/03/celtic-rangers-scottish-league-cup-result/
+
+**The saga of Mary Earps and Hannah Hampton proves our heroes are human**\
+`An extract of Mary Earps’ new autobiography was published at the weekend and there's a temptation to reach for the big, obvious take`\
+https://nytimes.com/athletic/6770329/2025/11/03/mary-earps-autobiography-reaction/
+
+**Newcastle's worst performance under Eddie Howe? It was pretty s*****\
+`A great opportunity for Newcastle United had become a great test. The results from the test are in: abject failure`\
+https://nytimes.com/athletic/6771133/2025/11/03/newcastle-howe-worst-performance/
+
 **Brighton dodge the Bananenschale. Now Hurzeler will demand this kind of performance**\
 `Everything pointed to three points against Leeds, which is when Brighton supporters get worried`\
 https://nytimes.com/athletic/6716161/2025/11/03/brighton-bananenschale-fabian-hurzeler-leeds/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6769598/2025/11/03/moises-caicedo-declan-rice-vote/
 **The day West Ham woke up: Could we see another Nunolution?**\
 `The struggling London club put in their best display of the season against Newcastle and will be hoping it's a sign of things to come`\
 https://nytimes.com/athletic/6770627/2025/11/03/west-ham-nuno-premier-league-win/
-
-**Fantasy football Week 9 takeaways: Joe Flacco, Kyle Monangai grab the spotlight**\
-`Michael Salfino shares his observations for Week 9, including headliner performances from an unlikely cast of characters.`\
-https://nytimes.com/athletic/6771789/2025/11/03/fantasy-football-week-9-takeaways-joe-flacco-kyle-monangai-grab-the-spotlight/
-
-**Salah's 250 Liverpool goals: Record 16 vs Man Utd and scoring at a faster rate than Ian Rush**\
-`Breaking down the Egyptian's incredible scoring after his latest milestone`\
-https://nytimes.com/athletic/6770404/2025/11/03/salah-250-liverpool-goals-broken-down/
-
-**Arrests in Louvre Heist Show Power of DNA Databases in Solving Crimes**\
-`France’s trove of DNA profiles has helped solve high-profile crimes and was used to find some of the Louvre suspects, and it is growing. The police can also access other countries’ databases.`\
-https://nytimes.com/2025/11/03/world/europe/louvre-heist-dna-databases.html
 
