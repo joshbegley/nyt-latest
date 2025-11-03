@@ -1,3 +1,7 @@
+**Mamdani Mocks Cuomo After Trump Offers His Backing**\
+`“I know how hard you worked for this,” Zohran Mamdani said on social media after his chief rival in the New York City mayor’s race, former Gov. Andrew M. Cuomo, received tepid support from President Trump.`\
+https://nytimes.com/2025/11/03/nyregion/trump-cuomo-endorsement-mamdani.html
+
 **OpenAI Signs $38 Billion Cloud Computing Deal With Amazon**\
 `After signing agreements to use computing power from Nvidia, AMD and Oracle, OpenAI is partnering with the world’s largest cloud computing company.`\
 https://nytimes.com/2025/11/03/technology/openai-amazon-cloud-computing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/03/business/dealbook/trump-tariffs-supreme-court.htm
 **The Pulse: Who’s in and out at NFL’s halfway mark**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/6772865/2025/11/03/nfl-playoff-picture-week-9-the-pulse/
-
-**2025 NFL Playoff Simulator: Each team’s path to the postseason after Week 9's Sunday slate**\
-`<p>Welcome to The Athletic’s 2025 NFL Playoff Simulator, where you’ll find everything you need to know about all the ways your favorite team&#8217;s season could end, from a No.`\
-https://nytimes.com/athletic/6513952/2025/11/03/2025-nfl-playoff-simulator-path-postseason/
 
