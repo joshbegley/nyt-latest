@@ -1,7 +1,3 @@
-**Steelers defense comes back to life in 'statement' win over powerful Colts**\
-`Pittsburgh snapped a two-game losing streak with a vintage performance.`\
-https://nytimes.com/athletic/6771904/2025/11/02/pittsburgh-steelers-defense-indianapolis-colts-victory/
-
 **Bears Outlast Bengals in Wild Back-and-Forth Game**\
 `The Chicago Bears beat the Cincinnati Bengals, 47-42, in Week 9, scoring the winning touchdown with 17 seconds left after surviving a late defensive collapse.`\
 https://nytimes.com/video/the-athletic/100000010497980/bears-outlast-bengals-in-wild-back-and-forth-game.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6771968/2025/11/02/bears-colston-loveland-caleb-wil
 **Chargers rally around Daiyan Henley after brother's killing: 'This game was for him'**\
 `Henley's brother, Jabari, died Friday in Los Angeles of multiple gunshot wounds, with the cause of death ruled a homicide.`\
 https://nytimes.com/athletic/6771954/2025/11/02/chargers-daiyan-henley-brother-jabari-death/
+
+**Mac Jones shines for 49ers yet again, in what might be his last chance this season**\
+`Jones didn't miss a pass in the first half and improved to 5-2 as a starter this season, as Brock Purdy nears his return from injury.`\
+https://nytimes.com/athletic/6771915/2025/11/02/mac-jones-49ers-giants-brock-purdy/
 

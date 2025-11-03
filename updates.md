@@ -1,3 +1,7 @@
+**Steelers defense comes back to life in 'statement' win over powerful Colts**\
+`Pittsburgh snapped a two-game losing streak with a vintage performance.`\
+https://nytimes.com/athletic/6771904/2025/11/02/pittsburgh-steelers-defense-indianapolis-colts-victory/
+
 **Bears Outlast Bengals in Wild Back-and-Forth Game**\
 `The Chicago Bears beat the Cincinnati Bengals, 47-42, in Week 9, scoring the winning touchdown with 17 seconds left after surviving a late defensive collapse.`\
 https://nytimes.com/video/the-athletic/100000010497980/bears-outlast-bengals-in-wild-back-and-forth-game.html
