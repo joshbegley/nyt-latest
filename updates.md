@@ -1,3 +1,7 @@
+**Trump Says War With Venezuela Is Unlikely but Suggests Maduro’s Time Is Up**\
+`In an interview with “60 Minutes,” President Trump was circumspect on potential escalation targeting Venezuela. He was also pressed on deportations, the government shutdown and his recent demand for nuclear tests.`\
+https://nytimes.com/2025/11/02/us/politics/trump-venezuela-shutdown-nuclear.html
+
 **Raptors trying to rekindle hope as Toronto mourns the Blue Jays**\
 `The Raptors have to provide a baseline of hope for Toronto to truly buy in, and they haven’t come out by making a statement.`\
 https://nytimes.com/athletic/6772310/2025/11/02/toronto-raptors-blue-jays-hope/
