@@ -1,3 +1,7 @@
+**F1 decides what driver radio clips you hear. The process is always changing**\
+`F1's decisions over the airing of team radio messages have formed part of a recent debate on the sport's broadcasting. Here's how they work`\
+https://nytimes.com/athletic/6773087/2025/11/03/how-f1-team-radio-works/
+
 **Torre dei Conti Partially Collapses in Rome, Causing Injuries**\
 `The medieval tower, near the Colosseum, was undergoing restoration work. One man was seriously injured, Italian news media reported.`\
 https://nytimes.com/2025/11/03/world/europe/tower-collapse-rome-colosseum-torre-dei-conti.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6773045/2025/11/03/inside-barcelona-camp-nou-peru-f
 **Wolves in talks over O'Neil reunion, Ten Hag among club's other options**\
 `Wolves are exploring a reunion with O'Neil in parallel to other options, with no decision on Vitor Pereira's successor expected this week.`\
 https://nytimes.com/athletic/6770826/2025/11/03/wolves-gary-oneil-erik-ten-hag-manager/
-
-**Dolphins trade linebacker Jaelan Phillips to Eagles: Sources**\
-`When healthy, Phillips — a first-round pick in 2021 — has been a reliable pass rusher in his first five NFL seasons.`\
-https://nytimes.com/athletic/6754348/2025/11/03/jaelan-phillips-trade-eagles-dolphins/
 

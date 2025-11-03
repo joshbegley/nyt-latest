@@ -1,3 +1,31 @@
+**Torre dei Conti Partially Collapses in Rome, Causing Injuries**\
+`The medieval tower, near the Colosseum, was undergoing restoration work. One man was seriously injured, Italian news media reported.`\
+https://nytimes.com/2025/11/03/world/europe/tower-collapse-rome-colosseum-torre-dei-conti.html
+
+**Trump Administration Live Updates: Judge Extends Block on National Guard Deployment to Portland**\
+``\
+https://nytimes.com/live/2025/11/03/us/trump-news
+
+**A small liberal arts school needed a coach. The 73-year-old inventor of the Air Raid showed up**\
+`The 73-year-old Hal Mumme, one of the Air Raid's inventors, is still coaching — this time, at a private college with 700 students. `\
+https://nytimes.com/athletic/6766547/2025/11/03/college-football-air-raid-hal-mumme-centenary-college/
+
+**Do You Know These Family Sagas of Page and Screen?**\
+`The trials and tribulations of related people can really propel a plot. See how many novels and their adaptations you recognize in this short quiz.`\
+https://nytimes.com/interactive/2025/11/03/books/review/family-sagas-quiz.html
+
+**Lowetide: How the Oilers' trade needs are evolving early this season**\
+`There's uncertainty about what positions on the depth chart the Oilers need to upgrade for the playoffs.`\
+https://nytimes.com/athletic/6771039/2025/11/03/edmonton-oilers-nhl-trades-alex-tuch-goalies/
+
+**Dodgers-Blue Jays Game 7 draws highest World Series ratings since 2017**\
+`Game 7 averaged 25.984 million viewers across FOX, FOX Deportes and FOX Sports streaming platforms.`\
+https://nytimes.com/athletic/6772619/2025/11/03/dodgers-blue-jays-game-7-world-series-ratings/
+
+**Dylan Raiola's injury a nightmare scenario for Nebraska, but don't dwell on what-ifs**\
+`Nebraska players are not the victims of circumstance; they are the beneficiaries of circumstance inside a resource-rich Big Ten program.`\
+https://nytimes.com/athletic/6771905/2025/11/03/nebraska-dylan-raiola-usc-loss/
+
 **Inside Barcelona: Injuries, a friendly in Peru and are they finally returning to the Camp Nou?**\
 `Could Barca really play a friendly in Peru over the winter break? And what are their hopes for an open training session at the Camp Nou?`\
 https://nytimes.com/athletic/6773045/2025/11/03/inside-barcelona-camp-nou-peru-friendly/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6770826/2025/11/03/wolves-gary-oneil-erik-ten-hag-m
 **Dolphins trade linebacker Jaelan Phillips to Eagles: Sources**\
 `When healthy, Phillips — a first-round pick in 2021 — has been a reliable pass rusher in his first five NFL seasons.`\
 https://nytimes.com/athletic/6754348/2025/11/03/jaelan-phillips-trade-eagles-dolphins/
-
-**The Athletic 136: Amid ACC chaos, don't forget about Louisville**\
-`After Week 10, the jumbled-up ACC makes putting together a 12-team field, let alone a ranking of the entire FBS, a lot more difficult.`\
-https://nytimes.com/athletic/6772805/2025/11/03/college-football-team-rankings-louisville-miami/
-
-**FPL Gameweek 10 takeaways: Eyeing Enzo, the Gyokeres issue, and differential Salah**\
-`From Arsenal’s incredible defensive run to the latest dilemma up front with Gyokeres and Salah, there’s plenty to unpack`\
-https://nytimes.com/athletic/6771332/2025/11/03/fantasy-premier-league-gameweek-10-salah-gyokeres-enzo-haaland/
-
-**Inside Newcastle Q&A: Chris Waugh answers your questions**\
-`After the defeat at West Ham, put your Newcastle questions to our writer Chris Waugh, and he will endeavour to answer as many as possible`\
-https://nytimes.com/athletic/6773150/2025/11/03/newcastle-united-qa-premier-league-eddie-howe/
-
-**Kimberly-Clark Agrees to Buy Kenvue, Maker of Tylenol, for $40 Billion**\
-`The owner of Kleenex and Huggies will acquire the embattled company, which has fought claims by the Trump administration that a common pain reliever is linked to harmful side effects.`\
-https://nytimes.com/2025/11/03/business/kimberly-clark-kenvue.html
-
-**Can Michigan basketball meet the moment? 5 pressing questions for a revamped roster**\
-`Offseason roster-building was a success. Now, the team-building is ongoing for a Michigan men's basketball team with soaring expectations.`\
-https://nytimes.com/athletic/6771100/2025/11/03/michigan-wolverines-mens-basketball-preview/
-
-**Here’s the latest.**\
-`By Maya King`\
-https://nytimes.com/live/2025/11/03/nyregion/nyc-mayor-election-news/heres-the-latest
-
-**N.Y.C. Mayor’s Race Live Updates: Candidates Make Final Push Before Election Day**\
-`Early voting ended Sunday, with more than 735,000 ballots cast. Polls are closed Monday but will reopen on Tuesday from 6 a.m. to 9 p.m.`\
-https://nytimes.com/live/2025/11/03/nyregion/nyc-mayor-election-news
 
