@@ -1,3 +1,11 @@
+**How the Democratic Party Can Beat Trumpism**\
+`The Democratic Party does not need to choose to be one thing. It needs to choose to be more things.`\
+https://nytimes.com/video/opinion/100000010495235/how-the-democratic-party-can-beat-trumpism.html
+
+**What Is the Human Cost of Haute Couture?**\
+`“Lacrima,” a play from the French playwright and director Caroline Guiela Nguyen, explores the hidden stories woven into luxury fashion.`\
+https://nytimes.com/2025/11/03/style/lacrima-bam-nyc-play-caroline-guiela-nguyen.html
+
 **Trump’s ‘Forever Shutdown’**\
 `The president seems to think “the shutdown gives him more power,” Jamelle Bouie says at the round table on “The Opinions” with Michelle Cottle and David French. But what Trump doesn’t seem to understand, he argues, are the practical implications of keeping this going.`\
 https://nytimes.com/video/opinion/100000010491338/trumps-forever-shutdown.html
