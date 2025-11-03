@@ -1,3 +1,7 @@
+**La Scala’s First ‘Ring’ in a Decade Passes the Wagnerian Flame**\
+`Two conductors — a mentor and a protégé, both trained as pianists — bring precision and lyricism to the first new staging of Wagner’s epic in a decade.`\
+https://nytimes.com/2025/11/03/arts/la-scala-wagner-ring-cycle.html
+
 **Southampton in talks to sign former midfielder Romeu**\
 `The midfielder originally joined the south-coast side in 2015 and has been without a club since leaving Barcelona this summer.`\
 https://nytimes.com/athletic/6773647/2025/11/03/oriol-romeu-southampton-transfer-barcelona/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6773636/2025/11/03/st-thomas-vs-iowa-state-stream-h
 **After Fleeing a Massacre, Survivors Encountered Still More Gunfire and Abductions**\
 `Thousands of people who witnessed atrocities have tried to escape El Fasher in Sudan’s Darfur region since paramilitary fighters seized that city in late October.`\
 https://nytimes.com/2025/11/03/world/africa/sudan-el-fasher-darfur-massacre-rsf.html
-
-**You Don’t Need to Swipe Right. A.I. Is Transforming Dating Apps.**\
-`Meet your artificial intelligence matchmakers. These A.I. tools are changing dating apps, so users don’t have to swipe through an endless scroll of profiles.`\
-https://nytimes.com/2025/11/03/technology/ai-dating-apps.html
 
