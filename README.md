@@ -1,3 +1,15 @@
+**Brighton dodge the Bananenschale. Now Hurzeler will demand this kind of performance**\
+`Everything pointed to three points against Leeds, which is when Brighton supporters get worried`\
+https://nytimes.com/athletic/6716161/2025/11/03/brighton-bananenschale-fabian-hurzeler-leeds/
+
+**Crystal Palace don't just score from transitions. They are thriving from set pieces too**\
+`Since Oliver Glasner’s arrival, Palace have had success both in and out of open play`\
+https://nytimes.com/athletic/6762883/2025/11/03/crystal-palace-set-pieces-oliver-glasner/
+
+**The Briefing: Should Frank bow to The Spurs Way? What do Rice and Caicedo say of transfer fees? How true is the table?**\
+`Analysis of the Premier League weekend, including Tottenham's identity crisis, two outstanding midfielders and what sense the table makes`\
+https://nytimes.com/athletic/6771366/2025/11/03/frank-spurs-way/
+
 **Does it matter if players don’t clap their fans?**\
 `Spence and Van de Ven declined to take part in football's post-match applause ritual. It is a breach of an unwritten rule but also... fine`\
 https://nytimes.com/athletic/6771127/2025/11/03/players-clap-fans-spurs-wolves/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6770404/2025/11/03/salah-250-liverpool-goals-broken
 **Arrests in Louvre Heist Show Power of DNA Databases in Solving Crimes**\
 `France’s trove of DNA profiles has helped solve high-profile crimes and was used to find some of the Louvre suspects, and it is growing. The police can also access other countries’ databases.`\
 https://nytimes.com/2025/11/03/world/europe/louvre-heist-dna-databases.html
-
-**No Corrections: Nov. 3, 2025**\
-`No corrections appeared in print on Monday, Nov. 3, 2025.`\
-https://nytimes.com/2025/11/03/pageoneplus/no-corrections-nov-3-2025.html
-
-**Quote of the Day: In Dark Year for Los Angeles, Dodgers’ Win Is Soothing Glow**\
-`Quotation of the Day for Monday, November 3, 2025.`\
-https://nytimes.com/2025/11/03/pageoneplus/quote-of-the-day-in-dark-year-for-los-angeles-dodgers-win-is-soothing-glow.html
-
-**Connections: Sports Edition Coach: Hints for Nov. 3, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6772351/2025/11/03/connections-sports-edition-hints-for-nov-3-2025/
 
