@@ -1,3 +1,11 @@
+**What’s Going to Happen With the A.I. Mental Health Crisis?**\
+`The “Hard Fork” hosts Kevin Roose and Casey Newton talk about major developments in the world of chatbots, safety and mental health.`\
+https://nytimes.com/video/podcasts/100000010499733/whats-going-to-happen-with-the-ai-mental-health-crisis.html
+
+**When Chuseok Means a Full Moon and Handmade Rice Cakes**\
+`Leaders and supporters of Gyopo, a Los Angeles arts and culture organization, honored the holiday, also known as Korean Thanksgiving, with a joyous feast.`\
+https://nytimes.com/2025/11/03/t-magazine/when-chuseok-means-a-full-moon-and-handmade-rice-cakes.html
+
 **A Big Moment for Women in India**\
 `My colleague Mujib Mashal writes about how a huge victory on the cricket ground could change the lives of women and girls.`\
 https://nytimes.com/2025/11/03/world/cricket-women-india-new-york-zohran-mamdani-bangkok.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6774380/2025/11/03/2026-ncaa-womens-college-basketb
 **Racing finished in ninth place the past four NWSL seasons. This year, they broke the curse**\
 `Racing Louisville ended a four-year run of finishing the NWSL season in ninth on Sunday.`\
 https://nytimes.com/athletic/6772955/2025/11/03/racing-louisville-nwsl-playoff-bound/
-
-**Target Shooting Could Be Causing Brain Injuries. We Measured the Danger.**\
-`The Times tested the blast waves of several popular civilian guns at an indoor range and found that repeated firing could add up to potentially harmful exposure.`\
-https://nytimes.com/interactive/2025/11/03/us/gun-ranges-brain-injuries.html
-
-**How to watch Georgia vs. Mississippi State: Time, TV, streaming**\
-`Find out how to watch the Georgia Bulldogs play the Mississippi State Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6774689/2025/11/03/georgia-vs-mississippi-state-stream-how-to-watch-nov-8/
 
