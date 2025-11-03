@@ -1,3 +1,7 @@
+**Seahawks-Commanders takeaways: Sam Darnold throws 4 touchdown passes, Jayden Daniels hurt**\
+`The Seattle quarterback improved to 20-5 as a starter dating back to 2024 while his counterpart suffered a serious arm injury.`\
+https://nytimes.com/athletic/6772442/2025/11/02/seahawks-commanders-score-result-takeaways-week-9-snf-nfl/
+
 **NWSL Decision Day recap: Racing celebrates, Current earns crucial win and an exciting rematch**\
 `Who's in and who's out: Recapping the key moments from the 2025 NWSL Decision Day.`\
 https://nytimes.com/athletic/6772244/2025/11/02/nwsl-decision-day-2025-recap/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6740291/2025/11/02/mls-cup-2025-playoff-bracket-ful
 **Raptors trying to rekindle hope as Toronto mourns the Blue Jays**\
 `The Raptors have to provide a baseline of hope for Toronto to truly buy in, and they haven’t come out by making a statement.`\
 https://nytimes.com/athletic/6772310/2025/11/02/toronto-raptors-blue-jays-hope/
-
-**2025 Gold Glove Award winners: 3 players win for the fourth time**\
-`There was only one player total from the Dodgers and Blue Jays. Nine players are first-time winners.`\
-https://nytimes.com/athletic/6772120/2025/11/02/gold-glove-winners-2025-mlb/
 

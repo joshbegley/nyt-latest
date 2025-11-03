@@ -1,3 +1,7 @@
+**Seahawks-Commanders takeaways: Sam Darnold throws 4 touchdown passes, Jayden Daniels hurt**\
+`The Seattle quarterback improved to 20-5 as a starter dating back to 2024 while his counterpart suffered a serious arm injury.`\
+https://nytimes.com/athletic/6772442/2025/11/02/seahawks-commanders-score-result-takeaways-week-9-snf-nfl/
+
 **NWSL Decision Day recap: Racing celebrates, Current earns crucial win and an exciting rematch**\
 `Who's in and who's out: Recapping the key moments from the 2025 NWSL Decision Day.`\
 https://nytimes.com/athletic/6772244/2025/11/02/nwsl-decision-day-2025-recap/
