@@ -1,3 +1,15 @@
+**Martha Layne Collins, 88, Dies; Kentucky’s First Female Governor**\
+`She rose from a junior high school teacher to the state’s top official, and helped persuade Toyota to build its first American factory in Georgetown, Ky.`\
+https://nytimes.com/2025/11/02/obituaries/martha-layne-collins-dead.html
+
+**As Patriots top Falcons to move to 7-2, it's time to make a trade before the deadline**\
+`The Patriots eked out a win against the visiting Falcons, but there are areas that need to be improved. Why not go all in with a trade?`\
+https://nytimes.com/athletic/6771815/2025/11/02/patriots-falcons-nfl-trade-deadline/
+
+**Joel Embiid's 'lewd gesture' against Celtics draws fine from NBA**\
+`The seven-time All-Star was fined $50,000 after his "DX Chop."`\
+https://nytimes.com/athletic/6771811/2025/11/02/joel-embiid-76ers-fine-dx-chop-celtics-nba/
+
 **Thousands Celebrate the 54th New York City Marathon**\
 `Starting in Staten Island and winding through all five boroughs, the 26.2-mile race brought fans out in the thousands to cheer for professional and first-time marathon runners.`\
 https://nytimes.com/video/us/100000010496916/new-york-city-marathon.html
