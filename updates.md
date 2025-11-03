@@ -1,3 +1,15 @@
+**Bears lose defensive end Dayo Odeyingbo to torn Achilles: Report**\
+`The Bears are squarely in the trade market for a possible starter to help the pass rush after a rash of injuries.`\
+https://nytimes.com/athletic/6774633/2025/11/03/bears-dayo-odeyingbo-achilles-injury/
+
+**How Bernie Sanders Sees Things**\
+`Bernie Sanders has been on a country-wide tour called Fighting Oligarchy. In this episode of “The Opinions” with David Leonhardt, he explains why that’s so important right now and reveals what question he wishes more reporters would ask him.`\
+https://nytimes.com/video/opinion/100000010489809/how-bernie-sanders-sees-things.html
+
+**Bernie Sanders: Democrats Are ‘Way Out of Touch’**\
+`In this episode of “The Opinions,” Senator Bernie Sanders tells David Leonhardt that the party and its leadership need to make big changes to start winning election.`\
+https://nytimes.com/video/opinion/100000010489789/bernie-sanders-democrats-are-way-out-of-touch.html
+
 **Dillon Dingler won a Gold Glove in his first full MLB season. Is this just the start?**\
 `Dingler has realized his potential and just bested Alejandro Kirk and Carlos Narváez for an AL Gold Glove Award.`\
 https://nytimes.com/athletic/6774433/2025/11/03/dillon-dingler-wins-gold-glove-tigers/

@@ -1,3 +1,15 @@
+**Bears lose defensive end Dayo Odeyingbo to torn Achilles: Report**\
+`The Bears are squarely in the trade market for a possible starter to help the pass rush after a rash of injuries.`\
+https://nytimes.com/athletic/6774633/2025/11/03/bears-dayo-odeyingbo-achilles-injury/
+
+**How Bernie Sanders Sees Things**\
+`Bernie Sanders has been on a country-wide tour called Fighting Oligarchy. In this episode of “The Opinions” with David Leonhardt, he explains why that’s so important right now and reveals what question he wishes more reporters would ask him.`\
+https://nytimes.com/video/opinion/100000010489809/how-bernie-sanders-sees-things.html
+
+**Bernie Sanders: Democrats Are ‘Way Out of Touch’**\
+`In this episode of “The Opinions,” Senator Bernie Sanders tells David Leonhardt that the party and its leadership need to make big changes to start winning election.`\
+https://nytimes.com/video/opinion/100000010489789/bernie-sanders-democrats-are-way-out-of-touch.html
+
 **Dillon Dingler won a Gold Glove in his first full MLB season. Is this just the start?**\
 `Dingler has realized his potential and just bested Alejandro Kirk and Carlos Narváez for an AL Gold Glove Award.`\
 https://nytimes.com/athletic/6774433/2025/11/03/dillon-dingler-wins-gold-glove-tigers/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6774687/2025/11/03/texas-a-m-vs-missouri-stream-how
 **How to watch Syracuse vs. Miami (FL): Time, TV, streaming**\
 `Find out how to watch the Syracuse Orange play the Miami (FL) Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6774685/2025/11/03/syracuse-vs-miami-fl-stream-how-to-watch-nov-8/
-
-**How to watch Oregon vs. Iowa: Time, TV, streaming**\
-`Find out how to watch the Oregon Ducks play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6774681/2025/11/03/oregon-vs-iowa-stream-how-to-watch-nov-8/
-
-**How to watch Indiana vs. Penn State: Time, TV, streaming**\
-`Find out how to watch the Indiana Hoosiers play the Penn State Nittany Lions, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6774679/2025/11/03/indiana-vs-penn-state-stream-how-to-watch-nov-8/
-
-**How to watch Colorado vs. West Virginia: Time, TV, streaming**\
-`Find out how to watch the Colorado Buffaloes play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6774677/2025/11/03/colorado-vs-west-virginia-stream-how-to-watch-nov-8/
 
