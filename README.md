@@ -1,3 +1,23 @@
+**2025 Heisman Trophy odds: Julian Sayin makes his move**\
+`The Heisman race is far from decided, but Julian Sayin is the clear frontrunner entering the second week of November.`\
+https://nytimes.com/athletic/6772839/2025/11/03/heisman-trophy-odds-julian-sayin/
+
+**Oxlade-Chamberlain training at Arsenal while a free agent**\
+`The 32-year-old had his contract terminated by Besiktas in August and previously attracted interest from Birmingham City.`\
+https://nytimes.com/athletic/6773277/2025/11/03/alex-oxlade-chamberlain-arsenal/
+
+**Mamdani Crosses Brooklyn Bridge at Sunrise to Signal ‘New Day’ for City**\
+`Zohran Mamdani, the Democratic front-runner in the New York City mayoral race, marched under the bridge’s arches with elected officials, holding a banner that said, “Our Time Is Now.”`\
+https://nytimes.com/2025/11/03/nyregion/mamdani-march-brooklyn-bridge-nyc-mayor-election.html
+
+**What to Know About the Louvre Heist Investigation**\
+`Three of the four people whom the police believe carried out the theft have been arrested. But the jewelry is nowhere to be found.`\
+https://nytimes.com/2025/11/03/world/europe/louvre-museum-robbery-suspects-investigation.html
+
+**Jaelan Phillips trade grades: Eagles address major weakness, as Dolphins prepare for future**\
+`The Eagles' pass rush has been a problem so far this season. GM Howie Roseman clearly believes Phillips can be a big part of the solution. `\
+https://nytimes.com/athletic/6773441/2025/11/03/jaelan-phillips-trade-grades-eagles-dolphins/
+
 **Margaret Atwood Leans Into Her Dark Side in a New Memoir**\
 `“Book of Lives” offers two distinct versions of the esteemed novelist: “Peggy Nature” and “the brooder.”`\
 https://nytimes.com/2025/11/03/books/review/margaret-atwood-book-of-lives.html
@@ -6,7 +26,7 @@ https://nytimes.com/2025/11/03/books/review/margaret-atwood-book-of-lives.html
 `In a statement, the club said Jonathan Gjoshe was currently in hospital with "non life-threatening injuries".`\
 https://nytimes.com/athletic/6773383/2025/11/03/scunthorpe-united-footballer-jonathan-gjoshe-among-11-victims-of-knife-attack-on-uk-train/
 
-**Mamdani Mocks Cuomo After Trump Offers His Backing**\
+**Mamdani Mocks Cuomo After Trump Offers His Reluctant Backing**\
 `“I know how hard you worked for this,” Zohran Mamdani said on social media after his chief rival in the New York City mayor’s race, former Gov. Andrew M. Cuomo, received tepid support from President Trump.`\
 https://nytimes.com/2025/11/03/nyregion/trump-cuomo-endorsement-mamdani.html
 
@@ -17,24 +37,4 @@ https://nytimes.com/2025/11/03/technology/openai-amazon-cloud-computing.html
 **Ford Foundation’s New Leader Vows to Protect Elections and the Rule of Law**\
 `Heather K. Gerken, a voting rights scholar and former dean of Yale Law School, plans to intensify its emphasis on democracy as it girds for attacks from the Trump administration.`\
 https://nytimes.com/2025/11/03/us/politics/ford-foundation-heather-gerken-trump.html
-
-**Now is Cavaliers' time to experiment. They know there's plenty of gas in the tank**\
-`It's not 15-0, but Cavs are using early part of the season to get comfortable in the uncomfortable — such as playing through Evan Mobley.`\
-https://nytimes.com/athletic/6772701/2025/11/03/cavaliers-hawks-early-season-experiments/
-
-**Medieval Tower Partly Collapses in Rome**\
-`The Torre dei Conti, a 13th-century medieval tower near Rome’s Colosseum, partially collapsed on Monday. Two restoration workers had to be rescued, and a third suffered critical injuries.`\
-https://nytimes.com/video/world/europe/100000010498672/torre-dei-conti-collapse-rome.html
-
-**'The transfer didn't work': Fullkrug's agent says West Ham exit 'makes sense'**\
-`The 32-year-old has struggled for form and fitness since signing a four-year deal with West Ham in August 2024 after joining from Dortmund.`\
-https://nytimes.com/athletic/6773271/2025/11/03/niclas-fullkrug-west-ham-future/
-
-**Two years after Caitlin Clark, Iowa women's basketball still thrives in popularity**\
-`The Hawkeyes have landed big-time recruits and are still selling out games. `\
-https://nytimes.com/athletic/6744149/2025/11/03/iowa-womens-basketball-caitlin-clark-popularity/
-
-**The misery is rising for Pete Carroll's Raiders as another Vegas season slips away**\
-`Barring a dramatic turnaround, the Raiders are heading toward another woeful finish, and some awkward questions.`\
-https://nytimes.com/athletic/6772724/2025/11/03/raiders-jaguars-loss-pete-carroll-brock-bowers/
 
