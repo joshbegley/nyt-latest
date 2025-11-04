@@ -1,3 +1,7 @@
+**In Some Parts of Scotland, ‘The Only Thing We Need Is People’**\
+`Bucking the anti-immigration trend in British politics, remote areas of Scotland would like to attract foreign workers to offset declining local populations.`\
+https://nytimes.com/2025/11/04/world/europe/rural-scotland-immigration-labor-uk.html
+
 **Why It Would Be Trump’s Honor to Pay for Food Stamps**\
 `When Republicans sing Kumbaya.`\
 https://nytimes.com/2025/11/04/opinion/food-stamps-snap-shutdown.html
@@ -22,19 +26,15 @@ https://nytimes.com/2025/11/04/us/politics/sara-albrecht-liberty-justice-center-
 `John Richardson’s “Luigi” takes on the case of a murdered insurance executive and his alleged killer.`\
 https://nytimes.com/2025/11/04/books/review/luigi-john-h-richardson.html
 
-**Trump Is Putting Military Leaders in a No-Win Situation**\
-`Our military leaders are trained to evaluate the legality of orders they are given.`\
-https://nytimes.com/2025/11/04/opinion/trump-military-leadership.html
-
 **New Pentagon Press Crew Is All In on Trump**\
 `The Defense Department’s new press policy led to an exodus of traditional journalists. Supporters of the president have stepped in.`\
 https://nytimes.com/2025/11/04/business/media/new-pentagon-press-crew-is-all-in-on-trump.html
 
+**Trump Is Putting Military Leaders in a No-Win Situation**\
+`Our military leaders are trained to evaluate the legality of orders they are given.`\
+https://nytimes.com/2025/11/04/opinion/trump-military-leadership.html
+
 **What to Know About the Special Election in California**\
 `Voters will decide if California’s voting districts should be redrawn to help Democrats flip up to five House seats.`\
 https://nytimes.com/2025/11/04/us/elections/california-prop-50-election-day.html
-
-**A Storm Hit Alaska. Now, a Native Community Is Racing to Save Its History.**\
-`The remnants of Typhoon Halong scattered artifacts from an archaeological site along the shore of the Bering Sea.`\
-https://nytimes.com/2025/11/04/climate/typhoon-alaska-archaeology.html
 

@@ -1,3 +1,7 @@
+**In Some Parts of Scotland, ‘The Only Thing We Need Is People’**\
+`Bucking the anti-immigration trend in British politics, remote areas of Scotland would like to attract foreign workers to offset declining local populations.`\
+https://nytimes.com/2025/11/04/world/europe/rural-scotland-immigration-labor-uk.html
+
 **Why It Would Be Trump’s Honor to Pay for Food Stamps**\
 `When Republicans sing Kumbaya.`\
 https://nytimes.com/2025/11/04/opinion/food-stamps-snap-shutdown.html
