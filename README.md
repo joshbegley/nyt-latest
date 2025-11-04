@@ -26,6 +26,10 @@ https://nytimes.com/2025/11/04/climate/climate-emissions-united-nations.html
 `Layered attire of different materials showcased an appreciation for textiles.`\
 https://nytimes.com/2025/11/04/style/street-style-look-fabric-layering.html
 
+**Bucks win for Myles Turner after fans boo ex-Pacer**\
+`Milwaukee embraced the jeers and did everything in their power to win Monday's game for their new teammate.`\
+https://nytimes.com/athletic/6776208/2025/11/04/bucks-pacers-myles-turner-result-boos/
+
 **Pennsylvania Supreme Court: What Is a ‘Retention Election’ and How Does It Work?**\
 `Voters will decide whether three justices who were elected as Democrats keep their seats for another 10-year term.`\
 https://nytimes.com/2025/11/04/us/politics/pennsylvania-supreme-court-retention-election-explainer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/04/us/politics/pennsylvania-supreme-court-retention-
 **Pizza Hut’s Parent Says Struggling Chain May Go Up for Sale**\
 `Yum! Brands, which also owns Taco Bell and KFC, said it would explore “strategic options” for the pizza chain, including a sale.`\
 https://nytimes.com/2025/11/04/business/pizza-hut-yum-brands.html
-
-**Cuomo had dreams of becoming a radio star. Then they unraveled.**\
-`By Nicholas Fandos`\
-https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/cuomo-had-dreams-of-becoming-a-radio-star-then-they-unraveled
 
