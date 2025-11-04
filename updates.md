@@ -1,3 +1,7 @@
+**WTA Tour Finals results: Elena Rybakina qualifies after stunning comeback against Iga Świątek**\
+`The best eight WTA tennis players of the year are fighting for supremacy in the season-ending event.`\
+https://nytimes.com/athletic/6763218/2025/11/04/wta-tour-finals-draw-schedule-results-2025/
+
 **Milestone Birthdays**\
 `What big birthdays have you had or are you looking forward to?`\
 https://nytimes.com/2025/11/04/learning/milestone-birthdays.html
