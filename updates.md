@@ -1,3 +1,7 @@
+**Helping homeowners avoid foreclosure, Mamdani found the blueprints to run for mayor.**\
+`By Mihir Zaveri`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/helping-homeowners-avoid-foreclosure-mamdani-found-the-blueprints-to-run-for-mayor
+
 **How to watch Patriots vs. Buccaneers: Time, TV, streaming**\
 `Find out how to watch the New England Patriots play the Tampa Bay Buccaneers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6777880/2025/11/04/patriots-vs-buccaneers-stream-how-to-watch-nov-9/
