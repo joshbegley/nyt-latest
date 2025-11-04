@@ -1,3 +1,11 @@
+**'No feeling compares to this' - Jamie Melham wins Melbourne Cup, defeating husband Ben**\
+`The 29-year-old rode Half Yours to victory in Australia's most famous horse race, with Ben's horse Smokin' Romans 13 places further back.`\
+https://nytimes.com/athletic/6776141/2025/11/04/melbourne-cup-winners-jamie-melham-husband/
+
+**The All Blacks rugby shirt: What makes this sport's most iconic jersey**\
+`The power of the shirt lies not just in its classic design, it is also the way it embodies New Zealand's rugby values`\
+https://nytimes.com/athletic/6767999/2025/11/04/new-zealand-all-blacks-jersey/
+
 **In Some Parts of Scotland, ‘The Only Thing We Need Is People’**\
 `Bucking the anti-immigration trend in British politics, remote areas of Scotland would like to attract foreign workers to offset declining local populations.`\
 https://nytimes.com/2025/11/04/world/europe/rural-scotland-immigration-labor-uk.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/04/books/review/luigi-john-h-richardson.html
 **New Pentagon Press Crew Is All In on Trump**\
 `The Defense Department’s new press policy led to an exodus of traditional journalists. Supporters of the president have stepped in.`\
 https://nytimes.com/2025/11/04/business/media/new-pentagon-press-crew-is-all-in-on-trump.html
-
-**Trump Is Putting Military Leaders in a No-Win Situation**\
-`Our military leaders are trained to evaluate the legality of orders they are given.`\
-https://nytimes.com/2025/11/04/opinion/trump-military-leadership.html
-
-**What to Know About the Special Election in California**\
-`Voters will decide if California’s voting districts should be redrawn to help Democrats flip up to five House seats.`\
-https://nytimes.com/2025/11/04/us/elections/california-prop-50-election-day.html
 
