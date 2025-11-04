@@ -1,3 +1,11 @@
+**China’s Security State Sells an A.I. Dream**\
+`China’s new national drive to embrace artificial intelligence is also giving the authorities new ways to monitor and control its citizens.`\
+https://nytimes.com/2025/11/04/world/asia/china-police-ai-surveillance.html
+
+**Maryland Will Seek to Redraw Its Congressional Map**\
+`Gov. Wes Moore said in a statement on Tuesday that the state would “explore every avenue possible to make sure Maryland has fair and representative maps.”`\
+https://nytimes.com/2025/11/04/us/politics/maryland-redistricting-governor-moore.html
+
 **How to watch Flyers vs. Canadiens: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Flyers play the Montreal Canadiens, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6777036/2025/11/04/flyers-vs-canadiens-stream-how-to-watch-nov-4/
