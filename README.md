@@ -1,3 +1,7 @@
+**WTA Tour Finals results: Elena Rybakina qualifies after stunning comeback against Iga Świątek**\
+`The best eight WTA tennis players of the year are fighting for supremacy in the season-ending event.`\
+https://nytimes.com/athletic/6763218/2025/11/04/wta-tour-finals-draw-schedule-results-2025/
+
 **Milestone Birthdays**\
 `What big birthdays have you had or are you looking forward to?`\
 https://nytimes.com/2025/11/04/learning/milestone-birthdays.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010501063/philippines-kalmaegi-floodi
 **Word of the Day: foster**\
 `This word has appeared in 1,086 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/11/04/learning/word-of-the-day-foster.html
-
-**The Everton midfield, David Moyes' choices and an ongoing pursuit of control**\
-`A point at Sunderland is no cause for complaint, but there is still an edginess and restlessness around Everton as they strive for balance`\
-https://nytimes.com/athletic/6775412/2025/11/04/everton-moyes-midfield-control-sunderland/
 
