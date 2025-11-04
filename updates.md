@@ -1,3 +1,11 @@
+**Mamdani’s voters want free child care. How could he do it?**\
+`Zohran Mamdani’s coalition in the New York mayor’s race includes residents who have questioned whether they can afford to raise children in the city.`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/mamdanis-voters-want-free-child-care-how-could-he-do-it
+
+**Style Detective**\
+``\
+https://nytimes.com/column/style-detective
+
 **​How Two Times Editors Work on Getting Election Results Right**\
 `Accurate, reliable results play a role in free and fair elections. So does explaining the data and helping people understand when and how it will be reported.`\
 https://nytimes.com/2025/11/04/us/election-results-2025.html

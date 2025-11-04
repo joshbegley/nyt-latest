@@ -1,3 +1,15 @@
+**Until Saturday: Of course Hugh Freeze failed**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6777308/2025/11/04/hugh-freeze-fired-auburn-coaching-search-until-saturday/
+
+**Penn Data Breach Involves Decades of Student and Alumni Information**\
+`The hacker seemed focused on the Ivy League school’s admissions preferences.`\
+https://nytimes.com/2025/11/04/us/penn-data-breach-donors-students.html
+
+**How Jamaica Is Dealing With Hurricane Melissa’s Aftermath**\
+`Brent McDonald, a senior video journalist for The New York Times, reports from the area of Jamaica where Hurricane Melissa made landfall with 185-mile-per-hour winds and 13 feet of surge.`\
+https://nytimes.com/video/weather/100000010498935/assessing-hurricane-melissa-devastation.html
+
 **Mamdani’s voters want free child care. How could he do it?**\
 `Zohran Mamdani’s coalition in the New York mayor’s race includes residents who have questioned whether they can afford to raise children in the city.`\
 https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/mamdanis-voters-want-free-child-care-how-could-he-do-it
@@ -21,12 +33,4 @@ https://nytimes.com/athletic/6777191/2025/11/04/falcons-sign-zane-gonzalez-parke
 **Right-Wing Chatbots Turbocharge America’s Political and Cultural Wars**\
 `Once pitched as dispassionate tools to answer your questions, A.I. chatbots are now programmed to reflect the biases of their creators.`\
 https://nytimes.com/2025/11/04/business/right-wing-chatbots-gab-arya-chatgpt-gemini.html
-
-**What’s Next for Gov. Glenn Youngkin of Virginia?**\
-`Mr. Youngkin signaled his national ambitions with trips to Iowa and South Carolina earlier this year, but he has said little about his future plans.`\
-https://nytimes.com/2025/11/04/us/politics/glenn-youngkin-virginia-what-next.html
-
-**Cuomo was contrite about his sexual harassment scandal. Not anymore.**\
-`By Dana Rubinstein and Alyce McFadden`\
-https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/cuomo-was-contrite-about-his-sexual-harassment-scandal-not-anymore
 

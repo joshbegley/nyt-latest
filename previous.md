@@ -1,3 +1,11 @@
+**Mamdani’s voters want free child care. How could he do it?**\
+`Zohran Mamdani’s coalition in the New York mayor’s race includes residents who have questioned whether they can afford to raise children in the city.`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/mamdanis-voters-want-free-child-care-how-could-he-do-it
+
+**Style Detective**\
+``\
+https://nytimes.com/column/style-detective
+
 **​How Two Times Editors Work on Getting Election Results Right**\
 `Accurate, reliable results play a role in free and fair elections. So does explaining the data and helping people understand when and how it will be reported.`\
 https://nytimes.com/2025/11/04/us/election-results-2025.html
@@ -21,12 +29,4 @@ https://nytimes.com/2025/11/04/us/politics/glenn-youngkin-virginia-what-next.htm
 **Cuomo was contrite about his sexual harassment scandal. Not anymore.**\
 `By Dana Rubinstein and Alyce McFadden`\
 https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/cuomo-was-contrite-about-his-sexual-harassment-scandal-not-anymore
-
-**U.S. Seeks Two-Year U.N. Mandate for Gaza Stabilization Force**\
-`A draft Security Council resolution said that an international force would ensure that Gaza be demilitarized, though specifics were unclear.`\
-https://nytimes.com/2025/11/04/world/middleeast/un-mandate-gaza-force.html
-
-**The songs of the mayoral race.**\
-`By Anna Kodé`\
-https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/the-songs-of-the-mayoral-race
 
