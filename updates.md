@@ -1,3 +1,7 @@
+**In New Jersey, voters say Trump influenced their decision in the governor’s race.**\
+`By Taylor Robinson and Mark Bonamo`\
+https://nytimes.com/live/2025/11/04/us/election-new-jersey-california/in-new-jersey-voters-say-trump-influenced-their-decision-in-the-governors-race
+
 **Norman Rockwell’s Family Condemns Homeland Security’s Use of His Work**\
 `In a series of social media posts, the department used the artist’s paintings to promote the Trump administration’s anti-immigration agenda.`\
 https://nytimes.com/2025/11/04/arts/design/norman-rockwell-homeland-security-immigration.html
