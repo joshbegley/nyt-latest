@@ -1,3 +1,7 @@
+**Moultrie extends contract with Thorns through 2029**\
+`The 20-year-old hasn't ruled out going to Europe, but for now is committed to growing even more with the Thorns.`\
+https://nytimes.com/athletic/6774253/2025/11/04/olivia-moultrie-extends-contract-portland-thorns-2029/
+
 **Is the East closing in on the West? Who's in early trouble in the NBA Cup?**\
 `We may be jumping to conclusions, but so far, the perceived bottom of the East has held its own against the top of the West.`\
 https://nytimes.com/athletic/6774816/2025/11/04/nba-eastern-conference-parity-nba-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/how-an-elite-pub
 **Dick Cheney: A Life in Pictures**\
 `The former vice president helped shaped the role of the United States around the world.`\
 https://nytimes.com/2025/11/04/obituaries/dick-cheney-life-career-photos.html
-
-**USL club North Carolina FC tells players it won't field a team in 2026**\
-`Sources are expecting NCFC to finish its playoff run but after that, all players under contract will be released.`\
-https://nytimes.com/athletic/6776649/2025/11/04/north-carolina-fc-usl/
 
