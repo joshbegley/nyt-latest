@@ -1,3 +1,11 @@
+**When F1 had a NASCAR ending. Plus, the first Brazilian GP home star in seven years**\
+`The 2025 NASCAR season ended in controversial fashion thanks to its contrived season finale one-off rules. F1 once nearly had a similar saga`\
+https://nytimes.com/athletic/6777287/2025/11/04/f1-nascar-season-finales/
+
+**Cavaliers' Garland could make season debut Wednesday vs. 76ers: Sources**\
+`Darius Garland underwent surgery in June to repair the injury to his left big toe that forced him out of four playoff games last spring.`\
+https://nytimes.com/athletic/6777375/2025/11/04/cavaliers-darius-garland-76ers-debut/
+
 **In Search of the Great Literary Novel**\
 `Readers respond to a guest essay about the continuing vitality of literary fiction. Also: Exxon vs. California; a Supreme Court split on tactics.`\
 https://nytimes.com/2025/11/04/opinion/novels-fiction.html
