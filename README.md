@@ -1,3 +1,7 @@
+**New Jersey: How to Vote, Where to Vote and What’s on the Ballot**\
+`New Jersey voters will pick a governor on Tuesday in a competitive off-year election.`\
+https://nytimes.com/2025/11/04/us/politics/new-jersey-how-vote-ballot.html
+
 **Ohio State final thoughts: Julian Sayin for Heisman? Can anyone cover Carnell Tate?**\
 `Penn State may be a shell of what was expected, but there was still plenty to take away from another dominant Ohio State win.`\
 https://nytimes.com/athletic/6773725/2025/11/04/ohio-state-julian-sayin-heisman-penn-state/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6774067/2025/11/04/college-football-recruiting-thou
 **Where will Trocheck fit back into the lineup? Evaluating the Rangers' options**\
 `Coach Mike Sullivan has a couple of different options for how to arrange his top nine once Trocheck returns from an upper-body injury.`\
 https://nytimes.com/athletic/6774834/2025/11/04/rangers-vincent-trocheck-lineup-options/
-
-**SEC stadium superlatives: Who has the most underrated (and overrated) venue?**\
-`By seating capacity, the SEC is home to five of the 10 biggest stadiums in the world, and eight of the top 25. Here's what we like best.`\
-https://nytimes.com/athletic/6774451/2025/11/04/best-sec-college-football-stadiums/
 
