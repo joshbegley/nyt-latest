@@ -1,3 +1,31 @@
+**England draw Spain in UEFA World Cup qualifying group**\
+`This summer's European Championship winners England are yet to win a World Cup after losing to Spain in the 2023 final.`\
+https://nytimes.com/athletic/6776290/2025/11/04/england-spain-uefa-world-cup-qualifying-2027/
+
+**Trump Administration Live Updates: Government Shutdown Nears Record**\
+``\
+https://nytimes.com/live/2025/11/04/us/trump-shutdown-news
+
+**Leandro Trossard: Arsenal's quiet leader who is becoming increasingly vocal**\
+`The Belgian is a reliable and increasingly integral part of this Arsenal squad, as they target honours on multiple fronts`\
+https://nytimes.com/athletic/6776087/2025/11/04/leandro-trossard-arsenal-leadership/
+
+**Even the World Series champs have flaws: Here are 3 offseason concerns for Dodgers**\
+`The Dodgers must improve the bullpen, bolster the outfield and attack several other roster issues if they plan to go back-to-back-to-back.`\
+https://nytimes.com/athletic/6767905/2025/11/04/dodgers-offseason-needs-mlb-free-agency/
+
+**The first CFP rankings of 2025 are unveiled on TV. Here's how to watch**\
+`The Playoff committee's initial rankings will get a prime-time audience Tuesday night.`\
+https://nytimes.com/athletic/6774821/2025/11/04/college-football-playoff-rankings-espn-how-to-watch/
+
+**In the N.J. governor’s race, it’s Mikie Sherrill vs. Jack Ciattarelli.**\
+`President Trump has loomed over the campaign, in a usually reliable Democratic-leaning state that has shown signs of shifting right.`\
+https://nytimes.com/live/2025/11/04/us/election-new-jersey-california/in-the-nj-governors-race-its-mikie-sherrill-vs-jack-ciattarelli
+
+**Alexander-Arnold mural in Liverpool vandalised ahead of Real Madrid game**\
+`The image of the former Liverpool right-back on the side of a house near the stadium was splattered with white paint.`\
+https://nytimes.com/athletic/6776395/2025/11/04/alexander-arnold-mural-liverpool-madrid/
+
 **Cowboys finalizing trade for LB Logan Wilson from Bengals: Sources**\
 `A defensive captain for the Bengals, Wilson joins a Cowboys defense that sorely needs help and is giving up more than 30 points per game.`\
 https://nytimes.com/athletic/6776399/2025/11/04/cowboys-bengals-trade-logan-wilson/
@@ -9,32 +37,4 @@ https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/how-eric-adams-l
 **Bessent Plans to Attend Tariff Arguments at the Supreme Court**\
 `Treasury Secretary Scott Bessent dismissed the idea that his presence could be seen as an attempt to intimidate the court on a case that President Trump considers vital to his economic policy.`\
 https://nytimes.com/2025/11/04/us/politics/supreme-court-tariffs-bessent.html
-
-**New Jersey: How to Vote, Where to Vote and What’s on the Ballot**\
-`New Jersey voters will pick a governor on Tuesday in a competitive off-year election.`\
-https://nytimes.com/2025/11/04/us/politics/new-jersey-how-vote-ballot.html
-
-**Ohio State final thoughts: Julian Sayin for Heisman? Can anyone cover Carnell Tate?**\
-`Penn State may be a shell of what was expected, but there was still plenty to take away from another dominant Ohio State win.`\
-https://nytimes.com/athletic/6773725/2025/11/04/ohio-state-julian-sayin-heisman-penn-state/
-
-**Sliwa’s management of the Guardian Angels calls his leadership into question.**\
-`By Debra Kamin`\
-https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/sliwas-management-of-the-guardian-angels-calls-his-leadership-into-question
-
-**At the Gun Range**\
-`Blast waves may be damaging shooters’ brains. The Times has a new investigation on how it happens.`\
-https://nytimes.com/2025/11/04/briefing/at-the-gun-range.html
-
-**Josh Harding opens up on MS, his Wild comeback attempts and life after the NHL**\
-`“I feel like the ending of my career overshadowed my actual career and who I was. … I just hope that fans can recall the good times."`\
-https://nytimes.com/athletic/6774471/2025/11/04/josh-harding-wild-multiple-sclerosis-retirement/
-
-**Draymond Green opens up about his desire to add more "stamps" to his resume**\
-`It would seem Draymond Green’s future Hall of Fame induction is solidified. What else is he hungry for?`\
-https://nytimes.com/athletic/6775309/2025/11/04/draymond-green-wembanyama-defense/
-
-**NBA weekly watch guide: Randle's return to The Garden, Durant vs. Wembanyama in Cup play**\
-`Here are the seven national TV games to look for Tuesday through Friday across pro basketball.`\
-https://nytimes.com/athletic/6774360/2025/11/04/durant-wembanyama-timberwolves-knicks-lakers-how-to-watch/
 
