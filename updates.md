@@ -1,3 +1,11 @@
+**5 Things We’re Watching on Election Day in California**\
+`Proposition 50 is the only statewide question on the ballot, but there are numerous dynamics at play.`\
+https://nytimes.com/2025/11/04/us/california-election-guide.html
+
+**USL club North Carolina FC tells players it won't field a team in 2026**\
+`Sources are expecting NCFC to finish its playoff run but after that, all players under contract will be released.`\
+https://nytimes.com/athletic/6776649/2025/11/04/north-carolina-fc-usl/
+
 **How an elite public high school set Mamdani on the path to politics.**\
 `By Matt Flegenheimer and Benjamin Oreskes`\
 https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/how-an-elite-public-high-school-set-mamdani-on-the-path-to-politics
