@@ -1,3 +1,23 @@
+**Tyler Skaggs trial focuses on whether Angels knew of employee's drug use**\
+`Employee testifies she was unaware of Eric Kay’s drug abuse, despite texts and email exchanges showing that she was repeatedly notified.`\
+https://nytimes.com/athletic/6775537/2025/11/03/angels-tyler-skaggs-trial-employee-drug-use/
+
+**Bregman and Bellinger headline MLB players set to be free agents after opt out**\
+`Eligible players have until Thursday to make their decision.`\
+https://nytimes.com/athletic/6775479/2025/11/03/mlb-2025-free-agency-opt-out-clause/
+
+**In ‘Kyoto,’ Seeking Consensus to Save the Earth but Veering Off Course**\
+`At Lincoln Center Theater, a new play from the makers of “The Jungle” tries to dramatize the negotiations that led to the Kyoto Protocol.`\
+https://nytimes.com/2025/11/03/theater/kyoto-review.html
+
+**George Banks, Convicted Mass Murderer, Dies at 83**\
+`He fatally shot 13 people in Pennsylvania in September 1982 in what was then one of the nation’s worst mass shootings. Five of the victims were his own children.`\
+https://nytimes.com/2025/11/03/us/george-banks-dead.html
+
+**Giannis Antetokounmpo buzzer-beater sinks rival Pacers**\
+`Antetokounmpo nailed a 16-foot fadeaway over two Pacers defenders as time expired to move the Bucks to 5-2.`\
+https://nytimes.com/athletic/6775592/2025/11/03/giannis-antetokounmpo-buzzer-beater-bucks-pacers/
+
 **Trump Advisers Were Paid Over $1.6 Million by the Albanian Opposition**\
 `The payments underscore how lucrative foreign political consulting can be for operatives with ties to the president.`\
 https://nytimes.com/2025/11/03/us/politics/trump-advisers-were-paid-over-1-6-million-by-the-albanian-opposition.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/11/03/us/politics/gop-tucker-carlson-nick-fuentes-antis
 **Spotlight on Mayoral Race Also Captures the New York of Now**\
 `Times photographers caught signal moments from the campaign trail as Zohran Mamdani, Andrew Cuomo and Curtis Sliwa battled for votes.`\
 https://nytimes.com/2025/11/03/nyregion/photos-nyc-mayor-mamdani-cuomo-sliwa.html
-
-**NBA tribute videos may be a bit too trendy and less special these days**\
-`What makes a player’s time with a team video-tribute worthy? Turner's tribute from the Pacers makes Jason Jones wonder.`\
-https://nytimes.com/athletic/6775032/2025/11/03/myles-turner-nba-bucks-pacers-tribute-video/
-
-**Dallas Stars to host 2027 Stadium Series game at AT&T Stadium**\
-`The smashing success of the 2020 Winter Classic prompted the NHL to bring another outdoor game back to Texas`\
-https://nytimes.com/athletic/6775487/2025/11/03/dallas-stars-2027-stadium-serie-att-stadium/
-
-**NFL trade grades: Ravens bolster pass rush for playoff push with deal for Dre'Mont Jones**\
-`We are analyzing and grading all of the biggest deals ahead of Tuesday's NFL trade deadline. `\
-https://nytimes.com/athletic/6774787/2025/11/03/nfl-trade-grades-deadline-2025/
-
-**How Jared McCain's long-awaited return to the 76ers' lineup helps their offense**\
-`On Tuesday night in Chicago, Jared McCain will be sitting in the 76ers' locker room, peeling off a sweaty uniform`\
-https://nytimes.com/athletic/6775154/2025/11/03/jared-mccain-76ers-season-debut-nba/
-
-**Trump Doubles Down on Nuclear Tests. His Energy Secretary Differs.**\
-`President Trump and one of his top cabinet officials are sending mixed messages on how the U.S. government is handling the most destructive weapons in the world.`\
-https://nytimes.com/2025/11/03/us/politics/trump-nuclear-tests-energy-secretary.html
 
