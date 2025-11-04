@@ -1,5 +1,5 @@
 **Some Republicans Honor Dick Cheney, While Trump Remains Silent**\
-`The late vice president had called President Trump “a coward” and a “threat to our republic” and endorsed former Vice President Kamala Harris in 2024.`\
+`The late vice president had called President Trump “a coward” and a “threat to our republic” and supported Vice President Kamala Harris in 2024.`\
 https://nytimes.com/2025/11/04/us/politics/republicans-honor-dick-cheney.html
 
 **Interior Secretary Faces Scrutiny for Travel Amid Shutdown**\
@@ -22,7 +22,7 @@ https://nytimes.com/2025/11/04/us/politics/alex-padilla-california-governor-2026
 `Balogun gave Monaco the lead vs. Bodo/Glimt with an impressive finish from a tight angle`\
 https://nytimes.com/athletic/6778084/2025/11/04/folarin-balogun-champions-league-goal-video-monaco-usmnt/
 
-**Saints trade offensive tackle Trevor Penning to Chargers: Source**\
+**Saints trade offensive lineman Trevor Penning to Chargers: Source**\
 `The Chargers have lost both of their standout starting tackles for the season due to injuries. `\
 https://nytimes.com/athletic/6778097/2025/11/04/trevor-penning-trade-chargers-saints-2025-nfl-news/
 
