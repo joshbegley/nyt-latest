@@ -1,3 +1,7 @@
+**In Search of the Great Literary Novel**\
+`Readers respond to a guest essay about the continuing vitality of literary fiction. Also: Exxon vs. California; a Supreme Court split on tactics.`\
+https://nytimes.com/2025/11/04/opinion/novels-fiction.html
+
 **Il Leone Brings Its Lobster Pizza From Portland, Maine, to Park Slope**\
 `Chinese Tuxedo takes over the bar under the restaurant, Ilili expands to Midtown and more restaurant news.`\
 https://nytimes.com/2025/11/04/dining/nyc-restaurant-news.html
