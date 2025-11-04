@@ -1,3 +1,15 @@
+**​How Two Times Editors Work on Getting Election Results Right**\
+`Accurate, reliable results play a role in free and fair elections. So does explaining the data and helping people understand when and how it will be reported.`\
+https://nytimes.com/2025/11/04/us/election-results-2025.html
+
+**Loyola Chicago wins first game since Sister Jean's death: 'She was with us tonight'**\
+`Junior guard Deywilk Tavarez scored a game-winning 3-pointer in the Ramblers' 91-88 victory.`\
+https://nytimes.com/athletic/6776729/2025/11/04/loyola-chicago-basketball-win-sister-jean/
+
+**Falcons signing kicker Zane Gonzalez to replace Parker Romo after PAT miss: Source**\
+`Romo missed what would have been the tying extra point late in the Falcons' loss to the Patriots on Sunday.`\
+https://nytimes.com/athletic/6777191/2025/11/04/falcons-sign-zane-gonzalez-parker-romo-kicker/
+
 **What’s Next for Gov. Glenn Youngkin of Virginia?**\
 `Mr. Youngkin signaled his national ambitions with trips to Iowa and South Carolina earlier this year, but he has said little about his future plans.`\
 https://nytimes.com/2025/11/04/us/politics/glenn-youngkin-virginia-what-next.html
