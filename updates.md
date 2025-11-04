@@ -1,3 +1,11 @@
+**Commanders LB Frankie Luvu suspended for third hip-drop tackle of season**\
+`Luvu’s one-game suspension is the league's first for hip-drop tackles, which became illegal plays in 2024.`\
+https://nytimes.com/athletic/6775304/2025/11/03/commanders-frankie-luvu-suspended-hip-drop-tackle/
+
+**Vogue Absorbs Teen Vogue**\
+`Teen Vogue’s website is folding into Vogue.com, further eroding the sister publication’s presence as an independent brand.`\
+https://nytimes.com/2025/11/03/style/teen-vogue-website-conde-nast.html
+
 **Commanders LB Frankie Luvu suspended for 3rd hip-drop tackle of season**\
 `Luvu’s suspension is the league's first for hip-drop tackles, which became illegal plays in 2024.`\
 https://nytimes.com/athletic/6775304/2025/11/03/commanders-frankie-luvu-suspended-hip-drop-tackle/

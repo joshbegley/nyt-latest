@@ -1,5 +1,5 @@
-**Commanders LB Frankie Luvu suspended for 3rd hip-drop tackle of season**\
-`Luvu’s suspension is the league's first for hip-drop tackles, which became illegal plays in 2024.`\
+**Commanders LB Frankie Luvu suspended for third hip-drop tackle of season**\
+`Luvu’s one-game suspension is the league's first for hip-drop tackles, which became illegal plays in 2024.`\
 https://nytimes.com/athletic/6775304/2025/11/03/commanders-frankie-luvu-suspended-hip-drop-tackle/
 
 **Los Angeles Welcomes Champion Dodgers Home**\
@@ -14,8 +14,8 @@ https://nytimes.com/video/nyregion/100000010499491/nyc-mayoral-election-candidat
 `Mookie Betts said of his World Series ring collection: “It’s time to fill the hand all the way up, baby."`\
 https://nytimes.com/athletic/6775113/2025/11/03/dodgers-parade-world-series-three-peat/
 
-**Vogue Eats Teen Vogue**\
-`Vogue.com is absorbing Teen Vogue’s website, further eroding the sister publication’s operations as an independent brand.`\
+**Vogue Absorbs Teen Vogue**\
+`Teen Vogue’s website is folding into Vogue.com, further eroding the sister publication’s presence as an independent brand.`\
 https://nytimes.com/2025/11/03/style/teen-vogue-website-conde-nast.html
 
 **Man Shot by ICE Was Not Trying to Run Over Agent, Lawyers Say**\
