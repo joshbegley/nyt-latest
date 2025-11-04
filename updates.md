@@ -1,3 +1,11 @@
+**‘Messy White Gays’ Review: A Satire We’ve Seen Before**\
+`Drew Droege’s newest play Off Broadway is a lot like his others, skewering the entitlement of wealthy, oblivious gay men in Manhattan.`\
+https://nytimes.com/2025/11/04/theater/messy-white-gays-review-drew-droege.html
+
+**The Editor Got a Letter From ‘Dr. B.S.’ So Did a Lot of Other Editors.**\
+`The rise of artificial intelligence has produced serial writers to science and medical journals, most likely using chatbots to boost the number of citations they’ve published.`\
+https://nytimes.com/2025/11/04/science/letters-to-the-editor-ai-chatbots.html
+
 **Andrew Cuomo has a complicated legacy in New York City.**\
 `By Emma G. Fitzsimmons and Andy Newman`\
 https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/andrew-cuomo-has-a-complicated-legacy-in-new-york-city
