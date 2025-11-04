@@ -1,3 +1,11 @@
+**Injuries Reported After Plane Crashes in Louisville, Police Say**\
+`Data from Flightradar24 showed that a UPS plane bound for Honolulu reached an altitude of just 175 feet before swiftly descending.`\
+https://nytimes.com/2025/11/04/us/louisville-ups-plane-crash.html
+
+**IBM to Cut Thousands of Workers Amid A.I. Boom**\
+`The technology supplier said it was shifting its focus to higher-growth businesses, including A.I. consulting and software.`\
+https://nytimes.com/2025/11/04/technology/ibm-layoffs-ai.html
+
 **How Cheney’s Presidential Power Push Paved the Way for Trump to Go Further**\
 `Donald J. Trump and Dick Cheney became adversaries, but the former vice president set the stage for Mr. Trump’s bid to expand his executive authority.`\
 https://nytimes.com/2025/11/04/us/politics/trump-dick-cheney.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/04/us/elections/election-results-faq.html
 **As Mamdani has risen, South Asians have emerged as a political force in New York.**\
 `By Sarah Chatta, Maya King and Jeff Adelson`\
 https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/as-mamdani-has-risen-south-asians-have-emerged-as-a-political-force-in-new-york
-
-**Why Joe Schoen, Giants stayed silent at the NFL trade deadline**\
-`The 2-7 Giants likely wanted to find help for rookie QB Jaxson Dart, but giving up significant draft assets to do so never made sense.`\
-https://nytimes.com/athletic/6777903/2025/11/04/ny-giants-nfl-trade-deadline-joe-schoen-silent/
-
-**As L.A. Counts Ballots in a Glass Room, Officials Invite Anyone to Watch**\
-`The county processes election ballots in a massive complex, where workers are monitored by live cameras and visitors are welcome.`\
-https://nytimes.com/2025/11/04/us/politics/los-angeles-election-monitoring.html
 

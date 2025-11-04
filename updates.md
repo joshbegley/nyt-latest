@@ -1,3 +1,11 @@
+**Injuries Reported After Plane Crashes in Louisville, Police Say**\
+`Data from Flightradar24 showed that a UPS plane bound for Honolulu reached an altitude of just 175 feet before swiftly descending.`\
+https://nytimes.com/2025/11/04/us/louisville-ups-plane-crash.html
+
+**IBM to Cut Thousands of Workers Amid A.I. Boom**\
+`The technology supplier said it was shifting its focus to higher-growth businesses, including A.I. consulting and software.`\
+https://nytimes.com/2025/11/04/technology/ibm-layoffs-ai.html
+
 **How Cheney’s Presidential Power Push Paved the Way for Trump to Go Further**\
 `Donald J. Trump and Dick Cheney became adversaries, but the former vice president set the stage for Mr. Trump’s bid to expand his executive authority.`\
 https://nytimes.com/2025/11/04/us/politics/trump-dick-cheney.html
