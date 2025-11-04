@@ -1,40 +1,40 @@
-**Aryna Sabalenka, Nick Kyrgios will play 'Battle of the Sexes' tennis match organized by agency**\
-`The WTA world No. 1 will take on the ATP No. 652 in December in Dubai.`\
-https://nytimes.com/athletic/6776094/2025/11/04/tennis-sabalenka-kyrgios-match-battle-of-the-sexes/
+**Why It Would Be Trump’s Honor to Pay for Food Stamps**\
+`When Republicans sing Kumbaya.`\
+https://nytimes.com/2025/11/04/opinion/food-stamps-snap-shutdown.html
 
-**WTA Tour Finals results: Elena Rybakina qualifies after stunning comeback against Iga Świątek**\
-`The best eight WTA tennis players of the year are fighting for supremacy in the season-ending event.`\
-https://nytimes.com/athletic/6763218/2025/11/04/wta-tour-finals-draw-schedule-results-2025/
+**The Endless Quest to Compare College Prices Before Applying**\
+`Niche is the latest company to help families predict what they might pay. If only colleges would do more.`\
+https://nytimes.com/2025/11/04/your-money/niche-college-cost-comparison-tool.html
 
-**Milestone Birthdays**\
-`What big birthdays have you had or are you looking forward to?`\
-https://nytimes.com/2025/11/04/learning/milestone-birthdays.html
+**Does Capitalism Need ‘Cool Girls’?**\
+`“Hot girls” have rallied around Zohran Mamdani. “Cool girls” are backing his opponent Andrew Cuomo, and celebrating capitalism.`\
+https://nytimes.com/2025/11/04/style/cool-girls-capitalism-cuomo-mamdani.html
 
-**In Search of the Simpsonville Massacre**\
-`In 1865, two dozen Union soldiers, all formerly enslaved, were ambushed and killed along a road in Kentucky. Archaeologists are still searching for their remains.`\
-https://nytimes.com/2025/11/04/science/archaeology-simpsonville-civil-war.html
+**New Yorkers Are About to Choose Their 111th Mayor**\
+`After an intense and contentious campaign, Election Day has arrived. Polls open at 6 a.m.`\
+https://nytimes.com/2025/11/04/nyregion/new-yorkers-are-about-to-choose-their-111th-mayor.html
 
-**Trump Backs Cuomo as N.Y.C. Mayor’s Race Nears Finish Line**\
-`Zohran Mamdani, the Democratic front-runner, said he was “confident but not complacent” about winning, as former Gov. Andrew M. Cuomo was endorsed by President Trump.`\
-https://nytimes.com/2025/11/04/nyregion/mamdani-cuomo-election-day.html
+**She Voted for Trump Three Times. Now She Is Leading a Fight Against His Tariffs.**\
+`The Liberty Justice Center led by Sara Albrecht is better known for backing right-leaning causes, but it filed the tariff case that will be heard by the Supreme Court this week.`\
+https://nytimes.com/2025/11/04/us/politics/sara-albrecht-liberty-justice-center-tariffs.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/11/04/crosswords/spelling-bee-forum.html
+**Murderer, Martyr or Mirror? The First Luigi Mangione Book Is Here.**\
+`John Richardson’s “Luigi” takes on the case of a murdered insurance executive and his alleged killer.`\
+https://nytimes.com/2025/11/04/books/review/luigi-john-h-richardson.html
 
-**Late Night Finds Trump’s Rich ‘Great Gatsby’ Party in Poor Taste**\
-`“There were dancers, costumes and champagne — a wonderful celebration where the theme was apparently gross income inequality,” Jon Stewart said.`\
-https://nytimes.com/2025/11/04/arts/television/late-night-trump-great-gatsby-party.html
+**Trump Is Putting Military Leaders in a No-Win Situation**\
+`Our military leaders are trained to evaluate the legality of orders they are given.`\
+https://nytimes.com/2025/11/04/opinion/trump-military-leadership.html
 
-**Thousands Flee Flooding as Typhoon Kalmaegi Slams Central Philippines**\
-`Tens of thousands of people evacuated before the storm brought heavy rain and flooding. But many others were trapped in homes and buildings.`\
-https://nytimes.com/2025/11/04/world/asia/philippines-kalmaegi-flooding.html
+**New Pentagon Press Crew Is All In on Trump**\
+`The Defense Department’s new press policy led to an exodus of traditional journalists. Supporters of the president have stepped in.`\
+https://nytimes.com/2025/11/04/business/media/new-pentagon-press-crew-is-all-in-on-trump.html
 
-**How to watch Nebraska vs. UCLA: Time, TV, streaming**\
-`Find out how to watch the Nebraska Cornhuskers play the UCLA Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6776059/2025/11/04/nebraska-vs-ucla-stream-how-to-watch-nov-8/
+**What to Know About the Special Election in California**\
+`Voters will decide if California’s voting districts should be redrawn to help Democrats flip up to five House seats.`\
+https://nytimes.com/2025/11/04/us/elections/california-prop-50-election-day.html
 
-**Typhoon Kalmaegi Batters Philippines**\
-`Typhoon Kalmaegi ripped across the island of Visayas, Philippines, flooding streets and bringing powerful winds that forced the evacuation of tens of thousands of people.`\
-https://nytimes.com/video/world/asia/100000010501063/philippines-kalmaegi-flooding.html
+**A Storm Hit Alaska. Now, a Native Community Is Racing to Save Its History.**\
+`The remnants of Typhoon Halong scattered artifacts from an archaeological site along the shore of the Bering Sea.`\
+https://nytimes.com/2025/11/04/climate/typhoon-alaska-archaeology.html
 
