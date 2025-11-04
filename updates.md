@@ -1,3 +1,7 @@
+**Word of the Day: foster**\
+`This word has appeared in 1,086 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/04/learning/word-of-the-day-foster.html
+
 **The Everton midfield, David Moyes' choices and an ongoing pursuit of control**\
 `A point at Sunderland is no cause for complaint, but there is still an edginess and restlessness around Everton as they strive for balance`\
 https://nytimes.com/athletic/6775412/2025/11/04/everton-moyes-midfield-control-sunderland/
