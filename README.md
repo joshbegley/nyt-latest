@@ -1,3 +1,7 @@
+**Quote of the Day: A True Character Down to His Core**\
+`Quotation of the Day for Tuesday, November 4, 2025.`\
+https://nytimes.com/2025/11/03/pageoneplus/quote-of-the-day-a-true-character-down-to-his-core.html
+
 **Jaylen Brown shares choice words for potential missed call vs. Jazz**\
 `After the Celtics' loss to the Jazz, Brown said it was unacceptable that the refs missed him getting tripped at the end.`\
 https://nytimes.com/athletic/6775703/2025/11/03/jaylen-brown-celtics-hornets-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/03/us/george-banks-dead.html
 **Giannis Antetokounmpo buzzer-beater sinks rival Pacers**\
 `Antetokounmpo nailed a 16-foot fadeaway over two Pacers defenders as time expired to move the Bucks to 5-2.`\
 https://nytimes.com/athletic/6775592/2025/11/03/giannis-antetokounmpo-buzzer-beater-bucks-pacers/
-
-**Trump Advisers Were Paid Over $1.6 Million by the Albanian Opposition**\
-`The payments underscore how lucrative foreign political consulting can be for operatives with ties to the president.`\
-https://nytimes.com/2025/11/03/us/politics/trump-advisers-were-paid-over-1-6-million-by-the-albanian-opposition.html
 
