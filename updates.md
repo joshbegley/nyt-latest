@@ -1,3 +1,11 @@
+**Trump Doubles Down on Nuclear Tests. His Energy Secretary Differs.**\
+`President Trump and one of his top cabinet officials are sending mixed messages on how the U.S. government is handling one of the most destructive weapons in the world.`\
+https://nytimes.com/2025/11/03/us/politics/trump-nuclear-tests-energy-secretary.html
+
+**Stream These Diane Ladd-Laura Dern Collaborations**\
+`Ladd, who died on Monday, had several memorable screen roles alongside her daughter, Dern. Below are highlights.`\
+https://nytimes.com/2025/11/03/movies/diane-ladd-laura-dern-movies-streaming.html
+
 **Celebrities to New York City: Pick This Guy!**\
 `As the end nears in the mayoral race, some famous people have let their endorsements be known.`\
 https://nytimes.com/2025/11/03/style/celebrity-endorsements-nyc-mayor.html
