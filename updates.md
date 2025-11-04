@@ -1,3 +1,11 @@
+**The Everton midfield, David Moyes' choices and an ongoing pursuit of control**\
+`A point at Sunderland is no cause for complaint, but there is still an edginess and restlessness around Everton as they strive for balance`\
+https://nytimes.com/athletic/6775412/2025/11/04/everton-moyes-midfield-control-sunderland/
+
+**Kim Yong-nam, Longtime Ceremonial Leader of North Korea, Dead at 97**\
+`In a country where political purges are frequent, Mr. Kim was a notable exception and served three generations of its dynastic rulers.`\
+https://nytimes.com/2025/11/04/world/asia/nkorea-kim-yongnam-president.html
+
 **Jacoby Brissett stays hot, Cardinals snap 5-game skid in big Monday night win over Cowboys**\
 `Filling in for an injured Kyler Murray, Brissett again showed poise and command of the offense, finishing 21-of-31 for 261 yards.`\
 https://nytimes.com/athletic/6775720/2025/11/04/cardinals-cowboys-score-result-takeaways-mnf-nfl/

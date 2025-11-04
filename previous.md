@@ -1,3 +1,11 @@
+**The Everton midfield, David Moyes' choices and an ongoing pursuit of control**\
+`A point at Sunderland is no cause for complaint, but there is still an edginess and restlessness around Everton as they strive for balance`\
+https://nytimes.com/athletic/6775412/2025/11/04/everton-moyes-midfield-control-sunderland/
+
+**Kim Yong-nam, Longtime Ceremonial Leader of North Korea, Dead at 97**\
+`In a country where political purges are frequent, Mr. Kim was a notable exception and served three generations of its dynastic rulers.`\
+https://nytimes.com/2025/11/04/world/asia/nkorea-kim-yongnam-president.html
+
 **Ja Morant says he isn't playing with joy. Can he restore it in Memphis?**\
 `Memphis is already answering questions about the relationship between Morant and head coach Tuomas Iisalo.`\
 https://nytimes.com/athletic/6775828/2025/11/04/ja-morant-grizzlies-nba-unhappy-tuomas-iisalo/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6775720/2025/11/04/cardinals-cowboys-score-result-t
 **Crystal Palace, Jefferson Lerma and a looming overhaul in midfield**\
 `Lerma has only made five starts this season. He turns 32 next year, but the midfielder has valuable qualities on and off the field`\
 https://nytimes.com/athletic/6770288/2025/11/04/jefferson-lerma-daichi-kamada-crystal-palace-midfield/
-
-**Xabi Alonso's man-management skills: Surely they can work at Real Madrid?**\
-`He has enjoyed great success in galvanising players in previous roles, but will that same approach work at the Bernabeu?`\
-https://nytimes.com/athletic/6773814/2025/11/04/xabi-alonso-real-madrid-liverpool-management/
-
-**How Zohran Mamdani came to embrace the Palestinian cause.**\
-`By Nicholas Fandos`\
-https://nytimes.com/2025/11/04/nyregion/how-zohran-mamdani-came-to-embrace-the-palestinian-cause.html
 
