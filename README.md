@@ -1,3 +1,7 @@
+**Is the NHL the best place for Easton Cowan right now?**\
+`Cowan has had a nice start to his NHL career but still might benefit from some time in the minors.`\
+https://nytimes.com/athletic/6778160/2025/11/04/maple-leafs-easton-cowan-nhl/
+
 **PSG 1 Bayern Munich 2 - What happened with Diaz and Hakimi? Was Dembele risk required? Kane sets the tone**\
 `Bayern secured a league-phase win at PSG, but it was marred by an injury to Achraf Hakimi`\
 https://nytimes.com/athletic/6776507/2025/11/04/psg-1-bayern-2-diaz-hakimi-dembele-kane/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6773532/2025/11/04/critical-insights-usage-fantasy-
 **New York’s next mayor will face big decisions on climate change.**\
 `By Hilary Howard and Claire Brown`\
 https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/new-yorks-next-mayor-will-face-big-decisions-on-climate-change
-
-**The Briefing: Tottenham 4 Copenhagen 0 - Van de Ven's wondergoal and Udogie's impact**\
-`Tottenham Hotspur beat Copenhagen 4-0 on Tuesday evening to climb up to seventh in the Champions League table`\
-https://nytimes.com/athletic/6776508/2025/11/04/tottenham-copenhagen-result-report-analysis/
 
