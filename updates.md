@@ -1,3 +1,7 @@
+**Bessent Plans to Attend Tariff Arguments at the Supreme Court**\
+`Treasury Secretary Scott Bessent dismissed the idea that his presence could be seen as an attempt to intimidate the court on a case that President Trump considers vital to his economic policy.`\
+https://nytimes.com/2025/11/04/us/politics/supreme-court-tariffs-bessent.html
+
 **New Jersey: How to Vote, Where to Vote and What’s on the Ballot**\
 `New Jersey voters will pick a governor on Tuesday in a competitive off-year election.`\
 https://nytimes.com/2025/11/04/us/politics/new-jersey-how-vote-ballot.html

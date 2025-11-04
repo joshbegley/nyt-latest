@@ -1,3 +1,7 @@
+**Bessent Plans to Attend Tariff Arguments at the Supreme Court**\
+`Treasury Secretary Scott Bessent dismissed the idea that his presence could be seen as an attempt to intimidate the court on a case that President Trump considers vital to his economic policy.`\
+https://nytimes.com/2025/11/04/us/politics/supreme-court-tariffs-bessent.html
+
 **New Jersey: How to Vote, Where to Vote and What’s on the Ballot**\
 `New Jersey voters will pick a governor on Tuesday in a competitive off-year election.`\
 https://nytimes.com/2025/11/04/us/politics/new-jersey-how-vote-ballot.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6776172/2025/11/04/arsenal-gyokeres-martinelli-inju
 **The 10 best things I saw in college football recruiting over the weekend**\
 `Georgia commit Jared Curtis, the No. 1 QB in the nation in the 247Sports Composite, is having a banner senior season.`\
 https://nytimes.com/athletic/6774067/2025/11/04/college-football-recruiting-thoughts-week-10/
-
-**Where will Trocheck fit back into the lineup? Evaluating the Rangers' options**\
-`Coach Mike Sullivan has a couple of different options for how to arrange his top nine once Trocheck returns from an upper-body injury.`\
-https://nytimes.com/athletic/6774834/2025/11/04/rangers-vincent-trocheck-lineup-options/
 
