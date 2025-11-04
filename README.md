@@ -1,3 +1,7 @@
+**Right-Wing Chatbots Turbocharge America’s Political and Cultural Wars**\
+`Once pitched as dispassionate tools to answer your questions, A.I. chatbots are now programmed to reflect the biases of their creators.`\
+https://nytimes.com/2025/11/04/business/right-wing-chatbots-gab-arya-chatgpt-gemini.html
+
 **Cuomo was contrite about his sexual harassment scandal. Not anymore.**\
 `By Dana Rubinstein and Alyce McFadden`\
 https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/cuomo-was-contrite-about-his-sexual-harassment-scandal-not-anymore
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6777036/2025/11/04/flyers-vs-canadiens-stream-how-t
 **How to watch Hurricanes vs. Rangers: Time, TV, streaming**\
 `Find out how to watch the Carolina Hurricanes play the New York Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6777034/2025/11/04/hurricanes-vs-rangers-stream-how-to-watch-nov-4/
-
-**How to watch Mammoth vs. Sabres: Time, TV, streaming**\
-`Find out how to watch the Utah Mammoth play the Buffalo Sabres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6777032/2025/11/04/mammoth-vs-sabres-stream-how-to-watch-nov-4/
 

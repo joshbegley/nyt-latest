@@ -1,3 +1,7 @@
+**Maryland Will Explore Redrawing Its Congressional Map**\
+`Gov. Wes Moore said in a statement on Tuesday that the state would “explore every avenue possible to make sure Maryland has fair and representative maps.”`\
+https://nytimes.com/2025/11/04/us/politics/maryland-redistricting-governor-moore.html
+
 **Cuomo was contrite about his sexual harassment scandal. Not anymore.**\
 `By Dana Rubinstein and Alyce McFadden`\
 https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/cuomo-was-contrite-about-his-sexual-harassment-scandal-not-anymore

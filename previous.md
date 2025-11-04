@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6755173/2025/11/04/jakobi-meyers-trade-jaguars-raid
 `China’s new national drive to embrace artificial intelligence is also giving the authorities new ways to monitor and control its citizens.`\
 https://nytimes.com/2025/11/04/world/asia/china-police-ai-surveillance.html
 
-**Maryland Will Seek to Redraw Its Congressional Map**\
+**Maryland Will Explore Redrawing Its Congressional Map**\
 `Gov. Wes Moore said in a statement on Tuesday that the state would “explore every avenue possible to make sure Maryland has fair and representative maps.”`\
 https://nytimes.com/2025/11/04/us/politics/maryland-redistricting-governor-moore.html
 
