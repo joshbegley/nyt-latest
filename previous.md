@@ -1,3 +1,19 @@
+**Il Leone Brings Its Lobster Pizza From Portland, Maine, to Park Slope**\
+`Chinese Tuxedo takes over the bar under the restaurant, Ilili expands to Midtown and more restaurant news.`\
+https://nytimes.com/2025/11/04/dining/nyc-restaurant-news.html
+
+**It's time to take Sam Darnold's MVP case seriously**\
+`The latest episode of “The Athletic Football Show” focuses on an unlikely MVP contender who refuses to fall back in the ongoing race.`\
+https://nytimes.com/athletic/6775341/2025/11/04/sam-darnold-mvp-case-athletic-football-show/
+
+**Newcastle CCO Silverstone set to join Juventus**\
+`Silverstone is on gardening leave at Newcastle before linking up with the Serie A side as their chief business officer.`\
+https://nytimes.com/athletic/6777040/2025/11/04/peter-silverstone-newcastle-juventus/
+
+**Easy Burritos, Because November Can Be Hard**\
+`Freeze a bunch of these Los Angeles-style burritos now, and pull them out when November starts feeling really … Novembery.`\
+https://nytimes.com/2025/11/04/dining/easy-burritos-because-november-can-be-hard.html
+
 **Until Saturday: Of course Hugh Freeze failed**\
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6777308/2025/11/04/hugh-freeze-fired-auburn-coaching-search-until-saturday/
@@ -21,16 +37,4 @@ https://nytimes.com/column/style-detective
 **​How Two Times Editors Work on Getting Election Results Right**\
 `Accurate, reliable results play a role in free and fair elections. So does explaining the data and helping people understand when and how it will be reported.`\
 https://nytimes.com/2025/11/04/us/election-results-2025.html
-
-**Loyola Chicago wins first game since Sister Jean's death: 'She was with us tonight'**\
-`Junior guard Deywilk Tavarez scored a game-winning 3-pointer in the Ramblers' 91-88 victory.`\
-https://nytimes.com/athletic/6776729/2025/11/04/loyola-chicago-basketball-win-sister-jean/
-
-**Falcons signing kicker Zane Gonzalez to replace Parker Romo after PAT miss: Source**\
-`Romo missed what would have been the tying extra point late in the Falcons' loss to the Patriots on Sunday.`\
-https://nytimes.com/athletic/6777191/2025/11/04/falcons-sign-zane-gonzalez-parker-romo-kicker/
-
-**Right-Wing Chatbots Turbocharge America’s Political and Cultural Wars**\
-`Once pitched as dispassionate tools to answer your questions, A.I. chatbots are now programmed to reflect the biases of their creators.`\
-https://nytimes.com/2025/11/04/business/right-wing-chatbots-gab-arya-chatgpt-gemini.html
 

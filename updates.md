@@ -1,3 +1,19 @@
+**Il Leone Brings Its Lobster Pizza From Portland, Maine, to Park Slope**\
+`Chinese Tuxedo takes over the bar under the restaurant, Ilili expands to Midtown and more restaurant news.`\
+https://nytimes.com/2025/11/04/dining/nyc-restaurant-news.html
+
+**It's time to take Sam Darnold's MVP case seriously**\
+`The latest episode of “The Athletic Football Show” focuses on an unlikely MVP contender who refuses to fall back in the ongoing race.`\
+https://nytimes.com/athletic/6775341/2025/11/04/sam-darnold-mvp-case-athletic-football-show/
+
+**Newcastle CCO Silverstone set to join Juventus**\
+`Silverstone is on gardening leave at Newcastle before linking up with the Serie A side as their chief business officer.`\
+https://nytimes.com/athletic/6777040/2025/11/04/peter-silverstone-newcastle-juventus/
+
+**Easy Burritos, Because November Can Be Hard**\
+`Freeze a bunch of these Los Angeles-style burritos now, and pull them out when November starts feeling really … Novembery.`\
+https://nytimes.com/2025/11/04/dining/easy-burritos-because-november-can-be-hard.html
+
 **Until Saturday: Of course Hugh Freeze failed**\
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6777308/2025/11/04/hugh-freeze-fired-auburn-coaching-search-until-saturday/
