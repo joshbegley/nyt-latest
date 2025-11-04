@@ -1,3 +1,19 @@
+**49ers minutia minute: Tatum Bethune hits a milestone Fred Warner never has**\
+`Meanwhile, Christian McCaffrey recorded his longest run and longest reception of 2025 in the offensive line's best run-blocking game so far.`\
+https://nytimes.com/athletic/6774644/2025/11/04/49ers-giants-tatum-bethune-tackles/
+
+**A Beloved Clothing Store Closed. A Customer Bought All 4,500 Items.**\
+`Everything in the shop appeared to have been abandoned. A devoted customer took it all home and started selling the items herself.`\
+https://nytimes.com/2025/11/04/business/vicky-szuflita-vintage-store.html
+
+**U.N. Sees Slight Progress on Climate Action, Partly Offset by the U.S.**\
+`The annual U.N. report card finds that, overall, countries are still far off-track from their stated goals to limit global warming.`\
+https://nytimes.com/2025/11/04/climate/climate-emissions-united-nations.html
+
+**A Fabric Connoisseur Clothed in Denim, Leather and Yarn**\
+`Layered attire of different materials showcased an appreciation for textiles.`\
+https://nytimes.com/2025/11/04/style/street-style-look-fabric-layering.html
+
 **Pennsylvania Supreme Court: What Is a ‘Retention Election’ and How Does It Work?**\
 `Voters will decide whether three justices who were elected as Democrats keep their seats for another 10-year term.`\
 https://nytimes.com/2025/11/04/us/politics/pennsylvania-supreme-court-retention-election-explainer.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/11/04/world/europe/ukraine-war-military-contracts-consc
 **The Gamble Behind a Big Takeover of Tylenol’s Maker**\
 `Potentially huge legal issues are hovering over Kenvue. But Kimberly-Clark, which agreed to buy it for $40 billion, appears to think they’re manageable.`\
 https://nytimes.com/2025/11/04/business/dealbook/kimberly-clark-kenvue-bid.html
-
-**Pennsylvania: How to Vote, Where to Vote and What’s on the Ballot**\
-`Pennsylvania voters are heading to the polls on Tuesday to decide whether to keep three Democratic justices on the state’s seven-member top court, which could affect the panel’s partisan balance.`\
-https://nytimes.com/2025/11/04/us/politics/pennsylvania-how-where-vote-ballot.html
-
-**Why can’t people say Zohran Mamdani’s name correctly?**\
-`By Emma G. Fitzsimmons, Benjamin Oreskes, Eden Weingart and Aliza Aufrichtig`\
-https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/why-cant-people-say-zohran-mamdanis-name-correctly
-
-**How to watch Tennessee vs. NC State: Time, TV, streaming**\
-`Find out how to watch the Tennessee Volunteers play the NC State Wolfpack, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6776472/2025/11/04/tennessee-vs-nc-state-stream-how-to-watch-nov-4/
-
-**2025 NFL Playoff Simulator: Each team’s path to the postseason after Week 9**\
-`<p>Welcome to The Athletic’s 2025 NFL Playoff Simulator, where you’ll find everything you need to know about all the ways your favorite team&#8217;s season could end, from a No.`\
-https://nytimes.com/athletic/6513952/2025/11/04/2025-nfl-playoff-simulator-path-postseason/
 
