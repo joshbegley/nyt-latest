@@ -1,3 +1,19 @@
+**Some Republicans Honor Dick Cheney, While Trump Remains Silent**\
+`The late vice president had called President Trump “a coward” and a “threat to our republic” and supported Vice President Kamala Harris in 2024.`\
+https://nytimes.com/2025/11/04/us/politics/republicans-honor-dick-cheney.html
+
+**Interior Secretary Faces Scrutiny for Travel Amid Shutdown**\
+`While some national parks are seeing damage and illegal activity during the government shutdown, Doug Burgum is traveling around the Middle East, selling American gas and oil.`\
+https://nytimes.com/2025/11/04/climate/interior-secretary-travel-shutdown.html
+
+**Tigers close to hiring Anthony Sanders, Cody Asche: Sources**\
+`Sanders, 51, is expected to become the Tigers' first-base coach. Asche, 35, will join the Tigers as an assistant hitting coach.`\
+https://nytimes.com/athletic/6777838/2025/11/04/tigers-staff-anthony-sanders-cody-asche/
+
+**Saints trade offensive lineman Trevor Penning to Chargers: Source**\
+`The Chargers have lost both of their standout starting tackles for the season due to injuries. `\
+https://nytimes.com/athletic/6778097/2025/11/04/trevor-penning-trade-chargers-saints-2025-nfl-news/
+
 **Mamdani plans to keep Tisch as police commissioner if elected.**\
 `By Nicholas Fandos`\
 https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/mamdani-jessica-tisch-nypd
