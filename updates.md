@@ -1,3 +1,7 @@
+**NFL 2025 trade deadline: The biggest names who didn’t get moved**\
+`While the Jets made a pair of blockbuster moves, they held onto running back Breece Hall and defensive end Jermaine Johnson.`\
+https://nytimes.com/athletic/6778284/2025/11/04/nfl-trade-deadline-2025-breece-hall-jaylen-waddle/
+
 **What is Kalshi, the predictions market that's caught the NCAA's attention?**\
 `College athletics' governing body questions the prediction market's involvement in sports amid concerns about unregulated gambling.`\
 https://nytimes.com/athletic/6778085/2025/11/04/what-is-kalshi-the-predictions-market-thats-attracted-the-ncaas-attention/

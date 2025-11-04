@@ -1,3 +1,7 @@
+**Bob Trumpy, Star Receiver Turned NBC Football Analyst, Dies at 70**\
+`He made his mark with the Cincinnati Bengals as a fast pass-catching tight end. He later joined announcers like Bob Costas and Dick Enberg in the broadcast booth.`\
+https://nytimes.com/2025/11/04/sports/bob-trumpy-dead.html
+
 **NFL 2025 trade deadline: The biggest names who didn’t get moved**\
 `While the Jets made a pair of blockbuster moves, they held onto running back Breece Hall and defensive end Jermaine Johnson.`\
 https://nytimes.com/athletic/6778284/2025/11/04/nfl-trade-deadline-2025-breece-hall-jaylen-waddle/
@@ -22,7 +26,7 @@ https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/muslim-voters-sa
 `Minor-league outfielders Pedro León and Kenedy Corona, as well as injured pitchers John Rooney and Luis Garcia were also placed.`\
 https://nytimes.com/athletic/6778465/2025/11/04/houston-astros-chas-mccormick-waivers/
 
-**Micky van de Ven just scored a goal like no other**\
+**Van de Ven and a goal like no other: 'Messi transformed into a centre-back'**\
 `A centre-back beating four defenders, running 80 yards and finishing superbly... this was an unprecedented goal`\
 https://nytimes.com/athletic/6778260/2025/11/04/micky-van-de-ven-goal-copenhagen/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6778373/2025/11/04/jacoby-brissett-starting-qb-seat
 **Highlights From the ‘Oscars of Fashion’**\
 `Vanessa Friedman, fashion director and chief fashion critic, shares highlights from the 2025 CFDA Awards.`\
 https://nytimes.com/video/style/100000010500737/highlights-from-the-oscars-of-fashion.html
-
-**After Packers stand pat at trade deadline, which positions are most concerning?**\
-`According to a source, the Packers are looking into the possibility of signing free-agent cornerback Asante Samuel Jr.`\
-https://nytimes.com/athletic/6778334/2025/11/04/packers-trade-deadline-tight-end-cornerback/
 
