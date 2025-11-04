@@ -1,3 +1,15 @@
+**Mavericks' late-game struggles cement their status as Texas' third-best team**\
+`Monday's loss to Houston exposed many of the same early-season problems for Dallas.`\
+https://nytimes.com/athletic/6775871/2025/11/04/mavericks-rockets-early-season-problems/
+
+**In the Virginia governor’s race, it’s Abigail Spanberger vs. Winsome Earle-Sears**\
+`Ms. Spanberger, a centrist Democrat, has led in most polls against Ms. Earle-Searles, the Republican lieutenant governor. One of them will become Virginia’s first female chief executive.`\
+https://nytimes.com/live/2025/11/04/us/election-new-jersey-california/virginia-governor-abigail-spanberger-winsome-earle-sears
+
+**Why is Andrew Cuomo still running for mayor? The answer may lie in 1977.**\
+`By Adam Nagourney and Benjamin Oreskes`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/why-is-andrew-cuomo-still-running-for-mayor-the-answer-may-lie-in-1977
+
 **Something special is going on with these Lakers, even without their stars**\
 `No Luka, LeBron or Reaves? No problem against Portland for LA, which has built tremendous vibes in its locker room so far.`\
 https://nytimes.com/athletic/6776116/2025/11/04/lakers-win-shorthanded-doncic-reaves-nick-smith/

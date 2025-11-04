@@ -1,3 +1,7 @@
+**Pioli sacked by Fiorentina after 10-game winless start in Serie A**\
+`Fiorentina collected just four points and no victories in the 10 Serie A matches during the 60-year-old's time in charge.`\
+https://nytimes.com/athletic/6776266/2025/11/04/fiorentina-manager-sacked-pioli/
+
 **Mavericks' late-game struggles cement their status as Texas' third-best team**\
 `Monday's loss to Houston exposed many of the same early-season problems for Dallas.`\
 https://nytimes.com/athletic/6775871/2025/11/04/mavericks-rockets-early-season-problems/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6775579/2025/11/04/nfl-cowboys-cardinals-the-pulse/
 **Manager of Serbian top-flight club dies after collapsing mid-game**\
 `Mladen Zizovic collapsed on the sidelines in the 22nd minute of the match against FK Mladost Lucani.`\
 https://nytimes.com/athletic/6776189/2025/11/04/mladen-zizovic-death-serbian-manager/
-
-**We asked Mamdani, Cuomo and Sliwa 10 questions. Here’s what they said.**\
-`By Emma G. Fitzsimmons`\
-https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/we-asked-mamdani-cuomo-and-sliwa-10-questions-heres-what-they-said
 
