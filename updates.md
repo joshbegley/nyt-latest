@@ -1,3 +1,7 @@
+**Fantasy football Week 10 drops: Turn the page on Alvin Kamara, Nick Chubb**\
+`Gary Davenport identifies players who are struggling to validate their spot on fantasy rosters, including a couple venerated running backs.`\
+https://nytimes.com/athletic/6775640/2025/11/04/fantasy-football-week-10-drops-kamara-chubb/
+
 **Its Forces Worn Down, Ukraine Moves to Revamp Military Service**\
 `The country will introduce fixed-term military contracts to try to attract recruits and ease the strain on soldiers after years of fighting.`\
 https://nytimes.com/2025/11/04/world/europe/ukraine-war-military-contracts-conscription.html
