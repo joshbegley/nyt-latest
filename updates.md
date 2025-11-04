@@ -1,3 +1,11 @@
+**Chatbot Correspondence Invades the Letters to the Editor Page**\
+`The rise of artificial intelligence has produced serial writers to science and medical journals, most likely seeking to boost the number of citations they’ve published.`\
+https://nytimes.com/2025/11/04/science/letters-to-the-editor-ai-chatbots.html
+
+**Villa's Mings expected to be sidelined with hamstring injury until 2026**\
+`The 32-year-old pulled up clutching the back of his right leg during the Premier League defeat to Liverpool on November 1.`\
+https://nytimes.com/athletic/6770674/2025/11/04/tyrone-mings-aston-villa-injury-news/
+
 **Milan Lucic joins AHL Thunderbirds on PTO: What it means for the Blues**\
 `The NHL veteran originally signed a PTO with the Blues in the summer, but was sidelined after suffering a groin injury in the preseason.`\
 https://nytimes.com/athletic/6776832/2025/11/04/milan-lucic-blues-pto/

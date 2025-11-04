@@ -1,3 +1,7 @@
+**Chatbot Correspondence Invades the Letters to the Editor Page**\
+`The rise of artificial intelligence has produced serial writers to science and medical journals, most likely seeking to boost the number of citations they’ve published.`\
+https://nytimes.com/2025/11/04/science/letters-to-the-editor-ai-chatbots.html
+
 **Milan Lucic joins AHL Thunderbirds on PTO: What it means for the Blues**\
 `The NHL veteran originally signed a PTO with the Blues in the summer, but was sidelined after suffering a groin injury in the preseason.`\
 https://nytimes.com/athletic/6776832/2025/11/04/milan-lucic-blues-pto/
@@ -14,6 +18,10 @@ https://nytimes.com/athletic/6772896/2025/11/04/vancouver-canucks-stats-standing
 `In an interview with Piers Morgan, Ronaldo said he wants to spend more time with his family and pursue "other passions" when he retires.`\
 https://nytimes.com/athletic/6776844/2025/11/04/cristiano-ronaldo-retirement-future/
 
+**Villa's Mings expected to be sidelined with hamstring injury until 2026**\
+`The 32-year-old pulled up clutching the back of his right leg during the Premier League defeat to Liverpool on November 1.`\
+https://nytimes.com/athletic/6770674/2025/11/04/tyrone-mings-aston-villa-injury-news/
+
 **Small Businesses Gear Up for Tariff Fight at Supreme Court**\
 `Companies that sell diamonds, plant sensors and wine all have one thing in common: They are weighing in against tariffs in a consequential case.`\
 https://nytimes.com/2025/11/04/us/politics/tariffs-supreme-court-small-business.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/04/arts/television/barney-miller-gay-couple.html
 **Shota Imanaga becomes free agent after Cubs, pitcher decline options: Source**\
 `It’s not yet clear whether the Cubs will make Imanaga a one-year, $22.025 million qualifying offer.`\
 https://nytimes.com/athletic/6776731/2025/11/04/cubs-shota-imanaga-free-agent/
-
-**How a lack of accountability continues to plague Brian Daboll's Giants**\
-`The darker days that are likely ahead figure to shine a brighter spotlight on the leadership void within the team.`\
-https://nytimes.com/athletic/6775835/2025/11/04/ny-giants-brian-daboll-accountability-jaxson-dart/
-
-**Cuomo blasted Mamdani for his rent-stabilized apartment. But he had one, too.**\
-`By Ashley Cai`\
-https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/cuomo-blasted-mamdani-for-his-rent-stabilized-apartment-but-he-had-one-too
 
