@@ -1,3 +1,7 @@
+**The Gamble Behind a Big Takeover of Tylenol’s Maker**\
+`Potentially huge legal issues are hovering over Kenvue. But Kimberly-Clark, which agreed to buy it for $40 billion, appears to think they’re manageable.`\
+https://nytimes.com/2025/11/04/business/dealbook/kimberly-clark-kenvue-bid.html
+
 **Pennsylvania: How to Vote, Where to Vote and What’s on the Ballot**\
 `Pennsylvania voters are heading to the polls on Tuesday to decide whether to keep three Democratic justices on the state’s seven-member top court, which could affect the panel’s partisan balance.`\
 https://nytimes.com/2025/11/04/us/politics/pennsylvania-how-where-vote-ballot.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6767905/2025/11/04/dodgers-offseason-needs-mlb-free
 **The first CFP rankings of 2025 are unveiled on TV. Here's how to watch**\
 `The Playoff committee's initial rankings will get a prime-time audience Tuesday night.`\
 https://nytimes.com/athletic/6774821/2025/11/04/college-football-playoff-rankings-espn-how-to-watch/
-
-**In the N.J. governor’s race, it’s Mikie Sherrill vs. Jack Ciattarelli.**\
-`President Trump has loomed over the campaign, in a usually reliable Democratic-leaning state that has shown signs of shifting right.`\
-https://nytimes.com/live/2025/11/04/us/election-new-jersey-california/in-the-nj-governors-race-its-mikie-sherrill-vs-jack-ciattarelli
 
