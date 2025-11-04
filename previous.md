@@ -1,3 +1,7 @@
+**Cardinals to start Jacoby Brissett at quarterback in Week 10 vs. Seattle Seahawks**\
+`In three games played this season, Brissett has thrown for 860 yards, six touchdowns and one interception. `\
+https://nytimes.com/athletic/6778373/2025/11/04/jacoby-brissett-starting-qb-seattle-news-nfl/
+
 **Highlights From the ‘Oscars of Fashion’**\
 `Vanessa Friedman, fashion director and chief fashion critic, shares highlights from the 2025 CFDA Awards.`\
 https://nytimes.com/video/style/100000010500737/highlights-from-the-oscars-of-fashion.html
@@ -14,7 +18,7 @@ https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/they-want-to-run
 `Also, Trump is weighing military options in Venezuela. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/11/04/briefing/election-day-trump-military-venezuela.html
 
-**Injuries Reported After Plane Crashes in Louisville, Police Say**\
+**Injuries Reported After UPS Plane Crashes in Louisville, Police Say**\
 `Data from Flightradar24 showed that a UPS plane bound for Honolulu reached an altitude of just 175 feet before swiftly descending.`\
 https://nytimes.com/2025/11/04/us/louisville-ups-plane-crash.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/04/world/africa/sudan-civil-war.html
 **Tottenham’s Udogie named as footballer allegedly threatened with firearm**\
 `Udogie played for Tottenham seven days after the alleged incident, coming on as a substitute in a 3-0 win over West Ham United.`\
 https://nytimes.com/athletic/6777810/2025/11/04/tottenham-destiny-udogie-threatened/
-
-**Jack Flaherty won't opt out, returns to Tigers on $20 million deal**\
-`Flaherty could have tested the free agent market but his experience last offseason coming off a stronger year wasn't a positive one.`\
-https://nytimes.com/athletic/6778357/2025/11/04/jack-flaherty-tigers-return/
 

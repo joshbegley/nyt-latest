@@ -1,3 +1,11 @@
+**Cardinals to start Jacoby Brissett at quarterback in Week 10 vs. Seattle Seahawks**\
+`In three games played this season, Brissett has thrown for 860 yards, six touchdowns and one interception. `\
+https://nytimes.com/athletic/6778373/2025/11/04/jacoby-brissett-starting-qb-seattle-news-nfl/
+
+**Injuries Reported After UPS Plane Crashes in Louisville, Police Say**\
+`Data from Flightradar24 showed that a UPS plane bound for Honolulu reached an altitude of just 175 feet before swiftly descending.`\
+https://nytimes.com/2025/11/04/us/louisville-ups-plane-crash.html
+
 **Highlights From the ‘Oscars of Fashion’**\
 `Vanessa Friedman, fashion director and chief fashion critic, shares highlights from the 2025 CFDA Awards.`\
 https://nytimes.com/video/style/100000010500737/highlights-from-the-oscars-of-fashion.html
