@@ -1,3 +1,11 @@
+**Josh Harding opens up on MS, his Wild comeback attempts and life after the NHL**\
+`“I feel like the ending of my career overshadowed my actual career and who I was. … I just hope that fans can recall the good times."`\
+https://nytimes.com/athletic/6774471/2025/11/04/josh-harding-wild-multiple-sclerosis-retirement/
+
+**Draymond Green opens up about his desire to add more "stamps" to his resume**\
+`It would seem Draymond Green’s future Hall of Fame induction is solidified. What else is he hungry for?`\
+https://nytimes.com/athletic/6775309/2025/11/04/draymond-green-wembanyama-defense/
+
 **NBA weekly watch guide: Randle's return to The Garden, Durant vs. Wembanyama in Cup play**\
 `Here are the seven national TV games to look for Tuesday through Friday across pro basketball.`\
 https://nytimes.com/athletic/6774360/2025/11/04/durant-wembanyama-timberwolves-knicks-lakers-how-to-watch/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6775332/2025/11/04/cardinals-offseason-primer-free-
 **Heisman straw poll: Ohio State's Sayin gaining ground on Indiana's Mendoza**\
 `Mendoza, Sayin and Alabama's Ty Simpson form the top three in our Heisman voting after Week 10.`\
 https://nytimes.com/athletic/6774317/2025/11/04/heisman-trophy-poll-julian-sayin-fernando-mendoza/
-
-**Sam Darnold is playing like a star. The secret sauce? A Seahawks bugaboo that might finally be solved**\
-`Darnold is playing as well as any QB in football, benefiting from what might be the Seahawks' best pass protection in over a decade.`\
-https://nytimes.com/athletic/6775372/2025/11/04/seahawks-offensive-line-protection-sam-darnold/
-
-**Grading CFB's wild coaching carousel, four years later: Kelly falls, Freeman rises**\
-`Despite some big flops in the 2021-22 coach carousel, it remains a pretty successful hiring cycle. `\
-https://nytimes.com/athletic/6767097/2025/11/04/college-football-coaching-carousel-2021-grades-brian-kelly/
 
