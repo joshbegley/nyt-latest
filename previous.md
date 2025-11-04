@@ -1,3 +1,7 @@
+**Its Forces Worn Down, Ukraine Moves to Revamp Military Service**\
+`The country will introduce fixed-term military contracts to try to attract recruits and ease the strain on soldiers after years of fighting.`\
+https://nytimes.com/2025/11/04/world/europe/ukraine-war-military-contracts-conscription.html
+
 **The Gamble Behind a Big Takeover of Tylenol’s Maker**\
 `Potentially huge legal issues are hovering over Kenvue. But Kimberly-Clark, which agreed to buy it for $40 billion, appears to think they’re manageable.`\
 https://nytimes.com/2025/11/04/business/dealbook/kimberly-clark-kenvue-bid.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6776087/2025/11/04/leandro-trossard-arsenal-leaders
 **Even the World Series champs have flaws: Here are 3 offseason concerns for Dodgers**\
 `The Dodgers must improve the bullpen, bolster the outfield and attack several other roster issues if they plan to go back-to-back-to-back.`\
 https://nytimes.com/athletic/6767905/2025/11/04/dodgers-offseason-needs-mlb-free-agency/
-
-**The first CFP rankings of 2025 are unveiled on TV. Here's how to watch**\
-`The Playoff committee's initial rankings will get a prime-time audience Tuesday night.`\
-https://nytimes.com/athletic/6774821/2025/11/04/college-football-playoff-rankings-espn-how-to-watch/
 

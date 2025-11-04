@@ -1,3 +1,7 @@
+**Its Forces Worn Down, Ukraine Moves to Revamp Military Service**\
+`The country will introduce fixed-term military contracts to try to attract recruits and ease the strain on soldiers after years of fighting.`\
+https://nytimes.com/2025/11/04/world/europe/ukraine-war-military-contracts-conscription.html
+
 **The Gamble Behind a Big Takeover of Tylenol’s Maker**\
 `Potentially huge legal issues are hovering over Kenvue. But Kimberly-Clark, which agreed to buy it for $40 billion, appears to think they’re manageable.`\
 https://nytimes.com/2025/11/04/business/dealbook/kimberly-clark-kenvue-bid.html
