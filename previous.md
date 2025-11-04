@@ -1,6 +1,30 @@
+**Is the East closing in on the West? Who's in early trouble in the NBA Cup?**\
+`We may be jumping to conclusions, but so far, the perceived bottom of the East has held its own against the top of the West.`\
+https://nytimes.com/athletic/6774816/2025/11/04/nba-eastern-conference-parity-nba-cup/
+
+**Who should run N.Y.C. schools? Mamdani and Cuomo clash over the answer.**\
+`By Troy Closson`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/who-should-run-nyc-schools-mamdani-and-cuomo-clash-over-the-answer
+
+**PSG's Doue wins 2024-2025 Golden Boy award**\
+`England's Michelle Agyemang, 19, won the Golden Girl award `\
+https://nytimes.com/athletic/6719934/2025/11/04/desire-doue-2025-golden-boy/
+
+**Bold Assassinations Are Grim ‘Reality Check’ in Mexico’s Cartel Fight**\
+`The murder of Mexico’s most vocal anti-crime mayor shows that, despite President Claudia Sheinbaum’s crackdown on drug cartels, the battle is just beginning.`\
+https://nytimes.com/2025/11/04/world/americas/mexico-mayor-carlos-manzo-drug-war.html
+
+**Arise, Sir David: But what is the significance of Beckham's knighthood?**\
+`The former England captain and now joint owner of Inter Miami received the title at Windsor Castle today`\
+https://nytimes.com/athletic/6405931/2025/11/04/beckham-knighthood-sir-england/
+
 **5 Things We’re Watching on Election Day in California**\
 `Proposition 50 is the only statewide question on the ballot, but there are numerous dynamics at play.`\
 https://nytimes.com/2025/11/04/us/california-election-guide.html
+
+**Haaland says he is 'not at all' close to Messi-Ronaldo level**\
+`Manchester City boss Pep Guardiola said Haaland was a "real world-class player" but "incredibly humble".`\
+https://nytimes.com/athletic/6776646/2025/11/04/erling-haaland-messi-ronaldo/
 
 **How an elite public high school set Mamdani on the path to politics.**\
 `By Matt Flegenheimer and Benjamin Oreskes`\
@@ -13,28 +37,4 @@ https://nytimes.com/2025/11/04/obituaries/dick-cheney-life-career-photos.html
 **USL club North Carolina FC tells players it won't field a team in 2026**\
 `Sources are expecting NCFC to finish its playoff run but after that, all players under contract will be released.`\
 https://nytimes.com/athletic/6776649/2025/11/04/north-carolina-fc-usl/
-
-**49ers minutia minute: Tatum Bethune hits a milestone Fred Warner never has**\
-`Meanwhile, Christian McCaffrey recorded his longest run and longest reception of 2025 in the offensive line's best run-blocking game so far.`\
-https://nytimes.com/athletic/6774644/2025/11/04/49ers-giants-tatum-bethune-tackles/
-
-**A Beloved Clothing Store Closed. A Customer Bought All 4,500 Items.**\
-`Everything in the shop appeared to have been abandoned. A devoted customer took it all home and started selling the items herself.`\
-https://nytimes.com/2025/11/04/business/vicky-szuflita-vintage-store.html
-
-**Aidan Morris and the USMNT World Cup hopeful's year of opportunity**\
-`Morris returned to the national team in October after nearly a year away and remains a key cog on a contender for Premier League promotion`\
-https://nytimes.com/athletic/6773466/2025/11/04/aidan-morris-usmnt-middlesbrough-world-cup/
-
-**U.N. Sees Slight Progress on Climate Action, Partly Offset by the U.S.**\
-`The annual U.N. report card finds that, overall, countries are still far off-track from their stated goals to limit global warming.`\
-https://nytimes.com/2025/11/04/climate/climate-emissions-united-nations.html
-
-**A Fabric Connoisseur Clothed in Denim, Leather and Yarn**\
-`Layered attire of different materials showcased an appreciation for textiles.`\
-https://nytimes.com/2025/11/04/style/street-style-look-fabric-layering.html
-
-**Bucks win for Myles Turner after fans boo ex-Pacer**\
-`Milwaukee embraced the jeers and did everything in their power to win Monday's game for their new teammate.`\
-https://nytimes.com/athletic/6776208/2025/11/04/bucks-pacers-myles-turner-result-boos/
 
