@@ -1,3 +1,11 @@
+**After Decades of Low Turnout for Mayor’s Races, Voting Surges in New York**\
+`Voter participation in the city, which once surpassed 90 percent, cratered in recent elections. Here’s a look at why it fell, and why it’s surging this year.`\
+https://nytimes.com/2025/11/04/nyregion/nyc-mayor-election-turnout.html
+
+**Could Mamdani’s plan for ‘fast and free buses’ work?**\
+`By Emily Badger, Larry Buchanan and Stefanos Chen`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/could-mamdanis-plan-for-fast-and-free-buses-work
+
 **Bob Trumpy, Star Receiver Turned NBC Football Analyst, Dies at 70**\
 `He made his mark with the Cincinnati Bengals as a fast pass-catching tight end. He later joined announcers like Bob Costas and Dick Enberg in the broadcast booth.`\
 https://nytimes.com/2025/11/04/sports/bob-trumpy-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6778465/2025/11/04/houston-astros-chas-mccormick-wa
 **Van de Ven and a goal like no other: 'Messi transformed into a centre-back'**\
 `A centre-back beating four defenders, running 80 yards and finishing superbly... this was an unprecedented goal`\
 https://nytimes.com/athletic/6778260/2025/11/04/micky-van-de-ven-goal-copenhagen/
-
-**Cardinals to start Jacoby Brissett at quarterback in Week 10 vs. Seattle Seahawks**\
-`In three games played this season, Brissett has thrown for 860 yards, six touchdowns and one interception. `\
-https://nytimes.com/athletic/6778373/2025/11/04/jacoby-brissett-starting-qb-seattle-news-nfl/
-
-**Highlights From the ‘Oscars of Fashion’**\
-`Vanessa Friedman, fashion director and chief fashion critic, shares highlights from the 2025 CFDA Awards.`\
-https://nytimes.com/video/style/100000010500737/highlights-from-the-oscars-of-fashion.html
 
