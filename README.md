@@ -1,3 +1,7 @@
+**Jake Paul exhibition fight canceled amid civil lawsuit against Gervonta Davis**\
+`The reigning WBA lightweight champion was accused by his former girlfriend in an alleged domestic incident.`\
+https://nytimes.com/athletic/6775577/2025/11/03/jake-paul-fight-canceled-gervonta-davis/
+
 **What Trade War? China’s Export Juggernaut Marches On**\
 `As Trump has imposed steep tariffs on China, American importers are buying much less. But China has offset the decline from the United States with breathtaking speed.`\
 https://nytimes.com/interactive/2025/11/03/world/asia/china-exports-trump-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/03/us/politics/trump-advisers-were-paid-over-1-6-mil
 **Prosecutors Urge Judge to Rebuff Comey’s Bid to Dismiss Case**\
 `The filing appeared to be an effort to construct a narrative that James B. Comey had leaked information to the news media without actually tying such assertions to the claims made in the indictment against him.`\
 https://nytimes.com/2025/11/03/us/politics/james-comey-prosecution-trump.html
-
-**It Can Be Blond or Brown**\
-`Patrick Hayden presents a high-definition debut puzzle.`\
-https://nytimes.com/2025/11/03/crosswords/daily-puzzle-2025-11-04.html
 
