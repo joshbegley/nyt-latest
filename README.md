@@ -10,6 +10,10 @@ https://nytimes.com/athletic/6776685/2025/11/04/five-surprising-nhl-stats-plus-w
 `After three decades, the MSNBC brand will be retired on Nov. 15. The network has called in Rachel Maddow to help viewers make the transition.`\
 https://nytimes.com/2025/11/04/business/media/msnbc-name-change-ms-now.html
 
+**Fofana spoken to by Chelsea after latest dangerous driving offence**\
+`Fofana appeared in court last week over an incident which took place on April 20.`\
+https://nytimes.com/athletic/6776722/2025/11/04/chelsea-wesley-fofana-driving-ban/
+
 **Moultrie extends contract with Thorns through 2029**\
 `The 20-year-old hasn't ruled out going to Europe, but for now is committed to growing even more with the Thorns.`\
 https://nytimes.com/athletic/6774253/2025/11/04/olivia-moultrie-extends-contract-portland-thorns-2029/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/04/world/americas/mexico-mayor-carlos-manzo-drug-war
 **Arise, Sir David: But what is the significance of Beckham's knighthood?**\
 `The former England captain and now joint owner of Inter Miami received the title at Windsor Castle today`\
 https://nytimes.com/athletic/6405931/2025/11/04/beckham-knighthood-sir-england/
-
-**5 Things We’re Watching on Election Day in California**\
-`Proposition 50 is the only statewide question on the ballot, but there are numerous dynamics at play.`\
-https://nytimes.com/2025/11/04/us/california-election-guide.html
 
