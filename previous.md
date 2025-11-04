@@ -1,3 +1,7 @@
+**Celebrities to New York City: Pick This Guy!**\
+`As the end nears in the mayoral race, some famous people have let their endorsements be known.`\
+https://nytimes.com/2025/11/03/style/celebrity-endorsements-nyc-mayor.html
+
 **Commanders LB Frankie Luvu suspended for third hip-drop tackle of season**\
 `Luvu’s one-game suspension is the league's first for hip-drop tackles, which became illegal plays in 2024.`\
 https://nytimes.com/athletic/6775304/2025/11/03/commanders-frankie-luvu-suspended-hip-drop-tackle/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6775103/2025/11/03/ravens-titans-trade-dremont-jone
 **How to watch Navy vs. Notre Dame: Time, TV, streaming**\
 `Find out how to watch the Navy Midshipmen play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6775290/2025/11/03/navy-vs-notre-dame-stream-how-to-watch-nov-8/
-
-**How to watch Florida vs. Kentucky: Time, TV, streaming**\
-`Find out how to watch the Florida Gators play the Kentucky Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6775283/2025/11/03/florida-vs-kentucky-stream-how-to-watch-nov-8/
 
