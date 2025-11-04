@@ -1,3 +1,7 @@
+**Leafs rescue abysmal start vs. Penguins with surge from their stars: 3 thoughts**\
+`The Leafs played their worst two periods of the season before Matthews and Nylander took over.`\
+https://nytimes.com/athletic/6775569/2025/11/03/maple-leafs-nylander-matthews-berube-penguins/
+
 **Tyler Skaggs trial focuses on whether Angels knew of employee's drug use**\
 `Employee testifies she was unaware of Eric Kay’s drug abuse, despite texts and email exchanges showing that she was repeatedly notified.`\
 https://nytimes.com/athletic/6775537/2025/11/03/angels-tyler-skaggs-trial-employee-drug-use/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/03/crosswords/daily-puzzle-2025-11-04.html
 **G.O.P. Figures Seek Distance From Tucker Carlson, Denouncing Antisemitism**\
 `Prominent Republicans rejected the views of Nick Fuentes, a white supremacist, though some refrained from directly criticizing Tucker Carlson for interviewing him.`\
 https://nytimes.com/2025/11/03/us/politics/gop-tucker-carlson-nick-fuentes-antisemitism.html
-
-**Spotlight on Mayoral Race Also Captures the New York of Now**\
-`Times photographers caught signal moments from the campaign trail as Zohran Mamdani, Andrew Cuomo and Curtis Sliwa battled for votes.`\
-https://nytimes.com/2025/11/03/nyregion/photos-nyc-mayor-mamdani-cuomo-sliwa.html
 

@@ -1,3 +1,7 @@
+**Leafs rescue abysmal start vs. Penguins with surge from their stars: 3 thoughts**\
+`The Leafs played their worst two periods of the season before Matthews and Nylander took over.`\
+https://nytimes.com/athletic/6775569/2025/11/03/maple-leafs-nylander-matthews-berube-penguins/
+
 **Tyler Skaggs trial focuses on whether Angels knew of employee's drug use**\
 `Employee testifies she was unaware of Eric Kay’s drug abuse, despite texts and email exchanges showing that she was repeatedly notified.`\
 https://nytimes.com/athletic/6775537/2025/11/03/angels-tyler-skaggs-trial-employee-drug-use/
