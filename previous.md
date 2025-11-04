@@ -1,3 +1,7 @@
+**G.O.P. Figures Seek Distance From Tucker Carlson, Denouncing Antisemitism**\
+`Prominent Republicans rejected the views of Nick Fuentes, a white supremacist, though some refrained from directly criticizing Tucker Carlson for interviewing him.`\
+https://nytimes.com/2025/11/03/us/politics/gop-tucker-carlson-nick-fuentes-antisemitism.html
+
 **Spotlight on Mayoral Race Also Captures the New York of Now**\
 `Times photographers caught signal moments from the campaign trail as Zohran Mamdani, Andrew Cuomo and Curtis Sliwa battled for votes.`\
 https://nytimes.com/2025/11/03/nyregion/photos-nyc-mayor-mamdani-cuomo-sliwa.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/03/style/celebrity-endorsements-nyc-mayor.html
 **Commanders LB Frankie Luvu suspended for third hip-drop tackle of season**\
 `Luvu’s one-game suspension is the league's first for hip-drop tackles, which became illegal plays in 2024.`\
 https://nytimes.com/athletic/6775304/2025/11/03/commanders-frankie-luvu-suspended-hip-drop-tackle/
-
-**Los Angeles Welcomes Champion Dodgers Home**\
-`Angelenos flocked downtown on Monday morning to welcome the Dodgers back after their World Series win on Saturday over the Toronto Blue Jays.`\
-https://nytimes.com/video/us/100000010499696/los-angeles-welcomes-champion-dodgers-home.html
 
