@@ -1,3 +1,19 @@
+**Mamdani plans to keep Tisch as police commissioner if elected.**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/mamdani-jessica-tisch-nypd
+
+**Senator Alex Padilla Says He Will Not Run for California Governor**\
+`Mr. Padilla, a Democrat, held an impromptu news conference to announce he would not run for California’s top office.`\
+https://nytimes.com/2025/11/04/us/politics/alex-padilla-california-governor-2026.html
+
+**USMNT's Balogun scores first Champions League goal of his career**\
+`Balogun gave Monaco the lead vs. Bodo/Glimt with an impressive finish from a tight angle`\
+https://nytimes.com/athletic/6778084/2025/11/04/folarin-balogun-champions-league-goal-video-monaco-usmnt/
+
+**Saints trade offensive tackle Trevor Penning to Chargers: Source**\
+`The Chargers have lost both of their standout starting tackles for the season due to injuries. `\
+https://nytimes.com/athletic/6778097/2025/11/04/trevor-penning-trade-chargers-saints-2025-nfl-news/
+
 **Supreme Court Considers Toxic Baby Food Lawsuit Involving Whole Foods**\
 `The justices grappled with a case involving a lawsuit by a Texas couple who claimed toxins in baby food had sickened their son.`\
 https://nytimes.com/2025/11/04/us/politics/supreme-court-baby-food-whole-foods.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/11/04/arts/design/norman-rockwell-homeland-security-imm
 **Suns' Booker says playing in Phoenix is 'something special,' wants to stay**\
 `Despite the roster uncertainty, Booker stayed true to Phoenix and embraced the idea that people associate him with the city.`\
 https://nytimes.com/athletic/6777983/2025/11/04/phoenix-suns-devin-booker-stay/
-
-**Is it ‘subsidizing the rich’ to make buses and child care free for all?**\
-`By Eliza Shapiro`\
-https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/is-it-subsidizing-the-rich-to-make-buses-and-child-care-free-for-all
-
-**Aging N.Y.C. Seminary’s Prayers Are Answered With a Lease by Vanderbilt**\
-`The Tennessee university has promised to make repairs to the General Theological Seminary buildings as it establishes a satellite campus in Chelsea.`\
-https://nytimes.com/2025/11/04/nyregion/nyc-seminary-episcopal-vanderbilt-university.html
-
-**Lewandowski 'thinking about what is best for me' with Barcelona future uncertain**\
-`Lewandowski is into the final year of his contract and the expectation at Barcelona is that he leaves next summer.`\
-https://nytimes.com/athletic/6777855/2025/11/04/barcelona-lewandowski-future-contract/
-
-**Eni Aluko says she 'did not get out of bed or eat' after Joey Barton social media posts**\
-`Liverpool Crown Court heard Aluko and fellow pundit Lucy Ward describe the impact Barton’s posts had on them on Tuesday.`\
-https://nytimes.com/athletic/6777381/2025/11/04/joey-barton-eni-aluko-posts/
 
