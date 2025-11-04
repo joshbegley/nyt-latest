@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6776507/2025/11/04/psg-1-bayern-2-diaz-hakimi-dembe
 `The Patriots stood pat ahead of the trade deadline, but they stuck with their long-term plan of building up the roster via the draft.`\
 https://nytimes.com/athletic/6778151/2025/11/04/new-england-patriots-nfl-trade-deadline/
 
-**The Briefing: Liverpool 1 Real Madrid 0 - Are Slot's side back to their best?**\
+**The Briefing: Liverpool 1 Real Madrid 0 - Are Slot's side back to their best? And what went wrong for Alonso?**\
 `The big talking points analysed from Tuesday's big Champions League tie at Anfield`\
 https://nytimes.com/athletic/6776506/2025/11/04/liverpool-1-real-madrid-0-analysis/
 

@@ -1,3 +1,7 @@
+**Tom Brady says dog Junie is a clone of family's previous dog**\
+`Brady says he has partnered with Colossal Biosciences to create a clone of his late dog Luna.`\
+https://nytimes.com/athletic/6777780/2025/11/04/tom-brady-dog-junie-clone/
+
 **Is the NHL the best place for Easton Cowan right now?**\
 `Cowan has had a nice start to his NHL career but still might benefit from some time in the minors.`\
 https://nytimes.com/athletic/6778160/2025/11/04/maple-leafs-easton-cowan-nhl/
