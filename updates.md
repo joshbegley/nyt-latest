@@ -1,3 +1,11 @@
+**The Pulse: Arizona’s big win — and bigger decision**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6775579/2025/11/04/nfl-cowboys-cardinals-the-pulse/
+
+**Manager of Serbian top-flight club dies after collapsing mid-game**\
+`Mladen Zizovic collapsed on the sidelines in the 22nd minute of the match against FK Mladost Lucani.`\
+https://nytimes.com/athletic/6776189/2025/11/04/mladen-zizovic-death-serbian-manager/
+
 **We asked Mamdani, Cuomo and Sliwa 10 questions. Here’s what they said.**\
 `By Emma G. Fitzsimmons`\
 https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/we-asked-mamdani-cuomo-and-sliwa-10-questions-heres-what-they-said
