@@ -1,3 +1,11 @@
+**Josh Harding opens up on MS, his Wild comeback attempts and life after the NHL**\
+`“I feel like the ending of my career overshadowed my actual career and who I was. … I just hope that fans can recall the good times."`\
+https://nytimes.com/athletic/6774471/2025/11/04/josh-harding-wild-multiple-sclerosis-retirement/
+
+**Draymond Green opens up about his desire to add more "stamps" to his resume**\
+`It would seem Draymond Green’s future Hall of Fame induction is solidified. What else is he hungry for?`\
+https://nytimes.com/athletic/6775309/2025/11/04/draymond-green-wembanyama-defense/
+
 **NBA weekly watch guide: Randle's return to The Garden, Durant vs. Wembanyama in Cup play**\
 `Here are the seven national TV games to look for Tuesday through Friday across pro basketball.`\
 https://nytimes.com/athletic/6774360/2025/11/04/durant-wembanyama-timberwolves-knicks-lakers-how-to-watch/
