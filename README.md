@@ -1,3 +1,15 @@
+**Pennsylvania Supreme Court: What Is a ‘Retention Election’ and How Does It Work?**\
+`Voters will decide whether three justices who were elected as Democrats keep their seats for another 10-year term.`\
+https://nytimes.com/2025/11/04/us/politics/pennsylvania-supreme-court-retention-election-explainer.html
+
+**Cuomo had dreams of becoming a radio star. Then they unraveled.**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/cuomo-had-dreams-of-becoming-a-radio-star-then-they-unraveled
+
+**Chelsea's Palmer could return for Barcelona game, Maresca says**\
+`The midfielder has not played since being substituted against Manchester United due to a groin injury.`\
+https://nytimes.com/athletic/6776558/2025/11/04/chelsea-cole-palmer-injury-news/
+
 **Fantasy football Week 10 drops: Turn the page on Alvin Kamara, Nick Chubb**\
 `Gary Davenport identifies players who are struggling to validate their spot on fantasy rosters, including a couple venerated running backs.`\
 https://nytimes.com/athletic/6775640/2025/11/04/fantasy-football-week-10-drops-kamara-chubb/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6776472/2025/11/04/tennessee-vs-nc-state-stream-how
 **2025 NFL Playoff Simulator: Each team’s path to the postseason after Week 9**\
 `<p>Welcome to The Athletic’s 2025 NFL Playoff Simulator, where you’ll find everything you need to know about all the ways your favorite team&#8217;s season could end, from a No.`\
 https://nytimes.com/athletic/6513952/2025/11/04/2025-nfl-playoff-simulator-path-postseason/
-
-**England draw Spain in UEFA World Cup qualifying group**\
-`This summer's European Championship winners England are yet to win a World Cup after losing to Spain in the 2023 final.`\
-https://nytimes.com/athletic/6776290/2025/11/04/england-spain-uefa-world-cup-qualifying-2027/
-
-**Trump Administration Live Updates: Government Shutdown Nears Record**\
-``\
-https://nytimes.com/live/2025/11/04/us/trump-shutdown-news
-
-**Leandro Trossard: Arsenal's quiet leader who is becoming increasingly vocal**\
-`The Belgian is a reliable and increasingly integral part of this Arsenal squad, as they target honours on multiple fronts`\
-https://nytimes.com/athletic/6776087/2025/11/04/leandro-trossard-arsenal-leadership/
 
