@@ -1,3 +1,15 @@
+**Ohio State final thoughts: Julian Sayin for Heisman? Can anyone cover Carnell Tate?**\
+`Penn State may be a shell of what was expected, but there was still plenty to take away from another dominant Ohio State win.`\
+https://nytimes.com/athletic/6773725/2025/11/04/ohio-state-julian-sayin-heisman-penn-state/
+
+**Sliwa’s management of the Guardian Angels calls his leadership into question.**\
+`By Debra Kamin`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/sliwas-management-of-the-guardian-angels-calls-his-leadership-into-question
+
+**At the Gun Range**\
+`Blast waves may be damaging shooters’ brains. The Times has a new investigation on how it happens.`\
+https://nytimes.com/2025/11/04/briefing/at-the-gun-range.html
+
 **Josh Harding opens up on MS, his Wild comeback attempts and life after the NHL**\
 `“I feel like the ending of my career overshadowed my actual career and who I was. … I just hope that fans can recall the good times."`\
 https://nytimes.com/athletic/6774471/2025/11/04/josh-harding-wild-multiple-sclerosis-retirement/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6774834/2025/11/04/rangers-vincent-trocheck-lineup-
 **SEC stadium superlatives: Who has the most underrated (and overrated) venue?**\
 `By seating capacity, the SEC is home to five of the 10 biggest stadiums in the world, and eight of the top 25. Here's what we like best.`\
 https://nytimes.com/athletic/6774451/2025/11/04/best-sec-college-football-stadiums/
-
-**Texas and Sean Miller both need a breakthrough. Is this where they finally get it?**\
-`Sean Miller and Texas are both hungry to break through. Can they reach the Final Four and a national championship`\
-https://nytimes.com/athletic/6774437/2025/11/04/texas-sean-miller-college-basketball-preview/
-
-**Cardinals offseason primer: Key dates, storylines and what to watch as free agency begins**\
-`What will this winter bring for the Cardinals, who are under new leadership for the first time in nearly two decades?`\
-https://nytimes.com/athletic/6775332/2025/11/04/cardinals-offseason-primer-free-agency-key-dates-storylines/
-
-**Heisman straw poll: Ohio State's Sayin gaining ground on Indiana's Mendoza**\
-`Mendoza, Sayin and Alabama's Ty Simpson form the top three in our Heisman voting after Week 10.`\
-https://nytimes.com/athletic/6774317/2025/11/04/heisman-trophy-poll-julian-sayin-fernando-mendoza/
 

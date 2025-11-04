@@ -1,3 +1,15 @@
+**Ohio State final thoughts: Julian Sayin for Heisman? Can anyone cover Carnell Tate?**\
+`Penn State may be a shell of what was expected, but there was still plenty to take away from another dominant Ohio State win.`\
+https://nytimes.com/athletic/6773725/2025/11/04/ohio-state-julian-sayin-heisman-penn-state/
+
+**Sliwa’s management of the Guardian Angels calls his leadership into question.**\
+`By Debra Kamin`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/sliwas-management-of-the-guardian-angels-calls-his-leadership-into-question
+
+**At the Gun Range**\
+`Blast waves may be damaging shooters’ brains. The Times has a new investigation on how it happens.`\
+https://nytimes.com/2025/11/04/briefing/at-the-gun-range.html
+
 **Josh Harding opens up on MS, his Wild comeback attempts and life after the NHL**\
 `“I feel like the ending of my career overshadowed my actual career and who I was. … I just hope that fans can recall the good times."`\
 https://nytimes.com/athletic/6774471/2025/11/04/josh-harding-wild-multiple-sclerosis-retirement/
