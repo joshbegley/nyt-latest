@@ -1,3 +1,15 @@
+**Reds announce several coaching staff changes, including promotion of Mike Napoli**\
+`The changes come after bench coach Brad Mills, a long-time Terry Francona staffer, retired. `\
+https://nytimes.com/athletic/6774988/2025/11/03/cincinnati-reds-coaching-staff-mike-napoli/
+
+**Mayor of Orange County Will Run for Florida Governor as a Democrat**\
+`Jerry Demings has led the county, home to Orlando, since 2018. Gov. Ron DeSantis will leave office at the end of next year because of term limits.`\
+https://nytimes.com/2025/11/03/us/demings-orange-county-florida-governor.html
+
+**Starbucks to Sell 60% of Its China Business to a Private Equity Firm**\
+`In a deal valued at $4 billion, Boyu Capital will acquire a stake in the coffee giant’s 8,000 stores in China.`\
+https://nytimes.com/2025/11/03/business/starbucks-china-boyu-capital.html
+
 **Weekly Student News Quiz: Hurricane, Marathon, Shutdown**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/11/03/learning/03StudentNewsQuiz.html
