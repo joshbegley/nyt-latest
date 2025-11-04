@@ -1,3 +1,11 @@
+**Where will Trocheck fit back into the lineup? Evaluating the Rangers' options**\
+`Coach Mike Sullivan has a couple of different options for how to arrange his top nine once Trocheck returns from an upper-body injury.`\
+https://nytimes.com/athletic/6774834/2025/11/04/rangers-vincent-trocheck-lineup-options/
+
+**SEC stadium superlatives: Who has the most underrated (and overrated) venue?**\
+`By seating capacity, the SEC is home to five of the 10 biggest stadiums in the world, and eight of the top 25. Here's what we like best.`\
+https://nytimes.com/athletic/6774451/2025/11/04/best-sec-college-football-stadiums/
+
 **Bessent Plans to Attend Tariff Arguments at the Supreme Court**\
 `Treasury Secretary Scott Bessent dismissed the idea that his presence could be seen as an attempt to intimidate the court on a case that President Trump considers vital to his economic policy.`\
 https://nytimes.com/2025/11/04/us/politics/supreme-court-tariffs-bessent.html
