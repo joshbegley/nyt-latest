@@ -1,3 +1,7 @@
+**Mamdani votes ‘yes’ on ballot measures giving the mayor more power over new housing projects.**\
+`By Mihir Zaveri`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/mamdani-votes-yes-on-ballot-measures-giving-the-mayor-more-power-over-new-housing-projects
+
 **How the Cop Show ‘Barney Miller’ Made Gay TV History, 50 Years Ago**\
 `A 1975 episode introduced audiences to one of the first openly gay couples in mainstream American television not depicted as deviants or criminals.`\
 https://nytimes.com/2025/11/04/arts/television/barney-miller-gay-couple.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6774253/2025/11/04/olivia-moultrie-extends-contract
 **Is the East closing in on the West? Who's in early trouble in the NBA Cup?**\
 `We may be jumping to conclusions, but so far, the perceived bottom of the East has held its own against the top of the West.`\
 https://nytimes.com/athletic/6774816/2025/11/04/nba-eastern-conference-parity-nba-cup/
-
-**Who should run N.Y.C. schools? Mamdani and Cuomo clash over the answer.**\
-`By Troy Closson`\
-https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/who-should-run-nyc-schools-mamdani-and-cuomo-clash-over-the-answer
 

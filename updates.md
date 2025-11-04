@@ -1,3 +1,7 @@
+**Mamdani votes ‘yes’ on ballot measures giving the mayor more power over new housing projects.**\
+`By Mihir Zaveri`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/mamdani-votes-yes-on-ballot-measures-giving-the-mayor-more-power-over-new-housing-projects
+
 **How the Cop Show ‘Barney Miller’ Made Gay TV History, 50 Years Ago**\
 `A 1975 episode introduced audiences to one of the first openly gay couples in mainstream American television not depicted as deviants or criminals.`\
 https://nytimes.com/2025/11/04/arts/television/barney-miller-gay-couple.html
