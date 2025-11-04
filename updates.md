@@ -1,3 +1,15 @@
+**We asked Mamdani, Cuomo and Sliwa 10 questions. Here’s what they said.**\
+`By Emma G. Fitzsimmons`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/we-asked-mamdani-cuomo-and-sliwa-10-questions-heres-what-they-said
+
+**Three Major Tests of Trump’s Power, and the Anonymous Ballroom Donors**\
+`Plus, killer whales versus great whites.`\
+https://nytimes.com/2025/11/04/podcasts/trump-election-day-supreme-court-tariffs-shutdown.html
+
+**Siegel: The Maple Leafs still need to prove they’re a serious team**\
+`Sure, a third-period comeback is all well and good. But playing for 20 minutes isn't enough, and Berube and the Leafs know it.`\
+https://nytimes.com/athletic/6775813/2025/11/04/toronto-maple-leafs-berube-nylander-performance/
+
 **'A different type of joy': Knicks players recall first time seeing someone in their jersey**\
 `Getting your own jersey is one thing. Seeing someone else wear it is another.`\
 https://nytimes.com/athletic/6770898/2025/11/04/knicks-players-fans-jersey-nba/

@@ -1,3 +1,15 @@
+**We asked Mamdani, Cuomo and Sliwa 10 questions. Here’s what they said.**\
+`By Emma G. Fitzsimmons`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/we-asked-mamdani-cuomo-and-sliwa-10-questions-heres-what-they-said
+
+**Three Major Tests of Trump’s Power, and the Anonymous Ballroom Donors**\
+`Plus, killer whales versus great whites.`\
+https://nytimes.com/2025/11/04/podcasts/trump-election-day-supreme-court-tariffs-shutdown.html
+
+**Siegel: The Maple Leafs still need to prove they’re a serious team**\
+`Sure, a third-period comeback is all well and good. But playing for 20 minutes isn't enough, and Berube and the Leafs know it.`\
+https://nytimes.com/athletic/6775813/2025/11/04/toronto-maple-leafs-berube-nylander-performance/
+
 **'A different type of joy': Knicks players recall first time seeing someone in their jersey**\
 `Getting your own jersey is one thing. Seeing someone else wear it is another.`\
 https://nytimes.com/athletic/6770898/2025/11/04/knicks-players-fans-jersey-nba/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6776129/2025/11/04/celtics-joe-mazzulla-jazz/
 **Who could make the Hall of Fame? The case for — and against — Contemporary Era candidates**\
 `The 16-person committee of Hall of Fame members, executives and veteran media members may vote for as many as three candidates.`\
 https://nytimes.com/athletic/6774891/2025/11/04/baseball-hall-of-fame-contemporary-ballot-candidates/
-
-**2026 NBA mock draft: A terrific top trio that will tempt teams to tank**\
-`It feels unlikely that anyone else will break into the top three, but who else in the 2026 class could make an NBA impact?`\
-https://nytimes.com/athletic/6730186/2025/11/04/nba-mock-draft-darryn-peterson-aj-dybantsa-cameron-boozer/
-
-**What we learned from college basketball's opening day: This freshman class might be special**\
-`Plus: Is that Auburn-Bethune-Cookman score real?`\
-https://nytimes.com/athletic/6775625/2025/11/04/college-basketball-opening-takeaways-koa-peat-aj-dybantsa/
-
-**Sabres mailbag: First month impressions, Levi's hot start, Tuch's contract, more**\
-`The Sabres have points in six straight games, including an overtime win over the Capitals on Saturday.`\
-https://nytimes.com/athletic/6774822/2025/11/04/sabres-standings-stats-alex-tuch-devon-levi/
 

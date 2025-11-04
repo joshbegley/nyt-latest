@@ -1,3 +1,11 @@
+**The Pulse: Arizona’s big win — and bigger decision**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6775579/2025/11/04/nfl-cowboys-cardinals-the-pulse/
+
+**Manager of Serbian top-flight club dies after collapsing mid-game**\
+`Mladen Zizovic collapsed on the sidelines in the 22nd minute of the match against FK Mladost Lucani.`\
+https://nytimes.com/athletic/6776189/2025/11/04/mladen-zizovic-death-serbian-manager/
+
 **We asked Mamdani, Cuomo and Sliwa 10 questions. Here’s what they said.**\
 `By Emma G. Fitzsimmons`\
 https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/we-asked-mamdani-cuomo-and-sliwa-10-questions-heres-what-they-said
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6774993/2025/11/04/panthers-game-plan-micah-parsons
 **Cowboys' disappointing loss has Jerry Jones re-evaluating trade thoughts**\
 `The Dallas owner and GM said earlier Monday that a deal had been made. "I didn't plan on this," Jones said after the Cowboys' loss Monday.`\
 https://nytimes.com/athletic/6775974/2025/11/04/cowboys-mnf-loss-jerry-jones-trade-deadline/
-
-**Joe Mazzulla has a much different job now with the Celtics, and it shows**\
-`Mazzulla hasn't hesitated to pull young players after mistakes. There were a lot of them in Monday's loss to the Jazz.`\
-https://nytimes.com/athletic/6776129/2025/11/04/celtics-joe-mazzulla-jazz/
-
-**Who could make the Hall of Fame? The case for — and against — Contemporary Era candidates**\
-`The 16-person committee of Hall of Fame members, executives and veteran media members may vote for as many as three candidates.`\
-https://nytimes.com/athletic/6774891/2025/11/04/baseball-hall-of-fame-contemporary-ballot-candidates/
 
