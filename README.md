@@ -1,40 +1,36 @@
-**Trump Can Reconsider Permit for Offshore Wind Farm, Judge Rules**\
-`The decision dealt a setback to the developers of SouthCoast Wind, a 141-turbine project off Nantucket, Mass.`\
-https://nytimes.com/2025/11/04/climate/trump-nantucket-wind-farm.html
+**How to watch Patriots vs. Buccaneers: Time, TV, streaming**\
+`Find out how to watch the New England Patriots play the Tampa Bay Buccaneers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6777880/2025/11/04/patriots-vs-buccaneers-stream-how-to-watch-nov-9/
 
-**Dick Cheney’s Unwavering Image**\
-`The former Veep embodied a calculating technocrat out central casting. He didn’t care.`\
-https://nytimes.com/2025/11/04/style/dick-cheney-machiavellian-style.html
+**How to watch Bills vs. Dolphins: Time, TV, streaming**\
+`Find out how to watch the Buffalo Bills play the Miami Dolphins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6777876/2025/11/04/bills-vs-dolphins-stream-how-to-watch-nov-9/
 
-**Why Zohran Mamdani and Curtis Sliwa Are on the Ballot Twice for N.Y.C. Mayor**\
-`The listings follow the normal rules for ballots in New York City.`\
-https://nytimes.com/2025/11/04/nyregion/nyc-mayor-ballot-lines.html
+**How to watch New Mexico State vs. USC: Time, TV, streaming**\
+`Find out how to watch the New Mexico State Aggies play the USC Trojans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6777874/2025/11/04/new-mexico-state-vs-usc-stream-how-to-watch-nov-4/
 
-**Mamdani faces questions over a link to Jeremy Corbyn, a U.K. politician who was accused of antisemitism.**\
-`By Dana Rubinstein and Michael Gold`\
-https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/mamdani-faces-questions-over-a-link-to-jeremy-corbyn-a-uk-politician-who-was-accused-of-antisemitism
+**How to watch Texas vs. Duke: Time, TV, streaming**\
+`Find out how to watch the Texas Longhorns play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6777872/2025/11/04/texas-vs-duke-stream-how-to-watch-nov-4/
 
-**Cuomo earned almost $5 million from consulting. He won’t name his clients.**\
-`By Nicholas Fandos`\
-https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/cuomo-earned-almost-5-million-from-consulting-he-wont-name-his-clients
+**How to watch Giants vs. Bears: Time, TV, streaming**\
+`Find out how to watch the New York Giants play the Chicago Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6777869/2025/11/04/giants-vs-bears-stream-how-to-watch-nov-9/
 
-**The Briefing: Slavia Prague 0 Arsenal 3 - Dowman's record, clinical Merino and Arteta's strong selection**\
-`Arsenal overcame Slavia Prague 3-0 on Tuesday to continue their perfect start to their Champions League campaign`\
-https://nytimes.com/athletic/6776505/2025/11/04/slavia-prague-arsenal-result-report-analysis/
+**How to watch Lindenwood vs. Texas Tech: Time, TV, streaming**\
+`Find out how to watch the Lindenwood Lions play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6777865/2025/11/04/lindenwood-vs-texas-tech-stream-how-to-watch-nov-4/
 
-**Turmoil Over Food Stamps Is Defining Issue for Some New York Voters**\
-`For some voters on Tuesday the trimming and delay of benefits under the federal food aid program known as SNAP was helping inform who would get their support.`\
-https://nytimes.com/2025/11/04/nyregion/trump-snap-benefits-nyc-mayoral-race.html
+**How to watch Jaguars vs. Texans: Time, TV, streaming**\
+`Find out how to watch the Jacksonville Jaguars play the Houston Texans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6777863/2025/11/04/jaguars-vs-texans-stream-how-to-watch-nov-9/
 
-**Nigeria, in Trump’s Cross Hairs, Rejects Christian Genocide Claims**\
-`Officials have accused the United States of foreign interference and called on Washington to support the country’s democracy instead of fomenting division.`\
-https://nytimes.com/2025/11/04/world/africa/nigeria-rejects-trump-christian-killings.html
+**How to watch Saints vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the New Orleans Saints play the Carolina Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6777858/2025/11/04/saints-vs-panthers-stream-how-to-watch-nov-9/
 
-**Bomb Threat Halts Flights at Reagan Airport, Officials Say**\
-`Flights resumed in the early afternoon after passengers were safely taken off a plane that arrived from Houston, the airport said. The F.B.I. said “no hazards” were found.`\
-https://nytimes.com/2025/11/04/us/reagan-airport-ground-stop.html
-
-**TikTok and Optimism: How Rob Jetten Won Over the Netherlands**\
-`Sleek social media posts and a shift rightward on immigration helped a center-left party win last week’s election. But can its leader, Mr. Jetten, form a government?`\
-https://nytimes.com/2025/11/04/world/europe/rob-jetten-dutch-elections.html
+**How to watch Houston Christian vs. LSU: Time, TV, streaming**\
+`Find out how to watch the Houston Christian Huskies play the LSU Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6777859/2025/11/04/houston-christian-vs-lsu-stream-how-to-watch-nov-4/
 
