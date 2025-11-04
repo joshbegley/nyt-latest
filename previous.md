@@ -1,3 +1,15 @@
+**'A different type of joy': Knicks players recall first time seeing someone in their jersey**\
+`Getting your own jersey is one thing. Seeing someone else wear it is another.`\
+https://nytimes.com/athletic/6770898/2025/11/04/knicks-players-fans-jersey-nba/
+
+**What's it like to call an all-time World Series Game 7? Joe Davis knows**\
+`Go inside the mind of Fox's play-by-play voice for World Series, from setting up the final moment to self-analyzing his Game 7 call.`\
+https://nytimes.com/athletic/6589855/2025/11/04/joe-davis-world-series-game-7-fox-dodgers/
+
+**How Bears can improve after wild win: Limit explosive plays, fix special teams**\
+`The Bears had a lot go right on offense in their crazy win over the Bengals but also a lot that went wrong that needs to be corrected.`\
+https://nytimes.com/athletic/6774950/2025/11/04/bears-improvement-areas-after-wild-win/
+
 **Panthers' plan for Micah Parsons made for 'boring,' ineffective day for Packers' star**\
 `Carolina held Micah Parsons without a quarterback pressure for the first time in his 71 career games with some "keep-away football."`\
 https://nytimes.com/athletic/6774993/2025/11/04/panthers-game-plan-micah-parsons/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6775625/2025/11/04/college-basketball-opening-takea
 **Sabres mailbag: First month impressions, Levi's hot start, Tuch's contract, more**\
 `The Sabres have points in six straight games, including an overtime win over the Capitals on Saturday.`\
 https://nytimes.com/athletic/6774822/2025/11/04/sabres-standings-stats-alex-tuch-devon-levi/
-
-**Contenders' offensive woes, goaltending gaffes and the Wild: Concerning NHL trends**\
-`With most teams about a dozen games into the season, there's still time to turn these trends around before they derail the season.`\
-https://nytimes.com/athletic/6775018/2025/11/04/nhl-concerning-trends-special-teams-goaltending/
-
-**Donte DiVincenzo's fighting spirit emerging at perfect time for Timberwolves**\
-`Minnesota is starting to see signs of the real DiVincenzo, who is rediscovering the spicy edge to his game.`\
-https://nytimes.com/athletic/6775193/2025/11/04/donte-divincenzos-timberwolves-fighting-spirit/
-
-**Blackhawks observations: Oliver Moore's early arrival signals a shift in mentality**\
-`Chicago, for the first time in a long time, is playing to win. And its young star provides the best chance to do so.`\
-https://nytimes.com/athletic/6775947/2025/11/04/blackhawks-oliver-moore-early-arrival/
 
