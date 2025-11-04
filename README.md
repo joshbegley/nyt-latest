@@ -1,6 +1,6 @@
 **Lewandowski 'thinking about what is best for me' with Barcelona future uncertain**\
-`Lewandowski is into the final year of his contract and the expectation at Barcelona is that he leaves next summer`\
-https://nytimes.com/athletic/6777855/2025/11/04/barcelona-lewandowski-futrue-contract/
+`Lewandowski is into the final year of his contract and the expectation at Barcelona is that he leaves next summer.`\
+https://nytimes.com/athletic/6777855/2025/11/04/barcelona-lewandowski-future-contract/
 
 **Eni Aluko says she 'did not get out of bed or eat' after Joey Barton social media posts**\
 `Liverpool Crown Court heard Aluko and fellow pundit Lucy Ward describe the impact Barton’s posts had on them on Tuesday.`\
