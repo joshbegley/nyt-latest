@@ -1,3 +1,11 @@
+**Dick Cheney: A Life in Pictures**\
+`The former vice president helped shaped the role of the United States around the world.`\
+https://nytimes.com/2025/11/04/obituaries/dick-cheney-life-career-photos.html
+
+**Pizza Hut’s Parent Says Struggling Chain May Go Up for Sale**\
+`Yum! Brands, which also owns Taco Bell and KFC, said it would explore “strategic options” for the pizza chain, including a sale.`\
+https://nytimes.com/2025/11/04/business/pizza-hut-yum-brands.html
+
 **Aidan Morris and the USMNT World Cup hopeful's year of opportunity**\
 `Morris returned to the national team in October after nearly a year away and remains a key cog on a contender for Premier League promotion`\
 https://nytimes.com/athletic/6773466/2025/11/04/aidan-morris-usmnt-middlesbrough-world-cup/

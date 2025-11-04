@@ -1,3 +1,7 @@
+**How an elite public high school set Mamdani on the path to politics.**\
+`By Matt Flegenheimer and Benjamin Oreskes`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/how-an-elite-public-high-school-set-mamdani-on-the-path-to-politics
+
 **Dick Cheney: A Life in Pictures**\
 `The former vice president helped shaped the role of the United States around the world.`\
 https://nytimes.com/2025/11/04/obituaries/dick-cheney-life-career-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/04/business/pizza-hut-yum-brands.html
 **Cuomo had dreams of becoming a radio star. Then they unraveled.**\
 `By Nicholas Fandos`\
 https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/cuomo-had-dreams-of-becoming-a-radio-star-then-they-unraveled
-
-**Chelsea's Palmer could return for Barcelona game, Maresca says**\
-`The midfielder has not played since being substituted against Manchester United due to a groin injury.`\
-https://nytimes.com/athletic/6776558/2025/11/04/chelsea-cole-palmer-injury-news/
 
