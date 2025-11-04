@@ -1,3 +1,7 @@
+**N.Y.C. Mayoral Candidates Deliver Final Appeals Before Election**\
+`On Monday, New York City’s three mayoral candidates made a final attempt to drum up support from voters the day before the election. Over 735,000 people have already voted early, more than four times the amount over the same period of time in 2021, according to the Board of Elections.`\
+https://nytimes.com/video/nyregion/100000010499491/nyc-mayoral-election-candidate.html
+
 **Dodgers already aiming for a third World Series parade: 'Three-peat, let's go'**\
 `Mookie Betts said of his World Series ring collection: “It’s time to fill the hand all the way up, baby."`\
 https://nytimes.com/athletic/6775113/2025/11/03/dodgers-parade-world-series-three-peat/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6775284/2025/11/03/california-vs-louisville-stream-
 **How to watch Washington vs. Wisconsin: Time, TV, streaming**\
 `Find out how to watch the Washington Huskies play the Wisconsin Badgers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6775278/2025/11/03/washington-vs-wisconsin-stream-how-to-watch-nov-8/
-
-**How to watch LSU vs. Alabama: Time, TV, streaming**\
-`Find out how to watch the LSU Tigers play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6775274/2025/11/03/lsu-vs-alabama-stream-how-to-watch-nov-8/
 

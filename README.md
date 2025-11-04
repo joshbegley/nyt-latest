@@ -1,3 +1,11 @@
+**Commanders LB Frankie Luvu suspended for 3rd hip-drop tackle of season**\
+`Luvu’s suspension is the league's first for hip-drop tackles, which became illegal plays in 2024.`\
+https://nytimes.com/athletic/6775304/2025/11/03/commanders-frankie-luvu-suspended-hip-drop-tackle/
+
+**Los Angeles Welcomes Champion Dodgers Home**\
+`Angelenos flocked downtown on Monday morning to welcome the Dodgers back after their World Series win on Saturday over the Toronto Blue Jays.`\
+https://nytimes.com/video/us/100000010499696/los-angeles-welcomes-champion-dodgers-home.html
+
 **N.Y.C. Mayoral Candidates Deliver Final Appeals Before Election**\
 `On Monday, New York City’s three mayoral candidates made a final attempt to drum up support from voters the day before the election. Over 735,000 people have already voted early, more than four times the amount over the same period of time in 2021, according to the Board of Elections.`\
 https://nytimes.com/video/nyregion/100000010499491/nyc-mayoral-election-candidate.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6775290/2025/11/03/navy-vs-notre-dame-stream-how-to
 **How to watch Florida vs. Kentucky: Time, TV, streaming**\
 `Find out how to watch the Florida Gators play the Kentucky Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6775283/2025/11/03/florida-vs-kentucky-stream-how-to-watch-nov-8/
-
-**How to watch California vs. Louisville: Time, TV, streaming**\
-`Find out how to watch the California Golden Bears play the Louisville Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6775284/2025/11/03/california-vs-louisville-stream-how-to-watch-nov-8/
-
-**How to watch Washington vs. Wisconsin: Time, TV, streaming**\
-`Find out how to watch the Washington Huskies play the Wisconsin Badgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6775278/2025/11/03/washington-vs-wisconsin-stream-how-to-watch-nov-8/
 
