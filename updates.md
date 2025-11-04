@@ -1,3 +1,19 @@
+**Mamdani plans to keep Tisch as police commissioner if elected.**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/mamdani-jessica-tisch-nypd
+
+**Senator Alex Padilla Says He Will Not Run for California Governor**\
+`Mr. Padilla, a Democrat, held an impromptu news conference to announce he would not run for California’s top office.`\
+https://nytimes.com/2025/11/04/us/politics/alex-padilla-california-governor-2026.html
+
+**USMNT's Balogun scores first Champions League goal of his career**\
+`Balogun gave Monaco the lead vs. Bodo/Glimt with an impressive finish from a tight angle`\
+https://nytimes.com/athletic/6778084/2025/11/04/folarin-balogun-champions-league-goal-video-monaco-usmnt/
+
+**Saints trade offensive tackle Trevor Penning to Chargers: Source**\
+`The Chargers have lost both of their standout starting tackles for the season due to injuries. `\
+https://nytimes.com/athletic/6778097/2025/11/04/trevor-penning-trade-chargers-saints-2025-nfl-news/
+
 **Supreme Court Considers Toxic Baby Food Lawsuit Involving Whole Foods**\
 `The justices grappled with a case involving a lawsuit by a Texas couple who claimed toxins in baby food had sickened their son.`\
 https://nytimes.com/2025/11/04/us/politics/supreme-court-baby-food-whole-foods.html

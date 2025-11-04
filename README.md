@@ -1,3 +1,15 @@
+**Some Republicans Honor Dick Cheney, While Trump Remains Silent**\
+`The late vice president had called President Trump “a coward” and a “threat to our republic” and endorsed former Vice President Kamala Harris in 2024.`\
+https://nytimes.com/2025/11/04/us/politics/republicans-honor-dick-cheney.html
+
+**Interior Secretary Faces Scrutiny for Travel Amid Shutdown**\
+`While some national parks are seeing damage and illegal activity during the government shutdown, Doug Burgum is traveling around the Middle East, selling American gas and oil.`\
+https://nytimes.com/2025/11/04/climate/interior-secretary-travel-shutdown.html
+
+**Tigers close to hiring Anthony Sanders, Cody Asche: Sources**\
+`Sanders, 51, is expected to become the Tigers' first-base coach. Asche, 35, will join the Tigers as an assistant hitting coach.`\
+https://nytimes.com/athletic/6777838/2025/11/04/tigers-staff-anthony-sanders-cody-asche/
+
 **Mamdani plans to keep Tisch as police commissioner if elected.**\
 `By Nicholas Fandos`\
 https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/mamdani-jessica-tisch-nypd
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/04/world/elon-musk-trillion-dollars-election-day-ven
 **Padres' Yu Darvish undergoes UCL repair with internal brace, will miss 2026 season**\
 `Darvish missed the start of the 2025 season with elbow discomfort and pitched through pain all season.`\
 https://nytimes.com/athletic/6777837/2025/11/04/padres-yu-darvish-ucl-surgery/
-
-**In New Jersey, Democrats and Republicans say Trump influenced their vote in the governor’s race.**\
-`By Taylor Robinson and Mark Bonamo`\
-https://nytimes.com/live/2025/11/04/us/election-new-jersey-california/in-new-jersey-voters-say-trump-influenced-their-decision-in-the-governors-race
-
-**Norman Rockwell’s Family Condemns Homeland Security’s Use of His Work**\
-`In a series of social media posts, the department used the artist’s paintings to promote the Trump administration’s anti-immigration agenda.`\
-https://nytimes.com/2025/11/04/arts/design/norman-rockwell-homeland-security-immigration.html
-
-**Suns' Booker says playing in Phoenix is 'something special,' wants to stay**\
-`Despite the roster uncertainty, Booker stayed true to Phoenix and embraced the idea that people associate him with the city.`\
-https://nytimes.com/athletic/6777983/2025/11/04/phoenix-suns-devin-booker-stay/
 
