@@ -1,40 +1,40 @@
-**Pioli sacked by Fiorentina after 10-game winless start in Serie A**\
-`Fiorentina collected just four points and no victories in the 10 Serie A matches during the 60-year-old's time in charge.`\
-https://nytimes.com/athletic/6776266/2025/11/04/fiorentina-manager-sacked-pioli/
+**NBA weekly watch guide: Randle's return to The Garden, Durant vs. Wembanyama in Cup play**\
+`Here are the seven national TV games to look for Tuesday through Friday across pro basketball.`\
+https://nytimes.com/athletic/6774360/2025/11/04/durant-wembanyama-timberwolves-knicks-lakers-how-to-watch/
 
-**Mavericks' late-game struggles cement their status as Texas' third-best team**\
-`Monday's loss to Houston exposed many of the same early-season problems for Dallas.`\
-https://nytimes.com/athletic/6775871/2025/11/04/mavericks-rockets-early-season-problems/
+**Arsenal hopeful of Gyokeres, Martinelli returns for north London derby**\
+`Arsenal are also optimistic they may have Noni Madueke, Kai Havertz and Martin Odegaard back for the November 23 game.`\
+https://nytimes.com/athletic/6776172/2025/11/04/arsenal-gyokeres-martinelli-injury-update/
 
-**In the Virginia governor’s race, it’s Abigail Spanberger vs. Winsome Earle-Sears**\
-`Ms. Spanberger, a centrist Democrat, has led in most polls against Ms. Earle-Searles, the Republican lieutenant governor. One of them will become Virginia’s first female chief executive.`\
-https://nytimes.com/live/2025/11/04/us/election-new-jersey-california/virginia-governor-abigail-spanberger-winsome-earle-sears
+**The 10 best things I saw in college football recruiting over the weekend**\
+`Georgia commit Jared Curtis, the No. 1 QB in the nation in the 247Sports Composite, is having a banner senior season.`\
+https://nytimes.com/athletic/6774067/2025/11/04/college-football-recruiting-thoughts-week-10/
 
-**Why is Andrew Cuomo still running for mayor? The answer may lie in 1977.**\
-`By Adam Nagourney and Benjamin Oreskes`\
-https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/why-is-andrew-cuomo-still-running-for-mayor-the-answer-may-lie-in-1977
+**Where will Trocheck fit back into the lineup? Evaluating the Rangers' options**\
+`Coach Mike Sullivan has a couple of different options for how to arrange his top nine once Trocheck returns from an upper-body injury.`\
+https://nytimes.com/athletic/6774834/2025/11/04/rangers-vincent-trocheck-lineup-options/
 
-**Something special is going on with these Lakers, even without their stars**\
-`No Luka, LeBron or Reaves? No problem against Portland for LA, which has built tremendous vibes in its locker room so far.`\
-https://nytimes.com/athletic/6776116/2025/11/04/lakers-win-shorthanded-doncic-reaves-nick-smith/
+**SEC stadium superlatives: Who has the most underrated (and overrated) venue?**\
+`By seating capacity, the SEC is home to five of the 10 biggest stadiums in the world, and eight of the top 25. Here's what we like best.`\
+https://nytimes.com/athletic/6774451/2025/11/04/best-sec-college-football-stadiums/
 
-**Dick Cheney, Powerful Vice President and Washington Insider, Dies at 84**\
-`A former defense secretary and congressman, he held the nation’s No. 2 job under President George W. Bush and was an architect of policies in an era of war and economic change.`\
-https://nytimes.com/2025/11/04/us/politics/dick-cheney-dead.html
+**Texas and Sean Miller both need a breakthrough. Is this where they finally get it?**\
+`Sean Miller and Texas are both hungry to break through. Can they reach the Final Four and a national championship`\
+https://nytimes.com/athletic/6774437/2025/11/04/texas-sean-miller-college-basketball-preview/
 
-**How the Ravens, Steelers successfully addressed defensive woes: Week 9 film review**\
-`Also, a look at why the Seahawks offense has been so effective and what defenses could possibly do to stop it.`\
-https://nytimes.com/athletic/6772934/2025/11/04/ravens-steelers-seahawks-film-review/
+**Cardinals offseason primer: Key dates, storylines and what to watch as free agency begins**\
+`What will this winter bring for the Cardinals, who are under new leadership for the first time in nearly two decades?`\
+https://nytimes.com/athletic/6775332/2025/11/04/cardinals-offseason-primer-free-agency-key-dates-storylines/
 
-**Virginia: How to Vote, Where to Vote and What’s on the Ballot**\
-`Virginia voters will make their choice for governor and attorney general on Tuesday, and all 100 seats in the House of Delegates are also on the ballot.`\
-https://nytimes.com/2025/11/04/us/politics/virginia-how-vote-ballot.html
+**Heisman straw poll: Ohio State's Sayin gaining ground on Indiana's Mendoza**\
+`Mendoza, Sayin and Alabama's Ty Simpson form the top three in our Heisman voting after Week 10.`\
+https://nytimes.com/athletic/6774317/2025/11/04/heisman-trophy-poll-julian-sayin-fernando-mendoza/
 
-**The Pulse: Arizona’s big win — and bigger decision**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6775579/2025/11/04/nfl-cowboys-cardinals-the-pulse/
+**Sam Darnold is playing like a star. The secret sauce? A Seahawks bugaboo that might finally be solved**\
+`Darnold is playing as well as any QB in football, benefiting from what might be the Seahawks' best pass protection in over a decade.`\
+https://nytimes.com/athletic/6775372/2025/11/04/seahawks-offensive-line-protection-sam-darnold/
 
-**Manager of Serbian top-flight club dies after collapsing mid-game**\
-`Mladen Zizovic collapsed on the sidelines in the 22nd minute of the match against FK Mladost Lucani.`\
-https://nytimes.com/athletic/6776189/2025/11/04/mladen-zizovic-death-serbian-manager/
+**Grading CFB's wild coaching carousel, four years later: Kelly falls, Freeman rises**\
+`Despite some big flops in the 2021-22 coach carousel, it remains a pretty successful hiring cycle. `\
+https://nytimes.com/athletic/6767097/2025/11/04/college-football-coaching-carousel-2021-grades-brian-kelly/
 
