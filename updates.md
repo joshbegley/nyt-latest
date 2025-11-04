@@ -1,3 +1,19 @@
+**Milan Lucic joins AHL Thunderbirds on PTO: What it means for the Blues**\
+`The NHL veteran originally signed a PTO with the Blues in the summer, but was sidelined after suffering a groin injury in the preseason.`\
+https://nytimes.com/athletic/6776832/2025/11/04/milan-lucic-blues-pto/
+
+**Mamdani makes $142,000 as an assemblyman. Does that make him rich in New York City?**\
+`By Eliza Shapiro`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/mamdani-makes-142000-as-an-assemblyman-does-that-make-him-rich-in-new-york-city
+
+**What we saw from the Canucks on their hold-the-fort road trip: 5 observations**\
+`The Canucks managed to win two games on their three-game Central Division road trip.`\
+https://nytimes.com/athletic/6772896/2025/11/04/vancouver-canucks-stats-standings-scores-2025/
+
+**How a lack of accountability continues to plague Brian Daboll's Giants**\
+`The darker days that are likely ahead figure to shine a brighter spotlight on the leadership void within the team.`\
+https://nytimes.com/athletic/6775835/2025/11/04/ny-giants-brian-daboll-accountability-jaxson-dart/
+
 **Cristiano Ronaldo to retire 'soon', hints he will not stay in football**\
 `In an interview with Piers Morgan, Ronaldo said he wants to spend more time with his family and pursue "other passions" when he retires.`\
 https://nytimes.com/athletic/6776844/2025/11/04/cristiano-ronaldo-retirement-future/
