@@ -1,3 +1,11 @@
+**NBA tribute videos may be a bit too trendy and less special these days**\
+`What makes a player’s time with a team video-tribute worthy? Myles Turner's tribute from the Pacers makes Jason Jones wonder.`\
+https://nytimes.com/athletic/6775032/2025/11/03/myles-turner-nba-bucks-pacers-tribute-video/
+
+**Dallas Stars to host 2027 Stadium Series game at AT&T Stadium**\
+`The smashing success of the 2020 Winter Classic prompted the NHL to bring another outdoor game back to Texas`\
+https://nytimes.com/athletic/6775487/2025/11/03/dallas-stars-2027-stadium-serie-att-stadium/
+
 **NFL trade grades: Ravens bolster pass rush for playoff push with deal for Dre'Mont Jones**\
 `We are analyzing and grading all of the biggest deals ahead of Tuesday's NFL trade deadline. `\
 https://nytimes.com/athletic/6774787/2025/11/03/nfl-trade-grades-deadline-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000010499696/los-angeles-welcomes-champion-dodge
 **N.Y.C. Mayoral Candidates Deliver Final Appeals Before Election**\
 `On Monday, New York City’s three mayoral candidates made a final attempt to drum up support from voters the day before the election. Over 735,000 people have already voted early, more than four times the amount over the same period of time in 2021, according to the Board of Elections.`\
 https://nytimes.com/video/nyregion/100000010499491/nyc-mayoral-election-candidate.html
-
-**Dodgers already aiming for a third World Series parade: 'Three-peat, let's go'**\
-`Mookie Betts said of his World Series ring collection: “It’s time to fill the hand all the way up, baby."`\
-https://nytimes.com/athletic/6775113/2025/11/03/dodgers-parade-world-series-three-peat/
-
-**Vogue Absorbs Teen Vogue**\
-`Teen Vogue’s website is folding into Vogue.com, further eroding the sister publication’s presence as an independent brand.`\
-https://nytimes.com/2025/11/03/style/teen-vogue-website-conde-nast.html
 

@@ -1,3 +1,11 @@
+**NBA tribute videos may be a bit too trendy and less special these days**\
+`What makes a player’s time with a team video-tribute worthy? Myles Turner's tribute from the Pacers makes Jason Jones wonder.`\
+https://nytimes.com/athletic/6775032/2025/11/03/myles-turner-nba-bucks-pacers-tribute-video/
+
+**Dallas Stars to host 2027 Stadium Series game at AT&T Stadium**\
+`The smashing success of the 2020 Winter Classic prompted the NHL to bring another outdoor game back to Texas`\
+https://nytimes.com/athletic/6775487/2025/11/03/dallas-stars-2027-stadium-serie-att-stadium/
+
 **NFL trade grades: Ravens bolster pass rush for playoff push with deal for Dre'Mont Jones**\
 `We are analyzing and grading all of the biggest deals ahead of Tuesday's NFL trade deadline. `\
 https://nytimes.com/athletic/6774787/2025/11/03/nfl-trade-grades-deadline-2025/
