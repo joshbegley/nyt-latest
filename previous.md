@@ -1,3 +1,35 @@
+**Andrew Cuomo has a complicated legacy in New York City.**\
+`By Emma G. Fitzsimmons and Andy Newman`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/andrew-cuomo-has-a-complicated-legacy-in-new-york-city
+
+**How to watch Mount St. Mary's vs. Richmond: Time, TV, streaming**\
+`Find out how to watch the Mount St. Mary's Mountaineers play the Richmond Spiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6777006/2025/11/04/mount-st-mary-s-vs-richmond-stream-how-to-watch-nov-4/
+
+**How to watch Canisius vs. Michigan: Time, TV, streaming**\
+`Find out how to watch the Canisius Golden Griffins play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6777004/2025/11/04/canisius-vs-michigan-stream-how-to-watch-nov-4/
+
+**How to watch Mercyhurst vs. Michigan State: Time, TV, streaming**\
+`Find out how to watch the Mercyhurst Lakers play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6777002/2025/11/04/mercyhurst-vs-michigan-state-stream-how-to-watch-nov-4/
+
+**How to watch Nicholls State vs. Kentucky: Time, TV, streaming**\
+`Find out how to watch the Nicholls State Colonels play the Kentucky Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6776997/2025/11/04/nicholls-state-vs-kentucky-stream-how-to-watch-nov-4/
+
+**How to watch Evansville vs. Purdue: Time, TV, streaming**\
+`Find out how to watch the Evansville Purple Aces play the Purdue Boilermakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6776995/2025/11/04/evansville-vs-purdue-stream-how-to-watch-nov-4/
+
+**How to watch Falcons vs. Colts: Time, TV, streaming**\
+`Find out how to watch the Atlanta Falcons play the Indianapolis Colts, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6776991/2025/11/04/falcons-vs-colts-stream-how-to-watch-nov-9/
+
+**New Toronto Tempo coach Sandy Brondello: 'We’re building a world-class franchise'**\
+`Brondello spoke to The Athletic about leaving the Liberty and being one of a few former WNBA players who are head coaches.`\
+https://nytimes.com/athletic/6776774/2025/11/04/toronto-tempo-coach-sandy-brondello-expansion/
+
 **Chatbot Correspondence Invades the Letters to the Editor Page**\
 `The rise of artificial intelligence has produced serial writers to science and medical journals, most likely seeking to boost the number of citations they’ve published.`\
 https://nytimes.com/2025/11/04/science/letters-to-the-editor-ai-chatbots.html
@@ -5,36 +37,4 @@ https://nytimes.com/2025/11/04/science/letters-to-the-editor-ai-chatbots.html
 **Milan Lucic joins AHL Thunderbirds on PTO: What it means for the Blues**\
 `The NHL veteran originally signed a PTO with the Blues in the summer, but was sidelined after suffering a groin injury in the preseason.`\
 https://nytimes.com/athletic/6776832/2025/11/04/milan-lucic-blues-pto/
-
-**Mamdani makes $142,000 as an assemblyman. Does that make him rich in New York City?**\
-`By Eliza Shapiro`\
-https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/mamdani-makes-142000-as-an-assemblyman-does-that-make-him-rich-in-new-york-city
-
-**What we saw from the Canucks on their hold-the-fort road trip: 5 observations**\
-`The Canucks managed to win two games on their three-game Central Division road trip.`\
-https://nytimes.com/athletic/6772896/2025/11/04/vancouver-canucks-stats-standings-scores-2025/
-
-**Cristiano Ronaldo to retire 'soon', hints he will not stay in football**\
-`In an interview with Piers Morgan, Ronaldo said he wants to spend more time with his family and pursue "other passions" when he retires.`\
-https://nytimes.com/athletic/6776844/2025/11/04/cristiano-ronaldo-retirement-future/
-
-**Villa's Mings expected to be sidelined with hamstring injury until 2026**\
-`The 32-year-old pulled up clutching the back of his right leg during the Premier League defeat to Liverpool on November 1.`\
-https://nytimes.com/athletic/6770674/2025/11/04/tyrone-mings-aston-villa-injury-news/
-
-**Small Businesses Gear Up for Tariff Fight at Supreme Court**\
-`Companies that sell diamonds, plant sensors and wine all have one thing in common: They are weighing in against tariffs in a consequential case.`\
-https://nytimes.com/2025/11/04/us/politics/tariffs-supreme-court-small-business.html
-
-**Mamdani votes ‘yes’ on ballot measures giving the mayor more power over new housing projects.**\
-`By Mihir Zaveri`\
-https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/mamdani-votes-yes-on-ballot-measures-giving-the-mayor-more-power-over-new-housing-projects
-
-**How the Cop Show ‘Barney Miller’ Made Gay TV History, 50 Years Ago**\
-`A 1975 episode introduced audiences to one of the first openly gay couples in mainstream American television not depicted as deviants or criminals.`\
-https://nytimes.com/2025/11/04/arts/television/barney-miller-gay-couple.html
-
-**Shota Imanaga becomes free agent after Cubs, pitcher decline options: Source**\
-`It’s not yet clear whether the Cubs will make Imanaga a one-year, $22.025 million qualifying offer.`\
-https://nytimes.com/athletic/6776731/2025/11/04/cubs-shota-imanaga-free-agent/
 

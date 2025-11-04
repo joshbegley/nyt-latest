@@ -1,3 +1,7 @@
+**‘Messy White Gays’ Review: A Satire We’ve Seen Before**\
+`Drew Droege’s newest play Off Broadway is a lot like his others, skewering the entitlement of wealthy, oblivious gay men in Manhattan.`\
+https://nytimes.com/2025/11/04/theater/messy-white-gays-review-drew-droege.html
+
 **Andrew Cuomo has a complicated legacy in New York City.**\
 `By Emma G. Fitzsimmons and Andy Newman`\
 https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/andrew-cuomo-has-a-complicated-legacy-in-new-york-city
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6776774/2025/11/04/toronto-tempo-coach-sandy-bronde
 **Chatbot Correspondence Invades the Letters to the Editor Page**\
 `The rise of artificial intelligence has produced serial writers to science and medical journals, most likely seeking to boost the number of citations they’ve published.`\
 https://nytimes.com/2025/11/04/science/letters-to-the-editor-ai-chatbots.html
-
-**Milan Lucic joins AHL Thunderbirds on PTO: What it means for the Blues**\
-`The NHL veteran originally signed a PTO with the Blues in the summer, but was sidelined after suffering a groin injury in the preseason.`\
-https://nytimes.com/athletic/6776832/2025/11/04/milan-lucic-blues-pto/
 
