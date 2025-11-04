@@ -1,3 +1,15 @@
+**Tottenham’s Udogie named as footballer allegedly threatened with firearm**\
+`Udogie played for Tottenham seven days after the alleged incident, coming on as a substitute in a 3-0 win over West Ham United.`\
+https://nytimes.com/athletic/6777810/2025/11/04/tottenham-destiny-udogie-threatened/
+
+**Jack Flaherty won't opt out, returns to Tigers on $20 million deal**\
+`Flaherty could have tested the free agent market but his experience last offseason coming off a stronger year wasn't a positive one.`\
+https://nytimes.com/athletic/6778357/2025/11/04/jack-flaherty-tigers-return/
+
+**Is the NHL the best place for Maple Leafs rookie Easton Cowan right now?**\
+`Cowan has had a nice start to his NHL career, but the 20-year-old might benefit from some time in the minors with the Toronto Marlies.`\
+https://nytimes.com/athletic/6778160/2025/11/04/maple-leafs-easton-cowan-nhl/
+
 **The Tragedy of Dick Cheney**\
 `He tried to warn Americans about Trump, but they had already learned not to believe him.`\
 https://nytimes.com/2025/11/04/opinion/dick-cheney-vice-president-authority-trump.html
