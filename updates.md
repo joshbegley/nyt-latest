@@ -1,3 +1,23 @@
+**Jacoby Brissett stays hot, Arizona snaps 5-game skid in big Monday night win**\
+`Filling in for an injured Kyler Murray, Brissett again showed poise and command of the offense, finishing 21-of-31 for 261 yards.`\
+https://nytimes.com/athletic/6775720/2025/11/04/cardinals-cowboys-score-result-takeaways-mnf-nfl/
+
+**Crystal Palace, Jefferson Lerma and a looming overhaul in midfield**\
+`Lerma has only made five starts this season. He turns 32 next year, but the midfielder has valuable qualities on and off the field`\
+https://nytimes.com/athletic/6770288/2025/11/04/jefferson-lerma-daichi-kamada-crystal-palace-midfield/
+
+**Xabi Alonso's man-management skills: Surely they can work at Real Madrid?**\
+`He has enjoyed great success in galvanising players in previous roles, but will that same approach work at the Bernabeu?`\
+https://nytimes.com/athletic/6773814/2025/11/04/xabi-alonso-real-madrid-liverpool-management/
+
+**How Zohran Mamdani came to embrace the Palestinian cause.**\
+`By Nicholas Fandos`\
+https://nytimes.com/2025/11/04/nyregion/how-zohran-mamdani-came-to-embrace-the-palestinian-cause.html
+
+**Trent Alexander-Arnold and Liverpool: A reappraisal**\
+`The right-back's exit sparked anger at Anfield but his old team have missed his unique contributions this season`\
+https://nytimes.com/athletic/6773189/2025/11/04/trent-alexander-arnold-real-madrid-liverpool-fans/
+
 **Erling Haaland vs Harry Kane: The goal tracker**\
 `The Athletic is tracking two strikers who may be on course to record unprecedented goalscoring campaigns`\
 https://nytimes.com/athletic/6756346/2025/11/04/haaland-kane-goal-tracker-records/
