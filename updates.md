@@ -1,3 +1,7 @@
+**Jaylen Brown shares choice words for potential missed call vs. Jazz**\
+`After the Celtics' loss to the Jazz, Brown said it was unacceptable that the refs missed him getting tripped at the end.`\
+https://nytimes.com/athletic/6775703/2025/11/03/jaylen-brown-celtics-hornets-nba/
+
 **Jake Paul exhibition fight canceled amid civil lawsuit against Gervonta Davis**\
 `The reigning WBA lightweight champion was accused by his former girlfriend in an alleged domestic incident.`\
 https://nytimes.com/athletic/6775577/2025/11/03/jake-paul-fight-canceled-gervonta-davis/

@@ -1,3 +1,7 @@
+**Jaylen Brown shares choice words for potential missed call vs. Jazz**\
+`After the Celtics' loss to the Jazz, Brown said it was unacceptable that the refs missed him getting tripped at the end.`\
+https://nytimes.com/athletic/6775703/2025/11/03/jaylen-brown-celtics-hornets-nba/
+
 **Jake Paul exhibition fight canceled amid civil lawsuit against Gervonta Davis**\
 `The reigning WBA lightweight champion was accused by his former girlfriend in an alleged domestic incident.`\
 https://nytimes.com/athletic/6775577/2025/11/03/jake-paul-fight-canceled-gervonta-davis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6775592/2025/11/03/giannis-antetokounmpo-buzzer-bea
 **Trump Advisers Were Paid Over $1.6 Million by the Albanian Opposition**\
 `The payments underscore how lucrative foreign political consulting can be for operatives with ties to the president.`\
 https://nytimes.com/2025/11/03/us/politics/trump-advisers-were-paid-over-1-6-million-by-the-albanian-opposition.html
-
-**Prosecutors Urge Judge to Rebuff Comey’s Bid to Dismiss Case**\
-`The filing appeared to be an effort to construct a narrative that James B. Comey had leaked information to the news media without actually tying such assertions to the claims made in the indictment against him.`\
-https://nytimes.com/2025/11/03/us/politics/james-comey-prosecution-trump.html
 
