@@ -1,3 +1,7 @@
+**Word of the Day: foster**\
+`This word has appeared in 1,086 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/04/learning/word-of-the-day-foster.html
+
 **The Everton midfield, David Moyes' choices and an ongoing pursuit of control**\
 `A point at Sunderland is no cause for complaint, but there is still an edginess and restlessness around Everton as they strive for balance`\
 https://nytimes.com/athletic/6775412/2025/11/04/everton-moyes-midfield-control-sunderland/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6773216/2025/11/04/bundesliga-bischof-pass-borussia
 **Jacoby Brissett stays hot, Cardinals snap 5-game skid in big Monday night win over Cowboys**\
 `Filling in for an injured Kyler Murray, Brissett again showed poise and command of the offense, finishing 21-of-31 for 261 yards.`\
 https://nytimes.com/athletic/6775720/2025/11/04/cardinals-cowboys-score-result-takeaways-mnf-nfl/
-
-**Crystal Palace, Jefferson Lerma and a looming overhaul in midfield**\
-`Lerma has only made five starts this season. He turns 32 next year, but the midfielder has valuable qualities on and off the field`\
-https://nytimes.com/athletic/6770288/2025/11/04/jefferson-lerma-daichi-kamada-crystal-palace-midfield/
 
