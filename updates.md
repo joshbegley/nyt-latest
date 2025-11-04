@@ -1,3 +1,11 @@
+**How Cheney’s Presidential Power Push Paved the Way for Trump to Go Further**\
+`Donald J. Trump and Dick Cheney became adversaries, but the former vice president set the stage for Mr. Trump’s bid to expand his executive authority.`\
+https://nytimes.com/2025/11/04/us/politics/trump-dick-cheney.html
+
+**Drone Strike Kills Dozens of Mourners at Funeral in Sudan**\
+`The attack occurred in North Kordofan, which has seen an increased military buildup as the army and paramilitary forces jockey for control of the country.`\
+https://nytimes.com/2025/11/04/world/africa/sudan-civil-war.html
+
 **Tottenham’s Udogie named as footballer allegedly threatened with firearm**\
 `Udogie played for Tottenham seven days after the alleged incident, coming on as a substitute in a 3-0 win over West Ham United.`\
 https://nytimes.com/athletic/6777810/2025/11/04/tottenham-destiny-udogie-threatened/
