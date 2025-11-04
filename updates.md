@@ -1,3 +1,7 @@
+**Cuomo was contrite about his sexual harassment scandal. Not anymore.**\
+`By Dana Rubinstein and Alyce McFadden`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/cuomo-was-contrite-about-his-sexual-harassment-scandal-not-anymore
+
 **Raiders trade WR Jakobi Meyers to Jaguars for picks: Sources**\
 `Meyers has averaged 65.5 receptions and 765.3 yards over his six full seasons with New England and Las Vegas. `\
 https://nytimes.com/athletic/6755173/2025/11/04/jakobi-meyers-trade-jaguars-raiders/
