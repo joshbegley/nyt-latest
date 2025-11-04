@@ -1,3 +1,5 @@
+
+
 **G.O.P. Figures Seek Distance From Tucker Carlson, Denouncing Antisemitism**\
 `Prominent Republicans rejected the views of Nick Fuentes, a white supremacist, though some refrained from directly criticizing Tucker Carlson for interviewing him.`\
 https://nytimes.com/2025/11/03/us/politics/gop-tucker-carlson-nick-fuentes-antisemitism.html
