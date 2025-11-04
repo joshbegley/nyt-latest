@@ -1,3 +1,7 @@
+**Andrew Cuomo has a complicated legacy in New York City.**\
+`By Emma G. Fitzsimmons and Andy Newman`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/andrew-cuomo-has-a-complicated-legacy-in-new-york-city
+
 **How to watch Mount St. Mary's vs. Richmond: Time, TV, streaming**\
 `Find out how to watch the Mount St. Mary's Mountaineers play the Richmond Spiders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6777006/2025/11/04/mount-st-mary-s-vs-richmond-stream-how-to-watch-nov-4/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/04/science/letters-to-the-editor-ai-chatbots.html
 **Milan Lucic joins AHL Thunderbirds on PTO: What it means for the Blues**\
 `The NHL veteran originally signed a PTO with the Blues in the summer, but was sidelined after suffering a groin injury in the preseason.`\
 https://nytimes.com/athletic/6776832/2025/11/04/milan-lucic-blues-pto/
-
-**Mamdani makes $142,000 as an assemblyman. Does that make him rich in New York City?**\
-`By Eliza Shapiro`\
-https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/mamdani-makes-142000-as-an-assemblyman-does-that-make-him-rich-in-new-york-city
 
