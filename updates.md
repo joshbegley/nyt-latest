@@ -1,3 +1,7 @@
+**Prosecutors Urge Judge to Rebuff Comey’s Bid to Dismiss Case**\
+`The filing appeared to be an effort to construct a narrative that James B. Comey had leaked information to the news media without actually tying such assertions to the claims made in the indictment against him.`\
+https://nytimes.com/2025/11/03/us/politics/james-comey-prosecution-trump.html
+
 **It Can Be Blond or Brown**\
 `Patrick Hayden presents a high-definition debut puzzle.`\
 https://nytimes.com/2025/11/03/crosswords/daily-puzzle-2025-11-04.html
