@@ -1,3 +1,15 @@
+**Late Night Finds Trump’s Rich ‘Great Gatsby’ Party in Poor Taste**\
+`“There were dancers, costumes and champagne — a wonderful celebration where the theme was apparently gross income inequality,” Jon Stewart said.`\
+https://nytimes.com/2025/11/04/arts/television/late-night-trump-great-gatsby-party.html
+
+**Thousands Flee Flooding as Typhoon Kalmaegi Slams Central Philippines**\
+`Tens of thousands of people evacuated before the storm brought heavy rain and flooding. But many others were trapped in homes and buildings.`\
+https://nytimes.com/2025/11/04/world/asia/philippines-kalmaegi-flooding.html
+
+**How to watch Nebraska vs. UCLA: Time, TV, streaming**\
+`Find out how to watch the Nebraska Cornhuskers play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6776059/2025/11/04/nebraska-vs-ucla-stream-how-to-watch-nov-8/
+
 **Typhoon Kalmaegi Batters Philippines**\
 `Typhoon Kalmaegi ripped across the island of Visayas, Philippines, flooding streets and bringing powerful winds that forced the evacuation of tens of thousands of people.`\
 https://nytimes.com/video/world/asia/100000010501063/philippines-kalmaegi-flooding.html
