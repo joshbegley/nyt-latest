@@ -1,3 +1,15 @@
+**The Bounce: Giannis flips the boo birds. Plus, college basketball is back!**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6776665/2025/11/04/giannis-bucks-pacers-college-basketball-the-bounce/
+
+**Red Light: Five surprising NHL stats. Plus: Who's the best recent No. 1 pick?**\
+`Good morning, hockey folks. Here’s some math homework.`\
+https://nytimes.com/athletic/6776685/2025/11/04/five-surprising-nhl-stats-plus-whos-the-best-recent-no-1-pick/
+
+**MS … NOW? As MSNBC Rebrands, a $20 Million Effort to Avoid Confusion.**\
+`After three decades, the MSNBC brand will be retired on Nov. 15. The network has called in Rachel Maddow to help viewers make the transition.`\
+https://nytimes.com/2025/11/04/business/media/msnbc-name-change-ms-now.html
+
 **Moultrie extends contract with Thorns through 2029**\
 `The 20-year-old hasn't ruled out going to Europe, but for now is committed to growing even more with the Thorns.`\
 https://nytimes.com/athletic/6774253/2025/11/04/olivia-moultrie-extends-contract-portland-thorns-2029/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6405931/2025/11/04/beckham-knighthood-sir-england/
 **5 Things We’re Watching on Election Day in California**\
 `Proposition 50 is the only statewide question on the ballot, but there are numerous dynamics at play.`\
 https://nytimes.com/2025/11/04/us/california-election-guide.html
-
-**Haaland says he is 'not at all' close to Messi-Ronaldo level**\
-`Manchester City boss Pep Guardiola said Haaland was a "real world-class player" but "incredibly humble".`\
-https://nytimes.com/athletic/6776646/2025/11/04/erling-haaland-messi-ronaldo/
-
-**How an elite public high school set Mamdani on the path to politics.**\
-`By Matt Flegenheimer and Benjamin Oreskes`\
-https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/how-an-elite-public-high-school-set-mamdani-on-the-path-to-politics
-
-**Dick Cheney: A Life in Pictures**\
-`The former vice president helped shaped the role of the United States around the world.`\
-https://nytimes.com/2025/11/04/obituaries/dick-cheney-life-career-photos.html
 
