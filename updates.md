@@ -1,3 +1,7 @@
+**Jake Paul exhibition fight canceled amid civil lawsuit against Gervonta Davis**\
+`The reigning WBA lightweight champion was accused by his former girlfriend in an alleged domestic incident.`\
+https://nytimes.com/athletic/6775577/2025/11/03/jake-paul-fight-canceled-gervonta-davis/
+
 **What Trade War? China’s Export Juggernaut Marches On**\
 `As Trump has imposed steep tariffs on China, American importers are buying much less. But China has offset the decline from the United States with breathtaking speed.`\
 https://nytimes.com/interactive/2025/11/03/world/asia/china-exports-trump-tariffs.html
