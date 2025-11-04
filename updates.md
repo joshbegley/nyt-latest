@@ -1,3 +1,15 @@
+**Pennsylvania Supreme Court: What Is a ‘Retention Election’ and How Does It Work?**\
+`Voters will decide whether three justices who were elected as Democrats keep their seats for another 10-year term.`\
+https://nytimes.com/2025/11/04/us/politics/pennsylvania-supreme-court-retention-election-explainer.html
+
+**Cuomo had dreams of becoming a radio star. Then they unraveled.**\
+`By Nicholas Fandos`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/cuomo-had-dreams-of-becoming-a-radio-star-then-they-unraveled
+
+**Chelsea's Palmer could return for Barcelona game, Maresca says**\
+`The midfielder has not played since being substituted against Manchester United due to a groin injury.`\
+https://nytimes.com/athletic/6776558/2025/11/04/chelsea-cole-palmer-injury-news/
+
 **Fantasy football Week 10 drops: Turn the page on Alvin Kamara, Nick Chubb**\
 `Gary Davenport identifies players who are struggling to validate their spot on fantasy rosters, including a couple venerated running backs.`\
 https://nytimes.com/athletic/6775640/2025/11/04/fantasy-football-week-10-drops-kamara-chubb/
