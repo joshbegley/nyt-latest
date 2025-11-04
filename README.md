@@ -18,7 +18,7 @@ https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/they-want-to-run
 `Also, Trump is weighing military options in Venezuela. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/11/04/briefing/election-day-trump-military-venezuela.html
 
-**Injuries Reported After Plane Crashes in Louisville, Police Say**\
+**Injuries Reported After UPS Plane Crashes in Louisville, Police Say**\
 `Data from Flightradar24 showed that a UPS plane bound for Honolulu reached an altitude of just 175 feet before swiftly descending.`\
 https://nytimes.com/2025/11/04/us/louisville-ups-plane-crash.html
 
