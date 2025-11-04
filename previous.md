@@ -1,5 +1,5 @@
 **NBA tribute videos may be a bit too trendy and less special these days**\
-`What makes a player’s time with a team video-tribute worthy? Myles Turner's tribute from the Pacers makes Jason Jones wonder.`\
+`What makes a player’s time with a team video-tribute worthy? Turner's tribute from the Pacers makes Jason Jones wonder.`\
 https://nytimes.com/athletic/6775032/2025/11/03/myles-turner-nba-bucks-pacers-tribute-video/
 
 **Dallas Stars to host 2027 Stadium Series game at AT&T Stadium**\
