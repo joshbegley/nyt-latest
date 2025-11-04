@@ -1,40 +1,36 @@
-**When F1 had a NASCAR ending. Plus, the first Brazilian GP home star in seven years**\
-`The 2025 NASCAR season ended in controversial fashion thanks to its contrived season finale one-off rules. F1 once nearly had a similar saga`\
-https://nytimes.com/athletic/6777287/2025/11/04/f1-nascar-season-finales/
+**How to watch Patriots vs. Buccaneers: Time, TV, streaming**\
+`Find out how to watch the New England Patriots play the Tampa Bay Buccaneers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6777880/2025/11/04/patriots-vs-buccaneers-stream-how-to-watch-nov-9/
 
-**In Search of the Great Literary Novel**\
-`Readers respond to a guest essay about the continuing vitality of literary fiction. Also: Exxon vs. California; a Supreme Court split on tactics.`\
-https://nytimes.com/2025/11/04/opinion/novels-fiction.html
+**How to watch Bills vs. Dolphins: Time, TV, streaming**\
+`Find out how to watch the Buffalo Bills play the Miami Dolphins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6777876/2025/11/04/bills-vs-dolphins-stream-how-to-watch-nov-9/
 
-**Cavaliers' Garland could make season debut Wednesday vs. 76ers: Sources**\
-`Darius Garland underwent surgery in June to repair the injury to his left big toe that forced him out of four playoff games last spring.`\
-https://nytimes.com/athletic/6777375/2025/11/04/cavaliers-darius-garland-76ers-debut/
+**How to watch New Mexico State vs. USC: Time, TV, streaming**\
+`Find out how to watch the New Mexico State Aggies play the USC Trojans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6777874/2025/11/04/new-mexico-state-vs-usc-stream-how-to-watch-nov-4/
 
-**Il Leone Brings Its Lobster Pizza From Portland, Maine, to Park Slope**\
-`Chinese Tuxedo takes over the bar under the restaurant, Ilili expands to Midtown and more restaurant news.`\
-https://nytimes.com/2025/11/04/dining/nyc-restaurant-news.html
+**How to watch Texas vs. Duke: Time, TV, streaming**\
+`Find out how to watch the Texas Longhorns play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6777872/2025/11/04/texas-vs-duke-stream-how-to-watch-nov-4/
 
-**It's time to take Sam Darnold's MVP case seriously**\
-`The latest episode of “The Athletic Football Show” focuses on an unlikely MVP contender who refuses to fall back in the ongoing race.`\
-https://nytimes.com/athletic/6775341/2025/11/04/sam-darnold-mvp-case-athletic-football-show/
+**How to watch Giants vs. Bears: Time, TV, streaming**\
+`Find out how to watch the New York Giants play the Chicago Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6777869/2025/11/04/giants-vs-bears-stream-how-to-watch-nov-9/
 
-**Newcastle CCO Silverstone set to join Juventus**\
-`Silverstone is on gardening leave at Newcastle before linking up with the Serie A side as their chief business officer.`\
-https://nytimes.com/athletic/6777040/2025/11/04/peter-silverstone-newcastle-juventus/
+**How to watch Lindenwood vs. Texas Tech: Time, TV, streaming**\
+`Find out how to watch the Lindenwood Lions play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6777865/2025/11/04/lindenwood-vs-texas-tech-stream-how-to-watch-nov-4/
 
-**Easy Burritos, Because November Can Be Hard**\
-`Freeze a bunch of these Los Angeles-style burritos now, and pull them out when November starts feeling really … Novembery.`\
-https://nytimes.com/2025/11/04/dining/easy-burritos-because-november-can-be-hard.html
+**How to watch Jaguars vs. Texans: Time, TV, streaming**\
+`Find out how to watch the Jacksonville Jaguars play the Houston Texans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6777863/2025/11/04/jaguars-vs-texans-stream-how-to-watch-nov-9/
 
-**Until Saturday: Of course Hugh Freeze failed**\
-`Until Saturday is The Athletic's free CFB newsletter.`\
-https://nytimes.com/athletic/6777308/2025/11/04/hugh-freeze-fired-auburn-coaching-search-until-saturday/
+**How to watch Saints vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the New Orleans Saints play the Carolina Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6777858/2025/11/04/saints-vs-panthers-stream-how-to-watch-nov-9/
 
-**Penn Data Breach Involves Decades of Student and Alumni Information**\
-`The hacker seemed focused on the Ivy League school’s admissions preferences.`\
-https://nytimes.com/2025/11/04/us/penn-data-breach-donors-students.html
-
-**How Jamaica Is Dealing With Hurricane Melissa’s Aftermath**\
-`Brent McDonald, a senior video journalist for The New York Times, reports from the area of Jamaica where Hurricane Melissa made landfall with 185-mile-per-hour winds and 13 feet of surge.`\
-https://nytimes.com/video/weather/100000010498935/assessing-hurricane-melissa-devastation.html
+**How to watch Houston Christian vs. LSU: Time, TV, streaming**\
+`Find out how to watch the Houston Christian Huskies play the LSU Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6777859/2025/11/04/houston-christian-vs-lsu-stream-how-to-watch-nov-4/
 
