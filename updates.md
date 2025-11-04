@@ -1,3 +1,11 @@
+**Full Time: Bold NWSL title predictions**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6774309/2025/11/03/nwsl-title-predictions-full-time/
+
+**As the mayor’s race comes to a close, the contest for City Council speaker is heating up.**\
+`By Jeffery C. Mays`\
+https://nytimes.com/live/2025/11/03/nyregion/nyc-mayor-election-news/as-the-mayors-race-comes-to-a-close-the-contest-for-city-council-speaker-is-heating-up
+
 **Reds announce several coaching staff changes, including promotion of Mike Napoli**\
 `The changes come after bench coach Brad Mills, a long-time Terry Francona staffer, retired. `\
 https://nytimes.com/athletic/6774988/2025/11/03/cincinnati-reds-coaching-staff-mike-napoli/
