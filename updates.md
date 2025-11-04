@@ -1,3 +1,7 @@
+**Trump Advisers Were Paid Over $1.6 Million by the Albanian Opposition**\
+`The payments underscore how lucrative foreign political consulting can be for operatives with ties to the president.`\
+https://nytimes.com/2025/11/03/us/politics/trump-advisers-were-paid-over-1-6-million-by-the-albanian-opposition.html
+
 **Prosecutors Urge Judge to Rebuff Comey’s Bid to Dismiss Case**\
 `The filing appeared to be an effort to construct a narrative that James B. Comey had leaked information to the news media without actually tying such assertions to the claims made in the indictment against him.`\
 https://nytimes.com/2025/11/03/us/politics/james-comey-prosecution-trump.html
