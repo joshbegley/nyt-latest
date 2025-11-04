@@ -1,3 +1,7 @@
+**Spotlight on Mayoral Race Also Captures the New York of Now**\
+`Times photographers caught signal moments from the campaign trail as Zohran Mamdani, Andrew Cuomo and Curtis Sliwa battled for votes.`\
+https://nytimes.com/2025/11/03/nyregion/photos-nyc-mayor-mamdani-cuomo-sliwa.html
+
 **NBA tribute videos may be a bit too trendy and less special these days**\
 `What makes a player’s time with a team video-tribute worthy? Turner's tribute from the Pacers makes Jason Jones wonder.`\
 https://nytimes.com/athletic/6775032/2025/11/03/myles-turner-nba-bucks-pacers-tribute-video/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6775304/2025/11/03/commanders-frankie-luvu-suspende
 **Los Angeles Welcomes Champion Dodgers Home**\
 `Angelenos flocked downtown on Monday morning to welcome the Dodgers back after their World Series win on Saturday over the Toronto Blue Jays.`\
 https://nytimes.com/video/us/100000010499696/los-angeles-welcomes-champion-dodgers-home.html
-
-**N.Y.C. Mayoral Candidates Deliver Final Appeals Before Election**\
-`On Monday, New York City’s three mayoral candidates made a final attempt to drum up support from voters the day before the election. Over 735,000 people have already voted early, more than four times the amount over the same period of time in 2021, according to the Board of Elections.`\
-https://nytimes.com/video/nyregion/100000010499491/nyc-mayoral-election-candidate.html
 
