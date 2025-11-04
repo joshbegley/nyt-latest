@@ -1,3 +1,19 @@
+**Highlights From the ‘Oscars of Fashion’**\
+`Vanessa Friedman, fashion director and chief fashion critic, shares highlights from the 2025 CFDA Awards.`\
+https://nytimes.com/video/style/100000010500737/highlights-from-the-oscars-of-fashion.html
+
+**After Packers stand pat at trade deadline, which positions are most concerning?**\
+`According to a source, the Packers are looking into the possibility of signing free-agent cornerback Asante Samuel Jr.`\
+https://nytimes.com/athletic/6778334/2025/11/04/packers-trade-deadline-tight-end-cornerback/
+
+**They want to run New York City. How would they do it?**\
+`By Emma G. Fitzsimmons`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/they-want-to-run-new-york-city-how-would-they-do-it
+
+**Americans Vote**\
+`Also, Trump is weighing military options in Venezuela. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/11/04/briefing/election-day-trump-military-venezuela.html
+
 **Injuries Reported After Plane Crashes in Louisville, Police Say**\
 `Data from Flightradar24 showed that a UPS plane bound for Honolulu reached an altitude of just 175 feet before swiftly descending.`\
 https://nytimes.com/2025/11/04/us/louisville-ups-plane-crash.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6777810/2025/11/04/tottenham-destiny-udogie-threate
 **Jack Flaherty won't opt out, returns to Tigers on $20 million deal**\
 `Flaherty could have tested the free agent market but his experience last offseason coming off a stronger year wasn't a positive one.`\
 https://nytimes.com/athletic/6778357/2025/11/04/jack-flaherty-tigers-return/
-
-**The Tragedy of Dick Cheney**\
-`He tried to warn Americans about Trump, but they had already learned not to believe him.`\
-https://nytimes.com/2025/11/04/opinion/dick-cheney-vice-president-authority-trump.html
-
-**Super Bowl odds: Colts move up after Gardner trade, Chiefs still favored**\
-`The Indianapolis Colts moved up a bit in the odds to win the Super Bowl after landing Sauce Gardner. Did any other trade move the needle?`\
-https://nytimes.com/athletic/6778130/2025/11/04/sauce-gardner-nfl-trade-deadline-super-bowl-odds-chiefs/
-
-**What to Know About Our Live Election Estimates**\
-`Here’s how we will bring you the latest vote totals and estimates of the outcome in the New York mayor’s race and other contests around the country.`\
-https://nytimes.com/2025/11/04/us/elections/election-results-faq.html
-
-**As Mamdani has risen, South Asians have emerged as a political force in New York.**\
-`By Sarah Chatta, Maya King and Jeff Adelson`\
-https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/as-mamdani-has-risen-south-asians-have-emerged-as-a-political-force-in-new-york
 
