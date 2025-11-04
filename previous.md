@@ -1,3 +1,7 @@
+**Typhoon Kalmaegi Batters Philippines**\
+`Typhoon Kalmaegi ripped across the island of Visayas, Philippines, flooding streets and bringing powerful winds that forced the evacuation of tens of thousands of people.`\
+https://nytimes.com/video/world/asia/100000010501063/philippines-kalmaegi-flooding.html
+
 **Word of the Day: foster**\
 `This word has appeared in 1,086 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/11/04/learning/word-of-the-day-foster.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6773450/2025/11/04/india-women-cricket-world-cup-au
 **Bundesliga Briefing: Bischof's passing masterclass, Borussia Monchengladbach finally win**\
 `A look at what Bischof's incredible pass tells us about his future, Borussia Monchengladbach's relief, and the return of the tennis balls`\
 https://nytimes.com/athletic/6773216/2025/11/04/bundesliga-bischof-pass-borussia-monchengladbach-win/
-
-**Jacoby Brissett stays hot, Cardinals snap 5-game skid in big Monday night win over Cowboys**\
-`Filling in for an injured Kyler Murray, Brissett again showed poise and command of the offense, finishing 21-of-31 for 261 yards.`\
-https://nytimes.com/athletic/6775720/2025/11/04/cardinals-cowboys-score-result-takeaways-mnf-nfl/
 

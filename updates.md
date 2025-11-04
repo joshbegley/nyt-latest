@@ -1,3 +1,7 @@
+**Typhoon Kalmaegi Batters Philippines**\
+`Typhoon Kalmaegi ripped across the island of Visayas, Philippines, flooding streets and bringing powerful winds that forced the evacuation of tens of thousands of people.`\
+https://nytimes.com/video/world/asia/100000010501063/philippines-kalmaegi-flooding.html
+
 **Word of the Day: foster**\
 `This word has appeared in 1,086 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/11/04/learning/word-of-the-day-foster.html
