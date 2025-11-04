@@ -1,3 +1,11 @@
+**What Trade War? China’s Export Juggernaut Marches On**\
+`As Trump has imposed steep tariffs on China, American importers are buying much less. But China has offset the decline from the United States with breathtaking speed.`\
+https://nytimes.com/interactive/2025/11/03/world/asia/china-exports-trump-tariffs.html
+
+**Leafs rescue abysmal start vs. Penguins with surge from their stars: 3 thoughts**\
+`The Leafs played their worst two periods of the season before Auston Matthews and William Nylander took over.`\
+https://nytimes.com/athletic/6775569/2025/11/03/maple-leafs-nylander-matthews-berube-penguins/
+
 **Leafs rescue abysmal start vs. Penguins with surge from their stars: 3 thoughts**\
 `The Leafs played their worst two periods of the season before Matthews and Nylander took over.`\
 https://nytimes.com/athletic/6775569/2025/11/03/maple-leafs-nylander-matthews-berube-penguins/
