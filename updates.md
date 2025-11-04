@@ -1,3 +1,7 @@
+**What’s Next for Gov. Glenn Youngkin of Virginia?**\
+`Mr. Youngkin signaled his national ambitions with trips to Iowa and South Carolina earlier this year, but he has said little about his future plans.`\
+https://nytimes.com/2025/11/04/us/politics/glenn-youngkin-virginia-what-next.html
+
 **Right-Wing Chatbots Turbocharge America’s Political and Cultural Wars**\
 `Once pitched as dispassionate tools to answer your questions, A.I. chatbots are now programmed to reflect the biases of their creators.`\
 https://nytimes.com/2025/11/04/business/right-wing-chatbots-gab-arya-chatgpt-gemini.html
