@@ -1,3 +1,7 @@
+**What Logan Wilson trade, keeping Trey Hendrickson say about Bengals' future plans**\
+`Cincinnati signaled that it's not giving up on this season while also looking for rookie linebackers to step up as team leaders`\
+https://nytimes.com/athletic/6778406/2025/11/04/bengals-trade-deadline-logan-wilson-trey-hendrickson/
+
 **After Decades of Low Turnout for Mayor’s Races, Voting Surges in New York**\
 `Voter participation in the city, which once surpassed 90 percent, cratered in recent elections. Here’s a look at why it fell, and why it’s surging this year.`\
 https://nytimes.com/2025/11/04/nyregion/nyc-mayor-election-turnout.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/muslim-voters-sa
 **In flurry of moves, Astros place outfielder Chas McCormick on outright waivers**\
 `Minor-league outfielders Pedro León and Kenedy Corona, as well as injured pitchers John Rooney and Luis Garcia were also placed.`\
 https://nytimes.com/athletic/6778465/2025/11/04/houston-astros-chas-mccormick-waivers/
-
-**Van de Ven and a goal like no other: 'Messi transformed into a centre-back'**\
-`A centre-back beating four defenders, running 80 yards and finishing superbly... this was an unprecedented goal`\
-https://nytimes.com/athletic/6778260/2025/11/04/micky-van-de-ven-goal-copenhagen/
 

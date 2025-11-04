@@ -1,3 +1,19 @@
+**After Decades of Low Turnout for Mayor’s Races, Voting Surges in New York**\
+`Voter participation in the city, which once surpassed 90 percent, cratered in recent elections. Here’s a look at why it fell, and why it’s surging this year.`\
+https://nytimes.com/2025/11/04/nyregion/nyc-mayor-election-turnout.html
+
+**Could Mamdani’s plan for ‘fast and free buses’ work?**\
+`By Emily Badger, Larry Buchanan and Stefanos Chen`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/could-mamdanis-plan-for-fast-and-free-buses-work
+
+**Bob Trumpy, Star Receiver Turned NBC Football Analyst, Dies at 70**\
+`He made his mark with the Cincinnati Bengals as a fast pass-catching tight end. He later joined announcers like Bob Costas and Dick Enberg in the broadcast booth.`\
+https://nytimes.com/2025/11/04/sports/bob-trumpy-dead.html
+
+**Van de Ven and a goal like no other: 'Messi transformed into a centre-back'**\
+`A centre-back beating four defenders, running 80 yards and finishing superbly... this was an unprecedented goal`\
+https://nytimes.com/athletic/6778260/2025/11/04/micky-van-de-ven-goal-copenhagen/
+
 **NFL 2025 trade deadline: The biggest names who didn’t get moved**\
 `While the Jets made a pair of blockbuster moves, they held onto running back Breece Hall and defensive end Jermaine Johnson.`\
 https://nytimes.com/athletic/6778284/2025/11/04/nfl-trade-deadline-2025-breece-hall-jaylen-waddle/
