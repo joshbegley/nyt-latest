@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6774988/2025/11/03/cincinnati-reds-coaching-staff-m
 
 **Mayor of Orange County Will Run for Florida Governor as a Democrat**\
 `Jerry Demings has led the county, home to Orlando, since 2018. Gov. Ron DeSantis will leave office at the end of next year because of term limits.`\
-https://nytimes.com/2025/11/03/us/mayor-of-orange-county-will-run-for-florida-governor-as-a-democrat.html
+https://nytimes.com/2025/11/03/us/demings-orange-county-florida-governor.html
 
 **Weekly Student News Quiz: Hurricane, Marathon, Shutdown**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
@@ -31,7 +31,7 @@ https://nytimes.com/2025/11/03/us/politics/trump-white-house-ballroom-donors.htm
 https://nytimes.com/athletic/6775051/2025/11/03/atlanta-braves-walt-weiss-manager-hire/
 
 **Starbucks to Sell 60% of Its China Business to a Private Equity Firm**\
-`Boyu Capital will pay $4 billion for a stake in the coffee giant’s 8,000 stores in China.`\
+`In a deal valued at $4 billion, Boyu Capital will acquire a stake in the coffee giant’s 8,000 stores in China.`\
 https://nytimes.com/2025/11/03/business/starbucks-china-boyu-capital.html
 
 **‘The Boat,’ Despised Floating Jail Near Rikers, Heads for the Scrap Heap**\
