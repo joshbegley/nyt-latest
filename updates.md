@@ -1,3 +1,11 @@
+**Cuomo blasted Mamdani for his rent-stabilized apartment. But he had one, too.**\
+`By Ashley Cai`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/cuomo-blasted-mamdani-for-his-rent-stabilized-apartment-but-he-had-one-too
+
+**Republicans Hold Firm on Filibuster and Prosecutor Veto Power, for Now**\
+`President Trump is showing mounting frustration at his inability to win confirmation of U.S. attorneys in blue states or break the filibuster's grip on the Senate. The G.O.P. has been uncharacteristically uncooperative.`\
+https://nytimes.com/2025/11/04/us/politics/trump-republicans-filibuster.html
+
 **Fofana spoken to by Chelsea after latest dangerous driving offence**\
 `Fofana appeared in court last week over an incident which took place on April 20.`\
 https://nytimes.com/athletic/6776722/2025/11/04/chelsea-wesley-fofana-driving-ban/

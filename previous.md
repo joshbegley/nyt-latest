@@ -1,3 +1,11 @@
+**Cuomo blasted Mamdani for his rent-stabilized apartment. But he had one, too.**\
+`By Ashley Cai`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/cuomo-blasted-mamdani-for-his-rent-stabilized-apartment-but-he-had-one-too
+
+**Republicans Hold Firm on Filibuster and Prosecutor Veto Power, for Now**\
+`President Trump is showing mounting frustration at his inability to win confirmation of U.S. attorneys in blue states or break the filibuster's grip on the Senate. The G.O.P. has been uncharacteristically uncooperative.`\
+https://nytimes.com/2025/11/04/us/politics/trump-republicans-filibuster.html
+
 **The Bounce: Giannis flips the boo birds. Plus, college basketball is back!**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6776665/2025/11/04/giannis-bucks-pacers-college-basketball-the-bounce/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/who-should-run-n
 **PSG's Doue wins 2024-2025 Golden Boy award**\
 `England's Michelle Agyemang, 19, won the Golden Girl award `\
 https://nytimes.com/athletic/6719934/2025/11/04/desire-doue-2025-golden-boy/
-
-**Bold Assassinations Are Grim ‘Reality Check’ in Mexico’s Cartel Fight**\
-`The murder of Mexico’s most vocal anti-crime mayor shows that, despite President Claudia Sheinbaum’s crackdown on drug cartels, the battle is just beginning.`\
-https://nytimes.com/2025/11/04/world/americas/mexico-mayor-carlos-manzo-drug-war.html
-
-**Arise, Sir David: But what is the significance of Beckham's knighthood?**\
-`The former England captain and now joint owner of Inter Miami received the title at Windsor Castle today`\
-https://nytimes.com/athletic/6405931/2025/11/04/beckham-knighthood-sir-england/
 
