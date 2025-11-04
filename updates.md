@@ -1,3 +1,7 @@
+**Spotlight on Mayoral Race Also Captures the New York of Now**\
+`Times photographers caught signal moments from the campaign trail as Zohran Mamdani, Andrew Cuomo and Curtis Sliwa battled for votes.`\
+https://nytimes.com/2025/11/03/nyregion/photos-nyc-mayor-mamdani-cuomo-sliwa.html
+
 **NBA tribute videos may be a bit too trendy and less special these days**\
 `What makes a player’s time with a team video-tribute worthy? Turner's tribute from the Pacers makes Jason Jones wonder.`\
 https://nytimes.com/athletic/6775032/2025/11/03/myles-turner-nba-bucks-pacers-tribute-video/
