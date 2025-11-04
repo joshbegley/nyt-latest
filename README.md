@@ -1,3 +1,19 @@
+**The Briefing: Liverpool 1 Real Madrid 0 - Are Slot's side back to their best?**\
+`The big talking points analysed from Tuesday's big Champions League tie at Anfield`\
+https://nytimes.com/athletic/6776506/2025/11/04/liverpool-1-real-madrid-0-are-arne-slots-side-back-to-their-best/
+
+**What Conservatives Should Do About Nick Fuentes**\
+`There are no shortcuts in the fight against right-wing antisemitism.`\
+https://nytimes.com/2025/11/04/opinion/nick-fuentes-antisemitism-republicans.html
+
+**Andrew Cuomo, scraping and scrambling, is still running as Andrew Cuomo.**\
+`By Matt Flegenheimer`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/andrew-cuomo-scraping-and-scrambling-is-still-running-as-andrew-cuomo
+
+**Fugitive Who Faked Abduction Is Found 13 Years Later, Enrolled in N.Y. College**\
+`Anthony Lennon, a convicted sex offender from Oklahoma, was arrested in Canton, N.Y., where he was studying under an alias, the authorities said.`\
+https://nytimes.com/2025/11/04/us/oklahoma-sex-offender.html
+
 **The Quest to Recreate My Family’s Century-Old Secret Spice Blend**\
 `How hard could it be? Very, with multiple recipes, far-flung relatives to please and more than a year’s worth of work.`\
 https://nytimes.com/2025/11/04/dining/secret-family-spice.html
@@ -15,22 +31,6 @@ https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/new-yorks-next-m
 https://nytimes.com/athletic/6776508/2025/11/04/tottenham-copenhagen-result-report-analysis/
 
 **Zion Williamson sidelined with hamstring strain, will be re-evaluated in 7-10 days**\
-`The Pelicans are one of two winless teams in the NBA so far this season.`\
+`The injury continues a pattern of hamstring issues that have sidelined Williamson each of the past four seasons.`\
 https://nytimes.com/athletic/6778256/2025/11/04/zion-williamson-injury-pelicans-hamstring/
-
-**Broncos to rely on young WRs' growth down the stretch after quiet trade deadline**\
-`Other contenders made splashy trades for wide receivers Tuesday, but Denver is counting on internal growth as it seeks an AFC West title.`\
-https://nytimes.com/athletic/6777234/2025/11/04/broncos-nfl-trade-deadline-payton-nix-franklin/
-
-**Why does Curtis Sliwa wear that red beret?**\
-`By Debra Kamin`\
-https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/why-does-curtis-sliwa-wear-that-red-beret
-
-**Furlough notices to federal workers leave out any mention of back pay.**\
-`By Eileen Sullivan`\
-https://nytimes.com/live/2025/11/04/us/trump-shutdown-news/furlough-notices-to-federal-workers-leave-out-any-mention-of-back-pay
-
-**What to Know About the Legal Scandal in Israel Over Accusations of Abuse**\
-`The fallout from a legal case has reignited a highly charged debate within the country over whether Israeli soldiers accused of abusing Palestinians are held accountable.`\
-https://nytimes.com/2025/11/04/world/middleeast/israel-soldiers-detainee-tomer-yerushalmi.html
 
