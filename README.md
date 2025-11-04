@@ -1,3 +1,7 @@
+**In New Jersey, voters say Trump influenced their decision in the governor’s race.**\
+`By Taylor Robinson and Mark Bonamo`\
+https://nytimes.com/live/2025/11/04/us/election-new-jersey-california/in-new-jersey-voters-say-trump-influenced-their-decision-in-the-governors-race
+
 **Norman Rockwell’s Family Condemns Homeland Security’s Use of His Work**\
 `In a series of social media posts, the department used the artist’s paintings to promote the Trump administration’s anti-immigration agenda.`\
 https://nytimes.com/2025/11/04/arts/design/norman-rockwell-homeland-security-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6777939/2025/11/04/oilers-vs-stars-stream-how-to-wa
 **How to watch Lightning vs. Avalanche: Time, TV, streaming**\
 `Find out how to watch the Tampa Bay Lightning play the Colorado Avalanche, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6777937/2025/11/04/lightning-vs-avalanche-stream-how-to-watch-nov-4/
-
-**How to watch Magic vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the Orlando Magic play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6777933/2025/11/04/magic-vs-hawks-stream-how-to-watch-nov-4/
 
