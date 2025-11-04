@@ -1,3 +1,7 @@
+**The songs of the mayoral race.**\
+`By Anna Kodé`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/the-songs-of-the-mayoral-race
+
 **China’s Security State Sells an A.I. Dream**\
 `China’s new national drive to embrace artificial intelligence is also giving the authorities new ways to monitor and control its citizens.`\
 https://nytimes.com/2025/11/04/world/asia/china-police-ai-surveillance.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/andrew-cuomo-has
 **How to watch Mount St. Mary's vs. Richmond: Time, TV, streaming**\
 `Find out how to watch the Mount St. Mary's Mountaineers play the Richmond Spiders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6777006/2025/11/04/mount-st-mary-s-vs-richmond-stream-how-to-watch-nov-4/
-
-**How to watch Canisius vs. Michigan: Time, TV, streaming**\
-`Find out how to watch the Canisius Golden Griffins play the Michigan Wolverines, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6777004/2025/11/04/canisius-vs-michigan-stream-how-to-watch-nov-4/
 
