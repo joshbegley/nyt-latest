@@ -1,3 +1,15 @@
+**Norman Rockwell’s Family Condemns Homeland Security’s Use of His Work**\
+`In a series of social media posts, the department used the artist’s paintings to promote the Trump administration’s anti-immigration agenda.`\
+https://nytimes.com/2025/11/04/arts/design/norman-rockwell-homeland-security-immigration.html
+
+**Suns' Booker says playing in Phoenix is 'something special,' wants to stay**\
+`Despite the roster uncertainty, Booker stayed true to Phoenix and embraced the idea that people associate him with the city.`\
+https://nytimes.com/athletic/6777983/2025/11/04/phoenix-suns-devin-booker-stay/
+
+**Is it ‘subsidizing the rich’ to make buses and child care free for all?**\
+`By Eliza Shapiro`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/is-it-subsidizing-the-rich-to-make-buses-and-child-care-free-for-all
+
 **Aging N.Y.C. Seminary’s Prayers Are Answered With a Lease by Vanderbilt**\
 `The Tennessee university has promised to make repairs to the General Theological Seminary buildings as it establishes a satellite campus in Chelsea.`\
 https://nytimes.com/2025/11/04/nyregion/nyc-seminary-episcopal-vanderbilt-university.html
