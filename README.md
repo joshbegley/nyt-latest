@@ -1,3 +1,19 @@
+**Pennsylvania: How to Vote, Where to Vote and What’s on the Ballot**\
+`Pennsylvania voters are heading to the polls on Tuesday to decide whether to keep three Democratic justices on the state’s seven-member top court, which could affect the panel’s partisan balance.`\
+https://nytimes.com/2025/11/04/us/politics/pennsylvania-how-where-vote-ballot.html
+
+**Why can’t people say Zohran Mamdani’s name correctly?**\
+`By Emma G. Fitzsimmons, Benjamin Oreskes, Eden Weingart and Aliza Aufrichtig`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/why-cant-people-say-zohran-mamdanis-name-correctly
+
+**How to watch Tennessee vs. NC State: Time, TV, streaming**\
+`Find out how to watch the Tennessee Volunteers play the NC State Wolfpack, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6776472/2025/11/04/tennessee-vs-nc-state-stream-how-to-watch-nov-4/
+
+**2025 NFL Playoff Simulator: Each team’s path to the postseason after Week 9**\
+`<p>Welcome to The Athletic’s 2025 NFL Playoff Simulator, where you’ll find everything you need to know about all the ways your favorite team&#8217;s season could end, from a No.`\
+https://nytimes.com/athletic/6513952/2025/11/04/2025-nfl-playoff-simulator-path-postseason/
+
 **England draw Spain in UEFA World Cup qualifying group**\
 `This summer's European Championship winners England are yet to win a World Cup after losing to Spain in the 2023 final.`\
 https://nytimes.com/athletic/6776290/2025/11/04/england-spain-uefa-world-cup-qualifying-2027/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6774821/2025/11/04/college-football-playoff-ranking
 **In the N.J. governor’s race, it’s Mikie Sherrill vs. Jack Ciattarelli.**\
 `President Trump has loomed over the campaign, in a usually reliable Democratic-leaning state that has shown signs of shifting right.`\
 https://nytimes.com/live/2025/11/04/us/election-new-jersey-california/in-the-nj-governors-race-its-mikie-sherrill-vs-jack-ciattarelli
-
-**Alexander-Arnold mural in Liverpool vandalised ahead of Real Madrid game**\
-`The image of the former Liverpool right-back on the side of a house near the stadium was splattered with white paint.`\
-https://nytimes.com/athletic/6776395/2025/11/04/alexander-arnold-mural-liverpool-madrid/
-
-**Cowboys finalizing trade for LB Logan Wilson from Bengals: Sources**\
-`A defensive captain for the Bengals, Wilson joins a Cowboys defense that sorely needs help and is giving up more than 30 points per game.`\
-https://nytimes.com/athletic/6776399/2025/11/04/cowboys-bengals-trade-logan-wilson/
-
-**How Eric Adams lost his coalition and became an also-ran.**\
-`By Katie Glueck and Ruth Igielnik`\
-https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/how-eric-adams-lost-his-coalition-and-became-an-also-ran
-
-**Bessent Plans to Attend Tariff Arguments at the Supreme Court**\
-`Treasury Secretary Scott Bessent dismissed the idea that his presence could be seen as an attempt to intimidate the court on a case that President Trump considers vital to his economic policy.`\
-https://nytimes.com/2025/11/04/us/politics/supreme-court-tariffs-bessent.html
 
