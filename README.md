@@ -1,3 +1,11 @@
+**The Tragedy of Dick Cheney**\
+`He tried to warn Americans about Trump, but they had already learned not to believe him.`\
+https://nytimes.com/2025/11/04/opinion/dick-cheney-vice-president-authority-trump.html
+
+**Super Bowl odds: Colts move up after Gardner trade, Chiefs still favored**\
+`The Indianapolis Colts moved up a bit in the odds to win the Super Bowl after landing Sauce Gardner. Did any other trade move the needle?`\
+https://nytimes.com/athletic/6778130/2025/11/04/sauce-gardner-nfl-trade-deadline-super-bowl-odds-chiefs/
+
 **What to Know About Our Live Election Estimates**\
 `Here’s how we will bring you the latest vote totals and estimates of the outcome in the New York mayor’s race and other contests around the country.`\
 https://nytimes.com/2025/11/04/us/elections/election-results-faq.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6776507/2025/11/04/psg-1-bayern-2-diaz-hakimi-dembe
 **Why the Patriots didn’t make a deal before the NFL trade deadline**\
 `The Patriots stood pat ahead of the trade deadline, but they stuck with their long-term plan of building up the roster via the draft.`\
 https://nytimes.com/athletic/6778151/2025/11/04/new-england-patriots-nfl-trade-deadline/
-
-**The Briefing: Liverpool 1 Real Madrid 0 - Are Slot's side back to their best? And what went wrong for Alonso?**\
-`The big talking points analysed from Tuesday's big Champions League tie at Anfield`\
-https://nytimes.com/athletic/6776506/2025/11/04/liverpool-1-real-madrid-0-analysis/
-
-**What Conservatives Should Do About Nick Fuentes**\
-`There are no shortcuts in the fight against right-wing antisemitism.`\
-https://nytimes.com/2025/11/04/opinion/nick-fuentes-antisemitism-republicans.html
 
