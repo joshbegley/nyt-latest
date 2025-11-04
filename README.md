@@ -1,3 +1,11 @@
+**Reds announce several coaching staff changes, including promotion of Mike Napoli**\
+`The changes come after bench coach Brad Mills, a long-time Terry Francona staffer, retired. `\
+https://nytimes.com/athletic/6774988/2025/11/03/cincinnati-reds-coaching-staff-mike-napoli/
+
+**Mayor of Orange County Will Run for Florida Governor as a Democrat**\
+`Jerry Demings has led the county, home to Orlando, since 2018. Gov. Ron DeSantis will leave office at the end of next year because of term limits.`\
+https://nytimes.com/2025/11/03/us/mayor-of-orange-county-will-run-for-florida-governor-as-a-democrat.html
+
 **Weekly Student News Quiz: Hurricane, Marathon, Shutdown**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/11/03/learning/03StudentNewsQuiz.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/03/business/starbucks-china-boyu-capital.html
 **‘The Boat,’ Despised Floating Jail Near Rikers, Heads for the Scrap Heap**\
 `The jail barge, officially called the Vernon C. Bain Center, was a relic of the crack cocaine era. It was notorious even among Rikers Island’s many troubled lockups.`\
 https://nytimes.com/2025/11/03/nyregion/rikers-floating-jail-towed-scrap.html
-
-**Former Atlanta Hawks senior VP charged with embezzling $3.8M to buy Porsche, tickets**\
-`The SVP of finance, who no longer works for the Hawks, is accused of changing financial reports to hide his company credit card charges.`\
-https://nytimes.com/athletic/6774870/2025/11/03/lester-jones-hawks-finance-vp-charged-embezzling/
-
-**A Sea of Blue and White in Downtown L.A.**\
-`Tens of thousands of Dodger fans attended a parade and rally on Monday, a joyful moment celebrating the team’s World Series win in what has been a turbulent year for Los Angeles.`\
-https://nytimes.com/2025/11/03/us/los-angeles-dodgers-parade.html
 
