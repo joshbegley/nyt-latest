@@ -1,3 +1,19 @@
+**Milestone Birthdays**\
+`What big birthdays have you had or are you looking forward to?`\
+https://nytimes.com/2025/11/04/learning/milestone-birthdays.html
+
+**In Search of the Simpsonville Massacre**\
+`In 1865, two dozen Union soldiers, all formerly enslaved, were ambushed and killed along a road in Kentucky. Archaeologists are still searching for their remains.`\
+https://nytimes.com/2025/11/04/science/archaeology-simpsonville-civil-war.html
+
+**Trump Backs Cuomo as N.Y.C. Mayor’s Race Nears Finish Line**\
+`Zohran Mamdani, the Democratic front-runner, said he was “confident but not complacent” about winning, as former Gov. Andrew M. Cuomo was endorsed by President Trump.`\
+https://nytimes.com/2025/11/04/nyregion/mamdani-cuomo-election-day.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/04/crosswords/spelling-bee-forum.html
+
 **Late Night Finds Trump’s Rich ‘Great Gatsby’ Party in Poor Taste**\
 `“There were dancers, costumes and champagne — a wonderful celebration where the theme was apparently gross income inequality,” Jon Stewart said.`\
 https://nytimes.com/2025/11/04/arts/television/late-night-trump-great-gatsby-party.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/11/04/learning/word-of-the-day-foster.html
 **The Everton midfield, David Moyes' choices and an ongoing pursuit of control**\
 `A point at Sunderland is no cause for complaint, but there is still an edginess and restlessness around Everton as they strive for balance`\
 https://nytimes.com/athletic/6775412/2025/11/04/everton-moyes-midfield-control-sunderland/
-
-**Kim Yong-nam, Longtime Ceremonial Leader of North Korea, Dead at 97**\
-`In a country where political purges are frequent, Mr. Kim was a notable exception and served three generations of its dynastic rulers.`\
-https://nytimes.com/2025/11/04/world/asia/nkorea-kim-yongnam-president.html
-
-**Ja Morant says he isn't playing with joy. Can he restore it in Memphis?**\
-`Memphis is already answering questions about the relationship between Morant and head coach Tuomas Iisalo.`\
-https://nytimes.com/athletic/6775828/2025/11/04/ja-morant-grizzlies-nba-unhappy-tuomas-iisalo/
-
-**Michelle Obama on the Restrictive Beauty Standards of Being First Lady**\
-`In a new book, Mrs. Obama unpacks the complexities of dressing and hairstyling during her eight years at the height of American politics.`\
-https://nytimes.com/2025/11/04/style/michelle-obama-the-look-book.html
-
-**The New York Times in Print for Tuesday, Nov. 4, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/11/04/todays-new-york-times
 

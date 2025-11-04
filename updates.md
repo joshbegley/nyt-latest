@@ -1,3 +1,19 @@
+**Milestone Birthdays**\
+`What big birthdays have you had or are you looking forward to?`\
+https://nytimes.com/2025/11/04/learning/milestone-birthdays.html
+
+**In Search of the Simpsonville Massacre**\
+`In 1865, two dozen Union soldiers, all formerly enslaved, were ambushed and killed along a road in Kentucky. Archaeologists are still searching for their remains.`\
+https://nytimes.com/2025/11/04/science/archaeology-simpsonville-civil-war.html
+
+**Trump Backs Cuomo as N.Y.C. Mayor’s Race Nears Finish Line**\
+`Zohran Mamdani, the Democratic front-runner, said he was “confident but not complacent” about winning, as former Gov. Andrew M. Cuomo was endorsed by President Trump.`\
+https://nytimes.com/2025/11/04/nyregion/mamdani-cuomo-election-day.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/04/crosswords/spelling-bee-forum.html
+
 **Late Night Finds Trump’s Rich ‘Great Gatsby’ Party in Poor Taste**\
 `“There were dancers, costumes and champagne — a wonderful celebration where the theme was apparently gross income inequality,” Jon Stewart said.`\
 https://nytimes.com/2025/11/04/arts/television/late-night-trump-great-gatsby-party.html
