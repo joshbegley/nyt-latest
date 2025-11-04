@@ -1,3 +1,7 @@
+**Cuomo was contrite about his sexual harassment scandal. Not anymore.**\
+`By Dana Rubinstein and Alyce McFadden`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/cuomo-was-contrite-about-his-sexual-harassment-scandal-not-anymore
+
 **U.S. Seeks Two-Year U.N. Mandate for Gaza Stabilization Force**\
 `A draft Security Council resolution said that an international force would ensure that Gaza be demilitarized, though specifics were unclear.`\
 https://nytimes.com/2025/11/04/world/middleeast/un-mandate-gaza-force.html
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/6777034/2025/11/04/hurricanes-vs-rangers-stream-how
 **How to watch Mammoth vs. Sabres: Time, TV, streaming**\
 `Find out how to watch the Utah Mammoth play the Buffalo Sabres, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6777032/2025/11/04/mammoth-vs-sabres-stream-how-to-watch-nov-4/
-
-**How to watch Bruins vs. Islanders: Time, TV, streaming**\
-`Find out how to watch the Boston Bruins play the New York Islanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6777029/2025/11/04/bruins-vs-islanders-stream-how-to-watch-nov-4/
-
-**‘Messy White Gays’ Review: A Satire We’ve Seen Before**\
-`Drew Droege’s newest play Off Broadway is a lot like his others, skewering the entitlement of wealthy, oblivious gay men in Manhattan.`\
-https://nytimes.com/2025/11/04/theater/messy-white-gays-review-drew-droege.html
 
