@@ -1,3 +1,11 @@
+**Full Time: Bold NWSL title predictions**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6774309/2025/11/03/nwsl-title-predictions-full-time/
+
+**As the mayor’s race comes to a close, the contest for City Council speaker is heating up.**\
+`By Jeffery C. Mays`\
+https://nytimes.com/live/2025/11/03/nyregion/nyc-mayor-election-news/as-the-mayors-race-comes-to-a-close-the-contest-for-city-council-speaker-is-heating-up
+
 **Reds announce several coaching staff changes, including promotion of Mike Napoli**\
 `The changes come after bench coach Brad Mills, a long-time Terry Francona staffer, retired. `\
 https://nytimes.com/athletic/6774988/2025/11/03/cincinnati-reds-coaching-staff-mike-napoli/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/03/us/politics/trump-white-house-ballroom-donors.htm
 **Braves name Walt Weiss manager; former player elevated from bench coach**\
 `He will be just the fourth Braves manager since 1991, after Hall of Famer Bobby Cox, Fredi González and Brian Snitker.`\
 https://nytimes.com/athletic/6775051/2025/11/03/atlanta-braves-walt-weiss-manager-hire/
-
-**Starbucks to Sell 60% of Its China Business to a Private Equity Firm**\
-`In a deal valued at $4 billion, Boyu Capital will acquire a stake in the coffee giant’s 8,000 stores in China.`\
-https://nytimes.com/2025/11/03/business/starbucks-china-boyu-capital.html
-
-**‘The Boat,’ Despised Floating Jail Near Rikers, Heads for the Scrap Heap**\
-`The jail barge, officially called the Vernon C. Bain Center, was a relic of the crack cocaine era. It was notorious even among Rikers Island’s many troubled lockups.`\
-https://nytimes.com/2025/11/03/nyregion/rikers-floating-jail-towed-scrap.html
 
