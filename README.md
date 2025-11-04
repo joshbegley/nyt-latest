@@ -1,3 +1,7 @@
+**Tom Brady says dog Junie is a clone of family's previous dog**\
+`Brady says he has partnered with Colossal Biosciences to create a clone of his late dog Luna.`\
+https://nytimes.com/athletic/6777780/2025/11/04/tom-brady-dog-junie-clone/
+
 **Is the NHL the best place for Easton Cowan right now?**\
 `Cowan has had a nice start to his NHL career but still might benefit from some time in the minors.`\
 https://nytimes.com/athletic/6778160/2025/11/04/maple-leafs-easton-cowan-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/04/dining/secret-family-spice.html
 **Critical fantasy football insights for Week 10: Sam Darnold, Rashid Shaheed a potent pairing**\
 `Brandon Funston and Jess Bryant look at usage metrics to give actionable Week 10 fantasy football advice. `\
 https://nytimes.com/athletic/6773532/2025/11/04/critical-insights-usage-fantasy-football-week-10/
-
-**New York’s next mayor will face big decisions on climate change.**\
-`By Hilary Howard and Claire Brown`\
-https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/new-yorks-next-mayor-will-face-big-decisions-on-climate-change
 

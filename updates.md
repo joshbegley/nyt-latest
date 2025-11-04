@@ -1,3 +1,19 @@
+**Is the NHL the best place for Easton Cowan right now?**\
+`Cowan has had a nice start to his NHL career but still might benefit from some time in the minors.`\
+https://nytimes.com/athletic/6778160/2025/11/04/maple-leafs-easton-cowan-nhl/
+
+**PSG 1 Bayern Munich 2 - What happened with Diaz and Hakimi? Was Dembele risk required? Kane sets the tone**\
+`Bayern secured a league-phase win at PSG, but it was marred by an injury to Achraf Hakimi`\
+https://nytimes.com/athletic/6776507/2025/11/04/psg-1-bayern-2-diaz-hakimi-dembele-kane/
+
+**Why the Patriots didn’t make a deal before the NFL trade deadline**\
+`The Patriots stood pat ahead of the trade deadline, but they stuck with their long-term plan of building up the roster via the draft.`\
+https://nytimes.com/athletic/6778151/2025/11/04/new-england-patriots-nfl-trade-deadline/
+
+**The Briefing: Liverpool 1 Real Madrid 0 - Are Slot's side back to their best?**\
+`The big talking points analysed from Tuesday's big Champions League tie at Anfield`\
+https://nytimes.com/athletic/6776506/2025/11/04/liverpool-1-real-madrid-0-analysis/
+
 **The Briefing: Liverpool 1 Real Madrid 0 - Are Slot's side back to their best?**\
 `The big talking points analysed from Tuesday's big Champions League tie at Anfield`\
 https://nytimes.com/athletic/6776506/2025/11/04/liverpool-1-real-madrid-0-are-arne-slots-side-back-to-their-best/
