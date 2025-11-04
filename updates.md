@@ -1,3 +1,7 @@
+**Right-Wing Chatbots Turbocharge America’s Political and Cultural Wars**\
+`Once pitched as dispassionate tools to answer your questions, A.I. chatbots are now programmed to reflect the biases of their creators.`\
+https://nytimes.com/2025/11/04/business/right-wing-chatbots-gab-arya-chatgpt-gemini.html
+
 **Maryland Will Explore Redrawing Its Congressional Map**\
 `Gov. Wes Moore said in a statement on Tuesday that the state would “explore every avenue possible to make sure Maryland has fair and representative maps.”`\
 https://nytimes.com/2025/11/04/us/politics/maryland-redistricting-governor-moore.html
