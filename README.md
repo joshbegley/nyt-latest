@@ -1,3 +1,15 @@
+**​How Two Times Editors Work on Getting Election Results Right**\
+`Accurate, reliable results play a role in free and fair elections. So does explaining the data and helping people understand when and how it will be reported.`\
+https://nytimes.com/2025/11/04/us/election-results-2025.html
+
+**Loyola Chicago wins first game since Sister Jean's death: 'She was with us tonight'**\
+`Junior guard Deywilk Tavarez scored a game-winning 3-pointer in the Ramblers' 91-88 victory.`\
+https://nytimes.com/athletic/6776729/2025/11/04/loyola-chicago-basketball-win-sister-jean/
+
+**Falcons signing kicker Zane Gonzalez to replace Parker Romo after PAT miss: Source**\
+`Romo missed what would have been the tying extra point late in the Falcons' loss to the Patriots on Sunday.`\
+https://nytimes.com/athletic/6777191/2025/11/04/falcons-sign-zane-gonzalez-parker-romo-kicker/
+
 **Right-Wing Chatbots Turbocharge America’s Political and Cultural Wars**\
 `Once pitched as dispassionate tools to answer your questions, A.I. chatbots are now programmed to reflect the biases of their creators.`\
 https://nytimes.com/2025/11/04/business/right-wing-chatbots-gab-arya-chatgpt-gemini.html
@@ -17,16 +29,4 @@ https://nytimes.com/2025/11/04/world/middleeast/un-mandate-gaza-force.html
 **The songs of the mayoral race.**\
 `By Anna Kodé`\
 https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/the-songs-of-the-mayoral-race
-
-**Raiders trade WR Jakobi Meyers to Jaguars for picks: Sources**\
-`Meyers has averaged 65.5 receptions and 765.3 yards over his six full seasons with New England and Las Vegas. `\
-https://nytimes.com/athletic/6755173/2025/11/04/jakobi-meyers-trade-jaguars-raiders/
-
-**China’s Security State Sells an A.I. Dream**\
-`China’s new national drive to embrace artificial intelligence is also giving the authorities new ways to monitor and control its citizens.`\
-https://nytimes.com/2025/11/04/world/asia/china-police-ai-surveillance.html
-
-**Maryland Will Explore Redrawing Its Congressional Map**\
-`Gov. Wes Moore said in a statement on Tuesday that the state would “explore every avenue possible to make sure Maryland has fair and representative maps.”`\
-https://nytimes.com/2025/11/04/us/politics/maryland-redistricting-governor-moore.html
 
