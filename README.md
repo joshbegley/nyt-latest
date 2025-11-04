@@ -6,6 +6,10 @@ https://nytimes.com/2025/11/04/world/middleeast/un-mandate-gaza-force.html
 `By Anna Kodé`\
 https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/the-songs-of-the-mayoral-race
 
+**Raiders trade WR Jakobi Meyers to Jaguars for picks: Sources**\
+`Meyers has averaged 65.5 receptions and 765.3 yards over his six full seasons with New England and Las Vegas. `\
+https://nytimes.com/athletic/6755173/2025/11/04/jakobi-meyers-trade-jaguars-raiders/
+
 **China’s Security State Sells an A.I. Dream**\
 `China’s new national drive to embrace artificial intelligence is also giving the authorities new ways to monitor and control its citizens.`\
 https://nytimes.com/2025/11/04/world/asia/china-police-ai-surveillance.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6777029/2025/11/04/bruins-vs-islanders-stream-how-t
 **‘Messy White Gays’ Review: A Satire We’ve Seen Before**\
 `Drew Droege’s newest play Off Broadway is a lot like his others, skewering the entitlement of wealthy, oblivious gay men in Manhattan.`\
 https://nytimes.com/2025/11/04/theater/messy-white-gays-review-drew-droege.html
-
-**Andrew Cuomo has a complicated legacy in New York City.**\
-`By Emma G. Fitzsimmons and Andy Newman`\
-https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/andrew-cuomo-has-a-complicated-legacy-in-new-york-city
 
