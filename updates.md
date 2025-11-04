@@ -1,3 +1,7 @@
+**The songs of the mayoral race.**\
+`By Anna Kodé`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/the-songs-of-the-mayoral-race
+
 **China’s Security State Sells an A.I. Dream**\
 `China’s new national drive to embrace artificial intelligence is also giving the authorities new ways to monitor and control its citizens.`\
 https://nytimes.com/2025/11/04/world/asia/china-police-ai-surveillance.html
