@@ -1,3 +1,7 @@
+**Moultrie extends contract with Thorns through 2029**\
+`The 20-year-old hasn't ruled out going to Europe, but for now is committed to growing even more with the Thorns.`\
+https://nytimes.com/athletic/6774253/2025/11/04/olivia-moultrie-extends-contract-portland-thorns-2029/
+
 **Is the East closing in on the West? Who's in early trouble in the NBA Cup?**\
 `We may be jumping to conclusions, but so far, the perceived bottom of the East has held its own against the top of the West.`\
 https://nytimes.com/athletic/6774816/2025/11/04/nba-eastern-conference-parity-nba-cup/
