@@ -1,4 +1,16 @@
-**In New Jersey, voters say Trump influenced their decision in the governor’s race.**\
+**Supreme Court Considers Toxic Baby Food Lawsuit Involving Whole Foods**\
+`The justices grappled with a case involving a lawsuit by a Texas couple who claimed toxins in baby food had sickened their son.`\
+https://nytimes.com/2025/11/04/us/politics/supreme-court-baby-food-whole-foods.html
+
+**Elon Musk’s $1 Trillion Payday**\
+`My colleague Jack Ewing explains the stakes ahead of a crucial Tesla board meeting.`\
+https://nytimes.com/2025/11/04/world/elon-musk-trillion-dollars-election-day-venezuela-military.html
+
+**Padres' Yu Darvish undergoes UCL repair with internal brace, will miss 2026 season**\
+`Darvish missed the start of the 2025 season with elbow discomfort and pitched through pain all season.`\
+https://nytimes.com/athletic/6777837/2025/11/04/padres-yu-darvish-ucl-surgery/
+
+**In New Jersey, Democrats and Republicans say Trump influenced their vote in the governor’s race.**\
 `By Taylor Robinson and Mark Bonamo`\
 https://nytimes.com/live/2025/11/04/us/election-new-jersey-california/in-new-jersey-voters-say-trump-influenced-their-decision-in-the-governors-race
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6777855/2025/11/04/barcelona-lewandowski-future-con
 **Eni Aluko says she 'did not get out of bed or eat' after Joey Barton social media posts**\
 `Liverpool Crown Court heard Aluko and fellow pundit Lucy Ward describe the impact Barton’s posts had on them on Tuesday.`\
 https://nytimes.com/athletic/6777381/2025/11/04/joey-barton-eni-aluko-posts/
-
-**How to watch Suns vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the Phoenix Suns play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6777941/2025/11/04/suns-vs-warriors-stream-how-to-watch-nov-4/
-
-**How to watch Oilers vs. Stars: Time, TV, streaming**\
-`Find out how to watch the Edmonton Oilers play the Dallas Stars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6777939/2025/11/04/oilers-vs-stars-stream-how-to-watch-nov-4/
-
-**How to watch Lightning vs. Avalanche: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Lightning play the Colorado Avalanche, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6777937/2025/11/04/lightning-vs-avalanche-stream-how-to-watch-nov-4/
 

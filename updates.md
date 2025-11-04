@@ -1,3 +1,19 @@
+**Supreme Court Considers Toxic Baby Food Lawsuit Involving Whole Foods**\
+`The justices grappled with a case involving a lawsuit by a Texas couple who claimed toxins in baby food had sickened their son.`\
+https://nytimes.com/2025/11/04/us/politics/supreme-court-baby-food-whole-foods.html
+
+**Elon Musk’s $1 Trillion Payday**\
+`My colleague Jack Ewing explains the stakes ahead of a crucial Tesla board meeting.`\
+https://nytimes.com/2025/11/04/world/elon-musk-trillion-dollars-election-day-venezuela-military.html
+
+**Padres' Yu Darvish undergoes UCL repair with internal brace, will miss 2026 season**\
+`Darvish missed the start of the 2025 season with elbow discomfort and pitched through pain all season.`\
+https://nytimes.com/athletic/6777837/2025/11/04/padres-yu-darvish-ucl-surgery/
+
+**In New Jersey, Democrats and Republicans say Trump influenced their vote in the governor’s race.**\
+`By Taylor Robinson and Mark Bonamo`\
+https://nytimes.com/live/2025/11/04/us/election-new-jersey-california/in-new-jersey-voters-say-trump-influenced-their-decision-in-the-governors-race
+
 **In New Jersey, voters say Trump influenced their decision in the governor’s race.**\
 `By Taylor Robinson and Mark Bonamo`\
 https://nytimes.com/live/2025/11/04/us/election-new-jersey-california/in-new-jersey-voters-say-trump-influenced-their-decision-in-the-governors-race
