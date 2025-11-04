@@ -1,3 +1,11 @@
+**The Tragedy of Dick Cheney**\
+`He tried to warn Americans about Trump, but they had already learned not to believe him.`\
+https://nytimes.com/2025/11/04/opinion/dick-cheney-vice-president-authority-trump.html
+
+**Super Bowl odds: Colts move up after Gardner trade, Chiefs still favored**\
+`The Indianapolis Colts moved up a bit in the odds to win the Super Bowl after landing Sauce Gardner. Did any other trade move the needle?`\
+https://nytimes.com/athletic/6778130/2025/11/04/sauce-gardner-nfl-trade-deadline-super-bowl-odds-chiefs/
+
 **What to Know About Our Live Election Estimates**\
 `Here’s how we will bring you the latest vote totals and estimates of the outcome in the New York mayor’s race and other contests around the country.`\
 https://nytimes.com/2025/11/04/us/elections/election-results-faq.html

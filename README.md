@@ -1,3 +1,11 @@
+**Tottenham’s Udogie named as footballer allegedly threatened with firearm**\
+`Udogie played for Tottenham seven days after the alleged incident, coming on as a substitute in a 3-0 win over West Ham United.`\
+https://nytimes.com/athletic/6777810/2025/11/04/tottenham-destiny-udogie-threatened/
+
+**Jack Flaherty won't opt out, returns to Tigers on $20 million deal**\
+`Flaherty could have tested the free agent market but his experience last offseason coming off a stronger year wasn't a positive one.`\
+https://nytimes.com/athletic/6778357/2025/11/04/jack-flaherty-tigers-return/
+
 **The Tragedy of Dick Cheney**\
 `He tried to warn Americans about Trump, but they had already learned not to believe him.`\
 https://nytimes.com/2025/11/04/opinion/dick-cheney-vice-president-authority-trump.html
@@ -26,15 +34,7 @@ https://nytimes.com/2025/11/04/us/politics/los-angeles-election-monitoring.html
 `Brady says he has partnered with Colossal Biosciences to create a clone of his late dog Luna.`\
 https://nytimes.com/athletic/6777780/2025/11/04/tom-brady-dog-junie-clone/
 
-**Is the NHL the best place for Easton Cowan right now?**\
-`Cowan has had a nice start to his NHL career but still might benefit from some time in the minors.`\
+**Is the NHL the best place for Maple Leafs rookie Easton Cowan right now?**\
+`Cowan has had a nice start to his NHL career, but the 20-year-old might benefit from some time in the minors with the Toronto Marlies.`\
 https://nytimes.com/athletic/6778160/2025/11/04/maple-leafs-easton-cowan-nhl/
-
-**PSG 1 Bayern Munich 2 - What happened with Diaz and Hakimi? Was Dembele risk required? Kane sets the tone**\
-`Bayern secured a league-phase win at PSG, but it was marred by an injury to Achraf Hakimi`\
-https://nytimes.com/athletic/6776507/2025/11/04/psg-1-bayern-2-diaz-hakimi-dembele-kane/
-
-**Why the Patriots didn’t make a deal before the NFL trade deadline**\
-`The Patriots stood pat ahead of the trade deadline, but they stuck with their long-term plan of building up the roster via the draft.`\
-https://nytimes.com/athletic/6778151/2025/11/04/new-england-patriots-nfl-trade-deadline/
 
