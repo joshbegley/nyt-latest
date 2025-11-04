@@ -1,3 +1,11 @@
+**NFL trade grades: Ravens bolster pass rush for playoff push with deal for Dre'Mont Jones**\
+`We are analyzing and grading all of the biggest deals ahead of Tuesday's NFL trade deadline. `\
+https://nytimes.com/athletic/6774787/2025/11/03/nfl-trade-grades-deadline-2025/
+
+**How Jared McCain's long-awaited return to the 76ers' lineup helps their offense**\
+`On Tuesday night in Chicago, Jared McCain will be sitting in the 76ers' locker room, peeling off a sweaty uniform`\
+https://nytimes.com/athletic/6775154/2025/11/03/jared-mccain-76ers-season-debut-nba/
+
 **Trump Doubles Down on Nuclear Tests. His Energy Secretary Differs.**\
 `President Trump and one of his top cabinet officials are sending mixed messages on how the U.S. government is handling one of the most destructive weapons in the world.`\
 https://nytimes.com/2025/11/03/us/politics/trump-nuclear-tests-energy-secretary.html

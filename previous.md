@@ -1,3 +1,11 @@
+**NFL trade grades: Ravens bolster pass rush for playoff push with deal for Dre'Mont Jones**\
+`We are analyzing and grading all of the biggest deals ahead of Tuesday's NFL trade deadline. `\
+https://nytimes.com/athletic/6774787/2025/11/03/nfl-trade-grades-deadline-2025/
+
+**How Jared McCain's long-awaited return to the 76ers' lineup helps their offense**\
+`On Tuesday night in Chicago, Jared McCain will be sitting in the 76ers' locker room, peeling off a sweaty uniform`\
+https://nytimes.com/athletic/6775154/2025/11/03/jared-mccain-76ers-season-debut-nba/
+
 **Trump Doubles Down on Nuclear Tests. His Energy Secretary Differs.**\
 `President Trump and one of his top cabinet officials are sending mixed messages on how the U.S. government is handling one of the most destructive weapons in the world.`\
 https://nytimes.com/2025/11/03/us/politics/trump-nuclear-tests-energy-secretary.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6775113/2025/11/03/dodgers-parade-world-series-thre
 **Vogue Absorbs Teen Vogue**\
 `Teen Vogue’s website is folding into Vogue.com, further eroding the sister publication’s presence as an independent brand.`\
 https://nytimes.com/2025/11/03/style/teen-vogue-website-conde-nast.html
-
-**Man Shot by ICE Was Not Trying to Run Over Agent, Lawyers Say**\
-`A Southern California man charged with assault of a federal officer was asking agents to leave an area where school children wait for the bus, according to his lawyers.`\
-https://nytimes.com/2025/11/03/us/ontario-ice-agent-shooting.html
-
-**How will beleaguered Bengals 'D' move forward and will Trey Hendrickson be with them?**\
-`Zac Taylor says there won't be changes in the coaching staff, but whether players are traded remains to be seen.`\
-https://nytimes.com/athletic/6775165/2025/11/03/bengals-defense-trade-deadline-trey-hendrickson/
 
