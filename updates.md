@@ -1,3 +1,15 @@
+**Ja Morant says he isn't playing with joy. Can he restore it in Memphis?**\
+`Memphis is already answering questions about the relationship between Morant and head coach Tuomas Iisalo.`\
+https://nytimes.com/athletic/6775828/2025/11/04/ja-morant-grizzlies-nba-unhappy-tuomas-iisalo/
+
+**Michelle Obama on the Restrictive Beauty Standards of Being First Lady**\
+`In a new book, Mrs. Obama unpacks the complexities of dressing and hairstyling during her eight years at the height of American politics.`\
+https://nytimes.com/2025/11/04/style/michelle-obama-the-look-book.html
+
+**The New York Times in Print for Tuesday, Nov. 4, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/04/todays-new-york-times
+
 **Johan Lange and Thomas Frank are under scrutiny but tonight is a reminder of how far they've come**\
 `Tottenham's Danish manager and sporting director will come up against some familiar faces in the form of FC Copenhagen`\
 https://nytimes.com/athletic/6524396/2025/11/04/johan-lange-thomas-frank-tottenham-denmark-copenhagen/
