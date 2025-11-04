@@ -1,3 +1,7 @@
+**U.S. Seeks Two-Year U.N. Mandate for Gaza Stabilization Force**\
+`A draft Security Council resolution said that an international force would ensure that Gaza be demilitarized, though specifics were unclear.`\
+https://nytimes.com/2025/11/04/world/middleeast/un-mandate-gaza-force.html
+
 **The songs of the mayoral race.**\
 `By Anna Kodé`\
 https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/the-songs-of-the-mayoral-race

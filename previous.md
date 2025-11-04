@@ -1,3 +1,7 @@
+**U.S. Seeks Two-Year U.N. Mandate for Gaza Stabilization Force**\
+`A draft Security Council resolution said that an international force would ensure that Gaza be demilitarized, though specifics were unclear.`\
+https://nytimes.com/2025/11/04/world/middleeast/un-mandate-gaza-force.html
+
 **The songs of the mayoral race.**\
 `By Anna Kodé`\
 https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/the-songs-of-the-mayoral-race
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/04/theater/messy-white-gays-review-drew-droege.html
 **Andrew Cuomo has a complicated legacy in New York City.**\
 `By Emma G. Fitzsimmons and Andy Newman`\
 https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/andrew-cuomo-has-a-complicated-legacy-in-new-york-city
-
-**How to watch Mount St. Mary's vs. Richmond: Time, TV, streaming**\
-`Find out how to watch the Mount St. Mary's Mountaineers play the Richmond Spiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6777006/2025/11/04/mount-st-mary-s-vs-richmond-stream-how-to-watch-nov-4/
 
