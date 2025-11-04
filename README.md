@@ -1,3 +1,7 @@
+**Fantasy football Week 10 drops: Turn the page on Alvin Kamara, Nick Chubb**\
+`Gary Davenport identifies players who are struggling to validate their spot on fantasy rosters, including a couple venerated running backs.`\
+https://nytimes.com/athletic/6775640/2025/11/04/fantasy-football-week-10-drops-kamara-chubb/
+
 **Its Forces Worn Down, Ukraine Moves to Revamp Military Service**\
 `The country will introduce fixed-term military contracts to try to attract recruits and ease the strain on soldiers after years of fighting.`\
 https://nytimes.com/2025/11/04/world/europe/ukraine-war-military-contracts-conscription.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/11/04/us/trump-shutdown-news
 **Leandro Trossard: Arsenal's quiet leader who is becoming increasingly vocal**\
 `The Belgian is a reliable and increasingly integral part of this Arsenal squad, as they target honours on multiple fronts`\
 https://nytimes.com/athletic/6776087/2025/11/04/leandro-trossard-arsenal-leadership/
-
-**Even the World Series champs have flaws: Here are 3 offseason concerns for Dodgers**\
-`The Dodgers must improve the bullpen, bolster the outfield and attack several other roster issues if they plan to go back-to-back-to-back.`\
-https://nytimes.com/athletic/6767905/2025/11/04/dodgers-offseason-needs-mlb-free-agency/
 
