@@ -1,3 +1,19 @@
+**How to watch Flyers vs. Canadiens: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Flyers play the Montreal Canadiens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6777036/2025/11/04/flyers-vs-canadiens-stream-how-to-watch-nov-4/
+
+**How to watch Hurricanes vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Carolina Hurricanes play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6777034/2025/11/04/hurricanes-vs-rangers-stream-how-to-watch-nov-4/
+
+**How to watch Mammoth vs. Sabres: Time, TV, streaming**\
+`Find out how to watch the Utah Mammoth play the Buffalo Sabres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6777032/2025/11/04/mammoth-vs-sabres-stream-how-to-watch-nov-4/
+
+**How to watch Bruins vs. Islanders: Time, TV, streaming**\
+`Find out how to watch the Boston Bruins play the New York Islanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6777029/2025/11/04/bruins-vs-islanders-stream-how-to-watch-nov-4/
+
 **‘Messy White Gays’ Review: A Satire We’ve Seen Before**\
 `Drew Droege’s newest play Off Broadway is a lot like his others, skewering the entitlement of wealthy, oblivious gay men in Manhattan.`\
 https://nytimes.com/2025/11/04/theater/messy-white-gays-review-drew-droege.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6777002/2025/11/04/mercyhurst-vs-michigan-state-str
 **How to watch Nicholls State vs. Kentucky: Time, TV, streaming**\
 `Find out how to watch the Nicholls State Colonels play the Kentucky Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6776997/2025/11/04/nicholls-state-vs-kentucky-stream-how-to-watch-nov-4/
-
-**How to watch Evansville vs. Purdue: Time, TV, streaming**\
-`Find out how to watch the Evansville Purple Aces play the Purdue Boilermakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6776995/2025/11/04/evansville-vs-purdue-stream-how-to-watch-nov-4/
-
-**How to watch Falcons vs. Colts: Time, TV, streaming**\
-`Find out how to watch the Atlanta Falcons play the Indianapolis Colts, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6776991/2025/11/04/falcons-vs-colts-stream-how-to-watch-nov-9/
-
-**New Toronto Tempo coach Sandy Brondello: 'We’re building a world-class franchise'**\
-`Brondello spoke to The Athletic about leaving the Liberty and being one of a few former WNBA players who are head coaches.`\
-https://nytimes.com/athletic/6776774/2025/11/04/toronto-tempo-coach-sandy-brondello-expansion/
-
-**The Editor Got a Letter From ‘Dr. B.S.’ So Did a Lot of Other Editors.**\
-`The rise of artificial intelligence has produced serial writers to science and medical journals, most likely using chatbots to boost the number of citations they’ve published.`\
-https://nytimes.com/2025/11/04/science/letters-to-the-editor-ai-chatbots.html
 
