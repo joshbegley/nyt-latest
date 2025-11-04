@@ -1,3 +1,7 @@
+**New Jersey: How to Vote, Where to Vote and What’s on the Ballot**\
+`New Jersey voters will pick a governor on Tuesday in a competitive off-year election.`\
+https://nytimes.com/2025/11/04/us/politics/new-jersey-how-vote-ballot.html
+
 **Ohio State final thoughts: Julian Sayin for Heisman? Can anyone cover Carnell Tate?**\
 `Penn State may be a shell of what was expected, but there was still plenty to take away from another dominant Ohio State win.`\
 https://nytimes.com/athletic/6773725/2025/11/04/ohio-state-julian-sayin-heisman-penn-state/
