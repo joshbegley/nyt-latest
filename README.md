@@ -1,6 +1,6 @@
 **Mavericks' late-game struggles cement their status as Texas' third-best team**\
 `Monday's loss to Houston exposed many of the same early-season problems for Dallas.`\
-https://nytimes.com/athletic/6775871/2025/11/04/mavericks-late-game-struggles-cement-their-status-as-texas-third-best-team/
+https://nytimes.com/athletic/6775871/2025/11/04/mavericks-rockets-early-season-problems/
 
 **In the Virginia governor’s race, it’s Abigail Spanberger vs. Winsome Earle-Sears**\
 `Ms. Spanberger, a centrist Democrat, has led in most polls against Ms. Earle-Searles, the Republican lieutenant governor. One of them will become Virginia’s first female chief executive.`\
