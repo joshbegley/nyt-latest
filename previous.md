@@ -1,3 +1,15 @@
+**Johan Lange and Thomas Frank are under scrutiny but tonight is a reminder of how far they've come**\
+`Tottenham's Danish manager and sporting director will come up against some familiar faces in the form of FC Copenhagen`\
+https://nytimes.com/athletic/6524396/2025/11/04/johan-lange-thomas-frank-tottenham-denmark-copenhagen/
+
+**The Women's Cricket World Cup: Are India ready for lift-off? Is Australian dominance over?**\
+`India's first success in the 50-over World Cup could be the catalyst to establishing them as the biggest force in the women's game`\
+https://nytimes.com/athletic/6773450/2025/11/04/india-women-cricket-world-cup-australia-england/
+
+**Bundesliga Briefing: Bischof's passing masterclass, Borussia Monchengladbach finally win**\
+`A look at what Bischof's incredible pass tells us about his future, Borussia Monchengladbach's relief, and the return of the tennis balls`\
+https://nytimes.com/athletic/6773216/2025/11/04/bundesliga-bischof-pass-borussia-monchengladbach-win/
+
 **Jacoby Brissett stays hot, Arizona snaps 5-game skid in big Monday night win**\
 `Filling in for an injured Kyler Murray, Brissett again showed poise and command of the offense, finishing 21-of-31 for 261 yards.`\
 https://nytimes.com/athletic/6775720/2025/11/04/cardinals-cowboys-score-result-takeaways-mnf-nfl/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6756346/2025/11/04/haaland-kane-goal-tracker-record
 **How do managers choose which jobs to take - and when to say 'no'?**\
 `Status, money, timing, emotion? There are a lot of factors that go into picking the right job`\
 https://nytimes.com/athletic/6774171/2025/11/04/how-managers-choose-jobs/
-
-**The tactical reason Newcastle United are so bad away from home**\
-`Howe feels Newcastle are 'chasing results'. Fixing their away form means fixing their out-of-possession shape and game plan.`\
-https://nytimes.com/athletic/6771541/2025/11/04/newcastle-away-form-tactical-issues/
-
-**Van Persie, the coach: Learning from Wenger and Ferguson, working with Slot and 'development urgency'**\
-`He's played under and worked with Premier League coaching royalty. The Athletic went along to see how he's getting on at Feyenoord`\
-https://nytimes.com/athletic/6768392/2025/11/04/robin-van-persie-the-coach-learning-from-wenger-and-ferguson-working-with-slot-and-development-urgency/
-
-**Row Z: Christmas is cancelled, weird times at Wolves and an unruly hedge**\
-`Tim Spiers shines a light on the bonkers side of the game. This week the focus is on some strange Boxing Day goings-on`\
-https://nytimes.com/athletic/6773734/2025/11/04/row-z-christmas-wolves/
 
