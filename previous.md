@@ -1,3 +1,7 @@
+**Aging N.Y.C. Seminary’s Prayers Are Answered With a Lease by Vanderbilt**\
+`The Tennessee university has promised to make repairs to the General Theological Seminary buildings as it establishes a satellite campus in Chelsea.`\
+https://nytimes.com/2025/11/04/nyregion/nyc-seminary-episcopal-vanderbilt-university.html
+
 **Lewandowski 'thinking about what is best for me' with Barcelona future uncertain**\
 `Lewandowski is into the final year of his contract and the expectation at Barcelona is that he leaves next summer.`\
 https://nytimes.com/athletic/6777855/2025/11/04/barcelona-lewandowski-future-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6777936/2025/11/04/predators-vs-wild-stream-how-to-
 **How to watch Bucks vs. Raptors: Time, TV, streaming**\
 `Find out how to watch the Milwaukee Bucks play the Toronto Raptors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6777929/2025/11/04/bucks-vs-raptors-stream-how-to-watch-nov-4/
-
-**How to watch Hornets vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the Charlotte Hornets play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6777927/2025/11/04/hornets-vs-pelicans-stream-how-to-watch-nov-4/
 

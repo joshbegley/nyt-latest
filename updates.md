@@ -1,3 +1,7 @@
+**Aging N.Y.C. Seminary’s Prayers Are Answered With a Lease by Vanderbilt**\
+`The Tennessee university has promised to make repairs to the General Theological Seminary buildings as it establishes a satellite campus in Chelsea.`\
+https://nytimes.com/2025/11/04/nyregion/nyc-seminary-episcopal-vanderbilt-university.html
+
 **Lewandowski 'thinking about what is best for me' with Barcelona future uncertain**\
 `Lewandowski is into the final year of his contract and the expectation at Barcelona is that he leaves next summer.`\
 https://nytimes.com/athletic/6777855/2025/11/04/barcelona-lewandowski-future-contract/
