@@ -1,3 +1,19 @@
+**Cowboys finalizing trade for LB Logan Wilson from Bengals: Sources**\
+`A defensive captain for the Bengals, Wilson joins a Cowboys defense that sorely needs help and is giving up more than 30 points per game.`\
+https://nytimes.com/athletic/6776399/2025/11/04/cowboys-bengals-trade-logan-wilson/
+
+**How Eric Adams lost his coalition and became an also-ran.**\
+`By Katie Glueck and Ruth Igielnik`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/how-eric-adams-lost-his-coalition-and-became-an-also-ran
+
+**Bessent Plans to Attend Tariff Arguments at the Supreme Court**\
+`Treasury Secretary Scott Bessent dismissed the idea that his presence could be seen as an attempt to intimidate the court on a case that President Trump considers vital to his economic policy.`\
+https://nytimes.com/2025/11/04/us/politics/supreme-court-tariffs-bessent.html
+
+**New Jersey: How to Vote, Where to Vote and What’s on the Ballot**\
+`New Jersey voters will pick a governor on Tuesday in a competitive off-year election.`\
+https://nytimes.com/2025/11/04/us/politics/new-jersey-how-vote-ballot.html
+
 **Ohio State final thoughts: Julian Sayin for Heisman? Can anyone cover Carnell Tate?**\
 `Penn State may be a shell of what was expected, but there was still plenty to take away from another dominant Ohio State win.`\
 https://nytimes.com/athletic/6773725/2025/11/04/ohio-state-julian-sayin-heisman-penn-state/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6775309/2025/11/04/draymond-green-wembanyama-defens
 **NBA weekly watch guide: Randle's return to The Garden, Durant vs. Wembanyama in Cup play**\
 `Here are the seven national TV games to look for Tuesday through Friday across pro basketball.`\
 https://nytimes.com/athletic/6774360/2025/11/04/durant-wembanyama-timberwolves-knicks-lakers-how-to-watch/
-
-**Arsenal hopeful of Gyokeres, Martinelli returns for north London derby**\
-`Arsenal are also optimistic they may have Noni Madueke, Kai Havertz and Martin Odegaard back for the November 23 game.`\
-https://nytimes.com/athletic/6776172/2025/11/04/arsenal-gyokeres-martinelli-injury-update/
-
-**The 10 best things I saw in college football recruiting over the weekend**\
-`Georgia commit Jared Curtis, the No. 1 QB in the nation in the 247Sports Composite, is having a banner senior season.`\
-https://nytimes.com/athletic/6774067/2025/11/04/college-football-recruiting-thoughts-week-10/
-
-**Where will Trocheck fit back into the lineup? Evaluating the Rangers' options**\
-`Coach Mike Sullivan has a couple of different options for how to arrange his top nine once Trocheck returns from an upper-body injury.`\
-https://nytimes.com/athletic/6774834/2025/11/04/rangers-vincent-trocheck-lineup-options/
-
-**SEC stadium superlatives: Who has the most underrated (and overrated) venue?**\
-`By seating capacity, the SEC is home to five of the 10 biggest stadiums in the world, and eight of the top 25. Here's what we like best.`\
-https://nytimes.com/athletic/6774451/2025/11/04/best-sec-college-football-stadiums/
 
