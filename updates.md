@@ -1,3 +1,7 @@
+**Fofana spoken to by Chelsea after latest dangerous driving offence**\
+`Fofana appeared in court last week over an incident which took place on April 20.`\
+https://nytimes.com/athletic/6776722/2025/11/04/chelsea-wesley-fofana-driving-ban/
+
 **The Bounce: Giannis flips the boo birds. Plus, college basketball is back!**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6776665/2025/11/04/giannis-bucks-pacers-college-basketball-the-bounce/
