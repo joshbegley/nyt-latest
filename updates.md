@@ -1,3 +1,15 @@
+**Cristiano Ronaldo to retire 'soon', hints he will not stay in football**\
+`In an interview with Piers Morgan, Ronaldo said he wants to spend more time with his family and pursue "other passions" when he retires.`\
+https://nytimes.com/athletic/6776844/2025/11/04/cristiano-ronaldo-retirement-future/
+
+**Small Businesses Gear Up for Tariff Fight at Supreme Court**\
+`Companies that sell diamonds, plant sensors and wine all have one thing in common: They are weighing in against tariffs in a consequential case.`\
+https://nytimes.com/2025/11/04/us/politics/tariffs-supreme-court-small-business.html
+
+**Shota Imanaga becomes free agent after Cubs, pitcher decline options: Source**\
+`It’s not yet clear whether the Cubs will make Imanaga a one-year, $22.025 million qualifying offer.`\
+https://nytimes.com/athletic/6776731/2025/11/04/cubs-shota-imanaga-free-agent/
+
 **Mamdani votes ‘yes’ on ballot measures giving the mayor more power over new housing projects.**\
 `By Mihir Zaveri`\
 https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/mamdani-votes-yes-on-ballot-measures-giving-the-mayor-more-power-over-new-housing-projects

@@ -1,3 +1,11 @@
+**Cristiano Ronaldo to retire 'soon', hints he will not stay in football**\
+`In an interview with Piers Morgan, Ronaldo said he wants to spend more time with his family and pursue "other passions" when he retires.`\
+https://nytimes.com/athletic/6776844/2025/11/04/cristiano-ronaldo-retirement-future/
+
+**Small Businesses Gear Up for Tariff Fight at Supreme Court**\
+`Companies that sell diamonds, plant sensors and wine all have one thing in common: They are weighing in against tariffs in a consequential case.`\
+https://nytimes.com/2025/11/04/us/politics/tariffs-supreme-court-small-business.html
+
 **Mamdani votes ‘yes’ on ballot measures giving the mayor more power over new housing projects.**\
 `By Mihir Zaveri`\
 https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/mamdani-votes-yes-on-ballot-measures-giving-the-mayor-more-power-over-new-housing-projects
@@ -5,6 +13,10 @@ https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/mamdani-votes-ye
 **How the Cop Show ‘Barney Miller’ Made Gay TV History, 50 Years Ago**\
 `A 1975 episode introduced audiences to one of the first openly gay couples in mainstream American television not depicted as deviants or criminals.`\
 https://nytimes.com/2025/11/04/arts/television/barney-miller-gay-couple.html
+
+**Shota Imanaga becomes free agent after Cubs, pitcher decline options: Source**\
+`It’s not yet clear whether the Cubs will make Imanaga a one-year, $22.025 million qualifying offer.`\
+https://nytimes.com/athletic/6776731/2025/11/04/cubs-shota-imanaga-free-agent/
 
 **Cuomo blasted Mamdani for his rent-stabilized apartment. But he had one, too.**\
 `By Ashley Cai`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6776685/2025/11/04/five-surprising-nhl-stats-plus-w
 **MS … NOW? As MSNBC Rebrands, a $20 Million Effort to Avoid Confusion.**\
 `After three decades, the MSNBC brand will be retired on Nov. 15. The network has called in Rachel Maddow to help viewers make the transition.`\
 https://nytimes.com/2025/11/04/business/media/msnbc-name-change-ms-now.html
-
-**Fofana spoken to by Chelsea after latest dangerous driving offence**\
-`Fofana appeared in court last week over an incident which took place on April 20.`\
-https://nytimes.com/athletic/6776722/2025/11/04/chelsea-wesley-fofana-driving-ban/
-
-**Moultrie extends contract with Thorns through 2029**\
-`The 20-year-old hasn't ruled out going to Europe, but for now is committed to growing even more with the Thorns.`\
-https://nytimes.com/athletic/6774253/2025/11/04/olivia-moultrie-extends-contract-portland-thorns-2029/
-
-**Is the East closing in on the West? Who's in early trouble in the NBA Cup?**\
-`We may be jumping to conclusions, but so far, the perceived bottom of the East has held its own against the top of the West.`\
-https://nytimes.com/athletic/6774816/2025/11/04/nba-eastern-conference-parity-nba-cup/
 
