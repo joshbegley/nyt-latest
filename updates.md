@@ -1,3 +1,43 @@
+**Dodgers already aiming for a third World Series parade: 'Three-peat, let's go'**\
+`Mookie Betts said of his World Series ring collection: “It’s time to fill the hand all the way up, baby."`\
+https://nytimes.com/athletic/6775113/2025/11/03/dodgers-parade-world-series-three-peat/
+
+**Vogue Eats Teen Vogue**\
+`Vogue.com is absorbing Teen Vogue’s website, further eroding the sister publication’s operations as an independent brand.`\
+https://nytimes.com/2025/11/03/style/teen-vogue-website-conde-nast.html
+
+**Man Shot by ICE Was Not Trying to Run Over Agent, Lawyers Say**\
+`A Southern California man charged with assault of a federal officer was asking agents to leave an area where school children wait for the bus, according to his lawyers.`\
+https://nytimes.com/2025/11/03/us/ontario-ice-agent-shooting.html
+
+**How will beleaguered Bengals 'D' move forward and will Trey Hendrickson be with them?**\
+`Zac Taylor says there won't be changes in the coaching staff, but whether players are traded remains to be seen.`\
+https://nytimes.com/athletic/6775165/2025/11/03/bengals-defense-trade-deadline-trey-hendrickson/
+
+**Ravens acquire Titans LB Dre’Mont Jones for fifth-round pick: Source**\
+`Jones, 28, is having one of the best seasons of his career, with 4.5 sacks and nine quarterback hits in nine games. `\
+https://nytimes.com/athletic/6775103/2025/11/03/ravens-titans-trade-dremont-jones/
+
+**How to watch Navy vs. Notre Dame: Time, TV, streaming**\
+`Find out how to watch the Navy Midshipmen play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6775290/2025/11/03/navy-vs-notre-dame-stream-how-to-watch-nov-8/
+
+**How to watch Florida vs. Kentucky: Time, TV, streaming**\
+`Find out how to watch the Florida Gators play the Kentucky Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6775283/2025/11/03/florida-vs-kentucky-stream-how-to-watch-nov-8/
+
+**How to watch California vs. Louisville: Time, TV, streaming**\
+`Find out how to watch the California Golden Bears play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6775284/2025/11/03/california-vs-louisville-stream-how-to-watch-nov-8/
+
+**How to watch Washington vs. Wisconsin: Time, TV, streaming**\
+`Find out how to watch the Washington Huskies play the Wisconsin Badgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6775278/2025/11/03/washington-vs-wisconsin-stream-how-to-watch-nov-8/
+
+**How to watch LSU vs. Alabama: Time, TV, streaming**\
+`Find out how to watch the LSU Tigers play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6775274/2025/11/03/lsu-vs-alabama-stream-how-to-watch-nov-8/
+
 **How to watch Stanford vs. North Carolina: Time, TV, streaming**\
 `Find out how to watch the Stanford Cardinal play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6775260/2025/11/03/stanford-vs-north-carolina-stream-how-to-watch-nov-8/

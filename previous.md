@@ -1,40 +1,40 @@
-**How to watch Stanford vs. North Carolina: Time, TV, streaming**\
-`Find out how to watch the Stanford Cardinal play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6775260/2025/11/03/stanford-vs-north-carolina-stream-how-to-watch-nov-8/
+**Dodgers already aiming for a third World Series parade: 'Three-peat, let's go'**\
+`Mookie Betts said of his World Series ring collection: “It’s time to fill the hand all the way up, baby."`\
+https://nytimes.com/athletic/6775113/2025/11/03/dodgers-parade-world-series-three-peat/
 
-**Nick Fuentes Was Charlie Kirk’s Bitter Enemy. Now He’s Becoming His Successor.**\
-`A white nationalist’s rise reveals a seemingly unstoppable ratchet of radicalization on the right.`\
-https://nytimes.com/2025/11/03/opinion/nick-fuentes-kirk-successor.html
+**Vogue Eats Teen Vogue**\
+`Vogue.com is absorbing Teen Vogue’s website, further eroding the sister publication’s operations as an independent brand.`\
+https://nytimes.com/2025/11/03/style/teen-vogue-website-conde-nast.html
 
-**Trump’s Power Faces Pressure Test in Court and at Ballot Box**\
-`President Trump has a lot riding on the results of Tuesday’s elections, his tariffs case at the Supreme Court and the future of the government shutdown.`\
-https://nytimes.com/2025/11/03/us/politics/trump-mamdani-tariffs-shutdown.html
+**Man Shot by ICE Was Not Trying to Run Over Agent, Lawyers Say**\
+`A Southern California man charged with assault of a federal officer was asking agents to leave an area where school children wait for the bus, according to his lawyers.`\
+https://nytimes.com/2025/11/03/us/ontario-ice-agent-shooting.html
 
-**Six Dead and 27 Sickened in Listeria Outbreak Linked to Pasta**\
-`Prepared pasta sold at grocery chains across the country, including Albertsons and Trader Joe’s, were recalled after people in 18 states became ill, federal health officials said.`\
-https://nytimes.com/2025/11/03/business/listeria-outbreak-trader-joes-kroger.html
+**How will beleaguered Bengals 'D' move forward and will Trey Hendrickson be with them?**\
+`Zac Taylor says there won't be changes in the coaching staff, but whether players are traded remains to be seen.`\
+https://nytimes.com/athletic/6775165/2025/11/03/bengals-defense-trade-deadline-trey-hendrickson/
 
-**Full Time: Bold NWSL title predictions**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6774309/2025/11/03/nwsl-title-predictions-full-time/
+**Ravens acquire Titans LB Dre’Mont Jones for fifth-round pick: Source**\
+`Jones, 28, is having one of the best seasons of his career, with 4.5 sacks and nine quarterback hits in nine games. `\
+https://nytimes.com/athletic/6775103/2025/11/03/ravens-titans-trade-dremont-jones/
 
-**As the mayor’s race comes to a close, the contest for City Council speaker is heating up.**\
-`By Jeffery C. Mays`\
-https://nytimes.com/live/2025/11/03/nyregion/nyc-mayor-election-news/as-the-mayors-race-comes-to-a-close-the-contest-for-city-council-speaker-is-heating-up
+**How to watch Navy vs. Notre Dame: Time, TV, streaming**\
+`Find out how to watch the Navy Midshipmen play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6775290/2025/11/03/navy-vs-notre-dame-stream-how-to-watch-nov-8/
 
-**Reds announce several coaching staff changes, including promotion of Mike Napoli**\
-`The changes come after bench coach Brad Mills, a long-time Terry Francona staffer, retired. `\
-https://nytimes.com/athletic/6774988/2025/11/03/cincinnati-reds-coaching-staff-mike-napoli/
+**How to watch Florida vs. Kentucky: Time, TV, streaming**\
+`Find out how to watch the Florida Gators play the Kentucky Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6775283/2025/11/03/florida-vs-kentucky-stream-how-to-watch-nov-8/
 
-**Mayor of Orange County Will Run for Florida Governor as a Democrat**\
-`Jerry Demings has led the county, home to Orlando, since 2018. Gov. Ron DeSantis will leave office at the end of next year because of term limits.`\
-https://nytimes.com/2025/11/03/us/demings-orange-county-florida-governor.html
+**How to watch California vs. Louisville: Time, TV, streaming**\
+`Find out how to watch the California Golden Bears play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6775284/2025/11/03/california-vs-louisville-stream-how-to-watch-nov-8/
 
-**Weekly Student News Quiz: Hurricane, Marathon, Shutdown**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2025/11/03/learning/03StudentNewsQuiz.html
+**How to watch Washington vs. Wisconsin: Time, TV, streaming**\
+`Find out how to watch the Washington Huskies play the Wisconsin Badgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6775278/2025/11/03/washington-vs-wisconsin-stream-how-to-watch-nov-8/
 
-**What the Virginia Governor Election Might Portend for Trump**\
-`The governor’s race in the president’s backyard could tell us if a backlash has arrived.`\
-https://nytimes.com/2025/11/03/us/politics/virginia-governor-trump.html
+**How to watch LSU vs. Alabama: Time, TV, streaming**\
+`Find out how to watch the LSU Tigers play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6775274/2025/11/03/lsu-vs-alabama-stream-how-to-watch-nov-8/
 
