@@ -1,3 +1,7 @@
+**Raiders trade WR Jakobi Meyers to Jaguars for picks: Sources**\
+`Meyers has averaged 65.5 receptions and 765.3 yards over his six full seasons with New England and Las Vegas. `\
+https://nytimes.com/athletic/6755173/2025/11/04/jakobi-meyers-trade-jaguars-raiders/
+
 **U.S. Seeks Two-Year U.N. Mandate for Gaza Stabilization Force**\
 `A draft Security Council resolution said that an international force would ensure that Gaza be demilitarized, though specifics were unclear.`\
 https://nytimes.com/2025/11/04/world/middleeast/un-mandate-gaza-force.html
