@@ -1,5 +1,25 @@
+**What is Kalshi, the predictions market that's caught the NCAA's attention?**\
+`College athletics' governing body questions the prediction market's involvement in sports amid concerns about unregulated gambling.`\
+https://nytimes.com/athletic/6778085/2025/11/04/what-is-kalshi-the-predictions-market-thats-attracted-the-ncaas-attention/
+
+**Seahawks, John Schneider thinking big with trade for Rashid Shaheed**\
+`For now, Shaheed is a one-year rental, and the Seahawks are now short on draft capital, but the deal could have upside beyond 2025.`\
+https://nytimes.com/athletic/6778089/2025/11/04/seahawks-trade-deadline-rashid-shaheed-john-schneider/
+
+**Polls Have Shown Rising Support for California’s Redistricting Measure**\
+`The measure, known as Proposition 50, is an attempt to counter a push in Republican-led states to redraw congressional districts.`\
+https://nytimes.com/2025/11/04/business/california-redistricting-polls-proposition-50.html
+
+**Muslim voters say their excitement about Mamdani has been tempered by a rise in Islamophobia.**\
+`By Jeffery C. Mays and Wesley Parnell`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/muslim-voters-say-their-excitement-about-mamdani-has-been-tempered-by-a-rise-in-islamophobia
+
+**In flurry of moves, Astros place outfielder Chas McCormick on outright waivers**\
+`Minor-league outfielders Pedro León and Kenedy Corona, as well as injured pitchers John Rooney and Luis Garcia were also placed.`\
+https://nytimes.com/athletic/6778465/2025/11/04/houston-astros-chas-mccormick-waivers/
+
 **Micky van de Ven just scored a goal like no other**\
-`Beating four defenders, running 80 yards and finishing superbly... this was an unprecedented goal`\
+`A centre-back beating four defenders, running 80 yards and finishing superbly... this was an unprecedented goal`\
 https://nytimes.com/athletic/6778260/2025/11/04/micky-van-de-ven-goal-copenhagen/
 
 **Cardinals to start Jacoby Brissett at quarterback in Week 10 vs. Seattle Seahawks**\
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6778334/2025/11/04/packers-trade-deadline-tight-end
 **They want to run New York City. How would they do it?**\
 `By Emma G. Fitzsimmons`\
 https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/they-want-to-run-new-york-city-how-would-they-do-it
-
-**Americans Vote**\
-`Also, Trump is weighing military options in Venezuela. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/11/04/briefing/election-day-trump-military-venezuela.html
-
-**Injuries Reported After UPS Plane Crashes in Louisville, Police Say**\
-`Data from Flightradar24 showed that a cargo plane bound for Honolulu reached an altitude of just 175 feet before swiftly descending.`\
-https://nytimes.com/2025/11/04/us/louisville-ups-plane-crash.html
-
-**IBM to Cut Thousands of Workers Amid A.I. Boom**\
-`The technology supplier said it was shifting its focus to higher-growth businesses, including A.I. consulting and software.`\
-https://nytimes.com/2025/11/04/technology/ibm-layoffs-ai.html
-
-**How Cheney’s Presidential Power Push Paved the Way for Trump to Go Further**\
-`Donald J. Trump and Dick Cheney became adversaries, but the former vice president set the stage for Mr. Trump’s bid to expand his executive authority.`\
-https://nytimes.com/2025/11/04/us/politics/trump-dick-cheney.html
-
-**Drone Strike Kills Dozens of Mourners at Funeral in Sudan**\
-`The attack occurred in North Kordofan, which has seen an increased military buildup as the army and paramilitary forces jockey for control of the country.`\
-https://nytimes.com/2025/11/04/world/africa/sudan-civil-war.html
 

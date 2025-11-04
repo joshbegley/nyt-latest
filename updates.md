@@ -1,3 +1,11 @@
+**Micky van de Ven just scored a goal like no other**\
+`Beating four defenders, running 80 yards and finishing superbly... this was an unprecedented goal`\
+https://nytimes.com/athletic/6778260/2025/11/04/micky-van-de-ven-goal-copenhagen/
+
+**Injuries Reported After UPS Plane Crashes in Louisville, Police Say**\
+`Data from Flightradar24 showed that a cargo plane bound for Honolulu reached an altitude of just 175 feet before swiftly descending.`\
+https://nytimes.com/2025/11/04/us/louisville-ups-plane-crash.html
+
 **Cardinals to start Jacoby Brissett at quarterback in Week 10 vs. Seattle Seahawks**\
 `In three games played this season, Brissett has thrown for 860 yards, six touchdowns and one interception. `\
 https://nytimes.com/athletic/6778373/2025/11/04/jacoby-brissett-starting-qb-seattle-news-nfl/
