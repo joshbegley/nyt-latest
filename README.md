@@ -1,5 +1,5 @@
-**Commanders LB Frankie Luvu suspended for 3rd hip-drop tackle of season**\
-`Luvu’s suspension is the league's first for hip-drop tackles, which became illegal plays in 2024.`\
+**Commanders LB Frankie Luvu suspended for third hip-drop tackle of season**\
+`Luvu’s one-game suspension is the league's first for hip-drop tackles, which became illegal plays in 2024.`\
 https://nytimes.com/athletic/6775304/2025/11/03/commanders-frankie-luvu-suspended-hip-drop-tackle/
 
 **Los Angeles Welcomes Champion Dodgers Home**\
