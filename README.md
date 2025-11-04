@@ -1,3 +1,7 @@
+**Aryna Sabalenka, Nick Kyrgios will play 'Battle of the Sexes' tennis match organized by agency**\
+`The WTA world No. 1 will take on the ATP No. 652 in December in Dubai.`\
+https://nytimes.com/athletic/6776094/2025/11/04/tennis-sabalenka-kyrgios-match-battle-of-the-sexes/
+
 **WTA Tour Finals results: Elena Rybakina qualifies after stunning comeback against Iga Świątek**\
 `The best eight WTA tennis players of the year are fighting for supremacy in the season-ending event.`\
 https://nytimes.com/athletic/6763218/2025/11/04/wta-tour-finals-draw-schedule-results-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6776059/2025/11/04/nebraska-vs-ucla-stream-how-to-w
 **Typhoon Kalmaegi Batters Philippines**\
 `Typhoon Kalmaegi ripped across the island of Visayas, Philippines, flooding streets and bringing powerful winds that forced the evacuation of tens of thousands of people.`\
 https://nytimes.com/video/world/asia/100000010501063/philippines-kalmaegi-flooding.html
-
-**Word of the Day: foster**\
-`This word has appeared in 1,086 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/11/04/learning/word-of-the-day-foster.html
 
