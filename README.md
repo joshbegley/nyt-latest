@@ -1,3 +1,7 @@
+**Dick Cheney: A Life in Pictures**\
+`The former vice president helped shaped the role of the United States around the world.`\
+https://nytimes.com/2025/11/04/obituaries/dick-cheney-life-career-photos.html
+
 **49ers minutia minute: Tatum Bethune hits a milestone Fred Warner never has**\
 `Meanwhile, Christian McCaffrey recorded his longest run and longest reception of 2025 in the offensive line's best run-blocking game so far.`\
 https://nytimes.com/athletic/6774644/2025/11/04/49ers-giants-tatum-bethune-tackles/
@@ -22,6 +26,10 @@ https://nytimes.com/2025/11/04/style/street-style-look-fabric-layering.html
 `Voters will decide whether three justices who were elected as Democrats keep their seats for another 10-year term.`\
 https://nytimes.com/2025/11/04/us/politics/pennsylvania-supreme-court-retention-election-explainer.html
 
+**Pizza Hut’s Parent Says Struggling Chain May Go Up for Sale**\
+`Yum! Brands, which also owns Taco Bell and KFC, said it would explore “strategic options” for the pizza chain, including a sale.`\
+https://nytimes.com/2025/11/04/business/pizza-hut-yum-brands.html
+
 **Cuomo had dreams of becoming a radio star. Then they unraveled.**\
 `By Nicholas Fandos`\
 https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/cuomo-had-dreams-of-becoming-a-radio-star-then-they-unraveled
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/cuomo-had-dreams
 **Chelsea's Palmer could return for Barcelona game, Maresca says**\
 `The midfielder has not played since being substituted against Manchester United due to a groin injury.`\
 https://nytimes.com/athletic/6776558/2025/11/04/chelsea-cole-palmer-injury-news/
-
-**Fantasy football Week 10 drops: Turn the page on Alvin Kamara, Nick Chubb**\
-`Gary Davenport identifies players who are struggling to validate their spot on fantasy rosters, including a couple venerated running backs.`\
-https://nytimes.com/athletic/6775640/2025/11/04/fantasy-football-week-10-drops-kamara-chubb/
-
-**Its Forces Worn Down, Ukraine Moves to Revamp Military Service**\
-`The country will introduce fixed-term military contracts to try to attract recruits and ease the strain on soldiers after years of fighting.`\
-https://nytimes.com/2025/11/04/world/europe/ukraine-war-military-contracts-conscription.html
 

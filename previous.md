@@ -6,6 +6,10 @@ https://nytimes.com/athletic/6774644/2025/11/04/49ers-giants-tatum-bethune-tackl
 `Everything in the shop appeared to have been abandoned. A devoted customer took it all home and started selling the items herself.`\
 https://nytimes.com/2025/11/04/business/vicky-szuflita-vintage-store.html
 
+**Aidan Morris and the USMNT World Cup hopeful's year of opportunity**\
+`Morris returned to the national team in October after nearly a year away and remains a key cog on a contender for Premier League promotion`\
+https://nytimes.com/athletic/6773466/2025/11/04/aidan-morris-usmnt-middlesbrough-world-cup/
+
 **U.N. Sees Slight Progress on Climate Action, Partly Offset by the U.S.**\
 `The annual U.N. report card finds that, overall, countries are still far off-track from their stated goals to limit global warming.`\
 https://nytimes.com/2025/11/04/climate/climate-emissions-united-nations.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6775640/2025/11/04/fantasy-football-week-10-drops-k
 **Its Forces Worn Down, Ukraine Moves to Revamp Military Service**\
 `The country will introduce fixed-term military contracts to try to attract recruits and ease the strain on soldiers after years of fighting.`\
 https://nytimes.com/2025/11/04/world/europe/ukraine-war-military-contracts-conscription.html
-
-**The Gamble Behind a Big Takeover of Tylenol’s Maker**\
-`Potentially huge legal issues are hovering over Kenvue. But Kimberly-Clark, which agreed to buy it for $40 billion, appears to think they’re manageable.`\
-https://nytimes.com/2025/11/04/business/dealbook/kimberly-clark-kenvue-bid.html
 

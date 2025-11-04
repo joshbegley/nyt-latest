@@ -1,3 +1,7 @@
+**Aidan Morris and the USMNT World Cup hopeful's year of opportunity**\
+`Morris returned to the national team in October after nearly a year away and remains a key cog on a contender for Premier League promotion`\
+https://nytimes.com/athletic/6773466/2025/11/04/aidan-morris-usmnt-middlesbrough-world-cup/
+
 **49ers minutia minute: Tatum Bethune hits a milestone Fred Warner never has**\
 `Meanwhile, Christian McCaffrey recorded his longest run and longest reception of 2025 in the offensive line's best run-blocking game so far.`\
 https://nytimes.com/athletic/6774644/2025/11/04/49ers-giants-tatum-bethune-tackles/
