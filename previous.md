@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6773450/2025/11/04/india-women-cricket-world-cup-au
 `A look at what Bischof's incredible pass tells us about his future, Borussia Monchengladbach's relief, and the return of the tennis balls`\
 https://nytimes.com/athletic/6773216/2025/11/04/bundesliga-bischof-pass-borussia-monchengladbach-win/
 
-**Jacoby Brissett stays hot, Arizona snaps 5-game skid in big Monday night win**\
+**Jacoby Brissett stays hot, Cardinals snap 5-game skid in big Monday night win over Cowboys**\
 `Filling in for an injured Kyler Murray, Brissett again showed poise and command of the offense, finishing 21-of-31 for 261 yards.`\
 https://nytimes.com/athletic/6775720/2025/11/04/cardinals-cowboys-score-result-takeaways-mnf-nfl/
 

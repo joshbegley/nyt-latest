@@ -1,3 +1,7 @@
+**Jacoby Brissett stays hot, Cardinals snap 5-game skid in big Monday night win over Cowboys**\
+`Filling in for an injured Kyler Murray, Brissett again showed poise and command of the offense, finishing 21-of-31 for 261 yards.`\
+https://nytimes.com/athletic/6775720/2025/11/04/cardinals-cowboys-score-result-takeaways-mnf-nfl/
+
 **Ja Morant says he isn't playing with joy. Can he restore it in Memphis?**\
 `Memphis is already answering questions about the relationship between Morant and head coach Tuomas Iisalo.`\
 https://nytimes.com/athletic/6775828/2025/11/04/ja-morant-grizzlies-nba-unhappy-tuomas-iisalo/
