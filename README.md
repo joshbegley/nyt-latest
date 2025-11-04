@@ -1,40 +1,40 @@
-**Here’s the latest.**\
-`By Dana Rubinstein`\
-https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/heres-the-latest
+**Panthers' plan for Micah Parsons made for 'boring,' ineffective day for Packers' star**\
+`Carolina held Micah Parsons without a quarterback pressure for the first time in his 71 career games with some "keep-away football."`\
+https://nytimes.com/athletic/6774993/2025/11/04/panthers-game-plan-micah-parsons/
 
-**Live Updates: New Yorkers Go to the Polls to Elect Their Next Mayor**\
-`After a contentious campaign, Zohran Mamdani, Andrew M. Cuomo and Curtis Sliwa have put their fate in the hands of voters. Polls close at 9 p.m.`\
-https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election
+**Cowboys' disappointing loss has Jerry Jones re-evaluating trade thoughts**\
+`The Dallas owner and GM said earlier Monday that a deal had been made. "I didn't plan on this," Jones said after the Cowboys' loss Monday.`\
+https://nytimes.com/athletic/6775974/2025/11/04/cowboys-mnf-loss-jerry-jones-trade-deadline/
 
-**Cardinals End Five-Game Skid With Monday Night Win Over Cowboys**\
-`Jacoby Brissett, the Arizona Cardinal’s quarterback, threw for three touchdowns, and combined with a strong defense, helped give the Cardinals their first win since week 2 of the season.`\
-https://nytimes.com/video/sports/football/100000010501366/cardinals-end-five-game-skid-with-monday-night-win-over-cowboys.html
+**Joe Mazzulla has a much different job now with the Celtics, and it shows**\
+`Mazzulla hasn't hesitated to pull young players after mistakes. There were a lot of them in Monday's loss to the Jazz.`\
+https://nytimes.com/athletic/6776129/2025/11/04/celtics-joe-mazzulla-jazz/
 
-**Here’s what is happening around the U.S. on Election Day.**\
-`By Jess Bidgood`\
-https://nytimes.com/live/2025/11/04/us/election-new-jersey-california/heres-what-is-happening-around-the-us-on-election-day
+**Who could make the Hall of Fame? The case for — and against — Contemporary Era candidates**\
+`The 16-person committee of Hall of Fame members, executives and veteran media members may vote for as many as three candidates.`\
+https://nytimes.com/athletic/6774891/2025/11/04/baseball-hall-of-fame-contemporary-ballot-candidates/
 
-**Live Updates: Trump Looms Over Governors’ Races as Election Day Begins**\
-`He’s not on any ballots, but the president was a key figure in campaigns in New Jersey and Virginia. In California, a ballot measure to redraw House districts is a direct response to Texas gerrymandering he pushed.`\
-https://nytimes.com/live/2025/11/04/us/election-new-jersey-california
+**2026 NBA mock draft: A terrific top trio that will tempt teams to tank**\
+`It feels unlikely that anyone else will break into the top three, but who else in the 2026 class could make an NBA impact?`\
+https://nytimes.com/athletic/6730186/2025/11/04/nba-mock-draft-darryn-peterson-aj-dybantsa-cameron-boozer/
 
-**Puppy Chow**\
-`This delightfully messy Midwestern treat is simple enough for kids to make: Just toss crispy cereal with melted peanut butter and chocolate, then dust with lots of confectioners’ sugar.`\
-https://nytimes.com/video/dining/100000010366509/puppy-chow.html
+**What we learned from college basketball's opening day: This freshman class might be special**\
+`Plus: Is that Auburn-Bethune-Cookman score real?`\
+https://nytimes.com/athletic/6775625/2025/11/04/college-basketball-opening-takeaways-koa-peat-aj-dybantsa/
 
-**NFL Week 10 power rankings: Rams, Bills on rise, new No. 1 after another top-10 shakeup**\
-`After four of the top six teams lost, the top 10 has a new look — and a new No. 1 — as we hand out our midseason report cards.`\
-https://nytimes.com/athletic/6774290/2025/11/04/nfl-power-rankings-week-10-rams-bills-no-1/
+**Sabres mailbag: First month impressions, Levi's hot start, Tuch's contract, more**\
+`The Sabres have points in six straight games, including an overtime win over the Capitals on Saturday.`\
+https://nytimes.com/athletic/6774822/2025/11/04/sabres-standings-stats-alex-tuch-devon-levi/
 
-**Lionel Messi stares into the face of a rare trophyless season**\
-`Throughout Lionel Messi's iconic career, it's been rather unusual for him to go a full season without at least one team trophy`\
-https://nytimes.com/athletic/6775583/2025/11/04/messi-trophyless-season-inter-miami-career-mls-cup/
+**Contenders' offensive woes, goaltending gaffes and the Wild: Concerning NHL trends**\
+`With most teams about a dozen games into the season, there's still time to turn these trends around before they derail the season.`\
+https://nytimes.com/athletic/6775018/2025/11/04/nhl-concerning-trends-special-teams-goaltending/
 
-**NFL QB stock report, Week 10: Always under-appreciated, Matthew Stafford still 'a dude' at 37**\
-`Stafford is "one of the most underrated QBs ever," an NFL executive said. "He’s always been excellent.”`\
-https://nytimes.com/athletic/6773943/2025/11/04/qb-stock-report-rankings-matthew-stafford-tagovailoa/
+**Donte DiVincenzo's fighting spirit emerging at perfect time for Timberwolves**\
+`Minnesota is starting to see signs of the real DiVincenzo, who is rediscovering the spicy edge to his game.`\
+https://nytimes.com/athletic/6775193/2025/11/04/donte-divincenzos-timberwolves-fighting-spirit/
 
-**How will Jaelan Phillips fit into Eagles' defense in Vic Fangio reunion?**\
-`The former Dolphins defender is the sort of edge rusher the reigning Super Bowl champions have lacked.`\
-https://nytimes.com/athletic/6773630/2025/11/04/eagles-jaelan-phillips-defense-vic-fangio/
+**Blackhawks observations: Oliver Moore's early arrival signals a shift in mentality**\
+`Chicago, for the first time in a long time, is playing to win. And its young star provides the best chance to do so.`\
+https://nytimes.com/athletic/6775947/2025/11/04/blackhawks-oliver-moore-early-arrival/
 
