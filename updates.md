@@ -1,3 +1,15 @@
+**Weekly Student News Quiz: Hurricane, Marathon, Shutdown**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/11/03/learning/03StudentNewsQuiz.html
+
+**What the Virginia Governor Election Might Portend for Trump**\
+`The governor’s race in the president’s backyard could tell us if a backlash has arrived.`\
+https://nytimes.com/2025/11/03/us/politics/virginia-governor-trump.html
+
+**Donors to Trump’s Ballroom Are Asked Why They Chose to Remain Incognito**\
+`Senator Richard Blumenthal is requesting information from business interests whose donations were not disclosed by the White House.`\
+https://nytimes.com/2025/11/03/us/politics/trump-white-house-ballroom-donors.html
+
 **Trump Endorses Cuomo for N.Y.C. Mayor on Eve of Election**\
 `The president wrote that if Zohran Mamdani were to win, it would be “highly unlikely” that the city would receive federal funding beyond a bare minimum.`\
 https://nytimes.com/2025/11/03/nyregion/trump-cuomo-endorse-nyc-mayor.html

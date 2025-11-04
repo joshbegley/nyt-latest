@@ -1,3 +1,11 @@
+**Weekly Student News Quiz: Hurricane, Marathon, Shutdown**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/11/03/learning/03StudentNewsQuiz.html
+
+**What the Virginia Governor Election Might Portend for Trump**\
+`The governor’s race in the president’s backyard could tell us if a backlash has arrived.`\
+https://nytimes.com/2025/11/03/us/politics/virginia-governor-trump.html
+
 **Trump Endorses Cuomo for N.Y.C. Mayor on Eve of Election**\
 `The president wrote that if Zohran Mamdani were to win, it would be “highly unlikely” that the city would receive federal funding beyond a bare minimum.`\
 https://nytimes.com/2025/11/03/nyregion/trump-cuomo-endorse-nyc-mayor.html
@@ -8,7 +16,7 @@ https://nytimes.com/2025/11/03/us/politics/stephen-miller-activist-battle-free-s
 
 **Donors to Trump’s Ballroom Are Asked Why They Chose to Remain Incognito**\
 `Senator Richard Blumenthal is requesting information from business interests whose donations were not disclosed by the White House.`\
-https://nytimes.com/2025/11/03/us/politics/anonymous-donors-ballroom.html
+https://nytimes.com/2025/11/03/us/politics/trump-white-house-ballroom-donors.html
 
 **Braves name Walt Weiss manager; former player elevated from bench coach**\
 `He will be just the fourth Braves manager since 1991, after Hall of Famer Bobby Cox, Fredi González and Brian Snitker.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6774870/2025/11/03/lester-jones-hawks-finance-vp-ch
 **A Sea of Blue and White in Downtown L.A.**\
 `Tens of thousands of Dodger fans attended a parade and rally on Monday, a joyful moment celebrating the team’s World Series win in what has been a turbulent year for Los Angeles.`\
 https://nytimes.com/2025/11/03/us/los-angeles-dodgers-parade.html
-
-**An Altercation With ICE Prompts a Police Chief to Push Back**\
-`At the Durango, Colo., police chief’s request, Colorado law enforcement will investigate whether a federal agent broke the law when he appeared to put a protester in a chokehold.`\
-https://nytimes.com/2025/11/03/us/politics/durango-colorado-ice-protester.html
-
-**The Trump Administration Plans to Offer Only Partial Food Stamp Benefits**\
-`Also, Election Day is tomorrow for millions of Americans. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/11/03/briefing/food-stamps-tylenol-maker-margaret-atwood.html
 
