@@ -1,3 +1,11 @@
+**How an elite public high school set Mamdani on the path to politics.**\
+`By Matt Flegenheimer and Benjamin Oreskes`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/how-an-elite-public-high-school-set-mamdani-on-the-path-to-politics
+
+**Bucks win for Myles Turner after fans boo ex-Pacer**\
+`Milwaukee embraced the jeers and did everything in their power to win Monday's game for their new teammate.`\
+https://nytimes.com/athletic/6776208/2025/11/04/bucks-pacers-myles-turner-result-boos/
+
 **Dick Cheney: A Life in Pictures**\
 `The former vice president helped shaped the role of the United States around the world.`\
 https://nytimes.com/2025/11/04/obituaries/dick-cheney-life-career-photos.html

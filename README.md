@@ -1,3 +1,7 @@
+**5 Things We’re Watching on Election Day in California**\
+`Proposition 50 is the only statewide question on the ballot, but there are numerous dynamics at play.`\
+https://nytimes.com/2025/11/04/us/california-election-guide.html
+
 **How an elite public high school set Mamdani on the path to politics.**\
 `By Matt Flegenheimer and Benjamin Oreskes`\
 https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/how-an-elite-public-high-school-set-mamdani-on-the-path-to-politics
@@ -5,6 +9,10 @@ https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/how-an-elite-pub
 **Dick Cheney: A Life in Pictures**\
 `The former vice president helped shaped the role of the United States around the world.`\
 https://nytimes.com/2025/11/04/obituaries/dick-cheney-life-career-photos.html
+
+**USL club North Carolina FC tells players it won't field a team in 2026**\
+`Sources are expecting NCFC to finish its playoff run but after that, all players under contract will be released.`\
+https://nytimes.com/athletic/6776649/2025/11/04/north-carolina-fc-usl/
 
 **49ers minutia minute: Tatum Bethune hits a milestone Fred Warner never has**\
 `Meanwhile, Christian McCaffrey recorded his longest run and longest reception of 2025 in the offensive line's best run-blocking game so far.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/04/style/street-style-look-fabric-layering.html
 **Bucks win for Myles Turner after fans boo ex-Pacer**\
 `Milwaukee embraced the jeers and did everything in their power to win Monday's game for their new teammate.`\
 https://nytimes.com/athletic/6776208/2025/11/04/bucks-pacers-myles-turner-result-boos/
-
-**Pennsylvania Supreme Court: What Is a ‘Retention Election’ and How Does It Work?**\
-`Voters will decide whether three justices who were elected as Democrats keep their seats for another 10-year term.`\
-https://nytimes.com/2025/11/04/us/politics/pennsylvania-supreme-court-retention-election-explainer.html
-
-**Pizza Hut’s Parent Says Struggling Chain May Go Up for Sale**\
-`Yum! Brands, which also owns Taco Bell and KFC, said it would explore “strategic options” for the pizza chain, including a sale.`\
-https://nytimes.com/2025/11/04/business/pizza-hut-yum-brands.html
 
