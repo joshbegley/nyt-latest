@@ -1,3 +1,7 @@
+**NFL 2025 trade deadline: The biggest names who didn’t get moved**\
+`While the Jets made a pair of blockbuster moves, they held onto running back Breece Hall and defensive end Jermaine Johnson.`\
+https://nytimes.com/athletic/6778284/2025/11/04/nfl-trade-deadline-2025-breece-hall-jaylen-waddle/
+
 **What is Kalshi, the predictions market that's caught the NCAA's attention?**\
 `College athletics' governing body questions the prediction market's involvement in sports amid concerns about unregulated gambling.`\
 https://nytimes.com/athletic/6778085/2025/11/04/what-is-kalshi-the-predictions-market-thats-attracted-the-ncaas-attention/
@@ -33,8 +37,4 @@ https://nytimes.com/video/style/100000010500737/highlights-from-the-oscars-of-fa
 **After Packers stand pat at trade deadline, which positions are most concerning?**\
 `According to a source, the Packers are looking into the possibility of signing free-agent cornerback Asante Samuel Jr.`\
 https://nytimes.com/athletic/6778334/2025/11/04/packers-trade-deadline-tight-end-cornerback/
-
-**They want to run New York City. How would they do it?**\
-`By Emma G. Fitzsimmons`\
-https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/they-want-to-run-new-york-city-how-would-they-do-it
 

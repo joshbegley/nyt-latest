@@ -1,3 +1,27 @@
+**What is Kalshi, the predictions market that's caught the NCAA's attention?**\
+`College athletics' governing body questions the prediction market's involvement in sports amid concerns about unregulated gambling.`\
+https://nytimes.com/athletic/6778085/2025/11/04/what-is-kalshi-the-predictions-market-thats-attracted-the-ncaas-attention/
+
+**Seahawks, John Schneider thinking big with trade for Rashid Shaheed**\
+`For now, Shaheed is a one-year rental, and the Seahawks are now short on draft capital, but the deal could have upside beyond 2025.`\
+https://nytimes.com/athletic/6778089/2025/11/04/seahawks-trade-deadline-rashid-shaheed-john-schneider/
+
+**Polls Have Shown Rising Support for California’s Redistricting Measure**\
+`The measure, known as Proposition 50, is an attempt to counter a push in Republican-led states to redraw congressional districts.`\
+https://nytimes.com/2025/11/04/business/california-redistricting-polls-proposition-50.html
+
+**Muslim voters say their excitement about Mamdani has been tempered by a rise in Islamophobia.**\
+`By Jeffery C. Mays and Wesley Parnell`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/muslim-voters-say-their-excitement-about-mamdani-has-been-tempered-by-a-rise-in-islamophobia
+
+**In flurry of moves, Astros place outfielder Chas McCormick on outright waivers**\
+`Minor-league outfielders Pedro León and Kenedy Corona, as well as injured pitchers John Rooney and Luis Garcia were also placed.`\
+https://nytimes.com/athletic/6778465/2025/11/04/houston-astros-chas-mccormick-waivers/
+
+**Micky van de Ven just scored a goal like no other**\
+`A centre-back beating four defenders, running 80 yards and finishing superbly... this was an unprecedented goal`\
+https://nytimes.com/athletic/6778260/2025/11/04/micky-van-de-ven-goal-copenhagen/
+
 **Micky van de Ven just scored a goal like no other**\
 `Beating four defenders, running 80 yards and finishing superbly... this was an unprecedented goal`\
 https://nytimes.com/athletic/6778260/2025/11/04/micky-van-de-ven-goal-copenhagen/
