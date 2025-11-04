@@ -1,3 +1,11 @@
+**Why Joe Schoen, Giants stayed silent at the NFL trade deadline**\
+`The 2-7 Giants likely wanted to find help for rookie QB Jaxson Dart, but giving up significant draft assets to do so never made sense.`\
+https://nytimes.com/athletic/6777903/2025/11/04/ny-giants-nfl-trade-deadline-joe-schoen-silent/
+
+**As L.A. Counts Ballots in a Glass Room, Officials Invite Anyone to Watch**\
+`The county processes election ballots in a massive complex, where workers are monitored by live cameras and visitors are welcome.`\
+https://nytimes.com/2025/11/04/us/politics/as-la-counts-ballots-in-a-glass-room-officials-invite-anyone-to-watch.html
+
 **Tom Brady says dog Junie is a clone of family's previous dog**\
 `Brady says he has partnered with Colossal Biosciences to create a clone of his late dog Luna.`\
 https://nytimes.com/athletic/6777780/2025/11/04/tom-brady-dog-junie-clone/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/andrew-cuomo-scr
 **Fugitive Who Faked Abduction Is Found 13 Years Later, Enrolled in N.Y. College**\
 `Anthony Lennon, a convicted sex offender from Oklahoma, was arrested in Canton, N.Y., where he was studying under an alias, the authorities said.`\
 https://nytimes.com/2025/11/04/us/oklahoma-sex-offender.html
-
-**The Quest to Recreate My Family’s Century-Old Secret Spice Blend**\
-`How hard could it be? Very, with multiple recipes, far-flung relatives to please and more than a year’s worth of work.`\
-https://nytimes.com/2025/11/04/dining/secret-family-spice.html
-
-**Critical fantasy football insights for Week 10: Sam Darnold, Rashid Shaheed a potent pairing**\
-`Brandon Funston and Jess Bryant look at usage metrics to give actionable Week 10 fantasy football advice. `\
-https://nytimes.com/athletic/6773532/2025/11/04/critical-insights-usage-fantasy-football-week-10/
 

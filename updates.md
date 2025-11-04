@@ -1,3 +1,7 @@
+**The Briefing: Liverpool 1 Real Madrid 0 - Are Slot's side back to their best? And what went wrong for Alonso?**\
+`The big talking points analysed from Tuesday's big Champions League tie at Anfield`\
+https://nytimes.com/athletic/6776506/2025/11/04/liverpool-1-real-madrid-0-analysis/
+
 **Tom Brady says dog Junie is a clone of family's previous dog**\
 `Brady says he has partnered with Colossal Biosciences to create a clone of his late dog Luna.`\
 https://nytimes.com/athletic/6777780/2025/11/04/tom-brady-dog-junie-clone/
