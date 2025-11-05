@@ -1,3 +1,11 @@
+**Can Tuesday’s Success Carry Democrats Further Than the Midterms?**\
+`Victories across the country show promise for the party’s chances next year, but some bigger issues remain.`\
+https://nytimes.com/2025/11/05/upshot/democrats-election-results-analysis.html
+
+**The Full Transcript of Zohran Mamdani’s Victory Speech**\
+`Mr. Mamdani, the mayor-elect of New York City, addressed supporters at a venue in Brooklyn late Tuesday night.`\
+https://nytimes.com/2025/11/05/nyregion/mamdani-speech-transcript.html
+
 **7 Takeaways From a Stunning New York City Mayoral Election**\
 `Zohran Mamdani motivated voters to head for the polls, using a broad coalition of supporters to overcome Andrew Cuomo’s success in siphoning Republican votes.`\
 https://nytimes.com/2025/11/05/nyregion/nyc-mayor-election-mamdani-takeaways.html
