@@ -1,3 +1,11 @@
+**Trump vs. Mamdani: The Showdown to Come**\
+`President Trump has berated Zohran Mamdani, the mayor-elect of New York City, in public. But privately, Mr. Trump describes him as slick and a good talker.`\
+https://nytimes.com/2025/11/05/us/politics/trump-mamdani-showdown.html
+
+**Two Republican Incumbents Will Face Off as Red Turf Shrinks in California**\
+`Representatives Ken Calvert and Young Kim will vie for the same district, underscoring the dilemma faced by state Republicans as their territory dwindles after the passage of Proposition 50.`\
+https://nytimes.com/2025/11/05/us/politics/house-election-ken-calvert-young-kim.html
+
 **After ‘Seismic’ Win, New Jersey’s Next Governor Says She Has a Mandate**\
 `Representative Mikie Sherrill, a Democrat, defeated her Republican opponent, Jack Ciattarelli, by 13 points as voter turnout surged.`\
 https://nytimes.com/2025/11/05/nyregion/mikie-sherrill-new-jersey-mandate.html
