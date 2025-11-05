@@ -1,3 +1,11 @@
+**Someone Comparable**\
+`Chad Hazen and Jeff Chen make a very likable puzzle.`\
+https://nytimes.com/2025/11/04/crosswords/daily-puzzle-2025-11-05.html
+
+**New York City Has Not Elected a Mayor This Young in More Than a Century**\
+`John Purroy Mitchel, known as the “Boy Mayor,” was three months older than Zohran Mamdani is now when he won office in 1913.`\
+https://nytimes.com/2025/11/04/nyregion/youngest-nyc-mayor.html
+
 **China Delays Return of Astronauts After Debris May Have Hit Space Station**\
 `The country’s space authorities said that were investigating whether an object had hit the space station and the risks tied to it.`\
 https://nytimes.com/2025/11/04/science/space/china-space-station-debris.html
