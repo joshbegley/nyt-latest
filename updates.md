@@ -1,3 +1,7 @@
+**LSU promoting interim athletic director Verge Ausberry to full role: Source**\
+`A former Tiger linebacker and Louisiana native, Ausberry has spent 24 years working in the LSU athletic department.`\
+https://nytimes.com/athletic/6778745/2025/11/04/lsu-new-athletic-director-verge-ausberry/
+
 **For Dick Cheney, a Journey From Champion of War to Voice of Resistance**\
 `Dick Cheney was to many the embodiment of the unpopular and bloody war Iraq war. But his late-in-life anti-Trumpism changed his image for some of his longtime critics.`\
 https://nytimes.com/2025/11/04/us/politics/dick-cheney-trump.html
