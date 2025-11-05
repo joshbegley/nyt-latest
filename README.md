@@ -1,3 +1,7 @@
+**Deadly Louisville Air Crash Hits One of World’s Busiest Cargo Hubs**\
+`The crash killed nine people and forced a halt to operations at UPS Worldport, a major automated package sorting facility. UPS said that some deliveries could be delayed.`\
+https://nytimes.com/2025/11/05/world/europe/ups-louisville-shipping-delays.html
+
 **Is Melatonin Bad for Your Heart? Here’s What to Know.**\
 `Headlines this week have raised alarms about the popular sleep supplement.`\
 https://nytimes.com/2025/11/05/well/melatonin-heart-health-study.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/05/us/politics/snap-payments-white-house.html
 **How to watch 76ers vs. Cavaliers: Time, TV, streaming**\
 `Find out how to watch the Philadelphia 76ers play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6780685/2025/11/05/76ers-vs-cavaliers-stream-how-to-watch-nov-5/
-
-**How to watch Nets vs. Pacers: Time, TV, streaming**\
-`Find out how to watch the Brooklyn Nets play the Indiana Pacers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6780683/2025/11/05/nets-vs-pacers-stream-how-to-watch-nov-5/
 
