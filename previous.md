@@ -1,3 +1,7 @@
+**For Mamdani, Winning Is One Thing. Governing Will Be Quite Another.**\
+`Being mayor of New York City is often referred to as the second hardest job in the country, but the task may be even more complicated for Zohran Mamdani.`\
+https://nytimes.com/2025/11/05/nyregion/mamdani-nyc-mayor-what-next.html
+
 **Emergency Workers Search Scene of Deadly UPS Crash in Louisville**\
 `At least nine people died after a cargo jet plunged to the ground shortly after taking off for a flight to Hawaii. The death toll could rise.`\
 https://nytimes.com/2025/11/05/us/ups-plane-crash-louisville.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/the-athletic/100000010505746/giddey-notches-triple-dou
 **This Is What a Vindicated Iguana Looks Like**\
 `Reptiles on a Mexican island were considered an invasive species, but DNA evidence proves they beat humans to the island by hundreds of thousands of years.`\
 https://nytimes.com/2025/11/05/science/iguanas-mexico-invasive-species.html
-
-**Chelsea sale controversy: What has Abramovich said? What is UK government view? What does it mean for Ukraine funds?**\
-`What do these accounts tells us about the funds from the sale? What has caused the delay? The Athletic explains`\
-https://nytimes.com/athletic/6780372/2025/11/05/chelsea-sale-abramovich-fordstam-ukraine/
 

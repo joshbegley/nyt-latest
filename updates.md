@@ -1,3 +1,7 @@
+**For Mamdani, Winning Is One Thing. Governing Will Be Quite Another.**\
+`Being mayor of New York City is often referred to as the second hardest job in the country, but the task may be even more complicated for Zohran Mamdani.`\
+https://nytimes.com/2025/11/05/nyregion/mamdani-nyc-mayor-what-next.html
+
 **Emergency Workers Search Scene of Deadly UPS Crash in Louisville**\
 `At least nine people died after a cargo jet plunged to the ground shortly after taking off for a flight to Hawaii. The death toll could rise.`\
 https://nytimes.com/2025/11/05/us/ups-plane-crash-louisville.html
