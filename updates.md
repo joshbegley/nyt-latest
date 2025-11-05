@@ -1,3 +1,11 @@
+**Where Things Stand With SNAP Benefits**\
+`Millions of low-income Americans will see staggering cuts and delays to their food stamps this month due to the government shutdown. Tony Romm, an economic policy reporter at The New York Times, walks us through the last several weeks of chaos around SNAP benefits.`\
+https://nytimes.com/video/us/politics/100000010491315/where-things-stand-with-snap-benefits.html
+
+**Jacob Frey Wins Third Term as Minneapolis Mayor**\
+`The race for Minneapolis mayor tested the appeal of democratic socialist policies, drawing comparisons to Zohran Mamdani’s mayoral bid in New York City.`\
+https://nytimes.com/2025/11/05/us/jacob-frey-minneapolis-mayor.html
+
 **See the New York Neighborhoods That Swept Mamdani to Victory**\
 `Zohran Mamdani captured a broader section of the electorate in the New York mayoral election compared with the primary. A Times analysis maps the differences.`\
 https://nytimes.com/interactive/2025/11/05/nyregion/nyc-mayor-election-results-mamdani-cuomo.html
