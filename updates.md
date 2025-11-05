@@ -1,3 +1,7 @@
+**Mark Levine Elected New York City Comptroller**\
+`The Manhattan borough president, who endorsed Zohran Mamdani, said he welcomed his new role as a counterbalance to the mayor’s office.`\
+https://nytimes.com/2025/11/04/nyregion/nyc-comptroller-mark-levine.html
+
 **Penguins shuffle roster: Jarry hurt, Murashov set to debut, Pickering sent to Wilkes-Barre**\
 `Highly touted goalie prospect Sergei Murashov has arrived in Pittsburgh amidst a rash of Penguins injuries.`\
 https://nytimes.com/athletic/6778962/2025/11/04/penguins-jarry-injury-murashov-heinen-pickering/
