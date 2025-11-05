@@ -1,3 +1,7 @@
+**McGreevey’s Bid for Political Comeback Moves to a Runoff**\
+`Jim McGreevey, the former governor of New Jersey, is hoping to become the mayor of Jersey City. No candidate won 50 percent of the vote, so the race is headed to a runoff.`\
+https://nytimes.com/2025/11/04/us/politics/mcgreevey-jersey-city-mayor-runoff.html
+
 **In an Upset, Democrats Oust Two Republicans on Georgia’s Utility Board**\
 `The races for two of the five seats on the Georgia Public Service Commission are seen as a bellwether for the midterms.`\
 https://nytimes.com/2025/11/04/us/georgia-election-utility-board-results.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/04/nyregion/nyc-ballot-measures-housing.html
 **Blue Jays' Shane Bieber to return after exercising player option: Source**\
 `Bieber, a pivotal player in the Blue Jays' push to the World Series, will remain in Toronto.`\
 https://nytimes.com/athletic/6777025/2025/11/04/shane-bieber-blue-jays-player-option/
-
-**Mark Levine Elected New York City Comptroller**\
-`The Manhattan borough president, who endorsed Zohran Mamdani, said he welcomed his new role as a counterbalance to the mayor’s office.`\
-https://nytimes.com/2025/11/04/nyregion/nyc-comptroller-mark-levine.html
 
