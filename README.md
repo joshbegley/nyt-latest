@@ -1,3 +1,7 @@
+**How to watch Steelers vs. Chargers: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Steelers play the Los Angeles Chargers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6779584/2025/11/05/steelers-vs-chargers-stream-how-to-watch-nov-9/
+
 **Angel City investor Monarch Collective goes global, buying into German club**\
 `The private equity fund will eventually acquire a 38% stake in FC Viktoria Berlin.`\
 https://nytimes.com/athletic/6775486/2025/11/05/monarch-collective-fc-viktoria-berlin-investment/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6777847/2025/11/05/arsenal-defend-our-house/
 **California voters waited in long lines to cast ballots, even after the outcome was clear.**\
 `By Jill Cowan and Shawn Hubler`\
 https://nytimes.com/live/2025/11/04/us/election-new-jersey-california/california-voters-long-lines-prop-50
-
-**In a Speech Full of Hope, Mamdani Celebrates a New Political Order**\
-`Zohran Mamdani, in his victory speech, celebrated New York’s immigrants, working class and young people and said the city could show the country how to defeat President Trump.`\
-https://nytimes.com/2025/11/05/nyregion/mamdani-speech-victory-nyc.html
 
