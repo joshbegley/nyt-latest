@@ -1,5 +1,5 @@
-**LSU promoting interim athletic director Verge Ausberry to full role: Source**\
-`A former Tiger linebacker and Louisiana native, Ausberry has spent 24 years working in the LSU athletic department.`\
+**LSU promoting interim AD Verge Ausberry to full-time role: Source**\
+`A former Tigers linebacker and Louisiana native, Ausberry has spent 24 years working in the LSU athletic department.`\
 https://nytimes.com/athletic/6778745/2025/11/04/lsu-new-athletic-director-verge-ausberry/
 
 **Mamdani built a campaign around food.**\

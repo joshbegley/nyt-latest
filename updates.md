@@ -1,3 +1,15 @@
+**LSU promoting interim athletic director Verge Ausberry to full role: Source**\
+`A former Tiger linebacker and Louisiana native, Ausberry has spent 24 years working in the LSU athletic department.`\
+https://nytimes.com/athletic/6778745/2025/11/04/lsu-new-athletic-director-verge-ausberry/
+
+**Mamdani built a campaign around food.**\
+`By Priya Krishna`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/mamdani-built-a-campaign-around-food
+
+**Why the 49ers didn't make another deal before the NFL trade deadline**\
+`The 49ers inquired about several big-name pass rushers, but the price was not right for a team that was never all in on this season.`\
+https://nytimes.com/athletic/6778578/2025/11/04/nfl-trade-deadline-49ers-no-trades/
+
 **On Eve of Shutdown Record, Trump Administration Threatens Pain Could Worsen**\
 `President Trump and administration officials indicated the fallout could intensify in the coming days, even as he has kept himself at a remove from the crisis.`\
 https://nytimes.com/2025/11/04/us/politics/trump-administration-pain-shutdown.html

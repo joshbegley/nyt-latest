@@ -1,3 +1,11 @@
+**LSU promoting interim athletic director Verge Ausberry to full role: Source**\
+`A former Tiger linebacker and Louisiana native, Ausberry has spent 24 years working in the LSU athletic department.`\
+https://nytimes.com/athletic/6778745/2025/11/04/lsu-new-athletic-director-verge-ausberry/
+
+**Mamdani built a campaign around food.**\
+`By Priya Krishna`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/mamdani-built-a-campaign-around-food
+
 **On Eve of Shutdown Record, Trump Administration Threatens Pain Could Worsen**\
 `President Trump and administration officials indicated the fallout could intensify in the coming days, even as he has kept himself at a remove from the crisis.`\
 https://nytimes.com/2025/11/04/us/politics/trump-administration-pain-shutdown.html
@@ -15,7 +23,7 @@ https://nytimes.com/athletic/6778546/2025/11/04/pittsburgh-steelers-trade-deadli
 https://nytimes.com/2025/11/04/arts/design/philadelphia-art-museum-director-dismissed.html
 
 **Why the 49ers didn't make another deal before the NFL trade deadline**\
-`The 49ers inquired about several big-name pass rushers, but the price was not right for a team that was never all-in on this season.`\
+`The 49ers inquired about several big-name pass rushers, but the price was not right for a team that was never all in on this season.`\
 https://nytimes.com/athletic/6778578/2025/11/04/nfl-trade-deadline-49ers-no-trades/
 
 **Windy, Wet Weather Hits the West Coast**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/04/science/nasa-isaacman-trump.html
 **Bills stand pat at trade deadline. A missed opportunity? Or do they have enough to win it all?**\
 `For the first time in years, the Bills made no trades before the deadline.`\
 https://nytimes.com/athletic/6778542/2025/11/04/bills-trade-deadline-brandon-beane/
-
-**Here’s how Cuomo has tried to woo independent, conservative and Republican voters.**\
-`By Jeffery C. Mays, Benjamin Oreskes and Tim Balk`\
-https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/how-cuomo-has-tried-to-woo-independent-conservative-and-republican-voters
-
-**Republicans Reprise Unfounded Claims of Widespread Election Interference**\
-`Prominent conservatives, including the president, sounded familiar alarms about voter suppression and other efforts to manipulate the vote on Election Day, without presenting evidence.`\
-https://nytimes.com/2025/11/04/us/politics/republicans-reprise-unfounded-claims-of-widespread-election-interference.html
 
