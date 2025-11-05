@@ -1,3 +1,15 @@
+**Red Panda makes return to halftime heroics after months-long injury absence**\
+`Before Tuesday, Red Panda hadn’t appeared at a game since she fell and broke her left wrist in July`\
+https://nytimes.com/athletic/6779167/2025/11/04/red-panda-returns-nba-halftime-chicago-bulls/
+
+**Salvador Perez, Royals agree to 2-year extension through 2027**\
+`Perez's expiring contract included a 2026 team option, but his extension will keep him in Kansas City through 2027.`\
+https://nytimes.com/athletic/6779138/2025/11/04/salvador-perez-royals-contract-extension-mlb/
+
+**Indiana over Texas A&M is Playoff committee’s misfire with initial rankings **\
+`The Aggies, unlike Indiana, challenged themselves with a big-time nonleague game and won it. That should matter. `\
+https://nytimes.com/athletic/6779071/2025/11/04/college-football-playoff-rankings-texas-am-indiana/
+
 **Mamdani was elected with a thinner résumé than his predecessors as mayor.**\
 `The mayor-elect’s rivals focused on his inexperience during the campaign. Voters appeared to put more weight on his vision.`\
 https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/mamdani-was-elected-with-a-thinner-resume-than-his-predecessors-as-mayor
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/04/nyregion/how-zohran-mamdani-won-nyc-mayor.html
 **Someone Comparable**\
 `Chad Hazen and Jeff Chen make a very likable puzzle.`\
 https://nytimes.com/2025/11/04/crosswords/daily-puzzle-2025-11-05.html
-
-**New York City Has Not Elected a Mayor This Young in More Than a Century**\
-`John Purroy Mitchel, known as the “Boy Mayor,” was three months older than Zohran Mamdani is now when he won office in 1913.`\
-https://nytimes.com/2025/11/04/nyregion/youngest-nyc-mayor.html
-
-**China Delays Return of Astronauts After Debris May Have Hit Space Station**\
-`The country’s space authorities said that were investigating whether an object had hit the space station and the risks tied to it.`\
-https://nytimes.com/2025/11/04/science/space/china-space-station-debris.html
-
-**Democrats to Keep Majority on Pennsylvania State Supreme Court**\
-`Voters chose to keep three Democratic justices for 10 more years, a critical victory for Democrats in the biggest swing state in the country.`\
-https://nytimes.com/2025/11/04/us/politics/democrats-pennsylvania-state-supreme-court.html
 
