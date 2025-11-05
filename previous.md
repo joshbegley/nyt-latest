@@ -1,3 +1,11 @@
+**On Eve of Shutdown Record, Trump Administration Threatens Pain Could Worsen**\
+`President Trump and administration officials indicated the fallout could intensify in the coming days, even as he has kept himself at a remove from the crisis.`\
+https://nytimes.com/2025/11/04/us/politics/trump-administration-pain-shutdown.html
+
+**For Dick Cheney, a Journey From Champion of War to Voice of Resistance**\
+`Dick Cheney was to many the embodiment of the unpopular and bloody war Iraq war. But his late-in-life anti-Trumpism changed his image for some of his longtime critics.`\
+https://nytimes.com/2025/11/04/us/politics/dick-cheney-trump.html
+
 **Steelers' quiet trade deadline speaks volumes about 2026 draft QBs, trust in young receivers**\
 `The Steelers checked in on available wide receivers, but ultimately stood pat.`\
 https://nytimes.com/athletic/6778546/2025/11/04/pittsburgh-steelers-trade-deadline-receivers/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/how-cuomo-has-tr
 **Republicans Reprise Unfounded Claims of Widespread Election Interference**\
 `Prominent conservatives, including the president, sounded familiar alarms about voter suppression and other efforts to manipulate the vote on Election Day, without presenting evidence.`\
 https://nytimes.com/2025/11/04/us/politics/republicans-reprise-unfounded-claims-of-widespread-election-interference.html
-
-**How to watch Rams vs. 49ers: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Rams play the San Francisco 49ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6778688/2025/11/04/rams-vs-49ers-stream-how-to-watch-nov-9/
-
-**How to watch Lions vs. Commanders: Time, TV, streaming**\
-`Find out how to watch the Detroit Lions play the Washington Commanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6778684/2025/11/04/lions-vs-commanders-stream-how-to-watch-nov-9/
 
