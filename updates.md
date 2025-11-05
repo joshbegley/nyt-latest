@@ -1,3 +1,11 @@
+**Quote of the Day: Baylor Lost Its Entire Roster. Then It Went to Work.**\
+`Quotation of the Day for Wednesday, November 5, 2025.`\
+https://nytimes.com/2025/11/04/pageoneplus/quote-of-the-day-baylor-lost-its-entire-roster-then-it-went-to-work.html
+
+**Mamdani Galvanized Voters With Promises of Hope and Affordability**\
+`To many of his supporters, Zohran Mamdani offered an ambitious agenda in the face of rising costs of living. “Mamdani brings a refreshing sense that he understands us,” one voter said.`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/mamdani-mayor-nyc-voters
+
 **Wild's Marcus Johansson scores 'confusing' OT winner with net off its moorings**\
 `The NHL determined that Predators goaltender Justus Annunen knocked the net off the moorings to nullify an imminent scoring chance.`\
 https://nytimes.com/athletic/6779345/2025/11/04/wild-predators-marcus-johansson-overtime-goal/

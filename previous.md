@@ -1,3 +1,7 @@
+**Quote of the Day: Baylor Lost Its Entire Roster. Then It Went to Work.**\
+`Quotation of the Day for Wednesday, November 5, 2025.`\
+https://nytimes.com/2025/11/04/pageoneplus/quote-of-the-day-baylor-lost-its-entire-roster-then-it-went-to-work.html
+
 **Wild's Marcus Johansson scores 'confusing' OT winner with net off its moorings**\
 `The NHL determined that Predators goaltender Justus Annunen knocked the net off the moorings to nullify an imminent scoring chance.`\
 https://nytimes.com/athletic/6779345/2025/11/04/wild-predators-marcus-johansson-overtime-goal/
@@ -32,9 +36,5 @@ https://nytimes.com/2025/11/04/us/politics/california-election-prop-50.html
 
 **Mamdani Galvanized Voters With Promises of Hope and Affordability**\
 `To many of his supporters, Zohran Mamdani offered an ambitious agenda in the face of rising costs of living. “Mamdani brings a refreshing sense that he understands us,” one voter said.`\
-https://nytimes.com/2025/11/04/nyregion/mamdani-mayor-nyc-voters.html
-
-**Commanders' Frankie Luvu has 1-game suspension overturned, but is fined $100K**\
-`A day after the NFL said Luvu would be suspended for this third hip-drop tackle, hearing officer Derrick Brooks reduced the punishment.`\
-https://nytimes.com/athletic/6779240/2025/11/04/frankie-luvu-commanders-suspension-overturned-fined-100k/
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/mamdani-mayor-nyc-voters
 
