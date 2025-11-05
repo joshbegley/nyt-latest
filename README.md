@@ -1,3 +1,11 @@
+**Alvin Bragg Is Re-elected as Manhattan’s District Attorney**\
+`His opponents tried to make the campaign a referendum on his record, which included convicting Donald Trump.`\
+https://nytimes.com/2025/11/04/nyregion/nyc-election-manhattan-da-alvin-bragg.html
+
+**Scenes From the N.Y.C. Mayoral Election**\
+`A contentious election that gained worldwide attention drew droves of voters from brownstone Brooklyn to suburban Staten Island.`\
+https://nytimes.com/2025/11/04/nyregion/scenes-nyc-mayoral-election.html
+
 **In NASCAR antitrust lawsuit, 23XI/Front Row get a big win as trial date nears**\
 `NASCAR's Cup Series is its own unique marketplace, a judge ruled Tuesday, rejecting the idea that teams could go elsewhere if they wanted.`\
 https://nytimes.com/athletic/6778950/2025/11/04/nascar-antitrust-lawsuit-23xi-front-row-marketplace-ruling/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/04/us/detroit-mayor-election-mary-sheffield.html
 **Tom Brady Says He Cloned His Dog**\
 `Mr. Brady became the latest celebrity to try to preserve a pet’s genetics, a move that animal rights groups have criticized.`\
 https://nytimes.com/2025/11/04/science/tom-brady-dog-cloning.html
-
-**Do Dumb Ideas Ever Die?**\
-`Unlike old soldiers, they don’t even fade away.`\
-https://nytimes.com/2025/11/04/opinion/dumb-ideas-policy-trade-politics.html
-
-**Latest U.S. Strike on Suspected Drug Boat Kills 2 in Pacific, Hegseth Says**\
-`It was the 16th announced attack in two months and raised the death toll to at least 67 people in both the Caribbean Sea and the Pacific.`\
-https://nytimes.com/2025/11/04/us/politics/boat-strike-deaths-hegseth.html
 

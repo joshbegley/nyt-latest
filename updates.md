@@ -1,3 +1,11 @@
+**In NASCAR antitrust lawsuit, 23XI/Front Row get a big win as trial date nears**\
+`NASCAR's Cup Series is its own unique marketplace, a judge ruled Tuesday, rejecting the idea that teams could go elsewhere if they wanted.`\
+https://nytimes.com/athletic/6778950/2025/11/04/nascar-antitrust-lawsuit-23xi-front-row-marketplace-ruling/
+
+**Democrat Leads Miami Mayoral Race Headed to a Runoff**\
+`In picking Eileen Higgins, a county commissioner, and rejecting three candidates with relatives in politics, voters made clear their desire to break from family dynasties.`\
+https://nytimes.com/2025/11/04/us/higgins-miami-mayor-election-results.html
+
 **Trump Administration Chooses a Critic of California Elections to Monitor Them**\
 `Michael Gates, a Justice Department official who questioned Orange County’s voting procedures, was selected to monitor voting there.`\
 https://nytimes.com/2025/11/04/us/politics/trump-california-orange-county-elections-monitor.html
