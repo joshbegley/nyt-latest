@@ -1,3 +1,7 @@
+**Judge Berates Justice Dept. in Its Prosecution of Comey**\
+`The flashpoint was the Justice Department’s failure to turn over seized communications from a confidant of Mr. Comey’s, Daniel C. Richman, a law professor at Columbia University.`\
+https://nytimes.com/2025/11/05/us/politics/judge-trump-prosecutor-comey.html
+
 **U.S. Military Draws Up Nigeria Plans, With Limited Options to Quell Violence**\
 `American forces are unlikely to be able to end a decades-long insurgency in Africa’s most populous country, despite President Trump’s order, officials said.`\
 https://nytimes.com/2025/11/05/us/politics/nigeria-us-military.html
@@ -29,12 +33,4 @@ https://nytimes.com/video/us/politics/100000010495273/how-california-voted-to-re
 **NFL Week 10 Confidence picks: Seahawks, Broncos, Lions, Bills among top picks**\
 `KC Joyner gives his confidence picks for NFL Week 10 after going 10-4 in Week 9.`\
 https://nytimes.com/athletic/6779922/2025/11/05/nfl-week-10-confidence-picks-seahawks-broncos-lions-bills/
-
-**4 Progressive Mayors Offer Advice to Zohran Mamdani**\
-`Tips from young liberals in office: Manage the stress. Keep your mom off Facebook. Plow the snow.`\
-https://nytimes.com/2025/11/05/nyregion/progressive-mayors-advice-mamdani.html
-
-**NWSL, players association hit back after 'hateful attacks' on their players**\
-`The organizations shared messages of support for Barbra Banda after she was subjected to transphobic and racist harassment.`\
-https://nytimes.com/athletic/6780856/2025/11/05/nwsl-players-gender-eligibility-attacks/
 
