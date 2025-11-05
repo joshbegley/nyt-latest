@@ -1,3 +1,7 @@
+**The Capitalism Election?**\
+`Democrats won big nationwide. But Zohran Mamdani’s victory raises questions about whether Democrats and voters are embracing populism.`\
+https://nytimes.com/2025/11/05/business/dealbook/voters-wall-street-trump.html
+
 **3 Plays About Jewish Identity That Resist Easy Answers**\
 `The Off Broadway shows “Hannah Senesh,” “Jewish Plot” and “Playing Shylock” take stock of discussions around casting and storytelling.`\
 https://nytimes.com/2025/11/05/theater/hannah-senesh-jewish-plot-playing-shylock.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6779301/2025/11/05/texas-ohio-state-playoffs-mandel
 **How Bayern's clever press made the European champions look helpless for 45 minutes**\
 `Few teams have outmanoeuvred PSG in the last 12 months but Vincent Kompany's side had the tactical intelligence to do so`\
 https://nytimes.com/athletic/6779719/2025/11/05/bayern-psg-tactics-pressing-kompany/
-
-**Patrick Mahomes couldn't solve Bills' dime defense: Week 9 Quick Outs**\
-`Mahomes struggled as the Bills played DB-heavy personnel, and it's probably too soon to reignite the J.J. McCarthy hype.`\
-https://nytimes.com/athletic/6775149/2025/11/05/nfl-week-9-patrick-mahomes-bills-jj-mccarthy/
 
