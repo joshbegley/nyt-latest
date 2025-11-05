@@ -1,3 +1,11 @@
+**In a Speech Full of Hope, Mamdani Celebrates a New Political Order**\
+`Zohran Mamdani, in his victory speech, celebrated New York’s immigrants, working class and young people and said the city could show the country how to defeat President Trump.`\
+https://nytimes.com/2025/11/05/nyregion/mamdani-speech-victory-nyc.html
+
+**In the New York City Council, Democrats Win Key Races**\
+`Democratic candidates won contested races in Brooklyn, the Bronx and Queens, but a Republican firebrand won re-election.`\
+https://nytimes.com/2025/11/05/nyregion/nyc-city-council-democrats.html
+
 **The New York Times in Print for Wednesday, Nov. 5, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/05/todays-new-york-times
