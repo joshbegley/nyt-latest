@@ -1,3 +1,11 @@
+**House Tour | Eleni Petaloti and Leonidas Trampoukis**\
+`Eleni Petaloti and Leonidas Trampoukis, the architects and founders of the design studio Objects of Common Interest, show T Magazine around their renovated 1899 townhouse in Williamsburg, Brooklyn.`\
+https://nytimes.com/video/t-magazine/100000010500467/house-tour-eleni-petaloti-and-leonidas-trampoukis.html
+
+**A Soup to Keep the Autumn Chill at Bay**\
+`A timeless chowder by way of France brings warmth to this fall dinner party menu from David Tanis.`\
+https://nytimes.com/2025/11/05/dining/french-fall-dinner-party.html
+
 **Walker Kessler to miss rest of season due to left shoulder injury: Sources**\
 `Kessler's surgery will be for a torn labrum, an injury he first incurred in college at Auburn.`\
 https://nytimes.com/athletic/6781125/2025/11/05/jazz-walker-kessler-miss-season-shoulder-injury/
@@ -25,12 +33,4 @@ https://nytimes.com/video/dining/100000010502867/restaurant-review-spago.html
 **Honey-Habanero Pork Chops With Carrots**\
 `In this sweet-and-spicy skillet dinner, lean boneless pork chops and carrots are glossed in a simple yet impactful trio of honey, habanero chiles and lime.`\
 https://nytimes.com/video/dining/100000010502853/honey-habanero-pork-chops-with-carrots.html
-
-**Judge Berates Justice Dept. in Its Prosecution of Comey**\
-`The flashpoint was the Justice Department’s failure to turn over seized communications from a confidant of Mr. Comey’s, Daniel C. Richman, a law professor at Columbia University.`\
-https://nytimes.com/2025/11/05/us/politics/judge-trump-prosecutor-comey.html
-
-**U.S. Military Draws Up Nigeria Plans, With Limited Options to Quell Violence**\
-`American forces are unlikely to be able to end a decades-long insurgency in Africa’s most populous country, despite President Trump’s order, officials said.`\
-https://nytimes.com/2025/11/05/us/politics/nigeria-us-military.html
 
