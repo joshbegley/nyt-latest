@@ -1,3 +1,7 @@
+**A Supreme Court Veteran and a Newcomer Will Make the Case Against Trump’s Tariffs**\
+`Neal Katyal, who has argued over 50 cases before the court, represents a group of businesses. Benjamin Gutman, Oregon’s solicitor general, represents a coalition of states and is making his first appearance.`\
+https://nytimes.com/2025/11/05/us/politics/supreme-court-tariffs-lawyers.html
+
 **Yankees exercise Tim Hill's 2026 club option, begin work of rebuilding bullpen**\
 `Hill pitched to a 3.09 ERA in 70 games in 2025, leading the team in appearances. The lefty will make $3 million in 2026. `\
 https://nytimes.com/athletic/6777239/2025/11/05/yankees-tim-hill-club-option/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/05/us/politics/trump-tariffs-opponents.html
 **Zohran Mamdani’s Triumph in New York Evokes Intense Reaction in Israel**\
 `“The Big Apple has fallen,” a right-wing lawmaker said, reflecting broader worries in the Mideast country. Palestinians hailed the election as a sea change in the United States.`\
 https://nytimes.com/2025/11/05/world/middleeast/zohran-mamdani-israel-reaction.html
-
-**What is IEEPA, the Law Trump Used to Levy Tariffs?**\
-`The Supreme Court is set to consider the legality of tariffs the president has invoked emergency powers to place on many trading partners.`\
-https://nytimes.com/2025/11/05/us/politics/ieepa-scotus-trump-tariffs.html
 
