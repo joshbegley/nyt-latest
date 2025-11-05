@@ -1,4 +1,12 @@
-**Air Traffic Will Be Cut on Friday if Shutdown Continues, Officials Warn**\
+**Why the Bronx Swung Toward Mamdani in the General Election**\
+`Voters in New York City’s poorest borough came out in droves to support Zohran Mamdani, energized by his visits to their neighborhoods and his promises to tackle the cost of living.`\
+https://nytimes.com/2025/11/05/nyregion/nyc-mayor-election-mamdani-bronx.html
+
+**Libya Detains Former Prison Director Wanted for Crimes Against Humanity**\
+`Osama Elmasry Njeem was arrested in Italy in January but sent back to Libya, as critics accused the Italian government of failing to stand up for human rights.`\
+https://nytimes.com/2025/11/05/world/middleeast/libya-italy-njeem.html
+
+**Officials Warn Air Traffic Will Soon Be Cut by 10 Percent in 40 Markets if Shutdown Continues**\
 `Sean Duffy, the transportation secretary, warned earlier this week that if the shutdown went on, he could close parts of the national airspace to traffic.`\
 https://nytimes.com/2025/11/05/us/politics/faa-flights-air-traffic-government-shutdown.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6777465/2025/11/05/manchester-city-haaland-foden-ch
 **'I went home as mad as any other fan': GM Brandon Beane explains Bills' lack of trades**\
 `Beane maintains the Bills still have a Super Bowl-caliber roster without any additions.`\
 https://nytimes.com/athletic/6781441/2025/11/05/bills-trade-deadline-brandon-beane-bills-trade-deadline/
-
-**Texans quarterback C.J. Stroud ruled out for Sunday's game vs. Jaguars**\
-`Houston's quarterback left Sunday's Week 9 loss to Denver after suffering a concussion in the second quarter.`\
-https://nytimes.com/athletic/6781467/2025/11/05/cj-stroud-texans-injury-concussion/
-
-**Mamdani’s Global Roots**\
-`There’s been outsize international attention on the next mayor of New York City. Today, I write about why.`\
-https://nytimes.com/2025/11/05/world/zohran-mamdani-ukraine-drones-san-francisco.html
 
