@@ -1,3 +1,19 @@
+**Sources: Mexico's Flores joining Canada camp with eye on FIFA switch**\
+`Flores has represented Mexico on the youth and senior levels but is taking a step toward changing his international allegiance`\
+https://nytimes.com/athletic/6780844/2025/11/05/marcelo-flores-canada-training-camp-mexico-fifa-switch/
+
+**Interior Department Pauses Plans for Layoffs Amid Shutdown**\
+`The agency had been planning to eliminate more than 2,000 positions before the lapse in federal funding, but a federal judge blocked the move.`\
+https://nytimes.com/2025/11/05/us/politics/interior-department-layoffs-paused-shutdown.html
+
+**Fantasy football strength of schedule: Week 10 and playoff matchup rankings**\
+`Jake Ciely's Week 10 matchup rankings can help with difficult start/sit decisions this week. Playoff rankings aid future plans. `\
+https://nytimes.com/athletic/6780404/2025/11/05/fantasy-football-matchup-rankings-week-10-playoffs/
+
+**In the Trump Era, Cheney’s Brand of Conservatism Became Obsolete**\
+`Dick Cheney was once the face of hard-line conservatism. Then hard-line conservatism changed.`\
+https://nytimes.com/2025/11/05/us/politics/cheney-trump-brand-conservatism.html
+
 **Where Things Stand With SNAP Benefits**\
 `Millions of low-income Americans will see staggering cuts and delays to their food stamps this month due to the government shutdown. Tony Romm, an economic policy reporter at The New York Times, walks us through the last several weeks of chaos around SNAP benefits.`\
 https://nytimes.com/video/us/politics/100000010491315/where-things-stand-with-snap-benefits.html

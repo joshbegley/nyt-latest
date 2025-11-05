@@ -1,3 +1,7 @@
+**Smoke Sick**\
+``\
+https://nytimes.com/series/smoke-sick
+
 **Sources: Mexico's Flores joining Canada camp with eye on FIFA switch**\
 `Flores has represented Mexico on the youth and senior levels but is taking a step toward changing his international allegiance`\
 https://nytimes.com/athletic/6780844/2025/11/05/marcelo-flores-canada-training-camp-mexico-fifa-switch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6780864/2025/11/05/chelsea-racism-abuse-qarabag-you
 **How Trade Tensions Sent Automakers Scrambling for Chips**\
 `Carmakers and their suppliers are piecing together new supply chains after a Chinese-owned company in the Netherlands was caught in the middle of the trade war, revealing European vulnerabilities.`\
 https://nytimes.com/2025/11/05/business/us-china-chips-automakers.html
-
-**For Mamdani, Winning Is One Thing. Governing Will Be Quite Another.**\
-`Being mayor of New York City is often referred to as the second hardest job in the country, but the task may be even more complicated for Zohran Mamdani.`\
-https://nytimes.com/2025/11/05/nyregion/mamdani-nyc-mayor-what-next.html
 
