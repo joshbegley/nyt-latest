@@ -1,3 +1,7 @@
+**Tom Brady Says He Cloned His Dog**\
+`Mr. Brady became the latest celebrity to try to preserve a pet’s genetics, a move that animal rights groups have criticized.`\
+https://nytimes.com/2025/11/04/science/tom-brady-dog-cloning.html
+
 **Do Dumb Ideas Ever Die?**\
 `Unlike old soldiers, they don’t even fade away.`\
 https://nytimes.com/2025/11/04/opinion/dumb-ideas-policy-trade-politics.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6778627/2025/11/04/detroit-lions-trade-deadline-day
 **Eagles GM Howie Roseman reflects on many moves before trade deadline: "They made sense"**\
 `Roseman was busy adding to the defending Super Bowl champions for another run.`\
 https://nytimes.com/athletic/6778351/2025/11/04/howie-roseman-trade-deadline-jaelan-phillips-jaire-alexander/
-
-**Ohio State, Indiana take top two spots in initial CFP rankings**\
-`This year, the CFP seeds will simply match the committee's rankings, instead of reserving byes for conference champions.`\
-https://nytimes.com/athletic/6777370/2025/11/04/college-football-playoff-first-rankings-top-25/
 

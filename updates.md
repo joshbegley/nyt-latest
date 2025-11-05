@@ -1,3 +1,7 @@
+**Tom Brady Says He Cloned His Dog**\
+`Mr. Brady became the latest celebrity to try to preserve a pet’s genetics, a move that animal rights groups have criticized.`\
+https://nytimes.com/2025/11/04/science/tom-brady-dog-cloning.html
+
 **Do Dumb Ideas Ever Die?**\
 `Unlike old soldiers, they don’t even fade away.`\
 https://nytimes.com/2025/11/04/opinion/dumb-ideas-policy-trade-politics.html
