@@ -1,3 +1,7 @@
+**Judge Berates Justice Dept. in Its Prosecution of Comey**\
+`The flashpoint was the Justice Department’s failure to turn over seized communications from a confidant of Mr. Comey’s, Daniel C. Richman, a law professor at Columbia University.`\
+https://nytimes.com/2025/11/05/us/politics/judge-trump-prosecutor-comey.html
+
 **U.S. Military Draws Up Nigeria Plans, With Limited Options to Quell Violence**\
 `American forces are unlikely to be able to end a decades-long insurgency in Africa’s most populous country, despite President Trump’s order, officials said.`\
 https://nytimes.com/2025/11/05/us/politics/nigeria-us-military.html

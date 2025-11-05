@@ -1,3 +1,15 @@
+**Why a Dodgers fan had to pass a polygraph test to sell an Ohtani home run ball**\
+`Ohtani's 469-foot NLCS home run ball took a unique journey to the auction block. `\
+https://nytimes.com/athletic/6780558/2025/11/05/shohei-ohtani-home-run-ball-nlcs-auction/
+
+**Restaurant Review: Spago**\
+`The groundbreaking Beverly Hills power restaurant, Spago, still draws crowds. But the food isn’t what it once was, according to Tejal Rao, a chief restaurant critic for The New York Times.`\
+https://nytimes.com/video/dining/100000010502867/restaurant-review-spago.html
+
+**Honey-Habanero Pork Chops With Carrots**\
+`In this sweet-and-spicy skillet dinner, lean boneless pork chops and carrots are glossed in a simple yet impactful trio of honey, habanero chiles and lime.`\
+https://nytimes.com/video/dining/100000010502853/honey-habanero-pork-chops-with-carrots.html
+
 **Judge Berates Justice Dept. in Its Prosecution of Comey**\
 `The flashpoint was the Justice Department’s failure to turn over seized communications from a confidant of Mr. Comey’s, Daniel C. Richman, a law professor at Columbia University.`\
 https://nytimes.com/2025/11/05/us/politics/judge-trump-prosecutor-comey.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/11/05/nyregion/mamdani-transition-team-nyc.html
 **France Moves to Block the Shein Website Over Sex Doll Scandal**\
 `The crackdown, ordered by the prime minister, added to the controversy over the Chinese fast-fashion retailer as it opened its first store in Paris amid chaotic scenes.`\
 https://nytimes.com/2025/11/05/business/france-shein-sex-dolls.html
-
-**Redistricting Battles, Set Off by Trump, Have Few Parallels in U.S. History**\
-`First, Texas redistricted. Other states followed, and now California. Some legal experts say it’s a crisis: “The wheels are coming off the car right now.”`\
-https://nytimes.com/2025/11/05/us/elections/gerrymandering-redistricting-democrats-republicans.html
-
-**How California Voted to Redraw Its Map**\
-`Voters in California approved a redistricting plan intended to partially neutralize a push by President Trump to draw up more safe Republican House seats before next year’s election.`\
-https://nytimes.com/video/us/politics/100000010495273/how-california-voted-to-redraw-its-map.html
-
-**NFL Week 10 Confidence picks: Seahawks, Broncos, Lions, Bills among top picks**\
-`KC Joyner gives his confidence picks for NFL Week 10 after going 10-4 in Week 9.`\
-https://nytimes.com/athletic/6779922/2025/11/05/nfl-week-10-confidence-picks-seahawks-broncos-lions-bills/
 
