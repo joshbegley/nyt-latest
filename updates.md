@@ -1,3 +1,7 @@
+**The Briefing: Qarabag 2 Chelsea 2 - A point gained, or two dropped? Why are defensive mistakes persisting?**\
+`Cerys Jones analyses the key talking points from Chelsea's long Champions League trip to Azerbaijan`\
+https://nytimes.com/athletic/6777062/2025/11/05/qarabag-chelsea-champions-league-analysis/
+
 **What’s in Our Queue? ‘Big Bang Theory’ and More **\
 `Text by Mitch Smith`\
 https://nytimes.com/card/2025/11/05/arts/editors-recommendation-bigbangtheory
