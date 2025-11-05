@@ -1,3 +1,11 @@
+**Padres offseason primer: The manager search, Preller’s status and rotation holes**\
+`The clock is ticking as loudly as ever for A.J. Preller to construct a legitimate World Series contender in San Diego.`\
+https://nytimes.com/athletic/6779461/2025/11/05/padres-offseason-primer-manager-search-preller/
+
+**Stock watch: Which Oilers free-agent signings are thriving? Who's struggling?**\
+`The overall feel of the Oilers' free-agent moves during the summer of 2025 is mildly positive.`\
+https://nytimes.com/athletic/6777137/2025/11/05/oilers-stats-players-stock-watch-2025/
+
 **USMNT's Turner training with former side Crystal Palace**\
 `The goalkeeper informed manager Oliver Glasner of the different rules in the United States concerning fixture congestion. `\
 https://nytimes.com/athletic/6780302/2025/11/05/matt-turner-usmnt-crystal-palace-fixtures/
@@ -16,7 +24,7 @@ https://nytimes.com/live/2025/11/05/us/trump-tariffs-supreme-court/key-tariffs-c
 
 **A Major Question in the Tariffs Case: The ‘Major Questions Doctrine’**\
 `The Supreme Court used the doctrine, which requires Congress to speak clearly to confer vast economic power, to strike down several Biden administration programs.`\
-https://nytimes.com/2025/11/05/us/politics/a-major-question-in-the-tariffs-case-the-major-questions-doctrine.html
+https://nytimes.com/2025/11/05/us/politics/major-questions-doctrine-trump-tariffs-scotus.html
 
 **Lawyer Who Won Trump’s Immunity Case Will Now Defend His Tariffs**\
 `As Donald Trump’s personal lawyer, D. John Sauer laid out an expansive vision of presidential power. Now the solicitor general, he will offer a new broad view of the president’s authority.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/05/us/politics/supreme-court-tariffs-lawyers.html
 **Yankees exercise Tim Hill's 2026 club option, begin work of rebuilding bullpen**\
 `Hill pitched to a 3.09 ERA in 70 games in 2025, leading the team in appearances. The lefty will make $3 million in 2026. `\
 https://nytimes.com/athletic/6777239/2025/11/05/yankees-tim-hill-club-option/
-
-**Is the U.S. Trade Deficit an ‘Emergency’?**\
-`Many of the president’s tariffs rest on the legal claim that the gap between what America imports and exports is a national emergency, an idea that remains contentious.`\
-https://nytimes.com/2025/11/05/us/politics/is-the-us-trade-deficit-an-emergency.html
-
-**College Football Playoff 2025-26: Seeding changes, metric decisions and the format's future**\
-`Everything you need to know about this year's College Football Playoff. `\
-https://nytimes.com/athletic/6780128/2025/11/05/college-football-playoff-changes-format-metrics/
 

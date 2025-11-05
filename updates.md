@@ -1,3 +1,15 @@
+**Padres offseason primer: The manager search, Preller’s status and rotation holes**\
+`The clock is ticking as loudly as ever for A.J. Preller to construct a legitimate World Series contender in San Diego.`\
+https://nytimes.com/athletic/6779461/2025/11/05/padres-offseason-primer-manager-search-preller/
+
+**Stock watch: Which Oilers free-agent signings are thriving? Who's struggling?**\
+`The overall feel of the Oilers' free-agent moves during the summer of 2025 is mildly positive.`\
+https://nytimes.com/athletic/6777137/2025/11/05/oilers-stats-players-stock-watch-2025/
+
+**A Major Question in the Tariffs Case: The ‘Major Questions Doctrine’**\
+`The Supreme Court used the doctrine, which requires Congress to speak clearly to confer vast economic power, to strike down several Biden administration programs.`\
+https://nytimes.com/2025/11/05/us/politics/major-questions-doctrine-trump-tariffs-scotus.html
+
 **USMNT's Turner training with former side Crystal Palace**\
 `The goalkeeper informed manager Oliver Glasner of the different rules in the United States concerning fixture congestion. `\
 https://nytimes.com/athletic/6780302/2025/11/05/matt-turner-usmnt-crystal-palace-fixtures/
