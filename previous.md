@@ -1,40 +1,40 @@
-**WTA Tour Finals results: How semifinalists will be decided in final round-robin matches**\
-`One group has a straight shootout, while the other sees a three-way fight for two semifinal places.`\
-https://nytimes.com/athletic/6779714/2025/11/05/wta-tour-finals-results-round-robin-qualification-scenarios/
+**Jennifer Lawrence Details Her Battle With Postpartum Depression**\
+`Postpartum depression came as a surprise to Jennifer Lawrence after the birth of her second child, when she felt like “a tiger was chasing me every day.” She talked about that experience, and what helped, with Lulu Garcia-Navarro on “The Interview.”`\
+https://nytimes.com/video/podcasts/100000010498853/jennifer-lawrence-details-her-battle-with-postpartum-depression.html
 
-**Zohran Mamdani Wins New York City Mayoral Election**\
-`Zohran Mamdani, a 34-year-old state lawmaker and democratic socialist, was elected the city’s first Muslim and first South Asian mayor.`\
-https://nytimes.com/video/us/elections/100000010504614/nyc-mayor-mamdani-elected.html
+**In Russia, Bookstores Offer a Shrinking Refuge as Censorship Tightens**\
+`Restrictions on publishers and sellers have grown more severe. Volumes are being pulled from shelves or redacted like secret documents, but bookstores remain important sources of community.`\
+https://nytimes.com/2025/11/05/world/europe/russia-bookstores-refuge-censorship.html
 
-**Mamdani Calls, and His Supporters Respond**\
-`At the Brooklyn Paramount, die-hard fans of Zohran Mamdani, New York City’s mayor-elect, enthusiastically ushered out the old guard as they celebrated his victory.`\
-https://nytimes.com/2025/11/05/nyregion/mamdani-victory-party.html
+**How the Cowboys' active trade deadline helps them now and beyond**\
+`Dak Prescott and his teammates are "pumped" with Dallas adding Quinnen Williams, along with linebacker Logan Wilson on Tuesday.`\
+https://nytimes.com/athletic/6778997/2025/11/05/cowboys-trade-deadline-quinnen-williams/
 
-**Public Art**\
-`How important do you think it is for cities and towns to display art?`\
-https://nytimes.com/2025/11/05/learning/public-art.html
+**What to Know About the Militia That Kidnapped Elizabeth Tsurkov**\
+`Kataib Hezbollah, a hard-line Iraqi militia linked to Iran, held Elizabeth Tsurkov, a citizen of Israel and Russia, hostage for more than two years.`\
+https://nytimes.com/2025/11/05/world/europe/what-to-know-about-the-militia-that-kidnapped-elizabeth-tsurkov.html
 
-**He’s Been Charged With Dozens of Crimes. Nobody Knows His Name.**\
-`He called himself by many names as he cycled in and out of prison. He is to be sentenced in Queens for deed fraud, but investigators still do not know his true identity.`\
-https://nytimes.com/2025/11/05/nyc-criminal-identity-names.html
+**Mamdani’s Victory Is Less Significant Than You Think**\
+`New York’s next mayor won’t save the Democrats.`\
+https://nytimes.com/2025/11/05/opinion/mamdani-interesting-times-podcast.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/11/05/crosswords/spelling-bee-forum.html
+**Why Mamdani Won**\
+`A triumph in New York City has a lesson for the Democrats`\
+https://nytimes.com/2025/11/05/opinion/mamdani-mayor.html
 
-**Lingering illness will sideline Stephen Curry for Warriors' game at Sacramento**\
-`Curry has been battling the lingering illness since last weekend while Jimmy Butler could also miss Wednesday's game with back soreness.`\
-https://nytimes.com/athletic/6779561/2025/11/05/stephen-curry-skip-game-cold-warriors/
+**Almost Half of U.S. Imports Now Have Steep Tariffs**\
+`President Trump has transformed U.S. trade policy. Here's how much of his tariff agenda is under threat at the Supreme Court.`\
+https://nytimes.com/interactive/2025/11/05/business/economy/trump-tariffs-us-imports.html
 
-**By moving Florian Wirtz to the left, Liverpool look to have found a home for a rare talent**\
-`Arsene Wenger said the champions had “destroyed their midfield” by playing the £116m summer buy as a No 10, now they have found balance`\
-https://nytimes.com/athletic/6779526/2025/11/05/florian-wirtz-arsene-wenger/
+**Trump’s Sweeping Tariffs Face High-Stakes Supreme Court Test**\
+`Justices will hear arguments on Wednesday over whether the president acted legally when he used a 1977 emergency statute to unilaterally impose tariffs.`\
+https://nytimes.com/2025/11/05/us/politics/supreme-court-trump-tariffs.html
 
-**With Trademark Defiance, Cuomo Contemplates Another Loss**\
-`Before a dwindling and forlorn crowd, Andrew Cuomo conceded defeat in the New York City mayor’s race, but still somehow conceded little else.`\
-https://nytimes.com/2025/11/05/nyregion/cuomo-defeat-mayoral-race.html
+**Wall Street Laments Mamdani’s Victory and Plots Its Next Move**\
+`Many financiers are vowing to play nice with Zohran Mamdani, but some are already thinking about how they will blunt the mayor-elect’s most liberal initiatives.`\
+https://nytimes.com/2025/11/05/business/wall-street-mamdani-victory.html
 
-**Late Night Chuckles at Andrew Cuomo’s Last-Minute Cheering Section**\
-`Republicans like President Trump, Stephen Miller and Elon Musk endorsed him ahead of New York City’s mayoral election. Stephen Colbert referred to them as “everyone New Yorkers love.”`\
-https://nytimes.com/2025/11/05/arts/television/late-night-chuckles-at-andrew-cuomos-last-minute-cheering-section.html
+**As Shutdown Stalemate Persists, Frustration Defies Party Lines**\
+`The partisan divisions in Washington are as deep as ever, but some voters in both parties have grown weary of the standoff and want it to end.`\
+https://nytimes.com/2025/11/05/us/politics/shutdown-congress-georgia-health-care.html
 
