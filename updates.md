@@ -1,3 +1,7 @@
+**What’s in Our Queue? ‘Big Bang Theory’ and More **\
+`Text by Mitch Smith`\
+https://nytimes.com/card/2025/11/05/arts/editors-recommendation-bigbangtheory
+
 **How the World Sees Mamdani: Icon, Threat, Proof of the American Dream**\
 `Zohran Mamdani’s improbable journey from Muslim immigrant to mayor-elect in New York City resonated across the globe in unpredictable ways.`\
 https://nytimes.com/2025/11/05/nyregion/global-reaction-mamdani.html

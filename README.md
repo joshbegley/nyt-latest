@@ -1,3 +1,7 @@
+**The Briefing: Qarabag 2 Chelsea 2 - A point gained, or two dropped? Why are defensive mistakes persisting?**\
+`Cerys Jones analyses the key talking points from Chelsea's long Champions League trip to Azerbaijan`\
+https://nytimes.com/athletic/6777062/2025/11/05/qarabag-chelsea-champions-league-analysis/
+
 **What’s in Our Queue? ‘Big Bang Theory’ and More **\
 `Text by Mitch Smith`\
 https://nytimes.com/card/2025/11/05/arts/editors-recommendation-bigbangtheory
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/05/world/europe/fifa-peace-prize-award.html
 **House Tour | Eleni Petaloti and Leonidas Trampoukis**\
 `Eleni Petaloti and Leonidas Trampoukis, the architects and founders of the design studio Objects of Common Interest, show T Magazine around their renovated 1899 townhouse in Williamsburg, Brooklyn.`\
 https://nytimes.com/video/t-magazine/100000010500467/house-tour-eleni-petaloti-and-leonidas-trampoukis.html
-
-**A Soup to Keep the Autumn Chill at Bay**\
-`A timeless chowder by way of France brings warmth to this fall dinner party menu from David Tanis.`\
-https://nytimes.com/2025/11/05/dining/french-fall-dinner-party.html
 
