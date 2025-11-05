@@ -1,3 +1,7 @@
+**Mark Levine Elected New York City Comptroller**\
+`The Manhattan borough president, who endorsed Zohran Mamdani, said he welcomed his new role as a counterbalance to the mayor’s office.`\
+https://nytimes.com/2025/11/04/nyregion/nyc-comptroller-mark-levine.html
+
 **Penguins shuffle roster: Jarry hurt, Murashov set to debut, Pickering sent to Wilkes-Barre**\
 `Highly touted goalie prospect Sergei Murashov has arrived in Pittsburgh amidst a rash of Penguins injuries.`\
 https://nytimes.com/athletic/6778962/2025/11/04/penguins-jarry-injury-murashov-heinen-pickering/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/04/us/elections/jay-jones-virginia-attorney-general-
 **Maine Voters Reject Plan to Tighten Voting Rules**\
 `The wide-ranging measure, backed by conservatives, would have eliminated two days of early absentee voting, required photo identification and limited drop boxes to one per town.`\
 https://nytimes.com/2025/11/04/us/politics/maine-voting-ballot-measure.html
-
-**Maine Voters Approve ‘Red Flag’ Gun Law**\
-`The law is set to take effect in January, allowing families to directly seek a judge’s order removing weapons from a relative shown to be dangerous.`\
-https://nytimes.com/2025/11/04/us/maine-ballot-red-flag-law.html
 
