@@ -1,3 +1,11 @@
+**After ‘Seismic’ Win, New Jersey’s Next Governor Says She Has a Mandate**\
+`Representative Mikie Sherrill, a Democrat, defeated her Republican opponent, Jack Ciattarelli, by 13 points as voter turnout surged.`\
+https://nytimes.com/2025/11/05/nyregion/mikie-sherrill-new-jersey-mandate.html
+
+**Anthony Edwards returns to lineup after 4-game absence with hamstring injury**\
+`The Timberwolves went 2-2 without their star, who has been one of the most durable players in the NBA over the past few seasons.`\
+https://nytimes.com/athletic/6778486/2025/11/05/anthony-edwards-injury-status-timberwolves-knicks/
+
 **Read the Judge’s Order**\
 `Judge Robert W. Gettleman imposed restrictions on an immigration facility in Broadview, Ill., which has been a center of protests.`\
 https://nytimes.com/interactive/2025/11/05/us/trobroadview.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/05/briefing/supreme-court-trump-tariffs-family-spice
 **'Road to 1 Point': TikTok journey ends as FGCU walk-on Brandon Dwyer finally scores**\
 `FGCU preferred walk-on and tiktok star Brandon Dwyer finally scores first NCAA basket ending his "road to one" social media series`\
 https://nytimes.com/athletic/6781736/2025/11/05/tiktok-fgcu-walk-on-brandon-dwyer/
-
-**Leafs assign Easton Cowan to AHL: Why they made the move and what's next**\
-`The 2023 first-round pick recorded four points in 10 games with the Maple Leafs this season.`\
-https://nytimes.com/athletic/6781788/2025/11/05/maple-leafs-easton-cowan-ahl-marlies/
-
-**An Emboldened Mamdani Sheds Conciliatory Tone**\
-`Fresh from a stunning victory, Zohran Mamdani, the mayor-elect, said in an interview that his supporters wanted “a politics of consistency” and aggressive action, including on taxing the rich.`\
-https://nytimes.com/2025/11/05/nyregion/zohran-mamdani-wins-interview.html
 
