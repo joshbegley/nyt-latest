@@ -1,3 +1,7 @@
+**If the justices rule in Trump’s favor, one dissent could guide their decision.**\
+`By Ann E. Marimow`\
+https://nytimes.com/live/2025/11/05/us/trump-tariffs-supreme-court/if-the-justices-rule-in-trumps-favor-one-dissent-could-guide-their-decision
+
 **Kehlani’s Throwback R&B Smash**\
 `The Oakland singer is taking us back to the hip-hop soul of the late ’90s with her new single and its remixes, according to our critic Jon Caramanica.`\
 https://nytimes.com/video/podcasts/100000010503682/kehlanis-throwback-rb-smash.html
