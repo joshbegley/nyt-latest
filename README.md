@@ -10,7 +10,7 @@ https://nytimes.com/2025/11/04/science/nasa-isaacman-trump.html
 `For the first time in years, the Bills made no trades before the deadline.`\
 https://nytimes.com/athletic/6778542/2025/11/04/bills-trade-deadline-brandon-beane/
 
-**How Cuomo has tried to woo independent, conservative and Republican voters.**\
+**Here’s how Cuomo has tried to woo independent, conservative and Republican voters.**\
 `By Jeffery C. Mays, Benjamin Oreskes and Tim Balk`\
 https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/how-cuomo-has-tried-to-woo-independent-conservative-and-republican-voters
 
