@@ -1,3 +1,19 @@
+**Windy, Wet Weather Hits the West Coast**\
+`Back-to-back storms this week could lead to flooding and power outages, forecasters warned.`\
+https://nytimes.com/2025/11/04/weather/california-rain-atmospheric-river-oregon.html
+
+**Trump Again Names Jared Isaacman to Lead NASA After Pulling His Nomination**\
+`The nomination of the billionaire entrepreneur, private astronaut and Elon Musk ally was before the floor of the Senate when the president abruptly withdrew it in June.`\
+https://nytimes.com/2025/11/04/science/nasa-isaacman-trump.html
+
+**Bills stand pat at trade deadline. A missed opportunity? Or do they have enough to win it all?**\
+`For the first time in years, the Bills made no trades before the deadline.`\
+https://nytimes.com/athletic/6778542/2025/11/04/bills-trade-deadline-brandon-beane/
+
+**How Cuomo has tried to woo independent, conservative and Republican voters.**\
+`By Jeffery C. Mays, Benjamin Oreskes and Tim Balk`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/how-cuomo-has-tried-to-woo-independent-conservative-and-republican-voters
+
 **Republicans Reprise Unfounded Claims of Widespread Election Interference**\
 `Prominent conservatives, including the president, sounded familiar alarms about voter suppression and other efforts to manipulate the vote on Election Day, without presenting evidence.`\
 https://nytimes.com/2025/11/04/us/politics/republicans-reprise-unfounded-claims-of-widespread-election-interference.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6778335/2025/11/04/walt-weiss-new-atlanta-braves-ma
 **Browns didn't get better at trade deadline, and the future didn't get any clearer**\
 `Following the deadline, it's clear this Cleveland team is stuck in a bad and awkward place because of past decisions. `\
 https://nytimes.com/athletic/6778426/2025/11/04/browns-future-trade-deadline/
-
-**Smoke Plumes Billow After Plane Crash in Louisville**\
-`Videos show large clouds of smoke in the sky after a plane crashed near Louisville Muhammad Ali International Airport in Kentucky on Tuesday. Emergency responders reported multiple injuries.`\
-https://nytimes.com/video/us/100000010503930/louisville-kentucky-plane-crash.html
-
-**Why the Panthers didn't make a deal before the trade deadline**\
-`GM Dan Morgan decided against making a deal after Carolina upset the Packers and improved to 5-4, a game and a half behind Tampa Bay.`\
-https://nytimes.com/athletic/6778556/2025/11/04/carolina-panthers-nfl-trade-deadline/
-
-**What to Know About Canada’s New Budget**\
-`The government of Prime Minister Mark Carney unveiled a program of big spending to spur Canada’s economy and reduce its dependence on the United States.`\
-https://nytimes.com/2025/11/04/world/canada/what-to-know-canada-budget.html
-
-**A Little Noted Element Propelled Mamdani’s Rise: Gen Z Loneliness**\
-`Members of Gen Z found something unexpected in the mayoral race: a chance to hang out. Their enthusiasm turned into real votes.`\
-https://nytimes.com/2025/11/04/nyregion/mamdani-young-voters.html
 
