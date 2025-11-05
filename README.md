@@ -32,7 +32,7 @@ https://nytimes.com/2025/11/04/us/politics/california-election-prop-50.html
 
 **Mamdani Galvanized Voters With Promises of Hope and Affordability**\
 `To many of his supporters, Zohran Mamdani offered an ambitious agenda in the face of rising costs of living. “Mamdani brings a refreshing sense that he understands us,” one voter said.`\
-https://nytimes.com/2025/11/04/nyregion/mamdani-mayor-nyc-voters.html
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/mamdani-mayor-nyc-voters
 
 **Commanders' Frankie Luvu has 1-game suspension overturned, but is fined $100K**\
 `A day after the NFL said Luvu would be suspended for this third hip-drop tackle, hearing officer Derrick Brooks reduced the punishment.`\
