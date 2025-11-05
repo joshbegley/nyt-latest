@@ -1,3 +1,15 @@
+**France Moves to Block the Shein Website Over Sex Doll Scandal**\
+`The crackdown, ordered by the prime minister, added to the controversy over the Chinese fast-fashion retailer as it opened its first store in Paris amid chaotic scenes.`\
+https://nytimes.com/2025/11/05/business/france-shein-sex-dolls.html
+
+**Redistricting Battles, Set Off by Trump, Have Few Parallels in U.S. History**\
+`First, Texas redistricted. Other states followed, and now California. Some legal experts say it’s a crisis: “The wheels are coming off the car right now.”`\
+https://nytimes.com/2025/11/05/us/elections/gerrymandering-redistricting-democrats-republicans.html
+
+**Derrick Henry's legendary high school rushing record in danger of falling: 'Go break it'**\
+`Myles McLaughlin, a senior at 3A Knox Community in Indiana, sits 1,121 yards away from passing Derrick Henry’s all-time high school mark.`\
+https://nytimes.com/athletic/6780899/2025/11/05/derrick-henry-high-school-record-chase/
+
 **How California Voted to Redraw Its Map**\
 `Voters in California approved a redistricting plan intended to partially neutralize a push by President Trump to draw up more safe Republican House seats before next year’s election.`\
 https://nytimes.com/video/us/politics/100000010495273/how-california-voted-to-redraw-its-map.html
