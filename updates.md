@@ -1,3 +1,11 @@
+**In Kim Kardashian’s New Show, Anything Can Be a Power Suit**\
+`“All’s Fair,” a new legal drama from Ryan Murphy, flips the idea of a corporate uniform on its head.`\
+https://nytimes.com/2025/11/05/style/kim-kardashian-show-alls-fair-power-suits.html
+
+**Deadly Louisville Air Crash Disrupts One of World’s Busiest Cargo Hubs**\
+`The crash killed nine people and forced a halt to operations at UPS Worldport, a major automated package sorting facility. UPS said that some deliveries could be delayed.`\
+https://nytimes.com/2025/11/05/world/europe/ups-louisville-shipping-delays.html
+
 **Is Melatonin Bad for Your Heart? Here’s What to Know.**\
 `Headlines this week have raised alarms about the popular sleep supplement.`\
 https://nytimes.com/2025/11/05/well/melatonin-heart-health-study.html
