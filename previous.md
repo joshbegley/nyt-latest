@@ -1,3 +1,15 @@
+**Democrats’ Big Election Night**\
+`We explain the party’s wins in New York City, New Jersey, Virginia and more.`\
+https://nytimes.com/2025/11/05/briefing/democrats-big-election-night.html
+
+**College football Week 11 streaming guide: BYU-Texas Tech, TAMU-Mizzou, sleeper games**\
+`Week 11 marks the beginning of the finishing stretch now that the first College Football Playoff rankings have been unveiled.`\
+https://nytimes.com/athletic/6777352/2025/11/05/college-football-playoff-byu-texas-tech-alabama-lsu-youtubetv-espn/
+
+**The Times’s Profit Jumps With 460,000 More Subscribers**\
+`The Times now has 12.33 million total subscribers to all of its products. It has said it is aiming for 15 million by the end of 2027.`\
+https://nytimes.com/2025/11/05/business/media/new-york-times-earnings.html
+
 **Six SEC teams made the CFP rankings because they survived the chaos everyone else didn't**\
 `The SEC pushed hard for its schedule strength metrics, but six of its teams made the CFP by winning key games and avoiding bad losses.`\
 https://nytimes.com/athletic/6779238/2025/11/05/sec-playoff-rankings-college-football/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6775420/2025/11/05/dale-murphy-hall-of-fame-mlb-vot
 **College football recruiting thoughts: SEC's dominance, the Locksley-Beamer beef and more**\
 `Eight Power 4 coaches have been fired since the start of the season. How many commits has each school lost?`\
 https://nytimes.com/athletic/6778044/2025/11/05/college-football-recruiting-sec-mike-locksley-shane-beamer/
-
-**Keep an eye on these NFL GM candidates for Miami Dolphins and beyond**\
-`Here are some possible GM candidates to watch for the Dolphins opening and any other upcoming executive vacancies around the NFL.`\
-https://nytimes.com/athletic/6777711/2025/11/05/nfl-gm-candidates-dolphins-2026/
-
-**Why are sportswriters always wrong about Miami? Mason Heintschel for Heisman? ACC mailbag**\
-`How do the tiebreakers shake out in the ACC? Is there any hope for Boston College? Should UNC fans be excited?`\
-https://nytimes.com/athletic/6776820/2025/11/05/acc-football-miami-mario-cristobal-mason-heintschel/
-
-**Road trip wrap: Oilers can't hold leads; Glen Gulutzan's 'surreal' Dallas setup**\
-`Edmonton's problems closing out games continued Tuesday in a second straight loss after leading by two headed into the third period.`\
-https://nytimes.com/athletic/6779480/2025/11/05/oilers-blown-leads-glen-gulutzan/
 
