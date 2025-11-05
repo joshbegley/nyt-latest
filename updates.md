@@ -1,3 +1,11 @@
+**Bradley and Robertson are back - and Liverpool look much better for it**\
+`The return of Arne Slot's two most defensively-secure full-backs has helped spark an overall return to form`\
+https://nytimes.com/athletic/6776368/2025/11/05/liverpool-conor-bradley-andy-robertson/
+
+**Ugandan Youth Hope Mamdani’s Win Brings Change**\
+`Zohran Mamdani’s win in New York’s mayoral race has drawn limited attention in Uganda, where he was born. Still, some young people who are facing limited opportunities feel invigorated by Mamdani’s victory.`\
+https://nytimes.com/video/world/africa/100000010504902/ugandan-youth-hope-mamdanis-win-brings-change.html
+
 **McGinn signs new Villa contract to 2028**\
 `Everton, and more recently, Newcastle, had shown interest in signing the Scotland international over the summer.`\
 https://nytimes.com/athletic/6542129/2025/11/05/john-mcginn-contract-2028/

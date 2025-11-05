@@ -1,3 +1,11 @@
+**Bradley and Robertson are back - and Liverpool look much better for it**\
+`The return of Arne Slot's two most defensively-secure full-backs has helped spark an overall return to form`\
+https://nytimes.com/athletic/6776368/2025/11/05/liverpool-conor-bradley-andy-robertson/
+
+**Ugandan Youth Hope Mamdani’s Win Brings Change**\
+`Zohran Mamdani’s win in New York’s mayoral race has drawn limited attention in Uganda, where he was born. Still, some young people who are facing limited opportunities feel invigorated by Mamdani’s victory.`\
+https://nytimes.com/video/world/africa/100000010504902/ugandan-youth-hope-mamdanis-win-brings-change.html
+
 **McGinn signs new Villa contract to 2028**\
 `Everton, and more recently, Newcastle, had shown interest in signing the Scotland international over the summer.`\
 https://nytimes.com/athletic/6542129/2025/11/05/john-mcginn-contract-2028/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/05/business/media/new-york-times-earnings.html
 **Six SEC teams made the CFP rankings because they survived the chaos everyone else didn't**\
 `The SEC pushed hard for its schedule strength metrics, but six of its teams made the CFP by winning key games and avoiding bad losses.`\
 https://nytimes.com/athletic/6779238/2025/11/05/sec-playoff-rankings-college-football/
-
-**Adam Gajan feeling calm, comfortable in Duluth net: Blackhawks prospect updates**\
-`Gajan and the Blackhawks have taken a patient approach to his development, and it's paying off this season at Minnesota Duluth.`\
-https://nytimes.com/athletic/6775841/2025/11/05/blackhawks-prospects-adam-gajan-minnesota-duluth/
-
-**The Heat are completely changing the way they approach basketball: 'It's a new era'**\
-`The Heat are moving as the fastest team in basketball. What led to their new commitment in change? `\
-https://nytimes.com/athletic/6776011/2025/11/05/miami-heat-pace-basketball-nba/
 
