@@ -1,3 +1,7 @@
+**City Council President Elected as First New Mayor of Detroit in 12 Years**\
+`Mary Sheffield will take over a city that Mayor Mike Duggan steered out of bankruptcy. She will be the first woman to lead Detroit.`\
+https://nytimes.com/2025/11/04/us/detroit-mayor-election-mary-sheffield.html
+
 **Tom Brady Says He Cloned His Dog**\
 `Mr. Brady became the latest celebrity to try to preserve a pet’s genetics, a move that animal rights groups have criticized.`\
 https://nytimes.com/2025/11/04/science/tom-brady-dog-cloning.html
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/6778825/2025/11/04/derek-shelton-twins-manager-pira
 `See how New Yorkers are voting, precinct by precinct`\
 https://nytimes.com/interactive/2025/11/04/us/elections/nyc-mayor-results-precinct-map.html
 
-**The Lions' quiet trade deadline day: Why they stood pat and where things stand at key spots**\
+**Lions quiet at trade deadline: Why they stood pat, where things stand at key spots**\
 `The Lions are healthier at this point than a season ago and that played into their decision to not make any moves.`\
 https://nytimes.com/athletic/6778627/2025/11/04/detroit-lions-trade-deadline-day/
-
-**Eagles GM Howie Roseman reflects on many moves before trade deadline: "They made sense"**\
-`Roseman was busy adding to the defending Super Bowl champions for another run.`\
-https://nytimes.com/athletic/6778351/2025/11/04/howie-roseman-trade-deadline-jaelan-phillips-jaire-alexander/
 

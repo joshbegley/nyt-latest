@@ -1,3 +1,11 @@
+**City Council President Elected as First New Mayor of Detroit in 12 Years**\
+`Mary Sheffield will take over a city that Mayor Mike Duggan steered out of bankruptcy. She will be the first woman to lead Detroit.`\
+https://nytimes.com/2025/11/04/us/detroit-mayor-election-mary-sheffield.html
+
+**Lions quiet at trade deadline: Why they stood pat, where things stand at key spots**\
+`The Lions are healthier at this point than a season ago and that played into their decision to not make any moves.`\
+https://nytimes.com/athletic/6778627/2025/11/04/detroit-lions-trade-deadline-day/
+
 **Tom Brady Says He Cloned His Dog**\
 `Mr. Brady became the latest celebrity to try to preserve a pet’s genetics, a move that animal rights groups have criticized.`\
 https://nytimes.com/2025/11/04/science/tom-brady-dog-cloning.html
