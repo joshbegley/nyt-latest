@@ -1,3 +1,15 @@
+**Is the U.S. Trade Deficit an ‘Emergency’?**\
+`Many of the president’s tariffs rest on the legal claim that the gap between what America imports and exports is a national emergency, an idea that remains contentious.`\
+https://nytimes.com/2025/11/05/us/politics/is-the-us-trade-deficit-an-emergency.html
+
+**College Football Playoff 2025-26: Seeding changes, metric decisions and the format's future**\
+`Everything you need to know about this year's College Football Playoff. `\
+https://nytimes.com/athletic/6780128/2025/11/05/college-football-playoff-changes-format-metrics/
+
+**House Race in Houston Heads for Runoff Between Young Democrats**\
+`The seat, long held by Black Houston leaders, has been vacant since March. The winner is likely to face Representative Al Green in a district altered by Republican gerrymandering.`\
+https://nytimes.com/2025/11/05/us/politics/houston-house-election-results.html
+
 **Zohran Mamdani’s Top 5 Priorities as Mayor**\
 `When he takes office on Jan. 1, Mr. Mamdani will seek to move quickly to implement his affordability plans and respond to threats from President Trump.`\
 https://nytimes.com/2025/11/05/nyregion/zohran-mamdanis-top-5-priorities-as-mayor.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/05/us/politics/ieepa-scotus-trump-tariffs.html
 **What Are Tariffs?**\
 `The Supreme Court will hear arguments about presidential power to impose tariffs. But what are they?`\
 https://nytimes.com/2025/11/05/us/politics/what-are-tariffs.html
-
-**Here’s the latest.**\
-`By Ann E. Marimow`\
-https://nytimes.com/live/2025/11/05/us/trump-tariffs-supreme-court/heres-the-latest
-
-**Live Updates: Supreme Court to Hear Case Challenging Trump’s Tariff Authority**\
-`The president used a 1977 emergency law to impose tariffs on goods from over 100 countries. The case is pivotal to his agenda.`\
-https://nytimes.com/live/2025/11/05/us/trump-tariffs-supreme-court
-
-**For St. Louis City, it's one key search down, one to go in its attempt to rebound**\
-`After another lost year, St. Louis City is trying to recapture its inaugural-season magic. All eyes now shift to its head coaching hire...`\
-https://nytimes.com/athletic/6779459/2025/11/05/st-louis-city-mls-corey-wray-diego-gigliani-coaching-search/
 
