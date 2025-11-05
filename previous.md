@@ -1,3 +1,15 @@
+**Mikie Sherrill: What to Know About New Jersey’s Next Governor**\
+`Ms. Sherrill, a Democrat, will be the second woman to serve as governor of New Jersey. The first, Christine Todd Whitman, a onetime Republican, endorsed Ms. Sherrill.`\
+https://nytimes.com/2025/11/04/us/politics/nj-governor-what-to-know.html
+
+**Mikie Sherrill, a Democrat, Wins New Jersey Governor’s Race**\
+`Ms. Sherrill, a Democratic congresswoman, beat Jack Ciattarelli, a Republican running his third race for governor, after a hard-fought campaign. She urged voters to consider the race a referendum on President Trump.`\
+https://nytimes.com/live/2025/11/04/us/election-new-jersey-california/nj-governor-mikie-sherrill
+
+**Democrat leads Miami mayoral race headed to a runoff.**\
+`In picking Eileen Higgins, a county commissioner, and rejecting three candidates with relatives in politics, voters made clear their desire to break from family dynasties.`\
+https://nytimes.com/live/2025/11/04/us/election-new-jersey-california/higgins-miami-mayor-election-results
+
 **City Council President Elected as First New Mayor of Detroit in 12 Years**\
 `Mary Sheffield will take over a city that Mayor Mike Duggan steered out of bankruptcy. She will be the first woman to lead Detroit.`\
 https://nytimes.com/2025/11/04/us/detroit-mayor-election-mary-sheffield.html
@@ -22,19 +34,7 @@ https://nytimes.com/2025/11/04/arts/design/vaillancourt-fountain-san-francisco.h
 `Several former detainees described tight quarters, a lack of sanitation and little access to lawyers at the Broadview, Ill., immigration detention facility.`\
 https://nytimes.com/2025/11/04/us/illinois-immigration-broadview-conditions.html
 
-**At Least 3 Dead After UPS Plane Crashes in Louisville, Officials Say**\
+**At Least 4 Dead After UPS Plane Crashes in Louisville, Officials Say**\
 `A deadly UPS cargo plane crash near the the Muhammad Ali International Airport in Louisville, Ky., left several people injured, officials said. The Honolulu bound plane swiftly descended shortly after takeoff and struck two businesses.`\
 https://nytimes.com/video/us/100000010504072/louisville-plane-crash-multiple-death.html
-
-**As Twins tenure begins, Derek Shelton hopes lessons learned in Pittsburgh serve him well**\
-`Shelton isn’t identifying 2026 as a rebuild, despite taking over a group of young players following an exodus of 10 Twins traded in July.`\
-https://nytimes.com/athletic/6778825/2025/11/04/derek-shelton-twins-manager-pirates-introspection/
-
-**The Most Detailed Map of the N.Y.C. Mayoral Election**\
-`See how New Yorkers are voting, precinct by precinct`\
-https://nytimes.com/interactive/2025/11/04/us/elections/nyc-mayor-results-precinct-map.html
-
-**Lions quiet at trade deadline: Why they stood pat, where things stand at key spots**\
-`The Lions are healthier at this point than a season ago and that played into their decision to not make any moves.`\
-https://nytimes.com/athletic/6778627/2025/11/04/detroit-lions-trade-deadline-day/
 
