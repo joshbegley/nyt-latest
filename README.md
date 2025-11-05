@@ -1,3 +1,11 @@
+**Will South Florida’s Real Estate Market Benefit From Mamdani’s Victory?**\
+`Some brokers and developers in the region are waiting eagerly to see if the election of a democratic socialist will drive more wealthy New Yorkers south.`\
+https://nytimes.com/2025/11/05/us/south-florida-real-estate-mamdani.html
+
+**The Supreme Court Casts a Skeptical Eye on Trump’s Tariffs**\
+`Also, Democrats seized on economic worries. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/11/05/briefing/supreme-court-trump-tariffs-family-spice.html
+
 **'Road to 1 Point': TikTok journey ends as FGCU walk-on Brandon Dwyer finally scores**\
 `FGCU preferred walk-on and tiktok star Brandon Dwyer finally scores first NCAA basket ending his "road to one" social media series`\
 https://nytimes.com/athletic/6781736/2025/11/05/tiktok-fgcu-walk-on-brandon-dwyer/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/05/style/the-hostess-with-the-1100-perfume.html
 **London’s Mayor Says Mamdani’s Victory Mirrors His Own**\
 `Sadiq Khan has been attacked by President Trump and misrepresented on social media. “I’m a mayor who happens to be Muslim,” he said, “and I think Zohran is the same.”`\
 https://nytimes.com/2025/11/05/nyregion/sadiq-khan-zohran-mamdani-mayoral-election.html
-
-**John McGinn: 'The perception was Villa had moved beyond me, but Emery thought I was worthy'**\
-`In a wide-ranging chat, the Villa midfielder discussed proving people wrong, staying fit and having his own chef...`\
-https://nytimes.com/athletic/6780474/2025/11/05/john-mcginn-interview-aston-villa-emery/
-
-**Why the Bronx Swung Toward Mamdani in the General Election**\
-`Voters in New York City’s poorest borough came out in droves to support Zohran Mamdani, energized by his visits to their neighborhoods and his promises to tackle the cost of living.`\
-https://nytimes.com/2025/11/05/nyregion/nyc-mayor-election-mamdani-bronx.html
 
