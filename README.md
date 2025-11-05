@@ -1,3 +1,19 @@
+**The Backlash Has Arrived: 6 Takeaways From a Good Night for Democrats**\
+`In Virginia, New Jersey and beyond, Democratic voters powered their candidates to victory and sent a warning sign to President Trump and his Republican Party.`\
+https://nytimes.com/2025/11/05/us/politics/election-takeaways-democrats.html
+
+**Rama Duwaji, Mamdani’s Wife, Carves a Path of Her Own**\
+`Ms. Duwaji, an accomplished artist and reluctant campaigner, steps onto center stage alongside New York City’s new mayor.`\
+https://nytimes.com/2025/11/05/nyregion/mamdani-wife-rama-duwaji.html
+
+**New York Muslims Exult in Mamdani’s Victory: ‘Now This Is Our Time’**\
+`Zohran Mamdani’s victory as the city’s next mayor is a milestone for hundreds of thousands of residents who see one of their own atop the city’s political infrastructure.`\
+https://nytimes.com/2025/11/05/us/muslim-new-yorkers-mamdani.html
+
+**California Voters Approved a New Map That Helps Democrats. Now What?**\
+`Five districts held by Republicans become potential Democratic pickups, but some remain highly competitive. And a number of incumbent lawmakers have easier pathways to re-election.`\
+https://nytimes.com/2025/11/05/us/politics/california-prop-50-map-redistricting-democrats.html
+
 **Curtis Sliwa, Back in the Beret, Puts New York’s New Mayor on Notice**\
 `Mr. Sliwa, an anti-crime activist who is the product of a bygone city, said he hoped the incoming mayor succeeded, but not at the cost of socialism and a weakened police force.`\
 https://nytimes.com/2025/11/05/nyregion/curtis-sliwa-concedes.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6742700/2025/11/05/goalkeeper-coach-duties-training
 **Unai Simon interview: 'Some prefer the Saudi way. At Athletic, we trust in our land'**\
 `The Athletic Club goalkeeper also spoke about Spain's World Cup chances next year, and the recent drama over Lamine Yamal`\
 https://nytimes.com/athletic/6776872/2025/11/05/unai-simon-interview-champions-league-athletic-newcastle/
-
-**Aston Villa vs Maccabi Tel Aviv: Why no away allocation? Will there be protests? What are the police's plans?**\
-`Why are no Maccabi fans allowed? How was the decision made? Are protests planned? What are police arrangements for the game?`\
-https://nytimes.com/athletic/6763725/2025/11/05/aston-villa-maccabi-tel-aviv-security/
-
-**Who are Thomas Tuchel's backup options for Harry Kane? – England 2026 World Cup watch**\
-`Danny Welbeck's resurgent form at Brighton has fuelled the debate over who should be Harry Kane's backup at the World Cup next summer`\
-https://nytimes.com/athletic/6773067/2025/11/05/england-welbeck-tuchel-murphy-world-cup-2026/
-
-**'We are like the Basques': Is the Geordie Nation an ideal, a delusion or a state of mind?**\
-`Before their Champions League meeting with Athletic Club, George Caulkin asks what civic and regional identity means to Newcastle`\
-https://nytimes.com/athletic/6776998/2025/11/05/newcastle-identity-and-the-geordie-nation/
-
-**The Democrats Just Took a Big Step Toward Getting Their Groove Back**\
-`Victories in New York City, New Jersey, Virginia and elsewhere were decisive, but new political tests loom for a party still rebuilding its brand.`\
-https://nytimes.com/2025/11/05/us/politics/democratic-party-mamdani.html
 
