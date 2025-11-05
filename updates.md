@@ -1,3 +1,15 @@
+**Fantasy football rankings Week 10: Sleepers, starts, projections, best Playstation 2 games**\
+`Jake Ciely runs through his player rankings for Week 10, including recently dealt receivers and a potentially-returning Bucky Irving.`\
+https://nytimes.com/athletic/6778903/2025/11/05/fantasy-football-rankings-week-10-sleepers-starts-projections-best-playstation-2-games/
+
+**Connections: Sports Edition Coach: Hints for Nov. 5, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6779294/2025/11/05/connections-sports-edition-hints-for-nov-5-2025/
+
+**Corrections: Nov. 5, 2025**\
+`Corrections that appeared in print on Wednesday, Nov. 5, 2025.`\
+https://nytimes.com/2025/11/05/pageoneplus/corrections-nov-5-2025.html
+
 **Quote of the Day: Baylor Lost Its Entire Roster. Then It Went to Work.**\
 `Quotation of the Day for Wednesday, November 5, 2025.`\
 https://nytimes.com/2025/11/04/pageoneplus/quote-of-the-day-baylor-lost-its-entire-roster-then-it-went-to-work.html

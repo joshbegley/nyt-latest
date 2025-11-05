@@ -1,3 +1,15 @@
+**Fantasy football rankings Week 10: Sleepers, starts, projections, best Playstation 2 games**\
+`Jake Ciely runs through his player rankings for Week 10, including recently dealt receivers and a potentially-returning Bucky Irving.`\
+https://nytimes.com/athletic/6778903/2025/11/05/fantasy-football-rankings-week-10-sleepers-starts-projections-best-playstation-2-games/
+
+**Connections: Sports Edition Coach: Hints for Nov. 5, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6779294/2025/11/05/connections-sports-edition-hints-for-nov-5-2025/
+
+**Corrections: Nov. 5, 2025**\
+`Corrections that appeared in print on Wednesday, Nov. 5, 2025.`\
+https://nytimes.com/2025/11/05/pageoneplus/corrections-nov-5-2025.html
+
 **Quote of the Day: Baylor Lost Its Entire Roster. Then It Went to Work.**\
 `Quotation of the Day for Wednesday, November 5, 2025.`\
 https://nytimes.com/2025/11/04/pageoneplus/quote-of-the-day-baylor-lost-its-entire-roster-then-it-went-to-work.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/04/us/georgia-election-utility-board-results.html
 **Jumaane Williams is Re-elected New York City Public Advocate**\
 `Mr. Williams, who has championed the rights of tenants, immigrants and victims of police violence while in office, won re-election handily after beating two Democratic primary challengers in June.`\
 https://nytimes.com/2025/11/04/nyregion/nyc-public-advocate-jumaane-williams.html
-
-**Minnesota Democrats Poised to Keep Senate Control After Splitting Elections**\
-`Minnesota voters selected one Democrat and one Republican to fill two open State Senate seats, preserving the chamber’s slim Democratic majority.`\
-https://nytimes.com/2025/11/04/us/minnesota-senate-elections-results.html
-
-**California Approves New House Maps in a Major Win for Democrats and Newsom**\
-`The aggressive gerrymander could help Democrats flip as many as five House seats next year. While that could neutralize new maps in Texas, Republicans are redrawing more district lines elsewhere.`\
-https://nytimes.com/2025/11/04/us/politics/california-election-prop-50.html
-
-**Mamdani Galvanized Voters With Promises of Hope and Affordability**\
-`To many of his supporters, Zohran Mamdani offered an ambitious agenda in the face of rising costs of living. “Mamdani brings a refreshing sense that he understands us,” one voter said.`\
-https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/mamdani-mayor-nyc-voters
 
