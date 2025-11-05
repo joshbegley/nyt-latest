@@ -1,3 +1,11 @@
+**Powerful Winds Sweep the Northwest Coast**\
+`Back-to-back storms this week could lead to flooding and power outages, forecasters warned.`\
+https://nytimes.com/2025/11/05/weather/atmospheric-river-forecast-california-oregon-wind.html
+
+**Mamdani Turns to Seasoned Officials for Transition Team**\
+`The mayor-elect’s official transition will be led by five women, including two former City Hall officials and a former chair of the Federal Trade Commission.`\
+https://nytimes.com/2025/11/05/nyregion/mamdani-transition-team-nyc.html
+
 **France Moves to Block the Shein Website Over Sex Doll Scandal**\
 `The crackdown, ordered by the prime minister, added to the controversy over the Chinese fast-fashion retailer as it opened its first store in Paris amid chaotic scenes.`\
 https://nytimes.com/2025/11/05/business/france-shein-sex-dolls.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/05/dining/what-are-your-holiday-entertaining-questio
 **Derrick Henry's legendary high school rushing record in danger of falling: 'Go break it'**\
 `Myles McLaughlin, a senior at 3A Knox Community in Indiana, sits 1,121 yards away from passing Derrick Henry’s all-time high school mark.`\
 https://nytimes.com/athletic/6780899/2025/11/05/derrick-henry-high-school-record-chase/
-
-**Smoke Sick**\
-``\
-https://nytimes.com/series/smoke-sick
-
-**Sources: Mexico's Flores joining Canada camp with eye on FIFA switch**\
-`Flores has represented Mexico on the youth and senior levels but is taking a step toward changing his international allegiance`\
-https://nytimes.com/athletic/6780844/2025/11/05/marcelo-flores-canada-training-camp-mexico-fifa-switch/
 
