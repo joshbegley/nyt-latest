@@ -1,3 +1,11 @@
+**Drew Brees joins Fox as NFL analyst, potentially replacing Mark Sanchez: Sources**\
+`Future Hall of Famer joins Tom Brady and Greg Olsen as Fox Sports analysts, is expected to team with play-by-play announcer Adam Amin.`\
+https://nytimes.com/athletic/6778645/2025/11/05/drew-brees-fox-sports-nfl-mark-sanchez/
+
+**FIFA Will Award Its Own Peace Prize Next Month in Washington**\
+`Gianni Infantino, the president of FIFA, has built a close relationship with President Trump, who has groused about not winning the Nobel Peace Prize.`\
+https://nytimes.com/2025/11/05/world/europe/fifa-peace-prize-award.html
+
 **House Tour | Eleni Petaloti and Leonidas Trampoukis**\
 `Eleni Petaloti and Leonidas Trampoukis, the architects and founders of the design studio Objects of Common Interest, show T Magazine around their renovated 1899 townhouse in Williamsburg, Brooklyn.`\
 https://nytimes.com/video/t-magazine/100000010500467/house-tour-eleni-petaloti-and-leonidas-trampoukis.html
@@ -23,14 +31,10 @@ https://nytimes.com/2025/11/05/nyregion/zohran-mamdani-beard-nyc-mayor.html
 https://nytimes.com/2025/11/05/theater/girl-interrupted-aimee-mann-martyna-majok.html
 
 **Why a Dodgers fan had to pass a polygraph test to sell an Ohtani home run ball**\
-`Ohtani's 469-foot NLCS home run ball took a unique journey to the auction block. `\
+`Ohtani's 469-foot NLCS home-run ball took a unique journey to the auction block. `\
 https://nytimes.com/athletic/6780558/2025/11/05/shohei-ohtani-home-run-ball-nlcs-auction/
 
 **Restaurant Review: Spago**\
 `The groundbreaking Beverly Hills power restaurant, Spago, still draws crowds. But the food isn’t what it once was, according to Tejal Rao, a chief restaurant critic for The New York Times.`\
 https://nytimes.com/video/dining/100000010502867/restaurant-review-spago.html
-
-**Honey-Habanero Pork Chops With Carrots**\
-`In this sweet-and-spicy skillet dinner, lean boneless pork chops and carrots are glossed in a simple yet impactful trio of honey, habanero chiles and lime.`\
-https://nytimes.com/video/dining/100000010502853/honey-habanero-pork-chops-with-carrots.html
 
