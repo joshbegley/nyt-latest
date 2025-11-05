@@ -1,3 +1,23 @@
+**Some SNAP Recipients May Not Receive Food Stamps Under White House Policy**\
+`Anti-hunger groups and state officials have warned that the administration’s plans to make partial payments are onerous and could still result in severe harm.`\
+https://nytimes.com/2025/11/05/us/politics/snap-payments-white-house.html
+
+**How to watch 76ers vs. Cavaliers: Time, TV, streaming**\
+`Find out how to watch the Philadelphia 76ers play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6780685/2025/11/05/76ers-vs-cavaliers-stream-how-to-watch-nov-5/
+
+**How to watch Nets vs. Pacers: Time, TV, streaming**\
+`Find out how to watch the Brooklyn Nets play the Indiana Pacers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6780683/2025/11/05/nets-vs-pacers-stream-how-to-watch-nov-5/
+
+**How to watch Jazz vs. Pistons: Time, TV, streaming**\
+`Find out how to watch the Utah Jazz play the Detroit Pistons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6780681/2025/11/05/jazz-vs-pistons-stream-how-to-watch-nov-5/
+
+**How to watch Mammoth vs. Maple Leafs: Time, TV, streaming**\
+`Find out how to watch the Utah Mammoth play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6780679/2025/11/05/mammoth-vs-maple-leafs-stream-how-to-watch-nov-5/
+
 **Sources: Suárez suspended for Miami's pivotal playoff game vs. Nashville**\
 `Miami will be short a star when it hosts Nashville SC in a do-or-die Game 3 in the first round of the MLS Cup playoffs Saturday night`\
 https://nytimes.com/athletic/6780507/2025/11/05/luis-suarez-suspended-inter-miami-nashville-mls-playoffs/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6780643/2025/11/05/fairleigh-dickinson-vs-notre-dam
 **USMNT's Pulisic set for Milan return for Serie A game vs Parma**\
 `Pulisic has missed Milan's four most recent matches after sustaining what the club described as a 'low-grade injury' to his right hamstring.`\
 https://nytimes.com/athletic/6754509/2025/11/05/christian-pulisic-milan-usmnt-injury/
-
-**College Football Playoff odds: One contender saw its odds move after rankings reveal**\
-`The betting odds on which teams will make the College Football Playoff tell an interesting story compared to the rankings.`\
-https://nytimes.com/athletic/6778580/2025/11/05/college-football-playoff-odds-oregon-miami/
-
-**Irish Police Got a Call About a Lion. It Was Actually a Dog Named Mouse.**\
-`A truck driver’s grainy video spurred bewilderment and speculation about a lion roaming in Ireland. Turns out it was a dog with an aggressive haircut.`\
-https://nytimes.com/2025/11/05/world/ireland-lion-dog-mouse.html
-
-**To Ease Sciatica, Keep Moving**\
-`It’s important to not only identify this painful condition correctly, but find exercises you can comfortably do.`\
-https://nytimes.com/2025/11/05/well/move/exercise-sciatica-advice.html
-
-**A Choreographer Chooses the Audacity of Optimism**\
-`For her new work, opening at BAM Fisher, Juliana F. May looks to early influences to create her version of a postmodern musical.`\
-https://nytimes.com/2025/11/05/arts/dance/juliana-may-optimistic-voices.html
-
-**Go Big on Brussels Sprouts**\
-`A spicy, tangy dressing, bold with fish sauce and citrus, gives real oomph to caramelized brussels sprouts and tofu in this easy dinner.`\
-https://nytimes.com/2025/11/05/dining/go-big-on-brussels-sprouts.html
 

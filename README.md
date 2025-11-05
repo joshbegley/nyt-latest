@@ -1,3 +1,11 @@
+**'Best viewership in years': 27.3 million U.S. fans watched Game 7 of the World Series**\
+`The combined North American TV audience for Game 7? An incredible 38.2 million viewers.`\
+https://nytimes.com/athletic/6780686/2025/11/05/mlb-world-series-tv-ratings-fox-dodgers/
+
+**Elections Show Trump’s Edge on the Economy Slipping**\
+`Democrats harnessed worries about the cost of living, with polls showing that Republicans’ longtime advantage on the economy has evaporated.`\
+https://nytimes.com/2025/11/05/us/politics/trump-elections-economy-inflation.html
+
 **Some SNAP Recipients May Not Receive Food Stamps Under White House Policy**\
 `Anti-hunger groups and state officials have warned that the administration’s plans to make partial payments are onerous and could still result in severe harm.`\
 https://nytimes.com/2025/11/05/us/politics/snap-payments-white-house.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/05/us/republicans-lawsuit-california-redistricting-m
 **Infantino to award FIFA peace prize at World Cup 2026 draw**\
 `FIFA president Gianni Infantino will present the inaugural award at next month's World Cup draw in Washington DC.`\
 https://nytimes.com/athletic/6780499/2025/11/05/fifa-peace-prize-infantino-trump/
-
-**How to watch Fairleigh Dickinson vs. Notre Dame: Time, TV, streaming**\
-`Find out how to watch the Fairleigh Dickinson Knights play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6780643/2025/11/05/fairleigh-dickinson-vs-notre-dame-stream-how-to-watch-nov-5/
-
-**USMNT's Pulisic set for Milan return for Serie A game vs Parma**\
-`Pulisic has missed Milan's four most recent matches after sustaining what the club described as a 'low-grade injury' to his right hamstring.`\
-https://nytimes.com/athletic/6754509/2025/11/05/christian-pulisic-milan-usmnt-injury/
 
