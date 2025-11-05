@@ -1,3 +1,11 @@
+**Jumaane Williams is Re-elected New York City Public Advocate**\
+`Mr. Williams, who has championed the rights of tenants, immigrants and victims of police violence while in office, won re-election handily after beating two Democratic primary challengers in June.`\
+https://nytimes.com/2025/11/04/nyregion/nyc-public-advocate-jumaane-williams.html
+
+**Minnesota Democrats Poised to Keep Senate Control After Splitting Elections**\
+`Minnesota voters selected one Democrat and one Republican to fill two open State Senate seats, preserving the chamber’s slim Democratic majority.`\
+https://nytimes.com/2025/11/04/us/minnesota-senate-elections-results.html
+
 **California Approves New House Maps in a Major Win for Democrats and Newsom**\
 `The aggressive gerrymander could help Democrats flip as many as five House seats next year. While that could neutralize new maps in Texas, Republicans are redrawing more district lines elsewhere.`\
 https://nytimes.com/2025/11/04/us/politics/california-election-prop-50.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/04/nyregion/nyc-comptroller-mark-levine.html
 **Penguins shuffle roster: Jarry hurt, Murashov set to debut, Pickering sent to Wilkes-Barre**\
 `Highly touted goalie prospect Sergei Murashov has arrived in Pittsburgh amidst a rash of Penguins injuries.`\
 https://nytimes.com/athletic/6778962/2025/11/04/penguins-jarry-injury-murashov-heinen-pickering/
-
-**Clemson coach Dabo Swinney goes off on ACC officiating again**\
-`After being fined $10,000 on Sunday, Swinney continued to slam the performance of officials.`\
-https://nytimes.com/athletic/6779130/2025/11/04/clemson-coach-dabo-swinney-acc-officiating/
-
-**Red Panda makes return to halftime heroics after months-long injury absence**\
-`Before Tuesday, Red Panda hadn’t appeared at a game since she fell and broke her left wrist in July`\
-https://nytimes.com/athletic/6779167/2025/11/04/red-panda-returns-nba-halftime-chicago-bulls/
 
