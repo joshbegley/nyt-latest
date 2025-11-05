@@ -1,3 +1,11 @@
+**The Lions' quiet trade deadline day: Why they stood pat and where things stand at key spots**\
+`The Lions are healthier at this point than a season ago and that played into their decision to not make any moves.`\
+https://nytimes.com/athletic/6778627/2025/11/04/detroit-lions-trade-deadline-day/
+
+**Eagles GM Howie Roseman reflects on many moves before trade deadline: "They made sense"**\
+`Roseman was busy adding to the defending Super Bowl champions for another run.`\
+https://nytimes.com/athletic/6778351/2025/11/04/howie-roseman-trade-deadline-jaelan-phillips-jaire-alexander/
+
 **Ohio State, Indiana take top two spots in initial CFP rankings**\
 `This year, the CFP seeds will simply match the committee's rankings, instead of reserving byes for conference champions.`\
 https://nytimes.com/athletic/6777370/2025/11/04/college-football-playoff-first-rankings-top-25/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6778698/2025/11/04/draymond-green-kevin-durant-resp
 **Spanberger Wins Virginia Governor’s Race With Forceful Anti-Trump Campaign**\
 `Abigail Spanberger, a former congresswoman and C.I.A. officer, will be the first woman to serve as governor of Virginia, following a streak of 74 men.`\
 https://nytimes.com/2025/11/04/us/politics/virginia-governor-election-spanberger.html
-
-**LSU promoting interim AD Verge Ausberry to full-time role: Source**\
-`A former Tigers linebacker and Louisiana native, Ausberry has spent 24 years working in the LSU athletic department.`\
-https://nytimes.com/athletic/6778745/2025/11/04/lsu-new-athletic-director-verge-ausberry/
-
-**Mamdani built a campaign around food.**\
-`By Priya Krishna`\
-https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/mamdani-built-a-campaign-around-food
 
