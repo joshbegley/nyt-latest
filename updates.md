@@ -1,3 +1,7 @@
+**Kompany likes to tell Bayern they're 'not that good'. They might be the best team in Europe**\
+`Bayern are top of the Champions League and Bundesliga and are yet to drop a point in either competition after 13 combined games`\
+https://nytimes.com/athletic/6778964/2025/11/05/bayern-munich-best-team-europe/
+
 **Lingering illness will sideline Stephen Curry for Warriors' game at Sacramento**\
 `Curry has been battling the lingering illness since last weekend; Jimmy Butler could miss Wednesday's game with back soreness.`\
 https://nytimes.com/athletic/6779561/2025/11/05/stephen-curry-skip-game-cold-warriors/

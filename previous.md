@@ -31,7 +31,7 @@ https://nytimes.com/athletic/6704345/2025/11/05/turnberry-trump-open-venue/
 https://nytimes.com/2025/11/05/learning/word-of-the-day-innocuous.html
 
 **Kompany likes to tell Bayern they're 'not that good'. They might be the best team in Europe**\
-`Bayern are top of the Champions League and Bundesliga and are yet to drop a point in any competition`\
+`Bayern are top of the Champions League and Bundesliga and are yet to drop a point in either competition after 13 combined games`\
 https://nytimes.com/athletic/6778964/2025/11/05/bayern-munich-best-team-europe/
 
 **Thomas Frank and Spurs bask in incredible healing powers great goals can bring**\
