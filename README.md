@@ -1,3 +1,7 @@
+**What’s in Our Queue? ‘Big Bang Theory’ and More **\
+`Text by Mitch Smith`\
+https://nytimes.com/card/2025/11/05/arts/editors-recommendation-bigbangtheory
+
 **How the World Sees Mamdani: Icon, Threat, Proof of the American Dream**\
 `Zohran Mamdani’s improbable journey from Muslim immigrant to mayor-elect in New York City resonated across the globe in unpredictable ways.`\
 https://nytimes.com/2025/11/05/nyregion/global-reaction-mamdani.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/t-magazine/100000010500467/house-tour-eleni-petaloti-a
 **A Soup to Keep the Autumn Chill at Bay**\
 `A timeless chowder by way of France brings warmth to this fall dinner party menu from David Tanis.`\
 https://nytimes.com/2025/11/05/dining/french-fall-dinner-party.html
-
-**Walker Kessler to miss rest of season due to left shoulder injury: Sources**\
-`Kessler's surgery will be for a torn labrum, an injury he first incurred in college at Auburn.`\
-https://nytimes.com/athletic/6781125/2025/11/05/jazz-walker-kessler-miss-season-shoulder-injury/
 
