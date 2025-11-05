@@ -1,3 +1,19 @@
+**Five Key Takeaways From the Supreme Court Tariff Argument**\
+`The Supreme Court justices grappled with the legality of President Trump’s tariffs in an oral argument that stretched for almost three hours.`\
+https://nytimes.com/2025/11/05/us/politics/supreme-court-tariff-takeaways.html
+
+**The Briefing: Club Brugge 3 Barcelona 3 - Did Yamal just score the goal of the season? Is Flick's high line doomed?**\
+`Dermot Corrigan breaks down the key talking points from Barcelona's Champions League game in Belgium`\
+https://nytimes.com/athletic/6777063/2025/11/05/club-brugge-barcelona-champions-league-analysis/
+
+**Wrexham’s McClean admits punching Cardiff fan in stadium car park: 'I wasn't waiting'**\
+`McClean said a group of men "started running their mouths off" at him when he was leaving his car at the Racecourse Ground on October 28.`\
+https://nytimes.com/athletic/6781461/2025/11/05/james-mcclean-wrexham-cardiff-punch/
+
+**The Briefing: Newcastle 2 Athletic Club 0 - One win from the knockouts? Goal of the season...from a header?**\
+`Chris Waugh and George Caulkin consider the key talking points as Eddie Howe's team cruise to a third straight win in Europe`\
+https://nytimes.com/athletic/6777466/2025/11/05/newcastle-champions-league-dan-burn-header/
+
 **Newcastle 2 Athletic 0 - One win from the knockouts? Goal of the season...from a header?**\
 `Chris Waugh and George Caulkin consider the key talking points as Eddie Howe's team cruise to a third-straight win in Europe`\
 https://nytimes.com/athletic/6777466/2025/11/05/newcastle-champions-league-dan-burn-header/
