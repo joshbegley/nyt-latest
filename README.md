@@ -1,3 +1,23 @@
+**A Zohran Mamdani Ad Used a Bob Dylan Song. The Music Was Removed.**\
+`New York’s next mayor played “The Times They Are a-Changin’” in a spot on social media. The company that owns Dylan’s catalog said his songs can’t be used for politics.`\
+https://nytimes.com/2025/11/05/arts/music/zohran-mamdani-bob-dylan-song.html
+
+**Tiny Love Stories: ‘The Moment I Remember Most’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/11/05/style/tiny-modern-love-stories-the-moment-i-remember-most.html
+
+**The Hostess With the $1,100 Perfume**\
+`Cassandra Grey held a small party in a big suite at the Carlyle in New York. Her famous friends (Demi Moore, Lily Allen, Lorne Michaels) were there.`\
+https://nytimes.com/2025/11/05/style/the-hostess-with-the-1100-perfume.html
+
+**London’s Mayor Says Mamdani’s Victory Mirrors His Own**\
+`Sadiq Khan has been attacked by President Trump and misrepresented on social media. “I’m a mayor who happens to be Muslim,” he said, “and I think Zohran is the same.”`\
+https://nytimes.com/2025/11/05/nyregion/sadiq-khan-zohran-mamdani-mayoral-election.html
+
+**John McGinn: 'The perception was Villa had moved beyond me, but Emery thought I was worthy'**\
+`In a wide-ranging chat, the Villa midfielder discussed proving people wrong, staying fit and having his own chef...`\
+https://nytimes.com/athletic/6780474/2025/11/05/john-mcginn-interview-aston-villa-emery/
+
 **Why the Bronx Swung Toward Mamdani in the General Election**\
 `Voters in New York City’s poorest borough came out in droves to support Zohran Mamdani, energized by his visits to their neighborhoods and his promises to tackle the cost of living.`\
 https://nytimes.com/2025/11/05/nyregion/nyc-mayor-election-mamdani-bronx.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6781679/2025/11/05/reds-options-austin-hays-scott-b
 **Five Key Takeaways From the Supreme Court Tariff Argument**\
 `The Supreme Court justices grappled with the legality of President Trump’s tariffs in an oral argument that stretched for almost three hours.`\
 https://nytimes.com/2025/11/05/us/politics/supreme-court-tariff-takeaways.html
-
-**The Briefing: Club Brugge 3 Barcelona 3 - Did Yamal just score the goal of the season? Is Flick's high line doomed?**\
-`Dermot Corrigan breaks down the key talking points from Barcelona's Champions League game in Belgium`\
-https://nytimes.com/athletic/6777063/2025/11/05/club-brugge-barcelona-champions-league-analysis/
-
-**Wrexham’s McClean admits punching Cardiff fan in stadium car park: 'I wasn't waiting'**\
-`McClean said a group of men "started running their mouths off" at him when he was leaving his car at the Racecourse Ground on October 28.`\
-https://nytimes.com/athletic/6781461/2025/11/05/james-mcclean-wrexham-cardiff-punch/
-
-**The Briefing: Newcastle 2 Athletic Club 0 - One win from the knockouts? Goal of the season...from a header?**\
-`Chris Waugh and George Caulkin consider the key talking points as Eddie Howe's team cruise to a third straight win in Europe`\
-https://nytimes.com/athletic/6777466/2025/11/05/newcastle-champions-league-dan-burn-header/
-
-**The Briefing: Man City 4 Dortmund 1 – Next record for Haaland? How did Savinho change perceptions?**\
-`Pep Guardiola's side moved onto 10 points from four Champions League games with victory at the Etihad`\
-https://nytimes.com/athletic/6777465/2025/11/05/manchester-city-haaland-foden-champions-league/
-
-**'I went home as mad as any other fan': GM Brandon Beane explains Bills' lack of trades**\
-`Beane maintains the Bills still have a Super Bowl-caliber roster without any additions.`\
-https://nytimes.com/athletic/6781441/2025/11/05/bills-trade-deadline-brandon-beane-bills-trade-deadline/
 

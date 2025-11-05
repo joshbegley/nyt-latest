@@ -1,3 +1,15 @@
+**Why the Bronx Swung Toward Mamdani in the General Election**\
+`Voters in New York City’s poorest borough came out in droves to support Zohran Mamdani, energized by his visits to their neighborhoods and his promises to tackle the cost of living.`\
+https://nytimes.com/2025/11/05/nyregion/nyc-mayor-election-mamdani-bronx.html
+
+**Libya Detains Former Prison Director Wanted for Crimes Against Humanity**\
+`Osama Elmasry Njeem was arrested in Italy in January but sent back to Libya, as critics accused the Italian government of failing to stand up for human rights.`\
+https://nytimes.com/2025/11/05/world/middleeast/libya-italy-njeem.html
+
+**Officials Warn Air Traffic Will Soon Be Cut by 10 Percent in 40 Markets if Shutdown Continues**\
+`Sean Duffy, the transportation secretary, warned earlier this week that if the shutdown went on, he could close parts of the national airspace to traffic.`\
+https://nytimes.com/2025/11/05/us/politics/faa-flights-air-traffic-government-shutdown.html
+
 **Air Traffic Will Be Cut on Friday if Shutdown Continues, Officials Warn**\
 `Sean Duffy, the transportation secretary, warned earlier this week that if the shutdown went on, he could close parts of the national airspace to traffic.`\
 https://nytimes.com/2025/11/05/us/politics/faa-flights-air-traffic-government-shutdown.html
