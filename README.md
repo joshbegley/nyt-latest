@@ -1,3 +1,19 @@
+**4 Progressive Mayors Offer Advice to Zohran Mamdani**\
+`Tips from young liberals in office: Manage the stress. Keep your mom off Facebook. Plow the snow.`\
+https://nytimes.com/2025/11/05/nyregion/progressive-mayors-advice-mamdani.html
+
+**NWSL, players association hit back after 'hateful attacks' on their players**\
+`The organizations shared messages of support for Barbra Banda after she was subjected to transphobic and racist harassment.`\
+https://nytimes.com/athletic/6780856/2025/11/05/nwsl-players-gender-eligibility-attacks/
+
+**What Are Your Holiday Entertaining Questions?**\
+`From cookies to parties, let us help you be merry.`\
+https://nytimes.com/2025/11/05/dining/what-are-your-holiday-entertaining-questions.html
+
+**Derrick Henry's legendary high school rushing record in danger of falling: 'Go break it'**\
+`Myles McLaughlin, a senior at 3A Knox Community in Indiana, sits 1,121 yards away from Derrick Henry’s all-time high school mark.`\
+https://nytimes.com/athletic/6780899/2025/11/05/derrick-henry-high-school-record-chase/
+
 **Smoke Sick**\
 ``\
 https://nytimes.com/series/smoke-sick
@@ -21,20 +37,4 @@ https://nytimes.com/2025/11/05/us/politics/cheney-trump-brand-conservatism.html
 **Where Things Stand With SNAP Benefits**\
 `Millions of low-income Americans will see staggering cuts and delays to their food stamps this month due to the government shutdown. Tony Romm, an economic policy reporter at The New York Times, walks us through the last several weeks of chaos around SNAP benefits.`\
 https://nytimes.com/video/us/politics/100000010491315/where-things-stand-with-snap-benefits.html
-
-**Jacob Frey Wins Third Term as Minneapolis Mayor**\
-`The race for Minneapolis mayor tested the appeal of democratic socialist policies, drawing comparisons to Zohran Mamdani’s mayoral bid in New York City.`\
-https://nytimes.com/2025/11/05/us/jacob-frey-minneapolis-mayor.html
-
-**See the New York Neighborhoods That Swept Mamdani to Victory**\
-`Zohran Mamdani captured a broader section of the electorate in the New York mayoral election compared with the primary. A Times analysis maps the differences.`\
-https://nytimes.com/interactive/2025/11/05/nyregion/nyc-mayor-election-results-mamdani-cuomo.html
-
-**Chelsea condemn alleged racist abuse of players during academy match vs Qarabag**\
-`A video posted to social media showed at least one fan making monkey gestures towards Chelsea players.`\
-https://nytimes.com/athletic/6780864/2025/11/05/chelsea-racism-abuse-qarabag-youth-league/
-
-**How Trade Tensions Sent Automakers Scrambling for Chips**\
-`Carmakers and their suppliers are piecing together new supply chains after a Chinese-owned company in the Netherlands was caught in the middle of the trade war, revealing European vulnerabilities.`\
-https://nytimes.com/2025/11/05/business/us-china-chips-automakers.html
 

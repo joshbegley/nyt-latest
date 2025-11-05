@@ -1,3 +1,7 @@
+**Smoke Sick**\
+``\
+https://nytimes.com/series/smoke-sick
+
 **Sources: Mexico's Flores joining Canada camp with eye on FIFA switch**\
 `Flores has represented Mexico on the youth and senior levels but is taking a step toward changing his international allegiance`\
 https://nytimes.com/athletic/6780844/2025/11/05/marcelo-flores-canada-training-camp-mexico-fifa-switch/
