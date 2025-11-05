@@ -1,3 +1,11 @@
+**U.S. Military Draws Up Nigeria Plans, With Limited Options to Quell Violence**\
+`American forces are unlikely to be able to end a decades-long insurgency in Africa’s most populous country, despite President Trump’s order, officials said.`\
+https://nytimes.com/2025/11/05/us/politics/nigeria-us-military.html
+
+**Mamdani’s Win and a Spark for Democrats**\
+`Readers react to strong election results for Democrats. Also: the case against gerrymandering.`\
+https://nytimes.com/2025/11/05/opinion/mamdanis-democrats-election.html
+
 **Powerful Winds Sweep the Northwest Coast**\
 `Back-to-back storms this week could lead to flooding and power outages, forecasters warned.`\
 https://nytimes.com/2025/11/05/weather/atmospheric-river-forecast-california-oregon-wind.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/05/nyregion/progressive-mayors-advice-mamdani.html
 **NWSL, players association hit back after 'hateful attacks' on their players**\
 `The organizations shared messages of support for Barbra Banda after she was subjected to transphobic and racist harassment.`\
 https://nytimes.com/athletic/6780856/2025/11/05/nwsl-players-gender-eligibility-attacks/
-
-**What Are Your Holiday Entertaining Questions?**\
-`From cookies to parties, let us help you be merry.`\
-https://nytimes.com/2025/11/05/dining/what-are-your-holiday-entertaining-questions.html
-
-**Derrick Henry's legendary high school rushing record in danger of falling: 'Go break it'**\
-`Myles McLaughlin, a senior at 3A Knox Community in Indiana, sits 1,121 yards away from passing Derrick Henry’s all-time high school mark.`\
-https://nytimes.com/athletic/6780899/2025/11/05/derrick-henry-high-school-record-chase/
 
