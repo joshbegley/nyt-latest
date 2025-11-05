@@ -1,3 +1,7 @@
+**Kehlani’s Throwback R&B Smash**\
+`The Oakland singer is taking us back to the hip-hop soul of the late ’90s with her new single and its remixes, according to our critic Jon Caramanica.`\
+https://nytimes.com/video/podcasts/100000010503682/kehlanis-throwback-rb-smash.html
+
 **What Is the Nondelegation Doctrine?**\
 `The groups challenging the president’s tariffs assert that the measures overstep the principle that Congress cannot cede its legislative powers to other branches of government.`\
 https://nytimes.com/2025/11/05/us/politics/nondelegation-doctrine-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/11/05/us/trump-tariffs-supreme-court/key-tariffs-c
 **A Major Question in the Tariffs Case: The ‘Major Questions Doctrine’**\
 `The Supreme Court used the doctrine, which requires Congress to speak clearly to confer vast economic power, to strike down several Biden administration programs.`\
 https://nytimes.com/2025/11/05/us/politics/major-questions-doctrine-trump-tariffs-scotus.html
-
-**Lawyer Who Won Trump’s Immunity Case Will Now Defend His Tariffs**\
-`As Donald Trump’s personal lawyer, D. John Sauer laid out an expansive vision of presidential power. Now the solicitor general, he will offer a new broad view of the president’s authority.`\
-https://nytimes.com/2025/11/05/us/politics/d-john-sauer-tariffs.html
 
