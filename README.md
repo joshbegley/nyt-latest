@@ -1,3 +1,11 @@
+**With Trademark Defiance, Cuomo Contemplates Another Loss**\
+`Before a dwindling and forlorn crowd, Andrew Cuomo conceded defeat in the New York City mayor’s race, but still somehow conceded little else.`\
+https://nytimes.com/2025/11/05/nyregion/cuomo-defeat-mayoral-race.html
+
+**Late Night Chuckles at Andrew Cuomo’s Last-Minute Cheering Section**\
+`Republicans like President Trump, Stephen Miller and Elon Musk endorsed him ahead of New York City’s mayoral election. Stephen Colbert referred to them as “everyone New Yorkers love.”`\
+https://nytimes.com/2025/11/05/arts/television/late-night-chuckles-at-andrew-cuomos-last-minute-cheering-section.html
+
 **How to watch Steelers vs. Chargers: Time, TV, streaming**\
 `Find out how to watch the Pittsburgh Steelers play the Los Angeles Chargers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6779584/2025/11/05/steelers-vs-chargers-stream-how-to-watch-nov-9/
@@ -19,7 +27,7 @@ https://nytimes.com/2025/11/05/learning/word-of-the-day-innocuous.html
 https://nytimes.com/athletic/6778964/2025/11/05/bayern-munich-best-team-europe/
 
 **Thomas Frank and Spurs bask in incredible healing powers great goals can bring**\
-`After a painful defeat to Chelsea on Saturday, Thomas Frank and Spurs got exactly the reaction they needed in the Champions League`\
+`After a painful defeat to Chelsea on Saturday, Tottenham and their new manager got exactly the reaction they needed in the Champions League`\
 https://nytimes.com/athletic/6778859/2025/11/05/spurs-copenhagen-van-de-ven-frank/
 
 **With 80th consecutive 20-point game, SGA passes Oscar Robertson**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6779428/2025/11/05/shai-gilgeous-alexander-oscar-ro
 **Mamdani’s Mayoral Victory Divides Jewish New Yorkers**\
 `Jewish leaders had a mixed reaction to the election of Zohran Mamdani, who has repeatedly criticized Israel’s treatment of Palestinians and its conduct during the war in Gaza.`\
 https://nytimes.com/2025/11/05/nyregion/mamdani-jewish-leaders.html
-
-**'Defend our house' - The mindset that helped Arsenal match a defensive record set in 1903**\
-`"The most pleasing thing is probably not the record, it's the mindset of the players," said Arteta`\
-https://nytimes.com/athletic/6777847/2025/11/05/arsenal-defend-our-house/
-
-**California voters waited in long lines to cast ballots, even after the outcome was clear.**\
-`By Jill Cowan and Shawn Hubler`\
-https://nytimes.com/live/2025/11/04/us/election-new-jersey-california/california-voters-long-lines-prop-50
 
