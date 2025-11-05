@@ -1,3 +1,15 @@
+**In Russia, Bookstores Offer a Shrinking Refuge as Censorship Tightens**\
+`Restrictions on publishers and sellers have grown more severe. Volumes are being pulled from shelves or redacted like secret documents, but bookstores remain important sources of community.`\
+https://nytimes.com/2025/11/05/world/europe/russia-bookstores-refuge-censorship.html
+
+**How the Cowboys' active trade deadline helps them now and beyond**\
+`Dak Prescott and his teammates are "pumped" with Dallas adding Quinnen Williams, along with linebacker Logan Wilson on Tuesday.`\
+https://nytimes.com/athletic/6778997/2025/11/05/cowboys-trade-deadline-quinnen-williams/
+
+**What to Know About the Militia That Kidnapped Elizabeth Tsurkov**\
+`Kataib Hezbollah, a hard-line Iraqi militia linked to Iran, held Elizabeth Tsurkov, a citizen of Israel and Russia, hostage for more than two years.`\
+https://nytimes.com/2025/11/05/world/europe/what-to-know-about-the-militia-that-kidnapped-elizabeth-tsurkov.html
+
 **Mamdani’s Victory Is Less Significant Than You Think**\
 `New York’s next mayor won’t save the Democrats.`\
 https://nytimes.com/2025/11/05/opinion/mamdani-interesting-times-podcast.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/05/us/politics/shutdown-congress-georgia-health-care
 **Falcons DB Dee Alford became a target online, but this season he's changing the narrative**\
 `Falcons defensive back Dee Alford has been a target for a torrent of online abuse, but he's fighting back on the field this year.`\
 https://nytimes.com/athletic/6774914/2025/11/05/dee-alford-falcons-online-abuse/
-
-**Would You Tell the Truth Even if It Meant Giving Up a Trophy?**\
-`After discovering a scoring error, a girls basketball team forfeited its championship title. Is doing the right thing more important than trophies?`\
-https://nytimes.com/2025/11/05/learning/would-you-tell-the-truth-even-if-it-meant-giving-up-a-trophy.html
-
-**Brazil Proposes a New Type of Fund to Protect Tropical Forests**\
-`The multibillion-dollar fund would essentially pay countries to keep forests standing, hoping for success where earlier forest-protection ideas have struggled.`\
-https://nytimes.com/2025/11/05/climate/cop30-amazon-brazil-forest-fund.html
-
-**Mamdani’s Victory Is Less Significant Than You Think**\
-`Does Zohran Mamdani’s win mean a new dawn for the Democratic Party? Not exactly, Ross Douthat argues. In this mini-episode of “Interesting Times,” Ross explains that the New York mayor’s office has historically been a “springboard to nowhere,” rather than a precursor for national politics.`\
-https://nytimes.com/video/opinion/100000010502408/mamdanis-victory-is-less-significant-than-you-think.html
 
