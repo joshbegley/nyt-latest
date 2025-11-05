@@ -1,3 +1,7 @@
+**Yankees exercise Tim Hill's 2026 club option, begin work of rebuilding bullpen**\
+`Hill pitched to a 3.09 ERA in 70 games in 2025, leading the team in appearances. The lefty will make $3 million in 2026. `\
+https://nytimes.com/athletic/6777239/2025/11/05/yankees-tim-hill-club-option/
+
 **Is the U.S. Trade Deficit an ‘Emergency’?**\
 `Many of the president’s tariffs rest on the legal claim that the gap between what America imports and exports is a national emergency, an idea that remains contentious.`\
 https://nytimes.com/2025/11/05/us/politics/is-the-us-trade-deficit-an-emergency.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/05/world/middleeast/zohran-mamdani-israel-reaction.h
 **What is IEEPA, the Law Trump Used to Levy Tariffs?**\
 `The Supreme Court is set to consider the legality of tariffs the president has invoked emergency powers to place on many trading partners.`\
 https://nytimes.com/2025/11/05/us/politics/ieepa-scotus-trump-tariffs.html
-
-**What Are Tariffs?**\
-`The Supreme Court will hear arguments about presidential power to impose tariffs. But what are they?`\
-https://nytimes.com/2025/11/05/us/politics/what-are-tariffs.html
 
