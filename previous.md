@@ -1,3 +1,15 @@
+**See the New York Neighborhoods That Swept Mamdani to Victory**\
+`Zohran Mamdani captured a broader section of the electorate in the New York mayoral election compared with the primary. A Times analysis maps the differences.`\
+https://nytimes.com/interactive/2025/11/05/nyregion/nyc-mayor-election-results-mamdani-cuomo.html
+
+**Chelsea condemn alleged racist abuse of players during academy match vs Qarabag**\
+`A video posted to social media showed at least one fan making monkey gestures towards Chelsea players.`\
+https://nytimes.com/athletic/6780864/2025/11/05/chelsea-racism-abuse-qarabag-youth-league/
+
+**How Trade Tensions Sent Automakers Scrambling for Chips**\
+`Carmakers and their suppliers are piecing together new supply chains after a Chinese-owned company in the Netherlands was caught in the middle of the trade war, revealing European vulnerabilities.`\
+https://nytimes.com/2025/11/05/business/us-china-chips-automakers.html
+
 **For Mamdani, Winning Is One Thing. Governing Will Be Quite Another.**\
 `Being mayor of New York City is often referred to as the second hardest job in the country, but the task may be even more complicated for Zohran Mamdani.`\
 https://nytimes.com/2025/11/05/nyregion/mamdani-nyc-mayor-what-next.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6779930/2025/11/05/liverpool-real-madrid-champions-
 **For These Wild Irish Party Girls, Hints of an Adult Reckoning**\
 `In Gráinne O’Hare’s witty debut, “Thirst Trap,” 30th birthdays — and an unexpected death — signal new horizons (if not sobriety) for three longtime friends in Belfast.`\
 https://nytimes.com/2025/11/05/books/review/thirst-trap-grainne-ohare.html
-
-**Should I Warn Home Buyers About the Wailing Neighbor?**\
-`I don’t want to prevent a current neighbor from selling, but it feels as if disclosure should take place.`\
-https://nytimes.com/2025/11/05/magazine/magazine-email/warn-home-buyers-ethics.html
-
-**Giddey Notches Triple-Double, Pelicans Win First Game and Raptors Keep Rolling**\
-`An exciting night in the N.B.A. saw New Orleans earn its first win and a thriller in Chicago.`\
-https://nytimes.com/video/the-athletic/100000010505746/giddey-notches-triple-double-pelicans-win-first-game-and-raptors-keep-rolling.html
-
-**This Is What a Vindicated Iguana Looks Like**\
-`Reptiles on a Mexican island were considered an invasive species, but DNA evidence proves they beat humans to the island by hundreds of thousands of years.`\
-https://nytimes.com/2025/11/05/science/iguanas-mexico-invasive-species.html
 

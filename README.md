@@ -1,3 +1,7 @@
+**Jacob Frey Wins Third Term as Minneapolis Mayor**\
+`The race for Minneapolis mayor tested the appeal of democratic socialist policies, drawing comparisons to Zohran Mamdani’s mayoral bid in New York City.`\
+https://nytimes.com/2025/11/05/us/jacob-frey-minneapolis-mayor.html
+
 **See the New York Neighborhoods That Swept Mamdani to Victory**\
 `Zohran Mamdani captured a broader section of the electorate in the New York mayoral election compared with the primary. A Times analysis maps the differences.`\
 https://nytimes.com/interactive/2025/11/05/nyregion/nyc-mayor-election-results-mamdani-cuomo.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6780376/2025/11/05/nfl-week-10-survivor-pool-picks-
 **How Liverpool beat Real Madrid: A Champions League twist on a classic tactic**\
 `In Tuesday's victory over Xabi Alonso's side, manager Arne Slot found a novel way to counter disruptive tactics`\
 https://nytimes.com/athletic/6779930/2025/11/05/liverpool-real-madrid-champions-league-analysis-build-up/
-
-**For These Wild Irish Party Girls, Hints of an Adult Reckoning**\
-`In Gráinne O’Hare’s witty debut, “Thirst Trap,” 30th birthdays — and an unexpected death — signal new horizons (if not sobriety) for three longtime friends in Belfast.`\
-https://nytimes.com/2025/11/05/books/review/thirst-trap-grainne-ohare.html
 
