@@ -1,4 +1,8 @@
-**Deadly Louisville Air Crash Hits One of World’s Busiest Cargo Hubs**\
+**In Kim Kardashian’s New Show, Anything Can Be a Power Suit**\
+`“All’s Fair,” a new legal drama from Ryan Murphy, flips the idea of a corporate uniform on its head.`\
+https://nytimes.com/2025/11/05/style/kim-kardashian-show-alls-fair-power-suits.html
+
+**Deadly Louisville Air Crash Disrupts One of World’s Busiest Cargo Hubs**\
 `The crash killed nine people and forced a halt to operations at UPS Worldport, a major automated package sorting facility. UPS said that some deliveries could be delayed.`\
 https://nytimes.com/2025/11/05/world/europe/ups-louisville-shipping-delays.html
 
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/05/us/politics/trump-elections-economy-inflation.htm
 **Some SNAP Recipients May Not Receive Food Stamps Under White House Policy**\
 `Anti-hunger groups and state officials have warned that the administration’s plans to make partial payments are onerous and could still result in severe harm.`\
 https://nytimes.com/2025/11/05/us/politics/snap-payments-white-house.html
-
-**How to watch 76ers vs. Cavaliers: Time, TV, streaming**\
-`Find out how to watch the Philadelphia 76ers play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6780685/2025/11/05/76ers-vs-cavaliers-stream-how-to-watch-nov-5/
 
