@@ -1,3 +1,11 @@
+**How California Voted to Redraw Its Map**\
+`Voters in California approved a redistricting plan intended to partially neutralize a push by President Trump to draw up more safe Republican House seats before next year’s election.`\
+https://nytimes.com/video/us/politics/100000010495273/how-california-voted-to-redraw-its-map.html
+
+**NFL Week 10 Confidence picks: Seahawks, Broncos, Lions, Bills among top picks**\
+`KC Joyner gives his confidence picks for NFL Week 10 after going 10-4 in Week 9.`\
+https://nytimes.com/athletic/6779922/2025/11/05/nfl-week-10-confidence-picks-seahawks-broncos-lions-bills/
+
 **4 Progressive Mayors Offer Advice to Zohran Mamdani**\
 `Tips from young liberals in office: Manage the stress. Keep your mom off Facebook. Plow the snow.`\
 https://nytimes.com/2025/11/05/nyregion/progressive-mayors-advice-mamdani.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/05/us/politics/interior-department-layoffs-paused-sh
 **Fantasy football strength of schedule: Week 10 and playoff matchup rankings**\
 `Jake Ciely's Week 10 matchup rankings can help with difficult start/sit decisions this week. Playoff rankings aid future plans. `\
 https://nytimes.com/athletic/6780404/2025/11/05/fantasy-football-matchup-rankings-week-10-playoffs/
-
-**In the Trump Era, Cheney’s Brand of Conservatism Became Obsolete**\
-`Dick Cheney was once the face of hard-line conservatism. Then hard-line conservatism changed.`\
-https://nytimes.com/2025/11/05/us/politics/cheney-trump-brand-conservatism.html
-
-**Where Things Stand With SNAP Benefits**\
-`Millions of low-income Americans will see staggering cuts and delays to their food stamps this month due to the government shutdown. Tony Romm, an economic policy reporter at The New York Times, walks us through the last several weeks of chaos around SNAP benefits.`\
-https://nytimes.com/video/us/politics/100000010491315/where-things-stand-with-snap-benefits.html
 
