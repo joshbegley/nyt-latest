@@ -1,3 +1,15 @@
+**How the World Sees Mamdani: Icon, Threat, Proof of the American Dream**\
+`Zohran Mamdani’s improbable journey from Muslim immigrant to mayor-elect in New York City resonated across the globe in unpredictable ways.`\
+https://nytimes.com/2025/11/05/nyregion/global-reaction-mamdani.html
+
+**Astros closing in on hiring Padres hitting coach Victor Rodriguez: Sources**\
+`Rodriguez has served as hitting coach for the Red Sox, Guardians and Padres as part of a 29-year coaching career.`\
+https://nytimes.com/athletic/6781178/2025/11/05/astros-victor-rodriguez-hitting-coach-hire/
+
+**UFC betting scandal explained: Dana White says he called FBI over potentially fixed fight**\
+`In the days since Saturday's event, other fighters have taken to social media to say they have been approached about throwing fights.`\
+https://nytimes.com/athletic/6780028/2025/11/05/ufc-betting-scandal-dana-white-fbi/
+
 **NFL division odds: 3 races are still wide open at the halfway point**\
 `The Broncos are favored over Chiefs for the division, the Packers are favored over the Lions and Rams and Seahawks lead over 49ers.`\
 https://nytimes.com/athletic/6773861/2025/11/05/nfl-division-odds-betting/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/05/dining/french-fall-dinner-party.html
 **Walker Kessler to miss rest of season due to left shoulder injury: Sources**\
 `Kessler's surgery will be for a torn labrum, an injury he first incurred in college at Auburn.`\
 https://nytimes.com/athletic/6781125/2025/11/05/jazz-walker-kessler-miss-season-shoulder-injury/
-
-**Jennifer Lawrence on Why She Doesn’t Speak Out About Trump Anymore**\
-`Jennifer Lawrence has been politically outspoken in the past, especially during the first Trump administration. The host of “The Interview,” Lulu Garcia-Navarro, asked her how she feels about speaking out and taking a stand right now.`\
-https://nytimes.com/video/podcasts/100000010506100/jennifer-lawrence-on-why-she-doesnt-speak-out-about-trump-anymore.html
-
-**Mamdani’s Beard Gives Him Another Mayoral Milestone**\
-`New York has not had a bearded mayor since 1913. Mayor-elect Zohran Mamdani’s beard marks him as a millennial with a mandate to shake up the system.`\
-https://nytimes.com/2025/11/05/nyregion/zohran-mamdani-beard-nyc-mayor.html
-
-**‘Girl, Interrupted,’ With Aimee Mann Songs, to Be Staged in New York**\
-`The Public Theater will present the play, which Martyna Majok adapted from the best-selling memoir.`\
-https://nytimes.com/2025/11/05/theater/girl-interrupted-aimee-mann-martyna-majok.html
 
