@@ -1,4 +1,4 @@
-**On Eve of Record Shutdown, Trump Administration Threatens Pain Could Worsen**\
+**On Eve of Shutdown Record, Trump Administration Threatens Pain Could Worsen**\
 `President Trump and administration officials indicated the fallout could intensify in the coming days, even as he has kept himself at a remove from the crisis.`\
 https://nytimes.com/2025/11/04/us/politics/trump-administration-pain-shutdown.html
 
