@@ -1,3 +1,7 @@
+**The Most Detailed Map of the N.Y.C. Mayoral Election**\
+`See how New Yorkers are voting, precinct by precinct`\
+https://nytimes.com/interactive/2025/11/04/us/elections/nyc-mayor-results-precinct-map.html
+
 **The Lions' quiet trade deadline day: Why they stood pat and where things stand at key spots**\
 `The Lions are healthier at this point than a season ago and that played into their decision to not make any moves.`\
 https://nytimes.com/athletic/6778627/2025/11/04/detroit-lions-trade-deadline-day/
@@ -22,19 +26,15 @@ https://nytimes.com/2025/11/04/us/atlanta-andre-dickens-mayor-race.html
 `The 22-year-old would need to file a one-time switch to be eligible to represent Mexico. His only two caps with the USMNT came in January.`\
 https://nytimes.com/athletic/6778740/2025/11/04/brian-gutierrez-mexican-passport-eligibility/
 
-**Chargers' trade for Trevor Penning will not repair Los Angeles' ceiling for 2025**\
+**Chargers' trade for Trevor Penning will not repair their 2025 ceiling**\
 `The Chargers needed to make an addition to the offensive line, but Penning isn't going to transform them back into contenders.`\
 https://nytimes.com/athletic/6778759/2025/11/04/chargers-nfl-trade-deadline-trevor-penning/
 
 **Colts GM Chris Ballard is ‘All. Chips. In.’ with trade for Sauce Gardner**\
-`With his latest move, Ballard has given the Colts fan base something even more dangerous: Hope.`\
+`With his latest move, Ballard has given Colts fans something even more dangerous: Hope.`\
 https://nytimes.com/athletic/6778696/2025/11/04/colts-sauce-gardner-jets-trade-chris-ballard/
 
 **Kevin Durant responds to Draymond Green's defense comments**\
 `Former Golden State Warriors teammates continue debate, sharing their different basketball philosophies.`\
 https://nytimes.com/athletic/6778698/2025/11/04/draymond-green-kevin-durant-response-defense-nba/
-
-**Spanberger Wins Virginia Governor’s Race With Forceful Anti-Trump Campaign**\
-`Abigail Spanberger, a former congresswoman and C.I.A. officer, will be the first woman to serve as governor of Virginia, following a streak of 74 men.`\
-https://nytimes.com/2025/11/04/us/politics/virginia-governor-election-spanberger.html
 

@@ -1,3 +1,11 @@
+**The Lions' quiet trade deadline day: Why they stood pat and where things stand at key spots**\
+`The Lions are healthier at this point than a season ago and that played into their decision to not make any moves.`\
+https://nytimes.com/athletic/6778627/2025/11/04/detroit-lions-trade-deadline-day/
+
+**Eagles GM Howie Roseman reflects on many moves before trade deadline: "They made sense"**\
+`Roseman was busy adding to the defending Super Bowl champions for another run.`\
+https://nytimes.com/athletic/6778351/2025/11/04/howie-roseman-trade-deadline-jaelan-phillips-jaire-alexander/
+
 **Ohio State, Indiana take top two spots in initial CFP rankings**\
 `This year, the CFP seeds will simply match the committee's rankings, instead of reserving byes for conference champions.`\
 https://nytimes.com/athletic/6777370/2025/11/04/college-football-playoff-first-rankings-top-25/
