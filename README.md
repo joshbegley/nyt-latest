@@ -1,3 +1,19 @@
+**'Road to 1 Point': TikTok journey ends as FGCU walk-on Brandon Dwyer finally scores**\
+`FGCU preferred walk-on and tiktok star Brandon Dwyer finally scores first NCAA basket ending his "road to one" social media series`\
+https://nytimes.com/athletic/6781736/2025/11/05/tiktok-fgcu-walk-on-brandon-dwyer/
+
+**Leafs assign Easton Cowan to AHL: Why they made the move and what's next**\
+`The 2023 first-round pick recorded four points in 10 games with the Maple Leafs this season.`\
+https://nytimes.com/athletic/6781788/2025/11/05/maple-leafs-easton-cowan-ahl-marlies/
+
+**An Emboldened Mamdani Sheds Conciliatory Tone**\
+`Fresh from a stunning victory, Zohran Mamdani, the mayor-elect, said in an interview that his supporters wanted “a politics of consistency” and aggressive action, including on taxing the rich.`\
+https://nytimes.com/2025/11/05/nyregion/zohran-mamdani-wins-interview.html
+
+**Hundreds Protest Opening of Shein’s First Brick-and-Mortar Store**\
+`Hundreds of protesters in Paris gathered as the Chinese fast-fashion retailer opened its first physical store on Wednesday, speaking out against the company’s environmental and human rights abuses.`\
+https://nytimes.com/video/world/europe/100000010506308/shein-protests-paris-child-pornography.html
+
 **A Zohran Mamdani Ad Used a Bob Dylan Song. The Music Was Removed.**\
 `New York’s next mayor played “The Times They Are a-Changin’” in a spot on social media. The company that owns Dylan’s catalog said his songs can’t be used for politics.`\
 https://nytimes.com/2025/11/05/arts/music/zohran-mamdani-bob-dylan-song.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6780474/2025/11/05/john-mcginn-interview-aston-vill
 **Why the Bronx Swung Toward Mamdani in the General Election**\
 `Voters in New York City’s poorest borough came out in droves to support Zohran Mamdani, energized by his visits to their neighborhoods and his promises to tackle the cost of living.`\
 https://nytimes.com/2025/11/05/nyregion/nyc-mayor-election-mamdani-bronx.html
-
-**Libya Detains Former Prison Director Wanted for Crimes Against Humanity**\
-`Osama Elmasry Njeem was arrested in Italy in January but sent back to Libya, as critics accused the Italian government of failing to stand up for human rights.`\
-https://nytimes.com/2025/11/05/world/middleeast/libya-italy-njeem.html
-
-**Officials Warn Air Traffic Will Soon Be Cut by 10 Percent in 40 Markets if Shutdown Continues**\
-`Sean Duffy, the transportation secretary, warned earlier this week that if the shutdown went on, he could close parts of the national airspace to traffic.`\
-https://nytimes.com/2025/11/05/us/politics/faa-flights-air-traffic-government-shutdown.html
-
-**Reds decline options on Austin Hays, Scott Barlow and Brent Suter**\
-`The Reds parted ways with two relievers and an outfielder who was productive but missed a lot of time with injuries in 2025.`\
-https://nytimes.com/athletic/6781679/2025/11/05/reds-options-austin-hays-scott-barlow-brent-suter/
-
-**Five Key Takeaways From the Supreme Court Tariff Argument**\
-`The Supreme Court justices grappled with the legality of President Trump’s tariffs in an oral argument that stretched for almost three hours.`\
-https://nytimes.com/2025/11/05/us/politics/supreme-court-tariff-takeaways.html
 
