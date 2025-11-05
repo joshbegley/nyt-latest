@@ -1,3 +1,11 @@
+**Winners and losers of NHL’s skyrocketing cap: Kirill Kaprizov, small market worries, and more**\
+`Based on market trends and conversations The Athletic had with agents and executives, here's a look at the implications of the cap rise.`\
+https://nytimes.com/athletic/6764226/2025/11/05/nhl-salary-cap-winners-and-losers/
+
+**The Pulse: A seismic NFL trade deadline**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6776934/2025/11/05/nfl-trade-deadline-recap-the-pulse/
+
 **After a wild win and a minor trade, where do the upstart Bears go from here?**\
 `Can Ben Johnson's Bears parlay their surprising start into something much bigger? The hope is building in Chicago.`\
 https://nytimes.com/athletic/6778430/2025/11/05/bears-ben-johnson-midseason-hope/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6737460/2025/11/05/nhl-draft-2026-prospects-ranking
 **At Alabama, football and fashion collide on sorority row: 'People watch us like we're in a snow globe'**\
 `The outfits are grand and unapologetically bougie. For some women, this is the stage to cash in on the influencer cachet sweeping campuses.`\
 https://nytimes.com/athletic/6777899/2025/11/05/alabama-football-sorority-fashion/
-
-**Flanked by his family, new Orioles manager Craig Albernaz preaches preparation**\
-`Bigger, better and newer things are coming to Baltimore baseball, and the Orioles believe Albernaz is one of them.`\
-https://nytimes.com/athletic/6778824/2025/11/05/baltimore-orioles-craig-albernaz-hire-future/
-
-**Kyle Dubas on the Penguins, Crosby, Olympics and what he wouldn't change about his Maple Leafs exit**\
-`Dubas reflected on his time as Leafs GM while back in Toronto with the Pens: "The goal was to win, and we didn’t get it done. That’s on me."`\
-https://nytimes.com/athletic/6776978/2025/11/05/kyle-dubas-penguins-olympics-maple-leafs/
 

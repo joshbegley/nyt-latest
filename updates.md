@@ -1,3 +1,11 @@
+**Winners and losers of NHL’s skyrocketing cap: Kirill Kaprizov, small market worries, and more**\
+`Based on market trends and conversations The Athletic had with agents and executives, here's a look at the implications of the cap rise.`\
+https://nytimes.com/athletic/6764226/2025/11/05/nhl-salary-cap-winners-and-losers/
+
+**The Pulse: A seismic NFL trade deadline**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6776934/2025/11/05/nfl-trade-deadline-recap-the-pulse/
+
 **After a wild win and a minor trade, where do the upstart Bears go from here?**\
 `Can Ben Johnson's Bears parlay their surprising start into something much bigger? The hope is building in Chicago.`\
 https://nytimes.com/athletic/6778430/2025/11/05/bears-ben-johnson-midseason-hope/
