@@ -1,3 +1,23 @@
+**How the World Sees Mamdani: Icon, Threat, Proof of the American Dream**\
+`Zohran Mamdani’s improbable journey from Muslim immigrant to mayor-elect in New York City resonated across the globe in unpredictable ways.`\
+https://nytimes.com/2025/11/05/nyregion/global-reaction-mamdani.html
+
+**Astros closing in on hiring Padres hitting coach Victor Rodriguez: Sources**\
+`Rodriguez has served as hitting coach for the Red Sox, Guardians and Padres as part of a 29-year coaching career.`\
+https://nytimes.com/athletic/6781178/2025/11/05/astros-victor-rodriguez-hitting-coach-hire/
+
+**UFC betting scandal explained: Dana White says he called FBI over potentially fixed fight**\
+`In the days since Saturday's event, other fighters have taken to social media to say they have been approached about throwing fights.`\
+https://nytimes.com/athletic/6780028/2025/11/05/ufc-betting-scandal-dana-white-fbi/
+
+**NFL division odds: 3 races are still wide open at the halfway point**\
+`The Broncos are favored over Chiefs for the division, the Packers are favored over the Lions and Rams and Seahawks lead over 49ers.`\
+https://nytimes.com/athletic/6773861/2025/11/05/nfl-division-odds-betting/
+
+**Candidates Notched Several Historic Firsts in the Election**\
+`New York will have its first Muslim mayor. Virginia will have its first female governor, and, for the first time in U.S. history, a Muslim woman will hold statewide office.`\
+https://nytimes.com/2025/11/05/us/election-candidates-historic-firsts.html
+
 **Drew Brees joins Fox as NFL analyst, potentially replacing Mark Sanchez: Sources**\
 `Future Hall of Famer joins Tom Brady and Greg Olsen as Fox Sports analysts, is expected to team with play-by-play announcer Adam Amin.`\
 https://nytimes.com/athletic/6778645/2025/11/05/drew-brees-fox-sports-nfl-mark-sanchez/
