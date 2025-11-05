@@ -1,3 +1,7 @@
+**The New York Times in Print for Wednesday, Nov. 5, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/05/todays-new-york-times
+
 **Can Tuesday’s Success Carry Democrats Further Than the Midterms?**\
 `Victories across the country show promise for the party’s chances next year, but some bigger issues remain.`\
 https://nytimes.com/2025/11/05/upshot/democrats-election-results-analysis.html

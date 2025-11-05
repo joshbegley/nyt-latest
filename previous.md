@@ -1,3 +1,7 @@
+**The New York Times in Print for Wednesday, Nov. 5, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/05/todays-new-york-times
+
 **Can Tuesday’s Success Carry Democrats Further Than the Midterms?**\
 `Victories across the country show promise for the party’s chances next year, but some bigger issues remain.`\
 https://nytimes.com/2025/11/05/upshot/democrats-election-results-analysis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/05/nyregion/mamdani-wife-rama-duwaji.html
 **New York Muslims Exult in Mamdani’s Victory: ‘Now This Is Our Time’**\
 `Zohran Mamdani’s victory as the city’s next mayor is a milestone for hundreds of thousands of residents who see one of their own atop the city’s political infrastructure.`\
 https://nytimes.com/2025/11/05/us/muslim-new-yorkers-mamdani.html
-
-**California Voters Approved a New Map That Helps Democrats. Now What?**\
-`Five districts held by Republicans become potential Democratic pickups, but some remain highly competitive. And a number of incumbent lawmakers have easier pathways to re-election.`\
-https://nytimes.com/2025/11/05/us/politics/california-prop-50-map-redistricting-democrats.html
 

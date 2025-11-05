@@ -1,3 +1,11 @@
+**In a Speech Full of Hope, Mamdani Celebrates a New Political Order**\
+`Zohran Mamdani, in his victory speech, celebrated New York’s immigrants, working class and young people and said the city could show the country how to defeat President Trump.`\
+https://nytimes.com/2025/11/05/nyregion/mamdani-speech-victory-nyc.html
+
+**In the New York City Council, Democrats Win Key Races**\
+`Democratic candidates won contested races in Brooklyn, the Bronx and Queens, but a Republican firebrand won re-election.`\
+https://nytimes.com/2025/11/05/nyregion/nyc-city-council-democrats.html
+
 **The New York Times in Print for Wednesday, Nov. 5, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/05/todays-new-york-times
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/05/us/politics/nj-governor-takeaways.html
 **The Backlash Has Arrived: 6 Takeaways From a Good Night for Democrats**\
 `In Virginia, New Jersey and beyond, Democratic voters powered their candidates to victory and sent a warning sign to President Trump and his Republican Party.`\
 https://nytimes.com/2025/11/05/us/politics/election-takeaways-democrats.html
-
-**Rama Duwaji, Mamdani’s Wife, Carves a Path of Her Own**\
-`Ms. Duwaji, an accomplished artist and reluctant campaigner, steps onto center stage alongside New York City’s new mayor.`\
-https://nytimes.com/2025/11/05/nyregion/mamdani-wife-rama-duwaji.html
-
-**New York Muslims Exult in Mamdani’s Victory: ‘Now This Is Our Time’**\
-`Zohran Mamdani’s victory as the city’s next mayor is a milestone for hundreds of thousands of residents who see one of their own atop the city’s political infrastructure.`\
-https://nytimes.com/2025/11/05/us/muslim-new-yorkers-mamdani.html
 
