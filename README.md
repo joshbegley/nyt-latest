@@ -1,3 +1,11 @@
+**Mamdani was elected with a thinner résumé than his predecessors as mayor.**\
+`The mayor-elect’s rivals focused on his inexperience during the campaign. Voters appeared to put more weight on his vision.`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/mamdani-was-elected-with-a-thinner-resume-than-his-predecessors-as-mayor
+
+**How Mamdani Built a Winning Campaign in One Short Year**\
+`A timeline of Zohran Mamdani’s rise from little-known lawmaker to mayor-elect of New York City.`\
+https://nytimes.com/interactive/2025/11/04/nyregion/zohran-mamdani-wins-nyc-mayor-election-timeline.html
+
 **Jay Jones Defeats the Incumbent, Jason Miyares, for Virginia Attorney General**\
 `Jones, a Democrat, overcame revelations that he had sent violent texts suggesting that a Republican official deserved to be killed.`\
 https://nytimes.com/2025/11/04/us/elections/jay-jones-virginia-attorney-general-results.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/04/science/space/china-space-station-debris.html
 **Democrats to Keep Majority on Pennsylvania State Supreme Court**\
 `Voters chose to keep three Democratic justices for 10 more years, a critical victory for Democrats in the biggest swing state in the country.`\
 https://nytimes.com/2025/11/04/us/politics/democrats-pennsylvania-state-supreme-court.html
-
-**Police Charge Man in Fire at Home of Portland City Councilor**\
-`The authorities, who were investigating the fire as a possible arson, said on Tuesday that it was “not a targeted act of violence.”`\
-https://nytimes.com/2025/11/04/us/andace-avalos-fire-arrest-portland-city-councilor.html
-
-**How Mayor Mamdani Can Write New York’s Next Chapter**\
-`Mamdani, who campaigned on sweeping promises, can build a positive legacy by focusing on tangible accomplishments.`\
-https://nytimes.com/2025/11/04/opinion/mayor-mamdani-new-york-election.html
 
