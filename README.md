@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6779897/2025/11/05/bulls-comeback-sixers-nba-start/
 `Republicans and Democrats remain divided even as the pain of the shutdown intensifies and lawmakers in both parties say a breakthrough could come soon.`\
 https://nytimes.com/live/2025/11/05/us/trump-shutdown-news/shutdown-enters-36th-day-as-stalemate-in-congress-continues
 
-**Trump Administration Live Updates: President Meets With G.O.P. Senators as Shutdown Breaks Record**\
+**Trump Administration Live Updates: President Says Eliminating Filibuster Is ‘Only Way’ to End Record-Long Shutdown**\
 ``\
 https://nytimes.com/live/2025/11/05/us/trump-shutdown-news
 
