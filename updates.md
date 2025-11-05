@@ -1,3 +1,7 @@
+**By moving Florian Wirtz to the left, Liverpool look to have found a home for a rare talent**\
+`Arsene Wenger said the champions had “destroyed their midfield” by playing the £116m summer buy as a No 10, now they have found balance`\
+https://nytimes.com/athletic/6779526/2025/11/05/florian-wirtz-arsene-wenger/
+
 **Mamdani Calls, and His Supporters Respond**\
 `At the Brooklyn Paramount, die-hard fans of Zohran Mamdani, New York City’s mayor-elect, enthusiastically ushered out the old guard as they celebrated his victory.`\
 https://nytimes.com/2025/11/05/nyregion/mamdani-victory-party.html
