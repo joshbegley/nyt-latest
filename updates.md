@@ -1,3 +1,15 @@
+**Democrats’ Big Night in Virginia Makes History for Muslims**\
+`Ghazala Hashmi, elected as lieutenant governor, became the first Muslim woman to win statewide office in any state.`\
+https://nytimes.com/2025/11/04/us/politics/ghazala-hashmi-virginia.html
+
+**What We Know About the UPS Plane Crash in Louisville**\
+`Seven people were dead after the cargo plane crashed soon after takeoff. The authorities canceled flights from the airport in Louisville, Ky., and local residents were ordered to remain indoors.`\
+https://nytimes.com/2025/11/04/us/plane-crash-louisville-kentucky-ups.html
+
+**McGreevey’s Bid for Political Comeback Moves to a Runoff**\
+`Jim McGreevey, the former governor of New Jersey, is hoping to become the mayor of Jersey City. No candidate won 50 percent of the vote, so the race is headed to a runoff.`\
+https://nytimes.com/2025/11/04/us/politics/mcgreevey-jersey-city-mayor-runoff.html
+
 **In an Upset, Democrats Oust Two Republicans on Georgia’s Utility Board**\
 `The races for two of the five seats on the Georgia Public Service Commission are seen as a bellwether for the midterms.`\
 https://nytimes.com/2025/11/04/us/georgia-election-utility-board-results.html
