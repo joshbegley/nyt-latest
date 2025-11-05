@@ -1,3 +1,15 @@
+**Giddey Notches Triple-Double, Pelicans Win First Game and Raptors Keep Rolling**\
+`An exciting night in the N.B.A. saw New Orleans earn its first win and a thriller in Chicago.`\
+https://nytimes.com/video/the-athletic/100000010505746/giddey-notches-triple-double-pelicans-win-first-game-and-raptors-keep-rolling.html
+
+**This Is What a Vindicated Iguana Looks Like**\
+`Reptiles on a Mexican island were considered an invasive species, but DNA evidence proves they beat humans to the island by hundreds of thousands of years.`\
+https://nytimes.com/2025/11/05/science/iguanas-mexico-invasive-species.html
+
+**Chelsea sale controversy: What has Abramovich said? What is UK government view? What does it mean for Ukraine funds?**\
+`What do these accounts tells us about the funds from the sale? What has caused the delay? The Athletic explains`\
+https://nytimes.com/athletic/6780372/2025/11/05/chelsea-sale-abramovich-fordstam-ukraine/
+
 **In Kim Kardashian’s New Show, Anything Can Be a Power Suit**\
 `“All’s Fair,” a new legal drama from Ryan Murphy, flips the idea of a corporate uniform on its head.`\
 https://nytimes.com/2025/11/05/style/kim-kardashian-show-alls-fair-power-suits.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6780472/2025/11/05/college-football-playoff-bubble-
 **Wrexham CEO claims Eriksen thought club wanted him for docu series**\
 `Newly-promoted Wrexham made a play to sign Eriksen on a free transfer over the summer following his departure from Manchester United.`\
 https://nytimes.com/athletic/6780273/2025/11/05/christian-eriksen-transfer-wrexham-documentary/
-
-**'Best viewership in years': 27.3 million U.S. fans watched Game 7 of the World Series**\
-`The combined North American TV audience for Game 7? An incredible 38.2 million viewers.`\
-https://nytimes.com/athletic/6780686/2025/11/05/mlb-world-series-tv-ratings-fox-dodgers/
-
-**Elections Show Trump’s Edge on the Economy Slipping**\
-`Democrats harnessed worries about the cost of living, with polls showing that Republicans’ longtime advantage on the economy has evaporated.`\
-https://nytimes.com/2025/11/05/us/politics/trump-elections-economy-inflation.html
-
-**Some SNAP Recipients May Not Receive Food Stamps Under White House Policy**\
-`Anti-hunger groups and state officials have warned that the administration’s plans to make partial payments are onerous and could still result in severe harm.`\
-https://nytimes.com/2025/11/05/us/politics/snap-payments-white-house.html
 
