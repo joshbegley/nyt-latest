@@ -1,3 +1,11 @@
+**Penguins shuffle roster: Jarry hurt, Murashov set to debut, Pickering sent to Wilkes-Barre**\
+`Highly touted goalie prospect Sergei Murashov has arrived in Pittsburgh amidst a rash of Penguins injuries.`\
+https://nytimes.com/athletic/6778962/2025/11/04/penguins-jarry-injury-murashov-heinen-pickering/
+
+**Clemson coach Dabo Swinney goes off on ACC officiating again**\
+`After being fined $10,000 on Sunday, Swinney continued to slam the performance of officials.`\
+https://nytimes.com/athletic/6779130/2025/11/04/clemson-coach-dabo-swinney-acc-officiating/
+
 **Red Panda makes return to halftime heroics after months-long injury absence**\
 `Before Tuesday, Red Panda hadn’t appeared at a game since she fell and broke her left wrist in July`\
 https://nytimes.com/athletic/6779167/2025/11/04/red-panda-returns-nba-halftime-chicago-bulls/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/04/us/politics/maine-voting-ballot-measure.html
 **Maine Voters Approve ‘Red Flag’ Gun Law**\
 `The law is set to take effect in January, allowing families to directly seek a judge’s order removing weapons from a relative shown to be dangerous.`\
 https://nytimes.com/2025/11/04/us/maine-ballot-red-flag-law.html
-
-**How Zohran Mamdani Beat Back New York’s Elite and Was Elected Mayor**\
-`The 34-year-old assemblyman won the Democratic primary by defying the city’s all-powerful establishment. He secured the mayoralty by delicately disarming it.`\
-https://nytimes.com/2025/11/04/nyregion/how-zohran-mamdani-won-nyc-mayor.html
-
-**Someone Comparable**\
-`Chad Hazen and Jeff Chen make a very likable puzzle.`\
-https://nytimes.com/2025/11/04/crosswords/daily-puzzle-2025-11-05.html
 
