@@ -1,9 +1,21 @@
+**Read the Judge’s Order**\
+`Judge Robert W. Gettleman imposed restrictions on an immigration facility in Broadview, Ill., which has been a center of protests.`\
+https://nytimes.com/interactive/2025/11/05/us/trobroadview.html
+
+**Why the Phillies are bringing back José Alvarado by exercising $9 million club option**\
+`The decision reflects the club's confidence that Alvarado can return to form after a season interrupted by an 80-game PED suspension. `\
+https://nytimes.com/athletic/6763938/2025/11/05/phillies-jose-alvarado-contract-option/
+
+**Mexico’s President Presses Charges Against Man Who Groped Her on the Street**\
+`A video of a man touching the country’s first female president, Claudia Sheinbaum, shocked many Mexicans and led her to file a report with the police.`\
+https://nytimes.com/2025/11/05/world/americas/sheinbaum-man-video-charges.html
+
 **Police Investigating ‘Suspicious’ Deaths of 4 in Bronx Apartment**\
 `Investigators did not name the victims or explain what happened. Residents of the building were stunned by the deaths of cherished neighbors.`\
 https://nytimes.com/2025/11/05/nyregion/bronx-four-dead.html
 
 **Is Wrexham's Dom Hyam their surprise signing of the season?**\
-`Hyam's presence in the back three has become a reassuring sight for both supporters and team-mates alike after his summer move.`\
+`Hyam's presence in the back three has become a reassuring sight for both supporters and team-mates alike after his summer move`\
 https://nytimes.com/athletic/6780453/2025/11/05/dom-hyam-wrexham-transfer/
 
 **Will South Florida’s Real Estate Market Benefit From Mamdani’s Victory?**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6781788/2025/11/05/maple-leafs-easton-cowan-ahl-mar
 **An Emboldened Mamdani Sheds Conciliatory Tone**\
 `Fresh from a stunning victory, Zohran Mamdani, the mayor-elect, said in an interview that his supporters wanted “a politics of consistency” and aggressive action, including on taxing the rich.`\
 https://nytimes.com/2025/11/05/nyregion/zohran-mamdani-wins-interview.html
-
-**Hundreds Protest Opening of Shein’s First Brick-and-Mortar Store**\
-`Hundreds of protesters in Paris gathered as the Chinese fast-fashion retailer opened its first physical store on Wednesday, speaking out against the company’s environmental and human rights abuses.`\
-https://nytimes.com/video/world/europe/100000010506308/shein-protests-paris-child-pornography.html
-
-**A Zohran Mamdani Ad Used a Bob Dylan Song. The Music Was Removed.**\
-`New York’s next mayor played “The Times They Are a-Changin’” in a spot on social media. The company that owns Dylan’s catalog said his songs can’t be used for politics.`\
-https://nytimes.com/2025/11/05/arts/music/zohran-mamdani-bob-dylan-song.html
-
-**Tiny Love Stories: ‘The Moment I Remember Most’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/11/05/style/tiny-modern-love-stories-the-moment-i-remember-most.html
 
