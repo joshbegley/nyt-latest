@@ -1,3 +1,7 @@
+**Why the Panthers didn't make a deal before the trade deadline**\
+`GM Dan Morgan decided against making a deal after Carolina upset the Packers and improved to 5-4, a game and a half behind Tampa Bay.`\
+https://nytimes.com/athletic/6778556/2025/11/04/carolina-panthers-nfl-trade-deadline/
+
 **What to Know About Canada’s New Budget**\
 `The government of Prime Minister Mark Carney unveiled a program of big spending to spur Canada’s economy and reduce its dependence on the United States.`\
 https://nytimes.com/2025/11/04/world/canada/what-to-know-canada-budget.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6778085/2025/11/04/what-is-kalshi-the-predictions-m
 **Seahawks, John Schneider thinking big with trade for Rashid Shaheed**\
 `For now, Shaheed is a one-year rental, and the Seahawks are now short on draft capital, but the deal could have upside beyond 2025.`\
 https://nytimes.com/athletic/6778089/2025/11/04/seahawks-trade-deadline-rashid-shaheed-john-schneider/
-
-**Polls Have Shown Rising Support for California’s Redistricting Measure**\
-`The measure, known as Proposition 50, is an attempt to counter a push in Republican-led states to redraw congressional districts.`\
-https://nytimes.com/2025/11/04/business/california-redistricting-polls-proposition-50.html
 
