@@ -1,3 +1,7 @@
+**Attacked by Swarm of Wasps, American Father and Son Die in Laos**\
+`Daniel Owen, 47, and his son, Cooper, 15, died after being stung dozens of times last month by what appeared to be so-called murder hornets.`\
+https://nytimes.com/2025/11/05/world/asia/laos-wasp-attack-father-son.html
+
 **Palace charged by FA for alleged 'provocative' behaviour by fans during Forest game**\
 `A banner appearing to show Forest owner Evangelos Marinakis was held up in Selhurst Park's Lower Holmesdale Stand during the fixture.`\
 https://nytimes.com/athletic/6574063/2025/11/05/crystal-palace-forest-banner-fa-charge/
@@ -18,8 +22,8 @@ https://nytimes.com/live/2025/11/05/us/trump-shutdown-news
 `Last month, Dana Brown even acknowledged the Astros are “going to probably be in the market, for sure, to trade for” a starting pitcher.`\
 https://nytimes.com/athletic/6778699/2025/11/05/astros-offseason-outlook-trade-candidates/
 
-**Mandel's Mailbag: Nothing suggests Ohio State is a fraud. Can a 9-3 Texas still sneak in?**\
-`If Texas pulls out wins over Texas A&M or Georgia, it could make the College Football Playoff with three losses.`\
+**Mandel's Mailbag: Nothing suggests Ohio State is a fraud — and can a 9-3 Texas sneak in?**\
+`If Texas pulls out a win over Texas A&M or Georgia, it could make the College Football Playoff with three losses.`\
 https://nytimes.com/athletic/6779301/2025/11/05/texas-ohio-state-playoffs-mandels-mailbag/
 
 **How Bayern's clever press made the European champions look helpless for 45 minutes**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6778604/2025/11/05/patriots-mailbag-nfl-trade-deadl
 **Bradley and Robertson are back - and Liverpool look much better for it**\
 `The return of Arne Slot's two most defensively-secure full-backs has helped spark an overall return to form`\
 https://nytimes.com/athletic/6776368/2025/11/05/liverpool-conor-bradley-andy-robertson/
-
-**Ugandan Youth Hope Mamdani’s Win Brings Change**\
-`Zohran Mamdani’s win in New York’s mayoral race has drawn limited attention in Uganda, where he was born. Still, some young people who are facing limited opportunities feel invigorated by Mamdani’s victory.`\
-https://nytimes.com/video/world/africa/100000010504902/ugandan-youth-hope-mamdanis-win-brings-change.html
 
