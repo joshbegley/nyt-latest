@@ -1,3 +1,7 @@
+**College Football Playoff odds: One contender saw its odds move after rankings reveal**\
+`The betting odds on which teams will make the College Football Playoff tell an interesting story compared to the rankings.`\
+https://nytimes.com/athletic/6778580/2025/11/05/college-football-playoff-odds-oregon-miami/
+
 **Irish Police Got a Call About a Lion. It Was Actually a Dog Named Mouse.**\
 `A truck driver’s grainy video spurred bewilderment and speculation about a lion roaming in Ireland. Turns out it was a dog with an aggressive haircut.`\
 https://nytimes.com/2025/11/05/world/ireland-lion-dog-mouse.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010505114/bosnia-retirement-home-fi
 **Padres offseason primer: The manager search, Preller’s status and rotation holes**\
 `The clock is ticking as loudly as ever for A.J. Preller to construct a legitimate World Series contender in San Diego.`\
 https://nytimes.com/athletic/6779461/2025/11/05/padres-offseason-primer-manager-search-preller/
-
-**Stock watch: Which Oilers free-agent signings are thriving? Who's struggling?**\
-`The overall feel of the Oilers' free-agent moves during the summer of 2025 is mildly positive.`\
-https://nytimes.com/athletic/6777137/2025/11/05/oilers-stats-players-stock-watch-2025/
 

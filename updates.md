@@ -1,3 +1,7 @@
+**College Football Playoff odds: One contender saw its odds move after rankings reveal**\
+`The betting odds on which teams will make the College Football Playoff tell an interesting story compared to the rankings.`\
+https://nytimes.com/athletic/6778580/2025/11/05/college-football-playoff-odds-oregon-miami/
+
 **Irish Police Got a Call About a Lion. It Was Actually a Dog Named Mouse.**\
 `A truck driver’s grainy video spurred bewilderment and speculation about a lion roaming in Ireland. Turns out it was a dog with an aggressive haircut.`\
 https://nytimes.com/2025/11/05/world/ireland-lion-dog-mouse.html
