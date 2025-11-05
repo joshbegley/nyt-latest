@@ -1,3 +1,11 @@
+**Cavan Sullivan's goal delivers USA U-17s World Cup win over Burkina Faso**\
+`The Man City-bound midfielder came off the bench to help the U.S. secure all three points in Qatar`\
+https://nytimes.com/athletic/6781579/2025/11/05/cavan-sullivan-usa-burkina-faso-u17-world-cup/
+
+**Right-Wing Media Warns of Socialism and Chaos After Mamdani Victory**\
+`A New York Post cover about “The Red Apple” went viral, and a “Fox & Friends” host told viewers, “We don’t want to turn into Caracas.”`\
+https://nytimes.com/2025/11/05/business/media/mamdani-victory-right-wing-media.html
+
 **After Mamdani Win, Schumer Rejects Charges He’s Out of Touch**\
 `The top Senate Democrat was reluctant to say why he stayed on the sidelines of the mayoral race and denied that Zohran Mamdani’s victory reflected poorly on him.`\
 https://nytimes.com/2025/11/05/nyregion/schumer-mamdani-nyc-mayor-election.html
