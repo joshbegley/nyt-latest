@@ -19,7 +19,7 @@ https://nytimes.com/2025/11/05/crosswords/spelling-bee-forum.html
 https://nytimes.com/athletic/6779561/2025/11/05/stephen-curry-skip-game-cold-warriors/
 
 **By moving Florian Wirtz to the left, Liverpool look to have found a home for a rare talent**\
-`Arsene Wenger said Liverpool had “destroyed their midfield” by playing Florian Wirtz as a No 10, now they have found balance`\
+`Arsene Wenger said the champions had “destroyed their midfield” by playing the £116m summer buy as a No 10, now they have found balance`\
 https://nytimes.com/athletic/6779526/2025/11/05/florian-wirtz-arsene-wenger/
 
 **With Trademark Defiance, Cuomo Contemplates Another Loss**\
