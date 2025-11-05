@@ -1,3 +1,15 @@
+**NHL Playoff Report: Mammoth on the rise, Wild and Maple Leafs falling off**\
+`The first month of the NHL season is in the books, and it’s time to look at how the NHL’s playoff race is shaping up.`\
+https://nytimes.com/athletic/6777646/2025/11/05/nhl-playoffs-mammoth-wild-leafs/
+
+**In season-opening win, Duke proves it’s more than just Cam Boozer and company**\
+`Cam Boozer went scoreless in the first half, but scored 15 points and grabbed 10 rebounds in the second half as the Blue Devils pulled away.`\
+https://nytimes.com/athletic/6779620/2025/11/05/duke-college-basketball-texas-cam-boozer/
+
+**Trump’s Tariff Case Faces Adversaries Including Many on the Right**\
+`The president’s tariff-driven trade war is opposed by a coalition that includes prominent conservative and libertarian lawyers, scholars and former officials.`\
+https://nytimes.com/2025/11/05/us/politics/trump-tariffs-opponents.html
+
 **Zohran Mamdani’s Triumph in New York Evokes Intense Reaction in Israel**\
 `“The Big Apple has fallen,” a right-wing lawmaker said, reflecting broader worries in the Mideast country. Palestinians hailed the election as a sea change in the United States.`\
 https://nytimes.com/2025/11/05/world/middleeast/zohran-mamdani-israel-reaction.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6779459/2025/11/05/st-louis-city-mls-corey-wray-die
 **Dehumanizing and Dystopian: How Gen Z-ers See Work**\
 `Technology has left them with little autonomy or security in their jobs.`\
 https://nytimes.com/2025/11/05/opinion/gen-z-work.html
-
-**My Father’s Dying Friend and I Aren’t Speaking. Should I Go to His Funeral?**\
-`A reader is unsure how to proceed after a longtime family friend, one who has helped care for her aging father, chewed her out over the phone.`\
-https://nytimes.com/2025/11/05/style/reconciliation-forgiveness.html
-
-**Why the normally all-in Rams didn't make another move at the trade deadline**\
-`Los Angeles feels pretty good about its roster. And the one area it sees as a need for improvement isn’t easily fixed on the trade market.`\
-https://nytimes.com/athletic/6778712/2025/11/05/rams-trade-deadline-moves/
-
-**The Capitalism Election?**\
-`Democrats won big nationwide. But Zohran Mamdani’s victory raises questions about whether Democrats and voters are embracing populism.`\
-https://nytimes.com/2025/11/05/business/dealbook/voters-wall-street-trump.html
 
