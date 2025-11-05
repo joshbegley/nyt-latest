@@ -1,3 +1,7 @@
+**Where Things Stand With SNAP Benefits**\
+`Millions of low-income Americans will see staggering cuts and delays to their food stamps this month due to the government shutdown. Tony Romm, an economic policy reporter at The New York Times, walks us through the last several weeks of chaos around SNAP benefits.`\
+https://nytimes.com/video/us/politics/100000010491315/where-things-stand-with-snap-benefits.html
+
 **Jacob Frey Wins Third Term as Minneapolis Mayor**\
 `The race for Minneapolis mayor tested the appeal of democratic socialist policies, drawing comparisons to Zohran Mamdani’s mayoral bid in New York City.`\
 https://nytimes.com/2025/11/05/us/jacob-frey-minneapolis-mayor.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/05/nyregion/mamdani-win-uganda.html
 **NFL Week 10 survivor pool picks, strategy: Take the Panthers, don't overthink it**\
 `Adam Gretz and Renee Miller took your questions and gave their own survivor pool advice for NFL Week 10.`\
 https://nytimes.com/athletic/6780376/2025/11/05/nfl-week-10-survivor-pool-picks-strategy-panthers/
-
-**How Liverpool beat Real Madrid: A Champions League twist on a classic tactic**\
-`In Tuesday's victory over Xabi Alonso's side, manager Arne Slot found a novel way to counter disruptive tactics`\
-https://nytimes.com/athletic/6779930/2025/11/05/liverpool-real-madrid-champions-league-analysis-build-up/
 
