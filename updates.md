@@ -1,3 +1,11 @@
+**Drew Brees joins Fox as NFL analyst, potentially replacing Mark Sanchez: Sources**\
+`Future Hall of Famer joins Tom Brady and Greg Olsen as Fox Sports analysts, is expected to team with play-by-play announcer Adam Amin.`\
+https://nytimes.com/athletic/6778645/2025/11/05/drew-brees-fox-sports-nfl-mark-sanchez/
+
+**FIFA Will Award Its Own Peace Prize Next Month in Washington**\
+`Gianni Infantino, the president of FIFA, has built a close relationship with President Trump, who has groused about not winning the Nobel Peace Prize.`\
+https://nytimes.com/2025/11/05/world/europe/fifa-peace-prize-award.html
+
 **House Tour | Eleni Petaloti and Leonidas Trampoukis**\
 `Eleni Petaloti and Leonidas Trampoukis, the architects and founders of the design studio Objects of Common Interest, show T Magazine around their renovated 1899 townhouse in Williamsburg, Brooklyn.`\
 https://nytimes.com/video/t-magazine/100000010500467/house-tour-eleni-petaloti-and-leonidas-trampoukis.html

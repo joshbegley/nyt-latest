@@ -1,3 +1,11 @@
+**NFL division odds: 3 races are still wide open at the halfway point**\
+`The Broncos are favored over Chiefs for the division, the Packers are favored over the Lions and Rams and Seahawks lead over 49ers.`\
+https://nytimes.com/athletic/6773861/2025/11/05/nfl-division-odds-betting/
+
+**Candidates Notched Several Historic Firsts in the Election**\
+`New York will have its first Muslim mayor. Virginia will have its first female governor, and, for the first time in U.S. history, a Muslim woman will hold statewide office.`\
+https://nytimes.com/2025/11/05/us/election-candidates-historic-firsts.html
+
 **Drew Brees joins Fox as NFL analyst, potentially replacing Mark Sanchez: Sources**\
 `Future Hall of Famer joins Tom Brady and Greg Olsen as Fox Sports analysts, is expected to team with play-by-play announcer Adam Amin.`\
 https://nytimes.com/athletic/6778645/2025/11/05/drew-brees-fox-sports-nfl-mark-sanchez/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/05/nyregion/zohran-mamdani-beard-nyc-mayor.html
 **‘Girl, Interrupted,’ With Aimee Mann Songs, to Be Staged in New York**\
 `The Public Theater will present the play, which Martyna Majok adapted from the best-selling memoir.`\
 https://nytimes.com/2025/11/05/theater/girl-interrupted-aimee-mann-martyna-majok.html
-
-**Why a Dodgers fan had to pass a polygraph test to sell an Ohtani home run ball**\
-`Ohtani's 469-foot NLCS home run ball took a unique journey to the auction block. `\
-https://nytimes.com/athletic/6780558/2025/11/05/shohei-ohtani-home-run-ball-nlcs-auction/
-
-**Restaurant Review: Spago**\
-`The groundbreaking Beverly Hills power restaurant, Spago, still draws crowds. But the food isn’t what it once was, according to Tejal Rao, a chief restaurant critic for The New York Times.`\
-https://nytimes.com/video/dining/100000010502867/restaurant-review-spago.html
 
