@@ -1,3 +1,11 @@
+**Martinez to leave Earthquakes, eligible for MLS free agency**\
+`The 32-year-old Venezuela international forward was San Jose’s leading goal scorer this season with 14 goals in league play.`\
+https://nytimes.com/athletic/6782037/2025/11/05/josef-martinez-san-jose-earthquakes-transfer/
+
+**Infantino lauds President Trump, hints he may award him FIFA peace prize**\
+`The FIFA chief and the U.S. president have become firm allies ahead of the World Cup`\
+https://nytimes.com/athletic/6781983/2025/11/05/gianni-infantino-president-trump-fifa-world-cup-peace/
+
 **The Republicans Warning They Have a Problem**\
 `Off-year elections might hold more lessons for Republicans than Democrats.`\
 https://nytimes.com/2025/11/05/us/politics/elections-democrats-trump-republicans.html
