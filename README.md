@@ -1,3 +1,7 @@
+**In an Upset, Democrats Oust Two Republicans on Georgia’s Utility Board**\
+`The races for two of the five seats on the Georgia Public Service Commission are seen as a bellwether for the midterms.`\
+https://nytimes.com/2025/11/04/us/georgia-election-utility-board-results.html
+
 **Jumaane Williams is Re-elected New York City Public Advocate**\
 `Mr. Williams, who has championed the rights of tenants, immigrants and victims of police violence while in office, won re-election handily after beating two Democratic primary challengers in June.`\
 https://nytimes.com/2025/11/04/nyregion/nyc-public-advocate-jumaane-williams.html
@@ -14,8 +18,8 @@ https://nytimes.com/2025/11/04/us/politics/california-election-prop-50.html
 `To many of his supporters, Zohran Mamdani offered an ambitious agenda in the face of rising costs of living. “Mamdani brings a refreshing sense that he understands us,” one voter said.`\
 https://nytimes.com/2025/11/04/nyregion/mamdani-mayor-nyc-voters.html
 
-**Frankie Luvu has 1-game suspension overturned, is fined $100K**\
-`Luvu was previously fined $23,186 for a hip-drop tackle in Week 4 and $46,372 for a second offense in Week 8.`\
+**Commanders' Frankie Luvu has 1-game suspension overturned, but is fined $100K**\
+`A day after the NFL said Luvu would be suspended for this third hip-drop tackle, hearing officer Derrick Brooks reduced the punishment.`\
 https://nytimes.com/athletic/6779240/2025/11/04/frankie-luvu-commanders-suspension-overturned-fined-100k/
 
 **Zohran Mamdani Is Elected Mayor of New York City**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6777025/2025/11/04/shane-bieber-blue-jays-player-op
 **Mark Levine Elected New York City Comptroller**\
 `The Manhattan borough president, who endorsed Zohran Mamdani, said he welcomed his new role as a counterbalance to the mayor’s office.`\
 https://nytimes.com/2025/11/04/nyregion/nyc-comptroller-mark-levine.html
-
-**Penguins shuffle roster: Jarry hurt, Murashov set to debut, Pickering sent to Wilkes-Barre**\
-`Highly touted goalie prospect Sergei Murashov has arrived in Pittsburgh amidst a rash of Penguins injuries.`\
-https://nytimes.com/athletic/6778962/2025/11/04/penguins-jarry-injury-murashov-heinen-pickering/
 
