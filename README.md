@@ -1,9 +1,13 @@
+**Trump Administration Ends Deportation Protections for South Sudanese**\
+`The program was first authorized for South Sudanese nationals in 2011. The Department of Homeland Security said that “renewed peace in South Sudan” and “improved diplomatic relations” justified the move.`\
+https://nytimes.com/2025/11/05/us/politics/trump-south-sudan-migrants.html
+
 **Do You Remember Where Your Gloves Are? Early Blast of Winter Heads East.**\
 `From Saturday through the start of next week, a cold snap is expected to spread from the Midwest to the East Coast.`\
 https://nytimes.com/2025/11/05/weather/cold-snow-northeast-forecast.html
 
 **Former Mets coaches Jermey Hefner, Antoan Richardson join Braves staff**\
-`ATLANTA — The Braves’ first two additions to new manager Walt Weiss’ coaching staff both come from the division-rival New York Mets, pitching coach Jeremy Hefner and first-base coach Antoan Richardson.`\
+`Hefner and Richardson are the first additions to Walt Weiss' coaching staff.`\
 https://nytimes.com/athletic/6781257/2025/11/05/braves-jeremy-hefner-antoan-richardson-coaching-staff/
 
 **Notre Dame, Auburn schedule home-and-home series for 2027-28**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6781422/2025/11/05/warriors-vs-kings-stream-how-to-
 **How to watch Spurs vs. Lakers: Time, TV, streaming**\
 `Find out how to watch the San Antonio Spurs play the Los Angeles Lakers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6781418/2025/11/05/spurs-vs-lakers-stream-how-to-watch-nov-5/
-
-**How to watch Rockets vs. Grizzlies: Time, TV, streaming**\
-`Find out how to watch the Houston Rockets play the Memphis Grizzlies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6781417/2025/11/05/rockets-vs-grizzlies-stream-how-to-watch-nov-5/
 
