@@ -1,3 +1,19 @@
+**The Backlash Has Arrived: 6 Takeaways From a Good Night for Democrats**\
+`In Virginia, New Jersey and beyond, Democratic voters powered their candidates to victory and sent a warning sign to President Trump and his Republican Party.`\
+https://nytimes.com/2025/11/05/us/politics/election-takeaways-democrats.html
+
+**Rama Duwaji, Mamdani’s Wife, Carves a Path of Her Own**\
+`Ms. Duwaji, an accomplished artist and reluctant campaigner, steps onto center stage alongside New York City’s new mayor.`\
+https://nytimes.com/2025/11/05/nyregion/mamdani-wife-rama-duwaji.html
+
+**New York Muslims Exult in Mamdani’s Victory: ‘Now This Is Our Time’**\
+`Zohran Mamdani’s victory as the city’s next mayor is a milestone for hundreds of thousands of residents who see one of their own atop the city’s political infrastructure.`\
+https://nytimes.com/2025/11/05/us/muslim-new-yorkers-mamdani.html
+
+**California Voters Approved a New Map That Helps Democrats. Now What?**\
+`Five districts held by Republicans become potential Democratic pickups, but some remain highly competitive. And a number of incumbent lawmakers have easier pathways to re-election.`\
+https://nytimes.com/2025/11/05/us/politics/california-prop-50-map-redistricting-democrats.html
+
 **Curtis Sliwa, Back in the Beret, Puts New York’s New Mayor on Notice**\
 `Mr. Sliwa, an anti-crime activist who is the product of a bygone city, said he hoped the incoming mayor succeeded, but not at the cost of socialism and a weakened police force.`\
 https://nytimes.com/2025/11/05/nyregion/curtis-sliwa-concedes.html
