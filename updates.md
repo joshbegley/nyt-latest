@@ -1,3 +1,11 @@
+**A Supreme Court Veteran and a Newcomer Will Make the Case Against Trump’s Tariffs**\
+`Neal Katyal, who has argued over 50 cases before the court, represents a group of businesses. Benjamin Gutman, Oregon’s solicitor general, represents a coalition of states and is making his first appearance.`\
+https://nytimes.com/2025/11/05/us/politics/supreme-court-tariffs-lawyers.html
+
+**Yankees exercise Tim Hill's 2026 club option, begin work of rebuilding bullpen**\
+`Hill pitched to a 3.09 ERA in 70 games in 2025, leading the team in appearances. The lefty will make $3 million in 2026. `\
+https://nytimes.com/athletic/6777239/2025/11/05/yankees-tim-hill-club-option/
+
 **Zohran Mamdani’s Top 5 Priorities as Mayor**\
 `When he takes office on Jan. 1, Mr. Mamdani will seek to move quickly to implement his affordability plans and respond to threats from President Trump.`\
 https://nytimes.com/2025/11/05/nyregion/zohran-mamdani-nyc-mayor-priorities-agenda.html
