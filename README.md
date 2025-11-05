@@ -1,3 +1,7 @@
+**Mamdani’s Global Roots**\
+`There’s been outsize international attention on the next mayor of New York City. Today, I write about why.`\
+https://nytimes.com/2025/11/05/world/zohran-mamdani-ukraine-drones-san-francisco.html
+
 **McLaren waged 'long and expensive war' against Alex Palou, says driver's lawyer**\
 `The trial, which began at the end of September, saw both legal teams give their closing arguments at London’s High Court on Wednesday.`\
 https://nytimes.com/athletic/6781401/2025/11/05/alex-palou-mclaren-court-f1-indycar/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/05/nyregion/long-island-stabbing-house-party.html
 **Heavy Drinking Is Tied to Worse Strokes, Study Finds**\
 `New research examined the link between alcohol and brain bleeds.`\
 https://nytimes.com/2025/11/05/well/alcohol-drinking-strokes-brain-bleeds.html
-
-**Mamdani Holds News Conference After Mayoral Victory**\
-`In his first news conference as mayor-elect, Zohran Mamdani described “twin crises” facing New York City: cost of living and threats by the Trump administration.`\
-https://nytimes.com/video/nyregion/100000010505847/mamdani-holds-news-conference-after-mayoral-victory.html
 
