@@ -1,3 +1,11 @@
+**Cavan Sullivan's goal delivers USA U-17s World Cup win over Burkina Faso**\
+`The Man City-bound midfielder came off the bench to help the U.S. secure all three points in Qatar`\
+https://nytimes.com/athletic/6781579/2025/11/05/cavan-sullivan-usa-burkina-faso-u17-world-cup/
+
+**Right-Wing Media Warns of Socialism and Chaos After Mamdani Victory**\
+`A New York Post cover about “The Red Apple” went viral, and a “Fox & Friends” host told viewers, “We don’t want to turn into Caracas.”`\
+https://nytimes.com/2025/11/05/business/media/mamdani-victory-right-wing-media.html
+
 **After Mamdani Win, Schumer Rejects Charges He’s Out of Touch**\
 `The top Senate Democrat was reluctant to say why he stayed on the sidelines of the mayoral race and denied that Zohran Mamdani’s victory reflected poorly on him.`\
 https://nytimes.com/2025/11/05/nyregion/schumer-mamdani-nyc-mayor-election.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/nyregion/100000010505847/mamdani-holds-news-conference
 **Lawmaker Demands Accountability in Bloody Prison Beating Caught on Video**\
 `State Senator Julia Salazar of New York said the officers accused of assault and sexual abuse in a 2023 case should face consequences.`\
 https://nytimes.com/2025/11/05/nyregion/ny-prison-beating-lawmaker.html
-
-**Republicans Point Fingers After Their Losses, but Not at Trump**\
-`Casting around for culprits, leaders in the party blamed their candidates, the government shutdown and a weak economic message.`\
-https://nytimes.com/2025/11/05/us/politics/republicans-elections-trump.html
-
-**Sources: Juventus, City Football Group show interest in Houston's Raines**\
-`Raines, 20, just represented the U.S. at the FIFA Under-20 World Cup in Chile, and is generating significant interest`\
-https://nytimes.com/athletic/6781077/2025/11/05/brooklyn-raines-houston-dynamo-juventus-city-football-group/
 
