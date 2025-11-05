@@ -1,40 +1,40 @@
-**What does Ja Morant's future with the Memphis Grizzlies look like? It's complicated**\
-`Morant's tenure in Memphis may seem like it's ending. But small market teams with an expiring stadium lease don't trade stars lightly.`\
-https://nytimes.com/athletic/6779151/2025/11/05/ja-morant-grizzlies-future-relationship/
+**Six SEC teams made the CFP rankings because they survived the chaos everyone else didn't**\
+`The SEC pushed hard for its schedule strength metrics, but six of its teams made the CFP by winning key games and avoiding bad losses.`\
+https://nytimes.com/athletic/6779238/2025/11/05/sec-playoff-rankings-college-football/
 
-**Man Utd not 'putting the Harlem Globetrotters together', Wilcox says**\
-`United's director of football said the club have a "clear plan" for upcoming windows, to build on the summer's initial £216m spend.`\
-https://nytimes.com/athletic/6779884/2025/11/05/jason-wilcox-manchester-united-harlem-globetrotters-transfers/
+**Adam Gajan feeling calm, comfortable in Duluth net: Blackhawks prospect updates**\
+`Gajan and the Blackhawks have taken a patient approach to his development, and it's paying off this season at Minnesota Duluth.`\
+https://nytimes.com/athletic/6775841/2025/11/05/blackhawks-prospects-adam-gajan-minnesota-duluth/
 
-**TAFC: Van de Ven goal 'like Messi at centre-back', Diaz's mixed night, Rice vs Caicedo debate**\
-`Today in TAFC: Lightning Van de Ven strikes with incredible goal, Diaz goes from hero to zero, and Rice vs Caicedo for best midfielder`\
-https://nytimes.com/athletic/6779721/2025/11/05/van-de-ven-diaz-bayern-rice-caicedo-debate/
+**The Heat are completely changing the way they approach basketball: 'It's a new era'**\
+`The Heat are moving as the fastest team in basketball. What led to their new commitment in change? `\
+https://nytimes.com/athletic/6776011/2025/11/05/miami-heat-pace-basketball-nba/
 
-**Tormented Jets fans deserve to see this rebuild finally lead to a championship parade**\
-`If there's any justice to be had for the men and women who have supported this cursed franchise through thin and thin, let them have it now.`\
-https://nytimes.com/athletic/6778905/2025/11/05/jets-trade-deadline-rebuild-tortured-fans/
+**Re-evaluating Hall of Fame cases for Tavares, Benn, Perry and more**\
+`We've debated these stars' qualifications for hockey's highest honor before. Have they helped or hurt their cases in the meantime?`\
+https://nytimes.com/athletic/6777829/2025/11/05/nhl-hall-of-fame-tavares-benn-perry/
 
-**To compete in 2026, Cubs will need to rebuild bullpen once again**\
-`Of the high-leverage relievers who were crucial down the stretch, only Daniel Palencia remains under team control in 2026.`\
-https://nytimes.com/athletic/6778693/2025/11/05/chicago-cubs-2026-bullpen-rebuild/
+**Coaching carousel notebook: Latest on LSU, Dabo, Cignetti and more**\
+`With LSU's president and AD now in place, the focus can turn back to the coaching search. Plus, contract quirks at Indiana and Kent State.`\
+https://nytimes.com/athletic/6779171/2025/11/05/college-football-coaching-carousel-news/
 
-**Mamdani Walks Offstage to Bollywood Song After Victory Speech**\
-`“Dhoom Machale,” a popular Hindi film song played at the end of Zohran Mamdani’s first speech as New York City’s mayor-elect, nodded to his Indian roots.`\
-https://nytimes.com/2025/11/05/nyregion/zohran-mamdani-bollywood-dhoom-machale.html
+**My case for why Dale Murphy deserves to be in the Hall of Fame: Keith Law**\
+`Murphy's peak didn't last as long as some players in the Hall of Fame, but even so, his overall resume matches up with several already in.`\
+https://nytimes.com/athletic/6775420/2025/11/05/dale-murphy-hall-of-fame-mlb-vote/
 
-**Winners and losers of NHL’s skyrocketing cap: Kirill Kaprizov, small market worries, and more**\
-`Based on market trends and conversations The Athletic had with agents and executives, here's a look at the implications of the cap rise.`\
-https://nytimes.com/athletic/6764226/2025/11/05/nhl-salary-cap-winners-and-losers/
+**College football recruiting thoughts: SEC's dominance, the Locksley-Beamer beef and more**\
+`Eight Power 4 coaches have been fired since the start of the season. How many commits has each school lost?`\
+https://nytimes.com/athletic/6778044/2025/11/05/college-football-recruiting-sec-mike-locksley-shane-beamer/
 
-**The Pulse: A seismic NFL trade deadline**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6776934/2025/11/05/nfl-trade-deadline-recap-the-pulse/
+**Keep an eye on these NFL GM candidates for Miami Dolphins and beyond**\
+`Here are some possible GM candidates to watch for the Dolphins opening and any other upcoming executive vacancies around the NFL.`\
+https://nytimes.com/athletic/6777711/2025/11/05/nfl-gm-candidates-dolphins-2026/
 
-**After a wild win and a minor trade, where do the upstart Bears go from here?**\
-`Can Ben Johnson's Bears parlay their surprising start into something much bigger? The hope is building in Chicago.`\
-https://nytimes.com/athletic/6778430/2025/11/05/bears-ben-johnson-midseason-hope/
+**Why are sportswriters always wrong about Miami? Mason Heintschel for Heisman? ACC mailbag**\
+`How do the tiebreakers shake out in the ACC? Is there any hope for Boston College? Should UNC fans be excited?`\
+https://nytimes.com/athletic/6776820/2025/11/05/acc-football-miami-mario-cristobal-mason-heintschel/
 
-**Four teams added to 2026 WAFCON after end of qualifying process**\
-`Cameroon, Ivory Coast, Mali and Egypt will join 12 other teams in the expanded tournament between March and April next year.`\
-https://nytimes.com/athletic/6779829/2025/11/05/womens-africa-cup-of-nations-cameroon-ivory-coast-mali-egypt/
+**Road trip wrap: Oilers can't hold leads; Glen Gulutzan's 'surreal' Dallas setup**\
+`Edmonton's problems closing out games continued Tuesday in a second straight loss after leading by two headed into the third period.`\
+https://nytimes.com/athletic/6779480/2025/11/05/oilers-blown-leads-glen-gulutzan/
 
