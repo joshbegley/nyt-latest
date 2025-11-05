@@ -1,5 +1,21 @@
+**Mamdani Calls, and His Supporters Respond**\
+`At the Brooklyn Paramount, die-hard fans of Zohran Mamdani, New York City’s mayor-elect, enthusiastically ushered out the old guard as they celebrated his victory.`\
+https://nytimes.com/2025/11/05/nyregion/mamdani-victory-party.html
+
+**Public Art**\
+`How important do you think it is for cities and towns to display art?`\
+https://nytimes.com/2025/11/05/learning/public-art.html
+
+**He’s Been Charged With Dozens of Crimes. Nobody Knows His Name.**\
+`He called himself by many names as he cycled in and out of prison. He is to be sentenced in Queens for deed fraud, but investigators still do not know his true identity.`\
+https://nytimes.com/2025/11/05/nyc-criminal-identity-names.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/05/crosswords/spelling-bee-forum.html
+
 **Lingering illness will sideline Stephen Curry for Warriors' game at Sacramento**\
-`Curry has been battling the lingering illness since last weekend; Jimmy Butler could miss Wednesday's game with back soreness.`\
+`Curry has been battling the lingering illness since last weekend while Jimmy Butler could also miss Wednesday's game with back soreness.`\
 https://nytimes.com/athletic/6779561/2025/11/05/stephen-curry-skip-game-cold-warriors/
 
 **By moving Florian Wirtz to the left, Liverpool look to have found a home for a rare talent**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6779584/2025/11/05/steelers-vs-chargers-stream-how-
 **Angel City investor Monarch Collective goes global, buying into German club**\
 `The private equity fund will eventually acquire a 38% stake in FC Viktoria Berlin.`\
 https://nytimes.com/athletic/6775486/2025/11/05/monarch-collective-fc-viktoria-berlin-investment/
-
-**Inside Trump's Turnberry: £1,000 per round, iconic holes and an Open omerta**\
-`The U.S. President's course lives up to its reputation as one of the world's best but its chances of hosting another major remain remote`\
-https://nytimes.com/athletic/6704345/2025/11/05/turnberry-trump-open-venue/
-
-**Word of the Day: innocuous**\
-`This word has appeared in 178 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/11/05/learning/word-of-the-day-innocuous.html
-
-**Kompany likes to tell Bayern they're 'not that good'. They might be the best team in Europe**\
-`Bayern are top of the Champions League and Bundesliga and are yet to drop a point in either competition after 13 combined games`\
-https://nytimes.com/athletic/6778964/2025/11/05/bayern-munich-best-team-europe/
-
-**Thomas Frank and Spurs bask in incredible healing powers great goals can bring**\
-`After a painful defeat to Chelsea on Saturday, Tottenham and their new manager got exactly the reaction they needed in the Champions League`\
-https://nytimes.com/athletic/6778859/2025/11/05/spurs-copenhagen-van-de-ven-frank/
 

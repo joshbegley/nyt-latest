@@ -1,3 +1,23 @@
+**Mamdani Calls, and His Supporters Respond**\
+`At the Brooklyn Paramount, die-hard fans of Zohran Mamdani, New York City’s mayor-elect, enthusiastically ushered out the old guard as they celebrated his victory.`\
+https://nytimes.com/2025/11/05/nyregion/mamdani-victory-party.html
+
+**Public Art**\
+`How important do you think it is for cities and towns to display art?`\
+https://nytimes.com/2025/11/05/learning/public-art.html
+
+**He’s Been Charged With Dozens of Crimes. Nobody Knows His Name.**\
+`He called himself by many names as he cycled in and out of prison. He is to be sentenced in Queens for deed fraud, but investigators still do not know his true identity.`\
+https://nytimes.com/2025/11/05/nyc-criminal-identity-names.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/05/crosswords/spelling-bee-forum.html
+
+**Lingering illness will sideline Stephen Curry for Warriors' game at Sacramento**\
+`Curry has been battling the lingering illness since last weekend while Jimmy Butler could also miss Wednesday's game with back soreness.`\
+https://nytimes.com/athletic/6779561/2025/11/05/stephen-curry-skip-game-cold-warriors/
+
 **Kompany likes to tell Bayern they're 'not that good'. They might be the best team in Europe**\
 `Bayern are top of the Champions League and Bundesliga and are yet to drop a point in either competition after 13 combined games`\
 https://nytimes.com/athletic/6778964/2025/11/05/bayern-munich-best-team-europe/
