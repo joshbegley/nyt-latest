@@ -1,3 +1,7 @@
+**Trump vs. Mamdani: The Showdown to Come**\
+`President Trump has berated Zohran Mamdani, the mayor-elect of New York City, in public. But privately, Mr. Trump describes him as slick and a good talker.`\
+https://nytimes.com/2025/11/05/us/politics/trump-mamdani-showdown.html
+
 **Two Republican Incumbents Will Face Off as Red Turf Shrinks in California**\
 `Representatives Ken Calvert and Young Kim will vie for the same district, underscoring the dilemma faced by state Republicans as their territory dwindles after the passage of Proposition 50.`\
 https://nytimes.com/2025/11/05/us/politics/house-election-ken-calvert-young-kim.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6780453/2025/11/05/dom-hyam-wrexham-transfer/
 **Will South Florida’s Real Estate Market Benefit From Mamdani’s Victory?**\
 `Some brokers and developers in the region are waiting eagerly to see if the election of a democratic socialist will drive more wealthy New Yorkers south.`\
 https://nytimes.com/2025/11/05/us/south-florida-real-estate-mamdani.html
-
-**The Supreme Court Casts a Skeptical Eye on Trump’s Tariffs**\
-`Also, Democrats seized on economic worries. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/11/05/briefing/supreme-court-trump-tariffs-family-spice.html
 
