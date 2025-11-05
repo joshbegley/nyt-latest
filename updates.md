@@ -1,3 +1,7 @@
+**Frankie Luvu has 1-game suspension overturned, is fined $100K**\
+`Luvu was previously fined $23,186 for a hip-drop tackle in Week 4 and $46,372 for a second offense in Week 8.`\
+https://nytimes.com/athletic/6779240/2025/11/04/frankie-luvu-commanders-suspension-overturned-fined-100k/
+
 **Zohran Mamdani Is Elected Mayor of New York City**\
 `Mr. Mamdani, a state lawmaker and democratic socialist, will be the first Muslim mayor in the city’s history.`\
 https://nytimes.com/2025/11/04/nyregion/nyc-mayor-mamdani-elected.html
