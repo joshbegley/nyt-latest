@@ -1,3 +1,15 @@
+**Steelers' quiet trade deadline speaks volumes about 2026 draft QBs, trust in young receivers**\
+`The Steelers checked in on available wide receivers, but ultimately stood pat.`\
+https://nytimes.com/athletic/6778546/2025/11/04/pittsburgh-steelers-trade-deadline-receivers/
+
+**Director of Philadelphia Art Museum Is Dismissed After Unpopular Rebranding**\
+`Sasha Suda was three years into her five-year contract when the museum’s board announced that she was being terminated for cause.`\
+https://nytimes.com/2025/11/04/arts/design/philadelphia-art-museum-director-dismissed.html
+
+**Why the 49ers didn't make another deal before the NFL trade deadline**\
+`The 49ers inquired about several big-name pass rushers, but the price was not right for a team that was never all-in on this season.`\
+https://nytimes.com/athletic/6778578/2025/11/04/nfl-trade-deadline-49ers-no-trades/
+
 **Windy, Wet Weather Hits the West Coast**\
 `Back-to-back storms this week could lead to flooding and power outages, forecasters warned.`\
 https://nytimes.com/2025/11/04/weather/california-rain-atmospheric-river-oregon.html
@@ -10,7 +22,7 @@ https://nytimes.com/2025/11/04/science/nasa-isaacman-trump.html
 `For the first time in years, the Bills made no trades before the deadline.`\
 https://nytimes.com/athletic/6778542/2025/11/04/bills-trade-deadline-brandon-beane/
 
-**How Cuomo has tried to woo independent, conservative and Republican voters.**\
+**Here’s how Cuomo has tried to woo independent, conservative and Republican voters.**\
 `By Jeffery C. Mays, Benjamin Oreskes and Tim Balk`\
 https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/how-cuomo-has-tried-to-woo-independent-conservative-and-republican-voters
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6778688/2025/11/04/rams-vs-49ers-stream-how-to-watc
 **How to watch Lions vs. Commanders: Time, TV, streaming**\
 `Find out how to watch the Detroit Lions play the Washington Commanders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6778684/2025/11/04/lions-vs-commanders-stream-how-to-watch-nov-9/
-
-**How to watch Cardinals vs. Seahawks: Time, TV, streaming**\
-`Find out how to watch the Arizona Cardinals play the Seattle Seahawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6778670/2025/11/04/cardinals-vs-seahawks-stream-how-to-watch-nov-9/
-
-**Walt Weiss is ready to prove he was best suited to take over as Braves manager**\
-`Most of the Braves' starting rotation should be back for 2026, and they don’t believe the managerial change should slow them down.`\
-https://nytimes.com/athletic/6778335/2025/11/04/walt-weiss-new-atlanta-braves-manager/
-
-**Browns didn't get better at trade deadline, and the future didn't get any clearer**\
-`Following the deadline, it's clear this Cleveland team is stuck in a bad and awkward place because of past decisions. `\
-https://nytimes.com/athletic/6778426/2025/11/04/browns-future-trade-deadline/
 
