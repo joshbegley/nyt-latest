@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/11/05/nyregion/nyc-mayor-mamdani/heres-the-latest
+
+**N.Y.C. Mayor Live Updates: Mamdani Celebrates a Monumental Victory**\
+`Zohran Mamdani rode a wave of generational and ideological change to a decisive win. He will be New York City’s youngest mayor in more than a century, and the first Muslim and South Asian to lead the city.`\
+https://nytimes.com/live/2025/11/05/nyregion/nyc-mayor-mamdani
+
 **2025 NFL trade deadline winners, losers: Eagles fill needs, Jets sell, Bills strike out**\
 `Howie Roseman worked his magic to deliver three deadline deals to Philly, while the Jets' fire sale should help them rebuild — but will it?`\
 https://nytimes.com/athletic/6778376/2025/11/05/nfl-trade-deadline-2025winners-losers-eagles-jets-bills-chiefs/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/05/world/europe/russia-bookstores-refuge-censorship.
 **How the Cowboys' active trade deadline helps them now and beyond**\
 `Dak Prescott and his teammates are "pumped" with Dallas adding Quinnen Williams, along with linebacker Logan Wilson on Tuesday.`\
 https://nytimes.com/athletic/6778997/2025/11/05/cowboys-trade-deadline-quinnen-williams/
-
-**What to Know About the Militia That Kidnapped Elizabeth Tsurkov**\
-`Kataib Hezbollah, a hard-line Iraqi militia linked to Iran, held Elizabeth Tsurkov, a citizen of Israel and Russia, hostage for more than two years.`\
-https://nytimes.com/2025/11/05/world/europe/what-to-know-about-the-militia-that-kidnapped-elizabeth-tsurkov.html
-
-**Mamdani’s Victory Is Less Significant Than You Think**\
-`New York’s next mayor won’t save the Democrats.`\
-https://nytimes.com/2025/11/05/opinion/mamdani-interesting-times-podcast.html
 

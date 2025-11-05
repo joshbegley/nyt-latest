@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/11/05/nyregion/nyc-mayor-mamdani/heres-the-latest
+
+**N.Y.C. Mayor Live Updates: Mamdani Celebrates a Monumental Victory**\
+`Zohran Mamdani rode a wave of generational and ideological change to a decisive win. He will be New York City’s youngest mayor in more than a century, and the first Muslim and South Asian to lead the city.`\
+https://nytimes.com/live/2025/11/05/nyregion/nyc-mayor-mamdani
+
 **2025 NFL trade deadline winners, losers: Eagles fill needs, Jets sell, Bills strike out**\
 `Howie Roseman worked his magic to deliver three deadline deals to Philly, while the Jets' fire sale should help them rebuild — but will it?`\
 https://nytimes.com/athletic/6778376/2025/11/05/nfl-trade-deadline-2025winners-losers-eagles-jets-bills-chiefs/
