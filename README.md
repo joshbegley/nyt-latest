@@ -1,3 +1,11 @@
+**Democrats’ Big Night in Virginia Makes History for Muslims**\
+`Ghazala Hashmi, elected as lieutenant governor, became the first Muslim woman to win statewide office in any state.`\
+https://nytimes.com/2025/11/04/us/politics/ghazala-hashmi-virginia.html
+
+**What We Know About the UPS Plane Crash in Louisville**\
+`Seven people were dead after the cargo plane crashed soon after takeoff. The authorities canceled flights from the airport in Louisville, Ky., and local residents were ordered to remain indoors.`\
+https://nytimes.com/2025/11/04/us/plane-crash-louisville-kentucky-ups.html
+
 **McGreevey’s Bid for Political Comeback Moves to a Runoff**\
 `Jim McGreevey, the former governor of New Jersey, is hoping to become the mayor of Jersey City. No candidate won 50 percent of the vote, so the race is headed to a runoff.`\
 https://nytimes.com/2025/11/04/us/politics/mcgreevey-jersey-city-mayor-runoff.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6779240/2025/11/04/frankie-luvu-commanders-suspensi
 **Zohran Mamdani Is Elected Mayor of New York City**\
 `Mr. Mamdani, a state lawmaker and democratic socialist, will be the first Muslim mayor in the city’s history.`\
 https://nytimes.com/2025/11/04/nyregion/nyc-mayor-mamdani-elected.html
-
-**New York City Voters Pass Contentious Housing Ballot Measures**\
-`The results are a clear reflection of how more people are embracing development as a solution to the housing crisis.`\
-https://nytimes.com/2025/11/04/nyregion/nyc-ballot-measures-housing.html
-
-**Blue Jays' Shane Bieber to return after exercising player option: Source**\
-`Bieber, a pivotal player in the Blue Jays' push to the World Series, will remain in Toronto.`\
-https://nytimes.com/athletic/6777025/2025/11/04/shane-bieber-blue-jays-player-option/
 
