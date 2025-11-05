@@ -1,3 +1,7 @@
+**Do Dumb Ideas Ever Die?**\
+`Unlike old soldiers, they don’t even fade away.`\
+https://nytimes.com/2025/11/04/opinion/dumb-ideas-policy-trade-politics.html
+
 **Latest U.S. Strike on Suspected Drug Boat Kills 2 in Pacific, Hegseth Says**\
 `It was the 16th announced attack in two months and raised the death toll to at least 67 people in both the Caribbean Sea and the Pacific.`\
 https://nytimes.com/2025/11/04/us/politics/boat-strike-deaths-hegseth.html
