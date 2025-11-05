@@ -1,3 +1,23 @@
+**Former WNBA MVP Nneka Ogwumike signs with Project B**\
+`Project B is expected to launch in 2026 and play its debut season from November 2026 through April 2027.`\
+https://nytimes.com/athletic/6781350/2025/11/05/nneka-ogwumike-wnba-project-b/
+
+**Amanda Anisimova rebounds, one set and one tennis match at a time**\
+`The American has climbed small and large tennis mountains through her career, and throughout 2025.`\
+https://nytimes.com/athletic/6781388/2025/11/05/anisimova-swiatek-wta-tour-finals/
+
+**Cardinals to place Kyler Murray on IR, coach says**\
+`The designation means that Murray will miss a minimum of four games, and Jacoby Brissett will likely continue as his replacement.`\
+https://nytimes.com/athletic/6781451/2025/11/05/kyler-murray-cardinals-injured-reserved/
+
+**15-Year-Old Is Fatally Stabbed at Long Island House Party, Police Say**\
+`Liam Delemo, of West Babylon, was stabbed when a fight broke out at a party near his home that was attended by dozens of teenagers, the authorities said.`\
+https://nytimes.com/2025/11/05/nyregion/long-island-stabbing-house-party.html
+
+**Heavy Drinking Is Tied to Worse Strokes, Study Finds**\
+`New research examined the link between alcohol and brain bleeds.`\
+https://nytimes.com/2025/11/05/well/alcohol-drinking-strokes-brain-bleeds.html
+
 **Mamdani Holds News Conference After Mayoral Victory**\
 `In his first news conference as mayor-elect, Zohran Mamdani described “twin crises” facing New York City: cost of living and threats by the Trump administration.`\
 https://nytimes.com/video/nyregion/100000010505847/mamdani-holds-news-conference-after-mayoral-victory.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6781077/2025/11/05/brooklyn-raines-houston-dynamo-j
 **‘Generational Change’**\
 `Have you been following the race for mayor of New York City? What is your reaction to Zohran Mamdani’s win?`\
 https://nytimes.com/2025/11/05/learning/generational-change.html
-
-**Submit your questions for Kevin Fishbain's Bears mailbag**\
-`The Bears are 5-3 after a wild victory in Cincinnati. This week they host the injury-plagued New York Giants. What's on your mind?`\
-https://nytimes.com/athletic/6781529/2025/11/05/bears-mailbag-questions-48/
-
-**Barton tells court 'dark humour' behind social media posts on female football pundits and Jeremy Vine**\
-`The former midfielder repeatedly insisted he did not mean to cause the trio any anxiety or distress by his 2024 social media posts on X.`\
-https://nytimes.com/athletic/6781204/2025/11/05/joey-barton-trial-jeremy-vine/
-
-**How N.Y.C. Voted For Mamdani**\
-`Zohran Mamdani was elected mayor of New York City, riding a historic surge of enthusiasm. Our reporter Nicholas Fandos explains the results across all five boroughs broken down by precinct.`\
-https://nytimes.com/video/nyregion/100000010493592/how-mamdani-won-nyc.html
-
-**Key House Democrat in Swing District Won’t Run Again in 2026**\
-`Pointing to “the plain nastiness” of politics and threats he has faced, Representative Jared Golden of Maine will retire instead of trying to keep the reddest House seat held by a Democrat.`\
-https://nytimes.com/2025/11/05/us/politics/jared-golden-maine-retires.html
-
-**Trump Administration Ends Deportation Protections for South Sudanese**\
-`The program was first authorized for South Sudanese nationals in 2011. The Department of Homeland Security said that “renewed peace in South Sudan” and “improved diplomatic relations” justified the move.`\
-https://nytimes.com/2025/11/05/us/politics/trump-south-sudan-migrants.html
 

@@ -1,3 +1,27 @@
+**Mamdani Holds News Conference After Mayoral Victory**\
+`In his first news conference as mayor-elect, Zohran Mamdani described “twin crises” facing New York City: cost of living and threats by the Trump administration.`\
+https://nytimes.com/video/nyregion/100000010505847/mamdani-holds-news-conference-after-mayoral-victory.html
+
+**Lawmaker Demands Accountability in Bloody Prison Beating Caught on Video**\
+`State Senator Julia Salazar of New York said the officers accused of assault and sexual abuse in a 2023 case should face consequences.`\
+https://nytimes.com/2025/11/05/nyregion/ny-prison-beating-lawmaker.html
+
+**Republicans Point Fingers After Their Losses, but Not at Trump**\
+`Casting around for culprits, leaders in the party blamed their candidates, the government shutdown and a weak economic message.`\
+https://nytimes.com/2025/11/05/us/politics/republicans-elections-trump.html
+
+**Sources: Juventus, City Football Group show interest in Houston's Raines**\
+`Raines, 20, just represented the U.S. at the FIFA Under-20 World Cup in Chile, and is generating significant interest`\
+https://nytimes.com/athletic/6781077/2025/11/05/brooklyn-raines-houston-dynamo-juventus-city-football-group/
+
+**‘Generational Change’**\
+`Have you been following the race for mayor of New York City? What is your reaction to Zohran Mamdani’s win?`\
+https://nytimes.com/2025/11/05/learning/generational-change.html
+
+**Submit your questions for Kevin Fishbain's Bears mailbag**\
+`The Bears are 5-3 after a wild victory in Cincinnati. This week they host the injury-plagued New York Giants. What's on your mind?`\
+https://nytimes.com/athletic/6781529/2025/11/05/bears-mailbag-questions-48/
+
 **Barton tells court 'dark humour' behind social media posts on female football pundits and Jeremy Vine**\
 `The former midfielder repeatedly insisted he did not mean to cause the trio any anxiety or distress by his 2024 social media posts on X.`\
 https://nytimes.com/athletic/6781204/2025/11/05/joey-barton-trial-jeremy-vine/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/11/05/us/politics/jared-golden-maine-retires.html
 **Trump Administration Ends Deportation Protections for South Sudanese**\
 `The program was first authorized for South Sudanese nationals in 2011. The Department of Homeland Security said that “renewed peace in South Sudan” and “improved diplomatic relations” justified the move.`\
 https://nytimes.com/2025/11/05/us/politics/trump-south-sudan-migrants.html
-
-**Do You Remember Where Your Gloves Are? Early Blast of Winter Heads East.**\
-`From Saturday through the start of next week, a cold snap is expected to spread from the Midwest to the East Coast.`\
-https://nytimes.com/2025/11/05/weather/cold-snow-northeast-forecast.html
-
-**Former Mets coaches Jermey Hefner, Antoan Richardson join Braves staff**\
-`Hefner and Richardson are the first additions to Walt Weiss' coaching staff.`\
-https://nytimes.com/athletic/6781257/2025/11/05/braves-jeremy-hefner-antoan-richardson-coaching-staff/
-
-**Notre Dame, Auburn schedule home-and-home series for 2027-28**\
-`Notre Dame has made first-time opponents and SEC clashes a future scheduling priority. Auburn checks both boxes.`\
-https://nytimes.com/athletic/6781312/2025/11/05/notre-dame-auburn-football-schedule-series/
-
-**How to watch Thunder vs. Trail Blazers: Time, TV, streaming**\
-`Find out how to watch the Oklahoma City Thunder play the Portland Trail Blazers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6781431/2025/11/05/thunder-vs-trail-blazers-stream-how-to-watch-nov-5/
-
-**How to watch Timberwolves vs. Knicks: Time, TV, streaming**\
-`Find out how to watch the Minnesota Timberwolves play the New York Knicks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6781427/2025/11/05/timberwolves-vs-knicks-stream-how-to-watch-nov-5/
-
-**How to watch Heat vs. Nuggets: Time, TV, streaming**\
-`Find out how to watch the Miami Heat play the Denver Nuggets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6781424/2025/11/05/heat-vs-nuggets-stream-how-to-watch-nov-5/
 
