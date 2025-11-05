@@ -1,5 +1,5 @@
 **Palace charged by FA for alleged 'provocative' behaviour by fans during Forest game**\
-`A banner appearing to show Forest owner Evangelos Marinakis was held up in Selhurst's Park Lower Holmesdale Stand during the fixture.`\
+`A banner appearing to show Forest owner Evangelos Marinakis was held up in Selhurst Park's Lower Holmesdale Stand during the fixture.`\
 https://nytimes.com/athletic/6574063/2025/11/05/crystal-palace-forest-banner-fa-charge/
 
 **Believe in these (6-1) Bulls? Latest comeback win offers more reasons to do so**\
@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6779897/2025/11/05/bulls-comeback-sixers-nba-start/
 `Republicans and Democrats remain divided even as the pain of the shutdown intensifies and lawmakers in both parties say a breakthrough could come soon.`\
 https://nytimes.com/live/2025/11/05/us/trump-shutdown-news/shutdown-enters-36th-day-as-stalemate-in-congress-continues
 
-**Trump Administration Live Updates: President to Meet With Republican Senators as Shutdown Breaks Record**\
+**Trump Administration Live Updates: President to Meet With G.O.P. Senators as Shutdown Breaks Record**\
 ``\
 https://nytimes.com/live/2025/11/05/us/trump-shutdown-news
 
