@@ -1,4 +1,8 @@
 **With 80th consecutive 20-point game, SGA passes Oscar Robertson**\
+`It's hard to deny that Gilgeous-Alexander is already among the best scorers in NBA history. Can he catch Wilt Chamberlain?`\
+https://nytimes.com/athletic/6779428/2025/11/05/shai-gilgeous-alexander-oscar-robertson-wilt-chamberlain-thunder/
+
+**With 80th consecutive 20-point game, SGA passes Oscar Robertson**\
 `It's hard to deny that Shai Gilgeous-Alexander is already among the best scorers in NBA history. Can he catch Wilt Chamberlain?`\
 https://nytimes.com/athletic/6779428/2025/11/05/shai-gilgeous-alexander-oscar-robertson-wilt-chamberlain-thunder/
 
