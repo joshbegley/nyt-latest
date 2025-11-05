@@ -1,3 +1,7 @@
+**Zohran Mamdani’s Triumph in New York Evokes Intense Reaction in Israel**\
+`“The Big Apple has fallen,” a right-wing lawmaker said, reflecting broader worries in the Mideast country. Palestinians hailed the election as a sea change in the United States.`\
+https://nytimes.com/2025/11/05/world/middleeast/zohran-mamdani-israel-reaction.html
+
 **What is IEEPA, the Law Trump Used to Levy Tariffs?**\
 `The Supreme Court is set to consider the legality of tariffs the president has invoked emergency powers to place on many trading partners.`\
 https://nytimes.com/2025/11/05/us/politics/ieepa-scotus-trump-tariffs.html
