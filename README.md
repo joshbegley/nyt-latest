@@ -1,3 +1,7 @@
+**Sources: Suárez suspended for Miami's pivotal playoff game vs. Nashville**\
+`Miami will be short a star when it hosts Nashville SC in a do-or-die Game 3 in the first round of the MLS Cup playoffs Saturday night`\
+https://nytimes.com/athletic/6780507/2025/11/05/luis-suarez-suspended-inter-miami-nashville-mls-playoffs/
+
 **Republicans File Lawsuit in Attempt to Block California’s New House Maps**\
 `Republicans asked a federal court to block newly approved maps in California that were designed to flip as many as five House seats for Democrats.`\
 https://nytimes.com/2025/11/05/us/republicans-lawsuit-california-redistricting-maps.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/05/arts/dance/juliana-may-optimistic-voices.html
 **Go Big on Brussels Sprouts**\
 `A spicy, tangy dressing, bold with fish sauce and citrus, gives real oomph to caramelized brussels sprouts and tofu in this easy dinner.`\
 https://nytimes.com/2025/11/05/dining/go-big-on-brussels-sprouts.html
-
-**If the justices rule in Trump’s favor, one dissent could guide their decision.**\
-`By Ann E. Marimow`\
-https://nytimes.com/live/2025/11/05/us/trump-tariffs-supreme-court/if-the-justices-rule-in-trumps-favor-one-dissent-could-guide-their-decision
 
