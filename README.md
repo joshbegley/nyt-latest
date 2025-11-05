@@ -1,3 +1,7 @@
+**Zohran Mamdani’s Top 5 Priorities as Mayor**\
+`When he takes office on Jan. 1, Mr. Mamdani will seek to move quickly to implement his affordability plans and respond to threats from President Trump.`\
+https://nytimes.com/2025/11/05/nyregion/zohran-mamdanis-top-5-priorities-as-mayor.html
+
 **NHL Playoff Report: Mammoth on the rise, Wild and Maple Leafs falling off**\
 `The first month of the NHL season is in the books, and it’s time to look at how the NHL’s playoff race is shaping up.`\
 https://nytimes.com/athletic/6777646/2025/11/05/nhl-playoffs-mammoth-wild-leafs/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/11/05/us/trump-tariffs-supreme-court
 **For St. Louis City, it's one key search down, one to go in its attempt to rebound**\
 `After another lost year, St. Louis City is trying to recapture its inaugural-season magic. All eyes now shift to its head coaching hire...`\
 https://nytimes.com/athletic/6779459/2025/11/05/st-louis-city-mls-corey-wray-diego-gigliani-coaching-search/
-
-**Dehumanizing and Dystopian: How Gen Z-ers See Work**\
-`Technology has left them with little autonomy or security in their jobs.`\
-https://nytimes.com/2025/11/05/opinion/gen-z-work.html
 
