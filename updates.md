@@ -1,3 +1,7 @@
+**Mayor Andre Dickens Easily Wins Re-election in Atlanta**\
+`Mr. Dickens, a Democrat who was running for a second term, had little serious opposition and benefited from a steep drop in violence, easing tensions in the city.`\
+https://nytimes.com/2025/11/04/us/atlanta-andre-dickens-mayor-race.html
+
 **Polarizing San Francisco Fountain Will Be Dismantled**\
 `“From a city that is supposed to be avant-garde, it’s a shame,” the sculpture’s 96-year-old artist said after the decision.`\
 https://nytimes.com/2025/11/04/arts/design/vaillancourt-fountain-san-francisco.html
