@@ -1,3 +1,11 @@
+**The Republicans Warning They Have a Problem**\
+`Off-year elections might hold more lessons for Republicans than Democrats.`\
+https://nytimes.com/2025/11/05/us/politics/elections-democrats-trump-republicans.html
+
+**After Mamdani’s Win, Who Is ‘Libbing Out,’ and Why?**\
+`For a swath of the left cynical about the American political system, “libbing out” means indulging in hope.`\
+https://nytimes.com/2025/11/05/style/libbing-out-mamdani-democrats.html
+
 **Trump vs. Mamdani: The Showdown to Come**\
 `President Trump has berated Zohran Mamdani, the mayor-elect of New York City, in public. But privately, Mr. Trump describes him as slick and a good talker.`\
 https://nytimes.com/2025/11/05/us/politics/trump-mamdani-showdown.html

@@ -1,3 +1,11 @@
+**Martinez to leave Earthquakes, eligible for MLS free agency**\
+`The 32-year-old Venezuela international forward was San Jose’s leading goal scorer this season with 14 goals in league play.`\
+https://nytimes.com/athletic/6782037/2025/11/05/josef-martinez-san-jose-earthquakes-transfer/
+
+**Infantino lauds President Trump, hints he may award him FIFA peace prize**\
+`The FIFA chief and the U.S. president have become firm allies ahead of the World Cup`\
+https://nytimes.com/athletic/6781983/2025/11/05/gianni-infantino-president-trump-fifa-world-cup-peace/
+
 **The Republicans Warning They Have a Problem**\
 `Off-year elections might hold more lessons for Republicans than Democrats.`\
 https://nytimes.com/2025/11/05/us/politics/elections-democrats-trump-republicans.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/11/05/us/trobroadview.html
 **Why the Phillies are bringing back José Alvarado by exercising $9 million club option**\
 `The decision reflects the club's confidence that Alvarado can return to form after a season interrupted by an 80-game PED suspension. `\
 https://nytimes.com/athletic/6763938/2025/11/05/phillies-jose-alvarado-contract-option/
-
-**Mexico’s President Presses Charges Against Man Who Groped Her on the Street**\
-`A video of a man touching the country’s first female president, Claudia Sheinbaum, shocked many Mexicans and led her to file a report with the police.`\
-https://nytimes.com/2025/11/05/world/americas/sheinbaum-man-video-charges.html
-
-**Police Investigating ‘Suspicious’ Deaths of 4 in Bronx Apartment**\
-`Investigators did not name the victims or explain what happened. Residents of the building were stunned by the deaths of cherished neighbors.`\
-https://nytimes.com/2025/11/05/nyregion/bronx-four-dead.html
 
