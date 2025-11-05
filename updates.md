@@ -1,3 +1,15 @@
+**Kehlani’s Throwback R&B Smash**\
+`The Oakland singer is taking us back to the hip-hop soul of the late ’90s with her new single and its remixes, according to our critic Jon Caramanica.`\
+https://nytimes.com/video/podcasts/100000010503682/kehlanis-throwback-rb-smash.html
+
+**What Is the Nondelegation Doctrine?**\
+`The groups challenging the president’s tariffs assert that the measures overstep the principle that Congress cannot cede its legislative powers to other branches of government.`\
+https://nytimes.com/2025/11/05/us/politics/nondelegation-doctrine-tariffs.html
+
+**Fire in Bosnia Rips Through Retirement Home**\
+`A blaze at a retirement home in a Bosnian city killed at least 11 people, mostly residents, according to the authorities. The cause of the fire remains undetermined.`\
+https://nytimes.com/video/world/europe/100000010505114/bosnia-retirement-home-fire.html
+
 **Padres offseason primer: The manager search, Preller’s status and rotation holes**\
 `The clock is ticking as loudly as ever for A.J. Preller to construct a legitimate World Series contender in San Diego.`\
 https://nytimes.com/athletic/6779461/2025/11/05/padres-offseason-primer-manager-search-preller/

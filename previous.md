@@ -1,3 +1,15 @@
+**Kehlani’s Throwback R&B Smash**\
+`The Oakland singer is taking us back to the hip-hop soul of the late ’90s with her new single and its remixes, according to our critic Jon Caramanica.`\
+https://nytimes.com/video/podcasts/100000010503682/kehlanis-throwback-rb-smash.html
+
+**What Is the Nondelegation Doctrine?**\
+`The groups challenging the president’s tariffs assert that the measures overstep the principle that Congress cannot cede its legislative powers to other branches of government.`\
+https://nytimes.com/2025/11/05/us/politics/nondelegation-doctrine-tariffs.html
+
+**Fire in Bosnia Rips Through Retirement Home**\
+`A blaze at a retirement home in a Bosnian city killed at least 11 people, mostly residents, according to the authorities. The cause of the fire remains undetermined.`\
+https://nytimes.com/video/world/europe/100000010505114/bosnia-retirement-home-fire.html
+
 **Padres offseason primer: The manager search, Preller’s status and rotation holes**\
 `The clock is ticking as loudly as ever for A.J. Preller to construct a legitimate World Series contender in San Diego.`\
 https://nytimes.com/athletic/6779461/2025/11/05/padres-offseason-primer-manager-search-preller/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/11/05/us/trump-tariffs-supreme-court/key-tariffs-c
 **A Major Question in the Tariffs Case: The ‘Major Questions Doctrine’**\
 `The Supreme Court used the doctrine, which requires Congress to speak clearly to confer vast economic power, to strike down several Biden administration programs.`\
 https://nytimes.com/2025/11/05/us/politics/major-questions-doctrine-trump-tariffs-scotus.html
-
-**Lawyer Who Won Trump’s Immunity Case Will Now Defend His Tariffs**\
-`As Donald Trump’s personal lawyer, D. John Sauer laid out an expansive vision of presidential power. Now the solicitor general, he will offer a new broad view of the president’s authority.`\
-https://nytimes.com/2025/11/05/us/politics/d-john-sauer-tariffs.html
-
-**A Supreme Court Veteran and a Newcomer Will Make the Case Against Trump’s Tariffs**\
-`Neal Katyal, who has argued over 50 cases before the court, represents a group of businesses. Benjamin Gutman, Oregon’s solicitor general, represents a coalition of states and is making his first appearance.`\
-https://nytimes.com/2025/11/05/us/politics/supreme-court-tariffs-lawyers.html
-
-**Yankees exercise Tim Hill's 2026 club option, begin work of rebuilding bullpen**\
-`Hill pitched to a 3.09 ERA in 70 games in 2025, leading the team in appearances. The lefty will make $3 million in 2026. `\
-https://nytimes.com/athletic/6777239/2025/11/05/yankees-tim-hill-club-option/
 
