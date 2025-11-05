@@ -1,3 +1,7 @@
+**Latest U.S. Strike on Suspected Drug Boat Kills 2 in Pacific, Hegseth Says**\
+`It was the 16th announced attack in two months and raised the death toll to at least 67 people in both the Caribbean Sea and the Pacific.`\
+https://nytimes.com/2025/11/04/us/politics/boat-strike-deaths-hegseth.html
+
 **Mayor Andre Dickens Easily Wins Re-election in Atlanta**\
 `Mr. Dickens, a Democrat who was running for a second term, had little serious opposition and benefited from a steep drop in violence, easing tensions in the city.`\
 https://nytimes.com/2025/11/04/us/atlanta-andre-dickens-mayor-race.html

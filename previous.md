@@ -1,3 +1,7 @@
+**Latest U.S. Strike on Suspected Drug Boat Kills 2 in Pacific, Hegseth Says**\
+`It was the 16th announced attack in two months and raised the death toll to at least 67 people in both the Caribbean Sea and the Pacific.`\
+https://nytimes.com/2025/11/04/us/politics/boat-strike-deaths-hegseth.html
+
 **Polarizing San Francisco Fountain Will Be Dismantled**\
 `“From a city that is supposed to be avant-garde, it’s a shame,” the sculpture’s 96-year-old artist said after the decision.`\
 https://nytimes.com/2025/11/04/arts/design/vaillancourt-fountain-san-francisco.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6777370/2025/11/04/college-football-playoff-first-r
 **For Ravens, the trade deadline was business as usual — and no one should be surprised**\
 `As he normally does, Baltimore GM Eric DeCosta made a few solid and selective additions while not sacrificing any future assets. `\
 https://nytimes.com/athletic/6778632/2025/11/04/ravens-eric-decosta-trade-deadline-moves/
-
-**Mayor Andre Dickens Easily Wins Re-election in Atlanta**\
-`Mr. Dickens, a Democrat who was running for a second term, had little serious opposition and benefited from a steep drop in violence, easing tensions in the city.`\
-https://nytimes.com/2025/11/04/us/atlanta-andre-dickens-mayor-race.html
 

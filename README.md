@@ -1,3 +1,7 @@
+**Do Dumb Ideas Ever Die?**\
+`Unlike old soldiers, they don’t even fade away.`\
+https://nytimes.com/2025/11/04/opinion/dumb-ideas-policy-trade-politics.html
+
 **Latest U.S. Strike on Suspected Drug Boat Kills 2 in Pacific, Hegseth Says**\
 `It was the 16th announced attack in two months and raised the death toll to at least 67 people in both the Caribbean Sea and the Pacific.`\
 https://nytimes.com/2025/11/04/us/politics/boat-strike-deaths-hegseth.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6778351/2025/11/04/howie-roseman-trade-deadline-jae
 **Ohio State, Indiana take top two spots in initial CFP rankings**\
 `This year, the CFP seeds will simply match the committee's rankings, instead of reserving byes for conference champions.`\
 https://nytimes.com/athletic/6777370/2025/11/04/college-football-playoff-first-rankings-top-25/
-
-**For Ravens, the trade deadline was business as usual — and no one should be surprised**\
-`As he normally does, Baltimore GM Eric DeCosta made a few solid and selective additions while not sacrificing any future assets. `\
-https://nytimes.com/athletic/6778632/2025/11/04/ravens-eric-decosta-trade-deadline-moves/
 
