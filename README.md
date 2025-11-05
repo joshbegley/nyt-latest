@@ -1,3 +1,7 @@
+**Texans quarterback C.J. Stroud ruled out for Sunday's game vs. Jaguars**\
+`Houston's quarterback left Sunday's Week 9 loss to Denver after suffering a concussion in the second quarter.`\
+https://nytimes.com/athletic/6781467/2025/11/05/cj-stroud-texans-injury-concussion/
+
 **Mamdani’s Global Roots**\
 `There’s been outsize international attention on the next mayor of New York City. Today, I write about why.`\
 https://nytimes.com/2025/11/05/world/zohran-mamdani-ukraine-drones-san-francisco.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6781451/2025/11/05/kyler-murray-cardinals-injured-r
 **15-Year-Old Is Fatally Stabbed at Long Island House Party, Police Say**\
 `Liam Delemo, of West Babylon, was stabbed when a fight broke out at a party near his home that was attended by dozens of teenagers, the authorities said.`\
 https://nytimes.com/2025/11/05/nyregion/long-island-stabbing-house-party.html
-
-**Heavy Drinking Is Tied to Worse Strokes, Study Finds**\
-`New research examined the link between alcohol and brain bleeds.`\
-https://nytimes.com/2025/11/05/well/alcohol-drinking-strokes-brain-bleeds.html
 
