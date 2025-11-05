@@ -1,3 +1,7 @@
+**In NASCAR antitrust lawsuit, 23XI/Front Row get a big win as trial date nears**\
+`NASCAR's Cup Series is its own unique marketplace, a judge ruled Tuesday, rejecting the idea that teams could go elsewhere if they wanted.`\
+https://nytimes.com/athletic/6778950/2025/11/04/nascar-antitrust-lawsuit-23xi-front-row-marketplace-ruling/
+
 **Trump Administration Chooses a Critic of California Elections to Monitor Them**\
 `Michael Gates, a Justice Department official who questioned Orange County’s voting procedures, was selected to monitor voting there.`\
 https://nytimes.com/2025/11/04/us/politics/trump-california-orange-county-elections-monitor.html
@@ -14,9 +18,9 @@ https://nytimes.com/2025/11/04/us/politics/mikie-sherrill-nj-governor.html
 `Ms. Sherrill, a Democratic congresswoman, beat Jack Ciattarelli, a Republican running his third race for governor, after a hard-fought campaign. She urged voters to consider the race a referendum on President Trump.`\
 https://nytimes.com/2025/11/04/us/politics/nj-governor-mikie-sherrill.html
 
-**Democrat leads Miami mayoral race headed to a runoff.**\
+**Democrat Leads Miami Mayoral Race Headed to a Runoff**\
 `In picking Eileen Higgins, a county commissioner, and rejecting three candidates with relatives in politics, voters made clear their desire to break from family dynasties.`\
-https://nytimes.com/live/2025/11/04/us/election-new-jersey-california/higgins-miami-mayor-election-results
+https://nytimes.com/2025/11/04/us/higgins-miami-mayor-election-results.html
 
 **City Council President Elected as First New Mayor of Detroit in 12 Years**\
 `Mary Sheffield will take over a city that Mayor Mike Duggan steered out of bankruptcy. She will be the first woman to lead Detroit.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/04/opinion/dumb-ideas-policy-trade-politics.html
 **Latest U.S. Strike on Suspected Drug Boat Kills 2 in Pacific, Hegseth Says**\
 `It was the 16th announced attack in two months and raised the death toll to at least 67 people in both the Caribbean Sea and the Pacific.`\
 https://nytimes.com/2025/11/04/us/politics/boat-strike-deaths-hegseth.html
-
-**Polarizing San Francisco Fountain Will Be Dismantled**\
-`“From a city that is supposed to be avant-garde, it’s a shame,” the sculpture’s 96-year-old artist said after the decision.`\
-https://nytimes.com/2025/11/04/arts/design/vaillancourt-fountain-san-francisco.html
 
