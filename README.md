@@ -1,3 +1,15 @@
+**Angel City investor Monarch Collective goes global, buying into German club**\
+`The private equity fund will eventually acquire a 38% stake in FC Viktoria Berlin.`\
+https://nytimes.com/athletic/6775486/2025/11/05/monarch-collective-fc-viktoria-berlin-investment/
+
+**Inside Trump's Turnberry: £1,000 per round, iconic holes and an Open omerta**\
+`The U.S. President's course lives up to its reputation as one of the world's best but its chances of hosting another major remain remote`\
+https://nytimes.com/athletic/6704345/2025/11/05/turnberry-trump-open-venue/
+
+**Word of the Day: innocuous**\
+`This word has appeared in 178 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/05/learning/word-of-the-day-innocuous.html
+
 **Kompany likes to tell Bayern they're 'not that good'. They might be the best team in Europe**\
 `Bayern are top of the Champions League and Bundesliga and are yet to drop a point in any competition`\
 https://nytimes.com/athletic/6778964/2025/11/05/bayern-munich-best-team-europe/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/11/04/us/election-new-jersey-california/california
 **In a Speech Full of Hope, Mamdani Celebrates a New Political Order**\
 `Zohran Mamdani, in his victory speech, celebrated New York’s immigrants, working class and young people and said the city could show the country how to defeat President Trump.`\
 https://nytimes.com/2025/11/05/nyregion/mamdani-speech-victory-nyc.html
-
-**In the New York City Council, Democrats Win Key Races**\
-`Democratic candidates won contested races in Brooklyn, the Bronx and Queens, but a Republican firebrand won re-election.`\
-https://nytimes.com/2025/11/05/nyregion/nyc-city-council-democrats.html
-
-**The New York Times in Print for Wednesday, Nov. 5, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/11/05/todays-new-york-times
-
-**Can Tuesday’s Success Carry Democrats Further Than the Midterms?**\
-`Victories across the country show promise for the party’s chances next year, but some bigger issues remain.`\
-https://nytimes.com/2025/11/05/upshot/democrats-election-results-analysis.html
 
