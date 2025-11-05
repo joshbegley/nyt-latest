@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6777370/2025/11/04/college-football-playoff-first-r
 `As he normally does, Baltimore GM Eric DeCosta made a few solid and selective additions while not sacrificing any future assets. `\
 https://nytimes.com/athletic/6778632/2025/11/04/ravens-eric-decosta-trade-deadline-moves/
 
-**Mayor Andre Dickens easily wins re-election in Atlanta.**\
+**Mayor Andre Dickens Easily Wins Re-election in Atlanta**\
 `Mr. Dickens, a Democrat who was running for a second term, had little serious opposition and benefited from a steep drop in violence, easing tensions in the city.`\
 https://nytimes.com/2025/11/04/us/atlanta-andre-dickens-mayor-race.html
 
