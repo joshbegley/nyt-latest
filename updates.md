@@ -1,3 +1,7 @@
+**Air Traffic Will Be Cut on Friday if Shutdown Continues, Officials Warn**\
+`Sean Duffy, the transportation secretary, warned earlier this week that if the shutdown went on, he could close parts of the national airspace to traffic.`\
+https://nytimes.com/2025/11/05/us/politics/faa-flights-air-traffic-government-shutdown.html
+
 **Reds decline options on Austin Hays, Scott Barlow and Brent Suter**\
 `The Reds parted ways with two relievers and an outfielder who was productive but missed a lot of time with injuries in 2025.`\
 https://nytimes.com/athletic/6781679/2025/11/05/reds-options-austin-hays-scott-barlow-brent-suter/
