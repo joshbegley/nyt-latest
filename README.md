@@ -1,3 +1,15 @@
+**Barton tells court 'dark humour' behind social media posts on female football pundits and Jeremy Vine**\
+`The former midfielder repeatedly insisted he did not mean to cause the trio any anxiety or distress by his 2024 social media posts on X.`\
+https://nytimes.com/athletic/6781204/2025/11/05/joey-barton-trial-jeremy-vine/
+
+**How N.Y.C. Voted For Mamdani**\
+`Zohran Mamdani was elected mayor of New York City, riding a historic surge of enthusiasm. Our reporter Nicholas Fandos explains the results across all five boroughs broken down by precinct.`\
+https://nytimes.com/video/nyregion/100000010493592/how-mamdani-won-nyc.html
+
+**Key House Democrat in Swing District Won’t Run Again in 2026**\
+`Pointing to “the plain nastiness” of politics and threats he has faced, Representative Jared Golden of Maine will retire instead of trying to keep the reddest House seat held by a Democrat.`\
+https://nytimes.com/2025/11/05/us/politics/jared-golden-maine-retires.html
+
 **Trump Administration Ends Deportation Protections for South Sudanese**\
 `The program was first authorized for South Sudanese nationals in 2011. The Department of Homeland Security said that “renewed peace in South Sudan” and “improved diplomatic relations” justified the move.`\
 https://nytimes.com/2025/11/05/us/politics/trump-south-sudan-migrants.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6781427/2025/11/05/timberwolves-vs-knicks-stream-ho
 **How to watch Heat vs. Nuggets: Time, TV, streaming**\
 `Find out how to watch the Miami Heat play the Denver Nuggets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6781424/2025/11/05/heat-vs-nuggets-stream-how-to-watch-nov-5/
-
-**Mamdani Begins to Pick the Team That Will Help Him Run New York City**\
-`Zohran Mamdani has been planning his mayoral transition for months and appears poised to hire veterans of city government to key posts in his administration.`\
-https://nytimes.com/2025/11/05/nyregion/zohran-mamdani-staff-transition-team.html
-
-**How to watch Warriors vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Golden State Warriors play the Sacramento Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6781422/2025/11/05/warriors-vs-kings-stream-how-to-watch-nov-5/
-
-**How to watch Spurs vs. Lakers: Time, TV, streaming**\
-`Find out how to watch the San Antonio Spurs play the Los Angeles Lakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6781418/2025/11/05/spurs-vs-lakers-stream-how-to-watch-nov-5/
 
