@@ -1,3 +1,11 @@
+**Lingering illness will sideline Stephen Curry for Warriors' game at Sacramento**\
+`Curry has been battling the lingering illness since last weekend; Jimmy Butler could miss Wednesday's game with back soreness.`\
+https://nytimes.com/athletic/6779561/2025/11/05/stephen-curry-skip-game-cold-warriors/
+
+**By moving Florian Wirtz to the left, Liverpool look to have found a home for a rare talent**\
+`Arsene Wenger said Liverpool had “destroyed their midfield” by playing Florian Wirtz as a No 10, now they have found balance`\
+https://nytimes.com/athletic/6779526/2025/11/05/florian-wirtz-arsene-wenger/
+
 **With Trademark Defiance, Cuomo Contemplates Another Loss**\
 `Before a dwindling and forlorn crowd, Andrew Cuomo conceded defeat in the New York City mayor’s race, but still somehow conceded little else.`\
 https://nytimes.com/2025/11/05/nyregion/cuomo-defeat-mayoral-race.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6778964/2025/11/05/bayern-munich-best-team-europe/
 **Thomas Frank and Spurs bask in incredible healing powers great goals can bring**\
 `After a painful defeat to Chelsea on Saturday, Tottenham and their new manager got exactly the reaction they needed in the Champions League`\
 https://nytimes.com/athletic/6778859/2025/11/05/spurs-copenhagen-van-de-ven-frank/
-
-**With 80th consecutive 20-point game, SGA passes Oscar Robertson**\
-`It's hard to deny that Gilgeous-Alexander is already among the best scorers in NBA history. Can he catch Wilt Chamberlain?`\
-https://nytimes.com/athletic/6779428/2025/11/05/shai-gilgeous-alexander-oscar-robertson-wilt-chamberlain-thunder/
-
-**Mamdani’s Mayoral Victory Divides Jewish New Yorkers**\
-`Jewish leaders had a mixed reaction to the election of Zohran Mamdani, who has repeatedly criticized Israel’s treatment of Palestinians and its conduct during the war in Gaza.`\
-https://nytimes.com/2025/11/05/nyregion/mamdani-jewish-leaders.html
 
