@@ -1,3 +1,19 @@
+**Polarizing San Francisco Fountain Will Be Dismantled**\
+`“From a city that is supposed to be avant-garde, it’s a shame,” the sculpture’s 96-year-old artist said after the decision.`\
+https://nytimes.com/2025/11/04/arts/design/vaillancourt-fountain-san-francisco.html
+
+**‘Unnecessarily Cruel’: Judge Expresses Alarm About ICE Detention Conditions**\
+`Several former detainees described tight quarters, a lack of sanitation and little access to lawyers at the Broadview, Ill., immigration detention facility.`\
+https://nytimes.com/2025/11/04/us/illinois-immigration-broadview-conditions.html
+
+**At Least 3 Dead After UPS Plane Crashes in Louisville, Officials Say**\
+`A deadly UPS cargo plane crash near the the Muhammad Ali International Airport in Louisville, Ky., left several people injured, officials said. The Honolulu bound plane swiftly descended shortly after takeoff and struck two businesses.`\
+https://nytimes.com/video/us/100000010504072/louisville-plane-crash-multiple-death.html
+
+**As Twins tenure begins, Derek Shelton hopes lessons learned in Pittsburgh serve him well**\
+`Shelton isn’t identifying 2026 as a rebuild, despite taking over a group of young players following an exodus of 10 Twins traded in July.`\
+https://nytimes.com/athletic/6778825/2025/11/04/derek-shelton-twins-manager-pirates-introspection/
+
 **The Most Detailed Map of the N.Y.C. Mayoral Election**\
 `See how New Yorkers are voting, precinct by precinct`\
 https://nytimes.com/interactive/2025/11/04/us/elections/nyc-mayor-results-precinct-map.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6778632/2025/11/04/ravens-eric-decosta-trade-deadli
 **Mayor Andre Dickens easily wins re-election in Atlanta.**\
 `Mr. Dickens, a Democrat who was running for a second term, had little serious opposition and benefited from a steep drop in violence, easing tensions in the city.`\
 https://nytimes.com/2025/11/04/us/atlanta-andre-dickens-mayor-race.html
-
-**Brian Gutiérrez in process of getting Mexican passport, national team eligibility: Sources**\
-`The 22-year-old would need to file a one-time switch to be eligible to represent Mexico. His only two caps with the USMNT came in January.`\
-https://nytimes.com/athletic/6778740/2025/11/04/brian-gutierrez-mexican-passport-eligibility/
-
-**Chargers' trade for Trevor Penning will not repair their 2025 ceiling**\
-`The Chargers needed to make an addition to the offensive line, but Penning isn't going to transform them back into contenders.`\
-https://nytimes.com/athletic/6778759/2025/11/04/chargers-nfl-trade-deadline-trevor-penning/
-
-**Colts GM Chris Ballard is ‘All. Chips. In.’ with trade for Sauce Gardner**\
-`With his latest move, Ballard has given Colts fans something even more dangerous: Hope.`\
-https://nytimes.com/athletic/6778696/2025/11/04/colts-sauce-gardner-jets-trade-chris-ballard/
-
-**Kevin Durant responds to Draymond Green's defense comments**\
-`Former Golden State Warriors teammates continue debate, sharing their different basketball philosophies.`\
-https://nytimes.com/athletic/6778698/2025/11/04/draymond-green-kevin-durant-response-defense-nba/
 
