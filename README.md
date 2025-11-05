@@ -1,3 +1,7 @@
+**If the justices rule in Trump’s favor, one dissent could guide their decision.**\
+`By Ann E. Marimow`\
+https://nytimes.com/live/2025/11/05/us/trump-tariffs-supreme-court/if-the-justices-rule-in-trumps-favor-one-dissent-could-guide-their-decision
+
 **Kehlani’s Throwback R&B Smash**\
 `The Oakland singer is taking us back to the hip-hop soul of the late ’90s with her new single and its remixes, according to our critic Jon Caramanica.`\
 https://nytimes.com/video/podcasts/100000010503682/kehlanis-throwback-rb-smash.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6780411/2025/11/05/nba-rookies-aj-dybantsa-darryn-p
 **Youngstown Steel, Yoshida II and Dames & Moore: Here’s what the lawyers are talking about.**\
 `By Abbie VanSickle`\
 https://nytimes.com/live/2025/11/05/us/trump-tariffs-supreme-court/key-tariffs-cases-supreme-court
-
-**A Major Question in the Tariffs Case: The ‘Major Questions Doctrine’**\
-`The Supreme Court used the doctrine, which requires Congress to speak clearly to confer vast economic power, to strike down several Biden administration programs.`\
-https://nytimes.com/2025/11/05/us/politics/major-questions-doctrine-trump-tariffs-scotus.html
 
