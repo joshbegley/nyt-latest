@@ -1,3 +1,11 @@
+**In an Upset, Democrats Oust Two Republicans on Georgia’s Utility Board**\
+`The races for two of the five seats on the Georgia Public Service Commission are seen as a bellwether for the midterms.`\
+https://nytimes.com/2025/11/04/us/georgia-election-utility-board-results.html
+
+**Commanders' Frankie Luvu has 1-game suspension overturned, but is fined $100K**\
+`A day after the NFL said Luvu would be suspended for this third hip-drop tackle, hearing officer Derrick Brooks reduced the punishment.`\
+https://nytimes.com/athletic/6779240/2025/11/04/frankie-luvu-commanders-suspension-overturned-fined-100k/
+
 **Jumaane Williams is Re-elected New York City Public Advocate**\
 `Mr. Williams, who has championed the rights of tenants, immigrants and victims of police violence while in office, won re-election handily after beating two Democratic primary challengers in June.`\
 https://nytimes.com/2025/11/04/nyregion/nyc-public-advocate-jumaane-williams.html
