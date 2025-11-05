@@ -1,3 +1,15 @@
+**Walt Weiss is ready to prove he was best suited to take over as Braves manager**\
+`Most of the Braves' starting rotation should be back for 2026, and they don’t believe the managerial change should slow them down.`\
+https://nytimes.com/athletic/6778335/2025/11/04/walt-weiss-new-atlanta-braves-manager/
+
+**Browns didn't get better at trade deadline, and the future didn't get any clearer**\
+`Following the deadline, it's clear this Cleveland team is stuck in a bad and awkward place because of past decisions. `\
+https://nytimes.com/athletic/6778426/2025/11/04/browns-future-trade-deadline/
+
+**Smoke Plumes Billow After Plane Crash in Louisville**\
+`Videos show large clouds of smoke in the sky after a plane crashed near Louisville Muhammad Ali International Airport in Kentucky on Tuesday. Emergency responders reported multiple injuries.`\
+https://nytimes.com/video/us/100000010503930/louisville-kentucky-plane-crash.html
+
 **Why the Panthers didn't make a deal before the trade deadline**\
 `GM Dan Morgan decided against making a deal after Carolina upset the Packers and improved to 5-4, a game and a half behind Tampa Bay.`\
 https://nytimes.com/athletic/6778556/2025/11/04/carolina-panthers-nfl-trade-deadline/

@@ -1,3 +1,15 @@
+**Walt Weiss is ready to prove he was best suited to take over as Braves manager**\
+`Most of the Braves' starting rotation should be back for 2026, and they don’t believe the managerial change should slow them down.`\
+https://nytimes.com/athletic/6778335/2025/11/04/walt-weiss-new-atlanta-braves-manager/
+
+**Browns didn't get better at trade deadline, and the future didn't get any clearer**\
+`Following the deadline, it's clear this Cleveland team is stuck in a bad and awkward place because of past decisions. `\
+https://nytimes.com/athletic/6778426/2025/11/04/browns-future-trade-deadline/
+
+**Smoke Plumes Billow After Plane Crash in Louisville**\
+`Videos show large clouds of smoke in the sky after a plane crashed near Louisville Muhammad Ali International Airport in Kentucky on Tuesday. Emergency responders reported multiple injuries.`\
+https://nytimes.com/video/us/100000010503930/louisville-kentucky-plane-crash.html
+
 **Why the Panthers didn't make a deal before the trade deadline**\
 `GM Dan Morgan decided against making a deal after Carolina upset the Packers and improved to 5-4, a game and a half behind Tampa Bay.`\
 https://nytimes.com/athletic/6778556/2025/11/04/carolina-panthers-nfl-trade-deadline/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/could-mamdanis-p
 **Bob Trumpy, Star Receiver Turned NBC Football Analyst, Dies at 70**\
 `He made his mark with the Cincinnati Bengals as a fast pass-catching tight end. He later joined announcers like Bob Costas and Dick Enberg in the broadcast booth.`\
 https://nytimes.com/2025/11/04/sports/bob-trumpy-dead.html
-
-**NFL 2025 trade deadline: The biggest names who didn’t get moved**\
-`While the Jets made a pair of blockbuster moves, they held onto running back Breece Hall and defensive end Jermaine Johnson.`\
-https://nytimes.com/athletic/6778284/2025/11/04/nfl-trade-deadline-2025-breece-hall-jaylen-waddle/
-
-**What is Kalshi, the predictions market that's caught the NCAA's attention?**\
-`College athletics' governing body questions the prediction market's involvement in sports amid concerns about unregulated gambling.`\
-https://nytimes.com/athletic/6778085/2025/11/04/what-is-kalshi-the-predictions-market-thats-attracted-the-ncaas-attention/
-
-**Seahawks, John Schneider thinking big with trade for Rashid Shaheed**\
-`For now, Shaheed is a one-year rental, and the Seahawks are now short on draft capital, but the deal could have upside beyond 2025.`\
-https://nytimes.com/athletic/6778089/2025/11/04/seahawks-trade-deadline-rashid-shaheed-john-schneider/
 
