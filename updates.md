@@ -1,3 +1,19 @@
+**McGinn signs new Villa contract to 2028**\
+`Everton, and more recently, Newcastle, had shown interest in signing the Scotland international over the summer.`\
+https://nytimes.com/athletic/6542129/2025/11/05/john-mcginn-contract-2028/
+
+**Solaya: Where Architecture, Calm, and the Sea Meet**\
+` `\
+https://nytimes.com/paidpost/meraas/meraas-ad-post-campaign/solaya-where-architecture-calm-and-the-sea-meet.html
+
+**What the initial CFP Top 25 revealed about Notre Dame's Playoff path**\
+`The Irish are the highest-ranked two-loss team in the CFP’s first rankings, slotted ahead of three one-loss teams from Power 4 conferences.`\
+https://nytimes.com/athletic/6779942/2025/11/05/notre-dame-college-football-playoff-ranking-odds/
+
+**Winning college football coach candidates are out there, if you know where to look**\
+`The next Curt Cignetti is out there somewhere, probably coaching in front of 10,000 fans at a school known only to football diehards.`\
+https://nytimes.com/athletic/6758018/2025/11/05/college-football-coach-candidates-winners-cignetti/
+
 **Democrats’ Big Election Night**\
 `We explain the party’s wins in New York City, New Jersey, Virginia and more.`\
 https://nytimes.com/2025/11/05/briefing/democrats-big-election-night.html
