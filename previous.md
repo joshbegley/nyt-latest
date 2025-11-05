@@ -1,3 +1,7 @@
+**Wild's Marcus Johansson scores 'confusing' OT winner with net off its moorings**\
+`The NHL determined that Predators goaltender Justus Annunen knocked the net off the moorings to nullify an imminent scoring chance.`\
+https://nytimes.com/athletic/6779345/2025/11/04/wild-predators-marcus-johansson-overtime-goal/
+
 **Democrats’ Big Night in Virginia Makes History for Muslims**\
 `Ghazala Hashmi, elected as lieutenant governor, became the first Muslim woman to win statewide office in any state.`\
 https://nytimes.com/2025/11/04/us/politics/ghazala-hashmi-virginia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/04/nyregion/mamdani-mayor-nyc-voters.html
 **Commanders' Frankie Luvu has 1-game suspension overturned, but is fined $100K**\
 `A day after the NFL said Luvu would be suspended for this third hip-drop tackle, hearing officer Derrick Brooks reduced the punishment.`\
 https://nytimes.com/athletic/6779240/2025/11/04/frankie-luvu-commanders-suspension-overturned-fined-100k/
-
-**Zohran Mamdani Is Elected Mayor of New York City**\
-`Mr. Mamdani, a state lawmaker and democratic socialist, will be the first Muslim mayor in the city’s history.`\
-https://nytimes.com/2025/11/04/nyregion/nyc-mayor-mamdani-elected.html
 

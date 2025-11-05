@@ -1,3 +1,7 @@
+**Wild's Marcus Johansson scores 'confusing' OT winner with net off its moorings**\
+`The NHL determined that Predators goaltender Justus Annunen knocked the net off the moorings to nullify an imminent scoring chance.`\
+https://nytimes.com/athletic/6779345/2025/11/04/wild-predators-marcus-johansson-overtime-goal/
+
 **Democrats’ Big Night in Virginia Makes History for Muslims**\
 `Ghazala Hashmi, elected as lieutenant governor, became the first Muslim woman to win statewide office in any state.`\
 https://nytimes.com/2025/11/04/us/politics/ghazala-hashmi-virginia.html
