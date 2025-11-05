@@ -1,3 +1,11 @@
+**After Mamdani Win, Schumer Rejects Charges He’s Out of Touch**\
+`The top Senate Democrat was reluctant to say why he stayed on the sidelines of the mayoral race and denied that Zohran Mamdani’s victory reflected poorly on him.`\
+https://nytimes.com/2025/11/05/nyregion/schumer-mamdani-nyc-mayor-election.html
+
+**Amanda Anisimova rebounds, one set and one tennis match at a time**\
+`The American's 2025 season has been defined by comebacks, small and large. So too has her career.`\
+https://nytimes.com/athletic/6781388/2025/11/05/anisimova-swiatek-wta-tour-finals/
+
 **Former WNBA MVP Nneka Ogwumike signs with Project B**\
 `Project B is expected to launch in 2026 and play its debut season from November 2026 through April 2027.`\
 https://nytimes.com/athletic/6781350/2025/11/05/nneka-ogwumike-wnba-project-b/

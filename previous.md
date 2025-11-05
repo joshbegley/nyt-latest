@@ -1,9 +1,13 @@
+**After Mamdani Win, Schumer Rejects Charges He’s Out of Touch**\
+`The top Senate Democrat was reluctant to say why he stayed on the sidelines of the mayoral race and denied that Zohran Mamdani’s victory reflected poorly on him.`\
+https://nytimes.com/2025/11/05/nyregion/schumer-mamdani-nyc-mayor-election.html
+
 **Former WNBA MVP Nneka Ogwumike signs with Project B**\
 `Project B is expected to launch in 2026 and play its debut season from November 2026 through April 2027.`\
 https://nytimes.com/athletic/6781350/2025/11/05/nneka-ogwumike-wnba-project-b/
 
 **Amanda Anisimova rebounds, one set and one tennis match at a time**\
-`The American has climbed small and large tennis mountains through her career, and throughout 2025.`\
+`The American's 2025 season has been defined by comebacks, small and large. So too has her career.`\
 https://nytimes.com/athletic/6781388/2025/11/05/anisimova-swiatek-wta-tour-finals/
 
 **Cardinals to place Kyler Murray on IR, coach says**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/05/us/politics/republicans-elections-trump.html
 **Sources: Juventus, City Football Group show interest in Houston's Raines**\
 `Raines, 20, just represented the U.S. at the FIFA Under-20 World Cup in Chile, and is generating significant interest`\
 https://nytimes.com/athletic/6781077/2025/11/05/brooklyn-raines-houston-dynamo-juventus-city-football-group/
-
-**‘Generational Change’**\
-`Have you been following the race for mayor of New York City? What is your reaction to Zohran Mamdani’s win?`\
-https://nytimes.com/2025/11/05/learning/generational-change.html
 
