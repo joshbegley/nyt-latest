@@ -1,3 +1,7 @@
+**3 Plays About Jewish Identity That Resist Easy Answers**\
+`The Off Broadway shows “Hannah Senesh,” “Jewish Plot” and “Playing Shylock” take stock of discussions around casting and storytelling.`\
+https://nytimes.com/2025/11/05/theater/hannah-senesh-jewish-plot-playing-shylock.html
+
 **Attacked by Swarm of Wasps, American Father and Son Die in Laos**\
 `Daniel Owen, 47, and his son, Cooper, 15, died after being stung dozens of times last month by what appeared to be so-called murder hornets.`\
 https://nytimes.com/2025/11/05/world/asia/laos-wasp-attack-father-son.html
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6779897/2025/11/05/bulls-comeback-sixers-nba-start/
 `Republicans and Democrats remain divided even as the pain of the shutdown intensifies and lawmakers in both parties say a breakthrough could come soon.`\
 https://nytimes.com/live/2025/11/05/us/trump-shutdown-news/shutdown-enters-36th-day-as-stalemate-in-congress-continues
 
-**Trump Administration Live Updates: President to Meet With G.O.P. Senators as Shutdown Breaks Record**\
+**Trump Administration Live Updates: President Meets With G.O.P. Senators as Shutdown Breaks Record**\
 ``\
 https://nytimes.com/live/2025/11/05/us/trump-shutdown-news
 
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/6779301/2025/11/05/texas-ohio-state-playoffs-mandel
 `Few teams have outmanoeuvred PSG in the last 12 months but Vincent Kompany's side had the tactical intelligence to do so`\
 https://nytimes.com/athletic/6779719/2025/11/05/bayern-psg-tactics-pressing-kompany/
 
-**Submit your post-trade deadline mailbag questions now for Patriots reporter Chad Graff**\
-`Leave your NFL trade deadline questions below for Patriots writer Chad Graff to answer in a story set to post later this week.`\
-https://nytimes.com/athletic/6778604/2025/11/05/patriots-mailbag-nfl-trade-deadline/
-
-**Bradley and Robertson are back - and Liverpool look much better for it**\
-`The return of Arne Slot's two most defensively-secure full-backs has helped spark an overall return to form`\
-https://nytimes.com/athletic/6776368/2025/11/05/liverpool-conor-bradley-andy-robertson/
+**Patrick Mahomes couldn't solve Bills' dime defense: Week 9 Quick Outs**\
+`Mahomes struggled as the Bills played DB-heavy personnel, and it's probably too soon to reignite the J.J. McCarthy hype.`\
+https://nytimes.com/athletic/6775149/2025/11/05/nfl-week-9-patrick-mahomes-bills-jj-mccarthy/
 
