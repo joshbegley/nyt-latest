@@ -1,3 +1,19 @@
+**Trump Administration Chooses a Critic of California Elections to Monitor Them**\
+`Michael Gates, a Justice Department official who questioned Orange County’s voting procedures, was selected to monitor voting there.`\
+https://nytimes.com/2025/11/04/us/politics/trump-california-orange-county-elections-monitor.html
+
+**Mamdani Blazes Trail as New York’s First Muslim and South Asian Mayor-Elect**\
+`Zohran Mamdani’s ascent was powered by a relentless focus on affordability. Along the way, he energized South Asian and Muslim communities that rarely receive sustained attention from politicians.`\
+https://nytimes.com/2025/11/04/nyregion/mamdani-nyc-mayor-muslim-south-asian.html
+
+**Mikie Sherrill: What to Know About New Jersey’s Next Governor**\
+`Ms. Sherrill, a Democrat, will be the second woman to serve as governor of New Jersey. The first, Christine Todd Whitman, a onetime Republican, endorsed Ms. Sherrill.`\
+https://nytimes.com/2025/11/04/us/politics/mikie-sherrill-nj-governor.html
+
+**Mikie Sherrill, a Democrat, Wins New Jersey Governor’s Race**\
+`Ms. Sherrill, a Democratic congresswoman, beat Jack Ciattarelli, a Republican running his third race for governor, after a hard-fought campaign. She urged voters to consider the race a referendum on President Trump.`\
+https://nytimes.com/2025/11/04/us/politics/nj-governor-mikie-sherrill.html
+
 **Mikie Sherrill: What to Know About New Jersey’s Next Governor**\
 `Ms. Sherrill, a Democrat, will be the second woman to serve as governor of New Jersey. The first, Christine Todd Whitman, a onetime Republican, endorsed Ms. Sherrill.`\
 https://nytimes.com/2025/11/04/us/politics/nj-governor-what-to-know.html
