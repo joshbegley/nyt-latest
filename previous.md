@@ -1,3 +1,19 @@
+**TAFC: Van de Ven goal 'like Messi at centre-back', Diaz's mixed night, Rice vs Caicedo debate**\
+`Today in TAFC: Lightning Van de Ven strikes with incredible goal, Diaz goes from hero to zero, and Rice vs Caicedo for best midfielder`\
+https://nytimes.com/athletic/6779721/2025/11/05/van-de-ven-diaz-bayern-rice-caicedo-debate/
+
+**Tormented Jets fans deserve to see this rebuild finally lead to a championship parade**\
+`If there's any justice to be had for the men and women who have supported this cursed franchise through thin and thin, let them have it now.`\
+https://nytimes.com/athletic/6778905/2025/11/05/jets-trade-deadline-rebuild-tortured-fans/
+
+**To compete in 2026, Cubs will need to rebuild bullpen once again**\
+`Of the high-leverage relievers who were crucial down the stretch, only Daniel Palencia remains under team control in 2026.`\
+https://nytimes.com/athletic/6778693/2025/11/05/chicago-cubs-2026-bullpen-rebuild/
+
+**Mamdani Walks Offstage to Bollywood Song After Victory Speech**\
+`“Dhoom Machale,” a popular Hindi film song played at the end of Zohran Mamdani’s first speech as New York City’s mayor-elect, nodded to his Indian roots.`\
+https://nytimes.com/2025/11/05/nyregion/zohran-mamdani-bollywood-dhoom-machale.html
+
 **Winners and losers of NHL’s skyrocketing cap: Kirill Kaprizov, small market worries, and more**\
 `Based on market trends and conversations The Athletic had with agents and executives, here's a look at the implications of the cap rise.`\
 https://nytimes.com/athletic/6764226/2025/11/05/nhl-salary-cap-winners-and-losers/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6777743/2025/11/05/jalen-redmond-vikings-61-xfl-okl
 **‘Hope Won’: Sadiq Khan, London’s Mayor, Congratulates Mamdani**\
 `Both men have faced virulent attacks from the far right for their Muslim faith and progressive politics, although there are notable differences in their policies.`\
 https://nytimes.com/2025/11/05/nyregion/mamdani-london-mayor-sadiq-khan.html
-
-**These chimpanzees starred in a hockey movie. Their lives are much different now**\
-`The chimps who starred in "MVP" 25 years ago are long removed from wearing hockey gear, but the impacts of their show business days linger.`\
-https://nytimes.com/athletic/6775160/2025/11/05/most-valuable-primate-hockey-movie-chimps-air-bud/
-
-**Sixers blow a big lead in loss, but Jared McCain's return is a win**\
-`"I was just blessed to be out there," McCain said. "So, for that, I was definitely thankful to just be able to play in the game`\
-https://nytimes.com/athletic/6779401/2025/11/05/sixers-lose-jared-mccain-returns/
-
-**2026 NHL Draft ranking: Scott Wheeler’s preliminary top 64 list**\
-`This top 64 list of draft prospects is Scott Wheeler's third of what will be seven rankings of the 2026 class.`\
-https://nytimes.com/athletic/6737460/2025/11/05/nhl-draft-2026-prospects-ranking-wheeler-preliminary/
-
-**At Alabama, football and fashion collide on sorority row: 'People watch us like we're in a snow globe'**\
-`The outfits are grand and unapologetically bougie. For some women, this is the stage to cash in on the influencer cachet sweeping campuses.`\
-https://nytimes.com/athletic/6777899/2025/11/05/alabama-football-sorority-fashion/
 

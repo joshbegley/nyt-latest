@@ -1,3 +1,19 @@
+**TAFC: Van de Ven goal 'like Messi at centre-back', Diaz's mixed night, Rice vs Caicedo debate**\
+`Today in TAFC: Lightning Van de Ven strikes with incredible goal, Diaz goes from hero to zero, and Rice vs Caicedo for best midfielder`\
+https://nytimes.com/athletic/6779721/2025/11/05/van-de-ven-diaz-bayern-rice-caicedo-debate/
+
+**Tormented Jets fans deserve to see this rebuild finally lead to a championship parade**\
+`If there's any justice to be had for the men and women who have supported this cursed franchise through thin and thin, let them have it now.`\
+https://nytimes.com/athletic/6778905/2025/11/05/jets-trade-deadline-rebuild-tortured-fans/
+
+**To compete in 2026, Cubs will need to rebuild bullpen once again**\
+`Of the high-leverage relievers who were crucial down the stretch, only Daniel Palencia remains under team control in 2026.`\
+https://nytimes.com/athletic/6778693/2025/11/05/chicago-cubs-2026-bullpen-rebuild/
+
+**Mamdani Walks Offstage to Bollywood Song After Victory Speech**\
+`“Dhoom Machale,” a popular Hindi film song played at the end of Zohran Mamdani’s first speech as New York City’s mayor-elect, nodded to his Indian roots.`\
+https://nytimes.com/2025/11/05/nyregion/zohran-mamdani-bollywood-dhoom-machale.html
+
 **Winners and losers of NHL’s skyrocketing cap: Kirill Kaprizov, small market worries, and more**\
 `Based on market trends and conversations The Athletic had with agents and executives, here's a look at the implications of the cap rise.`\
 https://nytimes.com/athletic/6764226/2025/11/05/nhl-salary-cap-winners-and-losers/
