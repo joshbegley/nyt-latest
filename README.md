@@ -1,3 +1,7 @@
+**Zohran Mamdani’s Triumph in New York Evokes Intense Reaction in Israel**\
+`“The Big Apple has fallen,” a right-wing lawmaker said, reflecting broader worries in the Mideast country. Palestinians hailed the election as a sea change in the United States.`\
+https://nytimes.com/2025/11/05/world/middleeast/zohran-mamdani-israel-reaction.html
+
 **What is IEEPA, the Law Trump Used to Levy Tariffs?**\
 `The Supreme Court is set to consider the legality of tariffs the president has invoked emergency powers to place on many trading partners.`\
 https://nytimes.com/2025/11/05/us/politics/ieepa-scotus-trump-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6778712/2025/11/05/rams-trade-deadline-moves/
 **The Capitalism Election?**\
 `Democrats won big nationwide. But Zohran Mamdani’s victory raises questions about whether Democrats and voters are embracing populism.`\
 https://nytimes.com/2025/11/05/business/dealbook/voters-wall-street-trump.html
-
-**3 Plays About Jewish Identity That Resist Easy Answers**\
-`The Off Broadway shows “Hannah Senesh,” “Jewish Plot” and “Playing Shylock” take stock of discussions around casting and storytelling.`\
-https://nytimes.com/2025/11/05/theater/hannah-senesh-jewish-plot-playing-shylock.html
 
