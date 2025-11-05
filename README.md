@@ -1,3 +1,7 @@
+**Democrats in Mississippi Break the G.O.P.’s State House Supermajority**\
+`Tuesday’s special election was forced by a court-ordered redistricting to offer Black voters a chance for more representation in the State Capital.`\
+https://nytimes.com/2025/11/05/us/politics/mississippi-special-election-results.html
+
 **Scoop City: Unpacking Jets' blockbuster trades, one day later**\
 `Unpacking yesterday's massive deals for the Jets, Colts and Cowboys, plus Mike Sando's top takeaways.`\
 https://nytimes.com/athletic/6781255/2025/11/05/jets-trades-sauce-gardner-quinnen-williams-cowboys-colts-scoop-city/
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/6781214/2025/11/05/broncos-new-stadium-large-area-r
 `More this week: "Battle of the Sexes 2.0," NWSL coach using ChatGPT, Tom Brady's clone dog, Alabama sorority influencers and the All Blacks.`\
 https://nytimes.com/athletic/6781052/2025/11/05/disney-espn-youtubetv-nfl-moneycall/
 
-**The Briefing: Qarabag 2 Chelsea 2 - A point gained, or two dropped? Why are defensive mistakes persisting?**\
+**The Briefing: Qarabag 2 Chelsea 2 – A point gained, or two dropped? Why are defensive mistakes persisting?**\
 `Cerys Jones analyses the key talking points from Chelsea's long Champions League trip to Azerbaijan`\
 https://nytimes.com/athletic/6777062/2025/11/05/qarabag-chelsea-champions-league-analysis/
 
@@ -33,8 +37,4 @@ https://nytimes.com/card/2025/11/05/arts/editors-recommendation-bigbangtheory
 **How the World Sees Mamdani: Icon, Threat, Proof of the American Dream**\
 `Zohran Mamdani’s improbable journey from Muslim immigrant to mayor-elect in New York City resonated across the globe in unpredictable ways.`\
 https://nytimes.com/2025/11/05/nyregion/global-reaction-mamdani.html
-
-**Astros closing in on hiring Padres hitting coach Victor Rodriguez: Sources**\
-`Rodriguez has served as hitting coach for the Red Sox, Guardians and Padres as part of a 29-year coaching career.`\
-https://nytimes.com/athletic/6781178/2025/11/05/astros-victor-rodriguez-hitting-coach-hire/
 

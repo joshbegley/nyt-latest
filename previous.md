@@ -1,4 +1,12 @@
-**Democrats Dig in on Shutdown After Election Wins**\
+**Scoop City: Unpacking Jets' blockbuster trades, one day later**\
+`Unpacking yesterday's massive deals for the Jets, Colts and Cowboys, plus Mike Sando's top takeaways.`\
+https://nytimes.com/athletic/6781255/2025/11/05/jets-trades-sauce-gardner-quinnen-williams-cowboys-colts-scoop-city/
+
+**Trump Blames Shutdown for Republican Losses on Election Day**\
+`Speaking to senators at a breakfast, President Trump acknowledged that the results of Tuesday’s races were not a positive outcome for his party.`\
+https://nytimes.com/2025/11/05/us/trump-shutdown-republicans-election-day.html
+
+**Democrats Dig In on Shutdown After Election Wins**\
 `President Trump’s declaration that the closure had hurt his party  on Tuesday appeared to have stiffened Democrats’ resolve and put at least a temporary damper on talks to end the crisis.`\
 https://nytimes.com/2025/11/05/us/politics/democrats-trump-shutdown-filibuster.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/05/nyregion/global-reaction-mamdani.html
 **Astros closing in on hiring Padres hitting coach Victor Rodriguez: Sources**\
 `Rodriguez has served as hitting coach for the Red Sox, Guardians and Padres as part of a 29-year coaching career.`\
 https://nytimes.com/athletic/6781178/2025/11/05/astros-victor-rodriguez-hitting-coach-hire/
-
-**UFC betting scandal explained: Dana White says he called FBI over potentially fixed fight**\
-`In the days since Saturday's event, other fighters have taken to social media to say they have been approached about throwing fights.`\
-https://nytimes.com/athletic/6780028/2025/11/05/ufc-betting-scandal-dana-white-fbi/
-
-**NFL division odds: 3 races are still wide open at the halfway point**\
-`The Broncos are favored over Chiefs for the division, the Packers are favored over the Lions and Rams and Seahawks lead over 49ers.`\
-https://nytimes.com/athletic/6773861/2025/11/05/nfl-division-odds-betting/
 

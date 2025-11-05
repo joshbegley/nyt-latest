@@ -1,3 +1,15 @@
+**Scoop City: Unpacking Jets' blockbuster trades, one day later**\
+`Unpacking yesterday's massive deals for the Jets, Colts and Cowboys, plus Mike Sando's top takeaways.`\
+https://nytimes.com/athletic/6781255/2025/11/05/jets-trades-sauce-gardner-quinnen-williams-cowboys-colts-scoop-city/
+
+**Trump Blames Shutdown for Republican Losses on Election Day**\
+`Speaking to senators at a breakfast, President Trump acknowledged that the results of Tuesday’s races were not a positive outcome for his party.`\
+https://nytimes.com/2025/11/05/us/trump-shutdown-republicans-election-day.html
+
+**Democrats Dig In on Shutdown After Election Wins**\
+`President Trump’s declaration that the closure had hurt his party  on Tuesday appeared to have stiffened Democrats’ resolve and put at least a temporary damper on talks to end the crisis.`\
+https://nytimes.com/2025/11/05/us/politics/democrats-trump-shutdown-filibuster.html
+
 **Democrats Dig in on Shutdown After Election Wins**\
 `President Trump’s declaration that the closure had hurt his party  on Tuesday appeared to have stiffened Democrats’ resolve and put at least a temporary damper on talks to end the crisis.`\
 https://nytimes.com/2025/11/05/us/politics/democrats-trump-shutdown-filibuster.html
