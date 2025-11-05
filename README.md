@@ -1,36 +1,40 @@
-**How to watch East Texas A&M vs. Oklahoma State: Time, TV, streaming**\
-`Find out how to watch the East Texas A&M Lions play the Oklahoma State Cowgirls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6781381/2025/11/05/east-texas-a-m-vs-oklahoma-state-stream-how-to-watch-nov-5/
+**How to watch Timberwolves vs. Knicks: Time, TV, streaming**\
+`Find out how to watch the Minnesota Timberwolves play the New York Knicks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6781427/2025/11/05/timberwolves-vs-knicks-stream-how-to-watch-nov-5/
 
-**How to watch South Dakota vs. Creighton: Time, TV, streaming**\
-`Find out how to watch the South Dakota Coyotes play the Creighton Bluejays, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6781380/2025/11/05/south-dakota-vs-creighton-stream-how-to-watch-nov-5/
+**How to watch Heat vs. Nuggets: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Denver Nuggets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6781424/2025/11/05/heat-vs-nuggets-stream-how-to-watch-nov-5/
 
-**Forest's Hudson-Odoi, Luiz to miss Sturm Graz game through injury**\
-`Both players sustained the injuries in Saturday's 2-2 draw against Manchester United.`\
-https://nytimes.com/athletic/6781286/2025/11/05/nottingham-forest-hudson-odoi-luiz-injuries/
+**Who Will Mamdani Hire to Help Him Run New York City?**\
+`Zohran Mamdani has been planning his mayoral transition for months and appears poised to hire veterans of city government to key posts in his administration.`\
+https://nytimes.com/2025/11/05/nyregion/zohran-mamdani-staff-transition-team.html
 
-**How to watch Southern vs. Iowa State: Time, TV, streaming**\
-`Find out how to watch the Southern Jaguars play the Iowa State Cyclones, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6781355/2025/11/05/southern-vs-iowa-state-stream-how-to-watch-nov-5/
+**How to watch Warriors vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6781422/2025/11/05/warriors-vs-kings-stream-how-to-watch-nov-5/
 
-**NBA officials to brief Congressional staff on gambling scandal**\
-`NBA league officials, but not commissioner Adam Silver, are meeting with Congressional committee staffers Wednesday.`\
-https://nytimes.com/athletic/6781280/2025/11/05/nba-officials-congress-briefing-gambling/
+**How to watch Spurs vs. Lakers: Time, TV, streaming**\
+`Find out how to watch the San Antonio Spurs play the Los Angeles Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6781418/2025/11/05/spurs-vs-lakers-stream-how-to-watch-nov-5/
 
-**Michigan won't open 2026 season in Germany, will play Western Michigan at home**\
-`The schools were previously in talks to move their game from Ann Arbor to Deutsche Bank Park in Frankfurt, Germany, in Week 0.`\
-https://nytimes.com/athletic/6781269/2025/11/05/michigan-2026-opener-germany/
+**How to watch Rockets vs. Grizzlies: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the Memphis Grizzlies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6781417/2025/11/05/rockets-vs-grizzlies-stream-how-to-watch-nov-5/
 
-**Democrats in Mississippi Break the G.O.P.’s State House Supermajority**\
-`Tuesday’s special election was forced by a court-ordered redistricting to offer Black voters a chance for more representation in the State Capital.`\
-https://nytimes.com/2025/11/05/us/politics/mississippi-special-election-results.html
+**How to watch Wizards vs. Celtics: Time, TV, streaming**\
+`Find out how to watch the Washington Wizards play the Boston Celtics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6781414/2025/11/05/wizards-vs-celtics-stream-how-to-watch-nov-5/
 
-**Scoop City: Unpacking Jets' blockbuster trades, one day later**\
-`Unpacking yesterday's massive deals for the Jets, Colts and Cowboys, plus Mike Sando's top takeaways.`\
-https://nytimes.com/athletic/6781255/2025/11/05/jets-trades-sauce-gardner-quinnen-williams-cowboys-colts-scoop-city/
+**How to watch Pelicans vs. Mavericks: Time, TV, streaming**\
+`Find out how to watch the New Orleans Pelicans play the Dallas Mavericks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6781412/2025/11/05/pelicans-vs-mavericks-stream-how-to-watch-nov-5/
 
-**Trump Blames Shutdown for Republican Losses on Election Day**\
-`Speaking to senators at a breakfast, President Trump acknowledged that the results of Tuesday’s races were not a positive outcome for his party.`\
-https://nytimes.com/2025/11/05/us/trump-shutdown-republicans-election-day.html
+**How to watch Sharks vs. Kraken: Time, TV, streaming**\
+`Find out how to watch the San Jose Sharks play the Seattle Kraken, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6781410/2025/11/05/sharks-vs-kraken-stream-how-to-watch-nov-5/
+
+**How to watch Blackhawks vs. Canucks: Time, TV, streaming**\
+`Find out how to watch the Chicago Blackhawks play the Vancouver Canucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6781408/2025/11/05/blackhawks-vs-canucks-stream-how-to-watch-nov-5/
 
