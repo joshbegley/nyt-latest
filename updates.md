@@ -1,3 +1,7 @@
+**Mamdani’s Win Makes Few Waves in Uganda, His Birth Country**\
+`Zohran Mamdani, the new mayor-elect of New York City, was born in Uganda to parents of Indian origin, and his family emigrated when he was a child.`\
+https://nytimes.com/2025/11/05/nyregion/mamdani-win-uganda.html
+
 **NFL Week 10 survivor pool picks, strategy: Take the Panthers, don't overthink it**\
 `Adam Gretz and Renee Miller took your questions and gave their own survivor pool advice for NFL Week 10.`\
 https://nytimes.com/athletic/6780376/2025/11/05/nfl-week-10-survivor-pool-picks-strategy-panthers/
