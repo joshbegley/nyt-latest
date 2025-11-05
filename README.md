@@ -1,3 +1,11 @@
+**McGinn signs new Villa contract to 2028**\
+`Everton, and more recently, Newcastle, had shown interest in signing the Scotland international over the summer.`\
+https://nytimes.com/athletic/6542129/2025/11/05/john-mcginn-contract-2028/
+
+**Solaya: Where Architecture, Calm, and the Sea Meet**\
+` `\
+https://nytimes.com/paidpost/meraas/meraas-ad-post-campaign/solaya-where-architecture-calm-and-the-sea-meet.html
+
 **What the initial CFP Top 25 revealed about Notre Dame's Playoff path**\
 `The Irish are the highest-ranked two-loss team in the CFP’s first rankings, slotted ahead of three one-loss teams from Power 4 conferences.`\
 https://nytimes.com/athletic/6779942/2025/11/05/notre-dame-college-football-playoff-ranking-odds/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6775841/2025/11/05/blackhawks-prospects-adam-gajan-
 **The Heat are completely changing the way they approach basketball: 'It's a new era'**\
 `The Heat are moving as the fastest team in basketball. What led to their new commitment in change? `\
 https://nytimes.com/athletic/6776011/2025/11/05/miami-heat-pace-basketball-nba/
-
-**Re-evaluating Hall of Fame cases for Tavares, Benn, Perry and more**\
-`We've debated these stars' qualifications for hockey's highest honor before. Have they helped or hurt their cases in the meantime?`\
-https://nytimes.com/athletic/6777829/2025/11/05/nhl-hall-of-fame-tavares-benn-perry/
-
-**Coaching carousel notebook: Latest on LSU, Dabo, Cignetti and more**\
-`With LSU's president and AD now in place, the focus can turn back to the coaching search. Plus, contract quirks at Indiana and Kent State.`\
-https://nytimes.com/athletic/6779171/2025/11/05/college-football-coaching-carousel-news/
 
