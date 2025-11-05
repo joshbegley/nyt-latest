@@ -1,3 +1,11 @@
+**Emergency Workers Search Scene of Deadly UPS Crash in Louisville**\
+`At least nine people died after a cargo jet plunged to the ground shortly after taking off for a flight to Hawaii. The death toll could rise.`\
+https://nytimes.com/2025/11/05/us/ups-plane-crash-louisville.html
+
+**How Would Maduro’s Military Respond to U.S. Pressure?**\
+`Venezuela has an arsenal of Russian weapons and armed civilian cells that could mount a guerrilla war. But a coup against President Nicolás Maduro? Don’t count on it.`\
+https://nytimes.com/2025/11/05/us/venezuela-military-maduro-coup.html
+
 **Mamdani’s Win Makes Few Waves in Uganda, His Birth Country**\
 `Zohran Mamdani, the new mayor-elect of New York City, was born in Uganda to parents of Indian origin, and his family emigrated when he was a child.`\
 https://nytimes.com/2025/11/05/nyregion/mamdani-win-uganda.html

@@ -1,3 +1,11 @@
+**Emergency Workers Search Scene of Deadly UPS Crash in Louisville**\
+`At least nine people died after a cargo jet plunged to the ground shortly after taking off for a flight to Hawaii. The death toll could rise.`\
+https://nytimes.com/2025/11/05/us/ups-plane-crash-louisville.html
+
+**How Would Maduro’s Military Respond to U.S. Pressure?**\
+`Venezuela has an arsenal of Russian weapons and armed civilian cells that could mount a guerrilla war. But a coup against President Nicolás Maduro? Don’t count on it.`\
+https://nytimes.com/2025/11/05/us/venezuela-military-maduro-coup.html
+
 **Mamdani’s Win Makes Few Waves in Uganda, His Birth Country**\
 `Zohran Mamdani, the new mayor-elect of New York City, was born in Uganda to parents of Indian origin, and his family emigrated when he was a child.`\
 https://nytimes.com/2025/11/05/nyregion/mamdani-win-uganda.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/05/science/iguanas-mexico-invasive-species.html
 **Chelsea sale controversy: What has Abramovich said? What is UK government view? What does it mean for Ukraine funds?**\
 `What do these accounts tells us about the funds from the sale? What has caused the delay? The Athletic explains`\
 https://nytimes.com/athletic/6780372/2025/11/05/chelsea-sale-abramovich-fordstam-ukraine/
-
-**In Kim Kardashian’s New Show, Anything Can Be a Power Suit**\
-`“All’s Fair,” a new legal drama from Ryan Murphy, flips the idea of a corporate uniform on its head.`\
-https://nytimes.com/2025/11/05/style/kim-kardashian-show-alls-fair-power-suits.html
-
-**Deadly Louisville Air Crash Disrupts One of World’s Busiest Cargo Hubs**\
-`The crash killed nine people and forced a halt to operations at UPS Worldport, a major automated package sorting facility. UPS said that some deliveries could be delayed.`\
-https://nytimes.com/2025/11/05/world/europe/ups-louisville-shipping-delays.html
 
