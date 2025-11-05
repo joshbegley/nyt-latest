@@ -31,7 +31,7 @@ https://nytimes.com/2025/11/05/nyregion/zohran-mamdani-beard-nyc-mayor.html
 https://nytimes.com/2025/11/05/theater/girl-interrupted-aimee-mann-martyna-majok.html
 
 **Why a Dodgers fan had to pass a polygraph test to sell an Ohtani home run ball**\
-`Ohtani's 469-foot NLCS home-run ball took a unique journey to the auction block. `\
+`Ohtani's 469-foot NLCS home run ball took a unique journey to the auction block. `\
 https://nytimes.com/athletic/6780558/2025/11/05/shohei-ohtani-home-run-ball-nlcs-auction/
 
 **Restaurant Review: Spago**\
