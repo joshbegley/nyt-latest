@@ -1,3 +1,15 @@
+**Zohran Mamdani Is Elected Mayor of New York City**\
+`Mr. Mamdani, a state lawmaker and democratic socialist, will be the first Muslim mayor in the city’s history.`\
+https://nytimes.com/2025/11/04/nyregion/nyc-mayor-mamdani-elected.html
+
+**New York City Voters Pass Contentious Housing Ballot Measures**\
+`The results are a clear reflection of how more people are embracing development as a solution to the housing crisis.`\
+https://nytimes.com/2025/11/04/nyregion/nyc-ballot-measures-housing.html
+
+**Blue Jays' Shane Bieber to return after exercising player option: Source**\
+`Bieber, a pivotal player in the Blue Jays' push to the World Series, will remain in Toronto.`\
+https://nytimes.com/athletic/6777025/2025/11/04/shane-bieber-blue-jays-player-option/
+
 **Mark Levine Elected New York City Comptroller**\
 `The Manhattan borough president, who endorsed Zohran Mamdani, said he welcomed his new role as a counterbalance to the mayor’s office.`\
 https://nytimes.com/2025/11/04/nyregion/nyc-comptroller-mark-levine.html
@@ -18,23 +30,11 @@ https://nytimes.com/athletic/6779167/2025/11/04/red-panda-returns-nba-halftime-c
 `Perez's expiring contract included a 2026 team option, but his extension will keep him in Kansas City through 2027.`\
 https://nytimes.com/athletic/6779138/2025/11/04/salvador-perez-royals-contract-extension-mlb/
 
-**Indiana over Texas A&M is Playoff committee’s misfire with initial rankings **\
+**Indiana over Texas A&M is Playoff committee’s misfire with initial rankings**\
 `The Aggies, unlike Indiana, challenged themselves with a big-time nonleague game and won it. That should matter. `\
 https://nytimes.com/athletic/6779071/2025/11/04/college-football-playoff-rankings-texas-am-indiana/
 
 **Mamdani was elected with a thinner résumé than his predecessors as mayor.**\
 `The mayor-elect’s rivals focused on his inexperience during the campaign. Voters appeared to put more weight on his vision.`\
 https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/mamdani-was-elected-with-a-thinner-resume-than-his-predecessors-as-mayor
-
-**How Mamdani Built a Winning Campaign in One Short Year**\
-`A timeline of Zohran Mamdani’s rise from little-known lawmaker to mayor-elect of New York City.`\
-https://nytimes.com/interactive/2025/11/04/nyregion/zohran-mamdani-wins-nyc-mayor-election-timeline.html
-
-**Jay Jones Defeats the Incumbent, Jason Miyares, for Virginia Attorney General**\
-`Jones, a Democrat, overcame revelations that he had sent violent texts suggesting that a Republican official deserved to be killed.`\
-https://nytimes.com/2025/11/04/us/elections/jay-jones-virginia-attorney-general-results.html
-
-**Maine Voters Reject Plan to Tighten Voting Rules**\
-`The wide-ranging measure, backed by conservatives, would have eliminated two days of early absentee voting, required photo identification and limited drop boxes to one per town.`\
-https://nytimes.com/2025/11/04/us/politics/maine-voting-ballot-measure.html
 

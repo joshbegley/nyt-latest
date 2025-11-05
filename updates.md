@@ -1,3 +1,19 @@
+**Zohran Mamdani Is Elected Mayor of New York City**\
+`Mr. Mamdani, a state lawmaker and democratic socialist, will be the first Muslim mayor in the city’s history.`\
+https://nytimes.com/2025/11/04/nyregion/nyc-mayor-mamdani-elected.html
+
+**New York City Voters Pass Contentious Housing Ballot Measures**\
+`The results are a clear reflection of how more people are embracing development as a solution to the housing crisis.`\
+https://nytimes.com/2025/11/04/nyregion/nyc-ballot-measures-housing.html
+
+**Blue Jays' Shane Bieber to return after exercising player option: Source**\
+`Bieber, a pivotal player in the Blue Jays' push to the World Series, will remain in Toronto.`\
+https://nytimes.com/athletic/6777025/2025/11/04/shane-bieber-blue-jays-player-option/
+
+**Indiana over Texas A&M is Playoff committee’s misfire with initial rankings**\
+`The Aggies, unlike Indiana, challenged themselves with a big-time nonleague game and won it. That should matter. `\
+https://nytimes.com/athletic/6779071/2025/11/04/college-football-playoff-rankings-texas-am-indiana/
+
 **Mark Levine Elected New York City Comptroller**\
 `The Manhattan borough president, who endorsed Zohran Mamdani, said he welcomed his new role as a counterbalance to the mayor’s office.`\
 https://nytimes.com/2025/11/04/nyregion/nyc-comptroller-mark-levine.html
