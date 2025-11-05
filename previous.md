@@ -1,3 +1,19 @@
+**Newcastle 2 Athletic 0 - One win from the knockouts? Goal of the season...from a header?**\
+`Chris Waugh and George Caulkin consider the key talking points as Eddie Howe's team cruise to a third-straight win in Europe`\
+https://nytimes.com/athletic/6777466/2025/11/05/newcastle-champions-league-dan-burn-header/
+
+**The Briefing: Man City 4 Dortmund 1 - Next record for Haaland? How did Savinho change perceptions?**\
+`Pep Guardiola's side moved onto 10 points from four Champions League games with victory at the Etihad.`\
+https://nytimes.com/athletic/6777465/2025/11/05/manchester-city-haaland-foden-champions-league/
+
+**'I went home as mad as any other fan': GM Brandon Beane explains Bills' lack of trades**\
+`Beane maintains the Bills still have a Super Bowl-caliber roster without any additions.`\
+https://nytimes.com/athletic/6781441/2025/11/05/bills-trade-deadline-brandon-beane-bills-trade-deadline/
+
+**Texans quarterback C.J. Stroud ruled out for Sunday's game vs. Jaguars**\
+`Houston's quarterback left Sunday's Week 9 loss to Denver after suffering a concussion in the second quarter.`\
+https://nytimes.com/athletic/6781467/2025/11/05/cj-stroud-texans-injury-concussion/
+
 **Mamdani’s Global Roots**\
 `There’s been outsize international attention on the next mayor of New York City. Today, I write about why.`\
 https://nytimes.com/2025/11/05/world/zohran-mamdani-ukraine-drones-san-francisco.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/11/05/nyregion/schumer-mamdani-nyc-mayor-election.html
 **Former WNBA MVP Nneka Ogwumike signs with Project B**\
 `Project B is expected to launch in 2026 and play its debut season from November 2026 through April 2027.`\
 https://nytimes.com/athletic/6781350/2025/11/05/nneka-ogwumike-wnba-project-b/
-
-**Amanda Anisimova rebounds, one set and one tennis match at a time**\
-`The American's 2025 season has been defined by comebacks, small and large. So too has her career.`\
-https://nytimes.com/athletic/6781388/2025/11/05/anisimova-swiatek-wta-tour-finals/
-
-**Cardinals to place Kyler Murray on IR, coach says**\
-`The designation means that Murray will miss a minimum of four games, and Jacoby Brissett will likely continue as his replacement.`\
-https://nytimes.com/athletic/6781451/2025/11/05/kyler-murray-cardinals-injured-reserved/
-
-**15-Year-Old Is Fatally Stabbed at Long Island House Party, Police Say**\
-`Liam Delemo, of West Babylon, was stabbed when a fight broke out at a party near his home that was attended by dozens of teenagers, the authorities said.`\
-https://nytimes.com/2025/11/05/nyregion/long-island-stabbing-house-party.html
-
-**Heavy Drinking Is Tied to Worse Strokes, Study Finds**\
-`New research examined the link between alcohol and brain bleeds.`\
-https://nytimes.com/2025/11/05/well/alcohol-drinking-strokes-brain-bleeds.html
 
