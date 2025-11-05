@@ -1,3 +1,7 @@
+**Two Republican Incumbents Will Face Off as Red Turf Shrinks in California**\
+`Representatives Ken Calvert and Young Kim will vie for the same district, underscoring the dilemma faced by state Republicans as their territory dwindles after the passage of Proposition 50.`\
+https://nytimes.com/2025/11/05/us/politics/house-election-ken-calvert-young-kim.html
+
 **After ‘Seismic’ Win, New Jersey’s Next Governor Says She Has a Mandate**\
 `Representative Mikie Sherrill, a Democrat, defeated her Republican opponent, Jack Ciattarelli, by 13 points as voter turnout surged.`\
 https://nytimes.com/2025/11/05/nyregion/mikie-sherrill-new-jersey-mandate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/05/us/south-florida-real-estate-mamdani.html
 **The Supreme Court Casts a Skeptical Eye on Trump’s Tariffs**\
 `Also, Democrats seized on economic worries. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/11/05/briefing/supreme-court-trump-tariffs-family-spice.html
-
-**'Road to 1 Point': TikTok journey ends as FGCU walk-on Brandon Dwyer finally scores**\
-`FGCU preferred walk-on and tiktok star Brandon Dwyer finally scores first NCAA basket ending his "road to one" social media series`\
-https://nytimes.com/athletic/6781736/2025/11/05/tiktok-fgcu-walk-on-brandon-dwyer/
 
