@@ -1,3 +1,11 @@
+**Democrats Dig in on Shutdown After Election Wins**\
+`President Trump’s declaration that the closure had hurt his party  on Tuesday appeared to have stiffened Democrats’ resolve and put at least a temporary damper on talks to end the crisis.`\
+https://nytimes.com/2025/11/05/us/politics/democrats-trump-shutdown-filibuster.html
+
+**World Cup 2026 kits: Our favourites of Adidas' home jerseys, from Mexico to Germany to Argentina**\
+`Adidas have released their 'home' kits for the 2026 World Cup. So, what do our writers think?`\
+https://nytimes.com/athletic/6780542/2025/11/05/world-cup-2026-kits-jerseys-rated/
+
 **Broncos take key step toward new stadium with large-area review plan**\
 `The team's "high-level preliminary" draft includes a conceptual map for the Burnham Yard preferred stadium site.`\
 https://nytimes.com/athletic/6781214/2025/11/05/broncos-new-stadium-large-area-review-plan/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6780028/2025/11/05/ufc-betting-scandal-dana-white-f
 **NFL division odds: 3 races are still wide open at the halfway point**\
 `The Broncos are favored over Chiefs for the division, the Packers are favored over the Lions and Rams and Seahawks lead over 49ers.`\
 https://nytimes.com/athletic/6773861/2025/11/05/nfl-division-odds-betting/
-
-**Candidates Notched Several Historic Firsts in the Election**\
-`New York will have its first Muslim mayor. Virginia will have its first female governor, and, for the first time in U.S. history, a Muslim woman will hold statewide office.`\
-https://nytimes.com/2025/11/05/us/election-candidates-historic-firsts.html
-
-**Drew Brees joins Fox as NFL analyst, potentially replacing Mark Sanchez: Sources**\
-`Future Hall of Famer joins Tom Brady and Greg Olsen as Fox Sports analysts, is expected to team with play-by-play announcer Adam Amin.`\
-https://nytimes.com/athletic/6778645/2025/11/05/drew-brees-fox-sports-nfl-mark-sanchez/
 
