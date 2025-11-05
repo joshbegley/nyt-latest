@@ -1,3 +1,7 @@
+**The Capitalism Election?**\
+`Democrats won big nationwide. But Zohran Mamdani’s victory raises questions about whether Democrats and voters are embracing populism.`\
+https://nytimes.com/2025/11/05/business/dealbook/voters-wall-street-trump.html
+
 **3 Plays About Jewish Identity That Resist Easy Answers**\
 `The Off Broadway shows “Hannah Senesh,” “Jewish Plot” and “Playing Shylock” take stock of discussions around casting and storytelling.`\
 https://nytimes.com/2025/11/05/theater/hannah-senesh-jewish-plot-playing-shylock.html
