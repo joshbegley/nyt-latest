@@ -1,3 +1,7 @@
+**Reds decline options on Austin Hays, Scott Barlow and Brent Suter**\
+`The Reds parted ways with two relievers and an outfielder who was productive but missed a lot of time with injuries in 2025.`\
+https://nytimes.com/athletic/6781679/2025/11/05/reds-options-austin-hays-scott-barlow-brent-suter/
+
 **Five Key Takeaways From the Supreme Court Tariff Argument**\
 `The Supreme Court justices grappled with the legality of President Trump’s tariffs in an oral argument that stretched for almost three hours.`\
 https://nytimes.com/2025/11/05/us/politics/supreme-court-tariff-takeaways.html
@@ -14,8 +18,8 @@ https://nytimes.com/athletic/6781461/2025/11/05/james-mcclean-wrexham-cardiff-pu
 `Chris Waugh and George Caulkin consider the key talking points as Eddie Howe's team cruise to a third straight win in Europe`\
 https://nytimes.com/athletic/6777466/2025/11/05/newcastle-champions-league-dan-burn-header/
 
-**The Briefing: Man City 4 Dortmund 1 - Next record for Haaland? How did Savinho change perceptions?**\
-`Pep Guardiola's side moved onto 10 points from four Champions League games with victory at the Etihad.`\
+**The Briefing: Man City 4 Dortmund 1 – Next record for Haaland? How did Savinho change perceptions?**\
+`Pep Guardiola's side moved onto 10 points from four Champions League games with victory at the Etihad`\
 https://nytimes.com/athletic/6777465/2025/11/05/manchester-city-haaland-foden-champions-league/
 
 **'I went home as mad as any other fan': GM Brandon Beane explains Bills' lack of trades**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/05/world/zohran-mamdani-ukraine-drones-san-francisco
 **McLaren waged 'long and expensive war' against Alex Palou, says driver's lawyer**\
 `The trial, which began at the end of September, saw both legal teams give their closing arguments at London’s High Court on Wednesday.`\
 https://nytimes.com/athletic/6781401/2025/11/05/alex-palou-mclaren-court-f1-indycar/
-
-**Cavan Sullivan's goal delivers USA U-17s World Cup win over Burkina Faso**\
-`The Man City-bound midfielder came off the bench to help the U.S. secure all three points in Qatar`\
-https://nytimes.com/athletic/6781579/2025/11/05/cavan-sullivan-usa-burkina-faso-u17-world-cup/
 

@@ -1,3 +1,11 @@
+**Reds decline options on Austin Hays, Scott Barlow and Brent Suter**\
+`The Reds parted ways with two relievers and an outfielder who was productive but missed a lot of time with injuries in 2025.`\
+https://nytimes.com/athletic/6781679/2025/11/05/reds-options-austin-hays-scott-barlow-brent-suter/
+
+**The Briefing: Man City 4 Dortmund 1 – Next record for Haaland? How did Savinho change perceptions?**\
+`Pep Guardiola's side moved onto 10 points from four Champions League games with victory at the Etihad`\
+https://nytimes.com/athletic/6777465/2025/11/05/manchester-city-haaland-foden-champions-league/
+
 **Five Key Takeaways From the Supreme Court Tariff Argument**\
 `The Supreme Court justices grappled with the legality of President Trump’s tariffs in an oral argument that stretched for almost three hours.`\
 https://nytimes.com/2025/11/05/us/politics/supreme-court-tariff-takeaways.html

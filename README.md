@@ -1,3 +1,7 @@
+**Air Traffic Will Be Cut on Friday if Shutdown Continues, Officials Warn**\
+`Sean Duffy, the transportation secretary, warned earlier this week that if the shutdown went on, he could close parts of the national airspace to traffic.`\
+https://nytimes.com/2025/11/05/us/politics/faa-flights-air-traffic-government-shutdown.html
+
 **Reds decline options on Austin Hays, Scott Barlow and Brent Suter**\
 `The Reds parted ways with two relievers and an outfielder who was productive but missed a lot of time with injuries in 2025.`\
 https://nytimes.com/athletic/6781679/2025/11/05/reds-options-austin-hays-scott-barlow-brent-suter/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6781467/2025/11/05/cj-stroud-texans-injury-concussi
 **Mamdani’s Global Roots**\
 `There’s been outsize international attention on the next mayor of New York City. Today, I write about why.`\
 https://nytimes.com/2025/11/05/world/zohran-mamdani-ukraine-drones-san-francisco.html
-
-**McLaren waged 'long and expensive war' against Alex Palou, says driver's lawyer**\
-`The trial, which began at the end of September, saw both legal teams give their closing arguments at London’s High Court on Wednesday.`\
-https://nytimes.com/athletic/6781401/2025/11/05/alex-palou-mclaren-court-f1-indycar/
 
