@@ -1,6 +1,6 @@
 **7 Takeaways From a Stunning New York City Mayoral Election**\
 `Zohran Mamdani motivated voters to head for the polls, using a broad coalition of supporters to overcome Andrew Cuomo’s success in siphoning Republican votes.`\
-https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/nyc-mayor-election-mamdani-takeaways
+https://nytimes.com/2025/11/05/nyregion/nyc-mayor-election-mamdani-takeaways.html
 
 **Scars in the Blue Mosque Reveal Afghanistan’s Rifts**\
 `The namesake of Mazar-i-Sharif suffered countless cracks in a 6.3-magnitude quake, but, like Afghanistan, it has endured for centuries.`\
