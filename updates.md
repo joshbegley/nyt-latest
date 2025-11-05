@@ -1,17 +1,9 @@
-**What to Know About Canada’s New Budget**\
-`The government of Prime Minister Mark Carney unveiled a program of big spending to spur Canada’s economy and reduce its dependence on the United States.`\
-https://nytimes.com/2025/11/04/world/canada/what-to-know-canada-budget.html
-
-**A Little Noted Element Propelled Mamdani’s Rise: Gen Z Loneliness**\
-`Members of Gen Z found something unexpected in the mayoral race: a chance to hang out. Their enthusiasm turned into real votes.`\
-https://nytimes.com/2025/11/04/nyregion/mamdani-young-voters.html
-
 **What Logan Wilson trade, keeping Trey Hendrickson say about Bengals' future plans**\
 `Cincinnati signaled that it's not giving up on this season while also looking for rookie linebackers to step up as team leaders`\
 https://nytimes.com/athletic/6778406/2025/11/04/bengals-trade-deadline-logan-wilson-trey-hendrickson/
 
 **After Decades of Low Turnout for Mayor’s Races, Voting Surges in New York**\
-`Voter participation in the city, which once surpassed 90 percent, cratered in recent elections. Here’s a look at why it fell, and why this year has been different.`\
+`Voter participation in the city, which once surpassed 90 percent, cratered in recent elections. Here’s a look at why it fell, and why it’s surging this year.`\
 https://nytimes.com/2025/11/04/nyregion/nyc-mayor-election-turnout.html
 
 **Could Mamdani’s plan for ‘fast and free buses’ work?**\
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/6778089/2025/11/04/seahawks-trade-deadline-rashid-s
 **Polls Have Shown Rising Support for California’s Redistricting Measure**\
 `The measure, known as Proposition 50, is an attempt to counter a push in Republican-led states to redraw congressional districts.`\
 https://nytimes.com/2025/11/04/business/california-redistricting-polls-proposition-50.html
+
+**Muslim voters say their excitement about Mamdani has been tempered by a rise in Islamophobia.**\
+`By Jeffery C. Mays and Wesley Parnell`\
+https://nytimes.com/live/2025/11/04/nyregion/nyc-mayor-election/muslim-voters-say-their-excitement-about-mamdani-has-been-tempered-by-a-rise-in-islamophobia
+
+**In flurry of moves, Astros place outfielder Chas McCormick on outright waivers**\
+`Minor-league outfielders Pedro León and Kenedy Corona, as well as injured pitchers John Rooney and Luis Garcia were also placed.`\
+https://nytimes.com/athletic/6778465/2025/11/04/houston-astros-chas-mccormick-waivers/
 
