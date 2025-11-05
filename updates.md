@@ -1,3 +1,7 @@
+**WTA Tour Finals results: How semifinalists will be decided in final round-robin matches**\
+`One group has a straight shootout, while the other sees a three-way fight for two semifinal places.`\
+https://nytimes.com/athletic/6779714/2025/11/05/wta-tour-finals-results-round-robin-qualification-scenarios/
+
 **Zohran Mamdani Wins New York City Mayoral Election**\
 `Zohran Mamdani, a 34-year-old state lawmaker and democratic socialist, was elected the city’s first Muslim and first South Asian mayor.`\
 https://nytimes.com/video/us/elections/100000010504614/nyc-mayor-mamdani-elected.html
