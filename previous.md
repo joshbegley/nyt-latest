@@ -1,3 +1,11 @@
+**What does Ja Morant's future with the Memphis Grizzlies look like? It's complicated**\
+`Morant's tenure in Memphis may seem like it's ending. But small market teams with an expiring stadium lease don't trade stars lightly.`\
+https://nytimes.com/athletic/6779151/2025/11/05/ja-morant-grizzlies-future-relationship/
+
+**Man Utd not 'putting the Harlem Globetrotters together', Wilcox says**\
+`United's director of football said the club have a "clear plan" for upcoming windows, to build on the summer's initial £216m spend.`\
+https://nytimes.com/athletic/6779884/2025/11/05/jason-wilcox-manchester-united-harlem-globetrotters-transfers/
+
 **TAFC: Van de Ven goal 'like Messi at centre-back', Diaz's mixed night, Rice vs Caicedo debate**\
 `Today in TAFC: Lightning Van de Ven strikes with incredible goal, Diaz goes from hero to zero, and Rice vs Caicedo for best midfielder`\
 https://nytimes.com/athletic/6779721/2025/11/05/van-de-ven-diaz-bayern-rice-caicedo-debate/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6778430/2025/11/05/bears-ben-johnson-midseason-hope
 **Four teams added to 2026 WAFCON after end of qualifying process**\
 `Cameroon, Ivory Coast, Mali and Egypt will join 12 other teams in the expanded tournament between March and April next year.`\
 https://nytimes.com/athletic/6779829/2025/11/05/womens-africa-cup-of-nations-cameroon-ivory-coast-mali-egypt/
-
-**How Jalen Redmond, wearing No. 61, became the Vikings' most ascendant defender**\
-`Redmond has worked his way up from the XFL — and navigated the loss of a close friend — to become a major contributor for the Vikings.`\
-https://nytimes.com/athletic/6777743/2025/11/05/jalen-redmond-vikings-61-xfl-oklahoma/
-
-**‘Hope Won’: Sadiq Khan, London’s Mayor, Congratulates Mamdani**\
-`Both men have faced virulent attacks from the far right for their Muslim faith and progressive politics, although there are notable differences in their policies.`\
-https://nytimes.com/2025/11/05/nyregion/mamdani-london-mayor-sadiq-khan.html
 

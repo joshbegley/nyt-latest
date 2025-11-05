@@ -1,3 +1,11 @@
+**What does Ja Morant's future with the Memphis Grizzlies look like? It's complicated**\
+`Morant's tenure in Memphis may seem like it's ending. But small market teams with an expiring stadium lease don't trade stars lightly.`\
+https://nytimes.com/athletic/6779151/2025/11/05/ja-morant-grizzlies-future-relationship/
+
+**Man Utd not 'putting the Harlem Globetrotters together', Wilcox says**\
+`United's director of football said the club have a "clear plan" for upcoming windows, to build on the summer's initial £216m spend.`\
+https://nytimes.com/athletic/6779884/2025/11/05/jason-wilcox-manchester-united-harlem-globetrotters-transfers/
+
 **TAFC: Van de Ven goal 'like Messi at centre-back', Diaz's mixed night, Rice vs Caicedo debate**\
 `Today in TAFC: Lightning Van de Ven strikes with incredible goal, Diaz goes from hero to zero, and Rice vs Caicedo for best midfielder`\
 https://nytimes.com/athletic/6779721/2025/11/05/van-de-ven-diaz-bayern-rice-caicedo-debate/
