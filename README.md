@@ -1,3 +1,7 @@
+**Fire at Retirement Home in Bosnia Kills at Least 11**\
+`The country’s prime minister called the blaze “a disaster of enormous proportions.”`\
+https://nytimes.com/2025/11/05/world/europe/fire-retirement-home-bosnia.html
+
 **What does Ja Morant's future with the Memphis Grizzlies look like? It's complicated**\
 `Morant's tenure in Memphis may seem like it's ending. But small market teams with an expiring stadium lease don't trade stars lightly.`\
 https://nytimes.com/athletic/6779151/2025/11/05/ja-morant-grizzlies-future-relationship/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6776934/2025/11/05/nfl-trade-deadline-recap-the-pul
 **After a wild win and a minor trade, where do the upstart Bears go from here?**\
 `Can Ben Johnson's Bears parlay their surprising start into something much bigger? The hope is building in Chicago.`\
 https://nytimes.com/athletic/6778430/2025/11/05/bears-ben-johnson-midseason-hope/
-
-**Four teams added to 2026 WAFCON after end of qualifying process**\
-`Cameroon, Ivory Coast, Mali and Egypt will join 12 other teams in the expanded tournament between March and April next year.`\
-https://nytimes.com/athletic/6779829/2025/11/05/womens-africa-cup-of-nations-cameroon-ivory-coast-mali-egypt/
 
