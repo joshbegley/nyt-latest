@@ -1,3 +1,15 @@
+**NBA officials to brief Congressional staff on gambling scandal**\
+`NBA league officials, but not commissioner Adam Silver, are meeting with Congressional committee staffers Wednesday.`\
+https://nytimes.com/athletic/6781280/2025/11/05/nba-officials-congress-briefing-gambling/
+
+**Michigan won't open 2026 season in Germany, will play Western Michigan at home**\
+`The schools were previously in talks to move their game from Ann Arbor to Deutsche Bank Park in Frankfurt, Germany, in Week 0.`\
+https://nytimes.com/athletic/6781269/2025/11/05/michigan-2026-opener-germany/
+
+**Democrats in Mississippi Break the G.O.P.’s State House Supermajority**\
+`Tuesday’s special election was forced by a court-ordered redistricting to offer Black voters a chance for more representation in the State Capital.`\
+https://nytimes.com/2025/11/05/us/politics/mississippi-special-election-results.html
+
 **Scoop City: Unpacking Jets' blockbuster trades, one day later**\
 `Unpacking yesterday's massive deals for the Jets, Colts and Cowboys, plus Mike Sando's top takeaways.`\
 https://nytimes.com/athletic/6781255/2025/11/05/jets-trades-sauce-gardner-quinnen-williams-cowboys-colts-scoop-city/

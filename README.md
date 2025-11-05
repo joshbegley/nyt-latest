@@ -1,3 +1,19 @@
+**How to watch East Texas A&M vs. Oklahoma State: Time, TV, streaming**\
+`Find out how to watch the East Texas A&M Lions play the Oklahoma State Cowgirls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6781381/2025/11/05/east-texas-a-m-vs-oklahoma-state-stream-how-to-watch-nov-5/
+
+**How to watch South Dakota vs. Creighton: Time, TV, streaming**\
+`Find out how to watch the South Dakota Coyotes play the Creighton Bluejays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6781380/2025/11/05/south-dakota-vs-creighton-stream-how-to-watch-nov-5/
+
+**Forest's Hudson-Odoi, Luiz to miss Sturm Graz game through injury**\
+`Both players sustained the injuries in Saturday's 2-2 draw against Manchester United.`\
+https://nytimes.com/athletic/6781286/2025/11/05/nottingham-forest-hudson-odoi-luiz-injuries/
+
+**How to watch Southern vs. Iowa State: Time, TV, streaming**\
+`Find out how to watch the Southern Jaguars play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6781355/2025/11/05/southern-vs-iowa-state-stream-how-to-watch-nov-5/
+
 **NBA officials to brief Congressional staff on gambling scandal**\
 `NBA league officials, but not commissioner Adam Silver, are meeting with Congressional committee staffers Wednesday.`\
 https://nytimes.com/athletic/6781280/2025/11/05/nba-officials-congress-briefing-gambling/
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6781255/2025/11/05/jets-trades-sauce-gardner-quinne
 **Trump Blames Shutdown for Republican Losses on Election Day**\
 `Speaking to senators at a breakfast, President Trump acknowledged that the results of Tuesday’s races were not a positive outcome for his party.`\
 https://nytimes.com/2025/11/05/us/trump-shutdown-republicans-election-day.html
-
-**Democrats Dig In on Shutdown After Election Wins**\
-`President Trump’s declaration that the closure had hurt his party  on Tuesday appeared to have stiffened Democrats’ resolve and put at least a temporary damper on talks to end the crisis.`\
-https://nytimes.com/2025/11/05/us/politics/democrats-trump-shutdown-filibuster.html
-
-**World Cup 2026 kits: Our favourites of Adidas' home jerseys, from Mexico to Germany to Argentina**\
-`Adidas have released their 'home' kits for the 2026 World Cup. So, what do our writers think?`\
-https://nytimes.com/athletic/6780542/2025/11/05/world-cup-2026-kits-jerseys-rated/
-
-**Broncos take key step toward new stadium with large-area review plan**\
-`The team's "high-level preliminary" draft includes a conceptual map for the Burnham Yard preferred stadium site.`\
-https://nytimes.com/athletic/6781214/2025/11/05/broncos-new-stadium-large-area-review-plan/
-
-**'Just wanna watch the game.' Why this ESPN-YouTube TV stand-off feels different: MoneyCall**\
-`More this week: "Battle of the Sexes 2.0," NWSL coach using ChatGPT, Tom Brady's clone dog, Alabama sorority influencers and the All Blacks.`\
-https://nytimes.com/athletic/6781052/2025/11/05/disney-espn-youtubetv-nfl-moneycall/
 

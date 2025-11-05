@@ -1,3 +1,15 @@
+**NBA officials to brief Congressional staff on gambling scandal**\
+`NBA league officials, but not commissioner Adam Silver, are meeting with Congressional committee staffers Wednesday.`\
+https://nytimes.com/athletic/6781280/2025/11/05/nba-officials-congress-briefing-gambling/
+
+**Michigan won't open 2026 season in Germany, will play Western Michigan at home**\
+`The schools were previously in talks to move their game from Ann Arbor to Deutsche Bank Park in Frankfurt, Germany, in Week 0.`\
+https://nytimes.com/athletic/6781269/2025/11/05/michigan-2026-opener-germany/
+
+**Democrats in Mississippi Break the G.O.P.’s State House Supermajority**\
+`Tuesday’s special election was forced by a court-ordered redistricting to offer Black voters a chance for more representation in the State Capital.`\
+https://nytimes.com/2025/11/05/us/politics/mississippi-special-election-results.html
+
 **Scoop City: Unpacking Jets' blockbuster trades, one day later**\
 `Unpacking yesterday's massive deals for the Jets, Colts and Cowboys, plus Mike Sando's top takeaways.`\
 https://nytimes.com/athletic/6781255/2025/11/05/jets-trades-sauce-gardner-quinnen-williams-cowboys-colts-scoop-city/
@@ -21,20 +33,4 @@ https://nytimes.com/athletic/6781214/2025/11/05/broncos-new-stadium-large-area-r
 **'Just wanna watch the game.' Why this ESPN-YouTube TV stand-off feels different: MoneyCall**\
 `More this week: "Battle of the Sexes 2.0," NWSL coach using ChatGPT, Tom Brady's clone dog, Alabama sorority influencers and the All Blacks.`\
 https://nytimes.com/athletic/6781052/2025/11/05/disney-espn-youtubetv-nfl-moneycall/
-
-**The Briefing: Qarabag 2 Chelsea 2 - A point gained, or two dropped? Why are defensive mistakes persisting?**\
-`Cerys Jones analyses the key talking points from Chelsea's long Champions League trip to Azerbaijan`\
-https://nytimes.com/athletic/6777062/2025/11/05/qarabag-chelsea-champions-league-analysis/
-
-**What’s in Our Queue? ‘Big Bang Theory’ and More **\
-`Text by Mitch Smith`\
-https://nytimes.com/card/2025/11/05/arts/editors-recommendation-bigbangtheory
-
-**How the World Sees Mamdani: Icon, Threat, Proof of the American Dream**\
-`Zohran Mamdani’s improbable journey from Muslim immigrant to mayor-elect in New York City resonated across the globe in unpredictable ways.`\
-https://nytimes.com/2025/11/05/nyregion/global-reaction-mamdani.html
-
-**Astros closing in on hiring Padres hitting coach Victor Rodriguez: Sources**\
-`Rodriguez has served as hitting coach for the Red Sox, Guardians and Padres as part of a 29-year coaching career.`\
-https://nytimes.com/athletic/6781178/2025/11/05/astros-victor-rodriguez-hitting-coach-hire/
 
