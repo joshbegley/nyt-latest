@@ -1,3 +1,7 @@
+**Zohran Mamdani Wins New York City Mayoral Election**\
+`Zohran Mamdani, a 34-year-old state lawmaker and democratic socialist, was elected the city’s first Muslim and first South Asian mayor.`\
+https://nytimes.com/video/us/elections/100000010504614/nyc-mayor-mamdani-elected.html
+
 **By moving Florian Wirtz to the left, Liverpool look to have found a home for a rare talent**\
 `Arsene Wenger said the champions had “destroyed their midfield” by playing the £116m summer buy as a No 10, now they have found balance`\
 https://nytimes.com/athletic/6779526/2025/11/05/florian-wirtz-arsene-wenger/

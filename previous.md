@@ -1,3 +1,7 @@
+**Zohran Mamdani Wins New York City Mayoral Election**\
+`Zohran Mamdani, a 34-year-old state lawmaker and democratic socialist, was elected the city’s first Muslim and first South Asian mayor.`\
+https://nytimes.com/video/us/elections/100000010504614/nyc-mayor-mamdani-elected.html
+
 **Mamdani Calls, and His Supporters Respond**\
 `At the Brooklyn Paramount, die-hard fans of Zohran Mamdani, New York City’s mayor-elect, enthusiastically ushered out the old guard as they celebrated his victory.`\
 https://nytimes.com/2025/11/05/nyregion/mamdani-victory-party.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/05/arts/television/late-night-chuckles-at-andrew-cuo
 **How to watch Steelers vs. Chargers: Time, TV, streaming**\
 `Find out how to watch the Pittsburgh Steelers play the Los Angeles Chargers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6779584/2025/11/05/steelers-vs-chargers-stream-how-to-watch-nov-9/
-
-**Angel City investor Monarch Collective goes global, buying into German club**\
-`The private equity fund will eventually acquire a 38% stake in FC Viktoria Berlin.`\
-https://nytimes.com/athletic/6775486/2025/11/05/monarch-collective-fc-viktoria-berlin-investment/
 
