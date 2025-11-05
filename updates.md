@@ -1,3 +1,11 @@
+**Why the normally all-in Rams didn't make another move at the trade deadline**\
+`Los Angeles feels pretty good about its roster. And the one area it sees as a need for improvement isn’t easily fixed on the trade market.`\
+https://nytimes.com/athletic/6778712/2025/11/05/rams-trade-deadline-moves/
+
+**Trump Administration Live Updates: President Says Eliminating Filibuster Is ‘Only Way’ to End Record-Long Shutdown**\
+``\
+https://nytimes.com/live/2025/11/05/us/trump-shutdown-news
+
 **The Capitalism Election?**\
 `Democrats won big nationwide. But Zohran Mamdani’s victory raises questions about whether Democrats and voters are embracing populism.`\
 https://nytimes.com/2025/11/05/business/dealbook/voters-wall-street-trump.html

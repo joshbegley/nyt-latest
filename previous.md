@@ -1,3 +1,7 @@
+**Why the normally all-in Rams didn't make another move at the trade deadline**\
+`Los Angeles feels pretty good about its roster. And the one area it sees as a need for improvement isn’t easily fixed on the trade market.`\
+https://nytimes.com/athletic/6778712/2025/11/05/rams-trade-deadline-moves/
+
 **The Capitalism Election?**\
 `Democrats won big nationwide. But Zohran Mamdani’s victory raises questions about whether Democrats and voters are embracing populism.`\
 https://nytimes.com/2025/11/05/business/dealbook/voters-wall-street-trump.html
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/6779897/2025/11/05/bulls-comeback-sixers-nba-start/
 `Republicans and Democrats remain divided even as the pain of the shutdown intensifies and lawmakers in both parties say a breakthrough could come soon.`\
 https://nytimes.com/live/2025/11/05/us/trump-shutdown-news/shutdown-enters-36th-day-as-stalemate-in-congress-continues
 
-**Trump Administration Live Updates: President Meets With G.O.P. Senators as Shutdown Breaks Record**\
+**Trump Administration Live Updates: President Says Eliminating Filibuster Is ‘Only Way’ to End Record-Long Shutdown**\
 ``\
 https://nytimes.com/live/2025/11/05/us/trump-shutdown-news
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6778699/2025/11/05/astros-offseason-outlook-trade-c
 **Mandel's Mailbag: Nothing suggests Ohio State is a fraud — and can a 9-3 Texas sneak in?**\
 `If Texas pulls out a win over Texas A&M or Georgia, it could make the College Football Playoff with three losses.`\
 https://nytimes.com/athletic/6779301/2025/11/05/texas-ohio-state-playoffs-mandels-mailbag/
-
-**How Bayern's clever press made the European champions look helpless for 45 minutes**\
-`Few teams have outmanoeuvred PSG in the last 12 months but Vincent Kompany's side had the tactical intelligence to do so`\
-https://nytimes.com/athletic/6779719/2025/11/05/bayern-psg-tactics-pressing-kompany/
 
