@@ -16,7 +16,7 @@ https://nytimes.com/live/2025/11/05/us/trump-tariffs-supreme-court/key-tariffs-c
 
 **A Major Question in the Tariffs Case: The ‘Major Questions Doctrine’**\
 `The Supreme Court used the doctrine, which requires Congress to speak clearly to confer vast economic power, to strike down several Biden administration programs.`\
-https://nytimes.com/2025/11/05/us/politics/a-major-question-in-the-tariffs-case-the-major-questions-doctrine.html
+https://nytimes.com/2025/11/05/us/politics/major-questions-doctrine-trump-tariffs-scotus.html
 
 **Lawyer Who Won Trump’s Immunity Case Will Now Defend His Tariffs**\
 `As Donald Trump’s personal lawyer, D. John Sauer laid out an expansive vision of presidential power. Now the solicitor general, he will offer a new broad view of the president’s authority.`\

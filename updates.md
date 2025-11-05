@@ -1,3 +1,7 @@
+**USMNT's Turner training with former side Crystal Palace**\
+`The goalkeeper informed manager Oliver Glasner of the different rules in the United States concerning fixture congestion. `\
+https://nytimes.com/athletic/6780302/2025/11/05/matt-turner-usmnt-crystal-palace-fixtures/
+
 **USMNT's Matt Turner training with former side Crystal Palace**\
 `The goalkeeper informed manager Oliver Glasner of the different rules in the United States concerning fixture congestion. `\
 https://nytimes.com/athletic/6780302/2025/11/05/matt-turner-usmnt-crystal-palace-fixtures/
