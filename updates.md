@@ -1,3 +1,23 @@
+**2025 NFL trade deadline winners, losers: Eagles fill needs, Jets sell, Bills strike out**\
+`Howie Roseman worked his magic to deliver three deadline deals to Philly, while the Jets' fire sale should help them rebuild — but will it?`\
+https://nytimes.com/athletic/6778376/2025/11/05/nfl-trade-deadline-2025winners-losers-eagles-jets-bills-chiefs/
+
+**Needs and goals for all 30 MLB teams as the 2025-26 offseason begins**\
+`All 30 teams will be active in the trade, free agency and waiver wire markets this offseason. Which areas are each team focused on?`\
+https://nytimes.com/athletic/6777073/2025/11/05/mlb-offseason-team-needs-goals-2025-2026/
+
+**With two trades, the Jets lost their heart and soul — and reimagined their future**\
+`First-year GM Darren Mougey oversaw a historic pair of trade-deadline moves, dealing Sauce Gardner and Quinnen Williams.`\
+https://nytimes.com/athletic/6779102/2025/11/05/new-york-jets-trade-deadline-gm-darren-mougey/
+
+**How did the best baseball player of his generation fade away?**\
+`He was a baseball god before his body betrayed him. Did he harm his legacy by staying loyal to the Angels?`\
+https://nytimes.com/athletic/6734048/2025/11/05/mike-trout-angels-mlb-career-stats/
+
+**The New York Times International Edition in Print for Thursday, Nov. 6, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/11/05/todays-new-york-times-international-edition
+
 **Jennifer Lawrence Details Her Battle With Postpartum Depression**\
 `Postpartum depression came as a surprise to Jennifer Lawrence after the birth of her second child, when she felt like “a tiger was chasing me every day.” She talked about that experience, and what helped, with Lulu Garcia-Navarro on “The Interview.”`\
 https://nytimes.com/video/podcasts/100000010498853/jennifer-lawrence-details-her-battle-with-postpartum-depression.html

@@ -1,3 +1,23 @@
+**2025 NFL trade deadline winners, losers: Eagles fill needs, Jets sell, Bills strike out**\
+`Howie Roseman worked his magic to deliver three deadline deals to Philly, while the Jets' fire sale should help them rebuild — but will it?`\
+https://nytimes.com/athletic/6778376/2025/11/05/nfl-trade-deadline-2025winners-losers-eagles-jets-bills-chiefs/
+
+**Needs and goals for all 30 MLB teams as the 2025-26 offseason begins**\
+`All 30 teams will be active in the trade, free agency and waiver wire markets this offseason. Which areas are each team focused on?`\
+https://nytimes.com/athletic/6777073/2025/11/05/mlb-offseason-team-needs-goals-2025-2026/
+
+**With two trades, the Jets lost their heart and soul — and reimagined their future**\
+`First-year GM Darren Mougey oversaw a historic pair of trade-deadline moves, dealing Sauce Gardner and Quinnen Williams.`\
+https://nytimes.com/athletic/6779102/2025/11/05/new-york-jets-trade-deadline-gm-darren-mougey/
+
+**How did the best baseball player of his generation fade away?**\
+`He was a baseball god before his body betrayed him. Did he harm his legacy by staying loyal to the Angels?`\
+https://nytimes.com/athletic/6734048/2025/11/05/mike-trout-angels-mlb-career-stats/
+
+**The New York Times International Edition in Print for Thursday, Nov. 6, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/11/05/todays-new-york-times-international-edition
+
 **Jennifer Lawrence Details Her Battle With Postpartum Depression**\
 `Postpartum depression came as a surprise to Jennifer Lawrence after the birth of her second child, when she felt like “a tiger was chasing me every day.” She talked about that experience, and what helped, with Lulu Garcia-Navarro on “The Interview.”`\
 https://nytimes.com/video/podcasts/100000010498853/jennifer-lawrence-details-her-battle-with-postpartum-depression.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/11/05/world/europe/what-to-know-about-the-militia-that-
 **Mamdani’s Victory Is Less Significant Than You Think**\
 `New York’s next mayor won’t save the Democrats.`\
 https://nytimes.com/2025/11/05/opinion/mamdani-interesting-times-podcast.html
-
-**Why Mamdani Won**\
-`A triumph in New York City has a lesson for the Democrats`\
-https://nytimes.com/2025/11/05/opinion/mamdani-mayor.html
-
-**Almost Half of U.S. Imports Now Have Steep Tariffs**\
-`President Trump has transformed U.S. trade policy. Here's how much of his tariff agenda is under threat at the Supreme Court.`\
-https://nytimes.com/interactive/2025/11/05/business/economy/trump-tariffs-us-imports.html
-
-**Trump’s Sweeping Tariffs Face High-Stakes Supreme Court Test**\
-`Justices will hear arguments on Wednesday over whether the president acted legally when he used a 1977 emergency statute to unilaterally impose tariffs.`\
-https://nytimes.com/2025/11/05/us/politics/supreme-court-trump-tariffs.html
-
-**Wall Street Laments Mamdani’s Victory and Plots Its Next Move**\
-`Many financiers are vowing to play nice with Zohran Mamdani, but some are already thinking about how they will blunt the mayor-elect’s most liberal initiatives.`\
-https://nytimes.com/2025/11/05/business/wall-street-mamdani-victory.html
-
-**As Shutdown Stalemate Persists, Frustration Defies Party Lines**\
-`The partisan divisions in Washington are as deep as ever, but some voters in both parties have grown weary of the standoff and want it to end.`\
-https://nytimes.com/2025/11/05/us/politics/shutdown-congress-georgia-health-care.html
 
