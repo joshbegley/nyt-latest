@@ -1,3 +1,19 @@
+**USMNT's Matt Turner training with former side Crystal Palace**\
+`The goalkeeper informed manager Oliver Glasner of the different rules in the United States concerning fixture congestion. `\
+https://nytimes.com/athletic/6780302/2025/11/05/matt-turner-usmnt-crystal-palace-fixtures/
+
+**A State-by-State Guide to the Gerrymandering Fight for Congress**\
+`A redistricting arms race, started by President Trump’s push to redraw Texas maps in Republicans’ favor, continues, but it may be reaching its limits.`\
+https://nytimes.com/2025/11/05/us/politics/congress-gerrymander-redistricting-elections.html
+
+**The Bounce: These NBA rookies are tremendous. And next year's class looks great**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6780411/2025/11/05/nba-rookies-aj-dybantsa-darryn-peterson-cam-booze-the-bounce/
+
+**Youngstown Steel, Yoshida II and Dames & Moore: Here’s what the lawyers are talking about.**\
+`By Abbie VanSickle`\
+https://nytimes.com/live/2025/11/05/us/trump-tariffs-supreme-court/key-tariffs-cases-supreme-court
+
 **A Major Question in the Tariffs Case: The ‘Major Questions Doctrine’**\
 `The Supreme Court used the doctrine, which requires Congress to speak clearly to confer vast economic power, to strike down several Biden administration programs.`\
 https://nytimes.com/2025/11/05/us/politics/a-major-question-in-the-tariffs-case-the-major-questions-doctrine.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/11/05/us/politics/is-the-us-trade-deficit-an-emergency.
 **College Football Playoff 2025-26: Seeding changes, metric decisions and the format's future**\
 `Everything you need to know about this year's College Football Playoff. `\
 https://nytimes.com/athletic/6780128/2025/11/05/college-football-playoff-changes-format-metrics/
-
-**House Race in Houston Heads for Runoff Between Young Democrats**\
-`The seat, long held by Black Houston leaders, has been vacant since March. The winner is likely to face Representative Al Green in a district altered by Republican gerrymandering.`\
-https://nytimes.com/2025/11/05/us/politics/houston-house-election-results.html
-
-**Zohran Mamdani’s Top 5 Priorities as Mayor**\
-`When he takes office on Jan. 1, Mr. Mamdani will seek to move quickly to implement his affordability plans and respond to threats from President Trump.`\
-https://nytimes.com/2025/11/05/nyregion/zohran-mamdani-nyc-mayor-priorities-agenda.html
-
-**NHL Playoff Report: Mammoth on the rise, Wild and Maple Leafs falling off**\
-`The first month of the NHL season is in the books, and it’s time to look at how the NHL’s playoff race is shaping up.`\
-https://nytimes.com/athletic/6777646/2025/11/05/nhl-playoffs-mammoth-wild-leafs/
-
-**In season-opening win, Duke proves it’s more than just Cam Boozer and company**\
-`Cam Boozer went scoreless in the first half, but scored 15 points and grabbed 10 rebounds in the second half as the Blue Devils pulled away.`\
-https://nytimes.com/athletic/6779620/2025/11/05/duke-college-basketball-texas-cam-boozer/
 
