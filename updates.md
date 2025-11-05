@@ -1,3 +1,7 @@
+**Zohran Mamdani’s Top 5 Priorities as Mayor**\
+`When he takes office on Jan. 1, Mr. Mamdani will seek to move quickly to implement his affordability plans and respond to threats from President Trump.`\
+https://nytimes.com/2025/11/05/nyregion/zohran-mamdani-nyc-mayor-priorities-agenda.html
+
 **Is the U.S. Trade Deficit an ‘Emergency’?**\
 `Many of the president’s tariffs rest on the legal claim that the gap between what America imports and exports is a national emergency, an idea that remains contentious.`\
 https://nytimes.com/2025/11/05/us/politics/is-the-us-trade-deficit-an-emergency.html
