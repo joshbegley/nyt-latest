@@ -1,3 +1,19 @@
+**Why the Panthers didn't make a deal before the trade deadline**\
+`GM Dan Morgan decided against making a deal after Carolina upset the Packers and improved to 5-4, a game and a half behind Tampa Bay.`\
+https://nytimes.com/athletic/6778556/2025/11/04/carolina-panthers-nfl-trade-deadline/
+
+**What to Know About Canada’s New Budget**\
+`The government of Prime Minister Mark Carney unveiled a program of big spending to spur Canada’s economy and reduce its dependence on the United States.`\
+https://nytimes.com/2025/11/04/world/canada/what-to-know-canada-budget.html
+
+**A Little Noted Element Propelled Mamdani’s Rise: Gen Z Loneliness**\
+`Members of Gen Z found something unexpected in the mayoral race: a chance to hang out. Their enthusiasm turned into real votes.`\
+https://nytimes.com/2025/11/04/nyregion/mamdani-young-voters.html
+
+**After Decades of Low Turnout for Mayor’s Races, Voting Surges in New York**\
+`Voter participation in the city, which once surpassed 90 percent, cratered in recent elections. Here’s a look at why it fell, and why this year has been different.`\
+https://nytimes.com/2025/11/04/nyregion/nyc-mayor-election-turnout.html
+
 **What Logan Wilson trade, keeping Trey Hendrickson say about Bengals' future plans**\
 `Cincinnati signaled that it's not giving up on this season while also looking for rookie linebackers to step up as team leaders`\
 https://nytimes.com/athletic/6778406/2025/11/04/bengals-trade-deadline-logan-wilson-trey-hendrickson/
