@@ -1,3 +1,19 @@
+**China Delays Return of Astronauts After Debris May Have Hit Space Station**\
+`The country’s space authorities said that were investigating whether an object had hit the space station and the risks tied to it.`\
+https://nytimes.com/2025/11/04/science/space/china-space-station-debris.html
+
+**Democrats to Keep Majority on Pennsylvania State Supreme Court**\
+`Voters chose to keep three Democratic justices for 10 more years, a critical victory for Democrats in the biggest swing state in the country.`\
+https://nytimes.com/2025/11/04/us/politics/democrats-pennsylvania-state-supreme-court.html
+
+**Police Charge Man in Fire at Home of Portland City Councilor**\
+`The authorities, who were investigating the fire as a possible arson, said on Tuesday that it was “not a targeted act of violence.”`\
+https://nytimes.com/2025/11/04/us/andace-avalos-fire-arrest-portland-city-councilor.html
+
+**How Mayor Mamdani Can Write New York’s Next Chapter**\
+`Mamdani, who campaigned on sweeping promises, can build a positive legacy by focusing on tangible accomplishments.`\
+https://nytimes.com/2025/11/04/opinion/mayor-mamdani-new-york-election.html
+
 **Alvin Bragg Is Re-elected as Manhattan’s District Attorney**\
 `His opponents tried to make the campaign a referendum on his record, which included convicting Donald Trump.`\
 https://nytimes.com/2025/11/04/nyregion/nyc-election-manhattan-da-alvin-bragg.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/11/04/nyregion/mamdani-nyc-mayor-muslim-south-asian.htm
 **Mikie Sherrill: What to Know About New Jersey’s Next Governor**\
 `Ms. Sherrill, a Democrat, will be the second woman to serve as governor of New Jersey. The first, Christine Todd Whitman, a onetime Republican, endorsed Ms. Sherrill.`\
 https://nytimes.com/2025/11/04/us/politics/mikie-sherrill-nj-governor.html
-
-**Mikie Sherrill, a Democrat, Wins New Jersey Governor’s Race**\
-`Ms. Sherrill, a Democratic congresswoman, beat Jack Ciattarelli, a Republican running his third race for governor, after a hard-fought campaign. She urged voters to consider the race a referendum on President Trump.`\
-https://nytimes.com/2025/11/04/us/politics/nj-governor-mikie-sherrill.html
-
-**Democrat Leads Miami Mayoral Race Headed to a Runoff**\
-`In picking Eileen Higgins, a county commissioner, and rejecting three candidates with relatives in politics, voters made clear their desire to break from family dynasties.`\
-https://nytimes.com/2025/11/04/us/higgins-miami-mayor-election-results.html
-
-**City Council President Elected as First New Mayor of Detroit in 12 Years**\
-`Mary Sheffield will take over a city that Mayor Mike Duggan steered out of bankruptcy. She will be the first woman to lead Detroit.`\
-https://nytimes.com/2025/11/04/us/detroit-mayor-election-mary-sheffield.html
-
-**Tom Brady Says He Cloned His Dog**\
-`Mr. Brady became the latest celebrity to try to preserve a pet’s genetics, a move that animal rights groups have criticized.`\
-https://nytimes.com/2025/11/04/science/tom-brady-dog-cloning.html
 
