@@ -12,7 +12,7 @@ https://nytimes.com/2025/11/05/us/politics/houston-house-election-results.html
 
 **Zohran Mamdani’s Top 5 Priorities as Mayor**\
 `When he takes office on Jan. 1, Mr. Mamdani will seek to move quickly to implement his affordability plans and respond to threats from President Trump.`\
-https://nytimes.com/2025/11/05/nyregion/zohran-mamdanis-top-5-priorities-as-mayor.html
+https://nytimes.com/2025/11/05/nyregion/zohran-mamdani-nyc-mayor-priorities-agenda.html
 
 **NHL Playoff Report: Mammoth on the rise, Wild and Maple Leafs falling off**\
 `The first month of the NHL season is in the books, and it’s time to look at how the NHL’s playoff race is shaping up.`\
