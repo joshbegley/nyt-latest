@@ -1,3 +1,7 @@
+**Egypt’s Grand Museum Is Finally Open. Now, ‘We Need Our Stuff Back.’**\
+`The museum’s most anticipated exhibit is the full 5,500 items from King Tutankhamen’s tomb. Egyptians say it’s time to experience their most precious antiquities at home.`\
+https://nytimes.com/2025/11/06/arts/design/grand-egyptian-museum-opening.html
+
 **How Cardinals RB Emari Demercado got past one of football's most 'bone-headed' mistakes**\
 `The Cardinals have struggled closing all season. Yet, in Monday's final minutes, the poster child of their ineptness made the smartest play.`\
 https://nytimes.com/athletic/6782570/2025/11/06/emari-demercado-arizona-cardinals-end-zone-fumble-mistake/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6781336/2025/11/06/phillies-offseason-schwarber-rea
 **Four Yankees offseason priorities, from Cody Bellinger to pitching to ... Pete Alonso?**\
 `How can the Yankees improve their roster this winter? As free agency gets underway, here are four of their top offseason priorities.`\
 https://nytimes.com/athletic/6775324/2025/11/06/yankees-offseason-trades-signings-pete-alonso/
-
-**Tuchel planning to bring Bellingham back into England squad**\
-`Bellingham missed the last England squad but is in line for a return when the latest selection is announced on Friday.`\
-https://nytimes.com/athletic/6783269/2025/11/06/england-squad-jude-bellingham-return/
 

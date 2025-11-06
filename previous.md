@@ -1,3 +1,7 @@
+**How Cardinals RB Emari Demercado got past one of football's most 'bone-headed' mistakes**\
+`The Cardinals have struggled closing all season. Yet, in Monday's final minutes, the poster child of their ineptness made the smartest play.`\
+https://nytimes.com/athletic/6782570/2025/11/06/emari-demercado-arizona-cardinals-end-zone-fumble-mistake/
+
 **The Rockets knew what they did best. So they decided to 'triple-down' on it**\
 `Houston led the NBA in offensive rebounding last season, then went out and added even more size to dominate the glass. It's working so far.`\
 https://nytimes.com/athletic/6783105/2025/11/06/rockets-offensive-rebounding-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6775324/2025/11/06/yankees-offseason-trades-signing
 **Tuchel planning to bring Bellingham back into England squad**\
 `Bellingham missed the last England squad but is in line for a return when the latest selection is announced on Friday.`\
 https://nytimes.com/athletic/6783269/2025/11/06/england-squad-jude-bellingham-return/
-
-**Texas Tech's defensive dominance explained in 3 key stats, plus Julian Sayin's run at history**\
-`The Red Raiders, known for their offense for the past two decades, are in the top 10 on the strength of an elite defense. `\
-https://nytimes.com/athletic/6781632/2025/11/06/texas-tech-defensive-julian-saying-ohio-state/
 

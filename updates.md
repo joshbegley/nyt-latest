@@ -1,3 +1,7 @@
+**How Cardinals RB Emari Demercado got past one of football's most 'bone-headed' mistakes**\
+`The Cardinals have struggled closing all season. Yet, in Monday's final minutes, the poster child of their ineptness made the smartest play.`\
+https://nytimes.com/athletic/6782570/2025/11/06/emari-demercado-arizona-cardinals-end-zone-fumble-mistake/
+
 **The Rockets knew what they did best. So they decided to 'triple-down' on it**\
 `Houston led the NBA in offensive rebounding last season, then went out and added even more size to dominate the glass. It's working so far.`\
 https://nytimes.com/athletic/6783105/2025/11/06/rockets-offensive-rebounding-nba/
