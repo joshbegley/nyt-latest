@@ -1,3 +1,16 @@
+**Here Are Airports That Could Be Affected by the Air Traffic Slowdown**\
+`The cuts to flights are expected to begin Friday and deepen over the weekend to reach a 10 percent reduction in air traffic.`\
+https://nytimes.com/2025/11/06/us/politics/airports-list-flight-cuts-government-shutdown.html
+
+**Design or Art? Both. At the ‘Salon’ Fair, 6 Ways to See Why.**\
+`The most thematically permissive fair in New York’s art schedule — where sofas compete with paintings and sculptures — brings up old questions about why we like objects.`\
+https://nytimes.com/2025/11/06/arts/design/salon-fair-park-avenue-armory.html
+
+**NFL vibes-based predictions, a baseball heartbreaker and why did Tom Brady clone his dog?**\
+`Sports Gossip Show: Who will win the vibes war between the Patriots and Buccaneers (aka the Brady Bowl)?
+`\
+https://nytimes.com/athletic/6782239/2025/11/06/sports-gossip-show-tom-brady-baker-mayfield-drake-maye/
+
 **NFL vibes-based predictions, a baseball heartbreaker and why did Tom Brady clone his dog?**\
 `Sports Gossip Show: Who will win the vibes war between the Patriots and Buccaneers (aka the Brady Bowl)?
 `\
