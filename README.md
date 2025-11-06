@@ -1,3 +1,7 @@
+**Does Jennifer Lawrence Mean Anything She Says?**\
+`The actress Jennifer Lawrence talks about her experiences with directors and how personally she takes feedback in a conversation with Lulu Garcia-Navarro on “The Interview.”`\
+https://nytimes.com/video/podcasts/100000010501711/does-jennifer-lawrence-mean-anything-she-says.html
+
 **Pacers guard Mac McClung feels 'very lucky to be' in Indiana**\
 `The three-time All-Star Weekend Slam Dunk winner and 2024 G League MVP hopes he has found an NBA home with the Pacers.`\
 https://nytimes.com/athletic/6783537/2025/11/06/pacers-mac-mcclung-indiana-roster/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6783950/2025/11/06/wolves-rob-edwards-middlesbrough
 **The Bounce: Which teams' hot starts are for real? Plus, a hilarious Cooper Flagg dunk**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6784082/2025/11/06/bulls-spurs-76ers-cooper-flagg-nba-the-bounce/
-
-**How to watch women's Elon vs. North Carolina basketball: Time, TV, streaming**\
-`Find out how to watch the Elon Phoenix play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6784181/2025/11/06/elon-vs-north-carolina-stream-how-to-watch-nov-6/
 
