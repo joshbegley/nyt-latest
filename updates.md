@@ -1,3 +1,7 @@
+**Jordan Binnington tries to hide Alex Ovechkin's 900th goal puck in his pants**\
+`As the Capitals celebrated Ovechkin's 900th goal, Binnington pulled the puck out of the net and put it in his pants. He gave it back later.`\
+https://nytimes.com/athletic/6782581/2025/11/05/jordan-binnington-returns-alex-ovechkin-900th-goal/
+
 **Goalie Jordan Binnington tries to hide Alex Ovechkin's 900th goal in his pants**\
 `As the Capitals celebrated Ovechkin's 900th goal, Binnington pulled the puck out of the net and put it in his pants. He gave it back later.`\
 https://nytimes.com/athletic/6782581/2025/11/05/jordan-binnington-returns-alex-ovechkin-900th-goal/
