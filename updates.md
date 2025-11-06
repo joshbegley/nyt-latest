@@ -1,3 +1,11 @@
+**Barton claims trial for social media posts is 'highly political' and attack on free speech**\
+`The ex midfielder expressed remorse but later claimed allegedly offensive posts amounted to a 'spat between celebrities online'`\
+https://nytimes.com/athletic/6784281/2025/11/06/joey-barton-trial-posts-political/
+
+**Infantino accused of 'clear violation' of FIFA statues over Trump praise**\
+`"I think we should all support what he’s doing because I think it’s looking pretty good," the FIFA president said.`\
+https://nytimes.com/athletic/6784737/2025/11/06/infantino-fifa-statues-donald-trump/
+
 **Reyna's USMNT return a 'special situation' that mixes Pochettino's message**\
 `For months, Mauricio Pochettino has preached how all players need to earn their USMNT places. Gio Reyna is the exception to his rule`\
 https://nytimes.com/athletic/6784415/2025/11/06/gio-reyna-usmnt-return-mauricio-pochettino-world-cup/

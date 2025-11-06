@@ -34,7 +34,3 @@ https://nytimes.com/athletic/6784724/2025/11/06/braves-tyler-kinley-piere-johnso
 `Despite shoppers’ concerns about rising costs, inflation and the government shutdown, retailers predict sales will increase as much as 4.2% over the holidays.`\
 https://nytimes.com/2025/11/06/business/holiday-consumer-spending-2025.html
 
-**Paramilitary Accepts Sudan Truce Plan, but the Military Has Not**\
-`The R.S.F. paramilitary group, facing growing condemnation for atrocities in Darfur, said it had agreed to a cease-fire proposal, but it is not yet clear what the military will do.`\
-https://nytimes.com/2025/11/06/world/africa/sudan-rsf-truce.html
-
