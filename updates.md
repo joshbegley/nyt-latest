@@ -1,3 +1,7 @@
+**Boiler Tower at Power Plant in South Korea Collapses, Trapping Workers**\
+`The structure was being demolished when it collapsed. Two people were rescued, one was found in the rubble and six more were believed to still be buried.`\
+https://nytimes.com/2025/11/06/world/asia/korea-boiler-tower-collapse.html
+
 **Luka Dončić keys Lakers' rotating lineup in win over Victor Wembanyama and the Spurs**\
 `The lineups keep changing but the results stay the same for the Lakers, who snuck past San Antonio for their fifth straight win.`\
 https://nytimes.com/athletic/6782973/2025/11/06/luka-doncic-victor-wembanyama-lakers-spurs/
