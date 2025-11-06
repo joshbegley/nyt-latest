@@ -1,3 +1,8 @@
+**NFL vibes-based predictions, a baseball heartbreaker and why did Tom Brady clone his dog?**\
+`Sports Gossip Show: Who will win the vibes war between the Patriots and Buccaneers (aka the Brady Bowl)?
+`\
+https://nytimes.com/athletic/6782239/2025/11/06/sports-gossip-show-tom-brady-baker-mayfield-drake-maye/
+
 **LeBron James nearing Lakers return from sciatic nerve issue**\
 `The 40-year-old is one step closer to joining the Lakers for his 23rd NBA season after being sidelined since the preseason.`\
 https://nytimes.com/athletic/6784364/2025/11/06/lebron-james-nearing-los-angeles-lakers-return-sciatica/
