@@ -1,3 +1,19 @@
+**Iran Sentences Iranian American Jewish Man to Prison, Family Says**\
+`Kamran Hekmati of Long Island was arrested for visiting Israel 13 years ago to celebrate his son’s bar mitzvah, they said.`\
+https://nytimes.com/2025/11/06/world/middleeast/kamran-hekmati-iran-arrest.html
+
+**The Windup: The biggest names in free agency. Plus: Another Barry Bonds HOF debate**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6784205/2025/11/06/mlb-free-agency-the-windup/
+
+**Testosterone and Women’s Sex Drive**\
+`My colleague Susan Dominus discusses her reporting on women who are taking testosterone.`\
+https://nytimes.com/2025/11/06/world/testosterone-women-sex-climate-talks-brazil.html
+
+**Sexual Assault of the President Exposes Mexico’s Endemic Machismo**\
+`President Claudia Sheinbaum was groped on the street this week, in an episode that set off a national conversation about what has and has not changed since Mexico elected its first female leader.`\
+https://nytimes.com/2025/11/06/world/americas/mexico-sheinbaum-women-abuse.html
+
 **Sexual Assault of the President Exposes Mexico’s Endemic Machismo**\
 `President Claudia Sheinbaum was groped on the street this week, in an assault that set off a national conversation about what has and has not changed since Mexico elected its first female leader.`\
 https://nytimes.com/2025/11/06/world/americas/mexico-sheinbaum-women-abuse.html

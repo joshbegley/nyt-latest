@@ -1,3 +1,11 @@
+**Judge Orders Trump Administration to Fully Fund Food Stamps This Month**\
+`A federal judge rebuked the administration for the way it tried to fund only partial benefits to food stamp recipients.`\
+https://nytimes.com/2025/11/06/us/politics/snap-food-stamps-shutdown-trump.html
+
+**OpenAI Races to Quell Concerns Over Its Finances**\
+`The A.I. company faced pushback after a top executive raised the idea of government aid, amid concerns that the A.I. industry is headed toward a dangerous bubble.`\
+https://nytimes.com/2025/11/06/technology/openai-finances-debt-data-centers.html
+
 **Iran Sentences Iranian American Jewish Man to Prison, Family Says**\
 `Kamran Hekmati of Long Island was arrested for visiting Israel 13 years ago to celebrate his son’s bar mitzvah, they said.`\
 https://nytimes.com/2025/11/06/world/middleeast/kamran-hekmati-iran-arrest.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/06/dining/we-found-dupes-for-your-favorite-closed-ne
 **Mamdani Allies Create a Nonprofit to Push His Affordability Agenda**\
 `A new group will solicit donations to replicate Zohran Mamdani’s grass-roots army of volunteers and to help build momentum for his proposals.`\
 https://nytimes.com/2025/11/06/nyregion/mamdani-agenda-nonprofit.html
-
-**Pochettino explains the 'why' behind USMNT's many key November omissions**\
-`The U.S. is without a number of first-choice stars for friendlies against Paraguay and Uruguay, with time until the World Cup at a premium`\
-https://nytimes.com/athletic/6784992/2025/11/06/usmnt-roster-out-pulisic-mckennie-richards-weah-musah-pochettino/
-
-**Rockies to hire Browns' Paul DePodesta as head of baseball operations: Sources**\
-`DePodesta will return to a baseball front office after nearly a decade of working in the NFL.`\
-https://nytimes.com/athletic/6785121/2025/11/06/paul-depodesta-colorado-rockies-cleveland-browns/
 
