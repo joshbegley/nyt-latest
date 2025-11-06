@@ -1,3 +1,15 @@
+**Wild Card files antitrust lawsuit against Panini America**\
+`Wild Card is alleging anti-competitive practices by Panini America, which has its own ongoing antitrust suit against Fanatics`\
+https://nytimes.com/athletic/6785520/2025/11/06/trading-card-company-files-antitrust-lawsuit-against-panini-america-we-have-to-push-back/
+
+**Anti-Defamation League Creates Antisemitism Tip Line Focused on Mamdani**\
+`The Anti-Defamation League, which has taken aim at Mayor-elect Zohran Mamdani over his criticism of Israel, unveiled a website where New Yorkers could report incidents of antisemitism.`\
+https://nytimes.com/2025/11/06/nyregion/zohran-mamdani-monitor-antisemitism-adl.html
+
+**Remember When Pop Critics Were Critical of Pop?**\
+`The writer and critic Kelefa Sanneh joins Wesley Morris to fondly reflect on the honesty and spirit of pop music criticism in years past.`\
+https://nytimes.com/video/podcasts/100000010508375/remember-when-pop-critics-were-critical-of-pop.html
+
 **A Group of CAPs Discuss Their Work**\
 `Five pediatricians on diagnostic uncertainty, second opinions and the future of the field.`\
 https://nytimes.com/2025/11/06/podcasts/a-group-of-caps-discuss-their-work.html
