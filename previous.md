@@ -1,3 +1,15 @@
+**Judge Criticizes Immigration Agents in Chicago: ‘Use of Force Shocks the Conscience’**\
+`Judge Sara L. Ellis said she saw “little reason for the use of force that the federal agents are currently using,” and said Gregory Bovino, a Border Patrol official, had lied about his use of tear gas in Chicago.`\
+https://nytimes.com/2025/11/06/us/sara-ellis-gregory-bovino-tear-gas-illinois.html
+
+**What We Can Learn From Brain Organoids**\
+`Lab-grown “reductionist replicas” of the human brain are helping scientists understand fetal development and cognitive disorders, including autism. But ethical questions loom.`\
+https://nytimes.com/2025/11/06/science/brain-organoids-neurons.html
+
+**Scoop City: Evaluating Broncos and Raiders before tonight's clash**\
+`Are the 7-2 Broncos as good as their record suggests? How about the 2-6 Raiders? We evaluate both.`\
+https://nytimes.com/athletic/6784736/2025/11/06/broncos-raiders-legit-nfl-2025-scoop-city/
+
 **Dallas Cowboys Player Marshawn Kneeland Dies at 24**\
 `The police said the cause of death appeared to be a self-inflicted gunshot wound.`\
 https://nytimes.com/2025/11/06/us/marshawn-kneeland-suicide-cowboys.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6783800/2025/11/06/maple-leafs-matias-maccelli-wing
 **You Could Catch a Glimpse of the Northern Lights This Week**\
 `A strong geomagnetic storm is expected to push the often-magical light display farther south than usual.`\
 https://nytimes.com/2025/11/06/science/northern-lights-forecast-aurora-borealis.html
-
-**‘Sentimental Value’ Review: Joachim Trier’s Unhappy Household**\
-`In this moving drama from the director of “The Worst Person in the World,” Stellan Skarsgard and Renate Reinsve star as father and daughter in counterpoint.`\
-https://nytimes.com/2025/11/06/movies/sentimental-value-review-joachim-trier.html
-
-**Ranking PWHL team names and logos: Vancouver Goldeneyes lead our updated list**\
-`How do the Seattle Torrent and Goldeneyes stack up against the league's original six?`\
-https://nytimes.com/athletic/6784104/2025/11/06/pwhl-women-hockey-names-logos-rankings/
-
-**Investigators Sift Through Plane Crash Wreckage in Louisville**\
-`A departing UPS cargo plane caught fire and dropped an engine crashing in an industrial zone. At least 12 people were killed.`\
-https://nytimes.com/2025/11/06/us/ups-plane-crash-louisville-wreckage-investigation.html
 

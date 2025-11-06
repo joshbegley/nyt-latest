@@ -1,3 +1,15 @@
+**Judge Criticizes Immigration Agents in Chicago: ‘Use of Force Shocks the Conscience’**\
+`Judge Sara L. Ellis said she saw “little reason for the use of force that the federal agents are currently using,” and said Gregory Bovino, a Border Patrol official, had lied about his use of tear gas in Chicago.`\
+https://nytimes.com/2025/11/06/us/sara-ellis-gregory-bovino-tear-gas-illinois.html
+
+**What We Can Learn From Brain Organoids**\
+`Lab-grown “reductionist replicas” of the human brain are helping scientists understand fetal development and cognitive disorders, including autism. But ethical questions loom.`\
+https://nytimes.com/2025/11/06/science/brain-organoids-neurons.html
+
+**Scoop City: Evaluating Broncos and Raiders before tonight's clash**\
+`Are the 7-2 Broncos as good as their record suggests? How about the 2-6 Raiders? We evaluate both.`\
+https://nytimes.com/athletic/6784736/2025/11/06/broncos-raiders-legit-nfl-2025-scoop-city/
+
 **Dallas Cowboys Player Marshawn Kneeland Dies at 24**\
 `The police said the cause of death appeared to be a self-inflicted gunshot wound.`\
 https://nytimes.com/2025/11/06/us/marshawn-kneeland-suicide-cowboys.html
