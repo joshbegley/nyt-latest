@@ -1,3 +1,7 @@
+**Philippines Faces Grim Typhoon Aftermath as Another Storm Approaches**\
+`As the death toll for Typhoon Kalmaegi rose into the triple digits, the country braced for another tropical storm expected this weekend.`\
+https://nytimes.com/2025/11/06/world/asia/philippines-typhoon-kalmaegi-aftermath.html
+
 **5 Pressing Housing Issues for Mamdani, From Airbnb to Angry Landlords**\
 `When Zohran Mamdani becomes mayor, he will immediately have to confront a host of issues that have little to do with “freezing the rent,” his main housing-related pledge.`\
 https://nytimes.com/2025/11/06/nyregion/zohran-mamdani-housing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/06/learning/word-of-the-day-invigorate.html
 **Phil Foden and Erling Haaland are reimagining the traditional front two**\
 `In the past, Phil Foden and Erling Haaland have looked to be on different wavelengths but the duo are now complementing each other`\
 https://nytimes.com/athletic/6781777/2025/11/06/phil-foden-erling-haaland-man-city-borussia-dortmund/
-
-**Russell Westbrook is adjusting well in Sacramento after delayed signing**\
-`The Kings signed Westbrook in the middle of October, but his first triple-double with the team shows he's quickly paying dividends.`\
-https://nytimes.com/athletic/6782886/2025/11/06/russell-westbrook-kings-triple-double-nba/
 

@@ -1,3 +1,7 @@
+**Philippines Faces Grim Typhoon Aftermath as Another Storm Approaches**\
+`As the death toll for Typhoon Kalmaegi rose into the triple digits, the country braced for another tropical storm expected this weekend.`\
+https://nytimes.com/2025/11/06/world/asia/philippines-typhoon-kalmaegi-aftermath.html
+
 **5 Pressing Housing Issues for Mamdani, From Airbnb to Angry Landlords**\
 `When Zohran Mamdani becomes mayor, he will immediately have to confront a host of issues that have little to do with “freezing the rent,” his main housing-related pledge.`\
 https://nytimes.com/2025/11/06/nyregion/zohran-mamdani-housing.html
