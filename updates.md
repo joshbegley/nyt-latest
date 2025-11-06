@@ -1,3 +1,7 @@
+**Phil Foden and Erling Haaland are reimagining the traditional front two**\
+`In the past, Phil Foden and Erling Haaland have looked to be on different wavelengths but the duo are now complementing each other`\
+https://nytimes.com/athletic/6781777/2025/11/06/phil-foden-erling-haaland-man-city-borussia-dortmund/
+
 **How to watch Eagles vs. Packers: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Eagles play the Green Bay Packers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6783007/2025/11/06/eagles-vs-packers-stream-how-to-watch-nov-10/

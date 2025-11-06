@@ -2,7 +2,7 @@
 `Find out how to watch the Philadelphia Eagles play the Green Bay Packers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6783007/2025/11/06/eagles-vs-packers-stream-how-to-watch-nov-10/
 
-**How two women made history rowing the Pacific Ocean: 5,000 calories a day, six months at sea**\
+**How two British women made history rowing the Pacific Ocean**\
 `It took Jess Rowe and Miriam Payne six months, plenty of snacks and sleepless nights to row from Peru to Australia`\
 https://nytimes.com/athletic/6775109/2025/11/06/british-rowers-pacific-ocean-jess-rowe-miriam-payne/
 
