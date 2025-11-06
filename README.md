@@ -1,3 +1,11 @@
+**John Russell Taylor, 90, Dies; Cultural Critic and Hitchcock Biographer**\
+`A prolific journalist and author, he wrote the only authorized biography of Alfred Hitchcock and heaped early praise on the future Nobel laureate Harold Pinter.`\
+https://nytimes.com/2025/11/06/books/john-russell-taylor-dead.html
+
+**Obesity Drugs May Drop to as Little as $150 a Month**\
+`President Trump announced a deal with Eli Lilly and Novo Nordisk to lower prices on hugely popular weight-loss drugs for Medicare, Medicaid and American patients who pay with their own money.`\
+https://nytimes.com/2025/11/06/health/obesity-drug-prices-trump.html
+
 **A Prison Hospice Program for the Living and the Dying**\
 `Most people who die in prison die alone. Programs like the one at California Medical Facility aim to prevent that.`\
 https://nytimes.com/2025/11/06/us/california-medical-facility-hospice-prison.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6783929/2025/11/06/senators-kaliyev-gambling-nhl/
 **Does Jennifer Lawrence Mean Anything She Says?**\
 `The actress Jennifer Lawrence talks about her experiences with directors and how personally she takes feedback in a conversation with Lulu Garcia-Navarro on “The Interview.”`\
 https://nytimes.com/video/podcasts/100000010501711/does-jennifer-lawrence-mean-anything-she-says.html
-
-**Pacers guard Mac McClung feels 'very lucky to be' in Indiana**\
-`The three-time All-Star Weekend Slam Dunk winner and 2024 G League MVP hopes he has found an NBA home with the Pacers.`\
-https://nytimes.com/athletic/6783537/2025/11/06/pacers-mac-mcclung-indiana-roster/
-
-**How to watch women's UMBC vs. Maryland basketball: Time, TV, streaming**\
-`Find out how to watch the UMBC Retrievers play the Maryland Terrapins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6784261/2025/11/06/umbc-vs-maryland-stream-how-to-watch-nov-6/
 
