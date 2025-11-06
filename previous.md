@@ -1,3 +1,11 @@
+**Don Mattingly leaving Blue Jays post as bench coach: Source**\
+`Mattingly's departure comes while two managerial vacancies remain in the majors and other staffs have yet to be finalized.`\
+https://nytimes.com/athletic/6784042/2025/11/06/don-mattingly-leaving-blue-jays/
+
+**NHL reviewing Arthur Kaliyev gambling, finance allegations: Report**\
+`The 24-year-old forward joined the Senators this offseason after stops with the Los Angeles Kings and New York Rangers.`\
+https://nytimes.com/athletic/6783929/2025/11/06/senators-kaliyev-gambling-nhl/
+
 **Does Jennifer Lawrence Mean Anything She Says?**\
 `The actress Jennifer Lawrence talks about her experiences with directors and how personally she takes feedback in a conversation with Lulu Garcia-Navarro on “The Interview.”`\
 https://nytimes.com/video/podcasts/100000010501711/does-jennifer-lawrence-mean-anything-she-says.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6784231/2025/11/06/blues-vs-sabres-stream-how-to-wa
 **How to watch Wild vs. Hurricanes: Time, TV, streaming**\
 `Find out how to watch the Minnesota Wild play the Carolina Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6784229/2025/11/06/wild-vs-hurricanes-stream-how-to-watch-nov-6/
-
-**Wolves make approach for Middlesbrough head coach Edwards**\
-`Edwards took over at Middlesbrough in June, with the Teeside club third in the Championship after 14 games.`\
-https://nytimes.com/athletic/6783950/2025/11/06/wolves-rob-edwards-middlesbrough-head-coach/
-
-**The Bounce: Which teams' hot starts are for real? Plus, a hilarious Cooper Flagg dunk**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6784082/2025/11/06/bulls-spurs-76ers-cooper-flagg-nba-the-bounce/
 
