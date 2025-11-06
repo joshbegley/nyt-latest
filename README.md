@@ -1,5 +1,13 @@
+**The Windup: The biggest names in free agency. Plus: Another Barry Bonds HOF debate**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6784205/2025/11/06/mlb-free-agency-the-windup/
+
+**Testosterone and Women’s Sex Drive**\
+`My colleague Susan Dominus discusses her reporting on women who are taking testosterone.`\
+https://nytimes.com/2025/11/06/world/testosterone-women-sex-climate-talks-brazil.html
+
 **Sexual Assault of the President Exposes Mexico’s Endemic Machismo**\
-`President Claudia Sheinbaum was groped on the street this week, in an assault that set off a national conversation about what has and has not changed since Mexico elected its first female leader.`\
+`President Claudia Sheinbaum was groped on the street this week, in an episode that set off a national conversation about what has and has not changed since Mexico elected its first female leader.`\
 https://nytimes.com/2025/11/06/world/americas/mexico-sheinbaum-women-abuse.html
 
 **Nancy Pelosi Is an American Political Giant**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6785121/2025/11/06/paul-depodesta-colorado-rockies-
 **Why Is Trump Threatening to Intervene In Nigeria?**\
 `President Trump has threatened to send troops to Nigeria, where he says Christianity faces an “existential threat,” an accusation that Nigeria has denied. Ruth Maclean, our West Africa bureau chief, describes how the violence in Nigeria is affecting people of all religions, not only Christians.`\
 https://nytimes.com/video/world/africa/100000010499997/why-is-trump-threatening-to-intervene-in-nigeria.html
-
-**When Does Mamdani Officially Become Mayor of New York City?**\
-`Zohran Mamdani will take charge just after midnight on Jan. 1, 2026, as required by city law. A swearing-in ceremony will follow soon after.`\
-https://nytimes.com/2025/11/06/nyregion/mamdani-nyc-mayor-swearing-in-inauguration.html
-
-**I.R.S. Halts Free Online Offering for Filing Taxes Directly**\
-`The new program, Direct File, helped low- and moderate-income taxpayers file their returns more easily, and had been expanding.`\
-https://nytimes.com/2025/11/06/business/taxes-irs-direct-file.html
 
