@@ -1,3 +1,19 @@
+**‘Florentine Diamond’ Letter of Authenticity**\
+`The document is signed by Christoph Köchert, whose family long served as jewelers to the imperial court.`\
+https://nytimes.com/interactive/2025/11/06/arts/design/06cul-florentine-diamond-doc.html
+
+**Champions League projections: Arsenal increase their grip as Bayern become second favourites**\
+`The Athletic analyses the state of play in Europe's premier club competition following the conclusion of the fourth round of fixtures`\
+https://nytimes.com/athletic/6783427/2025/11/06/champions-league-projections-md4/
+
+**Blue Jackets fall behind early, then lose Sean Monahan to injury in Calgary**\
+`If Monahan misses significant time, it could be devastating for a Blue Jackets club that is trying to end a five-year playoff drought.`\
+https://nytimes.com/athletic/6783323/2025/11/06/blue-jackets-loss-sean-monahan-injury-flames/
+
+**Mark Zuckerberg and Priscilla Chan Restructure Their Philanthropy**\
+`The Chan Zuckerberg Initiative said its restructured organization, Biohub, would lead its focus on artificial intelligence and scientific research.`\
+https://nytimes.com/2025/11/06/technology/zuckerberg-chan-initiative-biohub.html
+
 **Kante back in France squad for first time in a year**\
 `The 34-year-old has 64 senior caps and was part of the side that won the 2018 World Cup.`\
 https://nytimes.com/athletic/6783336/2025/11/06/ngolo-kante-france-squad-kolo-muani/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6782692/2025/11/06/jacob-trouba-anaheim-ducks-leade
 **Is Fashion Done With Inclusivity, Instagram and Kardashians?**\
 `Olivier Rousteing’s departure from Balmain suggests the answer may be yes.`\
 https://nytimes.com/2025/11/06/style/olivier-rousteing-balmain.html
-
-**What a Rough Day in Court Means for Trump’s Tariffs**\
-`Businesses and investors are bracing for uncertainty after Supreme Court justices questioned the legality of a core part of the president’s trade policy.`\
-https://nytimes.com/2025/11/06/business/dealbook/supreme-court-trump-tariff.html
-
-**Key fantasy football questions for Week 10: Committee concerns for Bears, Rams?**\
-`Dalton Del Don looks at the key fantasy football topics for Week 10, including developing backfield timeshares in Chicago and Los Angeles.`\
-https://nytimes.com/athletic/6782483/2025/11/06/key-fantasy-football-questions-week-10/
-
-**How to watch women's UCSB vs. UCLA basketball: Time, TV, streaming**\
-`Find out how to watch the UCSB Gauchos play the UCLA Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6783483/2025/11/06/ucsb-vs-ucla-stream-how-to-watch-nov-6/
-
-**Trump Administration Live Updates: Officials to List Where Flights Will Be Cut Amid Shutdown**\
-``\
-https://nytimes.com/live/2025/11/06/us/trump-news-shutdown
 
