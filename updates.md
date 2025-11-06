@@ -1,3 +1,7 @@
+**'I wouldn't swap Welbeck for any player in the world' - Hurzeler**\
+`The 35-year-old striker's form has seen calls for him to be named in the England squad for the first time in seven years.`\
+https://nytimes.com/athletic/6783163/2025/11/06/welbeck-news-brighton-hurzeler/
+
 **When Did Music Critics Get So Nice?**\
 `The writer and critic Kelefa Sanneh joins Wesley Morris to talk about the state of pop music criticism today.`\
 https://nytimes.com/video/podcasts/100000010499419/when-did-music-critics-get-so-nice.html
