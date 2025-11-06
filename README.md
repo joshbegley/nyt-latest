@@ -1,3 +1,11 @@
+**Where to Travel After a Breakup**\
+`And more answers to readers’ winter vacation queries.`\
+https://nytimes.com/2025/11/06/t-magazine/relationship-breakup-winter-vacation-ideas.html
+
+**Trump Officials Plan Flight Cuts at Nation’s Busiest Airports**\
+`Also, Nancy Pelosi is retiring. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/11/06/briefing/trump-officials-plan-flight-cuts-at-nations-busiest-airports.html
+
 **U.S. Sends Attack Aircraft to El Salvador Amid Regional Troop Buildup**\
 `A New York Times analysis of satellite imagery and air traffic control communications found that U.S. military planes began operating out of the Central American country in mid-October.`\
 https://nytimes.com/2025/11/06/world/americas/us-military-planes-el-salvador.html
@@ -29,8 +37,4 @@ https://nytimes.com/video/climate/100000010508466/cop30-kicks-off-in-brazil-amid
 **Dodgers designate former All-Star Tony Gonsolin for assignment**\
 `The Los Angeles Dodgers designated 2022 All-Star Tony Gonsolin for assignment amidst a flurry of roster-clearing moves on Thursday, officially ending the tenure of one of the club’s draft and development success stories.`\
 https://nytimes.com/athletic/6785424/2025/11/06/dodgers-tony-gonsolin-designated-for-assignment/
-
-**Democrats Mull Shutdown Off-Ramps as Thune Prepares Spending Vote**\
-`The G.O.P. teed up a vote on a new spending package, but Democrats were insisting on a deal that would address expiring health care subsidies.`\
-https://nytimes.com/2025/11/06/us/politics/democrats-republicans-shutdown-votes.html
 
