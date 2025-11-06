@@ -1,3 +1,7 @@
+**Ex-Giants manager Bruce Bochy finalizing deal to return to S.F. as special assistant**\
+`Bochy, who won three of his four World Series titles managing the Giants, will be back in San Francisco, where he managed for 13 seasons.`\
+https://nytimes.com/athletic/6782066/2025/11/05/bruce-bochy-giants-special-assistant/
+
 **They Fell in Love With A.I. Chatbots — and Found Something Real**\
 `Three people on the joys and anxieties of A.I. romances.`\
 https://nytimes.com/interactive/2025/11/05/magazine/ai-chatbot-marriage-love-romance-sex.html

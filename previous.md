@@ -1,3 +1,7 @@
+**Ex-Giants manager Bruce Bochy finalizing deal to return to S.F. as special assistant**\
+`Bochy, who won three of his four World Series titles managing the Giants, will be back in San Francisco, where he managed for 13 seasons.`\
+https://nytimes.com/athletic/6782066/2025/11/05/bruce-bochy-giants-special-assistant/
+
 **They Fell in Love With A.I. Chatbots — and Found Something Real**\
 `Three people on the joys and anxieties of A.I. romances.`\
 https://nytimes.com/interactive/2025/11/05/magazine/ai-chatbot-marriage-love-romance-sex.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/05/opinion/supreme-court-tariffs-trump.html
 **Remains of the Last American Hostage Held in Gaza Returned to Israel**\
 `Israeli officials told Itay Chen’s family last year that he was probably killed on Oct. 7, 2023, but relatives put off mourning until his body had come home.`\
 https://nytimes.com/2025/11/05/world/middleeast/american-hostage-body-gaza.html
-
-**Manchester United, depression, and being 'far from finished': Takeaways from Mary Earps' book**\
-`Earps' new autobiography, All In: Football, Life and Learning to be Unapologetically Me, is published Thursday`\
-https://nytimes.com/athletic/6768979/2025/11/05/mary-earps-book-takeaways-hampton-england/
 
