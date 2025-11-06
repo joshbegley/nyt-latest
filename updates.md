@@ -1,3 +1,7 @@
+**Bruce Bochy hangs up his uniform, poised for advisory role with Giants**\
+`Bochy, who won three of his four World Series titles managing the Giants, will be back in San Francisco, where he managed for 13 seasons.`\
+https://nytimes.com/athletic/6782066/2025/11/05/bruce-bochy-giants-special-assistant/
+
 **Pacers' already-frustrating season continues with Rick Carlisle ejection**\
 `An unhappy Rick Carlisle was ejected from a Pacers-Nets matchup after two quick technical fouls in the third quarter.`\
 https://nytimes.com/athletic/6782462/2025/11/05/rick-carlisle-ejected-pacers-nets/

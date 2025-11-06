@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6729566/2025/11/05/alex-ovechkin-900-goals-record-n
 `The classified meeting did not relieve mounting unease among lawmakers over President Trump’s expanding campaign of lethal strikes against drug cartels.`\
 https://nytimes.com/2025/11/05/us/politics/trump-drug-boat-strikes-democrats.html
 
-**Ex-Giants manager Bruce Bochy finalizing deal to return to San Francisco as special assistant**\
+**Bruce Bochy hangs up his uniform, poised for advisory role with Giants**\
 `Bochy, who won three of his four World Series titles managing the Giants, will be back in San Francisco, where he managed for 13 seasons.`\
 https://nytimes.com/athletic/6782066/2025/11/05/bruce-bochy-giants-special-assistant/
 
