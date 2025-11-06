@@ -1,3 +1,19 @@
+**5 Pressing Housing Issues for Mamdani, From Airbnb to Angry Landlords**\
+`When Zohran Mamdani becomes mayor, he will immediately have to confront a host of issues that have little to do with “freezing the rent,” his main housing-related pledge.`\
+https://nytimes.com/2025/11/06/nyregion/zohran-mamdani-housing.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/06/crosswords/spelling-bee-forum.html
+
+**Sunderland. Arsenal. Xhaka. 'It was the worst day of my life. It was the best day of my life'**\
+`The Sunderland captain talks leadership, Arteta, Arsenal, the day he was booed off at the Emirates and his new side's aspirations`\
+https://nytimes.com/athletic/6776323/2025/11/06/xhaka-sunderland-arsenal-exclusive/
+
+**Late Night Celebrates a Consequential Election Day**\
+`“We needed a big night,” Jimmy Kimmel said. “Democrats have had fewer wins this year than the Jets.”`\
+https://nytimes.com/2025/11/06/arts/television/late-night-election-day-democrats.html
+
 **Philippines Cleans Up After Typhoon Kalmaegi**\
 `Residents in the central Philippines returned to their mud-caked homes to clean up the aftermath of Typhoon Kalmaegi.`\
 https://nytimes.com/video/world/asia/100000010507476/philippines-typhoon-kalmaegi-aftermath.html
