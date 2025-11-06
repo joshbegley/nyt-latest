@@ -1,3 +1,11 @@
+**The Rockets knew what they did best. So they decided to 'triple-down' on it**\
+`Houston led the NBA in offensive rebounding last season, then went out and added even more size to dominate the glass. It's working so far.`\
+https://nytimes.com/athletic/6783105/2025/11/06/rockets-offensive-rebounding-nba/
+
+**McLaren willing to risk losing F1 drivers’ title over ‘playing favorites’ between Norris and Piastri**\
+`Norris currently leads the world championship by one point from Piastri with four rounds remaining, with Max Verstappen 36 points behind.`\
+https://nytimes.com/athletic/6783345/2025/11/06/mclaren-drivers-title-norris-piastri-f1/
+
 **Doc Rivers has leaned into all-bench lineups for the Bucks. But why?**\
 `Two weeks into the season, no team has played more all-bench units than Milwaukee. And it's not going well.`\
 https://nytimes.com/athletic/6778533/2025/11/06/bucks-doc-rivers-bench-lineup-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6783269/2025/11/06/england-squad-jude-bellingham-re
 **Texas Tech's defensive dominance explained in 3 key stats, plus Julian Sayin's run at history**\
 `The Red Raiders, known for their offense for the past two decades, are in the top 10 on the strength of an elite defense. `\
 https://nytimes.com/athletic/6781632/2025/11/06/texas-tech-defensive-julian-saying-ohio-state/
-
-**College football Week 11 oddly specific predictions: Iowa, Texas Tech protect home turf**\
-`Can Missouri knock off undefeated Texas A&M with true freshman quarterback Matt Zollers making his first start?`\
-https://nytimes.com/athletic/6777302/2025/11/06/college-football-predictions-week-11/
-
-**Inside Ivan Demidov’s hockey brain and how it's helped him excel as an NHL rookie**\
-`Ivan Demidov is one of the most electrifying rookies in the NHL, and two plays he made in his last two games exemplify why.`\
-https://nytimes.com/athletic/6782747/2025/11/06/canadiens-ivan-demidov-hockey-brain/
 

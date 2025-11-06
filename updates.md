@@ -1,3 +1,11 @@
+**The Rockets knew what they did best. So they decided to 'triple-down' on it**\
+`Houston led the NBA in offensive rebounding last season, then went out and added even more size to dominate the glass. It's working so far.`\
+https://nytimes.com/athletic/6783105/2025/11/06/rockets-offensive-rebounding-nba/
+
+**McLaren willing to risk losing F1 drivers’ title over ‘playing favorites’ between Norris and Piastri**\
+`Norris currently leads the world championship by one point from Piastri with four rounds remaining, with Max Verstappen 36 points behind.`\
+https://nytimes.com/athletic/6783345/2025/11/06/mclaren-drivers-title-norris-piastri-f1/
+
 **Doc Rivers has leaned into all-bench lineups for the Bucks. But why?**\
 `Two weeks into the season, no team has played more all-bench units than Milwaukee. And it's not going well.`\
 https://nytimes.com/athletic/6778533/2025/11/06/bucks-doc-rivers-bench-lineup-nba/
