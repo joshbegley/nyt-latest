@@ -1,3 +1,7 @@
+**Dodgers pick up Max Muncy's $10 million club option for 2026: Source**\
+`Muncy is the Dodgers' all-time playoff home run leader and trails only Duke Snider in franchise history for homers by a left-handed hitter.`\
+https://nytimes.com/athletic/6777570/2025/11/06/dodgers-max-muncy-contract-option/
+
 **A Chinese E.V. Delivers the Host, and a Message, at the Global Climate Summit**\
 `The climate-friendly ride, part of a fleet assembled to shuttle delegations to the gathering in Brazil, sent a clear signal: China is making inroads in Latin America.`\
 https://nytimes.com/2025/11/06/climate/lula-cop30-byd-electric-vehicle.html

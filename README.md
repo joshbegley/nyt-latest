@@ -1,3 +1,11 @@
+**Jurors Find Sandwich Hurler Not Guilty of Assault**\
+`The verdict on a misdemeanor charge came after seven hours of deliberation, and after prosecutors had previously failed to secure a felony indictment.`\
+https://nytimes.com/2025/11/06/us/politics/trump-sandwich-guy-verdict.html
+
+**Dodgers pick up Alex Vesia's $3.55 million club option for 2026: Source**\
+`Vesia has established himself as one of the most consistent relievers in baseball since joining the Dodgers in 2021.`\
+https://nytimes.com/athletic/6777744/2025/11/06/dodgers-alex-vesia-option-contract/
+
 **Dodgers pick up Max Muncy's $10 million club option for 2026: Source**\
 `Muncy is the Dodgers' all-time playoff home run leader and trails only Duke Snider in franchise history for homers by a left-handed hitter.`\
 https://nytimes.com/athletic/6777570/2025/11/06/dodgers-max-muncy-contract-option/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/11/06/climate/arctic-sea-ice-cosmic-dust.html
 **Ed Moloney, Chronicler of the Troubles in Northern Ireland, Dies at 77**\
 `He wrote a history of the Irish Republican Army and directed a project that secretly collected oral histories of paramilitary fighters.`\
 https://nytimes.com/2025/11/06/world/europe/ed-moloney-dead.html
-
-**How WTA Tour Finals math put out the fire of a Sabalenka vs. Gauff revenge bout**\
-`Gauff lost the first set against Sabalenka, when she would ordinarily dig in for a three-set marathon. At this event, she needed to sprint.`\
-https://nytimes.com/athletic/6784678/2025/11/06/tennis-wta-tour-finals-gauff-sabalenka/
-
-**Trump Officials Accused of Bullying Tactics to Kill a Climate Measure**\
-`Nations were poised to approve the first fee on pollution from ships. That’s when the Trump administration began the threats.`\
-https://nytimes.com/2025/11/06/climate/trump-climate-international-bullying.html
 

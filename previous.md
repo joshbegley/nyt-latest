@@ -1,3 +1,7 @@
+**Dodgers pick up Max Muncy's $10 million club option for 2026: Source**\
+`Muncy is the Dodgers' all-time playoff home run leader and trails only Duke Snider in franchise history for homers by a left-handed hitter.`\
+https://nytimes.com/athletic/6777570/2025/11/06/dodgers-max-muncy-contract-option/
+
 **A Chinese E.V. Delivers the Host, and a Message, at the Global Climate Summit**\
 `The climate-friendly ride, part of a fleet assembled to shuttle delegations to the gathering in Brazil, sent a clear signal: China is making inroads in Latin America.`\
 https://nytimes.com/2025/11/06/climate/lula-cop30-byd-electric-vehicle.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6784678/2025/11/06/tennis-wta-tour-finals-gauff-sab
 **Trump Officials Accused of Bullying Tactics to Kill a Climate Measure**\
 `Nations were poised to approve the first fee on pollution from ships. That’s when the Trump administration began the threats.`\
 https://nytimes.com/2025/11/06/climate/trump-climate-international-bullying.html
-
-**Braves decline options on 2 of their top relievers in 2025: Source**\
-`Tyler Kinley's option was for $5.5 million. Atlanta also declined Pierce Johnson's $7 million option and David Fletcher's $8 million option.`\
-https://nytimes.com/athletic/6784724/2025/11/06/braves-tyler-kinley-piere-johnson-options-declined/
 
