@@ -1,3 +1,7 @@
+**Knicks logo altered for second time during New York's mayoral election**\
+`It's the second time during the New York City mayoral race that the Knicks logo has been appropriated without permission`\
+https://nytimes.com/athletic/6782383/2025/11/05/white-house-knicks-trump-mamdani/
+
 **Bruce Bochy hangs up his uniform, poised for advisory role with Giants**\
 `Bochy, who won three of his four World Series titles managing the Giants, will be back in San Francisco, where he managed for 13 seasons.`\
 https://nytimes.com/athletic/6782066/2025/11/05/bruce-bochy-giants-special-assistant/
