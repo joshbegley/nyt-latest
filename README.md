@@ -1,5 +1,17 @@
+**Trump Pressure Risks Free Speech at University of California, Judge Warns**\
+`A federal judge said that faculty members were being affected in their teaching and research by the Trump administration’s pressure campaign.`\
+https://nytimes.com/2025/11/06/us/trump-pressure-free-speech-university-of-california-lawsuit.html
+
+**Mets extend qualifying offer to closer Edwin Díaz**\
+`Edwin Diaz is expected to test the market but he has said he would "love to" return to the Mets.`\
+https://nytimes.com/athletic/6783806/2025/11/06/mets-qualifying-offer-edwin-diaz/
+
+**Stefanik to Launch Campaign to Challenge Gov. Hochul in New York**\
+`Elise Stefanik, a Republican congresswoman, is a leading ally of President Trump who has gone to great lengths to criticize Ms. Hochul and Mayor-elect Zohran Mamdani.`\
+https://nytimes.com/2025/11/06/nyregion/stefanik-governor.html
+
 **Justice Dept. Is Said to Be Investigating D.C. Mayor Over Foreign Trip**\
-`The investigation into Muriel E. Bowser, which is being handled by the U.S. attorney’s office in Washington, centers on a trip she took with members of her staff that was paid for by Qatar.`\
+`The investigation into Muriel E. Bowser, which is being handled by the U.S. attorney’s office in Washington, could face significant hurdles because of the known facts of the case and recent turmoil inside the Justice Department.`\
 https://nytimes.com/2025/11/06/us/politics/trump-muriel-bowser-qatar-investigation.html
 
 **Wisconsin's Luke Fickell will coach next year, AD says**\
@@ -21,20 +33,4 @@ https://nytimes.com/interactive/2025/11/06/arts/frankenstein-adaptations.html
 **Elon Musk Wins $1 Trillion Tesla Payday**\
 `Shareholders approved a plan to grant Mr. Musk shares worth nearly $1 trillion if he meets ambitious goals, including vastly expanding the company’s stock market valuation.`\
 https://nytimes.com/2025/11/06/business/elon-musk-tesla-pay-vote.html
-
-**What Trump’s New Drug Pricing Deal Means for People With Obesity**\
-`The president’s agreement with drug companies involves a range of prices, depending on dose, product and how you’re paying.`\
-https://nytimes.com/2025/11/06/health/trump-obesity-drug-prices-explainer.html
-
-**Messi's appearance at a forum for business and politics oddly made sense**\
-`The Inter Miami and Argentina star has a huge presence in the business world, but humbly admits he knows little about it`\
-https://nytimes.com/athletic/6785049/2025/11/06/messi-miami-business-forum-trump-milei-infantino/
-
-**Yankees extend qualifying offer to Trent Grisham. What it means for their center field plans**\
-`With the qualifying offer attached, Grisham could find a depressed market in free agency, but it could end up benefiting the Yankees.`\
-https://nytimes.com/athletic/6782349/2025/11/06/yankees-trent-grisham-qualifying-offer-center-field-offseason/
-
-**Who Will Replace Pelosi in Congress?**\
-`Two Democrats have already announced their campaigns to replace Representative Nancy Pelosi in her San Francisco district, and others may join the race soon.`\
-https://nytimes.com/2025/11/06/us/nancy-pelosi-retirement-replacement.html
 
