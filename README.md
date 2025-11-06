@@ -1,3 +1,11 @@
+**COP30 Kicks Off in Brazil, Amid Climate Protests**\
+`Diplomats and leaders gather on the edge of the Amazon forest in Belém, Brazil, for annual talks on how to limit global warming. This happens as protesters and activists stage protests to call for more urgent action against climate change.`\
+https://nytimes.com/video/climate/100000010508466/cop30-kicks-off-in-brazil-amid-climate-protests.html
+
+**Dodgers designate former All-Star Tony Gonsolin for assignment**\
+`The Los Angeles Dodgers designated 2022 All-Star Tony Gonsolin for assignment amidst a flurry of roster-clearing moves on Thursday, officially ending the tenure of one of the club’s draft and development success stories.`\
+https://nytimes.com/athletic/6785424/2025/11/06/dodgers-tony-gonsolin-designated-for-assignment/
+
 **Democrats Mull Shutdown Off-Ramps as Thune Prepares Spending Vote**\
 `The G.O.P. teed up a vote on a new spending package, but Democrats were insisting on a deal that would address expiring health care subsidies.`\
 https://nytimes.com/2025/11/06/us/politics/democrats-republicans-shutdown-votes.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6785392/2025/11/06/luke-fickell-wisconsin-coach-ret
 **Stanley Chesley, Class-Action Lawyer Called ‘Master of Disaster,’ Dies at 89**\
 `He won billions of dollars for plaintiffs in major suits against corporations but was disbarred for siphoning money from clients.`\
 https://nytimes.com/2025/11/06/us/stanley-chesley-dead.html
-
-**NFL, NFLPA providing resources to Cowboys after Kneeland tragedy**\
-`The NFL and NFLPA support players with a variety of crisis counseling services, including an independent and confidential hotline. `\
-https://nytimes.com/athletic/6785314/2025/11/06/marshawn-kneeland-grief-cowboys/
-
-**The Endlessly Adaptable Frankenstein**\
-`Few works have inspired more adaptations than Mary Shelley’s Gothic classic about a frenzied creator who builds a despairing being. Here’s a look at the many ways it has been repurposed onscreen.`\
-https://nytimes.com/interactive/2025/11/06/arts/frankenstein-adaptations.html
 
