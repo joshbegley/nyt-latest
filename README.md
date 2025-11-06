@@ -1,3 +1,7 @@
+**Miss Universe Organizer Apologizes After Tirade at Miss Mexico**\
+`Several contestants walked out of a Miss Universe event this week when the pageant director berated Miss Mexico for not taking part in promotional activities.`\
+https://nytimes.com/2025/11/06/world/asia/miss-universe-walkout-mexico-thailand.html
+
 **Can the ATP Tour's Spotify partnership take tennis fans inside its players' headphones?**\
 `The men's tennis tour wants to attract younger audiences, but its focus on in-house efforts sometimes comes at the price of fan content.`\
 https://nytimes.com/athletic/6780714/2025/11/06/tennis-fans-content-atp-tour-spotify/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/06/arts/television/late-night-election-day-democrats
 **Philippines Cleans Up After Typhoon Kalmaegi**\
 `Residents in the central Philippines returned to their mud-caked homes to clean up the aftermath of Typhoon Kalmaegi.`\
 https://nytimes.com/video/world/asia/100000010507476/philippines-typhoon-kalmaegi-aftermath.html
-
-**How to watch Eagles vs. Packers: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Eagles play the Green Bay Packers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6783007/2025/11/06/eagles-vs-packers-stream-how-to-watch-nov-10/
 
