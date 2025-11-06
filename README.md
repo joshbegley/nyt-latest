@@ -1,3 +1,7 @@
+**Design or Art? Both. At the ‘Salon’ Fair, 6 Ways to See Why.**\
+`The most thematically permissive fair in New York’s art schedule — where sofas compete with paintings and sculptures — brings up old questions about why we like objects.`\
+https://nytimes.com/2025/11/06/arts/design/salon-fair-park-avenue-armory.html
+
 **In unexpected twist, Padres choose Craig Stammen as next manager**\
 `Stammen is now the sixth full-time manager under GM A.J. Preller.`\
 https://nytimes.com/athletic/6784440/2025/11/06/padres-name-craig-stammen-manager/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/11/06/movies/sarahs-oil-review.html
 **Judge to Consider Moving Trump’s Hush-Money Conviction to Federal Court**\
 `A federal judge must now determine whether President Trump’s immunity for official acts means that his Manhattan criminal case belongs in federal court.`\
 https://nytimes.com/2025/11/06/nyregion/trump-conviction-appeal.html
-
-**NFL community reacts to death of Marshawn Kneeland**\
-`Reactions to the tragic death came pouring in on social media.`\
-https://nytimes.com/athletic/6784106/2025/11/06/marshawn-kneeland-death-nfl-community-reaction/
 

@@ -1,3 +1,20 @@
+**In unexpected twist, Padres choose Craig Stammen as next manager**\
+`Stammen is now the sixth full-time manager under GM A.J. Preller.`\
+https://nytimes.com/athletic/6784440/2025/11/06/padres-name-craig-stammen-manager/
+
+**NFL vibes-based predictions, a baseball heartbreaker and why did Tom Brady clone his dog?**\
+`Sports Gossip Show: Who will win the vibes war between the Patriots and Buccaneers (aka the Brady Bowl)?
+`\
+https://nytimes.com/athletic/6782239/2025/11/06/sports-gossip-show-tom-brady-baker-mayfield-drake-maye/
+
+**Sauce Gardner thrilled to be with Colts, not 'shocked' Jets traded him**\
+`Gardner goes from playing for the 1-7 Jets to the 7-2 Colts. `\
+https://nytimes.com/athletic/6783971/2025/11/06/sauce-gardner-trade-colts-jets-shocked/
+
+**WTA Tour Finals results: Aryna Sabalenka eliminates Coco Gauff after Jessica Pegula qualifies**\
+`One group has a straight shootout, while the other sees a three-way fight for two semifinal places.`\
+https://nytimes.com/athletic/6779714/2025/11/06/wta-tour-finals-results-round-robin-qualification-scenarios/
+
 **Don Mattingly leaving Blue Jays post as bench coach: Source**\
 `Mattingly's departure comes while one managerial vacancy remains in the majors and other staffs have yet to be finalized.`\
 https://nytimes.com/athletic/6784042/2025/11/06/don-mattingly-leaving-blue-jays/
