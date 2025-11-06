@@ -1,3 +1,11 @@
+**Tracking Tropical Storm Fung-wong**\
+`See the likely path and wind arrival times for Fung-wong`\
+https://nytimes.com/interactive/2025/weather/fung-wong-map-path-tracker.html
+
+**Cowboys DE Marshawn Kneeland died Thursday, team announces**\
+`Kneeland, 24, was in his second season with the team after being drafted in the second round of the 2024 NFL Draft.`\
+https://nytimes.com/athletic/6783787/2025/11/06/marshawn-kneeland-dead-cowboys/
+
 **Bishops With Ties to Trump Commission Criticize Treatment of Immigrants**\
 `The Roman Catholic prelates cited detainees’ lack of access to religious sacraments like communion.`\
 https://nytimes.com/2025/11/06/us/trump-bishops-communion.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6781384/2025/11/06/college-football-picks-against-t
 **Must-See Moments From the N.B.A.**\
 `The Oklahoma City Thunder dropped their first game, the Los Angeles Lakers won a Hollywood showdown, the New York Knicks remain undefeated at home, and more highlights from recent games.`\
 https://nytimes.com/video/sports/basketball/100000010507882/must-see-moments-from-the-nba.html
-
-**‘Florentine Diamond’ Letter of Authenticity**\
-`The document is signed by Christoph Köchert, whose family long served as jewelers to the imperial court.`\
-https://nytimes.com/interactive/2025/11/06/arts/design/06cul-florentine-diamond-doc.html
-
-**Champions League projections: Arsenal increase their grip as Bayern become second favourites**\
-`The Athletic analyses the state of play in Europe's premier club competition following the conclusion of the fourth round of fixtures`\
-https://nytimes.com/athletic/6783427/2025/11/06/champions-league-projections-md4/
 

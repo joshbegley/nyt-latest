@@ -1,3 +1,11 @@
+**Bishops With Ties to Trump Commission Criticize Treatment of Immigrants**\
+`The Roman Catholic prelates cited detainees’ lack of access to religious sacraments like communion.`\
+https://nytimes.com/2025/11/06/us/trump-bishops-communion.html
+
+**Cade Cunningham, Pistons turning the corner toward 'not being losers'**\
+`"We're just starting to get our feet wet as far as learning winning basketball," Cunningham said of the 6-2 Pistons.`\
+https://nytimes.com/athletic/6783017/2025/11/06/cade-cunningham-pistons-jazz-nba/
+
 **Rico Dowdle fined for ‘Key & Peele’ celebration, starts charity GoFundMe**\
 `As of Thursday morning, more than $14,700 has been raised for the Children's Home Society of North Carolina.`\
 https://nytimes.com/athletic/6783496/2025/11/06/rico-dowdle-key-peele-gofundme/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/11/06/arts/design/06cul-florentine-diamond-
 **Champions League projections: Arsenal increase their grip as Bayern become second favourites**\
 `The Athletic analyses the state of play in Europe's premier club competition following the conclusion of the fourth round of fixtures`\
 https://nytimes.com/athletic/6783427/2025/11/06/champions-league-projections-md4/
-
-**Blue Jackets fall behind early, then lose Sean Monahan to injury in Calgary**\
-`If Monahan misses significant time, it could be devastating for a Blue Jackets club that is trying to end a five-year playoff drought.`\
-https://nytimes.com/athletic/6783323/2025/11/06/blue-jackets-loss-sean-monahan-injury-flames/
-
-**Mark Zuckerberg and Priscilla Chan Restructure Their Philanthropy**\
-`The Chan Zuckerberg Initiative said its restructured organization, Biohub, would lead its focus on artificial intelligence and scientific research.`\
-https://nytimes.com/2025/11/06/technology/zuckerberg-chan-initiative-biohub.html
 

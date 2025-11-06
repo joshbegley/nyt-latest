@@ -1,3 +1,11 @@
+**Bishops With Ties to Trump Commission Criticize Treatment of Immigrants**\
+`The Roman Catholic prelates cited detainees’ lack of access to religious sacraments like communion.`\
+https://nytimes.com/2025/11/06/us/trump-bishops-communion.html
+
+**Cade Cunningham, Pistons turning the corner toward 'not being losers'**\
+`"We're just starting to get our feet wet as far as learning winning basketball," Cunningham said of the 6-2 Pistons.`\
+https://nytimes.com/athletic/6783017/2025/11/06/cade-cunningham-pistons-jazz-nba/
+
 **Rico Dowdle fined for ‘Key & Peele’ celebration, starts charity GoFundMe**\
 `As of Thursday morning, more than $14,700 has been raised for the Children's Home Society of North Carolina.`\
 https://nytimes.com/athletic/6783496/2025/11/06/rico-dowdle-key-peele-gofundme/
