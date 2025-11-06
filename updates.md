@@ -1,3 +1,11 @@
+**What a Rough Day in Court Means for Trump’s Tariffs**\
+`Businesses and investors are bracing for uncertainty after Supreme Court justices questioned the legality of a core part of the president’s trade policy.`\
+https://nytimes.com/2025/11/06/business/dealbook/supreme-court-trump-tariff.html
+
+**Key fantasy football questions for Week 10: Committee concerns for Bears, Rams?**\
+`Dalton Del Don looks at the key fantasy football topics for Week 10, including developing backfield timeshares in Chicago and Los Angeles.`\
+https://nytimes.com/athletic/6782483/2025/11/06/key-fantasy-football-questions-week-10/
+
 **How to watch women's UCSB vs. UCLA basketball: Time, TV, streaming**\
 `Find out how to watch the UCSB Gauchos play the UCLA Bruins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6783483/2025/11/06/ucsb-vs-ucla-stream-how-to-watch-nov-6/
