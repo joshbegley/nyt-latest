@@ -1,3 +1,7 @@
+**A Chinese E.V. Delivers the Host, and a Message, at the Global Climate Summit**\
+`The climate-friendly ride, part of a fleet assembled to shuttle delegations to the gathering in Brazil, sent a clear signal: China is making inroads in Latin America.`\
+https://nytimes.com/2025/11/06/climate/lula-cop30-byd-electric-vehicle.html
+
 **Barton claims trial for social media posts is 'highly political' and attack on free speech**\
 `The ex midfielder expressed remorse but later claimed allegedly offensive posts amounted to a 'spat between celebrities online'`\
 https://nytimes.com/athletic/6784281/2025/11/06/joey-barton-trial-posts-political/

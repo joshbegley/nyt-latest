@@ -1,3 +1,7 @@
+**A Chinese E.V. Delivers the Host, and a Message, at the Global Climate Summit**\
+`The climate-friendly ride, part of a fleet assembled to shuttle delegations to the gathering in Brazil, sent a clear signal: China is making inroads in Latin America.`\
+https://nytimes.com/2025/11/06/climate/lula-cop30-byd-electric-vehicle.html
+
 **Barton claims trial for social media posts is 'highly political' and attack on free speech**\
 `The ex midfielder expressed remorse but later claimed allegedly offensive posts amounted to a 'spat between celebrities online'`\
 https://nytimes.com/athletic/6784281/2025/11/06/joey-barton-trial-posts-political/
@@ -29,12 +33,4 @@ https://nytimes.com/2025/11/06/climate/trump-climate-international-bullying.html
 **Braves decline options on 2 of their top relievers in 2025: Source**\
 `Tyler Kinley's option was for $5.5 million. Atlanta also declined Pierce Johnson's $7 million option and David Fletcher's $8 million option.`\
 https://nytimes.com/athletic/6784724/2025/11/06/braves-tyler-kinley-piere-johnson-options-declined/
-
-**Retail Group Predicts Holiday Spending Could Top $1 Trillion**\
-`Despite shoppers’ concerns about rising costs, inflation and the government shutdown, retailers predict sales will increase as much as 4.2% over the holidays.`\
-https://nytimes.com/2025/11/06/business/holiday-consumer-spending-2025.html
-
-**Paramilitary Accepts Sudan Truce Plan, but the Military Has Not**\
-`The R.S.F. paramilitary group, facing growing condemnation for atrocities in Darfur, said it had agreed to a cease-fire proposal, but it is not yet clear what the military will do.`\
-https://nytimes.com/2025/11/06/world/africa/sudan-rsf-truce.html
 
