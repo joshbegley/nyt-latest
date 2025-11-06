@@ -1,3 +1,11 @@
+**Cooper Flagg adjusting to Mavericks' struggles amid 2-6 start to NBA career**\
+`The Dallas Mavericks, with Flagg in the middle of things, are losing a lot of games. The culprit? Their offense.`\
+https://nytimes.com/athletic/6782813/2025/11/06/cooper-flagg-mavericks-offense-jason-kidd-nba/
+
+**Lawmakers Seek Investigation of Judges Who Criticized Supreme Court**\
+`The Republican leaders of the Senate and House Judiciary Committees told Chief Justice John G. Roberts Jr. that anonymous judges who responded to a Times questionnaire may have violated ethics rules.`\
+https://nytimes.com/2025/11/06/us/politics/supreme-court-grassley-jordan-investigation.html
+
 **Explosion in the Bronx Injures 7 Firefighters**\
 `A garbage fire appeared to have spread to vehicles on a street and caused a fireball. The firefighters were expected to recover.`\
 https://nytimes.com/2025/11/06/nyregion/bronx-explosion-fire-firefighters.html
