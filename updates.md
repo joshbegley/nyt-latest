@@ -1,3 +1,7 @@
+**How two British women made history rowing the Pacific Ocean**\
+`It took Jess Rowe and Miriam Payne six months, plenty of snacks and sleepless nights to row from Peru to Australia`\
+https://nytimes.com/athletic/6775109/2025/11/06/british-rowers-pacific-ocean-jess-rowe-miriam-payne/
+
 **Phil Foden and Erling Haaland are reimagining the traditional front two**\
 `In the past, Phil Foden and Erling Haaland have looked to be on different wavelengths but the duo are now complementing each other`\
 https://nytimes.com/athletic/6781777/2025/11/06/phil-foden-erling-haaland-man-city-borussia-dortmund/
