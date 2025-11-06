@@ -1,3 +1,19 @@
+**The New York Times in Print for Thursday, Nov. 6, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/06/todays-new-york-times
+
+**How Australia's Ashes rookie was schooled at an English village team**\
+`Australia's rookie opening batsman was playing amateur cricket two years ago, but is now ready to shine on cricket's biggest stage`\
+https://nytimes.com/athletic/6780841/2025/11/06/jake-weatherald-australia-ashes-great-witchingham/
+
+**Sudan Is in Free Fall**\
+`The slaughter in Darfur could potentially be stopped, if those with leverage chose to act.`\
+https://nytimes.com/2025/11/06/opinion/sudan-darfur-el-fasher-uae.html
+
+**The Indispensable Erdogan**\
+`Western capitals should be wary of treating democracy in Turkey as a luxury rather than a necessity.`\
+https://nytimes.com/2025/11/06/opinion/erdogan-turkey-president-power.html
+
 **Cooper Flagg adjusting to Mavericks' struggles amid 2-6 start to NBA career**\
 `The Dallas Mavericks, with Flagg in the middle of things, are losing a lot of games. The culprit? Their offense.`\
 https://nytimes.com/athletic/6782813/2025/11/06/cooper-flagg-mavericks-offense-jason-kidd-nba/
