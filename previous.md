@@ -1,3 +1,7 @@
+**Is Fashion Done With Inclusivity, Instagram and Kardashians?**\
+`Olivier Rousteing’s departure from Balmain suggests the answer may be yes.`\
+https://nytimes.com/2025/11/06/style/olivier-rousteing-balmain.html
+
 **What a Rough Day in Court Means for Trump’s Tariffs**\
 `Businesses and investors are bracing for uncertainty after Supreme Court justices questioned the legality of a core part of the president’s trade policy.`\
 https://nytimes.com/2025/11/06/business/dealbook/supreme-court-trump-tariff.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6782570/2025/11/06/emari-demercado-arizona-cardinal
 **The Rockets knew what they did best. So they decided to 'triple-down' on it**\
 `Houston led the NBA in offensive rebounding last season, then went out and added even more size to dominate the glass. It's working so far.`\
 https://nytimes.com/athletic/6783105/2025/11/06/rockets-offensive-rebounding-nba/
-
-**McLaren willing to risk losing F1 drivers’ title over ‘playing favorites’ between Norris and Piastri**\
-`Norris currently leads the world championship by one point from Piastri with four rounds remaining, with Max Verstappen 36 points behind.`\
-https://nytimes.com/athletic/6783345/2025/11/06/mclaren-drivers-title-norris-piastri-f1/
 

@@ -1,3 +1,7 @@
+**Is Fashion Done With Inclusivity, Instagram and Kardashians?**\
+`Olivier Rousteing’s departure from Balmain suggests the answer may be yes.`\
+https://nytimes.com/2025/11/06/style/olivier-rousteing-balmain.html
+
 **What a Rough Day in Court Means for Trump’s Tariffs**\
 `Businesses and investors are bracing for uncertainty after Supreme Court justices questioned the legality of a core part of the president’s trade policy.`\
 https://nytimes.com/2025/11/06/business/dealbook/supreme-court-trump-tariff.html
