@@ -1,3 +1,7 @@
+**Leeds and the struggle for away goals - how much of an issue is it?**\
+`Elland Road will be their crutch and may keep them up, but they can’t keep expecting their defence to bail them out away from home`\
+https://nytimes.com/athletic/6781097/2025/11/06/leeds-united-away-goal-problems/
+
 **Former Grizzlies star Tony Allen arrested on drug possession charges**\
 `The Grizzlies retired Allen's No. 9 jersey in March.`\
 https://nytimes.com/athletic/6782669/2025/11/06/tony-allen-arrested-drug-possession-former-memphis-grizzlies-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6776404/2025/11/06/manchester-united-possesion-prem
 **Why more teams should leave players upfield when defending set pieces**\
 `High-quality takers and aerial threats do the heavy lifting going forward. It’s time sides were braver in opponents' dead-ball situations`\
 https://nytimes.com/athletic/6775053/2025/11/06/premier-league-set-pieces-leaving-players-up/
-
-**Dominik Szoboszlai: Future Liverpool captain?**\
-`The Hungarian has been Arne Slot's most reliable player this season and is ready to embrace more responsbility`\
-https://nytimes.com/athletic/6778392/2025/11/06/dominik-szoboszlai-liverpool-captain/
 
