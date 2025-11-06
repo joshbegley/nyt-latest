@@ -1,3 +1,11 @@
+**Wolves make approach for Middlesbrough head coach Edwards**\
+`Edwards took over at Middlesbrough in June, with the Teeside club third in the Championship after 14 games.`\
+https://nytimes.com/athletic/6783950/2025/11/06/wolves-rob-edwards-middlesbrough-head-coach/
+
+**Jesse Marsch looks for answers to lingering questions with latest Canada roster**\
+`Owen Goodman and Alfie Jones will be hoping to impress in games against Ecuador and Venezuela, while Marcelo Flores joins as a guest`\
+https://nytimes.com/athletic/6781861/2025/11/06/canada-roster-announcement-marcelo-flores/
+
 **The Bounce: Which teams' hot starts are for real? Plus, a hilarious Cooper Flagg dunk**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6784082/2025/11/06/bulls-spurs-76ers-cooper-flagg-nba-the-bounce/

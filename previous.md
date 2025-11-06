@@ -1,3 +1,7 @@
+**Wolves make approach for Middlesbrough head coach Edwards**\
+`Edwards took over at Middlesbrough in June, with the Teeside club third in the Championship after 14 games.`\
+https://nytimes.com/athletic/6783950/2025/11/06/wolves-rob-edwards-middlesbrough-head-coach/
+
 **The Bounce: Which teams' hot starts are for real? Plus, a hilarious Cooper Flagg dunk**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6784082/2025/11/06/bulls-spurs-76ers-cooper-flagg-nba-the-bounce/
@@ -27,14 +31,10 @@ https://nytimes.com/athletic/6783809/2025/11/06/usmnt-november-roster-gio-reyna-
 https://nytimes.com/2025/11/06/style/judy-garland-lucky-jacket-carnegie-hall.html
 
 **Jesse Marsch looks for answers to lingering questions with latest Canada roster**\
-`Owen Goodman, Alfie Jones and Marcelo Flores will be hoping to impress in games against Ecuador and Venezuela.`\
+`Owen Goodman and Alfie Jones will be hoping to impress in games against Ecuador and Venezuela, while Marcelo Flores joins as a guest`\
 https://nytimes.com/athletic/6781861/2025/11/06/canada-roster-announcement-marcelo-flores/
 
 **Just Boil, Stir and Eat**\
 `Eric Kim’s peanut butter noodles: six ingredients, 20 minutes, no chopping and no stress.`\
 https://nytimes.com/2025/11/06/dining/just-boil-stir-and-eat.html
-
-**English National League game to be streamed live on TikTok in global first**\
-`The fixture between arguably the two biggest teams outside the EFL will be streamed live, free of charge, on DAZN's TikTok channel.`\
-https://nytimes.com/athletic/6783979/2025/11/06/dazn-live-stream-tiktok-national-league-football/
 
