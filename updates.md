@@ -1,3 +1,7 @@
+**Stumbling Blocks**\
+`Sam Brody gets us all mixed up.`\
+https://nytimes.com/2025/11/05/crosswords/daily-puzzle-11-06-2025.html
+
 **Knicks logo altered for second time during New York's mayoral election**\
 `It's the second time during the New York City mayoral race that the Knicks logo has been appropriated without permission`\
 https://nytimes.com/athletic/6782383/2025/11/05/white-house-knicks-trump-mamdani/
