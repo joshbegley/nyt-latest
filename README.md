@@ -1,3 +1,7 @@
+**Boiler Tower at Power Plant in South Korea Collapses, Trapping Workers**\
+`The structure was being demolished when it collapsed. Two people were rescued, one was found in the rubble and six more were believed to still be buried.`\
+https://nytimes.com/2025/11/06/world/asia/korea-boiler-tower-collapse.html
+
 **Luka Dončić keys Lakers' rotating lineup in win over Victor Wembanyama and the Spurs**\
 `The lineups keep changing but the results stay the same for the Lakers, who snuck past San Antonio for their fifth straight win.`\
 https://nytimes.com/athletic/6782973/2025/11/06/luka-doncic-victor-wembanyama-lakers-spurs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6783007/2025/11/06/eagles-vs-packers-stream-how-to-
 **How two British women made history rowing the Pacific Ocean**\
 `It took Jess Rowe and Miriam Payne six months, plenty of snacks and sleepless nights to row from Peru to Australia`\
 https://nytimes.com/athletic/6775109/2025/11/06/british-rowers-pacific-ocean-jess-rowe-miriam-payne/
-
-**Word of the Day: invigorate**\
-`This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/11/06/learning/word-of-the-day-invigorate.html
 
