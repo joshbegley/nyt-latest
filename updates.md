@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: Officials to List Where Flights Will Be Cut Amid Shutdown**\
+``\
+https://nytimes.com/live/2025/11/06/us/trump-news-shutdown
+
+**Can Nebraska rally around TJ Lateef after Dylan Raiola's injury?**\
+`A year after reshaping Nebraska's offense, Dana Holgorsen will guide Lateef into his first start — under bright California lights.`\
+https://nytimes.com/athletic/6781557/2025/11/06/nebraska-huskers-tj-lateef-dylan-raiola-injury/
+
+**An American Conductor Comes Home to Lead the Houston Grand Opera**\
+`After more than a decade in Europe, James Gaffigan is returning to the United States to take over one of the nation’s highest-profile opera houses.`\
+https://nytimes.com/2025/11/06/arts/music/james-gaffigan-houston-grand-opera.html
+
 **Egypt’s Grand Museum Is Finally Open. Now, ‘We Need Our Stuff Back.’**\
 `The museum’s most anticipated exhibit is the full 5,500 items from King Tutankhamen’s tomb. Egyptians say it’s time to experience their most precious antiquities at home.`\
 https://nytimes.com/2025/11/06/arts/design/grand-egyptian-museum-opening.html
