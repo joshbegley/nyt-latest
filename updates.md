@@ -1,3 +1,19 @@
+**How to watch women's Elon vs. North Carolina basketball: Time, TV, streaming**\
+`Find out how to watch the Elon Phoenix play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6784181/2025/11/06/elon-vs-north-carolina-stream-how-to-watch-nov-6/
+
+**How to watch women's Monmouth vs. Kentucky basketball: Time, TV, streaming**\
+`Find out how to watch the Monmouth Hawks play the Kentucky Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6784179/2025/11/06/monmouth-vs-kentucky-stream-how-to-watch-nov-6/
+
+**How to watch Jackson State vs. Louisville: Time, TV, streaming**\
+`Find out how to watch the Jackson State Tigers play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6784177/2025/11/06/jackson-state-vs-louisville-stream-how-to-watch-nov-6/
+
+**How to watch women's N.C. A&T vs. TCU basketball: Time, TV, streaming**\
+`Find out how to watch the North Carolina A&T Aggies play the TCU Horned Frogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6784174/2025/11/06/n-c-a-t-vs-tcu-stream-how-to-watch-nov-6/
+
 **USMNT roster shock: Reyna recalled, McKennie among many regulars omitted**\
 `Gio Reyna makes an unexpected comeback to the USMNT, while a number of key regulars are sitting this camp out`\
 https://nytimes.com/athletic/6783809/2025/11/06/usmnt-november-roster-gio-reyna-mckennie-pulisic/
