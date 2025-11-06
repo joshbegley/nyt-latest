@@ -1,3 +1,19 @@
+**'We're dealing with it': Rookies are easing Hurricanes' pain on the blue line**\
+`Alexander Nikishin and three other blueliners have been forced into bigger roles — but it's working.`\
+https://nytimes.com/athletic/6782612/2025/11/06/carolina-hurricanes-injuries-defense-rookies/
+
+**Atlanta United confirms return of Tata Martino to the club as head coach**\
+`The 62-year-old led Atlanta to the 2018 MLS Cup title and last coached Inter Miami, winning the Supporters' Shield in 2024.`\
+https://nytimes.com/athletic/6783918/2025/11/06/atlanta-united-tata-martino-return-mls/
+
+**Johnny Heitinga sacked by Ajax**\
+`Heitinga leaves Ajax fourth in Eredivisie and bottom of the Champions League league phase standings.`\
+https://nytimes.com/athletic/6740990/2025/11/06/johnny-heitinga-ajax-sacked/
+
+**'Bend it like Burn': Analysing Dan Burn's wonder-header with Les Ferdinand**\
+`The giant Geordie defender scored a 'unique' headed goal against Athletic Club. One of the finest exponents of the craft breaks it down`\
+https://nytimes.com/athletic/6783312/2025/11/06/newcastle-burn-wonder-header-ferdinand/
+
 **Atlanta United confirm return of Tata Martino to the club as head coach**\
 `The 62-year-old led Atlanta to the 2018 MLS Cup title and last coached Inter Miami, winning the Supporters' Shield in 2024.`\
 https://nytimes.com/athletic/6783918/2025/11/06/atlanta-united-tata-martino-return-mls/
