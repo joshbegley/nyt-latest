@@ -1,3 +1,7 @@
+**Dodgers pick up Alex Vesia's $3.65 million club option for 2026: Source**\
+`Vesia has established himself as one of the most consistent relievers in baseball since joining the Dodgers in 2021.`\
+https://nytimes.com/athletic/6777744/2025/11/06/dodgers-alex-vesia-option-contract/
+
 **Blues to make Jordan Kyrou a healthy scratch against Sabres**\
 `Kyrou is in the third year of an eight-year, $65 million contract. He has eight points and a minus-8 rating in 14 games this season.`\
 https://nytimes.com/athletic/6784941/2025/11/06/blues-jordan-kyrou-healthy-scratch/
