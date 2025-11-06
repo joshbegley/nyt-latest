@@ -1,3 +1,31 @@
+**Russia Close to Its Biggest Capture of a Ukrainian City Since 2023**\
+`The Kremlin is focusing its fire on Pokrovsk, a gateway to the Donetsk region, which Russia’s president, Vladimir V. Putin, has long coveted.`\
+https://nytimes.com/2025/11/06/world/europe/ukraine-war-pokrovsk-frontline.html
+
+**Top 50 MLB Free Agent Big Board: Tucker, Bichette lead a 2025-26 class defined by depth**\
+`Analysis, best fits, and contract projections for a free agent class that features Kyle Schwarber, Framber Valdez and other impact players.`\
+https://nytimes.com/athletic/6778310/2025/11/06/mlb-top-50-free-agents-2025-2026-kyle-tucker/
+
+**The teachers, and the tragedy, that made Liam Coen**\
+`Coen's idyllic New England upbringing was interrupted by a mother's illness. He was defined by what he chose to do next.`\
+https://nytimes.com/athletic/6780341/2025/11/06/jaguars-head-coach-liam-coen-family-mom-death/
+
+**Sizing up the Jets’ roster and future the day after two franchise-altering trades**\
+`Flush with cap space and draft capital, how should the Jets spend it?`\
+https://nytimes.com/athletic/6782222/2025/11/06/new-york-jets-roster-needs-after-trade-deadline/
+
+**NFL Week 10 staff picks: The category is ... dance or die**\
+`Seven of eight divisions are toss-ups at the midway point. Who gets their stake deeper in the ground this week?`\
+https://nytimes.com/athletic/6778440/2025/11/06/nfl-week-10-staff-picks-predictions-eagles-packers/
+
+**MLB free agency starts today — What are the big questions that will define this hot stove season?**\
+`How good is this free-agent class? Who might take longer to sign? Who are the unfamiliar names that can alter the market?`\
+https://nytimes.com/athletic/6781638/2025/11/06/mlb-free-agency-primer-names-dates-teams/
+
+**The New York Times International Edition in Print for Friday, Nov. 7, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/11/06/todays-new-york-times-international-edition
+
 **'I wouldn't swap Welbeck for any player in the world' - Hurzeler**\
 `The 35-year-old striker's form has seen calls for him to be named in the England squad for the first time in seven years.`\
 https://nytimes.com/athletic/6783163/2025/11/06/welbeck-news-brighton-hurzeler/
@@ -9,32 +37,4 @@ https://nytimes.com/video/podcasts/100000010499419/when-did-music-critics-get-so
 **Democrats Won Big Because They Won Over Trump Supporters**\
 `It wasn’t just about superior turnout. Party switchers played a significant role in Virginia and New Jersey.`\
 https://nytimes.com/2025/11/06/upshot/election-turnout-trump-hispanics.html
-
-**‘Toy Story’: The Ultimate 30th Anniversary Quiz**\
-`Three decades, four films, two theme park lands, and $3.3 billion in worldwide box office revenue later, the franchise has become a staple of family movie nights. How well do you know your Star Command and Pizza Planet?`\
-https://nytimes.com/interactive/2025/11/06/movies/09cul-toystory-quiz.html
-
-**A Skeptical Supreme Court Puts Trump’s Economic Agenda in Question**\
-`President Trump has used his sweeping global tariffs as an economic tool and a political cudgel. A decision invalidating them could hamper his power.`\
-https://nytimes.com/2025/11/06/us/politics/supreme-court-trump-tariffs.html
-
-**Rock Star Glamour and Centrist Pragmatism: Democrats Had It All**\
-`The constructive, if messy, path forward is for the party to embrace an all-of-the-above approach.`\
-https://nytimes.com/2025/11/06/opinion/democrats-mamdani-sherrill-spanberger.html
-
-**With Perseverance and a Down Payment Grant, a First-Time Buyer Found Her New York City Spot**\
-`Unsure how she could afford her own apartment in the city, a young renter scoured government programs and found one that worked for her. Here’s where she landed.`\
-https://nytimes.com/interactive/2025/11/06/realestate/brooklyn-manhattan-apartments-hdfc-coop.html
-
-**As Mamdani Surges Ahead, Schumer Risks Finding Himself Left Behind**\
-`The rise of New York City’s mayor-elect comes at a complicated moment in the career of Senator Chuck Schumer, who is in danger of looking out of touch with the prevailing energy back home.`\
-https://nytimes.com/2025/11/06/nyregion/schumer-mamdani-democrats-new-york.html
-
-**Trump Is Always Teaching Us About the Constitution**\
-`Where is the line between authority and authoritarianism?`\
-https://nytimes.com/2025/11/06/opinion/supreme-court-tariffs-venezuela-national-guard.html
-
-**Homes for Sale in New York and New Jersey**\
-`This week’s properties are a 1790 farmhouse in Ossining and a brick house in Trenton.`\
-https://nytimes.com/2025/11/06/realestate/housing-market-near-nyc.html
 
