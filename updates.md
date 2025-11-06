@@ -1,3 +1,15 @@
+**The NBA is figuring out how to guard Victor Wembanyama. How will he respond?**\
+`Wembanyama looked untouchable early this season, but reality has hit the Spurs. Now what?`\
+https://nytimes.com/athletic/6783113/2025/11/06/victor-wembanyama-defenses-spurs-game-plan/
+
+**Phillies offseason primer: Kyle Schwarber, J.T. Realmuto and a wide-open winter**\
+`Any conversation about the Phillies’ offseason plans must begin with their top three free agents. But there is plenty more to discuss. `\
+https://nytimes.com/athletic/6781336/2025/11/06/phillies-offseason-schwarber-realmuto-free-agency/
+
+**Four Yankees offseason priorities, from Cody Bellinger to pitching to ... Pete Alonso?**\
+`How can the Yankees improve their roster this winter? As free agency gets underway, here are four of their top offseason priorities.`\
+https://nytimes.com/athletic/6775324/2025/11/06/yankees-offseason-trades-signings-pete-alonso/
+
 **Witness Captures Bronx Fire on Video**\
 `A video of a blaze in the Bronx filmed by a witness showed an intense fire spreading and what appeared to be a fireball explosion. The cause was under investigation.`\
 https://nytimes.com/video/us/100000010507594/bronx-trash-fire-firefighters.html

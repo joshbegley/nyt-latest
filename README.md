@@ -1,3 +1,11 @@
+**Doc Rivers has leaned into all-bench lineups for the Bucks. But why?**\
+`Two weeks into the season, no team has played more all-bench units than Milwaukee. And it's not going well.`\
+https://nytimes.com/athletic/6778533/2025/11/06/bucks-doc-rivers-bench-lineup-nba/
+
+**A Fight Over Maps**\
+`We explain a California vote to flip as many as five House seats for Democrats next year.`\
+https://nytimes.com/2025/11/06/briefing/a-fight-over-maps.html
+
 **The NBA is figuring out how to guard Victor Wembanyama. How will he respond?**\
 `Wembanyama looked untouchable early this season, but reality has hit the Spurs. Now what?`\
 https://nytimes.com/athletic/6783113/2025/11/06/victor-wembanyama-defenses-spurs-game-plan/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6777302/2025/11/06/college-football-predictions-wee
 **Inside Ivan Demidov’s hockey brain and how it's helped him excel as an NHL rookie**\
 `Ivan Demidov is one of the most electrifying rookies in the NHL, and two plays he made in his last two games exemplify why.`\
 https://nytimes.com/athletic/6782747/2025/11/06/canadiens-ivan-demidov-hockey-brain/
-
-**Court Vision: What can these freshmen do to top their opening statements?**\
-`Based on the early returns, it's worth wondering if this will be the best freshman class in college basketball history. `\
-https://nytimes.com/athletic/6781807/2025/11/06/college-basketball-freshman-koa-peat/
-
-**This Week in Sports Trivia: November 6, 2025**\
-`How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
-https://nytimes.com/athletic/6780827/2025/11/06/this-week-in-sports-trivia-november-6-2025/
 
