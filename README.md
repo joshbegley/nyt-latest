@@ -1,3 +1,11 @@
+**Manchester United, depression, and being 'far from finished': Takeaways from Mary Earps' book**\
+`Earps' new autobiography, All In: Football, Life and Learning to be Unapologetically Me, is published Thursday`\
+https://nytimes.com/athletic/6768979/2025/11/05/mary-earps-book-takeaways-hampton-england/
+
+**Switzerland, struggling with higher tariffs, is seeking a new U.S. deal.**\
+`By Liz Alderman`\
+https://nytimes.com/live/2025/11/05/us/trump-shutdown-news/trump-tariffs-switzerland-trade-deal
+
 **Martinez to leave Earthquakes, eligible for MLS free agency**\
 `The 32-year-old Venezuela international forward was San Jose’s leading goal scorer this season with 14 goals in league play.`\
 https://nytimes.com/athletic/6782037/2025/11/05/josef-martinez-san-jose-earthquakes-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/05/nyregion/mikie-sherrill-new-jersey-mandate.html
 **Anthony Edwards returns to lineup after 4-game absence with hamstring injury**\
 `The Timberwolves went 2-2 without their star, who has been one of the most durable players in the NBA over the past few seasons.`\
 https://nytimes.com/athletic/6778486/2025/11/05/anthony-edwards-injury-status-timberwolves-knicks/
-
-**Read the Judge’s Order**\
-`Judge Robert W. Gettleman imposed restrictions on an immigration facility in Broadview, Ill., which has been a center of protests.`\
-https://nytimes.com/interactive/2025/11/05/us/trobroadview.html
-
-**Why the Phillies are bringing back José Alvarado by exercising $9 million club option**\
-`The decision reflects the club's confidence that Alvarado can return to form after a season interrupted by an 80-game PED suspension. `\
-https://nytimes.com/athletic/6763938/2025/11/05/phillies-jose-alvarado-contract-option/
 
