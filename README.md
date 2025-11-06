@@ -1,3 +1,11 @@
+**Sunderland. Arsenal. Xhaka. 'It was the worst day of my life. It was the best day of my life'**\
+`The Sunderland captain talks leadership, Arteta, Arsenal, the day he was booed off at the Emirates and his new side's aspirations`\
+https://nytimes.com/athletic/6776323/2025/11/06/xhaka-sunderland-arsenal-exclusive/
+
+**Late Night Celebrates a Consequential Election Day**\
+`“We needed a big night,” Jimmy Kimmel said. “Democrats have had fewer wins this year than the Jets.”`\
+https://nytimes.com/2025/11/06/arts/television/late-night-election-day-democrats.html
+
 **Philippines Cleans Up After Typhoon Kalmaegi**\
 `Residents in the central Philippines returned to their mud-caked homes to clean up the aftermath of Typhoon Kalmaegi.`\
 https://nytimes.com/video/world/asia/100000010507476/philippines-typhoon-kalmaegi-aftermath.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6782898/2025/11/06/thunder-trail-blazers-nba/
 **The New York Times in Print for Thursday, Nov. 6, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/06/todays-new-york-times
-
-**How Australia's Ashes rookie was schooled at an English village team**\
-`Australia's rookie opening batsman was playing amateur cricket two years ago, but is now ready to shine on cricket's biggest stage`\
-https://nytimes.com/athletic/6780841/2025/11/06/jake-weatherald-australia-ashes-great-witchingham/
-
-**Sudan Is in Free Fall**\
-`The slaughter in Darfur could potentially be stopped, if those with leverage chose to act.`\
-https://nytimes.com/2025/11/06/opinion/sudan-darfur-el-fasher-uae.html
 
