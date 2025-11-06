@@ -1,3 +1,7 @@
+**Dallas Cowboys Player Marshawn Kneeland Dies at 24**\
+`The police said the cause of death appeared to be a self-inflicted gunshot wound.`\
+https://nytimes.com/2025/11/06/us/marshawn-kneeland-suicide-cowboys.html
+
 **Paul Ignatius, 104, Navy Secretary and Vietnam-Era Defense Official, Dies**\
 `He oversaw supplies for the war effort under Lyndon B. Johnson and later had a brief, rocky tenure as president of The Washington Post during the Pentagon Papers case.`\
 https://nytimes.com/2025/11/06/us/politics/paul-ignatius-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6784104/2025/11/06/pwhl-women-hockey-names-logos-ra
 **Investigators Sift Through Plane Crash Wreckage in Louisville**\
 `A departing UPS cargo plane caught fire and dropped an engine crashing in an industrial zone. At least 12 people were killed.`\
 https://nytimes.com/2025/11/06/us/ups-plane-crash-louisville-wreckage-investigation.html
-
-**Challenging Trump, Pelosi Made History**\
-`The first and only woman to be speaker of the House also was the most powerful and prominent woman in Washington to effectively confront President Trump.`\
-https://nytimes.com/2025/11/06/us/politics/trump-pelosi-relationship.html
 

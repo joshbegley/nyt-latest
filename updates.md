@@ -1,3 +1,7 @@
+**Dallas Cowboys Player Marshawn Kneeland Dies at 24**\
+`The police said the cause of death appeared to be a self-inflicted gunshot wound.`\
+https://nytimes.com/2025/11/06/us/marshawn-kneeland-suicide-cowboys.html
+
 **Paul Ignatius, 104, Navy Secretary and Vietnam-Era Defense Official, Dies**\
 `He oversaw supplies for the war effort under Lyndon B. Johnson and later had a brief, rocky tenure as president of The Washington Post during the Pentagon Papers case.`\
 https://nytimes.com/2025/11/06/us/politics/paul-ignatius-dead.html
