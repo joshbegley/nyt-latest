@@ -1,3 +1,7 @@
+**Philippines Cleans Up After Typhoon Kalmaegi**\
+`Residents in the central Philippines returned to their mud-caked homes to clean up the aftermath of Typhoon Kalmaegi.`\
+https://nytimes.com/video/world/asia/100000010507476/philippines-typhoon-kalmaegi-aftermath.html
+
 **How two British women made history rowing the Pacific Ocean**\
 `It took Jess Rowe and Miriam Payne six months, plenty of snacks and sleepless nights to row from Peru to Australia`\
 https://nytimes.com/athletic/6775109/2025/11/06/british-rowers-pacific-ocean-jess-rowe-miriam-payne/
