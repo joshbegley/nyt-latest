@@ -1,11 +1,3 @@
-**Nets snap 7-game slide, earn first win of season against Pacers**\
-`Brooklyn won despite losing leading scorer Cam Thomas to a hamstring injury two minutes into the game.`\
-https://nytimes.com/athletic/6782497/2025/11/05/brooklyn-nets-win-jordi-fernandez-nba/
-
-**Stumbling Blocks**\
-`Sam Brody gets us all mixed up.`\
-https://nytimes.com/2025/11/05/crosswords/daily-puzzle-11-06-2025.html
-
 **Knicks logo altered for second time during New York's mayoral election**\
 `It's the second time during the New York City mayoral race that the Knicks logo has been appropriated without permission`\
 https://nytimes.com/athletic/6782383/2025/11/05/white-house-knicks-trump-mamdani/
@@ -37,4 +29,12 @@ https://nytimes.com/2025/11/05/us/politics/trump-drug-boat-strikes-democrats.htm
 **Bruce Bochy hangs up his uniform, poised for advisory role with Giants**\
 `Bochy, who won three of his four World Series titles managing the Giants, will be back in San Francisco, where he managed for 13 seasons.`\
 https://nytimes.com/athletic/6782066/2025/11/05/bruce-bochy-giants-special-assistant/
+
+**They Fell in Love With A.I. Chatbots — and Found Something Real**\
+`Three people on the joys and anxieties of A.I. romances.`\
+https://nytimes.com/interactive/2025/11/05/magazine/ai-chatbot-marriage-love-romance-sex.html
+
+**Paige Bueckers joins expansion team as Unrivaled reveals rosters for 2026**\
+`Unrivaled debuted in 2025 with six teams of six players but expanded to eight clubs for its second season.`\
+https://nytimes.com/athletic/6782054/2025/11/05/unrivaled-rosters-2026-season/
 

@@ -1,3 +1,11 @@
+**They Fell in Love With A.I. Chatbots — and Found Something Real**\
+`Three people on the joys and anxieties of A.I. romances.`\
+https://nytimes.com/interactive/2025/11/05/magazine/ai-chatbot-marriage-love-romance-sex.html
+
+**Paige Bueckers joins expansion team as Unrivaled reveals rosters for 2026**\
+`Unrivaled debuted in 2025 with six teams of six players but expanded to eight clubs for its second season.`\
+https://nytimes.com/athletic/6782054/2025/11/05/unrivaled-rosters-2026-season/
+
 **Nets snap 7-game slide, earn first win of season against Pacers**\
 `Brooklyn won despite losing leading scorer Cam Thomas to a hamstring injury two minutes into the game.`\
 https://nytimes.com/athletic/6782497/2025/11/05/brooklyn-nets-win-jordi-fernandez-nba/
