@@ -1,3 +1,15 @@
+**How WTA Tour Finals math put out the fire of a Sabalenka vs. Gauff revenge bout**\
+`Gauff lost the first set against Sabalenka, when she would ordinarily dig in for a three-set marathon. At this event, she needed to sprint.`\
+https://nytimes.com/athletic/6784678/2025/11/06/tennis-wta-tour-finals-gauff-sabalenka/
+
+**Trump Officials Accused of Bullying Tactics to Kill a Climate Measure**\
+`Nations were poised to approve the first fee on pollution from ships. That’s when the Trump administration began the threats.`\
+https://nytimes.com/2025/11/06/climate/trump-climate-international-bullying.html
+
+**Braves decline options on 2 of their top relievers in 2025: Source**\
+`Tyler Kinley's option was for $5.5 million. Atlanta also declined Pierce Johnson's $7 million option and David Fletcher's $8 million option.`\
+https://nytimes.com/athletic/6784724/2025/11/06/braves-tyler-kinley-piere-johnson-options-declined/
+
 **Retail Group Predicts Holiday Spending Could Top $1 Trillion**\
 `Despite shoppers’ concerns about rising costs, inflation and the government shutdown, retailers predict sales will increase as much as 4.2% over the holidays.`\
 https://nytimes.com/2025/11/06/business/holiday-consumer-spending-2025.html
@@ -19,22 +31,10 @@ https://nytimes.com/2025/11/06/science/brain-organoids-neurons.html
 https://nytimes.com/athletic/6784736/2025/11/06/broncos-raiders-legit-nfl-2025-scoop-city/
 
 **Dallas Cowboys Player Marshawn Kneeland Dies at 24**\
-`The police said the cause of death appeared to be a self-inflicted gunshot wound.`\
+`The police said he appeared to have taken his own life.`\
 https://nytimes.com/2025/11/06/us/marshawn-kneeland-suicide-cowboys.html
 
 **Paul Ignatius, 104, Navy Secretary and Vietnam-Era Defense Official, Dies**\
 `He oversaw supplies for the war effort under Lyndon B. Johnson and later had a brief, rocky tenure as president of The Washington Post during the Pentagon Papers case.`\
 https://nytimes.com/2025/11/06/us/politics/paul-ignatius-dead.html
-
-**Betting for (by) dummies: Picking teams with nothing to lose and maybe also nothing to gain**\
-`Jon Greenberg and Zac Jackson have plenty of picks on teams with nothing to lose and sometimes also nothing to gain this week.`\
-https://nytimes.com/athletic/6784530/2025/11/06/betting-for-by-dummies-jets-browns/
-
-**Trump Team Now Claims Its Trillions in Tariff Revenue Are ‘Incidental’**\
-`In arguments before the Supreme Court, the White House backed away from its claims that President Trump’s tariffs were about raising revenue.`\
-https://nytimes.com/2025/11/06/us/politics/trump-tariffs-revenue-supreme-court.html
-
-**Jury Awards $10 Million to Teacher Shot by 6-Year-Old Student**\
-`The teacher, Abigail Zwerner, was shot in the hand and chest by a first grade student who brought his mother’s gun to class in 2023.`\
-https://nytimes.com/2025/11/06/us/abby-zwerner-virginia-teacher-shooting-lawsuit.html
 
