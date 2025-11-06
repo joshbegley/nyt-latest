@@ -1,3 +1,7 @@
+**In unexpected twist, Padres choose Craig Stammen as next manager**\
+`Stammen is now the sixth full-time manager under GM A.J. Preller.`\
+https://nytimes.com/athletic/6784440/2025/11/06/padres-name-craig-stammen-manager/
+
 **NFL vibes-based predictions, a baseball heartbreaker and why did Tom Brady clone his dog?**\
 `Sports Gossip Show: Who will win the vibes war between the Patriots and Buccaneers (aka the Brady Bowl)?
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/2025/11/06/nyregion/trump-conviction-appeal.html
 **NFL community reacts to death of Marshawn Kneeland**\
 `Reactions to the tragic death came pouring in on social media.`\
 https://nytimes.com/athletic/6784106/2025/11/06/marshawn-kneeland-death-nfl-community-reaction/
-
-**‘Queens’ Review: The Heavy Burden of Past Lives and Uncertain Futures**\
-`Martyna Majok reimagines her 2018 play about the immigrant women who at various points live in a basement apartment in the New York City borough.`\
-https://nytimes.com/2025/11/06/theater/queens-review-martyna-majok.html
 
