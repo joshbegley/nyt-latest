@@ -1,3 +1,15 @@
+**How to watch 2025 F1 São Paulo Grand Prix: Title chase intensifies at Interlagos**\
+`Lando Norris leads by a small margin. Max Verstappen, in third, is a real contender. São Paulo could reshape the F1 title chase. `\
+https://nytimes.com/athletic/6781769/2025/11/06/f1-sao-paulo-weather-how-to-watch-odds/
+
+**Caleb Williams midseason progress report: 'I’ve got to keep growing'**\
+`Impressive flashes. Concerning flaws. Game-winning drives. Expected inconsistency. In Chicago, the QB roller coaster continues.`\
+https://nytimes.com/athletic/6781881/2025/11/06/bears-caleb-williams-midseason-progress-report/
+
+**In YouTube TV-ESPN impasse, perhaps the Eagles and Packers can bring sides together**\
+`As the YouTube TV-ESPN standoff hurtles toward a second weekend, The Athletic maps out the state of play of the negotiations.`\
+https://nytimes.com/athletic/6782284/2025/11/06/youtubetv-espn-disney-alphabet-google-nfl/
+
 **Chiefs at the bye: 3 predictions for the second half of the season**\
 `What will the Chiefs' final record be? And who will break out in the second half? Here are our predictions at midseason.`\
 https://nytimes.com/athletic/6781039/2025/11/06/chiefs-second-half-predictions/
