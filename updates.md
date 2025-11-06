@@ -1,3 +1,15 @@
+**Scores of Gaza Militants Still in Areas Under Israeli Control, Officials Say**\
+`At least some of the fighters are believed to be in the enclave’s vast tunnel network, marooned behind the “yellow line” that Israeli forces withdrew to as part of the cease-fire.`\
+https://nytimes.com/2025/11/06/world/middleeast/hamas-militants-trapped-gaza-israel.html
+
+**How A.I. and Social Media Contribute to ‘Brain Rot’**\
+`A.I. search tools, chatbots and social media are associated with lower cognitive performance, studies say. What to do?`\
+https://nytimes.com/2025/11/06/technology/personaltech/ai-social-media-brain-rot.html
+
+**Mexico’s President Presses Charges After Being Groped on the Street**\
+`President Claudia Sheinbaum of Mexico said she filed a complaint against a man who groped and tried to kiss her in a public episode captured on video.`\
+https://nytimes.com/video/world/americas/100000010508005/sheinbaum-mexico-harassment-charges.html
+
 **'Bend it like Burn': Analysing Dan Burn's wonder-header with Les Ferdinand**\
 `How the `\
 https://nytimes.com/athletic/6783312/2025/11/06/newcastle-burn-wonder-header-ferdinand/
