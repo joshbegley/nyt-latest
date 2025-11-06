@@ -1,3 +1,7 @@
+**Angels doctor testifies he 'had no idea' how addictive opiates he prescribed Eric Kay were**\
+`Dr. Craig Milhouse, who has worked for the Angels for 31 years, prescribed Kay 600 pills over a three-plus-year period.`\
+https://nytimes.com/athletic/6782662/2025/11/05/angels-skaggs-trial-doctor-prescribed-opioid/
+
 **Jordan Binnington tries to hide Alex Ovechkin's 900th goal puck in his pants**\
 `As the Capitals celebrated Ovechkin's 900th goal, Binnington pulled the puck out of the net and put it in his pants. He gave it back later.`\
 https://nytimes.com/athletic/6782581/2025/11/05/jordan-binnington-returns-alex-ovechkin-900th-goal/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/05/business/jamie-dimon-zohran-mamdani.html
 **Alex Ovechkin becomes first NHL player to score 900 goals**\
 `Ovechkin became the NHL’s all-time goals leader after breaking Wayne Gretzky's record last season.`\
 https://nytimes.com/athletic/6729566/2025/11/05/alex-ovechkin-900-goals-record-nhl/
-
-**Democrats Raise Concerns After Trump Administration Briefing on Boat Strikes**\
-`The classified meeting did not relieve mounting unease among lawmakers over President Trump’s expanding campaign of lethal strikes against drug cartels.`\
-https://nytimes.com/2025/11/05/us/politics/trump-drug-boat-strikes-democrats.html
 
