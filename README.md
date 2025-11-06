@@ -1,3 +1,7 @@
+**Elon Musk Wins $1 Trillion Tesla Payday**\
+`Shareholders approved a plan to grant Mr. Musk shares worth nearly $1 trillion if he meets ambitious goals, including vastly expanding the company’s stock market valuation.`\
+https://nytimes.com/2025/11/06/business/elon-musk-tesla-pay-vote.html
+
 **What Trump’s New Drug Pricing Deal Means for People With Obesity**\
 `The president’s agreement with drug companies involves a range of prices, depending on dose, product and how you’re paying.`\
 https://nytimes.com/2025/11/06/health/trump-obesity-drug-prices-explainer.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/africa/100000010508878/sudan-military-ceasefire.
 **NFL Week 10 projected scores: Model predicts point spreads and totals for every game**\
 `Austin Mock's projection model predicts point spreads and point totals for NFL Week 10. We compare it to betting lines.`\
 https://nytimes.com/athletic/6785266/2025/11/06/nfl-week-10-projected-scores-model-predicts-point-spreads-and-totals-for-every-game/
-
-**Judge Orders Trump Administration to Fully Fund Food Stamps This Month**\
-`A federal judge rebuked the administration for the way it tried to fund only partial benefits to food stamp recipients.`\
-https://nytimes.com/2025/11/06/us/politics/snap-food-stamps-shutdown-trump.html
 

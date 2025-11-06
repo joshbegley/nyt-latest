@@ -1,3 +1,19 @@
+**What Trump’s New Drug Pricing Deal Means for People With Obesity**\
+`The president’s agreement with drug companies involves a range of prices, depending on dose, product and how you’re paying.`\
+https://nytimes.com/2025/11/06/health/trump-obesity-drug-prices-explainer.html
+
+**Messi's appearance at a forum for business and politics oddly made sense**\
+`The Inter Miami and Argentina star has a huge presence in the business world, but humbly admits he knows little about it`\
+https://nytimes.com/athletic/6785049/2025/11/06/messi-miami-business-forum-trump-milei-infantino/
+
+**Yankees extend qualifying offer to Trent Grisham. What it means for their center field plans**\
+`With the qualifying offer attached, Grisham could find a depressed market in free agency, but it could end up benefiting the Yankees.`\
+https://nytimes.com/athletic/6782349/2025/11/06/yankees-trent-grisham-qualifying-offer-center-field-offseason/
+
+**Who Will Replace Pelosi in Congress?**\
+`Two Democrats have already announced their campaigns to replace Representative Nancy Pelosi in her San Francisco district, and others may join the race soon.`\
+https://nytimes.com/2025/11/06/us/nancy-pelosi-retirement-replacement.html
+
 **Airlines Rush to Prepare for Federal Reductions in Flights**\
 `Airline planning and scheduling teams went into overdrive to identify which flights to cut while minimizing consequences for customers, pilots, flight attendants and the bottom line.`\
 https://nytimes.com/2025/11/06/business/airlines-federal-reductions-flights.html

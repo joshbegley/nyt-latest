@@ -1,3 +1,19 @@
+**What Trump’s New Drug Pricing Deal Means for People With Obesity**\
+`The president’s agreement with drug companies involves a range of prices, depending on dose, product and how you’re paying.`\
+https://nytimes.com/2025/11/06/health/trump-obesity-drug-prices-explainer.html
+
+**Messi's appearance at a forum for business and politics oddly made sense**\
+`The Inter Miami and Argentina star has a huge presence in the business world, but humbly admits he knows little about it`\
+https://nytimes.com/athletic/6785049/2025/11/06/messi-miami-business-forum-trump-milei-infantino/
+
+**Yankees extend qualifying offer to Trent Grisham. What it means for their center field plans**\
+`With the qualifying offer attached, Grisham could find a depressed market in free agency, but it could end up benefiting the Yankees.`\
+https://nytimes.com/athletic/6782349/2025/11/06/yankees-trent-grisham-qualifying-offer-center-field-offseason/
+
+**Who Will Replace Pelosi in Congress?**\
+`Two Democrats have already announced their campaigns to replace Representative Nancy Pelosi in her San Francisco district, and others may join the race soon.`\
+https://nytimes.com/2025/11/06/us/nancy-pelosi-retirement-replacement.html
+
 **Airlines Rush to Prepare for Federal Reductions in Flights**\
 `Airline planning and scheduling teams went into overdrive to identify which flights to cut while minimizing consequences for customers, pilots, flight attendants and the bottom line.`\
 https://nytimes.com/2025/11/06/business/airlines-federal-reductions-flights.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6785266/2025/11/06/nfl-week-10-projected-scores-mod
 **Judge Orders Trump Administration to Fully Fund Food Stamps This Month**\
 `A federal judge rebuked the administration for the way it tried to fund only partial benefits to food stamp recipients.`\
 https://nytimes.com/2025/11/06/us/politics/snap-food-stamps-shutdown-trump.html
-
-**OpenAI Races to Quell Concerns Over Its Finances**\
-`The A.I. company faced pushback after a top executive raised the idea of government aid, amid concerns that the A.I. industry is headed toward a dangerous bubble.`\
-https://nytimes.com/2025/11/06/technology/openai-finances-debt-data-centers.html
-
-**Iran Sentences Iranian American Jewish Man to Prison, Family Says**\
-`Kamran Hekmati of Long Island was arrested for visiting Israel 13 years ago to celebrate his son’s bar mitzvah, they said.`\
-https://nytimes.com/2025/11/06/world/middleeast/kamran-hekmati-iran-arrest.html
-
-**The Windup: The biggest names in free agency. Plus: Another Barry Bonds HOF debate**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6784205/2025/11/06/mlb-free-agency-the-windup/
-
-**Testosterone and Women’s Sex Drive**\
-`My colleague Susan Dominus discusses her reporting on women who are taking testosterone.`\
-https://nytimes.com/2025/11/06/world/testosterone-women-sex-climate-talks-brazil.html
 
