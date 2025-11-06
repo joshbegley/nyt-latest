@@ -1,4 +1,4 @@
-**Unrivaled announces rosters for 2026 season**\
+**Paige Bueckers joins expansion team as Unrivaled reveals rosters for 2026**\
 `Unrivaled debuted in 2025 with six teams of six players but expanded to eight clubs for its second season.`\
 https://nytimes.com/athletic/6782054/2025/11/05/unrivaled-rosters-2026-season/
 
