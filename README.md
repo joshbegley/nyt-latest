@@ -1,6 +1,18 @@
+**The NBA is figuring out how to guard Victor Wembanyama. How will he respond?**\
+`Wembanyama looked untouchable early this season, but reality has hit the Spurs. Now what?`\
+https://nytimes.com/athletic/6783113/2025/11/06/victor-wembanyama-defenses-spurs-game-plan/
+
 **Witness Captures Bronx Fire on Video**\
 `A video of a blaze in the Bronx filmed by a witness showed an intense fire spreading and what appeared to be a fireball explosion. The cause was under investigation.`\
 https://nytimes.com/video/us/100000010507594/bronx-trash-fire-firefighters.html
+
+**Phillies offseason primer: Kyle Schwarber, J.T. Realmuto and a wide-open winter**\
+`Any conversation about the Phillies’ offseason plans must begin with their top three free agents. But there is plenty more to discuss. `\
+https://nytimes.com/athletic/6781336/2025/11/06/phillies-offseason-schwarber-realmuto-free-agency/
+
+**Four Yankees offseason priorities, from Cody Bellinger to pitching to ... Pete Alonso?**\
+`How can the Yankees improve their roster this winter? As free agency gets underway, here are four of their top offseason priorities.`\
+https://nytimes.com/athletic/6775324/2025/11/06/yankees-offseason-trades-signings-pete-alonso/
 
 **Tuchel planning to bring Bellingham back into England squad**\
 `Bellingham missed the last England squad but is in line for a return when the latest selection is announced on Friday.`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6781807/2025/11/06/college-basketball-freshman-koa-
 **This Week in Sports Trivia: November 6, 2025**\
 `How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
 https://nytimes.com/athletic/6780827/2025/11/06/this-week-in-sports-trivia-november-6-2025/
-
-**Broncos RB RJ Harvey's growth as receiver gives Sean Payton unique weapon he covets**\
-`"I think he's just getting started," teammate Evan Engram said of Harvey, who has the second-most TDs in the NFL since Week 7.`\
-https://nytimes.com/athletic/6778851/2025/11/06/broncos-rj-harvey-sean-payton-offense/
-
-**Evaluating Owen Tippett's streaky start to the Flyers' season: 'Just a matter of time'**\
-`The 26-year-old is struggling to find consistency, but he may have turned the corner after an excellent game against Montreal.`\
-https://nytimes.com/athletic/6781396/2025/11/06/owen-tippett-flyers-tocchet/
-
-**Raiders vs. Broncos Thursday Night Football betting: Player prop and a single-game parlay**\
-`Brad Evans scours sportsbooks for the best bets ahead for Thursday Night Football's matchup between the Raiders and Broncos. `\
-https://nytimes.com/athletic/6780724/2025/11/06/raiders-broncos-thursday-night-football-betting-props-picks/
 
