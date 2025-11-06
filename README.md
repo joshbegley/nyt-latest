@@ -1,3 +1,7 @@
+**Democrats Mull Shutdown Off-Ramps as Thune Prepares Spending Vote**\
+`The G.O.P. teed up a vote on a new spending package, but Democrats were insisting on a deal that would address expiring health care subsidies.`\
+https://nytimes.com/2025/11/06/us/politics/democrats-republicans-shutdown-votes.html
+
 **Trump Pressure Risks Free Speech at University of California, Judge Warns**\
 `A federal judge said that faculty members were being affected in their teaching and research by the Trump administration’s pressure campaign.`\
 https://nytimes.com/2025/11/06/us/trump-pressure-free-speech-university-of-california-lawsuit.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6785314/2025/11/06/marshawn-kneeland-grief-cowboys/
 **The Endlessly Adaptable Frankenstein**\
 `Few works have inspired more adaptations than Mary Shelley’s Gothic classic about a frenzied creator who builds a despairing being. Here’s a look at the many ways it has been repurposed onscreen.`\
 https://nytimes.com/interactive/2025/11/06/arts/frankenstein-adaptations.html
-
-**Elon Musk Wins $1 Trillion Tesla Payday**\
-`Shareholders approved a plan to grant Mr. Musk shares worth nearly $1 trillion if he meets ambitious goals, including vastly expanding the company’s stock market valuation.`\
-https://nytimes.com/2025/11/06/business/elon-musk-tesla-pay-vote.html
 

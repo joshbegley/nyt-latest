@@ -1,3 +1,23 @@
+**Trump Pressure Risks Free Speech at University of California, Judge Warns**\
+`A federal judge said that faculty members were being affected in their teaching and research by the Trump administration’s pressure campaign.`\
+https://nytimes.com/2025/11/06/us/trump-pressure-free-speech-university-of-california-lawsuit.html
+
+**Mets extend qualifying offer to closer Edwin Díaz**\
+`Edwin Diaz is expected to test the market but he has said he would "love to" return to the Mets.`\
+https://nytimes.com/athletic/6783806/2025/11/06/mets-qualifying-offer-edwin-diaz/
+
+**Stefanik to Launch Campaign to Challenge Gov. Hochul in New York**\
+`Elise Stefanik, a Republican congresswoman, is a leading ally of President Trump who has gone to great lengths to criticize Ms. Hochul and Mayor-elect Zohran Mamdani.`\
+https://nytimes.com/2025/11/06/nyregion/stefanik-governor.html
+
+**Justice Dept. Is Said to Be Investigating D.C. Mayor Over Foreign Trip**\
+`The investigation into Muriel E. Bowser, which is being handled by the U.S. attorney’s office in Washington, could face significant hurdles because of the known facts of the case and recent turmoil inside the Justice Department.`\
+https://nytimes.com/2025/11/06/us/politics/trump-muriel-bowser-qatar-investigation.html
+
+**Wisconsin's Luke Fickell will coach next year, AD says**\
+`The embattled Badgers coach will return for at least one more season, weathering a very hot seat. `\
+https://nytimes.com/athletic/6785392/2025/11/06/luke-fickell-wisconsin-coach-returning/
+
 **Stanley Chesley, Class-Action Lawyer Called ‘Master of Disaster,’ Dies at 89**\
 `He won billions of dollars for plaintiffs in major suits against corporations but was disbarred for siphoning money from clients.`\
 https://nytimes.com/2025/11/06/us/stanley-chesley-dead.html
@@ -13,28 +33,4 @@ https://nytimes.com/interactive/2025/11/06/arts/frankenstein-adaptations.html
 **Elon Musk Wins $1 Trillion Tesla Payday**\
 `Shareholders approved a plan to grant Mr. Musk shares worth nearly $1 trillion if he meets ambitious goals, including vastly expanding the company’s stock market valuation.`\
 https://nytimes.com/2025/11/06/business/elon-musk-tesla-pay-vote.html
-
-**What Trump’s New Drug Pricing Deal Means for People With Obesity**\
-`The president’s agreement with drug companies involves a range of prices, depending on dose, product and how you’re paying.`\
-https://nytimes.com/2025/11/06/health/trump-obesity-drug-prices-explainer.html
-
-**Messi's appearance at a forum for business and politics oddly made sense**\
-`The Inter Miami and Argentina star has a huge presence in the business world, but humbly admits he knows little about it`\
-https://nytimes.com/athletic/6785049/2025/11/06/messi-miami-business-forum-trump-milei-infantino/
-
-**Yankees extend qualifying offer to Trent Grisham. What it means for their center field plans**\
-`With the qualifying offer attached, Grisham could find a depressed market in free agency, but it could end up benefiting the Yankees.`\
-https://nytimes.com/athletic/6782349/2025/11/06/yankees-trent-grisham-qualifying-offer-center-field-offseason/
-
-**Who Will Replace Pelosi in Congress?**\
-`Two Democrats have already announced their campaigns to replace Representative Nancy Pelosi in her San Francisco district, and others may join the race soon.`\
-https://nytimes.com/2025/11/06/us/nancy-pelosi-retirement-replacement.html
-
-**Airlines Rush to Prepare for Federal Reductions in Flights**\
-`Airline planning and scheduling teams went into overdrive to identify which flights to cut while minimizing consequences for customers, pilots, flight attendants and the bottom line.`\
-https://nytimes.com/2025/11/06/business/airlines-federal-reductions-flights.html
-
-**UK culture sectary broke rules in appointing chairman of new football regulator**\
-`David Kogan twice made donations of £1,450 to Lisa Nandy's campaign to replace Jeremy Corbyn as Labour leader in 2020.`\
-https://nytimes.com/athletic/6784423/2025/11/06/football-regulator-lisa-nandy-code-breach/
 
