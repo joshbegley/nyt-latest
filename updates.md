@@ -1,3 +1,11 @@
+**How to watch women's UCSB vs. UCLA basketball: Time, TV, streaming**\
+`Find out how to watch the UCSB Gauchos play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6783483/2025/11/06/ucsb-vs-ucla-stream-how-to-watch-nov-6/
+
+**How Cardinals RB Emari Demercado got past one of football's most 'boneheaded' mistakes**\
+`The Cardinals have struggled closing all season. Yet, in Monday's final minutes, the poster child of their ineptness made the smartest play.`\
+https://nytimes.com/athletic/6782570/2025/11/06/emari-demercado-arizona-cardinals-end-zone-fumble-mistake/
+
 **Trump Administration Live Updates: Officials to List Where Flights Will Be Cut Amid Shutdown**\
 ``\
 https://nytimes.com/live/2025/11/06/us/trump-news-shutdown

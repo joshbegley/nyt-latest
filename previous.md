@@ -1,3 +1,7 @@
+**How to watch women's UCSB vs. UCLA basketball: Time, TV, streaming**\
+`Find out how to watch the UCSB Gauchos play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6783483/2025/11/06/ucsb-vs-ucla-stream-how-to-watch-nov-6/
+
 **Trump Administration Live Updates: Officials to List Where Flights Will Be Cut Amid Shutdown**\
 ``\
 https://nytimes.com/live/2025/11/06/us/trump-news-shutdown
@@ -14,7 +18,7 @@ https://nytimes.com/2025/11/06/arts/music/james-gaffigan-houston-grand-opera.htm
 `The museum’s most anticipated exhibit is the full 5,500 items from King Tutankhamen’s tomb. Egyptians say it’s time to experience their most precious antiquities at home.`\
 https://nytimes.com/2025/11/06/arts/design/grand-egyptian-museum-opening.html
 
-**How Cardinals RB Emari Demercado got past one of football's most 'bone-headed' mistakes**\
+**How Cardinals RB Emari Demercado got past one of football's most 'boneheaded' mistakes**\
 `The Cardinals have struggled closing all season. Yet, in Monday's final minutes, the poster child of their ineptness made the smartest play.`\
 https://nytimes.com/athletic/6782570/2025/11/06/emari-demercado-arizona-cardinals-end-zone-fumble-mistake/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6778533/2025/11/06/bucks-doc-rivers-bench-lineup-nb
 **A Fight Over Maps**\
 `We explain a California vote to flip as many as five House seats for Democrats next year.`\
 https://nytimes.com/2025/11/06/briefing/a-fight-over-maps.html
-
-**The NBA is figuring out how to guard Victor Wembanyama. How will he respond?**\
-`Wembanyama looked untouchable early this season, but reality has hit the Spurs. Now what?`\
-https://nytimes.com/athletic/6783113/2025/11/06/victor-wembanyama-defenses-spurs-game-plan/
 
