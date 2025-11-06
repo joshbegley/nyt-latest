@@ -1,3 +1,7 @@
+**Iran Sentences Iranian American Jewish Man to Prison, Family Says**\
+`Kamran Hekmati of Long Island was arrested for visiting Israel 13 years ago to celebrate his son’s bar mitzvah, they said.`\
+https://nytimes.com/2025/11/06/world/middleeast/kamran-hekmati-iran-arrest.html
+
 **The Windup: The biggest names in free agency. Plus: Another Barry Bonds HOF debate**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6784205/2025/11/06/mlb-free-agency-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6784992/2025/11/06/usmnt-roster-out-pulisic-mckenni
 **Rockies to hire Browns' Paul DePodesta as head of baseball operations: Sources**\
 `DePodesta will return to a baseball front office after nearly a decade of working in the NFL.`\
 https://nytimes.com/athletic/6785121/2025/11/06/paul-depodesta-colorado-rockies-cleveland-browns/
-
-**Why Is Trump Threatening to Intervene In Nigeria?**\
-`President Trump has threatened to send troops to Nigeria, where he says Christianity faces an “existential threat,” an accusation that Nigeria has denied. Ruth Maclean, our West Africa bureau chief, describes how the violence in Nigeria is affecting people of all religions, not only Christians.`\
-https://nytimes.com/video/world/africa/100000010499997/why-is-trump-threatening-to-intervene-in-nigeria.html
 
