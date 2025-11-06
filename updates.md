@@ -1,3 +1,7 @@
+**Elon Musk Wins $1 Trillion Tesla Payday**\
+`Shareholders approved a plan to grant Mr. Musk shares worth nearly $1 trillion if he meets ambitious goals, including vastly expanding the company’s stock market valuation.`\
+https://nytimes.com/2025/11/06/business/elon-musk-tesla-pay-vote.html
+
 **What Trump’s New Drug Pricing Deal Means for People With Obesity**\
 `The president’s agreement with drug companies involves a range of prices, depending on dose, product and how you’re paying.`\
 https://nytimes.com/2025/11/06/health/trump-obesity-drug-prices-explainer.html
