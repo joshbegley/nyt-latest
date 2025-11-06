@@ -1,3 +1,11 @@
+**Scores of Gaza Militants Still in Areas Under Israeli Control, Officials Say**\
+`At least some of the fighters are believed to be in the enclave’s vast tunnel network, marooned behind the “yellow line” that Israeli forces withdrew to as part of the cease-fire.`\
+https://nytimes.com/2025/11/06/world/middleeast/hamas-militants-trapped-gaza-israel.html
+
+**How A.I. and Social Media Contribute to ‘Brain Rot’**\
+`A.I. search tools, chatbots and social media are associated with lower cognitive performance, studies say. What to do?`\
+https://nytimes.com/2025/11/06/technology/personaltech/ai-social-media-brain-rot.html
+
 **Mexico’s President Presses Charges After Being Groped on the Street**\
 `President Claudia Sheinbaum of Mexico said she filed a complaint against a man who groped and tried to kiss her in a public episode captured on video.`\
 https://nytimes.com/video/world/americas/100000010508005/sheinbaum-mexico-harassment-charges.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/weather/fung-wong-map-path-tracker.html
 **Cowboys DE Marshawn Kneeland dies at 24, team says**\
 `Kneeland, 24, was in his second season with the team after being drafted in the second round of the 2024 NFL Draft.`\
 https://nytimes.com/athletic/6783787/2025/11/06/marshawn-kneeland-dead-cowboys/
-
-**Bishops With Ties to Trump Commission Criticize Treatment of Immigrants**\
-`The Roman Catholic prelates cited detainees’ lack of access to religious sacraments like communion.`\
-https://nytimes.com/2025/11/06/us/trump-bishops-communion.html
-
-**Cade Cunningham, Pistons turning the corner toward 'not being losers'**\
-`"We're just starting to get our feet wet as far as learning winning basketball," Cunningham said of the 6-2 Pistons.`\
-https://nytimes.com/athletic/6783017/2025/11/06/cade-cunningham-pistons-jazz-nba/
 
