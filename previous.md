@@ -1,3 +1,7 @@
+**U.S. Sends Attack Aircraft to El Salvador Amid Regional Troop Buildup**\
+`A New York Times analysis of satellite imagery and air traffic control communications found that U.S. military planes began operating out of the Central American country in mid-October.`\
+https://nytimes.com/2025/11/06/world/americas/us-military-planes-el-salvador.html
+
 **Kyle Tucker, Bo Bichette headline 13 MLB players tendered qualifying offer**\
 `Here's a breakdown of everyone who received a qualifying offer, which if accepted would mean a one-year, $22.025 million contract.`\
 https://nytimes.com/athletic/6785458/2025/11/06/mlb-qualifying-offer-players-list/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6785424/2025/11/06/dodgers-tony-gonsolin-designated
 **Democrats Mull Shutdown Off-Ramps as Thune Prepares Spending Vote**\
 `The G.O.P. teed up a vote on a new spending package, but Democrats were insisting on a deal that would address expiring health care subsidies.`\
 https://nytimes.com/2025/11/06/us/politics/democrats-republicans-shutdown-votes.html
-
-**Trump Pressure Risks Free Speech at University of California, Judge Warns**\
-`A federal judge said that faculty members were being affected in their teaching and research by the Trump administration’s pressure campaign.`\
-https://nytimes.com/2025/11/06/us/trump-pressure-free-speech-university-of-california-lawsuit.html
 
