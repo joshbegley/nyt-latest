@@ -1,3 +1,11 @@
+**Guardians decline pitcher John Means' 2026 option, trim 5 others from roster**\
+`Cleveland outrighted pitchers Kolby Allard, Matt Krook and Ben Lively, as well as catcher Dom Nuñez and infielder Will Wilson.`\
+https://nytimes.com/athletic/6781192/2025/11/06/guardians-decline-option-john-means/
+
+**Angel City's Ali Riley used her voice for others while playing. She hopes to do more in retirement**\
+`The defender was an advocate while playing and plans on continuing that into the next act of her career.`\
+https://nytimes.com/athletic/6785240/2025/11/06/ali-riley-retirement-reflection/
+
 **Matt Rhule delivers powerful speech following Marshawn Kneeland's death**\
 `The Nebraska coach spoke for more than three minutes on the importance of mental health awareness.`\
 https://nytimes.com/athletic/6785317/2025/11/06/matt-rhule-marshawn-kneeland-death/

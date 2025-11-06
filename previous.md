@@ -1,3 +1,11 @@
+**Guardians decline pitcher John Means' 2026 option, trim 5 others from roster**\
+`Cleveland outrighted pitchers Kolby Allard, Matt Krook and Ben Lively, as well as catcher Dom Nuñez and infielder Will Wilson.`\
+https://nytimes.com/athletic/6781192/2025/11/06/guardians-decline-option-john-means/
+
+**Angel City's Ali Riley used her voice for others while playing. She hopes to do more in retirement**\
+`The defender was an advocate while playing and plans on continuing that into the next act of her career.`\
+https://nytimes.com/athletic/6785240/2025/11/06/ali-riley-retirement-reflection/
+
 **Matt Rhule delivers powerful speech following Marshawn Kneeland's death**\
 `The Nebraska coach spoke for more than three minutes on the importance of mental health awareness.`\
 https://nytimes.com/athletic/6785317/2025/11/06/matt-rhule-marshawn-kneeland-death/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/11/06/us/trump-pressure-free-speech-university-of-calif
 **Mets extend qualifying offer to closer Edwin Díaz**\
 `The 31-year-old closer is expected to test the market, but Díaz has said he would "love to come back" to the Mets.`\
 https://nytimes.com/athletic/6783806/2025/11/06/edwin-diaz-mets-qualifying-offer/
-
-**Stefanik to Launch Campaign to Challenge Gov. Hochul in New York**\
-`Elise Stefanik, a Republican congresswoman, is a leading ally of President Trump who has gone to great lengths to criticize Ms. Hochul and Mayor-elect Zohran Mamdani.`\
-https://nytimes.com/2025/11/06/nyregion/stefanik-governor.html
-
-**Justice Dept. Is Said to Be Investigating D.C. Mayor Over Foreign Trip**\
-`The investigation into Muriel E. Bowser, which is being handled by the U.S. attorney’s office in Washington, could face significant hurdles because of the known facts of the case and recent turmoil inside the Justice Department.`\
-https://nytimes.com/2025/11/06/us/politics/trump-muriel-bowser-qatar-investigation.html
 
