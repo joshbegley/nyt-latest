@@ -1,3 +1,7 @@
+**Philippines Cleans Up After Typhoon Kalmaegi**\
+`Residents in the central Philippines returned to their mud-caked homes to clean up the aftermath of Typhoon Kalmaegi.`\
+https://nytimes.com/video/world/asia/100000010507476/philippines-typhoon-kalmaegi-aftermath.html
+
 **How to watch Eagles vs. Packers: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Eagles play the Green Bay Packers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6783007/2025/11/06/eagles-vs-packers-stream-how-to-watch-nov-10/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6780841/2025/11/06/jake-weatherald-australia-ashes-
 **Sudan Is in Free Fall**\
 `The slaughter in Darfur could potentially be stopped, if those with leverage chose to act.`\
 https://nytimes.com/2025/11/06/opinion/sudan-darfur-el-fasher-uae.html
-
-**The Indispensable Erdogan**\
-`Western capitals should be wary of treating democracy in Turkey as a luxury rather than a necessity.`\
-https://nytimes.com/2025/11/06/opinion/erdogan-turkey-president-power.html
 
