@@ -1,3 +1,7 @@
+**The Bounce: Which teams' hot starts are for real? Plus, a hilarious Cooper Flagg dunk**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6784082/2025/11/06/bulls-spurs-76ers-cooper-flagg-nba-the-bounce/
+
 **How to watch women's Elon vs. North Carolina basketball: Time, TV, streaming**\
 `Find out how to watch the Elon Phoenix play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6784181/2025/11/06/elon-vs-north-carolina-stream-how-to-watch-nov-6/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/06/dining/just-boil-stir-and-eat.html
 **English National League game to be streamed live on TikTok in global first**\
 `The fixture between arguably the two biggest teams outside the EFL will be streamed live, free of charge, on DAZN's TikTok channel.`\
 https://nytimes.com/athletic/6783979/2025/11/06/dazn-live-stream-tiktok-national-league-football/
-
-**Victor Wembanyama is already changing how teams plan games — and the future**\
-`The Lakers, and the rest of the NBA, have learned that Wembanyama is the biggest threat to their championship aspirations.`\
-https://nytimes.com/athletic/6783119/2025/11/06/victor-wembanyama-future-plan-spurs-lakers/
 

@@ -1,3 +1,7 @@
+**The Bounce: Which teams' hot starts are for real? Plus, a hilarious Cooper Flagg dunk**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6784082/2025/11/06/bulls-spurs-76ers-cooper-flagg-nba-the-bounce/
+
 **How to watch women's Elon vs. North Carolina basketball: Time, TV, streaming**\
 `Find out how to watch the Elon Phoenix play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6784181/2025/11/06/elon-vs-north-carolina-stream-how-to-watch-nov-6/
