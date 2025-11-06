@@ -1,3 +1,11 @@
+**Paul Ignatius, 104, Navy Secretary and Vietnam-Era Defense Official, Dies**\
+`He oversaw supplies for the war effort under Lyndon B. Johnson and later had a brief, rocky tenure as president of The Washington Post during the Pentagon Papers case.`\
+https://nytimes.com/2025/11/06/us/politics/paul-ignatius-dead.html
+
+**Betting for (by) dummies: Picking teams with nothing to lose and maybe also nothing to gain**\
+`Jon Greenberg and Zac Jackson have plenty of picks on teams with nothing to lose and sometimes also nothing to gain this week.`\
+https://nytimes.com/athletic/6784530/2025/11/06/betting-for-by-dummies-jets-browns/
+
 **Trump Team Now Claims Its Trillions in Tariff Revenue Are ‘Incidental’**\
 `In arguments before the Supreme Court, the White House backed away from its claims that President Trump’s tariffs were about raising revenue.`\
 https://nytimes.com/2025/11/06/us/politics/trump-tariffs-revenue-supreme-court.html
