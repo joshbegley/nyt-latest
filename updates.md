@@ -1,3 +1,11 @@
+**College football picks ATS: Big Ten contenders hit the road plus a Big 12 showdown**\
+`The top three teams in the CFP rankings hit the road and the Big 12 features a massive showdown in Lubbock.`\
+https://nytimes.com/athletic/6781384/2025/11/06/college-football-picks-against-the-spread-indiana-texas-tech-byu-oregon/
+
+**Must-See Moments From the N.B.A.**\
+`The Oklahoma City Thunder dropped their first game, the Los Angeles Lakers won a Hollywood showdown, the New York Knicks remain undefeated at home, and more highlights from recent games.`\
+https://nytimes.com/video/sports/basketball/100000010507882/must-see-moments-from-the-nba.html
+
 **‘Florentine Diamond’ Letter of Authenticity**\
 `The document is signed by Christoph Köchert, whose family long served as jewelers to the imperial court.`\
 https://nytimes.com/interactive/2025/11/06/arts/design/06cul-florentine-diamond-doc.html
