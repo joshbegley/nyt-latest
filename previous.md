@@ -1,3 +1,7 @@
+**Kazakhstan May Join the Trump-Brokered Abraham Accords**\
+`The Central Asian country already has diplomatic relations with Israel, but the move appears to be a good-will gesture to President Trump.`\
+https://nytimes.com/2025/11/06/us/politics/kazakhstan-abraham-accords.html
+
 **COP30 Kicks Off in Brazil, Amid Climate Protests**\
 `Diplomats and leaders gather on the edge of the Amazon forest in Belém, Brazil, for annual talks on how to limit global warming. This happens as protesters and activists stage protests to call for more urgent action against climate change.`\
 https://nytimes.com/video/climate/100000010508466/cop30-kicks-off-in-brazil-amid-climate-protests.html
@@ -15,8 +19,8 @@ https://nytimes.com/2025/11/06/us/politics/democrats-republicans-shutdown-votes.
 https://nytimes.com/2025/11/06/us/trump-pressure-free-speech-university-of-california-lawsuit.html
 
 **Mets extend qualifying offer to closer Edwin Díaz**\
-`Edwin Diaz is expected to test the market but he has said he would "love to" return to the Mets.`\
-https://nytimes.com/athletic/6783806/2025/11/06/mets-qualifying-offer-edwin-diaz/
+`The 31-year-old closer is expected to test the market, but Díaz has said he would "love to come back" to the Mets.`\
+https://nytimes.com/athletic/6783806/2025/11/06/edwin-diaz-mets-qualifying-offer/
 
 **Stefanik to Launch Campaign to Challenge Gov. Hochul in New York**\
 `Elise Stefanik, a Republican congresswoman, is a leading ally of President Trump who has gone to great lengths to criticize Ms. Hochul and Mayor-elect Zohran Mamdani.`\
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/06/us/politics/trump-muriel-bowser-qatar-investigati
 **Wisconsin's Luke Fickell will coach next year, AD says**\
 `The embattled Badgers coach will return for at least one more season, weathering a very hot seat. `\
 https://nytimes.com/athletic/6785392/2025/11/06/luke-fickell-wisconsin-coach-returning/
-
-**Stanley Chesley, Class-Action Lawyer Called ‘Master of Disaster,’ Dies at 89**\
-`He won billions of dollars for plaintiffs in major suits against corporations but was disbarred for siphoning money from clients.`\
-https://nytimes.com/2025/11/06/us/stanley-chesley-dead.html
 
