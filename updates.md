@@ -1,3 +1,11 @@
+**Judge Orders Trump Administration to Fully Fund Food Stamps This Month**\
+`A federal judge rebuked the administration for the way it tried to fund only partial benefits to food stamp recipients.`\
+https://nytimes.com/2025/11/06/us/politics/snap-food-stamps-shutdown-trump.html
+
+**OpenAI Races to Quell Concerns Over Its Finances**\
+`The A.I. company faced pushback after a top executive raised the idea of government aid, amid concerns that the A.I. industry is headed toward a dangerous bubble.`\
+https://nytimes.com/2025/11/06/technology/openai-finances-debt-data-centers.html
+
 **Iran Sentences Iranian American Jewish Man to Prison, Family Says**\
 `Kamran Hekmati of Long Island was arrested for visiting Israel 13 years ago to celebrate his son’s bar mitzvah, they said.`\
 https://nytimes.com/2025/11/06/world/middleeast/kamran-hekmati-iran-arrest.html
