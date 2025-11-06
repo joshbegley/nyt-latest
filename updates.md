@@ -1,3 +1,7 @@
+**How Phil Foden and Erling Haaland are reimagining the traditional front two**\
+`In the past, Phil Foden and Erling Haaland have looked to be on different wavelengths but the duo are now complementing each other`\
+https://nytimes.com/athletic/6781777/2025/11/06/phil-foden-erling-haaland-man-city-borussia-dortmund/
+
 **Russell Westbrook is adjusting well in Sacramento after delayed signing**\
 `The Kings signed Westbrook in the middle of October, but his first triple-double with the team shows he's quickly paying dividends.`\
 https://nytimes.com/athletic/6782886/2025/11/06/russell-westbrook-kings-triple-double-nba/
