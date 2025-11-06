@@ -1,3 +1,7 @@
+**How many team changes do Premier League managers make? And is fewer always better?**\
+`While Arsenal have made a virtue of stability, Nottingham Forest and Wolves have shown what happens if you make too many changes`\
+https://nytimes.com/athletic/6776318/2025/11/06/premier-league-player-rotation-analysis/
+
 **‘Broken My Hope’: Trump’s Move to Slash Refugee Arrivals Ricochets Widely**\
 `President Trump’s policy has shut the door on all but a tiny fraction of people across the world seeking refuge in the United States from conflict, persecution or both.`\
 https://nytimes.com/2025/11/06/world/asia/trump-refugee-cap-despair.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6782713/2025/11/05/victor-wembanyama-spurs-bronny-j
 **Auston Matthews may be back to his dominant self for the Maple Leafs**\
 `After early season questions, the Maple Leafs captain is performing like one of the world’s best players again.`\
 https://nytimes.com/athletic/6782693/2025/11/05/auston-matthews-maple-leafs-utah-mammoth/
-
-**Angels doctor testifies he 'had no idea' how addictive opiates he prescribed Eric Kay were**\
-`Dr. Craig Milhouse, who has worked for the Angels for 31 years, prescribed Kay 600 pills over a three-plus-year period.`\
-https://nytimes.com/athletic/6782662/2025/11/05/angels-skaggs-trial-doctor-prescribed-opioid/
 
