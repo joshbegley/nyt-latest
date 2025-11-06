@@ -1,3 +1,7 @@
+**'I wouldn't swap Welbeck for any player in the world' - Hurzeler**\
+`The 35-year-old striker's form has seen calls for him to be named in the England squad for the first time in seven years.`\
+https://nytimes.com/athletic/6783163/2025/11/06/welbeck-news-brighton-hurzeler/
+
 **When Did Music Critics Get So Nice?**\
 `The writer and critic Kelefa Sanneh joins Wesley Morris to talk about the state of pop music criticism today.`\
 https://nytimes.com/video/podcasts/100000010499419/when-did-music-critics-get-so-nice.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/06/opinion/supreme-court-tariffs-venezuela-national-
 **Homes for Sale in New York and New Jersey**\
 `This week’s properties are a 1790 farmhouse in Ossining and a brick house in Trenton.`\
 https://nytimes.com/2025/11/06/realestate/housing-market-near-nyc.html
-
-**Homes for Sale in Manhattan and Brooklyn**\
-`This week’s properties are in Inwood, Greenwich Village and Greenpoint.`\
-https://nytimes.com/2025/11/06/realestate/housing-market-nyc.html
 
