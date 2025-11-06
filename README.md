@@ -1,3 +1,15 @@
+**Supreme Court Clears Way for Trump Transgender Passport Policy**\
+`A lower court judge had temporarily blocked the administration’s policy requiring that passports reflect sex as found on an original birth certificate.`\
+https://nytimes.com/2025/11/06/us/politics/supreme-court-transgender-passport.html
+
+**Challenges and Cheers for Bill Gates on Climate**\
+`Readers respond to news and opinion articles about Bill Gates’s public memo on climate change. Also: Interfaith connections; the myth of originalism.`\
+https://nytimes.com/2025/11/06/opinion/bill-gates-climate.html
+
+**Fantasy basketball hot topics of the week: Tyrese Maxey 2.0, problems in Dallas and more**\
+`Stan Son discusses some of the hottest fantasy basketball topics, like Josh Giddey's chance at the MVP award and Jeremiah Fears' progress. `\
+https://nytimes.com/athletic/6784808/2025/11/06/fantasy-basketball-hot-topics-tyrese-maxey/
+
 **Key Questions From Conservative Justices in the Tariffs Case**\
 `A lively argument spanning almost three hours featured illuminating exchanges that tested the usual commitments of some of the justices on the right side of the court.`\
 https://nytimes.com/2025/11/06/us/conservative-justices-tariffs-case.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6785074/2025/11/06/ducks-vs-stars-stream-how-to-wat
 **Giannis Antetokounmpo to Marquette? Shaka Smart would love to make it happen**\
 `The NCAA has been allowing overseas players to become eligible and Giannis was drafted straight out of Greece.`\
 https://nytimes.com/athletic/6784832/2025/11/06/giannis-antetokounmpo-bucks-marquette-shaka-smart/
-
-**When I’m Sick of Doomscrolling, I Turn to This Poem**\
-`“Monet’s ‘Waterlilies,’” by Robert Hayden, reflects on what art can (and can’t) do in tumultuous times. Our critic A.O. Scott shows you why he loves it.`\
-https://nytimes.com/interactive/2025/11/06/books/robert-hayden-poem-monets-waterlilies.html
-
-**Britain Faces Up to Tough Economic Choices. Finally, Economists Say.**\
-`The central bank held interest rates steady on Thursday, a decision that came at a time when British policymakers and lawmakers are confronting economic challenges.`\
-https://nytimes.com/2025/11/06/business/britain-economy-interest-rates.html
-
-**Climate Diplomacy and Hardball Tactics**\
-`With this year’s global climate summit opening in Brazil, we offer a glimpse of how the Trump administration sometimes operates behind closed doors.`\
-https://nytimes.com/2025/11/06/climate/climate-diplomacy-and-hardball-tactics.html
 
