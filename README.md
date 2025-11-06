@@ -1,3 +1,7 @@
+**Radiation May Be Unnecessary for Many Breast Cancer Patients**\
+`Doctors have already begun reducing radiation treatment for women at low risk of recurrence or spread of the disease. A new study finds that some women at greater risk can safely avoid radiation.`\
+https://nytimes.com/2025/11/05/health/breast-cancer-radiation.html
+
 **Florida Man Threatened James Comey and Letitia James, Complaint Says**\
 `Gregory Formicone, of Bradenton, Fla., used online comments to call for several of President Trump’s most prominent adversaries to be targeted, the authorities said.`\
 https://nytimes.com/2025/11/05/us/man-arrested-threats-james-comey-letitia-james.html
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6729566/2025/11/05/alex-ovechkin-900-goals-record-n
 `The classified meeting did not relieve mounting unease among lawmakers over President Trump’s expanding campaign of lethal strikes against drug cartels.`\
 https://nytimes.com/2025/11/05/us/politics/trump-drug-boat-strikes-democrats.html
 
-**Ex-Giants manager Bruce Bochy finalizing deal to return to S.F. as special assistant**\
+**Ex-Giants manager Bruce Bochy finalizing deal to return to San Francisco as special assistant**\
 `Bochy, who won three of his four World Series titles managing the Giants, will be back in San Francisco, where he managed for 13 seasons.`\
 https://nytimes.com/athletic/6782066/2025/11/05/bruce-bochy-giants-special-assistant/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/05/us/judge-chicago-ice-facility-conditions.html
 **Texas Tech, BYU fans help raise thousands to aid team barber after accident**\
 `After Maddie Ortiz suffered severe injuries in a car accident, the communities of Texas Tech and BYU rallied to help.`\
 https://nytimes.com/athletic/6781750/2025/11/05/texas-tech-byu-barber-donations/
-
-**Teaching About Trump’s Immigration Crackdown**\
-`A lesson plan that invites students to explore how President Trump’s immigration enforcement is affecting their communities.`\
-https://nytimes.com/2025/11/05/learning/lesson-plans/teaching-about-trumps-immigration-crackdown.html
 

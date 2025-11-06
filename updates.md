@@ -1,3 +1,7 @@
+**Florida Man Threatened James Comey and Letitia James, Complaint Says**\
+`Gregory Formicone, of Bradenton, Fla., used online comments to call for several of President Trump’s most prominent adversaries to be targeted, the authorities said.`\
+https://nytimes.com/2025/11/05/us/man-arrested-threats-james-comey-letitia-james.html
+
 **Jamie Dimon of JPMorgan Says He Has Reached Out to Zohran Mamdani**\
 `The banking giant’s C.E.O. said he wanted to keep lines of communication open with the mayor-elect of New York.`\
 https://nytimes.com/2025/11/05/business/jamie-dimon-zohran-mamdani.html
