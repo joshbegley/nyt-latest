@@ -1,3 +1,11 @@
+**What a Rough Day in Court Means for Trump’s Tariffs**\
+`Businesses and investors are bracing for uncertainty after Supreme Court justices questioned the legality of a core part of the president’s trade policy.`\
+https://nytimes.com/2025/11/06/business/dealbook/supreme-court-trump-tariff.html
+
+**Key fantasy football questions for Week 10: Committee concerns for Bears, Rams?**\
+`Dalton Del Don looks at the key fantasy football topics for Week 10, including developing backfield timeshares in Chicago and Los Angeles.`\
+https://nytimes.com/athletic/6782483/2025/11/06/key-fantasy-football-questions-week-10/
+
 **How to watch women's UCSB vs. UCLA basketball: Time, TV, streaming**\
 `Find out how to watch the UCSB Gauchos play the UCLA Bruins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6783483/2025/11/06/ucsb-vs-ucla-stream-how-to-watch-nov-6/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6783105/2025/11/06/rockets-offensive-rebounding-nba
 **McLaren willing to risk losing F1 drivers’ title over ‘playing favorites’ between Norris and Piastri**\
 `Norris currently leads the world championship by one point from Piastri with four rounds remaining, with Max Verstappen 36 points behind.`\
 https://nytimes.com/athletic/6783345/2025/11/06/mclaren-drivers-title-norris-piastri-f1/
-
-**Doc Rivers has leaned into all-bench lineups for the Bucks. But why?**\
-`Two weeks into the season, no team has played more all-bench units than Milwaukee. And it's not going well.`\
-https://nytimes.com/athletic/6778533/2025/11/06/bucks-doc-rivers-bench-lineup-nba/
-
-**A Fight Over Maps**\
-`We explain a California vote to flip as many as five House seats for Democrats next year.`\
-https://nytimes.com/2025/11/06/briefing/a-fight-over-maps.html
 
