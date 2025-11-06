@@ -1,3 +1,7 @@
+**Nets snap 7-game slide, earn first win of season against Pacers**\
+`Brooklyn won despite losing leading scorer Cam Thomas to a hamstring injury two minutes into the game.`\
+https://nytimes.com/athletic/6782497/2025/11/05/brooklyn-nets-win-jordi-fernandez-nba/
+
 **Stumbling Blocks**\
 `Sam Brody gets us all mixed up.`\
 https://nytimes.com/2025/11/05/crosswords/daily-puzzle-11-06-2025.html
