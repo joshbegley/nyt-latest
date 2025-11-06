@@ -1,3 +1,11 @@
+**Manchester United, depression, and being 'far from finished': Takeaways from Mary Earps' book**\
+`Earps' new autobiography, All In: Football, Life and Learning to be Unapologetically Me, is published Thursday`\
+https://nytimes.com/athletic/6768979/2025/11/05/mary-earps-book-takeaways-hampton-england/
+
+**Switzerland, struggling with higher tariffs, is seeking a new U.S. deal.**\
+`By Liz Alderman`\
+https://nytimes.com/live/2025/11/05/us/trump-shutdown-news/trump-tariffs-switzerland-trade-deal
+
 **Martinez to leave Earthquakes, eligible for MLS free agency**\
 `The 32-year-old Venezuela international forward was San Jose’s leading goal scorer this season with 14 goals in league play.`\
 https://nytimes.com/athletic/6782037/2025/11/05/josef-martinez-san-jose-earthquakes-transfer/

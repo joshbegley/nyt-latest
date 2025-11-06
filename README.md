@@ -1,3 +1,7 @@
+**Remains of the Last American Hostage Held in Gaza Returned to Israel**\
+`Israeli officials told Itay Chen’s family last year that he was probably killed on Oct. 7, 2023, but relatives put off mourning until his body had come home.`\
+https://nytimes.com/2025/11/05/world/middleeast/american-hostage-body-gaza.html
+
 **Manchester United, depression, and being 'far from finished': Takeaways from Mary Earps' book**\
 `Earps' new autobiography, All In: Football, Life and Learning to be Unapologetically Me, is published Thursday`\
 https://nytimes.com/athletic/6768979/2025/11/05/mary-earps-book-takeaways-hampton-england/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/05/us/politics/house-election-ken-calvert-young-kim.
 **After ‘Seismic’ Win, New Jersey’s Next Governor Says She Has a Mandate**\
 `Representative Mikie Sherrill, a Democrat, defeated her Republican opponent, Jack Ciattarelli, by 13 points as voter turnout surged.`\
 https://nytimes.com/2025/11/05/nyregion/mikie-sherrill-new-jersey-mandate.html
-
-**Anthony Edwards returns to lineup after 4-game absence with hamstring injury**\
-`The Timberwolves went 2-2 without their star, who has been one of the most durable players in the NBA over the past few seasons.`\
-https://nytimes.com/athletic/6778486/2025/11/05/anthony-edwards-injury-status-timberwolves-knicks/
 
