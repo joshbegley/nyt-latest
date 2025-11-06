@@ -1,3 +1,11 @@
+**Kante back in France squad for first time in a year**\
+`The 34-year-old has 64 senior caps and was part of the side that won the 2018 World Cup.`\
+https://nytimes.com/athletic/6783336/2025/11/06/ngolo-kante-france-squad-kolo-muani/
+
+**NWSL playoff preview: How to watch, key matchups and bold predictions**\
+`Here's what you need to know ahead of the 2025 NWSL playoffs. `\
+https://nytimes.com/athletic/6782270/2025/11/06/nwsl-playoffs-how-to-watch-2025/
+
 **Pelosi Plans to Retire in 2027 After 39 Years in Congress**\
 `Representative Nancy Pelosi, the only female House speaker, said she will not run for re-election. She wielded immense power and became a Democratic icon, while she was demonized by conservatives.`\
 https://nytimes.com/2025/11/06/us/politics/nancy-pelosi-house-retire.html
