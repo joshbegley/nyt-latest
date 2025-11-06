@@ -1,3 +1,7 @@
+**They Fell in Love With A.I. Chatbots — and Found Something Real**\
+`Three people on the joys and anxieties of A.I. romances.`\
+https://nytimes.com/interactive/2025/11/05/magazine/ai-chatbot-marriage-love-romance-sex.html
+
 **Paige Bueckers joins expansion team as Unrivaled reveals rosters for 2026**\
 `Unrivaled debuted in 2025 with six teams of six players but expanded to eight clubs for its second season.`\
 https://nytimes.com/athletic/6782054/2025/11/05/unrivaled-rosters-2026-season/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/05/world/middleeast/american-hostage-body-gaza.html
 **Manchester United, depression, and being 'far from finished': Takeaways from Mary Earps' book**\
 `Earps' new autobiography, All In: Football, Life and Learning to be Unapologetically Me, is published Thursday`\
 https://nytimes.com/athletic/6768979/2025/11/05/mary-earps-book-takeaways-hampton-england/
-
-**Switzerland, struggling with higher tariffs, is seeking a new U.S. deal.**\
-`By Liz Alderman`\
-https://nytimes.com/live/2025/11/05/us/trump-shutdown-news/trump-tariffs-switzerland-trade-deal
 
