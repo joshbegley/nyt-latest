@@ -1,3 +1,11 @@
+**Sri Owen, Who Popularized Indonesian Cuisine, Dies at 90**\
+`Settling in England as a young woman, she turned her nostalgia for the food of her youth in Sumatra into a career as an influential cookbook author.`\
+https://nytimes.com/2025/11/06/dining/sri-owen-dead.html
+
+**How Child Abuse Pediatricians Approach Their Work**\
+`Following the release of “The Preventionist,” a group of CAPs discuss diagnostic uncertainty, second opinions and the future of the field.`\
+https://nytimes.com/2025/11/06/podcasts/serial-the-preventionist-podcast-caps-roundtable.html
+
 **Where to Travel After a Breakup**\
 `And more answers to readers’ winter vacation queries.`\
 https://nytimes.com/2025/11/06/t-magazine/relationship-breakup-winter-vacation-ideas.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6785317/2025/11/06/matt-rhule-marshawn-kneeland-dea
 **Kazakhstan May Join the Trump-Brokered Abraham Accords**\
 `The Central Asian country already has diplomatic relations with Israel, but the move appears to be a good-will gesture to President Trump.`\
 https://nytimes.com/2025/11/06/us/politics/kazakhstan-abraham-accords.html
-
-**COP30 Kicks Off in Brazil, Amid Climate Protests**\
-`Diplomats and leaders gather on the edge of the Amazon forest in Belém, Brazil, for annual talks on how to limit global warming. This happens as protesters and activists stage protests to call for more urgent action against climate change.`\
-https://nytimes.com/video/climate/100000010508466/cop30-kicks-off-in-brazil-amid-climate-protests.html
-
-**Dodgers designate former All-Star Tony Gonsolin for assignment**\
-`The Los Angeles Dodgers designated 2022 All-Star Tony Gonsolin for assignment amidst a flurry of roster-clearing moves on Thursday, officially ending the tenure of one of the club’s draft and development success stories.`\
-https://nytimes.com/athletic/6785424/2025/11/06/dodgers-tony-gonsolin-designated-for-assignment/
 
