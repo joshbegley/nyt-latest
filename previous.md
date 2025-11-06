@@ -1,3 +1,19 @@
+**Rockies to hire Browns' Paul DePodesta as head of baseball operations: Sources**\
+`DePodesta will return to a baseball front office after nearly a decade of working in the NFL.`\
+https://nytimes.com/athletic/6785121/2025/11/06/paul-depodesta-colorado-rockies-cleveland-browns/
+
+**A Sexual Assault on the President Exposes Mexico’s Endemic Machismo**\
+`President Claudia Sheinbaum was groped on the street this week, in an assault that set off a national conversation about what has and has not changed since Mexico elected its first female leader.`\
+https://nytimes.com/2025/11/06/world/americas/mexico-sheinbaum-women-abuse.html
+
+**Why Is Trump Threatening to Intervene In Nigeria?**\
+`President Trump has threatened to send troops to Nigeria, where he says Christianity faces an “existential threat,” an accusation that Nigeria has denied. Ruth Maclean, our West Africa bureau chief, describes how the violence in Nigeria is affecting people of all religions, not only Christians.`\
+https://nytimes.com/video/world/africa/100000010499997/why-is-trump-threatening-to-intervene-in-nigeria.html
+
+**When Does Mamdani Officially Become Mayor of New York City?**\
+`Zohran Mamdani will take charge just after midnight on Jan. 1, 2026, as required by city law. A swearing-in ceremony will follow soon after.`\
+https://nytimes.com/2025/11/06/nyregion/mamdani-nyc-mayor-swearing-in-inauguration.html
+
 **I.R.S. Halts Free Online Offering for Filing Taxes Directly**\
 `The new program, Direct File, helped low- and moderate-income taxpayers file their returns more easily, and had been expanding.`\
 https://nytimes.com/2025/11/06/business/taxes-irs-direct-file.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/11/06/opinion/bill-gates-climate.html
 **Fantasy basketball hot topics of the week: Tyrese Maxey 2.0, problems in Dallas and more**\
 `Stan Son discusses some of the hottest fantasy basketball topics, like Josh Giddey's chance at the MVP award and Jeremiah Fears' progress. `\
 https://nytimes.com/athletic/6784808/2025/11/06/fantasy-basketball-hot-topics-tyrese-maxey/
-
-**Key Questions From Conservative Justices in the Tariffs Case**\
-`A lively argument spanning almost three hours featured illuminating exchanges that tested the usual commitments of some of the justices on the right side of the court.`\
-https://nytimes.com/2025/11/06/us/conservative-justices-tariffs-case.html
-
-**How to watch Panthers vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Florida Panthers play the Los Angeles Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6785082/2025/11/06/panthers-vs-kings-stream-how-to-watch-nov-6/
-
-**How to watch Clippers vs. Suns: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Clippers play the Phoenix Suns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6785080/2025/11/06/clippers-vs-suns-stream-how-to-watch-nov-6/
-
-**How to watch Flyers vs. Predators: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Flyers play the Nashville Predators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6785078/2025/11/06/flyers-vs-predators-stream-how-to-watch-nov-6/
 
