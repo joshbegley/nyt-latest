@@ -1,3 +1,7 @@
+**A Group of CAPs Discuss Their Work**\
+`Five pediatricians on diagnostic uncertainty, second opinions and the future of the field.`\
+https://nytimes.com/2025/11/06/podcasts/a-group-of-caps-discuss-their-work.html
+
 **Sri Owen, Who Popularized Indonesian Cuisine, Dies at 90**\
 `Settling in England as a young woman, she turned her nostalgia for the food of her youth in Sumatra into a career as an influential cookbook author.`\
 https://nytimes.com/2025/11/06/dining/sri-owen-dead.html
