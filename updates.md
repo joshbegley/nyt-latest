@@ -1,3 +1,7 @@
+**Does Jennifer Lawrence Mean Anything She Says?**\
+`The actress Jennifer Lawrence talks about her experiences with directors and how personally she takes feedback in a conversation with Lulu Garcia-Navarro on “The Interview.”`\
+https://nytimes.com/video/podcasts/100000010501711/does-jennifer-lawrence-mean-anything-she-says.html
+
 **Pacers guard Mac McClung feels 'very lucky to be' in Indiana**\
 `The three-time All-Star Weekend Slam Dunk winner and 2024 G League MVP hopes he has found an NBA home with the Pacers.`\
 https://nytimes.com/athletic/6783537/2025/11/06/pacers-mac-mcclung-indiana-roster/
