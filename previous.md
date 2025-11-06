@@ -1,3 +1,19 @@
+**Rico Dowdle fined for ‘Key & Peele’ celebration, starts charity GoFundMe**\
+`As of Thursday morning, more than $14,700 has been raised for the Children's Home Society of North Carolina.`\
+https://nytimes.com/athletic/6783496/2025/11/06/rico-dowdle-key-peele-gofundme/
+
+**Planting a Flag, and a Flagship, for Black Art**\
+`The reopening of the Studio Museum in Harlem, after seven years of construction, comes with dazzling alumni and collection shows.`\
+https://nytimes.com/2025/11/06/arts/design/studio-museum-art-review.html
+
+**ESPN ending sports betting partnership with PENN early, shifting to DraftKings**\
+`ESPN reached a 10-year, $2 billion deal in 2023 that included rebranding Penn’s sportsbook as ESPN Bet.`\
+https://nytimes.com/athletic/6783495/2025/11/06/espn-bet-penn-draftkings-partnership/
+
+**Her Research Could Improve Training for Service Dogs**\
+`“This is a type of science that has an impact that most people could see in their homes,” said Erin Hecht, a canine researcher at Harvard. “Now there’s just no money.”`\
+https://nytimes.com/2025/11/06/science/lost-science-hecht-service-dogs.html
+
 **College football picks ATS: Big Ten contenders hit the road plus a Big 12 showdown**\
 `The top three teams in the CFP rankings hit the road and the Big 12 features a massive showdown in Lubbock.`\
 https://nytimes.com/athletic/6781384/2025/11/06/college-football-picks-against-the-spread-indiana-texas-tech-byu-oregon/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6783323/2025/11/06/blue-jackets-loss-sean-monahan-i
 **Mark Zuckerberg and Priscilla Chan Restructure Their Philanthropy**\
 `The Chan Zuckerberg Initiative said its restructured organization, Biohub, would lead its focus on artificial intelligence and scientific research.`\
 https://nytimes.com/2025/11/06/technology/zuckerberg-chan-initiative-biohub.html
-
-**Kante back in France squad for first time in a year**\
-`The 34-year-old has 64 senior caps and was part of the side that won the 2018 World Cup.`\
-https://nytimes.com/athletic/6783336/2025/11/06/ngolo-kante-france-squad-kolo-muani/
-
-**NWSL playoff preview: How to watch, key matchups and bold predictions**\
-`Here's what you need to know ahead of the 2025 NWSL playoffs. `\
-https://nytimes.com/athletic/6782270/2025/11/06/nwsl-playoffs-how-to-watch-2025/
-
-**Pelosi Plans to Retire in 2027 After 39 Years in Congress**\
-`Representative Nancy Pelosi, the only female House speaker, said she will not run for re-election. She wielded immense power and became a Democratic icon, while she was demonized by conservatives.`\
-https://nytimes.com/2025/11/06/us/politics/nancy-pelosi-house-retire.html
-
-**Ajay Mitchell, Ryan Rollins and 10 players you might not know but should**\
-`These guys aren't household names (yet), but they're making noteworthy impacts on their respective teams.`\
-https://nytimes.com/athletic/6779285/2025/11/06/ajay-mitchell-ryan-rollins-nba-under-radar/
 
