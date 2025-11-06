@@ -1,3 +1,7 @@
+**Egypt’s Grand Museum Is Finally Open. Now, ‘We Need Our Stuff Back.’**\
+`The museum’s most anticipated exhibit is the full 5,500 items from King Tutankhamen’s tomb. Egyptians say it’s time to experience their most precious antiquities at home.`\
+https://nytimes.com/2025/11/06/arts/design/grand-egyptian-museum-opening.html
+
 **How Cardinals RB Emari Demercado got past one of football's most 'bone-headed' mistakes**\
 `The Cardinals have struggled closing all season. Yet, in Monday's final minutes, the poster child of their ineptness made the smartest play.`\
 https://nytimes.com/athletic/6782570/2025/11/06/emari-demercado-arizona-cardinals-end-zone-fumble-mistake/
