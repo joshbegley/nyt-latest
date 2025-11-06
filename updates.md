@@ -1,3 +1,7 @@
+**How China’s Rare Earth Chokehold Could Strangle Europe’s Military Buildup**\
+`Drones, missiles and other crucial components of Europe’s rush to rearm itself rely on an increasingly unsteady supply of minerals from China.`\
+https://nytimes.com/2025/11/06/business/rare-earth-china-europe.html
+
 **'We're dealing with it': Rookies are easing Hurricanes' pain on the blue line**\
 `Alexander Nikishin and three other blueliners have been forced into bigger roles — but it's working.`\
 https://nytimes.com/athletic/6782612/2025/11/06/carolina-hurricanes-injuries-defense-rookies/
