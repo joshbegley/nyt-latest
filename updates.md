@@ -1,3 +1,11 @@
+**Doc Rivers has leaned into all-bench lineups for the Bucks. But why?**\
+`Two weeks into the season, no team has played more all-bench units than Milwaukee. And it's not going well.`\
+https://nytimes.com/athletic/6778533/2025/11/06/bucks-doc-rivers-bench-lineup-nba/
+
+**A Fight Over Maps**\
+`We explain a California vote to flip as many as five House seats for Democrats next year.`\
+https://nytimes.com/2025/11/06/briefing/a-fight-over-maps.html
+
 **The NBA is figuring out how to guard Victor Wembanyama. How will he respond?**\
 `Wembanyama looked untouchable early this season, but reality has hit the Spurs. Now what?`\
 https://nytimes.com/athletic/6783113/2025/11/06/victor-wembanyama-defenses-spurs-game-plan/
