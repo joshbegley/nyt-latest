@@ -1,3 +1,7 @@
+**Don Mattingly leaving Blue Jays post as bench coach: Source**\
+`Mattingly's departure comes while one managerial vacancy remains in the majors and other staffs have yet to be finalized.`\
+https://nytimes.com/athletic/6784042/2025/11/06/don-mattingly-leaving-blue-jays/
+
 **John Russell Taylor, 90, Dies; Cultural Critic and Hitchcock Biographer**\
 `A prolific journalist and author, he wrote the only authorized biography of Alfred Hitchcock and heaped early praise on the future Nobel laureate Harold Pinter.`\
 https://nytimes.com/2025/11/06/books/john-russell-taylor-dead.html

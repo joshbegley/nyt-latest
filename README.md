@@ -1,3 +1,16 @@
+**NFL vibes-based predictions, a baseball heartbreaker and why did Tom Brady clone his dog?**\
+`Sports Gossip Show: Who will win the vibes war between the Patriots and Buccaneers (aka the Brady Bowl)?
+`\
+https://nytimes.com/athletic/6782239/2025/11/06/sports-gossip-show-tom-brady-baker-mayfield-drake-maye/
+
+**Sauce Gardner thrilled to be with Colts, not 'shocked' Jets traded him**\
+`Gardner goes from playing for the 1-7 Jets to the 7-2 Colts. `\
+https://nytimes.com/athletic/6783971/2025/11/06/sauce-gardner-trade-colts-jets-shocked/
+
+**WTA Tour Finals results: Aryna Sabalenka eliminates Coco Gauff after Jessica Pegula qualifies**\
+`One group has a straight shootout, while the other sees a three-way fight for two semifinal places.`\
+https://nytimes.com/athletic/6779714/2025/11/06/wta-tour-finals-results-round-robin-qualification-scenarios/
+
 **John Russell Taylor, 90, Dies; Cultural Critic and Hitchcock Biographer**\
 `A prolific journalist and author, he wrote the only authorized biography of Alfred Hitchcock and heaped early praise on the future Nobel laureate Harold Pinter.`\
 https://nytimes.com/2025/11/06/books/john-russell-taylor-dead.html
@@ -25,16 +38,4 @@ https://nytimes.com/athletic/6784106/2025/11/06/marshawn-kneeland-death-nfl-comm
 **‘Queens’ Review: The Heavy Burden of Past Lives and Uncertain Futures**\
 `Martyna Majok reimagines her 2018 play about the immigrant women who at various points live in a basement apartment in the New York City borough.`\
 https://nytimes.com/2025/11/06/theater/queens-review-martyna-majok.html
-
-**Don Mattingly leaving Blue Jays post as bench coach: Source**\
-`Mattingly's departure comes while one managerial vacancy remains in the majors and other staffs have yet to be finalized.`\
-https://nytimes.com/athletic/6784042/2025/11/06/don-mattingly-leaving-blue-jays/
-
-**NHL reviewing Arthur Kaliyev gambling, finance allegations: Report**\
-`The 24-year-old forward joined the Senators this offseason after stops with the Los Angeles Kings and New York Rangers.`\
-https://nytimes.com/athletic/6783929/2025/11/06/senators-kaliyev-gambling-nhl/
-
-**Does Jennifer Lawrence Mean Anything She Says?**\
-`The actress Jennifer Lawrence talks about her experiences with directors and how personally she takes feedback in a conversation with Lulu Garcia-Navarro on “The Interview.”`\
-https://nytimes.com/video/podcasts/100000010501711/does-jennifer-lawrence-mean-anything-she-says.html
 

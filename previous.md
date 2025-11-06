@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6784106/2025/11/06/marshawn-kneeland-death-nfl-comm
 https://nytimes.com/2025/11/06/theater/queens-review-martyna-majok.html
 
 **Don Mattingly leaving Blue Jays post as bench coach: Source**\
-`Mattingly's departure comes while two managerial vacancies remain in the majors and other staffs have yet to be finalized.`\
+`Mattingly's departure comes while one managerial vacancy remains in the majors and other staffs have yet to be finalized.`\
 https://nytimes.com/athletic/6784042/2025/11/06/don-mattingly-leaving-blue-jays/
 
 **NHL reviewing Arthur Kaliyev gambling, finance allegations: Report**\
