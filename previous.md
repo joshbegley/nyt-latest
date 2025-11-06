@@ -1,3 +1,7 @@
+**Pacers' already-frustrating season continues with Rick Carlisle ejection**\
+`An unhappy Rick Carlisle was ejected from a Pacers-Nets matchup after two quick technical fouls in the third quarter.`\
+https://nytimes.com/athletic/6782462/2025/11/05/rick-carlisle-ejected-pacers-nets/
+
 **Radiation May Be Unnecessary for Many Breast Cancer Patients**\
 `Doctors have already begun reducing radiation treatment for women at low risk of recurrence or spread of the disease. A new study finds that some women at greater risk can safely avoid radiation.`\
 https://nytimes.com/2025/11/05/health/breast-cancer-radiation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6782054/2025/11/05/unrivaled-rosters-2026-season/
 **Federal Judge Imposes Restrictions on ICE Facility at Center of Illinois Protests**\
 `After detainees described squalid conditions at the detention site, a judge ordered the government to provide showers, water, clean toilets and access to lawyers.`\
 https://nytimes.com/2025/11/05/us/judge-chicago-ice-facility-conditions.html
-
-**Texas Tech, BYU fans help raise thousands to aid team barber after accident**\
-`After Maddie Ortiz suffered severe injuries in a car accident, the communities of Texas Tech and BYU rallied to help.`\
-https://nytimes.com/athletic/6781750/2025/11/05/texas-tech-byu-barber-donations/
 
