@@ -1,3 +1,7 @@
+**How China’s Rare Earth Chokehold Could Strangle Europe’s Military Buildup**\
+`Drones, missiles and other crucial components of Europe’s rush to rearm itself rely on an increasingly unsteady supply of minerals from China.`\
+https://nytimes.com/2025/11/06/business/rare-earth-china-europe.html
+
 **'We're dealing with it': Rookies are easing Hurricanes' pain on the blue line**\
 `Alexander Nikishin and three other blueliners have been forced into bigger roles — but it's working.`\
 https://nytimes.com/athletic/6782612/2025/11/06/carolina-hurricanes-injuries-defense-rookies/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/06/technology/personaltech/ai-social-media-brain-rot
 **Mexico’s President Presses Charges After Being Groped on the Street**\
 `President Claudia Sheinbaum of Mexico said she filed a complaint against a man who groped and tried to kiss her in a public episode captured on video.`\
 https://nytimes.com/video/world/americas/100000010508005/sheinbaum-mexico-harassment-charges.html
-
-**'Bend it like Burn': Analysing Dan Burn's wonder-header with Les Ferdinand**\
-`The giant Geordie defender scored a 'unique' headed goal against Athletic Club. One of the finest exponents of the craft breaks it down`\
-https://nytimes.com/athletic/6783312/2025/11/06/newcastle-burn-wonder-header-ferdinand/
 
