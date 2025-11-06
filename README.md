@@ -1,3 +1,11 @@
+**5 Pressing Housing Issues for Mamdani, From Airbnb to Angry Landlords**\
+`When Zohran Mamdani becomes mayor, he will immediately have to confront a host of issues that have little to do with “freezing the rent,” his main housing-related pledge.`\
+https://nytimes.com/2025/11/06/nyregion/zohran-mamdani-housing.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/06/crosswords/spelling-bee-forum.html
+
 **Sunderland. Arsenal. Xhaka. 'It was the worst day of my life. It was the best day of my life'**\
 `The Sunderland captain talks leadership, Arteta, Arsenal, the day he was booed off at the Emirates and his new side's aspirations`\
 https://nytimes.com/athletic/6776323/2025/11/06/xhaka-sunderland-arsenal-exclusive/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6781777/2025/11/06/phil-foden-erling-haaland-man-ci
 **Russell Westbrook is adjusting well in Sacramento after delayed signing**\
 `The Kings signed Westbrook in the middle of October, but his first triple-double with the team shows he's quickly paying dividends.`\
 https://nytimes.com/athletic/6782886/2025/11/06/russell-westbrook-kings-triple-double-nba/
-
-**Thunder lose to Trail Blazers as NBA's last undefeated team falls**\
-`The Thunder (8-1) had beaten Portland 16 consecutive times, but lost Wednesday.`\
-https://nytimes.com/athletic/6782898/2025/11/06/thunder-trail-blazers-nba/
-
-**The New York Times in Print for Thursday, Nov. 6, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/11/06/todays-new-york-times
 
