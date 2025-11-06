@@ -1,3 +1,7 @@
+**Goalie Jordan Binnington tries to hide Alex Ovechkin's 900th goal in his pants**\
+`As the Capitals celebrated Ovechkin's 900th goal, Binnington pulled the puck out of the net and put it in his pants. He gave it back later.`\
+https://nytimes.com/athletic/6782581/2025/11/05/jordan-binnington-returns-alex-ovechkin-900th-goal/
+
 **Nets snap 7-game slide, earn first win of season against Pacers**\
 `Brooklyn won despite losing leading scorer Cam Thomas to a hamstring injury two minutes into the game.`\
 https://nytimes.com/athletic/6782497/2025/11/05/brooklyn-nets-win-jordi-fernandez-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6729566/2025/11/05/alex-ovechkin-900-goals-record-n
 **Democrats Raise Concerns After Trump Administration Briefing on Boat Strikes**\
 `The classified meeting did not relieve mounting unease among lawmakers over President Trump’s expanding campaign of lethal strikes against drug cartels.`\
 https://nytimes.com/2025/11/05/us/politics/trump-drug-boat-strikes-democrats.html
-
-**Bruce Bochy hangs up his uniform, poised for advisory role with Giants**\
-`Bochy, who won three of his four World Series titles managing the Giants, will be back in San Francisco, where he managed for 13 seasons.`\
-https://nytimes.com/athletic/6782066/2025/11/05/bruce-bochy-giants-special-assistant/
 

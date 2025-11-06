@@ -1,3 +1,7 @@
+**Goalie Jordan Binnington tries to hide Alex Ovechkin's 900th goal in his pants**\
+`As the Capitals celebrated Ovechkin's 900th goal, Binnington pulled the puck out of the net and put it in his pants. He gave it back later.`\
+https://nytimes.com/athletic/6782581/2025/11/05/jordan-binnington-returns-alex-ovechkin-900th-goal/
+
 **Nets snap 7-game slide, earn first win of season against Pacers**\
 `Brooklyn won despite losing leading scorer Cam Thomas to a hamstring injury two minutes into the game.`\
 https://nytimes.com/athletic/6782497/2025/11/05/brooklyn-nets-win-jordi-fernandez-nba/
