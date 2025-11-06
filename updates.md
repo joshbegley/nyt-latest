@@ -1,3 +1,11 @@
+**They Fell in Love With A.I. Chatbots — and Found Something Real**\
+`Three people on the joys and anxieties of A.I. romances.`\
+https://nytimes.com/interactive/2025/11/05/magazine/ai-chatbot-marriage-love-romance-sex.html
+
+**Paige Bueckers joins expansion team as Unrivaled reveals rosters for 2026**\
+`Unrivaled debuted in 2025 with six teams of six players but expanded to eight clubs for its second season.`\
+https://nytimes.com/athletic/6782054/2025/11/05/unrivaled-rosters-2026-season/
+
 **Unrivaled announces rosters for 2026 season**\
 `Unrivaled debuted in 2025 with six teams of six players but expanded to eight clubs for its second season.`\
 https://nytimes.com/athletic/6782054/2025/11/05/unrivaled-rosters-2026-season/
