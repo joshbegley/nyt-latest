@@ -1,3 +1,7 @@
+**Word of the Day: invigorate**\
+`This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/06/learning/word-of-the-day-invigorate.html
+
 **How Phil Foden and Erling Haaland are reimagining the traditional front two**\
 `In the past, Phil Foden and Erling Haaland have looked to be on different wavelengths but the duo are now complementing each other`\
 https://nytimes.com/athletic/6781777/2025/11/06/phil-foden-erling-haaland-man-city-borussia-dortmund/
