@@ -1,3 +1,15 @@
+**Reyna's USMNT return a 'special situation' that mixes Pochettino's message**\
+`For months, Mauricio Pochettino has preached how all players need to earn their USMNT places. Gio Reyna is the exception to his rule`\
+https://nytimes.com/athletic/6784415/2025/11/06/gio-reyna-usmnt-return-mauricio-pochettino-world-cup/
+
+**What Can Cosmic Dust Tell Us About the Changing Arctic?**\
+`Extraterrestrial particles found at the bottom of the Arctic Ocean could unlock at least 30,000 years of sea ice history, a new study finds.`\
+https://nytimes.com/2025/11/06/climate/arctic-sea-ice-cosmic-dust.html
+
+**Ed Moloney, Chronicler of the Troubles in Northern Ireland, Dies at 77**\
+`He wrote a history of the Irish Republican Army and directed a project that secretly collected oral histories of paramilitary fighters.`\
+https://nytimes.com/2025/11/06/world/europe/ed-moloney-dead.html
+
 **How WTA Tour Finals math put out the fire of a Sabalenka vs. Gauff revenge bout**\
 `Gauff lost the first set against Sabalenka, when she would ordinarily dig in for a three-set marathon. At this event, she needed to sprint.`\
 https://nytimes.com/athletic/6784678/2025/11/06/tennis-wta-tour-finals-gauff-sabalenka/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/06/us/sara-ellis-gregory-bovino-tear-gas-illinois.ht
 **What We Can Learn From Brain Organoids**\
 `Lab-grown “reductionist replicas” of the human brain are helping scientists understand fetal development and cognitive disorders, including autism. But ethical questions loom.`\
 https://nytimes.com/2025/11/06/science/brain-organoids-neurons.html
-
-**Scoop City: Evaluating Broncos and Raiders before tonight's clash**\
-`Are the 7-2 Broncos as good as their record suggests? How about the 2-6 Raiders? We evaluate both.`\
-https://nytimes.com/athletic/6784736/2025/11/06/broncos-raiders-legit-nfl-2025-scoop-city/
-
-**Dallas Cowboys Player Marshawn Kneeland Dies at 24**\
-`The police said he appeared to have taken his own life.`\
-https://nytimes.com/2025/11/06/us/marshawn-kneeland-suicide-cowboys.html
-
-**Paul Ignatius, 104, Navy Secretary and Vietnam-Era Defense Official, Dies**\
-`He oversaw supplies for the war effort under Lyndon B. Johnson and later had a brief, rocky tenure as president of The Washington Post during the Pentagon Papers case.`\
-https://nytimes.com/2025/11/06/us/politics/paul-ignatius-dead.html
 
