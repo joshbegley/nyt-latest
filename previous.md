@@ -1,3 +1,15 @@
+**Unrivaled announces rosters for 2026 season**\
+`Unrivaled debuted in 2025 with six teams of six players but expanded to eight clubs for its second season.`\
+https://nytimes.com/athletic/6782054/2025/11/05/unrivaled-rosters-2026-season/
+
+**Federal Judge Imposes Restrictions on ICE Facility at Center of Illinois Protests**\
+`After detainees described squalid conditions at the detention site, a judge ordered the government to provide showers, water, clean toilets and access to lawyers.`\
+https://nytimes.com/2025/11/05/us/judge-chicago-ice-facility-conditions.html
+
+**Texas Tech, BYU fans help raise thousands to aid team barber after accident**\
+`After Maddie Ortiz suffered severe injuries in a car accident, the communities of Texas Tech and BYU rallied to help.`\
+https://nytimes.com/athletic/6781750/2025/11/05/texas-tech-byu-barber-donations/
+
 **Teaching About Trump’s Immigration Crackdown**\
 `A lesson plan that invites students to explore how President Trump’s immigration enforcement is affecting their communities.`\
 https://nytimes.com/2025/11/05/learning/lesson-plans/teaching-about-trumps-immigration-crackdown.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6768979/2025/11/05/mary-earps-book-takeaways-hampto
 **Switzerland, struggling with higher tariffs, is seeking a new U.S. deal.**\
 `By Liz Alderman`\
 https://nytimes.com/live/2025/11/05/us/trump-shutdown-news/trump-tariffs-switzerland-trade-deal
-
-**Martinez to leave Earthquakes, eligible for MLS free agency**\
-`The 32-year-old Venezuela international forward was San Jose’s leading goal scorer this season with 14 goals in league play.`\
-https://nytimes.com/athletic/6782037/2025/11/05/josef-martinez-san-jose-earthquakes-transfer/
-
-**Infantino lauds President Trump, hints he may award him FIFA peace prize**\
-`The FIFA chief and the U.S. president have become firm allies ahead of the World Cup`\
-https://nytimes.com/athletic/6781983/2025/11/05/gianni-infantino-president-trump-fifa-world-cup-peace/
-
-**The Republicans Warning They Have a Problem**\
-`Off-year elections might hold more lessons for Republicans than Democrats.`\
-https://nytimes.com/2025/11/05/us/politics/elections-democrats-trump-republicans.html
 
