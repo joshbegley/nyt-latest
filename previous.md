@@ -1,3 +1,7 @@
+**Kyle Tucker, Bo Bichette headline 13 MLB players tendered qualifying offer**\
+`Here's a breakdown of everyone who received a qualifying offer, which if accepted would mean a one-year, $22.025 million contract.`\
+https://nytimes.com/athletic/6785458/2025/11/06/mlb-qualifying-offer-players-list/
+
 **Guardians decline pitcher John Means' 2026 option, trim 5 others from roster**\
 `Cleveland outrighted pitchers Kolby Allard, Matt Krook and Ben Lively, as well as catcher Dom Nuñez and infielder Will Wilson.`\
 https://nytimes.com/athletic/6781192/2025/11/06/guardians-decline-option-john-means/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/06/us/politics/democrats-republicans-shutdown-votes.
 **Trump Pressure Risks Free Speech at University of California, Judge Warns**\
 `A federal judge said that faculty members were being affected in their teaching and research by the Trump administration’s pressure campaign.`\
 https://nytimes.com/2025/11/06/us/trump-pressure-free-speech-university-of-california-lawsuit.html
-
-**Mets extend qualifying offer to closer Edwin Díaz**\
-`The 31-year-old closer is expected to test the market, but Díaz has said he would "love to come back" to the Mets.`\
-https://nytimes.com/athletic/6783806/2025/11/06/edwin-diaz-mets-qualifying-offer/
 

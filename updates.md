@@ -1,3 +1,7 @@
+**Kyle Tucker, Bo Bichette headline 13 MLB players tendered qualifying offer**\
+`Here's a breakdown of everyone who received a qualifying offer, which if accepted would mean a one-year, $22.025 million contract.`\
+https://nytimes.com/athletic/6785458/2025/11/06/mlb-qualifying-offer-players-list/
+
 **Guardians decline pitcher John Means' 2026 option, trim 5 others from roster**\
 `Cleveland outrighted pitchers Kolby Allard, Matt Krook and Ben Lively, as well as catcher Dom Nuñez and infielder Will Wilson.`\
 https://nytimes.com/athletic/6781192/2025/11/06/guardians-decline-option-john-means/
