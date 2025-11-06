@@ -1,40 +1,40 @@
-**Can the ATP Tour's Spotify partnership take tennis fans inside its players' headphones?**\
-`The men's tennis tour wants to attract younger audiences, but its focus on in-house efforts sometimes comes at the price of fan content.`\
-https://nytimes.com/athletic/6780714/2025/11/06/tennis-fans-content-atp-tour-spotify/
+**When Did Music Critics Get So Nice?**\
+`The writer and critic Kelefa Sanneh joins Wesley Morris to talk about the state of pop music criticism today.`\
+https://nytimes.com/video/podcasts/100000010499419/when-did-music-critics-get-so-nice.html
 
-**Boiler Tower at Power Plant in South Korea Collapses, Trapping Workers**\
-`The structure was being demolished when it collapsed. Two people were rescued, one was found in the rubble and six more were believed to still be buried.`\
-https://nytimes.com/2025/11/06/world/asia/korea-boiler-tower-collapse.html
+**Democrats Won Big Because They Won Over Trump Supporters**\
+`It wasn’t just about superior turnout. Party switchers played a significant role in Virginia and New Jersey.`\
+https://nytimes.com/2025/11/06/upshot/election-turnout-trump-hispanics.html
 
-**Luka Dončić keys Lakers' rotating lineup in win over Victor Wembanyama and the Spurs**\
-`The lineups keep changing but the results stay the same for the Lakers, who snuck past San Antonio for their fifth straight win.`\
-https://nytimes.com/athletic/6782973/2025/11/06/luka-doncic-victor-wembanyama-lakers-spurs/
+**‘Toy Story’: The Ultimate 30th Anniversary Quiz**\
+`Three decades, four films, two theme park lands, and $3.3 billion in worldwide box office revenue later, the franchise has become a staple of family movie nights. How well do you know your Star Command and Pizza Planet?`\
+https://nytimes.com/interactive/2025/11/06/movies/09cul-toystory-quiz.html
 
-**Philippines Faces Grim Typhoon Aftermath as Another Storm Approaches**\
-`As the death toll for Typhoon Kalmaegi rose into the triple digits, the country braced for another tropical storm expected this weekend.`\
-https://nytimes.com/2025/11/06/world/asia/philippines-typhoon-kalmaegi-aftermath.html
+**A Skeptical Supreme Court Puts Trump’s Economic Agenda in Question**\
+`President Trump has used his sweeping global tariffs as an economic tool and a political cudgel. A decision invalidating them could hamper his power.`\
+https://nytimes.com/2025/11/06/us/politics/supreme-court-trump-tariffs.html
 
-**5 Pressing Housing Issues for Mamdani, From Airbnb to Angry Landlords**\
-`When Zohran Mamdani becomes mayor, he will immediately have to confront a host of issues that have little to do with “freezing the rent,” his main housing-related pledge.`\
-https://nytimes.com/2025/11/06/nyregion/zohran-mamdani-housing.html
+**Rock Star Glamour and Centrist Pragmatism: Democrats Had It All**\
+`The constructive, if messy, path forward is for the party to embrace an all-of-the-above approach.`\
+https://nytimes.com/2025/11/06/opinion/democrats-mamdani-sherrill-spanberger.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/11/06/crosswords/spelling-bee-forum.html
+**With Perseverance and a Down Payment Grant, a First-Time Buyer Found Her New York City Spot**\
+`Unsure how she could afford her own apartment in the city, a young renter scoured government programs and found one that worked for her. Here’s where she landed.`\
+https://nytimes.com/interactive/2025/11/06/realestate/brooklyn-manhattan-apartments-hdfc-coop.html
 
-**Sunderland. Arsenal. Xhaka. 'It was the worst day of my life. It was the best day of my life'**\
-`The Sunderland captain talks leadership, Arteta, Arsenal, the day he was booed off at the Emirates and his new side's aspirations`\
-https://nytimes.com/athletic/6776323/2025/11/06/xhaka-sunderland-arsenal-exclusive/
+**As Mamdani Surges Ahead, Schumer Risks Finding Himself Left Behind**\
+`The rise of New York City’s mayor-elect comes at a complicated moment in the career of Senator Chuck Schumer, who is in danger of looking out of touch with the prevailing energy back home.`\
+https://nytimes.com/2025/11/06/nyregion/schumer-mamdani-democrats-new-york.html
 
-**Late Night Celebrates a Consequential Election Day**\
-`“We needed a big night,” Jimmy Kimmel said. “Democrats have had fewer wins this year than the Jets.”`\
-https://nytimes.com/2025/11/06/arts/television/late-night-election-day-democrats.html
+**Trump Is Always Teaching Us About the Constitution**\
+`Where is the line between authority and authoritarianism?`\
+https://nytimes.com/2025/11/06/opinion/supreme-court-tariffs-venezuela-national-guard.html
 
-**Philippines Cleans Up After Typhoon Kalmaegi**\
-`Residents in the central Philippines returned to their mud-caked homes to clean up the aftermath of Typhoon Kalmaegi.`\
-https://nytimes.com/video/world/asia/100000010507476/philippines-typhoon-kalmaegi-aftermath.html
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties are a 1790 farmhouse in Ossining and a brick house in Trenton.`\
+https://nytimes.com/2025/11/06/realestate/housing-market-near-nyc.html
 
-**How to watch Eagles vs. Packers: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Eagles play the Green Bay Packers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6783007/2025/11/06/eagles-vs-packers-stream-how-to-watch-nov-10/
+**Homes for Sale in Manhattan and Brooklyn**\
+`This week’s properties are in Inwood, Greenwich Village and Greenpoint.`\
+https://nytimes.com/2025/11/06/realestate/housing-market-nyc.html
 
