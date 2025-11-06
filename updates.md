@@ -1,3 +1,8 @@
+**NFL vibes-based predictions, a baseball heartbreaker and why did Tom Brady clone his dog?**\
+`Sports Gossip Show: Who will win the vibes war between the Patriots and Buccaneers (aka the Brady Bowl)?
+`\
+https://nytimes.com/athletic/6782239/2025/11/06/sports-gossip-show-tom-brady-baker-mayfield-drake-maye/
+
 **In unexpected twist, Padres choose Craig Stammen as next manager**\
 `Stammen is now the sixth full-time manager under GM A.J. Preller.`\
 https://nytimes.com/athletic/6784440/2025/11/06/padres-name-craig-stammen-manager/
