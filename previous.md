@@ -1,3 +1,7 @@
+**LeBron James nearing Lakers return from sciatic nerve issue**\
+`The 40-year-old is one step closer to joining the Lakers for his 23rd NBA season after being sidelined since the preseason.`\
+https://nytimes.com/athletic/6784364/2025/11/06/lebron-james-nearing-los-angeles-lakers-return-sciatica/
+
 **Spurs and Sir Jim Ratcliffe's INEOS reach settlement to end legal dispute**\
 `Both parties confirmed to The Athletic that they had reached an out of court agreement but declined to provide details or comment further.`\
 https://nytimes.com/athletic/6784376/2025/11/06/tottenham-ineos-settlement-legal-dispute/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6782239/2025/11/06/sports-gossip-show-tom-brady-bak
 **Sauce Gardner thrilled to be with Colts, not 'shocked' Jets traded him**\
 `Gardner goes from playing for the 1-7 Jets to the 7-2 Colts. `\
 https://nytimes.com/athletic/6783971/2025/11/06/sauce-gardner-trade-colts-jets-shocked/
-
-**WTA Tour Finals results: Aryna Sabalenka eliminates Coco Gauff after Jessica Pegula qualifies**\
-`One group has a straight shootout, while the other sees a three-way fight for two semifinal places.`\
-https://nytimes.com/athletic/6779714/2025/11/06/wta-tour-finals-results-round-robin-qualification-scenarios/
 

@@ -1,3 +1,12 @@
+**LeBron James nearing Lakers return from sciatic nerve issue**\
+`The 40-year-old is one step closer to joining the Lakers for his 23rd NBA season after being sidelined since the preseason.`\
+https://nytimes.com/athletic/6784364/2025/11/06/lebron-james-nearing-los-angeles-lakers-return-sciatica/
+
+**NFL vibes-based predictions, a baseball heartbreaker and why did Tom Brady clone his dog?**\
+`Sports Gossip Show: Who will win the vibes war between the Patriots and Buccaneers (aka the Brady Bowl)?
+`\
+https://nytimes.com/athletic/6782239/2025/11/06/sports-gossip-show-tom-brady-baker-mayfield-drake-maye/
+
 **Spurs and Sir Jim Ratcliffe's INEOS reach settlement to end legal dispute**\
 `Both parties confirmed to The Athletic that they had reached an out of court agreement but declined to provide details or comment further.`\
 https://nytimes.com/athletic/6784376/2025/11/06/tottenham-ineos-settlement-legal-dispute/
