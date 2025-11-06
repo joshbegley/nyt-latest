@@ -1,3 +1,7 @@
+**Can the ATP Tour's Spotify partnership take tennis fans inside its players' headphones?**\
+`The men's tennis tour wants to attract younger audiences, but its focus on in-house efforts sometimes comes at the price of fan content.`\
+https://nytimes.com/athletic/6780714/2025/11/06/tennis-fans-content-atp-tour-spotify/
+
 **Boiler Tower at Power Plant in South Korea Collapses, Trapping Workers**\
 `The structure was being demolished when it collapsed. Two people were rescued, one was found in the rubble and six more were believed to still be buried.`\
 https://nytimes.com/2025/11/06/world/asia/korea-boiler-tower-collapse.html
