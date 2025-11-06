@@ -1,3 +1,7 @@
+**Matt Rhule delivers powerful speech following Marshawn Kneeland's death**\
+`The Nebraska coach spoke for more than three minutes on the importance of mental health awareness.`\
+https://nytimes.com/athletic/6785317/2025/11/06/matt-rhule-marshawn-kneeland-death/
+
 **Kazakhstan May Join the Trump-Brokered Abraham Accords**\
 `The Central Asian country already has diplomatic relations with Israel, but the move appears to be a good-will gesture to President Trump.`\
 https://nytimes.com/2025/11/06/us/politics/kazakhstan-abraham-accords.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/06/nyregion/stefanik-governor.html
 **Justice Dept. Is Said to Be Investigating D.C. Mayor Over Foreign Trip**\
 `The investigation into Muriel E. Bowser, which is being handled by the U.S. attorney’s office in Washington, could face significant hurdles because of the known facts of the case and recent turmoil inside the Justice Department.`\
 https://nytimes.com/2025/11/06/us/politics/trump-muriel-bowser-qatar-investigation.html
-
-**Wisconsin's Luke Fickell will coach next year, AD says**\
-`The embattled Badgers coach will return for at least one more season, weathering a very hot seat. `\
-https://nytimes.com/athletic/6785392/2025/11/06/luke-fickell-wisconsin-coach-returning/
 

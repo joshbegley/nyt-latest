@@ -1,3 +1,7 @@
+**Matt Rhule delivers powerful speech following Marshawn Kneeland's death**\
+`The Nebraska coach spoke for more than three minutes on the importance of mental health awareness.`\
+https://nytimes.com/athletic/6785317/2025/11/06/matt-rhule-marshawn-kneeland-death/
+
 **Kazakhstan May Join the Trump-Brokered Abraham Accords**\
 `The Central Asian country already has diplomatic relations with Israel, but the move appears to be a good-will gesture to President Trump.`\
 https://nytimes.com/2025/11/06/us/politics/kazakhstan-abraham-accords.html
