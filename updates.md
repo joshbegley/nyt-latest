@@ -1,3 +1,11 @@
+**Radiation May Be Unnecessary for Many Breast Cancer Patients**\
+`Doctors have already begun reducing radiation treatment for women at low risk of recurrence or spread of the disease. A new study finds that some women at greater risk can safely avoid radiation.`\
+https://nytimes.com/2025/11/05/health/breast-cancer-radiation.html
+
+**Ex-Giants manager Bruce Bochy finalizing deal to return to San Francisco as special assistant**\
+`Bochy, who won three of his four World Series titles managing the Giants, will be back in San Francisco, where he managed for 13 seasons.`\
+https://nytimes.com/athletic/6782066/2025/11/05/bruce-bochy-giants-special-assistant/
+
 **Florida Man Threatened James Comey and Letitia James, Complaint Says**\
 `Gregory Formicone, of Bradenton, Fla., used online comments to call for several of President Trump’s most prominent adversaries to be targeted, the authorities said.`\
 https://nytimes.com/2025/11/05/us/man-arrested-threats-james-comey-letitia-james.html
