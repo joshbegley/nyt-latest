@@ -1,3 +1,19 @@
+**‘Sentimental Value’ Review: Joachim Trier’s Unhappy Household**\
+`In this moving drama from the director of “The Worst Person in the World,” Stellan Skarsgard and Renate Reinsve star as father and daughter in counterpoint.`\
+https://nytimes.com/2025/11/06/movies/sentimental-value-review-joachim-trier.html
+
+**Ranking PWHL team names and logos: Vancouver Goldeneyes lead our updated list**\
+`How do the Seattle Torrent and Vancouver Goldeneyes stack up against the league's original six?`\
+https://nytimes.com/athletic/6784104/2025/11/06/pwhl-women-hockey-names-logos-rankings/
+
+**Investigators Sift Through Plane Crash Wreckage in Louisville**\
+`A departing UPS cargo plane caught fire and dropped an engine crashing in an industrial zone. At least 12 people were killed.`\
+https://nytimes.com/2025/11/06/us/ups-plane-crash-louisville-wreckage-investigation.html
+
+**Challenging Trump, Pelosi Made History**\
+`The first and only woman to be speaker of the House also was the most powerful and prominent woman in Washington to effectively confront President Trump.`\
+https://nytimes.com/2025/11/06/us/politics/trump-pelosi-relationship.html
+
 **It’s Clear Who Is Responsible for the Shutdown Online: The Other Side**\
 `A blame game has played out on the internet and on television. President Trump has pulled out the stops.`\
 https://nytimes.com/2025/11/06/technology/online-television-shutdown-blame.html

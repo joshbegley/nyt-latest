@@ -1,3 +1,7 @@
+**You Could Catch a Glimpse of the Northern Lights This Week**\
+`A strong geomagnetic storm is expected to push the often-magical light display farther south than usual.`\
+https://nytimes.com/2025/11/06/science/northern-lights-forecast-aurora-borealis.html
+
 **‘Sentimental Value’ Review: Joachim Trier’s Unhappy Household**\
 `In this moving drama from the director of “The Worst Person in the World,” Stellan Skarsgard and Renate Reinsve star as father and daughter in counterpoint.`\
 https://nytimes.com/2025/11/06/movies/sentimental-value-review-joachim-trier.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6784364/2025/11/06/lebron-james-nearing-los-angeles
 **Spurs and Sir Jim Ratcliffe's INEOS reach settlement to end legal dispute**\
 `Both parties confirmed to The Athletic that they had reached an out of court agreement but declined to provide details or comment further.`\
 https://nytimes.com/athletic/6784376/2025/11/06/tottenham-ineos-settlement-legal-dispute/
-
-**France Blocks Orders From Shein as It Expands Its Crackdown**\
-`Customs officials were ordered to inspect more than 200,000 packages entering the country at Charles de Gaulle Airport.`\
-https://nytimes.com/2025/11/06/business/france-shein-sex-dolls.html
 
