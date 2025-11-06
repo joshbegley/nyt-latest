@@ -26,7 +26,7 @@ https://nytimes.com/2025/11/06/learning/whats-going-on-in-this-picture-nov-10-20
 `The verdict on a misdemeanor charge came after seven hours of deliberation, and after prosecutors had previously failed to secure a felony indictment.`\
 https://nytimes.com/2025/11/06/us/politics/trump-sandwich-guy-verdict.html
 
-**Dodgers pick up Alex Vesia's $3.55 million club option for 2026: Source**\
+**Dodgers pick up Alex Vesia's $3.65 million club option for 2026: Source**\
 `Vesia has established himself as one of the most consistent relievers in baseball since joining the Dodgers in 2021.`\
 https://nytimes.com/athletic/6777744/2025/11/06/dodgers-alex-vesia-option-contract/
 
