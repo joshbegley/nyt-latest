@@ -1,3 +1,7 @@
+**Airlines Rush to Prepare for Federal Reductions in Flights**\
+`Airline planning and scheduling teams went into overdrive to identify which flights to cut while minimizing consequences for customers, pilots, flight attendants and the bottom line.`\
+https://nytimes.com/2025/11/06/business/airlines-federal-reductions-flights.html
+
 **UK culture sectary broke rules in appointing chairman of new football regulator**\
 `David Kogan twice made donations of £1,450 to Lisa Nandy's campaign to replace Jeremy Corbyn as Labour leader in 2020.`\
 https://nytimes.com/athletic/6784423/2025/11/06/football-regulator-lisa-nandy-code-breach/

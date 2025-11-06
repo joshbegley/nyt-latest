@@ -1,3 +1,7 @@
+**Airlines Rush to Prepare for Federal Reductions in Flights**\
+`Airline planning and scheduling teams went into overdrive to identify which flights to cut while minimizing consequences for customers, pilots, flight attendants and the bottom line.`\
+https://nytimes.com/2025/11/06/business/airlines-federal-reductions-flights.html
+
 **UK culture sectary broke rules in appointing chairman of new football regulator**\
 `David Kogan twice made donations of £1,450 to Lisa Nandy's campaign to replace Jeremy Corbyn as Labour leader in 2020.`\
 https://nytimes.com/athletic/6784423/2025/11/06/football-regulator-lisa-nandy-code-breach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6784205/2025/11/06/mlb-free-agency-the-windup/
 **Testosterone and Women’s Sex Drive**\
 `My colleague Susan Dominus discusses her reporting on women who are taking testosterone.`\
 https://nytimes.com/2025/11/06/world/testosterone-women-sex-climate-talks-brazil.html
-
-**Sexual Assault of the President Exposes Mexico’s Endemic Machismo**\
-`President Claudia Sheinbaum was groped on the street this week, in an episode that set off a national conversation about what has and has not changed since Mexico elected its first female leader.`\
-https://nytimes.com/2025/11/06/world/americas/mexico-sheinbaum-women-abuse.html
 
