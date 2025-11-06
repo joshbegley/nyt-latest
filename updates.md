@@ -1,3 +1,19 @@
+**John Russell Taylor, 90, Dies; Cultural Critic and Hitchcock Biographer**\
+`A prolific journalist and author, he wrote the only authorized biography of Alfred Hitchcock and heaped early praise on the future Nobel laureate Harold Pinter.`\
+https://nytimes.com/2025/11/06/books/john-russell-taylor-dead.html
+
+**Obesity Drugs May Drop to as Little as $150 a Month**\
+`President Trump announced a deal with Eli Lilly and Novo Nordisk to lower prices on hugely popular weight-loss drugs for Medicare, Medicaid and American patients who pay with their own money.`\
+https://nytimes.com/2025/11/06/health/obesity-drug-prices-trump.html
+
+**A Prison Hospice Program for the Living and the Dying**\
+`Most people who die in prison die alone. Programs like the one at California Medical Facility aim to prevent that.`\
+https://nytimes.com/2025/11/06/us/california-medical-facility-hospice-prison.html
+
+**‘Sarah’s Oil’ Review: The Little Drilling Rig That Could**\
+`A young Black girl learns that her land allotment is rich with oil in this story that aspires to teach us a lesson about white predation.`\
+https://nytimes.com/2025/11/06/movies/sarahs-oil-review.html
+
 **Judge to Consider Moving Trump’s Hush-Money Conviction to Federal Court**\
 `A federal judge must now determine whether President Trump’s immunity for official acts means that his Manhattan criminal case belongs in federal court.`\
 https://nytimes.com/2025/11/06/nyregion/trump-conviction-appeal.html
