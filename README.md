@@ -1,3 +1,7 @@
+**Fantasy football injuries, inactives, cheat sheet Week 10**\
+`Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 10 player rankings and more.`\
+https://nytimes.com/athletic/6776957/2025/11/06/fantasy-football-injuries-inactives-cheat-sheet-week-10/
+
 **Scores of Gaza Militants Still in Areas Under Israeli Control, Officials Say**\
 `At least some of the fighters are believed to be in the enclave’s vast tunnel network, marooned behind the “yellow line” that Israeli forces withdrew to as part of the cease-fire.`\
 https://nytimes.com/2025/11/06/world/middleeast/hamas-militants-trapped-gaza-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/06/world/europe/prince-andrew-road-name-uk.html
 **Tracking Tropical Storm Fung-wong**\
 `See the likely path and wind arrival times for Fung-wong`\
 https://nytimes.com/interactive/2025/weather/fung-wong-map-path-tracker.html
-
-**Cowboys DE Marshawn Kneeland dies at 24, team says**\
-`Kneeland, 24, was in his second season with the team after being drafted in the second round of the 2024 NFL Draft.`\
-https://nytimes.com/athletic/6783787/2025/11/06/marshawn-kneeland-dead-cowboys/
 
