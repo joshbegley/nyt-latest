@@ -1,3 +1,19 @@
+**Former Grizzlies star Tony Allen arrested on drug possession charges**\
+`The Grizzlies retired Allen's No. 9 jersey in March.`\
+https://nytimes.com/athletic/6782669/2025/11/06/tony-allen-arrested-drug-possession-former-memphis-grizzlies-nba/
+
+**Everton's summer rebuild has not yet transformed their fortunes - here are the reasons why**\
+`David Moyes says Everton have a good team - so where have they been going wrong so far this season...?`\
+https://nytimes.com/athletic/6779995/2025/11/06/everton-moyes-rebuild/
+
+**The two Newcastles: one is grating and mediocre, the other a glorious cup team**\
+`In a routine win over Athletic Club, Eddie Howe's team once again showed how impressive they can be when they play with conviction`\
+https://nytimes.com/athletic/6781921/2025/11/06/are-newcastle-a-cup-team/
+
+**FPL: Why it’s time to triple up on Arsenal’s defence**\
+`It's difficult for FPL managers to reprogram their mindset when it comes to tripling up on defences, but it can be a highly viable strategy`\
+https://nytimes.com/athletic/6779736/2025/11/06/fantasy-premier-league-tips-arsenal-premier-league/
+
 **The mood around Frank Lampard has changed**\
 `When the former Chelsea star replaced Mark Robins, he was not well received. Almost 12 months on, he has Coventry sitting pretty`\
 https://nytimes.com/athletic/6780362/2025/11/06/frank-lampard-coventry-manager-chelsea/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6775053/2025/11/06/premier-league-set-pieces-leavin
 **Dominik Szoboszlai: Future Liverpool captain?**\
 `The Hungarian has been Arne Slot's most reliable player this season and is ready to embrace more responsbility`\
 https://nytimes.com/athletic/6778392/2025/11/06/dominik-szoboszlai-liverpool-captain/
-
-**The Tactics Board: How the 4-3-3 works**\
-`Part three of The Athletic's series on football formations takes a close look at the 4-3-3 formation.`\
-https://nytimes.com/athletic/6766503/2025/11/06/tactics-board-4-3-3-formation/
-
-**How many team changes do Premier League managers make? And is fewer always better?**\
-`While Arsenal have made a virtue of stability, Nottingham Forest and Wolves have shown what happens if you make too many changes`\
-https://nytimes.com/athletic/6776318/2025/11/06/premier-league-player-rotation-analysis/
-
-**‘Broken My Hope’: Trump’s Move to Slash Refugee Arrivals Ricochets Widely**\
-`President Trump’s policy has shut the door on all but a tiny fraction of people across the world seeking refuge in the United States from conflict, persecution or both.`\
-https://nytimes.com/2025/11/06/world/asia/trump-refugee-cap-despair.html
-
-**In China, Victims of Abuse Are Told to ‘Keep It in the Family’**\
-`Cases of domestic violence in China point to a legal system that looks good on paper but is failing victims because of a lack of resources and political will.`\
-https://nytimes.com/2025/11/06/world/asia/china-domestic-violence-police.html
 
