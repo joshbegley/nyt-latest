@@ -1,3 +1,15 @@
+**Wild Card files antitrust lawsuit against Panini America**\
+`Wild Card is alleging anti-competitive practices by Panini America, which has its own ongoing antitrust suit against Fanatics`\
+https://nytimes.com/athletic/6785520/2025/11/06/trading-card-company-files-antitrust-lawsuit-against-panini-america-we-have-to-push-back/
+
+**Anti-Defamation League Creates Antisemitism Tip Line Focused on Mamdani**\
+`The Anti-Defamation League, which has taken aim at Mayor-elect Zohran Mamdani over his criticism of Israel, unveiled a website where New Yorkers could report incidents of antisemitism.`\
+https://nytimes.com/2025/11/06/nyregion/zohran-mamdani-monitor-antisemitism-adl.html
+
+**Remember When Pop Critics Were Critical of Pop?**\
+`The writer and critic Kelefa Sanneh joins Wesley Morris to fondly reflect on the honesty and spirit of pop music criticism in years past.`\
+https://nytimes.com/video/podcasts/100000010508375/remember-when-pop-critics-were-critical-of-pop.html
+
 **A Group of CAPs Discuss Their Work**\
 `Five pediatricians on diagnostic uncertainty, second opinions and the future of the field.`\
 https://nytimes.com/2025/11/06/podcasts/a-group-of-caps-discuss-their-work.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/06/world/americas/us-military-planes-el-salvador.htm
 **Kyle Tucker, Bo Bichette headline 13 MLB players tendered qualifying offer**\
 `Here's a breakdown of everyone who received a qualifying offer, which if accepted would mean a one-year, $22.025 million contract.`\
 https://nytimes.com/athletic/6785458/2025/11/06/mlb-qualifying-offer-players-list/
-
-**Guardians decline pitcher John Means' 2026 option, trim 5 others from roster**\
-`Cleveland outrighted pitchers Kolby Allard, Matt Krook and Ben Lively, as well as catcher Dom Nuñez and infielder Will Wilson.`\
-https://nytimes.com/athletic/6781192/2025/11/06/guardians-decline-option-john-means/
-
-**Angel City's Ali Riley used her voice for others while playing. She hopes to do more in retirement**\
-`The defender was an advocate while playing and plans on continuing that into the next act of her career.`\
-https://nytimes.com/athletic/6785240/2025/11/06/ali-riley-retirement-reflection/
-
-**Matt Rhule delivers powerful speech following Marshawn Kneeland's death**\
-`The Nebraska coach spoke for more than three minutes on the importance of mental health awareness.`\
-https://nytimes.com/athletic/6785317/2025/11/06/matt-rhule-marshawn-kneeland-death/
 
