@@ -1,3 +1,7 @@
+**Explosion in the Bronx Injures 7 Firefighters**\
+`A garbage fire appeared to have spread to vehicles on a street and caused a fireball. The firefighters were expected to recover.`\
+https://nytimes.com/2025/11/06/nyregion/bronx-explosion-fire-firefighters.html
+
 **Leeds and the struggle for away goals - how much of an issue is it?**\
 `Elland Road will be their crutch and may keep them up, but they can’t keep expecting their defence to bail them out away from home`\
 https://nytimes.com/athletic/6781097/2025/11/06/leeds-united-away-goal-problems/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6781985/2025/11/06/is-this-seasons-champions-league
 **Manchester United appear better with less possession. Does it matter?**\
 `Ruben Amorim is still using 3-4-3, but a series of under-the-hood adjustments have seen his side play in a faster, more direct manner`\
 https://nytimes.com/athletic/6776404/2025/11/06/manchester-united-possesion-premier-league/
-
-**Why more teams should leave players upfield when defending set pieces**\
-`High-quality takers and aerial threats do the heavy lifting going forward. It’s time sides were braver in opponents' dead-ball situations`\
-https://nytimes.com/athletic/6775053/2025/11/06/premier-league-set-pieces-leaving-players-up/
 
