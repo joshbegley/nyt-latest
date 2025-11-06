@@ -1,3 +1,11 @@
+**Tracking Tropical Storm Fung-wong**\
+`See the likely path and wind arrival times for Fung-wong`\
+https://nytimes.com/interactive/2025/weather/fung-wong-map-path-tracker.html
+
+**Cowboys DE Marshawn Kneeland died Thursday, team announces**\
+`Kneeland, 24, was in his second season with the team after being drafted in the second round of the 2024 NFL Draft.`\
+https://nytimes.com/athletic/6783787/2025/11/06/marshawn-kneeland-dead-cowboys/
+
 **Bishops With Ties to Trump Commission Criticize Treatment of Immigrants**\
 `The Roman Catholic prelates cited detainees’ lack of access to religious sacraments like communion.`\
 https://nytimes.com/2025/11/06/us/trump-bishops-communion.html
