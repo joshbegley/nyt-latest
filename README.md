@@ -1,3 +1,11 @@
+**The Mammoth have arrived as an NHL playoff contender ahead of schedule, with room left to grow**\
+`The Mammoth are on pace for 105 points in their second season in Utah — a long way from the pain the team was in just a few years ago.`\
+https://nytimes.com/athletic/6783823/2025/11/06/utah-mammoth-nhl-standings-playoffs/
+
+**What I'm seeing from Sabres: Josh Norris skating, Mason Geertsen's role, more**\
+`The Sabres might look back at this early stretch of games as what kept them in the playoff race.`\
+https://nytimes.com/athletic/6783883/2025/11/06/sabres-josh-norris-tage-thompson-mason-geertsen/
+
 **Fantasy football injuries, inactives, cheat sheet Week 10**\
 `Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 10 player rankings and more.`\
 https://nytimes.com/athletic/6776957/2025/11/06/fantasy-football-injuries-inactives-cheat-sheet-week-10/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6782368/2025/11/06/juju-watkins-boston-legacy-inves
 **Home owned by Erik Spoelstra heavily damaged by fire**\
 `Miami Heat coach Erik Spoelstra was not present at the time of the blaze, according to reports.`\
 https://nytimes.com/athletic/6783634/2025/11/06/erik-spoelstra-house-fire/
-
-**On Prince Andrews Road, a Frustrating Effort to Get a New Address**\
-`Villagers in Hellesdon, England, are pushing to change the name, but local bureaucracy makes it difficult.`\
-https://nytimes.com/2025/11/06/world/europe/prince-andrew-road-name-uk.html
-
-**Tracking Tropical Storm Fung-wong**\
-`See the likely path and wind arrival times for Fung-wong`\
-https://nytimes.com/interactive/2025/weather/fung-wong-map-path-tracker.html
 
