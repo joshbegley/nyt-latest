@@ -1,3 +1,11 @@
+**Atlanta United confirm return of Tata Martino to the club as head coach**\
+`The 62-year-old led Atlanta to the 2018 MLS Cup title and last coached Inter Miami, winning the Supporters' Shield in 2024.`\
+https://nytimes.com/athletic/6783918/2025/11/06/atlanta-united-tata-martino-return-mls/
+
+**Johnny Heitinga sacked by Ajax**\
+`Heitinga leaves Ajax fourth in Eredivisie and bottom of the Champions League.`\
+https://nytimes.com/athletic/6740990/2025/11/06/johnny-heitinga-ajax-sacked/
+
 **The Mammoth have arrived as an NHL playoff contender ahead of schedule, with room left to grow**\
 `The Mammoth are on pace for 105 points in their second season in Utah — a long way from the pain the team was in just a few years ago.`\
 https://nytimes.com/athletic/6783823/2025/11/06/utah-mammoth-nhl-standings-playoffs/
@@ -23,18 +31,10 @@ https://nytimes.com/2025/11/06/technology/personaltech/ai-social-media-brain-rot
 https://nytimes.com/video/world/americas/100000010508005/sheinbaum-mexico-harassment-charges.html
 
 **'Bend it like Burn': Analysing Dan Burn's wonder-header with Les Ferdinand**\
-`How the `\
+`The giant defender scored a 'unique' headed goal against Athletic Club. One of the best headers in Premier League history breaks it down`\
 https://nytimes.com/athletic/6783312/2025/11/06/newcastle-burn-wonder-header-ferdinand/
 
 **Houston Texans’ Cal and Hannah McNair join LOVB as owners of Houston franchise **\
 `Houston becomes the eighth franchise within the LOVB pro league.`\
 https://nytimes.com/athletic/6781531/2025/11/06/houston-texans-cal-hannah-mcnair-lovb/
-
-**USC's JuJu Watkins joins Boston Legacy FC investor group**\
-`The college basketball star joins a roster of investors that includes Olympic and NBA champions.`\
-https://nytimes.com/athletic/6782368/2025/11/06/juju-watkins-boston-legacy-investor/
-
-**Home owned by Erik Spoelstra heavily damaged by fire**\
-`Miami Heat coach Erik Spoelstra was not present at the time of the blaze, according to reports.`\
-https://nytimes.com/athletic/6783634/2025/11/06/erik-spoelstra-house-fire/
 
