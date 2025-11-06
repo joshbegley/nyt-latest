@@ -1,3 +1,19 @@
+**How to watch women's Elon vs. North Carolina basketball: Time, TV, streaming**\
+`Find out how to watch the Elon Phoenix play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6784181/2025/11/06/elon-vs-north-carolina-stream-how-to-watch-nov-6/
+
+**How to watch women's Monmouth vs. Kentucky basketball: Time, TV, streaming**\
+`Find out how to watch the Monmouth Hawks play the Kentucky Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6784179/2025/11/06/monmouth-vs-kentucky-stream-how-to-watch-nov-6/
+
+**How to watch Jackson State vs. Louisville: Time, TV, streaming**\
+`Find out how to watch the Jackson State Tigers play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6784177/2025/11/06/jackson-state-vs-louisville-stream-how-to-watch-nov-6/
+
+**How to watch women's N.C. A&T vs. TCU basketball: Time, TV, streaming**\
+`Find out how to watch the North Carolina A&T Aggies play the TCU Horned Frogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6784174/2025/11/06/n-c-a-t-vs-tcu-stream-how-to-watch-nov-6/
+
 **USMNT roster shock: Reyna recalled, McKennie among many regulars omitted**\
 `Gio Reyna makes an unexpected comeback to the USMNT, while a number of key regulars are sitting this camp out`\
 https://nytimes.com/athletic/6783809/2025/11/06/usmnt-november-roster-gio-reyna-mckennie-pulisic/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6783979/2025/11/06/dazn-live-stream-tiktok-national
 **Victor Wembanyama is already changing how teams plan games — and the future**\
 `The Lakers, and the rest of the NBA, have learned that Wembanyama is the biggest threat to their championship aspirations.`\
 https://nytimes.com/athletic/6783119/2025/11/06/victor-wembanyama-future-plan-spurs-lakers/
-
-**How China’s Rare Earth Chokehold Could Strangle Europe’s Military Buildup**\
-`Drones, missiles and other crucial components of Europe’s rush to rearm itself rely on an increasingly unsteady supply of minerals from China.`\
-https://nytimes.com/2025/11/06/business/rare-earth-china-europe.html
-
-**'We're dealing with it': Rookies are easing Hurricanes' pain on the blue line**\
-`Alexander Nikishin and three other blueliners have been forced into bigger roles — but it's working.`\
-https://nytimes.com/athletic/6782612/2025/11/06/carolina-hurricanes-injuries-defense-rookies/
-
-**Atlanta United confirms return of Tata Martino to the club as head coach**\
-`The 62-year-old led Atlanta to the 2018 MLS Cup title and last coached Inter Miami, winning the Supporters' Shield in 2024.`\
-https://nytimes.com/athletic/6783918/2025/11/06/atlanta-united-tata-martino-return-mls/
-
-**Johnny Heitinga sacked by Ajax**\
-`Heitinga leaves Ajax fourth in Eredivisie and bottom of the Champions League league phase standings.`\
-https://nytimes.com/athletic/6740990/2025/11/06/johnny-heitinga-ajax-sacked/
 
