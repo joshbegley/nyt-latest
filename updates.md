@@ -1,3 +1,11 @@
+**Trump Team Now Claims Its Trillions in Tariff Revenue Are ‘Incidental’**\
+`In arguments before the Supreme Court, the White House backed away from its claims that President Trump’s tariffs were about raising revenue.`\
+https://nytimes.com/2025/11/06/us/politics/trump-tariffs-revenue-supreme-court.html
+
+**Ranking PWHL team names and logos: Vancouver Goldeneyes lead our updated list**\
+`How do the Seattle Torrent and Goldeneyes stack up against the league's original six?`\
+https://nytimes.com/athletic/6784104/2025/11/06/pwhl-women-hockey-names-logos-rankings/
+
 **Jury Awards $10 Million to Teacher Shot by 6-Year-Old Student**\
 `The teacher, Abigail Zwerner, was shot in the hand and chest by a first grade student who brought his mother’s gun to class in 2023.`\
 https://nytimes.com/2025/11/06/us/abby-zwerner-virginia-teacher-shooting-lawsuit.html

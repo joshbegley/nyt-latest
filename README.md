@@ -1,3 +1,7 @@
+**Betting for (by) dummies: Picking teams with nothing to lose and maybe also nothing to gain**\
+`Jon Greenberg and Zac Jackson have plenty of picks on teams with nothing to lose and sometimes also nothing to gain this week.`\
+https://nytimes.com/athletic/6784530/2025/11/06/betting-for-by-dummies-jets-browns/
+
 **Trump Team Now Claims Its Trillions in Tariff Revenue Are ‘Incidental’**\
 `In arguments before the Supreme Court, the White House backed away from its claims that President Trump’s tariffs were about raising revenue.`\
 https://nytimes.com/2025/11/06/us/politics/trump-tariffs-revenue-supreme-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/06/us/politics/trump-pelosi-relationship.html
 **It’s Clear Who Is Responsible for the Shutdown Online: The Other Side**\
 `A blame game has played out on the internet and on television. President Trump has pulled out the stops.`\
 https://nytimes.com/2025/11/06/technology/online-television-shutdown-blame.html
-
-**Yeah, It’s Time to Start Thinking About Thanksgiving**\
-`We’ve got make-ahead vegetable sides, turkey-free mains and dishes that don’t even require an oven.`\
-https://nytimes.com/2025/11/06/dining/vegetarian-thanksgiving.html
 

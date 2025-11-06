@@ -1,3 +1,7 @@
+**Trump Team Now Claims Its Trillions in Tariff Revenue Are ‘Incidental’**\
+`In arguments before the Supreme Court, the White House backed away from its claims that President Trump’s tariffs were about raising revenue.`\
+https://nytimes.com/2025/11/06/us/politics/trump-tariffs-revenue-supreme-court.html
+
 **Jury Awards $10 Million to Teacher Shot by 6-Year-Old Student**\
 `The teacher, Abigail Zwerner, was shot in the hand and chest by a first grade student who brought his mother’s gun to class in 2023.`\
 https://nytimes.com/2025/11/06/us/abby-zwerner-virginia-teacher-shooting-lawsuit.html
@@ -15,7 +19,7 @@ https://nytimes.com/2025/11/06/science/northern-lights-forecast-aurora-borealis.
 https://nytimes.com/2025/11/06/movies/sentimental-value-review-joachim-trier.html
 
 **Ranking PWHL team names and logos: Vancouver Goldeneyes lead our updated list**\
-`How do the Seattle Torrent and Vancouver Goldeneyes stack up against the league's original six?`\
+`How do the Seattle Torrent and Goldeneyes stack up against the league's original six?`\
 https://nytimes.com/athletic/6784104/2025/11/06/pwhl-women-hockey-names-logos-rankings/
 
 **Investigators Sift Through Plane Crash Wreckage in Louisville**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/06/technology/online-television-shutdown-blame.html
 **Yeah, It’s Time to Start Thinking About Thanksgiving**\
 `We’ve got make-ahead vegetable sides, turkey-free mains and dishes that don’t even require an oven.`\
 https://nytimes.com/2025/11/06/dining/vegetarian-thanksgiving.html
-
-**What Students Are Saying About the Decline in High School Reading Skills**\
-`In response to news that 12th-grade reading scores are at a 30-year low, teenagers diagnose the problem — and warn of the high stakes for their generation.`\
-https://nytimes.com/2025/11/06/learning/what-students-are-saying-about-the-decline-in-high-school-reading-skills.html
 
