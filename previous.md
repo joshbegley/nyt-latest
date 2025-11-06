@@ -1,6 +1,10 @@
+**Pelosi Plans To Retire In 2027 After 39 Years in Congress**\
+`Representative Nancy Pelosi, the nation’s only female House speaker, announced her decision to retire after 39 years in Congress. Her legacy includes the passage of Obamacare, advocating for HIV/AIDS patients and fund-raising for Democrats.`\
+https://nytimes.com/video/us/politics/100000010509765/pelosi-plans-to-retire-in-2027-after-39-years-in-congress.html
+
 **Wild Card files antitrust lawsuit against Panini America**\
 `Wild Card is alleging anti-competitive practices by Panini America, which has its own ongoing antitrust suit against Fanatics`\
-https://nytimes.com/athletic/6785520/2025/11/06/trading-card-company-files-antitrust-lawsuit-against-panini-america-we-have-to-push-back/
+https://nytimes.com/athletic/6785520/2025/11/06/panini-wild-card-antitrust-lawsuit/
 
 **Anti-Defamation League Creates Antisemitism Tip Line Focused on Mamdani**\
 `The Anti-Defamation League, which has taken aim at Mayor-elect Zohran Mamdani over his criticism of Israel, unveiled a website where New Yorkers could report incidents of antisemitism.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/06/briefing/trump-officials-plan-flight-cuts-at-nati
 **U.S. Sends Attack Aircraft to El Salvador Amid Regional Troop Buildup**\
 `A New York Times analysis of satellite imagery and air traffic control communications found that U.S. military planes began operating out of the Central American country in mid-October.`\
 https://nytimes.com/2025/11/06/world/americas/us-military-planes-el-salvador.html
-
-**Kyle Tucker, Bo Bichette headline 13 MLB players tendered qualifying offer**\
-`Here's a breakdown of everyone who received a qualifying offer, which if accepted would mean a one-year, $22.025 million contract.`\
-https://nytimes.com/athletic/6785458/2025/11/06/mlb-qualifying-offer-players-list/
 

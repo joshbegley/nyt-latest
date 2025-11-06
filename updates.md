@@ -1,3 +1,11 @@
+**Pelosi Plans To Retire In 2027 After 39 Years in Congress**\
+`Representative Nancy Pelosi, the nation’s only female House speaker, announced her decision to retire after 39 years in Congress. Her legacy includes the passage of Obamacare, advocating for HIV/AIDS patients and fund-raising for Democrats.`\
+https://nytimes.com/video/us/politics/100000010509765/pelosi-plans-to-retire-in-2027-after-39-years-in-congress.html
+
+**Wild Card files antitrust lawsuit against Panini America**\
+`Wild Card is alleging anti-competitive practices by Panini America, which has its own ongoing antitrust suit against Fanatics`\
+https://nytimes.com/athletic/6785520/2025/11/06/panini-wild-card-antitrust-lawsuit/
+
 **Wild Card files antitrust lawsuit against Panini America**\
 `Wild Card is alleging anti-competitive practices by Panini America, which has its own ongoing antitrust suit against Fanatics`\
 https://nytimes.com/athletic/6785520/2025/11/06/trading-card-company-files-antitrust-lawsuit-against-panini-america-we-have-to-push-back/
