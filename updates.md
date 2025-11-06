@@ -1,3 +1,11 @@
+**Retail Group Predicts Holiday Spending Could Top $1 Trillion**\
+`Despite shoppers’ concerns about rising costs, inflation and the government shutdown, retailers predict sales will increase as much as 4.2% over the holidays.`\
+https://nytimes.com/2025/11/06/business/holiday-consumer-spending-2025.html
+
+**Paramilitary Accepts Sudan Truce Plan, but the Military Has Not**\
+`The R.S.F. paramilitary group, facing growing condemnation for atrocities in Darfur, said it had agreed to a cease-fire proposal, but it is not yet clear what the military will do.`\
+https://nytimes.com/2025/11/06/world/africa/sudan-rsf-truce.html
+
 **Judge Criticizes Immigration Agents in Chicago: ‘Use of Force Shocks the Conscience’**\
 `Judge Sara L. Ellis said she saw “little reason for the use of force that the federal agents are currently using,” and said Gregory Bovino, a Border Patrol official, had lied about his use of tear gas in Chicago.`\
 https://nytimes.com/2025/11/06/us/sara-ellis-gregory-bovino-tear-gas-illinois.html

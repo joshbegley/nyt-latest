@@ -1,3 +1,11 @@
+**Retail Group Predicts Holiday Spending Could Top $1 Trillion**\
+`Despite shoppers’ concerns about rising costs, inflation and the government shutdown, retailers predict sales will increase as much as 4.2% over the holidays.`\
+https://nytimes.com/2025/11/06/business/holiday-consumer-spending-2025.html
+
+**Paramilitary Accepts Sudan Truce Plan, but the Military Has Not**\
+`The R.S.F. paramilitary group, facing growing condemnation for atrocities in Darfur, said it had agreed to a cease-fire proposal, but it is not yet clear what the military will do.`\
+https://nytimes.com/2025/11/06/world/africa/sudan-rsf-truce.html
+
 **Judge Criticizes Immigration Agents in Chicago: ‘Use of Force Shocks the Conscience’**\
 `Judge Sara L. Ellis said she saw “little reason for the use of force that the federal agents are currently using,” and said Gregory Bovino, a Border Patrol official, had lied about his use of tear gas in Chicago.`\
 https://nytimes.com/2025/11/06/us/sara-ellis-gregory-bovino-tear-gas-illinois.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/06/us/politics/trump-tariffs-revenue-supreme-court.h
 **Jury Awards $10 Million to Teacher Shot by 6-Year-Old Student**\
 `The teacher, Abigail Zwerner, was shot in the hand and chest by a first grade student who brought his mother’s gun to class in 2023.`\
 https://nytimes.com/2025/11/06/us/abby-zwerner-virginia-teacher-shooting-lawsuit.html
-
-**'He's got this gift': Meet Matias Maccelli, the risky and rewarding Maple Leafs winger**\
-`With some patience from Craig Berube and more energy and peskiness from Maccelli, this could be the start of something special in Toronto.`\
-https://nytimes.com/athletic/6783800/2025/11/06/maple-leafs-matias-maccelli-winger/
-
-**You Could Catch a Glimpse of the Northern Lights This Week**\
-`A strong geomagnetic storm is expected to push the often-magical light display farther south than usual.`\
-https://nytimes.com/2025/11/06/science/northern-lights-forecast-aurora-borealis.html
 
