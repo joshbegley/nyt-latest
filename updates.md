@@ -1,3 +1,15 @@
+**Judge to Consider Moving Trump’s Hush-Money Conviction to Federal Court**\
+`A federal judge must now determine whether President Trump’s immunity for official acts means that his Manhattan criminal case belongs in federal court.`\
+https://nytimes.com/2025/11/06/nyregion/trump-conviction-appeal.html
+
+**NFL community reacts to death of Marshawn Kneeland**\
+`Reactions to the tragic death came pouring in on social media.`\
+https://nytimes.com/athletic/6784106/2025/11/06/marshawn-kneeland-death-nfl-community-reaction/
+
+**‘Queens’ Review: The Heavy Burden of Past Lives and Uncertain Futures**\
+`Martyna Majok reimagines her 2018 play about the immigrant women who at various points live in a basement apartment in the New York City borough.`\
+https://nytimes.com/2025/11/06/theater/queens-review-martyna-majok.html
+
 **Don Mattingly leaving Blue Jays post as bench coach: Source**\
 `Mattingly's departure comes while two managerial vacancies remain in the majors and other staffs have yet to be finalized.`\
 https://nytimes.com/athletic/6784042/2025/11/06/don-mattingly-leaving-blue-jays/

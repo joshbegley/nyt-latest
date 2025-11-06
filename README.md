@@ -1,3 +1,11 @@
+**A Prison Hospice Program for the Living and the Dying**\
+`Most people who die in prison die alone. Programs like the one at California Medical Facility aim to prevent that.`\
+https://nytimes.com/2025/11/06/us/california-medical-facility-hospice-prison.html
+
+**‘Sarah’s Oil’ Review: The Little Drilling Rig That Could**\
+`A young Black girl learns that her land allotment is rich with oil in this story that aspires to teach us a lesson about white predation.`\
+https://nytimes.com/2025/11/06/movies/sarahs-oil-review.html
+
 **Judge to Consider Moving Trump’s Hush-Money Conviction to Federal Court**\
 `A federal judge must now determine whether President Trump’s immunity for official acts means that his Manhattan criminal case belongs in federal court.`\
 https://nytimes.com/2025/11/06/nyregion/trump-conviction-appeal.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6783537/2025/11/06/pacers-mac-mcclung-indiana-roste
 **How to watch women's UMBC vs. Maryland basketball: Time, TV, streaming**\
 `Find out how to watch the UMBC Retrievers play the Maryland Terrapins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6784261/2025/11/06/umbc-vs-maryland-stream-how-to-watch-nov-6/
-
-**Are A.I. Therapy Chatbots Safe to Use?**\
-`Psychologists and technologists see them as the future of therapy. The Food and Drug Administration is exploring whether to regulate them as medical devices.`\
-https://nytimes.com/2025/11/06/technology/ai-therapy-chatbots-ash.html
-
-**How to watch Canadiens vs. Devils: Time, TV, streaming**\
-`Find out how to watch the Montreal Canadiens play the New Jersey Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6784235/2025/11/06/canadiens-vs-devils-stream-how-to-watch-nov-6/
 
