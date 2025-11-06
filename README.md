@@ -1,3 +1,15 @@
+**Stanley Chesley, Class-Action Lawyer Called ‘Master of Disaster,’ Dies at 89**\
+`He won billions of dollars for plaintiffs in major suits against corporations but was disbarred for siphoning money from clients.`\
+https://nytimes.com/2025/11/06/us/stanley-chesley-dead.html
+
+**NFL, NFLPA providing resources to Cowboys after Kneeland tragedy**\
+`The NFL and NFLPA support players with a variety of crisis counseling services, including an independent and confidential hotline. `\
+https://nytimes.com/athletic/6785314/2025/11/06/marshawn-kneeland-grief-cowboys/
+
+**The Endlessly Adaptable Frankenstein**\
+`Few works have inspired more adaptations than Mary Shelley’s Gothic classic about a frenzied creator who builds a despairing being. Here’s a look at the many ways it has been repurposed onscreen.`\
+https://nytimes.com/interactive/2025/11/06/arts/frankenstein-adaptations.html
+
 **Elon Musk Wins $1 Trillion Tesla Payday**\
 `Shareholders approved a plan to grant Mr. Musk shares worth nearly $1 trillion if he meets ambitious goals, including vastly expanding the company’s stock market valuation.`\
 https://nytimes.com/2025/11/06/business/elon-musk-tesla-pay-vote.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/06/business/airlines-federal-reductions-flights.html
 **UK culture sectary broke rules in appointing chairman of new football regulator**\
 `David Kogan twice made donations of £1,450 to Lisa Nandy's campaign to replace Jeremy Corbyn as Labour leader in 2020.`\
 https://nytimes.com/athletic/6784423/2025/11/06/football-regulator-lisa-nandy-code-breach/
-
-**Artemi Panarin’s future with the Rangers: What I’m hearing amid star’s scoring drought**\
-`The 34-year-old is in a six-game stretch without a point, the longest scoring drought of his 11-year career.`\
-https://nytimes.com/athletic/6784714/2025/11/06/new-york-rangers-artemi-panarins-future-scoring-drought/
-
-**Paramilitary Group in Sudan Agrees to Cease-Fire Proposal**\
-`The paramilitary group Rapid Support Forces agreed to a cease-fire proposal after growing condemnation of atrocities in Darfur. Sudan’s military reiterated its commitment to defeat the R.S.F. through force, showing no sign of agreeing to the proposal.`\
-https://nytimes.com/video/world/africa/100000010508878/sudan-military-ceasefire.html
-
-**NFL Week 10 projected scores: Model predicts point spreads and totals for every game**\
-`Austin Mock's projection model predicts point spreads and point totals for NFL Week 10. We compare it to betting lines.`\
-https://nytimes.com/athletic/6785266/2025/11/06/nfl-week-10-projected-scores-model-predicts-point-spreads-and-totals-for-every-game/
 
