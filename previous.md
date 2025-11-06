@@ -1,3 +1,11 @@
+**Five things to watch on Hall of Fame Contemporary Era ballot: Bonds, Clemens and so much more**\
+`Bonds and Clemens are back. So are Mattingly and Murphy, along with four other greats. And a new rule could have major implications. `\
+https://nytimes.com/athletic/6783157/2025/11/06/baseball-hall-of-fame-contemporary-era-ballot-clemens-bonds/
+
+**TAFC: Why Chicago is not hosting World Cup games, FIFA 'peace prize', big UCL goals**\
+`Today in TAFC: Chicago happy to not have World Cup matches, Yamal's latest incredible goal, Granit Xhaka exclusive interview`\
+https://nytimes.com/athletic/6783118/2025/11/06/chicago-world-cup-2026-no-matches/
+
 **The Pulse: Inside the YouTube TV/ESPN standoff**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6781528/2025/11/06/youtube-tv-espn-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6781039/2025/11/06/chiefs-second-half-predictions/
 **J.J. McCarthy, Vikings aren’t bashful discussing his next phase of QB development**\
 `McCarthy's next nine games will go a long way toward validating the Vikings’ decision to roll with him — or changing the team's direction.`\
 https://nytimes.com/athletic/6781891/2025/11/06/jj-mccarthy-vikings-kevin-oconnell-qb-development/
-
-**Panthers midseason superlatives: Rico Dowdle is MVP and leads resurgence**\
-`The Panthers are preparing to kick off the second half of the season this Sunday against the sagging New Orleans Saints`\
-https://nytimes.com/athletic/6781964/2025/11/06/carolina-panthers-midseason-awards-rico-dowdle/
-
-**What Cowboys are getting in 'dominant' and 'disruptive' DT Quinnen Williams**\
-`"He’s probably the most humble and hard-working top pick I’ve ever been around," Dallas D-line coach Aaron Whitecotton said of Williams.`\
-https://nytimes.com/athletic/6781747/2025/11/06/cowboys-quinnen-williams-trade-deadline-defense/
 

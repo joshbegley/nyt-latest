@@ -1,3 +1,11 @@
+**Five things to watch on Hall of Fame Contemporary Era ballot: Bonds, Clemens and so much more**\
+`Bonds and Clemens are back. So are Mattingly and Murphy, along with four other greats. And a new rule could have major implications. `\
+https://nytimes.com/athletic/6783157/2025/11/06/baseball-hall-of-fame-contemporary-era-ballot-clemens-bonds/
+
+**TAFC: Why Chicago is not hosting World Cup games, FIFA 'peace prize', big UCL goals**\
+`Today in TAFC: Chicago happy to not have World Cup matches, Yamal's latest incredible goal, Granit Xhaka exclusive interview`\
+https://nytimes.com/athletic/6783118/2025/11/06/chicago-world-cup-2026-no-matches/
+
 **The Pulse: Inside the YouTube TV/ESPN standoff**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6781528/2025/11/06/youtube-tv-espn-the-pulse/

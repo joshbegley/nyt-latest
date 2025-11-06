@@ -1,3 +1,7 @@
+**The ATP Tour Finals draw with a 24-time Grand Slam champion as its great unknown**\
+`Jannik Sinner and Carlos Alcaraz will go to Turin with the year-end world No. 1 on the line.`\
+https://nytimes.com/athletic/6783154/2025/11/06/tennis-atp-tour-finals-draw-players/
+
 **Five things to watch on Hall of Fame Contemporary Era ballot: Bonds, Clemens and so much more**\
 `Bonds and Clemens are back. So are Mattingly and Murphy, along with four other greats. And a new rule could have major implications. `\
 https://nytimes.com/athletic/6783157/2025/11/06/baseball-hall-of-fame-contemporary-era-ballot-clemens-bonds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6782284/2025/11/06/youtubetv-espn-disney-alphabet-g
 **Chiefs at the bye: 3 predictions for the second half of the season**\
 `What will the Chiefs' final record be? And who will break out in the second half? Here are our predictions at midseason.`\
 https://nytimes.com/athletic/6781039/2025/11/06/chiefs-second-half-predictions/
-
-**J.J. McCarthy, Vikings aren’t bashful discussing his next phase of QB development**\
-`McCarthy's next nine games will go a long way toward validating the Vikings’ decision to roll with him — or changing the team's direction.`\
-https://nytimes.com/athletic/6781891/2025/11/06/jj-mccarthy-vikings-kevin-oconnell-qb-development/
 
