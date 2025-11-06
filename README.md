@@ -1,3 +1,23 @@
+**The mood around Frank Lampard has changed**\
+`When the former Chelsea star replaced Mark Robins, he was not well received. Almost 12 months on, he has Coventry sitting pretty`\
+https://nytimes.com/athletic/6780362/2025/11/06/frank-lampard-coventry-manager-chelsea/
+
+**The Alternative Premier League Table: No 11 – Expected goals conceded and defensive performance**\
+`Read about Arsenal's resolute defence, a potentially worrying trend for Tottenham and how Wolves' underperformance has left them in trouble`\
+https://nytimes.com/athletic/6780300/2025/11/06/alternative-premier-league-table-11-xg-conceded/
+
+**Is this season's Champions League a bit too easy for the Premier League sides?**\
+`The English sextet are sweeping pretty much all before them. It’s good for the Premier League, but is it good for everyone else?`\
+https://nytimes.com/athletic/6781985/2025/11/06/is-this-seasons-champions-league-a-bit-too-easy-for-the-premier-league-sides/
+
+**Manchester United appear better with less possession. Does it matter?**\
+`Ruben Amorim is still using 3-4-3, but a series of under-the-hood adjustments have seen his side play in a faster, more direct manner`\
+https://nytimes.com/athletic/6776404/2025/11/06/manchester-united-possesion-premier-league/
+
+**Why more teams should leave players upfield when defending set pieces**\
+`High-quality takers and aerial threats do the heavy lifting going forward. It’s time sides were braver in opponents' dead-ball situations`\
+https://nytimes.com/athletic/6775053/2025/11/06/premier-league-set-pieces-leaving-players-up/
+
 **Dominik Szoboszlai: Future Liverpool captain?**\
 `The Hungarian has been Arne Slot's most reliable player this season and is ready to embrace more responsbility`\
 https://nytimes.com/athletic/6778392/2025/11/06/dominik-szoboszlai-liverpool-captain/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/11/06/world/asia/trump-refugee-cap-despair.html
 **In China, Victims of Abuse Are Told to ‘Keep It in the Family’**\
 `Cases of domestic violence in China point to a legal system that looks good on paper but is failing victims because of a lack of resources and political will.`\
 https://nytimes.com/2025/11/06/world/asia/china-domestic-violence-police.html
-
-**Global Warning Made Hurricane Melissa More Damaging, Researchers Say**\
-`Climate change enabled the storm to churn faster and grow more quickly, a rapid analysis found.`\
-https://nytimes.com/2025/11/06/climate/climate-change-hurricane-melissa.html
-
-**Connections: Sports Edition Coach: Hints for Nov. 6, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6782740/2025/11/06/connections-sports-edition-hints-for-nov-6-2025/
-
-**Would Elon Musk Work Harder for $1 Trillion Than $1 Billion?**\
-`Economists and psychologists say that compensation may not provide as powerful an incentive as is often assumed.`\
-https://nytimes.com/2025/11/06/business/elon-musk-tesla-trillion-dollar.html
-
-**Corrections: Nov. 6, 2025**\
-`Corrections that appeared in print on Thursday, Nov. 6, 2025.`\
-https://nytimes.com/2025/11/05/pageoneplus/corrections-nov-6-2025.html
-
-**Quote of the Day: After Defying Odds, Mamdani Faces Even Steeper Task**\
-`Quotation of the Day for Thursday, November 6, 2025.`\
-https://nytimes.com/2025/11/05/pageoneplus/quote-of-the-day-after-defying-odds-mamdani-faces-even-steeper-task.html
 
