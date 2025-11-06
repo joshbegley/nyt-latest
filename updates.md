@@ -1,3 +1,11 @@
+**Teaching About Trump’s Immigration Crackdown**\
+`A lesson plan that invites students to explore how President Trump’s immigration enforcement is affecting their communities.`\
+https://nytimes.com/2025/11/05/learning/lesson-plans/teaching-about-trumps-immigration-crackdown.html
+
+**What Is Your Reaction to President Trump’s Aggressive Tactics to Deport Undocumented Immigrants?**\
+`President Trump has made removing unauthorized immigrants from the country a pillar of his second term. Do you agree with his goal? Is he going too far?`\
+https://nytimes.com/2025/11/05/learning/what-is-your-reaction-to-president-trumps-aggressive-tactics-to-deport-undocumented-immigrants.html
+
 **Officials Warn of 10 Percent Air Traffic Reduction if Shutdown Continues**\
 `Sean Duffy, the transportation secretary, announced on Wednesday that if the government shutdown continued, he would cut air traffic by 10 percent in 40 key markets by Friday. The F.A.A. is expected to announce what areas will be affected on Thursday.`\
 https://nytimes.com/video/us/politics/100000010507090/faa-flight-reduction-government-shutdown.html
