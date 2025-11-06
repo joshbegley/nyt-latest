@@ -1,3 +1,15 @@
+**Jury Awards $10 Million to Teacher Shot by 6-Year-Old Student**\
+`The teacher, Abigail Zwerner, was shot in the hand and chest by a first grade student who brought his mother’s gun to class in 2023.`\
+https://nytimes.com/2025/11/06/us/abby-zwerner-virginia-teacher-shooting-lawsuit.html
+
+**'He's got this gift': Meet Matias Maccelli, the risky and rewarding Maple Leafs winger**\
+`With some patience from Craig Berube and more energy and peskiness from Maccelli, this could be the start of something special in Toronto.`\
+https://nytimes.com/athletic/6783800/2025/11/06/maple-leafs-matias-maccelli-winger/
+
+**You Could Catch a Glimpse of the Northern Lights This Week**\
+`A strong geomagnetic storm is expected to push the often-magical light display farther south than usual.`\
+https://nytimes.com/2025/11/06/science/northern-lights-forecast-aurora-borealis.html
+
 **‘Sentimental Value’ Review: Joachim Trier’s Unhappy Household**\
 `In this moving drama from the director of “The Worst Person in the World,” Stellan Skarsgard and Renate Reinsve star as father and daughter in counterpoint.`\
 https://nytimes.com/2025/11/06/movies/sentimental-value-review-joachim-trier.html
