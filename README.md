@@ -1,3 +1,11 @@
+**Justice Dept. Is Said to Be Investigating D.C. Mayor Over Foreign Trip**\
+`The investigation into Muriel E. Bowser, which is being handled by the U.S. attorney’s office in Washington, centers on a trip she took with members of her staff that was paid for by Qatar.`\
+https://nytimes.com/2025/11/06/us/politics/trump-muriel-bowser-qatar-investigation.html
+
+**Wisconsin's Luke Fickell will coach next year, AD says**\
+`The embattled Badgers coach will return for at least one more season, weathering a very hot seat. `\
+https://nytimes.com/athletic/6785392/2025/11/06/luke-fickell-wisconsin-coach-returning/
+
 **Stanley Chesley, Class-Action Lawyer Called ‘Master of Disaster,’ Dies at 89**\
 `He won billions of dollars for plaintiffs in major suits against corporations but was disbarred for siphoning money from clients.`\
 https://nytimes.com/2025/11/06/us/stanley-chesley-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6782349/2025/11/06/yankees-trent-grisham-qualifying
 **Who Will Replace Pelosi in Congress?**\
 `Two Democrats have already announced their campaigns to replace Representative Nancy Pelosi in her San Francisco district, and others may join the race soon.`\
 https://nytimes.com/2025/11/06/us/nancy-pelosi-retirement-replacement.html
-
-**Airlines Rush to Prepare for Federal Reductions in Flights**\
-`Airline planning and scheduling teams went into overdrive to identify which flights to cut while minimizing consequences for customers, pilots, flight attendants and the bottom line.`\
-https://nytimes.com/2025/11/06/business/airlines-federal-reductions-flights.html
-
-**UK culture sectary broke rules in appointing chairman of new football regulator**\
-`David Kogan twice made donations of £1,450 to Lisa Nandy's campaign to replace Jeremy Corbyn as Labour leader in 2020.`\
-https://nytimes.com/athletic/6784423/2025/11/06/football-regulator-lisa-nandy-code-breach/
 

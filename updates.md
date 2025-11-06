@@ -1,3 +1,15 @@
+**Stanley Chesley, Class-Action Lawyer Called ‘Master of Disaster,’ Dies at 89**\
+`He won billions of dollars for plaintiffs in major suits against corporations but was disbarred for siphoning money from clients.`\
+https://nytimes.com/2025/11/06/us/stanley-chesley-dead.html
+
+**NFL, NFLPA providing resources to Cowboys after Kneeland tragedy**\
+`The NFL and NFLPA support players with a variety of crisis counseling services, including an independent and confidential hotline. `\
+https://nytimes.com/athletic/6785314/2025/11/06/marshawn-kneeland-grief-cowboys/
+
+**The Endlessly Adaptable Frankenstein**\
+`Few works have inspired more adaptations than Mary Shelley’s Gothic classic about a frenzied creator who builds a despairing being. Here’s a look at the many ways it has been repurposed onscreen.`\
+https://nytimes.com/interactive/2025/11/06/arts/frankenstein-adaptations.html
+
 **Elon Musk Wins $1 Trillion Tesla Payday**\
 `Shareholders approved a plan to grant Mr. Musk shares worth nearly $1 trillion if he meets ambitious goals, including vastly expanding the company’s stock market valuation.`\
 https://nytimes.com/2025/11/06/business/elon-musk-tesla-pay-vote.html
