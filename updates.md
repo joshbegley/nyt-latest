@@ -1,3 +1,7 @@
+**Luka Dončić keys Lakers' rotating lineup in win over Victor Wembanyama and the Spurs**\
+`The lineups keep changing but the results stay the same for the Lakers, who snuck past San Antonio for their fifth straight win.`\
+https://nytimes.com/athletic/6782973/2025/11/06/luka-doncic-victor-wembanyama-lakers-spurs/
+
 **Philippines Faces Grim Typhoon Aftermath as Another Storm Approaches**\
 `As the death toll for Typhoon Kalmaegi rose into the triple digits, the country braced for another tropical storm expected this weekend.`\
 https://nytimes.com/2025/11/06/world/asia/philippines-typhoon-kalmaegi-aftermath.html

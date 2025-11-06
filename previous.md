@@ -1,3 +1,7 @@
+**Luka Dončić keys Lakers' rotating lineup in win over Victor Wembanyama and the Spurs**\
+`The lineups keep changing but the results stay the same for the Lakers, who snuck past San Antonio for their fifth straight win.`\
+https://nytimes.com/athletic/6782973/2025/11/06/luka-doncic-victor-wembanyama-lakers-spurs/
+
 **Philippines Faces Grim Typhoon Aftermath as Another Storm Approaches**\
 `As the death toll for Typhoon Kalmaegi rose into the triple digits, the country braced for another tropical storm expected this weekend.`\
 https://nytimes.com/2025/11/06/world/asia/philippines-typhoon-kalmaegi-aftermath.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6775109/2025/11/06/british-rowers-pacific-ocean-jes
 **Word of the Day: invigorate**\
 `This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/11/06/learning/word-of-the-day-invigorate.html
-
-**Phil Foden and Erling Haaland are reimagining the traditional front two**\
-`In the past, Phil Foden and Erling Haaland have looked to be on different wavelengths but the duo are now complementing each other`\
-https://nytimes.com/athletic/6781777/2025/11/06/phil-foden-erling-haaland-man-city-borussia-dortmund/
 
