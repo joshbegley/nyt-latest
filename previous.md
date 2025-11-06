@@ -1,3 +1,11 @@
+**Russell Westbrook is adjusting well in Sacramento after delayed signing**\
+`The Kings signed Westbrook in the middle of October, but his first triple-double with the team shows he's quickly paying dividends.`\
+https://nytimes.com/athletic/6782886/2025/11/06/russell-westbrook-kings-triple-double-nba/
+
+**Thunder lose to Trail Blazers as NBA's last undefeated team falls**\
+`The Thunder (8-1) had beaten Portland 16 consecutive times, but lost Wednesday.`\
+https://nytimes.com/athletic/6782898/2025/11/06/thunder-trail-blazers-nba/
+
 **The New York Times in Print for Thursday, Nov. 6, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/06/todays-new-york-times
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/06/nyregion/bronx-explosion-fire-firefighters.html
 **Leeds and the struggle for away goals - how much of an issue is it?**\
 `Elland Road will be their crutch and may keep them up, but they can’t keep expecting their defence to bail them out away from home`\
 https://nytimes.com/athletic/6781097/2025/11/06/leeds-united-away-goal-problems/
-
-**Former Grizzlies star Tony Allen arrested on drug possession charges**\
-`The Grizzlies retired Allen's No. 9 jersey in March.`\
-https://nytimes.com/athletic/6782669/2025/11/06/tony-allen-arrested-drug-possession-former-memphis-grizzlies-nba/
-
-**Everton's summer rebuild has not yet transformed their fortunes - here are the reasons why**\
-`David Moyes says Everton have a good team - so where have they been going wrong so far this season...?`\
-https://nytimes.com/athletic/6779995/2025/11/06/everton-moyes-rebuild/
 

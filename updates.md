@@ -1,3 +1,11 @@
+**Russell Westbrook is adjusting well in Sacramento after delayed signing**\
+`The Kings signed Westbrook in the middle of October, but his first triple-double with the team shows he's quickly paying dividends.`\
+https://nytimes.com/athletic/6782886/2025/11/06/russell-westbrook-kings-triple-double-nba/
+
+**Thunder lose to Trail Blazers as NBA's last undefeated team falls**\
+`The Thunder (8-1) had beaten Portland 16 consecutive times, but lost Wednesday.`\
+https://nytimes.com/athletic/6782898/2025/11/06/thunder-trail-blazers-nba/
+
 **The New York Times in Print for Thursday, Nov. 6, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/06/todays-new-york-times
