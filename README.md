@@ -1,3 +1,7 @@
+**Knicks logo altered for second time during New York's mayoral election**\
+`It's the second time during the New York City mayoral race that the Knicks logo has been appropriated without permission`\
+https://nytimes.com/athletic/6782383/2025/11/05/white-house-knicks-trump-mamdani/
+
 **Pacers' already-frustrating season continues with Rick Carlisle ejection**\
 `An unhappy Rick Carlisle was ejected from a Pacers-Nets matchup after two quick technical fouls in the third quarter.`\
 https://nytimes.com/athletic/6782462/2025/11/05/rick-carlisle-ejected-pacers-nets/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/11/05/magazine/ai-chatbot-marriage-love-rom
 **Paige Bueckers joins expansion team as Unrivaled reveals rosters for 2026**\
 `Unrivaled debuted in 2025 with six teams of six players but expanded to eight clubs for its second season.`\
 https://nytimes.com/athletic/6782054/2025/11/05/unrivaled-rosters-2026-season/
-
-**Federal Judge Imposes Restrictions on ICE Facility at Center of Illinois Protests**\
-`After detainees described squalid conditions at the detention site, a judge ordered the government to provide showers, water, clean toilets and access to lawyers.`\
-https://nytimes.com/2025/11/05/us/judge-chicago-ice-facility-conditions.html
 
