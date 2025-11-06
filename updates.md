@@ -1,3 +1,24 @@
+**Spurs and Sir Jim Ratcliffe's INEOS reach settlement to end legal dispute**\
+`Both parties confirmed to The Athletic that they had reached an out of court agreement but declined to provide details or comment further.`\
+https://nytimes.com/athletic/6784376/2025/11/06/tottenham-ineos-settlement-legal-dispute/
+
+**France Blocks Orders From Shein as It Expands Its Crackdown**\
+`Customs officials were ordered to inspect more than 200,000 packages entering the country at Charles de Gaulle Airport.`\
+https://nytimes.com/2025/11/06/business/france-shein-sex-dolls.html
+
+**Angelina Jolie’s Driver in Ukraine Is Taken Away for the Draft**\
+`A frontline visit to bring attention to Russian drone attacks on civilians sheds an inadvertent light on the Ukrainian Army’s troop shortages.`\
+https://nytimes.com/2025/11/06/world/europe/angelina-jolie-ukraine-kherson.html
+
+**PWHL Seattle, Vancouver unveil team names and logos ahead of 2025-26 season**\
+`The PWHL's first expansion franchises now have names and logos.`\
+https://nytimes.com/athletic/6782388/2025/11/06/pwhl-seattle-torrent-vancouver-goldeneyes-logos/
+
+**NFL vibes-based predictions, a baseball heartbreaker and why did Tom Brady clone his dog?**\
+`Sports Gossip Show: Who will win the vibes war between the Patriots and Buccaneers (aka the Brady Bowl)?
+`\
+https://nytimes.com/athletic/6782239/2025/11/06/sports-gossip-show-tom-brady-baker-mayfield-drake-maye/
+
 **NFL vibes-based predictions, a baseball heartbreaker and why did Tom Brady clone his dog?**\
 `Sports Gossip Show: Who will win the vibes war between the Patriots and Buccaneers (aka the Brady Bowl)?
 `\

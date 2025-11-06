@@ -1,3 +1,19 @@
+**Spurs and Sir Jim Ratcliffe's INEOS reach settlement to end legal dispute**\
+`Both parties confirmed to The Athletic that they had reached an out of court agreement but declined to provide details or comment further.`\
+https://nytimes.com/athletic/6784376/2025/11/06/tottenham-ineos-settlement-legal-dispute/
+
+**France Blocks Orders From Shein as It Expands Its Crackdown**\
+`Customs officials were ordered to inspect more than 200,000 packages entering the country at Charles de Gaulle Airport.`\
+https://nytimes.com/2025/11/06/business/france-shein-sex-dolls.html
+
+**Angelina Jolie’s Driver in Ukraine Is Taken Away for the Draft**\
+`A frontline visit to bring attention to Russian drone attacks on civilians sheds an inadvertent light on the Ukrainian Army’s troop shortages.`\
+https://nytimes.com/2025/11/06/world/europe/angelina-jolie-ukraine-kherson.html
+
+**PWHL Seattle, Vancouver unveil team names and logos ahead of 2025-26 season**\
+`The PWHL's first expansion franchises now have names and logos.`\
+https://nytimes.com/athletic/6782388/2025/11/06/pwhl-seattle-torrent-vancouver-goldeneyes-logos/
+
 **Here Are Airports That Could Be Affected by the Air Traffic Slowdown**\
 `The cuts to flights are expected to begin Friday and deepen over the weekend to reach a 10 percent reduction in air traffic.`\
 https://nytimes.com/2025/11/06/us/politics/airports-list-flight-cuts-government-shutdown.html
@@ -22,20 +38,4 @@ https://nytimes.com/athletic/6783971/2025/11/06/sauce-gardner-trade-colts-jets-s
 **WTA Tour Finals results: Aryna Sabalenka eliminates Coco Gauff after Jessica Pegula qualifies**\
 `One group has a straight shootout, while the other sees a three-way fight for two semifinal places.`\
 https://nytimes.com/athletic/6779714/2025/11/06/wta-tour-finals-results-round-robin-qualification-scenarios/
-
-**John Russell Taylor, 90, Dies; Cultural Critic and Hitchcock Biographer**\
-`A prolific journalist and author, he wrote the only authorized biography of Alfred Hitchcock and heaped early praise on the future Nobel laureate Harold Pinter.`\
-https://nytimes.com/2025/11/06/books/john-russell-taylor-dead.html
-
-**Obesity Drugs May Drop to as Little as $150 a Month**\
-`President Trump announced a deal with Eli Lilly and Novo Nordisk to lower prices on hugely popular weight-loss drugs for Medicare, Medicaid and American patients who pay with their own money.`\
-https://nytimes.com/2025/11/06/health/obesity-drug-prices-trump.html
-
-**A Prison Hospice Program for the Living and the Dying**\
-`Most people who die in prison die alone. Programs like the one at California Medical Facility aim to prevent that.`\
-https://nytimes.com/2025/11/06/us/california-medical-facility-hospice-prison.html
-
-**‘Sarah’s Oil’ Review: The Little Drilling Rig That Could**\
-`A young Black girl learns that her land allotment is rich with oil in this story that aspires to teach us a lesson about white predation.`\
-https://nytimes.com/2025/11/06/movies/sarahs-oil-review.html
 
