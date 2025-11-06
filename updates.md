@@ -1,3 +1,15 @@
+**It’s Clear Who Is Responsible for the Shutdown Online: The Other Side**\
+`A blame game has played out on the internet and on television. President Trump has pulled out the stops.`\
+https://nytimes.com/2025/11/06/technology/online-television-shutdown-blame.html
+
+**Yeah, It’s Time to Start Thinking About Thanksgiving**\
+`We’ve got make-ahead vegetable sides, turkey-free mains and dishes that don’t even require an oven.`\
+https://nytimes.com/2025/11/06/dining/vegetarian-thanksgiving.html
+
+**What Students Are Saying About the Decline in High School Reading Skills**\
+`In response to news that 12th-grade reading scores are at a 30-year low, teenagers diagnose the problem — and warn of the high stakes for their generation.`\
+https://nytimes.com/2025/11/06/learning/what-students-are-saying-about-the-decline-in-high-school-reading-skills.html
+
 **NFL vibes-based predictions, a baseball heartbreaker and why did Tom Brady clone his dog?**\
 `Sports Gossip Show: Who will win the vibes war between the Patriots and Buccaneers (aka the Brady Bowl)?
 `\

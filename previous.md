@@ -1,3 +1,15 @@
+**It’s Clear Who Is Responsible for the Shutdown Online: The Other Side**\
+`A blame game has played out on the internet and on television. President Trump has pulled out the stops.`\
+https://nytimes.com/2025/11/06/technology/online-television-shutdown-blame.html
+
+**Yeah, It’s Time to Start Thinking About Thanksgiving**\
+`We’ve got make-ahead vegetable sides, turkey-free mains and dishes that don’t even require an oven.`\
+https://nytimes.com/2025/11/06/dining/vegetarian-thanksgiving.html
+
+**What Students Are Saying About the Decline in High School Reading Skills**\
+`In response to news that 12th-grade reading scores are at a 30-year low, teenagers diagnose the problem — and warn of the high stakes for their generation.`\
+https://nytimes.com/2025/11/06/learning/what-students-are-saying-about-the-decline-in-high-school-reading-skills.html
+
 **LeBron James nearing Lakers return from sciatic nerve issue**\
 `The 40-year-old is one step closer to joining the Lakers for his 23rd NBA season after being sidelined since the preseason.`\
 https://nytimes.com/athletic/6784364/2025/11/06/lebron-james-nearing-los-angeles-lakers-return-sciatica/
@@ -25,17 +37,4 @@ https://nytimes.com/2025/11/06/us/politics/airports-list-flight-cuts-government-
 **Design or Art? Both. At the ‘Salon’ Fair, 6 Ways to See Why.**\
 `The most thematically permissive fair in New York’s art schedule — where sofas compete with paintings and sculptures — brings up old questions about why we like objects.`\
 https://nytimes.com/2025/11/06/arts/design/salon-fair-park-avenue-armory.html
-
-**In unexpected twist, Padres choose Craig Stammen as next manager**\
-`Stammen is now the sixth full-time manager under GM A.J. Preller.`\
-https://nytimes.com/athletic/6784440/2025/11/06/padres-name-craig-stammen-manager/
-
-**NFL vibes-based predictions, a baseball heartbreaker and why did Tom Brady clone his dog?**\
-`Sports Gossip Show: Who will win the vibes war between the Patriots and Buccaneers (aka the Brady Bowl)?
-`\
-https://nytimes.com/athletic/6782239/2025/11/06/sports-gossip-show-tom-brady-baker-mayfield-drake-maye/
-
-**Sauce Gardner thrilled to be with Colts, not 'shocked' Jets traded him**\
-`Gardner goes from playing for the 1-7 Jets to the 7-2 Colts. `\
-https://nytimes.com/athletic/6783971/2025/11/06/sauce-gardner-trade-colts-jets-shocked/
 
