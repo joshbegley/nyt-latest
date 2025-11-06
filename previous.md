@@ -1,3 +1,15 @@
+**Pelosi Plans to Retire in 2027 After 39 Years in Congress**\
+`Representative Nancy Pelosi, the only female House speaker, said she will not run for re-election. She wielded immense power and became a Democratic icon, while she was demonized by conservatives.`\
+https://nytimes.com/2025/11/06/us/politics/nancy-pelosi-house-retire.html
+
+**Ajay Mitchell, Ryan Rollins and 10 players you might not know but should**\
+`These guys aren't household names (yet), but they're making noteworthy impacts on their respective teams.`\
+https://nytimes.com/athletic/6779285/2025/11/06/ajay-mitchell-ryan-rollins-nba-under-radar/
+
+**Jacob Trouba's commanding start helps young Ducks team spread its wings**\
+`The Ducks are off to their best start in 11 years, thanks in no small part to Trouba, who looks like he's turning back the clock in Anaheim.`\
+https://nytimes.com/athletic/6782692/2025/11/06/jacob-trouba-anaheim-ducks-leadership-defense/
+
 **Is Fashion Done With Inclusivity, Instagram and Kardashians?**\
 `Olivier Rousteing’s departure from Balmain suggests the answer may be yes.`\
 https://nytimes.com/2025/11/06/style/olivier-rousteing-balmain.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6781557/2025/11/06/nebraska-huskers-tj-lateef-dylan
 **An American Conductor Comes Home to Lead the Houston Grand Opera**\
 `After more than a decade in Europe, James Gaffigan is returning to the United States to take over one of the nation’s highest-profile opera houses.`\
 https://nytimes.com/2025/11/06/arts/music/james-gaffigan-houston-grand-opera.html
-
-**Egypt’s Grand Museum Is Finally Open. Now, ‘We Need Our Stuff Back.’**\
-`The museum’s most anticipated exhibit is the full 5,500 items from King Tutankhamen’s tomb. Egyptians say it’s time to experience their most precious antiquities at home.`\
-https://nytimes.com/2025/11/06/arts/design/grand-egyptian-museum-opening.html
-
-**How Cardinals RB Emari Demercado got past one of football's most 'boneheaded' mistakes**\
-`The Cardinals have struggled closing all season. Yet, in Monday's final minutes, the poster child of their ineptness made the smartest play.`\
-https://nytimes.com/athletic/6782570/2025/11/06/emari-demercado-arizona-cardinals-end-zone-fumble-mistake/
-
-**The Rockets knew what they did best. So they decided to 'triple-down' on it**\
-`Houston led the NBA in offensive rebounding last season, then went out and added even more size to dominate the glass. It's working so far.`\
-https://nytimes.com/athletic/6783105/2025/11/06/rockets-offensive-rebounding-nba/
 

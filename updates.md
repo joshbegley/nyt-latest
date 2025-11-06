@@ -1,3 +1,15 @@
+**Pelosi Plans to Retire in 2027 After 39 Years in Congress**\
+`Representative Nancy Pelosi, the only female House speaker, said she will not run for re-election. She wielded immense power and became a Democratic icon, while she was demonized by conservatives.`\
+https://nytimes.com/2025/11/06/us/politics/nancy-pelosi-house-retire.html
+
+**Ajay Mitchell, Ryan Rollins and 10 players you might not know but should**\
+`These guys aren't household names (yet), but they're making noteworthy impacts on their respective teams.`\
+https://nytimes.com/athletic/6779285/2025/11/06/ajay-mitchell-ryan-rollins-nba-under-radar/
+
+**Jacob Trouba's commanding start helps young Ducks team spread its wings**\
+`The Ducks are off to their best start in 11 years, thanks in no small part to Trouba, who looks like he's turning back the clock in Anaheim.`\
+https://nytimes.com/athletic/6782692/2025/11/06/jacob-trouba-anaheim-ducks-leadership-defense/
+
 **Is Fashion Done With Inclusivity, Instagram and Kardashians?**\
 `Olivier Rousteing’s departure from Balmain suggests the answer may be yes.`\
 https://nytimes.com/2025/11/06/style/olivier-rousteing-balmain.html

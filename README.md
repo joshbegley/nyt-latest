@@ -1,3 +1,11 @@
+**Kante back in France squad for first time in a year**\
+`The 34-year-old has 64 senior caps and was part of the side that won the 2018 World Cup.`\
+https://nytimes.com/athletic/6783336/2025/11/06/ngolo-kante-france-squad-kolo-muani/
+
+**NWSL playoff preview: How to watch, key matchups and bold predictions**\
+`Here's what you need to know ahead of the 2025 NWSL playoffs. `\
+https://nytimes.com/athletic/6782270/2025/11/06/nwsl-playoffs-how-to-watch-2025/
+
 **Pelosi Plans to Retire in 2027 After 39 Years in Congress**\
 `Representative Nancy Pelosi, the only female House speaker, said she will not run for re-election. She wielded immense power and became a Democratic icon, while she was demonized by conservatives.`\
 https://nytimes.com/2025/11/06/us/politics/nancy-pelosi-house-retire.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6783483/2025/11/06/ucsb-vs-ucla-stream-how-to-watch
 **Trump Administration Live Updates: Officials to List Where Flights Will Be Cut Amid Shutdown**\
 ``\
 https://nytimes.com/live/2025/11/06/us/trump-news-shutdown
-
-**Can Nebraska rally around TJ Lateef after Dylan Raiola's injury?**\
-`A year after reshaping Nebraska's offense, Dana Holgorsen will guide Lateef into his first start — under bright California lights.`\
-https://nytimes.com/athletic/6781557/2025/11/06/nebraska-huskers-tj-lateef-dylan-raiola-injury/
-
-**An American Conductor Comes Home to Lead the Houston Grand Opera**\
-`After more than a decade in Europe, James Gaffigan is returning to the United States to take over one of the nation’s highest-profile opera houses.`\
-https://nytimes.com/2025/11/06/arts/music/james-gaffigan-houston-grand-opera.html
 
