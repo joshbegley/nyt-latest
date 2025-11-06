@@ -1,3 +1,11 @@
+**‘Florentine Diamond’ Letter of Authenticity**\
+`The document is signed by Christoph Köchert, whose family long served as jewelers to the imperial court.`\
+https://nytimes.com/interactive/2025/11/06/arts/design/06cul-florentine-diamond-doc.html
+
+**Champions League projections: Arsenal increase their grip as Bayern become second favourites**\
+`The Athletic analyses the state of play in Europe's premier club competition following the conclusion of the fourth round of fixtures`\
+https://nytimes.com/athletic/6783427/2025/11/06/champions-league-projections-md4/
+
 **Tracking Tropical Storm Fung-wong**\
 `See the likely path and wind arrival times for Fung-wong`\
 https://nytimes.com/interactive/2025/weather/fung-wong-map-path-tracker.html
