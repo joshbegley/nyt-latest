@@ -1,3 +1,15 @@
+**Jamie Dimon of JPMorgan Says He Has Reached Out to Zohran Mamdani**\
+`The banking giant’s C.E.O. said he wanted to keep lines of communication open with the mayor-elect of New York.`\
+https://nytimes.com/2025/11/05/business/jamie-dimon-zohran-mamdani.html
+
+**Alex Ovechkin becomes first NHL player to score 900 goals**\
+`Ovechkin became the NHL’s all-time goals leader after breaking Wayne Gretzky's record last season.`\
+https://nytimes.com/athletic/6729566/2025/11/05/alex-ovechkin-900-goals-record-nhl/
+
+**Democrats Raise Concerns After Trump Administration Briefing on Boat Strikes**\
+`The classified meeting did not relieve mounting unease among lawmakers over President Trump’s expanding campaign of lethal strikes against drug cartels.`\
+https://nytimes.com/2025/11/05/us/politics/trump-drug-boat-strikes-democrats.html
+
 **Ex-Giants manager Bruce Bochy finalizing deal to return to S.F. as special assistant**\
 `Bochy, who won three of his four World Series titles managing the Giants, will be back in San Francisco, where he managed for 13 seasons.`\
 https://nytimes.com/athletic/6782066/2025/11/05/bruce-bochy-giants-special-assistant/
