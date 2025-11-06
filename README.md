@@ -1,8 +1,20 @@
+**I.R.S. Halts Free Online Offering for Filing Taxes Directly**\
+`The new program, Direct File, helped low- and moderate-income taxpayers file their returns more easily, and had been expanding.`\
+https://nytimes.com/2025/11/06/business/taxes-irs-direct-file.html
+
+**What Travelers Need to Know About the Coming Flight Reductions**\
+`As the government shutdown continues, more challenges await passengers as they deal with the newest announcement from the Trump administration: a 10 percent cut in flights at 40 U.S. airports.`\
+https://nytimes.com/2025/11/06/travel/shutdown-faa-flight-delays-cancellations.html
+
+**Climate Talks Begin With U.S. Allies and Rivals Alike Calling for Action**\
+`The speeches on opening day stood in sharp contrast to the position of President Trump, who has called global warming a “con job.”`\
+https://nytimes.com/2025/11/06/climate/cop30-speeches-belem-brazil-climate.html
+
 **Supreme Court Clears Way for Trump Transgender Passport Policy**\
 `A lower court judge had temporarily blocked the administration’s policy requiring that passports reflect sex as found on an original birth certificate.`\
 https://nytimes.com/2025/11/06/us/politics/supreme-court-transgender-passport.html
 
-**Challenges and Cheers for Bill Gates on Climate**\
+**Challenges and Cheers for Bill Gates on Climate Change**\
 `Readers respond to news and opinion articles about Bill Gates’s public memo on climate change. Also: Interfaith connections; the myth of originalism.`\
 https://nytimes.com/2025/11/06/opinion/bill-gates-climate.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6785080/2025/11/06/clippers-vs-suns-stream-how-to-w
 **How to watch Flyers vs. Predators: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Flyers play the Nashville Predators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6785078/2025/11/06/flyers-vs-predators-stream-how-to-watch-nov-6/
-
-**How to watch Lightning vs. Golden Knights: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Lightning play the Vegas Golden Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6785076/2025/11/06/lightning-vs-golden-knights-stream-how-to-watch-nov-6/
-
-**How to watch Ducks vs. Stars: Time, TV, streaming**\
-`Find out how to watch the Anaheim Ducks play the Dallas Stars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6785074/2025/11/06/ducks-vs-stars-stream-how-to-watch-nov-6/
-
-**Giannis Antetokounmpo to Marquette? Shaka Smart would love to make it happen**\
-`The NCAA has been allowing overseas players to become eligible and Giannis was drafted straight out of Greece.`\
-https://nytimes.com/athletic/6784832/2025/11/06/giannis-antetokounmpo-bucks-marquette-shaka-smart/
 
