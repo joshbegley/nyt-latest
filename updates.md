@@ -1,3 +1,19 @@
+**Sri Owen, Who Popularized Indonesian Cuisine, Dies at 90**\
+`Settling in England as a young woman, she turned her nostalgia for the food of her youth in Sumatra into a career as an influential cookbook author.`\
+https://nytimes.com/2025/11/06/dining/sri-owen-dead.html
+
+**How Child Abuse Pediatricians Approach Their Work**\
+`Following the release of “The Preventionist,” a group of CAPs discuss diagnostic uncertainty, second opinions and the future of the field.`\
+https://nytimes.com/2025/11/06/podcasts/serial-the-preventionist-podcast-caps-roundtable.html
+
+**Where to Travel After a Breakup**\
+`And more answers to readers’ winter vacation queries.`\
+https://nytimes.com/2025/11/06/t-magazine/relationship-breakup-winter-vacation-ideas.html
+
+**Trump Officials Plan Flight Cuts at Nation’s Busiest Airports**\
+`Also, Nancy Pelosi is retiring. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/11/06/briefing/trump-officials-plan-flight-cuts-at-nations-busiest-airports.html
+
 **U.S. Sends Attack Aircraft to El Salvador Amid Regional Troop Buildup**\
 `A New York Times analysis of satellite imagery and air traffic control communications found that U.S. military planes began operating out of the Central American country in mid-October.`\
 https://nytimes.com/2025/11/06/world/americas/us-military-planes-el-salvador.html
