@@ -1,3 +1,7 @@
+**Mexico’s President Presses Charges After Being Groped on the Street**\
+`President Claudia Sheinbaum of Mexico said she filed a complaint against a man who groped and tried to kiss her in a public episode captured on video.`\
+https://nytimes.com/video/world/americas/100000010508005/sheinbaum-mexico-harassment-charges.html
+
 **'Bend it like Burn': Analysing Dan Burn's wonder-header with Les Ferdinand**\
 `How the `\
 https://nytimes.com/athletic/6783312/2025/11/06/newcastle-burn-wonder-header-ferdinand/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/06/us/trump-bishops-communion.html
 **Cade Cunningham, Pistons turning the corner toward 'not being losers'**\
 `"We're just starting to get our feet wet as far as learning winning basketball," Cunningham said of the 6-2 Pistons.`\
 https://nytimes.com/athletic/6783017/2025/11/06/cade-cunningham-pistons-jazz-nba/
-
-**Rico Dowdle fined for ‘Key & Peele’ celebration, starts charity GoFundMe**\
-`As of Thursday morning, more than $14,700 has been raised for the Children's Home Society of North Carolina.`\
-https://nytimes.com/athletic/6783496/2025/11/06/rico-dowdle-key-peele-gofundme/
 
