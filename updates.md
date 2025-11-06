@@ -1,3 +1,7 @@
+**How many team changes do Premier League managers make? And is fewer always better?**\
+`While Arsenal have made a virtue of stability, Nottingham Forest and Wolves have shown what happens if you make too many changes`\
+https://nytimes.com/athletic/6776318/2025/11/06/premier-league-player-rotation-analysis/
+
 **‘Broken My Hope’: Trump’s Move to Slash Refugee Arrivals Ricochets Widely**\
 `President Trump’s policy has shut the door on all but a tiny fraction of people across the world seeking refuge in the United States from conflict, persecution or both.`\
 https://nytimes.com/2025/11/06/world/asia/trump-refugee-cap-despair.html

@@ -1,3 +1,11 @@
+**Dominik Szoboszlai: Future Liverpool captain?**\
+`The Hungarian has been Arne Slot's most reliable player this season and is ready to embrace more responsbility`\
+https://nytimes.com/athletic/6778392/2025/11/06/dominik-szoboszlai-liverpool-captain/
+
+**The Tactics Board: How the 4-3-3 works**\
+`Part three of The Athletic's series on football formations takes a close look at the 4-3-3 formation.`\
+https://nytimes.com/athletic/6766503/2025/11/06/tactics-board-4-3-3-formation/
+
 **How many team changes do Premier League managers make? And is fewer always better?**\
 `While Arsenal have made a virtue of stability, Nottingham Forest and Wolves have shown what happens if you make too many changes`\
 https://nytimes.com/athletic/6776318/2025/11/06/premier-league-player-rotation-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/05/pageoneplus/corrections-nov-6-2025.html
 **Quote of the Day: After Defying Odds, Mamdani Faces Even Steeper Task**\
 `Quotation of the Day for Thursday, November 6, 2025.`\
 https://nytimes.com/2025/11/05/pageoneplus/quote-of-the-day-after-defying-odds-mamdani-faces-even-steeper-task.html
-
-**Victor Wembanyama throws down poster dunk on Lakers guard Bronny James**\
-`Victor Wembanyama found one of the glitziest ways possible to put himself in the spotlight — by dunking on Bronny James.`\
-https://nytimes.com/athletic/6782713/2025/11/05/victor-wembanyama-spurs-bronny-james-lakers-dunk-nba/
-
-**Auston Matthews may be back to his dominant self for the Maple Leafs**\
-`After early season questions, the Maple Leafs captain is performing like one of the world’s best players again.`\
-https://nytimes.com/athletic/6782693/2025/11/05/auston-matthews-maple-leafs-utah-mammoth/
 
