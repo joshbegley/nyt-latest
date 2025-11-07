@@ -1,3 +1,7 @@
+**To Americans, Pelosi Was the House Speaker. To San Francisco, She Was Mom.**\
+`Representative Nancy Pelosi, after announcing her retirement, was praised by many San Franciscans for her tireless efforts on behalf of the city. Some of her work went unheralded.`\
+https://nytimes.com/2025/11/06/us/nancy-pelosi-san-francisco-retirement.html
+
 **‘Step on It!’**\
 `Kelly Morenus offers some lively stacks and a sizzling central crossing.`\
 https://nytimes.com/2025/11/06/crosswords/daily-puzzle-2025-11-07.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6785842/2025/11/06/john-mateer-chipotle-worker-texa
 **LaTroy Hawkins to serve as Twins bullpen coach, more changes expected: Sources**\
 `Hawkins, who's been with the Twins as a special assistant since 2017, will be involved more as a bullpen coach under manager Derek Shelton.`\
 https://nytimes.com/athletic/6784964/2025/11/06/latroy-hawkins-twins-bullpen-coach/
-
-**As Hours Dwindled Before Flight Cuts, the Government Was Publicly Mum**\
-`Airlines did not wait for an announcement, notifying passengers and airports of expected changes before the Trump administration made official its list of affected airports.`\
-https://nytimes.com/2025/11/06/us/politics/flight-cuts-government-airports-faa.html
 
