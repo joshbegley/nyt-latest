@@ -1,3 +1,7 @@
+**President Trump to attend Sunday's Lions-Commanders game at Northwest Stadium**\
+`It will be the first time a sitting U.S. president has attended an NFL game at the suburban Maryland stadium.`\
+https://nytimes.com/athletic/6788027/2025/11/07/nfl-trump-lions-commanders-appearance/
+
 **Did Trump’s Supreme Court Tariffs Brief Include a Strategic Blunder?**\
 `The justices are generally reluctant to take account of a president’s public statements. But extensive quotes from Mr. Trump in a key filing may change the legal calculus.`\
 https://nytimes.com/2025/11/07/us/trump-statements-supreme-court-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/07/us/airline-cancellations-travel-alternatives.html
 **James Watson, Co-Discoverer of the Structure of DNA, Is Dead at 97**\
 `His decoding the blueprint for life with Francis H.C. Crick made him one of the most important scientists of the 20th century. He wrote a celebrated memoir and later ignited an uproar with racist views.`\
 https://nytimes.com/2025/11/07/science/james-watson-dead.html
-
-**This Spoon Leveled Up My Cooking**\
-`Kitchen writer Maki Yazawa learned of the Kunz spoon as a restaurant line cook — and in the eight years since she first used one, the spoon has transformed the way she cooks.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010511748/this-spoon-leveled-up-my-cooking.html
 
