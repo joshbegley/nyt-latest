@@ -1,3 +1,8 @@
+**Adolf Hitler, Jesse Owens and Berlin's Olympiastadion: The complicated history of an NFL venue**\
+`The NFL’s first regular-season game in Berlin will be played in Europe's most contentious sporting venue. It has a complex history
+`\
+https://nytimes.com/athletic/5559958/2025/11/07/nfl-falcons-colts-olympiastadion-final-berlin-history/
+
 **NCAA bans 6 ex-college basketball players from 3 schools for betting violations**\
 `Former players from Arizona State, Mississippi Valley State and New Orleans were declared permanently ineligible.`\
 https://nytimes.com/athletic/6787533/2025/11/07/ncaa-betting-violations-arizona-state-new-orleans-mississippi-valley-state/
