@@ -1,3 +1,7 @@
+**The Pulse: Tragedy shakes the NFL**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6785034/2025/11/07/marshawn-kneeland-death-nfl-cowboys-the-pulse/
+
 **Pessimism in standoff as ESPN, YouTube TV head towards 'Monday Night' showdown**\
 `What I'm Hearing: The Athletic's Andrew Marchand has the latest state of play on the YouTube TV-ESPN standoff.`\
 https://nytimes.com/athletic/6785793/2025/11/07/youtubetv-espn-disney-monday-night-football/
