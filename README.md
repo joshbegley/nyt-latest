@@ -1,3 +1,31 @@
+**Xabi Alonso's culture of secrecy: Why Real Madrid want even tighter control**\
+`Since arriving as Carlo Ancelotti's replacement in May, the 43-year-old has made a host of changes designed to increase privacy`\
+https://nytimes.com/athletic/6783616/2025/11/07/real-madrid-xabi-alonso-training-champions-league-secrecy/
+
+**Inside the mind of Virgil van Dijk**\
+`The Liverpool captain's public statements and actions over the last week have given an insight into him as a leader`\
+https://nytimes.com/athletic/6784569/2025/11/07/liverpool-van-dijk-inside-mind-captain/
+
+**No red cards, 10 yellows - How have Arsenal cut out unnecessary bookings?**\
+`Mikel Arteta's men are not just leading the Premier League - they are top of its fair play table, too`\
+https://nytimes.com/athletic/6783207/2025/11/07/arsenal-bookings-premier-league/
+
+**FPL: Can we bet against captaining Haaland?**\
+`Yes, the City striker remains extraordinary but even superstars have testing spells — and there’s value in looking beyond the obvious`\
+https://nytimes.com/athletic/6780295/2025/11/07/fantasy-premier-league-erling-haaland-captain-gameweek-11/
+
+**From Arsenal prodigy to AFC Totton via prison: Jay Emmanuel-Thomas and the limits of rehabilitation**\
+`Emmanuel-Thomas, who was convicted of drug smuggling, joined AFC Totton following his release this summer `\
+https://nytimes.com/athletic/6781109/2025/11/07/arsenal-jay-emmanuel-thomas-rehabilitation-football/
+
+**Pep Guardiola's first game as a manager: 'It was tough, he came down to the mud'**\
+`With his 1,000th game set to come on Sunday — against Liverpool, no less — this is the story of his very first match as a manager`\
+https://nytimes.com/athletic/6779895/2025/11/07/guardiola-barcelona-first-match-manager/
+
+**Premier League Predictions: Man City vs Liverpool, Spurs v Man United, and the rest of Matchday 11**\
+`Who's leading after MD10? And what does our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 11?`\
+https://nytimes.com/athletic/6783161/2025/11/07/premier-league-predictions-md11/
+
 **The Prospects: Harrison Miles, England Under-17s and Manchester City**\
 `Miles is a busy and highly technical deep-lying midfielder who constantly makes himself available to receive possession in tight spaces`\
 https://nytimes.com/athletic/6783316/2025/11/07/harrison-miles-manchester-city-england/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6785369/2025/11/07/nottingham-forest-sturm-graz-ana
 **Pedro Neto and his Chelsea evolution: 'He's showing what he can potentially become'**\
 `Pedro Neto broke into the Premier League at Wolves but he has changed as a player during his time at Chelsea`\
 https://nytimes.com/athletic/6783727/2025/11/07/pedro-neto-chelsea-wolves-analysis/
-
-**Noah Okafor and his Switzerland absence: 'It really, really makes me sad'**\
-`The Leeds forward has not played for Switzerland for nearly a year. He spoke exclusively to The Athletic about his frustrations`\
-https://nytimes.com/athletic/6784642/2025/11/07/noah-okafor-leeds-switzerland-interview/
-
-**Connections: Sports Edition Coach: Hints for Nov. 7, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6786349/2025/11/07/connections-sports-edition-hints-for-nov-7-2025/
-
-**What financial impact would relegation have on West Ham?**\
-`West Ham are in the relegation zone and will be hoping to avoid dropping into the Championship this season`\
-https://nytimes.com/athletic/6773309/2025/11/07/west-ham-relegation-finances-impact/
-
-**My First Love Ghosted Me. It’s Not What You Think.**\
-`I had lost faith in the universe — until an apparition of my smiling, 16-year-old late ex-boyfriend appeared.`\
-https://nytimes.com/2025/11/07/style/my-first-love-ghosted-me-its-not-what-you-think.html
-
-**The Second Match Was the Charm**\
-`Parker Krug and Jared Moffett were connected not once but twice on dating apps.`\
-https://nytimes.com/2025/11/07/style/parker-krug-jared-moffett-wedding.html
-
-**Facing Trump’s Tariffs, Swiss Farmers Find Themselves With Too Much Milk**\
-`The country’s dairy farmers produced a bumper harvest of milk, but higher U.S. duties have forced them to consider ways to cut back, including slaughtering cows.`\
-https://nytimes.com/2025/11/07/business/switzerland-tariffs-trump-milk-cheese-cows.html
-
-**Between Laps, a Deep Friendship Surfaced**\
-`Lilly King, the Olympic swimmer, met James Wells as teammates for the Indiana University swim team. “Somewhere deep down I always knew I loved him,” she said.`\
-https://nytimes.com/2025/11/07/style/between-laps-a-deep-friendship-surfaced.html
 
