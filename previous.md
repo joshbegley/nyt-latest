@@ -1,3 +1,7 @@
+**Russia appeals ban on skiers from Winter Olympics qualifying**\
+`The IOC is letting each sports' federation decide whether they allow Russian and Belarusian athletes to compete under a neutral banner.`\
+https://nytimes.com/athletic/6787011/2025/11/07/russia-skiing-winter-olympics/
+
 **The $1 Trillion Question Hanging Over Elon Musk’s Pay Plan**\
 `Tesla shareholders approved his potentially record-breaking compensation package. But will he actually get the full award?`\
 https://nytimes.com/2025/11/07/business/dealbook/elon-musk-trillion-pay.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6786545/2025/11/07/bradley-beal-phoenix-return-clip
 **China Suspends Some Export Controls on Critical Minerals but Retains Others**\
 `The Chinese government followed through on promises it made publicly after a recent summit, but has not yet taken other actions sought by the White House.`\
 https://nytimes.com/2025/11/07/business/china-rare-earth-export-controls.html
-
-**Fantasy Premier League live Q&A: Gameweek 11 advice from Ben Dinnery**\
-`Ben Dinnery of premierinjuries.com is on hand to talk you through the players to target and who to avoid ahead of FPL Gameweek 11`\
-https://nytimes.com/athletic/6786944/2025/11/07/fantasy-premier-league-live-qa-gameweek-11-advice-from-ben-dinnery/
 

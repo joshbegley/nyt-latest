@@ -1,3 +1,7 @@
+**Russia appeals ban on skiers from Winter Olympics qualifying**\
+`The IOC is letting each sports' federation decide whether they allow Russian and Belarusian athletes to compete under a neutral banner.`\
+https://nytimes.com/athletic/6787011/2025/11/07/russia-skiing-winter-olympics/
+
 **The $1 Trillion Question Hanging Over Elon Musk’s Pay Plan**\
 `Tesla shareholders approved his potentially record-breaking compensation package. But will he actually get the full award?`\
 https://nytimes.com/2025/11/07/business/dealbook/elon-musk-trillion-pay.html
