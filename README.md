@@ -1,3 +1,7 @@
+**U.S. Wants Security Council to Adopt Trump Plan for Gaza**\
+`The alternative, Ambassador Michael Waltz bluntly told diplomats, was to watch the cease-fire between Israel and Hamas give way to a return to war.`\
+https://nytimes.com/2025/11/07/world/middleeast/trump-gaza-plan-us-security-council.html
+
 **A Decade Later, Supreme Court Is Asked to Revisit Same-Sex Marriage Decision**\
 `Kim Davis, a Kentucky county clerk once jailed for refusing to issue same-sex marriage licenses, has asked the court to reconsider its landmark 2015 opinion.`\
 https://nytimes.com/2025/11/07/us/politics/supreme-court-same-sex-marriage.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/07/style/american-socialism-dsa-mamdani.html
 **Who Are the ‘Groypers’?**\
 `A word associated with right-wing pundit Nick Fuentes and his followers is suddenly part of the national vocabulary.`\
 https://nytimes.com/article/groyper-nick-fuentes-tucker-carlson.html
-
-**Tottenham Hotspur vs Manchester United: Back in business or mired in mediocrity again?**\
-`Spurs beat United in all four of last season's meetings, including the Europa League final. Can Amorim's side get revenge?`\
-https://nytimes.com/athletic/6786786/2025/11/07/tottenham-hotspur-manchester-united/
 
