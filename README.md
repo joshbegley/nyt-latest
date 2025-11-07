@@ -1,3 +1,7 @@
+**Who’s Selling the $10 Million Gold Toilet? Signs Point to the Mets’ Owner.**\
+`The billionaire Steve Cohen is reported to have purchased the 18-karat flushable sculpture by Maurizio Cattelan in 2017. It’s now coming up for sale at Sotheby’s.`\
+https://nytimes.com/2025/11/06/arts/design/golden-toilet-10-million-dsteven-cohen-mets-owner.html
+
 **Trump Increases Pressure on His Own Party as the Shutdown Grinds On**\
 `President Trump has called on Republicans to end the filibuster as both parties search for a path out of the shutdown.`\
 https://nytimes.com/2025/11/06/us/politics/trump-pressure-republicans-shutdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/06/us/politics/maryland-fbi-lawsuit-headquarters.htm
 **Red Sox do not extend qualifying offer to starter Lucas Giolito**\
 `He enters free agency without a qualifying offer, perhaps helping his market as clubs are often hesitant to lose draft picks for such deals.`\
 https://nytimes.com/athletic/6785602/2025/11/06/lucas-giolito-red-sox-no-qualifying-offer/
-
-**Republicans Block Measure to Bar Military Strike on Venezuela**\
-`All but two G.O.P. senators voted against a resolution to stop the president from expanding his military campaign against drug traffickers to include land targets inside Venezuela.`\
-https://nytimes.com/2025/11/06/us/politics/republicans-military-strike-venezuela.html
 
