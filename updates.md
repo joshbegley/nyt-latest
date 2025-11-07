@@ -1,3 +1,7 @@
+**'It's not healthy': Jack Draper on the loneliness of elite tennis and player welfare**\
+`Draper speaks to the Tennis Podcast about the impact of extended tournaments on the players that make them spectacles.`\
+https://nytimes.com/athletic/6784488/2025/11/07/jack-draper-tennis-podcast-interview-calendar-schedule/
+
 **'It's not healthy': Jack Draper on the loneliness of elite tennis, the calendar, and player welfare**\
 `Draper discusses the ongoing wrestle between players, the tours and the Grand Slams over the tennis calendar and its impact on welfare.`\
 https://nytimes.com/athletic/6784488/2025/11/07/jack-draper-tennis-podcast-interview-calendar-schedule/
