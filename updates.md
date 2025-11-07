@@ -1,3 +1,5 @@
+
+
 **U.S. Wants Security Council to Adopt Trump Plan for Gaza**\
 `The alternative, Ambassador Michael Waltz bluntly told diplomats, was to watch the cease-fire between Israel and Hamas give way to a return to war.`\
 https://nytimes.com/2025/11/07/world/middleeast/trump-gaza-plan-us-security-council.html
