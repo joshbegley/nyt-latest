@@ -1,3 +1,11 @@
+**Graham Gano discusses death threats from fans, mental health**\
+`The 38-year-old kicker, who's been oft-injured the past three seasons, talked about his struggles with fan interactions.`\
+https://nytimes.com/athletic/6786056/2025/11/06/graham-gano-death-threats/
+
+**To Americans, Pelosi Was the House Speaker. To San Francisco, She Was Mom.**\
+`Representative Nancy Pelosi, after announcing her retirement, was praised by many San Franciscans for her tireless efforts on behalf of the city. Some of her work went unheralded.`\
+https://nytimes.com/2025/11/06/us/nancy-pelosi-san-francisco-retirement.html
+
 **‘Step on It!’**\
 `Kelly Morenus offers some lively stacks and a sizzling central crossing.`\
 https://nytimes.com/2025/11/06/crosswords/daily-puzzle-2025-11-07.html
