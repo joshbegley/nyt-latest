@@ -1,3 +1,11 @@
+**Villa reach Rogers new contract agreement until 2031**\
+`The deal is set to extend the midfielder's contract by 12 months and include a significant salary raise.`\
+https://nytimes.com/athletic/6784435/2025/11/07/morgan-rogers-aston-villa-contract-new/
+
+**Liverpool academy director Alex Inglethorpe signs new contract**\
+`Inglethorpe joined Liverpool from Spurs as under-21s manager in 2012 before being promoted to the role of academy director two years later.`\
+https://nytimes.com/athletic/6753646/2025/11/07/alex-inglethorpe-liverpool-academy-director-contract/
+
 **How Emmanuel Forbes Jr. went from a project to a player the Rams believe in**\
 `Forbes, a 2023 first-round pick who was released by the Commanders last year, has quietly began to turn his career around with the Rams. `\
 https://nytimes.com/athletic/6786479/2025/11/07/rams-emmanuel-forbes-jr-development/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6787163/2025/11/07/iliman-ndiaye-everton-injury-new
 **New York Prepares for a Potential Trump Immigration Crackdown**\
 `The election of Zohran Mamdani as mayor has stoked speculation that President Trump might move to send forces into the city.`\
 https://nytimes.com/2025/11/07/nyregion/nyc-immigration-raids-trump-mamdani.html
-
-**History is everywhere as Falcons arrive in Germany to face Colts**\
-`The Falcons held their first practice in Berlin on Friday morning local time in preparation for Sunday's game against the Colts.`\
-https://nytimes.com/athletic/6786536/2025/11/07/falcons-colts-germany-practice-history/
-
-**Sources: Fire reach permanent deal for Franco as part of club's plan to build on 2025**\
-`Beyond keeping André Franco and adding Swedish midfielder Anton Salétros, Chicago and Gregg Berhalter are thinking big for 2026`\
-https://nytimes.com/athletic/6786458/2025/11/07/chicago-fire-andre-franco-anton-saletros-berhalter-mls/
 

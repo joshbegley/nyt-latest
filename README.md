@@ -1,3 +1,7 @@
+**Spurs' Kudus a doubt to face Man United, says Frank**\
+`The Ghanaian missed Tuesday's win over FC Copenhagen in the Champions League with a knock.`\
+https://nytimes.com/athletic/6787363/2025/11/07/tottenham-mohamed-kudus-injury-manchester-united/
+
 **Villa reach Rogers new contract agreement until 2031**\
 `The deal is set to extend the midfielder's contract by 12 months and include a significant salary raise.`\
 https://nytimes.com/athletic/6784435/2025/11/07/morgan-rogers-aston-villa-contract-new/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6787169/2025/11/07/fantasy-football-news-week-10-ja
 **Everton's Iliman Ndiaye 'fine' after injury concern against Sunderland, Moyes says**\
 `Ndiaye has made 12 appearances for Everton this season, starting in all 10 Premier League matches so far.`\
 https://nytimes.com/athletic/6787163/2025/11/07/iliman-ndiaye-everton-injury-news/
-
-**New York Prepares for a Potential Trump Immigration Crackdown**\
-`The election of Zohran Mamdani as mayor has stoked speculation that President Trump might move to send forces into the city.`\
-https://nytimes.com/2025/11/07/nyregion/nyc-immigration-raids-trump-mamdani.html
 

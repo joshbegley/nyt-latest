@@ -1,3 +1,11 @@
+**Villa reach Rogers new contract agreement until 2031**\
+`The deal is set to extend the midfielder's contract by 12 months and include a significant salary raise.`\
+https://nytimes.com/athletic/6784435/2025/11/07/morgan-rogers-aston-villa-contract-new/
+
+**Liverpool academy director Alex Inglethorpe signs new contract**\
+`Inglethorpe joined Liverpool from Spurs as under-21s manager in 2012 before being promoted to the role of academy director two years later.`\
+https://nytimes.com/athletic/6753646/2025/11/07/alex-inglethorpe-liverpool-academy-director-contract/
+
 **How Emmanuel Forbes Jr. went from a project to a player the Rams believe in**\
 `Forbes, a 2023 first-round pick who was released by the Commanders last year, has quietly began to turn his career around with the Rams. `\
 https://nytimes.com/athletic/6786479/2025/11/07/rams-emmanuel-forbes-jr-development/
