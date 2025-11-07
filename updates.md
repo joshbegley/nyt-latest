@@ -1,3 +1,7 @@
+**Anti-Defamation League Creates Antisemitism Tip Line Focused on Mamdani**\
+`The group, which has taken aim at Mayor-elect Zohran Mamdani over his criticism of Israel, is facing backlash after unveiling a website where New Yorkers could report incidents of antisemitism.`\
+https://nytimes.com/2025/11/06/nyregion/zohran-mamdani-monitor-antisemitism-adl.html
+
 **Antonio Brown captured in Dubai by U.S. Marshals on attempted murder charge**\
 `Brown faces a second-degree murder charge in connection with a Miami shooting that happened in May.`\
 https://nytimes.com/athletic/6785505/2025/11/06/antonio-brown-captured-search-nfl/
