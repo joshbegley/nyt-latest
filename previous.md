@@ -18,7 +18,7 @@ https://nytimes.com/2025/11/07/business/china-nexperia-autos-chips.html
 `Readers discuss equal opportunity and immigration as central ideas in the American project. Also: The value of brain research; Democratic momentum.`\
 https://nytimes.com/2025/11/07/opinion/us-immigration-equality.html
 
-**Disney sends memo to employees about YouTube TV standoff**\
+**Disney internal memo reflects pessimism around YouTube TV-ESPN standoff**\
 `The release of the memo to ESPN employees is the latest twist in the protracted stand-off between the distributor and content company.`\
 https://nytimes.com/athletic/6787572/2025/11/07/espn-disney-memo-youtubetv-nfl/
 

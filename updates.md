@@ -1,3 +1,7 @@
+**Disney internal memo reflects pessimism around YouTube TV-ESPN standoff**\
+`The release of the memo to ESPN employees is the latest twist in the protracted stand-off between the distributor and content company.`\
+https://nytimes.com/athletic/6787572/2025/11/07/espn-disney-memo-youtubetv-nfl/
+
 **50 Years Later, the Story of the Edmund Fitzgerald Lives On**\
 `John U. Bacon, author of “The Gales of November: The Untold Story of the Edmund Fitzgerald” talks about the famous shipwreck.`\
 https://nytimes.com/2025/11/07/books/review/edmund-fitzgerald-50th-anniversary.html

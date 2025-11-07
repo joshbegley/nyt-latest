@@ -1,3 +1,7 @@
+**Leafs goalie Joseph Woll 'happy to be back,' will report to Marlies**\
+`Woll declined to elaborate on the personal matter that has kept him away from the team since September.`\
+https://nytimes.com/athletic/6787797/2025/11/07/joseph-woll-leafs-marlies-conditioning/
+
 **50 Years Later, the Story of the Edmund Fitzgerald Lives On**\
 `John U. Bacon, author of “The Gales of November: The Untold Story of the Edmund Fitzgerald” talks about the famous shipwreck.`\
 https://nytimes.com/2025/11/07/books/review/edmund-fitzgerald-50th-anniversary.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6787370/2025/11/07/wolves-james-collins-interim-che
 **NCAA bans 6 ex-college basketball players from 3 schools for betting violations**\
 `Former players from Arizona State, Mississippi Valley State and New Orleans were declared permanently ineligible.`\
 https://nytimes.com/athletic/6787533/2025/11/07/ncaa-betting-violations-arizona-state-new-orleans-mississippi-valley-state/
-
-**Was Timothée Chalamet’s Vogue Cover Really So Out of This World?**\
-`The actor, who wore Celine against a celestial backdrop, seemed to be referencing something — or someone — quite specific.`\
-https://nytimes.com/2025/11/07/style/timothee-chalamet-vogue-cover.html
 
