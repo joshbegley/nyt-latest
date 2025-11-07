@@ -1,3 +1,11 @@
+**Pressure on Napoli in Serie A; Rhine derby evokes history**\
+`This weekend's action also includes French leaders PSG making a tricky trip to Lyon and high-flying Real Betis facing strugglers Valencia.`\
+https://nytimes.com/athletic/6784380/2025/11/07/napoli-serie-a-rhine-derby/
+
+**Word of the Day: entourage**\
+`This word has appeared in 208 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/07/learning/word-of-the-day-entourage.html
+
 **On night of protests, Aston Villa cruise to win in subdued atmosphere**\
 `With no away fans, Villa Park was muted as goals from Ian Maatsen and Donyell Malen gave Unai Emery's side a comfortable win `\
 https://nytimes.com/athletic/6786034/2025/11/07/aston-villa-maccabi-tel-aviv-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6765975/2025/11/07/georginio-rutterno-goals-brighto
 **The science of swing bowling: Do overhead conditions really make a difference?**\
 `Traditional thinking dictates that the cricket ball will swing under cloud cover, but data suggests the reality is rather different `\
 https://nytimes.com/athletic/6756515/2025/11/07/swing-bowling-science-gillespie/
-
-**Broncos win seventh in a row as Raiders offense sputters on 'Thursday Night Football'**\
-`Denver's defense held Las Vegas to just 188 yards of offense and sacked quarterback Geno Smith six times in the Broncos' Thursday night win.`\
-https://nytimes.com/athletic/6786250/2025/11/07/raiders-broncos-takeaways-thursday-night-football/
-
-**The numbers behind Tottenham's vastly different home and away form**\
-`Spurs have the best away record in the Premier League but some of the worst home results - why the huge discrepancy?`\
-https://nytimes.com/athletic/6783431/2025/11/07/tottenham-home-away-record/
 
