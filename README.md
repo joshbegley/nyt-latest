@@ -1,3 +1,7 @@
+**Sister of Blind Man Targeted for Deportation Asks U.S. to Free Him**\
+`Eva Magdalena Chalco Chango, who has no lawyer, asked a federal judge to free her brother, whom she has cared for throughout his life.`\
+https://nytimes.com/2025/11/07/nyregion/blind-man-immigration-detention-new-york.html
+
 **Jack Fletcher poised to maintain Man United's 88-year youth record**\
 `United have since 1937, for 4,332 successive games, included an academy graduate in their first-team squad.`\
 https://nytimes.com/athletic/6788216/2025/11/07/mainoo-manchester-united-jack-fletcher-youth-record/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6788075/2025/11/07/trinity-rodman-nwsl-quarterfinal
 **De'Aaron Fox plans to make season debut Saturday vs. Pelicans: Source**\
 `Fox missed the start of the season as he was rehabbing from an offseason hamstring injury.  `\
 https://nytimes.com/athletic/6788129/2025/11/07/spurs-deaaron-fox-season-debut-pelicans/
-
-**How to watch Hornets vs. Heat: Time, TV, streaming**\
-`Find out how to watch the Charlotte Hornets play the Miami Heat, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6788212/2025/11/07/hornets-vs-heat-stream-how-to-watch-nov-7/
 
