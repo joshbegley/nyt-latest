@@ -1,3 +1,15 @@
+**Bulls broadcaster Chuck Swirsky delivers jersey to Pope Leo XIV: 'An incredible day'**\
+`Swirsky went to Rome with no guarantees, just his belief, to present the personalized No. 14 jersey he got at the United Center team store.`\
+https://nytimes.com/athletic/6787847/2025/11/07/bulls-pope-leo-xiv-broadcaster-chuck-swirsky/
+
+**Trump Pardons Ex-Officer Convicted in a Chinese Government Plot**\
+`Prosecutors said Michael McMahon had acted as an illegal agent in a conspiracy targeting a Chinese family in New Jersey. The White House says he was tricked into it.`\
+https://nytimes.com/2025/11/07/us/politics/trump-michael-mcmahon-pardon.html
+
+**James Watson, Co-Discoverer of the Structure of DNA, Is Dead at 97**\
+`The breakthrough, with Francis H.C. Crick, made him one of the most important scientists of the 20th century. He went on to write a celebrated memoir and later to ignite an uproar with racist views.`\
+https://nytimes.com/2025/11/07/science/james-watson-dead.html
+
 **As Airlines Cancel Flights, Travelers Seek Other Options**\
 `More people are trying to book trains, rental cars and buses but were not always successful.`\
 https://nytimes.com/2025/11/07/us/airline-cancellations-travel-alternatives.html

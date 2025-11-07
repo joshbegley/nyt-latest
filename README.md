@@ -1,3 +1,11 @@
+**Is Social Media Ruining the Art of Criticism?**\
+`The writer and critic Kelefa Sanneh joins Wesley Morris to discuss how social media and fan armies have impacted pop music criticism.`\
+https://nytimes.com/video/podcasts/100000010508405/is-social-media-ruining-the-art-of-criticism.html
+
+**gws-florentine-diamond-resurfaces-hapsburg**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/florentine-diamond-resurfaces-hapsburg
+
 **Bulls broadcaster Chuck Swirsky delivers jersey to Pope Leo XIV: 'An incredible day'**\
 `Swirsky went to Rome with no guarantees, just his belief, to present the personalized No. 14 jersey he got at the United Center team store.`\
 https://nytimes.com/athletic/6787847/2025/11/07/bulls-pope-leo-xiv-broadcaster-chuck-swirsky/
@@ -29,12 +37,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010511735/we-didnt-lov
 **NBA's European league to feature 16 teams, possible Oct. 2027 launch**\
 `Aivazoglou also suggested the NBA’s European teams would likely play against the NBA in a tournament.`\
 https://nytimes.com/athletic/6787899/2025/11/07/nba-europe-update-teams-start/
-
-**Dak Prescott, Solomon Thomas share messages after Marshawn Kneeland's death**\
-`The Dallas teammates have both suffered deaths by suicide in their families.`\
-https://nytimes.com/athletic/6787722/2025/11/07/marshawn-kneeland-dak-prescott-death-cowboys-teammates-message/
-
-**Tuchel's message to Bellingham is clear: 'England are building something - it's time to contribute'**\
-`The coach spent much of his Friday press conference explaining his decision to bring back Madrid star who missed the previous two camps`\
-https://nytimes.com/athletic/6787018/2025/11/07/thomas-tuchel-jude-bellingham-england-2/
 
