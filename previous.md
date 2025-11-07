@@ -1,6 +1,6 @@
 **‘Step on It!’**\
 `Kelly Morenus offers some lively stacks and a sizzling central crossing.`\
-https://nytimes.com/2025/11/06/crosswords/step-on-it.html
+https://nytimes.com/2025/11/06/crosswords/daily-puzzle-2025-11-07.html
 
 **Antisemitism Task Force Severs Ties With the Heritage Foundation**\
 `The move comes as the venerable conservative think tank is roiled by turmoil caused by its leader’s defense of a Tucker Carlson interview with a white nationalist.`\

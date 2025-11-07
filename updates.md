@@ -1,5 +1,9 @@
 **‘Step on It!’**\
 `Kelly Morenus offers some lively stacks and a sizzling central crossing.`\
+https://nytimes.com/2025/11/06/crosswords/daily-puzzle-2025-11-07.html
+
+**‘Step on It!’**\
+`Kelly Morenus offers some lively stacks and a sizzling central crossing.`\
 https://nytimes.com/2025/11/06/crosswords/step-on-it.html
 
 **Coby White nears return to surprising Bulls lineup after calf strain**\
