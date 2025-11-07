@@ -1,3 +1,7 @@
+**Paul DePodesta's exit leaves Browns ownership staring back at itself yet again**\
+`The Browns were really good at making future plans to win while DePodesta was in office. They just rarely got around to the actual winning.`\
+https://nytimes.com/athletic/6786355/2025/11/07/browns-paul-depodesta-rockies-mlb/
+
 **Russia appeals ban on skiers from Winter Olympics qualifying**\
 `The IOC is letting each sports' federation decide whether they allow Russian and Belarusian athletes to compete under a neutral banner.`\
 https://nytimes.com/athletic/6787011/2025/11/07/russia-skiing-winter-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/11/07/us/trump-news-shutdown
 **In return to Phoenix, Bradley Beal has one of the worst games of his career**\
 `The Suns beat the Clippers 115-102 in a game Beal would surely like to burn the tape on.`\
 https://nytimes.com/athletic/6786545/2025/11/07/bradley-beal-phoenix-return-clippers/
-
-**China Suspends Some Export Controls on Critical Minerals but Retains Others**\
-`The Chinese government followed through on promises it made publicly after a recent summit, but has not yet taken other actions sought by the White House.`\
-https://nytimes.com/2025/11/07/business/china-rare-earth-export-controls.html
 

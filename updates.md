@@ -1,3 +1,7 @@
+**Paul DePodesta's exit leaves Browns ownership staring back at itself yet again**\
+`The Browns were really good at making future plans to win while DePodesta was in office. They just rarely got around to the actual winning.`\
+https://nytimes.com/athletic/6786355/2025/11/07/browns-paul-depodesta-rockies-mlb/
+
 **Russia appeals ban on skiers from Winter Olympics qualifying**\
 `The IOC is letting each sports' federation decide whether they allow Russian and Belarusian athletes to compete under a neutral banner.`\
 https://nytimes.com/athletic/6787011/2025/11/07/russia-skiing-winter-olympics/
