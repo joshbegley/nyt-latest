@@ -1,3 +1,7 @@
+**In return to Phoenix, Bradley Beal has one of the worst games of his career**\
+`The Suns beat the Clippers 115-102 in a game Beal would surely like to burn the tape on.`\
+https://nytimes.com/athletic/6786545/2025/11/07/bradley-beal-phoenix-return-clippers/
+
 **China Suspends Some Export Controls on Critical Minerals but Retains Others**\
 `The Chinese government followed through on promises it made publicly after a recent summit, but has not yet taken other actions sought by the White House.`\
 https://nytimes.com/2025/11/07/business/china-rare-earth-export-controls.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6781138/2025/11/07/senators-linus-ullmark-goalie-st
 **How is Vanderbilt doing this? An Aussie rules football team traveled 9,000 miles to find out**\
 `Gold Coast Suns senior coach Damien Hardwick said he's sees a lot of similarities between Vanderbilt football and his team. `\
 https://nytimes.com/athletic/6783508/2025/11/07/vanderbilt-football-clark-lea-gold-coast-suns/
-
-**Bruins are playing winning hockey, and it’s absolutely for real**\
-`The Bruins have won five straight games. It's no coincidence that the streak accompanies great defense.`\
-https://nytimes.com/athletic/6786315/2025/11/07/bruins-defense-sturm-senators/
 

@@ -1,3 +1,7 @@
+**In return to Phoenix, Bradley Beal has one of the worst games of his career**\
+`The Suns beat the Clippers 115-102 in a game Beal would surely like to burn the tape on.`\
+https://nytimes.com/athletic/6786545/2025/11/07/bradley-beal-phoenix-return-clippers/
+
 **China Suspends Some Export Controls on Critical Minerals but Retains Others**\
 `The Chinese government followed through on promises it made publicly after a recent summit, but has not yet taken other actions sought by the White House.`\
 https://nytimes.com/2025/11/07/business/china-rare-earth-export-controls.html
