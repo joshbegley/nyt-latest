@@ -1,3 +1,7 @@
+**Playboi Carti, Rage Rap’s Goth King, Beckons Brooklyn to the Pit**\
+`The rapper, who has become one of hip-hop’s leading stars, presided over a sweaty tangle of young men outfitted in black and ecstatically moshing.`\
+https://nytimes.com/2025/11/07/arts/music/playboi-carti-antagonist-2-0-tour-review.html
+
 **How to watch Northern Illinois vs. Wisconsin: Time, TV, streaming**\
 `Find out how to watch the Northern Illinois Huskies play the Wisconsin Badgers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6788174/2025/11/07/northern-illinois-vs-wisconsin-stream-how-to-watch-nov-7/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6788157/2025/11/07/sam-houston-vs-texas-tech-stream
 **WNBA announces dates for 2026 lottery and draft**\
 `The Dallas Wings have the best chance to secure the No. 1 pick again.`\
 https://nytimes.com/athletic/6788110/2025/11/07/wnba-draft-lottery-dates-2026/
-
-**The 11.9.25 Issue**\
-``\
-https://nytimes.com/issue/magazine/2025/11/07/the-11925-issue
 
