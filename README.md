@@ -1,3 +1,7 @@
+**Man United's Bruno Fernandes should prepare for rotation next season, says Amorim**\
+`Fernandes has started all of United’s Premier League games this term, and is second only to Matthijs de Ligt for minutes played.`\
+https://nytimes.com/athletic/6788063/2025/11/07/bruno-fernandes-manchester-united-amorim-rotation/
+
 **gws-met-opera-restaurant-bar**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/met-opera-restaurant-bar
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6788376/2025/11/07/pwhl-ottawa-charge-new-arena/
 **Elena Rybakina and Aryna Sabalenka will go big and go home in WTA Tour Finals duel for supremacy**\
 `The last match of the season, with over $5 million on the line, will be a showcase of first-strike tennis.`\
 https://nytimes.com/athletic/6788105/2025/11/07/tennis-wta-tour-finals-rybakina-sabalenka/
-
-**Cancellations Can Hit Harder for Regional Airports**\
-`Most of the affected flights were at the nation’s busiest airports, but the effects of the cuts are acutely felt in smaller cities.`\
-https://nytimes.com/2025/11/07/us/regional-airports-cancellations.html
 
