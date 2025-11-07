@@ -1,3 +1,15 @@
+**China Suspends Some Export Controls on Critical Minerals but Retains Others**\
+`The Chinese government followed through on promises it made publicly after a recent summit, but has not yet taken other actions sought by the White House.`\
+https://nytimes.com/2025/11/07/business/china-rare-earth-export-controls.html
+
+**Fantasy Premier League live Q&A: Gameweek 11 advice from Ben Dinnery**\
+`Ben Dinnery of premierinjuries.com is on hand to talk you through the players to target and who to avoid ahead of FPL Gameweek 11`\
+https://nytimes.com/athletic/6786944/2025/11/07/fantasy-premier-league-live-qa-gameweek-11-advice-from-ben-dinnery/
+
+**Kyler Murray's uncertain present, and the Cardinals' uncertain future at QB**\
+`Murray might have played his last game in the desert — if so, the Cardinals are looking for a long-term solution again.`\
+https://nytimes.com/athletic/6785786/2025/11/07/kyler-murray-injury-future-jacoby-brissett/
+
 **The Shutdown Hits Airports**\
 `Hundreds of flights are being canceled today. We explain what’s happening.`\
 https://nytimes.com/2025/11/07/briefing/the-shutdown-hits-airports.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6783508/2025/11/07/vanderbilt-football-clark-lea-go
 **Bruins are playing winning hockey, and it’s absolutely for real**\
 `The Bruins have won five straight games. It's no coincidence that the streak accompanies great defense.`\
 https://nytimes.com/athletic/6786315/2025/11/07/bruins-defense-sturm-senators/
-
-**Is the ACC spending its way to more football parity? Here's what changed**\
-`Florida State and Clemson pushed for a bigger piece of the ACC pie, but financial changes could actually be helping the middle class.`\
-https://nytimes.com/athletic/6784667/2025/11/07/acc-football-standings-playoff-spending-money/
-
-**Life after Cignetti: Bob Chesney made JMU a CFP contender — is a Power 4 job next?**\
-`The Dukes have a 25 percent chance to make the Playoff, according to The Athletic’s projection model, second among Group of 5 schools.`\
-https://nytimes.com/athletic/6784645/2025/11/07/bob-chesney-jmu-cfp-coaching-carousel/
-
-**Boston Marathon 'funraiser' Susan Hurley inspired the masses through fitness, philanthropy**\
-`Hurley, who died of cancer at 62, trained hundreds of charity marathoners and was "selfless," one of her many runners-turned-friends said.`\
-https://nytimes.com/athletic/6785532/2025/11/07/boston-marathon-susan-hurley-charity-organizer-trainer/
 
