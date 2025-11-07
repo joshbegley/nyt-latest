@@ -1,3 +1,19 @@
+**Former King of Spain, Juan Carlos, Details Death of Brother in Memoir**\
+`He wrote about the accident that killed his brother nearly 70 years ago. The book also describes his respect for Gen. Francisco Franco, the former dictator.`\
+https://nytimes.com/2025/11/07/world/europe/spain-juan-carlos-king-memoir.html
+
+**Rugby union and MND: A very complex tragedy**\
+`The sport's links to the disease are unproven but it has left a traumatic legacy in affecting so many high-profile players worldwide`\
+https://nytimes.com/athletic/6780040/2025/11/07/rugby-union-motor-neurone-disease/
+
+**The New York Times in Print for Friday, Nov. 7, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/07/todays-new-york-times
+
+**Will Hamas Lay Down Its Arms?**\
+`For a movement that built its legitimacy around what it called resistance, giving up its weapons is not just a tactical concession, it is an existential unraveling.`\
+https://nytimes.com/2025/11/07/opinion/israel-gaza-hamas-disarming-peace-plan.html
+
 **The Georginio Rutter paradox: Can Brighton rely on a striker who doesn't score goals?**\
 `He may not have scored in the Premier League since February, but Georginio Rutter has become highly valuable to Brighton and Hove Albion`\
 https://nytimes.com/athletic/6765975/2025/11/07/georginio-rutterno-goals-brighton/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6776376/2025/11/07/manchester-city-midfield-passing
 **Xabi Alonso's culture of secrecy: Why Real Madrid want even tighter control**\
 `Since arriving as Carlo Ancelotti's replacement in May, the 43-year-old has made a host of changes designed to increase privacy`\
 https://nytimes.com/athletic/6783616/2025/11/07/real-madrid-xabi-alonso-training-champions-league-secrecy/
-
-**Inside the mind of Virgil van Dijk**\
-`The Liverpool captain's public statements and actions over the last week have given an insight into him as a leader`\
-https://nytimes.com/athletic/6784569/2025/11/07/liverpool-van-dijk-inside-mind-captain/
-
-**No red cards, 10 yellows - How have Arsenal cut out unnecessary bookings?**\
-`Mikel Arteta's men are not just leading the Premier League - they are top of its fair play table, too`\
-https://nytimes.com/athletic/6783207/2025/11/07/arsenal-bookings-premier-league/
-
-**FPL: Can we bet against captaining Haaland?**\
-`Yes, the City striker remains extraordinary but even superstars have testing spells — and there’s value in looking beyond the obvious`\
-https://nytimes.com/athletic/6780295/2025/11/07/fantasy-premier-league-erling-haaland-captain-gameweek-11/
-
-**From Arsenal prodigy to AFC Totton via prison: Jay Emmanuel-Thomas and the limits of rehabilitation**\
-`Emmanuel-Thomas, who was convicted of drug smuggling, joined AFC Totton following his release this summer `\
-https://nytimes.com/athletic/6781109/2025/11/07/arsenal-jay-emmanuel-thomas-rehabilitation-football/
 
