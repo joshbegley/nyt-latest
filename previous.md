@@ -1,3 +1,15 @@
+**Kendrick Lamar and Lady Gaga Lead the 2026 Grammy Nominees**\
+`Kendrick Lamar is the top nominee for the 2026 Grammy Awards with nine nods. He leads a pack of contenders that includes Lady Gaga with seven nods; and Bad Bunny, Sabrina Carpenter and Leon Thomas with six nods apiece.`\
+https://nytimes.com/video/us/100000010512132/grammy-awards-nominations.html
+
+**49ers to start QB Mac Jones vs. Rams; Brock Purdy may dress**\
+`Purdy has started only two games this season, with Jones going 5-2 in his place.`\
+https://nytimes.com/athletic/6781150/2025/11/07/brock-purdy-injury-mac-jones-49ers-rams/
+
+**Man United's Bruno Fernandes should prepare for rotation next season, says Amorim**\
+`Fernandes has started all of United’s Premier League games this term, and is second only to Matthijs de Ligt for minutes played.`\
+https://nytimes.com/athletic/6788063/2025/11/07/bruno-fernandes-manchester-united-amorim-rotation/
+
 **gws-met-opera-restaurant-bar**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/met-opera-restaurant-bar
@@ -25,12 +37,4 @@ https://nytimes.com/newsgraphics/card-story/road-trips-small-towns-scenic-us
 **Could the PWHL leave Ottawa? City approves new arena, raising doubts about future of Charge**\
 `Ottawa City Council approved a $419 million arena project on Friday that PWHL officials say jeopardizes the Charge’s financial viability.`\
 https://nytimes.com/athletic/6788376/2025/11/07/pwhl-ottawa-charge-new-arena/
-
-**Elena Rybakina and Aryna Sabalenka will go big and go home in WTA Tour Finals duel for supremacy**\
-`The last match of the season, with over $5 million on the line, will be a showcase of first-strike tennis.`\
-https://nytimes.com/athletic/6788105/2025/11/07/tennis-wta-tour-finals-rybakina-sabalenka/
-
-**Cancellations Can Hit Harder for Regional Airports**\
-`Most of the affected flights were at the nation’s busiest airports, but the effects of the cuts are acutely felt in smaller cities.`\
-https://nytimes.com/2025/11/07/us/regional-airports-cancellations.html
 
