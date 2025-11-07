@@ -1,3 +1,11 @@
+**NBA's European league to feature 16 teams, possible Oct. 2027 launch**\
+`Aivazoglou also suggested the NBA’s European teams would likely play against the NBA in a tournament.`\
+https://nytimes.com/athletic/6787899/2025/11/07/nba-europe-update-teams-start/
+
+**Dak Prescott, Solomon Thomas share messages after Marshawn Kneeland's death**\
+`The Dallas teammates have both suffered deaths by suicide in their families.`\
+https://nytimes.com/athletic/6787722/2025/11/07/marshawn-kneeland-dak-prescott-death-cowboys-teammates-message/
+
 **Tuchel's message to Bellingham is clear: 'England are building something - it's time to contribute'**\
 `The coach spent much of his Friday press conference explaining his decision to bring back Madrid star who missed the previous two camps`\
 https://nytimes.com/athletic/6787018/2025/11/07/thomas-tuchel-jude-bellingham-england-2/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/07/us/passengers-reactions-canceled-flights.html
 **894 days later: Barcelona finally return to the Camp Nou (sort of)**\
 `Some 23,000 fans were allowed in to watch an open training session on Friday… but we still don't know when Barca will play there again`\
 https://nytimes.com/athletic/6786938/2025/11/07/barcelona-camp-nou-stadium-return/
-
-**Leafs goalie Joseph Woll 'happy to be back,' will report to Marlies**\
-`Woll declined to elaborate on the personal matter that has kept him away from the team since September.`\
-https://nytimes.com/athletic/6787797/2025/11/07/joseph-woll-leafs-marlies-conditioning/
-
-**50 Years Later, the Story of the Edmund Fitzgerald Lives On**\
-`John U. Bacon, author of “The Gales of November: The Untold Story of the Edmund Fitzgerald” talks about the famous shipwreck.`\
-https://nytimes.com/2025/11/07/books/review/edmund-fitzgerald-50th-anniversary.html
 

@@ -1,4 +1,8 @@
 **Tuchel's message to Bellingham is clear: 'England are building something - it's time to contribute'**\
+`The coach spent much of his Friday press conference explaining his decision to bring back Madrid star who missed the previous two camps`\
+https://nytimes.com/athletic/6787018/2025/11/07/thomas-tuchel-jude-bellingham-england-2/
+
+**Tuchel's message to Bellingham is clear: 'England are building something - it's time to contribute'**\
 `Thomas Tuchel spent much of his Friday morning press conference at Wembley Stadium explaining his decision to bring back Bellingham`\
 https://nytimes.com/athletic/6787018/2025/11/07/thomas-tuchel-jude-bellingham-england-2/
 
