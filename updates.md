@@ -1,3 +1,7 @@
+**Could the PWHL leave Ottawa? City approves new arena, raising doubts about future of Charge**\
+`Ottawa City Council approved a $419 million arena project on Friday that PWHL officials say jeopardizes the Charge’s financial viability.`\
+https://nytimes.com/athletic/6788376/2025/11/07/pwhl-ottawa-charge-new-arena/
+
 **Elena Rybakina and Aryna Sabalenka will go big and go home in WTA Tour Finals duel for supremacy**\
 `The last match of the season, with over $5 million on the line, will be a showcase of first-strike tennis.`\
 https://nytimes.com/athletic/6788105/2025/11/07/tennis-wta-tour-finals-rybakina-sabalenka/
