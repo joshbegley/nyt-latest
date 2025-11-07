@@ -1,3 +1,11 @@
+**Inside the Knicks' best collective weapon: Offensive rebounding**\
+`The Knicks are generating second-chance opportunities, and it's been a team effort. They lead the NBA with 15.3 offensive rebounds per game.`\
+https://nytimes.com/athletic/6783934/2025/11/07/knicks-offensive-rebounding/
+
+**As Saudi Arabia Cracks Down on Drugs, Executions Near a Record High**\
+`Facing an influx of amphetamines, the kingdom has put hundreds of people to death, many of them foreigners convicted of low-level smuggling.`\
+https://nytimes.com/2025/11/07/world/middleeast/saudi-arabia-executions-war-on-drugs.html
+
 **Slot: Liverpool vs. Manchester City 'similar to El Clasico'**\
 `The Liverpool head coach described playing City away as "one of the most difficult challenges you have throughout a season."`\
 https://nytimes.com/athletic/6786798/2025/11/07/liverpool-manchester-city-slot-el-clasico/
@@ -29,12 +37,4 @@ https://nytimes.com/issue/todaysinyt/2025/11/07/todays-new-york-times-internatio
 **Kimchi Tuna Salad**\
 `Kimchi and canned tuna make a popular combination in Korean cooking. These two pantry staples are found together in a number of dishes like kimchi jjigae and kimbap, and here they are the basis of a lively, fortifying salad.`\
 https://nytimes.com/video/dining/100000010366376/kimchi-tuna-salad.html
-
-**Russian Sanctions Risk Straining Trump’s Chummy Relationship With Hungarian Leader**\
-`New U.S. penalties on Russian energy could be a sticking point as President Trump and Prime Minister Viktor Orban of Hungary meet.`\
-https://nytimes.com/2025/11/07/world/europe/trump-orban-meeting-russia-sanctions.html
-
-**Here’s the latest on the flight reductions.**\
-`By Niraj Chokshi`\
-https://nytimes.com/live/2025/11/07/us/shutdown-airports-flight-cuts/heres-the-latest-on-the-flight-reductions
 
