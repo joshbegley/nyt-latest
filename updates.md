@@ -1,3 +1,15 @@
+**Trump Increases Pressure on His Own Party as the Shutdown Grinds On**\
+`President Trump has called on Republicans to end the filibuster as both parties search for a path out of the shutdown.`\
+https://nytimes.com/2025/11/06/us/politics/trump-pressure-republicans-shutdown.html
+
+**Damon Jones pleads not guilty in alleged NBA gambling scheme cases**\
+`Jones appeared in court on charges related to an alleged rigged poker game ring and an alleged illicit sports gambling scheme.`\
+https://nytimes.com/athletic/6785805/2025/11/06/damon-jones-plea-nba-gambling-scheme/
+
+**Antonio Brown captured in Dubai by U.S. Marshals on attempted murder charge**\
+`Brown faces a second-degree attempted murder charge in connection with a Miami shooting that happened in May.`\
+https://nytimes.com/athletic/6785505/2025/11/06/antonio-brown-captured-search-nfl/
+
 **Cleaning Woman Killed Through Door After Arriving at Wrong Home, Police Say**\
 `The shooting of the woman, an immigrant from Guatemala, took place on Wednesday in Indiana, a state with a “stand your ground” law.`\
 https://nytimes.com/2025/11/06/us/whitestown-indiana-shooting-cleaner-dead.html
