@@ -1,3 +1,7 @@
+**Prince Harry Apologizes to Canadians for Wearing an L.A. Dodgers Cap**\
+`Harry, who referred to the episode as “Hat Gate,” was seen wearing the cap at a World Series game in Los Angeles between the Dodgers and the Toronto Blue Jays.`\
+https://nytimes.com/2025/11/07/world/canada/prince-harry-dodgers-cap-world-series.html
+
 **Baylor AD investigated for sideline incident with player, assistant: Source**\
 `Rhoades, the CFP chairperson, is alleged to have taken exception to an undershirt worn by Baylor's Michael Trigg at a Sept. 20 home game.`\
 https://nytimes.com/athletic/6788453/2025/11/07/baylor-cfp-mack-rhoades-sideline-altercation-investigation/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6788381/2025/11/07/micah-parsons-help-marshawn-knee
 **Black Musical Theater, 200 Years and Running**\
 `The nearly forgotten Black stars, songwriters and strivers who made Broadway what it is today.`\
 https://nytimes.com/interactive/2025/11/07/theater/black-broadway-shuffle-hamilton.html
-
-**What to Know About the New Gender Rules for U.S. Passports**\
-`A policy that requires passports to display a person’s sex assigned at birth will come into play during renewals and first-time applications.`\
-https://nytimes.com/2025/11/07/travel/supreme-court-transgender-passport-policy.html
 
