@@ -1,3 +1,7 @@
+**Jaxson Dart could reach fantasy football supernova status in Week 10**\
+`Andy Behrens talks the biggest fantasy football storylines ahead of Week 10, including Jaxson Dart's potential for an impressive Week 10. `\
+https://nytimes.com/athletic/6787169/2025/11/07/fantasy-football-news-week-10-jaxson-dart/
+
 **Everton's Iliman Ndiaye 'fine' after injury concern against Sunderland, Moyes says**\
 `Ndiaye has made 12 appearances for Everton this season, starting in all 10 Premier League matches so far.`\
 https://nytimes.com/athletic/6787163/2025/11/07/iliman-ndiaye-everton-injury-news/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6786355/2025/11/07/browns-paul-depodesta-rockies-ml
 **Russia appeals ban on skiers from Winter Olympics qualifying**\
 `The IOC is letting each sports' federation decide whether they allow Russian and Belarusian athletes to compete under a neutral banner.`\
 https://nytimes.com/athletic/6787011/2025/11/07/russia-skiing-winter-olympics/
-
-**The $1 Trillion Question Hanging Over Elon Musk’s Pay Plan**\
-`Tesla shareholders approved his potentially record-breaking compensation package. But will he actually get the full award?`\
-https://nytimes.com/2025/11/07/business/dealbook/elon-musk-trillion-pay.html
 
