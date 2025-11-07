@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6786315/2025/11/07/bruins-defense-sturm-senators/
 `Florida State and Clemson pushed for a bigger piece of the ACC pie, but financial changes could actually be helping the middle class.`\
 https://nytimes.com/athletic/6784667/2025/11/07/acc-football-standings-playoff-spending-money/
 
-**Life after Cignetti: Bob Chesney made JMU a CFP contender — Is a Power 4 job next?**\
+**Life after Cignetti: Bob Chesney made JMU a CFP contender — is a Power 4 job next?**\
 `The Dukes have a 25 percent chance to make the Playoff, according to The Athletic’s projection model, second among Group of 5 schools.`\
 https://nytimes.com/athletic/6784645/2025/11/07/bob-chesney-jmu-cfp-coaching-carousel/
 
