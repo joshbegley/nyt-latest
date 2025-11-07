@@ -1,3 +1,11 @@
+**Spirit taking Trinity Rodman's injury 'day by day' as they prepare for NWSL quarterfinals**\
+`The Spirit remains "optimistic" about the USWNT forward's recovery.`\
+https://nytimes.com/athletic/6788075/2025/11/07/trinity-rodman-nwsl-quarterfinal-injury/
+
+**De'Aaron Fox plans to make season debut Saturday vs. Pelicans: Source**\
+`Fox missed the start of the season as he was rehabbing from an offseason hamstring injury.  `\
+https://nytimes.com/athletic/6788129/2025/11/07/spurs-deaaron-fox-season-debut-pelicans/
+
 **How to watch Hornets vs. Heat: Time, TV, streaming**\
 `Find out how to watch the Charlotte Hornets play the Miami Heat, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6788212/2025/11/07/hornets-vs-heat-stream-how-to-watch-nov-7/
@@ -25,16 +33,4 @@ https://nytimes.com/athletic/6788202/2025/11/07/raptors-vs-hawks-stream-how-to-w
 **How to watch Blackhawks vs. Flames: Time, TV, streaming**\
 `Find out how to watch the Chicago Blackhawks play the Calgary Flames, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6788200/2025/11/07/blackhawks-vs-flames-stream-how-to-watch-nov-7/
-
-**How to watch Rockets vs. Spurs: Time, TV, streaming**\
-`Find out how to watch the Houston Rockets play the San Antonio Spurs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6788199/2025/11/07/rockets-vs-spurs-stream-how-to-watch-nov-7/
-
-**How to watch Mavericks vs. Grizzlies: Time, TV, streaming**\
-`Find out how to watch the Dallas Mavericks play the Memphis Grizzlies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6788197/2025/11/07/mavericks-vs-grizzlies-stream-how-to-watch-nov-7/
-
-**How to watch Warriors vs. Nuggets: Time, TV, streaming**\
-`Find out how to watch the Golden State Warriors play the Denver Nuggets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6788194/2025/11/07/warriors-vs-nuggets-stream-how-to-watch-nov-7/
 
