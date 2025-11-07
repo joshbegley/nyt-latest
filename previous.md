@@ -1,3 +1,11 @@
+**Tuchel's message to Bellingham is clear: 'England are building something - it's time to contribute'**\
+`Thomas Tuchel spent much of his Friday morning press conference at Wembley Stadium explaining his decision to bring back Bellingham`\
+https://nytimes.com/athletic/6787018/2025/11/07/thomas-tuchel-jude-bellingham-england-2/
+
+**gws-madeira-portugal-hiking-waterfalls**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/madeira-portugal-hiking-waterfalls
+
 **Washington goalkeeper Mia Hamant dies at 21 after battle with kidney cancer**\
 `Hamant was diagnosed with Stage 4 SMARCB1-deficient kidney cancer, an ultra-rare and aggressive form of the disease.`\
 https://nytimes.com/athletic/6787411/2025/11/07/washington-goalkeeper-mia-hamant-dies-kidney-cancer/
@@ -29,8 +37,4 @@ https://nytimes.com/athletic/6787797/2025/11/07/joseph-woll-leafs-marlies-condit
 **50 Years Later, the Story of the Edmund Fitzgerald Lives On**\
 `John U. Bacon, author of “The Gales of November: The Untold Story of the Edmund Fitzgerald” talks about the famous shipwreck.`\
 https://nytimes.com/2025/11/07/books/review/edmund-fitzgerald-50th-anniversary.html
-
-**Nancy Pelosi Knew Her ‘Why’**\
-`The first female speaker of the House may be the last to truly rule the increasingly unruly chamber.`\
-https://nytimes.com/2025/11/07/us/politics/nancy-pelosi-house-speaker.html
 

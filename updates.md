@@ -1,3 +1,11 @@
+**Tuchel's message to Bellingham is clear: 'England are building something - it's time to contribute'**\
+`Thomas Tuchel spent much of his Friday morning press conference at Wembley Stadium explaining his decision to bring back Bellingham`\
+https://nytimes.com/athletic/6787018/2025/11/07/thomas-tuchel-jude-bellingham-england-2/
+
+**gws-madeira-portugal-hiking-waterfalls**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/madeira-portugal-hiking-waterfalls
+
 **Washington goalkeeper Mia Hamant dies at 21 after battle with kidney cancer**\
 `Hamant was diagnosed with Stage 4 SMARCB1-deficient kidney cancer, an ultra-rare and aggressive form of the disease.`\
 https://nytimes.com/athletic/6787411/2025/11/07/washington-goalkeeper-mia-hamant-dies-kidney-cancer/
