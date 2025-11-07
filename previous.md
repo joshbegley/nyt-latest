@@ -1,3 +1,7 @@
+**‘Step on It!’**\
+`Kelly Morenus offers some lively stacks and a sizzling central crossing.`\
+https://nytimes.com/2025/11/06/crosswords/step-on-it.html
+
 **Antisemitism Task Force Severs Ties With the Heritage Foundation**\
 `The move comes as the venerable conservative think tank is roiled by turmoil caused by its leader’s defense of a Tucker Carlson interview with a white nationalist.`\
 https://nytimes.com/2025/11/06/us/politics/heritage-foundation-antisemitism-task-force.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6784964/2025/11/06/latroy-hawkins-twins-bullpen-coa
 **As Hours Dwindled Before Flight Cuts, the Government Was Publicly Mum**\
 `Airlines did not wait for an announcement, notifying passengers and airports of expected changes before the Trump administration made official its list of affected airports.`\
 https://nytimes.com/2025/11/06/us/politics/flight-cuts-government-airports-faa.html
-
-**Team Canada unveils hockey jerseys for Milan-Cortina 2026 Olympics, Paralympics**\
-`Hockey Canada has unveiled the jerseys that the Canadian men’s, women’s and para teams will wear at the 2026 Olympics and Paralympics.`\
-https://nytimes.com/athletic/6786016/2025/11/06/canada-olympic-hockey-jerseys-milan-2026/
 

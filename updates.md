@@ -1,3 +1,7 @@
+**‘Step on It!’**\
+`Kelly Morenus offers some lively stacks and a sizzling central crossing.`\
+https://nytimes.com/2025/11/06/crosswords/step-on-it.html
+
 **Coby White nears return to surprising Bulls lineup after calf strain**\
 `When will the 6-1 Bulls get last season's leading scorer back on the court? Coby White offered some clues Thursday.`\
 https://nytimes.com/athletic/6786166/2025/11/06/coby-white-injury-status-bulls-timetable/
