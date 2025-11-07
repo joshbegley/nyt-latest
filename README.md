@@ -23,7 +23,7 @@ https://nytimes.com/2025/11/07/us/politics/trump-michael-mcmahon-pardon.html
 https://nytimes.com/2025/11/07/us/airline-cancellations-travel-alternatives.html
 
 **James Watson, Co-Discoverer of the Structure of DNA, Is Dead at 97**\
-`The breakthrough, with Francis H.C. Crick, made him one of the most important scientists of the 20th century. He went on to write a celebrated memoir and later to ignite an uproar with racist views.`\
+`His decoding the blueprint for life with Francis H.C. Crick made him one of the most important scientists of the 20th century. He wrote a celebrated memoir and later ignited an uproar with racist views.`\
 https://nytimes.com/2025/11/07/science/james-watson-dead.html
 
 **This Spoon Leveled Up My Cooking**\

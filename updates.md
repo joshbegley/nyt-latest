@@ -1,3 +1,19 @@
+**Scientists Discover Colossal, Stinking Spider Web in Pitch-Black Cave**\
+`Researchers discovered a spider web they said spanned about 1,140 square feet in a narrow passage between Albania and Greece. The web housed around 111,000 spiders, including two species of spiders that had previously been thought to be hostile to each other.`\
+https://nytimes.com/video/science/earth/100000010511471/massive-stinking-spiderweb-cave.html
+
+**Is Social Media Ruining the Art of Criticism?**\
+`The writer and critic Kelefa Sanneh joins Wesley Morris to discuss how social media and fan armies have impacted pop music criticism.`\
+https://nytimes.com/video/podcasts/100000010508405/is-social-media-ruining-the-art-of-criticism.html
+
+**gws-florentine-diamond-resurfaces-hapsburg**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/florentine-diamond-resurfaces-hapsburg
+
+**Trump Approves Pardon for Ex-Officer Convicted in a Chinese Government Plot**\
+`Prosecutors said Michael McMahon had acted as an illegal agent in a conspiracy targeting a Chinese family in New Jersey. The White House says he was tricked into it.`\
+https://nytimes.com/2025/11/07/us/politics/trump-michael-mcmahon-pardon.html
+
 **Bulls broadcaster Chuck Swirsky delivers jersey to Pope Leo XIV: 'An incredible day'**\
 `Swirsky went to Rome with no guarantees, just his belief, to present the personalized No. 14 jersey he got at the United Center team store.`\
 https://nytimes.com/athletic/6787847/2025/11/07/bulls-pope-leo-xiv-broadcaster-chuck-swirsky/
