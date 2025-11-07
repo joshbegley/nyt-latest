@@ -1,3 +1,7 @@
+**President Trump to attend Sunday's Lions-Commanders game at Northwest Stadium**\
+`It will be the first time a sitting U.S. president has attended an NFL game at the suburban Maryland stadium.`\
+https://nytimes.com/athletic/6788027/2025/11/07/nfl-trump-lions-commanders-appearance/
+
 **Did Trump’s Supreme Court Tariffs Brief Include a Strategic Blunder?**\
 `The justices are generally reluctant to take account of a president’s public statements. But extensive quotes from Mr. Trump in a key filing may change the legal calculus.`\
 https://nytimes.com/2025/11/07/us/trump-statements-supreme-court-tariffs.html
