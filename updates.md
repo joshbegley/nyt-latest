@@ -1,3 +1,11 @@
+**Crystal Palace rebuilding momentum as they sweep aside AZ**\
+`After their 19-game unbeaten run came to an end, Oliver Glasner's side are getting their groove back`\
+https://nytimes.com/athletic/6773311/2025/11/07/crystal-palace-az-analysis/
+
+**Airlines Cancel Flights to Meet F.A.A. Demands**\
+`U.S. airlines canceled hundreds of flights to meet Federal Aviation Administration guidelines meant to ease pressure on air traffic controllers during the government shutdown.`\
+https://nytimes.com/video/us/100000010510135/airports-list-flight-cuts-government-shutdown.html
+
 **Late Night Laments the Effects of the Longest-Ever Government Shutdown**\
 `Stephen Colbert advised that anyone traveling for Thanksgiving “might want to leave now.”`\
 https://nytimes.com/2025/11/07/arts/television/late-night-government-shutdown-airports.html
