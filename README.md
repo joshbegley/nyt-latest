@@ -1,3 +1,31 @@
+**How to watch Celtics vs. Magic: Time, TV, streaming**\
+`Find out how to watch the Boston Celtics play the Orlando Magic, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6787549/2025/11/07/celtics-vs-magic-stream-how-to-watch-nov-7/
+
+**How to watch Rangers vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the New York Rangers play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6787547/2025/11/07/rangers-vs-red-wings-stream-how-to-watch-nov-7/
+
+**How to watch Wild vs. Islanders: Time, TV, streaming**\
+`Find out how to watch the Minnesota Wild play the New York Islanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6787543/2025/11/07/wild-vs-islanders-stream-how-to-watch-nov-7/
+
+**How to watch Cavaliers vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the Cleveland Cavaliers play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6787544/2025/11/07/cavaliers-vs-wizards-stream-how-to-watch-nov-7/
+
+**The Kennedy Center Crackup**\
+`A Trumpian drama has been playing out inside the performing arts center all year. It has been damaging for business.`\
+https://nytimes.com/2025/11/07/us/politics/the-kennedy-center-crackup.html
+
+**Even Without Benin Bronzes, This New Museum Aims to Be a Powerhouse**\
+`The Museum of West African Art is poised to give Nigeria an institution of global significance, although its most hyped attractions won’t be there.`\
+https://nytimes.com/2025/11/07/arts/design/museum-of-west-african-art-nigeria.html
+
+**Kendrick Lamar, Lady Gaga and Bad Bunny Lead 2026 Grammy Nominees**\
+`Sabrina Carpenter, Leon Thomas, Doechii and Tyler, the Creator will compete in the biggest categories at the awards show in February.`\
+https://nytimes.com/2025/11/07/arts/music/grammy-awards-nominations.html
+
 **The Ruling About Passports Isn’t About ID. It’s About Social Control.**\
 `And it defeats the basic purpose of the document. `\
 https://nytimes.com/2025/11/07/opinion/supreme-court-trump-passports-gender.html
@@ -9,32 +37,4 @@ https://nytimes.com/2025/11/07/upshot/democrats-redistricting-gerrymanders.html
 **I’m Obsessed With an Onscreen Object. Where Do I Get It?**\
 `In the first installment of our new series, we hunt down a sofa from Luca Guadagnino’s “Call Me By Your Name.”`\
 https://nytimes.com/2025/11/07/t-magazine/sofa-call-me-by-your-name.html
-
-**Joey Barton found guilty of six charges relating to social media posts, cleared of six**\
-`Barton, 43, had denied the 12 counts of sending a grossly offensive electronic communication with intent to cause distress or anxiety.`\
-https://nytimes.com/athletic/6787449/2025/11/07/joey-barton-social-media-ward-aluko-vine/
-
-**Guardiola: Liverpool the 'greatest rival' for 1,000th career game**\
-`Last season Manchester City lost twice to Liverpool and may have to face them on Sunday without Rodri who is not yet fully fit.`\
-https://nytimes.com/athletic/6787410/2025/11/07/guardiola-manchester-city-liverpool-1000-greatest-rival/
-
-**What is going wrong at Southampton?**\
-`The sacking of manager Will Still is the latest in a line of failed appointments by the club's leadership`\
-https://nytimes.com/athletic/6786896/2025/11/07/southampton-will-still-sport-republic-analysis/
-
-**How to watch Bowling Green vs. South Carolina women's basketball: Time, TV, streaming**\
-`Find out how to watch the Bowling Green Falcons play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6787514/2025/11/07/bowling-green-vs-south-carolina-stream-how-to-watch-nov-7/
-
-**How to watch Valparaiso vs. Kentucky: Time, TV, streaming**\
-`Find out how to watch the Valparaiso Beacons play the Kentucky Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6787511/2025/11/07/valparaiso-vs-kentucky-stream-how-to-watch-nov-7/
-
-**How to watch East Tennessee State vs. Tennessee women's basketball: Time, TV, streaming**\
-`Find out how to watch the East Tennessee State Buccaneers play the Tennessee Volunteers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6787509/2025/11/07/east-tennessee-state-vs-tennessee-stream-how-to-watch-nov-7/
-
-**How to watch Oakland vs. Purdue: Time, TV, streaming**\
-`Find out how to watch the Oakland Golden Grizzlies play the Purdue Boilermakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6787507/2025/11/07/oakland-vs-purdue-stream-how-to-watch-nov-7/
 
