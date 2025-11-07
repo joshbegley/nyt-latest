@@ -1,3 +1,11 @@
+**The numbers behind Tottenham's vastly different home and away form**\
+`Spurs have the best away record in the Premier League but some of the worst home results - why the huge discrepancy?`\
+https://nytimes.com/athletic/6783431/2025/11/07/tottenham-home-away-record/
+
+**The subtle genius of Manchester City's midfield passing combinations**\
+`After last weekend's defeat, Bournemouth manager Andoni Iraola praised the speed and coordination of their interplay – this is how it works`\
+https://nytimes.com/athletic/6776376/2025/11/07/manchester-city-midfield-passing-combinations/
+
 **Xabi Alonso's culture of secrecy: Why Real Madrid want even tighter control**\
 `Since arriving as Carlo Ancelotti's replacement in May, the 43-year-old has made a host of changes designed to increase privacy`\
 https://nytimes.com/athletic/6783616/2025/11/07/real-madrid-xabi-alonso-training-champions-league-secrecy/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6783161/2025/11/07/premier-league-predictions-md11/
 **The Prospects: Harrison Miles, England Under-17s and Manchester City**\
 `Miles is a busy and highly technical deep-lying midfielder who constantly makes himself available to receive possession in tight spaces`\
 https://nytimes.com/athletic/6783316/2025/11/07/harrison-miles-manchester-city-england/
-
-**Sean Dyche was right - expensive or not, Forest's fringe players need to develop**\
-`Nottingham Forest's 0-0 draw with Sturm Graz underlined the value of some established players`\
-https://nytimes.com/athletic/6785369/2025/11/07/nottingham-forest-sturm-graz-analysis/
-
-**Pedro Neto and his Chelsea evolution: 'He's showing what he can potentially become'**\
-`Pedro Neto broke into the Premier League at Wolves but he has changed as a player during his time at Chelsea`\
-https://nytimes.com/athletic/6783727/2025/11/07/pedro-neto-chelsea-wolves-analysis/
 
