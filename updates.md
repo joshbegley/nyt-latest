@@ -1,3 +1,7 @@
+**Lawyers for Letitia James Say Case Against Her Was Motivated by Animus**\
+`The argument came in a motion seeking to dismiss the case against her, citing a laundry list of statements President Trump has made about New York’s attorney general over the past six years.`\
+https://nytimes.com/2025/11/07/us/politics/letitia-james-trump-fraud-justice-department.html
+
 **Prince Harry Apologizes to Canadians for Wearing an L.A. Dodgers Cap**\
 `Harry, who referred to the episode as “Hat Gate,” was seen wearing the cap at a World Series game in Los Angeles between the Dodgers and the Toronto Blue Jays.`\
 https://nytimes.com/2025/11/07/world/canada/prince-harry-dodgers-cap-world-series.html

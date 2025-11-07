@@ -1,3 +1,11 @@
+**Rise in Kidney Disease Tied to Other Chronic Conditions, Study Finds**\
+`Rates of the disease have been rising for decades, driven in part by diabetes and high blood pressure.`\
+https://nytimes.com/2025/11/07/well/kidney-disease-rise-study.html
+
+**Yung Lean Made it Back From the Brink to Save Himself**\
+`The Swedish rapper Yung Lean emerged more than a decade ago as a teenage internet sensation who found viral and then global fame. After struggling with mental illness and drugs, he’s back now and bigger than ever, with new music, a new film and welcome clarity.`\
+https://nytimes.com/video/podcasts/100000010511844/yung-lean-made-it-back-from-the-brink-to-save-himself.html
+
 **Lawyers for Letitia James Say Case Against Her Was Motivated by Animus**\
 `The argument came in a motion seeking to dismiss the case against her, citing a laundry list of statements President Trump has made about New York’s attorney general over the past six years.`\
 https://nytimes.com/2025/11/07/us/politics/letitia-james-trump-fraud-justice-department.html
@@ -23,18 +31,10 @@ https://nytimes.com/2025/11/07/briefing/food-stamps-trump-supreme-court.html
 https://nytimes.com/video/us/100000010512132/grammy-awards-nominations.html
 
 **49ers to start QB Mac Jones vs. Rams; Brock Purdy may dress**\
-`Purdy has started only two games this season, with Jones going 5-2 in his place.`\
+`Purdy has started only two games this season, with Jones going 5-2 in his place. Jones has thrown for 1,832 yards and 10 touchdowns.`\
 https://nytimes.com/athletic/6781150/2025/11/07/brock-purdy-injury-mac-jones-49ers-rams/
 
 **Man United's Bruno Fernandes should prepare for rotation next season, says Amorim**\
 `Fernandes has started all of United’s Premier League games this term, and is second only to Matthijs de Ligt for minutes played.`\
 https://nytimes.com/athletic/6788063/2025/11/07/bruno-fernandes-manchester-united-amorim-rotation/
-
-**gws-met-opera-restaurant-bar**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/met-opera-restaurant-bar
-
-**Micah Parsons offers help to former teammate Marshawn Kneeland's family**\
-`Parsons spent one season as Kneeland's teammate with the Dallas Cowboys in 2024.`\
-https://nytimes.com/athletic/6788381/2025/11/07/micah-parsons-help-marshawn-kneeland/
 
