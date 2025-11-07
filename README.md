@@ -1,3 +1,7 @@
+**NCAA bans 6 ex-college basketball players from 3 schools for betting violations**\
+`Former players from Arizona State, Mississippi Valley State and New Orleans were declared permanently ineligible.`\
+https://nytimes.com/athletic/6787533/2025/11/07/ncaa-betting-violations-arizona-state-new-orleans-mississippi-valley-state/
+
 **Was Timothée Chalamet’s Vogue Cover Really So Out of This World?**\
 `The actor, who wore Celine against a celestial backdrop, seemed to be referencing something — or someone — quite specific.`\
 https://nytimes.com/2025/11/07/style/timothee-chalamet-vogue-cover.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5559958/2025/11/07/nfl-falcons-colts-olympiastadion
 **Grammys Snubs and Surprises: Rap Reigns, but Lorde Won’t Slay**\
 `A look at the nominations’ unexpected story lines, including best new artist nominees with unusual paths and the event’s hesitancy around “KPop Demon Hunters.”`\
 https://nytimes.com/2025/11/07/arts/music/grammy-awards-snubs-surprises-nominations.html
-
-**Fantasy trends and hidden gems: Week 6 insights, Elvis Merzlikins' solid start and more**\
-`Shayna Goldman highlights the Week 6 fantasy hockey waiver wire, including the top four-game streamers and light-night targets.`\
-https://nytimes.com/athletic/6787457/2025/11/07/fantasy-trends-hidden-gems-week-6-elvis-merzlikins/
 
