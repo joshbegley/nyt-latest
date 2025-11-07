@@ -1,3 +1,7 @@
+**Graham Gano discusses death threats from fans, mental health**\
+`The 38-year-old kicker, who's been oft-injured the past three seasons, talked about his struggles with fan interactions.`\
+https://nytimes.com/athletic/6786056/2025/11/06/graham-gano-death-threats/
+
 **To Americans, Pelosi Was the House Speaker. To San Francisco, She Was Mom.**\
 `Representative Nancy Pelosi, after announcing her retirement, was praised by many San Franciscans for her tireless efforts on behalf of the city. Some of her work went unheralded.`\
 https://nytimes.com/2025/11/06/us/nancy-pelosi-san-francisco-retirement.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/americas/100000010501858/how-radio-traffic-let-u
 **Inside scoop: John Mateer's injury status revealed by ... a Chipotle worker?**\
 `The quarterback confirmed the rumor that swirled on message boards.`\
 https://nytimes.com/athletic/6785842/2025/11/06/john-mateer-chipotle-worker-texas/
-
-**LaTroy Hawkins to serve as Twins bullpen coach, more changes expected: Sources**\
-`Hawkins, who's been with the Twins as a special assistant since 2017, will be involved more as a bullpen coach under manager Derek Shelton.`\
-https://nytimes.com/athletic/6784964/2025/11/06/latroy-hawkins-twins-bullpen-coach/
 
