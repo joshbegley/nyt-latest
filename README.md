@@ -1,3 +1,11 @@
+**Cleaning Woman Killed Through Door After Arriving at Wrong Home, Police Say**\
+`The shooting of the woman, an immigrant from Guatemala, took place on Wednesday in Indiana, a state with a “stand your ground” law.`\
+https://nytimes.com/2025/11/06/us/whitestown-indiana-shooting-cleaner-dead.html
+
+**Woman Gets 15 Years to Life in Actress’s Death From Silicone Shots**\
+`Cindyana Santangelo had an embolism after receiving injections of silicone oil into her buttocks by Libby Adame, the second fatal augmentation procedure connected to her.`\
+https://nytimes.com/2025/11/06/us/butt-lady-sentenced-california.html
+
 **California Fire Victims Urge State to Hold Insurers Accountable**\
 `“We thought we could trust the system,” said a homeowner in Altadena whose insurance policy was canceled only months before the January fires destroyed his home.`\
 https://nytimes.com/2025/11/06/us/la-fires-insurance-homeowners.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6783599/2025/11/06/cubs-shota-imanaga-qualifying-of
 **Pelosi Plans To Retire In 2027 After 39 Years in Congress**\
 `Representative Nancy Pelosi, the nation’s only female House speaker, announced her decision to retire after 39 years in Congress. Her legacy includes the passage of Obamacare, advocating for HIV/AIDS patients and fund-raising for Democrats.`\
 https://nytimes.com/video/us/politics/100000010509765/pelosi-plans-to-retire-in-2027-after-39-years-in-congress.html
-
-**Wild Card files antitrust lawsuit against Panini America**\
-`Wild Card is alleging anti-competitive practices by Panini America, which has its own ongoing antitrust suit against Fanatics`\
-https://nytimes.com/athletic/6785520/2025/11/06/panini-wild-card-antitrust-lawsuit/
-
-**Anti-Defamation League Creates Antisemitism Tip Line Focused on Mamdani**\
-`The group, which has taken aim at Mayor-elect Zohran Mamdani over his criticism of Israel, is facing backlash after unveiling a website where New Yorkers could report incidents of antisemitism.`\
-https://nytimes.com/2025/11/06/nyregion/zohran-mamdani-monitor-antisemitism-adl.html
 
