@@ -1,3 +1,31 @@
+**A.I. Abuse Is Reinventing the Law**\
+`More lawyers are using artificial intelligence to write legal briefs. Some vigilantes are publicizing the A.I.-generated errors.`\
+https://nytimes.com/2025/11/07/business/lawyers-ai-vigilantes.html
+
+**How do these cuts compare to past air travel disruptions?**\
+`While undoubtedly annoying for travelers, the weekend’s cancellations will likely be far less disruptive than recent major incidents caused by inclement weather or IT-related events.`\
+https://nytimes.com/live/2025/11/07/us/shutdown-airports-flight-cuts/how-do-these-cuts-compare-to-past-air-travel-disruptions
+
+**The Rise and Fall (and Rise) of American Socialism**\
+`Zohran Mamdani’s victory brings new life to the Democratic Socialists of America, an organization that has had its ups and downs.`\
+https://nytimes.com/2025/11/07/style/american-socialism-dsa-mamdani.html
+
+**Who Are the ‘Groypers’?**\
+`A word associated with right-wing pundit Nick Fuentes and his followers is suddenly part of the national vocabulary.`\
+https://nytimes.com/article/groyper-nick-fuentes-tucker-carlson.html
+
+**Tottenham Hotspur vs Manchester United: Back in business or mired in mediocrity again?**\
+`Spurs beat United in all four of last season's meetings, including the Europa League final. Can Amorim's side get revenge?`\
+https://nytimes.com/athletic/6786786/2025/11/07/tottenham-hotspur-manchester-united/
+
+**Creamy Doenjang Pasta**\
+`This pasta recipe leans into the funky, salty flavor of doenjang, a Korean soybean paste whose pungency is an absolute pleasure.`\
+https://nytimes.com/video/admin/100000010366569/creamy-doenjang-pasta.html
+
+**Who Wrote That Headline? Maybe a Robot.**\
+`A.I. has taken newsrooms by storm, setting off industrywide soul-searching about its potential and pitfalls.`\
+https://nytimes.com/2025/11/07/business/media/ai-news-media-.html
+
 **How to watch Celtics vs. Magic: Time, TV, streaming**\
 `Find out how to watch the Boston Celtics play the Orlando Magic, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6787549/2025/11/07/celtics-vs-magic-stream-how-to-watch-nov-7/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6787547/2025/11/07/rangers-vs-red-wings-stream-how-
 **How to watch Wild vs. Islanders: Time, TV, streaming**\
 `Find out how to watch the Minnesota Wild play the New York Islanders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6787543/2025/11/07/wild-vs-islanders-stream-how-to-watch-nov-7/
-
-**How to watch Cavaliers vs. Wizards: Time, TV, streaming**\
-`Find out how to watch the Cleveland Cavaliers play the Washington Wizards, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6787544/2025/11/07/cavaliers-vs-wizards-stream-how-to-watch-nov-7/
-
-**The Kennedy Center Crackup**\
-`A Trumpian drama has been playing out inside the performing arts center all year. It has been damaging for business.`\
-https://nytimes.com/2025/11/07/us/politics/the-kennedy-center-crackup.html
-
-**Even Without Benin Bronzes, This New Museum Aims to Be a Powerhouse**\
-`The Museum of West African Art is poised to give Nigeria an institution of global significance, although its most hyped attractions won’t be there.`\
-https://nytimes.com/2025/11/07/arts/design/museum-of-west-african-art-nigeria.html
-
-**Kendrick Lamar, Lady Gaga and Bad Bunny Lead 2026 Grammy Nominees**\
-`Sabrina Carpenter, Leon Thomas, Doechii and Tyler, the Creator will compete in the biggest categories at the awards show in February.`\
-https://nytimes.com/2025/11/07/arts/music/grammy-awards-nominations.html
-
-**The Ruling About Passports Isn’t About ID. It’s About Social Control.**\
-`And it defeats the basic purpose of the document. `\
-https://nytimes.com/2025/11/07/opinion/supreme-court-trump-passports-gender.html
-
-**Why Democrats Could Win the Redistricting War**\
-`Amending state constitutions seemed like a long shot, but Virginia’s move shows more blue states may be willing to try, opening new possibilities.`\
-https://nytimes.com/2025/11/07/upshot/democrats-redistricting-gerrymanders.html
-
-**I’m Obsessed With an Onscreen Object. Where Do I Get It?**\
-`In the first installment of our new series, we hunt down a sofa from Luca Guadagnino’s “Call Me By Your Name.”`\
-https://nytimes.com/2025/11/07/t-magazine/sofa-call-me-by-your-name.html
 
