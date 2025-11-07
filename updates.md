@@ -1,3 +1,15 @@
+**Penguins' Filip Hållander has blood clot in leg, will miss at least 3 months**\
+`Days before the Penguins embark on a weeklong voyage to Sweden, one of their three Swedish players has been diagnosed with a scary injury.`\
+https://nytimes.com/athletic/6787464/2025/11/07/penguins-filip-hallander-blood-clot-injury-update/
+
+**When a Vietnam Protest on Campus Turned Deadly**\
+`In May 1970, National Guard troops clashed with students at Kent State University in Ohio. Four students were killed, and nine were injured.`\
+https://nytimes.com/2025/11/07/us/kent-state-vietnam-john-cleary.html
+
+**John Cleary, Wounded in Kent State Shooting, Dies at 74**\
+`A photo of him lying on the ground and bleeding made the cover of Life magazine after the 1970 shooting.`\
+https://nytimes.com/2025/11/07/us/john-cleary-dead.html
+
 **A.I. Abuse Is Reinventing the Law**\
 `More lawyers are using artificial intelligence to write legal briefs. Some vigilantes are publicizing the A.I.-generated errors.`\
 https://nytimes.com/2025/11/07/business/lawyers-ai-vigilantes.html
