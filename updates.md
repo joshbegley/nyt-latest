@@ -1,3 +1,5 @@
+
+
 **Adolf Hitler, Jesse Owens and Berlin's Olympiastadion: The complicated history of an NFL venue**\
 `The NFL’s first regular-season game in Berlin will be played in Europe's most contentious sporting venue. It has a complex history
 `\
