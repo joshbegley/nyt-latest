@@ -1,3 +1,7 @@
+**Late Night Laments the Effects of the Longest-Ever Government Shutdown**\
+`Stephen Colbert advised that anyone traveling for Thanksgiving “might want to leave now.”`\
+https://nytimes.com/2025/11/07/arts/television/late-night-government-shutdown-airports.html
+
 **Pressure on Napoli in Serie A; Rhine derby evokes history**\
 `This weekend's action also includes French leaders PSG making a tricky trip to Lyon and high-flying Real Betis facing strugglers Valencia.`\
 https://nytimes.com/athletic/6784380/2025/11/07/napoli-serie-a-rhine-derby/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6784380/2025/11/07/napoli-serie-a-rhine-derby/
 `This word has appeared in 208 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/11/07/learning/word-of-the-day-entourage.html
 
-**On a night of protests, Aston Villa cruised to a win in subdued atmosphere**\
+**Aston Villa victorious on a night when politics overshadowed football**\
 `With no away fans, Villa Park was muted as goals from Ian Maatsen and Donyell Malen gave Unai Emery's side a comfortable win `\
 https://nytimes.com/athletic/6786034/2025/11/07/aston-villa-maccabi-tel-aviv-analysis/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/07/opinion/israel-gaza-hamas-disarming-peace-plan.ht
 **The Georginio Rutter paradox: Can Brighton rely on a striker who doesn't score goals?**\
 `He may not have scored in the Premier League since February, but Georginio Rutter has become highly valuable to Brighton and Hove Albion`\
 https://nytimes.com/athletic/6765975/2025/11/07/georginio-rutterno-goals-brighton/
-
-**The science of swing bowling: Do overhead conditions really make a difference?**\
-`Traditional thinking dictates that the cricket ball will swing under cloud cover, but data suggests the reality is rather different `\
-https://nytimes.com/athletic/6756515/2025/11/07/swing-bowling-science-gillespie/
 

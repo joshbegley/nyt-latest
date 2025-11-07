@@ -1,3 +1,11 @@
+**Late Night Laments the Effects of the Longest-Ever Government Shutdown**\
+`Stephen Colbert advised that anyone traveling for Thanksgiving “might want to leave now.”`\
+https://nytimes.com/2025/11/07/arts/television/late-night-government-shutdown-airports.html
+
+**Aston Villa victorious on a night when politics overshadowed football**\
+`With no away fans, Villa Park was muted as goals from Ian Maatsen and Donyell Malen gave Unai Emery's side a comfortable win `\
+https://nytimes.com/athletic/6786034/2025/11/07/aston-villa-maccabi-tel-aviv-analysis/
+
 **On a night of protests, Aston Villa cruised to a win in subdued atmosphere**\
 `With no away fans, Villa Park was muted as goals from Ian Maatsen and Donyell Malen gave Unai Emery's side a comfortable win `\
 https://nytimes.com/athletic/6786034/2025/11/07/aston-villa-maccabi-tel-aviv-analysis/
