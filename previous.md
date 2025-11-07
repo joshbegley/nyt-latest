@@ -1,40 +1,40 @@
-**Corrections: Nov. 7, 2025**\
-`Corrections that appeared in print on Friday, Nov. 7, 2025.`\
-https://nytimes.com/2025/11/06/pageoneplus/corrections-nov-7-2025.html
+**The Prospects: Harrison Miles, England Under-17s and Manchester City**\
+`Miles is a busy and highly technical deep-lying midfielder who constantly makes himself available to receive possession in tight spaces`\
+https://nytimes.com/athletic/6783316/2025/11/07/harrison-miles-manchester-city-england/
 
-**Quote of the Day: For Some, Campaign Was a Salve for Loneliness**\
-`Quotation of the Day for Friday, November 7, 2025.`\
-https://nytimes.com/2025/11/06/pageoneplus/quote-of-the-day-for-some-campaign-was-a-salve-for-loneliness.html
+**Sean Dyche was right - expensive or not, Forest's fringe players need to develop**\
+`Nottingham Forest's 0-0 draw with Sturm Graz underlined the value of some established players`\
+https://nytimes.com/athletic/6785369/2025/11/07/nottingham-forest-sturm-graz-analysis/
 
-**Florida's 7-foot-9 Olivier Rioux becomes tallest college basketball player ever**\
-`The Montreal native entered the Gators' blowout victory over North Florida late in the second half Thursday.`\
-https://nytimes.com/athletic/6786273/2025/11/06/olivier-rioux-tallest-college-basketball-player/
+**Pedro Neto and his Chelsea evolution: 'He's showing what he can potentially become'**\
+`Pedro Neto broke into the Premier League at Wolves but he has changed as a player during his time at Chelsea`\
+https://nytimes.com/athletic/6783727/2025/11/07/pedro-neto-chelsea-wolves-analysis/
 
-**Filip Gustavsson rebounds after wacky first period, but Wild fall short: Takeaways**\
-`Tyler Pitlick got a match penalty and both teams combined for five goals on 10 shots in the first period of the Wild's 4-3 loss to Carolina.`\
-https://nytimes.com/athletic/6786293/2025/11/06/wild-hurricanes-filip-gustavsson-takeaways/
+**Noah Okafor and his Switzerland absence: 'It really, really makes me sad'**\
+`The Leeds forward has not played for Switzerland for nearly a year. He spoke exclusively to The Athletic about his frustrations`\
+https://nytimes.com/athletic/6784642/2025/11/07/noah-okafor-leeds-switzerland-interview/
 
-**To Preserve Records, Homeland Security Now Relies on Officials to Take Screenshots**\
-`Experts say the new policy, which ditches software that automatically captured text messages, opens ample room for both willful and unwitting noncompliance with federal records laws.`\
-https://nytimes.com/2025/11/06/us/politics/homeland-security-foia.html
+**Connections: Sports Edition Coach: Hints for Nov. 7, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6786349/2025/11/07/connections-sports-edition-hints-for-nov-7-2025/
 
-**Lawsuits Blame ChatGPT for Suicides and Harmful Delusions**\
-`Seven complaints, filed on Thursday, claim the popular chatbot encouraged dangerous discussions and led to mental breakdowns.`\
-https://nytimes.com/2025/11/06/technology/chatgpt-lawsuit-suicides-delusions.html
+**What financial impact would relegation have on West Ham?**\
+`West Ham are in the relegation zone and will be hoping to avoid dropping into the Championship this season`\
+https://nytimes.com/athletic/6773309/2025/11/07/west-ham-relegation-finances-impact/
 
-**Ex-Laker Christian Wood reportedly fires shots to scare off home invasion**\
-`Wood reportedly confronted the three suspects after they busted through the back door of the multimillion-dollar home in Los Angeles.`\
-https://nytimes.com/athletic/6785708/2025/11/06/christian-wood-home-invasion-laker/
+**My First Love Ghosted Me. It’s Not What You Think.**\
+`I had lost faith in the universe — until an apparition of my smiling, 16-year-old late ex-boyfriend appeared.`\
+https://nytimes.com/2025/11/07/style/my-first-love-ghosted-me-its-not-what-you-think.html
 
-**Graham Gano discusses death threats from fans, mental health**\
-`The 38-year-old kicker, who's been oft-injured the past three seasons, talked about his struggles with fan interactions.`\
-https://nytimes.com/athletic/6786056/2025/11/06/graham-gano-death-threats/
+**The Second Match Was the Charm**\
+`Parker Krug and Jared Moffett were connected not once but twice on dating apps.`\
+https://nytimes.com/2025/11/07/style/parker-krug-jared-moffett-wedding.html
 
-**To Americans, Pelosi Was the House Speaker. To San Francisco, She Was Mom.**\
-`Representative Nancy Pelosi, after announcing her retirement, was praised by many San Franciscans for her tireless efforts on behalf of the city. Some of her work went unheralded.`\
-https://nytimes.com/2025/11/06/us/nancy-pelosi-san-francisco-retirement.html
+**Facing Trump’s Tariffs, Swiss Farmers Find Themselves With Too Much Milk**\
+`The country’s dairy farmers produced a bumper harvest of milk, but higher U.S. duties have forced them to consider ways to cut back, including slaughtering cows.`\
+https://nytimes.com/2025/11/07/business/switzerland-tariffs-trump-milk-cheese-cows.html
 
-**‘Step on It!’**\
-`Kelly Morenus offers some lively stacks and a sizzling central crossing.`\
-https://nytimes.com/2025/11/06/crosswords/daily-puzzle-2025-11-07.html
+**Between Laps, a Deep Friendship Surfaced**\
+`Lilly King, the Olympic swimmer, met James Wells as teammates for the Indiana University swim team. “Somewhere deep down I always knew I loved him,” she said.`\
+https://nytimes.com/2025/11/07/style/between-laps-a-deep-friendship-surfaced.html
 
