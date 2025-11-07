@@ -1,3 +1,7 @@
+**How Aston Villa vs Maccabi Tel Aviv turned into a night of toxicity and political protest**\
+`Thursday's Europa League tie was overshadowed by events off the field. This is the full story of how the night played out`\
+https://nytimes.com/athletic/6785354/2025/11/07/aston-villa-maccabi-tel-aviv-protest-gaza-israel/
+
 **China’s Exports Unexpectedly Falter as Prices Keep Falling**\
 `Exports of cars, solar panels and batteries remain strong, but prices are falling because of factory overcapacity in China.`\
 https://nytimes.com/2025/11/07/business/china-exports-fall.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6773311/2025/11/07/crystal-palace-az-analysis/
 **Airlines Cancel Flights to Meet F.A.A. Demands**\
 `U.S. airlines canceled hundreds of flights to meet Federal Aviation Administration guidelines meant to ease pressure on air traffic controllers during the government shutdown.`\
 https://nytimes.com/video/us/100000010510135/airports-list-flight-cuts-government-shutdown.html
-
-**Late Night Laments the Effects of the Longest-Ever Government Shutdown**\
-`Stephen Colbert advised that anyone traveling for Thanksgiving “might want to leave now.”`\
-https://nytimes.com/2025/11/07/arts/television/late-night-government-shutdown-airports.html
 
