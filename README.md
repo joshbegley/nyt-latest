@@ -1,3 +1,7 @@
+**How Emmanuel Forbes Jr. went from a project to a player the Rams believe in**\
+`Forbes, a 2023 first-round pick who was released by the Commanders last year, has quietly began to turn his career around with the Rams. `\
+https://nytimes.com/athletic/6786479/2025/11/07/rams-emmanuel-forbes-jr-development/
+
 **Source: Shield-winning Union finalizing club-record deal for new forward**\
 `The Union are still focused on winning MLS Cup 2025, but they're making a significant move for 2026 and beyond as well.`\
 https://nytimes.com/athletic/6787319/2025/11/07/philadelphia-union-club-record-signing-ezekiel-alladoh/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6786536/2025/11/07/falcons-colts-germany-practice-h
 **Sources: Fire reach permanent deal for Franco as part of club's plan to build on 2025**\
 `Beyond keeping André Franco and adding Swedish midfielder Anton Salétros, Chicago and Gregg Berhalter are thinking big for 2026`\
 https://nytimes.com/athletic/6786458/2025/11/07/chicago-fire-andre-franco-anton-saletros-berhalter-mls/
-
-**New Rules Aim to Broaden Appeal of H.S.A.s**\
-`Health savings accounts have lower premiums but higher deductibles. Now, more Obamacare plans can offer the accounts.`\
-https://nytimes.com/2025/11/07/your-money/health-savings-accounts-insurance-options.html
 
