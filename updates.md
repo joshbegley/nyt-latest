@@ -1,3 +1,7 @@
+**Gordon set to miss Newcastle's trip to Brentford with hip injury**\
+`The 24-year-old has been struggling with a hip issue this season and left the pitch injured against Athletic Club on Wednesday.`\
+https://nytimes.com/athletic/6781830/2025/11/07/anthony-gordon-newcastle-injury-news/
+
 **'It's not healthy': Jack Draper on the loneliness of elite tennis and player welfare**\
 `Draper speaks to the Tennis Podcast about the impact of extended tournaments on the players that make them spectacles.`\
 https://nytimes.com/athletic/6784488/2025/11/07/jack-draper-tennis-podcast-interview-calendar-schedule/
