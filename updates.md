@@ -1,3 +1,7 @@
+**‘Frankenstein’ | Anatomy of a Scene**\
+`Guillermo del Toro narrates a sequence from his film, starring “Oscar Isaac.”`\
+https://nytimes.com/video/movies/100000010499912/frankenstein-scene.html
+
 **Gordon set to miss Newcastle's trip to Brentford with hip injury**\
 `The 24-year-old has been struggling with a hip issue this season and left the pitch injured against Athletic Club on Wednesday.`\
 https://nytimes.com/athletic/6781830/2025/11/07/anthony-gordon-newcastle-injury-news/
