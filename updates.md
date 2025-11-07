@@ -1,3 +1,5 @@
+
+
 **Fantasy trends and hidden gems: Week 6 insights, Elvis Merzlikins' solid start and more**\
 `Shayna Goldman highlights the Week 6 fantasy hockey waiver wire, including the top four-game streamers and light-night targets.`\
 https://nytimes.com/athletic/6787457/2025/11/07/fantasy-trends-hidden-gems-week-6-elvis-merzlikins/
