@@ -1,40 +1,40 @@
-**President Trump to attend Sunday's Lions-Commanders game at Northwest Stadium**\
-`It will be the first time a sitting U.S. president has attended an NFL game at the suburban Maryland stadium.`\
-https://nytimes.com/athletic/6788027/2025/11/07/nfl-trump-lions-commanders-appearance/
+**Playboi Carti, Rage Rap’s Goth King, Beckons Brooklyn to the Pit**\
+`The rapper, who has become one of hip-hop’s leading stars, presided over a sweaty tangle of young men outfitted in black and ecstatically moshing.`\
+https://nytimes.com/2025/11/07/arts/music/playboi-carti-antagonist-2-0-tour-review.html
 
-**Did Trump’s Supreme Court Tariffs Brief Include a Strategic Blunder?**\
-`The justices are generally reluctant to take account of a president’s public statements. But extensive quotes from Mr. Trump in a key filing may change the legal calculus.`\
-https://nytimes.com/2025/11/07/us/trump-statements-supreme-court-tariffs.html
+**How to watch Northern Illinois vs. Wisconsin: Time, TV, streaming**\
+`Find out how to watch the Northern Illinois Huskies play the Wisconsin Badgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6788174/2025/11/07/northern-illinois-vs-wisconsin-stream-how-to-watch-nov-7/
 
-**Ex-Falcons star RB Jamal Anderson arrested on suspicion of felony domestic violence**\
-`Anderson, 53, was later released from custody after posting a $50,000 bond; he is scheduled for appear in court in December.`\
-https://nytimes.com/athletic/6787170/2025/11/07/ex-falcons-rb-jamal-anderson-arrested-felony-domestic-violence/
+**How to watch Pepperdine vs. UCLA: Time, TV, streaming**\
+`Find out how to watch the Pepperdine Waves play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6788171/2025/11/07/pepperdine-vs-ucla-stream-how-to-watch-nov-7/
 
-**Scientists Discover Colossal, Stinking Spider Web in Pitch-Black Cave**\
-`Researchers discovered a spider web they said spanned about 1,140 square feet in a narrow passage between Albania and Greece. The web housed around 111,000 spiders, including two species of spiders that had previously been thought to be hostile to each other.`\
-https://nytimes.com/video/science/earth/100000010511471/massive-stinking-spiderweb-cave.html
+**How to watch UMass-Lowell vs. UConn: Time, TV, streaming**\
+`Find out how to watch the UMass-Lowell River Hawks play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6788170/2025/11/07/umass-lowell-vs-uconn-stream-how-to-watch-nov-7/
 
-**Is Social Media Ruining the Art of Criticism?**\
-`The writer and critic Kelefa Sanneh joins Wesley Morris to discuss how social media and fan armies have impacted pop music criticism.`\
-https://nytimes.com/video/podcasts/100000010508405/is-social-media-ruining-the-art-of-criticism.html
+**How to watch Utah Tech vs. Arizona: Time, TV, streaming**\
+`Find out how to watch the Utah Tech Trailblazers play the Arizona Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6788167/2025/11/07/utah-tech-vs-arizona-stream-how-to-watch-nov-7/
 
-**gws-florentine-diamond-resurfaces-hapsburg**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/florentine-diamond-resurfaces-hapsburg
+**How to watch Richmond vs. Texas women's basketball: Time, TV, streaming**\
+`Find out how to watch the Richmond Spiders play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6788165/2025/11/07/richmond-vs-texas-stream-how-to-watch-nov-7/
 
-**Bulls broadcaster Chuck Swirsky delivers jersey to Pope Leo XIV: 'An incredible day'**\
-`Swirsky went to Rome with no guarantees, just his belief, to present the personalized No. 14 jersey he got at the United Center team store.`\
-https://nytimes.com/athletic/6787847/2025/11/07/bulls-pope-leo-xiv-broadcaster-chuck-swirsky/
+**How to watch Ole Miss vs. Alabama A&M women's basketball: Time, TV, streaming**\
+`Find out how to watch the Ole Miss Rebels play the Alabama A&M Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6788161/2025/11/07/ole-miss-vs-alabama-a-m-stream-how-to-watch-nov-7/
 
-**Trump Approves Pardon for Ex-Officer Convicted in a Chinese Government Plot**\
-`Prosecutors said Michael McMahon had acted as an illegal agent in a conspiracy targeting a Chinese family in New Jersey. The White House says he was tricked into it.`\
-https://nytimes.com/2025/11/07/us/politics/trump-michael-mcmahon-pardon.html
+**How to watch FGCU vs. Illinois: Time, TV, streaming**\
+`Find out how to watch the Florida Gulf Coast Eagles play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6788158/2025/11/07/fgcu-vs-illinois-stream-how-to-watch-nov-7/
 
-**As Airlines Cancel Flights, Travelers Seek Other Options**\
-`More people are trying to book trains, rental cars and buses but were not always successful.`\
-https://nytimes.com/2025/11/07/us/airline-cancellations-travel-alternatives.html
+**How to watch Sam Houston vs. Texas Tech: Time, TV, streaming**\
+`Find out how to watch the Sam Houston Bearkats play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6788157/2025/11/07/sam-houston-vs-texas-tech-stream-how-to-watch-nov-7/
 
-**James Watson, Co-Discoverer of the Structure of DNA, Is Dead at 97**\
-`His decoding the blueprint for life with Francis H.C. Crick made him one of the most important scientists of the 20th century. He wrote a celebrated memoir and later ignited an uproar with racist views.`\
-https://nytimes.com/2025/11/07/science/james-watson-dead.html
+**WNBA announces dates for 2026 lottery and draft**\
+`The Dallas Wings have the best chance to secure the No. 1 pick again.`\
+https://nytimes.com/athletic/6788110/2025/11/07/wnba-draft-lottery-dates-2026/
 
