@@ -1,3 +1,7 @@
+**The Pulse: Tragedy shakes the NFL**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6785034/2025/11/07/marshawn-kneeland-death-nfl-cowboys-the-pulse/
+
 **Pessimism in standoff as ESPN, YouTube TV head towards 'Monday Night' showdown**\
 `What I'm Hearing: The Athletic's Andrew Marchand has the latest state of play on the YouTube TV-ESPN standoff.`\
 https://nytimes.com/athletic/6785793/2025/11/07/youtubetv-espn-disney-monday-night-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6784738/2025/11/07/nick-schmaltz-breakout-nhl-mammo
 **Laila Edwards, the ‘Queen of Cleveland,’ has her sights on Olympics, PWHL Draft**\
 `Edwards, who was back in her hometown of Cleveland for the Rivalry Series this week, is preparing for a big year ahead. `\
 https://nytimes.com/athletic/6786439/2025/11/07/laila-edwards-team-usa-womens-hockey-olympics/
-
-**Breaking down the Guardians' roster as MLB's offseason begins**\
-`Don't expect the Guardians to operate any differently this winter than last, especially with a potential league work stoppage on the horizon`\
-https://nytimes.com/athletic/6780195/2025/11/07/cleveland-guardians-offseason-plans/
 
