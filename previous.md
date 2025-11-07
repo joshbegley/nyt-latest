@@ -1,3 +1,23 @@
+**Wharton and Quansah in, Gibbs-White and Watkins out: Analysing Tuchel's big decisions**\
+`Our experts dissect the England head coach's most intriguing decisions in his final squad of 2025`\
+https://nytimes.com/athletic/6786877/2025/11/07/england-tuchel-wharton-quansah-gibbs-white-watkins/
+
+**What are Chargers getting in Trevor Penning? Imperfect player with athleticism, attitude**\
+`There was no ideal fix to the Chargers’ offensive tackle situation, but Penning should be in the mix for playing time.`\
+https://nytimes.com/athletic/6785912/2025/11/07/chargers-trevor-penning-trade-film-review/
+
+**Men's college basketball streaming guide: Kansas-UNC, Alabama-St. John's lead the weekend**\
+`Freshman hype, blue-blood stalwarts, showcases at Madison Square Garden and the United Center. It's a full weekend of college basketball.`\
+https://nytimes.com/athletic/6781996/2025/11/07/college-basketball-kansas-unc-alabama-st-johns-how-to-watch/
+
+**Lowetide: Are the Oilers overplaying Connor McDavid?**\
+`Oilers coach Kris Knoblauch has been running McDavid and Leon Draisaitl heavily at five-on-five.`\
+https://nytimes.com/athletic/6784295/2025/11/07/edmonton-oilers-connor-mcdavid-stats-minutes/
+
+**Trump Administration Live Updates: Differences Over Russian Sanctions Could Shadow Orban Meeting**\
+``\
+https://nytimes.com/live/2025/11/07/us/trump-news-shutdown
+
 **In return to Phoenix, Bradley Beal has one of the worst games of his career**\
 `The Suns beat the Clippers 115-102 in a game Beal would surely like to burn the tape on.`\
 https://nytimes.com/athletic/6786545/2025/11/07/bradley-beal-phoenix-return-clippers/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6785786/2025/11/07/kyler-murray-injury-future-jacob
 **The Shutdown Hits Airports**\
 `Hundreds of flights are being canceled today. We explain what’s happening.`\
 https://nytimes.com/2025/11/07/briefing/the-shutdown-hits-airports.html
-
-**NFL Week 10 schedule rankings: Top 5 Sunday games with extra sauce after all those trades**\
-`With several players set to debut for new teams, we're sorting Week 10's Sunday games by post-trade deadline intrigue.`\
-https://nytimes.com/athletic/6781012/2025/11/07/week-10-nfl-schedule-trade-deadline-how-to-watch/
-
-**Is ESPN's standoff with YouTube TV actually hurting ESPN's TV ratings?**\
-`The answer is a predictably unsatisfying mix of "maybe a smidgen," "probably less than you think" and "it's complicated."`\
-https://nytimes.com/athletic/6784697/2025/11/07/youtubetv-espn-tv-ratings-gameday/
-
-**'The Goonies', 'Go Fish', '6-7' and Cup dreams: Inside the Connor Bedard-Frank Nazar friendship**\
-`The twin young pillars of the Blackhawks’ rebuild spoke about their friendship, their lives as young stars and their dreams for Chicago.`\
-https://nytimes.com/athletic/6785363/2025/11/07/blackhawks-connor-bedard-frank-nazar-stanley-cup/
-
-**An in-depth look at Linus Ullmark's struggles, and how he's pushing back against them**\
-`Ullmark's struggles to start the season have been well-documented in a year when the Senators have been trying to keep themselves afloat.`\
-https://nytimes.com/athletic/6781138/2025/11/07/senators-linus-ullmark-goalie-struggles-nhl/
-
-**How is Vanderbilt doing this? An Aussie rules football team traveled 9,000 miles to find out**\
-`Gold Coast Suns senior coach Damien Hardwick said he's sees a lot of similarities between Vanderbilt football and his team. `\
-https://nytimes.com/athletic/6783508/2025/11/07/vanderbilt-football-clark-lea-gold-coast-suns/
 

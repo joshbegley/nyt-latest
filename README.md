@@ -1,4 +1,12 @@
-**Wharton and Quansah in, Gibbs-White and Watkins out: Analysing Tuchel's big decisions**\
+**The $1 Trillion Question Hanging Over Elon Musk’s Pay Plan**\
+`Tesla shareholders approved his potentially record-breaking compensation package. But will he actually get the full award?`\
+https://nytimes.com/2025/11/07/business/dealbook/elon-musk-trillion-pay.html
+
+**Serbian Lawmakers Approve Luxury Trump Hotel on Historic Bombing Site**\
+`Despite a fraud investigation into officials who endorsed the project, Parliament used an extraordinary provision in the Constitution to push the plans through.`\
+https://nytimes.com/2025/11/07/world/europe/serbia-hotel-trump-kushner.html
+
+**Foden and Wharton in, Gibbs-White and Watkins out: Analysing Tuchel's big decisions**\
 `Our experts dissect the England head coach's most intriguing decisions in his final squad of 2025`\
 https://nytimes.com/athletic/6786877/2025/11/07/england-tuchel-wharton-quansah-gibbs-white-watkins/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/07/business/china-rare-earth-export-controls.html
 **Fantasy Premier League live Q&A: Gameweek 11 advice from Ben Dinnery**\
 `Ben Dinnery of premierinjuries.com is on hand to talk you through the players to target and who to avoid ahead of FPL Gameweek 11`\
 https://nytimes.com/athletic/6786944/2025/11/07/fantasy-premier-league-live-qa-gameweek-11-advice-from-ben-dinnery/
-
-**Kyler Murray's uncertain present, and the Cardinals' uncertain future at QB**\
-`Murray might have played his last game in the desert — if so, the Cardinals are looking for a long-term solution again.`\
-https://nytimes.com/athletic/6785786/2025/11/07/kyler-murray-injury-future-jacoby-brissett/
-
-**The Shutdown Hits Airports**\
-`Hundreds of flights are being canceled today. We explain what’s happening.`\
-https://nytimes.com/2025/11/07/briefing/the-shutdown-hits-airports.html
 
