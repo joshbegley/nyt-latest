@@ -1,3 +1,15 @@
+**Prince Harry Apologizes to Canadians for Wearing an L.A. Dodgers Cap**\
+`Harry, who referred to the episode as “Hat Gate,” was seen wearing the cap at a World Series game in Los Angeles between the Dodgers and the Toronto Blue Jays.`\
+https://nytimes.com/2025/11/07/world/canada/prince-harry-dodgers-cap-world-series.html
+
+**Baylor AD investigated for sideline incident with player, assistant: Source**\
+`Rhoades, the CFP chairperson, is alleged to have taken exception to an undershirt worn by Baylor's Michael Trigg at a Sept. 20 home game.`\
+https://nytimes.com/athletic/6788453/2025/11/07/baylor-cfp-mack-rhoades-sideline-altercation-investigation/
+
+**Harrison Mevis named Rams' kicker vs. 49ers; Joshua Karty remains on roster**\
+`Karty has missed a league-high eight kicks so far this season, including five field goal attempts and three extra points. `\
+https://nytimes.com/athletic/6788444/2025/11/07/rams-kicker-harrison-mevis-49ers/
+
 **The Fate of Food Stamps Is in Limbo**\
 `Also, Grammy nominations put hip-hop front and center. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/11/07/briefing/food-stamps-trump-supreme-court.html
