@@ -1,3 +1,7 @@
+**Is ESPN's standoff with YouTube TV actually hurting ESPN's TV ratings?**\
+`The answer is a predictably unsatisfying mix of "maybe a smidgen," "probably less than you think" and "it's complicated."`\
+https://nytimes.com/athletic/6784697/2025/11/07/youtubetv-espn-tv-ratings-gameday/
+
 **'The Goonies', 'Go Fish', '6-7' and Cup dreams: Inside the Connor Bedard-Frank Nazar friendship**\
 `The twin young pillars of the Blackhawks’ rebuild spoke about their friendship, their lives as young stars and their dreams for Chicago.`\
 https://nytimes.com/athletic/6785363/2025/11/07/blackhawks-connor-bedard-frank-nazar-stanley-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6784500/2025/11/07/fraser-minten-maple-leafs-trade-
 **How the 49ers' battered defensive line is fighting through a season from hell**\
 `With Nick Bosa and Mykel Williams done for the season and other D-linemen banged-up, DL coach Kris Kocurek has had his job cut out for him.`\
 https://nytimes.com/athletic/6786026/2025/11/07/49ers-defensive-line-injuries-kris-kocurek/
-
-**Week 11’s top 10 college football games: BYU-Texas Tech, Oregon-Iowa and Tulane-Memphis**\
-`An ACC clash between Wake Forest and Virginia is higher on this week’s docket than an SEC rivalry between LSU and Alabama.`\
-https://nytimes.com/athletic/6785348/2025/11/07/week-11-cfb-top-games-schedule/
 
