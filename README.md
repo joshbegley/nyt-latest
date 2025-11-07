@@ -1,3 +1,11 @@
+**Crystal Palace rebuilding momentum as they sweep aside AZ**\
+`After their 19-game unbeaten run came to an end, Oliver Glasner's side are getting their groove back`\
+https://nytimes.com/athletic/6773311/2025/11/07/crystal-palace-az-analysis/
+
+**Airlines Cancel Flights to Meet F.A.A. Demands**\
+`U.S. airlines canceled hundreds of flights to meet Federal Aviation Administration guidelines meant to ease pressure on air traffic controllers during the government shutdown.`\
+https://nytimes.com/video/us/100000010510135/airports-list-flight-cuts-government-shutdown.html
+
 **Late Night Laments the Effects of the Longest-Ever Government Shutdown**\
 `Stephen Colbert advised that anyone traveling for Thanksgiving “might want to leave now.”`\
 https://nytimes.com/2025/11/07/arts/television/late-night-government-shutdown-airports.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6780040/2025/11/07/rugby-union-motor-neurone-diseas
 **The New York Times in Print for Friday, Nov. 7, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/07/todays-new-york-times
-
-**Will Hamas Lay Down Its Arms?**\
-`For a movement that built its legitimacy around what it called resistance, giving up its weapons is not just a tactical concession, it is an existential unraveling.`\
-https://nytimes.com/2025/11/07/opinion/israel-gaza-hamas-disarming-peace-plan.html
-
-**The Georginio Rutter paradox: Can Brighton rely on a striker who doesn't score goals?**\
-`He may not have scored in the Premier League since February, but Georginio Rutter has become highly valuable to Brighton and Hove Albion`\
-https://nytimes.com/athletic/6765975/2025/11/07/georginio-rutterno-goals-brighton/
 
