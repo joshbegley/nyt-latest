@@ -1,3 +1,7 @@
+**Spurs' Kudus a doubt to face Man United, says Frank**\
+`The Ghanaian missed Tuesday's win over FC Copenhagen in the Champions League with a knock.`\
+https://nytimes.com/athletic/6787363/2025/11/07/tottenham-mohamed-kudus-injury-manchester-united/
+
 **Villa reach Rogers new contract agreement until 2031**\
 `The deal is set to extend the midfielder's contract by 12 months and include a significant salary raise.`\
 https://nytimes.com/athletic/6784435/2025/11/07/morgan-rogers-aston-villa-contract-new/

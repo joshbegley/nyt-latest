@@ -1,3 +1,19 @@
+**Hegseth Is Purging Military Leaders With Little Explanation**\
+`The moves to fire or sideline generals and admirals are without precedent in recent decades and have rattled the top brass.`\
+https://nytimes.com/2025/11/07/us/politics/hegseth-firing-military-leaders.html
+
+**Rosalía’s ‘Lux’ Is Operatic. But Is It Opera?**\
+`This Spanish pop star’s new album is being advertised as symphonic and operatic. Its music borrows from both, without committing to either.`\
+https://nytimes.com/2025/11/07/arts/music/rosalia-lux-classical-music-opera.html
+
+**Commanders QB Jayden Daniels has no ligament damage, will not need surgery: Source**\
+`The team does not plan to place Daniels on IR at this point. Instead, it will reassess his health after its Week 12 bye.`\
+https://nytimes.com/athletic/6787348/2025/11/07/jayden-daniels-surgery-injured-reserve/
+
+**NHL Power Rankings: A new No. 1, plus Olympic roster bubble boys**\
+`The Avalanche climb into the top spot as we look around the league to see who's playing their way onto — or off of — Olympic rosters. `\
+https://nytimes.com/athletic/6786538/2025/11/07/nhl-power-rankings-olympic-roster-avalanche/
+
 **Spurs' Kudus a doubt to face Man United, says Frank**\
 `The Ghanaian missed Tuesday's win over FC Copenhagen in the Champions League with a knock.`\
 https://nytimes.com/athletic/6787363/2025/11/07/tottenham-mohamed-kudus-injury-manchester-united/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6787319/2025/11/07/philadelphia-union-club-record-s
 **The Bounce: The Nuggets can't rest Jokić. Plus, an NBA Cupdate (yes, it has begun)**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6784190/2025/11/07/nikola-jokic-nuggets-suns-clippers-nba-the-bounce/
-
-**Fatos Nano, Albanian Leader in Era of Chaos and Transition, Dies at 73**\
-`A consummate political survivor during his country’s shift from brutal communist regime to flawed democracy, he served three stints as prime minister.`\
-https://nytimes.com/2025/11/07/world/europe/fatos-nano-dead.html
-
-**Trump Administration Seeks Immediate Halt to Court Order to Pay Food Stamps**\
-`The appeal comes one day after a judge sharply attacked the White House for politicizing the anti-hunger program`\
-https://nytimes.com/2025/11/07/us/politics/trump-court-food-stamps.html
-
-**Jaxson Dart could reach fantasy football supernova status in Week 10**\
-`Andy Behrens talks the biggest fantasy football storylines ahead of Week 10, including Jaxson Dart's potential for an impressive Week 10. `\
-https://nytimes.com/athletic/6787169/2025/11/07/fantasy-football-news-week-10-jaxson-dart/
-
-**Everton's Iliman Ndiaye 'fine' after injury concern against Sunderland, Moyes says**\
-`Ndiaye has made 12 appearances for Everton this season, starting in all 10 Premier League matches so far.`\
-https://nytimes.com/athletic/6787163/2025/11/07/iliman-ndiaye-everton-injury-news/
 
