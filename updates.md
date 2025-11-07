@@ -1,3 +1,11 @@
+**Inside the Knicks' best collective weapon: Offensive rebounding**\
+`The Knicks are generating second-chance opportunities, and it's been a team effort. They lead the NBA with 15.3 offensive rebounds per game.`\
+https://nytimes.com/athletic/6783934/2025/11/07/knicks-offensive-rebounding/
+
+**As Saudi Arabia Cracks Down on Drugs, Executions Near a Record High**\
+`Facing an influx of amphetamines, the kingdom has put hundreds of people to death, many of them foreigners convicted of low-level smuggling.`\
+https://nytimes.com/2025/11/07/world/middleeast/saudi-arabia-executions-war-on-drugs.html
+
 **Slot: Liverpool vs. Manchester City 'similar to El Clasico'**\
 `The Liverpool head coach described playing City away as "one of the most difficult challenges you have throughout a season."`\
 https://nytimes.com/athletic/6786798/2025/11/07/liverpool-manchester-city-slot-el-clasico/
