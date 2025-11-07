@@ -1,40 +1,40 @@
-**NBA trends I'm watching: Giannis' new bestie, the running of the Bulls and more**\
-`One Bucks pick-and-roll duo has thrived so far this season and could present a major challenge Friday for East-leading Chicago.`\
-https://nytimes.com/athletic/6784862/2025/11/07/giannis-bucks-bulls-thunder-nba-trends/
+**'The Goonies', 'Go Fish', '6-7' and Cup dreams: Inside the Connor Bedard-Frank Nazar friendship**\
+`The twin young pillars of the Blackhawks’ rebuild spoke about their friendship, their lives as young stars and their dreams for Chicago.`\
+https://nytimes.com/athletic/6785363/2025/11/07/blackhawks-connor-bedard-frank-nazar-stanley-cup/
 
-**The Pulse: Tragedy shakes the NFL**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6785034/2025/11/07/marshawn-kneeland-death-nfl-cowboys-the-pulse/
+**An in-depth look at Linus Ullmark's struggles, and how he's pushing back against them**\
+`Ullmark's struggles to start the season have been well-documented in a year when the Senators have been trying to keep themselves afloat.`\
+https://nytimes.com/athletic/6781138/2025/11/07/senators-linus-ullmark-goalie-struggles-nhl/
 
-**Pessimism in standoff as ESPN, YouTube TV head towards 'Monday Night' showdown**\
-`What I'm Hearing: The Athletic's Andrew Marchand has the latest state of play on the YouTube TV-ESPN standoff.`\
-https://nytimes.com/athletic/6785793/2025/11/07/youtubetv-espn-disney-monday-night-football/
+**How is Vanderbilt doing this? An Aussie rules football team traveled 9,000 miles to find out**\
+`Gold Coast Suns senior coach Damien Hardwick said he's sees a lot of similarities between Vanderbilt football and his team. `\
+https://nytimes.com/athletic/6783508/2025/11/07/vanderbilt-football-clark-lea-gold-coast-suns/
 
-**Bears' Rome Odunze unfazed by dad's social media rant: 'I speak for myself'**\
-`The Bears aren't worried about outside noise with a low-maintenance productive playmaker handling his business inside the facility.`\
-https://nytimes.com/athletic/6785508/2025/11/07/bears-rome-odunze-dad-social-media-rant/
+**Bruins are playing winning hockey, and it’s absolutely for real**\
+`The Bruins have won five straight games. It's no coincidence that the streak accompanies great defense.`\
+https://nytimes.com/athletic/6786315/2025/11/07/bruins-defense-sturm-senators/
 
-**For the Lions, it all starts with the O-line: Can they recapture its identity?**\
-`It doesn't feel as if the Lions can dictate games with their offensive line right now, the way they could a year ago.`\
-https://nytimes.com/athletic/6785975/2025/11/07/lions-offensive-line-success-failure/
+**Is the ACC spending its way to more football parity? Here's what changed**\
+`Florida State and Clemson pushed for a bigger piece of the ACC pie, but financial changes could actually be helping the middle class.`\
+https://nytimes.com/athletic/6784667/2025/11/07/acc-football-standings-playoff-spending-money/
 
-**Wife's cooking has helped fuel Panthers LB Christian Rozeboom's 5-game feast**\
-`The secret behind Rozeboom's recent success? His wife's baked spaghetti. "I've been eating probably two or three times more," he said.`\
-https://nytimes.com/athletic/6785627/2025/11/07/panthers-christian-rozeboom-linebacker-calories/
+**Life after Cignetti: Bob Chesney made JMU a CFP contender — Is a Power 4 job next?**\
+`The Dukes have a 25 percent chance to make the Playoff, according to The Athletic’s projection model, second among Group of 5 schools.`\
+https://nytimes.com/athletic/6784645/2025/11/07/bob-chesney-jmu-cfp-coaching-carousel/
 
-**A Nerve-Racking Week for SNAP Recipients, and Elon Musk’s $1 Trillion Pay Deal**\
-`Plus, the Friday news quiz.`\
-https://nytimes.com/2025/11/07/podcasts/snap-food-stamps-elon-musk-trillion-payday.html
+**Boston Marathon 'funraiser' Susan Hurley inspired the masses through fitness, philanthropy**\
+`Hurley, who died of cancer at 62, trained hundreds of charity marathoners and was "selfless," one of her many runners-turned-friends said.`\
+https://nytimes.com/athletic/6785532/2025/11/07/boston-marathon-susan-hurley-charity-organizer-trainer/
 
-**From Giants' owner's box to Gotham's builder-in-chief: An interview with Carolyn Tisch Blodgett**\
-`The Gotham FC owner was born into sports ownership and looks to carry it with her into a new arena.`\
-https://nytimes.com/athletic/6784810/2025/11/07/carolyn-tisch-blodgett-gotham-fc-owner-interview/
+**Leafs exit, becoming a Bruins regular and dinner plans gone awry: Fraser Minten 1-on-1**\
+`Minten was part of a package for Brandon Carlo at the trade deadline. Months later, he's settled into a different life than expected.`\
+https://nytimes.com/athletic/6784500/2025/11/07/fraser-minten-maple-leafs-trade-bruins/
 
-**Yohe's 10 observations: On Penguins avoiding another collapse, Kindel magic and Crosby**\
-`Crosby scored twice as the Penguins blew a big lead, only to beat the Washington Capitals 5-3 on Thursday night. `\
-https://nytimes.com/athletic/6786213/2025/11/07/penguins-capitals-observations-ben-kindel-sidney-crosby/
+**How the 49ers' battered defensive line is fighting through a season from hell**\
+`With Nick Bosa and Mykel Williams done for the season and other D-linemen banged-up, DL coach Kris Kocurek has had his job cut out for him.`\
+https://nytimes.com/athletic/6786026/2025/11/07/49ers-defensive-line-injuries-kris-kocurek/
 
-**The star of 2026 NHL free agency? Mammoth's Nick Schmaltz is taking a big step at the right time**\
-`"I try not to think about it too much," Utah's leading scorer said of pending free agency. "But obviously it’s on your mind at some point."`\
-https://nytimes.com/athletic/6784738/2025/11/07/nick-schmaltz-breakout-nhl-mammoth-free-agency/
+**Week 11’s top 10 college football games: BYU-Texas Tech, Oregon-Iowa and Tulane-Memphis**\
+`An ACC clash between Wake Forest and Virginia is higher on this week’s docket than an SEC rivalry between LSU and Alabama.`\
+https://nytimes.com/athletic/6785348/2025/11/07/week-11-cfb-top-games-schedule/
 
