@@ -1,3 +1,7 @@
+**Everton's Iliman Ndiaye 'fine' after injury concern against Sunderland, Moyes says**\
+`Ndiaye has made 12 appearances for Everton this season, starting in all 10 Premier League matches so far.`\
+https://nytimes.com/athletic/6787163/2025/11/07/iliman-ndiaye-everton-injury-news/
+
 **New York Prepares for a Potential Trump Immigration Crackdown**\
 `The election of Zohran Mamdani as mayor has stoked speculation that President Trump might move to send forces into the city.`\
 https://nytimes.com/2025/11/07/nyregion/nyc-immigration-raids-trump-mamdani.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6787011/2025/11/07/russia-skiing-winter-olympics/
 **The $1 Trillion Question Hanging Over Elon Musk’s Pay Plan**\
 `Tesla shareholders approved his potentially record-breaking compensation package. But will he actually get the full award?`\
 https://nytimes.com/2025/11/07/business/dealbook/elon-musk-trillion-pay.html
-
-**Serbian Lawmakers Approve Luxury Trump Hotel on Historic Bombing Site**\
-`Despite a fraud investigation into officials who endorsed the project, Parliament used an extraordinary provision in the Constitution to push the plans through.`\
-https://nytimes.com/2025/11/07/world/europe/serbia-hotel-trump-kushner.html
 
