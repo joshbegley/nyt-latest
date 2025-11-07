@@ -1,3 +1,7 @@
+**The Fate of Food Stamps Is in Limbo**\
+`Also, Grammy nominations put hip-hop front and center. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/11/07/briefing/food-stamps-trump-supreme-court.html
+
 **Kendrick Lamar and Lady Gaga Lead the 2026 Grammy Nominees**\
 `Kendrick Lamar is the top nominee for the 2026 Grammy Awards with nine nods. He leads a pack of contenders that includes Lady Gaga with seven nods; and Bad Bunny, Sabrina Carpenter and Leon Thomas with six nods apiece.`\
 https://nytimes.com/video/us/100000010512132/grammy-awards-nominations.html

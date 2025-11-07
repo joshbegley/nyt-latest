@@ -1,3 +1,11 @@
+**Baylor AD investigated for sideline incident with player, assistant: Source**\
+`Rhoades, the CFP chairperson, is alleged to have taken exception to an undershirt worn by Baylor's Michael Trigg at a Sept. 20 home game.`\
+https://nytimes.com/athletic/6788453/2025/11/07/baylor-cfp-mack-rhoades-sideline-altercation-investigation/
+
+**Harrison Mevis named Rams' kicker vs. 49ers; Joshua Karty remains on roster**\
+`Karty has missed a league-high eight kicks so far this season, including five field goal attempts and three extra points. `\
+https://nytimes.com/athletic/6788444/2025/11/07/rams-kicker-harrison-mevis-49ers/
+
 **The Fate of Food Stamps Is in Limbo**\
 `Also, Grammy nominations put hip-hop front and center. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/11/07/briefing/food-stamps-trump-supreme-court.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/11/07/theater/black-broadway-shuffle-hamilt
 **What to Know About the New Gender Rules for U.S. Passports**\
 `A policy that requires passports to display a person’s sex assigned at birth will come into play during renewals and first-time applications.`\
 https://nytimes.com/2025/11/07/travel/supreme-court-transgender-passport-policy.html
-
-**In Cozying Up to Trump, Leaders Hedge Their Reliance on Moscow and Beijing**\
-`President Trump has made it easier for countries that are close to Russia and China to build ties with the United States. Those countries are embracing the opportunity.`\
-https://nytimes.com/2025/11/07/us/politics/central-asia-leaders-trump.html
-
-**Road Trips Where Rural America Shines**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/road-trips-small-towns-scenic-us
 
