@@ -1,3 +1,7 @@
+**NFL, Broncos observe moment of silence for Kneeland, TNF crew addresses tragedy**\
+`Said Richard Sherman: "You have those things you’re dealing with and you don’t ever want to be dealing with them alone."`\
+https://nytimes.com/athletic/6785811/2025/11/06/marshawn-kneeland-moment-of-silence-tnf/
+
 **Who’s Selling the $10 Million Gold Toilet? Signs Point to the Mets’ Owner.**\
 `The billionaire Steve Cohen is reported to have purchased the 18-karat flushable sculpture by Maurizio Cattelan in 2017. It’s now coming up for sale at Sotheby’s.`\
 https://nytimes.com/2025/11/06/arts/design/golden-toilet-10-million-dsteven-cohen-mets-owner.html
