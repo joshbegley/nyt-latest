@@ -1,15 +1,3 @@
-**Japanese Automakers Warn of Billions in Tariff Losses**\
-`Toyota, Honda and Nissan forecast big hits to their profits from higher tariffs that they acknowledged were likely ‘here to stay.’`\
-https://nytimes.com/2025/11/07/business/japanese-automakers-tariff-losses.html
-
-**TAFC: Reyna return – a shock call from Poch. Plus: 11 arrested in protests outside Villa Park**\
-`Today in TAFC: Is Pochettino mixing messages by recalling Gio Reyna? Plus: 11 arrested in protests outside Aston Villa vs Maccabi Tel Aviv`\
-https://nytimes.com/athletic/6786754/2025/11/07/reyna-usmnt-return-pochettino/
-
-**Maresca defends Chelsea rotation policy after Rooney criticism**\
-`Maresca has made 85 changes to his starting line-up in 16 games this season, the most by any Premier League club.`\
-https://nytimes.com/athletic/6786893/2025/11/07/chelsea-squad-rotation-maresca-rooney/
-
 **NBA trends I'm watching: Giannis' new bestie, the running of the Bulls and more**\
 `One Bucks pick-and-roll duo has thrived so far this season and could present a major challenge Friday for East-leading Chicago.`\
 https://nytimes.com/athletic/6784862/2025/11/07/giannis-bucks-bulls-thunder-nba-trends/
@@ -37,4 +25,16 @@ https://nytimes.com/athletic/6785627/2025/11/07/panthers-christian-rozeboom-line
 **A Nerve-Racking Week for SNAP Recipients, and Elon Musk’s $1 Trillion Pay Deal**\
 `Plus, the Friday news quiz.`\
 https://nytimes.com/2025/11/07/podcasts/snap-food-stamps-elon-musk-trillion-payday.html
+
+**From Giants' owner's box to Gotham's builder-in-chief: An interview with Carolyn Tisch Blodgett**\
+`The Gotham FC owner was born into sports ownership and looks to carry it with her into a new arena.`\
+https://nytimes.com/athletic/6784810/2025/11/07/carolyn-tisch-blodgett-gotham-fc-owner-interview/
+
+**Yohe's 10 observations: On Penguins avoiding another collapse, Kindel magic and Crosby**\
+`Crosby scored twice as the Penguins blew a big lead, only to beat the Washington Capitals 5-3 on Thursday night. `\
+https://nytimes.com/athletic/6786213/2025/11/07/penguins-capitals-observations-ben-kindel-sidney-crosby/
+
+**The star of 2026 NHL free agency? Mammoth's Nick Schmaltz is taking a big step at the right time**\
+`"I try not to think about it too much," Utah's leading scorer said of pending free agency. "But obviously it’s on your mind at some point."`\
+https://nytimes.com/athletic/6784738/2025/11/07/nick-schmaltz-breakout-nhl-mammoth-free-agency/
 
