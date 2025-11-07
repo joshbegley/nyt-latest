@@ -1,3 +1,7 @@
+**The Rise of Nancy Pelosi: From Stay-at-Home Mom to Speaker of the House**\
+`The daughter of a politician, she didn’t expect to become one. But once she ran for office in 1987, there was no stopping her.`\
+https://nytimes.com/2025/11/06/us/nancy-pelosi-career-highlights.html
+
 **NFL, Broncos observe moment of silence for Kneeland, TNF crew addresses tragedy**\
 `Said Richard Sherman: "You have those things you’re dealing with and you don’t ever want to be dealing with them alone."`\
 https://nytimes.com/athletic/6785811/2025/11/06/marshawn-kneeland-moment-of-silence-tnf/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6785618/2025/11/06/tyler-skaggs-trial-judge-concern
 **Antonio Brown captured in Dubai by U.S. Marshals on attempted murder charge**\
 `Brown faces a second-degree attempted murder charge in connection with a Miami shooting that happened in May.`\
 https://nytimes.com/athletic/6785505/2025/11/06/antonio-brown-captured-search-nfl/
-
-**Maryland Sues F.B.I. Over Relocation of Headquarters**\
-`The move prolongs the dispute over the F.B.I.’s headquarters, an aging colossus veiled in netting to keep concrete from falling on passers-by.`\
-https://nytimes.com/2025/11/06/us/politics/maryland-fbi-lawsuit-headquarters.html
 

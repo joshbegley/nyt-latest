@@ -1,3 +1,7 @@
+**Team Canada unveils hockey jerseys for Milan-Cortina 2026 Olympics, Paralympics**\
+`Hockey Canada has unveiled the jerseys that the Canadian men’s, women’s and para teams will wear at the 2026 Olympics and Paralympics.`\
+https://nytimes.com/athletic/6786016/2025/11/06/canada-olympic-hockey-jerseys-milan-2026/
+
 **The Rise of Nancy Pelosi: From Stay-at-Home Mom to Speaker of the House**\
 `The daughter of a politician, she didn’t expect to become one. But once she ran for office in 1987, there was no stopping her.`\
 https://nytimes.com/2025/11/06/us/nancy-pelosi-career-highlights.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/06/us/la-fires-insurance-homeowners.html
 **Judge expresses concern over slow pace of Tyler Skaggs trial**\
 `Judge told attorneys for both sides that they were taking too long with each witness and would need to pare down their lists.`\
 https://nytimes.com/athletic/6785618/2025/11/06/tyler-skaggs-trial-judge-concern-pace/
-
-**Antonio Brown captured in Dubai by U.S. Marshals on attempted murder charge**\
-`Brown faces a second-degree attempted murder charge in connection with a Miami shooting that happened in May.`\
-https://nytimes.com/athletic/6785505/2025/11/06/antonio-brown-captured-search-nfl/
 

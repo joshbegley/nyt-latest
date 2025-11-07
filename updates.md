@@ -1,3 +1,7 @@
+**The Rise of Nancy Pelosi: From Stay-at-Home Mom to Speaker of the House**\
+`The daughter of a politician, she didn’t expect to become one. But once she ran for office in 1987, there was no stopping her.`\
+https://nytimes.com/2025/11/06/us/nancy-pelosi-career-highlights.html
+
 **NFL, Broncos observe moment of silence for Kneeland, TNF crew addresses tragedy**\
 `Said Richard Sherman: "You have those things you’re dealing with and you don’t ever want to be dealing with them alone."`\
 https://nytimes.com/athletic/6785811/2025/11/06/marshawn-kneeland-moment-of-silence-tnf/
