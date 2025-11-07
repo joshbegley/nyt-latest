@@ -1,3 +1,7 @@
+**Is ESPN's standoff with YouTube TV actually hurting ESPN's TV ratings?**\
+`The answer is a predictably unsatisfying mix of "maybe a smidgen," "probably less than you think" and "it's complicated."`\
+https://nytimes.com/athletic/6784697/2025/11/07/youtubetv-espn-tv-ratings-gameday/
+
 **'The Goonies', 'Go Fish', '6-7' and Cup dreams: Inside the Connor Bedard-Frank Nazar friendship**\
 `The twin young pillars of the Blackhawks’ rebuild spoke about their friendship, their lives as young stars and their dreams for Chicago.`\
 https://nytimes.com/athletic/6785363/2025/11/07/blackhawks-connor-bedard-frank-nazar-stanley-cup/
