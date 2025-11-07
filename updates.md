@@ -1,3 +1,7 @@
+**James Watson, Co-Discoverer of the Structure of DNA, Is Dead at 97**\
+`His decoding the blueprint for life with Francis H.C. Crick made him one of the most important scientists of the 20th century. He wrote a celebrated memoir and later ignited an uproar with racist views.`\
+https://nytimes.com/2025/11/07/science/james-watson-dead.html
+
 **Scientists Discover Colossal, Stinking Spider Web in Pitch-Black Cave**\
 `Researchers discovered a spider web they said spanned about 1,140 square feet in a narrow passage between Albania and Greece. The web housed around 111,000 spiders, including two species of spiders that had previously been thought to be hostile to each other.`\
 https://nytimes.com/video/science/earth/100000010511471/massive-stinking-spiderweb-cave.html

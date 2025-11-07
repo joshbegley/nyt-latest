@@ -1,3 +1,11 @@
+**Did Trump’s Supreme Court Tariffs Brief Include a Strategic Blunder?**\
+`The justices are generally reluctant to take account of a president’s public statements. But extensive quotes from Mr. Trump in a key filing may change the legal calculus.`\
+https://nytimes.com/2025/11/07/us/trump-statements-supreme-court-tariffs.html
+
+**Ex-Falcons star RB Jamal Anderson arrested on suspicion of felony domestic violence**\
+`Anderson, 53, was later released from custody after posting a $50,000 bond; he is scheduled for appear in court in December.`\
+https://nytimes.com/athletic/6787170/2025/11/07/ex-falcons-rb-jamal-anderson-arrested-felony-domestic-violence/
+
 **Scientists Discover Colossal, Stinking Spider Web in Pitch-Black Cave**\
 `Researchers discovered a spider web they said spanned about 1,140 square feet in a narrow passage between Albania and Greece. The web housed around 111,000 spiders, including two species of spiders that had previously been thought to be hostile to each other.`\
 https://nytimes.com/video/science/earth/100000010511471/massive-stinking-spiderweb-cave.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/07/science/james-watson-dead.html
 **This Spoon Leveled Up My Cooking**\
 `Kitchen writer Maki Yazawa learned of the Kunz spoon as a restaurant line cook — and in the eight years since she first used one, the spoon has transformed the way she cooks.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010511748/this-spoon-leveled-up-my-cooking.html
-
-**Memorable Looks at the New York City Marathon**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/new-york-marathon-fashion-2025
-
-**We Didn’t Love These Viral Lip Stains**\
-`This Sacheu lip stain took TikTok by storm, most notably as a lip liner hack. But for most of Wirecutter’s testers it left something to be desired.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010511735/we-didnt-love-these-viral-lip-stains.html
 
