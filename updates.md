@@ -1,3 +1,7 @@
+**How Emmanuel Forbes Jr. went from a project to a player the Rams believe in**\
+`Forbes, a 2023 first-round pick who was released by the Commanders last year, has quietly began to turn his career around with the Rams. `\
+https://nytimes.com/athletic/6786479/2025/11/07/rams-emmanuel-forbes-jr-development/
+
 **Source: Shield-winning Union finalizing club-record deal for new forward**\
 `The Union are still focused on winning MLS Cup 2025, but they're making a significant move for 2026 and beyond as well.`\
 https://nytimes.com/athletic/6787319/2025/11/07/philadelphia-union-club-record-signing-ezekiel-alladoh/
