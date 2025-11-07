@@ -1,3 +1,7 @@
+**50 Years of Patti Smith’s ‘Horses’**\
+`In 1975, she transformed poetry into punk. Neither would ever be the same. More than 20 artists who made and admired the album share their memories.`\
+https://nytimes.com/interactive/2025/11/07/arts/music/patti-smith-horses-anniversary.html
+
 **Trump Pardons Darryl Strawberry, Former Mets and Yankees Slugger**\
 `The eight-time All-Star baseball player pleaded guilty in 1995 to one count of tax evasion. He was sentenced to six months of home confinement.`\
 https://nytimes.com/2025/11/07/us/politics/darryl-strawberry-pardon-trump.html

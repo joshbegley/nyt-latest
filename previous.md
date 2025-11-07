@@ -1,3 +1,7 @@
+**50 Years of Patti Smith’s ‘Horses’**\
+`In 1975, she transformed poetry into punk. Neither would ever be the same. More than 20 artists who made and admired the album share their memories.`\
+https://nytimes.com/interactive/2025/11/07/arts/music/patti-smith-horses-anniversary.html
+
 **Trump Pardons Darryl Strawberry, Former Mets and Yankees Slugger**\
 `The eight-time All-Star baseball player pleaded guilty in 1995 to one count of tax evasion. He was sentenced to six months of home confinement.`\
 https://nytimes.com/2025/11/07/us/politics/darryl-strawberry-pardon-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/07/us/politics/shutdown-democrats-schumer-thune.html
 **Colts place DT DeForest Buckner on IR due to neck injury**\
 `Buckner leads Indianapolis' defensive linemen with 42 tackles this season, including a team-high nine tackles for loss.`\
 https://nytimes.com/athletic/6788313/2025/11/07/colts-deforest-buckner-injured-reserve-neck/
-
-**Jaguars WR Brian Thomas Jr. ruled out vs. Texans on Sunday**\
-`Thomas made the Pro Bowl last year as a rookie with 87 catches for 1,282 yards and 10 touchdowns.`\
-https://nytimes.com/athletic/6788235/2025/11/07/jaguars-brian-thomas-jr-out-sunday-texans/
 
