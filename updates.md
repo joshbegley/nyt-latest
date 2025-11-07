@@ -1,3 +1,11 @@
+**Smashed Pickle Salad**\
+`Many cucumber salads are dressed with some combination of salt, acidity (such as vinegar or lemon juice) and something tangy and creamy.`\
+https://nytimes.com/video/dining/100000010366691/smashed-pickle-salad.html
+
+**For Nashville, Inter Miami, decisive playoff game adds chapter to intertwined history**\
+`Since entering the league together in 2020, Nashville and Miami have crossed paths in big spots, and the stakes are big again Saturday night`\
+https://nytimes.com/athletic/6787497/2025/11/07/nashville-sc-inter-miami-mls-playoffs-game-3-preview-messi/
+
 **Don’t Overlook the Coalition Mamdani Built**\
 `Zohran Mamdani’s campaign ended up winning over some of the exact voters who make up a major part of the Democratic coalition. Why is worth considering.`\
 https://nytimes.com/2025/11/07/opinion/zohran-mamdani-coalition-voters.html

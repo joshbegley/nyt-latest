@@ -1,3 +1,11 @@
+**Smashed Pickle Salad**\
+`Many cucumber salads are dressed with some combination of salt, acidity (such as vinegar or lemon juice) and something tangy and creamy.`\
+https://nytimes.com/video/dining/100000010366691/smashed-pickle-salad.html
+
+**For Nashville, Inter Miami, decisive playoff game adds chapter to intertwined history**\
+`Since entering the league together in 2020, Nashville and Miami have crossed paths in big spots, and the stakes are big again Saturday night`\
+https://nytimes.com/athletic/6787497/2025/11/07/nashville-sc-inter-miami-mls-playoffs-game-3-preview-messi/
+
 **Don’t Overlook the Coalition Mamdani Built**\
 `Zohran Mamdani’s campaign ended up winning over some of the exact voters who make up a major part of the Democratic coalition. Why is worth considering.`\
 https://nytimes.com/2025/11/07/opinion/zohran-mamdani-coalition-voters.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/07/us/politics/supreme-court-same-sex-marriage.html
 **Cornell Reaches Deal with Trump Administration to Restore Research Funds**\
 `The Ivy League university had warned of layoffs after the Trump administration stripped it of funds this year. The cuts were among the deepest in higher education.`\
 https://nytimes.com/2025/11/07/us/cornell-deal-trump-administration.html
-
-**Penguins' Filip Hållander has blood clot in leg, will miss at least 3 months**\
-`Days before the Penguins embark on a weeklong voyage to Sweden, one of their three Swedish players has been diagnosed with a scary injury.`\
-https://nytimes.com/athletic/6787464/2025/11/07/penguins-filip-hallander-blood-clot-injury-update/
-
-**When a Vietnam Protest on Campus Turned Deadly**\
-`In May 1970, National Guard troops clashed with students at Kent State University in Ohio. Four students were killed, and nine were injured.`\
-https://nytimes.com/2025/11/07/us/kent-state-vietnam-john-cleary.html
 
