@@ -1,4 +1,4 @@
-**Trump Pardons Darryl Strawberry, Former Slugger for the Mets and Yankees**\
+**Trump Pardons Darryl Strawberry, Former Mets and Yankees Slugger**\
 `The eight-time All-Star baseball player pleaded guilty in 1995 to one count of tax evasion. He was sentenced to six months of home confinement.`\
 https://nytimes.com/2025/11/07/us/politics/darryl-strawberry-pardon-trump.html
 
