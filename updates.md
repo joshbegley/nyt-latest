@@ -1,3 +1,11 @@
+**In Cozying Up to Trump, Leaders Hedge Their Reliance on Moscow and Beijing**\
+`President Trump has made it easier for countries that are close to Russia and China to build ties with the United States. Those countries are embracing the opportunity.`\
+https://nytimes.com/2025/11/07/us/politics/central-asia-leaders-trump.html
+
+**Road Trips Where Rural America Shines**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/road-trips-small-towns-scenic-us
+
 **Could the PWHL leave Ottawa? City approves new arena, raising doubts about future of Charge**\
 `Ottawa City Council approved a $419 million arena project on Friday that PWHL officials say jeopardizes the Charge’s financial viability.`\
 https://nytimes.com/athletic/6788376/2025/11/07/pwhl-ottawa-charge-new-arena/

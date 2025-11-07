@@ -1,3 +1,11 @@
+**In Cozying Up to Trump, Leaders Hedge Their Reliance on Moscow and Beijing**\
+`President Trump has made it easier for countries that are close to Russia and China to build ties with the United States. Those countries are embracing the opportunity.`\
+https://nytimes.com/2025/11/07/us/politics/central-asia-leaders-trump.html
+
+**Road Trips Where Rural America Shines**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/road-trips-small-towns-scenic-us
+
 **Could the PWHL leave Ottawa? City approves new arena, raising doubts about future of Charge**\
 `Ottawa City Council approved a $419 million arena project on Friday that PWHL officials say jeopardizes the Charge’s financial viability.`\
 https://nytimes.com/athletic/6788376/2025/11/07/pwhl-ottawa-charge-new-arena/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/11/07/us/politics/darryl-strawberry-pardon-trump.html
 **Zanzibari Mix (Urojo)**\
 `A fragrant, brothy green mango soup with a sour bite, Zanzibar mix is a staple of the archipelago’s street food stands. The soup is made with an aromatic base of onion, garlic, ginger and chile.`\
 https://nytimes.com/video/dining/100000010511330/zanzibari-mix-urojo.html
-
-**Restaurant Review: Sunny’s Steakhouse**\
-`The beauty of Sunny’s is that you can walk in without a reservation and concentrate on the pleasures of a martini and superb steak frites. Tejal Rao, a chief restaurant critic for The New York Times, reports in her review on the South Florida steakhouse.`\
-https://nytimes.com/video/dining/100000010511328/restaurant-review-sunnys-steakhouse.html
-
-**Smashed Beef Kebab With Cucumber Yogurt**\
-`This quick skillet dinner of spiced, seared ground beef over cooling yogurt combines elements of two Persian classics: kebab koobideh (grilled kebabs) and mast-o-khiar (cucumber yogurt).`\
-https://nytimes.com/video/dining/100000010511325/smashed-beef-kebab-with-cucumber-yogurt.html
 
