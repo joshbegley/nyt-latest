@@ -1,40 +1,40 @@
-**Why Germany Is Still Divided When It Comes to Russia**\
-`Many East Germans are more sympathetic toward Moscow than their western compatriots, reflecting decades of Soviet ties and disillusionment since reunification.`\
-https://nytimes.com/2025/11/07/world/europe/germany-russia-divide.html
+**Slot: Liverpool vs. Manchester City 'similar to El Clasico'**\
+`The Liverpool head coach described playing City away as "one of the most difficult challenges you have throughout a season."`\
+https://nytimes.com/athletic/6786798/2025/11/07/liverpool-manchester-city-slot-el-clasico/
 
-**Broncos Squeeze Past Raiders in Sloppy Thursday Night Matchup**\
-`Behind a dominant defensive effort, the Denver Broncos won their seventh straight game, edging their A.F.C. West rivals, the Las Vegas Raiders, 10-7.`\
-https://nytimes.com/video/sports/football/100000010510491/broncos-squeeze-past-raiders-in-sloppy-thursday-night-matchup.html
+**AFC North Whiparound: Who made the right calls at the trade deadline?**\
+`Plus, which of this division's coaches have the most on the line in the season's second half?`\
+https://nytimes.com/athletic/6785776/2025/11/07/afc-north-trade-deadline/
 
-**Week 10 fantasy football intel, predictions using player prop lines**\
-`Brad Evans scours sportsbooks to find intel that can be applied to fantasy football. This week he likes Jaxson Dart, Rico Dowdle and others.`\
-https://nytimes.com/athletic/6785362/2025/11/07/week-10-fantasy-football-predictions-player-props/
+**After overturned suspension for hip-drop tackle, NFL players remain confused about rule**\
+`Frankie Luvu and his Commanders teammates said they are still unclear on what the NFL deems a punishable hip-drop tackle.`\
+https://nytimes.com/athletic/6784076/2025/11/07/hip-drop-tackle-nfl-rule-definition-suspension/
 
-**Missed Meals and Paychecks: The Shutdown’s Impact, Day by Day**\
-`The government shutdown, now the longest on record, is growing increasingly painful as more Americans start to feel its effects.`\
-https://nytimes.com/interactive/2025/11/07/us/politics/government-shutdown-impact-timeline.html
+**Getting to know the top Japanese and KBO free agents coming to MLB this season**\
+`There is no Yoshinobu Yamamoto or Roki Sasaki in this year's crop of players from Korea or Japan. But there are powerful bats and live arms.`\
+https://nytimes.com/athletic/6785372/2025/11/07/mlb-free-agency-japan-korea-players/
 
-**3 Easy Ways to Declutter Before the Holidays**\
-`Now is not the time to clean out all of your closets.`\
-https://nytimes.com/2025/11/07/well/declutter-clean-home-holiday.html
+**Looming lockout, pitcher injuries, and deferrals: Answering yourfree-agency questions**\
+`What big free agent will linger? What will Shota Imanaga get on the open market? Can the Guardians hope? Our contracts expert answers all. `\
+https://nytimes.com/athletic/6785115/2025/11/07/mlb-free-agency-contract-injuries/
 
-**Is Your Flight Canceled? Share Your Story.**\
-`Times reporters want to hear from air travelers around the country about cancellations related to the government shutdown.`\
-https://nytimes.com/2025/11/07/business/flight-cancellation-share-story.html
+**One more year? The case for — and against — Aaron Rodgers running it back in 2026**\
+`Last summer, the 41-year-old suggested 2025 would be his final season. The numbers through eight games suggest maybe he should reconsider.`\
+https://nytimes.com/athletic/6784481/2025/11/07/aaron-rodgers-pittsburgh-steelers-retirement-return-2026/
 
-**More Democrats Need to Follow Pelosi’s Example and Retire**\
-`She has shown herself more willing than most to put aside her own ego for the greater good.`\
-https://nytimes.com/2025/11/07/opinion/pelosi-age-democrats-retirement.html
+**The New York Times International Edition in Print for Saturday, Nov. 8, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/11/07/todays-new-york-times-international-edition
 
-**If You Could Design Any Museum Exhibition, What Would It Be?**\
-`Choosing from subjects like food, fashion, sports, science or art, tell us about your ideal show.`\
-https://nytimes.com/2025/11/07/learning/if-you-could-design-any-museum-exhibition-what-would-it-be.html
+**Kimchi Tuna Salad**\
+`Kimchi and canned tuna make a popular combination in Korean cooking. These two pantry staples are found together in a number of dishes like kimchi jjigae and kimbap, and here they are the basis of a lively, fortifying salad.`\
+https://nytimes.com/video/dining/100000010366376/kimchi-tuna-salad.html
 
-**The New York Times News Quiz, Nov. 7, 2025**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2025/11/07/briefing/mamdani-election-dick-cheney-plane-crash-quiz.html
+**Russian Sanctions Risk Straining Trump’s Chummy Relationship With Hungarian Leader**\
+`New U.S. penalties on Russian energy could be a sticking point as President Trump and Prime Minister Viktor Orban of Hungary meet.`\
+https://nytimes.com/2025/11/07/world/europe/trump-orban-meeting-russia-sanctions.html
 
-**It’s Not Just Cuomo Who Lost. It’s Cuomoism.**\
-`He’s sharp-elbowed, retributive and transactional, and won’t be missed.`\
-https://nytimes.com/2025/11/07/opinion/mamdani-cuomo-election.html
+**Here’s the latest on the flight reductions.**\
+`By Niraj Chokshi`\
+https://nytimes.com/live/2025/11/07/us/shutdown-airports-flight-cuts/heres-the-latest-on-the-flight-reductions
 
