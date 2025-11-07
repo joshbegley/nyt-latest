@@ -1,3 +1,7 @@
+**Inside scoop: John Mateer's injury status revealed by ... a Chipotle worker?**\
+`The quarterback confirmed the rumor that had swirled on message boards.`\
+https://nytimes.com/athletic/6785842/2025/11/06/john-mateer-chipotle-worker-texas/
+
 **LaTroy Hawkins to serve as Twins bullpen coach, more changes expected: Sources**\
 `Hawkins, who's been with the Twins as a special assistant since 2017, will be involved more as a bullpen coach under manager Derek Shelton.`\
 https://nytimes.com/athletic/6784964/2025/11/06/latroy-hawkins-twins-bullpen-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6785805/2025/11/06/damon-jones-plea-nba-gambling-sc
 **Cleaning Woman Killed Through Door After Arriving at Wrong Home, Police Say**\
 `The shooting of the woman, an immigrant from Guatemala, took place on Wednesday in Indiana, a state with a “stand your ground” law.`\
 https://nytimes.com/2025/11/06/us/whitestown-indiana-shooting-cleaner-dead.html
-
-**Woman Gets 15 Years to Life in Actress’s Death From Silicone Shots**\
-`Cindyana Santangelo had an embolism after receiving injections of silicone oil into her buttocks by Libby Adame, the second fatal augmentation procedure connected to her.`\
-https://nytimes.com/2025/11/06/us/butt-lady-sentenced-california.html
 

@@ -1,3 +1,11 @@
+**LaTroy Hawkins to serve as Twins bullpen coach, more changes expected: Sources**\
+`Hawkins, who's been with the Twins as a special assistant since 2017, will be involved more as a bullpen coach under manager Derek Shelton.`\
+https://nytimes.com/athletic/6784964/2025/11/06/latroy-hawkins-twins-bullpen-coach/
+
+**As Hours Dwindled Before Flight Cuts, the Government Was Publicly Mum**\
+`Airlines did not wait for an announcement, notifying passengers and airports of expected changes before the Trump administration made official its list of affected airports.`\
+https://nytimes.com/2025/11/06/us/politics/flight-cuts-government-quiet.html
+
 **Team Canada unveils hockey jerseys for Milan-Cortina 2026 Olympics, Paralympics**\
 `Hockey Canada has unveiled the jerseys that the Canadian men’s, women’s and para teams will wear at the 2026 Olympics and Paralympics.`\
 https://nytimes.com/athletic/6786016/2025/11/06/canada-olympic-hockey-jerseys-milan-2026/
