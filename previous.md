@@ -1,3 +1,11 @@
+**California Fire Victims Urge State to Hold Insurers Accountable**\
+`“We thought we could trust the system,” said a homeowner in Altadena whose insurance policy was canceled only months before the January fires destroyed his home.`\
+https://nytimes.com/2025/11/06/us/la-fires-insurance-homeowners.html
+
+**Judge expresses concern over slow pace of Tyler Skaggs trial**\
+`Judge told attorneys for both sides that they were taking too long with each witness and would need to pare down their lists.`\
+https://nytimes.com/athletic/6785618/2025/11/06/tyler-skaggs-trial-judge-concern-pace/
+
 **Antonio Brown captured in Dubai by U.S. Marshals on attempted murder charge**\
 `Brown faces a second-degree murder charge in connection with a Miami shooting that happened in May.`\
 https://nytimes.com/athletic/6785505/2025/11/06/antonio-brown-captured-search-nfl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6785520/2025/11/06/panini-wild-card-antitrust-lawsu
 **Anti-Defamation League Creates Antisemitism Tip Line Focused on Mamdani**\
 `The group, which has taken aim at Mayor-elect Zohran Mamdani over his criticism of Israel, is facing backlash after unveiling a website where New Yorkers could report incidents of antisemitism.`\
 https://nytimes.com/2025/11/06/nyregion/zohran-mamdani-monitor-antisemitism-adl.html
-
-**Remember When Pop Critics Were Critical of Pop?**\
-`The writer and critic Kelefa Sanneh joins Wesley Morris to fondly reflect on the honesty and spirit of pop music criticism in years past.`\
-https://nytimes.com/video/podcasts/100000010508375/remember-when-pop-critics-were-critical-of-pop.html
-
-**A Group of CAPs Discuss Their Work**\
-`Five pediatricians on diagnostic uncertainty, second opinions and the future of the field.`\
-https://nytimes.com/2025/11/06/podcasts/a-group-of-caps-discuss-their-work.html
 
