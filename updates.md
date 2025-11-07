@@ -1,3 +1,7 @@
+**'It's not healthy': Jack Draper on the loneliness of elite tennis, the calendar, and player welfare**\
+`Draper discusses the ongoing wrestle between players, the tours and the Grand Slams over the tennis calendar and its impact on welfare.`\
+https://nytimes.com/athletic/6784488/2025/11/07/jack-draper-tennis-podcast-interview-calendar-schedule/
+
 **How Aston Villa vs Maccabi Tel Aviv turned into a night of toxicity and political protest**\
 `Thursday's Europa League tie was overshadowed by events off the field. This is the full story of how the night played out`\
 https://nytimes.com/athletic/6785354/2025/11/07/aston-villa-maccabi-tel-aviv-protest-gaza-israel/
