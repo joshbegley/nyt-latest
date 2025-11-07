@@ -2,7 +2,7 @@
 `The move comes as the venerable conservative think tank is roiled by turmoil caused by its leader’s defense of a Tucker Carlson interview with a white nationalist.`\
 https://nytimes.com/2025/11/06/us/politics/heritage-foundation-antisemitism-task-force.html
 
-**Coby White nears return to surprising Bulls' lineup after calf strain**\
+**Coby White nears return to surprising Bulls lineup after calf strain**\
 `When will the 6-1 Bulls get last season's leading scorer back on the court? Coby White offered some clues Thursday.`\
 https://nytimes.com/athletic/6786166/2025/11/06/coby-white-injury-status-bulls-timetable/
 
