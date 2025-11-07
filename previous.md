@@ -1,40 +1,40 @@
-**Playboi Carti, Rage Rap’s Goth King, Beckons Brooklyn to the Pit**\
-`The rapper, who has become one of hip-hop’s leading stars, presided over a sweaty tangle of young men outfitted in black and ecstatically moshing.`\
-https://nytimes.com/2025/11/07/arts/music/playboi-carti-antagonist-2-0-tour-review.html
+**How to watch Hornets vs. Heat: Time, TV, streaming**\
+`Find out how to watch the Charlotte Hornets play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6788212/2025/11/07/hornets-vs-heat-stream-how-to-watch-nov-7/
 
-**How to watch Northern Illinois vs. Wisconsin: Time, TV, streaming**\
-`Find out how to watch the Northern Illinois Huskies play the Wisconsin Badgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6788174/2025/11/07/northern-illinois-vs-wisconsin-stream-how-to-watch-nov-7/
+**How to watch Bulls vs. Bucks: Time, TV, streaming**\
+`Find out how to watch the Chicago Bulls play the Milwaukee Bucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6788209/2025/11/07/bulls-vs-bucks-stream-how-to-watch-nov-7/
 
-**How to watch Pepperdine vs. UCLA: Time, TV, streaming**\
-`Find out how to watch the Pepperdine Waves play the UCLA Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6788171/2025/11/07/pepperdine-vs-ucla-stream-how-to-watch-nov-7/
+**How to watch Pistons vs. Nets: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the Brooklyn Nets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6788210/2025/11/07/pistons-vs-nets-stream-how-to-watch-nov-7/
 
-**How to watch UMass-Lowell vs. UConn: Time, TV, streaming**\
-`Find out how to watch the UMass-Lowell River Hawks play the UConn Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6788170/2025/11/07/umass-lowell-vs-uconn-stream-how-to-watch-nov-7/
+**How to watch Jets vs. Sharks: Time, TV, streaming**\
+`Find out how to watch the Winnipeg Jets play the San Jose Sharks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6788206/2025/11/07/jets-vs-sharks-stream-how-to-watch-nov-7/
 
-**How to watch Utah Tech vs. Arizona: Time, TV, streaming**\
-`Find out how to watch the Utah Tech Trailblazers play the Arizona Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6788167/2025/11/07/utah-tech-vs-arizona-stream-how-to-watch-nov-7/
+**How to watch Jazz vs. Timberwolves: Time, TV, streaming**\
+`Find out how to watch the Utah Jazz play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6788205/2025/11/07/jazz-vs-timberwolves-stream-how-to-watch-nov-7/
 
-**How to watch Richmond vs. Texas women's basketball: Time, TV, streaming**\
-`Find out how to watch the Richmond Spiders play the Texas Longhorns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6788165/2025/11/07/richmond-vs-texas-stream-how-to-watch-nov-7/
+**How to watch Raptors vs. Hawks: Time, TV, streaming**\
+`Find out how to watch the Toronto Raptors play the Atlanta Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6788202/2025/11/07/raptors-vs-hawks-stream-how-to-watch-nov-7/
 
-**How to watch Ole Miss vs. Alabama A&M women's basketball: Time, TV, streaming**\
-`Find out how to watch the Ole Miss Rebels play the Alabama A&M Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6788161/2025/11/07/ole-miss-vs-alabama-a-m-stream-how-to-watch-nov-7/
+**How to watch Blackhawks vs. Flames: Time, TV, streaming**\
+`Find out how to watch the Chicago Blackhawks play the Calgary Flames, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6788200/2025/11/07/blackhawks-vs-flames-stream-how-to-watch-nov-7/
 
-**How to watch FGCU vs. Illinois: Time, TV, streaming**\
-`Find out how to watch the Florida Gulf Coast Eagles play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6788158/2025/11/07/fgcu-vs-illinois-stream-how-to-watch-nov-7/
+**How to watch Rockets vs. Spurs: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the San Antonio Spurs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6788199/2025/11/07/rockets-vs-spurs-stream-how-to-watch-nov-7/
 
-**How to watch Sam Houston vs. Texas Tech: Time, TV, streaming**\
-`Find out how to watch the Sam Houston Bearkats play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6788157/2025/11/07/sam-houston-vs-texas-tech-stream-how-to-watch-nov-7/
+**How to watch Mavericks vs. Grizzlies: Time, TV, streaming**\
+`Find out how to watch the Dallas Mavericks play the Memphis Grizzlies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6788197/2025/11/07/mavericks-vs-grizzlies-stream-how-to-watch-nov-7/
 
-**WNBA announces dates for 2026 lottery and draft**\
-`The Dallas Wings have the best chance to secure the No. 1 pick again.`\
-https://nytimes.com/athletic/6788110/2025/11/07/wnba-draft-lottery-dates-2026/
+**How to watch Warriors vs. Nuggets: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the Denver Nuggets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6788194/2025/11/07/warriors-vs-nuggets-stream-how-to-watch-nov-7/
 
