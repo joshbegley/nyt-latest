@@ -1,3 +1,7 @@
+**Why Germany Is Still Divided When It Comes to Russia**\
+`Many East Germans are more sympathetic toward Moscow than their western compatriots, reflecting decades of Soviet ties and disillusionment since reunification.`\
+https://nytimes.com/2025/11/07/world/europe/germany-russia-divide.html
+
 **Broncos Squeeze Past Raiders in Sloppy Thursday Night Matchup**\
 `Behind a dominant defensive effort, the Denver Broncos won their seventh straight game, edging their A.F.C. West rivals, the Las Vegas Raiders, 10-7.`\
 https://nytimes.com/video/sports/football/100000010510491/broncos-squeeze-past-raiders-in-sloppy-thursday-night-matchup.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/11/07/briefing/mamdani-election-dick-cheney
 **It’s Not Just Cuomo Who Lost. It’s Cuomoism.**\
 `He’s sharp-elbowed, retributive and transactional, and won’t be missed.`\
 https://nytimes.com/2025/11/07/opinion/mamdani-cuomo-election.html
-
-**The Job Market Is Cooling but Not Collapsing (if Private Data Can Be Trusted)**\
-`The federal government shutdown canceled a second straight jobs report, but private data sources suggest the labor market has weakened modestly since summer.`\
-https://nytimes.com/2025/11/07/business/jobs-unemployment-layoffs-economy.html
 
