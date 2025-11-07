@@ -1,3 +1,15 @@
+**Filip Gustavsson rebounds after wacky first period, but Wild fall short: Takeaways**\
+`Tyler Pitlick got a match penalty and both teams combined for five goals on 10 shots in the first period of the Wild's 4-3 loss to Carolina.`\
+https://nytimes.com/athletic/6786293/2025/11/06/wild-hurricanes-filip-gustavsson-takeaways/
+
+**To Preserve Records, Homeland Security Now Relies on Officials to Take Screenshots**\
+`Experts say the new policy, which ditches software that automatically captured text messages, opens ample room for both willful and unwitting noncompliance with federal records laws.`\
+https://nytimes.com/2025/11/06/us/politics/homeland-security-foia.html
+
+**Lawsuits Blame ChatGPT for Suicides and Harmful Delusions**\
+`Seven complaints, filed on Thursday, claim the popular chatbot encouraged dangerous discussions and led to mental breakdowns.`\
+https://nytimes.com/2025/11/06/technology/chatgpt-lawsuit-suicides-delusions.html
+
 **Ex-Laker Christian Wood reportedly fires shots to scare off home invasion**\
 `Wood reportedly confronted the three suspects after they busted through the back door of the multimillion-dollar home in Los Angeles.`\
 https://nytimes.com/athletic/6785708/2025/11/06/christian-wood-home-invasion-laker/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6786166/2025/11/06/coby-white-injury-status-bulls-t
 **How Is Trump Changing Colleges and Universities? Tell Us.**\
 `There has been a shift in campus culture. We want to hear from faculty members across the United States.`\
 https://nytimes.com/2025/11/06/us/universities-changes-trump-callout.html
-
-**Mamdani Wants to Tax the Rich. Can He Persuade State Leaders?**\
-`After an impressive victory, Mayor-elect Zohran Mamdani now must find funds for his programs. His push for higher taxes puts Gov. Kathy Hochul, who faces a re-election fight, in a tough spot.`\
-https://nytimes.com/2025/11/06/nyregion/mamdani-hochul-childcare-tax.html
-
-**U.N. Security Council Removes Syria’s President From Sanctions List**\
-`The decision comes days before the Syrian president, Ahmed al-Shara, is expected in Washington for the first time since he came to power.`\
-https://nytimes.com/2025/11/06/world/middleeast/unsc-syria-al-shara-sanctions-removed.html
-
-**How Radio Traffic Let Us Track U.S. Drones in the Caribbean**\
-`The U.S. military’s buildup near Venezuela has been rapidly growing and changing. Riley Mellen, from Visual Investigations, describes what’s visible, and audible, about the deployment.`\
-https://nytimes.com/video/world/americas/100000010501858/how-radio-traffic-let-us-track-us-drones-in-the-caribbean.html
 
