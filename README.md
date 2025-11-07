@@ -1,3 +1,7 @@
+**‘Frankenstein’ | Anatomy of a Scene**\
+`Guillermo del Toro narrates a sequence from his film, starring “Oscar Isaac.”`\
+https://nytimes.com/video/movies/100000010499912/frankenstein-scene.html
+
 **Gordon set to miss Newcastle's trip to Brentford with hip injury**\
 `The 24-year-old has been struggling with a hip issue this season and left the pitch injured against Athletic Club on Wednesday.`\
 https://nytimes.com/athletic/6781830/2025/11/07/anthony-gordon-newcastle-injury-news/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/07/nyregion/nba-betting-online-influencers.html
 **A Journalist Who Wants You to Love Baking**\
 `Vaughn Vreeland, a 32-year-old pie enthusiast who loves ascots and cowboy boots, recently started a baking newsletter and video series, “Bake Time.”`\
 https://nytimes.com/2025/11/07/insider/bake-time-vaughn-vreeland.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/11/07/crosswords/spelling-bee-forum.html
 
