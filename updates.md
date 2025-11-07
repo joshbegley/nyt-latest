@@ -1,3 +1,15 @@
+**China Suspends Some Export Controls on Critical Minerals but Retains Others**\
+`The Chinese government followed through on promises it made publicly after a recent summit, but has not yet taken other actions sought by the White House.`\
+https://nytimes.com/2025/11/07/business/china-rare-earth-export-controls.html
+
+**Fantasy Premier League live Q&A: Gameweek 11 advice from Ben Dinnery**\
+`Ben Dinnery of premierinjuries.com is on hand to talk you through the players to target and who to avoid ahead of FPL Gameweek 11`\
+https://nytimes.com/athletic/6786944/2025/11/07/fantasy-premier-league-live-qa-gameweek-11-advice-from-ben-dinnery/
+
+**Kyler Murray's uncertain present, and the Cardinals' uncertain future at QB**\
+`Murray might have played his last game in the desert — if so, the Cardinals are looking for a long-term solution again.`\
+https://nytimes.com/athletic/6785786/2025/11/07/kyler-murray-injury-future-jacoby-brissett/
+
 **The Shutdown Hits Airports**\
 `Hundreds of flights are being canceled today. We explain what’s happening.`\
 https://nytimes.com/2025/11/07/briefing/the-shutdown-hits-airports.html
