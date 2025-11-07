@@ -1,3 +1,11 @@
+**Did Trump’s Supreme Court Tariffs Brief Include a Strategic Blunder?**\
+`The justices are generally reluctant to take account of a president’s public statements. But extensive quotes from Mr. Trump in a key filing may change the legal calculus.`\
+https://nytimes.com/2025/11/07/us/trump-statements-supreme-court-tariffs.html
+
+**Ex-Falcons star RB Jamal Anderson arrested on suspicion of felony domestic violence**\
+`Anderson, 53, was later released from custody after posting a $50,000 bond; he is scheduled for appear in court in December.`\
+https://nytimes.com/athletic/6787170/2025/11/07/ex-falcons-rb-jamal-anderson-arrested-felony-domestic-violence/
+
 **James Watson, Co-Discoverer of the Structure of DNA, Is Dead at 97**\
 `His decoding the blueprint for life with Francis H.C. Crick made him one of the most important scientists of the 20th century. He wrote a celebrated memoir and later ignited an uproar with racist views.`\
 https://nytimes.com/2025/11/07/science/james-watson-dead.html
