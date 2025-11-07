@@ -1,3 +1,15 @@
+**Pressure on Napoli in Serie A; Rhine derby evokes history**\
+`This weekend's action also includes French leaders PSG making a tricky trip to Lyon and high-flying Real Betis facing strugglers Valencia.`\
+https://nytimes.com/athletic/6784380/2025/11/07/napoli-serie-a-rhine-derby/
+
+**Word of the Day: entourage**\
+`This word has appeared in 208 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/07/learning/word-of-the-day-entourage.html
+
+**On night of protests, Aston Villa cruise to win in subdued atmosphere**\
+`With no away fans, Villa Park was muted as goals from Ian Maatsen and Donyell Malen gave Unai Emery's side a comfortable win `\
+https://nytimes.com/athletic/6786034/2025/11/07/aston-villa-maccabi-tel-aviv-analysis/
+
 **China’s New Aircraft Carrier Signals Naval Ambitions**\
 `The Fujian, China’s most advanced carrier, went into official service this week. It brings the country closer to challenging U.S. naval dominance.`\
 https://nytimes.com/2025/11/07/world/asia/china-aircraft-carrier-military-navy.html
