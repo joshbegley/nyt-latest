@@ -1,3 +1,15 @@
+**Sources: Fire reach permanent deal for Franco as part of club's plan to build on 2025**\
+`Beyond keeping André Franco and adding Swedish midfielder Anton Salétros, Chicago and Gregg Berhalter are thinking big for 2026`\
+https://nytimes.com/athletic/6786458/2025/11/07/chicago-fire-andre-franco-anton-saletros-berhalter-mls/
+
+**New Rules Aim to Broaden Appeal of H.S.A.s**\
+`Health savings accounts have lower premiums but higher deductibles. Now, more Obamacare plans can offer the accounts.`\
+https://nytimes.com/2025/11/07/your-money/health-savings-accounts-insurance-options.html
+
+**The Astonishing Bull Market Will End One Day. Are You Ready?**\
+`Big stock gains have always been followed by big losses. Here are tips on how to prepare.`\
+https://nytimes.com/2025/11/07/business/stock-market-safety.html
+
 **Franco Colapinto to keep Alpine seat for 2026 F1 season**\
 `The Argentine will once again team up with Pierre Gasly next season.`\
 https://nytimes.com/athletic/6787162/2025/11/07/alpine-f1-2026-drivers-franco-colapinto/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6786877/2025/11/07/england-tuchel-wharton-quansah-g
 **What are Chargers getting in Trevor Penning? Imperfect player with athleticism, attitude**\
 `There was no ideal fix to the Chargers’ offensive tackle situation, but Penning should be in the mix for playing time.`\
 https://nytimes.com/athletic/6785912/2025/11/07/chargers-trevor-penning-trade-film-review/
-
-**Men's college basketball streaming guide: Kansas-UNC, Alabama-St. John's lead the weekend**\
-`Freshman hype, blue-blood stalwarts, showcases at Madison Square Garden and the United Center. It's a full weekend of college basketball.`\
-https://nytimes.com/athletic/6781996/2025/11/07/college-basketball-kansas-unc-alabama-st-johns-how-to-watch/
-
-**Lowetide: Are the Oilers overplaying Connor McDavid?**\
-`Oilers coach Kris Knoblauch has been running McDavid and Leon Draisaitl heavily at five-on-five.`\
-https://nytimes.com/athletic/6784295/2025/11/07/edmonton-oilers-connor-mcdavid-stats-minutes/
-
-**Trump Administration Live Updates: Differences Over Russian Sanctions Could Shadow Orban Meeting**\
-``\
-https://nytimes.com/live/2025/11/07/us/trump-news-shutdown
 
