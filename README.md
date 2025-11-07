@@ -1,3 +1,11 @@
+**Jack Fletcher poised to maintain Man United's 88-year youth record**\
+`United have since 1937, for 4,332 successive games, included an academy graduate in their first-team squad.`\
+https://nytimes.com/athletic/6788216/2025/11/07/mainoo-manchester-united-jack-fletcher-youth-record/
+
+**The Farmers’ Almanac Succumbs to the Digital Age**\
+`One of two major American almanacs is ceasing publication after more than two centuries of predicting the weather and offering tidbits of wisdom.`\
+https://nytimes.com/2025/11/07/us/farmers-almanac-shutting-down.html
+
 **Pelosi Was Among the Most Notable House Speakers**\
 `The first woman to hold the post also made history as one of the most significant speakers in modern times.`\
 https://nytimes.com/2025/11/07/us/politics/nancy-pelosi-house-speaker-history-woman.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6788129/2025/11/07/spurs-deaaron-fox-season-debut-p
 **How to watch Hornets vs. Heat: Time, TV, streaming**\
 `Find out how to watch the Charlotte Hornets play the Miami Heat, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6788212/2025/11/07/hornets-vs-heat-stream-how-to-watch-nov-7/
-
-**How to watch Bulls vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the Chicago Bulls play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6788209/2025/11/07/bulls-vs-bucks-stream-how-to-watch-nov-7/
-
-**How to watch Pistons vs. Nets: Time, TV, streaming**\
-`Find out how to watch the Detroit Pistons play the Brooklyn Nets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6788210/2025/11/07/pistons-vs-nets-stream-how-to-watch-nov-7/
 
