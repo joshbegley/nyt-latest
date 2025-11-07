@@ -1,3 +1,7 @@
+**Who’s Selling the $10 Million Gold Toilet? Signs Point to the Mets’ Owner.**\
+`The billionaire Steve Cohen is reported to have purchased the 18-karat flushable sculpture by Maurizio Cattelan in 2017. It’s now coming up for sale at Sotheby’s.`\
+https://nytimes.com/2025/11/06/arts/design/golden-toilet-10-million-dsteven-cohen-mets-owner.html
+
 **Trump Increases Pressure on His Own Party as the Shutdown Grinds On**\
 `President Trump has called on Republicans to end the filibuster as both parties search for a path out of the shutdown.`\
 https://nytimes.com/2025/11/06/us/politics/trump-pressure-republicans-shutdown.html
