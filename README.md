@@ -1,8 +1,16 @@
+**Bulls broadcaster Chuck Swirsky delivers jersey to Pope Leo XIV: 'An incredible day'**\
+`Swirsky went to Rome with no guarantees, just his belief, to present the personalized No. 14 jersey he got at the United Center team store.`\
+https://nytimes.com/athletic/6787847/2025/11/07/bulls-pope-leo-xiv-broadcaster-chuck-swirsky/
+
+**Trump Pardons Ex-Officer Convicted in a Chinese Government Plot**\
+`Prosecutors said Michael McMahon had acted as an illegal agent in a conspiracy targeting a Chinese family in New Jersey. The White House says he was tricked into it.`\
+https://nytimes.com/2025/11/07/us/politics/trump-michael-mcmahon-pardon.html
+
 **As Airlines Cancel Flights, Travelers Seek Other Options**\
 `More people are trying to book trains, rental cars and buses but were not always successful.`\
 https://nytimes.com/2025/11/07/us/airline-cancellations-travel-alternatives.html
 
-**James Watson, Who Helped Discover the Structure of DNA, Is Dead at 97**\
+**James Watson, Co-Discoverer of the Structure of DNA, Is Dead at 97**\
 `The breakthrough, with Francis H.C. Crick, made him one of the most important scientists of the 20th century. He went on to write a celebrated memoir and later to ignite an uproar with racist views.`\
 https://nytimes.com/2025/11/07/science/james-watson-dead.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6787722/2025/11/07/marshawn-kneeland-dak-prescott-d
 **Tuchel's message to Bellingham is clear: 'England are building something - it's time to contribute'**\
 `The coach spent much of his Friday press conference explaining his decision to bring back Madrid star who missed the previous two camps`\
 https://nytimes.com/athletic/6787018/2025/11/07/thomas-tuchel-jude-bellingham-england-2/
-
-**gws-madeira-portugal-hiking-waterfalls**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/madeira-portugal-hiking-waterfalls
-
-**Washington goalkeeper Mia Hamant dies at 21 after battle with kidney cancer**\
-`Hamant was diagnosed with Stage 4 SMARCB1-deficient kidney cancer, an ultra-rare and aggressive form of the disease.`\
-https://nytimes.com/athletic/6787411/2025/11/07/washington-goalkeeper-mia-hamant-dies-kidney-cancer/
 
