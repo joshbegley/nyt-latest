@@ -1,3 +1,11 @@
+**Trump Increases Pressure on His Own Party as the Shutdown Grinds On**\
+`President Trump has called on Republicans to end the filibuster as both parties search for a path out of the shutdown.`\
+https://nytimes.com/2025/11/06/us/politics/trump-pressure-republicans-shutdown.html
+
+**Damon Jones pleads not guilty in alleged NBA gambling scheme cases**\
+`Jones appeared in court on charges related to an alleged rigged poker game ring and an alleged illicit sports gambling scheme.`\
+https://nytimes.com/athletic/6785805/2025/11/06/damon-jones-plea-nba-gambling-scheme/
+
 **Cleaning Woman Killed Through Door After Arriving at Wrong Home, Police Say**\
 `The shooting of the woman, an immigrant from Guatemala, took place on Wednesday in Indiana, a state with a “stand your ground” law.`\
 https://nytimes.com/2025/11/06/us/whitestown-indiana-shooting-cleaner-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6785602/2025/11/06/lucas-giolito-red-sox-no-qualify
 **Republicans Block Measure to Bar Military Strike on Venezuela**\
 `All but two G.O.P. senators voted against a resolution to stop the president from expanding his military campaign against drug traffickers to include land targets inside Venezuela.`\
 https://nytimes.com/2025/11/06/us/politics/republicans-military-strike-venezuela.html
-
-**Shota Imanaga and Kyle Tucker get qualifying offers from Cubs**\
-`While the decision to reject the qualifying offer should be straightforward for Tucker, Imanaga’s situation appears to be more complicated.`\
-https://nytimes.com/athletic/6783599/2025/11/06/cubs-shota-imanaga-qualifying-offer-news/
-
-**Pelosi Plans To Retire In 2027 After 39 Years in Congress**\
-`Representative Nancy Pelosi, the nation’s only female House speaker, announced her decision to retire after 39 years in Congress. Her legacy includes the passage of Obamacare, advocating for HIV/AIDS patients and fund-raising for Democrats.`\
-https://nytimes.com/video/us/politics/100000010509765/pelosi-plans-to-retire-in-2027-after-39-years-in-congress.html
 
