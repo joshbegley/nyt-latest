@@ -1,3 +1,7 @@
+**Could the PWHL leave Ottawa? City approves new arena, raising doubts about future of Charge**\
+`Ottawa City Council approved a $419 million arena project on Friday that PWHL officials say jeopardizes the Charge’s financial viability.`\
+https://nytimes.com/athletic/6788376/2025/11/07/pwhl-ottawa-charge-new-arena/
+
 **Elena Rybakina and Aryna Sabalenka will go big and go home in WTA Tour Finals duel for supremacy**\
 `The last match of the season, with over $5 million on the line, will be a showcase of first-strike tennis.`\
 https://nytimes.com/athletic/6788105/2025/11/07/tennis-wta-tour-finals-rybakina-sabalenka/
@@ -29,8 +33,4 @@ https://nytimes.com/video/dining/100000010511328/restaurant-review-sunnys-steakh
 **Smashed Beef Kebab With Cucumber Yogurt**\
 `This quick skillet dinner of spiced, seared ground beef over cooling yogurt combines elements of two Persian classics: kebab koobideh (grilled kebabs) and mast-o-khiar (cucumber yogurt).`\
 https://nytimes.com/video/dining/100000010511325/smashed-beef-kebab-with-cucumber-yogurt.html
-
-**How the Metropolitan Opera Feeds Its Audiences**\
-`Opera is an art form that favors extravagant appetites. The marriage of music and cuisine is nowhere more evident than at the Metropolitan Opera House in New York City, where feeding about 3,800 audience members and 3,000 employees each performance is itself a production of operatic proportions.`\
-https://nytimes.com/video/dining/100000010511322/how-the-metropolitan-opera-feeds-its-audiences.html
 

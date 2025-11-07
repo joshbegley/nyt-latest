@@ -1,3 +1,15 @@
+**Elena Rybakina and Aryna Sabalenka will go big and go home in WTA Tour Finals duel for supremacy**\
+`The last match of the season, with over $5 million on the line, will be a showcase of first-strike tennis.`\
+https://nytimes.com/athletic/6788105/2025/11/07/tennis-wta-tour-finals-rybakina-sabalenka/
+
+**Cancellations Can Hit Harder for Regional Airports**\
+`Most of the canceled flights may have been in the nation’s busiest airports, but the effects are acutely felt in smaller regional airports.`\
+https://nytimes.com/2025/11/07/us/regional-airports-cancellations.html
+
+**Getting a New iPhone? Get a Great Case. **\
+`Text by Brenda Stolyar`\
+https://nytimes.com/card/2025/11/07/smarter-living/wirecutter/
+
 **50 Years of Patti Smith’s ‘Horses’**\
 `In 1975, she transformed poetry into punk. Neither would ever be the same. More than 20 artists who made and admired the album share their memories.`\
 https://nytimes.com/interactive/2025/11/07/arts/music/patti-smith-horses-anniversary.html
