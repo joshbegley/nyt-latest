@@ -1,3 +1,15 @@
+**The $1 Trillion Question Hanging Over Elon Musk’s Pay Plan**\
+`Tesla shareholders approved his potentially record-breaking compensation package. But will he actually get the full award?`\
+https://nytimes.com/2025/11/07/business/dealbook/elon-musk-trillion-pay.html
+
+**Serbian Lawmakers Approve Luxury Trump Hotel on Historic Bombing Site**\
+`Despite a fraud investigation into officials who endorsed the project, Parliament used an extraordinary provision in the Constitution to push the plans through.`\
+https://nytimes.com/2025/11/07/world/europe/serbia-hotel-trump-kushner.html
+
+**Foden and Wharton in, Gibbs-White and Watkins out: Analysing Tuchel's big decisions**\
+`Our experts dissect the England head coach's most intriguing decisions in his final squad of 2025`\
+https://nytimes.com/athletic/6786877/2025/11/07/england-tuchel-wharton-quansah-gibbs-white-watkins/
+
 **Wharton and Quansah in, Gibbs-White and Watkins out: Analysing Tuchel's big decisions**\
 `Our experts dissect the England head coach's most intriguing decisions in his final squad of 2025`\
 https://nytimes.com/athletic/6786877/2025/11/07/england-tuchel-wharton-quansah-gibbs-white-watkins/
