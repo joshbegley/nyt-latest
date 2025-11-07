@@ -1,3 +1,7 @@
+**Franco Colapinto to keep Alpine seat for 2026 F1 season**\
+`The Argentine will once again team up with Pierre Gasly next season.`\
+https://nytimes.com/athletic/6787162/2025/11/07/alpine-f1-2026-drivers-franco-colapinto/
+
 **Paul DePodesta's exit leaves Browns ownership staring back at itself yet again**\
 `The Browns were really good at making future plans to win while DePodesta was in office. They just rarely got around to the actual winning.`\
 https://nytimes.com/athletic/6786355/2025/11/07/browns-paul-depodesta-rockies-mlb/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6784295/2025/11/07/edmonton-oilers-connor-mcdavid-s
 **Trump Administration Live Updates: Differences Over Russian Sanctions Could Shadow Orban Meeting**\
 ``\
 https://nytimes.com/live/2025/11/07/us/trump-news-shutdown
-
-**In return to Phoenix, Bradley Beal has one of the worst games of his career**\
-`The Suns beat the Clippers 115-102 in a game Beal would surely like to burn the tape on.`\
-https://nytimes.com/athletic/6786545/2025/11/07/bradley-beal-phoenix-return-clippers/
 
