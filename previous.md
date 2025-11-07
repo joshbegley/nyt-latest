@@ -1,3 +1,7 @@
+**Ex-Laker Christian Wood reportedly fires shots to scare off home invasion**\
+`Wood reportedly confronted the three suspects after they busted through the back door of the multimillion-dollar home in Los Angeles.`\
+https://nytimes.com/athletic/6785708/2025/11/06/christian-wood-home-invasion-laker/
+
 **Graham Gano discusses death threats from fans, mental health**\
 `The 38-year-old kicker, who's been oft-injured the past three seasons, talked about his struggles with fan interactions.`\
 https://nytimes.com/athletic/6786056/2025/11/06/graham-gano-death-threats/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/06/world/middleeast/unsc-syria-al-shara-sanctions-re
 **How Radio Traffic Let Us Track U.S. Drones in the Caribbean**\
 `The U.S. military’s buildup near Venezuela has been rapidly growing and changing. Riley Mellen, from Visual Investigations, describes what’s visible, and audible, about the deployment.`\
 https://nytimes.com/video/world/americas/100000010501858/how-radio-traffic-let-us-track-us-drones-in-the-caribbean.html
-
-**Inside scoop: John Mateer's injury status revealed by ... a Chipotle worker?**\
-`The quarterback confirmed the rumor that swirled on message boards.`\
-https://nytimes.com/athletic/6785842/2025/11/06/john-mateer-chipotle-worker-texas/
 

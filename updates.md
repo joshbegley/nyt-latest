@@ -1,3 +1,7 @@
+**Ex-Laker Christian Wood reportedly fires shots to scare off home invasion**\
+`Wood reportedly confronted the three suspects after they busted through the back door of the multimillion-dollar home in Los Angeles.`\
+https://nytimes.com/athletic/6785708/2025/11/06/christian-wood-home-invasion-laker/
+
 **Graham Gano discusses death threats from fans, mental health**\
 `The 38-year-old kicker, who's been oft-injured the past three seasons, talked about his struggles with fan interactions.`\
 https://nytimes.com/athletic/6786056/2025/11/06/graham-gano-death-threats/
