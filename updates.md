@@ -1,3 +1,19 @@
+**Live From the 10th Floor**\
+``\
+https://nytimes.com/series/live-from-10th-floor
+
+**Flashback: Your Weekly History Quiz, Nov. 8, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/11/07/upshot/flashback.html
+
+**Fox parts ways with Mark Sanchez, moves Drew Brees into booth role: Sources**\
+`Brees, 46, will work as an analyst the rest of the year and is signed up to call games through at least next season.`\
+https://nytimes.com/athletic/6787672/2025/11/07/drew-brees-fox-sports-mark-sanchez-role/
+
+**Gillian Tindall, 87, Dies; Author Who Probed the Layers of Places**\
+`A novelist and biographer, she was also a preservationist, and her meticulous investigations of houses, villages and cities revealed intricate histories.`\
+https://nytimes.com/2025/11/07/books/gillian-tindall-dead.html
+
 **Smashed Pickle Salad**\
 `Many cucumber salads are dressed with some combination of salt, acidity (such as vinegar or lemon juice) and something tangy and creamy.`\
 https://nytimes.com/video/dining/100000010366691/smashed-pickle-salad.html

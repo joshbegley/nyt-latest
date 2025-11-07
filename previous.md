@@ -1,3 +1,19 @@
+**Live From the 10th Floor**\
+``\
+https://nytimes.com/series/live-from-10th-floor
+
+**Flashback: Your Weekly History Quiz, Nov. 8, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/11/07/upshot/flashback.html
+
+**Fox parts ways with Mark Sanchez, moves Drew Brees into booth role: Sources**\
+`Brees, 46, will work as an analyst the rest of the year and is signed up to call games through at least next season.`\
+https://nytimes.com/athletic/6787672/2025/11/07/drew-brees-fox-sports-mark-sanchez-role/
+
+**Gillian Tindall, 87, Dies; Author Who Probed the Layers of Places**\
+`A novelist and biographer, she was also a preservationist, and her meticulous investigations of houses, villages and cities revealed intricate histories.`\
+https://nytimes.com/2025/11/07/books/gillian-tindall-dead.html
+
 **Smashed Pickle Salad**\
 `Many cucumber salads are dressed with some combination of salt, acidity (such as vinegar or lemon juice) and something tangy and creamy.`\
 https://nytimes.com/video/dining/100000010366691/smashed-pickle-salad.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6210404/2025/11/07/milutin-osmajic-racism-ban-prest
 **WATCH: Don't write off Daniel Jones over Week 9 turnovers**\
 `Daniel Jones' MVP candidacy took a hit in Week 9 when he had five turnovers against the Steelers.`\
 https://nytimes.com/athletic/6787396/2025/11/07/colts-daniel-jones-qb-turnovers-steelers-video/
-
-**Pumpkin Crumb Cake**\
-`This pumpkin-packed crumb cake is everything that is wonderful about fall baking. Warmly spiced, moist pumpkin cake topped with spicy, crispy streusel and topped with an optional but delicious glaze.`\
-https://nytimes.com/video/dining/100000010366877/pumpkin-crumb-cake.html
-
-**U.S. Wants Security Council to Adopt Trump Plan for Gaza**\
-`The alternative, Ambassador Michael Waltz bluntly told diplomats, was to watch the cease-fire between Israel and Hamas give way to a return to war.`\
-https://nytimes.com/2025/11/07/world/middleeast/trump-gaza-plan-us-security-council.html
-
-**A Decade Later, Supreme Court Is Asked to Revisit Same-Sex Marriage Decision**\
-`Kim Davis, a Kentucky county clerk once jailed for refusing to issue same-sex marriage licenses, has asked the court to reconsider its landmark 2015 opinion.`\
-https://nytimes.com/2025/11/07/us/politics/supreme-court-same-sex-marriage.html
-
-**Cornell Reaches Deal with Trump Administration to Restore Research Funds**\
-`The Ivy League university had warned of layoffs after the Trump administration stripped it of funds this year. The cuts were among the deepest in higher education.`\
-https://nytimes.com/2025/11/07/us/cornell-deal-trump-administration.html
 
