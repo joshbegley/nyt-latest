@@ -1,3 +1,15 @@
+**Corrections: Nov. 7, 2025**\
+`Corrections that appeared in print on Friday, Nov. 7, 2025.`\
+https://nytimes.com/2025/11/06/pageoneplus/corrections-nov-7-2025.html
+
+**Quote of the Day: For Some, Campaign Was a Salve for Loneliness**\
+`Quotation of the Day for Friday, November 7, 2025.`\
+https://nytimes.com/2025/11/06/pageoneplus/quote-of-the-day-for-some-campaign-was-a-salve-for-loneliness.html
+
+**Florida's 7-foot-9 Olivier Rioux becomes tallest college basketball player ever**\
+`The Montreal native entered the Gators' blowout victory over North Florida late in the second half Thursday.`\
+https://nytimes.com/athletic/6786273/2025/11/06/olivier-rioux-tallest-college-basketball-player/
+
 **Filip Gustavsson rebounds after wacky first period, but Wild fall short: Takeaways**\
 `Tyler Pitlick got a match penalty and both teams combined for five goals on 10 shots in the first period of the Wild's 4-3 loss to Carolina.`\
 https://nytimes.com/athletic/6786293/2025/11/06/wild-hurricanes-filip-gustavsson-takeaways/
