@@ -1,3 +1,11 @@
+**50 Years Later, the Story of the Edmund Fitzgerald Lives On**\
+`John U. Bacon, author of “The Gales of November: The Untold Story of the Edmund Fitzgerald” talks about the famous shipwreck.`\
+https://nytimes.com/2025/11/07/books/review/edmund-fitzgerald-50th-anniversary.html
+
+**Nancy Pelosi Knew Her ‘Why’**\
+`The first female speaker of the House may be the last to truly rule the increasingly unruly chamber.`\
+https://nytimes.com/2025/11/07/us/politics/nancy-pelosi-house-speaker.html
+
 **Protest Disrupts Israeli Philharmonic Orchestra Concert in Paris**\
 `Four people were arrested after a protest at an Israeli Philharmonic Orchestra Concert in Paris on Thursday. Audience members shouted and set off flares during the show, according to French officials.`\
 https://nytimes.com/video/world/europe/100000010511343/israel-philharmonic-concert-arrests-france.html
@@ -25,16 +33,4 @@ https://nytimes.com/athletic/6787533/2025/11/07/ncaa-betting-violations-arizona-
 **Was Timothée Chalamet’s Vogue Cover Really So Out of This World?**\
 `The actor, who wore Celine against a celestial backdrop, seemed to be referencing something — or someone — quite specific.`\
 https://nytimes.com/2025/11/07/style/timothee-chalamet-vogue-cover.html
-
-**Immigration Agents Arrest Man in L.A. Raid and Drive Off With His Toddler**\
-`The child was later reunited with her grandmother, but the episode alarmed immigrant rights groups. The father, a U.S. citizen, faces a gun possession charge.`\
-https://nytimes.com/2025/11/07/us/immigration-raid-los-angeles-toddler.html
-
-**Immigration Agents Arrest Father, Then Drive Off With His Toddler**\
-`Agents arrested a U.S. citizen they said had attacked them, and then they drove off with the man’s toddler. The arrest occurred during an immigration enforcement operation at a Home Depot in the Cypress Park neighborhood of Los Angeles.`\
-https://nytimes.com/video/us/100000010508646/immigration-agents-arrest-father-then-drive-off-with-his-toddler.html
-
-**Watch Japanese Breakfast Perform in The New York Times Office**\
-`On an otherwise normal workday at T Magazine, the musicians Michelle Zauner and Peter Bradley gave a rendition of “My Baby (Got Nothing at All).”`\
-https://nytimes.com/2025/11/07/t-magazine/japanese-breakfast-live-performance-nyt-office.html
 
