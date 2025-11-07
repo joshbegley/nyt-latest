@@ -1,3 +1,7 @@
+**Trump Administration Seeks Immediate Halt to Court Order to Pay Food Stamps**\
+`The appeal comes one day after a judge sharply attacked the White House for politicizing the anti-hunger program`\
+https://nytimes.com/2025/11/07/us/politics/trump-court-food-stamps.html
+
 **Jaxson Dart could reach fantasy football supernova status in Week 10**\
 `Andy Behrens talks the biggest fantasy football storylines ahead of Week 10, including Jaxson Dart's potential for an impressive Week 10. `\
 https://nytimes.com/athletic/6787169/2025/11/07/fantasy-football-news-week-10-jaxson-dart/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6787162/2025/11/07/alpine-f1-2026-drivers-franco-co
 **Paul DePodesta's exit leaves Browns ownership staring back at itself yet again**\
 `The Browns were good at making future plans to win while DePodesta was in office. They just rarely got around to the actual winning.`\
 https://nytimes.com/athletic/6786355/2025/11/07/browns-paul-depodesta-rockies-mlb/
-
-**Russia appeals ban on skiers from Winter Olympics qualifying**\
-`The IOC is letting each sports' federation decide whether they allow Russian and Belarusian athletes to compete under a neutral banner.`\
-https://nytimes.com/athletic/6787011/2025/11/07/russia-skiing-winter-olympics/
 

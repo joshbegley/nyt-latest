@@ -1,3 +1,7 @@
+**Trump Administration Seeks Immediate Halt to Court Order to Pay Food Stamps**\
+`The appeal comes one day after a judge sharply attacked the White House for politicizing the anti-hunger program`\
+https://nytimes.com/2025/11/07/us/politics/trump-court-food-stamps.html
+
 **Jaxson Dart could reach fantasy football supernova status in Week 10**\
 `Andy Behrens talks the biggest fantasy football storylines ahead of Week 10, including Jaxson Dart's potential for an impressive Week 10. `\
 https://nytimes.com/athletic/6787169/2025/11/07/fantasy-football-news-week-10-jaxson-dart/

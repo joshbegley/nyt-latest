@@ -1,3 +1,7 @@
+**Fatos Nano, Albanian Leader in Era of Chaos and Transition, Dies at 73**\
+`A consummate political survivor during his country’s shift from brutal communist regime to flawed democracy, he served three stints as prime minister.`\
+https://nytimes.com/2025/11/07/world/europe/fatos-nano-dead.html
+
 **Trump Administration Seeks Immediate Halt to Court Order to Pay Food Stamps**\
 `The appeal comes one day after a judge sharply attacked the White House for politicizing the anti-hunger program`\
 https://nytimes.com/2025/11/07/us/politics/trump-court-food-stamps.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/07/business/stock-market-safety.html
 **Franco Colapinto to keep Alpine seat for 2026 F1 season**\
 `The Argentine will once again team up with Pierre Gasly next season.`\
 https://nytimes.com/athletic/6787162/2025/11/07/alpine-f1-2026-drivers-franco-colapinto/
-
-**Paul DePodesta's exit leaves Browns ownership staring back at itself yet again**\
-`The Browns were good at making future plans to win while DePodesta was in office. They just rarely got around to the actual winning.`\
-https://nytimes.com/athletic/6786355/2025/11/07/browns-paul-depodesta-rockies-mlb/
 
