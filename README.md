@@ -1,3 +1,15 @@
+**Elena Rybakina and Aryna Sabalenka will go big and go home in WTA Tour Finals duel for supremacy**\
+`The last match of the season, with over $5 million on the line, will be a showcase of first-strike tennis.`\
+https://nytimes.com/athletic/6788105/2025/11/07/tennis-wta-tour-finals-rybakina-sabalenka/
+
+**Cancellations Can Hit Harder for Regional Airports**\
+`Most of the canceled flights may have been in the nation’s busiest airports, but the effects are acutely felt in smaller regional airports.`\
+https://nytimes.com/2025/11/07/us/regional-airports-cancellations.html
+
+**Getting a New iPhone? Get a Great Case. **\
+`Text by Brenda Stolyar`\
+https://nytimes.com/card/2025/11/07/smarter-living/wirecutter/
+
 **50 Years of Patti Smith’s ‘Horses’**\
 `In 1975, she transformed poetry into punk. Neither would ever be the same. More than 20 artists who made and admired the album share their memories.`\
 https://nytimes.com/interactive/2025/11/07/arts/music/patti-smith-horses-anniversary.html
@@ -21,20 +33,4 @@ https://nytimes.com/video/dining/100000010511325/smashed-beef-kebab-with-cucumbe
 **How the Metropolitan Opera Feeds Its Audiences**\
 `Opera is an art form that favors extravagant appetites. The marriage of music and cuisine is nowhere more evident than at the Metropolitan Opera House in New York City, where feeding about 3,800 audience members and 3,000 employees each performance is itself a production of operatic proportions.`\
 https://nytimes.com/video/dining/100000010511322/how-the-metropolitan-opera-feeds-its-audiences.html
-
-**Japanese Breakfast Performs at T Magazine**\
-`For the series Live From the 10th Floor, T Magazine enlists artists to play songs, read monologues or showcase snippets of a larger work at the magazine’s Midtown headquarters.`\
-https://nytimes.com/video/t-magazine/100000010506313/japanese-breakfast-performs-at-t-magazine.html
-
-**Looking back on Marshawn Kneeland's time on the field with the Cowboys**\
-`Kneeland was found dead, at age 24, on Thursday.`\
-https://nytimes.com/athletic/6787870/2025/11/07/marshawn-kneeland-cowboys-career-review/
-
-**Democrats Scale Back Demands for Ending Shutdown**\
-`After weeks of stalemate, Senate Democrats said they would be willing to reopen the government in exchange for a one-year extension of expiring health care subsidies.`\
-https://nytimes.com/2025/11/07/us/politics/shutdown-democrats-schumer-thune.html
-
-**Colts place DT DeForest Buckner on IR due to neck injury**\
-`Buckner leads Indianapolis' defensive linemen with 42 tackles this season, including a team-high nine tackles for loss.`\
-https://nytimes.com/athletic/6788313/2025/11/07/colts-deforest-buckner-injured-reserve-neck/
 
