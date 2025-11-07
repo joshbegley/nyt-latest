@@ -1,3 +1,11 @@
+**Antisemitism Task Force Severs Ties With the Heritage Foundation**\
+`The move comes as the venerable conservative think tank is roiled by turmoil caused by its leader’s defense of a Tucker Carlson interview with a white nationalist.`\
+https://nytimes.com/2025/11/06/us/politics/heritage-foundation-antisemitism-task-force.html
+
+**Coby White nears return to surprising Bulls' lineup after calf strain**\
+`When will the 6-1 Bulls get last season's leading scorer back on the court? Coby White offered some clues Thursday.`\
+https://nytimes.com/athletic/6786166/2025/11/06/coby-white-injury-status-bulls-timetable/
+
 **How Is Trump Changing Colleges and Universities? Tell Us.**\
 `There has been a shift in campus culture. We want to hear from faculty members across the United States.`\
 https://nytimes.com/2025/11/06/us/universities-changes-trump-callout.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/06/us/politics/flight-cuts-government-airports-faa.h
 **Team Canada unveils hockey jerseys for Milan-Cortina 2026 Olympics, Paralympics**\
 `Hockey Canada has unveiled the jerseys that the Canadian men’s, women’s and para teams will wear at the 2026 Olympics and Paralympics.`\
 https://nytimes.com/athletic/6786016/2025/11/06/canada-olympic-hockey-jerseys-milan-2026/
-
-**The Rise of Nancy Pelosi: From Stay-at-Home Mom to Speaker of the House**\
-`The daughter of a politician, she didn’t expect to become one. But once she ran for office in 1987, there was no stopping her.`\
-https://nytimes.com/2025/11/06/us/nancy-pelosi-career-highlights.html
-
-**NFL, Broncos observe moment of silence for Kneeland, TNF crew addresses tragedy**\
-`Said Richard Sherman: "You have those things you’re dealing with and you don’t ever want to be dealing with them alone."`\
-https://nytimes.com/athletic/6785811/2025/11/06/marshawn-kneeland-moment-of-silence-tnf/
 
