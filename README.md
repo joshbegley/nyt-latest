@@ -1,3 +1,7 @@
+**On night of protests, Aston Villa cruise to win in subdued atmosphere**\
+`With no away fans, Villa Park was muted as goals from Ian Maatsen and Donyell Malen gave Unai Emery's side a comfortable win `\
+https://nytimes.com/athletic/6786034/2025/11/07/aston-villa-maccabi-tel-aviv-analysis/
+
 **China’s New Aircraft Carrier Signals Naval Ambitions**\
 `The Fujian, China’s most advanced carrier, went into official service this week. It brings the country closer to challenging U.S. naval dominance.`\
 https://nytimes.com/2025/11/07/world/asia/china-aircraft-carrier-military-navy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6786250/2025/11/07/raiders-broncos-takeaways-thursd
 **The numbers behind Tottenham's vastly different home and away form**\
 `Spurs have the best away record in the Premier League but some of the worst home results - why the huge discrepancy?`\
 https://nytimes.com/athletic/6783431/2025/11/07/tottenham-home-away-record/
-
-**The subtle genius of Manchester City's midfield passing combinations**\
-`After last weekend's defeat, Bournemouth manager Andoni Iraola praised the speed and coordination of their interplay – this is how it works`\
-https://nytimes.com/athletic/6776376/2025/11/07/manchester-city-midfield-passing-combinations/
 
