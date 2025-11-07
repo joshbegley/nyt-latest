@@ -1,3 +1,7 @@
+**On a night of protests, Aston Villa cruised to a win in subdued atmosphere**\
+`With no away fans, Villa Park was muted as goals from Ian Maatsen and Donyell Malen gave Unai Emery's side a comfortable win `\
+https://nytimes.com/athletic/6786034/2025/11/07/aston-villa-maccabi-tel-aviv-analysis/
+
 **Pressure on Napoli in Serie A; Rhine derby evokes history**\
 `This weekend's action also includes French leaders PSG making a tricky trip to Lyon and high-flying Real Betis facing strugglers Valencia.`\
 https://nytimes.com/athletic/6784380/2025/11/07/napoli-serie-a-rhine-derby/

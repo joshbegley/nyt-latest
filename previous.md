@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6784380/2025/11/07/napoli-serie-a-rhine-derby/
 `This word has appeared in 208 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/11/07/learning/word-of-the-day-entourage.html
 
-**On night of protests, Aston Villa cruise to win in subdued atmosphere**\
+**On a night of protests, Aston Villa cruised to a win in subdued atmosphere**\
 `With no away fans, Villa Park was muted as goals from Ian Maatsen and Donyell Malen gave Unai Emery's side a comfortable win `\
 https://nytimes.com/athletic/6786034/2025/11/07/aston-villa-maccabi-tel-aviv-analysis/
 
