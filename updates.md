@@ -1,3 +1,11 @@
+**Maryland Sues F.B.I. Over Relocation of Headquarters**\
+`The move prolongs the dispute over the F.B.I.’s headquarters, an aging colossus veiled in netting to keep concrete from falling on passers-by.`\
+https://nytimes.com/2025/11/06/us/politics/maryland-fbi-lawsuit-headquarters.html
+
+**Red Sox do not extend qualifying offer to starter Lucas Giolito**\
+`He enters free agency without a qualifying offer, perhaps helping his market as clubs are often hesitant to lose draft picks for such deals.`\
+https://nytimes.com/athletic/6785602/2025/11/06/lucas-giolito-red-sox-no-qualifying-offer/
+
 **Republicans Block Measure to Bar Military Strike on Venezuela**\
 `All but two G.O.P. senators voted against a resolution to stop the president from expanding his military campaign against drug traffickers to include land targets inside Venezuela.`\
 https://nytimes.com/2025/11/06/us/politics/republicans-military-strike-venezuela.html
