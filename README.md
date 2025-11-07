@@ -27,7 +27,7 @@ https://nytimes.com/video/us/politics/100000010509765/pelosi-plans-to-retire-in-
 https://nytimes.com/athletic/6785520/2025/11/06/panini-wild-card-antitrust-lawsuit/
 
 **Anti-Defamation League Creates Antisemitism Tip Line Focused on Mamdani**\
-`The Anti-Defamation League, which has taken aim at Mayor-elect Zohran Mamdani over his criticism of Israel, unveiled a website where New Yorkers could report incidents of antisemitism.`\
+`The group, which has taken aim at Mayor-elect Zohran Mamdani over his criticism of Israel, is facing backlash after unveiling a website where New Yorkers could report incidents of antisemitism.`\
 https://nytimes.com/2025/11/06/nyregion/zohran-mamdani-monitor-antisemitism-adl.html
 
 **Remember When Pop Critics Were Critical of Pop?**\

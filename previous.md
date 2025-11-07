@@ -1,3 +1,7 @@
+**Antonio Brown captured in Dubai by U.S. Marshals on attempted murder charge**\
+`Brown faces a second-degree murder charge in connection with a Miami shooting that happened in May.`\
+https://nytimes.com/athletic/6785505/2025/11/06/antonio-brown-captured-search-nfl/
+
 **Maryland Sues F.B.I. Over Relocation of Headquarters**\
 `The move prolongs the dispute over the F.B.I.’s headquarters, an aging colossus veiled in netting to keep concrete from falling on passers-by.`\
 https://nytimes.com/2025/11/06/us/politics/maryland-fbi-lawsuit-headquarters.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000010508375/remember-when-pop-critics-wer
 **A Group of CAPs Discuss Their Work**\
 `Five pediatricians on diagnostic uncertainty, second opinions and the future of the field.`\
 https://nytimes.com/2025/11/06/podcasts/a-group-of-caps-discuss-their-work.html
-
-**Sri Owen, Who Popularized Indonesian Cuisine, Dies at 90**\
-`Settling in England as a young woman, she turned her nostalgia for the food of her youth in Sumatra into a career as an influential cookbook author.`\
-https://nytimes.com/2025/11/06/dining/sri-owen-dead.html
 
