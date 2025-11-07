@@ -1,3 +1,15 @@
+**The Georginio Rutter paradox: Can Brighton rely on a striker who doesn't score goals?**\
+`He may not have scored in the Premier League since February, but Georginio Rutter has become highly valuable to Brighton and Hove Albion`\
+https://nytimes.com/athletic/6765975/2025/11/07/georginio-rutterno-goals-brighton/
+
+**The science of swing bowling: Do overhead conditions really make a difference?**\
+`Traditional thinking dictates that the cricket ball will swing under cloud cover, but data suggests the reality is rather different `\
+https://nytimes.com/athletic/6756515/2025/11/07/swing-bowling-science-gillespie/
+
+**Broncos win seventh in a row as Raiders offense sputters on 'Thursday Night Football'**\
+`Denver's defense held Las Vegas to just 188 yards of offense and sacked quarterback Geno Smith six times in the Broncos' Thursday night win.`\
+https://nytimes.com/athletic/6786250/2025/11/07/raiders-broncos-takeaways-thursday-night-football/
+
 **The numbers behind Tottenham's vastly different home and away form**\
 `Spurs have the best away record in the Premier League but some of the worst home results - why the huge discrepancy?`\
 https://nytimes.com/athletic/6783431/2025/11/07/tottenham-home-away-record/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6780295/2025/11/07/fantasy-premier-league-erling-ha
 **From Arsenal prodigy to AFC Totton via prison: Jay Emmanuel-Thomas and the limits of rehabilitation**\
 `Emmanuel-Thomas, who was convicted of drug smuggling, joined AFC Totton following his release this summer `\
 https://nytimes.com/athletic/6781109/2025/11/07/arsenal-jay-emmanuel-thomas-rehabilitation-football/
-
-**Pep Guardiola's first game as a manager: 'It was tough, he came down to the mud'**\
-`With his 1,000th game set to come on Sunday — against Liverpool, no less — this is the story of his very first match as a manager`\
-https://nytimes.com/athletic/6779895/2025/11/07/guardiola-barcelona-first-match-manager/
-
-**Premier League Predictions: Man City vs Liverpool, Spurs v Man United, and the rest of Matchday 11**\
-`Who's leading after MD10? And what does our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 11?`\
-https://nytimes.com/athletic/6783161/2025/11/07/premier-league-predictions-md11/
-
-**The Prospects: Harrison Miles, England Under-17s and Manchester City**\
-`Miles is a busy and highly technical deep-lying midfielder who constantly makes himself available to receive possession in tight spaces`\
-https://nytimes.com/athletic/6783316/2025/11/07/harrison-miles-manchester-city-england/
 
