@@ -1,3 +1,15 @@
+**Filip Gustavsson rebounds after wacky first period, but Wild fall short: Takeaways**\
+`Tyler Pitlick got a match penalty and both teams combined for five goals on 10 shots in the first period of the Wild's 4-3 loss to Carolina.`\
+https://nytimes.com/athletic/6786293/2025/11/06/wild-hurricanes-filip-gustavsson-takeaways/
+
+**To Preserve Records, Homeland Security Now Relies on Officials to Take Screenshots**\
+`Experts say the new policy, which ditches software that automatically captured text messages, opens ample room for both willful and unwitting noncompliance with federal records laws.`\
+https://nytimes.com/2025/11/06/us/politics/homeland-security-foia.html
+
+**Lawsuits Blame ChatGPT for Suicides and Harmful Delusions**\
+`Seven complaints, filed on Thursday, claim the popular chatbot encouraged dangerous discussions and led to mental breakdowns.`\
+https://nytimes.com/2025/11/06/technology/chatgpt-lawsuit-suicides-delusions.html
+
 **Ex-Laker Christian Wood reportedly fires shots to scare off home invasion**\
 `Wood reportedly confronted the three suspects after they busted through the back door of the multimillion-dollar home in Los Angeles.`\
 https://nytimes.com/athletic/6785708/2025/11/06/christian-wood-home-invasion-laker/
