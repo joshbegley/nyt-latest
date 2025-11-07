@@ -1,3 +1,7 @@
+**Gordon set to miss Newcastle's trip to Brentford with hip injury**\
+`The 24-year-old has been struggling with a hip issue this season and left the pitch injured against Athletic Club on Wednesday.`\
+https://nytimes.com/athletic/6781830/2025/11/07/anthony-gordon-newcastle-injury-news/
+
 **'It's not healthy': Jack Draper on the loneliness of elite tennis and player welfare**\
 `Draper speaks to the Tennis Podcast about the impact of extended tournaments on the players that make them spectacles.`\
 https://nytimes.com/athletic/6784488/2025/11/07/jack-draper-tennis-podcast-interview-calendar-schedule/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/07/insider/bake-time-vaughn-vreeland.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/11/07/crosswords/spelling-bee-forum.html
-
-**Crystal Palace rebuilding momentum as they sweep aside AZ**\
-`After their 19-game unbeaten run came to an end, Oliver Glasner's side are getting their groove back`\
-https://nytimes.com/athletic/6773311/2025/11/07/crystal-palace-az-analysis/
 
