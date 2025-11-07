@@ -1,3 +1,15 @@
+**U.S. Wants Security Council to Adopt Trump Plan for Gaza**\
+`The alternative, Ambassador Michael Waltz bluntly told diplomats, was to watch the cease-fire between Israel and Hamas give way to a return to war.`\
+https://nytimes.com/2025/11/07/world/middleeast/trump-gaza-plan-us-security-council.html
+
+**A Decade Later, Supreme Court Is Asked to Revisit Same-Sex Marriage Decision**\
+`Kim Davis, a Kentucky county clerk once jailed for refusing to issue same-sex marriage licenses, has asked the court to reconsider its landmark 2015 opinion.`\
+https://nytimes.com/2025/11/07/us/politics/supreme-court-same-sex-marriage.html
+
+**Cornell Reaches Deal with Trump Administration to Restore Research Funds**\
+`The Ivy League university had warned of layoffs after the Trump administration stripped it of funds this year. The cuts were among the deepest in higher education.`\
+https://nytimes.com/2025/11/07/us/cornell-deal-trump-administration.html
+
 **Penguins' Filip Hållander has blood clot in leg, will miss at least 3 months**\
 `Days before the Penguins embark on a weeklong voyage to Sweden, one of their three Swedish players has been diagnosed with a scary injury.`\
 https://nytimes.com/athletic/6787464/2025/11/07/penguins-filip-hallander-blood-clot-injury-update/

@@ -1,3 +1,7 @@
+**Pumpkin Crumb Cake**\
+`This pumpkin-packed crumb cake is everything that is wonderful about fall baking. Warmly spiced, moist pumpkin cake topped with spicy, crispy streusel and topped with an optional but delicious glaze.`\
+https://nytimes.com/video/dining/100000010366877/pumpkin-crumb-cake.html
+
 **U.S. Wants Security Council to Adopt Trump Plan for Gaza**\
 `The alternative, Ambassador Michael Waltz bluntly told diplomats, was to watch the cease-fire between Israel and Hamas give way to a return to war.`\
 https://nytimes.com/2025/11/07/world/middleeast/trump-gaza-plan-us-security-council.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/11/07/us/shutdown-airports-flight-cuts/how-do-thes
 **The Rise and Fall (and Rise) of American Socialism**\
 `Zohran Mamdani’s victory brings new life to the Democratic Socialists of America, an organization that has had its ups and downs.`\
 https://nytimes.com/2025/11/07/style/american-socialism-dsa-mamdani.html
-
-**Who Are the ‘Groypers’?**\
-`A word associated with right-wing pundit Nick Fuentes and his followers is suddenly part of the national vocabulary.`\
-https://nytimes.com/article/groyper-nick-fuentes-tucker-carlson.html
 

@@ -1,3 +1,15 @@
+**U.S. Wants Security Council to Adopt Trump Plan for Gaza**\
+`The alternative, Ambassador Michael Waltz bluntly told diplomats, was to watch the cease-fire between Israel and Hamas give way to a return to war.`\
+https://nytimes.com/2025/11/07/world/middleeast/trump-gaza-plan-us-security-council.html
+
+**A Decade Later, Supreme Court Is Asked to Revisit Same-Sex Marriage Decision**\
+`Kim Davis, a Kentucky county clerk once jailed for refusing to issue same-sex marriage licenses, has asked the court to reconsider its landmark 2015 opinion.`\
+https://nytimes.com/2025/11/07/us/politics/supreme-court-same-sex-marriage.html
+
+**Cornell Reaches Deal with Trump Administration to Restore Research Funds**\
+`The Ivy League university had warned of layoffs after the Trump administration stripped it of funds this year. The cuts were among the deepest in higher education.`\
+https://nytimes.com/2025/11/07/us/cornell-deal-trump-administration.html
+
 **Penguins' Filip Hållander has blood clot in leg, will miss at least 3 months**\
 `Days before the Penguins embark on a weeklong voyage to Sweden, one of their three Swedish players has been diagnosed with a scary injury.`\
 https://nytimes.com/athletic/6787464/2025/11/07/penguins-filip-hallander-blood-clot-injury-update/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/07/style/american-socialism-dsa-mamdani.html
 **Who Are the ‘Groypers’?**\
 `A word associated with right-wing pundit Nick Fuentes and his followers is suddenly part of the national vocabulary.`\
 https://nytimes.com/article/groyper-nick-fuentes-tucker-carlson.html
-
-**Tottenham Hotspur vs Manchester United: Back in business or mired in mediocrity again?**\
-`Spurs beat United in all four of last season's meetings, including the Europa League final. Can Amorim's side get revenge?`\
-https://nytimes.com/athletic/6786786/2025/11/07/tottenham-hotspur-manchester-united/
-
-**Creamy Doenjang Pasta**\
-`This pasta recipe leans into the funky, salty flavor of doenjang, a Korean soybean paste whose pungency is an absolute pleasure.`\
-https://nytimes.com/video/admin/100000010366569/creamy-doenjang-pasta.html
-
-**Who Wrote That Headline? Maybe a Robot.**\
-`A.I. has taken newsrooms by storm, setting off industrywide soul-searching about its potential and pitfalls.`\
-https://nytimes.com/2025/11/07/business/media/ai-news-media-.html
 
