@@ -1,3 +1,7 @@
+**History is everywhere as Falcons arrive in Germany to face Colts**\
+`The Falcons held their first practice in Berlin on Friday morning local time in preparation for Sunday's game against the Colts.`\
+https://nytimes.com/athletic/6786536/2025/11/07/as-falcons-arrive-in-germany-to-face-colts-history-is-everywhere/
+
 **Sources: Fire reach permanent deal for Franco as part of club's plan to build on 2025**\
 `Beyond keeping André Franco and adding Swedish midfielder Anton Salétros, Chicago and Gregg Berhalter are thinking big for 2026`\
 https://nytimes.com/athletic/6786458/2025/11/07/chicago-fire-andre-franco-anton-saletros-berhalter-mls/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/07/world/europe/serbia-hotel-trump-kushner.html
 **Foden and Wharton in, Gibbs-White and Watkins out: Analysing Tuchel's big decisions**\
 `Our experts dissect the England head coach's most intriguing decisions in his final squad of 2025`\
 https://nytimes.com/athletic/6786877/2025/11/07/england-tuchel-wharton-quansah-gibbs-white-watkins/
-
-**What are Chargers getting in Trevor Penning? Imperfect player with athleticism, attitude**\
-`There was no ideal fix to the Chargers’ offensive tackle situation, but Penning should be in the mix for playing time.`\
-https://nytimes.com/athletic/6785912/2025/11/07/chargers-trevor-penning-trade-film-review/
 

@@ -1,3 +1,7 @@
+**History is everywhere as Falcons arrive in Germany to face Colts**\
+`The Falcons held their first practice in Berlin on Friday morning local time in preparation for Sunday's game against the Colts.`\
+https://nytimes.com/athletic/6786536/2025/11/07/as-falcons-arrive-in-germany-to-face-colts-history-is-everywhere/
+
 **Sources: Fire reach permanent deal for Franco as part of club's plan to build on 2025**\
 `Beyond keeping André Franco and adding Swedish midfielder Anton Salétros, Chicago and Gregg Berhalter are thinking big for 2026`\
 https://nytimes.com/athletic/6786458/2025/11/07/chicago-fire-andre-franco-anton-saletros-berhalter-mls/
