@@ -1,3 +1,7 @@
+**Wake Forest University Is Leading A Resurgence in Character Education**\
+`Wake Forest is at the forefront of a national character education movement, serving as a model, source of funding, and thought partner.`\
+https://nytimes.com/paidpost/wake-forest-university/wake-forest-university-schools-of-business/wake-forest-university-is-leading-a-resurgence-in-character-education.html
+
 **4 Arrested Over Disruption of Israeli Orchestra’s Concert**\
 `Several audience members shouted or lit flares as the Israel Philharmonic Orchestra performed in Paris. After the concert, the ensemble received 10 minutes of applause and played the Israeli national anthem.`\
 https://nytimes.com/2025/11/07/arts/music/israel-philharmonic-concert-arrests-france.html
