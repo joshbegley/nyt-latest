@@ -1,10 +1,18 @@
+**How Radio Traffic Let Us Track U.S. Drones in the Caribbean**\
+`The U.S. military’s buildup near Venezuela has been rapidly growing and changing. Riley Mellen, from Visual Investigations, describes what’s visible, and audible, about the deployment.`\
+https://nytimes.com/video/world/americas/100000010501858/how-radio-traffic-let-us-track-us-drones-in-the-caribbean.html
+
+**Inside scoop: John Mateer's injury status revealed by ... a Chipotle worker?**\
+`The quarterback confirmed the rumor that had swirled on message boards.`\
+https://nytimes.com/athletic/6785842/2025/11/06/john-mateer-chipotle-worker-texas/
+
 **LaTroy Hawkins to serve as Twins bullpen coach, more changes expected: Sources**\
 `Hawkins, who's been with the Twins as a special assistant since 2017, will be involved more as a bullpen coach under manager Derek Shelton.`\
 https://nytimes.com/athletic/6784964/2025/11/06/latroy-hawkins-twins-bullpen-coach/
 
 **As Hours Dwindled Before Flight Cuts, the Government Was Publicly Mum**\
 `Airlines did not wait for an announcement, notifying passengers and airports of expected changes before the Trump administration made official its list of affected airports.`\
-https://nytimes.com/2025/11/06/us/politics/flight-cuts-government-quiet.html
+https://nytimes.com/2025/11/06/us/politics/flight-cuts-government-airports-faa.html
 
 **Team Canada unveils hockey jerseys for Milan-Cortina 2026 Olympics, Paralympics**\
 `Hockey Canada has unveiled the jerseys that the Canadian men’s, women’s and para teams will wear at the 2026 Olympics and Paralympics.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/06/us/politics/trump-pressure-republicans-shutdown.h
 **Damon Jones pleads not guilty in alleged NBA gambling scheme cases**\
 `Jones appeared in court on charges related to an alleged rigged poker game ring and an alleged illicit sports gambling scheme.`\
 https://nytimes.com/athletic/6785805/2025/11/06/damon-jones-plea-nba-gambling-scheme/
-
-**Cleaning Woman Killed Through Door After Arriving at Wrong Home, Police Say**\
-`The shooting of the woman, an immigrant from Guatemala, took place on Wednesday in Indiana, a state with a “stand your ground” law.`\
-https://nytimes.com/2025/11/06/us/whitestown-indiana-shooting-cleaner-dead.html
-
-**Woman Gets 15 Years to Life in Actress’s Death From Silicone Shots**\
-`Cindyana Santangelo had an embolism after receiving injections of silicone oil into her buttocks by Libby Adame, the second fatal augmentation procedure connected to her.`\
-https://nytimes.com/2025/11/06/us/butt-lady-sentenced-california.html
 

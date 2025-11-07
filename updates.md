@@ -1,3 +1,15 @@
+**How Radio Traffic Let Us Track U.S. Drones in the Caribbean**\
+`The U.S. military’s buildup near Venezuela has been rapidly growing and changing. Riley Mellen, from Visual Investigations, describes what’s visible, and audible, about the deployment.`\
+https://nytimes.com/video/world/americas/100000010501858/how-radio-traffic-let-us-track-us-drones-in-the-caribbean.html
+
+**Inside scoop: John Mateer's injury status revealed by ... a Chipotle worker?**\
+`The quarterback confirmed the rumor that had swirled on message boards.`\
+https://nytimes.com/athletic/6785842/2025/11/06/john-mateer-chipotle-worker-texas/
+
+**As Hours Dwindled Before Flight Cuts, the Government Was Publicly Mum**\
+`Airlines did not wait for an announcement, notifying passengers and airports of expected changes before the Trump administration made official its list of affected airports.`\
+https://nytimes.com/2025/11/06/us/politics/flight-cuts-government-airports-faa.html
+
 **LaTroy Hawkins to serve as Twins bullpen coach, more changes expected: Sources**\
 `Hawkins, who's been with the Twins as a special assistant since 2017, will be involved more as a bullpen coach under manager Derek Shelton.`\
 https://nytimes.com/athletic/6784964/2025/11/06/latroy-hawkins-twins-bullpen-coach/
