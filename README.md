@@ -1,3 +1,27 @@
+**Washington goalkeeper Mia Hamant dies at 21 after battle with kidney cancer**\
+`Hamant was diagnosed with Stage 4 SMARCB1-deficient kidney cancer, an ultra-rare and aggressive form of the disease.`\
+https://nytimes.com/athletic/6787411/2025/11/07/washington-goalkeeper-mia-hamant-dies-kidney-cancer/
+
+**Sabres' Dahlin takes leave as fiancee recovers from heart transplant**\
+`Dahlin’s fiancee, Carolina Matovac, experienced sudden heart failure while the two were vacationing this summer.`\
+https://nytimes.com/athletic/6787903/2025/11/07/sabres-rasmus-dahlin-fiancee-leave-absence/
+
+**Kauai**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/things-to-do-kauai
+
+**Leaders at the Global Climate Summit Highlight the Rising Toll of Warming**\
+`“All we have to do is look outside,” one delegate said. “The sea rises, the coral dies.”`\
+https://nytimes.com/2025/11/07/climate/cop30-belem-climate-impacts.html
+
+**Many Travelers Escaped Major Headaches. Some Weren’t So Lucky.**\
+`Although airlines canceled a relatively small percentage of their flights, some passengers were still left scrambling.`\
+https://nytimes.com/2025/11/07/us/passengers-reactions-canceled-flights.html
+
+**894 days later: Barcelona finally return to the Camp Nou (sort of)**\
+`Some 23,000 fans were allowed in to watch an open training session on Friday… but we still don't know when Barca will play there again`\
+https://nytimes.com/athletic/6786938/2025/11/07/barcelona-camp-nou-stadium-return/
+
 **Leafs goalie Joseph Woll 'happy to be back,' will report to Marlies**\
 `Woll declined to elaborate on the personal matter that has kept him away from the team since September.`\
 https://nytimes.com/athletic/6787797/2025/11/07/joseph-woll-leafs-marlies-conditioning/
@@ -9,28 +33,4 @@ https://nytimes.com/2025/11/07/books/review/edmund-fitzgerald-50th-anniversary.h
 **Nancy Pelosi Knew Her ‘Why’**\
 `The first female speaker of the House may be the last to truly rule the increasingly unruly chamber.`\
 https://nytimes.com/2025/11/07/us/politics/nancy-pelosi-house-speaker.html
-
-**Protest Disrupts Israeli Philharmonic Orchestra Concert in Paris**\
-`Four people were arrested after a protest at an Israeli Philharmonic Orchestra Concert in Paris on Thursday. Audience members shouted and set off flares during the show, according to French officials.`\
-https://nytimes.com/video/world/europe/100000010511343/israel-philharmonic-concert-arrests-france.html
-
-**China Resumes Some Chip Exports, Easing Fears of a Global Crunch**\
-`A leading German automotive supplier said it was again allowed to ship semiconductors that Beijing had barred for export.`\
-https://nytimes.com/2025/11/07/business/china-nexperia-autos-chips.html
-
-**Will the Idea of America Be Lost?**\
-`Readers discuss equal opportunity and immigration as central ideas in the American project. Also: The value of brain research; Democratic momentum.`\
-https://nytimes.com/2025/11/07/opinion/us-immigration-equality.html
-
-**Disney internal memo reflects pessimism around YouTube TV-ESPN standoff**\
-`The release of the memo to ESPN employees is the latest twist in the protracted stand-off between the distributor and content company.`\
-https://nytimes.com/athletic/6787572/2025/11/07/espn-disney-memo-youtubetv-nfl/
-
-**Interim coach Collins finds himself centre-stage after answering Wolves' call for a third time**\
-`The former Crewe midfielder will take winless Wolves to Chelsea on Saturday, convinced he can provide them with organisation and structure`\
-https://nytimes.com/athletic/6787370/2025/11/07/wolves-james-collins-interim-chelsea/
-
-**NCAA bans 6 ex-college basketball players from 3 schools for betting violations**\
-`Former players from Arizona State, Mississippi Valley State and New Orleans were declared permanently ineligible.`\
-https://nytimes.com/athletic/6787533/2025/11/07/ncaa-betting-violations-arizona-state-new-orleans-mississippi-valley-state/
 

@@ -1,3 +1,7 @@
+**Leafs goalie Joseph Woll 'happy to be back,' will report to Marlies**\
+`Woll declined to elaborate on the personal matter that has kept him away from the team since September.`\
+https://nytimes.com/athletic/6787797/2025/11/07/joseph-woll-leafs-marlies-conditioning/
+
 **Disney internal memo reflects pessimism around YouTube TV-ESPN standoff**\
 `The release of the memo to ESPN employees is the latest twist in the protracted stand-off between the distributor and content company.`\
 https://nytimes.com/athletic/6787572/2025/11/07/espn-disney-memo-youtubetv-nfl/
