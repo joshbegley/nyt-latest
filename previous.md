@@ -1,3 +1,11 @@
+**4 Arrested Over Disruption of Israeli Orchestra’s Concert**\
+`Several audience members shouted or lit flares as the Israel Philharmonic Orchestra performed in Paris. After the concert, the ensemble received 10 minutes of applause and played the Israeli national anthem.`\
+https://nytimes.com/2025/11/07/arts/music/israel-philharmonic-concert-arrests-france.html
+
+**Red Light: What is happening in the NHL's head-scratching Atlantic Division?**\
+`You know what? I think I’m done pretending that I understand the Atlantic Division.`\
+https://nytimes.com/athletic/6787321/2025/11/07/nhl-atlantic-division-playoff-race-projection/
+
 **Hegseth Is Purging Military Leaders With Little Explanation**\
 `The moves to fire or sideline generals and admirals are without precedent in recent decades and have rattled the top brass.`\
 https://nytimes.com/2025/11/07/us/politics/hegseth-firing-military-leaders.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6753646/2025/11/07/alex-inglethorpe-liverpool-acade
 **How Emmanuel Forbes Jr. went from a project to a player the Rams believe in**\
 `Forbes, a 2023 first-round pick who was released by the Commanders last year, has quietly began to turn his career around with the Rams. `\
 https://nytimes.com/athletic/6786479/2025/11/07/rams-emmanuel-forbes-jr-development/
-
-**Source: Shield-winning Union finalizing club-record deal for new forward**\
-`The Union are still focused on winning MLS Cup 2025, but they're making a significant move for 2026 and beyond as well.`\
-https://nytimes.com/athletic/6787319/2025/11/07/philadelphia-union-club-record-signing-ezekiel-alladoh/
-
-**The Bounce: The Nuggets can't rest Jokić. Plus, an NBA Cupdate (yes, it has begun)**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6784190/2025/11/07/nikola-jokic-nuggets-suns-clippers-nba-the-bounce/
 

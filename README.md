@@ -1,3 +1,7 @@
+**Wake Forest University Is Leading A Resurgence in Character Education**\
+`Wake Forest is at the forefront of a national character education movement, serving as a model, source of funding, and thought partner.`\
+https://nytimes.com/paidpost/wake-forest-university/wake-forest-university-schools-of-business/wake-forest-university-is-leading-a-resurgence-in-character-education.html
+
 **4 Arrested Over Disruption of Israeli Orchestra’s Concert**\
 `Several audience members shouted or lit flares as the Israel Philharmonic Orchestra performed in Paris. After the concert, the ensemble received 10 minutes of applause and played the Israeli national anthem.`\
 https://nytimes.com/2025/11/07/arts/music/israel-philharmonic-concert-arrests-france.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6784435/2025/11/07/morgan-rogers-aston-villa-contra
 **Liverpool academy director Alex Inglethorpe signs new contract**\
 `Inglethorpe joined Liverpool from Spurs as under-21s manager in 2012 before being promoted to the role of academy director two years later.`\
 https://nytimes.com/athletic/6753646/2025/11/07/alex-inglethorpe-liverpool-academy-director-contract/
-
-**How Emmanuel Forbes Jr. went from a project to a player the Rams believe in**\
-`Forbes, a 2023 first-round pick who was released by the Commanders last year, has quietly began to turn his career around with the Rams. `\
-https://nytimes.com/athletic/6786479/2025/11/07/rams-emmanuel-forbes-jr-development/
 

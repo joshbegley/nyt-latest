@@ -1,3 +1,11 @@
+**4 Arrested Over Disruption of Israeli Orchestra’s Concert**\
+`Several audience members shouted or lit flares as the Israel Philharmonic Orchestra performed in Paris. After the concert, the ensemble received 10 minutes of applause and played the Israeli national anthem.`\
+https://nytimes.com/2025/11/07/arts/music/israel-philharmonic-concert-arrests-france.html
+
+**Red Light: What is happening in the NHL's head-scratching Atlantic Division?**\
+`You know what? I think I’m done pretending that I understand the Atlantic Division.`\
+https://nytimes.com/athletic/6787321/2025/11/07/nhl-atlantic-division-playoff-race-projection/
+
 **Hegseth Is Purging Military Leaders With Little Explanation**\
 `The moves to fire or sideline generals and admirals are without precedent in recent decades and have rattled the top brass.`\
 https://nytimes.com/2025/11/07/us/politics/hegseth-firing-military-leaders.html
