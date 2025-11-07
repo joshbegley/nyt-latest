@@ -1,3 +1,15 @@
+**Russian Sanctions Risk Straining Trump’s Chummy Relationship With Hungarian Leader**\
+`New U.S. penalties on Russian energy could be a sticking point as President Trump and Prime Minister Viktor Orban of Hungary meet.`\
+https://nytimes.com/2025/11/07/world/europe/trump-orban-meeting-russia-sanctions.html
+
+**Here’s the latest on the flight reductions.**\
+`By Niraj Chokshi`\
+https://nytimes.com/live/2025/11/07/us/shutdown-airports-flight-cuts/heres-the-latest-on-the-flight-reductions
+
+**Live Updates: Hundreds of U.S. Flights Are Canceled as Shutdown Hits Air Travel**\
+``\
+https://nytimes.com/live/2025/11/07/us/shutdown-airports-flight-cuts
+
 **Why Germany Is Still Divided When It Comes to Russia**\
 `Many East Germans are more sympathetic toward Moscow than their western compatriots, reflecting decades of Soviet ties and disillusionment since reunification.`\
 https://nytimes.com/2025/11/07/world/europe/germany-russia-divide.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/07/business/flight-cancellation-share-story.html
 **More Democrats Need to Follow Pelosi’s Example and Retire**\
 `She has shown herself more willing than most to put aside her own ego for the greater good.`\
 https://nytimes.com/2025/11/07/opinion/pelosi-age-democrats-retirement.html
-
-**If You Could Design Any Museum Exhibition, What Would It Be?**\
-`Choosing from subjects like food, fashion, sports, science or art, tell us about your ideal show.`\
-https://nytimes.com/2025/11/07/learning/if-you-could-design-any-museum-exhibition-what-would-it-be.html
-
-**The New York Times News Quiz, Nov. 7, 2025**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2025/11/07/briefing/mamdani-election-dick-cheney-plane-crash-quiz.html
-
-**It’s Not Just Cuomo Who Lost. It’s Cuomoism.**\
-`He’s sharp-elbowed, retributive and transactional, and won’t be missed.`\
-https://nytimes.com/2025/11/07/opinion/mamdani-cuomo-election.html
 
