@@ -15,7 +15,7 @@ https://nytimes.com/2025/11/06/world/middleeast/unsc-syria-al-shara-sanctions-re
 https://nytimes.com/video/world/americas/100000010501858/how-radio-traffic-let-us-track-us-drones-in-the-caribbean.html
 
 **Inside scoop: John Mateer's injury status revealed by ... a Chipotle worker?**\
-`The quarterback confirmed the rumor that had swirled on message boards.`\
+`The quarterback confirmed the rumor that swirled on message boards.`\
 https://nytimes.com/athletic/6785842/2025/11/06/john-mateer-chipotle-worker-texas/
 
 **LaTroy Hawkins to serve as Twins bullpen coach, more changes expected: Sources**\

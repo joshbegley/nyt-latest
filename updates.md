@@ -1,3 +1,7 @@
+**Inside scoop: John Mateer's injury status revealed by ... a Chipotle worker?**\
+`The quarterback confirmed the rumor that swirled on message boards.`\
+https://nytimes.com/athletic/6785842/2025/11/06/john-mateer-chipotle-worker-texas/
+
 **How Is Trump Changing Colleges and Universities? Tell Us.**\
 `There has been a shift in campus culture. We want to hear from faculty members across the United States.`\
 https://nytimes.com/2025/11/06/us/universities-changes-trump-callout.html
