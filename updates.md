@@ -1,3 +1,7 @@
+**China’s New Aircraft Carrier Signals Naval Ambitions**\
+`The Fujian, China’s most advanced carrier, went into official service this week. It brings the country closer to challenging U.S. naval dominance.`\
+https://nytimes.com/2025/11/07/world/asia/china-aircraft-carrier-military-navy.html
+
 **Former King of Spain, Juan Carlos, Details Death of Brother in Memoir**\
 `He wrote about the accident that killed his brother nearly 70 years ago. The book also describes his respect for Gen. Francisco Franco, the former dictator.`\
 https://nytimes.com/2025/11/07/world/europe/spain-juan-carlos-king-memoir.html
