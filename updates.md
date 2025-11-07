@@ -1,3 +1,7 @@
+**Jaxson Dart could reach fantasy football supernova status in Week 10**\
+`Andy Behrens talks the biggest fantasy football storylines ahead of Week 10, including Jaxson Dart's potential for an impressive Week 10. `\
+https://nytimes.com/athletic/6787169/2025/11/07/fantasy-football-news-week-10-jaxson-dart/
+
 **Everton's Iliman Ndiaye 'fine' after injury concern against Sunderland, Moyes says**\
 `Ndiaye has made 12 appearances for Everton this season, starting in all 10 Premier League matches so far.`\
 https://nytimes.com/athletic/6787163/2025/11/07/iliman-ndiaye-everton-injury-news/
