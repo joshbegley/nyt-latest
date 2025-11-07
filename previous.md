@@ -1,3 +1,23 @@
+**Trump Pardons Darryl Strawberry, Former Slugger for the Mets and Yankees**\
+`The eight-time All-Star baseball player pleaded guilty in 1995 to one count of tax evasion. He was sentenced to six months of home confinement.`\
+https://nytimes.com/2025/11/07/us/politics/darryl-strawberry-pardon-trump.html
+
+**Zanzibari Mix (Urojo)**\
+`A fragrant, brothy green mango soup with a sour bite, Zanzibar mix is a staple of the archipelago’s street food stands. The soup is made with an aromatic base of onion, garlic, ginger and chile.`\
+https://nytimes.com/video/dining/100000010511330/zanzibari-mix-urojo.html
+
+**Restaurant Review: Sunny’s Steakhouse**\
+`The beauty of Sunny’s is that you can walk in without a reservation and concentrate on the pleasures of a martini and superb steak frites. Tejal Rao, a chief restaurant critic for The New York Times, reports in her review on the South Florida steakhouse.`\
+https://nytimes.com/video/dining/100000010511328/restaurant-review-sunnys-steakhouse.html
+
+**Smashed Beef Kebab With Cucumber Yogurt**\
+`This quick skillet dinner of spiced, seared ground beef over cooling yogurt combines elements of two Persian classics: kebab koobideh (grilled kebabs) and mast-o-khiar (cucumber yogurt).`\
+https://nytimes.com/video/dining/100000010511325/smashed-beef-kebab-with-cucumber-yogurt.html
+
+**How the Metropolitan Opera Feeds Its Audiences**\
+`Opera is an art form that favors extravagant appetites. The marriage of music and cuisine is nowhere more evident than at the Metropolitan Opera House in New York City, where feeding about 3,800 audience members and 3,000 employees each performance is itself a production of operatic proportions.`\
+https://nytimes.com/video/dining/100000010511322/how-the-metropolitan-opera-feeds-its-audiences.html
+
 **Japanese Breakfast Performs at T Magazine**\
 `For the series Live From the 10th Floor, T Magazine enlists artists to play songs, read monologues or showcase snippets of a larger work at the magazine’s Midtown headquarters.`\
 https://nytimes.com/video/t-magazine/100000010506313/japanese-breakfast-performs-at-t-magazine.html
@@ -14,27 +34,7 @@ https://nytimes.com/2025/11/07/us/politics/shutdown-democrats-schumer-thune.html
 `Buckner leads Indianapolis' defensive linemen with 42 tackles this season, including a team-high nine tackles for loss.`\
 https://nytimes.com/athletic/6788313/2025/11/07/colts-deforest-buckner-injured-reserve-neck/
 
-**Jaguars star WR Brian Thomas Jr. ruled out game vs. Texans on Sunday**\
-`Thomas Jr. made the Pro Bowl last year with 87 catches, 1282 yards and 10 touchdowns.`\
+**Jaguars WR Brian Thomas Jr. ruled out vs. Texans on Sunday**\
+`Thomas made the Pro Bowl last year as a rookie with 87 catches for 1,282 yards and 10 touchdowns.`\
 https://nytimes.com/athletic/6788235/2025/11/07/jaguars-brian-thomas-jr-out-sunday-texans/
-
-**How to Be a Good Citizen When Your Country Does Bad Things**\
-`Is it possible to be a good citizen in a country that does bad things? In this video, New York Times Opinion columnist M. Gessen argues yes — and introduces Israeli dissidents who show us how.`\
-https://nytimes.com/video/opinion/100000010511444/how-to-be-a-good-citizen-when-your-country-does-bad-things.html
-
-**Trump pardons Darryl Strawberry, calling the former Mets legend to tell him**\
-`A White House official cited Strawberry's faith in Christianity and sobriety when discussing Trump's decision to issue the pardon.`\
-https://nytimes.com/athletic/6788223/2025/11/07/president-trump-pardons-darryl-strawberry-calling-the-former-mets-legend-to-share-the-news/
-
-**Sister of Blind Man Targeted for Deportation Asks U.S. to Free Him**\
-`Eva Magdalena Chalco Chango, who has no lawyer, asked a federal judge to free her brother, whom she has cared for throughout his life.`\
-https://nytimes.com/2025/11/07/nyregion/blind-man-immigration-detention-new-york.html
-
-**Jack Fletcher poised to maintain Man United's 88-year youth record**\
-`United have since 1937, for 4,332 successive games, included an academy graduate in their first-team squad.`\
-https://nytimes.com/athletic/6788216/2025/11/07/mainoo-manchester-united-jack-fletcher-youth-record/
-
-**The Farmers’ Almanac Succumbs to the Digital Age**\
-`One of two major American almanacs is ceasing publication after more than two centuries of predicting the weather and offering tidbits of wisdom.`\
-https://nytimes.com/2025/11/07/us/farmers-almanac-shutting-down.html
 
