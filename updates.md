@@ -1,3 +1,7 @@
+**Team Canada unveils hockey jerseys for Milan-Cortina 2026 Olympics, Paralympics**\
+`Hockey Canada has unveiled the jerseys that the Canadian men’s, women’s and para teams will wear at the 2026 Olympics and Paralympics.`\
+https://nytimes.com/athletic/6786016/2025/11/06/canada-olympic-hockey-jerseys-milan-2026/
+
 **The Rise of Nancy Pelosi: From Stay-at-Home Mom to Speaker of the House**\
 `The daughter of a politician, she didn’t expect to become one. But once she ran for office in 1987, there was no stopping her.`\
 https://nytimes.com/2025/11/06/us/nancy-pelosi-career-highlights.html
