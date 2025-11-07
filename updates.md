@@ -1,3 +1,11 @@
+**Fantasy trends and hidden gems: Week 6 insights, Elvis Merzlikins' solid start and more**\
+`Shayna Goldman highlights the Week 6 fantasy hockey waiver wire, including the top four-game streamers and light-night targets.`\
+https://nytimes.com/athletic/6787457/2025/11/07/fantasy-trends-hidden-gems-week-6-elvis-merzlikins/
+
+**‘Death by Lightning’ Is History as Comedy and Tragedy**\
+`The Netflix limited series is both a timely exploration of political disillusionment and a frequently amusing character drama.`\
+https://nytimes.com/2025/11/07/arts/television/death-by-lightning-review.html
+
 **Live From the 10th Floor**\
 ``\
 https://nytimes.com/series/live-from-10th-floor
