@@ -1,3 +1,11 @@
+**Republicans Block Measure to Bar Military Strike on Venezuela**\
+`All but two G.O.P. senators voted against a resolution to stop the president from expanding his military campaign against drug traffickers to include land targets inside Venezuela.`\
+https://nytimes.com/2025/11/06/us/politics/republicans-military-strike-venezuela.html
+
+**Shota Imanaga and Kyle Tucker get qualifying offers from Cubs**\
+`While the decision to reject the qualifying offer should be straightforward for Tucker, Imanaga’s situation appears to be more complicated.`\
+https://nytimes.com/athletic/6783599/2025/11/06/cubs-shota-imanaga-qualifying-offer-news/
+
 **Pelosi Plans To Retire In 2027 After 39 Years in Congress**\
 `Representative Nancy Pelosi, the nation’s only female House speaker, announced her decision to retire after 39 years in Congress. Her legacy includes the passage of Obamacare, advocating for HIV/AIDS patients and fund-raising for Democrats.`\
 https://nytimes.com/video/us/politics/100000010509765/pelosi-plans-to-retire-in-2027-after-39-years-in-congress.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/06/podcasts/serial-the-preventionist-podcast-caps-ro
 **Where to Travel After a Breakup**\
 `And more answers to readers’ winter vacation queries.`\
 https://nytimes.com/2025/11/06/t-magazine/relationship-breakup-winter-vacation-ideas.html
-
-**Trump Officials Plan Flight Cuts at Nation’s Busiest Airports**\
-`Also, Nancy Pelosi is retiring. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/11/06/briefing/trump-officials-plan-flight-cuts-at-nations-busiest-airports.html
-
-**U.S. Sends Attack Aircraft to El Salvador Amid Regional Troop Buildup**\
-`A New York Times analysis of satellite imagery and air traffic control communications found that U.S. military planes began operating out of the Central American country in mid-October.`\
-https://nytimes.com/2025/11/06/world/americas/us-military-planes-el-salvador.html
 
