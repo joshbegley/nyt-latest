@@ -1,3 +1,7 @@
+**China’s New Aircraft Carrier Signals Naval Ambitions**\
+`The Fujian, China’s most advanced carrier, went into official service this week. It brings the country closer to challenging U.S. naval dominance.`\
+https://nytimes.com/2025/11/07/world/asia/china-aircraft-carrier-military-navy.html
+
 **Former King of Spain, Juan Carlos, Details Death of Brother in Memoir**\
 `He wrote about the accident that killed his brother nearly 70 years ago. The book also describes his respect for Gen. Francisco Franco, the former dictator.`\
 https://nytimes.com/2025/11/07/world/europe/spain-juan-carlos-king-memoir.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6783431/2025/11/07/tottenham-home-away-record/
 **The subtle genius of Manchester City's midfield passing combinations**\
 `After last weekend's defeat, Bournemouth manager Andoni Iraola praised the speed and coordination of their interplay – this is how it works`\
 https://nytimes.com/athletic/6776376/2025/11/07/manchester-city-midfield-passing-combinations/
-
-**Xabi Alonso's culture of secrecy: Why Real Madrid want even tighter control**\
-`Since arriving as Carlo Ancelotti's replacement in May, the 43-year-old has made a host of changes designed to increase privacy`\
-https://nytimes.com/athletic/6783616/2025/11/07/real-madrid-xabi-alonso-training-champions-league-secrecy/
 

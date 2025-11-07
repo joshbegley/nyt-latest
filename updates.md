@@ -1,3 +1,19 @@
+**Former King of Spain, Juan Carlos, Details Death of Brother in Memoir**\
+`He wrote about the accident that killed his brother nearly 70 years ago. The book also describes his respect for Gen. Francisco Franco, the former dictator.`\
+https://nytimes.com/2025/11/07/world/europe/spain-juan-carlos-king-memoir.html
+
+**Rugby union and MND: A very complex tragedy**\
+`The sport's links to the disease are unproven but it has left a traumatic legacy in affecting so many high-profile players worldwide`\
+https://nytimes.com/athletic/6780040/2025/11/07/rugby-union-motor-neurone-disease/
+
+**The New York Times in Print for Friday, Nov. 7, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/07/todays-new-york-times
+
+**Will Hamas Lay Down Its Arms?**\
+`For a movement that built its legitimacy around what it called resistance, giving up its weapons is not just a tactical concession, it is an existential unraveling.`\
+https://nytimes.com/2025/11/07/opinion/israel-gaza-hamas-disarming-peace-plan.html
+
 **The Georginio Rutter paradox: Can Brighton rely on a striker who doesn't score goals?**\
 `He may not have scored in the Premier League since February, but Georginio Rutter has become highly valuable to Brighton and Hove Albion`\
 https://nytimes.com/athletic/6765975/2025/11/07/georginio-rutterno-goals-brighton/
