@@ -1,3 +1,15 @@
+**Rise in Kidney Disease Tied to Other Chronic Conditions, Study Finds**\
+`Rates of the disease have been rising for decades, driven in part by diabetes and high blood pressure.`\
+https://nytimes.com/2025/11/07/well/kidney-disease-rise-study.html
+
+**Yung Lean Made it Back From the Brink to Save Himself**\
+`The Swedish rapper Yung Lean emerged more than a decade ago as a teenage internet sensation who found viral and then global fame. After struggling with mental illness and drugs, he’s back now and bigger than ever, with new music, a new film and welcome clarity.`\
+https://nytimes.com/video/podcasts/100000010511844/yung-lean-made-it-back-from-the-brink-to-save-himself.html
+
+**49ers to start QB Mac Jones vs. Rams; Brock Purdy may dress**\
+`Purdy has started only two games this season, with Jones going 5-2 in his place. Jones has thrown for 1,832 yards and 10 touchdowns.`\
+https://nytimes.com/athletic/6781150/2025/11/07/brock-purdy-injury-mac-jones-49ers-rams/
+
 **Lawyers for Letitia James Say Case Against Her Was Motivated by Animus**\
 `The argument came in a motion seeking to dismiss the case against her, citing a laundry list of statements President Trump has made about New York’s attorney general over the past six years.`\
 https://nytimes.com/2025/11/07/us/politics/letitia-james-trump-fraud-justice-department.html

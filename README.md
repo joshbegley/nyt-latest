@@ -1,3 +1,15 @@
+**Virginia Teen Narrowly Defeats Former Civics Teacher in County Election**\
+`Cameran Drew, 19, defeated his former high school government teacher, Kenneth Bell, by 10 votes for a seat on the Surry County Board of Supervisors this week. There are no hard feelings.`\
+https://nytimes.com/2025/11/07/us/politics/surry-county-virginia-supervisor-election.html
+
+**Hegseth Vows to Shake Up the Way the Pentagon Does Business**\
+`In a speech outlining his overhaul plans, the defense secretary called on American weapons makers to surge “at the speed of ingenuity.”`\
+https://nytimes.com/2025/11/07/us/politics/hegseth-pentagon-weapons-business.html
+
+**Raiders fire special teams coordinator one day after blocked punt led to loss vs. Broncos**\
+`Tom McMahon was in his fourth season with the Raiders.`\
+https://nytimes.com/athletic/6788408/2025/11/07/raiders-fire-special-teams-coordinator-tom-mcmahon/
+
 **Rise in Kidney Disease Tied to Other Chronic Conditions, Study Finds**\
 `Rates of the disease have been rising for decades, driven in part by diabetes and high blood pressure.`\
 https://nytimes.com/2025/11/07/well/kidney-disease-rise-study.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6788444/2025/11/07/rams-kicker-harrison-mevis-49ers
 **The Fate of Food Stamps Is in Limbo**\
 `Also, Grammy nominations put hip-hop front and center. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/11/07/briefing/food-stamps-trump-supreme-court.html
-
-**Kendrick Lamar and Lady Gaga Lead the 2026 Grammy Nominees**\
-`Kendrick Lamar is the top nominee for the 2026 Grammy Awards with nine nods. He leads a pack of contenders that includes Lady Gaga with seven nods; and Bad Bunny, Sabrina Carpenter and Leon Thomas with six nods apiece.`\
-https://nytimes.com/video/us/100000010512132/grammy-awards-nominations.html
-
-**49ers to start QB Mac Jones vs. Rams; Brock Purdy may dress**\
-`Purdy has started only two games this season, with Jones going 5-2 in his place. Jones has thrown for 1,832 yards and 10 touchdowns.`\
-https://nytimes.com/athletic/6781150/2025/11/07/brock-purdy-injury-mac-jones-49ers-rams/
-
-**Man United's Bruno Fernandes should prepare for rotation next season, says Amorim**\
-`Fernandes has started all of United’s Premier League games this term, and is second only to Matthijs de Ligt for minutes played.`\
-https://nytimes.com/athletic/6788063/2025/11/07/bruno-fernandes-manchester-united-amorim-rotation/
 
