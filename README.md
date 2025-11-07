@@ -1,3 +1,23 @@
+**Grammy Awards 2026: The Nominees**\
+`Artists, albums and songs competing for trophies at the 68th annual ceremony are being announced on Friday. The show will take place on Feb. 1, 2026, at Crypto.com Arena in Los Angeles.`\
+https://nytimes.com/2025/11/07/arts/music/grammys-nominee-list-2026.html
+
+**A Classic New Orleans Cocktail, Speedy Turkey Chili and ‘Stunning’ Cookies**\
+`Some reader (and staff) favorites from this week.`\
+https://nytimes.com/2025/11/07/dining/a-classic-new-orleans-cocktail-speedy-turkey-chili-and-stunning-cookies.html
+
+**Five Horror Movies to Stream Now**\
+`This month’s picks include a loner on the razor’s edge, a witch on a bloodthirsty mission and an actress walking a doomed path.`\
+https://nytimes.com/2025/11/07/movies/five-horror-movies-to-stream-now.html
+
+**Munetaka Murakami to be posted for MLB signing, can negotiate deal for 45 days: Source**\
+`Murakami seems poised to land a lucrative deal.`\
+https://nytimes.com/athletic/6787385/2025/11/07/japan-munetaka-murakami-posted-for-mlb/
+
+**ATP Tour event for rising youngsters will leave Saudi Arabia, cutting contract short by two years**\
+`The deal between the Saudi Tennis Federation and the ATP for the Next Gen Finals was meant to run through 2027.`\
+https://nytimes.com/athletic/6787365/2025/11/07/tennis-next-gen-atp-finals-jeddah-saudi-arabia/
+
 **Wake Forest University Is Leading A Resurgence in Character Education**\
 `Wake Forest is at the forefront of a national character education movement, serving as a model, source of funding, and thought partner.`\
 https://nytimes.com/paidpost/wake-forest-university/wake-forest-university-schools-of-business/wake-forest-university-is-leading-a-resurgence-in-character-education.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/11/07/us/politics/hegseth-firing-military-leaders.html
 **Rosalía’s ‘Lux’ Is Operatic. But Is It Opera?**\
 `This Spanish pop star’s new album is being advertised as symphonic and operatic. Its music borrows from both, without committing to either.`\
 https://nytimes.com/2025/11/07/arts/music/rosalia-lux-classical-music-opera.html
-
-**Commanders QB Jayden Daniels has no ligament damage, will not need surgery: Source**\
-`The team does not plan to place Daniels on IR at this point. Instead, it will reassess his health after its Week 12 bye.`\
-https://nytimes.com/athletic/6787348/2025/11/07/jayden-daniels-surgery-injured-reserve/
-
-**NHL Power Rankings: A new No. 1, plus Olympic roster bubble boys**\
-`The Avalanche climb into the top spot as we look around the league to see who's playing their way onto — or off of — Olympic rosters. `\
-https://nytimes.com/athletic/6786538/2025/11/07/nhl-power-rankings-olympic-roster-avalanche/
-
-**Spurs' Kudus a doubt to face Man United, says Frank**\
-`The Ghanaian missed Tuesday's win over FC Copenhagen in the Champions League with a knock.`\
-https://nytimes.com/athletic/6787363/2025/11/07/tottenham-mohamed-kudus-injury-manchester-united/
-
-**Villa reach Rogers new contract agreement until 2031**\
-`The deal is set to extend the midfielder's contract by 12 months and include a significant salary raise.`\
-https://nytimes.com/athletic/6784435/2025/11/07/morgan-rogers-aston-villa-contract-new/
-
-**Liverpool academy director Alex Inglethorpe signs new contract**\
-`Inglethorpe joined Liverpool from Spurs as under-21s manager in 2012 before being promoted to the role of academy director two years later.`\
-https://nytimes.com/athletic/6753646/2025/11/07/alex-inglethorpe-liverpool-academy-director-contract/
 
