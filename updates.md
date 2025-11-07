@@ -1,3 +1,7 @@
+**NBA trends I'm watching: Giannis' new bestie, the running of the Bulls and more**\
+`One Bucks pick-and-roll duo has thrived so far this season and could present a major challenge Friday for East-leading Chicago.`\
+https://nytimes.com/athletic/6784862/2025/11/07/giannis-bucks-bulls-thunder-nba-trends/
+
 **The Pulse: Tragedy shakes the NFL**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6785034/2025/11/07/marshawn-kneeland-death-nfl-cowboys-the-pulse/

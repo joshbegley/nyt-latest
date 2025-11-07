@@ -1,3 +1,7 @@
+**NBA trends I'm watching: Giannis' new bestie, the running of the Bulls and more**\
+`One Bucks pick-and-roll duo has thrived so far this season and could present a major challenge Friday for East-leading Chicago.`\
+https://nytimes.com/athletic/6784862/2025/11/07/giannis-bucks-bulls-thunder-nba-trends/
+
 **The Pulse: Tragedy shakes the NFL**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6785034/2025/11/07/marshawn-kneeland-death-nfl-cowboys-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6786213/2025/11/07/penguins-capitals-observations-b
 **The star of 2026 NHL free agency? Mammoth's Nick Schmaltz is taking a big step at the right time**\
 `"I try not to think about it too much," Utah's leading scorer said of pending free agency. "But obviously it’s on your mind at some point."`\
 https://nytimes.com/athletic/6784738/2025/11/07/nick-schmaltz-breakout-nhl-mammoth-free-agency/
-
-**Laila Edwards, the ‘Queen of Cleveland,’ has her sights on Olympics, PWHL Draft**\
-`Edwards, who was back in her hometown of Cleveland for the Rivalry Series this week, is preparing for a big year ahead. `\
-https://nytimes.com/athletic/6786439/2025/11/07/laila-edwards-team-usa-womens-hockey-olympics/
 
