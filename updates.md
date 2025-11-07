@@ -1,3 +1,11 @@
+**Source: Shield-winning Union finalizing club-record deal for new forward**\
+`The Union are still focused on winning MLS Cup 2025, but they're making a significant move for 2026 and beyond as well.`\
+https://nytimes.com/athletic/6787319/2025/11/07/philadelphia-union-club-record-signing-ezekiel-alladoh/
+
+**The Bounce: The Nuggets can't rest Jokić. Plus, an NBA Cupdate (yes, it has begun)**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6784190/2025/11/07/nikola-jokic-nuggets-suns-clippers-nba-the-bounce/
+
 **Fatos Nano, Albanian Leader in Era of Chaos and Transition, Dies at 73**\
 `A consummate political survivor during his country’s shift from brutal communist regime to flawed democracy, he served three stints as prime minister.`\
 https://nytimes.com/2025/11/07/world/europe/fatos-nano-dead.html
