@@ -1,3 +1,11 @@
+**50 Years Later, the Story of the Edmund Fitzgerald Lives On**\
+`John U. Bacon, author of “The Gales of November: The Untold Story of the Edmund Fitzgerald” talks about the famous shipwreck.`\
+https://nytimes.com/2025/11/07/books/review/edmund-fitzgerald-50th-anniversary.html
+
+**Nancy Pelosi Knew Her ‘Why’**\
+`The first female speaker of the House may be the last to truly rule the increasingly unruly chamber.`\
+https://nytimes.com/2025/11/07/us/politics/nancy-pelosi-house-speaker.html
+
 **Protest Disrupts Israeli Philharmonic Orchestra Concert in Paris**\
 `Four people were arrested after a protest at an Israeli Philharmonic Orchestra Concert in Paris on Thursday. Audience members shouted and set off flares during the show, according to French officials.`\
 https://nytimes.com/video/world/europe/100000010511343/israel-philharmonic-concert-arrests-france.html
