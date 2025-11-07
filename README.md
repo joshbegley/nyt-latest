@@ -1,3 +1,7 @@
+**Live From the 10th Floor**\
+``\
+https://nytimes.com/series/live-from-10th-floor
+
 **Flashback: Your Weekly History Quiz, Nov. 8, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/11/07/upshot/flashback.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6210404/2025/11/07/milutin-osmajic-racism-ban-prest
 **WATCH: Don't write off Daniel Jones over Week 9 turnovers**\
 `Daniel Jones' MVP candidacy took a hit in Week 9 when he had five turnovers against the Steelers.`\
 https://nytimes.com/athletic/6787396/2025/11/07/colts-daniel-jones-qb-turnovers-steelers-video/
-
-**Pumpkin Crumb Cake**\
-`This pumpkin-packed crumb cake is everything that is wonderful about fall baking. Warmly spiced, moist pumpkin cake topped with spicy, crispy streusel and topped with an optional but delicious glaze.`\
-https://nytimes.com/video/dining/100000010366877/pumpkin-crumb-cake.html
 
