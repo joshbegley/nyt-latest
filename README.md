@@ -1,3 +1,7 @@
+**Judge Blocks National Guard From Portland, Ore., Permanently**\
+`With her temporary block expiring, Judge Karin Immergut said the Trump administration had failed to prove that protesters were hampering President Trump’s policies.`\
+https://nytimes.com/2025/11/07/us/politics/portland-oregon-national-guard.html
+
 **CFP oversight committee leader not optimistic about 16-team expansion next season**\
 `CFP leaders have a Dec. 1 deadline to inform their television partners at ESPN of any changes to the format for next year.`\
 https://nytimes.com/athletic/6788675/2025/11/07/college-football-playoff-16-team-expansion-talks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6788421/2025/11/07/transgender-lawsuit-women-track-
 **A Democrat Pushing 80 Confronts the Young(er) and Restless**\
 `A fight brewing in Massachusetts could preview Democrats’ age battles.`\
 https://nytimes.com/2025/11/07/us/politics/massachusetts-senate-markey-moulton-pressley.html
-
-**Kentucky's Zach Calzada apologizes for viral video of him flashing money**\
-`After reportedly paying the quarterback more than $1 million in the offseason, Kentucky benched Calzada early in the season.`\
-https://nytimes.com/athletic/6788095/2025/11/07/kentucky-zach-calzada-video-money/
 
