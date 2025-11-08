@@ -1,3 +1,11 @@
+**'Let’s see when the window is open' - Amorim on Man Utd transfers, Sesko injury update**\
+`In addition to Sesko's injury, United trio Amad, Mazraoui, and Mbeumo will be competing at AFCON in December.`\
+https://nytimes.com/athletic/6789821/2025/11/08/manchester-united-transfer-news-sesko-injury-afcon/
+
+**Tony Parker named head coach of French under-17 men's basketball team**\
+`The basketball Hall of Famer's move is partly inspired by his late father's wish that Parker coach for France and in the NBA.`\
+https://nytimes.com/athletic/6789579/2025/11/08/tony-parker-france-u17-basketball-team-coach/
+
 **How to watch Capitals vs. Lightning: Time, TV, streaming**\
 `Find out how to watch the Washington Capitals play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6789905/2025/11/08/capitals-vs-lightning-stream-how-to-watch-nov-8/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6789892/2025/11/08/pelicans-vs-spurs-stream-how-to-
 **How to watch Mavericks vs. Wizards: Time, TV, streaming**\
 `Find out how to watch the Dallas Mavericks play the Washington Wizards, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6789891/2025/11/08/mavericks-vs-wizards-stream-how-to-watch-nov-8/
-
-**How to watch Islanders vs. Rangers: Time, TV, streaming**\
-`Find out how to watch the New York Islanders play the New York Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6789887/2025/11/08/islanders-vs-rangers-stream-how-to-watch-nov-8/
-
-**How to watch Trail Blazers vs. Heat: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the Miami Heat, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6789884/2025/11/08/trail-blazers-vs-heat-stream-how-to-watch-nov-8/
 
