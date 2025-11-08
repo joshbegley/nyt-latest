@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6789538/2025/11/08/wta-tour-finals-saudi-arabia-dea
 
 **Shai Gilgeous-Alexander wants more and that should frighten the rest of the NBA**\
 `Gilgeous-Alexander and the Oklahoma City Thunder were historically great last season. The NBA MVP thinks he and the team can be even better.`\
-https://nytimes.com/athletic/6789238/2025/11/08/shai-gilgeous-alexander-wants-more-and-that-should-frighten-the-rest-of-the-nba/
+https://nytimes.com/athletic/6789238/2025/11/08/shai-gilgeous-alexander-thunder-early-season-success/
 
 **The Briefing: Spurs 2 Man Utd 2 - Frank misses big moment, Lammens' pair of saves and De Ligt delight**\
 `Tottenham Hotspur and Manchester United played out a dramatic 2-2 draw on Saturday afternoon`\
