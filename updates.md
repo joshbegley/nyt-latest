@@ -1,3 +1,7 @@
+**Pfizer to Acquire Obesity Drug Start-Up Metsera in $10 Billion Deal**\
+`The announcement of the deal signaled an end to the bidding war for Metsera between Pfizer and Novo Nordisk, the Danish maker of Ozempic and Wegovy.`\
+https://nytimes.com/2025/11/08/business/metsera-pfizer-merger-weight-loss.html
+
 **UPS and FedEx Ground MD-11 Cargo Planes After Louisville Crash**\
 `The cargo airlines said they had taken the step to immediately ground the fleets on the recommendation of the plane’s manufacturer.`\
 https://nytimes.com/2025/11/08/us/ups-fedex-cargo-planes-grounded.html

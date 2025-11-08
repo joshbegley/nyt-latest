@@ -1,3 +1,7 @@
+**Pfizer to Acquire Obesity Drug Start-Up Metsera in $10 Billion Deal**\
+`The announcement of the deal signaled an end to the bidding war for Metsera between Pfizer and Novo Nordisk, the Danish maker of Ozempic and Wegovy.`\
+https://nytimes.com/2025/11/08/business/metsera-pfizer-merger-weight-loss.html
+
 **UPS and FedEx Ground MD-11 Cargo Planes After Louisville Crash**\
 `The cargo airlines said they had taken the step to immediately ground the fleets on the recommendation of the plane’s manufacturer.`\
 https://nytimes.com/2025/11/08/us/ups-fedex-cargo-planes-grounded.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6786743/2025/11/08/manchester-city-rayan-cherki-mav
 **Chelsea's new sporting director, Dave Fallows: 'A diamond to have in your camp'**\
 `Dave Fallows has worked for Newcastle, Manchester City and Liverpool, and is now part of a five-strong leadership group at Stamford Bridge`\
 https://nytimes.com/athletic/6786812/2025/11/08/chelsea-dave-fallows-sporting-director-diamond/
-
-**Liverpool and Man City have little margin for error. Can either challenge Arsenal?**\
-`Liverpool and City meet on Sunday and neither can afford to lose as they look to keep up the chase to first-placed Arsenal`\
-https://nytimes.com/athletic/6784880/2025/11/08/liverpool-and-man-city-have-little-margin-for-error-can-either-challenge-arsenal/
 
