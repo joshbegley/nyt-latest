@@ -1,3 +1,11 @@
+**The Flatiron Building Enters Its Condo Era**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/the-flatiron-building-enters-its-condo-era
+
+**Projecting Oilers' upcoming roster decisions: Who's most likely to go?**\
+`EDMONTON — The Edmonton Oilers&#8217; long-awaited roster crunch is coming to a head.`\
+https://nytimes.com/athletic/6788504/2025/11/07/oilers-roster-salary-cap-janmark-hyman/
+
 **Federal Judge Rules Against Trump Officials on Partisan Email Messages**\
 `The email accounts of furloughed government workers had been commandeered to send partisan attacks against Democrats, a move that the ruling said had “added insult to injury.”`\
 https://nytimes.com/2025/11/07/us/politics/education-department-emails-shutdown.html
