@@ -1,3 +1,11 @@
+**Women's tennis chief Portia Archer wants to extend WTA Tour Finals deal with Saudi Arabia**\
+`The current agreement between the WTA Tour and Saudi Arabia's sports authority ends in 2027.`\
+https://nytimes.com/athletic/6789538/2025/11/08/wta-tour-finals-saudi-arabia-deal-chief-executive/
+
+**Shai Gilgeous-Alexander wants more and that should frighten the rest of the NBA**\
+`Gilgeous-Alexander and the Oklahoma City Thunder were historically great last season. The NBA MVP thinks he and the team can be even better.`\
+https://nytimes.com/athletic/6789238/2025/11/08/shai-gilgeous-alexander-wants-more-and-that-should-frighten-the-rest-of-the-nba/
+
 **The Briefing: Spurs 2 Man Utd 2 - Frank misses big moment, Lammens' pair of saves and De Ligt delight**\
 `Tottenham Hotspur and Manchester United played out a dramatic 2-2 draw on Saturday afternoon`\
 https://nytimes.com/athletic/6784510/2025/11/08/tottenham-manchester-united-score-result-report-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6789521/2025/11/08/northern-kentucky-vs-tennessee-s
 **Can Drew Doughty help the Kings find stable ground — and earn a ticket to the Olympics?**\
 `In his 18th season, Doughty has had his minutes reduced and is dealing with some criticism.`\
 https://nytimes.com/athletic/6788040/2025/11/08/drew-doughty-kings-olympics/
-
-**Connor Bedard leading the way — and briefly leading the NHL — as Blackhawks roll**\
-`In his third NHL season, Bedard is starting to look like one of the best players in the world.`\
-https://nytimes.com/athletic/6789059/2025/11/08/blackhawks-connor-bedard-nhl-points-leaders/
-
-**Pauline Collins, 85, Dies; Stage and Screen Star of ‘Shirley Valentine’**\
-`She often played a particularly British character: a bubbly yet resilient woman facing down the corrosive effects of everyday modern life.`\
-https://nytimes.com/2025/11/08/movies/pauline-collins-dead.html
 
