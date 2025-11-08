@@ -1,4 +1,12 @@
-**Peter Watkins, Provocateur With a Movie Camera, Dies at 89**\
+**Elena Rybakina declines photo with women's tennis chief at WTA Tour Finals trophy ceremony**\
+`Rybakina won $5.3 million in beating world No. 1 Aryna Sabalenka to lift the season-ending trophy.`\
+https://nytimes.com/athletic/6790044/2025/11/08/tennis-elena-rybakina-wta-investigation-stefano-vukov/
+
+**The Briefing: Sunderland 2 Arsenal 2 - How was defence breached? Saka and Trossard step up (again)**\
+`Arsenal lost their clean sheet record to Sunderland at the Stadium of Light in a pulsating encounter - The Athletic analyses the action`\
+https://nytimes.com/athletic/6784511/2025/11/08/sunderland-2-arsenal-2-conceded-saka-trossard-ballard/
+
+**Peter Watkins, Provocateur With a Movie Camera, Dies at 90**\
 `His Oscar-winning 1965 film “The War Game” depicted a post-nuclear-attack England, one of his many fictionalized docudramas against war and repression.`\
 https://nytimes.com/2025/11/08/movies/peter-watkins-dead.html
 
@@ -14,7 +22,7 @@ https://nytimes.com/2025/11/08/world/asia/anthony-grey-dead.html
 `Born without the use of his legs, he appeared memorably on television on “Doctor Who” and onstage as, among many other roles, Hamlet.`\
 https://nytimes.com/2025/11/08/theater/nabil-shaban-dead.html
 
-**Novak Djokovic eliminates Lorenzo Musetti from ATP Tour Finals race – for now**\
+**Novak Djokovic eliminates Lorenzo Musetti from ATP Tour Finals race — then withdraws**\
 `The seven-time ATP Tour Finals champion defeated the Italian in three grueling sets at the Hellenic Championship in Athens.`\
 https://nytimes.com/athletic/6789369/2025/11/08/djokovic-atp-tour-finals-turin-musetti/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6789915/2025/11/08/keegan-michael-key-joins-panther
 **Elena Rybakina paints the lines again to triumph over Aryna Sabalenka at WTA Tour Finals**\
 `The 2022 Wimbledon champion eased past the world No. 1 to cap her late-season surge back to the top of tennis.`\
 https://nytimes.com/athletic/6789352/2025/11/08/sabalenka-rybakina-wta-tour-finals-result-analysis/
-
-**Man Dies After Slipping and Falling in Grand Canyon West**\
-`The body of a 65-year-old man, who fell 130 feet, was recovered on Thursday, officials said.`\
-https://nytimes.com/2025/11/08/us/grand-canyon-fall-death.html
-
-**'Let’s see when the window is open' - Amorim on Man Utd transfers, Sesko injury update**\
-`In addition to Sesko's injury, United trio Amad, Mazraoui, and Mbeumo will be competing at AFCON in December.`\
-https://nytimes.com/athletic/6789821/2025/11/08/manchester-united-transfer-news-sesko-injury-afcon/
 
