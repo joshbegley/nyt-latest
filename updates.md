@@ -1,3 +1,7 @@
+**Omar Cooper Jr.'s gravity-defying, toe-tap TD lifts Indiana over Penn State**\
+`Indiana quarterback Fernando Mendoza orchestrated the Hoosiers' final touchdown in under two minutes, capped by Cooper Jr.'s heroics.`\
+https://nytimes.com/athletic/6790147/2025/11/08/penn-state-indiana-football-upset-game-analysis/
+
 **College Football Playoff 2025 projections: Where the bracket stands with Week 11 underway**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/11/08/college-football-playoff-bracket-projections-odds/
