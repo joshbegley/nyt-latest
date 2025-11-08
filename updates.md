@@ -1,3 +1,11 @@
+**Dodgers' Alex Vesia announces death of newborn daughter after missing World Series**\
+`The Vesias wrote: 'We have seen ALL your messages, comments and posts. It’s brought us so much comfort.'`\
+https://nytimes.com/athletic/6788740/2025/11/07/dodgers-alex-vesia-daughter/
+
+**Judge Permanently Blocks National Guard Deployments to Portland for ICE Protests**\
+`With her temporary block expiring, Judge Karin Immergut said the Trump administration had failed to prove that protesters against the federal immigration crackdown were hampering President Trump’s policies.`\
+https://nytimes.com/2025/11/07/us/politics/portland-oregon-national-guard.html
+
 **Judge Blocks National Guard From Portland, Ore., Permanently**\
 `With her temporary block expiring, Judge Karin Immergut said the Trump administration had failed to prove that protesters against the federal immigration crackdown were hampering President Trump’s policies.`\
 https://nytimes.com/2025/11/07/us/politics/portland-oregon-national-guard.html
