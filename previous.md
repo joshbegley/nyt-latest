@@ -1,3 +1,7 @@
+**UPS and FedEx Ground MD-11 Cargo Planes After Louisville Crash**\
+`The cargo airlines said they had taken the step to immediately ground the fleets on the recommendation of the plane’s manufacturer.`\
+https://nytimes.com/2025/11/08/us/ups-fedex-cargo-planes-grounded.html
+
 **A year after cancer diagnosis, Luana scores late goal to help Pride advance to NWSL semifinals**\
 `Marta, 38, assisted the last-minute goal.`\
 https://nytimes.com/athletic/6788932/2025/11/08/orlando-pride-luana-goal-nwsl-cancer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6786812/2025/11/08/chelsea-dave-fallows-sporting-di
 **Liverpool and Man City have little margin for error. Can either challenge Arsenal?**\
 `Liverpool and City meet on Sunday and neither can afford to lose as they look to keep up the chase to first-placed Arsenal`\
 https://nytimes.com/athletic/6784880/2025/11/08/liverpool-and-man-city-have-little-margin-for-error-can-either-challenge-arsenal/
-
-**Long throws and the striker with no shots on target: A statistical Premier League postcard, 100 games in**\
-`A look at some of the quirkier things you might have missed so far this season...`\
-https://nytimes.com/athletic/6783384/2025/11/08/premier-league-stats-2025-26/
 
