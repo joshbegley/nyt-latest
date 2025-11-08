@@ -1,3 +1,11 @@
+**Biden Warns of a ‘Very, Very Dark Moment’ as He Hits Out at Trump**\
+`The former president, now a far less popular figure in his party, appeared in Nebraska for an overtly political speech that slammed his successor.`\
+https://nytimes.com/2025/11/07/us/politics/biden-trump-omaha-nebraska.html
+
+**Mavericks' misery continues with road loss to Grizzlies**\
+`The Mavericks have had the NBA's worst offense for most of this season and now own the worst record in the Western Conference. `\
+https://nytimes.com/athletic/6788920/2025/11/07/mavericks-losing-streak-grizzlies-ja-morant/
+
 **Limited Disruptions as Flight Cuts Begin at Major Airports**\
 `About 3 percent of Friday’s flights were canceled because of the government shutdown. The percentage could rise to 20 percent as the holidays approach.`\
 https://nytimes.com/2025/11/07/us/airport-flight-cancellations-faa-shutdown.html

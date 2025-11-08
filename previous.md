@@ -1,8 +1,12 @@
+**Biden Warns of a ‘Very, Very Dark Moment’ as He Hits Out at Trump**\
+`The former president, now a far less popular figure in his party, appeared in Nebraska for an overtly political speech that slammed his successor.`\
+https://nytimes.com/2025/11/07/us/politics/biden-trump-omaha-nebraska.html
+
 **Limited Disruptions as Flight Cuts Begin at Major Airports**\
 `About 3 percent of Friday’s flights were canceled because of the government shutdown. The percentage could rise to 20 percent as the holidays approach.`\
 https://nytimes.com/2025/11/07/us/airport-flight-cancellations-faa-shutdown.html
 
-**Mavericks' misery continues with fourth straight loss to Grizzlies**\
+**Mavericks' misery continues with road loss to Grizzlies**\
 `The Mavericks have had the NBA's worst offense for most of this season and now own the worst record in the Western Conference. `\
 https://nytimes.com/athletic/6788920/2025/11/07/mavericks-losing-streak-grizzlies-ja-morant/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/07/sports/tennis/atp-finals-pressure-qualify.html
 **See Where Flights Have Been Canceled Across the U.S.**\
 `Hundreds of flights across the United States were canceled starting on Friday, with deeper cuts looming in the coming days.`\
 https://nytimes.com/interactive/2025/11/07/us/flight-cancellations-airports.html
-
-**What Happened to Swedish Tennis?**\
-`The country was once a force, with Bjorn Borg and Mats Wilander leading the way. Now, none of its players are highly ranked.`\
-https://nytimes.com/2025/11/07/sports/tennis/swedish-tennis.html
 
