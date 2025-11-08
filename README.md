@@ -1,3 +1,7 @@
+**Pauline Collins, 85, Dies; Stage and Screen Star of ‘Shirley Valentine’**\
+`She often played a particularly British character: a bubbly yet resilient woman facing down the corrosive effects of everyday modern life.`\
+https://nytimes.com/2025/11/08/movies/pauline-collins-dead.html
+
 **'Our defense sucks': Draymond Green offers blunt assessment of Warriors after loss to Nuggets**\
 `While Green hard sharp words for the defense, and himself, Warriors coach Steve Kerr noted the team's "lack of purpose and energy."`\
 https://nytimes.com/athletic/6789186/2025/11/08/warriors-draymond-green-nuggets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6789065/2025/11/08/unc-kansas-score-result-caleb-wi
 **A hard shot, stiff stick and no TV: Tales of Hall of Famer Zdeno Chara's time with Senators**\
 `The mountainous Slovakian defenseman spent four seasons with Ottawa and left an indelible mark on the franchise and his teammates.`\
 https://nytimes.com/athletic/6785172/2025/11/08/hockey-hall-of-fame-zdeno-chara-senators/
-
-**Luke Fickell is returning to Wisconsin, but Badgers have lost their way**\
-`The bottom fell out for Wisconsin this season with one of the lowest-scoring offenses in college football.`\
-https://nytimes.com/athletic/6788916/2025/11/08/wisconsin-luke-fickell-return/
 

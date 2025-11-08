@@ -1,3 +1,7 @@
+**'Our defense sucks': Draymond Green offers blunt assessment of Warriors after loss to Nuggets**\
+`While Green hard sharp words for the defense, and himself, Warriors coach Steve Kerr noted the team's "lack of purpose and energy."`\
+https://nytimes.com/athletic/6789186/2025/11/08/warriors-draymond-green-nuggets/
+
 **The Pulse: The exploding NFL trade deadline**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6788988/2025/11/08/how-the-nfl-trade-deadline-went-from-nothing-to-downright-lively/
