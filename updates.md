@@ -1,3 +1,7 @@
+**UPS and FedEx Ground MD-11 Cargo Planes After Louisville Crash**\
+`Boeing, the plane’s manufacturer, said it had recommended the grounding as a precaution while it conducts further analysis.`\
+https://nytimes.com/2025/11/08/us/ups-fedex-cargo-planes-grounded.html
+
 **Exercising Is the Worst**\
 `Exercise has never been fun, but our expectations for physical performance, what it means to be healthy, and what it means to age have gotten too high.`\
 https://nytimes.com/2025/11/08/opinion/excercise-fitness-optimization.html
