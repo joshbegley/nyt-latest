@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6790230/2025/11/08/ducks-vs-golden-knights-stream-h
 https://nytimes.com/athletic/6790228/2025/11/08/avalanche-vs-oilers-stream-how-to-watch-nov-8/
 
 **Luis Diaz just scored from this angle. The XG? 0.03**\
-`Only one goal, which came directly from a corner, has been scored from a tighter angle across Europe's top-five leagues this season`\
+`Only one goal, which went in directly from a corner, has been scored from a tighter angle across Europe's top five leagues this season`\
 https://nytimes.com/athletic/6789814/2025/11/08/luis-diaz-goal-bayern-munich/
 
 **Commanders owners anticipate potential stadium name discussion with Trump**\
