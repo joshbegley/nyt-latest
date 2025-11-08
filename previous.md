@@ -1,5 +1,13 @@
-**Giannis Antetokounmpo puts up 41 points in Bucks' NBA Cup win vs. Bulls**\
-`Antetokounmpo posted his second 40-point game of the season and his fifth game with over 30 points.`\
+**Limited Disruptions as Flight Cuts Begin at Major Airports**\
+`About 3 percent of Friday’s flights were canceled because of the government shutdown. The percentage could rise to 20 percent as the holidays approach.`\
+https://nytimes.com/2025/11/07/us/airport-flight-cancellations-faa-shutdown.html
+
+**Mavericks' misery continues with fourth straight loss to Grizzlies**\
+`The Mavericks have had the NBA's worst offense for most of this season and now own the worst record in the Western Conference. `\
+https://nytimes.com/athletic/6788920/2025/11/07/mavericks-losing-streak-grizzlies-ja-morant/
+
+**Giannis Antetokounmpo puts up 41 points in Bucks' NBA Cup win over Bulls**\
+`Antetokounmpo posted his second 40-point game of the season for the Bucks, who opened their NBA Cup title defense with a win.`\
 https://nytimes.com/athletic/6788923/2025/11/07/giannis-antetokounmpo-bucks-bulls-nba-cup/
 
 **The DNA Helix Changed How We Thought About Ourselves**\
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/11/07/us/flight-cancellations-airports.html
 **What Happened to Swedish Tennis?**\
 `The country was once a force, with Bjorn Borg and Mats Wilander leading the way. Now, none of its players are highly ranked.`\
 https://nytimes.com/2025/11/07/sports/tennis/swedish-tennis.html
-
-**How to Do a Perfect Dumbbell Bench Press**\
-`Master this move to build upper-body strength.`\
-https://nytimes.com/interactive/2025/11/07/well/move/dumbbell-press-technique.html
-
-**Dodgers' Alex Vesia announces death of newborn daughter after missing World Series**\
-`The Vesias wrote: 'We have seen ALL your messages, comments and posts. It’s brought us so much comfort.'`\
-https://nytimes.com/athletic/6788740/2025/11/07/dodgers-alex-vesia-daughter/
 
