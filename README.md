@@ -1,3 +1,7 @@
+**A year after cancer diagnosis, Luana scores late goal to help Pride advance to NWSL semifinals**\
+`Marta assisted the came-changing goal.`\
+https://nytimes.com/athletic/6788932/2025/11/08/orlando-pride-luana-goal-nwsl-cancer/
+
 **The New York Times in Print for Saturday, Nov. 8, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/08/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6784880/2025/11/08/liverpool-and-man-city-have-litt
 **Long throws and the striker with no shots on target: A statistical Premier League postcard, 100 games in**\
 `A look at some of the quirkier things you might have missed so far this season...`\
 https://nytimes.com/athletic/6783384/2025/11/08/premier-league-stats-2025-26/
-
-**In China, the Dream of Outrunning Time**\
-`Longevity labs, “immortality islands” and grapeseed pills are part of China’s national project to conquer aging, despite sometimes shaky science and extravagant claims.`\
-https://nytimes.com/2025/11/08/world/asia/china-aging-longevity-science.html
 
