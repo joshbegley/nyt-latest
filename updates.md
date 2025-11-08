@@ -1,3 +1,7 @@
+**The Briefing: Spurs 2 Man Utd 2 - Frank misses big moment, Lammens' pair of saves and De Ligt delight**\
+`Tottenham Hotspur and Manchester United played out a dramatic 2-2 draw on Saturday afternoon`\
+https://nytimes.com/athletic/6784510/2025/11/08/tottenham-manchester-united-score-result-report-analysis/
+
 **How to watch Stars vs. Predators: Time, TV, streaming**\
 `Find out how to watch the Dallas Stars play the Nashville Predators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6789553/2025/11/08/stars-vs-predators-stream-how-to-watch-nov-8/

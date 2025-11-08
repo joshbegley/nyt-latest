@@ -1,3 +1,7 @@
+**The Briefing: Spurs 2 Man Utd 2 - Frank misses big moment, Lammens' pair of saves and De Ligt delight**\
+`Tottenham Hotspur and Manchester United played out a dramatic 2-2 draw on Saturday afternoon`\
+https://nytimes.com/athletic/6784510/2025/11/08/tottenham-manchester-united-score-result-report-analysis/
+
 **How to watch Stars vs. Predators: Time, TV, streaming**\
 `Find out how to watch the Dallas Stars play the Nashville Predators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6789553/2025/11/08/stars-vs-predators-stream-how-to-watch-nov-8/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6789059/2025/11/08/blackhawks-connor-bedard-nhl-poi
 **Pauline Collins, 85, Dies; Stage and Screen Star of ‘Shirley Valentine’**\
 `She often played a particularly British character: a bubbly yet resilient woman facing down the corrosive effects of everyday modern life.`\
 https://nytimes.com/2025/11/08/movies/pauline-collins-dead.html
-
-**'Our defense sucks': Draymond Green offers blunt assessment of Warriors after loss to Nuggets**\
-`While Green hard sharp words for the defense, and himself, Warriors coach Steve Kerr noted the team's "lack of purpose and energy."`\
-https://nytimes.com/athletic/6789186/2025/11/08/warriors-draymond-green-nuggets/
 
