@@ -1,3 +1,11 @@
+**The New York Times in Print for Saturday, Nov. 8, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/08/todays-new-york-times
+
+**Exercising Is the Worst**\
+`Exercise has never been fun, but our expectations for physical performance, what it means to be healthy, and what it means to age have gotten too high.`\
+https://nytimes.com/2025/11/08/opinion/excercise-fitness-optimization.html
+
 **Tornado Rips Through Southern Brazil, Killing at Least 5 People**\
 `Pounding rain and winds of over 150 miles per hour left a trail of devastation in the state of Paraná in Brazil.`\
 https://nytimes.com/2025/11/08/world/americas/tornado-brazil-deaths.html
@@ -6,7 +14,7 @@ https://nytimes.com/2025/11/08/world/americas/tornado-brazil-deaths.html
 `Clubs in English football will mark Remembrance Sunday by playing the ‘Last Post’, laying wreaths, and observing a minute's silence`\
 https://nytimes.com/athletic/6786905/2025/11/08/rememberance-sunday-premier-league-armistice-day/
 
-**Jaylen Brown says refs made point in Celtics loss: 'I'll keep my mouth closed'**\
+**Jaylen Brown says refs made point in Celtics' loss to Magic: 'I'll keep my mouth closed'**\
 `Brown seemed to be suggesting that the referees wanted retribution against him after he criticized officials earlier in the week.`\
 https://nytimes.com/athletic/6789019/2025/11/08/jaylen-brown-refs-celtics-magic/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6783384/2025/11/08/premier-league-stats-2025-26/
 **In China, the Dream of Outrunning Time**\
 `Longevity labs, “immortality islands” and grapeseed pills are part of China’s national project to conquer aging, despite sometimes shaky science and extravagant claims.`\
 https://nytimes.com/2025/11/08/world/asia/china-aging-longevity-science.html
-
-**The footballer who survived a train knife attack: 'He told me he’ll be back in a month':**\
-`Former team-mates and coaches believe the 22-year-old has the strength of mind and spirit to make a full recovery`\
-https://nytimes.com/athletic/6786936/2025/11/08/jonathan-gjoshe-footballer-railway-stabbing/
-
-**What I Learned From the ‘New Globalists’ of an Optimistic Nation**\
-`Few countries are excited about globalization anymore, but Vietnam is still into it — wholeheartedly. Do the reasons go beyond economic growth?`\
-https://nytimes.com/2025/11/08/world/asia/what-i-learned-from-the-new-globalists-of-an-optimistic-nation.html
 

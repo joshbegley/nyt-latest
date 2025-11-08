@@ -1,3 +1,15 @@
+**The New York Times in Print for Saturday, Nov. 8, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/08/todays-new-york-times
+
+**Exercising Is the Worst**\
+`Exercise has never been fun, but our expectations for physical performance, what it means to be healthy, and what it means to age have gotten too high.`\
+https://nytimes.com/2025/11/08/opinion/excercise-fitness-optimization.html
+
+**Jaylen Brown says refs made point in Celtics' loss to Magic: 'I'll keep my mouth closed'**\
+`Brown seemed to be suggesting that the referees wanted retribution against him after he criticized officials earlier in the week.`\
+https://nytimes.com/athletic/6789019/2025/11/08/jaylen-brown-refs-celtics-magic/
+
 **Tornado Rips Through Southern Brazil, Killing at Least 5 People**\
 `Pounding rain and winds of over 150 miles per hour left a trail of devastation in the state of Paraná in Brazil.`\
 https://nytimes.com/2025/11/08/world/americas/tornado-brazil-deaths.html
