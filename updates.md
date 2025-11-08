@@ -1,3 +1,11 @@
+**The Sprint for City Hall **\
+`Looking back at a momentous election and the challenges that await Mayor-elect Zohran Mamdani.`\
+https://nytimes.com/card/2025/11/08/nyregion/sprint-city-hall-mamdani
+
+**There Is No One-Size-Fits-All Template for Winning Elections**\
+`We can’t pretend to know the future of the Democratic Party.`\
+https://nytimes.com/2025/11/08/opinion/democrats-elections-new-york-new-jersey-virginia.html
+
 **Families in Limbo After Supreme Court Order Interrupts Food Stamp Payments**\
 `The fate of SNAP was once again in question on Saturday after the Supreme Court temporarily agreed to allow the Trump administration to withhold full aid under the program.`\
 https://nytimes.com/2025/11/08/us/politics/families-food-stamps-supreme-court-order.html
