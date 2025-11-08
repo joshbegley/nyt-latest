@@ -1,3 +1,11 @@
+**Peter Watkins, Provocateur With a Movie Camera, Dies at 89**\
+`His Oscar-winning 1965 film “The War Game” depicted a post-nuclear-attack England, one of his many fictionalized docudramas against war and repression.`\
+https://nytimes.com/2025/11/08/movies/peter-watkins-dead.html
+
+**Lando Norris boosts F1 title hopes with Brazil pole while rivals Verstappen, Piastri struggle**\
+`Lando Norris completed a perfect day at Interlagos, as the 2025 F1 Brazil sprint race winner topped grand prix qualifying too`\
+https://nytimes.com/athletic/6790007/2025/11/08/brazilian-gp-qualifying-results/
+
 **Norris boosts his F1 title hopes with Brazil pole. Verstappen exits in Q1, Piastri struggles**\
 `McLaren&#8217;s Lando Norris powered back from an early Q3 scare to to secure pole position for Formula One&#8217;s 2025 Brazilian Grand Prix, while Mercedes driver Kimi Antonelli put together a final flyer to take second on the grid behind the championship leader.`\
 https://nytimes.com/athletic/6790007/2025/11/08/brazilian-gp-qualifying-results/
