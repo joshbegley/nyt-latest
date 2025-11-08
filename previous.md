@@ -1,3 +1,15 @@
+**Parkinson and Jones have history - but both are battling to prove their worth in second tier**\
+`Wrexham fans don't much like the Charlton manager - he's starting to think his trips to North Wales are 'jinxed'`\
+https://nytimes.com/athletic/6773016/2025/11/08/wrexham-charlton-phil-parkinson-nathan-jones-championship/
+
+**As Beef Prices Remain High, Trump Calls for Inquiry Into Meatpackers**\
+`The Justice Department has opened an investigation into possible collusion among the big meatpackers. The effort may mollify ranchers, but it’s unclear how far it will go.`\
+https://nytimes.com/2025/11/08/business/trump-meatpackers-investigation.html
+
+**Trump Gives Hungary a Reprieve on Sanctions After Meeting With Orban**\
+`The United States has imposed sanctions on nations buying Russian oil, but President Viktor Orban successfully argued that Hungary had few other options.`\
+https://nytimes.com/2025/11/08/us/politics/trump-gives-hungarys-orban-reprieve-on-sanctions-after-meeting.html
+
 **College Football Playoff 2025 projections: Where the bracket stands with Week 11 underway**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/11/08/college-football-playoff-bracket-projections-odds/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6790236/2025/11/08/panthers-vs-sharks-stream-how-to
 **How to watch Blue Jackets vs. Canucks: Time, TV, streaming**\
 `Find out how to watch the Columbus Blue Jackets play the Vancouver Canucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6790234/2025/11/08/blue-jackets-vs-canucks-stream-how-to-watch-nov-8/
-
-**How to watch Suns vs. Clippers: Time, TV, streaming**\
-`Find out how to watch the Phoenix Suns play the Los Angeles Clippers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6790232/2025/11/08/suns-vs-clippers-stream-how-to-watch-nov-8/
-
-**How to watch Ducks vs. Golden Knights: Time, TV, streaming**\
-`Find out how to watch the Anaheim Ducks play the Vegas Golden Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6790230/2025/11/08/ducks-vs-golden-knights-stream-how-to-watch-nov-8/
-
-**How to watch Avalanche vs. Oilers: Time, TV, streaming**\
-`Find out how to watch the Colorado Avalanche play the Edmonton Oilers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6790228/2025/11/08/avalanche-vs-oilers-stream-how-to-watch-nov-8/
 

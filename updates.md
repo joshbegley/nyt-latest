@@ -1,3 +1,15 @@
+**Parkinson and Jones have history - but both are battling to prove their worth in second tier**\
+`Wrexham fans don't much like the Charlton manager - he's starting to think his trips to North Wales are 'jinxed'`\
+https://nytimes.com/athletic/6773016/2025/11/08/wrexham-charlton-phil-parkinson-nathan-jones-championship/
+
+**As Beef Prices Remain High, Trump Calls for Inquiry Into Meatpackers**\
+`The Justice Department has opened an investigation into possible collusion among the big meatpackers. The effort may mollify ranchers, but it’s unclear how far it will go.`\
+https://nytimes.com/2025/11/08/business/trump-meatpackers-investigation.html
+
+**Trump Gives Hungary a Reprieve on Sanctions After Meeting With Orban**\
+`The United States has imposed sanctions on nations buying Russian oil, but President Viktor Orban successfully argued that Hungary had few other options.`\
+https://nytimes.com/2025/11/08/us/politics/trump-gives-hungarys-orban-reprieve-on-sanctions-after-meeting.html
+
 **Omar Cooper Jr.'s gravity-defying, toe-tap TD lifts Indiana over Penn State**\
 `Indiana quarterback Fernando Mendoza orchestrated the Hoosiers' final touchdown in under two minutes, capped by Cooper Jr.'s heroics.`\
 https://nytimes.com/athletic/6790147/2025/11/08/penn-state-indiana-football-upset-game-analysis/
