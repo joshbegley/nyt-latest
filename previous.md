@@ -1,3 +1,11 @@
+**Novak Djokovic eliminates Lorenzo Musetti from ATP Tour Finals race – for now**\
+`The seven-time ATP Tour Finals champion defeated the Italian in three grueling sets at the Hellenic Championship in Athens.`\
+https://nytimes.com/athletic/6789369/2025/11/08/djokovic-atp-tour-finals-turin-musetti/
+
+**Extremely Low Cholesterol Future Seen in Trial Results for Merck Pill**\
+`The drug targets the PCSK9 protein, and could give millions of people a more affordable option to reduce their heart disease risk.`\
+https://nytimes.com/2025/11/08/health/merck-cholesterol-pill-pcsk9.html
+
 **Keegan-Michael Key joins Panthers meeting, supports Rico Dowdle**\
 `Keegan-Michael Key continued to support Rico Dowdle after his TD celebration, pledging to donate $15,000 to the charity of his choice.`\
 https://nytimes.com/athletic/6789915/2025/11/08/keegan-michael-key-joins-panthers-team-meeting-to-show-support-for-rico-dowdle/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6789902/2025/11/08/bruins-vs-maple-leafs-stream-how
 **How to watch Bulls vs. Cavaliers: Time, TV, streaming**\
 `Find out how to watch the Chicago Bulls play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6789900/2025/11/08/bulls-vs-cavaliers-stream-how-to-watch-nov-8/
-
-**How to watch Raptors vs. 76ers: Time, TV, streaming**\
-`Find out how to watch the Toronto Raptors play the Philadelphia 76ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6789898/2025/11/08/raptors-vs-76ers-stream-how-to-watch-nov-8/
-
-**How to watch Lakers vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Lakers play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6789896/2025/11/08/lakers-vs-hawks-stream-how-to-watch-nov-8/
 

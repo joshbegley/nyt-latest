@@ -2,7 +2,7 @@
 `The seven-time ATP Tour Finals champion defeated the Italian in three grueling sets at the Hellenic Championship in Athens.`\
 https://nytimes.com/athletic/6789369/2025/11/08/djokovic-atp-tour-finals-turin-musetti/
 
-**Extremely Low Cholesterol Future Seen in Trial Results for Merck Pill**\
+**New Pill From Merck Could Slash Cholesterol Levels, Trials Show**\
 `The drug targets the PCSK9 protein, and could give millions of people a more affordable option to reduce their heart disease risk.`\
 https://nytimes.com/2025/11/08/health/merck-cholesterol-pill-pcsk9.html
 
