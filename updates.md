@@ -1,3 +1,7 @@
+**Luis Diaz just scored from this angle. The XG? 0.03**\
+`Only one goal, which went in directly from a corner, has been scored from a tighter angle across Europe's top five leagues this season`\
+https://nytimes.com/athletic/6789814/2025/11/08/luis-diaz-goal-bayern-munich/
+
 **NBA corrects scoring error in Cavaliers' 148-115 win over Wizards**\
 `The NBA announced that it fixed a scoring error in Cleveland's 148-115 win over Washington.`\
 https://nytimes.com/athletic/6790005/2025/11/08/nba-washington-wizards-cleveland-cavaliers-incorrect-score/

@@ -1,3 +1,11 @@
+**Is Texas Tech the Big 12's new dominant program? It looked the part against BYU**\
+`Texas Tech's defense propelled it past one of the four remaining undefeated teams in college football.`\
+https://nytimes.com/athletic/6790100/2025/11/08/texas-tech-byu-score-result/
+
+**Indiana completes Penn State comeback behind Omar Cooper Jr.'s late TD**\
+`Indiana quarterback Fernando Mendoza orchestrated the Hoosiers' final touchdown in under two minutes, capped by Cooper Jr.'s heroics.`\
+https://nytimes.com/athletic/6790147/2025/11/08/penn-state-indiana-football-upset-game-analysis/
+
 **NBA corrects scoring error in Cavaliers' 148-115 win over Wizards**\
 `The NBA announced that it fixed a scoring error in Cleveland's 148-115 win over Washington.`\
 https://nytimes.com/athletic/6790005/2025/11/08/nba-washington-wizards-cleveland-cavaliers-incorrect-score/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6790228/2025/11/08/avalanche-vs-oilers-stream-how-t
 **Luis Diaz just scored from this angle. The XG? 0.03**\
 `Only one goal, which went in directly from a corner, has been scored from a tighter angle across Europe's top five leagues this season`\
 https://nytimes.com/athletic/6789814/2025/11/08/luis-diaz-goal-bayern-munich/
-
-**Commanders owners anticipate potential stadium name discussion with Trump**\
-`No formal request has been made about naming the new development after him.`\
-https://nytimes.com/athletic/6789811/2025/11/08/commanders-trump-stadium-name-communications/
-
-**How to watch Oklahoma vs. Gonzaga: Time, TV, streaming**\
-`Find out how to watch the Oklahoma Sooners play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6790193/2025/11/08/oklahoma-vs-gonzaga-stream-how-to-watch-nov-8/
 
