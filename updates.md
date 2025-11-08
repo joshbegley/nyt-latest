@@ -1,3 +1,19 @@
+**How to watch Western Carolina vs. Duke: Time, TV, streaming**\
+`Find out how to watch the Western Carolina Catamounts play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6789287/2025/11/08/western-carolina-vs-duke-stream-how-to-watch-nov-8/
+
+**How to watch Alabama vs. St. John's: Time, TV, streaming**\
+`Find out how to watch the Alabama Crimson Tide play the St. John's Red Storm, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6789267/2025/11/08/alabama-vs-st-john-s-stream-how-to-watch-nov-8/
+
+**Sound System**\
+`It can be challenging to discover new music on streaming platforms. Today, some ideas to help you out of a listening rut.`\
+https://nytimes.com/2025/11/08/briefing/sound-system.html
+
+**Great business reads for your weekend from The Athletic's coverage this week**\
+`Alabama football's sorority influencers, behind the call of "Game 7," Barcelona's finances, a Q&A with Carolyn Tisch Blodgett and more.`\
+https://nytimes.com/athletic/6787664/2025/11/08/great-reads-weekend-alabama-sorority-influencers/
+
 **Why has the Red Wings' offense been quiet lately? Five Observations**\
 `After a dreamy start, Detroit now faces the real questions that were always going to define its season. How will it respond?`\
 https://nytimes.com/athletic/6788924/2025/11/08/red-wings-rangers-patrick-kane-offense/
