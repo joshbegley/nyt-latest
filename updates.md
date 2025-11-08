@@ -1,3 +1,7 @@
+**Exercising Is the Worst**\
+`Exercise has never been fun, but our expectations for physical performance, what it means to be healthy, and what it means to age have gotten too high.`\
+https://nytimes.com/2025/11/08/opinion/excercise-fitness-optimization.html
+
 **Live From New York: Zohran Mamdani’s Got Jokes**\
 `New York City’s next mayor showed during the campaign that he has a sharp sense of humor. Keeping things light at City Hall could be trickier.`\
 https://nytimes.com/2025/11/08/nyregion/mamdani-humor-funny.html
