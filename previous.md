@@ -1,3 +1,19 @@
+**WATCH: How Bills are punishing defenses with this offensive formation**\
+`The Bills have started to use more 22 personnel this season — that's two running backs and two tight ends on the field at the same time.`\
+https://nytimes.com/athletic/6788117/2025/11/08/video-analysis-bills-offensive-formation/
+
+**How to Get Your Greens All Season Long**\
+`Our five-ingredient lemon-garlic kale salad complements almost any main (and, with five stars and over 9,000 reviews, is sure to get you compliments).`\
+https://nytimes.com/2025/11/08/dining/how-to-get-your-greens-all-season-long.html
+
+**Watch: J.J. McCarthy looks ready to take next step as Vikings' franchise quarterback**\
+`Making his first start in nearly two months, McCarthy flashed the type of talent that made Minnesota bet on him in the first place.`\
+https://nytimes.com/athletic/6789696/2025/11/08/jj-mccarthy-video-breakdown-vikings-lions/
+
+**Robert H. Bartlett, Father of Innovative Life-Support System, Dies at 86**\
+`He developed extracorporeal membrane oxygenation, or ECMO, a treatment that can sustain patients whose hearts and lungs are failing — for days or weeks or longer.`\
+https://nytimes.com/2025/11/08/science/robert-h-bartlett-dead.html
+
 **USC quarterback changes number for trick play in 38-17 win over Northwestern**\
 `The Trojans' third-string quarterback, Sam Huard, wore punter Sam Johnson's number on a fake punt to fool the Northwestern defense.`\
 https://nytimes.com/athletic/6789650/2025/11/08/usc-northwestern-fake-punt-play/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6789538/2025/11/08/wta-tour-finals-saudi-arabia-dea
 **Shai Gilgeous-Alexander wants more and that should frighten the rest of the NBA**\
 `Gilgeous-Alexander and the Oklahoma City Thunder were historically great last season. The NBA MVP thinks he and the team can be even better.`\
 https://nytimes.com/athletic/6789238/2025/11/08/shai-gilgeous-alexander-thunder-early-season-success/
-
-**The Briefing: Spurs 2 Man Utd 2 - Frank misses big moment, Lammens' pair of saves and De Ligt delight**\
-`Tottenham Hotspur and Manchester United played out a dramatic 2-2 draw on Saturday afternoon`\
-https://nytimes.com/athletic/6784510/2025/11/08/tottenham-manchester-united-score-result-report-analysis/
-
-**How to watch Stars vs. Predators: Time, TV, streaming**\
-`Find out how to watch the Dallas Stars play the Nashville Predators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6789553/2025/11/08/stars-vs-predators-stream-how-to-watch-nov-8/
-
-**How a Washington Commanders team on the rise was knocked off track**\
-`The 2024 Washington Commanders seemed to find all the right things — on the field and off. This season has been entirely different.`\
-https://nytimes.com/athletic/6789349/2025/11/08/commanders-injuries-roster-mistakes/
-
-**Why Jaelan Phillips calls Eagles trade 'greatest thing that's happened to me'**\
-`Plus: Jaire Alexander insists he’s still in his prime and Jalen Hurts returns to Lambeau Field for the first time since his rookie season.`\
-https://nytimes.com/athletic/6789350/2025/11/08/eagles-jaelan-phillips-trade-comments/
 

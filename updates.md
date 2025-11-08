@@ -1,3 +1,19 @@
+**WATCH: How Bills are punishing defenses with this offensive formation**\
+`The Bills have started to use more 22 personnel this season — that's two running backs and two tight ends on the field at the same time.`\
+https://nytimes.com/athletic/6788117/2025/11/08/video-analysis-bills-offensive-formation/
+
+**How to Get Your Greens All Season Long**\
+`Our five-ingredient lemon-garlic kale salad complements almost any main (and, with five stars and over 9,000 reviews, is sure to get you compliments).`\
+https://nytimes.com/2025/11/08/dining/how-to-get-your-greens-all-season-long.html
+
+**Watch: J.J. McCarthy looks ready to take next step as Vikings' franchise quarterback**\
+`Making his first start in nearly two months, McCarthy flashed the type of talent that made Minnesota bet on him in the first place.`\
+https://nytimes.com/athletic/6789696/2025/11/08/jj-mccarthy-video-breakdown-vikings-lions/
+
+**Robert H. Bartlett, Father of Innovative Life-Support System, Dies at 86**\
+`He developed extracorporeal membrane oxygenation, or ECMO, a treatment that can sustain patients whose hearts and lungs are failing — for days or weeks or longer.`\
+https://nytimes.com/2025/11/08/science/robert-h-bartlett-dead.html
+
 **At Least 4 Dead After Driver Slams Into Crowd Outside a Tampa Bar, Police Say**\
 `The crash left 11 people injured. The police said they chased the vehicle after trying to pull over a reckless driver, who sped off and then lost control.`\
 https://nytimes.com/2025/11/08/us/car-crash-tampa-florida.html
