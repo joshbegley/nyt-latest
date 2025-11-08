@@ -3,7 +3,7 @@
 https://nytimes.com/2025/11/08/weather/california-weather-heat-rain.html
 
 **YouTube TV will offer $20 credit if dispute with ESPN continues: Source**\
-`The two sides are continuing ongoing negotiations, and YouTube TV credits are scheduled to be issued by Nov. 12 if a deal can't be reached.`\
+`The two sides are continuing negotiations, and YouTube TV credits are scheduled to be issued by Wednesday if a deal can't be reached.`\
 https://nytimes.com/athletic/6790310/2025/11/08/espn-youtubetv-credit-negotiations/
 
 **The Briefing: Chelsea 3 Wolves 0 - Gusto's goal, coping with low blocks and should Estevao start?**\

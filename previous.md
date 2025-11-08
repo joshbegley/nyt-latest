@@ -1,3 +1,7 @@
+**Heavy Rain Is Expected in California After Spell of Unusually Warm Weather**\
+`Areas across the state could record anywhere from one to five or more inches of rain. The Sierra will get some snow.`\
+https://nytimes.com/2025/11/08/weather/california-weather-heat-rain.html
+
 **YouTube TV will offer $20 credit if dispute with ESPN continues: Source**\
 `The two sides are continuing ongoing negotiations, and YouTube TV credits are scheduled to be issued by Nov. 12 if a deal can't be reached.`\
 https://nytimes.com/athletic/6790310/2025/11/08/espn-youtubetv-credit-negotiations/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/08/us/politics/trump-gives-hungarys-orban-reprieve-o
 **College Football Playoff 2025 projections: Where the bracket stands with Week 11 underway**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/11/08/college-football-playoff-bracket-projections-odds/
-
-**Is Texas Tech the Big 12's new dominant program? It looked the part against BYU**\
-`Texas Tech's defense propelled it past one of the four remaining undefeated teams in college football.`\
-https://nytimes.com/athletic/6790100/2025/11/08/texas-tech-byu-score-result/
 
