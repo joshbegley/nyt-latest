@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: Where the bracket stands with Week 11 underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/08/college-football-playoff-bracket-projections-odds/
+
 **Is Texas Tech the Big 12's new dominant program? It looked the part against BYU**\
 `Texas Tech's defense propelled it past one of the four remaining undefeated teams in college football.`\
 https://nytimes.com/athletic/6790100/2025/11/08/texas-tech-byu-score-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6790230/2025/11/08/ducks-vs-golden-knights-stream-h
 **How to watch Avalanche vs. Oilers: Time, TV, streaming**\
 `Find out how to watch the Colorado Avalanche play the Edmonton Oilers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6790228/2025/11/08/avalanche-vs-oilers-stream-how-to-watch-nov-8/
-
-**Luis Diaz just scored from this angle. The XG? 0.03**\
-`Only one goal, which went in directly from a corner, has been scored from a tighter angle across Europe's top five leagues this season`\
-https://nytimes.com/athletic/6789814/2025/11/08/luis-diaz-goal-bayern-munich/
 
