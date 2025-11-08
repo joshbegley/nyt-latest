@@ -1,3 +1,7 @@
+**Fox News Wanted Greg Gutfeld to Do This Interview. He Wasn’t So Sure.**\
+`The pugnacious conservative late-night host on his “hierarchy of smears” and the risks of being a scold.`\
+https://nytimes.com/2025/11/08/magazine/greg-gutfeld-interview.html
+
 **Here’s What We Know About the Shutdown’s Effect on Air Travel**\
 `The Federal Aviation Administration has required airlines to cut flights to reduce the strain on air traffic controllers, who have gone weeks without a paycheck.`\
 https://nytimes.com/2025/11/08/us/flight-cancellations-delays-airports-shutdown.html

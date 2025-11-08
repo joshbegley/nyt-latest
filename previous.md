@@ -1,3 +1,7 @@
+**Fox News Wanted Greg Gutfeld to Do This Interview. He Wasn’t So Sure.**\
+`The pugnacious conservative late-night host on his “hierarchy of smears” and the risks of being a scold.`\
+https://nytimes.com/2025/11/08/magazine/greg-gutfeld-interview.html
+
 **Here’s What We Know About the Shutdown’s Effect on Air Travel**\
 `The Federal Aviation Administration has required airlines to cut flights to reduce the strain on air traffic controllers, who have gone weeks without a paycheck.`\
 https://nytimes.com/2025/11/08/us/flight-cancellations-delays-airports-shutdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/08/science/biggest-spiderweb-sulfur-cave.html
 **After More Than 30 Years, a Man Is Charged in Seattle Girl’s Killing**\
 `Tanya Marie Frazier, 14, never returned from summer school in 1994, and was found dead in a wooded area five days later. The police say a new DNA analysis links a felon to her death.`\
 https://nytimes.com/2025/11/08/us/seattle-police-arrest-tanya-frazier-murder.html
-
-**Sometimes a Comet Is Just a Comet**\
-`Scientists who study comets are struggling to keep up with popular speculation that the interstellar object 3I/ATLAS was sent to our solar system by an alien intelligence.`\
-https://nytimes.com/2025/11/08/science/comet-3i-atlas-aliens-kardashian.html
 
