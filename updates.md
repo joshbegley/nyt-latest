@@ -1,3 +1,15 @@
+**Elena Rybakina declines photo with women's tennis chief at WTA Tour Finals trophy ceremony**\
+`Rybakina won $5.3 million in beating world No. 1 Aryna Sabalenka to lift the season-ending trophy.`\
+https://nytimes.com/athletic/6790044/2025/11/08/tennis-elena-rybakina-wta-investigation-stefano-vukov/
+
+**The Briefing: Sunderland 2 Arsenal 2 - How was defence breached? Saka and Trossard step up (again)**\
+`Arsenal lost their clean sheet record to Sunderland at the Stadium of Light in a pulsating encounter - The Athletic analyses the action`\
+https://nytimes.com/athletic/6784511/2025/11/08/sunderland-2-arsenal-2-conceded-saka-trossard-ballard/
+
+**Novak Djokovic eliminates Lorenzo Musetti from ATP Tour Finals race — then withdraws**\
+`The seven-time ATP Tour Finals champion defeated the Italian in three grueling sets at the Hellenic Championship in Athens.`\
+https://nytimes.com/athletic/6789369/2025/11/08/djokovic-atp-tour-finals-turin-musetti/
+
 **Peter Watkins, Provocateur With a Movie Camera, Dies at 89**\
 `His Oscar-winning 1965 film “The War Game” depicted a post-nuclear-attack England, one of his many fictionalized docudramas against war and repression.`\
 https://nytimes.com/2025/11/08/movies/peter-watkins-dead.html
