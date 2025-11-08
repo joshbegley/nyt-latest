@@ -1,3 +1,7 @@
+**WATCH: How Bills are punishing defenses with this offensive formation**\
+`The Bills have started to use more 22 personnel this season — that's two running backs and two tight ends on the field at the same time.`\
+https://nytimes.com/athletic/6788117/2025/11/08/video-analysis-bills-offensive-formation/
+
 **How to Get Your Greens All Season Long**\
 `Our five-ingredient lemon-garlic kale salad complements almost any main (and, with five stars and over 9,000 reviews, is sure to get you compliments).`\
 https://nytimes.com/2025/11/08/dining/how-to-get-your-greens-all-season-long.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6789538/2025/11/08/wta-tour-finals-saudi-arabia-dea
 **Shai Gilgeous-Alexander wants more and that should frighten the rest of the NBA**\
 `Gilgeous-Alexander and the Oklahoma City Thunder were historically great last season. The NBA MVP thinks he and the team can be even better.`\
 https://nytimes.com/athletic/6789238/2025/11/08/shai-gilgeous-alexander-thunder-early-season-success/
-
-**The Briefing: Spurs 2 Man Utd 2 - Frank misses big moment, Lammens' pair of saves and De Ligt delight**\
-`Tottenham Hotspur and Manchester United played out a dramatic 2-2 draw on Saturday afternoon`\
-https://nytimes.com/athletic/6784510/2025/11/08/tottenham-manchester-united-score-result-report-analysis/
 
