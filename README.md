@@ -1,3 +1,7 @@
+**NBA corrects scoring error in Cavaliers' 148-115 win over Wizards**\
+`The NBA announced that it fixed a scoring error in Cleveland's 148-115 win over Washington.`\
+https://nytimes.com/athletic/6790005/2025/11/08/nba-washington-wizards-cleveland-cavaliers-incorrect-score/
+
 **How to watch Pacers vs. Nuggets: Time, TV, streaming**\
 `Find out how to watch the Indiana Pacers play the Denver Nuggets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6790238/2025/11/08/pacers-vs-nuggets-stream-how-to-watch-nov-8/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6789811/2025/11/08/commanders-trump-stadium-name-co
 **How to watch Oklahoma vs. Gonzaga: Time, TV, streaming**\
 `Find out how to watch the Oklahoma Sooners play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6790193/2025/11/08/oklahoma-vs-gonzaga-stream-how-to-watch-nov-8/
-
-**How to watch Holy Cross vs. BYU: Time, TV, streaming**\
-`Find out how to watch the Holy Cross Crusaders play the BYU Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6790191/2025/11/08/holy-cross-vs-byu-stream-how-to-watch-nov-8/
 
