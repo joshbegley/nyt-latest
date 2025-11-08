@@ -1,3 +1,7 @@
+**Wemby outduels Durant as Spurs make another early-season statement**\
+`Victor Wembanyama and Kevin Durant traded poster dunks in the third quarter before the younger Spurs star led his team past the Rockets vet.`\
+https://nytimes.com/athletic/6788881/2025/11/07/victor-wembanyama-dunk-kevin-durant-rockets-spurs/
+
 **The DNA Helix Changed How We Thought About Ourselves**\
 `“The laws of inheritance are quite unknown,” Charles Darwin acknowledged in 1859. The discovery of DNA’s shape altered how we conceived of life itself.`\
 https://nytimes.com/2025/11/07/science/watson-dna-humanity.html

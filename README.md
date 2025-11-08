@@ -1,3 +1,7 @@
+**Giannis Antetokounmpo puts up 41 points in Bucks' NBA Cup win vs. Bulls**\
+`Antetokounmpo posted his second 40-point game of the season and his fifth game with over 30 points.`\
+https://nytimes.com/athletic/6788923/2025/11/07/giannis-antetokounmpo-bucks-bulls-nba-cup/
+
 **The DNA Helix Changed How We Thought About Ourselves**\
 `“The laws of inheritance are quite unknown,” Charles Darwin acknowledged in 1859. The discovery of DNA’s shape altered how we conceived of life itself.`\
 https://nytimes.com/2025/11/07/science/watson-dna-humanity.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/11/07/well/move/dumbbell-press-technique.ht
 **Dodgers' Alex Vesia announces death of newborn daughter after missing World Series**\
 `The Vesias wrote: 'We have seen ALL your messages, comments and posts. It’s brought us so much comfort.'`\
 https://nytimes.com/athletic/6788740/2025/11/07/dodgers-alex-vesia-daughter/
-
-**Judge Permanently Blocks National Guard Deployments to Portland for ICE Protests**\
-`With her temporary block expiring, Judge Karin Immergut said the Trump administration had failed to prove that protesters were hampering President Trump’s policies.`\
-https://nytimes.com/2025/11/07/us/politics/portland-oregon-national-guard.html
 
