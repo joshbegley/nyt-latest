@@ -1,3 +1,11 @@
+**For a Distinctive Black Culture, a Rerouted Parade Feels Like Erasure**\
+`The annual Penn Center Heritage Day Parade in South Carolina draws hundreds to celebrate the Gullah Geechee people. But a new route has Black residents feeling as if their legacy is vanishing.`\
+https://nytimes.com/2025/11/08/us/penn-center-parade-south-carolina-gullah-geechee.html
+
+**Russian Bombardment Causes Large Power Outages in Ukraine’s Big Cities**\
+`The attack by Russian missiles and drones targeted the capital, Kyiv, and the large cities of Dnipro and Kharkiv, as well as several smaller municipalities.`\
+https://nytimes.com/2025/11/08/world/europe/russian-bombardment-causes-large-power-outages-in-ukraines-big-cities.html
+
 **How to watch Arkansas vs. Michigan State: Time, TV, streaming**\
 `Find out how to watch the Arkansas Razorbacks play the Michigan State Spartans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6789871/2025/11/08/arkansas-vs-michigan-state-stream-how-to-watch-nov-8/

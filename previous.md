@@ -1,3 +1,11 @@
+**For a Distinctive Black Culture, a Rerouted Parade Feels Like Erasure**\
+`The annual Penn Center Heritage Day Parade in South Carolina draws hundreds to celebrate the Gullah Geechee people. But a new route has Black residents feeling as if their legacy is vanishing.`\
+https://nytimes.com/2025/11/08/us/penn-center-parade-south-carolina-gullah-geechee.html
+
+**Russian Bombardment Causes Large Power Outages in Ukraine’s Big Cities**\
+`The attack by Russian missiles and drones targeted the capital, Kyiv, and the large cities of Dnipro and Kharkiv, as well as several smaller municipalities.`\
+https://nytimes.com/2025/11/08/world/europe/russian-bombardment-causes-large-power-outages-in-ukraines-big-cities.html
+
 **How to watch Arkansas vs. Michigan State: Time, TV, streaming**\
 `Find out how to watch the Arkansas Razorbacks play the Michigan State Spartans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6789871/2025/11/08/arkansas-vs-michigan-state-stream-how-to-watch-nov-8/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/08/dining/how-to-get-your-greens-all-season-long.htm
 **Watch: J.J. McCarthy looks ready to take next step as Vikings' franchise quarterback**\
 `Making his first start in nearly two months, McCarthy flashed the type of talent that made Minnesota bet on him in the first place.`\
 https://nytimes.com/athletic/6789696/2025/11/08/jj-mccarthy-video-breakdown-vikings-lions/
-
-**Robert H. Bartlett, Father of Innovative Life-Support System, Dies at 86**\
-`He developed extracorporeal membrane oxygenation, or ECMO, a treatment that can sustain patients whose hearts and lungs are failing — for days or weeks or longer.`\
-https://nytimes.com/2025/11/08/science/robert-h-bartlett-dead.html
-
-**USC quarterback changes number for trick play in 38-17 win over Northwestern**\
-`The Trojans' third-string quarterback, Sam Huard, wore punter Sam Johnson's number on a fake punt to fool the Northwestern defense.`\
-https://nytimes.com/athletic/6789650/2025/11/08/usc-northwestern-fake-punt-play/
 
