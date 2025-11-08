@@ -1,5 +1,5 @@
 **A year after cancer diagnosis, Luana scores late goal to help Pride advance to NWSL semifinals**\
-`Marta assisted the came-changing goal.`\
+`Marta, 38, assisted the last-minute goal.`\
 https://nytimes.com/athletic/6788932/2025/11/08/orlando-pride-luana-goal-nwsl-cancer/
 
 **The New York Times in Print for Saturday, Nov. 8, 2025**\
