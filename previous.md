@@ -1,3 +1,7 @@
+**Nabil Shaban, Acclaimed Actor and Advocate for the Disabled, Dies at 72**\
+`Born without the use of his legs, he appeared memorably on television on “Doctor Who” and onstage as, among many other roles, Hamlet.`\
+https://nytimes.com/2025/11/08/theater/nabil-shaban-dead.html
+
 **Novak Djokovic eliminates Lorenzo Musetti from ATP Tour Finals race – for now**\
 `The seven-time ATP Tour Finals champion defeated the Italian in three grueling sets at the Hellenic Championship in Athens.`\
 https://nytimes.com/athletic/6789369/2025/11/08/djokovic-atp-tour-finals-turin-musetti/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6789905/2025/11/08/capitals-vs-lightning-stream-how
 **How to watch Bruins vs. Maple Leafs: Time, TV, streaming**\
 `Find out how to watch the Boston Bruins play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6789902/2025/11/08/bruins-vs-maple-leafs-stream-how-to-watch-nov-8/
-
-**How to watch Bulls vs. Cavaliers: Time, TV, streaming**\
-`Find out how to watch the Chicago Bulls play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6789900/2025/11/08/bulls-vs-cavaliers-stream-how-to-watch-nov-8/
 

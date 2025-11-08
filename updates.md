@@ -1,3 +1,7 @@
+**Nabil Shaban, Acclaimed Actor and Advocate for the Disabled, Dies at 72**\
+`Born without the use of his legs, he appeared memorably on television on “Doctor Who” and onstage as, among many other roles, Hamlet.`\
+https://nytimes.com/2025/11/08/theater/nabil-shaban-dead.html
+
 **New Pill From Merck Could Slash Cholesterol Levels, Trials Show**\
 `The drug targets the PCSK9 protein, and could give millions of people a more affordable option to reduce their heart disease risk.`\
 https://nytimes.com/2025/11/08/health/merck-cholesterol-pill-pcsk9.html
