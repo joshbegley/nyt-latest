@@ -1,3 +1,15 @@
+**Transgender sprinter suing Rensselaer Polytech over alleged discrimination**\
+`In the lawsuit, sprinter Sadie Schreiner claims RPI violated New York’s Human Rights Law when it refused to let her run in a track meet.`\
+https://nytimes.com/athletic/6788421/2025/11/07/transgender-lawsuit-women-track-and-field-ncaa/
+
+**A Democrat Pushing 80 Confronts the Young(er) and Restless**\
+`A fight brewing in Massachusetts could preview Democrats’ age battles.`\
+https://nytimes.com/2025/11/07/us/politics/massachusetts-senate-markey-moulton-pressley.html
+
+**Kentucky's Zach Calzada apologizes for viral video of him flashing money**\
+`After reportedly paying the quarterback more than $1 million in the offseason, Kentucky benched Calzada early in the season.`\
+https://nytimes.com/athletic/6788095/2025/11/07/kentucky-zach-calzada-video-money/
+
 **Nets' Cam Thomas suffers hamstring strain, will miss at least 3-4 weeks**\
 `The Nets, already one of the league's worst offensive teams, will now be without their leading scorer for the forseeable future.`\
 https://nytimes.com/athletic/6788524/2025/11/07/cam-thomas-injury-timeline-out-nets/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6788408/2025/11/07/raiders-fire-special-teams-coord
 **Rise in Kidney Disease Tied to Other Chronic Conditions, Study Finds**\
 `Rates of the disease have been rising for decades, driven in part by diabetes and high blood pressure.`\
 https://nytimes.com/2025/11/07/well/kidney-disease-rise-study.html
-
-**Yung Lean Made it Back From the Brink to Save Himself**\
-`The Swedish rapper Yung Lean emerged more than a decade ago as a teenage internet sensation who found viral and then global fame. After struggling with mental illness and drugs, he’s back now and bigger than ever, with new music, a new film and welcome clarity.`\
-https://nytimes.com/video/podcasts/100000010511844/yung-lean-made-it-back-from-the-brink-to-save-himself.html
-
-**Lawyers for Letitia James Say Case Against Her Was Motivated by Animus**\
-`The argument came in a motion seeking to dismiss the case against her, citing a laundry list of statements President Trump has made about New York’s attorney general over the past six years.`\
-https://nytimes.com/2025/11/07/us/politics/letitia-james-trump-fraud-justice-department.html
-
-**Prince Harry Apologizes to Canadians for Wearing an L.A. Dodgers Cap**\
-`Harry, who referred to the episode as “Hat Gate,” was seen wearing the cap at a World Series game in Los Angeles between the Dodgers and the Toronto Blue Jays.`\
-https://nytimes.com/2025/11/07/world/canada/prince-harry-dodgers-cap-world-series.html
 
