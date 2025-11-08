@@ -1,3 +1,19 @@
+**How to watch Stars vs. Predators: Time, TV, streaming**\
+`Find out how to watch the Dallas Stars play the Nashville Predators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6789553/2025/11/08/stars-vs-predators-stream-how-to-watch-nov-8/
+
+**How a Washington Commanders team on the rise was knocked off track**\
+`The 2024 Washington Commanders seemed to find all the right things — on the field and off. This season has been entirely different.`\
+https://nytimes.com/athletic/6789349/2025/11/08/commanders-injuries-roster-mistakes/
+
+**Why Jaelan Phillips calls Eagles trade 'greatest thing that's happened to me'**\
+`Plus: Jaire Alexander insists he’s still in his prime and Jalen Hurts returns to Lambeau Field for the first time since his rookie season.`\
+https://nytimes.com/athletic/6789350/2025/11/08/eagles-jaelan-phillips-trade-comments/
+
+**Arsenal denied last-gasp winner in dramatic derby with WSL leaders Chelsea**\
+`Chelsea led for over 75 minutes but Arsenal saw two second-half goals disallowed in a thrilling conclusion`\
+https://nytimes.com/athletic/6789435/2025/11/08/arsenal-chelsea-wsl-report/
+
 **Arsenal sense missed opportunity despite late comeback against WSL leaders Chelsea**\
 `Chelsea led for over 75 minutes but Arsenal saw two second-half goals disallowed in a dramatic conclusion.`\
 https://nytimes.com/athletic/6789435/2025/11/08/arsenal-chelsea-wsl-report/
