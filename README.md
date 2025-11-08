@@ -1,4 +1,4 @@
-**Lando Norris extends F1 title lead in Brazilian sprint as Piastri crashes out**\
+**Lando Norris extends F1 title lead with Brazilian sprint win as Piastri crashes out**\
 `Wet conditions disrupted the sprint race and led to a new twist in F1's championship fight`\
 https://nytimes.com/athletic/6789463/2025/11/08/brazilian-gp-sprint-race-results/
 

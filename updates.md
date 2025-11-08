@@ -1,3 +1,7 @@
+**Arsenal and Chelsea head coaches call for WSL to introduce VAR after dramatic derby**\
+`Chelsea led for over 75 minutes but Arsenal saw two second-half goals disallowed in a thrilling conclusion`\
+https://nytimes.com/athletic/6789435/2025/11/08/arsenal-chelsea-wsl-report/
+
 **Lando Norris extends F1 title lead in Brazilian sprint as Piastri crashes out**\
 `Wet conditions disrupted the sprint race and led to a new twist in F1's championship fight`\
 https://nytimes.com/athletic/6789463/2025/11/08/brazilian-gp-sprint-race-results/

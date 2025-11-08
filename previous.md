@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6789349/2025/11/08/commanders-injuries-roster-mista
 `Plus: Jaire Alexander insists he’s still in his prime and Jalen Hurts returns to Lambeau Field for the first time since his rookie season.`\
 https://nytimes.com/athletic/6789350/2025/11/08/eagles-jaelan-phillips-trade-comments/
 
-**Arsenal denied last-gasp winner in dramatic derby with WSL leaders Chelsea**\
+**Arsenal and Chelsea head coaches call for WSL to introduce VAR after dramatic derby**\
 `Chelsea led for over 75 minutes but Arsenal saw two second-half goals disallowed in a thrilling conclusion`\
 https://nytimes.com/athletic/6789435/2025/11/08/arsenal-chelsea-wsl-report/
 
