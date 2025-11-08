@@ -1,3 +1,19 @@
+**How to watch Western Carolina vs. Duke: Time, TV, streaming**\
+`Find out how to watch the Western Carolina Catamounts play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6789287/2025/11/08/western-carolina-vs-duke-stream-how-to-watch-nov-8/
+
+**How to watch Alabama vs. St. John's: Time, TV, streaming**\
+`Find out how to watch the Alabama Crimson Tide play the St. John's Red Storm, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6789267/2025/11/08/alabama-vs-st-john-s-stream-how-to-watch-nov-8/
+
+**Sound System**\
+`It can be challenging to discover new music on streaming platforms. Today, some ideas to help you out of a listening rut.`\
+https://nytimes.com/2025/11/08/briefing/sound-system.html
+
+**Great business reads for your weekend from The Athletic's coverage this week**\
+`Alabama football's sorority influencers, behind the call of "Game 7," Barcelona's finances, a Q&A with Carolyn Tisch Blodgett and more.`\
+https://nytimes.com/athletic/6787664/2025/11/08/great-reads-weekend-alabama-sorority-influencers/
+
 **Why has the Red Wings' offense been quiet lately? Five Observations**\
 `After a dreamy start, Detroit now faces the real questions that were always going to define its season. How will it respond?`\
 https://nytimes.com/athletic/6788924/2025/11/08/red-wings-rangers-patrick-kane-offense/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6788491/2025/11/08/nfl-week-10-roundtable-colts-sau
 **Does home-field advantage matter in the NWSL playoffs?**\
 `Teams like Kansas City Current will be hoping they are driven forward in their playoff quest by a stadium full of their own fans`\
 https://nytimes.com/athletic/6785825/2025/11/08/nwsl-playoffs-home-field-advantage/
-
-**One player from each NHL team's history with the best Hockey Hall of Fame case**\
-`From current stars who look like future HOF locks to former franchise cornerstones who have been snubbed for years, here are our picks.`\
-https://nytimes.com/athletic/6788000/2025/11/08/hockey-hall-of-fame-nhl-players/
-
-**Baker Mayfield as MVP and more NFL midseason superlatives, teams to watch**\
-`Baker Mayfield as MVP? Jonathan Taylor as Offensive Player of the Year? We hand out our midseason NFL awards. `\
-https://nytimes.com/athletic/6781236/2025/11/08/nfl-midseason-superlatives-mvp-predictions/
-
-**After 35 Years, Do I Still Have to Cook for My Husband?**\
-`I simply am not interested in food labor for another 25 years.`\
-https://nytimes.com/2025/11/08/magazine/magazine-email/cook-for-husband-ethics.html
-
-**Wordle Review No. 1604**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 9, 2025.`\
-https://nytimes.com/2025/11/08/crosswords/wordle-review-1604.html
 
