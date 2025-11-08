@@ -1,3 +1,7 @@
+**Elena Rybakina paints the lines again to triumph over Aryna Sabalenka at WTA Tour Finals**\
+`The 2022 Wimbledon champion eased past the world No. 1 to cap her late-season surge back to the top of tennis.`\
+https://nytimes.com/athletic/6789352/2025/11/08/sabalenka-rybakina-wta-tour-finals-result-analysis/
+
 **Man Dies After Slipping and Falling in Grand Canyon West**\
 `The body of a 65-year-old-man, who fell 130 feet, was recovered on Thursday, officials said.`\
 https://nytimes.com/2025/11/08/us/grand-canyon-fall-death.html

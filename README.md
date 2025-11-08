@@ -1,3 +1,7 @@
+**Keegan-Michael Key joins Panthers meeting, supports Rico Dowdle**\
+`Keegan-Michael Key continued to support Rico Dowdle after his TD celebration, pledging to donate $15,000 to the charity of his choice.`\
+https://nytimes.com/athletic/6789915/2025/11/08/keegan-michael-key-joins-panthers-team-meeting-to-show-support-for-rico-dowdle/
+
 **Elena Rybakina paints the lines again to triumph over Aryna Sabalenka at WTA Tour Finals**\
 `The 2022 Wimbledon champion eased past the world No. 1 to cap her late-season surge back to the top of tennis.`\
 https://nytimes.com/athletic/6789352/2025/11/08/sabalenka-rybakina-wta-tour-finals-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6789898/2025/11/08/raptors-vs-76ers-stream-how-to-w
 **How to watch Lakers vs. Hawks: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Lakers play the Atlanta Hawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6789896/2025/11/08/lakers-vs-hawks-stream-how-to-watch-nov-8/
-
-**How to watch Mammoth vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the Utah Mammoth play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6789894/2025/11/08/mammoth-vs-canadiens-stream-how-to-watch-nov-8/
 
