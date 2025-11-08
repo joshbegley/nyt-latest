@@ -1,3 +1,15 @@
+**Arsenal sense missed opportunity despite late comeback against WSL leaders Chelsea**\
+`Chelsea led for over 75 minutes but Arsenal saw two second-half goals disallowed in a dramatic conclusion.`\
+https://nytimes.com/athletic/6789435/2025/11/08/arsenal-chelsea-wsl-report/
+
+**How to watch Towson vs. Houston: Time, TV, streaming**\
+`Find out how to watch the Towson Tigers play the Houston Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6789529/2025/11/08/towson-vs-houston-stream-how-to-watch-nov-8/
+
+**How to watch Northern Kentucky vs. Tennessee: Time, TV, streaming**\
+`Find out how to watch the Northern Kentucky Norse play the Tennessee Volunteers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6789521/2025/11/08/northern-kentucky-vs-tennessee-stream-how-to-watch-nov-8/
+
 **Can Drew Doughty help the Kings find stable ground — and earn a ticket to the Olympics?**\
 `In his 18th season, Doughty has had his minutes reduced and is dealing with some criticism.`\
 https://nytimes.com/athletic/6788040/2025/11/08/drew-doughty-kings-olympics/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6776081/2025/11/08/wolves-manager-middlesbrough-rob
 **Alfie Jones interview: Canada's new recruit and the chat that opened his World Cup path**\
 `A chance sauna conversation changed the equation for a center back who has had to fight for everything he's achieved in his career thus far`\
 https://nytimes.com/athletic/6788374/2025/11/08/alfie-jones-interview-canada-world-cup-middlesbrough/
-
-**Debt Has Entered the A.I. Boom**\
-`To fund heavy spending on infrastructure for artificial intelligence, companies have leveraged a growing list of complex debt-financing options.`\
-https://nytimes.com/2025/11/08/business/dealbook/debt-has-entered-the-ai-boom.html
-
-**Scoop City: Fantasy football tips to win Week 10**\
-`Jacoby Brissett has replaced Kyler Murray as the Cardinal's starting QB, at least for now. Plus the sleeper of the week and much more. `\
-https://nytimes.com/athletic/6788046/2025/11/08/fantasy-football-week-10-what-to-know/
-
-**Projecting Oilers' upcoming roster decisions: Who's most likely to go?**\
-`With Mattias Janmark and Zach Hyman close to returning, the Oilers will have to make room for them on the roster.`\
-https://nytimes.com/athletic/6788504/2025/11/08/oilers-roster-salary-cap-janmark-hyman/
 
