@@ -1,3 +1,15 @@
+**College Football Playoff 2025 projections: Where the bracket stands with Week 11 underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/08/college-football-playoff-bracket-projections-odds/
+
+**Is Texas Tech the Big 12's new dominant program? It looked the part against BYU**\
+`Texas Tech's defense propelled it past one of the four remaining undefeated teams in college football.`\
+https://nytimes.com/athletic/6790100/2025/11/08/texas-tech-byu-score-result/
+
+**Indiana completes Penn State comeback behind Omar Cooper Jr.'s late TD**\
+`Indiana quarterback Fernando Mendoza orchestrated the Hoosiers' final touchdown in under two minutes, capped by Cooper Jr.'s heroics.`\
+https://nytimes.com/athletic/6790147/2025/11/08/penn-state-indiana-football-upset-game-analysis/
+
 **Luis Diaz just scored from this angle. The XG? 0.03**\
 `Only one goal, which went in directly from a corner, has been scored from a tighter angle across Europe's top five leagues this season`\
 https://nytimes.com/athletic/6789814/2025/11/08/luis-diaz-goal-bayern-munich/

@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6560541/2025/11/08/college-football-playoff-bracket
 `Texas Tech's defense propelled it past one of the four remaining undefeated teams in college football.`\
 https://nytimes.com/athletic/6790100/2025/11/08/texas-tech-byu-score-result/
 
-**Indiana completes Penn State comeback behind Omar Cooper Jr.'s late TD**\
+**Omar Cooper Jr.'s gravity-defying, toe-tap TD lifts Indiana over Penn State**\
 `Indiana quarterback Fernando Mendoza orchestrated the Hoosiers' final touchdown in under two minutes, capped by Cooper Jr.'s heroics.`\
 https://nytimes.com/athletic/6790147/2025/11/08/penn-state-indiana-football-upset-game-analysis/
 
