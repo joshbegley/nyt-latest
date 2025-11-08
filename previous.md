@@ -1,3 +1,7 @@
+**Shots Fired at Border Patrol Agents in Chicago, Federal Officials Say**\
+`No Border Patrol agents were injured in the incident on Saturday as an immigration enforcement campaign continues in the city.`\
+https://nytimes.com/2025/11/08/us/chicago-border-patrol-agents.html
+
 **Swing States**\
 `Amie Walker makes a Sunday debut puzzle for the left coast (the best coast?).`\
 https://nytimes.com/2025/11/08/crosswords/daily-puzzle-2025-11-09.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000010511823/yung-lean-has-love-for-all-so
 **NWSL commissioner on gender eligibility: 'Our policy is our current practice'**\
 `Berman made her first public comments on NWSL gender eligibility rules since a New York Post op-ed stirred controversy around the issue.`\
 https://nytimes.com/athletic/6790121/2025/11/08/nwsl-commissioner-gender-eligibility-policy/
-
-**Is Jeremiah Smith a Heisman candidate too? Ohio State takeaways from easy win at Purdue**\
-`Carnell Tate was unexpectedly absent, but Jeremiah Smith stole the show in No. 1 Ohio State's 34-10 win at Purdue.`\
-https://nytimes.com/athletic/6790321/2025/11/08/ohio-state-purdue-score-result-jeremiah-smith/
 

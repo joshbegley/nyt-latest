@@ -1,3 +1,7 @@
+**Shots Fired at Border Patrol Agents in Chicago, Federal Officials Say**\
+`No Border Patrol agents were injured in the incident on Saturday as an immigration enforcement campaign continues in the city.`\
+https://nytimes.com/2025/11/08/us/chicago-border-patrol-agents.html
+
 **Swing States**\
 `Amie Walker makes a Sunday debut puzzle for the left coast (the best coast?).`\
 https://nytimes.com/2025/11/08/crosswords/daily-puzzle-2025-11-09.html
