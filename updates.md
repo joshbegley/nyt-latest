@@ -1,3 +1,7 @@
+**The DNA Helix Changed How We Thought About Ourselves**\
+`“The laws of inheritance are quite unknown,” Charles Darwin acknowledged in 1859. The discovery of DNA’s shape altered how we conceived of life itself.`\
+https://nytimes.com/2025/11/07/science/watson-dna-humanity.html
+
 **They’re Not Up to Much**\
 `Ryan Judge continues his Saturday streak.`\
 https://nytimes.com/2025/11/07/crosswords/daily-puzzle-2025-11-08.html
