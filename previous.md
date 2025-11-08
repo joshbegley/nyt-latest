@@ -7,7 +7,7 @@ https://nytimes.com/2025/11/07/us/politics/biden-trump-omaha-nebraska.html
 https://nytimes.com/2025/11/07/us/airport-flight-cancellations-faa-shutdown.html
 
 **Mavericks' misery continues with road loss to Grizzlies**\
-`The Mavericks have had the NBA's worst offense for most of this season and now own the worst record in the Western Conference. `\
+`The Mavericks have had the NBA's worst offense for most of this season, and now own the worst record in the Western Conference. `\
 https://nytimes.com/athletic/6788920/2025/11/07/mavericks-losing-streak-grizzlies-ja-morant/
 
 **Giannis Antetokounmpo puts up 41 points in Bucks' NBA Cup win over Bulls**\
