@@ -1,3 +1,11 @@
+**Giannis Antetokounmpo puts up 41 points in Bucks' NBA Cup win vs. Bulls**\
+`Antetokounmpo posted his second 40-point game of the season and his fifth game with over 30 points.`\
+https://nytimes.com/athletic/6788923/2025/11/07/giannis-antetokounmpo-bucks-bulls-nba-cup/
+
+**Wembanyama outduels Durant as Spurs make another early-season statement**\
+`Victor Wembanyama and Kevin Durant traded poster dunks in the third quarter before the younger Spurs star led his team past the Rockets vet.`\
+https://nytimes.com/athletic/6788881/2025/11/07/victor-wembanyama-dunk-kevin-durant-rockets-spurs/
+
 **Wemby outduels Durant as Spurs make another early-season statement**\
 `Victor Wembanyama and Kevin Durant traded poster dunks in the third quarter before the younger Spurs star led his team past the Rockets vet.`\
 https://nytimes.com/athletic/6788881/2025/11/07/victor-wembanyama-dunk-kevin-durant-rockets-spurs/
