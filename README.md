@@ -1,3 +1,7 @@
+**Canada Culls Hundreds of Ostriches as a Court and a Kennedy Fail to Save Them**\
+`The birds, exposed to the avian flu, were killed after Canada’s Supreme Court refused to hear an appeal and a rescue effort by Robert F. Kennedy Jr. fell short.`\
+https://nytimes.com/2025/11/07/world/canada/canada-ostrich-cull-rfk-jr.html
+
 **Cowboys' Marshawn Kneeland's car reportedly hit pickup truck after police chase**\
 `Kneeland was reportedly being pursued by police for an alleged traffic violation before his car struck a pickup truck.`\
 https://nytimes.com/athletic/6788550/2025/11/07/cowboys-marshawn-kneeland-car-pickup-crash/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6788095/2025/11/07/kentucky-zach-calzada-video-mone
 **Nets' Cam Thomas suffers hamstring strain, will miss at least 3-4 weeks**\
 `The Nets, already one of the league's worst offensive teams, will now be without their leading scorer for the forseeable future.`\
 https://nytimes.com/athletic/6788524/2025/11/07/cam-thomas-injury-timeline-out-nets/
-
-**gws-french-fall-dinner-party**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/french-fall-dinner-party
 
