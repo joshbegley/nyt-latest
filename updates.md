@@ -1,3 +1,7 @@
+**Judge Blocks National Guard From Portland, Ore., Permanently**\
+`With her temporary block expiring, Judge Karin Immergut said the Trump administration had failed to prove that protesters against the federal immigration crackdown were hampering President Trump’s policies.`\
+https://nytimes.com/2025/11/07/us/politics/portland-oregon-national-guard.html
+
 **CFP oversight committee leader not optimistic about 16-team expansion next season**\
 `CFP leaders have a Dec. 1 deadline to inform their television partners at ESPN of any changes to the format for next year.`\
 https://nytimes.com/athletic/6788675/2025/11/07/college-football-playoff-16-team-expansion-talks/
