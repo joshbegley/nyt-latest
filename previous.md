@@ -1,3 +1,11 @@
+**How to watch Senators vs. Flyers: Time, TV, streaming**\
+`Find out how to watch the Ottawa Senators play the Philadelphia Flyers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6789298/2025/11/08/senators-vs-flyers-stream-how-to-watch-nov-8/
+
+**How to watch Penguins vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Penguins play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6789295/2025/11/08/penguins-vs-devils-stream-how-to-watch-nov-8/
+
 **How to watch Western Carolina vs. Duke: Time, TV, streaming**\
 `Find out how to watch the Western Carolina Catamounts play the Duke Blue Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6789287/2025/11/08/western-carolina-vs-duke-stream-how-to-watch-nov-8/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6785731/2025/11/08/college-football-week-11-preview
 **How Trendon Watford is finding his place on Sixers by raising his ceiling — and voice**\
 `The 24-year-old is quickly making his case on the Sixers for more minutes and a place in the rotation. `\
 https://nytimes.com/athletic/6786378/2025/11/08/how-trendon-watford-is-finding-his-place-on-sixers-by-raising-his-ceiling-and-voice/
-
-**NFL Week 10 roundtable: New-look Colts, Ravens' resurgence, Eagles-Packers**\
-`With the dust settled from the trade deadline, our writers discuss Week 10 in the NFL, including the Colts and Eagles-Packers.`\
-https://nytimes.com/athletic/6788491/2025/11/08/nfl-week-10-roundtable-colts-sauce-gardner-ravens-eagles-packers/
-
-**Does home-field advantage matter in the NWSL playoffs?**\
-`Teams like Kansas City Current will be hoping they are driven forward in their playoff quest by a stadium full of their own fans`\
-https://nytimes.com/athletic/6785825/2025/11/08/nwsl-playoffs-home-field-advantage/
 

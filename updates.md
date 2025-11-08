@@ -1,3 +1,11 @@
+**How to watch Senators vs. Flyers: Time, TV, streaming**\
+`Find out how to watch the Ottawa Senators play the Philadelphia Flyers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6789298/2025/11/08/senators-vs-flyers-stream-how-to-watch-nov-8/
+
+**How to watch Penguins vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Penguins play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6789295/2025/11/08/penguins-vs-devils-stream-how-to-watch-nov-8/
+
 **How to watch Western Carolina vs. Duke: Time, TV, streaming**\
 `Find out how to watch the Western Carolina Catamounts play the Duke Blue Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6789287/2025/11/08/western-carolina-vs-duke-stream-how-to-watch-nov-8/
