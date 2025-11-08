@@ -1,3 +1,7 @@
+**How Mats Zuccarello's return helped spark Kirill Kaprizov and the Wild: Takeaways**\
+`Zuccarello picked up right where he left off in the Wild's impressive 5-2 victory over the Islanders on Friday.`\
+https://nytimes.com/athletic/6788976/2025/11/07/wild-islanders-mats-zuccarello-kirill-kaprizov/
+
 **Mavericks' misery continues with road loss to Grizzlies**\
 `The Mavericks have had the NBA's worst offense for most of this season, and now own the worst record in the Western Conference. `\
 https://nytimes.com/athletic/6788920/2025/11/07/mavericks-losing-streak-grizzlies-ja-morant/
