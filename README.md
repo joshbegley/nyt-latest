@@ -1,40 +1,40 @@
-**Peter Watkins, Provocateur With a Movie Camera, Dies at 89**\
-`His Oscar-winning 1965 film “The War Game” depicted a post-nuclear-attack England, one of his many fictionalized docudramas against war and repression.`\
-https://nytimes.com/2025/11/08/movies/peter-watkins-dead.html
+**How to watch Pacers vs. Nuggets: Time, TV, streaming**\
+`Find out how to watch the Indiana Pacers play the Denver Nuggets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6790238/2025/11/08/pacers-vs-nuggets-stream-how-to-watch-nov-8/
 
-**Lando Norris boosts F1 title hopes with Brazil pole while rivals Verstappen, Piastri struggle**\
-`Lando Norris completed a perfect day at Interlagos, as the 2025 F1 Brazil sprint race winner topped grand prix qualifying too`\
-https://nytimes.com/athletic/6790007/2025/11/08/brazilian-gp-qualifying-results/
+**How to watch Panthers vs. Sharks: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the San Jose Sharks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6790236/2025/11/08/panthers-vs-sharks-stream-how-to-watch-nov-8/
 
-**Anthony Grey, Journalist Held Hostage by China for Two Years, Dies at 87**\
-`A correspondent for Reuters, he became a global symbol of China’s isolation and of the anti-foreigner hysteria spawned by its Cultural Revolution.`\
-https://nytimes.com/2025/11/08/world/asia/anthony-grey-dead.html
+**How to watch Blue Jackets vs. Canucks: Time, TV, streaming**\
+`Find out how to watch the Columbus Blue Jackets play the Vancouver Canucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6790234/2025/11/08/blue-jackets-vs-canucks-stream-how-to-watch-nov-8/
 
-**Nabil Shaban, Acclaimed Actor and Advocate for the Disabled, Dies at 72**\
-`Born without the use of his legs, he appeared memorably on television on “Doctor Who” and onstage as, among many other roles, Hamlet.`\
-https://nytimes.com/2025/11/08/theater/nabil-shaban-dead.html
+**How to watch Suns vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the Phoenix Suns play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6790232/2025/11/08/suns-vs-clippers-stream-how-to-watch-nov-8/
 
-**Novak Djokovic eliminates Lorenzo Musetti from ATP Tour Finals race – for now**\
-`The seven-time ATP Tour Finals champion defeated the Italian in three grueling sets at the Hellenic Championship in Athens.`\
-https://nytimes.com/athletic/6789369/2025/11/08/djokovic-atp-tour-finals-turin-musetti/
+**How to watch Ducks vs. Golden Knights: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Vegas Golden Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6790230/2025/11/08/ducks-vs-golden-knights-stream-how-to-watch-nov-8/
 
-**New Pill From Merck Could Slash Cholesterol Levels, Trials Show**\
-`The drug targets the PCSK9 protein, and could give millions of people a more affordable option to reduce their heart disease risk.`\
-https://nytimes.com/2025/11/08/health/merck-cholesterol-pill-pcsk9.html
+**How to watch Avalanche vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the Colorado Avalanche play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6790228/2025/11/08/avalanche-vs-oilers-stream-how-to-watch-nov-8/
 
-**Keegan-Michael Key joins Panthers meeting, supports Rico Dowdle**\
-`Keegan-Michael Key continued to support Rico Dowdle after his TD celebration, pledging to donate $15,000 to the charity of his choice.`\
-https://nytimes.com/athletic/6789915/2025/11/08/keegan-michael-key-joins-panthers-team-meeting-to-show-support-for-rico-dowdle/
+**Luis Diaz just scored from this angle. The XG? 0.03**\
+`Only one goal, which came directly from a corner, has been scored from a tighter angle across Europe's top-five leagues this season`\
+https://nytimes.com/athletic/6789814/2025/11/08/luis-diaz-goal-bayern-munich/
 
-**Elena Rybakina paints the lines again to triumph over Aryna Sabalenka at WTA Tour Finals**\
-`The 2022 Wimbledon champion eased past the world No. 1 to cap her late-season surge back to the top of tennis.`\
-https://nytimes.com/athletic/6789352/2025/11/08/sabalenka-rybakina-wta-tour-finals-result-analysis/
+**Commanders owners anticipate potential stadium name discussion with Trump**\
+`No formal request has been made about naming the new development after him.`\
+https://nytimes.com/athletic/6789811/2025/11/08/commanders-trump-stadium-name-communications/
 
-**Man Dies After Slipping and Falling in Grand Canyon West**\
-`The body of a 65-year-old man, who fell 130 feet, was recovered on Thursday, officials said.`\
-https://nytimes.com/2025/11/08/us/grand-canyon-fall-death.html
+**How to watch Oklahoma vs. Gonzaga: Time, TV, streaming**\
+`Find out how to watch the Oklahoma Sooners play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6790193/2025/11/08/oklahoma-vs-gonzaga-stream-how-to-watch-nov-8/
 
-**'Let’s see when the window is open' - Amorim on Man Utd transfers, Sesko injury update**\
-`In addition to Sesko's injury, United trio Amad, Mazraoui, and Mbeumo will be competing at AFCON in December.`\
-https://nytimes.com/athletic/6789821/2025/11/08/manchester-united-transfer-news-sesko-injury-afcon/
+**How to watch Holy Cross vs. BYU: Time, TV, streaming**\
+`Find out how to watch the Holy Cross Crusaders play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6790191/2025/11/08/holy-cross-vs-byu-stream-how-to-watch-nov-8/
 

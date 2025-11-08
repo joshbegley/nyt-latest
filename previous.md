@@ -1,24 +1,4 @@
-**Commanders owners anticipate potential stadium name discussion with Trump**\
-`No formal request has been made about naming the new development after him.`\
-https://nytimes.com/athletic/6789811/2025/11/08/commanders-trump-stadium-name-communications/
-
-**How to watch Oklahoma vs. Gonzaga: Time, TV, streaming**\
-`Find out how to watch the Oklahoma Sooners play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6790193/2025/11/08/oklahoma-vs-gonzaga-stream-how-to-watch-nov-8/
-
-**How to watch Holy Cross vs. BYU: Time, TV, streaming**\
-`Find out how to watch the Holy Cross Crusaders play the BYU Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6790191/2025/11/08/holy-cross-vs-byu-stream-how-to-watch-nov-8/
-
-**Elena Rybakina declines photo with women's tennis chief at WTA Tour Finals trophy ceremony**\
-`Rybakina won $5.3 million in beating world No. 1 Aryna Sabalenka to lift the season-ending trophy.`\
-https://nytimes.com/athletic/6790044/2025/11/08/tennis-elena-rybakina-wta-investigation-stefano-vukov/
-
-**The Briefing: Sunderland 2 Arsenal 2 - How was defence breached? Saka and Trossard step up (again)**\
-`Arsenal lost their clean sheet record to Sunderland at the Stadium of Light in a pulsating encounter - The Athletic analyses the action`\
-https://nytimes.com/athletic/6784511/2025/11/08/sunderland-2-arsenal-2-conceded-saka-trossard-ballard/
-
-**Peter Watkins, Provocateur With a Movie Camera, Dies at 90**\
+**Peter Watkins, Provocateur With a Movie Camera, Dies at 89**\
 `His Oscar-winning 1965 film “The War Game” depicted a post-nuclear-attack England, one of his many fictionalized docudramas against war and repression.`\
 https://nytimes.com/2025/11/08/movies/peter-watkins-dead.html
 
@@ -34,7 +14,27 @@ https://nytimes.com/2025/11/08/world/asia/anthony-grey-dead.html
 `Born without the use of his legs, he appeared memorably on television on “Doctor Who” and onstage as, among many other roles, Hamlet.`\
 https://nytimes.com/2025/11/08/theater/nabil-shaban-dead.html
 
-**Novak Djokovic withdraws from ATP Tour Finals after eliminating Lorenzo Musetti from race**\
+**Novak Djokovic eliminates Lorenzo Musetti from ATP Tour Finals race – for now**\
 `The seven-time ATP Tour Finals champion defeated the Italian in three grueling sets at the Hellenic Championship in Athens.`\
 https://nytimes.com/athletic/6789369/2025/11/08/djokovic-atp-tour-finals-turin-musetti/
+
+**New Pill From Merck Could Slash Cholesterol Levels, Trials Show**\
+`The drug targets the PCSK9 protein, and could give millions of people a more affordable option to reduce their heart disease risk.`\
+https://nytimes.com/2025/11/08/health/merck-cholesterol-pill-pcsk9.html
+
+**Keegan-Michael Key joins Panthers meeting, supports Rico Dowdle**\
+`Keegan-Michael Key continued to support Rico Dowdle after his TD celebration, pledging to donate $15,000 to the charity of his choice.`\
+https://nytimes.com/athletic/6789915/2025/11/08/keegan-michael-key-joins-panthers-team-meeting-to-show-support-for-rico-dowdle/
+
+**Elena Rybakina paints the lines again to triumph over Aryna Sabalenka at WTA Tour Finals**\
+`The 2022 Wimbledon champion eased past the world No. 1 to cap her late-season surge back to the top of tennis.`\
+https://nytimes.com/athletic/6789352/2025/11/08/sabalenka-rybakina-wta-tour-finals-result-analysis/
+
+**Man Dies After Slipping and Falling in Grand Canyon West**\
+`The body of a 65-year-old man, who fell 130 feet, was recovered on Thursday, officials said.`\
+https://nytimes.com/2025/11/08/us/grand-canyon-fall-death.html
+
+**'Let’s see when the window is open' - Amorim on Man Utd transfers, Sesko injury update**\
+`In addition to Sesko's injury, United trio Amad, Mazraoui, and Mbeumo will be competing at AFCON in December.`\
+https://nytimes.com/athletic/6789821/2025/11/08/manchester-united-transfer-news-sesko-injury-afcon/
 
