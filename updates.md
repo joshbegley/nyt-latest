@@ -1,3 +1,15 @@
+**Arsenal sense missed opportunity despite late comeback against WSL leaders Chelsea**\
+`Chelsea led for over 75 minutes but Arsenal saw two second-half goals disallowed in a dramatic conclusion.`\
+https://nytimes.com/athletic/6789435/2025/11/08/arsenal-chelsea-wsl-report/
+
+**How to watch Towson vs. Houston: Time, TV, streaming**\
+`Find out how to watch the Towson Tigers play the Houston Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6789529/2025/11/08/towson-vs-houston-stream-how-to-watch-nov-8/
+
+**How to watch Northern Kentucky vs. Tennessee: Time, TV, streaming**\
+`Find out how to watch the Northern Kentucky Norse play the Tennessee Volunteers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6789521/2025/11/08/northern-kentucky-vs-tennessee-stream-how-to-watch-nov-8/
+
 **Can Drew Doughty help the Kings find stable ground — and earn a ticket to the Olympics?**\
 `In his 18th season, Doughty has had his minutes reduced and is dealing with some criticism.`\
 https://nytimes.com/athletic/6788040/2025/11/08/drew-doughty-kings-olympics/

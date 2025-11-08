@@ -1,3 +1,7 @@
+**Why Jaelan Phillips calls Eagles trade 'greatest thing that's happened to me'**\
+`Plus: Jaire Alexander insists he’s still in his prime and Jalen Hurts returns to Lambeau Field for the first time since his rookie season.`\
+https://nytimes.com/athletic/6789350/2025/11/08/eagles-jaelan-phillips-trade-comments/
+
 **Arsenal sense missed opportunity despite late comeback against WSL leaders Chelsea**\
 `Chelsea led for over 75 minutes but Arsenal saw two second-half goals disallowed in a dramatic conclusion.`\
 https://nytimes.com/athletic/6789435/2025/11/08/arsenal-chelsea-wsl-report/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6788988/2025/11/08/how-the-nfl-trade-deadline-went-
 **Middlesbrough give Wolves permission to speak with Rob Edwards**\
 `The former Watford and Luton Town head coach was stood down from managerial duties for Middlesbrough's game with Birmingham on Saturday.`\
 https://nytimes.com/athletic/6776081/2025/11/08/wolves-manager-middlesbrough-rob-edwards/
-
-**Alfie Jones interview: Canada's new recruit and the chat that opened his World Cup path**\
-`A chance sauna conversation changed the equation for a center back who has had to fight for everything he's achieved in his career thus far`\
-https://nytimes.com/athletic/6788374/2025/11/08/alfie-jones-interview-canada-world-cup-middlesbrough/
 
