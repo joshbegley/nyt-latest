@@ -1,3 +1,11 @@
+**NWSL commissioner on gender eligibility: 'Our policy is our current practice'**\
+`Berman made her first public comments on NWSL gender eligibility rules since a New York Post op-ed stirred controversy around the issue.`\
+https://nytimes.com/athletic/6790121/2025/11/08/nwsl-commissioner-gender-eligibility-policy/
+
+**Is Jeremiah Smith a Heisman candidate too? Ohio State takeaways from easy win at Purdue**\
+`Carnell Tate was unexpectedly absent, but Jeremiah Smith stole the show in No. 1 Ohio State's 34-10 win at Purdue.`\
+https://nytimes.com/athletic/6790321/2025/11/08/ohio-state-purdue-score-result-jeremiah-smith/
+
 **Parkinson and Jones have history - but both are battling to prove their worth in second tier**\
 `Wrexham fans don't much like the Charlton manager - he's starting to think his trips to North Wales are 'jinxed'`\
 https://nytimes.com/athletic/6773016/2025/11/08/wrexham-charlton-phil-parkinson-nathan-jones-championship/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6790005/2025/11/08/nba-washington-wizards-cleveland
 **How to watch Pacers vs. Nuggets: Time, TV, streaming**\
 `Find out how to watch the Indiana Pacers play the Denver Nuggets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6790238/2025/11/08/pacers-vs-nuggets-stream-how-to-watch-nov-8/
-
-**How to watch Panthers vs. Sharks: Time, TV, streaming**\
-`Find out how to watch the Florida Panthers play the San Jose Sharks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6790236/2025/11/08/panthers-vs-sharks-stream-how-to-watch-nov-8/
-
-**How to watch Blue Jackets vs. Canucks: Time, TV, streaming**\
-`Find out how to watch the Columbus Blue Jackets play the Vancouver Canucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6790234/2025/11/08/blue-jackets-vs-canucks-stream-how-to-watch-nov-8/
 
