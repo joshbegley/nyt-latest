@@ -1,3 +1,11 @@
+**USC quarterback changes number for trick play in 38-17 win over Northwestern**\
+`The Trojans' third-string quarterback, Sam Huard, wore punter Sam Johnson's number on a fake punt to fool the Northwestern defense.`\
+https://nytimes.com/athletic/6789650/2025/11/08/usc-northwestern-fake-punt-play/
+
+**At Least 4 Dead After Driver Slams Into Crowd Outside L.G.B.T.Q. Bar in Tampa, Police Say**\
+`The crash left 11 people injured. The police said they chased the vehicle after trying to pull over a reckless driver, who sped off and then lost control.`\
+https://nytimes.com/2025/11/08/us/car-crash-tampa-florida.html
+
 **Lando Norris extends F1 title lead with Brazilian sprint win as Piastri crashes out**\
 `Wet conditions disrupted the sprint race and led to a new twist in F1's championship fight`\
 https://nytimes.com/athletic/6789463/2025/11/08/brazilian-gp-sprint-race-results/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6789349/2025/11/08/commanders-injuries-roster-mista
 **Why Jaelan Phillips calls Eagles trade 'greatest thing that's happened to me'**\
 `Plus: Jaire Alexander insists he’s still in his prime and Jalen Hurts returns to Lambeau Field for the first time since his rookie season.`\
 https://nytimes.com/athletic/6789350/2025/11/08/eagles-jaelan-phillips-trade-comments/
-
-**Arsenal and Chelsea head coaches call for WSL to introduce VAR after dramatic derby**\
-`Chelsea led for over 75 minutes but Arsenal saw two second-half goals disallowed in a thrilling conclusion`\
-https://nytimes.com/athletic/6789435/2025/11/08/arsenal-chelsea-wsl-report/
-
-**How to watch Towson vs. Houston: Time, TV, streaming**\
-`Find out how to watch the Towson Tigers play the Houston Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6789529/2025/11/08/towson-vs-houston-stream-how-to-watch-nov-8/
 
