@@ -1,3 +1,7 @@
+**Families in Limbo After Supreme Court Order Interrupts Food Stamp Payments**\
+`The fate of SNAP was once again in question on Saturday after the Supreme Court temporarily agreed to allow the Trump administration to withhold full aid under the program.`\
+https://nytimes.com/2025/11/08/us/politics/families-food-stamps-supreme-court-order.html
+
 **WATCH: How Bills are punishing defenses with this offensive formation**\
 `The Bills have started to use more 22 personnel this season — that's two running backs and two tight ends on the field at the same time.`\
 https://nytimes.com/athletic/6788117/2025/11/08/video-analysis-bills-offensive-formation/
