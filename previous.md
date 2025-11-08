@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6789013/2025/11/08/jonathan-quick-rangers-sprawling
 https://nytimes.com/athletic/6788746/2025/11/08/anthony-edwards-timberwolves-win-jazz/
 
 **Notre Dame vs. Navy: Will Irish's months of prep for Midshipmen pay off?**\
-`SOUTH BEND, Ind.`\
+`It's difficult to see the Midshipmen keeping up with the Irish offense, even if the option catches Notre Dame in spots.`\
 https://nytimes.com/athletic/6787166/2025/11/08/notre-dame-navy-prediction-preview/
 
 **Answering the key questions about ESPN Bet's ending**\

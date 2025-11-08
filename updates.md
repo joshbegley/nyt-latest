@@ -1,3 +1,7 @@
+**Notre Dame vs. Navy: Will Irish's months of prep for Midshipmen pay off?**\
+`It's difficult to see the Midshipmen keeping up with the Irish offense, even if the option catches Notre Dame in spots.`\
+https://nytimes.com/athletic/6787166/2025/11/08/notre-dame-navy-prediction-preview/
+
 **Inside UNC's statement win over KU: A visit to Roy Williams, a budding star and reasons to believe**\
 `The way UNC won will inspire hope this is the year the roller-coaster ride of Hubert Davis' tenure will slow down.`\
 https://nytimes.com/athletic/6789065/2025/11/08/unc-kansas-score-result-caleb-wilson/
