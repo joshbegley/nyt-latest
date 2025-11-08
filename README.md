@@ -1,3 +1,7 @@
+**Elena Rybakina paints the lines again to triumph over Aryna Sabalenka at WTA Tour Finals**\
+`The 2022 Wimbledon champion eased past the world No. 1 to cap her late-season surge back to the top of tennis.`\
+https://nytimes.com/athletic/6789352/2025/11/08/sabalenka-rybakina-wta-tour-finals-result-analysis/
+
 **Man Dies After Slipping and Falling in Grand Canyon West**\
 `The body of a 65-year-old-man, who fell 130 feet, was recovered on Thursday, officials said.`\
 https://nytimes.com/2025/11/08/us/grand-canyon-fall-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6789896/2025/11/08/lakers-vs-hawks-stream-how-to-wa
 **How to watch Mammoth vs. Canadiens: Time, TV, streaming**\
 `Find out how to watch the Utah Mammoth play the Montreal Canadiens, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6789894/2025/11/08/mammoth-vs-canadiens-stream-how-to-watch-nov-8/
-
-**How to watch Pelicans vs. Spurs: Time, TV, streaming**\
-`Find out how to watch the New Orleans Pelicans play the San Antonio Spurs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6789892/2025/11/08/pelicans-vs-spurs-stream-how-to-watch-nov-8/
 
