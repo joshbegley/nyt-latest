@@ -1,3 +1,7 @@
+**What Happened to Swedish Tennis?**\
+`The country was once a force, with Bjorn Borg and Mats Wilander leading the way. Now, none of its players are highly ranked.`\
+https://nytimes.com/2025/11/07/sports/tennis/swedish-tennis.html
+
 **How to Do a Perfect Dumbbell Bench Press**\
 `Master this move to build upper-body strength.`\
 https://nytimes.com/interactive/2025/11/07/well/move/dumbbell-press-technique.html
