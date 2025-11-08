@@ -10,7 +10,7 @@ https://nytimes.com/2025/11/07/science/watson-dna-humanity.html
 `Ryan Judge continues his Saturday streak.`\
 https://nytimes.com/2025/11/07/crosswords/daily-puzzle-2025-11-08.html
 
-**Wemby outduels Durant as Spurs make another early-season statement**\
+**Wembanyama outduels Durant as Spurs make another early-season statement**\
 `Victor Wembanyama and Kevin Durant traded poster dunks in the third quarter before the younger Spurs star led his team past the Rockets vet.`\
 https://nytimes.com/athletic/6788881/2025/11/07/victor-wembanyama-dunk-kevin-durant-rockets-spurs/
 
