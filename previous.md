@@ -1,3 +1,7 @@
+**Can Drew Doughty help the Kings find stable ground — and earn a ticket to the Olympics?**\
+`In his 18th season, Doughty has had his minutes reduced and is dealing with some criticism.`\
+https://nytimes.com/athletic/6788040/2025/11/08/drew-doughty-kings-olympics/
+
 **Connor Bedard leading the way — and briefly leading the NHL — as Blackhawks roll**\
 `In his third NHL season, Bedard is starting to look like one of the best players in the world.`\
 https://nytimes.com/athletic/6789059/2025/11/08/blackhawks-connor-bedard-nhl-points-leaders/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6788046/2025/11/08/fantasy-football-week-10-what-to
 **Projecting Oilers' upcoming roster decisions: Who's most likely to go?**\
 `With Mattias Janmark and Zach Hyman close to returning, the Oilers will have to make room for them on the roster.`\
 https://nytimes.com/athletic/6788504/2025/11/08/oilers-roster-salary-cap-janmark-hyman/
-
-**Inside UNC's win over KU: A visit to Roy Williams, a budding star and reasons to believe**\
-`The way UNC won will inspire hope this is the year the roller-coaster ride of Hubert Davis' tenure will slow down.`\
-https://nytimes.com/athletic/6789065/2025/11/08/unc-kansas-score-result-caleb-wilson/
 
