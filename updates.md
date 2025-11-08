@@ -1,3 +1,7 @@
+**CFP oversight committee leader not optimistic about 16-team expansion next season**\
+`CFP leaders have a Dec. 1 deadline to inform their television partners at ESPN of any changes to the format for next year.`\
+https://nytimes.com/athletic/6788675/2025/11/07/college-football-playoff-16-team-expansion-talks/
+
 **Canada Culls Hundreds of Ostriches as a Court and a Kennedy Fail to Save Them**\
 `The birds, exposed to the avian flu, were killed after Canada’s Supreme Court refused to hear an appeal and a rescue effort by Robert F. Kennedy Jr. fell short.`\
 https://nytimes.com/2025/11/07/world/canada/canada-ostrich-cull-rfk-jr.html

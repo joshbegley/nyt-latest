@@ -1,3 +1,7 @@
+**CFP oversight committee leader not optimistic about 16-team expansion next season**\
+`CFP leaders have a Dec. 1 deadline to inform their television partners at ESPN of any changes to the format for next year.`\
+https://nytimes.com/athletic/6788675/2025/11/07/college-football-playoff-16-team-expansion-talks/
+
 **Canada Culls Hundreds of Ostriches as a Court and a Kennedy Fail to Save Them**\
 `The birds, exposed to the avian flu, were killed after Canada’s Supreme Court refused to hear an appeal and a rescue effort by Robert F. Kennedy Jr. fell short.`\
 https://nytimes.com/2025/11/07/world/canada/canada-ostrich-cull-rfk-jr.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/07/us/politics/massachusetts-senate-markey-moulton-p
 **Kentucky's Zach Calzada apologizes for viral video of him flashing money**\
 `After reportedly paying the quarterback more than $1 million in the offseason, Kentucky benched Calzada early in the season.`\
 https://nytimes.com/athletic/6788095/2025/11/07/kentucky-zach-calzada-video-money/
-
-**Nets' Cam Thomas suffers hamstring strain, will miss at least 3-4 weeks**\
-`The Nets, already one of the league's worst offensive teams, will now be without their leading scorer for the forseeable future.`\
-https://nytimes.com/athletic/6788524/2025/11/07/cam-thomas-injury-timeline-out-nets/
 
