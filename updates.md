@@ -1,3 +1,7 @@
+**Anthony Grey, Journalist Held Hostage by China for Two Years, Dies at 87**\
+`A correspondent for Reuters, he became a global symbol of China’s isolation and of the anti-foreigner hysteria spawned by its Cultural Revolution.`\
+https://nytimes.com/2025/11/08/world/asia/anthony-grey-dead.html
+
 **Nabil Shaban, Acclaimed Actor and Advocate for the Disabled, Dies at 72**\
 `Born without the use of his legs, he appeared memorably on television on “Doctor Who” and onstage as, among many other roles, Hamlet.`\
 https://nytimes.com/2025/11/08/theater/nabil-shaban-dead.html

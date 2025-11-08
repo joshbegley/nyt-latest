@@ -1,3 +1,7 @@
+**Anthony Grey, Journalist Held Hostage by China for Two Years, Dies at 87**\
+`A correspondent for Reuters, he became a global symbol of China’s isolation and of the anti-foreigner hysteria spawned by its Cultural Revolution.`\
+https://nytimes.com/2025/11/08/world/asia/anthony-grey-dead.html
+
 **Nabil Shaban, Acclaimed Actor and Advocate for the Disabled, Dies at 72**\
 `Born without the use of his legs, he appeared memorably on television on “Doctor Who” and onstage as, among many other roles, Hamlet.`\
 https://nytimes.com/2025/11/08/theater/nabil-shaban-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6789579/2025/11/08/tony-parker-france-u17-basketbal
 **How to watch Capitals vs. Lightning: Time, TV, streaming**\
 `Find out how to watch the Washington Capitals play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6789905/2025/11/08/capitals-vs-lightning-stream-how-to-watch-nov-8/
-
-**How to watch Bruins vs. Maple Leafs: Time, TV, streaming**\
-`Find out how to watch the Boston Bruins play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6789902/2025/11/08/bruins-vs-maple-leafs-stream-how-to-watch-nov-8/
 
