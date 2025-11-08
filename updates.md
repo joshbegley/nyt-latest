@@ -1,3 +1,11 @@
+**YouTube TV will offer $20 credit if dispute with ESPN continues: Source**\
+`The two sides are continuing ongoing negotiations, and YouTube TV credits are scheduled to be issued by Nov. 12 if a deal can't be reached.`\
+https://nytimes.com/athletic/6790310/2025/11/08/espn-youtubetv-credit-negotiations/
+
+**The Briefing: Chelsea 3 Wolves 0 - Gusto's goal, coping with low blocks and should Estevao start?**\
+`Cerys Jones and Simon Jones analyse the key talking points from Chelsea's victory over Wolves`\
+https://nytimes.com/athletic/6784512/2025/11/08/chelsea-wolves-analysis-malo-gusto/
+
 **Yung Lean Has Love For All SoundCloud Rappers**\
 `The Swedish rapper Yung Lean emerged more than a decade ago as a teenage internet sensation who found viral and then global fame. After struggling with mental illness and drugs, he’s back now and bigger than ever, with new music, a new film and welcome clarity.`\
 https://nytimes.com/video/podcasts/100000010511823/yung-lean-has-love-for-all-soundcloud-rappers.html
