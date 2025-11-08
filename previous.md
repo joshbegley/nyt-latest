@@ -1,3 +1,7 @@
+**Cowboys' Marshawn Kneeland's car reportedly hit pickup truck after police chase**\
+`Kneeland was reportedly being pursued by police for an alleged traffic violation before his car struck a pickup truck.`\
+https://nytimes.com/athletic/6788550/2025/11/07/cowboys-marshawn-kneeland-car-pickup-crash/
+
 **The Flatiron Building Enters Its Condo Era**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/the-flatiron-building-enters-its-condo-era
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6788524/2025/11/07/cam-thomas-injury-timeline-out-n
 **gws-french-fall-dinner-party**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/french-fall-dinner-party
-
-**Routine Check for UPS Plane Before Takeoff Was ‘Uneventful,’ Official Says**\
-`But a cockpit voice recorder picked up a ringing sound during takeoff that may have signaled looming disaster in the crash that killed at least 13 in Louisville, Ky.`\
-https://nytimes.com/2025/11/07/us/ups-plane-crash-recording-louisville.html
 

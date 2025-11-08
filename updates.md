@@ -1,3 +1,7 @@
+**Cowboys' Marshawn Kneeland's car reportedly hit pickup truck after police chase**\
+`Kneeland was reportedly being pursued by police for an alleged traffic violation before his car struck a pickup truck.`\
+https://nytimes.com/athletic/6788550/2025/11/07/cowboys-marshawn-kneeland-car-pickup-crash/
+
 **The Flatiron Building Enters Its Condo Era**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/the-flatiron-building-enters-its-condo-era
