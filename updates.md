@@ -1,3 +1,7 @@
+**Connor Bedard leading the way — and briefly leading the NHL — as Blackhawks roll**\
+`In his third NHL season, Bedard is starting to look like one of the best players in the world.`\
+https://nytimes.com/athletic/6789059/2025/11/08/blackhawks-connor-bedard-nhl-points-leaders/
+
 **Pauline Collins, 85, Dies; Stage and Screen Star of ‘Shirley Valentine’**\
 `She often played a particularly British character: a bubbly yet resilient woman facing down the corrosive effects of everyday modern life.`\
 https://nytimes.com/2025/11/08/movies/pauline-collins-dead.html

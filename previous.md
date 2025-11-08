@@ -1,3 +1,7 @@
+**Connor Bedard leading the way — and briefly leading the NHL — as Blackhawks roll**\
+`In his third NHL season, Bedard is starting to look like one of the best players in the world.`\
+https://nytimes.com/athletic/6789059/2025/11/08/blackhawks-connor-bedard-nhl-points-leaders/
+
 **Pauline Collins, 85, Dies; Stage and Screen Star of ‘Shirley Valentine’**\
 `She often played a particularly British character: a bubbly yet resilient woman facing down the corrosive effects of everyday modern life.`\
 https://nytimes.com/2025/11/08/movies/pauline-collins-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6788504/2025/11/08/oilers-roster-salary-cap-janmark
 **Inside UNC's win over KU: A visit to Roy Williams, a budding star and reasons to believe**\
 `The way UNC won will inspire hope this is the year the roller-coaster ride of Hubert Davis' tenure will slow down.`\
 https://nytimes.com/athletic/6789065/2025/11/08/unc-kansas-score-result-caleb-wilson/
-
-**A hard shot, stiff stick and no TV: Tales of Hall of Famer Zdeno Chara's time with Senators**\
-`The mountainous Slovakian defenseman spent four seasons with Ottawa and left an indelible mark on the franchise and his teammates.`\
-https://nytimes.com/athletic/6785172/2025/11/08/hockey-hall-of-fame-zdeno-chara-senators/
 
