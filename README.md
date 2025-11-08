@@ -30,8 +30,8 @@ https://nytimes.com/2025/11/08/business/metsera-pfizer-merger-weight-loss.html
 `The cargo airlines said they had taken the step to immediately ground the fleets on the recommendation of the plane’s manufacturer.`\
 https://nytimes.com/2025/11/08/us/ups-fedex-cargo-planes-grounded.html
 
-**A year after cancer diagnosis, Luana scores late goal to help Pride advance to NWSL semifinals**\
-`Marta, 38, assisted the last-minute goal.`\
+**18 months after cancer diagnosis, Luana scores late goal to help Pride advance to NWSL semifinals**\
+`Marta, 38, assisted the last-minute strike from the penalty spot that ensure a 2-0 victory over Seattle Reign`\
 https://nytimes.com/athletic/6788932/2025/11/08/orlando-pride-luana-goal-nwsl-cancer/
 
 **The New York Times in Print for Saturday, Nov. 8, 2025**\
