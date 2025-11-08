@@ -1,3 +1,11 @@
+**Why Is Trump So Afraid of American Voters?**\
+`President Trump raged after Democrats won multiple elections this week.`\
+https://nytimes.com/video/opinion/100000010512300/why-is-trump-so-afraid-of-american-voters.html
+
+**Are Post-Trump Politics Emerging?**\
+`The round table convenes to discuss what comes after the Democrats’ big wins — and whether the “red hat” coalition can recover.`\
+https://nytimes.com/video/opinion/100000010511078/are-post-trump-politics-emerging.html
+
 **A Home That Proves You Can Never Have Too Many Books**\
 `Surrounded by his expansive library and exquisite objects, a collector whose aesthetic helped shape America’s idea of minimalism has built a maximalist nirvana.`\
 https://nytimes.com/2025/11/08/t-magazine/peter-ayers-tarantino-apartment.html

@@ -1,3 +1,11 @@
+**Why Is Trump So Afraid of American Voters?**\
+`President Trump raged after Democrats won multiple elections this week.`\
+https://nytimes.com/video/opinion/100000010512300/why-is-trump-so-afraid-of-american-voters.html
+
+**Are Post-Trump Politics Emerging?**\
+`The round table convenes to discuss what comes after the Democrats’ big wins — and whether the “red hat” coalition can recover.`\
+https://nytimes.com/video/opinion/100000010511078/are-post-trump-politics-emerging.html
+
 **A Home That Proves You Can Never Have Too Many Books**\
 `Surrounded by his expansive library and exquisite objects, a collector whose aesthetic helped shape America’s idea of minimalism has built a maximalist nirvana.`\
 https://nytimes.com/2025/11/08/t-magazine/peter-ayers-tarantino-apartment.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6787664/2025/11/08/great-reads-weekend-alabama-soro
 **Why has the Red Wings' offense been quiet lately? Five Observations**\
 `After a dreamy start, Detroit now faces the real questions that were always going to define its season. How will it respond?`\
 https://nytimes.com/athletic/6788924/2025/11/08/red-wings-rangers-patrick-kane-offense/
-
-**How to watch Sunderland vs. Arsenal from the U.S.: Gunners seek 11th win in a row**\
-`Arsenal has stacked 10 wins in a row across three leagues and six weeks. Sunderland is making the absolute most of its EPL promotion.`\
-https://nytimes.com/athletic/6784675/2025/11/08/arsenal-sunderland-epl-how-to-watch-usa/
-
-**Take our college football quiz: What you need to know about Week 11**\
-`Test your college football trivia knowledge and catch up on essential reading ahead of Texas Tech-BYU, Alabama-LSU, Iowa-Oregon and more.`\
-https://nytimes.com/athletic/6785731/2025/11/08/college-football-week-11-preview-quiz-links/
 
