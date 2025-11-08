@@ -1,3 +1,7 @@
+**Wemby and Durant trade poster dunks as NBA's past and present stars collide**\
+`Within minutes of each other, the NBA's newest star and one of its oldest traded a pair of thunderous slams during the Rockets-Spurs game.`\
+https://nytimes.com/athletic/6788881/2025/11/07/victor-wembanyama-dunk-kevin-durant-rockets-spurs/
+
 **Cowboys' Marshawn Kneeland's car reportedly hit pickup truck after police chase**\
 `Kneeland was reportedly being pursued by police for an alleged traffic violation before his car struck a pickup truck.`\
 https://nytimes.com/athletic/6788550/2025/11/07/cowboys-marshawn-kneeland-car-pickup-crash/

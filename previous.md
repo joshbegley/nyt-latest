@@ -1,3 +1,7 @@
+**Wemby and Durant trade poster dunks as NBA's past and present stars collide**\
+`Within minutes of each other, the NBA's newest star and one of its oldest traded a pair of thunderous slams during the Rockets-Spurs game.`\
+https://nytimes.com/athletic/6788881/2025/11/07/victor-wembanyama-dunk-kevin-durant-rockets-spurs/
+
 **A Light in Very Dark Days: Nancy Pelosi and AIDS**\
 `As Ms. Pelosi announced her retirement, she was celebrated for her long tenure in Washington. But back home, she was remembered for showing up at a terrifying moment when others turned away.`\
 https://nytimes.com/2025/11/07/us/politics/nancy-pelosi-aids-lgbtq.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6788675/2025/11/07/college-football-playoff-16-team
 **Canada Culls Hundreds of Ostriches as a Court and a Kennedy Fail to Save Them**\
 `The birds, exposed to the avian flu, were killed after Canada’s Supreme Court refused to hear an appeal and a rescue effort by Robert F. Kennedy Jr. fell short.`\
 https://nytimes.com/2025/11/07/world/canada/canada-ostrich-cull-rfk-jr.html
-
-**Cowboys' Marshawn Kneeland's car reportedly hit pickup truck after police chase**\
-`Kneeland was reportedly being pursued by police for an alleged traffic violation before his car struck a pickup truck.`\
-https://nytimes.com/athletic/6788550/2025/11/07/cowboys-marshawn-kneeland-car-pickup-crash/
 
