@@ -1,3 +1,7 @@
+**Swing States**\
+`Amie Walker makes a Sunday debut puzzle for the left coast (the best coast?).`\
+https://nytimes.com/2025/11/08/crosswords/daily-puzzle-2025-11-09.html
+
 **Worries Mount as Air Traffic Delays Stretch to Second Day**\
 `Disruptions to air travel on Saturday were modest, but officials and passengers were bracing for worse as the government shutdown continued.`\
 https://nytimes.com/2025/11/08/us/worries-mount-as-air-traffic-delays-stretch-to-second-day.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6790121/2025/11/08/nwsl-commissioner-gender-eligibi
 **Is Jeremiah Smith a Heisman candidate too? Ohio State takeaways from easy win at Purdue**\
 `Carnell Tate was unexpectedly absent, but Jeremiah Smith stole the show in No. 1 Ohio State's 34-10 win at Purdue.`\
 https://nytimes.com/athletic/6790321/2025/11/08/ohio-state-purdue-score-result-jeremiah-smith/
-
-**Parkinson and Jones have history - but both are battling to prove their worth in second tier**\
-`Wrexham fans don't much like the Charlton manager - he's starting to think his trips to North Wales are 'jinxed'`\
-https://nytimes.com/athletic/6773016/2025/11/08/wrexham-charlton-phil-parkinson-nathan-jones-championship/
 
