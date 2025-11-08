@@ -1,3 +1,7 @@
+**Peter Watkins, Provocateur With a Movie Camera, Dies at 90**\
+`His Oscar-winning 1965 film “The War Game” depicted a post-nuclear-attack England, one of his many fictionalized docudramas against war and repression.`\
+https://nytimes.com/2025/11/08/movies/peter-watkins-dead.html
+
 **Elena Rybakina declines photo with women's tennis chief at WTA Tour Finals trophy ceremony**\
 `Rybakina won $5.3 million in beating world No. 1 Aryna Sabalenka to lift the season-ending trophy.`\
 https://nytimes.com/athletic/6790044/2025/11/08/tennis-elena-rybakina-wta-investigation-stefano-vukov/

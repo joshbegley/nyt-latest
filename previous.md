@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6790044/2025/11/08/tennis-elena-rybakina-wta-invest
 `Arsenal lost their clean sheet record to Sunderland at the Stadium of Light in a pulsating encounter - The Athletic analyses the action`\
 https://nytimes.com/athletic/6784511/2025/11/08/sunderland-2-arsenal-2-conceded-saka-trossard-ballard/
 
-**Peter Watkins, Provocateur With a Movie Camera, Dies at 89**\
+**Peter Watkins, Provocateur With a Movie Camera, Dies at 90**\
 `His Oscar-winning 1965 film “The War Game” depicted a post-nuclear-attack England, one of his many fictionalized docudramas against war and repression.`\
 https://nytimes.com/2025/11/08/movies/peter-watkins-dead.html
 
