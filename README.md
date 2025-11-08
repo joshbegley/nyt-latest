@@ -1,3 +1,7 @@
+**Inside UNC's statement win over KU: A visit to Roy Williams, a budding star and reasons to believe**\
+`The way UNC won will inspire hope this is the year the roller-coaster ride of Hubert Davis' tenure will end.`\
+https://nytimes.com/athletic/6789065/2025/11/08/unc-kansas-score-result-caleb-wilson/
+
 **A hard shot, stiff stick and no TV: Tales of Hall of Famer Zdeno Chara's time with Senators**\
 `The mountainous Slovakian defenseman spent four seasons with Ottawa and left an indelible mark on the franchise and his teammates.`\
 https://nytimes.com/athletic/6785172/2025/11/08/hockey-hall-of-fame-zdeno-chara-senators/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/08/opinion/prince-andrew-royals-monarchy-britain.htm
 **Trump Aid Cuts Kill More Christians Than Jihadists Do**\
 `Murderous attacks on Christians and Muslims alike are a real problem in Nigeria. Cutting humanitarian assistance there is even more lethal.`\
 https://nytimes.com/2025/11/08/opinion/trump-christians-nigeria.html
-
-**A.I. Is Already Intelligent. This Is How It Becomes Conscious.**\
-`Skeptics overlook how our concepts change.`\
-https://nytimes.com/2025/11/08/opinion/ai-conscious-technology.html
 
