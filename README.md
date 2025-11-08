@@ -2,7 +2,7 @@
 `His Oscar-winning 1965 film “The War Game” depicted a post-nuclear-attack England, one of his many fictionalized docudramas against war and repression.`\
 https://nytimes.com/2025/11/08/movies/peter-watkins-dead.html
 
-**Norris boosts his F1 title hopes with Brazil pole. Verstappen exits in Q1, Piastri struggles**\
+**Lando Norris boosts F1 title hopes with Brazil pole while rivals Verstappen, Piastri struggle**\
 `Lando Norris completed a perfect day at Interlagos, as the 2025 F1 Brazil sprint race winner topped grand prix qualifying too`\
 https://nytimes.com/athletic/6790007/2025/11/08/brazilian-gp-qualifying-results/
 
