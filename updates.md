@@ -1,3 +1,7 @@
+**Can Drew Doughty help the Kings find stable ground — and earn a ticket to the Olympics?**\
+`In his 18th season, Doughty has had his minutes reduced and is dealing with some criticism.`\
+https://nytimes.com/athletic/6788040/2025/11/08/drew-doughty-kings-olympics/
+
 **Thanksgiving dessert for all!**\
 `Pumpkin spice honeycomb cake, cranberry curd tart and more of my favorite gluten-free and vegan bakes.`\
 https://nytimes.com/2025/11/08/dining/thanksgiving-dessert-for-all.html
