@@ -1,3 +1,7 @@
+**Man Dies After Slipping and Falling in Grand Canyon West**\
+`The body of a 65-year-old-man, who fell 130 feet, was recovered on Thursday, officials said.`\
+https://nytimes.com/2025/11/08/us/grand-canyon-fall-death.html
+
 **'Let’s see when the window is open' - Amorim on Man Utd transfers, Sesko injury update**\
 `In addition to Sesko's injury, United trio Amad, Mazraoui, and Mbeumo will be competing at AFCON in December.`\
 https://nytimes.com/athletic/6789821/2025/11/08/manchester-united-transfer-news-sesko-injury-afcon/

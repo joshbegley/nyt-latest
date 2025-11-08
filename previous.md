@@ -1,3 +1,7 @@
+**Man Dies After Slipping and Falling in Grand Canyon West**\
+`The body of a 65-year-old-man, who fell 130 feet, was recovered on Thursday, officials said.`\
+https://nytimes.com/2025/11/08/us/grand-canyon-fall-death.html
+
 **'Let’s see when the window is open' - Amorim on Man Utd transfers, Sesko injury update**\
 `In addition to Sesko's injury, United trio Amad, Mazraoui, and Mbeumo will be competing at AFCON in December.`\
 https://nytimes.com/athletic/6789821/2025/11/08/manchester-united-transfer-news-sesko-injury-afcon/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6789894/2025/11/08/mammoth-vs-canadiens-stream-how-
 **How to watch Pelicans vs. Spurs: Time, TV, streaming**\
 `Find out how to watch the New Orleans Pelicans play the San Antonio Spurs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6789892/2025/11/08/pelicans-vs-spurs-stream-how-to-watch-nov-8/
-
-**How to watch Mavericks vs. Wizards: Time, TV, streaming**\
-`Find out how to watch the Dallas Mavericks play the Washington Wizards, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6789891/2025/11/08/mavericks-vs-wizards-stream-how-to-watch-nov-8/
 
