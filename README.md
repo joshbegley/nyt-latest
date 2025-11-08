@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6788046/2025/11/08/fantasy-football-week-10-what-to
 `With Mattias Janmark and Zach Hyman close to returning, the Oilers will have to make room for them on the roster.`\
 https://nytimes.com/athletic/6788504/2025/11/08/oilers-roster-salary-cap-janmark-hyman/
 
-**Inside UNC's statement win over KU: A visit to Roy Williams, a budding star and reasons to believe**\
+**Inside UNC's win over KU: A visit to Roy Williams, a budding star and reasons to believe**\
 `The way UNC won will inspire hope this is the year the roller-coaster ride of Hubert Davis' tenure will slow down.`\
 https://nytimes.com/athletic/6789065/2025/11/08/unc-kansas-score-result-caleb-wilson/
 
