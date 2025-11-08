@@ -1,3 +1,7 @@
+**'We’re just grateful': Erik Spoelstra opens up after fire destroys home**\
+`Spoelstra took the time to show his appreciation for the support he has received and recognized the first responders who arrived. `\
+https://nytimes.com/athletic/6789692/2025/11/08/erik-spoelstra-miami-heat-fire-comments/
+
 **The Sprint for City Hall **\
 `Looking back at a momentous election and the challenges that await Mayor-elect Zohran Mamdani.`\
 https://nytimes.com/card/2025/11/08/nyregion/sprint-city-hall-mamdani

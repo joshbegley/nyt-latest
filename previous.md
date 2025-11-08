@@ -1,3 +1,7 @@
+**'We’re just grateful': Erik Spoelstra opens up after fire destroys home**\
+`Spoelstra took the time to show his appreciation for the support he has received and recognized the first responders who arrived. `\
+https://nytimes.com/athletic/6789692/2025/11/08/erik-spoelstra-miami-heat-fire-comments/
+
 **The Sprint for City Hall **\
 `Looking back at a momentous election and the challenges that await Mayor-elect Zohran Mamdani.`\
 https://nytimes.com/card/2025/11/08/nyregion/sprint-city-hall-mamdani
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6789650/2025/11/08/usc-northwestern-fake-punt-play/
 **At Least 4 Dead After Driver Slams Into Crowd Outside a Tampa Bar, Police Say**\
 `The crash left 11 people injured. The police said they chased the vehicle after trying to pull over a reckless driver, who sped off and then lost control.`\
 https://nytimes.com/2025/11/08/us/car-crash-tampa-florida.html
-
-**Lando Norris extends F1 title lead with Brazilian sprint win as Piastri crashes out**\
-`Wet conditions disrupted the sprint race and led to a new twist in F1's championship fight`\
-https://nytimes.com/athletic/6789463/2025/11/08/brazilian-gp-sprint-race-results/
 
