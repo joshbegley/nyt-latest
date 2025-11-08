@@ -1,3 +1,7 @@
+**YouTube TV will offer $20 credit if dispute with ESPN continues: Source**\
+`The two sides are continuing negotiations, and YouTube TV credits are scheduled to be issued by Wednesday if a deal can't be reached.`\
+https://nytimes.com/athletic/6790310/2025/11/08/espn-youtubetv-credit-negotiations/
+
 **Heavy Rain Is Expected in California After Spell of Unusually Warm Weather**\
 `Areas across the state could record anywhere from one to five or more inches of rain. The Sierra will get some snow.`\
 https://nytimes.com/2025/11/08/weather/california-weather-heat-rain.html
