@@ -1,3 +1,7 @@
+**Pauline Collins, 85, Dies; Stage and Screen Star of ‘Shirley Valentine’**\
+`She often played a particularly British character: a bubbly yet resilient woman facing down the corrosive effects of everyday modern life.`\
+https://nytimes.com/2025/11/08/movies/pauline-collins-dead.html
+
 **'Our defense sucks': Draymond Green offers blunt assessment of Warriors after loss to Nuggets**\
 `While Green hard sharp words for the defense, and himself, Warriors coach Steve Kerr noted the team's "lack of purpose and energy."`\
 https://nytimes.com/athletic/6789186/2025/11/08/warriors-draymond-green-nuggets/
