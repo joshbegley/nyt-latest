@@ -2,7 +2,7 @@
 `The Trojans' third-string quarterback, Sam Huard, wore punter Sam Johnson's number on a fake punt to fool the Northwestern defense.`\
 https://nytimes.com/athletic/6789650/2025/11/08/usc-northwestern-fake-punt-play/
 
-**At Least 4 Dead After Driver Slams Into Crowd Outside L.G.B.T.Q. Bar in Tampa, Police Say**\
+**At Least 4 Dead After Driver Slams Into Crowd Outside a Tampa Bar, Police Say**\
 `The crash left 11 people injured. The police said they chased the vehicle after trying to pull over a reckless driver, who sped off and then lost control.`\
 https://nytimes.com/2025/11/08/us/car-crash-tampa-florida.html
 
