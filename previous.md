@@ -1,3 +1,11 @@
+**Norris wins disrupted Brazilian GP sprint race from surging Antonelli, as Piastri crashes out**\
+`Lando Norris held off Kimi Antonelli to win Formula One&#8217;s 2025 Brazilian Grand Prix sprint race, adding a crucial eight points in his championship pocket while his McLaren teammate Oscar Piastri crashed out.`\
+https://nytimes.com/athletic/6789463/2025/11/08/brazilian-gp-sprint-race-results/
+
+**Thanksgiving dessert for all!**\
+`Pumpkin spice honeycomb cake, cranberry curd tart and more of my favorite gluten-free and vegan bakes.`\
+https://nytimes.com/2025/11/08/dining/thanksgiving-dessert-for-all.html
+
 **Women's tennis chief Portia Archer wants to extend WTA Tour Finals deal with Saudi Arabia**\
 `The current agreement between the WTA Tour and Saudi Arabia's sports authority ends in 2027.`\
 https://nytimes.com/athletic/6789538/2025/11/08/wta-tour-finals-saudi-arabia-deal-chief-executive/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6789435/2025/11/08/arsenal-chelsea-wsl-report/
 **How to watch Towson vs. Houston: Time, TV, streaming**\
 `Find out how to watch the Towson Tigers play the Houston Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6789529/2025/11/08/towson-vs-houston-stream-how-to-watch-nov-8/
-
-**How to watch Northern Kentucky vs. Tennessee: Time, TV, streaming**\
-`Find out how to watch the Northern Kentucky Norse play the Tennessee Volunteers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6789521/2025/11/08/northern-kentucky-vs-tennessee-stream-how-to-watch-nov-8/
-
-**Can Drew Doughty help the Kings find stable ground — and earn a ticket to the Olympics?**\
-`In his 18th season, Doughty has had his minutes reduced and is dealing with some criticism.`\
-https://nytimes.com/athletic/6788040/2025/11/08/drew-doughty-kings-olympics/
 

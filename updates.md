@@ -1,3 +1,11 @@
+**Norris wins disrupted Brazilian GP sprint race from surging Antonelli, as Piastri crashes out**\
+`Lando Norris held off Kimi Antonelli to win Formula One&#8217;s 2025 Brazilian Grand Prix sprint race, adding a crucial eight points in his championship pocket while his McLaren teammate Oscar Piastri crashed out.`\
+https://nytimes.com/athletic/6789463/2025/11/08/brazilian-gp-sprint-race-results/
+
+**Thanksgiving dessert for all!**\
+`Pumpkin spice honeycomb cake, cranberry curd tart and more of my favorite gluten-free and vegan bakes.`\
+https://nytimes.com/2025/11/08/dining/thanksgiving-dessert-for-all.html
+
 **Can Drew Doughty help the Kings find stable ground — and earn a ticket to the Olympics?**\
 `In his 18th season, Doughty has had his minutes reduced and is dealing with some criticism.`\
 https://nytimes.com/athletic/6788040/2025/11/08/drew-doughty-kings-olympics/
