@@ -1,3 +1,7 @@
+**Newsom, Eyeing 2028, Tries to Mess With Texas: ‘Don’t Poke the Bear’**\
+`Celebrating his recent redistricting victory, the California governor swooped into a state led by a Republican rival and sent the latest signal about his presidential ambitions.`\
+https://nytimes.com/2025/11/08/us/politics/newsom-2028-texas-rally-abbott-trump.html
+
 **Heavy Rain Is Expected in California After Spell of Unusually Warm Weather**\
 `Areas across the state could record anywhere from one to five or more inches of rain. The Sierra will get some snow.`\
 https://nytimes.com/2025/11/08/weather/california-weather-heat-rain.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/11/08/weather/california-weather-heat-rain.html
 https://nytimes.com/athletic/6790310/2025/11/08/espn-youtubetv-credit-negotiations/
 
 **The Briefing: Chelsea 3 Wolves 0 - Gusto's goal, coping with low blocks and should Estevao start?**\
-`Cerys Jones and Simon Jones analyse the key talking points from Chelsea's victory over Wolves`\
+`Cerys Jones and Simon Jones analyse the key talking points from Chelsea's victory over rock-bottom Wolves`\
 https://nytimes.com/athletic/6784512/2025/11/08/chelsea-wolves-analysis-malo-gusto/
 
 **Yung Lean Has Love For All SoundCloud Rappers**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/08/business/trump-meatpackers-investigation.html
 **Trump Gives Hungary a Reprieve on Sanctions After Meeting With Orban**\
 `The United States has imposed sanctions on nations buying Russian oil, but President Viktor Orban successfully argued that Hungary had few other options.`\
 https://nytimes.com/2025/11/08/us/politics/trump-gives-hungarys-orban-reprieve-on-sanctions-after-meeting.html
-
-**College Football Playoff 2025 projections: Where the bracket stands with Week 11 underway**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/11/08/college-football-playoff-bracket-projections-odds/
 
