@@ -1,5 +1,13 @@
+**Tornado Rips Through Southern Brazil, Killing at Least 5 People**\
+`Pounding rain and winds of over 150 miles per hour left a trail of devastation in the state of Paraná in Brazil.`\
+https://nytimes.com/2025/11/08/world/americas/tornado-brazil-deaths.html
+
+**Remembrance Sunday: How does the Premier League mark it, and why do some see it as controversial?**\
+`Clubs in English football will mark Remembrance Sunday by playing the ‘Last Post’, laying wreaths, and observing a minute's silence`\
+https://nytimes.com/athletic/6786905/2025/11/08/rememberance-sunday-premier-league-armistice-day/
+
 **Jaylen Brown says refs made point in Celtics loss: 'I'll keep my mouth closed'**\
-`Brown seemed to be suggesting that the referees wanted retribution against him.`\
+`Brown seemed to be suggesting that the referees wanted retribution against him after he criticized officials earlier in the week.`\
 https://nytimes.com/athletic/6789019/2025/11/08/jaylen-brown-refs-celtics-magic/
 
 **Rayan Cherki, the Premier League's maverick**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6786936/2025/11/08/jonathan-gjoshe-footballer-railw
 **What I Learned From the ‘New Globalists’ of an Optimistic Nation**\
 `Few countries are excited about globalization anymore, but Vietnam is still into it — wholeheartedly. Do the reasons go beyond economic growth?`\
 https://nytimes.com/2025/11/08/world/asia/what-i-learned-from-the-new-globalists-of-an-optimistic-nation.html
-
-**Quote of the Day: Canadian Factory Town Blames Trump’s Tariffs for ‘a Punch to the Gut’**\
-`Quotation of the Day for Saturday, November 8, 2025.`\
-https://nytimes.com/2025/11/08/pageoneplus/quote-of-the-day-canadian-factory-town-blames-trumps-tariffs-for-a-punch-to-the-gut.html
-
-**Connections: Sports Edition Coach: Hints for Nov. 8, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6788245/2025/11/08/connections-sports-edition-hints-for-nov-8-2025/
 
