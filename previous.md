@@ -1,3 +1,7 @@
+**A Home That Proves You Can Never Have Too Many Books**\
+`Surrounded by his expansive library and exquisite objects, a collector whose aesthetic helped shape America’s idea of minimalism has built a maximalist nirvana.`\
+https://nytimes.com/2025/11/08/t-magazine/peter-ayers-tarantino-apartment.html
+
 **How to watch Senators vs. Flyers: Time, TV, streaming**\
 `Find out how to watch the Ottawa Senators play the Philadelphia Flyers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6789298/2025/11/08/senators-vs-flyers-stream-how-to-watch-nov-8/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6784675/2025/11/08/arsenal-sunderland-epl-how-to-wa
 **Take our college football quiz: What you need to know about Week 11**\
 `Test your college football trivia knowledge and catch up on essential reading ahead of Texas Tech-BYU, Alabama-LSU, Iowa-Oregon and more.`\
 https://nytimes.com/athletic/6785731/2025/11/08/college-football-week-11-preview-quiz-links/
-
-**How Trendon Watford is finding his place on Sixers by raising his ceiling — and voice**\
-`The 24-year-old is quickly making his case on the Sixers for more minutes and a place in the rotation. `\
-https://nytimes.com/athletic/6786378/2025/11/08/how-trendon-watford-is-finding-his-place-on-sixers-by-raising-his-ceiling-and-voice/
 

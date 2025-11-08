@@ -1,3 +1,7 @@
+**A Home That Proves You Can Never Have Too Many Books**\
+`Surrounded by his expansive library and exquisite objects, a collector whose aesthetic helped shape America’s idea of minimalism has built a maximalist nirvana.`\
+https://nytimes.com/2025/11/08/t-magazine/peter-ayers-tarantino-apartment.html
+
 **How to watch Senators vs. Flyers: Time, TV, streaming**\
 `Find out how to watch the Ottawa Senators play the Philadelphia Flyers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6789298/2025/11/08/senators-vs-flyers-stream-how-to-watch-nov-8/
