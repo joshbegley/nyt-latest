@@ -1,3 +1,7 @@
+**Thanksgiving dessert for all!**\
+`Pumpkin spice honeycomb cake, cranberry curd tart and more of my favorite gluten-free and vegan bakes.`\
+https://nytimes.com/2025/11/08/dining/thanksgiving-dessert-for-all.html
+
 **Shai Gilgeous-Alexander wants more and that should frighten the rest of the NBA**\
 `Gilgeous-Alexander and the Oklahoma City Thunder were historically great last season. The NBA MVP thinks he and the team can be even better.`\
 https://nytimes.com/athletic/6789238/2025/11/08/shai-gilgeous-alexander-thunder-early-season-success/
