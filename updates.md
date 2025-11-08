@@ -1,3 +1,7 @@
+**New York Approves $1 Billion Underwater Gas Pipeline After 3 Rejections**\
+`The contentious proposal, previously rebuffed by state regulators who expressed environmental concerns, was deemed acceptable on Friday.`\
+https://nytimes.com/2025/11/07/nyregion/underwater-gas-pipeline-nyc-approved.html
+
 **Transgender sprinter suing Rensselaer Polytech over alleged discrimination**\
 `In the lawsuit, sprinter Sadie Schreiner claims RPI violated New York’s Human Rights Law when it refused to let her run in a track meet.`\
 https://nytimes.com/athletic/6788421/2025/11/07/transgender-lawsuit-women-track-and-field-ncaa/
