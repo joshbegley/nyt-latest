@@ -1,3 +1,7 @@
+**How to watch Arkansas vs. Michigan State: Time, TV, streaming**\
+`Find out how to watch the Arkansas Razorbacks play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6789871/2025/11/08/arkansas-vs-michigan-state-stream-how-to-watch-nov-8/
+
 **'We’re just grateful': Erik Spoelstra opens up after fire destroys home**\
 `Spoelstra took the time to show his appreciation for the support he has received and recognized the first responders who arrived. `\
 https://nytimes.com/athletic/6789692/2025/11/08/erik-spoelstra-miami-heat-fire-comments/
