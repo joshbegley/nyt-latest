@@ -1,40 +1,40 @@
-**How Mats Zuccarello's return helped spark Kirill Kaprizov and the Wild: Takeaways**\
-`Zuccarello picked up right where he left off in the Wild's impressive 5-2 victory over the Islanders on Friday.`\
-https://nytimes.com/athletic/6788976/2025/11/07/wild-islanders-mats-zuccarello-kirill-kaprizov/
+**Jaylen Brown says refs made point in Celtics loss: 'I'll keep my mouth closed'**\
+`Brown seemed to be suggesting that the referees wanted retribution against him.`\
+https://nytimes.com/athletic/6789019/2025/11/08/jaylen-brown-refs-celtics-magic/
 
-**Biden Warns of a ‘Very, Very Dark Moment’ as He Hits Out at Trump**\
-`The former president, now a far less popular figure in his party, appeared in Nebraska for an overtly political speech that slammed his successor.`\
-https://nytimes.com/2025/11/07/us/politics/biden-trump-omaha-nebraska.html
+**Rayan Cherki, the Premier League's maverick**\
+`Manchester City's No 10's style is at odds with the general pattern of today's Premier League - and it is a fun and very welcome distinction`\
+https://nytimes.com/athletic/6786743/2025/11/08/manchester-city-rayan-cherki-maverick/
 
-**Limited Disruptions as Flight Cuts Begin at Major Airports**\
-`About 3 percent of Friday’s flights were canceled because of the government shutdown. The percentage could rise to 20 percent as the holidays approach.`\
-https://nytimes.com/2025/11/07/us/airport-flight-cancellations-faa-shutdown.html
+**Chelsea's new sporting director, Dave Fallows: 'A diamond to have in your camp'**\
+`Dave Fallows has worked for Newcastle, Manchester City and Liverpool, and is now part of a five-strong leadership group at Stamford Bridge`\
+https://nytimes.com/athletic/6786812/2025/11/08/chelsea-dave-fallows-sporting-director-diamond/
 
-**Mavericks' misery continues with road loss to Grizzlies**\
-`The Mavericks have had the NBA's worst offense for most of this season, and now own the worst record in the Western Conference. `\
-https://nytimes.com/athletic/6788920/2025/11/07/mavericks-losing-streak-grizzlies-ja-morant/
+**Liverpool and Man City have little margin for error. Can either challenge Arsenal?**\
+`Liverpool and City meet on Sunday and neither can afford to lose as they look to keep up the chase to first-placed Arsenal`\
+https://nytimes.com/athletic/6784880/2025/11/08/liverpool-and-man-city-have-little-margin-for-error-can-either-challenge-arsenal/
 
-**Giannis Antetokounmpo puts up 41 points in Bucks' NBA Cup win over Bulls**\
-`Antetokounmpo posted his second 40-point game of the season for the Bucks, who opened their NBA Cup title defense with a win.`\
-https://nytimes.com/athletic/6788923/2025/11/07/giannis-antetokounmpo-bucks-bulls-nba-cup/
+**Long throws and the striker with no shots on target: A statistical Premier League postcard, 100 games in**\
+`A look at some of the quirkier things you might have missed so far this season...`\
+https://nytimes.com/athletic/6783384/2025/11/08/premier-league-stats-2025-26/
 
-**The DNA Helix Changed How We Thought About Ourselves**\
-`“The laws of inheritance are quite unknown,” Charles Darwin acknowledged in 1859. The discovery of DNA’s shape altered how we conceived of life itself.`\
-https://nytimes.com/2025/11/07/science/watson-dna-humanity.html
+**In China, the Dream of Outrunning Time**\
+`Longevity labs, “immortality islands” and grapeseed pills are part of China’s national project to conquer aging, despite sometimes shaky science and extravagant claims.`\
+https://nytimes.com/2025/11/08/world/asia/china-aging-longevity-science.html
 
-**They’re Not Up to Much**\
-`Ryan Judge continues his Saturday streak.`\
-https://nytimes.com/2025/11/07/crosswords/daily-puzzle-2025-11-08.html
+**The footballer who survived a train knife attack: 'He told me he’ll be back in a month':**\
+`Former team-mates and coaches believe the 22-year-old has the strength of mind and spirit to make a full recovery`\
+https://nytimes.com/athletic/6786936/2025/11/08/jonathan-gjoshe-footballer-railway-stabbing/
 
-**Wembanyama outduels Durant as Spurs make another early-season statement**\
-`Victor Wembanyama and Kevin Durant traded poster dunks in the third quarter before the younger Spurs star led his team past the Rockets vet.`\
-https://nytimes.com/athletic/6788881/2025/11/07/victor-wembanyama-dunk-kevin-durant-rockets-spurs/
+**What I Learned From the ‘New Globalists’ of an Optimistic Nation**\
+`Few countries are excited about globalization anymore, but Vietnam is still into it — wholeheartedly. Do the reasons go beyond economic growth?`\
+https://nytimes.com/2025/11/08/world/asia/what-i-learned-from-the-new-globalists-of-an-optimistic-nation.html
 
-**A Light in Very Dark Days: Nancy Pelosi and AIDS**\
-`As Ms. Pelosi announced her retirement, she was celebrated for her long tenure in Washington. But back home, she was remembered for showing up at a terrifying moment when others turned away.`\
-https://nytimes.com/2025/11/07/us/politics/nancy-pelosi-aids-lgbtq.html
+**Quote of the Day: Canadian Factory Town Blames Trump’s Tariffs for ‘a Punch to the Gut’**\
+`Quotation of the Day for Saturday, November 8, 2025.`\
+https://nytimes.com/2025/11/08/pageoneplus/quote-of-the-day-canadian-factory-town-blames-trumps-tariffs-for-a-punch-to-the-gut.html
 
-**Players Under Pressure to Make the ATP Finals**\
-`When tennis players are close to making the cut, and every match counts, it is easy to feel the heat.`\
-https://nytimes.com/2025/11/07/sports/tennis/atp-finals-pressure-qualify.html
+**Connections: Sports Edition Coach: Hints for Nov. 8, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6788245/2025/11/08/connections-sports-edition-hints-for-nov-8-2025/
 
