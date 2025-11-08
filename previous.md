@@ -1,3 +1,15 @@
+**Swing States**\
+`Amie Walker makes a Sunday debut puzzle for the left coast (the best coast?).`\
+https://nytimes.com/2025/11/08/crosswords/daily-puzzle-2025-11-09.html
+
+**Worries Mount as Air Traffic Delays Stretch to Second Day**\
+`Disruptions to air travel on Saturday were modest, but officials and passengers were bracing for worse as the government shutdown continued.`\
+https://nytimes.com/2025/11/08/us/worries-mount-as-air-traffic-delays-stretch-to-second-day.html
+
+**Observations: Why the Penguins are 'starting to believe' in themselves after loss to Devils**\
+`The Penguins got only a point in New Jersey during a 2-1 shootout loss, but they're starting to make the point that they're a good team.`\
+https://nytimes.com/athletic/6790058/2025/11/08/penguins-devils-observations-sidney-crosby/
+
 **Newsom, Eyeing 2028, Tries to Mess With Texas: ‘Don’t Poke the Bear’**\
 `Celebrating his recent redistricting victory, the California governor swooped into a state led by a Republican rival and sent the latest signal about his presidential ambitions.`\
 https://nytimes.com/2025/11/08/us/politics/newsom-2028-texas-rally-abbott-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6790121/2025/11/08/nwsl-commissioner-gender-eligibi
 **Is Jeremiah Smith a Heisman candidate too? Ohio State takeaways from easy win at Purdue**\
 `Carnell Tate was unexpectedly absent, but Jeremiah Smith stole the show in No. 1 Ohio State's 34-10 win at Purdue.`\
 https://nytimes.com/athletic/6790321/2025/11/08/ohio-state-purdue-score-result-jeremiah-smith/
-
-**Parkinson and Jones have history - but both are battling to prove their worth in second tier**\
-`Wrexham fans don't much like the Charlton manager - he's starting to think his trips to North Wales are 'jinxed'`\
-https://nytimes.com/athletic/6773016/2025/11/08/wrexham-charlton-phil-parkinson-nathan-jones-championship/
-
-**As Beef Prices Remain High, Trump Calls for Inquiry Into Meatpackers**\
-`The Justice Department has opened an investigation into possible collusion among the big meatpackers. The effort may mollify ranchers, but it’s unclear how far it will go.`\
-https://nytimes.com/2025/11/08/business/trump-meatpackers-investigation.html
-
-**Trump Gives Hungary a Reprieve on Sanctions After Meeting With Orban**\
-`The United States has imposed sanctions on nations buying Russian oil, but President Viktor Orban successfully argued that Hungary had few other options.`\
-https://nytimes.com/2025/11/08/us/politics/trump-gives-hungarys-orban-reprieve-on-sanctions-after-meeting.html
 

@@ -1,3 +1,15 @@
+**Swing States**\
+`Amie Walker makes a Sunday debut puzzle for the left coast (the best coast?).`\
+https://nytimes.com/2025/11/08/crosswords/daily-puzzle-2025-11-09.html
+
+**Worries Mount as Air Traffic Delays Stretch to Second Day**\
+`Disruptions to air travel on Saturday were modest, but officials and passengers were bracing for worse as the government shutdown continued.`\
+https://nytimes.com/2025/11/08/us/worries-mount-as-air-traffic-delays-stretch-to-second-day.html
+
+**Observations: Why the Penguins are 'starting to believe' in themselves after loss to Devils**\
+`The Penguins got only a point in New Jersey during a 2-1 shootout loss, but they're starting to make the point that they're a good team.`\
+https://nytimes.com/athletic/6790058/2025/11/08/penguins-devils-observations-sidney-crosby/
+
 **Newsom, Eyeing 2028, Tries to Mess With Texas: ‘Don’t Poke the Bear’**\
 `Celebrating his recent redistricting victory, the California governor swooped into a state led by a Republican rival and sent the latest signal about his presidential ambitions.`\
 https://nytimes.com/2025/11/08/us/politics/newsom-2028-texas-rally-abbott-trump.html
