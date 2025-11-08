@@ -1,40 +1,40 @@
-**With the Jets, Adonai Mitchell gets the chance he needed**\
-`The second-year receiver could quickly ascend to the starting lineup in New York.`\
-https://nytimes.com/athletic/6788736/2025/11/08/adonai-ad-mitchell-new-york-jets-sauce-gardner-trade/
+**Why has the Red Wings' offense been quiet lately? Five Observations**\
+`After a dreamy start, Detroit now faces the real questions that were always going to define its season. How will it respond?`\
+https://nytimes.com/athletic/6788924/2025/11/08/red-wings-rangers-patrick-kane-offense/
 
-**Fox News Wanted Greg Gutfeld to Do This Interview. He Wasn’t So Sure.**\
-`The pugnacious conservative late-night host on his “hierarchy of smears” and the risks of being a scold.`\
-https://nytimes.com/2025/11/08/magazine/greg-gutfeld-interview.html
+**How to watch Sunderland vs. Arsenal from the U.S.: Gunners seek 11th win in a row**\
+`Arsenal has stacked 10 wins in a row across three leagues and six weeks. Sunderland is making the absolute most of its EPL promotion.`\
+https://nytimes.com/athletic/6784675/2025/11/08/arsenal-sunderland-epl-how-to-watch-usa/
 
-**Here’s What We Know About the Shutdown’s Effect on Air Travel**\
-`The Federal Aviation Administration has required airlines to cut flights to reduce the strain on air traffic controllers, who have gone weeks without a paycheck.`\
-https://nytimes.com/2025/11/08/us/flight-cancellations-delays-airports-shutdown.html
+**Take our college football quiz: What you need to know about Week 11**\
+`Test your college football trivia knowledge and catch up on essential reading ahead of Texas Tech-BYU, Alabama-LSU, Iowa-Oregon and more.`\
+https://nytimes.com/athletic/6785731/2025/11/08/college-football-week-11-preview-quiz-links/
 
-**Fact-Checking Misinformation About SNAP**\
-`We examined falsehoods about SNAP eligibility and costs and the number of unauthorized immigrants receiving benefits.`\
-https://nytimes.com/2025/11/08/us/politics/snap-food-stamps-eligibility-fact-check.html
+**How Trendon Watford is finding his place on Sixers by raising his ceiling — and voice**\
+`The 24-year-old is quickly making his case on the Sixers for more minutes and a place in the rotation. `\
+https://nytimes.com/athletic/6786378/2025/11/08/how-trendon-watford-is-finding-his-place-on-sixers-by-raising-his-ceiling-and-voice/
 
-**Travelers, Confused and Concerned, Are Reconsidering Flying**\
-`Frustration with cancellations and concerns about air traffic control are driving passengers away from flying and casting a shadow over Thanksgiving plans.`\
-https://nytimes.com/2025/11/08/travel/airports-flights-travel-thanksgiving-shutdown.html
+**NFL Week 10 roundtable: New-look Colts, Ravens' resurgence, Eagles-Packers**\
+`With the dust settled from the trade deadline, our writers discuss Week 10 in the NFL, including the Colts and Eagles-Packers.`\
+https://nytimes.com/athletic/6788491/2025/11/08/nfl-week-10-roundtable-colts-sauce-gardner-ravens-eagles-packers/
 
-**‘South Park’ Takes On Trump and Wins Bigly**\
-`“It’s not that we got all political,” said Trey Parker, one of the show’s creators. “It’s that politics became pop culture.”`\
-https://nytimes.com/2025/11/08/business/media/south-park-trump.html
+**Does home-field advantage matter in the NWSL playoffs?**\
+`Teams like Kansas City Current will be hoping they are driven forward in their playoff quest by a stadium full of their own fans`\
+https://nytimes.com/athletic/6785825/2025/11/08/nwsl-playoffs-home-field-advantage/
 
-**How the Government Shutdown Is Affecting Air Travel**\
-`Niraj Chokshi, our reporter covering transportation, describes where and how flights are being cut in the government shutdown.`\
-https://nytimes.com/video/business/100000010510963/how-the-government-shutdown-is-affecting-air-travel.html
+**One player from each NHL team's history with the best Hockey Hall of Fame case**\
+`From current stars who look like future HOF locks to former franchise cornerstones who have been snubbed for years, here are our picks.`\
+https://nytimes.com/athletic/6788000/2025/11/08/hockey-hall-of-fame-nhl-players/
 
-**What Are Shoppers Dreaming of? A Ralph Lauren Christmas.**\
-`Beige décor is out, replaced by a vision of cozy affluence marked by tartan, brass and velvet. And no, you don’t have to shop at Ralph Lauren to get the look.`\
-https://nytimes.com/2025/11/08/style/ralph-lauren-christmas.html
+**Baker Mayfield as MVP and more NFL midseason superlatives, teams to watch**\
+`Baker Mayfield as MVP? Jonathan Taylor as Offensive Player of the Year? We hand out our midseason NFL awards. `\
+https://nytimes.com/athletic/6781236/2025/11/08/nfl-midseason-superlatives-mvp-predictions/
 
-**What to Know About the New ‘Predator’ Movie**\
-`The humanoid creature has been on the big screen since 1987. With “Predator: Badlands” in theaters, here’s the back story on the franchise.`\
-https://nytimes.com/2025/11/08/movies/predator-badlands-what-to-know.html
+**After 35 Years, Do I Still Have to Cook for My Husband?**\
+`I simply am not interested in food labor for another 25 years.`\
+https://nytimes.com/2025/11/08/magazine/magazine-email/cook-for-husband-ethics.html
 
-**Stinking, Spongy, Dark, Huge: A Spider Web Unlike Any Seen Before**\
-`A pitch-black cave in the Balkans is home to what researchers say is a singular work of cooperation by two usually-hostile species of spider.`\
-https://nytimes.com/2025/11/08/science/biggest-spiderweb-sulfur-cave.html
+**Wordle Review No. 1604**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 9, 2025.`\
+https://nytimes.com/2025/11/08/crosswords/wordle-review-1604.html
 
