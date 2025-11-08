@@ -1,3 +1,7 @@
+**Man Dies After Slipping and Falling in Grand Canyon West**\
+`The body of a 65-year-old man, who fell 130 feet, was recovered on Thursday, officials said.`\
+https://nytimes.com/2025/11/08/us/grand-canyon-fall-death.html
+
 **Keegan-Michael Key joins Panthers meeting, supports Rico Dowdle**\
 `Keegan-Michael Key continued to support Rico Dowdle after his TD celebration, pledging to donate $15,000 to the charity of his choice.`\
 https://nytimes.com/athletic/6789915/2025/11/08/keegan-michael-key-joins-panthers-team-meeting-to-show-support-for-rico-dowdle/
