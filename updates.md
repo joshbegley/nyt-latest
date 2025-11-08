@@ -1,3 +1,7 @@
+**With the Jets, Adonai Mitchell gets the chance he needed**\
+`The second-year receiver could quickly ascend to the starting lineup in New York.`\
+https://nytimes.com/athletic/6788736/2025/11/08/adonai-ad-mitchell-new-york-jets-sauce-gardner-trade/
+
 **Fox News Wanted Greg Gutfeld to Do This Interview. He Wasn’t So Sure.**\
 `The pugnacious conservative late-night host on his “hierarchy of smears” and the risks of being a scold.`\
 https://nytimes.com/2025/11/08/magazine/greg-gutfeld-interview.html

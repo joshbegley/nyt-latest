@@ -1,3 +1,7 @@
+**With the Jets, Adonai Mitchell gets the chance he needed**\
+`The second-year receiver could quickly ascend to the starting lineup in New York.`\
+https://nytimes.com/athletic/6788736/2025/11/08/adonai-ad-mitchell-new-york-jets-sauce-gardner-trade/
+
 **Fox News Wanted Greg Gutfeld to Do This Interview. He Wasn’t So Sure.**\
 `The pugnacious conservative late-night host on his “hierarchy of smears” and the risks of being a scold.`\
 https://nytimes.com/2025/11/08/magazine/greg-gutfeld-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/08/movies/predator-badlands-what-to-know.html
 **Stinking, Spongy, Dark, Huge: A Spider Web Unlike Any Seen Before**\
 `A pitch-black cave in the Balkans is home to what researchers say is a singular work of cooperation by two usually-hostile species of spider.`\
 https://nytimes.com/2025/11/08/science/biggest-spiderweb-sulfur-cave.html
-
-**After More Than 30 Years, a Man Is Charged in Seattle Girl’s Killing**\
-`Tanya Marie Frazier, 14, never returned from summer school in 1994, and was found dead in a wooded area five days later. The police say a new DNA analysis links a felon to her death.`\
-https://nytimes.com/2025/11/08/us/seattle-police-arrest-tanya-frazier-murder.html
 
