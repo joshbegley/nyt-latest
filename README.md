@@ -1,5 +1,5 @@
 **Inside UNC's statement win over KU: A visit to Roy Williams, a budding star and reasons to believe**\
-`The way UNC won will inspire hope this is the year the roller-coaster ride of Hubert Davis' tenure will end.`\
+`The way UNC won will inspire hope this is the year the roller-coaster ride of Hubert Davis' tenure will slow down.`\
 https://nytimes.com/athletic/6789065/2025/11/08/unc-kansas-score-result-caleb-wilson/
 
 **A hard shot, stiff stick and no TV: Tales of Hall of Famer Zdeno Chara's time with Senators**\
