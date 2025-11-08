@@ -1,3 +1,7 @@
+**New York Approves $1 Billion Underwater Gas Pipeline After 3 Rejections**\
+`The contentious proposal, previously rebuffed by state regulators who expressed environmental concerns, was deemed acceptable on Friday.`\
+https://nytimes.com/2025/11/07/nyregion/underwater-gas-pipeline-nyc-approved.html
+
 **Transgender sprinter suing Rensselaer Polytech over alleged discrimination**\
 `In the lawsuit, sprinter Sadie Schreiner claims RPI violated New York’s Human Rights Law when it refused to let her run in a track meet.`\
 https://nytimes.com/athletic/6788421/2025/11/07/transgender-lawsuit-women-track-and-field-ncaa/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/07/us/politics/hegseth-pentagon-weapons-business.htm
 **Raiders fire special teams coordinator one day after blocked punt led to loss vs. Broncos**\
 `Tom McMahon was in his fourth season with the Raiders.`\
 https://nytimes.com/athletic/6788408/2025/11/07/raiders-fire-special-teams-coordinator-tom-mcmahon/
-
-**Rise in Kidney Disease Tied to Other Chronic Conditions, Study Finds**\
-`Rates of the disease have been rising for decades, driven in part by diabetes and high blood pressure.`\
-https://nytimes.com/2025/11/07/well/kidney-disease-rise-study.html
 
