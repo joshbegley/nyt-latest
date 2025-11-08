@@ -1,3 +1,7 @@
+**How to watch Arkansas vs. Michigan State: Time, TV, streaming**\
+`Find out how to watch the Arkansas Razorbacks play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6789871/2025/11/08/arkansas-vs-michigan-state-stream-how-to-watch-nov-8/
+
 **'We’re just grateful': Erik Spoelstra opens up after fire destroys home**\
 `Spoelstra took the time to show his appreciation for the support he has received and recognized the first responders who arrived. `\
 https://nytimes.com/athletic/6789692/2025/11/08/erik-spoelstra-miami-heat-fire-comments/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/08/science/robert-h-bartlett-dead.html
 **USC quarterback changes number for trick play in 38-17 win over Northwestern**\
 `The Trojans' third-string quarterback, Sam Huard, wore punter Sam Johnson's number on a fake punt to fool the Northwestern defense.`\
 https://nytimes.com/athletic/6789650/2025/11/08/usc-northwestern-fake-punt-play/
-
-**At Least 4 Dead After Driver Slams Into Crowd Outside a Tampa Bar, Police Say**\
-`The crash left 11 people injured. The police said they chased the vehicle after trying to pull over a reckless driver, who sped off and then lost control.`\
-https://nytimes.com/2025/11/08/us/car-crash-tampa-florida.html
 
