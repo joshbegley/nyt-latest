@@ -1,3 +1,19 @@
+**Wemby and Durant trade poster dunks as NBA's past and present collide**\
+`Within minutes of each other, the NBA's newest star and one of its oldest traded a pair of thunderous slams. `\
+https://nytimes.com/athletic/6788881/2025/11/07/victor-wembanyama-dunk-kevin-durant-rockets-spurs/
+
+**A Light in Very Dark Days: Nancy Pelosi and AIDS**\
+`As Ms. Pelosi announced her retirement, she was celebrated for her long tenure in Washington. But back home, she was remembered for showing up at a terrifying moment when others turned away.`\
+https://nytimes.com/2025/11/07/us/politics/nancy-pelosi-aids-lgbtq.html
+
+**Players Under Pressure to Make the ATP Finals**\
+`When tennis players are close to making the cut, and every match counts, it is easy to feel the heat.`\
+https://nytimes.com/2025/11/07/sports/tennis/atp-finals-pressure-qualify.html
+
+**See Where Flights Have Been Canceled Across the U.S.**\
+`Hundreds of flights across the United States were canceled starting on Friday, with deeper cuts looming in the coming days.`\
+https://nytimes.com/interactive/2025/11/07/us/flight-cancellations-airports.html
+
 **What Happened to Swedish Tennis?**\
 `The country was once a force, with Bjorn Borg and Mats Wilander leading the way. Now, none of its players are highly ranked.`\
 https://nytimes.com/2025/11/07/sports/tennis/swedish-tennis.html
