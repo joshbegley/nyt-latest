@@ -1,3 +1,11 @@
+**YouTube TV will offer $20 credit if dispute with ESPN continues: Source**\
+`The two sides are continuing ongoing negotiations, and YouTube TV credits are scheduled to be issued by Nov. 12 if a deal can't be reached.`\
+https://nytimes.com/athletic/6790310/2025/11/08/espn-youtubetv-credit-negotiations/
+
+**The Briefing: Chelsea 3 Wolves 0 - Gusto's goal, coping with low blocks and should Estevao start?**\
+`Cerys Jones and Simon Jones analyse the key talking points from Chelsea's victory over Wolves`\
+https://nytimes.com/athletic/6784512/2025/11/08/chelsea-wolves-analysis-malo-gusto/
+
 **Yung Lean Has Love For All SoundCloud Rappers**\
 `The Swedish rapper Yung Lean emerged more than a decade ago as a teenage internet sensation who found viral and then global fame. After struggling with mental illness and drugs, he’s back now and bigger than ever, with new music, a new film and welcome clarity.`\
 https://nytimes.com/video/podcasts/100000010511823/yung-lean-has-love-for-all-soundcloud-rappers.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6560541/2025/11/08/college-football-playoff-bracket
 **Is Texas Tech the Big 12's new dominant program? It looked the part against BYU**\
 `Texas Tech's defense propelled it past one of the four remaining undefeated teams in college football.`\
 https://nytimes.com/athletic/6790100/2025/11/08/texas-tech-byu-score-result/
-
-**Omar Cooper Jr.'s gravity-defying, toe-tap TD lifts Indiana over Penn State**\
-`Indiana quarterback Fernando Mendoza orchestrated the Hoosiers' final touchdown in under two minutes, capped by Cooper Jr.'s heroics.`\
-https://nytimes.com/athletic/6790147/2025/11/08/penn-state-indiana-football-upset-game-analysis/
-
-**NBA corrects scoring error in Cavaliers' 148-115 win over Wizards**\
-`The NBA announced that it fixed a scoring error in Cleveland's 148-115 win over Washington.`\
-https://nytimes.com/athletic/6790005/2025/11/08/nba-washington-wizards-cleveland-cavaliers-incorrect-score/
 

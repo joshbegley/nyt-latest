@@ -1,3 +1,15 @@
+**Yung Lean Has Love For All SoundCloud Rappers**\
+`The Swedish rapper Yung Lean emerged more than a decade ago as a teenage internet sensation who found viral and then global fame. After struggling with mental illness and drugs, he’s back now and bigger than ever, with new music, a new film and welcome clarity.`\
+https://nytimes.com/video/podcasts/100000010511823/yung-lean-has-love-for-all-soundcloud-rappers.html
+
+**NWSL commissioner on gender eligibility: 'Our policy is our current practice'**\
+`Berman made her first public comments on NWSL gender eligibility rules since a New York Post op-ed stirred controversy around the issue.`\
+https://nytimes.com/athletic/6790121/2025/11/08/nwsl-commissioner-gender-eligibility-policy/
+
+**Is Jeremiah Smith a Heisman candidate too? Ohio State takeaways from easy win at Purdue**\
+`Carnell Tate was unexpectedly absent, but Jeremiah Smith stole the show in No. 1 Ohio State's 34-10 win at Purdue.`\
+https://nytimes.com/athletic/6790321/2025/11/08/ohio-state-purdue-score-result-jeremiah-smith/
+
 **Parkinson and Jones have history - but both are battling to prove their worth in second tier**\
 `Wrexham fans don't much like the Charlton manager - he's starting to think his trips to North Wales are 'jinxed'`\
 https://nytimes.com/athletic/6773016/2025/11/08/wrexham-charlton-phil-parkinson-nathan-jones-championship/
