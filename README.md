@@ -34,7 +34,7 @@ https://nytimes.com/2025/11/08/us/ups-fedex-cargo-planes-grounded.html
 `Marta, 38, assisted the last-minute strike from the penalty spot that ensure a 2-0 victory over Seattle Reign`\
 https://nytimes.com/athletic/6788932/2025/11/08/orlando-pride-luana-goal-nwsl-cancer/
 
-**The New York Times in Print for Saturday, Nov. 8, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/11/08/todays-new-york-times
+**Exercising Is the Worst**\
+`Exercise has never been fun, but our expectations for physical performance, what it means to be healthy, and what it means to age have gotten too high.`\
+https://nytimes.com/2025/11/08/opinion/excercise-fitness-optimization.html
 
