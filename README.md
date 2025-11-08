@@ -1,3 +1,7 @@
+**Yung Lean Has Love For All SoundCloud Rappers**\
+`The Swedish rapper Yung Lean emerged more than a decade ago as a teenage internet sensation who found viral and then global fame. After struggling with mental illness and drugs, he’s back now and bigger than ever, with new music, a new film and welcome clarity.`\
+https://nytimes.com/video/podcasts/100000010511823/yung-lean-has-love-for-all-soundcloud-rappers.html
+
 **NWSL commissioner on gender eligibility: 'Our policy is our current practice'**\
 `Berman made her first public comments on NWSL gender eligibility rules since a New York Post op-ed stirred controversy around the issue.`\
 https://nytimes.com/athletic/6790121/2025/11/08/nwsl-commissioner-gender-eligibility-policy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6790147/2025/11/08/penn-state-indiana-football-upse
 **NBA corrects scoring error in Cavaliers' 148-115 win over Wizards**\
 `The NBA announced that it fixed a scoring error in Cleveland's 148-115 win over Washington.`\
 https://nytimes.com/athletic/6790005/2025/11/08/nba-washington-wizards-cleveland-cavaliers-incorrect-score/
-
-**How to watch Pacers vs. Nuggets: Time, TV, streaming**\
-`Find out how to watch the Indiana Pacers play the Denver Nuggets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6790238/2025/11/08/pacers-vs-nuggets-stream-how-to-watch-nov-8/
 
