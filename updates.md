@@ -1,3 +1,19 @@
+**Commanders owners anticipate potential stadium name discussion with Trump**\
+`No formal request has been made about naming the new development after him.`\
+https://nytimes.com/athletic/6789811/2025/11/08/commanders-trump-stadium-name-communications/
+
+**How to watch Oklahoma vs. Gonzaga: Time, TV, streaming**\
+`Find out how to watch the Oklahoma Sooners play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6790193/2025/11/08/oklahoma-vs-gonzaga-stream-how-to-watch-nov-8/
+
+**How to watch Holy Cross vs. BYU: Time, TV, streaming**\
+`Find out how to watch the Holy Cross Crusaders play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6790191/2025/11/08/holy-cross-vs-byu-stream-how-to-watch-nov-8/
+
+**Novak Djokovic withdraws from ATP Tour Finals after eliminating Lorenzo Musetti from race**\
+`The seven-time ATP Tour Finals champion defeated the Italian in three grueling sets at the Hellenic Championship in Athens.`\
+https://nytimes.com/athletic/6789369/2025/11/08/djokovic-atp-tour-finals-turin-musetti/
+
 **Peter Watkins, Provocateur With a Movie Camera, Dies at 90**\
 `His Oscar-winning 1965 film “The War Game” depicted a post-nuclear-attack England, one of his many fictionalized docudramas against war and repression.`\
 https://nytimes.com/2025/11/08/movies/peter-watkins-dead.html
