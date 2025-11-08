@@ -1,40 +1,40 @@
-**For a Distinctive Black Culture, a Rerouted Parade Feels Like Erasure**\
-`The annual Penn Center Heritage Day Parade in South Carolina draws hundreds to celebrate the Gullah Geechee people. But a new route has Black residents feeling as if their legacy is vanishing.`\
-https://nytimes.com/2025/11/08/us/penn-center-parade-south-carolina-gullah-geechee.html
+**How to watch Capitals vs. Lightning: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6789905/2025/11/08/capitals-vs-lightning-stream-how-to-watch-nov-8/
 
-**Russian Bombardment Causes Large Power Outages in Ukraine’s Big Cities**\
-`The attack by Russian missiles and drones targeted the capital, Kyiv, and the large cities of Dnipro and Kharkiv, as well as several smaller municipalities.`\
-https://nytimes.com/2025/11/08/world/europe/russian-bombardment-causes-large-power-outages-in-ukraines-big-cities.html
+**How to watch Bruins vs. Maple Leafs: Time, TV, streaming**\
+`Find out how to watch the Boston Bruins play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6789902/2025/11/08/bruins-vs-maple-leafs-stream-how-to-watch-nov-8/
 
-**How to watch Arkansas vs. Michigan State: Time, TV, streaming**\
-`Find out how to watch the Arkansas Razorbacks play the Michigan State Spartans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6789871/2025/11/08/arkansas-vs-michigan-state-stream-how-to-watch-nov-8/
+**How to watch Bulls vs. Cavaliers: Time, TV, streaming**\
+`Find out how to watch the Chicago Bulls play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6789900/2025/11/08/bulls-vs-cavaliers-stream-how-to-watch-nov-8/
 
-**'We’re just grateful': Erik Spoelstra opens up after fire destroys home**\
-`Spoelstra took the time to show his appreciation for the support he has received and recognized the first responders who arrived. `\
-https://nytimes.com/athletic/6789692/2025/11/08/erik-spoelstra-miami-heat-fire-comments/
+**How to watch Raptors vs. 76ers: Time, TV, streaming**\
+`Find out how to watch the Toronto Raptors play the Philadelphia 76ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6789898/2025/11/08/raptors-vs-76ers-stream-how-to-watch-nov-8/
 
-**The Sprint for City Hall **\
-`Looking back at a momentous election and the challenges that await Mayor-elect Zohran Mamdani.`\
-https://nytimes.com/card/2025/11/08/nyregion/sprint-city-hall-mamdani
+**How to watch Lakers vs. Hawks: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the Atlanta Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6789896/2025/11/08/lakers-vs-hawks-stream-how-to-watch-nov-8/
 
-**There Is No One-Size-Fits-All Template for Winning Elections**\
-`We can’t pretend to know the future of the Democratic Party.`\
-https://nytimes.com/2025/11/08/opinion/democrats-elections-new-york-new-jersey-virginia.html
+**How to watch Mammoth vs. Canadiens: Time, TV, streaming**\
+`Find out how to watch the Utah Mammoth play the Montreal Canadiens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6789894/2025/11/08/mammoth-vs-canadiens-stream-how-to-watch-nov-8/
 
-**Families in Limbo After Supreme Court Order Interrupts Food Stamp Payments**\
-`The fate of SNAP was once again in question on Saturday after the Supreme Court temporarily agreed to allow the Trump administration to withhold full aid under the program.`\
-https://nytimes.com/2025/11/08/us/politics/families-food-stamps-supreme-court-order.html
+**How to watch Pelicans vs. Spurs: Time, TV, streaming**\
+`Find out how to watch the New Orleans Pelicans play the San Antonio Spurs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6789892/2025/11/08/pelicans-vs-spurs-stream-how-to-watch-nov-8/
 
-**WATCH: How Bills are punishing defenses with this offensive formation**\
-`The Bills have started to use more 22 personnel this season — that's two running backs and two tight ends on the field at the same time.`\
-https://nytimes.com/athletic/6788117/2025/11/08/video-analysis-bills-offensive-formation/
+**How to watch Mavericks vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the Dallas Mavericks play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6789891/2025/11/08/mavericks-vs-wizards-stream-how-to-watch-nov-8/
 
-**How to Get Your Greens All Season Long**\
-`Our five-ingredient lemon-garlic kale salad complements almost any main (and, with five stars and over 9,000 reviews, is sure to get you compliments).`\
-https://nytimes.com/2025/11/08/dining/how-to-get-your-greens-all-season-long.html
+**How to watch Islanders vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the New York Islanders play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6789887/2025/11/08/islanders-vs-rangers-stream-how-to-watch-nov-8/
 
-**Watch: J.J. McCarthy looks ready to take next step as Vikings' franchise quarterback**\
-`Making his first start in nearly two months, McCarthy flashed the type of talent that made Minnesota bet on him in the first place.`\
-https://nytimes.com/athletic/6789696/2025/11/08/jj-mccarthy-video-breakdown-vikings-lions/
+**How to watch Trail Blazers vs. Heat: Time, TV, streaming**\
+`Find out how to watch the Portland Trail Blazers play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6789884/2025/11/08/trail-blazers-vs-heat-stream-how-to-watch-nov-8/
 
