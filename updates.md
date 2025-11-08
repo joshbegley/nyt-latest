@@ -1,3 +1,7 @@
+**Norris boosts his F1 title hopes with Brazil pole. Verstappen exits in Q1, Piastri struggles**\
+`McLaren&#8217;s Lando Norris powered back from an early Q3 scare to to secure pole position for Formula One&#8217;s 2025 Brazilian Grand Prix, while Mercedes driver Kimi Antonelli put together a final flyer to take second on the grid behind the championship leader.`\
+https://nytimes.com/athletic/6790007/2025/11/08/brazilian-gp-qualifying-results/
+
 **Anthony Grey, Journalist Held Hostage by China for Two Years, Dies at 87**\
 `A correspondent for Reuters, he became a global symbol of China’s isolation and of the anti-foreigner hysteria spawned by its Cultural Revolution.`\
 https://nytimes.com/2025/11/08/world/asia/anthony-grey-dead.html

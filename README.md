@@ -1,5 +1,9 @@
+**Peter Watkins, Provocateur With a Movie Camera, Dies at 89**\
+`His Oscar-winning 1965 film “The War Game” depicted a post-nuclear-attack England, one of his many fictionalized docudramas against war and repression.`\
+https://nytimes.com/2025/11/08/movies/peter-watkins-dead.html
+
 **Norris boosts his F1 title hopes with Brazil pole. Verstappen exits in Q1, Piastri struggles**\
-`McLaren&#8217;s Lando Norris powered back from an early Q3 scare to to secure pole position for Formula One&#8217;s 2025 Brazilian Grand Prix, while Mercedes driver Kimi Antonelli put together a final flyer to take second on the grid behind the championship leader.`\
+`Lando Norris completed a perfect day at Interlagos, as the 2025 F1 Brazil sprint race winner topped grand prix qualifying too`\
 https://nytimes.com/athletic/6790007/2025/11/08/brazilian-gp-qualifying-results/
 
 **Anthony Grey, Journalist Held Hostage by China for Two Years, Dies at 87**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/08/us/grand-canyon-fall-death.html
 **'Let’s see when the window is open' - Amorim on Man Utd transfers, Sesko injury update**\
 `In addition to Sesko's injury, United trio Amad, Mazraoui, and Mbeumo will be competing at AFCON in December.`\
 https://nytimes.com/athletic/6789821/2025/11/08/manchester-united-transfer-news-sesko-injury-afcon/
-
-**Tony Parker named head coach of French under-17 men's basketball team**\
-`The basketball Hall of Famer's move is partly inspired by his late father's wish that Parker coach for France and in the NBA.`\
-https://nytimes.com/athletic/6789579/2025/11/08/tony-parker-france-u17-basketball-team-coach/
 
