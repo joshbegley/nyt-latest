@@ -1,3 +1,7 @@
+**Lando Norris extends F1 title lead in Brazilian sprint as Piastri crashes out**\
+`Wet conditions disrupted the sprint race and led to a new twist in F1's championship fight`\
+https://nytimes.com/athletic/6789463/2025/11/08/brazilian-gp-sprint-race-results/
+
 **Norris wins disrupted Brazilian GP sprint race from surging Antonelli, as Piastri crashes out**\
 `Lando Norris held off Kimi Antonelli to win Formula One&#8217;s 2025 Brazilian Grand Prix sprint race, adding a crucial eight points in his championship pocket while his McLaren teammate Oscar Piastri crashed out.`\
 https://nytimes.com/athletic/6789463/2025/11/08/brazilian-gp-sprint-race-results/
