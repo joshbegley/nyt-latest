@@ -1,3 +1,27 @@
+**Long throws and the striker with no shots on target: A statistical Premier League postcard, 100 games in**\
+`A look at some of the quirkier things you might have missed so far this season...`\
+https://nytimes.com/athletic/6783384/2025/11/08/premier-league-stats-2025-26/
+
+**In China, the Dream of Outrunning Time**\
+`Longevity labs, “immortality islands” and grapeseed pills are part of China’s national project to conquer aging, despite sometimes shaky science and extravagant claims.`\
+https://nytimes.com/2025/11/08/world/asia/china-aging-longevity-science.html
+
+**The footballer who survived a train knife attack: 'He told me he’ll be back in a month':**\
+`Former team-mates and coaches believe the 22-year-old has the strength of mind and spirit to make a full recovery`\
+https://nytimes.com/athletic/6786936/2025/11/08/jonathan-gjoshe-footballer-railway-stabbing/
+
+**What I Learned From the ‘New Globalists’ of an Optimistic Nation**\
+`Few countries are excited about globalization anymore, but Vietnam is still into it — wholeheartedly. Do the reasons go beyond economic growth?`\
+https://nytimes.com/2025/11/08/world/asia/what-i-learned-from-the-new-globalists-of-an-optimistic-nation.html
+
+**Quote of the Day: Canadian Factory Town Blames Trump’s Tariffs for ‘a Punch to the Gut’**\
+`Quotation of the Day for Saturday, November 8, 2025.`\
+https://nytimes.com/2025/11/08/pageoneplus/quote-of-the-day-canadian-factory-town-blames-trumps-tariffs-for-a-punch-to-the-gut.html
+
+**Connections: Sports Edition Coach: Hints for Nov. 8, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6788245/2025/11/08/connections-sports-edition-hints-for-nov-8-2025/
+
 **How Mats Zuccarello's return helped spark Kirill Kaprizov and the Wild: Takeaways**\
 `Zuccarello picked up right where he left off in the Wild's impressive 5-2 victory over the Islanders on Friday.`\
 https://nytimes.com/athletic/6788976/2025/11/07/wild-islanders-mats-zuccarello-kirill-kaprizov/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/11/07/us/airport-flight-cancellations-faa-shutdown.html
 **Mavericks' misery continues with road loss to Grizzlies**\
 `The Mavericks have had the NBA's worst offense for most of this season, and now own the worst record in the Western Conference. `\
 https://nytimes.com/athletic/6788920/2025/11/07/mavericks-losing-streak-grizzlies-ja-morant/
-
-**Giannis Antetokounmpo puts up 41 points in Bucks' NBA Cup win over Bulls**\
-`Antetokounmpo posted his second 40-point game of the season for the Bucks, who opened their NBA Cup title defense with a win.`\
-https://nytimes.com/athletic/6788923/2025/11/07/giannis-antetokounmpo-bucks-bulls-nba-cup/
-
-**The DNA Helix Changed How We Thought About Ourselves**\
-`“The laws of inheritance are quite unknown,” Charles Darwin acknowledged in 1859. The discovery of DNA’s shape altered how we conceived of life itself.`\
-https://nytimes.com/2025/11/07/science/watson-dna-humanity.html
-
-**They’re Not Up to Much**\
-`Ryan Judge continues his Saturday streak.`\
-https://nytimes.com/2025/11/07/crosswords/daily-puzzle-2025-11-08.html
-
-**Wembanyama outduels Durant as Spurs make another early-season statement**\
-`Victor Wembanyama and Kevin Durant traded poster dunks in the third quarter before the younger Spurs star led his team past the Rockets vet.`\
-https://nytimes.com/athletic/6788881/2025/11/07/victor-wembanyama-dunk-kevin-durant-rockets-spurs/
-
-**A Light in Very Dark Days: Nancy Pelosi and AIDS**\
-`As Ms. Pelosi announced her retirement, she was celebrated for her long tenure in Washington. But back home, she was remembered for showing up at a terrifying moment when others turned away.`\
-https://nytimes.com/2025/11/07/us/politics/nancy-pelosi-aids-lgbtq.html
-
-**Players Under Pressure to Make the ATP Finals**\
-`When tennis players are close to making the cut, and every match counts, it is easy to feel the heat.`\
-https://nytimes.com/2025/11/07/sports/tennis/atp-finals-pressure-qualify.html
 
