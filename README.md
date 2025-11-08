@@ -1,3 +1,7 @@
+**Trump Gives Hungary’s Orban Reprieve on Sanctions After Meeting**\
+`The United States has imposed sanctions on nations buying Russian oil, but President Viktor Orban successfully argued that Hungary had few other options.`\
+https://nytimes.com/2025/11/08/us/politics/trump-gives-hungarys-orban-reprieve-on-sanctions-after-meeting.html
+
 **College Football Playoff 2025 projections: Where the bracket stands with Week 11 underway**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/11/08/college-football-playoff-bracket-projections-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6790232/2025/11/08/suns-vs-clippers-stream-how-to-w
 **How to watch Ducks vs. Golden Knights: Time, TV, streaming**\
 `Find out how to watch the Anaheim Ducks play the Vegas Golden Knights, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6790230/2025/11/08/ducks-vs-golden-knights-stream-how-to-watch-nov-8/
-
-**How to watch Avalanche vs. Oilers: Time, TV, streaming**\
-`Find out how to watch the Colorado Avalanche play the Edmonton Oilers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6790228/2025/11/08/avalanche-vs-oilers-stream-how-to-watch-nov-8/
 
