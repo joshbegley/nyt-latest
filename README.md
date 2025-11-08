@@ -1,3 +1,7 @@
+**How Mats Zuccarello's return helped spark Kirill Kaprizov and the Wild: Takeaways**\
+`Zuccarello picked up right where he left off in the Wild's impressive 5-2 victory over the Islanders on Friday.`\
+https://nytimes.com/athletic/6788976/2025/11/07/wild-islanders-mats-zuccarello-kirill-kaprizov/
+
 **Biden Warns of a ‘Very, Very Dark Moment’ as He Hits Out at Trump**\
 `The former president, now a far less popular figure in his party, appeared in Nebraska for an overtly political speech that slammed his successor.`\
 https://nytimes.com/2025/11/07/us/politics/biden-trump-omaha-nebraska.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/07/us/politics/nancy-pelosi-aids-lgbtq.html
 **Players Under Pressure to Make the ATP Finals**\
 `When tennis players are close to making the cut, and every match counts, it is easy to feel the heat.`\
 https://nytimes.com/2025/11/07/sports/tennis/atp-finals-pressure-qualify.html
-
-**See Where Flights Have Been Canceled Across the U.S.**\
-`Hundreds of flights across the United States were canceled starting on Friday, with deeper cuts looming in the coming days.`\
-https://nytimes.com/interactive/2025/11/07/us/flight-cancellations-airports.html
 
