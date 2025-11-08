@@ -27,7 +27,7 @@ https://nytimes.com/2025/11/08/crosswords/spelling-bee-forum.html
 https://nytimes.com/2025/11/08/business/metsera-pfizer-merger-weight-loss.html
 
 **UPS and FedEx Ground MD-11 Cargo Planes After Louisville Crash**\
-`The cargo airlines said they had taken the step to immediately ground the fleets on the recommendation of the plane’s manufacturer.`\
+`Boeing, the plane’s manufacturer, said it had recommended the grounding as a precaution while it conducts further analysis.`\
 https://nytimes.com/2025/11/08/us/ups-fedex-cargo-planes-grounded.html
 
 **18 months after cancer diagnosis, Luana scores late goal to help Pride advance to NWSL semifinals**\
