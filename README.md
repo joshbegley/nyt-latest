@@ -1,9 +1,17 @@
+**How to watch Stars vs. Predators: Time, TV, streaming**\
+`Find out how to watch the Dallas Stars play the Nashville Predators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6789553/2025/11/08/stars-vs-predators-stream-how-to-watch-nov-8/
+
+**How a Washington Commanders team on the rise was knocked off track**\
+`The 2024 Washington Commanders seemed to find all the right things — on the field and off. This season has been entirely different.`\
+https://nytimes.com/athletic/6789349/2025/11/08/commanders-injuries-roster-mistakes/
+
 **Why Jaelan Phillips calls Eagles trade 'greatest thing that's happened to me'**\
 `Plus: Jaire Alexander insists he’s still in his prime and Jalen Hurts returns to Lambeau Field for the first time since his rookie season.`\
 https://nytimes.com/athletic/6789350/2025/11/08/eagles-jaelan-phillips-trade-comments/
 
-**Arsenal sense missed opportunity despite late comeback against WSL leaders Chelsea**\
-`Chelsea led for over 75 minutes but Arsenal saw two second-half goals disallowed in a dramatic conclusion.`\
+**Arsenal denied last-gasp winner in dramatic derby with WSL leaders Chelsea**\
+`Chelsea led for over 75 minutes but Arsenal saw two second-half goals disallowed in a thrilling conclusion`\
 https://nytimes.com/athletic/6789435/2025/11/08/arsenal-chelsea-wsl-report/
 
 **How to watch Towson vs. Houston: Time, TV, streaming**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/08/movies/pauline-collins-dead.html
 **'Our defense sucks': Draymond Green offers blunt assessment of Warriors after loss to Nuggets**\
 `While Green hard sharp words for the defense, and himself, Warriors coach Steve Kerr noted the team's "lack of purpose and energy."`\
 https://nytimes.com/athletic/6789186/2025/11/08/warriors-draymond-green-nuggets/
-
-**The Pulse: The exploding NFL trade deadline**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6788988/2025/11/08/how-the-nfl-trade-deadline-went-from-nothing-to-downright-lively/
-
-**Middlesbrough give Wolves permission to speak with Rob Edwards**\
-`The former Watford and Luton Town head coach was stood down from managerial duties for Middlesbrough's game with Birmingham on Saturday.`\
-https://nytimes.com/athletic/6776081/2025/11/08/wolves-manager-middlesbrough-rob-edwards/
 
