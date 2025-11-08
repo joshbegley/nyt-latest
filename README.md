@@ -1,3 +1,7 @@
+**The DNA Helix Changed How We Thought About Ourselves**\
+`“The laws of inheritance are quite unknown,” Charles Darwin acknowledged in 1859. The discovery of DNA’s shape altered how we conceived of life itself.`\
+https://nytimes.com/2025/11/07/science/watson-dna-humanity.html
+
 **They’re Not Up to Much**\
 `Ryan Judge continues his Saturday streak.`\
 https://nytimes.com/2025/11/07/crosswords/daily-puzzle-2025-11-08.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6788740/2025/11/07/dodgers-alex-vesia-daughter/
 **Judge Permanently Blocks National Guard Deployments to Portland for ICE Protests**\
 `With her temporary block expiring, Judge Karin Immergut said the Trump administration had failed to prove that protesters were hampering President Trump’s policies.`\
 https://nytimes.com/2025/11/07/us/politics/portland-oregon-national-guard.html
-
-**CFP oversight committee leader not optimistic about 16-team expansion next season**\
-`CFP leaders have a Dec. 1 deadline to inform their television partners at ESPN of any changes to the format for next year.`\
-https://nytimes.com/athletic/6788675/2025/11/07/college-football-playoff-16-team-expansion-talks/
 
