@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6789915/2025/11/08/keegan-michael-key-joins-panther
 https://nytimes.com/athletic/6789352/2025/11/08/sabalenka-rybakina-wta-tour-finals-result-analysis/
 
 **Man Dies After Slipping and Falling in Grand Canyon West**\
-`The body of a 65-year-old-man, who fell 130 feet, was recovered on Thursday, officials said.`\
+`The body of a 65-year-old man, who fell 130 feet, was recovered on Thursday, officials said.`\
 https://nytimes.com/2025/11/08/us/grand-canyon-fall-death.html
 
 **'Let’s see when the window is open' - Amorim on Man Utd transfers, Sesko injury update**\
