@@ -1,3 +1,11 @@
+**The Flatiron Building Enters Its Condo Era**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/the-flatiron-building-enters-its-condo-era
+
+**Projecting Oilers' upcoming roster decisions: Who's most likely to go?**\
+`EDMONTON — The Edmonton Oilers&#8217; long-awaited roster crunch is coming to a head.`\
+https://nytimes.com/athletic/6788504/2025/11/07/oilers-roster-salary-cap-janmark-hyman/
+
 **Federal Judge Rules Against Trump Officials on Partisan Email Messages**\
 `The email accounts of furloughed government workers had been commandeered to send partisan attacks against Democrats, a move that the ruling said had “added insult to injury.”`\
 https://nytimes.com/2025/11/07/us/politics/education-department-emails-shutdown.html
@@ -29,12 +37,4 @@ https://nytimes.com/newsgraphics/card-story/french-fall-dinner-party
 **Routine Check for UPS Plane Before Takeoff Was ‘Uneventful,’ Official Says**\
 `But a cockpit voice recorder picked up a ringing sound during takeoff that may have signaled looming disaster in the crash that killed at least 13 in Louisville, Ky.`\
 https://nytimes.com/2025/11/07/us/ups-plane-crash-recording-louisville.html
-
-**Virginia Teen Narrowly Defeats Former Civics Teacher in County Election**\
-`Cameran Drew, 19, defeated his former high school government teacher, Kenneth Bell, by 10 votes for a seat on the Surry County Board of Supervisors this week. There are no hard feelings.`\
-https://nytimes.com/2025/11/07/us/politics/surry-county-virginia-supervisor-election.html
-
-**Hegseth Vows to Shake Up the Way the Pentagon Does Business**\
-`In a speech outlining his overhaul plans, the defense secretary called on American weapons makers to surge “at the speed of ingenuity.”`\
-https://nytimes.com/2025/11/07/us/politics/hegseth-pentagon-weapons-business.html
 

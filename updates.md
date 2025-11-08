@@ -1,3 +1,7 @@
+**Federal Judge Rules Against Trump Officials on Partisan Email Messages**\
+`The email accounts of furloughed government workers had been commandeered to send partisan attacks against Democrats, a move that the ruling said had “added insult to injury.”`\
+https://nytimes.com/2025/11/07/us/politics/education-department-emails-shutdown.html
+
 **New York Approves $1 Billion Underwater Gas Pipeline After 3 Rejections**\
 `The contentious proposal, previously rebuffed by state regulators who expressed environmental concerns, was deemed acceptable on Friday.`\
 https://nytimes.com/2025/11/07/nyregion/underwater-gas-pipeline-nyc-approved.html
