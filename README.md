@@ -1,3 +1,7 @@
+**'Our defense sucks': Draymond Green offers blunt assessment of Warriors after loss to Nuggets**\
+`While Green hard sharp words for the defense, and himself, Warriors coach Steve Kerr noted the team's "lack of purpose and energy."`\
+https://nytimes.com/athletic/6789186/2025/11/08/warriors-draymond-green-nuggets/
+
 **The Pulse: The exploding NFL trade deadline**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6788988/2025/11/08/how-the-nfl-trade-deadline-went-from-nothing-to-downright-lively/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6785172/2025/11/08/hockey-hall-of-fame-zdeno-chara-
 **Luke Fickell is returning to Wisconsin, but Badgers have lost their way**\
 `The bottom fell out for Wisconsin this season with one of the lowest-scoring offenses in college football.`\
 https://nytimes.com/athletic/6788916/2025/11/08/wisconsin-luke-fickell-return/
-
-**Jonathan Quick's sprawling recovery represents what he means to Rangers, plus 9 thoughts**\
-`Quick's save percentage is up to .950 in four games this season.`\
-https://nytimes.com/athletic/6789013/2025/11/08/jonathan-quick-rangers-sprawling-9-thoughts/
 
