@@ -1,3 +1,7 @@
+**Atlanta's offensive vision hasn't come into focus, and it might not survive the season**\
+`Second-year quarterback Michael Penix Jr. is struggling, and the Falcons offensive issues may derail the hopes this season once held.`\
+https://nytimes.com/athletic/6792430/2025/11/09/falcons-colts-germany-michael-penix-offense/
+
 **Giants' Jaxson Dart ruled out with concussion in loss to Bears**\
 `Russell Wilson has replaced the rookie Dart after he left the game at the start of the fourth quarter.`\
 https://nytimes.com/athletic/6792425/2025/11/09/jaxson-dart-injury-concussion-giants/

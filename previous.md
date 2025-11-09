@@ -1,3 +1,7 @@
+**Atlanta's offensive vision hasn't come into focus, and it might not survive the season**\
+`Second-year quarterback Michael Penix Jr. is struggling, and the Falcons offensive issues may derail the hopes this season once held.`\
+https://nytimes.com/athletic/6792430/2025/11/09/falcons-colts-germany-michael-penix-offense/
+
 **Federal Judge, Warning of ‘Existential Threat’ to Democracy, Resigns**\
 `Judge Mark L. Wolf, writing in The Atlantic, said he was stepping down to defend against the “assault on the rule of law” by President Trump, who he accused of “targeting his adversaries.”`\
 https://nytimes.com/2025/11/09/us/politics/mark-wolf-federal-judge-resigns.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/09/nyregion/hochul-mamdani-free-buses.html
 **Ripping packs and shooting hoops: How sports card shops are evolving**\
 `Sports card shops are starting to look more like mini-museums with a focus on the experience and building communities`\
 https://nytimes.com/athletic/6792148/2025/11/09/trace-n-chase-sports-card-shops/
-
-**How to watch Jets vs. Ducks: Time, TV, streaming**\
-`Find out how to watch the Winnipeg Jets play the Anaheim Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6792290/2025/11/09/jets-vs-ducks-stream-how-to-watch-nov-9/
 
