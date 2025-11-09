@@ -1,3 +1,11 @@
+**Bills-Dolphins takeways: De'Von Achane runs wild in Miami's stunning upset**\
+`The Miami running back galloped for 174 yards and two touchdowns in the Dolphins' 30-13 blowout.`\
+https://nytimes.com/athletic/6792219/2025/11/09/bills-dolphins-score-result-takeaways/
+
+**A preview of The Athletic’s live coverage this week**\
+`Our live coverage this week includes two Packers NFL games, World Cup tuneups for the USMNT and England, the ATP Tennis finals and more`\
+https://nytimes.com/athletic/6788487/2025/11/09/live-coverage-weekly-schedule-eagles-world-cup/
+
 **Atlanta's offensive vision hasn't come into focus, and it might not survive the season**\
 `Second-year quarterback Michael Penix Jr. is struggling, and the Falcons offensive issues may derail the hopes this season once held.`\
 https://nytimes.com/athletic/6792430/2025/11/09/falcons-colts-germany-michael-penix-offense/

@@ -1,3 +1,11 @@
+**Thune Says Deal to Reopen Government Is ‘Coming Together’**\
+`The top Senate Republican sounded hopeful on Sunday that enough Democrats could be brought on board to move forward quickly on a measure that would reopen the government.`\
+https://nytimes.com/2025/11/09/us/politics/government-shutdown-senate-vote.html
+
+**Ken Parker, Who Sought to Reinvent the Guitar, Dies at 73**\
+`An inveterate tinkerer, he built groundbreaking guitars that were displayed in art galleries and played by Joni Mitchell, Trent Reznor and many others.`\
+https://nytimes.com/2025/11/09/arts/music/ken-parker-dead.html
+
 **Bills-Dolphins takeways: De'Von Achane runs wild in Miami's stunning upset**\
 `The Miami running back galloped for 174 yards and two touchdowns in the Dolphins' 30-13 blowout.`\
 https://nytimes.com/athletic/6792219/2025/11/09/bills-dolphins-score-result-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/09/world/climate-change-un-philippines-typhoon-bbc.h
 **Giants' Jaxson Dart ruled out with concussion in loss to Bears**\
 `Russell Wilson has replaced the rookie Dart after he left the game at the start of the fourth quarter.`\
 https://nytimes.com/athletic/6792425/2025/11/09/jaxson-dart-injury-concussion-giants/
-
-**Paul Tagliabue, Who Led the N.F.L. for 17 Prosperous Years, Dies at 84**\
-`He helped achieve labor peace, pushed for minority hiring and oversaw the league’s expansion. But he minimized the risks of concussions.`\
-https://nytimes.com/2025/11/09/obituaries/paul-tagliabue-dead.html
-
-**White House Discussed Naming New Washington Commanders Stadium After Trump**\
-`President Trump made the “rebuilding of the new stadium possible,” according to Karoline Leavitt, the White House press secretary. But it was unclear what role he has had in the project.`\
-https://nytimes.com/2025/11/09/us/politics/trump-washington-commanders.html
 
