@@ -1,6 +1,14 @@
+**Montana stays undefeated after Eastern Washington QB fumbles spike**\
+`Redshirt freshman Jake Schakel was nearly the hero but let the ball, and the game, slip out of his grasp in the final seconds.`\
+https://nytimes.com/athletic/6790701/2025/11/08/eastern-washington-quarterback-fumbles-spike/
+
 **Wisconsin finds 'spark' in upset of Washington days after decision to keep Luke Fickell**\
 `Luke Fickell said the school's announcement Thursday that he would return “meant something” to his players.`\
 https://nytimes.com/athletic/6790754/2025/11/08/washington-wisconsin-luke-fickell-score-result/
+
+**Messi, Miami avoid another first-round exit; Updated MLS playoff bracket**\
+`One place in the conference semifinals remains unclaimed after a series of thrilling Game 3s. Here's the full schedule and road to MLS Cup`\
+https://nytimes.com/athletic/6740291/2025/11/08/mls-cup-2025-playoff-bracket-full-postseason-schedule-updated-results/
 
 **Lane Kiffin, ESPN's GameDay help couples celebrate their joyous days**\
 `Ole Miss coach nearly regrets his photobomb, and a Texas couple goes viral after rescheduling their wedding to see their Red Raiders.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6560541/2025/11/08/college-football-playoff-bracket
 **What's the best college football catch you've ever seen?**\
 `Indiana's Omar Cooper Jr. made a case for best catch ever with toe tap to beat Penn State. These are our college football staff's favorites.`\
 https://nytimes.com/athletic/6790296/2025/11/08/college-football-best-catches-ever-omar-cooper-indiana/
-
-**What to make of Gavin McKenna’s start at Penn State? It’s complicated**\
-`The top prospect in the 2026 NHL Draft and biggest name in college hockey is being tested and scrutinized.`\
-https://nytimes.com/athletic/6789978/2025/11/08/gavin-mckenna-penn-state-nhl-draft-2026/
-
-**A Timeline of the Legal Saga Surrounding SNAP Payments**\
-`Weeks of uncertainty during the longest government shutdown in American history have left some states struggling to issue payments to food stamp recipients.`\
-https://nytimes.com/2025/11/08/us/politics/snap-payments-timeline.html
 
