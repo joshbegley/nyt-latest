@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: Texas Tech, Oregon strengthen CFP chances**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/09/college-football-playoff-bracket-projections-odds/
+
 **Guehi 'likely' to miss England's November games with foot injury - Glasner**\
 `"He can't even walk at the moment," Palace boss Glasner said on Sunday. "The last two days he is on crutches."`\
 https://nytimes.com/athletic/6791707/2025/11/09/marc-guehi-injury-england/
