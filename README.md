@@ -1,3 +1,11 @@
+**Saints-Panthers takeaways: Rookie QB Tyler Shough leads New Orleans to upset**\
+`New Orleans stuns Carolina as Shough becomes first Saints rookie QB to win a game since 1981.`\
+https://nytimes.com/athletic/6792257/2025/11/09/saints-panthers-score-result-takeaways/
+
+**Texans erase 19-point deficit in 4th quarter, stun Jaguars**\
+`Houston scores touchdowns on final three drives to pull out 36-29 victory.`\
+https://nytimes.com/athletic/6792707/2025/11/09/jaguars-texans-score-result-takeaways/
+
 **Maye leads Patriots to seventh straight win as Bucs' comeback falls short**\
 `Drake Maye delivered key plays under pressure, including a fourth-and-goal touchdown to Stefon Diggs and a 72-yard strike to Kyle Williams. `\
 https://nytimes.com/athletic/6792116/2025/11/09/patriots-buccaneers-score-result-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/09/arts/music/ken-parker-dead.html
 **Bills-Dolphins takeways: De'Von Achane runs wild in Miami's stunning upset**\
 `The Miami running back galloped for 174 yards and two touchdowns in the Dolphins' 30-13 blowout.`\
 https://nytimes.com/athletic/6792219/2025/11/09/bills-dolphins-score-result-takeaways/
-
-**A preview of The Athletic’s live coverage this week**\
-`Our live coverage this week includes two Packers NFL games, World Cup tuneups for the USMNT and England, the ATP Tennis finals and more`\
-https://nytimes.com/athletic/6788487/2025/11/09/live-coverage-weekly-schedule-eagles-world-cup/
-
-**Atlanta's offensive vision hasn't come into focus, and it might not survive the season**\
-`Second-year quarterback Michael Penix Jr. is struggling, and the Falcons offensive issues may derail the hopes this season once held.`\
-https://nytimes.com/athletic/6792430/2025/11/09/falcons-colts-germany-michael-penix-offense/
 
