@@ -1,3 +1,7 @@
+**Giants-Bears takeaways: Caleb Williams rallies Chicago after Jaxson Dart's exit**\
+`Williams and the Bears completed a late-game comeback after Dart, the Giants QB, left the game with a concussion.`\
+https://nytimes.com/athletic/6792355/2025/11/09/giants-bears-score-result-takeaways/
+
 **Safety Officer or Administration Messenger? Sean Duffy Juggles Roles in Shutdown.**\
 `With near-daily TV appearances, the transportation secretary has emerged as the face of the Trump administration amid the shutdown.`\
 https://nytimes.com/2025/11/09/us/politics/duffy-faa-air-travel-shutdown.html
