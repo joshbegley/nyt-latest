@@ -1,3 +1,7 @@
+**2 Major League Baseball Pitchers Are Charged in Gambling Investigation**\
+`Emmanuel Clase and Luis Ortiz, pitchers for the Cleveland Guardians, were charged with sharing inside information about their pitches with bettors. Mr. Ortiz was arrested Sunday.`\
+https://nytimes.com/2025/11/09/nyregion/mlb-pitchers-gambling.html
+
 **Norris wins, Verstappen fights back, Ferrari nightmare: Brazil Grand Prix briefing**\
 `Lando Norris puts himself in a commanding position in the drivers' championship, while Max Verstappen gives a performance for the ages`\
 https://nytimes.com/athletic/6791965/2025/11/09/f1-brazilian-gp-results/
