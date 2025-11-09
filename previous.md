@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6792480/2025/11/09/lewis-hamilton-ferrari-nightmare
 `This year’s U.N. climate talks are being held in Brazil and, so far, they’ve been noteworthy for who isn’t attending.`\
 https://nytimes.com/2025/11/09/world/climate-change-un-philippines-typhoon-bbc.html
 
-**Giants' Jaxson Dart ruled out vs. Bears with concussion**\
+**Giants' Jaxson Dart ruled out with concussion in loss to Bears**\
 `Russell Wilson has replaced the rookie Dart after he left the game at the start of the fourth quarter.`\
 https://nytimes.com/athletic/6792425/2025/11/09/jaxson-dart-injury-concussion-giants/
 

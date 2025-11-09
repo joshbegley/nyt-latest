@@ -1,3 +1,7 @@
+**Giants' Jaxson Dart ruled out with concussion in loss to Bears**\
+`Russell Wilson has replaced the rookie Dart after he left the game at the start of the fourth quarter.`\
+https://nytimes.com/athletic/6792425/2025/11/09/jaxson-dart-injury-concussion-giants/
+
 **Federal Judge, Warning of ‘Existential Threat’ to Democracy, Resigns**\
 `Judge Mark L. Wolf, writing in The Atlantic, said he was stepping down to defend against the “assault on the rule of law” by President Trump, who he accused of “targeting his adversaries.”`\
 https://nytimes.com/2025/11/09/us/politics/mark-wolf-federal-judge-resigns.html
