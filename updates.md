@@ -1,3 +1,15 @@
+**Edwards set to be appointed Wolves head coach, Middlesbrough agree £2m fee**\
+`There is club-to-club agreement over a compensation fee in the region of £2million for the 42-year-old, who previously coached at Wolves.`\
+https://nytimes.com/athletic/6791453/2025/11/09/rob-edwards-wolves-manager-middlesbrough/
+
+**Blues coach Jim Montgomery miffed by no-call on goalie interference leading to OT loss**\
+`The Blues lost 4-3 to Seattle in overtime after the Kraken scored the game-tying goal with 1.9 seconds left on a controversial call.`\
+https://nytimes.com/athletic/6790750/2025/11/09/blues-kraken-goalie-interference-jim-montgomery/
+
+**Mandel's Final Thoughts: How do you beat Indiana? Right now, no one can**\
+`What you need to know about a wild Week 11 in the Big Ten, Texas Tech's statement, ACC chaos, an open Group of 5 race and more.`\
+https://nytimes.com/athletic/6791159/2025/11/09/college-football-scores-results-week-11/
+
 **Banning social media**\
 `More schools and governments are turning to tech bans to try to keep kids off screens. Do they work?`\
 https://nytimes.com/2025/11/09/briefing/banning-social-media.html
