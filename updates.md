@@ -1,3 +1,7 @@
+**Cavs' De'Andre Hunter breaks Bulls' Josh Giddey's ankles with nasty crossover**\
+`Cleveland forward crosses over the Bulls guard so badly that Giddey rolled his ankle in the Cavs' 128-122 win Saturday night.`\
+https://nytimes.com/athletic/6790963/2025/11/09/deandre-hunter-josh-giddey-cavaliers-bulls-nba/
+
 **Cooper Flagg acknowledges Mavericks' slow start after first road win**\
 `Through the first 10 games of his career, Cooper Flagg hasn’t had many opportunities to celebrate.`\
 https://nytimes.com/athletic/6791055/2025/11/09/cooper-flagg-mavericks-slow-start-first-road-win/

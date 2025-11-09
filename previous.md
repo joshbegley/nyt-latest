@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6790803/2025/11/09/luka-doncic-lakers-hawks-results
 https://nytimes.com/2025/11/09/world/asia/philippines-typhoon-fung-wong.html
 
 **Cavs' De'Andre Hunter breaks Bulls' Josh Giddey's ankles with nasty crossover**\
-`Hunter crossed over Chicago Bulls guard Josh Giddey so bad that Giddey hurt his ankle in Cleveland's 128-122 win Saturday night.`\
+`Cleveland forward crosses over the Bulls guard so badly that Giddey rolled his ankle in the Cavs' 128-122 win Saturday night.`\
 https://nytimes.com/athletic/6790963/2025/11/09/deandre-hunter-josh-giddey-cavaliers-bulls-nba/
 
 **China Suspends Export Controls on More Critical Minerals**\

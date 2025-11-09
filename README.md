@@ -1,4 +1,4 @@
-**Lakers' no-show in road trip opener leads to blowout at the hands of the Hawks**\
+**Lakers' no-show in road trip opener leads to blowout to short-handed Hawks**\
 `The Lakers saw their five-game win streak come to an end Saturday night after failing to capitalize on a thinned out Atlanta lineup.`\
 https://nytimes.com/athletic/6790803/2025/11/09/luka-doncic-lakers-hawks-results-nba/
 
