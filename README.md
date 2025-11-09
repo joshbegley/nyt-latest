@@ -1,3 +1,11 @@
+**Cavs' De'Andre Hunter breaks Bulls' Josh Giddey's ankles with nasty crossover**\
+`Hunter crossed over Chicago Bulls guard Josh Giddey so bad that Giddey hurt his ankle in Cleveland's 128-122 win Saturday night.`\
+https://nytimes.com/athletic/6790963/2025/11/09/deandre-hunter-josh-giddey-cavaliers-bulls-nba/
+
+**China Suspends Export Controls on More Critical Minerals**\
+`The changes would make it easier for American firms to obtain key minerals, delivering on what the White House said the two countries had agreed to at last month’s summit.`\
+https://nytimes.com/2025/11/09/business/china-suspends-export-controls.html
+
 **The New York Times in Print for Sunday, Nov. 9, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/09/todays-new-york-times
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6790358/2025/11/09/arsenal-sunderland-mikel-arteta/
 **Illegal streaming: Research reveals rise in piracy and desire for scrapping of 3pm blackout**\
 `A new audio documentary from The Athletic reveals the data behind the growing use of illegal streams to watch Premier League football`\
 https://nytimes.com/athletic/6742752/2025/11/09/illegal-streaming-poll-results/
-
-**Fearless free-speech champion? Agitator? Bully? The search for the real Joey Barton**\
-`He was found guilty this week on six counts of sending a grossly offensive electronic communication with intent to cause distress or anxiety`\
-https://nytimes.com/athletic/6789754/2025/11/09/joey-barton-court-social-media/
-
-**Messi, Miami kick-start MLS Cup quest, rout Nashville in playoff decider**\
-`Lionel Messi's early goal set the tone for a decisive first-round knockout, with Miami's star influential in more ways than one in a 4-0 win`\
-https://nytimes.com/athletic/6790913/2025/11/09/inter-miami-nashville-sc-mls-cup-playoffs-messi/
 
