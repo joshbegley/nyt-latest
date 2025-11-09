@@ -1,3 +1,7 @@
+**Until Saturday: 7 takeaways from the play of the year**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6791652/2025/11/09/indiana-penn-state-catch-until-saturday/
+
 **The San Diego Wave are embracing the crests and troughs of their latest era in NWSL**\
 `After making a splash with their NWSL introduction in 2022, the Wave have had to manage more uncertain waters as of late.`\
 https://nytimes.com/athletic/6791016/2025/11/09/san-diego-wave-crests-troughs-latest-nwsl-era/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6791582/2025/11/09/lindenwood-mo-vs-baylor-stream-h
 **How to watch USC vs. NC State women's basketball: Time, TV, streaming**\
 `Find out how to watch the USC Trojans play the NC State Lady Wolfpack, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6791580/2025/11/09/usc-vs-nc-state-stream-how-to-watch-nov-9/
-
-**How to watch Kentucky vs. Buffalo women's basketball: Time, TV, streaming**\
-`Find out how to watch the Kentucky Wildcats play the Buffalo Bulls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6791567/2025/11/09/kentucky-vs-buffalo-stream-how-to-watch-nov-9/
 
