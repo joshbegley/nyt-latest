@@ -1,3 +1,7 @@
+**The San Diego Wave are embracing the crests and troughs of their latest era in NWSL**\
+`After making a splash with their NWSL introduction in 2022, the Wave have had to manage more uncertain waters as of late.`\
+https://nytimes.com/athletic/6791016/2025/11/09/san-diego-wave-crests-troughs-latest-nwsl-era/
+
 **How to watch Kings vs. Penguins: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Kings play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6791610/2025/11/09/kings-vs-penguins-stream-how-to-watch-nov-9/
