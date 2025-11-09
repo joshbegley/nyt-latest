@@ -1,3 +1,7 @@
+**Giants' Jaxson Dart exits vs. Bears, being evaluated for a concussion**\
+`Russell Wilson has replaced the rookie dart after he left the game at the start of the fourth quarter.`\
+https://nytimes.com/athletic/6792425/2025/11/09/jaxson-dart-injury-concussion-giants/
+
 **Paul Tagliabue, Who Led the N.F.L. for 17 Prosperous Years, Dies at 84**\
 `He helped achieve labor peace, pushed for minority hiring and oversaw the league’s expansion. But he minimized the risks of concussions.`\
 https://nytimes.com/2025/11/09/obituaries/paul-tagliabue-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6792284/2025/11/09/flames-vs-wild-stream-how-to-wat
 **How to watch Avalanche vs. Canucks: Time, TV, streaming**\
 `Find out how to watch the Colorado Avalanche play the Vancouver Canucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6792282/2025/11/09/avalanche-vs-canucks-stream-how-to-watch-nov-9/
-
-**How to watch Timberwolves vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Minnesota Timberwolves play the Sacramento Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6792279/2025/11/09/timberwolves-vs-kings-stream-how-to-watch-nov-9/
 
