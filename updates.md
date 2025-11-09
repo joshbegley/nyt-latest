@@ -1,3 +1,11 @@
+**Arkansas forward Trevon Brazile apologizes after hitting fan with towel**\
+`The 22-year-old posted a message on his Instagram story Sunday morning.`\
+https://nytimes.com/athletic/6792822/2025/11/09/arkansas-forward-trevon-brazil-apology-fan-hit-towel/
+
+**President Trump makes appearance at Commanders-Lions game after Air Force One flyover**\
+`Trump is the first sitting U.S. president to attend a regular-season NFL game in 47 years.`\
+https://nytimes.com/athletic/6792525/2025/11/09/donald-trump-booed-cheered-commanders-nfl-game-lions/
+
 **Atlanta lands NWSL expansion franchise backed by Arthur Blank for record $165 million: Sources**\
 `The team will be the 17th in NWSL and operated by Blank’s AMB Sports + Entertainment.`\
 https://nytimes.com/athletic/6792758/2025/11/09/atlanta-nwsl-expansion-arthur-blank/
