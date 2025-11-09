@@ -1,3 +1,15 @@
+**How to watch Holy Cross vs. Duke women's basketball: Time, TV, streaming**\
+`Find out how to watch the Holy Cross Crusaders play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6791299/2025/11/09/holy-cross-vs-duke-stream-how-to-watch-nov-9/
+
+**How to watch Georgetown vs. Maryland women's basketball: Time, TV, streaming**\
+`Find out how to watch the Georgetown Hoyas play the Maryland Terrapins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6791297/2025/11/09/georgetown-vs-maryland-stream-how-to-watch-nov-9/
+
+**How to watch Harvard vs. Michigan women's basketball: Time, TV, streaming**\
+`Find out how to watch the Harvard Crimson play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6791295/2025/11/09/harvard-vs-michigan-stream-how-to-watch-nov-9/
+
 **How to watch Manchester City vs. Liverpool from the U.S.: Pep reaches 1K milestone**\
 `City manager Pep Guardiola will reach the 1,000th match milestone Sunday against rival Liverpool.`\
 https://nytimes.com/athletic/6785473/2025/11/09/manchester-city-liverpool-pep-guardiola-how-to-watch-us/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/09/science/blue-origin-new-glenn-launch.html
 **The Dangerous Stalemate Over Iran’s Nuclear Program**\
 `With no negotiations, no oversight and no clarity about Iran’s stock of nuclear material, many in the region fear another war with Israel is inevitable.`\
 https://nytimes.com/2025/11/09/world/middleeast/iran-nuclear-program-israel.html
-
-**Gay Russians Find a Haven on the Other Side of the World**\
-`Argentina has emerged as a surprisingly prominent destination for L.G.B.T.Q. Russians escaping President Vladimir V. Putin’s escalating anti-gay repression.`\
-https://nytimes.com/2025/11/09/world/americas/argentina-lgbtq-russia-putin-escape.html
-
-**With Mortgage Rates Declining, Should You Refinance?**\
-`More than four million borrowers could potentially benefit from locking in a lower rate. Here’s what to consider.`\
-https://nytimes.com/2025/11/09/business/mortgage-refinance.html
-
-**What the WTA Tour Finals gained and lost by coming to Saudi Arabia**\
-`The three-year deal has brought record prize money and stability. The tradeoffs include playing the WTA's flagship event on a limited stage.`\
-https://nytimes.com/athletic/6789807/2025/11/09/tennis-wta-tour-finals-saudi-arabia/
 
