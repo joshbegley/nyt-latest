@@ -1,3 +1,7 @@
+**Spirit's mental preparation for the 'unpredictable' helped secure another dramatic playoff win**\
+`Resiliency is proving to be the Spirit's strong suit. The team has won five extra time playoff games in four years.`\
+https://nytimes.com/athletic/6790558/2025/11/09/washington-spirit-nwsl-playoff-mental-victory/
+
 **College Football Playoff 2025 projections: Texas Tech, Oregon strengthen CFP chances**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/11/09/college-football-playoff-bracket-projections-odds/
