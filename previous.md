@@ -1,3 +1,7 @@
+**Bill Belichick, UNC claim second straight ACC win. Could a bowl be in cards for Tar Heels?**\
+`UNC's remaining regular-season games are against Wake Forest, Duke and NC State. The Tar Heels need two wins to get to six victories.`\
+https://nytimes.com/athletic/6790663/2025/11/08/after-unc-defeats-stanford-are-bill-belichicks-tar-heels-headed-toward-bowl-eligibility/
+
 **After acknowledging poor offseason, Matvei Michkov may be ready to break out**\
 `Michkov acknowledged that he could have handled his first NHL offseason differently and didn’t show up to camp in good enough shape.`\
 https://nytimes.com/athletic/6790529/2025/11/08/flyers-matvei-michkov-nhl-offseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6790442/2025/11/08/oregon-iowa-result-score/
 **Former Prison Psychologist Awarded $16.8 Million Over Ignored Inmate’s Threat**\
 `A California jury found that Beth Fischgrund was wrongfully terminated and defamed after she reported an inmate’s violent threat at Salinas Valley State Prison in California.`\
 https://nytimes.com/2025/11/08/us/california-prison-doctor-awarded-millions.html
-
-**Our Restaurant Critics Dish**\
-`Tejal Rao and Ligaya Mishan, the new food critics at The New York Times, answer your questions.`\
-https://nytimes.com/2025/11/08/podcasts/the-daily/restaurant-critics-food.html
 
