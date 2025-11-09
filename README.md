@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: Texas Tech, Oregon strengthen CFP chances**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/09/college-football-playoff-bracket-projections-odds/
+
 **Guehi 'likely' to miss England's November games with foot injury - Glasner**\
 `"He can't even walk at the moment," Palace boss Glasner said on Sunday. "The last two days he is on crutches."`\
 https://nytimes.com/athletic/6791707/2025/11/09/marc-guehi-injury-england/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/09/arts/television/snl-trump-sidesteps-unconscious-m
 **Until Saturday: 7 takeaways from the play of the year**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6791652/2025/11/09/indiana-penn-state-catch-until-saturday/
-
-**The San Diego Wave are embracing the crests and troughs of their latest era in NWSL**\
-`After making a splash with their NWSL introduction in 2022, the Wave have had to manage more uncertain waters as of late.`\
-https://nytimes.com/athletic/6791016/2025/11/09/san-diego-wave-crests-troughs-latest-nwsl-era/
 
