@@ -1,3 +1,11 @@
+**Saints-Panthers takeaways: Rookie QB Tyler Shough leads New Orleans to upset**\
+`New Orleans stuns Carolina as Shough becomes first Saints rookie QB to win a game since 1981.`\
+https://nytimes.com/athletic/6792257/2025/11/09/saints-panthers-score-result-takeaways/
+
+**Texans erase 19-point deficit in 4th quarter, stun Jaguars**\
+`Houston scores touchdowns on final three drives to pull out 36-29 victory.`\
+https://nytimes.com/athletic/6792707/2025/11/09/jaguars-texans-score-result-takeaways/
+
 **Maye leads Patriots to seventh straight win as Bucs' comeback falls short**\
 `Drake Maye delivered key plays under pressure, including a fourth-and-goal touchdown to Stefon Diggs and a 72-yard strike to Kyle Williams. `\
 https://nytimes.com/athletic/6792116/2025/11/09/patriots-buccaneers-score-result-takeaways/
