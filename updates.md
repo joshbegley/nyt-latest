@@ -1,3 +1,11 @@
+**Thune Says Deal to Reopen Government Is ‘Coming Together’**\
+`The top Senate Republican sounded hopeful on Sunday that enough Democrats could be brought on board to move forward quickly on a measure that would reopen the government.`\
+https://nytimes.com/2025/11/09/us/politics/government-shutdown-senate-vote.html
+
+**Ken Parker, Who Sought to Reinvent the Guitar, Dies at 73**\
+`An inveterate tinkerer, he built groundbreaking guitars that were displayed in art galleries and played by Joni Mitchell, Trent Reznor and many others.`\
+https://nytimes.com/2025/11/09/arts/music/ken-parker-dead.html
+
 **Bills-Dolphins takeways: De'Von Achane runs wild in Miami's stunning upset**\
 `The Miami running back galloped for 174 yards and two touchdowns in the Dolphins' 30-13 blowout.`\
 https://nytimes.com/athletic/6792219/2025/11/09/bills-dolphins-score-result-takeaways/
