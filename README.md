@@ -1,3 +1,7 @@
+**ACC chaos reigns: 4-way tie at 5-1 after Wake upsets Virginia, Cal knocks off Louisville in OT**\
+`Saturday’s results create a logjam of five teams with one conference loss: Virginia, Georgia Tech, Pitt, SMU and Duke.`\
+https://nytimes.com/athletic/6790769/2025/11/08/acc-football-wake-forest-virginia-louisville-cal/
+
 **Notre Dame blows out Navy as offense hums, defense holds option in check**\
 `The Fighting Irish again look like a team good enough to host a CFP game in December.`\
 https://nytimes.com/athletic/6790777/2025/11/08/notre-dame-blows-out-navy-a-return-to-form-and-another-wild-jeremiyah-love-highlight/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6790529/2025/11/08/flyers-matvei-michkov-nhl-offsea
 **NFL asks teams to hold moment of silence for Cowboys' Marshawn Kneeland: Source**\
 `Kneeland, who was in his second season with Dallas, died from an apparent self-inflicted gunshot wound early Thursday in Frisco, Texas.`\
 https://nytimes.com/athletic/6790578/2025/11/08/marshawn-kneeland-moment-of-silence-nfl-memo/
-
-**Cavan Sullivan's panenka lifts U.S. U-17s past Tajikistan at FIFA U-17 World Cup**\
-`Sullivan chipped his 61st-minute penalty down the middle of the goal to give the U.S. a lead that held on for the final result. `\
-https://nytimes.com/athletic/6790633/2025/11/08/cavan-sullivan-usmnt-panenka-u17-world-cup/
 
