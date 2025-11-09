@@ -1,3 +1,7 @@
+**England are developing a 'heat-proof' plan to help them win the World Cup**\
+`England assistant Anthony Barry explains how Thomas Tuchel and his staff aim to cope with anticipated scorching conditions next summer`\
+https://nytimes.com/athletic/6787015/2025/11/09/anthony-barry-england-world-cup-heat/
+
 **What to know about the NFL's first Berlin game: Falcons and Colts meet in Germany**\
 `The NFL's next international game goes down Sunday morning, when the first-place Indianapolis Colts link with the mercurial Atlanta Falcons.`\
 https://nytimes.com/athletic/6787759/2025/11/09/falcons-colts-nfl-international-berlin-how-to-watch/
