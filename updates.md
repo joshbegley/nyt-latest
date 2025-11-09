@@ -1,3 +1,7 @@
+**Closing games could be a concern for Bucks despite Giannis' dominance**\
+`On Sunday, Giannis Antetokounmpo was spectacular for Milwaukee, but missed free throws and turnovers led to a Bucks loss.`\
+https://nytimes.com/athletic/6792776/2025/11/09/giannis-antetokounmpo-kevin-durant-rockets-bucks-nba/
+
 **Arkansas forward Trevon Brazile apologizes after hitting fan with towel**\
 `The 22-year-old posted a message on his Instagram story Sunday morning.`\
 https://nytimes.com/athletic/6792822/2025/11/09/arkansas-forward-trevon-brazil-apology-fan-hit-towel/

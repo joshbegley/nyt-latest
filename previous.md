@@ -6,8 +6,8 @@ https://nytimes.com/athletic/6792822/2025/11/09/arkansas-forward-trevon-brazil-a
 `The team will be the 17th in NWSL and operated by Blank’s AMB Sports + Entertainment.`\
 https://nytimes.com/athletic/6792758/2025/11/09/atlanta-nwsl-expansion-arthur-blank/
 
-**Bucks closing games could be a concern despite Giannis Antetokounmpo's dominance**\
-`On Sunday, Giannis Antetokounmpo was spectacular for the Bucks, but missed free throws and turnovers led to a Bucks loss.`\
+**Closing games could be a concern for Bucks despite Giannis' dominance**\
+`On Sunday, Giannis Antetokounmpo was spectacular for Milwaukee, but missed free throws and turnovers led to a Bucks loss.`\
 https://nytimes.com/athletic/6792776/2025/11/09/giannis-antetokounmpo-kevin-durant-rockets-bucks-nba/
 
 **Typhoon Strikes Philippines, Days After a Storm Killed 200 People**\

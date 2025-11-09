@@ -1,3 +1,7 @@
+**Bills play like trash against Dolphins, raising postseason doubts**\
+`The Bills were upset after they failed to add players before the trade deadline.`\
+https://nytimes.com/athletic/6792814/2025/11/09/bills-performance-loss-dolphins/
+
 **Arkansas forward Trevon Brazile apologizes after hitting fan with towel**\
 `The 22-year-old posted a message on his Instagram story Sunday morning.`\
 https://nytimes.com/athletic/6792822/2025/11/09/arkansas-forward-trevon-brazil-apology-fan-hit-towel/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/09/crosswords/daily-puzzle-2025-11-10.html
 **President Trump makes appearance at Commanders-Lions game after Air Force One flyover**\
 `Trump is the first sitting U.S. president to attend a regular-season NFL game in 47 years.`\
 https://nytimes.com/athletic/6792525/2025/11/09/donald-trump-booed-cheered-commanders-nfl-game-lions/
-
-**Safety Officer or Administration Messenger? Sean Duffy Juggles Roles in Shutdown.**\
-`With near-daily TV appearances, the transportation secretary has emerged as the face of the Trump administration amid the shutdown.`\
-https://nytimes.com/2025/11/09/us/politics/duffy-faa-air-travel-shutdown.html
 
