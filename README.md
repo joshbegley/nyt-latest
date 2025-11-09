@@ -1,3 +1,11 @@
+**Spirit's mental preparation for the 'unpredictable,' helped secure another dramatic playoff win**\
+`Resiliency is proving to be the Spirit's strong suit. The team has won five extra time playoff games in four years.`\
+https://nytimes.com/athletic/6790558/2025/11/09/washington-spirit-nwsl-playoff-mental-victory/
+
+**Trump Administration Demands States ‘Undo’ Work to Send Full Food Stamps**\
+`In late-night guidance, the Agriculture Department also threatened financial penalties against states.`\
+https://nytimes.com/2025/11/09/business/trump-administration-states-undo-full-snap-food-stamps.html
+
 **Trump Administration Live Updates: Flight Disruptions Persist Amid Shutdown**\
 ``\
 https://nytimes.com/live/2025/11/09/us/trump-news
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6791610/2025/11/09/kings-vs-penguins-stream-how-to-
 **How to watch Rockets vs. Bucks: Time, TV, streaming**\
 `Find out how to watch the Houston Rockets play the Milwaukee Bucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6791608/2025/11/09/rockets-vs-bucks-stream-how-to-watch-nov-9/
-
-**What Questions Do You Have About Climate Change?**\
-`“Ask a Correspondent” will take your questions to Somini Sengupta, our international climate reporter.`\
-https://nytimes.com/2025/11/09/world/ask-a-correspondent-somini-sengupta-climate-change.html
-
-**How to watch Evansville vs. Iowa women's basketball: Time, TV, streaming**\
-`Find out how to watch the Evansville Purple Aces play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6791588/2025/11/09/evansville-vs-iowa-stream-how-to-watch-nov-9/
 
