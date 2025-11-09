@@ -1,3 +1,11 @@
+**Small Earthquakes Strike San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/11/09/us/san-ramon-california-earthquake.html
+
+**Trump Renews Attacks on Obamacare in New Push Over Government Shutdown**\
+`The president claimed that the Affordable Care Act benefited insurance companies over people, saying he would work with both parties on the issue “once the Government is open.”`\
+https://nytimes.com/2025/11/09/us/politics/trump-shutdown-obamacare.html
+
 **Former NFL commissioner Paul Tagliabue dies at 84**\
 `In 17 years as commissioner, Tagliabue oversaw a period in which the league expanded geographically and boomed in popularity.`\
 https://nytimes.com/athletic/6792011/2025/11/09/paul-tagliabue-former-nfl-commissioner-obituary/

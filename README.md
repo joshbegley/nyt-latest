@@ -1,3 +1,7 @@
+**Powerful Tornado Leaves Trail of Destruction in Southern Brazil**\
+`The Brazilian authorities said several towns in the state of Paraná were struck by the tornado, which killed at least five people.`\
+https://nytimes.com/video/world/americas/100000010514057/brazil-deadly-tornado-weather.html
+
 **Small Earthquakes Strike San Francisco Bay Area**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/11/09/us/san-ramon-california-earthquake.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6791921/2025/11/09/kraken-vs-stars-stream-how-to-wa
 **How to watch Thunder vs. Grizzlies: Time, TV, streaming**\
 `Find out how to watch the Oklahoma City Thunder play the Memphis Grizzlies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6791919/2025/11/09/thunder-vs-grizzlies-stream-how-to-watch-nov-9/
-
-**How to watch Celtics vs. Magic: Time, TV, streaming**\
-`Find out how to watch the Boston Celtics play the Orlando Magic, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6791917/2025/11/09/celtics-vs-magic-stream-how-to-watch-nov-9/
 
