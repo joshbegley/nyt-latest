@@ -1,3 +1,11 @@
+**Typhoon Strikes Philippines, Days After a Storm Killed 200 People**\
+`Super Typhoon Fung-wong made landfall in the Philippines on Sunday. At least two deaths have been reported and over a million people were pre-emptively evacuated from their homes.`\
+https://nytimes.com/video/world/asia/100000010514512/typhoon-strikes-philippines-days-after-a-storm-killed-200-people.html
+
+**Richie Adubato, Coach of Men’s and Women’s Pro Basketball, Dies at 87**\
+`He had a losing record in the N.B.A., but gained acclaim coaching a Liberty team that featured stars like Teresa Weatherspoon and Becky Hammon.`\
+https://nytimes.com/2025/11/09/obituaries/richie-adubato-dead.html
+
 **The alleged pitch-rigging scheme of 2 MLB players: Texts, calls and the money trail**\
 `Emmanuel Clase and Luis Ortiz face up to 65 years in prison if convicted.`\
 https://nytimes.com/athletic/6792294/2025/11/09/mlb-clase-ortiz-betting-allegations/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6792719/2025/11/09/new-york-rangers-gabe-perreault-
 **Saints-Panthers takeaways: Rookie QB Tyler Shough leads New Orleans to upset**\
 `New Orleans stuns Carolina as Shough becomes first Saints rookie QB to win a game since 1981.`\
 https://nytimes.com/athletic/6792257/2025/11/09/saints-panthers-score-result-takeaways/
-
-**Texans erase 19-point deficit in fourth quarter to beat Jaguars: Takeaways**\
-`Houston scored touchdowns on its final three drives to pull out the 36-29 victory.`\
-https://nytimes.com/athletic/6792707/2025/11/09/jaguars-texans-score-result-takeaways/
-
-**Maye leads Patriots to seventh straight win as Bucs' comeback falls short**\
-`Drake Maye delivered key plays under pressure, including a fourth-and-goal touchdown to Stefon Diggs and a 72-yard strike to Kyle Williams. `\
-https://nytimes.com/athletic/6792116/2025/11/09/patriots-buccaneers-score-result-takeaways/
 
