@@ -1,3 +1,7 @@
+**Lane Kiffin, ESPN's GameDay help couples celebrate their joyous days**\
+`Ole Miss coach nearly regrets his photobomb, and a Texas couple goes viral after rescheduling their wedding to see their Red Raiders.`\
+https://nytimes.com/athletic/6790574/2025/11/08/lane-kiffin-espn-gameday-couples-celebrate/
+
 **Bill Belichick, UNC claim second straight ACC win. Could a bowl be in cards for Tar Heels?**\
 `UNC's remaining regular-season games are against Wake Forest, Duke and NC State. The Tar Heels need two wins to get to six victories.`\
 https://nytimes.com/athletic/6790663/2025/11/08/bill-belichick-stanford-unc-score-result/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/08/us/politics/snap-payments-timeline.html
 **Oregon vs. Iowa: Ducks cap clutch drive with 39-yard FG to bolster CFP chances**\
 `The Ducks are now 8-0 on the road in the Big Ten since joining the conference.`\
 https://nytimes.com/athletic/6790442/2025/11/08/oregon-iowa-result-score/
-
-**Former Prison Psychologist Awarded $16.8 Million Over Ignored Inmate’s Threat**\
-`A California jury found that Beth Fischgrund was wrongfully terminated and defamed after she reported an inmate’s violent threat at Salinas Valley State Prison in California.`\
-https://nytimes.com/2025/11/08/us/california-prison-doctor-awarded-millions.html
 
