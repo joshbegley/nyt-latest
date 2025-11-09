@@ -1,3 +1,11 @@
+**Paul Tagliabue, Who Led the N.F.L. for 17 Prosperous Years, Dies at 84**\
+`He helped achieve labor peace, pushed for minority hiring and oversaw the league’s expansion. But he minimized the risks of concussions.`\
+https://nytimes.com/2025/11/09/obituaries/paul-tagliabue-dead.html
+
+**White House Discussed Naming New Washington Commanders Stadium After Trump**\
+`President Trump made the “rebuilding of the new stadium possible,” according to Karoline Leavitt, the White House press secretary. But it was unclear what role he has had in the project.`\
+https://nytimes.com/2025/11/09/us/politics/trump-washington-commanders.html
+
 **White House discussed naming new Washington Commanders stadium after Trump**\
 `President Trump made the “rebuilding of the new stadium possible,” according to Karoline Leavitt, the White House press secretary. But it was unclear what role he has had in the project.`\
 https://nytimes.com/2025/11/09/us/politics/trump-washington-commanders.html
