@@ -1,3 +1,7 @@
+**Japan Issues Tsunami Advisory After Strong Earthquake Off Its Coast**\
+`A tsunami was expected to come ashore with a maximum height of about three feet after a 6.7-magnitude quake struck off Japan’s coast early Sunday evening.`\
+https://nytimes.com/2025/11/09/world/asia/earthquake-japan-tsunami-warning.html
+
 **England are developing a 'heat-proof' plan to help them win the World Cup**\
 `England assistant Anthony Barry explains how Thomas Tuchel and his staff aim to cope with anticipated scorching conditions next summer`\
 https://nytimes.com/athletic/6787015/2025/11/09/anthony-barry-england-world-cup-heat/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/09/insider/10-minute-challenge.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/11/09/crosswords/spelling-bee-forum.html
-
-**The lengthy list of problems Edwards must try to solve at Molineux**\
-`No team with two points or fewer at this stage of a Premier League season has survived. Good luck to Wolves' next manager `\
-https://nytimes.com/athletic/6790523/2025/11/09/wolves-manager-rob-edwards-relegation-fight/
 
