@@ -1,3 +1,7 @@
+**Five Blackhawks not named Connor Bedard who shined on Chicago's road trip**\
+`The Blackhawks closed out their road trip on a three-game win streak — their longest since 2016-17.`\
+https://nytimes.com/athletic/6792379/2025/11/09/blackhawks-bedard-levshunov-burakovsky-road-trip/
+
 **Thune Says Deal to Reopen Government Is ‘Coming Together’**\
 `The top Senate Republican sounded hopeful on Sunday that enough Democrats could be brought on board to move forward quickly on a measure that would reopen the government.`\
 https://nytimes.com/2025/11/09/us/politics/government-shutdown-senate-vote.html

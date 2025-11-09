@@ -1,3 +1,7 @@
+**Five Blackhawks not named Connor Bedard who shined on Chicago's road trip**\
+`The Blackhawks closed out their road trip on a three-game win streak — their longest since 2016-17.`\
+https://nytimes.com/athletic/6792379/2025/11/09/blackhawks-bedard-levshunov-burakovsky-road-trip/
+
 **Thune Says Deal to Reopen Government Is ‘Coming Together’**\
 `The top Senate Republican sounded hopeful on Sunday that enough Democrats could be brought on board to move forward quickly on a measure that would reopen the government.`\
 https://nytimes.com/2025/11/09/us/politics/government-shutdown-senate-vote.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6792480/2025/11/09/lewis-hamilton-ferrari-nightmare
 **Tackling Climate Change Without the U.S.**\
 `This year’s U.N. climate talks are being held in Brazil and, so far, they’ve been noteworthy for who isn’t attending.`\
 https://nytimes.com/2025/11/09/world/climate-change-un-philippines-typhoon-bbc.html
-
-**Giants' Jaxson Dart ruled out with concussion in loss to Bears**\
-`Russell Wilson has replaced the rookie Dart after he left the game at the start of the fourth quarter.`\
-https://nytimes.com/athletic/6792425/2025/11/09/jaxson-dart-injury-concussion-giants/
 
