@@ -1,5 +1,5 @@
 **Former NFL commissioner Paul Tagliabue dies at 84**\
-`Paul Tagliabue was NFL commissioner from 1989 to 2006.`\
+`In 17 years as commissioner, Tagliabue oversaw a period in which the league expanded geographically and boomed in popularity.`\
 https://nytimes.com/athletic/6792011/2025/11/09/paul-tagliabue-former-nfl-commissioner-obituary/
 
 **Hamas Hands Over Body of Israeli Soldier Held Since 2014**\
