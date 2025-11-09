@@ -1,3 +1,11 @@
+**Small Earthquakes Strike San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/11/09/us/san-ramon-california-earthquake.html
+
+**Trump Renews Attacks on Obamacare in New Push Over Government Shutdown**\
+`The president claimed that the Affordable Care Act benefited insurance companies over people, saying he would work with both parties on the issue “once the Government is open.”`\
+https://nytimes.com/2025/11/09/us/politics/trump-shutdown-obamacare.html
+
 **Former NFL commissioner Paul Tagliabue dies at 84**\
 `In 17 years as commissioner, Tagliabue oversaw a period in which the league expanded geographically and boomed in popularity.`\
 https://nytimes.com/athletic/6792011/2025/11/09/paul-tagliabue-former-nfl-commissioner-obituary/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6791919/2025/11/09/thunder-vs-grizzlies-stream-how-
 **How to watch Celtics vs. Magic: Time, TV, streaming**\
 `Find out how to watch the Boston Celtics play the Orlando Magic, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6791917/2025/11/09/celtics-vs-magic-stream-how-to-watch-nov-9/
-
-**How to watch Mammoth vs. Senators: Time, TV, streaming**\
-`Find out how to watch the Utah Mammoth play the Ottawa Senators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6791915/2025/11/09/mammoth-vs-senators-stream-how-to-watch-nov-9/
-
-**How to watch Hurricanes vs. Maple Leafs: Time, TV, streaming**\
-`Find out how to watch the Carolina Hurricanes play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6791913/2025/11/09/hurricanes-vs-maple-leafs-stream-how-to-watch-nov-9/
 
