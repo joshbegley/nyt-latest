@@ -1,3 +1,11 @@
+**Nottingham Forest 3 Leeds 1 - A Forest revival? Are Leeds in real trouble?**\
+`Leeds United's poor form away from home continued as they suffered a deserved loss to Nottingham Forest`\
+https://nytimes.com/athletic/6787432/2025/11/09/nottingham-forest-leeds-united-result/
+
+**The Briefing: Brentford 3 Newcastle 1 - What's going so wrong on the road? What happened to Burn?**\
+`Newcastle simply do not like playing away from St James' Park - The Athletic analyses their latest defeat on the road`\
+https://nytimes.com/athletic/6787431/2025/11/09/brentford-3-newcastle-1-howe-away-form-burn-sent-off/
+
 **Lowetide: Oilers minor-league forwards and their throwback comparables**\
 `Is there historical precedent for any of the current Condors forwards to project as future NHL players?`\
 https://nytimes.com/athletic/6789804/2025/11/09/edmonton-oilers-ahl-forwards-comparables/

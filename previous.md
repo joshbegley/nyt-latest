@@ -1,3 +1,11 @@
+**Nottingham Forest 3 Leeds 1 - A Forest revival? Are Leeds in real trouble?**\
+`Leeds United's poor form away from home continued as they suffered a deserved loss to Nottingham Forest`\
+https://nytimes.com/athletic/6787432/2025/11/09/nottingham-forest-leeds-united-result/
+
+**The Briefing: Brentford 3 Newcastle 1 - What's going so wrong on the road? What happened to Burn?**\
+`Newcastle simply do not like playing away from St James' Park - The Athletic analyses their latest defeat on the road`\
+https://nytimes.com/athletic/6787431/2025/11/09/brentford-3-newcastle-1-howe-away-form-burn-sent-off/
+
 **Lowetide: Oilers minor-league forwards and their throwback comparables**\
 `Is there historical precedent for any of the current Condors forwards to project as future NHL players?`\
 https://nytimes.com/athletic/6789804/2025/11/09/edmonton-oilers-ahl-forwards-comparables/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6560541/2025/11/09/college-football-playoff-bracket
 **Guehi 'likely' to miss England's November games with foot injury - Glasner**\
 `"He can't even walk at the moment," Palace boss Glasner said on Sunday. "The last two days he is on crutches."`\
 https://nytimes.com/athletic/6791707/2025/11/09/marc-guehi-injury-england/
-
-**Predicting the CFP bracket: Longhorns in Lubbock? Notre Dame vs. Oregon?**\
-`With three weeks left in the regular season, the College Football Playoff race still has multiple questions left unanswered.`\
-https://nytimes.com/athletic/6791082/2025/11/09/college-football-playoff-bracket-prediction-texas-tech/
-
-**Spirit's mental preparation for the 'unpredictable' helped secure another dramatic playoff win**\
-`Resiliency is proving to be the Spirit's strong suit. The team has won five extra time playoff games in four years.`\
-https://nytimes.com/athletic/6790558/2025/11/09/washington-spirit-nwsl-playoff-mental-victory/
 
