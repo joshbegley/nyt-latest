@@ -1,3 +1,19 @@
+**Maye leads Patriots to seventh straight win as Bucs' comeback falls short**\
+`Drake Maye delivered key plays under pressure, including a fourth-and-goal touchdown to Stefon Diggs and a 72-yard strike to Kyle Williams. `\
+https://nytimes.com/athletic/6792116/2025/11/09/patriots-buccaneers-score-result-takeaways/
+
+**Gauging Bills concern and Jonathan Taylor's MVP chances: Our experts' Week 10 takeaways**\
+`Drake Maye and the Patriots are riding high and the Ravens continue to work their way back into AFC North contention.`\
+https://nytimes.com/athletic/6791802/2025/11/09/nfl-takeaways-week-10-scores-results/
+
+**Giants-Bears takeaways: Caleb Williams rallies Chicago with late-game magic**\
+`Williams and the Bears completed a late-game comeback at home against the New York Giants in a windy and snowy affair.`\
+https://nytimes.com/athletic/6792355/2025/11/09/giants-bears-score-result-takeaways/
+
+**Ravens-Vikings takeaways: Lamar Jackson propels Baltimore to 3rd straight win**\
+`Derrick Henry moved into the top 15 on the all-time rushing list in Baltimore's victory.`\
+https://nytimes.com/athletic/6792310/2025/11/09/ravens-vikings-score-result-takeaways/
+
 **Five Blackhawks not named Connor Bedard who shined on Chicago's road trip**\
 `The Blackhawks closed out their road trip on a three-game win streak — their longest since 2016-17.`\
 https://nytimes.com/athletic/6792379/2025/11/09/blackhawks-bedard-levshunov-burakovsky-road-trip/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6788487/2025/11/09/live-coverage-weekly-schedule-ea
 **Atlanta's offensive vision hasn't come into focus, and it might not survive the season**\
 `Second-year quarterback Michael Penix Jr. is struggling, and the Falcons offensive issues may derail the hopes this season once held.`\
 https://nytimes.com/athletic/6792430/2025/11/09/falcons-colts-germany-michael-penix-offense/
-
-**Federal Judge, Warning of ‘Existential Threat’ to Democracy, Resigns**\
-`Judge Mark L. Wolf, writing in The Atlantic, said he was stepping down to defend against the “assault on the rule of law” by President Trump, who he accused of “targeting his adversaries.”`\
-https://nytimes.com/2025/11/09/us/politics/mark-wolf-federal-judge-resigns.html
-
-**Michelle Obama Criticizes Trump’s East Wing Demolition**\
-`The president’s ballroom project will transform one of the most recognizable buildings in the world and could nearly double its size.`\
-https://nytimes.com/2025/11/09/us/politics/michelle-obama-east-wing.html
-
-**Lewis Hamilton calls first Ferrari season 'a nightmare' after dismal Brazilian GP**\
-`The British driver retired after contact and wing damage, stretching his wait for a first Ferrari grand prix podium`\
-https://nytimes.com/athletic/6792480/2025/11/09/lewis-hamilton-ferrari-nightmare-season-brazilian-gp/
-
-**Tackling Climate Change Without the U.S.**\
-`This year’s U.N. climate talks are being held in Brazil and, so far, they’ve been noteworthy for who isn’t attending.`\
-https://nytimes.com/2025/11/09/world/climate-change-un-philippines-typhoon-bbc.html
 
