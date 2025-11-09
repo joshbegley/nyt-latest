@@ -30,7 +30,7 @@ https://nytimes.com/interactive/2025/11/09/nyregion/zohran-mamdani-nyc-mayoral-s
 `Zhouqin Burnikel takes a layered approach.`\
 https://nytimes.com/2025/11/09/crosswords/daily-puzzle-2025-11-10.html
 
-**President Trump arrives at Commanders-Lions game after Air Force One flyover**\
+**President Trump makes appearance at Commanders-Lions game after Air Force One flyover**\
 `Trump is the first sitting U.S. president to attend a regular-season NFL game in 47 years.`\
 https://nytimes.com/athletic/6792525/2025/11/09/donald-trump-booed-cheered-commanders-nfl-game-lions/
 
