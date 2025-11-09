@@ -1,3 +1,7 @@
+**What we learned about the CFP: Is the SEC poised to take more than four spots?**\
+`The SEC had a painless weekend, while the Big Ten's chance of sending at least four teams to the Playoff took a hit.`\
+https://nytimes.com/athletic/6791079/2025/11/09/college-football-playoff-race-updates-week-11/
+
 **Vanderbilt's best and worst showed up vs. Auburn — but Commodores' CFP path intact**\
 `Vanderbilt's offense and defense have been two separate stories this season, but the offense came through in a key win against Auburn. `\
 https://nytimes.com/athletic/6790811/2025/11/09/vanderbilt-auburn-cfp-score-result-takeaways/
