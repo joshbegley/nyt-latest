@@ -1,40 +1,40 @@
-**'I'm in a lot of pain' - Chelsea's Fernandez to miss Argentina squad with knee injury**\
-`The 24-year-old has revealed he is in "a lot of pain" due to a bone edema in his knee, which he claims he has been feeling for four months.`\
-https://nytimes.com/athletic/6791310/2025/11/09/enzo-fernandez-injury-chelsea-argentina/
+**Rangers shut out at MSG again, plus eight more thoughts**\
+`The Rangers suffered another deflating home loss in which they failed to score and heard scattered boos on their way off the ice.`\
+https://nytimes.com/athletic/6790714/2025/11/09/rangers-shutout-loss-madison-square-garden/
 
-**Sabres' season reaches another tipping point with loss to Hurricanes: 4 thoughts**\
-`Despite a third-period comeback attempt, the Sabres lost 6-3 to Carolina on Saturday and are now 1-2-4 in their last seven games.`\
-https://nytimes.com/athletic/6790842/2025/11/09/sabres-hurricanes-loss-season-thompson-tuch/
+**Oilers nowhere near the NHL's elite: 'We're not even close'**\
+`Edmonton's mediocre start to the season hit a low point in a 9-1 home loss to the West-leading Avalanche.`\
+https://nytimes.com/athletic/6791173/2025/11/09/oilers-crushing-loss-avalanche/
 
-**Bob Gibson would have turned 90. Remembering a carefree moment with Cardinals, Bob Uecker**\
-`Gibson’s competitiveness with the St. Louis Cardinals is often celebrated. But he also had a sense of humor that deserves its own publicity.`\
-https://nytimes.com/athletic/6787856/2025/11/09/bob-gibson-bob-uecker-birthday-mlb/
+**The SEC Championship Game race: Alabama and Texas A&M on a collision course?**\
+`What happens if Alabama and/or Texas A&M do not win out? It's complicated!`\
+https://nytimes.com/athletic/6790891/2025/11/09/sec-championship-game-tiebreakers-alabama-texas-am/
 
-**What can ND learn from a blowout of Navy? How close perfect can be, for starters**\
-`Maybe blowouts against overmatched competition can’t be revelations, but there has to be value in knowing what near-perfection looks like.`\
-https://nytimes.com/athletic/6791128/2025/11/09/notre-dame-navy-winning-streak-cfp/
+**Kirill Marchenko and Dmitri Voronkov's big nights not enough for Blue Jackets**\
+`Columbus mixed up its lines Saturday night in an attempt to give its biggest offensive stars some help, but it still wasn't enough.`\
+https://nytimes.com/athletic/6790906/2025/11/09/blue-jackets-lose-kirill-marchenko-dmitri-voronkov/
 
-**‘I’m a hockey player’: Mason Lohrei and the anger behind 5 straight scratches**\
-`Lohrei returned to the lineup against the Maple Leafs and made an impact in Boston's 5-3 win Saturday.`\
-https://nytimes.com/athletic/6790831/2025/11/09/bruins-maple-leafs-mason-lohrei-scratched/
+**Senators notebook: How players adjust to fourth-line rotations, the PK and more**\
+`Also, how do Jordan Spence's defensive rankings compare to his teammates? And a look at improvements on the penalty kill.`\
+https://nytimes.com/athletic/6790070/2025/11/09/sens-notebook-fourth-line-adjustments-pk/
 
-**The Aesthetic That Won New York City**\
-`Zohran Mamdani made the city glow, bringing a beauty to the everyday fixtures we ceased to register.`\
-https://nytimes.com/2025/11/09/opinion/zorhan-mamdani-aesthetic-new-york.html
+**Why Packers are sticking with kicker Brandon McManus through misses and injury**\
+`McManus missed only two field goals last season, but he's already missed four (that weren't blocked) in 2025.`\
+https://nytimes.com/athletic/6790352/2025/11/09/why-packers-are-sticking-with-kicker-brandon-mcmanus-through-misses-and-injury/
 
-**Cruelty, Bigotry and Rage. What’s Not to Like?**\
-`This is what happens when the fringe becomes the mainstream (and vice versa).`\
-https://nytimes.com/2025/11/09/opinion/right-wing-america-politics-culture.html
+**Canadiens show ability to collect points while working on their imperfections**\
+`Montreal once had to be perfect to come out of game with points.That they no longer do may be their biggest sign of growth.`\
+https://nytimes.com/athletic/6791093/2025/11/09/canadiens-mammoth-win-imperfections/
 
-**Jayden Daniels football card hype starts to wane, but is it just temporary?**\
-`After a magical rookie campaign, Daniels' card prices are on the decline, drawing comparisons to Stroud`\
-https://nytimes.com/athletic/6790670/2025/11/09/jayden-daniels-card-prices-commanders/
+**'I feel I have more in me': The path to 1,000 games for Wild's Marcus Johansson**\
+`Johansson will enter the 1,000th game of his NHL career when the Wild host the Flames on Sunday with an eight-game point streak.`\
+https://nytimes.com/athletic/6788352/2025/11/09/wild-marcus-johansson-1000-nhl-games/
 
-**Strands Sidekick No. 617**\
-`Scroll down for hints and conversation about the puzzle for Monday, Nov. 10, 2025.`\
-https://nytimes.com/2025/11/09/crosswords/strands-sidekick-617.html
+**WATCH: How Ravens' Kyle Hamilton has become one of most versatile NFL defenders**\
+`Few guys are asked to play more roles for their teams than Hamilton, who’s lined up all over the field throughout his young career.`\
+https://nytimes.com/athletic/6788440/2025/11/09/video-analysis-ravens-kyle-hamilton/
 
-**Connections Companion No. 883**\
-`Scroll down for hints and conversation about the puzzle for Monday, Nov. 10, 2025.`\
-https://nytimes.com/2025/11/09/crosswords/connections-companion-883.html
+**Do you take a GLP-1 for alternative uses? Tell us about it.**\
+`Some semaglutide users experience benefits beyond weight loss. Are you one of them?`\
+https://nytimes.com/2025/11/09/opinion/glp-1-alternative-uses.html
 
