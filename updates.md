@@ -1,3 +1,7 @@
+**'I'm in a lot of pain' - Chelsea's Fernandez to miss Argentina squad with knee injury**\
+`The 24-year-old has revealed he is in "a lot of pain" due to a bone edema in his knee, which he claims he has been feeling for four months.`\
+https://nytimes.com/athletic/6791310/2025/11/09/enzo-fernandez-injury-chelsea-argentina/
+
 **Sabres' season reaches another tipping point with loss to Hurricanes: 4 thoughts**\
 `Despite a third-period comeback attempt, the Sabres lost 6-3 to Carolina on Saturday and are now 1-2-4 in their last seven games.`\
 https://nytimes.com/athletic/6790842/2025/11/09/sabres-hurricanes-loss-season-thompson-tuch/
