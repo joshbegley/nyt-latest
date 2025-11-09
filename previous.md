@@ -1,3 +1,19 @@
+**Mercer-Western Carolina ends in confusion, as both teams initially believed they'd won**\
+`With Saturday's 49-47 win, Mercer clinched the Southern Conference title and an automatic bid in the FCS playoffs.`\
+https://nytimes.com/athletic/6791737/2025/11/09/mercer-western-carolina-confusing-ending/
+
+**How to watch Florida State vs. UConn women's basketball: Time, TV, streaming**\
+`Find out how to watch the Florida State Seminoles play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6791895/2025/11/09/florida-state-vs-uconn-stream-how-to-watch-nov-9/
+
+**How to watch Oral Roberts vs. Oklahoma State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Oral Roberts Golden Eagles play the Oklahoma State Cowgirls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6791893/2025/11/09/oral-roberts-vs-oklahoma-state-stream-how-to-watch-nov-9/
+
+**Infant Formula Recalled Amid Botulism Investigation**\
+`Health agencies asked caregivers to stop using two batches of ByHeart Whole Nutrition Infant Formula after they found an increase in cases of infant botulism.`\
+https://nytimes.com/2025/11/09/health/infant-formula-botulism-byheart.html
+
 **Nottingham Forest 3 Leeds 1 - A Forest revival? Are Leeds in real trouble?**\
 `Leeds United's poor form away from home continued as they suffered a deserved loss to Nottingham Forest`\
 https://nytimes.com/athletic/6787432/2025/11/09/nottingham-forest-leeds-united-result/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/11/09/arts/music/rock-and-roll-hall-of-fame-induction.h
 **Review: A Conductor’s Twist on a Classic Speaks to Freedom Today**\
 `Raphaël Pichon led the Orchestra of St. Luke’s in a take on Beethoven’s Ninth Symphony that, with an added prelude, unfurled as a barrage of ideas.`\
 https://nytimes.com/2025/11/09/arts/music/raphael-pichon-orchestra-st-lukes-beethoven-carnegie-hall-review.html
-
-**SEC vibes rankings: Seven teams in the Playoff, including Vanderbilt?**\
-`Four SEC teams look like near-locks to make the 12-team field. But what about Vanderbilt, Texas and Oklahoma?`\
-https://nytimes.com/athletic/6791702/2025/11/09/sec-football-rankings-week-11-vanderbilt-texas-am-georgia/
-
-**Arctic Blast Is Sweeping East, Bringing First Snow of the Season**\
-`Temperatures 10 to 20 degrees below normal are expected to reach as deep as the South, forecasters said. Snow is likely in the Great Lakes, parts of the Northeast and the Appalachians.`\
-https://nytimes.com/2025/11/09/weather/cold-snow-weather-forecast.html
-
-**College Football Playoff 2025 projections: Texas Tech, Oregon strengthen CFP chances**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/11/09/college-football-playoff-bracket-projections-odds/
-
-**Guehi 'likely' to miss England's November games with foot injury - Glasner**\
-`"He can't even walk at the moment," Palace boss Glasner said on Sunday. "The last two days he is on crutches."`\
-https://nytimes.com/athletic/6791707/2025/11/09/marc-guehi-injury-england/
 
