@@ -1,3 +1,7 @@
+**Wisconsin finds 'spark' in upset of Washington days after decision to keep Luke Fickell**\
+`Luke Fickell said the school's announcement Thursday that he would return “meant something” to his players.`\
+https://nytimes.com/athletic/6790754/2025/11/08/washington-wisconsin-luke-fickell-score-result/
+
 **Lane Kiffin, ESPN's GameDay help couples celebrate their joyous days**\
 `Ole Miss coach nearly regrets his photobomb, and a Texas couple goes viral after rescheduling their wedding to see their Red Raiders.`\
 https://nytimes.com/athletic/6790574/2025/11/08/lane-kiffin-espn-gameday-couples-celebrate/

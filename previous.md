@@ -1,3 +1,7 @@
+**Wisconsin finds 'spark' in upset of Washington days after decision to keep Luke Fickell**\
+`Luke Fickell said the school's announcement Thursday that he would return “meant something” to his players.`\
+https://nytimes.com/athletic/6790754/2025/11/08/washington-wisconsin-luke-fickell-score-result/
+
 **Lane Kiffin, ESPN's GameDay help couples celebrate their joyous days**\
 `Ole Miss coach nearly regrets his photobomb, and a Texas couple goes viral after rescheduling their wedding to see their Red Raiders.`\
 https://nytimes.com/athletic/6790574/2025/11/08/lane-kiffin-espn-gameday-couples-celebrate/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6789978/2025/11/08/gavin-mckenna-penn-state-nhl-dra
 **A Timeline of the Legal Saga Surrounding SNAP Payments**\
 `Weeks of uncertainty during the longest government shutdown in American history have left some states struggling to issue payments to food stamp recipients.`\
 https://nytimes.com/2025/11/08/us/politics/snap-payments-timeline.html
-
-**Oregon vs. Iowa: Ducks cap clutch drive with 39-yard FG to bolster CFP chances**\
-`The Ducks are now 8-0 on the road in the Big Ten since joining the conference.`\
-https://nytimes.com/athletic/6790442/2025/11/08/oregon-iowa-result-score/
 
