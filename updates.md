@@ -1,3 +1,11 @@
+**Montana stays undefeated after Eastern Washington QB fumbles spike**\
+`Redshirt freshman Jake Schakel was nearly the hero but let the ball, and the game, slip out of his grasp in the final seconds.`\
+https://nytimes.com/athletic/6790701/2025/11/08/eastern-washington-quarterback-fumbles-spike/
+
+**Messi, Miami avoid another first-round exit; Updated MLS playoff bracket**\
+`One place in the conference semifinals remains unclaimed after a series of thrilling Game 3s. Here's the full schedule and road to MLS Cup`\
+https://nytimes.com/athletic/6740291/2025/11/08/mls-cup-2025-playoff-bracket-full-postseason-schedule-updated-results/
+
 **Wisconsin finds 'spark' in upset of Washington days after decision to keep Luke Fickell**\
 `Luke Fickell said the school's announcement Thursday that he would return “meant something” to his players.`\
 https://nytimes.com/athletic/6790754/2025/11/08/washington-wisconsin-luke-fickell-score-result/
