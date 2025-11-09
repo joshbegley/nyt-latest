@@ -1,3 +1,7 @@
+**Oregon vs. Iowa: Ducks cap clutch drive with 39-yard FG to bolster CFP chances**\
+`The Ducks are now 8-0 on the road in the Big Ten since joining the conference.`\
+https://nytimes.com/athletic/6790442/2025/11/08/oregon-iowa-result-score/
+
 **Former Prison Psychologist Awarded $16.8 Million Over Ignored Inmate’s Threat**\
 `A California jury found that Beth Fischgrund was wrongfully terminated and defamed after she reported an inmate’s violent threat at Salinas Valley State Prison in California.`\
 https://nytimes.com/2025/11/08/us/california-prison-doctor-awarded-millions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/08/us/politics/newsom-2028-texas-rally-abbott-trump.
 **Heavy Rain Is Expected in California After Spell of Unusually Warm Weather**\
 `Areas across the state could record anywhere from one to five or more inches of rain. The Sierra will get some snow.`\
 https://nytimes.com/2025/11/08/weather/california-weather-heat-rain.html
-
-**YouTube TV will offer $20 credit if dispute with ESPN continues: Source**\
-`The two sides are continuing negotiations, and YouTube TV credits are scheduled to be issued by Wednesday if a deal can't be reached.`\
-https://nytimes.com/athletic/6790310/2025/11/08/espn-youtubetv-credit-negotiations/
 
