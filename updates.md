@@ -1,3 +1,7 @@
+**Lakers' no-show in road trip opener leads to blowout at the hands of the Hawks**\
+`The Lakers saw their five-game win streak come to an end Saturday night after failing to capitalize on a thinned out Atlanta lineup.`\
+https://nytimes.com/athletic/6790803/2025/11/09/luka-doncic-lakers-hawks-results-nba/
+
 **Philippines Braces for Massive Typhoon, Still Reeling From the Last**\
 `Typhoon Fung-wong is heading for the main island of Luzon, causing tens of thousands to be evacuated after another storm killed more than 200 last week.`\
 https://nytimes.com/2025/11/09/world/asia/philippines-typhoon-fung-wong.html
