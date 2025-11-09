@@ -1,3 +1,7 @@
+**Lakers' no-show in road trip opener leads to blowout to short-handed Hawks**\
+`The Lakers saw their five-game win streak come to an end Saturday night after failing to capitalize on a thinned out Atlanta lineup.`\
+https://nytimes.com/athletic/6790803/2025/11/09/luka-doncic-lakers-hawks-results-nba/
+
 **Cavs' De'Andre Hunter breaks Bulls' Josh Giddey's ankles with nasty crossover**\
 `Cleveland forward crosses over the Bulls guard so badly that Giddey rolled his ankle in the Cavs' 128-122 win Saturday night.`\
 https://nytimes.com/athletic/6790963/2025/11/09/deandre-hunter-josh-giddey-cavaliers-bulls-nba/
