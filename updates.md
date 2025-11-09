@@ -1,3 +1,7 @@
+**Nebraska at UCLA: Emmett Johnson, TJ Lateef lead the way as Huskers clinch winning season**\
+`Johnson, who leads all Power 4 backs in rushing, should be in the discussion for All-America honors. `\
+https://nytimes.com/athletic/6790958/2025/11/09/nebraska-ucla-score-result-football/
+
 **Frank is not Nuno, even if the parallels were there on Saturday for Spurs**\
 `Like Nuno Espirito Santo in 2021, Frank was jeered over a substitution against Manchester United - but the circumstances are very different`\
 https://nytimes.com/athletic/6787594/2025/11/09/thomas-frank-nuno-tottenham-spurs/

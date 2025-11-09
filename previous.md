@@ -1,3 +1,7 @@
+**Nebraska at UCLA: Emmett Johnson, TJ Lateef lead the way as Huskers clinch winning season**\
+`Johnson, who leads all Power 4 backs in rushing, should be in the discussion for All-America honors. `\
+https://nytimes.com/athletic/6790958/2025/11/09/nebraska-ucla-score-result-football/
+
 **Frank is not Nuno, even if the parallels were there on Saturday for Spurs**\
 `Like Nuno Espirito Santo in 2021, Frank was jeered over a substitution against Manchester United - but the circumstances are very different`\
 https://nytimes.com/athletic/6787594/2025/11/09/thomas-frank-nuno-tottenham-spurs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6789990/2025/11/09/matthijs-de-ligt-manchester-unit
 **Arsenal, Chelsea and a key title battle? No, again, we need to talk about VAR**\
 `This contest between two of the WSL's best teams ended in a draw but all the talk afterwards was about the contentious decisions`\
 https://nytimes.com/athletic/6789949/2025/11/09/arsenal-chelsea-and-a-key-title-battle-no-again-we-need-to-talk-about-var/
-
-**Spain’s True-Crime Capital Is Fed Up**\
-`A decades-old killing in a tiny village in a northern mountain town has turned the village into a destination for true-crime enthusiasts, creating a headache for remaining residents.`\
-https://nytimes.com/2025/11/09/world/europe/spain-tor-sansa-true-crime-carles-porta.html
 

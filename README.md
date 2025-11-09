@@ -1,3 +1,7 @@
+**Cooper Flagg says Mavs 'haven't had start we've been looking for' after 1st road win**\
+`Through the first 10 games of his career, Cooper Flagg hasn’t had many opportunities to celebrate.`\
+https://nytimes.com/athletic/6791055/2025/11/09/cooper-flagg-mavericks-slow-start-first-road-win/
+
 **Nebraska at UCLA: Emmett Johnson, TJ Lateef lead the way as Huskers clinch winning season**\
 `Johnson, who leads all Power 4 backs in rushing, should be in the discussion for All-America honors. `\
 https://nytimes.com/athletic/6790958/2025/11/09/nebraska-ucla-score-result-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6789684/2025/11/09/manchester-city-liverpool-guardi
 **Matthijs de Ligt: Increasingly important**\
 `United's many conundrums came to the fore at Spurs - their Dutch centre-back is not one of them any longer. He is excelling`\
 https://nytimes.com/athletic/6789990/2025/11/09/matthijs-de-ligt-manchester-united-ruben-amorim/
-
-**Arsenal, Chelsea and a key title battle? No, again, we need to talk about VAR**\
-`This contest between two of the WSL's best teams ended in a draw but all the talk afterwards was about the contentious decisions`\
-https://nytimes.com/athletic/6789949/2025/11/09/arsenal-chelsea-and-a-key-title-battle-no-again-we-need-to-talk-about-var/
 
