@@ -1,3 +1,8 @@
+**'We’ve all got to be better, including the goalie': The Leafs crease is in a precarious position**\
+`Stolarz was pulled due to poor performance for the first time as a Leaf after allowing four goals on 19 shots against the Bruins.
+`\
+https://nytimes.com/athletic/6790866/2025/11/09/maple-leafs-bruins-anthony-stolarz-goalie/
+
 **City vs Liverpool: Can Haaland be stopped? Will Slot stick with recent formula? Chance for Cherki?**\
 `Pep Guardiola's team have not beaten Liverpool since April 2023 - will that change at the Etihad on Sunday? Our writers assess the teams...`\
 https://nytimes.com/athletic/6789684/2025/11/09/manchester-city-liverpool-guardiola-slot-haaland-salah/
