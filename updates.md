@@ -1,3 +1,11 @@
+**Our Restaurant Critics Dish**\
+`Tejal Rao and Ligaya Mishan, the new food critics at The New York Times, answer your questions.`\
+https://nytimes.com/2025/11/08/podcasts/the-daily/restaurant-critics-food.html
+
+**Former NHLer, Senators GM Mel Bridgman dies at 70**\
+`The No. 1 overall pick in the 1975 amateur draft played 977 games over 14 seasons with the Flyers, Flames, Devils, Red Wings and Canucks.`\
+https://nytimes.com/athletic/6790512/2025/11/08/mel-bridgman-nhl-senators-gm-flyers-dies/
+
 **NWSL commissioner on gender eligibility: 'Our policy is our current practice'**\
 `Berman made her first public comments on NWSL gender eligibility rules since a New York Post op-ed stirred controversy around the issue.`\
 https://nytimes.com/athletic/6790121/2025/11/08/nwsl-commissioner-gender-eligibility-policy/

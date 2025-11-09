@@ -1,3 +1,7 @@
+**Former Prison Psychologist Awarded $16.8 Million Over Ignored Inmate’s Threat**\
+`A California jury found that Beth Fischgrund was wrongfully terminated and defamed after she reported an inmate’s violent threat at Salinas Valley State Prison in California.`\
+https://nytimes.com/2025/11/08/us/california-prison-doctor-awarded-millions.html
+
 **Our Restaurant Critics Dish**\
 `Tejal Rao and Ligaya Mishan, the new food critics at The New York Times, answer your questions.`\
 https://nytimes.com/2025/11/08/podcasts/the-daily/restaurant-critics-food.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/08/weather/california-weather-heat-rain.html
 **YouTube TV will offer $20 credit if dispute with ESPN continues: Source**\
 `The two sides are continuing negotiations, and YouTube TV credits are scheduled to be issued by Wednesday if a deal can't be reached.`\
 https://nytimes.com/athletic/6790310/2025/11/08/espn-youtubetv-credit-negotiations/
-
-**The Briefing: Chelsea 3 Wolves 0 - Gusto's goal, coping with low blocks and should Estevao start?**\
-`Cerys Jones and Simon Jones analyse the key talking points from Chelsea's victory over rock-bottom Wolves`\
-https://nytimes.com/athletic/6784512/2025/11/08/chelsea-wolves-analysis-malo-gusto/
 
