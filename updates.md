@@ -1,3 +1,11 @@
+**White House Discussed Naming New Washington Commanders Stadium After Trump**\
+`President Trump made the “rebuilding of the new stadium possible,” according to Karoline Leavitt, the White House press secretary. But it was unclear what role he has had in the project.`\
+https://nytimes.com/2025/11/09/us/politics/trump-washington-commanders.html
+
+**Hochul Raises Doubts About Mamdani’s Free Bus Proposal**\
+`Gov. Kathy Hochul of New York said she had concerns about Mayor-elect Zohran Mamdani’s plan to make New York City buses free. She supports his proposal for universal child care.`\
+https://nytimes.com/2025/11/09/nyregion/hochul-mamdani-free-buses.html
+
 **Ripping packs and shooting hoops: How sports card shops are evolving**\
 `Sports card shops are starting to look more like mini-museums with a focus on the experience and building communities`\
 https://nytimes.com/athletic/6792148/2025/11/09/trace-n-chase-sports-card-shops/

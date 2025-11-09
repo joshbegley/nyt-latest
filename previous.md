@@ -1,3 +1,11 @@
+**White House Discussed Naming New Washington Commanders Stadium After Trump**\
+`President Trump made the “rebuilding of the new stadium possible,” according to Karoline Leavitt, the White House press secretary. But it was unclear what role he has had in the project.`\
+https://nytimes.com/2025/11/09/us/politics/trump-washington-commanders.html
+
+**Hochul Raises Doubts About Mamdani’s Free Bus Proposal**\
+`Gov. Kathy Hochul of New York said she had concerns about Mayor-elect Zohran Mamdani’s plan to make New York City buses free. She supports his proposal for universal child care.`\
+https://nytimes.com/2025/11/09/nyregion/hochul-mamdani-free-buses.html
+
 **Ripping packs and shooting hoops: How sports card shops are evolving**\
 `Sports card shops are starting to look more like mini-museums with a focus on the experience and building communities`\
 https://nytimes.com/athletic/6792148/2025/11/09/trace-n-chase-sports-card-shops/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6792279/2025/11/09/timberwolves-vs-kings-stream-how
 **Brazilian GP: Submit your questions for our F1 mailbag**\
 `What questions do you have for our F1 writers? `\
 https://nytimes.com/athletic/6792272/2025/11/09/brazilian-gp-f1-mailbag/
-
-**Guardians' Clase, Ortiz indicted on charges tied to illegal sports betting**\
-`Ortiz was arrested Sunday in Boston and will appear in court Monday. Clase was not in custody as of early Sunday afternoon.`\
-https://nytimes.com/athletic/6792150/2025/11/09/guardians-pitchers-sports-betting-scandal-mlb-clase-ortiz/
-
-**AP Top 25: Ohio State extends No. 1 streak; Indiana stays ahead of Texas A&M**\
-`Ohio State, Indiana, Texas A&M, Alabama and Georgia remain atop the AP Top 25 poll, while Ole Miss jumped ahead of Oregon at No. 6.`\
-https://nytimes.com/athletic/6792092/2025/11/09/ap-top-25-osu-indiana-texas-am/
 
