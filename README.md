@@ -1,3 +1,15 @@
+**Falcons-Colts takeaways: Jonathan Taylor's 3 TD day bolsters MVP campaign in Germany**\
+`The victory came nearly one year to the day after Daniel Jones made his final start with the New York Giants in Munich.`\
+https://nytimes.com/athletic/6791776/2025/11/09/falcons-colts-score-result-takeaways-nfl-berlin-germany/
+
+**The Pulse: An all-time catch**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6791062/2025/11/09/was-the-catch-that-kept-indiana-undefeated-the-best-ever/
+
+**Referees botch overtime coin toss in Falcons-Colts game in Berlin, have to re-flip**\
+`Referee Clete Blakeman mistakenly asked the Colts to call the coin toss, despite Indianapolis being the designated home team.`\
+https://nytimes.com/athletic/6792050/2025/11/09/overtime-coin-toss-botched-colts-falcons-berlin/
+
 **Powerful Tornado Leaves Trail of Destruction in Southern Brazil**\
 `The Brazilian authorities said several towns in the state of Paraná were struck by the tornado, which killed at least five people.`\
 https://nytimes.com/video/world/americas/100000010514057/brazil-deadly-tornado-weather.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6791803/2025/11/09/micah-parsons-trade-poison-pill-
 **As Aquifers Dry Up, Tehran Rations Water and Calls for Rain Prayers**\
 `Facing Iran’s worst drought in 60 years, the country’s president warned that the capital might need to be evacuated, and some locals promoted cloud-theft conspiracy theories.`\
 https://nytimes.com/2025/11/09/world/middleeast/iran-water-rationing-drought.html
-
-**How to watch Nets vs. Knicks: Time, TV, streaming**\
-`Find out how to watch the Brooklyn Nets play the New York Knicks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6791924/2025/11/09/nets-vs-knicks-stream-how-to-watch-nov-9/
-
-**How to watch Kraken vs. Stars: Time, TV, streaming**\
-`Find out how to watch the Seattle Kraken play the Dallas Stars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6791921/2025/11/09/kraken-vs-stars-stream-how-to-watch-nov-9/
-
-**How to watch Thunder vs. Grizzlies: Time, TV, streaming**\
-`Find out how to watch the Oklahoma City Thunder play the Memphis Grizzlies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6791919/2025/11/09/thunder-vs-grizzlies-stream-how-to-watch-nov-9/
 
