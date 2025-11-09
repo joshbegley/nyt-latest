@@ -1,3 +1,7 @@
+**Japan Issues Tsunami Advisory After Strong Earthquake Off Its Coast**\
+`A tsunami was expected to come ashore with a maximum height of about three feet after a 6.7-magnitude quake struck off Japan’s coast early Sunday evening.`\
+https://nytimes.com/2025/11/09/world/asia/earthquake-japan-tsunami-warning.html
+
 **England are developing a 'heat-proof' plan to help them win the World Cup**\
 `England assistant Anthony Barry explains how Thomas Tuchel and his staff aim to cope with anticipated scorching conditions next summer`\
 https://nytimes.com/athletic/6787015/2025/11/09/anthony-barry-england-world-cup-heat/
