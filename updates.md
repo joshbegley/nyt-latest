@@ -1,3 +1,11 @@
+**Cavan Sullivan's panenka lifts U.S. U-17s past Tajikistan at FIFA U-17 World Cup**\
+`Sullivan chipped his 61st-minute penalty down the middle of the goal to give the U.S. a lead that held on for the final result. `\
+https://nytimes.com/athletic/6790633/2025/11/08/cavan-sullivan-usmnt-panenka-u17-world-cup/
+
+**College Football Playoff 2025 projections: Texas Tech, Oregon strength CFP chances**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/08/college-football-playoff-bracket-projections-odds/
+
 **What's the best college football catch you've ever seen?**\
 `Indiana's Omar Cooper Jr. made a case for best catch ever with toe tap to beat Penn State. These are our college football staff's favorites.`\
 https://nytimes.com/athletic/6790296/2025/11/08/college-football-best-catches-ever-omar-cooper-indiana/
