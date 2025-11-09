@@ -1,3 +1,11 @@
+**Notre Dame blows out Navy as offense hums, defense holds option in check**\
+`The Fighting Irish again look like a team good enough to host a CFP game in December.`\
+https://nytimes.com/athletic/6790777/2025/11/08/notre-dame-blows-out-navy-a-return-to-form-and-another-wild-jeremiyah-love-highlight/
+
+**College Football Playoff 2025 projections: Texas Tech, Oregon strengthen CFP chances**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/08/college-football-playoff-bracket-projections-odds/
+
 **Montana stays undefeated after Eastern Washington QB fumbles spike**\
 `Redshirt freshman Jake Schakel was nearly the hero but let the ball, and the game, slip out of his grasp in the final seconds.`\
 https://nytimes.com/athletic/6790701/2025/11/08/eastern-washington-quarterback-fumbles-spike/
