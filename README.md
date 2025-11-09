@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6791915/2025/11/09/mammoth-vs-senators-stream-how-t
 `Find out how to watch the Carolina Hurricanes play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6791913/2025/11/09/hurricanes-vs-maple-leafs-stream-how-to-watch-nov-9/
 
-**Mercer-Western Carolina ends in confusion, as both teams initially believed they'd won**\
+**Confused W. Carolina fans storm field, kicker hoisted despite missed FG in loss**\
 `With Saturday's 49-47 win, Mercer clinched the Southern Conference title and an automatic bid in the FCS playoffs.`\
 https://nytimes.com/athletic/6791737/2025/11/09/mercer-western-carolina-confusing-ending/
 
