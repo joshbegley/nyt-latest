@@ -1,3 +1,11 @@
+**Lowetide: Oilers minor-league forwards and their throwback comparables**\
+`Is there historical precedent for any of the current Condors forwards to project as future NHL players?`\
+https://nytimes.com/athletic/6789804/2025/11/09/edmonton-oilers-ahl-forwards-comparables/
+
+**Old-Fashioned Beef Stew Never Gets Old**\
+`Five stars and over 27,000 reviews later, Molly O’Neill’s classic recipe still soothes, charms and comforts.`\
+https://nytimes.com/2025/11/09/dining/five-star-beef-stew-recipe.html
+
 **Outkast, the White Stripes and Cyndi Lauper Join the Rock Hall**\
 `Gen X celebrated its heroes at the ceremony, where Soundgarden and Salt-N-Pepa were honored alongside Chubby Checker, Bad Company, Joe Cocker and Warren Zevon.`\
 https://nytimes.com/2025/11/09/arts/music/rock-and-roll-hall-of-fame-induction.html

@@ -1,3 +1,11 @@
+**Lowetide: Oilers minor-league forwards and their throwback comparables**\
+`Is there historical precedent for any of the current Condors forwards to project as future NHL players?`\
+https://nytimes.com/athletic/6789804/2025/11/09/edmonton-oilers-ahl-forwards-comparables/
+
+**Old-Fashioned Beef Stew Never Gets Old**\
+`Five stars and over 27,000 reviews later, Molly O’Neill’s classic recipe still soothes, charms and comforts.`\
+https://nytimes.com/2025/11/09/dining/five-star-beef-stew-recipe.html
+
 **Outkast, the White Stripes and Cyndi Lauper Join the Rock Hall**\
 `Gen X celebrated its heroes at the ceremony, where Soundgarden and Salt-N-Pepa were honored alongside Chubby Checker, Bad Company, Joe Cocker and Warren Zevon.`\
 https://nytimes.com/2025/11/09/arts/music/rock-and-roll-hall-of-fame-induction.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6791082/2025/11/09/college-football-playoff-bracket
 **Spirit's mental preparation for the 'unpredictable' helped secure another dramatic playoff win**\
 `Resiliency is proving to be the Spirit's strong suit. The team has won five extra time playoff games in four years.`\
 https://nytimes.com/athletic/6790558/2025/11/09/washington-spirit-nwsl-playoff-mental-victory/
-
-**Trump Administration Demands States ‘Undo’ Work to Send Full Food Stamps**\
-`In late-night guidance, the Agriculture Department also threatened financial penalties against states.`\
-https://nytimes.com/2025/11/09/business/trump-administration-states-undo-full-snap-food-stamps.html
-
-**Trump Administration Live Updates: Officials Demand States ‘Undo’ Work to Send Full Food Stamps**\
-``\
-https://nytimes.com/live/2025/11/09/us/trump-news
 
