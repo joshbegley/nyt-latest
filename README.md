@@ -1,3 +1,7 @@
+**Arkansas forward Trevon Brazile apologizes after hitting fan with towel**\
+`The 22-year-old posted a message on his Instagram story Sunday morning.`\
+https://nytimes.com/athletic/6792822/2025/11/09/arkansas-forward-trevon-brazil-apology-fan-hit-towel/
+
 **Atlanta lands NWSL expansion franchise backed by Arthur Blank for record $165 million: Sources**\
 `The team will be the 17th in NWSL and operated by Blank’s AMB Sports + Entertainment.`\
 https://nytimes.com/athletic/6792758/2025/11/09/atlanta-nwsl-expansion-arthur-blank/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6792525/2025/11/09/donald-trump-booed-cheered-comma
 **Safety Officer or Administration Messenger? Sean Duffy Juggles Roles in Shutdown.**\
 `With near-daily TV appearances, the transportation secretary has emerged as the face of the Trump administration amid the shutdown.`\
 https://nytimes.com/2025/11/09/us/politics/duffy-faa-air-travel-shutdown.html
-
-**Browns-Jets takeaways: Special teams lifts New York to second win of 2025**\
-`The Jets' special teams unit became the first to score first-quarter touchdowns on a kickoff and punt return since 2007.`\
-https://nytimes.com/athletic/6792037/2025/11/09/browns-jets-score-result-takeaways/
 
