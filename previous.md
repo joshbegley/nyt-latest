@@ -1,3 +1,15 @@
+**The New York Times in Print for Sunday, Nov. 9, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/09/todays-new-york-times
+
+**America Is Losing the Fight for the Teenagers of the World**\
+`Pop culture exports have long been a potent source of American soft power. What happens when the U.S. is no longer the global capital of cool?`\
+https://nytimes.com/2025/11/09/opinion/america-pop-culture-cool.html
+
+**Cooper Flagg acknowledges Mavs' slow start after 1st road win**\
+`Through the first 10 games of his career, Cooper Flagg hasn’t had many opportunities to celebrate.`\
+https://nytimes.com/athletic/6791055/2025/11/09/cooper-flagg-mavericks-slow-start-first-road-win/
+
 **Nebraska at UCLA: Emmett Johnson, TJ Lateef lead the way as Huskers clinch winning season**\
 `Johnson, who leads all Power 4 backs in rushing, should be in the discussion for All-America honors. `\
 https://nytimes.com/athletic/6790958/2025/11/09/nebraska-ucla-score-result-football/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6789754/2025/11/09/joey-barton-court-social-media/
 **Messi, Miami kick-start MLS Cup quest, rout Nashville in playoff decider**\
 `Lionel Messi's early goal set the tone for a decisive first-round knockout, with Miami's star influential in more ways than one in a 4-0 win`\
 https://nytimes.com/athletic/6790913/2025/11/09/inter-miami-nashville-sc-mls-cup-playoffs-messi/
-
-**City vs Liverpool: Can Haaland be stopped? Will Slot stick with recent formula? Chance for Cherki?**\
-`Pep Guardiola's team have not beaten Liverpool since April 2023 - will that change at the Etihad on Sunday? Our writers assess the teams...`\
-https://nytimes.com/athletic/6789684/2025/11/09/manchester-city-liverpool-guardiola-slot-haaland-salah/
-
-**Matthijs de Ligt: Increasingly important**\
-`United's many conundrums came to the fore at Spurs - their Dutch centre-back is not one of them any longer. He is excelling`\
-https://nytimes.com/athletic/6789990/2025/11/09/matthijs-de-ligt-manchester-united-ruben-amorim/
-
-**Arsenal, Chelsea and a key title battle? No, again, we need to talk about VAR**\
-`This contest between two of the WSL's best teams ended in a draw but all the talk afterwards was about the contentious decisions`\
-https://nytimes.com/athletic/6789949/2025/11/09/arsenal-chelsea-and-a-key-title-battle-no-again-we-need-to-talk-about-var/
 
