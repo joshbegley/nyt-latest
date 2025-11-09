@@ -1,3 +1,15 @@
+**How to watch Holy Cross vs. Duke women's basketball: Time, TV, streaming**\
+`Find out how to watch the Holy Cross Crusaders play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6791299/2025/11/09/holy-cross-vs-duke-stream-how-to-watch-nov-9/
+
+**How to watch Georgetown vs. Maryland women's basketball: Time, TV, streaming**\
+`Find out how to watch the Georgetown Hoyas play the Maryland Terrapins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6791297/2025/11/09/georgetown-vs-maryland-stream-how-to-watch-nov-9/
+
+**How to watch Harvard vs. Michigan women's basketball: Time, TV, streaming**\
+`Find out how to watch the Harvard Crimson play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6791295/2025/11/09/harvard-vs-michigan-stream-how-to-watch-nov-9/
+
 **How to watch Manchester City vs. Liverpool from the U.S.: Pep reaches 1K milestone**\
 `City manager Pep Guardiola will reach the 1,000th match milestone Sunday against rival Liverpool.`\
 https://nytimes.com/athletic/6785473/2025/11/09/manchester-city-liverpool-pep-guardiola-how-to-watch-us/
