@@ -1,3 +1,7 @@
+**What to know about the NFL's first Berlin game: Falcons and Colts meet in Germany**\
+`The NFL's next international game goes down Sunday morning, when the first-place Indianapolis Colts link with the mercurial Atlanta Falcons.`\
+https://nytimes.com/athletic/6787759/2025/11/09/falcons-colts-nfl-international-berlin-how-to-watch/
+
 **Mamdani, Mofongo and Rum: Democratic Squabbles Fade Away, for Now**\
 `At an annual gathering in Puerto Rico for New York’s political class, former foes of Zohran Mamdani put aside their differences and tried to get information about his inner circle.`\
 https://nytimes.com/2025/11/09/nyregion/mamdani-somos-puerto-rico.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6790523/2025/11/09/wolves-manager-rob-edwards-releg
 **Lakers' no-show in road trip opener leads to blowout to short-handed Hawks**\
 `The Lakers saw their five-game win streak come to an end Saturday night after failing to capitalize on a thinned out Atlanta lineup.`\
 https://nytimes.com/athletic/6790803/2025/11/09/luka-doncic-lakers-hawks-results-nba/
-
-**Philippines Braces for Massive Typhoon, Still Reeling From the Last**\
-`Typhoon Fung-wong is heading for the main island of Luzon, causing tens of thousands to be evacuated after another storm killed more than 200 last week.`\
-https://nytimes.com/2025/11/09/world/asia/philippines-typhoon-fung-wong.html
 
