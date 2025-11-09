@@ -1,3 +1,7 @@
+**What's the best college football catch you've ever seen?**\
+`Indiana's Omar Cooper Jr. made a case for best catch ever with toe tap to beat Penn State. These are our college football staff's favorites.`\
+https://nytimes.com/athletic/6790296/2025/11/08/college-football-best-catches-ever-omar-cooper-indiana/
+
 **What to make of Gavin McKenna’s start at Penn State? It’s complicated**\
 `The top prospect in the 2026 NHL Draft and biggest name in college hockey is being tested and scrutinized.`\
 https://nytimes.com/athletic/6789978/2025/11/08/gavin-mckenna-penn-state-nhl-draft-2026/
