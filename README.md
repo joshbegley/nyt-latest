@@ -1,3 +1,7 @@
+**Lakers' no-show in road trip opener leads to blowout at the hands of the Hawks**\
+`The Lakers saw their five-game win streak come to an end Saturday night after failing to capitalize on a thinned out Atlanta lineup.`\
+https://nytimes.com/athletic/6790803/2025/11/09/luka-doncic-lakers-hawks-results-nba/
+
 **Philippines Braces for Massive Typhoon, Still Reeling From the Last**\
 `Typhoon Fung-wong is heading for the main island of Luzon, causing tens of thousands to be evacuated after another storm killed more than 200 last week.`\
 https://nytimes.com/2025/11/09/world/asia/philippines-typhoon-fung-wong.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6787594/2025/11/09/thomas-frank-nuno-tottenham-spur
 **Inigo Perez interview: The ideas and ambition behind Rayo Vallecano's impressive coach**\
 `Rayo's 37-year-old leader is yet another young, highly-rated Spanish coach from the Basque Country with big ambitions`\
 https://nytimes.com/athletic/6773181/2025/11/09/inigo-perez-la-liga-rayo-iraola-interview/
-
-**Arsenal have two weeks to rest and regroup. The break comes at the perfect time**\
-`The draw at Sunderland showed that Mikel Arteta's squad is being stretched thin. The international window will suit the manager`\
-https://nytimes.com/athletic/6790358/2025/11/09/arsenal-sunderland-mikel-arteta/
 
