@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6790070/2025/11/09/sens-notebook-fourth-line-adjust
 https://nytimes.com/athletic/6790352/2025/11/09/why-packers-are-sticking-with-kicker-brandon-mcmanus-through-misses-and-injury/
 
 **Canadiens show ability to collect points while working on their imperfections**\
-`Montreal once had to be perfect to come out of game with points.That they no longer do may be their biggest sign of growth.`\
+`Montreal once had to be perfect to come out of game with points. That they no longer do may be their biggest sign of growth.`\
 https://nytimes.com/athletic/6791093/2025/11/09/canadiens-mammoth-win-imperfections/
 
 **'I feel I have more in me': The path to 1,000 games for Wild's Marcus Johansson**\
