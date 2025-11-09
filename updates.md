@@ -1,3 +1,11 @@
+**Messi meets the moment with pressure turned up on his MLS venture in Miami**\
+`A year after an infamous playoff debacle, Inter Miami is advancing – thanks, of course, to the work of its self-aware maestro`\
+https://nytimes.com/athletic/6790819/2025/11/08/lionel-messi-mls-cup-playoffs-inter-miami-nashville-game-3/
+
+**ACC chaos reigns: 4-way tie at 5-1 after Wake upsets Virginia, Cal knocks off Louisville in OT**\
+`Saturday’s results create a logjam of five teams with one conference loss: Virginia, Georgia Tech, Pitt, SMU and Duke.`\
+https://nytimes.com/athletic/6790769/2025/11/08/acc-football-wake-forest-virginia-louisville-cal/
+
 **Notre Dame blows out Navy as offense hums, defense holds option in check**\
 `The Fighting Irish again look like a team good enough to host a CFP game in December.`\
 https://nytimes.com/athletic/6790777/2025/11/08/notre-dame-blows-out-navy-a-return-to-form-and-another-wild-jeremiyah-love-highlight/
