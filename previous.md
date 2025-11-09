@@ -1,3 +1,35 @@
+**What to know about the NFL's first Berlin game: Falcons and Colts meet in Germany**\
+`The NFL's next international game goes down Sunday morning, when the first-place Indianapolis Colts link with the mercurial Atlanta Falcons.`\
+https://nytimes.com/athletic/6787759/2025/11/09/falcons-colts-nfl-international-berlin-how-to-watch/
+
+**Mamdani, Mofongo and Rum: Democratic Squabbles Fade Away, for Now**\
+`At an annual gathering in Puerto Rico for New York’s political class, former foes of Zohran Mamdani put aside their differences and tried to get information about his inner circle.`\
+https://nytimes.com/2025/11/09/nyregion/mamdani-somos-puerto-rico.html
+
+**Lose Something? The Times Is at Your Service.**\
+`The newspaper once helped people recover valuable possessions that had gone missing.`\
+https://nytimes.com/2025/11/09/insider/lost-items.html
+
+**With a Mayor From Queens, the Borough Is Having a Moment**\
+`When Zohran Mamdani is sworn in as New York City’s 111th mayor, he will be the first with such an intimate connection to Queens.`\
+https://nytimes.com/2025/11/09/nyregion/mamdani-queens-mayor.html
+
+**Israeli Academics Find Themselves Isolated Despite Gaza Cease-Fire**\
+`Boycotts of Israeli universities, largely imposed in Europe, have multiplied since the start of the war and reflect Israel’s international isolation over its conduct in Gaza.`\
+https://nytimes.com/2025/11/09/world/middleeast/boycotts-israel.html
+
+**‘He Didn’t Know My Name, and I Didn’t Know His’**\
+`An uncanny long-range shooter, a conversation observed on the 6 and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/11/09/nyregion/metropolitan-diary.html
+
+**Can You Stare at a Work of Art for 10 Minutes?**\
+`A year and a half ago, a team of Times journalists had a simple ask: Look — really look — at a work of art for 10 minutes. The response has blown them away.`\
+https://nytimes.com/2025/11/09/insider/10-minute-challenge.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/09/crosswords/spelling-bee-forum.html
+
 **The lengthy list of problems Edwards must try to solve at Molineux**\
 `No team with two points or fewer at this stage of a Premier League season has survived. Good luck to Wolves' next manager `\
 https://nytimes.com/athletic/6790523/2025/11/09/wolves-manager-rob-edwards-relegation-fight/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6790523/2025/11/09/wolves-manager-rob-edwards-releg
 **Lakers' no-show in road trip opener leads to blowout to short-handed Hawks**\
 `The Lakers saw their five-game win streak come to an end Saturday night after failing to capitalize on a thinned out Atlanta lineup.`\
 https://nytimes.com/athletic/6790803/2025/11/09/luka-doncic-lakers-hawks-results-nba/
-
-**Philippines Braces for Massive Typhoon, Still Reeling From the Last**\
-`Typhoon Fung-wong is heading for the main island of Luzon, causing tens of thousands to be evacuated after another storm killed more than 200 last week.`\
-https://nytimes.com/2025/11/09/world/asia/philippines-typhoon-fung-wong.html
-
-**Cavs' De'Andre Hunter breaks Bulls' Josh Giddey's ankles with nasty crossover**\
-`Cleveland forward crosses over the Bulls guard so badly that Giddey rolled his ankle in the Cavs' 128-122 win Saturday night.`\
-https://nytimes.com/athletic/6790963/2025/11/09/deandre-hunter-josh-giddey-cavaliers-bulls-nba/
-
-**China Suspends Export Controls on More Critical Minerals**\
-`The changes would make it easier for American firms to obtain key minerals, delivering on what the White House said the two countries had agreed to at last month’s summit.`\
-https://nytimes.com/2025/11/09/business/china-suspends-export-controls.html
-
-**The New York Times in Print for Sunday, Nov. 9, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/11/09/todays-new-york-times
-
-**America Is Losing the Fight for the Teenagers of the World**\
-`Pop culture exports have long been a potent source of American soft power. What happens when the U.S. is no longer the global capital of cool?`\
-https://nytimes.com/2025/11/09/opinion/america-pop-culture-cool.html
-
-**Cooper Flagg acknowledges Mavericks' slow start after first road win**\
-`Through the first 10 games of his career, Cooper Flagg hasn’t had many opportunities to celebrate.`\
-https://nytimes.com/athletic/6791055/2025/11/09/cooper-flagg-mavericks-slow-start-first-road-win/
-
-**Emmett Johnson, TJ Lateef help Nebraska clinch second straight winning season**\
-`Johnson, who leads all Power 4 backs in rushing, should be in the discussion for All-America honors. `\
-https://nytimes.com/athletic/6790958/2025/11/09/nebraska-ucla-score-result-football/
-
-**Frank is not Nuno, even if the parallels were there on Saturday for Spurs**\
-`Like Nuno Espirito Santo in 2021, Frank was jeered over a substitution against Manchester United - but the circumstances are very different`\
-https://nytimes.com/athletic/6787594/2025/11/09/thomas-frank-nuno-tottenham-spurs/
 
