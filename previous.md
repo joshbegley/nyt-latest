@@ -1,3 +1,7 @@
+**Philippines Braces for Massive Typhoon, Still Reeling From the Last**\
+`Typhoon Fung-wong is heading for the main island of Luzon, causing tens of thousands to be evacuated after another storm killed more than 200 last week.`\
+https://nytimes.com/2025/11/09/world/asia/philippines-typhoon-fung-wong.html
+
 **Cavs' De'Andre Hunter breaks Bulls' Josh Giddey's ankles with nasty crossover**\
 `Hunter crossed over Chicago Bulls guard Josh Giddey so bad that Giddey hurt his ankle in Cleveland's 128-122 win Saturday night.`\
 https://nytimes.com/athletic/6790963/2025/11/09/deandre-hunter-josh-giddey-cavaliers-bulls-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6773181/2025/11/09/inigo-perez-la-liga-rayo-iraola-
 **Arsenal have two weeks to rest and regroup. The break comes at the perfect time**\
 `The draw at Sunderland showed that Mikel Arteta's squad is being stretched thin. The international window will suit the manager`\
 https://nytimes.com/athletic/6790358/2025/11/09/arsenal-sunderland-mikel-arteta/
-
-**Illegal streaming: Research reveals rise in piracy and desire for scrapping of 3pm blackout**\
-`A new audio documentary from The Athletic reveals the data behind the growing use of illegal streams to watch Premier League football`\
-https://nytimes.com/athletic/6742752/2025/11/09/illegal-streaming-poll-results/
 

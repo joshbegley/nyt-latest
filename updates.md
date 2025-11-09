@@ -1,3 +1,7 @@
+**Philippines Braces for Massive Typhoon, Still Reeling From the Last**\
+`Typhoon Fung-wong is heading for the main island of Luzon, causing tens of thousands to be evacuated after another storm killed more than 200 last week.`\
+https://nytimes.com/2025/11/09/world/asia/philippines-typhoon-fung-wong.html
+
 **Cavs' De'Andre Hunter breaks Bulls' Josh Giddey's ankles with nasty crossover**\
 `Hunter crossed over Chicago Bulls guard Josh Giddey so bad that Giddey hurt his ankle in Cleveland's 128-122 win Saturday night.`\
 https://nytimes.com/athletic/6790963/2025/11/09/deandre-hunter-josh-giddey-cavaliers-bulls-nba/
