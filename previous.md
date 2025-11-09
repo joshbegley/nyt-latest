@@ -1,3 +1,11 @@
+**Lewis Hamilton calls first Ferrari season 'a nightmare' after dismal Brazilian GP**\
+`The British driver retired after contact and wing damage, stretching his wait for a first Ferrari grand prix podium`\
+https://nytimes.com/athletic/6792480/2025/11/09/lewis-hamilton-ferrari-nightmare-season-brazilian-gp/
+
+**Tackling Climate Change Without the U.S.**\
+`This year’s U.N. climate talks are being held in Brazil and, so far, they’ve been noteworthy for who isn’t attending.`\
+https://nytimes.com/2025/11/09/world/climate-change-un-philippines-typhoon-bbc.html
+
 **Giants' Jaxson Dart ruled out vs. Bears with concussion**\
 `Russell Wilson has replaced the rookie Dart after he left the game at the start of the fourth quarter.`\
 https://nytimes.com/athletic/6792425/2025/11/09/jaxson-dart-injury-concussion-giants/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6792288/2025/11/09/pistons-vs-76ers-stream-how-to-w
 **How to watch Pacers vs. Warriors: Time, TV, streaming**\
 `Find out how to watch the Indiana Pacers play the Golden State Warriors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6792286/2025/11/09/pacers-vs-warriors-stream-how-to-watch-nov-9/
-
-**How to watch Flames vs. Wild: Time, TV, streaming**\
-`Find out how to watch the Calgary Flames play the Minnesota Wild, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6792284/2025/11/09/flames-vs-wild-stream-how-to-watch-nov-9/
-
-**How to watch Avalanche vs. Canucks: Time, TV, streaming**\
-`Find out how to watch the Colorado Avalanche play the Vancouver Canucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6792282/2025/11/09/avalanche-vs-canucks-stream-how-to-watch-nov-9/
 

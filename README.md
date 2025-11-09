@@ -1,3 +1,7 @@
+**Michelle Obama Criticizes Trump’s East Wing Demolition**\
+`The president’s ballroom project will transform one of the most recognizable buildings in the world and could nearly double its size.`\
+https://nytimes.com/2025/11/09/us/politics/michelle-obama-east-wing.html
+
 **Lewis Hamilton calls first Ferrari season 'a nightmare' after dismal Brazilian GP**\
 `The British driver retired after contact and wing damage, stretching his wait for a first Ferrari grand prix podium`\
 https://nytimes.com/athletic/6792480/2025/11/09/lewis-hamilton-ferrari-nightmare-season-brazilian-gp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6792290/2025/11/09/jets-vs-ducks-stream-how-to-watc
 **How to watch Pistons vs. 76ers: Time, TV, streaming**\
 `Find out how to watch the Detroit Pistons play the Philadelphia 76ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6792288/2025/11/09/pistons-vs-76ers-stream-how-to-watch-nov-9/
-
-**How to watch Pacers vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the Indiana Pacers play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6792286/2025/11/09/pacers-vs-warriors-stream-how-to-watch-nov-9/
 
