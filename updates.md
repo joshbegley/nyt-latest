@@ -1,3 +1,7 @@
+**Confused W. Carolina fans storm field, kicker hoisted despite missed FG in loss**\
+`With Saturday's 49-47 win, Mercer clinched the Southern Conference title and an automatic bid in the FCS playoffs.`\
+https://nytimes.com/athletic/6791737/2025/11/09/mercer-western-carolina-confusing-ending/
+
 **How to watch Nets vs. Knicks: Time, TV, streaming**\
 `Find out how to watch the Brooklyn Nets play the New York Knicks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6791924/2025/11/09/nets-vs-knicks-stream-how-to-watch-nov-9/
