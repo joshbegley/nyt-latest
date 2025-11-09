@@ -1,6 +1,6 @@
 **Norris wins, Verstappen fights back, Ferrari nightmare: Brazil Grand Prix briefing**\
 `Lando Norris puts himself in a commanding position in the drivers' championship, while Max Verstappen gives a performance for the ages`\
-https://nytimes.com/athletic/6791965/2025/11/09/brazil-grand-prix-briefing-norris-wins-verstappen-fights-back-ferrari-nightmare/
+https://nytimes.com/athletic/6791965/2025/11/09/f1-brazilian-gp-results/
 
 **A World of Pastries**\
 ``\

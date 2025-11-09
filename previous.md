@@ -1,3 +1,7 @@
+**Norris wins, Verstappen fights back, Ferrari nightmare: Brazil Grand Prix briefing**\
+`Lando Norris puts himself in a commanding position in the drivers' championship, while Max Verstappen gives a performance for the ages`\
+https://nytimes.com/athletic/6791965/2025/11/09/brazil-grand-prix-briefing-norris-wins-verstappen-fights-back-ferrari-nightmare/
+
 **A World of Pastries**\
 ``\
 https://nytimes.com/series/world-of-pastries
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/11/09/us/san-ramon-california-earthquake.ht
 **Trump Renews Attacks on Obamacare in New Push Over Government Shutdown**\
 `The president claimed that the Affordable Care Act benefited insurance companies over people, saying he would work with both parties on the issue “once the Government is open.”`\
 https://nytimes.com/2025/11/09/us/politics/trump-shutdown-obamacare.html
-
-**Former NFL commissioner Paul Tagliabue dies at 84**\
-`In 17 years as commissioner, Tagliabue oversaw a period in which the league expanded geographically and boomed in popularity.`\
-https://nytimes.com/athletic/6792011/2025/11/09/paul-tagliabue-former-nfl-commissioner-obituary/
 
