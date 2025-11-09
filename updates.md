@@ -1,3 +1,11 @@
+**Micah Parsons trade came with 'poison pill' to block future deals: Source**\
+`If the Packers trade Parsons to an NFC East team, Green Bay would have to give the Cowboys its 2028 first-round pick.`\
+https://nytimes.com/athletic/6791803/2025/11/09/micah-parsons-trade-poison-pill-nfc-east/
+
+**As Aquifers Dry Up, Tehran Rations Water and Calls for Rain Prayers**\
+`Facing Iran’s worst drought in 60 years, the country’s president warned that the capital might need to be evacuated, and some locals promoted cloud-theft conspiracy theories.`\
+https://nytimes.com/2025/11/09/world/middleeast/iran-water-rationing-drought.html
+
 **Confused W. Carolina fans storm field, kicker hoisted despite missed FG in loss**\
 `With Saturday's 49-47 win, Mercer clinched the Southern Conference title and an automatic bid in the FCS playoffs.`\
 https://nytimes.com/athletic/6791737/2025/11/09/mercer-western-carolina-confusing-ending/

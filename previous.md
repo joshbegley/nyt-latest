@@ -1,3 +1,11 @@
+**Micah Parsons trade came with 'poison pill' to block future deals: Source**\
+`If the Packers trade Parsons to an NFC East team, Green Bay would have to give the Cowboys its 2028 first-round pick.`\
+https://nytimes.com/athletic/6791803/2025/11/09/micah-parsons-trade-poison-pill-nfc-east/
+
+**As Aquifers Dry Up, Tehran Rations Water and Calls for Rain Prayers**\
+`Facing Iran’s worst drought in 60 years, the country’s president warned that the capital might need to be evacuated, and some locals promoted cloud-theft conspiracy theories.`\
+https://nytimes.com/2025/11/09/world/middleeast/iran-water-rationing-drought.html
+
 **How to watch Nets vs. Knicks: Time, TV, streaming**\
 `Find out how to watch the Brooklyn Nets play the New York Knicks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6791924/2025/11/09/nets-vs-knicks-stream-how-to-watch-nov-9/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6791737/2025/11/09/mercer-western-carolina-confusin
 **How to watch Florida State vs. UConn women's basketball: Time, TV, streaming**\
 `Find out how to watch the Florida State Seminoles play the UConn Huskies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6791895/2025/11/09/florida-state-vs-uconn-stream-how-to-watch-nov-9/
-
-**How to watch Oral Roberts vs. Oklahoma State women's basketball: Time, TV, streaming**\
-`Find out how to watch the Oral Roberts Golden Eagles play the Oklahoma State Cowgirls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6791893/2025/11/09/oral-roberts-vs-oklahoma-state-stream-how-to-watch-nov-9/
-
-**Infant Formula Recalled Amid Botulism Investigation**\
-`Health agencies asked caregivers to stop using two batches of ByHeart Whole Nutrition Infant Formula after they found an increase in cases of infant botulism.`\
-https://nytimes.com/2025/11/09/health/infant-formula-botulism-byheart.html
 
