@@ -1,3 +1,7 @@
+**NFL asks teams to hold moment of silence for Cowboys' Marshawn Kneeland: Source**\
+`Kneeland, who was in his second season with Dallas, died from an apparent self-inflicted gunshot wound early Thursday in Frisco, Texas.`\
+https://nytimes.com/athletic/6790578/2025/11/08/marshawn-kneeland-moment-of-silence-nfl-memo/
+
 **Cavan Sullivan's panenka lifts U.S. U-17s past Tajikistan at FIFA U-17 World Cup**\
 `Sullivan chipped his 61st-minute penalty down the middle of the goal to give the U.S. a lead that held on for the final result. `\
 https://nytimes.com/athletic/6790633/2025/11/08/cavan-sullivan-usmnt-panenka-u17-world-cup/

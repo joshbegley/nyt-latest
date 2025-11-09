@@ -1,3 +1,7 @@
+**NFL asks teams to hold moment of silence for Cowboys' Marshawn Kneeland: Source**\
+`Kneeland, who was in his second season with Dallas, died from an apparent self-inflicted gunshot wound early Thursday in Frisco, Texas.`\
+https://nytimes.com/athletic/6790578/2025/11/08/marshawn-kneeland-moment-of-silence-nfl-memo/
+
 **Cavan Sullivan's panenka lifts U.S. U-17s past Tajikistan at FIFA U-17 World Cup**\
 `Sullivan chipped his 61st-minute penalty down the middle of the goal to give the U.S. a lead that held on for the final result. `\
 https://nytimes.com/athletic/6790633/2025/11/08/cavan-sullivan-usmnt-panenka-u17-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/08/podcasts/the-daily/restaurant-critics-food.html
 **Former NHLer, Senators GM Mel Bridgman dies at 70**\
 `The No. 1 overall pick in the 1975 amateur draft played 977 games over 14 seasons with the Flyers, Flames, Devils, Red Wings and Canucks.`\
 https://nytimes.com/athletic/6790512/2025/11/08/mel-bridgman-nhl-senators-gm-flyers-dies/
-
-**Shots Fired at Border Patrol Agents in Chicago, Federal Officials Say**\
-`No Border Patrol agents were injured in the incident on Saturday as an immigration enforcement campaign continues in the city.`\
-https://nytimes.com/2025/11/08/us/chicago-border-patrol-agents.html
 

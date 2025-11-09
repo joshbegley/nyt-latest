@@ -1,3 +1,7 @@
+**After acknowledging poor offseason, Matvei Michkov may be ready to break out**\
+`Michkov acknowledged that he could have handled his first NHL offseason differently and didn’t show up to camp in good enough shape.`\
+https://nytimes.com/athletic/6790529/2025/11/08/flyers-matvei-michkov-nhl-offseason/
+
 **NFL asks teams to hold moment of silence for Cowboys' Marshawn Kneeland: Source**\
 `Kneeland, who was in his second season with Dallas, died from an apparent self-inflicted gunshot wound early Thursday in Frisco, Texas.`\
 https://nytimes.com/athletic/6790578/2025/11/08/marshawn-kneeland-moment-of-silence-nfl-memo/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/08/us/california-prison-doctor-awarded-millions.html
 **Our Restaurant Critics Dish**\
 `Tejal Rao and Ligaya Mishan, the new food critics at The New York Times, answer your questions.`\
 https://nytimes.com/2025/11/08/podcasts/the-daily/restaurant-critics-food.html
-
-**Former NHLer, Senators GM Mel Bridgman dies at 70**\
-`The No. 1 overall pick in the 1975 amateur draft played 977 games over 14 seasons with the Flyers, Flames, Devils, Red Wings and Canucks.`\
-https://nytimes.com/athletic/6790512/2025/11/08/mel-bridgman-nhl-senators-gm-flyers-dies/
 
