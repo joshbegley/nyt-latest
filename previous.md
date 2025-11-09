@@ -1,3 +1,19 @@
+**Guardians' Clase, Ortiz indicted on charges tied to illegal sports betting**\
+`Ortiz was arrested Sunday in Boston and will appear in court Monday. Clase was not in custody as of early Sunday afternoon.`\
+https://nytimes.com/athletic/6792150/2025/11/09/guardians-pitchers-sports-betting-scandal-mlb-clase-ortiz/
+
+**AP Top 25: Ohio State extends No. 1 streak; Indiana stays ahead of Texas A&M**\
+`Ohio State, Indiana, Texas A&M, Alabama and Georgia remain atop the AP Top 25 poll, while Ole Miss jumped ahead of Oregon at No. 6.`\
+https://nytimes.com/athletic/6792092/2025/11/09/ap-top-25-osu-indiana-texas-am/
+
+**BBC’s Director General and Chief Executive Quit Their Posts**\
+`The abrupt moves followed controversy over claims that a documentary had been edited to suggest that President Trump had encouraged the Capitol Hill riots.`\
+https://nytimes.com/2025/11/09/world/europe/bbc-resignations.html
+
+**How to watch Sam Houston vs. TCU women's basketball: Time, TV, streaming**\
+`Find out how to watch the Sam Houston Bearkats play the TCU Horned Frogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6792261/2025/11/09/sam-houston-vs-tcu-stream-how-to-watch-nov-9/
+
 **2 Major League Baseball Pitchers Are Charged in Gambling Investigation**\
 `Emmanuel Clase and Luis Ortiz, pitchers for the Cleveland Guardians, were charged with sharing inside information about their pitches with bettors. Mr. Ortiz was arrested Sunday.`\
 https://nytimes.com/2025/11/09/nyregion/mlb-pitchers-gambling.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6787434/2025/11/09/man-city-liverpool-van-dijk-haal
 **Falcons-Colts takeaways: Jonathan Taylor's 3 TD day bolsters MVP campaign in Germany**\
 `The victory came nearly one year to the day after Daniel Jones made his final start with the New York Giants in Munich.`\
 https://nytimes.com/athletic/6791776/2025/11/09/falcons-colts-score-result-takeaways-nfl-berlin-germany/
-
-**The Pulse: An all-time catch**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6791062/2025/11/09/was-the-catch-that-kept-indiana-undefeated-the-best-ever/
-
-**Referees botch overtime coin toss in Falcons-Colts game in Berlin, have to re-flip**\
-`Referee Clete Blakeman mistakenly asked the Colts to call the coin toss, despite Indianapolis being the designated home team.`\
-https://nytimes.com/athletic/6792050/2025/11/09/overtime-coin-toss-botched-colts-falcons-berlin/
-
-**Powerful Tornado Leaves Trail of Destruction in Southern Brazil**\
-`The Brazilian authorities said several towns in the state of Paraná were struck by the tornado, which killed at least five people.`\
-https://nytimes.com/video/world/americas/100000010514057/brazil-deadly-tornado-weather.html
-
-**Small Earthquakes Strike San Francisco Bay Area**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/11/09/us/san-ramon-california-earthquake.html
 

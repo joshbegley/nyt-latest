@@ -1,3 +1,19 @@
+**Guardians' Clase, Ortiz indicted on charges tied to illegal sports betting**\
+`Ortiz was arrested Sunday in Boston and will appear in court Monday. Clase was not in custody as of early Sunday afternoon.`\
+https://nytimes.com/athletic/6792150/2025/11/09/guardians-pitchers-sports-betting-scandal-mlb-clase-ortiz/
+
+**AP Top 25: Ohio State extends No. 1 streak; Indiana stays ahead of Texas A&M**\
+`Ohio State, Indiana, Texas A&M, Alabama and Georgia remain atop the AP Top 25 poll, while Ole Miss jumped ahead of Oregon at No. 6.`\
+https://nytimes.com/athletic/6792092/2025/11/09/ap-top-25-osu-indiana-texas-am/
+
+**BBC’s Director General and Chief Executive Quit Their Posts**\
+`The abrupt moves followed controversy over claims that a documentary had been edited to suggest that President Trump had encouraged the Capitol Hill riots.`\
+https://nytimes.com/2025/11/09/world/europe/bbc-resignations.html
+
+**How to watch Sam Houston vs. TCU women's basketball: Time, TV, streaming**\
+`Find out how to watch the Sam Houston Bearkats play the TCU Horned Frogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6792261/2025/11/09/sam-houston-vs-tcu-stream-how-to-watch-nov-9/
+
 **2 Major League Baseball Pitchers Are Charged in Gambling Investigation**\
 `Emmanuel Clase and Luis Ortiz, pitchers for the Cleveland Guardians, were charged with sharing inside information about their pitches with bettors. Mr. Ortiz was arrested Sunday.`\
 https://nytimes.com/2025/11/09/nyregion/mlb-pitchers-gambling.html
