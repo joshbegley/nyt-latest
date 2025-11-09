@@ -1,3 +1,7 @@
+**Emmett Johnson, TJ Lateef help Nebraska clinch second straight winning season**\
+`Johnson, who leads all Power 4 backs in rushing, should be in the discussion for All-America honors. `\
+https://nytimes.com/athletic/6790958/2025/11/09/nebraska-ucla-score-result-football/
+
 **The New York Times in Print for Sunday, Nov. 9, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/09/todays-new-york-times
