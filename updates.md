@@ -1,3 +1,7 @@
+**Cooper Flagg acknowledges Mavericks' slow start after first road win**\
+`Through the first 10 games of his career, Cooper Flagg hasn’t had many opportunities to celebrate.`\
+https://nytimes.com/athletic/6791055/2025/11/09/cooper-flagg-mavericks-slow-start-first-road-win/
+
 **Lakers' no-show in road trip opener leads to blowout at the hands of the Hawks**\
 `The Lakers saw their five-game win streak come to an end Saturday night after failing to capitalize on a thinned out Atlanta lineup.`\
 https://nytimes.com/athletic/6790803/2025/11/09/luka-doncic-lakers-hawks-results-nba/

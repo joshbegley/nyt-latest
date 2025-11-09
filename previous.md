@@ -22,7 +22,7 @@ https://nytimes.com/issue/todayspaper/2025/11/09/todays-new-york-times
 `Pop culture exports have long been a potent source of American soft power. What happens when the U.S. is no longer the global capital of cool?`\
 https://nytimes.com/2025/11/09/opinion/america-pop-culture-cool.html
 
-**Cooper Flagg acknowledges Mavs' slow start after 1st road win**\
+**Cooper Flagg acknowledges Mavericks' slow start after first road win**\
 `Through the first 10 games of his career, Cooper Flagg hasn’t had many opportunities to celebrate.`\
 https://nytimes.com/athletic/6791055/2025/11/09/cooper-flagg-mavericks-slow-start-first-road-win/
 
