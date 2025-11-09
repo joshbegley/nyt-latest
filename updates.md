@@ -1,3 +1,11 @@
+**Form a Clump**\
+`Zhouqin Burnikel takes a layered approach.`\
+https://nytimes.com/2025/11/09/crosswords/daily-puzzle-2025-11-10.html
+
+**President Trump arrives at Commanders-Lions game after Air Force One flyover**\
+`Trump is the first sitting U.S. president to attend a regular-season NFL game in 47 years.`\
+https://nytimes.com/athletic/6792525/2025/11/09/donald-trump-booed-cheered-commanders-nfl-game-lions/
+
 **Giants-Bears takeaways: Caleb Williams rallies Chicago after Jaxson Dart's exit**\
 `Williams and the Bears completed a late-game comeback after Dart, the Giants QB, left the game with a concussion.`\
 https://nytimes.com/athletic/6792355/2025/11/09/giants-bears-score-result-takeaways/

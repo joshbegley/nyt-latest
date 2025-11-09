@@ -1,3 +1,11 @@
+**Form a Clump**\
+`Zhouqin Burnikel takes a layered approach.`\
+https://nytimes.com/2025/11/09/crosswords/daily-puzzle-2025-11-10.html
+
+**President Trump arrives at Commanders-Lions game after Air Force One flyover**\
+`Trump is the first sitting U.S. president to attend a regular-season NFL game in 47 years.`\
+https://nytimes.com/athletic/6792525/2025/11/09/donald-trump-booed-cheered-commanders-nfl-game-lions/
+
 **Safety Officer or Administration Messenger? Sean Duffy Juggles Roles in Shutdown.**\
 `With near-daily TV appearances, the transportation secretary has emerged as the face of the Trump administration amid the shutdown.`\
 https://nytimes.com/2025/11/09/us/politics/duffy-faa-air-travel-shutdown.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6791802/2025/11/09/nfl-takeaways-week-10-scores-res
 **Giants-Bears takeaways: Caleb Williams rallies Chicago after Jaxson Dart's exit**\
 `Williams and the Bears completed a late-game comeback after Dart, the Giants QB, left the game with a concussion.`\
 https://nytimes.com/athletic/6792355/2025/11/09/giants-bears-score-result-takeaways/
-
-**Ravens-Vikings takeaways: Lamar Jackson propels Baltimore to 3rd straight win**\
-`Derrick Henry moved into the top 15 on the all-time rushing list in Baltimore's victory.`\
-https://nytimes.com/athletic/6792310/2025/11/09/ravens-vikings-score-result-takeaways/
-
-**Five Blackhawks not named Connor Bedard who shined on Chicago's road trip**\
-`The Blackhawks closed out their road trip on a three-game win streak — their longest since 2016-17.`\
-https://nytimes.com/athletic/6792379/2025/11/09/blackhawks-bedard-levshunov-burakovsky-road-trip/
 
