@@ -1,3 +1,11 @@
+**Review: A Conductor’s Twist on a Classic Speaks to Freedom Today**\
+`Raphaël Pichon led the Orchestra of St. Luke’s in a take on Beethoven’s Ninth Symphony that, with an added prelude, unfurled as a barrage of ideas.`\
+https://nytimes.com/2025/11/09/arts/music/raphael-pichon-orchestra-st-lukes-beethoven-carnegie-hall-review.html
+
+**SEC vibes rankings: Seven teams in the Playoff, including Vanderbilt?**\
+`Four SEC teams look like near-locks to make the 12-team field. But what about Vanderbilt, Texas and Oklahoma?`\
+https://nytimes.com/athletic/6791702/2025/11/09/sec-football-rankings-week-11-vanderbilt-texas-am-georgia/
+
 **Arctic Blast Is Sweeping East, Bringing First Snow of the Season**\
 `Temperatures 10 to 20 degrees below normal are expected to reach as deep as the South, forecasters said. Snow is likely in the Great Lakes, parts of the Northeast and the Appalachians.`\
 https://nytimes.com/2025/11/09/weather/cold-snow-weather-forecast.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/11/09/us/trump-news
 **Blues assign rookie Logan Mailloux to AHL Springfield for a 'reset'**\
 `St. Louis' rookie defenseman heads to the minors after a rough start that includes being a healthy scratch in seven of 16 games.`\
 https://nytimes.com/athletic/6790564/2025/11/09/blues-assign-logan-mailloux-ahl/
-
-**When Addiction Treatment Is Involuntary**\
-`Readers respond to a proposal in Utah to forcibly remove homeless people. Also: Stolen treasures; America’s gambling problem; why retire?`\
-https://nytimes.com/2025/11/09/opinion/involuntary-addiction-treatment.html
-
-**On ‘S.N.L.,’ Trump Sidesteps Calamities and Unconscious Visitor**\
-`Nikki Glaser hosted this “Saturday Night Live” episode, while Pete Davidson returned to update viewers on the boat he bought with Colin Jost.`\
-https://nytimes.com/2025/11/09/arts/television/snl-trump-sidesteps-unconscious-man.html
 

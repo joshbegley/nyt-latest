@@ -1,3 +1,11 @@
+**Review: A Conductor’s Twist on a Classic Speaks to Freedom Today**\
+`Raphaël Pichon led the Orchestra of St. Luke’s in a take on Beethoven’s Ninth Symphony that, with an added prelude, unfurled as a barrage of ideas.`\
+https://nytimes.com/2025/11/09/arts/music/raphael-pichon-orchestra-st-lukes-beethoven-carnegie-hall-review.html
+
+**SEC vibes rankings: Seven teams in the Playoff, including Vanderbilt?**\
+`Four SEC teams look like near-locks to make the 12-team field. But what about Vanderbilt, Texas and Oklahoma?`\
+https://nytimes.com/athletic/6791702/2025/11/09/sec-football-rankings-week-11-vanderbilt-texas-am-georgia/
+
 **Arctic Blast Is Sweeping East, Bringing First Snow of the Season**\
 `Temperatures 10 to 20 degrees below normal are expected to reach as deep as the South, forecasters said. Snow is likely in the Great Lakes, parts of the Northeast and the Appalachians.`\
 https://nytimes.com/2025/11/09/weather/cold-snow-weather-forecast.html
