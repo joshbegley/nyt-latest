@@ -1,3 +1,7 @@
+**Federal Judge, Warning of ‘Existential Threat’ to Democracy, Resigns**\
+`Judge Mark L. Wolf, writing in The Atlantic, said he was stepping down to defend against the “assault on the rule of law” by President Trump, who he accused of “targeting his adversaries.”`\
+https://nytimes.com/2025/11/09/us/politics/mark-wolf-federal-judge-resigns.html
+
 **Michelle Obama Criticizes Trump’s East Wing Demolition**\
 `The president’s ballroom project will transform one of the most recognizable buildings in the world and could nearly double its size.`\
 https://nytimes.com/2025/11/09/us/politics/michelle-obama-east-wing.html
