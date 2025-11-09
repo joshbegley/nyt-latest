@@ -1,3 +1,15 @@
+**How to watch Kings vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Kings play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6791610/2025/11/09/kings-vs-penguins-stream-how-to-watch-nov-9/
+
+**How to watch Rockets vs. Bucks: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the Milwaukee Bucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6791608/2025/11/09/rockets-vs-bucks-stream-how-to-watch-nov-9/
+
+**What Questions Do You Have About Climate Change?**\
+`“Ask a Correspondent” will take your questions to Somini Sengupta, our international climate reporter.`\
+https://nytimes.com/2025/11/09/world/ask-a-correspondent-somini-sengupta-climate-change.html
+
 **How to watch Evansville vs. Iowa women's basketball: Time, TV, streaming**\
 `Find out how to watch the Evansville Purple Aces play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6791588/2025/11/09/evansville-vs-iowa-stream-how-to-watch-nov-9/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6791567/2025/11/09/kentucky-vs-buffalo-stream-how-t
 **How to watch Tennessee vs. UT Martin women's basketball: Time, TV, streaming**\
 `Find out how to watch the Tennessee Lady Volunteers play the UT Martin Skyhawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6791563/2025/11/09/tennessee-vs-ut-martin-stream-how-to-watch-nov-9/
-
-**How to watch Eastern Michigan vs. Michigan State women's basketball: Time, TV, streaming**\
-`Find out how to watch the Eastern Michigan Eagles play the Michigan State Spartans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6791561/2025/11/09/eastern-michigan-vs-michigan-state-stream-how-to-watch-nov-9/
-
-**How to watch Northern Kentucky vs. Louisville women's basketball: Time, TV, streaming**\
-`Find out how to watch the Northern Kentucky Norse play the Louisville Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6791557/2025/11/09/northern-kentucky-vs-louisville-stream-how-to-watch-nov-9/
-
-**How to watch Chicago State vs. Notre Dame women's basketball: Time, TV, streaming**\
-`Find out how to watch the Chicago State Cougars play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6791555/2025/11/09/chicago-state-vs-notre-dame-stream-how-to-watch-nov-9/
 
