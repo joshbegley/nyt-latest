@@ -1,3 +1,7 @@
+**The alleged pitch-rigging scheme of 2 MLB players: Texts, calls and the money trail**\
+`Emmanuel Clase and Luis Ortiz face up to 65 years in prison if convicted.`\
+https://nytimes.com/athletic/6792294/2025/11/09/mlb-clase-ortiz-betting-allegations/
+
 **Unpacking Mamdani’s Viral Victory Speech**\
 `A close annotation of the references, applause lines and barbs in Mayor-elect Zohran Mamdani’s address to his supporters.`\
 https://nytimes.com/interactive/2025/11/09/nyregion/zohran-mamdani-nyc-mayoral-speech.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6792707/2025/11/09/jaguars-texans-score-result-take
 **Maye leads Patriots to seventh straight win as Bucs' comeback falls short**\
 `Drake Maye delivered key plays under pressure, including a fourth-and-goal touchdown to Stefon Diggs and a 72-yard strike to Kyle Williams. `\
 https://nytimes.com/athletic/6792116/2025/11/09/patriots-buccaneers-score-result-takeaways/
-
-**Gauging Bills concern and Jonathan Taylor's MVP chances: Our experts' Week 10 takeaways**\
-`Drake Maye and the Patriots are riding high and the Ravens continue to work their way back into AFC North contention.`\
-https://nytimes.com/athletic/6791802/2025/11/09/nfl-takeaways-week-10-scores-results/
 

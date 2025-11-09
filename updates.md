@@ -1,3 +1,11 @@
+**Unpacking Mamdani’s Viral Victory Speech**\
+`A close annotation of the references, applause lines and barbs in Mayor-elect Zohran Mamdani’s address to his supporters.`\
+https://nytimes.com/interactive/2025/11/09/nyregion/zohran-mamdani-nyc-mayoral-speech.html
+
+**Texans erase 19-point deficit in fourth quarter to beat Jaguars: Takeaways**\
+`Houston scored touchdowns on its final three drives to pull out the 36-29 victory.`\
+https://nytimes.com/athletic/6792707/2025/11/09/jaguars-texans-score-result-takeaways/
+
 **Form a Clump**\
 `Zhouqin Burnikel takes a layered approach.`\
 https://nytimes.com/2025/11/09/crosswords/daily-puzzle-2025-11-10.html

@@ -1,3 +1,7 @@
+**Unpacking Mamdani’s Viral Victory Speech**\
+`A close annotation of the references, applause lines and barbs in Mayor-elect Zohran Mamdani’s address to his supporters.`\
+https://nytimes.com/interactive/2025/11/09/nyregion/zohran-mamdani-nyc-mayoral-speech.html
+
 **Form a Clump**\
 `Zhouqin Burnikel takes a layered approach.`\
 https://nytimes.com/2025/11/09/crosswords/daily-puzzle-2025-11-10.html
@@ -22,8 +26,8 @@ https://nytimes.com/athletic/6792719/2025/11/09/new-york-rangers-gabe-perreault-
 `New Orleans stuns Carolina as Shough becomes first Saints rookie QB to win a game since 1981.`\
 https://nytimes.com/athletic/6792257/2025/11/09/saints-panthers-score-result-takeaways/
 
-**Jaguars-Texans takeaways: Houston erases 19-point deficit in 4th quarter on way to win**\
-`Houston scores touchdowns on final three drives to pull out 36-29 victory.`\
+**Texans erase 19-point deficit in fourth quarter to beat Jaguars: Takeaways**\
+`Houston scored touchdowns on its final three drives to pull out the 36-29 victory.`\
 https://nytimes.com/athletic/6792707/2025/11/09/jaguars-texans-score-result-takeaways/
 
 **Maye leads Patriots to seventh straight win as Bucs' comeback falls short**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6792116/2025/11/09/patriots-buccaneers-score-result
 **Gauging Bills concern and Jonathan Taylor's MVP chances: Our experts' Week 10 takeaways**\
 `Drake Maye and the Patriots are riding high and the Ravens continue to work their way back into AFC North contention.`\
 https://nytimes.com/athletic/6791802/2025/11/09/nfl-takeaways-week-10-scores-results/
-
-**Giants-Bears takeaways: Caleb Williams rallies Chicago after Jaxson Dart's exit**\
-`Williams and the Bears completed a late-game comeback after Dart, the Giants QB, left the game with a concussion.`\
-https://nytimes.com/athletic/6792355/2025/11/09/giants-bears-score-result-takeaways/
 
