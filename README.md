@@ -1,3 +1,7 @@
+**Banning social media**\
+`More schools and governments are turning to tech bans to try to keep kids off screens. Do they work?`\
+https://nytimes.com/2025/11/09/briefing/banning-social-media.html
+
 **Firefighter Dies of Heart Attack While Fighting Brooklyn Blaze**\
 `Patrick D. Brady, 42, died while responding to a fire at an apartment building in the Brownsville neighborhood.`\
 https://nytimes.com/2025/11/09/nyregion/nyfd-firefighter-dies-brooklyn-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6791093/2025/11/09/canadiens-mammoth-win-imperfecti
 **'I feel I have more in me': The path to 1,000 games for Wild's Marcus Johansson**\
 `Johansson will enter the 1,000th game of his NHL career when the Wild host the Flames on Sunday with an eight-game point streak.`\
 https://nytimes.com/athletic/6788352/2025/11/09/wild-marcus-johansson-1000-nhl-games/
-
-**WATCH: How Ravens' Kyle Hamilton has become one of most versatile NFL defenders**\
-`Few guys are asked to play more roles for their teams than Hamilton, who’s lined up all over the field throughout his young career.`\
-https://nytimes.com/athletic/6788440/2025/11/09/video-analysis-ravens-kyle-hamilton/
 
