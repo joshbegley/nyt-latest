@@ -1,3 +1,7 @@
+**What to make of Gavin McKenna’s start at Penn State? It’s complicated**\
+`The top prospect in the 2026 NHL Draft and biggest name in college hockey is being tested and scrutinized.`\
+https://nytimes.com/athletic/6789978/2025/11/08/gavin-mckenna-penn-state-nhl-draft-2026/
+
 **A Timeline of the Legal Saga Surrounding SNAP Payments**\
 `Weeks of uncertainty during the longest government shutdown in American history have left some states struggling to issue payments to food stamp recipients.`\
 https://nytimes.com/2025/11/08/us/politics/snap-payments-timeline.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/08/us/worries-mount-as-air-traffic-delays-stretch-to
 **Observations: Why the Penguins are 'starting to believe' in themselves after loss to Devils**\
 `The Penguins got only a point in New Jersey during a 2-1 shootout loss, but they're starting to make the point that they're a good team.`\
 https://nytimes.com/athletic/6790058/2025/11/08/penguins-devils-observations-sidney-crosby/
-
-**Newsom, Eyeing 2028, Tries to Mess With Texas: ‘Don’t Poke the Bear’**\
-`Celebrating his recent redistricting victory, the California governor swooped into a state led by a Republican rival and sent the latest signal about his presidential ambitions.`\
-https://nytimes.com/2025/11/08/us/politics/newsom-2028-texas-rally-abbott-trump.html
 

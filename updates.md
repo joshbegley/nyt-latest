@@ -1,3 +1,7 @@
+**What to make of Gavin McKenna’s start at Penn State? It’s complicated**\
+`The top prospect in the 2026 NHL Draft and biggest name in college hockey is being tested and scrutinized.`\
+https://nytimes.com/athletic/6789978/2025/11/08/gavin-mckenna-penn-state-nhl-draft-2026/
+
 **A Timeline of the Legal Saga Surrounding SNAP Payments**\
 `Weeks of uncertainty during the longest government shutdown in American history have left some states struggling to issue payments to food stamp recipients.`\
 https://nytimes.com/2025/11/08/us/politics/snap-payments-timeline.html
