@@ -1,3 +1,11 @@
+**Cavs' De'Andre Hunter breaks Bulls' Josh Giddey's ankles with nasty crossover**\
+`Hunter crossed over Chicago Bulls guard Josh Giddey so bad that Giddey hurt his ankle in Cleveland's 128-122 win Saturday night.`\
+https://nytimes.com/athletic/6790963/2025/11/09/deandre-hunter-josh-giddey-cavaliers-bulls-nba/
+
+**China Suspends Export Controls on More Critical Minerals**\
+`The changes would make it easier for American firms to obtain key minerals, delivering on what the White House said the two countries had agreed to at last month’s summit.`\
+https://nytimes.com/2025/11/09/business/china-suspends-export-controls.html
+
 **Emmett Johnson, TJ Lateef help Nebraska clinch second straight winning season**\
 `Johnson, who leads all Power 4 backs in rushing, should be in the discussion for All-America honors. `\
 https://nytimes.com/athletic/6790958/2025/11/09/nebraska-ucla-score-result-football/
