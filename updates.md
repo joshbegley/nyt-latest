@@ -1,3 +1,7 @@
+**White House discussed naming new Washington Commanders stadium after Trump**\
+`President Trump made the “rebuilding of the new stadium possible,” according to Karoline Leavitt, the White House press secretary. But it was unclear what role he has had in the project.`\
+https://nytimes.com/2025/11/09/us/politics/trump-washington-commanders.html
+
 **White House Discussed Naming New Washington Commanders Stadium After Trump**\
 `President Trump made the “rebuilding of the new stadium possible,” according to Karoline Leavitt, the White House press secretary. But it was unclear what role he has had in the project.`\
 https://nytimes.com/2025/11/09/us/politics/trump-washington-commanders.html
