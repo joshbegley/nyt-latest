@@ -1,3 +1,11 @@
+**Spirit's mental preparation for the 'unpredictable,' helped secure another dramatic playoff win**\
+`Resiliency is proving to be the Spirit's strong suit. The team has won five extra time playoff games in four years.`\
+https://nytimes.com/athletic/6790558/2025/11/09/washington-spirit-nwsl-playoff-mental-victory/
+
+**Trump Administration Demands States ‘Undo’ Work to Send Full Food Stamps**\
+`In late-night guidance, the Agriculture Department also threatened financial penalties against states.`\
+https://nytimes.com/2025/11/09/business/trump-administration-states-undo-full-snap-food-stamps.html
+
 **Trump Administration Live Updates: Flight Disruptions Persist Amid Shutdown**\
 ``\
 https://nytimes.com/live/2025/11/09/us/trump-news

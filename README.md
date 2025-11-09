@@ -1,3 +1,7 @@
+**Predicting the CFP bracket: Longhorns in Lubbock? Notre Dame vs. Oregon?**\
+`With three weeks left in the regular season, the College Football Playoff race still has multiple questions left unanswered.`\
+https://nytimes.com/athletic/6791082/2025/11/09/college-football-playoff-bracket-prediction-texas-tech/
+
 **Spirit's mental preparation for the 'unpredictable,' helped secure another dramatic playoff win**\
 `Resiliency is proving to be the Spirit's strong suit. The team has won five extra time playoff games in four years.`\
 https://nytimes.com/athletic/6790558/2025/11/09/washington-spirit-nwsl-playoff-mental-victory/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6790558/2025/11/09/washington-spirit-nwsl-playoff-m
 `In late-night guidance, the Agriculture Department also threatened financial penalties against states.`\
 https://nytimes.com/2025/11/09/business/trump-administration-states-undo-full-snap-food-stamps.html
 
-**Trump Administration Live Updates: Flight Disruptions Persist Amid Shutdown**\
+**Trump Administration Live Updates: Officials Demand States ‘Undo’ Work to Send Full Food Stamps**\
 ``\
 https://nytimes.com/live/2025/11/09/us/trump-news
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6791016/2025/11/09/san-diego-wave-crests-troughs-la
 **How to watch Kings vs. Penguins: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Kings play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6791610/2025/11/09/kings-vs-penguins-stream-how-to-watch-nov-9/
-
-**How to watch Rockets vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the Houston Rockets play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6791608/2025/11/09/rockets-vs-bucks-stream-how-to-watch-nov-9/
 
