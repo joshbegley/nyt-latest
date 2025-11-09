@@ -1,3 +1,7 @@
+**Hamas Hands Over Body of Israeli Soldier Held Since 2014**\
+`Hamas returned to Israel the remains of Lt. Hadar Goldin, who was killed in a 2014 war in Gaza.`\
+https://nytimes.com/2025/11/09/world/middleeast/hamas-hadar-goldin-israel.html
+
 **Micah Parsons trade came with 'poison pill' to block future deals: Source**\
 `If the Packers trade Parsons to an NFC East team, Green Bay would have to give the Cowboys its 2028 first-round pick.`\
 https://nytimes.com/athletic/6791803/2025/11/09/micah-parsons-trade-poison-pill-nfc-east/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6791913/2025/11/09/hurricanes-vs-maple-leafs-stream
 **Confused W. Carolina fans storm field, kicker hoisted despite missed FG in loss**\
 `With Saturday's 49-47 win, Mercer clinched the Southern Conference title and an automatic bid in the FCS playoffs.`\
 https://nytimes.com/athletic/6791737/2025/11/09/mercer-western-carolina-confusing-ending/
-
-**How to watch Florida State vs. UConn women's basketball: Time, TV, streaming**\
-`Find out how to watch the Florida State Seminoles play the UConn Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6791895/2025/11/09/florida-state-vs-uconn-stream-how-to-watch-nov-9/
 

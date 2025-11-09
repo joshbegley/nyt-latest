@@ -1,3 +1,7 @@
+**Hamas Hands Over Body of Israeli Soldier Held Since 2014**\
+`Hamas returned to Israel the remains of Lt. Hadar Goldin, who was killed in a 2014 war in Gaza.`\
+https://nytimes.com/2025/11/09/world/middleeast/hamas-hadar-goldin-israel.html
+
 **Micah Parsons trade came with 'poison pill' to block future deals: Source**\
 `If the Packers trade Parsons to an NFC East team, Green Bay would have to give the Cowboys its 2028 first-round pick.`\
 https://nytimes.com/athletic/6791803/2025/11/09/micah-parsons-trade-poison-pill-nfc-east/
