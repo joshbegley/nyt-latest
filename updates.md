@@ -1,3 +1,7 @@
+**Until Saturday: 7 takeaways from the play of the year**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6791652/2025/11/09/indiana-penn-state-catch-until-saturday/
+
 **The San Diego Wave are embracing the crests and troughs of their latest era in NWSL**\
 `After making a splash with their NWSL introduction in 2022, the Wave have had to manage more uncertain waters as of late.`\
 https://nytimes.com/athletic/6791016/2025/11/09/san-diego-wave-crests-troughs-latest-nwsl-era/
