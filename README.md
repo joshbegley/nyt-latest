@@ -1,3 +1,7 @@
+**Ripping packs and shooting hoops: How sports card shops are evolving**\
+`Sports card shops are starting to look more like mini-museums with a focus on the experience and building communities`\
+https://nytimes.com/athletic/6792148/2025/11/09/trace-n-chase-sports-card-shops/
+
 **How to watch Jets vs. Ducks: Time, TV, streaming**\
 `Find out how to watch the Winnipeg Jets play the Anaheim Ducks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6792290/2025/11/09/jets-vs-ducks-stream-how-to-watch-nov-9/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6792150/2025/11/09/guardians-pitchers-sports-bettin
 **AP Top 25: Ohio State extends No. 1 streak; Indiana stays ahead of Texas A&M**\
 `Ohio State, Indiana, Texas A&M, Alabama and Georgia remain atop the AP Top 25 poll, while Ole Miss jumped ahead of Oregon at No. 6.`\
 https://nytimes.com/athletic/6792092/2025/11/09/ap-top-25-osu-indiana-texas-am/
-
-**BBC’s Director General and Chief Executive Quit Their Posts**\
-`The abrupt moves followed controversy over claims that a documentary had been edited to suggest that President Trump had encouraged the Jan. 6 Capitol riot.`\
-https://nytimes.com/2025/11/09/world/europe/bbc-resignations.html
 
