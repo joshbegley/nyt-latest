@@ -10,7 +10,7 @@ https://nytimes.com/2025/11/09/opinion/america-pop-culture-cool.html
 `Through the first 10 games of his career, Cooper Flagg hasn’t had many opportunities to celebrate.`\
 https://nytimes.com/athletic/6791055/2025/11/09/cooper-flagg-mavericks-slow-start-first-road-win/
 
-**Nebraska at UCLA: Emmett Johnson, TJ Lateef lead the way as Huskers clinch winning season**\
+**Emmett Johnson, TJ Lateef help Nebraska clinch second straight winning season**\
 `Johnson, who leads all Power 4 backs in rushing, should be in the discussion for All-America honors. `\
 https://nytimes.com/athletic/6790958/2025/11/09/nebraska-ucla-score-result-football/
 
