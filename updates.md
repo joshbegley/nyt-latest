@@ -1,3 +1,7 @@
+**How to watch Blackhawks vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Chicago Blackhawks play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6791304/2025/11/09/blackhawks-vs-red-wings-stream-how-to-watch-nov-9/
+
 **How to watch Holy Cross vs. Duke women's basketball: Time, TV, streaming**\
 `Find out how to watch the Holy Cross Crusaders play the Duke Blue Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6791299/2025/11/09/holy-cross-vs-duke-stream-how-to-watch-nov-9/
