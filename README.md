@@ -1,3 +1,7 @@
+**Federal Judge, Warning of ‘Existential Threat’ to Democracy, Resigns**\
+`Judge Mark L. Wolf, writing in The Atlantic, said he was stepping down to defend against the “assault on the rule of law” by President Trump, who he accused of “targeting his adversaries.”`\
+https://nytimes.com/2025/11/09/us/politics/mark-wolf-federal-judge-resigns.html
+
 **Michelle Obama Criticizes Trump’s East Wing Demolition**\
 `The president’s ballroom project will transform one of the most recognizable buildings in the world and could nearly double its size.`\
 https://nytimes.com/2025/11/09/us/politics/michelle-obama-east-wing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6792148/2025/11/09/trace-n-chase-sports-card-shops/
 **How to watch Jets vs. Ducks: Time, TV, streaming**\
 `Find out how to watch the Winnipeg Jets play the Anaheim Ducks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6792290/2025/11/09/jets-vs-ducks-stream-how-to-watch-nov-9/
-
-**How to watch Pistons vs. 76ers: Time, TV, streaming**\
-`Find out how to watch the Detroit Pistons play the Philadelphia 76ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6792288/2025/11/09/pistons-vs-76ers-stream-how-to-watch-nov-9/
 

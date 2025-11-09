@@ -1,3 +1,7 @@
+**Michelle Obama Criticizes Trump’s East Wing Demolition**\
+`The president’s ballroom project will transform one of the most recognizable buildings in the world and could nearly double its size.`\
+https://nytimes.com/2025/11/09/us/politics/michelle-obama-east-wing.html
+
 **Lewis Hamilton calls first Ferrari season 'a nightmare' after dismal Brazilian GP**\
 `The British driver retired after contact and wing damage, stretching his wait for a first Ferrari grand prix podium`\
 https://nytimes.com/athletic/6792480/2025/11/09/lewis-hamilton-ferrari-nightmare-season-brazilian-gp/
