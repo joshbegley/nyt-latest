@@ -26,8 +26,8 @@ https://nytimes.com/athletic/6792116/2025/11/09/patriots-buccaneers-score-result
 `Drake Maye and the Patriots are riding high and the Ravens continue to work their way back into AFC North contention.`\
 https://nytimes.com/athletic/6791802/2025/11/09/nfl-takeaways-week-10-scores-results/
 
-**Giants-Bears takeaways: Caleb Williams rallies Chicago with late-game magic**\
-`Williams and the Bears completed a late-game comeback at home against the New York Giants in a windy and snowy affair.`\
+**Giants-Bears takeaways: Caleb Williams rallies Chicago after Jaxson Dart's exit**\
+`Williams and the Bears completed a late-game comeback after Dart, the Giants QB, left the game with a concussion.`\
 https://nytimes.com/athletic/6792355/2025/11/09/giants-bears-score-result-takeaways/
 
 **Ravens-Vikings takeaways: Lamar Jackson propels Baltimore to 3rd straight win**\

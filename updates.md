@@ -1,3 +1,19 @@
+**Safety Officer or Administration Messenger? Sean Duffy Juggles Roles in Shutdown.**\
+`With near-daily TV appearances, the transportation secretary has emerged as the face of the Trump administration amid the shutdown.`\
+https://nytimes.com/2025/11/09/us/politics/duffy-faa-air-travel-shutdown.html
+
+**Browns-Jets takeaways: Special teams lifts New York to second win of 2025**\
+`The Jets' special teams unit became the first to score first-quarter touchdowns on a kickoff and punt return since 2007.`\
+https://nytimes.com/athletic/6792037/2025/11/09/browns-jets-score-result-takeaways/
+
+**Rangers call up top prospect Gabe Perreault amid scoring woes**\
+`The Rangers are off to a historically poor home start and Perreault is known for his offense.`\
+https://nytimes.com/athletic/6792719/2025/11/09/new-york-rangers-gabe-perreault-nhl/
+
+**Jaguars-Texans takeaways: Houston erases 19-point deficit in 4th quarter on way to win**\
+`Houston scores touchdowns on final three drives to pull out 36-29 victory.`\
+https://nytimes.com/athletic/6792707/2025/11/09/jaguars-texans-score-result-takeaways/
+
 **Saints-Panthers takeaways: Rookie QB Tyler Shough leads New Orleans to upset**\
 `New Orleans stuns Carolina as Shough becomes first Saints rookie QB to win a game since 1981.`\
 https://nytimes.com/athletic/6792257/2025/11/09/saints-panthers-score-result-takeaways/
