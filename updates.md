@@ -1,3 +1,11 @@
+**Oregon vs. Iowa: Ducks cap clutch drive with 39-yard FG to bolster CFP chances**\
+`The Ducks are now 8-0 on the road in the Big Ten since joining the conference.`\
+https://nytimes.com/athletic/6790442/2025/11/08/oregon-iowa-result-score/
+
+**Former Prison Psychologist Awarded $16.8 Million Over Ignored Inmate’s Threat**\
+`A California jury found that Beth Fischgrund was wrongfully terminated and defamed after she reported an inmate’s violent threat at Salinas Valley State Prison in California.`\
+https://nytimes.com/2025/11/08/us/california-prison-doctor-awarded-millions.html
+
 **Our Restaurant Critics Dish**\
 `Tejal Rao and Ligaya Mishan, the new food critics at The New York Times, answer your questions.`\
 https://nytimes.com/2025/11/08/podcasts/the-daily/restaurant-critics-food.html

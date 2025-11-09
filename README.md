@@ -1,3 +1,7 @@
+**A Timeline of the Legal Saga Surrounding SNAP Payments**\
+`Weeks of uncertainty during the longest government shutdown in American history have left some states struggling to issue payments to food stamp recipients.`\
+https://nytimes.com/2025/11/08/us/politics/snap-payments-timeline.html
+
 **Oregon vs. Iowa: Ducks cap clutch drive with 39-yard FG to bolster CFP chances**\
 `The Ducks are now 8-0 on the road in the Big Ten since joining the conference.`\
 https://nytimes.com/athletic/6790442/2025/11/08/oregon-iowa-result-score/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6790058/2025/11/08/penguins-devils-observations-sid
 **Newsom, Eyeing 2028, Tries to Mess With Texas: ‘Don’t Poke the Bear’**\
 `Celebrating his recent redistricting victory, the California governor swooped into a state led by a Republican rival and sent the latest signal about his presidential ambitions.`\
 https://nytimes.com/2025/11/08/us/politics/newsom-2028-texas-rally-abbott-trump.html
-
-**Heavy Rain Is Expected in California After Spell of Unusually Warm Weather**\
-`Areas across the state could record anywhere from one to five or more inches of rain. The Sierra will get some snow.`\
-https://nytimes.com/2025/11/08/weather/california-weather-heat-rain.html
 
