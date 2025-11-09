@@ -1,3 +1,7 @@
+**Firefighter Dies of Heart Attack While Fighting Brooklyn Blaze**\
+`Patrick D. Brady, 42, died while responding to a fire at an apartment building in the Brownsville neighborhood.`\
+https://nytimes.com/2025/11/09/nyregion/nyfd-firefighter-dies-brooklyn-fire.html
+
 **Rangers shut out at MSG again, plus eight more thoughts**\
 `The Rangers suffered another deflating home loss in which they failed to score and heard scattered boos on their way off the ice.`\
 https://nytimes.com/athletic/6790714/2025/11/09/rangers-shutout-loss-madison-square-garden/
