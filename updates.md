@@ -1,3 +1,7 @@
+**The lengthy list of problems Edwards must try to solve at Molineux**\
+`No team with two points or fewer at this stage of a Premier League season has survived. Good luck to Wolves' next manager `\
+https://nytimes.com/athletic/6790523/2025/11/09/wolves-manager-rob-edwards-relegation-fight/
+
 **Lakers' no-show in road trip opener leads to blowout to short-handed Hawks**\
 `The Lakers saw their five-game win streak come to an end Saturday night after failing to capitalize on a thinned out Atlanta lineup.`\
 https://nytimes.com/athletic/6790803/2025/11/09/luka-doncic-lakers-hawks-results-nba/
