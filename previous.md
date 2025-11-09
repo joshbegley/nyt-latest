@@ -1,40 +1,40 @@
-**What we learned about the CFP: Is the SEC poised to take more than four spots?**\
-`The SEC had a painless weekend, while the Big Ten's chance of sending at least four teams to the Playoff took a hit.`\
-https://nytimes.com/athletic/6791079/2025/11/09/college-football-playoff-race-updates-week-11/
+**Sabres' season reaches another tipping point with loss to Hurricanes: 4 thoughts**\
+`Despite a third-period comeback attempt, the Sabres lost 6-3 to Carolina on Saturday and are now 1-2-4 in their last seven games.`\
+https://nytimes.com/athletic/6790842/2025/11/09/sabres-hurricanes-loss-season-thompson-tuch/
 
-**Vanderbilt's best and worst showed up vs. Auburn — but Commodores' CFP path intact**\
-`Vanderbilt's offense and defense have been two separate stories this season, but the offense came through in a key win against Auburn. `\
-https://nytimes.com/athletic/6790811/2025/11/09/vanderbilt-auburn-cfp-score-result-takeaways/
+**Bob Gibson would have turned 90. Remembering a carefree moment with Cardinals, Bob Uecker**\
+`Gibson’s competitiveness with the St. Louis Cardinals is often celebrated. But he also had a sense of humor that deserves its own publicity.`\
+https://nytimes.com/athletic/6787856/2025/11/09/bob-gibson-bob-uecker-birthday-mlb/
 
-**NFL Week 10 storylines: Colts bounce back? Ravens breakout? Plus, Eagles-Packers showdown**\
-`The Eagles and Packers have been hit-or-miss this year, so which versions will we see on Monday night? `\
-https://nytimes.com/athletic/6784923/2025/11/09/nfl-week-10-storylines-colts-ravens-eagles-packers/
+**What can ND learn from a blowout of Navy? How close perfect can be, for starters**\
+`Maybe blowouts against overmatched competition can’t be revelations, but there has to be value in knowing what near-perfection looks like.`\
+https://nytimes.com/athletic/6791128/2025/11/09/notre-dame-navy-winning-streak-cfp/
 
-**Is Jimmy Garoppolo ready for one more chance at a starting job? 'Oh hell yeah'**\
-`As Garoppolo returns to the Bay Area, Rams coach Sean McVay is enjoying Jimmy G’s glow in a way the exacting Kyle Shanahan seldom could.`\
-https://nytimes.com/athletic/6790713/2025/11/09/jimmy-garoppolo-rams-49ers-future-free-agency/
+**‘I’m a hockey player’: Mason Lohrei and the anger behind 5 straight scratches**\
+`Lohrei returned to the lineup against the Maple Leafs and made an impact in Boston's 5-3 win Saturday.`\
+https://nytimes.com/athletic/6790831/2025/11/09/bruins-maple-leafs-mason-lohrei-scratched/
 
-**The New York Times International Edition in Print for Monday, Nov. 10, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/11/09/todays-new-york-times-international-edition
+**The Aesthetic That Won New York City**\
+`Zohran Mamdani made the city glow, bringing a beauty to the everyday fixtures we ceased to register.`\
+https://nytimes.com/2025/11/09/opinion/zorhan-mamdani-aesthetic-new-york.html
 
-**How to watch Blackhawks vs. Red Wings: Time, TV, streaming**\
-`Find out how to watch the Chicago Blackhawks play the Detroit Red Wings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6791304/2025/11/09/blackhawks-vs-red-wings-stream-how-to-watch-nov-9/
+**Cruelty, Bigotry and Rage. What’s Not to Like?**\
+`This is what happens when the fringe becomes the mainstream (and vice versa).`\
+https://nytimes.com/2025/11/09/opinion/right-wing-america-politics-culture.html
 
-**How to watch Holy Cross vs. Duke women's basketball: Time, TV, streaming**\
-`Find out how to watch the Holy Cross Crusaders play the Duke Blue Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6791299/2025/11/09/holy-cross-vs-duke-stream-how-to-watch-nov-9/
+**Jayden Daniels football card hype starts to wane, but is it just temporary?**\
+`After a magical rookie campaign, Daniels' card prices are on the decline, drawing comparisons to Stroud`\
+https://nytimes.com/athletic/6790670/2025/11/09/jayden-daniels-card-prices-commanders/
 
-**How to watch Georgetown vs. Maryland women's basketball: Time, TV, streaming**\
-`Find out how to watch the Georgetown Hoyas play the Maryland Terrapins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6791297/2025/11/09/georgetown-vs-maryland-stream-how-to-watch-nov-9/
+**Strands Sidekick No. 617**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 10, 2025.`\
+https://nytimes.com/2025/11/09/crosswords/strands-sidekick-617.html
 
-**How to watch Harvard vs. Michigan women's basketball: Time, TV, streaming**\
-`Find out how to watch the Harvard Crimson play the Michigan Wolverines, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6791295/2025/11/09/harvard-vs-michigan-stream-how-to-watch-nov-9/
+**Connections Companion No. 883**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 10, 2025.`\
+https://nytimes.com/2025/11/09/crosswords/connections-companion-883.html
 
-**How to watch Manchester City vs. Liverpool from the U.S.: Pep reaches 1K milestone**\
-`City manager Pep Guardiola will reach the 1,000th match milestone Sunday against rival Liverpool.`\
-https://nytimes.com/athletic/6785473/2025/11/09/manchester-city-liverpool-pep-guardiola-how-to-watch-us/
+**Wordle Review No. 1605**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 10, 2025.`\
+https://nytimes.com/2025/11/09/crosswords/wordle-review-1605.html
 
