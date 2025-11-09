@@ -1,3 +1,7 @@
+**How to watch Blackhawks vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Chicago Blackhawks play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6791304/2025/11/09/blackhawks-vs-red-wings-stream-how-to-watch-nov-9/
+
 **How to watch Holy Cross vs. Duke women's basketball: Time, TV, streaming**\
 `Find out how to watch the Holy Cross Crusaders play the Duke Blue Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6791299/2025/11/09/holy-cross-vs-duke-stream-how-to-watch-nov-9/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/09/us/politics/trump-conspiracy-probe-subpoenas.html
 **Blue Origin Launches NASA’s ESCAPADE Mission to Mars: How to Watch**\
 `This will be the second flight of the orbital rocket from Jeff Bezos’s space company and will include a key test of whether it can land a booster stage for later reuse.`\
 https://nytimes.com/2025/11/09/science/blue-origin-new-glenn-launch.html
-
-**The Dangerous Stalemate Over Iran’s Nuclear Program**\
-`With no negotiations, no oversight and no clarity about Iran’s stock of nuclear material, many in the region fear another war with Israel is inevitable.`\
-https://nytimes.com/2025/11/09/world/middleeast/iran-nuclear-program-israel.html
 
