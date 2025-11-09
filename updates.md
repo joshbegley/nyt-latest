@@ -1,3 +1,19 @@
+**Arsenal have two weeks to rest and regroup. The break comes at the perfect time**\
+`The draw at Sunderland showed that Mikel Arteta's squad is being stretched thin. The international window will suit the manager`\
+https://nytimes.com/athletic/6790358/2025/11/09/arsenal-sunderland-mikel-arteta/
+
+**Illegal streaming: Research reveals rise in piracy and desire for scrapping of 3pm blackout**\
+`A new audio documentary from The Athletic reveals the data behind the growing use of illegal streams to watch Premier League football`\
+https://nytimes.com/athletic/6742752/2025/11/09/illegal-streaming-poll-results/
+
+**Fearless free-speech champion? Agitator? Bully? The search for the real Joey Barton**\
+`He was found guilty this week on six counts of sending a grossly offensive electronic communication with intent to cause distress or anxiety`\
+https://nytimes.com/athletic/6789754/2025/11/09/joey-barton-court-social-media/
+
+**Messi, Miami kick-start MLS Cup quest, rout Nashville in playoff decider**\
+`Lionel Messi's early goal set the tone for a decisive first-round knockout, with Miami's star influential in more ways than one in a 4-0 win`\
+https://nytimes.com/athletic/6790913/2025/11/09/inter-miami-nashville-sc-mls-cup-playoffs-messi/
+
 **'We’ve all got to be better, including the goalie': The Leafs crease is in a precarious position**\
 `Stolarz was pulled due to poor performance for the first time as a Leaf after allowing four goals on 19 shots against the Bruins.
 `\
