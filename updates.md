@@ -1,3 +1,7 @@
+**Outkast, the White Stripes and Cyndi Lauper Join the Rock Hall**\
+`Gen X celebrated its heroes at the ceremony, where Soundgarden and Salt-N-Pepa were honored alongside Chubby Checker, Bad Company, Joe Cocker and Warren Zevon.`\
+https://nytimes.com/2025/11/09/arts/music/rock-and-roll-hall-of-fame-induction.html
+
 **Review: A Conductor’s Twist on a Classic Speaks to Freedom Today**\
 `Raphaël Pichon led the Orchestra of St. Luke’s in a take on Beethoven’s Ninth Symphony that, with an added prelude, unfurled as a barrage of ideas.`\
 https://nytimes.com/2025/11/09/arts/music/raphael-pichon-orchestra-st-lukes-beethoven-carnegie-hall-review.html

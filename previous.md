@@ -1,3 +1,7 @@
+**Outkast, the White Stripes and Cyndi Lauper Join the Rock Hall**\
+`Gen X celebrated its heroes at the ceremony, where Soundgarden and Salt-N-Pepa were honored alongside Chubby Checker, Bad Company, Joe Cocker and Warren Zevon.`\
+https://nytimes.com/2025/11/09/arts/music/rock-and-roll-hall-of-fame-induction.html
+
 **Review: A Conductor’s Twist on a Classic Speaks to Freedom Today**\
 `Raphaël Pichon led the Orchestra of St. Luke’s in a take on Beethoven’s Ninth Symphony that, with an added prelude, unfurled as a barrage of ideas.`\
 https://nytimes.com/2025/11/09/arts/music/raphael-pichon-orchestra-st-lukes-beethoven-carnegie-hall-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/09/business/trump-administration-states-undo-full-sn
 **Trump Administration Live Updates: Officials Demand States ‘Undo’ Work to Send Full Food Stamps**\
 ``\
 https://nytimes.com/live/2025/11/09/us/trump-news
-
-**Blues assign rookie Logan Mailloux to AHL Springfield for a 'reset'**\
-`St. Louis' rookie defenseman heads to the minors after a rough start that includes being a healthy scratch in seven of 16 games.`\
-https://nytimes.com/athletic/6790564/2025/11/09/blues-assign-logan-mailloux-ahl/
 
