@@ -1,3 +1,7 @@
+**Former NHLer, Senators GM Mel Bridgman dies at 70**\
+`The No. 1 overall pick in the 1975 amateur draft played 977 games over 14 seasons with the Flyers, Flames, Devils, Red Wings and Canucks.`\
+https://nytimes.com/athletic/6790512/2025/11/08/mel-bridgman-nhl-senators-gm-flyers-dies/
+
 **Shots Fired at Border Patrol Agents in Chicago, Federal Officials Say**\
 `No Border Patrol agents were injured in the incident on Saturday as an immigration enforcement campaign continues in the city.`\
 https://nytimes.com/2025/11/08/us/chicago-border-patrol-agents.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6784512/2025/11/08/chelsea-wolves-analysis-malo-gus
 **Yung Lean Has Love For All SoundCloud Rappers**\
 `The Swedish rapper Yung Lean emerged more than a decade ago as a teenage internet sensation who found viral and then global fame. After struggling with mental illness and drugs, he’s back now and bigger than ever, with new music, a new film and welcome clarity.`\
 https://nytimes.com/video/podcasts/100000010511823/yung-lean-has-love-for-all-soundcloud-rappers.html
-
-**NWSL commissioner on gender eligibility: 'Our policy is our current practice'**\
-`Berman made her first public comments on NWSL gender eligibility rules since a New York Post op-ed stirred controversy around the issue.`\
-https://nytimes.com/athletic/6790121/2025/11/08/nwsl-commissioner-gender-eligibility-policy/
 
