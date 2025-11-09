@@ -1,3 +1,7 @@
+**Former NFL commissioner Paul Tagliabue dies at 84**\
+`Paul Tagliabue was NFL commissioner from 1989 to 2006.`\
+https://nytimes.com/athletic/6792011/2025/11/09/paul-tagliabue-former-nfl-commissioner-obituary/
+
 **Hamas Hands Over Body of Israeli Soldier Held Since 2014**\
 `Hamas returned to Israel the remains of Lt. Hadar Goldin, who was killed in a 2014 war in Gaza.`\
 https://nytimes.com/2025/11/09/world/middleeast/hamas-hadar-goldin-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6791915/2025/11/09/mammoth-vs-senators-stream-how-t
 **How to watch Hurricanes vs. Maple Leafs: Time, TV, streaming**\
 `Find out how to watch the Carolina Hurricanes play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6791913/2025/11/09/hurricanes-vs-maple-leafs-stream-how-to-watch-nov-9/
-
-**Confused W. Carolina fans storm field, kicker hoisted despite missed FG in loss**\
-`With Saturday's 49-47 win, Mercer clinched the Southern Conference title and an automatic bid in the FCS playoffs.`\
-https://nytimes.com/athletic/6791737/2025/11/09/mercer-western-carolina-confusing-ending/
 

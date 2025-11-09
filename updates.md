@@ -1,3 +1,7 @@
+**Former NFL commissioner Paul Tagliabue dies at 84**\
+`Paul Tagliabue was NFL commissioner from 1989 to 2006.`\
+https://nytimes.com/athletic/6792011/2025/11/09/paul-tagliabue-former-nfl-commissioner-obituary/
+
 **Hamas Hands Over Body of Israeli Soldier Held Since 2014**\
 `Hamas returned to Israel the remains of Lt. Hadar Goldin, who was killed in a 2014 war in Gaza.`\
 https://nytimes.com/2025/11/09/world/middleeast/hamas-hadar-goldin-israel.html
