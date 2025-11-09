@@ -1,3 +1,11 @@
+**Lane Kiffin, ESPN's GameDay help couples celebrate their joyous days**\
+`Ole Miss coach nearly regrets his photobomb, and a Texas couple goes viral after rescheduling their wedding to see their Red Raiders.`\
+https://nytimes.com/athletic/6790574/2025/11/08/lane-kiffin-espn-gameday-couples-celebrate/
+
+**Bill Belichick, UNC claim second straight ACC win. Could a bowl be in cards for Tar Heels?**\
+`UNC's remaining regular-season games are against Wake Forest, Duke and NC State. The Tar Heels need two wins to get to six victories.`\
+https://nytimes.com/athletic/6790663/2025/11/08/bill-belichick-stanford-unc-score-result/
+
 **Bill Belichick, UNC claim second straight ACC win. Could a bowl be in cards for Tar Heels?**\
 `UNC's remaining regular-season games are against Wake Forest, Duke and NC State. The Tar Heels need two wins to get to six victories.`\
 https://nytimes.com/athletic/6790663/2025/11/08/after-unc-defeats-stanford-are-bill-belichicks-tar-heels-headed-toward-bowl-eligibility/
