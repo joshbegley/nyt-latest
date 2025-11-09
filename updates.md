@@ -1,3 +1,11 @@
+**Banning social media**\
+`More schools and governments are turning to tech bans to try to keep kids off screens. Do they work?`\
+https://nytimes.com/2025/11/09/briefing/banning-social-media.html
+
+**Canadiens show ability to collect points while working on their imperfections**\
+`Montreal once had to be perfect to come out of game with points. That they no longer do may be their biggest sign of growth.`\
+https://nytimes.com/athletic/6791093/2025/11/09/canadiens-mammoth-win-imperfections/
+
 **Firefighter Dies of Heart Attack While Fighting Brooklyn Blaze**\
 `Patrick D. Brady, 42, died while responding to a fire at an apartment building in the Brownsville neighborhood.`\
 https://nytimes.com/2025/11/09/nyregion/nyfd-firefighter-dies-brooklyn-fire.html

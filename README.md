@@ -1,3 +1,15 @@
+**Edwards set to be appointed Wolves head coach, Middlesbrough agree £2m fee**\
+`There is club-to-club agreement over a compensation fee in the region of £2million for the 42-year-old, who previously coached at Wolves.`\
+https://nytimes.com/athletic/6791453/2025/11/09/rob-edwards-wolves-manager-middlesbrough/
+
+**Blues coach Jim Montgomery miffed by no-call on goalie interference leading to OT loss**\
+`The Blues lost 4-3 to Seattle in overtime after the Kraken scored the game-tying goal with 1.9 seconds left on a controversial call.`\
+https://nytimes.com/athletic/6790750/2025/11/09/blues-kraken-goalie-interference-jim-montgomery/
+
+**Mandel's Final Thoughts: How do you beat Indiana? Right now, no one can**\
+`What you need to know about a wild Week 11 in the Big Ten, Texas Tech's statement, ACC chaos, an open Group of 5 race and more.`\
+https://nytimes.com/athletic/6791159/2025/11/09/college-football-scores-results-week-11/
+
 **Banning social media**\
 `More schools and governments are turning to tech bans to try to keep kids off screens. Do they work?`\
 https://nytimes.com/2025/11/09/briefing/banning-social-media.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6790906/2025/11/09/blue-jackets-lose-kirill-marchen
 **Senators notebook: How players adjust to fourth-line rotations, the PK and more**\
 `Also, how do Jordan Spence's defensive rankings compare to his teammates? And a look at improvements on the penalty kill.`\
 https://nytimes.com/athletic/6790070/2025/11/09/sens-notebook-fourth-line-adjustments-pk/
-
-**Why Packers are sticking with kicker Brandon McManus through misses and injury**\
-`McManus missed only two field goals last season, but he's already missed four (that weren't blocked) in 2025.`\
-https://nytimes.com/athletic/6790352/2025/11/09/why-packers-are-sticking-with-kicker-brandon-mcmanus-through-misses-and-injury/
-
-**Canadiens show ability to collect points while working on their imperfections**\
-`Montreal once had to be perfect to come out of game with points. That they no longer do may be their biggest sign of growth.`\
-https://nytimes.com/athletic/6791093/2025/11/09/canadiens-mammoth-win-imperfections/
-
-**'I feel I have more in me': The path to 1,000 games for Wild's Marcus Johansson**\
-`Johansson will enter the 1,000th game of his NHL career when the Wild host the Flames on Sunday with an eight-game point streak.`\
-https://nytimes.com/athletic/6788352/2025/11/09/wild-marcus-johansson-1000-nhl-games/
 
