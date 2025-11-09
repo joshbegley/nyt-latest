@@ -1,5 +1,5 @@
 **Giants' Jaxson Dart exits vs. Bears, being evaluated for a concussion**\
-`Russell Wilson has replaced the rookie dart after he left the game at the start of the fourth quarter.`\
+`Russell Wilson has replaced the rookie Dart after he left the game at the start of the fourth quarter.`\
 https://nytimes.com/athletic/6792425/2025/11/09/jaxson-dart-injury-concussion-giants/
 
 **Paul Tagliabue, Who Led the N.F.L. for 17 Prosperous Years, Dies at 84**\
