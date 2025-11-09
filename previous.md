@@ -1,3 +1,19 @@
+**Trump Administration Live Updates: Flight Disruptions Persist Amid Shutdown**\
+``\
+https://nytimes.com/live/2025/11/09/us/trump-news
+
+**Blues assign rookie Logan Mailloux to AHL Springfield for a 'reset'**\
+`St. Louis' rookie defenseman heads to the minors after a rough start that includes being a healthy scratch in seven of 16 games.`\
+https://nytimes.com/athletic/6790564/2025/11/09/blues-assign-logan-mailloux-ahl/
+
+**When Addiction Treatment Is Involuntary**\
+`Readers respond to a proposal in Utah to forcibly remove homeless people. Also: Stolen treasures; America’s gambling problem; why retire?`\
+https://nytimes.com/2025/11/09/opinion/involuntary-addiction-treatment.html
+
+**On ‘S.N.L.,’ Trump Sidesteps Calamities and Unconscious Visitor**\
+`Nikki Glaser hosted this “Saturday Night Live” episode, while Pete Davidson returned to update viewers on the boat he bought with Colin Jost.`\
+https://nytimes.com/2025/11/09/arts/television/snl-trump-sidesteps-unconscious-man.html
+
 **Until Saturday: 7 takeaways from the play of the year**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6791652/2025/11/09/indiana-penn-state-catch-until-saturday/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/11/09/world/ask-a-correspondent-somini-sengupta-climate
 **How to watch Evansville vs. Iowa women's basketball: Time, TV, streaming**\
 `Find out how to watch the Evansville Purple Aces play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6791588/2025/11/09/evansville-vs-iowa-stream-how-to-watch-nov-9/
-
-**How to watch LSU vs. Georgia Southern women's basketball: Time, TV, streaming**\
-`Find out how to watch the LSU Tigers play the Georgia Southern Eagles, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6791590/2025/11/09/lsu-vs-georgia-southern-stream-how-to-watch-nov-9/
-
-**How to watch Sacred Heart vs. Iowa State women's basketball: Time, TV, streaming**\
-`Find out how to watch the Sacred Heart Pioneers play the Iowa State Cyclones, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6791586/2025/11/09/sacred-heart-vs-iowa-state-stream-how-to-watch-nov-9/
-
-**How to watch Lindenwood (MO) vs. Baylor women's basketball: Time, TV, streaming**\
-`Find out how to watch the Lindenwood (MO) Lions play the Baylor Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6791582/2025/11/09/lindenwood-mo-vs-baylor-stream-how-to-watch-nov-9/
-
-**How to watch USC vs. NC State women's basketball: Time, TV, streaming**\
-`Find out how to watch the USC Trojans play the NC State Lady Wolfpack, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6791580/2025/11/09/usc-vs-nc-state-stream-how-to-watch-nov-9/
 
