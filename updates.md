@@ -1,3 +1,19 @@
+**Falcons-Colts takeaways: Jonathan Taylor's 3 TD day bolsters MVP campaign in Germany**\
+`The victory came nearly one year to the day after Daniel Jones made his final start with the New York Giants in Munich.`\
+https://nytimes.com/athletic/6791776/2025/11/09/falcons-colts-score-result-takeaways-nfl-berlin-germany/
+
+**The Pulse: An all-time catch**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6791062/2025/11/09/was-the-catch-that-kept-indiana-undefeated-the-best-ever/
+
+**Referees botch overtime coin toss in Falcons-Colts game in Berlin, have to re-flip**\
+`Referee Clete Blakeman mistakenly asked the Colts to call the coin toss, despite Indianapolis being the designated home team.`\
+https://nytimes.com/athletic/6792050/2025/11/09/overtime-coin-toss-botched-colts-falcons-berlin/
+
+**Powerful Tornado Leaves Trail of Destruction in Southern Brazil**\
+`The Brazilian authorities said several towns in the state of Paraná were struck by the tornado, which killed at least five people.`\
+https://nytimes.com/video/world/americas/100000010514057/brazil-deadly-tornado-weather.html
+
 **Small Earthquakes Strike San Francisco Bay Area**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/11/09/us/san-ramon-california-earthquake.html
