@@ -1,3 +1,11 @@
+**Frank is not Nuno, even if the parallels were there on Saturday for Spurs**\
+`Like Nuno Espirito Santo in 2021, Frank was jeered over a substitution against Manchester United - but the circumstances are very different`\
+https://nytimes.com/athletic/6787594/2025/11/09/thomas-frank-nuno-tottenham-spurs/
+
+**Inigo Perez interview: The ideas and ambition behind Rayo Vallecano's impressive coach**\
+`Rayo's 37-year-old leader is yet another young, highly-rated Spanish coach from the Basque Country with big ambitions`\
+https://nytimes.com/athletic/6773181/2025/11/09/inigo-perez-la-liga-rayo-iraola-interview/
+
 **Arsenal have two weeks to rest and regroup. The break comes at the perfect time**\
 `The draw at Sunderland showed that Mikel Arteta's squad is being stretched thin. The international window will suit the manager`\
 https://nytimes.com/athletic/6790358/2025/11/09/arsenal-sunderland-mikel-arteta/

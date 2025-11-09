@@ -1,3 +1,11 @@
+**Frank is not Nuno, even if the parallels were there on Saturday for Spurs**\
+`Like Nuno Espirito Santo in 2021, Frank was jeered over a substitution against Manchester United - but the circumstances are very different`\
+https://nytimes.com/athletic/6787594/2025/11/09/thomas-frank-nuno-tottenham-spurs/
+
+**Inigo Perez interview: The ideas and ambition behind Rayo Vallecano's impressive coach**\
+`Rayo's 37-year-old leader is yet another young, highly-rated Spanish coach from the Basque Country with big ambitions`\
+https://nytimes.com/athletic/6773181/2025/11/09/inigo-perez-la-liga-rayo-iraola-interview/
+
 **Arsenal have two weeks to rest and regroup. The break comes at the perfect time**\
 `The draw at Sunderland showed that Mikel Arteta's squad is being stretched thin. The international window will suit the manager`\
 https://nytimes.com/athletic/6790358/2025/11/09/arsenal-sunderland-mikel-arteta/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6789949/2025/11/09/arsenal-chelsea-and-a-key-title-
 **Spain’s True-Crime Capital Is Fed Up**\
 `A decades-old killing in a tiny village in a northern mountain town has turned the village into a destination for true-crime enthusiasts, creating a headache for remaining residents.`\
 https://nytimes.com/2025/11/09/world/europe/spain-tor-sansa-true-crime-carles-porta.html
-
-**Quote of the Day: U.S. Is Accused of Bully Tactics on Climate Rule**\
-`Quotation of the Day for Sunday, November 8, 2025.`\
-https://nytimes.com/2025/11/09/pageoneplus/quote-of-the-day-us-is-accused-of-bully-tactics-on-climate-rule.html
-
-**Corrections: Nov. 9, 2025**\
-`Corrections that appeared in print on Sunday, Nov. 9, 2025.`\
-https://nytimes.com/2025/11/09/pageoneplus/corrections-nov-9-2025.html
 
