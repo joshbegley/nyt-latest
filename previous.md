@@ -1,3 +1,7 @@
+**Arctic Blast Is Sweeping East, Bringing First Snow of the Season**\
+`Temperatures 10 to 20 degrees below normal are expected to reach as deep as the South, forecasters said. Snow is likely in the Great Lakes, parts of the Northeast and the Appalachians.`\
+https://nytimes.com/2025/11/09/weather/cold-snow-weather-forecast.html
+
 **College Football Playoff 2025 projections: Texas Tech, Oregon strengthen CFP chances**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/11/09/college-football-playoff-bracket-projections-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/09/opinion/involuntary-addiction-treatment.html
 **On ‘S.N.L.,’ Trump Sidesteps Calamities and Unconscious Visitor**\
 `Nikki Glaser hosted this “Saturday Night Live” episode, while Pete Davidson returned to update viewers on the boat he bought with Colin Jost.`\
 https://nytimes.com/2025/11/09/arts/television/snl-trump-sidesteps-unconscious-man.html
-
-**Until Saturday: 7 takeaways from the play of the year**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6791652/2025/11/09/indiana-penn-state-catch-until-saturday/
 

@@ -1,3 +1,7 @@
+**Arctic Blast Is Sweeping East, Bringing First Snow of the Season**\
+`Temperatures 10 to 20 degrees below normal are expected to reach as deep as the South, forecasters said. Snow is likely in the Great Lakes, parts of the Northeast and the Appalachians.`\
+https://nytimes.com/2025/11/09/weather/cold-snow-weather-forecast.html
+
 **Spirit's mental preparation for the 'unpredictable' helped secure another dramatic playoff win**\
 `Resiliency is proving to be the Spirit's strong suit. The team has won five extra time playoff games in four years.`\
 https://nytimes.com/athletic/6790558/2025/11/09/washington-spirit-nwsl-playoff-mental-victory/
