@@ -1,3 +1,7 @@
+**2 Major League Baseball Pitchers Are Charged in Gambling Investigation**\
+`Emmanuel Clase and Luis Ortiz, pitchers for the Cleveland Guardians, were charged with sharing inside information about their pitches with bettors. Mr. Ortiz was arrested Sunday.`\
+https://nytimes.com/2025/11/09/nyregion/mlb-pitchers-gambling.html
+
 **Norris wins, Verstappen fights back, Ferrari nightmare: Brazil Grand Prix briefing**\
 `Lando Norris puts himself in a commanding position in the drivers' championship, while Max Verstappen gives a performance for the ages`\
 https://nytimes.com/athletic/6791965/2025/11/09/f1-brazilian-gp-results/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/americas/100000010514057/brazil-deadly-tornado-w
 **Small Earthquakes Strike San Francisco Bay Area**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/11/09/us/san-ramon-california-earthquake.html
-
-**Trump Renews Attacks on Obamacare in New Push Over Government Shutdown**\
-`The president claimed that the Affordable Care Act benefited insurance companies over people, saying he would work with both parties on the issue “once the Government is open.”`\
-https://nytimes.com/2025/11/09/us/politics/trump-shutdown-obamacare.html
 

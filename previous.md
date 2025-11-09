@@ -1,6 +1,6 @@
 **Norris wins, Verstappen fights back, Ferrari nightmare: Brazil Grand Prix briefing**\
 `Lando Norris puts himself in a commanding position in the drivers' championship, while Max Verstappen gives a performance for the ages`\
-https://nytimes.com/athletic/6791965/2025/11/09/brazil-grand-prix-briefing-norris-wins-verstappen-fights-back-ferrari-nightmare/
+https://nytimes.com/athletic/6791965/2025/11/09/f1-brazilian-gp-results/
 
 **A World of Pastries**\
 ``\
@@ -10,7 +10,7 @@ https://nytimes.com/series/world-of-pastries
 `The rapper, whose real name is Rodarius Green, was released on an $8,000 bond. His lawyers said he had been “unjustly profiled.”`\
 https://nytimes.com/2025/11/09/arts/music/rapper-rod-wave-arrest.html
 
-**Man City 3 Liverpool 0 - Should Van Dijk header have stood? Why was Doku so dangerous? Is entertainment back?**\
+**Man City 3 Liverpool 0: Should Van Dijk header have stood? Why was Doku so dangerous? Is entertainment back?**\
 `Jeremy Doku was the star as Manchester City beat Liverpool at the Etihad, but the win did not come without controversy`\
 https://nytimes.com/athletic/6787434/2025/11/09/man-city-liverpool-van-dijk-haaland/
 
