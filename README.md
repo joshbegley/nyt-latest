@@ -1,3 +1,7 @@
+**Medical Helicopter Crashes in Tennessee, Killing One Crew Member**\
+`Two other crew members were critically injured when the helicopter crashed about 30 miles from Nashville. No patients were on board.`\
+https://nytimes.com/2025/11/08/us/medical-helicopter-tennessee-vanderbilt.html
+
 **Messi meets the moment with pressure turned up on his MLS venture in Miami**\
 `A year after an infamous playoff debacle, Inter Miami is advancing – thanks, of course, to the work of its self-aware maestro`\
 https://nytimes.com/athletic/6790819/2025/11/08/lionel-messi-mls-cup-playoffs-inter-miami-nashville-game-3/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6790574/2025/11/08/lane-kiffin-espn-gameday-couples
 **Bill Belichick, UNC claim second straight ACC win. Could a bowl be in cards for Tar Heels?**\
 `UNC's remaining regular-season games are against Wake Forest, Duke and NC State. The Tar Heels need two wins to get to six victories.`\
 https://nytimes.com/athletic/6790663/2025/11/08/bill-belichick-stanford-unc-score-result/
-
-**After acknowledging poor offseason, Matvei Michkov may be ready to break out**\
-`Michkov acknowledged that he could have handled his first NHL offseason differently and didn’t show up to camp in good enough shape.`\
-https://nytimes.com/athletic/6790529/2025/11/08/flyers-matvei-michkov-nhl-offseason/
 
