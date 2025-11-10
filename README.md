@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: Elections, Shutdown, Slang**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/11/10/learning/10StudentNewsQuiz.html
+
 **Luis Ortiz makes first appearance in federal court after charges linked to illegal sports betting**\
 `Ortiz, who prosecutors argued represents a serious flight risk, was released on $500,000 bond and will be arraigned on Wednesday.`\
 https://nytimes.com/athletic/6795843/2025/11/10/luis-ortiz-court-appearance-sports-betting/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/10/travel/marriott-sonder-licensing-bankruptcy.html
 **Why Hockey Goalies Wear Masks**\
 `Did you know that hockey goalies used to not wear masks?`\
 https://nytimes.com/video/the-athletic/100000010446783/why-hockey-goalies-wear-masks.html
-
-**Who is Mike Kafka? Meet the Giants' interim head coach replacing Brian Daboll**\
-`Kafka, a former NFL QB, has a chance to prove what he can do as an NFL head coach. `\
-https://nytimes.com/athletic/6795669/2025/11/10/mike-kafka-replacing-brian-daboll-giants-interim-coach/
 
