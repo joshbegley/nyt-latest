@@ -1,3 +1,11 @@
+**Syria’s President to Meet Trump at White House for First Time**\
+`The visit by President Ahmed al-Shara is another step in the transformation of the former rebel leader once wanted by the United States as a terrorist.`\
+https://nytimes.com/2025/11/10/world/middleeast/syria-president-al-shara-trump-washington.html
+
+**F.B.I. Director Is Said to Have Made a Pledge to Head of MI5, Then Broken It**\
+`The episode has contributed to concerns among intelligence allies that Kash Patel, brash and partisan, is also unpredictable and even unreliable.`\
+https://nytimes.com/2025/11/10/world/europe/kash-patel-fbi-mi5.html
+
 **How to watch Jets vs. Patriots: Time, TV, streaming**\
 `Find out how to watch the New York Jets play the New England Patriots, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6794070/2025/11/10/jets-vs-patriots-stream-how-to-watch-nov-13/
