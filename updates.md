@@ -1,3 +1,7 @@
+**'Like Houdini': Another Caleb Williams magic trick rescues Bears in thrilling win**\
+`A quarterback-led rally from 10 points down in the final minutes propels the Bears to 6-3.`\
+https://nytimes.com/athletic/6793007/2025/11/09/bears-caleb-williams-comeback-vs-giants/
+
 **Forget draft position — the Jets need more wins like these**\
 `A win over the Browns might not be franchise-altering, but it’s exactly the kind of game they’ve made a habit of losing.`\
 https://nytimes.com/athletic/6793193/2025/11/09/new-york-jets-rebuild-browns-win/

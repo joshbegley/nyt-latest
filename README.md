@@ -1,3 +1,15 @@
+**Bills' flaws on painful display as Josh Allen takes more blame than he should**\
+`The Bills' shortcomings are everywhere on the team and the situation is becoming more urgent. `\
+https://nytimes.com/athletic/6793095/2025/11/09/josh-allen-takes-heat-bills-dolphins-struggles/
+
+**The hopeless Browns continue to go backward after falling to the lowly Jets**\
+`Despite the defense doing its part for the majority of the game, Cleveland still found a way to come out on the losing end against New York.`\
+https://nytimes.com/athletic/6793031/2025/11/09/browns-hopeless-loss-jets/
+
+**How to watch Clemson vs. Louisville: Time, TV, streaming**\
+`Find out how to watch the Clemson Tigers play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6793261/2025/11/09/clemson-vs-louisville-stream-how-to-watch-nov-14/
+
 **'Like Houdini': Another Caleb Williams magic trick rescues Bears in thrilling win**\
 `A quarterback-led rally from 10 points down in the final minutes propels the Bears to 6-3.`\
 https://nytimes.com/athletic/6793007/2025/11/09/bears-caleb-williams-comeback-vs-giants/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6792630/2025/11/09/rams-49ers-score-result-takeaway
 **C.J. Gardner-Johnson the defensive difference-maker in Chicago Bears' comeback win**\
 `Newcomer Gardner-Johnson had two sacks and a forced fumble to help the Bears come from behind to defeat the Giants.`\
 https://nytimes.com/athletic/6792947/2025/11/09/bears-cj-gardner-johnson-giants/
-
-**5 Takeaways From This Year’s Grammy Nominations**\
-`Breaking down the story lines to watch for the 2026 awards show, including big nominations for Bad Bunny and Lady Gaga.`\
-https://nytimes.com/2025/11/09/arts/music/grammy-nominations-reaction-popcast.html
-
-**Seahawks-Cardinals takeaways: DeMarcus Lawrence scores twice in Seattle rout**\
-`The Seattle linebacker ties the record with two TDs on defense as Seahawks roll to seventh win in eight games.`\
-https://nytimes.com/athletic/6792831/2025/11/09/cardinals-seahawks-score-result-takeaways-2/
-
-**Lenny Wilkens dies at age 88, leaving behind an unmatched hoops legacy**\
-`Considered one of the greatest players and coaches in league history, Lenny Wilkens leaves behind a remarkable basketball legacy.`\
-https://nytimes.com/athletic/6793070/2025/11/09/lenny-wilkens-supersonics-cavaliers-obituary-nba/
 
