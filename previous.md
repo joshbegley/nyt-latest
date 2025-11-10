@@ -1,3 +1,7 @@
+**From Barriers to Bridges: Can Patents Be a Tool for Progress?**\
+`From car seatbelts to the internet, pooling knowledge has changed the world. Now, a new patent-sharing platform aims to stoke industrial innovation — starting with open access to the formula for a new steel alloy that will enable cleaner aircraft engines.`\
+https://nytimes.com/paidpost/skf/from-barriers-to-bridges-can-patents-be-a-tool-for-progress.html
+
 **Fox News Wanted Greg Gutfeld to Do This Interview. He Wasn’t So Sure.**\
 `Greg Gutfeld, the pugnacious conservative late-night host, talks to David Marchese about his “hierarchy of smears” and the risks of being a scold.`\
 https://nytimes.com/video/podcasts/100000010515264/fox-news-wanted-greg-gutfeld-to-do-this-interview-he-wasnt-so-sure.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6776390/2025/11/10/atp-tour-finals-tennis-sandwich-
 **Why Pelle Lindbergh still resonates with the Flyers, 40 years after his death**\
 `The team continues to honor Lindbergh, who died in a drunk-driving crash in 1985.`\
 https://nytimes.com/athletic/6776815/2025/11/10/pelle-lindbergh-flyers-goalie/
-
-**Canada Olympic bubble watch: What we're hearing about Suzuki, Celebrini, Bedard, more roster hopefuls**\
-`Veterans Brad Marchand and Drew Doughty have firmed up their spots with good starts. What does that mean elsewhere in the lineup?`\
-https://nytimes.com/athletic/6788016/2025/11/10/canada-olympic-roster-bubble-watch/
 

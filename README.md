@@ -1,3 +1,7 @@
+**Kolo Muani to see specialist over jaw injury sustained against Man United**\
+`Kolo Muani sustained the injury in Tottenham's 2-2 draw with Manchester United on Saturday following a collision with Harry Maguire.`\
+https://nytimes.com/athletic/6792548/2025/11/10/kolo-muani-injury-tottenham/
+
 **From Barriers to Bridges: Can Patents Be a Tool for Progress?**\
 `From car seatbelts to the internet, pooling knowledge has changed the world. Now, a new patent-sharing platform aims to stoke industrial innovation — starting with open access to the formula for a new steel alloy that will enable cleaner aircraft engines.`\
 https://nytimes.com/paidpost/skf/from-barriers-to-bridges-can-patents-be-a-tool-for-progress.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6788297/2025/11/10/eagles-packers-monday-night-foot
 **Once a sanctuary for the sandwich generation of men's tennis, the ATP Tour Finals shuts them out**\
 `The ATP Tour Finals was once a showcase for the heirs apparent to the Big Three of men's tennis. Now it is a reminder of what they lack.`\
 https://nytimes.com/athletic/6776390/2025/11/10/atp-tour-finals-tennis-sandwich-generation-men/
-
-**Why Pelle Lindbergh still resonates with the Flyers, 40 years after his death**\
-`The team continues to honor Lindbergh, who died in a drunk-driving crash in 1985.`\
-https://nytimes.com/athletic/6776815/2025/11/10/pelle-lindbergh-flyers-goalie/
 
