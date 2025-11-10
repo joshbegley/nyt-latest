@@ -1,3 +1,7 @@
+**The fall of Brian Daboll: Why the Giants fired their coach now**\
+`Before hiring the next coach, co-owner John Mara needs to take time to reflect on how his once proud franchise has become such a clown show.`\
+https://nytimes.com/athletic/5955545/2025/11/10/why-giants-fired-brian-daboll/
+
 **Christine Pelosi Will Not Run for Her Mother’s House Seat**\
 `Christine Pelosi, a Democratic activist, announced that she will run instead for a California State Senate seat, ending speculation that she would try to succeed Nancy Pelosi in the U.S. House.`\
 https://nytimes.com/2025/11/10/us/christine-nancy-pelosi-house.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6794797/2025/11/10/monday-night-football-youtube-es
 **What I'm hearing on why everybody loves Erik Karlsson, and latest on Penguins trade murmurs**\
 `Karlsson has a mind of his own, and his teammates absolutely love him for it.`\
 https://nytimes.com/athletic/6794689/2025/11/10/penguins-erik-karlsson-trade-rumors-nhl/
-
-**IOC moving towards ban on transgender athletes in women's Olympic events**\
-`In the past, each Olympic sport’s international federation has been allowed to set its own rules on transgender inclusion.`\
-https://nytimes.com/athletic/6795023/2025/11/10/olympics-ioc-transgender-women-ban/
 
