@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: Elections, Shutdown, Slang**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/11/10/learning/10StudentNewsQuiz.html
+
 **Luis Ortiz makes first appearance in federal court after charges linked to illegal sports betting**\
 `Ortiz, who prosecutors argued represents a serious flight risk, was released on $500,000 bond and will be arraigned on Wednesday.`\
 https://nytimes.com/athletic/6795843/2025/11/10/luis-ortiz-court-appearance-sports-betting/
