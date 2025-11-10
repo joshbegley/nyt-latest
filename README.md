@@ -1,3 +1,7 @@
+**James Overy: Man United's 17-year-old in frame for Australia World Cup spot**\
+`Overy, who celebrated his 18th birthday on Sunday, has been called up to the Socceroos squad for November's international break.`\
+https://nytimes.com/athletic/6793952/2025/11/10/manchester-united-overy-australia-world-cup/
+
 **He Was Known for Kleptocratic Rule and Bloodshed. Now He’s a National Hero.**\
 `Indonesia’s president bestowed the honor on the dictator Suharto, who died in 2008, in what many said was a stunning move of revisionist history.`\
 https://nytimes.com/2025/11/10/world/asia/indonesia-suharto-dictator-hero.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6793863/2025/11/10/warriors-spark-draymond-green-wi
 **‘Like It Was the End of the World’: A Million Flee From Typhoon in the Philippines**\
 `Grabbing children and leaving their homes behind, residents evacuated before Typhoon Fung-wong hit.`\
 https://nytimes.com/2025/11/10/world/asia/typhoon-fung-wong-philippines-evacuation.html
-
-**Liverpool's standards have plummeted and pitiful away form is among an array of issues dogging them**\
-`The last time Liverpool lost four successive away Premier League matches was in April 2012. It leaves the defence of their crown in tatters`\
-https://nytimes.com/athletic/6791933/2025/11/10/liverpool-man-city-away-form-slot/
 
