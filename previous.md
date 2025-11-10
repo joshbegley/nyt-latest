@@ -1,5 +1,13 @@
-**Six Takeaways from the Senate Deal to End the Shutdown**\
-`For 40 days, Senator Chuck Schumer kept his caucus unified. But an end approached without Democrats achieving an extension of health insurance subsidies that are scheduled to expire at the end of the year.`\
+**‘The Beast in Me,’ Plus 5 Things to Watch on TV This Week**\
+`The new Netflix series starring Claire Danes airs, and ‘The Golden Bachelor’ wraps up.`\
+https://nytimes.com/2025/11/10/arts/television/the-beast-in-me-plus-5-things-to-watch-on-tv-this-week.html
+
+**The New York Times in Print for Monday, Nov. 10, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/10/todays-new-york-times
+
+**Six Takeaways From the Senate Deal to End the Shutdown**\
+`For 40 days, Senator Chuck Schumer kept his caucus unified. But an end approached without Democrats achieving an extension of expiring health insurance subsidies.`\
 https://nytimes.com/2025/11/10/us/politics/takeaways-senate-democrats-shutdown.html
 
 **Ben Stokes and the debt he owes New Zealand**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6791990/2025/11/10/brighton-crystal-palace-premier-
 **Wallstedt gets second straight start, records first home shutout: Takeaways**\
 `Marcus Johansson also picked up a point in his 1,000th NHL game with plenty of friends and family in attendance.`\
 https://nytimes.com/athletic/6793286/2025/11/10/wild-jesper-wallstedt-shutout-flames/
-
-**Sean Dyche needed this - and so did Nottingham Forest**\
-`There is still much work to do, but this performance and result was proof that things are at least starting to change for the better`\
-https://nytimes.com/athletic/6792084/2025/11/10/nottingham-forest-dyche-leeds/
-
-**Nico O'Reilly thwarted Mohamed Salah like few other full-backs can**\
-`The 20-year-old repaid Pep Guardiola’s faith by doing what a lot of City defenders have struggled with in recent years: keeping Salah quiet`\
-https://nytimes.com/athletic/6792293/2025/11/10/nico-oreilly-man-city-england-salah/
 

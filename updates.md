@@ -1,3 +1,15 @@
+**‘The Beast in Me,’ Plus 5 Things to Watch on TV This Week**\
+`The new Netflix series starring Claire Danes airs, and ‘The Golden Bachelor’ wraps up.`\
+https://nytimes.com/2025/11/10/arts/television/the-beast-in-me-plus-5-things-to-watch-on-tv-this-week.html
+
+**The New York Times in Print for Monday, Nov. 10, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/10/todays-new-york-times
+
+**Six Takeaways From the Senate Deal to End the Shutdown**\
+`For 40 days, Senator Chuck Schumer kept his caucus unified. But an end approached without Democrats achieving an extension of expiring health insurance subsidies.`\
+https://nytimes.com/2025/11/10/us/politics/takeaways-senate-democrats-shutdown.html
+
 **Six Takeaways from the Senate Deal to End the Shutdown**\
 `For 40 days, Senator Chuck Schumer kept his caucus unified. But an end approached without Democrats achieving an extension of health insurance subsidies that are scheduled to expire at the end of the year.`\
 https://nytimes.com/2025/11/10/us/politics/takeaways-senate-democrats-shutdown.html
