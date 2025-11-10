@@ -1,3 +1,19 @@
+**Norway's Schjelderup expects to be convicted for illegally sharing a video**\
+`The 21-year-old Benfica winger said he is likely to receive a suspended sentence "in the near future" for making “a stupid mistake”.`\
+https://nytimes.com/athletic/6794154/2025/11/10/andreas-schjelderup-conviction-video-sentence/
+
+**Inside Real Madrid: Alexander-Arnold's disappointing start continues, Huijsen concerns**\
+`After defeat against Liverpool, Real Madrid's underwhelming week ended with a goalless draw against Rayo Vallecano`\
+https://nytimes.com/athletic/6794115/2025/11/10/real-madrid-alexander-arnold-huijsen/
+
+**Gamma, a PowerPoint for the A.I. Era, Raises $68 Million**\
+`The five-year-old start-up, which has just 52 employees and is profitable, is now valued at $2.1 billion by investors including Andreessen Horowitz.`\
+https://nytimes.com/2025/11/10/business/dealbook/gamma-ai-fundraise.html
+
+**Apollo Global Management become majority shareholder in Atletico Madrid**\
+`The deal sees incumbent CEO Miguel Angel Gil Marin and president Enrique Cerezo remain in their respective positions.`\
+https://nytimes.com/athletic/6791904/2025/11/10/atletico-madrid-apollo-investment/
+
 **Oscar Piastri's Brazil penalty explained: Why one move may cost him the F1 title**\
 `Oscar Piastri’s Formula One championship hopes were dented after a time penalty contributed to a disappointing fifth-place finish`\
 https://nytimes.com/athletic/6793758/2025/11/10/oscar-piastry-brazil-penalty-f1/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6793992/2025/11/10/inside-newcastle-qa-premier-leag
 **Michigan mailbag: What's Sherrone Moore's ceiling? Is Bryce Underwood behind schedule?**\
 `Plus, is Michigan more likely to win a men's basketball national title or beat Ohio State and return to the College Football Playoff?`\
 https://nytimes.com/athletic/6790683/2025/11/10/michigan-football-sherrone-moore-bryce-underwood-2/
-
-**Green 'going really well' as he aims to prove bowling fitness ahead of the Ashes**\
-`The all-rounder has not bowled in a Test match since March 2024 after a back injury but is hoping to contribute 20 overs this week`\
-https://nytimes.com/athletic/6794278/2025/11/10/cameron-green-ashes-western-australia/
-
-**Inside Barcelona: Lewandowski shows his class, but does the defence need fixing?**\
-`Trips to Celta Vigo have often been tough for Barca, but Sunday's 4-2 victory saw Hansi Flick's side cut Real Madrid's La Liga lead`\
-https://nytimes.com/athletic/6794119/2025/11/10/barcelona-celta-la-liga-lewandowski-flick/
-
-**Twins' free-agent targets: 10 hitter fits for a front office shopping in the bargain bin**\
-`Can the Twins find good value and lineup help shopping in the clearance aisle like they did with Harrison Bader last offseason?`\
-https://nytimes.com/athletic/6789408/2025/11/10/10-twins-offense-free-agent-targets/
-
-**Yankees' 10 best free-agent fits include Kyle Tucker, Cody Bellinger, Tatsuya Imai**\
-`The Yankees have key needs to fill in the outfield and bullpen and could use another starter. Here are the free agents who fit best.`\
-https://nytimes.com/athletic/6787957/2025/11/10/yankees-free-agent-targets-best-fits/
 
