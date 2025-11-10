@@ -1,3 +1,7 @@
+**Ravens' defense finds its swagger in win over Vikings: 'We’re starting to hit our stride'**\
+`The play of Baltimore’s much-maligned defense helped carried the victory over Minnesota and got the team even deeper into the playoff mix.`\
+https://nytimes.com/athletic/6793058/2025/11/09/ravens-defense-swagger-win-vikings/
+
 **J.J. McCarthy, Vikings search for answers to pre-snap debacle after loss to Ravens**\
 `McCarthy completed just 20 of his 42 passes for 248 yards, and he wasn't helped by his offense's eight false-start penalties.`\
 https://nytimes.com/athletic/6793114/2025/11/09/vikings-ravens-jj-mccarthy-false-start-penalties/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6793193/2025/11/09/new-york-jets-rebuild-browns-win
 **Jared Goff, Jahmyr Gibbs shine for Lions as Commanders lose fifth straight**\
 `Goff and the Detroit offense went off for 44 points, with Lions coach Dan Campbell's play calling sparking one of their best performances.`\
 https://nytimes.com/athletic/6792903/2025/11/09/lions-commanders-score-result-takeaways/
-
-**2025 NFL Playoff Simulator: Each team’s path to the postseason after surprises in Week 10**\
-`<p>Welcome to The Athletic’s 2025 NFL Playoff Simulator, where you’ll find everything you need to know about all the ways your favorite team&#8217;s season could end, from a No.`\
-https://nytimes.com/athletic/6513952/2025/11/09/2025-nfl-playoff-simulator-path-postseason/
 
