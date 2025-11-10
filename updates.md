@@ -1,3 +1,7 @@
+**Seahawks-Cardinals takeaways: DeMarcus Lawrence scores twice in Seattle rout**\
+`The Seattle linebacker ties the record with two TDs on defense as Seahawks roll to seventh win in eight games.`\
+https://nytimes.com/athletic/6792831/2025/11/09/cardinals-seahawks-score-result-takeaways-2/
+
 **C.J. Gardner-Johnson the defensive difference-maker in Chicago Bears' comeback win**\
 `Newcomer Gardner-Johnson had two sacks and a forced fumble to help the Bears come from behind to defeat the Giants.`\
 https://nytimes.com/athletic/6792947/2025/11/09/bears-cj-gardner-johnson-giants/
