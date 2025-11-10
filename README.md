@@ -1,3 +1,23 @@
+**Ben Stokes and the debt he owes New Zealand**\
+`The England captain's roots are a sense of pride for the people of Christchurch - despite being known as a tearaway as a youngster`\
+https://nytimes.com/athletic/6787539/2025/11/10/ben-stokes-england-captain-ashes-new-zealand/
+
+**Everton were more muscular**\
+`Everton's victory over Fulham was a sign that they and David Moyes are learning and adapting`\
+https://nytimes.com/athletic/6791213/2025/11/10/everton-david-moyes-changes-muscular/
+
+**Malo Gusto. Goalscorer. At last.**\
+`In his 98th appearance for Chelsea, the France right-back did something he had not done in his senior career before - he scored a goal!`\
+https://nytimes.com/athletic/6790780/2025/11/10/malo-gusto-chelsea-goalscorer/
+
+**Leeds United, the mood pendulum, and the looming threat of must-win territory**\
+`Defeat at Forest means Leeds’ next match is virtually a must-win fixture if Daniel Farke hopes to preserve squad and fan morale`\
+https://nytimes.com/athletic/6792376/2025/11/10/leeds-united-premier-league-daniel-farke-nottingham-forest/
+
+**Nuno has given West Ham a workable midfield core**\
+`Nuno has delivered the club's first back-to-back home wins of 2025 - an improved midfield has been key in both games`\
+https://nytimes.com/athletic/6790757/2025/11/10/nuno-west-ham-midfield-potts-paqueta-fernandes/
+
 **Familiarity breeds intent as Brighton find defensive stability in Hurzeler’s unchanged XI**\
 `The 0-0 draw away to rivals Palace marked the first time that Brighton had kept consecutive Premier League clean sheets since February`\
 https://nytimes.com/athletic/6791990/2025/11/10/brighton-crystal-palace-premier-league-fabian-hurzeler/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6792293/2025/11/10/nico-oreilly-man-city-england-sa
 **This Manchester City side have a trait that marks out title winners - that is good news for the WSL**\
 `City are looking like they can also execute Chelsea's proven WSL blueprint of winning even when not at their best`\
 https://nytimes.com/athletic/6792357/2025/11/10/man-city-wsl-title-race/
-
-**Tweaks are not enough. Newcastle have gone soft - a significant reset is needed**\
-`Can Eddie Howe use this two-week international break to prevent their current lack of goal threat becoming entrenched?`\
-https://nytimes.com/athletic/6791037/2025/11/10/newcastle-eddie-howe-reset/
-
-**Canvot is Crystal Palace's short-term Guehi replacement. What about the long term?**\
-`With the captain injured, the French teenager was given his chance against Brighton and responded with an impressive performance`\
-https://nytimes.com/athletic/6785905/2025/11/10/jaydee-canvot-crystal-palace-guehi/
-
-**Are Manchester United getting good at corners?**\
-`United have turned their attacking corners to a point of strength — an unimaginable scenario considering the last seven years`\
-https://nytimes.com/athletic/6791318/2025/11/10/are-manchester-united-getting-good-at-corners/
-
-**John McGinn, Aston Villa legend**\
-`The captain, who achieved a notable milestone last week, has been pivotal to the club's resurgence after a slow start to the season`\
-https://nytimes.com/athletic/6753500/2025/11/10/john-mcginn-aston-villa-legend/
-
-**The Briefing: Did Man City effectively end Liverpool's title hopes? Is Edwards making a mistake?**\
-`Oliver Kay dissects the weekend's main talking points from the Premier League - and there is only one place to start`\
-https://nytimes.com/athletic/6792073/2025/11/10/briefing-manchester-city-liverpool-edwards/
 
