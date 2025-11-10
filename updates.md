@@ -1,3 +1,15 @@
+**Groups Sue to Reverse Trump’s Cuts to Energy Projects in Democratic States**\
+`A lawsuit filed on Monday argued that the president has discriminated against blue states by slashing federal funds for political leverage during the shutdown.`\
+https://nytimes.com/2025/11/10/us/politics/trump-shutdown-cuts-lawsuit.html
+
+**What I'm hearing about the Mets: Pete Alonso scenarios, Kodai Senga trade interest**\
+`Some clubs view Senga as an interesting buy-low candidate after he experienced a trying season.`\
+https://nytimes.com/athletic/6795413/2025/11/10/mets-offseason-pete-alonso-kodai-senga/
+
+**Bonnie Watson Coleman, a Democratic Trailblazer, to Retire From Congress**\
+`Ms. Watson Coleman, 80, the first Black woman to represent New Jersey in Congress, said she would not run for a seventh term in the state’s 12th Congressional District, near Trenton.`\
+https://nytimes.com/2025/11/10/nyregion/bonnie-watson-coleman-retirement-congress.html
+
 **Submit a question for Pete Sampson's Notre Dame football mailbag**\
 `Notre Dame has three weeks left to make its case to the College Football Playoff selection committee. What's on your mind?`\
 https://nytimes.com/athletic/6795564/2025/11/10/submit-a-question-for-pete-sampsons-notre-dame-football-mailbag-3/
