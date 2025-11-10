@@ -1,3 +1,11 @@
+**Texans' last-second touchdown leads to crushing bad beat for Jaguars bettors**\
+`A last-second touchdown in the Jacksonville-Houston game was meaningful to some.`\
+https://nytimes.com/athletic/6794724/2025/11/10/texans-jaguars-bad-beat-betting/
+
+**Recently Ousted Director of Philadelphia Art Museum Sues Over Her Dismissal**\
+`Sasha Suda claims the museum did not have a valid reason for abruptly firing her last week from one of the most prominent jobs in the art world.`\
+https://nytimes.com/2025/11/10/arts/design/philadelphia-art-museum-director-fired-lawsuit.html
+
 **Rescuers Search for Missing Migrants Off Malaysia’s Coast**\
 `Rescuers recovered several bodies near the site of a capsized boat carrying members of the Rohingya ethnic minority, which faces persecution in Myanmar. Another boat carrying hundreds more people was missing, too.`\
 https://nytimes.com/video/world/asia/100000010515647/malaysia-rohingya-migrant-boats.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6794727/2025/11/10/nba-power-rankings-thunder-cavs-
 **Man Utd's Sesko withdraws from Slovenia squad, injury not considered major**\
 `Sesko will remain at Carrington for assessment but is not thought to have suffered a major injury.`\
 https://nytimes.com/athletic/6794159/2025/11/10/benjamin-sesko-manchester-united-injury-news/
-
-**How to watch Trail Blazers vs. Magic: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the Orlando Magic, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6794875/2025/11/10/trail-blazers-vs-magic-stream-how-to-watch-nov-10/
-
-**How to watch Predators vs. Rangers: Time, TV, streaming**\
-`Find out how to watch the Nashville Predators play the New York Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6794873/2025/11/10/predators-vs-rangers-stream-how-to-watch-nov-10/
 
