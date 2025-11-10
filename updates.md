@@ -1,3 +1,15 @@
+**The Commanders have better options than naming their next stadium after President Trump**\
+`Naming their next stadium after Trump, or any other modern pol, would be a cosmically bad decision for Josh Harris and his ownership group.`\
+https://nytimes.com/athletic/6792519/2025/11/10/president-trump-commanders-stadium/
+
+**From sacking to yakking, JJ Watt brings welcome defensive perspective to NFL game analysis**\
+`The move from the field to the studio to the game day TV booth has been seamless for the  future Hall of Famer.`\
+https://nytimes.com/athletic/6790202/2025/11/10/jj-watt-cbs-nfl-tv-analyst/
+
+**Panthers follow bad week with no-show vs. Saints, who dared Bryce Young to beat them**\
+`With the Saints bottling up Rico Dowdle and the Panthers' run game, Bryce Young had just 124 passing yards with an interception.`\
+https://nytimes.com/athletic/6793574/2025/11/10/panthers-lose-bryce-young-offense-saints/
+
 **Eagles at Packers on MNF: Love-Hurts, YouTube TV vs. ESPN, franchise crossovers**\
 `Jalen Hurts and Jordan Love close out Week 10 on "Monday Night Football." Here's a pregame primer with Cheez Whiz and fondue.`\
 https://nytimes.com/athletic/6788297/2025/11/10/eagles-packers-monday-night-football-youtube-espn-watch/
