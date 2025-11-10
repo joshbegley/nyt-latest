@@ -1,3 +1,15 @@
+**Rob Gronkowski to sign one-day contract, officially retire as a Patriot**\
+`The legendary tight end ranks first in Patriots history in receiving TDs, second in receiving yards and fifth in receptions.`\
+https://nytimes.com/athletic/6794819/2025/11/10/rob-gronkowski-patriots-retirement-one-day-contract/
+
+**A Political Litmus Test: Can You Hang With the Boys?**\
+`Zohran Mamdani navigated a media landscape similar to the one that helped Trump win over young men.`\
+https://nytimes.com/2025/11/10/style/zohran-mamdani-podcasts-manosphere.html
+
+**The 20-Somethings Who Raised $121 Million to Build Military Drones**\
+`Neros, a company founded in 2023 by former teenage drone racers, won a coveted Army contract and is gaining popularity in the defense sector.`\
+https://nytimes.com/2025/11/10/business/neros-military-drones.html
+
 **Lionel Messi's secret Camp Nou visit and his 'hope' for a Barcelona return**\
 `The 38-year-old Inter Miami forward was pictured at the Camp Nou on Sunday - but Barca had no idea he was there`\
 https://nytimes.com/athletic/6794096/2025/11/10/lionel-messi-barcelona-return-camp-nou-secret/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/10/arts/music/disintegration-loops-william-basinski.
 **PWHL will play ‘Takeover Tour’ games in Chicago, Dallas, Detroit and more**\
 `The PWHL's third season will include 16 neutral-site games hosted by seven new cities and four returning markets.`\
 https://nytimes.com/athletic/6792584/2025/11/10/pwhl-takeover-tour-2025-26-schedule/
-
-**FPL Gameweek 11 review: Mbeumo’s reliability, Thiago gold and Bournemouth’s blip**\
-`From Thiago’s heroics to Man United’s creative resurgence and Bournemouth’s stumble, here are the FPL storylines from this weekend’s action`\
-https://nytimes.com/athletic/6792413/2025/11/10/fantasy-premier-league-tips-manchester-united-bournemouth/
-
-**Texans' last-second touchdown leads to crushing bad beat for Jaguars bettors**\
-`A last-second touchdown in the Jacksonville-Houston game was meaningful to some.`\
-https://nytimes.com/athletic/6794724/2025/11/10/texans-jaguars-bad-beat-betting/
-
-**Recently Ousted Director of Philadelphia Art Museum Sues Over Her Dismissal**\
-`Sasha Suda claims the museum did not have a valid reason for abruptly firing her last week from one of the most prominent jobs in the art world.`\
-https://nytimes.com/2025/11/10/arts/design/philadelphia-art-museum-director-fired-lawsuit.html
 

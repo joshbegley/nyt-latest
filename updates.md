@@ -1,3 +1,15 @@
+**Rob Gronkowski to sign one-day contract, officially retire as a Patriot**\
+`The legendary tight end ranks first in Patriots history in receiving TDs, second in receiving yards and fifth in receptions.`\
+https://nytimes.com/athletic/6794819/2025/11/10/rob-gronkowski-patriots-retirement-one-day-contract/
+
+**A Political Litmus Test: Can You Hang With the Boys?**\
+`Zohran Mamdani navigated a media landscape similar to the one that helped Trump win over young men.`\
+https://nytimes.com/2025/11/10/style/zohran-mamdani-podcasts-manosphere.html
+
+**The 20-Somethings Who Raised $121 Million to Build Military Drones**\
+`Neros, a company founded in 2023 by former teenage drone racers, won a coveted Army contract and is gaining popularity in the defense sector.`\
+https://nytimes.com/2025/11/10/business/neros-military-drones.html
+
 **Lionel Messi's secret Camp Nou visit and his 'hope' for a Barcelona return**\
 `The 38-year-old Inter Miami forward was pictured at the Camp Nou on Sunday - but Barca had no idea he was there`\
 https://nytimes.com/athletic/6794096/2025/11/10/lionel-messi-barcelona-return-camp-nou-secret/
