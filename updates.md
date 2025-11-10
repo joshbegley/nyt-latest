@@ -1,3 +1,7 @@
+**What I'm hearing on why everybody loves Erik Karlsson, and latest on Penguins trade murmurs**\
+`Karlsson has a mind of his own, and his teammates absolutely love him for it.`\
+https://nytimes.com/athletic/6794689/2025/11/10/penguins-erik-karlsson-trade-rumors-nhl/
+
 **NFL Week 11 odds: These Super Bowl contenders are on a collision course**\
 `Week 11 features some key divisional matchups, the NFL's first game in Spain and a tough test for the Bills.`\
 https://nytimes.com/athletic/6794783/2025/11/10/nfl-week-11-odds-spreads-lions-eagles-chiefs/

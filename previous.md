@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6794783/2025/11/10/nfl-week-11-odds-spreads-lions-e
 `YouTube TV subscribers have been forced to find alternative viewing options amid the streaming service's ongoing dispute with ESPN/Disney.`\
 https://nytimes.com/athletic/6794797/2025/11/10/monday-night-football-youtube-espn-abc/
 
-**What I'm hearing on why everybody loves Erik Karlsson, and the latest on Penguins trade murmurs**\
+**What I'm hearing on why everybody loves Erik Karlsson, and latest on Penguins trade murmurs**\
 `Karlsson has a mind of his own, and his teammates absolutely love him for it.`\
 https://nytimes.com/athletic/6794689/2025/11/10/penguins-erik-karlsson-trade-rumors-nhl/
 
