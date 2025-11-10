@@ -1,3 +1,7 @@
+**Chelsea's Lavia set to miss at least one month with quad injury**\
+`The 21-year-old midfielder sustained the injury in Chelsea's draw against Qarabag in last week's Champions League match.`\
+https://nytimes.com/athletic/6780998/2025/11/10/lavia-injury-news-chelsea/
+
 **Arsenal confirm Katie Reid out with ACL injury**\
 `The 19-year-old England youth international will undergo surgery in the coming days.`\
 https://nytimes.com/athletic/6794655/2025/11/10/arsenal-katie-reid-acl-injury-news/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6794591/2025/11/10/liverpool-goal-man-city-pgmol/
 **Commanders DT Daron Payne suspended 1 game for throwing punch vs. Lions**\
 `Payne can appeal the suspension, but if it stands, it would rule him out for Washington's upcoming game against the Dolphins.`\
 https://nytimes.com/athletic/6794517/2025/11/10/daron-payne-suspended-throwing-punch-lions/
-
-**How Inventors Find Inspiration in Evolution**\
-`Soft batteries and water-walking robots are among the many creations made possible by studying animals and plants.`\
-https://nytimes.com/interactive/2025/11/10/science/biology-evolution-technology.html
 
