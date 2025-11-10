@@ -1,3 +1,7 @@
+**How Syria’s President Transformed His Image**\
+`Syrian President Ahmed al-Shara’s meeting with President Trump in Washington signifies a new turn for al-Shara, a former Islamist rebel leader who was once designated by the United States as a terrorist with a $10 million bounty on his head. Our reporter Christina Goldbaum describes the meeting.`\
+https://nytimes.com/video/world/middleeast/100000010515338/how-syrias-president-transformed-his-image.html
+
 **Weekly Student News Quiz: Elections, Shutdown, Slang**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/11/10/learning/10StudentNewsQuiz.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/10/arts/music/sean-combs-diddy-fort-dix-drug-program
 **Dear Sonder Guest, Your Hotel Is Closed**\
 `Sonder, a short-term rental and boutique hotel company that had a licensing deal with Marriott, abruptly went out of business, stranding guests worldwide.`\
 https://nytimes.com/2025/11/10/travel/marriott-sonder-licensing-bankruptcy.html
-
-**Why Hockey Goalies Wear Masks**\
-`Did you know that hockey goalies used to not wear masks?`\
-https://nytimes.com/video/the-athletic/100000010446783/why-hockey-goalies-wear-masks.html
 
