@@ -1,3 +1,7 @@
+**Designing for a Holy Woman Who Was No Slouch with a Hammer**\
+`The nun known as Mother Carmen is the first female saint from Venezuela. Her portrait and reliquary give some hints as to why.`\
+https://nytimes.com/2025/11/10/arts/design/mother-carmen-saint-design-medallion.html
+
 **A Finnish Textile Artist Takes Rags to Design Riches**\
 `How Eija Rasinmaki reinvented a humble tradition for the modern world.`\
 https://nytimes.com/2025/11/10/style/finland-rag-rugs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6795161/2025/11/10/joe-burrow-injury-update-practic
 **Democrats Didn’t Compromise on the Shutdown. They Collapsed.**\
 `Readers respond to the Democratic defection that may help end the shutdown. Also: The proposed Trump coin; seniors who downsize.`\
 https://nytimes.com/2025/11/10/opinion/shutdown-democrats.html
-
-**Houston leaps over Purdue for No. 1 spot in AP men's poll: Key takeaways**\
-`Houston has been ranked No. 1 at some point in four of the last five seasons.`\
-https://nytimes.com/athletic/6794509/2025/11/10/ap-mens-basketball-top-25-houston-purdue-alabama/
 
