@@ -1,3 +1,11 @@
+**NFL Week 11 odds: These Super Bowl contenders are on a collision course**\
+`Week 11 features some key divisional matchups, the NFL's first game in Spain and a tough test for the Bills.`\
+https://nytimes.com/athletic/6794783/2025/11/10/nfl-week-11-odds-spreads-lions-eagles-chiefs/
+
+**For second straight week, MNF will not be available on YouTube TV**\
+`YouTube TV subscribers have been forced to find alternative viewing options amid the streaming service's ongoing dispute with ESPN/Disney.`\
+https://nytimes.com/athletic/6794797/2025/11/10/monday-night-football-youtube-espn-abc/
+
 **Brian Daboll fired by Giants after nearly 4 seasons amid losing streak**\
 `Offensive coordinator/assistant head coach Mike Kafka takes over as the Giants' interim head coach.`\
 https://nytimes.com/athletic/5953147/2025/11/10/brian-daboll-fired-giants-nfl-news/

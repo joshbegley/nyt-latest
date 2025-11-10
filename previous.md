@@ -1,3 +1,11 @@
+**NFL Week 11 odds: These Super Bowl contenders are on a collision course**\
+`Week 11 features some key divisional matchups, the NFL's first game in Spain and a tough test for the Bills.`\
+https://nytimes.com/athletic/6794783/2025/11/10/nfl-week-11-odds-spreads-lions-eagles-chiefs/
+
+**For second straight week, MNF will not be available on YouTube TV**\
+`YouTube TV subscribers have been forced to find alternative viewing options amid the streaming service's ongoing dispute with ESPN/Disney.`\
+https://nytimes.com/athletic/6794797/2025/11/10/monday-night-football-youtube-espn-abc/
+
 **What I'm hearing on why everybody loves Erik Karlsson, and the latest on Penguins trade murmurs**\
 `Karlsson has a mind of his own, and his teammates absolutely love him for it.`\
 https://nytimes.com/athletic/6794689/2025/11/10/penguins-erik-karlsson-trade-rumors-nhl/
@@ -29,12 +37,4 @@ https://nytimes.com/video/opinion/100000010511115/the-new-democratic-brand.html
 **Fired Director of Philadelphia Art Museum’s Complaint Against the Institution**\
 `Read the complaint filed against the Philadelphia Art Museum.`\
 https://nytimes.com/interactive/2025/11/10/us/l94ck5o8j.html
-
-**Rob Gronkowski to sign one-day contract, officially retire as a Patriot**\
-`The legendary tight end ranks first in Patriots history in receiving TDs, second in receiving yards and fifth in receptions.`\
-https://nytimes.com/athletic/6794819/2025/11/10/rob-gronkowski-patriots-retirement-one-day-contract/
-
-**A Political Litmus Test: Can You Hang With the Boys?**\
-`Zohran Mamdani navigated a media landscape similar to the one that helped Trump win over young men.`\
-https://nytimes.com/2025/11/10/style/zohran-mamdani-podcasts-manosphere.html
 
