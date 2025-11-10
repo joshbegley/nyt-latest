@@ -1,3 +1,7 @@
+**With win over Buccaneers, Patriots show they're one of NFL's top teams**\
+`Rookie running back TreVeyon Henderson had touchdown runs of 55 and 69 yards as the Patriots outplayed one of the NFC's best teams.`\
+https://nytimes.com/athletic/6792859/2025/11/09/patriots-buccaneers-week-10-treveyon-henderson-drake-maye/
+
 **In Alaska and Hawaii, Higher Food Prices Intensify SNAP Anxiety**\
 `Some residents are receiving benefits, but the uncertainty over what will happen over the coming weeks has many worried.`\
 https://nytimes.com/2025/11/09/us/alaska-hawaii-high-food-prices-snap.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/09/obituaries/richie-adubato-dead.html
 **The alleged pitch-rigging scheme of 2 MLB players: Texts, calls and the money trail**\
 `Emmanuel Clase and Luis Ortiz face up to 65 years in prison if convicted.`\
 https://nytimes.com/athletic/6792294/2025/11/09/mlb-clase-ortiz-betting-allegations/
-
-**Unpacking Mamdani’s Viral Victory Speech**\
-`A close annotation of the references, applause lines and barbs in Mayor-elect Zohran Mamdani’s address to his supporters.`\
-https://nytimes.com/interactive/2025/11/09/nyregion/zohran-mamdani-nyc-mayoral-speech.html
 

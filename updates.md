@@ -1,3 +1,7 @@
+**With win over Buccaneers, Patriots show they're one of NFL's top teams**\
+`Rookie running back TreVeyon Henderson had touchdown runs of 55 and 69 yards as the Patriots outplayed one of the NFC's best teams.`\
+https://nytimes.com/athletic/6792859/2025/11/09/patriots-buccaneers-week-10-treveyon-henderson-drake-maye/
+
 **In Alaska and Hawaii, Higher Food Prices Intensify SNAP Anxiety**\
 `Some residents are receiving benefits, but the uncertainty over what will happen over the coming weeks has many worried.`\
 https://nytimes.com/2025/11/09/us/alaska-hawaii-high-food-prices-snap.html
