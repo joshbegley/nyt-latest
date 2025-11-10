@@ -1,3 +1,7 @@
+**'Like Houdini': Another Caleb Williams magic trick rescues Bears in thrilling win**\
+`A quarterback-led rally from 10 points down in the final minutes propels the Bears to 6-3.`\
+https://nytimes.com/athletic/6793007/2025/11/09/bears-caleb-williams-comeback-vs-giants/
+
 **Forget draft position — the Jets need more wins like these**\
 `A win over the Browns might not be franchise-altering, but it’s exactly the kind of game they’ve made a habit of losing.`\
 https://nytimes.com/athletic/6793193/2025/11/09/new-york-jets-rebuild-browns-win/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6792831/2025/11/09/cardinals-seahawks-score-result-
 **Lenny Wilkens dies at age 88, leaving behind an unmatched hoops legacy**\
 `Considered one of the greatest players and coaches in league history, Lenny Wilkens leaves behind a remarkable basketball legacy.`\
 https://nytimes.com/athletic/6793070/2025/11/09/lenny-wilkens-supersonics-cavaliers-obituary-nba/
-
-**In Murashov's debut, Penguins' old guys actually looked their age: Yohe's 10 observations**\
-`The Penguins ran out of gas in the second half despite strong play from Sergei Murashov in his first NHL game.`\
-https://nytimes.com/athletic/6792694/2025/11/09/penguins-sergei-murashov-debut-kings-nhl/
 

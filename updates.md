@@ -1,3 +1,23 @@
+**Forget draft position — the Jets need more wins like these**\
+`A win over the Browns might not be franchise-altering, but it’s exactly the kind of game they’ve made a habit of losing.`\
+https://nytimes.com/athletic/6793193/2025/11/09/new-york-jets-rebuild-browns-win/
+
+**Jared Goff, Jahmyr Gibbs shine for Lions as Commanders lose fifth straight**\
+`Goff and the Detroit offense went off for 44 points, with Lions coach Dan Campbell's play calling sparking one of their best performances.`\
+https://nytimes.com/athletic/6792903/2025/11/09/lions-commanders-score-result-takeaways/
+
+**2025 NFL Playoff Simulator: Each team’s path to the postseason after surprises in Week 10**\
+`<p>Welcome to The Athletic’s 2025 NFL Playoff Simulator, where you’ll find everything you need to know about all the ways your favorite team&#8217;s season could end, from a No.`\
+https://nytimes.com/athletic/6513952/2025/11/09/2025-nfl-playoff-simulator-path-postseason/
+
+**Steph Curry to miss third straight game because of lingering cold**\
+`With Curry out of the lineup recently, the Warriors have struggled to find a solid rhythm offensively. When will he return?`\
+https://nytimes.com/athletic/6793037/2025/11/09/steph-curry-illness-update-warriors-pacers-nba/
+
+**Stafford, Rams cruise over 49ers in key NFC West showdown: Takeaways**\
+`The Rams' offense looked nearly unstoppable as QB threw four touchdowns against San Francisco.`\
+https://nytimes.com/athletic/6792630/2025/11/09/rams-49ers-score-result-takeaways/
+
 **Commanders lose fifth straight as Jared Goff, Jahmyr Gibbs shine for Lions**\
 `Goff and the Detroit offense went off for 44 points, with Lions coach Dan Campbell's play calling sparking one of their best performances.`\
 https://nytimes.com/athletic/6792903/2025/11/09/lions-commanders-score-result-takeaways/
