@@ -1,3 +1,7 @@
+**After sobering loss to Rams, 49ers seek reset as Brock Purdy nears return**\
+`Injuries and inconsistency have the 49ers searching for answers after falling to 6-4, but a favorable schedule offers hope.`\
+https://nytimes.com/athletic/6793302/2025/11/09/san-francisco-49ers-los-angeles-rams-brock-purdy-reset/
+
 **Gotham FC upset No. 1 Current — but don't call them the 'underdog'**\
 `Jaedyn Shaw and Katie Stengel scored in Gotham's 2-1 win over KC Current.`\
 https://nytimes.com/athletic/6793418/2025/11/09/gotham-fc-upset-kansas-city-underdog/

@@ -1,3 +1,7 @@
+**After sobering loss to Rams, 49ers seek reset as Brock Purdy nears return**\
+`Injuries and inconsistency have the 49ers searching for answers after falling to 6-4, but a favorable schedule offers hope.`\
+https://nytimes.com/athletic/6793302/2025/11/09/san-francisco-49ers-los-angeles-rams-brock-purdy-reset/
+
 **In blizzard-like conditions, Atletico Ottawa secures first CPL championship**\
 `The final had to be stopped on five different occasions so snow could be shovelled off key areas, with kickoff delayed for 20 minutes.`\
 https://nytimes.com/athletic/6793327/2025/11/09/atletico-ottawa-cpl-championship-david-rodriguez-snow-blizzard/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/09/sports/lenny-wilkens-dead.html
 **Brian Daboll's days in NY are numbered after Jaxson Dart's concussion, another crushing loss**\
 `Even if Daboll survives the immediate aftermath of Sunday’s debacle, he's not going to be the Giants' head coach much longer. `\
 https://nytimes.com/athletic/6793072/2025/11/09/brian-daboll-ny-giants-jaxon-dart-fired-concussion/
-
-**Bills' flaws on painful display as Josh Allen takes more blame than he should**\
-`The Bills' shortcomings are everywhere on the team and the situation is becoming more urgent following Sunday's loss to the Dolphins. `\
-https://nytimes.com/athletic/6793095/2025/11/09/josh-allen-takes-heat-bills-dolphins-struggles/
 
