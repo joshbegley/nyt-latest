@@ -1,3 +1,11 @@
+**Oscar Piastri's Brazil penalty explained: Why one move may cost him the F1 title**\
+`Oscar Piastri’s Formula One championship hopes were dented after a time penalty contributed to a disappointing fifth-place finish`\
+https://nytimes.com/athletic/6793758/2025/11/10/oscar-piastry-brazil-penalty-f1/
+
+**Green 'going really well' as he aims to prove bowling fitness ahead of the Ashes**\
+`The all-rounder has not bowled in a Test match since March 2024 after a back injury but is hoping to contribute 20 overs this week`\
+https://nytimes.com/athletic/6794278/2025/11/10/cameron-green-ashes-western-australia/
+
 **How Each Senator Voted on a Deal to Advance Toward Ending the Shutdown**\
 `On Sunday the Senate took a crucial step toward reopening the government when a small group of Democrats joined Republicans to advance a bill.`\
 https://nytimes.com/interactive/2025/11/10/us/senate-shutdown-deal-vote.html

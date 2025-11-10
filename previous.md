@@ -1,3 +1,7 @@
+**Oscar Piastri's Brazil penalty explained: Why one move may cost him the F1 title**\
+`Oscar Piastri’s Formula One championship hopes were dented after a time penalty contributed to a disappointing fifth-place finish`\
+https://nytimes.com/athletic/6793758/2025/11/10/oscar-piastry-brazil-penalty-f1/
+
 **How Each Senator Voted on a Deal to Advance Toward Ending the Shutdown**\
 `On Sunday the Senate took a crucial step toward reopening the government when a small group of Democrats joined Republicans to advance a bill.`\
 https://nytimes.com/interactive/2025/11/10/us/senate-shutdown-deal-vote.html
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/6793992/2025/11/10/inside-newcastle-qa-premier-leag
 https://nytimes.com/athletic/6790683/2025/11/10/michigan-football-sherrone-moore-bryce-underwood-2/
 
 **Green 'going really well' as he aims to prove bowling fitness ahead of the Ashes**\
-`The already has not bowled in a Test match since March 2024 after a back injury but is hoping to contribute 20 overs this week`\
+`The all-rounder has not bowled in a Test match since March 2024 after a back injury but is hoping to contribute 20 overs this week`\
 https://nytimes.com/athletic/6794278/2025/11/10/cameron-green-ashes-western-australia/
 
 **Inside Barcelona: Lewandowski shows his class, but does the defence need fixing?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6789408/2025/11/10/10-twins-offense-free-agent-targ
 **Yankees' 10 best free-agent fits include Kyle Tucker, Cody Bellinger, Tatsuya Imai**\
 `The Yankees have key needs to fill in the outfield and bullpen and could use another starter. Here are the free agents who fit best.`\
 https://nytimes.com/athletic/6787957/2025/11/10/yankees-free-agent-targets-best-fits/
-
-**TAFC: Diaz goal that defied geometry, Messi stars as Inter Miami win play-off**\
-`Today in TAFC: 'Genius' Diaz and a goal scored from a 1.8-degree angle. Plus: Messi sees Inter Miami through, illegal streaming's rise in UK`\
-https://nytimes.com/athletic/6794037/2025/11/10/luis-diaz-bayern-munich-goal-messi-play-offs/
 
