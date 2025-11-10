@@ -1,3 +1,7 @@
+**An A.I. Machine That Passes the Smell Test**\
+`A roving installation uses a detailed questionnaire and artificial intelligence to help consumers concoct their own perfumes.`\
+https://nytimes.com/2025/11/10/fashion/artificial-intelligence-perfume.html
+
 **The fall of Brian Daboll: Why the Giants fired their coach now**\
 `Before hiring the next coach, co-owner John Mara needs to take time to reflect on how his once proud franchise has become such a clown show.`\
 https://nytimes.com/athletic/5955545/2025/11/10/why-giants-fired-brian-daboll/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6794783/2025/11/10/nfl-week-11-odds-spreads-lions-e
 **For second straight week, MNF will not be available on YouTube TV**\
 `YouTube TV subscribers have been forced to find alternative viewing options amid the streaming service's ongoing dispute with ESPN/Disney.`\
 https://nytimes.com/athletic/6794797/2025/11/10/monday-night-football-youtube-espn-abc/
-
-**What I'm hearing on why everybody loves Erik Karlsson, and latest on Penguins trade murmurs**\
-`Karlsson has a mind of his own, and his teammates absolutely love him for it.`\
-https://nytimes.com/athletic/6794689/2025/11/10/penguins-erik-karlsson-trade-rumors-nhl/
 
