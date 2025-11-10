@@ -1,3 +1,7 @@
+**Heisman Trophy odds: Mendoza's Heisman moment reshapes the race**\
+`Fernando Mendoza moved up in the Heisman Trophy race after leading Indiana on a last-minute game-winning drive at Penn State.`\
+https://nytimes.com/athletic/6793752/2025/11/10/heisman-trophy-odds-fernando-mendoza-julian-sayin/
+
 **Liverpool contact PGMOL over disallowed goal in Man City defeat**\
 `Liverpool have told PGMOL that they do not accept that the decision on Van Dijk's disallowed goal was arrived at for subjective reasons.`\
 https://nytimes.com/athletic/6794591/2025/11/10/liverpool-goal-man-city-pgmol/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/10/us/politics/supreme-court-mail-ballots-mississipp
 **Early Winter Storm Blasts the Midwest With Snow and Wind**\
 `More than 10 inches of snow was expected to fall in some areas south and west of Lake Michigan. The cold system was expected to move to the Northeast on Tuesday.`\
 https://nytimes.com/2025/11/10/weather/cold-weather-snow-mideast-east-coast.html
-
-**Cleveland has plenty of scoring when healthy. But it needs a dominant Donovan Mitchell**\
-`Could more shots for Donovan Mitchell, even when every starter is healthy, be the key that unlocks postseason success for the Cavaliers? `\
-https://nytimes.com/athletic/6793234/2025/11/10/donovan-mitchell-cavaliers-scoring-leader/
 

@@ -1,3 +1,7 @@
+**Heisman Trophy odds: Mendoza's Heisman moment reshapes the race**\
+`Fernando Mendoza moved up in the Heisman Trophy race after leading Indiana on a last-minute game-winning drive at Penn State.`\
+https://nytimes.com/athletic/6793752/2025/11/10/heisman-trophy-odds-fernando-mendoza-julian-sayin/
+
 **Liverpool contact PGMOL over disallowed goal in Man City defeat**\
 `Liverpool have told PGMOL that they do not accept that the decision on Van Dijk's disallowed goal was arrived at for subjective reasons.`\
 https://nytimes.com/athletic/6794591/2025/11/10/liverpool-goal-man-city-pgmol/
