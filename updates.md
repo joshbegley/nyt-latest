@@ -1,3 +1,7 @@
+**'Like Houdini': Another Caleb Williams magic trick rescues Bears in thrilling win**\
+`A quarterback-led rally from 10 points down in the final minutes propelled the Bears to 6-3.`\
+https://nytimes.com/athletic/6793007/2025/11/09/bears-caleb-williams-comeback-vs-giants/
+
 **Brian Daboll's days in NY are numbered after Jaxson Dart's concussion, another crushing loss**\
 `Even if Daboll survives the immediate aftermath of Sunday’s debacle, Chicago will be the site of death for another Giants’ coaching tenure.`\
 https://nytimes.com/athletic/6793072/2025/11/09/brian-daboll-ny-giants-jaxon-dart-fired-concussion/
