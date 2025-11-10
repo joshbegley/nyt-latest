@@ -1,3 +1,7 @@
+**Chiefs' Josh Simmons returns to practice this week. Will he start vs. Broncos?**\
+`Chiefs coach Andy Reid said the team will take a wait-and-see approach as their first-round pick  returns to the team.`\
+https://nytimes.com/athletic/6795167/2025/11/10/chiefs-josh-simmons-returns-to-practice-this-week-will-he-start-vs-broncos/
+
 **The Windup: The indictment against Clase and Ortiz is *bad* bad**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6795165/2025/11/10/mlb-gambling-indictment-clase-ortiz-the-windup/
