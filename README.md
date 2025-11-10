@@ -1,3 +1,19 @@
+**Everton mailbag: Send your questions to Patrick Boyland**\
+`Send us your questions and Patrick Boyland will respond to as many as he can in an article later this week`\
+https://nytimes.com/athletic/6794381/2025/11/10/everton-mailbag-moyes-grealish-barry-beto/
+
+**Sanders Looks to Flex the Left’s Power With Senate Endorsement in Minnesota**\
+`Senator Bernie Sanders is backing Lt. Gov. Peggy Flanagan in her state’s Democratic primary race for Senate, his latest attempt to pull the party to the left.`\
+https://nytimes.com/2025/11/10/us/politics/bernie-sanders-peggy-flanagan-michigan-senate-endorsement.html
+
+**Kimi Antonelli keeps delivering on the hype — this time by beating Max Verstappen**\
+`Kimi Antonelli wasn't perfect in Brazil, but he should pause to celebrate an impressive weekend of racing`\
+https://nytimes.com/athletic/6792415/2025/11/10/kimi-antonelli-brazil-gp-max-verstappen-f1/
+
+**U.S. Military Kills 6 in Strikes on Suspected Drug Boats, Hegseth Says**\
+`The latest strikes raised the death toll in the campaign to 76 people in 19 attacks in the Pacific and the Caribbean Sea since early September.`\
+https://nytimes.com/2025/11/10/us/politics/us-boat-strike-deaths-hegseth.html
+
 **Corrections: Nov. 8, 2025**\
 `Corrections that appeared in print on Saturday, Nov. 8, 2025.`\
 https://nytimes.com/2025/11/10/pageoneplus/corrections-nov-8-2025.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/11/10/world/asia/thailand-cambodia-peace-talks-trump.ht
 **USMNT Player Tracker: Pulisic returns, Agyemang has lift-off and Balogun's moment of madness**\
 `The weekend action also saw a nasty clash of heads for Tyler Adams and Aidan Morris putting the departure of his Boro manager behind him`\
 https://nytimes.com/athletic/6794207/2025/11/10/pulisic-usmnt-agyemang-pochettino-balogun/
-
-**NBA Rewind: A 'strategy' to stop Victor Wembanyama? Good luck with all that**\
-`Zach Harper reviews the week that was, including which teams are hot and not, and which ones have excelled in the clutch so far.`\
-https://nytimes.com/athletic/6784372/2025/11/10/nba-rewind-victor-wembanyama-cavs-pistons-rockets/
-
-**David Ellison, Scott Bessent, Erika Kirk and More at the DealBook Summit**\
-`The conference on Dec. 3 will bring together the biggest names in business, politics and culture.`\
-https://nytimes.com/2025/11/10/business/dealbook/ellison-bessent-kirk-dealbook-summit.html
-
-**What I'm seeing during the Pistons' best 10-game start in 20 years**\
-`Ascensions by Cade Cunningham and Jalen Duren, defensive toughness and other factors have fueled a six-game winning streak.`\
-https://nytimes.com/athletic/6792685/2025/11/10/detroit-pistons-best-10-game-start-cade-cunningham/
-
-**Celtics' Jordan Walsh messes game up for the Magic, just like he wanted to do**\
-`Walsh splashed home a game-sealing 3-pointer with the Celtics ahead by two points late in the final minute after earning crunch-time minutes`\
-https://nytimes.com/athletic/6793699/2025/11/10/celtics-jordan-walsh-magic-career-high/
 
