@@ -1,3 +1,7 @@
+**The BBC Under Fire**\
+`President Trump is threatening to sue, and that’s just one of the broadcaster’s problems.`\
+https://nytimes.com/2025/11/10/world/bbc-trump-syria-new-delhi.html
+
 **With Jiri Kulich's blood clot Sabres' latest injury, will Kevyn Adams make a move?**\
 `Beset by injuries, can the Sabres hang in the playoff picture without some reinforcements?`\
 https://nytimes.com/athletic/6795559/2025/11/10/jiri-kulich-blood-clot-sabres-trade/

@@ -1,3 +1,7 @@
+**M.L.B. Limits Bets on Individual Pitches After Gambling Charges**\
+`Two Cleveland pitchers were accused of colluding with bettors. The league and its gambling company partners have put a $200 limit on wagers on individual pitches.`\
+https://nytimes.com/2025/11/10/nyregion/mlb-prop-bet-pitches-limits.html
+
 **The BBC Under Fire**\
 `President Trump is threatening to sue, and that’s just one of the broadcaster’s problems.`\
 https://nytimes.com/2025/11/10/world/bbc-trump-syria-new-delhi.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6795413/2025/11/10/mets-offseason-pete-alonso-kodai
 **Submit a question for Pete Sampson's Notre Dame football mailbag**\
 `Notre Dame has three weeks left to make its case to the College Football Playoff selection committee. What's on your mind?`\
 https://nytimes.com/athletic/6795564/2025/11/10/submit-a-question-for-pete-sampsons-notre-dame-football-mailbag-3/
-
-**Microbets, Parlays and Prop Bets: A Guide to the M.L.B. Gambling Scandal**\
-`Federal prosecutors say two pitchers for the Cleveland Guardians tipped off bettors about what pitches they would throw, setting up rigged “microbets.”`\
-https://nytimes.com/2025/11/10/nyregion/mlb-nba-gambling-microbets.html
 
