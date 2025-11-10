@@ -1,3 +1,7 @@
+**F.D.A. Will Remove Black Box Warnings From Hormone Treatments for Menopause**\
+`The benefits of hormone replacement have been underappreciated, Dr. Marty Makary, the agency’s commissioner, said on Monday. Critics described evidence for the change as insufficient.`\
+https://nytimes.com/2025/11/10/health/fda-will-remove-black-box-warnings-from-hormone-treatments-for-menopause.html
+
 **Review: Hildegard of Bingen’s Extraordinary Life, on Operatic Scale**\
 `Sarah Kirkland Snider’s gorgeously mesmerizing first opera has both focus and a thematically expansive view of a moment in medieval history.`\
 https://nytimes.com/2025/11/10/arts/music/hildegard-opera-review.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/world/asia/100000010515647/malaysia-rohingya-migrant-b
 **More Flight Troubles Expected Before the Shutdown Ends**\
 `Airlines brace for further chaos, even as eight Democratic senators broke ranks with their party to back a deal that could end the shutdown.`\
 https://nytimes.com/2025/11/10/business/airlines-cancellations-senate-deal.html
-
-**Rest-of-season fantasy football predictions for 'Jamo,' Worthy and more wildcards**\
-`KC Joyner gives rest-of-season predictions for some of fantasy football's biggest question marks, including Xavier Worthy and Woody Marks.`\
-https://nytimes.com/athletic/6794073/2025/11/10/rest-of-season-fantasy-football-predictions-for-jameson-williams-xavier-worthy-and-more-wildcards/
 
