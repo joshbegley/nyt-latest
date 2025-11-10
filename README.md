@@ -1,3 +1,7 @@
+**David Szalay’s ‘Flesh’ Wins 2025 Booker Prize**\
+`The rags-to-riches tale had already made fans of Zadie Smith and Dua Lipa. Roddy Doyle, who chaired the judging panel, called the book “singular” and “extraordinary.”`\
+https://nytimes.com/2025/11/10/books/booker-prize-2025-david-szalay-flesh.html
+
 **Joe Burrow trying to add to his legend with return, but will it matter?**\
 `Burrow might want to be back for a Thanksgiving showdown with the Ravens, but the struggling Bengals defense remains a problem.`\
 https://nytimes.com/athletic/6795697/2025/11/10/joe-burrow-injury-return-bengals-afc-north/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6795245/2025/11/10/michkov-couturier-flyers-comment
 **Groups Sue to Reverse Trump’s Cuts to Energy Projects in Democratic States**\
 `A lawsuit filed on Monday argued that the president has discriminated against blue states by slashing federal funds for political leverage during the shutdown.`\
 https://nytimes.com/2025/11/10/us/politics/trump-shutdown-cuts-lawsuit.html
-
-**What I'm hearing about the Mets: Pete Alonso scenarios, Kodai Senga trade interest**\
-`Some clubs view Senga as an interesting buy-low candidate after he experienced a trying season.`\
-https://nytimes.com/athletic/6795413/2025/11/10/mets-offseason-pete-alonso-kodai-senga/
 

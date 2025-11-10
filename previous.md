@@ -1,3 +1,11 @@
+**Joe Burrow trying to add to his legend with return, but will it matter?**\
+`Burrow might want to be back for a Thanksgiving showdown with the Ravens, but the struggling Bengals defense remains a problem.`\
+https://nytimes.com/athletic/6795697/2025/11/10/joe-burrow-injury-return-bengals-afc-north/
+
+**Heavy Dose of Wet Weather Expected to Soak California**\
+`Forecasters expect the rain to kick off in the north on Wednesday before moving south by Thursday. It brings a risk of flash flooding and landslides.`\
+https://nytimes.com/2025/11/10/weather/atmospheric-river-rain-forecast-california.html
+
 **M.L.B. Limits Bets on Individual Pitches After Gambling Charges**\
 `Two Cleveland pitchers were accused of colluding with bettors. The league and its gambling company partners have put a $200 limit on wagers on individual pitches.`\
 https://nytimes.com/2025/11/10/nyregion/mlb-prop-bet-pitches-limits.html
@@ -29,8 +37,4 @@ https://nytimes.com/2025/11/10/us/politics/trump-shutdown-cuts-lawsuit.html
 **What I'm hearing about the Mets: Pete Alonso scenarios, Kodai Senga trade interest**\
 `Some clubs view Senga as an interesting buy-low candidate after he experienced a trying season.`\
 https://nytimes.com/athletic/6795413/2025/11/10/mets-offseason-pete-alonso-kodai-senga/
-
-**Submit a question for Pete Sampson's Notre Dame football mailbag**\
-`Notre Dame has three weeks left to make its case to the College Football Playoff selection committee. What's on your mind?`\
-https://nytimes.com/athletic/6795564/2025/11/10/submit-a-question-for-pete-sampsons-notre-dame-football-mailbag-3/
 
