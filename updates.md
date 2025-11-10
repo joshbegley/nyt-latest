@@ -1,3 +1,7 @@
+**Brian Daboll's days in NY are numbered after Jaxson Dart's concussion, another crushing loss**\
+`Even if Daboll survives the immediate aftermath of Sunday’s debacle, Chicago will be the site of death for another Giants’ coaching tenure.`\
+https://nytimes.com/athletic/6793072/2025/11/09/brian-daboll-ny-giants-jaxon-dart-fired-concussion/
+
 **Brian Daboll's days in NY are numbered after Jaxson Dart's injury, another crushing loss**\
 `Even if Daboll survives the immediate aftermath of Sunday’s debacle, Chicago will be the site of death for another Giants’ coaching tenure.`\
 https://nytimes.com/athletic/6793072/2025/11/09/brian-daboll-ny-giants-jaxon-dart-fired-concussion/
