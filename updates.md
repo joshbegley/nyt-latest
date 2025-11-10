@@ -1,3 +1,15 @@
+**How to watch Columbia vs. UConn: Time, TV, streaming**\
+`Find out how to watch the Columbia Lions play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6794832/2025/11/10/columbia-vs-uconn-stream-how-to-watch-nov-10/
+
+**How to watch Furman vs. Vanderbilt women's basketball: Time, TV, streaming**\
+`Find out how to watch the Furman Paladins play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6794830/2025/11/10/furman-vs-vanderbilt-stream-how-to-watch-nov-10/
+
+**In West Virginia’s Maternity Deserts, a Midwife Tries to Fill a Void**\
+`Staysha Quentrill is part of a small group trying to revive Appalachia’s tradition of at-home midwifery — in a state where women drive hours for obstetric care.`\
+https://nytimes.com/2025/11/10/well/west-virginia-midwives.html
+
 **Mamdani Fills 2 Top Posts With Government Veteran and Trusted Aide**\
 `Mayor-elect Zohran Mamdani named Dean Fuleihan, a former deputy mayor and budget director, to be his first deputy mayor. Elle Bisgaard-Church will serve as his chief of staff.`\
 https://nytimes.com/2025/11/10/nyregion/mamdani-fuleihan-deputy-mayor.html
