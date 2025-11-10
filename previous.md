@@ -1,3 +1,7 @@
+**In blizzard-like conditions, Atletico Ottawa secures first CPL championship**\
+`The final had to be stopped on five different occasions so snow could be shovelled off key areas, with kickoff delayed for 20 minutes.`\
+https://nytimes.com/athletic/6793327/2025/11/09/atletico-ottawa-cpl-championship-david-rodriguez-snow-blizzard/
+
 **The young Bulls are still searching for their long-term identity on offense**\
 `As angelic as Chicago’s offense appears at its height, turnovers threaten its identity. How can the Bulls fix it?`\
 https://nytimes.com/athletic/6793393/2025/11/09/josh-giddey-bulls-nba-offense/
@@ -31,10 +35,6 @@ https://nytimes.com/2025/11/09/sports/lenny-wilkens-dead.html
 https://nytimes.com/athletic/6793072/2025/11/09/brian-daboll-ny-giants-jaxon-dart-fired-concussion/
 
 **Bills' flaws on painful display as Josh Allen takes more blame than he should**\
-`The Bills' shortcomings are everywhere on the team and the situation is becoming more urgent. `\
+`The Bills' shortcomings are everywhere on the team and the situation is becoming more urgent following Sunday's loss to the Dolphins. `\
 https://nytimes.com/athletic/6793095/2025/11/09/josh-allen-takes-heat-bills-dolphins-struggles/
-
-**The hopeless Browns continue to go backward after falling to the lowly Jets**\
-`Despite the defense doing its part for the majority of the game, Cleveland still found a way to come out on the losing end against New York.`\
-https://nytimes.com/athletic/6793031/2025/11/09/browns-hopeless-loss-jets/
 

@@ -1,3 +1,11 @@
+**In blizzard-like conditions, Atletico Ottawa secures first CPL championship**\
+`The final had to be stopped on five different occasions so snow could be shovelled off key areas, with kickoff delayed for 20 minutes.`\
+https://nytimes.com/athletic/6793327/2025/11/09/atletico-ottawa-cpl-championship-david-rodriguez-snow-blizzard/
+
+**Bills' flaws on painful display as Josh Allen takes more blame than he should**\
+`The Bills' shortcomings are everywhere on the team and the situation is becoming more urgent following Sunday's loss to the Dolphins. `\
+https://nytimes.com/athletic/6793095/2025/11/09/josh-allen-takes-heat-bills-dolphins-struggles/
+
 **The young Bulls are still searching for their long-term identity on offense**\
 `As angelic as Chicago’s offense appears at its height, turnovers threaten its identity. How can the Bulls fix it?`\
 https://nytimes.com/athletic/6793393/2025/11/09/josh-giddey-bulls-nba-offense/
