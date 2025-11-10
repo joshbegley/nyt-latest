@@ -1,3 +1,7 @@
+**James Overy: Man United's 17-year-old in frame for Australia World Cup spot**\
+`Overy, who celebrated his 18th birthday on Sunday, has been called up to the Socceroos squad for November's international break.`\
+https://nytimes.com/athletic/6793952/2025/11/10/manchester-united-overy-australia-world-cup/
+
 **He Was Known for Kleptocratic Rule and Bloodshed. Now He’s a National Hero.**\
 `Indonesia’s president bestowed the honor on the dictator Suharto, who died in 2008, in what many said was a stunning move of revisionist history.`\
 https://nytimes.com/2025/11/10/world/asia/indonesia-suharto-dictator-hero.html
