@@ -1,3 +1,11 @@
+**Twins' free-agent targets: 10 hitter fits for a front office shopping in the bargain bin**\
+`Can the Twins find good value and lineup help shopping in the clearance aisle like they did with Harrison Bader last offseason?`\
+https://nytimes.com/athletic/6789408/2025/11/10/10-twins-offense-free-agent-targets/
+
+**Yankees' 10 best free-agent fits include Kyle Tucker, Cody Bellinger, Tatsuya Imai**\
+`The Yankees have key needs to fill in the outfield and bullpen and could use another starter. Here are the free agents who fit best.`\
+https://nytimes.com/athletic/6787957/2025/11/10/yankees-free-agent-targets-best-fits/
+
 **TAFC: Diaz goal that defied geometry, Messi stars as Inter Miami win play-off**\
 `Today in TAFC: 'Genius' Diaz and a goal scored from a 1.8-degree angle. Plus: Messi sees Inter Miami through, illegal streaming's rise in UK`\
 https://nytimes.com/athletic/6794037/2025/11/10/luis-diaz-bayern-munich-goal-messi-play-offs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6792326/2025/11/10/justin-jefferson-vikings-ravens-
 **Blue Jackets Monday Gathering: Brrrrr. An offensive chill lingers for too many players**\
 `No team had more 15-goal scorers than Columbus last season. The Blue Jackets don't look likely to repeat the feat.`\
 https://nytimes.com/athletic/6791658/2025/11/10/blue-jackets-offensive-chill-brendan-smith/
-
-**The Hawks have a Trae Young problem. How will they solve it?**\
-`The underlying question has grown louder about whether Atlanta could aspire to true contention with Young as a leading man.`\
-https://nytimes.com/athletic/6793414/2025/11/10/trae-young-hawks-trade-future-nba/
-
-**Mike Vrabel's fourth-down decision pays off as Patriots heading in 'right direction'**\
-`Drake Maye's TD pass to Stefon Diggs on fourth-and-1 before halftime validated Vrabel's confidence in his team as the Pats improved to 8-2.`\
-https://nytimes.com/athletic/6791902/2025/11/10/patriots-buccaneers-mike-vrabel-drake-maye-stefon-diggs/
 

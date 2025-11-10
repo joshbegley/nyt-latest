@@ -1,3 +1,11 @@
+**Twins' free-agent targets: 10 hitter fits for a front office shopping in the bargain bin**\
+`Can the Twins find good value and lineup help shopping in the clearance aisle like they did with Harrison Bader last offseason?`\
+https://nytimes.com/athletic/6789408/2025/11/10/10-twins-offense-free-agent-targets/
+
+**Yankees' 10 best free-agent fits include Kyle Tucker, Cody Bellinger, Tatsuya Imai**\
+`The Yankees have key needs to fill in the outfield and bullpen and could use another starter. Here are the free agents who fit best.`\
+https://nytimes.com/athletic/6787957/2025/11/10/yankees-free-agent-targets-best-fits/
+
 **TAFC: Diaz goal that defied geometry, Messi stars as Inter Miami win play-off**\
 `Today in TAFC: 'Genius' Diaz and a goal scored from a 1.8-degree angle. Plus: Messi sees Inter Miami through, illegal streaming's rise in UK`\
 https://nytimes.com/athletic/6794037/2025/11/10/luis-diaz-bayern-munich-goal-messi-play-offs/
