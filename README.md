@@ -1,3 +1,7 @@
+**Stafford, Rams cruise over 49ers in key NFC West showdown: Takeaways**\
+`The Rams offense looked nearly unstoppable as QB threw four touchdowns against San Francisco.`\
+https://nytimes.com/athletic/6792630/2025/11/09/rams-49ers-score-result-takeaways/
+
 **C.J. Gardner-Johnson the defensive difference-maker in Chicago Bears' comeback win**\
 `Newcomer Gardner-Johnson had two sacks and a forced fumble to help the Bears come from behind to defeat the Giants.`\
 https://nytimes.com/athletic/6792947/2025/11/09/bears-cj-gardner-johnson-giants/
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6792967/2025/11/09/key-and-peele-rico-dowdle-aaron-
 `Rookie running back TreVeyon Henderson had touchdown runs of 55 and 69 yards as the Patriots outplayed one of the NFC's best teams.`\
 https://nytimes.com/athletic/6792859/2025/11/09/patriots-buccaneers-week-10-treveyon-henderson-drake-maye/
 
-**In Alaska and Hawaii, Higher Food Prices Intensify SNAP Anxiety**\
-`Some residents are receiving benefits, but the uncertainty over what will happen over the coming weeks has many worried.`\
+**In Alaska and Hawaii, Higher Food Prices Intensified SNAP Anxiety**\
+`Some residents are receiving benefits, but the uncertainty over the past weeks has burdened many in the two states, where the cost of food is the highest in the nation.`\
 https://nytimes.com/2025/11/09/us/alaska-hawaii-high-food-prices-snap.html
 
 **Colts' Jonathan Taylor races past Falcons, into history books to help keep Indy atop AFC**\
 `Taylor boosted his MVP candidacy Sunday, rushing for 244 yards and three touchdowns to help paper over Indy's mistakes in a 31-25 OT win.`\
 https://nytimes.com/athletic/6792783/2025/11/09/jonathan-taylor-colts-mvp-history-falcons/
-
-**Bills play like trash against Dolphins, raising postseason doubts**\
-`The Bills were upset after they failed to add players before the trade deadline.`\
-https://nytimes.com/athletic/6792814/2025/11/09/bills-performance-loss-dolphins/
 
