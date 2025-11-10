@@ -1,3 +1,11 @@
+**Syria’s President to Meet Trump at White House for First Time**\
+`The visit by President Ahmed al-Shara is another step in the transformation of the former rebel leader once wanted by the United States as a terrorist.`\
+https://nytimes.com/2025/11/10/world/middleeast/syria-president-al-shara-trump-washington.html
+
+**F.B.I. Director Is Said to Have Made a Pledge to Head of MI5, Then Broken It**\
+`The episode has contributed to concerns among intelligence allies that Kash Patel, brash and partisan, is also unpredictable and even unreliable.`\
+https://nytimes.com/2025/11/10/world/europe/kash-patel-fbi-mi5.html
+
 **How to watch Jets vs. Patriots: Time, TV, streaming**\
 `Find out how to watch the New York Jets play the New England Patriots, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6794070/2025/11/10/jets-vs-patriots-stream-how-to-watch-nov-13/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/10/fashion/sneakers-retro-vintage.html
 **Now We Know Trump’s Kryptonite**\
 `Democratic election victories should kill the myth that Trumpism is invincible.`\
 https://nytimes.com/2025/11/10/opinion/how-to-defeat-trump.html
-
-**Remembering Veterans, and Some of the Vehicles They Drove**\
-`Dragon Wagons, rare World War II trucks, are a part of military history, and there’s one parked on Long Island.`\
-https://nytimes.com/2025/11/10/nyregion/veterans-day-military-vehicles.html
-
-**Before Bad Bunny, the World Had Juan Gabriel**\
-`The transgressive icon of Mexican music, who died in 2016, still has millions of fans. On Saturday, more than 170,000 filled Mexico City’s central plaza to watch footage of a landmark concert.`\
-https://nytimes.com/2025/11/10/world/americas/juan-gabriel-mexico.html
 

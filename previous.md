@@ -1,3 +1,11 @@
+**How to watch Jets vs. Patriots: Time, TV, streaming**\
+`Find out how to watch the New York Jets play the New England Patriots, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6794070/2025/11/10/jets-vs-patriots-stream-how-to-watch-nov-13/
+
+**New-look Dan Campbell gives Lions' offense jump-start in perhaps a season-defining move**\
+`With Campbell calling plays, the Lions piled up 546 total yards and scored on every possession other than their final one of the game.`\
+https://nytimes.com/athletic/6793380/2025/11/10/lions-dan-campbell-play-calling-offense-commanders/
+
 **Democrats Were on a Roll. Why Stop Now?**\
 `This is how the shutdown ends?`\
 https://nytimes.com/2025/11/10/opinion/government-shutdown-democrats-republicans.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/10/nyregion/veterans-day-military-vehicles.html
 **Before Bad Bunny, the World Had Juan Gabriel**\
 `The transgressive icon of Mexican music, who died in 2016, still has millions of fans. On Saturday, more than 170,000 filled Mexico City’s central plaza to watch footage of a landmark concert.`\
 https://nytimes.com/2025/11/10/world/americas/juan-gabriel-mexico.html
-
-**Magazine Covers Good Enough to Eat**\
-`For this month’s feature on pastries, T commissioned three artists to make original works. Here, they share their inspirations.`\
-https://nytimes.com/2025/11/10/t-magazine/winter-travel-issue-covers.html
-
-**Prison Guards Shaved His Dreadlocks. The Supreme Court Will Decide if He Can Sue.**\
-`Lower courts condemned the treatment of Damon Landor, a Rastafarian, but found that a federal law protecting religious rights barred him from suing prison officials for money.`\
-https://nytimes.com/2025/11/10/us/supreme-court-dreadlocks-prisoner.html
 
