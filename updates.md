@@ -1,3 +1,7 @@
+**How Syria’s President Transformed His Image**\
+`Syrian President Ahmed al-Shara’s meeting with President Trump in Washington signifies a new turn for al-Shara, a former Islamist rebel leader who was once designated by the United States as a terrorist with a $10 million bounty on his head. Our reporter Christina Goldbaum describes the meeting.`\
+https://nytimes.com/video/world/middleeast/100000010515338/how-syrias-president-transformed-his-image.html
+
 **Weekly Student News Quiz: Elections, Shutdown, Slang**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/11/10/learning/10StudentNewsQuiz.html
