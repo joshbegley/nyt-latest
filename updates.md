@@ -1,4 +1,8 @@
 **Fox News Wanted Greg Gutfeld to Do This Interview. He Wasn’t So Sure.**\
+`Greg Gutfeld, the pugnacious conservative late-night host, talks to David Marchese about his “hierarchy of smears” and the risks of being a scold.`\
+https://nytimes.com/video/podcasts/100000010515264/fox-news-wanted-greg-gutfeld-to-do-this-interview-he-wasnt-so-sure.html
+
+**Fox News Wanted Greg Gutfeld to Do This Interview. He Wasn’t So Sure.**\
 `The pugnacious conservative late-night host talks to David Marchese about his “hierarchy of smears” and the risks of being a scold.`\
 https://nytimes.com/video/podcasts/100000010515264/fox-news-wanted-greg-gutfeld-to-do-this-interview-he-wasnt-so-sure.html
 
