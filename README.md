@@ -1,3 +1,7 @@
+**On Sunday night, the Steelers got Aaron Rodgers at his worst**\
+`Pittsburgh's offense produced little more than a garbage-time touchdown in a lopsided loss.`\
+https://nytimes.com/athletic/6793877/2025/11/10/aaron-rodgers-worst-game-pittsburgh-steelers-chargers/
+
 **The Commanders have better options than naming their next stadium after President Trump**\
 `Naming their next stadium after Trump, or any other modern pol, would be a cosmically bad decision for Josh Harris and his ownership group.`\
 https://nytimes.com/athletic/6792519/2025/11/10/president-trump-commanders-stadium/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6793683/2025/11/10/maple-leafs-craig-berube-frustra
 **Norris seized F1 title control in Brazil, but Verstappen's heroics will keep him on edge**\
 `The Brit has done well to capitalize on Piastri’s errors and ensure another Brazil drive for the ages by Verstappen could not derail him`\
 https://nytimes.com/athletic/6792412/2025/11/10/lando-norris-f1-points-lead-over-max-verstappen/
-
-**The 'nerd' with the 'it factor' : Inside the rapid rise of Christian Parker, from Packers to Eagles**\
-`Parker has impressed at every stop since he was in his early 20s.`\
-https://nytimes.com/athletic/6793306/2025/11/10/eagles-packers-christian-parker-coach-jaire-alexander/
 
