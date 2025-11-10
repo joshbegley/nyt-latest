@@ -1,3 +1,7 @@
+**Kolo Muani to see specialist over jaw injury sustained against Man United**\
+`Kolo Muani sustained the injury in Tottenham's 2-2 draw with Manchester United on Saturday following a collision with Harry Maguire.`\
+https://nytimes.com/athletic/6792548/2025/11/10/kolo-muani-injury-tottenham/
+
 **From Barriers to Bridges: Can Patents Be a Tool for Progress?**\
 `From car seatbelts to the internet, pooling knowledge has changed the world. Now, a new patent-sharing platform aims to stoke industrial innovation — starting with open access to the formula for a new steel alloy that will enable cleaner aircraft engines.`\
 https://nytimes.com/paidpost/skf/from-barriers-to-bridges-can-patents-be-a-tool-for-progress.html
