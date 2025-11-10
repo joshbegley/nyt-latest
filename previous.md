@@ -1,42 +1,40 @@
+**Fulham's top scorer is… own goals. They are in trouble**\
+`The Premier League has gone all 1990s — an era where Fulham weren’t in it — and they are struggling to compete`\
+https://nytimes.com/athletic/6790325/2025/11/10/fulham-marco-silva-own-goals-trouble/
+
+**Dan Ballard, a Glossop tripe-dresser and the Hill-Woods who link two Arsenal records 122 years apart**\
+`Arsenal's clean-sheet record came to an end on Saturday, and there are some surprising links to a similar run in 1903…`\
+https://nytimes.com/athletic/6791516/2025/11/10/arsenal-defensive-record-glossop/
+
+**Fantasy football Week 10 takeaways: Jahmyr Gibbs bounces back, TreVeyon breaks out**\
+`Michael Salfino shares his observations for Week 10, including a long-awaited breakout effort from New England rookie TreVeyon Henderson.`\
+https://nytimes.com/athletic/6793387/2025/11/10/fantasy-football-week-10-takeaways-gibs-treveyon-breakout/
+
+**‘Gandalf’ the Medical Marijuana Grower: Folk Hero or Criminal?**\
+`A police raid and criminal case against a longtime cultivator of cannabis in New Zealand’s Northland region has stirred up debates about medicinal marijuana.`\
+https://nytimes.com/2025/11/10/world/asia/medical-marijuana-new-zealand-gandalf.html
+
+**Quote of the Day: New Chatbots, Forged in Bias, Tangle What Is Fact or Fiction**\
+`Quotation of the Day for November 10, 2025.`\
+https://nytimes.com/2025/11/10/pageoneplus/quote-of-the-day-new-chatbots-forged-in-bias-tangle-what-is-fact-or-fiction.html
+
+**No Corrections: Nov. 10, 2025**\
+`No corrections appeared in print on Monday, Nov. 10, 2025.`\
+https://nytimes.com/2025/11/10/pageoneplus/no-corrections-nov-10-2025.html
+
+**Glass Skin and Snail Mucin: South Korea’s Journey to Global Beauty Power**\
+`Propelled by interest in all things South Korea, Amorepacific, the cosmetics giant, is expanding its reach into the United States. But so are many of its competitors.`\
+https://nytimes.com/2025/11/10/business/south-korea-k-beauty-amorepacific.html
+
+**Connections: Sports Edition Coach: Hints for Nov. 10, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6791641/2025/11/10/connections-sports-edition-hints-for-nov-10-2025/
+
+**Steelers-Chargers takeaways: L.A. defense makes it a tough night for Aaron Rodgers**\
+`The future Hall of Fame quarterback had his worst game as a Steeler as the Chargers won 25-10 on Sunday night.`\
+https://nytimes.com/athletic/6793146/2025/11/09/steelers-chargers-score-result-takeaways-sunday-night-football/
+
 **In ‘The Queen of Versailles,’ Kristin Chenoweth Can’t Get Enough**\
 `Material excess can never be too excessive for the central character of this gilded Broadway musical, based on the 2012 film.`\
 https://nytimes.com/2025/11/09/theater/queen-of-versailles-broadway-chenoweth.html
-
-**Hundreds of Migrants Missing Off Malaysia’s Coast**\
-`A boat said to be carrying people from the Rohingya ethnic minority capsized, and another was missing. At least seven bodies were recovered.`\
-https://nytimes.com/2025/11/09/world/asia/malaysia-thailand-migrants-boat.html
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>The Mailbag is your go-to destination this week for inane ACC tiebreakers, CFP scenarios with seven SEC teams and more.</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6793598/2025/11/09/submit-a-question-for-stewart-mandels-college-football-mailbag-322/
-
-**Seahawks earning the right to call themselves elite, and they might be getting better**\
-`In yet another dominant win, the Seahawks showed major progress in one of their weakest areas, again stamping themselves as contenders.`\
-https://nytimes.com/athletic/6793428/2025/11/09/seahawks-cardinals-blowout-run-game/
-
-**After sobering loss to Rams, 49ers seek reset as Brock Purdy nears return**\
-`Injuries and inconsistency have the 49ers searching for answers after falling to 6-4, but a favorable schedule offers hope.`\
-https://nytimes.com/athletic/6793302/2025/11/09/san-francisco-49ers-los-angeles-rams-brock-purdy-reset/
-
-**In blizzard-like conditions, Atletico Ottawa secures first CPL championship**\
-`The final had to be stopped on five different occasions so snow could be shovelled off key areas, with kickoff delayed for 20 minutes.`\
-https://nytimes.com/athletic/6793327/2025/11/09/atletico-ottawa-cpl-championship-david-rodriguez-snow-blizzard/
-
-**The young Bulls are trying to master their long-term identity on offense**\
-`As angelic as Chicago’s offense appears at its height, turnovers threaten its identity. How can the Bulls fix it?`\
-https://nytimes.com/athletic/6793393/2025/11/09/josh-giddey-bulls-nba-offense/
-
-**Gotham FC upset No. 1 Current — but don't call them the 'underdog'**\
-`Jaedyn Shaw and Katie Stengel scored in Gotham's 2-1 win over KC Current.`\
-https://nytimes.com/athletic/6793418/2025/11/09/gotham-fc-upset-kansas-city-underdog/
-
-**‘It: Welcome to Derry’ Season 1, Episode 3 Recap: Into the Woods**\
-`Hallorann has a terrifying vision. Gen. Shaw reconnects with an old friend.`\
-https://nytimes.com/2025/11/09/arts/television/it-welcome-to-derry-recap-season-1-episode-3.html
-
-**Second Migrant Child Dies on ‘Reverse Migration’ Boat Route**\
-`A 3-year-old from Colombia died when a boat carrying migrants back to South America capsized off Panama’s Caribbean Coast, an official said. Another child drowned on the same migrant route in February.`\
-https://nytimes.com/2025/11/09/world/americas/migrant-child-drowns-panama.html
 
