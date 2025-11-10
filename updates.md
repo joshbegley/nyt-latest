@@ -1,3 +1,19 @@
+**Burrow cleared to practice: What it means for his potential return**\
+`Cincinnati has 21 days to decide on whether or not Burrow can come back off injured reserve this season.`\
+https://nytimes.com/athletic/6795161/2025/11/10/joe-burrow-injury-update-practice-nfl-news/
+
+**Democrats Didn’t Compromise on the Shutdown. They Collapsed.**\
+`Readers respond to the Democratic defection that may help end the shutdown. Also: The proposed Trump coin; seniors who downsize.`\
+https://nytimes.com/2025/11/10/opinion/shutdown-democrats.html
+
+**Houston leaps over Purdue for No. 1 spot in AP men's poll: Key takeaways**\
+`Houston has been ranked No. 1 at some point in four of the last five seasons.`\
+https://nytimes.com/athletic/6794509/2025/11/10/ap-mens-basketball-top-25-houston-purdue-alabama/
+
+**Fantasy hockey: Rest of season rankings and player projections for 2025-26**\
+`Dom Luszczyszyn offers up his second in-season update to his 2025-26 fantasy hockey rest-of-season rankings and player projections.`\
+https://nytimes.com/athletic/6754590/2025/11/10/fantasy-hockey-rest-of-season-rankings-player-projections-2025-26/
+
 **What I'm hearing on why everybody loves Erik Karlsson, and latest on Penguins trade murmurs**\
 `Karlsson has a mind of his own, and his teammates absolutely love him for it.`\
 https://nytimes.com/athletic/6794689/2025/11/10/penguins-erik-karlsson-trade-rumors-nhl/
