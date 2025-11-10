@@ -1,3 +1,7 @@
+**Filipinos Reel From Destruction Left by Super Typhoon Fung-wong**\
+`Super Typhoon Fung-wong made landfall in the north of the Philippines on Sunday evening, killing at least two people and destroying about a thousand houses. The authorities had preemptively evacuated 1.3 million people.`\
+https://nytimes.com/video/world/asia/100000010515276/super-typhoon-fung-wong-philippines.html
+
 **Chelsea's Lavia set to miss at least one month with quad injury**\
 `The 21-year-old midfielder sustained the injury in Chelsea's draw against Qarabag in last week's Champions League match.`\
 https://nytimes.com/athletic/6780998/2025/11/10/lavia-injury-news-chelsea/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6793752/2025/11/10/heisman-trophy-odds-fernando-men
 **Liverpool contact PGMOL over disallowed goal in Man City defeat**\
 `Liverpool have told PGMOL that they do not accept that the decision on Van Dijk's disallowed goal was arrived at for subjective reasons.`\
 https://nytimes.com/athletic/6794591/2025/11/10/liverpool-goal-man-city-pgmol/
-
-**Commanders DT Daron Payne suspended 1 game for throwing punch vs. Lions**\
-`Payne can appeal the suspension, but if it stands, it would rule him out for Washington's upcoming game against the Dolphins.`\
-https://nytimes.com/athletic/6794517/2025/11/10/daron-payne-suspended-throwing-punch-lions/
 
