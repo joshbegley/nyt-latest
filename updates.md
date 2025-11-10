@@ -1,3 +1,7 @@
+**David Szalay’s ‘Flesh’ Wins 2025 Booker Prize**\
+`The rags-to-riches tale had already made fans of Zadie Smith and Dua Lipa. Roddy Doyle, who chaired the judging panel, called the book “singular” and “extraordinary.”`\
+https://nytimes.com/2025/11/10/books/booker-prize-2025-david-szalay-flesh.html
+
 **Joe Burrow trying to add to his legend with return, but will it matter?**\
 `Burrow might want to be back for a Thanksgiving showdown with the Ravens, but the struggling Bengals defense remains a problem.`\
 https://nytimes.com/athletic/6795697/2025/11/10/joe-burrow-injury-return-bengals-afc-north/
