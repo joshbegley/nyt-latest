@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>The Mailbag is your go-to destination this week for inane ACC tiebreakers, CFP scenarios with seven SEC teams and more.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6793598/2025/11/09/submit-a-question-for-stewart-mandels-college-football-mailbag-322/
+
 **Seahawks earning the right to call themselves elite, and they might be getting better**\
 `In yet another dominant win, the Seahawks showed major progress in one of their weakest areas, again stamping themselves as contenders.`\
 https://nytimes.com/athletic/6793428/2025/11/09/seahawks-cardinals-blowout-run-game/
