@@ -1,3 +1,7 @@
+**Drones Over North Korea Were Part of Martial Law Bid in South, Special Counsel Says**\
+`South Korea’s ousted leader, Yoon Suk Yeol, was accused of trying to stoke military tensions to justify his short-lived martial law last December.`\
+https://nytimes.com/2025/11/10/world/asia/drones-korea-martial-law-yoon.html
+
 **James Overy: Man United's 17-year-old in frame for Australia World Cup spot**\
 `Overy, who celebrated his 18th birthday on Sunday, has been called up to the Socceroos squad for November's international break.`\
 https://nytimes.com/athletic/6793952/2025/11/10/manchester-united-overy-australia-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/10/nyregion/jonathan-braun-resentencing.html
 **Draymond Green's challenge sparks the Warriors to a comfortable win**\
 `With Stephen Curry out and Jonathan Kuminga struggling, Golden State needed a pick-me-up for Sunday's game. Enter Draymond Green.`\
 https://nytimes.com/athletic/6793863/2025/11/10/warriors-spark-draymond-green-win-pacers/
-
-**‘Like It Was the End of the World’: A Million Flee From Typhoon in the Philippines**\
-`Grabbing children and leaving their homes behind, residents evacuated before Typhoon Fung-wong hit.`\
-https://nytimes.com/2025/11/10/world/asia/typhoon-fung-wong-philippines-evacuation.html
 
