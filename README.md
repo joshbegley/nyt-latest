@@ -1,3 +1,7 @@
+**How Each Senator Voted on a Deal to Advance Toward Ending the Shutdown**\
+`On Sunday the Senate took a crucial step toward reopening the government when a small group of Democrats joined Republicans to advance a bill.`\
+https://nytimes.com/interactive/2025/11/10/us/senate-shutdown-deal-vote.html
+
 **The Pulse: The NFL’s randomness peaks**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6793110/2025/11/10/nfl-week-10-takeaways-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6787957/2025/11/10/yankees-free-agent-targets-best-
 **TAFC: Diaz goal that defied geometry, Messi stars as Inter Miami win play-off**\
 `Today in TAFC: 'Genius' Diaz and a goal scored from a 1.8-degree angle. Plus: Messi sees Inter Miami through, illegal streaming's rise in UK`\
 https://nytimes.com/athletic/6794037/2025/11/10/luis-diaz-bayern-munich-goal-messi-play-offs/
-
-**Red Wings are slumping after a hot start. What's changed, and what's next?**\
-`After starting 8-3, the Red Wings have lost four out of five and are struggling to score.`\
-https://nytimes.com/athletic/6792673/2025/11/10/red-wings-slump-special-teams-top-six/
 
