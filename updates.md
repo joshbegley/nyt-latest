@@ -1,3 +1,11 @@
+**He Was Known for Kleptocratic Rule and Bloodshed. Now He’s a National Hero.**\
+`Indonesia’s president bestowed the honor on the dictator Suharto, who died in 2008, in what many said was a stunning move of revisionist history.`\
+https://nytimes.com/2025/11/10/world/asia/indonesia-suharto-dictator-hero.html
+
+**Draymond Green's challenge sparks the Warriors to a comfortable win**\
+`With Stephen Curry out and Jonathan Kuminga struggling, Golden State needed a pick-me-up for Sunday's game. Enter Draymond Green.`\
+https://nytimes.com/athletic/6793863/2025/11/10/warriors-spark-draymond-green-win-pacers/
+
 **Senate Moves Closer to Ending Shutdown**\
 `Eight senators broke from the Democratic caucus and agreed to a deal giving Republicans the 60 votes they needed to end the government shutdown. The measure still needs to be voted on in both chambers of Congress.`\
 https://nytimes.com/video/us/politics/100000010514862/government-shutdown-senate-vote.html
