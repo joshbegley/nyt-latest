@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Michael Gold, Catie Edmondson and Ashley Ahn`\
+https://nytimes.com/live/2025/11/10/us/trump-government-shutdown-news/heres-the-latest
+
+**Trump Administration Live Updates: Senate Deal Puts Government Closer to Reopening**\
+`Eight Democrats joined Republicans to reach a deal that would end the longest government shutdown in history. The measure still needs to be approved by both houses of Congress and signed by President Trump.`\
+https://nytimes.com/live/2025/11/10/us/trump-government-shutdown-news
+
 **What we learned in NFL Week 10: Crowded race atop AFC, Bears find a way**\
 `The leading MVP candidate isn’t a quarterback, the hottest QB in football is 37 years old and the Patriots might have the coach of the year.`\
 https://nytimes.com/athletic/6793263/2025/11/10/nfl-week-10-highlights-colts-patriots-bears/
@@ -29,12 +37,4 @@ https://nytimes.com/issue/todaysinyt/2025/11/10/todays-new-york-times-internatio
 **The WTA Tour tennis season concludes with a thrilling clash of styles set for 2026**\
 `The rising Amanda Anisimova and the resurgent Elena Rybakina will next year meet Iga Świątek's renewed focus on counterpunching.`\
 https://nytimes.com/athletic/6787676/2025/11/10/tennis-wta-tour-best-players-game-styles/
-
-**Syria’s President to Meet Trump at White House for First Time**\
-`The visit by President Ahmed al-Shara is another step in the transformation of the former rebel leader once wanted by the United States as a terrorist.`\
-https://nytimes.com/2025/11/10/world/middleeast/syria-president-al-shara-trump-washington.html
-
-**F.B.I. Director Is Said to Have Made a Pledge to Head of MI5, Then Broken It**\
-`The episode has contributed to concerns among intelligence allies that Kash Patel, brash and partisan, is also unpredictable and even unreliable.`\
-https://nytimes.com/2025/11/10/world/europe/kash-patel-fbi-mi5.html
 
