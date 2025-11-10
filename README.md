@@ -1,4 +1,8 @@
-**Second Migrant Child Killed on ‘Reverse Migration’ Boat Route**\
+**‘It: Welcome to Derry’ Season 1, Episode 3 Recap: Into the Woods**\
+`Hallorann has a terrifying vision. Gen. Shaw reconnects with an old friend.`\
+https://nytimes.com/2025/11/09/arts/television/it-welcome-to-derry-recap-season-1-episode-3.html
+
+**Second Migrant Child Dies on ‘Reverse Migration’ Boat Route**\
 `A 3-year-old from Colombia died when a boat carrying migrants back to South America capsized off Panama’s Caribbean Coast, an official said. Another child drowned on the same migrant route in February.`\
 https://nytimes.com/2025/11/09/world/americas/migrant-child-drowns-panama.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6793261/2025/11/09/clemson-vs-louisville-stream-how
 **'Like Houdini': Another Caleb Williams magic trick rescues Bears in thrilling win**\
 `A quarterback-led rally from 10 points down in the final minutes propelled the Bears to 6-3.`\
 https://nytimes.com/athletic/6793007/2025/11/09/bears-caleb-williams-comeback-vs-giants/
-
-**Forget draft position — the Jets need more wins like these**\
-`A win over the Browns might not be franchise-altering, but it’s exactly the kind of game they’ve made a habit of losing.`\
-https://nytimes.com/athletic/6793193/2025/11/09/new-york-jets-rebuild-browns-win/
 
