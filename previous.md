@@ -1,3 +1,7 @@
+**Rico Dowdle, Aaron Jones show restraint in ‘Key & Peele’-inspired TD celebrations**\
+`After last week's penalty and fine, the Panthers' Dowdle learned his lesson.`\
+https://nytimes.com/athletic/6792967/2025/11/09/key-and-peele-rico-dowdle-aaron-jones-nfl-celebrations/
+
 **With win over Buccaneers, Patriots show they're one of NFL's top teams**\
 `Rookie running back TreVeyon Henderson had touchdown runs of 55 and 69 yards as the Patriots outplayed one of the NFC's best teams.`\
 https://nytimes.com/athletic/6792859/2025/11/09/patriots-buccaneers-week-10-treveyon-henderson-drake-maye/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010514512/typhoon-strikes-philippines
 **Richie Adubato, Coach of Men’s and Women’s Pro Basketball, Dies at 87**\
 `He had a losing record in the N.B.A., but gained acclaim coaching a Liberty team that featured stars like Teresa Weatherspoon and Becky Hammon.`\
 https://nytimes.com/2025/11/09/obituaries/richie-adubato-dead.html
-
-**The alleged pitch-rigging scheme of 2 MLB players: Texts, calls and the money trail**\
-`Emmanuel Clase and Luis Ortiz face up to 65 years in prison if convicted.`\
-https://nytimes.com/athletic/6792294/2025/11/09/mlb-clase-ortiz-betting-allegations/
 

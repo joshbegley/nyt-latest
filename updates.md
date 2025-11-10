@@ -1,3 +1,7 @@
+**Rico Dowdle, Aaron Jones show restraint in ‘Key & Peele’-inspired TD celebrations**\
+`After last week's penalty and fine, the Panthers' Dowdle learned his lesson.`\
+https://nytimes.com/athletic/6792967/2025/11/09/key-and-peele-rico-dowdle-aaron-jones-nfl-celebrations/
+
 **With win over Buccaneers, Patriots show they're one of NFL's top teams**\
 `Rookie running back TreVeyon Henderson had touchdown runs of 55 and 69 yards as the Patriots outplayed one of the NFC's best teams.`\
 https://nytimes.com/athletic/6792859/2025/11/09/patriots-buccaneers-week-10-treveyon-henderson-drake-maye/
