@@ -1,3 +1,7 @@
+**IOC moving towards ban on transgender athletes in women's Olympic events**\
+`In the past, each Olympic sport’s international federation has been allowed to set its own rules on transgender inclusion.`\
+https://nytimes.com/athletic/6795023/2025/11/10/olympics-ioc-transgender-women-ban/
+
 **As Low-Income Shoppers Tighten Belts Further, Businesses Worry**\
 `A delay in SNAP benefits mixed with a decline in foot traffic has many stores, restaurants and food producers concerned about sales.`\
 https://nytimes.com/2025/11/10/business/low-income-shoppers-spending-snap.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/10/style/zohran-mamdani-podcasts-manosphere.html
 **The 20-Somethings Who Raised $121 Million to Build Military Drones**\
 `Neros, a company founded in 2023 by former teenage drone racers, won a coveted Army contract and is gaining popularity in the defense sector.`\
 https://nytimes.com/2025/11/10/business/neros-military-drones.html
-
-**Lionel Messi's secret Camp Nou visit and his 'hope' for a Barcelona return**\
-`The 38-year-old Inter Miami forward was pictured at the Camp Nou on Sunday - but Barca had no idea he was there`\
-https://nytimes.com/athletic/6794096/2025/11/10/lionel-messi-barcelona-return-camp-nou-secret/
 

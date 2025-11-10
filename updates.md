@@ -1,3 +1,15 @@
+**As Low-Income Shoppers Tighten Belts Further, Businesses Worry**\
+`A delay in SNAP benefits mixed with a decline in foot traffic has many stores, restaurants and food producers concerned about sales.`\
+https://nytimes.com/2025/11/10/business/low-income-shoppers-spending-snap.html
+
+**Judge rules statements by driver accused of killing Gaudreau brothers can be used at trial**\
+`Johnny and Matthew Gaudreau were struck and killed while riding bicycles near their childhood home on Aug. 29, 2024.`\
+https://nytimes.com/athletic/6760152/2025/11/10/johnny-gaudreau-driver-judge-statement-trial/
+
+**Brian Daboll fired by Giants after nearly 4 seasons amid losing streak**\
+`Mike Kafka takes over as the Giants' interim head coach.`\
+https://nytimes.com/athletic/5953147/2025/11/10/brian-daboll-fired-giants-nfl-news/
+
 **New York Giants fire coach Brian Daboll: Sources**\
 `Daboll finishes his tenure in New York with a 20-40-1 career record.`\
 https://nytimes.com/athletic/5953147/2025/11/10/brian-daboll-fired-giants-nfl-news/

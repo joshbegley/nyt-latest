@@ -1,5 +1,13 @@
-**New York Giants fire coach Brian Daboll: Sources**\
-`Daboll finishes his tenure in New York with a 20-40-1 career record.`\
+**As Low-Income Shoppers Tighten Belts Further, Businesses Worry**\
+`A delay in SNAP benefits mixed with a decline in foot traffic has many stores, restaurants and food producers concerned about sales.`\
+https://nytimes.com/2025/11/10/business/low-income-shoppers-spending-snap.html
+
+**Judge rules statements by driver accused of killing Gaudreau brothers can be used at trial**\
+`Johnny and Matthew Gaudreau were struck and killed while riding bicycles near their childhood home on Aug. 29, 2024.`\
+https://nytimes.com/athletic/6760152/2025/11/10/johnny-gaudreau-driver-judge-statement-trial/
+
+**Brian Daboll fired by Giants after nearly 4 seasons amid losing streak**\
+`Mike Kafka takes over as the Giants' interim head coach.`\
 https://nytimes.com/athletic/5953147/2025/11/10/brian-daboll-fired-giants-nfl-news/
 
 **NFL survivor pool mailbag: Submit your questions for Week 11**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/10/business/neros-military-drones.html
 **Lionel Messi's secret Camp Nou visit and his 'hope' for a Barcelona return**\
 `The 38-year-old Inter Miami forward was pictured at the Camp Nou on Sunday - but Barca had no idea he was there`\
 https://nytimes.com/athletic/6794096/2025/11/10/lionel-messi-barcelona-return-camp-nou-secret/
-
-**Fantasy football Week 10 recap, early waivers speed run: Tez Johnson, Devaughn Vele**\
-`Jake Ciely's Week 10 recap podcast, featuring Tez Johnson as a priority waiver wire add, along with Luther Burden if DJ Moore misses time. `\
-https://nytimes.com/athletic/6794749/2025/11/10/fantasy-football-week-10-recap-early-waivers-speed-run-tez-johnson-devaughn-vele/
-
-**A ‘Missing Piece’ of Harlem Returns, With a Bash**\
-`The Studio Museum welcomed artists from all of its eras to celebrate its new space on West 125th Street.`\
-https://nytimes.com/2025/11/10/style/studio-museum-harlem-building.html
 
