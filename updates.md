@@ -1,3 +1,7 @@
+**Gotham FC upset No. 1 Current — but don't call them the 'underdog'**\
+`Jaedyn Shaw and Katie Stengel scored in Gotham's 2-1 win over KC Current.`\
+https://nytimes.com/athletic/6793418/2025/11/09/gotham-fc-upset-kansas-city-underdog/
+
 **In blizzard-like conditions, Atletico Ottawa secures first CPL championship**\
 `The final had to be stopped on five different occasions so snow could be shovelled off key areas, with kickoff delayed for 20 minutes.`\
 https://nytimes.com/athletic/6793327/2025/11/09/atletico-ottawa-cpl-championship-david-rodriguez-snow-blizzard/
