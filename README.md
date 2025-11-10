@@ -1,8 +1,16 @@
+**Mamdani Announces His Deputy Mayor and Chief of Staff**\
+`New York City Mayor-elect Zohran Mamdani named Dean Fuleihan, a government veteran, to be his first deputy mayor and Elle Bisgaard-Church will serve as his chief of staff.`\
+https://nytimes.com/video/us/elections/100000010516142/mamdani-announces-his-deputy-mayor-and-chief-of-staff.html
+
+**Spending Bill Would Pave Way for Senators to Sue Over Phone Searches**\
+`Republicans have voiced outrage that Jack Smith looked at G.O.P. lawmakers’ phone records surrounding the Jan. 6 attack. Legislation to reopen the government would allow them to sue for $500,000 each.`\
+https://nytimes.com/2025/11/10/us/politics/senators-shutdown-smith-phone-searches.html
+
 **Broncos LB Alex Singleton says cancerous tumor successfully removed**\
 `Singleton posted that the testicular tumor was found after an NFL random drug test.`\
 https://nytimes.com/athletic/6795305/2025/11/10/alex-singletons-cancer-broncos-drug-test/
 
-**Cowboys EVP Stephen Jones on Marshawn Kneeland: 'We're just going to miss him so much'**\
+**Stephen Jones on Marshawn Kneeland's death: 'It's just heartbreaking and tragic'**\
 `Stephen Jones spoke Monday on 105.3 The Fan in Dallas about Kneeland's death: "It’s the worst thing you can imagine.”`\
 https://nytimes.com/athletic/6795152/2025/11/10/marshawn-kneeland-death-cowboys-stephen-jones/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/10/style/finland-rag-rugs.html
 **A Paris Museum Returns to the Scene of the Sublime**\
 `A centenary celebration of Art Deco style recalls an age of opulence.`\
 https://nytimes.com/2025/11/10/arts/design/paris-art-deco-exhibit-centenary.html
-
-**BBC Chair Apologizes After Bias Accusations**\
-`The chair of the BBC board, Samir Shah, apologized on Monday after two top executives resigned over claims of misleading editing of a speech by President Trump.`\
-https://nytimes.com/video/world/europe/100000010515291/bbc-chair-apologizes-after-bias-accusations.html
-
-**An A.I. Machine That Passes the Smell Test**\
-`A roving installation uses a detailed questionnaire and artificial intelligence to help consumers concoct their own perfumes.`\
-https://nytimes.com/2025/11/10/fashion/artificial-intelligence-perfume.html
 
