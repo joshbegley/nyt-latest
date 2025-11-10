@@ -1,3 +1,11 @@
+**Car Explodes in Crowded New Delhi Neighborhood**\
+`The authorities in India said they were investigating the cause of a blast near a busy metro station in the country’s capital that killed at least eight people and left several others injured.`\
+https://nytimes.com/video/world/100000010515652/india-explosion-new-delhi-red-fort.html
+
+**Warren Buffett’s Berkshire Hathaway Farewell: ‘I’m Going Quiet’**\
+`In one of his final missives as the company’s leader, Mr. Buffett said he would accelerate his plans to disburse his fortune to his children’s foundations.`\
+https://nytimes.com/2025/11/10/business/warren-buffett-berkshire-farewell.html
+
 **Designing for a Holy Woman Who Was No Slouch with a Hammer**\
 `The nun known as Mother Carmen is the first female saint from Venezuela. Her portrait and reliquary give some hints as to why.`\
 https://nytimes.com/2025/11/10/arts/design/mother-carmen-saint-design-medallion.html

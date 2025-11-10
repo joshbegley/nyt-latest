@@ -1,3 +1,11 @@
+**Car Explodes in Crowded New Delhi Neighborhood**\
+`The authorities in India said they were investigating the cause of a blast near a busy metro station in the country’s capital that killed at least eight people and left several others injured.`\
+https://nytimes.com/video/world/100000010515652/india-explosion-new-delhi-red-fort.html
+
+**Warren Buffett’s Berkshire Hathaway Farewell: ‘I’m Going Quiet’**\
+`In one of his final missives as the company’s leader, Mr. Buffett said he would accelerate his plans to disburse his fortune to his children’s foundations.`\
+https://nytimes.com/2025/11/10/business/warren-buffett-berkshire-farewell.html
+
 **Designing for a Holy Woman Who Was No Slouch with a Hammer**\
 `The nun known as Mother Carmen is the first female saint from Venezuela. Her portrait and reliquary give some hints as to why.`\
 https://nytimes.com/2025/11/10/arts/design/mother-carmen-saint-design-medallion.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/10/us/christine-nancy-pelosi-house.html
 **Bucks' Taurean Prince out indefinitely with herniated disk**\
 `In 8 games this season, Prince averaged 6.1 points, 1.6 rebounds and 1.0 assists as a reserve wing in Doc Rivers' rotation.`\
 https://nytimes.com/athletic/6795090/2025/11/10/bucks-taurean-prince-out-herniated-disk/
-
-**Burrow cleared to practice: What it means for his potential return**\
-`Cincinnati has 21 days to decide on whether or not Burrow can come back off injured reserve this season.`\
-https://nytimes.com/athletic/6795161/2025/11/10/joe-burrow-injury-update-practice-nfl-news/
-
-**Democrats Didn’t Compromise on the Shutdown. They Collapsed.**\
-`Readers respond to the Democratic defection that may help end the shutdown. Also: The proposed Trump coin; seniors who downsize.`\
-https://nytimes.com/2025/11/10/opinion/shutdown-democrats.html
 
