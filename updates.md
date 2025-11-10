@@ -1,3 +1,11 @@
+**Atalanta sack Juric after 15 games**\
+`Sunday's three-goal home defeat against Sassuolo was Juric's final match in charge of Atalanta — a result which left them 13th in Serie A.`\
+https://nytimes.com/athletic/6794030/2025/11/10/atalanta-manager-sacked-ivan-juric/
+
+**Democrats Are So Angry, One Senator Faces Blowback From Her Daughter**\
+`Senator Jeanne Shaheen of New Hampshire voted to move to end the shutdown. But her daughter Stefany Shaheen, a congressional candidate in their state, sharply criticized the deal.`\
+https://nytimes.com/2025/11/10/us/politics/jeanne-shaheen-stefany-shutdown-deal.html
+
 **A Flood of Green Tech From China Is Upending Global Climate Politics**\
 `At this year’s climate summit, the United States is out and Europe is struggling. But emerging countries are embracing renewable energy thanks to a glut of cheap equipment.`\
 https://nytimes.com/2025/11/10/climate/cop30-belem-climate-energy-technology-china.html

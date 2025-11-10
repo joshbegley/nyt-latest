@@ -1,3 +1,11 @@
+**Atalanta sack Juric after 15 games**\
+`Sunday's three-goal home defeat against Sassuolo was Juric's final match in charge of Atalanta — a result which left them 13th in Serie A.`\
+https://nytimes.com/athletic/6794030/2025/11/10/atalanta-manager-sacked-ivan-juric/
+
+**Democrats Are So Angry, One Senator Faces Blowback From Her Daughter**\
+`Senator Jeanne Shaheen of New Hampshire voted to move to end the shutdown. But her daughter Stefany Shaheen, a congressional candidate in their state, sharply criticized the deal.`\
+https://nytimes.com/2025/11/10/us/politics/jeanne-shaheen-stefany-shutdown-deal.html
+
 **A Flood of Green Tech From China Is Upending Global Climate Politics**\
 `At this year’s climate summit, the United States is out and Europe is struggling. But emerging countries are embracing renewable energy thanks to a glut of cheap equipment.`\
 https://nytimes.com/2025/11/10/climate/cop30-belem-climate-energy-technology-china.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6793864/2025/11/10/canucks-quinn-hughes-colorad-ava
 **Liverpool complain to BBC over Kelvin MacKenzie TV appearance**\
 `MacKenzie was editor of The Sun when it published false and inflammatory reports about the Hillsborough disaster in 1989.`\
 https://nytimes.com/athletic/6794472/2025/11/10/liverpool-complain-kelvin-mackenzie-bbc-hillsborough/
-
-**Filipinos Reel From Destruction Left by Super Typhoon Fung-wong**\
-`Super Typhoon Fung-wong made landfall in the north of the Philippines on Sunday evening, killing at least two people and destroying about a thousand houses. The authorities had preemptively evacuated 1.3 million people.`\
-https://nytimes.com/video/world/asia/100000010515276/super-typhoon-fung-wong-philippines.html
-
-**Chelsea's Lavia set to miss at least one month with quad injury**\
-`The 21-year-old midfielder sustained the injury in Chelsea's draw against Qarabag in last week's Champions League match.`\
-https://nytimes.com/athletic/6780998/2025/11/10/lavia-injury-news-chelsea/
 
