@@ -1,3 +1,7 @@
+**How Each Senator Voted on a Deal to Advance Toward Ending the Shutdown**\
+`On Sunday the Senate took a crucial step toward reopening the government when a small group of Democrats joined Republicans to advance a bill.`\
+https://nytimes.com/interactive/2025/11/10/us/senate-shutdown-deal-vote.html
+
 **The Pulse: The NFL’s randomness peaks**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6793110/2025/11/10/nfl-week-10-takeaways-the-pulse/
