@@ -1,3 +1,15 @@
+**5 Takeaways From This Year’s Grammy Nominations**\
+`Breaking down the story lines to watch for the 2026 awards show, including big nominations for Bad Bunny and Lady Gaga.`\
+https://nytimes.com/2025/11/09/arts/music/grammy-nominations-reaction-popcast.html
+
+**Seahawks-Cardinals takeaways: DeMarcus Lawrence scores twice in Seattle rout**\
+`The Seattle linebacker ties record with two TDs on defense as Seahawks roll to seventh win in eight games.`\
+https://nytimes.com/athletic/6792831/2025/11/09/cardinals-seahawks-score-result-takeaways-2/
+
+**Lenny Wilkens dies at age 88, leaving behind an unmatched hoops legacy**\
+`Considered one of the greatest players and coaches in league history, Lenny Wilkens leaves behind a remarkable basketball legacy.`\
+https://nytimes.com/athletic/6793070/2025/11/09/lenny-wilkens-supersonics-cavaliers-obituary-nba/
+
 **In Murashov's debut, Penguins' old guys actually looked their age: Yohe's 10 observations**\
 `The Penguins ran out of gas in the second half despite strong play from Sergei Murashov in his first NHL game.`\
 https://nytimes.com/athletic/6792694/2025/11/09/penguins-sergei-murashov-debut-kings-nhl/
