@@ -15,7 +15,7 @@ https://nytimes.com/2025/11/10/business/low-income-shoppers-spending-snap.html
 https://nytimes.com/athletic/6760152/2025/11/10/johnny-gaudreau-driver-judge-statement-trial/
 
 **Brian Daboll fired by Giants after nearly 4 seasons amid losing streak**\
-`Mike Kafka takes over as the Giants' interim head coach.`\
+`Offensive coordinator/assistant head coach Mike Kafka takes over as the Giants' interim head coach.`\
 https://nytimes.com/athletic/5953147/2025/11/10/brian-daboll-fired-giants-nfl-news/
 
 **NFL survivor pool mailbag: Submit your questions for Week 11**\

@@ -1,3 +1,7 @@
+**Brian Daboll fired by Giants after nearly 4 seasons amid losing streak**\
+`Offensive coordinator/assistant head coach Mike Kafka takes over as the Giants' interim head coach.`\
+https://nytimes.com/athletic/5953147/2025/11/10/brian-daboll-fired-giants-nfl-news/
+
 **What I'm hearing on why everybody loves Erik Karlsson, and the latest on Penguins trade murmurs**\
 `Karlsson has a mind of his own, and his teammates absolutely love him for it.`\
 https://nytimes.com/athletic/6794689/2025/11/10/penguins-erik-karlsson-trade-rumors-nhl/
