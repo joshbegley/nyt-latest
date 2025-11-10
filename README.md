@@ -1,3 +1,11 @@
+**PWHL will play ‘Takeover Tour’ games in Chicago, Dallas, Detroit and more**\
+`The PWHL's third season will include 16 neutral-site games hosted by seven new cities and four returning markets.`\
+https://nytimes.com/athletic/6792584/2025/11/10/pwhl-takeover-tour-2025-26-schedule/
+
+**FPL Gameweek 11 review: Mbeumo’s reliability, Thiago gold and Bournemouth’s blip**\
+`From Thiago’s heroics to Man United’s creative resurgence and Bournemouth’s stumble, here are the FPL storylines from this weekend’s action`\
+https://nytimes.com/athletic/6792413/2025/11/10/fantasy-premier-league-tips-manchester-united-bournemouth/
+
 **Texans' last-second touchdown leads to crushing bad beat for Jaguars bettors**\
 `A last-second touchdown in the Jacksonville-Houston game was meaningful to some.`\
 https://nytimes.com/athletic/6794724/2025/11/10/texans-jaguars-bad-beat-betting/
@@ -25,12 +33,4 @@ https://nytimes.com/interactive/2025/11/10/books/review/road-trips-quiz.html
 **Lowetide: What would a shake-up trade look like for the Oilers?**\
 `The Oilers have to navigate a few challenges when it comes to pulling off a difference-making trade.`\
 https://nytimes.com/athletic/6791818/2025/11/10/edmonton-oilers-trade-goalies-skinner-saros/
-
-**NBA Power Rankings: 'Say Something Nice Challenge' is back! And the Spurs are contenders**\
-`We can find something positive to highlight about the teams at the bottom of our rankings ... right?`\
-https://nytimes.com/athletic/6794727/2025/11/10/nba-power-rankings-thunder-cavs-lakers-spurs-wembanyama/
-
-**Man Utd's Sesko withdraws from Slovenia squad, injury not considered major**\
-`Sesko will remain at Carrington for assessment but is not thought to have suffered a major injury.`\
-https://nytimes.com/athletic/6794159/2025/11/10/benjamin-sesko-manchester-united-injury-news/
 
