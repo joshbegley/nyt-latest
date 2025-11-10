@@ -1,3 +1,23 @@
+**Ben Stokes and the debt he owes New Zealand**\
+`The England captain's roots are a sense of pride for the people of Christchurch - despite being known as a tearaway as a youngster`\
+https://nytimes.com/athletic/6787539/2025/11/10/ben-stokes-england-captain-ashes-new-zealand/
+
+**Everton were more muscular**\
+`Everton's victory over Fulham was a sign that they and David Moyes are learning and adapting`\
+https://nytimes.com/athletic/6791213/2025/11/10/everton-david-moyes-changes-muscular/
+
+**Malo Gusto. Goalscorer. At last.**\
+`In his 98th appearance for Chelsea, the France right-back did something he had not done in his senior career before - he scored a goal!`\
+https://nytimes.com/athletic/6790780/2025/11/10/malo-gusto-chelsea-goalscorer/
+
+**Leeds United, the mood pendulum, and the looming threat of must-win territory**\
+`Defeat at Forest means Leeds’ next match is virtually a must-win fixture if Daniel Farke hopes to preserve squad and fan morale`\
+https://nytimes.com/athletic/6792376/2025/11/10/leeds-united-premier-league-daniel-farke-nottingham-forest/
+
+**Nuno has given West Ham a workable midfield core**\
+`Nuno has delivered the club's first back-to-back home wins of 2025 - an improved midfield has been key in both games`\
+https://nytimes.com/athletic/6790757/2025/11/10/nuno-west-ham-midfield-potts-paqueta-fernandes/
+
 **Familiarity breeds intent as Brighton find defensive stability in Hurzeler’s unchanged XI**\
 `The 0-0 draw away to rivals Palace marked the first time that Brighton had kept consecutive Premier League clean sheets since February`\
 https://nytimes.com/athletic/6791990/2025/11/10/brighton-crystal-palace-premier-league-fabian-hurzeler/
