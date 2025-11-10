@@ -1,3 +1,7 @@
+**Senate Moves Closer to Ending Shutdown**\
+`Eight senators broke from the Democratic caucus and agreed to a deal giving Republicans the 60 votes they needed to end the government shutdown. The measure still needs to be voted on in both chambers of Congress.`\
+https://nytimes.com/video/us/politics/100000010514862/government-shutdown-senate-vote.html
+
 **Who Will Be Mamdani’s City Council Partner? Get Ready for a Battle.**\
 `The heated contest to become City Council speaker took shape in Puerto Rico, where the leading contenders jockeyed for votes at a beachside political gathering.`\
 https://nytimes.com/2025/11/10/nyregion/council-speaker-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/10/learning/word-of-the-day-forensic.html
 **The New York Times in Print for Monday, Nov. 10, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/10/todays-new-york-times
-
-**‘The Beast in Me,’ Plus 5 Things to Watch on TV This Week**\
-`The new Netflix series starring Claire Danes airs, and ‘The Golden Bachelor’ wraps up.`\
-https://nytimes.com/2025/11/10/arts/television/the-beast-in-me-plus-5-things-to-watch-on-tv-this-week.html
 

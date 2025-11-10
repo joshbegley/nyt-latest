@@ -1,3 +1,7 @@
+**Senate Moves Closer to Ending Shutdown**\
+`Eight senators broke from the Democratic caucus and agreed to a deal giving Republicans the 60 votes they needed to end the government shutdown. The measure still needs to be voted on in both chambers of Congress.`\
+https://nytimes.com/video/us/politics/100000010514862/government-shutdown-senate-vote.html
+
 **Who Will Be Mamdani’s City Council Partner? Get Ready for a Battle.**\
 `The heated contest to become City Council speaker took shape in Puerto Rico, where the leading contenders jockeyed for votes at a beachside political gathering.`\
 https://nytimes.com/2025/11/10/nyregion/council-speaker-nyc.html
