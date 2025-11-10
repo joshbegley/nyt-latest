@@ -1,3 +1,19 @@
+**Suits Accuse Camp Mystic of Gross Negligence in Children’s Deaths**\
+`Parents of campers and counselors who died in the July 4 Texas floods said the camp leadership did little before mounting “a hopeless ‘rescue’ effort from its self-created disaster.”`\
+https://nytimes.com/2025/11/10/us/camp-mystic-lawsuit.html
+
+**Fox News Host Greg Gutfeld on R.F.K. Jr. and the MAHA Movement**\
+`At Fox News, the host Greg Gutfeld earns big ratings with an insult-heavy, pro-conservative approach. On “The Interview,” host David Marchese asks Gutfeld about the Make America Healthy Again movement, anti-vaxxers and Robert F. Kennedy Jr.`\
+https://nytimes.com/video/podcasts/100000010515648/fox-news-host-greg-gutfeld-on-rfk-jr-and-the-maha-movement.html
+
+**Fox News Host Greg Gutfeld on Stephen Colbert and Jimmy Kimmel**\
+`On “The Interview,” the Fox News host Greg Gutfeld spoke with The Times’s David Marchese about how his insult-heavy, relentlessly pro-conservative show has become so dominant — and what he thinks about late-night hosts like Stephen Colbert and Jimmy Kimmel.`\
+https://nytimes.com/video/podcasts/100000010515391/fox-news-host-greg-gutfeld-on-stephen-colbert-and-jimmy-kimmel.html
+
+**3 San Antonio Officers Acquitted in Fatal Shooting of Woman in 2023**\
+`Melissa Perez, 46, swung a hammer in their direction and appeared to be in distress in her home when the officers arrived, officials said.`\
+https://nytimes.com/2025/11/10/us/san-antonio-police-verdict-melissa-perez.html
+
 **MLB, sportsbooks to limit prop bets on pitches amid gambling scandal**\
 `The announcement comes a day after pitchers Emmanuel Clase and Luis Ortiz were indicted on charges related to allegedly rigging pitches.`\
 https://nytimes.com/athletic/6795863/2025/11/10/mlb-prop-bets-pitches-limit-2/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6795754/2025/11/10/ravens-marlon-humphrey-consideri
 **Puzzle Mania 2025: F.A.Q.**\
 `Everything you need to know about this year’s special print puzzle section.`\
 https://nytimes.com/2025/11/10/crosswords/puzzle-mania-2025-faq.html
-
-**David Szalay’s ‘Flesh’ Wins 2025 Booker Prize**\
-`The rags-to-riches tale had already made fans of Zadie Smith and Dua Lipa. Roddy Doyle, who chaired the judging panel, called the book “singular” and “extraordinary.”`\
-https://nytimes.com/2025/11/10/books/booker-prize-2025-david-szalay-flesh.html
-
-**Joe Burrow trying to add to his legend with return, but will it matter?**\
-`Burrow might want to be back for a Thanksgiving showdown with the Ravens, but the struggling Bengals defense remains a problem.`\
-https://nytimes.com/athletic/6795697/2025/11/10/joe-burrow-injury-return-bengals-afc-north/
-
-**Heavy Dose of Wet Weather Expected to Soak California**\
-`Forecasters expect the rain to kick off in the north on Wednesday before moving south by Thursday. It brings a risk of flash flooding and landslides.`\
-https://nytimes.com/2025/11/10/weather/atmospheric-river-rain-forecast-california.html
-
-**M.L.B. Limits Bets on Individual Pitches After Gambling Charges**\
-`Two Cleveland pitchers were accused of colluding with bettors. The league and its gambling company partners have put a $200 limit on wagers on individual pitches.`\
-https://nytimes.com/2025/11/10/nyregion/mlb-prop-bet-pitches-limits.html
 
