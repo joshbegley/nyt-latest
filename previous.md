@@ -1,3 +1,7 @@
+**C.J. Gardner-Johnson the defensive difference-maker in Chicago Bears' comeback win**\
+`Newcomer Gardner-Johnson had two sacks and a forced fumble to help the Bears come from behind to defeat the Giants.`\
+https://nytimes.com/athletic/6792947/2025/11/09/bears-cj-gardner-johnson-giants/
+
 **5 Takeaways From This Year’s Grammy Nominations**\
 `Breaking down the story lines to watch for the 2026 awards show, including big nominations for Bad Bunny and Lady Gaga.`\
 https://nytimes.com/2025/11/09/arts/music/grammy-nominations-reaction-popcast.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6792783/2025/11/09/jonathan-taylor-colts-mvp-histor
 **Bills play like trash against Dolphins, raising postseason doubts**\
 `The Bills were upset after they failed to add players before the trade deadline.`\
 https://nytimes.com/athletic/6792814/2025/11/09/bills-performance-loss-dolphins/
-
-**Arkansas forward Trevon Brazile apologizes after hitting fan with towel**\
-`The 22-year-old posted a message on his Instagram story Sunday morning.`\
-https://nytimes.com/athletic/6792822/2025/11/09/arkansas-forward-trevon-brazil-apology-fan-hit-towel/
 

@@ -1,3 +1,7 @@
+**C.J. Gardner-Johnson the defensive difference-maker in Chicago Bears' comeback win**\
+`Newcomer Gardner-Johnson had two sacks and a forced fumble to help the Bears come from behind to defeat the Giants.`\
+https://nytimes.com/athletic/6792947/2025/11/09/bears-cj-gardner-johnson-giants/
+
 **5 Takeaways From This Year’s Grammy Nominations**\
 `Breaking down the story lines to watch for the 2026 awards show, including big nominations for Bad Bunny and Lady Gaga.`\
 https://nytimes.com/2025/11/09/arts/music/grammy-nominations-reaction-popcast.html
