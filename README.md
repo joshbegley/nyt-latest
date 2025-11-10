@@ -1,6 +1,14 @@
+**Corrections: Nov. 8, 2025**\
+`Corrections that appeared in print on Saturday, Nov. 8, 2025.`\
+https://nytimes.com/2025/11/10/pageoneplus/corrections-nov-8-2025.html
+
 **What to Know About the Turmoil at the BBC**\
 `After days of pressure, two top executives quit after a memo by a former adviser said that the public broadcaster had misleadingly edited a speech by President Trump.`\
 https://nytimes.com/2025/11/10/world/europe/bbc-resignations-trump-speech-edit.html
+
+**2025 NFL Playoff Simulator: Each team’s path to the postseason after surprises in Week 10**\
+`<p>Welcome to The Athletic’s 2025 NFL Playoff Simulator, where you’ll find everything you need to know about all the ways your favorite team&#8217;s season could end, from a No.`\
+https://nytimes.com/athletic/6513952/2025/11/10/2025-nfl-playoff-simulator-path-postseason/
 
 **Appeals Court Blocks Trump’s Attempt to Halt Full Food Stamp Funding**\
 `A late night ruling on Sunday offered a possible reprieve for people on the program known as SNAP.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6792685/2025/11/10/detroit-pistons-best-10-game-sta
 **Celtics' Jordan Walsh messes game up for the Magic, just like he wanted to do**\
 `Walsh splashed home a game-sealing 3-pointer with the Celtics ahead by two points late in the final minute after earning crunch-time minutes`\
 https://nytimes.com/athletic/6793699/2025/11/10/celtics-jordan-walsh-magic-career-high/
-
-**Notre Dame-Navy final thoughts: Carr, Love, Fields, Viliamu-Asa and more**\
-`In a 39-point win over a familiar foe, there was a lot to like from the Irish's best players.`\
-https://nytimes.com/athletic/6793652/2025/11/10/notre-dame-navy-cj-carr-malachi-fields/
-
-**Current's overreliance on Chawinga makes her MVP argument even more compelling**\
-`Kansas City Current's shock loss to Gotham FC highlighted how much they struggle without Chawinga.`\
-https://nytimes.com/athletic/6793935/2025/11/10/temwa-chawinga-kansas-city-current/
 
