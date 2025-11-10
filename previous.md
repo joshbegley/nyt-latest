@@ -1,15 +1,3 @@
-**In Alaska and Hawaii, Higher Food Prices Intensify SNAP Anxiety**\
-`Some residents are receiving benefits, but the uncertainty over what will happen over the coming weeks has many worried.`\
-https://nytimes.com/2025/11/09/us/alaska-hawaii-high-food-prices-snap.html
-
-**Colts' Jonathan Taylor races past Falcons, into history books to help keep Indy atop AFC**\
-`Taylor boosted his MVP candidacy Sunday, rushing for 244 yards and three touchdowns to help paper over Indy's mistakes in a 31-25 OT win.`\
-https://nytimes.com/athletic/6792783/2025/11/09/jonathan-taylor-colts-mvp-history-falcons/
-
-**Bills play like trash against Dolphins, raising postseason doubts**\
-`The Bills were upset after they failed to add players before the trade deadline.`\
-https://nytimes.com/athletic/6792814/2025/11/09/bills-performance-loss-dolphins/
-
 **Arkansas forward Trevon Brazile apologizes after hitting fan with towel**\
 `The 22-year-old posted a message on his Instagram story Sunday morning.`\
 https://nytimes.com/athletic/6792822/2025/11/09/arkansas-forward-trevon-brazil-apology-fan-hit-towel/
@@ -37,4 +25,16 @@ https://nytimes.com/athletic/6792294/2025/11/09/mlb-clase-ortiz-betting-allegati
 **Unpacking Mamdani’s Viral Victory Speech**\
 `A close annotation of the references, applause lines and barbs in Mayor-elect Zohran Mamdani’s address to his supporters.`\
 https://nytimes.com/interactive/2025/11/09/nyregion/zohran-mamdani-nyc-mayoral-speech.html
+
+**Form a Clump**\
+`Zhouqin Burnikel takes a layered approach.`\
+https://nytimes.com/2025/11/09/crosswords/daily-puzzle-2025-11-10.html
+
+**President Trump makes appearance at Commanders-Lions game after Air Force One flyover**\
+`Trump is the first sitting U.S. president to attend a regular-season NFL game in 47 years.`\
+https://nytimes.com/athletic/6792525/2025/11/09/donald-trump-booed-cheered-commanders-nfl-game-lions/
+
+**Safety Officer or Administration Messenger? Sean Duffy Juggles Roles in Shutdown.**\
+`With near-daily TV appearances, the transportation secretary has emerged as the face of the Trump administration amid the shutdown.`\
+https://nytimes.com/2025/11/09/us/politics/duffy-faa-air-travel-shutdown.html
 
