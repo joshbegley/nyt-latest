@@ -1,3 +1,7 @@
+**The young Bulls are still searching for their long-term identity on offense**\
+`As angelic as Chicago’s offense appears at its height, turnovers threaten its identity. How can the Bulls fix it?`\
+https://nytimes.com/athletic/6793393/2025/11/09/josh-giddey-bulls-nba-offense/
+
 **Gotham FC upset No. 1 Current - but don't call them the 'underdog'**\
 `Jaedyn Shaw and Katie Stengel scored in Gotham's 2-1 win over KC Current.`\
 https://nytimes.com/athletic/6793418/2025/11/09/gotham-fc-upset-kansas-city-underdog/
