@@ -1,3 +1,19 @@
+**Rangers suddenly looking deeper after Perreault recall, Trocheck's return**\
+`With the additions of Perreault and Trocheck, a lineup that's seen its top players stumble and scoring depth erode, suddenly looks deeper.`\
+https://nytimes.com/athletic/6795468/2025/11/10/gabe-perreault-vincent-trocheck-rangers-depth/
+
+**Against Mamdani’s Wishes, Gen Z Councilman Plans to Challenge Jeffries**\
+`Chi Ossé, a New York City councilman, has told allies he is preparing to challenge Representative Hakeem Jeffries, the Democratic leader of the House.`\
+https://nytimes.com/2025/11/10/nyregion/chi-osse-hakeem-jeffries.html
+
+**Ravens' Marlon Humphrey considering finger surgery, could be out a game or two**\
+`Humphrey hurt his finger in practice last week but started vs. Minnesota and had his first interception of the season. `\
+https://nytimes.com/athletic/6795754/2025/11/10/ravens-marlon-humphrey-considering-finger-surgery/
+
+**Puzzle Mania 2025: F.A.Q.**\
+`Everything you need to know about this year’s special print puzzle section.`\
+https://nytimes.com/2025/11/10/crosswords/puzzle-mania-2025-faq.html
+
 **David Szalay’s ‘Flesh’ Wins 2025 Booker Prize**\
 `The rags-to-riches tale had already made fans of Zadie Smith and Dua Lipa. Roddy Doyle, who chaired the judging panel, called the book “singular” and “extraordinary.”`\
 https://nytimes.com/2025/11/10/books/booker-prize-2025-david-szalay-flesh.html

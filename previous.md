@@ -1,3 +1,19 @@
+**Rangers suddenly looking deeper after Perreault recall, Trocheck's return**\
+`With the additions of Perreault and Trocheck, a lineup that's seen its top players stumble and scoring depth erode, suddenly looks deeper.`\
+https://nytimes.com/athletic/6795468/2025/11/10/gabe-perreault-vincent-trocheck-rangers-depth/
+
+**Against Mamdani’s Wishes, Gen Z Councilman Plans to Challenge Jeffries**\
+`Chi Ossé, a New York City councilman, has told allies he is preparing to challenge Representative Hakeem Jeffries, the Democratic leader of the House.`\
+https://nytimes.com/2025/11/10/nyregion/chi-osse-hakeem-jeffries.html
+
+**Ravens' Marlon Humphrey considering finger surgery, could be out a game or two**\
+`Humphrey hurt his finger in practice last week but started vs. Minnesota and had his first interception of the season. `\
+https://nytimes.com/athletic/6795754/2025/11/10/ravens-marlon-humphrey-considering-finger-surgery/
+
+**Puzzle Mania 2025: F.A.Q.**\
+`Everything you need to know about this year’s special print puzzle section.`\
+https://nytimes.com/2025/11/10/crosswords/puzzle-mania-2025-faq.html
+
 **David Szalay’s ‘Flesh’ Wins 2025 Booker Prize**\
 `The rags-to-riches tale had already made fans of Zadie Smith and Dua Lipa. Roddy Doyle, who chaired the judging panel, called the book “singular” and “extraordinary.”`\
 https://nytimes.com/2025/11/10/books/booker-prize-2025-david-szalay-flesh.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/11/10/world/bbc-trump-syria-new-delhi.html
 **With Jiri Kulich's blood clot Sabres' latest injury, will Kevyn Adams make a move?**\
 `Beset by injuries, can the Sabres hang in the playoff picture without some reinforcements?`\
 https://nytimes.com/athletic/6795559/2025/11/10/jiri-kulich-blood-clot-sabres-trade/
-
-**Sun Belt suspends 13 players after Louisiana-Texas State brawl**\
-`The Sun Belt on Monday announced the suspensions of 13 Louisiana and Texas State players after a fight at the end of Saturday's game.`\
-https://nytimes.com/athletic/6795602/2025/11/10/louisiana-texas-state-brawl-sun-belt-suspensions/
-
-**Dolphins coach Mike McDaniel appears to visit Bills bar after win**\
-`McDaniel neither confirmed nor denied his appearance at Elbow Room on Sunday night.`\
-https://nytimes.com/athletic/6795500/2025/11/10/dolphins-coach-mike-mcdaniel-provides-mysterious-response-for-apparent-visit-to-bills-bar-after-win/
-
-**There was nothing wrong with Sean Couturier's assessment of Matvei Michkov**\
-`The captain's recent comments about the Flyers' young potential star require some context.`\
-https://nytimes.com/athletic/6795245/2025/11/10/michkov-couturier-flyers-comments/
-
-**Groups Sue to Reverse Trump’s Cuts to Energy Projects in Democratic States**\
-`A lawsuit filed on Monday argued that the president has discriminated against blue states by slashing federal funds for political leverage during the shutdown.`\
-https://nytimes.com/2025/11/10/us/politics/trump-shutdown-cuts-lawsuit.html
 
