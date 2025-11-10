@@ -1,3 +1,15 @@
+**How to watch Columbia vs. UConn: Time, TV, streaming**\
+`Find out how to watch the Columbia Lions play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6794832/2025/11/10/columbia-vs-uconn-stream-how-to-watch-nov-10/
+
+**How to watch Furman vs. Vanderbilt women's basketball: Time, TV, streaming**\
+`Find out how to watch the Furman Paladins play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6794830/2025/11/10/furman-vs-vanderbilt-stream-how-to-watch-nov-10/
+
+**In West Virginia’s Maternity Deserts, a Midwife Tries to Fill a Void**\
+`Staysha Quentrill is part of a small group trying to revive Appalachia’s tradition of at-home midwifery — in a state where women drive hours for obstetric care.`\
+https://nytimes.com/2025/11/10/well/west-virginia-midwives.html
+
 **Mamdani Fills 2 Top Posts With Government Veteran and Trusted Aide**\
 `Mayor-elect Zohran Mamdani named Dean Fuleihan, a former deputy mayor and budget director, to be his first deputy mayor. Elle Bisgaard-Church will serve as his chief of staff.`\
 https://nytimes.com/2025/11/10/nyregion/mamdani-fuleihan-deputy-mayor.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6780998/2025/11/10/lavia-injury-news-chelsea/
 **Arsenal confirm Katie Reid out with ACL injury**\
 `The 19-year-old England youth international will undergo surgery in the coming days.`\
 https://nytimes.com/athletic/6794655/2025/11/10/arsenal-katie-reid-acl-injury-news/
-
-**FIFA's next 2026 World Cup cash cow: Exorbitant parking prices**\
-`If you're paying to park at 2026 World Cup matches it'll cost you more than some match tickets at previous editions of the tournament`\
-https://nytimes.com/athletic/6791045/2025/11/10/fifa-2026-world-cup-parking-prices/
-
-**The Bounce: Rockets and Pistons firing on all cylinders. Mavs and Wizards, not so much**\
-`The NBA lost one of the most accomplished figures in league history on Sunday when Lenny Wilkens passed away at the age of 88.`\
-https://nytimes.com/athletic/6794634/2025/11/10/rockets-cavaliers-pistons-nba-the-bounce/
-
-**Trump Threatens to Sue the BBC for $1 Billion After Jan. 6 Documentary**\
-`A lawyer for the president said the BBC’s editing of a speech Mr. Trump gave on Jan. 6 was “defamatory.” The broadcaster on Monday apologized for an “error in judgment.”`\
-https://nytimes.com/2025/11/10/world/europe/trump-bbc-lawsuit-documentary.html
 
