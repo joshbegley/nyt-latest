@@ -1,3 +1,15 @@
+**Fox News Wanted Greg Gutfeld to Do This Interview. He Wasn’t So Sure.**\
+`The pugnacious conservative late-night host talks to David Marchese about his “hierarchy of smears” and the risks of being a scold.`\
+https://nytimes.com/video/podcasts/100000010515264/fox-news-wanted-greg-gutfeld-to-do-this-interview-he-wasnt-so-sure.html
+
+**NHL weekend rankings: A tale of two Rangers, plus a bottom-5 shakeup**\
+`Boy, those star young-uns can really score, and boy, the Rangers really can't — not at Madison Square Garden, anyway.`\
+https://nytimes.com/athletic/6793248/2025/11/10/nhl-weekend-rankings-rangers-blackhawks-mckenna/
+
+**On Sunday night, the Steelers got Aaron Rodgers at his worst**\
+`Pittsburgh's offense produced little more than a garbage-time touchdown in a lopsided loss.`\
+https://nytimes.com/athletic/6793877/2025/11/10/aaron-rodgers-worst-game-pittsburgh-steelers-chargers/
+
 **The Commanders have better options than naming their next stadium after President Trump**\
 `Naming their next stadium after Trump, or any other modern pol, would be a cosmically bad decision for Josh Harris and his ownership group.`\
 https://nytimes.com/athletic/6792519/2025/11/10/president-trump-commanders-stadium/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6776815/2025/11/10/pelle-lindbergh-flyers-goalie/
 **Canada Olympic bubble watch: What we're hearing about Suzuki, Celebrini, Bedard, more roster hopefuls**\
 `Veterans Brad Marchand and Drew Doughty have firmed up their spots with good starts. What does that mean elsewhere in the lineup?`\
 https://nytimes.com/athletic/6788016/2025/11/10/canada-olympic-roster-bubble-watch/
-
-**Monday morning Leafs report: Craig Berube might be ready to explode**\
-`Toronto keeps having the same defensive issues night after night, and they're wearing on the head coach and his star players.`\
-https://nytimes.com/athletic/6793683/2025/11/10/maple-leafs-craig-berube-frustration/
-
-**Norris seized F1 title control in Brazil, but Verstappen's heroics will keep him on edge**\
-`The Brit has done well to capitalize on Piastri’s errors and ensure another Brazil drive for the ages by Verstappen could not derail him`\
-https://nytimes.com/athletic/6792412/2025/11/10/lando-norris-f1-points-lead-over-max-verstappen/
-
-**The 'nerd' with the 'it factor' : Inside the rapid rise of Christian Parker, from Packers to Eagles**\
-`Parker has impressed at every stop since he was in his early 20s.`\
-https://nytimes.com/athletic/6793306/2025/11/10/eagles-packers-christian-parker-coach-jaire-alexander/
 

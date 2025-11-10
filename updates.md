@@ -1,3 +1,15 @@
+**Fox News Wanted Greg Gutfeld to Do This Interview. He Wasn’t So Sure.**\
+`The pugnacious conservative late-night host talks to David Marchese about his “hierarchy of smears” and the risks of being a scold.`\
+https://nytimes.com/video/podcasts/100000010515264/fox-news-wanted-greg-gutfeld-to-do-this-interview-he-wasnt-so-sure.html
+
+**NHL weekend rankings: A tale of two Rangers, plus a bottom-5 shakeup**\
+`Boy, those star young-uns can really score, and boy, the Rangers really can't — not at Madison Square Garden, anyway.`\
+https://nytimes.com/athletic/6793248/2025/11/10/nhl-weekend-rankings-rangers-blackhawks-mckenna/
+
+**On Sunday night, the Steelers got Aaron Rodgers at his worst**\
+`Pittsburgh's offense produced little more than a garbage-time touchdown in a lopsided loss.`\
+https://nytimes.com/athletic/6793877/2025/11/10/aaron-rodgers-worst-game-pittsburgh-steelers-chargers/
+
 **The Commanders have better options than naming their next stadium after President Trump**\
 `Naming their next stadium after Trump, or any other modern pol, would be a cosmically bad decision for Josh Harris and his ownership group.`\
 https://nytimes.com/athletic/6792519/2025/11/10/president-trump-commanders-stadium/
