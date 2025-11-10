@@ -1,3 +1,11 @@
+**Michigan mailbag: What's Sherrone Moore's ceiling? Is Bryce Underwood behind schedule?**\
+`Plus, is Michigan more likely to win a men's basketball national title or beat Ohio State and return to the College Football Playoff?`\
+https://nytimes.com/athletic/6790683/2025/11/10/michigan-football-sherrone-moore-bryce-underwood-2/
+
+**Green 'going really well' as he aims to prove bowling fitness ahead of the Ashes**\
+`The already has not bowled in a Test match since March 2024 after a back injury but is hoping to contribute 20 overs this week`\
+https://nytimes.com/athletic/6794278/2025/11/10/cameron-green-ashes-western-australia/
+
 **Inside Barcelona: Lewandowski shows his class, but does the defence need fixing?**\
 `Trips to Celta Vigo have often been tough for Barca, but Sunday's 4-2 victory saw Hansi Flick's side cut Real Madrid's La Liga lead`\
 https://nytimes.com/athletic/6794119/2025/11/10/barcelona-celta-la-liga-lewandowski-flick/

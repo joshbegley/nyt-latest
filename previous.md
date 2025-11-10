@@ -1,3 +1,11 @@
+**Michigan mailbag: What's Sherrone Moore's ceiling? Is Bryce Underwood behind schedule?**\
+`Plus, is Michigan more likely to win a men's basketball national title or beat Ohio State and return to the College Football Playoff?`\
+https://nytimes.com/athletic/6790683/2025/11/10/michigan-football-sherrone-moore-bryce-underwood-2/
+
+**Green 'going really well' as he aims to prove bowling fitness ahead of the Ashes**\
+`The already has not bowled in a Test match since March 2024 after a back injury but is hoping to contribute 20 overs this week`\
+https://nytimes.com/athletic/6794278/2025/11/10/cameron-green-ashes-western-australia/
+
 **Inside Barcelona: Lewandowski shows his class, but does the defence need fixing?**\
 `Trips to Celta Vigo have often been tough for Barca, but Sunday's 4-2 victory saw Hansi Flick's side cut Real Madrid's La Liga lead`\
 https://nytimes.com/athletic/6794119/2025/11/10/barcelona-celta-la-liga-lewandowski-flick/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6793942/2025/11/10/chargers-defense-steelers-snf/
 **Packers brace for Eagles' tush push after trying to ban it: 'I hate that play'**\
 `The Packers helped lead the effort to ban the tush push this offseason and now host the Eagles on Monday Night Football.`\
 https://nytimes.com/athletic/6791930/2025/11/10/packers-tush-push-mnf-eagles/
-
-**‘Best player on the ice’: Why the Minten trade looks like a grand slam**\
-`For the Bruins, Minten’s development and possession of the Leafs’ 2026 first-round pick are swaying March’s trade Boston’s way.`\
-https://nytimes.com/athletic/6792498/2025/11/10/bruins-fraser-minten-trade-best-player-on-the-ice/
-
-**Justin Jefferson didn't look like himself in Vikings' loss to Ravens, and that's a problem**\
-`The superstar wideout had four catches for 37 yards in Minnesota's loss at home on Sunday, but his numbers were not the issue.`\
-https://nytimes.com/athletic/6792326/2025/11/10/justin-jefferson-vikings-ravens-problem/
 
