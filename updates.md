@@ -1,3 +1,11 @@
+**‘It: Welcome to Derry’ Season 1, Episode 3 Recap: Into the Woods**\
+`Hallorann has a terrifying vision. Gen. Shaw reconnects with an old friend.`\
+https://nytimes.com/2025/11/09/arts/television/it-welcome-to-derry-recap-season-1-episode-3.html
+
+**Second Migrant Child Dies on ‘Reverse Migration’ Boat Route**\
+`A 3-year-old from Colombia died when a boat carrying migrants back to South America capsized off Panama’s Caribbean Coast, an official said. Another child drowned on the same migrant route in February.`\
+https://nytimes.com/2025/11/09/world/americas/migrant-child-drowns-panama.html
+
 **Ravens' defense finds its swagger in win over Vikings: 'We’re starting to hit our stride'**\
 `The play of Baltimore’s much-maligned defense helped carried the victory over Minnesota and got the team even deeper into the playoff mix.`\
 https://nytimes.com/athletic/6793058/2025/11/09/ravens-defense-swagger-win-vikings/
