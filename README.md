@@ -2,9 +2,13 @@
 `A win over the Browns might not be franchise-altering, but it’s exactly the kind of game they’ve made a habit of losing.`\
 https://nytimes.com/athletic/6793193/2025/11/09/new-york-jets-rebuild-browns-win/
 
-**Commanders lose fifth straight as Jared Goff, Jahmyr Gibbs shine for Lions: Takeaways**\
+**Jared Goff, Jahmyr Gibbs shine for Lions as Commanders lose fifth straight**\
 `Goff and the Detroit offense went off for 44 points, with Lions coach Dan Campbell's play calling sparking one of their best performances.`\
 https://nytimes.com/athletic/6792903/2025/11/09/lions-commanders-score-result-takeaways/
+
+**2025 NFL Playoff Simulator: Each team’s path to the postseason after surprises in Week 10**\
+`<p>Welcome to The Athletic’s 2025 NFL Playoff Simulator, where you’ll find everything you need to know about all the ways your favorite team&#8217;s season could end, from a No.`\
+https://nytimes.com/athletic/6513952/2025/11/09/2025-nfl-playoff-simulator-path-postseason/
 
 **Steph Curry to miss third straight game because of lingering cold**\
 `With Curry out of the lineup recently, the Warriors have struggled to find a solid rhythm offensively. When will he return?`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6793070/2025/11/09/lenny-wilkens-supersonics-cavali
 **In Murashov's debut, Penguins' old guys actually looked their age: Yohe's 10 observations**\
 `The Penguins ran out of gas in the second half despite strong play from Sergei Murashov in his first NHL game.`\
 https://nytimes.com/athletic/6792694/2025/11/09/penguins-sergei-murashov-debut-kings-nhl/
-
-**Rico Dowdle, Aaron Jones show restraint in 'Key & Peele'-inspired TD celebrations**\
-`After last week's penalty and fine, the Dowdle learned his lesson.`\
-https://nytimes.com/athletic/6792967/2025/11/09/key-and-peele-rico-dowdle-aaron-jones-nfl-celebrations/
 
