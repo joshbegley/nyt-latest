@@ -1,3 +1,15 @@
+**Za’atar and Labneh Spaghetti**\
+`In this spaghetti with za’atar, creamy labneh produces a pasta dish with the texture of an Alfredo, but with a bright tang that brings levity.`\
+https://nytimes.com/video/dining/100000010366986/zaatar-and-labneh-spaghetti.html
+
+**Rehab Program Could Trim Sean Combs’s Prison Sentence by a Year**\
+`A spokesman for the fallen music mogul, who is serving a four-year sentence for prostitution-related offenses at the Fort Dix prison complex in New Jersey, said he has been accepted to the program.`\
+https://nytimes.com/2025/11/10/arts/music/sean-combs-diddy-fort-dix-drug-program.html
+
+**Dear Sonder Guest, Your Hotel Is Closed**\
+`Sonder, a short-term rental and boutique hotel company that had a licensing deal with Marriott, abruptly went out of business, stranding guests worldwide.`\
+https://nytimes.com/2025/11/10/travel/marriott-sonder-licensing-bankruptcy.html
+
 **Why Hockey Goalies Wear Masks**\
 `Did you know that hockey goalies used to not wear masks?`\
 https://nytimes.com/video/the-athletic/100000010446783/why-hockey-goalies-wear-masks.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/10/us/san-antonio-police-verdict-melissa-perez.html
 **MLB, sportsbooks to limit prop bets on pitches amid gambling scandal**\
 `The announcement comes a day after pitchers Emmanuel Clase and Luis Ortiz were indicted on charges related to allegedly rigging pitches.`\
 https://nytimes.com/athletic/6795863/2025/11/10/mlb-prop-bets-pitches-limit-2/
-
-**‘What Was the Point?’ Travelers Battle Airport Disruptions Amid Shutdown Talks.**\
-`The travel turmoil led some fliers to embark on time-consuming detours as they monitored talks in Washington to end the government shutdown.`\
-https://nytimes.com/2025/11/10/us/flights-cancellations-delays-airports-shutdown.html
-
-**Rangers suddenly looking deeper after Perreault recall, Trocheck's return**\
-`With the additions of Perreault and Trocheck, a lineup that's seen its top players stumble and scoring depth erode, suddenly looks deeper.`\
-https://nytimes.com/athletic/6795468/2025/11/10/gabe-perreault-vincent-trocheck-rangers-depth/
-
-**Against Mamdani’s Wishes, Gen Z Councilman Plans to Challenge Jeffries**\
-`Chi Ossé, a New York City councilman, has told allies he is preparing to challenge Representative Hakeem Jeffries, the Democratic leader of the House.`\
-https://nytimes.com/2025/11/10/nyregion/chi-osse-hakeem-jeffries.html
 
