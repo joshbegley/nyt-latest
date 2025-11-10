@@ -1,3 +1,7 @@
+**Groups Sue to Reverse Trump’s Cuts to Energy Projects in Democratic States**\
+`A lawsuit filed on Monday argued that the president has discriminated against blue states by slashing federal funds for political leverage during the shutdown.`\
+https://nytimes.com/2025/11/10/us/politics/trump-shutdown-cuts-lawsuit.html
+
 **What I'm hearing about the Mets: Pete Alonso scenarios, Kodai Senga trade interest**\
 `Some clubs view Senga as an interesting buy-low candidate after he experienced a trying season.`\
 https://nytimes.com/athletic/6795413/2025/11/10/mets-offseason-pete-alonso-kodai-senga/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6795597/2025/11/10/oklahoma-vs-alabama-stream-how-t
 **How to watch Iowa vs. USC: Time, TV, streaming**\
 `Find out how to watch the Iowa Hawkeyes play the USC Trojans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6795600/2025/11/10/iowa-vs-usc-stream-how-to-watch-nov-15/
-
-**How to watch Georgia Tech vs. Boston College: Time, TV, streaming**\
-`Find out how to watch the Georgia Tech Yellow Jackets play the Boston College Eagles, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6795595/2025/11/10/georgia-tech-vs-boston-college-stream-how-to-watch-nov-15/
 
