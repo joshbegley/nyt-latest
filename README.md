@@ -1,3 +1,7 @@
+**The New Democratic Brand**\
+`“The caricature of a national Democrat is weak, woke and whiny,” Michelle Cottle says on “The Opinions.” But last week’s election proved that Democrats are flipping that narrative — at least in places like Virginia, New Jersey and New York City.`\
+https://nytimes.com/video/opinion/100000010511115/the-new-democratic-brand.html
+
 **Fired Director of Philadelphia Art Museum’s Complaint Against the Institution**\
 `Read the complaint filed against the Philadelphia Art Museum.`\
 https://nytimes.com/interactive/2025/11/10/us/10cul-suda-lawsuit-doc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/10/health/fda-will-remove-black-box-warnings-from-ho
 **Review: Hildegard of Bingen’s Extraordinary Life, on Operatic Scale**\
 `Sarah Kirkland Snider’s gorgeously mesmerizing first opera has both focus and a thematically expansive view of a moment in medieval history.`\
 https://nytimes.com/2025/11/10/arts/music/hildegard-opera-review.html
-
-**How ‘The Disintegration Loops’ Saved William Basinski’s Life**\
-`The composer’s ambient masterwork, created from disintegrating magnetic tape, became synonymous with 9/11. When he made it, his own life was falling apart.`\
-https://nytimes.com/2025/11/10/arts/music/disintegration-loops-william-basinski.html
 

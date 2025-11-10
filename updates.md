@@ -1,3 +1,7 @@
+**Fired Director of Philadelphia Art Museum’s Complaint Against the Institution**\
+`Read the complaint filed against the Philadelphia Art Museum.`\
+https://nytimes.com/interactive/2025/11/10/us/10cul-suda-lawsuit-doc.html
+
 **Rob Gronkowski to sign one-day contract, officially retire as a Patriot**\
 `The legendary tight end ranks first in Patriots history in receiving TDs, second in receiving yards and fifth in receptions.`\
 https://nytimes.com/athletic/6794819/2025/11/10/rob-gronkowski-patriots-retirement-one-day-contract/
