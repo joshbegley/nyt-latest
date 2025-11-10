@@ -1,3 +1,23 @@
+**Mamdani Announces His Deputy Mayor and Chief of Staff**\
+`New York City Mayor-elect Zohran Mamdani named Dean Fuleihan, a government veteran, to be his first deputy mayor and Elle Bisgaard-Church will serve as his chief of staff.`\
+https://nytimes.com/video/us/elections/100000010516142/mamdani-announces-his-deputy-mayor-and-chief-of-staff.html
+
+**Spending Bill Would Pave Way for Senators to Sue Over Phone Searches**\
+`Republicans have voiced outrage that Jack Smith looked at G.O.P. lawmakers’ phone records surrounding the Jan. 6 attack. Legislation to reopen the government would allow them to sue for $500,000 each.`\
+https://nytimes.com/2025/11/10/us/politics/senators-shutdown-smith-phone-searches.html
+
+**Broncos LB Alex Singleton says cancerous tumor successfully removed**\
+`Singleton posted that the testicular tumor was found after an NFL random drug test.`\
+https://nytimes.com/athletic/6795305/2025/11/10/alex-singletons-cancer-broncos-drug-test/
+
+**Stephen Jones on Marshawn Kneeland's death: 'It's just heartbreaking and tragic'**\
+`Stephen Jones spoke Monday on 105.3 The Fan in Dallas about Kneeland's death: "It’s the worst thing you can imagine.”`\
+https://nytimes.com/athletic/6795152/2025/11/10/marshawn-kneeland-death-cowboys-stephen-jones/
+
+**College football Week 12 odds: Power programs clash in the SEC**\
+`Two SEC showdowns between historically strong programs highlight the Week 12 slate.`\
+https://nytimes.com/athletic/6794909/2025/11/10/college-football-week-12-odds-oklahoma-alabama-texas-georgia/
+
 **Car Explodes in Crowded New Delhi Neighborhood**\
 `The authorities in India said they were investigating the cause of a blast near a busy metro station in the country’s capital that killed at least eight people and left several others injured.`\
 https://nytimes.com/video/world/100000010515652/india-explosion-new-delhi-red-fort.html
