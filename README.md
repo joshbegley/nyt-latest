@@ -1,3 +1,15 @@
+**Supreme Court to Hear Major Challenge to Mail-In Ballot Laws**\
+`The justices agreed to hear a challenge to Mississippi’s law, a case that could upend similar measures in dozens of states before the 2026 election.`\
+https://nytimes.com/2025/11/10/us/politics/supreme-court-mail-ballots-mississippi.html
+
+**Early Winter Storm Blasts the Midwest With Snow and Wind**\
+`More than 10 inches of snow was expected to fall in some areas south and west of Lake Michigan. The cold system was expected to move to the Northeast on Tuesday.`\
+https://nytimes.com/2025/11/10/us/cold-weather-snow-mideast-east-coast.html
+
+**Cleveland has plenty of scoring when healthy. But they need a dominant Donovan Mitchell**\
+`Could more shots for Donovan Mitchell, even when every starter is healthy, be the key that unlocks postseason success for the Cavaliers? `\
+https://nytimes.com/athletic/6793234/2025/11/10/donovan-mitchell-cavaliers-scoring-leader/
+
 **Supreme Court Denies Request to Revisit Same-Sex Marriage Decision**\
 `Kim Davis, a Kentucky county clerk who refused to issue same-sex marriage licenses, had asked the court to reconsider its landmark 2015 opinion.`\
 https://nytimes.com/2025/11/10/us/politics/supreme-court-same-sex-marriage.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/10/us/politics/bernie-sanders-peggy-flanagan-michiga
 **Kimi Antonelli keeps delivering on the hype — this time by beating Max Verstappen**\
 `Kimi Antonelli wasn't perfect in Brazil, but he should pause to celebrate an impressive weekend of racing`\
 https://nytimes.com/athletic/6792415/2025/11/10/kimi-antonelli-brazil-gp-max-verstappen-f1/
-
-**U.S. Military Kills 6 in Strikes on Suspected Drug Boats, Hegseth Says**\
-`The latest strikes raised the death toll in the campaign to 76 people in 19 attacks in the Pacific and the Caribbean Sea since early September.`\
-https://nytimes.com/2025/11/10/us/politics/us-boat-strike-deaths-hegseth.html
-
-**Corrections: Nov. 8, 2025**\
-`Corrections that appeared in print on Saturday, Nov. 8, 2025.`\
-https://nytimes.com/2025/11/10/pageoneplus/corrections-nov-8-2025.html
-
-**What to Know About the Turmoil at the BBC**\
-`After days of pressure, two top executives quit after a memo by a former adviser said that the public broadcaster had misleadingly edited a speech by President Trump.`\
-https://nytimes.com/2025/11/10/world/europe/bbc-resignations-trump-speech-edit.html
 
