@@ -1,3 +1,7 @@
+**Commanders lose fifth straight as Jared Goff, Jahmyr Gibbs shine for Lions**\
+`Goff and the Detroit offense went off for 44 points, with Lions coach Dan Campbell's play calling sparking one of their best performances.`\
+https://nytimes.com/athletic/6792903/2025/11/09/lions-commanders-score-result-takeaways/
+
 **Stephen Curry to miss third straight game due to lingering cold**\
 `With Curry out of the lineup recently, the Warriors have struggled to find a solid rhythm offensively. When will he return?`\
 https://nytimes.com/athletic/6793037/2025/11/09/steph-curry-illness-update-warriors-pacers-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6792967/2025/11/09/key-and-peele-rico-dowdle-aaron-
 **With win over Buccaneers, Patriots show they're one of NFL's top teams**\
 `Rookie running back TreVeyon Henderson had touchdown runs of 55 and 69 yards as the Patriots outplayed one of the NFC's best teams.`\
 https://nytimes.com/athletic/6792859/2025/11/09/patriots-buccaneers-week-10-treveyon-henderson-drake-maye/
-
-**In Alaska and Hawaii, Higher Food Prices Intensified SNAP Anxiety**\
-`Some residents are receiving benefits, but the uncertainty over the past weeks has burdened many in the two states, where the cost of food is the highest in the nation.`\
-https://nytimes.com/2025/11/09/us/alaska-hawaii-high-food-prices-snap.html
 
