@@ -1,3 +1,7 @@
+**‘Like the End of the World’: A Million Flee From Typhoon in the Philippines**\
+`Grabbing children and leaving their homes behind, residents evacuated before Typhoon Fung-wong hit.`\
+https://nytimes.com/2025/11/10/world/asia/typhoon-fung-wong-philippines-evacuation.html
+
 **Liverpool's standards have plummeted and pitiful away form is among an array of issues dogging them**\
 `The last time Liverpool lost four successive away Premier League matches was in April 2012. It leaves the defence of their crown in tatters`\
 https://nytimes.com/athletic/6791933/2025/11/10/liverpool-man-city-away-form-slot/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6790780/2025/11/10/malo-gusto-chelsea-goalscorer/
 **Leeds United, the mood pendulum, and the looming threat of must-win territory**\
 `Defeat at Forest means Leeds’ next match is virtually a must-win fixture if Daniel Farke hopes to preserve squad and fan morale`\
 https://nytimes.com/athletic/6792376/2025/11/10/leeds-united-premier-league-daniel-farke-nottingham-forest/
-
-**Nuno has given West Ham a workable midfield core**\
-`Nuno has delivered the club's first back-to-back home wins of 2025 - an improved midfield has been key in both games`\
-https://nytimes.com/athletic/6790757/2025/11/10/nuno-west-ham-midfield-potts-paqueta-fernandes/
 

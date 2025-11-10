@@ -1,3 +1,7 @@
+**‘Like the End of the World’: A Million Flee From Typhoon in the Philippines**\
+`Grabbing children and leaving their homes behind, residents evacuated before Typhoon Fung-wong hit.`\
+https://nytimes.com/2025/11/10/world/asia/typhoon-fung-wong-philippines-evacuation.html
+
 **Liverpool's standards have plummeted and pitiful away form is among an array of issues dogging them**\
 `The last time Liverpool lost four successive away Premier League matches was in April 2012. It leaves the defence of their crown in tatters`\
 https://nytimes.com/athletic/6791933/2025/11/10/liverpool-man-city-away-form-slot/
