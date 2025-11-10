@@ -1,3 +1,7 @@
+**The young Bulls are trying to master their long-term identity on offense**\
+`As angelic as Chicago’s offense appears at its height, turnovers threaten its identity. How can the Bulls fix it?`\
+https://nytimes.com/athletic/6793393/2025/11/09/josh-giddey-bulls-nba-offense/
+
 **After sobering loss to Rams, 49ers seek reset as Brock Purdy nears return**\
 `Injuries and inconsistency have the 49ers searching for answers after falling to 6-4, but a favorable schedule offers hope.`\
 https://nytimes.com/athletic/6793302/2025/11/09/san-francisco-49ers-los-angeles-rams-brock-purdy-reset/
