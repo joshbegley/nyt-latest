@@ -1,3 +1,7 @@
+**Liverpool complain to BBC over Kelvin MacKenzie TV appearance**\
+`MacKenzie was editor of The Sun when it published false and inflammatory reports about the Hillsborough disaster in 1989.`\
+https://nytimes.com/athletic/6794472/2025/11/10/liverpool-complain-kelvin-mackenzie-bbc-hillsborough/
+
 **Filipinos Reel From Destruction Left by Super Typhoon Fung-wong**\
 `Super Typhoon Fung-wong made landfall in the north of the Philippines on Sunday evening, killing at least two people and destroying about a thousand houses. The authorities had preemptively evacuated 1.3 million people.`\
 https://nytimes.com/video/world/asia/100000010515276/super-typhoon-fung-wong-philippines.html
