@@ -1,3 +1,7 @@
+**The young Bulls are still searching for their long-term identity on offense**\
+`As angelic as Chicago’s offense appears at its height, turnovers threaten its identity. How can the Bulls fix it?`\
+https://nytimes.com/athletic/6793393/2025/11/09/josh-giddey-bulls-nba-offense/
+
 **Gotham FC upset No. 1 Current - but don't call them the 'underdog'**\
 `Jaedyn Shaw and Katie Stengel scored in Gotham's 2-1 win over KC Current.`\
 https://nytimes.com/athletic/6793418/2025/11/09/gotham-fc-upset-kansas-city-underdog/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6793095/2025/11/09/josh-allen-takes-heat-bills-dolp
 **The hopeless Browns continue to go backward after falling to the lowly Jets**\
 `Despite the defense doing its part for the majority of the game, Cleveland still found a way to come out on the losing end against New York.`\
 https://nytimes.com/athletic/6793031/2025/11/09/browns-hopeless-loss-jets/
-
-**How to watch Clemson vs. Louisville: Time, TV, streaming**\
-`Find out how to watch the Clemson Tigers play the Louisville Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6793261/2025/11/09/clemson-vs-louisville-stream-how-to-watch-nov-14/
 

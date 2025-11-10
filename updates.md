@@ -1,3 +1,7 @@
+**Gotham FC upset No. 1 Current - but don't call them the 'underdog'**\
+`Jaedyn Shaw and Katie Stengel scored in Gotham's 2-1 win over KC Current.`\
+https://nytimes.com/athletic/6793418/2025/11/09/gotham-fc-upset-kansas-city-underdog/
+
 **‘It: Welcome to Derry’ Season 1, Episode 3 Recap: Into the Woods**\
 `Hallorann has a terrifying vision. Gen. Shaw reconnects with an old friend.`\
 https://nytimes.com/2025/11/09/arts/television/it-welcome-to-derry-recap-season-1-episode-3.html

@@ -1,3 +1,7 @@
+**Gotham FC upset No. 1 Current - but don't call them the 'underdog'**\
+`Jaedyn Shaw and Katie Stengel scored in Gotham's 2-1 win over KC Current.`\
+https://nytimes.com/athletic/6793418/2025/11/09/gotham-fc-upset-kansas-city-underdog/
+
 **‘It: Welcome to Derry’ Season 1, Episode 3 Recap: Into the Woods**\
 `Hallorann has a terrifying vision. Gen. Shaw reconnects with an old friend.`\
 https://nytimes.com/2025/11/09/arts/television/it-welcome-to-derry-recap-season-1-episode-3.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6793031/2025/11/09/browns-hopeless-loss-jets/
 **How to watch Clemson vs. Louisville: Time, TV, streaming**\
 `Find out how to watch the Clemson Tigers play the Louisville Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6793261/2025/11/09/clemson-vs-louisville-stream-how-to-watch-nov-14/
-
-**'Like Houdini': Another Caleb Williams magic trick rescues Bears in thrilling win**\
-`A quarterback-led rally from 10 points down in the final minutes propelled the Bears to 6-3.`\
-https://nytimes.com/athletic/6793007/2025/11/09/bears-caleb-williams-comeback-vs-giants/
 
