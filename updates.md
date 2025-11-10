@@ -1,3 +1,7 @@
+**Appeals Court Blocks Trump’s Attempt to Halt Full Food Stamp Funding**\
+`A ruling late Sunday offered a possible reprieve for people who receive assistance from the program known as SNAP.`\
+https://nytimes.com/2025/11/10/us/politics/appeals-court-trump-snap-funding-shutdown.html
+
 **Everton mailbag: Send your questions to Patrick Boyland**\
 `Send us your questions and Patrick Boyland will respond to as many as he can in an article later this week`\
 https://nytimes.com/athletic/6794381/2025/11/10/everton-mailbag-moyes-grealish-barry-beto/
