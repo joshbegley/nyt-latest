@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6793302/2025/11/09/san-francisco-49ers-los-angeles-
 `The final had to be stopped on five different occasions so snow could be shovelled off key areas, with kickoff delayed for 20 minutes.`\
 https://nytimes.com/athletic/6793327/2025/11/09/atletico-ottawa-cpl-championship-david-rodriguez-snow-blizzard/
 
-**The young Bulls are still searching for their long-term identity on offense**\
+**The young Bulls are trying to master their long-term identity on offense**\
 `As angelic as Chicago’s offense appears at its height, turnovers threaten its identity. How can the Bulls fix it?`\
 https://nytimes.com/athletic/6793393/2025/11/09/josh-giddey-bulls-nba-offense/
 
