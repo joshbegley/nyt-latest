@@ -1,3 +1,7 @@
+**Lenny Wilkens dies at age 88, leaving behind an unmatched hoops legacy**\
+`Considered one of the greatest players and coaches in league history, Lenny Wilkens leaves behind a remarkable basketball legacy.`\
+https://nytimes.com/athletic/6793070/2025/11/09/lenny-wilkens-supersonics-cavaliers-obituary-nba/
+
 **In Murashov's debut, Penguins' old guys actually looked their age: Yohe's 10 observations**\
 `The Penguins ran out of gas in the second half despite strong play from Sergei Murashov in his first NHL game.`\
 https://nytimes.com/athletic/6792694/2025/11/09/penguins-sergei-murashov-debut-kings-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6792758/2025/11/09/atlanta-nwsl-expansion-arthur-bl
 **Closing games could be a concern for Bucks despite Giannis' dominance**\
 `On Sunday, Giannis Antetokounmpo was spectacular for Milwaukee, but missed free throws and turnovers led to a Bucks loss.`\
 https://nytimes.com/athletic/6792776/2025/11/09/giannis-antetokounmpo-kevin-durant-rockets-bucks-nba/
-
-**Typhoon Strikes Philippines, Days After a Storm Killed 200 People**\
-`Super Typhoon Fung-wong made landfall in the Philippines on Sunday. At least two deaths have been reported and over a million people were pre-emptively evacuated from their homes.`\
-https://nytimes.com/video/world/asia/100000010514512/typhoon-strikes-philippines-days-after-a-storm-killed-200-people.html
 

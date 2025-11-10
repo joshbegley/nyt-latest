@@ -1,3 +1,11 @@
+**In Murashov's debut, Penguins' old guys actually looked their age: Yohe's 10 observations**\
+`The Penguins ran out of gas in the second half despite strong play from Sergei Murashov in his first NHL game.`\
+https://nytimes.com/athletic/6792694/2025/11/09/penguins-sergei-murashov-debut-kings-nhl/
+
+**Rico Dowdle, Aaron Jones show restraint in 'Key & Peele'-inspired TD celebrations**\
+`After last week's penalty and fine, the Dowdle learned his lesson.`\
+https://nytimes.com/athletic/6792967/2025/11/09/key-and-peele-rico-dowdle-aaron-jones-nfl-celebrations/
+
 **Rico Dowdle, Aaron Jones show restraint in ‘Key & Peele’-inspired TD celebrations**\
 `After last week's penalty and fine, the Panthers' Dowdle learned his lesson.`\
 https://nytimes.com/athletic/6792967/2025/11/09/key-and-peele-rico-dowdle-aaron-jones-nfl-celebrations/
