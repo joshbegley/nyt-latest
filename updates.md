@@ -1,3 +1,7 @@
+**In ‘The Queen of Versailles,’ Kristin Chenoweth Can’t Get Enough**\
+`Material excess can never be too excessive for the central character of this gilded Broadway musical, based on the 2012 film.`\
+https://nytimes.com/2025/11/09/theater/queen-of-versailles-broadway-chenoweth.html
+
 **Hundreds of Migrants Missing Off Malaysia’s Coast**\
 `A boat said to be carrying people from the Rohingya ethnic minority capsized, and another was missing. At least seven bodies were recovered.`\
 https://nytimes.com/2025/11/09/world/asia/malaysia-thailand-migrants-boat.html
