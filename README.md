@@ -1,3 +1,11 @@
+**Week 12 bowl projections: The rivalry games that could have a bowl bid on the line**\
+`For several teams, rivalry games will determine whether they earn a postseason nod or stay home for December.`\
+https://nytimes.com/athletic/6792543/2025/11/10/college-football-bowl-projections-week-12/
+
+**Kyle Tucker destination tiers: MLB officials forecast market for winter’s top free agent**\
+`The Dodgers are always the pick when projecting where a top free agent will land, but other teams will be in the mix.`\
+https://nytimes.com/athletic/6792919/2025/11/10/mlb-kyle-tucker-free-agency-teams/
+
 **How to watch Minnesota vs. Oregon: Time, TV, streaming**\
 `Find out how to watch the Minnesota Golden Gophers play the Oregon Ducks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6794130/2025/11/10/minnesota-vs-oregon-stream-how-to-watch-nov-14/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6788300/2025/11/10/rams-seahawks-eagles-nfl-super-b
 **The Colts paid a premium for Sauce Gardner. In an era without shutdown CBs, was it a mistake?**\
 `Can any cornerback be worth two first-round picks in today's NFL? The Colts are betting Gardner can be.`\
 https://nytimes.com/athletic/6793990/2025/11/10/sauce-gardner-trade-colts-execs/
-
-**Is baseball next for Kyler Murray? Fallout from the Cardinals' QB switch**\
-`Murray's playing style and onerous contract could make him difficult to trade. Would another team want him as its starter?`\
-https://nytimes.com/athletic/6794006/2025/11/10/kyler-murray-contract-cardinals-baseball/
-
-**The New York Times International Edition in Print for Tuesday, Nov. 11, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/11/10/todays-new-york-times-international-edition
 

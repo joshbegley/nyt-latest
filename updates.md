@@ -1,3 +1,7 @@
+**How to watch Minnesota vs. Oregon: Time, TV, streaming**\
+`Find out how to watch the Minnesota Golden Gophers play the Oregon Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6794130/2025/11/10/minnesota-vs-oregon-stream-how-to-watch-nov-14/
+
 **Here’s the latest.**\
 `By Michael Gold, Catie Edmondson and Ashley Ahn`\
 https://nytimes.com/live/2025/11/10/us/trump-government-shutdown-news/heres-the-latest
