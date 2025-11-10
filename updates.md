@@ -1,3 +1,11 @@
+**J.J. McCarthy, Vikings search for answers to pre-snap debacle after loss to Ravens**\
+`McCarthy completed just 20 of his 42 passes for 248 yards, and he wasn't helped by his offense's eight false-start penalties.`\
+https://nytimes.com/athletic/6793114/2025/11/09/vikings-ravens-jj-mccarthy-false-start-penalties/
+
+**Brian Daboll's days in NY are numbered after Jaxson Dart's concussion, another crushing loss**\
+`Even if Daboll survives the immediate aftermath of Sunday’s debacle, he's not going to be the Giants' head coach much longer. `\
+https://nytimes.com/athletic/6793072/2025/11/09/brian-daboll-ny-giants-jaxon-dart-fired-concussion/
+
 **Lenny Wilkens, N.B.A. Hall of Famer as Both Player and Coach, Dies at 88**\
 `A perennial All Star, he was cited as one of the league’s 50 greatest players and one of its top 10 coaches, winning 1,332 games and leading Seattle to a championship.`\
 https://nytimes.com/2025/11/09/sports/lenny-wilkens-dead.html
