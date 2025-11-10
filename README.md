@@ -1,3 +1,7 @@
+**Liverpool complain to BBC over Kelvin MacKenzie TV appearance**\
+`MacKenzie was editor of The Sun when it published false and inflammatory reports about the Hillsborough disaster in 1989.`\
+https://nytimes.com/athletic/6794472/2025/11/10/liverpool-complain-kelvin-mackenzie-bbc-hillsborough/
+
 **Filipinos Reel From Destruction Left by Super Typhoon Fung-wong**\
 `Super Typhoon Fung-wong made landfall in the north of the Philippines on Sunday evening, killing at least two people and destroying about a thousand houses. The authorities had preemptively evacuated 1.3 million people.`\
 https://nytimes.com/video/world/asia/100000010515276/super-typhoon-fung-wong-philippines.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/10/world/europe/ukraine-corruption-energy.html
 **Heisman Trophy odds: Mendoza's Heisman moment reshapes the race**\
 `Fernando Mendoza moved up in the Heisman Trophy race after leading Indiana on a last-minute game-winning drive at Penn State.`\
 https://nytimes.com/athletic/6793752/2025/11/10/heisman-trophy-odds-fernando-mendoza-julian-sayin/
-
-**Liverpool contact PGMOL over disallowed goal in Man City defeat**\
-`Liverpool have told PGMOL that they do not accept that the decision on Van Dijk's disallowed goal was arrived at for subjective reasons.`\
-https://nytimes.com/athletic/6794591/2025/11/10/liverpool-goal-man-city-pgmol/
 

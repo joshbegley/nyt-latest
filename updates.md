@@ -1,3 +1,7 @@
+**Filipinos Reel From Destruction Left by Super Typhoon Fung-wong**\
+`Super Typhoon Fung-wong made landfall in the north of the Philippines on Sunday evening, killing at least two people and destroying about a thousand houses. The authorities had preemptively evacuated 1.3 million people.`\
+https://nytimes.com/video/world/asia/100000010515276/super-typhoon-fung-wong-philippines.html
+
 **Chelsea's Lavia set to miss at least one month with quad injury**\
 `The 21-year-old midfielder sustained the injury in Chelsea's draw against Qarabag in last week's Champions League match.`\
 https://nytimes.com/athletic/6780998/2025/11/10/lavia-injury-news-chelsea/
