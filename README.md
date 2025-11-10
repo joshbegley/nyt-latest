@@ -1,3 +1,7 @@
+**Burrow cleared to practice: What it means for his potential return**\
+`Cincinnati has 21 days to decide on whether or not Burrow can come back off injured reserve this season.`\
+https://nytimes.com/athletic/6795161/2025/11/10/joe-burrow-injury-update-practice-nfl-news/
+
 **Democrats Didn’t Compromise on the Shutdown. They Collapsed.**\
 `Readers respond to the Democratic defection that may help end the shutdown. Also: The proposed Trump coin; seniors who downsize.`\
 https://nytimes.com/2025/11/10/opinion/shutdown-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/10/business/low-income-shoppers-spending-snap.html
 **Judge rules statements by driver accused of killing Gaudreau brothers can be used at trial**\
 `Johnny and Matthew Gaudreau were struck and killed while riding bicycles near their childhood home on Aug. 29, 2024.`\
 https://nytimes.com/athletic/6760152/2025/11/10/johnny-gaudreau-driver-judge-statement-trial/
-
-**Brian Daboll fired by Giants after nearly 4 seasons amid losing streak**\
-`Offensive coordinator/assistant head coach Mike Kafka takes over as the Giants' interim head coach.`\
-https://nytimes.com/athletic/5953147/2025/11/10/brian-daboll-fired-giants-nfl-news/
 
