@@ -1,3 +1,11 @@
+**Chelsea's Palmer trademarks signature shivering celebration**\
+`Other players such as Cristiano Ronaldo, Kylian Mbappe, Gareth Bale and Erling Haaland have also had celebration trademarks confirmed.`\
+https://nytimes.com/athletic/6794417/2025/11/10/cole-palmer-chelsea-celebration-trademark/
+
+**Christian McCaffrey's increasing burden shows the depleted 49ers' reality**\
+`The 49ers have stayed competitive after a wave of injuries. But Sunday's loss showed they can't match the league's top teams like this.`\
+https://nytimes.com/athletic/6793723/2025/11/10/christian-mccaffrey-san-francisco-49ers-los-angeles-rams-playoffs/
+
 **Appeals Court Blocks Trump’s Attempt to Halt Full Food Stamp Funding**\
 `A ruling late Sunday offered a possible reprieve for people who receive assistance from the program known as SNAP.`\
 https://nytimes.com/2025/11/10/us/politics/appeals-court-trump-snap-funding-shutdown.html
