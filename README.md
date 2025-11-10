@@ -1,3 +1,11 @@
+**Review: Hildegard of Bingen’s Extraordinary Life, on Operatic Scale**\
+`Sarah Kirkland Snider’s gorgeously mesmerizing first opera has both focus and a thematically expansive view of a moment in medieval history.`\
+https://nytimes.com/2025/11/10/arts/music/hildegard-opera-review.html
+
+**How ‘The Disintegration Loops’ Saved William Basinski’s Life**\
+`The composer’s ambient masterwork, created from disintegrating magnetic tape, became synonymous with 9/11. When he made it, his own life was falling apart.`\
+https://nytimes.com/2025/11/10/arts/music/disintegration-loops-william-basinski.html
+
 **PWHL will play ‘Takeover Tour’ games in Chicago, Dallas, Detroit and more**\
 `The PWHL's third season will include 16 neutral-site games hosted by seven new cities and four returning markets.`\
 https://nytimes.com/athletic/6792584/2025/11/10/pwhl-takeover-tour-2025-26-schedule/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/11/10/business/airlines-cancellations-senate-deal.html
 **Rest-of-season fantasy football predictions for 'Jamo,' Worthy and more wildcards**\
 `KC Joyner gives rest-of-season predictions for some of fantasy football's biggest question marks, including Xavier Worthy and Woody Marks.`\
 https://nytimes.com/athletic/6794073/2025/11/10/rest-of-season-fantasy-football-predictions-for-jameson-williams-xavier-worthy-and-more-wildcards/
-
-**Do You Know Where in the World These Books Are Set?**\
-`Hitting the road for the holiday season is a tradition for many families. Try this short quiz on literary journeys and geography to test your memory — and maybe discover a new book to travel with along the way.`\
-https://nytimes.com/interactive/2025/11/10/books/review/road-trips-quiz.html
-
-**Lowetide: What would a shake-up trade look like for the Oilers?**\
-`The Oilers have to navigate a few challenges when it comes to pulling off a difference-making trade.`\
-https://nytimes.com/athletic/6791818/2025/11/10/edmonton-oilers-trade-goalies-skinner-saros/
 
