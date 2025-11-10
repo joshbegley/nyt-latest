@@ -1,3 +1,19 @@
+**With Jiri Kulich's blood clot Sabres' latest injury, will Kevyn Adams make a move?**\
+`Beset by injuries, can the Sabres hang in the playoff picture without some reinforcements?`\
+https://nytimes.com/athletic/6795559/2025/11/10/jiri-kulich-blood-clot-sabres-trade/
+
+**Sun Belt suspends 13 players after Louisiana-Texas State brawl**\
+`The Sun Belt on Monday announced the suspensions of 13 Louisiana and Texas State players after a fight at the end of Saturday's game.`\
+https://nytimes.com/athletic/6795602/2025/11/10/louisiana-texas-state-brawl-sun-belt-suspensions/
+
+**Dolphins coach Mike McDaniel appears to visit Bills bar after win**\
+`McDaniel neither confirmed nor denied his appearance at Elbow Room on Sunday night.`\
+https://nytimes.com/athletic/6795500/2025/11/10/dolphins-coach-mike-mcdaniel-provides-mysterious-response-for-apparent-visit-to-bills-bar-after-win/
+
+**There was nothing wrong with Sean Couturier's assessment of Matvei Michkov**\
+`The captain's recent comments about the Flyers' young potential star require some context.`\
+https://nytimes.com/athletic/6795245/2025/11/10/michkov-couturier-flyers-comments/
+
 **Groups Sue to Reverse Trump’s Cuts to Energy Projects in Democratic States**\
 `A lawsuit filed on Monday argued that the president has discriminated against blue states by slashing federal funds for political leverage during the shutdown.`\
 https://nytimes.com/2025/11/10/us/politics/trump-shutdown-cuts-lawsuit.html

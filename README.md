@@ -1,3 +1,7 @@
+**The BBC Under Fire**\
+`President Trump is threatening to sue, and that’s just one of the broadcaster’s problems.`\
+https://nytimes.com/2025/11/10/world/bbc-trump-syria-new-delhi.html
+
 **With Jiri Kulich's blood clot Sabres' latest injury, will Kevyn Adams make a move?**\
 `Beset by injuries, can the Sabres hang in the playoff picture without some reinforcements?`\
 https://nytimes.com/athletic/6795559/2025/11/10/jiri-kulich-blood-clot-sabres-trade/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6795564/2025/11/10/submit-a-question-for-pete-samps
 **Microbets, Parlays and Prop Bets: A Guide to the M.L.B. Gambling Scandal**\
 `Federal prosecutors say two pitchers for the Cleveland Guardians tipped off bettors about what pitches they would throw, setting up rigged “microbets.”`\
 https://nytimes.com/2025/11/10/nyregion/mlb-nba-gambling-microbets.html
-
-**Bonnie Watson Coleman, a Democratic Trailblazer, to Retire From Congress**\
-`Ms. Watson Coleman, 80, the first Black woman to represent New Jersey in Congress, said she would not run for a seventh term in the state’s 12th Congressional District, near Trenton.`\
-https://nytimes.com/2025/11/10/nyregion/bonnie-watson-coleman-retirement-congress.html
 
