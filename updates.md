@@ -1,3 +1,7 @@
+**Inside Barcelona: Lewandowski shows his class, but does the defence need fixing?**\
+`Trips to Celta Vigo have often been tough for Barca, but Sunday's 4-2 victory saw Hansi Flick's side cut Real Madrid's La Liga lead`\
+https://nytimes.com/athletic/6794119/2025/11/10/barcelona-celta-la-liga-lewandowski-flick/
+
 **Twins' free-agent targets: 10 hitter fits for a front office shopping in the bargain bin**\
 `Can the Twins find good value and lineup help shopping in the clearance aisle like they did with Harrison Bader last offseason?`\
 https://nytimes.com/athletic/6789408/2025/11/10/10-twins-offense-free-agent-targets/
