@@ -1,6 +1,10 @@
+**What to Know About the Turmoil at the BBC**\
+`After days of pressure, two top executives quit after a memo by a former adviser said that the public broadcaster had misleadingly edited a speech by President Trump.`\
+https://nytimes.com/2025/11/10/world/europe/bbc-resignations-trump-speech-edit.html
+
 **Appeals Court Blocks Trump’s Attempt to Halt Full Food Stamp Funding**\
 `A late night ruling on Sunday offered a possible reprieve for people on the program known as SNAP.`\
-https://nytimes.com/2025/11/10/business/appeals-court-blocks-trumps-attempt-to-halt-full-food-stamp-funding.html
+https://nytimes.com/2025/11/10/business/appeals-court-trump-snap-funding-shutdown.html
 
 **Thailand Suspends Trump-Backed Peace Talks With Cambodia**\
 `The move, which came after two Thai soldiers were injured by a land mine, imperiled a pledge by the two countries to resolve their longstanding differences at the behest of President Trump.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6793652/2025/11/10/notre-dame-navy-cj-carr-malachi-
 **Current's overreliance on Chawinga makes her MVP argument even more compelling**\
 `Kansas City Current's shock loss to Gotham FC highlighted how much they struggle without Chawinga.`\
 https://nytimes.com/athletic/6793935/2025/11/10/temwa-chawinga-kansas-city-current/
-
-**French Former President Will Be Released From Prison, Pending Appeal**\
-`Nicolas Sarkozy served about three weeks of a five-year prison sentence for his conviction in a campaign finance scandal.`\
-https://nytimes.com/2025/11/10/world/europe/sarkozy-prison-appeals.html
 
