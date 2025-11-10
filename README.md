@@ -1,3 +1,7 @@
+**In Murashov's debut, Penguins' old guys actually looked their age: Yohe's 10 observations**\
+`The Penguins ran out of gas in the second half despite strong play from Sergei Murashov in his first NHL game.`\
+https://nytimes.com/athletic/6792694/2025/11/09/penguins-sergei-murashov-debut-kings-nhl/
+
 **Rico Dowdle, Aaron Jones show restraint in ‘Key & Peele’-inspired TD celebrations**\
 `After last week's penalty and fine, the Panthers' Dowdle learned his lesson.`\
 https://nytimes.com/athletic/6792967/2025/11/09/key-and-peele-rico-dowdle-aaron-jones-nfl-celebrations/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6792776/2025/11/09/giannis-antetokounmpo-kevin-dura
 **Typhoon Strikes Philippines, Days After a Storm Killed 200 People**\
 `Super Typhoon Fung-wong made landfall in the Philippines on Sunday. At least two deaths have been reported and over a million people were pre-emptively evacuated from their homes.`\
 https://nytimes.com/video/world/asia/100000010514512/typhoon-strikes-philippines-days-after-a-storm-killed-200-people.html
-
-**Richie Adubato, Coach of Men’s and Women’s Pro Basketball, Dies at 87**\
-`He had a losing record in the N.B.A., but gained acclaim coaching a Liberty team that featured stars like Teresa Weatherspoon and Becky Hammon.`\
-https://nytimes.com/2025/11/09/obituaries/richie-adubato-dead.html
 
