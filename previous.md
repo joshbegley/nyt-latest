@@ -1,3 +1,7 @@
+**Six Takeaways from the Senate Deal to End the Shutdown**\
+`For 40 days, Senator Chuck Schumer kept his caucus unified. But an end approached without Democrats achieving an extension of health insurance subsidies that are scheduled to expire at the end of the year.`\
+https://nytimes.com/2025/11/10/us/politics/takeaways-senate-democrats-shutdown.html
+
 **Ben Stokes and the debt he owes New Zealand**\
 `The England captain's roots are a sense of pride for the people of Christchurch - despite being known as a tearaway as a youngster`\
 https://nytimes.com/athletic/6787539/2025/11/10/ben-stokes-england-captain-ashes-new-zealand/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6792084/2025/11/10/nottingham-forest-dyche-leeds/
 **Nico O'Reilly thwarted Mohamed Salah like few other full-backs can**\
 `The 20-year-old repaid Pep Guardiola’s faith by doing what a lot of City defenders have struggled with in recent years: keeping Salah quiet`\
 https://nytimes.com/athletic/6792293/2025/11/10/nico-oreilly-man-city-england-salah/
-
-**This Manchester City side have a trait that marks out title winners - that is good news for the WSL**\
-`City are looking like they can also execute Chelsea's proven WSL blueprint of winning even when not at their best`\
-https://nytimes.com/athletic/6792357/2025/11/10/man-city-wsl-title-race/
 
