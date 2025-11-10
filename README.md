@@ -1,3 +1,7 @@
+**Fired Director of Philadelphia Art Museum’s Complaint Against the Institution**\
+`Read the complaint filed against the Philadelphia Art Museum.`\
+https://nytimes.com/interactive/2025/11/10/us/10cul-suda-lawsuit-doc.html
+
 **Rob Gronkowski to sign one-day contract, officially retire as a Patriot**\
 `The legendary tight end ranks first in Patriots history in receiving TDs, second in receiving yards and fifth in receptions.`\
 https://nytimes.com/athletic/6794819/2025/11/10/rob-gronkowski-patriots-retirement-one-day-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/10/arts/music/hildegard-opera-review.html
 **How ‘The Disintegration Loops’ Saved William Basinski’s Life**\
 `The composer’s ambient masterwork, created from disintegrating magnetic tape, became synonymous with 9/11. When he made it, his own life was falling apart.`\
 https://nytimes.com/2025/11/10/arts/music/disintegration-loops-william-basinski.html
-
-**PWHL will play ‘Takeover Tour’ games in Chicago, Dallas, Detroit and more**\
-`The PWHL's third season will include 16 neutral-site games hosted by seven new cities and four returning markets.`\
-https://nytimes.com/athletic/6792584/2025/11/10/pwhl-takeover-tour-2025-26-schedule/
 
