@@ -1,3 +1,7 @@
+**Seahawks earning the right to call themselves elite, and they might be getting better**\
+`In yet another dominant win, the Seahawks showed major progress in one of their weakest areas, again stamping themselves as contenders.`\
+https://nytimes.com/athletic/6793428/2025/11/09/seahawks-cardinals-blowout-run-game/
+
 **The young Bulls are trying to master their long-term identity on offense**\
 `As angelic as Chicago’s offense appears at its height, turnovers threaten its identity. How can the Bulls fix it?`\
 https://nytimes.com/athletic/6793393/2025/11/09/josh-giddey-bulls-nba-offense/

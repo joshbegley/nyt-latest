@@ -1,3 +1,7 @@
+**Seahawks earning the right to call themselves elite, and they might be getting better**\
+`In yet another dominant win, the Seahawks showed major progress in one of their weakest areas, again stamping themselves as contenders.`\
+https://nytimes.com/athletic/6793428/2025/11/09/seahawks-cardinals-blowout-run-game/
+
 **After sobering loss to Rams, 49ers seek reset as Brock Purdy nears return**\
 `Injuries and inconsistency have the 49ers searching for answers after falling to 6-4, but a favorable schedule offers hope.`\
 https://nytimes.com/athletic/6793302/2025/11/09/san-francisco-49ers-los-angeles-rams-brock-purdy-reset/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6793114/2025/11/09/vikings-ravens-jj-mccarthy-false
 **Lenny Wilkens, N.B.A. Hall of Famer as Both Player and Coach, Dies at 88**\
 `A perennial All Star, he was cited as one of the league’s 50 greatest players and one of its top 10 coaches, winning 1,332 games and leading Seattle to a championship.`\
 https://nytimes.com/2025/11/09/sports/lenny-wilkens-dead.html
-
-**Brian Daboll's days in NY are numbered after Jaxson Dart's concussion, another crushing loss**\
-`Even if Daboll survives the immediate aftermath of Sunday’s debacle, he's not going to be the Giants' head coach much longer. `\
-https://nytimes.com/athletic/6793072/2025/11/09/brian-daboll-ny-giants-jaxon-dart-fired-concussion/
 

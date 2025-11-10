@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>The Mailbag is your go-to destination this week for inane ACC tiebreakers, CFP scenarios with seven SEC teams and more.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6793598/2025/11/09/submit-a-question-for-stewart-mandels-college-football-mailbag-322/
+
 **Seahawks earning the right to call themselves elite, and they might be getting better**\
 `In yet another dominant win, the Seahawks showed major progress in one of their weakest areas, again stamping themselves as contenders.`\
 https://nytimes.com/athletic/6793428/2025/11/09/seahawks-cardinals-blowout-run-game/
@@ -33,8 +39,4 @@ https://nytimes.com/athletic/6793058/2025/11/09/ravens-defense-swagger-win-vikin
 **J.J. McCarthy, Vikings search for answers to pre-snap debacle after loss to Ravens**\
 `McCarthy completed just 20 of his 42 passes for 248 yards, and he wasn't helped by his offense's eight false-start penalties.`\
 https://nytimes.com/athletic/6793114/2025/11/09/vikings-ravens-jj-mccarthy-false-start-penalties/
-
-**Lenny Wilkens, N.B.A. Hall of Famer as Both Player and Coach, Dies at 88**\
-`A perennial All Star, he was cited as one of the league’s 50 greatest players and one of its top 10 coaches, winning 1,332 games and leading Seattle to a championship.`\
-https://nytimes.com/2025/11/09/sports/lenny-wilkens-dead.html
 
