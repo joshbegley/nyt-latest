@@ -1,3 +1,11 @@
+**MLB, sportsbooks to limit prop bets on pitches amid gambling scandal**\
+`The announcement comes a day after pitchers Emmanuel Clase and Luis Ortiz were indicted on charges related to allegedly rigging pitches.`\
+https://nytimes.com/athletic/6795863/2025/11/10/mlb-prop-bets-pitches-limit-2/
+
+**‘What Was the Point?’ Travelers Battle Airport Disruptions Amid Shutdown Talks.**\
+`The travel turmoil led some fliers to embark on time-consuming detours as they monitored talks in Washington to end the government shutdown.`\
+https://nytimes.com/2025/11/10/us/flights-cancellations-delays-airports-shutdown.html
+
 **Rangers suddenly looking deeper after Perreault recall, Trocheck's return**\
 `With the additions of Perreault and Trocheck, a lineup that's seen its top players stumble and scoring depth erode, suddenly looks deeper.`\
 https://nytimes.com/athletic/6795468/2025/11/10/gabe-perreault-vincent-trocheck-rangers-depth/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/10/weather/atmospheric-river-rain-forecast-californi
 **M.L.B. Limits Bets on Individual Pitches After Gambling Charges**\
 `Two Cleveland pitchers were accused of colluding with bettors. The league and its gambling company partners have put a $200 limit on wagers on individual pitches.`\
 https://nytimes.com/2025/11/10/nyregion/mlb-prop-bet-pitches-limits.html
-
-**The BBC Under Fire**\
-`President Trump is threatening to sue, and that’s just one of the broadcaster’s problems.`\
-https://nytimes.com/2025/11/10/world/bbc-trump-syria-new-delhi.html
-
-**With Jiri Kulich's blood clot Sabres' latest injury, will Kevyn Adams make a move?**\
-`Beset by injuries, can the Sabres hang in the playoff picture without some reinforcements?`\
-https://nytimes.com/athletic/6795559/2025/11/10/jiri-kulich-blood-clot-sabres-trade/
 

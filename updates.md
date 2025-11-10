@@ -1,3 +1,11 @@
+**MLB, sportsbooks to limit prop bets on pitches amid gambling scandal**\
+`The announcement comes a day after pitchers Emmanuel Clase and Luis Ortiz were indicted on charges related to allegedly rigging pitches.`\
+https://nytimes.com/athletic/6795863/2025/11/10/mlb-prop-bets-pitches-limit-2/
+
+**‘What Was the Point?’ Travelers Battle Airport Disruptions Amid Shutdown Talks.**\
+`The travel turmoil led some fliers to embark on time-consuming detours as they monitored talks in Washington to end the government shutdown.`\
+https://nytimes.com/2025/11/10/us/flights-cancellations-delays-airports-shutdown.html
+
 **Rangers suddenly looking deeper after Perreault recall, Trocheck's return**\
 `With the additions of Perreault and Trocheck, a lineup that's seen its top players stumble and scoring depth erode, suddenly looks deeper.`\
 https://nytimes.com/athletic/6795468/2025/11/10/gabe-perreault-vincent-trocheck-rangers-depth/
