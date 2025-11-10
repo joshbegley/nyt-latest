@@ -1,3 +1,15 @@
+**Explosion Reported in Crowded New Delhi Neighborhood**\
+`Security officials did not immediately comment on what caused the blast, which local news outlets said inflicted a number of casualties.`\
+https://nytimes.com/2025/11/10/world/asia/new-delhi-red-fort-explosion-india.html
+
+**Richie Adubato, who coached New York Liberty to three WNBA Finals, dies at 87**\
+`Adubato also coached the Dallas Mavericks, Detroit Pistons and Orlando Magic of the NBA.`\
+https://nytimes.com/athletic/6794406/2025/11/10/richie-adubato-dies-liberty/
+
+**NASCAR 2025 takeaways: Poetic injustice ties season's storylines together**\
+`Somehow, the four biggest storylines of the year all converged in the final laps of last Sunday's championship race, a fitting end to 2025.`\
+https://nytimes.com/athletic/6790203/2025/11/10/nascar-2025-takeaways-denny-hamlin-kyle-larson/
+
 **Ferrari F1 drivers should ‘focus more and talk less’ - president Elkann**\
 `Elkann's comments come after Ferrari drivers Lewis Hamilton and Charles Leclerc both retired from Sunday’s Brazilian Grand Prix in Sao Paulo`\
 https://nytimes.com/athletic/6794545/2025/11/10/ferrari-f1-drivers-president-elkann/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6773096/2025/11/10/tyler-adams-usmnt-injury-news-bo
 **Chelsea's Palmer trademarks signature shivering celebration**\
 `Other players such as Cristiano Ronaldo, Kylian Mbappe, Gareth Bale and Erling Haaland have also had celebration trademarks confirmed.`\
 https://nytimes.com/athletic/6794417/2025/11/10/cole-palmer-chelsea-celebration-trademark/
-
-**Christian McCaffrey's increasing burden shows the depleted 49ers' reality**\
-`The 49ers have stayed competitive after a wave of injuries. But Sunday's loss showed they can't match the league's top teams like this.`\
-https://nytimes.com/athletic/6793723/2025/11/10/christian-mccaffrey-san-francisco-49ers-los-angeles-rams-playoffs/
-
-**Everton mailbag: Send your questions to Patrick Boyland**\
-`Send us your questions and Patrick Boyland will respond to as many as he can in an article later this week`\
-https://nytimes.com/athletic/6794381/2025/11/10/everton-mailbag-moyes-grealish-barry-beto/
-
-**Sanders Looks to Flex the Left’s Power With Senate Endorsement in Minnesota**\
-`Senator Bernie Sanders is backing Lt. Gov. Peggy Flanagan in her state’s Democratic primary race for Senate, his latest attempt to pull the party to the left.`\
-https://nytimes.com/2025/11/10/us/politics/bernie-sanders-peggy-flanagan-michigan-senate-endorsement.html
 

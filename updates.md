@@ -1,3 +1,15 @@
+**Ferrari F1 drivers should ‘focus more and talk less’ - president Elkann**\
+`Elkann's comments come after Ferrari drivers Lewis Hamilton and Charles Leclerc both retired from Sunday’s Brazilian Grand Prix in Sao Paulo`\
+https://nytimes.com/athletic/6794545/2025/11/10/ferrari-f1-drivers-president-elkann/
+
+**Early Winter Storm Blasts the Midwest With Snow and Wind**\
+`More than 10 inches of snow was expected to fall in some areas south and west of Lake Michigan. The cold system was expected to move to the Northeast on Tuesday.`\
+https://nytimes.com/2025/11/10/weather/cold-weather-snow-mideast-east-coast.html
+
+**Cleveland has plenty of scoring when healthy. But it needs a dominant Donovan Mitchell**\
+`Could more shots for Donovan Mitchell, even when every starter is healthy, be the key that unlocks postseason success for the Cavaliers? `\
+https://nytimes.com/athletic/6793234/2025/11/10/donovan-mitchell-cavaliers-scoring-leader/
+
 **Supreme Court to Hear Major Challenge to Mail-In Ballot Laws**\
 `The justices agreed to hear a challenge to Mississippi’s law, a case that could upend similar measures in dozens of states before the 2026 election.`\
 https://nytimes.com/2025/11/10/us/politics/supreme-court-mail-ballots-mississippi.html
