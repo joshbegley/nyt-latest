@@ -1,3 +1,7 @@
+**A Flood of Green Tech From China Is Upending Global Climate Politics**\
+`At this year’s climate summit, the United States is out and Europe is struggling. But emerging countries are embracing renewable energy thanks to a glut of cheap equipment.`\
+https://nytimes.com/2025/11/10/climate/cop30-belem-climate-energy-technology-china.html
+
 **How to watch Columbia vs. UConn: Time, TV, streaming**\
 `Find out how to watch the Columbia Lions play the UConn Huskies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6794832/2025/11/10/columbia-vs-uconn-stream-how-to-watch-nov-10/
