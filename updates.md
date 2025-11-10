@@ -1,3 +1,15 @@
+**Brandon Ingram's awkward water bottle toss results in $25,000 fine by NBA**\
+`Brandon Ingram slammed a plastic water bottle onto the court, sending water splashing onto a game attendant and earning a $25k fine`\
+https://nytimes.com/athletic/6795979/2025/11/10/brandon-ingram-fined-toronto-raptors-nba/
+
+**Cowboys to honor Marshawn Kneeland with helmet decal, shirts, video tribute**\
+`Dallas plans a video tribute before the Cowboys play the Eagles at AT&T Stadium on Nov. 23.`\
+https://nytimes.com/athletic/6796018/2025/11/10/cowboys-marshawn-kneeland-honor-helmet-decal-video/
+
+**Pitt's Pat Narduzzi not focused on Notre Dame: 'They could put up 100 on us'**\
+`Coach would rather make sure his Panthers win ACC games, not showdown vs. Fighting Irish.`\
+https://nytimes.com/athletic/6795918/2025/11/10/pat-narduzzi-pitt-notre-dame-comments/
+
 **How Syria’s President Transformed His Image**\
 `Syrian President Ahmed al-Shara’s meeting with President Trump in Washington signifies a new turn for al-Shara, a former Islamist rebel leader who was once designated by the United States as a terrorist with a $10 million bounty on his head. Our reporter Christina Goldbaum describes the meeting.`\
 https://nytimes.com/video/world/middleeast/100000010515338/how-syrias-president-transformed-his-image.html

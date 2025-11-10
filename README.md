@@ -1,9 +1,13 @@
+**Marriage Ruling Relieves Gay Americans and Leaves Conservatives Pledging New Challenges**\
+`The Supreme Court chose not to revisit a case involving same-sex marriage. The number of married same-sex couples has doubled in the last 10 years.`\
+https://nytimes.com/2025/11/10/us/supreme-court-same-sex-marriage-reactions.html
+
 **Brandon Ingram's awkward water bottle toss results in $25,000 fine by NBA**\
 `Brandon Ingram slammed a plastic water bottle onto the court, sending water splashing onto a game attendant and earning a $25k fine`\
 https://nytimes.com/athletic/6795979/2025/11/10/brandon-ingram-fined-toronto-raptors-nba/
 
 **Cowboys to honor Marshawn Kneeland with helmet decal, shirts, video tribute**\
-`Dallas plans a video tribute before the Cowboys play the Eagles at AT&T Stadium on Nov. 23.`\
+`Dallas is planning a video tribute before the Cowboys play the Eagles at AT&T Stadium on Nov. 23.`\
 https://nytimes.com/athletic/6796018/2025/11/10/cowboys-marshawn-kneeland-honor-helmet-decal-video/
 
 **Pitt's Pat Narduzzi not focused on Notre Dame: 'They could put up 100 on us'**\
