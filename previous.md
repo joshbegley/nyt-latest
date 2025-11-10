@@ -1,3 +1,15 @@
+**Trump Threatens to Sue the BBC for $1 Billion After Jan. 6 Documentary**\
+`A lawyer for the president said the BBC’s editing of a speech Mr. Trump gave on Jan. 6 was “defamatory.” The broadcaster on Monday apologized for an “error in judgment.”`\
+https://nytimes.com/2025/11/10/world/europe/trump-bbc-lawsuit-documentary.html
+
+**Japanese right-hander Tatsuya Imai will be posted for MLB, opening 45-day negotiation period**\
+`Tatsuya Imai is arguably the most intriguing free agent coming from Japan this offseason.`\
+https://nytimes.com/athletic/6794554/2025/11/10/mlb-tatsuya-imai-free-agency-negotiation-opens/
+
+**Anti-Corruption Agencies Double Down Despite Pressure From Zelensky**\
+`Months after Ukraine’s president tried to cripple them, the agencies said they had uncovered a major scheme involving the state-owned nuclear energy company.`\
+https://nytimes.com/2025/11/10/world/europe/ukraine-corruption-energy.html
+
 **Heisman Trophy odds: Mendoza's Heisman moment reshapes the race**\
 `Fernando Mendoza moved up in the Heisman Trophy race after leading Indiana on a last-minute game-winning drive at Penn State.`\
 https://nytimes.com/athletic/6793752/2025/11/10/heisman-trophy-odds-fernando-mendoza-julian-sayin/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6794406/2025/11/10/richie-adubato-dies-liberty/
 **NASCAR 2025 takeaways: Poetic injustice ties season's storylines together**\
 `Somehow, the four biggest storylines of the year all converged in the final laps of last Sunday's championship race, a fitting end to 2025.`\
 https://nytimes.com/athletic/6790203/2025/11/10/nascar-2025-takeaways-denny-hamlin-kyle-larson/
-
-**Ferrari F1 drivers should ‘focus more and talk less’ - president Elkann**\
-`Elkann's comments come after Ferrari drivers Lewis Hamilton and Charles Leclerc both retired from Sunday’s Brazilian Grand Prix in Sao Paulo`\
-https://nytimes.com/athletic/6794545/2025/11/10/ferrari-f1-drivers-president-elkann/
-
-**Supreme Court to Hear Major Challenge to Mail-In Ballot Laws**\
-`The justices agreed to hear a challenge to Mississippi’s law, a case that could upend similar measures in dozens of states before the 2026 election.`\
-https://nytimes.com/2025/11/10/us/politics/supreme-court-mail-ballots-mississippi.html
-
-**Early Winter Storm Blasts the Midwest With Snow and Wind**\
-`More than 10 inches of snow was expected to fall in some areas south and west of Lake Michigan. The cold system was expected to move to the Northeast on Tuesday.`\
-https://nytimes.com/2025/11/10/weather/cold-weather-snow-mideast-east-coast.html
 
