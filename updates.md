@@ -1,3 +1,19 @@
+**Designing for a Holy Woman Who Was No Slouch with a Hammer**\
+`The nun known as Mother Carmen is the first female saint from Venezuela. Her portrait and reliquary give some hints as to why.`\
+https://nytimes.com/2025/11/10/arts/design/mother-carmen-saint-design-medallion.html
+
+**A Finnish Textile Artist Takes Rags to Design Riches**\
+`How Eija Rasinmaki reinvented a humble tradition for the modern world.`\
+https://nytimes.com/2025/11/10/style/finland-rag-rugs.html
+
+**A Paris Museum Returns to the Scene of the Sublime**\
+`A centenary celebration of Art Deco style recalls an age of opulence.`\
+https://nytimes.com/2025/11/10/arts/design/paris-art-deco-exhibit-centenary.html
+
+**BBC Chair Apologizes After Bias Accusations**\
+`The chair of the BBC board, Samir Shah, apologized on Monday after two top executives resigned over claims of misleading editing of a speech by President Trump.`\
+https://nytimes.com/video/world/europe/100000010515291/bbc-chair-apologizes-after-bias-accusations.html
+
 **An A.I. Machine That Passes the Smell Test**\
 `A roving installation uses a detailed questionnaire and artificial intelligence to help consumers concoct their own perfumes.`\
 https://nytimes.com/2025/11/10/fashion/artificial-intelligence-perfume.html
