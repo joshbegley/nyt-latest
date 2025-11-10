@@ -1,3 +1,7 @@
+**How to watch Minnesota vs. Oregon: Time, TV, streaming**\
+`Find out how to watch the Minnesota Golden Gophers play the Oregon Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6794130/2025/11/10/minnesota-vs-oregon-stream-how-to-watch-nov-14/
+
 **Here’s the latest.**\
 `By Michael Gold, Catie Edmondson and Ashley Ahn`\
 https://nytimes.com/live/2025/11/10/us/trump-government-shutdown-news/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6794006/2025/11/10/kyler-murray-contract-cardinals-
 **The New York Times International Edition in Print for Tuesday, Nov. 11, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/11/10/todays-new-york-times-international-edition
-
-**The WTA Tour tennis season concludes with a thrilling clash of styles set for 2026**\
-`The rising Amanda Anisimova and the resurgent Elena Rybakina will next year meet Iga Świątek's renewed focus on counterpunching.`\
-https://nytimes.com/athletic/6787676/2025/11/10/tennis-wta-tour-best-players-game-styles/
 
