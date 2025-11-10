@@ -1,3 +1,15 @@
+**A Finnish Textile Artist Takes Rags to Design Riches**\
+`How Eija Rasinmaki reinvented a humble tradition for the modern world.`\
+https://nytimes.com/2025/11/10/style/finland-rag-rugs.html
+
+**A Paris Museum Returns to the Scene of the Sublime**\
+`A centenary celebration of Art Deco style recalls an age of opulence.`\
+https://nytimes.com/2025/11/10/arts/design/paris-art-deco-exhibit-centenary.html
+
+**BBC Chair Apologizes After Bias Accusations**\
+`The chair of the BBC board, Samir Shah, apologized on Monday after two top executives resigned over claims of misleading editing of a speech by President Trump.`\
+https://nytimes.com/video/world/europe/100000010515291/bbc-chair-apologizes-after-bias-accusations.html
+
 **An A.I. Machine That Passes the Smell Test**\
 `A roving installation uses a detailed questionnaire and artificial intelligence to help consumers concoct their own perfumes.`\
 https://nytimes.com/2025/11/10/fashion/artificial-intelligence-perfume.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/10/opinion/shutdown-democrats.html
 **Houston leaps over Purdue for No. 1 spot in AP men's poll: Key takeaways**\
 `Houston has been ranked No. 1 at some point in four of the last five seasons.`\
 https://nytimes.com/athletic/6794509/2025/11/10/ap-mens-basketball-top-25-houston-purdue-alabama/
-
-**Fantasy hockey: Rest of season rankings and player projections for 2025-26**\
-`Dom Luszczyszyn offers up his second in-season update to his 2025-26 fantasy hockey rest-of-season rankings and player projections.`\
-https://nytimes.com/athletic/6754590/2025/11/10/fantasy-hockey-rest-of-season-rankings-player-projections-2025-26/
-
-**NFL Week 11 odds: These Super Bowl contenders are on a collision course**\
-`Week 11 features some key divisional matchups, the NFL's first game in Spain and a tough test for the Bills.`\
-https://nytimes.com/athletic/6794783/2025/11/10/nfl-week-11-odds-spreads-lions-eagles-chiefs/
-
-**For second straight week, MNF will not be available on YouTube TV**\
-`YouTube TV subscribers have been forced to find alternative viewing options amid the streaming service's ongoing dispute with ESPN/Disney.`\
-https://nytimes.com/athletic/6794797/2025/11/10/monday-night-football-youtube-espn-abc/
 

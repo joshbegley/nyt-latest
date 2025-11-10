@@ -1,3 +1,11 @@
+**An A.I. Machine That Passes the Smell Test**\
+`A roving installation uses a detailed questionnaire and artificial intelligence to help consumers concoct their own perfumes.`\
+https://nytimes.com/2025/11/10/fashion/artificial-intelligence-perfume.html
+
+**The fall of Brian Daboll: Why the Giants fired their coach now**\
+`Before hiring the next coach, co-owner John Mara needs to take time to reflect on how his once proud franchise has become such a clown show.`\
+https://nytimes.com/athletic/5955545/2025/11/10/why-giants-fired-brian-daboll/
+
 **Christine Pelosi Will Not Run for Her Mother’s House Seat**\
 `Christine Pelosi, a Democratic activist, announced that she will run instead for a California State Senate seat, ending speculation that she would try to succeed Nancy Pelosi in the U.S. House.`\
 https://nytimes.com/2025/11/10/us/christine-nancy-pelosi-house.html
