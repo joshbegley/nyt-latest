@@ -1,3 +1,7 @@
+**Chiefs' Josh Simmons returns to practice this week. Will he start vs. Broncos?**\
+`Chiefs coach Andy Reid said the team will take a wait-and-see approach as their first-round pick  returns to the team.`\
+https://nytimes.com/athletic/6795167/2025/11/10/chiefs-josh-simmons-returns-to-practice-this-week-will-he-start-vs-broncos/
+
 **The Windup: The indictment against Clase and Ortiz is *bad* bad**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6795165/2025/11/10/mlb-gambling-indictment-clase-ortiz-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/100000010515652/india-explosion-new-delhi-red-fo
 **Warren Buffett’s Berkshire Hathaway Farewell: ‘I’m Going Quiet’**\
 `In one of his final missives as the company’s leader, Mr. Buffett said he would accelerate his plans to disburse his fortune to his children’s foundations.`\
 https://nytimes.com/2025/11/10/business/warren-buffett-berkshire-farewell.html
-
-**Designing for a Holy Woman Who Was No Slouch with a Hammer**\
-`The nun known as Mother Carmen is the first female saint from Venezuela. Her portrait and reliquary give some hints as to why.`\
-https://nytimes.com/2025/11/10/arts/design/mother-carmen-saint-design-medallion.html
 

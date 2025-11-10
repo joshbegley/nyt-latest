@@ -1,3 +1,11 @@
+**The Windup: The indictment against Clase and Ortiz is *bad* bad**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6795165/2025/11/10/mlb-gambling-indictment-clase-ortiz-the-windup/
+
+**How Canada Lost Decades of Progress in Fighting Measles**\
+`The disease was once considered eliminated in Canada, but not any more — there have been more than 5,000 cases in the last 12 months as vaccination rates have fallen.`\
+https://nytimes.com/2025/11/10/world/canada/canada-measles-what-to-know.html
+
 **Mamdani Announces His Deputy Mayor and Chief of Staff**\
 `New York City Mayor-elect Zohran Mamdani named Dean Fuleihan, a government veteran, to be his first deputy mayor and Elle Bisgaard-Church will serve as his chief of staff.`\
 https://nytimes.com/video/us/elections/100000010516142/mamdani-announces-his-deputy-mayor-and-chief-of-staff.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/10/business/warren-buffett-berkshire-farewell.html
 **Designing for a Holy Woman Who Was No Slouch with a Hammer**\
 `The nun known as Mother Carmen is the first female saint from Venezuela. Her portrait and reliquary give some hints as to why.`\
 https://nytimes.com/2025/11/10/arts/design/mother-carmen-saint-design-medallion.html
-
-**A Finnish Textile Artist Takes Rags to Design Riches**\
-`How Eija Rasinmaki reinvented a humble tradition for the modern world.`\
-https://nytimes.com/2025/11/10/style/finland-rag-rugs.html
-
-**A Paris Museum Returns to the Scene of the Sublime**\
-`A centenary celebration of Art Deco style recalls an age of opulence.`\
-https://nytimes.com/2025/11/10/arts/design/paris-art-deco-exhibit-centenary.html
 

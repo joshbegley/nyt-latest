@@ -1,3 +1,11 @@
+**The Windup: The indictment against Clase and Ortiz is *bad* bad**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6795165/2025/11/10/mlb-gambling-indictment-clase-ortiz-the-windup/
+
+**How Canada Lost Decades of Progress in Fighting Measles**\
+`The disease was once considered eliminated in Canada, but not any more — there have been more than 5,000 cases in the last 12 months as vaccination rates have fallen.`\
+https://nytimes.com/2025/11/10/world/canada/canada-measles-what-to-know.html
+
 **Mamdani Announces His Deputy Mayor and Chief of Staff**\
 `New York City Mayor-elect Zohran Mamdani named Dean Fuleihan, a government veteran, to be his first deputy mayor and Elle Bisgaard-Church will serve as his chief of staff.`\
 https://nytimes.com/video/us/elections/100000010516142/mamdani-announces-his-deputy-mayor-and-chief-of-staff.html
