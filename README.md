@@ -1,3 +1,15 @@
+**Brandon Ingram's awkward water bottle toss results in $25,000 fine by NBA**\
+`Brandon Ingram slammed a plastic water bottle onto the court, sending water splashing onto a game attendant and earning a $25k fine`\
+https://nytimes.com/athletic/6795979/2025/11/10/brandon-ingram-fined-toronto-raptors-nba/
+
+**Cowboys to honor Marshawn Kneeland with helmet decal, shirts, video tribute**\
+`Dallas plans a video tribute before the Cowboys play the Eagles at AT&T Stadium on Nov. 23.`\
+https://nytimes.com/athletic/6796018/2025/11/10/cowboys-marshawn-kneeland-honor-helmet-decal-video/
+
+**Pitt's Pat Narduzzi not focused on Notre Dame: 'They could put up 100 on us'**\
+`Coach would rather make sure his Panthers win ACC games, not showdown vs. Fighting Irish.`\
+https://nytimes.com/athletic/6795918/2025/11/10/pat-narduzzi-pitt-notre-dame-comments/
+
 **How Syria’s President Transformed His Image**\
 `Syrian President Ahmed al-Shara’s meeting with President Trump in Washington signifies a new turn for al-Shara, a former Islamist rebel leader who was once designated by the United States as a terrorist with a $10 million bounty on his head. Our reporter Christina Goldbaum describes the meeting.`\
 https://nytimes.com/video/world/middleeast/100000010515338/how-syrias-president-transformed-his-image.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/11/10/world/americas/trailer-park-boys-mike-smith-bubbl
 **Congress Moves Closer to Ending the Shutdown**\
 `Also, the Supreme Court declined to hear a challenge to same-sex marriage. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/11/10/briefing/congress-moves-to-end-the-shutdown.html
-
-**Za’atar and Labneh Spaghetti**\
-`In this spaghetti with za’atar, creamy labneh produces a pasta dish with the texture of an Alfredo, but with a bright tang that brings levity.`\
-https://nytimes.com/video/dining/100000010366986/zaatar-and-labneh-spaghetti.html
-
-**Rehab Program Could Trim Sean Combs’s Prison Sentence by a Year**\
-`A spokesman for the fallen music mogul, who is serving a four-year sentence for prostitution-related offenses at the Fort Dix prison complex in New Jersey, said he has been accepted to the program.`\
-https://nytimes.com/2025/11/10/arts/music/sean-combs-diddy-fort-dix-drug-program.html
-
-**Dear Sonder Guest, Your Hotel Is Closed**\
-`Sonder, a short-term rental and boutique hotel company that had a licensing deal with Marriott, abruptly went out of business, stranding guests worldwide.`\
-https://nytimes.com/2025/11/10/travel/marriott-sonder-licensing-bankruptcy.html
 
