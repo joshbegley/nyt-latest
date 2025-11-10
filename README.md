@@ -1,3 +1,11 @@
+**Arsenal confirm Katie Reid out with ACL injury**\
+`The 19-year-old England youth international will undergo surgery in the coming days.`\
+https://nytimes.com/athletic/6794655/2025/11/10/arsenal-katie-reid-acl-injury-news/
+
+**FIFA's next 2026 World Cup cash cow: Exorbitant parking prices**\
+`If you're paying to park at 2026 World Cup matches it'll cost you more than some match tickets at previous editions of the tournament`\
+https://nytimes.com/athletic/6791045/2025/11/10/fifa-2026-world-cup-parking-prices/
+
 **The Bounce: Rockets and Pistons firing on all cylinders. Mavs and Wizards, not so much**\
 `The NBA lost one of the most accomplished figures in league history on Sunday when Lenny Wilkens passed away at the age of 88.`\
 https://nytimes.com/athletic/6794634/2025/11/10/rockets-cavaliers-pistons-nba-the-bounce/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6794517/2025/11/10/daron-payne-suspended-throwing-p
 **How Inventors Find Inspiration in Evolution**\
 `Soft batteries and water-walking robots are among the many creations made possible by studying animals and plants.`\
 https://nytimes.com/interactive/2025/11/10/science/biology-evolution-technology.html
-
-**Explosion Reported in Crowded New Delhi Neighborhood**\
-`Security officials did not immediately comment on what caused the blast, which local news outlets said inflicted a number of casualties.`\
-https://nytimes.com/2025/11/10/world/asia/new-delhi-red-fort-explosion-india.html
-
-**Richie Adubato, who coached New York Liberty to three WNBA Finals, dies at 87**\
-`Adubato also coached the Dallas Mavericks, Detroit Pistons and Orlando Magic of the NBA.`\
-https://nytimes.com/athletic/6794406/2025/11/10/richie-adubato-dies-liberty/
 
