@@ -1,3 +1,23 @@
+**Canvot is Crystal Palace's short-term Guehi replacement. What about the long term?**\
+`With the captain injured, the French teenager was given his chance against Brighton and responded with an impressive performance`\
+https://nytimes.com/athletic/6785905/2025/11/10/jaydee-canvot-crystal-palace-guehi/
+
+**Are Manchester United getting good at corners?**\
+`United have turned their attacking corners to a point of strength — an unimaginable scenario considering the last seven years`\
+https://nytimes.com/athletic/6791318/2025/11/10/are-manchester-united-getting-good-at-corners/
+
+**John McGinn, Aston Villa legend**\
+`The captain, who achieved a notable milestone last week, has been pivotal to the club's resurgence after a slow start to the season`\
+https://nytimes.com/athletic/6753500/2025/11/10/john-mcginn-aston-villa-legend/
+
+**The Briefing: Did Man City effectively end Liverpool's title hopes? Is Edwards making a mistake?**\
+`Oliver Kay dissects the weekend's main talking points from the Premier League - and there is only one place to start`\
+https://nytimes.com/athletic/6792073/2025/11/10/briefing-manchester-city-liverpool-edwards/
+
+**What are supporters really seeking from their team: style, substance or something else?**\
+`Even fans of top-half clubs have been expressing dissatisfaction at the way their teams have been playing so far this season`\
+https://nytimes.com/athletic/6792179/2025/11/10/premier-league-style-supporters/
+
 **Fulham's top scorer is… own goals. They are in trouble**\
 `The Premier League has gone all 1990s — an era where Fulham weren’t in it — and they are struggling to compete`\
 https://nytimes.com/athletic/6790325/2025/11/10/fulham-marco-silva-own-goals-trouble/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/11/10/world/asia/medical-marijuana-new-zealand-gandalf.
 **Quote of the Day: New Chatbots, Forged in Bias, Tangle What Is Fact or Fiction**\
 `Quotation of the Day for November 10, 2025.`\
 https://nytimes.com/2025/11/10/pageoneplus/quote-of-the-day-new-chatbots-forged-in-bias-tangle-what-is-fact-or-fiction.html
-
-**No Corrections: Nov. 10, 2025**\
-`No corrections appeared in print on Monday, Nov. 10, 2025.`\
-https://nytimes.com/2025/11/10/pageoneplus/no-corrections-nov-10-2025.html
-
-**Glass Skin and Snail Mucin: South Korea’s Journey to Global Beauty Power**\
-`Propelled by interest in all things South Korea, Amorepacific, the cosmetics giant, is expanding its reach into the United States. But so are many of its competitors.`\
-https://nytimes.com/2025/11/10/business/south-korea-k-beauty-amorepacific.html
-
-**Connections: Sports Edition Coach: Hints for Nov. 10, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6791641/2025/11/10/connections-sports-edition-hints-for-nov-10-2025/
-
-**Steelers-Chargers takeaways: L.A. defense makes it a tough night for Aaron Rodgers**\
-`The future Hall of Fame quarterback had his worst game as a Steeler as the Chargers won 25-10 on Sunday night.`\
-https://nytimes.com/athletic/6793146/2025/11/09/steelers-chargers-score-result-takeaways-sunday-night-football/
-
-**In ‘The Queen of Versailles,’ Kristin Chenoweth Can’t Get Enough**\
-`Material excess can never be too excessive for the central character of this gilded Broadway musical, based on the 2012 film.`\
-https://nytimes.com/2025/11/09/theater/queen-of-versailles-broadway-chenoweth.html
 
