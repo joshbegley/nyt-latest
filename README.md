@@ -1,3 +1,11 @@
+**Supreme Court Denies Request to Revisit Same-Sex Marriage Decision**\
+`Kim Davis, a Kentucky county clerk who refused to issue same-sex marriage licenses, had asked the court to reconsider its landmark 2015 opinion.`\
+https://nytimes.com/2025/11/10/us/politics/supreme-court-same-sex-marriage.html
+
+**Adams withdraws from USMNT squad after injury with Bournemouth**\
+`Sean Zawadzki has also withdrawn and the pair will be replaced by LAFC's Timmy Tillman for the upcoming friendlies`\
+https://nytimes.com/athletic/6773096/2025/11/10/tyler-adams-usmnt-injury-news-bournemouth/
+
 **Chelsea's Palmer trademarks signature shivering celebration**\
 `Other players such as Cristiano Ronaldo, Kylian Mbappe, Gareth Bale and Erling Haaland have also had celebration trademarks confirmed.`\
 https://nytimes.com/athletic/6794417/2025/11/10/cole-palmer-chelsea-celebration-trademark/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/10/pageoneplus/corrections-nov-8-2025.html
 **What to Know About the Turmoil at the BBC**\
 `After days of pressure, two top executives quit after a memo by a former adviser said that the public broadcaster had misleadingly edited a speech by President Trump.`\
 https://nytimes.com/2025/11/10/world/europe/bbc-resignations-trump-speech-edit.html
-
-**2025 NFL Playoff Simulator: Each team’s path to the postseason after surprises in Week 10**\
-`<p>Welcome to The Athletic’s 2025 NFL Playoff Simulator, where you’ll find everything you need to know about all the ways your favorite team&#8217;s season could end, from a No.`\
-https://nytimes.com/athletic/6513952/2025/11/10/2025-nfl-playoff-simulator-path-postseason/
-
-**Appeals Court Blocks Trump’s Attempt to Halt Full Food Stamp Funding**\
-`A ruling late Sunday offered a possible reprieve for people who receive assistance from the program known as SNAP.`\
-https://nytimes.com/2025/11/10/us/politics/appeals-court-trump-snap-funding-shutdown.html
 
