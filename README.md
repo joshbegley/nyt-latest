@@ -1,3 +1,15 @@
+**The Commanders have better options than naming their next stadium after President Trump**\
+`Naming their next stadium after Trump, or any other modern pol, would be a cosmically bad decision for Josh Harris and his ownership group.`\
+https://nytimes.com/athletic/6792519/2025/11/10/president-trump-commanders-stadium/
+
+**From sacking to yakking, JJ Watt brings welcome defensive perspective to NFL game analysis**\
+`The move from the field to the studio to the game day TV booth has been seamless for the  future Hall of Famer.`\
+https://nytimes.com/athletic/6790202/2025/11/10/jj-watt-cbs-nfl-tv-analyst/
+
+**Panthers follow bad week with no-show vs. Saints, who dared Bryce Young to beat them**\
+`With the Saints bottling up Rico Dowdle and the Panthers' run game, Bryce Young had just 124 passing yards with an interception.`\
+https://nytimes.com/athletic/6793574/2025/11/10/panthers-lose-bryce-young-offense-saints/
+
 **Eagles at Packers on MNF: Love-Hurts, YouTube TV vs. ESPN, franchise crossovers**\
 `Jalen Hurts and Jordan Love close out Week 10 on "Monday Night Football." Here's a pregame primer with Cheez Whiz and fondue.`\
 https://nytimes.com/athletic/6788297/2025/11/10/eagles-packers-monday-night-football-youtube-espn-watch/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6792412/2025/11/10/lando-norris-f1-points-lead-over
 **The 'nerd' with the 'it factor' : Inside the rapid rise of Christian Parker, from Packers to Eagles**\
 `Parker has impressed at every stop since he was in his early 20s.`\
 https://nytimes.com/athletic/6793306/2025/11/10/eagles-packers-christian-parker-coach-jaire-alexander/
-
-**What we learned at Rivalry Series: USA dominates Canada 3 months out from Olympics**\
-`USA defeated Canada in the first two Rivalry Series games, with two to go before the Olympics. It's too early for Canada to panic, though.`\
-https://nytimes.com/athletic/6789470/2025/11/10/rivalry-series-canada-usa-womens-hockey/
-
-**'I still can do this': At 41, Max Scherzer wants another shot at a World Series**\
-`Despite considering retiring early in 2025, the Game 7 World Series starter and current free agent is excited to play a 19th season.`\
-https://nytimes.com/athletic/6792645/2025/11/10/max-scherzer-world-series-blue-jays/
-
-**Women's college basketball power rankings: USC, Notre Dame, Iowa take huge leaps**\
-`Is this now the Jazzy Davidson Era at USC? `\
-https://nytimes.com/athletic/6793523/2025/11/10/womens-college-basketball-power-rankings-usc-notre-dame/
 

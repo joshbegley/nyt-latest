@@ -1,40 +1,40 @@
-**Week 12 bowl projections: The rivalry games that could have a bowl bid on the line**\
-`For several teams, rivalry games will determine whether they earn a postseason nod or stay home for December.`\
-https://nytimes.com/athletic/6792543/2025/11/10/college-football-bowl-projections-week-12/
+**Eagles at Packers on MNF: Love-Hurts, YouTube TV vs. ESPN, franchise crossovers**\
+`Jalen Hurts and Jordan Love close out Week 10 on "Monday Night Football." Here's a pregame primer with Cheez Whiz and fondue.`\
+https://nytimes.com/athletic/6788297/2025/11/10/eagles-packers-monday-night-football-youtube-espn-watch/
 
-**Kyle Tucker destination tiers: MLB officials forecast market for winter’s top free agent**\
-`The Dodgers are always the pick when projecting where a top free agent will land, but other teams will be in the mix.`\
-https://nytimes.com/athletic/6792919/2025/11/10/mlb-kyle-tucker-free-agency-teams/
+**Once a sanctuary for the sandwich generation of men's tennis, the ATP Tour Finals shuts them out**\
+`The ATP Tour Finals was once a showcase for the heirs apparent to the Big Three of men's tennis. Now it is a reminder of what they lack.`\
+https://nytimes.com/athletic/6776390/2025/11/10/atp-tour-finals-tennis-sandwich-generation-men/
 
-**How to watch Minnesota vs. Oregon: Time, TV, streaming**\
-`Find out how to watch the Minnesota Golden Gophers play the Oregon Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6794130/2025/11/10/minnesota-vs-oregon-stream-how-to-watch-nov-14/
+**Why Pelle Lindbergh still resonates with the Flyers, 40 years after his death**\
+`The team continues to honor Lindbergh, who died in a drunk-driving crash in 1985.`\
+https://nytimes.com/athletic/6776815/2025/11/10/pelle-lindbergh-flyers-goalie/
 
-**Here’s the latest.**\
-`By Michael Gold, Catie Edmondson and Ashley Ahn`\
-https://nytimes.com/live/2025/11/10/us/trump-government-shutdown-news/heres-the-latest
+**Canada Olympic bubble watch: What we're hearing about Suzuki, Celebrini, Bedard, more roster hopefuls**\
+`Veterans Brad Marchand and Drew Doughty have firmed up their spots with good starts. What does that mean elsewhere in the lineup?`\
+https://nytimes.com/athletic/6788016/2025/11/10/canada-olympic-roster-bubble-watch/
 
-**Trump Administration Live Updates: Senate Deal Puts Government Closer to Reopening**\
-`Eight Democrats joined Republicans to reach a deal that would end the longest government shutdown in history. The measure still needs to be approved by both houses of Congress and signed by President Trump.`\
-https://nytimes.com/live/2025/11/10/us/trump-government-shutdown-news
+**Monday morning Leafs report: Craig Berube might be ready to explode**\
+`Toronto keeps having the same defensive issues night after night, and they're wearing on the head coach and his star players.`\
+https://nytimes.com/athletic/6793683/2025/11/10/maple-leafs-craig-berube-frustration/
 
-**What we learned in NFL Week 10: Crowded race atop AFC, Bears find a way**\
-`The leading MVP candidate isn’t a quarterback, the hottest QB in football is 37 years old and the Patriots might have the coach of the year.`\
-https://nytimes.com/athletic/6793263/2025/11/10/nfl-week-10-highlights-colts-patriots-bears/
+**Norris seized F1 title control in Brazil, but Verstappen's heroics will keep him on edge**\
+`The Brit has done well to capitalize on Piastri’s errors and ensure another Brazil drive for the ages by Verstappen could not derail him`\
+https://nytimes.com/athletic/6792412/2025/11/10/lando-norris-f1-points-lead-over-max-verstappen/
 
-**The Jets won Sunday, but has Aaron Glenn already lost?**\
-`Even in victory, the Jets remain a team with more questions than answers after last week's big trades.`\
-https://nytimes.com/athletic/6794018/2025/11/10/aaron-glenn-jets-woody-johnson-darren-mougey/
+**The 'nerd' with the 'it factor' : Inside the rapid rise of Christian Parker, from Packers to Eagles**\
+`Parker has impressed at every stop since he was in his early 20s.`\
+https://nytimes.com/athletic/6793306/2025/11/10/eagles-packers-christian-parker-coach-jaire-alexander/
 
-**What might the Dolphins' surprises mean for Mike McDaniel's future?**\
-`Good luck trying to figure out what Dolphins owner Stephen Ross is thinking.`\
-https://nytimes.com/athletic/6793999/2025/11/10/mike-mcdaniel-dolphins-stephen-ross/
+**What we learned at Rivalry Series: USA dominates Canada 3 months out from Olympics**\
+`USA defeated Canada in the first two Rivalry Series games, with two to go before the Olympics. It's too early for Canada to panic, though.`\
+https://nytimes.com/athletic/6789470/2025/11/10/rivalry-series-canada-usa-womens-hockey/
 
-**Re-stacking NFC contenders: Are Rams, Seahawks more dangerous than Eagles? — Sando's Pick Six**\
-`"I'm trusting Seattle and the Rams both over Philadelphia," an exec said, as the Rams and Seahawks sit atop the NFC at 7-2.`\
-https://nytimes.com/athletic/6788300/2025/11/10/rams-seahawks-eagles-nfl-super-bowl-odds/
+**'I still can do this': At 41, Max Scherzer wants another shot at a World Series**\
+`Despite considering retiring early in 2025, the Game 7 World Series starter and current free agent is excited to play a 19th season.`\
+https://nytimes.com/athletic/6792645/2025/11/10/max-scherzer-world-series-blue-jays/
 
-**The Colts paid a premium for Sauce Gardner. In an era without shutdown CBs, was it a mistake?**\
-`Can any cornerback be worth two first-round picks in today's NFL? The Colts are betting Gardner can be.`\
-https://nytimes.com/athletic/6793990/2025/11/10/sauce-gardner-trade-colts-execs/
+**Women's college basketball power rankings: USC, Notre Dame, Iowa take huge leaps**\
+`Is this now the Jazzy Davidson Era at USC? `\
+https://nytimes.com/athletic/6793523/2025/11/10/womens-college-basketball-power-rankings-usc-notre-dame/
 
