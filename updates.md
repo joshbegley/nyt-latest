@@ -1,3 +1,7 @@
+**With Matthew Stafford 'on a heater,' the Rams get their revenge in blowout of 49ers**\
+`It was a win Los Angeles felt it had to have, not just for the NFC West standings but for a healing of the soul.`\
+https://nytimes.com/athletic/6793264/2025/11/10/rams-matthew-stafford-blowout-win-49ers/
+
 **Kolo Muani to see specialist over jaw injury sustained against Man United**\
 `Kolo Muani sustained the injury in Tottenham's 2-2 draw with Manchester United on Saturday following a collision with Harry Maguire.`\
 https://nytimes.com/athletic/6792548/2025/11/10/kolo-muani-injury-tottenham/

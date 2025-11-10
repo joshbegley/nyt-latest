@@ -1,3 +1,19 @@
+**Pep Guardiola has solved another tactical challenge – and Jeremy Doku is the answer**\
+`Why Manchester City's Belgian winger symbolises a potentially significant tactical shift from the most revered manager of the modern era`\
+https://nytimes.com/athletic/6794065/2025/11/10/jeremy-doku-pep-guardiola-tactical-shift/
+
+**Democrats Defect on the Shutdown**\
+`Congress moved closer to ending the government shutdown. We explain what’s happening.`\
+https://nytimes.com/2025/11/10/briefing/democrats-defect-on-the-shutdown.html
+
+**China Tightens Controls on Fentanyl Precursors After Summit**\
+`China will require licenses for export of 13 chemicals used to make the deadly drug, another indicator of thawing tensions between the world’s two largest economies`\
+https://nytimes.com/2025/11/10/world/asia/china-fentanyl-united-states-trade.html
+
+**Trump Pardons Giuliani and Others Involved in Effort to Overturn 2020 Election**\
+`The pardons of former Trump aides, which would only apply in federal court, are largely symbolic and cannot shield them from ongoing state-level prosecutions.`\
+https://nytimes.com/2025/11/10/us/giuilani-pardon-trump-john-eastman-sidney-powell.html
+
 **With Matthew Stafford 'on a heater,' the Rams get their revenge in blowout of 49ers**\
 `It was a win Los Angeles felt it had to have, not just for the NFC West standings but for a healing of the soul.`\
 https://nytimes.com/athletic/6793264/2025/11/10/rams-matthew-stafford-blowout-win-49ers/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6793248/2025/11/10/nhl-weekend-rankings-rangers-bla
 **On Sunday night, the Steelers got Aaron Rodgers at his worst**\
 `Pittsburgh's offense produced little more than a garbage-time touchdown in a lopsided loss.`\
 https://nytimes.com/athletic/6793877/2025/11/10/aaron-rodgers-worst-game-pittsburgh-steelers-chargers/
-
-**The Commanders have better options than naming their next stadium after President Trump**\
-`Naming their next stadium after Trump, or any other modern pol, would be a cosmically bad decision for Josh Harris and his ownership group.`\
-https://nytimes.com/athletic/6792519/2025/11/10/president-trump-commanders-stadium/
-
-**From sacking to yakking, JJ Watt brings welcome defensive perspective to NFL game analysis**\
-`The move from the field to the studio to the game day TV booth has been seamless for the  future Hall of Famer.`\
-https://nytimes.com/athletic/6790202/2025/11/10/jj-watt-cbs-nfl-tv-analyst/
-
-**Panthers follow bad week with no-show vs. Saints, who dared Bryce Young to beat them**\
-`With the Saints bottling up Rico Dowdle and the Panthers' run game, Bryce Young had just 124 passing yards with an interception.`\
-https://nytimes.com/athletic/6793574/2025/11/10/panthers-lose-bryce-young-offense-saints/
-
-**Eagles at Packers on MNF: Love-Hurts, YouTube TV vs. ESPN, franchise crossovers**\
-`Jalen Hurts and Jordan Love close out Week 10 on "Monday Night Football." Here's a pregame primer with Cheez Whiz and fondue.`\
-https://nytimes.com/athletic/6788297/2025/11/10/eagles-packers-monday-night-football-youtube-espn-watch/
 
