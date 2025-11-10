@@ -1,3 +1,7 @@
+**He Was Known for Kleptocratic Rule and Bloodshed. Now He’s a National Hero.**\
+`Indonesia’s president bestowed the honor on the dictator Suharto, who died in 2008, in what many said was a stunning move of revisionist history.`\
+https://nytimes.com/2025/11/10/world/asia/indonesia-suharto-dictator-hero.html
+
 **Senate Moves Closer to Ending Shutdown**\
 `Eight senators broke from the Democratic caucus and agreed to a deal giving Republicans the 60 votes they needed to end the government shutdown. The measure still needs to be voted on in both chambers of Congress.`\
 https://nytimes.com/video/us/politics/100000010514862/government-shutdown-senate-vote.html
@@ -22,6 +26,10 @@ https://nytimes.com/2025/11/10/crosswords/spelling-bee-forum.html
 `A judge found that Jonathan Braun had violated the rules of his release by sexually assaulting a nanny, swinging an IV pole at a nurse and dodging tolls in his Lamborghini and Ferrari.`\
 https://nytimes.com/2025/11/10/nyregion/jonathan-braun-resentencing.html
 
+**Draymond Green's challenge sparks the Warriors to a comfortable win**\
+`With Stephen Curry out and Jonathan Kuminga struggling, Golden State needed a pick-me-up for Sunday's game. Enter Draymond Green.`\
+https://nytimes.com/athletic/6793863/2025/11/10/warriors-spark-draymond-green-win-pacers/
+
 **‘Like It Was the End of the World’: A Million Flee From Typhoon in the Philippines**\
 `Grabbing children and leaving their homes behind, residents evacuated before Typhoon Fung-wong hit.`\
 https://nytimes.com/2025/11/10/world/asia/typhoon-fung-wong-philippines-evacuation.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/10/world/asia/typhoon-fung-wong-philippines-evacuati
 **Liverpool's standards have plummeted and pitiful away form is among an array of issues dogging them**\
 `The last time Liverpool lost four successive away Premier League matches was in April 2012. It leaves the defence of their crown in tatters`\
 https://nytimes.com/athletic/6791933/2025/11/10/liverpool-man-city-away-form-slot/
-
-**Word of the Day: forensic**\
-`This word has appeared in 322 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/11/10/learning/word-of-the-day-forensic.html
-
-**The New York Times in Print for Monday, Nov. 10, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/11/10/todays-new-york-times
 
