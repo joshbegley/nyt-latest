@@ -1,3 +1,15 @@
+**Bills' flaws on painful display as Josh Allen takes more blame than he should**\
+`The Bills' shortcomings are everywhere on the team and the situation is becoming more urgent. `\
+https://nytimes.com/athletic/6793095/2025/11/09/josh-allen-takes-heat-bills-dolphins-struggles/
+
+**The hopeless Browns continue to go backward after falling to the lowly Jets**\
+`Despite the defense doing its part for the majority of the game, Cleveland still found a way to come out on the losing end against New York.`\
+https://nytimes.com/athletic/6793031/2025/11/09/browns-hopeless-loss-jets/
+
+**How to watch Clemson vs. Louisville: Time, TV, streaming**\
+`Find out how to watch the Clemson Tigers play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6793261/2025/11/09/clemson-vs-louisville-stream-how-to-watch-nov-14/
+
 **'Like Houdini': Another Caleb Williams magic trick rescues Bears in thrilling win**\
 `A quarterback-led rally from 10 points down in the final minutes propels the Bears to 6-3.`\
 https://nytimes.com/athletic/6793007/2025/11/09/bears-caleb-williams-comeback-vs-giants/
