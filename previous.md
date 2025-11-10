@@ -1,3 +1,19 @@
+**Why the BBC Is Facing Its Gravest Crisis in Decades**\
+`The British public service broadcaster apologized on Monday for a misleadingly edited documentary about President Trump. But the scandal had already claimed two of its top executives.`\
+https://nytimes.com/2025/11/10/world/europe/bbc-news-trump.html
+
+**Submit your questions for Vic Tafur's 49ers mailbag**\
+`Send me your questions or comments (or suggestions for Kyle Shanahan) after the 49ers dropped to 6-4.`\
+https://nytimes.com/athletic/6795493/2025/11/10/submit-your-questions-for-vic-tafurs-49ers-mailbag/
+
+**NFL overreactions: The Commanders can't defend anyone**\
+`Toby Mergler has three picks and a fourth cautious pick while perusing the early lines for NFL Week 11.`\
+https://nytimes.com/athletic/6795159/2025/11/10/nfl-overreaction-monday-week-11-commanders/
+
+**Dan Quinn to take over as Commanders defensive coordinator, will call plays**\
+`A day after the Commanders lost their fifth straight game, Quinn said he was making a change in how defensive plays get called. `\
+https://nytimes.com/athletic/6795431/2025/11/10/dan-quinn-commanders-defensive-coordinator/
+
 **How to watch Bucks vs. Mavericks: Time, TV, streaming**\
 `Find out how to watch the Milwaukee Bucks play the Dallas Mavericks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6795524/2025/11/10/bucks-vs-mavericks-stream-how-to-watch-nov-10/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6795514/2025/11/10/pelicans-vs-suns-stream-how-to-w
 **How to watch Cavaliers vs. Heat: Time, TV, streaming**\
 `Find out how to watch the Cleveland Cavaliers play the Miami Heat, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6795516/2025/11/10/cavaliers-vs-heat-stream-how-to-watch-nov-10/
-
-**How to watch Blue Jackets vs. Oilers: Time, TV, streaming**\
-`Find out how to watch the Columbus Blue Jackets play the Edmonton Oilers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6795511/2025/11/10/blue-jackets-vs-oilers-stream-how-to-watch-nov-10/
-
-**How to watch Panthers vs. Golden Knights: Time, TV, streaming**\
-`Find out how to watch the Florida Panthers play the Vegas Golden Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6795508/2025/11/10/panthers-vs-golden-knights-stream-how-to-watch-nov-10/
-
-**Rose Bowl seeks restraining order to block UCLA from SoFi Stadium move**\
-`The filing follows a lawsuit in which Pasadena and the Rose Bowl accused UCLA of negotiating a SoFi Stadium move behind closed doors.`\
-https://nytimes.com/athletic/6795416/2025/11/10/rose-bowl-ucla-sofi-stadium-restraining-order/
-
-**How to watch Mississippi State vs. Iowa State: Time, TV, streaming**\
-`Find out how to watch the Mississippi State Bulldogs play the Iowa State Cyclones, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6795462/2025/11/10/mississippi-state-vs-iowa-state-stream-how-to-watch-nov-10/
 
