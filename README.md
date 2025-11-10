@@ -1,4 +1,4 @@
-**‘Like the End of the World’: A Million Flee From Typhoon in the Philippines**\
+**‘Like It Was the End of the World’: A Million Flee From Typhoon in the Philippines**\
 `Grabbing children and leaving their homes behind, residents evacuated before Typhoon Fung-wong hit.`\
 https://nytimes.com/2025/11/10/world/asia/typhoon-fung-wong-philippines-evacuation.html
 
