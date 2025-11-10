@@ -1,3 +1,7 @@
+**Chelsea's Lavia set to miss at least one month with quad injury**\
+`The 21-year-old midfielder sustained the injury in Chelsea's draw against Qarabag in last week's Champions League match.`\
+https://nytimes.com/athletic/6780998/2025/11/10/lavia-injury-news-chelsea/
+
 **Arsenal confirm Katie Reid out with ACL injury**\
 `The 19-year-old England youth international will undergo surgery in the coming days.`\
 https://nytimes.com/athletic/6794655/2025/11/10/arsenal-katie-reid-acl-injury-news/
