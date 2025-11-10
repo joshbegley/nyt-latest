@@ -27,8 +27,8 @@ https://nytimes.com/2025/11/10/world/europe/bbc-resignations-trump-speech-edit.h
 https://nytimes.com/athletic/6513952/2025/11/10/2025-nfl-playoff-simulator-path-postseason/
 
 **Appeals Court Blocks Trump’s Attempt to Halt Full Food Stamp Funding**\
-`A late night ruling on Sunday offered a possible reprieve for people on the program known as SNAP.`\
-https://nytimes.com/2025/11/10/business/appeals-court-trump-snap-funding-shutdown.html
+`A ruling late Sunday offered a possible reprieve for people who receive assistance from the program known as SNAP.`\
+https://nytimes.com/2025/11/10/us/politics/appeals-court-trump-snap-funding-shutdown.html
 
 **Thailand Suspends Trump-Backed Peace Talks With Cambodia**\
 `The move, which came after two Thai soldiers were injured by a land mine, imperiled a pledge by the two countries to resolve their longstanding differences at the behest of President Trump.`\
