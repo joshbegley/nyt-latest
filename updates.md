@@ -1,3 +1,7 @@
+**Hundreds of Migrants Missing Off Malaysia’s Coast**\
+`A boat said to be carrying people from the Rohingya ethnic minority capsized, and another was missing. At least seven bodies were recovered.`\
+https://nytimes.com/2025/11/09/world/asia/malaysia-thailand-migrants-boat.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>The Mailbag is your go-to destination this week for inane ACC tiebreakers, CFP scenarios with seven SEC teams and more.</p>
 <p>Leave your questions here. Please include your city.</p>
