@@ -1,3 +1,15 @@
+**What I'm hearing on why everybody loves Erik Karlsson, and the latest on Penguins trade murmurs**\
+`Karlsson has a mind of his own, and his teammates absolutely love him for it.`\
+https://nytimes.com/athletic/6794689/2025/11/10/penguins-erik-karlsson-trade-rumors-nhl/
+
+**IOC moving towards ban on transgender athletes in women's Olympic events**\
+`In the past, each Olympic sport’s international federation has been allowed to set its own rules on transgender inclusion.`\
+https://nytimes.com/athletic/6795023/2025/11/10/olympics-ioc-transgender-women-ban/
+
+**Fired Director of Philadelphia Art Museum’s Complaint Against the Institution**\
+`Read the complaint filed against the Philadelphia Art Museum.`\
+https://nytimes.com/interactive/2025/11/10/us/l94ck5o8j.html
+
 **As Low-Income Shoppers Tighten Belts Further, Businesses Worry**\
 `A delay in SNAP benefits mixed with a decline in foot traffic has many stores, restaurants and food producers concerned about sales.`\
 https://nytimes.com/2025/11/10/business/low-income-shoppers-spending-snap.html

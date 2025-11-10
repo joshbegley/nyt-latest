@@ -1,3 +1,11 @@
+**What I'm hearing on why everybody loves Erik Karlsson, and the latest on Penguins trade murmurs**\
+`Karlsson has a mind of his own, and his teammates absolutely love him for it.`\
+https://nytimes.com/athletic/6794689/2025/11/10/penguins-erik-karlsson-trade-rumors-nhl/
+
+**IOC moving towards ban on transgender athletes in women's Olympic events**\
+`In the past, each Olympic sport’s international federation has been allowed to set its own rules on transgender inclusion.`\
+https://nytimes.com/athletic/6795023/2025/11/10/olympics-ioc-transgender-women-ban/
+
 **As Low-Income Shoppers Tighten Belts Further, Businesses Worry**\
 `A delay in SNAP benefits mixed with a decline in foot traffic has many stores, restaurants and food producers concerned about sales.`\
 https://nytimes.com/2025/11/10/business/low-income-shoppers-spending-snap.html
@@ -20,7 +28,7 @@ https://nytimes.com/video/opinion/100000010511115/the-new-democratic-brand.html
 
 **Fired Director of Philadelphia Art Museum’s Complaint Against the Institution**\
 `Read the complaint filed against the Philadelphia Art Museum.`\
-https://nytimes.com/interactive/2025/11/10/us/10cul-suda-lawsuit-doc.html
+https://nytimes.com/interactive/2025/11/10/us/l94ck5o8j.html
 
 **Rob Gronkowski to sign one-day contract, officially retire as a Patriot**\
 `The legendary tight end ranks first in Patriots history in receiving TDs, second in receiving yards and fifth in receptions.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6794819/2025/11/10/rob-gronkowski-patriots-retireme
 **A Political Litmus Test: Can You Hang With the Boys?**\
 `Zohran Mamdani navigated a media landscape similar to the one that helped Trump win over young men.`\
 https://nytimes.com/2025/11/10/style/zohran-mamdani-podcasts-manosphere.html
-
-**The 20-Somethings Who Raised $121 Million to Build Military Drones**\
-`Neros, a company founded in 2023 by former teenage drone racers, won a coveted Army contract and is gaining popularity in the defense sector.`\
-https://nytimes.com/2025/11/10/business/neros-military-drones.html
-
-**Lionel Messi's secret Camp Nou visit and his 'hope' for a Barcelona return**\
-`The 38-year-old Inter Miami forward was pictured at the Camp Nou on Sunday - but Barca had no idea he was there`\
-https://nytimes.com/athletic/6794096/2025/11/10/lionel-messi-barcelona-return-camp-nou-secret/
 
