@@ -1,13 +1,17 @@
-**Commanders lose fifth straight as Jared Goff, Jahmyr Gibbs shine for Lions**\
+**Forget draft position — the Jets need more wins like these**\
+`A win over the Browns might not be franchise-altering, but it’s exactly the kind of game they’ve made a habit of losing.`\
+https://nytimes.com/athletic/6793193/2025/11/09/new-york-jets-rebuild-browns-win/
+
+**Commanders lose fifth straight as Jared Goff, Jahmyr Gibbs shine for Lions: Takeaways**\
 `Goff and the Detroit offense went off for 44 points, with Lions coach Dan Campbell's play calling sparking one of their best performances.`\
 https://nytimes.com/athletic/6792903/2025/11/09/lions-commanders-score-result-takeaways/
 
-**Stephen Curry to miss third straight game due to lingering cold**\
+**Steph Curry to miss third straight game because of lingering cold**\
 `With Curry out of the lineup recently, the Warriors have struggled to find a solid rhythm offensively. When will he return?`\
 https://nytimes.com/athletic/6793037/2025/11/09/steph-curry-illness-update-warriors-pacers-nba/
 
 **Stafford, Rams cruise over 49ers in key NFC West showdown: Takeaways**\
-`The Rams offense looked nearly unstoppable as QB threw four touchdowns against San Francisco.`\
+`The Rams' offense looked nearly unstoppable as QB threw four touchdowns against San Francisco.`\
 https://nytimes.com/athletic/6792630/2025/11/09/rams-49ers-score-result-takeaways/
 
 **C.J. Gardner-Johnson the defensive difference-maker in Chicago Bears' comeback win**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6792694/2025/11/09/penguins-sergei-murashov-debut-k
 **Rico Dowdle, Aaron Jones show restraint in 'Key & Peele'-inspired TD celebrations**\
 `After last week's penalty and fine, the Dowdle learned his lesson.`\
 https://nytimes.com/athletic/6792967/2025/11/09/key-and-peele-rico-dowdle-aaron-jones-nfl-celebrations/
-
-**With win over Buccaneers, Patriots show they're one of NFL's top teams**\
-`Rookie running back TreVeyon Henderson had touchdown runs of 55 and 69 yards as the Patriots outplayed one of the NFC's best teams.`\
-https://nytimes.com/athletic/6792859/2025/11/09/patriots-buccaneers-week-10-treveyon-henderson-drake-maye/
 

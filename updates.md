@@ -1,3 +1,11 @@
+**Commanders lose fifth straight as Jared Goff, Jahmyr Gibbs shine for Lions**\
+`Goff and the Detroit offense went off for 44 points, with Lions coach Dan Campbell's play calling sparking one of their best performances.`\
+https://nytimes.com/athletic/6792903/2025/11/09/lions-commanders-score-result-takeaways/
+
+**Stephen Curry to miss third straight game due to lingering cold**\
+`With Curry out of the lineup recently, the Warriors have struggled to find a solid rhythm offensively. When will he return?`\
+https://nytimes.com/athletic/6793037/2025/11/09/steph-curry-illness-update-warriors-pacers-nba/
+
 **Stafford, Rams cruise over 49ers in key NFC West showdown: Takeaways**\
 `The Rams offense looked nearly unstoppable as QB threw four touchdowns against San Francisco.`\
 https://nytimes.com/athletic/6792630/2025/11/09/rams-49ers-score-result-takeaways/
