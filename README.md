@@ -34,7 +34,3 @@ https://nytimes.com/athletic/6794875/2025/11/10/trail-blazers-vs-magic-stream-ho
 `Find out how to watch the Nashville Predators play the New York Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6794873/2025/11/10/predators-vs-rangers-stream-how-to-watch-nov-10/
 
-**How to watch Islanders vs. Devils: Time, TV, streaming**\
-`Find out how to watch the New York Islanders play the New Jersey Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6794871/2025/11/10/islanders-vs-devils-stream-how-to-watch-nov-10/
-
