@@ -1,3 +1,7 @@
+**Inside Barcelona: Lewandowski shows his class, but does the defence need fixing?**\
+`Trips to Celta Vigo have often been tough for Barca, but Sunday's 4-2 victory saw Hansi Flick's side cut Real Madrid's La Liga lead`\
+https://nytimes.com/athletic/6794119/2025/11/10/barcelona-celta-la-liga-lewandowski-flick/
+
 **Twins' free-agent targets: 10 hitter fits for a front office shopping in the bargain bin**\
 `Can the Twins find good value and lineup help shopping in the clearance aisle like they did with Harrison Bader last offseason?`\
 https://nytimes.com/athletic/6789408/2025/11/10/10-twins-offense-free-agent-targets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6792498/2025/11/10/bruins-fraser-minten-trade-best-
 **Justin Jefferson didn't look like himself in Vikings' loss to Ravens, and that's a problem**\
 `The superstar wideout had four catches for 37 yards in Minnesota's loss at home on Sunday, but his numbers were not the issue.`\
 https://nytimes.com/athletic/6792326/2025/11/10/justin-jefferson-vikings-ravens-problem/
-
-**Blue Jackets Monday Gathering: Brrrrr. An offensive chill lingers for too many players**\
-`No team had more 15-goal scorers than Columbus last season. The Blue Jackets don't look likely to repeat the feat.`\
-https://nytimes.com/athletic/6791658/2025/11/10/blue-jackets-offensive-chill-brendan-smith/
 
