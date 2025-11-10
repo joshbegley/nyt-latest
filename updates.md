@@ -1,3 +1,7 @@
+**Ravens' defense finds its swagger in win over Vikings: 'We’re starting to hit our stride'**\
+`The play of Baltimore’s much-maligned defense helped carried the victory over Minnesota and got the team even deeper into the playoff mix.`\
+https://nytimes.com/athletic/6793058/2025/11/09/ravens-defense-swagger-win-vikings/
+
 **J.J. McCarthy, Vikings search for answers to pre-snap debacle after loss to Ravens**\
 `McCarthy completed just 20 of his 42 passes for 248 yards, and he wasn't helped by his offense's eight false-start penalties.`\
 https://nytimes.com/athletic/6793114/2025/11/09/vikings-ravens-jj-mccarthy-false-start-penalties/
