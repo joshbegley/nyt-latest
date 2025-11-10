@@ -1,3 +1,15 @@
+**Lionel Messi's secret Camp Nou visit and his 'hope' for a Barcelona return**\
+`The 38-year-old Inter Miami forward was pictured at the Camp Nou on Sunday - but Barca had no idea he was there`\
+https://nytimes.com/athletic/6794096/2025/11/10/lionel-messi-barcelona-return-camp-nou-secret/
+
+**Fantasy football Week 10 recap, early waivers speed run: Tez Johnson, Devaughn Vele**\
+`Jake Ciely's Week 10 recap podcast, featuring Tez Johnson as a priority waiver wire add, along with Luther Burden if DJ Moore misses time. `\
+https://nytimes.com/athletic/6794749/2025/11/10/fantasy-football-week-10-recap-early-waivers-speed-run-tez-johnson-devaughn-vele/
+
+**A ‘Missing Piece’ of Harlem Returns, With a Bash**\
+`The Studio Museum welcomed artists from all of its eras to celebrate its new space on West 125th Street.`\
+https://nytimes.com/2025/11/10/style/studio-museum-harlem-building.html
+
 **F.D.A. Will Remove Black Box Warnings From Hormone Treatments for Menopause**\
 `The benefits of hormone replacement have been underappreciated, Dr. Marty Makary, the agency’s commissioner, said on Monday. Critics described evidence for the change as insufficient.`\
 https://nytimes.com/2025/11/10/health/fda-will-remove-black-box-warnings-from-hormone-treatments-for-menopause.html
@@ -25,12 +37,4 @@ https://nytimes.com/athletic/6794724/2025/11/10/texans-jaguars-bad-beat-betting/
 **Recently Ousted Director of Philadelphia Art Museum Sues Over Her Dismissal**\
 `Sasha Suda claims the museum did not have a valid reason for abruptly firing her last week from one of the most prominent jobs in the art world.`\
 https://nytimes.com/2025/11/10/arts/design/philadelphia-art-museum-director-fired-lawsuit.html
-
-**Rescuers Search for Missing Migrants Off Malaysia’s Coast**\
-`Rescuers recovered several bodies near the site of a capsized boat carrying members of the Rohingya ethnic minority, which faces persecution in Myanmar. Another boat carrying hundreds more people was missing, too.`\
-https://nytimes.com/video/world/asia/100000010515647/malaysia-rohingya-migrant-boats.html
-
-**More Flight Troubles Expected Before the Shutdown Ends**\
-`Airlines brace for further chaos, even as eight Democratic senators broke ranks with their party to back a deal that could end the shutdown.`\
-https://nytimes.com/2025/11/10/business/airlines-cancellations-senate-deal.html
 
