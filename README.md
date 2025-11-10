@@ -1,3 +1,7 @@
+**Stephen Curry to miss third straight game due to lingering cold**\
+`With Curry out of the lineup recently, the Warriors have struggled to find a solid rhythm offensively. When will he return?`\
+https://nytimes.com/athletic/6793037/2025/11/09/steph-curry-illness-update-warriors-pacers-nba/
+
 **Stafford, Rams cruise over 49ers in key NFC West showdown: Takeaways**\
 `The Rams offense looked nearly unstoppable as QB threw four touchdowns against San Francisco.`\
 https://nytimes.com/athletic/6792630/2025/11/09/rams-49ers-score-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6792859/2025/11/09/patriots-buccaneers-week-10-trev
 **In Alaska and Hawaii, Higher Food Prices Intensified SNAP Anxiety**\
 `Some residents are receiving benefits, but the uncertainty over the past weeks has burdened many in the two states, where the cost of food is the highest in the nation.`\
 https://nytimes.com/2025/11/09/us/alaska-hawaii-high-food-prices-snap.html
-
-**Colts' Jonathan Taylor races past Falcons, into history books to help keep Indy atop AFC**\
-`Taylor boosted his MVP candidacy Sunday, rushing for 244 yards and three touchdowns to help paper over Indy's mistakes in a 31-25 OT win.`\
-https://nytimes.com/athletic/6792783/2025/11/09/jonathan-taylor-colts-mvp-history-falcons/
 

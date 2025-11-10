@@ -1,3 +1,11 @@
+**Stafford, Rams cruise over 49ers in key NFC West showdown: Takeaways**\
+`The Rams offense looked nearly unstoppable as QB threw four touchdowns against San Francisco.`\
+https://nytimes.com/athletic/6792630/2025/11/09/rams-49ers-score-result-takeaways/
+
+**In Alaska and Hawaii, Higher Food Prices Intensified SNAP Anxiety**\
+`Some residents are receiving benefits, but the uncertainty over the past weeks has burdened many in the two states, where the cost of food is the highest in the nation.`\
+https://nytimes.com/2025/11/09/us/alaska-hawaii-high-food-prices-snap.html
+
 **Seahawks-Cardinals takeaways: DeMarcus Lawrence scores twice in Seattle rout**\
 `The Seattle linebacker ties the record with two TDs on defense as Seahawks roll to seventh win in eight games.`\
 https://nytimes.com/athletic/6792831/2025/11/09/cardinals-seahawks-score-result-takeaways-2/
