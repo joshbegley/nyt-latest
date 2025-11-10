@@ -1,3 +1,15 @@
+**New York Giants fire coach Brian Daboll: Sources**\
+`Daboll finishes his tenure in New York with a 20-40-1 career record.`\
+https://nytimes.com/athletic/5953147/2025/11/10/brian-daboll-fired-giants-nfl-news/
+
+**NFL survivor pool mailbag: Submit your questions for Week 11**\
+`Put your NFL survivor pool questions here and our experts will answer them in this week's advice column.`\
+https://nytimes.com/athletic/6795064/2025/11/10/nfl-survivor-pool-help-mailbag-week-11/
+
+**The New Democratic Brand**\
+`“The caricature of a national Democrat is weak, woke and whiny,” Michelle Cottle says on “The Opinions.” But last week’s election proved that Democrats are flipping that narrative — at least in places like Virginia, New Jersey and New York City.`\
+https://nytimes.com/video/opinion/100000010511115/the-new-democratic-brand.html
+
 **Fired Director of Philadelphia Art Museum’s Complaint Against the Institution**\
 `Read the complaint filed against the Philadelphia Art Museum.`\
 https://nytimes.com/interactive/2025/11/10/us/10cul-suda-lawsuit-doc.html

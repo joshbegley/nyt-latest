@@ -1,3 +1,15 @@
+**New York Giants fire coach Brian Daboll: Sources**\
+`Daboll finishes his tenure in New York with a 20-40-1 career record.`\
+https://nytimes.com/athletic/5953147/2025/11/10/brian-daboll-fired-giants-nfl-news/
+
+**NFL survivor pool mailbag: Submit your questions for Week 11**\
+`Put your NFL survivor pool questions here and our experts will answer them in this week's advice column.`\
+https://nytimes.com/athletic/6795064/2025/11/10/nfl-survivor-pool-help-mailbag-week-11/
+
+**The New Democratic Brand**\
+`“The caricature of a national Democrat is weak, woke and whiny,” Michelle Cottle says on “The Opinions.” But last week’s election proved that Democrats are flipping that narrative — at least in places like Virginia, New Jersey and New York City.`\
+https://nytimes.com/video/opinion/100000010511115/the-new-democratic-brand.html
+
 **Fired Director of Philadelphia Art Museum’s Complaint Against the Institution**\
 `Read the complaint filed against the Philadelphia Art Museum.`\
 https://nytimes.com/interactive/2025/11/10/us/10cul-suda-lawsuit-doc.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6794749/2025/11/10/fantasy-football-week-10-recap-e
 **A ‘Missing Piece’ of Harlem Returns, With a Bash**\
 `The Studio Museum welcomed artists from all of its eras to celebrate its new space on West 125th Street.`\
 https://nytimes.com/2025/11/10/style/studio-museum-harlem-building.html
-
-**F.D.A. Will Remove Black Box Warnings From Hormone Treatments for Menopause**\
-`The benefits of hormone replacement have been underappreciated, Dr. Marty Makary, the agency’s commissioner, said on Monday. Critics described evidence for the change as insufficient.`\
-https://nytimes.com/2025/11/10/health/fda-will-remove-black-box-warnings-from-hormone-treatments-for-menopause.html
-
-**Review: Hildegard of Bingen’s Extraordinary Life, on Operatic Scale**\
-`Sarah Kirkland Snider’s gorgeously mesmerizing first opera has both focus and a thematically expansive view of a moment in medieval history.`\
-https://nytimes.com/2025/11/10/arts/music/hildegard-opera-review.html
-
-**How ‘The Disintegration Loops’ Saved William Basinski’s Life**\
-`The composer’s ambient masterwork, created from disintegrating magnetic tape, became synonymous with 9/11. When he made it, his own life was falling apart.`\
-https://nytimes.com/2025/11/10/arts/music/disintegration-loops-william-basinski.html
 
