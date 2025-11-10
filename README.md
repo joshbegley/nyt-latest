@@ -1,3 +1,15 @@
+**The Pulse: The NFL’s randomness peaks**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6793110/2025/11/10/nfl-week-10-takeaways-the-pulse/
+
+**8 Senators Break Ranks With Democrats and Advance G.O.P. Plan to End Shutdown**\
+`Two of them are retiring, and none of the others face re-election in 2026.`\
+https://nytimes.com/2025/11/10/us/politics/senators-democrat-shutdown-vote.html
+
+**Inside Newcastle Q&A: Chris Waugh answers your questions**\
+`Most Mondays throughout the season, The Athletic hosts an hour-long ‘Inside Newcastle’ live Q&A with subscribers. Send us your questions now`\
+https://nytimes.com/athletic/6793992/2025/11/10/inside-newcastle-qa-premier-league/
+
 **Michigan mailbag: What's Sherrone Moore's ceiling? Is Bryce Underwood behind schedule?**\
 `Plus, is Michigan more likely to win a men's basketball national title or beat Ohio State and return to the College Football Playoff?`\
 https://nytimes.com/athletic/6790683/2025/11/10/michigan-football-sherrone-moore-bryce-underwood-2/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6794037/2025/11/10/luis-diaz-bayern-munich-goal-mes
 **Red Wings are slumping after a hot start. What's changed, and what's next?**\
 `After starting 8-3, the Red Wings have lost four out of five and are struggling to score.`\
 https://nytimes.com/athletic/6792673/2025/11/10/red-wings-slump-special-teams-top-six/
-
-**Forget 2024. These Washington Commanders aren't even close to being competitive**\
-`A 44-22 drubbing against the Lions was a new rock bottom for the Commanders’ defense, which seems to sink lower every week.`\
-https://nytimes.com/athletic/6794121/2025/11/10/commanders-defense-lions-blowout-losses/
-
-**Chargers defense puts rock bottom in its rearview in dominant performance**\
-`A defense that was reeling after a rough stretch earlier in the season looks like it's back after burying Aaron Rodgers and Pittsburgh.`\
-https://nytimes.com/athletic/6793942/2025/11/10/chargers-defense-steelers-snf/
-
-**Packers brace for Eagles' tush push after trying to ban it: 'I hate that play'**\
-`The Packers helped lead the effort to ban the tush push this offseason and now host the Eagles on Monday Night Football.`\
-https://nytimes.com/athletic/6791930/2025/11/10/packers-tush-push-mnf-eagles/
 
