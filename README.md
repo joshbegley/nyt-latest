@@ -1,3 +1,7 @@
+**New-look Dan Campbell gives Lions' offense jump-start in perhaps a season-defining move**\
+`With Campbell calling plays, the Lions piled up 546 total yards and scored on every possession other than their final one of the game.`\
+https://nytimes.com/athletic/6793380/2025/11/10/lions-dan-campbell-play-calling-offense-commanders/
+
 **Democrats Were on a Roll. Why Stop Now?**\
 `This is how the shutdown ends?`\
 https://nytimes.com/2025/11/10/opinion/government-shutdown-democrats-republicans.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/10/world/americas/juan-gabriel-mexico.html
 **Magazine Covers Good Enough to Eat**\
 `For this month’s feature on pastries, T commissioned three artists to make original works. Here, they share their inspirations.`\
 https://nytimes.com/2025/11/10/t-magazine/winter-travel-issue-covers.html
-
-**Prison Guards Shaved His Dreadlocks. The Supreme Court Will Decide if He Can Sue.**\
-`Lower courts condemned the treatment of Damon Landor, a Rastafarian, but found that a federal law protecting religious rights barred him from suing prison officials for money.`\
-https://nytimes.com/2025/11/10/us/supreme-court-dreadlocks-prisoner.html
 
