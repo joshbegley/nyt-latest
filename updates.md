@@ -1,3 +1,11 @@
+**Lenny Wilkens, N.B.A. Hall of Famer as Both Player and Coach, Dies at 88**\
+`A perennial All Star, he was cited as one of the league’s 50 greatest players and one of its top 10 coaches, winning 1,332 games and leading Seattle to a championship.`\
+https://nytimes.com/2025/11/09/sports/lenny-wilkens-dead.html
+
+**Brian Daboll's days in NY are numbered after Jaxson Dart's concussion, another crushing loss**\
+`Even if Daboll survives the immediate aftermath of Sunday’s debacle, he won't be the Giants' head coach much longer. `\
+https://nytimes.com/athletic/6793072/2025/11/09/brian-daboll-ny-giants-jaxon-dart-fired-concussion/
+
 **'Like Houdini': Another Caleb Williams magic trick rescues Bears in thrilling win**\
 `A quarterback-led rally from 10 points down in the final minutes propelled the Bears to 6-3.`\
 https://nytimes.com/athletic/6793007/2025/11/09/bears-caleb-williams-comeback-vs-giants/

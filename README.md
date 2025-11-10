@@ -1,9 +1,13 @@
+**J.J. McCarthy, Vikings search for answers to pre-snap debacle after loss to Ravens**\
+`McCarthy completed just 20 of his 42 passes for 248 yards, and he wasn't helped by his offense's eight false-start penalties.`\
+https://nytimes.com/athletic/6793114/2025/11/09/vikings-ravens-jj-mccarthy-false-start-penalties/
+
 **Lenny Wilkens, N.B.A. Hall of Famer as Both Player and Coach, Dies at 88**\
 `A perennial All Star, he was cited as one of the league’s 50 greatest players and one of its top 10 coaches, winning 1,332 games and leading Seattle to a championship.`\
 https://nytimes.com/2025/11/09/sports/lenny-wilkens-dead.html
 
 **Brian Daboll's days in NY are numbered after Jaxson Dart's concussion, another crushing loss**\
-`Even if Daboll survives the immediate aftermath of Sunday’s debacle, he won't be the Giants' head coach much longer. `\
+`Even if Daboll survives the immediate aftermath of Sunday’s debacle, he's not going to be the Giants' head coach much longer. `\
 https://nytimes.com/athletic/6793072/2025/11/09/brian-daboll-ny-giants-jaxon-dart-fired-concussion/
 
 **Bills' flaws on painful display as Josh Allen takes more blame than he should**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6792903/2025/11/09/lions-commanders-score-result-ta
 **2025 NFL Playoff Simulator: Each team’s path to the postseason after surprises in Week 10**\
 `<p>Welcome to The Athletic’s 2025 NFL Playoff Simulator, where you’ll find everything you need to know about all the ways your favorite team&#8217;s season could end, from a No.`\
 https://nytimes.com/athletic/6513952/2025/11/09/2025-nfl-playoff-simulator-path-postseason/
-
-**Steph Curry to miss third straight game because of lingering cold**\
-`With Curry out of the lineup recently, the Warriors have struggled to find a solid rhythm offensively. When will he return?`\
-https://nytimes.com/athletic/6793037/2025/11/09/steph-curry-illness-update-warriors-pacers-nba/
 
