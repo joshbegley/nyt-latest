@@ -1,3 +1,7 @@
+**In ‘The Queen of Versailles,’ Kristin Chenoweth Can’t Get Enough**\
+`Material excess can never be too excessive for the central character of this gilded Broadway musical, based on the 2012 film.`\
+https://nytimes.com/2025/11/09/theater/queen-of-versailles-broadway-chenoweth.html
+
 **Hundreds of Migrants Missing Off Malaysia’s Coast**\
 `A boat said to be carrying people from the Rohingya ethnic minority capsized, and another was missing. At least seven bodies were recovered.`\
 https://nytimes.com/2025/11/09/world/asia/malaysia-thailand-migrants-boat.html
@@ -35,8 +39,4 @@ https://nytimes.com/2025/11/09/arts/television/it-welcome-to-derry-recap-season-
 **Second Migrant Child Dies on ‘Reverse Migration’ Boat Route**\
 `A 3-year-old from Colombia died when a boat carrying migrants back to South America capsized off Panama’s Caribbean Coast, an official said. Another child drowned on the same migrant route in February.`\
 https://nytimes.com/2025/11/09/world/americas/migrant-child-drowns-panama.html
-
-**Ravens' defense finds its swagger in win over Vikings: 'We’re starting to hit our stride'**\
-`The play of Baltimore’s much-maligned defense helped carried the victory over Minnesota and got the team even deeper into the playoff mix.`\
-https://nytimes.com/athletic/6793058/2025/11/09/ravens-defense-swagger-win-vikings/
 
