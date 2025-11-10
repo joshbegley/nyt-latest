@@ -1,3 +1,11 @@
+**Liverpool's standards have plummeted and pitiful away form is among an array of issues dogging them**\
+`Liverpool's away form is alarming. Wins over Villa and Madrid only provided some temporary respite from the array of issues dogging them.`\
+https://nytimes.com/athletic/6791933/2025/11/10/liverpool-man-city-away-form-slot/
+
+**Word of the Day: forensic**\
+`This word has appeared in 322 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/10/learning/word-of-the-day-forensic.html
+
 **‘The Beast in Me,’ Plus 5 Things to Watch on TV This Week**\
 `The new Netflix series starring Claire Danes airs, and ‘The Golden Bachelor’ wraps up.`\
 https://nytimes.com/2025/11/10/arts/television/the-beast-in-me-plus-5-things-to-watch-on-tv-this-week.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6792376/2025/11/10/leeds-united-premier-league-dani
 **Nuno has given West Ham a workable midfield core**\
 `Nuno has delivered the club's first back-to-back home wins of 2025 - an improved midfield has been key in both games`\
 https://nytimes.com/athletic/6790757/2025/11/10/nuno-west-ham-midfield-potts-paqueta-fernandes/
-
-**Familiarity breeds intent as Brighton find defensive stability in Hurzeler’s unchanged XI**\
-`The 0-0 draw away to rivals Palace marked the first time that Brighton had kept consecutive Premier League clean sheets since February`\
-https://nytimes.com/athletic/6791990/2025/11/10/brighton-crystal-palace-premier-league-fabian-hurzeler/
-
-**Wallstedt gets second straight start, records first home shutout: Takeaways**\
-`Marcus Johansson also picked up a point in his 1,000th NHL game with plenty of friends and family in attendance.`\
-https://nytimes.com/athletic/6793286/2025/11/10/wild-jesper-wallstedt-shutout-flames/
 

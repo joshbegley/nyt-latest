@@ -1,5 +1,5 @@
 **Liverpool's standards have plummeted and pitiful away form is among an array of issues dogging them**\
-`Liverpool's away form is alarming. Wins over Villa and Madrid only provided some temporary respite from the array of issues dogging them.`\
+`The last time Liverpool lost four successive away Premier League matches was in April 2012. It leaves the defence of their crown in tatters`\
 https://nytimes.com/athletic/6791933/2025/11/10/liverpool-man-city-away-form-slot/
 
 **Word of the Day: forensic**\

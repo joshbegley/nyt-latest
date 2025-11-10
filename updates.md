@@ -1,3 +1,11 @@
+**Liverpool's standards have plummeted and pitiful away form is among an array of issues dogging them**\
+`Liverpool's away form is alarming. Wins over Villa and Madrid only provided some temporary respite from the array of issues dogging them.`\
+https://nytimes.com/athletic/6791933/2025/11/10/liverpool-man-city-away-form-slot/
+
+**Word of the Day: forensic**\
+`This word has appeared in 322 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/10/learning/word-of-the-day-forensic.html
+
 **‘The Beast in Me,’ Plus 5 Things to Watch on TV This Week**\
 `The new Netflix series starring Claire Danes airs, and ‘The Golden Bachelor’ wraps up.`\
 https://nytimes.com/2025/11/10/arts/television/the-beast-in-me-plus-5-things-to-watch-on-tv-this-week.html
