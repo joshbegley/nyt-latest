@@ -1,40 +1,40 @@
-**Drones Over North Korea Were Part of Martial Law Bid in South, Special Counsel Says**\
-`South Korea’s ousted leader, Yoon Suk Yeol, was accused of trying to stoke military tensions to justify his short-lived martial law last December.`\
-https://nytimes.com/2025/11/10/world/asia/drones-korea-martial-law-yoon.html
+**Democrats Were on a Roll. Why Stop Now?**\
+`This is how the shutdown ends?`\
+https://nytimes.com/2025/11/10/opinion/government-shutdown-democrats-republicans.html
 
-**James Overy: Man United's 17-year-old in frame for Australia World Cup spot**\
-`Overy, who celebrated his 18th birthday on Sunday, has been called up to the Socceroos squad for November's international break.`\
-https://nytimes.com/athletic/6793952/2025/11/10/manchester-united-overy-australia-world-cup/
+**Would You Ever Want to Run for Office?**\
+`A teenager defeated his former high school government teacher in a Virginia county election last week. He wanted to help improve his community, especially for young people.`\
+https://nytimes.com/2025/11/10/learning/would-you-ever-want-to-run-for-office.html
 
-**He Was Known for Kleptocratic Rule and Bloodshed. Now He’s a National Hero.**\
-`Indonesia’s president bestowed the honor on the dictator Suharto, who died in 2008, in what many said was a stunning move of revisionist history.`\
-https://nytimes.com/2025/11/10/world/asia/indonesia-suharto-dictator-hero.html
+**Trump Tries to Seize ‘Affordability’ Message**\
+`The issue has buoyed Democrats and is resonating with an American electorate that is souring on the president’s economic agenda.`\
+https://nytimes.com/2025/11/10/us/politics/trump-affordability-inflation-democrats.html
 
-**Senate Moves Closer to Ending Shutdown**\
-`Eight senators broke from the Democratic caucus and agreed to a deal giving Republicans the 60 votes they needed to end the government shutdown. The measure still needs to be voted on in both chambers of Congress.`\
-https://nytimes.com/video/us/politics/100000010514862/government-shutdown-senate-vote.html
+**Emboldened, Kennedy Allies Embrace a Label They Once Rejected: ‘Anti-Vax’**\
+`A weekend gathering in Texas drew activists, homeopaths, doctors, lawyers, parents and a Republican senator who asked, “Why isn’t Tony Fauci in prison?”`\
+https://nytimes.com/2025/11/10/us/politics/anti-vaccine-autism-kennedy.html
 
-**Who Will Be Mamdani’s City Council Partner? Get Ready for a Battle.**\
-`The heated contest to become City Council speaker took shape in Puerto Rico, where the leading contenders jockeyed for votes at a beachside political gathering.`\
-https://nytimes.com/2025/11/10/nyregion/council-speaker-nyc.html
+**What’s With All the Retro Sneakers?**\
+`Brands like Adidas and Nike are rereleasing and reimagining vintage silhouettes. Our critic tracks the trend and predicts what’s next.`\
+https://nytimes.com/2025/11/10/fashion/sneakers-retro-vintage.html
 
-**Prosecutor Who Quit Over Adams Case Joins a Firm Known for Independence**\
-`Danielle Sassoon resigned as an interim U.S. attorney rather than halt the prosecution of Mayor Eric Adams. Her new firm’s conservative principles have at times put it at odds with President Trump.`\
-https://nytimes.com/2025/11/10/nyregion/danielle-sassoon-clement-murphy.html
+**Now We Know Trump’s Kryptonite**\
+`Democratic election victories should kill the myth that Trumpism is invincible.`\
+https://nytimes.com/2025/11/10/opinion/how-to-defeat-trump.html
 
-**A Force Behind Megastars of the Moment**\
-`Timothée Chalamet, Charli XCX and Billie Eilish are among those who trust Aidan Zamiri, a director and photographer, with their images.`\
-https://nytimes.com/2025/11/10/style/aidan-zamiri-director-timothee-chalamet-billie-eilish.html
+**Remembering Veterans, and Some of the Vehicles They Drove**\
+`Dragon Wagons, rare World War II trucks, are a part of military history, and there’s one parked on Long Island.`\
+https://nytimes.com/2025/11/10/nyregion/veterans-day-military-vehicles.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/11/10/crosswords/spelling-bee-forum.html
+**Before Bad Bunny, the World Had Juan Gabriel**\
+`The transgressive icon of Mexican music, who died in 2016, still has millions of fans. On Saturday, more than 170,000 filled Mexico City’s central plaza to watch footage of a landmark concert.`\
+https://nytimes.com/2025/11/10/world/americas/juan-gabriel-mexico.html
 
-**Felon Freed by Trump Is Set to Be Sentenced Again in Brooklyn**\
-`A judge found that Jonathan Braun had violated the rules of his release by sexually assaulting a nanny, swinging an IV pole at a nurse and dodging tolls in his Lamborghini and Ferrari.`\
-https://nytimes.com/2025/11/10/nyregion/jonathan-braun-resentencing.html
+**Magazine Covers Good Enough to Eat**\
+`For this month’s feature on pastries, T commissioned three artists to make original works. Here, they share their inspirations.`\
+https://nytimes.com/2025/11/10/t-magazine/winter-travel-issue-covers.html
 
-**Draymond Green's challenge sparks the Warriors to a comfortable win**\
-`With Stephen Curry out and Jonathan Kuminga struggling, Golden State needed a pick-me-up for Sunday's game. Enter Draymond Green.`\
-https://nytimes.com/athletic/6793863/2025/11/10/warriors-spark-draymond-green-win-pacers/
+**Prison Guards Shaved His Dreadlocks. The Supreme Court Will Decide if He Can Sue.**\
+`Lower courts condemned the treatment of Damon Landor, a Rastafarian, but found that a federal law protecting religious rights barred him from suing prison officials for money.`\
+https://nytimes.com/2025/11/10/us/supreme-court-dreadlocks-prisoner.html
 
