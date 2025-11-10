@@ -1,3 +1,7 @@
+**Brian Daboll's days in NY are numbered after Jaxson Dart's injury, another crushing loss**\
+`Even if Daboll survives the immediate aftermath of Sunday’s debacle, Chicago will be the site of death for another Giants’ coaching tenure.`\
+https://nytimes.com/athletic/6793072/2025/11/09/brian-daboll-ny-giants-jaxon-dart-fired-concussion/
+
 **Bills' flaws on painful display as Josh Allen takes more blame than he should**\
 `The Bills' shortcomings are everywhere on the team and the situation is becoming more urgent. `\
 https://nytimes.com/athletic/6793095/2025/11/09/josh-allen-takes-heat-bills-dolphins-struggles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6793037/2025/11/09/steph-curry-illness-update-warri
 **Stafford, Rams cruise over 49ers in key NFC West showdown: Takeaways**\
 `The Rams' offense looked nearly unstoppable as QB threw four touchdowns against San Francisco.`\
 https://nytimes.com/athletic/6792630/2025/11/09/rams-49ers-score-result-takeaways/
-
-**C.J. Gardner-Johnson the defensive difference-maker in Chicago Bears' comeback win**\
-`Newcomer Gardner-Johnson had two sacks and a forced fumble to help the Bears come from behind to defeat the Giants.`\
-https://nytimes.com/athletic/6792947/2025/11/09/bears-cj-gardner-johnson-giants/
 
