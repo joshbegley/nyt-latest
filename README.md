@@ -1,3 +1,11 @@
+**Why Hockey Goalies Wear Masks**\
+`Did you know that hockey goalies used to not wear masks?`\
+https://nytimes.com/video/the-athletic/100000010446783/why-hockey-goalies-wear-masks.html
+
+**Who is Mike Kafka? Meet the Giants' interim head coach replacing Brian Daboll**\
+`Kafka, a former NFL QB, has a chance to prove what he can do as an NFL head coach. `\
+https://nytimes.com/athletic/6795669/2025/11/10/mike-kafka-replacing-brian-daboll-giants-interim-coach/
+
 **Suits Accuse Camp Mystic of Gross Negligence in Children’s Deaths**\
 `Parents of campers and counselors who died in the July 4 Texas floods said the camp leadership did little before mounting “a hopeless ‘rescue’ effort from its self-created disaster.”`\
 https://nytimes.com/2025/11/10/us/camp-mystic-lawsuit.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6795468/2025/11/10/gabe-perreault-vincent-trocheck-
 **Against Mamdani’s Wishes, Gen Z Councilman Plans to Challenge Jeffries**\
 `Chi Ossé, a New York City councilman, has told allies he is preparing to challenge Representative Hakeem Jeffries, the Democratic leader of the House.`\
 https://nytimes.com/2025/11/10/nyregion/chi-osse-hakeem-jeffries.html
-
-**Ravens' Marlon Humphrey considering finger surgery, could be out a game or two**\
-`Humphrey hurt his finger in practice last week but started vs. Minnesota and had his first interception of the season. `\
-https://nytimes.com/athletic/6795754/2025/11/10/ravens-marlon-humphrey-considering-finger-surgery/
-
-**Puzzle Mania 2025: F.A.Q.**\
-`Everything you need to know about this year’s special print puzzle section.`\
-https://nytimes.com/2025/11/10/crosswords/puzzle-mania-2025-faq.html
 
