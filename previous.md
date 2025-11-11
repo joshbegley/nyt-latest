@@ -1,3 +1,7 @@
+**Late Night Is Disappointed in Democrats Over Shutdown Deal**\
+`“Our long national nightmare is different,” Stephen Colbert said after eight Democratic senators voted with Republicans to end the government shutdown.`\
+https://nytimes.com/2025/11/11/arts/television/late-night-democrats-government-shutdown.html
+
 **World Cup fans with 'right to buy' tickets say FIFA forced them into 'unjust ultimatum'**\
 `For fans who spent big on a guarantee of purchasing World Cup tickets, they're missing all the key details as a decision deadline nears`\
 https://nytimes.com/athletic/6793679/2025/11/11/world-cup-tickets-fifa-collect-right-to-buy-ultimatum/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6796704/2025/11/11/andrew-wiggins-alley-oop-heat/
 **Cade Cunningham's career-night carrys East-leading Pistons past Wizards**\
 `Cunningham scored 46 points for the Pistons in Monday's overtime win, the latest example of Detroit "controlling chaos."`\
 https://nytimes.com/athletic/6796639/2025/11/11/cade-cunningham-triple-double-pistons-nba/
-
-**The Ashes, a ‘moral victory’ and a very familiar war of words**\
-`Most of the talk in the build up to the latest series has come from those who will not be involved on the pitch, but there will be bad blood`\
-https://nytimes.com/athletic/6794635/2025/11/11/ashes-moral-victory-england-australia/
 

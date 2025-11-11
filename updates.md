@@ -1,3 +1,7 @@
+**Late Night Is Disappointed in Democrats Over Shutdown Deal**\
+`“Our long national nightmare is different,” Stephen Colbert said after eight Democratic senators voted with Republicans to end the government shutdown.`\
+https://nytimes.com/2025/11/11/arts/television/late-night-democrats-government-shutdown.html
+
 **World Cup fans with 'right to buy' tickets say FIFA forced them into 'unjust ultimatum'**\
 `For fans who spent big on a guarantee of purchasing World Cup tickets, they're missing all the key details as a decision deadline nears`\
 https://nytimes.com/athletic/6793679/2025/11/11/world-cup-tickets-fifa-collect-right-to-buy-ultimatum/
