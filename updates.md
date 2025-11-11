@@ -1,3 +1,7 @@
+**Chelsea supporting Sterling after burglary at family home**\
+`The incident took place at his home on Saturday while Sterling, 30, and his children were in the house.`\
+https://nytimes.com/athletic/6797556/2025/11/11/chelsea-raheem-sterling-burglary/
+
 **Iraqis Head to the Polls**\
 `Iraq’s parliamentary election is being closely watched by the Trump administration, which is pressing the government to curb the influence of neighboring Iran.`\
 https://nytimes.com/video/world/asia/100000010518013/iraqis-head-to-the-polls.html
