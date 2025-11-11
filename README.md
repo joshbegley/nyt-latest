@@ -1,3 +1,7 @@
+**Justice Dept. Says It Will Investigate U.C. Berkeley Protest**\
+`More than 200 demonstrators rallied against a Turning Point USA event being held at the University of California, Berkeley, on Monday.`\
+https://nytimes.com/video/us/politics/100000010518537/university-of-california-berkeley-protest.html
+
 **Steelers to sign CB Asante Samuel Jr. to practice squad: Sources**\
 `The fifth-year veteran joins a Steelers secondary in transition.`\
 https://nytimes.com/athletic/6799255/2025/11/11/pittsburgh-steelers-asante-samuel-jr/
@@ -7,10 +11,10 @@ https://nytimes.com/athletic/6799255/2025/11/11/pittsburgh-steelers-asante-samue
 https://nytimes.com/athletic/6797781/2025/11/11/reece-james-england-world-cup-conditions/
 
 **Bill Belichick 'getting ready for Wake Forest,' not thinking about Giants job**\
-`Prior to finding glory as Patriots head coach, Belichick was a defensive coordinator with the Giants under Bill Parcells.`\
+`Before finding glory as Patriots head coach, Belichick was a defensive coordinator with the Giants under Bill Parcells.`\
 https://nytimes.com/athletic/6799173/2025/11/11/bill-belichick-giants-job/
 
-**Trump criticizes NFL’s new kickoff rule on "The Pat McAfee Show"**\
+**Trump criticizes NFL’s new kickoff rule on 'The Pat McAfee Show'**\
 `President Donald Trump joined ESPN's "The Pat McAfee Show" to discuss the NFL's new dynamic kickoff rule and a host of other topics. `\
 https://nytimes.com/athletic/6798770/2025/11/11/trump-nfl-kickoff-pat-mcafee-show/
 
@@ -33,8 +37,4 @@ https://nytimes.com/video/dining/100000010366164/crispy-coconut-tempeh.html
 **Will Bad Bunny Pull a Kendrick in 2026?**\
 `Bad Bunny’s latest album, “Debí Tirar Más Fotos,” was recently nominated for six awards, including the top three categories, at the Grammys in February — the week before he headlines the Super Bowl halftime show.`\
 https://nytimes.com/video/podcasts/100000010518836/will-bad-bunny-pull-a-kendrick-in-2026.html
-
-**Hard Fork’s First Robot Guest**\
-`NEO, a new humanoid robot that can do housekeeping, has the internet buzzing.`\
-https://nytimes.com/video/podcasts/100000010518872/hard-forks-first-robot-guest.html
 
