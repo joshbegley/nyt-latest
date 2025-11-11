@@ -1,3 +1,15 @@
+**World Cup fans with 'right to buy' tickets say FIFA forced them into 'unjust ultimatum'**\
+`For fans who spent big on a guarantee of purchasing World Cup tickets, they're missing all the key details as a decision deadline nears`\
+https://nytimes.com/athletic/6793679/2025/11/11/world-cup-tickets-fifa-collect-right-to-buy-ultimatum/
+
+**Tatsuya Nakadai, Japanese Star Known for ‘Ran’ and Other Classics, Dies at 92**\
+`He was a fixture of postwar Japanese cinema and starred in films by Akira Kurosawa and other directors of that era.`\
+https://nytimes.com/2025/11/11/movies/tatsuya-nakadai-dead.html
+
+**Luka Dončić gets a real dunk in bounce-back Lakers win at Hornets**\
+`Dončić showing some bounce was the highlight of the Lakers' 121-111 win over the Hornets.`\
+https://nytimes.com/athletic/6796750/2025/11/11/luka-doncic-lakers-hornets-nba/
+
 **Former coach Brian Kelly files lawsuit against LSU: Reports**\
 `The buyout for Kelly would be the second-largest in college sports, behind the $77 million Texas A&M paid to Jimbo Fisher in 2023.`\
 https://nytimes.com/athletic/6796896/2025/11/11/brian-kelly-lsu-lawsuit/
