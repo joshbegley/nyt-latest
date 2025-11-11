@@ -1,3 +1,7 @@
+**How a potential MLB lockout next offseason could impact the Giants' current offseason**\
+`The Giants have excelled in free agency by signing starters to one-year deals. Free agents may be less inclined to take those this winter.`\
+https://nytimes.com/athletic/6796480/2025/11/11/sf-giants-offseason-pitching-targets-contract-length/
+
 **Super Bowl odds: Here come the Rams!**\
 `Week 11 features several key matchup among Super Bowl contenders. How will the odds shift?`\
 https://nytimes.com/athletic/6798157/2025/11/11/super-bowl-odds-rams-chiefs-eagles-betting/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/11/11/dining/restaurant-openings-nyc.html
 **Mavericks' next steps should be clear: Trade Anthony Davis, build around Cooper Flagg**\
 `Dallas has a self-inflicted mess it needs to dig itself out of. Luckily, it's already won a draft lottery to kick-start things.`\
 https://nytimes.com/athletic/6798041/2025/11/11/nico-harrison-fallout-anthony-davis-trade-mavs/
-
-**Thorns fandom, lucky charms and family values: Suite Level with the Bhathals**\
-`The Bhathals doubled down on their Portland investment in women's sports, which consists of both NWSL and WNBA teams.`\
-https://nytimes.com/athletic/6795488/2025/11/11/portland-thorn-bhathal-nwsl-owners-interview/
 
