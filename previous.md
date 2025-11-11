@@ -1,3 +1,7 @@
+**Fantasy football market share report: Trading Bijan Robinson; Alec Pierce's WR2 case**\
+`Michael Salfino analyzes the touches and targets distribution for Week 10 and wonders why Colts receiver Alec Pierce is still available.`\
+https://nytimes.com/athletic/6798366/2025/11/11/fantasy-football-market-share-week-10-touches-targets/
+
 **Kansas Redistricting Was on the Fast Track. Then Some Republicans Said No.**\
 `The state’s top Republicans wanted to join President Trump’s push to redraw congressional maps. But plans for a special session fell apart when some lawmakers resisted.`\
 https://nytimes.com/2025/11/11/us/kansas-redistricting-sharice-davids-congress.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/11/arts/television/review-in-waves-and-war-the-warfi
 **Trump Is Said to Propose Opening California Coast to Oil Drilling**\
 `The move would set up a clash with Gov. Gavin Newsom, a chief critic of the president and an opponent of oil exploration in the Pacific.`\
 https://nytimes.com/2025/11/11/climate/offshore-drilling-california-trump-newsom.html
-
-**The Ferrari saga — its drivers respond. Plus, the under appreciated element of Norris’ F1 season**\
-`The Ferrari president ignited a media storm around its F1 team this week. Now Lewis Hamilton and Charles Leclerc have responded`\
-https://nytimes.com/athletic/6798392/2025/11/11/ferrari-f1-drivers-2025-brazilian-gp/
 
