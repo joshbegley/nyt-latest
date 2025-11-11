@@ -1,3 +1,7 @@
+**Kansas Redistricting Was on the Fast Track. Then Some Republicans Said No.**\
+`The state’s top Republicans wanted to join President Trump’s push to redraw congressional maps. But plans for a special session fell apart when some lawmakers resisted.`\
+https://nytimes.com/2025/11/11/us/kansas-redistricting-sharice-davids-congress.html
+
 **A New Jewel Box for Vegetarian Kaiseki**\
 `Rei opens in Soho with a vegetable-centered set menu, family friendly Italian in Dumbo, Brooklyn, and more restaurant news.`\
 https://nytimes.com/2025/11/11/dining/restaurant-openings-nyc.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/11/climate/offshore-drilling-california-trump-newsom
 **The Ferrari saga — its drivers respond. Plus, the under appreciated element of Norris’ F1 season**\
 `The Ferrari president ignited a media storm around its F1 team this week. Now Lewis Hamilton and Charles Leclerc have responded`\
 https://nytimes.com/athletic/6798392/2025/11/11/ferrari-f1-drivers-2025-brazilian-gp/
-
-**NHL players and lower-body blood clots: What to know amid recent diagnoses**\
-`Sabres' Jiri Kulich and Penguins' Filip Hallander have been diagnosed with blood clots in the past week. Are NHL players at higher risk?`\
-https://nytimes.com/athletic/6797963/2025/11/11/nhl-blood-clots-hockey-risk-dvt/
 
