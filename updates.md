@@ -1,5 +1,13 @@
 **For Trump, Nothing Was Off-Limits During the Shutdown**\
 `President Trump pressured Democrats by taking punishing actions no previous administration ever took during a shutdown.`\
+https://nytimes.com/2025/11/10/us/politics/trump-government-shutdown.html
+
+**Dodgers could be in on Kyle Tucker, also explore internal outfield options**\
+`The Dodgers are always looming over the biggest free agents, and this will likely be no exception.`\
+https://nytimes.com/athletic/6796376/2025/11/10/los-angeles-dodgers-kyle-tucker-pursuit/
+
+**For Trump, Nothing Was Off-Limits During the Shutdown**\
+`President Trump pressured Democrats by taking punishing actions no previous administration ever took during a shutdown.`\
 https://nytimes.com/2025/11/10/us/politics/for-trump-nothing-was-off-limits-during-the-shutdown.html
 
 **Dodgers could be in on Kyle Tucker, also exploring their internal outfield options**\
