@@ -1,3 +1,7 @@
+**Nico Harrison timeline: Key trades (including THAT one), moments and more**\
+`Harrison's four-plus years were a roller coaster, from a finals appearance and lottery win to perhaps the worst trade in league history.`\
+https://nytimes.com/athletic/6798346/2025/11/11/nico-harrison-fallout-mavericks-timeline/
+
 **Sidney Crosby's treatment in Sweden shows he's a worldwide star**\
 `No matter where in the world Sidney Crosby plays, his appearances are a big deal.`\
 https://nytimes.com/athletic/6798077/2025/11/11/sidney-crosby-penguins-sweden-nhl-global-series/
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6796480/2025/11/11/sf-giants-offseason-pitching-tar
 **Super Bowl odds: Here come the Rams!**\
 `Week 11 features several key matchup among Super Bowl contenders. How will the odds shift?`\
 https://nytimes.com/athletic/6798157/2025/11/11/super-bowl-odds-rams-chiefs-eagles-betting/
-
-**Submit your questions for Murat Ates' Winnipeg Jets mailbag**\
-`<p>We&#8217;re officially a month into the season. The Jets got off to a good start but just dropped all three games on the California leg of their six-game road trip. What&#8217;s on your mind? Drop you questions here and Murat will answer them.</p>
-`\
-https://nytimes.com/athletic/6798524/2025/11/11/submit-your-questions-for-murat-ates-winnipeg-jets-mailbag-5/
 
