@@ -1,3 +1,11 @@
+**College Football Playoff odds: Which two-loss teams are likely to crash the party?**\
+`Texas Tech surged in the odds to make the College Football Playoff while BYU dropped. Who else made moves in Week 11?`\
+https://nytimes.com/athletic/6795337/2025/11/11/college-football-playoff-odds-texas-tech/
+
+**2025 NFL Playoff Simulator: Each team’s path to the postseason after surprises in Week 10**\
+`<p>Welcome to The Athletic’s 2025 NFL Playoff Simulator, where you’ll find everything you need to know about all the ways your favorite team&#8217;s season could end, from a No.`\
+https://nytimes.com/athletic/6513952/2025/11/11/2025-nfl-playoff-simulator-path-postseason/
+
 **Giannis, Luka, Joker, SGA: These Fab Four are ruling the NBA this season**\
 `This quartet of stars has been awesome for most of the last half-decade ... and they may be having their best seasons ever.`\
 https://nytimes.com/athletic/6795852/2025/11/11/giannis-luka-jokic-sga-nba-cup-raptors/

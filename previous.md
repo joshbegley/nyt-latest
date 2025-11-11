@@ -1,3 +1,11 @@
+**College Football Playoff odds: Which two-loss teams are likely to crash the party?**\
+`Texas Tech surged in the odds to make the College Football Playoff while BYU dropped. Who else made moves in Week 11?`\
+https://nytimes.com/athletic/6795337/2025/11/11/college-football-playoff-odds-texas-tech/
+
+**2025 NFL Playoff Simulator: Each team’s path to the postseason after surprises in Week 10**\
+`<p>Welcome to The Athletic’s 2025 NFL Playoff Simulator, where you’ll find everything you need to know about all the ways your favorite team&#8217;s season could end, from a No.`\
+https://nytimes.com/athletic/6513952/2025/11/11/2025-nfl-playoff-simulator-path-postseason/
+
 **Giannis, Luka, Joker, SGA: These Fab Four are ruling the NBA this season**\
 `This quartet of stars has been awesome for most of the last half-decade ... and they may be having their best seasons ever.`\
 https://nytimes.com/athletic/6795852/2025/11/11/giannis-luka-jokic-sga-nba-cup-raptors/
@@ -25,16 +33,4 @@ https://nytimes.com/2025/11/11/style/street-style-look-double-breasted-jacket.ht
 **For the Phoenix Suns, one possession, 10 passes and a defining trait in a surprising start**\
 `Winners of five of their last six games, the Suns are starting to find themselves. And their unselfishness is a strength.`\
 https://nytimes.com/athletic/6796943/2025/11/11/phoenix-suns-grayson-allen-3-pointer-possession-passes/
-
-**After 10 dismal games, Pelicans have far more questions than answers**\
-`New Orleans has a coach on the hot seat and a star once again in limbo to go along with its 2-8 record. Can change be far away?`\
-https://nytimes.com/athletic/6797175/2025/11/11/pelicans-willie-green-zion-williamson-rookies/
-
-**Nico Harrison firing is viewed as inevitable in NBA circles: Sources**\
-`Dallas fans have chanted "Fire Nico" since the Luka Dončić trade in February. They may soon get their wish, according to league sources.`\
-https://nytimes.com/athletic/6796931/2025/11/11/mavs-nico-harrison-firing-luka-doncic-nba-trade/
-
-**Eagles Edge Packers in Cold Monday Night Football Matchup**\
-`In a game that featured the only scoreless Monday Night Football first half since 2009, the Philadelphia Eagles prevailed on the road, beating the Green Bay Packers 10-7.`\
-https://nytimes.com/video/the-athletic/100000010517920/eagles-edge-packers-in-cold-monday-night-football-matchup.html
 

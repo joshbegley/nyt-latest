@@ -1,3 +1,7 @@
+**Burnley's Mejbri hit with FA misconduct charge for allegedly spitting at Leeds fans**\
+`Mejbri has until November 28 to provide a response to the charge.`\
+https://nytimes.com/athletic/6736139/2025/11/11/hannibal-mejbri-spitting-charge-fa-leeds-burnley/
+
 **College Football Playoff odds: Which two-loss teams are likely to crash the party?**\
 `Texas Tech surged in the odds to make the College Football Playoff while BYU dropped. Who else made moves in Week 11?`\
 https://nytimes.com/athletic/6795337/2025/11/11/college-football-playoff-odds-texas-tech/
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6795852/2025/11/11/giannis-luka-jokic-sga-nba-cup-r
 https://nytimes.com/athletic/6796694/2025/11/11/fantasy-football-week-11-drops-darnold-jcm-chuba/
 
 **Judge Rejects Utah’s Republican-Drawn Redistricting Map**\
-`A judge instead adopted one drawn by a coalition of centrists ahead of the 2026 midterms.`\
+`A judge instead adopted one drawn by a coalition of centrists ahead of the 2026 midterms. Republican officials vowed to fight the ruling.`\
 https://nytimes.com/2025/11/11/us/utah-redistricting-gerrymander-congress.html
 
 **Teaching History in the Trump Era**\
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/11/books/review/white-hot-quiara-alegria-hudes.html
 **Wrapped in Hermès and a Houndstooth Jacket**\
 `Channeling British style and that of ladies who lunch.`\
 https://nytimes.com/2025/11/11/style/street-style-look-double-breasted-jacket.html
-
-**For the Phoenix Suns, one possession, 10 passes and a defining trait in a surprising start**\
-`Winners of five of their last six games, the Suns are starting to find themselves. And their unselfishness is a strength.`\
-https://nytimes.com/athletic/6796943/2025/11/11/phoenix-suns-grayson-allen-3-pointer-possession-passes/
 
