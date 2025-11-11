@@ -1,3 +1,19 @@
+**Trump Is Said to Have a Plan to Open California Waters to Drilling**\
+`The move would set up a clash with Gov. Gavin Newsom, a chief critic of the president and an opponent of oil exploration in the Pacific.`\
+https://nytimes.com/2025/11/11/climate/offshore-drilling-california-trump-newsom.html
+
+**The Ferrari saga — its drivers respond. Plus, the under appreciated element of Norris’ F1 season**\
+`The Ferrari president ignited a media storm around its F1 team this week. Now Lewis Hamilton and Charles Leclerc have responded`\
+https://nytimes.com/athletic/6798392/2025/11/11/ferrari-f1-drivers-2025-brazilian-gp/
+
+**NHL players and lower-body blood clots: What to know amid recent diagnoses**\
+`Sabres' Jiri Kulich and Penguins' Filip Hallander have been diagnosed with blood clots in the past week. Are NHL players at higher risk?`\
+https://nytimes.com/athletic/6797963/2025/11/11/nhl-blood-clots-hockey-risk-dvt/
+
+**Roman-Era Treasures Stolen From Syria’s National Museum**\
+`The Damascus museum theft set off an official investigation in what may be one of Syria’s largest losses of antiquities in recent years.`\
+https://nytimes.com/2025/11/11/world/middleeast/syria-national-museum-roman-statues-stolen.html
+
 **Kyle Tucker's future: Odds say he's headed to one of these teams**\
 `Where will Kyle Tucker go? We spoke to oddsmakers in the betting industry to predict where they see the star outfielder landing.`\
 https://nytimes.com/athletic/6797923/2025/11/11/kyle-tucker-free-agency-team-odds-mlb/
@@ -17,24 +33,4 @@ https://nytimes.com/athletic/6797556/2025/11/11/chelsea-raheem-sterling-burglary
 **Iraqis Head to the Polls**\
 `Iraq’s parliamentary election is being closely watched by the Trump administration, which is pressing the government to curb the influence of neighboring Iran.`\
 https://nytimes.com/video/world/asia/100000010518013/iraqis-head-to-the-polls.html
-
-**The Athletic NBA 21st Century player reader poll: Who are your 25 best of this century?**\
-`We made our picks for the best NBA players of this quarter century. Now, we're giving you the opportunity to make your picks.`\
-https://nytimes.com/athletic/6795013/2025/11/11/reader-poll-nba-top-25-this-century/
-
-**MLS deputy commissioner, SUM president Gary Stevenson to retire**\
-`One of the top figures at MLS HQ is stepping away after the 2026 World Cup`\
-https://nytimes.com/athletic/6797779/2025/11/11/gary-stevenson-mls-retiring/
-
-**Submit questions for Zac Jackson's Browns mailbag**\
-`Jackson will consider your questions for his upcoming mailbag with the Browns sitting at 2-7 following their loss to the Jets. `\
-https://nytimes.com/athletic/6798314/2025/11/11/browns-mailbag-week-11-ravens/
-
-**The Mysterious ‘Louvre Detective’ Was a 15-Year-Old Passer-by**\
-`The photo of a dapper man in a fedora sparked many questions: Was the person real? A Sherlock Holmes-inspired detective on the case? Or just being very French?`\
-https://nytimes.com/2025/11/11/world/europe/louvre-detective-fedora-photo.html
-
-**Mariners Wanted: Six-Figure Salaries and Months at Sea**\
-`Few American are becoming mariners today, but demand could soon rise because President Trump and a bipartisan group of legislators in Congress want to revitalize the American shipbuilding industry.`\
-https://nytimes.com/2025/11/11/business/merchant-marines-shipbuilding.html
 
