@@ -1,40 +1,40 @@
-**Senate Passes Bill to End Government Shutdown**\
-`The Senate passed legislation to reopen the government after eight senators in the Democratic caucus broke with the party and supplied critical backing. The measure now heads to the House.`\
-https://nytimes.com/video/us/100000010517543/senate-passes-bill-to-end-government-shutdown.html
+**The Road to Reopening**\
+`The Senate passed legislation to end the government shutdown. We explain what’s happening.`\
+https://nytimes.com/2025/11/11/briefing/the-road-to-reopening.html
 
-**Deadly Blast in Pakistan Outside Courthouse**\
-`At least 12 people died when an attacker detonated a bomb in Pakistan’s capital on Tuesday after he failed to enter a courthouse, according to the country’s interior minister.`\
-https://nytimes.com/video/world/asia/100000010517570/deadly-explosion-court-pakistan.html
+**Manchester United fans: What do you make of Ruben Amorim's first year in charge?**\
+`Have your say on Ruben Amorim's first year in charge`\
+https://nytimes.com/athletic/6797343/2025/11/11/ruben-amorim-one-year-manchester-united/
 
-**Police Chase Driver Across Southern California Until She Escapes Into Mexico**\
-`The woman stole a minivan, police said, beginning a dramatic pursuit that spanned four counties and reached speeds of 90 miles per hour.`\
-https://nytimes.com/2025/11/11/us/car-chase-police-mexico-la.html
+**Nick Emmanwori is shining for the Seahawks, and he might only be scratching the surface**\
+`"The game is slowing down real well for me," Emmanwori said, which could be a scary thought for opposing offenses.`\
+https://nytimes.com/athletic/6796035/2025/11/11/nick-emmanwori-seahawks-rookie-cardinals/
 
-**A Daniel Jones blueprint? A Mac Jones argument? Week 10 film review**\
-`Also, taking a look at who could be a good play-caller option to be Jaxson Dart's new head coach with the New York Giants.`\
-https://nytimes.com/athletic/6793888/2025/11/11/daniel-jones-49ers-quarterback-controversy/
+**NFL Draft 2026 rankings: Ty Simpson, Jeremiyah Love climb into top 5 on latest board**\
+`For all its faults, the 2026 quarterback class has generated some positive momentum — just not as much as Ohio State's Arvell Reese.`\
+https://nytimes.com/athletic/6794398/2025/11/11/nfl-draft-2026-rankings-ty-simpson-mendoza/
 
-**Jaelan Phillips stands out in win but is the Eagles defense sustainable?**\
-`Phialdelphia's defense has carried the team throughout the season, with the addition of Phillips making the formula even stronger.`\
-https://nytimes.com/athletic/6795914/2025/11/11/jaelan-phillips-eagles-defense/
+**Amid the college football chaos, here are 9 fan bases that should be thankful for their coach**\
+`There’s been so much focus on coaching jobs gone wrong this season. But now it's time to expresses gratitude for some jobs done well.`\
+https://nytimes.com/athletic/6795442/2025/11/11/college-football-coaching-carousel-best-coaches/
 
-**How did an expansion castoff become a top scorer? The specs and story behind his stick**\
-`Morgan Geekie has scored 11 goals already in 2025-26 after his 33-goal breakout in 2024-25. What's his secret?`\
-https://nytimes.com/athletic/6784202/2025/11/11/bruins-morgan-geekie-stick-specs/
+**Which NBA Draft prospects impressed in college hoops' first week? Start with Caleb Wilson**\
+`This freshmen class looks deep and talented. Players like Neoklis Avdalas and Cameron Carr are building draft profiles. `\
+https://nytimes.com/athletic/6791170/2025/11/11/nba-draft-2026-prospects-caleb-wilson-koa-peat/
 
-**How the Anaheim Ducks morphed into a high-scoring, fun-to-watch, surprise team**\
-`The Ducks, 30th in the NHL in scoring last season, are No. 1 this season.`\
-https://nytimes.com/athletic/6796328/2025/11/11/anaheim-ducks-quenneville-goals/
+**Location has less impact on fandom with availability of streaming**\
+`Sports fandom is changing, and teams are adapting to their ever-growing fanbases.`\
+https://nytimes.com/athletic/6784532/2025/11/11/global-sports-fandoms-streaming-younger-generations/
 
-**How do managers choose which jobs to take - and when to say 'no'?**\
-`Status, money, timing, emotion? There are a lot of factors that go into picking the right job`\
-https://nytimes.com/athletic/6774171/2025/11/11/how-managers-choose-jobs/
+**Is Auburn a national title caliber program, or doomed to the SEC's second tier?**\
+`Auburn has paid $51 million in buyouts to its last three coaches. Is it set up for success this time?`\
+https://nytimes.com/athletic/6795924/2025/11/11/auburn-coaching-search-hugh-freeze/
 
-**Leitch: Uh, I think I just caught myself rooting for Bill Belichick?**\
-`When North Carolina beat Stanford for its second win in a row, I had an unexpected response. Did I just cheer for Bill Belichick?`\
-https://nytimes.com/athletic/6795246/2025/11/11/bill-belichick-north-carolina-winnning-bowl/
+**Lane Kiffin's son, gas station coin flips and more: The 10 best things in HS football**\
+`Knox Kiffin is a Class of 2028 quarterback who has said he has no desire to play for his dad.`\
+https://nytimes.com/athletic/6795194/2025/11/11/college-football-recruiting-thoughts-week-11/
 
-**Liverpool could 'help' Wirtz by 'scoring the chances he creates' - Nagelsmann**\
-`Nagelsmann insisted that Liverpool's instability and poor finishing have contributed to the 22-year-old frustrating start at Anfield.`\
-https://nytimes.com/athletic/6797209/2025/11/11/florian-wirtz-liverpool-form-nagelsmann/
+**Much-needed Connor McDavid magic saves Oilers from another embarrassing loss**\
+`Edmonton was facing another catastrophe Monday night at home against Columbus when McDavid decided to take over.`\
+https://nytimes.com/athletic/6796934/2025/11/11/connor-mcdavid-restless-fanbase-oilers-win/
 
