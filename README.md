@@ -1,8 +1,12 @@
+**Cooper Flagg's best effort yet not enough to beat Giannis Antetokounmpo, Bucks**\
+`Antetokounmpo ended with 30 points and Flagg had 26 in a wild back-and-forth affair in Dallas on Monday night.`\
+https://nytimes.com/athletic/6796804/2025/11/11/giannis-antetokounmpo-bucks-cooper-flagg-mavericks-nba/
+
 **Andrew Wiggins' game-winning alley-oop continues Miami's exciting start**\
 `The win brings Miami to 7-4 to begin the season, marking its best 11-game start since beginning the 2019-20 season.`\
 https://nytimes.com/athletic/6796704/2025/11/11/andrew-wiggins-alley-oop-heat/
 
-**Cade Cunningham's career night carries Pistons past Wizards**\
+**Cade Cunningham's career night carries East-leading Pistons past Wizards**\
 `Monday's overtime win was the latest example of Detroit "controlling chaos."`\
 https://nytimes.com/athletic/6796639/2025/11/11/cade-cunningham-triple-double-pistons-nba/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6742754/2025/11/11/streameast-illegal-streaming-rai
 **629 days out, winner of finals, uncertain future: What's going on with Ferland Mendy at Real Madrid?**\
 `Madrid's French left-back has not played since April and is an enigmatic figure behind the scenes. What does his future hold?`\
 https://nytimes.com/athletic/6794485/2025/11/11/real-madrid-ferland-mendy-analysis/
-
-**The making of Nico O'Reilly, as told by his mum and those who discovered him**\
-`The Manchester City defender could make his England debut this week. His mum knew from very early on that he was 'special' and would go far`\
-https://nytimes.com/athletic/6795660/2025/11/11/nico-oreilly-making-of-manchester-city/
 
