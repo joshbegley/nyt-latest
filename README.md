@@ -1,3 +1,7 @@
+**Iraqis Head to the Polls**\
+`Iraq’s parliamentary election is being closely watched by the Trump administration, which is pressing the government to curb the influence of neighboring Iran.`\
+https://nytimes.com/video/world/asia/100000010518013/iraqis-head-to-the-polls.html
+
 **The Athletic NBA 21st Century player reader poll: Who are your 25 best of this century?**\
 `We made our picks for the best NBA players of this quarter century. Now, we're giving you the opportunity to make your picks.`\
 https://nytimes.com/athletic/6795013/2025/11/11/reader-poll-nba-top-25-this-century/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6798010/2025/11/11/atp-tour-finals-fritz-alcaraz-re
 **Teenage fan in Luka Lakers jersey gets apology from Mavs owner who 'feels horrible for the trade'**\
 `Mavericks governor Patrick Dumont "wants to make it up to us," the fan said shortly before the team fired Nico Harrison.`\
 https://nytimes.com/athletic/6797762/2025/11/11/nico-harrison-firing-fan-interaction-patrick-dumont/
-
-**Why the F.D.A.’s Latest Fluoride Move Has Doctors Worried**\
-`The agency announced new recommendations on fluoride supplements, a crucial tool for protecting children’s dental health.`\
-https://nytimes.com/2025/11/11/well/fda-fluoride-supplements-kids-doctors.html
 

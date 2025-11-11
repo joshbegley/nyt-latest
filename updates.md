@@ -1,3 +1,15 @@
+**The Athletic NBA 21st Century player reader poll: Who are your 25 best of this century?**\
+`We made our picks for the best NBA players of this quarter century. Now, we're giving you the opportunity to make your picks.`\
+https://nytimes.com/athletic/6795013/2025/11/11/reader-poll-nba-top-25-this-century/
+
+**MLS deputy commissioner, SUM president Gary Stevenson to retire**\
+`One of the top figures at MLS HQ is stepping away after the 2026 World Cup`\
+https://nytimes.com/athletic/6797779/2025/11/11/gary-stevenson-mls-retiring/
+
+**Submit questions for Zac Jackson's Browns mailbag**\
+`Jackson will consider your questions for his upcoming mailbag with the Browns sitting at 2-7 following their loss to the Jets. `\
+https://nytimes.com/athletic/6798314/2025/11/11/browns-mailbag-week-11-ravens/
+
 **The Mysterious ‘Louvre Detective’ Was a 15-Year-Old Passer-by**\
 `The photo of a dapper man in a fedora sparked many questions: Was the person real? A Sherlock Holmes-inspired detective on the case? Or just being very French?`\
 https://nytimes.com/2025/11/11/world/europe/louvre-detective-fedora-photo.html
