@@ -1,3 +1,7 @@
+**Angels VP testifies MLB was involved in treating Eric Kay addiction; league denies knowledge**\
+`This is the first time MLB's involvement has been alleged at that stage, and it conflicts with other testimony from the trial. `\
+https://nytimes.com/athletic/6799030/2025/11/11/angels-mlb-eric-kay-tyler-skaggs-drug-treatment/
+
 **Jets coach Aaron Glenn refuses to talk about Garrett Wilson's injury: 'Ask Rich'**\
 `The Jets coach was combative with the media on Tuesday, seemingly in response to a report about his star receiver.`\
 https://nytimes.com/athletic/6798920/2025/11/11/aaron-glenn-garrett-wilson-injury-media/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/11/dining/city-councilman-chi-osse-where-to-eat.html
 **Seeds of Nico Harrison's demise sowed even before he traded Luka Dončić**\
 `Even before making the move that will forever be a part of his reputation, Nico Harrison's tendencies foreshadowed his eventual downfall.`\
 https://nytimes.com/athletic/6798731/2025/11/11/nico-harrison-demise-donic-trade-mavericks/
-
-**Scoop City: Compounding problems in New York**\
-`Jaxson Dart joins a long list of first-round QBs to see their head coach replaced in year two`\
-https://nytimes.com/athletic/6798890/2025/11/11/brian-daboll-fired-giants-joe-schoen-scoop-city/
 

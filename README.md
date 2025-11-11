@@ -1,3 +1,7 @@
+**Hard Fork’s First Robot Guest**\
+`NEO, a new humanoid robot that can do housekeeping, has the internet buzzing.`\
+https://nytimes.com/video/podcasts/100000010518872/hard-forks-first-robot-guest.html
+
 **Angels VP testifies MLB was involved in treating Eric Kay addiction; league denies knowledge**\
 `This is the first time MLB's involvement has been alleged at that stage, and it conflicts with other testimony from the trial. `\
 https://nytimes.com/athletic/6799030/2025/11/11/angels-mlb-eric-kay-tyler-skaggs-drug-treatment/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/11/world/europe/trump-bbc-lawsuit-hurdles.html
 **New York City Councilman Chi Ossé Hates a ‘Surprise Egg’**\
 `The native New Yorker and representative for Bedford-Stuyvesant and northern Crown Heights takes on the Where to Eat Questionnaire.`\
 https://nytimes.com/2025/11/11/dining/city-councilman-chi-osse-where-to-eat.html
-
-**Seeds of Nico Harrison's demise sowed even before he traded Luka Dončić**\
-`Even before making the move that will forever be a part of his reputation, Nico Harrison's tendencies foreshadowed his eventual downfall.`\
-https://nytimes.com/athletic/6798731/2025/11/11/nico-harrison-demise-donic-trade-mavericks/
 
