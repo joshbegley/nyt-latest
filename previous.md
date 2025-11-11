@@ -1,3 +1,11 @@
+**Dismantled by DOGE, a Foreign Policy Center Finds New Life**\
+`The Kennan Institute, which researches Russia and the surrounding region, has re-emerged in a form that is smaller but more impervious to government control.`\
+https://nytimes.com/2025/11/10/us/politics/dismantled-by-doge-a-foreign-policy-center-finds-new-life.html
+
+**Desmond Bane sent the Magic home with a win at the buzzer**\
+`Bane was in the midst of another tough shooting night before he secured an Orlando win at the buzzer.`\
+https://nytimes.com/athletic/6796611/2025/11/10/desmond-bane-magic-game-winner-nba-trail-blazers/
+
 **Eagles' All-Pro tackle Lane Johnson questionable with ankle injury**\
 `Since the start of the 2016 season, the Eagles are 91-39-1 when Johnson starts — winning at a nearly 70 percent rate.`\
 https://nytimes.com/athletic/6796597/2025/11/10/eagles-lane-johnson-ankle-injury-tnf-packers/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/10/us/politics/trump-government-shutdown.html
 **Dodgers could be in on Kyle Tucker, also explore internal outfield options**\
 `The Dodgers are always looming over the biggest free agents, and this will likely be no exception.`\
 https://nytimes.com/athletic/6796376/2025/11/10/los-angeles-dodgers-kyle-tucker-pursuit/
-
-**How to watch Mississippi State vs. Missouri: Time, TV, streaming**\
-`Find out how to watch the Mississippi State Bulldogs play the Missouri Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6796418/2025/11/10/mississippi-state-vs-missouri-stream-how-to-watch-nov-15/
-
-**Brian Daboll is suddenly available; could he cure the Bills' offensive woes?**\
-`Josh Allen's far-away gaze in Miami looked a lot like the one he sported right before the Bills fired Ken Dorsey.`\
-https://nytimes.com/athletic/6796200/2025/11/10/brian-daboll-bills-offense-josh-allen/
 
