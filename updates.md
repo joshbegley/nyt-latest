@@ -1,3 +1,11 @@
+**How to watch Clemson vs. South Carolina women's basketball: Time, TV, streaming**\
+`Find out how to watch the Clemson Tigers play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6798092/2025/11/11/clemson-vs-south-carolina-stream-how-to-watch-nov-11/
+
+**How the Heavy-Metal Fall of a Dictator Shapes Trump’s Venezuela Policy**\
+`Seizing Panama’s leader was relatively easy. But the similarities between Panama and Venezuela are dangerously misleading, some analysts warn.`\
+https://nytimes.com/2025/11/11/us/politics/panama-noriega-maduro.html
+
 **Creamy Butternut Squash Noodle Soup; Shrimp and Bacon Burritas**\
 `This week’s batch of fast weeknight dinners is hearty, not heavy.`\
 https://nytimes.com/2025/11/11/dining/creamy-butternut-squash-noodle-soup-shrimp-and-bacon-burritas.html

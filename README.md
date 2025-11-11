@@ -1,3 +1,23 @@
+**How to watch Duke vs. Army: Time, TV, streaming**\
+`Find out how to watch the Duke Blue Devils play the Army Black Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6798112/2025/11/11/duke-vs-army-stream-how-to-watch-nov-11/
+
+**How to watch Wake Forest vs. Michigan: Time, TV, streaming**\
+`Find out how to watch the Wake Forest Demon Deacons play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6798107/2025/11/11/wake-forest-vs-michigan-stream-how-to-watch-nov-11/
+
+**How to watch Florida State vs. Florida: Time, TV, streaming**\
+`Find out how to watch the Florida State Seminoles play the Florida Gators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6798104/2025/11/11/florida-state-vs-florida-stream-how-to-watch-nov-11/
+
+**How to watch Maine vs. NC State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Maine Black Bears play the NC State Lady Wolfpack, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6798102/2025/11/11/maine-vs-nc-state-stream-how-to-watch-nov-11/
+
+**How to watch Commanders vs. Dolphins: Time, TV, streaming**\
+`Find out how to watch the Washington Commanders play the Miami Dolphins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6798099/2025/11/11/commanders-vs-dolphins-stream-how-to-watch-nov-16/
+
 **How to watch Clemson vs. South Carolina women's basketball: Time, TV, streaming**\
 `Find out how to watch the Clemson Tigers play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6798092/2025/11/11/clemson-vs-south-carolina-stream-how-to-watch-nov-11/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6797979/2025/11/11/red-light-early-nhl-takes/
 **Airline Problems Will Linger Even if Government Shutdown Ends**\
 `There is hope the Thanksgiving holiday will be spared, but carriers will need some time to deal with the disruptions that the shutdown has caused for air travel.`\
 https://nytimes.com/2025/11/11/business/air-travel-government-shutdown-airlines.html
-
-**Galatasaray, Besiktas players among 1,024 footballers suspended by Turkish FA in betting probe**\
-`It comes after the TFF suspended 149 match officials last month following their alleged involvement in a betting scandal.`\
-https://nytimes.com/athletic/6797300/2025/11/11/turkey-betting-galatasaray-besiktas/
-
-**Mavericks will fire Nico Harrison 9 months after Luka Dončić trade: Sources**\
-`Harrison's tenure ends nine months after he traded Luka Dončić to the Los Angeles Lakers, a move that upended an NBA Finals contender.`\
-https://nytimes.com/athletic/6794592/2025/11/11/nico-harrison-fired-mavericks-nba/
-
-**Canada still watching Celebrini, Bedard as it cuts list of potential Olympians to 35-40**\
-`Doug Armstrong met with his management group Monday to whittle down the list of players they're scouting before the Dec. 31 roster deadline.`\
-https://nytimes.com/athletic/6797805/2025/11/11/canada-hockey-roster-celebrini-bedard/
-
-**To Help SNAP Recipients, Bookstores Set Up as Food Banks**\
-`During the government shutdown, booksellers are collecting food for Americans who receive federal aid to buy groceries.`\
-https://nytimes.com/2025/11/11/books/bookstores-food-banks-snap-recipients.html
-
-**NFL best bets Week 11: A counterintuitive play for Lions-Eagles**\
-`After a 4-0 week, Austin Mock has a few best bets ahead of NFL Week 11. Can we keep it going?`\
-https://nytimes.com/athletic/6797699/2025/11/11/nfl-best-bets-week-11-lions-eagles/
 
