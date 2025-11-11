@@ -1,6 +1,6 @@
 **West Ham's Soucek considered retiring during 'two years of horror' with insomnia**\
 `Soucek detailed his “unbearable” ordeal in a new autobiography, serialised by Czech publication iDNES.`\
-https://nytimes.com/athletic/6797382/2025/11/11/west-hams-tomas-soucek-considered-retiring-during-two-years-of-horror-with-insomnia/
+https://nytimes.com/athletic/6797382/2025/11/11/west-ham-news-tomas-soucek/
 
 **'Every point matters': Wizards rue their missed opportunities in loss to Pistons**\
 `Washington allowed a 7-point lead to slip away in the final minute of the fourth quarter. `\
