@@ -1,3 +1,15 @@
+**Andrew Wiggins' game-winning alley-oop continues Miami's exciting start**\
+`The win brings Miami to 7-4 to begin the season, marking its best 11-game start since beginning the 2019-20 season.`\
+https://nytimes.com/athletic/6796704/2025/11/11/andrew-wiggins-alley-oop-heat/
+
+**Cade Cunningham leads Pistons past Wizards after Cam Whitmore’s hard foul**\
+`Monday's overtime win was the latest example of Detroit "controlling chaos."`\
+https://nytimes.com/athletic/6796639/2025/11/11/cade-cunningham-triple-double-pistons-nba/
+
+**The Ashes, a ‘moral victory’ and a very familiar war of words**\
+`Most of the talk in the build up to the latest series has come from those who will not be involved on the pitch, but there will be bad blood`\
+https://nytimes.com/athletic/6794635/2025/11/11/ashes-moral-victory-england-australia/
+
 **Inside Newcastle Q&A: Can Wissa and Woltemade play together? Is Howe under pressure?**\
 `After another poor performance in the 3-1 defeat at Brentford, we answer your pressing questions about changes needed on and off the field`\
 https://nytimes.com/athletic/6793936/2025/11/11/inside-newcastle-wissa-woltemade-howe/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6794485/2025/11/11/real-madrid-ferland-mendy-analys
 **The making of Nico O'Reilly, as told by his mum and those who discovered him**\
 `The Manchester City defender could make his England debut this week. His mum knew from very early on that he was 'special' and would go far`\
 https://nytimes.com/athletic/6795660/2025/11/11/nico-oreilly-making-of-manchester-city/
-
-**James Horncastle's Serie A briefing: Strikers blanking, Roma rising, Napoli losing heart**\
-`Antonio Conte is bringing up old skeletons from the past as Roma mount a title challenge in Serie A, where strikers are struggling to score`\
-https://nytimes.com/athletic/6794143/2025/11/11/james-horncastle-serie-a-briefing/
-
-**Vote: Who are the top 10 men's soccer players of all time?**\
-`To coincide with the launch of our Soccer 100 book, we want to know who you think are the greatest footballers ever...`\
-https://nytimes.com/athletic/6644046/2025/11/11/vote-soccer-100-top-mens-players/
-
-**Bundesliga Briefing: Bayern Munich and the pressure of anything but perfection**\
-`Bayern Munich were held to a 2-2 draw with Union Berlin on Saturday - and the criticism says a lot about the club's status in Germany.`\
-https://nytimes.com/athletic/6794078/2025/11/11/bundesliga-briefing-bayern-munich-union-berlin/
 

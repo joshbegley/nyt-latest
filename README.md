@@ -2,7 +2,7 @@
 `The win brings Miami to 7-4 to begin the season, marking its best 11-game start since beginning the 2019-20 season.`\
 https://nytimes.com/athletic/6796704/2025/11/11/andrew-wiggins-alley-oop-heat/
 
-**Cade Cunningham leads Pistons past Wizards after Cam Whitmore’s hard foul**\
+**Cade Cunningham's career night carries Pistons past Wizards**\
 `Monday's overtime win was the latest example of Detroit "controlling chaos."`\
 https://nytimes.com/athletic/6796639/2025/11/11/cade-cunningham-triple-double-pistons-nba/
 
