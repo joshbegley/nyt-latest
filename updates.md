@@ -1,3 +1,7 @@
+**Iraqis Head to the Polls**\
+`Iraq’s parliamentary election is being closely watched by the Trump administration, which is pressing the government to curb the influence of neighboring Iran.`\
+https://nytimes.com/video/world/asia/100000010518013/iraqis-head-to-the-polls.html
+
 **The Athletic NBA 21st Century player reader poll: Who are your 25 best of this century?**\
 `We made our picks for the best NBA players of this quarter century. Now, we're giving you the opportunity to make your picks.`\
 https://nytimes.com/athletic/6795013/2025/11/11/reader-poll-nba-top-25-this-century/

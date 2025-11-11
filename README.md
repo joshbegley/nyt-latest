@@ -1,3 +1,7 @@
+**Chelsea supporting Sterling after burglary at family home**\
+`The incident took place at his home on Saturday while Sterling, 30, and his children were in the house.`\
+https://nytimes.com/athletic/6797556/2025/11/11/chelsea-raheem-sterling-burglary/
+
 **Iraqis Head to the Polls**\
 `Iraq’s parliamentary election is being closely watched by the Trump administration, which is pressing the government to curb the influence of neighboring Iran.`\
 https://nytimes.com/video/world/asia/100000010518013/iraqis-head-to-the-polls.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/11/business/dealbook/softbank-nvidia-divest.html
 **Taylor Fritz, the great men's tennis maximizer, runs into the Carlos Alcaraz wall again**\
 `Alcaraz escaped an epic game in the second set as Fritz played lights-out at the ATP Tour Finals. In Turin, as elsewhere, it was not enough.`\
 https://nytimes.com/athletic/6798010/2025/11/11/atp-tour-finals-fritz-alcaraz-result-analysis/
-
-**Teenage fan in Luka Lakers jersey gets apology from Mavs owner who 'feels horrible for the trade'**\
-`Mavericks governor Patrick Dumont "wants to make it up to us," the fan said shortly before the team fired Nico Harrison.`\
-https://nytimes.com/athletic/6797762/2025/11/11/nico-harrison-firing-fan-interaction-patrick-dumont/
 
