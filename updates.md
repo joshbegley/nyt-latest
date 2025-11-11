@@ -1,3 +1,15 @@
+**Braves' Drake Baldwin wins NL Rookie of the Year, edging out Cubs' Cade Horton**\
+`Baldwin, 24, is the sixth Braves player to win the National League's Rookie of the Year since 1990.`\
+https://nytimes.com/athletic/6795952/2025/11/10/atlanta-braves-drake-baldwin-nl-rookie-of-the-year-win/
+
+**Palantir C.E.O. Alex Karp Finds a Safe Space With Trump**\
+`A tech billionaire professes to hate identity politics, but they seem in some ways to consume him.`\
+https://nytimes.com/2025/11/10/opinion/alex-karp-palantir-trump.html
+
+**What Were Democrats Thinking?**\
+`Democrats weren’t winning the shutdown. But they weren’t losing it, either.`\
+https://nytimes.com/video/opinion/100000010515510/what-were-democrats-thinking.html
+
 **Pete Maki returns as Twins pitching coach, but others remain in limbo: Sources**\
 `The Twins want manager Derek Shelton to have real say in naming his coaching staff, hence the overhaul.`\
 https://nytimes.com/athletic/6796166/2025/11/10/twins-pitching-coach-pete-maki-return/
