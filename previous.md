@@ -2,7 +2,7 @@
 `Lenny Wilkens, one of the greatest players and coaches in NBA history, leaves behind a legacy current coaches can only revere.`\
 https://nytimes.com/athletic/6796505/2025/11/10/lenny-wilkens-passing-nba-coaches-mourn/
 
-**Cubs' Cade Horton earns full year of MLB service time after second-place RoY finish**\
+**Cubs' Cade Horton earns full year of MLB service time after second-place ROY finish**\
 `Horton didn't debut until May 10, but he seemed to get better with every start and dominated in the second half for the Cubs.`\
 https://nytimes.com/athletic/6795689/2025/11/10/cubs-cade-horton-rookie-of-the-year-nl/
 
