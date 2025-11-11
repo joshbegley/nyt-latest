@@ -1,3 +1,7 @@
+**Liverpool's Chiesa declined Italy call-up - Gennaro Gattuso**\
+`The 28-year-old has not featured for Italy since his 2024 summer transfer to Liverpool from Juventus.`\
+https://nytimes.com/athletic/6797090/2025/11/11/chiesa-liverpool-italy-squad/
+
 **Police Investigate Deadly New Delhi Blast as Possible Terrorist Attack**\
 `India’s prime minister, Narendra Modi, said the “conspirators” behind an explosion that killed at least eight people would be brought to justice.`\
 https://nytimes.com/2025/11/11/world/asia/india-delhi-explosion-terror.html

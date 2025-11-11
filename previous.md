@@ -1,3 +1,7 @@
+**Liverpool's Chiesa declined Italy call-up - Gennaro Gattuso**\
+`The 28-year-old has not featured for Italy since his 2024 summer transfer to Liverpool from Juventus.`\
+https://nytimes.com/athletic/6797090/2025/11/11/chiesa-liverpool-italy-squad/
+
 **‘Flesh’ by David Szalay Wins 2025 Booker Prize**\
 `David Szalay became the first British Hungarian to win the prestigious Booker Prize for his novel “Flesh.”`\
 https://nytimes.com/video/books/100000010517272/booker-prize-2025-david-szalay-flesh.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/11/nyregion/nypd-psych-exams.html
 **Inside Ruben Amorim's first year at Manchester United: Sharp words, hands-on coaching, and how players feel**\
 `Ruben Amorim has completed a tumultuous first year as Manchester United coach - this is the story of what happened and how he tackled it`\
 https://nytimes.com/athletic/6792855/2025/11/11/ruben-amorim-one-year-coach/
-
-**How to watch TCU vs. BYU: Time, TV, streaming**\
-`Find out how to watch the TCU Horned Frogs play the BYU Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6797040/2025/11/11/tcu-vs-byu-stream-how-to-watch-nov-15/
 
