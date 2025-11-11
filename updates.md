@@ -1,3 +1,11 @@
+**Jets coach Aaron Glenn refuses to talk about Garrett Wilson's injury: 'Ask Rich'**\
+`The Jets coach was combative with the media on Tuesday, seemingly in response to a report about his star receiver.`\
+https://nytimes.com/athletic/6798920/2025/11/11/aaron-glenn-garrett-wilson-injury-media/
+
+**NHL to inspect Olympic hockey arena amid concerns over construction progress**\
+`The Olympics are just 90 days away, and while the NHL is getting weekly updates on arena construction, it wants to see it firsthand.`\
+https://nytimes.com/athletic/6799023/2025/11/11/nhl-milan-olympic-hockey-arena-inspection/
+
 **Redrafting the top 20 fantasy football picks of 2025**\
 `Redrafting the 2025 top 20 for fantasy football, given everything we know today`\
 https://nytimes.com/athletic/6798936/2025/11/11/redrafting-fantasy-football-2025-nfl/
