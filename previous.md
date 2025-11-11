@@ -1,3 +1,7 @@
+**Mexico president pledges to give first 2026 World Cup ticket to young woman**\
+`Claudia Sheinbaum will forego her premium seat for the opening match and give it to a young woman who could otherwise not afford to attend.`\
+https://nytimes.com/athletic/6797123/2025/11/11/world-cup-first-game-tickets-mexico/
+
 **Evaluating the Knicks: What I'm seeing, the likes and dislikes, so far**\
 `Beat writer James L. Edwards III analyzes what he likes and doesn't like about the Knicks so far.`\
 https://nytimes.com/athletic/6794332/2025/11/11/knicks-evaluation-likes-dislikes-10-games/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6797186/2025/11/11/prairie-view-a-m-vs-oklahoma-sta
 **Chuck Schumer Is a Convenient Punching Bag. There Was No Happy Outcome for the Shutdown.**\
 `The shutdown still may be a net gain for Democrats.`\
 https://nytimes.com/2025/11/11/opinion/shutdown-democrats-schumer-midterms.html
-
-**Young Voters Are the Holy Grail. Zohran Mamdani Just Showed Democrats How to Win Them.**\
-`Key elements of the mayor-elect’s campaign have enormous potential for a party that was badly beaten in 2024.`\
-https://nytimes.com/2025/11/11/opinion/mamdani-election-strategy-democrats.html
 

@@ -1,3 +1,7 @@
+**Mexico president pledges to give first 2026 World Cup ticket to young woman**\
+`Claudia Sheinbaum will forego her premium seat for the opening match and give it to a young woman who could otherwise not afford to attend.`\
+https://nytimes.com/athletic/6797123/2025/11/11/world-cup-first-game-tickets-mexico/
+
 **Evaluating the Knicks: What I'm seeing, the likes and dislikes, so far**\
 `Beat writer James L. Edwards III analyzes what he likes and doesn't like about the Knicks so far.`\
 https://nytimes.com/athletic/6794332/2025/11/11/knicks-evaluation-likes-dislikes-10-games/
