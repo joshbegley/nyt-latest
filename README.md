@@ -1,3 +1,7 @@
+**How to watch Clemson vs. South Carolina women's basketball: Time, TV, streaming**\
+`Find out how to watch the Clemson Tigers play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6798092/2025/11/11/clemson-vs-south-carolina-stream-how-to-watch-nov-11/
+
 **How the Heavy-Metal Fall of a Dictator Shapes Trump’s Venezuela Policy**\
 `Seizing Panama’s leader was relatively easy. But the similarities between Panama and Venezuela are dangerously misleading, some analysts warn.`\
 https://nytimes.com/2025/11/11/us/politics/panama-noriega-maduro.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/11/books/bookstores-food-banks-snap-recipients.html
 **NFL best bets Week 11: A counterintuitive play for Lions-Eagles**\
 `After a 4-0 week, Austin Mock has a few best bets ahead of NFL Week 11. Can we keep it going?`\
 https://nytimes.com/athletic/6797699/2025/11/11/nfl-best-bets-week-11-lions-eagles/
-
-**Burnley's Mejbri hit with FA misconduct charge for allegedly spitting at Leeds fans**\
-`Mejbri has until November 28 to provide a response to the charge.`\
-https://nytimes.com/athletic/6736139/2025/11/11/hannibal-mejbri-spitting-charge-fa-leeds-burnley/
 
