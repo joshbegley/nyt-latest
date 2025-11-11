@@ -1,3 +1,7 @@
+**U.S. Bishops Elect New Leader as Concerns Mount Over Treatment of Migrants**\
+`“We face a growing worldview that is so often at odds with the Gospel mandate to love thy neighbor,” the group said in a letter to Pope Leo.`\
+https://nytimes.com/2025/11/11/us/bishops-coakley-immigration.html
+
 **When Food Cuts Loomed, This Tribe Turned to Bison**\
 `In one of its largest harvests ever, the Blackfeet tribe turned to its herd to help feed its members, who rely heavily on federal food assistance.`\
 https://nytimes.com/card/2025/11/11/us/montana-blackfeet-nation-bison-snap
