@@ -1,3 +1,7 @@
+**Rangers break through for six goals, first home win: 'Definitely a sigh of relief'**\
+`New York entered the game 0-6-1 in Manhattan, the franchise’s longest-ever home winless streak to start a season.`\
+https://nytimes.com/athletic/6796689/2025/11/10/rangers-first-home-win-lafreniere-trocheck-predators/
+
 **New York Giants Fire Coach Brian Daboll**\
 `The New York Giants fired Brian Daboll, their head coach, on Monday. Daboll was the N.F.L.’s coach of the year in 2022. Then came a stunning fall.`\
 https://nytimes.com/video/the-athletic/100000010516877/new-york-giants-fire-coach-brian-daboll.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6796501/2025/11/10/acc-notre-dame-cfp-rankings-cont
 **NBA coaches reflect on the late Lenny Wilkens: ‘What an amazing man.'**\
 `Lenny Wilkens, one of the greatest players and coaches in NBA history, leaves behind a legacy current coaches can only revere.`\
 https://nytimes.com/athletic/6796505/2025/11/10/lenny-wilkens-passing-nba-coaches-mourn/
-
-**Cubs' Cade Horton earns full year of MLB service time after second-place ROY finish**\
-`Horton didn't debut until May 10, but he seemed to get better with every start and dominated in the second half for the Cubs.`\
-https://nytimes.com/athletic/6795689/2025/11/10/cubs-cade-horton-rookie-of-the-year-nl/
 
