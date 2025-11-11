@@ -1,3 +1,7 @@
+**Quote of the Day: The Volunteer Buglers Giving 24-Note Salutes**\
+`Quotation of the Day for Tuesday, November 11, 2025.`\
+https://nytimes.com/2025/11/10/pageoneplus/quote-of-the-day-the-volunteer-buglers-giving-24-note-salutes.html
+
 **India Is Investigating a Deadly Car Explosion. Here’s What to Know.**\
 `The car exploded near a metro station in a historic part of New Delhi on Monday night. Officials are investigating and security is tight around the region.`\
 https://nytimes.com/2025/11/10/world/asia/new-delhi-red-fort-explosion-explainer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/10/crosswords/daily-puzzle-2025-11-11.html
 **How Every Senator Voted on Passing the Bill to End the Shutdown**\
 `A bipartisan group of senators agreed on a deal to reopen the government.`\
 https://nytimes.com/interactive/2025/11/10/us/senate-shutdown-funding-vote.html
-
-**ACC takes a stand, vouching for Miami over Notre Dame in CFP rankings**\
-`In a rare move, conference appears to publicly call out the Irish, a program it has long sought as a full-time member.`\
-https://nytimes.com/athletic/6796501/2025/11/10/acc-notre-dame-cfp-rankings-controversy/
 
