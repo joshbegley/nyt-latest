@@ -1,3 +1,15 @@
+**Trump Asks Supreme Court to Overturn Verdict in E. Jean Carroll Case**\
+`The president said the assertions behind a judgment that he sexually abused and defamed the writer were “implausible” and “unsubstantiated.”`\
+https://nytimes.com/2025/11/10/us/politics/trump-supreme-court-e-jean-carroll.html
+
+**Trump Pardons the Husband of a Republican Congressional Ally**\
+`Robert Harshbarger Jr. pleaded guilty in 2013 to health care fraud and distributing a misbranded drug. His wife, Diana Harshbarger, is a member of Congress.`\
+https://nytimes.com/2025/11/10/us/politics/trump-pardon-republican-harshbarger.html
+
+**Pete Maki returns as Twins pitching coach, but others remain in limbo: Sources**\
+`The Twins want manager Derek Shelton to have a say in naming his coaching staff; hence, the overhaul.`\
+https://nytimes.com/athletic/6796166/2025/11/10/twins-pitching-coach-pete-maki-return/
+
 **Padres, GM A.J. Preller still discussing contract extension; agreement remains expected**\
 `"I'm looking forward to being here for a long time, and I'll continue having those conversations and see where it goes," Preller said.`\
 https://nytimes.com/athletic/6796115/2025/11/10/padres-gm-a-j-preller-contract-extension-talks/

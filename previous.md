@@ -1,3 +1,11 @@
+**Trump Asks Supreme Court to Overturn Verdict in E. Jean Carroll Case**\
+`The president said the assertions behind a judgment that he sexually abused and defamed the writer were “implausible” and “unsubstantiated.”`\
+https://nytimes.com/2025/11/10/us/politics/trump-supreme-court-e-jean-carroll.html
+
+**Trump Pardons the Husband of a Republican Congressional Ally**\
+`Robert Harshbarger Jr. pleaded guilty in 2013 to health care fraud and distributing a misbranded drug. His wife, Diana Harshbarger, is a member of Congress.`\
+https://nytimes.com/2025/11/10/us/politics/trump-pardon-republican-harshbarger.html
+
 **Padres, GM A.J. Preller still discussing contract extension; agreement remains expected**\
 `"I'm looking forward to being here for a long time, and I'll continue having those conversations and see where it goes," Preller said.`\
 https://nytimes.com/athletic/6796115/2025/11/10/padres-gm-a-j-preller-contract-extension-talks/
@@ -11,7 +19,7 @@ https://nytimes.com/athletic/6795952/2025/11/10/atlanta-braves-drake-baldwin-nl-
 https://nytimes.com/2025/11/10/opinion/alex-karp-palantir-trump.html
 
 **Pete Maki returns as Twins pitching coach, but others remain in limbo: Sources**\
-`The Twins want manager Derek Shelton to have real say in naming his coaching staff, hence the overhaul.`\
+`The Twins want manager Derek Shelton to have a say in naming his coaching staff; hence, the overhaul.`\
 https://nytimes.com/athletic/6796166/2025/11/10/twins-pitching-coach-pete-maki-return/
 
 **What Were Democrats Thinking?**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6796296/2025/11/10/florida-vs-ole-miss-stream-how-t
 **How to watch New Mexico State vs. Tennessee: Time, TV, streaming**\
 `Find out how to watch the New Mexico State Aggies play the Tennessee Volunteers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6796294/2025/11/10/new-mexico-state-vs-tennessee-stream-how-to-watch-nov-15/
-
-**How to watch Utah vs. Baylor: Time, TV, streaming**\
-`Find out how to watch the Utah Utes play the Baylor Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6796283/2025/11/10/utah-vs-baylor-stream-how-to-watch-nov-15/
-
-**How to watch Purdue vs. Washington: Time, TV, streaming**\
-`Find out how to watch the Purdue Boilermakers play the Washington Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6796265/2025/11/10/purdue-vs-washington-stream-how-to-watch-nov-15/
 
