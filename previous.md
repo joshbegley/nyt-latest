@@ -1,3 +1,19 @@
+**West Ham's Soucek considered retiring during 'two years of horror' with insomnia**\
+`Soucek detailed his “unbearable” ordeal in a new autobiography, serialised by Czech publication iDNES.`\
+https://nytimes.com/athletic/6797382/2025/11/11/west-ham-news-tomas-soucek/
+
+**'Every point matters': Wizards rue their missed opportunities in loss to Pistons**\
+`Washington allowed a 7-point lead to slip away in the final minute of the fourth quarter. `\
+https://nytimes.com/athletic/6796891/2025/11/11/wizards-loss-pistons-overtime-kyshawn-george/
+
+**‘Squid Game’ Actor’s Sexual Misconduct Conviction Is Overturned**\
+`Oh Young-soo played a contestant in the first season of the Netflix drama. Prosecutors have a week to appeal to the country’s Supreme Court.`\
+https://nytimes.com/2025/11/11/arts/television/squid-game-actor-indecent-assault.html
+
+**NBA weekly watch guide: A third Boston-Philly tangle, Lakers at Thunder, Friday Cup games**\
+`Here's (at least) one reason to check out each of the league's national TV offerings this week.`\
+https://nytimes.com/athletic/6796588/2025/11/11/celtics-sixers-lakers-thunder-nba-cup-how-to-watch/
+
 **The Road to Reopening**\
 `The Senate passed legislation to end the government shutdown. We explain what’s happening.`\
 https://nytimes.com/2025/11/11/briefing/the-road-to-reopening.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6795442/2025/11/11/college-football-coaching-carous
 **Which NBA Draft prospects impressed in college hoops' first week? Start with Caleb Wilson**\
 `This freshmen class looks deep and talented. Players like Neoklis Avdalas and Cameron Carr are building draft profiles. `\
 https://nytimes.com/athletic/6791170/2025/11/11/nba-draft-2026-prospects-caleb-wilson-koa-peat/
-
-**Location has less impact on fandom with availability of streaming**\
-`Sports fandom is changing, and teams are adapting to their ever-growing fanbases.`\
-https://nytimes.com/athletic/6784532/2025/11/11/global-sports-fandoms-streaming-younger-generations/
-
-**Is Auburn a national title caliber program, or doomed to the SEC's second tier?**\
-`Auburn has paid $51 million in buyouts to its last three coaches. Is it set up for success this time?`\
-https://nytimes.com/athletic/6795924/2025/11/11/auburn-coaching-search-hugh-freeze/
-
-**Lane Kiffin's son, gas station coin flips and more: The 10 best things in HS football**\
-`Knox Kiffin is a Class of 2028 quarterback who has said he has no desire to play for his dad.`\
-https://nytimes.com/athletic/6795194/2025/11/11/college-football-recruiting-thoughts-week-11/
-
-**Much-needed Connor McDavid magic saves Oilers from another embarrassing loss**\
-`Edmonton was facing another catastrophe Monday night at home against Columbus when McDavid decided to take over.`\
-https://nytimes.com/athletic/6796934/2025/11/11/connor-mcdavid-restless-fanbase-oilers-win/
 

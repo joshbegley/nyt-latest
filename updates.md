@@ -1,3 +1,19 @@
+**West Ham's Soucek considered retiring during 'two years of horror' with insomnia**\
+`Soucek detailed his “unbearable” ordeal in a new autobiography, serialised by Czech publication iDNES.`\
+https://nytimes.com/athletic/6797382/2025/11/11/west-ham-news-tomas-soucek/
+
+**'Every point matters': Wizards rue their missed opportunities in loss to Pistons**\
+`Washington allowed a 7-point lead to slip away in the final minute of the fourth quarter. `\
+https://nytimes.com/athletic/6796891/2025/11/11/wizards-loss-pistons-overtime-kyshawn-george/
+
+**‘Squid Game’ Actor’s Sexual Misconduct Conviction Is Overturned**\
+`Oh Young-soo played a contestant in the first season of the Netflix drama. Prosecutors have a week to appeal to the country’s Supreme Court.`\
+https://nytimes.com/2025/11/11/arts/television/squid-game-actor-indecent-assault.html
+
+**NBA weekly watch guide: A third Boston-Philly tangle, Lakers at Thunder, Friday Cup games**\
+`Here's (at least) one reason to check out each of the league's national TV offerings this week.`\
+https://nytimes.com/athletic/6796588/2025/11/11/celtics-sixers-lakers-thunder-nba-cup-how-to-watch/
+
 **The Road to Reopening**\
 `The Senate passed legislation to end the government shutdown. We explain what’s happening.`\
 https://nytimes.com/2025/11/11/briefing/the-road-to-reopening.html
