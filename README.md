@@ -1,3 +1,7 @@
+**Chalobah, Trafford named in England squad as Gordon, Pope withdraw**\
+`Chalobah earned his first call-up under Tuchel in May, before making his debut against Senegal.`\
+https://nytimes.com/athletic/6797333/2025/11/11/trevoh-chalobah-james-trafford-england/
+
 **MLB offseason notes: Which way for the Twins and Rangers?**\
 `Plus more details on Pete Fairbanks' market and Shane Bieber's surprising option decision. `\
 https://nytimes.com/athletic/6797413/2025/11/11/mlb-offseason-minnesota-twins-texas-rangers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/11/briefing/the-road-to-reopening.html
 **Manchester United fans: What do you make of Ruben Amorim's first year in charge?**\
 `Have your say on Ruben Amorim's first year in charge`\
 https://nytimes.com/athletic/6797343/2025/11/11/ruben-amorim-one-year-manchester-united/
-
-**Nick Emmanwori is shining for the Seahawks, and he might only be scratching the surface**\
-`"The game is slowing down real well for me," Emmanwori said, which could be a scary thought for opposing offenses.`\
-https://nytimes.com/athletic/6796035/2025/11/11/nick-emmanwori-seahawks-rookie-cardinals/
 

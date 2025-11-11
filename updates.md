@@ -1,3 +1,7 @@
+**MLB offseason notes: Which way for the Twins and Rangers?**\
+`Plus more details on Pete Fairbanks' market and Shane Bieber's surprising option decision. `\
+https://nytimes.com/athletic/6797413/2025/11/11/mlb-offseason-minnesota-twins-texas-rangers/
+
 **Alan Sheehan sacked as Swansea City head coach**\
 `Sheehan, 39, was named as Swansea boss on a permanent three-year deal in April following a successful period as caretaker from February.`\
 https://nytimes.com/athletic/6797444/2025/11/11/alan-sheehan-sacked-swansea-head-coach/
