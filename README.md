@@ -1,3 +1,7 @@
+**NFL best bets Week 11: A counterintuitive play for Lions-Eagles**\
+`After a 4-0 week, Austin Mock has a few best bets ahead of NFL Week 11. Can we keep it going?`\
+https://nytimes.com/athletic/6797699/2025/11/11/nfl-best-bets-week-11-lions-eagles/
+
 **Burnley's Mejbri hit with FA misconduct charge for allegedly spitting at Leeds fans**\
 `Mejbri has until November 28 to provide a response to the charge.`\
 https://nytimes.com/athletic/6736139/2025/11/11/hannibal-mejbri-spitting-charge-fa-leeds-burnley/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/11/opinion/teaching-us-history-trump.html
 **Notes From a Young Mother, to the Daughter She Left Behind**\
 `In her vivid epistolary novel “The White Hot,” the Pulitzer-winning playwright Quiara Alegría Hudes explores the long-tail legacy of maternal rage and regret.`\
 https://nytimes.com/2025/11/11/books/review/white-hot-quiara-alegria-hudes.html
-
-**Wrapped in Hermès and a Houndstooth Jacket**\
-`Channeling British style and that of ladies who lunch.`\
-https://nytimes.com/2025/11/11/style/street-style-look-double-breasted-jacket.html
 
