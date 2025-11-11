@@ -1,3 +1,15 @@
+**How did an expansion castoff become a top scorer? The specs and story behind his stick**\
+`Morgan Geekie has scored 11 goals already in 2025-26 after his 33-goal breakout in 2024-25. What's his secret?`\
+https://nytimes.com/athletic/6784202/2025/11/11/bruins-morgan-geekie-stick-specs/
+
+**How the Anaheim Ducks morphed into a high-scoring, fun-to-watch, surprise team**\
+`The Ducks, 30th in the NHL in scoring last season, are No. 1 this season.`\
+https://nytimes.com/athletic/6796328/2025/11/11/anaheim-ducks-quenneville-goals/
+
+**How do managers choose which jobs to take - and when to say 'no'?**\
+`Status, money, timing, emotion? There are a lot of factors that go into picking the right job`\
+https://nytimes.com/athletic/6774171/2025/11/11/how-managers-choose-jobs/
+
 **Leitch: Uh, I think I just caught myself rooting for Bill Belichick?**\
 `When North Carolina beat Stanford for its second win in a row, I had an unexpected response. Did I just cheer for Bill Belichick?`\
 https://nytimes.com/athletic/6795246/2025/11/11/bill-belichick-north-carolina-winnning-bowl/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6795821/2025/11/11/bears-caleb-williams-colston-lov
 **'Guys got too big-headed': What doomed the Panthers in their loss to Saints?**\
 `The Saints just provided the blueprint to slow the Panthers' run game. Carolina has to find a way to throw the ball downfield in response.`\
 https://nytimes.com/athletic/6795820/2025/11/11/panthers-loss-downfield-passing-saints/
-
-**Dan Campbell's big day: More Jameson Williams, balance, play-action and blocking**\
-`Pass protection — Jared Goff was not sacked — and run blocking were essential to the success of Detroit's offense against Washington.`\
-https://nytimes.com/athletic/6796518/2025/11/11/lions-dan-campbell-play-calling-jameson-williams/
-
-**Vikings continue chalking up QB J.J. McCarthy's struggles to growing pains**\
-`McCarthy set a career high with 248 passing yards against the Ravens on Sunday, but his mechanics and accuracy remain major issues.`\
-https://nytimes.com/athletic/6795958/2025/11/11/jj-mccarthy-vikings-growing-pains/
-
-**England point to 'volume of cricket' as justification for solitary Ashes warm-up fixture**\
-`Assistant coach Marcus Trescothick has pointed to a cluttered calendar which has limited the team to a single warm-up fixture`\
-https://nytimes.com/athletic/6797198/2025/11/11/england-ashes-warmup-trescothick/
 

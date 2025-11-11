@@ -1,3 +1,15 @@
+**How did an expansion castoff become a top scorer? The specs and story behind his stick**\
+`Morgan Geekie has scored 11 goals already in 2025-26 after his 33-goal breakout in 2024-25. What's his secret?`\
+https://nytimes.com/athletic/6784202/2025/11/11/bruins-morgan-geekie-stick-specs/
+
+**How the Anaheim Ducks morphed into a high-scoring, fun-to-watch, surprise team**\
+`The Ducks, 30th in the NHL in scoring last season, are No. 1 this season.`\
+https://nytimes.com/athletic/6796328/2025/11/11/anaheim-ducks-quenneville-goals/
+
+**How do managers choose which jobs to take - and when to say 'no'?**\
+`Status, money, timing, emotion? There are a lot of factors that go into picking the right job`\
+https://nytimes.com/athletic/6774171/2025/11/11/how-managers-choose-jobs/
+
 **Leitch: Uh, I think I just caught myself rooting for Bill Belichick?**\
 `When North Carolina beat Stanford for its second win in a row, I had an unexpected response. Did I just cheer for Bill Belichick?`\
 https://nytimes.com/athletic/6795246/2025/11/11/bill-belichick-north-carolina-winnning-bowl/

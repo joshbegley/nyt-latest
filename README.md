@@ -1,3 +1,15 @@
+**Police Chase Driver Across Southern California Until She Escapes Into Mexico**\
+`The woman stole a minivan, police said, beginning a dramatic pursuit that spanned four counties and reached speeds of 90 miles per hour.`\
+https://nytimes.com/2025/11/11/us/car-chase-police-mexico-la.html
+
+**A Daniel Jones blueprint? A Mac Jones argument? Week 10 film review**\
+`Also, taking a look at who could be a good play-caller option to be Jaxson Dart's new head coach with the New York Giants.`\
+https://nytimes.com/athletic/6793888/2025/11/11/daniel-jones-49ers-quarterback-controversy/
+
+**Jaelan Phillips stands out in win but is the Eagles defense sustainable?**\
+`Phialdelphia's defense has carried the team throughout the season, with the addition of Phillips making the formula even stronger.`\
+https://nytimes.com/athletic/6795914/2025/11/11/jaelan-phillips-eagles-defense/
+
 **How did an expansion castoff become a top scorer? The specs and story behind his stick**\
 `Morgan Geekie has scored 11 goals already in 2025-26 after his 33-goal breakout in 2024-25. What's his secret?`\
 https://nytimes.com/athletic/6784202/2025/11/11/bruins-morgan-geekie-stick-specs/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6795228/2025/11/11/kentucky-louisville-texas-tech-i
 **Explosion in Pakistan’s Capital Kills at Least 12**\
 `A military official accused the Pakistani Taliban of staging the attack, which took place near a courthouse in Islamabad.`\
 https://nytimes.com/2025/11/11/world/africa/pakistan-explosion-islamabad.html
-
-**Chiefs pushing to create a new varsity sport in Kansas and Missouri. An April vote looms**\
-`The Chiefs have started a movement to start local girls flag football teams. But will it pass a big April test?`\
-https://nytimes.com/athletic/6784901/2025/11/11/chiefs-girls-flag-football-movement/
-
-**How the Bears' high-end talent shined through in high-leverage moments vs. Giants**\
-`With a thin margin for error, three top-10 draft picks excelled on the same snap to spark a rousing Bears comeback win.`\
-https://nytimes.com/athletic/6795821/2025/11/11/bears-caleb-williams-colston-loveland-giants/
-
-**'Guys got too big-headed': What doomed the Panthers in their loss to Saints?**\
-`The Saints just provided the blueprint to slow the Panthers' run game. Carolina has to find a way to throw the ball downfield in response.`\
-https://nytimes.com/athletic/6795820/2025/11/11/panthers-loss-downfield-passing-saints/
 
