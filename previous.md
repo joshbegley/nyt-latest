@@ -1,6 +1,6 @@
 **Dismantled by DOGE, a Foreign Policy Center Finds New Life**\
 `The Kennan Institute, which researches Russia and the surrounding region, has re-emerged in a form that is smaller but more impervious to government control.`\
-https://nytimes.com/2025/11/10/us/politics/dismantled-by-doge-a-foreign-policy-center-finds-new-life.html
+https://nytimes.com/2025/11/10/us/politics/kennan-institute-doge-trump.html
 
 **Desmond Bane sent the Magic home with a win at the buzzer**\
 `Bane was in the midst of another tough shooting night before he secured an Orlando win at the buzzer.`\
