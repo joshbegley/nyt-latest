@@ -1,3 +1,7 @@
+**Spanish FA expresses 'surprise' as Yamal withdrawn from squad after groin procedure**\
+`The RFEF claimed Spain's medical team had not been given prior notice that the Barcelona forward would be undergoing the procedure.`\
+https://nytimes.com/athletic/6797154/2025/11/11/lamine-yamal-spain-barcelona-injury-groin/
+
 **How to watch Prairie View A&M vs. Oklahoma State women's basketball: Time, TV, streaming**\
 `Find out how to watch the Prairie View A&M Lady Panthers play the Oklahoma State Cowgirls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6797186/2025/11/11/prairie-view-a-m-vs-oklahoma-state-stream-how-to-watch-nov-11/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/11/business/economy/where-the-taste-of-home-comes-wi
 **A Choreographer Steps Out of a Giant Shadow (Her Aunt’s)**\
 `Ruth Childs, the niece of the renowned choreographer Lucinda Childs, got over being intimidated by her aunt’s achievements. Now, she debuts her own work in New York.`\
 https://nytimes.com/2025/11/11/arts/dance/ruth-childs-lucinda-childs-blast.html
-
-**In the East Village, a Vietnamese Newcomer With Street-Food Fireworks**\
-`Bánh Anh Em, in the East Village, sizzles with scrappy, ad-hoc cooking that shows off the full fervor of the cuisine.`\
-https://nytimes.com/2025/11/11/dining/restaurant-review-banh-anh-em.html
 
