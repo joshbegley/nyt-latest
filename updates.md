@@ -1,3 +1,7 @@
+**Giannis, Luka, Joker, SGA: These Fab Four are ruling the NBA this season**\
+`This quartet of stars has been awesome for most of the last half-decade ... and they may be having their best seasons ever.`\
+https://nytimes.com/athletic/6795852/2025/11/11/giannis-luka-jokic-sga-nba-cup-raptors/
+
 **Fantasy football Week 11 drops: Chasing away Sam Darnold, Chuba Hubbard and more**\
 `Gary Davenport identifies players who are struggling to validate their spot on fantasy rosters, including a fantasy standout of 2024.`\
 https://nytimes.com/athletic/6796694/2025/11/11/fantasy-football-week-11-drops-darnold-jcm-chuba/
