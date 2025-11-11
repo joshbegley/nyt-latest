@@ -1,3 +1,15 @@
+**Kyle Tucker's future: Odds say he's headed to one of these teams**\
+`Where will Kyle Tucker go? We spoke to oddsmakers in the betting industry to predict where they see the star outfielder landing.`\
+https://nytimes.com/athletic/6797923/2025/11/11/kyle-tucker-free-agency-team-odds-mlb/
+
+**Making Connections: ‘Fahrenheit 451’ and Today**\
+`How does the dystopian world of Ray Bradbury’s novel “Fahrenheit 451” compare with society today? Eighth graders use The New York Times to investigate.`\
+https://nytimes.com/2025/11/11/learning/making-connections-fahrenheit-451-and-today.html
+
+**India Investigates Car Blast in New Delhi as Terrorism**\
+`The National Investigation Agency, India’s lead agency for investigating terrorist attacks, has taken charge in the probe of a car explosion that killed at least eight people in a historic part of New Delhi.`\
+https://nytimes.com/video/world/asia/100000010518176/india-explosion-new-delhi.html
+
 **Chelsea supporting Sterling after burglary at family home**\
 `The incident took place at his home on Saturday while Sterling, 30, and his children were in the house.`\
 https://nytimes.com/athletic/6797556/2025/11/11/chelsea-raheem-sterling-burglary/
