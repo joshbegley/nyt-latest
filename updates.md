@@ -1,3 +1,11 @@
+**When Food Cuts Loomed, This Tribe Turned to Bison**\
+`In one of its largest harvests ever, the Blackfeet tribe turned to its herd to help feed its members, who rely heavily on federal food assistance.`\
+https://nytimes.com/card/2025/11/11/us/montana-blackfeet-nation-bison-snap
+
+**Nolan Williams, Who Stimulated the Brain to Treat Depression, Dies at 43**\
+`A neuroscientist, he employed a battery of high-tech tools in devising a fast-acting therapy that targets the area of the brain where depression originates.`\
+https://nytimes.com/2025/11/11/health/nolan-williams-dead.html
+
 **Source: Goldman Sachs to become majority stakeholder of Excel Sports Management**\
 `Excel's roster of clients includes Caitlin Clark, Tiger Woods, Cal Raleigh and Nikola Jokić.`\
 https://nytimes.com/athletic/6798500/2025/11/11/goldman-sachs-excel-sports-management-majority-stake-investment/

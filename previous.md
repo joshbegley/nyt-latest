@@ -1,3 +1,11 @@
+**When Food Cuts Loomed, This Tribe Turned to Bison**\
+`In one of its largest harvests ever, the Blackfeet tribe turned to its herd to help feed its members, who rely heavily on federal food assistance.`\
+https://nytimes.com/card/2025/11/11/us/montana-blackfeet-nation-bison-snap
+
+**Nolan Williams, Who Stimulated the Brain to Treat Depression, Dies at 43**\
+`A neuroscientist, he employed a battery of high-tech tools in devising a fast-acting therapy that targets the area of the brain where depression originates.`\
+https://nytimes.com/2025/11/11/health/nolan-williams-dead.html
+
 **Source: Goldman Sachs to become majority stakeholder of Excel Sports Management**\
 `Excel's roster of clients includes Caitlin Clark, Tiger Woods, Cal Raleigh and Nikola Jokić.`\
 https://nytimes.com/athletic/6798500/2025/11/11/goldman-sachs-excel-sports-management-majority-stake-investment/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6798478/2025/11/11/michael-ray-richardson-dies-70/
 **Aircraft Carrier Moves Into the Caribbean as U.S. Confronts Venezuela**\
 `The arrival of the carrier bolsters the already extensive deployment of American forces in the region. Britain will cease sharing some intelligence with the U.S. because of concerns over boat strikes.`\
 https://nytimes.com/2025/11/11/us/politics/aircraft-carrier-moves-into-the-caribbean-as-us-confronts-venezuela.html
-
-**NFL MVP odds: Two new favorites knock Mahomes and Allen off the top**\
-`It's not the Allen-Mahomes show anymore. Here's how the MVP odds stack up heading into Week 11.`\
-https://nytimes.com/athletic/6798495/2025/11/11/nfl-mvp-odds-stafford-maye-taylor/
-
-**How a potential MLB lockout next offseason could impact the Giants' current offseason**\
-`The Giants have excelled in free agency by signing starters to one-year deals. Free agents may be less inclined to take those this winter.`\
-https://nytimes.com/athletic/6796480/2025/11/11/sf-giants-offseason-pitching-targets-contract-length/
 
