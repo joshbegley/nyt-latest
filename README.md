@@ -1,3 +1,11 @@
+**A Trump Lawsuit Against the BBC Would Face Serious Hurdles**\
+`Legal experts say President Trump’s litigation track record offers both hope and warning to the British public broadcaster, which he has threatened with a $1 billion suit.`\
+https://nytimes.com/2025/11/11/world/europe/trump-bbc-lawsuit-hurdles.html
+
+**New York City Councilman Chi Ossé Hates a ‘Surprise Egg’**\
+`The native New Yorker and representative for Bedford-Stuyvesant and northern Crown Heights takes on the Where to Eat Questionnaire.`\
+https://nytimes.com/2025/11/11/dining/city-councilman-chi-osse-where-to-eat.html
+
 **Seeds of Nico Harrison's demise sowed even before he traded Luka Dončić**\
 `Even before making the move that will forever be a part of his reputation, Nico Harrison's tendencies foreshadowed his eventual downfall.`\
 https://nytimes.com/athletic/6798731/2025/11/11/nico-harrison-demise-donic-trade-mavericks/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6798882/2025/11/11/ducks-vs-avalanche-stream-how-to
 **How to watch Nuggets vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Denver Nuggets play the Sacramento Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6798879/2025/11/11/nuggets-vs-kings-stream-how-to-watch-nov-11/
-
-**How to watch Grizzlies vs. Knicks: Time, TV, streaming**\
-`Find out how to watch the Memphis Grizzlies play the New York Knicks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6798877/2025/11/11/grizzlies-vs-knicks-stream-how-to-watch-nov-11/
-
-**How to watch Pacers vs. Jazz: Time, TV, streaming**\
-`Find out how to watch the Indiana Pacers play the Utah Jazz, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6798875/2025/11/11/pacers-vs-jazz-stream-how-to-watch-nov-11/
 
