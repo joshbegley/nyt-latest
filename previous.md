@@ -1,40 +1,40 @@
-**Mexico president pledges to give first 2026 World Cup ticket to young woman**\
-`Claudia Sheinbaum will forego her premium seat for the opening match and give it to a young woman who could otherwise not afford to attend.`\
-https://nytimes.com/athletic/6797123/2025/11/11/world-cup-first-game-tickets-mexico/
+**'Guys got too big-headed': What doomed the Panthers in their loss to Saints?**\
+`The Saints just provided the blueprint to slow the Panthers' run game. Carolina has to find a way to throw the ball downfield in response.`\
+https://nytimes.com/athletic/6795820/2025/11/11/panthers-loss-downfield-passing-saints/
 
-**Evaluating the Knicks: What I'm seeing, the likes and dislikes, so far**\
-`Beat writer James L. Edwards III analyzes what he likes and doesn't like about the Knicks so far.`\
-https://nytimes.com/athletic/6794332/2025/11/11/knicks-evaluation-likes-dislikes-10-games/
+**Dan Campbell's big day: More Jameson Williams, balance, play-action and blocking**\
+`Pass protection — Jared Goff was not sacked — and run blocking were essential to the success of Detroit's offense against Washington.`\
+https://nytimes.com/athletic/6796518/2025/11/11/lions-dan-campbell-play-calling-jameson-williams/
 
-**Brandon Ingram's hot shooting and pesky defence: 10 stats defining Raptors through 10 games**\
-`Eric Koreen shares his analysis on the Raptors first 10 games of the NBA season. `\
-https://nytimes.com/athletic/6794993/2025/11/11/brandon-ingram-raptors-shooting-10-game-mark/
+**Vikings continue chalking up QB J.J. McCarthy's struggles to growing pains**\
+`McCarthy set a career high with 248 passing yards against the Ravens on Sunday, but his mechanics and accuracy remain major issues.`\
+https://nytimes.com/athletic/6795958/2025/11/11/jj-mccarthy-vikings-growing-pains/
 
-**NFL Week 11 Power Rankings: Breakout players, a Bills free fall and a monster week on tap**\
-`The NFL season has reached Week 11, and many of the teams at the top of our power rankings face a steep challenge this week.`\
-https://nytimes.com/athletic/6793937/2025/11/11/nfl-power-rankings-week-11-bills-breakout-players/
+**England point to 'volume of cricket' as justification for solitary Ashes warm-up fixture**\
+`Assistant coach Marcus Trescothick has pointed to a cluttered calendar which has limited the team to a solitary warm-up fixture`\
+https://nytimes.com/athletic/6797198/2025/11/11/england-ashes-warmup-trescothick/
 
-**NFL QB stock report, Week 11: Caleb Williams on the rise, Stafford the new No. 1**\
-`Williams has piloted fourth-quarter comebacks in back-to-back wins.`\
-https://nytimes.com/athletic/6794740/2025/11/11/qb-stock-report-rankings-caleb-williams-matthew-stafford/
+**Epic collapse: Blue Jackers fritter away late two-goal lead, lose to Oilers in OT**\
+`The Blue Jackets had a 4-3 lead on the power play with a little over two minutes to go.`\
+https://nytimes.com/athletic/6796491/2025/11/11/blue-jackets-collapse-oilers-overtime/
 
-**Why the Giants and Mike Tomlin would make for a perfect marriage**\
-`Tomlin, an experienced winner, would be a home run hire for a franchise that has been serving up disastrous seasons to its paying customers.`\
-https://nytimes.com/athletic/6796343/2025/11/11/giants-fire-brian-daboill-mike-tomlin/
+**Democrats Denounce Shutdown Vote, and Trump Issues Flurry of Pardons**\
+`Plus, a new gambling scandal in pro sports.`\
+https://nytimes.com/2025/11/11/podcasts/the-headlines/democrats-shutdown-vote-trump-pardons.html
 
-**The New York Times International Edition in Print for Wednesday, Nov. 12, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/11/11/todays-new-york-times-international-edition
+**OKC's Mark Daigneault unplugged: The art of coaching the ambitious defending champs**\
+`Thunder players took time to soak up their championship win this summer. Now, they're still winning. Could they be even better?`\
+https://nytimes.com/athletic/6795987/2025/11/11/mark-daigneault-okc-thunder-unplugged/
 
-**Spanish FA expresses 'surprise' as Yamal withdrawn from squad after groin procedure**\
-`The RFEF claimed Spain's medical team had not been given prior notice that the Barcelona forward would be undergoing the procedure.`\
-https://nytimes.com/athletic/6797154/2025/11/11/lamine-yamal-spain-barcelona-injury-groin/
+**Red Sox want a No. 2 starter, power bat, Trevor Story at shortstop: Notes from GM meetings**\
+`The Boston Red Sox have their offseason targets, critical among them finding a frontline pitcher.`\
+https://nytimes.com/athletic/6796525/2025/11/11/red-sox-trevor-story-shortstop-gm-meetings/
 
-**How to watch Prairie View A&M vs. Oklahoma State women's basketball: Time, TV, streaming**\
-`Find out how to watch the Prairie View A&M Lady Panthers play the Oklahoma State Cowgirls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6797186/2025/11/11/prairie-view-a-m-vs-oklahoma-state-stream-how-to-watch-nov-11/
+**Texas Tech's JT Toppin, college basketball's $4M man, plans to prove he's only getting started**\
+`After flirting with the NBA, the Big 12 player of the year returned to school with a new deal and more to achieve.`\
+https://nytimes.com/athletic/6795544/2025/11/11/texas-tech-basketball-jt-toppin/
 
-**Chuck Schumer Is a Convenient Punching Bag. There Was No Happy Outcome for the Shutdown.**\
-`The shutdown still may be a net gain for Democrats.`\
-https://nytimes.com/2025/11/11/opinion/shutdown-democrats-schumer-midterms.html
+**Why Packers' Matt LaFleur might be coaching for his job after loss to Eagles**\
+`The 5-3-1 Packers look just like they did a year ago and the year before that — a good team, not a great one.`\
+https://nytimes.com/athletic/6797003/2025/11/11/packers-matt-lafleur-job-eagles-mnf/
 
