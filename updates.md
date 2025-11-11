@@ -1,3 +1,7 @@
+**India Is Investigating a Deadly Car Explosion. Here’s What to Know.**\
+`The car exploded near a metro station in a historic part of New Delhi on Monday night. Officials are investigating and security is tight around the region.`\
+https://nytimes.com/2025/11/10/world/asia/new-delhi-red-fort-explosion-explainer.html
+
 **Rangers break through for six goals, first home win: 'Definitely a sigh of relief'**\
 `New York entered the game 0-6-1 in Manhattan, the franchise’s longest-ever home winless streak to start a season.`\
 https://nytimes.com/athletic/6796689/2025/11/10/rangers-first-home-win-lafreniere-trocheck-predators/

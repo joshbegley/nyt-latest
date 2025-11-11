@@ -1,3 +1,7 @@
+**India Is Investigating a Deadly Car Explosion. Here’s What to Know.**\
+`The car exploded near a metro station in a historic part of New Delhi on Monday night. Officials are investigating and security is tight around the region.`\
+https://nytimes.com/2025/11/10/world/asia/new-delhi-red-fort-explosion-explainer.html
+
 **Rangers break through for six goals, first home win: 'Definitely a sigh of relief'**\
 `New York entered the game 0-6-1 in Manhattan, the franchise’s longest-ever home winless streak to start a season.`\
 https://nytimes.com/athletic/6796689/2025/11/10/rangers-first-home-win-lafreniere-trocheck-predators/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/11/10/us/senate-shutdown-funding-vote.html
 **ACC takes a stand, vouching for Miami over Notre Dame in CFP rankings**\
 `In a rare move, conference appears to publicly call out the Irish, a program it has long sought as a full-time member.`\
 https://nytimes.com/athletic/6796501/2025/11/10/acc-notre-dame-cfp-rankings-controversy/
-
-**NBA coaches reflect on the late Lenny Wilkens: ‘What an amazing man.'**\
-`Lenny Wilkens, one of the greatest players and coaches in NBA history, leaves behind a legacy current coaches can only revere.`\
-https://nytimes.com/athletic/6796505/2025/11/10/lenny-wilkens-passing-nba-coaches-mourn/
 
