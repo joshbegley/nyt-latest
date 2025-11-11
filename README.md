@@ -1,3 +1,12 @@
+**Super Bowl odds: Here come the Rams!**\
+`Week 11 features several key matchup among Super Bowl contenders. How will the odds shift?`\
+https://nytimes.com/athletic/6798157/2025/11/11/super-bowl-odds-rams-chiefs-eagles-betting/
+
+**Submit your questions for Murat Ates' Winnipeg Jets mailbag**\
+`<p>We&#8217;re officially a month into the season. The Jets got off to a good start but just dropped all three games on the California leg of their six-game road trip. What&#8217;s on your mind? Drop you questions here and Murat will answer them.</p>
+`\
+https://nytimes.com/athletic/6798524/2025/11/11/submit-your-questions-for-murat-ates-winnipeg-jets-mailbag-5/
+
 **Palace deny FA charge over banner during Forest game**\
 `Palace were alleged to have failed to ensure its fans "didn’t behave in an improper, offensive, abusive, insulting and/or provocative way”.`\
 https://nytimes.com/athletic/6798132/2025/11/11/crystal-palace-deny-fa-charge-banner/
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/6798041/2025/11/11/nico-harrison-fallout-anthony-da
 **Thorns fandom, lucky charms and family values: Suite Level with the Bhathals**\
 `The Bhathals doubled down on their Portland investment in women's sports, which consists of both NWSL and WNBA teams.`\
 https://nytimes.com/athletic/6795488/2025/11/11/portland-thorn-bhathal-nwsl-owners-interview/
-
-**Trump Cuts and Orders Have Broad Impact on American Museums, Report Finds**\
-`A survey of museum directors reveals the impact of federal cutbacks: reduced arts programs for rural areas, students and people who are elderly or disabled.`\
-https://nytimes.com/2025/11/11/arts/design/trump-cuts-impact-museums-aam-survey.html
-
-**Helpful Hamburger Soup**\
-`Ground beef joins forces with frozen vegetables and kitchen staples (celery, potatoes and that half-can of tomato paste) to make an easy and economical dinner.`\
-https://nytimes.com/2025/11/11/dining/helpful-hamburger-soup.html
 
