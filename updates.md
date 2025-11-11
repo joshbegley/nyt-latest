@@ -1,3 +1,7 @@
+**Judge Rejects Utah’s Republican-Drawn Redistricting Map**\
+`A judge instead adopted one drawn by a coalition of centrists ahead of the 2026 midterms.`\
+https://nytimes.com/2025/11/11/us/utah-redistricting-gerrymander-congress.html
+
 **Teaching History in the Trump Era**\
 `Readers respond to an article about how the teaching of U.S. history is changing. Also: Democratic pragmatism; emergency care at risk.`\
 https://nytimes.com/2025/11/11/opinion/teaching-us-history-trump.html

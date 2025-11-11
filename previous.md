@@ -1,3 +1,7 @@
+**Judge Rejects Utah’s Republican-Drawn Redistricting Map**\
+`A judge instead adopted one drawn by a coalition of centrists ahead of the 2026 midterms.`\
+https://nytimes.com/2025/11/11/us/utah-redistricting-gerrymander-congress.html
+
 **Teaching History in the Trump Era**\
 `Readers respond to an article about how the teaching of U.S. history is changing. Also: Democratic pragmatism; emergency care at risk.`\
 https://nytimes.com/2025/11/11/opinion/teaching-us-history-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/11/business/dealbook/shutdown-flights-health-care.ht
 **College Football Playoff rankings update: How to watch Tuesday’s reveal**\
 `Week 11 shook up the College Football Playoff field. On Tuesday, we'll see the Playoff committee's reaction and revised rankings. `\
 https://nytimes.com/athletic/6795827/2025/11/11/college-football-playoff-rankings-week-12-espn-how-to-watch/
-
-**Bo Nix's internal clock 'gets quick' vs. pressure. Can he and Broncos fix it?**\
-`Nix's accuracy as an out-of-pocket passer has dropped substantially in Year 2.`\
-https://nytimes.com/athletic/6794916/2025/11/11/bo-nix-accuracy-internal-clock-broncos/
 
