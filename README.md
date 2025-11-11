@@ -1,3 +1,7 @@
+**Will Bad Bunny Pull a Kendrick in 2026?**\
+`Bad Bunny’s latest album, “Debí Tirar Más Fotos,” was recently nominated for six awards, including the top three categories, at the Grammys in February — the week before he headlines the Super Bowl halftime show.`\
+https://nytimes.com/video/podcasts/100000010518836/will-bad-bunny-pull-a-kendrick-in-2026.html
+
 **Hard Fork’s First Robot Guest**\
 `NEO, a new humanoid robot that can do housekeeping, has the internet buzzing.`\
 https://nytimes.com/video/podcasts/100000010518872/hard-forks-first-robot-guest.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6799001/2025/11/11/caitlin-clark-lpga-annika-golf-c
 **A Trump Lawsuit Against the BBC Would Face Serious Hurdles**\
 `Legal experts say President Trump’s litigation track record offers both hope and warning to the British public broadcaster, which he has threatened with a $1 billion suit.`\
 https://nytimes.com/2025/11/11/world/europe/trump-bbc-lawsuit-hurdles.html
-
-**New York City Councilman Chi Ossé Hates a ‘Surprise Egg’**\
-`The native New Yorker and representative for Bedford-Stuyvesant and northern Crown Heights takes on the Where to Eat Questionnaire.`\
-https://nytimes.com/2025/11/11/dining/city-councilman-chi-osse-where-to-eat.html
 
