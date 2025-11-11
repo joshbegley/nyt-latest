@@ -1,3 +1,7 @@
+**Why ex-reliever Craig Stammen is unlike other first-time managers for the Padres**\
+`Stammen expressed confidence in his organizational experience, as well as his ability to motivate a roster of friends and teammates.`\
+https://nytimes.com/athletic/6796006/2025/11/10/san-diego-padres-first-time-manager-craig-stammen/
+
 **Mobile Lounge Crashes at Dulles Airport, Causing Injuries and Damage**\
 `More than a dozen people were hurt and will be evaluated at a hospital. Air travel has been hampered in recent days by the government shutdown.`\
 https://nytimes.com/2025/11/10/us/dulles-airport-crash-mobile-lounge.html
