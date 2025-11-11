@@ -1,4 +1,8 @@
-**Trump Is Said to Have a Plan to Open California Waters to Drilling**\
+**Veterans Day TV: Divergent Stories From Forever Wars**\
+`“The Warfighters: Battle Stories” and “In Waves and Wars” explore veterans’ experiences from radically different points of view.`\
+https://nytimes.com/2025/11/11/arts/television/review-in-waves-and-war-the-warfighters.html
+
+**Trump Is Said to Propose Opening California Coast to Oil Drilling**\
 `The move would set up a clash with Gov. Gavin Newsom, a chief critic of the president and an opponent of oil exploration in the Pacific.`\
 https://nytimes.com/2025/11/11/climate/offshore-drilling-california-trump-newsom.html
 
@@ -29,8 +33,4 @@ https://nytimes.com/video/world/asia/100000010518176/india-explosion-new-delhi.h
 **Chelsea supporting Sterling after burglary at family home**\
 `The incident took place at his home on Saturday while Sterling, 30, and his children were in the house.`\
 https://nytimes.com/athletic/6797556/2025/11/11/chelsea-raheem-sterling-burglary/
-
-**Iraqis Head to the Polls**\
-`Iraq’s parliamentary election is being closely watched by the Trump administration, which is pressing the government to curb the influence of neighboring Iran.`\
-https://nytimes.com/video/world/asia/100000010518013/iraqis-head-to-the-polls.html
 
