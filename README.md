@@ -1,3 +1,7 @@
+**Head of N.Y.P.D. Oversight Board Resigns, Citing Pressure From Union**\
+`Dr. Mohammad Khalid, the interim chairman of the Civilian Complaint Review Board, said a “campaign of lies” about him by the head of the police union had forced him to quit.`\
+https://nytimes.com/2025/11/11/nyregion/nypd-ccrb-chairman-resign.html
+
 **Braves overhaul coaching staff with plenty of younger, accomplished newcomers**\
 `While conducting extensive background checks, Alex Anthopoulos said connections emerged among many of them, which was a bonus.`\
 https://nytimes.com/athletic/6798909/2025/11/11/braves-coaching-staff-younger-accomplished-newcomers/
@@ -23,7 +27,7 @@ https://nytimes.com/2025/11/11/world/middleeast/israel-extremist-attack-west-ban
 https://nytimes.com/athletic/6799267/2025/11/11/jalen-green-injury-update-suns-nba/
 
 **Justice Dept. Says It Will Investigate U.C. Berkeley Protest**\
-`More than 200 demonstrators rallied against a Turning Point USA event being held at the University of California, Berkeley, on Monday.`\
+`Demonstrators protested on Monday outside a Turning Point USA event at the University of California, Berkeley. University officials said a “single violent incident” took place. The Justice Department said it would investigate what had happened, citing security concerns.`\
 https://nytimes.com/video/us/politics/100000010518537/university-of-california-berkeley-protest.html
 
 **Steelers to sign CB Asante Samuel Jr. to practice squad: Sources**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6799255/2025/11/11/pittsburgh-steelers-asante-samue
 **James: England to learn lessons from 'super difficult' Club World Cup conditions**\
 `James experienced the American summer heat at the Club World Cup with Chelsea in 2025.`\
 https://nytimes.com/athletic/6797781/2025/11/11/reece-james-england-world-cup-conditions/
-
-**Bill Belichick 'getting ready for Wake Forest,' not thinking about Giants job**\
-`Before finding glory as Patriots head coach, Belichick was a defensive coordinator with the Giants under Bill Parcells.`\
-https://nytimes.com/athletic/6799173/2025/11/11/bill-belichick-giants-job/
 
