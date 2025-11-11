@@ -10,8 +10,8 @@ https://nytimes.com/2025/11/10/theater/richard-ii-review-michael-urie.html
 `Pearsall is on track to practice this week, but the 49ers will not open the 21-day practice window for Brandon Aiyuk.`\
 https://nytimes.com/athletic/6795686/2025/11/10/ricky-pearsall-injury-update-brock-purdy/
 
-**Why, for the Padres, ex-reliever Craig Stammen is unlike other first-time managers**\
-`Stammen expressed confidence in his organizational experience, as well as his ability to motivate a roster of with friends and teammates.`\
+**Why ex-reliever Craig Stammen is unlike other first-time managers for the Padres**\
+`Stammen expressed confidence in his organizational experience, as well as his ability to motivate a roster of friends and teammates.`\
 https://nytimes.com/athletic/6796006/2025/11/10/san-diego-padres-first-time-manager-craig-stammen/
 
 **Marriage Ruling Relieves Gay Americans and Leaves Conservatives Pledging New Challenges**\

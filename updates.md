@@ -1,3 +1,11 @@
+**Mobile Lounge Crashes at Dulles Airport, Causing Injuries and Damage**\
+`More than a dozen people were hurt and will be evaluated at a hospital. Air travel has been hampered in recent days by the government shutdown.`\
+https://nytimes.com/2025/11/10/us/dulles-airport-crash-mobile-lounge.html
+
+**‘Richard II’ Review: Michael Urie Is a Cynical, Comic Monarch**\
+`The inventive comic actor delivers a commanding performance in Shakespeare’s portrait of feckless leadership in a sleek Off Broadway adaptation.`\
+https://nytimes.com/2025/11/10/theater/richard-ii-review-michael-urie.html
+
 **49ers minutia minute: Ricky Pearsall ready to return; more ramp-up for Brock Purdy**\
 `Pearsall is on track to practice this week, but the 49ers will not open the 21-day practice window for Brandon Aiyuk.`\
 https://nytimes.com/athletic/6795686/2025/11/10/ricky-pearsall-injury-update-brock-purdy/

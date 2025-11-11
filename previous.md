@@ -1,3 +1,11 @@
+**Mobile Lounge Crashes at Dulles Airport, Causing Injuries and Damage**\
+`More than a dozen people were hurt and will be evaluated at a hospital. Air travel has been hampered in recent days by the government shutdown.`\
+https://nytimes.com/2025/11/10/us/dulles-airport-crash-mobile-lounge.html
+
+**‘Richard II’ Review: Michael Urie Is a Cynical, Comic Monarch**\
+`The inventive comic actor delivers a commanding performance in Shakespeare’s portrait of feckless leadership in a sleek Off Broadway adaptation.`\
+https://nytimes.com/2025/11/10/theater/richard-ii-review-michael-urie.html
+
 **49ers minutia minute: Ricky Pearsall ready to return; more ramp-up for Brock Purdy**\
 `Pearsall is on track to practice this week, but the 49ers will not open the 21-day practice window for Brandon Aiyuk.`\
 https://nytimes.com/athletic/6795686/2025/11/10/ricky-pearsall-injury-update-brock-purdy/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010515338/how-syrias-president-
 **Weekly Student News Quiz: Elections, Shutdown, Slang**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/11/10/learning/10StudentNewsQuiz.html
-
-**Luis Ortiz makes first appearance in federal court after charges linked to illegal sports betting**\
-`Ortiz, who prosecutors argued represents a serious flight risk, was released on $500,000 bond and will be arraigned on Wednesday.`\
-https://nytimes.com/athletic/6795843/2025/11/10/luis-ortiz-court-appearance-sports-betting/
-
-**Age Is the Issue That Democrats Can’t Shut Down**\
-`A restless Democratic base is seething at older leaders in Washington.`\
-https://nytimes.com/2025/11/10/us/politics/democrats-shutdown-age.html
 
