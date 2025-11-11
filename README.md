@@ -1,3 +1,31 @@
+**Only Mbappe, Lewandowski and Alvarez have scored more than Etta Eyong – Who is La Liga's breakout star?**\
+`Young striker signed by promoted Levante for just €3m in September now has big clubs including Barcelona and Real Madrid taking notice`\
+https://nytimes.com/athletic/6773455/2025/11/11/karl-etta-eyong-la-liga-transfer/
+
+**Eagles-Packers takeaways: Philadelphia hangs on in defensive struggle**\
+`Eagles receiver DeVonta Smith hauled in a 36-yard touchdown pass from Jalen Hurts on Monday night.`\
+https://nytimes.com/athletic/6796631/2025/11/11/eagles-packers-score-result-takeaways-mnf-nfl/
+
+**Liverpool are facing 11 big issues. Can they fix them?**\
+`Arne Slot is facing myriad problems at Anfield as the club's Premier League title defence disintegrates `\
+https://nytimes.com/athletic/6794752/2025/11/11/liverpool-premier-league-issues/
+
+**How the authorities took down the world's largest illegal sports streaming platform**\
+`As part of a new podcast documentary on illegal streaming, The Athletic finds out how Streameast was shut down`\
+https://nytimes.com/athletic/6742754/2025/11/11/streameast-illegal-streaming-raid/
+
+**629 days out, winner of finals, uncertain future: What's going on with Ferland Mendy at Real Madrid?**\
+`Madrid's French left-back has not played since April and is an enigmatic figure behind the scenes. What does his future hold?`\
+https://nytimes.com/athletic/6794485/2025/11/11/real-madrid-ferland-mendy-analysis/
+
+**The making of Nico O'Reilly, as told by his mum and those who discovered him**\
+`The Manchester City defender could make his England debut this week. His mum knew from very early on that he was 'special' and would go far`\
+https://nytimes.com/athletic/6795660/2025/11/11/nico-oreilly-making-of-manchester-city/
+
+**James Horncastle's Serie A briefing: Strikers blanking, Roma rising, Napoli losing heart**\
+`Antonio Conte is bringing up old skeletons from the past as Roma mount a title challenge in Serie A, where strikers are struggling to score`\
+https://nytimes.com/athletic/6794143/2025/11/11/james-horncastle-serie-a-briefing/
+
 **Vote: Who are the top 10 men's soccer players of all time?**\
 `To coincide with the launch of our Soccer 100 book, we want to know who you think are the greatest footballers ever...`\
 https://nytimes.com/athletic/6644046/2025/11/11/vote-soccer-100-top-mens-players/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6794078/2025/11/11/bundesliga-briefing-bayern-munic
 **Iraqis Are Voting for a New Parliament. Here’s What to Know.**\
 `Iraq is caught in the conflict between Washington and Tehran, with the Trump administration insisting that the next government disarm powerful Iran-backed militias.`\
 https://nytimes.com/2025/11/11/world/middleeast/iraq-election-what-to-know.html
-
-**How China Reached Into New York to Stop a Tiny Film Festival**\
-`A showcase for independent Chinese films was scrapped after the Chinese authorities pressured directors, moderators and even a volunteer to pull out.`\
-https://nytimes.com/2025/11/11/world/asia/china-film-festival-new-york.html
-
-**As Iraqis Vote for a Parliament, U.S. Presses to Rid Country of Iran’s Influence**\
-`After a U.S. occupation, years of sectarian violence and a jihadist insurgency, Iraq has become an improbable haven of calm in the Middle East.`\
-https://nytimes.com/2025/11/11/world/middleeast/iraq-parliamentary-election-vote.html
-
-**John Fetterman’s Memoir Is Unlike Any Politician’s Book You’ve Read**\
-`The senator from Pennsylvania chronicles his stroke, unlikely election victory and battle with depression. Just don’t expect him to try to win you over.`\
-https://nytimes.com/2025/11/11/books/review/unfettered-john-fetterman.html
-
-**Connections: Sports Edition Coach: Hints for Nov. 11, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6796680/2025/11/11/connections-sports-edition-hints-for-nov-11-2025/
-
-**Fantasy football waiver wire Week 11: Sean Tucker, Jayden Higgins, streamers**\
-`With the waiver wire continuing to thin out, Jake Ceily suggests targeting high-end backups and rostering a second quarterback. `\
-https://nytimes.com/athletic/6795793/2025/11/11/fantasy-football-waiver-wire-week-11-sean-tucker-jayden-higgins-streamers/
-
-**Corrections: Nov. 11, 2025**\
-`Corrections that appeared in print on Tuesday, Nov. 11, 2025.`\
-https://nytimes.com/2025/11/11/pageoneplus/corrections-nov-11-2025.html
-
-**Quote of the Day: The Volunteer Buglers Giving 24-Note Salutes**\
-`Quotation of the Day for Tuesday, November 11, 2025.`\
-https://nytimes.com/2025/11/10/pageoneplus/quote-of-the-day-the-volunteer-buglers-giving-24-note-salutes.html
 
