@@ -1,3 +1,7 @@
+**“Flesh” by David Szalay Wins 2025 Booker Prize**\
+`David Szalay became the first British Hungarian to win the prestigious Booker Prize for his novel “Flesh.”`\
+https://nytimes.com/video/books/100000010517272/booker-prize-2025-david-szalay-flesh.html
+
 **Police Investigate Deadly Delhi Blast as Possible Terrorist Attack**\
 `India’s prime minister, Narendra Modi, said the “conspirators” behind an explosion that killed at least eight people would be brought to justice.`\
 https://nytimes.com/2025/11/11/world/asia/india-delhi-explosion-terror.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6792855/2025/11/11/ruben-amorim-one-year-coach/
 **How to watch TCU vs. BYU: Time, TV, streaming**\
 `Find out how to watch the TCU Horned Frogs play the BYU Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6797040/2025/11/11/tcu-vs-byu-stream-how-to-watch-nov-15/
-
-**Late Night Is Disappointed in Democrats Over Shutdown Deal**\
-`“Our long national nightmare is different,” Stephen Colbert said after some Democratic senators voted with Republicans to end the government shutdown.`\
-https://nytimes.com/2025/11/11/arts/television/late-night-democrats-government-shutdown.html
 
