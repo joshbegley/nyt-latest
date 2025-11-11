@@ -1,3 +1,15 @@
+**Teenage fan in Luka Lakers jersey gets apology from Mavs owner who 'feels horrible for the trade'**\
+`Mavericks governor Patrick Dumont "wants to make it up to us," the fan said shortly before the team fired Nico Harrison.`\
+https://nytimes.com/athletic/6797762/2025/11/11/nico-harrison-firing-fan-interaction-patrick-dumont/
+
+**Why the F.D.A.’s Latest Fluoride Move Has Doctors Worried**\
+`The agency announced new recommendations on fluoride supplements, a crucial tool for protecting children’s dental health.`\
+https://nytimes.com/2025/11/11/well/fda-fluoride-supplements-kids-doctors.html
+
+**How a Shutdown Deal Was Reached**\
+`Our reporter Karoun Demirjian in Washington describes the Senate deal to end the shutdown and why it happened now.`\
+https://nytimes.com/video/us/politics/100000010516271/democrats-who-voted-to-end-shutdown.html
+
 **How to watch Capitals vs. Hurricanes: Time, TV, streaming**\
 `Find out how to watch the Washington Capitals play the Carolina Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6798147/2025/11/11/capitals-vs-hurricanes-stream-how-to-watch-nov-11/
