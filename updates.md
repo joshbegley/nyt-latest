@@ -1,3 +1,11 @@
+**Canada still watching Celebrini, Bedard as it cuts list of potential Olympians to 35-40**\
+`Doug Armstrong met with his management group Monday to whittle down the list of players they're scouting before the Dec. 31 roster deadline.`\
+https://nytimes.com/athletic/6797805/2025/11/11/canada-hockey-roster-celebrini-bedard/
+
+**To Help SNAP Recipients, Bookstores Set Up as Food Banks**\
+`During the government shutdown, booksellers are collecting food for Americans who receive federal aid to buy groceries.`\
+https://nytimes.com/2025/11/11/books/bookstores-food-banks-snap-recipients.html
+
 **NFL best bets Week 11: A counterintuitive play for Lions-Eagles**\
 `After a 4-0 week, Austin Mock has a few best bets ahead of NFL Week 11. Can we keep it going?`\
 https://nytimes.com/athletic/6797699/2025/11/11/nfl-best-bets-week-11-lions-eagles/
