@@ -1,3 +1,7 @@
+**Dodgers could be in on Kyle Tucker, also exploring their internal outfield options**\
+`The Dodgers are always looming for the biggest free agents, and this will likely be no exception.`\
+https://nytimes.com/athletic/6796376/2025/11/10/los-angeles-dodgers-kyle-tucker-pursuit/
+
 **How to watch Mississippi State vs. Missouri: Time, TV, streaming**\
 `Find out how to watch the Mississippi State Bulldogs play the Missouri Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6796418/2025/11/10/mississippi-state-vs-missouri-stream-how-to-watch-nov-15/
