@@ -1,3 +1,19 @@
+**Trump Is Said to Have a Plan to Open California Waters to Drilling**\
+`The move would set up a clash with Gov. Gavin Newsom, a chief critic of the president and an opponent of oil exploration in the Pacific.`\
+https://nytimes.com/2025/11/11/climate/offshore-drilling-california-trump-newsom.html
+
+**The Ferrari saga — its drivers respond. Plus, the under appreciated element of Norris’ F1 season**\
+`The Ferrari president ignited a media storm around its F1 team this week. Now Lewis Hamilton and Charles Leclerc have responded`\
+https://nytimes.com/athletic/6798392/2025/11/11/ferrari-f1-drivers-2025-brazilian-gp/
+
+**NHL players and lower-body blood clots: What to know amid recent diagnoses**\
+`Sabres' Jiri Kulich and Penguins' Filip Hallander have been diagnosed with blood clots in the past week. Are NHL players at higher risk?`\
+https://nytimes.com/athletic/6797963/2025/11/11/nhl-blood-clots-hockey-risk-dvt/
+
+**Roman-Era Treasures Stolen From Syria’s National Museum**\
+`The Damascus museum theft set off an official investigation in what may be one of Syria’s largest losses of antiquities in recent years.`\
+https://nytimes.com/2025/11/11/world/middleeast/syria-national-museum-roman-statues-stolen.html
+
 **Kyle Tucker's future: Odds say he's headed to one of these teams**\
 `Where will Kyle Tucker go? We spoke to oddsmakers in the betting industry to predict where they see the star outfielder landing.`\
 https://nytimes.com/athletic/6797923/2025/11/11/kyle-tucker-free-agency-team-odds-mlb/
