@@ -1,3 +1,7 @@
+**Athletics slugger Nick Kurtz wins AL Rookie of the Year unanimously**\
+`Kurtz delivered an elite rookie season despite only playing in 117 games. `\
+https://nytimes.com/athletic/6794601/2025/11/10/athletics-nick-kurtz-al-rookie-of-the-year/
+
 **These Dan Dan Noodles Are the Weeknight Meal of Your Dreams**\
 `This warming bowl of saucy noodles is as easy to pull together as any quick pasta dish.`\
 https://nytimes.com/2025/11/10/dining/weeknight-dan-dan-noodles-recipe.html

@@ -34,7 +34,3 @@ https://nytimes.com/athletic/6795979/2025/11/10/brandon-ingram-fined-toronto-rap
 `Dallas is planning a video tribute before the Cowboys play the Eagles at AT&T Stadium on Nov. 23.`\
 https://nytimes.com/athletic/6796018/2025/11/10/cowboys-marshawn-kneeland-honor-helmet-decal-video/
 
-**Pitt's Pat Narduzzi not focused on Notre Dame: 'They could put up 100 on us'**\
-`Coach would rather make sure his Panthers win ACC games, not showdown vs. Fighting Irish.`\
-https://nytimes.com/athletic/6795918/2025/11/10/pat-narduzzi-pitt-notre-dame-comments/
-
