@@ -1,3 +1,7 @@
+**Kansas Redistricting Was on the Fast Track. Then Some Republicans Said No.**\
+`The state’s top Republicans wanted to join President Trump’s push to redraw congressional maps. But plans for a special session fell apart when some lawmakers resisted.`\
+https://nytimes.com/2025/11/11/us/kansas-redistricting-sharice-davids-congress.html
+
 **A New Jewel Box for Vegetarian Kaiseki**\
 `Rei opens in Soho with a vegetable-centered set menu, family friendly Italian in Dumbo, Brooklyn, and more restaurant news.`\
 https://nytimes.com/2025/11/11/dining/restaurant-openings-nyc.html
