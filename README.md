@@ -1,3 +1,35 @@
+**Bundesliga Briefing: Bayern Munich and the pressure of anything but perfection**\
+`Bayern Munich were held to a 2-2 draw with Union Berlin on Saturday - and the criticism says a lot about the club's status in Germany.`\
+https://nytimes.com/athletic/6794078/2025/11/11/bundesliga-briefing-bayern-munich-union-berlin/
+
+**Iraqis Are Voting for a New Parliament. Here’s What to Know.**\
+`Iraq is caught in the conflict between Washington and Tehran, with the Trump administration insisting that the next government disarm powerful Iran-backed militias.`\
+https://nytimes.com/2025/11/11/world/middleeast/iraq-election-what-to-know.html
+
+**How China Reached Into New York to Stop a Tiny Film Festival**\
+`A showcase for independent Chinese films was scrapped after the Chinese authorities pressured directors, moderators and even a volunteer to pull out.`\
+https://nytimes.com/2025/11/11/world/asia/china-film-festival-new-york.html
+
+**As Iraqis Vote for a Parliament, U.S. Presses to Rid Country of Iran’s Influence**\
+`After a U.S. occupation, years of sectarian violence and a jihadist insurgency, Iraq has become an improbable haven of calm in the Middle East.`\
+https://nytimes.com/2025/11/11/world/middleeast/iraq-parliamentary-election-vote.html
+
+**John Fetterman’s Memoir Is Unlike Any Politician’s Book You’ve Read**\
+`The senator from Pennsylvania chronicles his stroke, unlikely election victory and battle with depression. Just don’t expect him to try to win you over.`\
+https://nytimes.com/2025/11/11/books/review/unfettered-john-fetterman.html
+
+**Connections: Sports Edition Coach: Hints for Nov. 11, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6796680/2025/11/11/connections-sports-edition-hints-for-nov-11-2025/
+
+**Fantasy football waiver wire Week 11: Sean Tucker, Jayden Higgins, streamers**\
+`With the waiver wire continuing to thin out, Jake Ceily suggests targeting high-end backups and rostering a second quarterback. `\
+https://nytimes.com/athletic/6795793/2025/11/11/fantasy-football-waiver-wire-week-11-sean-tucker-jayden-higgins-streamers/
+
+**Corrections: Nov. 11, 2025**\
+`Corrections that appeared in print on Tuesday, Nov. 11, 2025.`\
+https://nytimes.com/2025/11/11/pageoneplus/corrections-nov-11-2025.html
+
 **Quote of the Day: The Volunteer Buglers Giving 24-Note Salutes**\
 `Quotation of the Day for Tuesday, November 11, 2025.`\
 https://nytimes.com/2025/11/10/pageoneplus/quote-of-the-day-the-volunteer-buglers-giving-24-note-salutes.html
@@ -5,36 +37,4 @@ https://nytimes.com/2025/11/10/pageoneplus/quote-of-the-day-the-volunteer-bugler
 **India Is Investigating a Deadly Car Explosion. Here’s What to Know.**\
 `The car exploded near a metro station in a historic part of New Delhi on Monday night. Officials are investigating and security is tight around the region.`\
 https://nytimes.com/2025/11/10/world/asia/new-delhi-red-fort-explosion-explainer.html
-
-**Rangers break through for six goals, first home win: 'Definitely a sigh of relief'**\
-`New York entered the game 0-6-1 in Manhattan, the franchise’s longest-ever home winless streak to start a season.`\
-https://nytimes.com/athletic/6796689/2025/11/10/rangers-first-home-win-lafreniere-trocheck-predators/
-
-**New York Giants Fire Coach Brian Daboll**\
-`The New York Giants fired Brian Daboll, their head coach, on Monday. Daboll was the N.F.L.’s coach of the year in 2022. Then came a stunning fall.`\
-https://nytimes.com/video/the-athletic/100000010516877/new-york-giants-fire-coach-brian-daboll.html
-
-**Full Time: Don't call Gotham an 'underdog.'**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6795907/2025/11/10/gotham-current-upset-nwsl-full-time/
-
-**Dismantled by DOGE, a Foreign Policy Center Finds New Life**\
-`The Kennan Institute, which researches Russia and the surrounding region, has re-emerged in a form that is smaller but more impervious to government control.`\
-https://nytimes.com/2025/11/10/us/politics/kennan-institute-doge-trump.html
-
-**Desmond Bane sent the Magic home with a win at the buzzer**\
-`Bane was in the midst of another tough shooting night before he secured an Orlando win at the buzzer.`\
-https://nytimes.com/athletic/6796611/2025/11/10/desmond-bane-magic-game-winner-nba-trail-blazers/
-
-**Eagles' All-Pro tackle Lane Johnson questionable with ankle injury**\
-`Since the start of the 2016 season, the Eagles are 91-39-1 when Johnson starts — winning at a nearly 70 percent rate.`\
-https://nytimes.com/athletic/6796597/2025/11/10/eagles-lane-johnson-ankle-injury-tnf-packers/
-
-**Track Shape**\
-`Christina Iverson and Scott Hogan are especially articulate in this crossword puzzle.`\
-https://nytimes.com/2025/11/10/crosswords/daily-puzzle-2025-11-11.html
-
-**How Every Senator Voted on Passing the Bill to End the Shutdown**\
-`A bipartisan group of senators agreed on a deal to reopen the government.`\
-https://nytimes.com/interactive/2025/11/10/us/senate-shutdown-funding-vote.html
 
