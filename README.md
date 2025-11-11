@@ -1,3 +1,7 @@
+**Source: Goldman Sachs to become majority stakeholder of Excel Sports Management**\
+`Excel's roster of clients includes Caitlin Clark, Tiger Woods, Cal Raleigh and Nikola Jokić.`\
+https://nytimes.com/athletic/6798500/2025/11/11/goldman-sachs-excel-sports-management-majority-stake-investment/
+
 **Nico Harrison timeline: Key trades (including THAT one), moments and more**\
 `Harrison's four-plus years were a roller coaster, from a finals appearance and lottery win to perhaps the worst trade in league history.`\
 https://nytimes.com/athletic/6798346/2025/11/11/nico-harrison-fallout-mavericks-timeline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6798495/2025/11/11/nfl-mvp-odds-stafford-maye-taylo
 **How a potential MLB lockout next offseason could impact the Giants' current offseason**\
 `The Giants have excelled in free agency by signing starters to one-year deals. Free agents may be less inclined to take those this winter.`\
 https://nytimes.com/athletic/6796480/2025/11/11/sf-giants-offseason-pitching-targets-contract-length/
-
-**Super Bowl odds: Here come the Rams!**\
-`Week 11 features several key matchup among Super Bowl contenders. How will the odds shift?`\
-https://nytimes.com/athletic/6798157/2025/11/11/super-bowl-odds-rams-chiefs-eagles-betting/
 
