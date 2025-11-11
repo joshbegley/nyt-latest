@@ -1,3 +1,7 @@
+**World Cup fans with 'right to buy' tickets say FIFA forced them into 'unjust ultimatum'**\
+`For fans who spent big on a guarantee of purchasing World Cup tickets, they're missing all the key details as a decision deadline nears`\
+https://nytimes.com/athletic/6793679/2025/11/11/world-cup-tickets-fifa-collect-right-to-buy-ultimatum/
+
 **Tatsuya Nakadai, Japanese Star Known for ‘Ran’ and Other Classics, Dies at 92**\
 `He was a fixture of postwar Japanese cinema and starred in films by Akira Kurosawa and other directors of that era.`\
 https://nytimes.com/2025/11/11/movies/tatsuya-nakadai-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6796639/2025/11/11/cade-cunningham-triple-double-pi
 **The Ashes, a ‘moral victory’ and a very familiar war of words**\
 `Most of the talk in the build up to the latest series has come from those who will not be involved on the pitch, but there will be bad blood`\
 https://nytimes.com/athletic/6794635/2025/11/11/ashes-moral-victory-england-australia/
-
-**Inside Newcastle Q&A: Can Wissa and Woltemade play together? Is Howe under pressure?**\
-`After another poor performance in the 3-1 defeat at Brentford, we answer your pressing questions about changes needed on and off the field`\
-https://nytimes.com/athletic/6793936/2025/11/11/inside-newcastle-wissa-woltemade-howe/
 
