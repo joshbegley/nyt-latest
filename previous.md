@@ -1,3 +1,11 @@
+**Inside Ruben Amorim's first year at Manchester United: Sharp words, hands-on coaching, and how players feel**\
+`Ruben Amorim has completed a tumultuous first year as Manchester United coach - this is the story of what happened and how he tackled it`\
+https://nytimes.com/athletic/6792855/2025/11/11/ruben-amorim-one-year-coach/
+
+**How to watch TCU vs. BYU: Time, TV, streaming**\
+`Find out how to watch the TCU Horned Frogs play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6797040/2025/11/11/tcu-vs-byu-stream-how-to-watch-nov-15/
+
 **Late Night Is Disappointed in Democrats Over Shutdown Deal**\
 `“Our long national nightmare is different,” Stephen Colbert said after some Democratic senators voted with Republicans to end the government shutdown.`\
 https://nytimes.com/2025/11/11/arts/television/late-night-democrats-government-shutdown.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6796750/2025/11/11/luka-doncic-lakers-hornets-nba/
 **Cooper Flagg's best effort yet not enough to beat Giannis Antetokounmpo, Bucks**\
 `Antetokounmpo ended with 30 points and Flagg had 26 in a wild back-and-forth affair Monday night in Dallas.`\
 https://nytimes.com/athletic/6796804/2025/11/11/giannis-antetokounmpo-bucks-cooper-flagg-mavericks-nba/
-
-**Andrew Wiggins' game-winning alley-oop slam continues Miami's exciting start**\
-`The win brings Miami to 7-4 to begin the season, marking its best 11-game start since beginning the 2019-20 season.`\
-https://nytimes.com/athletic/6796704/2025/11/11/andrew-wiggins-alley-oop-heat/
-
-**Cade Cunningham's career-night carrys East-leading Pistons past Wizards**\
-`Cunningham scored 46 points for the Pistons in Monday's overtime win, the latest example of Detroit "controlling chaos."`\
-https://nytimes.com/athletic/6796639/2025/11/11/cade-cunningham-triple-double-pistons-nba/
 
