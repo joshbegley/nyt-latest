@@ -1,3 +1,27 @@
+**Evaluating the Knicks: What I'm seeing, the likes and dislikes, so far**\
+`Beat writer James L. Edwards III analyzes what he likes and doesn't like about the Knicks so far.`\
+https://nytimes.com/athletic/6794332/2025/11/11/knicks-evaluation-likes-dislikes-10-games/
+
+**Brandon Ingram's hot shooting and pesky defence: 10 stats defining Raptors through 10 games**\
+`Eric Koreen shares his analysis on the Raptors first 10 games of the NBA season. `\
+https://nytimes.com/athletic/6794993/2025/11/11/brandon-ingram-raptors-shooting-10-game-mark/
+
+**NFL Week 11 Power Rankings: Breakout players, a Bills free fall and a monster week on tap**\
+`The NFL season has reached Week 11, and many of the teams at the top of our power rankings face a steep challenge this week.`\
+https://nytimes.com/athletic/6793937/2025/11/11/nfl-power-rankings-week-11-bills-breakout-players/
+
+**NFL QB stock report, Week 11: Caleb Williams on the rise, Stafford the new No. 1**\
+`Williams has piloted fourth-quarter comebacks in back-to-back wins.`\
+https://nytimes.com/athletic/6794740/2025/11/11/qb-stock-report-rankings-caleb-williams-matthew-stafford/
+
+**Why the Giants and Mike Tomlin would make for a perfect marriage**\
+`Tomlin, an experienced winner, would be a home run hire for a franchise that has been serving up disastrous seasons to its paying customers.`\
+https://nytimes.com/athletic/6796343/2025/11/11/giants-fire-brian-daboill-mike-tomlin/
+
+**The New York Times International Edition in Print for Wednesday, Nov. 12, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/11/11/todays-new-york-times-international-edition
+
 **Spanish FA expresses 'surprise' as Yamal withdrawn from squad after groin procedure**\
 `The RFEF claimed Spain's medical team had not been given prior notice that the Barcelona forward would be undergoing the procedure.`\
 https://nytimes.com/athletic/6797154/2025/11/11/lamine-yamal-spain-barcelona-injury-groin/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/11/11/opinion/shutdown-democrats-schumer-midterms.html
 **Young Voters Are the Holy Grail. Zohran Mamdani Just Showed Democrats How to Win Them.**\
 `Key elements of the mayor-elect’s campaign have enormous potential for a party that was badly beaten in 2024.`\
 https://nytimes.com/2025/11/11/opinion/mamdani-election-strategy-democrats.html
-
-**French Chateau Moves In Next to English Tudors**\
-`Kevin and Leigh Misso, owners of a design and construction company, built a home in Alabama inspired by their travels.`\
-https://nytimes.com/2025/11/11/realestate/birmingham-alabama-designers-french-chateau.html
-
-**You Want to Throw Your Phone Into the Sea. Here’s a Better Way.**\
-`We’ve lost the capacity to feel the grief technology brings.`\
-https://nytimes.com/2025/11/11/opinion/iphone-therapy-meditation-mindfulness.html
-
-**A Shape-Shifting Hero for a ‘Third Culture’ Opera**\
-`Huang Ruo’s “The Monkey King” at San Francisco Opera transforms a classic Chinese tale into a reflection on identity, enlightenment and the creativity sparked when cultures entwine.`\
-https://nytimes.com/2025/11/11/arts/music/huang-ruo-the-monkey-king-san-francisco-opera.html
-
-**There Is No Cease-Fire in the West Bank**\
-`Violence in the occupied territories continues even if hostilities in Gaza have cooled.`\
-https://nytimes.com/2025/11/11/opinion/west-bank-cease-fire-gaza-israel.html
-
-**Where the Taste of Home Comes With a Tariff Charge**\
-`For immigrant communities from countries with especially high duties, food costs have risen sharply courtesy of President Trump.`\
-https://nytimes.com/2025/11/11/business/economy/where-the-taste-of-home-comes-with-a-tariff-charge.html
-
-**A Choreographer Steps Out of a Giant Shadow (Her Aunt’s)**\
-`Ruth Childs, the niece of the renowned choreographer Lucinda Childs, got over being intimidated by her aunt’s achievements. Now, she debuts her own work in New York.`\
-https://nytimes.com/2025/11/11/arts/dance/ruth-childs-lucinda-childs-blast.html
 
