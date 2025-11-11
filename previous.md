@@ -18,8 +18,8 @@ https://nytimes.com/athletic/6796804/2025/11/11/giannis-antetokounmpo-bucks-coop
 `The win brings Miami to 7-4 to begin the season, marking its best 11-game start since beginning the 2019-20 season.`\
 https://nytimes.com/athletic/6796704/2025/11/11/andrew-wiggins-alley-oop-heat/
 
-**Cade Cunningham's career night carries East-leading Pistons past Wizards**\
-`Monday's overtime win was the latest example of Detroit "controlling chaos."`\
+**Cade Cunningham's career-night carrys East-leading Pistons past Wizards**\
+`Cunningham scored 46 points for the Pistons in Monday's overtime win, the latest example of Detroit "controlling chaos."`\
 https://nytimes.com/athletic/6796639/2025/11/11/cade-cunningham-triple-double-pistons-nba/
 
 **The Ashes, a ‘moral victory’ and a very familiar war of words**\
