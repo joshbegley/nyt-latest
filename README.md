@@ -1,3 +1,15 @@
+**Redrafting the top 20 fantasy football picks of 2025**\
+`Redrafting the 2025 top 20 for fantasy football, given everything we know today`\
+https://nytimes.com/athletic/6798936/2025/11/11/redrafting-fantasy-football-2025-nfl/
+
+**NHL to inspect Olympic hockey arena next week amid continuting concerns over construction progress**\
+`The Olympics are just 90 days away, and while the NHL is getting weekly updates on arena construction, it wants to see it firsthand.`\
+https://nytimes.com/athletic/6799023/2025/11/11/nhl-milan-olympic-hockey-arena-inspection/
+
+**Trump Lauds ‘Very Big’ Shutdown Victory for G.O.P. in Veterans Day Speech**\
+`The address mixed the traditional solemnity of the day with political arguments, as the president celebrated his efforts to remake the armed services into a “Department of War.”`\
+https://nytimes.com/2025/11/11/us/politics/trump-veterans-day-speech-shutdown.html
+
 **Women in Power, and on the Right**\
 `Two G7 countries now have female leaders, and they have something in common.`\
 https://nytimes.com/2025/11/11/world/women-leaders-right-g7-pakistan-attack.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6798890/2025/11/11/brian-daboll-fired-giants-joe-sc
 **U.S. beats Czechia to win group at U-17 World Cup in Qatar**\
 `Americans won all three group matches at the event for first time since 1991 and will face Morocco in the Round of 32.`\
 https://nytimes.com/athletic/6798746/2025/11/11/usa-czechia-u17-world-cup/
-
-**Jaguars rookie Travis Hunter undergoes season-ending surgery**\
-`Hunter is expected to resume football activities within six months.`\
-https://nytimes.com/athletic/6798839/2025/11/11/travis-hunter-injury-update-season-ending-surgery-jaguars/
-
-**Howard Webb defends decision to disallow Liverpool's goal vs Man City**\
-`The head of the Premier League's refereeing body said the decision to rule Andy Robertson offside was "not unreasonable".`\
-https://nytimes.com/athletic/6794256/2025/11/11/van-dijk-liverpool-var-offside-manchester-city/
-
-**How to watch Raptors vs. Nets: Time, TV, streaming**\
-`Find out how to watch the Toronto Raptors play the Brooklyn Nets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6798885/2025/11/11/raptors-vs-nets-stream-how-to-watch-nov-11/
 
