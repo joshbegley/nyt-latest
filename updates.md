@@ -1,3 +1,11 @@
+**Senate Passes Bill to End Government Shutdown**\
+`The Senate passed legislation to reopen the government after eight senators in the Democratic caucus broke with the party and supplied critical backing. The measure now heads to the House.`\
+https://nytimes.com/video/us/100000010517543/senate-passes-bill-to-end-government-shutdown.html
+
+**Deadly Blast in Pakistan Outside Courthouse**\
+`At least 12 people died when an attacker detonated a bomb in Pakistan’s capital on Tuesday after he failed to enter a courthouse, according to the country’s interior minister.`\
+https://nytimes.com/video/world/asia/100000010517570/deadly-explosion-court-pakistan.html
+
 **Police Chase Driver Across Southern California Until She Escapes Into Mexico**\
 `The woman stole a minivan, police said, beginning a dramatic pursuit that spanned four counties and reached speeds of 90 miles per hour.`\
 https://nytimes.com/2025/11/11/us/car-chase-police-mexico-la.html
