@@ -1,5 +1,5 @@
 **Suns guard Jalen Green to miss at least a month with hamstring strain**\
-`Guard, who was acquired along with Dillon Brooks in the blockbuster Kevin Durant deal, has played in only two games this season.`\
+`Green, who was acquired along with Dillon Brooks in the blockbuster Kevin Durant deal, has played in only two games this season.`\
 https://nytimes.com/athletic/6799267/2025/11/11/jalen-green-injury-update-suns-nba/
 
 **Justice Dept. Says It Will Investigate U.C. Berkeley Protest**\
