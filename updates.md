@@ -1,3 +1,23 @@
+**How to watch Duke vs. Army: Time, TV, streaming**\
+`Find out how to watch the Duke Blue Devils play the Army Black Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6798112/2025/11/11/duke-vs-army-stream-how-to-watch-nov-11/
+
+**How to watch Wake Forest vs. Michigan: Time, TV, streaming**\
+`Find out how to watch the Wake Forest Demon Deacons play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6798107/2025/11/11/wake-forest-vs-michigan-stream-how-to-watch-nov-11/
+
+**How to watch Florida State vs. Florida: Time, TV, streaming**\
+`Find out how to watch the Florida State Seminoles play the Florida Gators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6798104/2025/11/11/florida-state-vs-florida-stream-how-to-watch-nov-11/
+
+**How to watch Maine vs. NC State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Maine Black Bears play the NC State Lady Wolfpack, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6798102/2025/11/11/maine-vs-nc-state-stream-how-to-watch-nov-11/
+
+**How to watch Commanders vs. Dolphins: Time, TV, streaming**\
+`Find out how to watch the Washington Commanders play the Miami Dolphins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6798099/2025/11/11/commanders-vs-dolphins-stream-how-to-watch-nov-16/
+
 **How to watch Clemson vs. South Carolina women's basketball: Time, TV, streaming**\
 `Find out how to watch the Clemson Tigers play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6798092/2025/11/11/clemson-vs-south-carolina-stream-how-to-watch-nov-11/
