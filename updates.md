@@ -1,3 +1,15 @@
+**Airline Problems Will Linger Even if Government Shutdown Ends**\
+`There is hope the Thanksgiving holiday will be spared, but carriers will need some time to deal with the disruptions that the shutdown has caused for air travel.`\
+https://nytimes.com/2025/11/11/business/air-travel-government-shutdown-airlines.html
+
+**Galatasaray, Besiktas players among 1,024 footballers suspended by Turkish FA in betting probe**\
+`It comes after the TFF suspended 149 match officials last month following their alleged involvement in a betting scandal.`\
+https://nytimes.com/athletic/6797300/2025/11/11/turkey-betting-galatasaray-besiktas/
+
+**Mavericks will fire Nico Harrison 9 months after Luka Dončić trade: Sources**\
+`Harrison's tenure ends nine months after he traded Luka Dončić to the Los Angeles Lakers, a move that upended an NBA Finals contender.`\
+https://nytimes.com/athletic/6794592/2025/11/11/nico-harrison-fired-mavericks-nba/
+
 **Canada still watching Celebrini, Bedard as it cuts list of potential Olympians to 35-40**\
 `Doug Armstrong met with his management group Monday to whittle down the list of players they're scouting before the Dec. 31 roster deadline.`\
 https://nytimes.com/athletic/6797805/2025/11/11/canada-hockey-roster-celebrini-bedard/
