@@ -1,3 +1,23 @@
+**Justice Dept. Says It Will Investigate U.C. Berkeley Protest**\
+`More than 200 demonstrators rallied against a Turning Point USA event being held at the University of California, Berkeley, on Monday.`\
+https://nytimes.com/video/us/politics/100000010518537/university-of-california-berkeley-protest.html
+
+**Steelers to sign CB Asante Samuel Jr. to practice squad: Sources**\
+`The fifth-year veteran joins a Steelers secondary in transition.`\
+https://nytimes.com/athletic/6799255/2025/11/11/pittsburgh-steelers-asante-samuel-jr/
+
+**James: England to learn lessons from 'super difficult' Club World Cup conditions**\
+`James experienced the American summer heat at the Club World Cup with Chelsea in 2025.`\
+https://nytimes.com/athletic/6797781/2025/11/11/reece-james-england-world-cup-conditions/
+
+**Bill Belichick 'getting ready for Wake Forest,' not thinking about Giants job**\
+`Before finding glory as Patriots head coach, Belichick was a defensive coordinator with the Giants under Bill Parcells.`\
+https://nytimes.com/athletic/6799173/2025/11/11/bill-belichick-giants-job/
+
+**Trump criticizes NFL’s new kickoff rule on 'The Pat McAfee Show'**\
+`President Donald Trump joined ESPN's "The Pat McAfee Show" to discuss the NFL's new dynamic kickoff rule and a host of other topics. `\
+https://nytimes.com/athletic/6798770/2025/11/11/trump-nfl-kickoff-pat-mcafee-show/
+
 **Redrafting the top 20 fantasy football picks of 2025, given everything we know**\
 `Redrafting the 2025 top 20 for fantasy football, given everything we know today`\
 https://nytimes.com/athletic/6798936/2025/11/11/redrafting-fantasy-football-2025-nfl/
