@@ -1,3 +1,11 @@
+**Will Bad Bunny Pull a Kendrick in 2026?**\
+`Bad Bunny’s latest album, “Debí Tirar Más Fotos,” was recently nominated for six awards, including the top three categories, at the Grammys in February — the week before he headlines the Super Bowl halftime show.`\
+https://nytimes.com/video/podcasts/100000010518836/will-bad-bunny-pull-a-kendrick-in-2026.html
+
+**Hard Fork’s First Robot Guest**\
+`NEO, a new humanoid robot that can do housekeeping, has the internet buzzing.`\
+https://nytimes.com/video/podcasts/100000010518872/hard-forks-first-robot-guest.html
+
 **Angels VP testifies MLB was involved in treating Eric Kay addiction; league denies knowledge**\
 `This is the first time MLB's involvement has been alleged at that stage, and it conflicts with other testimony from the trial. `\
 https://nytimes.com/athletic/6799030/2025/11/11/angels-mlb-eric-kay-tyler-skaggs-drug-treatment/
