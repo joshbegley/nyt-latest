@@ -1,3 +1,7 @@
+**Eagles' All-Pro tackle Lane Johnson questionable with ankle injury**\
+`Since the start of the 2016 season, the Eagles are 91-39-1 when Johnson starts — winning at a nearly 70 percent rate.`\
+https://nytimes.com/athletic/6796597/2025/11/10/eagles-lane-johnson-ankle-injury-tnf-packers/
+
 **Track Shape**\
 `Christina Iverson and Scott Hogan are especially articulate in this crossword puzzle.`\
 https://nytimes.com/2025/11/10/crosswords/daily-puzzle-2025-11-11.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6796418/2025/11/10/mississippi-state-vs-missouri-st
 **Brian Daboll is suddenly available; could he cure the Bills' offensive woes?**\
 `Josh Allen's far-away gaze in Miami looked a lot like the one he sported right before the Bills fired Ken Dorsey.`\
 https://nytimes.com/athletic/6796200/2025/11/10/brian-daboll-bills-offense-josh-allen/
-
-**Shutdown Deal Revives Democratic Infighting**\
-`The agreement prompted a backlash within the party, not only against the Democratic defectors who supported it, but against Senator Chuck Schumer, the leader who did not.`\
-https://nytimes.com/2025/11/10/us/politics/shutdown-deal-revives-democratic-infighting.html
 

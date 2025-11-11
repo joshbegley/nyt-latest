@@ -1,3 +1,7 @@
+**Eagles' All-Pro tackle Lane Johnson questionable with ankle injury**\
+`Since the start of the 2016 season, the Eagles are 91-39-1 when Johnson starts — winning at a nearly 70 percent rate.`\
+https://nytimes.com/athletic/6796597/2025/11/10/eagles-lane-johnson-ankle-injury-tnf-packers/
+
 **NBA coaches reflect on the late Lenny Wilkens: ‘What an amazing man.'**\
 `Lenny Wilkens, one of the greatest players and coaches in NBA history, leaves behind a legacy current coaches can only revere.`\
 https://nytimes.com/athletic/6796505/2025/11/10/lenny-wilkens-passing-nba-coaches-mourn/
