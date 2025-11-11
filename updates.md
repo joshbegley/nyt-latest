@@ -1,3 +1,23 @@
+**Infant Formula Recall Expands as Botulism Outbreak Grows**\
+`Federal health officials said caregivers should stop using all ByHeart powdered formula products after 15 infants in 12 states were hospitalized.`\
+https://nytimes.com/2025/11/11/health/byheart-infant-formula-recall-botulism.html
+
+**Key Netanyahu Minister Steps Down From Israel’s Government**\
+`Ron Dermer, a longtime ally of Prime Minister Benjamin Netanyahu and an influential figure in the Israeli government throughout the war in Gaza, resigned as minister of strategic affairs.`\
+https://nytimes.com/2025/11/11/world/middleeast/israel-ron-dermer-resigns-netanyahu.html
+
+**Senator Criticizes Rubio for Paying $7.5 Million to Equatorial Guinea to Take Deportees**\
+`Senator Jeanne Shaheen, Democrat of New Hampshire, said the African country has a long history of corruption. The amount paid is far more than recent annual assistance given to it.`\
+https://nytimes.com/2025/11/11/us/politics/marco-rubio-equatorial-guinea.html
+
+**Who Didn’t Suffer During the Shutdown? People Flying Private.**\
+`As the government’s closure drags on, commercial airline passengers are suffering. But private aviation is doing banner business.`\
+https://nytimes.com/2025/11/11/travel/shutdown-private-air-travel.html
+
+**F.D.A. Names Agency Veteran to Run Drug Division**\
+`Dr. Richard Pazdur, who has been the F.D.A.’s top cancer drug regulator, represents a stabilizing choice for an agency reeling under staff cuts and low morale.`\
+https://nytimes.com/2025/11/11/science/richard-pazdur-fda-drug-director.html
+
 **Newsom Criticizes Trump’s Offshore Oil Drilling Proposal**\
 `During the United Nations climate summit on Tuesday, Gov. Gavin Newsom of California responded to President Trump’s proposal to allow new oil and gas drilling off the California coast, declaring it “dead on arrival.”`\
 https://nytimes.com/video/us/politics/100000010518941/newsom-criticizes-trumps-offshore-oil-drilling-proposal.html

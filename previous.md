@@ -1,3 +1,23 @@
+**Infant Formula Recall Expands as Botulism Outbreak Grows**\
+`Federal health officials said caregivers should stop using all ByHeart powdered formula products after 15 infants in 12 states were hospitalized.`\
+https://nytimes.com/2025/11/11/health/byheart-infant-formula-recall-botulism.html
+
+**Key Netanyahu Minister Steps Down From Israel’s Government**\
+`Ron Dermer, a longtime ally of Prime Minister Benjamin Netanyahu and an influential figure in the Israeli government throughout the war in Gaza, resigned as minister of strategic affairs.`\
+https://nytimes.com/2025/11/11/world/middleeast/israel-ron-dermer-resigns-netanyahu.html
+
+**Senator Criticizes Rubio for Paying $7.5 Million to Equatorial Guinea to Take Deportees**\
+`Senator Jeanne Shaheen, Democrat of New Hampshire, said the African country has a long history of corruption. The amount paid is far more than recent annual assistance given to it.`\
+https://nytimes.com/2025/11/11/us/politics/marco-rubio-equatorial-guinea.html
+
+**Who Didn’t Suffer During the Shutdown? People Flying Private.**\
+`As the government’s closure drags on, commercial airline passengers are suffering. But private aviation is doing banner business.`\
+https://nytimes.com/2025/11/11/travel/shutdown-private-air-travel.html
+
+**F.D.A. Names Agency Veteran to Run Drug Division**\
+`Dr. Richard Pazdur, who has been the F.D.A.’s top cancer drug regulator, represents a stabilizing choice for an agency reeling under staff cuts and low morale.`\
+https://nytimes.com/2025/11/11/science/richard-pazdur-fda-drug-director.html
+
 **Newsom Criticizes Trump’s Offshore Oil Drilling Proposal**\
 `During the United Nations climate summit on Tuesday, Gov. Gavin Newsom of California responded to President Trump’s proposal to allow new oil and gas drilling off the California coast, declaring it “dead on arrival.”`\
 https://nytimes.com/video/us/politics/100000010518941/newsom-criticizes-trumps-offshore-oil-drilling-proposal.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6798909/2025/11/11/braves-coaching-staff-younger-ac
 **Novak Djokovic's Piers Morgan interview: Sinner, Alcaraz, the tennis GOAT debate and his career**\
 `The 24-time Grand Slam champion said it was hard to accept how Jannik Sinner and Carlos Alcaraz have started to dominate him.`\
 https://nytimes.com/athletic/6798363/2025/11/11/novak-djokovic-piers-morgan-interview/
-
-**What if Democrats’ Big Shutdown Loss Turns Out to Be a Win?**\
-`Despite considerable hand-wringing in the party about caving to Republicans in the government closure, some Democrats see potential upsides in the outcome.`\
-https://nytimes.com/2025/11/11/us/politics/democrats-shutdown.html
-
-**Justin Tucker's 10-game suspension for violations of NFL's personal conduct policy lifted**\
-`Tucker was suspended in June following multiple allegations of sexually inappropriate behavior by Baltimore-area massage therapists.`\
-https://nytimes.com/athletic/6799237/2025/11/11/justin-tucker-suspension-lifted-eligible-nfl/
-
-**Israel Arrests 4 After Jewish Extremist Attack in Occupied West Bank**\
-`Dozens of masked Israelis attacked an industrial zone, torching vehicles and wounding Palestinians, according to Palestinian officials.`\
-https://nytimes.com/2025/11/11/world/middleeast/israel-extremist-attack-west-bank.html
-
-**Suns guard Jalen Green to miss at least a month with hamstring strain**\
-`Green, who was acquired along with Dillon Brooks in the blockbuster Kevin Durant deal, has played in only two games this season.`\
-https://nytimes.com/athletic/6799267/2025/11/11/jalen-green-injury-update-suns-nba/
-
-**Justice Dept. Says It Will Investigate U.C. Berkeley Protest**\
-`Demonstrators protested on Monday outside a Turning Point USA event at the University of California, Berkeley. University officials said a “single violent incident” took place. The Justice Department said it would investigate what had happened, citing security concerns.`\
-https://nytimes.com/video/us/politics/100000010518537/university-of-california-berkeley-protest.html
 

@@ -1,3 +1,7 @@
+**Dodgers' Tommy Edman to undergo ankle surgery, expected to be ready for spring**\
+`Edman has been dealing with discomfort in his right ankle since the middle of 2024.`\
+https://nytimes.com/athletic/6799401/2025/11/11/dodgers-tommy-edman-ankle-surgery/
+
 **Infant Formula Recall Expands as Botulism Outbreak Grows**\
 `Federal health officials said caregivers should stop using all ByHeart powdered formula products after 15 infants in 12 states were hospitalized.`\
 https://nytimes.com/2025/11/11/health/byheart-infant-formula-recall-botulism.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/11/nyregion/nypd-ccrb-chairman-resign.html
 **Braves overhaul coaching staff with plenty of younger, accomplished newcomers**\
 `While conducting extensive background checks, Alex Anthopoulos said connections emerged among many of them, which was a bonus.`\
 https://nytimes.com/athletic/6798909/2025/11/11/braves-coaching-staff-younger-accomplished-newcomers/
-
-**Novak Djokovic's Piers Morgan interview: Sinner, Alcaraz, the tennis GOAT debate and his career**\
-`The 24-time Grand Slam champion said it was hard to accept how Jannik Sinner and Carlos Alcaraz have started to dominate him.`\
-https://nytimes.com/athletic/6798363/2025/11/11/novak-djokovic-piers-morgan-interview/
 
