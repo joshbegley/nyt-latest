@@ -1,40 +1,40 @@
-**Embiid to miss 76ers' game against Celtics with right knee injury**\
-`This will mark Embiid's first unplanned absence from a game this season. `\
-https://nytimes.com/athletic/6798732/2025/11/11/joel-embiid-injury-status-76ers-celtics/
+**How to watch Delaware vs. BYU men's basketball: Time, TV, streaming**\
+`Find out how to watch the Delaware Fightin' Blue Hens play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6798832/2025/11/11/delaware-vs-byu-stream-how-to-watch-nov-11/
 
-**U.S. Bishops Elect New Leader as Concerns Mount Over Treatment of Migrants**\
-`“We face a growing worldview that is so often at odds with the Gospel mandate to love thy neighbor,” the group said in a letter to Pope Leo.`\
-https://nytimes.com/2025/11/11/us/bishops-coakley-immigration.html
+**How to watch Creighton vs. Gonzaga men's basketball: Time, TV, streaming**\
+`Find out how to watch the Creighton Bluejays play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6798829/2025/11/11/creighton-vs-gonzaga-stream-how-to-watch-nov-11/
 
-**When Food Cuts Loomed, This Tribe Turned to Bison**\
-`In one of its largest harvests ever, the Blackfeet tribe turned to its herd to help feed its members, who rely heavily on federal food assistance.`\
-https://nytimes.com/card/2025/11/11/us/montana-blackfeet-nation-bison-snap
+**How to watch Ball State vs. Wisconsin men's basketball: Time, TV, streaming**\
+`Find out how to watch the Ball State Cardinals play the Wisconsin Badgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6798830/2025/11/11/ball-state-vs-wisconsin-stream-how-to-watch-nov-11/
 
-**Nolan Williams, Who Stimulated the Brain to Treat Depression, Dies at 43**\
-`A neuroscientist, he employed a battery of high-tech tools in devising a fast-acting therapy that targets the area of the brain where depression originates.`\
-https://nytimes.com/2025/11/11/health/nolan-williams-dead.html
+**How to watch Kentucky vs. Louisville men's basketball: Time, TV, streaming**\
+`Find out how to watch the Kentucky Wildcats play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6798826/2025/11/11/kentucky-vs-louisville-stream-how-to-watch-nov-11/
 
-**Source: Goldman Sachs to become majority stakeholder of Excel Sports Management**\
-`Excel's roster of clients includes Caitlin Clark, Tiger Woods, Cal Raleigh and Nikola Jokić.`\
-https://nytimes.com/athletic/6798500/2025/11/11/goldman-sachs-excel-sports-management-majority-stake-investment/
+**How to watch Texas Tech vs. Illinois men's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Tech Red Raiders play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6798823/2025/11/11/texas-tech-vs-illinois-stream-how-to-watch-nov-11/
 
-**Nico Harrison timeline: Key trades (including THAT one), moments and more**\
-`Harrison's four-plus years were a roller coaster, from a finals appearance and lottery win to perhaps the worst trade in league history.`\
-https://nytimes.com/athletic/6798346/2025/11/11/nico-harrison-fallout-mavericks-timeline/
+**How to watch Central Arkansas vs. Arkansas men's basketball: Time, TV, streaming**\
+`Find out how to watch the Central Arkansas Bears play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6798824/2025/11/11/central-arkansas-vs-arkansas-stream-how-to-watch-nov-11/
 
-**Sidney Crosby's treatment in Sweden shows he's a worldwide star**\
-`No matter where in the world Sidney Crosby plays, his appearances are a big deal.`\
-https://nytimes.com/athletic/6798077/2025/11/11/sidney-crosby-penguins-sweden-nhl-global-series/
+**How to watch Northern Arizona vs. Arizona men's basketball: Time, TV, streaming**\
+`Find out how to watch the Northern Arizona Lumberjacks play the Arizona Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6798820/2025/11/11/northern-arizona-vs-arizona-stream-how-to-watch-nov-11/
 
-**A Latin Grammys Primer in 11 Songs**\
-`Prepare for the big show on Thursday with tracks by nominated artists: Karol G, Sued Nunes, Ivan Cornejo and more.`\
-https://nytimes.com/2025/11/11/arts/music/amplifier-newsletter-latin-grammys.html
+**How to watch Texans vs. Titans: Time, TV, streaming**\
+`Find out how to watch the Houston Texans play the Tennessee Titans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6798817/2025/11/11/texans-vs-titans-stream-how-to-watch-nov-16/
 
-**Giant opportunity: Evaluating the New York head coaching gig**\
-`Despite the franchise's woes, the New York Giants' job could be an attractive opportunity for prospective head coaches.`\
-https://nytimes.com/athletic/6797005/2025/11/11/new-york-giants-head-coach-opening/
+**How to watch Packers vs. Giants: Time, TV, streaming**\
+`Find out how to watch the Green Bay Packers play the New York Giants, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6798815/2025/11/11/packers-vs-giants-stream-how-to-watch-nov-16/
 
-**Hornets rookie Ryan Kalkbrenner sets new record with 80.8 FG percentage to start career**\
-`Charlotte Hornets rookie Ryan Kalkbrenner has set a new record for shooting efficiency through the first 10 games of his NBA career. `\
-https://nytimes.com/athletic/6798173/2025/11/11/ryan-kalkbrenner-charlotte-hornets-field-goal-percentage-record/
+**How to watch Bears vs. Vikings: Time, TV, streaming**\
+`Find out how to watch the Chicago Bears play the Minnesota Vikings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6798813/2025/11/11/bears-vs-vikings-stream-how-to-watch-nov-16/
 
