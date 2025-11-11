@@ -1,3 +1,15 @@
+**Teaching History in the Trump Era**\
+`Readers respond to an article about how the teaching of U.S. history is changing. Also: Democratic pragmatism; emergency care at risk.`\
+https://nytimes.com/2025/11/11/opinion/teaching-us-history-trump.html
+
+**Notes From a Young Mother, to the Daughter She Left Behind**\
+`In her vivid epistolary novel “The White Hot,” the Pulitzer-winning playwright Quiara Alegría Hudes explores the long-tail legacy of maternal rage and regret.`\
+https://nytimes.com/2025/11/11/books/review/white-hot-quiara-alegria-hudes.html
+
+**Wrapped in Hermès and a Houndstooth Jacket**\
+`Channeling British style and that of ladies who lunch.`\
+https://nytimes.com/2025/11/11/style/street-style-look-double-breasted-jacket.html
+
 **For the Phoenix Suns, one possession, 10 passes and a defining trait in a surprising start**\
 `Winners of five of their last six games, the Suns are starting to find themselves. And their unselfishness is a strength.`\
 https://nytimes.com/athletic/6796943/2025/11/11/phoenix-suns-grayson-allen-3-pointer-possession-passes/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6795827/2025/11/11/college-football-playoff-ranking
 **Bo Nix's internal clock 'gets quick' vs. pressure. Can he and Broncos fix it?**\
 `Nix's accuracy as an out-of-pocket passer has dropped substantially in Year 2.`\
 https://nytimes.com/athletic/6794916/2025/11/11/bo-nix-accuracy-internal-clock-broncos/
-
-**The Chargers improved their pass catchers, and Ladd McConkey is benefitting**\
-`The Chargers drafted two receivers and a tight end and reunited with veteran Keenan Allen. The plan is starting to work.`\
-https://nytimes.com/athletic/6796220/2025/11/11/chargers-ladd-mcconkey-upgrades/
-
-**Brian Daboll was only part of the Giants' problem. Why is Joe Schoen still here?**\
-`Ownership couldn’t ignore the results any longer, so Daboll was fired. But that didn’t address the whole problem.`\
-https://nytimes.com/athletic/6796194/2025/11/11/joe-schoen-giants-brian-daboll-fired/
-
-**The Pulse: A tantalizing battle atop the NFC**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6794621/2025/11/11/a-tantalizing-battle-atop-the-nfc-plus-nba-buzzer-beaters/
 

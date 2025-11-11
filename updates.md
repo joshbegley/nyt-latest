@@ -1,3 +1,15 @@
+**Teaching History in the Trump Era**\
+`Readers respond to an article about how the teaching of U.S. history is changing. Also: Democratic pragmatism; emergency care at risk.`\
+https://nytimes.com/2025/11/11/opinion/teaching-us-history-trump.html
+
+**Notes From a Young Mother, to the Daughter She Left Behind**\
+`In her vivid epistolary novel “The White Hot,” the Pulitzer-winning playwright Quiara Alegría Hudes explores the long-tail legacy of maternal rage and regret.`\
+https://nytimes.com/2025/11/11/books/review/white-hot-quiara-alegria-hudes.html
+
+**Wrapped in Hermès and a Houndstooth Jacket**\
+`Channeling British style and that of ladies who lunch.`\
+https://nytimes.com/2025/11/11/style/street-style-look-double-breasted-jacket.html
+
 **For the Phoenix Suns, one possession, 10 passes and a defining trait in a surprising start**\
 `Winners of five of their last six games, the Suns are starting to find themselves. And their unselfishness is a strength.`\
 https://nytimes.com/athletic/6796943/2025/11/11/phoenix-suns-grayson-allen-3-pointer-possession-passes/
