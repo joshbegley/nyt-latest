@@ -1,3 +1,19 @@
+**Sidney Crosby's treatment in Sweden shows he's a worldwide star**\
+`No matter where in the world Sidney Crosby plays, his appearances are a big deal.`\
+https://nytimes.com/athletic/6798077/2025/11/11/sidney-crosby-penguins-sweden-nhl-global-series/
+
+**A Latin Grammys Primer in 11 Songs**\
+`Prepare for the big show on Thursday with tracks by nominated artists: Karol G, Sued Nunes, Ivan Cornejo and more.`\
+https://nytimes.com/2025/11/11/arts/music/amplifier-newsletter-latin-grammys.html
+
+**Four-time NBA All-Star Michael Ray Richardson dies at 70**\
+`Richardson played eight seasons in the NBA before being banned for violating the league's drug policy for a third time.`\
+https://nytimes.com/athletic/6798478/2025/11/11/michael-ray-richardson-dies-70/
+
+**Aircraft Carrier Moves Into the Caribbean as U.S. Confronts Venezuela**\
+`The arrival of the carrier bolsters the already extensive deployment of American forces in the region. Britain will cease sharing some intelligence with the U.S. because of concerns over boat strikes.`\
+https://nytimes.com/2025/11/11/us/politics/aircraft-carrier-moves-into-the-caribbean-as-us-confronts-venezuela.html
+
 **Giant opportunity: Evaluating the New York head coaching gig**\
 `Despite the franchise's woes, the New York Giants' job could be an attractive opportunity for prospective head coaches.`\
 https://nytimes.com/athletic/6797005/2025/11/11/new-york-giants-head-coach-opening/
