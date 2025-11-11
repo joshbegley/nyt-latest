@@ -1,3 +1,7 @@
+**The Mysterious ‘Louvre Detective’ Was a 15-Year-Old Passer-by**\
+`The photo of a dapper man in a fedora sparked many questions: Was the person real? A Sherlock Holmes-inspired detective on the case? Or just being very French?`\
+https://nytimes.com/2025/11/11/world/europe/louvre-detective-fedora-photo.html
+
 **Mariners Wanted: Six-Figure Salaries and Months at Sea**\
 `Few people are becoming t`\
 https://nytimes.com/2025/11/11/business/merchant-marines-shipbuilding.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6798147/2025/11/11/capitals-vs-hurricanes-stream-ho
 **How to watch Stars vs. Senators: Time, TV, streaming**\
 `Find out how to watch the Dallas Stars play the Ottawa Senators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6798145/2025/11/11/stars-vs-senators-stream-how-to-watch-nov-11/
-
-**Ban a Pro-Palestinian Group? The U.K. Government Thought Few Would Care**\
-`Official advice provided to the government ahead of its ban on Palestine Action underestimated the significant public protests that followed, records show.`\
-https://nytimes.com/2025/11/11/world/europe/uk-starmer-ban-palestine-action.html
 

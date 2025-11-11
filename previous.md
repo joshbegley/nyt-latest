@@ -1,3 +1,19 @@
+**Mariners Wanted: Six-Figure Salaries and Months at Sea**\
+`Few people are becoming t`\
+https://nytimes.com/2025/11/11/business/merchant-marines-shipbuilding.html
+
+**Halt in Fees on Chinese Vessels Endangers U.S. Shipbuilding Efforts**\
+`The two countries agreed to suspend the fees for a year as part of their recent trade pact, but America still aims to build more commercial ships.`\
+https://nytimes.com/2025/11/11/business/commercial-shipbuilding-us-china.html
+
+**SoftBank Sells $5.8 Billion Stake in Nvidia to Pay for OpenAI Deals**\
+`The move has further stoked concerns among some investors that the rally in artificial intelligence stocks was overdone.`\
+https://nytimes.com/2025/11/11/business/dealbook/softbank-nvidia-divest.html
+
+**Taylor Fritz, the great men's tennis maximizer, runs into the Carlos Alcaraz wall again**\
+`Alcaraz escaped an epic, 14-minute game in the second set as Fritz played lights-out for most of the match. He still lost.`\
+https://nytimes.com/athletic/6798010/2025/11/11/atp-tour-finals-fritz-alcaraz-result-analysis/
+
 **Teenage fan in Luka Lakers jersey gets apology from Mavs owner who 'feels horrible for the trade'**\
 `Mavericks governor Patrick Dumont "wants to make it up to us," the fan said shortly before the team fired Nico Harrison.`\
 https://nytimes.com/athletic/6797762/2025/11/11/nico-harrison-firing-fan-interaction-patrick-dumont/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6798145/2025/11/11/stars-vs-senators-stream-how-to-
 **Ban a Pro-Palestinian Group? The U.K. Government Thought Few Would Care**\
 `Official advice provided to the government ahead of its ban on Palestine Action underestimated the significant public protests that followed, records show.`\
 https://nytimes.com/2025/11/11/world/europe/uk-starmer-ban-palestine-action.html
-
-**How to watch Maple Leafs vs. Bruins: Time, TV, streaming**\
-`Find out how to watch the Toronto Maple Leafs play the Boston Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6798141/2025/11/11/maple-leafs-vs-bruins-stream-how-to-watch-nov-11/
-
-**How to watch Kings vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Kings play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6798139/2025/11/11/kings-vs-canadiens-stream-how-to-watch-nov-11/
-
-**Jerry Jones 'devastated' by Marshawn Kneeland's death: 'He was just getting started'**\
-`“This is just a time when you acknowledge that there are no answers,” the Cowboys owner and GM said Tuesday.`\
-https://nytimes.com/athletic/6797841/2025/11/11/jerry-jones-comments-marshawn-kneeland-death-cowboys/
-
-**How to watch Radford vs. North Carolina: Time, TV, streaming**\
-`Find out how to watch the Radford Highlanders play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6798120/2025/11/11/radford-vs-north-carolina-stream-how-to-watch-nov-11/
 

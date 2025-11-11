@@ -1,3 +1,19 @@
+**Mariners Wanted: Six-Figure Salaries and Months at Sea**\
+`Few people are becoming t`\
+https://nytimes.com/2025/11/11/business/merchant-marines-shipbuilding.html
+
+**Halt in Fees on Chinese Vessels Endangers U.S. Shipbuilding Efforts**\
+`The two countries agreed to suspend the fees for a year as part of their recent trade pact, but America still aims to build more commercial ships.`\
+https://nytimes.com/2025/11/11/business/commercial-shipbuilding-us-china.html
+
+**SoftBank Sells $5.8 Billion Stake in Nvidia to Pay for OpenAI Deals**\
+`The move has further stoked concerns among some investors that the rally in artificial intelligence stocks was overdone.`\
+https://nytimes.com/2025/11/11/business/dealbook/softbank-nvidia-divest.html
+
+**Taylor Fritz, the great men's tennis maximizer, runs into the Carlos Alcaraz wall again**\
+`Alcaraz escaped an epic, 14-minute game in the second set as Fritz played lights-out for most of the match. He still lost.`\
+https://nytimes.com/athletic/6798010/2025/11/11/atp-tour-finals-fritz-alcaraz-result-analysis/
+
 **Teenage fan in Luka Lakers jersey gets apology from Mavs owner who 'feels horrible for the trade'**\
 `Mavericks governor Patrick Dumont "wants to make it up to us," the fan said shortly before the team fired Nico Harrison.`\
 https://nytimes.com/athletic/6797762/2025/11/11/nico-harrison-firing-fan-interaction-patrick-dumont/
