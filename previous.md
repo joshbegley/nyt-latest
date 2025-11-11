@@ -1,3 +1,7 @@
+**These Dan Dan Noodles Are the Weeknight Meal of Your Dreams**\
+`This warming bowl of saucy noodles is as easy to pull together as any quick pasta dish.`\
+https://nytimes.com/2025/11/10/dining/weeknight-dan-dan-noodles-recipe.html
+
 **Mobile Lounge Crashes at Dulles Airport, Causing Injuries and Damage**\
 `More than a dozen people were hurt and will be evaluated at a hospital. Air travel has been hampered in recent days by the government shutdown.`\
 https://nytimes.com/2025/11/10/us/dulles-airport-crash-mobile-lounge.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6795918/2025/11/10/pat-narduzzi-pitt-notre-dame-com
 **How Syria’s President Transformed His Image**\
 `Syrian President Ahmed al-Shara’s meeting with President Trump in Washington signifies a new turn for al-Shara, a former Islamist rebel leader who was once designated by the United States as a terrorist with a $10 million bounty on his head. Our reporter Christina Goldbaum describes the meeting.`\
 https://nytimes.com/video/world/middleeast/100000010515338/how-syrias-president-transformed-his-image.html
-
-**Weekly Student News Quiz: Elections, Shutdown, Slang**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2025/11/10/learning/10StudentNewsQuiz.html
 

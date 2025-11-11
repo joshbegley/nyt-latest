@@ -1,3 +1,7 @@
+**Athletics slugger Nick Kurtz wins AL Rookie of the Year unanimously**\
+`Kurtz delivered an elite rookie season despite only playing in 117 games. `\
+https://nytimes.com/athletic/6794601/2025/11/10/athletics-nick-kurtz-al-rookie-of-the-year/
+
 **These Dan Dan Noodles Are the Weeknight Meal of Your Dreams**\
 `This warming bowl of saucy noodles is as easy to pull together as any quick pasta dish.`\
 https://nytimes.com/2025/11/10/dining/weeknight-dan-dan-noodles-recipe.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6796018/2025/11/10/cowboys-marshawn-kneeland-honor-
 **Pitt's Pat Narduzzi not focused on Notre Dame: 'They could put up 100 on us'**\
 `Coach would rather make sure his Panthers win ACC games, not showdown vs. Fighting Irish.`\
 https://nytimes.com/athletic/6795918/2025/11/10/pat-narduzzi-pitt-notre-dame-comments/
-
-**How Syria’s President Transformed His Image**\
-`Syrian President Ahmed al-Shara’s meeting with President Trump in Washington signifies a new turn for al-Shara, a former Islamist rebel leader who was once designated by the United States as a terrorist with a $10 million bounty on his head. Our reporter Christina Goldbaum describes the meeting.`\
-https://nytimes.com/video/world/middleeast/100000010515338/how-syrias-president-transformed-his-image.html
 
