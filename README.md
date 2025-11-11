@@ -1,3 +1,7 @@
+**Giannis, Luka, Joker, SGA: These Fab Four are ruling the NBA this season**\
+`This quartet of stars has been awesome for most of the last half-decade ... and they may be having their best seasons ever.`\
+https://nytimes.com/athletic/6795852/2025/11/11/giannis-luka-jokic-sga-nba-cup-raptors/
+
 **Fantasy football Week 11 drops: Chasing away Sam Darnold, Chuba Hubbard and more**\
 `Gary Davenport identifies players who are struggling to validate their spot on fantasy rosters, including a fantasy standout of 2024.`\
 https://nytimes.com/athletic/6796694/2025/11/11/fantasy-football-week-11-drops-darnold-jcm-chuba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6796931/2025/11/11/mavs-nico-harrison-firing-luka-d
 **Eagles Edge Packers in Cold Monday Night Football Matchup**\
 `In a game that featured the only scoreless Monday Night Football first half since 2009, the Philadelphia Eagles prevailed on the road, beating the Green Bay Packers 10-7.`\
 https://nytimes.com/video/the-athletic/100000010517920/eagles-edge-packers-in-cold-monday-night-football-matchup.html
-
-**What a Government Shutdown Solution Hasn’t Solved**\
-`Even with a legislative breakthrough looking imminent, air travel faces ongoing delays, and health insurance costs are still set to jump.`\
-https://nytimes.com/2025/11/11/business/dealbook/shutdown-flights-health-care.html
 
