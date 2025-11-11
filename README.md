@@ -1,3 +1,11 @@
+**Meet the New Antisemites, Same as the Old Antisemites**\
+`A bigotry for morons will always be political gold in a world of morons.`\
+https://nytimes.com/2025/11/11/opinion/antisemitic-politics-carlson-fuentes.html
+
+**Crispy Coconut Tempeh**\
+`This plant-based spin on coconut shrimp uses crumbled tempeh instead of shrimp.`\
+https://nytimes.com/video/dining/100000010366164/crispy-coconut-tempeh.html
+
 **Will Bad Bunny Pull a Kendrick in 2026?**\
 `Bad Bunny’s latest album, “Debí Tirar Más Fotos,” was recently nominated for six awards, including the top three categories, at the Grammys in February — the week before he headlines the Super Bowl halftime show.`\
 https://nytimes.com/video/podcasts/100000010518836/will-bad-bunny-pull-a-kendrick-in-2026.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/11/us/politics/trump-veterans-day-speech-shutdown.ht
 **Women in Power, and on the Right**\
 `Two G7 countries now have female leaders, and they have something in common.`\
 https://nytimes.com/2025/11/11/world/women-leaders-right-g7-pakistan-attack.html
-
-**Caitlin Clark's round at LPGA event to be shown live on Golf Channel**\
-`Coverage will include interviews with Indiana Fever teammates Lexie Hull and Sophie Cunningham, who will also serve as Clark's caddie.`\
-https://nytimes.com/athletic/6799001/2025/11/11/caitlin-clark-lpga-annika-golf-channel/
-
-**A Trump Lawsuit Against the BBC Would Face Serious Hurdles**\
-`Legal experts say President Trump’s litigation track record offers both hope and warning to the British public broadcaster, which he has threatened with a $1 billion suit.`\
-https://nytimes.com/2025/11/11/world/europe/trump-bbc-lawsuit-hurdles.html
 
