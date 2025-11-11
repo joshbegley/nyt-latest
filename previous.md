@@ -1,4 +1,8 @@
-**Arsenal and Palace fixtures moved after making PL request**\
+**Alan Sheehan sacked as Swansea City head coach**\
+`Sheehan, 39, was named as Swansea boss on a permanent three-year deal in April following a successful period as caretaker from February.`\
+https://nytimes.com/athletic/6797444/2025/11/11/alan-sheehan-sacked-swansea-head-coach/
+
+**Arsenal and Crystal Palace fixtures moved after request to Premier League**\
 `Both sides, who play each other in the Carabao Cup quarter-finals on December 23, have had league fixtures brought forward to December 20.`\
 https://nytimes.com/athletic/6797358/2025/11/11/arsenal-palace-premier-league-matches-moved/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6796035/2025/11/11/nick-emmanwori-seahawks-rookie-c
 **NFL Draft 2026 rankings: Ty Simpson, Jeremiyah Love climb into top 5 on latest board**\
 `For all its faults, the 2026 quarterback class has generated some positive momentum — just not as much as Ohio State's Arvell Reese.`\
 https://nytimes.com/athletic/6794398/2025/11/11/nfl-draft-2026-rankings-ty-simpson-mendoza/
-
-**Amid the college football chaos, here are 9 fan bases that should be thankful for their coach**\
-`There’s been so much focus on coaching jobs gone wrong this season. But now it's time to expresses gratitude for some jobs done well.`\
-https://nytimes.com/athletic/6795442/2025/11/11/college-football-coaching-carousel-best-coaches/
 

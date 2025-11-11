@@ -1,3 +1,7 @@
+**MLB offseason notes: Which way for the Twins and Rangers?**\
+`Plus more details on Pete Fairbanks' market and Shane Bieber's surprising option decision. `\
+https://nytimes.com/athletic/6797413/2025/11/11/mlb-offseason-minnesota-twins-texas-rangers/
+
 **Alan Sheehan sacked as Swansea City head coach**\
 `Sheehan, 39, was named as Swansea boss on a permanent three-year deal in April following a successful period as caretaker from February.`\
 https://nytimes.com/athletic/6797444/2025/11/11/alan-sheehan-sacked-swansea-head-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6797343/2025/11/11/ruben-amorim-one-year-manchester
 **Nick Emmanwori is shining for the Seahawks, and he might only be scratching the surface**\
 `"The game is slowing down real well for me," Emmanwori said, which could be a scary thought for opposing offenses.`\
 https://nytimes.com/athletic/6796035/2025/11/11/nick-emmanwori-seahawks-rookie-cardinals/
-
-**NFL Draft 2026 rankings: Ty Simpson, Jeremiyah Love climb into top 5 on latest board**\
-`For all its faults, the 2026 quarterback class has generated some positive momentum — just not as much as Ohio State's Arvell Reese.`\
-https://nytimes.com/athletic/6794398/2025/11/11/nfl-draft-2026-rankings-ty-simpson-mendoza/
 
