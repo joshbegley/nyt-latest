@@ -1,4 +1,12 @@
-**Luka Dončić gets a real dunk in bounce-back Lakers win at Charlotte**\
+**The New York Times in Print for Tuesday, Nov. 11, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/11/todays-new-york-times
+
+**‘Thanks, U.S.A.’**\
+`To imagine the cost of an “America First” policy, walk through World War II cemeteries in Europe.`\
+https://nytimes.com/2025/11/11/opinion/veterans-day-world-war-ii.html
+
+**Luka Dončić gets a real dunk in bounce-back Lakers win over Hornets**\
 `Dončić showing some bounce was the highlight in the Lakers' 121-111 win over the Hornets.`\
 https://nytimes.com/athletic/6796750/2025/11/11/luka-doncic-lakers-hornets-nba/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6773455/2025/11/11/karl-etta-eyong-la-liga-transfer
 **Eagles-Packers takeaways: Philadelphia hangs on in defensive struggle**\
 `Eagles receiver DeVonta Smith hauled in a 36-yard touchdown pass from Jalen Hurts on Monday night.`\
 https://nytimes.com/athletic/6796631/2025/11/11/eagles-packers-score-result-takeaways-mnf-nfl/
-
-**Liverpool are facing 11 big issues. Can they fix them?**\
-`Arne Slot is facing myriad problems at Anfield as the club's Premier League title defence disintegrates `\
-https://nytimes.com/athletic/6794752/2025/11/11/liverpool-premier-league-issues/
-
-**How the authorities took down the world's largest illegal sports streaming platform**\
-`As part of a new podcast documentary on illegal streaming, The Athletic finds out how Streameast was shut down`\
-https://nytimes.com/athletic/6742754/2025/11/11/streameast-illegal-streaming-raid/
 

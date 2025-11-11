@@ -1,3 +1,15 @@
+**The New York Times in Print for Tuesday, Nov. 11, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/11/todays-new-york-times
+
+**‘Thanks, U.S.A.’**\
+`To imagine the cost of an “America First” policy, walk through World War II cemeteries in Europe.`\
+https://nytimes.com/2025/11/11/opinion/veterans-day-world-war-ii.html
+
+**Luka Dončić gets a real dunk in bounce-back Lakers win over Hornets**\
+`Dončić showing some bounce was the highlight in the Lakers' 121-111 win over the Hornets.`\
+https://nytimes.com/athletic/6796750/2025/11/11/luka-doncic-lakers-hornets-nba/
+
 **Luka Dončić gets a real dunk in bounce-back Lakers win at Charlotte**\
 `Dončić showing some bounce was the highlight in the Lakers' 121-111 win over the Hornets.`\
 https://nytimes.com/athletic/6796750/2025/11/11/luka-doncic-lakers-hornets-nba/
