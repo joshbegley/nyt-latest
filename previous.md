@@ -1,3 +1,11 @@
+**Scoop City: Compounding problems in New York**\
+`Jaxson Dart joins a long list of first-round QBs to see their head coach replaced in year two`\
+https://nytimes.com/athletic/6798890/2025/11/11/brian-daboll-fired-giants-joe-schoen-scoop-city/
+
+**U.S. beats Czechia to win group at U-17 World Cup in Qatar**\
+`Americans won all three group matches at the event for first time since 1991 and will face Morocco in the Round of 32.`\
+https://nytimes.com/athletic/6798746/2025/11/11/usa-czechia-u17-world-cup/
+
 **Jaguars rookie Travis Hunter undergoes season-ending surgery**\
 `Hunter is expected to resume football activities within six months.`\
 https://nytimes.com/athletic/6798839/2025/11/11/travis-hunter-injury-update-season-ending-surgery-jaguars/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6798875/2025/11/11/pacers-vs-jazz-stream-how-to-wat
 **How to watch Celtics vs. 76ers: Time, TV, streaming**\
 `Find out how to watch the Boston Celtics play the Philadelphia 76ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6798873/2025/11/11/celtics-vs-76ers-stream-how-to-watch-nov-11/
-
-**How to watch Jets vs. Canucks: Time, TV, streaming**\
-`Find out how to watch the Winnipeg Jets play the Vancouver Canucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6798871/2025/11/11/jets-vs-canucks-stream-how-to-watch-nov-11/
-
-**How to watch Warriors vs. Thunder: Time, TV, streaming**\
-`Find out how to watch the Golden State Warriors play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6798869/2025/11/11/warriors-vs-thunder-stream-how-to-watch-nov-11/
 
