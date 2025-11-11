@@ -1,3 +1,7 @@
+**Tatsuya Nakadai, Japanese Star Known for ‘Ran’ and Other Classics, Dies at 92**\
+`He was a fixture of postwar Japanese cinema and starred in films by Akira Kurosawa and other directors of that era.`\
+https://nytimes.com/2025/11/11/movies/tatsuya-nakadai-dead.html
+
 **Former coach Brian Kelly files lawsuit against LSU: Reports**\
 `The buyout for Kelly would be the second-largest in college sports, behind the $77 million Texas A&M paid to Jimbo Fisher in 2023.`\
 https://nytimes.com/athletic/6796896/2025/11/11/brian-kelly-lsu-lawsuit/
@@ -10,8 +14,8 @@ https://nytimes.com/issue/todayspaper/2025/11/11/todays-new-york-times
 `To imagine the cost of an “America First” policy, walk through World War II cemeteries in Europe.`\
 https://nytimes.com/2025/11/11/opinion/veterans-day-world-war-ii.html
 
-**Luka Dončić gets a real dunk in bounce-back Lakers win over Hornets**\
-`Dončić showing some bounce was the highlight in the Lakers' 121-111 win over the Hornets.`\
+**Luka Dončić gets a real dunk in bounce-back Lakers win at Hornets**\
+`Dončić showing some bounce was the highlight of the Lakers' 121-111 win over the Hornets.`\
 https://nytimes.com/athletic/6796750/2025/11/11/luka-doncic-lakers-hornets-nba/
 
 **Cooper Flagg's best effort yet not enough to beat Giannis Antetokounmpo, Bucks**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6794635/2025/11/11/ashes-moral-victory-england-aust
 **Inside Newcastle Q&A: Can Wissa and Woltemade play together? Is Howe under pressure?**\
 `After another poor performance in the 3-1 defeat at Brentford, we answer your pressing questions about changes needed on and off the field`\
 https://nytimes.com/athletic/6793936/2025/11/11/inside-newcastle-wissa-woltemade-howe/
-
-**Only Mbappe, Lewandowski and Alvarez have scored more than Etta Eyong – Who is La Liga's breakout star?**\
-`Young striker signed by promoted Levante for just €3m in September now has big clubs including Barcelona and Real Madrid taking notice`\
-https://nytimes.com/athletic/6773455/2025/11/11/karl-etta-eyong-la-liga-transfer/
 
