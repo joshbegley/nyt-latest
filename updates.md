@@ -1,3 +1,7 @@
+**Former coach Brian Kelly files lawsuit against LSU: Reports**\
+`The buyout for Kelly would be the second-largest in college sports, behind the $77 million Texas A&M paid to Jimbo Fisher in 2023.`\
+https://nytimes.com/athletic/6796896/2025/11/11/brian-kelly-lsu-lawsuit/
+
 **Cade Cunningham's career-night carrys East-leading Pistons past Wizards**\
 `Cunningham scored 46 points for the Pistons in Monday's overtime win, the latest example of Detroit "controlling chaos."`\
 https://nytimes.com/athletic/6796639/2025/11/11/cade-cunningham-triple-double-pistons-nba/
