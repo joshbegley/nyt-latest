@@ -1,3 +1,7 @@
+**Pete Maki returns as Twins pitching coach, but others remain in limbo: Sources**\
+`The Twins want manager Derek Shelton to have real say in naming his coaching staff, hence the overhaul.`\
+https://nytimes.com/athletic/6796166/2025/11/10/twins-pitching-coach-pete-maki-return/
+
 **What Were Democrats Thinking?**\
 `Democrats were winning the shutdown — until now.`\
 https://nytimes.com/video/opinion/100000010515510/what-were-democrats-thinking.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6796267/2025/11/10/ucla-vs-ohio-state-stream-how-to
 **How to watch Texas vs. Georgia: Time, TV, streaming**\
 `Find out how to watch the Texas Longhorns play the Georgia Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6796257/2025/11/10/texas-vs-georgia-stream-how-to-watch-nov-15/
-
-**Athletics slugger Nick Kurtz wins AL Rookie of the Year unanimously**\
-`Kurtz delivered an elite rookie season despite only playing in 117 games. `\
-https://nytimes.com/athletic/6794601/2025/11/10/athletics-nick-kurtz-al-rookie-of-the-year/
 
