@@ -3,7 +3,7 @@
 https://nytimes.com/2025/11/11/world/europe/louvre-detective-fedora-photo.html
 
 **Mariners Wanted: Six-Figure Salaries and Months at Sea**\
-`Few people are becoming t`\
+`Few American are becoming mariners today, but demand could soon rise because President Trump and a bipartisan group of legislators in Congress want to revitalize the American shipbuilding industry.`\
 https://nytimes.com/2025/11/11/business/merchant-marines-shipbuilding.html
 
 **Halt in Fees on Chinese Vessels Endangers U.S. Shipbuilding Efforts**\
@@ -15,7 +15,7 @@ https://nytimes.com/2025/11/11/business/commercial-shipbuilding-us-china.html
 https://nytimes.com/2025/11/11/business/dealbook/softbank-nvidia-divest.html
 
 **Taylor Fritz, the great men's tennis maximizer, runs into the Carlos Alcaraz wall again**\
-`Alcaraz escaped an epic, 14-minute game in the second set as Fritz played lights-out for most of the match. He still lost.`\
+`Alcaraz escaped an epic game in the second set as Fritz played lights-out at the ATP Tour Finals. In Turin, as elsewhere, it was not enough.`\
 https://nytimes.com/athletic/6798010/2025/11/11/atp-tour-finals-fritz-alcaraz-result-analysis/
 
 **Teenage fan in Luka Lakers jersey gets apology from Mavs owner who 'feels horrible for the trade'**\
