@@ -1,3 +1,7 @@
+**Arsenal and Palace fixtures moved after making PL request**\
+`Both sides, who play each other in the Carabao Cup quarter-finals on December 23, have had league fixtures brought forward to December 20.`\
+https://nytimes.com/athletic/6797358/2025/11/11/arsenal-palace-premier-league-matches-moved/
+
 **West Ham's Soucek considered retiring during 'two years of horror' with insomnia**\
 `Soucek detailed his “unbearable” ordeal in a new autobiography, serialised by Czech publication iDNES.`\
 https://nytimes.com/athletic/6797382/2025/11/11/west-ham-news-tomas-soucek/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6794398/2025/11/11/nfl-draft-2026-rankings-ty-simps
 **Amid the college football chaos, here are 9 fan bases that should be thankful for their coach**\
 `There’s been so much focus on coaching jobs gone wrong this season. But now it's time to expresses gratitude for some jobs done well.`\
 https://nytimes.com/athletic/6795442/2025/11/11/college-football-coaching-carousel-best-coaches/
-
-**Which NBA Draft prospects impressed in college hoops' first week? Start with Caleb Wilson**\
-`This freshmen class looks deep and talented. Players like Neoklis Avdalas and Cameron Carr are building draft profiles. `\
-https://nytimes.com/athletic/6791170/2025/11/11/nba-draft-2026-prospects-caleb-wilson-koa-peat/
 
