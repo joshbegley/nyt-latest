@@ -1,3 +1,16 @@
+**How a potential MLB lockout next offseason could impact the Giants' current offseason**\
+`The Giants have excelled in free agency by signing starters to one-year deals. Free agents may be less inclined to take those this winter.`\
+https://nytimes.com/athletic/6796480/2025/11/11/sf-giants-offseason-pitching-targets-contract-length/
+
+**Super Bowl odds: Here come the Rams!**\
+`Week 11 features several key matchup among Super Bowl contenders. How will the odds shift?`\
+https://nytimes.com/athletic/6798157/2025/11/11/super-bowl-odds-rams-chiefs-eagles-betting/
+
+**Submit your questions for Murat Ates' Winnipeg Jets mailbag**\
+`<p>We&#8217;re officially a month into the season. The Jets got off to a good start but just dropped all three games on the California leg of their six-game road trip. What&#8217;s on your mind? Drop you questions here and Murat will answer them.</p>
+`\
+https://nytimes.com/athletic/6798524/2025/11/11/submit-your-questions-for-murat-ates-winnipeg-jets-mailbag-5/
+
 **Palace deny FA charge over banner during Forest game**\
 `Palace were alleged to have failed to ensure its fans "didn’t behave in an improper, offensive, abusive, insulting and/or provocative way”.`\
 https://nytimes.com/athletic/6798132/2025/11/11/crystal-palace-deny-fa-charge-banner/
