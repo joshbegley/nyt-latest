@@ -1,3 +1,7 @@
+**Pope Leo Shares His Favorite Movies Ahead of Vatican Event**\
+`The list leans heavily on uplifting classics.`\
+https://nytimes.com/2025/11/11/movies/pope-leo-favorite-movies.html
+
 **Meet the New Antisemites, Same as the Old Antisemites**\
 `A bigotry for morons will always be political gold in a world of morons.`\
 https://nytimes.com/2025/11/11/opinion/antisemitic-politics-carlson-fuentes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6799023/2025/11/11/nhl-milan-olympic-hockey-arena-i
 **Trump Lauds ‘Very Big’ Shutdown Victory for G.O.P. in Veterans Day Speech**\
 `The address mixed the traditional solemnity of the day with political arguments, as the president celebrated his efforts to remake the armed services into a “Department of War.”`\
 https://nytimes.com/2025/11/11/us/politics/trump-veterans-day-speech-shutdown.html
-
-**Women in Power, and on the Right**\
-`Two G7 countries now have female leaders, and they have something in common.`\
-https://nytimes.com/2025/11/11/world/women-leaders-right-g7-pakistan-attack.html
 
