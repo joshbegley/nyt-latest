@@ -10,7 +10,7 @@ https://nytimes.com/interactive/2025/11/10/us/senate-shutdown-funding-vote.html
 `In a rare move, conference appears to publicly call out the Irish, a program it has long sought as a full-time member.`\
 https://nytimes.com/athletic/6796501/2025/11/10/acc-notre-dame-cfp-rankings-controversy/
 
-**NBA coaches reflect on the late Lenny Wilkens: ‘Lenny was — what an amazing man.'**\
+**NBA coaches reflect on the late Lenny Wilkens: ‘What an amazing man.'**\
 `Lenny Wilkens, one of the greatest players and coaches in NBA history, leaves behind a legacy current coaches can only revere.`\
 https://nytimes.com/athletic/6796505/2025/11/10/lenny-wilkens-passing-nba-coaches-mourn/
 

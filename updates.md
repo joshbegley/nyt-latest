@@ -1,3 +1,7 @@
+**NBA coaches reflect on the late Lenny Wilkens: ‘What an amazing man.'**\
+`Lenny Wilkens, one of the greatest players and coaches in NBA history, leaves behind a legacy current coaches can only revere.`\
+https://nytimes.com/athletic/6796505/2025/11/10/lenny-wilkens-passing-nba-coaches-mourn/
+
 **Track Shape**\
 `Christina Iverson and Scott Hogan are especially articulate in this crossword puzzle.`\
 https://nytimes.com/2025/11/10/crosswords/daily-puzzle-2025-11-11.html
