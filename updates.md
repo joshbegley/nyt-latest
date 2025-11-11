@@ -1,4 +1,8 @@
 **Late Night Is Disappointed in Democrats Over Shutdown Deal**\
+`“Our long national nightmare is different,” Stephen Colbert said after some Democratic senators voted with Republicans to end the government shutdown.`\
+https://nytimes.com/2025/11/11/arts/television/late-night-democrats-government-shutdown.html
+
+**Late Night Is Disappointed in Democrats Over Shutdown Deal**\
 `“Our long national nightmare is different,” Stephen Colbert said after eight Democratic senators voted with Republicans to end the government shutdown.`\
 https://nytimes.com/2025/11/11/arts/television/late-night-democrats-government-shutdown.html
 
