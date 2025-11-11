@@ -1,3 +1,11 @@
+**Head of N.Y.P.D. Oversight Board Resigns, Citing Pressure From Union**\
+`Dr. Mohammad Khalid, the interim chairman of the Civilian Complaint Review Board, said a “campaign of lies” about him by the head of the police union had forced him to quit.`\
+https://nytimes.com/2025/11/11/nyregion/nypd-ccrb-chairman-resign.html
+
+**Justice Dept. Says It Will Investigate U.C. Berkeley Protest**\
+`Demonstrators protested on Monday outside a Turning Point USA event at the University of California, Berkeley. University officials said a “single violent incident” took place. The Justice Department said it would investigate what had happened, citing security concerns.`\
+https://nytimes.com/video/us/politics/100000010518537/university-of-california-berkeley-protest.html
+
 **Novak Djokovic's Piers Morgan interview: Sinner, Alcaraz, the tennis GOAT debate and his career**\
 `The 24-time Grand Slam champion said it was hard to accept how Jannik Sinner and Carlos Alcaraz have started to dominate him.`\
 https://nytimes.com/athletic/6798363/2025/11/11/novak-djokovic-piers-morgan-interview/

@@ -1,3 +1,11 @@
+**Newsom Criticizes Trump’s Offshore Oil Drilling Proposal**\
+`During the United Nations climate summit on Tuesday, Gov. Gavin Newsom of California responded to President Trump’s proposal to allow new oil and gas drilling off the California coast, declaring it “dead on arrival.”`\
+https://nytimes.com/video/us/politics/100000010518941/newsom-criticizes-trumps-offshore-oil-drilling-proposal.html
+
+**Justice Department to Investigate Protests at Turning Point Event at Berkeley**\
+`The announcement came a day after protesters confronted attendees of a campus event hosted by Turning Point USA, the conservative group founded by Charlie Kirk.`\
+https://nytimes.com/2025/11/11/us/justice-department-to-investigate-protests-at-turning-point-event-at-berkeley.html
+
 **Head of N.Y.P.D. Oversight Board Resigns, Citing Pressure From Union**\
 `Dr. Mohammad Khalid, the interim chairman of the Civilian Complaint Review Board, said a “campaign of lies” about him by the head of the police union had forced him to quit.`\
 https://nytimes.com/2025/11/11/nyregion/nypd-ccrb-chairman-resign.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6799267/2025/11/11/jalen-green-injury-update-suns-n
 **Justice Dept. Says It Will Investigate U.C. Berkeley Protest**\
 `Demonstrators protested on Monday outside a Turning Point USA event at the University of California, Berkeley. University officials said a “single violent incident” took place. The Justice Department said it would investigate what had happened, citing security concerns.`\
 https://nytimes.com/video/us/politics/100000010518537/university-of-california-berkeley-protest.html
-
-**Steelers to sign CB Asante Samuel Jr. to practice squad: Sources**\
-`The fifth-year veteran will join a Steelers secondary in transition.`\
-https://nytimes.com/athletic/6799255/2025/11/11/pittsburgh-steelers-asante-samuel-jr/
-
-**James: England to learn lessons from 'super difficult' Club World Cup conditions**\
-`James experienced the American summer heat at the Club World Cup with Chelsea in 2025.`\
-https://nytimes.com/athletic/6797781/2025/11/11/reece-james-england-world-cup-conditions/
 
