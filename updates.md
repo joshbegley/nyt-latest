@@ -1,3 +1,7 @@
+**Embiid to miss 76ers' game against Celtics with right knee injury**\
+`This will mark Embiid's first unplanned absence from a game this season. `\
+https://nytimes.com/athletic/6798732/2025/11/11/joel-embiid-injury-status-76ers-celtics/
+
 **U.S. Bishops Elect New Leader as Concerns Mount Over Treatment of Migrants**\
 `“We face a growing worldview that is so often at odds with the Gospel mandate to love thy neighbor,” the group said in a letter to Pope Leo.`\
 https://nytimes.com/2025/11/11/us/bishops-coakley-immigration.html

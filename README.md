@@ -1,3 +1,7 @@
+**As Shutdown Nears End, Trump Still Confronts Soaring Health Costs**\
+`The central issue of the government closure remains unresolved, leaving Republicans under political pressure ahead of the midterms.`\
+https://nytimes.com/2025/11/11/us/politics/as-shutdown-nears-end-trump-still-confronts-soaring-health-costs.html
+
 **Embiid to miss 76ers' game against Celtics with right knee injury**\
 `This will mark Embiid's first unplanned absence from a game this season. `\
 https://nytimes.com/athletic/6798732/2025/11/11/joel-embiid-injury-status-76ers-celtics/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/11/arts/music/amplifier-newsletter-latin-grammys.htm
 **Giant opportunity: Evaluating the New York head coaching gig**\
 `Despite the franchise's woes, the New York Giants' job could be an attractive opportunity for prospective head coaches.`\
 https://nytimes.com/athletic/6797005/2025/11/11/new-york-giants-head-coach-opening/
-
-**Hornets rookie Ryan Kalkbrenner sets new record with 80.8 FG percentage to start career**\
-`Charlotte Hornets rookie Ryan Kalkbrenner has set a new record for shooting efficiency through the first 10 games of his NBA career. `\
-https://nytimes.com/athletic/6798173/2025/11/11/ryan-kalkbrenner-charlotte-hornets-field-goal-percentage-record/
 
