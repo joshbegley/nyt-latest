@@ -1,3 +1,15 @@
+**Pope Leo Shares His Favorite Movies Ahead of Vatican Event**\
+`The list leans heavily on uplifting classics.`\
+https://nytimes.com/2025/11/11/movies/pope-leo-favorite-movies.html
+
+**Meet the New Antisemites, Same as the Old Antisemites**\
+`A bigotry for morons will always be political gold in a world of morons.`\
+https://nytimes.com/2025/11/11/opinion/antisemitic-politics-carlson-fuentes.html
+
+**Crispy Coconut Tempeh**\
+`This plant-based spin on coconut shrimp uses crumbled tempeh instead of shrimp.`\
+https://nytimes.com/video/dining/100000010366164/crispy-coconut-tempeh.html
+
 **Will Bad Bunny Pull a Kendrick in 2026?**\
 `Bad Bunny’s latest album, “Debí Tirar Más Fotos,” was recently nominated for six awards, including the top three categories, at the Grammys in February — the week before he headlines the Super Bowl halftime show.`\
 https://nytimes.com/video/podcasts/100000010518836/will-bad-bunny-pull-a-kendrick-in-2026.html
