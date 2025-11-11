@@ -1,3 +1,7 @@
+**Chalobah, Trafford named in England squad as Gordon, Pope withdraw**\
+`Chalobah earned his first call-up under Tuchel in May, before making his debut against Senegal.`\
+https://nytimes.com/athletic/6797333/2025/11/11/trevoh-chalobah-james-trafford-england/
+
 **MLB offseason notes: Which way for the Twins and Rangers?**\
 `Plus more details on Pete Fairbanks' market and Shane Bieber's surprising option decision. `\
 https://nytimes.com/athletic/6797413/2025/11/11/mlb-offseason-minnesota-twins-texas-rangers/
