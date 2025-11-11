@@ -1,3 +1,11 @@
+**Canada still watching Celebrini, Bedard as it cuts list of potential Olympians to 35-40**\
+`Doug Armstrong met with his management group Monday to whittle down the list of players they're scouting before the Dec. 31 roster deadline.`\
+https://nytimes.com/athletic/6797805/2025/11/11/canada-hockey-roster-celebrini-bedard/
+
+**To Help SNAP Recipients, Bookstores Set Up as Food Banks**\
+`During the government shutdown, booksellers are collecting food for Americans who receive federal aid to buy groceries.`\
+https://nytimes.com/2025/11/11/books/bookstores-food-banks-snap-recipients.html
+
 **NFL best bets Week 11: A counterintuitive play for Lions-Eagles**\
 `After a 4-0 week, Austin Mock has a few best bets ahead of NFL Week 11. Can we keep it going?`\
 https://nytimes.com/athletic/6797699/2025/11/11/nfl-best-bets-week-11-lions-eagles/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6796694/2025/11/11/fantasy-football-week-11-drops-d
 **Judge Rejects Utah’s Republican-Drawn Redistricting Map**\
 `A judge instead adopted one drawn by a coalition of centrists ahead of the 2026 midterms. Republican officials vowed to fight the ruling.`\
 https://nytimes.com/2025/11/11/us/utah-redistricting-gerrymander-congress.html
-
-**Teaching History in the Trump Era**\
-`Readers respond to an article about how the teaching of U.S. history is changing. Also: Democratic pragmatism; emergency care at risk.`\
-https://nytimes.com/2025/11/11/opinion/teaching-us-history-trump.html
-
-**Notes From a Young Mother, to the Daughter She Left Behind**\
-`In her vivid epistolary novel “The White Hot,” the Pulitzer-winning playwright Quiara Alegría Hudes explores the long-tail legacy of maternal rage and regret.`\
-https://nytimes.com/2025/11/11/books/review/white-hot-quiara-alegria-hudes.html
 
