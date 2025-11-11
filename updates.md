@@ -1,3 +1,7 @@
+**Redrafting the top 20 fantasy football picks of 2025, given everything we know**\
+`Redrafting the 2025 top 20 for fantasy football, given everything we know today`\
+https://nytimes.com/athletic/6798936/2025/11/11/redrafting-fantasy-football-2025-nfl/
+
 **Cleto Escobedo III, Jimmy Kimmel’s Bandleader, Dies at 59**\
 `Mr. Kimmel said that he and Mr. Escobedo, who led Cleto and the Cletones on “Jimmy Kimmel Live!,” had been “inseparable since I was 9 years old.”`\
 https://nytimes.com/2025/11/11/arts/cleto-escobedo-dead-jimmy-kimmel-live.html

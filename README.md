@@ -1,3 +1,19 @@
+**Steelers to sign CB Asante Samuel Jr. to practice squad: Sources**\
+`The fifth-year veteran joins a Steelers secondary in transition.`\
+https://nytimes.com/athletic/6799255/2025/11/11/pittsburgh-steelers-asante-samuel-jr/
+
+**James: England to learn lessons from 'super difficult' Club World Cup conditions**\
+`James experienced the American summer heat at the Club World Cup with Chelsea in 2025.`\
+https://nytimes.com/athletic/6797781/2025/11/11/reece-james-england-world-cup-conditions/
+
+**Bill Belichick 'getting ready for Wake Forest,' not thinking about Giants job**\
+`Prior to finding glory as Patriots head coach, Belichick was a defensive coordinator with the Giants under Bill Parcells.`\
+https://nytimes.com/athletic/6799173/2025/11/11/bill-belichick-giants-job/
+
+**Trump criticizes NFL’s new kickoff rule on "The Pat McAfee Show"**\
+`President Donald Trump joined ESPN's "The Pat McAfee Show" to discuss the NFL's new dynamic kickoff rule and a host of other topics. `\
+https://nytimes.com/athletic/6798770/2025/11/11/trump-nfl-kickoff-pat-mcafee-show/
+
 **Cleto Escobedo III, Jimmy Kimmel’s Bandleader, Dies at 59**\
 `Mr. Kimmel said that he and Mr. Escobedo, who led Cleto and the Cletones on “Jimmy Kimmel Live!,” had been “inseparable since I was 9 years old.”`\
 https://nytimes.com/2025/11/11/arts/cleto-escobedo-dead-jimmy-kimmel-live.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/podcasts/100000010518836/will-bad-bunny-pull-a-kendric
 **Hard Fork’s First Robot Guest**\
 `NEO, a new humanoid robot that can do housekeeping, has the internet buzzing.`\
 https://nytimes.com/video/podcasts/100000010518872/hard-forks-first-robot-guest.html
-
-**Angels VP testifies MLB was involved in treating Eric Kay addiction; league denies knowledge**\
-`This is the first time MLB's involvement has been alleged at that stage, and it conflicts with other testimony from the trial. `\
-https://nytimes.com/athletic/6799030/2025/11/11/angels-mlb-eric-kay-tyler-skaggs-drug-treatment/
-
-**Jets coach Aaron Glenn refuses to talk about Garrett Wilson's injury: 'Ask Rich'**\
-`The Jets coach was combative with the media on Tuesday, seemingly in response to a report about his star receiver.`\
-https://nytimes.com/athletic/6798920/2025/11/11/aaron-glenn-garrett-wilson-injury-media/
-
-**Redrafting the top 20 fantasy football picks of 2025, given everything we know**\
-`Redrafting the 2025 top 20 for fantasy football, given everything we know today`\
-https://nytimes.com/athletic/6798936/2025/11/11/redrafting-fantasy-football-2025-nfl/
-
-**NHL to inspect Olympic hockey arena amid concerns over construction progress**\
-`The Olympics are just 90 days away, and while the NHL is getting weekly updates on arena construction, it wants to see it firsthand.`\
-https://nytimes.com/athletic/6799023/2025/11/11/nhl-milan-olympic-hockey-arena-inspection/
 
