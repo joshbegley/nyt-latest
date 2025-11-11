@@ -1,3 +1,7 @@
+**Trump Asks Supreme Court to Overturn Verdict in E. Jean Carroll Case**\
+`The president said the assertions behind a judgment that he sexually abused and defamed the writer were “implausible” and “unsubstantiated.”`\
+https://nytimes.com/2025/11/10/us/politics/trump-supreme-court-e-jean-carroll.html
+
 **Trump Pardons the Husband of a Republican Congressional Ally**\
 `Robert Harshbarger Jr. pleaded guilty in 2013 to health care fraud and distributing a misbranded drug. His wife, Diana Harshbarger, is a member of Congress.`\
 https://nytimes.com/2025/11/10/us/politics/trump-pardon-republican-harshbarger.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6796296/2025/11/10/florida-vs-ole-miss-stream-how-t
 **How to watch New Mexico State vs. Tennessee: Time, TV, streaming**\
 `Find out how to watch the New Mexico State Aggies play the Tennessee Volunteers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6796294/2025/11/10/new-mexico-state-vs-tennessee-stream-how-to-watch-nov-15/
-
-**How to watch Utah vs. Baylor: Time, TV, streaming**\
-`Find out how to watch the Utah Utes play the Baylor Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6796283/2025/11/10/utah-vs-baylor-stream-how-to-watch-nov-15/
 
