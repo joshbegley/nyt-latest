@@ -1,3 +1,7 @@
+**Palantir C.E.O. Alex Karp Finds a Safe Space With Trump**\
+`A tech billionaire professes to hate identity politics, but they seem in some ways to consume him.`\
+https://nytimes.com/2025/11/10/opinion/alex-karp-palantir-trump.html
+
 **Pete Maki returns as Twins pitching coach, but others remain in limbo: Sources**\
 `The Twins want manager Derek Shelton to have real say in naming his coaching staff, hence the overhaul.`\
 https://nytimes.com/athletic/6796166/2025/11/10/twins-pitching-coach-pete-maki-return/
