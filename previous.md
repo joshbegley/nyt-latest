@@ -1,3 +1,7 @@
+**Cubs' Cade Horton earns full year of MLB service time after second-place RoY finish**\
+`Horton didn't debut until May 10, but he seemed to get better with every start and dominated in the second half for the Cubs.`\
+https://nytimes.com/athletic/6795689/2025/11/10/cubs-cade-horton-rookie-of-the-year-nl/
+
 **For Trump, Nothing Was Off-Limits During the Shutdown**\
 `President Trump pressured Democrats by taking punishing actions no previous administration ever took during a shutdown.`\
 https://nytimes.com/2025/11/10/us/politics/trump-government-shutdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/10/us/politics/trump-pardon-republican-harshbarger.h
 **Padres, GM A.J. Preller still discussing contract extension; agreement remains expected**\
 `"I'm looking forward to being here for a long time, and I'll continue having those conversations and see where it goes," Preller said.`\
 https://nytimes.com/athletic/6796115/2025/11/10/padres-gm-a-j-preller-contract-extension-talks/
-
-**Braves' Drake Baldwin wins NL Rookie of the Year, edging out Cubs' Cade Horton**\
-`Baldwin, 24, is the sixth Braves player to win the National League's Rookie of the Year since 1990.`\
-https://nytimes.com/athletic/6795952/2025/11/10/atlanta-braves-drake-baldwin-nl-rookie-of-the-year-win/
 

@@ -1,3 +1,7 @@
+**Cubs' Cade Horton earns full year of MLB service time after second-place RoY finish**\
+`Horton didn't debut until May 10, but he seemed to get better with every start and dominated in the second half for the Cubs.`\
+https://nytimes.com/athletic/6795689/2025/11/10/cubs-cade-horton-rookie-of-the-year-nl/
+
 **For Trump, Nothing Was Off-Limits During the Shutdown**\
 `President Trump pressured Democrats by taking punishing actions no previous administration ever took during a shutdown.`\
 https://nytimes.com/2025/11/10/us/politics/trump-government-shutdown.html
