@@ -1,3 +1,7 @@
+**Braves overhaul coaching staff with plenty of younger, accomplished newcomers**\
+`While conducting extensive background checks, Alex Anthopoulos said connections emerged among many of them, which was a bonus.`\
+https://nytimes.com/athletic/6798909/2025/11/11/braves-coaching-staff-younger-accomplished-newcomers/
+
 **Novak Djokovic's Piers Morgan interview: Sinner, Alcaraz, the tennis GOAT debate and his career**\
 `The 24-time Grand Slam champion said that it was hard to accept how Jannik Sinner and Carlos Alcaraz have started to dominate him.`\
 https://nytimes.com/athletic/6798363/2025/11/11/novak-djokovic-piers-morgan-interview/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6797781/2025/11/11/reece-james-england-world-cup-co
 **Bill Belichick 'getting ready for Wake Forest,' not thinking about Giants job**\
 `Before finding glory as Patriots head coach, Belichick was a defensive coordinator with the Giants under Bill Parcells.`\
 https://nytimes.com/athletic/6799173/2025/11/11/bill-belichick-giants-job/
-
-**Trump criticizes NFL’s new kickoff rule on 'The Pat McAfee Show'**\
-`President Donald Trump joined ESPN's "The Pat McAfee Show" to discuss the NFL's new dynamic kickoff rule and a host of other topics. `\
-https://nytimes.com/athletic/6798770/2025/11/11/trump-nfl-kickoff-pat-mcafee-show/
 
