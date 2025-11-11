@@ -1,5 +1,9 @@
+**Luka Dončić gets a real dunk in bounce back Lakers win at Charlotte**\
+`Dončić showing some bounce was the highlight in a bounce-back win for the Laker`\
+https://nytimes.com/athletic/6796750/2025/11/11/luka-doncic-lakers-hornets-nba/
+
 **Cooper Flagg's best effort yet not enough to beat Giannis Antetokounmpo, Bucks**\
-`Antetokounmpo ended with 30 points and Flagg had 26 in a wild back-and-forth affair in Dallas on Monday night.`\
+`Antetokounmpo ended with 30 points and Flagg had 26 in a wild back-and-forth affair Monday night in Dallas.`\
 https://nytimes.com/athletic/6796804/2025/11/11/giannis-antetokounmpo-bucks-cooper-flagg-mavericks-nba/
 
 **Andrew Wiggins' game-winning alley-oop continues Miami's exciting start**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6794752/2025/11/11/liverpool-premier-league-issues/
 **How the authorities took down the world's largest illegal sports streaming platform**\
 `As part of a new podcast documentary on illegal streaming, The Athletic finds out how Streameast was shut down`\
 https://nytimes.com/athletic/6742754/2025/11/11/streameast-illegal-streaming-raid/
-
-**629 days out, winner of finals, uncertain future: What's going on with Ferland Mendy at Real Madrid?**\
-`Madrid's French left-back has not played since April and is an enigmatic figure behind the scenes. What does his future hold?`\
-https://nytimes.com/athletic/6794485/2025/11/11/real-madrid-ferland-mendy-analysis/
 
