@@ -1,3 +1,15 @@
+**Luka Dončić gets a real dunk in bounce-back Lakers win at Charlotte**\
+`Dončić showing some bounce was the highlight in the Lakers' 121-111 win over the Hornets.`\
+https://nytimes.com/athletic/6796750/2025/11/11/luka-doncic-lakers-hornets-nba/
+
+**Cooper Flagg's best effort yet not enough to beat Giannis Antetokounmpo, Bucks**\
+`Antetokounmpo ended with 30 points and Flagg had 26 in a wild back-and-forth affair Monday night in Dallas.`\
+https://nytimes.com/athletic/6796804/2025/11/11/giannis-antetokounmpo-bucks-cooper-flagg-mavericks-nba/
+
+**Andrew Wiggins' game-winning alley-oop slam continues Miami's exciting start**\
+`The win brings Miami to 7-4 to begin the season, marking its best 11-game start since beginning the 2019-20 season.`\
+https://nytimes.com/athletic/6796704/2025/11/11/andrew-wiggins-alley-oop-heat/
+
 **Cooper Flagg's best effort yet not enough to beat Giannis Antetokounmpo, Bucks**\
 `Antetokounmpo ended with 30 points and Flagg had 26 in a wild back-and-forth affair in Dallas on Monday night.`\
 https://nytimes.com/athletic/6796804/2025/11/11/giannis-antetokounmpo-bucks-cooper-flagg-mavericks-nba/
