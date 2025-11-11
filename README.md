@@ -1,3 +1,15 @@
+**Airline Problems Will Linger Even if Government Shutdown Ends**\
+`There is hope the Thanksgiving holiday will be spared, but carriers will need some time to deal with the disruptions that the shutdown has caused for air travel.`\
+https://nytimes.com/2025/11/11/business/air-travel-government-shutdown-airlines.html
+
+**Galatasaray, Besiktas players among 1,024 footballers suspended by Turkish FA in betting probe**\
+`It comes after the TFF suspended 149 match officials last month following their alleged involvement in a betting scandal.`\
+https://nytimes.com/athletic/6797300/2025/11/11/turkey-betting-galatasaray-besiktas/
+
+**Mavericks will fire Nico Harrison 9 months after Luka Dončić trade: Sources**\
+`Harrison's tenure ends nine months after he traded Luka Dončić to the Los Angeles Lakers, a move that upended an NBA Finals contender.`\
+https://nytimes.com/athletic/6794592/2025/11/11/nico-harrison-fired-mavericks-nba/
+
 **Canada still watching Celebrini, Bedard as it cuts list of potential Olympians to 35-40**\
 `Doug Armstrong met with his management group Monday to whittle down the list of players they're scouting before the Dec. 31 roster deadline.`\
 https://nytimes.com/athletic/6797805/2025/11/11/canada-hockey-roster-celebrini-bedard/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6795337/2025/11/11/college-football-playoff-odds-te
 **2025 NFL Playoff Simulator: Each team’s path to the postseason after surprises in Week 10**\
 `<p>Welcome to The Athletic’s 2025 NFL Playoff Simulator, where you’ll find everything you need to know about all the ways your favorite team&#8217;s season could end, from a No.`\
 https://nytimes.com/athletic/6513952/2025/11/11/2025-nfl-playoff-simulator-path-postseason/
-
-**Giannis, Luka, Joker, SGA: These Fab Four are ruling the NBA this season**\
-`This quartet of stars has been awesome for most of the last half-decade ... and they may be having their best seasons ever.`\
-https://nytimes.com/athletic/6795852/2025/11/11/giannis-luka-jokic-sga-nba-cup-raptors/
-
-**Fantasy football Week 11 drops: Chasing away Sam Darnold, Chuba Hubbard and more**\
-`Gary Davenport identifies players who are struggling to validate their spot on fantasy rosters, including a fantasy standout of 2024.`\
-https://nytimes.com/athletic/6796694/2025/11/11/fantasy-football-week-11-drops-darnold-jcm-chuba/
-
-**Judge Rejects Utah’s Republican-Drawn Redistricting Map**\
-`A judge instead adopted one drawn by a coalition of centrists ahead of the 2026 midterms. Republican officials vowed to fight the ruling.`\
-https://nytimes.com/2025/11/11/us/utah-redistricting-gerrymander-congress.html
 
