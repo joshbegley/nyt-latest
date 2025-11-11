@@ -1,3 +1,11 @@
+**Creamy Butternut Squash Noodle Soup; Shrimp and Bacon Burritas**\
+`This week’s batch of fast weeknight dinners is hearty, not heavy.`\
+https://nytimes.com/2025/11/11/dining/creamy-butternut-squash-noodle-soup-shrimp-and-bacon-burritas.html
+
+**Red Light: Five not-so-early hot takes. Plus: Opening the righty vs. lefty can of worms**\
+`We’re a full month into the season, and it’s time to start staking our territory.`\
+https://nytimes.com/athletic/6797979/2025/11/11/red-light-early-nhl-takes/
+
 **Airline Problems Will Linger Even if Government Shutdown Ends**\
 `There is hope the Thanksgiving holiday will be spared, but carriers will need some time to deal with the disruptions that the shutdown has caused for air travel.`\
 https://nytimes.com/2025/11/11/business/air-travel-government-shutdown-airlines.html
@@ -29,8 +37,4 @@ https://nytimes.com/athletic/6736139/2025/11/11/hannibal-mejbri-spitting-charge-
 **College Football Playoff odds: Which two-loss teams are likely to crash the party?**\
 `Texas Tech surged in the odds to make the College Football Playoff while BYU dropped. Who else made moves in Week 11?`\
 https://nytimes.com/athletic/6795337/2025/11/11/college-football-playoff-odds-texas-tech/
-
-**2025 NFL Playoff Simulator: Each team’s path to the postseason after surprises in Week 10**\
-`<p>Welcome to The Athletic’s 2025 NFL Playoff Simulator, where you’ll find everything you need to know about all the ways your favorite team&#8217;s season could end, from a No.`\
-https://nytimes.com/athletic/6513952/2025/11/11/2025-nfl-playoff-simulator-path-postseason/
 

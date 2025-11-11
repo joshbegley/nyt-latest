@@ -1,3 +1,11 @@
+**Creamy Butternut Squash Noodle Soup; Shrimp and Bacon Burritas**\
+`This week’s batch of fast weeknight dinners is hearty, not heavy.`\
+https://nytimes.com/2025/11/11/dining/creamy-butternut-squash-noodle-soup-shrimp-and-bacon-burritas.html
+
+**Red Light: Five not-so-early hot takes. Plus: Opening the righty vs. lefty can of worms**\
+`We’re a full month into the season, and it’s time to start staking our territory.`\
+https://nytimes.com/athletic/6797979/2025/11/11/red-light-early-nhl-takes/
+
 **Airline Problems Will Linger Even if Government Shutdown Ends**\
 `There is hope the Thanksgiving holiday will be spared, but carriers will need some time to deal with the disruptions that the shutdown has caused for air travel.`\
 https://nytimes.com/2025/11/11/business/air-travel-government-shutdown-airlines.html
