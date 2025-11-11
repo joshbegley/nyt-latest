@@ -1,3 +1,7 @@
+**Vote: Who are the top 10 men's soccer players of all time?**\
+`To coincide with the launch of our Soccer 100 book, we want to know who you think are the greatest footballers ever...`\
+https://nytimes.com/athletic/6644046/2025/11/11/vote-soccer-100-top-mens-players/
+
 **Bundesliga Briefing: Bayern Munich and the pressure of anything but perfection**\
 `Bayern Munich were held to a 2-2 draw with Union Berlin on Saturday - and the criticism says a lot about the club's status in Germany.`\
 https://nytimes.com/athletic/6794078/2025/11/11/bundesliga-briefing-bayern-munich-union-berlin/
