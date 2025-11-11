@@ -1,3 +1,7 @@
+**Police Investigate Deadly New Delhi Blast as Possible Terrorist Attack**\
+`India’s prime minister, Narendra Modi, said the “conspirators” behind an explosion that killed at least eight people would be brought to justice.`\
+https://nytimes.com/2025/11/11/world/asia/india-delhi-explosion-terror.html
+
 **‘Flesh’ by David Szalay Wins 2025 Booker Prize**\
 `David Szalay became the first British Hungarian to win the prestigious Booker Prize for his novel “Flesh.”`\
 https://nytimes.com/video/books/100000010517272/booker-prize-2025-david-szalay-flesh.html
