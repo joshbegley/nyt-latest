@@ -1,3 +1,15 @@
+**Leitch: Uh, I think I just caught myself rooting for Bill Belichick?**\
+`When North Carolina beat Stanford for its second win in a row, I had an unexpected response. Did I just cheer for Bill Belichick?`\
+https://nytimes.com/athletic/6795246/2025/11/11/bill-belichick-north-carolina-winnning-bowl/
+
+**Liverpool could 'help' Wirtz by 'scoring the chances he creates' - Nagelsmann**\
+`Nagelsmann insisted that Liverpool's instability and poor finishing have contributed to the 22-year-old frustrating start at Anfield.`\
+https://nytimes.com/athletic/6797209/2025/11/11/florian-wirtz-liverpool-form-nagelsmann/
+
+**Men's college basketball Tuesday guide: 8 games to watch across a full slate**\
+`Nonconference? Boring? Who would suggest such a thing? Tuesday night's college basketball schedule is, in fact, loaded.`\
+https://nytimes.com/athletic/6795228/2025/11/11/kentucky-louisville-texas-tech-illinois-college-basketball-youtube-tv/
+
 **Explosion in Pakistan’s Capital Kills at Least 12**\
 `A military official accused the Pakistani Taliban of staging the attack, which took place near a courthouse in Islamabad.`\
 https://nytimes.com/2025/11/11/world/africa/pakistan-explosion-islamabad.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6795958/2025/11/11/jj-mccarthy-vikings-growing-pain
 **England point to 'volume of cricket' as justification for solitary Ashes warm-up fixture**\
 `Assistant coach Marcus Trescothick has pointed to a cluttered calendar which has limited the team to a single warm-up fixture`\
 https://nytimes.com/athletic/6797198/2025/11/11/england-ashes-warmup-trescothick/
-
-**Epic collapse: Blue Jackers fritter away late two-goal lead, lose to Oilers in OT**\
-`The Blue Jackets had a 4-3 lead on the power play with a little over two minutes to go.`\
-https://nytimes.com/athletic/6796491/2025/11/11/blue-jackets-collapse-oilers-overtime/
-
-**Democrats Denounce Shutdown Vote, and Trump Issues Flurry of Pardons**\
-`Plus, a new gambling scandal in pro sports.`\
-https://nytimes.com/2025/11/11/podcasts/the-headlines/democrats-shutdown-vote-trump-pardons.html
-
-**OKC's Mark Daigneault unplugged: The art of coaching the ambitious defending champs**\
-`Thunder players took time to soak up their championship win this summer. Now, they're still winning. Could they be even better?`\
-https://nytimes.com/athletic/6795987/2025/11/11/mark-daigneault-okc-thunder-unplugged/
 
