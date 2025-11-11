@@ -1,3 +1,15 @@
+**Explosion in Pakistan’s Capital Kills at Least 12**\
+`A military official accused the Pakistani Taliban of staging the attack, which took place near a courthouse in Islamabad.`\
+https://nytimes.com/2025/11/11/world/africa/pakistan-explosion-islamabad.html
+
+**Chiefs pushing to create a new varsity sport in Kansas and Missouri. An April vote looms**\
+`The Chiefs have started a movement to start local girls flag football teams. But will it pass a big April test?`\
+https://nytimes.com/athletic/6784901/2025/11/11/chiefs-girls-flag-football-movement/
+
+**How the Bears' high-end talent shined through in high-leverage moments vs. Giants**\
+`With a thin margin for error, three top-10 draft picks excelled on the same snap to spark a rousing Bears comeback win.`\
+https://nytimes.com/athletic/6795821/2025/11/11/bears-caleb-williams-colston-loveland-giants/
+
 **'Guys got too big-headed': What doomed the Panthers in their loss to Saints?**\
 `The Saints just provided the blueprint to slow the Panthers' run game. Carolina has to find a way to throw the ball downfield in response.`\
 https://nytimes.com/athletic/6795820/2025/11/11/panthers-loss-downfield-passing-saints/
@@ -11,7 +23,7 @@ https://nytimes.com/athletic/6796518/2025/11/11/lions-dan-campbell-play-calling-
 https://nytimes.com/athletic/6795958/2025/11/11/jj-mccarthy-vikings-growing-pains/
 
 **England point to 'volume of cricket' as justification for solitary Ashes warm-up fixture**\
-`Assistant coach Marcus Trescothick has pointed to a cluttered calendar which has limited the team to a solitary warm-up fixture`\
+`Assistant coach Marcus Trescothick has pointed to a cluttered calendar which has limited the team to a single warm-up fixture`\
 https://nytimes.com/athletic/6797198/2025/11/11/england-ashes-warmup-trescothick/
 
 **Epic collapse: Blue Jackers fritter away late two-goal lead, lose to Oilers in OT**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/11/podcasts/the-headlines/democrats-shutdown-vote-tr
 **OKC's Mark Daigneault unplugged: The art of coaching the ambitious defending champs**\
 `Thunder players took time to soak up their championship win this summer. Now, they're still winning. Could they be even better?`\
 https://nytimes.com/athletic/6795987/2025/11/11/mark-daigneault-okc-thunder-unplugged/
-
-**Red Sox want a No. 2 starter, power bat, Trevor Story at shortstop: Notes from GM meetings**\
-`The Boston Red Sox have their offseason targets, critical among them finding a frontline pitcher.`\
-https://nytimes.com/athletic/6796525/2025/11/11/red-sox-trevor-story-shortstop-gm-meetings/
-
-**Texas Tech's JT Toppin, college basketball's $4M man, plans to prove he's only getting started**\
-`After flirting with the NBA, the Big 12 player of the year returned to school with a new deal and more to achieve.`\
-https://nytimes.com/athletic/6795544/2025/11/11/texas-tech-basketball-jt-toppin/
-
-**Why Packers' Matt LaFleur might be coaching for his job after loss to Eagles**\
-`The 5-3-1 Packers look just like they did a year ago and the year before that — a good team, not a great one.`\
-https://nytimes.com/athletic/6797003/2025/11/11/packers-matt-lafleur-job-eagles-mnf/
 

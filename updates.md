@@ -1,3 +1,19 @@
+**Explosion in Pakistan’s Capital Kills at Least 12**\
+`A military official accused the Pakistani Taliban of staging the attack, which took place near a courthouse in Islamabad.`\
+https://nytimes.com/2025/11/11/world/africa/pakistan-explosion-islamabad.html
+
+**Chiefs pushing to create a new varsity sport in Kansas and Missouri. An April vote looms**\
+`The Chiefs have started a movement to start local girls flag football teams. But will it pass a big April test?`\
+https://nytimes.com/athletic/6784901/2025/11/11/chiefs-girls-flag-football-movement/
+
+**How the Bears' high-end talent shined through in high-leverage moments vs. Giants**\
+`With a thin margin for error, three top-10 draft picks excelled on the same snap to spark a rousing Bears comeback win.`\
+https://nytimes.com/athletic/6795821/2025/11/11/bears-caleb-williams-colston-loveland-giants/
+
+**England point to 'volume of cricket' as justification for solitary Ashes warm-up fixture**\
+`Assistant coach Marcus Trescothick has pointed to a cluttered calendar which has limited the team to a single warm-up fixture`\
+https://nytimes.com/athletic/6797198/2025/11/11/england-ashes-warmup-trescothick/
+
 **'Guys got too big-headed': What doomed the Panthers in their loss to Saints?**\
 `The Saints just provided the blueprint to slow the Panthers' run game. Carolina has to find a way to throw the ball downfield in response.`\
 https://nytimes.com/athletic/6795820/2025/11/11/panthers-loss-downfield-passing-saints/
