@@ -1,3 +1,15 @@
+**Brian Daboll is suddenly available; could he cure the Bills' offensive woes?**\
+`Josh Allen's far-away gaze in Miami looked a lot like the one he sported right before the Bills fired Ken Dorsey.`\
+https://nytimes.com/athletic/6796200/2025/11/10/brian-daboll-bills-offense-josh-allen/
+
+**Shutdown Deal Revives Democratic Infighting**\
+`The agreement prompted a backlash within the party, not only against the Democratic defectors who supported it, but against Senator Chuck Schumer, the leader who did not.`\
+https://nytimes.com/2025/11/10/us/politics/shutdown-deal-revives-democratic-infighting.html
+
+**Ex-Cubs pitcher, 2016 World Series champ Kyle Hendricks to retire: Source**\
+`Hendricks, who will turn 36 next month, wants to spend time at home with his family and enjoy his private life.`\
+https://nytimes.com/athletic/6796370/2025/11/10/chicago-cubs-kyle-hendricks-retirement/
+
 **Trump Asks Supreme Court to Overturn Verdict in E. Jean Carroll Case**\
 `The president said the assertions behind a judgment that he sexually abused and defamed the writer were “implausible” and “unsubstantiated.”`\
 https://nytimes.com/2025/11/10/us/politics/trump-supreme-court-e-jean-carroll.html
