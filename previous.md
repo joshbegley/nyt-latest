@@ -1,3 +1,7 @@
+**For Trump, Nothing Was Off-Limits During the Shutdown**\
+`President Trump pressured Democrats by taking punishing actions no previous administration ever took during a shutdown.`\
+https://nytimes.com/2025/11/10/us/politics/for-trump-nothing-was-off-limits-during-the-shutdown.html
+
 **Dodgers could be in on Kyle Tucker, also exploring their internal outfield options**\
 `The Dodgers are always looming for the biggest free agents, and this will likely be no exception.`\
 https://nytimes.com/athletic/6796376/2025/11/10/los-angeles-dodgers-kyle-tucker-pursuit/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6796115/2025/11/10/padres-gm-a-j-preller-contract-e
 **Braves' Drake Baldwin wins NL Rookie of the Year, edging out Cubs' Cade Horton**\
 `Baldwin, 24, is the sixth Braves player to win the National League's Rookie of the Year since 1990.`\
 https://nytimes.com/athletic/6795952/2025/11/10/atlanta-braves-drake-baldwin-nl-rookie-of-the-year-win/
-
-**Palantir C.E.O. Alex Karp Finds a Safe Space With Trump**\
-`A tech billionaire professes to hate identity politics, but they seem in some ways to consume him.`\
-https://nytimes.com/2025/11/10/opinion/alex-karp-palantir-trump.html
 
