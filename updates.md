@@ -1,3 +1,19 @@
+**Hornets rookie Ryan Kalkbrenner sets new record with 80.8 FG percentage to start career**\
+`Charlotte Hornets rookie Ryan Kalkbrenner has set a new record for shooting efficiency through the first 10 games of his NBA career. `\
+https://nytimes.com/athletic/6798173/2025/11/11/ryan-kalkbrenner-charlotte-hornets-field-goal-percentage-record/
+
+**Four-time NBA All-Star Michael Ray Richardson dies at 70**\
+`Michael Ray Richardson played eight seasons in the NBA before being banned for violating the league's drug policy for a third time.`\
+https://nytimes.com/athletic/6798478/2025/11/11/michael-ray-richardson-dies-70/
+
+**Aircraft Carrier Moves into the Caribbean as U.S. Confronts Venezuela**\
+`The arrival of the carrier bolsters the already extensive deployment of American forces in the region. Britain will cease sharing some intelligence with the U.S. because of concerns over boat strikes.`\
+https://nytimes.com/2025/11/11/us/politics/aircraft-carrier-moves-into-the-caribbean-as-us-confronts-venezuela.html
+
+**NFL MVP odds: Two new favorites knock Mahomes and Allen off the top**\
+`It's not the Allen-Mahomes show anymore. Here's how the MVP odds stack up heading into Week 11.`\
+https://nytimes.com/athletic/6798495/2025/11/11/nfl-mvp-odds-stafford-maye-taylor/
+
 **How a potential MLB lockout next offseason could impact the Giants' current offseason**\
 `The Giants have excelled in free agency by signing starters to one-year deals. Free agents may be less inclined to take those this winter.`\
 https://nytimes.com/athletic/6796480/2025/11/11/sf-giants-offseason-pitching-targets-contract-length/
