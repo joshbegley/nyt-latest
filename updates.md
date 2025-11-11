@@ -1,3 +1,15 @@
+**Police Chase Driver Across Southern California Until She Escapes Into Mexico**\
+`The woman stole a minivan, police said, beginning a dramatic pursuit that spanned four counties and reached speeds of 90 miles per hour.`\
+https://nytimes.com/2025/11/11/us/car-chase-police-mexico-la.html
+
+**A Daniel Jones blueprint? A Mac Jones argument? Week 10 film review**\
+`Also, taking a look at who could be a good play-caller option to be Jaxson Dart's new head coach with the New York Giants.`\
+https://nytimes.com/athletic/6793888/2025/11/11/daniel-jones-49ers-quarterback-controversy/
+
+**Jaelan Phillips stands out in win but is the Eagles defense sustainable?**\
+`Phialdelphia's defense has carried the team throughout the season, with the addition of Phillips making the formula even stronger.`\
+https://nytimes.com/athletic/6795914/2025/11/11/jaelan-phillips-eagles-defense/
+
 **How did an expansion castoff become a top scorer? The specs and story behind his stick**\
 `Morgan Geekie has scored 11 goals already in 2025-26 after his 33-goal breakout in 2024-25. What's his secret?`\
 https://nytimes.com/athletic/6784202/2025/11/11/bruins-morgan-geekie-stick-specs/
