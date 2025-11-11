@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6798909/2025/11/11/braves-coaching-staff-younger-accomplished-newcomers/
 
 **Novak Djokovic's Piers Morgan interview: Sinner, Alcaraz, the tennis GOAT debate and his career**\
-`The 24-time Grand Slam champion said that it was hard to accept how Jannik Sinner and Carlos Alcaraz have started to dominate him.`\
+`The 24-time Grand Slam champion said it was hard to accept how Jannik Sinner and Carlos Alcaraz have started to dominate him.`\
 https://nytimes.com/athletic/6798363/2025/11/11/novak-djokovic-piers-morgan-interview/
 
 **What if Democrats’ Big Shutdown Loss Turns Out to Be a Win?**\
