@@ -1,3 +1,7 @@
+**Giant opportunity: Evaluating the New York head coaching gig**\
+`Despite the franchise's woes, the New York Giants' job could be an attractive opportunity for prospective head coaches.`\
+https://nytimes.com/athletic/6797005/2025/11/11/new-york-giants-head-coach-opening/
+
 **Hornets rookie Ryan Kalkbrenner sets new record with 80.8 FG percentage to start career**\
 `Charlotte Hornets rookie Ryan Kalkbrenner has set a new record for shooting efficiency through the first 10 games of his NBA career. `\
 https://nytimes.com/athletic/6798173/2025/11/11/ryan-kalkbrenner-charlotte-hornets-field-goal-percentage-record/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6798132/2025/11/11/crystal-palace-deny-fa-charge-ba
 **Turkey Seeks 2,000-Year Jail Sentence for Erdogan’s Top Political Rival**\
 `Prosecutors accused Ekrem Imamoglu, the mayor of Istanbul, of leading a criminal organization. The opposition called the case politically motivated.`\
 https://nytimes.com/2025/11/11/world/middleeast/istanbul-mayor-jail-sentence-turkey.html
-
-**Critical fantasy football insights for Week 11: Has Alvin Kamara finally expired?**\
-`Brandon Funston and Jess Bryant look at usage metrics to give actionable Week 11 fantasy football advice. `\
-https://nytimes.com/athletic/6794622/2025/11/11/critical-insights-usage-fantasy-football-week-11/
 

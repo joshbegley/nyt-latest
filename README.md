@@ -1,3 +1,7 @@
+**A Latin Grammys Primer in 11 Songs**\
+`Prepare for the big show on Thursday with tracks by nominated artists: Karol G, Sued Nunes, Ivan Cornejo and more.`\
+https://nytimes.com/2025/11/11/arts/music/amplifier-newsletter-latin-grammys.html
+
 **Giant opportunity: Evaluating the New York head coaching gig**\
 `Despite the franchise's woes, the New York Giants' job could be an attractive opportunity for prospective head coaches.`\
 https://nytimes.com/athletic/6797005/2025/11/11/new-york-giants-head-coach-opening/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6797005/2025/11/11/new-york-giants-head-coach-openi
 https://nytimes.com/athletic/6798173/2025/11/11/ryan-kalkbrenner-charlotte-hornets-field-goal-percentage-record/
 
 **Four-time NBA All-Star Michael Ray Richardson dies at 70**\
-`Michael Ray Richardson played eight seasons in the NBA before being banned for violating the league's drug policy for a third time.`\
+`Richardson played eight seasons in the NBA before being banned for violating the league's drug policy for a third time.`\
 https://nytimes.com/athletic/6798478/2025/11/11/michael-ray-richardson-dies-70/
 
 **Aircraft Carrier Moves into the Caribbean as U.S. Confronts Venezuela**\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6798524/2025/11/11/submit-your-questions-for-murat-
 **Palace deny FA charge over banner during Forest game**\
 `Palace were alleged to have failed to ensure its fans "didn’t behave in an improper, offensive, abusive, insulting and/or provocative way”.`\
 https://nytimes.com/athletic/6798132/2025/11/11/crystal-palace-deny-fa-charge-banner/
-
-**Turkey Seeks 2,000-Year Jail Sentence for Erdogan’s Top Political Rival**\
-`Prosecutors accused Ekrem Imamoglu, the mayor of Istanbul, of leading a criminal organization. The opposition called the case politically motivated.`\
-https://nytimes.com/2025/11/11/world/middleeast/istanbul-mayor-jail-sentence-turkey.html
 
