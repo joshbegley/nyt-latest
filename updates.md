@@ -1,3 +1,11 @@
+**Nico Harrison firing is viewed as inevitable in NBA circles: Sources**\
+`Dallas fans have chanted "Fire Nico" since the Luka Dončić trade in February. They may soon get their wish, according to league sources.`\
+https://nytimes.com/athletic/6796931/2025/11/11/mavs-nico-harrison-firing-luka-doncic-nba-trade/
+
+**Eagles Edge Packers in Cold Monday Night Football Matchup**\
+`In a game that featured the only scoreless Monday Night Football first half since 2009, the Philadelphia Eagles prevailed on the road, beating the Green Bay Packers 10-7.`\
+https://nytimes.com/video/the-athletic/100000010517920/eagles-edge-packers-in-cold-monday-night-football-matchup.html
+
 **What a Government Shutdown Solution Hasn’t Solved**\
 `Even with a legislative breakthrough looking imminent, air travel faces ongoing delays, and health insurance costs are still set to jump.`\
 https://nytimes.com/2025/11/11/business/dealbook/shutdown-flights-health-care.html

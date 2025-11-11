@@ -1,3 +1,11 @@
+**Nico Harrison firing is viewed as inevitable in NBA circles: Sources**\
+`Dallas fans have chanted "Fire Nico" since the Luka Dončić trade in February. They may soon get their wish, according to league sources.`\
+https://nytimes.com/athletic/6796931/2025/11/11/mavs-nico-harrison-firing-luka-doncic-nba-trade/
+
+**Eagles Edge Packers in Cold Monday Night Football Matchup**\
+`In a game that featured the only scoreless Monday Night Football first half since 2009, the Philadelphia Eagles prevailed on the road, beating the Green Bay Packers 10-7.`\
+https://nytimes.com/video/the-athletic/100000010517920/eagles-edge-packers-in-cold-monday-night-football-matchup.html
+
 **What a Government Shutdown Solution Hasn’t Solved**\
 `Even with a legislative breakthrough looking imminent, air travel faces ongoing delays, and health insurance costs are still set to jump.`\
 https://nytimes.com/2025/11/11/business/dealbook/shutdown-flights-health-care.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/11/world/americas/michelino-sunseri-pardon-trump.htm
 **Chalobah, Trafford named in England squad as Gordon, Pope withdraw**\
 `Chalobah earned his first call-up under Tuchel in May, before making his debut against Senegal.`\
 https://nytimes.com/athletic/6797333/2025/11/11/trevoh-chalobah-james-trafford-england/
-
-**MLB offseason notes: Which way for the Twins and Rangers?**\
-`Plus more details on Pete Fairbanks' market and Shane Bieber's surprising option decision. `\
-https://nytimes.com/athletic/6797413/2025/11/11/mlb-offseason-minnesota-twins-texas-rangers/
-
-**Alan Sheehan sacked as Swansea City head coach**\
-`Sheehan, 39, was named as Swansea boss on a permanent three-year deal in April following a successful period as caretaker from February.`\
-https://nytimes.com/athletic/6797444/2025/11/11/alan-sheehan-sacked-swansea-head-coach/
 
