@@ -1,3 +1,7 @@
+**Padres, GM A.J. Preller still discussing contract extension; agreement remains expected**\
+`"I'm looking forward to being here for a long time, and I'll continue having those conversations and see where it goes," Preller said.`\
+https://nytimes.com/athletic/6796115/2025/11/10/padres-gm-a-j-preller-contract-extension-talks/
+
 **Braves' Drake Baldwin wins NL Rookie of the Year, edging out Cubs' Cade Horton**\
 `Baldwin, 24, is the sixth Braves player to win the National League's Rookie of the Year since 1990.`\
 https://nytimes.com/athletic/6795952/2025/11/10/atlanta-braves-drake-baldwin-nl-rookie-of-the-year-win/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6796283/2025/11/10/utah-vs-baylor-stream-how-to-wat
 **How to watch Purdue vs. Washington: Time, TV, streaming**\
 `Find out how to watch the Purdue Boilermakers play the Washington Huskies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6796265/2025/11/10/purdue-vs-washington-stream-how-to-watch-nov-15/
-
-**How to watch UCLA vs. Ohio State: Time, TV, streaming**\
-`Find out how to watch the UCLA Bruins play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6796267/2025/11/10/ucla-vs-ohio-state-stream-how-to-watch-nov-15/
 
