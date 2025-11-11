@@ -1,3 +1,11 @@
+**For the Phoenix Suns, one possession, 10 passes and a defining trait in a surprising start**\
+`Winners of five of their last six games, the Suns are starting to find themselves. And their unselfishness is a strength.`\
+https://nytimes.com/athletic/6796943/2025/11/11/phoenix-suns-grayson-allen-3-pointer-possession-passes/
+
+**After 10 dismal games, Pelicans have far more questions than answers**\
+`New Orleans has a coach on the hot seat and a star once again in limbo to go along with its 2-8 record. Can change be far away?`\
+https://nytimes.com/athletic/6797175/2025/11/11/pelicans-willie-green-zion-williamson-rookies/
+
 **Nico Harrison firing is viewed as inevitable in NBA circles: Sources**\
 `Dallas fans have chanted "Fire Nico" since the Luka Dončić trade in February. They may soon get their wish, according to league sources.`\
 https://nytimes.com/athletic/6796931/2025/11/11/mavs-nico-harrison-firing-luka-doncic-nba-trade/
