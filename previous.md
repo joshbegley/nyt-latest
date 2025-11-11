@@ -1,3 +1,7 @@
+**New York Giants Fire Coach Brian Daboll**\
+`The New York Giants fired Brian Daboll, their head coach, on Monday. Daboll was the N.F.L.’s coach of the year in 2022. Then came a stunning fall.`\
+https://nytimes.com/video/the-athletic/100000010516877/new-york-giants-fire-coach-brian-daboll.html
+
 **Full Time: Don't call Gotham an 'underdog.'**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6795907/2025/11/10/gotham-current-upset-nwsl-full-time/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6796505/2025/11/10/lenny-wilkens-passing-nba-coache
 **Cubs' Cade Horton earns full year of MLB service time after second-place ROY finish**\
 `Horton didn't debut until May 10, but he seemed to get better with every start and dominated in the second half for the Cubs.`\
 https://nytimes.com/athletic/6795689/2025/11/10/cubs-cade-horton-rookie-of-the-year-nl/
-
-**For Trump, Nothing Was Off-Limits During the Shutdown**\
-`President Trump pressured Democrats by taking punishing actions no previous administration ever took during a shutdown.`\
-https://nytimes.com/2025/11/10/us/politics/trump-government-shutdown.html
 

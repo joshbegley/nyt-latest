@@ -1,3 +1,7 @@
+**New York Giants Fire Coach Brian Daboll**\
+`The New York Giants fired Brian Daboll, their head coach, on Monday. Daboll was the N.F.L.’s coach of the year in 2022. Then came a stunning fall.`\
+https://nytimes.com/video/the-athletic/100000010516877/new-york-giants-fire-coach-brian-daboll.html
+
 **Full Time: Don't call Gotham an 'underdog.'**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6795907/2025/11/10/gotham-current-upset-nwsl-full-time/
