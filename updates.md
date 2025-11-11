@@ -1,3 +1,7 @@
+**Arsenal and Palace fixtures moved after making PL request**\
+`Both sides, who play each other in the Carabao Cup quarter-finals on December 23, have had league fixtures brought forward to December 20.`\
+https://nytimes.com/athletic/6797358/2025/11/11/arsenal-palace-premier-league-matches-moved/
+
 **West Ham's Soucek considered retiring during 'two years of horror' with insomnia**\
 `Soucek detailed his “unbearable” ordeal in a new autobiography, serialised by Czech publication iDNES.`\
 https://nytimes.com/athletic/6797382/2025/11/11/west-ham-news-tomas-soucek/
