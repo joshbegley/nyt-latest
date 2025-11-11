@@ -1,3 +1,7 @@
+**Full Time: Don't call Gotham an 'underdog.'**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6795907/2025/11/10/gotham-current-upset-nwsl-full-time/
+
 **Dismantled by DOGE, a Foreign Policy Center Finds New Life**\
 `The Kennan Institute, which researches Russia and the surrounding region, has re-emerged in a form that is smaller but more impervious to government control.`\
 https://nytimes.com/2025/11/10/us/politics/kennan-institute-doge-trump.html

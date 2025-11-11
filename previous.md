@@ -1,3 +1,7 @@
+**Full Time: Don't call Gotham an 'underdog.'**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6795907/2025/11/10/gotham-current-upset-nwsl-full-time/
+
 **Dismantled by DOGE, a Foreign Policy Center Finds New Life**\
 `The Kennan Institute, which researches Russia and the surrounding region, has re-emerged in a form that is smaller but more impervious to government control.`\
 https://nytimes.com/2025/11/10/us/politics/kennan-institute-doge-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6795689/2025/11/10/cubs-cade-horton-rookie-of-the-y
 **For Trump, Nothing Was Off-Limits During the Shutdown**\
 `President Trump pressured Democrats by taking punishing actions no previous administration ever took during a shutdown.`\
 https://nytimes.com/2025/11/10/us/politics/trump-government-shutdown.html
-
-**Dodgers could be in on Kyle Tucker, also explore internal outfield options**\
-`The Dodgers are always looming over the biggest free agents, and this will likely be no exception.`\
-https://nytimes.com/athletic/6796376/2025/11/10/los-angeles-dodgers-kyle-tucker-pursuit/
 
