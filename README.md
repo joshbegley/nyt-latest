@@ -1,3 +1,23 @@
+**A New Jewel Box for Vegetarian Kaiseki**\
+`Rei opens in Soho with a vegetable-centered set menu, family friendly Italian in Dumbo, Brooklyn, and more restaurant news.`\
+https://nytimes.com/2025/11/11/dining/restaurant-openings-nyc.html
+
+**Mavericks' next steps should be clear: Trade Anthony Davis, build around Cooper Flagg**\
+`Dallas has a self-inflicted mess it needs to dig itself out of. Luckily, it's already won a draft lottery to kick-start things.`\
+https://nytimes.com/athletic/6798041/2025/11/11/nico-harrison-fallout-anthony-davis-trade-mavs/
+
+**Thorns fandom, lucky charms and family values: Suite Level with the Bhathals**\
+`The Bhathals doubled down on their Portland investment in women's sports, which consists of both NWSL and WNBA teams.`\
+https://nytimes.com/athletic/6795488/2025/11/11/portland-thorn-bhathal-nwsl-owners-interview/
+
+**Trump Cuts and Orders Have Broad Impact on American Museums, Report Finds**\
+`A survey of museum directors reveals the impact of federal cutbacks: reduced arts programs for rural areas, students and people who are elderly or disabled.`\
+https://nytimes.com/2025/11/11/arts/design/trump-cuts-impact-museums-aam-survey.html
+
+**Helpful Hamburger Soup**\
+`Ground beef joins forces with frozen vegetables and kitchen staples (celery, potatoes and that half-can of tomato paste) to make an easy and economical dinner.`\
+https://nytimes.com/2025/11/11/dining/helpful-hamburger-soup.html
+
 **Veterans Day TV: Divergent Stories From Forever Wars**\
 `“The Warfighters: Battle Stories” and “In Waves and Wars” explore veterans’ experiences from radically different points of view.`\
 https://nytimes.com/2025/11/11/arts/television/review-in-waves-and-war-the-warfighters.html
@@ -13,24 +33,4 @@ https://nytimes.com/athletic/6798392/2025/11/11/ferrari-f1-drivers-2025-brazilia
 **NHL players and lower-body blood clots: What to know amid recent diagnoses**\
 `Sabres' Jiri Kulich and Penguins' Filip Hallander have been diagnosed with blood clots in the past week. Are NHL players at higher risk?`\
 https://nytimes.com/athletic/6797963/2025/11/11/nhl-blood-clots-hockey-risk-dvt/
-
-**Roman-Era Treasures Stolen From Syria’s National Museum**\
-`The Damascus museum theft set off an official investigation in what may be one of Syria’s largest losses of antiquities in recent years.`\
-https://nytimes.com/2025/11/11/world/middleeast/syria-national-museum-roman-statues-stolen.html
-
-**Kyle Tucker's future: Odds say he's headed to one of these teams**\
-`Where will Kyle Tucker go? We spoke to oddsmakers in the betting industry to predict where they see the star outfielder landing.`\
-https://nytimes.com/athletic/6797923/2025/11/11/kyle-tucker-free-agency-team-odds-mlb/
-
-**Making Connections: ‘Fahrenheit 451’ and Today**\
-`How does the dystopian world of Ray Bradbury’s novel “Fahrenheit 451” compare with society today? Eighth graders use The New York Times to investigate.`\
-https://nytimes.com/2025/11/11/learning/making-connections-fahrenheit-451-and-today.html
-
-**India Investigates Car Blast in New Delhi as Terrorism**\
-`The National Investigation Agency, India’s lead agency for investigating terrorist attacks, has taken charge in the probe of a car explosion that killed at least eight people in a historic part of New Delhi.`\
-https://nytimes.com/video/world/asia/100000010518176/india-explosion-new-delhi.html
-
-**Chelsea supporting Sterling after burglary at family home**\
-`The incident took place at his home on Saturday while Sterling, 30, and his children were in the house.`\
-https://nytimes.com/athletic/6797556/2025/11/11/chelsea-raheem-sterling-burglary/
 
