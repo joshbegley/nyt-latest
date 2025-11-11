@@ -1,3 +1,11 @@
+**Seeds of Nico Harrison's demise sowed even before he traded Luka Dončić**\
+`Even before making the move that will forever be a part of his reputation, Nico Harrison's tendencies foreshadowed his eventual downfall.`\
+https://nytimes.com/athletic/6798731/2025/11/11/nico-harrison-demise-donic-trade-mavericks/
+
+**Howard Webb defends decision to disallow Liverpool's goal vs Man City**\
+`The head of the Premier League's refereeing body said the decision to rule Andy Robertson offside was "not unreasonable".`\
+https://nytimes.com/athletic/6794256/2025/11/11/van-dijk-liverpool-var-offside-manchester-city/
+
 **Scoop City: Compounding problems in New York**\
 `Jaxson Dart joins a long list of first-round QBs to see their head coach replaced in year two`\
 https://nytimes.com/athletic/6798890/2025/11/11/brian-daboll-fired-giants-joe-schoen-scoop-city/
