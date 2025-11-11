@@ -1,3 +1,7 @@
+**Cleto Escobedo III, Jimmy Kimmel’s Bandleader, Dies at 59**\
+`Mr. Kimmel said that he and Mr. Escobedo, who led Cleto and the Cletones on “Jimmy Kimmel Live!,” had been “inseparable since I was 9 years old.”`\
+https://nytimes.com/2025/11/11/arts/cleto-escobedo-dead-jimmy-kimmel-live.html
+
 **Pope Leo Shares His Favorite Movies Ahead of Vatican Event**\
 `The list leans heavily on uplifting classics.`\
 https://nytimes.com/2025/11/11/movies/pope-leo-favorite-movies.html

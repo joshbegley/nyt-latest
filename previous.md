@@ -1,3 +1,7 @@
+**Cleto Escobedo III, Jimmy Kimmel’s Bandleader, Dies at 59**\
+`Mr. Kimmel said that he and Mr. Escobedo, who led Cleto and the Cletones on “Jimmy Kimmel Live!,” had been “inseparable since I was 9 years old.”`\
+https://nytimes.com/2025/11/11/arts/cleto-escobedo-dead-jimmy-kimmel-live.html
+
 **Pope Leo Shares His Favorite Movies Ahead of Vatican Event**\
 `The list leans heavily on uplifting classics.`\
 https://nytimes.com/2025/11/11/movies/pope-leo-favorite-movies.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6798936/2025/11/11/redrafting-fantasy-football-2025
 **NHL to inspect Olympic hockey arena amid concerns over construction progress**\
 `The Olympics are just 90 days away, and while the NHL is getting weekly updates on arena construction, it wants to see it firsthand.`\
 https://nytimes.com/athletic/6799023/2025/11/11/nhl-milan-olympic-hockey-arena-inspection/
-
-**Trump Lauds ‘Very Big’ Shutdown Victory for G.O.P. in Veterans Day Speech**\
-`The address mixed the traditional solemnity of the day with political arguments, as the president celebrated his efforts to remake the armed services into a “Department of War.”`\
-https://nytimes.com/2025/11/11/us/politics/trump-veterans-day-speech-shutdown.html
 

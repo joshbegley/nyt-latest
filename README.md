@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6799030/2025/11/11/angels-mlb-eric-kay-tyler-skaggs
 `The Jets coach was combative with the media on Tuesday, seemingly in response to a report about his star receiver.`\
 https://nytimes.com/athletic/6798920/2025/11/11/aaron-glenn-garrett-wilson-injury-media/
 
-**Redrafting the top 20 fantasy football picks of 2025**\
+**Redrafting the top 20 fantasy football picks of 2025, given everything we know**\
 `Redrafting the 2025 top 20 for fantasy football, given everything we know today`\
 https://nytimes.com/athletic/6798936/2025/11/11/redrafting-fantasy-football-2025-nfl/
 
