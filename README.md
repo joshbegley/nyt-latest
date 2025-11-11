@@ -1,3 +1,7 @@
+**Infant Formula Recall Expands as Botulism Outbreak Grows**\
+`Federal health officials said caregivers should stop using all ByHeart powdered formula products after 15 infants in 12 states were hospitalized.`\
+https://nytimes.com/2025/11/11/health/byheart-infant-formula-recall-botulism.html
+
 **Key Netanyahu Minister Steps Down From Israel’s Government**\
 `Ron Dermer, a longtime ally of Prime Minister Benjamin Netanyahu and an influential figure in the Israeli government throughout the war in Gaza, resigned as minister of strategic affairs.`\
 https://nytimes.com/2025/11/11/world/middleeast/israel-ron-dermer-resigns-netanyahu.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6798909/2025/11/11/braves-coaching-staff-younger-ac
 **Novak Djokovic's Piers Morgan interview: Sinner, Alcaraz, the tennis GOAT debate and his career**\
 `The 24-time Grand Slam champion said it was hard to accept how Jannik Sinner and Carlos Alcaraz have started to dominate him.`\
 https://nytimes.com/athletic/6798363/2025/11/11/novak-djokovic-piers-morgan-interview/
-
-**What if Democrats’ Big Shutdown Loss Turns Out to Be a Win?**\
-`Despite considerable hand-wringing in the party about caving to Republicans in the government closure, some Democrats see potential upsides in the outcome.`\
-https://nytimes.com/2025/11/11/us/politics/democrats-shutdown.html
 
