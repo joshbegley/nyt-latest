@@ -1,4 +1,12 @@
-**The passing of an all-time great in Lenny Wilkens is inspiring NBA coaches to reflect**\
+**How Every Senator Voted on Passing the Bill to End the Shutdown**\
+`A bipartisan group of senators agreed on a deal to reopen the government.`\
+https://nytimes.com/interactive/2025/11/10/us/senate-shutdown-funding-vote.html
+
+**ACC takes a stand, vouching for Miami over Notre Dame in CFP rankings**\
+`In a rare move, conference appears to publicly call out the Irish, a program it has long sought as a full-time member.`\
+https://nytimes.com/athletic/6796501/2025/11/10/acc-notre-dame-cfp-rankings-controversy/
+
+**Lenny Wilkens' passing is inspiring NBA coaches to reflect**\
 `Lenny Wilkens, one of the greatest players and coaches in NBA history, leaves behind a legacy current coaches can only revere.`\
 https://nytimes.com/athletic/6796505/2025/11/10/lenny-wilkens-passing-nba-coaches-mourn/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/10/us/politics/shutdown-deal-revives-democratic-infi
 **Ex-Cubs pitcher, 2016 World Series champ Kyle Hendricks to retire: Source**\
 `Hendricks, who will turn 36 next month, wants to spend time at home with his family and enjoy his private life.`\
 https://nytimes.com/athletic/6796370/2025/11/10/chicago-cubs-kyle-hendricks-retirement/
-
-**Trump Asks Supreme Court to Overturn Verdict in E. Jean Carroll Case**\
-`The president said the assertions behind a judgment that he sexually abused and defamed the writer were “implausible” and “unsubstantiated.”`\
-https://nytimes.com/2025/11/10/us/politics/trump-supreme-court-e-jean-carroll.html
-
-**Trump Pardons the Husband of a Republican Congressional Ally**\
-`Robert Harshbarger Jr. pleaded guilty in 2013 to health care fraud and distributing a misbranded drug. His wife, Diana Harshbarger, is a member of Congress.`\
-https://nytimes.com/2025/11/10/us/politics/trump-pardon-republican-harshbarger.html
 

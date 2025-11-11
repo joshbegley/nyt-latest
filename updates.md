@@ -1,3 +1,15 @@
+**How Every Senator Voted on Passing the Bill to End the Shutdown**\
+`A bipartisan group of senators agreed on a deal to reopen the government.`\
+https://nytimes.com/interactive/2025/11/10/us/senate-shutdown-funding-vote.html
+
+**ACC takes a stand, vouching for Miami over Notre Dame in CFP rankings**\
+`In a rare move, conference appears to publicly call out the Irish, a program it has long sought as a full-time member.`\
+https://nytimes.com/athletic/6796501/2025/11/10/acc-notre-dame-cfp-rankings-controversy/
+
+**Lenny Wilkens' passing is inspiring NBA coaches to reflect**\
+`Lenny Wilkens, one of the greatest players and coaches in NBA history, leaves behind a legacy current coaches can only revere.`\
+https://nytimes.com/athletic/6796505/2025/11/10/lenny-wilkens-passing-nba-coaches-mourn/
+
 **Cubs' Cade Horton earns full year of MLB service time after second-place ROY finish**\
 `Horton didn't debut until May 10, but he seemed to get better with every start and dominated in the second half for the Cubs.`\
 https://nytimes.com/athletic/6795689/2025/11/10/cubs-cade-horton-rookie-of-the-year-nl/
