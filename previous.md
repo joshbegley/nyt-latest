@@ -1,3 +1,7 @@
+**Arsenal close to appointing Maurizio Micheli to senior recruitment role**\
+`Micheli, 57, has built a strong reputation and is seen as one of the architects behind much of Napoli's recent success.`\
+https://nytimes.com/athletic/6699685/2025/11/11/arsenal-recruitment-maurizio-micheli/
+
 **How to watch Delaware vs. BYU men's basketball: Time, TV, streaming**\
 `Find out how to watch the Delaware Fightin' Blue Hens play the BYU Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6798832/2025/11/11/delaware-vs-byu-stream-how-to-watch-nov-11/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6798817/2025/11/11/texans-vs-titans-stream-how-to-w
 **How to watch Packers vs. Giants: Time, TV, streaming**\
 `Find out how to watch the Green Bay Packers play the New York Giants, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6798815/2025/11/11/packers-vs-giants-stream-how-to-watch-nov-16/
-
-**How to watch Bears vs. Vikings: Time, TV, streaming**\
-`Find out how to watch the Chicago Bears play the Minnesota Vikings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6798813/2025/11/11/bears-vs-vikings-stream-how-to-watch-nov-16/
 
