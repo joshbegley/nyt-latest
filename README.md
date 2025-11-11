@@ -1,3 +1,7 @@
+**Former coach Brian Kelly files lawsuit against LSU: Reports**\
+`The buyout for Kelly would be the second-largest in college sports, behind the $77 million Texas A&M paid to Jimbo Fisher in 2023.`\
+https://nytimes.com/athletic/6796896/2025/11/11/brian-kelly-lsu-lawsuit/
+
 **The New York Times in Print for Tuesday, Nov. 11, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/11/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6793936/2025/11/11/inside-newcastle-wissa-woltemade
 **Only Mbappe, Lewandowski and Alvarez have scored more than Etta Eyong – Who is La Liga's breakout star?**\
 `Young striker signed by promoted Levante for just €3m in September now has big clubs including Barcelona and Real Madrid taking notice`\
 https://nytimes.com/athletic/6773455/2025/11/11/karl-etta-eyong-la-liga-transfer/
-
-**Eagles-Packers takeaways: Philadelphia hangs on in defensive struggle**\
-`Eagles receiver DeVonta Smith hauled in a 36-yard touchdown pass from Jalen Hurts on Monday night.`\
-https://nytimes.com/athletic/6796631/2025/11/11/eagles-packers-score-result-takeaways-mnf-nfl/
 
