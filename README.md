@@ -1,3 +1,7 @@
+**Embiid to miss 76ers' game against Celtics with right knee injury**\
+`This will mark Embiid's first unplanned absence from a game this season. `\
+https://nytimes.com/athletic/6798732/2025/11/11/joel-embiid-injury-status-76ers-celtics/
+
 **U.S. Bishops Elect New Leader as Concerns Mount Over Treatment of Migrants**\
 `“We face a growing worldview that is so often at odds with the Gospel mandate to love thy neighbor,” the group said in a letter to Pope Leo.`\
 https://nytimes.com/2025/11/11/us/bishops-coakley-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6797005/2025/11/11/new-york-giants-head-coach-openi
 **Hornets rookie Ryan Kalkbrenner sets new record with 80.8 FG percentage to start career**\
 `Charlotte Hornets rookie Ryan Kalkbrenner has set a new record for shooting efficiency through the first 10 games of his NBA career. `\
 https://nytimes.com/athletic/6798173/2025/11/11/ryan-kalkbrenner-charlotte-hornets-field-goal-percentage-record/
-
-**Four-time NBA All-Star Michael Ray Richardson dies at 70**\
-`Richardson played eight seasons in the NBA before being banned for violating the league's drug policy for a third time.`\
-https://nytimes.com/athletic/6798478/2025/11/11/michael-ray-richardson-dies-70/
 
