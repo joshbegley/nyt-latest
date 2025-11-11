@@ -1,3 +1,7 @@
+**Spanish FA expresses 'surprise' as Yamal withdrawn from squad after groin procedure**\
+`The RFEF claimed Spain's medical team had not been given prior notice that the Barcelona forward would be undergoing the procedure.`\
+https://nytimes.com/athletic/6797154/2025/11/11/lamine-yamal-spain-barcelona-injury-groin/
+
 **How to watch Prairie View A&M vs. Oklahoma State women's basketball: Time, TV, streaming**\
 `Find out how to watch the Prairie View A&M Lady Panthers play the Oklahoma State Cowgirls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6797186/2025/11/11/prairie-view-a-m-vs-oklahoma-state-stream-how-to-watch-nov-11/
