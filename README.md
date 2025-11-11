@@ -1,3 +1,7 @@
+**Braves' Drake Baldwin wins NL Rookie of the Year, edging out Cubs' Cade Horton**\
+`Baldwin, 24, is the sixth Braves player to win the National League's Rookie of the Year since 1990.`\
+https://nytimes.com/athletic/6795952/2025/11/10/atlanta-braves-drake-baldwin-nl-rookie-of-the-year-win/
+
 **Palantir C.E.O. Alex Karp Finds a Safe Space With Trump**\
 `A tech billionaire professes to hate identity politics, but they seem in some ways to consume him.`\
 https://nytimes.com/2025/11/10/opinion/alex-karp-palantir-trump.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/11/10/opinion/alex-karp-palantir-trump.html
 https://nytimes.com/athletic/6796166/2025/11/10/twins-pitching-coach-pete-maki-return/
 
 **What Were Democrats Thinking?**\
-`Democrats were winning the shutdown — until now.`\
+`Democrats weren’t winning the shutdown. But they weren’t losing it, either.`\
 https://nytimes.com/video/opinion/100000010515510/what-were-democrats-thinking.html
 
 **How to watch North Carolina vs. Wake Forest: Time, TV, streaming**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6796265/2025/11/10/purdue-vs-washington-stream-how-
 **How to watch UCLA vs. Ohio State: Time, TV, streaming**\
 `Find out how to watch the UCLA Bruins play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6796267/2025/11/10/ucla-vs-ohio-state-stream-how-to-watch-nov-15/
-
-**How to watch Texas vs. Georgia: Time, TV, streaming**\
-`Find out how to watch the Texas Longhorns play the Georgia Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6796257/2025/11/10/texas-vs-georgia-stream-how-to-watch-nov-15/
 
