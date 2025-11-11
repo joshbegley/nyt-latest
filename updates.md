@@ -1,3 +1,7 @@
+**Novak Djokovic's Piers Morgan interview: Sinner, Alcaraz, the tennis GOAT debate and his career**\
+`The 24-time Grand Slam champion said it was hard to accept how Jannik Sinner and Carlos Alcaraz have started to dominate him.`\
+https://nytimes.com/athletic/6798363/2025/11/11/novak-djokovic-piers-morgan-interview/
+
 **Braves overhaul coaching staff with plenty of younger, accomplished newcomers**\
 `While conducting extensive background checks, Alex Anthopoulos said connections emerged among many of them, which was a bonus.`\
 https://nytimes.com/athletic/6798909/2025/11/11/braves-coaching-staff-younger-accomplished-newcomers/
