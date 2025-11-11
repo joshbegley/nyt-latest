@@ -1,3 +1,7 @@
+**How to watch Prairie View A&M vs. Oklahoma State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Prairie View A&M Lady Panthers play the Oklahoma State Cowgirls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6797186/2025/11/11/prairie-view-a-m-vs-oklahoma-state-stream-how-to-watch-nov-11/
+
 **Chuck Schumer Is a Convenient Punching Bag. There Was No Happy Outcome for the Shutdown.**\
 `The shutdown still may be a net gain for Democrats.`\
 https://nytimes.com/2025/11/11/opinion/shutdown-democrats-schumer-midterms.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/11/arts/dance/ruth-childs-lucinda-childs-blast.html
 **In the East Village, a Vietnamese Newcomer With Street-Food Fireworks**\
 `Bánh Anh Em, in the East Village, sizzles with scrappy, ad-hoc cooking that shows off the full fervor of the cuisine.`\
 https://nytimes.com/2025/11/11/dining/restaurant-review-banh-anh-em.html
-
-**Cracking Down on What Can Be Called Kente Cloth**\
-`As the vibrantly patterned kente travels out of Africa, a new designation aims to protect its ties to Ghana, where the cloth originated.`\
-https://nytimes.com/2025/11/11/style/kente-cloth-africa-ghana.html
 
