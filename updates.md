@@ -1,3 +1,15 @@
+**NFL best bets Week 11: A counterintuitive play for Lions-Eagles**\
+`After a 4-0 week, Austin Mock has a few best bets ahead of NFL Week 11. Can we keep it going?`\
+https://nytimes.com/athletic/6797699/2025/11/11/nfl-best-bets-week-11-lions-eagles/
+
+**Burnley's Mejbri hit with FA misconduct charge for allegedly spitting at Leeds fans**\
+`Mejbri has until November 28 to provide a response to the charge.`\
+https://nytimes.com/athletic/6736139/2025/11/11/hannibal-mejbri-spitting-charge-fa-leeds-burnley/
+
+**Judge Rejects Utah’s Republican-Drawn Redistricting Map**\
+`A judge instead adopted one drawn by a coalition of centrists ahead of the 2026 midterms. Republican officials vowed to fight the ruling.`\
+https://nytimes.com/2025/11/11/us/utah-redistricting-gerrymander-congress.html
+
 **College Football Playoff odds: Which two-loss teams are likely to crash the party?**\
 `Texas Tech surged in the odds to make the College Football Playoff while BYU dropped. Who else made moves in Week 11?`\
 https://nytimes.com/athletic/6795337/2025/11/11/college-football-playoff-odds-texas-tech/
