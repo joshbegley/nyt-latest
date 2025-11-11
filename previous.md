@@ -1,3 +1,7 @@
+**Track Shape**\
+`Christina Iverson and Scott Hogan are especially articulate in this crossword puzzle.`\
+https://nytimes.com/2025/11/10/crosswords/daily-puzzle-2025-11-11.html
+
 **How Every Senator Voted on Passing the Bill to End the Shutdown**\
 `A bipartisan group of senators agreed on a deal to reopen the government.`\
 https://nytimes.com/interactive/2025/11/10/us/senate-shutdown-funding-vote.html
@@ -6,7 +10,7 @@ https://nytimes.com/interactive/2025/11/10/us/senate-shutdown-funding-vote.html
 `In a rare move, conference appears to publicly call out the Irish, a program it has long sought as a full-time member.`\
 https://nytimes.com/athletic/6796501/2025/11/10/acc-notre-dame-cfp-rankings-controversy/
 
-**Lenny Wilkens' passing is inspiring NBA coaches to reflect**\
+**NBA coaches reflect on the late Lenny Wilkens: ‘Lenny was — what an amazing man.'**\
 `Lenny Wilkens, one of the greatest players and coaches in NBA history, leaves behind a legacy current coaches can only revere.`\
 https://nytimes.com/athletic/6796505/2025/11/10/lenny-wilkens-passing-nba-coaches-mourn/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6796200/2025/11/10/brian-daboll-bills-offense-josh-
 **Shutdown Deal Revives Democratic Infighting**\
 `The agreement prompted a backlash within the party, not only against the Democratic defectors who supported it, but against Senator Chuck Schumer, the leader who did not.`\
 https://nytimes.com/2025/11/10/us/politics/shutdown-deal-revives-democratic-infighting.html
-
-**Ex-Cubs pitcher, 2016 World Series champ Kyle Hendricks to retire: Source**\
-`Hendricks, who will turn 36 next month, wants to spend time at home with his family and enjoy his private life.`\
-https://nytimes.com/athletic/6796370/2025/11/10/chicago-cubs-kyle-hendricks-retirement/
 

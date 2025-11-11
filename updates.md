@@ -1,3 +1,11 @@
+**Track Shape**\
+`Christina Iverson and Scott Hogan are especially articulate in this crossword puzzle.`\
+https://nytimes.com/2025/11/10/crosswords/daily-puzzle-2025-11-11.html
+
+**NBA coaches reflect on the late Lenny Wilkens: ‘Lenny was — what an amazing man.'**\
+`Lenny Wilkens, one of the greatest players and coaches in NBA history, leaves behind a legacy current coaches can only revere.`\
+https://nytimes.com/athletic/6796505/2025/11/10/lenny-wilkens-passing-nba-coaches-mourn/
+
 **How Every Senator Voted on Passing the Bill to End the Shutdown**\
 `A bipartisan group of senators agreed on a deal to reopen the government.`\
 https://nytimes.com/interactive/2025/11/10/us/senate-shutdown-funding-vote.html
