@@ -1,3 +1,7 @@
+**How to watch Mississippi State vs. Missouri: Time, TV, streaming**\
+`Find out how to watch the Mississippi State Bulldogs play the Missouri Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6796418/2025/11/10/mississippi-state-vs-missouri-stream-how-to-watch-nov-15/
+
 **Brian Daboll is suddenly available; could he cure the Bills' offensive woes?**\
 `Josh Allen's far-away gaze in Miami looked a lot like the one he sported right before the Bills fired Ken Dorsey.`\
 https://nytimes.com/athletic/6796200/2025/11/10/brian-daboll-bills-offense-josh-allen/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/10/opinion/alex-karp-palantir-trump.html
 **Pete Maki returns as Twins pitching coach, but others remain in limbo: Sources**\
 `The Twins want manager Derek Shelton to have a say in naming his coaching staff; hence, the overhaul.`\
 https://nytimes.com/athletic/6796166/2025/11/10/twins-pitching-coach-pete-maki-return/
-
-**What Were Democrats Thinking?**\
-`Democrats weren’t winning the shutdown. But they weren’t losing it, either.`\
-https://nytimes.com/video/opinion/100000010515510/what-were-democrats-thinking.html
 
