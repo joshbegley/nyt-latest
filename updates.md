@@ -1,3 +1,11 @@
+**Suns guard Jalen Green to miss at least a month with hamstring strain**\
+`Green, who was acquired along with Dillon Brooks in the blockbuster Kevin Durant deal, has played in only two games this season.`\
+https://nytimes.com/athletic/6799267/2025/11/11/jalen-green-injury-update-suns-nba/
+
+**Steelers to sign CB Asante Samuel Jr. to practice squad: Sources**\
+`The fifth-year veteran will join a Steelers secondary in transition.`\
+https://nytimes.com/athletic/6799255/2025/11/11/pittsburgh-steelers-asante-samuel-jr/
+
 **Justice Dept. Says It Will Investigate U.C. Berkeley Protest**\
 `More than 200 demonstrators rallied against a Turning Point USA event being held at the University of California, Berkeley, on Monday.`\
 https://nytimes.com/video/us/politics/100000010518537/university-of-california-berkeley-protest.html

@@ -1,9 +1,13 @@
+**Suns guard Jalen Green to miss at least a month with hamstring strain**\
+`Green, who was acquired along with Dillon Brooks in the blockbuster Kevin Durant deal, has played in only two games this season.`\
+https://nytimes.com/athletic/6799267/2025/11/11/jalen-green-injury-update-suns-nba/
+
 **Justice Dept. Says It Will Investigate U.C. Berkeley Protest**\
 `More than 200 demonstrators rallied against a Turning Point USA event being held at the University of California, Berkeley, on Monday.`\
 https://nytimes.com/video/us/politics/100000010518537/university-of-california-berkeley-protest.html
 
 **Steelers to sign CB Asante Samuel Jr. to practice squad: Sources**\
-`The fifth-year veteran joins a Steelers secondary in transition.`\
+`The fifth-year veteran will join a Steelers secondary in transition.`\
 https://nytimes.com/athletic/6799255/2025/11/11/pittsburgh-steelers-asante-samuel-jr/
 
 **James: England to learn lessons from 'super difficult' Club World Cup conditions**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/11/opinion/antisemitic-politics-carlson-fuentes.html
 **Crispy Coconut Tempeh**\
 `This plant-based spin on coconut shrimp uses crumbled tempeh instead of shrimp.`\
 https://nytimes.com/video/dining/100000010366164/crispy-coconut-tempeh.html
-
-**Will Bad Bunny Pull a Kendrick in 2026?**\
-`Bad Bunny’s latest album, “Debí Tirar Más Fotos,” was recently nominated for six awards, including the top three categories, at the Grammys in February — the week before he headlines the Super Bowl halftime show.`\
-https://nytimes.com/video/podcasts/100000010518836/will-bad-bunny-pull-a-kendrick-in-2026.html
 
