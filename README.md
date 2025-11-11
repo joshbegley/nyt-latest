@@ -1,3 +1,7 @@
+**Senate Passes Bill to End Government Shutdown**\
+`The Senate passed legislation to reopen the government after eight senators in the Democratic caucus broke with the party and supplied critical backing. The measure now heads to the House.`\
+https://nytimes.com/video/us/100000010517543/senate-passes-bill-to-end-government-shutdown.html
+
 **Deadly Blast in Pakistan Outside Courthouse**\
 `At least 12 people died when an attacker detonated a bomb in Pakistan’s capital on Tuesday after he failed to enter a courthouse, according to the country’s interior minister.`\
 https://nytimes.com/video/world/asia/100000010517570/deadly-explosion-court-pakistan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6795246/2025/11/11/bill-belichick-north-carolina-wi
 **Liverpool could 'help' Wirtz by 'scoring the chances he creates' - Nagelsmann**\
 `Nagelsmann insisted that Liverpool's instability and poor finishing have contributed to the 22-year-old frustrating start at Anfield.`\
 https://nytimes.com/athletic/6797209/2025/11/11/florian-wirtz-liverpool-form-nagelsmann/
-
-**Men's college basketball Tuesday guide: 8 games to watch across a full slate**\
-`Nonconference? Boring? Who would suggest such a thing? Tuesday night's college basketball schedule is, in fact, loaded.`\
-https://nytimes.com/athletic/6795228/2025/11/11/kentucky-louisville-texas-tech-illinois-college-basketball-youtube-tv/
 
