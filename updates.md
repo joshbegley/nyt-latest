@@ -1,3 +1,15 @@
+**The Mysterious ‘Louvre Detective’ Was a 15-Year-Old Passer-by**\
+`The photo of a dapper man in a fedora sparked many questions: Was the person real? A Sherlock Holmes-inspired detective on the case? Or just being very French?`\
+https://nytimes.com/2025/11/11/world/europe/louvre-detective-fedora-photo.html
+
+**Mariners Wanted: Six-Figure Salaries and Months at Sea**\
+`Few American are becoming mariners today, but demand could soon rise because President Trump and a bipartisan group of legislators in Congress want to revitalize the American shipbuilding industry.`\
+https://nytimes.com/2025/11/11/business/merchant-marines-shipbuilding.html
+
+**Taylor Fritz, the great men's tennis maximizer, runs into the Carlos Alcaraz wall again**\
+`Alcaraz escaped an epic game in the second set as Fritz played lights-out at the ATP Tour Finals. In Turin, as elsewhere, it was not enough.`\
+https://nytimes.com/athletic/6798010/2025/11/11/atp-tour-finals-fritz-alcaraz-result-analysis/
+
 **Mariners Wanted: Six-Figure Salaries and Months at Sea**\
 `Few people are becoming t`\
 https://nytimes.com/2025/11/11/business/merchant-marines-shipbuilding.html
