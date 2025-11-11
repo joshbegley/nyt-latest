@@ -1,4 +1,4 @@
-**“Flesh” by David Szalay Wins 2025 Booker Prize**\
+**‘Flesh’ by David Szalay Wins 2025 Booker Prize**\
 `David Szalay became the first British Hungarian to win the prestigious Booker Prize for his novel “Flesh.”`\
 https://nytimes.com/video/books/100000010517272/booker-prize-2025-david-szalay-flesh.html
 
