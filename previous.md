@@ -1,3 +1,7 @@
+**Fantasy football Week 11 drops: Chasing away Sam Darnold, Chuba Hubbard and more**\
+`Gary Davenport identifies players who are struggling to validate their spot on fantasy rosters, including a fantasy standout of 2024.`\
+https://nytimes.com/athletic/6796694/2025/11/11/fantasy-football-week-11-drops-darnold-jcm-chuba/
+
 **Judge Rejects Utah’s Republican-Drawn Redistricting Map**\
 `A judge instead adopted one drawn by a coalition of centrists ahead of the 2026 midterms.`\
 https://nytimes.com/2025/11/11/us/utah-redistricting-gerrymander-congress.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/the-athletic/100000010517920/eagles-edge-packers-in-co
 **What a Government Shutdown Solution Hasn’t Solved**\
 `Even with a legislative breakthrough looking imminent, air travel faces ongoing delays, and health insurance costs are still set to jump.`\
 https://nytimes.com/2025/11/11/business/dealbook/shutdown-flights-health-care.html
-
-**College Football Playoff rankings update: How to watch Tuesday’s reveal**\
-`Week 11 shook up the College Football Playoff field. On Tuesday, we'll see the Playoff committee's reaction and revised rankings. `\
-https://nytimes.com/athletic/6795827/2025/11/11/college-football-playoff-rankings-week-12-espn-how-to-watch/
 

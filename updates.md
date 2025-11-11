@@ -1,3 +1,7 @@
+**Fantasy football Week 11 drops: Chasing away Sam Darnold, Chuba Hubbard and more**\
+`Gary Davenport identifies players who are struggling to validate their spot on fantasy rosters, including a fantasy standout of 2024.`\
+https://nytimes.com/athletic/6796694/2025/11/11/fantasy-football-week-11-drops-darnold-jcm-chuba/
+
 **Judge Rejects Utah’s Republican-Drawn Redistricting Map**\
 `A judge instead adopted one drawn by a coalition of centrists ahead of the 2026 midterms.`\
 https://nytimes.com/2025/11/11/us/utah-redistricting-gerrymander-congress.html
