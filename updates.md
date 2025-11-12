@@ -1,3 +1,7 @@
+**Craig Breslow ‘confident’ in Red Sox ability to spend and improve club**\
+`Breslow thinks Kristian Campbell could benefit from sticking at just one position rather than splitting time between second and outfield.`\
+https://nytimes.com/athletic/6799953/2025/11/11/craig-breslow-red-sox-payroll-spend/
+
 **MLB meets with union as salary cap, lockout talk swirls: Source**\
 `Unsurprisingly, the players and owners do not share the same perspective at this point, sources said.`\
 https://nytimes.com/athletic/6799894/2025/11/11/mlb-union-meet-salary-cap-lockout-talks/

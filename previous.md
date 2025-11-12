@@ -1,3 +1,7 @@
+**Craig Breslow ‘confident’ in Red Sox ability to spend and improve club**\
+`Breslow thinks Kristian Campbell could benefit from sticking at just one position rather than splitting time between second and outfield.`\
+https://nytimes.com/athletic/6799953/2025/11/11/craig-breslow-red-sox-payroll-spend/
+
 **Blue Jays GM Meeting notes: Top-of-rotation needs, bullpen targets and more**\
 `The Toronto Blue Jays are expected to “be quite aggressive” this offseason as the team tries to go from close to complete.`\
 https://nytimes.com/athletic/6799922/2025/11/11/blue-jays-meeting-rotation-needs-bullpen-targets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6799852/2025/11/11/nba-all-star-game-format-adam-si
 **Energize**\
 `Brad and Nicole Wiegmann offer us a wonderful Wednesday.`\
 https://nytimes.com/2025/11/11/crosswords/daily-puzzle-2025-11-12.html
-
-**Pirates won't trade Paul Skenes this offseason, GM says**\
-`"Paul Skenes is going to be a Pirate in 2026," the Pittsburgh GM said.`\
-https://nytimes.com/athletic/6799837/2025/11/11/pirates-wont-trade-paul-skenes-ben-cherington/
 
