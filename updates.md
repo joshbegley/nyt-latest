@@ -1,3 +1,15 @@
+**Johnson to Seat Grijalva, Seven Weeks After She Was Elected**\
+`Speaker Mike Johnson had refused to swear in Representative-elect Adelita Grijalva, a Democrat of Arizona, claiming he lacked the power to do so.`\
+https://nytimes.com/2025/11/11/us/politics/adelita-grijalva-swearing-in-congress.html
+
+**Antonio Brown pleads not guilty in Miami attempted murder case**\
+`Brown eluded authorities for more than four months while making social media posts from Dubai.`\
+https://nytimes.com/athletic/6799707/2025/11/11/antonio-brown-not-guilty-miami-attempted-murder/
+
+**College Football Playoff rankings of a different kind: Champions we can stomach**\
+`Who would we, as a college football nation, be most OK winning it? Which team would most nauseate us?`\
+https://nytimes.com/athletic/6799621/2025/11/11/college-football-rankings-oregon-indiana-texas-am/
+
 **Dodgers seek a leverage reliever and Devin Williams emerges as a target: Sources**\
 `There appears to be mutual interest between the Dodgers and Williams, who is a free agent for the first time.`\
 https://nytimes.com/athletic/6799426/2025/11/11/dodgers-devin-williams-mlb-offseason/
