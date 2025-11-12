@@ -1,3 +1,11 @@
+**Pirates won't trade Paul Skenes this offseason, GM says**\
+`"Paul Skenes is going to be a Pirate in 2026," the Pittsburgh GM said.`\
+https://nytimes.com/athletic/6799837/2025/11/11/pirates-wont-trade-paul-skenes-ben-cherington/
+
+**Kansas County Agrees to Pay $3 Million Over Police Raid of Newspaper**\
+`The search of The Marion County Record’s office in 2023 touched off a national conversation about press freedom.`\
+https://nytimes.com/2025/11/11/us/marion-county-record-raid-settlement.html
+
 **States That Rely on the Colorado River Miss Deadline to Agree on Cuts**\
 `A plan to sustainably manage the shrinking waterway could soon be up to the Trump administration — or eventually the Supreme Court.`\
 https://nytimes.com/2025/11/11/climate/states-that-rely-on-the-colorado-river-miss-deadline-to-agree-on-cuts.html

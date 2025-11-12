@@ -1,3 +1,11 @@
+**Pirates won't trade Paul Skenes this offseason, GM says**\
+`"Paul Skenes is going to be a Pirate in 2026," the Pittsburgh GM said.`\
+https://nytimes.com/athletic/6799837/2025/11/11/pirates-wont-trade-paul-skenes-ben-cherington/
+
+**Kansas County Agrees to Pay $3 Million Over Police Raid of Newspaper**\
+`The search of The Marion County Record’s office in 2023 touched off a national conversation about press freedom.`\
+https://nytimes.com/2025/11/11/us/marion-county-record-raid-settlement.html
+
 **States That Rely on the Colorado River Miss Deadline to Agree on Cuts**\
 `A plan to sustainably manage the shrinking waterway could soon be up to the Trump administration — or eventually the Supreme Court.`\
 https://nytimes.com/2025/11/11/climate/states-that-rely-on-the-colorado-river-miss-deadline-to-agree-on-cuts.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6799426/2025/11/11/dodgers-devin-williams-mlb-offse
 **After decade in the NFL, Paul DePodesta aims to revive Colorado Rockies**\
 `“I’m very willing to experiment and try to do things,” DePodesta said, as he takes over an organization that lost 119 games in 2025. `\
 https://nytimes.com/athletic/6799509/2025/11/11/paul-depodesta-colorado-rockies-mlb-nfl/
-
-**Guardians' Stephen Vogt wins AL Manager of the Year for second straight season**\
-`His .557 win percentage ranks third among all managers in Cleveland’s 125-year history as an AL franchise.`\
-https://nytimes.com/athletic/6798661/2025/11/11/guardians-stephen-vogt-manager-of-the-year/
-
-**Newsom Storms Climate Conference and Assails Trump as a ‘Bully’**\
-`The California governor painted the president as a threat to American competitiveness by letting China dominate the renewable energy industry.`\
-https://nytimes.com/2025/11/11/climate/gavin-newsom-cop30-belem-climate.html
 
