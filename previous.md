@@ -1,9 +1,13 @@
+**2028 L.A. Olympics schedule released: Track starts with a bang and more highlights**\
+`The women's 100-meter final will highlight the first day of competition at the 2028 L.A. Olympics.`\
+https://nytimes.com/athletic/6799310/2025/11/12/2028-olympics-schedule-los-angeles-track-swimming/
+
 **The $20 YouTube TV subscriber credit for missed ESPN: How you can claim it**\
 `It isn't the same as being able to watch the games, but YouTube TV subscribers can now claim their $20 credit for missing them.`\
 https://nytimes.com/athletic/6800920/2025/11/12/youtube-tv-credit-how-to-subscribers-espn/
 
 **Read the Jeffrey Epstein Emails That Mention Trump**\
-`House Democrats on Wednesday released emails in which Jeffrey Epstein sent messages to his longtime confidante Ghislaine Maxwell and the author Michael Wolff suggesting that Donald J.`\
+`House Democrats on Wednesday released emails in which Jeffrey Epstein sent messages to his longtime confidante Ghislaine Maxwell and the author Michael Wolff suggesting that Donald J. Trump knew more about the convicted sex offender’s abuse than he had acknowledged.`\
 https://nytimes.com/interactive/2025/11/12/us/epstein-emails.html
 
 **Betting for (by) dummies: Fading Philly, Pittsburgh and Penn State (sorry, PA)**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/12/opinion/mamdani-child-care-suburbs.html
 **Can I Tell My Father That I’m Too Grief-Stricken to Attend His Wedding?**\
 `Still mourning the deaths of her mother and stepmother, a reader is unsure whether she would be able to maintain composure during her father’s third wedding ceremony.`\
 https://nytimes.com/2025/11/12/style/father-wedding-grief.html
-
-**The unspoken topic that has Ravens' tight ends focused on staying in the present**\
-`Mark Andrews, Isaiah Likely, Charlie Kolar and Patrick Ricard are all pending free agents, creating an odd dynamic in the tight end room.`\
-https://nytimes.com/athletic/6799134/2025/11/12/ravens-tight-ends-mark-andrews-isaiah-likely-charlie-kolar/
 

@@ -1,3 +1,11 @@
+**2028 L.A. Olympics schedule released: Track starts with a bang and more highlights**\
+`The women's 100-meter final will highlight the first day of competition at the 2028 L.A. Olympics.`\
+https://nytimes.com/athletic/6799310/2025/11/12/2028-olympics-schedule-los-angeles-track-swimming/
+
+**Read the Jeffrey Epstein Emails That Mention Trump**\
+`House Democrats on Wednesday released emails in which Jeffrey Epstein sent messages to his longtime confidante Ghislaine Maxwell and the author Michael Wolff suggesting that Donald J. Trump knew more about the convicted sex offender’s abuse than he had acknowledged.`\
+https://nytimes.com/interactive/2025/11/12/us/epstein-emails.html
+
 **Read the Jeffrey Epstein Emails That Mention Trump**\
 `House Democrats on Wednesday released emails in which Jeffrey Epstein sent messages to his longtime confidante Ghislaine Maxwell and the author Michael Wolff suggesting that Donald J.`\
 https://nytimes.com/interactive/2025/11/12/us/epstein-emails.html
