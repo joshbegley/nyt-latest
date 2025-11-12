@@ -1,3 +1,27 @@
+**Advantage England? Wembley to host final and both semi-finals at Euro 2028**\
+`Just as in Euro 2020, the English national stadium in London will be the venue for the final three matches of Euro 2028.`\
+https://nytimes.com/athletic/6801287/2025/11/12/euro-2028-wembley-host-venues-england/
+
+**Massachusetts Offered a Solution to Housing Shortages. Is It Working?**\
+`The Affordable Housing Act designated Cape Cod, Martha’s Vineyard, the Berkshires and other resort towns as “seasonal communities,” making it easier to build homes there for workers.`\
+https://nytimes.com/2025/11/12/business/massachusetts-housing-bill-seasonal-communities.html
+
+**How to watch Hawks vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Atlanta Hawks play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6802006/2025/11/12/hawks-vs-kings-stream-how-to-watch-nov-12/
+
+**How to watch Wizards vs. Rockets: Time, TV, streaming**\
+`Find out how to watch the Washington Wizards play the Houston Rockets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6802003/2025/11/12/wizards-vs-rockets-stream-how-to-watch-nov-12/
+
+**How to watch Lakers vs. Thunder: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6802001/2025/11/12/lakers-vs-thunder-stream-how-to-watch-nov-12/
+
+**How to watch Nuggets vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the Denver Nuggets play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6801999/2025/11/12/nuggets-vs-clippers-stream-how-to-watch-nov-12/
+
 **How to watch Trail Blazers vs. Pelicans: Time, TV, streaming**\
 `Find out how to watch the Portland Trail Blazers play the New Orleans Pelicans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6801996/2025/11/12/trail-blazers-vs-pelicans-stream-how-to-watch-nov-12/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6801992/2025/11/12/cavaliers-vs-heat-stream-how-to-
 **How to watch Suns vs. Mavericks: Time, TV, streaming**\
 `Find out how to watch the Phoenix Suns play the Dallas Mavericks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6801990/2025/11/12/suns-vs-mavericks-stream-how-to-watch-nov-12/
-
-**How to watch Warriors vs. Spurs: Time, TV, streaming**\
-`Find out how to watch the Golden State Warriors play the San Antonio Spurs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6801988/2025/11/12/warriors-vs-spurs-stream-how-to-watch-nov-12/
-
-**How to watch Grizzlies vs. Celtics: Time, TV, streaming**\
-`Find out how to watch the Memphis Grizzlies play the Boston Celtics, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6801986/2025/11/12/grizzlies-vs-celtics-stream-how-to-watch-nov-12/
-
-**How to watch Sabres vs. Mammoth: Time, TV, streaming**\
-`Find out how to watch the Buffalo Sabres play the Utah Mammoth, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6801983/2025/11/12/sabres-vs-mammoth-stream-how-to-watch-nov-12/
-
-**How to watch Oilers vs. Flyers: Time, TV, streaming**\
-`Find out how to watch the Edmonton Oilers play the Philadelphia Flyers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6801981/2025/11/12/oilers-vs-flyers-stream-how-to-watch-nov-12/
-
-**The Questions More Parents Should Be Raising**\
-`Asking about gun storage in someone else’s home can feel uncomfortable — but not asking could carry greater risk. Here’s how caregivers are breaking the silence to protect their children. `\
-https://nytimes.com/paidpost/ad-council-sgs-vpp/agree-to-agree/the-questions-more-parents-should-be-raising.html
-
-**Wayne Gretzky breaks silence on political backlash: 'I'm a Canadian for life'**\
-`“People are going to say and believe what they want,” Gretzky said on a podcast episode.`\
-https://nytimes.com/athletic/6801783/2025/11/12/wayne-gretzky-trump-canada/
 
