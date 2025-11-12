@@ -1,3 +1,15 @@
+**The Pulse: The Mavericks’ nightmare is finally over**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6799094/2025/11/12/nico-harrison-fired-mavericks-the-pulse/
+
+**With Auston Matthews injury, things have gone from bad to worse for the Leafs**\
+`The No. 1 centre's potential injury is the latest blow for a group that didn't need any more misfortune.`\
+https://nytimes.com/athletic/6800083/2025/11/12/auston-matthews-maple-leafs-injured-loss/
+
+**Senators' left-side defensive depth will be tested if Thomas Chabot is out for a while**\
+`The Senators were forced to play with five defencemen after Chabot left Tuesday's game against Dallas due to injury.`\
+https://nytimes.com/athletic/6799550/2025/11/12/senators-thomas-chabot-injury-stars/
+
 **'A ridiculous plot': Portsmouth fans who posed as stewards to attend game banned**\
 `Police said the two brothers wore high-vis vests and carried radio equipment to enable them to enter St Mary's for the sold-out game.`\
 https://nytimes.com/athletic/6800485/2025/11/12/portsmouth-southampton-fan-ban-steward/
