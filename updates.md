@@ -1,3 +1,7 @@
+**Stokes confident in fitness of England pace attack ahead of opening Ashes Test**\
+`There have been question marks over the fitness of Mark Wood and Jofra Archer ahead of the first Test against Australia in Perth next week`\
+https://nytimes.com/athletic/6800434/2025/11/12/england-bowling-ashes-archer-wood/
+
 **Why does NHL keep floating expansion? Have giveaway stats changed? Mirtle mailbag**\
 `Plus, is Montreal most likely to bring the Stanley Cup back to Canada? Will Bedard or Celebrini (or both) make the Olympics roster?`\
 https://nytimes.com/athletic/6799495/2025/11/12/nhl-expansion-olympics-giveaways-bedard-celebrini/

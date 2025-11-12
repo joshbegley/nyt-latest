@@ -1,3 +1,7 @@
+**Stokes confident in fitness of England pace attack ahead of opening Ashes Test**\
+`There have been question marks over the fitness of Mark Wood and Jofra Archer ahead of the first Test against Australia in Perth next week`\
+https://nytimes.com/athletic/6800434/2025/11/12/england-bowling-ashes-archer-wood/
+
 **Why does NHL keep floating expansion? Have giveaway stats changed? Mirtle mailbag**\
 `Plus, is Montreal most likely to bring the Stanley Cup back to Canada? Will Bedard or Celebrini (or both) make the Olympics roster?`\
 https://nytimes.com/athletic/6799495/2025/11/12/nhl-expansion-olympics-giveaways-bedard-celebrini/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6796766/2025/11/12/kansas-city-current-angie-chris-
 **Inside the Bears' stout third-down defense: 'D.A.'s a mastermind'**\
 `See what Bears players like about Dennis Allen's third-down defenses and watch video breakdowns of the unique schemes. `\
 https://nytimes.com/athletic/6799133/2025/11/12/bears-third-down-defense-dennis-allen/
-
-**What will the Vikings do with these 6 veteran players in 2026?**\
-`Unlike last offseason, when the Vikings had loads of cap space, that flexibility no longer exists. That will make for some tough decisions.`\
-https://nytimes.com/athletic/6798847/2025/11/12/vikings-roster-tj-hockenson-free-agent-contract-2026/
 
