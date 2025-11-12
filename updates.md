@@ -1,3 +1,11 @@
+**Giants interim Mike Kafka 'looking forward to challenge' of leading NY**\
+`Kafka takes over the 2-8 Giants as they prepare to play the Packers in Week 11.`\
+https://nytimes.com/athletic/6801153/2025/11/12/mike-kafka-giants-interim-brian-daboll-fired/
+
+**5 Democratic Voters Weigh In on the Deal to End the Government Shutdown**\
+`They are as divided as the party. Some wanted to continue to fight. Others were worried about jobs or people depending on SNAP food relief.`\
+https://nytimes.com/2025/11/12/us/politics/democrat-voters-government-shutdown-deal.html
+
 **Hal Sirowitz, Poet Who Mined His Mother’s Worry With Wit, Dies at 76**\
 `He wrote of his suffocating relationship with his mother to create mordant reminiscences and became a standout at poetry slams in New York.`\
 https://nytimes.com/2025/11/12/nyregion/hal-sirowitz-dead.html

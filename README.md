@@ -1,3 +1,11 @@
+**Tkachuk brothers announce podcast, becoming only active NHLers with talk show**\
+`The show debuts on Thursday and is part of Wave Sports + Entertainment, the same digital group behind "New Heights" with the Kelce brothers.`\
+https://nytimes.com/athletic/6790030/2025/11/12/tkachuk-matthew-brady-brothers-podcast-nhl/
+
+**Lucas Museum of Narrative Art in Los Angeles Sets 2026 Opening Date**\
+`The 300,000-square-foot building will open Sept. 22 and showcase comic art, illustrations and more across 35 galleries. It began construction in 2018 but faced multiple delays.`\
+https://nytimes.com/2025/11/12/arts/design/lucas-museum-opening-septemeber-2026.html
+
 **Giants interim Mike Kafka 'looking forward to challenge' of leading NY**\
 `Kafka takes over the 2-8 Giants as they prepare to play the Packers in Week 11.`\
 https://nytimes.com/athletic/6801153/2025/11/12/mike-kafka-giants-interim-brian-daboll-fired/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6801431/2025/11/12/cardinals-marvin-harrison-jr-app
 **Submit a question for James Boyd's Indianapolis Colts mailbag**\
 `The Indianapolis Colts own the NFL’s best record at 8-2 as they take a deep breath during their bye week.`\
 https://nytimes.com/athletic/6801523/2025/11/12/colts-mailbag-james-boyd-bye-week/
-
-**Virginia’s Governor-elect Wants a Say Over Leadership at U.Va.**\
-`Abigail Spanberger, a Democrat, told the university’s board that the choice of a new president, to replace one pushed out by Republicans over the summer, should be delayed until she is in office.`\
-https://nytimes.com/2025/11/12/us/virginia-governor-spanberger-uva-president.html
-
-**Review: Rennie Harris’s Jam Session of American Street Dance**\
-`At the Joyce Theater, “American Street Dancer” offers a history lesson in the form of a family’s house party.`\
-https://nytimes.com/2025/11/12/arts/dance/rennie-harris-puremovent-joyce-theater-review.html
 
