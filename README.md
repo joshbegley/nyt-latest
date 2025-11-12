@@ -1,3 +1,7 @@
+**Tim Kaine: Why I Voted to End the Shutdown**\
+`Extending the government shutdown would not have worked.`\
+https://nytimes.com/2025/11/12/opinion/tim-kaine-shutdown-vote.html
+
 **How to watch Bulls vs. Pistons: Time, TV, streaming**\
 `Find out how to watch the Chicago Bulls play the Detroit Pistons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6801325/2025/11/12/bulls-vs-pistons-stream-how-to-watch-nov-12/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6801294/2025/11/12/youngstown-state-vs-michigan-sta
 **How to watch Southern vs. Ole Miss women's basketball: Time, TV, streaming**\
 `Find out how to watch the Southern Jaguars play the Ole Miss Rebels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6801292/2025/11/12/southern-vs-ole-miss-stream-how-to-watch-nov-12/
-
-**Getting Into the Arena as ‘The Hunger Games’ Goes Live**\
-`At a specially built theater, the hit book and movie franchise has been transformed into a theatrical experience, with real fire and flying arrows.`\
-https://nytimes.com/2025/11/12/theater/hunger-games-live-london.html
 
