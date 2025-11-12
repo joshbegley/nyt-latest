@@ -6,8 +6,8 @@ https://nytimes.com/2025/11/12/business/dealbook/kim-kardashian-skims-fundraisin
 `Nebraska still has big games against Penn State and Iowa remaining, but it's not too early to look ahead at 2026 priorities, either.`\
 https://nytimes.com/athletic/6799318/2025/11/12/nebraska-football-offseason-questions-2026/
 
-**Mandel’s Mailbag: Why Indiana’s ranking makes sense and how wild a four-team CFP would look**\
-`Indiana may be correctly ranked ahead of Texas A&M based on offensive and defensive rankings and marquee wins on the schedule.`\
+**Mandel’s Mailbag: Why is Indiana ahead of Texas A&M? Could the ACC be left out of the CFP?**\
+`Why the committee is right to rank Indiana over Texas A&M, plus a hypothetical four-team CFP debate, chaos in the ACC and more questions.`\
 https://nytimes.com/athletic/6799825/2025/11/12/indiana-texas-am-playoff-mandels-mailbag/
 
 **The Oilers' forward makeover isn't working. What's gone wrong?**\
