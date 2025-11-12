@@ -1,3 +1,11 @@
+**Antonio Brown pleads not guilty in Miami attempted murder case**\
+`Antonio Brown’s lawyer filed a not guilty plea on his behalf on Tuesday as the former NFL wide receiver returned to Miami to face an attempted murder charge resulting from a shooting in May, according to court records.`\
+https://nytimes.com/athletic/6799707/2025/11/11/antonio-brown-not-guilty-miami-attempted-murder/
+
+**College Football Playoff rankings of a different kind: Champions we can stomach**\
+`Who would we, as a college football nation, be most OK winning it? Which team would most nauseate us?`\
+https://nytimes.com/athletic/6799621/2025/11/11/college-football-rankings-oregon-indiana-texas-am/
+
 **Dodgers seek a leverage reliever and Devin Williams emerges as a target: Sources**\
 `There appears to be mutual interest between the Dodgers and Williams, who is a free agent for the first time.`\
 https://nytimes.com/athletic/6799426/2025/11/11/dodgers-devin-williams-mlb-offseason/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/11/us/flights-canceled-shutdown.html
 **Brewers' Pat Murphy becomes second-ever back-to-back NL Manager of the Year**\
 `Since taking the helm in Milwaukee, Murphy has led the team to consecutive 93+ win regular seasons and division titles. `\
 https://nytimes.com/athletic/6794887/2025/11/11/brewers-pat-murphy-national-league-manager-of-the-year/
-
-**College Football Playoff rankings: Texas Tech passes Ole Miss, Miami closes in**\
-`The top five teams in the rankings were unchanged, with Ohio State No. 1 followed by Indiana, Texas A&M, Alabama and Georgia.`\
-https://nytimes.com/athletic/6797806/2025/11/11/college-football-playoff-second-rankings-top-25/
-
-**Trump Administration Plans to Send Border Patrol to Charlotte and New Orleans**\
-`Plans for the operations were still being finalized, according to a federal official with knowledge of them.`\
-https://nytimes.com/2025/11/11/us/trump-administration-plans-to-send-border-patrol-to-charlotte-and-new-orleans.html
 
