@@ -1,3 +1,7 @@
+**Epstein Bantered Regularly With Larry Summers**\
+`The former Treasury secretary corresponded routinely with Jeffrey Epstein. In one series of exchanges, he sought Mr. Epstein’s advice on how to handle a female acquaintance.`\
+https://nytimes.com/2025/11/12/us/politics/epstein-larry-summers.html
+
 **What Do You Get the Person Who Hates Gifts?**\
 `We asked readers for their toughest holiday quandaries. Here are our suggestions.`\
 https://nytimes.com/2025/11/12/t-magazine/gift-ideas-holiday-shopping.html
@@ -25,8 +29,4 @@ https://nytimes.com/2025/11/12/weather/california-storm-la-san-francisco-rain-fo
 **Phillies' Dave Dombrowski says he had 'good conversation' with Bryce Harper**\
 `“Talked to him quite a while, and really, the conversation’s between Bryce and myself," Dombrowski said at the GM meetings.`\
 https://nytimes.com/athletic/6802119/2025/11/12/phillies-bryce-harper-dave-dombrowski-conversation/
-
-**Lorinda de Roulet, Who Briefly Led the New York Mets, Dies at 95**\
-`A daughter of Joan Whitney Payson, the team’s exuberant first owner, she took over as chairwoman in 1978 during a lackluster time for the franchise.`\
-https://nytimes.com/2025/11/12/sports/lorinda-de-roulet-dead.html
 
