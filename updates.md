@@ -1,3 +1,15 @@
+**William Rataczak, Co-Pilot of Flight Hijacked by D.B. Cooper, Dies at 86**\
+`He was a witness to one of the most riveting unsolved crimes in American history, which inspired scores of conspiracy theories and obsessed amateur sleuths.`\
+https://nytimes.com/2025/11/12/us/william-rataczak-dead.html
+
+**Broncos may be without J.K. Dobbins in quest to improve offense vs. Chiefs**\
+`A win over the Chiefs on Sunday would push the Broncos closer to "where we're aspiring to go," but Denver may be short-handed.`\
+https://nytimes.com/athletic/6802121/2025/11/12/broncos-jk-dobbins-injury-chiefs/
+
+**Missed the Northern Lights on Tuesday? Here’s How to Catch Wednesday’s Show.**\
+`A geomagnetic storm that made the aurora borealis visible farther south than normal is expected to continue for another night. But clouds may obscure your view.`\
+https://nytimes.com/2025/11/12/science/how-to-see-the-northern-lights-wednesday.html
+
 **Agencies Tell Federal Workers to Prepare for Return as Shutdown Vote Nears**\
 `Health and Human Services directed its employees to plan to report to work on Thursday morning if legislation to fund the government passes.`\
 https://nytimes.com/2025/11/12/us/politics/federal-workers-government-shutdown.html
