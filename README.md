@@ -1,3 +1,11 @@
+**Newsom Storms Climate Conference and Assails Trump as a ‘Bully’**\
+`The California governor painted the president as a threat to American competitiveness by letting China dominate the renewable energy industry.`\
+https://nytimes.com/2025/11/11/climate/gavin-newsom-cop30-belem-climate.html
+
+**Supreme Court Extends Order Allowing Limits on Food Stamp Payments**\
+`The justices allowed the Trump administration to withhold full benefits for two more days while Congress worked to advance a government funding bill.`\
+https://nytimes.com/2025/11/11/us/politics/snap-food-stamps-supreme-court-trump.html
+
 **Eagles' Jaire Alexander stepping away from team to focus on physical, mental health**\
 `The Eagles acquired Alexander from the Baltimore Ravens earlier this month.`\
 https://nytimes.com/athletic/6799515/2025/11/11/jaire-alexander-steps-away-retirement-eagles-nfl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6799478/2025/11/11/chiefs-vs-broncos-stream-how-to-
 **How to watch 49ers vs. Cardinals: Time, TV, streaming**\
 `Find out how to watch the San Francisco 49ers play the Arizona Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6799479/2025/11/11/49ers-vs-cardinals-stream-how-to-watch-nov-16/
-
-**How to watch Ravens vs. Browns: Time, TV, streaming**\
-`Find out how to watch the Baltimore Ravens play the Cleveland Browns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6799465/2025/11/11/ravens-vs-browns-stream-how-to-watch-nov-16/
-
-**How to watch Seahawks vs. Rams: Time, TV, streaming**\
-`Find out how to watch the Seattle Seahawks play the Los Angeles Rams, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6799458/2025/11/11/seahawks-vs-rams-stream-how-to-watch-nov-16/
 

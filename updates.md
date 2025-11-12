@@ -1,3 +1,7 @@
+**Eagles' Jaire Alexander stepping away from team to focus on physical, mental health**\
+`The Eagles acquired Alexander from the Baltimore Ravens earlier this month.`\
+https://nytimes.com/athletic/6799515/2025/11/11/jaire-alexander-steps-away-retirement-eagles-nfl/
+
 **Duffy Won’t Give Timeline to Restore Flights as Shutdown Appears Near End**\
 `Sean Duffy, the transportation secretary, instead stepped up his warnings of potential chaos in the air-travel system, saying some airlines could ground their fleets by this weekend if the government is not reopened.`\
 https://nytimes.com/2025/11/11/us/flights-canceled-shutdown.html

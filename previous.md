@@ -1,3 +1,7 @@
+**Eagles' Jaire Alexander stepping away from team to focus on physical, mental health**\
+`The Eagles acquired Alexander from the Baltimore Ravens earlier this month.`\
+https://nytimes.com/athletic/6799515/2025/11/11/jaire-alexander-steps-away-retirement-eagles-nfl/
+
 **Duffy Won’t Give Timeline to Restore Flights as Shutdown Appears Near End**\
 `Sean Duffy, the transportation secretary, instead stepped up his warnings of potential chaos in the air-travel system, saying some airlines could ground their fleets by this weekend if the government is not reopened.`\
 https://nytimes.com/2025/11/11/us/flights-canceled-shutdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6799465/2025/11/11/ravens-vs-browns-stream-how-to-w
 **How to watch Seahawks vs. Rams: Time, TV, streaming**\
 `Find out how to watch the Seattle Seahawks play the Los Angeles Rams, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6799458/2025/11/11/seahawks-vs-rams-stream-how-to-watch-nov-16/
-
-**Yankees' Brian Cashman not attending GM meetings for first time in career**\
-`A Yankees spokesman said Cashman had to attend to a last-minute non-baseball obligation. He will address the media remotely Wednesday.`\
-https://nytimes.com/athletic/6799338/2025/11/11/brian-cashman-yankees-mlb-gm-meetings/
 
