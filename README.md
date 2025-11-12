@@ -1,3 +1,7 @@
+**Fit, Focused—and Caught Off Guard**\
+`Four athletes over 50 on staying active and the virus they didn’t see coming`\
+https://nytimes.com/paidpost/2025-10-15/glaxosmithkline/rsv-2025.html
+
 **Who could be this year's Arizona State? Identifying College Football Playoff long shots**\
 `Arizona State was a long-shot for the Playoff at this point last November. Who are candidates to climb into the bracket this year?`\
 https://nytimes.com/athletic/6800966/2025/11/12/college-football-playoff-bubble-teams/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6799945/2025/11/12/ny-giants-coach-candidates-lane-
 **2028 L.A. Olympics schedule released: Track starts with a bang and more highlights**\
 `The women's 100-meter final will highlight the first day of competition at the 2028 L.A. Olympics.`\
 https://nytimes.com/athletic/6799310/2025/11/12/2028-olympics-schedule-los-angeles-track-swimming/
-
-**The $20 YouTube TV subscriber credit for missed ESPN: How you can claim it**\
-`It isn't the same as being able to watch the games, but YouTube TV subscribers can now claim their $20 credit for missing them.`\
-https://nytimes.com/athletic/6800920/2025/11/12/youtube-tv-credit-how-to-subscribers-espn/
 
