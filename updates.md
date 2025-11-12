@@ -1,3 +1,7 @@
+**Yankees fire longtime international scouting director after many million dollar misses**\
+`Sources pointed to a poor track record of turning big-money signings into impact major leaguers as a likely major contributing factor.`\
+https://nytimes.com/athletic/6800680/2025/11/12/yankees-fire-donny-rowland-international-scouting-director/
+
 **Kim Kardashian’s Skims Is Worth an Extra Billion Dollars**\
 `The apparel giant is now valued at $5 billion after a new fund-raising round, as it continues to grow its business.`\
 https://nytimes.com/2025/11/12/business/dealbook/kim-kardashian-skims-fundraising-billion.html

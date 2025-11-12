@@ -1,3 +1,7 @@
+**The NHL's most dangerous dynamic duos and what makes them tick**\
+`Today we take a look at the league's most dangerous duos to start the season, with clips, quotes and scoring-chance data.`\
+https://nytimes.com/athletic/6774176/2025/11/12/nhl-dynamic-duos/
+
 **Yankees fire longtime international scouting director after many million dollar misses**\
 `Sources pointed to a poor track record of turning big-money signings into impact major leaguers as a likely major contributing factor.`\
 https://nytimes.com/athletic/6800680/2025/11/12/yankees-fire-donny-rowland-international-scouting-director/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6800064/2025/11/12/blue-jackets-shootout-win-seattl
 **Notre Dame's CFP rankings outlook: The Miami debate, SEC threats and hosting chances**\
 `Notre Dame is no longer the last team in the projected CFP field, not that the Irish have a ton of breathing room.`\
 https://nytimes.com/athletic/6800674/2025/11/12/notre-dame-college-football-playoff-rankings-miami/
-
-**Northern Lights Illuminate Skies Above North America**\
-`The northern lights could be seen in skies as far south as Texas late Tuesday and early Wednesday after the sun emitted masses of charged particles that disrupted the Earth’s magnetic field — and created a dazzling display.`\
-https://nytimes.com/video/world/americas/100000010519515/northern-lights-north-america.html
 
