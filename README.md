@@ -1,3 +1,7 @@
+**How to watch Lions vs. Eagles: Time, TV, streaming**\
+`Find out how to watch the Detroit Lions play the Philadelphia Eagles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6800284/2025/11/12/lions-vs-eagles-stream-how-to-watch-nov-16/
+
 **Josh Johnson Isn’t Sold on Trump’s 50-Year Mortgage Plan**\
 `“This seems like a bad idea. And if Black people could get loans, I’d be worried,” Johnson said on “The Daily Show.”`\
 https://nytimes.com/2025/11/12/arts/television/josh-johnson-trump-mortgage-plan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6800106/2025/11/12/wild-lose-sharks-overtime-mackli
 **The New York Times in Print for Wednesday, Nov. 12, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/12/todays-new-york-times
-
-**When England last won in Australia: The story of the 2010-11 Ashes told by those who were there**\
-`England have not even won a Test match in Australia since triumphing 3-1 there 14 years ago, so this is how the class of 2010-11 prevailed`\
-https://nytimes.com/athletic/6773013/2025/11/12/ashes-england-australia-strauss-swann-hussey/
 

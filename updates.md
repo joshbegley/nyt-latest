@@ -1,3 +1,7 @@
+**Josh Johnson Isn’t Sold on Trump’s 50-Year Mortgage Plan**\
+`“This seems like a bad idea. And if Black people could get loans, I’d be worried,” Johnson said on “The Daily Show.”`\
+https://nytimes.com/2025/11/12/arts/television/josh-johnson-trump-mortgage-plan.html
+
 **Draymond Green gets candid after blowout loss to OKC, questions Warriors' commitment to winning**\
 `"Everybody was committed to winning and doing that any way possible," Green said. "And right now, it doesn't feel that way."`\
 https://nytimes.com/athletic/6800019/2025/11/12/draymond-green-jimmy-butler-stephen-curry-warriors-nba/
