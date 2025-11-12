@@ -1,3 +1,7 @@
+**Who could be this year's Arizona State? Identifying College Football Playoff long shots**\
+`Arizona State was a long-shot for the Playoff at this point last November. Who are candidates to climb into the bracket this year?`\
+https://nytimes.com/athletic/6800966/2025/11/12/college-football-playoff-bubble-teams/
+
 **Gus Johnson calls Indiana-Penn State a career highlight: 'The moment you dream about'**\
 `“I just got caught up in the euphoria of the moment and my pipes, they started squeaking a little bit," Johnson said of Omar Cooper's catch.`\
 https://nytimes.com/athletic/6798562/2025/11/12/gus-johnson-indiana-penn-state-football-fox-sports/

@@ -1,3 +1,7 @@
+**Who could be this year's Arizona State? Identifying College Football Playoff long shots**\
+`Arizona State was a long-shot for the Playoff at this point last November. Who are candidates to climb into the bracket this year?`\
+https://nytimes.com/athletic/6800966/2025/11/12/college-football-playoff-bubble-teams/
+
 **Gus Johnson calls Indiana-Penn State a career highlight: 'The moment you dream about'**\
 `“I just got caught up in the euphoria of the moment and my pipes, they started squeaking a little bit," Johnson said of Omar Cooper's catch.`\
 https://nytimes.com/athletic/6798562/2025/11/12/gus-johnson-indiana-penn-state-football-fox-sports/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6799310/2025/11/12/2028-olympics-schedule-los-angel
 **The $20 YouTube TV subscriber credit for missed ESPN: How you can claim it**\
 `It isn't the same as being able to watch the games, but YouTube TV subscribers can now claim their $20 credit for missing them.`\
 https://nytimes.com/athletic/6800920/2025/11/12/youtube-tv-credit-how-to-subscribers-espn/
-
-**Read the Jeffrey Epstein Emails That Mention Trump**\
-`House Democrats on Wednesday released emails in which Jeffrey Epstein sent messages to his longtime confidante Ghislaine Maxwell and the author Michael Wolff suggesting that Donald J. Trump knew more about the convicted sex offender’s abuse than he had acknowledged.`\
-https://nytimes.com/interactive/2025/11/12/us/epstein-emails.html
 
