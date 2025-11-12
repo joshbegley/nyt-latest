@@ -1,3 +1,11 @@
+**How the simple prop bet morphed into the epicenter of sports' gambling scandals: MoneyCall**\
+`More in this week's sports business cheat sheet: YouTube TV-ESPN pivot point, ATL's NWSL future and a new profile series from Asli Pelit.`\
+https://nytimes.com/athletic/6801478/2025/11/12/clase-rozier-prop-bets-scandal-moneycall/
+
+**Devin Williams confident he's back on track and teams tend to believe him: 'An elite option'**\
+`The Dodgers, Red Sox and Reds are among the dozen or so teams are interested in Williams.`\
+https://nytimes.com/athletic/6801354/2025/11/12/mlb-free-agents-devin-williams/
+
 **What’s in Our Queue? ‘Swing Girls’ and More**\
 `Text by Kiuko Notoya`\
 https://nytimes.com/card/2025/11/12/arts/editors-recommendations-swinggirls
@@ -25,12 +33,4 @@ https://nytimes.com/2025/11/12/us/politics/democrat-voters-government-shutdown-d
 **Hal Sirowitz, Poet Who Mined His Mother’s Worry With Wit, Dies at 76**\
 `He wrote of his suffocating relationship with his mother to create mordant reminiscences and became a standout at poetry slams in New York.`\
 https://nytimes.com/2025/11/12/nyregion/hal-sirowitz-dead.html
-
-**Premieres at the Paul Taylor Dance Company Lose the Taylor Thread**\
-`As part of its Lincoln Center season, the company presented works by Lauren Lovette, Robert Battle and Hope Boykin.`\
-https://nytimes.com/2025/11/12/arts/dance/paul-taylor-company-robert-battle-lauren-lovette-premieres.html
-
-**We Tested The Viral Bounce Curl Brush**\
-`The internet raves about these curl-defining brushes. Is the hype earned? Writer Hannah Frye gathered a group to test them out and was surprised by the positive reception.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010520309/we-tested-the-viral-bounce-curl-brush.html
 
