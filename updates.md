@@ -1,3 +1,11 @@
+**Why does NHL keep floating expansion? Have giveaway stats changed? Mirtle mailbag**\
+`Plus, is Montreal most likely to bring the Stanley Cup back to Canada? Will Bedard or Celebrini (or both) make the Olympics roster?`\
+https://nytimes.com/athletic/6799495/2025/11/12/nhl-expansion-olympics-giveaways-bedard-celebrini/
+
+**Free agents, big trades and lucky drafts: Most significant NBA transactions of the 21st century**\
+`From the Bucks drafting Giannis Antetokounmpo to the Luka Dončić trade we look at some of the most significant transactions of this century.`\
+https://nytimes.com/athletic/6799324/2025/11/12/nba-top-25-free-agents-trades-drafts/
+
 **The Pulse: The Mavericks’ nightmare is finally over**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6799094/2025/11/12/nico-harrison-fired-mavericks-the-pulse/
