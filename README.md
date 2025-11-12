@@ -1,3 +1,11 @@
+**Astros continue to overhaul staff; set to hire Anthony Iapoce as hitting coach**\
+`In Houston, Iapoce will work alongside Victor Rodríguez, who agreed to leave the San Diego Padres. `\
+https://nytimes.com/athletic/6795116/2025/11/12/houston-astros-anthony-iapoce-hitting-coach-hire/
+
+**Catholic Bishops Issue Rare Statement Objecting to U.S. Immigration Tactics**\
+`“We feel compelled now in this environment to raise our voices in defense of God-given human dignity,” they said in the statement.`\
+https://nytimes.com/2025/11/12/us/bishops-trump-immigration.html
+
 **Indigenous Protesters Clash With Guards at U.N. Climate Summit**\
 `Dozens of Indigenous protesters broke into the COP30 summit in Brazil on Tuesday, demanding preservation of their lands. Other Indigenous leaders who took part in the summit said the protesters did not represent the broader movement.`\
 https://nytimes.com/video/world/americas/100000010521226/indigenous-protesters-clash-with-guards-at-un-climate-summit.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/12/us/politics/federal-workers-government-shutdown.h
 **Watch Lesley Manville and Mark Strong of Broadway’s ‘Oedipus’ Go Head-to-Head**\
 `As the show opens in New York, its stars took their places amid the desks of T Magazine to deliver a pivotal scene.`\
 https://nytimes.com/2025/11/12/t-magazine/lesley-manville-mark-strong-oedipus.html
-
-**Live From the 10th Floor | A Scene From “Oedipus”**\
-`The actors Lesley Manville and Mark Strong perform a scene from the Broadway production of “Oedipus” in T Magazine’s office.`\
-https://nytimes.com/video/t-magazine/100000010519946/live-from-the-10th-floor-a-scene-from-oedipus.html
-
-**Lines at the Food Pantry, Billionaires at the White House**\
-`What the government shutdown revealed about Trump’s America.`\
-https://nytimes.com/2025/11/12/us/politics/shutdown-trump-rich-poor.html
 
