@@ -1,3 +1,7 @@
+**‘A Lot of Uncertainty’ Suddenly Surrounds a Storm Hitting California**\
+`The storm is expected to move quickly through Northern California by Thursday morning, but forecasters are concerned that it will stall in the southern part of the state.`\
+https://nytimes.com/2025/11/12/weather/california-storm-la-san-francisco-rain-forecast.html
+
 **Phillies' Dave Dombrowski says he had 'good conversation' with Bryce Harper**\
 `“Talked to him quite a while, and really, the conversation’s between Bryce and myself," Dombrowski said at the GM meetings.`\
 https://nytimes.com/athletic/6802119/2025/11/12/phillies-bryce-harper-dave-dombrowski-conversation/

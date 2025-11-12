@@ -1,3 +1,7 @@
+**‘A Lot of Uncertainty’ Suddenly Surrounds a Storm Hitting California**\
+`The storm is expected to move quickly through Northern California by Thursday morning, but forecasters are concerned that it will stall in the southern part of the state.`\
+https://nytimes.com/2025/11/12/weather/california-storm-la-san-francisco-rain-forecast.html
+
 **Phillies' Dave Dombrowski says he had 'good conversation' with Bryce Harper**\
 `“Talked to him quite a while, and really, the conversation’s between Bryce and myself," Dombrowski said at the GM meetings.`\
 https://nytimes.com/athletic/6802119/2025/11/12/phillies-bryce-harper-dave-dombrowski-conversation/
@@ -25,8 +29,4 @@ https://nytimes.com/2025/11/12/business/massachusetts-housing-bill-seasonal-comm
 **How to watch Hawks vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Atlanta Hawks play the Sacramento Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6802006/2025/11/12/hawks-vs-kings-stream-how-to-watch-nov-12/
-
-**How to watch Wizards vs. Rockets: Time, TV, streaming**\
-`Find out how to watch the Washington Wizards play the Houston Rockets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6802003/2025/11/12/wizards-vs-rockets-stream-how-to-watch-nov-12/
 
