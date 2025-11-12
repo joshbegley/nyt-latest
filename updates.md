@@ -1,3 +1,15 @@
+**Draymond Green gets candid after blowout loss to OKC, questions Warriors' commitment to winning**\
+`"Everybody was committed to winning and doing that any way possible," Green said. "And right now, it doesn't feel that way."`\
+https://nytimes.com/athletic/6800019/2025/11/12/draymond-green-jimmy-butler-stephen-curry-warriors-nba/
+
+**Hairstyles**\
+`What do you think your hair says about you?`\
+https://nytimes.com/2025/11/12/learning/hairstyles.html
+
+**Word of the Day: ascertain**\
+`This word has appeared in 100 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/12/learning/word-of-the-day-ascertain.html
+
 **Turkish Military Plane Crashes in Georgia, Killing 20 Troops**\
 `The Turkish defense minister said that 20 Air Force servicemen died when their military cargo plane crashed after taking off from Azerbaijan on Tuesday.`\
 https://nytimes.com/2025/11/12/world/middleeast/turkey-military-plane-crash-georgia.html
