@@ -1,3 +1,19 @@
+**NFL Week 11 survivor pool picks, strategy: Patriots will roll**\
+`Adam Gretz and Renee Miller take your questions and give their own survivor pool advice for NFL Week 11.`\
+https://nytimes.com/athletic/6800981/2025/11/12/nfl-week-11-survivor-pool-picks-strategy-patriots/
+
+**Here’s the latest.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2025/11/12/us/epstein-files-trump/heres-the-latest
+
+**By Not Funding Food Stamps, Trump Risks Lasting Damage to Safety Net**\
+`For the poorest Americans, the expected end to the longest shutdown in history has left doubt and anxiety around the benefits known as SNAP.`\
+https://nytimes.com/2025/11/12/us/politics/trump-food-stamps-safety-net.html
+
+**Europe’s Biggest Rare Earths Producer Forges U.S. Deals**\
+`The contracts are the latest sign of how Europe is lagging the United States in the race to break China’s chokehold on rare earths.`\
+https://nytimes.com/2025/11/12/business/europe-rare-earths.html
+
 **Inside the Bears' stout third-down defense: 'D.A.'s a mastermind'**\
 `See what Bears players like about Dennis Allen's third-down defenses and watch video breakdowns of the unique schemes. `\
 https://nytimes.com/athletic/6799133/2025/11/12/bears-third-down-defense-dennis-allen/
