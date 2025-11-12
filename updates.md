@@ -1,3 +1,11 @@
+**Epstein Bantered Regularly With Larry Summers**\
+`The former Treasury secretary corresponded routinely with Jeffrey Epstein. In one series of exchanges, he sought Mr. Epstein’s advice on how to handle a female acquaintance.`\
+https://nytimes.com/2025/11/12/us/politics/epstein-larry-summers.html
+
+**What Do You Get the Person Who Hates Gifts?**\
+`We asked readers for their toughest holiday quandaries. Here are our suggestions.`\
+https://nytimes.com/2025/11/12/t-magazine/gift-ideas-holiday-shopping.html
+
 **South Asia on Edge**\
 `There are no known links between two bomb attacks in India and Pakistan, but they come as tensions between the countries are already high.`\
 https://nytimes.com/2025/11/12/world/india-pakistan-epstein-trump.html
