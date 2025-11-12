@@ -1,3 +1,11 @@
+**Barcelona president Laporta refuses to entertain talk of Messi return**\
+`The eight-time Ballon d'Or winner left the Catalan side in 2021 after more than two decades with the club, despite not wanting to leave.`\
+https://nytimes.com/athletic/6797194/2025/11/12/lionel-messi-joan-laporta-barcelona-return/
+
+**The Browns have stuck with Dillon Gabriel, but the time for change is nearing**\
+`While Stefanski has shown no signs that Gabriel’s time is up, he also doesn't appear to think Shedeur Sanders is ready to step in. `\
+https://nytimes.com/athletic/6798899/2025/11/12/browns-dillon-gabriel-starter-shedeur-sanders/
+
 **Stokes confident in fitness of England pace attack ahead of opening Ashes Test**\
 `There have been question marks over the fitness of Mark Wood and Jofra Archer ahead of the first Test against Australia in Perth next week`\
 https://nytimes.com/athletic/6800434/2025/11/12/england-bowling-ashes-archer-wood/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6800485/2025/11/12/portsmouth-southampton-fan-ban-s
 **What we're hearing at MLB's GM meetings about the trade market for starting pitchers**\
 `Plus more details from Las Vegas on Edwin Diaz's contract desires and offseason plans for the Pirates, Marlins and Padres.`\
 https://nytimes.com/athletic/6800104/2025/11/12/mlb-offseason-trades-starting-pitching-general-manager-meetings/
-
-**How the Kansas City Current owners approach creating long-term value: Suite Level**\
-`Despite a shocking loss in the 2025 NWSL quarterfinals, K.C. Current owners Angie and Chris Long have experienced substantial success.`\
-https://nytimes.com/athletic/6796766/2025/11/12/kansas-city-current-angie-chris-long-nwsl/
-
-**Inside the Bears' stout third-down defense: 'D.A.'s a mastermind'**\
-`See what Bears players like about Dennis Allen's third-down defenses and watch video breakdowns of the unique schemes. `\
-https://nytimes.com/athletic/6799133/2025/11/12/bears-third-down-defense-dennis-allen/
 

@@ -1,3 +1,11 @@
+**Barcelona president Laporta refuses to entertain talk of Messi return**\
+`The eight-time Ballon d'Or winner left the Catalan side in 2021 after more than two decades with the club, despite not wanting to leave.`\
+https://nytimes.com/athletic/6797194/2025/11/12/lionel-messi-joan-laporta-barcelona-return/
+
+**The Browns have stuck with Dillon Gabriel, but the time for change is nearing**\
+`While Stefanski has shown no signs that Gabriel’s time is up, he also doesn't appear to think Shedeur Sanders is ready to step in. `\
+https://nytimes.com/athletic/6798899/2025/11/12/browns-dillon-gabriel-starter-shedeur-sanders/
+
 **Stokes confident in fitness of England pace attack ahead of opening Ashes Test**\
 `There have been question marks over the fitness of Mark Wood and Jofra Archer ahead of the first Test against Australia in Perth next week`\
 https://nytimes.com/athletic/6800434/2025/11/12/england-bowling-ashes-archer-wood/
