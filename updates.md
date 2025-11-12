@@ -1,3 +1,11 @@
+**Former Aide to N.Y. Governors Is on Trial, Accused Helping China**\
+`Linda Sun, who worked for Kathy Hochul and Andrew M. Cuomo, had luxury watches and cars that prosecutors say were rewards for boosting the country’s agenda.`\
+https://nytimes.com/2025/11/12/nyregion/linda-sun-china-trial.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/12/crosswords/spelling-bee-forum.html
+
 **Ross Barkley interview: 'I haven't drunk since the summer. It created situations I don't want anymore’**\
 `In a wide-ranging interview, Ross Barkley discusses the up and downs of his career from Everton to Villa and all in between`\
 https://nytimes.com/athletic/6794019/2025/11/12/ross-barkley-interview-everton-chelsea-villa/
