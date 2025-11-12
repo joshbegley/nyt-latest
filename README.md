@@ -1,6 +1,6 @@
 **Northern Lights Dazzle U.S. Skies as Far South as Alabama**\
 `The night skies across the United States lit up as fast-moving charged particles from the sun slammed into the Earth’s atmosphere.`\
-https://nytimes.com/2025/11/12/science/space/northern-lights-americas-photos-magnetic-storm.html
+https://nytimes.com/2025/11/12/science/space/northern-lights-photos-geomagnetic-storm.html
 
 **Byron Buxton could reconsider his future if Twins continue roster teardown**\
 `After professing his desire to remain with in Minnesota for the remainder of his career, Buxton could now be having second thoughts.`\
