@@ -1,5 +1,9 @@
+**Johnson to Seat Grijalva, Seven Weeks After She Was Elected**\
+`Speaker Mike Johnson had refused to swear in Representative-elect Adelita Grijalva, a Democrat of Arizona, claiming he lacked the power to do so.`\
+https://nytimes.com/2025/11/11/us/politics/adelita-grijalva-swearing-in-congress.html
+
 **Antonio Brown pleads not guilty in Miami attempted murder case**\
-`Antonio Brown’s lawyer filed a not guilty plea on his behalf on Tuesday as the former NFL wide receiver returned to Miami to face an attempted murder charge resulting from a shooting in May, according to court records.`\
+`Brown eluded authorities for more than four months while making social media posts from Dubai.`\
 https://nytimes.com/athletic/6799707/2025/11/11/antonio-brown-not-guilty-miami-attempted-murder/
 
 **College Football Playoff rankings of a different kind: Champions we can stomach**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6799515/2025/11/11/jaire-alexander-steps-away-retir
 **Duffy Won’t Give Timeline to Restore Flights as Shutdown Appears Near End**\
 `Sean Duffy, the transportation secretary, instead stepped up his warnings of potential chaos in the air-travel system, saying some airlines could ground their fleets by this weekend if the government is not reopened.`\
 https://nytimes.com/2025/11/11/us/flights-canceled-shutdown.html
-
-**Brewers' Pat Murphy becomes second-ever back-to-back NL Manager of the Year**\
-`Since taking the helm in Milwaukee, Murphy has led the team to consecutive 93+ win regular seasons and division titles. `\
-https://nytimes.com/athletic/6794887/2025/11/11/brewers-pat-murphy-national-league-manager-of-the-year/
 
