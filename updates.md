@@ -1,3 +1,43 @@
+**Advantage England? Wembley to host final and both semi-finals at Euro 2028**\
+`Just as in Euro 2020, the English national stadium in London will be the venue for the final three matches of Euro 2028.`\
+https://nytimes.com/athletic/6801287/2025/11/12/euro-2028-wembley-host-venues-england/
+
+**Massachusetts Offered a Solution to Housing Shortages. Is It Working?**\
+`The Affordable Housing Act designated Cape Cod, Martha’s Vineyard, the Berkshires and other resort towns as “seasonal communities,” making it easier to build homes there for workers.`\
+https://nytimes.com/2025/11/12/business/massachusetts-housing-bill-seasonal-communities.html
+
+**How to watch Hawks vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Atlanta Hawks play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6802006/2025/11/12/hawks-vs-kings-stream-how-to-watch-nov-12/
+
+**How to watch Wizards vs. Rockets: Time, TV, streaming**\
+`Find out how to watch the Washington Wizards play the Houston Rockets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6802003/2025/11/12/wizards-vs-rockets-stream-how-to-watch-nov-12/
+
+**How to watch Lakers vs. Thunder: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6802001/2025/11/12/lakers-vs-thunder-stream-how-to-watch-nov-12/
+
+**How to watch Nuggets vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the Denver Nuggets play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6801999/2025/11/12/nuggets-vs-clippers-stream-how-to-watch-nov-12/
+
+**How to watch Trail Blazers vs. Pelicans: Time, TV, streaming**\
+`Find out how to watch the Portland Trail Blazers play the New Orleans Pelicans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6801996/2025/11/12/trail-blazers-vs-pelicans-stream-how-to-watch-nov-12/
+
+**How to watch Devils vs. Blackhawks: Time, TV, streaming**\
+`Find out how to watch the New Jersey Devils play the Chicago Blackhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6801994/2025/11/12/devils-vs-blackhawks-stream-how-to-watch-nov-12/
+
+**How to watch Cavaliers vs. Heat: Time, TV, streaming**\
+`Find out how to watch the Cleveland Cavaliers play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6801992/2025/11/12/cavaliers-vs-heat-stream-how-to-watch-nov-12/
+
+**How to watch Suns vs. Mavericks: Time, TV, streaming**\
+`Find out how to watch the Phoenix Suns play the Dallas Mavericks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6801990/2025/11/12/suns-vs-mavericks-stream-how-to-watch-nov-12/
+
 **MSU gets probation, vacates wins over recruiting violations from Tucker era**\
 `Former Michigan State GM Saeed Khalif and former assistant Brandon Jordan paid travel expenses for six prospects who took unofficial visits.`\
 https://nytimes.com/athletic/6801749/2025/11/12/michigan-state-ncaa-violations-mel-tucker/
