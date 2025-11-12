@@ -1,3 +1,7 @@
+**Submit a question for James Boyd's Indianapolis Colts mailbag**\
+`The Indianapolis Colts own the NFL’s best record at 8-2 as they take a deep breath during their bye week.`\
+https://nytimes.com/athletic/6801523/2025/11/12/colts-mailbag-james-boyd-bye-week/
+
 **Virginia’s Governor-elect Wants a Say Over Leadership at U.Va.**\
 `Abigail Spanberger, a Democrat, told the university’s board that the choice of a new president, to replace one pushed out by Republicans over the summer, should be delayed until she is in office.`\
 https://nytimes.com/2025/11/12/us/virginia-governor-spanberger-uva-president.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/12/dining/sweet-potato-casserole-marshmallows-thanks
 **My Kids Are Becoming Adults. Can I Stop Hiding What I Think About Their Father?**\
 `This man has financially abused me and done everything in his power to undermine my career and my well-being.`\
 https://nytimes.com/2025/11/12/magazine/magazine-email/kids-coparent-ethics.html
-
-**Commanders start searching for a spark, 3,600 miles away from Washington**\
-`For the Commanders, finding their way back to playing well starts on a Real Madrid soccer pitch without goal posts.`\
-https://nytimes.com/athletic/6801278/2025/11/12/washington-commanders-real-madrid-spain/
 
