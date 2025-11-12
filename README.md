@@ -1,3 +1,7 @@
+**Inside Nico Harrison's tumultuous tenure, and what the Mavs' next GM choice could tell us**\
+`How did things go so wrong in Dallas under Nico Harrison and who is finding influence as a voice in the organization now?`\
+https://nytimes.com/athletic/6800940/2025/11/12/dallas-mavericks-gm-nico-harrison-culture-workplace/
+
 **Many Displaced Sudanese Feared Dead After Shipwreck Near Libya**\
 `Forty-two migrants were presumed dead after a rubber boat capsized off the Libyan coast this month. Many of the presumed victims were fleeing a raging conflict in Sudan.`\
 https://nytimes.com/2025/11/12/world/africa/sudan-migrants-shipwreck-libya.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/12/business/bostic-atlanta-fed-president.html
 **Fit, Focused—and Caught Off Guard**\
 `Four athletes over 50 on staying active and the virus they didn’t see coming`\
 https://nytimes.com/paidpost/2025-10-15/glaxosmithkline/rsv-2025.html
-
-**Who could be this year's Arizona State? Identifying College Football Playoff long shots**\
-`Arizona State was a long-shot for the Playoff at this point last November. Who are candidates to climb into the bracket this year?`\
-https://nytimes.com/athletic/6800966/2025/11/12/college-football-playoff-bubble-teams/
 
