@@ -1,3 +1,7 @@
+**Does This $1 Billion Art Collection Paint Too Rosy a Picture?**\
+`“No art investing experience? No problem,” the website of Masterworks announces. Zachary Small, a New York Times reporter covering the art world, explains why some experts see a problem.`\
+https://nytimes.com/video/arts/100000010088394/does-this-1-billion-art-collection-paint-too-rosy-a-picture.html
+
 **House Members Return to D.C. to Vote on Shutdown**\
 `U.S. representatives traveled by plane, train and motorcycle to Washington in order to vote on a bill that would end the government shutdown.`\
 https://nytimes.com/video/us/politics/100000010519328/house-vote-government-shutdown.html
