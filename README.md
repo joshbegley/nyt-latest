@@ -1,3 +1,7 @@
+**Agencies Tell Federal Workers to Prepare for Return as Shutdown Vote Nears**\
+`Health and Human Services directed its employees to plan to report to work on Thursday morning if legislation to fund the government passes.`\
+https://nytimes.com/2025/11/12/us/politics/federal-workers-government-shutdown.html
+
 **Watch Lesley Manville and Mark Strong of Broadway’s ‘Oedipus’ Go Head-to-Head**\
 `As the show opens in New York, its stars took their places amid the desks of T Magazine to deliver a pivotal scene.`\
 https://nytimes.com/2025/11/12/t-magazine/lesley-manville-mark-strong-oedipus.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/12/briefing/epstein-trump-congress-shutdown.html
 **Adams Makes It Harder for Mamdani to Build Over Elizabeth Street Garden**\
 `Mayor Eric Adams’s administration is designating the garden as parkland, which could stymie Mayor-elect Zohran Mamdani in his vow to revive the fight to put affordable housing there.`\
 https://nytimes.com/2025/11/12/nyregion/elizabeth-street-garden-parkland.html
-
-**Sally Kirkland, Scene-Stealing Actress, Dies at 84**\
-`She received an Oscar nomination for the 1987 film “Anna” but spent much of her prolific career as a go-to supporting actress in movies like “The Sting” and “JFK.”`\
-https://nytimes.com/2025/11/12/movies/sally-kirkland-dead.html
 
