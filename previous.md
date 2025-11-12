@@ -1,3 +1,7 @@
+**Dodgers seek a leverage reliever and Devin Williams emerges as a target: Sources**\
+`There appears to be mutual interest between the Dodgers and Williams, who is a free agent for the first time.`\
+https://nytimes.com/athletic/6799426/2025/11/11/dodgers-devin-williams-mlb-offseason/
+
 **After decade in the NFL, Paul DePodesta aims to revive Colorado Rockies**\
 `“I’m very willing to experiment and try to do things,” DePodesta said, as he takes over an organization that lost 119 games in 2025. `\
 https://nytimes.com/athletic/6799509/2025/11/11/paul-depodesta-colorado-rockies-mlb-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6797806/2025/11/11/college-football-playoff-second-
 **Trump Administration Plans to Send Border Patrol to Charlotte and New Orleans**\
 `Plans for the operations were still being finalized, according to a federal official with knowledge of them.`\
 https://nytimes.com/2025/11/11/us/trump-administration-plans-to-send-border-patrol-to-charlotte-and-new-orleans.html
-
-**Fantasy football strength of schedule: Week 11 and playoff matchup rankings**\
-`Jake Ciely's Week 11 matchup rankings can help with difficult start/sit decisions this week. Playoff rankings aid future plans. `\
-https://nytimes.com/athletic/6798040/2025/11/11/fantasy-football-strength-of-schedule-week-11-playoff-matchup-rankings/
 

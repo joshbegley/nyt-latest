@@ -1,3 +1,7 @@
+**Dodgers seek a leverage reliever and Devin Williams emerges as a target: Sources**\
+`There appears to be mutual interest between the Dodgers and Williams, who is a free agent for the first time.`\
+https://nytimes.com/athletic/6799426/2025/11/11/dodgers-devin-williams-mlb-offseason/
+
 **Eagles' Jaire Alexander stepping away from team to focus on physical, mental health**\
 `Last year, Alexander tore his PCL in Week 8, had a knee scope in January and did not play for the rest of the season.`\
 https://nytimes.com/athletic/6799515/2025/11/11/jaire-alexander-steps-away-retirement-eagles-nfl/
