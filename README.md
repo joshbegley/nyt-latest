@@ -1,3 +1,11 @@
+**Grijalva Signs Epstein Petition, Starting Clock Toward a Vote**\
+`Representative Adelita Grijalva, the Arizona Democrat who had waited weeks to be sworn in, provided the 218th and final signature needed to force action.`\
+https://nytimes.com/2025/11/12/us/adelita-grijalva-epstein-vote.html
+
+**Emotional Schottenheimer on Kneeland's death: 'We don't move on, but we do move forward'**\
+`Schottenheimer revealed that Kneeland's girlfriend, Catalina, is pregnant and a memorial fund was created to support her and the baby.`\
+https://nytimes.com/athletic/6801874/2025/11/12/brian-schottenheimer-marshawn-kneeland-death-cowboys/
+
 **What the Movies Need From Sydney Sweeney**\
 `Only stardom can save Hollywood.`\
 https://nytimes.com/2025/11/12/opinion/sydney-sweeney-christy.html
@@ -21,12 +29,4 @@ https://nytimes.com/2025/11/12/t-magazine/gift-ideas-holiday-shopping.html
 **South Asia on Edge**\
 `There are no known links between two bomb attacks in India and Pakistan, but they come as tensions between the countries are already high.`\
 https://nytimes.com/2025/11/12/world/india-pakistan-epstein-trump.html
-
-**Russia’s First A.I. Humanoid Robot Crashes Into the Tech Scene**\
-`AIDOL, Russia’s first AI humanoid robot, collapsed onstage moments after its unveiling at a technology event in Moscow on Tuesday.`\
-https://nytimes.com/video/world/europe/100000010520133/russia-robot-fall.html
-
-**Nonalcoholic Negroni**\
-`It can be difficult to find a nonalcoholic version of the classic Negroni that captures the complex flavor notes without involving the use of pricy nonalcoholic spirits.`\
-https://nytimes.com/video/dining/100000010519794/nonalcoholic-negroni.html
 

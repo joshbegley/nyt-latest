@@ -1,3 +1,7 @@
+**What the Movies Need From Sydney Sweeney**\
+`Only stardom can save Hollywood.`\
+https://nytimes.com/2025/11/12/opinion/sydney-sweeney-christy.html
+
 **Premier League could face legal action from players if clubs vote for 'anchoring'**\
 `Representatives of the PFA are due to meet with the captains of England's top-tier clubs next week.`\
 https://nytimes.com/athletic/6802035/2025/11/12/premier-league-legal-action-players-pfa/
