@@ -1,3 +1,7 @@
+**Sources: SJ star Espinoza becomes free agent after club passes on option**\
+`The 30-year-old playmaker will be one of the most sought-after names in MLS free agency this winter`\
+https://nytimes.com/athletic/6801119/2025/11/12/cristian-espinoza-san-jose-earthquakes-mls-free-agency/
+
 **2026 World Cup ticket costs jump; Here's where FIFA has raised prices**\
 `Another purchasing window has opened for 2026 World Cup tickets, and dynamic pricing is in full effect`\
 https://nytimes.com/athletic/6799981/2025/11/12/2026-world-cup-ticket-prices-usa-mexico-canada/
