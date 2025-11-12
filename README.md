@@ -1,3 +1,11 @@
+**Betting for (by) dummies: Fading Philly, Cincy, Georgia and Penn State**\
+`Jon Greenberg and Zac Jackson are fading a whole bunch of favorites across college and NFL games this week.`\
+https://nytimes.com/athletic/6799196/2025/11/12/football-betting-dummies-nfl-college-lions-eagles/
+
+**Edwards is making a brave and bold return to Wolves - he has an immense challenge ahead**\
+`Edwards has taken on an unenviable task but his history suggests he is equipped with the skills to be a sound appointment in the longer term`\
+https://nytimes.com/athletic/6789486/2025/11/12/rob-edwards-wolves-return/
+
 **Israel’s president says Trump asked him to pardon Netanyahu, who has not been convicted.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/11/12/us/trump-government-shutdown-news/israels-president-says-trump-asked-him-to-pardon-netanyahu-who-has-not-been-convicted
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6800869/2025/11/12/england-home-atmosphere-wembley/
 **A guide to this year's Leafs season for Blue Jays fans who are just tuning in now**\
 `It’s time to turn your attention back to that other blue-and-white team. So, you may be wondering: How are the Leafs doing?`\
 https://nytimes.com/athletic/6799782/2025/11/12/maple-leafs-blue-jays-season-guide/
-
-**How to Capture the Northern Lights With Just Your Smartphone**\
-`Modern cellphone cameras make it easy to capture the famously fickle Aurora Borealis.`\
-https://nytimes.com/2025/11/12/us/how-to-photograph-northern-lights-iphone.html
-
-**Late Game Heroics Headline Busy N.B.A. Monday Slate**\
-`Four were games decided by a total of 11 points across the N.B.A. on Monday, with dramatic finishes including an overtime buzzer-beater.`\
-https://nytimes.com/video/sports/basketball/100000010519626/late-game-heroics-headline-busy-nba-monday-slate.html
 
