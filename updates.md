@@ -1,3 +1,11 @@
+**We Tested The Viral Bounce Curl Brush**\
+`The internet raves about these curl-defining brushes. Is the hype earned? Writer Hannah Frye gathered a group to test them out and was surprised by the positive reception.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010520309/we-tested-the-viral-bounce-curl-brush.html
+
+**Cardinals' Marvin Harrison Jr. has appendectomy, will miss game vs. 49ers**\
+`In nine games, Harrison Jr. has 34 catches for 525 yards and four touchdowns.`\
+https://nytimes.com/athletic/6801431/2025/11/12/cardinals-marvin-harrison-jr-appendicitis-injury/
+
 **Submit a question for James Boyd's Indianapolis Colts mailbag**\
 `The Indianapolis Colts own the NFL’s best record at 8-2 as they take a deep breath during their bye week.`\
 https://nytimes.com/athletic/6801523/2025/11/12/colts-mailbag-james-boyd-bye-week/
