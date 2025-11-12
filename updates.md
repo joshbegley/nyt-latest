@@ -1,3 +1,11 @@
+**Macklin Celebrini comes up clutch as Wild lose in OT in game they 'dominated': Takeaways**\
+`Minnesota controlled a good part of Tuesday's matchup with the San Jose Sharks, but that's what made this 2-1 loss so hard to digest.`\
+https://nytimes.com/athletic/6800106/2025/11/12/wild-lose-sharks-overtime-macklin-celebrini/
+
+**How Matos the manager was forged by 'special' Klopp and Liverpool life**\
+`The Portuguese is blazing his own trail in his home country's second tier after learning crucial lessons at Anfield`\
+https://nytimes.com/athletic/6786867/2025/11/12/vitor-matos-liverpool-jurgen-klopp-manager/
+
 **The New York Times in Print for Wednesday, Nov. 12, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/12/todays-new-york-times
