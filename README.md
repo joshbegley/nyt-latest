@@ -1,3 +1,11 @@
+**MLB meets with union as salary cap, lockout talks swirl: Source**\
+`Unsurprisingly, the players and owners do not share the same perspective at this point, sources said.`\
+https://nytimes.com/athletic/6799894/2025/11/11/mlb-union-meet-salary-cap-lockout-talks/
+
+**Jack Schlossberg, Kennedy Heir, to Seek Nadler’s N.Y. Congressional Seat**\
+`Mr. Schlossberg, the son of Caroline Kennedy, said the Democratic Party needed someone who could stand up to President Trump and his allies.`\
+https://nytimes.com/2025/11/11/nyregion/jack-schlossberg-congress-run.html
+
 **MLB prefers to discipline Guardians' Ortiz and Clase by spring training: Source**\
 `Clase and Ortiz were indicted Sunday on a host of charges tied to allegedly rigging pitches during MLB games.`\
 https://nytimes.com/athletic/6799532/2025/11/11/mlb-prefers-to-discipline-guardians-ortiz-and-clase-by-spring-training-source/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/11/climate/states-that-rely-on-the-colorado-river-mi
 **Leafs' Auston Matthews, Anthony Stolarz exit vs. Bruins with injuries**\
 `Matthews (lower body) and Stolarz (upper body) were ruled out of Toronto's game in Boston on Tuesday.`\
 https://nytimes.com/athletic/6799789/2025/11/11/maple-leafs-auston-matthews-anthony-stolarz-injury/
-
-**Phillies' outfield revamp: Justin Crawford, no Nick Castellanos, and a lot of questions**\
-`The Phillies are actively shopping Nick Castellanos at this week's GM meetings, multiple major-league sources told The Athletic.`\
-https://nytimes.com/athletic/6799693/2025/11/11/phillies-outfield-nick-castellanos-justin-crawford/
-
-**Johnson to Seat Grijalva, Seven Weeks After She Was Elected**\
-`Speaker Mike Johnson had refused to swear in Representative-elect Adelita Grijalva, a Democrat of Arizona, claiming he lacked the power to do so.`\
-https://nytimes.com/2025/11/11/us/politics/adelita-grijalva-swearing-in-congress.html
 
