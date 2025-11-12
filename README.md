@@ -1,3 +1,11 @@
+**How to Capture the Northern Lights With Just Your Smartphone**\
+`Modern cellphone cameras make it easy to capture the famously fickle Aurora Borealis.`\
+https://nytimes.com/2025/11/12/us/how-to-photograph-northern-lights-iphone.html
+
+**Late Game Heroics Headline Busy N.B.A. Monday Slate**\
+`Four were games decided by a total of 11 points across the N.B.A. on Monday, with dramatic finishes including an overtime buzzer-beater.`\
+https://nytimes.com/video/sports/basketball/100000010519626/late-game-heroics-headline-busy-nba-monday-slate.html
+
 **Israel Reopens Crossing Into Northern Gaza for Aid**\
 `The cease-fire with Hamas has blunted the hunger faced by Gazans during the war. But aid agencies say Israeli restrictions are still hobbling their work.`\
 https://nytimes.com/2025/11/12/world/middleeast/israel-gaza-zikim-crossing-aid.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6799825/2025/11/12/indiana-texas-am-playoff-mandels
 **The Oilers' forward makeover isn't working. What's gone wrong?**\
 `The Oilers revamping their forward mix in the offseason was made in part by choice and in part by necessity.`\
 https://nytimes.com/athletic/6794965/2025/11/12/edmonton-oilers-forwards-stats-trade/
-
-**Trump Administration Live Updates: House to Take Up Bill to End Shutdown**\
-``\
-https://nytimes.com/live/2025/11/12/us/trump-government-shutdown-news
-
-**Giants name Jameis Winston QB2; he will start if Jaxson Dart is out: Source**\
-`Winston takes over as Dart's primary backup, relegating veteran Russell Wilson to QB3.`\
-https://nytimes.com/athletic/6795038/2025/11/12/ny-giants-jameis-winston-jaxson-dart-russell-wilson/
 
