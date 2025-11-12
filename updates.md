@@ -1,3 +1,11 @@
+**China’s Green Triumph**\
+`China is equipping other countries to fight climate change. It’s a role reversal.`\
+https://nytimes.com/2025/11/12/briefing/chinas-green-triumph.html
+
+**College football Week 12 streaming guide: Notre Dame-Pitt, Texas-Georgia, the vast unknown**\
+`Here's where the college football thrill ride starts to slope into its corkscrew drop. Texas and Georgia lead a crowded Week 12 TV schedule.`\
+https://nytimes.com/athletic/6788659/2025/11/12/college-football-week-12-notre-dame-pitt-texas-georgia/
+
 **Will Borgen has given the Rangers the defensive breakout they banked on**\
 `The 28-year-old is set to be part of the team for the near future, and his defensive prowess is the main reason why.`\
 https://nytimes.com/athletic/6798912/2025/11/12/new-york-rangers-will-borgen-defense/
