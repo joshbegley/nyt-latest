@@ -1,3 +1,7 @@
+**Signs Suggest Air Traffic Crisis is Easing, but Restrictions Remain**\
+`It was unclear when the Trump administration planned to reverse mandated cuts at major airports, though transportation officials and industry groups said it would take a week after the shutdown ended for air travel to return to normal.`\
+https://nytimes.com/2025/11/12/us/politics/faa-shutdown-flights-air-traffic-crisis.html
+
 **Grijalva Signs Epstein Petition, Starting Clock Toward a Vote**\
 `Representative Adelita Grijalva, the Arizona Democrat who had waited weeks to be sworn in, provided the 218th and final signature needed to force action.`\
 https://nytimes.com/2025/11/12/us/adelita-grijalva-epstein-vote.html
