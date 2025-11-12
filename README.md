@@ -1,3 +1,7 @@
+**Northern Lights Illuminate Skies Above North America**\
+`The northern lights could be seen in skies as far south as Texas late Tuesday and early Wednesday after the sun emitted masses of charged particles that disrupted the Earth’s magnetic field — and created a dazzling display.`\
+https://nytimes.com/video/world/americas/100000010519515/northern-lights-north-america.html
+
 **Bulls have built solid template through 10 games, but how high is their ceiling?**\
 `Chicago has a budding star in Josh Giddey, and its depth and pace have led to wins. But one major piece is still missing.  `\
 https://nytimes.com/athletic/6800227/2025/11/12/chicago-bulls-first-10-games-josh-giddey-matas-buzelis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6798912/2025/11/12/new-york-rangers-will-borgen-def
 **Is now the time for the Flyers to extend Trevor Zegras?**\
 `The 24-year-old Zegras, who is a pending restricted free agent, has fit in with the Flyers on and off the ice. `\
 https://nytimes.com/athletic/6798771/2025/11/12/philadelphia-flyers-trevor-zegras-contract-extension/
-
-**When England last won in Australia: The story of the 2010-11 Ashes told by those who were there**\
-`England have not even won a Test match in Australia since triumphing 3-1 there 14 years ago, so this is how the class of 2010-11 prevailed`\
-https://nytimes.com/athletic/6773013/2025/11/12/ashes-england-australia-strauss-swann-hussey/
 
