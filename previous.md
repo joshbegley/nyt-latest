@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6800920/2025/11/12/youtube-tv-credit-how-to-subscribers-espn/
 
 **Read the Jeffrey Epstein Emails That Mention Trump**\
-`House Democrats on Wednesday released emails in which Jeffrey Epstein sent messages to his longtime confidante Ghislaine Maxwell and the author Michael Wolff suggesting that Donald J. Trump knew more about the convicted sex offender’s abuse than he had acknowledged.`\
+`House Democrats on Wednesday released emails in which Jeffrey Epstein sent messages to his longtime confidante Ghislaine Maxwell and the author Michael Wolff suggesting that Donald J.`\
 https://nytimes.com/interactive/2025/11/12/us/epstein-emails.html
 
 **Betting for (by) dummies: Fading Philly, Pittsburgh and Penn State (sorry, PA)**\

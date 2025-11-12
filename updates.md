@@ -1,3 +1,7 @@
+**Read the Jeffrey Epstein Emails That Mention Trump**\
+`House Democrats on Wednesday released emails in which Jeffrey Epstein sent messages to his longtime confidante Ghislaine Maxwell and the author Michael Wolff suggesting that Donald J.`\
+https://nytimes.com/interactive/2025/11/12/us/epstein-emails.html
+
 **The $20 YouTube TV subscriber credit for missed ESPN: How you can claim it**\
 `It isn't the same as being able to watch the games, but YouTube TV subscribers can now claim their $20 credit for missing them.`\
 https://nytimes.com/athletic/6800920/2025/11/12/youtube-tv-credit-how-to-subscribers-espn/
