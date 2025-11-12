@@ -1,3 +1,7 @@
+**House Members Return to D.C. to Vote on Shutdown**\
+`U.S. representatives traveled by plane, train and motorcycle to Washington in order to vote on a bill that would end the government shutdown.`\
+https://nytimes.com/video/us/politics/100000010519328/house-vote-government-shutdown.html
+
 **Former Aide to N.Y. Governors Is on Trial, Accused of Helping China**\
 `Linda Sun, who worked for Kathy Hochul and Andrew M. Cuomo, had luxury watches and cars that prosecutors say were rewards for boosting the country’s agenda.`\
 https://nytimes.com/2025/11/12/nyregion/linda-sun-china-trial.html
