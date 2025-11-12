@@ -1,3 +1,7 @@
+**How to watch Lions vs. Eagles: Time, TV, streaming**\
+`Find out how to watch the Detroit Lions play the Philadelphia Eagles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6800284/2025/11/12/lions-vs-eagles-stream-how-to-watch-nov-16/
+
 **Josh Johnson Isn’t Sold on Trump’s 50-Year Mortgage Plan**\
 `“This seems like a bad idea. And if Black people could get loans, I’d be worried,” Johnson said on “The Daily Show.”`\
 https://nytimes.com/2025/11/12/arts/television/josh-johnson-trump-mortgage-plan.html
