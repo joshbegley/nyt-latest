@@ -1,3 +1,15 @@
+**City Council Set to Approve Plan That Could Bring 14,700 Homes to Queens**\
+`The New York plan would open up 54 blocks of Long Island City, which are mostly warehouses and parking lots, to housing.`\
+https://nytimes.com/2025/11/12/nyregion/new-york-city-queens-rezoning.html
+
+**The Haves and Have-Nots Are, Once Again, at War**\
+`The central dynamic of American politics, underground for a decade, is back.`\
+https://nytimes.com/2025/11/12/opinion/mamdani-inequality-politics.html
+
+**As Belgium Races to Save U.S.A.I.D. Contraception, Some Supplies Are Reported Ruined**\
+`The Belgian government is in talks with the Trump administration to save birth control stranded in a warehouse, but another shipment has been incorrectly stored.`\
+https://nytimes.com/2025/11/12/world/europe/belgium-usaid-contraception.html
+
 **What the Look of Your Favorite Podcast Is Trying to Tell You**\
 `Modern online chat shows look less fussy and polished than TV. That’s by design.`\
 https://nytimes.com/interactive/2025/11/12/arts/podcast-sets-design.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6801427/2025/11/12/mainz-anwar-el-ghazi-appeal/
 **What We Know About Epstein’s Emails Alleging That Trump Knew of His Conduct**\
 `Democrats on the House Oversight Committee released emails suggesting that President Trump knew more about Jeffrey Epstein’s activities than he has acknowledged.`\
 https://nytimes.com/2025/11/12/us/politics/epstein-emails-trump.html
-
-**Labour Party’s Internal Fight Goes Public, as Starmer’s Trouble Grows**\
-`An attempt by Keir Starmer’s allies to undercut a rival has forced into the open a party debate over whether to replace the prime minister.`\
-https://nytimes.com/2025/11/12/world/europe/labour-party-starmer-challenge.html
-
-**Trump Ramps Up Pressure on G.O.P. to Thwart Epstein Vote**\
-`Representative Lauren Boebert, one of the Republicans pressing for more Epstein disclosures, was summoned for a meeting in the White House Situation Room.`\
-https://nytimes.com/2025/11/12/us/politics/trump-epstein-vote-boebert.html
-
-**Sources: MLS owners eye vote on season calendar, format changes Thursday**\
-`Substantial change could be coming to MLS's structure and operations following a Thursday vote, sources tell The Athletic`\
-https://nytimes.com/athletic/6801193/2025/11/12/mls-fall-spring-calendar-season-format-change-owners-vote/
 

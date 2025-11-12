@@ -1,3 +1,15 @@
+**City Council Set to Approve Plan That Could Bring 14,700 Homes to Queens**\
+`The New York plan would open up 54 blocks of Long Island City, which are mostly warehouses and parking lots, to housing.`\
+https://nytimes.com/2025/11/12/nyregion/new-york-city-queens-rezoning.html
+
+**The Haves and Have-Nots Are, Once Again, at War**\
+`The central dynamic of American politics, underground for a decade, is back.`\
+https://nytimes.com/2025/11/12/opinion/mamdani-inequality-politics.html
+
+**As Belgium Races to Save U.S.A.I.D. Contraception, Some Supplies Are Reported Ruined**\
+`The Belgian government is in talks with the Trump administration to save birth control stranded in a warehouse, but another shipment has been incorrectly stored.`\
+https://nytimes.com/2025/11/12/world/europe/belgium-usaid-contraception.html
+
 **Scoop City: Mock drafting the top 5 picks of 2026**\
 `Two rare absences from the NFL's top 10 teams, plus a top-five mock draft for 2026 and some kickoff controversy`\
 https://nytimes.com/athletic/6801805/2025/11/12/nfl-mock-top-5-2026-draft-chiefs-bills-kickoff-scoop-city/
