@@ -1,3 +1,7 @@
+**Does This $1 Billion Art Collection Paint Too Rosy a Picture?**\
+`“No art investing experience? No problem,” the website of Masterworks announces. Zachary Small, a New York Times reporter covering the art world, explains why some experts see a problem.`\
+https://nytimes.com/video/arts/100000010088394/does-this-1-billion-art-collection-paint-too-rosy-a-picture.html
+
 **House Members Return to D.C. to Vote on Shutdown**\
 `U.S. representatives traveled by plane, train and motorcycle to Washington in order to vote on a bill that would end the government shutdown.`\
 https://nytimes.com/video/us/politics/100000010519328/house-vote-government-shutdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6795077/2025/11/12/ross-barkley-teetotal-chelsea-ev
 **How to watch Lions vs. Eagles: Time, TV, streaming**\
 `Find out how to watch the Detroit Lions play the Philadelphia Eagles, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6800284/2025/11/12/lions-vs-eagles-stream-how-to-watch-nov-16/
-
-**Josh Johnson Isn’t Sold on Trump’s 50-Year Mortgage Plan**\
-`“This seems like a bad idea. And if Black people could get loans, I’d be worried,” Johnson said on “The Daily Show.”`\
-https://nytimes.com/2025/11/12/arts/television/josh-johnson-trump-mortgage-plan.html
 
