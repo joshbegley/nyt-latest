@@ -1,5 +1,9 @@
+**The $20 YouTube TV subscriber credit for missed ESPN: How you can claim it**\
+`It isn't the same as being able to watch the games, but YouTube TV subscribers can now claim their $20 credit for missing them.`\
+https://nytimes.com/athletic/6800920/2025/11/12/youtube-tv-credit-how-to-subscribers-espn/
+
 **Read the Jeffrey Epstein Emails That Mention Trump**\
-`House Democrats released emails in which the convicted sex offender Jeffrey Epstein sent messages to his longtime confidante Ghislaine Maxwell and the author Michael Wolff that suggested that he believed Donald J. Trump knew more about his abuse than he has acknowledged.`\
+`House Democrats on Wednesday released emails in which Jeffrey Epstein sent messages to his longtime confidante Ghislaine Maxwell and the author Michael Wolff suggesting that Donald J. Trump knew more about the convicted sex offender’s abuse than he had acknowledged.`\
 https://nytimes.com/interactive/2025/11/12/us/epstein-emails.html
 
 **Betting for (by) dummies: Fading Philly, Pittsburgh and Penn State (sorry, PA)**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/12/style/father-wedding-grief.html
 **The unspoken topic that has Ravens' tight ends focused on staying in the present**\
 `Mark Andrews, Isaiah Likely, Charlie Kolar and Patrick Ricard are all pending free agents, creating an odd dynamic in the tight end room.`\
 https://nytimes.com/athletic/6799134/2025/11/12/ravens-tight-ends-mark-andrews-isaiah-likely-charlie-kolar/
-
-**Tuchel puts onus on England team to create Wembley atmosphere**\
-`England return to Wembley Stadium on Thursday night for their first home game since Tuchel said he was “underwhelmed” by the home support.`\
-https://nytimes.com/athletic/6800869/2025/11/12/england-home-atmosphere-wembley/
 
