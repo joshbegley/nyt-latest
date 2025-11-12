@@ -1,3 +1,15 @@
+**What the Look of Your Favorite Podcast Is Trying to Tell You**\
+`Modern online chat shows look less fussy and polished than TV. That’s by design.`\
+https://nytimes.com/interactive/2025/11/12/arts/podcast-sets-design.html
+
+**Scoop City: Drafting the top 5 picks of 2026**\
+`Two rare absences from the NFL's top 10 teams, plus a top-five mock draft for 2026 and some kickoff controversy`\
+https://nytimes.com/athletic/6801805/2025/11/12/nfl-mock-top-5-2026-draft-chiefs-bills-kickoff-scoop-city/
+
+**Algeria Pardons Imprisoned Writer at Germany’s Request**\
+`Boualem Sansal, an Algerian-French writer, was arrested on accusations of undermining national security during a visit to his homeland a year ago and sentenced to five years in prison.`\
+https://nytimes.com/2025/11/12/world/africa/algeria-boualem-sansal-pardon.html
+
 **2026 World Cup ticket costs jump; Here's where FIFA has raised prices**\
 `Another purchasing window has opened for 2026 World Cup tickets, and dynamic pricing is in full effect`\
 https://nytimes.com/athletic/6799981/2025/11/12/2026-world-cup-ticket-prices-usa-mexico-canada/
@@ -22,19 +34,7 @@ https://nytimes.com/2025/11/12/world/europe/labour-party-starmer-challenge.html
 `Representative Lauren Boebert, one of the Republicans pressing for more Epstein disclosures, was summoned for a meeting in the White House Situation Room.`\
 https://nytimes.com/2025/11/12/us/politics/trump-epstein-vote-boebert.html
 
-**Sources: MLS owners set to vote on season calendar, format changes Thursday**\
+**Sources: MLS owners eye vote on season calendar, format changes Thursday**\
 `Substantial change could be coming to MLS's structure and operations following a Thursday vote, sources tell The Athletic`\
 https://nytimes.com/athletic/6801193/2025/11/12/mls-fall-spring-calendar-season-format-change-owners-vote/
-
-**Arline Bronzaft, Who Campaigned for a Quieter City, Dies at 89**\
-`She studied the impact of noise on health and classroom learning and helped impose stricter regulations in New York City.`\
-https://nytimes.com/2025/11/12/nyregion/arline-bronzaft-dead.html
-
-**The Penny Dies at 232**\
-`A long decline into irrelevance ended on Wednesday in Philadelphia.`\
-https://nytimes.com/2025/11/12/business/penny-coin-legacy.html
-
-**Will Lions' St. Brown be disciplined after Payne posts video?**\
-`The Commanders defensive tackle received a one-game suspension for punching St. Brown in the Lions' win last week.`\
-https://nytimes.com/athletic/6801418/2025/11/12/amon-ra-st-brown-daron-payne-punch-discipline/
 
