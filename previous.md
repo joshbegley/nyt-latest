@@ -1,3 +1,7 @@
+**Read the Jeffrey Epstein Emails That Mention Trump**\
+`House Democrats released emails in which the convicted sex offender Jeffrey Epstein sent messages to his longtime confidante Ghislaine Maxwell and the author Michael Wolff that suggested that he believed Donald J. Trump knew more about his abuse than he has acknowledged.`\
+https://nytimes.com/interactive/2025/11/12/us/epstein-emails.html
+
 **Betting for (by) dummies: Fading Philly, Pittsburgh and Penn State (sorry, PA)**\
 `Jon Greenberg and Zac Jackson are fading a whole bunch of favorites across college and NFL games this week.`\
 https://nytimes.com/athletic/6799196/2025/11/12/football-betting-dummies-nfl-college-lions-eagles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6799134/2025/11/12/ravens-tight-ends-mark-andrews-i
 **Tuchel puts onus on England team to create Wembley atmosphere**\
 `England return to Wembley Stadium on Thursday night for their first home game since Tuchel said he was “underwhelmed” by the home support.`\
 https://nytimes.com/athletic/6800869/2025/11/12/england-home-atmosphere-wembley/
-
-**A guide to this year's Leafs season for Blue Jays fans who are just tuning in now**\
-`It’s time to turn your attention back to that other blue-and-white team. So, you may be wondering: How are the Leafs doing?`\
-https://nytimes.com/athletic/6799782/2025/11/12/maple-leafs-blue-jays-season-guide/
 

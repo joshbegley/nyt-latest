@@ -1,3 +1,7 @@
+**Read the Jeffrey Epstein Emails That Mention Trump**\
+`House Democrats released emails in which the convicted sex offender Jeffrey Epstein sent messages to his longtime confidante Ghislaine Maxwell and the author Michael Wolff that suggested that he believed Donald J. Trump knew more about his abuse than he has acknowledged.`\
+https://nytimes.com/interactive/2025/11/12/us/epstein-emails.html
+
 **Betting for (by) dummies: Fading Philly, Pittsburgh and Penn State (sorry, PA)**\
 `Jon Greenberg and Zac Jackson are fading a whole bunch of favorites across college and NFL games this week.`\
 https://nytimes.com/athletic/6799196/2025/11/12/football-betting-dummies-nfl-college-lions-eagles/
