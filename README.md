@@ -1,40 +1,40 @@
-**City Council Set to Approve Plan That Could Bring 14,700 Homes to Queens**\
-`The New York plan would open up 54 blocks of Long Island City, which are mostly warehouses and parking lots, to housing.`\
-https://nytimes.com/2025/11/12/nyregion/new-york-city-queens-rezoning.html
+**MSU gets probation, vacates wins over recruiting violations from Tucker era**\
+`Former Michigan State GM Saeed Khalif and former assistant Brandon Jordan paid travel expenses for six prospects who took unofficial visits.`\
+https://nytimes.com/athletic/6801749/2025/11/12/michigan-state-ncaa-violations-mel-tucker/
 
-**The Haves and Have-Nots Are, Once Again, at War**\
-`The central dynamic of American politics, underground for a decade, is back.`\
-https://nytimes.com/2025/11/12/opinion/mamdani-inequality-politics.html
+**Bradley Beal to miss rest of season with hip injury: Sources**\
+`The former 30-point scorer, waived by the Phoenix Suns this offseason, played just six games with the LA Clippers. `\
+https://nytimes.com/athletic/6801661/2025/11/12/bradley-beal-injury-clippers-hip-surgery/
 
-**As Belgium Races to Save U.S.A.I.D. Contraception, Some Supplies Are Reported Ruined**\
-`The Belgian government is in talks with the Trump administration to save birth control stranded in a warehouse, but another shipment has been incorrectly stored.`\
-https://nytimes.com/2025/11/12/world/europe/belgium-usaid-contraception.html
+**Jets WR Garrett Wilson (knee) out for Patriots game on Thursday night**\
+`Wilson missed two games with an injury to the same knee earlier this season.`\
+https://nytimes.com/athletic/6796382/2025/11/12/garrett-wilson-new-york-jets-knee-injury/
 
-**What the Look of Your Favorite Podcast Is Trying to Tell You**\
-`Modern online chat shows look less fussy and polished than TV. That’s by design.`\
-https://nytimes.com/interactive/2025/11/12/arts/podcast-sets-design.html
+**How to watch Valparaiso vs. Iowa State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Valparaiso Beacons play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6801954/2025/11/12/valparaiso-vs-iowa-state-stream-how-to-watch-nov-12/
 
-**Scoop City: Mock drafting the top 5 picks of 2026**\
-`Two rare absences from the NFL's top 10 teams, plus a top-five mock draft for 2026 and some kickoff controversy`\
-https://nytimes.com/athletic/6801805/2025/11/12/nfl-mock-top-5-2026-draft-chiefs-bills-kickoff-scoop-city/
+**Hollywood Bowl Names Its Stage for John Williams**\
+`The celebrated venue dedicated its stage to the composer for “Star Wars,” “Jurassic Park” and other blockbusters, a first in the bowl’s 103 years.`\
+https://nytimes.com/2025/11/12/arts/music/john-williams-hollywood-bowl.html
 
-**Algeria Pardons Imprisoned Writer at Germany’s Request**\
-`Boualem Sansal, an Algerian-French writer, was arrested on accusations of undermining national security during a visit to his homeland a year ago and sentenced to five years in prison.`\
-https://nytimes.com/2025/11/12/world/africa/algeria-boualem-sansal-pardon.html
+**The Rebel Turned President Willing to Take On Trump**\
+`From his guerrilla roots, Colombia’s president, Gustavo Petro, has long embraced a confrontational style. Now, he has incurred President Trump’s wrath and is facing political fallout at home.`\
+https://nytimes.com/2025/11/12/world/americas/gustavo-petro-colombia-trump.html
 
-**2026 World Cup ticket costs jump; Here's where FIFA has raised prices**\
-`Another purchasing window has opened for 2026 World Cup tickets, and dynamic pricing is in full effect`\
-https://nytimes.com/athletic/6799981/2025/11/12/2026-world-cup-ticket-prices-usa-mexico-canada/
+**How to watch Tennessee State vs. TCU women's basketball: Time, TV, streaming**\
+`Find out how to watch the Tennessee State Lady Tigers play the TCU Horned Frogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6801951/2025/11/12/tennessee-state-vs-tcu-stream-how-to-watch-nov-12/
 
-**Sources: SJ star Espinoza becomes free agent after option expires**\
-`The 30-year-old playmaker will be one of the most sought-after names in MLS free agency this winter`\
-https://nytimes.com/athletic/6801119/2025/11/12/cristian-espinoza-san-jose-earthquakes-mls-free-agency/
+**How to watch UMKC vs. Oklahoma women's basketball: Time, TV, streaming**\
+`Find out how to watch the UMKC Roos play the Oklahoma Sooners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6801948/2025/11/12/umkc-vs-oklahoma-stream-how-to-watch-nov-12/
 
-**Mainz lose appeal against unfair dismissal of Anwar El Ghazi**\
-`The German club were ordered to pay €1.5million (£1.3m; $1.7m) to El Ghazi by Mainz Labour Court last year.`\
-https://nytimes.com/athletic/6801427/2025/11/12/mainz-anwar-el-ghazi-appeal/
+**How to watch Loyola Chicago vs. UConn women's basketball: Time, TV, streaming**\
+`Find out how to watch the Loyola Chicago Ramblers play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6801946/2025/11/12/loyola-chicago-vs-uconn-stream-how-to-watch-nov-12/
 
-**What We Know About Epstein’s Emails Alleging That Trump Knew of His Conduct**\
-`Democrats on the House Oversight Committee released emails suggesting that President Trump knew more about Jeffrey Epstein’s activities than he has acknowledged.`\
-https://nytimes.com/2025/11/12/us/politics/epstein-emails-trump.html
+**How to watch Charlotte vs. LSU women's basketball: Time, TV, streaming**\
+`Find out how to watch the Charlotte 49ers play the LSU Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6801943/2025/11/12/charlotte-vs-lsu-stream-how-to-watch-nov-12/
 
