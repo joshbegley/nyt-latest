@@ -30,7 +30,3 @@ https://nytimes.com/2025/11/12/nyregion/hal-sirowitz-dead.html
 `As part of its Lincoln Center season, the company presented works by Lauren Lovette, Robert Battle and Hope Boykin.`\
 https://nytimes.com/2025/11/12/arts/dance/paul-taylor-company-robert-battle-lauren-lovette-premieres.html
 
-**We Tested The Viral Bounce Curl Brush**\
-`The internet raves about these curl-defining brushes. Is the hype earned? Writer Hannah Frye gathered a group to test them out and was surprised by the positive reception.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010520309/we-tested-the-viral-bounce-curl-brush.html
-

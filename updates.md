@@ -1,3 +1,15 @@
+**What’s in Our Queue? ‘Swing Girls’ and More**\
+`Text by Kiuko Notoya`\
+https://nytimes.com/card/2025/11/12/arts/editors-recommendations-swinggirls
+
+**Trump and the Rising Cost of Health Care**\
+`Readers respond to news analysis articles about health care and the shutdown. Also: Art in new spaces; what A.I. isn’t.`\
+https://nytimes.com/2025/11/12/opinion/trump-health-care-shutdown.html
+
+**Giants interim Mike Kafka 'looking forward to challenge' of coaching team**\
+`Kafka takes over the 2-8 Giants as they prepare to play the Packers in Week 11.`\
+https://nytimes.com/athletic/6801153/2025/11/12/mike-kafka-giants-interim-brian-daboll-fired/
+
 **Tkachuk brothers announce podcast, becoming only active NHLers with talk show**\
 `The show debuts on Thursday and is part of Wave Sports + Entertainment, the same digital group behind "New Heights" with the Kelce brothers.`\
 https://nytimes.com/athletic/6790030/2025/11/12/tkachuk-matthew-brady-brothers-podcast-nhl/
