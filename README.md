@@ -1,3 +1,15 @@
+**Rosalía on Pop Stars Who Embody the Spirit of ‘Duende’**\
+`Rosalía’s new album, “Lux,” is out now. Activate your duende and check out her recent interview on “Popcast.”`\
+https://nytimes.com/video/podcasts/100000010519912/rosalia-on-pop-stars-who-embody-the-spirit-of-duende.html
+
+**Sources: USMNT's Zimmerman to leave Nashville SC, become free agent**\
+`Zimmerman has been with Nashville since its inaugural season but is set to move on this winter`\
+https://nytimes.com/athletic/6801280/2025/11/12/walker-zimmerman-nashville-sc-usmnt-free-agent-mls/
+
+**ATP Tour Finals results and round-robin scenarios: Alcaraz, Sinner and the year-end No. 1**\
+`Alcaraz and Sinner are locked in a battle for top spot in the ATP Tour rankings, but Alcaraz is one win away from taking it.`\
+https://nytimes.com/athletic/6801305/2025/11/12/tennis-atp-tour-finals-round-robin-scenarios/
+
 **Marshmallows Belong on Sweet Potato Casseroles**\
 `And I won’t hear otherwise.`\
 https://nytimes.com/2025/11/12/dining/sweet-potato-casserole-marshmallows-thanksgiving.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/12/us/politics/trump-food-stamps-safety-net.html
 **Europe’s Biggest Rare Earths Producer Forges U.S. Deals**\
 `The contracts are the latest sign of how Europe is lagging the United States in the race to break China’s chokehold on rare earths.`\
 https://nytimes.com/2025/11/12/business/europe-rare-earths.html
-
-**Inside the Bears' stout third-down defense: 'D.A.'s a mastermind'**\
-`See what Bears players like about Dennis Allen's third-down defenses and watch video breakdowns of the unique schemes. `\
-https://nytimes.com/athletic/6799133/2025/11/12/bears-third-down-defense-dennis-allen/
-
-**Submit your questions for Kevin Fishbain's Bears mailbag**\
-`The Bears pulled off another comeback on Sunday to win for the sixth time in seven games. Now they head to Minnesota. What's on your mind?`\
-https://nytimes.com/athletic/6801247/2025/11/12/bears-mailbag-questions-49/
-
-**Tim Kaine: Why I Voted to End the Shutdown**\
-`Extending the government shutdown would not have worked.`\
-https://nytimes.com/2025/11/12/opinion/tim-kaine-shutdown-vote.html
 
