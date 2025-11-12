@@ -1,3 +1,19 @@
+**What the Look of Your Favorite Podcast Is Trying to Tell You**\
+`Modern online chat shows look less fussy and polished than TV. That’s by design.`\
+https://nytimes.com/interactive/2025/11/12/arts/podcast-sets-design.html
+
+**Scoop City: Drafting the top 5 picks of 2026**\
+`Two rare absences from the NFL's top 10 teams, plus a top-five mock draft for 2026 and some kickoff controversy`\
+https://nytimes.com/athletic/6801805/2025/11/12/nfl-mock-top-5-2026-draft-chiefs-bills-kickoff-scoop-city/
+
+**Algeria Pardons Imprisoned Writer at Germany’s Request**\
+`Boualem Sansal, an Algerian-French writer, was arrested on accusations of undermining national security during a visit to his homeland a year ago and sentenced to five years in prison.`\
+https://nytimes.com/2025/11/12/world/africa/algeria-boualem-sansal-pardon.html
+
+**Sources: MLS owners eye vote on season calendar, format changes Thursday**\
+`Substantial change could be coming to MLS's structure and operations following a Thursday vote, sources tell The Athletic`\
+https://nytimes.com/athletic/6801193/2025/11/12/mls-fall-spring-calendar-season-format-change-owners-vote/
+
 **Sources: SJ star Espinoza becomes free agent after option expires**\
 `The 30-year-old playmaker will be one of the most sought-after names in MLS free agency this winter`\
 https://nytimes.com/athletic/6801119/2025/11/12/cristian-espinoza-san-jose-earthquakes-mls-free-agency/
