@@ -1,3 +1,15 @@
+**Cubs won't rule out top of free-agent market as they expect active winter**\
+`Cubs team president Jed Hoyer made it clear pitching would be the priority this offseason.`\
+https://nytimes.com/athletic/6799826/2025/11/11/cubs-free-agency-market-active-winter/
+
+**NBA introduces new All-Star Game format with USA vs. World twist**\
+`The NBA will change its All-Star Game format in 2026 to a round-robin tournament. Will this appease fans?`\
+https://nytimes.com/athletic/6799852/2025/11/11/nba-all-star-game-format-adam-silver/
+
+**Energize**\
+`Brad and Nicole Wiegmann offer us a wonderful Wednesday.`\
+https://nytimes.com/2025/11/11/crosswords/daily-puzzle-2025-11-12.html
+
 **Pirates won't trade Paul Skenes this offseason, GM says**\
 `"Paul Skenes is going to be a Pirate in 2026," the Pittsburgh GM said.`\
 https://nytimes.com/athletic/6799837/2025/11/11/pirates-wont-trade-paul-skenes-ben-cherington/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/11/us/politics/adelita-grijalva-swearing-in-congress
 **Antonio Brown pleads not guilty in Miami attempted murder case**\
 `Brown eluded authorities for more than four months while making social media posts from Dubai.`\
 https://nytimes.com/athletic/6799707/2025/11/11/antonio-brown-not-guilty-miami-attempted-murder/
-
-**College Football Playoff rankings of a different kind: Champions we can stomach**\
-`Who would we, as a college football nation, be most OK with winning it? Which team would most nauseate us?`\
-https://nytimes.com/athletic/6799621/2025/11/11/college-football-rankings-oregon-indiana-texas-am/
-
-**Dodgers seek a leverage reliever and Devin Williams emerges as a target: Sources**\
-`There appears to be mutual interest between the Dodgers and Williams, who is a free agent for the first time.`\
-https://nytimes.com/athletic/6799426/2025/11/11/dodgers-devin-williams-mlb-offseason/
-
-**After decade in the NFL, Paul DePodesta aims to revive Colorado Rockies**\
-`“I’m very willing to experiment and try to do things,” DePodesta said, as he takes over an organization that lost 119 games in 2025. `\
-https://nytimes.com/athletic/6799509/2025/11/11/paul-depodesta-colorado-rockies-mlb-nfl/
 
