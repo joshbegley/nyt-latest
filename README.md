@@ -1,4 +1,4 @@
-**Betting for (by) dummies: Fading Philly, Cincy, Georgia and Penn State**\
+**Betting for (by) dummies: Fading Philly, Pittsburgh and Penn State (sorry, PA)**\
 `Jon Greenberg and Zac Jackson are fading a whole bunch of favorites across college and NFL games this week.`\
 https://nytimes.com/athletic/6799196/2025/11/12/football-betting-dummies-nfl-college-lions-eagles/
 
