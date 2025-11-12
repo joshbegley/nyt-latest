@@ -1,3 +1,11 @@
+**Coming to the Metropolitan Opera: Sting**\
+`After his musical “The Last Ship” failed on Broadway, Sting is bringing a revised version to the Met as the house looks for new sources of revenue.`\
+https://nytimes.com/2025/11/12/arts/music/sting-the-last-ship-met-opera.html
+
+**Judge rejects Rose Bowl's bid to block UCLA from SoFi Stadium move**\
+`The filing follows a lawsuit in which Pasadena and the Rose Bowl accused UCLA of negotiating a SoFi Stadium move behind closed doors.`\
+https://nytimes.com/athletic/6795416/2025/11/12/rose-bowl-ucla-sofi-stadium-restraining-order/
+
 **Advantage England? Wembley to host final and both semi-finals at Euro 2028**\
 `Just as in Euro 2020, the English national stadium in London will be the venue for the final three matches of Euro 2028.`\
 https://nytimes.com/athletic/6801287/2025/11/12/euro-2028-wembley-host-venues-england/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6801999/2025/11/12/nuggets-vs-clippers-stream-how-t
 **How to watch Trail Blazers vs. Pelicans: Time, TV, streaming**\
 `Find out how to watch the Portland Trail Blazers play the New Orleans Pelicans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6801996/2025/11/12/trail-blazers-vs-pelicans-stream-how-to-watch-nov-12/
-
-**How to watch Devils vs. Blackhawks: Time, TV, streaming**\
-`Find out how to watch the New Jersey Devils play the Chicago Blackhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6801994/2025/11/12/devils-vs-blackhawks-stream-how-to-watch-nov-12/
-
-**How to watch Cavaliers vs. Heat: Time, TV, streaming**\
-`Find out how to watch the Cleveland Cavaliers play the Miami Heat, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6801992/2025/11/12/cavaliers-vs-heat-stream-how-to-watch-nov-12/
 

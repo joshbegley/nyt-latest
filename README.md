@@ -1,3 +1,7 @@
+**Lorinda de Roulet, Who Briefly Led the New York Mets, Dies at 95**\
+`A daughter of Joan Whitney Payson, the team’s exuberant first owner, she took over as chairwoman in 1978 during a lackluster time for the franchise.`\
+https://nytimes.com/2025/11/12/sports/lorinda-de-roulet-dead.html
+
 **Coming to the Metropolitan Opera: Sting**\
 `After his musical “The Last Ship” failed on Broadway, Sting is bringing a revised version to the Met as the house looks for new sources of revenue.`\
 https://nytimes.com/2025/11/12/arts/music/sting-the-last-ship-met-opera.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6802001/2025/11/12/lakers-vs-thunder-stream-how-to-
 **How to watch Nuggets vs. Clippers: Time, TV, streaming**\
 `Find out how to watch the Denver Nuggets play the Los Angeles Clippers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6801999/2025/11/12/nuggets-vs-clippers-stream-how-to-watch-nov-12/
-
-**How to watch Trail Blazers vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6801996/2025/11/12/trail-blazers-vs-pelicans-stream-how-to-watch-nov-12/
 
