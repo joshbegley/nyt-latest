@@ -1,3 +1,7 @@
+**States That Rely on the Colorado River Miss Deadline to Agree on Cuts**\
+`A plan to sustainably manage the shrinking waterway could soon be up to the Trump administration — or eventually the Supreme Court.`\
+https://nytimes.com/2025/11/11/climate/states-that-rely-on-the-colorado-river-miss-deadline-to-agree-on-cuts.html
+
 **Leafs' Auston Matthews, Anthony Stolarz exit vs. Bruins with injuries**\
 `Matthews (lower body) and Stolarz (upper body) were ruled out of Toronto's game in Boston on Tuesday.`\
 https://nytimes.com/athletic/6799789/2025/11/11/maple-leafs-auston-matthews-anthony-stolarz-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6798661/2025/11/11/guardians-stephen-vogt-manager-o
 **Newsom Storms Climate Conference and Assails Trump as a ‘Bully’**\
 `The California governor painted the president as a threat to American competitiveness by letting China dominate the renewable energy industry.`\
 https://nytimes.com/2025/11/11/climate/gavin-newsom-cop30-belem-climate.html
-
-**Supreme Court Extends Order Allowing Limits on Food Stamp Payments**\
-`The justices allowed the Trump administration to withhold full benefits for two more days while Congress worked to advance a government funding bill.`\
-https://nytimes.com/2025/11/11/us/politics/snap-food-stamps-supreme-court-trump.html
 

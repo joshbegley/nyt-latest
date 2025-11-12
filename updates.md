@@ -1,3 +1,7 @@
+**States That Rely on the Colorado River Miss Deadline to Agree on Cuts**\
+`A plan to sustainably manage the shrinking waterway could soon be up to the Trump administration — or eventually the Supreme Court.`\
+https://nytimes.com/2025/11/11/climate/states-that-rely-on-the-colorado-river-miss-deadline-to-agree-on-cuts.html
+
 **Leafs' Auston Matthews, Anthony Stolarz exit vs. Bruins with injuries**\
 `Matthews (lower body) and Stolarz (upper body) were ruled out of Toronto's game in Boston on Tuesday.`\
 https://nytimes.com/athletic/6799789/2025/11/11/maple-leafs-auston-matthews-anthony-stolarz-injury/
