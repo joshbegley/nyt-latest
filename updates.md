@@ -1,3 +1,7 @@
+**2026 World Cup ticket costs jump; Here's where FIFA has raised prices**\
+`Another purchasing window has opened for 2026 World Cup tickets, and dynamic pricing is in full effect`\
+https://nytimes.com/athletic/6799981/2025/11/12/2026-world-cup-ticket-prices-usa-mexico-canada/
+
 **Mainz lose appeal against unfair dismissal of Anwar El Ghazi**\
 `The German club were ordered to pay €1.5million (£1.3m; $1.7m) to El Ghazi by Mainz Labour Court last year.`\
 https://nytimes.com/athletic/6801427/2025/11/12/mainz-anwar-el-ghazi-appeal/

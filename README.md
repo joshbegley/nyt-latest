@@ -2,6 +2,10 @@
 `Another purchasing window has opened for 2026 World Cup tickets, and dynamic pricing is in full effect`\
 https://nytimes.com/athletic/6799981/2025/11/12/2026-world-cup-ticket-prices-usa-mexico-canada/
 
+**Sources: SJ star Espinoza becomes free agent after club passes on option**\
+`The 30-year-old playmaker will be one of the most sought-after names in MLS free agency this winter`\
+https://nytimes.com/athletic/6801119/2025/11/12/cristian-espinoza-san-jose-earthquakes-mls-free-agency/
+
 **Mainz lose appeal against unfair dismissal of Anwar El Ghazi**\
 `The German club were ordered to pay €1.5million (£1.3m; $1.7m) to El Ghazi by Mainz Labour Court last year.`\
 https://nytimes.com/athletic/6801427/2025/11/12/mainz-anwar-el-ghazi-appeal/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/12/business/penny-coin-legacy.html
 **Will Lions' St. Brown be disciplined after Payne posts video?**\
 `The Commanders defensive tackle received a one-game suspension for punching St. Brown in the Lions' win last week.`\
 https://nytimes.com/athletic/6801418/2025/11/12/amon-ra-st-brown-daron-payne-punch-discipline/
-
-**YouTube TV, Disney find fresh momentum in talks to bring ESPN back: Sources**\
-`Disney has its quarterly earnings scheduled for Thursday, which could be a potential impetus for a deal to be completed.`\
-https://nytimes.com/athletic/6801582/2025/11/12/youtubetv-espn-disney-update-dispute/
 
