@@ -1,3 +1,7 @@
+**Phillies' Dave Dombrowski says he had 'good conversation' with Bryce Harper**\
+`“Talked to him quite a while, and really, the conversation’s between Bryce and myself," Dombrowski said at the GM meetings.`\
+https://nytimes.com/athletic/6802119/2025/11/12/phillies-bryce-harper-dave-dombrowski-conversation/
+
 **Lorinda de Roulet, Who Briefly Led the New York Mets, Dies at 95**\
 `A daughter of Joan Whitney Payson, the team’s exuberant first owner, she took over as chairwoman in 1978 during a lackluster time for the franchise.`\
 https://nytimes.com/2025/11/12/sports/lorinda-de-roulet-dead.html
@@ -25,12 +29,4 @@ https://nytimes.com/athletic/6802006/2025/11/12/hawks-vs-kings-stream-how-to-wat
 **How to watch Wizards vs. Rockets: Time, TV, streaming**\
 `Find out how to watch the Washington Wizards play the Houston Rockets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6802003/2025/11/12/wizards-vs-rockets-stream-how-to-watch-nov-12/
-
-**How to watch Lakers vs. Thunder: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Lakers play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6802001/2025/11/12/lakers-vs-thunder-stream-how-to-watch-nov-12/
-
-**How to watch Nuggets vs. Clippers: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the Los Angeles Clippers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6801999/2025/11/12/nuggets-vs-clippers-stream-how-to-watch-nov-12/
 
