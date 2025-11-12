@@ -1,3 +1,19 @@
+**Many Displaced Sudanese Feared Dead After Shipwreck Near Libya**\
+`Forty-two migrants were presumed dead after a rubber boat capsized off the Libyan coast this month. Many of the presumed victims were fleeing a raging conflict in Sudan.`\
+https://nytimes.com/2025/11/12/world/africa/sudan-migrants-shipwreck-libya.html
+
+**Why Thatcher Demko’s latest injury could jeopardize Canucks’ playoff chances**\
+`Demko suffered a lower-body injury in Vancouver's loss to the Winnipeg Jets on Tuesday night.`\
+https://nytimes.com/athletic/6800301/2025/11/12/thatcher-demko-injury-canucks-stats-standings/
+
+**Stir and Shovel and Feel Utterly Satisfied**\
+`My new recipe for dan dan noodles is exactly what a cold weeknight needs.`\
+https://nytimes.com/2025/11/12/dining/easy-dan-dan-noodle-recipe-for-cold-weather.html
+
+**4 Ways to Cut Back on Salt**\
+`About 90 percent of Americans eat too much. We asked experts how to consume less.`\
+https://nytimes.com/2025/11/12/well/lower-salt-intake.html
+
 **Why Nick Offerman Makes Things By Hand**\
 `Nick Offerman is a staunch believer in making stuff yourself. He discusses his woodworking studio, the joy of learning to build things, and his essential tools on The Wirecutter Show.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010519925/why-nick-offerman-makes-things-by-hand.html
@@ -21,20 +37,4 @@ https://nytimes.com/paidpost/2025-10-15/glaxosmithkline/rsv-2025.html
 **Who could be this year's Arizona State? Identifying College Football Playoff long shots**\
 `Arizona State was a long-shot for the Playoff at this point last November. Who are candidates to climb into the bracket this year?`\
 https://nytimes.com/athletic/6800966/2025/11/12/college-football-playoff-bubble-teams/
-
-**Gus Johnson calls Indiana-Penn State a career highlight: 'The moment you dream about'**\
-`“I just got caught up in the euphoria of the moment and my pipes, they started squeaking a little bit," Johnson said of Omar Cooper's catch.`\
-https://nytimes.com/athletic/6798562/2025/11/12/gus-johnson-indiana-penn-state-football-fox-sports/
-
-**The Bounce: The rise and fall of Nico Harrison. Plus, the 4 worst NBA trades ever**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6801046/2025/11/12/the-bounce-nico-harrison-dallas-mavericks-gmf-ired/
-
-**42 Million People Are Enrolled in SNAP. Who Are They?**\
-`The shutdown brought the scale of the federal food aid program into focus and raised questions about how such a rich country could have so many people on nutrition assistance.`\
-https://nytimes.com/2025/11/12/us/politics/snap-food-aid-government-shutdown.html
-
-**Penguins mailbag: Are they for real? Plus, Mt. Rushmore lists and Thanksgiving food**\
-`The Penguins are starting to make believers out of lot of people. Will they make the playoffs? And if they're close in March, will they buy?`\
-https://nytimes.com/athletic/6800629/2025/11/12/penguins-nhl-standings-sidney-crosby-mailbag/
 
