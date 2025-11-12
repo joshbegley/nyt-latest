@@ -1,3 +1,11 @@
+**Phillies' Dave Dombrowski says he had 'good conversation' with Bryce Harper**\
+`“Talked to him quite a while, and really, the conversation’s between Bryce and myself," Dombrowski said at the GM meetings.`\
+https://nytimes.com/athletic/6802119/2025/11/12/phillies-bryce-harper-dave-dombrowski-conversation/
+
+**Lorinda de Roulet, Who Briefly Led the New York Mets, Dies at 95**\
+`A daughter of Joan Whitney Payson, the team’s exuberant first owner, she took over as chairwoman in 1978 during a lackluster time for the franchise.`\
+https://nytimes.com/2025/11/12/sports/lorinda-de-roulet-dead.html
+
 **Coming to the Metropolitan Opera: Sting**\
 `After his musical “The Last Ship” failed on Broadway, Sting is bringing a revised version to the Met as the house looks for new sources of revenue.`\
 https://nytimes.com/2025/11/12/arts/music/sting-the-last-ship-met-opera.html
