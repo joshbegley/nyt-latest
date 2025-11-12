@@ -1,3 +1,15 @@
+**Review: Rennie Harris’s Jam Session of American Street Dance**\
+`At the Joyce Theater, “American Street Dancer” offers a history lesson in the form of a family’s house party.`\
+https://nytimes.com/2025/11/12/arts/dance/rennie-harris-puremovent-joyce-theater-review.html
+
+**Owen Goodman's persistent path to Canadian citizenship makes him a World Cup wild card**\
+`Goodman had international options, but the goalkeeper had eyes for Canada. Now with citizenship in tow, he can pursue his World Cup dream`\
+https://nytimes.com/athletic/6801118/2025/11/12/owen-goodman-canada-goalkeeper-world-cup-huddersfield-crystal-palace/
+
+**How to Winterize Your Grill**\
+`If you give your grill a little annual TLC before winter sets in, you’ll be able to enjoy it for years and years to come. Fortunately, winterizing a grill — whether it’s a gas, charcoal, or pellet grill — is easier than you probably think.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010520229/how-to-winterize-your-grill.html
+
 **Rosalía on Pop Stars Who Embody the Spirit of ‘Duende’**\
 `Rosalía’s new album, “Lux,” is out now. Activate your duende and check out her recent interview on “Popcast.”`\
 https://nytimes.com/video/podcasts/100000010519912/rosalia-on-pop-stars-who-embody-the-spirit-of-duende.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6801278/2025/11/12/washington-commanders-real-madri
 **NFL Week 11 survivor pool picks, strategy: Patriots will roll**\
 `Adam Gretz and Renee Miller take your questions and give their own survivor pool advice for NFL Week 11.`\
 https://nytimes.com/athletic/6800981/2025/11/12/nfl-week-11-survivor-pool-picks-strategy-patriots/
-
-**Here’s the latest.**\
-`By Glenn Thrush`\
-https://nytimes.com/live/2025/11/12/us/epstein-files-trump/heres-the-latest
-
-**By Not Funding Food Stamps, Trump Risks Lasting Damage to Safety Net**\
-`For the poorest Americans, the expected end to the longest shutdown in history has left doubt and anxiety around the benefits known as SNAP.`\
-https://nytimes.com/2025/11/12/us/politics/trump-food-stamps-safety-net.html
-
-**Europe’s Biggest Rare Earths Producer Forges U.S. Deals**\
-`The contracts are the latest sign of how Europe is lagging the United States in the race to break China’s chokehold on rare earths.`\
-https://nytimes.com/2025/11/12/business/europe-rare-earths.html
 
