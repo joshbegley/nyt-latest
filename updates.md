@@ -1,3 +1,11 @@
+**Sources: SJ star Espinoza becomes free agent after option expires**\
+`The 30-year-old playmaker will be one of the most sought-after names in MLS free agency this winter`\
+https://nytimes.com/athletic/6801119/2025/11/12/cristian-espinoza-san-jose-earthquakes-mls-free-agency/
+
+**Trump Ramps Up Pressure on G.O.P. to Thwart Epstein Vote**\
+`Representative Lauren Boebert, one of the Republicans pressing for more Epstein disclosures, was summoned for a meeting in the White House Situation Room.`\
+https://nytimes.com/2025/11/12/us/politics/trump-epstein-vote-boebert.html
+
 **Sources: SJ star Espinoza becomes free agent after club passes on option**\
 `The 30-year-old playmaker will be one of the most sought-after names in MLS free agency this winter`\
 https://nytimes.com/athletic/6801119/2025/11/12/cristian-espinoza-san-jose-earthquakes-mls-free-agency/
