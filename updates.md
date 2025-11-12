@@ -1,3 +1,11 @@
+**Atlanta Fed President to Step Down in February**\
+`The departure of Raphael W. Bostic, who has served in the role since 2017, would create a new vacancy at the central bank.`\
+https://nytimes.com/2025/11/12/business/bostic-atlanta-fed-president.html
+
+**Fit, Focused—and Caught Off Guard**\
+`Four athletes over 50 on staying active and the virus they didn’t see coming`\
+https://nytimes.com/paidpost/2025-10-15/glaxosmithkline/rsv-2025.html
+
 **Who could be this year's Arizona State? Identifying College Football Playoff long shots**\
 `Arizona State was a long-shot for the Playoff at this point last November. Who are candidates to climb into the bracket this year?`\
 https://nytimes.com/athletic/6800966/2025/11/12/college-football-playoff-bubble-teams/
