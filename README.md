@@ -1,3 +1,11 @@
+**College Football Playoff rankings: Texas Tech passes Ole Miss, Miami closes in**\
+`The top five teams in the rankings were unchanged, with Ohio State No. 1 followed by Indiana, Texas A&M, Alabama and Georgia.`\
+https://nytimes.com/athletic/6797806/2025/11/11/college-football-playoff-second-rankings-top-25/
+
+**Trump Administration Plans to Send Border Patrol to Charlotte and New Orleans**\
+`Plans for the operations were still being finalized, according to a federal official with knowledge of them.`\
+https://nytimes.com/2025/11/11/us/trump-administration-plans-to-send-border-patrol-to-charlotte-and-new-orleans.html
+
 **Fantasy football strength of schedule: Week 11 and playoff matchup rankings**\
 `Jake Ciely's Week 11 matchup rankings can help with difficult start/sit decisions this week. Playoff rankings aid future plans. `\
 https://nytimes.com/athletic/6798040/2025/11/11/fantasy-football-strength-of-schedule-week-11-playoff-matchup-rankings/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6799401/2025/11/11/dodgers-tommy-edman-ankle-surger
 **Infant Formula Recall Expands as Botulism Outbreak Grows**\
 `Federal health officials said caregivers should stop using all ByHeart powdered formula products after 15 infants in 12 states were hospitalized.`\
 https://nytimes.com/2025/11/11/health/byheart-infant-formula-recall-botulism.html
-
-**Key Netanyahu Minister Steps Down From Israel’s Government**\
-`Ron Dermer, a longtime ally of Prime Minister Benjamin Netanyahu and an influential figure in the Israeli government throughout the war in Gaza, resigned as minister of strategic affairs.`\
-https://nytimes.com/2025/11/11/world/middleeast/israel-ron-dermer-resigns-netanyahu.html
-
-**Senator Criticizes Rubio for Paying $7.5 Million to Equatorial Guinea to Take Deportees**\
-`Senator Jeanne Shaheen, Democrat of New Hampshire, said the African country has a long history of corruption. The amount paid is far more than recent annual assistance given to it.`\
-https://nytimes.com/2025/11/11/us/politics/marco-rubio-equatorial-guinea.html
 
