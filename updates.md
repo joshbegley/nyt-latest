@@ -1,3 +1,7 @@
+**Submit a question for James Boyd's Indianapolis Colts mailbag**\
+`The Indianapolis Colts own the NFL’s best record at 8-2 as they take a deep breath during their bye week.`\
+https://nytimes.com/athletic/6801523/2025/11/12/colts-mailbag-james-boyd-bye-week/
+
 **Virginia’s Governor-elect Wants a Say Over Leadership at U.Va.**\
 `Abigail Spanberger, a Democrat, told the university’s board that the choice of a new president, to replace one pushed out by Republicans over the summer, should be delayed until she is in office.`\
 https://nytimes.com/2025/11/12/us/virginia-governor-spanberger-uva-president.html
