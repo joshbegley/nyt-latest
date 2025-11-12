@@ -1,3 +1,11 @@
+**Inside the Bears' stout third-down defense: 'D.A.'s a mastermind'**\
+`See what Bears players like about Dennis Allen's third-down defenses and watch video breakdowns of the unique schemes. `\
+https://nytimes.com/athletic/6799133/2025/11/12/bears-third-down-defense-dennis-allen/
+
+**Submit your questions for Kevin Fishbain's Bears mailbag**\
+`The Bears pulled off another comeback on Sunday to win for the sixth time in seven games. Now they head to Minnesota. What's on your mind?`\
+https://nytimes.com/athletic/6801247/2025/11/12/bears-mailbag-questions-49/
+
 **Tim Kaine: Why I Voted to End the Shutdown**\
 `Extending the government shutdown would not have worked.`\
 https://nytimes.com/2025/11/12/opinion/tim-kaine-shutdown-vote.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6801298/2025/11/12/norfolk-state-vs-duke-stream-how
 **How to watch Colorado vs. Louisville women's basketball: Time, TV, streaming**\
 `Find out how to watch the Colorado Buffaloes play the Louisville Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6801296/2025/11/12/colorado-vs-louisville-stream-how-to-watch-nov-12/
-
-**How to watch Youngstown State vs. Michigan State women's basketball: Time, TV, streaming**\
-`Find out how to watch the Youngstown State Penguins play the Michigan State Spartans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6801294/2025/11/12/youngstown-state-vs-michigan-state-stream-how-to-watch-nov-12/
-
-**How to watch Southern vs. Ole Miss women's basketball: Time, TV, streaming**\
-`Find out how to watch the Southern Jaguars play the Ole Miss Rebels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6801292/2025/11/12/southern-vs-ole-miss-stream-how-to-watch-nov-12/
 

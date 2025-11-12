@@ -1,3 +1,11 @@
+**Inside the Bears' stout third-down defense: 'D.A.'s a mastermind'**\
+`See what Bears players like about Dennis Allen's third-down defenses and watch video breakdowns of the unique schemes. `\
+https://nytimes.com/athletic/6799133/2025/11/12/bears-third-down-defense-dennis-allen/
+
+**Submit your questions for Kevin Fishbain's Bears mailbag**\
+`The Bears pulled off another comeback on Sunday to win for the sixth time in seven games. Now they head to Minnesota. What's on your mind?`\
+https://nytimes.com/athletic/6801247/2025/11/12/bears-mailbag-questions-49/
+
 **Tim Kaine: Why I Voted to End the Shutdown**\
 `Extending the government shutdown would not have worked.`\
 https://nytimes.com/2025/11/12/opinion/tim-kaine-shutdown-vote.html
