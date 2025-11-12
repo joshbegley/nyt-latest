@@ -1,3 +1,11 @@
+**The Penny Dies at 232**\
+`A long decline into irrelevance ended on Wednesday in Philadelphia.`\
+https://nytimes.com/2025/11/12/business/penny-coin-legacy.html
+
+**Will Lions' St. Brown be disciplined after Payne posts video?**\
+`The Commanders defensive tackle received a one-game suspension for punching St. Brown in the Lions' win last week.`\
+https://nytimes.com/athletic/6801418/2025/11/12/amon-ra-st-brown-daron-payne-punch-discipline/
+
 **YouTube TV, Disney find fresh momentum in talks to bring ESPN back: Sources**\
 `Disney has its quarterly earnings scheduled for Thursday, which could be a potential impetus for a deal to be completed.`\
 https://nytimes.com/athletic/6801582/2025/11/12/youtubetv-espn-disney-update-dispute/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/11/12/opinion/trump-health-care-shutdown.html
 **Tkachuk brothers announce podcast, becoming only active NHLers with talk show**\
 `The show debuts on Thursday and is part of Wave Sports + Entertainment, the same digital group behind "New Heights" with the Kelce brothers.`\
 https://nytimes.com/athletic/6790030/2025/11/12/tkachuk-matthew-brady-brothers-podcast-nhl/
-
-**Lucas Museum of Narrative Art in Los Angeles Sets 2026 Opening Date**\
-`The 300,000-square-foot building will open Sept. 22 and showcase comic art, illustrations and more across 35 galleries. It began construction in 2018 but faced multiple delays.`\
-https://nytimes.com/2025/11/12/arts/design/lucas-museum-opening-septemeber-2026.html
-
-**Giants interim Mike Kafka 'looking forward to challenge' of coaching team**\
-`Kafka takes over the 2-8 Giants as they prepare to play the Packers in Week 11.`\
-https://nytimes.com/athletic/6801153/2025/11/12/mike-kafka-giants-interim-brian-daboll-fired/
 

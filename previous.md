@@ -1,3 +1,11 @@
+**YouTube TV, Disney find fresh momentum in talks to bring ESPN back: Sources**\
+`Disney has its quarterly earnings scheduled for Thursday, which could be a potential impetus for a deal to be completed.`\
+https://nytimes.com/athletic/6801582/2025/11/12/youtubetv-espn-disney-update-dispute/
+
+**Rob Gronkowski signs one-day contract to retire as a Patriot**\
+`Gronkowski, a future Hall of Fame tight end who won three Super Bowls with the Patriots, officially retired as a member of the franchise.`\
+https://nytimes.com/athletic/6801597/2025/11/12/rob-gronkowski-patriots-retires-one-day-contract/
+
 **How the simple prop bet morphed into the epicenter of sports' gambling scandals: MoneyCall**\
 `More in this week's sports business cheat sheet: YouTube TV-ESPN pivot point, ATL's NWSL future and a new profile series from Asli Pelit.`\
 https://nytimes.com/athletic/6801478/2025/11/12/clase-rozier-prop-bets-scandal-moneycall/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/11/12/arts/design/lucas-museum-opening-septemeber-2026.
 **Giants interim Mike Kafka 'looking forward to challenge' of coaching team**\
 `Kafka takes over the 2-8 Giants as they prepare to play the Packers in Week 11.`\
 https://nytimes.com/athletic/6801153/2025/11/12/mike-kafka-giants-interim-brian-daboll-fired/
-
-**5 Democratic Voters Weigh In on the Deal to End the Government Shutdown**\
-`They are as divided as the party. Some wanted to continue to fight. Others were worried about jobs or people depending on SNAP food relief.`\
-https://nytimes.com/2025/11/12/us/politics/democrat-voters-government-shutdown-deal.html
-
-**Hal Sirowitz, Poet Who Mined His Mother’s Worry With Wit, Dies at 76**\
-`He wrote of his suffocating relationship with his mother to create mordant reminiscences and became a standout at poetry slams in New York.`\
-https://nytimes.com/2025/11/12/nyregion/hal-sirowitz-dead.html
 
