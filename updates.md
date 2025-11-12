@@ -1,3 +1,15 @@
+**Leafs' Auston Matthews, Anthony Stolarz exit vs. Bruins with injuries**\
+`Matthews (lower body) and Stolarz (upper body) were ruled out of Toronto's game in Boston on Tuesday.`\
+https://nytimes.com/athletic/6799789/2025/11/11/maple-leafs-auston-matthews-anthony-stolarz-injury/
+
+**Phillies' outfield revamp: Justin Crawford, no Nick Castellanos, and a lot of questions**\
+`The Phillies are actively shopping Nick Castellanos at this week's GM meetings, multiple major-league sources told The Athletic.`\
+https://nytimes.com/athletic/6799693/2025/11/11/phillies-outfield-nick-castellanos-justin-crawford/
+
+**College Football Playoff rankings of a different kind: Champions we can stomach**\
+`Who would we, as a college football nation, be most OK with winning it? Which team would most nauseate us?`\
+https://nytimes.com/athletic/6799621/2025/11/11/college-football-rankings-oregon-indiana-texas-am/
+
 **Johnson to Seat Grijalva, Seven Weeks After She Was Elected**\
 `Speaker Mike Johnson had refused to swear in Representative-elect Adelita Grijalva, a Democrat of Arizona, claiming he lacked the power to do so.`\
 https://nytimes.com/2025/11/11/us/politics/adelita-grijalva-swearing-in-congress.html
