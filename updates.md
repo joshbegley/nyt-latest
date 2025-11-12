@@ -1,3 +1,7 @@
+**Arline Bronzaft, Who Campaigned for a Quieter City, Dies at 89**\
+`She studied the impact of noise on health and classroom learning and helped impose stricter regulations in New York City.`\
+https://nytimes.com/2025/11/12/nyregion/arline-bronzaft-dead.html
+
 **The Penny Dies at 232**\
 `A long decline into irrelevance ended on Wednesday in Philadelphia.`\
 https://nytimes.com/2025/11/12/business/penny-coin-legacy.html
