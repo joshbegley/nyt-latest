@@ -1,3 +1,11 @@
+**NFL Week 11 survivor pool picks, strategy: Patriots will roll**\
+`Adam Gretz and Renee Miller take your questions and give their own survivor pool advice for NFL Week 11.`\
+https://nytimes.com/athletic/6800981/2025/11/12/nfl-week-11-survivor-pool-picks-strategy-patriots/
+
+**Here’s the latest.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2025/11/12/us/epstein-files-trump/heres-the-latest
+
 **By Not Funding Food Stamps, Trump Risks Lasting Damage to Safety Net**\
 `For the poorest Americans, the expected end to the longest shutdown in history has left doubt and anxiety around the benefits known as SNAP.`\
 https://nytimes.com/2025/11/12/us/politics/trump-food-stamps-safety-net.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6801323/2025/11/12/magic-vs-knicks-stream-how-to-wa
 **How to watch Bucks vs. Hornets: Time, TV, streaming**\
 `Find out how to watch the Milwaukee Bucks play the Charlotte Hornets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6801320/2025/11/12/bucks-vs-hornets-stream-how-to-watch-nov-12/
-
-**How to watch Rangers vs. Lightning: Time, TV, streaming**\
-`Find out how to watch the New York Rangers play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6801318/2025/11/12/rangers-vs-lightning-stream-how-to-watch-nov-12/
-
-**How to watch South Carolina Upstate vs. Kentucky women's basketball: Time, TV, streaming**\
-`Find out how to watch the South Carolina Upstate Spartans play the Kentucky Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6801301/2025/11/12/south-carolina-upstate-vs-kentucky-stream-how-to-watch-nov-12/
 
