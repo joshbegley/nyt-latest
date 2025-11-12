@@ -1,3 +1,31 @@
+**Five questions for Nebraska with just 2 games left in the regular season**\
+`Nebraska still has big games against Penn State and Iowa remaining, but it's not too early to look ahead at 2026 priorities, either.`\
+https://nytimes.com/athletic/6799318/2025/11/12/nebraska-football-offseason-questions-2026/
+
+**Mandel’s Mailbag: Why Indiana’s ranking makes sense and how wild a four-team CFP would look**\
+`Indiana may be correctly ranked ahead of Texas A&M based on offensive and defensive rankings and marquee wins on the schedule.`\
+https://nytimes.com/athletic/6799825/2025/11/12/indiana-texas-am-playoff-mandels-mailbag/
+
+**The Oilers' forward makeover isn't working. What's gone wrong?**\
+`The Oilers revamping their forward mix in the offseason was made in part by choice and in part by necessity.`\
+https://nytimes.com/athletic/6794965/2025/11/12/edmonton-oilers-forwards-stats-trade/
+
+**Trump Administration Live Updates: House to Take Up Bill to End Shutdown**\
+``\
+https://nytimes.com/live/2025/11/12/us/trump-government-shutdown-news
+
+**Giants name Jameis Winston QB2; he will start if Jaxson Dart is out: Source**\
+`Winston takes over as Dart's primary backup, relegating veteran Russell Wilson to QB3.`\
+https://nytimes.com/athletic/6795038/2025/11/12/ny-giants-jameis-winston-jaxson-dart-russell-wilson/
+
+**Blue Jackets, Charlie Coyle gut out shootout win in Seattle to end rough road trip**\
+`Coyle’s goal in the fourth round of a shootout gave the the flu-ridden, heavy-legged Jackets something to smile about.`\
+https://nytimes.com/athletic/6800064/2025/11/12/blue-jackets-shootout-win-seattle-kraken/
+
+**Notre Dame's CFP rankings outlook: The Miami debate, SEC threats and hosting chances**\
+`Notre Dame is no longer the last team in the projected CFP field, not that the Irish have a ton of breathing room.`\
+https://nytimes.com/athletic/6800674/2025/11/12/notre-dame-college-football-playoff-rankings-miami/
+
 **Northern Lights Illuminate Skies Above North America**\
 `The northern lights could be seen in skies as far south as Texas late Tuesday and early Wednesday after the sun emitted masses of charged particles that disrupted the Earth’s magnetic field — and created a dazzling display.`\
 https://nytimes.com/video/world/americas/100000010519515/northern-lights-north-america.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6800227/2025/11/12/chicago-bulls-first-10-games-jos
 **Pakistan’s Army Chief Gets Expanded Powers and Lifelong Immunity**\
 `A constitutional reform in the nuclear-armed country extends the chief’s power over all the military and brings Pakistan’s highest court under tighter political control.`\
 https://nytimes.com/2025/11/12/world/asia/pakistan-army-chief-power.html
-
-**Giants' Jaxson Dart lost his champion in Brian Daboll; now QB's future feels less certain**\
-`The coach who bet it all on Dart, who believed in him more than anyone, is gone. What does that mean for Dart's future in New York?`\
-https://nytimes.com/athletic/6799322/2025/11/12/ny-giants-jaxson-dart-brian-daboll-future-coach/
-
-**Ohio State's biggest weapon? The gravitational pull of Jeremiah Smith**\
-`Smith has lived up to the No. 1 recruit hype from Day 1 at Ohio State, impacting the Buckeyes' offense on every play, targeted or not.`\
-https://nytimes.com/athletic/6798126/2025/11/12/jeremiah-smith-ohio-state-coverage-impact/
-
-**Did Bryce Underwood hit a freshman wall? What the QB is doing well — and what needs work**\
-`Are the Wolverines 7-2 because of their freshman quarterback, or in spite of him? The answer, it seems, is a little of both.`\
-https://nytimes.com/athletic/6797868/2025/11/12/bryce-underwood-michigan-quarterback-film/
-
-**China’s Green Triumph**\
-`China is equipping other countries to fight climate change. It’s a role reversal.`\
-https://nytimes.com/2025/11/12/briefing/chinas-green-triumph.html
-
-**College football Week 12 streaming guide: Notre Dame-Pitt, Texas-Georgia, the vast unknown**\
-`Here's where the college football thrill ride starts to slope into its corkscrew drop. Texas and Georgia lead a crowded Week 12 TV schedule.`\
-https://nytimes.com/athletic/6788659/2025/11/12/college-football-week-12-notre-dame-pitt-texas-georgia/
-
-**Will Borgen has given the Rangers the defensive breakout they banked on**\
-`The 28-year-old is set to be part of the team for the near future, and his defensive prowess is the main reason why.`\
-https://nytimes.com/athletic/6798912/2025/11/12/new-york-rangers-will-borgen-defense/
-
-**Is now the time for the Flyers to extend Trevor Zegras?**\
-`The 24-year-old Zegras, who is a pending restricted free agent, has fit in with the Flyers on and off the ice. `\
-https://nytimes.com/athletic/6798771/2025/11/12/philadelphia-flyers-trevor-zegras-contract-extension/
 
