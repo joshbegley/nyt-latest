@@ -1,3 +1,7 @@
+**The New York Times in Print for Wednesday, Nov. 12, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/12/todays-new-york-times
+
 **When England last won in Australia: The story of the 2010-11 Ashes told by those who were there**\
 `England have not even won a Test match in Australia since triumphing 3-1 there 14 years ago, so this is how the class of 2010-11 prevailed`\
 https://nytimes.com/athletic/6773013/2025/11/12/ashes-england-australia-strauss-swann-hussey/
