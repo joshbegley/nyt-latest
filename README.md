@@ -1,3 +1,19 @@
+**How to watch Bulls vs. Pistons: Time, TV, streaming**\
+`Find out how to watch the Chicago Bulls play the Detroit Pistons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6801325/2025/11/12/bulls-vs-pistons-stream-how-to-watch-nov-12/
+
+**How to watch Magic vs. Knicks: Time, TV, streaming**\
+`Find out how to watch the Orlando Magic play the New York Knicks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6801323/2025/11/12/magic-vs-knicks-stream-how-to-watch-nov-12/
+
+**How to watch Bucks vs. Hornets: Time, TV, streaming**\
+`Find out how to watch the Milwaukee Bucks play the Charlotte Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6801320/2025/11/12/bucks-vs-hornets-stream-how-to-watch-nov-12/
+
+**How to watch Rangers vs. Lightning: Time, TV, streaming**\
+`Find out how to watch the New York Rangers play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6801318/2025/11/12/rangers-vs-lightning-stream-how-to-watch-nov-12/
+
 **How to watch South Carolina Upstate vs. Kentucky women's basketball: Time, TV, streaming**\
 `Find out how to watch the South Carolina Upstate Spartans play the Kentucky Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6801301/2025/11/12/south-carolina-upstate-vs-kentucky-stream-how-to-watch-nov-12/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6801292/2025/11/12/southern-vs-ole-miss-stream-how-
 **Getting Into the Arena as ‘The Hunger Games’ Goes Live**\
 `At a specially built theater, the hit book and movie franchise has been transformed into a theatrical experience, with real fire and flying arrows.`\
 https://nytimes.com/2025/11/12/theater/hunger-games-live-london.html
-
-**Ask Russo and Smith: Submit your questions for The Athletic’s Minnesota Wild mailbag**\
-`Have a question about the Wild? Ask here, and Michael Russo and Joe Smith will respond to a selection in their upcoming mailbag.`\
-https://nytimes.com/athletic/6801258/2025/11/12/minnesota-wild-mailbag-november-2025/
-
-**How to watch Vanderbilt vs. Austin Peay women's basketball: Time, TV, streaming**\
-`Find out how to watch the Vanderbilt Commodores play the Austin Peay Governors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6801270/2025/11/12/vanderbilt-vs-austin-peay-stream-how-to-watch-nov-12/
-
-**How to watch North Florida vs. Tennessee men's basketball: Time, TV, streaming**\
-`Find out how to watch the North Florida Ospreys play the Tennessee Volunteers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6801266/2025/11/12/north-florida-vs-tennessee-stream-how-to-watch-nov-12/
-
-**How to watch Akron vs. Notre Dame women's basketball: Time, TV, streaming**\
-`Find out how to watch the Akron Zips play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6801264/2025/11/12/akron-vs-notre-dame-stream-how-to-watch-nov-12/
 
