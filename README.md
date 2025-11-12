@@ -1,3 +1,15 @@
+**Draymond Green gets candid after blowout loss to OKC, questions Warriors' commitment to winning**\
+`"Everybody was committed to winning and doing that any way possible," Green said. "And right now, it doesn't feel that way."`\
+https://nytimes.com/athletic/6800019/2025/11/12/draymond-green-jimmy-butler-stephen-curry-warriors-nba/
+
+**Hairstyles**\
+`What do you think your hair says about you?`\
+https://nytimes.com/2025/11/12/learning/hairstyles.html
+
+**Word of the Day: ascertain**\
+`This word has appeared in 100 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/12/learning/word-of-the-day-ascertain.html
+
 **Turkish Military Plane Crashes in Georgia, Killing 20 Troops**\
 `The Turkish defense minister said that 20 Air Force servicemen died when their military cargo plane crashed after taking off from Azerbaijan on Tuesday.`\
 https://nytimes.com/2025/11/12/world/middleeast/turkey-military-plane-crash-georgia.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6773013/2025/11/12/ashes-england-australia-strauss-
 **How Matos the manager was forged by 'special' Klopp and Liverpool life**\
 `The Portuguese is blazing his own trail in his home country's second tier after learning crucial lessons at Anfield`\
 https://nytimes.com/athletic/6786867/2025/11/12/vitor-matos-liverpool-jurgen-klopp-manager/
-
-**There are 37.5million reasons for Forest to be patient with Omari Hutchinson**\
-`The club's record signing showed a glimpse of his potential against Leeds but still needs time to prove his class`\
-https://nytimes.com/athletic/6798367/2025/11/12/omari-hutchinson-nottingham-forest-games/
-
-**Man Utd's options if they need to cover Sesko's injury: Zirkzee, Obi or pushing Fernandes forward?**\
-`A look at what options Manchester United have if they are without Amorim when the Premier League returns`\
-https://nytimes.com/athletic/6797394/2025/11/12/sesko-injury-amorim-zirkzee-obi-fernandes/
-
-**Gabriel Landeskog scores first regular-season goal in 1,347 days**\
-`Landeskog last scored in the regular season on March 5, 2022 and had two goals pulled off the scoreboard this season.`\
-https://nytimes.com/athletic/6800078/2025/11/12/avalanche-gabriel-landeskog-goal-regular-season/
 

@@ -1,3 +1,7 @@
+**Turkish Military Plane Crashes in Georgia, Killing 20 Troops**\
+`The Turkish defense minister said that 20 Air Force servicemen died when their military cargo plane crashed after taking off from Azerbaijan on Tuesday.`\
+https://nytimes.com/2025/11/12/world/middleeast/turkey-military-plane-crash-georgia.html
+
 **Northern Lights Dazzle U.S. Skies as Far South as Alabama**\
 `The night skies across the United States lit up as fast-moving charged particles from the sun slammed into the Earth’s atmosphere.`\
 https://nytimes.com/2025/11/12/science/space/northern-lights-photos-geomagnetic-storm.html

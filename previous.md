@@ -1,3 +1,7 @@
+**Turkish Military Plane Crashes in Georgia, Killing 20 Troops**\
+`The Turkish defense minister said that 20 Air Force servicemen died when their military cargo plane crashed after taking off from Azerbaijan on Tuesday.`\
+https://nytimes.com/2025/11/12/world/middleeast/turkey-military-plane-crash-georgia.html
+
 **Northern Lights Dazzle U.S. Skies as Far South as Alabama**\
 `The night skies across the United States lit up as fast-moving charged particles from the sun slammed into the Earth’s atmosphere.`\
 https://nytimes.com/2025/11/12/science/space/northern-lights-photos-geomagnetic-storm.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6797394/2025/11/12/sesko-injury-amorim-zirkzee-obi-
 **Gabriel Landeskog scores first regular-season goal in 1,347 days**\
 `Landeskog last scored in the regular season on March 5, 2022 and had two goals pulled off the scoreboard this season.`\
 https://nytimes.com/athletic/6800078/2025/11/12/avalanche-gabriel-landeskog-goal-regular-season/
-
-**RJ Barrett is the Raptors' low-maintenance scorer: 'I want to represent my home very well'**\
-`If the Raptors end up working as a concept, it won’t be because Barrett makes them, but it will because Barrett allows them to.`\
-https://nytimes.com/athletic/6799997/2025/11/12/rj-barrett-toronto-raptors-brandon-ingram/
 
