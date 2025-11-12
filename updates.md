@@ -1,3 +1,7 @@
+**Blue Jays GM Meeting notes: Top-of-rotation needs, bullpen targets and more**\
+`The Toronto Blue Jays are expected to “be quite aggressive” this offseason as the team tries to go from close to complete.`\
+https://nytimes.com/athletic/6799922/2025/11/11/blue-jays-meeting-rotation-needs-bullpen-targets/
+
 **Kansas County Agrees to Pay $3 Million Over Police Raid of Newspaper**\
 `The search of The Marion County Record’s office in 2023 touched off a national conversation about press freedom.`\
 https://nytimes.com/2025/11/11/us/marion-county-record-raid-settlement.html
