@@ -1,3 +1,7 @@
+**Virginia’s Governor-elect Wants a Say Over Leadership at U.Va.**\
+`Abigail Spanberger, a Democrat, told the university’s board that the choice of a new president, to replace one pushed out by Republicans over the summer, should be delayed until she is in office.`\
+https://nytimes.com/2025/11/12/us/virginia-governor-spanberger-uva-president.html
+
 **Review: Rennie Harris’s Jam Session of American Street Dance**\
 `At the Joyce Theater, “American Street Dancer” offers a history lesson in the form of a family’s house party.`\
 https://nytimes.com/2025/11/12/arts/dance/rennie-harris-puremovent-joyce-theater-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/12/magazine/magazine-email/kids-coparent-ethics.html
 **Commanders start searching for a spark, 3,600 miles away from Washington**\
 `For the Commanders, finding their way back to playing well starts on a Real Madrid soccer pitch without goal posts.`\
 https://nytimes.com/athletic/6801278/2025/11/12/washington-commanders-real-madrid-spain/
-
-**NFL Week 11 survivor pool picks, strategy: Patriots will roll**\
-`Adam Gretz and Renee Miller take your questions and give their own survivor pool advice for NFL Week 11.`\
-https://nytimes.com/athletic/6800981/2025/11/12/nfl-week-11-survivor-pool-picks-strategy-patriots/
 
