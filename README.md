@@ -1,3 +1,7 @@
+**What Do You Get the Person Who Hates Gifts?**\
+`We asked readers for their toughest holiday quandaries. Here are our suggestions.`\
+https://nytimes.com/2025/11/12/t-magazine/gift-ideas-holiday-shopping.html
+
 **South Asia on Edge**\
 `There are no known links between two bomb attacks in India and Pakistan, but they come as tensions between the countries are already high.`\
 https://nytimes.com/2025/11/12/world/india-pakistan-epstein-trump.html
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6802119/2025/11/12/phillies-bryce-harper-dave-dombr
 **Lorinda de Roulet, Who Briefly Led the New York Mets, Dies at 95**\
 `A daughter of Joan Whitney Payson, the team’s exuberant first owner, she took over as chairwoman in 1978 during a lackluster time for the franchise.`\
 https://nytimes.com/2025/11/12/sports/lorinda-de-roulet-dead.html
-
-**Coming to the Metropolitan Opera: Sting**\
-`After his musical “The Last Ship” failed on Broadway, Sting is bringing a revised version to the Met as the house looks for new sources of revenue.`\
-https://nytimes.com/2025/11/12/arts/music/sting-the-last-ship-met-opera.html
 
