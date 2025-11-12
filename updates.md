@@ -1,3 +1,11 @@
+**College Football Playoff rankings: Texas Tech passes Ole Miss, Miami closes in**\
+`The top five teams in the rankings were unchanged, with Ohio State No. 1 followed by Indiana, Texas A&M, Alabama and Georgia.`\
+https://nytimes.com/athletic/6797806/2025/11/11/college-football-playoff-second-rankings-top-25/
+
+**Trump Administration Plans to Send Border Patrol to Charlotte and New Orleans**\
+`Plans for the operations were still being finalized, according to a federal official with knowledge of them.`\
+https://nytimes.com/2025/11/11/us/trump-administration-plans-to-send-border-patrol-to-charlotte-and-new-orleans.html
+
 **Fantasy football strength of schedule: Week 11 and playoff matchup rankings**\
 `Jake Ciely's Week 11 matchup rankings can help with difficult start/sit decisions this week. Playoff rankings aid future plans. `\
 https://nytimes.com/athletic/6798040/2025/11/11/fantasy-football-strength-of-schedule-week-11-playoff-matchup-rankings/

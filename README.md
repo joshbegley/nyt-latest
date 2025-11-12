@@ -1,3 +1,7 @@
+**Brewers' Pat Murphy wins first back-to-back Manager of the Year awards in 20 years**\
+`Since taking the helm in Milwaukee, Murphy has led the team to consecutive 93+ win regular seasons and division titles. `\
+https://nytimes.com/athletic/6794887/2025/11/11/brewers-pat-murphy-national-league-manager-of-the-year/
+
 **College Football Playoff rankings: Texas Tech passes Ole Miss, Miami closes in**\
 `The top five teams in the rankings were unchanged, with Ohio State No. 1 followed by Indiana, Texas A&M, Alabama and Georgia.`\
 https://nytimes.com/athletic/6797806/2025/11/11/college-football-playoff-second-rankings-top-25/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6799338/2025/11/11/brian-cashman-yankees-mlb-gm-mee
 **Dodgers' Tommy Edman to undergo ankle surgery, expected to be ready for spring**\
 `Edman has been dealing with discomfort in his right ankle since the middle of 2024.`\
 https://nytimes.com/athletic/6799401/2025/11/11/dodgers-tommy-edman-ankle-surgery/
-
-**Infant Formula Recall Expands as Botulism Outbreak Grows**\
-`Federal health officials said caregivers should stop using all ByHeart powdered formula products after 15 infants in 12 states were hospitalized.`\
-https://nytimes.com/2025/11/11/health/byheart-infant-formula-recall-botulism.html
 
