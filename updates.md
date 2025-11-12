@@ -1,3 +1,11 @@
+**The Penny Dies at 232**\
+`A long decline into irrelevance ended on Wednesday in Philadelphia.`\
+https://nytimes.com/2025/11/12/business/penny-coin-legacy.html
+
+**Will Lions' St. Brown be disciplined after Payne posts video?**\
+`The Commanders defensive tackle received a one-game suspension for punching St. Brown in the Lions' win last week.`\
+https://nytimes.com/athletic/6801418/2025/11/12/amon-ra-st-brown-daron-payne-punch-discipline/
+
 **YouTube TV, Disney find fresh momentum in talks to bring ESPN back: Sources**\
 `Disney has its quarterly earnings scheduled for Thursday, which could be a potential impetus for a deal to be completed.`\
 https://nytimes.com/athletic/6801582/2025/11/12/youtubetv-espn-disney-update-dispute/
