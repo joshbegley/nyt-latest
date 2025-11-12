@@ -1,3 +1,11 @@
+**Did Bryce Underwood hit a freshman wall? What the QB is doing well — and what needs work**\
+`Are the Wolverines 7-2 because of their freshman quarterback, or in spite of him? The answer, it seems, is a little of both.`\
+https://nytimes.com/athletic/6797868/2025/11/12/bryce-underwood-michigan-quarterback-film/
+
+**When England last won in Australia: The story of the 2010-11 Ashes told by those who were there**\
+`England have not even won a Test match in Australia since triumphing 3-1 there 14 years ago, so this is how the class of 2010-11 prevailed`\
+https://nytimes.com/athletic/6773013/2025/11/12/ashes-england-australia-strauss-swann-hussey/
+
 **China’s Green Triumph**\
 `China is equipping other countries to fight climate change. It’s a role reversal.`\
 https://nytimes.com/2025/11/12/briefing/chinas-green-triumph.html
