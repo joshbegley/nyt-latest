@@ -1,3 +1,7 @@
+**Premier League could face legal action from players if clubs vote for 'anchoring'**\
+`Representatives of the PFA are due to meet with the captains of England's top-tier clubs next week.`\
+https://nytimes.com/athletic/6802035/2025/11/12/premier-league-legal-action-players-pfa/
+
 **As Consumer Bureau’s Cash Dwindles, Trump Administration Declares Its Funding Illegal**\
 `The Justice Department embraced a novel conservative legal theory that it said blocked the Federal Reserve from funding the agency.`\
 https://nytimes.com/2025/11/12/business/consumer-bureau-funding-illegal-cfpb.html
@@ -25,12 +29,4 @@ https://nytimes.com/video/dining/100000010519794/nonalcoholic-negroni.html
 **Former Chess Champion Faces Ethics Complaint After a Grandmaster’s Death**\
 `The International Chess Federation filed the complaint against Vladimir Kramnik, a former world champion who had insinuated that Daniel Naroditsky cheated.`\
 https://nytimes.com/2025/11/12/us/international-chess-federation-complaint-kramnik-naroditsky.html
-
-**‘A Lot of Uncertainty’ Suddenly Surrounds a Storm Hitting California**\
-`The storm is expected to move quickly through Northern California by Thursday morning, but forecasters are concerned that it will stall in the southern part of the state.`\
-https://nytimes.com/2025/11/12/weather/california-storm-la-san-francisco-rain-forecast.html
-
-**Phillies' Dave Dombrowski says he had 'good conversation' with Bryce Harper**\
-`“Talked to him quite a while, and really, the conversation’s between Bryce and myself," Dombrowski said at the GM meetings.`\
-https://nytimes.com/athletic/6802119/2025/11/12/phillies-bryce-harper-dave-dombrowski-conversation/
 
