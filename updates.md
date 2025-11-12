@@ -1,3 +1,7 @@
+**Byron Buxton could reconsider his future if Twins continue roster teardown**\
+`After professing his desire to remain with in Minnesota for the remainder of his career, Buxton could now be having second thoughts.`\
+https://nytimes.com/athletic/6800185/2025/11/12/byron-buxton-twins-future/
+
 **Macklin Celebrini comes up clutch as Wild lose in OT in game they 'dominated': Takeaways**\
 `Minnesota controlled a good part of Tuesday's matchup with the San Jose Sharks, but that's what made this 2-1 loss so hard to digest.`\
 https://nytimes.com/athletic/6800106/2025/11/12/wild-lose-sharks-overtime-macklin-celebrini/
