@@ -1,3 +1,7 @@
+**Federal Judge Plans to Release Some Immigrants Arrested in Chicago Area**\
+`The judge raised concerns that federal agents may have violated terms of a consent decree during their immigration enforcement crackdown in Illinois.`\
+https://nytimes.com/2025/11/12/us/immigrants-wrongful-detention-chicago-release.html
+
 **War Crimes Indictment Reveals a Hard Road to Justice for Syria**\
 `Prosecutors say a Syrian security official accused of torture hid in plain sight in Europe for years, protected by Israeli and Austrian intelligence agents.`\
 https://nytimes.com/2025/11/12/world/europe/syria-security-official-indicted-war-crimes.html
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6795116/2025/11/12/houston-astros-anthony-iapoce-hi
 https://nytimes.com/2025/11/12/us/bishops-trump-immigration.html
 
 **Indigenous Protesters Clash With Guards at U.N. Climate Summit**\
-`Dozens of Indigenous protesters broke into the COP30 summit in Brazil on Tuesday, demanding preservation of their lands. Other Indigenous leaders who took part in the summit said the protesters did not represent the broader movement.`\
+`Dozens of Indigenous protesters burst into the COP30 summit in Brazil on Tuesday, demanding preservation of their lands. Other Indigenous leaders who took part in the summit said the protesters did not represent the broader movement.`\
 https://nytimes.com/video/world/americas/100000010521226/indigenous-protesters-clash-with-guards-at-un-climate-summit.html
 
 **Iraq’s Prime Minister Leads in Elections, but May Struggle to Form Government**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6802121/2025/11/12/broncos-jk-dobbins-injury-chiefs
 **Missed the Northern Lights on Tuesday? Here’s How to Catch Wednesday’s Show.**\
 `A geomagnetic storm that made the aurora borealis visible farther south than normal is expected to continue for another night. But clouds may obscure your view.`\
 https://nytimes.com/2025/11/12/science/how-to-see-the-northern-lights-wednesday.html
-
-**Agencies Tell Federal Workers to Prepare for Return as Shutdown Vote Nears**\
-`Health and Human Services directed its employees to plan to report to work on Thursday morning if legislation to fund the government passes.`\
-https://nytimes.com/2025/11/12/us/politics/federal-workers-government-shutdown.html
 

@@ -1,3 +1,7 @@
+**War Crimes Indictment Reveals a Hard Road to Justice for Syria**\
+`Prosecutors say a Syrian security official accused of torture hid in plain sight in Europe for years, protected by Israeli and Austrian intelligence agents.`\
+https://nytimes.com/2025/11/12/world/europe/syria-security-official-indicted-war-crimes.html
+
 **Astros continue to overhaul staff; set to hire Anthony Iapoce as hitting coach**\
 `In Houston, Iapoce will work alongside Victor Rodríguez, who agreed to leave the San Diego Padres. `\
 https://nytimes.com/athletic/6795116/2025/11/12/houston-astros-anthony-iapoce-hitting-coach-hire/
