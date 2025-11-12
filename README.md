@@ -1,3 +1,15 @@
+**Indigenous Protesters Clash With Guards at U.N. Climate Summit**\
+`Dozens of Indigenous protesters broke into the COP30 summit in Brazil on Tuesday, demanding preservation of their lands. Other Indigenous leaders who took part in the summit said the protesters did not represent the broader movement.`\
+https://nytimes.com/video/world/americas/100000010521226/indigenous-protesters-clash-with-guards-at-un-climate-summit.html
+
+**Iraq’s Prime Minister Leads in Elections, but May Struggle to Form Government**\
+`Mohammed al-Sudani pitches himself as someone who can keep Iranian influence in check, but his vote share may not be big enough to ensure a clear political victory.`\
+https://nytimes.com/2025/11/12/world/middleeast/iraq-elections.html
+
+**Russian Humanoid Robot Falls on Its Face in Hyped Debut**\
+`The robot, known as AIDOL, staggered onstage during a technology showcase in Moscow. Organizers blamed the mishap on calibration and lighting issues.`\
+https://nytimes.com/2025/11/12/technology/ai-robot-russia-falls.html
+
 **William Rataczak, Co-Pilot of Flight Hijacked by D.B. Cooper, Dies at 86**\
 `He was a witness to one of the most riveting unsolved crimes in American history, which inspired scores of conspiracy theories and obsessed amateur sleuths.`\
 https://nytimes.com/2025/11/12/us/william-rataczak-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/t-magazine/100000010519946/live-from-the-10th-floor-a-
 **Lines at the Food Pantry, Billionaires at the White House**\
 `What the government shutdown revealed about Trump’s America.`\
 https://nytimes.com/2025/11/12/us/politics/shutdown-trump-rich-poor.html
-
-**Atletico Madrid Femenino defender hospitalised with head injury**\
-`Medina was treated on the pitch for more than five minutes after staying down following a sliding tackle near the corner flag.`\
-https://nytimes.com/athletic/6802333/2025/11/12/atletico-madrid-femenino-andrea-medina-injury/
-
-**The Shutdown Is Near an End. When Will Things Get Back to Normal?**\
-`Some programs like SNAP could be restored within hours, while other effects could take longer to unravel.`\
-https://nytimes.com/2025/11/12/us/shutdown-travel-snap-backpay.html
-
-**Michael Wolff, Chronicler of Elites, Advised Epstein About Trump**\
-`Mr. Wolff, it turns out, was enough of an insider to provide advice to Jeffrey Epstein on how to handle his dealings with Donald J. Trump.`\
-https://nytimes.com/2025/11/12/us/michael-wolff-epstein-trump-emails.html
 
