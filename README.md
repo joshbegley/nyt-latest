@@ -1,3 +1,11 @@
+**Why Nick Offerman Makes Things By Hand**\
+`Nick Offerman is a staunch believer in making stuff yourself. He discusses his woodworking studio, the joy of learning to build things, and his essential tools on The Wirecutter Show.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010519925/why-nick-offerman-makes-things-by-hand.html
+
+**Why Ron Swanson was a Woodworker**\
+`Parks and Rec used Nick Offerman’s woodshop — and his woodworking skills — on the set of the show. On The Wirecutter Show, Offerman shares his favorite tools and the lessons he’s learned from a lifetime of woodworking.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010519919/why-ron-swanson-was-a-woodworker.html
+
 **These Pumpkin Mini Muffins Are the Perfect Fall Breakfast**\
 `Adapted from a school kitchen, they’re all comfort.`\
 https://nytimes.com/2025/11/12/magazine/pumpkin-ginger-mini-muffins.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/12/us/politics/snap-food-aid-government-shutdown.htm
 **Penguins mailbag: Are they for real? Plus, Mt. Rushmore lists and Thanksgiving food**\
 `The Penguins are starting to make believers out of lot of people. Will they make the playoffs? And if they're close in March, will they buy?`\
 https://nytimes.com/athletic/6800629/2025/11/12/penguins-nhl-standings-sidney-crosby-mailbag/
-
-**Tuchel's England team: Bellingham, Foden, Kane 'cannot play' together**\
-`Morgan Rogers has also emerged as competition for the No 10 position after starting the national team's last three games there.`\
-https://nytimes.com/athletic/6801000/2025/11/12/bellingham-foden-kane-england-news-tuchel/
-
-**Let the Mind-Control Games Begin!**\
-`Every four years at the Cybathlon, teams of researchers and technology “pilots” compete to see whose brain-computer interface holds the most promise.`\
-https://nytimes.com/2025/11/12/science/brain-implants-technology-disability.html
 

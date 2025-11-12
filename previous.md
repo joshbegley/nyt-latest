@@ -1,3 +1,7 @@
+**These Pumpkin Mini Muffins Are the Perfect Fall Breakfast**\
+`Adapted from a school kitchen, they’re all comfort.`\
+https://nytimes.com/2025/11/12/magazine/pumpkin-ginger-mini-muffins.html
+
 **Atlanta Fed President to Step Down in February**\
 `The departure of Raphael W. Bostic, who has served in the role since 2017, would create a new vacancy at the central bank.`\
 https://nytimes.com/2025/11/12/business/bostic-atlanta-fed-president.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6801000/2025/11/12/bellingham-foden-kane-england-ne
 **Let the Mind-Control Games Begin!**\
 `Every four years at the Cybathlon, teams of researchers and technology “pilots” compete to see whose brain-computer interface holds the most promise.`\
 https://nytimes.com/2025/11/12/science/brain-implants-technology-disability.html
-
-**NY Giants head coaching candidates: 20 intriguing names to replace Brian Daboll**\
-`What will be the Giants' priority when hiring their next head coach? Will ownership look for someone with Giants ties?`\
-https://nytimes.com/athletic/6799945/2025/11/12/ny-giants-coach-candidates-lane-kiffin-jaxson-dart/
 

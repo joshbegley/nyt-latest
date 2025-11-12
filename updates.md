@@ -1,3 +1,7 @@
+**These Pumpkin Mini Muffins Are the Perfect Fall Breakfast**\
+`Adapted from a school kitchen, they’re all comfort.`\
+https://nytimes.com/2025/11/12/magazine/pumpkin-ginger-mini-muffins.html
+
 **Atlanta Fed President to Step Down in February**\
 `The departure of Raphael W. Bostic, who has served in the role since 2017, would create a new vacancy at the central bank.`\
 https://nytimes.com/2025/11/12/business/bostic-atlanta-fed-president.html
