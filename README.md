@@ -1,3 +1,11 @@
+**Giants interim Mike Kafka 'looking forward to challenge' of leading NY**\
+`Kafka takes over the 2-8 Giants as they prepare to play the Packers in Week 11.`\
+https://nytimes.com/athletic/6801153/2025/11/12/mike-kafka-giants-interim-brian-daboll-fired/
+
+**5 Democratic Voters Weigh In on the Deal to End the Government Shutdown**\
+`They are as divided as the party. Some wanted to continue to fight. Others were worried about jobs or people depending on SNAP food relief.`\
+https://nytimes.com/2025/11/12/us/politics/democrat-voters-government-shutdown-deal.html
+
 **Hal Sirowitz, Poet Who Mined His Mother’s Worry With Wit, Dies at 76**\
 `He wrote of his suffocating relationship with his mother to create mordant reminiscences and became a standout at poetry slams in New York.`\
 https://nytimes.com/2025/11/12/nyregion/hal-sirowitz-dead.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/11/12/us/virginia-governor-spanberger-uva-president.htm
 **Review: Rennie Harris’s Jam Session of American Street Dance**\
 `At the Joyce Theater, “American Street Dancer” offers a history lesson in the form of a family’s house party.`\
 https://nytimes.com/2025/11/12/arts/dance/rennie-harris-puremovent-joyce-theater-review.html
-
-**Owen Goodman's persistent path to Canadian citizenship makes him a World Cup wild card**\
-`Goodman had international options, but the goalkeeper had eyes for Canada. Now with citizenship in tow, he can pursue his World Cup dream`\
-https://nytimes.com/athletic/6801118/2025/11/12/owen-goodman-canada-goalkeeper-world-cup-huddersfield-crystal-palace/
-
-**How to Winterize Your Grill**\
-`If you give your grill a little annual TLC before winter sets in, you’ll be able to enjoy it for years and years to come. Fortunately, winterizing a grill — whether it’s a gas, charcoal, or pellet grill — is easier than you probably think.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010520229/how-to-winterize-your-grill.html
 

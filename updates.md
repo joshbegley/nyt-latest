@@ -1,3 +1,11 @@
+**Hal Sirowitz, Poet Who Mined His Mother’s Worry With Wit, Dies at 76**\
+`He wrote of his suffocating relationship with his mother to create mordant reminiscences and became a standout at poetry slams in New York.`\
+https://nytimes.com/2025/11/12/nyregion/hal-sirowitz-dead.html
+
+**Premieres at the Paul Taylor Dance Company Lose the Taylor Thread**\
+`As part of its Lincoln Center season, the company presented works by Lauren Lovette, Robert Battle and Hope Boykin.`\
+https://nytimes.com/2025/11/12/arts/dance/paul-taylor-company-robert-battle-lauren-lovette-premieres.html
+
 **We Tested The Viral Bounce Curl Brush**\
 `The internet raves about these curl-defining brushes. Is the hype earned? Writer Hannah Frye gathered a group to test them out and was surprised by the positive reception.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010520309/we-tested-the-viral-bounce-curl-brush.html
