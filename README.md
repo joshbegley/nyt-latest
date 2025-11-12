@@ -1,3 +1,7 @@
+**This Diamond Sold for the Bargain Price of $25.6 Million**\
+`A 9.51-carat blue stone that once belonged to the heiress Bunny Mellon sold for $7 million less than at its last auction, a sign of profound shifts in the diamond industry.`\
+https://nytimes.com/2025/11/12/world/europe/blue-diamond-sold-switzerland.html
+
 **Japan’s Leader Started a Meeting at 3 A.M. Then Came the Backlash.**\
 `Sanae Takaichi drew criticism for requiring staff to work in the wee hours in a country scarred by “death from overwork.”`\
 https://nytimes.com/2025/11/12/world/asia/japan-takaichi-work-overtime.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/12/arts/television/the-seduction-hbo-max.html
 **Can N.Y.C. Casino Bids Deliver an Economic Boost?**\
 `Contenders for full-scale casino licenses in New York City predict an economic boom fueled by gambling. Experts say that’s not what has happened elsewhere.`\
 https://nytimes.com/2025/11/12/nyregion/can-nyc-casino-bids-deliver-an-economic-boost.html
-
-**The Business Elite Needs Mamdani. They Just Don’t Know It Yet.**\
-`The threat from Washington is going to require teamwork.`\
-https://nytimes.com/2025/11/12/opinion/mamdani-wall-street-trump.html
 
