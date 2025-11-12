@@ -1,3 +1,11 @@
+**Gus Johnson calls Indiana-Penn State a career highlight: 'The moment you dream about'**\
+`“I just got caught up in the euphoria of the moment and my pipes, they started squeaking a little bit," Johnson said of Omar Cooper's catch.`\
+https://nytimes.com/athletic/6798562/2025/11/12/gus-johnson-indiana-penn-state-football-fox-sports/
+
+**The Bounce: The rise and fall of Nico Harrison. Plus, the 4 worst NBA trades ever**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6801046/2025/11/12/the-bounce-nico-harrison-dallas-mavericks-gmf-ired/
+
 **42 Million People Are Enrolled in SNAP. Who Are They?**\
 `The shutdown brought the scale of the federal food aid program into focus and raised questions about how such a rich country could have so many people on nutrition assistance.`\
 https://nytimes.com/2025/11/12/us/politics/snap-food-aid-government-shutdown.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6800920/2025/11/12/youtube-tv-credit-how-to-subscri
 **Read the Jeffrey Epstein Emails That Mention Trump**\
 `House Democrats on Wednesday released emails in which Jeffrey Epstein sent messages to his longtime confidante Ghislaine Maxwell and the author Michael Wolff suggesting that Donald J. Trump knew more about the convicted sex offender’s abuse than he had acknowledged.`\
 https://nytimes.com/interactive/2025/11/12/us/epstein-emails.html
-
-**Betting for (by) dummies: Fading Philly, Pittsburgh and Penn State (sorry, PA)**\
-`Jon Greenberg and Zac Jackson are fading a whole bunch of favorites across college and NFL games this week.`\
-https://nytimes.com/athletic/6799196/2025/11/12/football-betting-dummies-nfl-college-lions-eagles/
-
-**Edwards is making a brave and bold return to Wolves - he has an immense challenge ahead**\
-`Edwards has taken on an unenviable task but his history suggests he is equipped with the skills to be a sound appointment in the longer term`\
-https://nytimes.com/athletic/6789486/2025/11/12/rob-edwards-wolves-return/
 
