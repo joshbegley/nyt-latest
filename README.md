@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Thursday, Nov. 13, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/11/12/todays-new-york-times-international-edition
+
 **This Diamond Sold for the Bargain Price of $25.6 Million**\
 `A 9.51-carat blue stone that once belonged to the heiress Bunny Mellon sold for $7 million less than at its last auction, a sign of profound shifts in the diamond industry.`\
 https://nytimes.com/2025/11/12/world/europe/blue-diamond-sold-switzerland.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/12/learning/do-technology-bans-work-for-teenagers.ht
 **In ‘The Seduction,’ a ‘Dangerous Liaisons’ for This Moment**\
 `The French-language series from HBO Max focuses on the young Marquise de Merteuil — and on love, broken promises and manipulation.`\
 https://nytimes.com/2025/11/12/arts/television/the-seduction-hbo-max.html
-
-**Can N.Y.C. Casino Bids Deliver an Economic Boost?**\
-`Contenders for full-scale casino licenses in New York City predict an economic boom fueled by gambling. Experts say that’s not what has happened elsewhere.`\
-https://nytimes.com/2025/11/12/nyregion/can-nyc-casino-bids-deliver-an-economic-boost.html
 

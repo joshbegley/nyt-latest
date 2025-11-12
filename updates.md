@@ -1,3 +1,7 @@
+**This Diamond Sold for the Bargain Price of $25.6 Million**\
+`A 9.51-carat blue stone that once belonged to the heiress Bunny Mellon sold for $7 million less than at its last auction, a sign of profound shifts in the diamond industry.`\
+https://nytimes.com/2025/11/12/world/europe/blue-diamond-sold-switzerland.html
+
 **Japan’s Leader Started a Meeting at 3 A.M. Then Came the Backlash.**\
 `Sanae Takaichi drew criticism for requiring staff to work in the wee hours in a country scarred by “death from overwork.”`\
 https://nytimes.com/2025/11/12/world/asia/japan-takaichi-work-overtime.html
