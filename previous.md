@@ -1,3 +1,7 @@
+**Hazlewood joins Australia squad after injury scare, Abbott ruled out of first Ashes Test**\
+`Cricket Australia confirmed Hazlewood had been cleared of a muscle strain and "will train as planned in the lead up to the first Test".`\
+https://nytimes.com/athletic/6800368/2025/11/12/josh-hazlewood-australia-injury-sean-abbott/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/11/12/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/12/learning/hairstyles.html
 **Word of the Day: ascertain**\
 `This word has appeared in 100 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/11/12/learning/word-of-the-day-ascertain.html
-
-**Turkish Military Plane Crashes in Georgia, Killing 20 Troops**\
-`The Turkish defense minister said that 20 Air Force servicemen died when their military cargo plane crashed after taking off from Azerbaijan on Tuesday.`\
-https://nytimes.com/2025/11/12/world/middleeast/turkey-military-plane-crash-georgia.html
 

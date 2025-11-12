@@ -1,3 +1,7 @@
+**Hazlewood joins Australia squad after injury scare, Abbott ruled out of first Ashes Test**\
+`Cricket Australia confirmed Hazlewood had been cleared of a muscle strain and "will train as planned in the lead up to the first Test".`\
+https://nytimes.com/athletic/6800368/2025/11/12/josh-hazlewood-australia-injury-sean-abbott/
+
 **Former Aide to N.Y. Governors Is on Trial, Accused Helping China**\
 `Linda Sun, who worked for Kathy Hochul and Andrew M. Cuomo, had luxury watches and cars that prosecutors say were rewards for boosting the country’s agenda.`\
 https://nytimes.com/2025/11/12/nyregion/linda-sun-china-trial.html
