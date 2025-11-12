@@ -1,3 +1,11 @@
+**Blue Jays GM Meeting notes: Top-of-rotation needs, bullpen targets and more**\
+`The Toronto Blue Jays are expected to “be quite aggressive” this offseason as the team tries to go from close to complete.`\
+https://nytimes.com/athletic/6799922/2025/11/11/blue-jays-meeting-rotation-needs-bullpen-targets/
+
+**Atlanta's NWSL team will debut in 2028, play at Mercedes-Benz Stadium**\
+`Atlanta will join the league for a record expansion fee of $165 million.`\
+https://nytimes.com/athletic/6799873/2025/11/11/atlanta-nwsl-expansion-mercedes-benz-stadium/
+
 **Jack Schlossberg, Social Media Provocateur, Gives Politics a Try**\
 `As he prepares a Congressional run, J.F.K.’s grandson admits, “I’m not for everybody.”`\
 https://nytimes.com/2025/11/11/style/jack-schlossberg-social-media-provocateur-gives-politics-a-try.html
