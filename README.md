@@ -1,3 +1,7 @@
+**MLB prefers to discipline Guardians' Ortiz and Clase by spring training: Source**\
+`Clase and Ortiz were indicted Sunday on a host of charges tied to allegedly rigging pitches during MLB games.`\
+https://nytimes.com/athletic/6799532/2025/11/11/mlb-prefers-to-discipline-guardians-ortiz-and-clase-by-spring-training-source/
+
 **Cubs won't rule out top of free-agent market as they expect active winter**\
 `Cubs team president Jed Hoyer made it clear pitching would be the priority this offseason.`\
 https://nytimes.com/athletic/6799826/2025/11/11/cubs-free-agency-market-active-winter/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6799693/2025/11/11/phillies-outfield-nick-castellan
 **Johnson to Seat Grijalva, Seven Weeks After She Was Elected**\
 `Speaker Mike Johnson had refused to swear in Representative-elect Adelita Grijalva, a Democrat of Arizona, claiming he lacked the power to do so.`\
 https://nytimes.com/2025/11/11/us/politics/adelita-grijalva-swearing-in-congress.html
-
-**Antonio Brown pleads not guilty in Miami attempted murder case**\
-`Brown eluded authorities for more than four months while making social media posts from Dubai.`\
-https://nytimes.com/athletic/6799707/2025/11/11/antonio-brown-not-guilty-miami-attempted-murder/
 

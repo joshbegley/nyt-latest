@@ -1,3 +1,15 @@
+**Cubs won't rule out top of free-agent market as they expect active winter**\
+`Cubs team president Jed Hoyer made it clear pitching would be the priority this offseason.`\
+https://nytimes.com/athletic/6799826/2025/11/11/cubs-free-agency-market-active-winter/
+
+**NBA introduces new All-Star Game format with USA vs. World twist**\
+`The NBA will change its All-Star Game format in 2026 to a round-robin tournament. Will this appease fans?`\
+https://nytimes.com/athletic/6799852/2025/11/11/nba-all-star-game-format-adam-silver/
+
+**Energize**\
+`Brad and Nicole Wiegmann offer us a wonderful Wednesday.`\
+https://nytimes.com/2025/11/11/crosswords/daily-puzzle-2025-11-12.html
+
 **Pirates won't trade Paul Skenes this offseason, GM says**\
 `"Paul Skenes is going to be a Pirate in 2026," the Pittsburgh GM said.`\
 https://nytimes.com/athletic/6799837/2025/11/11/pirates-wont-trade-paul-skenes-ben-cherington/
