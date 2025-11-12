@@ -2,7 +2,7 @@
 `Modern online chat shows look less fussy and polished than TV. That’s by design.`\
 https://nytimes.com/interactive/2025/11/12/arts/podcast-sets-design.html
 
-**Scoop City: Drafting the top 5 picks of 2026**\
+**Scoop City: Mock drafting the top 5 picks of 2026**\
 `Two rare absences from the NFL's top 10 teams, plus a top-five mock draft for 2026 and some kickoff controversy`\
 https://nytimes.com/athletic/6801805/2025/11/12/nfl-mock-top-5-2026-draft-chiefs-bills-kickoff-scoop-city/
 
