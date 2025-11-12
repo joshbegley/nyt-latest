@@ -1,3 +1,11 @@
+**Leafs' Auston Matthews, Anthony Stolarz exit vs. Bruins with injuries**\
+`Matthews (lower body) and Stolarz (upper body) were ruled out of Toronto's game in Boston on Tuesday.`\
+https://nytimes.com/athletic/6799789/2025/11/11/maple-leafs-auston-matthews-anthony-stolarz-injury/
+
+**Phillies' outfield revamp: Justin Crawford, no Nick Castellanos, and a lot of questions**\
+`The Phillies are actively shopping Nick Castellanos at this week's GM meetings, multiple major-league sources told The Athletic.`\
+https://nytimes.com/athletic/6799693/2025/11/11/phillies-outfield-nick-castellanos-justin-crawford/
+
 **Johnson to Seat Grijalva, Seven Weeks After She Was Elected**\
 `Speaker Mike Johnson had refused to swear in Representative-elect Adelita Grijalva, a Democrat of Arizona, claiming he lacked the power to do so.`\
 https://nytimes.com/2025/11/11/us/politics/adelita-grijalva-swearing-in-congress.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/11/climate/gavin-newsom-cop30-belem-climate.html
 **Supreme Court Extends Order Allowing Limits on Food Stamp Payments**\
 `The justices allowed the Trump administration to withhold full benefits for two more days while Congress worked to advance a government funding bill.`\
 https://nytimes.com/2025/11/11/us/politics/snap-food-stamps-supreme-court-trump.html
-
-**Eagles' Jaire Alexander stepping away from team to focus on physical, mental health**\
-`Last year, Alexander tore his PCL in Week 8, had a knee scope in January and did not play for the rest of the season.`\
-https://nytimes.com/athletic/6799515/2025/11/11/jaire-alexander-steps-away-retirement-eagles-nfl/
-
-**Duffy Won’t Give Timeline to Restore Flights as Shutdown Appears Near End**\
-`Sean Duffy, the transportation secretary, instead stepped up his warnings of potential chaos in the air-travel system, saying some airlines could ground their fleets by this weekend if the government is not reopened.`\
-https://nytimes.com/2025/11/11/us/flights-canceled-shutdown.html
 
