@@ -1,3 +1,7 @@
+**Jack Schlossberg, Social Media Provocateur, Gives Politics a Try**\
+`As he prepares a Congressional run, J.F.K.’s grandson admits, “I’m not for everybody.”`\
+https://nytimes.com/2025/11/11/style/jack-schlossberg-social-media-provocateur-gives-politics-a-try.html
+
 **MLB meets with union as salary cap, lockout talks swirl: Source**\
 `Unsurprisingly, the players and owners do not share the same perspective at this point, sources said.`\
 https://nytimes.com/athletic/6799894/2025/11/11/mlb-union-meet-salary-cap-lockout-talks/
