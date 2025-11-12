@@ -1,3 +1,11 @@
+**Kim Kardashian’s Skims Is Worth an Extra Billion Dollars**\
+`The apparel giant is now valued at $5 billion after a new fund-raising round, as it continues to grow its business.`\
+https://nytimes.com/2025/11/12/business/dealbook/kim-kardashian-skims-fundraising-billion.html
+
+**Mandel’s Mailbag: Why is Indiana ahead of Texas A&M? Could the ACC be left out of the CFP?**\
+`Why the committee is right to rank Indiana over Texas A&M, plus a hypothetical four-team CFP debate, chaos in the ACC and more questions.`\
+https://nytimes.com/athletic/6799825/2025/11/12/indiana-texas-am-playoff-mandels-mailbag/
+
 **Five questions for Nebraska with just 2 games left in the regular season**\
 `Nebraska still has big games against Penn State and Iowa remaining, but it's not too early to look ahead at 2026 priorities, either.`\
 https://nytimes.com/athletic/6799318/2025/11/12/nebraska-football-offseason-questions-2026/

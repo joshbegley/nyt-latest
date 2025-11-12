@@ -1,3 +1,7 @@
+**Yankees fire longtime international scouting director after many million dollar misses**\
+`Sources pointed to a poor track record of turning big-money signings into impact major leaguers as a likely major contributing factor.`\
+https://nytimes.com/athletic/6800680/2025/11/12/yankees-fire-donny-rowland-international-scouting-director/
+
 **Kim Kardashian’s Skims Is Worth an Extra Billion Dollars**\
 `The apparel giant is now valued at $5 billion after a new fund-raising round, as it continues to grow its business.`\
 https://nytimes.com/2025/11/12/business/dealbook/kim-kardashian-skims-fundraising-billion.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6800674/2025/11/12/notre-dame-college-football-play
 **Northern Lights Illuminate Skies Above North America**\
 `The northern lights could be seen in skies as far south as Texas late Tuesday and early Wednesday after the sun emitted masses of charged particles that disrupted the Earth’s magnetic field — and created a dazzling display.`\
 https://nytimes.com/video/world/americas/100000010519515/northern-lights-north-america.html
-
-**Bulls have built solid template through 10 games, but how high is their ceiling?**\
-`Chicago has a budding star in Josh Giddey, and its depth and pace have led to wins. But one major piece is still missing.  `\
-https://nytimes.com/athletic/6800227/2025/11/12/chicago-bulls-first-10-games-josh-giddey-matas-buzelis/
 
