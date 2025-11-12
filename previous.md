@@ -1,3 +1,23 @@
+**How to watch Vanderbilt vs. Austin Peay women's basketball: Time, TV, streaming**\
+`Find out how to watch the Vanderbilt Commodores play the Austin Peay Governors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6801270/2025/11/12/vanderbilt-vs-austin-peay-stream-how-to-watch-nov-12/
+
+**How to watch North Florida vs. Tennessee men's basketball: Time, TV, streaming**\
+`Find out how to watch the North Florida Ospreys play the Tennessee Volunteers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6801266/2025/11/12/north-florida-vs-tennessee-stream-how-to-watch-nov-12/
+
+**How to watch Akron vs. Notre Dame women's basketball: Time, TV, streaming**\
+`Find out how to watch the Akron Zips play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6801264/2025/11/12/akron-vs-notre-dame-stream-how-to-watch-nov-12/
+
+**Epstein Files Live Updates: G.O.P. Lawmakers Release Thousands of Files**\
+`Hours after Democrats released emails showing the Jeffrey Epstein discussed his relationship with President Trump, Republicans on the Oversight Committee released 20,000 additional documents.`\
+https://nytimes.com/live/2025/11/12/us/epstein-files-trump
+
+**Inside Nico Harrison's tumultuous tenure, and what the Mavs' next GM choice could tell us**\
+`How did things go so wrong in Dallas under Nico Harrison and who is finding influence as a voice in the organization now?`\
+https://nytimes.com/athletic/6800940/2025/11/12/dallas-mavericks-gm-nico-harrison-culture-workplace/
+
 **Many Displaced Sudanese Feared Dead After Shipwreck Near Libya**\
 `Forty-two migrants were presumed dead after a rubber boat capsized off the Libyan coast this month. Many of the presumed victims were fleeing a raging conflict in Sudan.`\
 https://nytimes.com/2025/11/12/world/africa/sudan-migrants-shipwreck-libya.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/11/12/well/lower-salt-intake.html
 **Why Nick Offerman Makes Things By Hand**\
 `Nick Offerman is a staunch believer in making stuff yourself. He discusses his woodworking studio, the joy of learning to build things, and his essential tools on The Wirecutter Show.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010519925/why-nick-offerman-makes-things-by-hand.html
-
-**Why Ron Swanson was a Woodworker**\
-`Parks and Rec used Nick Offerman’s woodshop — and his woodworking skills — on the set of the show. On The Wirecutter Show, Offerman shares his favorite tools and the lessons he’s learned from a lifetime of woodworking.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010519919/why-ron-swanson-was-a-woodworker.html
-
-**These Pumpkin Mini Muffins Are the Perfect Fall Breakfast**\
-`Adapted from a school kitchen, they’re all comfort.`\
-https://nytimes.com/2025/11/12/magazine/pumpkin-ginger-mini-muffins.html
-
-**Atlanta Fed President to Step Down in February**\
-`The departure of Raphael W. Bostic, who has served in the role since 2017, would create a new vacancy at the central bank.`\
-https://nytimes.com/2025/11/12/business/bostic-atlanta-fed-president.html
-
-**Fit, Focused—and Caught Off Guard**\
-`Four athletes over 50 on staying active and the virus they didn’t see coming`\
-https://nytimes.com/paidpost/2025-10-15/glaxosmithkline/rsv-2025.html
-
-**Who could be this year's Arizona State? Identifying College Football Playoff long shots**\
-`Arizona State was a long-shot for the Playoff at this point last November. Who are candidates to climb into the bracket this year?`\
-https://nytimes.com/athletic/6800966/2025/11/12/college-football-playoff-bubble-teams/
 

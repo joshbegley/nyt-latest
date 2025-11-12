@@ -1,3 +1,31 @@
+**How to watch South Carolina Upstate vs. Kentucky women's basketball: Time, TV, streaming**\
+`Find out how to watch the South Carolina Upstate Spartans play the Kentucky Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6801301/2025/11/12/south-carolina-upstate-vs-kentucky-stream-how-to-watch-nov-12/
+
+**How to watch Norfolk State vs. Duke women's basketball: Time, TV, streaming**\
+`Find out how to watch the Norfolk State Spartans play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6801298/2025/11/12/norfolk-state-vs-duke-stream-how-to-watch-nov-12/
+
+**How to watch Colorado vs. Louisville women's basketball: Time, TV, streaming**\
+`Find out how to watch the Colorado Buffaloes play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6801296/2025/11/12/colorado-vs-louisville-stream-how-to-watch-nov-12/
+
+**How to watch Youngstown State vs. Michigan State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Youngstown State Penguins play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6801294/2025/11/12/youngstown-state-vs-michigan-state-stream-how-to-watch-nov-12/
+
+**How to watch Southern vs. Ole Miss women's basketball: Time, TV, streaming**\
+`Find out how to watch the Southern Jaguars play the Ole Miss Rebels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6801292/2025/11/12/southern-vs-ole-miss-stream-how-to-watch-nov-12/
+
+**Getting Into the Arena as ‘The Hunger Games’ Goes Live**\
+`At a specially built theater, the hit book and movie franchise has been transformed into a theatrical experience, with real fire and flying arrows.`\
+https://nytimes.com/2025/11/12/theater/hunger-games-live-london.html
+
+**Ask Russo and Smith: Submit your questions for The Athletic’s Minnesota Wild mailbag**\
+`Have a question about the Wild? Ask here, and Michael Russo and Joe Smith will respond to a selection in their upcoming mailbag.`\
+https://nytimes.com/athletic/6801258/2025/11/12/minnesota-wild-mailbag-november-2025/
+
 **How to watch Vanderbilt vs. Austin Peay women's basketball: Time, TV, streaming**\
 `Find out how to watch the Vanderbilt Commodores play the Austin Peay Governors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6801270/2025/11/12/vanderbilt-vs-austin-peay-stream-how-to-watch-nov-12/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6801266/2025/11/12/north-florida-vs-tennessee-strea
 **How to watch Akron vs. Notre Dame women's basketball: Time, TV, streaming**\
 `Find out how to watch the Akron Zips play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6801264/2025/11/12/akron-vs-notre-dame-stream-how-to-watch-nov-12/
-
-**Epstein Files Live Updates: G.O.P. Lawmakers Release Thousands of Files**\
-`Hours after Democrats released emails showing the Jeffrey Epstein discussed his relationship with President Trump, Republicans on the Oversight Committee released 20,000 additional documents.`\
-https://nytimes.com/live/2025/11/12/us/epstein-files-trump
-
-**Inside Nico Harrison's tumultuous tenure, and what the Mavs' next GM choice could tell us**\
-`How did things go so wrong in Dallas under Nico Harrison and who is finding influence as a voice in the organization now?`\
-https://nytimes.com/athletic/6800940/2025/11/12/dallas-mavericks-gm-nico-harrison-culture-workplace/
-
-**Many Displaced Sudanese Feared Dead After Shipwreck Near Libya**\
-`Forty-two migrants were presumed dead after a rubber boat capsized off the Libyan coast this month. Many of the presumed victims were fleeing a raging conflict in Sudan.`\
-https://nytimes.com/2025/11/12/world/africa/sudan-migrants-shipwreck-libya.html
-
-**Why Thatcher Demko’s latest injury could jeopardize Canucks’ playoff chances**\
-`Demko suffered a lower-body injury in Vancouver's loss to the Winnipeg Jets on Tuesday night.`\
-https://nytimes.com/athletic/6800301/2025/11/12/thatcher-demko-injury-canucks-stats-standings/
-
-**Stir and Shovel and Feel Utterly Satisfied**\
-`My new recipe for dan dan noodles is exactly what a cold weeknight needs.`\
-https://nytimes.com/2025/11/12/dining/easy-dan-dan-noodle-recipe-for-cold-weather.html
-
-**4 Ways to Cut Back on Salt**\
-`About 90 percent of Americans eat too much. We asked experts how to consume less.`\
-https://nytimes.com/2025/11/12/well/lower-salt-intake.html
-
-**Why Nick Offerman Makes Things By Hand**\
-`Nick Offerman is a staunch believer in making stuff yourself. He discusses his woodworking studio, the joy of learning to build things, and his essential tools on The Wirecutter Show.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010519925/why-nick-offerman-makes-things-by-hand.html
 
