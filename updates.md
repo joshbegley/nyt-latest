@@ -1,3 +1,15 @@
+**Indigenous Protesters Clash With Guards at U.N. Climate Summit**\
+`Dozens of Indigenous protesters broke into the COP30 summit in Brazil on Tuesday, demanding preservation of their lands. Other Indigenous leaders who took part in the summit said the protesters did not represent the broader movement.`\
+https://nytimes.com/video/world/americas/100000010521226/indigenous-protesters-clash-with-guards-at-un-climate-summit.html
+
+**Iraq’s Prime Minister Leads in Elections, but May Struggle to Form Government**\
+`Mohammed al-Sudani pitches himself as someone who can keep Iranian influence in check, but his vote share may not be big enough to ensure a clear political victory.`\
+https://nytimes.com/2025/11/12/world/middleeast/iraq-elections.html
+
+**Russian Humanoid Robot Falls on Its Face in Hyped Debut**\
+`The robot, known as AIDOL, staggered onstage during a technology showcase in Moscow. Organizers blamed the mishap on calibration and lighting issues.`\
+https://nytimes.com/2025/11/12/technology/ai-robot-russia-falls.html
+
 **William Rataczak, Co-Pilot of Flight Hijacked by D.B. Cooper, Dies at 86**\
 `He was a witness to one of the most riveting unsolved crimes in American history, which inspired scores of conspiracy theories and obsessed amateur sleuths.`\
 https://nytimes.com/2025/11/12/us/william-rataczak-dead.html
