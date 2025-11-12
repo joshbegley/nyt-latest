@@ -1,3 +1,7 @@
+**What the Movies Need From Sydney Sweeney**\
+`Only stardom can save Hollywood.`\
+https://nytimes.com/2025/11/12/opinion/sydney-sweeney-christy.html
+
 **Premier League could face legal action from players if clubs vote for 'anchoring'**\
 `Representatives of the PFA are due to meet with the captains of England's top-tier clubs next week.`\
 https://nytimes.com/athletic/6802035/2025/11/12/premier-league-legal-action-players-pfa/
@@ -25,8 +29,4 @@ https://nytimes.com/video/world/europe/100000010520133/russia-robot-fall.html
 **Nonalcoholic Negroni**\
 `It can be difficult to find a nonalcoholic version of the classic Negroni that captures the complex flavor notes without involving the use of pricy nonalcoholic spirits.`\
 https://nytimes.com/video/dining/100000010519794/nonalcoholic-negroni.html
-
-**Former Chess Champion Faces Ethics Complaint After a Grandmaster’s Death**\
-`The International Chess Federation filed the complaint against Vladimir Kramnik, a former world champion who had insinuated that Daniel Naroditsky cheated.`\
-https://nytimes.com/2025/11/12/us/international-chess-federation-complaint-kramnik-naroditsky.html
 
