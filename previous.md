@@ -1,3 +1,15 @@
+**Israel Reopens Crossing Into Northern Gaza for Aid**\
+`The cease-fire with Hamas has blunted the hunger faced by Gazans during the war. But aid agencies say Israeli restrictions are still hobbling their work.`\
+https://nytimes.com/2025/11/12/world/middleeast/israel-gaza-zikim-crossing-aid.html
+
+**Epstein Alleged in Emails That Trump Knew of His Conduct**\
+`In a message obtained by Congress, the convicted sex offender Jeffrey Epstein wrote that Donald J. Trump spent hours at his house with one of Mr. Epstein’s victims.`\
+https://nytimes.com/2025/11/12/us/politics/trump-epstein-emails.html
+
+**The NHL's most dangerous dynamic duos and what makes them tick**\
+`Today we take a look at the league's most dangerous duos to start the season, with clips, quotes and scoring-chance data.`\
+https://nytimes.com/athletic/6774176/2025/11/12/nhl-dynamic-duos/
+
 **Yankees fire longtime international scouting director after many million dollar misses**\
 `Sources pointed to a poor track record of turning big-money signings into impact major leaguers as a likely major contributing factor.`\
 https://nytimes.com/athletic/6800680/2025/11/12/yankees-fire-donny-rowland-international-scouting-director/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/11/12/us/trump-government-shutdown-news
 **Giants name Jameis Winston QB2; he will start if Jaxson Dart is out: Source**\
 `Winston takes over as Dart's primary backup, relegating veteran Russell Wilson to QB3.`\
 https://nytimes.com/athletic/6795038/2025/11/12/ny-giants-jameis-winston-jaxson-dart-russell-wilson/
-
-**Blue Jackets, Charlie Coyle gut out shootout win in Seattle to end rough road trip**\
-`Coyle’s goal in the fourth round of a shootout gave the the flu-ridden, heavy-legged Jackets something to smile about.`\
-https://nytimes.com/athletic/6800064/2025/11/12/blue-jackets-shootout-win-seattle-kraken/
-
-**Notre Dame's CFP rankings outlook: The Miami debate, SEC threats and hosting chances**\
-`Notre Dame is no longer the last team in the projected CFP field, not that the Irish have a ton of breathing room.`\
-https://nytimes.com/athletic/6800674/2025/11/12/notre-dame-college-football-playoff-rankings-miami/
-
-**Northern Lights Illuminate Skies Above North America**\
-`The northern lights could be seen in skies as far south as Texas late Tuesday and early Wednesday after the sun emitted masses of charged particles that disrupted the Earth’s magnetic field — and created a dazzling display.`\
-https://nytimes.com/video/world/americas/100000010519515/northern-lights-north-america.html
 

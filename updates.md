@@ -1,3 +1,15 @@
+**Israel Reopens Crossing Into Northern Gaza for Aid**\
+`The cease-fire with Hamas has blunted the hunger faced by Gazans during the war. But aid agencies say Israeli restrictions are still hobbling their work.`\
+https://nytimes.com/2025/11/12/world/middleeast/israel-gaza-zikim-crossing-aid.html
+
+**Epstein Alleged in Emails That Trump Knew of His Conduct**\
+`In a message obtained by Congress, the convicted sex offender Jeffrey Epstein wrote that Donald J. Trump spent hours at his house with one of Mr. Epstein’s victims.`\
+https://nytimes.com/2025/11/12/us/politics/trump-epstein-emails.html
+
+**The NHL's most dangerous dynamic duos and what makes them tick**\
+`Today we take a look at the league's most dangerous duos to start the season, with clips, quotes and scoring-chance data.`\
+https://nytimes.com/athletic/6774176/2025/11/12/nhl-dynamic-duos/
+
 **Yankees fire longtime international scouting director after many million dollar misses**\
 `Sources pointed to a poor track record of turning big-money signings into impact major leaguers as a likely major contributing factor.`\
 https://nytimes.com/athletic/6800680/2025/11/12/yankees-fire-donny-rowland-international-scouting-director/
