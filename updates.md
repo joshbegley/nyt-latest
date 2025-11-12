@@ -1,3 +1,7 @@
+**Deadly Blasts in India and Pakistan Set Region on Edge**\
+`The rare explosions in the country’s capitals have not been directly linked, but there are fears the governments will blame each other after their previous military conflict alarmed the world.`\
+https://nytimes.com/2025/11/12/world/asia/india-pakistan-explosions.html
+
 **The New York Times International Edition in Print for Thursday, Nov. 13, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/11/12/todays-new-york-times-international-edition
