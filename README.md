@@ -1,3 +1,7 @@
+**Byron Buxton could reconsider his future if Twins continue roster teardown**\
+`After professing his desire to remain with in Minnesota for the remainder of his career, Buxton could now be having second thoughts.`\
+https://nytimes.com/athletic/6800185/2025/11/12/byron-buxton-twins-future/
+
 **Macklin Celebrini comes up clutch as Wild lose in OT in game they 'dominated': Takeaways**\
 `Minnesota controlled a good part of Tuesday's matchup with the San Jose Sharks, but that's what made this 2-1 loss so hard to digest.`\
 https://nytimes.com/athletic/6800106/2025/11/12/wild-lose-sharks-overtime-macklin-celebrini/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6799997/2025/11/12/rj-barrett-toronto-raptors-brand
 **Have Chelsea learnt how to break down low blocks?**\
 `After struggling to do so earlier this season, Enzo Maresca's side are beginning to show they can beat the division's most stubborn teams`\
 https://nytimes.com/athletic/6797852/2025/11/12/chelsea-low-blocks-premier-league-maresca/
-
-**Video Shows How a New Bridge Partly Collapsed in China’s Southwest**\
-`A section of the tall bridge in mountainous Sichuan Province fell, apparently after a landslide. No casualties were reported.`\
-https://nytimes.com/2025/11/12/world/asia/china-sichuan-bridge-collapse.html
 
