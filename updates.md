@@ -1,3 +1,7 @@
+**Sally Kirkland, Scene-Stealing Actress, Dies at 84**\
+`She received an Oscar nomination for the 1987 film “Anna” but spent much of her prolific career as a go-to supporting actress in movies like “The Sting” and “JFK.”`\
+https://nytimes.com/2025/11/12/movies/sally-kirkland-dead.html
+
 **Signs Suggest Air Traffic Crisis is Easing, but Restrictions Remain**\
 `It was unclear when the Trump administration planned to reverse mandated cuts at major airports, though transportation officials and industry groups said it would take a week after the shutdown ended for air travel to return to normal.`\
 https://nytimes.com/2025/11/12/us/politics/faa-shutdown-flights-air-traffic-crisis.html
