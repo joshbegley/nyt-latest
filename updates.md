@@ -1,3 +1,11 @@
+**Eagles' Jaire Alexander stepping away from team to focus on physical, mental health**\
+`Last year, Alexander tore his PCL in Week 8, had a knee scope in January and did not play for the rest of the season.`\
+https://nytimes.com/athletic/6799515/2025/11/11/jaire-alexander-steps-away-retirement-eagles-nfl/
+
+**Brewers' Pat Murphy becomes second-ever back-to-back NL Manager of the Year**\
+`Since taking the helm in Milwaukee, Murphy has led the team to consecutive 93+ win regular seasons and division titles. `\
+https://nytimes.com/athletic/6794887/2025/11/11/brewers-pat-murphy-national-league-manager-of-the-year/
+
 **After decade in the NFL, Paul DePodesta aims to revive Colorado Rockies**\
 `“I’m very willing to experiment and try to do things,” DePodesta said, as he takes over an organization that lost 119 games in 2025. `\
 https://nytimes.com/athletic/6799509/2025/11/11/paul-depodesta-colorado-rockies-mlb-nfl/

@@ -15,14 +15,14 @@ https://nytimes.com/2025/11/11/climate/gavin-newsom-cop30-belem-climate.html
 https://nytimes.com/2025/11/11/us/politics/snap-food-stamps-supreme-court-trump.html
 
 **Eagles' Jaire Alexander stepping away from team to focus on physical, mental health**\
-`The Eagles acquired Alexander from the Baltimore Ravens earlier this month.`\
+`Last year, Alexander tore his PCL in Week 8, had a knee scope in January and did not play for the rest of the season.`\
 https://nytimes.com/athletic/6799515/2025/11/11/jaire-alexander-steps-away-retirement-eagles-nfl/
 
 **Duffy Won’t Give Timeline to Restore Flights as Shutdown Appears Near End**\
 `Sean Duffy, the transportation secretary, instead stepped up his warnings of potential chaos in the air-travel system, saying some airlines could ground their fleets by this weekend if the government is not reopened.`\
 https://nytimes.com/2025/11/11/us/flights-canceled-shutdown.html
 
-**Brewers' Pat Murphy wins NL Manager of the Year**\
+**Brewers' Pat Murphy becomes second-ever back-to-back NL Manager of the Year**\
 `Since taking the helm in Milwaukee, Murphy has led the team to consecutive 93+ win regular seasons and division titles. `\
 https://nytimes.com/athletic/6794887/2025/11/11/brewers-pat-murphy-national-league-manager-of-the-year/
 
