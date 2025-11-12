@@ -1,3 +1,7 @@
+**2026 World Cup ticket costs jump; Here's where FIFA has raised prices**\
+`Another purchasing window has opened for 2026 World Cup tickets, and dynamic pricing is in full effect`\
+https://nytimes.com/athletic/6799981/2025/11/12/2026-world-cup-ticket-prices-usa-mexico-canada/
+
 **Mainz lose appeal against unfair dismissal of Anwar El Ghazi**\
 `The German club were ordered to pay €1.5million (£1.3m; $1.7m) to El Ghazi by Mainz Labour Court last year.`\
 https://nytimes.com/athletic/6801427/2025/11/12/mainz-anwar-el-ghazi-appeal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6801418/2025/11/12/amon-ra-st-brown-daron-payne-pun
 **YouTube TV, Disney find fresh momentum in talks to bring ESPN back: Sources**\
 `Disney has its quarterly earnings scheduled for Thursday, which could be a potential impetus for a deal to be completed.`\
 https://nytimes.com/athletic/6801582/2025/11/12/youtubetv-espn-disney-update-dispute/
-
-**Rob Gronkowski signs one-day contract to retire as a Patriot**\
-`Gronkowski, a future Hall of Fame tight end who won three Super Bowls with the Patriots, officially retired as a member of the franchise.`\
-https://nytimes.com/athletic/6801597/2025/11/12/rob-gronkowski-patriots-retires-one-day-contract/
 

@@ -1,3 +1,19 @@
+**Mainz lose appeal against unfair dismissal of Anwar El Ghazi**\
+`The German club were ordered to pay €1.5million (£1.3m; $1.7m) to El Ghazi by Mainz Labour Court last year.`\
+https://nytimes.com/athletic/6801427/2025/11/12/mainz-anwar-el-ghazi-appeal/
+
+**What We Know About Epstein’s Emails Alleging That Trump Knew of His Conduct**\
+`Democrats on the House Oversight Committee released emails suggesting that President Trump knew more about Jeffrey Epstein’s activities than he has acknowledged.`\
+https://nytimes.com/2025/11/12/us/politics/epstein-emails-trump.html
+
+**Labour Party’s Internal Fight Goes Public, as Starmer’s Trouble Grows**\
+`An attempt by Keir Starmer’s allies to undercut a rival has forced into the open a party debate over whether to replace the prime minister.`\
+https://nytimes.com/2025/11/12/world/europe/labour-party-starmer-challenge.html
+
+**Trump Ramps Up Pressure on G.O.P. To Thwart Epstein Vote**\
+`Representative Lauren Boebert, one of the Republicans pressing for more Epstein disclosures, was summoned for a meeting in the White House Situation Room.`\
+https://nytimes.com/2025/11/12/us/politics/trump-epstein-vote-boebert.html
+
 **Sources: MLS owners set to vote on season calendar, format changes Thursday**\
 `Substantial change could be coming to MLS's structure and operations following a Thursday vote, sources tell The Athletic`\
 https://nytimes.com/athletic/6801193/2025/11/12/mls-fall-spring-calendar-season-format-change-owners-vote/
@@ -21,16 +37,4 @@ https://nytimes.com/athletic/6801582/2025/11/12/youtubetv-espn-disney-update-dis
 **Rob Gronkowski signs one-day contract to retire as a Patriot**\
 `Gronkowski, a future Hall of Fame tight end who won three Super Bowls with the Patriots, officially retired as a member of the franchise.`\
 https://nytimes.com/athletic/6801597/2025/11/12/rob-gronkowski-patriots-retires-one-day-contract/
-
-**How the simple prop bet morphed into the epicenter of sports' gambling scandals: MoneyCall**\
-`More in this week's sports business cheat sheet: YouTube TV-ESPN pivot point, ATL's NWSL future and a new profile series from Asli Pelit.`\
-https://nytimes.com/athletic/6801478/2025/11/12/clase-rozier-prop-bets-scandal-moneycall/
-
-**Devin Williams confident he's back on track, and teams tend to believe him: 'An elite option'**\
-`The Dodgers, Red Sox and Reds are among the dozen or so teams interested in Williams.`\
-https://nytimes.com/athletic/6801354/2025/11/12/mlb-free-agents-devin-williams/
-
-**What’s in Our Queue? ‘Swing Girls’ and More**\
-`Text by Kiuko Notoya`\
-https://nytimes.com/card/2025/11/12/arts/editors-recommendations-swinggirls
 
