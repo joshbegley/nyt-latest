@@ -34,7 +34,3 @@ https://nytimes.com/athletic/6801994/2025/11/12/devils-vs-blackhawks-stream-how-
 `Find out how to watch the Cleveland Cavaliers play the Miami Heat, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6801992/2025/11/12/cavaliers-vs-heat-stream-how-to-watch-nov-12/
 
-**How to watch Suns vs. Mavericks: Time, TV, streaming**\
-`Find out how to watch the Phoenix Suns play the Dallas Mavericks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6801990/2025/11/12/suns-vs-mavericks-stream-how-to-watch-nov-12/
-
