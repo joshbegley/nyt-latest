@@ -1,3 +1,7 @@
+**War Crimes Indictment Reveals a Hard Road to Justice for Syria**\
+`Prosecutors say a Syrian security official accused of torture hid in plain sight in Europe for years, protected by Israeli and Austrian intelligence agents.`\
+https://nytimes.com/2025/11/12/world/europe/syria-security-official-indicted-war-crimes.html
+
 **Astros continue to overhaul staff; set to hire Anthony Iapoce as hitting coach**\
 `In Houston, Iapoce will work alongside Victor Rodríguez, who agreed to leave the San Diego Padres. `\
 https://nytimes.com/athletic/6795116/2025/11/12/houston-astros-anthony-iapoce-hitting-coach-hire/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/12/science/how-to-see-the-northern-lights-wednesday.
 **Agencies Tell Federal Workers to Prepare for Return as Shutdown Vote Nears**\
 `Health and Human Services directed its employees to plan to report to work on Thursday morning if legislation to fund the government passes.`\
 https://nytimes.com/2025/11/12/us/politics/federal-workers-government-shutdown.html
-
-**Watch Lesley Manville and Mark Strong of Broadway’s ‘Oedipus’ Go Head-to-Head**\
-`As the show opens in New York, its stars took their places amid the desks of T Magazine to deliver a pivotal scene.`\
-https://nytimes.com/2025/11/12/t-magazine/lesley-manville-mark-strong-oedipus.html
 
