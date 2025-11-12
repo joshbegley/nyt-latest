@@ -1,3 +1,19 @@
+**42 Million People Are Enrolled in SNAP. Who Are They?**\
+`The shutdown brought the scale of the federal food aid program into focus and raised questions about how such a rich country could have so many people on nutrition assistance.`\
+https://nytimes.com/2025/11/12/us/politics/snap-food-aid-government-shutdown.html
+
+**Penguins mailbag: Are they for real? Plus, Mt. Rushmore lists and Thanksgiving food**\
+`The Penguins are starting to make believers out of lot of people. Will they make the playoffs? And if they're close in March, will they buy?`\
+https://nytimes.com/athletic/6800629/2025/11/12/penguins-nhl-standings-sidney-crosby-mailbag/
+
+**Tuchel's England team: Bellingham, Foden, Kane 'cannot play' together**\
+`Morgan Rogers has also emerged as competition for the No 10 position after starting the national team's last three games there.`\
+https://nytimes.com/athletic/6801000/2025/11/12/bellingham-foden-kane-england-news-tuchel/
+
+**Let the Mind-Control Games Begin!**\
+`Every four years at the Cybathlon, teams of researchers and technology “pilots” compete to see whose brain-computer interface holds the most promise.`\
+https://nytimes.com/2025/11/12/science/brain-implants-technology-disability.html
+
 **NY Giants head coaching candidates: 20 intriguing names to replace Brian Daboll**\
 `What will be the Giants' priority when hiring their next head coach? Will ownership look for someone with Giants ties?`\
 https://nytimes.com/athletic/6799945/2025/11/12/ny-giants-coach-candidates-lane-kiffin-jaxson-dart/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6799196/2025/11/12/football-betting-dummies-nfl-col
 **Edwards is making a brave and bold return to Wolves - he has an immense challenge ahead**\
 `Edwards has taken on an unenviable task but his history suggests he is equipped with the skills to be a sound appointment in the longer term`\
 https://nytimes.com/athletic/6789486/2025/11/12/rob-edwards-wolves-return/
-
-**Israel’s president says Trump asked him to pardon Netanyahu, who has not been convicted.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2025/11/12/us/trump-government-shutdown-news/israels-president-says-trump-asked-him-to-pardon-netanyahu-who-has-not-been-convicted
-
-**Wolves appoint Edwards as new head coach**\
-`Edwards has signed a three-and-a-half-year deal and replaces Vitor Pereira, who was sacked on November 2.`\
-https://nytimes.com/athletic/6792388/2025/11/12/wolves-rob-edwards-head-coach-middlesbrough/
-
-**Military Plane Crash in Georgia Kills 20 Turkish Air Force Members**\
-`A C-130 cargo plane returning to Turkey from Azerbaijan crashed in Georgia, killing 20 members of Turkey’s Air Force.`\
-https://nytimes.com/video/world/middleeast/100000010519704/turkey-plane-crash-georgia-azerbaijan.html
-
-**If We Want More Kids, We Need Affordable Cities**\
-`Young people want a positive, urban vision of family.`\
-https://nytimes.com/2025/11/12/opinion/mamdani-child-care-suburbs.html
 

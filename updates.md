@@ -1,3 +1,7 @@
+**NY Giants head coaching candidates: 20 intriguing names to replace Brian Daboll**\
+`What will be the Giants' priority when hiring their next head coach? Will ownership look for someone with Giants ties?`\
+https://nytimes.com/athletic/6799945/2025/11/12/ny-giants-coach-candidates-lane-kiffin-jaxson-dart/
+
 **2028 L.A. Olympics schedule released: Track starts with a bang and more highlights**\
 `The women's 100-meter final will highlight the first day of competition at the 2028 L.A. Olympics.`\
 https://nytimes.com/athletic/6799310/2025/11/12/2028-olympics-schedule-los-angeles-track-swimming/
