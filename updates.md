@@ -1,3 +1,7 @@
+**Virginia’s Governor-elect Wants a Say Over Leadership at U.Va.**\
+`Abigail Spanberger, a Democrat, told the university’s board that the choice of a new president, to replace one pushed out by Republicans over the summer, should be delayed until she is in office.`\
+https://nytimes.com/2025/11/12/us/virginia-governor-spanberger-uva-president.html
+
 **Review: Rennie Harris’s Jam Session of American Street Dance**\
 `At the Joyce Theater, “American Street Dancer” offers a history lesson in the form of a family’s house party.`\
 https://nytimes.com/2025/11/12/arts/dance/rennie-harris-puremovent-joyce-theater-review.html
