@@ -1,3 +1,7 @@
+**Kim Kardashian’s Skims Is Worth an Extra Billion Dollars**\
+`The apparel giant is now valued at $5 billion after a new fund-raising round, as it continues to grow its business.`\
+https://nytimes.com/2025/11/12/business/dealbook/kim-kardashian-skims-fundraising-billion.html
+
 **Five questions for Nebraska with just 2 games left in the regular season**\
 `Nebraska still has big games against Penn State and Iowa remaining, but it's not too early to look ahead at 2026 priorities, either.`\
 https://nytimes.com/athletic/6799318/2025/11/12/nebraska-football-offseason-questions-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/americas/100000010519515/northern-lights-north-a
 **Bulls have built solid template through 10 games, but how high is their ceiling?**\
 `Chicago has a budding star in Josh Giddey, and its depth and pace have led to wins. But one major piece is still missing.  `\
 https://nytimes.com/athletic/6800227/2025/11/12/chicago-bulls-first-10-games-josh-giddey-matas-buzelis/
-
-**Pakistan’s Army Chief Gets Expanded Powers and Lifelong Immunity**\
-`A constitutional reform in the nuclear-armed country extends the chief’s power over all the military and brings Pakistan’s highest court under tighter political control.`\
-https://nytimes.com/2025/11/12/world/asia/pakistan-army-chief-power.html
 
