@@ -1,3 +1,7 @@
+**Macklin Celebrini comes up clutch as Wild lose in OT in game they 'dominated': Takeaways**\
+`Minnesota controlled a good part of Tuesday's matchup with the San Jose Sharks, but that's what made this 2-1 loss so hard to digest.`\
+https://nytimes.com/athletic/6800106/2025/11/12/wild-lose-sharks-overtime-macklin-celebrini/
+
 **The New York Times in Print for Wednesday, Nov. 12, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/12/todays-new-york-times
@@ -5,6 +9,10 @@ https://nytimes.com/issue/todayspaper/2025/11/12/todays-new-york-times
 **When England last won in Australia: The story of the 2010-11 Ashes told by those who were there**\
 `England have not even won a Test match in Australia since triumphing 3-1 there 14 years ago, so this is how the class of 2010-11 prevailed`\
 https://nytimes.com/athletic/6773013/2025/11/12/ashes-england-australia-strauss-swann-hussey/
+
+**How Matos the manager was forged by 'special' Klopp and Liverpool life**\
+`The Portuguese is blazing his own trail in his home country's second tier after learning crucial lessons at Anfield`\
+https://nytimes.com/athletic/6786867/2025/11/12/vitor-matos-liverpool-jurgen-klopp-manager/
 
 **There are 37.5million reasons for Forest to be patient with Omari Hutchinson**\
 `The club's record signing showed a glimpse of his potential against Leeds but still needs time to prove his class`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6797852/2025/11/12/chelsea-low-blocks-premier-leagu
 **Video Shows How a New Bridge Partly Collapsed in China’s Southwest**\
 `A section of the tall bridge in mountainous Sichuan Province fell, apparently after a landslide. No casualties were reported.`\
 https://nytimes.com/2025/11/12/world/asia/china-sichuan-bridge-collapse.html
-
-**With Everton searching for solutions at right-back, is James Garner the answer?**\
-`Despite David Moyes valuing height in the back line, Garner gave Everton a composed presence in possession and dribbling threat from deep`\
-https://nytimes.com/athletic/6797298/2025/11/12/everton-premier-league-david-moyes-james-garner/
-
-**Could Jude Bellingham play as England's No 9?**\
-`Harry Kane has led the line for a decade but with no obvious alternative among other strikers could Madrid's midfielder be a viable deputy?`\
-https://nytimes.com/athletic/6797373/2025/11/12/england-bellingham-kane-no-9/
 
