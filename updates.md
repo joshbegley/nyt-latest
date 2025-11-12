@@ -1,3 +1,7 @@
+**Yankees' Brian Cashman not attending GM meetings for first time in career**\
+`A Yankees spokesman said Cashman had to attend to a last-minute non-baseball obligation. He will address the media remotely Wednesday.`\
+https://nytimes.com/athletic/6799338/2025/11/11/brian-cashman-yankees-mlb-gm-meetings/
+
 **Dodgers' Tommy Edman to undergo ankle surgery, expected to be ready for spring**\
 `Edman has been dealing with discomfort in his right ankle since the middle of 2024.`\
 https://nytimes.com/athletic/6799401/2025/11/11/dodgers-tommy-edman-ankle-surgery/
