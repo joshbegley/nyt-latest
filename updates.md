@@ -1,3 +1,11 @@
+**When England last won in Australia: The story of the 2010-11 Ashes told by those who were there**\
+`England have not even won a Test match in Australia since triumphing 3-1 there 14 years ago, so this is how the class of 2010-11 prevailed`\
+https://nytimes.com/athletic/6773013/2025/11/12/ashes-england-australia-strauss-swann-hussey/
+
+**There are 37.5million reasons for Forest to be patient with Omari Hutchinson**\
+`The club's record signing showed a glimpse of his potential against Leeds but still needs time to prove his class`\
+https://nytimes.com/athletic/6798367/2025/11/12/omari-hutchinson-nottingham-forest-games/
+
 **Man Utd's options if they need to cover Sesko's injury: Zirkzee, Obi or pushing Fernandes forward?**\
 `A look at what options Manchester United have if they are without Amorim when the Premier League returns`\
 https://nytimes.com/athletic/6797394/2025/11/12/sesko-injury-amorim-zirkzee-obi-fernandes/
