@@ -1,3 +1,7 @@
+**Yankees' Brian Cashman not attending GM meetings for first time in career**\
+`A Yankees spokesman said Cashman had to attend to a last-minute non-baseball obligation. He will address the media remotely Wednesday.`\
+https://nytimes.com/athletic/6799338/2025/11/11/brian-cashman-yankees-mlb-gm-meetings/
+
 **Dodgers' Tommy Edman to undergo ankle surgery, expected to be ready for spring**\
 `Edman has been dealing with discomfort in his right ankle since the middle of 2024.`\
 https://nytimes.com/athletic/6799401/2025/11/11/dodgers-tommy-edman-ankle-surgery/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/11/us/justice-department-to-investigate-protests-at-
 **Head of N.Y.P.D. Oversight Board Resigns, Citing Pressure From Union**\
 `Dr. Mohammad Khalid, the interim chairman of the Civilian Complaint Review Board, said a “campaign of lies” about him by the head of the police union had forced him to quit.`\
 https://nytimes.com/2025/11/11/nyregion/nypd-ccrb-chairman-resign.html
-
-**Braves overhaul coaching staff with plenty of younger, accomplished newcomers**\
-`While conducting extensive background checks, Alex Anthopoulos said connections emerged among many of them, which was a bonus.`\
-https://nytimes.com/athletic/6798909/2025/11/11/braves-coaching-staff-younger-accomplished-newcomers/
 

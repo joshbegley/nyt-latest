@@ -1,3 +1,7 @@
+**Dodgers' Tommy Edman to undergo ankle surgery, expected to be ready for spring**\
+`Edman has been dealing with discomfort in his right ankle since the middle of 2024.`\
+https://nytimes.com/athletic/6799401/2025/11/11/dodgers-tommy-edman-ankle-surgery/
+
 **Infant Formula Recall Expands as Botulism Outbreak Grows**\
 `Federal health officials said caregivers should stop using all ByHeart powdered formula products after 15 infants in 12 states were hospitalized.`\
 https://nytimes.com/2025/11/11/health/byheart-infant-formula-recall-botulism.html
