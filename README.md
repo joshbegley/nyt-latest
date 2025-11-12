@@ -1,3 +1,7 @@
+**'A ridiculous plot': Portsmouth fans who posed as stewards to attend game banned**\
+`Police said the two brothers wore high-vis vests and carried radio equipment to enable them to enter St Mary's for the sold-out game.`\
+https://nytimes.com/athletic/6800485/2025/11/12/portsmouth-southampton-fan-ban-steward/
+
 **What we're hearing at MLB's GM meetings about the trade market for starting pitchers**\
 `Plus more details from Las Vegas on Edwin Diaz's contract desires and offseason plans for the Pirates, Marlins and Padres.`\
 https://nytimes.com/athletic/6800104/2025/11/12/mlb-offseason-trades-starting-pitching-general-manager-meetings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6800217/2025/11/12/jaylen-brown-celtics-let-down/
 **What's Kodai Senga's trade value? And who might have interest in the Mets starter?**\
 `Senga boasts enough talent to earn Cy Young votes next season. Then again, his injury history surggests he might barely pitch at all. `\
 https://nytimes.com/athletic/6798135/2025/11/12/mets-kodai-senga-trade-value-mlb/
-
-**Canadiens should absorb what they saw in loss to the Kings**\
-`The Canadiens have struggled defending leads this season, and they just got a master-class in that very thing from the Kings.`\
-https://nytimes.com/athletic/6800203/2025/11/12/canadiens-loss-kings-lessons/
 
