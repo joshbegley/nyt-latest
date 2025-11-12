@@ -1,3 +1,7 @@
+**Jack Schlossberg, Social Media Provocateur, Gives Politics a Try**\
+`As he prepares a Congressional run, J.F.K.’s grandson admits, “I’m not for everybody.”`\
+https://nytimes.com/2025/11/11/style/jack-schlossberg-social-media-provocateur-gives-politics-a-try.html
+
 **MLB meets with union as salary cap, lockout talks swirl: Source**\
 `Unsurprisingly, the players and owners do not share the same perspective at this point, sources said.`\
 https://nytimes.com/athletic/6799894/2025/11/11/mlb-union-meet-salary-cap-lockout-talks/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/11/us/marion-county-record-raid-settlement.html
 **States That Rely on the Colorado River Miss Deadline to Agree on Cuts**\
 `A plan to sustainably manage the shrinking waterway could soon be up to the Trump administration — or eventually the Supreme Court.`\
 https://nytimes.com/2025/11/11/climate/states-that-rely-on-the-colorado-river-miss-deadline-to-agree-on-cuts.html
-
-**Leafs' Auston Matthews, Anthony Stolarz exit vs. Bruins with injuries**\
-`Matthews (lower body) and Stolarz (upper body) were ruled out of Toronto's game in Boston on Tuesday.`\
-https://nytimes.com/athletic/6799789/2025/11/11/maple-leafs-auston-matthews-anthony-stolarz-injury/
 

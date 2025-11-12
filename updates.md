@@ -1,3 +1,15 @@
+**MLB meets with union as salary cap, lockout talks swirl: Source**\
+`Unsurprisingly, the players and owners do not share the same perspective at this point, sources said.`\
+https://nytimes.com/athletic/6799894/2025/11/11/mlb-union-meet-salary-cap-lockout-talks/
+
+**Jack Schlossberg, Kennedy Heir, to Seek Nadler’s N.Y. Congressional Seat**\
+`Mr. Schlossberg, the son of Caroline Kennedy, said the Democratic Party needed someone who could stand up to President Trump and his allies.`\
+https://nytimes.com/2025/11/11/nyregion/jack-schlossberg-congress-run.html
+
+**MLB prefers to discipline Guardians' Ortiz and Clase by spring training: Source**\
+`Clase and Ortiz were indicted Sunday on a host of charges tied to allegedly rigging pitches during MLB games.`\
+https://nytimes.com/athletic/6799532/2025/11/11/mlb-prefers-to-discipline-guardians-ortiz-and-clase-by-spring-training-source/
+
 **Cubs won't rule out top of free-agent market as they expect active winter**\
 `Cubs team president Jed Hoyer made it clear pitching would be the priority this offseason.`\
 https://nytimes.com/athletic/6799826/2025/11/11/cubs-free-agency-market-active-winter/
