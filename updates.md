@@ -1,3 +1,7 @@
+**Sources: MLS owners set to vote on season calendar, format changes Thursday**\
+`Substantial change could be coming to MLS's structure and operations following a Thursday vote, sources tell The Athletic`\
+https://nytimes.com/athletic/6801193/2025/11/12/mls-fall-spring-calendar-season-format-change-owners-vote/
+
 **Arline Bronzaft, Who Campaigned for a Quieter City, Dies at 89**\
 `She studied the impact of noise on health and classroom learning and helped impose stricter regulations in New York City.`\
 https://nytimes.com/2025/11/12/nyregion/arline-bronzaft-dead.html

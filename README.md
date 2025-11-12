@@ -1,3 +1,7 @@
+**Trump Ramps Up Pressure on G.O.P. To Thwart Epstein Vote**\
+`Representative Lauren Boebert, one of the Republicans pressing for more Epstein disclosures, was summoned for a meeting in the White House Situation Room.`\
+https://nytimes.com/2025/11/12/us/politics/trump-epstein-vote-boebert.html
+
 **Sources: MLS owners set to vote on season calendar, format changes Thursday**\
 `Substantial change could be coming to MLS's structure and operations following a Thursday vote, sources tell The Athletic`\
 https://nytimes.com/athletic/6801193/2025/11/12/mls-fall-spring-calendar-season-format-change-owners-vote/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6801478/2025/11/12/clase-rozier-prop-bets-scandal-m
 **Devin Williams confident he's back on track, and teams tend to believe him: 'An elite option'**\
 `The Dodgers, Red Sox and Reds are among the dozen or so teams interested in Williams.`\
 https://nytimes.com/athletic/6801354/2025/11/12/mlb-free-agents-devin-williams/
-
-**What’s in Our Queue? ‘Swing Girls’ and More**\
-`Text by Kiuko Notoya`\
-https://nytimes.com/card/2025/11/12/arts/editors-recommendations-swinggirls
 
