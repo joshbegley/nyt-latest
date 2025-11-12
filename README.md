@@ -1,3 +1,7 @@
+**Tuchel puts onus on England team to create Wembley atmosphere**\
+`England return to Wembley Stadium on Thursday night for their first home game since Tuchel said he was “underwhelmed” by the home support.`\
+https://nytimes.com/athletic/6800869/2025/11/12/england-home-atmosphere-wembley/
+
 **A guide to this year's Leafs season for Blue Jays fans who are just tuning in now**\
 `It’s time to turn your attention back to that other blue-and-white team. So, you may be wondering: How are the Leafs doing?`\
 https://nytimes.com/athletic/6799782/2025/11/12/maple-leafs-blue-jays-season-guide/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/12/business/dealbook/kim-kardashian-skims-fundraisin
 **Five questions for Nebraska with just 2 games left in the regular season**\
 `Nebraska still has big games against Penn State and Iowa remaining, but it's not too early to look ahead at 2026 priorities, either.`\
 https://nytimes.com/athletic/6799318/2025/11/12/nebraska-football-offseason-questions-2026/
-
-**Mandel’s Mailbag: Why is Indiana ahead of Texas A&M? Could the ACC be left out of the CFP?**\
-`Why the committee is right to rank Indiana over Texas A&M, plus a hypothetical four-team CFP debate, chaos in the ACC and more questions.`\
-https://nytimes.com/athletic/6799825/2025/11/12/indiana-texas-am-playoff-mandels-mailbag/
 
