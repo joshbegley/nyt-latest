@@ -1,3 +1,7 @@
+**The New York Times in Print for Wednesday, Nov. 12, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/12/todays-new-york-times
+
 **When England last won in Australia: The story of the 2010-11 Ashes told by those who were there**\
 `England have not even won a Test match in Australia since triumphing 3-1 there 14 years ago, so this is how the class of 2010-11 prevailed`\
 https://nytimes.com/athletic/6773013/2025/11/12/ashes-england-australia-strauss-swann-hussey/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6797298/2025/11/12/everton-premier-league-david-moy
 **Could Jude Bellingham play as England's No 9?**\
 `Harry Kane has led the line for a decade but with no obvious alternative among other strikers could Madrid's midfielder be a viable deputy?`\
 https://nytimes.com/athletic/6797373/2025/11/12/england-bellingham-kane-no-9/
-
-**1,024 players, 149 referees and 'draining the swamp': Explaining Turkey's betting scandal**\
-`Breaking down the gambling allegations made against Turkish players and officials and what they could mean`\
-https://nytimes.com/athletic/6798488/2025/11/12/turkey-betting-scandal-players-explained/
 
