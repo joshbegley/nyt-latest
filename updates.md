@@ -1,3 +1,7 @@
+**MLB meets with union as salary cap, lockout talk swirls: Source**\
+`Unsurprisingly, the players and owners do not share the same perspective at this point, sources said.`\
+https://nytimes.com/athletic/6799894/2025/11/11/mlb-union-meet-salary-cap-lockout-talks/
+
 **Blue Jays GM Meeting notes: Top-of-rotation needs, bullpen targets and more**\
 `The Toronto Blue Jays are expected to “be quite aggressive” this offseason as the team tries to go from close to complete.`\
 https://nytimes.com/athletic/6799922/2025/11/11/blue-jays-meeting-rotation-needs-bullpen-targets/
