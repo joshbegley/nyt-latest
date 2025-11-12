@@ -1,3 +1,11 @@
+**Jeffrey Epstein Discussed Trump in Emails Released by Congress**\
+`Also, the penny was officially retired. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/11/12/briefing/epstein-trump-congress-shutdown.html
+
+**Adams Makes It Harder for Mamdani to Build Over Elizabeth Street Garden**\
+`Mayor Eric Adams’s administration is designating the garden as parkland, which could stymie Mayor-elect Zohran Mamdani in his vow to revive the fight to put affordable housing there.`\
+https://nytimes.com/2025/11/12/nyregion/elizabeth-street-garden-parkland.html
+
 **Sally Kirkland, Scene-Stealing Actress, Dies at 84**\
 `She received an Oscar nomination for the 1987 film “Anna” but spent much of her prolific career as a go-to supporting actress in movies like “The Sting” and “JFK.”`\
 https://nytimes.com/2025/11/12/movies/sally-kirkland-dead.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6802035/2025/11/12/premier-league-legal-action-play
 **As Consumer Bureau’s Cash Dwindles, Trump Administration Declares Its Funding Illegal**\
 `The Justice Department embraced a novel conservative legal theory that it said blocked the Federal Reserve from funding the agency.`\
 https://nytimes.com/2025/11/12/business/consumer-bureau-funding-illegal-cfpb.html
-
-**Epstein Bantered Regularly With Larry Summers**\
-`The former Treasury secretary corresponded routinely with Jeffrey Epstein. In one series of exchanges, he sought Mr. Epstein’s advice on how to handle a female acquaintance.`\
-https://nytimes.com/2025/11/12/us/politics/epstein-larry-summers.html
-
-**What Do You Get the Person Who Hates Gifts?**\
-`We asked readers for their toughest holiday quandaries. Here are our suggestions.`\
-https://nytimes.com/2025/11/12/t-magazine/gift-ideas-holiday-shopping.html
 
