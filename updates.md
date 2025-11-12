@@ -1,3 +1,7 @@
+**Devin Williams confident he's back on track, and teams tend to believe him: 'An elite option'**\
+`The Dodgers, Red Sox and Reds are among the dozen or so teams interested in Williams.`\
+https://nytimes.com/athletic/6801354/2025/11/12/mlb-free-agents-devin-williams/
+
 **How the simple prop bet morphed into the epicenter of sports' gambling scandals: MoneyCall**\
 `More in this week's sports business cheat sheet: YouTube TV-ESPN pivot point, ATL's NWSL future and a new profile series from Asli Pelit.`\
 https://nytimes.com/athletic/6801478/2025/11/12/clase-rozier-prop-bets-scandal-moneycall/
