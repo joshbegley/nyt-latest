@@ -1,3 +1,19 @@
+**Atletico Madrid Femenino defender hospitalised with head injury**\
+`Medina was treated on the pitch for more than five minutes after staying down following a sliding tackle near the corner flag.`\
+https://nytimes.com/athletic/6802333/2025/11/12/atletico-madrid-femenino-andrea-medina-injury/
+
+**The Shutdown Is Near an End. When Will Things Get Back to Normal?**\
+`Some programs like SNAP could be restored within hours, while other effects could take longer to unravel.`\
+https://nytimes.com/2025/11/12/us/shutdown-travel-snap-backpay.html
+
+**Michael Wolff, chronicler of elites, provided Epstein with advice on Trump.**\
+`Mr. Wolff, it turns out, was enough of an insider to provide advice to Jeffrey Epstein on how to handle his dealings with Donald J. Trump.`\
+https://nytimes.com/live/2025/11/12/us/epstein-files-trump/michael-wolff-epstein-trump-emails
+
+**Wednesday’s release of files related to Epstein is only a subset of the documents on him.**\
+`The emails are the latest disclosure in a sex-trafficking scandal that still occupies a central role in American politics six years after the disgraced financier was found dead in a Manhattan prison cell.`\
+https://nytimes.com/live/2025/11/12/us/epstein-files-trump/wednesdays-release-of-files-related-to-epstein-is-only-a-subset-of-the-documents-on-him
+
 **Jeffrey Epstein Discussed Trump in Emails Released by Congress**\
 `Also, the penny was officially retired. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/11/12/briefing/epstein-trump-congress-shutdown.html
@@ -21,16 +37,4 @@ https://nytimes.com/2025/11/12/us/adelita-grijalva-epstein-vote.html
 **Emotional Schottenheimer on Kneeland's death: 'We don't move on, but we do move forward'**\
 `Schottenheimer revealed that Kneeland's girlfriend, Catalina, is pregnant and a memorial fund was created to support her and the baby.`\
 https://nytimes.com/athletic/6801874/2025/11/12/brian-schottenheimer-marshawn-kneeland-death-cowboys/
-
-**What the Movies Need From Sydney Sweeney**\
-`Only stardom can save Hollywood.`\
-https://nytimes.com/2025/11/12/opinion/sydney-sweeney-christy.html
-
-**Premier League could face legal action from players if clubs vote for 'anchoring'**\
-`Representatives of the PFA are due to meet with the captains of England's top-tier clubs next week.`\
-https://nytimes.com/athletic/6802035/2025/11/12/premier-league-legal-action-players-pfa/
-
-**As Consumer Bureau’s Cash Dwindles, Trump Administration Declares Its Funding Illegal**\
-`The Justice Department embraced a novel conservative legal theory that it said blocked the Federal Reserve from funding the agency.`\
-https://nytimes.com/2025/11/12/business/consumer-bureau-funding-illegal-cfpb.html
 
