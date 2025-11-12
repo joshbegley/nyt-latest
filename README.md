@@ -1,3 +1,11 @@
+**Former Aide to N.Y. Governors Is on Trial, Accused Helping China**\
+`Linda Sun, who worked for Kathy Hochul and Andrew M. Cuomo, had luxury watches and cars that prosecutors say were rewards for boosting the country’s agenda.`\
+https://nytimes.com/2025/11/12/nyregion/linda-sun-china-trial.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/12/crosswords/spelling-bee-forum.html
+
 **Ross Barkley interview: 'I haven't drunk since the summer. It created situations I don't want anymore’**\
 `In a wide-ranging interview, Ross Barkley discusses the up and downs of his career from Everton to Villa and all in between`\
 https://nytimes.com/athletic/6794019/2025/11/12/ross-barkley-interview-everton-chelsea-villa/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/12/learning/word-of-the-day-ascertain.html
 **Turkish Military Plane Crashes in Georgia, Killing 20 Troops**\
 `The Turkish defense minister said that 20 Air Force servicemen died when their military cargo plane crashed after taking off from Azerbaijan on Tuesday.`\
 https://nytimes.com/2025/11/12/world/middleeast/turkey-military-plane-crash-georgia.html
-
-**Northern Lights Dazzle U.S. Skies as Far South as Alabama**\
-`The night skies across the United States lit up as fast-moving charged particles from the sun slammed into the Earth’s atmosphere.`\
-https://nytimes.com/2025/11/12/science/space/northern-lights-photos-geomagnetic-storm.html
-
-**Byron Buxton could reconsider his future if Twins continue roster teardown**\
-`After professing his desire to remain with in Minnesota for the remainder of his career, Buxton could now be having second thoughts.`\
-https://nytimes.com/athletic/6800185/2025/11/12/byron-buxton-twins-future/
 
