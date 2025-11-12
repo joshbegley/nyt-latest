@@ -1,3 +1,15 @@
+**A guide to this year's Leafs season for Blue Jays fans who are just tuning in now**\
+`It’s time to turn your attention back to that other blue-and-white team. So, you may be wondering: How are the Leafs doing?`\
+https://nytimes.com/athletic/6799782/2025/11/12/maple-leafs-blue-jays-season-guide/
+
+**How to Capture the Northern Lights With Just Your Smartphone**\
+`Modern cellphone cameras make it easy to capture the famously fickle Aurora Borealis.`\
+https://nytimes.com/2025/11/12/us/how-to-photograph-northern-lights-iphone.html
+
+**Late Game Heroics Headline Busy N.B.A. Monday Slate**\
+`Four were games decided by a total of 11 points across the N.B.A. on Monday, with dramatic finishes including an overtime buzzer-beater.`\
+https://nytimes.com/video/sports/basketball/100000010519626/late-game-heroics-headline-busy-nba-monday-slate.html
+
 **Israel Reopens Crossing Into Northern Gaza for Aid**\
 `The cease-fire with Hamas has blunted the hunger faced by Gazans during the war. But aid agencies say Israeli restrictions are still hobbling their work.`\
 https://nytimes.com/2025/11/12/world/middleeast/israel-gaza-zikim-crossing-aid.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6799318/2025/11/12/nebraska-football-offseason-ques
 **Mandel’s Mailbag: Why is Indiana ahead of Texas A&M? Could the ACC be left out of the CFP?**\
 `Why the committee is right to rank Indiana over Texas A&M, plus a hypothetical four-team CFP debate, chaos in the ACC and more questions.`\
 https://nytimes.com/athletic/6799825/2025/11/12/indiana-texas-am-playoff-mandels-mailbag/
-
-**The Oilers' forward makeover isn't working. What's gone wrong?**\
-`The Oilers revamping their forward mix in the offseason was made in part by choice and in part by necessity.`\
-https://nytimes.com/athletic/6794965/2025/11/12/edmonton-oilers-forwards-stats-trade/
-
-**Trump Administration Live Updates: House to Take Up Bill to End Shutdown**\
-``\
-https://nytimes.com/live/2025/11/12/us/trump-government-shutdown-news
-
-**Giants name Jameis Winston QB2; he will start if Jaxson Dart is out: Source**\
-`Winston takes over as Dart's primary backup, relegating veteran Russell Wilson to QB3.`\
-https://nytimes.com/athletic/6795038/2025/11/12/ny-giants-jameis-winston-jaxson-dart-russell-wilson/
 

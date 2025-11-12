@@ -1,3 +1,15 @@
+**A guide to this year's Leafs season for Blue Jays fans who are just tuning in now**\
+`It’s time to turn your attention back to that other blue-and-white team. So, you may be wondering: How are the Leafs doing?`\
+https://nytimes.com/athletic/6799782/2025/11/12/maple-leafs-blue-jays-season-guide/
+
+**How to Capture the Northern Lights With Just Your Smartphone**\
+`Modern cellphone cameras make it easy to capture the famously fickle Aurora Borealis.`\
+https://nytimes.com/2025/11/12/us/how-to-photograph-northern-lights-iphone.html
+
+**Late Game Heroics Headline Busy N.B.A. Monday Slate**\
+`Four were games decided by a total of 11 points across the N.B.A. on Monday, with dramatic finishes including an overtime buzzer-beater.`\
+https://nytimes.com/video/sports/basketball/100000010519626/late-game-heroics-headline-busy-nba-monday-slate.html
+
 **Israel Reopens Crossing Into Northern Gaza for Aid**\
 `The cease-fire with Hamas has blunted the hunger faced by Gazans during the war. But aid agencies say Israeli restrictions are still hobbling their work.`\
 https://nytimes.com/2025/11/12/world/middleeast/israel-gaza-zikim-crossing-aid.html
