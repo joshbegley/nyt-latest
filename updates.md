@@ -1,3 +1,7 @@
+**Tuchel puts onus on England team to create Wembley atmosphere**\
+`England return to Wembley Stadium on Thursday night for their first home game since Tuchel said he was “underwhelmed” by the home support.`\
+https://nytimes.com/athletic/6800869/2025/11/12/england-home-atmosphere-wembley/
+
 **A guide to this year's Leafs season for Blue Jays fans who are just tuning in now**\
 `It’s time to turn your attention back to that other blue-and-white team. So, you may be wondering: How are the Leafs doing?`\
 https://nytimes.com/athletic/6799782/2025/11/12/maple-leafs-blue-jays-season-guide/
