@@ -1,3 +1,15 @@
+**Bridge in China Partially Collapses**\
+`A section of the Shuangjiangkou Hongqi Bridge in Sichuan Province, China, collapsed and sent huge plumes of dust into the air on Tuesday.`\
+https://nytimes.com/video/world/asia/100000010519324/china-sichuan-bridge-collapse.html
+
+**Quote of the Day: Comet’s Close Encounter Takes Strange Turn to Alien Speculation**\
+`Quotation of the Day for Wednesday, November 12, 2025.`\
+https://nytimes.com/2025/11/11/pageoneplus/quote-of-the-day-comets-close-encounter-takes-strange-turn-to-alien-speculation.html
+
+**Buster Posey: Giants will spend, but improvement must come from within**\
+`Good vibes are good. They can be the final piece. They are also difficult to maintain when you don't have enough talent.`\
+https://nytimes.com/athletic/6799931/2025/11/11/san-francisco-giants-spend-buster-posey-gm-meetings/
+
 **Craig Breslow ‘confident’ in Red Sox ability to spend and improve club**\
 `Breslow thinks Kristian Campbell could benefit from sticking at just one position rather than splitting time between second and outfield.`\
 https://nytimes.com/athletic/6799953/2025/11/11/craig-breslow-red-sox-payroll-spend/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/11/nyregion/jack-schlossberg-congress-run.html
 **MLB prefers to discipline Guardians' Ortiz and Clase by spring training: Source**\
 `Clase and Ortiz were indicted Sunday on a host of charges tied to allegedly rigging pitches during MLB games.`\
 https://nytimes.com/athletic/6799532/2025/11/11/mlb-prefers-to-discipline-guardians-ortiz-and-clase-by-spring-training-source/
-
-**Cubs won't rule out top of free-agent market as they expect active winter**\
-`Cubs team president Jed Hoyer made it clear pitching would be the priority this offseason.`\
-https://nytimes.com/athletic/6799826/2025/11/11/cubs-free-agency-market-active-winter/
-
-**NBA introduces new All-Star Game format with USA vs. World twist**\
-`The NBA will change its All-Star Game format in 2026 to a round-robin tournament. Will this appease fans?`\
-https://nytimes.com/athletic/6799852/2025/11/11/nba-all-star-game-format-adam-silver/
-
-**Energize**\
-`Brad and Nicole Wiegmann offer us a wonderful Wednesday.`\
-https://nytimes.com/2025/11/11/crosswords/daily-puzzle-2025-11-12.html
 

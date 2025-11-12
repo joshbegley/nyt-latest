@@ -1,40 +1,40 @@
+**GST ‘boring’, Enhanced Games a ‘joke’: UK Athletics CEO on the sport’s main issues**\
+`Jack Buckner, UK Athletics CEO since 2022, is sceptical that new ventures will attract athletes and fans away from traditional competitions`\
+https://nytimes.com/athletic/6781000/2025/11/12/athletics-gst-enhanced-jack-buckner/
+
+**Xi’s Military Purges Show Unease About China’s Nuclear Forces**\
+`The shake-up in China’s armed forces comes as both Beijing and Washington are pushing through major changes in their country’s militaries, in different ways.`\
+https://nytimes.com/2025/11/12/world/asia/xi-trump-military-purges.html
+
+**There’s a New Forecast for Peak Oil Demand. It’s Increasingly Cloudy.**\
+`The International Energy Agency once projected that oil and gas demand could level off by 2030. Now it’s backing off, sort of.`\
+https://nytimes.com/2025/11/12/climate/iea-fossil-fuel-forecast.html
+
+**3 Bob Ross Paintings Sell for $600,000 to Support Public Broadcasters**\
+`The landscapes by the television host were sold as part of a campaign to help public television stations weather federal funding cuts.`\
+https://nytimes.com/2025/11/12/us/bob-ross-paintings-auction-public-broadcasters.html
+
+**Connections: Sports Edition Coach: Hints for Nov. 12, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6797983/2025/11/12/connections-sports-edition-hints-for-nov-12-2025/
+
+**Fantasy football rankings Week 11: Sleepers, starts, best high school athletes ever**\
+`Jake Ciely runs through his player rankings for Week 11, including Broncos rookie RJ Harvey, who is in line for his first leading role.`\
+https://nytimes.com/athletic/6799262/2025/11/12/fantasy-football-rankings-week-11-sleepers-starts/
+
+**Why Factories Will Keep Looking for Alternatives to China**\
+`A trade truce between the United States and China has calmed nerves, but it won’t stop the broader movement of companies to countries like Vietnam.`\
+https://nytimes.com/2025/11/12/business/trump-tariffs-china-vietnam.html
+
+**Corrections: Nov. 12, 2025**\
+`Corrections that appeared in print on Wednesday, Nov. 12, 2025.`\
+https://nytimes.com/2025/11/12/pageoneplus/corrections-nov-12-2025.html
+
+**What It Takes to Move a Factory From China to Vietnam**\
+`Tariffs have forced Chinese companies to move their operations to Vietnam. Alexandra Stevenson, our Shanghai bureau chief, visits a factory in Ho Chi Minh City to see how one of the biggest challenges isn’t relocating machinery and tools, but overcoming language barriers.`\
+https://nytimes.com/video/world/asia/100000010493279/china-vietnam-factory-manufacturing.html
+
 **Bridge in China Partially Collapses**\
 `A section of the Shuangjiangkou Hongqi Bridge in Sichuan Province, China, collapsed and sent huge plumes of dust into the air on Tuesday.`\
 https://nytimes.com/video/world/asia/100000010519324/china-sichuan-bridge-collapse.html
-
-**Quote of the Day: Comet’s Close Encounter Takes Strange Turn to Alien Speculation**\
-`Quotation of the Day for Wednesday, November 12, 2025.`\
-https://nytimes.com/2025/11/11/pageoneplus/quote-of-the-day-comets-close-encounter-takes-strange-turn-to-alien-speculation.html
-
-**Buster Posey: Giants will spend, but improvement must come from within**\
-`Good vibes are good. They can be the final piece. They are also difficult to maintain when you don't have enough talent.`\
-https://nytimes.com/athletic/6799931/2025/11/11/san-francisco-giants-spend-buster-posey-gm-meetings/
-
-**Craig Breslow ‘confident’ in Red Sox ability to spend and improve club**\
-`Breslow thinks Kristian Campbell could benefit from sticking at just one position rather than splitting time between second and outfield.`\
-https://nytimes.com/athletic/6799953/2025/11/11/craig-breslow-red-sox-payroll-spend/
-
-**Blue Jays GM Meeting notes: Top-of-rotation needs, bullpen targets and more**\
-`The Toronto Blue Jays are expected to “be quite aggressive” this offseason as the team tries to go from close to complete.`\
-https://nytimes.com/athletic/6799922/2025/11/11/blue-jays-meeting-rotation-needs-bullpen-targets/
-
-**Atlanta's NWSL team will debut in 2028, play at Mercedes-Benz Stadium**\
-`Atlanta will join the league for a record expansion fee of $165 million.`\
-https://nytimes.com/athletic/6799873/2025/11/11/atlanta-nwsl-expansion-mercedes-benz-stadium/
-
-**Jack Schlossberg, Social Media Provocateur, Gives Politics a Try**\
-`As he prepares a Congressional run, J.F.K.’s grandson admits, “I’m not for everybody.”`\
-https://nytimes.com/2025/11/11/style/jack-schlossberg-social-media-provocateur-gives-politics-a-try.html
-
-**MLB meets with union as salary cap, lockout talk swirls: Source**\
-`Unsurprisingly, the players and owners do not share the same perspective at this point, sources said.`\
-https://nytimes.com/athletic/6799894/2025/11/11/mlb-union-meet-salary-cap-lockout-talks/
-
-**Jack Schlossberg, Kennedy Heir, to Seek Nadler’s N.Y. Congressional Seat**\
-`Mr. Schlossberg, the son of Caroline Kennedy, said the Democratic Party needed someone who could stand up to President Trump and his allies.`\
-https://nytimes.com/2025/11/11/nyregion/jack-schlossberg-congress-run.html
-
-**MLB prefers to discipline Guardians' Ortiz and Clase by spring training: Source**\
-`Clase and Ortiz were indicted Sunday on a host of charges tied to allegedly rigging pitches during MLB games.`\
-https://nytimes.com/athletic/6799532/2025/11/11/mlb-prefers-to-discipline-guardians-ortiz-and-clase-by-spring-training-source/
 
