@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Thursday, Nov. 13, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/11/12/todays-new-york-times-international-edition
+
 **This Diamond Sold for the Bargain Price of $25.6 Million**\
 `A 9.51-carat blue stone that once belonged to the heiress Bunny Mellon sold for $7 million less than at its last auction, a sign of profound shifts in the diamond industry.`\
 https://nytimes.com/2025/11/12/world/europe/blue-diamond-sold-switzerland.html
