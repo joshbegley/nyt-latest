@@ -1,3 +1,11 @@
+**Former Chelsea midfielder Oscar admitted to hospital with heart issue**\
+`Sao Paulo said in a statement the 34-year-old was in a stable condition and remains under observation.`\
+https://nytimes.com/athletic/6800378/2025/11/12/oscar-sao-paulo-hospital/
+
+**The ‘Lost Sisters’ of the Pleiades Fill the Entire Night Sky**\
+`Astronomers identified more than 3,000 stars associated with the cluster, and there might be even more.`\
+https://nytimes.com/2025/11/12/science/astronomy-stars-pleiades.html
+
 **Hazlewood joins Australia squad after injury scare, Abbott ruled out of first Ashes Test**\
 `Cricket Australia confirmed Hazlewood had been cleared of a muscle strain and "will train as planned in the lead up to the first Test".`\
 https://nytimes.com/athletic/6800368/2025/11/12/josh-hazlewood-australia-injury-sean-abbott/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/12/arts/television/josh-johnson-trump-mortgage-plan.
 **Draymond Green gets candid after blowout loss to OKC, questions Warriors' commitment to winning**\
 `"Everybody was committed to winning and doing that any way possible," Green said. "And right now, it doesn't feel that way."`\
 https://nytimes.com/athletic/6800019/2025/11/12/draymond-green-jimmy-butler-stephen-curry-warriors-nba/
-
-**Hairstyles**\
-`What do you think your hair says about you?`\
-https://nytimes.com/2025/11/12/learning/hairstyles.html
-
-**Word of the Day: ascertain**\
-`This word has appeared in 100 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/11/12/learning/word-of-the-day-ascertain.html
 

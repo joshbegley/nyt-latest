@@ -1,3 +1,11 @@
+**Former Chelsea midfielder Oscar admitted to hospital with heart issue**\
+`Sao Paulo said in a statement the 34-year-old was in a stable condition and remains under observation.`\
+https://nytimes.com/athletic/6800378/2025/11/12/oscar-sao-paulo-hospital/
+
+**The ‘Lost Sisters’ of the Pleiades Fill the Entire Night Sky**\
+`Astronomers identified more than 3,000 stars associated with the cluster, and there might be even more.`\
+https://nytimes.com/2025/11/12/science/astronomy-stars-pleiades.html
+
 **Hazlewood joins Australia squad after injury scare, Abbott ruled out of first Ashes Test**\
 `Cricket Australia confirmed Hazlewood had been cleared of a muscle strain and "will train as planned in the lead up to the first Test".`\
 https://nytimes.com/athletic/6800368/2025/11/12/josh-hazlewood-australia-injury-sean-abbott/
