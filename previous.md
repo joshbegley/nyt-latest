@@ -1,3 +1,11 @@
+**After decade in the NFL, Paul DePodesta aims to revive Colorado Rockies**\
+`“I’m very willing to experiment and try to do things,” DePodesta said, as he takes over an organization that lost 119 games in 2025. `\
+https://nytimes.com/athletic/6799509/2025/11/11/paul-depodesta-colorado-rockies-mlb-nfl/
+
+**Guardians' Stephen Vogt wins AL Manager of the Year for second straight season**\
+`His .557 win percentage ranks third among all managers in Cleveland’s 125-year history as an AL franchise.`\
+https://nytimes.com/athletic/6798661/2025/11/11/guardians-stephen-vogt-manager-of-the-year/
+
 **Newsom Storms Climate Conference and Assails Trump as a ‘Bully’**\
 `The California governor painted the president as a threat to American competitiveness by letting China dominate the renewable energy industry.`\
 https://nytimes.com/2025/11/11/climate/gavin-newsom-cop30-belem-climate.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/11/us/trump-administration-plans-to-send-border-patr
 **Fantasy football strength of schedule: Week 11 and playoff matchup rankings**\
 `Jake Ciely's Week 11 matchup rankings can help with difficult start/sit decisions this week. Playoff rankings aid future plans. `\
 https://nytimes.com/athletic/6798040/2025/11/11/fantasy-football-strength-of-schedule-week-11-playoff-matchup-rankings/
-
-**How to watch Chiefs vs. Broncos: Time, TV, streaming**\
-`Find out how to watch the Kansas City Chiefs play the Denver Broncos, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6799478/2025/11/11/chiefs-vs-broncos-stream-how-to-watch-nov-16/
-
-**How to watch 49ers vs. Cardinals: Time, TV, streaming**\
-`Find out how to watch the San Francisco 49ers play the Arizona Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6799479/2025/11/11/49ers-vs-cardinals-stream-how-to-watch-nov-16/
 
