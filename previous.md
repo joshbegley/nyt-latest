@@ -1,3 +1,19 @@
+**'A ridiculous plot': Portsmouth fans who posed as stewards to attend game banned**\
+`Police said the two brothers wore high-vis vests and carried radio equipment to enable them to enter St Mary's for the sold-out game.`\
+https://nytimes.com/athletic/6800485/2025/11/12/portsmouth-southampton-fan-ban-steward/
+
+**What we're hearing at MLB's GM meetings about the trade market for starting pitchers**\
+`Plus more details from Las Vegas on Edwin Diaz's contract desires and offseason plans for the Pirates, Marlins and Padres.`\
+https://nytimes.com/athletic/6800104/2025/11/12/mlb-offseason-trades-starting-pitching-general-manager-meetings/
+
+**How the Kansas City Current owners approach creating long-term value: Suite Level**\
+`Despite a shocking loss in the 2025 NWSL quarterfinals, K.C. Current owners Angie and Chris Long have experienced substantial success.`\
+https://nytimes.com/athletic/6796766/2025/11/12/kansas-city-current-angie-chris-long-nwsl/
+
+**Inside the Bears' stout third-down defense: 'D.A.'s a mastermind'**\
+`See what Bears players like about Dennis Allen's third-down defenses and watch video breakdowns of the unique schemes. `\
+https://nytimes.com/athletic/6799133/2025/11/12/bears-third-down-defense-dennis-allen/
+
 **What will the Vikings do with these 6 veteran players in 2026?**\
 `Unlike last offseason, when the Vikings had loads of cap space, that flexibility no longer exists. That will make for some tough decisions.`\
 https://nytimes.com/athletic/6798847/2025/11/12/vikings-roster-tj-hockenson-free-agent-contract-2026/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6800217/2025/11/12/jaylen-brown-celtics-let-down/
 **What's Kodai Senga's trade value? And who might have interest in the Mets starter?**\
 `Senga boasts enough talent to earn Cy Young votes next season. Then again, his injury history surggests he might barely pitch at all. `\
 https://nytimes.com/athletic/6798135/2025/11/12/mets-kodai-senga-trade-value-mlb/
-
-**Canadiens should absorb what they saw in loss to the Kings**\
-`The Canadiens have struggled defending leads this season, and they just got a master-class in that very thing from the Kings.`\
-https://nytimes.com/athletic/6800203/2025/11/12/canadiens-loss-kings-lessons/
-
-**Nico Harrison got fired for trading Luka Dončić, but he didn't make that call by himself**\
-`Fans can chant all they want, but the Dončić trade wasn’t Harrison’s alone to own.`\
-https://nytimes.com/athletic/6799171/2025/11/12/nico-harrison-luka-doncic-patrick-dumont-nba/
-
-**NHL players play with missing teeth. Why don’t they fix them?**\
-`A toothless smile is iconic to NHL players. It's not just for looks. Players and dentists explain why they don't get their teeth fixed.`\
-https://nytimes.com/athletic/6777733/2025/11/12/nhl-players-missing-teeth-dentistry/
-
-**'Energy, momentum, details, habits': Blues hope new fourth line provides needed identity**\
-`The line of Oskar Sundqvist, Nathan Walker and Alexey Toropchenko was the Blues' best unit in Tuesday's 3-2 win over Calgary.`\
-https://nytimes.com/athletic/6800041/2025/11/12/blues-4th-line-flames-win/
 
