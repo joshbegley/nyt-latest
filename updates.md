@@ -1,3 +1,11 @@
+**Premier League could face legal action from players if clubs vote for 'anchoring'**\
+`Representatives of the PFA are due to meet with the captains of England's top-tier clubs next week.`\
+https://nytimes.com/athletic/6802035/2025/11/12/premier-league-legal-action-players-pfa/
+
+**As Consumer Bureau’s Cash Dwindles, Trump Administration Declares Its Funding Illegal**\
+`The Justice Department embraced a novel conservative legal theory that it said blocked the Federal Reserve from funding the agency.`\
+https://nytimes.com/2025/11/12/business/consumer-bureau-funding-illegal-cfpb.html
+
 **Epstein Bantered Regularly With Larry Summers**\
 `The former Treasury secretary corresponded routinely with Jeffrey Epstein. In one series of exchanges, he sought Mr. Epstein’s advice on how to handle a female acquaintance.`\
 https://nytimes.com/2025/11/12/us/politics/epstein-larry-summers.html
