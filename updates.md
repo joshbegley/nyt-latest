@@ -1,3 +1,11 @@
+**Ross Barkley interview: 'I haven't drunk since the summer. It created situations I don't want anymore’**\
+`In a wide-ranging interview, Ross Barkley discusses the up and downs of his career from Everton to Villa and all in between`\
+https://nytimes.com/athletic/6794019/2025/11/12/ross-barkley-interview-everton-chelsea-villa/
+
+**Barkley interview takeaways: Going teetotal, Chelsea struggles, having therapy, and crying when leaving Everton**\
+`Barkley spoke at length with The Athletic on a range of subjects. Here, we break down some of the key topics`\
+https://nytimes.com/athletic/6795077/2025/11/12/ross-barkley-teetotal-chelsea-everton-villa/
+
 **How to watch Lions vs. Eagles: Time, TV, streaming**\
 `Find out how to watch the Detroit Lions play the Philadelphia Eagles, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6800284/2025/11/12/lions-vs-eagles-stream-how-to-watch-nov-16/

@@ -1,3 +1,11 @@
+**Ross Barkley interview: 'I haven't drunk since the summer. It created situations I don't want anymore’**\
+`In a wide-ranging interview, Ross Barkley discusses the up and downs of his career from Everton to Villa and all in between`\
+https://nytimes.com/athletic/6794019/2025/11/12/ross-barkley-interview-everton-chelsea-villa/
+
+**Barkley interview takeaways: Going teetotal, Chelsea struggles, having therapy, and crying when leaving Everton**\
+`Barkley spoke at length with The Athletic on a range of subjects. Here, we break down some of the key topics`\
+https://nytimes.com/athletic/6795077/2025/11/12/ross-barkley-teetotal-chelsea-everton-villa/
+
 **How to watch Lions vs. Eagles: Time, TV, streaming**\
 `Find out how to watch the Detroit Lions play the Philadelphia Eagles, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6800284/2025/11/12/lions-vs-eagles-stream-how-to-watch-nov-16/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/12/science/space/northern-lights-photos-geomagnetic-
 **Byron Buxton could reconsider his future if Twins continue roster teardown**\
 `After professing his desire to remain with in Minnesota for the remainder of his career, Buxton could now be having second thoughts.`\
 https://nytimes.com/athletic/6800185/2025/11/12/byron-buxton-twins-future/
-
-**Macklin Celebrini comes up clutch as Wild lose in OT in game they 'dominated': Takeaways**\
-`Minnesota controlled a good part of Tuesday's matchup with the San Jose Sharks, but that's what made this 2-1 loss so hard to digest.`\
-https://nytimes.com/athletic/6800106/2025/11/12/wild-lose-sharks-overtime-macklin-celebrini/
-
-**The New York Times in Print for Wednesday, Nov. 12, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/11/12/todays-new-york-times
 
