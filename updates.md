@@ -1,3 +1,7 @@
+**Former Aide to N.Y. Governors Is on Trial, Accused of Helping China**\
+`Linda Sun, who worked for Kathy Hochul and Andrew M. Cuomo, had luxury watches and cars that prosecutors say were rewards for boosting the country’s agenda.`\
+https://nytimes.com/2025/11/12/nyregion/linda-sun-china-trial.html
+
 **Former Chelsea midfielder Oscar admitted to hospital with heart issue**\
 `Sao Paulo said in a statement the 34-year-old was in a stable condition and remains under observation.`\
 https://nytimes.com/athletic/6800378/2025/11/12/oscar-sao-paulo-hospital/
