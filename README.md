@@ -1,3 +1,7 @@
+**Mancini appointed head coach of Qatari champions Al Sadd**\
+`Mancini had been out of football since October 2024 and was previously contacted by Nottingham Forest after Ange Postecoglou's exit.`\
+https://nytimes.com/athletic/6804749/2025/11/13/roberto-mancini-manager-qatar/
+
 **A Home That Proves You Can Never Have Too Many Books**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/peter-ayers-tarantino-apartment
@@ -29,8 +33,4 @@ https://nytimes.com/video/dining/100000010519797/shrimp-aguachile.html
 **Maple Leafs to put David Kämpf on waivers, terminate his contract: Source**\
 `Kämpf has spent the past four seasons in Toronto, putting up 31 goals and 85 points in 301 games for the Maple Leafs.`\
 https://nytimes.com/athletic/6767066/2025/11/13/maple-leafs-david-kampf-contract-termination/
-
-**CFP chair Rhoades steps down amid leave of absence from Baylor**\
-`The leave comes less than a week after news surfaced of an investigation conducted by Baylor into an alleged sideline incident in September.`\
-https://nytimes.com/athletic/6804336/2025/11/13/baylor-mack-rhoades-leave-of-absence/
 

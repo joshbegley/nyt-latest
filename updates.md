@@ -1,3 +1,7 @@
+**A Home That Proves You Can Never Have Too Many Books**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/peter-ayers-tarantino-apartment
+
 **What Teenagers Are Saying About Their Fall Rituals and Traditions**\
 `Students react to articles about how we honor and celebrate the changing of the seasons.`\
 https://nytimes.com/2025/11/13/learning/what-teenagers-are-saying-about-their-fall-rituals-and-traditions.html
