@@ -1,3 +1,7 @@
+**Fantasy trends and hidden gems: Week 7 slate favorable for Viktor Arvidsson, Bowen Byram**\
+`Shayna Goldman identifies the best fantasy hockey waiver-wire targets for capitalizing on the NHL's Week 7 scheduling advantages.`\
+https://nytimes.com/athletic/6802979/2025/11/13/fantasy-trends-gems-sleepers-waivers-week-7/
+
 **England to name Rogers as No 10 against Serbia, Jude Bellingham on bench**\
 `Thomas Tuchel explained during he will not be experimenting with his side for this month's matches.`\
 https://nytimes.com/athletic/6803947/2025/11/13/morgan-rogers-england-serbia/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/13/business/dealbook/proxy-firms-glass-lewis-iss.htm
 **Rebuilt Pac-12 reaches five-year media rights deal with USA Sports starting in fall 2026**\
 `With the addition of USA Sports, all Pac-12 football games will be on linear TV networks.`\
 https://nytimes.com/athletic/6802966/2025/11/13/pac-12-media-rights-usa-sports-deal/
-
-**Western Conference Panic Watch: How much should Warriors, Clippers and others be worried?**\
-`At this point of the season, it's much harder for teams to write off poor performances as a result of a small sample size.`\
-https://nytimes.com/athletic/6802914/2025/11/13/warriors-clippers-grizzlies-timberwolves-nba-panic/
 

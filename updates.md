@@ -1,3 +1,7 @@
+**Fantasy trends and hidden gems: Week 7 slate favorable for Viktor Arvidsson, Bowen Byram**\
+`Shayna Goldman identifies the best fantasy hockey waiver-wire targets for capitalizing on the NHL's Week 7 scheduling advantages.`\
+https://nytimes.com/athletic/6802979/2025/11/13/fantasy-trends-gems-sleepers-waivers-week-7/
+
 **England to name Rogers as No 10 against Serbia, Jude Bellingham on bench**\
 `Thomas Tuchel explained during he will not be experimenting with his side for this month's matches.`\
 https://nytimes.com/athletic/6803947/2025/11/13/morgan-rogers-england-serbia/
