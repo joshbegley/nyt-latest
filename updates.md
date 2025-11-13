@@ -1,3 +1,7 @@
+**Wester Conference Panic Watch: How much should Warriors, Clippers and others be worried?**\
+`At this point of the season, it's much harder for teams to write off poor performances as a result of a small sample size.`\
+https://nytimes.com/athletic/6802914/2025/11/13/warriors-clippers-grizzlies-timberwolves-nba-panic/
+
 **The 12 biggest games in Sanford Stadium since 2000: Will Georgia-Texas join the list?**\
 `On the occasion of the Texas game, we asked a small, informal panel of longtime Georgia people for the biggest games played in Athens.`\
 https://nytimes.com/athletic/6802127/2025/11/13/georgia-football-sanford-stadium-best-games/
