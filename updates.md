@@ -1,3 +1,11 @@
+**The Two Prominent Britons Who Come Up in the Epstein Files**\
+`Newly released files from Jeffrey Epstein include correspondence with Andrew Mountbatten-Windsor and Peter Mandelson, the former British ambassador to Washington.`\
+https://nytimes.com/2025/11/13/world/europe/epstein-files-mountbatten-windsor-mandelson.html
+
+**Scoop City: Eagles are 7-2, but underachieving and dramatic**\
+`The Eagles' offensive woes and tonight's Patriots-Jets matchup (plus new jerseys)`\
+https://nytimes.com/athletic/6805267/2025/11/13/eagles-offense-struggles-nfl-patriots-jets-scoop-city/
+
 **What Is a Prop Bet?**\
 `Recent betting scandals in the N.B.A. and M.L.B. have involved players allegedly manipulating their performance so bettors would win money on proposition — or prop — bets. The Athletic’s Hannah Vanbiber explains what prop bets are and why they are controversial.`\
 https://nytimes.com/video/the-athletic/100000010522357/what-is-a-prop-bet.html
