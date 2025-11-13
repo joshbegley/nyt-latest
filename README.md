@@ -2,7 +2,7 @@
 `HKS, the global architectural and design firm, was chosen as the lead architect of the Commanders' planned $3.8 billion, 65,000-seat stadium`\
 https://nytimes.com/athletic/6802289/2025/11/13/washington-commanders-stadium-architect/
 
-**St. Brown says he didn't mean to offend with with Trump dance**\
+**St. Brown says he didn't mean to offend with Trump dance**\
 `"First of all, if I offended anyone, I do apologize," St. Brown said on his podcast. "I did not mean to offend anyone."`\
 https://nytimes.com/athletic/6803942/2025/11/13/amon-ra-st-brown-trump-dance-apology/
 
