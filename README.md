@@ -1,40 +1,40 @@
-**What we're hearing about where some MLB qualifying offers stand, plus more offseason notes**\
-`Gleyber Torres is one of the 13 free agents receiving the one-year qualifying offer who may be tempted to accept it.`\
-https://nytimes.com/athletic/6803115/2025/11/13/mlb-qualifying-offers-red-sox-orioles/
+**College football Week 12 oddly specific predictions: USC stumbles in trap game, Alabama surges**\
+`Will Georgia knock Texas out of CFP contention in a rematch of last year's SEC championship game?`\
+https://nytimes.com/athletic/6798666/2025/11/13/college-football-predictions-week-11-2/
 
-**Epstein’s Emails**\
-`Congress released new files from the Epstein investigation. We explain what they mean.`\
-https://nytimes.com/2025/11/13/briefing/epsteins-emails.html
+**Sabres stock watch: Where Isak Rosen, Tage Thompson, others stand after 16 games**\
+`Injuries and the absence of captain Rasmus Dahlin limit the number of players who can be meaningfully assessed at this stage of the season.`\
+https://nytimes.com/athletic/6803327/2025/11/13/sabres-stock-watch-isak-rosen-tage-thompson/
 
-**Euro 2028 organisers say dynamic pricing will not be used for ticket sales**\
-`Football fans, particularly in Europe, have reacted angrily to FIFA’s decision to use dynamic pricing at next year’s World Cup.`\
-https://nytimes.com/athletic/6803708/2025/11/13/european-championship-dynamic-pricing-tickets/
+**Banning micro-bets in sports is the only way to restore integrity to the games**\
+`Limiting amounts placed on micro-bets makes perfect sense. Of course, there is an easier solution — abolish them entirely.`\
+https://nytimes.com/athletic/6802277/2025/11/13/mlb-micro-betting-prop-bets-sports-integrity/
 
-**Talks ongoing over potential Anthony Joshua vs. Jake Paul fight, says promoter**\
-`If the fight is confirmed, Matchroom expect it to take place in Miami and be screened on streaming service Netflix.`\
-https://nytimes.com/athletic/6803716/2025/11/13/anthony-joshua-jake-paul-boxing/
+**Notre Dame mailbag: ACC's social media shot, rev-share budgeting and Narduzzi's grudge**\
+`From subtle taunts to roster dilemmas, Notre Dame navigates rivalries, social media spats, and the mounting pressure of playoff contention.`\
+https://nytimes.com/athletic/6802967/2025/11/13/notre-dame-mailbag-acc-playoff-budget/
 
-**Man arrested for allegedly verbally abusing Mount during Spurs vs Man Utd**\
-`The 19-year-old was arrested on suspicion of "intentionally causing harassment, alarm or distress" during Saturday's Premier League tie.`\
-https://nytimes.com/athletic/6800756/2025/11/13/mason-mount-manchester-united-fan-arrest-tottenham/
+**49ers injury analysis: Where the team ranks in the Kyle Shanahan era**\
+`The Niners' famously intense Thursday practices have taken a toll this season, but players also credit them for setting the right tone.`\
+https://nytimes.com/athletic/6801739/2025/11/13/49ers-injuries-practice-kyle-shanahan/
 
-**Seven SEC teams? Big Ten champion Iowa? College Football Playoff chaos scenarios!**\
-`Are the scenarios likely? No. But somewhere in our 100,000 simulations, these chaotic College Football Playoff brackets are possible.`\
-https://nytimes.com/athletic/6801550/2025/11/13/college-football-playoff-chaos-scenarios-bracket/
+**Can the Maple Leafs avoid a nightmare season?**\
+`Fixing the current roster to the point that the Stanley Cup feels legitimately possible again won't be easy for GM Brad Treliving.`\
+https://nytimes.com/athletic/6801599/2025/11/13/maple-leafs-2025-26-season-auston-matthews/
 
-**Troubling trend emerging as Flyers lose in overtime to Oilers**\
-`Philadelphia was again hemmed in for long stretches of play. Getting a point in the standings was at least some consolation.`\
-https://nytimes.com/athletic/6803241/2025/11/13/flyers-ot-loss-to-oilers-shows-a-troubling-trend-is-emerging/
+**This Week in Sports Trivia: November 13, 2025**\
+`How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
+https://nytimes.com/athletic/6801782/2025/11/13/this-week-in-sports-trivia-november-13-2025/
 
-**Outside speed, a ‘good wedge’ and a fab finish: How Pastrnak scored his 400th**\
-`Pastrnak became the 12th active player to score 400 goals on Tuesday. He is the sixth player in team history to reach the milestone.`\
-https://nytimes.com/athletic/6802202/2025/11/13/bruins-david-pastrnak-400th-goal/
+**Carson Benge, Opening Day center fielder? He might be Mets' best option**\
+`We examine the center field market this winter to see where the offseason could take president David Stearns and the Mets.`\
+https://nytimes.com/athletic/6803083/2025/11/13/carson-benge-opening-day-center-fielder-mets/
 
-**How Harry Nansi became the early-season surprise of the Maple Leafs' prospect pool**\
-`One summer was all it took for Nansi to go from looking like a bit of a head-scratcher pick to scoring near the top of the OHL.`\
-https://nytimes.com/athletic/6795664/2025/11/13/harry-nansi-maple-leafs-prospect-summer/
+**Bengals RB Chase Brown moves past ‘emotional moment' while hitting familiar stride**\
+`Brown has seen a return to his 2024 form since Joe Flacco arrived and has his sights on the Steelers this weekend.`\
+https://nytimes.com/athletic/6802951/2025/11/13/bengals-chase-brown-steelers/
 
-**This Chiefs streak predates Patrick Mahomes. It could be on the line Sunday vs. Broncos**\
-`Why the Chiefs' odds of keeping a 10-year streak going will plummet if they lose to the Broncos on Sunday.`\
-https://nytimes.com/athletic/6801456/2025/11/13/chiefs-afc-west-supremacy-broncos/
+**Wild observations: What we've learned as they pulled out of their season-opening skid**\
+`From needing more from Kirill Kaprizov to Zeev Buium and Danila Yurov gaining coaches' trust, here's what we're seeing through 18 games.`\
+https://nytimes.com/athletic/6801823/2025/11/13/wild-observatons-kaprizov-buium-overtime/
 
