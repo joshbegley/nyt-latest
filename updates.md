@@ -1,3 +1,7 @@
+**Jeers, cheers, selfies and a painful defeat: Earps returns to Man Utd**\
+`The goalkeeper whose autobiography has caused a furore in recent weeks had a mixed reception at her old club on Wednesday`\
+https://nytimes.com/athletic/6802703/2025/11/13/mary-earps-manchester-united-psg/
+
 **Nikola Jokić scores 52 points through first three quarters vs. Clippers**\
 `Jokic finished with 55 for his fifth career 50-point game, but the first that came in a Nuggets win.`\
 https://nytimes.com/athletic/6803348/2025/11/13/nikola-jokic-55-points-clippers-nuggets/

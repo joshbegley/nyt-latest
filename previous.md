@@ -1,3 +1,7 @@
+**Jeers, cheers, selfies and a painful defeat: Earps returns to Man Utd**\
+`The goalkeeper whose autobiography has caused a furore in recent weeks had a mixed reception at her old club on Wednesday`\
+https://nytimes.com/athletic/6802703/2025/11/13/mary-earps-manchester-united-psg/
+
 **Nikola Jokić scores 52 points through first three quarters vs. Clippers**\
 `Jokic finished with 55 for his fifth career 50-point game, but the first that came in a Nuggets win.`\
 https://nytimes.com/athletic/6803348/2025/11/13/nikola-jokic-55-points-clippers-nuggets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6612716/2025/11/13/brighton-training-ground-memorie
 **Leeds face the Premier League's hardest 10-game fixture run. Have they missed an opportunity?**\
 `Leeds had the third easiest opening 10 games of the season. They now have the toughest 10-game run of anyone`\
 https://nytimes.com/athletic/6801056/2025/11/13/leeds-fixtures-analysis-hardest/
-
-**The Wrexham Supporters Trust: Still needed post-takeover – and helping out U.S. fans**\
-`The Wrexham Supporters Trust used to own the club, but they still have purpose despite the Hollywood takeover`\
-https://nytimes.com/athletic/6706491/2025/11/13/wrexham-supporters-trust-why-still-needed/
 
