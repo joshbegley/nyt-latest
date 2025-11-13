@@ -1,3 +1,11 @@
+**West Bank Mosque Burned as Israeli Settler Violence Surges**\
+`Since the 2023 attack on Israel by Hamas, growing settler violence and Israeli attacks on Palestinian militants have thrown the West Bank into turmoil and displaced tens of thousands.`\
+https://nytimes.com/2025/11/13/world/middleeast/israel-settlers-west-bank-mosque.html
+
+**Turkey FA bans 102 players in betting investigation**\
+`Sanctions range from 45 days to 12 months, including 25 players from the top-flight Super Lig and 77 from the second-tier first division.`\
+https://nytimes.com/athletic/6804402/2025/11/13/turkey-football-betting-bans/
+
 **How to watch Raptors vs. Cavaliers: Time, TV, streaming**\
 `Find out how to watch the Toronto Raptors play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6804548/2025/11/13/raptors-vs-cavaliers-stream-how-to-watch-nov-13/
