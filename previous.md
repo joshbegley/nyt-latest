@@ -1,3 +1,19 @@
+**The 12 biggest games in Sanford Stadium since 2000: Will Georgia-Texas join the list?**\
+`On the occasion of the Texas game, we asked a small, informal panel of longtime Georgia people for the biggest games played in Athens.`\
+https://nytimes.com/athletic/6802127/2025/11/13/georgia-football-sanford-stadium-best-games/
+
+**Men's college basketball watch guide: Top 5 games to check out this weekend**\
+`Here are our top picks for this weekend's college basketball slate, including "Hall of Fame Series" blockbusters in L.A. and Boston.`\
+https://nytimes.com/athletic/6802417/2025/11/13/college-basketball-purdue-alabama-uconn-byu-houston-auburn/
+
+**Trump Administration Live Updates: Government Begins to Reopen After Longest-Ever Shutdown**\
+``\
+https://nytimes.com/live/2025/11/13/us/trump-government-shutdown-news
+
+**Jets vs. Patriots Thursday Night Football betting: Player prop and a single-game parlay**\
+`Brad Evans scours sportsbooks for the best bets ahead for Thursday Night Football's matchup between the Jets and Patriots. `\
+https://nytimes.com/athletic/6801949/2025/11/13/jets-patriots-thursday-night-football-betting-props-picks/
+
 **Sheffield United complete Bamford signing on short-term deal**\
 `Bamford, 32, has been without a club since departing Leeds United in August.`\
 https://nytimes.com/athletic/6803825/2025/11/13/patrick-bamford-sheffield-united-transfer/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6803625/2025/11/13/joe-lewis-pardon-donald-trump/
 **Why are England players wearing 'mind-altering' shoes?**\
 `England players are wearing special foam shoes as they prepare for the World Cup - and it's all about marginal gains...`\
 https://nytimes.com/athletic/6803730/2025/11/13/england-shoes-nike-neuro-science/
-
-**As Phillies eye 2026 upgrades, where do their top prospects fit in?**\
-`Justin Crawford, Andrew Painter and Aidan Miller are poised to help spark the Phillies in 2026, but questions abound. `\
-https://nytimes.com/athletic/6803375/2025/11/13/phillies-painter-miller-crawford-20206-season/
-
-**TAFC: How will rise to 48 teams affect World Cup? Plus: Paris attacks remembered, 10 years on**\
-`Today in TAFC: What will a rise to 48 teams do to the World Cup? Plus: Paris attacks, 10 years on, and MLS could be set for a seismic change`\
-https://nytimes.com/athletic/6803697/2025/11/13/world-cup-48-team-format/
-
-**Wizards' Cam Whitmore shows potential, and a flaw, in Houston return**\
-`The Rockets were eager to trade Whitmore. The Wizards were eager to take him. The season ahead may show which team made the right decision.`\
-https://nytimes.com/athletic/6803412/2025/11/13/cam-whitmore-wizards-rockets/
-
-**Court Vision: Louisville's early results are letting us say, 'Told you so'**\
-`The Cardinals' versatility on offense poses dilemmas for opponents. `\
-https://nytimes.com/athletic/6802286/2025/11/13/louisville-college-basketball-michigan-gonzaga/
 

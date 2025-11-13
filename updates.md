@@ -1,3 +1,19 @@
+**The 12 biggest games in Sanford Stadium since 2000: Will Georgia-Texas join the list?**\
+`On the occasion of the Texas game, we asked a small, informal panel of longtime Georgia people for the biggest games played in Athens.`\
+https://nytimes.com/athletic/6802127/2025/11/13/georgia-football-sanford-stadium-best-games/
+
+**Men's college basketball watch guide: Top 5 games to check out this weekend**\
+`Here are our top picks for this weekend's college basketball slate, including "Hall of Fame Series" blockbusters in L.A. and Boston.`\
+https://nytimes.com/athletic/6802417/2025/11/13/college-basketball-purdue-alabama-uconn-byu-houston-auburn/
+
+**Trump Administration Live Updates: Government Begins to Reopen After Longest-Ever Shutdown**\
+``\
+https://nytimes.com/live/2025/11/13/us/trump-government-shutdown-news
+
+**Jets vs. Patriots Thursday Night Football betting: Player prop and a single-game parlay**\
+`Brad Evans scours sportsbooks for the best bets ahead for Thursday Night Football's matchup between the Jets and Patriots. `\
+https://nytimes.com/athletic/6801949/2025/11/13/jets-patriots-thursday-night-football-betting-props-picks/
+
 **Sheffield United complete Bamford signing on short-term deal**\
 `Bamford, 32, has been without a club since departing Leeds United in August.`\
 https://nytimes.com/athletic/6803825/2025/11/13/patrick-bamford-sheffield-united-transfer/
