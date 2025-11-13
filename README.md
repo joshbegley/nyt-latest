@@ -1,3 +1,7 @@
+**Wester Conference Panic Watch: How much should Warriors, Clippers and others be worried?**\
+`At this point of the season, it's much harder for teams to write off poor performances as a result of a small sample size.`\
+https://nytimes.com/athletic/6802914/2025/11/13/warriors-clippers-grizzlies-timberwolves-nba-panic/
+
 **The 12 biggest games in Sanford Stadium since 2000: Will Georgia-Texas join the list?**\
 `On the occasion of the Texas game, we asked a small, informal panel of longtime Georgia people for the biggest games played in Athens.`\
 https://nytimes.com/athletic/6802127/2025/11/13/georgia-football-sanford-stadium-best-games/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6802274/2025/11/13/browns-mailbag-deshaun-watson-co
 **Former Spurs owner Joe Lewis to receive presidential pardon from Donald Trump**\
 `Lewis pled guilty to insider trading in 2024 and was fined $5million by a New York judge.`\
 https://nytimes.com/athletic/6803625/2025/11/13/joe-lewis-pardon-donald-trump/
-
-**Why are England players wearing 'mind-altering' shoes?**\
-`England players are wearing special foam shoes as they prepare for the World Cup - and it's all about marginal gains...`\
-https://nytimes.com/athletic/6803730/2025/11/13/england-shoes-nike-neuro-science/
 
