@@ -1,3 +1,7 @@
+**Ronaldo receives first Portugal red card as World Cup hopes delayed by Ireland loss**\
+`The 40-year-old was red carded just before the hour mark of the game in Dublin after swinging an elbow at Ireland defender Dara O'Shea.`\
+https://nytimes.com/athletic/6805496/2025/11/13/cristiano-ronaldo-red-card-portugal-ireland/
+
 **Indiana Professor Removed From Class Over White Supremacy Lesson**\
 `The professor will no longer be able to teach a class on diversity after she showed students a diagram that included the “Make America Great Again” slogan as an example of white supremacy.`\
 https://nytimes.com/2025/11/13/us/indiana-university-professor-white-supremacy-lesson.html
