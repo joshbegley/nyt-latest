@@ -1,3 +1,7 @@
+**Northern Lights Are Beautiful, but They’re Risky for Satellites**\
+`At least one space launch has been put on hold, as satellite operators and rocket companies manage the effects of the current geomagnetic storm hitting Earth.`\
+https://nytimes.com/2025/11/12/science/northern-lights-solar-satellites.html
+
 **How Yankees' Cody Bellinger, Trent Grisham decisions could cause major ripple effect**\
 `If both Bellinger and Grisham return to the Yankees, that could impact where Jasson Domínguez and Spencer Jones fit.`\
 https://nytimes.com/athletic/6802407/2025/11/12/new-york-yankees-trent-grisham-cody-bellinger-decision-effects/

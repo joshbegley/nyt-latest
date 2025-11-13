@@ -1,3 +1,7 @@
+**Northern Lights Are Beautiful, but They’re Risky for Satellites**\
+`At least one space launch has been put on hold, as satellite operators and rocket companies manage the effects of the current geomagnetic storm hitting Earth.`\
+https://nytimes.com/2025/11/12/science/northern-lights-solar-satellites.html
+
 **How Yankees' Cody Bellinger, Trent Grisham decisions could cause major ripple effect**\
 `If both Bellinger and Grisham return to the Yankees, that could impact where Jasson Domínguez and Spencer Jones fit.`\
 https://nytimes.com/athletic/6802407/2025/11/12/new-york-yankees-trent-grisham-cody-bellinger-decision-effects/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6802147/2025/11/12/paul-skenes-cy-young-award-histo
 **Tigers' Tarik Skubal becomes first back-to-back AL Cy Young winner since Pedro Martínez**\
 `A year after winning the 2024 AL Cy Young Award, Skubal proved his dominance was no fluke in 2025. `\
 https://nytimes.com/athletic/6795407/2025/11/12/tigers-tarik-skubal-becomes-first-back-to-back-al-cy-young-winner-since-pedro-martinez/
-
-**Ja Morant to miss Wednesday's matchup vs. Celtics due to ankle injury**\
-`Ja Morant is expected to miss Wednesday's matchup against the Celtics due to ankle soreness.`\
-https://nytimes.com/athletic/6802497/2025/11/12/ja-morant-injury-status-grizzlies-nba/
 
