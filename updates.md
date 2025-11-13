@@ -1,3 +1,7 @@
+**How to watch Cowboys vs. Raiders: Time, TV, streaming**\
+`Find out how to watch the Dallas Cowboys play the Las Vegas Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6803409/2025/11/13/cowboys-vs-raiders-stream-how-to-watch-nov-17/
+
 **Suriname eye history, Graham Potter takes the reins**\
 `The battles for places in the 2026 World Cup heat up in the coming days with crucial qualifiers in Europe, Africa, Asia and CONCACAF.`\
 https://nytimes.com/athletic/6803042/2025/11/13/suriname-eye-history-graham-potter-takes-reins/
