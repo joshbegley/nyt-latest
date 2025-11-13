@@ -1,3 +1,11 @@
+**Brooklyn Investor Who Stole Homes Faces Years Behind Bars**\
+`Sanford Solny was sentenced to up to seven years in prison for a deed-theft scheme that preyed on distressed homeowners from minority communities.`\
+https://nytimes.com/2025/11/13/realestate/sanford-solny-home-deeds-sentencing.html
+
+**Cesc Fabregas, data and succession plans: Inside Como**\
+`Como are seventh in the Italian top flight and their head coach is gaining admirers for his leadership`\
+https://nytimes.com/athletic/6801587/2025/11/13/como-cesc-fabregas-mirwan-suwarso-interview/
+
 **Another first for Paul Skenes: Signing baseball cards in Kanji**\
 `Kanji autographs have become a hot trend in baseball cards thanks largely to Shohei Ohtani. Now Skenes is joining in. `\
 https://nytimes.com/athletic/6801877/2025/11/13/paul-skenes-autograph-kanji-cards/
