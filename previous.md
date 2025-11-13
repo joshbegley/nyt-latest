@@ -1,3 +1,7 @@
+**Luka Dončić expresses love for Dallas after Nico Harrison firing**\
+`While acknowledging his love for Dallas, Luka Dončić is focused on the future with his new team. `\
+https://nytimes.com/athletic/6805034/2025/11/13/luka-doncic-comments-nico-harrison-firing-lakers/
+
 **Avs, goalie Scott Wedgewood agree to 1-year extension: Sources**\
 `The 33-year-old Wedgewood was in the final year of a two-year contract that carried an AAV of $1.5 million.`\
 https://nytimes.com/athletic/6805005/2025/11/13/avalanche-scott-wedgewood-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/13/world/americas/trump-drug-boat-strikes-colombian-
 **Inside an After-Hours Film Bash for Sofia Coppola**\
 `The Museum of Modern Art’s annual film gala honored the writer and director, attracting a crowd that included Olivia Wilde, Bill Murray and David Letterman.`\
 https://nytimes.com/2025/11/13/style/sofia-coppola-moma-benefit.html
-
-**Unpacking MLB betting scandal with Ken Rosenthal, a bad week for Brians, WAG/HAB updates**\
-`It was a big week at "The Sports Gossip Show," with gambling charges, coaches and GMs fired left and right, and mysterious relationships.`\
-https://nytimes.com/athletic/6803128/2025/11/13/mlb-betting-scandal-sports-gossip-show-brians-fired/
 

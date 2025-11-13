@@ -1,3 +1,7 @@
+**Luka Dončić expresses love for Dallas after Nico Harrison firing**\
+`While acknowledging his love for Dallas, Luka Dončić is focused on the future with his new team. `\
+https://nytimes.com/athletic/6805034/2025/11/13/luka-doncic-comments-nico-harrison-firing-lakers/
+
 **Avs, goalie Scott Wedgewood agree to 1-year extension: Sources**\
 `The 33-year-old Wedgewood was in the final year of a two-year contract that carried an AAV of $1.5 million.`\
 https://nytimes.com/athletic/6805005/2025/11/13/avalanche-scott-wedgewood-contract-extension/
