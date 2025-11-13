@@ -1,3 +1,15 @@
+**Larry Brooks, Hockey Hall of Fame writer at New York Post, dies at 75**\
+`Brooks, who entered the Hockey Hall of Fame in 2018, began writing for the Post in 1976 and started covering the Rangers in 1978.`\
+https://nytimes.com/athletic/6804005/2025/11/13/larry-brooks-new-york-post-dies-obituary/
+
+**Fantasy football injuries, inactives, cheat sheet Week 11**\
+`Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 11 player rankings and more.`\
+https://nytimes.com/athletic/6798197/2025/11/13/fantasy-football-injuries-inactives-cheat-sheet-week-11/
+
+**Why Michigan and the Big Ten are at odds over a deal with billions on the line**\
+`The situation has some at Michigan questioning the future of the school’s 129-year relationship with the Big Ten.`\
+https://nytimes.com/athletic/6802248/2025/11/13/michigan-big-ten-private-capital-uc-investments/
+
 **Brooklyn Investor Who Stole Homes Faces Years Behind Bars**\
 `Sanford Solny was sentenced to up to seven years in prison for a deed-theft scheme that preyed on distressed homeowners from minority communities.`\
 https://nytimes.com/2025/11/13/realestate/sanford-solny-home-deeds-sentencing.html
@@ -21,20 +33,4 @@ https://nytimes.com/athletic/6803947/2025/11/13/morgan-rogers-england-serbia/
 **Friendship, gamesmanship, or both? Ex-UF coach Napier visits Georgia practice before Texas game**\
 `Georgia coach Kirby Smart said it was no big deal, just two old friends getting together.`\
 https://nytimes.com/athletic/6803902/2025/11/13/billy-napier-georgia-florida-kirby-smart/
-
-**The Pulse: A guide to CFB cinderellas**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6802020/2025/11/13/g5-college-football-playoff-rankings-the-pulse/
-
-**Senators re-sign Shane Pinto to 4-year, $7.5 million AAV extension**\
-`Pinto set career-highs in goals, scoring 21 goals and 37 points in 70 games last season with Ottawa.`\
-https://nytimes.com/athletic/6658131/2025/11/13/ottawa-senators-shane-pinto-contract-extension/
-
-**Epstein’s Emails About Trump**\
-`Our investigative reporter Steve Eder provides context about Jeffrey Epstein’s relationship with President Donald Trump based on information from over 20,000 pages of documents from Epstein’s estate released by the House Oversight Committee on Wednesday.`\
-https://nytimes.com/video/us/politics/100000010520312/epstein-trump-emails-explained.html
-
-**How to fix NASCAR: Our ideas on the playoffs, schedule, TV deals and more**\
-`As NASCAR heads into its offseason, there was plenty on our minds around the biggest issues facing the sport.`\
-https://nytimes.com/athletic/6801534/2025/11/13/nascar-playoffs-schedule-tv-deal-how-to-fix/
 
