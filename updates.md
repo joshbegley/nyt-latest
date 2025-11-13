@@ -1,3 +1,7 @@
+**Zohran Mamdani and the Future of New York**\
+`Readers discuss Zohran Mamdani’s election as mayor of New York, and have plenty of advice for him. Also: Thoughts about exercise.`\
+https://nytimes.com/2025/11/13/opinion/zohran-mamdani-new-york.html
+
 **In Matt Gaetz Scandal, Circumstances Left Girl Vulnerable to Exploitation**\
 `A teenager with a homeless parent wanted money for braces and ended up having sex for money with powerful men. She wants the public to have a fuller understanding of how she was victimized.`\
 https://nytimes.com/2025/11/13/us/politics/in-matt-gaetz-scandal-circumstances-left-girl-vulnerable-to-exploitation.html

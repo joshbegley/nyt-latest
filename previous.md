@@ -1,3 +1,7 @@
+**Zohran Mamdani and the Future of New York**\
+`Readers discuss Zohran Mamdani’s election as mayor of New York, and have plenty of advice for him. Also: Thoughts about exercise.`\
+https://nytimes.com/2025/11/13/opinion/zohran-mamdani-new-york.html
+
 **In Matt Gaetz Scandal, Circumstances Left Girl Vulnerable to Exploitation**\
 `A teenager with a homeless parent wanted money for braces and ended up having sex for money with powerful men. She wants the public to have a fuller understanding of how she was victimized.`\
 https://nytimes.com/2025/11/13/us/politics/in-matt-gaetz-scandal-circumstances-left-girl-vulnerable-to-exploitation.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6804792/2025/11/13/padres-sale-san-diego-seidler-fa
 **Maple Leafs shake up roster amid injuries to Matthews, Stolarz**\
 `The loss of Auston Matthews will put added pressure on Leafs' centre depth as Dennis Hildeby gets start in goal. `\
 https://nytimes.com/athletic/6804675/2025/11/13/maple-leafs-roster-injury-matthews-stolarz/
-
-**Mancini appointed head coach of Qatari champions Al Sadd**\
-`Mancini had been out of football since October 2024 and was previously contacted by Nottingham Forest after Ange Postecoglou's exit.`\
-https://nytimes.com/athletic/6804749/2025/11/13/roberto-mancini-manager-qatar/
 

@@ -1,3 +1,7 @@
+**‘The Running Man’ Review: Glen Powell Plays for His Life**\
+`The actor stars as an Everyman battling it out in a near-future but familiarly dystopian America in the director Edgar Wright’s new version of the Stephen King novel.`\
+https://nytimes.com/2025/11/13/movies/the-running-man-review-glen-powell-edgar-wright.html
+
 **Zohran Mamdani and the Future of New York**\
 `Readers discuss Zohran Mamdani’s election as mayor of New York, and have plenty of advice for him. Also: Thoughts about exercise.`\
 https://nytimes.com/2025/11/13/opinion/zohran-mamdani-new-york.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6804777/2025/11/13/mls-apple-tv-end-paywall-season-
 **Seidler family begins exploring potential sale of San Diego Padres**\
 `The family of late San Diego Padres owner Peter Seidler announced on Thursday it had begun exploring strategic options for the team.`\
 https://nytimes.com/athletic/6804792/2025/11/13/padres-sale-san-diego-seidler-family/
-
-**Maple Leafs shake up roster amid injuries to Matthews, Stolarz**\
-`The loss of Auston Matthews will put added pressure on Leafs' centre depth as Dennis Hildeby gets start in goal. `\
-https://nytimes.com/athletic/6804675/2025/11/13/maple-leafs-roster-injury-matthews-stolarz/
 
