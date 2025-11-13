@@ -1,3 +1,7 @@
+**Remembering Shane Warne: 'The biggest cricketing superstar of the lot'**\
+`Shane Keith Warne transcended his sport like few other cricketers – he will be mourned during the first Ashes Down Under since his passing `\
+https://nytimes.com/athletic/6787575/2025/11/13/shane-warne-the-ashes-australia-england/
+
 **England's Mark Wood to undergo precautionary scan on hamstring after eight-over stint**\
 `The fast bowler was playing for the first time in a 'competitive' match since February after undergoing knee surgery`\
 https://nytimes.com/athletic/6803506/2025/11/13/england-mark-wood-hamstring-scan-ashes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6803383/2025/11/13/lakers-dismantled-loss-thunder/
 **How to watch Cowboys vs. Raiders: Time, TV, streaming**\
 `Find out how to watch the Dallas Cowboys play the Las Vegas Raiders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6803409/2025/11/13/cowboys-vs-raiders-stream-how-to-watch-nov-17/
-
-**Suriname eye history, Graham Potter takes the reins**\
-`The battles for places in the 2026 World Cup heat up in the coming days with crucial qualifiers in Europe, Africa, Asia and CONCACAF.`\
-https://nytimes.com/athletic/6803042/2025/11/13/suriname-eye-history-graham-potter-takes-reins/
 
