@@ -1,3 +1,15 @@
+**As the Astros seek to 'firm up' their outfield, Cam Smith must prove he's part of it**\
+`Smith has moved into a more precarious position within Houston’s organizational hierarchy. He must match his potential to change that.`\
+https://nytimes.com/athletic/6802825/2025/11/12/houston-astros-cam-smith-outfield-potential-outlook/
+
+**After Trump Split, Epstein Said He Could ‘Take Him Down’**\
+`Jeffrey Epstein cast himself as a Trump insider and wanted to leverage potentially damaging information about the president and his business dealings, according to emails with associates.`\
+https://nytimes.com/2025/11/12/us/epstein-emails-trump.html
+
+**How Yankees' Cody Bellinger, Trent Grisham decisions could cause major ripple effect**\
+`If Bellinger and Grisham return to the Yankees, that could impact where Jasson Domínguez and Spencer Jones fit.`\
+https://nytimes.com/athletic/6802407/2025/11/12/new-york-yankees-trent-grisham-cody-bellinger-decision-effects/
+
 **How Every House Member Voted on the Bill to Reopen the Government**\
 `The House voted mostly along party lines to end the longest government shutdown in U.S. history.`\
 https://nytimes.com/interactive/2025/11/12/us/house-shutdown-vote.html
