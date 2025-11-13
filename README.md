@@ -1,3 +1,7 @@
+**Key fantasy football questions for Week 11: Buy low on Justin Jefferson?**\
+`Dalton Del Don looks at the key fantasy football topics for Week 11, including Justin Jefferson's rest-of-season value.`\
+https://nytimes.com/athletic/6803113/2025/11/13/key-fantasy-football-questions-week-11-jefferson-pierce/
+
 **A War on Top Investor Advisers Is Growing**\
 `The Trump administration is said to be investigating two top shareholder advisory firms. It’s part of a growing change in how corporate America is run.`\
 https://nytimes.com/2025/11/13/business/dealbook/proxy-firms-glass-lewis-iss.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6803825/2025/11/13/patrick-bamford-sheffield-united
 **Pistons' 8 straight wins show 'what's brewing in that locker room is special'**\
 `Missing four starters, Detroit beat the Bulls behind key contributions from role players like Paul Reed. It proved their depth and cohesion.`\
 https://nytimes.com/athletic/6803500/2025/11/13/pistons-win-streak-injuries-bulls/
-
-**Pioneering U.S. Street Photography, With Vienna in the Background**\
-`Lisette Model’s candid and cruel portraits spawned an American genre. But the key to understanding her might lie in Europe, where she was born.`\
-https://nytimes.com/2025/11/13/arts/design/lisette-model-albertina-veinna.html
 
