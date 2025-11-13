@@ -1,3 +1,7 @@
+**Dodger Details: Pitching depth after World Series win, plus plans for Dalton Rushing**\
+`The Dodgers' starting depth on paper going into next year might be just as deep as the group it had going into this year.`\
+https://nytimes.com/athletic/6803021/2025/11/12/los-angeles-dodgers-pitching-depth-dalton-rushing/
+
 **Two-Cent Pieces**\
 `Kyle Perkins makes his New York Times Crossword debut, and a love letter to readers.`\
 https://nytimes.com/2025/11/12/crosswords/daily-puzzle-2025-11-13.html

@@ -1,3 +1,7 @@
+**Dodger Details: Pitching depth after World Series win, plus plans for Dalton Rushing**\
+`The Dodgers' starting depth on paper going into next year might be just as deep as the group it had going into this year.`\
+https://nytimes.com/athletic/6803021/2025/11/12/los-angeles-dodgers-pitching-depth-dalton-rushing/
+
 **Two-Cent Pieces**\
 `Kyle Perkins makes his New York Times Crossword debut, and a love letter to readers.`\
 https://nytimes.com/2025/11/12/crosswords/daily-puzzle-2025-11-13.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/12/us/epstein-emails-trump.html
 **How Every House Member Voted on the Bill to Reopen the Government**\
 `The House voted mostly along party lines to end the longest government shutdown in U.S. history.`\
 https://nytimes.com/interactive/2025/11/12/us/house-shutdown-vote.html
-
-**Blue Jays targeting high-leverage relief after postseason bullpen issues: Sources**\
-`Toronto will likely be shopping in the same bullpen tier as the Dodgers for pitchers like Devin Williams, Pete Fairbanks and Phil Maton.`\
-https://nytimes.com/athletic/6802735/2025/11/12/blue-jays-relief-after-bullpen-issues/
 
