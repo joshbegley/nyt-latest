@@ -1,3 +1,15 @@
+**Map: 3.6-Magnitude Earthquake Strikes the San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/11/13/us/vallejo-san-francisco-california-earthquake.html
+
+**U.S. Officials Raise Concerns About Saudi Arabia’s Bid for F-35 Jets**\
+`A Pentagon intelligence report says China could try to acquire advanced F-35 technology in Saudi Arabia if the Trump administration sells jets to the kingdom.`\
+https://nytimes.com/2025/11/13/us/politics/trump-saudi-fighter-jets.html
+
+**The Two Prominent Britons Who Come Up in the Epstein Emails**\
+`Newly released files from Jeffrey Epstein include correspondence with Andrew Mountbatten-Windsor and Peter Mandelson, the former British ambassador to Washington.`\
+https://nytimes.com/2025/11/13/world/europe/epstein-files-mountbatten-windsor-mandelson.html
+
 **The Two Prominent Britons Who Come Up in the Epstein Files**\
 `Newly released files from Jeffrey Epstein include correspondence with Andrew Mountbatten-Windsor and Peter Mandelson, the former British ambassador to Washington.`\
 https://nytimes.com/2025/11/13/world/europe/epstein-files-mountbatten-windsor-mandelson.html
