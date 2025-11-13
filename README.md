@@ -1,3 +1,7 @@
+**Indiana Professor Removed From Class Over White Supremacy Lesson**\
+`The professor will no longer be able to teach a class on diversity after she showed students a diagram that included the “Make America Great Again” slogan as an example of white supremacy.`\
+https://nytimes.com/2025/11/13/us/indiana-university-professor-white-supremacy-lesson.html
+
 **Rosalía on Her Relationship With Björk**\
 `Rosalía spoke about her endless admiration for Björk and working together on the new single “Berghain” during her recent “Popcast” interview on all things related to her new album “Lux.”`\
 https://nytimes.com/video/podcasts/100000010520404/rosalia-on-her-relationship-with-bjork.html
@@ -21,8 +25,4 @@ https://nytimes.com/video/podcasts/100000010520096/yung-lean-on-kanye-west-and-b
 **Multiple MLB teams interested in trading for Royals' Kris Bubic: Sources**\
 `The Royals, who possess some pitching depth and need offensive help, are open to the possibility of dealing the lefty starter.`\
 https://nytimes.com/athletic/6805414/2025/11/13/royals-kris-bubic-trade-talks-mlb/
-
-**Rosalía’s ‘Lux’ Is Complex and Introspective — and Also Pop**\
-`Rosalía’s fourth album, which was released on Nov. 7, demands your attention. The avant-garde pop superstar promises it’s worth it.`\
-https://nytimes.com/video/podcasts/100000010520023/rosalias-lux-is-complex-and-introspective-and-also-pop.html
 
