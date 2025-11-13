@@ -1,4 +1,12 @@
-**Maple Leafs shake up roster amid injuries to Auston Matthews, Anthony Stolarz**\
+**Source: MLS, Apple TV to bring games outside of extra paywall in 2026**\
+`Beginning next season, MLS games will be even more accessible via Apple TV`\
+https://nytimes.com/athletic/6804777/2025/11/13/mls-apple-tv-end-paywall-season-pass/
+
+**Seidler family begins exploring potential sale of San Diego Padres**\
+`The family of late San Diego Padres owner Peter Seidler announced on Thursday it had begun exploring strategic options for the team.`\
+https://nytimes.com/athletic/6804792/2025/11/13/padres-sale-san-diego-seidler-family/
+
+**Maple Leafs shake up roster amid injuries to Matthews, Stolarz**\
 `The loss of Auston Matthews will put added pressure on Leafs' centre depth as Dennis Hildeby gets start in goal. `\
 https://nytimes.com/athletic/6804675/2025/11/13/maple-leafs-roster-injury-matthews-stolarz/
 
@@ -21,12 +29,4 @@ https://nytimes.com/athletic/6804181/2025/11/13/how-max-arfsten-uncapped-and-ove
 **College football best bets Week 12: Two Friday plays and an upset call**\
 `Austin Mock's model likes the over in Texas-Georgia and has a pair of picks for this week's Friday games.`\
 https://nytimes.com/athletic/6804160/2025/11/13/college-football-best-bets-week-12-georgia-texas/
-
-**How Yung Lean Escaped His Lowest Lows**\
-`The musician and actor Yung Lean discussed his mental health and journey to sobriety with hosts Jon Caramanica and Joe Coscarelli on the latest episode of “Popcast.”`\
-https://nytimes.com/video/podcasts/100000010520100/how-yung-lean-escaped-his-lowest-lows.html
-
-**Restaurant Review: Korai Kitchen**\
-`Ligaya Mishan, a New York Times chief restaurant critic, visits Korai Kitchen in Jersey City. A restaurant where a mother-daughter duo roll out an incomparable Bangladeshi menu.`\
-https://nytimes.com/video/dining/100000010519791/restaurant-review-korai-kitchen.html
 

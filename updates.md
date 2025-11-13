@@ -1,3 +1,7 @@
+**College football best bets Week 12: Two Friday plays and an upset call**\
+`Austin Mock's model likes the over in Texas-Georgia and has a pair of picks for this week's Friday games.`\
+https://nytimes.com/athletic/6804160/2025/11/13/college-football-best-bets-week-12-georgia-texas/
+
 **Maple Leafs shake up roster amid injuries to Auston Matthews, Anthony Stolarz**\
 `The loss of Auston Matthews will put added pressure on Leafs' centre depth as Dennis Hildeby gets start in goal. `\
 https://nytimes.com/athletic/6804675/2025/11/13/maple-leafs-roster-injury-matthews-stolarz/
