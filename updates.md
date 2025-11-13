@@ -1,3 +1,7 @@
+**Man Accused of Running Southeast Asia Scam Compound Is Extradited to China**\
+`China and the United States say She Zhijiang, a Chinese-born businessman, ran a major scam compound in Myanmar. He was arrested in Bangkok in 2022.`\
+https://nytimes.com/2025/11/13/world/asia/scam-center-she-zhijiang-extradited-china.html
+
 **WSL Football's stadium design guidelines: What you need to know about 'world first' document**\
 `WSL Football says its framework will support clubs, architects and more to better meet the needs of players and fans in the women's game`\
 https://nytimes.com/athletic/6798339/2025/11/13/wsl-football-stadium-design-guide-explainer/
