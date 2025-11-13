@@ -1,3 +1,7 @@
+**Sheffield United complete Bamford signing on short-term deal**\
+`Bamford, 32, has been without a club since departing Leeds United in August.`\
+https://nytimes.com/athletic/6803825/2025/11/13/patrick-bamford-sheffield-united-transfer/
+
 **Pistons' 8 straight wins show 'what's brewing in that locker room is special'**\
 `Missing four starters, Detroit beat the Bulls behind key contributions from role players like Paul Reed. It proved their depth and cohesion.`\
 https://nytimes.com/athletic/6803500/2025/11/13/pistons-win-streak-injuries-bulls/
