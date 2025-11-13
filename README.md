@@ -1,3 +1,15 @@
+**How Yankees' Cody Bellinger, Trent Grisham decisions could cause major ripple effect**\
+`If both Bellinger and Grisham return to the Yankees, that could impact where Jasson Domínguez and Spencer Jones fit.`\
+https://nytimes.com/athletic/6802407/2025/11/12/new-york-yankees-trent-grisham-cody-bellinger-decision-effects/
+
+**Public shrugs, private fury: Cleveland Guardians still trying to process betting scandal**\
+`Four months later, as Emmanuel Clase and Luis Ortiz face federal charges, the betting scandal has lingered over the Guardians`\
+https://nytimes.com/athletic/6802486/2025/11/12/cleveland-guardians-scandal-emmanuel-clase/
+
+**Braves like Ha-Seong Kim and he likes them, but there's business and Scott Boras**\
+`With Boras as his agent, the chances of Kim taking a "hometown discount" to stay in Atlanta, where he only spent a month, seem remote.`\
+https://nytimes.com/athletic/6802474/2025/11/12/braves-ha-seong-kim-scott-boras/
+
 **Congress Clears Bill to End Nation’s Longest Shutdown**\
 `The 222-to-209 House vote sent the legislation to President Trump’s desk, heralding an end to the shutdown after 43 days.`\
 https://nytimes.com/2025/11/12/us/politics/government-shutdown-vote-trump.html
@@ -14,7 +26,7 @@ https://nytimes.com/2025/11/12/world/americas/rubio-g7-caribbean-drug-boat-strik
 `They arrived at Rye Playland in the darkness, in a boat they had taken without the owner’s permission, then hopped a fence into the park, where the spree began, officials said.`\
 https://nytimes.com/2025/11/12/nyregion/playland-rye-amusement-park-vandalism-burglary.html
 
-**Paul Skenes’ evolution into a unanimous Cy Young winner, in 14 steps**\
+**Paul Skenes’ evolution into unanimous Cy Young winner, in 14 steps**\
 `Skenes is the second pitcher in MLB history, along with Dwight Gooden, to win Rookie of the Year and Cy Young in consecutive seasons.`\
 https://nytimes.com/athletic/6802147/2025/11/12/paul-skenes-cy-young-award-history/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6795407/2025/11/12/tigers-tarik-skubal-becomes-firs
 **Ja Morant to miss Wednesday's matchup vs. Celtics due to ankle injury**\
 `Ja Morant is expected to miss Wednesday's matchup against the Celtics due to ankle soreness.`\
 https://nytimes.com/athletic/6802497/2025/11/12/ja-morant-injury-status-grizzlies-nba/
-
-**Former Aide to Gavin Newsom Charged With Corruption**\
-`Dana Williamson, a top Democratic consultant in California, was accused of conspiring to skim over $200,000 in campaign funds that belonged to a Biden administration official.`\
-https://nytimes.com/2025/11/12/us/newsom-aide-corruption-charges.html
-
-**Carbon Dioxide Emissions Head for Another Record in 2025**\
-`But there are signs that greenhouse gas pollution in China might be slowing, according to a new analysis.`\
-https://nytimes.com/2025/11/12/climate/greenhouse-gas-emissions-china.html
-
-**Britain Gives Go-Ahead to Smaller Nuclear Reactor in Wales**\
-`The government pledged 2.5 billion pounds for initial site work, but the decision to build a small, modular design may disappoint others, including the U.S. nuclear industry.`\
-https://nytimes.com/2025/11/12/business/uk-nuclear-power-plant.html
 
