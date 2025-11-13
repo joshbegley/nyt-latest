@@ -1,3 +1,7 @@
+**Ja Morant to miss Wednesday's matchup vs. Celtics due to ankle injury**\
+`Ja Morant is expected to miss Wednesday's matchup against the Celtics due to ankle soreness.`\
+https://nytimes.com/athletic/6802497/2025/11/12/ja-morant-injury-status-grizzlies-nba/
+
 **Catholic Bishops Rebuke U.S. ‘Mass Deportation’ of Immigrants**\
 `In a rare statement, the bishops framed the immigration crisis in starkly moral terms. “We feel compelled now in this environment to raise our voices in defense of God-given human dignity,” they said.`\
 https://nytimes.com/2025/11/12/us/bishops-trump-immigration.html
