@@ -1,3 +1,11 @@
+**What we're hearing about where some MLB qualifying offers stand, plus more offseason notes**\
+`Gleyber Torres is one of the 13 free agents receiving the one-year qualifying offer who may be tempted to accept it.`\
+https://nytimes.com/athletic/6803115/2025/11/13/mlb-qualifying-offers-red-sox-orioles/
+
+**Epstein’s Emails**\
+`Congress released new files from the Epstein investigation. We explain what they mean.`\
+https://nytimes.com/2025/11/13/briefing/epsteins-emails.html
+
 **Euro 2028 organisers say dynamic pricing will not be used for ticket sales**\
 `Football fans, particularly in Europe, have reacted angrily to FIFA’s decision to use dynamic pricing at next year’s World Cup.`\
 https://nytimes.com/athletic/6803708/2025/11/13/european-championship-dynamic-pricing-tickets/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6795664/2025/11/13/harry-nansi-maple-leafs-prospect
 **This Chiefs streak predates Patrick Mahomes. It could be on the line Sunday vs. Broncos**\
 `Why the Chiefs' odds of keeping a 10-year streak going will plummet if they lose to the Broncos on Sunday.`\
 https://nytimes.com/athletic/6801456/2025/11/13/chiefs-afc-west-supremacy-broncos/
-
-**Are the Bears a legit playoff contender? Fifthy pressing questions for the stretch run**\
-`At 6-3, the Bears are tied for first in the NFC North. Yet they may be only one misstep away from losing their grip on a playoff spot. `\
-https://nytimes.com/athletic/6802201/2025/11/13/bears-playoff-potential-pressing-questions/
-
-**Jets at Patriots on TNF: New uniform, old rivalry, what to expect from Prime's broadcast**\
-`Here's some pregame prep and frivolity ahead of "Thursday Night Football" in Foxborough.`\
-https://nytimes.com/athletic/6801668/2025/11/13/jets-patriots-tnf-drake-maye-how-to-watch/
 
