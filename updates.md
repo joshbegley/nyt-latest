@@ -1,3 +1,19 @@
+**AI: Business & Tech**\
+``\
+https://nytimes.com/spotlight/ai-business-tech
+
+**F1 Academy: Teams to continue supporting series, Cadillac to join grid in 2027**\
+`The all-women series had its inaugural season in 2023 and sees each F1 team support a driver.`\
+https://nytimes.com/athletic/6804246/2025/11/13/f1-academy-teams-cadillac/
+
+**The Bounce: Was Nico Harrison scapegoated? Plus, remembering the vetoed CP3 trade**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6804310/2025/11/13/the-bounce-nico-harrison-jason-kidd-nba/
+
+**Dozens Are Hospitalized After Ammonia Leak in Oklahoma**\
+`Authorities said a tanker truck parked outside a hotel in Weatherford, Okla., was leaking ammonia on Wednesday night, prompting evacuations.`\
+https://nytimes.com/2025/11/13/us/weatherford-ok-chemical-spill-ammonia.html
+
 **Evgeni Malkin’s last stand? Penguins star's urgent intensity has Pittsburgh in playoff contention**\
 `This season has become playoffs or bust for Malkin — and so far, he's done everything in his power to get the Penguins there. `\
 https://nytimes.com/athletic/6803847/2025/11/13/penguins-evgeni-malkin-retirement-nhl-playoff-standings/
