@@ -1,3 +1,11 @@
+**Winnipeg Jets prospect update: How 15 young players are doing so far this season**\
+`It's time to talk about some of Winnipeg's biggest wins and works in progress.`\
+https://nytimes.com/athletic/6801745/2025/11/13/winnipeg-jets-prospect-update/
+
+**Settlers Torch West Bank Mosque**\
+`Jewish settlers vandalized a mosque in the Israeli-occupied West Bank on Thursday. The attack was part of a surge of settler violence that has exposed frustrations in the Israeli military.`\
+https://nytimes.com/video/world/middleeast/100000010521910/west-bank-mosque-settler-attack.html
+
 **West Bank Mosque Burned as Israeli Settler Violence Surges**\
 `Since the 2023 attack on Israel by Hamas, growing settler violence and Israeli attacks on Palestinian militants have thrown the West Bank into turmoil and displaced tens of thousands.`\
 https://nytimes.com/2025/11/13/world/middleeast/israel-settlers-west-bank-mosque.html

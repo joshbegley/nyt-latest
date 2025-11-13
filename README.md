@@ -1,3 +1,11 @@
+**Maple Leafs to put David Kämpf on waivers, terminate his contract: Source**\
+`Kämpf has spent the past four seasons in Toronto, putting up 31 goals and 85 points in 301 games for the Maple Leafs.`\
+https://nytimes.com/athletic/6767066/2025/11/13/maple-leafs-david-kampf-contract-termination/
+
+**Baylor AD Mack Rhoades taking leave of absence for personal reasons**\
+`The leave comes less than a week after news surfaced of an investigation conducted by Baylor into an alleged sideline incident in September.`\
+https://nytimes.com/athletic/6804336/2025/11/13/baylor-mack-rhoades-leave-of-absence/
+
 **Winnipeg Jets prospect update: How 15 young players are doing so far this season**\
 `It's time to talk about some of Winnipeg's biggest wins and works in progress.`\
 https://nytimes.com/athletic/6801745/2025/11/13/winnipeg-jets-prospect-update/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6804543/2025/11/13/stars-vs-canadiens-stream-how-to
 **How to watch Kings vs. Maple Leafs: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Kings play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6804544/2025/11/13/kings-vs-maple-leafs-stream-how-to-watch-nov-13/
-
-**How to watch Ducks vs. Red Wings: Time, TV, streaming**\
-`Find out how to watch the Anaheim Ducks play the Detroit Red Wings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6804540/2025/11/13/ducks-vs-red-wings-stream-how-to-watch-nov-13/
-
-**How to watch Capitals vs. Panthers: Time, TV, streaming**\
-`Find out how to watch the Washington Capitals play the Florida Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6804538/2025/11/13/capitals-vs-panthers-stream-how-to-watch-nov-13/
 
