@@ -1,3 +1,15 @@
+**Key fantasy football questions for Week 11: Buy low on Justin Jefferson?**\
+`Dalton Del Don looks at the key fantasy football topics for Week 11, including Justin Jefferson's rest-of-season value.`\
+https://nytimes.com/athletic/6803113/2025/11/13/key-fantasy-football-questions-week-11-jefferson-pierce/
+
+**A War on Top Investor Advisers Is Growing**\
+`The Trump administration is said to be investigating two top shareholder advisory firms. It’s part of a growing change in how corporate America is run.`\
+https://nytimes.com/2025/11/13/business/dealbook/proxy-firms-glass-lewis-iss.html
+
+**Rebuilt Pac-12 reaches five-year media rights deal with USA Sports starting in fall 2026**\
+`With the addition of USA Sports, all Pac-12 football games will be on linear TV networks.`\
+https://nytimes.com/athletic/6802966/2025/11/13/pac-12-media-rights-usa-sports-deal/
+
 **Wester Conference Panic Watch: How much should Warriors, Clippers and others be worried?**\
 `At this point of the season, it's much harder for teams to write off poor performances as a result of a small sample size.`\
 https://nytimes.com/athletic/6802914/2025/11/13/warriors-clippers-grizzlies-timberwolves-nba-panic/

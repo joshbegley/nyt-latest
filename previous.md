@@ -1,3 +1,15 @@
+**Key fantasy football questions for Week 11: Buy low on Justin Jefferson?**\
+`Dalton Del Don looks at the key fantasy football topics for Week 11, including Justin Jefferson's rest-of-season value.`\
+https://nytimes.com/athletic/6803113/2025/11/13/key-fantasy-football-questions-week-11-jefferson-pierce/
+
+**A War on Top Investor Advisers Is Growing**\
+`The Trump administration is said to be investigating two top shareholder advisory firms. It’s part of a growing change in how corporate America is run.`\
+https://nytimes.com/2025/11/13/business/dealbook/proxy-firms-glass-lewis-iss.html
+
+**Rebuilt Pac-12 reaches five-year media rights deal with USA Sports starting in fall 2026**\
+`With the addition of USA Sports, all Pac-12 football games will be on linear TV networks.`\
+https://nytimes.com/athletic/6802966/2025/11/13/pac-12-media-rights-usa-sports-deal/
+
 **Wester Conference Panic Watch: How much should Warriors, Clippers and others be worried?**\
 `At this point of the season, it's much harder for teams to write off poor performances as a result of a small sample size.`\
 https://nytimes.com/athletic/6802914/2025/11/13/warriors-clippers-grizzlies-timberwolves-nba-panic/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6803825/2025/11/13/patrick-bamford-sheffield-united
 **Pistons' 8 straight wins show 'what's brewing in that locker room is special'**\
 `Missing four starters, Detroit beat the Bulls behind key contributions from role players like Paul Reed. It proved their depth and cohesion.`\
 https://nytimes.com/athletic/6803500/2025/11/13/pistons-win-streak-injuries-bulls/
-
-**Pioneering U.S. Street Photography, With Vienna in the Background**\
-`Lisette Model’s candid and cruel portraits spawned an American genre. But the key to understanding her might lie in Europe, where she was born.`\
-https://nytimes.com/2025/11/13/arts/design/lisette-model-albertina-veinna.html
-
-**Browns mailbag: How will Deshaun Watson's contract impact next season's roster?**\
-`Plus, if Cleveland's QB of the future isn't currently on the roster, who could the team look to add heading into the 2026 season?`\
-https://nytimes.com/athletic/6802274/2025/11/13/browns-mailbag-deshaun-watson-contract/
-
-**Former Spurs owner Joe Lewis to receive presidential pardon from Donald Trump**\
-`Lewis pled guilty to insider trading in 2024 and was fined $5million by a New York judge.`\
-https://nytimes.com/athletic/6803625/2025/11/13/joe-lewis-pardon-donald-trump/
 
