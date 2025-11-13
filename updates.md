@@ -1,3 +1,11 @@
+**Why are England players wearing 'mind-altering' shoes?**\
+`England players are wearing special foam shoes as they prepare for the World Cup - and it's all about marginal gains...`\
+https://nytimes.com/athletic/6803730/2025/11/13/england-shoes-nike-neuro-science/
+
+**As Phillies eye 2026 upgrades, where do their top prospects fit in?**\
+`Justin Crawford, Andrew Painter and Aidan Miller are poised to help spark the Phillies in 2026, but questions abound. `\
+https://nytimes.com/athletic/6803375/2025/11/13/phillies-painter-miller-crawford-20206-season/
+
 **TAFC: How will rise to 48 teams affect World Cup? Plus: Paris attacks remembered, 10 years on**\
 `Today in TAFC: What will a rise to 48 teams do to the World Cup? Plus: Paris attacks, 10 years on, and MLS could be set for a seismic change`\
 https://nytimes.com/athletic/6803697/2025/11/13/world-cup-48-team-format/
