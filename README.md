@@ -1,3 +1,11 @@
+**Kevin Mackey, the Cleveland State for 1986 Cinderella run, dies at 79**\
+`After his career was derailed by substance abuse issues, Mackey reportedly spent the final 35 years of his life sober.`\
+https://nytimes.com/athletic/6804452/2025/11/13/kevin-mackey-cleveland-state-death/
+
+**Antonio Brown released on $25,000 bail, will have to wear ankle monitor**\
+`Brown was extradited from Dubai to New Jersey and then Miami on an attempted murder charge.`\
+https://nytimes.com/athletic/6804872/2025/11/13/antonio-brown-bail-release-gps-monitor-miami/
+
 **Federal Workers Return After Longest Shutdown in History**\
 `Government employees were expecting to see paychecks again as early as Nov. 20 after six weeks in limbo.`\
 https://nytimes.com/2025/11/13/us/politics/shutdown-reopen-museums.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/13/business/starbucks-strike-red-cup-day.html
 **In Mexico, Nothing Says ‘Good Morning’ Like a Concha**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/concha-mexico-pastry
-
-**Until Saturday: The country's hardest team to judge**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6804841/2025/11/13/texas-georgia-college-football-playoff-until-saturday/
-
-**France Commemorates 10th Anniversary of Paris Terror Attacks**\
-`Several memorials were held in honor of the more than 130 people who were killed by Islamic State militants in coordinated attacks in and around Paris in 2015.`\
-https://nytimes.com/video/world/europe/100000010522470/paris-terror-attacks-anniversary.html
 

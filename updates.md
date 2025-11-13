@@ -1,3 +1,11 @@
+**Man Who Appeared at Alina Habba’s Office With a Bat Remains at Large**\
+`The man showed up outside the office of the U.S. attorney in New Jersey on Wednesday evening and was later allowed to enter without the bat. Law enforcement authorities are seeking his arrest.`\
+https://nytimes.com/2025/11/13/nyregion/man-who-visited-alina-habbas-office-with-a-bat-remains-at-large.html
+
+**In Matt Gaetz Scandal, Circumstances Left Teen Vulnerable to Exploitation**\
+`A 17-year-old with a homeless parent wanted money for braces and ended up having sex for money with powerful men. She wants the public to have a fuller understanding of how she was victimized.`\
+https://nytimes.com/2025/11/13/us/politics/in-matt-gaetz-scandal-circumstances-left-girl-vulnerable-to-exploitation.html
+
 **Federal Workers Return After Longest Shutdown in History**\
 `Government employees were expecting to see paychecks again as early as Nov. 20 after six weeks in limbo.`\
 https://nytimes.com/2025/11/13/us/politics/shutdown-reopen-museums.html
