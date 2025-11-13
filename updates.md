@@ -1,3 +1,5 @@
+
+
 **Liverpool owner FSG ends interest in buying La Liga club Getafe**\
 `The Athletic reported in July that discussions were taking place with Getafe president Angel Torres over a staged takeover of the club.`\
 https://nytimes.com/athletic/6805730/2025/11/13/liverpool-fsg-getafe-multi-club/
