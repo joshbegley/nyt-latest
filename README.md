@@ -1,3 +1,15 @@
+**Texas A&M Tightens Rules on Talking About Race and Gender in Classes**\
+`The university system will ban advocacy of “race or gender ideology, or topics related to sexual orientation or gender identity” without approval.`\
+https://nytimes.com/2025/11/13/us/texas-am-gender-race-ideology-rules-classroom.html
+
+**Nigeria players 'sent a message' over financial dispute with training boycott - Troost-Ekong**\
+`Nigeria did not train on Tuesday due to a financial dispute with the NFF, impacting their preparation for the World Cup play-offs.`\
+https://nytimes.com/athletic/6805638/2025/11/13/nigeria-players-pay-dispute-world-cup-playoff/
+
+**Dallas Cowboys co-owner defends Bad Bunny Super Bowl halftime show**\
+`'Our Latina fanbase is amazing,' Charlotte Jones said in an interview where she defended the Puerto Rican artist.`\
+https://nytimes.com/athletic/6805321/2025/11/13/cowboys-owner-charlotte-jones-bad-bunny-super-bowl-halftime-show/
+
 **Prescott discusses Kneeland, Cowboys returning to practice and coping with loss**\
 `"We’re not forgetting, but we’re moving forward and carrying on the light,” Prescott said of the team handling Marshawn Kneeland's death.`\
 https://nytimes.com/athletic/6805078/2025/11/13/dak-prescott-marshawn-kneeland-death-cowboys/
@@ -13,16 +25,4 @@ https://nytimes.com/2025/11/13/nyregion/hochul-husband-davis-polk.html
 **Manchester United face legal action over alleged sexual abuse**\
 `Billy Watts, who died in 2009, was employed by the club for an unspecified number of years in a variety of roles.`\
 https://nytimes.com/athletic/6801464/2025/11/13/manchester-united-legal-action-alleged-sexual-abuse/
-
-**Jim Avila, Former ABC News Correspondent, Dies at 70**\
-`He spent almost two decades at the network, covering a wide range of court cases and the White House. He was also at the center of a defamation lawsuit over “pink slime.”`\
-https://nytimes.com/2025/11/13/business/media/jim-avila-abc-news-dead.html
-
-**Food Stamps Are Resuming As Government Reopens**\
-`Several states have restarted food stamp payments, but millions of Americans are still awaiting the November deposits that the Trump administration resisted paying out in full.`\
-https://nytimes.com/2025/11/13/us/politics/snap-benefits-food-stamps-shutdown-update.html
-
-**Infant Formula Company Tied to Botulism Outbreak Had Known Problems**\
-`A Pennsylvania plant run by the company, ByHeart, was shut down this year after inspectors found mold, a leaking roof and more than 2,500 dead insects in a food production area.`\
-https://nytimes.com/2025/11/13/health/infant-formula-botulism.html
 
