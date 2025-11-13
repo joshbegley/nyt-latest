@@ -1,9 +1,13 @@
+**How Every House Member Voted on the Bill to Reopen the Government**\
+`The House voted mostly along party lines to end the longest government shutdown in U.S. history.`\
+https://nytimes.com/interactive/2025/11/12/us/house-shutdown-vote.html
+
 **Blue Jays reportedly targeting high-leverage relief after postseason bullpen issues**\
 `In the postseason, Toronto relievers posted a 4.44 ERA, ranking 10th of 12 postseason teams.`\
 https://nytimes.com/athletic/6802735/2025/11/12/blue-jays-relief-after-bullpen-issues/
 
-**Warriors adjust starting lineup after slow start to season: "It's that we're not in sync."**\
-`Steve Kerr reflected on the Warriors' early-season struggles as he changed their starting lineup: "We're not in sync."`\
+**Warriors adjust starting lineup after slow start to season: 'It's that we're not in sync.'**\
+`Kerr reflected on the Warriors' early-season struggles as he changed their starting lineup: "We're not in sync."`\
 https://nytimes.com/athletic/6802685/2025/11/12/draymond-green-comments-warriors-lineup-steve-kerr/
 
 **Northern Lights Are Beautiful, but They’re Risky for Satellites**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6802583/2025/11/12/giants-hitting-coach-hunter-mens
 **Rubio Shrugs Off Allies’ Concerns Over U.S. Drug Strikes**\
 `Secretary of State Marco Rubio said no one raised the Caribbean military operation in closed-door meetings at a G7 summit. But ministers from France and the European Union publicly called them unlawful.`\
 https://nytimes.com/2025/11/12/world/americas/rubio-g7-caribbean-drug-boat-strikes.html
-
-**3 Charged With Stuffed Animal Heist at Amusement Park Seen in ‘Big’**\
-`They arrived at Rye Playland in the darkness, in a boat they had taken without the owner’s permission, then hopped a fence into the park, where the spree began, officials said.`\
-https://nytimes.com/2025/11/12/nyregion/playland-rye-amusement-park-vandalism-burglary.html
 
