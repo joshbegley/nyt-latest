@@ -1,3 +1,7 @@
+**Dozens Are Hospitalized After Ammonia Leak in Oklahoma**\
+`Authorities said a tanker truck parked outside a hotel in Weatherford, Okla., was leaking ammonia on Wednesday night, prompting evacuations.`\
+https://nytimes.com/2025/11/13/us/weatherford-ok-chemical-spill-ammonia.html
+
 **Evgeni Malkin’s last stand? Penguins star's urgent intensity has Pittsburgh in playoff contention**\
 `This season has become playoffs or bust for Malkin — and so far, he's done everything in his power to get the Penguins there. `\
 https://nytimes.com/athletic/6803847/2025/11/13/penguins-evgeni-malkin-retirement-nhl-playoff-standings/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/13/nyregion/justice-department-maurene-comey-lawyers
 **Tiny Love Stories: ‘Ted and I Are Implausible Friends’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/11/13/style/tiny-modern-love-stories-ted-and-i-are-implausible-friends.html
-
-**Larry Brooks, Hockey Hall of Fame writer at New York Post, dies at 75**\
-`Brooks, who entered the Hockey Hall of Fame in 2018, began writing for the Post in 1976 and started covering the Rangers in 1978.`\
-https://nytimes.com/athletic/6804005/2025/11/13/larry-brooks-new-york-post-dies-obituary/
 
