@@ -1,3 +1,7 @@
+**Magic's Paolo Banchero to undergo MRI for groin strain after exiting vs. Knicks**\
+`"I just slowed up, and I felt it right away," Banchero said of his injury, which occurred when he pursued a rebound in the second quarter.`\
+https://nytimes.com/athletic/6803122/2025/11/12/paolo-banchero-groin-injury-magic-nba/
+
 **Jalen Brunson was spotted leaving Madison Square Garden in a walking boot, with crutches**\
 `Jalen Brunson was seen leaving Madison Square Garden in a walking boot and with crutches after the Knicks' 17-point loss.`\
 https://nytimes.com/athletic/6803142/2025/11/12/jalen-brunson-injury-knicks-walking-boot-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/12/sports/basketball/michael-ray-richardson-dead.htm
 **Trump Administration to Drastically Cut Housing Grants**\
 `In a major shift, HUD’s plan would direct most of the $3.5 billion in homelessness funds away from Housing First to programs that prioritize work and drug treatment.`\
 https://nytimes.com/2025/11/12/us/politics/trump-homeless-funding.html
-
-**Jason Kidd: Fans' 'Fire Nico' chants 'disrespected' Mavericks players**\
-`"It’s hard to keep guys here when they start to think the home team is not home," Kidd said before Wednesday's game.`\
-https://nytimes.com/athletic/6802586/2025/11/12/nico-harrison-firing-league-reaction-jason-kidd/
 

@@ -1,3 +1,7 @@
+**Magic's Paolo Banchero to undergo MRI for groin strain after exiting vs. Knicks**\
+`"I just slowed up, and I felt it right away," Banchero said of his injury, which occurred when he pursued a rebound in the second quarter.`\
+https://nytimes.com/athletic/6803122/2025/11/12/paolo-banchero-groin-injury-magic-nba/
+
 **Jalen Brunson was spotted leaving Madison Square Garden in a walking boot, with crutches**\
 `Jalen Brunson was seen leaving Madison Square Garden in a walking boot and with crutches after the Knicks' 17-point loss.`\
 https://nytimes.com/athletic/6803142/2025/11/12/jalen-brunson-injury-knicks-walking-boot-nba/
