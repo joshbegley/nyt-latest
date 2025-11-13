@@ -1,3 +1,7 @@
+**3 Charged With Stuffed Animal Heist at Amusement Park Seen in ‘Big’**\
+`They arrived at Rye Playland in the darkness, in a boat they had taken without the owner’s permission, then hopped a fence into the park, where the spree began, officials said.`\
+https://nytimes.com/2025/11/12/nyregion/playland-rye-amusement-park-vandalism-burglary.html
+
 **Paul Skenes’ evolution into a unanimous Cy Young winner, in 14 steps**\
 `Skenes is the second pitcher in MLB history, along with Dwight Gooden, to win Rookie of the Year and Cy Young in consecutive seasons.`\
 https://nytimes.com/athletic/6802147/2025/11/12/paul-skenes-cy-young-award-history/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/12/world/europe/syria-security-official-indicted-war
 **Astros continue to overhaul staff; set to hire Anthony Iapoce as hitting coach**\
 `In Houston, Iapoce will work alongside Victor Rodríguez, who agreed to leave the San Diego Padres. `\
 https://nytimes.com/athletic/6795116/2025/11/12/houston-astros-anthony-iapoce-hitting-coach-hire/
-
-**Catholic Bishops Rebuke U.S. ‘Mass Deportation’ of Immigrants**\
-`In a rare statement, the bishops framed the immigration crisis in starkly moral terms. “We feel compelled now in this environment to raise our voices in defense of God-given human dignity,” they said.`\
-https://nytimes.com/2025/11/12/us/bishops-trump-immigration.html
 
