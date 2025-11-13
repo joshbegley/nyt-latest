@@ -1,3 +1,7 @@
+**Blue Jays targeting high-leverage relief after postseason bullpen issues: Sources**\
+`Toronto will likely be shopping in the same bullpen tier as the Dodgers for pitchers like Devin Williams, Pete Fairbanks and Phil Maton.`\
+https://nytimes.com/athletic/6802735/2025/11/12/blue-jays-relief-after-bullpen-issues/
+
 **As the Astros seek to 'firm up' their outfield, Cam Smith must prove he's part of it**\
 `Smith has moved into a more precarious position within Houston’s organizational hierarchy. He must match his potential to change that.`\
 https://nytimes.com/athletic/6802825/2025/11/12/houston-astros-cam-smith-outfield-potential-outlook/
