@@ -1,3 +1,15 @@
+**What we're hearing about where some MLB qualifying offers stand, plus more offseason notes**\
+`Gleyber Torres is one of the 13 free agents receiving the one-year qualifying offer who may be tempted to accept it.`\
+https://nytimes.com/athletic/6803115/2025/11/13/mlb-qualifying-offers-red-sox-orioles/
+
+**Epstein’s Emails**\
+`Congress released new files from the Epstein investigation. We explain what they mean.`\
+https://nytimes.com/2025/11/13/briefing/epsteins-emails.html
+
+**Euro 2028 organisers say dynamic pricing will not be used for ticket sales**\
+`Football fans, particularly in Europe, have reacted angrily to FIFA’s decision to use dynamic pricing at next year’s World Cup.`\
+https://nytimes.com/athletic/6803708/2025/11/13/european-championship-dynamic-pricing-tickets/
+
 **Man arrested for allegedly verbally abusing Mount during Spurs vs Man Utd**\
 `The 19-year-old was arrested on suspicion of "intentionally causing harassment, alarm or distress" during Saturday's Premier League tie.`\
 https://nytimes.com/athletic/6800756/2025/11/13/mason-mount-manchester-united-fan-arrest-tottenham/
