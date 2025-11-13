@@ -1,3 +1,15 @@
+**Michael Ray Richardson, N.B.A. Star Derailed by Cocaine, Dies at 70**\
+`A four-time All-Star, he dazzled fans, and fellow players, with his intense play for the New York Knicks, only to become the league’s first player to be barred for drug use.`\
+https://nytimes.com/2025/11/12/sports/basketball/michael-ray-richardson-dead.html
+
+**Trump Administration to Drastically Cut Housing Grants**\
+`In a major shift, HUD’s plan would direct most of the $3.5 billion in homelessness funds away from Housing First to programs that prioritize work and drug treatment.`\
+https://nytimes.com/2025/11/12/us/politics/trump-homeless-funding.html
+
+**Warriors adjust starting lineup after slow start to season: 'It's that we're not in sync'**\
+`Kerr reflected on the Warriors' early-season struggles as he changed their starting lineup: "We're not in sync."`\
+https://nytimes.com/athletic/6802685/2025/11/12/draymond-green-comments-warriors-lineup-steve-kerr/
+
 **Jason Kidd: Fans' 'Fire Nico' chants 'disrespected' Mavericks players**\
 `"It’s hard to keep guys here when they start to think the home team is not home," Kidd said before Wednesday's game.`\
 https://nytimes.com/athletic/6802586/2025/11/12/nico-harrison-firing-league-reaction-jason-kidd/

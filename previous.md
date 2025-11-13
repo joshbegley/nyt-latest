@@ -1,3 +1,11 @@
+**Michael Ray Richardson, N.B.A. Star Derailed by Cocaine, Dies at 70**\
+`A four-time All-Star, he dazzled fans, and fellow players, with his intense play for the New York Knicks, only to become the league’s first player to be barred for drug use.`\
+https://nytimes.com/2025/11/12/sports/basketball/michael-ray-richardson-dead.html
+
+**Trump Administration to Drastically Cut Housing Grants**\
+`In a major shift, HUD’s plan would direct most of the $3.5 billion in homelessness funds away from Housing First to programs that prioritize work and drug treatment.`\
+https://nytimes.com/2025/11/12/us/politics/trump-homeless-funding.html
+
 **Jason Kidd: Fans' 'Fire Nico' chants 'disrespected' Mavericks players**\
 `"It’s hard to keep guys here when they start to think the home team is not home," Kidd said before Wednesday's game.`\
 https://nytimes.com/athletic/6802586/2025/11/12/nico-harrison-firing-league-reaction-jason-kidd/
@@ -18,7 +26,7 @@ https://nytimes.com/interactive/2025/11/12/us/house-shutdown-vote.html
 `Toronto will likely be shopping in the same bullpen tier as the Dodgers for pitchers like Devin Williams, Pete Fairbanks and Phil Maton.`\
 https://nytimes.com/athletic/6802735/2025/11/12/blue-jays-relief-after-bullpen-issues/
 
-**Warriors adjust starting lineup after slow start to season: 'It's that we're not in sync.'**\
+**Warriors adjust starting lineup after slow start to season: 'It's that we're not in sync'**\
 `Kerr reflected on the Warriors' early-season struggles as he changed their starting lineup: "We're not in sync."`\
 https://nytimes.com/athletic/6802685/2025/11/12/draymond-green-comments-warriors-lineup-steve-kerr/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/12/science/northern-lights-solar-satellites.html
 **How Yankees' Cody Bellinger, Trent Grisham decisions could cause major ripple effect**\
 `If Bellinger and Grisham return to the Yankees, that could impact where Jasson Domínguez and Spencer Jones fit.`\
 https://nytimes.com/athletic/6802407/2025/11/12/new-york-yankees-trent-grisham-cody-bellinger-decision-effects/
-
-**Public shrugs, private fury: Cleveland Guardians still trying to process betting scandal**\
-`Four months later, as Emmanuel Clase and Luis Ortiz face federal charges, the betting scandal has lingered over the Guardians`\
-https://nytimes.com/athletic/6802486/2025/11/12/cleveland-guardians-scandal-emmanuel-clase/
-
-**Braves like Ha-Seong Kim and he likes them, but there's business and Scott Boras**\
-`With Boras as his agent, the chances of Kim taking a "hometown discount" to stay in Atlanta, where he only spent a month, seem remote.`\
-https://nytimes.com/athletic/6802474/2025/11/12/braves-ha-seong-kim-scott-boras/
 
