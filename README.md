@@ -1,3 +1,11 @@
+**Troubling trend emerging as Flyers lose in overtime to Oilers**\
+`Philadelphia was again hemmed in for long stretches of play. Getting a point in the standings was at least some consolation.`\
+https://nytimes.com/athletic/6803241/2025/11/13/flyers-ot-loss-to-oilers-shows-a-troubling-trend-is-emerging/
+
+**Outside speed, a ‘good wedge’ and a fab finish: How Pastrnak scored his 400th**\
+`Pastrnak became the 12th active player to score 400 goals on Tuesday. He is the sixth player in team history to reach the milestone.`\
+https://nytimes.com/athletic/6802202/2025/11/13/bruins-david-pastrnak-400th-goal/
+
 **How Harry Nansi became the early-season surprise of the Maple Leafs' prospect pool**\
 `One summer was all it took for Nansi to go from looking like a bit of a head-scratcher pick to scoring near the top of the OHL.`\
 https://nytimes.com/athletic/6795664/2025/11/13/harry-nansi-maple-leafs-prospect-summer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6802722/2025/11/13/yankees-jazz-chisholm-extension-
 **What makes Vikings edge rusher Andrew Van Ginkel so unique? It's 'his feel'**\
 `Van Ginkel often plays like a quarterback on defense, deciphering the offense. It's vital that he's in the right place, and he usually is.`\
 https://nytimes.com/athletic/6802316/2025/11/13/andrew-van-ginkel-vikings-unique-pick-six/
-
-**TrackMan, launch angle and RPMs: The maven of 'Moneyball' returns to a whole new ballgame**\
-`The Athletic picked the brains of executives at MLB's GM meetings to better understand how baseball has changed in Paul DePodesta's absence.`\
-https://nytimes.com/athletic/6802601/2025/11/13/major-league-baseball-landscape-changes-paul-depodesta/
-
-**Points, not moral victories: Blackhawks show more progress in OT loss**\
-`Chicago continued to show growth, finding a way to earn a point despite missing key players and playing a substandard game.`\
-https://nytimes.com/athletic/6802940/2025/11/13/blackhawks-ot-loss-devils/
 
