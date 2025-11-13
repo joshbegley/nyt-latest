@@ -1,40 +1,40 @@
-**Man Accused of Running Southeast Asia Scam Compound Is Extradited to China**\
-`China and the United States say She Zhijiang, a Chinese-born businessman, ran a major scam compound in Myanmar. He was arrested in Bangkok in 2022.`\
-https://nytimes.com/2025/11/13/world/asia/scam-center-she-zhijiang-extradited-china.html
+**Pardon Me. I Am Not Done Committing Crimes.**\
+`One of the founders’ worst fears has been realized.`\
+https://nytimes.com/2025/11/13/opinion/trump-pardons-crimes.html
 
-**WSL Football's stadium design guidelines: What you need to know about 'world first' document**\
-`WSL Football says its framework will support clubs, architects and more to better meet the needs of players and fans in the women's game`\
-https://nytimes.com/athletic/6798339/2025/11/13/wsl-football-stadium-design-guide-explainer/
+**What’s Behind the Coming House Vote on Releasing the Epstein Files**\
+`Proponents of fuller transparency used an arcane rule to prod their leaders to act. When it became clear they had succeeded, the speaker agreed to hold a vote.`\
+https://nytimes.com/2025/11/13/us/politics/house-vote-epstein-files.html
 
-**China’s ‘Wolf Warrior’ Diplomacy Returns With Threat Against Japan’s Leader**\
-`A Chinese diplomat’s call to cut off the prime minister’s “filthy neck” signaled a revival of a combative style Beijing had tried to dial back.`\
-https://nytimes.com/2025/11/13/world/asia/china-japan-takaichi-taiwan.html
+**Welcome to the Washington Demolition Derby**\
+`And yet, a little, precious seedling of hope is emerging.`\
+https://nytimes.com/2025/11/13/opinion/trump-elections-virginia-new-york.html
 
-**Remembering Shane Warne: 'The biggest cricketing superstar of the lot'**\
-`Shane Keith Warne transcended his sport like few other cricketers – he will be mourned during the first Ashes Down Under since his passing `\
-https://nytimes.com/athletic/6787575/2025/11/13/shane-warne-the-ashes-australia-england/
+**Canadian Travel to the U.S. Declines for 10th Straight Month**\
+`The drop has been reflected in air and car travel, according to Canadian statistics. Tensions over tariffs placed by the Trump administration spurred calls for Canadians to spend their money at home.`\
+https://nytimes.com/2025/11/13/us/canada-us-travel-decline-flights.html
 
-**England's Mark Wood to undergo precautionary scan on hamstring after eight-over stint**\
-`The fast bowler was playing for the first time in a 'competitive' match since February after undergoing knee surgery`\
-https://nytimes.com/athletic/6803506/2025/11/13/england-mark-wood-hamstring-scan-ashes/
+**For Their Retirement Home, a South Florida Couple Tried to Upsize Rather Than Downsize **\
+`Craving a larger home that could accommodate their blended family, a couple toured a popular condo community in Boca Raton, Fla., in search of a three-bedroom.`\
+https://nytimes.com/interactive/2025/11/13/realestate/florida-boca-raton-condos.html
 
-**Does the Subway Still Need Train Conductors?**\
-`Gov. Kathy Hochul must decide by year’s end whether to sign a law that would mandate two-person crews on all trains, a practice critics say is costly and outdated.`\
-https://nytimes.com/2025/11/13/nyregion/subway-train-conductors-hochul.html
+**Where Have All the Covers Gone?**\
+`Beyoncé did “Jolene.” But pop music has mostly abandoned the art of covering other people’s music.`\
+https://nytimes.com/2025/11/13/podcasts/where-have-all-the-covers-gone.html
 
-**Looking at a Watch**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2025/11/13/learning/looking-at-a-watch.html
+**Falcons rally around frustrated QB Michael Penix Jr.: 'My job is to protect him'**\
+`The second-year quarterback has yet to live up to the team's outsized expectations for him, but the Falcons say they aren't concerned.`\
+https://nytimes.com/athletic/6802285/2025/11/13/michael-penix-falcons-frustrated-offense/
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/11/13/crosswords/spelling-bee-forum.html
+**Would You Clone Your Pet?**\
+`The former N.F.L. superstar Tom Brady recently announced that his dog Junie is a clone of his dead pit bull mix, Lua. What’s your reaction?`\
+https://nytimes.com/2025/11/13/learning/would-you-clone-your-pet.html
 
-**Hochul Vetoed 7 of His Bills in a Single Day. Could It Be Personal?**\
-`State Senator James Skoufis of New York has been a steady critic of Gov. Kathy Hochul, a fellow Democrat. Her vetoes of his bills seemed intended to send a message.`\
-https://nytimes.com/2025/11/13/nyregion/skoufis-hochul-bills-veto.html
+**Wifredo Lam: Artist-Poet of Tropical Dreams and Sorrows**\
+`The great Cuban modernist, whose politics and Afro-Asian roots shaped his paintings and inspired generations of artists, gets a revelatory survey at MoMA.`\
+https://nytimes.com/2025/11/13/arts/design/wifredo-lam-retrospective-moma.html
 
-**Why Can’t We Fix Penn Station?**\
-`The biggest thing holding Penn Station back from a much-needed rehaul is what’s on top of it: Madison Square Garden.`\
-https://nytimes.com/video/nyregion/100000010438314/why-cant-we-fix-penn-station.html
+**Trump v. James and Maurene Comey**\
+`The legal precedent established by Maurene Comey’s case may turn out to be far more consequential than the finding in her father’s.`\
+https://nytimes.com/2025/11/13/opinion/trump-comey-james-maurene.html
 
