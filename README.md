@@ -1,3 +1,7 @@
+**A Home That Proves You Can Never Have Too Many Books**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/peter-ayers-tarantino-apartment
+
 **What Teenagers Are Saying About Their Fall Rituals and Traditions**\
 `Students react to articles about how we honor and celebrate the changing of the seasons.`\
 https://nytimes.com/2025/11/13/learning/what-teenagers-are-saying-about-their-fall-rituals-and-traditions.html
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/6767066/2025/11/13/maple-leafs-david-kampf-contract
 **CFP chair Rhoades steps down amid leave of absence from Baylor**\
 `The leave comes less than a week after news surfaced of an investigation conducted by Baylor into an alleged sideline incident in September.`\
 https://nytimes.com/athletic/6804336/2025/11/13/baylor-mack-rhoades-leave-of-absence/
-
-**Winnipeg Jets prospect update: How 15 young players are doing so far this season**\
-`It's time to talk about some of Winnipeg's biggest wins and works in progress.`\
-https://nytimes.com/athletic/6801745/2025/11/13/winnipeg-jets-prospect-update/
-
-**Settlers Torch West Bank Mosque**\
-`Jewish settlers vandalized a mosque in the Israeli-occupied West Bank on Thursday. The attack was part of a surge of settler violence that has exposed frustrations in the Israeli military.`\
-https://nytimes.com/video/world/middleeast/100000010521910/west-bank-mosque-settler-attack.html
 
