@@ -1,3 +1,7 @@
+**Some South Korean Workers Return to Georgia Factory After U.S. Reissues Visas**\
+`The State Department has reissued visas for many workers detained in a September raid, lawyers said, as the Trump administration tries to undo damage from the operation.`\
+https://nytimes.com/2025/11/13/us/politics/south-korea-workers-factory-return-georgia.html
+
 **Juan Ponce Enrile, a Political Power in the Philippines, Dies at 101**\
 `A protégé of Ferdinand Marcos, he helped administer eight years of martial law before turning on his patron in the “People Power” uprising of 1986.`\
 https://nytimes.com/2025/11/13/world/asia/juan-ponce-enrile-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6802285/2025/11/13/michael-penix-falcons-frustrated
 **Would You Clone Your Pet?**\
 `The former N.F.L. superstar Tom Brady recently announced that his dog Junie is a clone of his dead pit bull mix, Lua. What’s your reaction?`\
 https://nytimes.com/2025/11/13/learning/would-you-clone-your-pet.html
-
-**Wifredo Lam: Artist-Poet of Tropical Dreams and Sorrows**\
-`The great Cuban modernist, whose politics and Afro-Asian roots shaped his paintings and inspired generations of artists, gets a revelatory survey at MoMA.`\
-https://nytimes.com/2025/11/13/arts/design/wifredo-lam-retrospective-moma.html
 

@@ -1,40 +1,40 @@
+**Must-See Moments From Around the N.B.A.**\
+`Nikola Jokic scored 55 points, Stephen Curry put up 22 in the third quarter alone, the New York Knicks finally lost at home, and the Detroit Pistons continued to roll.`\
+https://nytimes.com/video/sports/basketball/100000010521834/must-see-moments-from-around-the-nba.html
+
+**After pitch-betting scheme, MLB team execs know they face a problem — but not how to solve it**\
+`“I just don't want to touch the topic,” said Atlanta Braves exec Alex Anthopoulos, a sentiment shared by many of his peers.  `\
+https://nytimes.com/athletic/6803140/2025/11/13/mlb-execs-pitch-betting-scheme-ortiz-clase/
+
+**Eight Eagles Thoughts: Revamped edge rushers, Nakobe Dean shines, end-of-game debate**\
+`Plus, bringing Fred Johnson back has proved to be a success.`\
+https://nytimes.com/athletic/6801775/2025/11/13/eagles-defense-edge-rushers-nakobe-dean/
+
+**2026 NFL Draft: Simulator ranks 6 teams most likely to pick No. 1**\
+`The one-win Titans are leading the race for the top pick, but the Jets and Giants aren't far behind. `\
+https://nytimes.com/athletic/6801829/2025/11/13/nfl-draft-no-1-pick-simulator-titans-giants-jets/
+
+**How much did Emmanuel Clase's alleged actions cost the Cleveland Guardians?**\
+`The difference between a 1-0 count and an 0-1 count is equivalent to the difference between facing Mike Trout and Luis Rengifo. `\
+https://nytimes.com/athletic/6801580/2025/11/13/cleveland-guardians-emmanuel-clase-gambling-investigation-impact/
+
+**Midseason grades for Darren Mougey and Aaron Glenn's first Jets draft class**\
+`Armand Membou leads a group of rookies who have flashed promise in 2025.`\
+https://nytimes.com/athletic/6801880/2025/11/13/new-york-jets-2025-draft-grades/
+
+**Four reasons behind Aaron Rodgers and the Steelers offense's very bad Sunday night**\
+`Familiar problems derailed the Steelers' offense against the Chargers.`\
+https://nytimes.com/athletic/6802305/2025/11/13/pittsburgh-steelers-aaron-rodgers-offense-struggles/
+
+**Contenders vs. pretenders: Which NFL teams actually have staying power to win it all?**\
+`Sixteen NFL teams have winning records, but not all are considered true contenders in a year of wide-open races. `\
+https://nytimes.com/athletic/6801650/2025/11/13/nfl-teams-winning-records-contenders-pretenders/
+
+**The New York Times International Edition in Print for Friday, Nov. 14, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/11/13/todays-new-york-times-international-edition
+
 **Some South Korean Workers Return to Georgia Factory After U.S. Reissues Visas**\
 `The State Department has reissued visas for many workers detained in a September raid, lawyers said, as the Trump administration tries to undo damage from the operation.`\
 https://nytimes.com/2025/11/13/us/politics/south-korea-workers-factory-return-georgia.html
-
-**Juan Ponce Enrile, a Political Power in the Philippines, Dies at 101**\
-`A protégé of Ferdinand Marcos, he helped administer eight years of martial law before turning on his patron in the “People Power” uprising of 1986.`\
-https://nytimes.com/2025/11/13/world/asia/juan-ponce-enrile-dead.html
-
-**Pardon Me. I Am Not Done Committing Crimes.**\
-`One of the founders’ worst fears has been realized.`\
-https://nytimes.com/2025/11/13/opinion/trump-pardons-crimes.html
-
-**What’s Behind the Coming House Vote on Releasing the Epstein Files**\
-`Proponents of fuller transparency used an arcane rule to prod their leaders to act. When it became clear they had succeeded, the speaker agreed to hold a vote.`\
-https://nytimes.com/2025/11/13/us/politics/house-vote-epstein-files.html
-
-**Welcome to the Washington Demolition Derby**\
-`And yet, a little, precious seedling of hope is emerging.`\
-https://nytimes.com/2025/11/13/opinion/trump-elections-virginia-new-york.html
-
-**Canadian Travel to the U.S. Declines for 10th Straight Month**\
-`The drop has been reflected in air and car travel, according to Canadian statistics. Tensions over tariffs placed by the Trump administration spurred calls for Canadians to spend their money at home.`\
-https://nytimes.com/2025/11/13/us/canada-us-travel-decline-flights.html
-
-**For Their Retirement Home, a South Florida Couple Tried to Upsize Rather Than Downsize **\
-`Craving a larger home that could accommodate their blended family, a couple toured a popular condo community in Boca Raton, Fla., in search of a three-bedroom.`\
-https://nytimes.com/interactive/2025/11/13/realestate/florida-boca-raton-condos.html
-
-**Where Have All the Covers Gone?**\
-`Beyoncé did “Jolene.” But pop music has mostly abandoned the art of covering other people’s music.`\
-https://nytimes.com/2025/11/13/podcasts/where-have-all-the-covers-gone.html
-
-**Falcons rally around frustrated QB Michael Penix Jr.: 'My job is to protect him'**\
-`The second-year quarterback has yet to live up to the team's outsized expectations for him, but the Falcons say they aren't concerned.`\
-https://nytimes.com/athletic/6802285/2025/11/13/michael-penix-falcons-frustrated-offense/
-
-**Would You Clone Your Pet?**\
-`The former N.F.L. superstar Tom Brady recently announced that his dog Junie is a clone of his dead pit bull mix, Lua. What’s your reaction?`\
-https://nytimes.com/2025/11/13/learning/would-you-clone-your-pet.html
 

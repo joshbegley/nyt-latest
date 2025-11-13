@@ -1,3 +1,7 @@
+**Some South Korean Workers Return to Georgia Factory After U.S. Reissues Visas**\
+`The State Department has reissued visas for many workers detained in a September raid, lawyers said, as the Trump administration tries to undo damage from the operation.`\
+https://nytimes.com/2025/11/13/us/politics/south-korea-workers-factory-return-georgia.html
+
 **Juan Ponce Enrile, a Political Power in the Philippines, Dies at 101**\
 `A protégé of Ferdinand Marcos, he helped administer eight years of martial law before turning on his patron in the “People Power” uprising of 1986.`\
 https://nytimes.com/2025/11/13/world/asia/juan-ponce-enrile-dead.html
