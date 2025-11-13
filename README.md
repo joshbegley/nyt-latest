@@ -1,3 +1,7 @@
+**Cesc Fabregas, data and succession plans: Inside Como**\
+`Como are seventh in the Italian top flight and their head coach is gaining admirers for his leadership`\
+https://nytimes.com/athletic/6801587/2025/11/13/como-cesc-fabregas-mirwan-suwarso-interview/
+
 **Another first for Paul Skenes: Signing baseball cards in Kanji**\
 `Kanji autographs have become a hot trend in baseball cards thanks largely to Shohei Ohtani. Now Skenes is joining in. `\
 https://nytimes.com/athletic/6801877/2025/11/13/paul-skenes-autograph-kanji-cards/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6801534/2025/11/13/nascar-playoffs-schedule-tv-deal
 **Key fantasy football questions for Week 11: Buy low on Justin Jefferson?**\
 `Dalton Del Don looks at the key fantasy football topics for Week 11, including Justin Jefferson's rest-of-season value.`\
 https://nytimes.com/athletic/6803113/2025/11/13/key-fantasy-football-questions-week-11-jefferson-pierce/
-
-**A War on Top Investor Advisers Is Growing**\
-`The Trump administration is said to be investigating two top shareholder advisory firms. It’s part of a growing change in how corporate America is run.`\
-https://nytimes.com/2025/11/13/business/dealbook/proxy-firms-glass-lewis-iss.html
 

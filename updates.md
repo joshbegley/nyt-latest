@@ -1,3 +1,7 @@
+**Another first for Paul Skenes: Signing baseball cards in Kanji**\
+`Kanji autographs have become a hot trend in baseball cards thanks largely to Shohei Ohtani. Now Skenes is joining in. `\
+https://nytimes.com/athletic/6801877/2025/11/13/paul-skenes-autograph-kanji-cards/
+
 **Fantasy trends and hidden gems: Week 7 slate favorable for Viktor Arvidsson, Bowen Byram**\
 `Shayna Goldman identifies the best fantasy hockey waiver-wire targets for capitalizing on the NHL's Week 7 scheduling advantages.`\
 https://nytimes.com/athletic/6802979/2025/11/13/fantasy-trends-gems-sleepers-waivers-week-7/
