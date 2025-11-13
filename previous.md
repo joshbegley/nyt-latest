@@ -1,3 +1,7 @@
+**Tigers' Tarik Skubal becomes first back-to-back AL Cy Young winner since Pedro Martínez**\
+`A year after winning the 2024 AL Cy Young Award, Skubal proved his dominance was no fluke in 2025. `\
+https://nytimes.com/athletic/6795407/2025/11/12/tigers-tarik-skubal-becomes-first-back-to-back-al-cy-young-winner-since-pedro-martinez/
+
 **Ja Morant to miss Wednesday's matchup vs. Celtics due to ankle injury**\
 `Ja Morant is expected to miss Wednesday's matchup against the Celtics due to ankle soreness.`\
 https://nytimes.com/athletic/6802497/2025/11/12/ja-morant-injury-status-grizzlies-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/12/us/bishops-trump-immigration.html
 **Indigenous Protesters Clash With Guards at U.N. Climate Summit**\
 `Dozens of Indigenous protesters burst into the COP30 summit in Brazil on Tuesday, demanding preservation of their lands. Other Indigenous leaders who took part in the summit said the protesters did not represent the broader movement.`\
 https://nytimes.com/video/world/americas/100000010521226/indigenous-protesters-clash-with-guards-at-un-climate-summit.html
-
-**Iraq’s Prime Minister Leads in Elections, but May Struggle to Form Government**\
-`Mohammed al-Sudani pitches himself as someone who can keep Iranian influence in check, but his vote share may not be big enough to ensure a clear political victory.`\
-https://nytimes.com/2025/11/12/world/middleeast/iraq-elections.html
 

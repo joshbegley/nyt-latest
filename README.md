@@ -16,7 +16,7 @@ https://nytimes.com/2025/11/12/climate/greenhouse-gas-emissions-china.html
 
 **Britain Gives Go-Ahead to Smaller Nuclear Reactor in Wales**\
 `The government pledged 2.5 billion pounds for initial site work, but the decision to build a small, modular design may disappoint others, including the U.S. nuclear industry.`\
-https://nytimes.com/2025/11/12/business/britain-nuclear-power-plant.html
+https://nytimes.com/2025/11/12/business/uk-nuclear-power-plant.html
 
 **Federal Judge Plans to Release Some Immigrants Arrested in Chicago Area**\
 `The judge raised concerns that federal agents may have violated terms of a consent decree during their immigration enforcement crackdown in Illinois.`\
