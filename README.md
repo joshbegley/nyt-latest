@@ -1,3 +1,7 @@
+**Man Accused of Running Southeast Asia Scam Compound Is Extradited to China**\
+`China and the United States say She Zhijiang, a Chinese-born businessman, ran a major scam compound in Myanmar. He was arrested in Bangkok in 2022.`\
+https://nytimes.com/2025/11/13/world/asia/scam-center-she-zhijiang-extradited-china.html
+
 **WSL Football's stadium design guidelines: What you need to know about 'world first' document**\
 `WSL Football says its framework will support clubs, architects and more to better meet the needs of players and fans in the women's game`\
 https://nytimes.com/athletic/6798339/2025/11/13/wsl-football-stadium-design-guide-explainer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/13/nyregion/skoufis-hochul-bills-veto.html
 **Why Can’t We Fix Penn Station?**\
 `The biggest thing holding Penn Station back from a much-needed rehaul is what’s on top of it: Madison Square Garden.`\
 https://nytimes.com/video/nyregion/100000010438314/why-cant-we-fix-penn-station.html
-
-**Late Night Pops Off on Trump Popping Up in Epstein Email Thread**\
-`Josh Johnson said that Jeffrey Epstein’s references to President Trump might not mean much: “Maybe the email was about how Trump never comes to his sex parties — rude.”`\
-https://nytimes.com/2025/11/13/arts/television/late-night-trump-epstein-emails.html
 

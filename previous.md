@@ -1,3 +1,7 @@
+**WSL Football's stadium design guidelines: What you need to know about 'world first' document**\
+`WSL Football says its framework will support clubs, architects and more to better meet the needs of players and fans in the women's game`\
+https://nytimes.com/athletic/6798339/2025/11/13/wsl-football-stadium-design-guide-explainer/
+
 **China’s ‘Wolf Warrior’ Diplomacy Returns With Threat Against Japan’s Leader**\
 `A Chinese diplomat’s call to cut off the prime minister’s “filthy neck” signaled a revival of a combative style Beijing had tried to dial back.`\
 https://nytimes.com/2025/11/13/world/asia/china-japan-takaichi-taiwan.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/100000010438314/why-cant-we-fix-penn-station.
 **Late Night Pops Off on Trump Popping Up in Epstein Email Thread**\
 `Josh Johnson said that Jeffrey Epstein’s references to President Trump might not mean much: “Maybe the email was about how Trump never comes to his sex parties — rude.”`\
 https://nytimes.com/2025/11/13/arts/television/late-night-trump-epstein-emails.html
-
-**Lakers get dismantled by defending champion Thunder in blowout loss**\
-`The Lakers were simply outclassed on Wednesday night in Oklahoma City by a championship team that's hungry for more.`\
-https://nytimes.com/athletic/6803383/2025/11/13/lakers-dismantled-loss-thunder/
 
