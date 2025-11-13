@@ -1,3 +1,19 @@
+**Ukraine’s Choice as Pokrovsk Teeters: Save Lives or Keep Holding On**\
+`Military analysts and some Ukrainian commanders worry that Kyiv may be repeating the mistake of staying in an embattled city longer than it should, aiming to inflict far more casualties than it suffers.`\
+https://nytimes.com/2025/11/13/world/europe/ukraine-pokrovsk-russia-battle.html
+
+**In Lonzo Ball, the Cavs have found a steady fifth option. Is it enough in the East?**\
+`This season the Cavs are looking for progression and not necessarily just in regular season wins. `\
+https://nytimes.com/athletic/6798702/2025/11/13/cleveland-cavaliers-lonzo-ball-eastern-conference/
+
+**This Scrappy Soccer Team Has a Cinderella Chance at Making the World Cup**\
+`The Faroe Islands, rugged green specks in the North Atlantic, are an underdog. Most of the guys on the team have day jobs.`\
+https://nytimes.com/2025/11/13/world/europe/this-scrappy-soccer-team-has-a-cinderella-chance-at-making-the-world-cup.html
+
+**I Watched This Haven From War Turn Into a Besieged Wasteland**\
+`The Ukrainian city of Pokrovsk is on the verge of becoming another shattered trophy for the Russian Army.`\
+https://nytimes.com/2025/11/13/world/europe/ukraine-russia-pokrovsk.html
+
 **Must-See Moments From Around the N.B.A.**\
 `Nikola Jokic scored 55 points, Stephen Curry put up 22 in the third quarter alone, the New York Knicks finally lost at home, and the Detroit Pistons continued to roll.`\
 https://nytimes.com/video/sports/basketball/100000010521834/must-see-moments-from-around-the-nba.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6801580/2025/11/13/cleveland-guardians-emmanuel-cla
 **Midseason grades for Darren Mougey and Aaron Glenn's first Jets draft class**\
 `Armand Membou leads a group of rookies who have flashed promise in 2025.`\
 https://nytimes.com/athletic/6801880/2025/11/13/new-york-jets-2025-draft-grades/
-
-**Four reasons behind Aaron Rodgers and the Steelers offense's very bad Sunday night**\
-`Familiar problems derailed the Steelers' offense against the Chargers.`\
-https://nytimes.com/athletic/6802305/2025/11/13/pittsburgh-steelers-aaron-rodgers-offense-struggles/
-
-**Contenders vs. pretenders: Which NFL teams actually have staying power to win it all?**\
-`Sixteen NFL teams have winning records, but not all are considered true contenders in a year of wide-open races. `\
-https://nytimes.com/athletic/6801650/2025/11/13/nfl-teams-winning-records-contenders-pretenders/
-
-**The New York Times International Edition in Print for Friday, Nov. 14, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/11/13/todays-new-york-times-international-edition
-
-**Some South Korean Workers Return to Georgia Factory After U.S. Reissues Visas**\
-`The State Department has reissued visas for many workers detained in a September raid, lawyers said, as the Trump administration tries to undo damage from the operation.`\
-https://nytimes.com/2025/11/13/us/politics/south-korea-workers-factory-return-georgia.html
 
