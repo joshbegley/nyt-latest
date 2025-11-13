@@ -1,3 +1,11 @@
+**Suriname eye history, Graham Potter takes the reins**\
+`The battles for places in the 2026 World Cup heat up in the coming days with crucial qualifiers in Europe, Africa, Asia and CONCACAF.`\
+https://nytimes.com/athletic/6803042/2025/11/13/suriname-eye-history-graham-potter-takes-reins/
+
+**Word of the Day: prudent**\
+`This word has appeared in 328 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/13/learning/word-of-the-day-prudent.html
+
 **Jeers, cheers, selfies and a painful defeat: Earps returns to Man Utd**\
 `The goalkeeper whose autobiography has caused a furore in recent weeks had a mixed reception at her old club on Wednesday`\
 https://nytimes.com/athletic/6802703/2025/11/13/mary-earps-manchester-united-psg/

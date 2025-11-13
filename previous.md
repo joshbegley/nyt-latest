@@ -1,3 +1,11 @@
+**Suriname eye history, Graham Potter takes the reins**\
+`The battles for places in the 2026 World Cup heat up in the coming days with crucial qualifiers in Europe, Africa, Asia and CONCACAF.`\
+https://nytimes.com/athletic/6803042/2025/11/13/suriname-eye-history-graham-potter-takes-reins/
+
+**Word of the Day: prudent**\
+`This word has appeared in 328 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/13/learning/word-of-the-day-prudent.html
+
 **Jeers, cheers, selfies and a painful defeat: Earps returns to Man Utd**\
 `The goalkeeper whose autobiography has caused a furore in recent weeks had a mixed reception at her old club on Wednesday`\
 https://nytimes.com/athletic/6802703/2025/11/13/mary-earps-manchester-united-psg/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6787575/2025/11/13/shane-warne-the-ashes-australia-
 **Eliud Kipchoge exclusive interview: Breaking records, the sub-two-hour marathon and his new 'World Tour'**\
 `The Kenyan speaks to The Athletic about his long list of achievements, and what comes next as he moves deeper into his forties`\
 https://nytimes.com/athletic/6797908/2025/11/13/eliud-kipchoge-exclusive-interview/
-
-**Memories of Brighton's old training facilities: Clearing dog s***, sharing with students and pitches like concrete**\
-`Brighton's £32m training centre is a world away from the 1990s when the club was surviving on a shoestring`\
-https://nytimes.com/athletic/6612716/2025/11/13/brighton-training-ground-memories/
-
-**Leeds face the Premier League's hardest 10-game fixture run. Have they missed an opportunity?**\
-`Leeds had the third easiest opening 10 games of the season. They now have the toughest 10-game run of anyone`\
-https://nytimes.com/athletic/6801056/2025/11/13/leeds-fixtures-analysis-hardest/
 
