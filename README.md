@@ -2,7 +2,7 @@
 `Thomas Tuchel explained during he will not be experimenting with his side for this month's matches.`\
 https://nytimes.com/athletic/6803947/2025/11/13/morgan-rogers-england-serbia/
 
-**Friendship, gamesmanship, or both? Ex-UF coach Napier visits Georgia practice before UGA-Texas**\
+**Friendship, gamesmanship, or both? Ex-UF coach Napier visits Georgia practice before Texas game**\
 `Georgia coach Kirby Smart said it was no big deal, just two old friends getting together.`\
 https://nytimes.com/athletic/6803902/2025/11/13/billy-napier-georgia-florida-kirby-smart/
 
