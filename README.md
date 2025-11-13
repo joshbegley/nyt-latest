@@ -1,3 +1,7 @@
+**As Phillies eye 2026 upgrades, where do their top prospects fit in?**\
+`Justin Crawford, Andrew Painter and Aidan Miller are poised to help spark the Phillies in 2026, but questions abound. `\
+https://nytimes.com/athletic/6803375/2025/11/13/phillies-painter-miller-crawford-20206-season/
+
 **TAFC: How will rise to 48 teams affect World Cup? Plus: Paris attacks remembered, 10 years on**\
 `Today in TAFC: What will a rise to 48 teams do to the World Cup? Plus: Paris attacks, 10 years on, and MLS could be set for a seismic change`\
 https://nytimes.com/athletic/6803697/2025/11/13/world-cup-48-team-format/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6802967/2025/11/13/notre-dame-mailbag-acc-playoff-b
 **49ers injury analysis: Where the team ranks in the Kyle Shanahan era**\
 `The Niners' famously intense Thursday practices have taken a toll this season, but players also credit them for setting the right tone.`\
 https://nytimes.com/athletic/6801739/2025/11/13/49ers-injuries-practice-kyle-shanahan/
-
-**Can the Maple Leafs avoid a nightmare season?**\
-`Fixing the current roster to the point that the Stanley Cup feels legitimately possible again won't be easy for GM Brad Treliving.`\
-https://nytimes.com/athletic/6801599/2025/11/13/maple-leafs-2025-26-season-auston-matthews/
 
