@@ -1,3 +1,7 @@
+**Commanders select architect for their new roofed stadium in Washington, D.C.**\
+`HKS, the global architectural and design firm, was chosen as the lead architect of the Commanders' planned $3.8 billion, 65,000-seat stadium`\
+https://nytimes.com/athletic/6802289/2025/11/13/washington-commanders-stadium-architect/
+
 **St. Brown says he didn't mean to offend with with Trump dance**\
 `"First of all, if I offended anyone, I do apologize," St. Brown said on his podcast. "I did not mean to offend anyone."`\
 https://nytimes.com/athletic/6803942/2025/11/13/amon-ra-st-brown-trump-dance-apology/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/13/realestate/sanford-solny-home-deeds-sentencing.ht
 **Cesc Fabregas, data and succession plans: Inside Como**\
 `Como are seventh in the Italian top flight and their head coach is gaining admirers for his leadership`\
 https://nytimes.com/athletic/6801587/2025/11/13/como-cesc-fabregas-mirwan-suwarso-interview/
-
-**Another first for Paul Skenes: Signing baseball cards in Kanji**\
-`Kanji autographs have become a hot trend in baseball cards thanks largely to Shohei Ohtani. Now Skenes is joining in. `\
-https://nytimes.com/athletic/6801877/2025/11/13/paul-skenes-autograph-kanji-cards/
 
