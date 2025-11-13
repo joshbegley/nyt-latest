@@ -1,3 +1,7 @@
+**Another first for Paul Skenes: Signing baseball cards in Kanji**\
+`Kanji autographs have become a hot trend in baseball cards thanks largely to Shohei Ohtani. Now Skenes is joining in. `\
+https://nytimes.com/athletic/6801877/2025/11/13/paul-skenes-autograph-kanji-cards/
+
 **Fantasy trends and hidden gems: Week 7 slate favorable for Viktor Arvidsson, Bowen Byram**\
 `Shayna Goldman identifies the best fantasy hockey waiver-wire targets for capitalizing on the NHL's Week 7 scheduling advantages.`\
 https://nytimes.com/athletic/6802979/2025/11/13/fantasy-trends-gems-sleepers-waivers-week-7/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6803113/2025/11/13/key-fantasy-football-questions-w
 **A War on Top Investor Advisers Is Growing**\
 `The Trump administration is said to be investigating two top shareholder advisory firms. It’s part of a growing change in how corporate America is run.`\
 https://nytimes.com/2025/11/13/business/dealbook/proxy-firms-glass-lewis-iss.html
-
-**Rebuilt Pac-12 reaches five-year media rights deal with USA Sports starting in fall 2026**\
-`With the addition of USA Sports, all Pac-12 football games will be on linear TV networks.`\
-https://nytimes.com/athletic/6802966/2025/11/13/pac-12-media-rights-usa-sports-deal/
 
