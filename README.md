@@ -1,3 +1,7 @@
+**‘Nouvelle Vague’ Review: Richard Linklater Ode to ‘Breathless’**\
+`The American director moves his sights to Paris in 1959, when a young, cocky Jean-Luc Godard is hustling to make his first (now legendary) movie.`\
+https://nytimes.com/2025/11/13/movies/nouvelle-vague-review-richard-linklater.html
+
 **How to watch Towson vs. Maryland women's basketball: Time, TV, streaming**\
 `Find out how to watch the Towson Tigers play the Maryland Terrapins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6804512/2025/11/13/towson-vs-maryland-stream-how-to-watch-nov-13/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/13/well/eat/ultraprocessed-foods-colorectal-cancer-r
 **A Man Took a Bus for a Joyride. Turns Out, He’s Not a Bad Driver.**\
 `The incident in Hamilton, Ontario, ended safely with an arrest and no injuries (and all fares paid).`\
 https://nytimes.com/2025/11/13/world/canada/hamilton-bus-stolen-canada.html
-
-**Assault Case Against a Democratic House Member Can Proceed, Judge Rules**\
-`The judge concluded that Representative LaMonica McIver did not have legislative immunity from charges that grew out of a congressional oversight visit to a migrant jail in Newark.`\
-https://nytimes.com/2025/11/13/nyregion/lamonica-mciver-assault-case-alina-habba.html
 
