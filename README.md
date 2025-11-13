@@ -1,3 +1,19 @@
+**Evgeni Malkin’s last stand? Penguins star's urgent intensity has Pittsburgh in playoff contention**\
+`This season has become playoffs or bust for Malkin — and so far, he's done everything in his power to get the Penguins there. `\
+https://nytimes.com/athletic/6803847/2025/11/13/penguins-evgeni-malkin-retirement-nhl-playoff-standings/
+
+**Let Us Help You Find Your Next Book: Historical Fiction**\
+`Whether you're looking for a classic or the latest and greatest, start here.`\
+https://nytimes.com/interactive/2025/books/historical-fiction-books.html
+
+**Giannis at MVP level, Ryan Rollins is for real: 12 thoughts on the Bucks**\
+`Through their first 12 games, Giannis is having a stellar season, Rollins is playing well and Myles Turner is winning the locker room.`\
+https://nytimes.com/athletic/6794880/2025/11/13/milwaukee-bucks-early-season-giannis-mvp/
+
+**Lowetide: Why Oilers rookie Matt Savoie's offensive struggles aren't a major concern**\
+`Savoie only has four points in 18 games but the Oilers need to stay the course with the young winger.`\
+https://nytimes.com/athletic/6798695/2025/11/13/edmonton-oilers-matt-savoie-stats-rookie/
+
 **Commanders select architect for their new roofed stadium in Washington, D.C.**\
 `HKS, the global architectural and design firm, was chosen as the lead architect of the Commanders' planned $3.8 billion, 65,000-seat stadium`\
 https://nytimes.com/athletic/6802289/2025/11/13/washington-commanders-stadium-architect/
@@ -17,20 +33,4 @@ https://nytimes.com/2025/11/13/style/tiny-modern-love-stories-ted-and-i-are-impl
 **Larry Brooks, Hockey Hall of Fame writer at New York Post, dies at 75**\
 `Brooks, who entered the Hockey Hall of Fame in 2018, began writing for the Post in 1976 and started covering the Rangers in 1978.`\
 https://nytimes.com/athletic/6804005/2025/11/13/larry-brooks-new-york-post-dies-obituary/
-
-**Fantasy football injuries, inactives, cheat sheet Week 11**\
-`Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 11 player rankings and more.`\
-https://nytimes.com/athletic/6798197/2025/11/13/fantasy-football-injuries-inactives-cheat-sheet-week-11/
-
-**Why Michigan and the Big Ten are at odds over a deal with billions on the line**\
-`The situation has some at Michigan questioning the future of the school’s 129-year relationship with the Big Ten.`\
-https://nytimes.com/athletic/6802248/2025/11/13/michigan-big-ten-private-capital-uc-investments/
-
-**Brooklyn Investor Who Stole Homes Faces Years Behind Bars**\
-`Sanford Solny was sentenced to up to seven years in prison for a deed-theft scheme that preyed on distressed homeowners from minority communities.`\
-https://nytimes.com/2025/11/13/realestate/sanford-solny-home-deeds-sentencing.html
-
-**Cesc Fabregas, data and succession plans: Inside Como**\
-`Como are seventh in the Italian top flight and their head coach is gaining admirers for his leadership`\
-https://nytimes.com/athletic/6801587/2025/11/13/como-cesc-fabregas-mirwan-suwarso-interview/
 
