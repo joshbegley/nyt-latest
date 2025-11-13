@@ -1,3 +1,11 @@
+**College football best bets Week 12: Two Friday plays and an upset call**\
+`Austin Mock's model likes the over in Texas and Georgia and has a pair of picks for this week's Friday games.`\
+https://nytimes.com/athletic/6804160/2025/11/13/college-football-best-bets-week-12-georgia-texas/
+
+**How Yung Lean Escaped His Lowest Lows**\
+`The musician and actor Yung Lean discussed his mental health and journey to sobriety with hosts Jon Caramanica and Joe Coscarelli on the latest episode of “Popcast.”`\
+https://nytimes.com/video/podcasts/100000010520100/how-yung-lean-escaped-his-lowest-lows.html
+
 **Restaurant Review: Korai Kitchen**\
 `Ligaya Mishan, a New York Times chief restaurant critic, visits Korai Kitchen in Jersey City. A restaurant where a mother-daughter duo roll out an incomparable Bangladeshi menu.`\
 https://nytimes.com/video/dining/100000010519791/restaurant-review-korai-kitchen.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/13/world/middleeast/israel-settlers-west-bank-mosque
 **Turkey FA bans 102 players in betting investigation**\
 `Sanctions range from 45 days to 12 months, including 25 players from the top-flight Super Lig and 77 from the second-tier first division.`\
 https://nytimes.com/athletic/6804402/2025/11/13/turkey-football-betting-bans/
-
-**How to watch Raptors vs. Cavaliers: Time, TV, streaming**\
-`Find out how to watch the Toronto Raptors play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6804548/2025/11/13/raptors-vs-cavaliers-stream-how-to-watch-nov-13/
-
-**How to watch Bruins vs. Senators: Time, TV, streaming**\
-`Find out how to watch the Boston Bruins play the Ottawa Senators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6804546/2025/11/13/bruins-vs-senators-stream-how-to-watch-nov-13/
 
