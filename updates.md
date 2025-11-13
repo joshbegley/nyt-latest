@@ -1,3 +1,15 @@
+**Avs, goalie Scott Wedgewood agree to 1-year extension: Sources**\
+`The 33-year-old Wedgewood was in the final year of a two-year contract that carried an AAV of $1.5 million.`\
+https://nytimes.com/athletic/6805005/2025/11/13/avalanche-scott-wedgewood-contract-extension/
+
+**‘Archduke’ Review: Impressionable Young Men**\
+`Rajiv Joseph’s farcical play follows the nationalists who carried out the assassination that ignited World War I.`\
+https://nytimes.com/2025/11/13/theater/archduke-review-rajiv-joseph.html
+
+**New Jersey Accuses Mob-Led Ring of Running Illegal Sports Gambling**\
+`The accusations follow recent federal charges filed against figures from Mafia families who were accused of running illegal poker games that involved former N.B.A. players.`\
+https://nytimes.com/2025/11/13/nyregion/new-jersey-sports-gambling-mob.html
+
 **For Some, ‘the New American Dream Is to Leave’**\
 `An online debate began when a European man lampooned the concept of American culture. Then a lot of Americans began agreeing with him.`\
 https://nytimes.com/2025/11/13/style/new-american-dream-tiktok.html

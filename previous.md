@@ -1,3 +1,15 @@
+**Avs, goalie Scott Wedgewood agree to 1-year extension: Sources**\
+`The 33-year-old Wedgewood was in the final year of a two-year contract that carried an AAV of $1.5 million.`\
+https://nytimes.com/athletic/6805005/2025/11/13/avalanche-scott-wedgewood-contract-extension/
+
+**‘Archduke’ Review: Impressionable Young Men**\
+`Rajiv Joseph’s farcical play follows the nationalists who carried out the assassination that ignited World War I.`\
+https://nytimes.com/2025/11/13/theater/archduke-review-rajiv-joseph.html
+
+**New Jersey Accuses Mob-Led Ring of Running Illegal Sports Gambling**\
+`The accusations follow recent federal charges filed against figures from Mafia families who were accused of running illegal poker games that involved former N.B.A. players.`\
+https://nytimes.com/2025/11/13/nyregion/new-jersey-sports-gambling-mob.html
+
 **For Some, ‘the New American Dream Is to Leave’**\
 `An online debate began when a European man lampooned the concept of American culture. Then a lot of Americans began agreeing with him.`\
 https://nytimes.com/2025/11/13/style/new-american-dream-tiktok.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/13/style/sofia-coppola-moma-benefit.html
 **Unpacking MLB betting scandal with Ken Rosenthal, a bad week for Brians, WAG/HAB updates**\
 `It was a big week at "The Sports Gossip Show," with gambling charges, coaches and GMs fired left and right, and mysterious relationships.`\
 https://nytimes.com/athletic/6803128/2025/11/13/mlb-betting-scandal-sports-gossip-show-brians-fired/
-
-**Netflix Tries Bringing Family Game Night to Your TV**\
-`The company is shifting its video game strategy to focus more on popular games you already know, such as Pictionary and Boggle.`\
-https://nytimes.com/2025/11/13/business/media/netflix-video-game-tv.html
-
-**Nigeria 4 Gabon 1: World Cup dream lives on, Osimhen's miss (and goals) and VAR controversy**\
-`Nigeria beat Gabon 4-1 to reach the final of the CAF play-offs for a place at the World Cup`\
-https://nytimes.com/athletic/6804589/2025/11/13/nigeria-gabon-result-report-analysis/
-
-**The Global Climate Leadership Vacuum**\
-`The United States is largely absent from the United Nations climate negations in Brazil. So who is stepping up?`\
-https://nytimes.com/2025/11/13/climate/cop30-un-climate-talks.html
 
