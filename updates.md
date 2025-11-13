@@ -1,3 +1,7 @@
+**Britain Gives Go-Ahead to Smaller Nuclear Reactor in Wales**\
+`The government pledged 2.5 billion pounds for initial site work, but the decision to build a small, modular design may disappoint others, including the U.S. nuclear industry.`\
+https://nytimes.com/2025/11/12/business/uk-nuclear-power-plant.html
+
 **Tigers' Tarik Skubal becomes first back-to-back AL Cy Young winner since Pedro Martínez**\
 `A year after winning the 2024 AL Cy Young Award, Skubal proved his dominance was no fluke in 2025. `\
 https://nytimes.com/athletic/6795407/2025/11/12/tigers-tarik-skubal-becomes-first-back-to-back-al-cy-young-winner-since-pedro-martinez/
