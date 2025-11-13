@@ -1,3 +1,7 @@
+**Jeers, cheers, selfies and a painful defeat: Earps returns to Man Utd**\
+`The goalkeeper whose autobiography has caused a furore in recent weeks had a mixed reception when back at her old club for the first time`\
+https://nytimes.com/athletic/6802703/2025/11/13/mary-earps-manchester-united-psg/
+
 **Lakers get dismantled by defending champion Thunder in blowout loss**\
 `The Lakers were simply outclassed on Wednesday night in Oklahoma City by a championship team that's hungry for more.`\
 https://nytimes.com/athletic/6803383/2025/11/13/lakers-dismantled-loss-thunder/

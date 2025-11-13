@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6803042/2025/11/13/suriname-eye-history-graham-pott
 https://nytimes.com/2025/11/13/learning/word-of-the-day-prudent.html
 
 **Jeers, cheers, selfies and a painful defeat: Earps returns to Man Utd**\
-`The goalkeeper whose autobiography has caused a furore in recent weeks had a mixed reception at her old club on Wednesday`\
+`The goalkeeper whose autobiography has caused a furore in recent weeks had a mixed reception when back at her old club for the first time`\
 https://nytimes.com/athletic/6802703/2025/11/13/mary-earps-manchester-united-psg/
 
 **Nikola Jokić scores 52 points through first three quarters vs. Clippers**\
