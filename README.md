@@ -10,8 +10,8 @@ https://nytimes.com/2025/11/12/us/epstein-emails-trump.html
 `The House voted mostly along party lines to end the longest government shutdown in U.S. history.`\
 https://nytimes.com/interactive/2025/11/12/us/house-shutdown-vote.html
 
-**Blue Jays reportedly targeting high-leverage relief after postseason bullpen issues**\
-`In the postseason, Toronto relievers posted a 4.44 ERA, ranking 10th of 12 postseason teams.`\
+**Blue Jays targeting high-leverage relief after postseason bullpen issues: Sources**\
+`Toronto will likely be shopping in the same bullpen tier as the Dodgers for pitchers like Devin Williams, Pete Fairbanks and Phil Maton.`\
 https://nytimes.com/athletic/6802735/2025/11/12/blue-jays-relief-after-bullpen-issues/
 
 **Warriors adjust starting lineup after slow start to season: 'It's that we're not in sync.'**\
