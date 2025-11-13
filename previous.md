@@ -1,3 +1,11 @@
+**Mystery Man Known as ‘John Doe’ Gets Up to 9 Years for Stealing 3 Homes**\
+`The man, whose identity is still unknown, pleaded guilty to deed fraud in Queens. “I just want to get it over with,” he told the judge as one of his victims wept.`\
+https://nytimes.com/2025/11/13/nyregion/john-doe-deed-fraud-sentence.html
+
+**Brock Purdy returning from injury to start Sunday vs. Cardinals**\
+`Purdy has missed six consecutive games and eight of the past nine with a lingering toe injury.`\
+https://nytimes.com/athletic/6802203/2025/11/13/brock-purdy-injury-update-49ers-cardinals/
+
 **NFL working with lawmakers, betting partners to enforce prop betting rules**\
 `The league says it's working with state regulators and betting partners to limit and where possible prohibit prop bets.`\
 https://nytimes.com/athletic/6805308/2025/11/13/nfl-memo-prop-bets-rules/
@@ -17,12 +25,4 @@ https://nytimes.com/2025/11/13/us/politics/trump-tariffs-food-prices.html
 **Liverpool owner FSG ends interest in buying La Liga club Getafe**\
 `The Athletic reported in July that discussions were taking place with Getafe president Angel Torres over a staged takeover of the club.`\
 https://nytimes.com/athletic/6805730/2025/11/13/liverpool-fsg-getafe-multi-club/
-
-**Some T.S.A. Workers to Get $10,000 Bonuses for Shutdown Work**\
-`Kristi Noem, the homeland security secretary, began handing out $10,000 checks to T.S.A. workers who “went above and beyond” during the shutdown, after the president recommended similar bonuses for some air traffic controllers.`\
-https://nytimes.com/2025/11/13/us/politics/tsa-worker-checks-bonus-shutdown.html
-
-**NFLPA pushes back on NFL owners' attempt to block annual report cards**\
-`The NFL’s management council contends that the report cards violate a clause in the Collective Bargaining Agreement.`\
-https://nytimes.com/athletic/6805732/2025/11/13/nflpa-nfl-owners-report-card-dispute-2/
 

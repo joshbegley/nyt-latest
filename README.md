@@ -1,3 +1,7 @@
+**Mamdani and Hochul Discuss Their Challenges: Trump and Child Care**\
+`Zohran Mamdani, the mayor-elect of New York City, and Gov. Kathy Hochul met to talk about how to prepare for threats from President Trump.`\
+https://nytimes.com/2025/11/13/nyregion/mamdani-hochul-child-care-trump.html
+
 **Mystery Man Known as ‘John Doe’ Gets Up to 9 Years for Stealing 3 Homes**\
 `The man, whose identity is still unknown, pleaded guilty to deed fraud in Queens. “I just want to get it over with,” he told the judge as one of his victims wept.`\
 https://nytimes.com/2025/11/13/nyregion/john-doe-deed-fraud-sentence.html
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/6805704/2025/11/13/lionel-messi-statue-barcelona-ca
 **Trump Administration Prepares Tariff Exemptions in Bid to Lower Food Prices**\
 `If the proposal goes into effect, it would be the latest rollback of one of President Trump’s key economic policies over concerns about affordability.`\
 https://nytimes.com/2025/11/13/us/politics/trump-tariffs-food-prices.html
-
-**Liverpool owner FSG ends interest in buying La Liga club Getafe**\
-`The Athletic reported in July that discussions were taking place with Getafe president Angel Torres over a staged takeover of the club.`\
-https://nytimes.com/athletic/6805730/2025/11/13/liverpool-fsg-getafe-multi-club/
 
