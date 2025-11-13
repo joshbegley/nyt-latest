@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘Ted and I Are Implausible Friends’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/11/13/style/tiny-modern-love-stories-ted-and-i-are-implausible-friends.html
+
 **Larry Brooks, Hockey Hall of Fame writer at New York Post, dies at 75**\
 `Brooks, who entered the Hockey Hall of Fame in 2018, began writing for the Post in 1976 and started covering the Rangers in 1978.`\
 https://nytimes.com/athletic/6804005/2025/11/13/larry-brooks-new-york-post-dies-obituary/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6802979/2025/11/13/fantasy-trends-gems-sleepers-wai
 **England to name Rogers as No 10 against Serbia, Jude Bellingham on bench**\
 `Thomas Tuchel explained during he will not be experimenting with his side for this month's matches.`\
 https://nytimes.com/athletic/6803947/2025/11/13/morgan-rogers-england-serbia/
-
-**Friendship, gamesmanship, or both? Ex-UF coach Napier visits Georgia practice before Texas game**\
-`Georgia coach Kirby Smart said it was no big deal, just two old friends getting together.`\
-https://nytimes.com/athletic/6803902/2025/11/13/billy-napier-georgia-florida-kirby-smart/
 

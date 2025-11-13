@@ -1,3 +1,15 @@
+**Larry Brooks, Hockey Hall of Fame writer at New York Post, dies at 75**\
+`Brooks, who entered the Hockey Hall of Fame in 2018, began writing for the Post in 1976 and started covering the Rangers in 1978.`\
+https://nytimes.com/athletic/6804005/2025/11/13/larry-brooks-new-york-post-dies-obituary/
+
+**Fantasy football injuries, inactives, cheat sheet Week 11**\
+`Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 11 player rankings and more.`\
+https://nytimes.com/athletic/6798197/2025/11/13/fantasy-football-injuries-inactives-cheat-sheet-week-11/
+
+**Why Michigan and the Big Ten are at odds over a deal with billions on the line**\
+`The situation has some at Michigan questioning the future of the school’s 129-year relationship with the Big Ten.`\
+https://nytimes.com/athletic/6802248/2025/11/13/michigan-big-ten-private-capital-uc-investments/
+
 **Brooklyn Investor Who Stole Homes Faces Years Behind Bars**\
 `Sanford Solny was sentenced to up to seven years in prison for a deed-theft scheme that preyed on distressed homeowners from minority communities.`\
 https://nytimes.com/2025/11/13/realestate/sanford-solny-home-deeds-sentencing.html
