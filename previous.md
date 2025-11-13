@@ -1,3 +1,11 @@
+**Carbon Dioxide Emissions Head for Another Record in 2025**\
+`But there are signs that greenhouse gas pollution in China might be slowing, according to a new analysis.`\
+https://nytimes.com/2025/11/12/climate/greenhouse-gas-emissions-china.html
+
+**Britain Gives Go-Ahead to Smaller Nuclear Reactor in Wales**\
+`The government pledged 2.5 billion pounds for initial site work, but the decision to build a small, modular design may disappoint others, including the U.S. nuclear industry.`\
+https://nytimes.com/2025/11/12/business/britain-nuclear-power-plant.html
+
 **Federal Judge Plans to Release Some Immigrants Arrested in Chicago Area**\
 `The judge raised concerns that federal agents may have violated terms of a consent decree during their immigration enforcement crackdown in Illinois.`\
 https://nytimes.com/2025/11/12/us/immigrants-wrongful-detention-chicago-release.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/12/technology/ai-robot-russia-falls.html
 **William Rataczak, Co-Pilot of Flight Hijacked by D.B. Cooper, Dies at 86**\
 `He was a witness to one of the most riveting unsolved crimes in American history, which inspired scores of conspiracy theories and obsessed amateur sleuths.`\
 https://nytimes.com/2025/11/12/us/william-rataczak-dead.html
-
-**Broncos may be without J.K. Dobbins in quest to improve offense vs. Chiefs**\
-`A win over the Chiefs on Sunday would push the Broncos closer to "where we're aspiring to go," but Denver may be short-handed.`\
-https://nytimes.com/athletic/6802121/2025/11/12/broncos-jk-dobbins-injury-chiefs/
-
-**Missed the Northern Lights on Tuesday? Here’s How to Catch Wednesday’s Show.**\
-`A geomagnetic storm that made the aurora borealis visible farther south than normal is expected to continue for another night. But clouds may obscure your view.`\
-https://nytimes.com/2025/11/12/science/how-to-see-the-northern-lights-wednesday.html
 
