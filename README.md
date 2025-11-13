@@ -1,3 +1,7 @@
+**In Matt Gaetz Scandal, Circumstances Left Girl Vulnerable to Exploitation**\
+`A teenager with a homeless parent wanted money for braces and ended up having sex for money with powerful men. She wants the public to have a fuller understanding of how she was victimized.`\
+https://nytimes.com/2025/11/13/us/politics/in-matt-gaetz-scandal-circumstances-left-girl-vulnerable-to-exploitation.html
+
 **Starbucks Workers Strike at Dozens of U.S. Stores on ‘Red Cup Day’**\
 `More than 1,000 workers at 65 stores across the United States joined the labor action, the union representing baristas said.`\
 https://nytimes.com/2025/11/13/business/starbucks-strike-red-cup-day.html
