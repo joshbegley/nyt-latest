@@ -1,3 +1,7 @@
+**Tuomas Iisalo calls out Grizzlies for poor effort in 36-point loss to Celtics**\
+`The Grizzlies have lost seven of their last eight games, but Iisalo said losses "shouldn’t be because of effort like tonight."`\
+https://nytimes.com/athletic/6803069/2025/11/12/tuomas-iisalo-grizzlies-effort-nba/
+
 **Magic's Paolo Banchero to undergo MRI for groin strain after exiting vs. Knicks**\
 `"I just slowed up, and I felt it right away," Banchero said of his injury, which occurred when he pursued a rebound in the second quarter.`\
 https://nytimes.com/athletic/6803122/2025/11/12/paolo-banchero-groin-injury-magic-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/12/us/politics/dnc-return-to-office-ken-martin.html
 **Michael Ray Richardson, N.B.A. Star Derailed by Cocaine, Dies at 70**\
 `A four-time All-Star, he dazzled fans, and fellow players, with his intense play for the New York Knicks, only to become the league’s first player to be barred for drug use.`\
 https://nytimes.com/2025/11/12/sports/basketball/michael-ray-richardson-dead.html
-
-**Trump Administration to Drastically Cut Housing Grants**\
-`In a major shift, HUD’s plan would direct most of the $3.5 billion in homelessness funds away from Housing First to programs that prioritize work and drug treatment.`\
-https://nytimes.com/2025/11/12/us/politics/trump-homeless-funding.html
 
