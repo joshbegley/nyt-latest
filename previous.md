@@ -1,3 +1,19 @@
+**How France Remembers the November 2015 Terrorist Attacks in Paris**\
+`A decade ago, Islamic State militants killed 130 people in an assault that shocked France. Some survivors are still struggling, but for many of their compatriots, memories of the attacks are growing more distant.`\
+https://nytimes.com/2025/11/13/world/europe/france-paris-terrorist-attacks-anniversary.html
+
+**Skaggs attorney accuses Angels VP of perjury, plans to subpoena MLB**\
+`Angels attorney denies witness committed perjury, but judge indicates she will hear arguments on issue when trial resumes Friday.`\
+https://nytimes.com/athletic/6803173/2025/11/13/skaggs-angels-witness-accused-perjury/
+
+**Connections: Sports Edition Coach: Hints for Nov. 13, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6803073/2025/11/13/connections-sports-edition-hints-for-nov-13-2025/
+
+**Corrections: Nov. 13, 2025**\
+`Corrections that appeared in print on Thursday, Nov. 13, 2025.`\
+https://nytimes.com/2025/11/13/pageoneplus/corrections-nov-13-2025.html
+
 **Quote of the Day: Fighter of Bulls, and Mental Illness, Leaves Ring**\
 `Quotation of the Day for Thursday, November 13, 2025.`\
 https://nytimes.com/2025/11/12/pageoneplus/quote-of-the-day-fighter-of-bulls-and-mental-illness-leaves-ring.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6803054/2025/11/12/pittsburgh-pirates-paul-skenes-n
 **Grace College scores 172 points to set women's college basketball scoring record**\
 `The small school from Winona Lake, Ind., surpassed the previous record held by two schools, and it wasn't even close.`\
 https://nytimes.com/athletic/6802400/2025/11/12/grace-college-college-basketball-scoring-record/
-
-**Dodger Details: Pitching depth after World Series win, plus plans for Dalton Rushing**\
-`The Dodgers' starting depth on paper going into next year might be just as deep as the group it had going into this year.`\
-https://nytimes.com/athletic/6803021/2025/11/12/los-angeles-dodgers-pitching-depth-dalton-rushing/
-
-**Two-Cent Pieces**\
-`Kyle Perkins makes his New York Times Crossword debut, and a love letter to readers.`\
-https://nytimes.com/2025/11/12/crosswords/daily-puzzle-2025-11-13.html
-
-**Why Can’t New York Fix Penn Station?**\
-`The nation’s busiest transit hub stands as a symbol of a condition that afflicts so many attempts to get big things done in America: inertia.`\
-https://nytimes.com/interactive/2025/11/12/nyregion/inertia-penn-station-trump.html
-
-**The D.N.C. Ordered Workers Back to the Office. Its Union Isn’t Pleased.**\
-`Thumbs-down emojis flowed onscreen as Washington-area employees learned they would have to show up five days a week. Their union called the move “callous.”`\
-https://nytimes.com/2025/11/12/us/politics/dnc-return-to-office-ken-martin.html
 

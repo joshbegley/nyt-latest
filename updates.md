@@ -1,3 +1,19 @@
+**How France Remembers the November 2015 Terrorist Attacks in Paris**\
+`A decade ago, Islamic State militants killed 130 people in an assault that shocked France. Some survivors are still struggling, but for many of their compatriots, memories of the attacks are growing more distant.`\
+https://nytimes.com/2025/11/13/world/europe/france-paris-terrorist-attacks-anniversary.html
+
+**Skaggs attorney accuses Angels VP of perjury, plans to subpoena MLB**\
+`Angels attorney denies witness committed perjury, but judge indicates she will hear arguments on issue when trial resumes Friday.`\
+https://nytimes.com/athletic/6803173/2025/11/13/skaggs-angels-witness-accused-perjury/
+
+**Connections: Sports Edition Coach: Hints for Nov. 13, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6803073/2025/11/13/connections-sports-edition-hints-for-nov-13-2025/
+
+**Corrections: Nov. 13, 2025**\
+`Corrections that appeared in print on Thursday, Nov. 13, 2025.`\
+https://nytimes.com/2025/11/13/pageoneplus/corrections-nov-13-2025.html
+
 **Quote of the Day: Fighter of Bulls, and Mental Illness, Leaves Ring**\
 `Quotation of the Day for Thursday, November 13, 2025.`\
 https://nytimes.com/2025/11/12/pageoneplus/quote-of-the-day-fighter-of-bulls-and-mental-illness-leaves-ring.html
