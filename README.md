@@ -1,3 +1,7 @@
+**Brooklyn Investor Who Stole Homes Faces Years Behind Bars**\
+`Sanford Solny was sentenced to up to seven years in prison for a deed-theft scheme that preyed on distressed homeowners from minority communities.`\
+https://nytimes.com/2025/11/13/realestate/sanford-solny-home-deeds-sentencing.html
+
 **Cesc Fabregas, data and succession plans: Inside Como**\
 `Como are seventh in the Italian top flight and their head coach is gaining admirers for his leadership`\
 https://nytimes.com/athletic/6801587/2025/11/13/como-cesc-fabregas-mirwan-suwarso-interview/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010520312/epstein-trump-emails-expla
 **How to fix NASCAR: Our ideas on the playoffs, schedule, TV deals and more**\
 `As NASCAR heads into its offseason, there was plenty on our minds around the biggest issues facing the sport.`\
 https://nytimes.com/athletic/6801534/2025/11/13/nascar-playoffs-schedule-tv-deal-how-to-fix/
-
-**Key fantasy football questions for Week 11: Buy low on Justin Jefferson?**\
-`Dalton Del Don looks at the key fantasy football topics for Week 11, including Justin Jefferson's rest-of-season value.`\
-https://nytimes.com/athletic/6803113/2025/11/13/key-fantasy-football-questions-week-11-jefferson-pierce/
 
