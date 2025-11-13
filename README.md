@@ -1,3 +1,7 @@
+**Quote of the Day: Fighter of Bulls, and Mental Illness, Leaves Ring**\
+`Quotation of the Day for Thursday, November 13, 2025.`\
+https://nytimes.com/2025/11/12/pageoneplus/quote-of-the-day-fighter-of-bulls-and-mental-illness-leaves-ring.html
+
 **Tuomas Iisalo calls out Grizzlies for poor effort in 36-point loss to Celtics**\
 `The Grizzlies have lost seven of their last eight games, but Iisalo said losses "shouldn’t be because of effort like tonight."`\
 https://nytimes.com/athletic/6803069/2025/11/12/tuomas-iisalo-grizzlies-effort-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/11/12/nyregion/inertia-penn-station-trump.h
 **The D.N.C. Ordered Workers Back to the Office. Its Union Isn’t Pleased.**\
 `Thumbs-down emojis flowed onscreen as Washington-area employees learned they would have to show up five days a week. Their union called the move “callous.”`\
 https://nytimes.com/2025/11/12/us/politics/dnc-return-to-office-ken-martin.html
-
-**Michael Ray Richardson, N.B.A. Star Derailed by Cocaine, Dies at 70**\
-`A four-time All-Star, he dazzled fans, and fellow players, with his intense play for the New York Knicks, only to become the league’s first player to be barred for drug use.`\
-https://nytimes.com/2025/11/12/sports/basketball/michael-ray-richardson-dead.html
 
