@@ -1,3 +1,11 @@
+**Nikola Jokić scores 52 points through first three quarters vs. Clippers**\
+`Jokic finished with 55 for his fifth career 50-point game, but the first that came in a Nuggets win.`\
+https://nytimes.com/athletic/6803348/2025/11/13/nikola-jokic-55-points-clippers-nuggets/
+
+**Eddie Hearn on Saudi money, the 'enjoyable' chaos of Al-Sheikh, and his boxing regrets**\
+`Exclusive: Promoter reveals what it's like to work with boxing's new powerhouse and the sport's 'toxic' social media culture`\
+https://nytimes.com/athletic/6797676/2025/11/13/eddie-hearn-opens-up-on-saudi-money-the-enjoyable-chaos-of-al-sheikh-and-his-boxing-regrets/
+
 **China Looks Strong. Life Here Tells a Different Story.**\
 `Despair about dimming economic and personal prospects has created an outwardly strong, inwardly brittle nation.`\
 https://nytimes.com/2025/11/13/opinion/china-politics-social-public-mood.html
