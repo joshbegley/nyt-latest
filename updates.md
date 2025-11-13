@@ -1,3 +1,11 @@
+**'There was a huge boom and my body shook,' - The Stade de France terrorist attacks, ten years on**\
+`The 2015 Stade de France suicide bombings marked the start of a terrorist attack in Paris that left 130 people dead and over 400 injured`\
+https://nytimes.com/athletic/6801059/2025/11/13/state-de-france-bataclan-terrorist-attacks/
+
+**Cape Verde, Uzbekistan, Jordan... What can we expect from a World Cup with more footballing minnows?**\
+`Lots of mismatches or more chances for seismic shocks? Nick Miller considers how an expanded tournament will impact what we see on the pitch`\
+https://nytimes.com/athletic/6764917/2025/11/13/world-cup-minnows-first-timers/
+
 **Elliott, Villa and Liverpool: What we're hearing**\
 `Explaining why the on-loan attacker is so out of favour under Unai Emery and what this situation means for his future`\
 https://nytimes.com/athletic/6800574/2025/11/13/harvey-elliott-liverpool-aston-villa-transfer/
