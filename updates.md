@@ -1,3 +1,11 @@
+**The Government Reopened**\
+`Also, Ukraine is facing a dilemma in Pokrovsk. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/11/13/briefing/the-government-reopened.html
+
+**Oklahoma Governor Commutes Inmate’s Death Sentence Just Before Execution**\
+`The death-row inmate, Tremane Wood, 46, had already had his last meal. It was only the second time Gov. Kevin Stitt has stepped in to stop an execution.`\
+https://nytimes.com/2025/11/13/us/oklahoma-execution-tremane-wood.html
+
 **Jets place WR Garrett Wilson on injured reserve with knee injury**\
 `Wilson will miss at least the next four games.`\
 https://nytimes.com/athletic/6805681/2025/11/13/new-york-jets-garrett-wilson-injured-reserve-knee/

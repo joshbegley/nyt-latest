@@ -1,3 +1,11 @@
+**The Government Reopened**\
+`Also, Ukraine is facing a dilemma in Pokrovsk. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/11/13/briefing/the-government-reopened.html
+
+**Oklahoma Governor Commutes Inmate’s Death Sentence Just Before Execution**\
+`The death-row inmate, Tremane Wood, 46, had already had his last meal. It was only the second time Gov. Kevin Stitt has stepped in to stop an execution.`\
+https://nytimes.com/2025/11/13/us/oklahoma-execution-tremane-wood.html
+
 **Jets place WR Garrett Wilson on injured reserve with knee injury**\
 `Wilson will miss at least the next four games.`\
 https://nytimes.com/athletic/6805681/2025/11/13/new-york-jets-garrett-wilson-injured-reserve-knee/
@@ -13,12 +21,4 @@ https://nytimes.com/2025/11/13/opinion/christian-nationalism.html
 **BBC Apologizes to Trump but Refuses to Pay Compensation**\
 `The BBC said it would not rebroadcast a misleadingly edited documentary but added, “We strongly disagree there is a basis for a defamation claim.”`\
 https://nytimes.com/2025/11/13/world/europe/bbc-apology-trump.html
-
-**What Do Artists Bring to a Potluck?**\
-`In her SoHo loft, Joan Jonas hosted a dinner celebrating the American Academy of Arts and Letters’ turn to public programming.`\
-https://nytimes.com/2025/11/13/t-magazine/joan-jonas-soho-loft.html
-
-**Texas A&M Tightens Rules on Talking About Race and Gender in Classes**\
-`The university system will ban advocacy of “race or gender ideology, or topics related to sexual orientation or gender identity” without approval.`\
-https://nytimes.com/2025/11/13/us/texas-am-gender-race-ideology-rules-classroom.html
 
