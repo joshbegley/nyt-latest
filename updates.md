@@ -1,3 +1,7 @@
+**'There was a huge boom and my body shook': The Stade de France terrorist attacks, 10 years on**\
+`The 2015 Stade de France suicide bombings marked the start of a terrorist attack in Paris that left 130 people dead and over 400 injured`\
+https://nytimes.com/athletic/6801059/2025/11/13/state-de-france-bataclan-terrorist-attacks/
+
 **Remembering Shane Warne: 'The biggest cricketing superstar of the lot'**\
 `Shane Keith Warne transcended his sport like few other cricketers – he will be mourned during the first Ashes Down Under since his passing `\
 https://nytimes.com/athletic/6787575/2025/11/13/shane-warne-the-ashes-australia-england/

@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6706491/2025/11/13/wrexham-supporters-trust-why-sti
 `The 21-year-old Argentina international looks likely to return to Real Madrid, but what kind of a deal can they make with Como?`\
 https://nytimes.com/athletic/6801094/2025/11/13/real-madrid-nico-paz-transfer-como/
 
-**'There was a huge boom and my body shook,' - The Stade de France terrorist attacks, ten years on**\
+**'There was a huge boom and my body shook': The Stade de France terrorist attacks, 10 years on**\
 `The 2015 Stade de France suicide bombings marked the start of a terrorist attack in Paris that left 130 people dead and over 400 injured`\
 https://nytimes.com/athletic/6801059/2025/11/13/state-de-france-bataclan-terrorist-attacks/
 
