@@ -1,3 +1,7 @@
+**Multiple MLB teams interested in trading for Royals' Kris Bubic: Sources**\
+`The Royals, who possess some pitching depth and need offensive help, are open to the possibility of dealing the lefty starter.`\
+https://nytimes.com/athletic/6805414/2025/11/13/royals-kris-bubic-trade-talks-mlb/
+
 **Rosalía’s ‘Lux’ Is Complex and Introspective — and Also Pop**\
 `Rosalía’s fourth album, which was released on Nov. 7, demands your attention. The avant-garde pop superstar promises it’s worth it.`\
 https://nytimes.com/video/podcasts/100000010520023/rosalias-lux-is-complex-and-introspective-and-also-pop.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6804860/2025/11/13/ryan-reynolds-colombian-soccer/
 **A First Look at the Fall’s Biggest Restaurant Openings**\
 `Scoring the season’s hardest reservations at Wild Cherry, Babbo and the Eighty Six.`\
 https://nytimes.com/2025/11/13/dining/a-first-look-at-the-falls-biggest-restaurant-openings.html
-
-**Rubiales has eggs thrown at him by his uncle during book event in Madrid**\
-`The 48-year-old was speaking about his new book, 'Matar a Rubiales' (Killing Rubiales), at an event in Madrid on Thursday.`\
-https://nytimes.com/athletic/6805136/2025/11/13/luis-rubiales-uncle-eggs-madrid/
 

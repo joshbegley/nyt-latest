@@ -1,3 +1,7 @@
+**Multiple MLB teams interested in trading for Royals' Kris Bubic: Sources**\
+`The Royals, who possess some pitching depth and need offensive help, are open to the possibility of dealing the lefty starter.`\
+https://nytimes.com/athletic/6805414/2025/11/13/royals-kris-bubic-trade-talks-mlb/
+
 **Rosalía’s ‘Lux’ Is Complex and Introspective — and Also Pop**\
 `Rosalía’s fourth album, which was released on Nov. 7, demands your attention. The avant-garde pop superstar promises it’s worth it.`\
 https://nytimes.com/video/podcasts/100000010520023/rosalias-lux-is-complex-and-introspective-and-also-pop.html
