@@ -1,3 +1,15 @@
+**Leeds face the Premier League's hardest 10-game fixture run. Have they missed an opportunity?**\
+`Leeds had the third easiest opening 10 games of the season. They now have the toughest 10-game run of anyone`\
+https://nytimes.com/athletic/6801056/2025/11/13/leeds-fixtures-analysis-hardest/
+
+**The Wrexham Supporters Trust: Still needed post-takeover – and helping out U.S. fans**\
+`The Wrexham Supporters Trust used to own the club, but they still have purpose despite the Hollywood takeover`\
+https://nytimes.com/athletic/6706491/2025/11/13/wrexham-supporters-trust-why-still-needed/
+
+**How can Real Madrid bring Nico Paz back from Como?**\
+`The 21-year-old Argentina international looks likely to return to Real Madrid, but what kind of a deal can they make with Como?`\
+https://nytimes.com/athletic/6801094/2025/11/13/real-madrid-nico-paz-transfer-como/
+
 **'There was a huge boom and my body shook,' - The Stade de France terrorist attacks, ten years on**\
 `The 2015 Stade de France suicide bombings marked the start of a terrorist attack in Paris that left 130 people dead and over 400 injured`\
 https://nytimes.com/athletic/6801059/2025/11/13/state-de-france-bataclan-terrorist-attacks/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6783520/2025/11/13/tactics-board-3-4-3-formation/
 **Inside the 'Bitcoin club' targeting the Premier League - and where that leaves their neighbours**\
 `Backed by the U.S. investment of the Winklevoss twins, Real Bedford are a club on the up. But what does it mean for Bedford Town next door?`\
 https://nytimes.com/athletic/6699911/2025/11/13/inside-the-bitcoin-club-targeting-the-premier-league-and-what-it-means-for-their-neighbours/
-
-**Trump Signs Bill to End Government Shutdown**\
-`President Trump signed a funding bill to end the longest shutdown in U.S. history shortly after the House of Representatives passed the spending package in a 222-209 vote.`\
-https://nytimes.com/video/us/politics/100000010521533/trump-government-shutdown-news.html
-
-**How France Remembers the November 2015 Terrorist Attacks in Paris**\
-`A decade ago, Islamic State militants killed 130 people in an assault that shocked France. Some survivors are still struggling, but for many of their compatriots, memories of the attacks are growing more distant.`\
-https://nytimes.com/2025/11/13/world/europe/france-paris-terrorist-attacks-anniversary.html
-
-**Skaggs attorney accuses Angels VP of perjury, plans to subpoena MLB**\
-`Angels attorney denies witness committed perjury, but judge indicates she will hear arguments on issue when trial resumes Friday.`\
-https://nytimes.com/athletic/6803173/2025/11/13/skaggs-angels-witness-accused-perjury/
 
