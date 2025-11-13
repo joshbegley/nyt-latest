@@ -1,3 +1,15 @@
+**How Every House Member Voted on the Bill to Reopen the Government**\
+`The House voted mostly along party lines to end the longest government shutdown in U.S. history.`\
+https://nytimes.com/interactive/2025/11/12/us/house-shutdown-vote.html
+
+**Blue Jays reportedly targeting high-leverage relief after postseason bullpen issues**\
+`In the postseason, Toronto relievers posted a 4.44 ERA, ranking 10th of 12 postseason teams.`\
+https://nytimes.com/athletic/6802735/2025/11/12/blue-jays-relief-after-bullpen-issues/
+
+**Warriors adjust starting lineup after slow start to season: 'It's that we're not in sync.'**\
+`Kerr reflected on the Warriors' early-season struggles as he changed their starting lineup: "We're not in sync."`\
+https://nytimes.com/athletic/6802685/2025/11/12/draymond-green-comments-warriors-lineup-steve-kerr/
+
 **Northern Lights Are Beautiful, but They’re Risky for Satellites**\
 `At least one space launch has been put on hold, as satellite operators and rocket companies manage the effects of the current geomagnetic storm hitting Earth.`\
 https://nytimes.com/2025/11/12/science/northern-lights-solar-satellites.html
