@@ -1,3 +1,7 @@
+**Pistons' 8 straight wins show 'what's brewing in that locker room is special'**\
+`Missing four starters, Detroit beat the Bulls behind key contributions from role players like Paul Reed. It proved their depth and cohesion.`\
+https://nytimes.com/athletic/6803500/2025/11/13/pistons-win-streak-injuries-bulls/
+
 **Pioneering U.S. Street Photography, With Vienna in the Background**\
 `Lisette Model’s candid and cruel portraits spawned an American genre. But the key to understanding her might lie in Europe, where she was born.`\
 https://nytimes.com/2025/11/13/arts/design/lisette-model-albertina-veinna.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6802286/2025/11/13/louisville-college-basketball-mi
 **Which prospects do Twins need to protect from Rule 5 draft? Must-adds, tough calls**\
 `Ranking the most prominent Twins prospects who would be eligible for the Rule 5 draft if they aren’t added to the 40-man roster.`\
 https://nytimes.com/athletic/6795227/2025/11/13/twins-rule-5-draft-candidates-connor-prielipp/
-
-**College football Week 12 oddly specific predictions: USC stumbles in trap game, Alabama surges**\
-`Will Georgia knock Texas out of CFP contention in a rematch of last year's SEC championship game?`\
-https://nytimes.com/athletic/6798666/2025/11/13/college-football-predictions-week-11-2/
 
