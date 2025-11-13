@@ -1,3 +1,15 @@
+**Until Saturday: The country's hardest team to judge**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6804841/2025/11/13/texas-georgia-college-football-playoff-until-saturday/
+
+**France Commemorates 10th Anniversary of Paris Terror Attacks**\
+`Several memorials were held in honor of the more than 130 people who were killed by Islamic State militants in coordinated attacks in and around Paris in 2015.`\
+https://nytimes.com/video/world/europe/100000010522470/paris-terror-attacks-anniversary.html
+
+**Sources: MLS, Apple TV to bring games outside of extra paywall in 2026**\
+`Beginning next season, MLS games will be even more accessible via Apple TV`\
+https://nytimes.com/athletic/6804777/2025/11/13/mls-apple-tv-end-paywall-season-pass/
+
 **Source: MLS, Apple TV to bring games outside of extra paywall in 2026**\
 `Beginning next season, MLS games will be even more accessible via Apple TV`\
 https://nytimes.com/athletic/6804777/2025/11/13/mls-apple-tv-end-paywall-season-pass/
