@@ -1,3 +1,15 @@
+**AI: Business & Tech**\
+``\
+https://nytimes.com/spotlight/ai-business-tech
+
+**F1 Academy: Teams to continue supporting series, Cadillac to join grid in 2027**\
+`The all-women series had its inaugural season in 2023 and sees each F1 team support a driver.`\
+https://nytimes.com/athletic/6804246/2025/11/13/f1-academy-teams-cadillac/
+
+**The Bounce: Was Nico Harrison scapegoated? Plus, remembering the vetoed CP3 trade**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6804310/2025/11/13/the-bounce-nico-harrison-jason-kidd-nba/
+
 **Dozens Are Hospitalized After Ammonia Leak in Oklahoma**\
 `Authorities said a tanker truck parked outside a hotel in Weatherford, Okla., was leaking ammonia on Wednesday night, prompting evacuations.`\
 https://nytimes.com/2025/11/13/us/weatherford-ok-chemical-spill-ammonia.html
@@ -25,12 +37,4 @@ https://nytimes.com/athletic/6802289/2025/11/13/washington-commanders-stadium-ar
 **St. Brown says he didn't mean to offend with Trump dance**\
 `"First of all, if I offended anyone, I do apologize," St. Brown said on his podcast. "I did not mean to offend anyone."`\
 https://nytimes.com/athletic/6803942/2025/11/13/amon-ra-st-brown-trump-dance-apology/
-
-**Justice Dept. Struggled to Find Lawyers to Handle Maurene Comey Suit**\
-`Ms. Comey sued the Trump administration after she was abruptly fired over the summer, saying the action was retaliation. Federal attorneys in New York City and a Justice Department branch in Washington have declined to handle the case.`\
-https://nytimes.com/2025/11/13/nyregion/justice-department-maurene-comey-lawyers.html
-
-**Tiny Love Stories: ‘Ted and I Are Implausible Friends’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/11/13/style/tiny-modern-love-stories-ted-and-i-are-implausible-friends.html
 
