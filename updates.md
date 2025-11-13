@@ -1,3 +1,7 @@
+**Hannah Hidalgo's 44 points, 16 steals set Notre Dame and NCAA records**\
+`Hidalgo had one of the greatest games in her collegiate career in a blowout victory over Akron on Wednesday.`\
+https://nytimes.com/athletic/6803164/2025/11/13/hannah-hidalgo-16-steals-record/
+
 **'There was a huge boom and my body shook': The Stade de France terrorist attacks, 10 years on**\
 `The 2015 Stade de France suicide bombings marked the start of a terrorist attack in Paris that left 130 people dead and over 400 injured`\
 https://nytimes.com/athletic/6801059/2025/11/13/state-de-france-bataclan-terrorist-attacks/

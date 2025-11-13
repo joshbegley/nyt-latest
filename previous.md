@@ -1,3 +1,7 @@
+**Hannah Hidalgo's 44 points, 16 steals set Notre Dame and NCAA records**\
+`Hidalgo had one of the greatest games in her collegiate career in a blowout victory over Akron on Wednesday.`\
+https://nytimes.com/athletic/6803164/2025/11/13/hannah-hidalgo-16-steals-record/
+
 **Remembering Shane Warne: 'The biggest cricketing superstar of the lot'**\
 `Shane Keith Warne transcended his sport like few other cricketers – he will be mourned during the first Ashes Down Under since his passing `\
 https://nytimes.com/athletic/6787575/2025/11/13/shane-warne-the-ashes-australia-england/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6800574/2025/11/13/harvey-elliott-liverpool-aston-v
 **England know seven of their World Cup XI. What about the rest?**\
 `England's games this week are both dead rubbers but will be instructive in shaping their plans for next year's tournament`\
 https://nytimes.com/athletic/6789780/2025/11/13/england-world-cup-team-thomas-tuchel/
-
-**Is 'Premflix' the future of Premier League streaming?**\
-`Piracy is a threat to the way football operates. So what is likely to change and is a direct-to-consumer model, like Netflix, viable?`\
-https://nytimes.com/athletic/6742756/2025/11/13/premier-league-streaming-premflix/
 
