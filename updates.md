@@ -1,3 +1,7 @@
+**Paul Skenes’ evolution into a unanimous Cy Young winner, in 14 steps**\
+`Skenes is the second pitcher in MLB history, along with Dwight Gooden, to win Rookie of the Year and Cy Young in consecutive seasons.`\
+https://nytimes.com/athletic/6802147/2025/11/12/paul-skenes-cy-young-award-history/
+
 **Britain Gives Go-Ahead to Smaller Nuclear Reactor in Wales**\
 `The government pledged 2.5 billion pounds for initial site work, but the decision to build a small, modular design may disappoint others, including the U.S. nuclear industry.`\
 https://nytimes.com/2025/11/12/business/uk-nuclear-power-plant.html

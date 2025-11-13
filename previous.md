@@ -1,3 +1,7 @@
+**Paul Skenes’ evolution into a unanimous Cy Young winner, in 14 steps**\
+`Skenes is the second pitcher in MLB history, along with Dwight Gooden, to win Rookie of the Year and Cy Young in consecutive seasons.`\
+https://nytimes.com/athletic/6802147/2025/11/12/paul-skenes-cy-young-award-history/
+
 **Tigers' Tarik Skubal becomes first back-to-back AL Cy Young winner since Pedro Martínez**\
 `A year after winning the 2024 AL Cy Young Award, Skubal proved his dominance was no fluke in 2025. `\
 https://nytimes.com/athletic/6795407/2025/11/12/tigers-tarik-skubal-becomes-first-back-to-back-al-cy-young-winner-since-pedro-martinez/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6795116/2025/11/12/houston-astros-anthony-iapoce-hi
 **Catholic Bishops Rebuke U.S. ‘Mass Deportation’ of Immigrants**\
 `In a rare statement, the bishops framed the immigration crisis in starkly moral terms. “We feel compelled now in this environment to raise our voices in defense of God-given human dignity,” they said.`\
 https://nytimes.com/2025/11/12/us/bishops-trump-immigration.html
-
-**Indigenous Protesters Clash With Guards at U.N. Climate Summit**\
-`Dozens of Indigenous protesters burst into the COP30 summit in Brazil on Tuesday, demanding preservation of their lands. Other Indigenous leaders who took part in the summit said the protesters did not represent the broader movement.`\
-https://nytimes.com/video/world/americas/100000010521226/indigenous-protesters-clash-with-guards-at-un-climate-summit.html
 
