@@ -1,3 +1,7 @@
+**Jason Kidd: Fans' 'Fire Nico' chants 'disrespected' Mavericks players**\
+`"It’s hard to keep guys here when they start to think the home team is not home," Kidd said before Wednesday's game.`\
+https://nytimes.com/athletic/6802586/2025/11/12/nico-harrison-firing-league-reaction-jason-kidd/
+
 **Blue Jays targeting high-leverage relief after postseason bullpen issues: Sources**\
 `Toronto will likely be shopping in the same bullpen tier as the Dodgers for pitchers like Devin Williams, Pete Fairbanks and Phil Maton.`\
 https://nytimes.com/athletic/6802735/2025/11/12/blue-jays-relief-after-bullpen-issues/

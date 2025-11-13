@@ -1,3 +1,7 @@
+**Jason Kidd: Fans' 'Fire Nico' chants 'disrespected' Mavericks players**\
+`"It’s hard to keep guys here when they start to think the home team is not home," Kidd said before Wednesday's game.`\
+https://nytimes.com/athletic/6802586/2025/11/12/nico-harrison-firing-league-reaction-jason-kidd/
+
 **As the Astros seek to 'firm up' their outfield, Cam Smith must prove he's part of it**\
 `Smith has moved into a more precarious position within Houston’s organizational hierarchy. He must match his potential to change that.`\
 https://nytimes.com/athletic/6802825/2025/11/12/houston-astros-cam-smith-outfield-potential-outlook/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6802486/2025/11/12/cleveland-guardians-scandal-emma
 **Braves like Ha-Seong Kim and he likes them, but there's business and Scott Boras**\
 `With Boras as his agent, the chances of Kim taking a "hometown discount" to stay in Atlanta, where he only spent a month, seem remote.`\
 https://nytimes.com/athletic/6802474/2025/11/12/braves-ha-seong-kim-scott-boras/
-
-**Congress Clears Bill to End Nation’s Longest Shutdown**\
-`The 222-to-209 House vote sent the legislation to President Trump’s desk, heralding an end to the shutdown after 43 days.`\
-https://nytimes.com/2025/11/12/us/politics/government-shutdown-vote-trump.html
 
