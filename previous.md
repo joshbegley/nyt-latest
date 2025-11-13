@@ -1,3 +1,15 @@
+**Man Who Visited Alina Habba’s Office With a Bat Remains at Large**\
+`The man appeared outside the office of the U.S. attorney in New Jersey on Wednesday evening and was later allowed to enter the building without the bat. Law enforcement authorities are seeking his arrest.`\
+https://nytimes.com/2025/11/13/nyregion/man-who-visited-alina-habbas-office-with-a-bat-remains-at-large.html
+
+**College football picks against the spread: SEC old guard take on newcomers**\
+`The SEC has two big showdowns that could reshape the College Football Playoff race.`\
+https://nytimes.com/athletic/6801901/2025/11/13/college-football-picks-spread-alabama-oklahoma-georgia-texas/
+
+**‘The Running Man’ Review: Glen Powell Plays for His Life**\
+`The actor stars as an Everyman battling it out in a near-future but familiarly dystopian America in the director Edgar Wright’s new version of the Stephen King novel.`\
+https://nytimes.com/2025/11/13/movies/the-running-man-review-glen-powell-edgar-wright.html
+
 **Zohran Mamdani and the Future of New York**\
 `Readers discuss Zohran Mamdani’s election as mayor of New York, and have plenty of advice for him. Also: Thoughts about exercise.`\
 https://nytimes.com/2025/11/13/opinion/zohran-mamdani-new-york.html
@@ -25,12 +37,4 @@ https://nytimes.com/video/world/europe/100000010522470/paris-terror-attacks-anni
 **Sources: MLS, Apple TV to bring games outside of extra paywall in 2026**\
 `Beginning next season, MLS games will be even more accessible via Apple TV`\
 https://nytimes.com/athletic/6804777/2025/11/13/mls-apple-tv-end-paywall-season-pass/
-
-**Seidler family begins exploring potential sale of San Diego Padres**\
-`The family of late San Diego Padres owner Peter Seidler announced on Thursday it had begun exploring strategic options for the team.`\
-https://nytimes.com/athletic/6804792/2025/11/13/padres-sale-san-diego-seidler-family/
-
-**Maple Leafs shake up roster amid injuries to Matthews, Stolarz**\
-`The loss of Auston Matthews will put added pressure on Leafs' centre depth as Dennis Hildeby gets start in goal. `\
-https://nytimes.com/athletic/6804675/2025/11/13/maple-leafs-roster-injury-matthews-stolarz/
 
