@@ -1,3 +1,15 @@
+**Remembering Shane Warne: 'The biggest cricketing superstar of the lot'**\
+`Shane Keith Warne transcended his sport like few other cricketers – he will be mourned during the first Ashes Down Under since his passing `\
+https://nytimes.com/athletic/6787575/2025/11/13/shane-warne-the-ashes-australia-england/
+
+**Eliud Kipchoge exclusive interview: Breaking records, the sub-two-hour marathon and his new 'World Tour'**\
+`The Kenyan speaks to The Athletic about his long list of achievements, and what comes next as he moves deeper into his forties`\
+https://nytimes.com/athletic/6797908/2025/11/13/eliud-kipchoge-exclusive-interview/
+
+**Memories of Brighton's old training facilities: Clearing dog s***, sharing with students and pitches like concrete**\
+`Brighton's £32m training centre is a world away from the 1990s when the club was surviving on a shoestring`\
+https://nytimes.com/athletic/6612716/2025/11/13/brighton-training-ground-memories/
+
 **Leeds face the Premier League's hardest 10-game fixture run. Have they missed an opportunity?**\
 `Leeds had the third easiest opening 10 games of the season. They now have the toughest 10-game run of anyone`\
 https://nytimes.com/athletic/6801056/2025/11/13/leeds-fixtures-analysis-hardest/
