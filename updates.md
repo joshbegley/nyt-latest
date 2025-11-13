@@ -1,3 +1,11 @@
+**For Some, ‘the New American Dream Is to Leave’**\
+`An online debate began when a European man lampooned the concept of American culture. Then a lot of Americans began agreeing with him.`\
+https://nytimes.com/2025/11/13/style/new-american-dream-tiktok.html
+
+**In Defense of Tofusgiving**\
+`A new vegan pie recipe and plenty of tofu-packed dishes for Thanksgiving.`\
+https://nytimes.com/2025/11/13/dining/in-defense-of-tofusgiving.html
+
 **English FA calls for 'overhaul' of European qualifying for World Cups and Euros**\
 `England qualified for next summer's World Cup with two matches to spare in their group, and have not lost a World Cup qualifier since 2009.`\
 https://nytimes.com/athletic/6805030/2025/11/13/world-cup-qualifying-europe-change/
