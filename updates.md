@@ -1,3 +1,7 @@
+**Former Aide to Gavin Newsom Charged With Corruption**\
+`Dana Williamson, a top Democratic consultant in California, was accused of conspiring to skim over $200,000 in campaign funds that belonged to a Biden administration official.`\
+https://nytimes.com/2025/11/12/us/newsom-aide-corruption-charges.html
+
 **Carbon Dioxide Emissions Head for Another Record in 2025**\
 `But there are signs that greenhouse gas pollution in China might be slowing, according to a new analysis.`\
 https://nytimes.com/2025/11/12/climate/greenhouse-gas-emissions-china.html

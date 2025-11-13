@@ -1,3 +1,7 @@
+**Former Aide to Gavin Newsom Charged With Corruption**\
+`Dana Williamson, a top Democratic consultant in California, was accused of conspiring to skim over $200,000 in campaign funds that belonged to a Biden administration official.`\
+https://nytimes.com/2025/11/12/us/newsom-aide-corruption-charges.html
+
 **Carbon Dioxide Emissions Head for Another Record in 2025**\
 `But there are signs that greenhouse gas pollution in China might be slowing, according to a new analysis.`\
 https://nytimes.com/2025/11/12/climate/greenhouse-gas-emissions-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/12/world/middleeast/iraq-elections.html
 **Russian Humanoid Robot Falls on Its Face in Hyped Debut**\
 `The robot, known as AIDOL, staggered onstage during a technology showcase in Moscow. Organizers blamed the mishap on calibration and lighting issues.`\
 https://nytimes.com/2025/11/12/technology/ai-robot-russia-falls.html
-
-**William Rataczak, Co-Pilot of Flight Hijacked by D.B. Cooper, Dies at 86**\
-`He was a witness to one of the most riveting unsolved crimes in American history, which inspired scores of conspiracy theories and obsessed amateur sleuths.`\
-https://nytimes.com/2025/11/12/us/william-rataczak-dead.html
 
