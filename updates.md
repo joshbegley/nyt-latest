@@ -1,3 +1,15 @@
+**St. Brown says he didn't mean to offend with with Trump dance**\
+`"First of all, if I offended anyone, I do apologize," St. Brown said on his podcast. "I did not mean to offend anyone."`\
+https://nytimes.com/athletic/6803942/2025/11/13/amon-ra-st-brown-trump-dance-apology/
+
+**Justice Dept. Struggled to Find Lawyers to Handle Maurene Comey Suit**\
+`Ms. Comey sued the Trump administration after she was abruptly fired over the summer, saying the action was retaliation. Federal attorneys in New York City and a Justice Department branch in Washington have declined to handle the case.`\
+https://nytimes.com/2025/11/13/nyregion/justice-department-maurene-comey-lawyers.html
+
+**Tiny Love Stories: ‘Ted and I Are Implausible Friends’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/11/13/style/tiny-modern-love-stories-ted-and-i-are-implausible-friends.html
+
 **Larry Brooks, Hockey Hall of Fame writer at New York Post, dies at 75**\
 `Brooks, who entered the Hockey Hall of Fame in 2018, began writing for the Post in 1976 and started covering the Rangers in 1978.`\
 https://nytimes.com/athletic/6804005/2025/11/13/larry-brooks-new-york-post-dies-obituary/
