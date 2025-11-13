@@ -1,3 +1,11 @@
+**Quote of the Day: Fighter of Bulls, and Mental Illness, Leaves Ring**\
+`Quotation of the Day for Thursday, November 13, 2025.`\
+https://nytimes.com/2025/11/12/pageoneplus/quote-of-the-day-fighter-of-bulls-and-mental-illness-leaves-ring.html
+
+**Tuomas Iisalo calls out Grizzlies for poor effort in 36-point loss to Celtics**\
+`The Grizzlies have lost seven of their last eight games, but Iisalo said losses "shouldn’t be because of effort like tonight."`\
+https://nytimes.com/athletic/6803069/2025/11/12/tuomas-iisalo-grizzlies-effort-nba/
+
 **Magic's Paolo Banchero to undergo MRI for groin strain after exiting vs. Knicks**\
 `"I just slowed up, and I felt it right away," Banchero said of his injury, which occurred when he pursued a rebound in the second quarter.`\
 https://nytimes.com/athletic/6803122/2025/11/12/paolo-banchero-groin-injury-magic-nba/
