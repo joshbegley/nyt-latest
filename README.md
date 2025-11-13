@@ -1,4 +1,8 @@
-**The Windup: Awards season is here. Plus: The latest on Ortiz, Clase.**\
+**Prescott discusses Kneeland, Cowboys returning to practice and coping with loss**\
+`"We’re not forgetting, but we’re moving forward and carrying on the light,” Prescott said of the team handling Marshawn Kneeland's death.`\
+https://nytimes.com/athletic/6805078/2025/11/13/dak-prescott-marshawn-kneeland-death-cowboys/
+
+**The Windup: Awards season is here. Plus: The latest on Ortiz, Clase**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6805608/2025/11/13/mlb-awards-season-the-windup/
 
@@ -21,8 +25,4 @@ https://nytimes.com/2025/11/13/us/politics/snap-benefits-food-stamps-shutdown-up
 **Infant Formula Company Tied to Botulism Outbreak Had Known Problems**\
 `A Pennsylvania plant run by the company, ByHeart, was shut down this year after inspectors found mold, a leaking roof and more than 2,500 dead insects in a food production area.`\
 https://nytimes.com/2025/11/13/health/infant-formula-botulism.html
-
-**For Some Nuns, Baking Is an Act of Devotion**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/nuns-convent-sweets-spain
 
