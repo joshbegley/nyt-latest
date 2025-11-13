@@ -1,3 +1,11 @@
+**St. Brown says he didn't mean to offend with with Trump dance**\
+`"First of all, if I offended anyone, I do apologize," St. Brown said on his podcast. "I did not mean to offend anyone."`\
+https://nytimes.com/athletic/6803942/2025/11/13/amon-ra-st-brown-trump-dance-apology/
+
+**Justice Dept. Struggled to Find Lawyers to Handle Maurene Comey Suit**\
+`Ms. Comey sued the Trump administration after she was abruptly fired over the summer, saying the action was retaliation. Federal attorneys in New York City and a Justice Department branch in Washington have declined to handle the case.`\
+https://nytimes.com/2025/11/13/nyregion/justice-department-maurene-comey-lawyers.html
+
 **Tiny Love Stories: ‘Ted and I Are Implausible Friends’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/11/13/style/tiny-modern-love-stories-ted-and-i-are-implausible-friends.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6801587/2025/11/13/como-cesc-fabregas-mirwan-suwars
 **Another first for Paul Skenes: Signing baseball cards in Kanji**\
 `Kanji autographs have become a hot trend in baseball cards thanks largely to Shohei Ohtani. Now Skenes is joining in. `\
 https://nytimes.com/athletic/6801877/2025/11/13/paul-skenes-autograph-kanji-cards/
-
-**Fantasy trends and hidden gems: Week 7 slate favorable for Viktor Arvidsson, Bowen Byram**\
-`Shayna Goldman identifies the best fantasy hockey waiver-wire targets for capitalizing on the NHL's Week 7 scheduling advantages.`\
-https://nytimes.com/athletic/6802979/2025/11/13/fantasy-trends-gems-sleepers-waivers-week-7/
-
-**England to name Rogers as No 10 against Serbia, Jude Bellingham on bench**\
-`Thomas Tuchel explained during he will not be experimenting with his side for this month's matches.`\
-https://nytimes.com/athletic/6803947/2025/11/13/morgan-rogers-england-serbia/
 
