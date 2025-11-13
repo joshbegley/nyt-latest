@@ -1,3 +1,7 @@
+**The Government Reopened**\
+`Also, Ukraine is facing a dilemma in Pokrovsk. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/11/13/briefing/the-government-reopened.html
+
 **Oklahoma Governor Commutes Inmate’s Death Sentence Just Before Execution**\
 `The death-row inmate, Tremane Wood, 46, had already had his last meal. It was only the second time Gov. Kevin Stitt has stepped in to stop an execution.`\
 https://nytimes.com/2025/11/13/us/oklahoma-execution-tremane-wood.html
@@ -17,8 +21,4 @@ https://nytimes.com/2025/11/13/opinion/christian-nationalism.html
 **BBC Apologizes to Trump but Refuses to Pay Compensation**\
 `The BBC said it would not rebroadcast a misleadingly edited documentary but added, “We strongly disagree there is a basis for a defamation claim.”`\
 https://nytimes.com/2025/11/13/world/europe/bbc-apology-trump.html
-
-**What Do Artists Bring to a Potluck?**\
-`In her SoHo loft, Joan Jonas hosted a dinner celebrating the American Academy of Arts and Letters’ turn to public programming.`\
-https://nytimes.com/2025/11/13/t-magazine/joan-jonas-soho-loft.html
 
