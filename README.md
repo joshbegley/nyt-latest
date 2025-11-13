@@ -1,3 +1,11 @@
+**China Looks Strong. Life Here Tells a Different Story.**\
+`Despair about dimming economic and personal prospects has created an outwardly strong, inwardly brittle nation.`\
+https://nytimes.com/2025/11/13/opinion/china-politics-social-public-mood.html
+
+**The New York Times in Print for Thursday, Nov. 13, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/13/todays-new-york-times
+
 **Hannah Hidalgo's 44 points, 16 steals set Notre Dame and NCAA records**\
 `Hidalgo had one of the greatest games in her collegiate career in a blowout victory over Akron on Wednesday.`\
 https://nytimes.com/athletic/6803164/2025/11/13/hannah-hidalgo-16-steals-record/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6801094/2025/11/13/real-madrid-nico-paz-transfer-co
 **'There was a huge boom and my body shook': The Stade de France terrorist attacks, 10 years on**\
 `The 2015 Stade de France suicide bombings marked the start of a terrorist attack in Paris that left 130 people dead and over 400 injured`\
 https://nytimes.com/athletic/6801059/2025/11/13/state-de-france-bataclan-terrorist-attacks/
-
-**Elliott, Villa and Liverpool: What we're hearing**\
-`Explaining why the on-loan attacker is so out of favour under Unai Emery and what this situation means for his future`\
-https://nytimes.com/athletic/6800574/2025/11/13/harvey-elliott-liverpool-aston-villa-transfer/
-
-**England know seven of their World Cup XI. What about the rest?**\
-`England's games this week are both dead rubbers but will be instructive in shaping their plans for next year's tournament`\
-https://nytimes.com/athletic/6789780/2025/11/13/england-world-cup-team-thomas-tuchel/
 
