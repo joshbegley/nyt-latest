@@ -1,3 +1,7 @@
+**As the Astros seek to 'firm up' their outfield, Cam Smith must prove he's part of it**\
+`Smith has moved into a more precarious position within Houston’s organizational hierarchy. He must match his potential to change that.`\
+https://nytimes.com/athletic/6802825/2025/11/12/houston-astros-cam-smith-outfield-potential-outlook/
+
 **After Trump Split, Epstein Said He Could ‘Take Him Down’**\
 `Jeffrey Epstein cast himself as a Trump insider and wanted to leverage potentially damaging information about the president and his business dealings, according to emails with associates.`\
 https://nytimes.com/2025/11/12/us/epstein-emails-trump.html
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/6802685/2025/11/12/draymond-green-comments-warriors
 https://nytimes.com/2025/11/12/science/northern-lights-solar-satellites.html
 
 **How Yankees' Cody Bellinger, Trent Grisham decisions could cause major ripple effect**\
-`If both Bellinger and Grisham return to the Yankees, that could impact where Jasson Domínguez and Spencer Jones fit.`\
+`If Bellinger and Grisham return to the Yankees, that could impact where Jasson Domínguez and Spencer Jones fit.`\
 https://nytimes.com/athletic/6802407/2025/11/12/new-york-yankees-trent-grisham-cody-bellinger-decision-effects/
 
 **Public shrugs, private fury: Cleveland Guardians still trying to process betting scandal**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6802474/2025/11/12/braves-ha-seong-kim-scott-boras/
 **Congress Clears Bill to End Nation’s Longest Shutdown**\
 `The 222-to-209 House vote sent the legislation to President Trump’s desk, heralding an end to the shutdown after 43 days.`\
 https://nytimes.com/2025/11/12/us/politics/government-shutdown-vote-trump.html
-
-**Giants to hire Blue Jays assistant Hunter Mense as hitting coach**\
-`Mense played at Missouri when newly hired manager Tony Vitello was on the coaching staff.`\
-https://nytimes.com/athletic/6802583/2025/11/12/giants-hitting-coach-hunter-mense-jays-assistant/
 
