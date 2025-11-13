@@ -1,40 +1,40 @@
-**Luka Dončić expresses love for Dallas after Nico Harrison firing**\
-`While acknowledging his love for Dallas, Luka Dončić is focused on the future with his new team. `\
-https://nytimes.com/athletic/6805034/2025/11/13/luka-doncic-comments-nico-harrison-firing-lakers/
+**How to watch Jets vs. Kraken: Time, TV, streaming**\
+`Find out how to watch the Winnipeg Jets play the Seattle Kraken, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6805299/2025/11/13/jets-vs-kraken-stream-how-to-watch-nov-13/
 
-**Avs, goalie Scott Wedgewood agree to 1-year extension: Sources**\
-`The 33-year-old Wedgewood was in the final year of a two-year contract that carried an AAV of $1.5 million.`\
-https://nytimes.com/athletic/6805005/2025/11/13/avalanche-scott-wedgewood-contract-extension/
+**How to watch Pacers vs. Suns: Time, TV, streaming**\
+`Find out how to watch the Indiana Pacers play the Phoenix Suns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6805295/2025/11/13/pacers-vs-suns-stream-how-to-watch-nov-13/
 
-**‘Archduke’ Review: Impressionable Young Men**\
-`Rajiv Joseph’s farcical play follows the nationalists who carried out the assassination that ignited World War I.`\
-https://nytimes.com/2025/11/13/theater/archduke-review-rajiv-joseph.html
+**How to watch Hawks vs. Jazz: Time, TV, streaming**\
+`Find out how to watch the Atlanta Hawks play the Utah Jazz, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6805296/2025/11/13/hawks-vs-jazz-stream-how-to-watch-nov-13/
 
-**New Jersey Accuses Mob-Led Ring of Running Illegal Sports Gambling**\
-`The accusations follow recent federal charges filed against figures from Mafia families who were accused of running illegal poker games that involved former N.B.A. players.`\
-https://nytimes.com/2025/11/13/nyregion/new-jersey-sports-gambling-mob.html
+**How to watch Oilers vs. Blue Jackets: Time, TV, streaming**\
+`Find out how to watch the Edmonton Oilers play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6805292/2025/11/13/oilers-vs-blue-jackets-stream-how-to-watch-nov-13/
 
-**For Some, ‘the New American Dream Is to Leave’**\
-`An online debate began when a European man lampooned the concept of American culture. Then a lot of Americans began agreeing with him.`\
-https://nytimes.com/2025/11/13/style/new-american-dream-tiktok.html
+**How to watch Sharks vs. Flames: Time, TV, streaming**\
+`Find out how to watch the San Jose Sharks play the Calgary Flames, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6805290/2025/11/13/sharks-vs-flames-stream-how-to-watch-nov-13/
 
-**In Defense of Tofusgiving**\
-`A new vegan pie recipe and plenty of tofu-packed dishes for Thanksgiving.`\
-https://nytimes.com/2025/11/13/dining/in-defense-of-tofusgiving.html
+**How to watch Islanders vs. Golden Knights: Time, TV, streaming**\
+`Find out how to watch the New York Islanders play the Vegas Golden Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6805288/2025/11/13/islanders-vs-golden-knights-stream-how-to-watch-nov-13/
 
-**English FA calls for 'overhaul' of European qualifying for World Cups and Euros**\
-`England qualified for next summer's World Cup with two matches to spare in their group, and have not lost a World Cup qualifier since 2009.`\
-https://nytimes.com/athletic/6805030/2025/11/13/world-cup-qualifying-europe-change/
+**How to watch Sabres vs. Avalanche: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the Colorado Avalanche, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6805286/2025/11/13/sabres-vs-avalanche-stream-how-to-watch-nov-13/
 
-**20 Wines for the Thanksgiving Table**\
-`Picking beverages is the easy part. These bottles, from $16 to $40, are all versatile, lively and will pair easily with whatever is on the menu.`\
-https://nytimes.com/2025/11/13/dining/drinks/thanksgiving-wines.html
+**Seattle Elects a Left-Wing Mayor With a Light Résumé but Mamdani Appeal**\
+`Katie Wilson, who narrowly defeated the incumbent, Bruce Harrell, emerged from the city’s left-wing activist class and brings with her little experience in governing.`\
+https://nytimes.com/2025/11/13/us/politics/seattle-mayor.html
 
-**Family of Fisherman Killed in U.S. Military Strike Says It Wants Justice**\
-`Colombia was a top U.S. ally in Latin America until the Trump administration began deadly strikes in international waters. Now, one family wants justice.`\
-https://nytimes.com/2025/11/13/world/americas/trump-drug-boat-strikes-colombian-fisherman.html
+**The Dogs of 8,000 B.C. Were Amazingly Diverse**\
+`The staggering array of modern dog breeds is typically traced to the Victorian era. But half of all canine variation was in place roughly 10,000 years ago, a new study suggests.`\
+https://nytimes.com/2025/11/13/science/archaeology-wolves-dogs.html
 
-**Inside an After-Hours Film Bash for Sofia Coppola**\
-`The Museum of Modern Art’s annual film gala honored the writer and director, attracting a crowd that included Olivia Wilde, Bill Murray and David Letterman.`\
-https://nytimes.com/2025/11/13/style/sofia-coppola-moma-benefit.html
+**How to watch North Carolina vs. UCLA women's basketball: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6805252/2025/11/13/north-carolina-vs-ucla-stream-how-to-watch-nov-13/
 
