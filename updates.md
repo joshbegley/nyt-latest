@@ -1,3 +1,7 @@
+**After Cy Young win, Paul Skenes denies alleged desires to be traded to Yankees**\
+`On Wednesday night, Skenes said in no uncertain terms that he plans to be part of the Pirates' rebirth.`\
+https://nytimes.com/athletic/6803054/2025/11/12/pittsburgh-pirates-paul-skenes-new-york-yankees/
+
 **Grace College scores 172 points to set women's college basketball scoring record**\
 `The small school from Winona Lake, Ind., surpassed the previous record held by two schools, and it wasn't even close.`\
 https://nytimes.com/athletic/6802400/2025/11/12/grace-college-college-basketball-scoring-record/

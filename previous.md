@@ -1,3 +1,7 @@
+**After Cy Young win, Paul Skenes denies alleged desires to be traded to Yankees**\
+`On Wednesday night, Skenes said in no uncertain terms that he plans to be part of the Pirates' rebirth.`\
+https://nytimes.com/athletic/6803054/2025/11/12/pittsburgh-pirates-paul-skenes-new-york-yankees/
+
 **Grace College scores 172 points to set women's college basketball scoring record**\
 `The small school from Winona Lake, Ind., surpassed the previous record held by two schools, and it wasn't even close.`\
 https://nytimes.com/athletic/6802400/2025/11/12/grace-college-college-basketball-scoring-record/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6802586/2025/11/12/nico-harrison-firing-league-reac
 **As the Astros seek to 'firm up' their outfield, Cam Smith must prove he's part of it**\
 `Smith has moved into a more precarious position within Houston’s organizational hierarchy. He must match his potential to change that.`\
 https://nytimes.com/athletic/6802825/2025/11/12/houston-astros-cam-smith-outfield-potential-outlook/
-
-**After Trump Split, Epstein Said He Could ‘Take Him Down’**\
-`Jeffrey Epstein cast himself as a Trump insider and wanted to leverage potentially damaging information about the president and his business dealings, according to emails with associates.`\
-https://nytimes.com/2025/11/12/us/epstein-emails-trump.html
 
