@@ -1,3 +1,7 @@
+**Federal Workers Return After Longest Shutdown in History**\
+`Government employees were expecting to see paychecks again as early as Nov. 20 after six weeks in limbo.`\
+https://nytimes.com/2025/11/13/us/politics/shutdown-reopen-museums.html
+
 **Man Who Visited Alina Habba’s Office With a Bat Remains at Large**\
 `The man appeared outside the office of the U.S. attorney in New Jersey on Wednesday evening and was later allowed to enter the building without the bat. Law enforcement authorities are seeking his arrest.`\
 https://nytimes.com/2025/11/13/nyregion/man-who-visited-alina-habbas-office-with-a-bat-remains-at-large.html

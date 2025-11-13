@@ -1,3 +1,7 @@
+**Federal Workers Return After Longest Shutdown in History**\
+`Government employees were expecting to see paychecks again as early as Nov. 20 after six weeks in limbo.`\
+https://nytimes.com/2025/11/13/us/politics/shutdown-reopen-museums.html
+
 **Man Who Visited Alina Habba’s Office With a Bat Remains at Large**\
 `The man appeared outside the office of the U.S. attorney in New Jersey on Wednesday evening and was later allowed to enter the building without the bat. Law enforcement authorities are seeking his arrest.`\
 https://nytimes.com/2025/11/13/nyregion/man-who-visited-alina-habbas-office-with-a-bat-remains-at-large.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6804841/2025/11/13/texas-georgia-college-football-p
 **France Commemorates 10th Anniversary of Paris Terror Attacks**\
 `Several memorials were held in honor of the more than 130 people who were killed by Islamic State militants in coordinated attacks in and around Paris in 2015.`\
 https://nytimes.com/video/world/europe/100000010522470/paris-terror-attacks-anniversary.html
-
-**Sources: MLS, Apple TV to bring games outside of extra paywall in 2026**\
-`Beginning next season, MLS games will be even more accessible via Apple TV`\
-https://nytimes.com/athletic/6804777/2025/11/13/mls-apple-tv-end-paywall-season-pass/
 
