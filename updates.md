@@ -1,3 +1,15 @@
+**Kai Trump is not the solution to the LPGA’s problem**\
+`The No. 461 junior golfer in America was given a coveted sponsor exemption because of her last name and massive social media following.`\
+https://nytimes.com/athletic/6805164/2025/11/13/kai-trump-lpga-golf-annika-tournament/
+
+**Of Books and Men**\
+`My colleague, the book critic Dwight Garner, tells us about “Flesh” by David Szalay, this year’s Booker Prize winner.`\
+https://nytimes.com/2025/11/13/world/booker-prize-flesh-david-szalay-pakistan-trump.html
+
+**Yung Lean on Kanye West and Being Creative on Medication**\
+`The musician and actor Yung Lean discussed his mental health and journey to sobriety with hosts Jon Caramanica and Joe Coscarelli on the latest episode of “Popcast.”`\
+https://nytimes.com/video/podcasts/100000010520096/yung-lean-on-kanye-west-and-being-creative-on-medication.html
+
 **Multiple MLB teams interested in trading for Royals' Kris Bubic: Sources**\
 `The Royals, who possess some pitching depth and need offensive help, are open to the possibility of dealing the lefty starter.`\
 https://nytimes.com/athletic/6805414/2025/11/13/royals-kris-bubic-trade-talks-mlb/
