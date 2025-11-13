@@ -1,3 +1,15 @@
+**England to name Rogers as No 10 against Serbia, Jude Bellingham on bench**\
+`Thomas Tuchel explained during he will not be experimenting with his side for this month's matches.`\
+https://nytimes.com/athletic/6803947/2025/11/13/morgan-rogers-england-serbia/
+
+**Friendship, gamesmanship, or both? Ex-UF coach Napier visits Georgia practice before Texas game**\
+`Georgia coach Kirby Smart said it was no big deal, just two old friends getting together.`\
+https://nytimes.com/athletic/6803902/2025/11/13/billy-napier-georgia-florida-kirby-smart/
+
+**Senators re-sign Shane Pinto to 4-year, $7.5 million AAV extension**\
+`Pinto set career-highs in goals, scoring 21 goals and 37 points in 70 games last season with Ottawa.`\
+https://nytimes.com/athletic/6658131/2025/11/13/ottawa-senators-shane-pinto-contract-extension/
+
 **Friendship, gamesmanship, or both? Ex-UF coach Napier visits Georgia practice before UGA-Texas**\
 `Georgia coach Kirby Smart said it was no big deal, just two old friends getting together.`\
 https://nytimes.com/athletic/6803902/2025/11/13/billy-napier-georgia-florida-kirby-smart/

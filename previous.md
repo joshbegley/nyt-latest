@@ -1,4 +1,8 @@
-**Friendship, gamesmanship, or both? Ex-UF coach Napier visits Georgia practice before UGA-Texas**\
+**England to name Rogers as No 10 against Serbia, Jude Bellingham on bench**\
+`Thomas Tuchel explained during he will not be experimenting with his side for this month's matches.`\
+https://nytimes.com/athletic/6803947/2025/11/13/morgan-rogers-england-serbia/
+
+**Friendship, gamesmanship, or both? Ex-UF coach Napier visits Georgia practice before Texas game**\
 `Georgia coach Kirby Smart said it was no big deal, just two old friends getting together.`\
 https://nytimes.com/athletic/6803902/2025/11/13/billy-napier-georgia-florida-kirby-smart/
 
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6803902/2025/11/13/billy-napier-georgia-florida-kir
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6802020/2025/11/13/g5-college-football-playoff-rankings-the-pulse/
 
-**Senators re-sign Shane Pinto to 4-year, 7.5 million AAV extension: Sources**\
+**Senators re-sign Shane Pinto to 4-year, $7.5 million AAV extension**\
 `Pinto set career-highs in goals, scoring 21 goals and 37 points in 70 games last season with Ottawa.`\
 https://nytimes.com/athletic/6658131/2025/11/13/ottawa-senators-shane-pinto-contract-extension/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6802966/2025/11/13/pac-12-media-rights-usa-sports-d
 **Western Conference Panic Watch: How much should Warriors, Clippers and others be worried?**\
 `At this point of the season, it's much harder for teams to write off poor performances as a result of a small sample size.`\
 https://nytimes.com/athletic/6802914/2025/11/13/warriors-clippers-grizzlies-timberwolves-nba-panic/
-
-**The 12 biggest games in Sanford Stadium since 2000: Will Georgia-Texas join the list?**\
-`On the occasion of the Texas game, we asked a small, informal panel of longtime Georgia people for the biggest games played in Athens.`\
-https://nytimes.com/athletic/6802127/2025/11/13/georgia-football-sanford-stadium-best-games/
 
