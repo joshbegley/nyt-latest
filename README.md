@@ -1,3 +1,7 @@
+**Ronaldo receives first Portugal red card as World Cup hopes delayed by Ireland loss**\
+`The 40-year-old was red carded just before the hour mark of the game in Dublin after swinging an elbow at Ireland defender Dara O'Shea.`\
+https://nytimes.com/athletic/6805496/2025/11/13/cristiano-ronaldo-red-card-portugal-ireland/
+
 **Indiana Professor Removed From Class Over White Supremacy Lesson**\
 `The professor will no longer be able to teach a class on diversity after she showed students a diagram that included the “Make America Great Again” slogan as an example of white supremacy.`\
 https://nytimes.com/2025/11/13/us/indiana-university-professor-white-supremacy-lesson.html
@@ -21,8 +25,4 @@ https://nytimes.com/2025/11/13/world/booker-prize-flesh-david-szalay-pakistan-tr
 **Yung Lean on Kanye West and Being Creative on Medication**\
 `The musician and actor Yung Lean discussed his mental health and journey to sobriety with hosts Jon Caramanica and Joe Coscarelli on the latest episode of “Popcast.”`\
 https://nytimes.com/video/podcasts/100000010520096/yung-lean-on-kanye-west-and-being-creative-on-medication.html
-
-**Multiple MLB teams interested in trading for Royals' Kris Bubic: Sources**\
-`The Royals, who possess some pitching depth and need offensive help, are open to the possibility of dealing the lefty starter.`\
-https://nytimes.com/athletic/6805414/2025/11/13/royals-kris-bubic-trade-talks-mlb/
 
