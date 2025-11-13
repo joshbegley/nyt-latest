@@ -1,6 +1,14 @@
+**Science Practice | A Study on Color Perception**\
+`Is your red the same as my red? A study unveils what our brains knows about color.`\
+https://nytimes.com/2025/11/13/learning/science-practice-a-study-on-color-perception.html
+
+**Ultraprocessed Foods Linked to Colorectal Cancer Risk in Women Under 50**\
+`The study’s findings track with recent research on the alarming rise of the cancer in younger adults.`\
+https://nytimes.com/2025/11/13/well/eat/ultraprocessed-foods-colorectal-cancer-risk.html
+
 **A Man Took a Bus for a Joyride. Turns Out, He’s Not a Bad Driver.**\
 `The incident in Hamilton, Ontario, ended safely with an arrest and no injuries (and all fares paid).`\
-https://nytimes.com/2025/11/13/world/americas/hamilton-bus-stolen-canada.html
+https://nytimes.com/2025/11/13/world/canada/hamilton-bus-stolen-canada.html
 
 **Assault Case Against a Democratic House Member Can Proceed, Judge Rules**\
 `The judge concluded that Representative LaMonica McIver did not have legislative immunity from charges that grew out of a congressional oversight visit to a migrant jail in Newark.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6804310/2025/11/13/the-bounce-nico-harrison-jason-k
 **Dozens Are Hospitalized After Ammonia Leak in Oklahoma**\
 `Authorities said a tanker truck parked outside a hotel in Weatherford, Okla., was leaking ammonia on Wednesday night, prompting evacuations.`\
 https://nytimes.com/2025/11/13/us/weatherford-ok-chemical-spill-ammonia.html
-
-**Evgeni Malkin’s last stand? Penguins star's urgent intensity has Pittsburgh in playoff contention**\
-`This season has become playoffs or bust for Malkin — and so far, he's done everything in his power to get the Penguins there. `\
-https://nytimes.com/athletic/6803847/2025/11/13/penguins-evgeni-malkin-retirement-nhl-playoff-standings/
-
-**Let Us Help You Find Your Next Book: Historical Fiction**\
-`Whether you're looking for a classic or the latest and greatest, start here.`\
-https://nytimes.com/interactive/2025/books/historical-fiction-books.html
 
