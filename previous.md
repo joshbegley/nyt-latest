@@ -1,3 +1,7 @@
+**Juan Ponce Enrile, a Political Power in the Philippines, Dies at 101**\
+`A protégé of Ferdinand Marcos, he helped administer eight years of martial law before turning on his patron in the “People Power” uprising of 1986.`\
+https://nytimes.com/2025/11/13/world/asia/juan-ponce-enrile-dead.html
+
 **Pardon Me. I Am Not Done Committing Crimes.**\
 `One of the founders’ worst fears has been realized.`\
 https://nytimes.com/2025/11/13/opinion/trump-pardons-crimes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/13/learning/would-you-clone-your-pet.html
 **Wifredo Lam: Artist-Poet of Tropical Dreams and Sorrows**\
 `The great Cuban modernist, whose politics and Afro-Asian roots shaped his paintings and inspired generations of artists, gets a revelatory survey at MoMA.`\
 https://nytimes.com/2025/11/13/arts/design/wifredo-lam-retrospective-moma.html
-
-**Trump v. James and Maurene Comey**\
-`The legal precedent established by Maurene Comey’s case may turn out to be far more consequential than the finding in her father’s.`\
-https://nytimes.com/2025/11/13/opinion/trump-comey-james-maurene.html
 

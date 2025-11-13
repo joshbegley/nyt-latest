@@ -1,3 +1,7 @@
+**Juan Ponce Enrile, a Political Power in the Philippines, Dies at 101**\
+`A protégé of Ferdinand Marcos, he helped administer eight years of martial law before turning on his patron in the “People Power” uprising of 1986.`\
+https://nytimes.com/2025/11/13/world/asia/juan-ponce-enrile-dead.html
+
 **Pardon Me. I Am Not Done Committing Crimes.**\
 `One of the founders’ worst fears has been realized.`\
 https://nytimes.com/2025/11/13/opinion/trump-pardons-crimes.html
