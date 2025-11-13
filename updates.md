@@ -1,3 +1,11 @@
+**Nigeria 4 Gabon 1: World Cup dream lives on, Osimhen's miss (and goals) and VAR controversy**\
+`Nigeria beat Gabon 4-1 to reach the final of the CAF play-offs for a place at the World Cup`\
+https://nytimes.com/athletic/6804589/2025/11/13/nigeria-gabon-result-report-analysis/
+
+**U.S. Seeks Man Who Appeared at Alina Habba’s Office With Baseball Bat**\
+`The man showed up outside the office of the U.S. attorney in New Jersey on Wednesday evening and was later allowed to enter without the bat. Law enforcement authorities are seeking his arrest.`\
+https://nytimes.com/2025/11/13/nyregion/man-who-visited-alina-habbas-office-with-a-bat-remains-at-large.html
+
 **The Global Climate Leadership Vacuum**\
 `The United States is largely absent from the United Nations climate negations in Brazil. So who is stepping up?`\
 https://nytimes.com/2025/11/13/climate/cop30-un-climate-talks.html
