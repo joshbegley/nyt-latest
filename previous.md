@@ -1,3 +1,7 @@
+**English FA calls for 'overhaul' of European qualifying for World Cups and Euros**\
+`England qualified for next summer's World Cup with two matches to spare in their group, and have not lost a World Cup qualifier since 2009.`\
+https://nytimes.com/athletic/6805030/2025/11/13/world-cup-qualifying-europe-change/
+
 **20 Wines for the Thanksgiving Table**\
 `Picking beverages is the easy part. These bottles, from $16 to $40, are all versatile, lively and will pair easily with whatever is on the menu.`\
 https://nytimes.com/2025/11/13/dining/drinks/thanksgiving-wines.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6804452/2025/11/13/kevin-mackey-cleveland-state-dea
 **Antonio Brown released on $25,000 bail, will have to wear ankle monitor**\
 `Brown was extradited from Dubai to New Jersey and then Miami on an attempted murder charge.`\
 https://nytimes.com/athletic/6804872/2025/11/13/antonio-brown-bail-release-gps-monitor-miami/
-
-**Federal Workers Return After Longest Shutdown in History**\
-`Government employees were expecting to see paychecks again as early as Nov. 20 after six weeks in limbo.`\
-https://nytimes.com/2025/11/13/us/politics/shutdown-reopen-museums.html
 

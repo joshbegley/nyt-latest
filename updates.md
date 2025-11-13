@@ -1,3 +1,7 @@
+**English FA calls for 'overhaul' of European qualifying for World Cups and Euros**\
+`England qualified for next summer's World Cup with two matches to spare in their group, and have not lost a World Cup qualifier since 2009.`\
+https://nytimes.com/athletic/6805030/2025/11/13/world-cup-qualifying-europe-change/
+
 **20 Wines for the Thanksgiving Table**\
 `Picking beverages is the easy part. These bottles, from $16 to $40, are all versatile, lively and will pair easily with whatever is on the menu.`\
 https://nytimes.com/2025/11/13/dining/drinks/thanksgiving-wines.html

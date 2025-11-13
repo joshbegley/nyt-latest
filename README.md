@@ -1,3 +1,11 @@
+**For Some, ‘the New American Dream Is to Leave’**\
+`An online debate began when a European man lampooned the concept of American culture. Then a lot of Americans began agreeing with him.`\
+https://nytimes.com/2025/11/13/style/new-american-dream-tiktok.html
+
+**In Defense of Tofusgiving**\
+`A new vegan pie recipe and plenty of tofu-packed dishes for Thanksgiving.`\
+https://nytimes.com/2025/11/13/dining/in-defense-of-tofusgiving.html
+
 **English FA calls for 'overhaul' of European qualifying for World Cups and Euros**\
 `England qualified for next summer's World Cup with two matches to spare in their group, and have not lost a World Cup qualifier since 2009.`\
 https://nytimes.com/athletic/6805030/2025/11/13/world-cup-qualifying-europe-change/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6804589/2025/11/13/nigeria-gabon-result-report-anal
 **The Global Climate Leadership Vacuum**\
 `The United States is largely absent from the United Nations climate negations in Brazil. So who is stepping up?`\
 https://nytimes.com/2025/11/13/climate/cop30-un-climate-talks.html
-
-**Kevin Mackey, the Cleveland State coach for 1986 Cinderella run, dies at 79**\
-`After his career was derailed by substance abuse issues, Mackey reportedly spent the final 35 years of his life sober.`\
-https://nytimes.com/athletic/6804452/2025/11/13/kevin-mackey-cleveland-state-death/
-
-**Antonio Brown released on $25,000 bail, will have to wear ankle monitor**\
-`Brown was extradited from Dubai to New Jersey and then Miami on an attempted murder charge.`\
-https://nytimes.com/athletic/6804872/2025/11/13/antonio-brown-bail-release-gps-monitor-miami/
 
