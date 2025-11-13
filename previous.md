@@ -1,3 +1,27 @@
+**Elliott, Villa and Liverpool: What we're hearing**\
+`Explaining why the on-loan attacker is so out of favour under Unai Emery and what this situation means for his future`\
+https://nytimes.com/athletic/6800574/2025/11/13/harvey-elliott-liverpool-aston-villa-transfer/
+
+**England know seven of their World Cup XI. What about the rest?**\
+`England's games this week are both dead rubbers but will be instructive in shaping their plans for next year's tournament`\
+https://nytimes.com/athletic/6789780/2025/11/13/england-world-cup-team-thomas-tuchel/
+
+**Is 'Premflix' the future of Premier League streaming?**\
+`Piracy is a threat to the way football operates. So what is likely to change and is a direct-to-consumer model, like Netflix, viable?`\
+https://nytimes.com/athletic/6742756/2025/11/13/premier-league-streaming-premflix/
+
+**The Tactics Board: How the 3-4-3 works**\
+`Part four of The Athletic's series on football formations takes a close look at the 3-4-3 formation.`\
+https://nytimes.com/athletic/6783520/2025/11/13/tactics-board-3-4-3-formation/
+
+**Inside the 'Bitcoin club' targeting the Premier League - and where that leaves their neighbours**\
+`Backed by the U.S. investment of the Winklevoss twins, Real Bedford are a club on the up. But what does it mean for Bedford Town next door?`\
+https://nytimes.com/athletic/6699911/2025/11/13/inside-the-bitcoin-club-targeting-the-premier-league-and-what-it-means-for-their-neighbours/
+
+**Trump Signs Bill to End Government Shutdown**\
+`President Trump signed a funding bill to end the longest shutdown in U.S. history shortly after the House of Representatives passed the spending package in a 222-209 vote.`\
+https://nytimes.com/video/us/politics/100000010521533/trump-government-shutdown-news.html
+
 **How France Remembers the November 2015 Terrorist Attacks in Paris**\
 `A decade ago, Islamic State militants killed 130 people in an assault that shocked France. Some survivors are still struggling, but for many of their compatriots, memories of the attacks are growing more distant.`\
 https://nytimes.com/2025/11/13/world/europe/france-paris-terrorist-attacks-anniversary.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6803073/2025/11/13/connections-sports-edition-hints
 **Corrections: Nov. 13, 2025**\
 `Corrections that appeared in print on Thursday, Nov. 13, 2025.`\
 https://nytimes.com/2025/11/13/pageoneplus/corrections-nov-13-2025.html
-
-**Quote of the Day: Fighter of Bulls, and Mental Illness, Leaves Ring**\
-`Quotation of the Day for Thursday, November 13, 2025.`\
-https://nytimes.com/2025/11/12/pageoneplus/quote-of-the-day-fighter-of-bulls-and-mental-illness-leaves-ring.html
-
-**Tuomas Iisalo calls out Grizzlies for poor effort in 36-point loss to Celtics**\
-`The Grizzlies have lost seven of their last eight games, but Iisalo said losses "shouldn’t be because of effort like tonight."`\
-https://nytimes.com/athletic/6803069/2025/11/12/tuomas-iisalo-grizzlies-effort-nba/
-
-**Magic's Paolo Banchero to undergo MRI for groin strain after exiting vs. Knicks**\
-`"I just slowed up, and I felt it right away," Banchero said of his injury, which occurred when he pursued a rebound in the second quarter.`\
-https://nytimes.com/athletic/6803122/2025/11/12/paolo-banchero-groin-injury-magic-nba/
-
-**Jalen Brunson was spotted leaving Madison Square Garden in a walking boot, with crutches**\
-`Jalen Brunson was seen leaving Madison Square Garden in a walking boot and with crutches after the Knicks' 17-point loss.`\
-https://nytimes.com/athletic/6803142/2025/11/12/jalen-brunson-injury-knicks-walking-boot-nba/
-
-**After Cy Young win, Paul Skenes denies alleged desires to be traded to Yankees**\
-`On Wednesday night, Skenes said in no uncertain terms that he plans to be part of the Pirates' rebirth.`\
-https://nytimes.com/athletic/6803054/2025/11/12/pittsburgh-pirates-paul-skenes-new-york-yankees/
-
-**Grace College scores 172 points to set women's college basketball scoring record**\
-`The small school from Winona Lake, Ind., surpassed the previous record held by two schools, and it wasn't even close.`\
-https://nytimes.com/athletic/6802400/2025/11/12/grace-college-college-basketball-scoring-record/
 

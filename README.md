@@ -1,3 +1,7 @@
+**'There was a huge boom and my body shook,' - The Stade de France terrorist attacks, ten years on**\
+`The 2015 Stade de France suicide bombings marked the start of a terrorist attack in Paris that left 130 people dead and over 400 injured`\
+https://nytimes.com/athletic/6801059/2025/11/13/state-de-france-bataclan-terrorist-attacks/
+
 **Elliott, Villa and Liverpool: What we're hearing**\
 `Explaining why the on-loan attacker is so out of favour under Unai Emery and what this situation means for his future`\
 https://nytimes.com/athletic/6800574/2025/11/13/harvey-elliott-liverpool-aston-villa-transfer/
@@ -9,6 +13,10 @@ https://nytimes.com/athletic/6789780/2025/11/13/england-world-cup-team-thomas-tu
 **Is 'Premflix' the future of Premier League streaming?**\
 `Piracy is a threat to the way football operates. So what is likely to change and is a direct-to-consumer model, like Netflix, viable?`\
 https://nytimes.com/athletic/6742756/2025/11/13/premier-league-streaming-premflix/
+
+**Cape Verde, Uzbekistan, Jordan... What can we expect from a World Cup with more footballing minnows?**\
+`Lots of mismatches or more chances for seismic shocks? Nick Miller considers how an expanded tournament will impact what we see on the pitch`\
+https://nytimes.com/athletic/6764917/2025/11/13/world-cup-minnows-first-timers/
 
 **The Tactics Board: How the 3-4-3 works**\
 `Part four of The Athletic's series on football formations takes a close look at the 3-4-3 formation.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/13/world/europe/france-paris-terrorist-attacks-anniv
 **Skaggs attorney accuses Angels VP of perjury, plans to subpoena MLB**\
 `Angels attorney denies witness committed perjury, but judge indicates she will hear arguments on issue when trial resumes Friday.`\
 https://nytimes.com/athletic/6803173/2025/11/13/skaggs-angels-witness-accused-perjury/
-
-**Connections: Sports Edition Coach: Hints for Nov. 13, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6803073/2025/11/13/connections-sports-edition-hints-for-nov-13-2025/
-
-**Corrections: Nov. 13, 2025**\
-`Corrections that appeared in print on Thursday, Nov. 13, 2025.`\
-https://nytimes.com/2025/11/13/pageoneplus/corrections-nov-13-2025.html
 
