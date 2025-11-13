@@ -1,4 +1,20 @@
-**Jim Avila, Former ABC News Correspondent, Dies at 59**\
+**Prescott discusses Kneeland, Cowboys returning to practice and coping with loss**\
+`"We’re not forgetting, but we’re moving forward and carrying on the light,” Prescott said of the team handling Marshawn Kneeland's death.`\
+https://nytimes.com/athletic/6805078/2025/11/13/dak-prescott-marshawn-kneeland-death-cowboys/
+
+**The Windup: Awards season is here. Plus: The latest on Ortiz, Clase**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6805608/2025/11/13/mlb-awards-season-the-windup/
+
+**Hochul Approved Permits That Could Help Clients of Her Husband’s Firm**\
+`Opponents of a natural gas pipeline approved by Gov. Kathy Hochul of New York noted that the project would benefit a client of the prominent law firm where her husband works.`\
+https://nytimes.com/2025/11/13/nyregion/hochul-husband-davis-polk.html
+
+**Manchester United face legal action over alleged sexual abuse**\
+`Billy Watts, who died in 2009, was employed by the club for an unspecified number of years in a variety of roles.`\
+https://nytimes.com/athletic/6801464/2025/11/13/manchester-united-legal-action-alleged-sexual-abuse/
+
+**Jim Avila, Former ABC News Correspondent, Dies at 70**\
 `He spent almost two decades at the network, covering a wide range of court cases and the White House. He was also at the center of a defamation lawsuit over “pink slime.”`\
 https://nytimes.com/2025/11/13/business/media/jim-avila-abc-news-dead.html
 
@@ -9,20 +25,4 @@ https://nytimes.com/2025/11/13/us/politics/snap-benefits-food-stamps-shutdown-up
 **Infant Formula Company Tied to Botulism Outbreak Had Known Problems**\
 `A Pennsylvania plant run by the company, ByHeart, was shut down this year after inspectors found mold, a leaking roof and more than 2,500 dead insects in a food production area.`\
 https://nytimes.com/2025/11/13/health/infant-formula-botulism.html
-
-**For Some Nuns, Baking Is an Act of Devotion**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/nuns-convent-sweets-spain
-
-**U.S. Strike Kills 4 on Boat Trump Says Was Smuggling Drugs**\
-`The strike in the Caribbean Sea brings the death toll in the Trump administration’s lethal campaign to 80 since early September.`\
-https://nytimes.com/2025/11/13/us/politics/trump-drug-boat-strike-caribbean.html
-
-**The Briefing: England 2 Serbia 0 - How did O'Reilly do at left-back? What impact did Bellingham, Eze and Foden make from bench?**\
-`Analysis of England's 2-0 win against Serbia, which extended their perfect qualification campaign for the 2026 World Cup `\
-https://nytimes.com/athletic/6801848/2025/11/13/england-serbia-world-cup-qualifier-analysis/
-
-**Cozumel, Mexico**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/things-to-do-cozumel
 
