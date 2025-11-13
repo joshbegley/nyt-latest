@@ -1,3 +1,7 @@
+**Lakers get dismantled by defending champion Thunder in blowout loss**\
+`The Lakers were simply outclassed on Wednesday night in Oklahoma City by a championship team that's hungry for more.`\
+https://nytimes.com/athletic/6803383/2025/11/13/lakers-dismantled-loss-thunder/
+
 **How to watch Cowboys vs. Raiders: Time, TV, streaming**\
 `Find out how to watch the Dallas Cowboys play the Las Vegas Raiders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6803409/2025/11/13/cowboys-vs-raiders-stream-how-to-watch-nov-17/
