@@ -1,3 +1,23 @@
+**Friendship, gamesmanship, or both? Ex-UF coach Napier visits Georgia practice before UGA-Texas**\
+`Georgia coach Kirby Smart said it was no big deal, just two old friends getting together.`\
+https://nytimes.com/athletic/6803902/2025/11/13/billy-napier-georgia-florida-kirby-smart/
+
+**The Pulse: A guide to CFB cinderellas**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6802020/2025/11/13/g5-college-football-playoff-rankings-the-pulse/
+
+**Senators re-sign Shane Pinto to 4-year, 7.5 million AAV extension: Sources**\
+`Pinto set career-highs in goals, scoring 21 goals and 37 points in 70 games last season with Ottawa.`\
+https://nytimes.com/athletic/6658131/2025/11/13/ottawa-senators-shane-pinto-contract-extension/
+
+**Epstein’s Emails About Trump**\
+`Our investigative reporter Steve Eder provides context about Jeffrey Epstein’s relationship with President Donald Trump based on information from over 20,000 pages of documents from Epstein’s estate released by the House Oversight Committee on Wednesday.`\
+https://nytimes.com/video/us/politics/100000010520312/epstein-trump-emails-explained.html
+
+**How to fix NASCAR: Our ideas on the playoffs, schedule, TV deals and more**\
+`As NASCAR heads into its offseason, there was plenty on our minds around the biggest issues facing the sport.`\
+https://nytimes.com/athletic/6801534/2025/11/13/nascar-playoffs-schedule-tv-deal-how-to-fix/
+
 **Key fantasy football questions for Week 11: Buy low on Justin Jefferson?**\
 `Dalton Del Don looks at the key fantasy football topics for Week 11, including Justin Jefferson's rest-of-season value.`\
 https://nytimes.com/athletic/6803113/2025/11/13/key-fantasy-football-questions-week-11-jefferson-pierce/
@@ -10,31 +30,11 @@ https://nytimes.com/2025/11/13/business/dealbook/proxy-firms-glass-lewis-iss.htm
 `With the addition of USA Sports, all Pac-12 football games will be on linear TV networks.`\
 https://nytimes.com/athletic/6802966/2025/11/13/pac-12-media-rights-usa-sports-deal/
 
-**Wester Conference Panic Watch: How much should Warriors, Clippers and others be worried?**\
+**Western Conference Panic Watch: How much should Warriors, Clippers and others be worried?**\
 `At this point of the season, it's much harder for teams to write off poor performances as a result of a small sample size.`\
 https://nytimes.com/athletic/6802914/2025/11/13/warriors-clippers-grizzlies-timberwolves-nba-panic/
 
 **The 12 biggest games in Sanford Stadium since 2000: Will Georgia-Texas join the list?**\
 `On the occasion of the Texas game, we asked a small, informal panel of longtime Georgia people for the biggest games played in Athens.`\
 https://nytimes.com/athletic/6802127/2025/11/13/georgia-football-sanford-stadium-best-games/
-
-**Men's college basketball watch guide: Top 5 games to check out this weekend**\
-`Here are our top picks for this weekend's college basketball slate, including "Hall of Fame Series" blockbusters in L.A. and Boston.`\
-https://nytimes.com/athletic/6802417/2025/11/13/college-basketball-purdue-alabama-uconn-byu-houston-auburn/
-
-**Trump Administration Live Updates: Government Begins to Reopen After Longest-Ever Shutdown**\
-``\
-https://nytimes.com/live/2025/11/13/us/trump-government-shutdown-news
-
-**Jets vs. Patriots Thursday Night Football betting: Player prop and a single-game parlay**\
-`Brad Evans scours sportsbooks for the best bets ahead for Thursday Night Football's matchup between the Jets and Patriots. `\
-https://nytimes.com/athletic/6801949/2025/11/13/jets-patriots-thursday-night-football-betting-props-picks/
-
-**Sheffield United complete Bamford signing on short-term deal**\
-`Bamford, 32, has been without a club since departing Leeds United in August.`\
-https://nytimes.com/athletic/6803825/2025/11/13/patrick-bamford-sheffield-united-transfer/
-
-**Pistons' 8 straight wins show 'what's brewing in that locker room is special'**\
-`Missing four starters, Detroit beat the Bulls behind key contributions from role players like Paul Reed. It proved their depth and cohesion.`\
-https://nytimes.com/athletic/6803500/2025/11/13/pistons-win-streak-injuries-bulls/
 
