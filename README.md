@@ -1,3 +1,7 @@
+**Why are England players wearing 'mind-altering' shoes?**\
+`England players are wearing special foam shoes as they prepare for the World Cup - and it's all about marginal gains...`\
+https://nytimes.com/athletic/6803730/2025/11/13/england-shoes-nike-neuro-science/
+
 **As Phillies eye 2026 upgrades, where do their top prospects fit in?**\
 `Justin Crawford, Andrew Painter and Aidan Miller are poised to help spark the Phillies in 2026, but questions abound. `\
 https://nytimes.com/athletic/6803375/2025/11/13/phillies-painter-miller-crawford-20206-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6802277/2025/11/13/mlb-micro-betting-prop-bets-spor
 **Notre Dame mailbag: ACC's social media shot, rev-share budgeting and Narduzzi's grudge**\
 `From subtle taunts to roster dilemmas, Notre Dame navigates rivalries, social media spats, and the mounting pressure of playoff contention.`\
 https://nytimes.com/athletic/6802967/2025/11/13/notre-dame-mailbag-acc-playoff-budget/
-
-**49ers injury analysis: Where the team ranks in the Kyle Shanahan era**\
-`The Niners' famously intense Thursday practices have taken a toll this season, but players also credit them for setting the right tone.`\
-https://nytimes.com/athletic/6801739/2025/11/13/49ers-injuries-practice-kyle-shanahan/
 
