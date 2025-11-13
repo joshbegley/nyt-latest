@@ -1,3 +1,7 @@
+**How to fix NASCAR: Our ideas on the playoffs, schedule, TV deals and more**\
+`As NASCAR heads into its offseason, there was plenty on our minds around the biggest issues facing the sport.`\
+https://nytimes.com/athletic/6801534/2025/11/13/nascar-playoffs-schedule-tv-deal-how-to-fix/
+
 **Key fantasy football questions for Week 11: Buy low on Justin Jefferson?**\
 `Dalton Del Don looks at the key fantasy football topics for Week 11, including Justin Jefferson's rest-of-season value.`\
 https://nytimes.com/athletic/6803113/2025/11/13/key-fantasy-football-questions-week-11-jefferson-pierce/
@@ -10,7 +14,7 @@ https://nytimes.com/2025/11/13/business/dealbook/proxy-firms-glass-lewis-iss.htm
 `With the addition of USA Sports, all Pac-12 football games will be on linear TV networks.`\
 https://nytimes.com/athletic/6802966/2025/11/13/pac-12-media-rights-usa-sports-deal/
 
-**Wester Conference Panic Watch: How much should Warriors, Clippers and others be worried?**\
+**Western Conference Panic Watch: How much should Warriors, Clippers and others be worried?**\
 `At this point of the season, it's much harder for teams to write off poor performances as a result of a small sample size.`\
 https://nytimes.com/athletic/6802914/2025/11/13/warriors-clippers-grizzlies-timberwolves-nba-panic/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6801949/2025/11/13/jets-patriots-thursday-night-foo
 **Sheffield United complete Bamford signing on short-term deal**\
 `Bamford, 32, has been without a club since departing Leeds United in August.`\
 https://nytimes.com/athletic/6803825/2025/11/13/patrick-bamford-sheffield-united-transfer/
-
-**Pistons' 8 straight wins show 'what's brewing in that locker room is special'**\
-`Missing four starters, Detroit beat the Bulls behind key contributions from role players like Paul Reed. It proved their depth and cohesion.`\
-https://nytimes.com/athletic/6803500/2025/11/13/pistons-win-streak-injuries-bulls/
 
