@@ -1,3 +1,43 @@
+**Pardon Me. I Am Not Done Committing Crimes.**\
+`One of the founders’ worst fears has been realized.`\
+https://nytimes.com/2025/11/13/opinion/trump-pardons-crimes.html
+
+**What’s Behind the Coming House Vote on Releasing the Epstein Files**\
+`Proponents of fuller transparency used an arcane rule to prod their leaders to act. When it became clear they had succeeded, the speaker agreed to hold a vote.`\
+https://nytimes.com/2025/11/13/us/politics/house-vote-epstein-files.html
+
+**Welcome to the Washington Demolition Derby**\
+`And yet, a little, precious seedling of hope is emerging.`\
+https://nytimes.com/2025/11/13/opinion/trump-elections-virginia-new-york.html
+
+**Canadian Travel to the U.S. Declines for 10th Straight Month**\
+`The drop has been reflected in air and car travel, according to Canadian statistics. Tensions over tariffs placed by the Trump administration spurred calls for Canadians to spend their money at home.`\
+https://nytimes.com/2025/11/13/us/canada-us-travel-decline-flights.html
+
+**For Their Retirement Home, a South Florida Couple Tried to Upsize Rather Than Downsize **\
+`Craving a larger home that could accommodate their blended family, a couple toured a popular condo community in Boca Raton, Fla., in search of a three-bedroom.`\
+https://nytimes.com/interactive/2025/11/13/realestate/florida-boca-raton-condos.html
+
+**Where Have All the Covers Gone?**\
+`Beyoncé did “Jolene.” But pop music has mostly abandoned the art of covering other people’s music.`\
+https://nytimes.com/2025/11/13/podcasts/where-have-all-the-covers-gone.html
+
+**Falcons rally around frustrated QB Michael Penix Jr.: 'My job is to protect him'**\
+`The second-year quarterback has yet to live up to the team's outsized expectations for him, but the Falcons say they aren't concerned.`\
+https://nytimes.com/athletic/6802285/2025/11/13/michael-penix-falcons-frustrated-offense/
+
+**Would You Clone Your Pet?**\
+`The former N.F.L. superstar Tom Brady recently announced that his dog Junie is a clone of his dead pit bull mix, Lua. What’s your reaction?`\
+https://nytimes.com/2025/11/13/learning/would-you-clone-your-pet.html
+
+**Wifredo Lam: Artist-Poet of Tropical Dreams and Sorrows**\
+`The great Cuban modernist, whose politics and Afro-Asian roots shaped his paintings and inspired generations of artists, gets a revelatory survey at MoMA.`\
+https://nytimes.com/2025/11/13/arts/design/wifredo-lam-retrospective-moma.html
+
+**Trump v. James and Maurene Comey**\
+`The legal precedent established by Maurene Comey’s case may turn out to be far more consequential than the finding in her father’s.`\
+https://nytimes.com/2025/11/13/opinion/trump-comey-james-maurene.html
+
 **Man Accused of Running Southeast Asia Scam Compound Is Extradited to China**\
 `China and the United States say She Zhijiang, a Chinese-born businessman, ran a major scam compound in Myanmar. He was arrested in Bangkok in 2022.`\
 https://nytimes.com/2025/11/13/world/asia/scam-center-she-zhijiang-extradited-china.html
