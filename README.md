@@ -1,3 +1,7 @@
+**China’s ‘Wolf Warrior’ Diplomacy Returns With Threat Against Japan’s Leader**\
+`A Chinese diplomat’s call to cut off the prime minister’s “filthy neck” signaled a revival of a combative style Beijing had tried to dial back.`\
+https://nytimes.com/2025/11/13/world/asia/china-japan-takaichi-taiwan.html
+
 **Remembering Shane Warne: 'The biggest cricketing superstar of the lot'**\
 `Shane Keith Warne transcended his sport like few other cricketers – he will be mourned during the first Ashes Down Under since his passing `\
 https://nytimes.com/athletic/6787575/2025/11/13/shane-warne-the-ashes-australia-england/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/13/arts/television/late-night-trump-epstein-emails.h
 **Lakers get dismantled by defending champion Thunder in blowout loss**\
 `The Lakers were simply outclassed on Wednesday night in Oklahoma City by a championship team that's hungry for more.`\
 https://nytimes.com/athletic/6803383/2025/11/13/lakers-dismantled-loss-thunder/
-
-**How to watch Cowboys vs. Raiders: Time, TV, streaming**\
-`Find out how to watch the Dallas Cowboys play the Las Vegas Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6803409/2025/11/13/cowboys-vs-raiders-stream-how-to-watch-nov-17/
 

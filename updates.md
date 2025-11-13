@@ -1,3 +1,7 @@
+**Remembering Shane Warne: 'The biggest cricketing superstar of the lot'**\
+`Shane Keith Warne transcended his sport like few other cricketers – he will be mourned during the first Ashes Down Under since his passing `\
+https://nytimes.com/athletic/6787575/2025/11/13/shane-warne-the-ashes-australia-england/
+
 **England's Mark Wood to undergo precautionary scan on hamstring after eight-over stint**\
 `The fast bowler was playing for the first time in a 'competitive' match since February after undergoing knee surgery`\
 https://nytimes.com/athletic/6803506/2025/11/13/england-mark-wood-hamstring-scan-ashes/
