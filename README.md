@@ -1,3 +1,7 @@
+**20 Wines for the Thanksgiving Table**\
+`Picking beverages is the easy part. These bottles, from $16 to $40, are all versatile, lively and will pair easily with whatever is on the menu.`\
+https://nytimes.com/2025/11/13/dining/drinks/thanksgiving-wines.html
+
 **Family of Fisherman Killed in U.S. Military Strike Says It Wants Justice**\
 `Colombia was a top U.S. ally in Latin America until the Trump administration began deadly strikes in international waters. Now, one family wants justice.`\
 https://nytimes.com/2025/11/13/world/americas/trump-drug-boat-strikes-colombian-fisherman.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6804872/2025/11/13/antonio-brown-bail-release-gps-m
 **Federal Workers Return After Longest Shutdown in History**\
 `Government employees were expecting to see paychecks again as early as Nov. 20 after six weeks in limbo.`\
 https://nytimes.com/2025/11/13/us/politics/shutdown-reopen-museums.html
-
-**U.S. Seeks Man Who Appeared at Alina Habba’s Office With Baseball Bat**\
-`The man showed up outside the office of the U.S. attorney in New Jersey on Wednesday evening and was later allowed to enter without the bat. Law enforcement authorities are seeking his arrest.`\
-https://nytimes.com/2025/11/13/nyregion/man-who-visited-alina-habbas-office-with-a-bat-remains-at-large.html
 
