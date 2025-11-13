@@ -1,3 +1,15 @@
+**Pistons' 8 straight wins show 'what's brewing in that locker room is special'**\
+`Missing four starters, Detroit beat the Bulls behind key contributions from role players like Paul Reed. It proved their depth and cohesion.`\
+https://nytimes.com/athletic/6803500/2025/11/13/pistons-win-streak-injuries-bulls/
+
+**Pioneering U.S. Street Photography, With Vienna in the Background**\
+`Lisette Model’s candid and cruel portraits spawned an American genre. But the key to understanding her might lie in Europe, where she was born.`\
+https://nytimes.com/2025/11/13/arts/design/lisette-model-albertina-veinna.html
+
+**Browns mailbag: How will Deshaun Watson's contract impact next season's roster?**\
+`Plus, if Cleveland's QB of the future isn't currently on the roster, who could the team look to add heading into the 2026 season?`\
+https://nytimes.com/athletic/6802274/2025/11/13/browns-mailbag-deshaun-watson-contract/
+
 **Former Spurs owner Joe Lewis to receive presidential pardon from Donald Trump**\
 `Lewis pled guilty to insider trading in 2024 and was fined $5million by a New York judge.`\
 https://nytimes.com/athletic/6803625/2025/11/13/joe-lewis-pardon-donald-trump/
