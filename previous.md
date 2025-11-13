@@ -1,3 +1,7 @@
+**Former Spurs owner Joe Lewis to receive presidential pardon from Donald Trump**\
+`Lewis pled guilty to insider trading in 2024 and was fined $5million by a New York judge.`\
+https://nytimes.com/athletic/6803625/2025/11/13/joe-lewis-pardon-donald-trump/
+
 **Why are England players wearing 'mind-altering' shoes?**\
 `England players are wearing special foam shoes as they prepare for the World Cup - and it's all about marginal gains...`\
 https://nytimes.com/athletic/6803730/2025/11/13/england-shoes-nike-neuro-science/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6803327/2025/11/13/sabres-stock-watch-isak-rosen-ta
 **Banning micro-bets in sports is the only way to restore integrity to the games**\
 `Limiting amounts placed on micro-bets makes perfect sense. Of course, there is an easier solution — abolish them entirely.`\
 https://nytimes.com/athletic/6802277/2025/11/13/mlb-micro-betting-prop-bets-sports-integrity/
-
-**Notre Dame mailbag: ACC's social media shot, rev-share budgeting and Narduzzi's grudge**\
-`From subtle taunts to roster dilemmas, Notre Dame navigates rivalries, social media spats, and the mounting pressure of playoff contention.`\
-https://nytimes.com/athletic/6802967/2025/11/13/notre-dame-mailbag-acc-playoff-budget/
 
