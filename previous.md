@@ -1,3 +1,15 @@
+**In Matt Gaetz Scandal, Circumstances Left Girl Vulnerable to Exploitation**\
+`A teenager with a homeless parent wanted money for braces and ended up having sex for money with powerful men. She wants the public to have a fuller understanding of how she was victimized.`\
+https://nytimes.com/2025/11/13/us/politics/in-matt-gaetz-scandal-circumstances-left-girl-vulnerable-to-exploitation.html
+
+**Starbucks Workers Strike at Dozens of U.S. Stores on ‘Red Cup Day’**\
+`More than 1,000 workers at 65 stores across the United States joined the labor action, the union representing baristas said.`\
+https://nytimes.com/2025/11/13/business/starbucks-strike-red-cup-day.html
+
+**In Mexico, Nothing Says ‘Good Morning’ Like a Concha**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/concha-mexico-pastry
+
 **Until Saturday: The country's hardest team to judge**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6804841/2025/11/13/texas-georgia-college-football-playoff-until-saturday/
@@ -21,12 +33,4 @@ https://nytimes.com/athletic/6804675/2025/11/13/maple-leafs-roster-injury-matthe
 **Mancini appointed head coach of Qatari champions Al Sadd**\
 `Mancini had been out of football since October 2024 and was previously contacted by Nottingham Forest after Ange Postecoglou's exit.`\
 https://nytimes.com/athletic/6804749/2025/11/13/roberto-mancini-manager-qatar/
-
-**A Home That Proves You Can Never Have Too Many Books**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/peter-ayers-tarantino-apartment
-
-**What Teenagers Are Saying About Their Fall Rituals and Traditions**\
-`Students react to articles about how we honor and celebrate the changing of the seasons.`\
-https://nytimes.com/2025/11/13/learning/what-teenagers-are-saying-about-their-fall-rituals-and-traditions.html
 
