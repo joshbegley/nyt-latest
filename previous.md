@@ -1,3 +1,7 @@
+**Late Night Pops Off on Trump Popping Up in Epstein Email Thread**\
+`Josh Johnson said that Jeffrey Epstein’s references to President Trump might not mean much: “Maybe the email was about how Trump never comes to his sex parties — rude.”`\
+https://nytimes.com/2025/11/13/arts/television/late-night-trump-epstein-emails.html
+
 **Lakers get dismantled by defending champion Thunder in blowout loss**\
 `The Lakers were simply outclassed on Wednesday night in Oklahoma City by a championship team that's hungry for more.`\
 https://nytimes.com/athletic/6803383/2025/11/13/lakers-dismantled-loss-thunder/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/13/opinion/china-politics-social-public-mood.html
 **The New York Times in Print for Thursday, Nov. 13, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/13/todays-new-york-times
-
-**Hannah Hidalgo's 44 points, 16 steals set Notre Dame and NCAA records**\
-`Hidalgo had one of the greatest games in her collegiate career in a blowout victory over Akron on Wednesday.`\
-https://nytimes.com/athletic/6803164/2025/11/13/hannah-hidalgo-16-steals-record/
 

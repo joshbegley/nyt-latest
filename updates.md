@@ -1,3 +1,7 @@
+**Late Night Pops Off on Trump Popping Up in Epstein Email Thread**\
+`Josh Johnson said that Jeffrey Epstein’s references to President Trump might not mean much: “Maybe the email was about how Trump never comes to his sex parties — rude.”`\
+https://nytimes.com/2025/11/13/arts/television/late-night-trump-epstein-emails.html
+
 **Jeers, cheers, selfies and a painful defeat: Earps returns to Man Utd**\
 `The goalkeeper whose autobiography has caused a furore in recent weeks had a mixed reception when back at her old club for the first time`\
 https://nytimes.com/athletic/6802703/2025/11/13/mary-earps-manchester-united-psg/
