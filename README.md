@@ -1,3 +1,11 @@
+**West Bank Mosque Burned as Israeli Settler Violence Surges**\
+`Since the 2023 attack on Israel by Hamas, growing settler violence and Israeli attacks on Palestinian militants have thrown the West Bank into turmoil and displaced tens of thousands.`\
+https://nytimes.com/2025/11/13/world/middleeast/israel-settlers-west-bank-mosque.html
+
+**Turkey FA bans 102 players in betting investigation**\
+`Sanctions range from 45 days to 12 months, including 25 players from the top-flight Super Lig and 77 from the second-tier first division.`\
+https://nytimes.com/athletic/6804402/2025/11/13/turkey-football-betting-bans/
+
 **How to watch Raptors vs. Cavaliers: Time, TV, streaming**\
 `Find out how to watch the Toronto Raptors play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6804548/2025/11/13/raptors-vs-cavaliers-stream-how-to-watch-nov-13/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/13/movies/nouvelle-vague-review-richard-linklater.ht
 **How to watch Towson vs. Maryland women's basketball: Time, TV, streaming**\
 `Find out how to watch the Towson Tigers play the Maryland Terrapins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6804512/2025/11/13/towson-vs-maryland-stream-how-to-watch-nov-13/
-
-**How to watch San Jose State vs. Michigan State men's basketball: Time, TV, streaming**\
-`Find out how to watch the San Jose State Spartans play the Michigan State Spartans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6804508/2025/11/13/san-jose-state-vs-michigan-state-stream-how-to-watch-nov-13/
-
-**How to watch Belmont vs. Tennessee women's basketball: Time, TV, streaming**\
-`Find out how to watch the Belmont Bruins play the Tennessee Lady Volunteers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6804507/2025/11/13/belmont-vs-tennessee-stream-how-to-watch-nov-13/
 
