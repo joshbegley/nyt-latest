@@ -1,3 +1,19 @@
+**How Harry Nansi became the early-season surprise of the Maple Leafs' prospect pool**\
+`One summer was all it took for Nansi to go from looking like a bit of a head-scratcher pick to scoring near the top of the OHL.`\
+https://nytimes.com/athletic/6795664/2025/11/13/harry-nansi-maple-leafs-prospect-summer/
+
+**This Chiefs streak predates Patrick Mahomes. It could be on the line Sunday vs. Broncos**\
+`Why the Chiefs' odds of keeping a 10-year streak going will plummet if they lose to the Broncos on Sunday.`\
+https://nytimes.com/athletic/6801456/2025/11/13/chiefs-afc-west-supremacy-broncos/
+
+**Are the Bears a legit playoff contender? Fifthy pressing questions for the stretch run**\
+`At 6-3, the Bears are tied for first in the NFC North. Yet they may be only one misstep away from losing their grip on a playoff spot. `\
+https://nytimes.com/athletic/6802201/2025/11/13/bears-playoff-potential-pressing-questions/
+
+**Jets at Patriots on TNF: New uniform, old rivalry, what to expect from Prime's broadcast**\
+`Here's some pregame prep and frivolity ahead of "Thursday Night Football" in Foxborough.`\
+https://nytimes.com/athletic/6801668/2025/11/13/jets-patriots-tnf-drake-maye-how-to-watch/
+
 **With Panthers headed back to site of Bryce Young's best game, is he still their 'guy'?**\
 `"If you look over the last two years, we’re doing a lot better," Austin Corbett said of the Panthers, who won five games last season.`\
 https://nytimes.com/athletic/6802411/2025/11/13/panthers-bryce-young-quarterback-falcons/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6802601/2025/11/13/major-league-baseball-landscape-
 **Points, not moral victories: Blackhawks show more progress in OT loss**\
 `Chicago continued to show growth, finding a way to earn a point despite missing key players and playing a substandard game.`\
 https://nytimes.com/athletic/6802940/2025/11/13/blackhawks-ot-loss-devils/
-
-**Vic's Picks, Week 11: Why I like the Seahawks in a showdown with the Rams in L.A.**\
-`The Seahawks' defense could decide the clash of NFC West titans. We also have the Lions and Broncos pulling upsets in big games this week.`\
-https://nytimes.com/athletic/6799093/2025/11/13/nfl-week-11-picks-predictions-betting-2025/
-
-**The one-handed driving trick that preceded DRS – and got banned**\
-`In 2010, the sight of drivers racing one-handed become commonplace as they tried to catch up with a McLaren innovation which then got banned`\
-https://nytimes.com/athletic/6798155/2025/11/13/f1-f-duct-drs/
-
-**Re-grading Sam Darnold, Milton Williams and the top 2025 NFL free-agent contracts**\
-`Darnold was the highest-paid free agency and has been a huge boon for the Seahawks. What other top signings have worked out well? `\
-https://nytimes.com/athletic/6802961/2025/11/13/nfl-2025-free-agent-grades-sam-darnold-milton-williams/
-
-**QB future for all 32 NFL teams: Daniel Jones, Tua Tagovailoa among intriguing decisions ahead**\
-`Jones is in the same position Sam Darnold was a year ago, reviving his career while playing on a one-year contract. What comes next?`\
-https://nytimes.com/athletic/6793329/2025/11/13/nfl-quarterback-futures-daniel-jones-darnold-tagovailoa/
 

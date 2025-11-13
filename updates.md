@@ -1,3 +1,19 @@
+**How Harry Nansi became the early-season surprise of the Maple Leafs' prospect pool**\
+`One summer was all it took for Nansi to go from looking like a bit of a head-scratcher pick to scoring near the top of the OHL.`\
+https://nytimes.com/athletic/6795664/2025/11/13/harry-nansi-maple-leafs-prospect-summer/
+
+**This Chiefs streak predates Patrick Mahomes. It could be on the line Sunday vs. Broncos**\
+`Why the Chiefs' odds of keeping a 10-year streak going will plummet if they lose to the Broncos on Sunday.`\
+https://nytimes.com/athletic/6801456/2025/11/13/chiefs-afc-west-supremacy-broncos/
+
+**Are the Bears a legit playoff contender? Fifthy pressing questions for the stretch run**\
+`At 6-3, the Bears are tied for first in the NFC North. Yet they may be only one misstep away from losing their grip on a playoff spot. `\
+https://nytimes.com/athletic/6802201/2025/11/13/bears-playoff-potential-pressing-questions/
+
+**Jets at Patriots on TNF: New uniform, old rivalry, what to expect from Prime's broadcast**\
+`Here's some pregame prep and frivolity ahead of "Thursday Night Football" in Foxborough.`\
+https://nytimes.com/athletic/6801668/2025/11/13/jets-patriots-tnf-drake-maye-how-to-watch/
+
 **With Panthers headed back to site of Bryce Young's best game, is he still their 'guy'?**\
 `"If you look over the last two years, we’re doing a lot better," Austin Corbett said of the Panthers, who won five games last season.`\
 https://nytimes.com/athletic/6802411/2025/11/13/panthers-bryce-young-quarterback-falcons/
