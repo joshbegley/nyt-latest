@@ -1,3 +1,15 @@
+**Source: MLS, Apple TV to bring games outside of extra paywall in 2026**\
+`Beginning next season, MLS games will be even more accessible via Apple TV`\
+https://nytimes.com/athletic/6804777/2025/11/13/mls-apple-tv-end-paywall-season-pass/
+
+**Seidler family begins exploring potential sale of San Diego Padres**\
+`The family of late San Diego Padres owner Peter Seidler announced on Thursday it had begun exploring strategic options for the team.`\
+https://nytimes.com/athletic/6804792/2025/11/13/padres-sale-san-diego-seidler-family/
+
+**Maple Leafs shake up roster amid injuries to Matthews, Stolarz**\
+`The loss of Auston Matthews will put added pressure on Leafs' centre depth as Dennis Hildeby gets start in goal. `\
+https://nytimes.com/athletic/6804675/2025/11/13/maple-leafs-roster-injury-matthews-stolarz/
+
 **College football best bets Week 12: Two Friday plays and an upset call**\
 `Austin Mock's model likes the over in Texas-Georgia and has a pair of picks for this week's Friday games.`\
 https://nytimes.com/athletic/6804160/2025/11/13/college-football-best-bets-week-12-georgia-texas/

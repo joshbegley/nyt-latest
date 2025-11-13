@@ -1,4 +1,12 @@
-**Source: MLS, Apple TV to bring games outside of extra paywall in 2026**\
+**Until Saturday: The country's hardest team to judge**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6804841/2025/11/13/texas-georgia-college-football-playoff-until-saturday/
+
+**France Commemorates 10th Anniversary of Paris Terror Attacks**\
+`Several memorials were held in honor of the more than 130 people who were killed by Islamic State militants in coordinated attacks in and around Paris in 2015.`\
+https://nytimes.com/video/world/europe/100000010522470/paris-terror-attacks-anniversary.html
+
+**Sources: MLS, Apple TV to bring games outside of extra paywall in 2026**\
 `Beginning next season, MLS games will be even more accessible via Apple TV`\
 https://nytimes.com/athletic/6804777/2025/11/13/mls-apple-tv-end-paywall-season-pass/
 
@@ -21,12 +29,4 @@ https://nytimes.com/newsgraphics/card-story/peter-ayers-tarantino-apartment
 **What Teenagers Are Saying About Their Fall Rituals and Traditions**\
 `Students react to articles about how we honor and celebrate the changing of the seasons.`\
 https://nytimes.com/2025/11/13/learning/what-teenagers-are-saying-about-their-fall-rituals-and-traditions.html
-
-**How Max Arfsten, uncapped and ‘overlooked,’ became an unlikely USMNT fixture**\
-`"Everyone's journey is different," Max Arfsten says. And his path to becoming a USMNT mainstay is in great contrast to that of his teammates`\
-https://nytimes.com/athletic/6804181/2025/11/13/how-max-arfsten-uncapped-and-overlooked-became-an-unlikely-usmnt-fixture/
-
-**College football best bets Week 12: Two Friday plays and an upset call**\
-`Austin Mock's model likes the over in Texas-Georgia and has a pair of picks for this week's Friday games.`\
-https://nytimes.com/athletic/6804160/2025/11/13/college-football-best-bets-week-12-georgia-texas/
 
