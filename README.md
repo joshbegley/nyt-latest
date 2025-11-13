@@ -1,3 +1,7 @@
+**Michael Ray Richardson, N.B.A. Star Derailed by Cocaine, Dies at 70**\
+`A four-time All-Star, he dazzled fans, and fellow players, with his intense play for the New York Knicks, only to become the league’s first player to be barred for drug use.`\
+https://nytimes.com/2025/11/12/sports/basketball/michael-ray-richardson-dead.html
+
 **Trump Administration to Drastically Cut Housing Grants**\
 `In a major shift, HUD’s plan would direct most of the $3.5 billion in homelessness funds away from Housing First to programs that prioritize work and drug treatment.`\
 https://nytimes.com/2025/11/12/us/politics/trump-homeless-funding.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/12/science/northern-lights-solar-satellites.html
 **How Yankees' Cody Bellinger, Trent Grisham decisions could cause major ripple effect**\
 `If Bellinger and Grisham return to the Yankees, that could impact where Jasson Domínguez and Spencer Jones fit.`\
 https://nytimes.com/athletic/6802407/2025/11/12/new-york-yankees-trent-grisham-cody-bellinger-decision-effects/
-
-**Public shrugs, private fury: Cleveland Guardians still trying to process betting scandal**\
-`Four months later, as Emmanuel Clase and Luis Ortiz face federal charges, the betting scandal has lingered over the Guardians`\
-https://nytimes.com/athletic/6802486/2025/11/12/cleveland-guardians-scandal-emmanuel-clase/
 
