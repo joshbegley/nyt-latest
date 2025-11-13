@@ -1,3 +1,7 @@
+**England's Mark Wood to undergo precautionary scan on hamstring after eight-over stint**\
+`The fast bowler was playing for the first time in a 'competitive' match since February after undergoing knee surgery`\
+https://nytimes.com/athletic/6803506/2025/11/13/england-mark-wood-hamstring-scan-ashes/
+
 **Does the Subway Still Need Train Conductors?**\
 `Gov. Kathy Hochul must decide by year’s end whether to sign a law that would mandate two-person crews on all trains, a practice critics say is costly and outdated.`\
 https://nytimes.com/2025/11/13/nyregion/subway-train-conductors-hochul.html
