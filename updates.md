@@ -1,3 +1,11 @@
+**What Is a Prop Bet?**\
+`Recent betting scandals in the N.B.A. and M.L.B. have involved players allegedly manipulating their performance so bettors would win money on proposition — or prop — bets. The Athletic’s Hannah Vanbiber explains what prop bets are and why they are controversial.`\
+https://nytimes.com/video/the-athletic/100000010522357/what-is-a-prop-bet.html
+
+**Fetterman, Senator Who Survived Stroke, Hospitalized After Fall**\
+`Senator John Fetterman, the hoodie-wearing Pennsylvanian who nearly died during his campaign and was later hospitalized for clinical depression, had minor injuries, according to his office.`\
+https://nytimes.com/2025/11/13/us/politics/fetterman-fall-hospitalized-pennsylvania.html
+
 **How to watch Jets vs. Kraken: Time, TV, streaming**\
 `Find out how to watch the Winnipeg Jets play the Seattle Kraken, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6805299/2025/11/13/jets-vs-kraken-stream-how-to-watch-nov-13/
