@@ -1,3 +1,11 @@
+**Why Can’t New York Fix Penn Station?**\
+`The nation’s busiest transit hub stands as a symbol of a condition that afflicts so many attempts to get big things done in America: inertia.`\
+https://nytimes.com/interactive/2025/11/12/nyregion/inertia-penn-station-trump.html
+
+**The D.N.C. Ordered Workers Back to the Office. Its Union Isn’t Pleased.**\
+`Thumbs-down emojis flowed onscreen as Washington-area employees learned they would have to show up five days a week. Their union called the move “callous.”`\
+https://nytimes.com/2025/11/12/us/politics/dnc-return-to-office-ken-martin.html
+
 **Michael Ray Richardson, N.B.A. Star Derailed by Cocaine, Dies at 70**\
 `A four-time All-Star, he dazzled fans, and fellow players, with his intense play for the New York Knicks, only to become the league’s first player to be barred for drug use.`\
 https://nytimes.com/2025/11/12/sports/basketball/michael-ray-richardson-dead.html

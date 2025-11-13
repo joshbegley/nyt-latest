@@ -1,3 +1,11 @@
+**Why Can’t New York Fix Penn Station?**\
+`The nation’s busiest transit hub stands as a symbol of a condition that afflicts so many attempts to get big things done in America: inertia.`\
+https://nytimes.com/interactive/2025/11/12/nyregion/inertia-penn-station-trump.html
+
+**The D.N.C. Ordered Workers Back to the Office. Its Union Isn’t Pleased.**\
+`Thumbs-down emojis flowed onscreen as Washington-area employees learned they would have to show up five days a week. Their union called the move “callous.”`\
+https://nytimes.com/2025/11/12/us/politics/dnc-return-to-office-ken-martin.html
+
 **Michael Ray Richardson, N.B.A. Star Derailed by Cocaine, Dies at 70**\
 `A four-time All-Star, he dazzled fans, and fellow players, with his intense play for the New York Knicks, only to become the league’s first player to be barred for drug use.`\
 https://nytimes.com/2025/11/12/sports/basketball/michael-ray-richardson-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6802735/2025/11/12/blue-jays-relief-after-bullpen-i
 **Warriors adjust starting lineup after slow start to season: 'It's that we're not in sync'**\
 `Kerr reflected on the Warriors' early-season struggles as he changed their starting lineup: "We're not in sync."`\
 https://nytimes.com/athletic/6802685/2025/11/12/draymond-green-comments-warriors-lineup-steve-kerr/
-
-**Northern Lights Are Beautiful, but They’re Risky for Satellites**\
-`At least one space launch has been put on hold, as satellite operators and rocket companies manage the effects of the current geomagnetic storm hitting Earth.`\
-https://nytimes.com/2025/11/12/science/northern-lights-solar-satellites.html
-
-**How Yankees' Cody Bellinger, Trent Grisham decisions could cause major ripple effect**\
-`If Bellinger and Grisham return to the Yankees, that could impact where Jasson Domínguez and Spencer Jones fit.`\
-https://nytimes.com/athletic/6802407/2025/11/12/new-york-yankees-trent-grisham-cody-bellinger-decision-effects/
 
