@@ -1,3 +1,7 @@
+**Ja Morant to miss Wednesday's matchup vs. Celtics due to ankle injury**\
+`Ja Morant is expected to miss Wednesday's matchup against the Celtics due to ankle soreness.`\
+https://nytimes.com/athletic/6802497/2025/11/12/ja-morant-injury-status-grizzlies-nba/
+
 **Former Aide to Gavin Newsom Charged With Corruption**\
 `Dana Williamson, a top Democratic consultant in California, was accused of conspiring to skim over $200,000 in campaign funds that belonged to a Biden administration official.`\
 https://nytimes.com/2025/11/12/us/newsom-aide-corruption-charges.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/americas/100000010521226/indigenous-protesters-c
 **Iraq’s Prime Minister Leads in Elections, but May Struggle to Form Government**\
 `Mohammed al-Sudani pitches himself as someone who can keep Iranian influence in check, but his vote share may not be big enough to ensure a clear political victory.`\
 https://nytimes.com/2025/11/12/world/middleeast/iraq-elections.html
-
-**Russian Humanoid Robot Falls on Its Face in Hyped Debut**\
-`The robot, known as AIDOL, staggered onstage during a technology showcase in Moscow. Organizers blamed the mishap on calibration and lighting issues.`\
-https://nytimes.com/2025/11/12/technology/ai-robot-russia-falls.html
 

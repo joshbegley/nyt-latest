@@ -1,3 +1,7 @@
+**Catholic Bishops Rebuke U.S. ‘Mass Deportation’ of Immigrants**\
+`In a rare statement, the bishops framed the immigration crisis in starkly moral terms. “We feel compelled now in this environment to raise our voices in defense of God-given human dignity,” they said.`\
+https://nytimes.com/2025/11/12/us/bishops-trump-immigration.html
+
 **Former Aide to Gavin Newsom Charged With Corruption**\
 `Dana Williamson, a top Democratic consultant in California, was accused of conspiring to skim over $200,000 in campaign funds that belonged to a Biden administration official.`\
 https://nytimes.com/2025/11/12/us/newsom-aide-corruption-charges.html

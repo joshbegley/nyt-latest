@@ -22,8 +22,8 @@ https://nytimes.com/2025/11/12/world/europe/syria-security-official-indicted-war
 `In Houston, Iapoce will work alongside Victor Rodríguez, who agreed to leave the San Diego Padres. `\
 https://nytimes.com/athletic/6795116/2025/11/12/houston-astros-anthony-iapoce-hitting-coach-hire/
 
-**Catholic Bishops Issue Rare Statement Objecting to U.S. Immigration Tactics**\
-`“We feel compelled now in this environment to raise our voices in defense of God-given human dignity,” they said in the statement.`\
+**Catholic Bishops Rebuke U.S. ‘Mass Deportation’ of Immigrants**\
+`In a rare statement, the bishops framed the immigration crisis in starkly moral terms. “We feel compelled now in this environment to raise our voices in defense of God-given human dignity,” they said.`\
 https://nytimes.com/2025/11/12/us/bishops-trump-immigration.html
 
 **Indigenous Protesters Clash With Guards at U.N. Climate Summit**\
