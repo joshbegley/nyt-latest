@@ -1,3 +1,19 @@
+**TAFC: How will rise to 48 teams affect World Cup? Plus: Paris attacks remembered, 10 years on**\
+`Today in TAFC: What will a rise to 48 teams do to the World Cup? Plus: Paris attacks, 10 years on, and MLS could be set for a seismic change`\
+https://nytimes.com/athletic/6803697/2025/11/13/world-cup-48-team-format/
+
+**Wizards' Cam Whitmore shows potential, and a flaw, in Houston return**\
+`The Rockets were eager to trade Whitmore. The Wizards were eager to take him. The season ahead may show which team made the right decision.`\
+https://nytimes.com/athletic/6803412/2025/11/13/cam-whitmore-wizards-rockets/
+
+**Court Vision: Louisville's early results are letting us say, 'Told you so'**\
+`The Cardinals' versatility on offense poses dilemmas for opponents. `\
+https://nytimes.com/athletic/6802286/2025/11/13/louisville-college-basketball-michigan-gonzaga/
+
+**Which prospects do Twins need to protect from Rule 5 draft? Must-adds, tough calls**\
+`Ranking the most prominent Twins prospects who would be eligible for the Rule 5 draft if they aren’t added to the 40-man roster.`\
+https://nytimes.com/athletic/6795227/2025/11/13/twins-rule-5-draft-candidates-connor-prielipp/
+
 **College football Week 12 oddly specific predictions: USC stumbles in trap game, Alabama surges**\
 `Will Georgia knock Texas out of CFP contention in a rematch of last year's SEC championship game?`\
 https://nytimes.com/athletic/6798666/2025/11/13/college-football-predictions-week-11-2/

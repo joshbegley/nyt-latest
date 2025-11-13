@@ -1,3 +1,19 @@
+**TAFC: How will rise to 48 teams affect World Cup? Plus: Paris attacks remembered, 10 years on**\
+`Today in TAFC: What will a rise to 48 teams do to the World Cup? Plus: Paris attacks, 10 years on, and MLS could be set for a seismic change`\
+https://nytimes.com/athletic/6803697/2025/11/13/world-cup-48-team-format/
+
+**Wizards' Cam Whitmore shows potential, and a flaw, in Houston return**\
+`The Rockets were eager to trade Whitmore. The Wizards were eager to take him. The season ahead may show which team made the right decision.`\
+https://nytimes.com/athletic/6803412/2025/11/13/cam-whitmore-wizards-rockets/
+
+**Court Vision: Louisville's early results are letting us say, 'Told you so'**\
+`The Cardinals' versatility on offense poses dilemmas for opponents. `\
+https://nytimes.com/athletic/6802286/2025/11/13/louisville-college-basketball-michigan-gonzaga/
+
+**Which prospects do Twins need to protect from Rule 5 draft? Must-adds, tough calls**\
+`Ranking the most prominent Twins prospects who would be eligible for the Rule 5 draft if they aren’t added to the 40-man roster.`\
+https://nytimes.com/athletic/6795227/2025/11/13/twins-rule-5-draft-candidates-connor-prielipp/
+
 **College football Week 12 oddly specific predictions: USC stumbles in trap game, Alabama surges**\
 `Will Georgia knock Texas out of CFP contention in a rematch of last year's SEC championship game?`\
 https://nytimes.com/athletic/6798666/2025/11/13/college-football-predictions-week-11-2/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6801739/2025/11/13/49ers-injuries-practice-kyle-sha
 **Can the Maple Leafs avoid a nightmare season?**\
 `Fixing the current roster to the point that the Stanley Cup feels legitimately possible again won't be easy for GM Brad Treliving.`\
 https://nytimes.com/athletic/6801599/2025/11/13/maple-leafs-2025-26-season-auston-matthews/
-
-**This Week in Sports Trivia: November 13, 2025**\
-`How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
-https://nytimes.com/athletic/6801782/2025/11/13/this-week-in-sports-trivia-november-13-2025/
-
-**Carson Benge, Opening Day center fielder? He might be Mets' best option**\
-`We examine the center field market this winter to see where the offseason could take president David Stearns and the Mets.`\
-https://nytimes.com/athletic/6803083/2025/11/13/carson-benge-opening-day-center-fielder-mets/
-
-**Bengals RB Chase Brown moves past ‘emotional moment' while hitting familiar stride**\
-`Brown has seen a return to his 2024 form since Joe Flacco arrived and has his sights on the Steelers this weekend.`\
-https://nytimes.com/athletic/6802951/2025/11/13/bengals-chase-brown-steelers/
-
-**Wild observations: What we've learned as they pulled out of their season-opening skid**\
-`From needing more from Kirill Kaprizov to Zeev Buium and Danila Yurov gaining coaches' trust, here's what we're seeing through 18 games.`\
-https://nytimes.com/athletic/6801823/2025/11/13/wild-observatons-kaprizov-buium-overtime/
 
