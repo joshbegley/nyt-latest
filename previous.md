@@ -1,3 +1,7 @@
+**Two-Cent Pieces**\
+`Kyle Perkins makes his New York Times Crossword debut, and a love letter to readers.`\
+https://nytimes.com/2025/11/12/crosswords/daily-puzzle-2025-11-13.html
+
 **Why Can’t New York Fix Penn Station?**\
 `The nation’s busiest transit hub stands as a symbol of a condition that afflicts so many attempts to get big things done in America: inertia.`\
 https://nytimes.com/interactive/2025/11/12/nyregion/inertia-penn-station-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/11/12/us/house-shutdown-vote.html
 **Blue Jays targeting high-leverage relief after postseason bullpen issues: Sources**\
 `Toronto will likely be shopping in the same bullpen tier as the Dodgers for pitchers like Devin Williams, Pete Fairbanks and Phil Maton.`\
 https://nytimes.com/athletic/6802735/2025/11/12/blue-jays-relief-after-bullpen-issues/
-
-**Warriors adjust starting lineup after slow start to season: 'It's that we're not in sync'**\
-`Kerr reflected on the Warriors' early-season struggles as he changed their starting lineup: "We're not in sync."`\
-https://nytimes.com/athletic/6802685/2025/11/12/draymond-green-comments-warriors-lineup-steve-kerr/
 

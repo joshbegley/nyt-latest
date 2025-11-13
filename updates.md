@@ -1,3 +1,7 @@
+**Two-Cent Pieces**\
+`Kyle Perkins makes his New York Times Crossword debut, and a love letter to readers.`\
+https://nytimes.com/2025/11/12/crosswords/daily-puzzle-2025-11-13.html
+
 **Why Can’t New York Fix Penn Station?**\
 `The nation’s busiest transit hub stands as a symbol of a condition that afflicts so many attempts to get big things done in America: inertia.`\
 https://nytimes.com/interactive/2025/11/12/nyregion/inertia-penn-station-trump.html
