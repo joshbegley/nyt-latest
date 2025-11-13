@@ -1,3 +1,7 @@
+**Grace College scores 172 points to set women's college basketball scoring record**\
+`The small school from Winona Lake, Ind., surpassed the previous record held by two schools, and it wasn't even close.`\
+https://nytimes.com/athletic/6802400/2025/11/12/grace-college-college-basketball-scoring-record/
+
 **Dodger Details: Pitching depth after World Series win, plus plans for Dalton Rushing**\
 `The Dodgers' starting depth on paper going into next year might be just as deep as the group it had going into this year.`\
 https://nytimes.com/athletic/6803021/2025/11/12/los-angeles-dodgers-pitching-depth-dalton-rushing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6802825/2025/11/12/houston-astros-cam-smith-outfiel
 **After Trump Split, Epstein Said He Could ‘Take Him Down’**\
 `Jeffrey Epstein cast himself as a Trump insider and wanted to leverage potentially damaging information about the president and his business dealings, according to emails with associates.`\
 https://nytimes.com/2025/11/12/us/epstein-emails-trump.html
-
-**How Every House Member Voted on the Bill to Reopen the Government**\
-`The House voted mostly along party lines to end the longest government shutdown in U.S. history.`\
-https://nytimes.com/interactive/2025/11/12/us/house-shutdown-vote.html
 
