@@ -1,3 +1,23 @@
+**Does the Subway Still Need Train Conductors?**\
+`Gov. Kathy Hochul must decide by year’s end whether to sign a law that would mandate two-person crews on all trains, a practice critics say is costly and outdated.`\
+https://nytimes.com/2025/11/13/nyregion/subway-train-conductors-hochul.html
+
+**Looking at a Watch**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2025/11/13/learning/looking-at-a-watch.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/13/crosswords/spelling-bee-forum.html
+
+**Hochul Vetoed 7 of His Bills in a Single Day. Could It Be Personal?**\
+`State Senator James Skoufis of New York has been a steady critic of Gov. Kathy Hochul, a fellow Democrat. Her vetoes of his bills seemed intended to send a message.`\
+https://nytimes.com/2025/11/13/nyregion/skoufis-hochul-bills-veto.html
+
+**Why Can’t We Fix Penn Station?**\
+`The biggest thing holding Penn Station back from a much-needed rehaul is what’s on top of it: Madison Square Garden.`\
+https://nytimes.com/video/nyregion/100000010438314/why-cant-we-fix-penn-station.html
+
 **Late Night Pops Off on Trump Popping Up in Epstein Email Thread**\
 `Josh Johnson said that Jeffrey Epstein’s references to President Trump might not mean much: “Maybe the email was about how Trump never comes to his sex parties — rude.”`\
 https://nytimes.com/2025/11/13/arts/television/late-night-trump-epstein-emails.html

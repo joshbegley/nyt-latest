@@ -1,3 +1,23 @@
+**Does the Subway Still Need Train Conductors?**\
+`Gov. Kathy Hochul must decide by year’s end whether to sign a law that would mandate two-person crews on all trains, a practice critics say is costly and outdated.`\
+https://nytimes.com/2025/11/13/nyregion/subway-train-conductors-hochul.html
+
+**Looking at a Watch**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2025/11/13/learning/looking-at-a-watch.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/13/crosswords/spelling-bee-forum.html
+
+**Hochul Vetoed 7 of His Bills in a Single Day. Could It Be Personal?**\
+`State Senator James Skoufis of New York has been a steady critic of Gov. Kathy Hochul, a fellow Democrat. Her vetoes of his bills seemed intended to send a message.`\
+https://nytimes.com/2025/11/13/nyregion/skoufis-hochul-bills-veto.html
+
+**Why Can’t We Fix Penn Station?**\
+`The biggest thing holding Penn Station back from a much-needed rehaul is what’s on top of it: Madison Square Garden.`\
+https://nytimes.com/video/nyregion/100000010438314/why-cant-we-fix-penn-station.html
+
 **Late Night Pops Off on Trump Popping Up in Epstein Email Thread**\
 `Josh Johnson said that Jeffrey Epstein’s references to President Trump might not mean much: “Maybe the email was about how Trump never comes to his sex parties — rude.”`\
 https://nytimes.com/2025/11/13/arts/television/late-night-trump-epstein-emails.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6803042/2025/11/13/suriname-eye-history-graham-pott
 **Word of the Day: prudent**\
 `This word has appeared in 328 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/11/13/learning/word-of-the-day-prudent.html
-
-**Jeers, cheers, selfies and a painful defeat: Earps returns to Man Utd**\
-`The goalkeeper whose autobiography has caused a furore in recent weeks had a mixed reception when back at her old club for the first time`\
-https://nytimes.com/athletic/6802703/2025/11/13/mary-earps-manchester-united-psg/
-
-**Nikola Jokić scores 52 points through first three quarters vs. Clippers**\
-`Jokic finished with 55 for his fifth career 50-point game, but the first that came in a Nuggets win.`\
-https://nytimes.com/athletic/6803348/2025/11/13/nikola-jokic-55-points-clippers-nuggets/
-
-**Eddie Hearn on Saudi money, the 'enjoyable' chaos of Al-Sheikh, and his boxing regrets**\
-`Exclusive: Promoter reveals what it's like to work with boxing's new powerhouse and the sport's 'toxic' social media culture`\
-https://nytimes.com/athletic/6797676/2025/11/13/eddie-hearn-opens-up-on-saudi-money-the-enjoyable-chaos-of-al-sheikh-and-his-boxing-regrets/
-
-**China Looks Strong. Life Here Tells a Different Story.**\
-`Despair about dimming economic and personal prospects has created an outwardly strong, inwardly brittle nation.`\
-https://nytimes.com/2025/11/13/opinion/china-politics-social-public-mood.html
-
-**The New York Times in Print for Thursday, Nov. 13, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/11/13/todays-new-york-times
 
