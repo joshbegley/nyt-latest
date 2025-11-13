@@ -1,3 +1,7 @@
+**Jalen Brunson was spotted leaving Madison Square Garden in a walking boot, with crutches**\
+`Jalen Brunson was seen leaving Madison Square Garden in a walking boot and with crutches after the Knicks' 17-point loss.`\
+https://nytimes.com/athletic/6803142/2025/11/12/jalen-brunson-injury-knicks-walking-boot-nba/
+
 **After Cy Young win, Paul Skenes denies alleged desires to be traded to Yankees**\
 `On Wednesday night, Skenes said in no uncertain terms that he plans to be part of the Pirates' rebirth.`\
 https://nytimes.com/athletic/6803054/2025/11/12/pittsburgh-pirates-paul-skenes-new-york-yankees/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/12/us/politics/trump-homeless-funding.html
 **Jason Kidd: Fans' 'Fire Nico' chants 'disrespected' Mavericks players**\
 `"It’s hard to keep guys here when they start to think the home team is not home," Kidd said before Wednesday's game.`\
 https://nytimes.com/athletic/6802586/2025/11/12/nico-harrison-firing-league-reaction-jason-kidd/
-
-**As the Astros seek to 'firm up' their outfield, Cam Smith must prove he's part of it**\
-`Smith has moved into a more precarious position within Houston’s organizational hierarchy. He must match his potential to change that.`\
-https://nytimes.com/athletic/6802825/2025/11/12/houston-astros-cam-smith-outfield-potential-outlook/
 

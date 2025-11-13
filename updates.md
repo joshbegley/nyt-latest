@@ -1,3 +1,7 @@
+**Jalen Brunson was spotted leaving Madison Square Garden in a walking boot, with crutches**\
+`Jalen Brunson was seen leaving Madison Square Garden in a walking boot and with crutches after the Knicks' 17-point loss.`\
+https://nytimes.com/athletic/6803142/2025/11/12/jalen-brunson-injury-knicks-walking-boot-nba/
+
 **After Cy Young win, Paul Skenes denies alleged desires to be traded to Yankees**\
 `On Wednesday night, Skenes said in no uncertain terms that he plans to be part of the Pirates' rebirth.`\
 https://nytimes.com/athletic/6803054/2025/11/12/pittsburgh-pirates-paul-skenes-new-york-yankees/
