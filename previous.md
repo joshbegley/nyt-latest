@@ -1,3 +1,11 @@
+**Maple Leafs shake up roster amid injuries to Auston Matthews, Anthony Stolarz**\
+`The loss of Auston Matthews will put added pressure on Leafs' centre depth as Dennis Hildeby gets start in goal. `\
+https://nytimes.com/athletic/6804675/2025/11/13/maple-leafs-roster-injury-matthews-stolarz/
+
+**Mancini appointed head coach of Qatari champions Al Sadd**\
+`Mancini had been out of football since October 2024 and was previously contacted by Nottingham Forest after Ange Postecoglou's exit.`\
+https://nytimes.com/athletic/6804749/2025/11/13/roberto-mancini-manager-qatar/
+
 **A Home That Proves You Can Never Have Too Many Books**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/peter-ayers-tarantino-apartment
@@ -25,12 +33,4 @@ https://nytimes.com/video/dining/100000010519791/restaurant-review-korai-kitchen
 **Shrimp Aguachile**\
 `Aguachile, the bright and punchy seafood dish from coastal Sinaloa, Mexico, gets its name (which translates to “chile water”) from the vibrant blend of chiles, lime juice and salt that transform the sweet flesh of raw shrimp into tender, tart flavor bombs.`\
 https://nytimes.com/video/dining/100000010519797/shrimp-aguachile.html
-
-**Maple Leafs to put David Kämpf on waivers, terminate his contract: Source**\
-`Kämpf has spent the past four seasons in Toronto, putting up 31 goals and 85 points in 301 games for the Maple Leafs.`\
-https://nytimes.com/athletic/6767066/2025/11/13/maple-leafs-david-kampf-contract-termination/
-
-**CFP chair Rhoades steps down amid leave of absence from Baylor**\
-`The leave comes less than a week after news surfaced of an investigation conducted by Baylor into an alleged sideline incident in September.`\
-https://nytimes.com/athletic/6804336/2025/11/13/baylor-mack-rhoades-leave-of-absence/
 

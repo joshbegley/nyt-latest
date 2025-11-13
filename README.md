@@ -19,7 +19,7 @@ https://nytimes.com/2025/11/13/learning/what-teenagers-are-saying-about-their-fa
 https://nytimes.com/athletic/6804181/2025/11/13/how-max-arfsten-uncapped-and-overlooked-became-an-unlikely-usmnt-fixture/
 
 **College football best bets Week 12: Two Friday plays and an upset call**\
-`Austin Mock's model likes the over in Texas and Georgia and has a pair of picks for this week's Friday games.`\
+`Austin Mock's model likes the over in Texas-Georgia and has a pair of picks for this week's Friday games.`\
 https://nytimes.com/athletic/6804160/2025/11/13/college-football-best-bets-week-12-georgia-texas/
 
 **How Yung Lean Escaped His Lowest Lows**\
@@ -29,8 +29,4 @@ https://nytimes.com/video/podcasts/100000010520100/how-yung-lean-escaped-his-low
 **Restaurant Review: Korai Kitchen**\
 `Ligaya Mishan, a New York Times chief restaurant critic, visits Korai Kitchen in Jersey City. A restaurant where a mother-daughter duo roll out an incomparable Bangladeshi menu.`\
 https://nytimes.com/video/dining/100000010519791/restaurant-review-korai-kitchen.html
-
-**Shrimp Aguachile**\
-`Aguachile, the bright and punchy seafood dish from coastal Sinaloa, Mexico, gets its name (which translates to “chile water”) from the vibrant blend of chiles, lime juice and salt that transform the sweet flesh of raw shrimp into tender, tart flavor bombs.`\
-https://nytimes.com/video/dining/100000010519797/shrimp-aguachile.html
 

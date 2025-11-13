@@ -1,3 +1,11 @@
+**Maple Leafs shake up roster amid injuries to Auston Matthews, Anthony Stolarz**\
+`The loss of Auston Matthews will put added pressure on Leafs' centre depth as Dennis Hildeby gets start in goal. `\
+https://nytimes.com/athletic/6804675/2025/11/13/maple-leafs-roster-injury-matthews-stolarz/
+
+**Mancini appointed head coach of Qatari champions Al Sadd**\
+`Mancini had been out of football since October 2024 and was previously contacted by Nottingham Forest after Ange Postecoglou's exit.`\
+https://nytimes.com/athletic/6804749/2025/11/13/roberto-mancini-manager-qatar/
+
 **A Home That Proves You Can Never Have Too Many Books**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/peter-ayers-tarantino-apartment
