@@ -1,3 +1,7 @@
+**Liverpool owner FSG ends interest in buying La Liga club Getafe**\
+`The Athletic reported in July that discussions were taking place with Getafe president Angel Torres over a staged takeover of the club.`\
+https://nytimes.com/athletic/6805730/2025/11/13/liverpool-fsg-getafe-multi-club/
+
 **Some T.S.A. Workers to Get $10,000 Bonuses for Shutdown Work**\
 `Kristi Noem, the homeland security secretary, began handing out $10,000 checks to T.S.A. workers who “went above and beyond” during the shutdown, after the president recommended similar bonuses for some air traffic controllers.`\
 https://nytimes.com/2025/11/13/us/politics/tsa-worker-checks-bonus-shutdown.html
