@@ -2,7 +2,7 @@
 `If the fight is confirmed, Matchroom expect it to take place in Miami and be screened on streaming service Netflix.`\
 https://nytimes.com/athletic/6803716/2025/11/13/anthony-joshua-jake-paul-boxing/
 
-**Man arrested for allegedly verbally abusing Mount during Man Utd vs Spurs**\
+**Man arrested for allegedly verbally abusing Mount during Spurs vs Man Utd**\
 `The 19-year-old was arrested on suspicion of "intentionally causing harassment, alarm or distress" during Saturday's Premier League tie.`\
 https://nytimes.com/athletic/6800756/2025/11/13/mason-mount-manchester-united-fan-arrest-tottenham/
 
