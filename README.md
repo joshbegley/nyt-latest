@@ -1,3 +1,11 @@
+**Carlos Alcaraz secures year-end No. 1 ranking with ATP Tour Finals win over Lorenzo Musetti**\
+`It is the second time the Spaniard has achieved the milestone in his career, at just 22 years old.`\
+https://nytimes.com/athletic/6804463/2025/11/13/carlos-alcaraz-year-end-world-no-1/
+
+**MLS owners vote to flip to fall-spring schedule, change format in 2027**\
+`MLS will soon align with leagues that play from the fall to the spring after a transformational decision made by its owners`\
+https://nytimes.com/athletic/6804752/2025/11/13/mls-calendar-fall-spring-europe-schedule-format-owners-vote/
+
 **Colombian club, backed by Hollywood star power, finishes season at bottom of table**\
 `La Equidad, purchased in January by a group that included Hollywood actors, finished the season with just three wins. `\
 https://nytimes.com/athletic/6804860/2025/11/13/ryan-reynolds-colombian-soccer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6805267/2025/11/13/eagles-offense-struggles-nfl-pat
 **What Is a Prop Bet?**\
 `Recent betting scandals in the N.B.A. and M.L.B. have involved players allegedly manipulating their performance so bettors would win money on proposition — or prop — bets. The Athletic’s Hannah Vanbiber explains what prop bets are and why they are controversial.`\
 https://nytimes.com/video/the-athletic/100000010522357/what-is-a-prop-bet.html
-
-**Fetterman, Senator Who Survived Stroke, Hospitalized After Fall**\
-`Senator John Fetterman, the hoodie-wearing Pennsylvanian who nearly died during his campaign and was later hospitalized for clinical depression, had minor injuries, according to his office.`\
-https://nytimes.com/2025/11/13/us/politics/fetterman-fall-hospitalized-pennsylvania.html
-
-**How to watch Jets vs. Kraken: Time, TV, streaming**\
-`Find out how to watch the Winnipeg Jets play the Seattle Kraken, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6805299/2025/11/13/jets-vs-kraken-stream-how-to-watch-nov-13/
 

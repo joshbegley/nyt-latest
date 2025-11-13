@@ -1,3 +1,15 @@
+**Colombian club, backed by Hollywood star power, finishes season at bottom of table**\
+`La Equidad, purchased in January by a group that included Hollywood actors, finished the season with just three wins. `\
+https://nytimes.com/athletic/6804860/2025/11/13/ryan-reynolds-colombian-soccer/
+
+**A First Look at the Fall’s Biggest Restaurant Openings**\
+`Scoring the season’s hardest reservations at Wild Cherry, Babbo and the Eighty Six.`\
+https://nytimes.com/2025/11/13/dining/a-first-look-at-the-falls-biggest-restaurant-openings.html
+
+**Rubiales has eggs thrown at him by his uncle during book event in Madrid**\
+`The 48-year-old was speaking about his new book, 'Matar a Rubiales' (Killing Rubiales), at an event in Madrid on Thursday.`\
+https://nytimes.com/athletic/6805136/2025/11/13/luis-rubiales-uncle-eggs-madrid/
+
 **Map: 3.6-Magnitude Earthquake Strikes the San Francisco Bay Area**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/11/13/us/vallejo-san-francisco-california-earthquake.html
