@@ -1,3 +1,7 @@
+**3 Charged With Stuffed Animal Heist at Amusement Park Seen in ‘Big’**\
+`They arrived at Rye Playland in the darkness, in a boat they had taken without the owner’s permission, then hopped a fence into the park, where the spree began, officials said.`\
+https://nytimes.com/2025/11/12/nyregion/playland-rye-amusement-park-vandalism-burglary.html
+
 **Paul Skenes’ evolution into a unanimous Cy Young winner, in 14 steps**\
 `Skenes is the second pitcher in MLB history, along with Dwight Gooden, to win Rookie of the Year and Cy Young in consecutive seasons.`\
 https://nytimes.com/athletic/6802147/2025/11/12/paul-skenes-cy-young-award-history/
