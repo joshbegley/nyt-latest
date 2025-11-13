@@ -1,3 +1,7 @@
+**China’s ‘Wolf Warrior’ Diplomacy Returns With Threat Against Japan’s Leader**\
+`A Chinese diplomat’s call to cut off the prime minister’s “filthy neck” signaled a revival of a combative style Beijing had tried to dial back.`\
+https://nytimes.com/2025/11/13/world/asia/china-japan-takaichi-taiwan.html
+
 **Remembering Shane Warne: 'The biggest cricketing superstar of the lot'**\
 `Shane Keith Warne transcended his sport like few other cricketers – he will be mourned during the first Ashes Down Under since his passing `\
 https://nytimes.com/athletic/6787575/2025/11/13/shane-warne-the-ashes-australia-england/
