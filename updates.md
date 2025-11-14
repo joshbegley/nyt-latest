@@ -1,3 +1,11 @@
+**Overlooked No More: Sabina Spielrein, Visionary Lost Between Freud and Jung**\
+`She maintained a triangular correspondence with the two men, who overshadowed the significant contributions she made to the field of psychoanalysis.`\
+https://nytimes.com/2025/11/14/obituaries/sabina-spielrein-overlooked.html
+
+**Sarah Jessica Parker’s Year of Judging the Booker Prize**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/sarah-jessica-parker-booker-prize
+
 **The Heaviest Rain Is Yet to Come for Southern Californians Facing a Very Wet Storm**\
 `An unusually powerful storm has prompted some evacuation warnings before heavy rain on Saturday.`\
 https://nytimes.com/2025/11/14/weather/california-rain-flood-storm-los-angeles-forecast.html
