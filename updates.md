@@ -1,3 +1,19 @@
+**Flight Cuts Imposed During Shutdown Will Be Reduced by Half**\
+`The leaders of the Federal Aviation Administration and the Department of Transportation said they would continue monitoring air traffic controller staffing, which has been improving since the shutdown ended.`\
+https://nytimes.com/2025/11/14/us/politics/flights-restrictions-travel-faa.html
+
+**Seneca Soldier and Statesman Can Finally Add Lawyer to His Legacy**\
+`Ely Samuel Parker, a Native American who served as an aide to Ulysses S. Grant during the Civil War, was kept from practicing law during his lifetime.`\
+https://nytimes.com/2025/11/14/nyregion/ely-samuel-parker-new-york-native-american.html
+
+**Yvonne Brewster, Godmother of Black British Theater, Dies at 87**\
+`When she studied acting in London in the 1950s, she was told she was unlikely to find work. She ended up starting one of the country’s foremost Black theaters.`\
+https://nytimes.com/2025/11/14/theater/yvonne-brewster-dead.html
+
+**Cacio e Pepe Green Beans**\
+`This cheesy, pleasantly piquant side takes a cue from the classic Roman pasta. Built for ease, this one-pan recipe calls to first sauté the green beans in a pan until glossy and coated in black pepper-infused olive oil.`\
+https://nytimes.com/video/dining/100000010522929/cacio-e-pepe-green-beans.html
+
 **Cranberry Pudding**\
 `Think of this dessert as a more colorful, autumnal version of banana pudding.`\
 https://nytimes.com/video/dining/100000010523014/cranberry-pudding.html
