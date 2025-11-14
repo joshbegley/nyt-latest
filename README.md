@@ -1,3 +1,7 @@
+**Hurricane Melissa Leaves Behind a Staggering Homelessness Toll**\
+`Two weeks after Hurricane Melissa wrecked western Jamaica, officials are beginning to grapple with the challenge of trying to find housing for thousands of families.`\
+https://nytimes.com/2025/11/14/world/americas/hurricane-melissa-homeless-jamaica.html
+
 **Patriots Beat Jets 27-14 in Eighth Straight Win**\
 `The New England Patriots clinched their first winning season since 2021 with a 13-point win over the New York Jets at home. The rookie Patriots running back TreVeyon Henderson scored three touchdowns.`\
 https://nytimes.com/video/sports/football/100000010524299/patriots-beat-jets-27-14-in-eighth-straight-win.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6806265/2025/11/14/lions-john-morton-dan-campbell-p
 **Sabres' winless streak grows to five games, another bleak moment in Kevyn Adams era**\
 `Thanksgiving is still almost two weeks away, and already the Sabres’ season looks lost.`\
 https://nytimes.com/athletic/6806613/2025/11/14/buffalo-sabres-winless-streak/
-
-**A new NASCAR program paid drivers to promote the sport. The result was a win**\
-`The "Driver Ambassador Program," which provides financial incentive for drivers to do media, was a hit in the garage in its first year.`\
-https://nytimes.com/athletic/6805554/2025/11/14/nascar-driver-ambassador-program-joey-logano/
 
