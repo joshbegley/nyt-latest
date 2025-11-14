@@ -1,3 +1,19 @@
+**Ravens QB Lamar Jackson will start Sunday vs. Browns**\
+`Jackson missed Wednesday's practice with a knee injury but returned as a full participant on Thursday and Friday.`\
+https://nytimes.com/athletic/6808009/2025/11/14/lamar-jackson-start-ravens-browns/
+
+**Boston University Student Faces Backlash After He Called ICE on Workers**\
+`The student, the president of the school’s College Republicans club, said he reported immigrant carwash workers. Now he is facing online attacks after nine of the workers were detained.`\
+https://nytimes.com/2025/11/14/us/boston-university-republican-student-ice-carwash-workers.html
+
+**York thriving on Flyers' blue line after disappointing campaign last season**\
+`After a difficult year last season, Cam York has arguably been the Flyers’ top defenseman this season.`\
+https://nytimes.com/athletic/6807912/2025/11/14/cam-york-flyers-defenseman/
+
+**What we're hearing on David Kämpf destinations**\
+`Kämpf, a valuable penalty-killer and faceoff man, was waived by the Maple Leafs on Thursday and cleared waivers to become a UFA on Friday.`\
+https://nytimes.com/athletic/6807834/2025/11/14/david-kampf-destinations-wild-canadiens-penguins/
+
 **‘The Seat of Our Pants’ Review: Songs for the World’s End**\
 `Ruthie Ann Miles, Shuler Hensley and Micaela Diamond lead a dream-team cast in Ethan Lipton’s musical adaptation of Thornton Wilder’s “The Skin of Our Teeth.”`\
 https://nytimes.com/2025/11/14/theater/seat-of-our-pants-review-public-theater.html
