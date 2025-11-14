@@ -1,3 +1,7 @@
+**Far Right’s Fixation on Jan. 6 Pipe Bomb Suspect Reaches F.B.I.’s Top Ranks**\
+`For all his bluster, the F.B.I.’s deputy director Dan Bongino played a central role in stoking expectations that the bureau would quickly find the suspects who planted pipe bombs.`\
+https://nytimes.com/2025/11/13/us/politics/dan-bongino-jan-6-pipe-bomb.html
+
 **Memo Blessing Boat Strikes Is Said to Rely on Trump’s Claims About Cartels**\
 `Accounts of a secret Justice Department memo offer a window into how administration lawyers approved the president’s desired course of action.`\
 https://nytimes.com/2025/11/13/us/politics/boat-strikes-doj-memo-trump.html
@@ -21,8 +25,4 @@ https://nytimes.com/2025/11/13/nyregion/nj-path-train-fares.html
 **Justice Department Joins Suit Challenging New California Congressional Districts**\
 `The agency intervened in a lawsuit brought by the California Republican Party seeking to throw out a map, approved last week by the state’s voters, that would redraw House districts to favor Democrats.`\
 https://nytimes.com/2025/11/13/us/doj-lawsuit-california-house-redistricting.html
-
-**Mamdani and Hochul Discuss Their Challenges: Trump and Child Care**\
-`Zohran Mamdani, the mayor-elect of New York City, and Gov. Kathy Hochul met to talk about how to prepare for threats from President Trump.`\
-https://nytimes.com/2025/11/13/nyregion/mamdani-hochul-child-care-trump.html
 
