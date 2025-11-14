@@ -1,3 +1,7 @@
+**Stephen Curry, Under Armour end 13-year partnership**\
+`As part of the separation, Curry will maintain sole ownership of the Curry Brand and is free to find another retail partner.`\
+https://nytimes.com/athletic/6805777/2025/11/13/steph-curry-under-armour-deal-ending-shoes/
+
 **Dodgers' Shohei Ohtani unanimously wins fourth MVP award**\
 `Ohtani returned to the mound while authoring another brilliant season at the plate with 55 home runs and a major-league leading 146 runs.`\
 https://nytimes.com/athletic/6805014/2025/11/13/dodgers-shohei-ohtani-fourth-mvp-unanimous/
@@ -21,8 +25,4 @@ https://nytimes.com/2025/11/13/world/canada/carney-economy-trade-trump-tariffs.h
 **From YouTube Pranks to Melodic Rage Music**\
 `The critic Jon Caramanica’s latest Song of the Week is “Pixelated Kisses” by the viral figure Joji, an unlikely source of such beauty.`\
 https://nytimes.com/video/podcasts/100000010520707/from-youtube-pranks-to-melodic-rage-music.html
-
-**PATH Train Fare to Rise to $4 by 2029**\
-`The Port Authority of New York and New Jersey on Thursday announced the increase and a timetable for restoring daily service on all  its lines for the first time in 25 years.`\
-https://nytimes.com/2025/11/13/nyregion/nj-path-train-fares.html
 
