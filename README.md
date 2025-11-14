@@ -1,3 +1,7 @@
+**What’s a Digital Passport and How Does It Work?**\
+`Apple joined Google this week in allowing travelers to add their passports to their cellphone “wallets.” As the holiday travel season nears, here’s what you need to know.`\
+https://nytimes.com/2025/11/14/travel/digital-identification-travel.html
+
 **What Makes a Good Cover?**\
 `What makes a good cover song? On this week’s episode of the “Cannonball” podcast, host Wesley Morris is joined by singer Cecile McLorin Salvant to discuss the delicate art of performing or recording other people’s music.`\
 https://nytimes.com/video/podcasts/100000010522291/what-makes-a-good-cover.html
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/6807604/2025/11/14/eastern-illinois-vs-kentucky-str
 **Five International Movies to Stream Now**\
 `In this month’s picks, parents and children in India, Germany, Korea, Italy and Sudan grapple with the joys and perils of familial bonds.`\
 https://nytimes.com/2025/11/14/movies/international-movies-streaming.html
-
-**‘Being Eddie’ Gives Murphy the Final Word on His Feud with ‘S.N.L.’**\
-`The comedian’s long-running feud with the late-night sketch show is a topic in the new Netflix documentary “Being Eddie.”`\
-https://nytimes.com/2025/11/14/arts/television/eddie-murphy-documentary-snl.html
-
-**Lowetide: What's the Oilers' best path to Stanley Cup contention?**\
-`The Oilers must decide between trading for immediate help, or staying the course and building on the 2025-26 foundation.`\
-https://nytimes.com/athletic/6805650/2025/11/14/edmonton-oilers-stats-roster-trade-standings-2025/
 
