@@ -1,3 +1,7 @@
+**Stephen Curry, Under Armour end 13-year partnership**\
+`As part of the separation, Curry will maintain sole ownership of the Curry Brand and is free to find another retail partner.`\
+https://nytimes.com/athletic/6805777/2025/11/13/steph-curry-under-armour-deal-ending-shoes/
+
 **Dodgers' Shohei Ohtani unanimously wins fourth MVP award**\
 `Ohtani returned to the mound while authoring another brilliant season at the plate with 55 home runs and a major-league leading 146 runs.`\
 https://nytimes.com/athletic/6805014/2025/11/13/dodgers-shohei-ohtani-fourth-mvp-unanimous/
