@@ -1,3 +1,15 @@
+**With a Reyna, Berhalter in USMNT camp together, the past is being kept in the past**\
+`The two players' families endured one of American soccer's ugliest sagas, but they both have eyes on 2026 World Cup roster spots`\
+https://nytimes.com/athletic/6807589/2025/11/14/gio-reyna-sebastian-berhalter-usmnt-camp-pochettino-world-cup/
+
+**Canadiens will be without Alex Newhook, Kaiden Guhle for extended period**\
+`The Canadiens called up forward Jared Davidson from AHL Laval earlier Friday.`\
+https://nytimes.com/athletic/6808131/2025/11/14/canadiens-alex-newhook-kaiden-guhle-surgery-injury/
+
+**Trump Plan Could Limit Green Cards for Immigrants From Travel Ban Countries**\
+`The policy change is a major expansion of the administration’s push to crack down on immigration from countries that it says lack sufficient screening and vetting abilities.`\
+https://nytimes.com/2025/11/14/us/politics/trump-travel-ban-visas-green-card.html
+
 **Bears open Jaylon Johnson's 21-day practice window**\
 `Coach Ben Johnson has been adamant that the Bears will be playing their best football in December. Jaylon Johnson could give them a boost.`\
 https://nytimes.com/athletic/6808077/2025/11/14/bears-jaylon-johnson-practice-window/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6550680/2025/11/14/fulhams-rodrigo-muniz-hamstring-
 **Judge to Approve Purdue Pharma Bankruptcy, Releasing Billions for Opioid Plaintiffs**\
 `Under the plan, the company will dissolve and its owners, members of the Sackler family, will  pay as much as $7 billion of their personal fortune to states, localities, tribes and others harmed in the opioid crisis.`\
 https://nytimes.com/2025/11/14/health/purdue-sacklers-settlement.html
-
-**A Halloween Potluck in New York **\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/village-halloween-parade-potluck
-
-**James Baldwin’s Biographer on the Meaning of Love**\
-`In “Baldwin: A Love Story,” Nicholas Boggs focuses on the writer’s romantic relationships. In this episode he explains their importance to Baldwin’s life and work.`\
-https://nytimes.com/2025/11/14/books/review/podcast-nicholas-boggs-james-baldwin.html
-
-**What we're hearing on David Kämpf destinations**\
-`Kämpf, a valuable penalty-killer and faceoff man, was waived by the Maple Leafs on Thursday and cleared waivers to become a UFA on Friday.`\
-https://nytimes.com/athletic/6807834/2025/11/14/david-kampf-destinations-wild-canadiens-penguins/
 
