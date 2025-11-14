@@ -1,3 +1,7 @@
+**Liner Notes**\
+`Malaika Handa’s grid is packed with lively entries.`\
+https://nytimes.com/2025/11/13/crosswords/daily-puzzle-2025-11-14.html
+
 **N.I.H. Worker Who Criticized Trump Health Policies Says She Is on Administrative Leave**\
 `The employee, Dr. Jenna Norton, was a key organizer of “The Bethesda Declaration,” a scathing public letter issued in June to Dr. Jay Bhattacharya, the N.I.H. director.`\
 https://nytimes.com/2025/11/13/us/politics/nih-trump-jenna-norton.html
