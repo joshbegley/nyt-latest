@@ -1,3 +1,11 @@
+**How to watch Arizona vs. UCLA men's basketball: Time, TV, streaming**\
+`Find out how to watch the Arizona Wildcats play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6808262/2025/11/14/arizona-vs-ucla-stream-how-to-watch-nov-14/
+
+**NFL Week 11 model-projected point spreads and totals for every game**\
+`Austin Mock's NFL model has projected point spreads and totals for Week 11 games.`\
+https://nytimes.com/athletic/6806521/2025/11/14/nfl-week-11-projected-scores-model-point-spreads-totals/
+
 **Klay Thompson responds to former NBA players’ remarks about Megan Thee Stallion**\
 `Amid a reduced role, the Mavericks sharpshooter took aim at Patrick Beverley and Jason Williams for comments about his rap star girlfriend.`\
 https://nytimes.com/athletic/6807827/2025/11/14/klay-thompson-responds-to-former-nba-players-remarks-about-megan-thee-stallion/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6808077/2025/11/14/bears-jaylon-johnson-practice-wi
 **Ravens QB Lamar Jackson will start Sunday vs. Browns**\
 `Jackson missed Wednesday's practice with a knee injury but returned as a full participant on Thursday and Friday.`\
 https://nytimes.com/athletic/6808009/2025/11/14/lamar-jackson-start-ravens-browns/
-
-**Boston University Student Faces Backlash After He Called ICE on Workers**\
-`The student, the president of the school’s College Republicans club, said he reported immigrant carwash workers. Now he is facing online attacks after nine of the workers were detained.`\
-https://nytimes.com/2025/11/14/us/boston-university-republican-student-ice-carwash-workers.html
-
-**‘The Seat of Our Pants’ Review: Songs for the World’s End**\
-`Ruthie Ann Miles, Shuler Hensley and Micaela Diamond lead a dream-team cast in Ethan Lipton’s musical adaptation of Thornton Wilder’s “The Skin of Our Teeth.”`\
-https://nytimes.com/2025/11/14/theater/seat-of-our-pants-review-public-theater.html
 

@@ -1,3 +1,19 @@
+**Klay Thompson responds to former NBA players’ remarks about Megan Thee Stallion**\
+`Amid a reduced role, the Mavericks sharpshooter took aim at Patrick Beverley and Jason Williams for comments about his rap star girlfriend.`\
+https://nytimes.com/athletic/6807827/2025/11/14/klay-thompson-responds-to-former-nba-players-remarks-about-megan-thee-stallion/
+
+**Want to Buy a Work of Art at Auction? Here’s What to Know.**\
+`A step-by-step guide to navigating this oft-misunderstood part of the market, with tips on getting what you want without experiencing buyer’s remorse.`\
+https://nytimes.com/article/art-auction-house-guide.html
+
+**Falcons WR Drake London questionable vs. Panthers**\
+`If the previous nine games are any indication, the Falcons' passing game is questionable right along with London.`\
+https://nytimes.com/athletic/6808145/2025/11/14/falcons-drake-london-status/
+
+**With a Reyna, Berhalter in USMNT camp together, the past is being kept in the past**\
+`The two players, once close, had their families endure one of U.S. soccer's ugliest sagas. Now, both have eyes on World Cup roster spots`\
+https://nytimes.com/athletic/6807589/2025/11/14/gio-reyna-sebastian-berhalter-usmnt-camp-pochettino-world-cup/
+
 **With a Reyna, Berhalter in USMNT camp together, the past is being kept in the past**\
 `The two players' families endured one of American soccer's ugliest sagas, but they both have eyes on 2026 World Cup roster spots`\
 https://nytimes.com/athletic/6807589/2025/11/14/gio-reyna-sebastian-berhalter-usmnt-camp-pochettino-world-cup/

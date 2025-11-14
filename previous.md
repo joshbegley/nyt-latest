@@ -1,5 +1,17 @@
+**Klay Thompson responds to former NBA players’ remarks about Megan Thee Stallion**\
+`Amid a reduced role, the Mavericks sharpshooter took aim at Patrick Beverley and Jason Williams for comments about his rap star girlfriend.`\
+https://nytimes.com/athletic/6807827/2025/11/14/klay-thompson-responds-to-former-nba-players-remarks-about-megan-thee-stallion/
+
+**Want to Buy a Work of Art at Auction? Here’s What to Know.**\
+`A step-by-step guide to navigating this oft-misunderstood part of the market, with tips on getting what you want without experiencing buyer’s remorse.`\
+https://nytimes.com/article/art-auction-house-guide.html
+
+**Falcons WR Drake London questionable vs. Panthers**\
+`If the previous nine games are any indication, the Falcons' passing game is questionable right along with London.`\
+https://nytimes.com/athletic/6808145/2025/11/14/falcons-drake-london-status/
+
 **With a Reyna, Berhalter in USMNT camp together, the past is being kept in the past**\
-`The two players' families endured one of American soccer's ugliest sagas, but they both have eyes on 2026 World Cup roster spots`\
+`The two players, once close, had their families endure one of U.S. soccer's ugliest sagas. Now, both have eyes on World Cup roster spots`\
 https://nytimes.com/athletic/6807589/2025/11/14/gio-reyna-sebastian-berhalter-usmnt-camp-pochettino-world-cup/
 
 **Canadiens will be without Alex Newhook, Kaiden Guhle for extended period**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/14/us/boston-university-republican-student-ice-carwa
 **‘The Seat of Our Pants’ Review: Songs for the World’s End**\
 `Ruthie Ann Miles, Shuler Hensley and Micaela Diamond lead a dream-team cast in Ethan Lipton’s musical adaptation of Thornton Wilder’s “The Skin of Our Teeth.”`\
 https://nytimes.com/2025/11/14/theater/seat-of-our-pants-review-public-theater.html
-
-**York thriving on Flyers' blue line after disappointing campaign last season**\
-`After a difficult year last season, Cam York has arguably been the Flyers’ top defenseman this season.`\
-https://nytimes.com/athletic/6807912/2025/11/14/cam-york-flyers-defenseman/
-
-**Fulham's Muniz to be sidelined until next year after hamstring surgery**\
-`Muniz was forced off during the 2-0 defeat at Everton on November 8 after being sent on as a second-half substitute.`\
-https://nytimes.com/athletic/6550680/2025/11/14/fulhams-rodrigo-muniz-hamstring-surgery/
-
-**Judge to Approve Purdue Pharma Bankruptcy, Releasing Billions for Opioid Plaintiffs**\
-`Under the plan, the company will dissolve and its owners, members of the Sackler family, will  pay as much as $7 billion of their personal fortune to states, localities, tribes and others harmed in the opioid crisis.`\
-https://nytimes.com/2025/11/14/health/purdue-sacklers-settlement.html
 
