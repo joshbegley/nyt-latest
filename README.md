@@ -1,3 +1,7 @@
+**WATCH: How Caleb Williams is silencing critics**\
+`Caleb Williams has silenced critics with his resurgence this season, leading the Bears into the playoff conversation. `\
+https://nytimes.com/athletic/6807571/2025/11/14/bears-caleb-williams-quarterback-playoffs-analysis/
+
 **Discovering 5 Treasures of Photography**\
 `Some of the most impressive photographs on display at the Paris Photo Fair were made many decades ago but are now being seen anew or, in some cases, for the first time.`\
 https://nytimes.com/2025/11/14/arts/design/paris-photo.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/14/travel/digital-identification-travel.html
 **What Makes a Good Cover?**\
 `What makes a good cover song? On this week’s episode of the “Cannonball” podcast, host Wesley Morris is joined by singer Cecile McLorin Salvant to discuss the delicate art of performing or recording other people’s music.`\
 https://nytimes.com/video/podcasts/100000010522291/what-makes-a-good-cover.html
-
-**How to watch Canucks vs. Hurricanes: Time, TV, streaming**\
-`Find out how to watch the Vancouver Canucks play the Carolina Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6807651/2025/11/14/canucks-vs-hurricanes-stream-how-to-watch-nov-14/
 
