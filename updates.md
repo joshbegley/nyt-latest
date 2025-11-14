@@ -1,3 +1,7 @@
+**gws-wine-hip-hop-france**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/wine-hip-hop-france
+
 **Jonathan Kuminga to miss Friday's game vs. Spurs with knee tendonitis**\
 `Kuminga has been dealing with the injury the past few days and tried to play through it in Wednesday's game but didn't return.`\
 https://nytimes.com/athletic/6808205/2025/11/14/warriors-jonathan-kuminga-knee-injury/

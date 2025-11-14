@@ -1,3 +1,19 @@
+**gws-leiden-netherlands-university**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/leiden-netherlands-university
+
+**The 11.16.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/11/14/the-111625-issue
+
+**Dog Accidentally Shoots and Injures a Pennsylvania Man, Police Say**\
+`The man had been cleaning a shotgun and placed it on the bed shortly before it was fired. He received treatment at an area hospital.`\
+https://nytimes.com/2025/11/14/us/dog-shoots-owner-pennsylvania.html
+
+**College football projected scores: Model predicts every Week 12 game**\
+`Austin Mock's college football model has projected point spreads and totals for every Week 12 game.`\
+https://nytimes.com/athletic/6806530/2025/11/14/college-football-week-12-projected-scores-model/
+
 **gws-wine-hip-hop-france**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/wine-hip-hop-france
@@ -21,20 +37,4 @@ https://nytimes.com/2025/11/14/nyregion/aig-president-relationship-job.html
 **Eva Lys says 'obsessed' fans have sought out her hotel room numbers and addresses**\
 `Lys is one of several WTA Tour players to report experiences with stalkers or fixated individuals this year.`\
 https://nytimes.com/athletic/6807770/2025/11/14/tennis-eva-lys-stalking-womens-sports/
-
-**Maple Leafs notes: Is Joseph Woll ready to return? Plus, a tense meeting and a roster shakeup**\
-`Maple Leafs goalie is set to start as soon as Saturday night in Chicago.`\
-https://nytimes.com/athletic/6807996/2025/11/14/maple-leafs-joseph-woll-roster/
-
-**How to watch 76ers vs. Pistons: Time, TV, streaming**\
-`Find out how to watch the Philadelphia 76ers play the Detroit Pistons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6808308/2025/11/14/76ers-vs-pistons-stream-how-to-watch-nov-14/
-
-**How to watch Hornets vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the Charlotte Hornets play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6808305/2025/11/14/hornets-vs-bucks-stream-how-to-watch-nov-14/
-
-**How to watch Trail Blazers vs. Rockets: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the Houston Rockets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6808306/2025/11/14/trail-blazers-vs-rockets-stream-how-to-watch-nov-14/
 
