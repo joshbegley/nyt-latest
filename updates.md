@@ -1,3 +1,19 @@
+**gws-leiden-netherlands-university**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/leiden-netherlands-university
+
+**The 11.16.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/11/14/the-111625-issue
+
+**Dog Accidentally Shoots and Injures a Pennsylvania Man, Police Say**\
+`The man had been cleaning a shotgun and placed it on the bed shortly before it was fired. He received treatment at an area hospital.`\
+https://nytimes.com/2025/11/14/us/dog-shoots-owner-pennsylvania.html
+
+**College football projected scores: Model predicts every Week 12 game**\
+`Austin Mock's college football model has projected point spreads and totals for every Week 12 game.`\
+https://nytimes.com/athletic/6806530/2025/11/14/college-football-week-12-projected-scores-model/
+
 **gws-wine-hip-hop-france**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/wine-hip-hop-france
