@@ -1,3 +1,7 @@
+**MLS, Apple rework terms of media rights deal for earlier ending, in 2029**\
+`The development comes on the heels of a number of major structural changes MLS revealed on Thursday. Here's what it all means`\
+https://nytimes.com/athletic/6808440/2025/11/14/mls-apple-tv-broadcast-rights-deal-2029/
+
 **Overlooked No More: Sabina Spielrein, Visionary Lost Between Freud and Jung**\
 `She maintained a triangular correspondence with the two men, who overshadowed the significant contributions she made to the field of psychoanalysis.`\
 https://nytimes.com/2025/11/14/obituaries/sabina-spielrein-overlooked.html
