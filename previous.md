@@ -1,3 +1,15 @@
+**U.S. knocked out of U-17 World Cup by Morocco on penalties**\
+`The U.S. went down 4-3 on spot-kicks in the last-32, with Cooper Sanchez and Maxi Carrizo missing from the spot.`\
+https://nytimes.com/athletic/6808179/2025/11/14/us-under-17-world-cup-penalties-morroco/
+
+**Russia Counters U.S. Plan for Gaza With Its Own Proposal at U.N. Security Council**\
+`The Trump administration wants the Security Council to adopt a resolution that has the 20-point U.S. plan annexed, effectively making it international law.`\
+https://nytimes.com/2025/11/14/world/middleeast/russia-us-gaza-un-security-council.html
+
+**A.I.G. Parts Ways With Incoming President Before He Assumes Role**\
+`John Neal’s withdrawal from the insurer comes as the company grapples with another high-profile departure.`\
+https://nytimes.com/2025/11/14/nyregion/aig-president-relationship-job.html
+
 **Eva Lys says 'obsessed' fans have sought out her hotel room numbers and addresses**\
 `Lys is one of several WTA Tour players to report experiences with stalkers or fixated individuals this year.`\
 https://nytimes.com/athletic/6807770/2025/11/14/tennis-eva-lys-stalking-womens-sports/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6808302/2025/11/14/warriors-vs-spurs-stream-how-to-
 **How to watch Clippers vs. Mavericks: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Dallas Mavericks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6808299/2025/11/14/clippers-vs-mavericks-stream-how-to-watch-nov-14/
-
-**How to watch Kings vs. Timberwolves: Time, TV, streaming**\
-`Find out how to watch the Sacramento Kings play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6808296/2025/11/14/kings-vs-timberwolves-stream-how-to-watch-nov-14/
-
-**How to watch Lakers vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Lakers play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6808297/2025/11/14/lakers-vs-pelicans-stream-how-to-watch-nov-14/
-
-**How to watch Flyers vs. Blues: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Flyers play the St. Louis Blues, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6808292/2025/11/14/flyers-vs-blues-stream-how-to-watch-nov-14/
 
