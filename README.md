@@ -1,5 +1,5 @@
 **LaMelo Ball had presidential aspirations. The Timberwolves weren't impressed**\
-`Before the 2020 draft, Ball told Minnesota, which held the top pick, he aspired to be the president when his playing days were done.`\
+`Before the 2020 NBA Draft, Ball told Minnesota, which held the top pick, he aspired to be U.S. president when his playing days were done.`\
 https://nytimes.com/athletic/6808493/2025/11/14/lamelo-ball-hornets-president-nba-timberwolves/
 
 **Trump Orders Investigation Into Epstein’s Ties to Democrats**\
