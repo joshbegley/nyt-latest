@@ -1,3 +1,7 @@
+**Dodgers' Shohei Ohtani unanimously wins fourth MVP award**\
+`Ohtani returned to the mound while authoring another brilliant season at the plate with 55 home runs and a major-league leading 146 runs.`\
+https://nytimes.com/athletic/6805014/2025/11/13/dodgers-shohei-ohtani-fourth-mvp-unanimous/
+
 **Far Right’s Fixation on Jan. 6 Pipe Bomb Suspect Reaches F.B.I.’s Top Ranks**\
 `For all his bluster, the F.B.I.’s deputy director Dan Bongino played a central role in stoking expectations that the bureau would quickly find the suspects who planted pipe bombs.`\
 https://nytimes.com/2025/11/13/us/politics/dan-bongino-jan-6-pipe-bomb.html
@@ -21,8 +25,4 @@ https://nytimes.com/video/podcasts/100000010520707/from-youtube-pranks-to-melodi
 **PATH Train Fare to Rise to $4 by 2029**\
 `The Port Authority of New York and New Jersey on Thursday announced the increase and a timetable for restoring daily service on all  its lines for the first time in 25 years.`\
 https://nytimes.com/2025/11/13/nyregion/nj-path-train-fares.html
-
-**Justice Department Joins Suit Challenging New California Congressional Districts**\
-`The agency intervened in a lawsuit brought by the California Republican Party seeking to throw out a map, approved last week by the state’s voters, that would redraw House districts to favor Democrats.`\
-https://nytimes.com/2025/11/13/us/doj-lawsuit-california-house-redistricting.html
 
