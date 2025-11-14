@@ -1,3 +1,11 @@
+**Fourteen charged in New Jersey betting ring that allegedly involves college athletes, mafia**\
+`The NCAA is aware of the charges and is looking into the matter, a spokesperson said. It's unclear how many college athletes were involved.`\
+https://nytimes.com/athletic/6806110/2025/11/13/new-jersey-betting-ring-college-athletes-mafia/
+
+**Mets' Jeff McNeil drawing trade interest as he recovers from minor procedure**\
+`A two-time All-Star and batting champion in 2022, McNeil hit 12 home runs with a .243/.335/.411 slash line in 2025.`\
+https://nytimes.com/athletic/6806350/2025/11/13/mets-jeff-mcneil-trade-interest-injury/
+
 **Mets' Jeff McNeil drawing trade interest as he recovers from minor procedure**\
 `LAS VEGAS — Though there are no indications the New York Mets are actively shopping Jeff McNeil, multiple teams have expressed interest in the club’s longtime versatile veteran as a trade acquisition, league sources said.`\
 https://nytimes.com/athletic/6806350/2025/11/13/mets-jeff-mcneil-trade-interest-injury/
