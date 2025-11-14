@@ -1,3 +1,7 @@
+**U.S. Envoy Said to Be Planning to Meet With Senior Hamas Official**\
+`An in-person encounter between Steve Witkoff and Khalil al-Hayya would signal the Trump administration’s interest in keeping a direct line of communication with the group.`\
+https://nytimes.com/2025/11/14/world/middleeast/hamas-us-witkoff.html
+
 **How to Keep Opera Alive? Start Talent Young and Broaden the Stage.**\
 `A youth orchestra program for musicians as young as 8 is part of Paris Opera’s effort to widen access to the art form and secure its future.`\
 https://nytimes.com/2025/11/14/arts/music/paris-opera-academy-youth-outreach.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6807662/2025/11/14/hannah-hampton-injury-update-che
 **These Spiced Cookies Are an Autumnal Twist on Malawian Flavors**\
 `Mbatata, a creamy variety of sweet potato, provides a comforting base for these perfectly dunkable treats.`\
 https://nytimes.com/2025/11/14/dining/malawian-spiced-cookies.html
-
-**She Took JPMorgan for $175 Million. That Doesn’t Include Her Restaurant Bills.**\
-`When prosecutors accused Charlie Javice of fraud, JPMorgan was forced to pay for her defense. The bank is not happy about her “shocking” spending.`\
-https://nytimes.com/2025/11/14/business/charlie-javice-jpmorgan-legal-bills.html
 
