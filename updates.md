@@ -1,3 +1,7 @@
+**N.I.H. Worker Who Criticized Trump Health Policies Says She Is on Administrative Leave**\
+`The employee, Dr. Jenna Norton, was a key organizer of “The Bethesda Declaration,” a scathing public letter issued in June to Dr. Jay Bhattacharya, the N.I.H. director.`\
+https://nytimes.com/2025/11/13/us/politics/nih-trump-jenna-norton.html
+
 **MLS calendar change in 2027: What, when and why, and what about the cold weather?**\
 `Under the new format, the MLS season will kick off in mid-to-late July, with the playoffs in the spring. It will make the switch in 2027.`\
 https://nytimes.com/athletic/6806105/2025/11/13/mls-calendar-change-2027-schedule/
