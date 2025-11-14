@@ -1,6 +1,10 @@
+**BYU forward Kennard Davis Jr. arrested on DUI charge after crash**\
+`Davis may have violated BYU's honor code, which could lead to suspension or expulsion from the school.`\
+https://nytimes.com/athletic/6807428/2025/11/14/byu-kennard-davis-jr-arrested-dui-crash/
+
 **How to Treat Hyperpigmentation**\
 `Expert advice from a dermatologist, an aesthetician and a beauty influencer.`\
-https://nytimes.com/2025/11/14/t-magazine/hyperpigmentation-skin-treatment.html
+https://nytimes.com/2025/11/14/t-magazine/hyperpigmentation-dark-spots-treatment.html
 
 **The Strategic Uncoupling of Zohran Mamdani and Brad Lander**\
 `Mr. Lander, the New York City comptroller, campaigned with Mr. Mamdani and once hoped to join him in City Hall. Now he is eying a congressional seat.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/14/world/europe/napoleon-diamond-brooch-auction.html
 **Trump Demands Inquiry Into Epstein’s Ties to Prominent Democrats**\
 `The move appeared to be retaliation after Democrats released emails suggesting the president knew about Epstein’s sex-trafficking operation.`\
 https://nytimes.com/2025/11/14/us/politics/trump-epstein-inquiry-democrats.html
-
-**Deadly Russian Drone and Missile Barrage Pummels Kyiv**\
-`Russia fired hundreds of drones and more than a dozen missiles at Kyiv, Ukraine’s capital, killing several people and damaging neighborhoods across the city.`\
-https://nytimes.com/video/world/europe/100000010524799/kyiv-ukraine-russia-missiles-drones.html
 
