@@ -1,3 +1,7 @@
+**Word of the Day: exalt**\
+`This word has appeared in 14 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/14/learning/word-of-the-day-exalt.html
+
 **Late Night Sifts Through 20,000 Emails of ‘Trump/Epstein Lore’**\
 `“The Daily Show” host Josh Johnson said the G.O.P.’s document release was no help to Trump: “They basically saw his grease fire and said, ‘Let us add some water.’”`\
 https://nytimes.com/2025/11/14/arts/television/late-night-trump-epstein-emails.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6797801/2025/11/14/wolves-rob-edwards-style-tactics
 **With a World Cup next year, Lewis-Skelly may have to weigh patience against international ambition**\
 `The full-back has not been called up by England owing to his lack of playing time — but he is determined to change that`\
 https://nytimes.com/athletic/6803744/2025/11/14/with-a-world-cup-next-year-lewis-skelly-may-have-to-weigh-patience-against-international-ambition/
-
-**Everton mailbag: Iliman Ndiaye's future, the striker search and Hill Dickinson adaption**\
-`Our correspondent answers your questions, which also take in the Everton academy and new-look management structure`\
-https://nytimes.com/athletic/6801158/2025/11/14/everton-moyes-ndiaye-cox-transport-mailbag/
 

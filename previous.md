@@ -1,3 +1,11 @@
+**Late Night Sifts Through 20,000 Emails of ‘Trump/Epstein Lore’**\
+`“The Daily Show” host Josh Johnson said the G.O.P.’s document release was no help to Trump: “They basically saw his grease fire and said, ‘Let us add some water.’”`\
+https://nytimes.com/2025/11/14/arts/television/late-night-trump-epstein-emails.html
+
+**Swalwell Denies Allegations of Fraud and Says Trump is Targeting Him**\
+`Representative Eric Swalwell, a Democrat, said he would not back down from his criticism of President Trump, and denied wrongdoing.`\
+https://nytimes.com/2025/11/14/us/politics/trump-mortgage-fraud-eric-swalwell.html
+
 **Has Jude Bellingham edged ahead of Morgan Rogers in race to be England's No 10?**\
 `The Aston Villa player did little wrong against Serbia, but the returning Real Madrid forward impressed in a cameo performance off the bench`\
 https://nytimes.com/athletic/6800736/2025/11/14/england-bellingham-rogers-no10-tuchel/
@@ -14,7 +22,7 @@ https://nytimes.com/athletic/6803795/2025/11/14/boxing-cutting-weight-eubank-jr-
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/14/todays-new-york-times
 
-**Sharon Camp, Mother of the ‘Plan B’ Contraceptive Pill, Dies at 83**\
+**Sharon Camp, Mother of the ‘Plan B’ Contraceptive Pill, Dies at 81**\
 `An advocate for women’s reproductive health, she started one of the world’s smallest pharmaceutical companies to bring an emergency birth-control method to market.`\
 https://nytimes.com/2025/11/14/health/policy/sharon-camp-dead.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6803744/2025/11/14/with-a-world-cup-next-year-lewis
 **Everton mailbag: Iliman Ndiaye's future, the striker search and Hill Dickinson adaption**\
 `Our correspondent answers your questions, which also take in the Everton academy and new-look management structure`\
 https://nytimes.com/athletic/6801158/2025/11/14/everton-moyes-ndiaye-cox-transport-mailbag/
-
-**Crystal Palace and Oliver Glasner savour a new Australian in the ranks**\
-`James Holland, who played for Glasner in Austria and was capped 17 times by his country, joined the coaching staff over the summer`\
-https://nytimes.com/athletic/6792164/2025/11/14/crystal-palace-james-holland-glasner-australian/
-
-**After last season's tears, Tottenham are enjoying a WSL revival**\
-`In what has historically been a lopsided rivalry, Arsenal face a very different Spurs side in Sunday's WSL north London derby`\
-https://nytimes.com/athletic/6797374/2025/11/14/tottenham-arsenal-wsl-martin-ho/
 

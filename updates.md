@@ -1,3 +1,15 @@
+**Late Night Sifts Through 20,000 Emails of ‘Trump/Epstein Lore’**\
+`“The Daily Show” host Josh Johnson said the G.O.P.’s document release was no help to Trump: “They basically saw his grease fire and said, ‘Let us add some water.’”`\
+https://nytimes.com/2025/11/14/arts/television/late-night-trump-epstein-emails.html
+
+**Swalwell Denies Allegations of Fraud and Says Trump is Targeting Him**\
+`Representative Eric Swalwell, a Democrat, said he would not back down from his criticism of President Trump, and denied wrongdoing.`\
+https://nytimes.com/2025/11/14/us/politics/trump-mortgage-fraud-eric-swalwell.html
+
+**Sharon Camp, Mother of the ‘Plan B’ Contraceptive Pill, Dies at 81**\
+`An advocate for women’s reproductive health, she started one of the world’s smallest pharmaceutical companies to bring an emergency birth-control method to market.`\
+https://nytimes.com/2025/11/14/health/policy/sharon-camp-dead.html
+
 **Has Jude Bellingham edged ahead of Morgan Rogers in race to be England's No 10?**\
 `The Aston Villa player did little wrong against Serbia, but the returning Real Madrid forward impressed in a cameo performance off the bench`\
 https://nytimes.com/athletic/6800736/2025/11/14/england-bellingham-rogers-no10-tuchel/
