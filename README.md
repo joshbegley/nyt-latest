@@ -1,3 +1,11 @@
+**Three days after heartbreaker, Olivier and Blue Jackets hold on to beat Edmonton**\
+`The Jackets were able to avoid repeating history by preserving a shrinking lead to the end.`\
+https://nytimes.com/athletic/6806298/2025/11/13/blue-jackets-olivier-del-bel-belluz-oilers/
+
+**Patriots dominate Jets behind TreVeyon Henderson's 3 TDs; Drake Maye boosts MVP case**\
+`New England won its NFL-leading eighth game in a row in a Thursday night rout of New York.`\
+https://nytimes.com/athletic/6806079/2025/11/13/patriots-jets-score-result-takeaways-thursday-night-football/
+
 **Team USA adds Corbin Carroll, Pete Crow-Armstrong to WBC roster; Cal Raleigh to catch**\
 `The two join a team that is being captained by Aaron Judge and will also see NL Cy Young Award winner Paul Skenes pitch.`\
 https://nytimes.com/athletic/6806347/2025/11/13/team-usa-world-baseball-classic-corbin-carroll-pete-crow-armstrong/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/13/us/politics/nih-trump-jenna-norton.html
 **MLS calendar change in 2027: What, when and why, and what about the cold weather?**\
 `Under the new format, the MLS season will kick off in mid-to-late July, with the playoffs in the spring. It will make the switch in 2027.`\
 https://nytimes.com/athletic/6806105/2025/11/13/mls-calendar-change-2027-schedule/
-
-**Trump Administration Revokes Biden Ban on Drilling and Mining in Alaska Wilderness**\
-`The decision to allow oil and gas drilling in Alaska’s ecologically sensitive North Slope has the support of the state’s governor and senators.`\
-https://nytimes.com/2025/11/13/climate/trump-revokes-biden-ban-on-drilling-mining-in-alaska-wilderness.html
-
-**Republicans Tried to Squelch the Epstein Furor. Instead, They Fed It.**\
-`A House investigation that the G.O.P. has tried to use to deflect calls for more transparency has yielded striking revelations that have only fueled the Epstein saga.`\
-https://nytimes.com/2025/11/13/us/politics/republicans-epstein-trump-house.html
 
