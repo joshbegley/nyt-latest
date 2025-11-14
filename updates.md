@@ -1,3 +1,11 @@
+**BYU forward Kennard Davis Jr. arrested on DUI charge after crash**\
+`Davis may have violated BYU's honor code, which could lead to suspension or expulsion from the school.`\
+https://nytimes.com/athletic/6807428/2025/11/14/byu-kennard-davis-jr-arrested-dui-crash/
+
+**How to Treat Hyperpigmentation**\
+`Expert advice from a dermatologist, an aesthetician and a beauty influencer.`\
+https://nytimes.com/2025/11/14/t-magazine/hyperpigmentation-dark-spots-treatment.html
+
 **How to Treat Hyperpigmentation**\
 `Expert advice from a dermatologist, an aesthetician and a beauty influencer.`\
 https://nytimes.com/2025/11/14/t-magazine/hyperpigmentation-skin-treatment.html
