@@ -1,40 +1,40 @@
-**Lamine Yamal's injury and Barcelona’s spat with Spain: Pain, politics and pubalgia**\
-`The 18-year-old forward has this week found himself at the centre of a public spat between club and country`\
-https://nytimes.com/athletic/6806764/2025/11/14/lamine-yamal-barcelona-injury-spain-groin/
+**Caleb Williams late game vs. early game? Luther Burden's reps? Bears mailbag, Week 11 picks**\
+`Can Williams use his late-game magic to improve the offense early in games? That begins our Bears mailbag, plus picks for Sunday.`\
+https://nytimes.com/athletic/6805510/2025/11/14/bears-mailbag-caleb-williams-luther-burden/
 
-**Ravens getting hot, Steelers falling as AFC North race tightens: Whiparound**\
-`And could Joe Burrow's pending return for the Bengals make the division a three-team race down the stretch of the season?`\
-https://nytimes.com/athletic/6804871/2025/11/14/steelers-ravens-browns-bengals-joe-burrow/
+**Rams' Byron Young started out at Dollar General. Now he's on the verge of NFL stardom**\
+`Young didn't have any college offers in high school. But he worked hard, met the right coaches and later became a third-round draft pick.`\
+https://nytimes.com/athletic/6803286/2025/11/14/rams-byron-young-dollar-general-nfl-stardom/
 
-**As Steph Curry parts ways with Under Armour, his brand and appeal reach a new test**\
-`Curry's basketball greatness helped Under Armour's growth. Sneakerheads now wait to see what's next with the new free agent, Curry Brand.`\
-https://nytimes.com/athletic/6806617/2025/11/14/steph-curry-under-armour-basketball-shoe-brand/
+**The Clippers need to decide who they are after Bradley Beal nightmare**\
+`Bradley Beal is out for the season, but the Clippers can get their season back on track. It lies on Tyronn Lue's shoulders. `\
+https://nytimes.com/athletic/6805468/2025/11/14/clippers-bradley-beal-nightmare-nba/
 
-**How safety Talanoa Hufanga has become the 'ultimate eraser' for Broncos**\
-`Hufanga is a perfect fit for Vance Joseph's aggressive defense because he instinctively finds himself in the right place to make a play.`\
-https://nytimes.com/athletic/6801729/2025/11/14/talanoa-hufanga-broncos-film-study/
+**Seeing red: How 49ers fans became the NFL’s road warriors**\
+`The 49ers started leaning into their fans' takeover mentality more heavily this year, resulting in large gatherings in Houston and New York.`\
+https://nytimes.com/athletic/6805614/2025/11/14/49ers-fans-travel-road-stadium/
 
-**Mike Vrabel and Drake Maye are taking over Football America**\
-`Vrabel and Maye have made it easy to forget the Patriots (9-2) are coming off back-to-back 4-13 seasons. As they soar, Jets remain grounded.`\
-https://nytimes.com/athletic/6806632/2025/11/14/patriots-jets-mike-vrabel-drake-maye/
+**Framber Valdez is a clear fit for Blue Jays’ starting rotation needs**\
+`Valdez is one of baseball’s most durable starting pitchers and a consistent Cy Young candidate. He also checks every box Toronto needs.`\
+https://nytimes.com/athletic/6805868/2025/11/14/framber-valdez-blue-jays-starting-rotation-fit/
 
-**Here are Week 12's college football games with the biggest Playoff implications**\
-`This week's games will help shape conference title races and sharpen the picture for the College Football Playoff bracket.`\
-https://nytimes.com/athletic/6805428/2025/11/14/college-football-playoff-game-implications-week-12/
+**Alex Newhook’s injury is major blow to Canadiens, but could also be an opportunity**\
+`In Newhook's absence, the Canadiens could experiment with a philosophical change.`\
+https://nytimes.com/athletic/6806566/2025/11/14/alex-newhook-injury-canadiens/
 
-**The Pulse: Yes, Drake Maye might be the MVP**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6804824/2025/11/14/drake-maye-aaron-judge-shohei-ohtani-mvp-the-pulse/
+**'We want him to be a little bit more selfish': Checking in on Frondell's SHL development**\
+`Frondell's SHL coach Robert Kimby discusses the young forward's progress and the team's approach to his development.`\
+https://nytimes.com/athletic/6805469/2025/11/14/blackhawks-anton-frondell-development-djurgarden/
 
-**'Not gonna stand for that': There's a grittier vibe to the Hurricanes this season**\
-`Toughness isn't always about dropping the gloves, but the Hurricanes seem to be more physical all around.`\
-https://nytimes.com/athletic/6805763/2025/11/14/carolina-hurricanes-fights-hits/
+**Notre Dame vs. Pitt: Panthers' passing attack, defensive front pose stiff test for Irish**\
+`Every decade, Notre Dame heads to Pittsburgh and notches a win that has some gravity to it. Now it’s Marcus Freeman’s turn.`\
+https://nytimes.com/athletic/6805867/2025/11/14/notre-dame-pitt-football-preview/
 
-**Remembering 5 of the NHL's most important 'changing of the guard' seasons**\
-`From Wayne Gretzky's debut to the rise of the modern blue line, sometimes the NHL changes direction in a hurry. Let's walk down memory lane.`\
-https://nytimes.com/athletic/6804427/2025/11/14/nhl-changing-of-the-guard-seasons/
+**Portal Buzz: Quarterbacks who might be on the move, Marshall's impressive overhaul and more**\
+`Florida's DJ Lagway, a sophomore, would be the highest-profile transfer if he opts to depart following Billy Napier's firing.`\
+https://nytimes.com/athletic/6804132/2025/11/14/college-football-transfer-portal-quarterbacks-3/
 
-**Hurricane Melissa Leaves Behind a Staggering Homelessness Toll**\
-`Two weeks after Hurricane Melissa wrecked western Jamaica, officials are beginning to grapple with the challenge of trying to find housing for thousands of families.`\
-https://nytimes.com/2025/11/14/world/americas/hurricane-melissa-homeless-jamaica.html
+**Rangers prospect Malcolm Spence finds joy and NHL future within reach at Michigan**\
+`Malcolm Spence is having a blast with his friends — and progressing toward his NHL dreams — at the University of Michigan.`\
+https://nytimes.com/athletic/6804903/2025/11/14/malcolm-spence-ny-rangers-michigan-hockey-nhl/
 
