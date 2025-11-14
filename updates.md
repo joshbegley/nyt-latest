@@ -1,3 +1,11 @@
+**Team USA adds Corbin Carroll, Pete Crow-Armstrong to WBC roster; Cal Raleigh to catch**\
+`The two join a team that is being captained by Aaron Judge and will also see NL Cy Young Award winner Paul Skenes pitch.`\
+https://nytimes.com/athletic/6806347/2025/11/13/team-usa-world-baseball-classic-corbin-carroll-pete-crow-armstrong/
+
+**Kristi Noem Hands $10,000 Bonuses to Some T.S.A. Agents**\
+`The secretary for Homeland Security, Kristi Noem, awarded $10,000 checks to Transportation Security Administration workers who “went above and beyond” during the shutdown.`\
+https://nytimes.com/video/us/politics/100000010524080/tsa-worker-checks-bonus-shutdown.html
+
 **Fourteen charged in New Jersey betting ring that allegedly involves college athletes, mafia**\
 `The NCAA is aware of the charges and is looking into the matter, a spokesperson said. It's unclear how many college athletes were involved.`\
 https://nytimes.com/athletic/6806110/2025/11/13/new-jersey-betting-ring-college-athletes-mafia/
