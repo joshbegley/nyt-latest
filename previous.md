@@ -1,3 +1,7 @@
+**Jonathan Kuminga to miss Friday's game vs. Spurs with knee tendonitis**\
+`Kuminga has been dealing with the injury the past few days and tried to play through it in Wednesday's game but didn't return.`\
+https://nytimes.com/athletic/6808205/2025/11/14/warriors-jonathan-kuminga-knee-injury/
+
 **U.S. knocked out of U-17 World Cup by Morocco on penalties**\
 `The U.S. went down 4-3 on spot-kicks in the last-32, with Cooper Sanchez and Maxi Carrizo missing from the spot.`\
 https://nytimes.com/athletic/6808179/2025/11/14/us-under-17-world-cup-penalties-morroco/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6808306/2025/11/14/trail-blazers-vs-rockets-stream-
 **How to watch Warriors vs. Spurs: Time, TV, streaming**\
 `Find out how to watch the Golden State Warriors play the San Antonio Spurs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6808302/2025/11/14/warriors-vs-spurs-stream-how-to-watch-nov-14/
-
-**How to watch Clippers vs. Mavericks: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Clippers play the Dallas Mavericks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6808299/2025/11/14/clippers-vs-mavericks-stream-how-to-watch-nov-14/
 

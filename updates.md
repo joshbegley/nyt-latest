@@ -1,3 +1,7 @@
+**Jonathan Kuminga to miss Friday's game vs. Spurs with knee tendonitis**\
+`Kuminga has been dealing with the injury the past few days and tried to play through it in Wednesday's game but didn't return.`\
+https://nytimes.com/athletic/6808205/2025/11/14/warriors-jonathan-kuminga-knee-injury/
+
 **U.S. knocked out of U-17 World Cup by Morocco on penalties**\
 `The U.S. went down 4-3 on spot-kicks in the last-32, with Cooper Sanchez and Maxi Carrizo missing from the spot.`\
 https://nytimes.com/athletic/6808179/2025/11/14/us-under-17-world-cup-penalties-morroco/
