@@ -1,3 +1,7 @@
+**Trump Administration Revokes Biden Ban on Drilling and Mining in Alaska Wilderness**\
+`The decision to allow oil and gas drilling in Alaska’s ecologically sensitive North Slope has the support of the state’s governor and senators.`\
+https://nytimes.com/2025/11/13/climate/trump-revokes-biden-ban-on-drilling-mining-in-alaska-wilderness.html
+
 **Stephen Curry, Under Armour end 12-year partnership**\
 `As part of the separation, Curry will maintain sole ownership of the Curry Brand and is free to find another retail partner.`\
 https://nytimes.com/athletic/6805777/2025/11/13/steph-curry-under-armour-deal-ending-shoes/

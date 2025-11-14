@@ -1,3 +1,7 @@
+**Trump Administration Revokes Biden Ban on Drilling and Mining in Alaska Wilderness**\
+`The decision to allow oil and gas drilling in Alaska’s ecologically sensitive North Slope has the support of the state’s governor and senators.`\
+https://nytimes.com/2025/11/13/climate/trump-revokes-biden-ban-on-drilling-mining-in-alaska-wilderness.html
+
 **Republicans Tried to Squelch the Epstein Furor. Instead, They Fed It.**\
 `A House investigation that the G.O.P. has tried to use to deflect calls for more transparency has yielded striking revelations that have only fueled the Epstein saga.`\
 https://nytimes.com/2025/11/13/us/politics/republicans-epstein-trump-house.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6805014/2025/11/13/dodgers-shohei-ohtani-fourth-mvp
 **Far Right’s Fixation on Jan. 6 Pipe Bomb Suspect Reaches F.B.I.’s Top Ranks**\
 `For all his bluster, the F.B.I.’s deputy director Dan Bongino played a central role in stoking expectations that the bureau would quickly find the suspects who planted pipe bombs.`\
 https://nytimes.com/2025/11/13/us/politics/dan-bongino-jan-6-pipe-bomb.html
-
-**Memo Blessing Boat Strikes Is Said to Rely on Trump’s Claims About Cartels**\
-`Accounts of a secret Justice Department memo offer a window into how administration lawyers approved the president’s desired course of action.`\
-https://nytimes.com/2025/11/13/us/politics/boat-strikes-doj-memo-trump.html
 
