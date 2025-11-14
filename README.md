@@ -1,3 +1,11 @@
+**'You feel like death': The brutal reality of 'cutting' - and why boxers do it**\
+`Chris Eubank Jr's rematch with Conor Benn has brought the controversial issue of how fighters make weight back into focus`\
+https://nytimes.com/athletic/6803795/2025/11/14/boxing-cutting-weight-eubank-jr-benn/
+
+**The New York Times in Print for Friday, Nov. 14, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/14/todays-new-york-times
+
 **Sharon Camp, Mother of the ‘Plan B’ Contraceptive Pill, Dies at 83**\
 `An advocate for women’s reproductive health, she started one of the world’s smallest pharmaceutical companies to bring an emergency birth-control method to market.`\
 https://nytimes.com/2025/11/14/health/policy/sharon-camp-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6804259/2025/11/14/mark-hughes-wikipedia-introverte
 **Why have so many of the biggest countries not qualified for the World Cup?**\
 `At least seven of the world's 10 most populous nations have not qualified for the tournament`\
 https://nytimes.com/athletic/6801199/2025/11/14/biggest-countries-missing-world-cup/
-
-**Nolberto Solano interview: From Lima to Lahore via 'home' in Newcastle**\
-`Solano speaks to The Athletic about playing with Alan Shearer, managing Pakistan and why football needs to embrace proper wingers again `\
-https://nytimes.com/athletic/6803906/2025/11/14/nolberto-solano-interview-newcastle-pakistan/
-
-**The Prospects: Chizaram Ezenwata, Chelsea and England Under-17s**\
-`The latest in our series on some of the brightest talents emerging through the English academy system focuses on a young Chelsea striker`\
-https://nytimes.com/athletic/6800969/2025/11/14/chizaram-ezenwata-chelsea-england-prospects/
 
