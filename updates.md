@@ -1,3 +1,7 @@
+**Stephen Curry, Under Armour end 12-year partnership**\
+`As part of the separation, Curry will maintain sole ownership of the Curry Brand and is free to find another retail partner.`\
+https://nytimes.com/athletic/6805777/2025/11/13/steph-curry-under-armour-deal-ending-shoes/
+
 **Republicans Tried to Squelch the Epstein Furor. Instead, They Fed It.**\
 `A House investigation that the G.O.P. has tried to use to deflect calls for more transparency has yielded striking revelations that have only fueled the Epstein saga.`\
 https://nytimes.com/2025/11/13/us/politics/republicans-epstein-trump-house.html
