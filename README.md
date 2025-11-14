@@ -1,3 +1,7 @@
+**NHL power rankings of putrid: Will these 3 disappointing teams figure it out?**\
+`Just how much trouble are these teams in? Are they contemplating firings or big trades? Is it salvageable?`\
+https://nytimes.com/athletic/6807426/2025/11/14/nhl-putrid-power-rankings-red-light-newsletter/
+
 **Wild's Marco Rossi sidelined by lower-body injury: Sources**\
 `The loss of Rossi, coupled with Nico Sturm’s continued rehab from back surgery, likely puts the Wild in the market for a center.`\
 https://nytimes.com/athletic/6807510/2025/11/14/wild-marco-rossi-lower-body-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6807346/2025/11/14/anthony-davis-trade-mavericks-ok
 **Trump Turns to Affordability Message Amid Economic Frustration**\
 `The Trump administration is facing backlash from American consumers as higher costs from tariffs blunt wage gains.`\
 https://nytimes.com/2025/11/14/us/politics/trump-affordability-economy.html
-
-**Switzerland Reaches Agreement With U.S. to Cut Tariff to 15%**\
-`The deal would reduce an extraordinarily high tariff rate that had threatened to cripple Swiss exports.`\
-https://nytimes.com/2025/11/14/business/switzerland-us-tariffs-trade-deal.html
 
