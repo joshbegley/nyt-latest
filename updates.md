@@ -1,3 +1,23 @@
+**WATCH: How Caleb Williams is silencing critics**\
+`Caleb Williams has silenced critics with his resurgence this season, leading the Bears into the playoff conversation. `\
+https://nytimes.com/athletic/6807571/2025/11/14/bears-caleb-williams-quarterback-playoffs-analysis/
+
+**Discovering 5 Treasures of Photography**\
+`Some of the most impressive photographs on display at the Paris Photo Fair were made many decades ago but are now being seen anew or, in some cases, for the first time.`\
+https://nytimes.com/2025/11/14/arts/design/paris-photo.html
+
+**How to Watch the Leonids Meteor Shower Reach Its Peak**\
+`The moon is far from full this weekend, which could mean good fireball viewing for night sky watchers.`\
+https://nytimes.com/2025/11/14/science/meteor-shower-2025-time.html
+
+**Canucks thoughts: Kämpf interest, Demko's injury, a positive trend**\
+`Let's get into several of the issues surrounding the Canucks at this fork in the road of the season.`\
+https://nytimes.com/athletic/6806588/2025/11/14/canucks-david-kampf-thatcher-demko-stats/
+
+**Olivia Nuzzi Did It All for Love**\
+`The former political journalist has written a combustive portrait of America, President Trump and the scandal with Robert F. Kennedy Jr. that upended her career.`\
+https://nytimes.com/2025/11/14/style/olivia-nuzzi-rfk-book-american-canto.html
+
 **Rapist Believed to Be One of Britain’s Worst Sex Offenders Gets Life Sentence**\
 `Xu Chao admitted to multiple attacks against female Chinese students over a three-year period, confessing to drugging, assaulting and filming his victims.`\
 https://nytimes.com/2025/11/14/world/europe/uk-xu-chao-rape-sentence.html
