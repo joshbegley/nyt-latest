@@ -1,3 +1,11 @@
+**Could the Antichrist Be a Machine?**\
+`Technology is killing us physically and spiritually, the author Paul Kingsnorth argues on “Interesting Times.”`\
+https://nytimes.com/video/opinion/100000010519808/could-the-antichrist-be-a-machine.html
+
+**Frank Chuman, Pioneering Lawyer for Japanese American Rights, Is Dead at 105**\
+`He was sent to the Manzanar internment camp during World War II, an experience that inspired a long career in civil rights activism.`\
+https://nytimes.com/2025/11/14/us/frank-chuman-dead.html
+
 **'I think it's bad.' NFL, NBA, MLB and NHL players have feelings on sports betting**\
 `Players across sports leagues dish on threatening messages from fans, prop-bet worries and league education`\
 https://nytimes.com/athletic/6807760/2025/11/14/sports-betting-players-nfl-nba-mlb-nhl/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/14/us/politics/donald-korb-irs-trump.html
 **A Tiny West Wing Office Is Big on Trump Messaging**\
 `The Oval Office study has become a room for Trump merchandise.`\
 https://nytimes.com/2025/11/14/us/trump-oval-office-study-merch.html
-
-**She Was Deported in Error. Her Child Was Left Behind.**\
-`Maribel Lopez was hastily deported to Guatemala despite a pending asylum appeal, leaving behind a toddler. Her case highlights a growing pattern of speedy deportations.`\
-https://nytimes.com/2025/11/14/us/trump-deportations-families.html
-
-**Wild's Mats Zuccarello on his future beyond this season, rekindling his magic with Kirill Kaprizov**\
-`Zuccarello on what he tells Kirill Kaprizov about his future: "I keep telling him someday I gotta leave. I can’t play forever.”`\
-https://nytimes.com/athletic/6808497/2025/11/14/mats-zuccarello-future-wild-kirill-kaprizov/
 
