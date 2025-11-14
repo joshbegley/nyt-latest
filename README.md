@@ -1,3 +1,11 @@
+**Has Jude Bellingham edged ahead of Morgan Rogers in race to be England's No 10?**\
+`The Aston Villa player did little wrong against Serbia, but the returning Real Madrid forward impressed in a cameo performance off the bench`\
+https://nytimes.com/athletic/6800736/2025/11/14/england-bellingham-rogers-no10-tuchel/
+
+**Drag racing’s John Force, 16-time champion, retires after historic career**\
+`At 76 years old, Force hasn’t raced in 17 months after surviving an engine explosion at the NHRA Virginia Nationals in June 2024.`\
+https://nytimes.com/athletic/6806595/2025/11/14/john-force-retirement-nhra-drag-racing/
+
 **'You feel like death': The brutal reality of 'cutting' - and why boxers do it**\
 `Chris Eubank Jr's rematch with Conor Benn has brought the controversial issue of how fighters make weight back into focus`\
 https://nytimes.com/athletic/6803795/2025/11/14/boxing-cutting-weight-eubank-jr-benn/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6792164/2025/11/14/crystal-palace-james-holland-gla
 **After last season's tears, Tottenham are enjoying a WSL revival**\
 `In what has historically been a lopsided rivalry, Arsenal face a very different Spurs side in Sunday's WSL north London derby`\
 https://nytimes.com/athletic/6797374/2025/11/14/tottenham-arsenal-wsl-martin-ho/
-
-**Mark Hughes on being an introverted football manager and what he learned on Wikipedia about himself**\
-`Mark Hughes talks of being introverted, why he's managing in non-League, and what he didn't know about himself until he read it on Wikipedia`\
-https://nytimes.com/athletic/6804259/2025/11/14/mark-hughes-wikipedia-introverted/
-
-**Why have so many of the biggest countries not qualified for the World Cup?**\
-`At least seven of the world's 10 most populous nations have not qualified for the tournament`\
-https://nytimes.com/athletic/6801199/2025/11/14/biggest-countries-missing-world-cup/
 
