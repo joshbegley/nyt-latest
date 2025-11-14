@@ -1,3 +1,7 @@
+**Word of the Day: exalt**\
+`This word has appeared in 14 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/14/learning/word-of-the-day-exalt.html
+
 **Late Night Sifts Through 20,000 Emails of ‘Trump/Epstein Lore’**\
 `“The Daily Show” host Josh Johnson said the G.O.P.’s document release was no help to Trump: “They basically saw his grease fire and said, ‘Let us add some water.’”`\
 https://nytimes.com/2025/11/14/arts/television/late-night-trump-epstein-emails.html
