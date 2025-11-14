@@ -1,3 +1,7 @@
+**MLS calendar change in 2027: What, when and why, and what about the cold weather?**\
+`Under the new format, the MLS season will kick off in mid-to-late July, with the playoffs in the spring. It will make the switch in 2027.`\
+https://nytimes.com/athletic/6806105/2025/11/13/mls-calendar-change-2027-schedule/
+
 **Trump Administration Revokes Biden Ban on Drilling and Mining in Alaska Wilderness**\
 `The decision to allow oil and gas drilling in Alaska’s ecologically sensitive North Slope has the support of the state’s governor and senators.`\
 https://nytimes.com/2025/11/13/climate/trump-revokes-biden-ban-on-drilling-mining-in-alaska-wilderness.html

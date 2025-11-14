@@ -1,3 +1,7 @@
+**MLS calendar change in 2027: What, when and why, and what about the cold weather?**\
+`Under the new format, the MLS season will kick off in mid-to-late July, with the playoffs in the spring. It will make the switch in 2027.`\
+https://nytimes.com/athletic/6806105/2025/11/13/mls-calendar-change-2027-schedule/
+
 **Trump Administration Revokes Biden Ban on Drilling and Mining in Alaska Wilderness**\
 `The decision to allow oil and gas drilling in Alaska’s ecologically sensitive North Slope has the support of the state’s governor and senators.`\
 https://nytimes.com/2025/11/13/climate/trump-revokes-biden-ban-on-drilling-mining-in-alaska-wilderness.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6805777/2025/11/13/steph-curry-under-armour-deal-en
 **Dodgers' Shohei Ohtani unanimously wins fourth MVP award**\
 `Ohtani returned to the mound while authoring another brilliant season at the plate with 55 home runs and a major-league leading 146 runs.`\
 https://nytimes.com/athletic/6805014/2025/11/13/dodgers-shohei-ohtani-fourth-mvp-unanimous/
-
-**Far Right’s Fixation on Jan. 6 Pipe Bomb Suspect Reaches F.B.I.’s Top Ranks**\
-`For all his bluster, the F.B.I.’s deputy director Dan Bongino played a central role in stoking expectations that the bureau would quickly find the suspects who planted pipe bombs.`\
-https://nytimes.com/2025/11/13/us/politics/dan-bongino-jan-6-pipe-bomb.html
 
