@@ -2,6 +2,10 @@
 `"It’ll be something people think about, because you have to,” said Cubs GM Jed Hoyer. Many execs said they were unsure what was to come. `\
 https://nytimes.com/athletic/6806523/2025/11/14/mlb-labor-issues-contract-free-agent-market/
 
+**Another Jets loss to the Patriots, the team they once again hope to become**\
+`It was a long Thursday night in Foxboro, where Justin Fields and the lack of a passing game made it tough to assess just what the Jets have.`\
+https://nytimes.com/athletic/6806643/2025/11/14/new-york-jets-loss-new-england-patriots/
+
 **GM Meetings buzz: Closer market red-hot, teams looking for catching and more**\
 `Plus notes on the top free-agent starters, Kyle Tucker's market, Tyler Grisham's qualifying offer and who might target Munetaka Murakami.`\
 https://nytimes.com/athletic/6804906/2025/11/14/mlb-gm-meetings-rumors/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/11/14/climate/glacier-melt-himalayas.html
 **Conservative Media Picks an Epstein Story Line and Sticks to It**\
 `Right-wing outlets have focused on a single redacted name in the 23,000 pages of correspondence related to Jeffrey Epstein that were released on Wednesday.`\
 https://nytimes.com/2025/11/14/business/media/epstein-trump-emails-conservative-media.html
-
-**The Best Foods and Drinks for Constipation**\
-`It’s go time.`\
-https://nytimes.com/2025/11/14/well/best-foods-drinks-constipation.html
 

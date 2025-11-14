@@ -1,3 +1,7 @@
+**Another Jets loss to the Patriots, the team they once again hope to become**\
+`It was a long Thursday night in Foxboro, where Justin Fields and the lack of a passing game made it tough to assess just what the Jets have.`\
+https://nytimes.com/athletic/6806643/2025/11/14/new-york-jets-loss-new-england-patriots/
+
 **Everyone expects labor issues — but so far, at least, MLB free agency is moving forward**\
 `"It’ll be something people think about, because you have to,” said Cubs GM Jed Hoyer. Many execs said they were unsure what was to come. `\
 https://nytimes.com/athletic/6806523/2025/11/14/mlb-labor-issues-contract-free-agent-market/
