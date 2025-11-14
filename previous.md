@@ -1,3 +1,15 @@
+**‘A Very Jonas Christmas Movie’ Review: O Come, All Ye Faithful**\
+`In their fan-oriented and self-mocking holiday comedy, the millennial boy band delivers pure festive sugar rush.`\
+https://nytimes.com/2025/11/14/movies/a-very-jonas-christmas-movie-review.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/14/crosswords/spelling-bee-forum.html
+
+**Artificially Generated Slop**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2025/11/14/learning/artificially-generated-slop.html
+
 **With 400 career goals by the age of 26, what if Kylian Mbappe is only just getting started?**\
 `The Real Madrid striker went seven France matches without finding the net last year, and sat out two squads, but his appetite is renewed`\
 https://nytimes.com/athletic/6806629/2025/11/14/kylian-mbappe-france-real-madrid-400-goals/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6806595/2025/11/14/john-force-retirement-nhra-drag-
 **'You feel like death': The brutal reality of 'cutting' - and why boxers do it**\
 `Chris Eubank Jr's rematch with Conor Benn has brought the controversial issue of how fighters make weight back into focus`\
 https://nytimes.com/athletic/6803795/2025/11/14/boxing-cutting-weight-eubank-jr-benn/
-
-**The New York Times in Print for Friday, Nov. 14, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/11/14/todays-new-york-times
-
-**Sharon Camp, Mother of the ‘Plan B’ Contraceptive Pill, Dies at 81**\
-`An advocate for women’s reproductive health, she started one of the world’s smallest pharmaceutical companies to bring an emergency birth-control method to market.`\
-https://nytimes.com/2025/11/14/health/policy/sharon-camp-dead.html
-
-**What can Wolves fans expect from a Rob Edwards team?**\
-`The new head coach preaches aggression and has employed three centre-halves in previous stints at Forest Green, Luton and Middlesbrough`\
-https://nytimes.com/athletic/6797801/2025/11/14/wolves-rob-edwards-style-tactics-analysis/
 
