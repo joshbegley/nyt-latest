@@ -1,3 +1,7 @@
+**James Baldwin’s Biographer on the Meaning of Love**\
+`In “Baldwin: A Love Story,” Nicholas Boggs focuses on the writer’s romantic relationships. In this episode he explains their importance to Baldwin’s life and work.`\
+https://nytimes.com/2025/11/14/books/review/podcast-nicholas-boggs-james-baldwin.html
+
 **White House Scraps Cash Payments for Delayed or Canceled Flights**\
 `A Biden-era rule, now halted, would have forced airlines to pay passengers up to $775 in cash for significant flight disruptions.`\
 https://nytimes.com/2025/11/14/travel/trump-biden-delayed-flights-payments.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/14/world/africa/sudan-atrocities-civilians-un.html
 **Former U.Va. President Details Justice Department Pressure That Led to Ouster**\
 `In an extraordinary 12-page letter, James E. Ryan described the pressure campaign leading to his resignation as akin to a “hostage situation.”`\
 https://nytimes.com/2025/11/14/us/politics/uva-james-ryan-trump.html
-
-**Have C-Sections Become Too Common?**\
-`Readers respond to a front-page article about fetal heart monitoring and C-sections. Also: When Shirley MacLaine was the understudy.`\
-https://nytimes.com/2025/11/14/opinion/c-sections-fetal-heart-monitor.html
 

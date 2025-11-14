@@ -1,3 +1,11 @@
+**White House Scraps Cash Payments for Delayed or Canceled Flights**\
+`A Biden-era rule, now halted, would have forced airlines to pay passengers up to $775 in cash for significant flight disruptions.`\
+https://nytimes.com/2025/11/14/travel/trump-biden-delayed-flights-payments.html
+
+**Medieval-Inspired Weddings Are Back in Style**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/medieval-inspired-weddings
+
 **The Jamie Haller loafers, on-foot.**\
 `Their flexibility is what sets them apart — and they’re soft and wearable from day one. Jennifer Hunter and Jason Toledo/NYT Wirecutter`\
 https://nytimes.com/video/admin/100000010525115/the-jamie-haller-loafers-on-foot.html
