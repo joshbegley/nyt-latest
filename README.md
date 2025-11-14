@@ -1,3 +1,11 @@
+**Ravens QB Lamar Jackson will start Sunday vs. Browns**\
+`Jackson missed Wednesday's practice with a knee injury but returned as a full participant on Thursday and Friday.`\
+https://nytimes.com/athletic/6808009/2025/11/14/lamar-jackson-start-ravens-browns/
+
+**Boston University Student Faces Backlash After He Called ICE on Workers**\
+`The student, the president of the school’s College Republicans club, said he reported immigrant carwash workers. Now he is facing online attacks after nine of the workers were detained.`\
+https://nytimes.com/2025/11/14/us/boston-university-republican-student-ice-carwash-workers.html
+
 **‘The Seat of Our Pants’ Review: Songs for the World’s End**\
 `Ruthie Ann Miles, Shuler Hensley and Micaela Diamond lead a dream-team cast in Ethan Lipton’s musical adaptation of Thornton Wilder’s “The Skin of Our Teeth.”`\
 https://nytimes.com/2025/11/14/theater/seat-of-our-pants-review-public-theater.html
@@ -22,19 +30,11 @@ https://nytimes.com/newsgraphics/card-story/village-halloween-parade-potluck
 `In “Baldwin: A Love Story,” Nicholas Boggs focuses on the writer’s romantic relationships. In this episode he explains their importance to Baldwin’s life and work.`\
 https://nytimes.com/2025/11/14/books/review/podcast-nicholas-boggs-james-baldwin.html
 
-**What we're hearing on David Kämpf destinations: Wild, Canadiens, Penguins, Canucks in on ex-Leaf**\
+**What we're hearing on David Kämpf destinations**\
 `Kämpf, a valuable penalty-killer and faceoff man, was waived by the Maple Leafs on Thursday and cleared waivers to become a UFA on Friday.`\
 https://nytimes.com/athletic/6807834/2025/11/14/david-kampf-destinations-wild-canadiens-penguins/
 
 **Tuchel expects England substitute 'anger'**\
 `Tuchel stressed the importance of contributions from the bench at next summer's the World Cup.`\
 https://nytimes.com/athletic/6807246/2025/11/14/thomas-tuchel-england-subs/
-
-**White House Scraps Cash Payments for Delayed or Canceled Flights**\
-`A Biden-era rule, now halted, would have forced airlines to pay passengers up to $775 in cash for significant flight disruptions.`\
-https://nytimes.com/2025/11/14/travel/trump-biden-delayed-flights-payments.html
-
-**Medieval-Inspired Weddings Are Back in Style**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/medieval-inspired-weddings
 
