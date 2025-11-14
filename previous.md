@@ -1,3 +1,15 @@
+**AL MVP voters break down their choice now that Aaron Judge has prevailed over Cal Raleigh**\
+`It is one of the most hotly contested MVP debates in recent memory, and The Athletic's voting writers tried to put it all into perspective.`\
+https://nytimes.com/athletic/6796468/2025/11/13/al-mvp-voters-cal-raleigh-aaron-judge-decision/
+
+**Yankees' Aaron Judge wins third MVP, cementing his Hall of Fame case**\
+`In evaluating two historic seasons, the voters went with Judge over Cal Raleigh, further bolstering the Yankee star's Hall of Fame resume. `\
+https://nytimes.com/athletic/6792396/2025/11/13/aaron-judge-mvp-yankees-hall-of-fame/
+
+**After 3 Whale Deaths Off British Columbia, Researchers Fear a Pattern**\
+`A humpback whale known to locals since 2004 was found dead on Nov. 8. Vessel collisions have become a major threat to humpback whales in the region.`\
+https://nytimes.com/2025/11/13/us/humpback-whale-dead-bc-canada.html
+
 **Football Coach Who Was Focus of Netflix’s ‘Last Chance U’ Is Shot**\
 `The coaching fixture John Beam was gravely wounded in a shooting at Laney College in Oakland, Calif., a commuter school where he is athletic director, according to a city councilman.`\
 https://nytimes.com/2025/11/13/us/john-beam-laney-college-shooting-last-chance.html
@@ -17,12 +29,4 @@ https://nytimes.com/2025/11/13/us/politics/dan-bongino-jan-6-pipe-bomb.html
 **Memo Blessing Boat Strikes Is Said to Rely on Trump’s Claims About Cartels**\
 `Accounts of a secret Justice Department memo offer a window into how administration lawyers approved the president’s desired course of action.`\
 https://nytimes.com/2025/11/13/us/politics/boat-strikes-doj-memo-trump.html
-
-**What the U.S. Absence at COP30 Tells Us**\
-`World leaders are meeting at the COP30 this week to discuss climate. The U.S. was not part of this meeting. Somini Sengupta, our international climate reporter, discusses what this absence means.`\
-https://nytimes.com/video/world/100000010519999/what-the-us-absence-at-cop30-tells-us.html
-
-**Canada Reaches for Its Economic Past to Find a Future Less Reliant on the U.S.**\
-`Prime Minister Mark Carney fast-tracked mines and other natural resource projects to the dismay of some Indigenous groups and many environmentalists.`\
-https://nytimes.com/2025/11/13/world/canada/carney-economy-trade-trump-tariffs.html
 

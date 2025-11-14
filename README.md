@@ -1,3 +1,7 @@
+**Fast-Growing Fire in Mono County, California, Forces Evacuations**\
+`The Pack fire has grown to 1,000 acres amid high winds, but a coming winter storm might help firefighters control the blaze.`\
+https://nytimes.com/2025/11/13/us/pack-fire-mono-county-california.html
+
 **AL MVP voters break down their choice now that Aaron Judge has prevailed over Cal Raleigh**\
 `It is one of the most hotly contested MVP debates in recent memory, and The Athletic's voting writers tried to put it all into perspective.`\
 https://nytimes.com/athletic/6796468/2025/11/13/al-mvp-voters-cal-raleigh-aaron-judge-decision/
