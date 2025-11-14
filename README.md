@@ -1,3 +1,7 @@
+**Canada scoring headache comes into focus after 0-0 Ecuador draw**\
+`Canada took positives from its latest friendly but the lack of goals remains a problem`\
+https://nytimes.com/athletic/6806254/2025/11/13/canada-ecuador-draw-marsch/
+
 **Liner Notes**\
 `Malaika Handa’s grid is packed with lively entries.`\
 https://nytimes.com/2025/11/13/crosswords/daily-puzzle-2025-11-14.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6792396/2025/11/13/aaron-judge-mvp-yankees-hall-of-
 **After 3 Whale Deaths Off British Columbia, Researchers Fear a Pattern**\
 `A humpback whale known to locals since 2004 was found dead on Nov. 8. Vessel collisions have become a major threat to humpback whales in the region.`\
 https://nytimes.com/2025/11/13/us/humpback-whale-dead-bc-canada.html
-
-**Football Coach Who Was Focus of Netflix’s ‘Last Chance U’ Is Shot**\
-`The coaching fixture John Beam was gravely wounded in a shooting at Laney College in Oakland, Calif., a commuter school where he is athletic director, according to a city councilman.`\
-https://nytimes.com/2025/11/13/us/john-beam-laney-college-shooting-last-chance.html
 
