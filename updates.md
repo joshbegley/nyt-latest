@@ -1,3 +1,7 @@
+**Sharon Camp, Mother of the ‘Plan B’ Contraceptive Pill, Dies at 83**\
+`An advocate for women’s reproductive health, she started one of the world’s smallest pharmaceutical companies to bring an emergency birth-control method to market.`\
+https://nytimes.com/2025/11/14/health/policy/sharon-camp-dead.html
+
 **What can Wolves fans expect from a Rob Edwards team?**\
 `The new head coach preaches aggression and has employed three centre-halves in previous stints at Forest Green, Luton and Middlesbrough`\
 https://nytimes.com/athletic/6797801/2025/11/14/wolves-rob-edwards-style-tactics-analysis/
