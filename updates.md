@@ -1,3 +1,15 @@
+**The Pulse: Yes, Drake Maye might be the MVP**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6804824/2025/11/14/drake-maye-aaron-judge-shohei-ohtani-mvp-the-pulse/
+
+**'Not gonna stand for that': There's a grittier vibe to the Hurricanes this season**\
+`Toughness isn't always about dropping the gloves, but the Hurricanes seem to be more physical all around.`\
+https://nytimes.com/athletic/6805763/2025/11/14/carolina-hurricanes-fights-hits/
+
+**Remembering 5 of the NHL's most important 'changing of the guard' seasons**\
+`From Wayne Gretzky's debut to the rise of the modern blue line, sometimes the NHL changes direction in a hurry. Let's walk down memory lane.`\
+https://nytimes.com/athletic/6804427/2025/11/14/nhl-changing-of-the-guard-seasons/
+
 **Hurricane Melissa Leaves Behind a Staggering Homelessness Toll**\
 `Two weeks after Hurricane Melissa wrecked western Jamaica, officials are beginning to grapple with the challenge of trying to find housing for thousands of families.`\
 https://nytimes.com/2025/11/14/world/americas/hurricane-melissa-homeless-jamaica.html

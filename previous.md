@@ -1,3 +1,15 @@
+**The Pulse: Yes, Drake Maye might be the MVP**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6804824/2025/11/14/drake-maye-aaron-judge-shohei-ohtani-mvp-the-pulse/
+
+**'Not gonna stand for that': There's a grittier vibe to the Hurricanes this season**\
+`Toughness isn't always about dropping the gloves, but the Hurricanes seem to be more physical all around.`\
+https://nytimes.com/athletic/6805763/2025/11/14/carolina-hurricanes-fights-hits/
+
+**Remembering 5 of the NHL's most important 'changing of the guard' seasons**\
+`From Wayne Gretzky's debut to the rise of the modern blue line, sometimes the NHL changes direction in a hurry. Let's walk down memory lane.`\
+https://nytimes.com/athletic/6804427/2025/11/14/nhl-changing-of-the-guard-seasons/
+
 **Hurricane Melissa Leaves Behind a Staggering Homelessness Toll**\
 `Two weeks after Hurricane Melissa wrecked western Jamaica, officials are beginning to grapple with the challenge of trying to find housing for thousands of families.`\
 https://nytimes.com/2025/11/14/world/americas/hurricane-melissa-homeless-jamaica.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6806364/2025/11/14/detroit-red-wings-offense-power-
 **The pressure is rising on Craig Berube to fix the Maple Leafs**\
 `The Leafs put in another dismal performance against the Kings, including an NHL-worst performance in shot attempts.`\
 https://nytimes.com/athletic/6806423/2025/11/14/maple-leafs-craig-berube-kings/
-
-**Vikings-Bears predictions: Can J.J. McCarthy, Justin Jefferson get offense on track?**\
-`McCarthy has struggled in the passing game, and Jefferson has shown some frustration of late. Can they get it rolling against the Bears?`\
-https://nytimes.com/athletic/6805141/2025/11/14/vikings-bears-preview-predictions-jj-mccarthy-justin-jefferson/
-
-**In the face of adversity, Lions OC John Morton shows his true colors: 'That's what we do'**\
-`Dan Campbell sees John Morton as an essential piece to the offense's success. "I told him, 'Man, I need you.’"`\
-https://nytimes.com/athletic/6806265/2025/11/14/lions-john-morton-dan-campbell-play-calling/
-
-**Sabres' winless streak grows to five games, another bleak moment in Kevyn Adams era**\
-`Thanksgiving is still almost two weeks away, and already the Sabres’ season looks lost.`\
-https://nytimes.com/athletic/6806613/2025/11/14/buffalo-sabres-winless-streak/
 

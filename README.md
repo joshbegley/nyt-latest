@@ -1,3 +1,19 @@
+**As Steph Curry parts ways with Under Armour, his brand and appeal reach a new test**\
+`Curry's basketball greatness helped Under Armour's growth. Sneakerheads now wait to see what's next with the new free agent, Curry Brand.`\
+https://nytimes.com/athletic/6806617/2025/11/14/steph-curry-under-armour-basketball-shoe-brand/
+
+**How safety Talanoa Hufanga has become the 'ultimate eraser' for Broncos**\
+`Hufanga is a perfect fit for Vance Joseph's aggressive defense because he instinctively finds himself in the right place to make a play.`\
+https://nytimes.com/athletic/6801729/2025/11/14/talanoa-hufanga-broncos-film-study/
+
+**Mike Vrabel and Drake Maye are taking over Football America**\
+`Vrabel and Maye have made it easy to forget the Patriots (9-2) are coming off back-to-back 4-13 seasons. As they soar, Jets remain grounded.`\
+https://nytimes.com/athletic/6806632/2025/11/14/patriots-jets-mike-vrabel-drake-maye/
+
+**Here are Week 12's college football games with the biggest Playoff implications**\
+`This week's games will help shape conference title races and sharpen the picture for the College Football Playoff bracket.`\
+https://nytimes.com/athletic/6805428/2025/11/14/college-football-playoff-game-implications-week-12/
+
 **The Pulse: Yes, Drake Maye might be the MVP**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6804824/2025/11/14/drake-maye-aaron-judge-shohei-ohtani-mvp-the-pulse/
@@ -21,20 +37,4 @@ https://nytimes.com/video/sports/football/100000010524299/patriots-beat-jets-27-
 **Chris Jones' production is down for Chiefs. Why he says 2025 start has been 'challenging'**\
 `The Chiefs' star defensive tackle is in the second season of a five-year extension. Here's where his stats are down from normal.`\
 https://nytimes.com/athletic/6804805/2025/11/14/chiefs-chris-jones-challenging-start/
-
-**Solomon Thomas sends powerful mental health message as Cowboys deal with tragedy**\
-`“Marshawn was in the building, smiling every day,” Solomon Thomas said Thursday.`\
-https://nytimes.com/athletic/6805994/2025/11/14/solomon-thomas-marshawn-kneeland-death-cowboys/
-
-**Nic Scourton making impression in Year 1: Grading the Panthers' defensive rookies**\
-`Taken with the 51st overall pick in the 2025 draft, Nic Scourton "looks like a foundational piece" to Carolina's defense.`\
-https://nytimes.com/athletic/6805822/2025/11/14/panthers-nic-scourton-rookie-grades/
-
-**Red Wings offense finally breaks through to snap drought: 5 thoughts**\
-`After scoring just two goals in their previous three games, the Red Wings broke through with six to beat the Ducks.`\
-https://nytimes.com/athletic/6806364/2025/11/14/detroit-red-wings-offense-power-play-ducks/
-
-**The pressure is rising on Craig Berube to fix the Maple Leafs**\
-`The Leafs put in another dismal performance against the Kings, including an NHL-worst performance in shot attempts.`\
-https://nytimes.com/athletic/6806423/2025/11/14/maple-leafs-craig-berube-kings/
 
