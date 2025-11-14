@@ -1,3 +1,7 @@
+**Anthropic Says Chinese Hackers Used Its A.I. in Online Attack**\
+`The company claimed that A.I. did most of the hacking with limited human input and said it was a rapid escalation of the technology’s use in cybercrime.`\
+https://nytimes.com/2025/11/14/business/chinese-hackers-artificial-intelligence.html
+
 **‘A Very Jonas Christmas Movie’ Review: O Come, All Ye Faithful**\
 `In their fan-oriented and self-mocking holiday comedy, the millennial boy band delivers pure festive sugar rush.`\
 https://nytimes.com/2025/11/14/movies/a-very-jonas-christmas-movie-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6800736/2025/11/14/england-bellingham-rogers-no10-t
 **Drag racing’s John Force, 16-time champion, retires after historic career**\
 `At 76 years old, Force hasn’t raced in 17 months after surviving an engine explosion at the NHRA Virginia Nationals in June 2024.`\
 https://nytimes.com/athletic/6806595/2025/11/14/john-force-retirement-nhra-drag-racing/
-
-**'You feel like death': The brutal reality of 'cutting' - and why boxers do it**\
-`Chris Eubank Jr's rematch with Conor Benn has brought the controversial issue of how fighters make weight back into focus`\
-https://nytimes.com/athletic/6803795/2025/11/14/boxing-cutting-weight-eubank-jr-benn/
 

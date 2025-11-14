@@ -1,3 +1,7 @@
+**Anthropic Says Chinese Hackers Used Its A.I. in Online Attack**\
+`The company claimed that A.I. did most of the hacking with limited human input and said it was a rapid escalation of the technology’s use in cybercrime.`\
+https://nytimes.com/2025/11/14/business/chinese-hackers-artificial-intelligence.html
+
 **‘A Very Jonas Christmas Movie’ Review: O Come, All Ye Faithful**\
 `In their fan-oriented and self-mocking holiday comedy, the millennial boy band delivers pure festive sugar rush.`\
 https://nytimes.com/2025/11/14/movies/a-very-jonas-christmas-movie-review.html
