@@ -1,3 +1,11 @@
+**Mark Hughes on being an introverted football manager and what he learned on Wikipedia about himself**\
+`Mark Hughes talks of being introverted, why he's managing in non-League, and what he didn't know about himself until he read it on Wikipedia`\
+https://nytimes.com/athletic/6804259/2025/11/14/mark-hughes-wikipedia-introverted/
+
+**Why have so many of the biggest countries not qualified for the World Cup?**\
+`At least seven of the world's 10 most populous nations have not qualified for the tournament`\
+https://nytimes.com/athletic/6801199/2025/11/14/biggest-countries-missing-world-cup/
+
 **Nolberto Solano interview: From Lima to Lahore via 'home' in Newcastle**\
 `Solano speaks to The Athletic about playing with Alan Shearer, managing Pakistan and why football needs to embrace proper wingers again `\
 https://nytimes.com/athletic/6803906/2025/11/14/nolberto-solano-interview-newcastle-pakistan/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/14/pageoneplus/corrections-nov-14-2025.html
 **For Two Homebodies, Marriage is Cozy and Safe**\
 `Danielle Duseau and Casey Lyons like feeling secure, so ten months into dating, inspired by a favorite singer, they decided to lock it down.`\
 https://nytimes.com/2025/11/14/style/danielle-duseau-casey-lyons-wedding.html
-
-**Where Does One Go on a First Date With the Mayor?**\
-`Matched by a “modern day yenta,” Melissa Blaustein, who is now a member of Sausalito’s City Council, quickly connected with David Saxe, a real estate investor who became “the Doug Emhoff of Sausalito.”`\
-https://nytimes.com/2025/11/14/fashion/weddings/where-does-one-go-on-a-first-date-with-the-mayor.html
-
-**They Almost Gave Up on Love — Until a Matchmaker Stepped In**\
-`When Emily Rothstein and Daniel Loeterman first met four years ago, their attraction was instant.`\
-https://nytimes.com/2025/11/14/style/they-almost-gave-up-on-love-until-a-matchmaker-stepped-in.html
 
