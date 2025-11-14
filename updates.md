@@ -1,3 +1,15 @@
+**F.D.A. Sharply Limits Approval for Drug Linked to Two Teen Deaths**\
+`A gene therapy for Duchenne muscular dystrophy caused complications to the liver, prompting a review of its use for younger patients.`\
+https://nytimes.com/2025/11/14/health/fda-muscular-dystrophy-sarepta.html
+
+**Trinity Rodman participates in training, but her status for Spirit semi is unclear**\
+`The Washington Spirit take on the Portland Thorns at Rowdy Audi on Saturday for a sold-out semifinal match. `\
+https://nytimes.com/athletic/6808178/2025/11/14/trinity-rodman-spirit-nwsl-semifinal/
+
+**Police Shoot Man They Say Menaced Bystanders on the Upper East Side**\
+`Elijah Brown, 20, was killed on Madison Avenue. The police said he had been brandishing a gun and acting erratically.`\
+https://nytimes.com/2025/11/14/nyregion/ues-nypd-shooting-madison-avenue.html
+
 **Police Officers Shoot Man Who Had Menaced Bystanders on Upper East Side**\
 `Elijah Brown, 20, was killed on Madison Avenue. The police said he had been brandishing a gun and acting erratically.`\
 https://nytimes.com/2025/11/14/nyregion/ues-nypd-shooting-madison-avenue.html
