@@ -1,3 +1,7 @@
+**Ex-Chelsea midfielder Oscar diagnosed with fainting condition, remains hospitalised**\
+`The 34-year-old, who currently plays for Sao Paulo, was admitted to hospital on Tuesday and has been diagnosed with vasovagal syncope.`\
+https://nytimes.com/athletic/6806941/2025/11/14/oscar-health-issue-brazil-chelsea/
+
 **The Effects of the Boat Strikes**\
 `We go to meet one family in Colombia.`\
 https://nytimes.com/2025/11/14/briefing/the-effects-of-the-boat-strikes.html
