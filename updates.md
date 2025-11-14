@@ -1,3 +1,7 @@
+**Bears open Jaylon Johnson's 21-day practice window**\
+`Coach Ben Johnson has been adamant that the Bears will be playing their best football in December. Jaylon Johnson could give them a boost.`\
+https://nytimes.com/athletic/6808077/2025/11/14/bears-jaylon-johnson-practice-window/
+
 **Ravens QB Lamar Jackson will start Sunday vs. Browns**\
 `Jackson missed Wednesday's practice with a knee injury but returned as a full participant on Thursday and Friday.`\
 https://nytimes.com/athletic/6808009/2025/11/14/lamar-jackson-start-ravens-browns/
