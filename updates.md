@@ -1,3 +1,7 @@
+**Modi’s Coalition Leads Indian Election Scrutinized Over Scrubbed Voter Rolls**\
+`Early results suggested a sweep for the ruling coalition in a state where the opposition claimed foul play over an exercise that deleted millions of voters.`\
+https://nytimes.com/2025/11/14/world/asia/india-bihar-election-modi.html
+
 **Another Jets loss to the Patriots, the team they once again hope to become**\
 `It was a long Thursday night in Foxboro, where Justin Fields and the lack of a passing game made it tough to assess just what the Jets have.`\
 https://nytimes.com/athletic/6806643/2025/11/14/new-york-jets-loss-new-england-patriots/
