@@ -1,3 +1,19 @@
+**How to watch Duke vs. West Virginia women's basketball: Time, TV, streaming**\
+`Find out how to watch the Duke Blue Devils play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6807629/2025/11/14/duke-vs-west-virginia-stream-how-to-watch-nov-14/
+
+**How to watch Indiana State vs. Duke men's basketball: Time, TV, streaming**\
+`Find out how to watch the Indiana State Sycamores play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6807626/2025/11/14/indiana-state-vs-duke-stream-how-to-watch-nov-14/
+
+**How to watch Eastern Illinois vs. Kentucky men's basketball: Time, TV, streaming**\
+`Find out how to watch the Eastern Illinois Panthers play the Kentucky Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6807604/2025/11/14/eastern-illinois-vs-kentucky-stream-how-to-watch-nov-14/
+
+**Five International Movies to Stream Now**\
+`In this month’s picks, parents and children in India, Germany, Korea, Italy and Sudan grapple with the joys and perils of familial bonds.`\
+https://nytimes.com/2025/11/14/movies/international-movies-streaming.html
+
 **‘Being Eddie’ Gives Murphy the Final Word on His Feud with ‘S.N.L.’**\
 `The comedian’s long-running feud with the late-night sketch show is a topic in the new Netflix documentary “Being Eddie.”`\
 https://nytimes.com/2025/11/14/arts/television/eddie-murphy-documentary-snl.html
@@ -21,20 +37,4 @@ https://nytimes.com/paidpost/scheider-electric/powering-tomorrows-cities.html
 **NHL Power Rankings: Chaos in the middle, plus new-guy check-ins for every team**\
 `Dallas Stars rise as the Maple Leafs plummet. How are the newest additions doing for all 32 teams?`\
 https://nytimes.com/athletic/6806991/2025/11/14/nhl-power-rankings-avalanche-stars-leafs/
-
-**NHL power rankings of putrid: Will these 3 disappointing teams figure it out?**\
-`Just how much trouble are these teams in? Are they contemplating firings or big trades? Is it salvageable?`\
-https://nytimes.com/athletic/6807426/2025/11/14/nhl-putrid-power-rankings-red-light-newsletter/
-
-**Wild's Marco Rossi sidelined by lower-body injury: Sources**\
-`The loss of Rossi, coupled with Nico Sturm’s continued rehab from back surgery, likely puts the Wild in the market for a center.`\
-https://nytimes.com/athletic/6807510/2025/11/14/wild-marco-rossi-lower-body-injury/
-
-**Commanders' Joe Whitt Jr. on demotion: 'I understood and expected it'**\
-`“I have no ill will to anybody,” Whitt said. “It's about winning. That's what it's all about. It's about winning and playing well.”`\
-https://nytimes.com/athletic/6807454/2025/11/14/commanders-joe-whitt-defensive-coordinator-demoted/
-
-**11 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://nytimes.com/2025/11/14/movies/new-movies-this-week-critics.html
 
