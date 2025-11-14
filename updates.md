@@ -1,3 +1,15 @@
+**U.S. Investor Withdraws Takeover Bid for U.K.’s Telegraph**\
+`The exit by RedBird Capital Partners comes months after it agreed to buy control of the media company in a deal that valued it at $658 million.`\
+https://nytimes.com/2025/11/14/business/dealbook/telegraph-sale-uk-newspaper.html
+
+**Chelsea goalkeeper Hampton out for 'a few weeks' with muscular injury**\
+`Chelsea head coach Sonia Bompastor said she was unsure if Hampton, 24, would be available to return before the end of 2025.`\
+https://nytimes.com/athletic/6807662/2025/11/14/hannah-hampton-injury-update-chelsea/
+
+**These Spiced Cookies Are an Autumnal Twist on Malawian Flavors**\
+`Mbatata, a creamy variety of sweet potato, provides a comforting base for these perfectly dunkable treats.`\
+https://nytimes.com/2025/11/14/dining/malawian-spiced-cookies.html
+
 **She Took JPMorgan for $175 Million. That Doesn’t Include Her Restaurant Bills.**\
 `When prosecutors accused Charlie Javice of fraud, JPMorgan was forced to pay for her defense. The bank is not happy about her “shocking” spending.`\
 https://nytimes.com/2025/11/14/business/charlie-javice-jpmorgan-legal-bills.html
