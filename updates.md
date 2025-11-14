@@ -1,3 +1,11 @@
+**Lamine Yamal's injury and Barcelona’s spat with Spain: Pain, politics and pubalgia**\
+`The 18-year-old forward has this week found himself at the centre of a public spat between club and country`\
+https://nytimes.com/athletic/6806764/2025/11/14/lamine-yamal-barcelona-injury-spain-groin/
+
+**Ravens getting hot, Steelers falling as AFC North race tightens: Whiparound**\
+`And could Joe Burrow's pending return for the Bengals make the division a three-team race down the stretch of the season?`\
+https://nytimes.com/athletic/6804871/2025/11/14/steelers-ravens-browns-bengals-joe-burrow/
+
 **As Steph Curry parts ways with Under Armour, his brand and appeal reach a new test**\
 `Curry's basketball greatness helped Under Armour's growth. Sneakerheads now wait to see what's next with the new free agent, Curry Brand.`\
 https://nytimes.com/athletic/6806617/2025/11/14/steph-curry-under-armour-basketball-shoe-brand/
