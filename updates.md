@@ -1,3 +1,7 @@
+**What’s a Digital Passport and How Does It Work?**\
+`Apple joined Google this week in allowing travelers to add their passports to their cellphone “wallets.” As the holiday travel season nears, here’s what you need to know.`\
+https://nytimes.com/2025/11/14/travel/digital-identification-travel.html
+
 **What Makes a Good Cover?**\
 `What makes a good cover song? On this week’s episode of the “Cannonball” podcast, host Wesley Morris is joined by singer Cecile McLorin Salvant to discuss the delicate art of performing or recording other people’s music.`\
 https://nytimes.com/video/podcasts/100000010522291/what-makes-a-good-cover.html
