@@ -1,3 +1,11 @@
+**How to Treat Hyperpigmentation**\
+`Expert advice from a dermatologist, an aesthetician and a beauty influencer.`\
+https://nytimes.com/2025/11/14/t-magazine/hyperpigmentation-skin-treatment.html
+
+**The Strategic Uncoupling of Zohran Mamdani and Brad Lander**\
+`Mr. Lander, the New York City comptroller, campaigned with Mr. Mamdani and once hoped to join him in City Hall. Now he is eying a congressional seat.`\
+https://nytimes.com/2025/11/14/nyregion/mamdani-lander-dan-goldman.html
+
 **U.S. Investor Withdraws Takeover Bid for U.K.’s Telegraph**\
 `The exit by RedBird Capital Partners comes months after it agreed to buy control of the media company in a deal that valued it at $658 million.`\
 https://nytimes.com/2025/11/14/business/dealbook/telegraph-sale-uk-newspaper.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/14/us/politics/trump-epstein-inquiry-democrats.html
 **Deadly Russian Drone and Missile Barrage Pummels Kyiv**\
 `Russia fired hundreds of drones and more than a dozen missiles at Kyiv, Ukraine’s capital, killing several people and damaging neighborhoods across the city.`\
 https://nytimes.com/video/world/europe/100000010524799/kyiv-ukraine-russia-missiles-drones.html
-
-**WATCH: How Caleb Williams is silencing critics**\
-`Caleb Williams has silenced critics with his resurgence this season, leading the Bears into the playoff conversation. `\
-https://nytimes.com/athletic/6807571/2025/11/14/bears-caleb-williams-quarterback-playoffs-analysis/
-
-**Discovering 5 Treasures of Photography**\
-`Some of the most impressive photographs on display at the Paris Photo Fair were made many decades ago but are now being seen anew or, in some cases, for the first time.`\
-https://nytimes.com/2025/11/14/arts/design/paris-photo.html
 

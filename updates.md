@@ -1,3 +1,11 @@
+**How to Treat Hyperpigmentation**\
+`Expert advice from a dermatologist, an aesthetician and a beauty influencer.`\
+https://nytimes.com/2025/11/14/t-magazine/hyperpigmentation-skin-treatment.html
+
+**The Strategic Uncoupling of Zohran Mamdani and Brad Lander**\
+`Mr. Lander, the New York City comptroller, campaigned with Mr. Mamdani and once hoped to join him in City Hall. Now he is eying a congressional seat.`\
+https://nytimes.com/2025/11/14/nyregion/mamdani-lander-dan-goldman.html
+
 **U.S. Investor Withdraws Takeover Bid for U.K.’s Telegraph**\
 `The exit by RedBird Capital Partners comes months after it agreed to buy control of the media company in a deal that valued it at $658 million.`\
 https://nytimes.com/2025/11/14/business/dealbook/telegraph-sale-uk-newspaper.html
