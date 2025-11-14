@@ -1,3 +1,7 @@
+**Bears open Jaylon Johnson's 21-day practice window**\
+`Coach Ben Johnson has been adamant that the Bears will be playing their best football in December. Jaylon Johnson could give them a boost.`\
+https://nytimes.com/athletic/6808077/2025/11/14/bears-jaylon-johnson-practice-window/
+
 **Ravens QB Lamar Jackson will start Sunday vs. Browns**\
 `Jackson missed Wednesday's practice with a knee injury but returned as a full participant on Thursday and Friday.`\
 https://nytimes.com/athletic/6808009/2025/11/14/lamar-jackson-start-ravens-browns/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/14/books/review/podcast-nicholas-boggs-james-baldwin
 **What we're hearing on David Kämpf destinations**\
 `Kämpf, a valuable penalty-killer and faceoff man, was waived by the Maple Leafs on Thursday and cleared waivers to become a UFA on Friday.`\
 https://nytimes.com/athletic/6807834/2025/11/14/david-kampf-destinations-wild-canadiens-penguins/
-
-**Tuchel expects England substitute 'anger'**\
-`Tuchel stressed the importance of contributions from the bench at next summer's the World Cup.`\
-https://nytimes.com/athletic/6807246/2025/11/14/thomas-tuchel-england-subs/
 
