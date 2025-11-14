@@ -1,36 +1,40 @@
+**How to watch North Alabama vs. Oklahoma women's basketball: Time, TV, streaming**\
+`Find out how to watch the North Alabama Lions play the Oklahoma Sooners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6806828/2025/11/14/north-alabama-vs-oklahoma-stream-how-to-watch-nov-14/
+
+**Padel is growing in the U.S as investment booms. Is its mission to rival tennis realistic?**\
+`Professional padel's leading U.S. investors are bullish about upending racket sports. The numbers suggest they have a way to go.`\
+https://nytimes.com/athletic/6802339/2025/11/14/padel-us-growth-investment-tennis/
+
+**A Dead Glacier Is a Loss. A Dying One Is a Threat.**\
+`Melting ice from the Himalayas is creating thousands of unstable lakes, a growing menace to towns and cities below.`\
+https://nytimes.com/interactive/2025/11/14/climate/glacier-melt-himalayas.html
+
+**Conservative Media Picks an Epstein Story Line and Sticks to It**\
+`Right-wing outlets have focused on a single redacted name in the 23,000 pages of correspondence related to Jeffrey Epstein that were released on Wednesday.`\
+https://nytimes.com/2025/11/14/business/media/epstein-trump-emails-conservative-media.html
+
+**The Best Foods and Drinks for Constipation**\
+`It’s go time.`\
+https://nytimes.com/2025/11/14/well/best-foods-drinks-constipation.html
+
 **The Machine Wants to Kill Us**\
 `Paul Kingsnorth on technology’s war against human nature.`\
-https://nytimes.com/video/opinion/100000010519795/the-machine-wants-to-kill-us.html
+https://nytimes.com/2025/11/14/opinion/paul-kingsnorth-humanity-technology.html
 
-**Today’s Top Directors Have Some Issues With Gen Z**\
-`“Eddington,” “One Battle After Another” and “After the Hunt” focus on young characters navigating the current political climate. The depictions aren’t always flattering.`\
-https://nytimes.com/2025/11/14/movies/gen-z-one-battle-after-the-hunt.html
+**Hakeem Jeffries Needs to Be a Bit of a Jerk**\
+`The House Democratic leader’s fatal flaw may be that he is too unobjectionable for a Democratic Party spoiling for a fight with President Trump.`\
+https://nytimes.com/2025/11/14/opinion/hakeem-jeffries-democrats.html
 
-**Chris Christie: Keep Sports Betting Legal**\
-`Chris Christie argues that regulated betting can strengthen the integrity of sports.`\
-https://nytimes.com/2025/11/14/opinion/chris-christie-sports-gambling-mlb-nba.html
+**Trump Has Snatched the Power of the Purse. Congress Should Take It Back.**\
+`Trump’s actions should alarm anybody who shares the American founders’ suspicion of centralized power.`\
+https://nytimes.com/2025/11/14/opinion/trump-congress-spending-power.html
 
-**Robots, Raiders and Riches in a Gripping Prisoner’s Dilemma**\
-`The extraction shooter ARC Raiders has become an unlikely word-of-mouth hit because of its high-stakes gameplay.`\
-https://nytimes.com/2025/11/14/arts/arc-raiders-review.html
+**In a Brutal Mississippi Jail, Inmates Say They Were Enlisted as Enforcers**\
+`High-ranking inmates known as trusties were ordered to do guards’ bidding, former inmates and guards said, and the culture of violence in the jail went straight to the top.`\
+https://nytimes.com/2025/11/14/us/mississippi-jail-inmates-rankin-county.html
 
-**$1.3 Million Homes in Spain’s Basque Country**\
-`Buyers can find a classic apartment in Vitoria-Gasteiz, a San Sebastián unit in a belle epoque building, and a contemporary house on the city outskirts.`\
-https://nytimes.com/2025/11/14/realestate/spain-basque-country-san-sebastian.html
-
-**Kenya’s Key Export Used to Be Coffee. Now It’s Cheap Labor.**\
-`There’s big money in sending poor workers abroad. Here’s how the economics work.`\
-https://nytimes.com/2025/11/14/world/africa/kenya-exports-labor-saudi-arabia-economy.html
-
-**Why a Bill on the Governor’s Desk Is a Tough Call**\
-`The measure would require the M.T.A. to keep using two-person subway crews as other systems around the world are cutting back on train staffing.`\
-https://nytimes.com/2025/11/14/nyregion/why-a-bill-on-the-governors-desk-is-a-tough-call.html
-
-**Kennedy Walks a Tightrope on Trump Deal for Obesity Drugs**\
-`The weight loss medicines are proving to be a test case for Robert F. Kennedy Jr., the health secretary, in straddling divisions between his supporters and the president.`\
-https://nytimes.com/2025/11/14/health/rfkjr-obesity-drugs.html
-
-**What's wrong with the Falcons offense? We asked an expert for the answers**\
-`The Falcons are 27th in the league in scoring and 29th in third-down conversions. Why? We ask Derrik Klassen for some answers.`\
-https://nytimes.com/athletic/6804373/2025/11/14/falcons-offense-michael-penix-bijan-robinson/
+**Why Is Ghislaine Maxwell Being Pampered in Prison?**\
+`Maybe there’s an innocent explanation for all the privileges she’s being accorded, but I can’t think of one.`\
+https://nytimes.com/2025/11/14/opinion/ghislaine-maxwell-trump-epstein-prison.html
 
