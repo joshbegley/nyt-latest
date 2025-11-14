@@ -1,5 +1,9 @@
+**Cranberry Pudding**\
+`Think of this dessert as a more colorful, autumnal version of banana pudding.`\
+https://nytimes.com/video/dining/100000010523014/cranberry-pudding.html
+
 **LaMelo Ball had presidential aspirations. The Timberwolves weren't impressed**\
-`Before the 2020 draft, Ball told Minnesota, which held the top pick, he aspired to be the president when his playing days were done.`\
+`Before the 2020 NBA Draft, Ball told Minnesota, which held the top pick, he aspired to be U.S. president when his playing days were done.`\
 https://nytimes.com/athletic/6808493/2025/11/14/lamelo-ball-hornets-president-nba-timberwolves/
 
 **Trump Orders Investigation Into Epstein’s Ties to Democrats**\
@@ -15,7 +19,7 @@ https://nytimes.com/video/opinion/100000010524982/how-epstein-could-divide-repub
 https://nytimes.com/video/opinion/100000010524984/trumps-worst-enemy-himself.html
 
 **ICE Scouted Site to Hold Immigrant Detainees in New York City**\
-`Federal officials explored the possibly of using a Coast Guard facility on Staten Island. The effort appears to be part of a plan to expand President Trump’s immigration crackdown.`\
+`Federal officials explored the possibility of using a Coast Guard facility on Staten Island. The effort appears to be part of a plan to expand President Trump’s immigration crackdown.`\
 https://nytimes.com/2025/11/14/nyregion/ice-detention-facility-staten-island.html
 
 **San Francisco Mayor Has First Major Error With Embarrassing Appointment**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6808192/2025/11/14/astros-brendan-donovan-trade-int
 **Elizabeth Franz, Versatile Tony-Winning Actress, Is Dead at 84**\
 `She won the award for her performance as Linda Loman in a 1999 Broadway revival of “Death of a Salesman” and played the matriarch Kate Jerome in two Neil Simon comedies.`\
 https://nytimes.com/2025/11/14/theater/elizabeth-franz-dead.html
-
-**Justin Thomas to miss start of PGA Tour season after back surgery**\
-`Thomas, 32, won the RBC Heritage in April, his first win since the 2022 PGA Championship.`\
-https://nytimes.com/athletic/6808628/2025/11/14/justin-thomas-back-surgery-pga-tour-return/
 

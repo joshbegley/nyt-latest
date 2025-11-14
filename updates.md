@@ -1,3 +1,15 @@
+**Cranberry Pudding**\
+`Think of this dessert as a more colorful, autumnal version of banana pudding.`\
+https://nytimes.com/video/dining/100000010523014/cranberry-pudding.html
+
+**LaMelo Ball had presidential aspirations. The Timberwolves weren't impressed**\
+`Before the 2020 NBA Draft, Ball told Minnesota, which held the top pick, he aspired to be U.S. president when his playing days were done.`\
+https://nytimes.com/athletic/6808493/2025/11/14/lamelo-ball-hornets-president-nba-timberwolves/
+
+**ICE Scouted Site to Hold Immigrant Detainees in New York City**\
+`Federal officials explored the possibility of using a Coast Guard facility on Staten Island. The effort appears to be part of a plan to expand President Trump’s immigration crackdown.`\
+https://nytimes.com/2025/11/14/nyregion/ice-detention-facility-staten-island.html
+
 **LaMelo Ball had presidential aspirations. The Timberwolves weren't impressed**\
 `Before the 2020 draft, Ball told Minnesota, which held the top pick, he aspired to be the president when his playing days were done.`\
 https://nytimes.com/athletic/6808493/2025/11/14/lamelo-ball-hornets-president-nba-timberwolves/
