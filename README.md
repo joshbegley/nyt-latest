@@ -1,5 +1,9 @@
+**Fourteen charged in New Jersey betting ring that allegedly involves college athletes, mafia**\
+`The NCAA is aware of the charges and is looking into the matter, a spokesperson said. It's unclear how many college athletes were involved.`\
+https://nytimes.com/athletic/6806110/2025/11/13/new-jersey-betting-ring-college-athletes-mafia/
+
 **Mets' Jeff McNeil drawing trade interest as he recovers from minor procedure**\
-`LAS VEGAS — Though there are no indications the New York Mets are actively shopping Jeff McNeil, multiple teams have expressed interest in the club’s longtime versatile veteran as a trade acquisition, league sources said.`\
+`A two-time All-Star and batting champion in 2022, McNeil hit 12 home runs with a .243/.335/.411 slash line in 2025.`\
 https://nytimes.com/athletic/6806350/2025/11/13/mets-jeff-mcneil-trade-interest-injury/
 
 **Canada scoring headache comes into focus after 0-0 Ecuador draw**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/13/us/pack-fire-mono-county-california.html
 **AL MVP voters break down their choice now that Aaron Judge has prevailed over Cal Raleigh**\
 `It is one of the most hotly contested MVP debates in recent memory, and The Athletic's voting writers tried to put it all into perspective.`\
 https://nytimes.com/athletic/6796468/2025/11/13/al-mvp-voters-cal-raleigh-aaron-judge-decision/
-
-**Yankees' Aaron Judge wins third MVP, cementing his Hall of Fame case**\
-`In evaluating two historic seasons, the voters went with Judge over Cal Raleigh, further bolstering the Yankee star's Hall of Fame resume. `\
-https://nytimes.com/athletic/6792396/2025/11/13/aaron-judge-mvp-yankees-hall-of-fame/
 

@@ -1,3 +1,7 @@
+**Mets' Jeff McNeil drawing trade interest as he recovers from minor procedure**\
+`LAS VEGAS — Though there are no indications the New York Mets are actively shopping Jeff McNeil, multiple teams have expressed interest in the club’s longtime versatile veteran as a trade acquisition, league sources said.`\
+https://nytimes.com/athletic/6806350/2025/11/13/mets-jeff-mcneil-trade-interest-injury/
+
 **Canada scoring headache comes into focus after 0-0 Ecuador draw**\
 `Canada took positives from its latest friendly but the lack of goals remains a problem`\
 https://nytimes.com/athletic/6806254/2025/11/13/canada-ecuador-draw-marsch/
