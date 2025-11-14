@@ -1,3 +1,23 @@
+**What can Wolves fans expect from a Rob Edwards team?**\
+`The new head coach preaches aggression and has employed three centre-halves in previous stints at Forest Green, Luton and Middlesbrough`\
+https://nytimes.com/athletic/6797801/2025/11/14/wolves-rob-edwards-style-tactics-analysis/
+
+**With a World Cup next year, Lewis-Skelly may have to weigh patience against international ambition**\
+`The full-back has not been called up by England owing to his lack of playing time — but he is determined to change that`\
+https://nytimes.com/athletic/6803744/2025/11/14/with-a-world-cup-next-year-lewis-skelly-may-have-to-weigh-patience-against-international-ambition/
+
+**Everton mailbag: Iliman Ndiaye's future, the striker search and Hill Dickinson adaption**\
+`Our correspondent answers your questions, which also take in the Everton academy and new-look management structure`\
+https://nytimes.com/athletic/6801158/2025/11/14/everton-moyes-ndiaye-cox-transport-mailbag/
+
+**Crystal Palace and Oliver Glasner savour a new Australian in the ranks**\
+`James Holland, who played for Glasner in Austria and was capped 17 times by his country, joined the coaching staff over the summer`\
+https://nytimes.com/athletic/6792164/2025/11/14/crystal-palace-james-holland-glasner-australian/
+
+**After last season's tears, Tottenham are enjoying a WSL revival**\
+`In what has historically been a lopsided rivalry, Arsenal face a very different Spurs side in Sunday's WSL north London derby`\
+https://nytimes.com/athletic/6797374/2025/11/14/tottenham-arsenal-wsl-martin-ho/
+
 **Mark Hughes on being an introverted football manager and what he learned on Wikipedia about himself**\
 `Mark Hughes talks of being introverted, why he's managing in non-League, and what he didn't know about himself until he read it on Wikipedia`\
 https://nytimes.com/athletic/6804259/2025/11/14/mark-hughes-wikipedia-introverted/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6800969/2025/11/14/chizaram-ezenwata-chelsea-englan
 **How have Liverpool changed their football in Arne Slot's second season?**\
 `Liverpool look like a side without any clear identity. Stability has become a muddled mess, and there are problems across the pitch`\
 https://nytimes.com/athletic/6804124/2025/11/14/liverpool-arne-slot-changes-tactics-analysis/
-
-**The Estevao debate: Are Chelsea benefitting from not starting him too often?**\
-`The speed at which the Brazilian has become a fan favourite at Stamford Bridge means calls for him to start more regularly have only grown`\
-https://nytimes.com/athletic/6804514/2025/11/14/estevao-chelsea-starting-substitute-analysis/
-
-**A.I. Cheating Rattles Top Universities in South Korea**\
-`As many elite colleges struggle to adapt to the technology, the nation’s most prestigious universities said dozens of students used artificial intelligence tools to cheat.`\
-https://nytimes.com/2025/11/14/world/asia/south-korea-ai-cheating-college.html
-
-**The Shutdown Is Over. For Many SNAP Recipients, the Scars Remain.**\
-`Some recipients have seen their benefits return but are worried they could still be taken away. Others wonder whether the funding could be stopped again at some point.`\
-https://nytimes.com/2025/11/14/us/the-shutdown-is-over-for-many-snap-recipients-the-scars-remain.html
-
-**Corrections: Nov. 14, 2025**\
-`Corrections that appeared in print on Friday, Nov. 14, 2025.`\
-https://nytimes.com/2025/11/14/pageoneplus/corrections-nov-14-2025.html
-
-**For Two Homebodies, Marriage is Cozy and Safe**\
-`Danielle Duseau and Casey Lyons like feeling secure, so ten months into dating, inspired by a favorite singer, they decided to lock it down.`\
-https://nytimes.com/2025/11/14/style/danielle-duseau-casey-lyons-wedding.html
 
