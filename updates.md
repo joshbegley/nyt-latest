@@ -1,3 +1,11 @@
+**The 52 Best Gifts for Frequent Travelers **\
+`Text by Samantha Schoech`\
+https://nytimes.com/card/2025/11/14/smarter-living/wirecutter/
+
+**Devils' Jack Hughes out with hand injury after freak accident at team dinner: Source**\
+`The team announced that the 24-year-old is being evaluated and further updates will be provided as they become available.`\
+https://nytimes.com/athletic/6808471/2025/11/14/new-jersey-devils-jack-hughes-injury/
+
 **Devils' Jack Hughes out with 'non-hockey hand injury'**\
 `The team announced that the 24-year-old is being evaluated and further updates will be provided as they become available.`\
 https://nytimes.com/athletic/6808471/2025/11/14/new-jersey-devils-jack-hughes-injury/
