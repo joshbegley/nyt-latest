@@ -1,3 +1,7 @@
+**U.S. Envoy Said to Be Planning to Meet With Senior Hamas Official**\
+`An in-person encounter between Steve Witkoff and Khalil al-Hayya would signal the Trump administration’s interest in keeping a direct line of communication with the group.`\
+https://nytimes.com/2025/11/14/world/middleeast/hamas-us-witkoff.html
+
 **How to Keep Opera Alive? Start Talent Young and Broaden the Stage.**\
 `A youth orchestra program for musicians as young as 8 is part of Paris Opera’s effort to widen access to the art form and secure its future.`\
 https://nytimes.com/2025/11/14/arts/music/paris-opera-academy-youth-outreach.html
