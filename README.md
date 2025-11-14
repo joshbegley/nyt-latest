@@ -19,7 +19,7 @@ https://nytimes.com/2025/11/13/climate/trump-revokes-biden-ban-on-drilling-minin
 https://nytimes.com/2025/11/13/us/politics/republicans-epstein-trump-house.html
 
 **Fast-Growing Fire in Mono County, California, Forces Evacuations**\
-`The Pack fire has grown to 1,000 acres amid high winds, but a coming winter storm might help firefighters control the blaze.`\
+`The Pack fire has grown to 3,400 acres amid high winds, but a coming winter storm might help firefighters control the blaze.`\
 https://nytimes.com/2025/11/13/us/pack-fire-mono-county-california.html
 
 **AL MVP voters break down their choice now that Aaron Judge has prevailed over Cal Raleigh**\
