@@ -1,3 +1,11 @@
+**The Bounce: Trade AD ASAP? It might not be as easy as you think for the Mavericks**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6807346/2025/11/14/anthony-davis-trade-mavericks-oklahoma-city-thunder-nba-the-bounce/
+
+**Trump Turns to Affordability Message Amid Economic Frustration**\
+`The Trump administration is facing backlash from American consumers as higher costs from tariffs blunt wage gains.`\
+https://nytimes.com/2025/11/14/us/politics/trump-affordability-economy.html
+
 **Switzerland Reaches Agreement With U.S. to Cut Tariff to 15%**\
 `The deal would reduce an extraordinarily high tariff rate that had threatened to cripple Swiss exports.`\
 https://nytimes.com/2025/11/14/business/switzerland-us-tariffs-trade-deal.html

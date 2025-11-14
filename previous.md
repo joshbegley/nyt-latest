@@ -1,3 +1,11 @@
+**The Bounce: Trade AD ASAP? It might not be as easy as you think for the Mavericks**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6807346/2025/11/14/anthony-davis-trade-mavericks-oklahoma-city-thunder-nba-the-bounce/
+
+**Trump Turns to Affordability Message Amid Economic Frustration**\
+`The Trump administration is facing backlash from American consumers as higher costs from tariffs blunt wage gains.`\
+https://nytimes.com/2025/11/14/us/politics/trump-affordability-economy.html
+
 **Switzerland Reaches Agreement With U.S. to Cut Tariff to 15%**\
 `The deal would reduce an extraordinarily high tariff rate that had threatened to cripple Swiss exports.`\
 https://nytimes.com/2025/11/14/business/switzerland-us-tariffs-trade-deal.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/14/world/middleeast/west-bank-settler-violence-olive
 **Bengals' tight end coverage, TreVeyon Henderson's trifecta and more fantasy football news**\
 `Andy Behrens discusses the most important fantasy football news of the week heading into Week 11. `\
 https://nytimes.com/athletic/6807115/2025/11/14/fantasy-football-news-week-11-treveyon-henderson/
-
-**How to Deal With Higher Home Heating Bills**\
-`There is still time to take advantage of federal tax credits for energy updates. But federal heating aid for low-income people was delayed by the government shutdown.`\
-https://nytimes.com/2025/11/14/your-money/home-heating-bills.html
-
-**Indigenous People, Long Sidelined at Climate Talks, Take the Stage in Brazil**\
-`This summit is unlike any of its predecessors in at least one significant way: The Indigenous presence is palpable and strong.`\
-https://nytimes.com/2025/11/14/climate/cop30-belem-indigenous-people.html
 
