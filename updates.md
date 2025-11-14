@@ -1,3 +1,7 @@
+**Bad Bunny Tops the Latin Grammys: 8 Key Moments From the Show**\
+`The multicultural awards ceremony hinted at rediscovered roots and ways forward as Karol G, Paloma Morphy and Liniker also earned big wins.`\
+https://nytimes.com/2025/11/14/arts/music/latin-grammys-bad-bunny.html
+
 **Rudkin set for new Leicester role, club to appoint sporting director**\
 `Rudkin has been the club’s director of football since 2016 but has been the target of fan frustrations for the past three years.`\
 https://nytimes.com/athletic/6807341/2025/11/14/jon-rudkin-leicester-senior-reshuffle/
