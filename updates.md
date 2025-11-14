@@ -1,3 +1,5 @@
+
+
 **Walmart C.E.O. Doug McMillon to Step Down**\
 `The chief of the company’s U.S. business, John Furner, will take over on Feb. 1.`\
 https://nytimes.com/2025/11/14/business/walmart-doug-mcmillon-john-furner.html
