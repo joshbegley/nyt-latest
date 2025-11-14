@@ -2,6 +2,10 @@
 `Ruthie Ann Miles, Shuler Hensley and Micaela Diamond lead a dream-team cast in Ethan Lipton’s musical adaptation of Thornton Wilder’s “The Skin of Our Teeth.”`\
 https://nytimes.com/2025/11/14/theater/seat-of-our-pants-review-public-theater.html
 
+**York thriving on Flyers' blue line after disappointing campaign last season**\
+`After a difficult year last season, Cam York has arguably been the Flyers’ top defenseman this season.`\
+https://nytimes.com/athletic/6807912/2025/11/14/cam-york-flyers-defenseman/
+
 **Fulham's Muniz to be sidelined until next year after hamstring surgery**\
 `Muniz was forced off during the 2-0 defeat at Everton on November 8 after being sent on as a second-half substitute.`\
 https://nytimes.com/athletic/6550680/2025/11/14/fulhams-rodrigo-muniz-hamstring-surgery/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/14/travel/trump-biden-delayed-flights-payments.html
 **Medieval-Inspired Weddings Are Back in Style**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/medieval-inspired-weddings
-
-**The Jamie Haller loafers, on-foot.**\
-`Their flexibility is what sets them apart — and they’re soft and wearable from day one. Jennifer Hunter and Jason Toledo/NYT Wirecutter`\
-https://nytimes.com/video/admin/100000010525115/the-jamie-haller-loafers-on-foot.html
 
