@@ -1,3 +1,7 @@
+**The Jamie Haller loafers, on-foot.**\
+`Their flexibility is what sets them apart — and they’re soft and wearable from day one. Jennifer Hunter and Jason Toledo/NYT Wirecutter`\
+https://nytimes.com/video/admin/100000010525115/the-jamie-haller-loafers-on-foot.html
+
 **Dereck Lively II expected to return as slumping Mavericks look for boost**\
 `Lively last played Oct. 26 in Dallas’ home win over the Toronto Raptors, but afterward said he felt discomfort in his right leg.`\
 https://nytimes.com/athletic/6807901/2025/11/14/dereck-lively-ii-mavericks-lineup-return/

@@ -1,3 +1,11 @@
+**White House Scraps Cash Payments for Delayed or Canceled Flights**\
+`A Biden-era rule, now halted, would have forced airlines to pay passengers up to $775 in cash for significant flight disruptions.`\
+https://nytimes.com/2025/11/14/travel/trump-biden-delayed-flights-payments.html
+
+**Medieval-Inspired Weddings Are Back in Style**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/medieval-inspired-weddings
+
 **The Jamie Haller loafers, on-foot.**\
 `Their flexibility is what sets them apart — and they’re soft and wearable from day one. Jennifer Hunter and Jason Toledo/NYT Wirecutter`\
 https://nytimes.com/video/admin/100000010525115/the-jamie-haller-loafers-on-foot.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/11/14/us/politics/uva-james-ryan-trump.html
 **Have C-Sections Become Too Common?**\
 `Readers respond to a front-page article about fetal heart monitoring and C-sections. Also: When Shirley MacLaine was the understudy.`\
 https://nytimes.com/2025/11/14/opinion/c-sections-fetal-heart-monitor.html
-
-**How a Seattle Alt-Weekly Newspaper Became a Progressive Kingmaker**\
-`Endorsements from The Stranger have become a must-have for some politicians, who know to bring snacks to their meetings with the paper’s writers.`\
-https://nytimes.com/2025/11/14/technology/progressive-newspaper-stranger-seattle.html
-
-**Leicester City chairman Khun Top pledges to rebuild connection with club's fans**\
-`Leicester are 12th in the Championship and their win at Norwich was only their second in 10 games`\
-https://nytimes.com/athletic/6807576/2025/11/14/leicester-city-chairman-khun-top-fan-connection/
 

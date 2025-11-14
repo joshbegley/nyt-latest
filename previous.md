@@ -1,3 +1,7 @@
+**The Jamie Haller loafers, on-foot.**\
+`Their flexibility is what sets them apart — and they’re soft and wearable from day one. Jennifer Hunter and Jason Toledo/NYT Wirecutter`\
+https://nytimes.com/video/admin/100000010525115/the-jamie-haller-loafers-on-foot.html
+
 **Dereck Lively II expected to return as slumping Mavericks look for boost**\
 `Lively last played Oct. 26 in Dallas’ home win over the Toronto Raptors, but afterward said he felt discomfort in his right leg.`\
 https://nytimes.com/athletic/6807901/2025/11/14/dereck-lively-ii-mavericks-lineup-return/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/14/technology/progressive-newspaper-stranger-seattle
 **Leicester City chairman Khun Top pledges to rebuild connection with club's fans**\
 `Leicester are 12th in the Championship and their win at Norwich was only their second in 10 games`\
 https://nytimes.com/athletic/6807576/2025/11/14/leicester-city-chairman-khun-top-fan-connection/
-
-**Former Browns quarterback Bernie Kosar provides health update**\
-`Kosar has undergone five procedures in the past week as he battles internal bleeding.`\
-https://nytimes.com/athletic/6807790/2025/11/14/bernie-kosar-liver-failure-update-browns/
 
