@@ -1,3 +1,11 @@
+**Rudkin set for new Leicester role, club to appoint sporting director**\
+`Rudkin has been the club’s director of football since 2016 but has been the target of fan frustrations for the past three years.`\
+https://nytimes.com/athletic/6807341/2025/11/14/jon-rudkin-leicester-senior-reshuffle/
+
+**Russia Pummels Kyiv as It Torments Ukrainian Civilians**\
+`A strike that killed six was the latest in a series of aerial assaults, many of which have targeted the power grid in an effort to deprive Ukrainians of energy as winter looms.`\
+https://nytimes.com/2025/11/14/world/europe/ukraine-kyiv-russia-strike.html
+
 **Russia Pummels Kyiv, Trying to Plunge Ukraine Into Darkness**\
 `A strike that killed six was the latest in a series of aerial assaults on the power grid, an effort to deprive Ukrainians of energy as winter looms.`\
 https://nytimes.com/2025/11/14/world/europe/ukraine-kyiv-russia-strike.html
