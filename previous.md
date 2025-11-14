@@ -1,3 +1,23 @@
+**LaMelo Ball had presidential aspirations. The Timberwolves weren't impressed**\
+`Before the 2020 draft, Ball told Minnesota, which held the top pick, he aspired to be the president when his playing days were done.`\
+https://nytimes.com/athletic/6808493/2025/11/14/lamelo-ball-hornets-president-nba-timberwolves/
+
+**Trump Orders Investigation Into Epstein’s Ties to Democrats**\
+`Also, melting ice is a growing menace in the Himalayas. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/11/14/briefing/trump-investigation-russia-ukraine-gifts.html
+
+**How Epstein Could Divide Republicans**\
+`“There’s not going to be a flood of Republicans fleeing Trump,” argues the Opinion columnist Jamelle Bouie in this episode of “The Opinions.” Instead, he predicts “small calculations here and there” from Republicans who might start to vote against Trump.`\
+https://nytimes.com/video/opinion/100000010524982/how-epstein-could-divide-republicans.html
+
+**Trump’s Worst Enemy? Himself.**\
+`After this week’s release of Jeffrey Epstein’s emails and Trump’s questionable behavior, it seems that the president’s public standing is declining.`\
+https://nytimes.com/video/opinion/100000010524984/trumps-worst-enemy-himself.html
+
+**ICE Scouted Site to Hold Immigrant Detainees in New York City**\
+`Federal officials explored the possibly of using a Coast Guard facility on Staten Island. The effort appears to be part of a plan to expand President Trump’s immigration crackdown.`\
+https://nytimes.com/2025/11/14/nyregion/ice-detention-facility-staten-island.html
+
 **San Francisco Mayor Has First Major Error With Embarrassing Appointment**\
 `Mayor Daniel Lurie has enjoyed strong approval ratings this year, but residents were dismayed after he appointed a city supervisor who quickly resigned after revelations emerged.`\
 https://nytimes.com/2025/11/14/us/san-francisco-mayor-lurie-alcaraz-resign.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/11/14/theater/elizabeth-franz-dead.html
 **Justin Thomas to miss start of PGA Tour season after back surgery**\
 `Thomas, 32, won the RBC Heritage in April, his first win since the 2022 PGA Championship.`\
 https://nytimes.com/athletic/6808628/2025/11/14/justin-thomas-back-surgery-pga-tour-return/
-
-**Broncos RB J.K. Dobbins out vs. Chiefs with foot injury**\
-`Whether Denver's leading rusher goes to IR remains to be seen, but rookie RJ Harvey will be the next man up for now.`\
-https://nytimes.com/athletic/6808627/2025/11/14/broncos-jk-dobbins-out-foot-injury-chiefs/
-
-**Could the Antichrist Be a Machine?**\
-`Technology is killing us physically and spiritually, the author Paul Kingsnorth argues on “Interesting Times.”`\
-https://nytimes.com/video/opinion/100000010519808/could-the-antichrist-be-a-machine.html
-
-**Frank Chuman, Pioneering Lawyer for Japanese American Rights, Is Dead at 105**\
-`He was sent to the Manzanar internment camp during World War II, an experience that inspired a long career in civil rights activism.`\
-https://nytimes.com/2025/11/14/us/frank-chuman-dead.html
-
-**'I think it's bad.' NFL, NBA, MLB and NHL players have feelings on sports betting**\
-`Players across sports leagues dish on threatening messages from fans, prop-bet worries and league education`\
-https://nytimes.com/athletic/6807760/2025/11/14/sports-betting-players-nfl-nba-mlb-nhl/
-
-**Indiana Senate Says It Won’t Vote on Redistricting That Trump Sought**\
-`The pushback from Senate Republicans follows the governor’s call for a special session to consider a new congressional map that President Trump wanted.`\
-https://nytimes.com/2025/11/14/us/indiana-redistricting-trump-republicans.html
 
