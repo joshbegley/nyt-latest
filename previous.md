@@ -1,3 +1,7 @@
+**Will Humanoid Robots Soon Be Common in Homes?**\
+`Kevin Roose and Casey Newton, the hosts of “Hard Fork” at The New York Times, ask Bernt Bornich, chief executive of 1X, how soon we can expect humanoid robots to have a presence in American homes.`\
+https://nytimes.com/video/podcasts/100000010524633/will-humanoid-robots-soon-be-common-in-homes.html
+
 **The Bounce: Trade AD ASAP? It might not be as easy as you think for the Mavericks**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6807346/2025/11/14/anthony-davis-trade-mavericks-oklahoma-city-thunder-nba-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/14/world/europe/ukraine-kyiv-russia-strike.html
 **A Bloody Month in the West Bank Olive Harvest Leads to the Death of a Boy**\
 `Palestinians see the violence, and its tolerance by right-wing Israeli officialdom, as part of a broader campaign to harass them and make life so unbearable that they will abandon their villages.`\
 https://nytimes.com/2025/11/14/world/middleeast/west-bank-settler-violence-olive-harvest.html
-
-**Bengals' tight end coverage, TreVeyon Henderson's trifecta and more fantasy football news**\
-`Andy Behrens discusses the most important fantasy football news of the week heading into Week 11. `\
-https://nytimes.com/athletic/6807115/2025/11/14/fantasy-football-news-week-11-treveyon-henderson/
 

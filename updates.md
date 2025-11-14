@@ -1,3 +1,7 @@
+**Will Humanoid Robots Soon Be Common in Homes?**\
+`Kevin Roose and Casey Newton, the hosts of “Hard Fork” at The New York Times, ask Bernt Bornich, chief executive of 1X, how soon we can expect humanoid robots to have a presence in American homes.`\
+https://nytimes.com/video/podcasts/100000010524633/will-humanoid-robots-soon-be-common-in-homes.html
+
 **The Bounce: Trade AD ASAP? It might not be as easy as you think for the Mavericks**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6807346/2025/11/14/anthony-davis-trade-mavericks-oklahoma-city-thunder-nba-the-bounce/
