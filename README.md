@@ -1,3 +1,7 @@
+**Sarah Jessica Parker’s Year of Judging the Booker Prize**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/sarah-jessica-parker-booker-prize
+
 **The Heaviest Rain Is Yet to Come for Southern Californians Facing a Very Wet Storm**\
 `An unusually powerful storm has prompted some evacuation warnings before heavy rain on Saturday.`\
 https://nytimes.com/2025/11/14/weather/california-rain-flood-storm-los-angeles-forecast.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/14/us/dog-shoots-owner-pennsylvania.html
 **College football projected scores: Model predicts every Week 12 game**\
 `Austin Mock's college football model has projected point spreads and totals for every Week 12 game.`\
 https://nytimes.com/athletic/6806530/2025/11/14/college-football-week-12-projected-scores-model/
-
-**gws-wine-hip-hop-france**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/wine-hip-hop-france
 
