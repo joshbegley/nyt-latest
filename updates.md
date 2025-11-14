@@ -1,3 +1,11 @@
+**Atrocities Against Civilians in Sudan Require World’s Attention, U.N. Says**\
+`The United Nations’ top human rights body ordered an inquiry into mass killings and sexual violence during the country’s worsening civil war.`\
+https://nytimes.com/2025/11/14/world/africa/sudan-atrocities-civilians-un.html
+
+**Former U.Va. President Details Justice Department Pressure That Led to Ouster**\
+`In an extraordinary 12-page letter, James E. Ryan described the pressure campaign leading to his resignation as akin to a “hostage situation.”`\
+https://nytimes.com/2025/11/14/us/politics/uva-james-ryan-trump.html
+
 **Have C-Sections Become Too Common?**\
 `Readers respond to a front-page article about fetal heart monitoring and C-sections. Also: When Shirley MacLaine was the understudy.`\
 https://nytimes.com/2025/11/14/opinion/c-sections-fetal-heart-monitor.html
