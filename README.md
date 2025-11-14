@@ -1,3 +1,7 @@
+**The Heaviest Rain Is Yet to Come for Southern Californians Facing a Very Wet Storm**\
+`An unusually powerful storm has prompted some evacuation warnings before heavy rain on Saturday.`\
+https://nytimes.com/2025/11/14/weather/california-rain-flood-storm-los-angeles-forecast.html
+
 **How Félix Auger-Aliassime rediscovered his tennis mojo and reached the ATP Tour Finals last four**\
 `The Canadian reflected on a “tough couple of years” after reaching this year's U.S. Open semifinals. Now he is climbing back.`\
 https://nytimes.com/athletic/6808517/2025/11/14/tennis-felix-auger-aliassime-atp-tour-finals/
@@ -10,7 +14,7 @@ https://nytimes.com/newsgraphics/card-story/gay-sheep-rainbow-wool
 `Text by Samantha Schoech`\
 https://nytimes.com/card/2025/11/14/smarter-living/wirecutter/
 
-**Devils' Jack Hughes out with hand injury after freak accident at team dinner: Source**\
+**Devils' Jack Hughes out after injuring hand at team dinner: Source**\
 `The team announced that the 24-year-old is being evaluated and further updates will be provided as they become available.`\
 https://nytimes.com/athletic/6808471/2025/11/14/new-jersey-devils-jack-hughes-injury/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6806530/2025/11/14/college-football-week-12-project
 **gws-wine-hip-hop-france**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/wine-hip-hop-france
-
-**Jonathan Kuminga to miss Friday's game vs. Spurs with knee tendonitis**\
-`Kuminga has been dealing with the injury the past few days and tried to play through it in Wednesday's game but didn't return.`\
-https://nytimes.com/athletic/6808205/2025/11/14/warriors-jonathan-kuminga-knee-injury/
 
