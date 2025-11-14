@@ -1,40 +1,36 @@
-**Anthropic Says Chinese Hackers Used Its A.I. in Online Attack**\
-`The company claimed that A.I. did most of the hacking with limited human input and said it was a rapid escalation of the technology’s use in cybercrime.`\
-https://nytimes.com/2025/11/14/business/chinese-hackers-artificial-intelligence.html
+**The Machine Wants to Kill Us**\
+`Paul Kingsnorth on technology’s war against human nature.`\
+https://nytimes.com/video/opinion/100000010519795/the-machine-wants-to-kill-us.html
 
-**‘A Very Jonas Christmas Movie’ Review: O Come, All Ye Faithful**\
-`In their fan-oriented and self-mocking holiday comedy, the millennial boy band delivers pure festive sugar rush.`\
-https://nytimes.com/2025/11/14/movies/a-very-jonas-christmas-movie-review.html
+**Today’s Top Directors Have Some Issues With Gen Z**\
+`“Eddington,” “One Battle After Another” and “After the Hunt” focus on young characters navigating the current political climate. The depictions aren’t always flattering.`\
+https://nytimes.com/2025/11/14/movies/gen-z-one-battle-after-the-hunt.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/11/14/crosswords/spelling-bee-forum.html
+**Chris Christie: Keep Sports Betting Legal**\
+`Chris Christie argues that regulated betting can strengthen the integrity of sports.`\
+https://nytimes.com/2025/11/14/opinion/chris-christie-sports-gambling-mlb-nba.html
 
-**Artificially Generated Slop**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2025/11/14/learning/artificially-generated-slop.html
+**Robots, Raiders and Riches in a Gripping Prisoner’s Dilemma**\
+`The extraction shooter ARC Raiders has become an unlikely word-of-mouth hit because of its high-stakes gameplay.`\
+https://nytimes.com/2025/11/14/arts/arc-raiders-review.html
 
-**With 400 career goals by the age of 26, what if Kylian Mbappe is only just getting started?**\
-`The Real Madrid striker went seven France matches without finding the net last year, and sat out two squads, but his appetite is renewed`\
-https://nytimes.com/athletic/6806629/2025/11/14/kylian-mbappe-france-real-madrid-400-goals/
+**$1.3 Million Homes in Spain’s Basque Country**\
+`Buyers can find a classic apartment in Vitoria-Gasteiz, a San Sebastián unit in a belle epoque building, and a contemporary house on the city outskirts.`\
+https://nytimes.com/2025/11/14/realestate/spain-basque-country-san-sebastian.html
 
-**Word of the Day: exalt**\
-`This word has appeared in 14 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/11/14/learning/word-of-the-day-exalt.html
+**Kenya’s Key Export Used to Be Coffee. Now It’s Cheap Labor.**\
+`There’s big money in sending poor workers abroad. Here’s how the economics work.`\
+https://nytimes.com/2025/11/14/world/africa/kenya-exports-labor-saudi-arabia-economy.html
 
-**Late Night Sifts Through 20,000 Emails of ‘Trump/Epstein Lore’**\
-`“The Daily Show” host Josh Johnson said the G.O.P.’s document release was no help to Trump: “They basically saw his grease fire and said, ‘Let us add some water.’”`\
-https://nytimes.com/2025/11/14/arts/television/late-night-trump-epstein-emails.html
+**Why a Bill on the Governor’s Desk Is a Tough Call**\
+`The measure would require the M.T.A. to keep using two-person subway crews as other systems around the world are cutting back on train staffing.`\
+https://nytimes.com/2025/11/14/nyregion/why-a-bill-on-the-governors-desk-is-a-tough-call.html
 
-**Swalwell Denies Allegations of Fraud and Says Trump is Targeting Him**\
-`Representative Eric Swalwell, a Democrat, said he would not back down from his criticism of President Trump, and denied wrongdoing.`\
-https://nytimes.com/2025/11/14/us/politics/trump-mortgage-fraud-eric-swalwell.html
+**Kennedy Walks a Tightrope on Trump Deal for Obesity Drugs**\
+`The weight loss medicines are proving to be a test case for Robert F. Kennedy Jr., the health secretary, in straddling divisions between his supporters and the president.`\
+https://nytimes.com/2025/11/14/health/rfkjr-obesity-drugs.html
 
-**Has Jude Bellingham edged ahead of Morgan Rogers in race to be England's No 10?**\
-`The Aston Villa player did little wrong against Serbia, but the returning Real Madrid forward impressed in a cameo performance off the bench`\
-https://nytimes.com/athletic/6800736/2025/11/14/england-bellingham-rogers-no10-tuchel/
-
-**Drag racing’s John Force, 16-time champion, retires after historic career**\
-`At 76 years old, Force hasn’t raced in 17 months after surviving an engine explosion at the NHRA Virginia Nationals in June 2024.`\
-https://nytimes.com/athletic/6806595/2025/11/14/john-force-retirement-nhra-drag-racing/
+**What's wrong with the Falcons offense? We asked an expert for the answers**\
+`The Falcons are 27th in the league in scoring and 29th in third-down conversions. Why? We ask Derrik Klassen for some answers.`\
+https://nytimes.com/athletic/6804373/2025/11/14/falcons-offense-michael-penix-bijan-robinson/
 
