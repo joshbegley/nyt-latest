@@ -1,3 +1,7 @@
+**Memo Blessing Boat Strikes Is Said to Rely on Trump’s Claims About Cartels**\
+`Accounts of a secret Justice Department memo offer a window into how administration lawyers approved the president’s desired course of action.`\
+https://nytimes.com/2025/11/13/us/politics/boat-strikes-doj-memo-trump.html
+
 **What the U.S. Absence at COP30 Tells Us**\
 `World leaders are meeting at the COP30 this week to discuss climate. The U.S. was not part of this meeting. Somini Sengupta, our international climate reporter, discusses what this absence means.`\
 https://nytimes.com/video/world/100000010519999/what-the-us-absence-at-cop30-tells-us.html
@@ -21,8 +25,4 @@ https://nytimes.com/2025/11/13/us/doj-lawsuit-california-house-redistricting.htm
 **Mamdani and Hochul Discuss Their Challenges: Trump and Child Care**\
 `Zohran Mamdani, the mayor-elect of New York City, and Gov. Kathy Hochul met to talk about how to prepare for threats from President Trump.`\
 https://nytimes.com/2025/11/13/nyregion/mamdani-hochul-child-care-trump.html
-
-**Mystery Man Known as ‘John Doe’ Gets Up to 9 Years for Stealing 3 Homes**\
-`The man, whose identity is still unknown, pleaded guilty to deed fraud in Queens. “I just want to get it over with,” he told the judge as one of his victims wept.`\
-https://nytimes.com/2025/11/13/nyregion/john-doe-deed-fraud-sentence.html
 
