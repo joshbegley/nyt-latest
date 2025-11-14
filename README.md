@@ -1,3 +1,7 @@
+**Ex-Chelsea midfielder Oscar diagnosed with fainting condition, remains hospitalised**\
+`The 34-year-old, who currently plays for Sao Paulo, was admitted to hospital on Tuesday and has been diagnosed with vasovagal syncope.`\
+https://nytimes.com/athletic/6806941/2025/11/14/oscar-health-issue-brazil-chelsea/
+
 **The Effects of the Boat Strikes**\
 `We go to meet one family in Colombia.`\
 https://nytimes.com/2025/11/14/briefing/the-effects-of-the-boat-strikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6805868/2025/11/14/framber-valdez-blue-jays-startin
 **Alex Newhook’s injury is major blow to Canadiens, but could also be an opportunity**\
 `In Newhook's absence, the Canadiens could experiment with a philosophical change.`\
 https://nytimes.com/athletic/6806566/2025/11/14/alex-newhook-injury-canadiens/
-
-**'We want him to be a little bit more selfish': Checking in on Frondell's SHL development**\
-`Frondell's SHL coach Robert Kimby discusses the young forward's progress and the team's approach to his development.`\
-https://nytimes.com/athletic/6805469/2025/11/14/blackhawks-anton-frondell-development-djurgarden/
 

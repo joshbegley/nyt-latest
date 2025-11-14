@@ -1,3 +1,15 @@
+**The Effects of the Boat Strikes**\
+`We go to meet one family in Colombia.`\
+https://nytimes.com/2025/11/14/briefing/the-effects-of-the-boat-strikes.html
+
+**Mbappe, Camavinga out of France squad through injury**\
+`Real Madrid expect both players to be available for their La Liga fixture against Elche following the international break.`\
+https://nytimes.com/athletic/6806947/2025/11/14/kylian-mbappe-eduardo-camavinga-injury-update/
+
+**NFL Week 11 schedule rankings: Top 5 Sunday games with the best home crowds**\
+`With air thinning and tension building, we sorted this Sunday's games by high-energy home environments that will pop off the TV screen.`\
+https://nytimes.com/athletic/6788625/2025/11/14/nfl-week-11-lions-eagles-seahawks-rams-watch/
+
 **Caleb Williams late game vs. early game? Luther Burden's reps? Bears mailbag, Week 11 picks**\
 `Can Williams use his late-game magic to improve the offense early in games? That begins our Bears mailbag, plus picks for Sunday.`\
 https://nytimes.com/athletic/6805510/2025/11/14/bears-mailbag-caleb-williams-luther-burden/
