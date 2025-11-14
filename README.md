@@ -1,5 +1,9 @@
-**Russia Pummels Kyiv, Trying to Plunge Ukraine Into Darkness**\
-`A strike that killed six was the latest in a series of aerial assaults on the power grid, an effort to deprive Ukrainians of energy as winter looms.`\
+**Rudkin set for new Leicester role, club to appoint sporting director**\
+`Rudkin has been the club’s director of football since 2016 but has been the target of fan frustrations for the past three years.`\
+https://nytimes.com/athletic/6807341/2025/11/14/jon-rudkin-leicester-senior-reshuffle/
+
+**Russia Pummels Kyiv as It Torments Ukrainian Civilians**\
+`A strike that killed six was the latest in a series of aerial assaults, many of which have targeted the power grid in an effort to deprive Ukrainians of energy as winter looms.`\
 https://nytimes.com/2025/11/14/world/europe/ukraine-kyiv-russia-strike.html
 
 **A Bloody Month in the West Bank Olive Harvest Leads to the Death of a Boy**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6805040/2025/11/14/precious-metal-gems-michael-jord
 **Photo Essay Inspiration: How to Take Engaging Pictures of Your Hometown**\
 `If you’re thinking about entering our Local Lens teen photo essay contest, here’s what we’re looking for, and a few simple steps for how to do it yourself.`\
 https://nytimes.com/2025/11/14/learning/photo-essay-contest-inspiration.html
-
-**Local Lens: A Photo Essay Contest for Exploring the Place Where You Live**\
-`Take six to eight photos that spotlight something interesting about your hometown — a group of people, an event, a place or a visual theme. Enter from Dec. 3, 2025, to Jan. 14, 2026.`\
-https://nytimes.com/2025/11/14/learning/local-lens-a-photo-essay-contest-for-exploring-the-place-where-you-live.html
 

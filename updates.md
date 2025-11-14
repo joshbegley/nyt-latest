@@ -1,3 +1,7 @@
+**Russia Pummels Kyiv, Trying to Plunge Ukraine Into Darkness**\
+`A strike that killed six was the latest in a series of aerial assaults on the power grid, an effort to deprive Ukrainians of energy as winter looms.`\
+https://nytimes.com/2025/11/14/world/europe/ukraine-kyiv-russia-strike.html
+
 **A Bloody Month in the West Bank Olive Harvest Leads to the Death of a Boy**\
 `Palestinians see the violence, and its tolerance by right-wing Israeli officialdom, as part of a broader campaign to harass them and make life so unbearable that they will abandon their villages.`\
 https://nytimes.com/2025/11/14/world/middleeast/west-bank-settler-violence-olive-harvest.html
