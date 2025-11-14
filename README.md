@@ -1,3 +1,11 @@
+**How Félix Auger-Aliassime rediscovered his tennis mojo and reached the ATP Tour Finals last four**\
+`The Canadian reflected on a “tough couple of years” after reaching this year's U.S. Open semifinals. Now he is climbing back.`\
+https://nytimes.com/athletic/6808517/2025/11/14/tennis-felix-auger-aliassime-atp-tour-finals/
+
+**gws-gay-sheep-rainbow-wool**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/gay-sheep-rainbow-wool
+
 **The 52 Best Gifts for Frequent Travelers **\
 `Text by Samantha Schoech`\
 https://nytimes.com/card/2025/11/14/smarter-living/wirecutter/
@@ -29,12 +37,4 @@ https://nytimes.com/newsgraphics/card-story/wine-hip-hop-france
 **Jonathan Kuminga to miss Friday's game vs. Spurs with knee tendonitis**\
 `Kuminga has been dealing with the injury the past few days and tried to play through it in Wednesday's game but didn't return.`\
 https://nytimes.com/athletic/6808205/2025/11/14/warriors-jonathan-kuminga-knee-injury/
-
-**U.S. knocked out of U-17 World Cup by Morocco on penalties**\
-`The U.S. went down 4-3 on spot-kicks in the last-32, with Cooper Sanchez and Maxi Carrizo missing from the spot.`\
-https://nytimes.com/athletic/6808179/2025/11/14/us-under-17-world-cup-penalties-morroco/
-
-**Russia Counters U.S. Plan for Gaza With Its Own Proposal at U.N. Security Council**\
-`The Trump administration wants the Security Council to adopt a resolution that has the 20-point U.S. plan annexed, effectively making it international law.`\
-https://nytimes.com/2025/11/14/world/middleeast/russia-us-gaza-un-security-council.html
 
