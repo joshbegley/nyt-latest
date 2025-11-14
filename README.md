@@ -1,3 +1,7 @@
+**Liner Notes**\
+`Malaika Handa’s grid is packed with lively entries.`\
+https://nytimes.com/2025/11/13/crosswords/daily-puzzle-2025-11-14.html
+
 **N.I.H. Worker Who Criticized Trump Health Policies Says She Is on Administrative Leave**\
 `The employee, Dr. Jenna Norton, was a key organizer of “The Bethesda Declaration,” a scathing public letter issued in June to Dr. Jay Bhattacharya, the N.I.H. director.`\
 https://nytimes.com/2025/11/13/us/politics/nih-trump-jenna-norton.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/13/us/humpback-whale-dead-bc-canada.html
 **Football Coach Who Was Focus of Netflix’s ‘Last Chance U’ Is Shot**\
 `The coaching fixture John Beam was gravely wounded in a shooting at Laney College in Oakland, Calif., a commuter school where he is athletic director, according to a city councilman.`\
 https://nytimes.com/2025/11/13/us/john-beam-laney-college-shooting-last-chance.html
-
-**Stephen Curry, Under Armour end 12-year partnership**\
-`As part of the separation, Curry will maintain sole ownership of the Curry Brand and is free to find another retail partner.`\
-https://nytimes.com/athletic/6805777/2025/11/13/steph-curry-under-armour-deal-ending-shoes/
 
