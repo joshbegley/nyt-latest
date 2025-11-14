@@ -1,3 +1,7 @@
+**With 400 career goals by the age of 26, what if Kylian Mbappe is only just getting started?**\
+`The Real Madrid striker went seven France matches without finding the net last year, and sat out two squads, but his appetite is renewed`\
+https://nytimes.com/athletic/6806629/2025/11/14/kylian-mbappe-france-real-madrid-400-goals/
+
 **Word of the Day: exalt**\
 `This word has appeared in 14 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/11/14/learning/word-of-the-day-exalt.html

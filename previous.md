@@ -1,3 +1,7 @@
+**With 400 career goals by the age of 26, what if Kylian Mbappe is only just getting started?**\
+`The Real Madrid striker went seven France matches without finding the net last year, and sat out two squads, but his appetite is renewed`\
+https://nytimes.com/athletic/6806629/2025/11/14/kylian-mbappe-france-real-madrid-400-goals/
+
 **Word of the Day: exalt**\
 `This word has appeared in 14 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/11/14/learning/word-of-the-day-exalt.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/14/health/policy/sharon-camp-dead.html
 **What can Wolves fans expect from a Rob Edwards team?**\
 `The new head coach preaches aggression and has employed three centre-halves in previous stints at Forest Green, Luton and Middlesbrough`\
 https://nytimes.com/athletic/6797801/2025/11/14/wolves-rob-edwards-style-tactics-analysis/
-
-**With a World Cup next year, Lewis-Skelly may have to weigh patience against international ambition**\
-`The full-back has not been called up by England owing to his lack of playing time — but he is determined to change that`\
-https://nytimes.com/athletic/6803744/2025/11/14/with-a-world-cup-next-year-lewis-skelly-may-have-to-weigh-patience-against-international-ambition/
 
