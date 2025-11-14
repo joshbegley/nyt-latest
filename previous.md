@@ -1,3 +1,11 @@
+**Ex-world champion Parker tested positive for cocaine on day of Wardley fight**\
+`Sources with knowledge of the situation indicate that Parker tested positive for cocaine in the build-up to his fight against Wardley.`\
+https://nytimes.com/athletic/6807008/2025/11/14/joseph-parker-boxing-ban/
+
+**Georgia Official, a Veteran Prosecutor, Appoints Self to Oversee Trump Case**\
+`The official, Pete Skandalakis, had been tasked by law with finding a new prosecutor for the election interference case after Fani T. Willis was removed from it.`\
+https://nytimes.com/2025/11/14/us/trump-georgia-election-case-fani-willis.html
+
 **Will Humanoid Robots Soon Be Common in Homes?**\
 `Kevin Roose and Casey Newton, the hosts of “Hard Fork” at The New York Times, ask Bernt Bornich, chief executive of 1X, how soon we can expect humanoid robots to have a presence in American homes.`\
 https://nytimes.com/video/podcasts/100000010524633/will-humanoid-robots-soon-be-common-in-homes.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/14/arts/music/latin-grammys-bad-bunny.html
 **Rudkin set for new Leicester role, club to appoint sporting director**\
 `Rudkin has been the club’s director of football since 2016 but has been the target of fan frustrations for the past three years.`\
 https://nytimes.com/athletic/6807341/2025/11/14/jon-rudkin-leicester-senior-reshuffle/
-
-**Russia Pummels Kyiv as It Torments Ukrainian Civilians**\
-`A strike that killed six was the latest in a series of aerial assaults, many of which have targeted the power grid in an effort to deprive Ukrainians of energy as winter looms.`\
-https://nytimes.com/2025/11/14/world/europe/ukraine-kyiv-russia-strike.html
-
-**A Bloody Month in the West Bank Olive Harvest Leads to the Death of a Boy**\
-`Palestinians see the violence, and its tolerance by right-wing Israeli officialdom, as part of a broader campaign to harass them and make life so unbearable that they will abandon their villages.`\
-https://nytimes.com/2025/11/14/world/middleeast/west-bank-settler-violence-olive-harvest.html
 
