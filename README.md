@@ -1,3 +1,11 @@
+**Chelsea goalkeeper Hampton out for 'a few weeks' with muscular injury**\
+`Chelsea head coach Sonia Bompastor said she was unsure if Hampton, 24, would be available to return before the end of 2025.`\
+https://nytimes.com/athletic/6807662/2025/11/14/hannah-hampton-injury-update-chelsea/
+
+**These Spiced Cookies Are an Autumnal Twist on Malawian Flavors**\
+`Mbatata, a creamy variety of sweet potato, provides a comforting base for these perfectly dunkable treats.`\
+https://nytimes.com/2025/11/14/dining/malawian-spiced-cookies.html
+
 **She Took JPMorgan for $175 Million. That Doesn’t Include Her Restaurant Bills.**\
 `When prosecutors accused Charlie Javice of fraud, JPMorgan was forced to pay for her defense. The bank is not happy about her “shocking” spending.`\
 https://nytimes.com/2025/11/14/business/charlie-javice-jpmorgan-legal-bills.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/14/arts/design/paris-photo.html
 **How to Watch the Leonids Meteor Shower Reach Its Peak**\
 `The moon is far from full this weekend, which could mean good fireball viewing for night sky watchers.`\
 https://nytimes.com/2025/11/14/science/meteor-shower-2025-time.html
-
-**Canucks thoughts: Kämpf interest, Demko's injury, a positive trend**\
-`Let's get into several of the issues surrounding the Canucks at this fork in the road of the season.`\
-https://nytimes.com/athletic/6806588/2025/11/14/canucks-david-kampf-thatcher-demko-stats/
-
-**Olivia Nuzzi Did It All for Love**\
-`The former political journalist has written a combustive portrait of America, President Trump and the scandal with Robert F. Kennedy Jr. that upended her career.`\
-https://nytimes.com/2025/11/14/style/olivia-nuzzi-rfk-book-american-canto.html
 
