@@ -1,3 +1,7 @@
+**Klay Thompson responds to former NBA players’ remarks about Megan Thee Stallion**\
+`Amid a reduced role, the Mavericks sharpshooter took aim at Patrick Beverley and Jason Williams for comments about his rap star girlfriend.`\
+https://nytimes.com/athletic/6807827/2025/11/14/klay-thompson-responds-to-former-nba-players-remarks-about-megan-thee-stallion/
+
 **Want to Buy a Work of Art at Auction? Here’s What to Know.**\
 `A step-by-step guide to navigating this oft-misunderstood part of the market, with tips on getting what you want without experiencing buyer’s remorse.`\
 https://nytimes.com/article/art-auction-house-guide.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/14/us/boston-university-republican-student-ice-carwa
 **‘The Seat of Our Pants’ Review: Songs for the World’s End**\
 `Ruthie Ann Miles, Shuler Hensley and Micaela Diamond lead a dream-team cast in Ethan Lipton’s musical adaptation of Thornton Wilder’s “The Skin of Our Teeth.”`\
 https://nytimes.com/2025/11/14/theater/seat-of-our-pants-review-public-theater.html
-
-**York thriving on Flyers' blue line after disappointing campaign last season**\
-`After a difficult year last season, Cam York has arguably been the Flyers’ top defenseman this season.`\
-https://nytimes.com/athletic/6807912/2025/11/14/cam-york-flyers-defenseman/
 
