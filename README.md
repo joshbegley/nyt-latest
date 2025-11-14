@@ -1,3 +1,7 @@
+**Modi’s Coalition Leads Indian Election Scrutinized Over Scrubbed Voter Rolls**\
+`Early results suggested a sweep for the ruling coalition in a state where the opposition claimed foul play over an exercise that deleted millions of voters.`\
+https://nytimes.com/2025/11/14/world/asia/india-bihar-election-modi.html
+
 **Everyone expects labor issues — but so far, at least, MLB free agency is moving forward**\
 `"It’ll be something people think about, because you have to,” said Cubs GM Jed Hoyer. Many execs said they were unsure what was to come. `\
 https://nytimes.com/athletic/6806523/2025/11/14/mlb-labor-issues-contract-free-agent-market/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6802339/2025/11/14/padel-us-growth-investment-tenni
 **A Dead Glacier Is a Loss. A Dying One Is a Threat.**\
 `Melting ice from the Himalayas is creating thousands of unstable lakes, a growing menace to towns and cities below.`\
 https://nytimes.com/interactive/2025/11/14/climate/glacier-melt-himalayas.html
-
-**Conservative Media Picks an Epstein Story Line and Sticks to It**\
-`Right-wing outlets have focused on a single redacted name in the 23,000 pages of correspondence related to Jeffrey Epstein that were released on Wednesday.`\
-https://nytimes.com/2025/11/14/business/media/epstein-trump-emails-conservative-media.html
 
