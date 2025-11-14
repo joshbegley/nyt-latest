@@ -1,3 +1,11 @@
+**Rapist Believed to Be One of Britain’s Worst Sex Offenders Gets Life Sentence**\
+`Xu Chao admitted to multiple attacks against female Chinese students over a three-year period, confessing to drugging, assaulting and filming his victims.`\
+https://nytimes.com/2025/11/14/world/europe/uk-xu-chao-rape-sentence.html
+
+**Former ‘Last Chance U’ coach John Beam shot on Oakland college campus**\
+`Oakland Mayor Barbara Lee called the situation “devastating,” noting it was the second shooting on an Oakland campus in a week.`\
+https://nytimes.com/athletic/6807218/2025/11/14/john-beam-oakland-shooting-last-chance-u/
+
 **What’s a Digital Passport and How Does It Work?**\
 `Apple joined Google this week in allowing travelers to add their passports to their cellphone “wallets.” As the holiday travel season nears, here’s what you need to know.`\
 https://nytimes.com/2025/11/14/travel/digital-identification-travel.html
