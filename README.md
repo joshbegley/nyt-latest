@@ -1,3 +1,7 @@
+**Bad Bunny Tops the Latin Grammys: 8 Key Moments From the Show**\
+`The multicultural awards ceremony hinted at rediscovered roots and ways forward as Karol G, Paloma Morphy and Liniker also earned big wins.`\
+https://nytimes.com/2025/11/14/arts/music/latin-grammys-bad-bunny.html
+
 **Rudkin set for new Leicester role, club to appoint sporting director**\
 `Rudkin has been the club’s director of football since 2016 but has been the target of fan frustrations for the past three years.`\
 https://nytimes.com/athletic/6807341/2025/11/14/jon-rudkin-leicester-senior-reshuffle/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6807041/2025/11/14/timberwolves-chris-finch-jj-redi
 **Precious Metal Gems' lineage of grail cards from Michael Jordan to Batman**\
 `Precious Metal Gems have been some of the most influential, sought-after, and valuable cards of the last 30 years. `\
 https://nytimes.com/athletic/6805040/2025/11/14/precious-metal-gems-michael-jordan-batman/
-
-**Photo Essay Inspiration: How to Take Engaging Pictures of Your Hometown**\
-`If you’re thinking about entering our Local Lens teen photo essay contest, here’s what we’re looking for, and a few simple steps for how to do it yourself.`\
-https://nytimes.com/2025/11/14/learning/photo-essay-contest-inspiration.html
 
