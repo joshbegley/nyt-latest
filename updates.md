@@ -1,3 +1,27 @@
+**San Francisco Mayor Has First Major Error With Embarrassing Appointment**\
+`Mayor Daniel Lurie has enjoyed strong approval ratings this year, but residents were dismayed after he appointed a city supervisor who quickly resigned after revelations emerged.`\
+https://nytimes.com/2025/11/14/us/san-francisco-mayor-lurie-alcaraz-resign.html
+
+**Trump Administration Lifts Some Food Tariffs in Effort to Ease Prices**\
+`It is walking back levies on imports including beef and coffee in what critics say is an admission that tariffs raised prices in the first place.`\
+https://nytimes.com/2025/11/14/business/economy/trump-food-tariffs-inflation.html
+
+**Astros have interest in Cardinals' Brendan Donovan: How would he fit in a crowded infield?**\
+`Donovan would be an obvious fit for the Astros' lineup, but would create a logjam. Could Christian Walker or Isaac Paredes be on the move?`\
+https://nytimes.com/athletic/6808192/2025/11/14/astros-brendan-donovan-trade-interest-christian-walker-isaac-paredes/
+
+**Elizabeth Franz, Versatile Tony-Winning Actress, Is Dead at 84**\
+`She won the award for her performance as Linda Loman in a 1999 Broadway revival of “Death of a Salesman” and played the matriarch Kate Jerome in two Neil Simon comedies.`\
+https://nytimes.com/2025/11/14/theater/elizabeth-franz-dead.html
+
+**Justin Thomas to miss start of PGA Tour season after back surgery**\
+`Thomas, 32, won the RBC Heritage in April, his first win since the 2022 PGA Championship.`\
+https://nytimes.com/athletic/6808628/2025/11/14/justin-thomas-back-surgery-pga-tour-return/
+
+**Broncos RB J.K. Dobbins out vs. Chiefs with foot injury**\
+`Whether Denver's leading rusher goes to IR remains to be seen, but rookie RJ Harvey will be the next man up for now.`\
+https://nytimes.com/athletic/6808627/2025/11/14/broncos-jk-dobbins-out-foot-injury-chiefs/
+
 **Could the Antichrist Be a Machine?**\
 `Technology is killing us physically and spiritually, the author Paul Kingsnorth argues on “Interesting Times.”`\
 https://nytimes.com/video/opinion/100000010519808/could-the-antichrist-be-a-machine.html
