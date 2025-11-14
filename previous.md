@@ -1,3 +1,15 @@
+**How to Keep Opera Alive? Start Talent Young and Broaden the Stage.**\
+`A youth orchestra program for musicians as young as 8 is part of Paris Opera’s effort to widen access to the art form and secure its future.`\
+https://nytimes.com/2025/11/14/arts/music/paris-opera-academy-youth-outreach.html
+
+**When These Dancers Direct Opera, Expect Movement That Leaps From Score to Stage**\
+`The choreographers Bobbi Jene Smith and Or Schraiber will put their own spin on “Satyagraha” by Philip Glass for its Paris Opera premiere.`\
+https://nytimes.com/2025/11/14/arts/music/satyagraha-bobbi-jene-smith-or-schraiber.html
+
+**With a New ‘Montag,’ Stockhausen’s ‘Licht’ Cycle Nears Completion in Paris**\
+`For one night only at the Philharmonie de Paris, Maxime Pascale will conduct “Montag aus Licht,” part of his bid to stage a septology long deemed unperformable.`\
+https://nytimes.com/2025/11/14/arts/music/montag-licht-stockhausen-paris.html
+
 **BYU forward Kennard Davis Jr. arrested on DUI charge after crash**\
 `Davis may have violated BYU's honor code, which could lead to suspension or expulsion from the school.`\
 https://nytimes.com/athletic/6807428/2025/11/14/byu-kennard-davis-jr-arrested-dui-crash/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/14/dining/malawian-spiced-cookies.html
 **She Took JPMorgan for $175 Million. That Doesn’t Include Her Restaurant Bills.**\
 `When prosecutors accused Charlie Javice of fraud, JPMorgan was forced to pay for her defense. The bank is not happy about her “shocking” spending.`\
 https://nytimes.com/2025/11/14/business/charlie-javice-jpmorgan-legal-bills.html
-
-**The Building Blocks of Life Were Just the Beginning**\
-`In “Crick: A Mind in Motion,” the British biologist Matthew Cobb provides a biography both vivid and authoritative.`\
-https://nytimes.com/2025/11/14/books/review/crick-matthew-cobb.html
-
-**Napoleon’s Brooch, Lost as He Fled Waterloo, Sells for $4.4 Million**\
-`The diamond-encrusted jewel, which the 19th-century French emperor wore on his hat, was lost along with other valuables as he retreated from his final battle.`\
-https://nytimes.com/2025/11/14/world/europe/napoleon-diamond-brooch-auction.html
-
-**Trump Demands Inquiry Into Epstein’s Ties to Prominent Democrats**\
-`The move appeared to be retaliation after Democrats released emails suggesting the president knew about Epstein’s sex-trafficking operation.`\
-https://nytimes.com/2025/11/14/us/politics/trump-epstein-inquiry-democrats.html
 

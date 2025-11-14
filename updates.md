@@ -1,3 +1,15 @@
+**How to Keep Opera Alive? Start Talent Young and Broaden the Stage.**\
+`A youth orchestra program for musicians as young as 8 is part of Paris Opera’s effort to widen access to the art form and secure its future.`\
+https://nytimes.com/2025/11/14/arts/music/paris-opera-academy-youth-outreach.html
+
+**When These Dancers Direct Opera, Expect Movement That Leaps From Score to Stage**\
+`The choreographers Bobbi Jene Smith and Or Schraiber will put their own spin on “Satyagraha” by Philip Glass for its Paris Opera premiere.`\
+https://nytimes.com/2025/11/14/arts/music/satyagraha-bobbi-jene-smith-or-schraiber.html
+
+**With a New ‘Montag,’ Stockhausen’s ‘Licht’ Cycle Nears Completion in Paris**\
+`For one night only at the Philharmonie de Paris, Maxime Pascale will conduct “Montag aus Licht,” part of his bid to stage a septology long deemed unperformable.`\
+https://nytimes.com/2025/11/14/arts/music/montag-licht-stockhausen-paris.html
+
 **BYU forward Kennard Davis Jr. arrested on DUI charge after crash**\
 `Davis may have violated BYU's honor code, which could lead to suspension or expulsion from the school.`\
 https://nytimes.com/athletic/6807428/2025/11/14/byu-kennard-davis-jr-arrested-dui-crash/
