@@ -1,3 +1,7 @@
+**NHL power rankings of putrid: Will these 3 disappointing teams figure it out?**\
+`Just how much trouble are these teams in? Are they contemplating firings or big trades? Is it salvageable?`\
+https://nytimes.com/athletic/6807426/2025/11/14/nhl-putrid-power-rankings-red-light-newsletter/
+
 **Wild's Marco Rossi sidelined by lower-body injury: Sources**\
 `The loss of Rossi, coupled with Nico Sturm’s continued rehab from back surgery, likely puts the Wild in the market for a center.`\
 https://nytimes.com/athletic/6807510/2025/11/14/wild-marco-rossi-lower-body-injury/
