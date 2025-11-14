@@ -1,3 +1,7 @@
+**Walmart C.E.O. Doug McMillon to Step Down**\
+`The chief of the company’s U.S. business, John Furner, will take over on Feb. 1.`\
+https://nytimes.com/2025/11/14/business/walmart-doug-mcmillon-john-furner.html
+
 **Twins' Royce Lewis notices 'something new about the culture' manager Derek Shelton is building**\
 `"I loved the mentality he had — the 'It's going to take every man' approach. It was unbelievable," Lewis said of Shelton.`\
 https://nytimes.com/athletic/6806576/2025/11/14/twins-derek-shelton-managing-approach-royce-lewis/
