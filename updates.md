@@ -1,3 +1,7 @@
+**Republicans Tried to Squelch the Epstein Furor. Instead, They Fed It.**\
+`A House investigation that the G.O.P. has tried to use to deflect calls for more transparency has yielded striking revelations that have only fueled the Epstein saga.`\
+https://nytimes.com/2025/11/13/us/politics/republicans-epstein-trump-house.html
+
 **Fast-Growing Fire in Mono County, California, Forces Evacuations**\
 `The Pack fire has grown to 1,000 acres amid high winds, but a coming winter storm might help firefighters control the blaze.`\
 https://nytimes.com/2025/11/13/us/pack-fire-mono-county-california.html
