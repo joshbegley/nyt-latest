@@ -1,3 +1,7 @@
+**U.S. Investor Withdraws Takeover Bid for U.K.’s Telegraph**\
+`The exit by RedBird Capital Partners comes months after it agreed to buy control of the media company in a deal that valued it at $658 million.`\
+https://nytimes.com/2025/11/14/business/dealbook/telegraph-sale-uk-newspaper.html
+
 **Chelsea goalkeeper Hampton out for 'a few weeks' with muscular injury**\
 `Chelsea head coach Sonia Bompastor said she was unsure if Hampton, 24, would be available to return before the end of 2025.`\
 https://nytimes.com/athletic/6807662/2025/11/14/hannah-hampton-injury-update-chelsea/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6807571/2025/11/14/bears-caleb-williams-quarterback
 **Discovering 5 Treasures of Photography**\
 `Some of the most impressive photographs on display at the Paris Photo Fair were made many decades ago but are now being seen anew or, in some cases, for the first time.`\
 https://nytimes.com/2025/11/14/arts/design/paris-photo.html
-
-**How to Watch the Leonids Meteor Shower Reach Its Peak**\
-`The moon is far from full this weekend, which could mean good fireball viewing for night sky watchers.`\
-https://nytimes.com/2025/11/14/science/meteor-shower-2025-time.html
 
