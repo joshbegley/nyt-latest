@@ -1,3 +1,7 @@
+**Sharon Camp, Mother of the ‘Plan B’ Contraceptive Pill, Dies at 83**\
+`An advocate for women’s reproductive health, she started one of the world’s smallest pharmaceutical companies to bring an emergency birth-control method to market.`\
+https://nytimes.com/2025/11/14/health/policy/sharon-camp-dead.html
+
 **What can Wolves fans expect from a Rob Edwards team?**\
 `The new head coach preaches aggression and has employed three centre-halves in previous stints at Forest Green, Luton and Middlesbrough`\
 https://nytimes.com/athletic/6797801/2025/11/14/wolves-rob-edwards-style-tactics-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6803906/2025/11/14/nolberto-solano-interview-newcas
 **The Prospects: Chizaram Ezenwata, Chelsea and England Under-17s**\
 `The latest in our series on some of the brightest talents emerging through the English academy system focuses on a young Chelsea striker`\
 https://nytimes.com/athletic/6800969/2025/11/14/chizaram-ezenwata-chelsea-england-prospects/
-
-**How have Liverpool changed their football in Arne Slot's second season?**\
-`Liverpool look like a side without any clear identity. Stability has become a muddled mess, and there are problems across the pitch`\
-https://nytimes.com/athletic/6804124/2025/11/14/liverpool-arne-slot-changes-tactics-analysis/
 
