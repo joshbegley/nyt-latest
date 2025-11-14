@@ -1,3 +1,7 @@
+**Russia Pummels Kyiv, Trying to Plunge Ukraine Into Darkness**\
+`A strike that killed six was the latest in a series of aerial assaults on the power grid, an effort to deprive Ukrainians of energy as winter looms.`\
+https://nytimes.com/2025/11/14/world/europe/ukraine-kyiv-russia-strike.html
+
 **A Bloody Month in the West Bank Olive Harvest Leads to the Death of a Boy**\
 `Palestinians see the violence, and its tolerance by right-wing Israeli officialdom, as part of a broader campaign to harass them and make life so unbearable that they will abandon their villages.`\
 https://nytimes.com/2025/11/14/world/middleeast/west-bank-settler-violence-olive-harvest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/14/learning/photo-essay-contest-inspiration.html
 **Local Lens: A Photo Essay Contest for Exploring the Place Where You Live**\
 `Take six to eight photos that spotlight something interesting about your hometown — a group of people, an event, a place or a visual theme. Enter from Dec. 3, 2025, to Jan. 14, 2026.`\
 https://nytimes.com/2025/11/14/learning/local-lens-a-photo-essay-contest-for-exploring-the-place-where-you-live.html
-
-**Twins' Royce Lewis notices 'something new about the culture' manager Derek Shelton is building**\
-`"I loved the mentality he had — the 'It's going to take every man' approach. It was unbelievable," Lewis said of Shelton.`\
-https://nytimes.com/athletic/6806576/2025/11/14/twins-derek-shelton-managing-approach-royce-lewis/
 
