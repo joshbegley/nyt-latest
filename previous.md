@@ -1,3 +1,11 @@
+**What we're hearing entering Week 12: Optimism for Ole Miss fans, Virginia Tech patience and more**\
+`Mike Locksley is no lock to return to Maryland, and seems to need six wins to stay put. `\
+https://nytimes.com/athletic/6805641/2025/11/14/college-football-coaching-search-news-week-12/
+
+**TAFC: What MLS calendar change means, Ronaldo sees red, Mbappe hits 400th goal**\
+`Today in TAFC: Why MLS is changing its calendar, Ronaldo sees red and could face World Cup ban, England's 'neuroscience shoes'.`\
+https://nytimes.com/athletic/6806913/2025/11/14/mls-calendar-change-ronaldo-red-card/
+
 **Ex-Chelsea midfielder Oscar diagnosed with fainting condition, remains hospitalised**\
 `The 34-year-old, who currently plays for Sao Paulo, was admitted to hospital on Tuesday and has been diagnosed with vasovagal syncope.`\
 https://nytimes.com/athletic/6806941/2025/11/14/oscar-health-issue-brazil-chelsea/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6805468/2025/11/14/clippers-bradley-beal-nightmare-
 **Seeing red: How 49ers fans became the NFL’s road warriors**\
 `The 49ers started leaning into their fans' takeover mentality more heavily this year, resulting in large gatherings in Houston and New York.`\
 https://nytimes.com/athletic/6805614/2025/11/14/49ers-fans-travel-road-stadium/
-
-**Framber Valdez is a clear fit for Blue Jays’ starting rotation needs**\
-`Valdez is one of baseball’s most durable starting pitchers and a consistent Cy Young candidate. He also checks every box Toronto needs.`\
-https://nytimes.com/athletic/6805868/2025/11/14/framber-valdez-blue-jays-starting-rotation-fit/
-
-**Alex Newhook’s injury is major blow to Canadiens, but could also be an opportunity**\
-`In Newhook's absence, the Canadiens could experiment with a philosophical change.`\
-https://nytimes.com/athletic/6806566/2025/11/14/alex-newhook-injury-canadiens/
 

@@ -1,3 +1,11 @@
+**What we're hearing entering Week 12: Optimism for Ole Miss fans, Virginia Tech patience and more**\
+`Mike Locksley is no lock to return to Maryland, and seems to need six wins to stay put. `\
+https://nytimes.com/athletic/6805641/2025/11/14/college-football-coaching-search-news-week-12/
+
+**TAFC: What MLS calendar change means, Ronaldo sees red, Mbappe hits 400th goal**\
+`Today in TAFC: Why MLS is changing its calendar, Ronaldo sees red and could face World Cup ban, England's 'neuroscience shoes'.`\
+https://nytimes.com/athletic/6806913/2025/11/14/mls-calendar-change-ronaldo-red-card/
+
 **Ex-Chelsea midfielder Oscar diagnosed with fainting condition, remains hospitalised**\
 `The 34-year-old, who currently plays for Sao Paulo, was admitted to hospital on Tuesday and has been diagnosed with vasovagal syncope.`\
 https://nytimes.com/athletic/6806941/2025/11/14/oscar-health-issue-brazil-chelsea/
