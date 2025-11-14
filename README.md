@@ -1,3 +1,11 @@
+**Lamine Yamal's injury and Barcelona’s spat with Spain: Pain, politics and pubalgia**\
+`The 18-year-old forward has this week found himself at the centre of a public spat between club and country`\
+https://nytimes.com/athletic/6806764/2025/11/14/lamine-yamal-barcelona-injury-spain-groin/
+
+**Ravens getting hot, Steelers falling as AFC North race tightens: Whiparound**\
+`And could Joe Burrow's pending return for the Bengals make the division a three-team race down the stretch of the season?`\
+https://nytimes.com/athletic/6804871/2025/11/14/steelers-ravens-browns-bengals-joe-burrow/
+
 **As Steph Curry parts ways with Under Armour, his brand and appeal reach a new test**\
 `Curry's basketball greatness helped Under Armour's growth. Sneakerheads now wait to see what's next with the new free agent, Curry Brand.`\
 https://nytimes.com/athletic/6806617/2025/11/14/steph-curry-under-armour-basketball-shoe-brand/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6804427/2025/11/14/nhl-changing-of-the-guard-season
 **Hurricane Melissa Leaves Behind a Staggering Homelessness Toll**\
 `Two weeks after Hurricane Melissa wrecked western Jamaica, officials are beginning to grapple with the challenge of trying to find housing for thousands of families.`\
 https://nytimes.com/2025/11/14/world/americas/hurricane-melissa-homeless-jamaica.html
-
-**Patriots Beat Jets 27-14 in Eighth Straight Win**\
-`The New England Patriots clinched their first winning season since 2021 with a 13-point win over the New York Jets at home. The rookie Patriots running back TreVeyon Henderson scored three touchdowns.`\
-https://nytimes.com/video/sports/football/100000010524299/patriots-beat-jets-27-14-in-eighth-straight-win.html
-
-**Chris Jones' production is down for Chiefs. Why he says 2025 start has been 'challenging'**\
-`The Chiefs' star defensive tackle is in the second season of a five-year extension. Here's where his stats are down from normal.`\
-https://nytimes.com/athletic/6804805/2025/11/14/chiefs-chris-jones-challenging-start/
 
