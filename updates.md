@@ -1,3 +1,11 @@
+**'You feel like death': The brutal reality of 'cutting' - and why boxers do it**\
+`Chris Eubank Jr's rematch with Conor Benn has brought the controversial issue of how fighters make weight back into focus`\
+https://nytimes.com/athletic/6803795/2025/11/14/boxing-cutting-weight-eubank-jr-benn/
+
+**The New York Times in Print for Friday, Nov. 14, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/14/todays-new-york-times
+
 **Sharon Camp, Mother of the ‘Plan B’ Contraceptive Pill, Dies at 83**\
 `An advocate for women’s reproductive health, she started one of the world’s smallest pharmaceutical companies to bring an emergency birth-control method to market.`\
 https://nytimes.com/2025/11/14/health/policy/sharon-camp-dead.html
