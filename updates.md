@@ -1,3 +1,11 @@
+**Canada scoring headache comes into focus after 0-0 Ecuador draw**\
+`Canada took positives from its latest friendly but the lack of goals remains a problem`\
+https://nytimes.com/athletic/6806254/2025/11/13/canada-ecuador-draw-marsch/
+
+**Fast-Growing Fire in Mono County, California, Forces Evacuations**\
+`The Pack fire has grown to 3,400 acres amid high winds, but a coming winter storm might help firefighters control the blaze.`\
+https://nytimes.com/2025/11/13/us/pack-fire-mono-county-california.html
+
 **Liner Notes**\
 `Malaika Handa’s grid is packed with lively entries.`\
 https://nytimes.com/2025/11/13/crosswords/daily-puzzle-2025-11-14.html
