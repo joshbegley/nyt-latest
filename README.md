@@ -1,3 +1,7 @@
+**Team USA adds Corbin Carroll, Pete Crow-Armstrong to WBC roster; Cal Raleigh to catch**\
+`The two join a team that is being captained by Aaron Judge and will also see NL Cy Young Award winner Paul Skenes pitch.`\
+https://nytimes.com/athletic/6806347/2025/11/13/team-usa-world-baseball-classic-corbin-carroll-pete-crow-armstrong/
+
 **Kristi Noem Hands $10,000 Bonuses to Some T.S.A. Agents**\
 `The secretary for Homeland Security, Kristi Noem, awarded $10,000 checks to Transportation Security Administration workers who “went above and beyond” during the shutdown.`\
 https://nytimes.com/video/us/politics/100000010524080/tsa-worker-checks-bonus-shutdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/13/climate/trump-revokes-biden-ban-on-drilling-minin
 **Republicans Tried to Squelch the Epstein Furor. Instead, They Fed It.**\
 `A House investigation that the G.O.P. has tried to use to deflect calls for more transparency has yielded striking revelations that have only fueled the Epstein saga.`\
 https://nytimes.com/2025/11/13/us/politics/republicans-epstein-trump-house.html
-
-**Fast-Growing Fire in Mono County, California, Forces Evacuations**\
-`The Pack fire has grown to 3,400 acres amid high winds, but a coming winter storm might help firefighters control the blaze.`\
-https://nytimes.com/2025/11/13/us/pack-fire-mono-county-california.html
 
