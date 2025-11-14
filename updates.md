@@ -1,3 +1,19 @@
+**Dereck Lively II expected to return as slumping Mavericks look for boost**\
+`Lively last played Oct. 26 in Dallas’ home win over the Toronto Raptors, but afterward said he felt discomfort in his right leg.`\
+https://nytimes.com/athletic/6807901/2025/11/14/dereck-lively-ii-mavericks-lineup-return/
+
+**USMNT's Christian Pulisic backs friend Gio Reyna to revive his troubled career**\
+`The USMNT's most prominent star backed Reyna to put his difficult years behind him`\
+https://nytimes.com/athletic/6807971/2025/11/14/pulisic-reyna-usmnt-milan/
+
+**Flashback: Your Weekly History Quiz, Nov. TK, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/11/14/upshot/flashback.html
+
+**Leicester City chairman Khun Top pledges to rebuild connection with club's fans**\
+`Leicester are 12th in the Championship and their win at Norwich was only their second in 10 games`\
+https://nytimes.com/athletic/6807576/2025/11/14/leicester-city-chairman-khun-top-fan-connection/
+
 **Atrocities Against Civilians in Sudan Require World’s Attention, U.N. Says**\
 `The United Nations’ top human rights body ordered an inquiry into mass killings and sexual violence during the country’s worsening civil war.`\
 https://nytimes.com/2025/11/14/world/africa/sudan-atrocities-civilians-un.html
