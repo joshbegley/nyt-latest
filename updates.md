@@ -1,3 +1,11 @@
+**Dodgers' Shohei Ohtani unanimously wins fourth MVP award**\
+`Ohtani returned to the mound while authoring another brilliant season at the plate with 55 home runs and a major-league leading 146 runs.`\
+https://nytimes.com/athletic/6805014/2025/11/13/dodgers-shohei-ohtani-fourth-mvp-unanimous/
+
+**Far Right’s Fixation on Jan. 6 Pipe Bomb Suspect Reaches F.B.I.’s Top Ranks**\
+`For all his bluster, the F.B.I.’s deputy director Dan Bongino played a central role in stoking expectations that the bureau would quickly find the suspects who planted pipe bombs.`\
+https://nytimes.com/2025/11/13/us/politics/dan-bongino-jan-6-pipe-bomb.html
+
 **Memo Blessing Boat Strikes Is Said to Rely on Trump’s Claims About Cartels**\
 `Accounts of a secret Justice Department memo offer a window into how administration lawyers approved the president’s desired course of action.`\
 https://nytimes.com/2025/11/13/us/politics/boat-strikes-doj-memo-trump.html
