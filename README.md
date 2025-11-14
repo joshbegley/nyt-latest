@@ -1,3 +1,7 @@
+**Flight Cuts Imposed During Shutdown Will Be Reduced by Half**\
+`The leaders of the Federal Aviation Administration and the Department of Transportation said they would continue monitoring air traffic controller staffing, which has been improving since the shutdown ended.`\
+https://nytimes.com/2025/11/14/us/politics/flights-restrictions-travel-faa.html
+
 **Seneca Soldier and Statesman Can Finally Add Lawyer to His Legacy**\
 `Ely Samuel Parker, a Native American who served as an aide to Ulysses S. Grant during the Civil War, was kept from practicing law during his lifetime.`\
 https://nytimes.com/2025/11/14/nyregion/ely-samuel-parker-new-york-native-american.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/opinion/100000010524982/how-epstein-could-divide-repub
 **Trump’s Worst Enemy? Himself.**\
 `After this week’s release of Jeffrey Epstein’s emails and Trump’s questionable behavior, it seems that the president’s public standing is declining.`\
 https://nytimes.com/video/opinion/100000010524984/trumps-worst-enemy-himself.html
-
-**ICE Scouted Site to Hold Immigrant Detainees in New York City**\
-`Federal officials explored the possibility of using a Coast Guard facility on Staten Island. The effort appears to be part of a plan to expand President Trump’s immigration crackdown.`\
-https://nytimes.com/2025/11/14/nyregion/ice-detention-facility-staten-island.html
 
