@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6806576/2025/11/14/twins-derek-shelton-managing-app
 
 **Walmart C.E.O. Doug McMillon to Step Down**\
 `The chief of the company’s U.S. business, John Furner, will take over on Feb. 1.`\
-https://nytimes.com/2025/11/14/business/walmart-ceo-mcmillon.html
+https://nytimes.com/2025/11/14/business/walmart-doug-mcmillon-john-furner.html
 
 **Ronaldo red card: Could Portugal's captain miss 2026 World Cup opener?**\
 `If Portugal qualify, Ronaldo's status for their first game could be in jeopardy after being sent off against the Republic of Ireland.`\

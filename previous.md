@@ -1,3 +1,19 @@
+**Twins' Royce Lewis notices 'something new about the culture' manager Derek Shelton is building**\
+`"I loved the mentality he had — the 'It's going to take every man' approach. It was unbelievable," Lewis said of Shelton.`\
+https://nytimes.com/athletic/6806576/2025/11/14/twins-derek-shelton-managing-approach-royce-lewis/
+
+**Walmart C.E.O. Doug McMillon to Step Down**\
+`The chief of the company’s U.S. business, John Furner, will take over on Feb. 1.`\
+https://nytimes.com/2025/11/14/business/walmart-ceo-mcmillon.html
+
+**Ronaldo red card: Could Portugal's captain miss 2026 World Cup opener?**\
+`If Portugal qualify, Ronaldo's status for their first game could be in jeopardy after being sent off against the Republic of Ireland.`\
+https://nytimes.com/athletic/6806937/2025/11/14/cristiano-ronaldo-portugal-world-cup-2026/
+
+**Confused by the iPhone Pocket? That’s by Design.**\
+`Decades after their founders connected, Apple and Issey Miyake released a collection of phone pouches that have some people baffled. They hope it will inspire creativity.`\
+https://nytimes.com/2025/11/14/style/iphone-pocket-apple-issey-miyake.html
+
 **How to watch Penguins vs. Predators: Time, TV, streaming**\
 `Find out how to watch the Pittsburgh Penguins play the Nashville Predators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6807125/2025/11/14/penguins-vs-predators-stream-how-to-watch-nov-14/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6806104/2025/11/14/chargers-jaguars-ghosts-playoff-
 **Headed to Miami for a Canes game? What Akheem Morris, Carson Beck, Malachi Toney recommend**\
 `Canes players offer up recommendations in Miami for the next time you're in town to see a game. `\
 https://nytimes.com/athletic/6784723/2025/11/14/miami-florida-college-football-travel-restaurants-things-to-do/
-
-**Now or never for Bengals to end defensive growing pains**\
-`If the Bengals lose Sunday and fall to 3-7, losers of seven of their last eight, the season is over.`\
-https://nytimes.com/athletic/6805684/2025/11/14/cincinnati-bengals-defensive-growing-pains/
-
-**Trump Administration Live Updates: Critic of President Says He Is Being Targeted**\
-``\
-https://nytimes.com/live/2025/11/14/us/trump-shutdown-news
-
-**What we're hearing entering Week 12: Optimism for Ole Miss fans, Virginia Tech patience and more**\
-`Mike Locksley is no lock to return to Maryland, and seems to need six wins to stay put. `\
-https://nytimes.com/athletic/6805641/2025/11/14/college-football-coaching-search-news-week-12/
-
-**TAFC: What MLS calendar change means, Ronaldo sees red, Mbappe hits 400th goal**\
-`Today in TAFC: Why MLS is changing its calendar, Ronaldo sees red and could face World Cup ban, England's 'neuroscience shoes'.`\
-https://nytimes.com/athletic/6806913/2025/11/14/mls-calendar-change-ronaldo-red-card/
 

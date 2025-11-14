@@ -1,3 +1,19 @@
+**Twins' Royce Lewis notices 'something new about the culture' manager Derek Shelton is building**\
+`"I loved the mentality he had — the 'It's going to take every man' approach. It was unbelievable," Lewis said of Shelton.`\
+https://nytimes.com/athletic/6806576/2025/11/14/twins-derek-shelton-managing-approach-royce-lewis/
+
+**Walmart C.E.O. Doug McMillon to Step Down**\
+`The chief of the company’s U.S. business, John Furner, will take over on Feb. 1.`\
+https://nytimes.com/2025/11/14/business/walmart-ceo-mcmillon.html
+
+**Ronaldo red card: Could Portugal's captain miss 2026 World Cup opener?**\
+`If Portugal qualify, Ronaldo's status for their first game could be in jeopardy after being sent off against the Republic of Ireland.`\
+https://nytimes.com/athletic/6806937/2025/11/14/cristiano-ronaldo-portugal-world-cup-2026/
+
+**Confused by the iPhone Pocket? That’s by Design.**\
+`Decades after their founders connected, Apple and Issey Miyake released a collection of phone pouches that have some people baffled. They hope it will inspire creativity.`\
+https://nytimes.com/2025/11/14/style/iphone-pocket-apple-issey-miyake.html
+
 **How to watch Penguins vs. Predators: Time, TV, streaming**\
 `Find out how to watch the Pittsburgh Penguins play the Nashville Predators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6807125/2025/11/14/penguins-vs-predators-stream-how-to-watch-nov-14/
