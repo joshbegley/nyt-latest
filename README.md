@@ -1,3 +1,19 @@
+**Astros have interest in Cardinals' Brendan Donovan: How would he fit in a crowded infield?**\
+`Donovan would be an obvious fit for the Astros' lineup, but would create a logjam. Could Christian Walker or Isaac Paredes be on the move?`\
+https://nytimes.com/athletic/6808192/2025/11/14/astros-brendan-donovan-trade-interest-christian-walker-isaac-paredes/
+
+**Elizabeth Franz, Versatile Tony-Winning Actress, Is Dead at 84**\
+`She won the award for her performance as Linda Loman in a 1999 Broadway revival of “Death of a Salesman” and played the matriarch Kate Jerome in two Neil Simon comedies.`\
+https://nytimes.com/2025/11/14/theater/elizabeth-franz-dead.html
+
+**Justin Thomas to miss start of PGA Tour season after back surgery**\
+`Thomas, 32, won the RBC Heritage in April, his first win since the 2022 PGA Championship.`\
+https://nytimes.com/athletic/6808628/2025/11/14/justin-thomas-back-surgery-pga-tour-return/
+
+**Broncos RB J.K. Dobbins out vs. Chiefs with foot injury**\
+`Whether Denver's leading rusher goes to IR remains to be seen, but rookie RJ Harvey will be the next man up for now.`\
+https://nytimes.com/athletic/6808627/2025/11/14/broncos-jk-dobbins-out-foot-injury-chiefs/
+
 **Could the Antichrist Be a Machine?**\
 `Technology is killing us physically and spiritually, the author Paul Kingsnorth argues on “Interesting Times.”`\
 https://nytimes.com/video/opinion/100000010519808/could-the-antichrist-be-a-machine.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/dining/100000010523068/gnocchi-gratin.html
 **The Spiritual Darkness Driving Silicon Valley**\
 `Is technology killing us? The author Paul Kingsnorth argues that it is, both physically and spiritually.`\
 https://nytimes.com/video/opinion/100000010519803/the-spiritual-darkness-driving-silicon-valley.html
-
-**The Antisemitic Coalition Emerging in the G.O.P.**\
-`The MAGA coalition has been fighting over Tucker Carlson’s interview with the white nationalist influencer Nick Fuentes and where to draw the line on antisemitism.`\
-https://nytimes.com/video/opinion/100000010506090/the-antisemitic-coalition-emerging-in-the-gop.html
-
-**The Double Standard of Right-Wing Antisemitism**\
-`Tucker Carlson’s interview with the white nationalist influencer Nick Fuentes has provoked a conversation within the Republican Party about antisemitism and anti-Zionism, with prominent right-wing figures like Ben Shapiro and Steve Bannon weighing in.`\
-https://nytimes.com/video/opinion/100000010506092/the-double-standard-of-right-wing-antisemitism.html
-
-**Trump Pulls Nominee for Top I.R.S. Lawyer**\
-`President Trump’s announcement came after the nominee, Donald L. Korb, came under fire from the far-right activist Laura Loomer on social media.`\
-https://nytimes.com/2025/11/14/us/politics/donald-korb-irs-trump.html
-
-**A Tiny West Wing Office Is Big on Trump Messaging**\
-`The Oval Office study has become a room for Trump merchandise.`\
-https://nytimes.com/2025/11/14/us/trump-oval-office-study-merch.html
 

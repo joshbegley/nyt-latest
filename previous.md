@@ -1,3 +1,27 @@
+**Could the Antichrist Be a Machine?**\
+`Technology is killing us physically and spiritually, the author Paul Kingsnorth argues on “Interesting Times.”`\
+https://nytimes.com/video/opinion/100000010519808/could-the-antichrist-be-a-machine.html
+
+**Frank Chuman, Pioneering Lawyer for Japanese American Rights, Is Dead at 105**\
+`He was sent to the Manzanar internment camp during World War II, an experience that inspired a long career in civil rights activism.`\
+https://nytimes.com/2025/11/14/us/frank-chuman-dead.html
+
+**'I think it's bad.' NFL, NBA, MLB and NHL players have feelings on sports betting**\
+`Players across sports leagues dish on threatening messages from fans, prop-bet worries and league education`\
+https://nytimes.com/athletic/6807760/2025/11/14/sports-betting-players-nfl-nba-mlb-nhl/
+
+**Indiana Senate Says It Won’t Vote on Redistricting That Trump Sought**\
+`The pushback from Senate Republicans follows the governor’s call for a special session to consider a new congressional map that President Trump wanted.`\
+https://nytimes.com/2025/11/14/us/indiana-redistricting-trump-republicans.html
+
+**Gnocchi Gratin**\
+`Gnocchi Parisienne is what the French call this speedy take on potato gratin, which uses store-bought potato gnocchi instead of sliced potatoes.`\
+https://nytimes.com/video/dining/100000010523068/gnocchi-gratin.html
+
+**The Spiritual Darkness Driving Silicon Valley**\
+`Is technology killing us? The author Paul Kingsnorth argues that it is, both physically and spiritually.`\
+https://nytimes.com/video/opinion/100000010519803/the-spiritual-darkness-driving-silicon-valley.html
+
 **The Antisemitic Coalition Emerging in the G.O.P.**\
 `The MAGA coalition has been fighting over Tucker Carlson’s interview with the white nationalist influencer Nick Fuentes and where to draw the line on antisemitism.`\
 https://nytimes.com/video/opinion/100000010506090/the-antisemitic-coalition-emerging-in-the-gop.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/11/14/us/politics/donald-korb-irs-trump.html
 **A Tiny West Wing Office Is Big on Trump Messaging**\
 `The Oval Office study has become a room for Trump merchandise.`\
 https://nytimes.com/2025/11/14/us/trump-oval-office-study-merch.html
-
-**She Was Deported in Error. Her Child Was Left Behind.**\
-`Maribel Lopez was hastily deported to Guatemala despite a pending asylum appeal, leaving behind a toddler. Her case highlights a growing pattern of speedy deportations.`\
-https://nytimes.com/2025/11/14/us/trump-deportations-families.html
-
-**Wild's Mats Zuccarello on his future beyond this season, rekindling his magic with Kirill Kaprizov**\
-`Zuccarello on what he tells Kirill Kaprizov about his future: "I keep telling him someday I gotta leave. I can’t play forever.”`\
-https://nytimes.com/athletic/6808497/2025/11/14/mats-zuccarello-future-wild-kirill-kaprizov/
-
-**MLS, Apple rework terms of media rights deal for earlier ending, in 2029**\
-`The development comes on the heels of a number of major structural changes MLS revealed on Thursday. Here's what it all means`\
-https://nytimes.com/athletic/6808440/2025/11/14/mls-apple-tv-broadcast-rights-deal-2029/
-
-**Overlooked No More: Sabina Spielrein, Visionary Lost Between Freud and Jung**\
-`She maintained a triangular correspondence with the two men, who overshadowed the significant contributions she made to the field of psychoanalysis.`\
-https://nytimes.com/2025/11/14/obituaries/sabina-spielrein-overlooked.html
-
-**Sarah Jessica Parker’s Year of Judging the Booker Prize**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/sarah-jessica-parker-booker-prize
-
-**The Heaviest Rain Is Yet to Come for Southern Californians Facing a Very Wet Storm**\
-`An unusually powerful storm has prompted some evacuation warnings before heavy rain on Saturday.`\
-https://nytimes.com/2025/11/14/weather/california-rain-flood-storm-los-angeles-forecast.html
 

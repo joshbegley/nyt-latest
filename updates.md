@@ -1,3 +1,27 @@
+**Could the Antichrist Be a Machine?**\
+`Technology is killing us physically and spiritually, the author Paul Kingsnorth argues on “Interesting Times.”`\
+https://nytimes.com/video/opinion/100000010519808/could-the-antichrist-be-a-machine.html
+
+**Frank Chuman, Pioneering Lawyer for Japanese American Rights, Is Dead at 105**\
+`He was sent to the Manzanar internment camp during World War II, an experience that inspired a long career in civil rights activism.`\
+https://nytimes.com/2025/11/14/us/frank-chuman-dead.html
+
+**'I think it's bad.' NFL, NBA, MLB and NHL players have feelings on sports betting**\
+`Players across sports leagues dish on threatening messages from fans, prop-bet worries and league education`\
+https://nytimes.com/athletic/6807760/2025/11/14/sports-betting-players-nfl-nba-mlb-nhl/
+
+**Indiana Senate Says It Won’t Vote on Redistricting That Trump Sought**\
+`The pushback from Senate Republicans follows the governor’s call for a special session to consider a new congressional map that President Trump wanted.`\
+https://nytimes.com/2025/11/14/us/indiana-redistricting-trump-republicans.html
+
+**Gnocchi Gratin**\
+`Gnocchi Parisienne is what the French call this speedy take on potato gratin, which uses store-bought potato gnocchi instead of sliced potatoes.`\
+https://nytimes.com/video/dining/100000010523068/gnocchi-gratin.html
+
+**The Spiritual Darkness Driving Silicon Valley**\
+`Is technology killing us? The author Paul Kingsnorth argues that it is, both physically and spiritually.`\
+https://nytimes.com/video/opinion/100000010519803/the-spiritual-darkness-driving-silicon-valley.html
+
 **The Antisemitic Coalition Emerging in the G.O.P.**\
 `The MAGA coalition has been fighting over Tucker Carlson’s interview with the white nationalist influencer Nick Fuentes and where to draw the line on antisemitism.`\
 https://nytimes.com/video/opinion/100000010506090/the-antisemitic-coalition-emerging-in-the-gop.html
