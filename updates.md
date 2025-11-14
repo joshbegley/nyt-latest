@@ -1,3 +1,11 @@
+**A Bloody Month in the West Bank Olive Harvest Leads to the Death of a Boy**\
+`Palestinians see the violence, and its tolerance by right-wing Israeli officialdom, as part of a broader campaign to harass them and make life so unbearable that they will abandon their villages.`\
+https://nytimes.com/2025/11/14/world/middleeast/west-bank-settler-violence-olive-harvest.html
+
+**Bengals' tight end coverage, TreVeyon Henderson's trifecta and more fantasy football news**\
+`Andy Behrens discusses the most important fantasy football news of the week heading into Week 11. `\
+https://nytimes.com/athletic/6807115/2025/11/14/fantasy-football-news-week-11-treveyon-henderson/
+
 **How to Deal With Higher Home Heating Bills**\
 `There is still time to take advantage of federal tax credits for energy updates. But federal heating aid for low-income people was delayed by the government shutdown.`\
 https://nytimes.com/2025/11/14/your-money/home-heating-bills.html

@@ -1,3 +1,11 @@
+**A Bloody Month in the West Bank Olive Harvest Leads to the Death of a Boy**\
+`Palestinians see the violence, and its tolerance by right-wing Israeli officialdom, as part of a broader campaign to harass them and make life so unbearable that they will abandon their villages.`\
+https://nytimes.com/2025/11/14/world/middleeast/west-bank-settler-violence-olive-harvest.html
+
+**Bengals' tight end coverage, TreVeyon Henderson's trifecta and more fantasy football news**\
+`Andy Behrens discusses the most important fantasy football news of the week heading into Week 11. `\
+https://nytimes.com/athletic/6807115/2025/11/14/fantasy-football-news-week-11-treveyon-henderson/
+
 **How to Deal With Higher Home Heating Bills**\
 `There is still time to take advantage of federal tax credits for energy updates. But federal heating aid for low-income people was delayed by the government shutdown.`\
 https://nytimes.com/2025/11/14/your-money/home-heating-bills.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/14/learning/local-lens-a-photo-essay-contest-for-exp
 **Twins' Royce Lewis notices 'something new about the culture' manager Derek Shelton is building**\
 `"I loved the mentality he had — the 'It's going to take every man' approach. It was unbelievable," Lewis said of Shelton.`\
 https://nytimes.com/athletic/6806576/2025/11/14/twins-derek-shelton-managing-approach-royce-lewis/
-
-**Walmart C.E.O. Doug McMillon to Step Down**\
-`The chief of the company’s U.S. business, John Furner, will take over on Feb. 1.`\
-https://nytimes.com/2025/11/14/business/walmart-doug-mcmillon-john-furner.html
-
-**Ronaldo red card: Could Portugal's captain miss 2026 World Cup opener?**\
-`If Portugal qualify, Ronaldo's status for their first game could be in jeopardy after being sent off against the Republic of Ireland.`\
-https://nytimes.com/athletic/6806937/2025/11/14/cristiano-ronaldo-portugal-world-cup-2026/
 
