@@ -1,3 +1,27 @@
+**Hurricane Melissa Leaves Behind a Staggering Homelessness Toll**\
+`Two weeks after Hurricane Melissa wrecked western Jamaica, officials are beginning to grapple with the challenge of trying to find housing for thousands of families.`\
+https://nytimes.com/2025/11/14/world/americas/hurricane-melissa-homeless-jamaica.html
+
+**Patriots Beat Jets 27-14 in Eighth Straight Win**\
+`The New England Patriots clinched their first winning season since 2021 with a 13-point win over the New York Jets at home. The rookie Patriots running back TreVeyon Henderson scored three touchdowns.`\
+https://nytimes.com/video/sports/football/100000010524299/patriots-beat-jets-27-14-in-eighth-straight-win.html
+
+**Chris Jones' production is down for Chiefs. Why he says 2025 start has been 'challenging'**\
+`The Chiefs' star defensive tackle is in the second season of a five-year extension. Here's where his stats are down from normal.`\
+https://nytimes.com/athletic/6804805/2025/11/14/chiefs-chris-jones-challenging-start/
+
+**Solomon Thomas sends powerful mental health message as Cowboys deal with tragedy**\
+`“Marshawn was in the building, smiling every day,” Solomon Thomas said Thursday.`\
+https://nytimes.com/athletic/6805994/2025/11/14/solomon-thomas-marshawn-kneeland-death-cowboys/
+
+**Nic Scourton making impression in Year 1: Grading the Panthers' defensive rookies**\
+`Taken with the 51st overall pick in the 2025 draft, Nic Scourton "looks like a foundational piece" to Carolina's defense.`\
+https://nytimes.com/athletic/6805822/2025/11/14/panthers-nic-scourton-rookie-grades/
+
+**Red Wings offense finally breaks through to snap drought: 5 thoughts**\
+`After scoring just two goals in their previous three games, the Red Wings broke through with six to beat the Ducks.`\
+https://nytimes.com/athletic/6806364/2025/11/14/detroit-red-wings-offense-power-play-ducks/
+
 **The pressure is rising on Craig Berube to fix the Maple Leafs**\
 `The Leafs put in another dismal performance against the Kings, including an NHL-worst performance in shot attempts.`\
 https://nytimes.com/athletic/6806423/2025/11/14/maple-leafs-craig-berube-kings/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6806265/2025/11/14/lions-john-morton-dan-campbell-p
 **Sabres' winless streak grows to five games, another bleak moment in Kevyn Adams era**\
 `Thanksgiving is still almost two weeks away, and already the Sabres’ season looks lost.`\
 https://nytimes.com/athletic/6806613/2025/11/14/buffalo-sabres-winless-streak/
-
-**A new NASCAR program paid drivers to promote the sport. The result was a win**\
-`The "Driver Ambassador Program," which provides financial incentive for drivers to do media, was a hit in the garage in its first year.`\
-https://nytimes.com/athletic/6805554/2025/11/14/nascar-driver-ambassador-program-joey-logano/
-
-**What we're hearing about the Cubs' pitching pursuits from Dylan Cease to Michael King**\
-`After talking to baseball officials at The Cosmopolitan hotel, it’s obvious that the Cubs are not simply hoping for internal improvements.`\
-https://nytimes.com/athletic/6806320/2025/11/14/chicago-cubs-2025-offseason-intel-pitching-pursuits/
-
-**'There's still racism': Hockey Canada summit addresses discrimination within the sport**\
-`Discrimination was this year's focus at Hockey Canada's annual Beyond the Boards Summit, which aims to address issues within the sport.`\
-https://nytimes.com/athletic/6799344/2025/11/14/hockey-canada-summit-discrimination-sport/
-
-**Have extension talks begun with Daniel Jones? Will Indy trade Anthony Richardson? Colts mailbag**\
-`Re-signing Jones is surely the Colts' top priority, but will they also give extensions to Alec Pierce, Braden Smith and Nick Cross?`\
-https://nytimes.com/athletic/6804344/2025/11/14/colts-daniel-jones-contract-extension-anthony-richardson-trade/
-
-**After firing Brian Daboll, Giants' housecleaning must extend to draft busts on roster**\
-`It was defensible to hold onto Jalin Hyatt, Evan Neal and Deonte Banks until the trade deadline. Now it's time for them to go.`\
-https://nytimes.com/athletic/6806404/2025/11/14/ny-giants-brian-daboll-cut-deonte-banks-evan-neal-jalin-hyatt/
-
-**MLS calendar flip is a big step, but not the only step, toward greater global relevance**\
-`Big change is coming to MLS in the summer of 2027, but what else needs to happen for the league to increase its profile?`\
-https://nytimes.com/athletic/6806368/2025/11/14/mls-calendar-change-impact-future-spending/
 
