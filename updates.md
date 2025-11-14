@@ -1,3 +1,15 @@
+**Switzerland Reaches Agreement With U.S. to Cut Tariff to 15%**\
+`The deal would reduce an extraordinarily high tariff rate that had threatened to cripple Swiss exports.`\
+https://nytimes.com/2025/11/14/business/switzerland-us-tariffs-trade-deal.html
+
+**Elon Musk’s xAI Trained Racy Chatbot With Employee Biometric Data**\
+`Kevin Roose and Casey Newton, the hosts of “Hard Fork” at The New York Times, discuss a recent story in The Wall Street Journal revealing that Elon Musk personally oversaw a project at his company, xAI, that compelled employees to turn over their biometric data to train a racy chatbot.`\
+https://nytimes.com/video/podcasts/100000010524568/elon-musks-xai-trained-racy-chatbot-with-employee-biometric-data.html
+
+**Stock Market Rally Is Dented as Signs of Worry Emerge**\
+`A recent dip in trading shows how investors are balancing a “fear of missing out at the same time as real fear.”`\
+https://nytimes.com/2025/11/14/business/stock-market-valuation-worry.html
+
 **Bad Bunny Tops the Latin Grammys: 8 Key Moments From the Show**\
 `The multicultural awards ceremony hinted at rediscovered roots and ways forward as Karol G, Paloma Morphy and Liniker also earned big wins.`\
 https://nytimes.com/2025/11/14/arts/music/latin-grammys-bad-bunny.html

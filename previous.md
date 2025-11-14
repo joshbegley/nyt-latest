@@ -1,3 +1,15 @@
+**Switzerland Reaches Agreement With U.S. to Cut Tariff to 15%**\
+`The deal would reduce an extraordinarily high tariff rate that had threatened to cripple Swiss exports.`\
+https://nytimes.com/2025/11/14/business/switzerland-us-tariffs-trade-deal.html
+
+**Elon Musk’s xAI Trained Racy Chatbot With Employee Biometric Data**\
+`Kevin Roose and Casey Newton, the hosts of “Hard Fork” at The New York Times, discuss a recent story in The Wall Street Journal revealing that Elon Musk personally oversaw a project at his company, xAI, that compelled employees to turn over their biometric data to train a racy chatbot.`\
+https://nytimes.com/video/podcasts/100000010524568/elon-musks-xai-trained-racy-chatbot-with-employee-biometric-data.html
+
+**Stock Market Rally Is Dented as Signs of Worry Emerge**\
+`A recent dip in trading shows how investors are balancing a “fear of missing out at the same time as real fear.”`\
+https://nytimes.com/2025/11/14/business/stock-market-valuation-worry.html
+
 **Bad Bunny Tops the Latin Grammys: 8 Key Moments From the Show**\
 `The multicultural awards ceremony hinted at rediscovered roots and ways forward as Karol G, Paloma Morphy and Liniker also earned big wins.`\
 https://nytimes.com/2025/11/14/arts/music/latin-grammys-bad-bunny.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/14/your-money/home-heating-bills.html
 **Indigenous People, Long Sidelined at Climate Talks, Take the Stage in Brazil**\
 `This summit is unlike any of its predecessors in at least one significant way: The Indigenous presence is palpable and strong.`\
 https://nytimes.com/2025/11/14/climate/cop30-belem-indigenous-people.html
-
-**The Most Valuable Military Contractor Doesn’t Make Bombs or Guns**\
-`Palantir is a software company, and its national security work has driven its stock price to remarkable heights.`\
-https://nytimes.com/2025/11/14/business/palantir-ai-military-stock-market-.html
-
-**Timberwolves coach Chris Finch pokes fun at JJ Redick on podcast appearance**\
-`Finch commented on Redick's podcasting background during his appearance on the “The Zach Lowe Show.”`\
-https://nytimes.com/athletic/6807041/2025/11/14/timberwolves-chris-finch-jj-redick-podcast/
-
-**Precious Metal Gems' lineage of grail cards from Michael Jordan to Batman**\
-`Precious Metal Gems have been some of the most influential, sought-after, and valuable cards of the last 30 years. `\
-https://nytimes.com/athletic/6805040/2025/11/14/precious-metal-gems-michael-jordan-batman/
 
