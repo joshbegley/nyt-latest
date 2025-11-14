@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6806576/2025/11/14/twins-derek-shelton-managing-app
 `The chief of the company’s U.S. business, John Furner, will take over on Feb. 1.`\
 https://nytimes.com/2025/11/14/business/walmart-ceo-mcmillon.html
 
-**Ronaldo red card: Could Portugal's captain miss the 2026 World Cup opener?**\
+**Ronaldo red card: Could Portugal's captain miss 2026 World Cup opener?**\
 `If Portugal qualify, Ronaldo's status for their first game could be in jeopardy after being sent off against the Republic of Ireland.`\
 https://nytimes.com/athletic/6806937/2025/11/14/cristiano-ronaldo-portugal-world-cup-2026/
 
