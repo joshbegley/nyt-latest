@@ -1,3 +1,7 @@
+**Devils' Jack Hughes out with 'non-hockey hand injury'**\
+`The team announced that the 24-year-old is being evaluated and further updates will be provided as they become available.`\
+https://nytimes.com/athletic/6808471/2025/11/14/new-jersey-devils-jack-hughes-injury/
+
 **gws-leiden-netherlands-university**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/leiden-netherlands-university

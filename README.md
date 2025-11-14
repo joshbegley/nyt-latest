@@ -1,4 +1,8 @@
-**Devils' Jack Hughes out with 'non-hockey hand injury'**\
+**The 52 Best Gifts for Frequent Travelers **\
+`Text by Samantha Schoech`\
+https://nytimes.com/card/2025/11/14/smarter-living/wirecutter/
+
+**Devils' Jack Hughes out with hand injury after freak accident at team dinner: Source**\
 `The team announced that the 24-year-old is being evaluated and further updates will be provided as they become available.`\
 https://nytimes.com/athletic/6808471/2025/11/14/new-jersey-devils-jack-hughes-injury/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6808179/2025/11/14/us-under-17-world-cup-penalties-
 **Russia Counters U.S. Plan for Gaza With Its Own Proposal at U.N. Security Council**\
 `The Trump administration wants the Security Council to adopt a resolution that has the 20-point U.S. plan annexed, effectively making it international law.`\
 https://nytimes.com/2025/11/14/world/middleeast/russia-us-gaza-un-security-council.html
-
-**A.I.G. Parts Ways With Incoming President Before He Assumes Role**\
-`John Neal’s withdrawal from the insurer comes as the company grapples with another high-profile departure.`\
-https://nytimes.com/2025/11/14/nyregion/aig-president-relationship-job.html
 

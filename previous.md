@@ -1,3 +1,7 @@
+**Devils' Jack Hughes out with 'non-hockey hand injury'**\
+`The team announced that the 24-year-old is being evaluated and further updates will be provided as they become available.`\
+https://nytimes.com/athletic/6808471/2025/11/14/new-jersey-devils-jack-hughes-injury/
+
 **gws-leiden-netherlands-university**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/leiden-netherlands-university
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/14/world/middleeast/russia-us-gaza-un-security-counc
 **A.I.G. Parts Ways With Incoming President Before He Assumes Role**\
 `John Neal’s withdrawal from the insurer comes as the company grapples with another high-profile departure.`\
 https://nytimes.com/2025/11/14/nyregion/aig-president-relationship-job.html
-
-**Eva Lys says 'obsessed' fans have sought out her hotel room numbers and addresses**\
-`Lys is one of several WTA Tour players to report experiences with stalkers or fixated individuals this year.`\
-https://nytimes.com/athletic/6807770/2025/11/14/tennis-eva-lys-stalking-womens-sports/
 
