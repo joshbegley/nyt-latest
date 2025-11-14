@@ -1,3 +1,15 @@
+**The Antisemitic Coalition Emerging in the G.O.P.**\
+`The MAGA coalition has been fighting over Tucker Carlson’s interview with the white nationalist influencer Nick Fuentes and where to draw the line on antisemitism.`\
+https://nytimes.com/video/opinion/100000010506090/the-antisemitic-coalition-emerging-in-the-gop.html
+
+**The Double Standard of Right-Wing Antisemitism**\
+`Tucker Carlson’s interview with the white nationalist influencer Nick Fuentes has provoked a conversation within the Republican Party about antisemitism and anti-Zionism, with prominent right-wing figures like Ben Shapiro and Steve Bannon weighing in.`\
+https://nytimes.com/video/opinion/100000010506092/the-double-standard-of-right-wing-antisemitism.html
+
+**Trump Pulls Nominee for Top I.R.S. Lawyer**\
+`President Trump’s announcement came after the nominee, Donald L. Korb, came under fire from the far-right activist Laura Loomer on social media.`\
+https://nytimes.com/2025/11/14/us/politics/donald-korb-irs-trump.html
+
 **Trump Pulls Nominee for Top I.R.S. Lawyer**\
 `President Trump’s announcement came after the nominee, Donald L. Korb, came under fire from the far-right activist Laura Loomer on social media.`\
 https://nytimes.com/2025/11/14/us/politics/trump-pulls-nominee-for-top-irs-lawyer.html
