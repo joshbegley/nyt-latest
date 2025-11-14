@@ -1,3 +1,11 @@
+**Three days after heartbreaker, Olivier and Blue Jackets hold on to beat Edmonton**\
+`The Jackets were able to avoid repeating history by preserving a shrinking lead to the end.`\
+https://nytimes.com/athletic/6806298/2025/11/13/blue-jackets-olivier-del-bel-belluz-oilers/
+
+**Patriots dominate Jets behind TreVeyon Henderson's 3 TDs; Drake Maye boosts MVP case**\
+`New England won its NFL-leading eighth game in a row in a Thursday night rout of New York.`\
+https://nytimes.com/athletic/6806079/2025/11/13/patriots-jets-score-result-takeaways-thursday-night-football/
+
 **Team USA adds Corbin Carroll, Pete Crow-Armstrong to WBC roster; Cal Raleigh to catch**\
 `The two join a team that is being captained by Aaron Judge and will also see NL Cy Young Award winner Paul Skenes pitch.`\
 https://nytimes.com/athletic/6806347/2025/11/13/team-usa-world-baseball-classic-corbin-carroll-pete-crow-armstrong/
