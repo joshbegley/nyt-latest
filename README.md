@@ -1,40 +1,40 @@
-**‘Oedipus’ Review: An Election-Night Thriller, Suffused With Dread**\
-`Mark Strong and Lesley Manville are superb as a doomed political power couple in Robert Icke’s adaptation of the Sophocles tragedy.`\
-https://nytimes.com/2025/11/13/theater/oedipus-review-strong-manville.html
+**How have Liverpool changed their football in Arne Slot's second season?**\
+`Liverpool look like a side without any clear identity. Stability has become a muddled mess, and there are problems across the pitch`\
+https://nytimes.com/athletic/6804124/2025/11/14/liverpool-arne-slot-changes-tactics-analysis/
 
-**Three days after heartbreaker, Olivier and Blue Jackets hold on to beat Edmonton**\
-`The Jackets were able to avoid repeating history by preserving a shrinking lead to the end.`\
-https://nytimes.com/athletic/6806298/2025/11/13/blue-jackets-olivier-del-bel-belluz-oilers/
+**The Estevao debate: Are Chelsea benefitting from not starting him too often?**\
+`The speed at which the Brazilian has become a fan favourite at Stamford Bridge means calls for him to start more regularly have only grown`\
+https://nytimes.com/athletic/6804514/2025/11/14/estevao-chelsea-starting-substitute-analysis/
 
-**Patriots dominate Jets behind TreVeyon Henderson's 3 TDs; Drake Maye boosts MVP case**\
-`New England won its NFL-leading eighth game in a row in a Thursday night rout of New York.`\
-https://nytimes.com/athletic/6806079/2025/11/13/patriots-jets-score-result-takeaways-thursday-night-football/
+**A.I. Cheating Rattles Top Universities in South Korea**\
+`As many elite colleges struggle adapt to the technology, the nation’s most prestigious universities said dozens of students used artificial intelligence tools to cheat.`\
+https://nytimes.com/2025/11/14/world/asia/south-korea-ai-cheating-college.html
 
-**Team USA adds Corbin Carroll, Pete Crow-Armstrong to WBC roster; Cal Raleigh to catch**\
-`The two join a team that is being captained by Aaron Judge and will also see NL Cy Young Award winner Paul Skenes pitch.`\
-https://nytimes.com/athletic/6806347/2025/11/13/team-usa-world-baseball-classic-corbin-carroll-pete-crow-armstrong/
+**The Shutdown Is Over. For Many SNAP Recipients, the Scars Remain.**\
+`Some recipients have seen their benefits return but are worried they could still be taken away. Others wonder whether the funding could be stopped again at some point.`\
+https://nytimes.com/2025/11/14/us/the-shutdown-is-over-for-many-snap-recipients-the-scars-remain.html
 
-**Kristi Noem Hands $10,000 Bonuses to Some T.S.A. Agents**\
-`The secretary for Homeland Security, Kristi Noem, awarded $10,000 checks to Transportation Security Administration workers who “went above and beyond” during the shutdown.`\
-https://nytimes.com/video/us/politics/100000010524080/tsa-worker-checks-bonus-shutdown.html
+**Corrections: Nov. 14, 2025**\
+`Corrections that appeared in print on Friday, Nov. 14, 2025.`\
+https://nytimes.com/2025/11/14/pageoneplus/corrections-nov-14-2025.html
 
-**Fourteen charged in New Jersey betting ring that allegedly involves college athletes, mafia**\
-`The NCAA is aware of the charges and is looking into the matter, a spokesperson said. It's unclear how many college athletes were involved.`\
-https://nytimes.com/athletic/6806110/2025/11/13/new-jersey-betting-ring-college-athletes-mafia/
+**For Two Homebodies, Marriage is Cozy and Safe**\
+`Danielle Duseau and Casey Lyons like feeling secure, so ten months into dating, inspired by a favorite singer, they decided to lock it down.`\
+https://nytimes.com/2025/11/14/style/danielle-duseau-casey-lyons-wedding.html
 
-**Mets' Jeff McNeil drawing trade interest as he recovers from minor procedure**\
-`A two-time All-Star and batting champion in 2022, McNeil hit 12 home runs with a .243/.335/.411 slash line in 2025.`\
-https://nytimes.com/athletic/6806350/2025/11/13/mets-jeff-mcneil-trade-interest-injury/
+**Where Does One Go on a First Date With the Mayor?**\
+`Matched by a “modern day yenta,” Melissa Blaustein, who is now a member of Sausalito’s City Council, quickly connected with David Saxe, a real estate investor who became “the Doug Emhoff of Sausalito.”`\
+https://nytimes.com/2025/11/14/fashion/weddings/where-does-one-go-on-a-first-date-with-the-mayor.html
 
-**Canada scoring headache comes into focus after 0-0 Ecuador draw**\
-`Canada took positives from its latest friendly but the lack of goals remains a problem`\
-https://nytimes.com/athletic/6806254/2025/11/13/canada-ecuador-draw-marsch/
+**They Almost Gave Up on Love — Until a Matchmaker Stepped In**\
+`When Emily Rothstein and Daniel Loeterman first met four years ago, their attraction was instant.`\
+https://nytimes.com/2025/11/14/style/they-almost-gave-up-on-love-until-a-matchmaker-stepped-in.html
 
-**Liner Notes**\
-`Malaika Handa’s grid is packed with lively entries.`\
-https://nytimes.com/2025/11/13/crosswords/daily-puzzle-2025-11-14.html
+**Switching Gears to Slow and Steady**\
+`Matthew Maggiacomo attracted many fans with his high-energy Peloton classes, but preferred a slower-paced relationship after meeting Evan Feeley.`\
+https://nytimes.com/2025/11/14/style/matthew-maggiacomo-evan-feeley-wedding.html
 
-**N.I.H. Worker Who Criticized Trump Health Policies Says She Is on Administrative Leave**\
-`The employee, Dr. Jenna Norton, was a key organizer of “The Bethesda Declaration,” a scathing public letter issued in June to Dr. Jay Bhattacharya, the N.I.H. director.`\
-https://nytimes.com/2025/11/13/us/politics/nih-trump-jenna-norton.html
+**The Sexting Seniors of Assisted Living**\
+`My mother was 83. Her boyfriend was 87. They were having the time of their lives.`\
+https://nytimes.com/2025/11/14/style/modern-love-the-sexting-seniors-of-assisted-living.html
 
