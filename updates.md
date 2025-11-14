@@ -1,3 +1,15 @@
+**A Halloween Potluck in New York **\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/village-halloween-parade-potluck
+
+**James Baldwin’s Biographer on the Meaning of Love**\
+`In “Baldwin: A Love Story,” Nicholas Boggs focuses on the writer’s romantic relationships. In this episode he explains their importance to Baldwin’s life and work.`\
+https://nytimes.com/2025/11/14/books/review/podcast-nicholas-boggs-james-baldwin.html
+
+**Tuchel expects England substitute 'anger'**\
+`Tuchel stressed the importance of contributions from the bench at next summer's the World Cup.`\
+https://nytimes.com/athletic/6807246/2025/11/14/thomas-tuchel-england-subs/
+
 **White House Scraps Cash Payments for Delayed or Canceled Flights**\
 `A Biden-era rule, now halted, would have forced airlines to pay passengers up to $775 in cash for significant flight disruptions.`\
 https://nytimes.com/2025/11/14/travel/trump-biden-delayed-flights-payments.html
