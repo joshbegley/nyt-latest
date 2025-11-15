@@ -1,3 +1,7 @@
+**'I'm excited about the future': Steph Curry honors Kobe Bryant as shoe free agency begins**\
+`Curry noted it may be "weird seeing me in anything else" when he wore Nike Kobe 6 "Mambacita" shoes during warmups on Friday night.`\
+https://nytimes.com/athletic/6809445/2025/11/15/steph-curry-kobe-bryant-shoes/
+
 **Arsenal's Calafiori out of Italy squad, Gattuso confirms**\
 `Calafiori, 23, missed Italy's victory over Moldova on Thursday and will not feature against Norway in Sunday's final group game.`\
 https://nytimes.com/athletic/6809744/2025/11/15/riccardo-calafiori-arsenal-italy-squad/
