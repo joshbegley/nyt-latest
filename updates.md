@@ -1,3 +1,7 @@
+**Quote of the Day: E. Lockhart Returns To Familiar Ground**\
+`Quotation of the Day for Saturday, November 15, 2025.`\
+https://nytimes.com/2025/11/14/pageoneplus/quote-of-the-day-e-lockhart-returns-to-familiar-ground.html
+
 **Laney's John Beam 'was always going to be about Oakland'**\
 `Beam's impact in Oakland began long before his team was featured on "Last Chance U."`\
 https://nytimes.com/athletic/6809170/2025/11/14/laneys-john-beam-oakland-remembered/
