@@ -1,3 +1,7 @@
+**Man Arrested After Appearing at Alina Habba’s Office With Bat, U.S. Says**\
+`Authorities said Keith Michael Lisa had a bat when he showed up at the office of the U.S. attorney for New Jersey on Wednesday. He was charged with possession of a dangerous weapon in a federal facility.`\
+https://nytimes.com/2025/11/15/nyregion/alina-habba-us-attorney-arrest-bat.html
+
 **Blues power rankings: Dalibor Dvorsky delivering, 'DJ Neighbours' and a kiss cam reaction**\
 `The Blues are 6-8-4 in 18 games this season, but there are some positive vibes around the organization.`\
 https://nytimes.com/athletic/6781200/2025/11/15/blues-power-rankings-dalibor-dvorsky-jake-neighbours/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/15/business/economy/fed-kugler-financial-disclosures
 **Russini: What I'm hearing on the Eagles' offense and what's next for Joe Schoen and the Giants**\
 `Also: An NFC West heavyweight bout, a fight Aaron Glenn doesn't need to pick and why NFL coaches want their players to stop pumping.`\
 https://nytimes.com/athletic/6809058/2025/11/15/nfl-rumors-news-eagles-offense-giants-coaching-search/
-
-**No, You Don’t Have to Bake a Pie for Thanksgiving**\
-`Make cranberry tiramisù. Or pecan pie brownies. Or Basque cheesecake.`\
-https://nytimes.com/2025/11/15/dining/no-you-dont-have-to-bake-a-pie-for-thanksgiving.html
 
