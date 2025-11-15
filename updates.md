@@ -1,3 +1,7 @@
+**The Ashes Briefing: Australia's Hazlewood blow and what did England take from Lions warm-up?**\
+`The hosts will be without their hamstrung fast bowler in Perth next week, where Ollie Pope is expected to bat at No 3 for England`\
+https://nytimes.com/athletic/6809359/2025/11/15/ashes-australia-england-hazlewood-pope-briefing/
+
 **‘Never Forgot Me’: How a Monk’s Supporters Helped Him Survive Prison**\
 `U Pyinya Zawta fled political persecution in Myanmar and has settled in Buffalo.`\
 https://nytimes.com/2025/11/15/nyregion/monk-myanmar-pyinya-zawta-buffalo.html
