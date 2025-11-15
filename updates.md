@@ -1,3 +1,15 @@
+**Pistons 'nasty dogs' mentality extends win streak to nine after beating 76ers**\
+`Detroit won 114-105 to mark their longest win streak since the 2007-08 season`\
+https://nytimes.com/athletic/6809232/2025/11/15/detroit-pistons-win-streak-nine-76ers/
+
+**Lawrence Vigouroux, the goalkeeper who tried to pay a £50 fine in pennies: 'I was extremely arrogant'**\
+`He is now representing Chile and impressing in the Championship, but the Swansea player's career very nearly went completely off the rails`\
+https://nytimes.com/athletic/6803888/2025/11/15/lawrence-vigouroux-fine-pennies-swansea-swindon-chile/
+
+**Arsenal, Liverpool and why the return of long-sleeved shirts is being celebrated**\
+`There has been a notable return to long-sleeve shirts for players in the Premier League this season`\
+https://nytimes.com/athletic/6756528/2025/11/15/arsenal-liverpool-long-sleeve-kits/
+
 **NFL at Real Madrid: Key questions around Miami Dolphins ‘home’ game in Spain**\
 `Why Spain? How do the locals feel about it? And what’s in it for the club? Allow us to explain.`\
 https://nytimes.com/athletic/6807217/2025/11/15/nfl-real-madrid-miami-dolphins-washington-commanders/
