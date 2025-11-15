@@ -1,3 +1,15 @@
+**Michigan avoids Northwestern upset at Wrigley Field with walk-off field goal**\
+`No. 18 Michigan committed five turnovers but escaped Northwestern with a 24-22 win thanks to a last-second field goal by Dominic Zvada.`\
+https://nytimes.com/athletic/6810391/2025/11/15/michigan-northwestern-football-score-result-wrigley/
+
+**Fetterman Is Released From the Hospital After a Fall**\
+`The Pennsylvania senator was hospitalized on Thursday after he fell during a morning walk near his home in Braddock, Pa.`\
+https://nytimes.com/2025/11/15/us/john-fetterman-fall-hospital-released.html
+
+**Navy upsets USF to crush Bulls' Playoff hopes, leave Group of 5 chase wide open**\
+`The win puts the Midshipmen alone in first place in the league most likely to produce the Group of 5’s Playoff representative.`\
+https://nytimes.com/athletic/6810541/2025/11/15/navy-south-florida-score-result-analysis/
+
 **Chris Ponnet, Priest Who Preached Social Justice Far Beyond Pulpit, Dies at 68**\
 `Courting arrest, he protested against war and the death penalty. He also performed an annual burial ceremony for hundreds of unclaimed bodies.`\
 https://nytimes.com/2025/11/15/obituaries/father-chris-ponnet-dead.html
