@@ -1,3 +1,7 @@
+**NFL at Real Madrid: Key questions around Miami Dolphins ‘home’ game in Spain**\
+`Why Spain? How do the locals feel about it? And what’s in it for the club? Allow us to explain.`\
+https://nytimes.com/athletic/6807217/2025/11/15/nfl-real-madrid-miami-dolphins-washington-commanders/
+
 **Connections: Sports Edition Coach: Hints for Nov. 15, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6809225/2025/11/15/connections-sports-edition-hints-for-nov-15-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/11/14/us/trump-shutdown-news/vance-motorcade-accid
 **Twist Targets, Informally**\
 `Kyle Dolan goes for the gold with a challenging Saturday puzzle.`\
 https://nytimes.com/2025/11/14/crosswords/daily-puzzle-2025-11-15.html
-
-**Trump Says He No Longer Supports Marjorie Taylor Greene**\
-`The president accused the Georgia congresswoman of turning on him and being disloyal.`\
-https://nytimes.com/2025/11/14/us/politics/trump-marjorie-taylor-greene.html
 

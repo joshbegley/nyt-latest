@@ -1,3 +1,11 @@
+**Lawrence Vigouroux, the goalkeeper who tried to pay a £50 fine in pennies: 'I was extremely arrogant'**\
+`He is now representing Chile and impressing in the Championship, but the Swansea player's career very nearly went completely off the rails`\
+https://nytimes.com/athletic/6803888/2025/11/15/lawrence-vigouroux-fine-pennies-swansea-swindon-chile/
+
+**Arsenal, Liverpool and why the return of long-sleeved shirts is being celebrated**\
+`There has been a notable return to long-sleeve shirts for players in the Premier League this season`\
+https://nytimes.com/athletic/6756528/2025/11/15/arsenal-liverpool-long-sleeve-kits/
+
 **NFL at Real Madrid: Key questions around Miami Dolphins ‘home’ game in Spain**\
 `Why Spain? How do the locals feel about it? And what’s in it for the club? Allow us to explain.`\
 https://nytimes.com/athletic/6807217/2025/11/15/nfl-real-madrid-miami-dolphins-washington-commanders/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6809152/2025/11/14/kon-knueppel-bucks-hornets-score
 **Patrick Beverley, ex-NBA guard, charged with assault of family member in Texas**\
 `Beverley was arrested early Friday morning in Fort Bend County (Texas).`\
 https://nytimes.com/athletic/6809065/2025/11/14/patrick-beverly-assault-arrest/
-
-**Officers were hurt in a crash while protecting Vance’s motorcade in Tennessee.**\
-`A police officer who was on a motorcyc`\
-https://nytimes.com/live/2025/11/14/us/trump-shutdown-news/vance-motorcade-accident-tennessee
-
-**Twist Targets, Informally**\
-`Kyle Dolan goes for the gold with a challenging Saturday puzzle.`\
-https://nytimes.com/2025/11/14/crosswords/daily-puzzle-2025-11-15.html
 
