@@ -1,3 +1,7 @@
+**Russell Westbrook joins LeBron James after achieving another NBA milestone**\
+`The Kings guard also is the eighth NBA player with 10,000 assists.`\
+https://nytimes.com/athletic/6810061/2025/11/15/russell-westbrook-nba-club-lebron-james-milestone/
+
 **How to watch Nuggets vs. Timberwolves: Time, TV, streaming**\
 `Find out how to watch the Denver Nuggets play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6810181/2025/11/15/nuggets-vs-timberwolves-stream-how-to-watch-nov-15/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6810165/2025/11/15/flyers-vs-stars-stream-how-to-wa
 **How to watch Lakers vs. Bucks: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Lakers play the Milwaukee Bucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6810163/2025/11/15/lakers-vs-bucks-stream-how-to-watch-nov-15/
-
-**How to watch Oilers vs. Hurricanes: Time, TV, streaming**\
-`Find out how to watch the Edmonton Oilers play the Carolina Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6810161/2025/11/15/oilers-vs-hurricanes-stream-how-to-watch-nov-15/
 
