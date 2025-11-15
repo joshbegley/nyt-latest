@@ -1,3 +1,7 @@
+**In the Epstein Saga, Trump Is His Own Worst Enemy**\
+`Is this the beginning of the end for Trump and his MAGA base?`\
+https://nytimes.com/video/opinion/100000010524967/in-the-epstein-saga-trump-is-his-own-worst-enemy.html
+
 **Tuning In**\
 `Sometimes we assume the people and things around us are neutral or hostile to our existence. What if the opposite could be true?`\
 https://nytimes.com/2025/11/15/briefing/tuning-in.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6806956/2025/11/15/college-football-week-12-preview
 **NFL Week 11 roundtable: Giants coaching job, Seahawks vs. Rams, Bills' woes**\
 `Could Seahawks-Rams be the Game of the Year? Can the Broncos keep its win streak intact vs. the Chiefs? Our writers discuss.`\
 https://nytimes.com/athletic/6808663/2025/11/15/nfl-week-11-giants-coach-seahawks-rams-bills/
-
-**Mirtle: The flailing Maple Leafs can't throw good assets after bad to save their season**\
-`As the Leafs continue to struggle and the need for drastic measures grows, a trade might not be the answer for GM Brad Treliving.`\
-https://nytimes.com/athletic/6808320/2025/11/15/maple-leafs-season-trade-assets/
 
