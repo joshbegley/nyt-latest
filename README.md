@@ -1,3 +1,7 @@
+**OHL suspends Steelheads' Luke Dragusica for slash to head vs. Generals**\
+`Dragusica was given a match penalty before Brampton's 3-1 win, and the suspension is "pending review" according to the OHL website.`\
+https://nytimes.com/athletic/6810329/2025/11/15/ohl-luke-dragusica-suspension-steelheads-generals/
+
 **Source: J.K. Dobbins to go on IR with foot injury, will need surgery**\
 `Dobbins entered the week fifth in the NFL with 772 yards rushing and on pace to produce the Broncos' highest single-season total since 2003.`\
 https://nytimes.com/athletic/6810462/2025/11/15/broncos-jk-dobbins-foot-injured-reserve/
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6810256/2025/11/15/amon-ra-st-brown-fined-lions-pun
 `Easley was regarded as one of the most fearsome defenders of his era, earning the nickname “The Enforcer.”`\
 https://nytimes.com/athletic/6810355/2025/11/15/kenny-easley-death-seahawks-obit/
 
-**Carlos Alcaraz and Jannik Sinner will bring down the curtain on tennis season they dominated**\
+**Carlos Alcaraz and Jannik Sinner bring down the curtain on season they dominated**\
 `The two runaway best men's players in the world will meet on a surface that one loves and that the other is learning to love.`\
 https://nytimes.com/athletic/6810571/2025/11/15/tennis-alcaraz-sinner-atp-tour-finals/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6810541/2025/11/15/navy-south-florida-score-result-
 **College Football Playoff 2025 projections: The most likely bracket with Week 12 underway**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/11/15/college-football-playoff-bracket-projections-odds/
-
-**Chris Ponnet, Priest Who Preached Social Justice Far Beyond Pulpit, Dies at 68**\
-`Courting arrest, he protested against war and the death penalty. He also performed an annual burial ceremony for hundreds of unclaimed bodies.`\
-https://nytimes.com/2025/11/15/obituaries/father-chris-ponnet-dead.html
 
