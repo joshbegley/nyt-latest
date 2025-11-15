@@ -1,3 +1,7 @@
+**The Play ‘Liberation’ and the Unfinished Work of Women’s Progress**\
+`The show, in its depiction of the early feminist movement, is an essential part of the ongoing fight for women’s progress.`\
+https://nytimes.com/2025/11/15/opinion/liberation-play-women-feminism.html
+
 **UCLA's Nico Iamaleava out for Ohio State game with concussion**\
 `Luke Duncan, the Bruins’ backup quarterback who has not yet attempted a pass in a college game, will get the start in Columbus.`\
 https://nytimes.com/athletic/6809695/2025/11/15/nico-iamaleava-ucla-ohio-state-concussion/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6808786/2025/11/15/everything-fantasy-football-mana
 **An Economist Asked, How Much Should We Spend to Avoid the A.I. Apocalypse?**\
 `The question “at first struck me as too open-ended to be usefully addressed by standard economics,” said Charles Jones of Stanford. He took a shot anyway.`\
 https://nytimes.com/2025/11/15/business/dealbook/an-economist-asked-how-much-should-we-spend-to-avoid-the-ai-apocalypse.html
-
-**Victor Wembanyama, Draymond Green relish going toe-to-toe after massive alley-oop**\
-`Victor Wembanyama and Draymond Green spoke about their confrontation following the Spurs star's big dunk Friday.`\
-https://nytimes.com/athletic/6809328/2025/11/15/wembanyama-draymond-green-warriors-spurs/
 
