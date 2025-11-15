@@ -1,3 +1,11 @@
+**The New York Times in Print for Saturday, Nov. 15, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/15/todays-new-york-times
+
+**Clippers, Mavericks sent to second OT after AI-assisted replay overturns goaltending call**\
+`The Clippers appeared to go up by two points with 1.4 seconds remaining in the first overtime. AI-assisted replay overturned the call.`\
+https://nytimes.com/athletic/6809217/2025/11/15/clippers-mavericks-goaltending-review-overtime/
+
 **Nebraska volleyball sets another attendance record. This time at UCLA's Pauley Pavilion**\
 `Nebraska has played in seven matches this season — and 19 since 2023 — that set arena attendance records for volleyball.`\
 https://nytimes.com/athletic/6809255/2025/11/15/nebraska-ucla-pauley-pavilion-attendance-record/
