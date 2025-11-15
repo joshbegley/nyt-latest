@@ -1,40 +1,40 @@
-**Watch: Dan Campbell taking Lions offense into his own hands**\
-`Dan Campbell has wasted no time making the Lions offense his own.`\
-https://nytimes.com/athletic/6807892/2025/11/15/lions-dan-campbell-offense-play-calling/
+**How to watch Nuggets vs. Timberwolves: Time, TV, streaming**\
+`Find out how to watch the Denver Nuggets play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6810181/2025/11/15/nuggets-vs-timberwolves-stream-how-to-watch-nov-15/
 
-**How to watch Fairfield vs. North Carolina women's basketball: Time, TV, streaming**\
-`Find out how to watch the Fairfield Stags play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6810138/2025/11/15/fairfield-vs-north-carolina-stream-how-to-watch-nov-15/
+**How to watch Golden Knights vs. Blues: Time, TV, streaming**\
+`Find out how to watch the Vegas Golden Knights play the St. Louis Blues, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6810179/2025/11/15/golden-knights-vs-blues-stream-how-to-watch-nov-15/
 
-**How to watch William & Mary vs. St. John's men's basketball: Time, TV, streaming**\
-`Find out how to watch the William & Mary Tribe play the St. John's Red Storm, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6810136/2025/11/15/william-mary-vs-st-john-s-stream-how-to-watch-nov-15/
+**How to watch Thunder vs. Hornets: Time, TV, streaming**\
+`Find out how to watch the Oklahoma City Thunder play the Charlotte Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6810176/2025/11/15/thunder-vs-hornets-stream-how-to-watch-nov-15/
 
-**How to watch BYU vs. UConn men's basketball: Time, TV, streaming**\
-`Find out how to watch the BYU Cougars play the UConn Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6810134/2025/11/15/byu-vs-uconn-stream-how-to-watch-nov-15/
+**How to watch Maple Leafs vs. Blackhawks: Time, TV, streaming**\
+`Find out how to watch the Toronto Maple Leafs play the Chicago Blackhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6810174/2025/11/15/maple-leafs-vs-blackhawks-stream-how-to-watch-nov-15/
 
-**What are the fastest firings in sports history? Where Willie Green's 12-game dismissal ranks**\
-`Green's firing was relatively fast, just 12 games into the season, but was it historic? Here are some notable quick coach firings.`\
-https://nytimes.com/athletic/6773699/2025/11/15/sports-history-fastest-coach-firings/
+**How to watch Raptors vs. Pacers: Time, TV, streaming**\
+`Find out how to watch the Toronto Raptors play the Indiana Pacers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6810170/2025/11/15/raptors-vs-pacers-stream-how-to-watch-nov-15/
 
-**What we know about Virginia Tech's pursuit of James Franklin**\
-`Virginia Tech staff members had been told by school officials they hope to have a resolution in their search by Monday, a source said.`\
-https://nytimes.com/athletic/6810043/2025/11/15/james-franklin-virginia-tech-coaching-search/
+**How to watch Ducks vs. Wild: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6810171/2025/11/15/ducks-vs-wild-stream-how-to-watch-nov-15/
 
-**Texas A&M, coach Mike Elko finalizing lucrative new contract: Source**\
-`The six-year deal is worth more than $10 million annually, and will make him a top-five paid coach in college football.`\
-https://nytimes.com/athletic/6810021/2025/11/15/texas-am-mike-elko-contract/
+**How to watch Rangers vs. Blue Jackets: Time, TV, streaming**\
+`Find out how to watch the New York Rangers play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6810167/2025/11/15/rangers-vs-blue-jackets-stream-how-to-watch-nov-15/
 
-**Man Arrested After Appearing at Alina Habba’s Office With Bat, U.S. Says**\
-`Authorities said Keith Michael Lisa had a bat when he showed up at the office of the U.S. attorney for New Jersey on Wednesday. He was charged with possession of a dangerous weapon in a federal facility.`\
-https://nytimes.com/2025/11/15/nyregion/alina-habba-us-attorney-arrest-bat.html
+**How to watch Flyers vs. Stars: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Flyers play the Dallas Stars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6810165/2025/11/15/flyers-vs-stars-stream-how-to-watch-nov-15/
 
-**Blues power rankings: Dalibor Dvorsky delivering, 'DJ Neighbours' and a kiss-cam reaction**\
-`The Blues are 6-8-4 in 18 games this season, but there are some positive vibes around the organization.`\
-https://nytimes.com/athletic/6781200/2025/11/15/blues-power-rankings-dalibor-dvorsky-jake-neighbours/
+**How to watch Lakers vs. Bucks: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the Milwaukee Bucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6810163/2025/11/15/lakers-vs-bucks-stream-how-to-watch-nov-15/
 
-**On a Clipped Wing, Flamingo Escapes a British Zoo for a Life in France**\
-`Frankie, a young Caribbean Flamingo, flew 130 miles from captivity. Her keepers said they would likely have to leave her in France.`\
-https://nytimes.com/2025/11/15/world/europe/flamingo-zoo-escape-britain-france.html
+**How to watch Oilers vs. Hurricanes: Time, TV, streaming**\
+`Find out how to watch the Edmonton Oilers play the Carolina Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6810161/2025/11/15/oilers-vs-hurricanes-stream-how-to-watch-nov-15/
 
