@@ -1,3 +1,11 @@
+**How to watch William & Mary vs. St. John's men's basketball: Time, TV, streaming**\
+`Find out how to watch the William & Mary Tribe play the St. John's Red Storm, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6810136/2025/11/15/william-mary-vs-st-john-s-stream-how-to-watch-nov-15/
+
+**How to watch BYU vs. UConn men's basketball: Time, TV, streaming**\
+`Find out how to watch the BYU Cougars play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6810134/2025/11/15/byu-vs-uconn-stream-how-to-watch-nov-15/
+
 **What are the fastest firings in sports history? Where Willie Green's 12-game dismissal ranks**\
 `Green's firing was relatively fast, just 12 games into the season, but was it historic? Here are some notable quick coach firings.`\
 https://nytimes.com/athletic/6773699/2025/11/15/sports-history-fastest-coach-firings/

@@ -1,3 +1,11 @@
+**How to watch William & Mary vs. St. John's men's basketball: Time, TV, streaming**\
+`Find out how to watch the William & Mary Tribe play the St. John's Red Storm, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6810136/2025/11/15/william-mary-vs-st-john-s-stream-how-to-watch-nov-15/
+
+**How to watch BYU vs. UConn men's basketball: Time, TV, streaming**\
+`Find out how to watch the BYU Cougars play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6810134/2025/11/15/byu-vs-uconn-stream-how-to-watch-nov-15/
+
 **What are the fastest firings in sports history? Where Willie Green's 12-game dismissal ranks**\
 `Green's firing was relatively fast, just 12 games into the season, but was it historic? Here are some notable quick coach firings.`\
 https://nytimes.com/athletic/6773699/2025/11/15/sports-history-fastest-coach-firings/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/15/opinion/vance-fuentes-carlson.html
 **Smart, Doable Tips (And Recipes) for a Healthier Thanksgiving**\
 `Cacio e pepe green beans and roasted lemon caper brussels sprouts make it easy to fill your plate with vegetables.`\
 https://nytimes.com/2025/11/15/dining/smart-doable-tips-and-recipes-for-a-healthier-thanksgiving.html
-
-**Hemp backs Man City to continue WSL winning run after Man Utd victory**\
-`City secured a 3-0 win at the Etihad in the season's first Manchester derby.`\
-https://nytimes.com/athletic/6809846/2025/11/15/manchester-city-manchester-united-wsl-hemp/
-
-**'I'm excited about the future': Steph Curry honors Kobe Bryant as shoe free agency begins**\
-`Curry noted it may be "weird seeing me in anything else" when he wore Nike Kobe 6 "Mambacita" shoes during warmups on Friday night.`\
-https://nytimes.com/athletic/6809445/2025/11/15/steph-curry-kobe-bryant-shoes/
 
