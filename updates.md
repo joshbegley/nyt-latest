@@ -1,3 +1,7 @@
+**Trinity Rodman negotiations reach NWSL commissioner as English teams express interest**\
+`The 23-year-old will be a free agent this offseason.`\
+https://nytimes.com/athletic/6809659/2025/11/15/trinity-rodman-washington-spirit-nwsl-negotiations/
+
 **Mikaela Shiffrin starts slalom season with her 102nd World Cup victory**\
 `Shiffrin won the season-opening slalom race Saturday in Finland, starting off the Olympic year on top in her best discipline.`\
 https://nytimes.com/athletic/6809649/2025/11/15/mikaela-shiffrin-slalom-world-cup-finland-olympics/
