@@ -1,3 +1,7 @@
+**Michigan avoids Northwestern upset at Wrigley Field with walk-off field goal**\
+`No. 18 Michigan committed five turnovers but escaped Northwestern with a 24-22 win thanks to a last-second field goal by Dominic Zvada.`\
+https://nytimes.com/athletic/6810391/2025/11/15/michigan-northwestern-football-score-result-wrigley/
+
 **Fetterman Is Released From the Hospital After a Fall**\
 `The Pennsylvania senator was hospitalized on Thursday after he fell during a morning walk near his home in Braddock, Pa.`\
 https://nytimes.com/2025/11/15/us/john-fetterman-fall-hospital-released.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6810444/2025/11/15/sharks-vs-kraken-stream-how-to-w
 **Spirit advance to NWSL Championship with 2-0 win over Thorns**\
 `The Washington Spirit head to their second consecutive NWSL Championship with the win. `\
 https://nytimes.com/athletic/6810322/2025/11/15/washington-spirit-defeat-portland-thorns-nwsl-semifinal/
-
-**How to watch South Carolina vs. USC women's basketball: Time, TV, streaming**\
-`Find out how to watch the South Carolina Gamecocks play the USC Trojans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6810407/2025/11/15/south-carolina-vs-usc-stream-how-to-watch-nov-15/
 
