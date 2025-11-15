@@ -1,3 +1,7 @@
+**UCLA's Nico Iamaleava out for Ohio State game with concussion**\
+`Luke Duncan, the Bruins’ backup quarterback who has not yet attempted a pass in a college game, will get the start in Columbus.`\
+https://nytimes.com/athletic/6809695/2025/11/15/nico-iamaleava-ucla-ohio-state-concussion/
+
 **Trinity Rodman negotiations reach NWSL commissioner as English teams express interest**\
 `The 23-year-old will be a free agent this offseason.`\
 https://nytimes.com/athletic/6809659/2025/11/15/trinity-rodman-washington-spirit-nwsl-negotiations/
