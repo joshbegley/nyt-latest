@@ -1,3 +1,7 @@
+**UCLA slowed down Arizona's key freshman — but the Wildcats' veterans took over**\
+`UCLA made life difficult for Arizona’s touted freshmen, but Jaden Bradley and the Wildcats’ veterans carried a gritty win away from home.`\
+https://nytimes.com/athletic/6809291/2025/11/15/ucla-arizona-score-result-takeaways/
+
 **How to watch Lightning vs. Panthers: Time, TV, streaming**\
 `Find out how to watch the Tampa Bay Lightning play the Florida Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6809823/2025/11/15/lightning-vs-panthers-stream-how-to-watch-nov-15/
