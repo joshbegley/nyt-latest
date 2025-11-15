@@ -1,3 +1,7 @@
+**Nebraska volleyball sets another attendance record. This time at UCLA's Pauley Pavilion**\
+`Nebraska has played in seven matches this season — and 19 since 2023 — that set arena attendance records for volleyball.`\
+https://nytimes.com/athletic/6809255/2025/11/15/nebraska-ucla-pauley-pavilion-attendance-record/
+
 **Clippers, Mavericks sent to second OT after replay overturns goaltending call**\
 `The Clippers appeared to go up by two points with 1.4 seconds remaining in the first overtime. AI-assisted replay overturned the call.`\
 https://nytimes.com/athletic/6809217/2025/11/15/clippers-mavericks-goaltending-review-overtime/
