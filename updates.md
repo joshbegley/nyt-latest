@@ -1,3 +1,7 @@
+**Nuggets' Christian Braun injures ankle, will miss at least 6 weeks**\
+`Denver will likely not have its 24-year-old ace perimeter defender until the new calendar year after he injured his ankle on Wednesday.`\
+https://nytimes.com/athletic/6808694/2025/11/14/christian-braun-injury-nuggets-ankle-status/
+
 **Fuel Tanker Diverted in Strait of Hormuz, Raising Fears of Iranian Seizure**\
 `The ship, which was flying a Marshall Islands flag, was bound for Singapore when it lost contact with its managers and appeared headed toward Iran.`\
 https://nytimes.com/2025/11/14/world/middleeast/iran-tanker-strait-of-hormuz.html
