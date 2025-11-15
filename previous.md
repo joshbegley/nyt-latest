@@ -1,3 +1,19 @@
+**Blues power rankings: Dalibor Dvorsky delivering, 'DJ Neighbours' and a kiss cam reaction**\
+`The Blues are 6-8-4 in 18 games this season, but there are some positive vibes around the organization.`\
+https://nytimes.com/athletic/6781200/2025/11/15/blues-power-rankings-dalibor-dvorsky-jake-neighbours/
+
+**On a Clipped Wing, Flamingo Escapes a British Zoo for a Life in France**\
+`Frankie, a young Caribbean Flamingo, flew 130 miles from captivity. Her keepers said they would likely have to leave her in France.`\
+https://nytimes.com/2025/11/15/world/europe/flamingo-zoo-escape-britain-france.html
+
+**Why Doesn’t JD Vance Have More to Say About Nick Fuentes?**\
+`The vice president is idling at the edges of American politics.`\
+https://nytimes.com/2025/11/15/opinion/vance-fuentes-carlson.html
+
+**Smart, Doable Tips (And Recipes) for a Healthier Thanksgiving**\
+`Cacio e pepe green beans and roasted lemon caper brussels sprouts make it easy to fill your plate with vegetables.`\
+https://nytimes.com/2025/11/15/dining/smart-doable-tips-and-recipes-for-a-healthier-thanksgiving.html
+
 **Hemp backs Man City to continue WSL winning run after Man Utd victory**\
 `City secured a 3-0 win at the Etihad in the season's first Manchester derby.`\
 https://nytimes.com/athletic/6809846/2025/11/15/manchester-city-manchester-united-wsl-hemp/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6809058/2025/11/15/nfl-rumors-news-eagles-offense-g
 **No, You Don’t Have to Bake a Pie for Thanksgiving**\
 `Make cranberry tiramisù. Or pecan pie brownies. Or Basque cheesecake.`\
 https://nytimes.com/2025/11/15/dining/no-you-dont-have-to-bake-a-pie-for-thanksgiving.html
-
-**How Seahawks' Aden Durde is blazing a path to the NFL for Britons**\
-`“The first time I was inspired by the sport was watching the '85 Bears video that my mom bought,” Durde said.`\
-https://nytimes.com/athletic/6807824/2025/11/15/aden-durde-seahawks-brits-nfl-dreams/
-
-**Pelicans fire coach Willie Green after poor start to 2025-26 season**\
-`Green, 44, was in his fifth season as head coach in New Orleans, but the Pelicans have continued a downward spiral since last season.`\
-https://nytimes.com/athletic/6767611/2025/11/15/willie-green-fired-pelicans-coach/
-
-**Watch: How Tyler Warren has helped elevate Colts' surging offense**\
-`Warren did a little bit of everything for Penn State's offense, and he's carried that versatility into the NFL.`\
-https://nytimes.com/athletic/6809718/2025/11/15/tyler-warren-colts-video-scouting-report/
-
-**UCLA slowed down Arizona's key freshmen — but the Wildcats' veterans took over**\
-`UCLA made life difficult for Arizona’s touted freshmen, but Jaden Bradley and the Wildcats’ veterans carried a gritty win away from home.`\
-https://nytimes.com/athletic/6809291/2025/11/15/ucla-arizona-score-result-takeaways/
 
