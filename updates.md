@@ -1,3 +1,15 @@
+**Russini: What I'm hearing on the Eagles' offense and what's next for Joe Schoen and the Giants**\
+`Also: An NFC West heavyweight bout, a fight Aaron Glenn doesn't need to pick and why NFL coaches want their players to stop pumping.`\
+https://nytimes.com/athletic/6809058/2025/11/15/nfl-rumors-news-eagles-offense-giants-coaching-search/
+
+**No, You Don’t Have to Bake a Pie for Thanksgiving**\
+`Make cranberry tiramisù. Or pecan pie brownies. Or Basque cheesecake.`\
+https://nytimes.com/2025/11/15/dining/no-you-dont-have-to-bake-a-pie-for-thanksgiving.html
+
+**UCLA slowed down Arizona's key freshmen — but the Wildcats' veterans took over**\
+`UCLA made life difficult for Arizona’s touted freshmen, but Jaden Bradley and the Wildcats’ veterans carried a gritty win away from home.`\
+https://nytimes.com/athletic/6809291/2025/11/15/ucla-arizona-score-result-takeaways/
+
 **How Seahawks' Aden Durde is blazing a path to the NFL for Britons**\
 `“The first time I was inspired by the sport was watching the '85 Bears video that my mom bought,” Durde said.`\
 https://nytimes.com/athletic/6807824/2025/11/15/aden-durde-seahawks-brits-nfl-dreams/
