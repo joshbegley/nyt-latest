@@ -1,3 +1,7 @@
+**Bucks spoil Kon Knueppel's Milwaukee homecoming with overtime victory**\
+`The Hornets' rookie scored a career-high 32 points, sending the game into overtime. But Milwaukee dominated overtime to earn the win.`\
+https://nytimes.com/athletic/6809152/2025/11/14/kon-knueppel-bucks-hornets-score-highlights/
+
 **Patrick Beverley, ex-NBA guard, charged with assault of family member in Texas**\
 `Beverley was arrested early Friday morning in Fort Bend County (Texas).`\
 https://nytimes.com/athletic/6809065/2025/11/14/patrick-beverly-assault-arrest/
