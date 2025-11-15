@@ -1,3 +1,7 @@
+**Source: J.K. Dobbins to go on IR with foot injury, will need surgery**\
+`Dobbins entered the week fifth in the NFL with 772 yards rushing and on pace to produce the Broncos' highest single-season total since 2003.`\
+https://nytimes.com/athletic/6810462/2025/11/15/broncos-jk-dobbins-foot-injured-reserve/
+
 **U.S. Border Patrol Launches Operation in Charlotte**\
 `It is unclear how long the operation will last in North Carolina’s largest city, which has a growing immigrant population.`\
 https://nytimes.com/2025/11/15/us/us-border-patrol-charlotte-nc-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6560541/2025/11/15/college-football-playoff-bracket
 **Chris Ponnet, Priest Who Preached Social Justice Far Beyond Pulpit, Dies at 68**\
 `Courting arrest, he protested against war and the death penalty. He also performed an annual burial ceremony for hundreds of unclaimed bodies.`\
 https://nytimes.com/2025/11/15/obituaries/father-chris-ponnet-dead.html
-
-**Notre Dame strengthens Playoff case with blowout win at Pitt: 3 takeaways**\
-`Notre Dame will be heavy favorites against Syracuse and Stanford to end the season, and would likely make the Playoff at 10-2.`\
-https://nytimes.com/athletic/6810452/2025/11/15/notre-dame-pitt-score-result/
 
