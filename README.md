@@ -10,7 +10,7 @@ https://nytimes.com/2025/11/15/world/canada/vatican-return-indigenous-canada-art
 `Daniel Edwin Wilson and Suzanne Kaye had been convicted of crimes indirectly connected to the 2021 attack on the Capitol.`\
 https://nytimes.com/2025/11/15/us/politics/trump-pardons-jan-6.html
 
-**Steph Curry and the old-guard Warriors show they can still dunk on you too**\
+**Steph Curry and the old-guard Warriors show they can still dunk on you, too**\
 `Draymond Green lit the spark, Curry dropped 95 points across two games, and the Warriors got consecutive big wins in San Antonio.`\
 https://nytimes.com/athletic/6810240/2025/11/15/stephen-curry-warriors-spurs-draymond-green-jimmy-butler/
 
