@@ -1,3 +1,11 @@
+**Russini: What I'm hearing on the Eagles' offense and what's next for Joe Schoen and the Giants**\
+`Also: An NFC West heavyweight bout, a fight Aaron Glenn doesn't need to pick and why NFL coaches want their players to stop pumping.`\
+https://nytimes.com/athletic/6809058/2025/11/15/nfl-rumors-news-eagles-offense-giants-coaching-search/
+
+**No, You Don’t Have to Bake a Pie for Thanksgiving**\
+`Make cranberry tiramisù. Or pecan pie brownies. Or Basque cheesecake.`\
+https://nytimes.com/2025/11/15/dining/no-you-dont-have-to-bake-a-pie-for-thanksgiving.html
+
 **How Seahawks' Aden Durde is blazing a path to the NFL for Britons**\
 `“The first time I was inspired by the sport was watching the '85 Bears video that my mom bought,” Durde said.`\
 https://nytimes.com/athletic/6807824/2025/11/15/aden-durde-seahawks-brits-nfl-dreams/
@@ -10,7 +18,7 @@ https://nytimes.com/athletic/6767611/2025/11/15/willie-green-fired-pelicans-coac
 `Warren did a little bit of everything for Penn State's offense, and he's carried that versatility into the NFL.`\
 https://nytimes.com/athletic/6809718/2025/11/15/tyler-warren-colts-video-scouting-report/
 
-**UCLA slowed down Arizona's key freshman — but the Wildcats' veterans took over**\
+**UCLA slowed down Arizona's key freshmen — but the Wildcats' veterans took over**\
 `UCLA made life difficult for Arizona’s touted freshmen, but Jaden Bradley and the Wildcats’ veterans carried a gritty win away from home.`\
 https://nytimes.com/athletic/6809291/2025/11/15/ucla-arizona-score-result-takeaways/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6809792/2025/11/15/notre-dame-vs-michigan-stream-ho
 **The Play ‘Liberation’ and the Unfinished Work of Women’s Progress**\
 `The show, in its depiction of the early feminist movement, is an essential part of the ongoing fight for women’s progress.`\
 https://nytimes.com/2025/11/15/opinion/liberation-play-women-feminism.html
-
-**UCLA's Nico Iamaleava out for Ohio State game with concussion**\
-`Luke Duncan, the Bruins’ backup quarterback who has not yet attempted a pass in a college game, will get the start in Columbus.`\
-https://nytimes.com/athletic/6809695/2025/11/15/nico-iamaleava-ucla-ohio-state-concussion/
-
-**Trinity Rodman negotiations reach NWSL commissioner as English teams express interest**\
-`The 23-year-old will be a free agent this offseason.`\
-https://nytimes.com/athletic/6809659/2025/11/15/trinity-rodman-washington-spirit-nwsl-negotiations/
 
