@@ -1,3 +1,11 @@
+**Trump Pardons Two for Crimes Related to Jan. 6**\
+`Daniel Edwin Wilson and Suzanne Kaye had been convicted of crimes indirectly connected to the 2021 attack on the Capitol.`\
+https://nytimes.com/2025/11/15/us/politics/trump-pardons-jan-6.html
+
+**Steph Curry and the old-guard Warriors show they can still dunk on you too**\
+`Draymond Green lit the spark, Curry dropped 95 points across two games, and the Warriors got consecutive big wins in San Antonio.`\
+https://nytimes.com/athletic/6810240/2025/11/15/stephen-curry-warriors-spurs-draymond-green-jimmy-butler/
+
 **Pope Leo Urges Cinema Notables to Redouble Focus on Social Justice**\
 `But left unspoken at a Vatican meeting with film stars were the deep divisions over issues like abortion and homosexuality.`\
 https://nytimes.com/2025/11/15/world/europe/pope-leo-cinema-actors-vatican-meeting.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6810281/2025/11/15/dodgers-kike-hernandez-world-bas
 **Alice Wong, Writer and Relentless Advocate for Disability Rights, Dies at 51**\
 `Born with muscular dystrophy, she received a MacArthur “Genius” grant in 2024 for her decades of calling attention to the need for equal rights for disabled people.`\
 https://nytimes.com/2025/11/15/us/alice-wong-dead.html
-
-**Devils star center Jack Hughes has finger surgery, expected to miss 8 weeks**\
-`Hughes sustained the injury at a team dinner Thursday in Chicago in what a league source described as a freak accident.`\
-https://nytimes.com/athletic/6810261/2025/11/15/jack-hughes-new-jersey-devils-finger-surgery/
-
-**West Virginia women upset No. 15 Duke after melee triggers 7 ejections**\
-`The Mountaineers' 57-49 win could be the upset of the season, after a first-half scuffle led to six West Virginia players being ejected.`\
-https://nytimes.com/athletic/6809915/2025/11/15/west-virginia-duke-womens-basketball-upset-ejections/
 
