@@ -1,3 +1,7 @@
+**Texas A&M, coach Mike Elko finalizing lucrative new contract: Source**\
+`The six-year deal is worth more than $10 million annually, and will make him a top-five paid coach in college football.`\
+https://nytimes.com/athletic/6810021/2025/11/15/texas-am-mike-elko-contract/
+
 **Man Arrested After Appearing at Alina Habba’s Office With Bat, U.S. Says**\
 `Authorities said Keith Michael Lisa had a bat when he showed up at the office of the U.S. attorney for New Jersey on Wednesday. He was charged with possession of a dangerous weapon in a federal facility.`\
 https://nytimes.com/2025/11/15/nyregion/alina-habba-us-attorney-arrest-bat.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6809744/2025/11/15/riccardo-calafiori-arsenal-italy
 **Former Fed Official Violated Trading Rules, Disclosures Show**\
 `Adriana D. Kugler, who stepped down as a governor in August, reported trades in stocks, including Apple and Southwest Airlines, in 2024.`\
 https://nytimes.com/2025/11/15/business/economy/fed-kugler-financial-disclosures.html
-
-**Russini: What I'm hearing on the Eagles' offense and what's next for Joe Schoen and the Giants**\
-`Also: An NFC West heavyweight bout, a fight Aaron Glenn doesn't need to pick and why NFL coaches want their players to stop pumping.`\
-https://nytimes.com/athletic/6809058/2025/11/15/nfl-rumors-news-eagles-offense-giants-coaching-search/
 
