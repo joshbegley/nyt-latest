@@ -1,3 +1,7 @@
+**Displaced Gazans Face More Misery as Torrential Rain Lashes Enclave**\
+`Heavy rainfall and chilling winds have added to the challenges facing people still forced to live in tents in the devastated territory.`\
+https://nytimes.com/2025/11/15/world/middleeast/gazan-winter-tent-camps.html
+
 **Brian Robinson Jr. thriving in new role as 49ers' offense continues to take shape**\
 `Coach Kyle Shanahan said he thinks Robinson has had his best game "four weeks in a row."`\
 https://nytimes.com/athletic/6808081/2025/11/15/brian-robinson-jr-49ers-offense/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6807574/2025/11/15/mls-commissioner-don-garber-addr
 **The BBC Is Inept, Imperiled and Absolutely Essential**\
 `The question of how to be a public broadcaster for everyone isn’t going to get easier, but the British broadcaster can do better in the attempt.`\
 https://nytimes.com/2025/11/15/opinion/bbc-trump-apology.html
-
-**America’s Formula for Greatness Is Under Threat**\
-`Education, open markets, trade and immigration transformed the United States into the world’s dominant power, but each is now being weakened.`\
-https://nytimes.com/2025/11/15/opinion/education-trade-immigration-decline-trump.html
 
