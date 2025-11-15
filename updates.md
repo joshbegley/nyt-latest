@@ -1,3 +1,7 @@
+**Victor Wembanyama, Draymond Green relish going toe-to-toe after massive alley-oop**\
+`Victor Wembanyama and Draymond Green spoke about their confrontation following the Spurs star's big dunk Friday.`\
+https://nytimes.com/athletic/6809328/2025/11/15/wembanyama-draymond-green-warriors-spurs/
+
 **Displaced Gazans Face More Misery as Torrential Rain Lashes Enclave**\
 `Heavy rainfall and chilling winds have added to the challenges facing people still forced to live in tents in the devastated territory.`\
 https://nytimes.com/2025/11/15/world/middleeast/gazan-winter-tent-camps.html
