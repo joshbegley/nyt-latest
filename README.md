@@ -1,3 +1,7 @@
+**No. 3 Texas A&M stays unbeaten with largest comeback in school history**\
+`According to ESPN, SEC teams had been 0-286 in games in which they trailed by 27 points since 2004.`\
+https://nytimes.com/athletic/6810346/2025/11/15/texas-am-south-carolina-score-comeback/
+
 **Texas A&M police send home trooper who bumped South Carolina players in tunnel**\
 `The Texas Department of Public Safety said its Office of Inspector General would be further looking into the incident.`\
 https://nytimes.com/athletic/6810423/2025/11/15/texas-am-police-south-carolina-nyck-harbor/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/15/us/parakeets-smuggling-in-pants.html
 **Vatican to Return Indigenous Cultural Items to Canada Taken a Century Ago**\
 `Dozen of pieces used in a 1925 exhibition, including a whale-hunting kayak, will be returned to Canada early next month.`\
 https://nytimes.com/2025/11/15/world/canada/vatican-return-indigenous-canada-artifacts.html
-
-**Trump Pardons Two for Crimes Related to Jan. 6**\
-`Daniel Edwin Wilson and Suzanne Kaye had been convicted of crimes indirectly connected to the 2021 attack on the Capitol.`\
-https://nytimes.com/2025/11/15/us/politics/trump-pardons-jan-6.html
 
