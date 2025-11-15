@@ -1,3 +1,7 @@
+**Patrick Beverley, ex-NBA guard, charged with assault of family member in Texas**\
+`Beverley was arrested early Friday morning in Fort Bend County (Texas).`\
+https://nytimes.com/athletic/6809065/2025/11/14/patrick-beverly-assault-arrest/
+
 **Officers were hurt in a crash while protecting Vance’s motorcade in Tennessee.**\
 `A police officer who was on a motorcyc`\
 https://nytimes.com/live/2025/11/14/us/trump-shutdown-news/vance-motorcade-accident-tennessee
