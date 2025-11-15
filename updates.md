@@ -1,3 +1,7 @@
+**Steph Curry and the old-guard Warriors show they can still dunk on you, too**\
+`Draymond Green lit the spark, Curry dropped 95 points across two games, and the Warriors got consecutive big wins in San Antonio.`\
+https://nytimes.com/athletic/6810240/2025/11/15/stephen-curry-warriors-spurs-draymond-green-jimmy-butler/
+
 **Man Who Stuffed Parakeets in His Pants Faces Smuggling Charge**\
 `The man was found with the heavily sedated birds in his underwear as he crossed the border from Mexico in late October, federal prosecutors said.`\
 https://nytimes.com/2025/11/15/us/parakeets-smuggling-in-pants.html
