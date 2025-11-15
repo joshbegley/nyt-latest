@@ -1,3 +1,7 @@
+**Former Fed Official Violated Trading Rules, Disclosures Show**\
+`Adriana D. Kugler, who stepped down as a governor in August, reported trades in stocks, including Apple and Southwest Airlines, in 2024.`\
+https://nytimes.com/2025/11/15/business/economy/fed-kugler-financial-disclosures.html
+
 **Russini: What I'm hearing on the Eagles' offense and what's next for Joe Schoen and the Giants**\
 `Also: An NFC West heavyweight bout, a fight Aaron Glenn doesn't need to pick and why NFL coaches want their players to stop pumping.`\
 https://nytimes.com/athletic/6809058/2025/11/15/nfl-rumors-news-eagles-offense-giants-coaching-search/
