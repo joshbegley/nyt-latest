@@ -1,3 +1,15 @@
+**How to watch Kentucky vs. Marshall women's basketball: Time, TV, streaming**\
+`Find out how to watch the Kentucky Wildcats play the Marshall Thundering Herd, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6809582/2025/11/15/kentucky-vs-marshall-stream-how-to-watch-nov-15/
+
+**How to watch Ohio vs. Louisville men's basketball: Time, TV, streaming**\
+`Find out how to watch the Ohio Bobcats play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6809569/2025/11/15/ohio-vs-louisville-stream-how-to-watch-nov-15/
+
+**How to watch the NWSL semifinals this weekend**\
+`Four clubs remain in the NWSL bracket. Two will emerge from this weekend's semifinal action.`\
+https://nytimes.com/athletic/6805795/2025/11/15/nwsl-semifinals-washington-portland-orlando-gotham-how-to-watch/
+
 **What I'm hearing about the Phillies: Schwarber's free agency, trade market, bullpen reboot**\
 `Schwarber is valued highly by the Phillies, but it's not obvious how the market will view him. If not the Phillies, who is it?`\
 https://nytimes.com/athletic/6807855/2025/11/15/phillies-offseason-trades-kyle-schwarber-free-agency/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6808663/2025/11/15/nfl-week-11-giants-coach-seahawk
 **An Acquaintance Might Be a Racist. Do I Need to Drop Him?**\
 `I included him in an Instagram story before I knew. Should I have deleted it?`\
 https://nytimes.com/2025/11/15/magazine/magazine-email/racist-acquaintance-ethics.html
-
-**Connections Companion No. 889**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 16, 2025.`\
-https://nytimes.com/2025/11/15/crosswords/connections-companion-889.html
-
-**A Challenge to Canada’s Official Policy That the U.S. Is Safe for Migrants**\
-`A former Liberal immigration minister said that Canada should drop an agreement that allows it to return asylum seekers who enter from the U.S.`\
-https://nytimes.com/2025/11/15/world/canada/immigration-refugees-safe-third-country.html
-
-**Strands Sidekick No. 623**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 16, 2025.`\
-https://nytimes.com/2025/11/15/crosswords/strands-sidekick-623.html
 

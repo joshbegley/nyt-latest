@@ -1,40 +1,40 @@
-**Huijsen to miss Spain match with groin issue, set for further scans**\
-`Huijsen, 20, was not included in the Spain matchday squad for Saturday's World Cup qualifier against Georgia`\
-https://nytimes.com/athletic/6809535/2025/11/15/dean-huijsen-spain-injury-update/
+**What I'm hearing about the Phillies: Schwarber's free agency, trade market, bullpen reboot**\
+`Schwarber is valued highly by the Phillies, but it's not obvious how the market will view him. If not the Phillies, who is it?`\
+https://nytimes.com/athletic/6807855/2025/11/15/phillies-offseason-trades-kyle-schwarber-free-agency/
 
-**Brandon Ingram isn't sleeping on Raptors and neither should the rest of the NBA**\
-`“The reality of it is we haven’t really had a player like him with his play style in the past couple years,” says Jakob Poeltl of Ingram. `\
-https://nytimes.com/athletic/6807528/2025/11/15/brandon-ingram-raptors-nba-starters/
+**The Commanders' injury numbers tell a grim story of a season gone wrong**\
+`Washington has used 312 unique lineups on offense so far this season, by far the most of any NFL team.`\
+https://nytimes.com/athletic/6808088/2025/11/15/washington-commanders-injuries-games-lost/
 
-**Lions expect unfriendly welcome in Philly as they gauge where they stand in NFC**\
-`The Lions and Eagles have a lot of similarities and looked to be on a collision course last season to reach the Super Bowl.`\
-https://nytimes.com/athletic/6804594/2025/11/15/lions-eagles-matchup-analysis-nfc/
+**UFC 322 preview: Islam Makhachev, Zhang Weili chase historic feats in new divisions**\
+`Here’s what to watch for Saturday night as the UFC stars in Madison Square Garden.`\
+https://nytimes.com/athletic/6807357/2025/11/15/ufc-322-preview-islam-makhachev-zhang-weili/
 
-**Seven Days of Paralysis: Inside the BBC Crisis Over a Trump Documentary**\
-`With board members and executives deadlocked over how to respond, the news organization kept silent for days, allowing a controversy to snowball.`\
-https://nytimes.com/2025/11/15/world/europe/uk-bbc-crisis.html
+**Take our college football quiz! What you need to know about Week 12**\
+`What do you need to know about Georgia-Texas, Pitt-Notre Dame, Alabama-Oklahoma and the Week 12 slate? T`\
+https://nytimes.com/athletic/6806956/2025/11/15/college-football-week-12-preview-quiz-links/
 
-**Tina Brown Thinks the Über-Rich Have It Coming**\
-`The longtime editor and chronicler of the elite says she’s liberated and is letting it rip.`\
-https://nytimes.com/2025/11/15/magazine/tina-brown-interview.html
+**Mirtle: The flailing Maple Leafs can't throw good assets after bad to save their season**\
+`As the Leafs continue to struggle and the need for drastic measures grows, a trade might not be the answer for GM Brad Treliving.`\
+https://nytimes.com/athletic/6808320/2025/11/15/maple-leafs-season-trade-assets/
 
-**A Mideast Development Firm Has Set Up Shop in Trump Tower**\
-`Dar Global bet big on the Trump name. It is now an essential foreign partner for the Trump Organization.`\
-https://nytimes.com/2025/11/15/world/middleeast/dar-global-trump-org-saudi-mbs-business-deal-real-estate-licensing.html
+**NFL Week 11 roundtable: Giants coaching job, Seahawks vs. Rams, Bills' woes**\
+`Could Seahawks-Rams be the Game of the Year? Can the Broncos keep its win streak intact vs. the Chiefs? Our writers discuss.`\
+https://nytimes.com/athletic/6808663/2025/11/15/nfl-week-11-giants-coach-seahawks-rams-bills/
 
-**What’s the Most Elegant Way to Lie to My Co-workers?**\
-`Plus, how to say “no, chef.”`\
-https://nytimes.com/2025/11/15/business/lying-to-coworkers-advice.html
+**An Acquaintance Might Be a Racist. Do I Need to Drop Him?**\
+`I included him in an Instagram story before I knew. Should I have deleted it?`\
+https://nytimes.com/2025/11/15/magazine/magazine-email/racist-acquaintance-ethics.html
 
-**He Was the Young, Bearded Hope for the Latin American Left. What Now?**\
-`When he was elected four years ago, President Gabriel Boric of Chile carried ambitious promises and new energy. Then reality kicked in.`\
-https://nytimes.com/2025/11/15/world/americas/gabriel-boric-chile-president.html
+**Connections Companion No. 889**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 16, 2025.`\
+https://nytimes.com/2025/11/15/crosswords/connections-companion-889.html
 
-**Once He Was ‘Just Asking Questions.’ Now Tucker Carlson Is the Question.**\
-`The conservative commentator has further fractured the right with his anti-Israel rhetoric and sympathy for a white nationalist. He’s not in the mood to apologize.`\
-https://nytimes.com/2025/11/15/us/politics/tucker-carlson-fuentes.html
+**A Challenge to Canada’s Official Policy That the U.S. Is Safe for Migrants**\
+`A former Liberal immigration minister said that Canada should drop an agreement that allows it to return asylum seekers who enter from the U.S.`\
+https://nytimes.com/2025/11/15/world/canada/immigration-refugees-safe-third-country.html
 
-**Lupita Nyong’o in ‘Twelfth Night,’ and More Theater to Stream**\
-`This month’s picks include a ravishing Nyong’o in the return of Shakespeare in the Park, and an audio play starring Liev Schreiber and Maggie Siff.`\
-https://nytimes.com/2025/11/15/theater/lupita-nyongo-twelfth-night-streaming.html
+**Strands Sidekick No. 623**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 16, 2025.`\
+https://nytimes.com/2025/11/15/crosswords/strands-sidekick-623.html
 
