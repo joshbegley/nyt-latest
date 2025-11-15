@@ -1,3 +1,7 @@
+**Dirk Nowitzki says Nico Harrison firing 'should have probably happened this summer'**\
+`Nowitzki, now an analyst for Prime Video, said he "didn't want this negative energy and this black cloud over the Cooper Flagg era."`\
+https://nytimes.com/athletic/6808802/2025/11/14/mavericks-nico-harrison-fired-dirk-nowitzki-luka-doncic/
+
 **Why Matt Gaetz Is Still Around**\
 `The former congressman has remained a fixture in Washington.`\
 https://nytimes.com/2025/11/14/us/politics/matt-gaetz-washington-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/14/us/politics/trump-rubio-antifa.html
 **Flight Cuts Imposed During Shutdown Will Be Reduced by Half**\
 `The leaders of the Federal Aviation Administration and the Department of Transportation said they would continue monitoring air traffic controller staffing, which has been improving since the shutdown ended.`\
 https://nytimes.com/2025/11/14/us/politics/flights-restrictions-travel-faa.html
-
-**Seneca Soldier and Statesman Can Finally Add Lawyer to His Legacy**\
-`Ely Samuel Parker, a Native American who served as an aide to Ulysses S. Grant during the Civil War, was kept from practicing law during his lifetime.`\
-https://nytimes.com/2025/11/14/nyregion/ely-samuel-parker-new-york-native-american.html
 
