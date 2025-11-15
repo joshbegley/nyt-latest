@@ -1,3 +1,7 @@
+**Trump Escalates Pressure on Venezuela, but Endgame Is Unclear**\
+`President Trump’s aides have provided conflicting accounts of what, exactly, they are seeking to achieve, as America’s largest aircraft carrier heads toward the Caribbean region.`\
+https://nytimes.com/2025/11/14/us/politics/trump-pressure-venezuela.html
+
 **Steve Kerr honors slain Oakland coach John Beam, calls for gun violence action**\
 `Kerr, whose father was shot dead in a terrorist attack in Beirut in 1984, has long been outspoken about stronger gun laws.`\
 https://nytimes.com/athletic/6809043/2025/11/14/steve-kerr-john-beam-gun-violence/

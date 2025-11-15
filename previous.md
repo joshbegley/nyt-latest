@@ -1,3 +1,7 @@
+**Trump Escalates Pressure on Venezuela, but Endgame Is Unclear**\
+`President Trump’s aides have provided conflicting accounts of what, exactly, they are seeking to achieve, as America’s largest aircraft carrier heads toward the Caribbean region.`\
+https://nytimes.com/2025/11/14/us/politics/trump-pressure-venezuela.html
+
 **Steve Kerr honors slain Oakland coach John Beam, calls for gun violence action**\
 `Kerr, whose father was shot dead in a terrorist attack in Beirut in 1984, has long been outspoken about stronger gun laws.`\
 https://nytimes.com/athletic/6809043/2025/11/14/steve-kerr-john-beam-gun-violence/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6808694/2025/11/14/christian-braun-injury-nuggets-a
 **Fuel Tanker Diverted in Strait of Hormuz, Raising Fears of Iranian Seizure**\
 `The ship, which was flying a Marshall Islands flag, was bound for Singapore when it lost contact with its managers and appeared headed toward Iran.`\
 https://nytimes.com/2025/11/14/world/middleeast/iran-tanker-strait-of-hormuz.html
-
-**Penguins' hot start to season beginning to evaporate in Sweden: 10 observations**\
-`The Penguins earned a point against the Predators but were dominated most of the day in a 2-1 loss in Stockholm.`\
-https://nytimes.com/athletic/6808436/2025/11/14/penguins-predators-nhl-global-series-sweden/
 
