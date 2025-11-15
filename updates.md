@@ -1,3 +1,11 @@
+**What are the fastest firings in sports history? Where Willie Green's 12-game dismissal ranks**\
+`Green's firing was relatively fast, just 12 games into the season, but was it historic? Here are some notable quick coach firings.`\
+https://nytimes.com/athletic/6773699/2025/11/15/sports-history-fastest-coach-firings/
+
+**JD Vance Is Idling at the Edges of American Politics**\
+`Why doesn’t the vice president have more to say about Nick Fuentes?`\
+https://nytimes.com/2025/11/15/opinion/vance-fuentes-carlson.html
+
 **What we know about Virginia Tech's pursuit of James Franklin**\
 `Virginia Tech staff members had been told by school officials they hope to have a resolution in their search by Monday, a source said.`\
 https://nytimes.com/athletic/6810043/2025/11/15/james-franklin-virginia-tech-coaching-search/

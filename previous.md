@@ -1,3 +1,7 @@
+**What are the fastest firings in sports history? Where Willie Green's 12-game dismissal ranks**\
+`Green's firing was relatively fast, just 12 games into the season, but was it historic? Here are some notable quick coach firings.`\
+https://nytimes.com/athletic/6773699/2025/11/15/sports-history-fastest-coach-firings/
+
 **What we know about Virginia Tech's pursuit of James Franklin**\
 `Virginia Tech staff members had been told by school officials they hope to have a resolution in their search by Monday, a source said.`\
 https://nytimes.com/athletic/6810043/2025/11/15/james-franklin-virginia-tech-coaching-search/
@@ -18,8 +22,8 @@ https://nytimes.com/athletic/6781200/2025/11/15/blues-power-rankings-dalibor-dvo
 `Frankie, a young Caribbean Flamingo, flew 130 miles from captivity. Her keepers said they would likely have to leave her in France.`\
 https://nytimes.com/2025/11/15/world/europe/flamingo-zoo-escape-britain-france.html
 
-**Why Doesn’t JD Vance Have More to Say About Nick Fuentes?**\
-`The vice president is idling at the edges of American politics.`\
+**JD Vance Is Idling at the Edges of American Politics**\
+`Why doesn’t the vice president have more to say about Nick Fuentes?`\
 https://nytimes.com/2025/11/15/opinion/vance-fuentes-carlson.html
 
 **Smart, Doable Tips (And Recipes) for a Healthier Thanksgiving**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6809846/2025/11/15/manchester-city-manchester-unite
 **'I'm excited about the future': Steph Curry honors Kobe Bryant as shoe free agency begins**\
 `Curry noted it may be "weird seeing me in anything else" when he wore Nike Kobe 6 "Mambacita" shoes during warmups on Friday night.`\
 https://nytimes.com/athletic/6809445/2025/11/15/steph-curry-kobe-bryant-shoes/
-
-**Arsenal's Calafiori out of Italy squad, Gattuso confirms**\
-`Calafiori, 23, missed Italy's victory over Moldova on Thursday and will not feature against Norway in Sunday's final group game.`\
-https://nytimes.com/athletic/6809744/2025/11/15/riccardo-calafiori-arsenal-italy-squad/
 
