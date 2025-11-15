@@ -1,3 +1,15 @@
+**How Seahawks' Aden Durde is blazing a path to the NFL for Britons**\
+`“The first time I was inspired by the sport was watching the '85 Bears video that my mom bought,” Durde said.`\
+https://nytimes.com/athletic/6807824/2025/11/15/aden-durde-seahawks-brits-nfl-dreams/
+
+**Pelicans fire coach Willie Green after poor start to 2025-26 season**\
+`Green, 44, was in his fifth season as head coach in New Orleans, but the Pelicans have continued a downward spiral since last season.`\
+https://nytimes.com/athletic/6767611/2025/11/15/willie-green-fired-pelicans-coach/
+
+**Watch: How Tyler Warren has helped elevate Colts' surging offense**\
+`Warren did a little bit of everything for Penn State's offense, and he's carried that versatility into the NFL.`\
+https://nytimes.com/athletic/6809718/2025/11/15/tyler-warren-colts-video-scouting-report/
+
 **UCLA slowed down Arizona's key freshman — but the Wildcats' veterans took over**\
 `UCLA made life difficult for Arizona’s touted freshmen, but Jaden Bradley and the Wildcats’ veterans carried a gritty win away from home.`\
 https://nytimes.com/athletic/6809291/2025/11/15/ucla-arizona-score-result-takeaways/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6809695/2025/11/15/nico-iamaleava-ucla-ohio-state-c
 **Trinity Rodman negotiations reach NWSL commissioner as English teams express interest**\
 `The 23-year-old will be a free agent this offseason.`\
 https://nytimes.com/athletic/6809659/2025/11/15/trinity-rodman-washington-spirit-nwsl-negotiations/
-
-**Mikaela Shiffrin starts slalom season with her 102nd World Cup victory**\
-`Shiffrin won the season-opening slalom race Saturday in Finland, starting off the Olympic year on top in her best discipline.`\
-https://nytimes.com/athletic/6809649/2025/11/15/mikaela-shiffrin-slalom-world-cup-finland-olympics/
-
-**How the Oilers played it smart with their roster moves to activate Zach Hyman**\
-`Something had to give with the Oilers' roster with Hyman ready to play for the first time in almost six months.`\
-https://nytimes.com/athletic/6808668/2025/11/15/oilers-zach-hyman-ike-howard-troy-stecher/
-
-**This Week in the NBA: Lenny Wilkens' death prompts reflection, Nico Harrison is out and more**\
-`To say the NBA had a busy Week 4 would be an understatement.`\
-https://nytimes.com/athletic/6796025/2025/11/15/lenny-wilkens-supersonics-cavaliers-nico-harrison-mavericks-fired-nba/
 
