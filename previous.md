@@ -1,3 +1,7 @@
+**Nine Dead After Accidental Blast at Police Station in Kashmir**\
+`The explosion in the city of Srinagar happened as officials were inspecting bomb-making material seized as part of an investigation into a broad terror network allegedly involving medical doctors.`\
+https://nytimes.com/2025/11/15/world/asia/india-kashmir-police-station-blast.html
+
 **The New York Times in Print for Saturday, Nov. 15, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/15/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6807217/2025/11/15/nfl-real-madrid-miami-dolphins-w
 **Connections: Sports Edition Coach: Hints for Nov. 15, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6809225/2025/11/15/connections-sports-edition-hints-for-nov-15-2025/
-
-**Corrections: Nov. 15, 2025**\
-`Corrections that appeared in print on Saturday, Nov. 15, 2025.`\
-https://nytimes.com/2025/11/15/pageoneplus/corrections-nov-15-2025.html
 
