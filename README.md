@@ -1,3 +1,7 @@
+**Josh Hazlewood ruled out of first Ashes Test, Mark Wood hamstring scan clear**\
+`Hazlewood joins Pat Cummins and Sean Abbott on the sidelines, with Michael Neser called up and uncapped Brendan Doggett in line for debut`\
+https://nytimes.com/athletic/6809302/2025/11/15/josh-hazlewood-australia-wood-hamstring-clear/
+
 **Nine Dead After Accidental Blast at Police Station in Kashmir**\
 `The explosion in the city of Srinagar happened as officials were inspecting bomb-making material seized as part of an investigation into a broad terror network allegedly involving medical doctors.`\
 https://nytimes.com/2025/11/15/world/asia/india-kashmir-police-station-blast.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6756528/2025/11/15/arsenal-liverpool-long-sleeve-ki
 **NFL at Real Madrid: Key questions around Miami Dolphins ‘home’ game in Spain**\
 `Why Spain? How do the locals feel about it? And what’s in it for the club? Allow us to explain.`\
 https://nytimes.com/athletic/6807217/2025/11/15/nfl-real-madrid-miami-dolphins-washington-commanders/
-
-**Connections: Sports Edition Coach: Hints for Nov. 15, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6809225/2025/11/15/connections-sports-edition-hints-for-nov-15-2025/
 
