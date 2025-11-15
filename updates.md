@@ -1,3 +1,7 @@
+**Eagles notes: Belated Lions matchup, healthy O-line, 'shop at Nordstrom' for Jaelan Phillips**\
+`Sunday's battle against the Lions, another NFC heavyweight, is the biggest game remaining on Philly's schedule.`\
+https://nytimes.com/athletic/6809972/2025/11/15/eagles-lions-notes-prediction/
+
 **Alice Wong, Writer and Relentless Advocate for Disability Rights, Dies at 51**\
 `Born with muscular dystrophy, she received a MacArthur “Genius” grant in 2024 for her decades of calling attention to the need for equal rights for disabled people.`\
 https://nytimes.com/2025/11/15/us/alice-wong-dead.html

@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6809915/2025/11/15/west-virginia-duke-womens-basket
 https://nytimes.com/2025/11/15/health/older-people-disability.html
 
 **Eagles notes: Belated Lions matchup, healthy O-line, 'shop at Nordstrom' for Jaelan Phillips**\
-`Sunday's battle against the Lions, another NFC heavyweight, is the biggest game remaining on the Eagles’ schedule.`\
+`Sunday's battle against the Lions, another NFC heavyweight, is the biggest game remaining on Philly's schedule.`\
 https://nytimes.com/athletic/6809972/2025/11/15/eagles-lions-notes-prediction/
 
 **Russell Westbrook joins LeBron James after achieving another NBA milestone**\
