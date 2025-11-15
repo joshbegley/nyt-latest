@@ -1,3 +1,7 @@
+**Nebraska volleyball sets another attendance record. This time at UCLA's Pauley Pavilion**\
+`Nebraska has played in seven matches this season — and 19 since 2023 — that set arena attendance records for volleyball.`\
+https://nytimes.com/athletic/6809255/2025/11/15/nebraska-ucla-pauley-pavilion-attendance-record/
+
 **Clippers, Mavericks sent to second OT after replay overturns goaltending call**\
 `The Clippers appeared to go up by two points with 1.4 seconds remaining in the first overtime. AI-assisted replay overturned the call.`\
 https://nytimes.com/athletic/6809217/2025/11/15/clippers-mavericks-goaltending-review-overtime/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/15/pageoneplus/corrections-nov-15-2025.html
 **Quote of the Day: E. Lockhart Returns To Familiar Ground**\
 `Quotation of the Day for Saturday, November 15, 2025.`\
 https://nytimes.com/2025/11/14/pageoneplus/quote-of-the-day-e-lockhart-returns-to-familiar-ground.html
-
-**Laney's John Beam 'was always going to be about Oakland'**\
-`Beam's impact in Oakland began long before his team was featured on "Last Chance U."`\
-https://nytimes.com/athletic/6809170/2025/11/14/laneys-john-beam-oakland-remembered/
 

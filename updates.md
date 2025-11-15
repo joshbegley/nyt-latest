@@ -1,3 +1,7 @@
+**Clippers, Mavericks sent to second OT after replay overturns goaltending call**\
+`The Clippers appeared to go up by two points with 1.4 seconds remaining in the first overtime. AI-assisted replay overturned the call.`\
+https://nytimes.com/athletic/6809217/2025/11/15/clippers-mavericks-goaltending-review-overtime/
+
 **Steph Curry scores 49 points to silence Victor Wembanyama, Spurs in NBA Cup thriller**\
 `The 37-year-old Warriors star turned back the clock to lead his team to a comeback win over the NBA's next dominant force.`\
 https://nytimes.com/athletic/6809221/2025/11/15/stephen-curry-warriors-spurs-victor-wembanyama/
