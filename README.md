@@ -1,4 +1,4 @@
-**Father Chris Ponnet, Who Preached Social Justice Far Beyond Pulpit, Dies at 68**\
+**Chris Ponnet, Priest Who Preached Social Justice Far Beyond Pulpit, Dies at 68**\
 `Courting arrest, he protested against war and the death penalty. He also performed an annual burial ceremony for hundreds of unclaimed bodies.`\
 https://nytimes.com/2025/11/15/obituaries/father-chris-ponnet-dead.html
 
