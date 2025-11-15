@@ -1,3 +1,15 @@
+**How to watch South Carolina vs. USC women's basketball: Time, TV, streaming**\
+`Find out how to watch the South Carolina Gamecocks play the USC Trojans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6810407/2025/11/15/south-carolina-vs-usc-stream-how-to-watch-nov-15/
+
+**How to watch South Florida vs. UCLA women's basketball: Time, TV, streaming**\
+`Find out how to watch the South Florida Bulls play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6810405/2025/11/15/south-florida-vs-ucla-stream-how-to-watch-nov-15/
+
+**Who will the New Jersey Devils rely on in Jack Hughes' absence?**\
+`When healthy, New Jersey is strong up the middle. That's no longer the case.`\
+https://nytimes.com/athletic/6810094/2025/11/15/new-jersey-devils-moves-hughes-injury/
+
 **Steph Curry and the old-guard Warriors show they can still dunk on you, too**\
 `Draymond Green lit the spark, Curry dropped 95 points across two games, and the Warriors got consecutive big wins in San Antonio.`\
 https://nytimes.com/athletic/6810240/2025/11/15/stephen-curry-warriors-spurs-draymond-green-jimmy-butler/
