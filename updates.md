@@ -1,3 +1,7 @@
+**West Virginia women upset No. 15 Duke after melee triggers 7 ejections**\
+`The Mountaineers' 57-49 win could be the upset of the season, after a first-half scuffle led to six West Virginia players being ejected.`\
+https://nytimes.com/athletic/6809915/2025/11/15/west-virginia-duke-womens-basketball-upset-ejections/
+
 **Wheelchair? Hearing Aids? Yes. ‘Disabled’? No Way.**\
 `Many older Americans shun an identity that could bring helpful accommodations, improve care and provide community.`\
 https://nytimes.com/2025/11/15/health/older-people-disability.html

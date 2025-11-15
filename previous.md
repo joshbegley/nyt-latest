@@ -1,3 +1,7 @@
+**West Virginia women upset No. 15 Duke after melee triggers 7 ejections**\
+`The Mountaineers' 57-49 win could be the upset of the season, after a first-half scuffle led to six West Virginia players being ejected.`\
+https://nytimes.com/athletic/6809915/2025/11/15/west-virginia-duke-womens-basketball-upset-ejections/
+
 **Wheelchair? Hearing Aids? Yes. ‘Disabled’? No Way.**\
 `Many older Americans shun an identity that could bring helpful accommodations, improve care and provide community.`\
 https://nytimes.com/2025/11/15/health/older-people-disability.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6810170/2025/11/15/raptors-vs-pacers-stream-how-to-
 **How to watch Ducks vs. Wild: Time, TV, streaming**\
 `Find out how to watch the Anaheim Ducks play the Minnesota Wild, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6810171/2025/11/15/ducks-vs-wild-stream-how-to-watch-nov-15/
-
-**How to watch Rangers vs. Blue Jackets: Time, TV, streaming**\
-`Find out how to watch the New York Rangers play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6810167/2025/11/15/rangers-vs-blue-jackets-stream-how-to-watch-nov-15/
 
