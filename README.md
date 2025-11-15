@@ -30,11 +30,11 @@ https://nytimes.com/athletic/6807357/2025/11/15/ufc-322-preview-islam-makhachev-
 `What do you need to know about Georgia-Texas, Pitt-Notre Dame, Alabama-Oklahoma and the Week 12 slate? T`\
 https://nytimes.com/athletic/6806956/2025/11/15/college-football-week-12-preview-quiz-links/
 
-**Mirtle: The flailing Maple Leafs can't throw good assets after bad to save their season**\
-`As the Leafs continue to struggle and the need for drastic measures grows, a trade might not be the answer for GM Brad Treliving.`\
-https://nytimes.com/athletic/6808320/2025/11/15/maple-leafs-season-trade-assets/
-
 **NFL Week 11 roundtable: Giants coaching job, Seahawks vs. Rams, Bills' woes**\
 `Could Seahawks-Rams be the Game of the Year? Can the Broncos keep its win streak intact vs. the Chiefs? Our writers discuss.`\
 https://nytimes.com/athletic/6808663/2025/11/15/nfl-week-11-giants-coach-seahawks-rams-bills/
+
+**Mirtle: The flailing Maple Leafs can't throw good assets after bad to save their season**\
+`As the Leafs continue to struggle and the need for drastic measures grows, a trade might not be the answer for GM Brad Treliving.`\
+https://nytimes.com/athletic/6808320/2025/11/15/maple-leafs-season-trade-assets/
 

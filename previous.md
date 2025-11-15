@@ -1,3 +1,7 @@
+**Tuning In**\
+`Sometimes we assume the people and things around us are neutral or hostile to our existence. What if the opposite could be true?`\
+https://nytimes.com/2025/11/15/briefing/tuning-in.html
+
 **How to watch Kentucky vs. Marshall women's basketball: Time, TV, streaming**\
 `Find out how to watch the Kentucky Wildcats play the Marshall Thundering Herd, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6809582/2025/11/15/kentucky-vs-marshall-stream-how-to-watch-nov-15/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6808320/2025/11/15/maple-leafs-season-trade-assets/
 **NFL Week 11 roundtable: Giants coaching job, Seahawks vs. Rams, Bills' woes**\
 `Could Seahawks-Rams be the Game of the Year? Can the Broncos keep its win streak intact vs. the Chiefs? Our writers discuss.`\
 https://nytimes.com/athletic/6808663/2025/11/15/nfl-week-11-giants-coach-seahawks-rams-bills/
-
-**An Acquaintance Might Be a Racist. Do I Need to Drop Him?**\
-`I included him in an Instagram story before I knew. Should I have deleted it?`\
-https://nytimes.com/2025/11/15/magazine/magazine-email/racist-acquaintance-ethics.html
 

@@ -1,3 +1,7 @@
+**Tuning In**\
+`Sometimes we assume the people and things around us are neutral or hostile to our existence. What if the opposite could be true?`\
+https://nytimes.com/2025/11/15/briefing/tuning-in.html
+
 **How to watch Kentucky vs. Marshall women's basketball: Time, TV, streaming**\
 `Find out how to watch the Kentucky Wildcats play the Marshall Thundering Herd, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6809582/2025/11/15/kentucky-vs-marshall-stream-how-to-watch-nov-15/
