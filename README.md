@@ -1,3 +1,7 @@
+**Clippers, Mavericks sent to second OT after replay overturns goaltending call**\
+`The Clippers appeared to go up by two points with 1.4 seconds remaining in the first overtime. AI-assisted replay overturned the call.`\
+https://nytimes.com/athletic/6809217/2025/11/15/clippers-mavericks-goaltending-review-overtime/
+
 **Steph Curry scores 49 points to silence Victor Wembanyama, Spurs in NBA Cup thriller**\
 `The 37-year-old Warriors star turned back the clock to lead his team to a comeback win over the NBA's next dominant force.`\
 https://nytimes.com/athletic/6809221/2025/11/15/stephen-curry-warriors-spurs-victor-wembanyama/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/14/pageoneplus/quote-of-the-day-e-lockhart-returns-t
 **Laney's John Beam 'was always going to be about Oakland'**\
 `Beam's impact in Oakland began long before his team was featured on "Last Chance U."`\
 https://nytimes.com/athletic/6809170/2025/11/14/laneys-john-beam-oakland-remembered/
-
-**Trump Cuts Ties With Marjorie Taylor Greene, Calling Her ‘Wacky’**\
-`The rupture exposed the divides within President Trump’s MAGA base over the Epstein files and more.`\
-https://nytimes.com/2025/11/14/us/politics/trump-marjorie-taylor-greene-split.html
 
