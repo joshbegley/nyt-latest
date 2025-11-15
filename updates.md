@@ -1,3 +1,11 @@
+**Fuel Tanker Diverted in Strait of Hormuz, Raising Fears of Iranian Seizure**\
+`The ship, which was flying a Marshall Islands flag, was bound for Singapore when it lost contact with its managers and appeared headed toward Iran.`\
+https://nytimes.com/2025/11/14/world/middleeast/iran-tanker-strait-of-hormuz.html
+
+**Penguins' hot start to season beginning to evaporate in Sweden: 10 observations**\
+`The Penguins earned a point against the Predators but were dominated most of the day in a 2-1 loss in Stockholm.`\
+https://nytimes.com/athletic/6808436/2025/11/14/penguins-predators-nhl-global-series-sweden/
+
 **Prime Tire: Why F1 in Las Vegas remains so surprising**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/6808741/2025/11/14/formula-one-2025-las-vegas-prime-tire/

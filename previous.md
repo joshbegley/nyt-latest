@@ -1,3 +1,11 @@
+**Fuel Tanker Diverted in Strait of Hormuz, Raising Fears of Iranian Seizure**\
+`The ship, which was flying a Marshall Islands flag, was bound for Singapore when it lost contact with its managers and appeared headed toward Iran.`\
+https://nytimes.com/2025/11/14/world/middleeast/iran-tanker-strait-of-hormuz.html
+
+**Penguins' hot start to season beginning to evaporate in Sweden: 10 observations**\
+`The Penguins earned a point against the Predators but were dominated most of the day in a 2-1 loss in Stockholm.`\
+https://nytimes.com/athletic/6808436/2025/11/14/penguins-predators-nhl-global-series-sweden/
+
 **Prime Tire: Why F1 in Las Vegas remains so surprising**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/6808741/2025/11/14/formula-one-2025-las-vegas-prime-tire/
@@ -25,12 +33,4 @@ https://nytimes.com/video/dining/100000010522929/cacio-e-pepe-green-beans.html
 **Cranberry Pudding**\
 `Think of this dessert as a more colorful, autumnal version of banana pudding.`\
 https://nytimes.com/video/dining/100000010523014/cranberry-pudding.html
-
-**LaMelo Ball had presidential aspirations. The Timberwolves weren't impressed**\
-`Before the 2020 NBA Draft, Ball told Minnesota, which held the top pick, he aspired to be U.S. president when his playing days were done.`\
-https://nytimes.com/athletic/6808493/2025/11/14/lamelo-ball-hornets-president-nba-timberwolves/
-
-**Trump Orders Investigation Into Epstein’s Ties to Democrats**\
-`Also, melting ice is a growing menace in the Himalayas. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/11/14/briefing/trump-investigation-russia-ukraine-gifts.html
 
