@@ -1,3 +1,7 @@
+**Former Fed Official Violated Trading Rules, Disclosures Show**\
+`Adriana D. Kugler, who stepped down as a governor in August, reported trades in stocks, including Apple and Southwest Airlines, in 2024.`\
+https://nytimes.com/2025/11/15/business/economy/fed-kugler-financial-disclosures.html
+
 **Russini: What I'm hearing on the Eagles' offense and what's next for Joe Schoen and the Giants**\
 `Also: An NFC West heavyweight bout, a fight Aaron Glenn doesn't need to pick and why NFL coaches want their players to stop pumping.`\
 https://nytimes.com/athletic/6809058/2025/11/15/nfl-rumors-news-eagles-offense-giants-coaching-search/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6809821/2025/11/15/grizzlies-vs-cavaliers-stream-ho
 **How to watch Notre Dame vs. Michigan women's basketball: Time, TV, streaming**\
 `Find out how to watch the Notre Dame Fighting Irish play the Michigan Wolverines, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6809792/2025/11/15/notre-dame-vs-michigan-stream-how-to-watch-nov-15/
-
-**The Play ‘Liberation’ and the Unfinished Work of Women’s Progress**\
-`The show, in its depiction of the early feminist movement, is an essential part of the ongoing fight for women’s progress.`\
-https://nytimes.com/2025/11/15/opinion/liberation-play-women-feminism.html
 
