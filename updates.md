@@ -1,3 +1,11 @@
+**What we know about Virginia Tech's pursuit of James Franklin**\
+`Virginia Tech staff members had been told by school officials they hope to have a resolution in their search by Monday, a source said.`\
+https://nytimes.com/athletic/6810043/2025/11/15/james-franklin-virginia-tech-coaching-search/
+
+**Blues power rankings: Dalibor Dvorsky delivering, 'DJ Neighbours' and a kiss-cam reaction**\
+`The Blues are 6-8-4 in 18 games this season, but there are some positive vibes around the organization.`\
+https://nytimes.com/athletic/6781200/2025/11/15/blues-power-rankings-dalibor-dvorsky-jake-neighbours/
+
 **Texas A&M, coach Mike Elko finalizing lucrative new contract: Source**\
 `The six-year deal is worth more than $10 million annually, and will make him a top-five paid coach in college football.`\
 https://nytimes.com/athletic/6810021/2025/11/15/texas-am-mike-elko-contract/
