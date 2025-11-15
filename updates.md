@@ -1,3 +1,11 @@
+**OHL suspends Steelheads' Luke Dragusica for slash to head vs. Generals**\
+`Dragusica was given a match penalty before Brampton's 3-1 win, and the suspension is "pending review" according to the OHL website.`\
+https://nytimes.com/athletic/6810329/2025/11/15/ohl-luke-dragusica-suspension-steelheads-generals/
+
+**Carlos Alcaraz and Jannik Sinner bring down the curtain on season they dominated**\
+`The two runaway best men's players in the world will meet on a surface that one loves and that the other is learning to love.`\
+https://nytimes.com/athletic/6810571/2025/11/15/tennis-alcaraz-sinner-atp-tour-finals/
+
 **Source: J.K. Dobbins to go on IR with foot injury, will need surgery**\
 `Dobbins entered the week fifth in the NFL with 772 yards rushing and on pace to produce the Broncos' highest single-season total since 2003.`\
 https://nytimes.com/athletic/6810462/2025/11/15/broncos-jk-dobbins-foot-injured-reserve/
