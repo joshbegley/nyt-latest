@@ -1,3 +1,11 @@
+**Connections: Sports Edition Coach: Hints for Nov. 15, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6809225/2025/11/15/connections-sports-edition-hints-for-nov-15-2025/
+
+**Corrections: Nov. 15, 2025**\
+`Corrections that appeared in print on Saturday, Nov. 15, 2025.`\
+https://nytimes.com/2025/11/15/pageoneplus/corrections-nov-15-2025.html
+
 **Quote of the Day: E. Lockhart Returns To Familiar Ground**\
 `Quotation of the Day for Saturday, November 15, 2025.`\
 https://nytimes.com/2025/11/14/pageoneplus/quote-of-the-day-e-lockhart-returns-to-familiar-ground.html

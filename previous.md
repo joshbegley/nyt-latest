@@ -1,3 +1,11 @@
+**Connections: Sports Edition Coach: Hints for Nov. 15, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6809225/2025/11/15/connections-sports-edition-hints-for-nov-15-2025/
+
+**Corrections: Nov. 15, 2025**\
+`Corrections that appeared in print on Saturday, Nov. 15, 2025.`\
+https://nytimes.com/2025/11/15/pageoneplus/corrections-nov-15-2025.html
+
 **Quote of the Day: E. Lockhart Returns To Familiar Ground**\
 `Quotation of the Day for Saturday, November 15, 2025.`\
 https://nytimes.com/2025/11/14/pageoneplus/quote-of-the-day-e-lockhart-returns-to-familiar-ground.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/14/crosswords/daily-puzzle-2025-11-15.html
 **Trump Says He No Longer Supports Marjorie Taylor Greene**\
 `The president accused the Georgia congresswoman of turning on him and being disloyal.`\
 https://nytimes.com/2025/11/14/us/politics/trump-marjorie-taylor-greene.html
-
-**Judge Orders Trump Not to Threaten University of California’s Funding**\
-`An extraordinary rebuke to the federal government’s campaign against elite schools, the ruling could upend settlement talks with the university system.`\
-https://nytimes.com/2025/11/14/us/trump-university-of-california-funding.html
-
-**Trump Escalates Pressure on Venezuela, but Endgame Is Unclear**\
-`President Trump’s aides have provided conflicting accounts of what, exactly, they are seeking to achieve, as America’s largest aircraft carrier heads toward the Caribbean region.`\
-https://nytimes.com/2025/11/14/us/politics/trump-pressure-venezuela.html
 
