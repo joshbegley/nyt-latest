@@ -1,3 +1,7 @@
+**Hemp backs Man City to continue WSL winning run after Man Utd victory**\
+`City secured a 3-0 win at the Etihad in the season's first Manchester derby.`\
+https://nytimes.com/athletic/6809846/2025/11/15/manchester-city-manchester-united-wsl-hemp/
+
 **'I'm excited about the future': Steph Curry honors Kobe Bryant as shoe free agency begins**\
 `Curry noted it may be "weird seeing me in anything else" when he wore Nike Kobe 6 "Mambacita" shoes during warmups on Friday night.`\
 https://nytimes.com/athletic/6809445/2025/11/15/steph-curry-kobe-bryant-shoes/
