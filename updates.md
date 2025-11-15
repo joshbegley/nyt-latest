@@ -1,3 +1,11 @@
+**How to watch Lightning vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the Florida Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6809823/2025/11/15/lightning-vs-panthers-stream-how-to-watch-nov-15/
+
+**How to watch Grizzlies vs. Cavaliers: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6809821/2025/11/15/grizzlies-vs-cavaliers-stream-how-to-watch-nov-15/
+
 **How to watch Notre Dame vs. Michigan women's basketball: Time, TV, streaming**\
 `Find out how to watch the Notre Dame Fighting Irish play the Michigan Wolverines, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6809792/2025/11/15/notre-dame-vs-michigan-stream-how-to-watch-nov-15/
