@@ -1,3 +1,7 @@
+**What we know about Virginia Tech's pursuit of James Franklin**\
+`Virginia Tech staff members had been told by school officials they hope to have a resolution in their search by Monday, a source said.`\
+https://nytimes.com/athletic/6810043/2025/11/15/james-franklin-virginia-tech-coaching-search/
+
 **Texas A&M, coach Mike Elko finalizing lucrative new contract: Source**\
 `The six-year deal is worth more than $10 million annually, and will make him a top-five paid coach in college football.`\
 https://nytimes.com/athletic/6810021/2025/11/15/texas-am-mike-elko-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6809445/2025/11/15/steph-curry-kobe-bryant-shoes/
 **Arsenal's Calafiori out of Italy squad, Gattuso confirms**\
 `Calafiori, 23, missed Italy's victory over Moldova on Thursday and will not feature against Norway in Sunday's final group game.`\
 https://nytimes.com/athletic/6809744/2025/11/15/riccardo-calafiori-arsenal-italy-squad/
-
-**Former Fed Official Violated Trading Rules, Disclosures Show**\
-`Adriana D. Kugler, who stepped down as a governor in August, reported trades in stocks, including Apple and Southwest Airlines, in 2024.`\
-https://nytimes.com/2025/11/15/business/economy/fed-kugler-financial-disclosures.html
 
