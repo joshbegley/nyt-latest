@@ -1,3 +1,7 @@
+**Trump Cuts Ties With Marjorie Taylor Greene, Calling Her ‘Wacky’**\
+`The rupture exposed the divides within President Trump’s MAGA base over the Epstein files and more.`\
+https://nytimes.com/2025/11/14/us/politics/trump-marjorie-taylor-greene-split.html
+
 **Bucks spoil Kon Knueppel's Milwaukee homecoming with overtime victory**\
 `The Hornets' rookie scored a career-high 32 points, sending the game into overtime. But Milwaukee dominated overtime to earn the win.`\
 https://nytimes.com/athletic/6809152/2025/11/14/kon-knueppel-bucks-hornets-score-highlights/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6809043/2025/11/14/steve-kerr-john-beam-gun-violenc
 **Disney and YouTube TV End Blackout**\
 `After a 15-day standoff, a deal cleared the way for YouTube TV to resume carrying ESPN, ABC and other Disney-owned channels.`\
 https://nytimes.com/2025/11/14/business/disney-youtube-tv-deal.html
-
-**Bill Belichick quashes New York Giants job speculation**\
-`The Giants are 2-8, and Mike Kafka will take the helm as interim coach for Sunday's game against the Green Bay Packers`\
-https://nytimes.com/athletic/6808930/2025/11/14/bill-belichick-denies-new-york-giants-job-speculation/
 
