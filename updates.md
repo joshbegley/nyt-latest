@@ -1,3 +1,11 @@
+**Ja Morant exits Grizzlies-Cavaliers game early due to calf soreness**\
+`A sore calf caused Ja Morant to prematurely leave a game against the Cleveland Cavaliers on Saturday.`\
+https://nytimes.com/athletic/6810680/2025/11/15/grizzlies-ja-morant-injury-calf-soreness-nba/
+
+**Marcus Freeman's cold shoulder for Pat Narduzzi caps a cold-blooded Irish win**\
+`Enough time has passed since those season-opening losses to Miami and Texas A&M to see Notre Dame for the Playoff team that it is.`\
+https://nytimes.com/athletic/6810646/2025/11/15/notre-dame-pitt-marcus-freeman-pat-narduzzi/
+
 **Lions TE Sam LaPorta placed on injured reserve**\
 `LaPorta will miss Detroit's next four games, including a crucial matchup against the Eagles on Sunday.`\
 https://nytimes.com/athletic/6810660/2025/11/15/sam-laporta-lions-injured-reserve/
