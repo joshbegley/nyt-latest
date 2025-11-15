@@ -1,3 +1,7 @@
+**In the Epstein Saga, Trump Is His Own Worst Enemy**\
+`Is this the beginning of the end for Trump and his MAGA base?`\
+https://nytimes.com/video/opinion/100000010524967/in-the-epstein-saga-trump-is-his-own-worst-enemy.html
+
 **Tuning In**\
 `Sometimes we assume the people and things around us are neutral or hostile to our existence. What if the opposite could be true?`\
 https://nytimes.com/2025/11/15/briefing/tuning-in.html

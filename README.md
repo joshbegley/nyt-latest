@@ -1,40 +1,40 @@
+**Brian Robinson Jr. thriving in new role as 49ers' offense continues to take shape**\
+`Coach Kyle Shanahan said he thinks Robinson has had his best game "four weeks in a row."`\
+https://nytimes.com/athletic/6808081/2025/11/15/brian-robinson-jr-49ers-offense/
+
+**Has the Blue Jackets' goalie rotation ended? What to make of Jet Greaves' run of play**\
+`Despite Greaves' recent heavy workload, Columbus coach Dean Evason said the starting goaltender for each game remains a day-by-day decision.`\
+https://nytimes.com/athletic/6809053/2025/11/15/blue-jackets-goalies-jet-greaves-elvis-merzlikins/
+
+**How Rangers can make noise in the East, plus Larry Brooks tribute and more**\
+`Over a month into the season, the Rangers have flipped the script on their scoring issues and may be on the verge of a breakthrough.`\
+https://nytimes.com/athletic/6808190/2025/11/15/new-york-rangers-east-larry-brooks/
+
+**One player from every NHL team making a case to crack an Olympic roster**\
+`As the clock ticks for teams to finalize their rosters ahead of the Dec. 31 deadline, which players are making their cases for a spot?`\
+https://nytimes.com/athletic/6808576/2025/11/15/winter-olympics-2026-hockey-rosters-nhl/
+
+**The Questions the Epstein Emails Haven’t Answered**\
+`What unrevealed details have made Trump so intent on preventing further disclosure?`\
+https://nytimes.com/2025/11/15/opinion/epstein-emails-trump-questions.html
+
+**What ‘A House of Dynamite’ Didn’t Show**\
+`Hollywood refuses to show the brutal reality of nuclear war.`\
+https://nytimes.com/2025/11/15/opinion/nuclear-war-house-of-dynamite-hollywood-hiroshima.html
+
 **In the Epstein Saga, Trump Is His Own Worst Enemy**\
 `Is this the beginning of the end for Trump and his MAGA base?`\
-https://nytimes.com/video/opinion/100000010524967/in-the-epstein-saga-trump-is-his-own-worst-enemy.html
+https://nytimes.com/2025/11/15/opinion/epstein-trump-gop-fuentes.html
 
-**Tuning In**\
-`Sometimes we assume the people and things around us are neutral or hostile to our existence. What if the opposite could be true?`\
-https://nytimes.com/2025/11/15/briefing/tuning-in.html
+**MLS commissioner addresses lingering questions after league flips calendar**\
+`What about cold weather? What roster rules will change? Don Garber gives the league's take on the new issues that arise after a seismic move`\
+https://nytimes.com/athletic/6807574/2025/11/15/mls-commissioner-don-garber-addresses-lingering-questions-after-league-flips-calendar/
 
-**How to watch Kentucky vs. Marshall women's basketball: Time, TV, streaming**\
-`Find out how to watch the Kentucky Wildcats play the Marshall Thundering Herd, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6809582/2025/11/15/kentucky-vs-marshall-stream-how-to-watch-nov-15/
+**The BBC Is Inept, Imperiled and Absolutely Essential**\
+`The question of how to be a public broadcaster for everyone isn’t going to get easier, but the British broadcaster can do better in the attempt.`\
+https://nytimes.com/2025/11/15/opinion/bbc-trump-apology.html
 
-**How to watch Ohio vs. Louisville men's basketball: Time, TV, streaming**\
-`Find out how to watch the Ohio Bobcats play the Louisville Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6809569/2025/11/15/ohio-vs-louisville-stream-how-to-watch-nov-15/
-
-**How to watch the NWSL semifinals this weekend**\
-`Four clubs remain in the NWSL bracket. Two will emerge from this weekend's semifinal action.`\
-https://nytimes.com/athletic/6805795/2025/11/15/nwsl-semifinals-washington-portland-orlando-gotham-how-to-watch/
-
-**What I'm hearing about the Phillies: Schwarber's free agency, trade market, bullpen reboot**\
-`Schwarber is valued highly by the Phillies, but it's not obvious how the market will view him. If not the Phillies, who is it?`\
-https://nytimes.com/athletic/6807855/2025/11/15/phillies-offseason-trades-kyle-schwarber-free-agency/
-
-**The Commanders' injury numbers tell a grim story of a season gone wrong**\
-`Washington has used 312 unique lineups on offense so far this season, by far the most of any NFL team.`\
-https://nytimes.com/athletic/6808088/2025/11/15/washington-commanders-injuries-games-lost/
-
-**UFC 322 preview: Islam Makhachev, Zhang Weili chase historic feats in new divisions**\
-`Here’s what to watch for Saturday night as the UFC stars in Madison Square Garden.`\
-https://nytimes.com/athletic/6807357/2025/11/15/ufc-322-preview-islam-makhachev-zhang-weili/
-
-**Take our college football quiz! What you need to know about Week 12**\
-`What do you need to know about Georgia-Texas, Pitt-Notre Dame, Alabama-Oklahoma and the Week 12 slate? T`\
-https://nytimes.com/athletic/6806956/2025/11/15/college-football-week-12-preview-quiz-links/
-
-**NFL Week 11 roundtable: Giants coaching job, Seahawks vs. Rams, Bills' woes**\
-`Could Seahawks-Rams be the Game of the Year? Can the Broncos keep its win streak intact vs. the Chiefs? Our writers discuss.`\
-https://nytimes.com/athletic/6808663/2025/11/15/nfl-week-11-giants-coach-seahawks-rams-bills/
+**America’s Formula for Greatness Is Under Threat**\
+`Education, open markets, trade and immigration transformed the United States into the world’s dominant power, but each is now being weakened.`\
+https://nytimes.com/2025/11/15/opinion/education-trade-immigration-decline-trump.html
 
