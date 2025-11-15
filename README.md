@@ -1,3 +1,11 @@
+**Brandon Ingram isn't sleeping on Raptors and neither should the rest of the NBA**\
+`“The reality of it is we haven’t really had a player like him with his play style in the past couple years,” says Jakob Poeltl of Ingram. `\
+https://nytimes.com/athletic/6807528/2025/11/15/brandon-ingram-raptors-nba-starters/
+
+**Lions expect unfriendly welcome in Philly as they gauge where they stand in NFC**\
+`The Lions and Eagles have a lot of similarities and looked to be on a collision course last season to reach the Super Bowl.`\
+https://nytimes.com/athletic/6804594/2025/11/15/lions-eagles-matchup-analysis-nfc/
+
 **Seven Days of Paralysis: Inside the BBC Crisis Over a Trump Documentary**\
 `With board members and executives deadlocked over how to respond, the news organization kept silent for days, allowing a controversy to snowball.`\
 https://nytimes.com/2025/11/15/world/europe/uk-bbc-crisis.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/15/theater/lupita-nyongo-twelfth-night-streaming.htm
 **Trump Officials Are Policing Words and Foiling Deals at G20 Summit**\
 `At the annual meeting of the world’s major economic powers, U.S. objections are blocking the usual policy statements, highlighting the president’s distaste for multilateralism — and compromise.`\
 https://nytimes.com/2025/11/15/world/africa/trump-g20-boycott.html
-
-**Want to See ‘The Running Man’? Colman Domingo Is Hosting**\
-`While the Emmy-winning, Oscar-nominated actor loves to put on a show, his role as Bobby T in this Stephen King adaptation is the first time he has played a showman in the movies.`\
-https://nytimes.com/2025/11/15/movies/colman-domingo-interview-the-running-man.html
-
-**At the Broadway Flea, Playbills, Props and Rip-Away Underwear**\
-`Theaters lovers came in search of souvenirs at the Broadway Flea Market & Grand Auction this fall, all for a good cause.`\
-https://nytimes.com/2025/11/15/arts/broadway-flea-auction-scene.html
 
