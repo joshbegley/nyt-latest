@@ -1,3 +1,7 @@
+**Lions TE Sam LaPorta placed on injured reserve**\
+`LaPorta will miss Detroit's next four games, including a crucial matchup against the Eagles on Sunday.`\
+https://nytimes.com/athletic/6810660/2025/11/15/sam-laporta-lions-injured-reserve/
+
 **Pacers' Aaron Nesmith out at least a month with knee injury**\
 `Nesmith avoided a more severe injury, a diagnosis Pacers coach Rick Carlisle called "very, very good."`\
 https://nytimes.com/athletic/6806399/2025/11/15/aaron-nesmith-pacers-injury-status/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6810616/2025/11/15/patriots-milton-williams-injured
 **England planning World Cup NFL-style set piece routines, says Kane**\
 `Thomas Tuchel and assistant coach Anthony Barry have both spoken of the importance of set pieces for next summer’s tournament.`\
 https://nytimes.com/athletic/6810326/2025/11/15/harry-kane-england-world-cup-set-pieces/
-
-**'I didn't like it' - Tuchel reveals Spence chat over Frank snub**\
-`After Spurs lost 1-0 at home to Chelsea on November 1, footage showed Spence and Micky van de Ven walking straight past Frank on the pitch.`\
-https://nytimes.com/athletic/6810466/2025/11/15/tuchel-england-djed-spence-tottenham/
 

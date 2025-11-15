@@ -1,3 +1,7 @@
+**Marcus Freeman's cold shoulder for Pat Narduzzi caps a cold-blooded Irish win**\
+`Enough time has passed since those season-opening losses to Miami and Texas A&M to see Notre Dame for the Playoff team that it is.`\
+https://nytimes.com/athletic/6810646/2025/11/15/notre-dame-pitt-marcus-freeman-pat-narduzzi/
+
 **Lions TE Sam LaPorta placed on injured reserve**\
 `LaPorta will miss Detroit's next four games, including a crucial matchup against the Eagles on Sunday.`\
 https://nytimes.com/athletic/6810660/2025/11/15/sam-laporta-lions-injured-reserve/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6810635/2025/11/15/canucks-david-kampf-contract-map
 **Patriots defensive tackle Milton Williams placed on injured reserve**\
 `Losing their highest-paid player will hurt the Patriots' pass rush as they push toward winning the No. 1 seed in the AFC.`\
 https://nytimes.com/athletic/6810616/2025/11/15/patriots-milton-williams-injured-reserve/
-
-**England planning World Cup NFL-style set piece routines, says Kane**\
-`Thomas Tuchel and assistant coach Anthony Barry have both spoken of the importance of set pieces for next summer’s tournament.`\
-https://nytimes.com/athletic/6810326/2025/11/15/harry-kane-england-world-cup-set-pieces/
 

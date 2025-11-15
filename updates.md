@@ -1,3 +1,7 @@
+**Lions TE Sam LaPorta placed on injured reserve**\
+`LaPorta will miss Detroit's next four games, including a crucial matchup against the Eagles on Sunday.`\
+https://nytimes.com/athletic/6810660/2025/11/15/sam-laporta-lions-injured-reserve/
+
 **Pacers' Aaron Nesmith out at least a month with knee injury**\
 `Nesmith avoided a more severe injury, a diagnosis Pacers coach Rick Carlisle called "very, very good."`\
 https://nytimes.com/athletic/6806399/2025/11/15/aaron-nesmith-pacers-injury-status/
