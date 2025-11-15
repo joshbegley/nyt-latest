@@ -1,3 +1,11 @@
+**Alice Wong, Writer and Relentless Advocate for Disability Rights, Dies at 51**\
+`Born with muscular dystrophy, she received a MacArthur “Genius” grant in 2024 for her decades of calling attention to the need for equal rights for disabled people.`\
+https://nytimes.com/2025/11/15/us/alice-wong-dead.html
+
+**Devils star center Jack Hughes has finger surgery, expected to miss 8 weeks**\
+`Hughes sustained the injury at a team dinner Thursday in Chicago in what a league source described as a freak accident.`\
+https://nytimes.com/athletic/6810261/2025/11/15/jack-hughes-new-jersey-devils-finger-surgery/
+
 **West Virginia women upset No. 15 Duke after melee triggers 7 ejections**\
 `The Mountaineers' 57-49 win could be the upset of the season, after a first-half scuffle led to six West Virginia players being ejected.`\
 https://nytimes.com/athletic/6809915/2025/11/15/west-virginia-duke-womens-basketball-upset-ejections/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6810176/2025/11/15/thunder-vs-hornets-stream-how-to
 **How to watch Maple Leafs vs. Blackhawks: Time, TV, streaming**\
 `Find out how to watch the Toronto Maple Leafs play the Chicago Blackhawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6810174/2025/11/15/maple-leafs-vs-blackhawks-stream-how-to-watch-nov-15/
-
-**How to watch Raptors vs. Pacers: Time, TV, streaming**\
-`Find out how to watch the Toronto Raptors play the Indiana Pacers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6810170/2025/11/15/raptors-vs-pacers-stream-how-to-watch-nov-15/
-
-**How to watch Ducks vs. Wild: Time, TV, streaming**\
-`Find out how to watch the Anaheim Ducks play the Minnesota Wild, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6810171/2025/11/15/ducks-vs-wild-stream-how-to-watch-nov-15/
 
