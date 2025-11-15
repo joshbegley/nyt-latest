@@ -1,3 +1,11 @@
+**Disney and YouTube TV End Blackout**\
+`After a 15-day standoff, a deal cleared the way for YouTube TV to resume carrying ESPN, ABC and other Disney-owned channels.`\
+https://nytimes.com/2025/11/14/business/disney-youtube-tv-deal.html
+
+**Bill Belichick quashes New York Giants job speculation**\
+`The Giants are 2-8, and Mike Kafka will take the helm as interim coach for Sunday's game against the Green Bay Packers`\
+https://nytimes.com/athletic/6808930/2025/11/14/bill-belichick-denies-new-york-giants-job-speculation/
+
 **Dirk Nowitzki says Nico Harrison firing 'should have probably happened this summer'**\
 `Nowitzki, now an analyst for Prime Video, said he "didn't want this negative energy and this black cloud over the Cooper Flagg era."`\
 https://nytimes.com/athletic/6808802/2025/11/14/mavericks-nico-harrison-fired-dirk-nowitzki-luka-doncic/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6808436/2025/11/14/penguins-predators-nhl-global-se
 **Prime Tire: Why F1 in Las Vegas remains so surprising**\
 `Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
 https://nytimes.com/athletic/6808741/2025/11/14/formula-one-2025-las-vegas-prime-tire/
-
-**As Trump Targets Antifa in U.S., Rubio Labels European Groups as Terrorists**\
-`The State Department’s search for leftist groups to designate as terrorist organizations appears rooted in President Trump’s executive order on domestic groups that he calls antifa.`\
-https://nytimes.com/2025/11/14/us/politics/trump-rubio-antifa.html
-
-**Flight Cuts Imposed During Shutdown Will Be Reduced by Half**\
-`The leaders of the Federal Aviation Administration and the Department of Transportation said they would continue monitoring air traffic controller staffing, which has been improving since the shutdown ended.`\
-https://nytimes.com/2025/11/14/us/politics/flights-restrictions-travel-faa.html
 
