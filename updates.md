@@ -1,3 +1,7 @@
+**Officers were hurt in a crash while protecting Vance’s motorcade in Tennessee.**\
+`A police officer who was on a motorcyc`\
+https://nytimes.com/live/2025/11/14/us/trump-shutdown-news/vance-motorcade-accident-tennessee
+
 **Twist Targets, Informally**\
 `Kyle Dolan goes for the gold with a challenging Saturday puzzle.`\
 https://nytimes.com/2025/11/14/crosswords/daily-puzzle-2025-11-15.html
