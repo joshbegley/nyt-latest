@@ -1,3 +1,11 @@
+**Pacers' Aaron Nesmith out at least a month with knee injury**\
+`Nesmith avoided a more severe injury, a diagnosis Pacers coach Rick Carlisle called "very, very good."`\
+https://nytimes.com/athletic/6806399/2025/11/15/aaron-nesmith-pacers-injury-status/
+
+**Benn defeats Eubank Jr by unanimous decision in one-sided rematch**\
+`Benn avenged his April defeat to Eubank Jr by inflicting a one-sided beating on his opponent that fell far short of their epic first bout.`\
+https://nytimes.com/athletic/6810353/2025/11/15/eubank-benn-rematch-result/
+
 **Misquoting Shakespeare**\
 `Randolph Ross takes the stage with a whirled-up Sunday puzzle.`\
 https://nytimes.com/2025/11/15/crosswords/daily-puzzle-2025-11-16.html

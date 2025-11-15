@@ -1,3 +1,11 @@
+**Pacers' Aaron Nesmith out at least a month with knee injury**\
+`Nesmith avoided a more severe injury, a diagnosis Pacers coach Rick Carlisle called "very, very good."`\
+https://nytimes.com/athletic/6806399/2025/11/15/aaron-nesmith-pacers-injury-status/
+
+**Benn defeats Eubank Jr by unanimous decision in one-sided rematch**\
+`Benn avenged his April defeat to Eubank Jr by inflicting a one-sided beating on his opponent that fell far short of their epic first bout.`\
+https://nytimes.com/athletic/6810353/2025/11/15/eubank-benn-rematch-result/
+
 **Misquoting Shakespeare**\
 `Randolph Ross takes the stage with a whirled-up Sunday puzzle.`\
 https://nytimes.com/2025/11/15/crosswords/daily-puzzle-2025-11-16.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6810326/2025/11/15/harry-kane-england-world-cup-set
 **'I didn't like it' - Tuchel reveals Spence chat over Frank snub**\
 `After Spurs lost 1-0 at home to Chelsea on November 1, footage showed Spence and Micky van de Ven walking straight past Frank on the pitch.`\
 https://nytimes.com/athletic/6810466/2025/11/15/tuchel-england-djed-spence-tottenham/
-
-**Todd Snider, Folk Singer With a Wry Wit, Dies at 59**\
-`Mentored by the likes of Jimmy Buffett and John Prine, his big-hearted ballads told of heartache even as his humor revealed a steadfast optimism.`\
-https://nytimes.com/2025/11/15/arts/music/todd-snider-dead.html
-
-**Footage shows Titans' L'Jarius Sneed driving car before alleged shooting**\
-`Two men allege in a lawsuit that Sneed and his personal assistant fired at them last December in "an unprovoked attack in cold blood."`\
-https://nytimes.com/athletic/6803987/2025/11/15/titans-ljarius-sneed-indictment-felony-texas-report/
 
