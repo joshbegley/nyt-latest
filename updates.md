@@ -1,3 +1,7 @@
+**Huijsen to miss Spain match with groin issue, set for further scans**\
+`Huijsen, 20, was not included in the Spain matchday squad for Saturday's World Cup qualifier against Georgia`\
+https://nytimes.com/athletic/6809535/2025/11/15/dean-huijsen-spain-injury-update/
+
 **Brandon Ingram isn't sleeping on Raptors and neither should the rest of the NBA**\
 `“The reality of it is we haven’t really had a player like him with his play style in the past couple years,” says Jakob Poeltl of Ingram. `\
 https://nytimes.com/athletic/6807528/2025/11/15/brandon-ingram-raptors-nba-starters/
