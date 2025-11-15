@@ -1,3 +1,27 @@
+**Pope Leo Urges Cinema Notables to Redouble Focus on Social Justice**\
+`But left unspoken at a Vatican meeting with film stars were the deep divisions over issues like abortion and homosexuality.`\
+https://nytimes.com/2025/11/15/world/europe/pope-leo-cinema-actors-vatican-meeting.html
+
+**Torrential Rain Floods Tent Camps in Gaza, Bringing More Devastation**\
+`Heavy rain and chilling winds have swept through Gaza since Friday, exacerbating the challenges facing people who have been forced to live in tents in the war-torn area.`\
+https://nytimes.com/video/world/middleeast/100000010526614/gaza-winter-rain-tent-camps.html
+
+**Gallego Pitches Demoralized Democrats on a Midterm Message**\
+`At a health care town hall in his swing state, Senator Ruben Gallego, Democrat of Arizona, test-drove his party’s new political pitch to an audience disappointed in the outcome of the shutdown.`\
+https://nytimes.com/2025/11/15/us/politics/ruben-gallego-democrats-midterms.html
+
+**SAG Awards Changes Its Name to the Actor Awards**\
+`The annual awards, started three decades ago by the Hollywood union SAG-AFTRA, has begun to reach a global audience through livestreaming on Netflix.`\
+https://nytimes.com/2025/11/15/arts/sag-awards-name-change.html
+
+**Boy, 11, Is Killed in Road Rage Shooting on Congested Nevada Highway**\
+`The police said that the suspect, Tyler Matthew Johns, 22, and the boy’s stepfather got into a dispute as they tried to pass each other in heavy traffic.`\
+https://nytimes.com/2025/11/15/us/road-rage-boy-killed-nevada.html
+
+**NBA fines Dillon Brooks $25,000 for crotch-chop celebration vs. Pacers**\
+`Brooks, an occasionally volatile personality, has faced discipline from the league office several times in his nine-year career.`\
+https://nytimes.com/athletic/6810067/2025/11/15/dillon-brooks-fined-lewd-gesture/
+
 **Dodgers' Kiké Hernández to miss World Baseball Classic after undergoing surgery**\
 `Hernández injured his elbow during the regular season. Playing through it resulted in a bone fracture, he said.`\
 https://nytimes.com/athletic/6810281/2025/11/15/dodgers-kike-hernandez-world-baseball-classic-surgery/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6810261/2025/11/15/jack-hughes-new-jersey-devils-fi
 **West Virginia women upset No. 15 Duke after melee triggers 7 ejections**\
 `The Mountaineers' 57-49 win could be the upset of the season, after a first-half scuffle led to six West Virginia players being ejected.`\
 https://nytimes.com/athletic/6809915/2025/11/15/west-virginia-duke-womens-basketball-upset-ejections/
-
-**Wheelchair? Hearing Aids? Yes. ‘Disabled’? No Way.**\
-`Many older Americans shun an identity that could bring helpful accommodations, improve care and provide community.`\
-https://nytimes.com/2025/11/15/health/older-people-disability.html
-
-**Eagles notes: Belated Lions matchup, healthy O-line, 'shop at Nordstrom' for Jaelan Phillips**\
-`Sunday's battle against the Lions, another NFC heavyweight, is the biggest game remaining on Philly's schedule.`\
-https://nytimes.com/athletic/6809972/2025/11/15/eagles-lions-notes-prediction/
-
-**Russell Westbrook joins LeBron James after achieving another NBA milestone**\
-`The Kings guard also is the eighth NBA player with 10,000 assists.`\
-https://nytimes.com/athletic/6810061/2025/11/15/russell-westbrook-nba-club-lebron-james-milestone/
-
-**How to watch Nuggets vs. Timberwolves: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6810181/2025/11/15/nuggets-vs-timberwolves-stream-how-to-watch-nov-15/
-
-**How to watch Golden Knights vs. Blues: Time, TV, streaming**\
-`Find out how to watch the Vegas Golden Knights play the St. Louis Blues, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6810179/2025/11/15/golden-knights-vs-blues-stream-how-to-watch-nov-15/
-
-**How to watch Thunder vs. Hornets: Time, TV, streaming**\
-`Find out how to watch the Oklahoma City Thunder play the Charlotte Hornets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6810176/2025/11/15/thunder-vs-hornets-stream-how-to-watch-nov-15/
 
