@@ -1,3 +1,7 @@
+**How to watch Notre Dame vs. Michigan women's basketball: Time, TV, streaming**\
+`Find out how to watch the Notre Dame Fighting Irish play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6809792/2025/11/15/notre-dame-vs-michigan-stream-how-to-watch-nov-15/
+
 **The Play ‘Liberation’ and the Unfinished Work of Women’s Progress**\
 `The show, in its depiction of the early feminist movement, is an essential part of the ongoing fight for women’s progress.`\
 https://nytimes.com/2025/11/15/opinion/liberation-play-women-feminism.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6807437/2025/11/15/broncos-chiefs-sean-payton-afc-w
 **Scoop City: Fantasy tips to win Week 11**\
 `Scoop City Newsletter 🏈 | This is The Athletic’s free NFL newsletter.`\
 https://nytimes.com/athletic/6808786/2025/11/15/everything-fantasy-football-managers-need-to-know-for-week-11/
-
-**An Economist Asked, How Much Should We Spend to Avoid the A.I. Apocalypse?**\
-`The question “at first struck me as too open-ended to be usefully addressed by standard economics,” said Charles Jones of Stanford. He took a shot anyway.`\
-https://nytimes.com/2025/11/15/business/dealbook/an-economist-asked-how-much-should-we-spend-to-avoid-the-ai-apocalypse.html
 

@@ -1,3 +1,7 @@
+**The Play ‘Liberation’ and the Unfinished Work of Women’s Progress**\
+`The show, in its depiction of the early feminist movement, is an essential part of the ongoing fight for women’s progress.`\
+https://nytimes.com/2025/11/15/opinion/liberation-play-women-feminism.html
+
 **UCLA's Nico Iamaleava out for Ohio State game with concussion**\
 `Luke Duncan, the Bruins’ backup quarterback who has not yet attempted a pass in a college game, will get the start in Columbus.`\
 https://nytimes.com/athletic/6809695/2025/11/15/nico-iamaleava-ucla-ohio-state-concussion/
