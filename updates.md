@@ -1,3 +1,7 @@
+**Eagles notes: Belated Lions matchup, healthy O-line, 'shop at Nordstrom' for Jaelan Phillips**\
+`Sunday's battle against the Lions, another NFC heavyweight, is the biggest game remaining on the Eagles’ schedule.`\
+https://nytimes.com/athletic/6809972/2025/11/15/eagles-lions-notes-prediction/
+
 **Russell Westbrook joins LeBron James after achieving another NBA milestone**\
 `The Kings guard also is the eighth NBA player with 10,000 assists.`\
 https://nytimes.com/athletic/6810061/2025/11/15/russell-westbrook-nba-club-lebron-james-milestone/

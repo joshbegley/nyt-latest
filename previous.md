@@ -1,3 +1,7 @@
+**Eagles notes: Belated Lions matchup, healthy O-line, 'shop at Nordstrom' for Jaelan Phillips**\
+`Sunday's battle against the Lions, another NFC heavyweight, is the biggest game remaining on the Eagles’ schedule.`\
+https://nytimes.com/athletic/6809972/2025/11/15/eagles-lions-notes-prediction/
+
 **Russell Westbrook joins LeBron James after achieving another NBA milestone**\
 `The Kings guard also is the eighth NBA player with 10,000 assists.`\
 https://nytimes.com/athletic/6810061/2025/11/15/russell-westbrook-nba-club-lebron-james-milestone/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6810167/2025/11/15/rangers-vs-blue-jackets-stream-h
 **How to watch Flyers vs. Stars: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Flyers play the Dallas Stars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6810165/2025/11/15/flyers-vs-stars-stream-how-to-watch-nov-15/
-
-**How to watch Lakers vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Lakers play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6810163/2025/11/15/lakers-vs-bucks-stream-how-to-watch-nov-15/
 
