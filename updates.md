@@ -1,3 +1,7 @@
+**Scoop City: Ranking all 13 games before NFL's best Sunday**\
+`Why this Sunday might be the best of the 2025 season, plus Ted Nguyen exposes a flaw in a contender`\
+https://nytimes.com/athletic/6808791/2025/11/14/week-11-nfl-schedule-ranking-rams-seahawks-scoop-city/
+
 **Why Matt Gaetz Is Still Around**\
 `The former congressman has remained a fixture in Washington.`\
 https://nytimes.com/2025/11/14/us/politics/matt-gaetz-washington-trump.html

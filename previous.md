@@ -6,7 +6,7 @@ https://nytimes.com/2025/11/14/us/politics/matt-gaetz-washington-trump.html
 `The two-week impasse ends in time for fans to tune in for college football Saturday and "Monday Night Football" next week.`\
 https://nytimes.com/athletic/6802603/2025/11/14/youtube-tv-espn-disney-status-deal-agreement/
 
-**Scoop City: Ranking all 13 games for NFL's best Sunday**\
+**Scoop City: Ranking all 13 games before NFL's best Sunday**\
 `Why this Sunday might be the best of the 2025 season, plus Ted Nguyen exposes a flaw in a contender`\
 https://nytimes.com/athletic/6808791/2025/11/14/week-11-nfl-schedule-ranking-rams-seahawks-scoop-city/
 
