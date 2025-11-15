@@ -1,3 +1,7 @@
+**Dodgers' Kiké Hernández to miss World Baseball Classic after undergoing surgery**\
+`Hernández injured his elbow during the regular season. Playing through it resulted in a bone fracture, he said.`\
+https://nytimes.com/athletic/6810281/2025/11/15/dodgers-kike-hernandez-world-baseball-classic-surgery/
+
 **Eagles notes: Belated Lions matchup, healthy O-line, 'shop at Nordstrom' for Jaelan Phillips**\
 `Sunday's battle against the Lions, another NFC heavyweight, is the biggest game remaining on Philly's schedule.`\
 https://nytimes.com/athletic/6809972/2025/11/15/eagles-lions-notes-prediction/

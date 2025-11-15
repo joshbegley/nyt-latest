@@ -1,3 +1,7 @@
+**Dodgers' Kiké Hernández to miss World Baseball Classic after undergoing surgery**\
+`Hernández injured his elbow during the regular season. Playing through it resulted in a bone fracture, he said.`\
+https://nytimes.com/athletic/6810281/2025/11/15/dodgers-kike-hernandez-world-baseball-classic-surgery/
+
 **Alice Wong, Writer and Relentless Advocate for Disability Rights, Dies at 51**\
 `Born with muscular dystrophy, she received a MacArthur “Genius” grant in 2024 for her decades of calling attention to the need for equal rights for disabled people.`\
 https://nytimes.com/2025/11/15/us/alice-wong-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6810179/2025/11/15/golden-knights-vs-blues-stream-h
 **How to watch Thunder vs. Hornets: Time, TV, streaming**\
 `Find out how to watch the Oklahoma City Thunder play the Charlotte Hornets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6810176/2025/11/15/thunder-vs-hornets-stream-how-to-watch-nov-15/
-
-**How to watch Maple Leafs vs. Blackhawks: Time, TV, streaming**\
-`Find out how to watch the Toronto Maple Leafs play the Chicago Blackhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6810174/2025/11/15/maple-leafs-vs-blackhawks-stream-how-to-watch-nov-15/
 
