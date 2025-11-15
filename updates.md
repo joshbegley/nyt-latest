@@ -1,3 +1,7 @@
+**Arsenal's Calafiori out of Italy squad, Gattuso confirms**\
+`Calafiori, 23, missed Italy's victory over Moldova on Thursday and will not feature against Norway in Sunday's final group game.`\
+https://nytimes.com/athletic/6809744/2025/11/15/riccardo-calafiori-arsenal-italy-squad/
+
 **Former Fed Official Violated Trading Rules, Disclosures Show**\
 `Adriana D. Kugler, who stepped down as a governor in August, reported trades in stocks, including Apple and Southwest Airlines, in 2024.`\
 https://nytimes.com/2025/11/15/business/economy/fed-kugler-financial-disclosures.html

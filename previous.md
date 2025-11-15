@@ -1,3 +1,7 @@
+**Arsenal's Calafiori out of Italy squad, Gattuso confirms**\
+`Calafiori, 23, missed Italy's victory over Moldova on Thursday and will not feature against Norway in Sunday's final group game.`\
+https://nytimes.com/athletic/6809744/2025/11/15/riccardo-calafiori-arsenal-italy-squad/
+
 **Former Fed Official Violated Trading Rules, Disclosures Show**\
 `Adriana D. Kugler, who stepped down as a governor in August, reported trades in stocks, including Apple and Southwest Airlines, in 2024.`\
 https://nytimes.com/2025/11/15/business/economy/fed-kugler-financial-disclosures.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6809823/2025/11/15/lightning-vs-panthers-stream-how
 **How to watch Grizzlies vs. Cavaliers: Time, TV, streaming**\
 `Find out how to watch the Memphis Grizzlies play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6809821/2025/11/15/grizzlies-vs-cavaliers-stream-how-to-watch-nov-15/
-
-**How to watch Notre Dame vs. Michigan women's basketball: Time, TV, streaming**\
-`Find out how to watch the Notre Dame Fighting Irish play the Michigan Wolverines, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6809792/2025/11/15/notre-dame-vs-michigan-stream-how-to-watch-nov-15/
 
