@@ -1,3 +1,11 @@
+**Source: J.K. Dobbins to go on IR with foot injury, will need surgery**\
+`Dobbins entered the week fifth in the NFL with 772 yards rushing and on pace to produce the Broncos' highest single-season total since 2003.`\
+https://nytimes.com/athletic/6810462/2025/11/15/broncos-jk-dobbins-foot-injured-reserve/
+
+**U.S. Border Patrol Launches Operation in Charlotte**\
+`It is unclear how long the operation will last in North Carolina’s largest city, which has a growing immigrant population.`\
+https://nytimes.com/2025/11/15/us/us-border-patrol-charlotte-nc-immigration.html
+
 **Lions WR Amon-Ra St. Brown fined for throwing punch at Daron Payne**\
 `The Washington Commanders defensive tackle earlier was suspended for the Week 11 game against the Miami Dolphins.`\
 https://nytimes.com/athletic/6810256/2025/11/15/amon-ra-st-brown-fined-lions-punch/
