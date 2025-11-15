@@ -1,3 +1,7 @@
+**Laney's John Beam 'was always going to be about Oakland'**\
+`Beam's impact in Oakland began long before his team was featured on "Last Chance U."`\
+https://nytimes.com/athletic/6809170/2025/11/14/laneys-john-beam-oakland-remembered/
+
 **Trump Cuts Ties With Marjorie Taylor Greene, Calling Her ‘Wacky’**\
 `The rupture exposed the divides within President Trump’s MAGA base over the Epstein files and more.`\
 https://nytimes.com/2025/11/14/us/politics/trump-marjorie-taylor-greene-split.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/14/us/politics/trump-pressure-venezuela.html
 **Steve Kerr honors slain Oakland coach John Beam, calls for gun violence action**\
 `Kerr, whose father was shot dead in a terrorist attack in Beirut in 1984, has long been outspoken about stronger gun laws.`\
 https://nytimes.com/athletic/6809043/2025/11/14/steve-kerr-john-beam-gun-violence/
-
-**Disney and YouTube TV End Blackout**\
-`After a 15-day standoff, a deal cleared the way for YouTube TV to resume carrying ESPN, ABC and other Disney-owned channels.`\
-https://nytimes.com/2025/11/14/business/disney-youtube-tv-deal.html
 
