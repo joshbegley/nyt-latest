@@ -1,3 +1,11 @@
+**Man Who Stuffed Parakeets in His Pants Faces Smuggling Charge**\
+`The man was found with the heavily sedated birds in his underwear as he crossed the border from Mexico in late October, federal prosecutors said.`\
+https://nytimes.com/2025/11/15/us/parakeets-smuggling-in-pants.html
+
+**Vatican to Return Indigenous Cultural Items to Canada Taken a Century Ago**\
+`Dozen of pieces used in a 1925 exhibition, including a whale-hunting kayak, will be returned to Canada early next month.`\
+https://nytimes.com/2025/11/15/world/canada/vatican-return-indigenous-canada-artifacts.html
+
 **Trump Pardons Two for Crimes Related to Jan. 6**\
 `Daniel Edwin Wilson and Suzanne Kaye had been convicted of crimes indirectly connected to the 2021 attack on the Capitol.`\
 https://nytimes.com/2025/11/15/us/politics/trump-pardons-jan-6.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/15/us/road-rage-boy-killed-nevada.html
 **NBA fines Dillon Brooks $25,000 for crotch-chop celebration vs. Pacers**\
 `Brooks, an occasionally volatile personality, has faced discipline from the league office several times in his nine-year career.`\
 https://nytimes.com/athletic/6810067/2025/11/15/dillon-brooks-fined-lewd-gesture/
-
-**Dodgers' Kiké Hernández to miss World Baseball Classic after undergoing surgery**\
-`Hernández injured his elbow during the regular season. Playing through it resulted in a bone fracture, he said.`\
-https://nytimes.com/athletic/6810281/2025/11/15/dodgers-kike-hernandez-world-baseball-classic-surgery/
-
-**Alice Wong, Writer and Relentless Advocate for Disability Rights, Dies at 51**\
-`Born with muscular dystrophy, she received a MacArthur “Genius” grant in 2024 for her decades of calling attention to the need for equal rights for disabled people.`\
-https://nytimes.com/2025/11/15/us/alice-wong-dead.html
 
