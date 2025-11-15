@@ -1,3 +1,7 @@
+**How to watch Notre Dame vs. Michigan women's basketball: Time, TV, streaming**\
+`Find out how to watch the Notre Dame Fighting Irish play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6809792/2025/11/15/notre-dame-vs-michigan-stream-how-to-watch-nov-15/
+
 **The Play ‘Liberation’ and the Unfinished Work of Women’s Progress**\
 `The show, in its depiction of the early feminist movement, is an essential part of the ongoing fight for women’s progress.`\
 https://nytimes.com/2025/11/15/opinion/liberation-play-women-feminism.html

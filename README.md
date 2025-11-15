@@ -1,3 +1,11 @@
+**How to watch Lightning vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the Florida Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6809823/2025/11/15/lightning-vs-panthers-stream-how-to-watch-nov-15/
+
+**How to watch Grizzlies vs. Cavaliers: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6809821/2025/11/15/grizzlies-vs-cavaliers-stream-how-to-watch-nov-15/
+
 **How to watch Notre Dame vs. Michigan women's basketball: Time, TV, streaming**\
 `Find out how to watch the Notre Dame Fighting Irish play the Michigan Wolverines, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6809792/2025/11/15/notre-dame-vs-michigan-stream-how-to-watch-nov-15/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6796025/2025/11/15/lenny-wilkens-supersonics-cavali
 **Closing Cup contention window? MacKenzie Weegar trade scenarios? Jets Mailbag**\
 `Let's dig into fans' frustration about Winnipeg's lack of quality and pace this season and its need for improvements.`\
 https://nytimes.com/athletic/6808162/2025/11/15/winnipeg-jets-stanley-cup-mackenzie-weegar-trade/
-
-**Sean Payton promised bigger games when Broncos snapped Chiefs skid. Bigger is here**\
-`The Broncos will need better early efficiency from QB Bo Nix to avoid falling in a hole against a surging Chiefs offense.`\
-https://nytimes.com/athletic/6807437/2025/11/15/broncos-chiefs-sean-payton-afc-west/
-
-**Scoop City: Fantasy tips to win Week 11**\
-`Scoop City Newsletter 🏈 | This is The Athletic’s free NFL newsletter.`\
-https://nytimes.com/athletic/6808786/2025/11/15/everything-fantasy-football-managers-need-to-know-for-week-11/
 
