@@ -1,3 +1,7 @@
+**The Ashes Briefing: Australia's Hazlewood blow and what did England take from Lions warm-up?**\
+`The hosts will be without their hamstrung fast bowler in Perth next week, where Ollie Pope is expected to bat at No 3 for England`\
+https://nytimes.com/athletic/6809359/2025/11/15/ashes-australia-england-hazlewood-pope-briefing/
+
 **‘Never Forgot Me’: How a Monk’s Supporters Helped Him Survive Prison**\
 `U Pyinya Zawta fled political persecution in Myanmar and has settled in Buffalo.`\
 https://nytimes.com/2025/11/15/nyregion/monk-myanmar-pyinya-zawta-buffalo.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/11/15/todays-new-york-times
 **Nebraska volleyball sets another attendance record. This time at UCLA's Pauley Pavilion**\
 `Nebraska has played in seven matches this season — and 19 since 2023 — that set arena attendance records for volleyball.`\
 https://nytimes.com/athletic/6809255/2025/11/15/nebraska-ucla-pauley-pavilion-attendance-record/
-
-**Clippers, Mavericks sent to second OT after AI-assisted replay overturns goaltending call**\
-`The Clippers appeared to go up by two points with 1.4 seconds remaining in the first overtime. AI-assisted replay overturned the call.`\
-https://nytimes.com/athletic/6809217/2025/11/15/clippers-mavericks-goaltending-review-overtime/
 
