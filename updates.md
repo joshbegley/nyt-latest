@@ -1,0 +1,36 @@
+**Flight Cuts Imposed During Shutdown Will Be Reduced by Half**\
+`The leaders of the Federal Aviation Administration and the Department of Transportation said they would continue monitoring air traffic controller staffing, which has been improving since the shutdown ended.`\
+https://nytimes.com/2025/11/14/us/politics/flights-restrictions-travel-faa.html
+
+**Seneca Soldier and Statesman Can Finally Add Lawyer to His Legacy**\
+`Ely Samuel Parker, a Native American who served as an aide to Ulysses S. Grant during the Civil War, was kept from practicing law during his lifetime.`\
+https://nytimes.com/2025/11/14/nyregion/ely-samuel-parker-new-york-native-american.html
+
+**Yvonne Brewster, Godmother of Black British Theater, Dies at 87**\
+`When she studied acting in London in the 1950s, she was told she was unlikely to find work. She ended up starting one of the country’s foremost Black theaters.`\
+https://nytimes.com/2025/11/14/theater/yvonne-brewster-dead.html
+
+**Cacio e Pepe Green Beans**\
+`This cheesy, pleasantly piquant side takes a cue from the classic Roman pasta. Built for ease, this one-pan recipe calls to first sauté the green beans in a pan until glossy and coated in black pepper-infused olive oil.`\
+https://nytimes.com/video/dining/100000010522929/cacio-e-pepe-green-beans.html
+
+**Cranberry Pudding**\
+`Think of this dessert as a more colorful, autumnal version of banana pudding.`\
+https://nytimes.com/video/dining/100000010523014/cranberry-pudding.html
+
+**LaMelo Ball had presidential aspirations. The Timberwolves weren't impressed**\
+`Before the 2020 NBA Draft, Ball told Minnesota, which held the top pick, he aspired to be U.S. president when his playing days were done.`\
+https://nytimes.com/athletic/6808493/2025/11/14/lamelo-ball-hornets-president-nba-timberwolves/
+
+**Trump Orders Investigation Into Epstein’s Ties to Democrats**\
+`Also, melting ice is a growing menace in the Himalayas. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/11/14/briefing/trump-investigation-russia-ukraine-gifts.html
+
+**How Epstein Could Divide Republicans**\
+`“There’s not going to be a flood of Republicans fleeing Trump,” argues the Opinion columnist Jamelle Bouie in this episode of “The Opinions.” Instead, he predicts “small calculations here and there” from Republicans who might start to vote against Trump.`\
+https://nytimes.com/video/opinion/100000010524982/how-epstein-could-divide-republicans.html
+
+**Trump’s Worst Enemy? Himself.**\
+`After this week’s release of Jeffrey Epstein’s emails and Trump’s questionable behavior, it seems that the president’s public standing is declining.`\
+https://nytimes.com/video/opinion/100000010524984/trumps-worst-enemy-himself.html
+
