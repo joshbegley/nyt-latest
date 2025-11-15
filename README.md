@@ -1,3 +1,11 @@
+**Kenny Easley, Hall of Famer and Seahawks legend, dies at 66**\
+`Easley was regarded as one of the most fearsome defenders of his era, earning the nickname “The Enforcer.”`\
+https://nytimes.com/athletic/6810355/2025/11/15/kenny-easley-death-seahawks-obit/
+
+**Carlos Alcaraz and Jannik Sinner will bring down the curtain on tennis season they dominated**\
+`The two runaway best men's players in the world will meet on a surface that one loves and that the other is learning to love.`\
+https://nytimes.com/athletic/6810571/2025/11/15/tennis-alcaraz-sinner-atp-tour-finals/
+
 **Michigan avoids Northwestern upset at Wrigley Field with walk-off field goal**\
 `No. 18 Michigan committed five turnovers but escaped Northwestern with a 24-22 win thanks to a last-second field goal by Dominic Zvada.`\
 https://nytimes.com/athletic/6810391/2025/11/15/michigan-northwestern-football-score-result-wrigley/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6810346/2025/11/15/texas-am-south-carolina-score-co
 **Texas A&M police send home trooper who bumped South Carolina players in tunnel**\
 `The Texas Department of Public Safety said its Office of Inspector General would be further looking into the incident.`\
 https://nytimes.com/athletic/6810423/2025/11/15/texas-am-police-south-carolina-nyck-harbor/
-
-**How to watch Jets vs. Flames: Time, TV, streaming**\
-`Find out how to watch the Winnipeg Jets play the Calgary Flames, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6810446/2025/11/15/jets-vs-flames-stream-how-to-watch-nov-15/
-
-**How to watch Sharks vs. Kraken: Time, TV, streaming**\
-`Find out how to watch the San Jose Sharks play the Seattle Kraken, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6810444/2025/11/15/sharks-vs-kraken-stream-how-to-watch-nov-15/
 
