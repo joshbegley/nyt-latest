@@ -1,3 +1,11 @@
+**Protesters Rage Against Mexico’s Government Over Corruption and Violence**\
+`Members of Mexico’s Gen Z, as well as older protesters, demonstrated on Saturday in the wake of a high-profile assassination and rising anger over persistent violence.`\
+https://nytimes.com/2025/11/15/world/americas/mexico-protest-violence.html
+
+**4 Dead After Suspected Migrant Boat Overturns Near a San Diego Area Beach**\
+`The boat capsized off the coast, officials said. Four people were taken to a hospital and one person was taken into custody.`\
+https://nytimes.com/2025/11/15/us/panga-boat-capsizes-imperial-beach.html
+
 **Ja Morant exits Grizzlies-Cavaliers game early due to calf soreness**\
 `A sore calf caused Ja Morant to prematurely leave a game against the Cleveland Cavaliers on Saturday.`\
 https://nytimes.com/athletic/6810680/2025/11/15/grizzlies-ja-morant-injury-calf-soreness-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6810632/2025/11/15/lakers-nba-gambling-investigatio
 **English soccer match abandoned after alleged 'sexist' abuse of referee**\
 `AFC Rushden & Diamonds say their game at Coventry Sphinx was called off after a "comment of a sexist nature" was aimed at the referee.`\
 https://nytimes.com/athletic/6810626/2025/11/15/soccer-match-sexism-stopped/
-
-**The Pulse: NBA surprise season**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6809254/2025/11/15/the-biggest-surprises-of-the-nba-season-so-far/
-
-**Canucks sign David Kämpf to 1-year, $1.1 million contract**\
-`Kämpf had the remaining two years of his contract terminated by the Maple Leafs on Friday after he cleared unconditional waivers.`\
-https://nytimes.com/athletic/6810635/2025/11/15/canucks-david-kampf-contract-maple-leafs/
 
