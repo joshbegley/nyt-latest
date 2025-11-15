@@ -3,12 +3,16 @@
 https://nytimes.com/athletic/6810391/2025/11/15/michigan-northwestern-football-score-result-wrigley/
 
 **Fetterman Is Released From the Hospital After a Fall**\
-`The Pennsylvania senator was hospitalized on Thursday after he fell during a morning walk near his home in Braddock, Pa.`\
+`The Pennsylvania senator was hospitalized on Thursday after he fell during a morning walk near his home in Braddock, Pa. He required 20 stitches.`\
 https://nytimes.com/2025/11/15/us/john-fetterman-fall-hospital-released.html
 
 **Navy upsets USF to crush Bulls' Playoff hopes, leave Group of 5 chase wide open**\
 `The win puts the Midshipmen alone in first place in the league most likely to produce the Group of 5’s Playoff representative.`\
 https://nytimes.com/athletic/6810541/2025/11/15/navy-south-florida-score-result-analysis/
+
+**College Football Playoff 2025 projections: The most likely bracket with Week 12 underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/15/college-football-playoff-bracket-projections-odds/
 
 **Chris Ponnet, Priest Who Preached Social Justice Far Beyond Pulpit, Dies at 68**\
 `Courting arrest, he protested against war and the death penalty. He also performed an annual burial ceremony for hundreds of unclaimed bodies.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6810446/2025/11/15/jets-vs-flames-stream-how-to-wat
 **How to watch Sharks vs. Kraken: Time, TV, streaming**\
 `Find out how to watch the San Jose Sharks play the Seattle Kraken, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6810444/2025/11/15/sharks-vs-kraken-stream-how-to-watch-nov-15/
-
-**Spirit advance to NWSL Championship with 2-0 win over Thorns**\
-`The Washington Spirit head to their second consecutive NWSL Championship with the win. `\
-https://nytimes.com/athletic/6810322/2025/11/15/washington-spirit-defeat-portland-thorns-nwsl-semifinal/
 
