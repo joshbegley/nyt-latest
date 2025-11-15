@@ -1,3 +1,11 @@
+**Watch: Dan Campbell taking Lions offense into his own hands**\
+`Dan Campbell has wasted no time making the Lions offense his own.`\
+https://nytimes.com/athletic/6807892/2025/11/15/lions-dan-campbell-offense-play-calling/
+
+**How to watch Fairfield vs. North Carolina women's basketball: Time, TV, streaming**\
+`Find out how to watch the Fairfield Stags play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6810138/2025/11/15/fairfield-vs-north-carolina-stream-how-to-watch-nov-15/
+
 **How to watch William & Mary vs. St. John's men's basketball: Time, TV, streaming**\
 `Find out how to watch the William & Mary Tribe play the St. John's Red Storm, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6810136/2025/11/15/william-mary-vs-st-john-s-stream-how-to-watch-nov-15/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6781200/2025/11/15/blues-power-rankings-dalibor-dvo
 **On a Clipped Wing, Flamingo Escapes a British Zoo for a Life in France**\
 `Frankie, a young Caribbean Flamingo, flew 130 miles from captivity. Her keepers said they would likely have to leave her in France.`\
 https://nytimes.com/2025/11/15/world/europe/flamingo-zoo-escape-britain-france.html
-
-**JD Vance Is Idling at the Edges of American Politics**\
-`Why doesn’t the vice president have more to say about Nick Fuentes?`\
-https://nytimes.com/2025/11/15/opinion/vance-fuentes-carlson.html
-
-**Smart, Doable Tips (And Recipes) for a Healthier Thanksgiving**\
-`Cacio e pepe green beans and roasted lemon caper brussels sprouts make it easy to fill your plate with vegetables.`\
-https://nytimes.com/2025/11/15/dining/smart-doable-tips-and-recipes-for-a-healthier-thanksgiving.html
 

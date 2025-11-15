@@ -1,3 +1,11 @@
+**Watch: Dan Campbell taking Lions offense into his own hands**\
+`Dan Campbell has wasted no time making the Lions offense his own.`\
+https://nytimes.com/athletic/6807892/2025/11/15/lions-dan-campbell-offense-play-calling/
+
+**How to watch Fairfield vs. North Carolina women's basketball: Time, TV, streaming**\
+`Find out how to watch the Fairfield Stags play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6810138/2025/11/15/fairfield-vs-north-carolina-stream-how-to-watch-nov-15/
+
 **How to watch William & Mary vs. St. John's men's basketball: Time, TV, streaming**\
 `Find out how to watch the William & Mary Tribe play the St. John's Red Storm, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6810136/2025/11/15/william-mary-vs-st-john-s-stream-how-to-watch-nov-15/
