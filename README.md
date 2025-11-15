@@ -1,3 +1,7 @@
+**UCLA slowed down Arizona's key freshman — but the Wildcats' veterans took over**\
+`UCLA made life difficult for Arizona’s touted freshmen, but Jaden Bradley and the Wildcats’ veterans carried a gritty win away from home.`\
+https://nytimes.com/athletic/6809291/2025/11/15/ucla-arizona-score-result-takeaways/
+
 **How to watch Lightning vs. Panthers: Time, TV, streaming**\
 `Find out how to watch the Tampa Bay Lightning play the Florida Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6809823/2025/11/15/lightning-vs-panthers-stream-how-to-watch-nov-15/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6808668/2025/11/15/oilers-zach-hyman-ike-howard-tro
 **This Week in the NBA: Lenny Wilkens' death prompts reflection, Nico Harrison is out and more**\
 `To say the NBA had a busy Week 4 would be an understatement.`\
 https://nytimes.com/athletic/6796025/2025/11/15/lenny-wilkens-supersonics-cavaliers-nico-harrison-mavericks-fired-nba/
-
-**Closing Cup contention window? MacKenzie Weegar trade scenarios? Jets Mailbag**\
-`Let's dig into fans' frustration about Winnipeg's lack of quality and pace this season and its need for improvements.`\
-https://nytimes.com/athletic/6808162/2025/11/15/winnipeg-jets-stanley-cup-mackenzie-weegar-trade/
 
