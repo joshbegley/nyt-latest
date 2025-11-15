@@ -1,3 +1,7 @@
+**Dirk Nowitzki says Nico Harrison firing 'should have probably happened this summer'**\
+`Nowitzki, now an analyst for Prime Video, said he "didn't want this negative energy and this black cloud over the Cooper Flagg era."`\
+https://nytimes.com/athletic/6808802/2025/11/14/mavericks-nico-harrison-fired-dirk-nowitzki-luka-doncic/
+
 **Scoop City: Ranking all 13 games before NFL's best Sunday**\
 `Why this Sunday might be the best of the 2025 season, plus Ted Nguyen exposes a flaw in a contender`\
 https://nytimes.com/athletic/6808791/2025/11/14/week-11-nfl-schedule-ranking-rams-seahawks-scoop-city/
