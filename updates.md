@@ -1,3 +1,11 @@
+**Steph Curry scores 49 points to silence Victor Wembanyama, Spurs in NBA Cup thriller**\
+`The 37-year-old Warriors star turned back the clock to lead his team to a comeback win over the NBA's next dominant force.`\
+https://nytimes.com/athletic/6809221/2025/11/15/stephen-curry-warriors-spurs-victor-wembanyama/
+
+**Pistons' 'nasty dogs' mentality extends win streak to 9 after they beat 76ers**\
+`Detroit won 114-105 to mark its longest win streak since the 2007-08 season.`\
+https://nytimes.com/athletic/6809232/2025/11/15/detroit-pistons-win-streak-nine-76ers/
+
 **Pistons 'nasty dogs' mentality extends win streak to nine after beating 76ers**\
 `Detroit won 114-105 to mark their longest win streak since the 2007-08 season`\
 https://nytimes.com/athletic/6809232/2025/11/15/detroit-pistons-win-streak-nine-76ers/
