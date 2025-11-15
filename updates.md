@@ -1,3 +1,11 @@
+**Notre Dame strengthens Playoff case with blowout win at Pitt: 3 takeaways**\
+`Notre Dame will be heavy favorites against Syracuse and Stanford to end the season, and would likely make the Playoff at 10-2.`\
+https://nytimes.com/athletic/6810452/2025/11/15/notre-dame-pitt-score-result/
+
+**No. 3 Texas A&M stays unbeaten with largest comeback in school history**\
+`According to ESPN, SEC teams had been 0-286 in games in which they trailed by 27 points since 2004.`\
+https://nytimes.com/athletic/6810346/2025/11/15/texas-am-south-carolina-score-comeback/
+
 **Texas A&M police send home trooper who bumped South Carolina players in tunnel**\
 `The Texas Department of Public Safety said its Office of Inspector General would be further looking into the incident.`\
 https://nytimes.com/athletic/6810423/2025/11/15/texas-am-police-south-carolina-nyck-harbor/

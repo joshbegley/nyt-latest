@@ -1,3 +1,7 @@
+**Father Chris Ponnet, Who Preached Social Justice Far Beyond Pulpit, Dies at 68**\
+`Courting arrest, he protested against war and the death penalty. He also performed an annual burial ceremony for hundreds of unclaimed bodies.`\
+https://nytimes.com/2025/11/15/obituaries/father-chris-ponnet-dead.html
+
 **Notre Dame strengthens Playoff case with blowout win at Pitt: 3 takeaways**\
 `Notre Dame will be heavy favorites against Syracuse and Stanford to end the season, and would likely make the Playoff at 10-2.`\
 https://nytimes.com/athletic/6810452/2025/11/15/notre-dame-pitt-score-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6810405/2025/11/15/south-florida-vs-ucla-stream-how
 **Who will the New Jersey Devils rely on in Jack Hughes' absence?**\
 `When healthy, New Jersey is strong up the middle. That's no longer the case.`\
 https://nytimes.com/athletic/6810094/2025/11/15/new-jersey-devils-moves-hughes-injury/
-
-**Man Who Stuffed Parakeets in His Pants Faces Smuggling Charge**\
-`The man was found with the heavily sedated birds in his underwear as he crossed the border from Mexico in late October, federal prosecutors said.`\
-https://nytimes.com/2025/11/15/us/parakeets-smuggling-in-pants.html
 
