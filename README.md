@@ -1,3 +1,7 @@
+**Footage shows Titans' L'Jarius Sneed driving car before alleged shooting**\
+`Two men allege in a lawsuit that Sneed and his personal assistant fired at them last December in "an unprovoked attack in cold blood."`\
+https://nytimes.com/athletic/6803987/2025/11/15/titans-ljarius-sneed-indictment-felony-texas-report/
+
 **OHL suspends Steelheads' Luke Dragusica for slash to head vs. Generals**\
 `Dragusica was given a match penalty before Brampton's 3-1 win, and the suspension is "pending review" according to the OHL website.`\
 https://nytimes.com/athletic/6810329/2025/11/15/ohl-luke-dragusica-suspension-steelheads-generals/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/15/us/john-fetterman-fall-hospital-released.html
 **Navy upsets USF to crush Bulls' Playoff hopes, leave Group of 5 chase wide open**\
 `The win puts the Midshipmen alone in first place in the league most likely to produce the Group of 5’s Playoff representative.`\
 https://nytimes.com/athletic/6810541/2025/11/15/navy-south-florida-score-result-analysis/
-
-**College Football Playoff 2025 projections: The most likely bracket with Week 12 underway**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/11/15/college-football-playoff-bracket-projections-odds/
 
