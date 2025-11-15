@@ -1,3 +1,7 @@
+**Victor Wembanyama, Draymond Green relish going toe-to-toe after massive alley-oop**\
+`Victor Wembanyama and Draymond Green spoke about their confrontation following the Spurs star's big dunk Friday.`\
+https://nytimes.com/athletic/6809328/2025/11/15/wembanyama-draymond-green-warriors-spurs/
+
 **Displaced Gazans Face More Misery as Torrential Rain Lashes Enclave**\
 `Heavy rainfall and chilling winds have added to the challenges facing people still forced to live in tents in the devastated territory.`\
 https://nytimes.com/2025/11/15/world/middleeast/gazan-winter-tent-camps.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/15/opinion/epstein-trump-gop-fuentes.html
 **MLS commissioner addresses lingering questions after league flips calendar**\
 `What about cold weather? What roster rules will change? Don Garber gives the league's take on the new issues that arise after a seismic move`\
 https://nytimes.com/athletic/6807574/2025/11/15/mls-commissioner-don-garber-addresses-lingering-questions-after-league-flips-calendar/
-
-**The BBC Is Inept, Imperiled and Absolutely Essential**\
-`The question of how to be a public broadcaster for everyone isn’t going to get easier, but the British broadcaster can do better in the attempt.`\
-https://nytimes.com/2025/11/15/opinion/bbc-trump-apology.html
 
