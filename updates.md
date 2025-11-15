@@ -1,3 +1,11 @@
+**Brandon Ingram isn't sleeping on Raptors and neither should the rest of the NBA**\
+`“The reality of it is we haven’t really had a player like him with his play style in the past couple years,” says Jakob Poeltl of Ingram. `\
+https://nytimes.com/athletic/6807528/2025/11/15/brandon-ingram-raptors-nba-starters/
+
+**Lions expect unfriendly welcome in Philly as they gauge where they stand in NFC**\
+`The Lions and Eagles have a lot of similarities and looked to be on a collision course last season to reach the Super Bowl.`\
+https://nytimes.com/athletic/6804594/2025/11/15/lions-eagles-matchup-analysis-nfc/
+
 **Seven Days of Paralysis: Inside the BBC Crisis Over a Trump Documentary**\
 `With board members and executives deadlocked over how to respond, the news organization kept silent for days, allowing a controversy to snowball.`\
 https://nytimes.com/2025/11/15/world/europe/uk-bbc-crisis.html
