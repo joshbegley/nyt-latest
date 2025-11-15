@@ -1,3 +1,7 @@
+**Patrick Beverly, ex-NBA guard, charged with assault of family member in Texas**\
+`Beverley was arrested early Friday morning in Fort Bend County (Texas).`\
+https://nytimes.com/athletic/6809065/2025/11/14/patrick-beverly-assault-arrest/
+
 **Officers were hurt in a crash while protecting Vance’s motorcade in Tennessee.**\
 `A police officer who was on a motorcyc`\
 https://nytimes.com/live/2025/11/14/us/trump-shutdown-news/vance-motorcade-accident-tennessee
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6808930/2025/11/14/bill-belichick-denies-new-york-g
 **Dirk Nowitzki says Nico Harrison firing 'should have probably happened this summer'**\
 `Nowitzki, now an analyst for Prime Video, said he "didn't want this negative energy and this black cloud over the Cooper Flagg era."`\
 https://nytimes.com/athletic/6808802/2025/11/14/mavericks-nico-harrison-fired-dirk-nowitzki-luka-doncic/
-
-**Why Matt Gaetz Is Still Around**\
-`The former congressman has remained a fixture in Washington.`\
-https://nytimes.com/2025/11/14/us/politics/matt-gaetz-washington-trump.html
 
