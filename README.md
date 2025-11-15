@@ -1,4 +1,4 @@
-**Patrick Beverly, ex-NBA guard, charged with assault of family member in Texas**\
+**Patrick Beverley, ex-NBA guard, charged with assault of family member in Texas**\
 `Beverley was arrested early Friday morning in Fort Bend County (Texas).`\
 https://nytimes.com/athletic/6809065/2025/11/14/patrick-beverly-assault-arrest/
 
