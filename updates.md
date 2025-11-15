@@ -1,3 +1,23 @@
+**England planning World Cup NFL-style set piece routines, says Kane**\
+`Thomas Tuchel and assistant coach Anthony Barry have both spoken of the importance of set pieces for next summer’s tournament.`\
+https://nytimes.com/athletic/6810326/2025/11/15/harry-kane-england-world-cup-set-pieces/
+
+**'I didn't like it' - Tuchel reveals Spence chat over Frank snub**\
+`After Spurs lost 1-0 at home to Chelsea on November 1, footage showed Spence and Micky van de Ven walking straight past Frank on the pitch.`\
+https://nytimes.com/athletic/6810466/2025/11/15/tuchel-england-djed-spence-tottenham/
+
+**Todd Snider, Folk Singer With a Wry Wit, Dies at 59**\
+`Mentored by the likes of Jimmy Buffett and John Prine, his big-hearted ballads told of heartache even as his humor revealed a steadfast optimism.`\
+https://nytimes.com/2025/11/15/arts/music/todd-snider-dead.html
+
+**Footage shows Titans' L'Jarius Sneed driving car before alleged shooting**\
+`Two men allege in a lawsuit that Sneed and his personal assistant fired at them last December in "an unprovoked attack in cold blood."`\
+https://nytimes.com/athletic/6803987/2025/11/15/titans-ljarius-sneed-indictment-felony-texas-report/
+
+**Carlos Alcaraz and Jannik Sinner bring down the curtain on tennis season they dominated**\
+`The two runaway best men's players in the world will meet on a surface that one loves and that the other is learning to love.`\
+https://nytimes.com/athletic/6810571/2025/11/15/tennis-alcaraz-sinner-atp-tour-finals/
+
 **OHL suspends Steelheads' Luke Dragusica for slash to head vs. Generals**\
 `Dragusica was given a match penalty before Brampton's 3-1 win, and the suspension is "pending review" according to the OHL website.`\
 https://nytimes.com/athletic/6810329/2025/11/15/ohl-luke-dragusica-suspension-steelheads-generals/
