@@ -1,3 +1,11 @@
+**Man Who Stuffed Parakeets in His Pants Faces Smuggling Charge**\
+`The man was found with the heavily sedated birds in his underwear as he crossed the border from Mexico in late October, federal prosecutors said.`\
+https://nytimes.com/2025/11/15/us/parakeets-smuggling-in-pants.html
+
+**Vatican to Return Indigenous Cultural Items to Canada Taken a Century Ago**\
+`Dozen of pieces used in a 1925 exhibition, including a whale-hunting kayak, will be returned to Canada early next month.`\
+https://nytimes.com/2025/11/15/world/canada/vatican-return-indigenous-canada-artifacts.html
+
 **Trump Pardons Two for Crimes Related to Jan. 6**\
 `Daniel Edwin Wilson and Suzanne Kaye had been convicted of crimes indirectly connected to the 2021 attack on the Capitol.`\
 https://nytimes.com/2025/11/15/us/politics/trump-pardons-jan-6.html
