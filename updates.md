@@ -1,3 +1,11 @@
+**Seven Days of Paralysis: Inside the BBC Crisis Over a Trump Documentary**\
+`With board members and executives deadlocked over how to respond, the news organization kept silent for days, allowing a controversy to snowball.`\
+https://nytimes.com/2025/11/15/world/europe/uk-bbc-crisis.html
+
+**Tina Brown Thinks the Über-Rich Have It Coming**\
+`The longtime editor and chronicler of the elite says she’s liberated and is letting it rip.`\
+https://nytimes.com/2025/11/15/magazine/tina-brown-interview.html
+
 **A Mideast Development Firm Has Set Up Shop in Trump Tower**\
 `Dar Global bet big on the Trump name. It is now an essential foreign partner for the Trump Organization.`\
 https://nytimes.com/2025/11/15/world/middleeast/dar-global-trump-org-saudi-mbs-business-deal-real-estate-licensing.html

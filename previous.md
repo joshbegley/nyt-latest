@@ -1,3 +1,11 @@
+**Seven Days of Paralysis: Inside the BBC Crisis Over a Trump Documentary**\
+`With board members and executives deadlocked over how to respond, the news organization kept silent for days, allowing a controversy to snowball.`\
+https://nytimes.com/2025/11/15/world/europe/uk-bbc-crisis.html
+
+**Tina Brown Thinks the Über-Rich Have It Coming**\
+`The longtime editor and chronicler of the elite says she’s liberated and is letting it rip.`\
+https://nytimes.com/2025/11/15/magazine/tina-brown-interview.html
+
 **A Mideast Development Firm Has Set Up Shop in Trump Tower**\
 `Dar Global bet big on the Trump name. It is now an essential foreign partner for the Trump Organization.`\
 https://nytimes.com/2025/11/15/world/middleeast/dar-global-trump-org-saudi-mbs-business-deal-real-estate-licensing.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/15/movies/colman-domingo-interview-the-running-man.h
 **At the Broadway Flea, Playbills, Props and Rip-Away Underwear**\
 `Theaters lovers came in search of souvenirs at the Broadway Flea Market & Grand Auction this fall, all for a good cause.`\
 https://nytimes.com/2025/11/15/arts/broadway-flea-auction-scene.html
-
-**‘Nouvelle Vague’: All the References Explained**\
-`The Netflix film about the making of Jean-Luc Godard’s French New Wave classic “Breathless” is chock-full of names with key roles in cinema history.`\
-https://nytimes.com/2025/11/15/movies/nouvelle-vague-references-explained.html
-
-**Trump Organization Is Said to Be in Talks on a Saudi Government Real Estate Deal**\
-`The chief executive of a Saudi firm says a Trump-branded project is “just a matter of time.” The Trump Organization’s major foreign partner is also signaling new Saudi deals.`\
-https://nytimes.com/2025/11/15/world/middleeast/trump-organization-saudi-development-deal.html
 
