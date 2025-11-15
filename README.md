@@ -1,3 +1,7 @@
+**Hemp backs Man City to continue WSL winning run after Man Utd victory**\
+`City secured a 3-0 win at the Etihad in the season's first Manchester derby.`\
+https://nytimes.com/athletic/6809846/2025/11/15/manchester-city-manchester-united-wsl-hemp/
+
 **'I'm excited about the future': Steph Curry honors Kobe Bryant as shoe free agency begins**\
 `Curry noted it may be "weird seeing me in anything else" when he wore Nike Kobe 6 "Mambacita" shoes during warmups on Friday night.`\
 https://nytimes.com/athletic/6809445/2025/11/15/steph-curry-kobe-bryant-shoes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6809718/2025/11/15/tyler-warren-colts-video-scoutin
 **UCLA slowed down Arizona's key freshmen — but the Wildcats' veterans took over**\
 `UCLA made life difficult for Arizona’s touted freshmen, but Jaden Bradley and the Wildcats’ veterans carried a gritty win away from home.`\
 https://nytimes.com/athletic/6809291/2025/11/15/ucla-arizona-score-result-takeaways/
-
-**How to watch Lightning vs. Panthers: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Lightning play the Florida Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6809823/2025/11/15/lightning-vs-panthers-stream-how-to-watch-nov-15/
 
