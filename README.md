@@ -1,3 +1,7 @@
+**Pistons 'nasty dogs' mentality extends win streak to nine after beating 76ers**\
+`Detroit won 114-105 to mark their longest win streak since the 2007-08 season`\
+https://nytimes.com/athletic/6809232/2025/11/15/detroit-pistons-win-streak-nine-76ers/
+
 **Lawrence Vigouroux, the goalkeeper who tried to pay a £50 fine in pennies: 'I was extremely arrogant'**\
 `He is now representing Chile and impressing in the Championship, but the Swansea player's career very nearly went completely off the rails`\
 https://nytimes.com/athletic/6803888/2025/11/15/lawrence-vigouroux-fine-pennies-swansea-swindon-chile/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/14/us/politics/trump-marjorie-taylor-greene-split.ht
 **Bucks spoil Kon Knueppel's Milwaukee homecoming with overtime victory**\
 `The Hornets' rookie scored a career-high 32 points, sending the game into overtime. But Milwaukee dominated overtime to earn the win.`\
 https://nytimes.com/athletic/6809152/2025/11/14/kon-knueppel-bucks-hornets-score-highlights/
-
-**Patrick Beverley, ex-NBA guard, charged with assault of family member in Texas**\
-`Beverley was arrested early Friday morning in Fort Bend County (Texas).`\
-https://nytimes.com/athletic/6809065/2025/11/14/patrick-beverly-assault-arrest/
 
