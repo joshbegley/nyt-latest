@@ -1,3 +1,11 @@
+**Twist Targets, Informally**\
+`Kyle Dolan goes for the gold with a challenging Saturday puzzle.`\
+https://nytimes.com/2025/11/14/crosswords/daily-puzzle-2025-11-15.html
+
+**Trump Says He No Longer Supports Marjorie Taylor Greene**\
+`The president accused the Georgia congresswoman of turning on him and being disloyal.`\
+https://nytimes.com/2025/11/14/us/politics/trump-marjorie-taylor-greene.html
+
 **Judge Orders Trump Not to Threaten University of California’s Funding**\
 `An extraordinary rebuke to the federal government’s campaign against elite schools, the ruling could upend settlement talks with the university system.`\
 https://nytimes.com/2025/11/14/us/trump-university-of-california-funding.html

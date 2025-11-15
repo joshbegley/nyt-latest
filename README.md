@@ -1,3 +1,7 @@
+**Officers were hurt in a crash while protecting Vance’s motorcade in Tennessee.**\
+`A police officer who was on a motorcyc`\
+https://nytimes.com/live/2025/11/14/us/trump-shutdown-news/vance-motorcade-accident-tennessee
+
 **Twist Targets, Informally**\
 `Kyle Dolan goes for the gold with a challenging Saturday puzzle.`\
 https://nytimes.com/2025/11/14/crosswords/daily-puzzle-2025-11-15.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6808802/2025/11/14/mavericks-nico-harrison-fired-di
 **Why Matt Gaetz Is Still Around**\
 `The former congressman has remained a fixture in Washington.`\
 https://nytimes.com/2025/11/14/us/politics/matt-gaetz-washington-trump.html
-
-**YouTube TV, Disney reach deal to restore access to ESPN networks**\
-`The two-week impasse ends in time for fans to tune in for college football Saturday and "Monday Night Football" next week.`\
-https://nytimes.com/athletic/6802603/2025/11/14/youtube-tv-espn-disney-status-deal-agreement/
 
