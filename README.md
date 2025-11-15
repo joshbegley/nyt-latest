@@ -1,3 +1,15 @@
+**English soccer match abandoned after alleged 'sexist' abuse of referee**\
+`AFC Rushden & Diamonds say their game at Coventry Sphinx was called off after a "comment of a sexist nature" was aimed at the referee.`\
+https://nytimes.com/athletic/6810626/2025/11/15/soccer-match-sexism-stopped/
+
+**The Pulse: NBA surprise season**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6809254/2025/11/15/the-biggest-surprises-of-the-nba-season-so-far/
+
+**Canucks sign David Kämpf to 1-year, $1.1 million contract**\
+`Kämpf had the remaining two years of his contract terminated by the Maple Leafs on Friday after he cleared unconditional waivers.`\
+https://nytimes.com/athletic/6810635/2025/11/15/canucks-david-kampf-contract-maple-leafs/
+
 **England planning World Cup NFL-style set piece routines, says Kane**\
 `Thomas Tuchel and assistant coach Anthony Barry have both spoken of the importance of set pieces for next summer’s tournament.`\
 https://nytimes.com/athletic/6810326/2025/11/15/harry-kane-england-world-cup-set-pieces/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6810462/2025/11/15/broncos-jk-dobbins-foot-injured-
 **U.S. Border Patrol Launches Operation in Charlotte**\
 `It is unclear how long the operation will last in North Carolina’s largest city, which has a growing immigrant population.`\
 https://nytimes.com/2025/11/15/us/us-border-patrol-charlotte-nc-immigration.html
-
-**Lions WR Amon-Ra St. Brown fined for throwing punch at Daron Payne**\
-`The Washington Commanders defensive tackle earlier was suspended for the Week 11 game against the Miami Dolphins.`\
-https://nytimes.com/athletic/6810256/2025/11/15/amon-ra-st-brown-fined-lions-punch/
-
-**Kenny Easley, Hall of Famer and Seahawks legend, dies at 66**\
-`Easley was regarded as one of the most fearsome defenders of his era, earning the nickname “The Enforcer.”`\
-https://nytimes.com/athletic/6810355/2025/11/15/kenny-easley-death-seahawks-obit/
-
-**Carlos Alcaraz and Jannik Sinner bring down the curtain on tennis season they dominated**\
-`The two runaway best men's players in the world will meet on a surface that one loves and that the other is learning to love.`\
-https://nytimes.com/athletic/6810571/2025/11/15/tennis-alcaraz-sinner-atp-tour-finals/
 
