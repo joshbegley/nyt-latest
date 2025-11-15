@@ -1,3 +1,7 @@
+**Who will the New Jersey Devils rely on in Jack Hughes' absence?**\
+`When healthy, New Jersey is strong up the middle. That's no longer the case.`\
+https://nytimes.com/athletic/6810094/2025/11/15/new-jersey-devils-moves-hughes-injury/
+
 **Man Who Stuffed Parakeets in His Pants Faces Smuggling Charge**\
 `The man was found with the heavily sedated birds in his underwear as he crossed the border from Mexico in late October, federal prosecutors said.`\
 https://nytimes.com/2025/11/15/us/parakeets-smuggling-in-pants.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/15/arts/sag-awards-name-change.html
 **Boy, 11, Is Killed in Road Rage Shooting on Congested Nevada Highway**\
 `The police said that the suspect, Tyler Matthew Johns, 22, and the boy’s stepfather got into a dispute as they tried to pass each other in heavy traffic.`\
 https://nytimes.com/2025/11/15/us/road-rage-boy-killed-nevada.html
-
-**NBA fines Dillon Brooks $25,000 for crotch-chop celebration vs. Pacers**\
-`Brooks, an occasionally volatile personality, has faced discipline from the league office several times in his nine-year career.`\
-https://nytimes.com/athletic/6810067/2025/11/15/dillon-brooks-fined-lewd-gesture/
 
