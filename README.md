@@ -1,3 +1,7 @@
+**Huijsen to miss Spain match with groin issue, set for further scans**\
+`Huijsen, 20, was not included in the Spain matchday squad for Saturday's World Cup qualifier against Georgia`\
+https://nytimes.com/athletic/6809535/2025/11/15/dean-huijsen-spain-injury-update/
+
 **Brandon Ingram isn't sleeping on Raptors and neither should the rest of the NBA**\
 `“The reality of it is we haven’t really had a player like him with his play style in the past couple years,” says Jakob Poeltl of Ingram. `\
 https://nytimes.com/athletic/6807528/2025/11/15/brandon-ingram-raptors-nba-starters/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/15/us/politics/tucker-carlson-fuentes.html
 **Lupita Nyong’o in ‘Twelfth Night,’ and More Theater to Stream**\
 `This month’s picks include a ravishing Nyong’o in the return of Shakespeare in the Park, and an audio play starring Liev Schreiber and Maggie Siff.`\
 https://nytimes.com/2025/11/15/theater/lupita-nyongo-twelfth-night-streaming.html
-
-**Trump Officials Are Policing Words and Foiling Deals at G20 Summit**\
-`At the annual meeting of the world’s major economic powers, U.S. objections are blocking the usual policy statements, highlighting the president’s distaste for multilateralism — and compromise.`\
-https://nytimes.com/2025/11/15/world/africa/trump-g20-boycott.html
 
