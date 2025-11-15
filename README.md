@@ -1,3 +1,11 @@
+**How to watch South Carolina vs. USC women's basketball: Time, TV, streaming**\
+`Find out how to watch the South Carolina Gamecocks play the USC Trojans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6810407/2025/11/15/south-carolina-vs-usc-stream-how-to-watch-nov-15/
+
+**How to watch South Florida vs. UCLA women's basketball: Time, TV, streaming**\
+`Find out how to watch the South Florida Bulls play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6810405/2025/11/15/south-florida-vs-ucla-stream-how-to-watch-nov-15/
+
 **Who will the New Jersey Devils rely on in Jack Hughes' absence?**\
 `When healthy, New Jersey is strong up the middle. That's no longer the case.`\
 https://nytimes.com/athletic/6810094/2025/11/15/new-jersey-devils-moves-hughes-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010526614/gaza-winter-rain-tent
 **Gallego Pitches Demoralized Democrats on a Midterm Message**\
 `At a health care town hall in his swing state, Senator Ruben Gallego, Democrat of Arizona, test-drove his party’s new political pitch to an audience disappointed in the outcome of the shutdown.`\
 https://nytimes.com/2025/11/15/us/politics/ruben-gallego-democrats-midterms.html
-
-**SAG Awards Changes Its Name to the Actor Awards**\
-`The annual awards, started three decades ago by the Hollywood union SAG-AFTRA, has begun to reach a global audience through livestreaming on Netflix.`\
-https://nytimes.com/2025/11/15/arts/sag-awards-name-change.html
-
-**Boy, 11, Is Killed in Road Rage Shooting on Congested Nevada Highway**\
-`The police said that the suspect, Tyler Matthew Johns, 22, and the boy’s stepfather got into a dispute as they tried to pass each other in heavy traffic.`\
-https://nytimes.com/2025/11/15/us/road-rage-boy-killed-nevada.html
 
