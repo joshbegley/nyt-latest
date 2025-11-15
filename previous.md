@@ -1,3 +1,11 @@
+**Prime Tire: Why F1 in Las Vegas remains so surprising**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
+https://nytimes.com/athletic/6808741/2025/11/14/formula-one-2025-las-vegas-prime-tire/
+
+**As Trump Targets Antifa in U.S., Rubio Labels European Groups as Terrorists**\
+`The State Department’s search for leftist groups to designate as terrorist organizations appears rooted in President Trump’s executive order on domestic groups that he calls antifa.`\
+https://nytimes.com/2025/11/14/us/politics/trump-rubio-antifa.html
+
 **Flight Cuts Imposed During Shutdown Will Be Reduced by Half**\
 `The leaders of the Federal Aviation Administration and the Department of Transportation said they would continue monitoring air traffic controller staffing, which has been improving since the shutdown ended.`\
 https://nytimes.com/2025/11/14/us/politics/flights-restrictions-travel-faa.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6808493/2025/11/14/lamelo-ball-hornets-president-nb
 **Trump Orders Investigation Into Epstein’s Ties to Democrats**\
 `Also, melting ice is a growing menace in the Himalayas. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/11/14/briefing/trump-investigation-russia-ukraine-gifts.html
-
-**How Epstein Could Divide Republicans**\
-`“There’s not going to be a flood of Republicans fleeing Trump,” argues the Opinion columnist Jamelle Bouie in this episode of “The Opinions.” Instead, he predicts “small calculations here and there” from Republicans who might start to vote against Trump.`\
-https://nytimes.com/video/opinion/100000010524982/how-epstein-could-divide-republicans.html
-
-**Trump’s Worst Enemy? Himself.**\
-`After this week’s release of Jeffrey Epstein’s emails and Trump’s questionable behavior, it seems that the president’s public standing is declining.`\
-https://nytimes.com/video/opinion/100000010524984/trumps-worst-enemy-himself.html
 
