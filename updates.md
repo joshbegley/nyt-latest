@@ -1,3 +1,15 @@
+**Why Matt Gaetz Is Still Around**\
+`The former congressman has remained a fixture in Washington.`\
+https://nytimes.com/2025/11/14/us/politics/matt-gaetz-washington-trump.html
+
+**YouTube TV, Disney reach deal to restore access to ESPN networks**\
+`The two-week impasse ends in time for fans to tune in for college football Saturday and "Monday Night Football" next week.`\
+https://nytimes.com/athletic/6802603/2025/11/14/youtube-tv-espn-disney-status-deal-agreement/
+
+**Scoop City: Ranking all 13 games for NFL's best Sunday**\
+`Why this Sunday might be the best of the 2025 season, plus Ted Nguyen exposes a flaw in a contender`\
+https://nytimes.com/athletic/6808791/2025/11/14/week-11-nfl-schedule-ranking-rams-seahawks-scoop-city/
+
 **Nuggets' Christian Braun injures ankle, will miss at least 6 weeks**\
 `Denver will likely not have its 24-year-old ace perimeter defender until the new calendar year after he injured his ankle on Wednesday.`\
 https://nytimes.com/athletic/6808694/2025/11/14/christian-braun-injury-nuggets-ankle-status/
