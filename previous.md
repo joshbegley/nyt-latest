@@ -1,3 +1,7 @@
+**Wheelchair? Hearing Aids? Yes. ‘Disabled’? No Way.**\
+`Many older Americans shun an identity that could bring helpful accommodations, improve care and provide community.`\
+https://nytimes.com/2025/11/15/health/older-people-disability.html
+
 **Eagles notes: Belated Lions matchup, healthy O-line, 'shop at Nordstrom' for Jaelan Phillips**\
 `Sunday's battle against the Lions, another NFC heavyweight, is the biggest game remaining on the Eagles’ schedule.`\
 https://nytimes.com/athletic/6809972/2025/11/15/eagles-lions-notes-prediction/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6810171/2025/11/15/ducks-vs-wild-stream-how-to-watc
 **How to watch Rangers vs. Blue Jackets: Time, TV, streaming**\
 `Find out how to watch the New York Rangers play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6810167/2025/11/15/rangers-vs-blue-jackets-stream-how-to-watch-nov-15/
-
-**How to watch Flyers vs. Stars: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Flyers play the Dallas Stars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6810165/2025/11/15/flyers-vs-stars-stream-how-to-watch-nov-15/
 

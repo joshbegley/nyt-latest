@@ -1,3 +1,7 @@
+**Wheelchair? Hearing Aids? Yes. ‘Disabled’? No Way.**\
+`Many older Americans shun an identity that could bring helpful accommodations, improve care and provide community.`\
+https://nytimes.com/2025/11/15/health/older-people-disability.html
+
 **Eagles notes: Belated Lions matchup, healthy O-line, 'shop at Nordstrom' for Jaelan Phillips**\
 `Sunday's battle against the Lions, another NFC heavyweight, is the biggest game remaining on the Eagles’ schedule.`\
 https://nytimes.com/athletic/6809972/2025/11/15/eagles-lions-notes-prediction/
