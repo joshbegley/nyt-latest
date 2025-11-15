@@ -1,3 +1,7 @@
+**Steve Kerr honors slain Oakland coach John Beam, calls for gun violence action**\
+`Kerr, whose father was shot dead in a terrorist attack in Beirut in 1984, has long been outspoken about stronger gun laws.`\
+https://nytimes.com/athletic/6809043/2025/11/14/steve-kerr-john-beam-gun-violence/
+
 **Disney and YouTube TV End Blackout**\
 `After a 15-day standoff, a deal cleared the way for YouTube TV to resume carrying ESPN, ABC and other Disney-owned channels.`\
 https://nytimes.com/2025/11/14/business/disney-youtube-tv-deal.html

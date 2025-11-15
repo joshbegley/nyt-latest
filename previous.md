@@ -1,3 +1,7 @@
+**Steve Kerr honors slain Oakland coach John Beam, calls for gun violence action**\
+`Kerr, whose father was shot dead in a terrorist attack in Beirut in 1984, has long been outspoken about stronger gun laws.`\
+https://nytimes.com/athletic/6809043/2025/11/14/steve-kerr-john-beam-gun-violence/
+
 **Disney and YouTube TV End Blackout**\
 `After a 15-day standoff, a deal cleared the way for YouTube TV to resume carrying ESPN, ABC and other Disney-owned channels.`\
 https://nytimes.com/2025/11/14/business/disney-youtube-tv-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/14/world/middleeast/iran-tanker-strait-of-hormuz.htm
 **Penguins' hot start to season beginning to evaporate in Sweden: 10 observations**\
 `The Penguins earned a point against the Predators but were dominated most of the day in a 2-1 loss in Stockholm.`\
 https://nytimes.com/athletic/6808436/2025/11/14/penguins-predators-nhl-global-series-sweden/
-
-**Prime Tire: Why F1 in Las Vegas remains so surprising**\
-`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
-https://nytimes.com/athletic/6808741/2025/11/14/formula-one-2025-las-vegas-prime-tire/
 
