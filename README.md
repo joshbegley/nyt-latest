@@ -1,3 +1,7 @@
+**U.S. Border Patrol Launches Operation in Charlotte**\
+`It is unclear how long the operation will last in North Carolina’s largest city, which has a growing immigrant population.`\
+https://nytimes.com/2025/11/15/us/us-border-patrol-charlotte-nc-immigration.html
+
 **Lions WR Amon-Ra St. Brown fined for throwing punch at Daron Payne**\
 `The Washington Commanders defensive tackle earlier was suspended for the Week 11 game against the Miami Dolphins.`\
 https://nytimes.com/athletic/6810256/2025/11/15/amon-ra-st-brown-fined-lions-punch/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/15/obituaries/father-chris-ponnet-dead.html
 **Notre Dame strengthens Playoff case with blowout win at Pitt: 3 takeaways**\
 `Notre Dame will be heavy favorites against Syracuse and Stanford to end the season, and would likely make the Playoff at 10-2.`\
 https://nytimes.com/athletic/6810452/2025/11/15/notre-dame-pitt-score-result/
-
-**No. 3 Texas A&M stays unbeaten with largest comeback in school history**\
-`According to ESPN, SEC teams had been 0-286 in games in which they trailed by 27 points since 2004.`\
-https://nytimes.com/athletic/6810346/2025/11/15/texas-am-south-carolina-score-comeback/
 

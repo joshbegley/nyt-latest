@@ -1,3 +1,11 @@
+**Lions WR Amon-Ra St. Brown fined for throwing punch at Daron Payne**\
+`The Washington Commanders defensive tackle earlier was suspended for the Week 11 game against the Miami Dolphins.`\
+https://nytimes.com/athletic/6810256/2025/11/15/amon-ra-st-brown-fined-lions-punch/
+
+**Michigan avoids Wrigley upset with walk-off FG after 5 turnovers: Key takeaways**\
+`No. 18 Michigan committed five turnovers but escaped Northwestern with a 24-22 win thanks to a last-second field goal by Dominic Zvada.`\
+https://nytimes.com/athletic/6810391/2025/11/15/michigan-northwestern-football-score-result-wrigley/
+
 **Kenny Easley, Hall of Famer and Seahawks legend, dies at 66**\
 `Easley was regarded as one of the most fearsome defenders of his era, earning the nickname “The Enforcer.”`\
 https://nytimes.com/athletic/6810355/2025/11/15/kenny-easley-death-seahawks-obit/
