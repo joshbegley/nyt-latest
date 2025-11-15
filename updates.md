@@ -1,3 +1,7 @@
+**Judge Orders Trump Not to Threaten University of California’s Funding**\
+`An extraordinary rebuke to the federal government’s campaign against elite schools, the ruling could upend settlement talks with the university system.`\
+https://nytimes.com/2025/11/14/us/trump-university-of-california-funding.html
+
 **Trump Escalates Pressure on Venezuela, but Endgame Is Unclear**\
 `President Trump’s aides have provided conflicting accounts of what, exactly, they are seeking to achieve, as America’s largest aircraft carrier heads toward the Caribbean region.`\
 https://nytimes.com/2025/11/14/us/politics/trump-pressure-venezuela.html
