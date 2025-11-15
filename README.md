@@ -1,3 +1,7 @@
+**Lions WR Amon-Ra St. Brown fined for throwing punch at Daron Payne**\
+`The Washington Commanders defensive tackle earlier was suspended for the Week 11 game against the Miami Dolphins.`\
+https://nytimes.com/athletic/6810256/2025/11/15/amon-ra-st-brown-fined-lions-punch/
+
 **Kenny Easley, Hall of Famer and Seahawks legend, dies at 66**\
 `Easley was regarded as one of the most fearsome defenders of his era, earning the nickname “The Enforcer.”`\
 https://nytimes.com/athletic/6810355/2025/11/15/kenny-easley-death-seahawks-obit/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6810355/2025/11/15/kenny-easley-death-seahawks-obit
 `The two runaway best men's players in the world will meet on a surface that one loves and that the other is learning to love.`\
 https://nytimes.com/athletic/6810571/2025/11/15/tennis-alcaraz-sinner-atp-tour-finals/
 
-**Michigan avoids Northwestern upset at Wrigley Field with walk-off field goal**\
+**Michigan avoids Wrigley upset with walk-off FG after 5 turnovers: Key takeaways**\
 `No. 18 Michigan committed five turnovers but escaped Northwestern with a 24-22 win thanks to a last-second field goal by Dominic Zvada.`\
 https://nytimes.com/athletic/6810391/2025/11/15/michigan-northwestern-football-score-result-wrigley/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6810452/2025/11/15/notre-dame-pitt-score-result/
 **No. 3 Texas A&M stays unbeaten with largest comeback in school history**\
 `According to ESPN, SEC teams had been 0-286 in games in which they trailed by 27 points since 2004.`\
 https://nytimes.com/athletic/6810346/2025/11/15/texas-am-south-carolina-score-comeback/
-
-**Texas A&M police send home trooper who bumped South Carolina players in tunnel**\
-`The Texas Department of Public Safety said its Office of Inspector General would be further looking into the incident.`\
-https://nytimes.com/athletic/6810423/2025/11/15/texas-am-police-south-carolina-nyck-harbor/
 

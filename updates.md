@@ -1,3 +1,11 @@
+**Kenny Easley, Hall of Famer and Seahawks legend, dies at 66**\
+`Easley was regarded as one of the most fearsome defenders of his era, earning the nickname “The Enforcer.”`\
+https://nytimes.com/athletic/6810355/2025/11/15/kenny-easley-death-seahawks-obit/
+
+**Carlos Alcaraz and Jannik Sinner will bring down the curtain on tennis season they dominated**\
+`The two runaway best men's players in the world will meet on a surface that one loves and that the other is learning to love.`\
+https://nytimes.com/athletic/6810571/2025/11/15/tennis-alcaraz-sinner-atp-tour-finals/
+
 **Fetterman Is Released From the Hospital After a Fall**\
 `The Pennsylvania senator was hospitalized on Thursday after he fell during a morning walk near his home in Braddock, Pa. He required 20 stitches.`\
 https://nytimes.com/2025/11/15/us/john-fetterman-fall-hospital-released.html
