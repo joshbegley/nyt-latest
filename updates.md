@@ -1,3 +1,8 @@
+**What we saw from Leafs' loss to Blackhawks: Joseph Woll's return, Philippe Myers' errors**\
+`After falling 3-2 to Chicago, Toronto lost its fifth straight game and dropped to an 8-9-2 record for the season.
+`\
+https://nytimes.com/athletic/6811086/2025/11/15/maple-leafs-blackhawks-joseph-woll-philippe-myers/
+
 **South Carolina wins battle for 'The Real SC' over USC: Takeaways**\
 `The Gamecocks had one returning starter in the opening lineup but used a familiar recipe to defeat the Trojans.`\
 https://nytimes.com/athletic/6811195/2025/11/15/south-carolina-usc-score-result/
