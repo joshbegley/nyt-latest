@@ -1,7 +1,3 @@
-**Pochettino laments 'dangerous' fight, lauds team spirit in Paraguay win**\
-`An injury-time scuffle broke out as the U.S. clinched another friendly victory leading up to the World Cup`\
-https://nytimes.com/athletic/6811043/2025/11/15/usmnt-pochettino-fight-paraguay/
-
 **Rams' Alaric Jackson to play Sunday after woman sues him over sex video**\
 `An unnamed woman filed a lawsuit against Jackson, alleging the left tackle recorded sexual acts with her on his phone without her consent.`\
 https://nytimes.com/athletic/6810706/2025/11/15/rams-alaric-jackson-lawsuit-sex-video/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6810775/2025/11/15/acc-title-race-georgia-tech-virg
 **How to Make Sense of Law Enforcement in the Streets**\
 `The variety of federal forces deployed to support President Trump’s mass deportation campaign and anticrime efforts continues to expand. Often, it can be difficult for the public to tell them apart, or to understand what powers each agency has.`\
 https://nytimes.com/video/us/politics/100000010484295/how-to-make-sense-of-law-enforcement-in-the-streets.html
+
+**SEC commissioner Greg Sankey says 16-team CFP should be a 'priority'**\
+`That’s a slight departure from Sankey’s comments the past few months.`\
+https://nytimes.com/athletic/6810863/2025/11/15/sec-cfp-format-greg-sankey/
 
