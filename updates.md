@@ -1,3 +1,11 @@
+**Stars' Thomas Harley out week to week with lower-body injury**\
+`Harley has been labeled a game-time decision for the last few games and was finally scratched for Saturday’s home game against Philadelphia.`\
+https://nytimes.com/athletic/6810918/2025/11/15/dallas-stars-thomas-harley-injury/
+
+**Swept Away**\
+`Never-before-published videos, data from smart devices, a crash report and the first interview that Camp Mystic's owners have granted since the July 4 disaster offer the most detailed account yet.`\
+https://nytimes.com/interactive/2025/11/15/us/camp-mystic-flooding-deaths-video-map.html
+
 **Bronny James inserted into Lakers' starting lineup for injury-riddled roster**\
 `Lakers guard Bronny James will make his first start of the season against the Milwaukee Bucks as Los Angeles deals with several injuries.`\
 https://nytimes.com/athletic/6810896/2025/11/15/bronny-james-starter-lakers-nba/
