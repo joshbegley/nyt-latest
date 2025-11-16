@@ -1,40 +1,40 @@
-**What we learned about the CFP: Has Notre Dame secured a bid? Is there a path for Miami?**\
-`There is a nightmare scenario in which the Big Ten could send only two teams to the College Football Playoff. `\
-https://nytimes.com/athletic/6811433/2025/11/16/college-football-playoff-race-updates-week-12/
+**Sam Rinzel sits, but Blackhawks stand tall in comeback win over Maple Leafs**\
+`Rinzel was made a healthy scratch Saturday in the Blackhawks' 3-2 win over the Maple Leafs.`\
+https://nytimes.com/athletic/6811171/2025/11/16/blackhawks-sam-rinzel-scratch-maple-leafs/
 
-**China Escalates Japan Feud With Island Patrols and Warnings to Citizens**\
-`China sent Coast Guard ships near disputed islands and warned travelers and students about safety risks in Japan. The escalation is over comments on Taiwan by Japan’s new prime minister.`\
-https://nytimes.com/2025/11/16/world/asia/china-japan-relations-coast-guard.html
+**Pope Leo Doesn’t Want to Be the Anti-Trump. But He Is.**\
+`A Christian answer to Trumpism is beginning to emerge.`\
+https://nytimes.com/2025/11/16/opinion/trump-pope-leo-maga-christianity.html
 
-**Divisional showdowns, playoff previews lead tremendous NFL Week 11 slate**\
-`Broncos and Chiefs battle for AFC West control, Seahawks and Rams meet for first place in the NFC West, and Lions and Eagles square off.`\
-https://nytimes.com/athletic/6805666/2025/11/16/nfl-week-11-storylines-chiefs-broncos-lions-eagles/
+**Sunday Special: A Sea of Streaming Docs**\
+`True Crime, celebrity docs, Ken Burns: There’s no shortage of nonfiction films to watch now.`\
+https://nytimes.com/2025/11/16/podcasts/the-daily/sunday-special-a-sea-of-streaming-docs.html
 
-**The New York Times International Edition in Print for Monday, Nov. 17, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/11/16/todays-new-york-times-international-edition
+**The Best Gifts Don’t Cost Money. Tell Us About Your Favorite.**\
+`The gifts that cost the least are sometimes the ones that mean the most. Share yours with NYT Opinion.`\
+https://nytimes.com/2025/11/16/opinion/share-favorite-homemade-gifts.html
 
-**How to watch Predators vs. Penguins: Time, TV, streaming**\
-`Find out how to watch the Nashville Predators play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6811558/2025/11/16/predators-vs-penguins-stream-how-to-watch-nov-16/
+**Ecuador Can’t Shoot Its Way to Peace**\
+`President Noboa’s crime crackdown is igniting new waves of violence across Ecuador.`\
+https://nytimes.com/2025/11/16/opinion/ecuador-noboa-crime-military-bases.html
 
-**Sky Sports axes female-focused TikTok Halo following fierce backlash**\
-`Sky announced on Saturday that it would cease activity on the social page which the broadcaster had dubbed its 'lil sis'.`\
-https://nytimes.com/athletic/6811513/2025/11/16/sky-sports-halo-cancelled-criticism/
+**Economists Hate This Idea. It Could Be a Way Out of the Affordability Crisis.**\
+`Voters are demanding short-term price relief, and temporary price controls may be the only viable way to provide it`\
+https://nytimes.com/2025/11/16/opinion/price-controls-affordability-crisis-economy.html
 
-**How to watch Ohio State vs. UConn women's basketball: Time, TV, streaming**\
-`Find out how to watch the Ohio State Buckeyes play the UConn Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6811549/2025/11/16/ohio-state-vs-uconn-stream-how-to-watch-nov-16/
+**Connections Companion No. 890**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 17, 2025.`\
+https://nytimes.com/2025/11/16/crosswords/connections-companion-890.html
 
-**How to watch Princeton vs. Maryland women's basketball: Time, TV, streaming**\
-`Find out how to watch the Princeton Tigers play the Maryland Terrapins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6811548/2025/11/16/princeton-vs-maryland-stream-how-to-watch-nov-16/
+**Strands Sidekick No. 624**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 17, 2025.`\
+https://nytimes.com/2025/11/16/crosswords/strands-sidekick-624.html
 
-**How to watch TCU vs. NC State women's basketball: Time, TV, streaming**\
-`Find out how to watch the TCU Horned Frogs play the NC State Lady Wolfpack, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6811545/2025/11/16/tcu-vs-nc-state-stream-how-to-watch-nov-16/
+**At Wrigley Field, Michigan's Big Ten animosity takes a day off**\
+`Michigan’s culture is embedded so deeply in the Big Ten's reputation that to extract the school would lessen both entities.`\
+https://nytimes.com/athletic/6810885/2025/11/16/michigan-big-ten-wrigley-field/
 
-**What to Know About Chile’s Election on Sunday**\
-`Polls show right-wing candidates drawing the most support, but a recent compulsory voting law could bring a surge of new voters, adding uncertainty.`\
-https://nytimes.com/2025/11/16/world/americas/chile-presidential-election-on-sunday.html
+**Wordle Review No. 1612**\
+`Scroll down for hints and conversation about the puzzle for Monday, Nov. 17, 2025.`\
+https://nytimes.com/2025/11/16/crosswords/wordle-review-1612.html
 
