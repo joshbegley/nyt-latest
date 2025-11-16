@@ -1,3 +1,15 @@
+**With Everything on the Line**\
+`Rena Cohen has your number.`\
+https://nytimes.com/2025/11/16/crosswords/daily-puzzle-2025-11-17.html
+
+**Can Josh Allen do it all for the Bills? Are the Bears for real? Our experts' Week 11 takeaways**\
+`Also: Who is ahead in the race for the AFC wild-card slots? And is J.J. McCarthy's inaccuracy cause for concern?`\
+https://nytimes.com/athletic/6812135/2025/11/16/nfl-takeaways-week-11-scores-results/
+
+**Quarterback Tommy Carr — CJ's brother and Lloyd's grandson — commits to Michigan**\
+`Carr, a three-star prospect, had previously been committed to Miami (Ohio). `\
+https://nytimes.com/athletic/6812793/2025/11/16/michigan-recruiting-tommy-carr-cj-loyd-quarterback/
+
 **Kings sign Adrian Kempe to 8-year, $85 million contract extension: Sources**\
 `In his nine seasons with the Kings, Kempe has evolved from a late first-round pick in 2014 into their best player.`\
 https://nytimes.com/athletic/6680130/2025/11/16/adrian-kempe-kings-contract/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6812422/2025/11/16/dr-congo-beat-nigeria-world-cup-
 **Calvin Ridley out for season as Titans fall to Texans**\
 `Ridley broke his fibula and is done for the year, adding to Tennessee's woes.`\
 https://nytimes.com/athletic/6812488/2025/11/16/texans-titans-score-result-takeaways-nfl/
-
-**Bears hang on to beat Vikings after blowing 13-point lead**\
-`Chicago held a 16-3 lead entering the fourth quarter and let it get away, but kicker Cairo Santos came up clutch.`\
-https://nytimes.com/athletic/6812156/2025/11/16/bears-vikings-score-result-takeaways-nfl/
-
-**Is UConn even more dominant than last season's national championship team?**\
-`The Huskies have won every game so far by double digits thanks to their depth. `\
-https://nytimes.com/athletic/6812600/2025/11/16/uconn-undefeated-ohio-state-victory/
-
-**Norway qualify for first World Cup since 1998 as Haaland goals secure win in Italy**\
-`Norway would have had to have lost to Italy by nine goals to be pipped to automatic qualification, but won 4-1 in Milan on Sunday night.`\
-https://nytimes.com/athletic/6803892/2025/11/16/norway-haaland-world-cup-qualify/
 
