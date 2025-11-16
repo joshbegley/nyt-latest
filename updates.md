@@ -1,3 +1,7 @@
+**Sanju Samson and Ravindra Jadeja: Analysing the biggest trade in Indian Premier League history**\
+`The swap deal struck by Rajasthan Royals and Chennai Super Kings has been the standout trade of the off-season ahead of the 2026 IPL`\
+https://nytimes.com/athletic/6809514/2025/11/16/ipl-samson-jadeja-rajasthan-chennai-trade/
+
 **Mathieu Olivier's wake-up call earns Blue Jackets a point in shootout loss to Rangers**\
 `The Blue Jackets, with the loser's point, are on a four-game point streak during their busiest stretch of the season.`\
 https://nytimes.com/athletic/6810974/2025/11/16/blue-jackets-rangers-shootout-mathieu-olivier/
