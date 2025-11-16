@@ -1,3 +1,11 @@
+**Calvin Duncan’s Unlikely Journey: Convict to Exoneree to Elected Official**\
+`Mr. Duncan was elected clerk of the criminal court in New Orleans on Saturday, ousting an incumbent who claimed Mr. Duncan had never been cleared of the murder that sent him to prison.`\
+https://nytimes.com/2025/11/16/us/calvin-duncan-new-orleans-criminal-court-clerk.html
+
+**Coby White expected to make season debut for Bulls Wednesday: Source**\
+`White, recovering from a calf strain, initially garnered optimism for a return around the Bulls’ season opener, but he suffered a setback.`\
+https://nytimes.com/athletic/6812324/2025/11/16/bulls-coby-white-season-debut-jazz/
+
 **USMNT players give backing to MLS season switch**\
 `USMNT players have reacted to MLS's decision to switch to the European calendar in 2027 with broad agreement with the change.`\
 https://nytimes.com/athletic/6812219/2025/11/16/mls-calendar-switch-player-reactions/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6812305/2025/11/16/bulls-vs-jazz-stream-how-to-watc
 **How to watch Bulls vs. Jazz: Time, TV, streaming**\
 `Find out how to watch the Chicago Bulls play the Utah Jazz, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6812301/2025/11/16/bulls-vs-jazz-stream-how-to-watch-nov-16/
-
-**How to watch Trail Blazers vs. Mavericks: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the Dallas Mavericks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6812296/2025/11/16/trail-blazers-vs-mavericks-stream-how-to-watch-nov-16/
-
-**How to watch Islanders vs. Avalanche: Time, TV, streaming**\
-`Find out how to watch the New York Islanders play the Colorado Avalanche, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6812294/2025/11/16/islanders-vs-avalanche-stream-how-to-watch-nov-16/
 

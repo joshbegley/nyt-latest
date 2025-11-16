@@ -1,3 +1,19 @@
+**USMNT players give backing to MLS season switch**\
+`USMNT players have reacted to MLS's decision to switch to the European calendar in 2027 with broad agreement with the change.`\
+https://nytimes.com/athletic/6812219/2025/11/16/mls-calendar-switch-player-reactions/
+
+**Sinner wins ATP Tour Finals as he and Alcaraz confirm that their only rivals are each other**\
+`Holding the five biggest titles in men's tennis, Alcaraz and Sinner end 2025 with emphatic proof that their duopoly is only just beginning.`\
+https://nytimes.com/athletic/6811689/2025/11/16/alcaraz-sinner-atp-tour-finals-result-analysis/
+
+**Packers RB Josh Jacobs ruled out vs. Giants with knee injury**\
+`The Packers are already without tight end Tucker Kraft and now have to get by without Jacobs.`\
+https://nytimes.com/athletic/6812172/2025/11/16/packers-josh-jacobs-knee-injury-update/
+
+**Giannis Antetokounmpo helps Lakers retrieve game ball for rookie Adou Thiero**\
+`The Bucks star, who has a checkered history in game-ball disputes, helped resolve a disagreement over who would get Saturday's game ball.`\
+https://nytimes.com/athletic/6812072/2025/11/16/giannis-antetokounmpo-lakers-bucks-game-ball/
+
 **Boy, 10, and Woman, 21, Are Killed in Newark Shooting**\
 `Three other people, including an 11-year-old boy, were wounded in the shooting on Saturday night, city officials said. It was unclear whether the police had made any arrests.`\
 https://nytimes.com/2025/11/16/nyregion/newark-shooting.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6812296/2025/11/16/trail-blazers-vs-mavericks-strea
 **How to watch Islanders vs. Avalanche: Time, TV, streaming**\
 `Find out how to watch the New York Islanders play the Colorado Avalanche, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6812294/2025/11/16/islanders-vs-avalanche-stream-how-to-watch-nov-16/
-
-**How to watch Hawks vs. Suns: Time, TV, streaming**\
-`Find out how to watch the Atlanta Hawks play the Phoenix Suns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6812292/2025/11/16/hawks-vs-suns-stream-how-to-watch-nov-16/
-
-**Yohe's 10 observations: Sergei Murashov notches shutout in Sweden for first career NHL win**\
-`Sergei Murashov backstopped the Penguins to a 4-0 win over the Predators in Sweden on Sunday.`\
-https://nytimes.com/athletic/6811567/2025/11/16/penguins-sergei-murashov-shutout-predators-sweden/
-
-**AP Top 25: Alabama falls to No. 10; North Texas gets first ranking since 1959**\
-`Ohio State, Indiana, Texas A&M, Georgia and Ole Miss make up the top five of this week's AP Top 25 college football rankings.`\
-https://nytimes.com/athletic/6812184/2025/11/16/ap-top-25-rankings-alabama-north-texas/
-
-**Man Utd and USWNT goalkeeper Tullis-Joyce fractures eye socket**\
-`United head coach Marc Skinner said the U.S. goalkeeper sustained the injury against Aston Villa on November 11, but had not been concussed.`\
-https://nytimes.com/athletic/6810288/2025/11/16/tullis-joyce-injury-manchester-united-uswnt/
 
