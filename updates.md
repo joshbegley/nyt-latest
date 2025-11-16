@@ -1,3 +1,7 @@
+**Browns QB Shedeur Sanders makes NFL debut**\
+`Sanders' first drive ended with a sack and fumble that the Browns recovered and his second possession ended with an interception.`\
+https://nytimes.com/athletic/6812848/2025/11/16/shedeur-sanders-debut-browns-nfl/
+
 **With Everything on the Line**\
 `Rena Cohen has your number.`\
 https://nytimes.com/2025/11/16/crosswords/daily-puzzle-2025-11-17.html

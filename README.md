@@ -1,5 +1,9 @@
+**Jaedyn Shaw free kick sends No. 8 Gotham FC to NWSL championship with win over Pride**\
+`Gotham defeated the reigning NWSL champions to advance and will meet the No. 2 Washington Spirit on Nov. 22 at PayPal Park.`\
+https://nytimes.com/athletic/6812849/2025/11/16/gotham-fc-advance-nwsl-championship-jaedyn-shaw/
+
 **Browns QB Shedeur Sanders makes NFL debut**\
-`Sanders' first drive ended with a sack and fumble that the Browns recovered and his second possession ended with an interception.`\
+`Sanders' first drive ended with a sack and fumble that Cleveland recovered, and his second possession ended with an interception.`\
 https://nytimes.com/athletic/6812848/2025/11/16/shedeur-sanders-debut-browns-nfl/
 
 **With Everything on the Line**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6812381/2025/11/16/buccaneers-bills-score-result-ta
 **Bengals-Steelers: Aaron Rodgers injures wrist but Pittsburgh defense shines**\
 `The Steelers and Bengals got off to hot starts, each scoring a first-quarter touchdown but slowed in the second before Pittsburgh got ahead.`\
 https://nytimes.com/athletic/6811858/2025/11/16/bengals-steelers-score-result-takeaways-nfl/
-
-**The Briefing: DR Congo beat Nigeria on penalties to reach inter-confederation play-offs**\
-`DR Congo beat Nigeria to reach the inter-confederation play-offs after a tense penalty shootout. We break down the key moments`\
-https://nytimes.com/athletic/6812422/2025/11/16/dr-congo-beat-nigeria-world-cup-qualifiers/
 
