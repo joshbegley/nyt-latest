@@ -1,3 +1,15 @@
+**Blackhawks' Nick Foligno out approximately 4 weeks with injury**\
+`Foligno blocked a shot off his left hand in the second period of Saturday’s game against the Maple Leafs and did not return.`\
+https://nytimes.com/athletic/6811158/2025/11/15/chicago-blackhawks-nick-foligno-injury/
+
+**Ohio State just keeps cruising to easy Big Ten wins as run game dominates UCLA**\
+`Carnell Tate was out and Jeremiah Smith was limited, but No. 1 Ohio State routed UCLA with ease 48-10 on Saturday night.`\
+https://nytimes.com/athletic/6811140/2025/11/15/ohio-state-ucla-football-score-result/
+
+**Rare onside kick, fourth-down plays propel Georgia toward Playoff as Texas' chances sink**\
+`Georgia successfully pulled off the first onside kick of Kirby Smart's tenure Saturday to regain control and handle Texas.`\
+https://nytimes.com/athletic/6811024/2025/11/15/texas-georgia-score-result/
+
 **USC survives dogfight vs. Iowa — now the biggest test of Lincoln Riley's tenure awaits**\
 `The Trojans head to Oregon next week — where they have not won since 2011 — for a game with significant CFP ramifications.`\
 https://nytimes.com/athletic/6811044/2025/11/15/usc-trojans-lincoln-riley-college-football-playoff/
