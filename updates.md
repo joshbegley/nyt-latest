@@ -1,3 +1,7 @@
+**USC survives dogfight vs. Iowa — now the biggest test of Lincoln Riley's tenure awaits**\
+`The Trojans head to Oregon next week — where they have not won since 2011 — for a game with significant CFP ramifications.`\
+https://nytimes.com/athletic/6811044/2025/11/15/usc-trojans-lincoln-riley-college-football-playoff/
+
 **Tough goalie decisions ahead after Jesper Wallstedt's second straight shutout: Takeaways**\
 `Wallstedt became the first rookie in Wild history to record consecutive shutouts Saturday night during a 2-0 win over the Ducks.`\
 https://nytimes.com/athletic/6810818/2025/11/15/wild-ducks-jesper-wallstedt-shutout/
