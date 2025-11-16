@@ -1,3 +1,7 @@
+**Bengals-Steelers: Aaron Rodgers injures hand but Pittsburgh defense shines**\
+`The Steelers and Bengals got off to hot starts, each scoring a first-quarter touchdown but slowed in the second before Pittsburgh got ahead.`\
+https://nytimes.com/athletic/6811858/2025/11/16/bengals-steelers-score-result-takeaways-nfl/
+
 **Panthers-Falcons: Bryce Young's career day rallies Carolina to OT win**\
 `Young threw for a career-high 448 yards and three touchdowns, just his third career 300-yard passing game.`\
 https://nytimes.com/athletic/6812020/2025/11/16/panthers-falcons-score-result-takeaways-nfl/
