@@ -1,3 +1,15 @@
+**Adam Sandler Is the Light We Need. Yes, Adam Sandler.**\
+`When I took my dad to see Adam Sandler live, I expected to laugh. We both got so much more.`\
+https://nytimes.com/2025/11/16/opinion/adam-sandler-comedy-fun-light.html
+
+**The New York Times in Print for Sunday, Nov. 16, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/16/todays-new-york-times
+
+**The Laptop That Ate Your Child’s Classroom**\
+`Asking students to drill down on their schoolwork amid an array of digital distractions is inimical to learning.`\
+https://nytimes.com/2025/11/16/opinion/laptop-classroom-test-scores.html
+
 **Sanju Samson and Ravindra Jadeja: Analysing the biggest trade in Indian Premier League history**\
 `The swap deal struck by Rajasthan Royals and Chennai Super Kings has been the standout trade of the off-season ahead of the 2026 IPL`\
 https://nytimes.com/athletic/6809514/2025/11/16/ipl-samson-jadeja-rajasthan-chennai-trade/
