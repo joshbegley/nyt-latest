@@ -1,3 +1,7 @@
+**Jets CB Kris Boyd in critical but stable condition after being shot in NYC**\
+`The shooting was reported around 2 a.m. Sunday on West 38th Street in Midtown Manhattan, according to an NYPD spokesperson.`\
+https://nytimes.com/athletic/6812011/2025/11/16/jets-cornerback-kris-boyd-shooting-manhattan-condition/
+
 **Marjorie Taylor Greene Extends an Olive Branch to Trump**\
 `The Georgia Republican, long a loyal Trump ally, had come under attack by the president after showing independence, notably on the government’s investigation of Jeffrey Epstein.`\
 https://nytimes.com/2025/11/16/us/politics/marjorie-taylor-greene-trump-epstein-files.html
