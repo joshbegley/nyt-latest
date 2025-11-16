@@ -1,3 +1,15 @@
+**Blackhawks' Nick Foligno out approximately 4 weeks with injury**\
+`Foligno blocked a shot off his left hand in the second period of Saturday’s game against the Maple Leafs and did not return.`\
+https://nytimes.com/athletic/6811158/2025/11/15/chicago-blackhawks-nick-foligno-injury/
+
+**Ohio State just keeps cruising to easy Big Ten wins as run game dominates UCLA**\
+`Carnell Tate was out and Jeremiah Smith was limited, but No. 1 Ohio State routed UCLA with ease 48-10 on Saturday night.`\
+https://nytimes.com/athletic/6811140/2025/11/15/ohio-state-ucla-football-score-result/
+
+**Rare onside kick, fourth-down plays propel Georgia toward Playoff as Texas' chances sink**\
+`Georgia successfully pulled off the first onside kick of Kirby Smart's tenure Saturday to regain control and handle Texas.`\
+https://nytimes.com/athletic/6811024/2025/11/15/texas-georgia-score-result/
+
 **Tough goalie decisions ahead after Jesper Wallstedt's second straight shutout: Takeaways**\
 `Wallstedt became the first rookie in Wild history to record consecutive shutouts Saturday night during a 2-0 win over the Ducks.`\
 https://nytimes.com/athletic/6810818/2025/11/15/wild-ducks-jesper-wallstedt-shutout/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6810969/2025/11/15/bruins-charlie-mcavoy-injury-can
 **NWSL can't keep Trinity Rodman and its current salary cap. It's time to choose**\
 `The rest of the world, and its biggest clubs, are watching the league's decision closely. `\
 https://nytimes.com/athletic/6810930/2025/11/15/trinity-rodman-contract-nwsl-salary-cap/
-
-**Stars' Thomas Harley out week to week with lower-body injury**\
-`Harley had been labeled a game-time decision for the last few games and was finally scratched for Saturday’s home game against Philadelphia.`\
-https://nytimes.com/athletic/6810918/2025/11/15/dallas-stars-thomas-harley-injury/
-
-**Swept Away**\
-`Never-before-published videos, data from smart devices, a crash report and the first interview that Camp Mystic's owners have granted since the July 4 disaster offer the most detailed account yet.`\
-https://nytimes.com/interactive/2025/11/15/us/camp-mystic-flooding-deaths-video-map.html
-
-**Bronny James inserted into Lakers' starting lineup for injury-riddled roster**\
-`Lakers guard Bronny James will make his first start of the season against the Milwaukee Bucks as Los Angeles deals with several injuries.`\
-https://nytimes.com/athletic/6810896/2025/11/15/bronny-james-starter-lakers-nba/
 
