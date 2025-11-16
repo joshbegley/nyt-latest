@@ -1,3 +1,7 @@
+**Aaron Rodgers suffers left hand injury, questionable to return vs. Bengals**\
+`Backup QB Mason Rudolph started the second half for Pittsburgh.`\
+https://nytimes.com/athletic/6812394/2025/11/16/aaron-rodgers-injury-pittsburgh-steelers/
+
 **Calvin Duncan’s Unlikely Journey: Convict to Exoneree to Elected Official**\
 `Mr. Duncan was elected clerk of the criminal court in New Orleans on Saturday, ousting an incumbent who claimed Mr. Duncan had never been cleared of the murder that sent him to prison.`\
 https://nytimes.com/2025/11/16/us/calvin-duncan-new-orleans-criminal-court-clerk.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/16/world/europe/britain-asylum-system.html
 **How to watch Bulls vs. Jazz: Time, TV, streaming**\
 `Find out how to watch the Chicago Bulls play the Utah Jazz, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6812305/2025/11/16/bulls-vs-jazz-stream-how-to-watch-nov-16-2/
-
-**How to watch Bulls vs. Jazz: Time, TV, streaming**\
-`Find out how to watch the Chicago Bulls play the Utah Jazz, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6812301/2025/11/16/bulls-vs-jazz-stream-how-to-watch-nov-16/
 
