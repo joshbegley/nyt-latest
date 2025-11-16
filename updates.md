@@ -1,3 +1,11 @@
+**How to watch Clippers vs. Celtics: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Clippers play the Boston Celtics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6811674/2025/11/16/clippers-vs-celtics-stream-how-to-watch-nov-16/
+
+**How to watch Kings vs. Spurs: Time, TV, streaming**\
+`Find out how to watch the Sacramento Kings play the San Antonio Spurs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6811672/2025/11/16/kings-vs-spurs-stream-how-to-watch-nov-16/
+
 **How to watch Oklahoma vs. Western Carolina women's basketball: Time, TV, streaming**\
 `Find out how to watch the Oklahoma Sooners play the Western Carolina Catamounts, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6811664/2025/11/16/oklahoma-vs-western-carolina-stream-how-to-watch-nov-16/

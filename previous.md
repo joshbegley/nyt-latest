@@ -1,3 +1,11 @@
+**How to watch Clippers vs. Celtics: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Clippers play the Boston Celtics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6811674/2025/11/16/clippers-vs-celtics-stream-how-to-watch-nov-16/
+
+**How to watch Kings vs. Spurs: Time, TV, streaming**\
+`Find out how to watch the Sacramento Kings play the San Antonio Spurs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6811672/2025/11/16/kings-vs-spurs-stream-how-to-watch-nov-16/
+
 **How to watch Oklahoma vs. Western Carolina women's basketball: Time, TV, streaming**\
 `Find out how to watch the Oklahoma Sooners play the Western Carolina Catamounts, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6811664/2025/11/16/oklahoma-vs-western-carolina-stream-how-to-watch-nov-16/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6811649/2025/11/16/duke-vs-liberty-stream-how-to-wa
 **How to watch Houston vs. Auburn men's basketball: Time, TV, streaming**\
 `Find out how to watch the Houston Cougars play the Auburn Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6811631/2025/11/16/houston-vs-auburn-stream-how-to-watch-nov-16/
-
-**Mandel's Final Thoughts: Could the SEC send 5 (or even 6) teams to the Playoff?**\
-`The SEC shakes up the CFP race with Alabama's stumble and Ole Miss continues to roll.`\
-https://nytimes.com/athletic/6811471/2025/11/16/college-football-scores-results-week-12/
-
-**Meet Dr. ChatGPT**\
-`Chatbots are empathetic and accessible, but they can sometimes be wrong. What happens when you ask them for medical advice?`\
-https://nytimes.com/2025/11/16/briefing/meet-dr-chatgpt.html
 
