@@ -1,3 +1,7 @@
+**Islam Makhachev has second UFC belt in dominant win over Jack Della Maddalena**\
+`Makhachev proved his grappling gameplan has no answers regardless of weight class, winning each round to win with ease.`\
+https://nytimes.com/athletic/6811386/2025/11/16/ufc-322-islam-makhachev-welterweight-champion/
+
 **Adam Sandler Is the Light We Need. Yes, Adam Sandler.**\
 `When I took my dad to see Adam Sandler live, I expected to laugh. We both got so much more.`\
 https://nytimes.com/2025/11/16/opinion/adam-sandler-comedy-fun-light.html

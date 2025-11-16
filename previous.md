@@ -1,3 +1,7 @@
+**Islam Makhachev has second UFC belt in dominant win over Jack Della Maddalena**\
+`Makhachev proved his grappling gameplan has no answers regardless of weight class, winning each round to win with ease.`\
+https://nytimes.com/athletic/6811386/2025/11/16/ufc-322-islam-makhachev-welterweight-champion/
+
 **Adam Sandler Is the Light We Need. Yes, Adam Sandler.**\
 `When I took my dad to see Adam Sandler live, I expected to laugh. We both got so much more.`\
 https://nytimes.com/2025/11/16/opinion/adam-sandler-comedy-fun-light.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6801077/2025/11/16/jack-faint-india-liverpool/
 **What’s More Dangerous than India’s Frequent Heat Waves? Heat Stress.**\
 `Women who face long-term heat exposure in workplaces and homes are finding it takes a heavy toll on their health and income.`\
 https://nytimes.com/2025/11/16/world/asia/heat-stress-women-india.html
-
-**Quote of the Day: In Fishing Village of a Colombian Believed Killed in a U.S. Boat Strike**\
-`Quotation of the Day for Sunday, November 15, 2025.`\
-https://nytimes.com/2025/11/16/pageoneplus/quote-of-the-day-in-fishing-village-of-a-colombian-believed-killed-in-a-us-boat-strike.html
 
