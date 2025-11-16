@@ -1,3 +1,11 @@
+**Your Questions About Climate Change, Answered**\
+`You asked Somini Sengupta, our international climate reporter, about the science and the politics. She responded from COP30 in Brazil.`\
+https://nytimes.com/2025/11/16/world/climate-cop-brazil-jeffrey-epstein-trump-greene.html
+
+**Steelers' Jalen Ramsey ejected for throwing punch at Ja'Marr Chase**\
+`Ramsey, 31, was first called for unsportsmanlike conduct early in the fourth quarter after a verbal exchange on a third-down run.`\
+https://nytimes.com/athletic/6812461/2025/11/16/jalen-ramsey-ejection-steelers-bengals-nfl/
+
 **Coby White expected to make season debut for Bulls Sunday night: Source**\
 `White, recovering from a calf strain, initially garnered optimism for a return around the Bulls’ season opener, but he suffered a setback.`\
 https://nytimes.com/athletic/6812324/2025/11/16/bulls-coby-white-season-debut-jazz/

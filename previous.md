@@ -1,3 +1,11 @@
+**Your Questions About Climate Change, Answered**\
+`You asked Somini Sengupta, our international climate reporter, about the science and the politics. She responded from COP30 in Brazil.`\
+https://nytimes.com/2025/11/16/world/climate-cop-brazil-jeffrey-epstein-trump-greene.html
+
+**Steelers' Jalen Ramsey ejected for throwing punch at Ja'Marr Chase**\
+`Ramsey, 31, was first called for unsportsmanlike conduct early in the fourth quarter after a verbal exchange on a third-down run.`\
+https://nytimes.com/athletic/6812461/2025/11/16/jalen-ramsey-ejection-steelers-bengals-nfl/
+
 **Tuchel: Bellingham didn't like substitution, but England are a collective**\
 `Bellingham was replaced by Morgan Rogers in the aftermath of Harry Kane's headed goal which doubled England's lead in the 82nd minute.`\
 https://nytimes.com/athletic/6812411/2025/11/16/bellingham-england-substitution-tuchel/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6811689/2025/11/16/alcaraz-sinner-atp-tour-finals-r
 **Packers RB Josh Jacobs ruled out vs. Giants with knee injury**\
 `The Packers are already without tight end Tucker Kraft and now have to get by without Jacobs.`\
 https://nytimes.com/athletic/6812172/2025/11/16/packers-josh-jacobs-knee-injury-update/
-
-**Giannis Antetokounmpo helps Lakers retrieve game ball for rookie Adou Thiero**\
-`Thiero made his NBA debut and scored his first career points Saturday night, and Antetokounmpo helped keep an unofficial tradition alive.`\
-https://nytimes.com/athletic/6812072/2025/11/16/giannis-antetokounmpo-lakers-bucks-game-ball/
-
-**Boy, 10, and Woman, 21, Are Killed in Newark Shooting**\
-`Three other people, including an 11-year-old boy, were wounded in the shooting on Saturday night, city officials said. It was unclear whether the police had made any arrests.`\
-https://nytimes.com/2025/11/16/nyregion/newark-shooting.html
 
