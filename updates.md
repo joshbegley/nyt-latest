@@ -1,3 +1,11 @@
+**How to watch Texas Southern vs. Texas women's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Southern Tigers play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6811929/2025/11/16/texas-southern-vs-texas-stream-how-to-watch-nov-16/
+
+**Arctic Blast Brings Risk of Snow and Ice to Britain**\
+`The cold weather, which comes on the heels of a storm that caused flooding in Wales, is expected to jolt Britain out of its recent run of mild temperatures.`\
+https://nytimes.com/2025/11/16/weather/uk-cold-forecast-snow.html
+
 **Deandre Ayton and the Lakers need each other. Is he feeling the love?**\
 `“They said this my last chance,” Ayton said of the NBA. So far, it’s been largely agenda-less basketball for the Lakers and their center.`\
 https://nytimes.com/athletic/6811129/2025/11/16/deandre-ayton-lakers-luka-doncic-lebron-james-nba/
