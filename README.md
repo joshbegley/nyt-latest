@@ -1,3 +1,15 @@
+**How to watch Ohio State vs. UConn women's basketball: Time, TV, streaming**\
+`Find out how to watch the Ohio State Buckeyes play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6811549/2025/11/16/ohio-state-vs-uconn-stream-how-to-watch-nov-16/
+
+**How to watch Princeton vs. Maryland women's basketball: Time, TV, streaming**\
+`Find out how to watch the Princeton Tigers play the Maryland Terrapins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6811548/2025/11/16/princeton-vs-maryland-stream-how-to-watch-nov-16/
+
+**How to watch TCU vs. NC State women's basketball: Time, TV, streaming**\
+`Find out how to watch the TCU Horned Frogs play the NC State Lady Wolfpack, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6811545/2025/11/16/tcu-vs-nc-state-stream-how-to-watch-nov-16/
+
 **What to Know About Chile’s Election on Sunday**\
 `Polls show right-wing candidates drawing the most support, but a recent compulsory voting law could bring a surge of new voters, adding uncertainty.`\
 https://nytimes.com/2025/11/16/world/americas/chile-presidential-election-on-sunday.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6811097/2025/11/16/nfl-draft-2026-scouting-love-del
 **Talking Dogs and the Spirit of Sontag Show Up in This Story Collection**\
 `At its best, Joy Williams’s “The Pelican Child” is delightfully unhinged; at its worst, willfully weird and repetitive.`\
 https://nytimes.com/2025/11/16/books/review/joy-williams-the-pelican-child.html
-
-**More People Are Asking A.I. Medical Questions. What Are the Risks?**\
-`Frustrated with the U.S. health system, patients are increasingly turning to A.I. chatbots like ChatGPT for medical advice. But where do the benefits of A.I. end and its limitations begin? Teddy Rosenbluth, a reporter for Well, explains.`\
-https://nytimes.com/video/well/100000010516883/ai-medical-questions-risks.html
-
-**At a Famed Market, Rats Are Out, Tourists Are in. Is That a Good Thing?**\
-`A market central to a Brazilian port city’s culture and cuisine got a makeover for the U.N. Climate Change Conference. The results have thrilled some, but angered others.`\
-https://nytimes.com/2025/11/16/world/americas/un-climate-summit-belem-brazil-market.html
-
-**Pasta at Twice the Price? Some Italian Producers Face Huge U.S. Tariffs.**\
-`More than a dozen Italian pasta makers, accused of dumping their product in the United States, face tariffs of over 100 percent.`\
-https://nytimes.com/2025/11/16/business/italian-pasta-tariffs-trump.html
 
