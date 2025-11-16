@@ -1,3 +1,7 @@
+**Albania 0 England 2 - Did Bellingham deliver as No 10? Did Tuchel's tactical experiments work?**\
+`Harry Kane scored two in the second half as England finished World Cup qualifying with a perfect record`\
+https://nytimes.com/athletic/6801851/2025/11/16/albania-0-england-2-kane-bellingham/
+
 **Dolphins-Commanders takeaways: Miami wins overtime defensive slugfest in Madrid**\
 `Gritty defensive stands marked the battle between two teams that entered the day 3-7.`\
 https://nytimes.com/athletic/6812084/2025/11/16/dolphins-commanders-score-result-takeaways-madrid/

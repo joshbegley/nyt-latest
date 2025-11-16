@@ -1,3 +1,7 @@
+**Albania 0 England 2 - Did Bellingham deliver as No 10? Did Tuchel's tactical experiments work?**\
+`Harry Kane scored two in the second half as England finished World Cup qualifying with a perfect record`\
+https://nytimes.com/athletic/6801851/2025/11/16/albania-0-england-2-kane-bellingham/
+
 **Dolphins-Commanders takeaways: Miami wins overtime defensive slugfest in Madrid**\
 `Gritty defensive stands marked the battle between two teams that entered the day 3-7.`\
 https://nytimes.com/athletic/6812084/2025/11/16/dolphins-commanders-score-result-takeaways-madrid/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6811067/2025/11/16/a-27-point-comeback-and-more-sur
 **Playoff bids abound for the SEC, but angst, too: SEC vibes after Week 12**\
 `The SEC looks poised to take five of the 12 Playoff spots. But what about six?`\
 https://nytimes.com/athletic/6811930/2025/11/16/sec-football-rankings-week-12-georgia-oklahoma-texas/
-
-**Knicks' OG Anunoby out at least 2 weeks with hamstring strain**\
-`The injured forward won’t travel with the Knicks on their upcoming road trip.`\
-https://nytimes.com/athletic/6808918/2025/11/16/og-anunoby-injury-knicks-status/
 

@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>We&#8217;ve officially reached the &#8220;Oh crap, there are too many 10-2 teams&#8221; stretch of the season.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6812188/2025/11/16/submit-a-question-for-stewart-mandels-college-football-mailbag-323/
+
 **Albania 0 England 2 - Did Bellingham deliver as No 10? Did Tuchel's tactical experiments work?**\
 `Harry Kane scored two in the second half as England finished World Cup qualifying with a perfect record`\
 https://nytimes.com/athletic/6801851/2025/11/16/albania-0-england-2-kane-bellingham/
@@ -33,8 +39,4 @@ https://nytimes.com/2025/11/16/us/politics/marjorie-taylor-greene-trump-epstein-
 **The Pulse: A wild day in the SEC**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6811067/2025/11/16/a-27-point-comeback-and-more-surprises-across-the-sec/
-
-**Playoff bids abound for the SEC, but angst, too: SEC vibes after Week 12**\
-`The SEC looks poised to take five of the 12 Playoff spots. But what about six?`\
-https://nytimes.com/athletic/6811930/2025/11/16/sec-football-rankings-week-12-georgia-oklahoma-texas/
 
