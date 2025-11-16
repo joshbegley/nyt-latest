@@ -1,3 +1,7 @@
+**South Carolina wins battle for 'The Real SC' over USC: Takeaways**\
+`The Gamecocks had one returning starter in the opening lineup but used a familiar recipe to defeat the Trojans.`\
+https://nytimes.com/athletic/6811195/2025/11/15/south-carolina-usc-score-result/
+
 **What we saw from Leafs' loss to Blackhawks: Joseph Woll's return, Philippe Myers' errors**\
 `After falling 3-2 to Chicago, Toronto lost its fifth straight game and dropped to an 8-9-2 record for the season.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6811044/2025/11/15/usc-trojans-lincoln-riley-colleg
 **Lane Kiffin rips refs for apparent mistake, but Ole Miss handles Florida to move closer to Playoff**\
 `Instead of a made field goal, it appeared Ole Miss should have got an automatic first down that extended the drive with goal-to-go.`\
 https://nytimes.com/athletic/6810987/2025/11/15/florida-ole-miss-lane-kiffin-refs-missed-call/
-
-**Pochettino laments 'dangerous' fight, lauds team spirit in Paraguay win**\
-`An injury-time scuffle broke out as the U.S. clinched another friendly victory leading up to the World Cup`\
-https://nytimes.com/athletic/6811043/2025/11/15/usmnt-pochettino-fight-paraguay/
 
