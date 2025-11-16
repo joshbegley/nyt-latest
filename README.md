@@ -1,3 +1,7 @@
+**Bengals-Steelers: Pittsburgh has strong second half to win but Rodgers hurt**\
+`The Steelers and Bengals got off to hot starts, each scoring a first-quarter touchdown but slowed in the second before Pittsburgh got ahead.`\
+https://nytimes.com/athletic/6811858/2025/11/16/bengals-steelers-score-result-takeaways-nfl/
+
 **The Briefing: DR Congo beat Nigeria on penalties to reach inter-confederation play-offs**\
 `DR Congo beat Nigeria to reach the inter-confederation play-offs after a tense penalty shootout. We break down the key moments.`\
 https://nytimes.com/athletic/6812422/2025/11/16/dr-congo-beat-nigeria-world-cup-qualifiers/
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6812626/2025/11/16/ravens-mark-andrews-receiving-nf
 `The Commanders have lost six straight games and have virtually no chance left at a playoff spot.`\
 https://nytimes.com/athletic/6812142/2025/11/16/dolphins-beat-commanders-madrid-overtime/
 
-**Giants-Packers Takeaways: Green Bay fights through wind, injuries**\
+**Packers-Giants takeaways: Green Bay fights through wind, injuries in road win**\
 `Packers survive windy day to spoil Giants interim head coach Mike Kafka's debut with a 27-20 win.`\
 https://nytimes.com/athletic/6811965/2025/11/16/packers-giants-score-result-takeaways-nfl/
 
 **Jaguars go hard at Herbert, dominate run game in blowout win over Chargers**\
 `Jacksonville scored four of its five touchdowns on the ground against Los Angeles, which looked lethargic on the field.`\
 https://nytimes.com/athletic/6805373/2025/11/16/chargers-jaguars-score-result-takeaways-nfl/
-
-**Your Questions About Climate Change, Answered**\
-`You asked Somini Sengupta, our international climate reporter, about the science and the politics. She responded from COP30 in Brazil.`\
-https://nytimes.com/2025/11/16/world/climate-cop-brazil-jeffrey-epstein-trump-greene.html
 
