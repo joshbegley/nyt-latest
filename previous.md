@@ -1,4 +1,4 @@
-**Tuchel to 'review' Bellingham reaction to substitution: 'We are a collective'**\
+**Thomas Tuchel: Jude Bellingham didn't like substitution, but England are a collective**\
 `Bellingham was replaced by Morgan Rogers in the aftermath of Harry Kane's headed goal which doubled England's lead in the 82nd minute.`\
 https://nytimes.com/athletic/6812411/2025/11/16/bellingham-england-substitution-tuchel/
 
