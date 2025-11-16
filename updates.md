@@ -1,3 +1,7 @@
+**Mathieu Olivier's wake-up call earns Blue Jackets a point in shootout loss to Rangers**\
+`The Blue Jackets, with the loser's point, are on a four-game point streak during their busiest stretch of the season.`\
+https://nytimes.com/athletic/6810974/2025/11/16/blue-jackets-rangers-shootout-mathieu-olivier/
+
 **The weird and wonderful world of football fan stickers**\
 `Andy Mitten explores the phenomenon of football fan stickers, where petty banter and quirky in-jokes are immortalised in plastic`\
 https://nytimes.com/athletic/6712837/2025/11/16/football-stickers-fans-illegal/

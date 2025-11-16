@@ -1,3 +1,7 @@
+**Mathieu Olivier's wake-up call earns Blue Jackets a point in shootout loss to Rangers**\
+`The Blue Jackets, with the loser's point, are on a four-game point streak during their busiest stretch of the season.`\
+https://nytimes.com/athletic/6810974/2025/11/16/blue-jackets-rangers-shootout-mathieu-olivier/
+
 **The weird and wonderful world of football fan stickers**\
 `Andy Mitten explores the phenomenon of football fan stickers, where petty banter and quirky in-jokes are immortalised in plastic`\
 https://nytimes.com/athletic/6712837/2025/11/16/football-stickers-fans-illegal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6806543/2025/11/16/commanders-dolphins-nfl-spain-ga
 **Connections: Sports Edition Coach: Hints for Nov. 16, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6810060/2025/11/16/connections-sports-edition-hints-for-nov-16-2025/
-
-**Corrections: Nov. 16, 2025**\
-`Corrections that appeared in print on Sunday, Nov. 16, 2025.`\
-https://nytimes.com/2025/11/16/pageoneplus/corrections-nov-16-2025.html
 
