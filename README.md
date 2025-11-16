@@ -1,3 +1,7 @@
+**Tough goalie decisions ahead after Jesper Wallstedt's second straight shutout: Takeaways**\
+`Wallstedt became the first rookie in Wild history to record consecutive shutouts Saturday night during a 2-0 win over the Ducks.`\
+https://nytimes.com/athletic/6810818/2025/11/15/wild-ducks-jesper-wallstedt-shutout/
+
 **USC survived a dogfight vs. Iowa — now the biggest test of Lincoln Riley's tenure awaits**\
 `The Trojans head to Oregon next week — where they have not won since 2011 — for a game with significant CFP ramifications. `\
 https://nytimes.com/athletic/6811044/2025/11/15/usc-trojans-lincoln-riley-college-football-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/11/15/us/camp-mystic-flooding-deaths-video-
 **Bronny James inserted into Lakers' starting lineup for injury-riddled roster**\
 `Lakers guard Bronny James will make his first start of the season against the Milwaukee Bucks as Los Angeles deals with several injuries.`\
 https://nytimes.com/athletic/6810896/2025/11/15/bronny-james-starter-lakers-nba/
-
-**North Carolina falls to Wake Forest, needs wins in final 2 to make bowl game**\
-`UNC (4-6) must defeat Duke and NC State in its final two games to achieve bowl eligibility.`\
-https://nytimes.com/athletic/6810910/2025/11/15/unc-wake-forest-score-result/
 
