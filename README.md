@@ -1,3 +1,7 @@
+**Anthony Davis to be re-assessed in 7-10 days as calf recovery continues**\
+`The Mavericks announced that Anthony Davis was recently re-evaluated and will be “re-assessed in seven to 10 days.”`\
+https://nytimes.com/athletic/6812808/2025/11/16/anthony-davis-injury-update-mavericks-nba/
+
 **Jaedyn Shaw free kick sends No. 8 Gotham FC to NWSL championship with win over Pride**\
 `Gotham defeated the reigning NWSL champions to advance and will meet the No. 2 Washington Spirit on Nov. 22 at PayPal Park.`\
 https://nytimes.com/athletic/6812849/2025/11/16/gotham-fc-advance-nwsl-championship-jaedyn-shaw/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6812020/2025/11/16/panthers-falcons-score-result-ta
 **Bills-Buccaneers takeaways: Josh Allen's 6 touchdowns too much for Tampa Bay**\
 `Josh Allen tied Cam Newton's all-time record for most regular-season rushing touchdowns by a quarterback in Sunday's win over Tampa Bay.`\
 https://nytimes.com/athletic/6812381/2025/11/16/buccaneers-bills-score-result-takeaways-nfl/
-
-**Bengals-Steelers: Aaron Rodgers injures wrist but Pittsburgh defense shines**\
-`The Steelers and Bengals got off to hot starts, each scoring a first-quarter touchdown but slowed in the second before Pittsburgh got ahead.`\
-https://nytimes.com/athletic/6811858/2025/11/16/bengals-steelers-score-result-takeaways-nfl/
 
