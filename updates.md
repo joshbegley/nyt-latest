@@ -1,3 +1,7 @@
+**Aaron Rodgers suffers left wrist injury, misses second half of win over Bengals**\
+`Backup QB Mason Rudolph stepped in after halftime in Pittsburgh.`\
+https://nytimes.com/athletic/6812394/2025/11/16/aaron-rodgers-injury-pittsburgh-steelers/
+
 **Jaguars go hard at Herbert, dominate run game in blowout win over Chargers**\
 `Jacksonville scored four of its five touchdowns on the ground against Los Angeles, which looked lethargic on the field.`\
 https://nytimes.com/athletic/6805373/2025/11/16/chargers-jaguars-score-result-takeaways-nfl/

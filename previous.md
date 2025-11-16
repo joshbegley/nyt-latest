@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6812411/2025/11/16/bellingham-england-substitution-
 https://nytimes.com/athletic/6812430/2025/11/16/falcons-michael-penix-knee-injury-update/
 
 **Aaron Rodgers suffers left wrist injury, misses second half of win over Bengals**\
-`Backup QB Mason Rudolph stepped in for the second half in Pittsburgh.`\
+`Backup QB Mason Rudolph stepped in after halftime in Pittsburgh.`\
 https://nytimes.com/athletic/6812394/2025/11/16/aaron-rodgers-injury-pittsburgh-steelers/
 
 **Calvin Duncan’s Unlikely Journey: Convict to Exoneree to Elected Official**\
