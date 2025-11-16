@@ -1,5 +1,5 @@
 **Stars' Thomas Harley out week to week with lower-body injury**\
-`Harley has been labeled a game-time decision for the last few games and was finally scratched for Saturday’s home game against Philadelphia.`\
+`Harley had been labeled a game-time decision for the last few games and was finally scratched for Saturday’s home game against Philadelphia.`\
 https://nytimes.com/athletic/6810918/2025/11/15/dallas-stars-thomas-harley-injury/
 
 **Swept Away**\
