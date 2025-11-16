@@ -1,3 +1,15 @@
+**Where does the ACC title race stand after Week 12? Georgia Tech, Virginia come away winners**\
+`Georgia Tech, Virginia, SMU and Pittsburgh make up a quartet of teams with one conference loss.`\
+https://nytimes.com/athletic/6810775/2025/11/15/acc-title-race-georgia-tech-virginia-miami/
+
+**How to Make Sense of Law Enforcement in the Streets**\
+`The variety of federal forces deployed to support President Trump’s mass deportation campaign and anticrime efforts continues to expand. Often, it can be difficult for the public to tell them apart, or to understand what powers each agency has.`\
+https://nytimes.com/video/us/politics/100000010484295/how-to-make-sense-of-law-enforcement-in-the-streets.html
+
+**SEC commissioner Greg Sankey says 16-team CFP should be a 'priority'**\
+`That’s a slight departure from Sankey’s comments the past few months.`\
+https://nytimes.com/athletic/6810863/2025/11/15/sec-cfp-format-greg-sankey/
+
 **Can Michigan keep getting away with this? Someone is going to make Wolverines pay**\
 `There’s no denying Michigan’s institutional heft. But, to be frank, the Wolverines haven’t backed it up on the field — even as they win.`\
 https://nytimes.com/athletic/6810809/2025/11/15/michigan-northwestern-big-ten-football/

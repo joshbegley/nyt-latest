@@ -1,3 +1,15 @@
+**Where does the ACC title race stand after Week 12? Georgia Tech, Virginia come away winners**\
+`Georgia Tech, Virginia, SMU and Pittsburgh make up a quartet of teams with one conference loss.`\
+https://nytimes.com/athletic/6810775/2025/11/15/acc-title-race-georgia-tech-virginia-miami/
+
+**How to Make Sense of Law Enforcement in the Streets**\
+`The variety of federal forces deployed to support President Trump’s mass deportation campaign and anticrime efforts continues to expand. Often, it can be difficult for the public to tell them apart, or to understand what powers each agency has.`\
+https://nytimes.com/video/us/politics/100000010484295/how-to-make-sense-of-law-enforcement-in-the-streets.html
+
+**SEC commissioner Greg Sankey says 16-team CFP should be a 'priority'**\
+`That’s a slight departure from Sankey’s comments the past few months.`\
+https://nytimes.com/athletic/6810863/2025/11/15/sec-cfp-format-greg-sankey/
+
 **Can Michigan keep getting away with this? Someone is going to make Wolverines pay**\
 `There’s no denying Michigan’s institutional heft. But, to be frank, the Wolverines haven’t backed it up on the field — even as they win.`\
 https://nytimes.com/athletic/6810809/2025/11/15/michigan-northwestern-big-ten-football/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/15/world/americas/mexico-protest-violence.html
 **4 Dead After Suspected Migrant Boat Overturns Near a San Diego Area Beach**\
 `The boat capsized off the coast, officials said. Four people were taken to a hospital and one person was taken into custody.`\
 https://nytimes.com/2025/11/15/us/panga-boat-capsizes-imperial-beach.html
-
-**Ja Morant exits Grizzlies-Cavaliers game early due to calf soreness**\
-`Morant left the game in the first quarter and will not return, the team announced. `\
-https://nytimes.com/athletic/6810680/2025/11/15/grizzlies-ja-morant-injury-calf-soreness-nba/
-
-**Marcus Freeman's cold shoulder for Pat Narduzzi caps a cold-blooded Irish win**\
-`Enough time has passed since those season-opening losses to Miami and Texas A&M to see Notre Dame for the Playoff team that it is.`\
-https://nytimes.com/athletic/6810646/2025/11/15/notre-dame-pitt-marcus-freeman-pat-narduzzi/
-
-**Lions TE Sam LaPorta placed on injured reserve**\
-`LaPorta will miss Detroit's next four games, including a crucial matchup against the Eagles on Sunday.`\
-https://nytimes.com/athletic/6810660/2025/11/15/sam-laporta-lions-injured-reserve/
 
