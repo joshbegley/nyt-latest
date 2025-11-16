@@ -1,3 +1,7 @@
+**Tuchel to 'review' Bellingham reaction to substitution: 'We are a collective'**\
+`Bellingham was replaced by Morgan Rogers in the aftermath of Harry Kane's headed goal which doubled England's lead in the 82nd minute.`\
+https://nytimes.com/athletic/6812411/2025/11/16/bellingham-england-substitution-tuchel/
+
 **Falcons QB Michael Penix questionable to return vs. Panthers with knee injury**\
 `Kirk Cousins replaced Penix after he exited in the third quarter.`\
 https://nytimes.com/athletic/6812430/2025/11/16/falcons-michael-penix-knee-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6812072/2025/11/16/giannis-antetokounmpo-lakers-buc
 **Boy, 10, and Woman, 21, Are Killed in Newark Shooting**\
 `Three other people, including an 11-year-old boy, were wounded in the shooting on Saturday night, city officials said. It was unclear whether the police had made any arrests.`\
 https://nytimes.com/2025/11/16/nyregion/newark-shooting.html
-
-**Britain’s Labour Government Plans New, Tougher System for Asylum Seekers**\
-`Under the new rules, people granted asylum would have to wait 20 years, rather than the current five, before applying for permanent residency.`\
-https://nytimes.com/2025/11/16/world/europe/britain-asylum-system.html
 

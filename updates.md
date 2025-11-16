@@ -1,3 +1,11 @@
+**Falcons QB Michael Penix questionable to return vs. Panthers with knee injury**\
+`Kirk Cousins replaced Penix after he exited in the third quarter.`\
+https://nytimes.com/athletic/6812430/2025/11/16/falcons-michael-penix-knee-injury-update/
+
+**Giannis Antetokounmpo helps Lakers retrieve game ball for rookie Adou Thiero**\
+`Thiero made his NBA debut and scored his first career points Saturday night, and Antetokounmpo helped keep an unofficial tradition alive.`\
+https://nytimes.com/athletic/6812072/2025/11/16/giannis-antetokounmpo-lakers-bucks-game-ball/
+
 **Aaron Rodgers suffers left hand injury, questionable to return vs. Bengals**\
 `Backup QB Mason Rudolph started the second half for Pittsburgh.`\
 https://nytimes.com/athletic/6812394/2025/11/16/aaron-rodgers-injury-pittsburgh-steelers/

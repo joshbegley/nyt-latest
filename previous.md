@@ -1,3 +1,7 @@
+**Falcons QB Michael Penix questionable to return vs. Panthers with knee injury**\
+`Kirk Cousins replaced Penix after he exited in the third quarter.`\
+https://nytimes.com/athletic/6812430/2025/11/16/falcons-michael-penix-knee-injury-update/
+
 **Aaron Rodgers suffers left hand injury, questionable to return vs. Bengals**\
 `Backup QB Mason Rudolph started the second half for Pittsburgh.`\
 https://nytimes.com/athletic/6812394/2025/11/16/aaron-rodgers-injury-pittsburgh-steelers/
@@ -23,7 +27,7 @@ https://nytimes.com/athletic/6811689/2025/11/16/alcaraz-sinner-atp-tour-finals-r
 https://nytimes.com/athletic/6812172/2025/11/16/packers-josh-jacobs-knee-injury-update/
 
 **Giannis Antetokounmpo helps Lakers retrieve game ball for rookie Adou Thiero**\
-`The Bucks star, who has a checkered history in game-ball disputes, helped resolve a disagreement over who would get Saturday's game ball.`\
+`Thiero made his NBA debut and scored his first career points Saturday night, and Antetokounmpo helped keep an unofficial tradition alive.`\
 https://nytimes.com/athletic/6812072/2025/11/16/giannis-antetokounmpo-lakers-bucks-game-ball/
 
 **Boy, 10, and Woman, 21, Are Killed in Newark Shooting**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/16/nyregion/newark-shooting.html
 **Britain’s Labour Government Plans New, Tougher System for Asylum Seekers**\
 `Under the new rules, people granted asylum would have to wait 20 years, rather than the current five, before applying for permanent residency.`\
 https://nytimes.com/2025/11/16/world/europe/britain-asylum-system.html
-
-**How to watch Bulls vs. Jazz: Time, TV, streaming**\
-`Find out how to watch the Chicago Bulls play the Utah Jazz, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6812305/2025/11/16/bulls-vs-jazz-stream-how-to-watch-nov-16-2/
 
