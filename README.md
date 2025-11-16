@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6811043/2025/11/15/usmnt-pochettino-fight-paraguay/
 `An unnamed woman filed a lawsuit against Jackson, alleging the left tackle recorded sexual acts with her on his phone without her consent.`\
 https://nytimes.com/athletic/6810706/2025/11/15/rams-alaric-jackson-lawsuit-sex-video/
 
-**Bruins' Charlie McAvoy injured after taking slap shot to the face**\
+**Bruins' Charlie McAvoy injured after taking slap shot to face: 'Praying for him'**\
 `The Boston defenseman fell to the ice with blood pouring from his face in the second period after taking a Noah Dobson slap shot up high.`\
 https://nytimes.com/athletic/6810969/2025/11/15/bruins-charlie-mcavoy-injury-canadiens-face/
 
