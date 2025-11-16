@@ -1,3 +1,11 @@
+**Jaguars go hard at Herbert, dominate run game in blowout win over Chargers**\
+`Jacksonville scored four of its five touchdowns on the ground against Los Angeles, which looked lethargic on the field.`\
+https://nytimes.com/athletic/6805373/2025/11/16/chargers-jaguars-score-result-takeaways-nfl/
+
+**Aaron Rodgers suffers left wrist injury, misses second half of win over Bengals**\
+`Backup QB Mason Rudolph stepped in for the second half in Pittsburgh.`\
+https://nytimes.com/athletic/6812394/2025/11/16/aaron-rodgers-injury-pittsburgh-steelers/
+
 **Your Questions About Climate Change, Answered**\
 `You asked Somini Sengupta, our international climate reporter, about the science and the politics. She responded from COP30 in Brazil.`\
 https://nytimes.com/2025/11/16/world/climate-cop-brazil-jeffrey-epstein-trump-greene.html
