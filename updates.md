@@ -1,3 +1,7 @@
+**On ‘S.N.L.,’ the White House Says Trump’s Only Crime Was ‘Loving Too Much’**\
+`The Epstein files played a prominent role in this episode hosted by Glen Powell, while Will Forte returned to play his fan-favorite character MacGruber.`\
+https://nytimes.com/2025/11/16/arts/television/snl-trump-epstein-glen-powell-olivia-dean.html
+
 **Rory McIlroy clinches seventh overall title despite Dubai defeat**\
 `McIlroy moved past Ballesteros' tally of six and is now just one behind Colin Montgomerie's record of eight Order of Merit titles.`\
 https://nytimes.com/athletic/6811678/2025/11/16/rory-milroy-title-dubai-matt-fitzpatrick/
