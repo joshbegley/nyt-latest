@@ -1,3 +1,7 @@
+**Tough goalie decisions ahead after Jesper Wallstedt's second straight shutout: Takeaways**\
+`Wallstedt became the first rookie in Wild history to record consecutive shutouts Saturday night during a 2-0 win over the Ducks.`\
+https://nytimes.com/athletic/6810818/2025/11/15/wild-ducks-jesper-wallstedt-shutout/
+
 **Bruins' Charlie McAvoy injured after taking slap shot to face: 'Praying for him'**\
 `The Boston defenseman fell to the ice with blood pouring from his face in the second period after taking a Noah Dobson slap shot up high.`\
 https://nytimes.com/athletic/6810969/2025/11/15/bruins-charlie-mcavoy-injury-canadiens-face/
