@@ -1,3 +1,7 @@
+**Marjorie Taylor Greene Extends an Olive Branch to Trump**\
+`The Georgia Republican, long a loyal Trump ally, had come under attack by the president after showing independence, notably on the government’s investigation of Jeffrey Epstein.`\
+https://nytimes.com/2025/11/16/us/politics/marjorie-taylor-greene-trump-epstein-files.html
+
 **The Pulse: A wild day in the SEC**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6811067/2025/11/16/a-27-point-comeback-and-more-surprises-across-the-sec/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6811945/2025/11/16/nets-vs-wizards-stream-how-to-wa
 **How to watch Canucks vs. Lightning: Time, TV, streaming**\
 `Find out how to watch the Vancouver Canucks play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6811943/2025/11/16/canucks-vs-lightning-stream-how-to-watch-nov-16/
-
-**How to watch Texas Southern vs. Texas women's basketball: Time, TV, streaming**\
-`Find out how to watch the Texas Southern Tigers play the Texas Longhorns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6811929/2025/11/16/texas-southern-vs-texas-stream-how-to-watch-nov-16/
 

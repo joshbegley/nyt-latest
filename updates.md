@@ -1,3 +1,7 @@
+**Marjorie Taylor Greene Extends an Olive Branch to Trump**\
+`The Georgia Republican, long a loyal Trump ally, had come under attack by the president after showing independence, notably on the government’s investigation of Jeffrey Epstein.`\
+https://nytimes.com/2025/11/16/us/politics/marjorie-taylor-greene-trump-epstein-files.html
+
 **The Pulse: A wild day in the SEC**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6811067/2025/11/16/a-27-point-comeback-and-more-surprises-across-the-sec/
