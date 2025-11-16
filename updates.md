@@ -1,4 +1,8 @@
 **Dolphins-Commanders takeaways: Miami wins overtime defensive slugfest in Madrid**\
+`Gritty defensive stands marked the battle between two teams that entered the day 3-7.`\
+https://nytimes.com/athletic/6812084/2025/11/16/dolphins-commanders-score-result-takeaways-madrid/
+
+**Dolphins-Commanders takeaways: Miami wins overtime defensive slugfest in Madrid**\
 `Gritty defensive stands marked the battle between two teams who entered the day 3-7.`\
 https://nytimes.com/athletic/6812084/2025/11/16/dolphins-commanders-score-result-takeaways-madrid/
 
