@@ -1,3 +1,11 @@
+**How Argentina won the 1986 World Cup: The relentless brilliance of Diego Maradona**\
+`Michael Cox's history of World Cup winners reaches 1986 and a memorable tournament for one of the sport's greatest-ever players`\
+https://nytimes.com/athletic/6807126/2025/11/16/world-cup-winners-argentina-1986/
+
+**Liverpool fan with terminal tumour runs length of India: 'It was harder to eat than run'**\
+`Jack Faint received a letter from Premier League-winning head coach Arne Slot during his record-breaking journey`\
+https://nytimes.com/athletic/6801077/2025/11/16/jack-faint-india-liverpool/
+
 **What we saw from Leafs' loss to Blackhawks: Joseph Woll's return, Philippe Myers' errors**\
 `After falling 3-2 to Chicago, Toronto lost its fifth straight game and dropped to an 8-9-2 record for the season.
 `\

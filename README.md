@@ -1,3 +1,7 @@
+**The weird and wonderful world of football fan stickers**\
+`Andy Mitten explores the phenomenon of football fan stickers, where petty banter and quirky in-jokes are immortalised in plastic`\
+https://nytimes.com/athletic/6712837/2025/11/16/football-stickers-fans-illegal/
+
 **How Argentina won the 1986 World Cup: The relentless brilliance of Diego Maradona**\
 `Michael Cox's history of World Cup winners reaches 1986 and a memorable tournament for one of the sport's greatest-ever players`\
 https://nytimes.com/athletic/6807126/2025/11/16/world-cup-winners-argentina-1986/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6810060/2025/11/16/connections-sports-edition-hints
 **Corrections: Nov. 16, 2025**\
 `Corrections that appeared in print on Sunday, Nov. 16, 2025.`\
 https://nytimes.com/2025/11/16/pageoneplus/corrections-nov-16-2025.html
-
-**South Carolina wins battle for 'The Real SC' over USC: Takeaways**\
-`The Gamecocks had one returning starter in the opening lineup but used a familiar recipe to defeat the Trojans.`\
-https://nytimes.com/athletic/6811195/2025/11/15/south-carolina-usc-score-result/
 

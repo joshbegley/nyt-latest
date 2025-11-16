@@ -1,3 +1,11 @@
+**How Argentina won the 1986 World Cup: The relentless brilliance of Diego Maradona**\
+`Michael Cox's history of World Cup winners reaches 1986 and a memorable tournament for one of the sport's greatest-ever players`\
+https://nytimes.com/athletic/6807126/2025/11/16/world-cup-winners-argentina-1986/
+
+**Liverpool fan with terminal tumour runs length of India: 'It was harder to eat than run'**\
+`Jack Faint received a letter from Premier League-winning head coach Arne Slot during his record-breaking journey`\
+https://nytimes.com/athletic/6801077/2025/11/16/jack-faint-india-liverpool/
+
 **What’s More Dangerous than India’s Frequent Heat Waves? Heat Stress.**\
 `Women who face long-term heat exposure in workplaces and homes are finding it takes a heavy toll on their health and income.`\
 https://nytimes.com/2025/11/16/world/asia/heat-stress-women-india.html
@@ -29,13 +37,4 @@ https://nytimes.com/2025/11/16/pageoneplus/corrections-nov-16-2025.html
 **South Carolina wins battle for 'The Real SC' over USC: Takeaways**\
 `The Gamecocks had one returning starter in the opening lineup but used a familiar recipe to defeat the Trojans.`\
 https://nytimes.com/athletic/6811195/2025/11/15/south-carolina-usc-score-result/
-
-**What we saw from Leafs' loss to Blackhawks: Joseph Woll's return, Philippe Myers' errors**\
-`After falling 3-2 to Chicago, Toronto lost its fifth straight game and dropped to an 8-9-2 record for the season.
-`\
-https://nytimes.com/athletic/6811086/2025/11/15/maple-leafs-blackhawks-joseph-woll-philippe-myers/
-
-**USMNT players who proved the most – and have more to prove – after beating Paraguay**\
-`With many U.S. regulars absent, this window represents an opportunity for those seeking World Cup roster spots. Who impressed vs. Paraguay?`\
-https://nytimes.com/athletic/6811169/2025/11/15/usmnt-world-cup-auditions-paraguay-reyna-pepi-scally-dest-aaronson/
 
