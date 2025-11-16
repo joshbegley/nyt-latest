@@ -2,6 +2,10 @@
 `The Sooners were the "first team out" when the CFP committee revealed its latest rankings Tuesday.`\
 https://nytimes.com/athletic/6810781/2025/11/15/oklahoma-alabama-score-result/
 
+**College Football Playoff 2025 projections: Oklahoma beating Alabama shakes up SEC picture**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/15/college-football-playoff-bracket-projections-odds/
+
 **USMNT 2, Paraguay 1: Reyna scores in start; Pochettino's side unbeaten in 4**\
 `Gio Reyna made an impressive return, while the U.S. beat another World Cup-bound opponent as preparations continue for 2026`\
 https://nytimes.com/athletic/6810427/2025/11/15/usmnt-paraguay-friendly-reyna-score-video/
@@ -15,7 +19,7 @@ https://nytimes.com/2025/11/15/world/americas/mexico-protest-violence.html
 https://nytimes.com/2025/11/15/us/panga-boat-capsizes-imperial-beach.html
 
 **Ja Morant exits Grizzlies-Cavaliers game early due to calf soreness**\
-`A sore calf caused Ja Morant to prematurely leave a game against the Cleveland Cavaliers on Saturday.`\
+`Morant left the game in the first quarter and will not return, the team announced. `\
 https://nytimes.com/athletic/6810680/2025/11/15/grizzlies-ja-morant-injury-calf-soreness-nba/
 
 **Marcus Freeman's cold shoulder for Pat Narduzzi caps a cold-blooded Irish win**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6806399/2025/11/15/aaron-nesmith-pacers-injury-stat
 **Benn defeats Eubank Jr by unanimous decision in one-sided rematch**\
 `Benn avenged his April defeat to Eubank Jr by inflicting a one-sided beating on his opponent that fell far short of their epic first bout.`\
 https://nytimes.com/athletic/6810353/2025/11/15/eubank-benn-rematch-result/
-
-**Misquoting Shakespeare**\
-`Randolph Ross takes the stage with a whirled-up Sunday puzzle.`\
-https://nytimes.com/2025/11/15/crosswords/daily-puzzle-2025-11-16.html
 

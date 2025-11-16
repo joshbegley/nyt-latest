@@ -1,3 +1,11 @@
+**College Football Playoff 2025 projections: Oklahoma beating Alabama shakes up SEC picture**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/15/college-football-playoff-bracket-projections-odds/
+
+**Ja Morant exits Grizzlies-Cavaliers game early due to calf soreness**\
+`Morant left the game in the first quarter and will not return, the team announced. `\
+https://nytimes.com/athletic/6810680/2025/11/15/grizzlies-ja-morant-injury-calf-soreness-nba/
+
 **Oklahoma hands Alabama first SEC loss, adds to CFP resume with win in Tuscaloosa**\
 `The Sooners were the "first team out" when the CFP committee revealed its latest rankings Tuesday.`\
 https://nytimes.com/athletic/6810781/2025/11/15/oklahoma-alabama-score-result/
