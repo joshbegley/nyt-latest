@@ -1,3 +1,7 @@
+**The weird and wonderful world of football fan stickers**\
+`Andy Mitten explores the phenomenon of football fan stickers, where petty banter and quirky in-jokes are immortalised in plastic`\
+https://nytimes.com/athletic/6712837/2025/11/16/football-stickers-fans-illegal/
+
 **How Argentina won the 1986 World Cup: The relentless brilliance of Diego Maradona**\
 `Michael Cox's history of World Cup winners reaches 1986 and a memorable tournament for one of the sport's greatest-ever players`\
 https://nytimes.com/athletic/6807126/2025/11/16/world-cup-winners-argentina-1986/
