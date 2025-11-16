@@ -1,3 +1,7 @@
+**North Carolina falls to Wake Forest, needs wins in final 2 to make bowl game**\
+`UNC (4-6) must defeat Duke and NC State in its final two games to achieve bowl eligibility.`\
+https://nytimes.com/athletic/6810910/2025/11/15/unc-wake-forest-score-result/
+
 **Where does the ACC title race stand after Week 12? Georgia Tech, Virginia come away winners**\
 `Georgia Tech, Virginia, SMU and Pittsburgh make up a quartet of teams with one conference loss.`\
 https://nytimes.com/athletic/6810775/2025/11/15/acc-title-race-georgia-tech-virginia-miami/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6810427/2025/11/15/usmnt-paraguay-friendly-reyna-sc
 **Protesters Rage Against Mexico’s Government Over Corruption and Violence**\
 `Members of Mexico’s Gen Z, as well as older protesters, demonstrated on Saturday in the wake of a high-profile assassination and rising anger over persistent violence.`\
 https://nytimes.com/2025/11/15/world/americas/mexico-protest-violence.html
-
-**4 Dead After Suspected Migrant Boat Overturns Near a San Diego Area Beach**\
-`The boat capsized off the coast, officials said. Four people were taken to a hospital and one person was taken into custody.`\
-https://nytimes.com/2025/11/15/us/panga-boat-capsizes-imperial-beach.html
 
