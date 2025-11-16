@@ -1,3 +1,11 @@
+**Leading football agencies threaten to sue Premier League ahead of anchoring vote**\
+`The proposed new regime will be voted on by clubs at their next Premier League shareholders’ meeting in London on Friday.`\
+https://nytimes.com/athletic/6811746/2025/11/16/premier-league-anchoring-vote/
+
+**Trump Administration Live Updates: Marjorie Taylor Greene Expresses Support for President Despite His Criticism**\
+``\
+https://nytimes.com/live/2025/11/16/us/trump-news
+
 **Pentagon to Withdraw Some National Guard Troops From Chicago and Portland**\
 `The move comes amid court battles and objections by state and local leaders to President Trump’s deployment orders.`\
 https://nytimes.com/2025/11/16/us/politics/national-guard-withdrawal-chicago-portland.html
