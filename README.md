@@ -1,3 +1,7 @@
+**Mandel's Final Thoughts: Could the SEC send 5 (or even 6) teams to the Playoff?**\
+`The SEC shakes up the CFP race with Alabama's stumble and Ole Miss continues to roll.`\
+https://nytimes.com/athletic/6811471/2025/11/16/college-football-scores-results-week-12/
+
 **Meet Dr. ChatGPT**\
 `Chatbots are empathetic and accessible, but they can sometimes be wrong. What happens when you ask them for medical advice?`\
 https://nytimes.com/2025/11/16/briefing/meet-dr-chatgpt.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6811569/2025/11/16/raul-jimenez-mexico-fans-boos-un
 **'Courageous' Sam Carrick answers bell again for Rangers, plus 8 more observations**\
 `The 33-year-old center sparked New York to a 2-1 shootout win over Columbus with another spirited brawl.`\
 https://nytimes.com/athletic/6811038/2025/11/16/sam-carrick-rangers-more-observationsgeous-sam-carrick-answers-the-bell-again-for-the-new-york-rangers-plus-8-more-observations/
-
-**Rasmus Dahlin return, Tage Thompson heroics help Sabres snap winless streak: 3 thoughts**\
-`Strong showings from two of its best players helped Buffalo win for the first time in six games.`\
-https://nytimes.com/athletic/6811229/2025/11/16/rasmus-dahlin-tage-thompson-sabres-red-wings/
 
