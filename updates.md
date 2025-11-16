@@ -1,3 +1,7 @@
+**Do clubs whose players are injured on international duty get compensated?**\
+`How much can teams be paid by FIFA if their stars are ruled out while representing their country? And for how long? We explain all...`\
+https://nytimes.com/athletic/6746304/2025/11/16/player-injured-international-duty-compensation-fifa/
+
 **Leading football agencies threaten to sue Premier League ahead of anchoring vote**\
 `The proposed new regime will be voted on by clubs at their next Premier League shareholders’ meeting in London on Friday.`\
 https://nytimes.com/athletic/6811746/2025/11/16/premier-league-anchoring-vote/
