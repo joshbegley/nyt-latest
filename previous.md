@@ -1,3 +1,23 @@
+**The Blues have proved that they are just a bad team**\
+`The Blues fell 4-1 to Vegas on Saturday leading to more concern that the team's issues aren't fixable with the current roster construction.`\
+https://nytimes.com/athletic/6810819/2025/11/16/blues-are-just-bad/
+
+**Ollie Pope aims to blank out the noise as he targets Ashes impact in Australia**\
+`The Surrey batter was relieved of the England vice-captaincy in September with his position in the side under threat, but has responded well`\
+https://nytimes.com/athletic/6809694/2025/11/16/ashes-pope-england-vice-captaincy-australia/
+
+**Kirby Smart's milestone onside kick has Georgia thinking everything is within reach**\
+`With Georgia ahead 21-10, Smart called the first onside kick of his head coaching career — and it worked perfectly. `\
+https://nytimes.com/athletic/6811365/2025/11/16/kirby-smart-onside-kick-georgia-texas/
+
+**Watch: How Will Anderson Jr. has become game-wrecking force**\
+`Will Anderson Jr. is making the case for being the most disruptive, impactful pass rusher in football.`\
+https://nytimes.com/athletic/6807755/2025/11/16/texans-will-anderson-jr-pass-rushing-nfl/
+
+**Gio Reyna still has a World Cup pulse after being USMNT's 'nightmare for Paraguay'**\
+`Mauricio Pochettino referred to Reyna as a "special situation" given his U.S. inclusion despite a lack of recent playing time. We saw why`\
+https://nytimes.com/athletic/6810652/2025/11/16/gio-reyna-still-has-a-world-cup-pulse-after-being-usmnts-nightmare-for-paraguay/
+
 **His Jeans Are Gigantic. His Internet Fame Is Too.**\
 `Carter Anderson purchased an outrageous pair of pants to try to win a contest and became an unlikely social media star along the way.`\
 https://nytimes.com/2025/11/16/style/jeans-carter-anderson-indigo-invitational.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6811229/2025/11/16/rasmus-dahlin-tage-thompson-sabr
 **Why Fraser Minten's 'tough' linemates are ideal for his development with Bruins**\
 `In Tanner Jeannot and Mark Kastelic, Minten is riding between two of the brashest Bruins when it comes to gloves-off activity.`\
 https://nytimes.com/athletic/6811179/2025/11/16/bruins-canadiens-fraser-minten-jeannot-kastelic/
-
-**Red Wings' collapse against Sabres brings Detroit's biggest flaws back to surface**\
-`The Red Wings blew a 4-1 lead against a Sabres team coming off five straight losses.`\
-https://nytimes.com/athletic/6811119/2025/11/16/red-wings-sabres-loss-collapse-flaws/
-
-**Sam Rinzel sits, but Blackhawks stand tall in comeback win over Maple Leafs**\
-`Rinzel was made a healthy scratch Saturday in the Blackhawks' 3-2 win over the Maple Leafs.`\
-https://nytimes.com/athletic/6811171/2025/11/16/blackhawks-sam-rinzel-scratch-maple-leafs/
-
-**Pope Leo Doesn’t Want to Be the Anti-Trump. But He Is.**\
-`A Christian answer to Trumpism is beginning to emerge.`\
-https://nytimes.com/2025/11/16/opinion/trump-pope-leo-maga-christianity.html
-
-**Sunday Special: A Sea of Streaming Docs**\
-`True Crime, celebrity docs, Ken Burns: There’s no shortage of nonfiction films to watch now.`\
-https://nytimes.com/2025/11/16/podcasts/the-daily/sunday-special-a-sea-of-streaming-docs.html
-
-**The Best Gifts Don’t Cost Money. Tell Us About Your Favorite.**\
-`The gifts that cost the least are sometimes the ones that mean the most. Share yours with NYT Opinion.`\
-https://nytimes.com/2025/11/16/opinion/share-favorite-homemade-gifts.html
 
