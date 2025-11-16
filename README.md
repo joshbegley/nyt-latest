@@ -1,3 +1,7 @@
+**Sky Sports axes female-focused brand TikTok Halo following fierce backlash**\
+`Sky announced on Saturday that it would cease activity on the social page which the broadcaster had dubbed its 'lil sis'.`\
+https://nytimes.com/athletic/6811513/2025/11/16/sky-sports-halo-cancelled-criticism/
+
 **How to watch Ohio State vs. UConn women's basketball: Time, TV, streaming**\
 `Find out how to watch the Ohio State Buckeyes play the UConn Huskies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6811549/2025/11/16/ohio-state-vs-uconn-stream-how-to-watch-nov-16/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/16/business/matthew-belloni-puck-hollywood.html
 **Jeremiyah Love's best NFL team fits, Mansoor Delane's excellence, more Week 12 reactions**\
 `Love is a clear top-10 prospect in the 2026 draft class, but which NFL team will roll the dice on a running back early in Round 1?`\
 https://nytimes.com/athletic/6811097/2025/11/16/nfl-draft-2026-scouting-love-delane-quarterbacks/
-
-**Talking Dogs and the Spirit of Sontag Show Up in This Story Collection**\
-`At its best, Joy Williams’s “The Pelican Child” is delightfully unhinged; at its worst, willfully weird and repetitive.`\
-https://nytimes.com/2025/11/16/books/review/joy-williams-the-pelican-child.html
 
