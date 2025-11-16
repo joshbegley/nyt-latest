@@ -1,3 +1,7 @@
+**Brazil gets first major Alpine skiing win as Lucas Pinheiro Braathen tops World Cup slalom**\
+`A year after ending his retirement and switching countries, Lucas Pinheiro Braathen delivered Brazil its first World Cup victory.`\
+https://nytimes.com/athletic/6811604/2025/11/16/lucas-pinheiro-braathen-brazil-world-cup-alpine-skiing/
+
 **How to watch Clippers vs. Celtics: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Boston Celtics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6811674/2025/11/16/clippers-vs-celtics-stream-how-to-watch-nov-16/
