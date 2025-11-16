@@ -1,3 +1,11 @@
+**Can Michigan keep getting away with this? Someone is going to make Wolverines pay**\
+`There’s no denying Michigan’s institutional heft. But, to be frank, the Wolverines haven’t backed it up on the field — even as they win.`\
+https://nytimes.com/athletic/6810809/2025/11/15/michigan-northwestern-big-ten-football/
+
+**Dan Muse looks to ignite sluggish Penguins in the place where it all started**\
+`In Sweden, the place where it all started for Muse as Penguins' head coach, he will look to get his team back on track. `\
+https://nytimes.com/athletic/6810098/2025/11/15/penguins-dan-muse-stockholm-kyle-dubas/
+
 **College Football Playoff 2025 projections: Oklahoma beating Alabama shakes up SEC picture**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/11/15/college-football-playoff-bracket-projections-odds/

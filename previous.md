@@ -1,3 +1,11 @@
+**Can Michigan keep getting away with this? Someone is going to make Wolverines pay**\
+`There’s no denying Michigan’s institutional heft. But, to be frank, the Wolverines haven’t backed it up on the field — even as they win.`\
+https://nytimes.com/athletic/6810809/2025/11/15/michigan-northwestern-big-ten-football/
+
+**Dan Muse looks to ignite sluggish Penguins in the place where it all started**\
+`In Sweden, the place where it all started for Muse as Penguins' head coach, he will look to get his team back on track. `\
+https://nytimes.com/athletic/6810098/2025/11/15/penguins-dan-muse-stockholm-kyle-dubas/
+
 **Oklahoma hands Alabama first SEC loss, adds to CFP resume with win in Tuscaloosa**\
 `The Sooners were the "first team out" when the CFP committee revealed its latest rankings Tuesday.`\
 https://nytimes.com/athletic/6810781/2025/11/15/oklahoma-alabama-score-result/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6810646/2025/11/15/notre-dame-pitt-marcus-freeman-p
 **Lions TE Sam LaPorta placed on injured reserve**\
 `LaPorta will miss Detroit's next four games, including a crucial matchup against the Eagles on Sunday.`\
 https://nytimes.com/athletic/6810660/2025/11/15/sam-laporta-lions-injured-reserve/
-
-**Pacers' Aaron Nesmith out at least a month with knee injury**\
-`Nesmith avoided a more severe injury, a diagnosis Pacers coach Rick Carlisle called "very, very good."`\
-https://nytimes.com/athletic/6806399/2025/11/15/aaron-nesmith-pacers-injury-status/
-
-**Benn defeats Eubank Jr by unanimous decision in one-sided rematch**\
-`Benn avenged his April defeat to Eubank Jr by inflicting a one-sided beating on his opponent that fell far short of their epic first bout.`\
-https://nytimes.com/athletic/6810353/2025/11/15/eubank-benn-rematch-result/
 
