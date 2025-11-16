@@ -1,3 +1,7 @@
+**Britain’s Labour Government Plans New, Tougher System for Asylum Seekers**\
+`Under the new rules, people granted asylum would have to wait 20 years, rather than the current five, before applying for permanent residency.`\
+https://nytimes.com/2025/11/16/world/europe/britain-asylum-system.html
+
 **How to watch Bulls vs. Jazz: Time, TV, streaming**\
 `Find out how to watch the Chicago Bulls play the Utah Jazz, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6812305/2025/11/16/bulls-vs-jazz-stream-how-to-watch-nov-16-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6810288/2025/11/16/tullis-joyce-injury-manchester-u
 **How to watch Florida vs. Miami (FL) men's basketball: Time, TV, streaming**\
 `Find out how to watch the Florida Gators play the Miami Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6812264/2025/11/16/florida-vs-miami-fl-stream-how-to-watch-nov-16/
-
-**In One Day, Border Patrol Arrested 81 People in Charlotte, N.C.**\
-`Federal Border Patrol agents hit the streets again on Sunday, their second day in a city home to a growing population of immigrants. It remains unclear how long they will stay.`\
-https://nytimes.com/2025/11/16/us/border-patrol-arrests-charlotte-nc.html
 

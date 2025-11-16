@@ -1,3 +1,23 @@
+**How to watch Bulls vs. Jazz: Time, TV, streaming**\
+`Find out how to watch the Chicago Bulls play the Utah Jazz, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6812305/2025/11/16/bulls-vs-jazz-stream-how-to-watch-nov-16-2/
+
+**How to watch Bulls vs. Jazz: Time, TV, streaming**\
+`Find out how to watch the Chicago Bulls play the Utah Jazz, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6812301/2025/11/16/bulls-vs-jazz-stream-how-to-watch-nov-16/
+
+**How to watch Trail Blazers vs. Mavericks: Time, TV, streaming**\
+`Find out how to watch the Portland Trail Blazers play the Dallas Mavericks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6812296/2025/11/16/trail-blazers-vs-mavericks-stream-how-to-watch-nov-16/
+
+**How to watch Islanders vs. Avalanche: Time, TV, streaming**\
+`Find out how to watch the New York Islanders play the Colorado Avalanche, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6812294/2025/11/16/islanders-vs-avalanche-stream-how-to-watch-nov-16/
+
+**How to watch Hawks vs. Suns: Time, TV, streaming**\
+`Find out how to watch the Atlanta Hawks play the Phoenix Suns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6812292/2025/11/16/hawks-vs-suns-stream-how-to-watch-nov-16/
+
 **Yohe's 10 observations: Sergei Murashov notches shutout in Sweden for first career NHL win**\
 `Sergei Murashov backstopped the Penguins to a 4-0 win over the Predators in Sweden on Sunday.`\
 https://nytimes.com/athletic/6811567/2025/11/16/penguins-sergei-murashov-shutout-predators-sweden/
@@ -14,29 +34,7 @@ https://nytimes.com/athletic/6810288/2025/11/16/tullis-joyce-injury-manchester-u
 `Find out how to watch the Florida Gators play the Miami Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6812264/2025/11/16/florida-vs-miami-fl-stream-how-to-watch-nov-16/
 
-**In One Day, Border Patrol Arrested 81 People in Charlotte**\
+**In One Day, Border Patrol Arrested 81 People in Charlotte, N.C.**\
 `Federal Border Patrol agents hit the streets again on Sunday, their second day in a city home to a growing population of immigrants. It remains unclear how long they will stay.`\
 https://nytimes.com/2025/11/16/us/border-patrol-arrests-charlotte-nc.html
-
-**How to watch Akron vs. Purdue men's basketball: Time, TV, streaming**\
-`Find out how to watch the Akron Zips play the Purdue Boilermakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6812261/2025/11/16/akron-vs-purdue-stream-how-to-watch-nov-16/
-
-**Post Malone, Jack White will star in NFL Thanksgiving halftime shows**\
-`Post Malone will perform during the afternoon game hosted by the Cowboys, while Jack White will star earlier in the day in Detroit.`\
-https://nytimes.com/athletic/6812153/2025/11/16/post-malone-jack-white-thanksgiving-halftime/
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>We&#8217;ve officially reached the &#8220;Oh crap, there are too many 10-2 teams&#8221; stretch of the season.</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6812188/2025/11/16/submit-a-question-for-stewart-mandels-college-football-mailbag-323/
-
-**Albania 0 England 2 - Did Bellingham deliver as No 10? Did Tuchel's tactical experiments work?**\
-`Harry Kane scored two in the second half as England finished World Cup qualifying with a perfect record`\
-https://nytimes.com/athletic/6801851/2025/11/16/albania-0-england-2-kane-bellingham/
-
-**Dolphins-Commanders takeaways: Miami wins overtime defensive slugfest in Madrid**\
-`Gritty defensive stands marked the battle between two teams that entered the day 3-7.`\
-https://nytimes.com/athletic/6812084/2025/11/16/dolphins-commanders-score-result-takeaways-madrid/
 
