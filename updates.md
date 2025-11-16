@@ -1,3 +1,11 @@
+**Rory McIlroy clinches seventh overall title despite Dubai defeat**\
+`McIlroy moved past Ballesteros' tally of six and is now just one behind Colin Montgomerie's record of eight Order of Merit titles.`\
+https://nytimes.com/athletic/6811678/2025/11/16/rory-milroy-title-dubai-matt-fitzpatrick/
+
+**Until Saturday: SEC getting 5 (or even 6) Playoff bids?**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6811703/2025/11/16/oklahoma-alabama-georgia-texas-playoff-until-saturday/
+
 **Trump Administration Live Updates: Charlotte, N.C., Becomes the Latest City to Face an Immigration Crackdown**\
 ``\
 https://nytimes.com/live/2025/11/16/us/trump-news

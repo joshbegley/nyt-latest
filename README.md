@@ -24,7 +24,7 @@ https://nytimes.com/2025/11/16/opinion/women-workplace.html
 
 **On ‘S.N.L.,’ the White House Says Trump’s Only Crime Was ‘Loving Too Much’**\
 `The Epstein files played a prominent role in this episode hosted by Glen Powell, while Will Forte returned to play his fan-favorite character MacGruber.`\
-https://nytimes.com/2025/11/16/arts/television/snl-trumps-crime-loving-too-much.html
+https://nytimes.com/2025/11/16/arts/television/snl-trump-epstein-glen-powell-olivia-dean.html
 
 **College Football Playoff 2025 projections: Oklahoma beating Alabama shakes up SEC picture**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
