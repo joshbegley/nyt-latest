@@ -1,3 +1,7 @@
+**Knicks' OG Anunoby out at least 2 weeks with hamstring strain**\
+`The injured forward won’t travel with the Knicks on their upcoming road trip.`\
+https://nytimes.com/athletic/6808918/2025/11/16/og-anunoby-injury-knicks-status/
+
 **How to watch Magic vs. Rockets: Time, TV, streaming**\
 `Find out how to watch the Orlando Magic play the Houston Rockets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6811953/2025/11/16/magic-vs-rockets-stream-how-to-watch-nov-16/
