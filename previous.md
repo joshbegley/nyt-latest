@@ -1,3 +1,7 @@
+**USC survived a dogfight vs. Iowa — now the biggest test of Lincoln Riley's tenure awaits**\
+`The Trojans head to Oregon next week — where they have not won since 2011 — for a game with significant CFP ramifications. `\
+https://nytimes.com/athletic/6811044/2025/11/15/usc-trojans-lincoln-riley-college-football-playoff/
+
 **Lane Kiffin rips refs for apparent mistake in Florida-Ole Miss: 'It's not that hard'**\
 `Instead of a made field goal, it appeared Ole Miss should have got an automatic first down that extended the drive with goal-to-go.`\
 https://nytimes.com/athletic/6810987/2025/11/15/florida-ole-miss-lane-kiffin-refs-missed-call/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6810896/2025/11/15/bronny-james-starter-lakers-nba/
 **North Carolina falls to Wake Forest, needs wins in final 2 to make bowl game**\
 `UNC (4-6) must defeat Duke and NC State in its final two games to achieve bowl eligibility.`\
 https://nytimes.com/athletic/6810910/2025/11/15/unc-wake-forest-score-result/
-
-**Where does the ACC title race stand after Week 12? Georgia Tech, Virginia come away winners**\
-`Georgia Tech, Virginia, SMU and Pittsburgh make up a quartet of teams with one conference loss.`\
-https://nytimes.com/athletic/6810775/2025/11/15/acc-title-race-georgia-tech-virginia-miami/
 

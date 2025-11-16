@@ -1,3 +1,7 @@
+**USC survived a dogfight vs. Iowa — now the biggest test of Lincoln Riley's tenure awaits**\
+`The Trojans head to Oregon next week — where they have not won since 2011 — for a game with significant CFP ramifications. `\
+https://nytimes.com/athletic/6811044/2025/11/15/usc-trojans-lincoln-riley-college-football-playoff/
+
 **Lane Kiffin rips refs for apparent mistake in Florida-Ole Miss: 'It's not that hard'**\
 `Instead of a made field goal, it appeared Ole Miss should have got an automatic first down that extended the drive with goal-to-go.`\
 https://nytimes.com/athletic/6810987/2025/11/15/florida-ole-miss-lane-kiffin-refs-missed-call/
