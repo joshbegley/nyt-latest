@@ -1,3 +1,11 @@
+**NWSL can't keep Trinity Rodman and its current salary cap. It's time to choose**\
+`The rest of the world, and its biggest clubs, are watching the league's decision closely. `\
+https://nytimes.com/athletic/6810930/2025/11/15/trinity-rodman-contract-nwsl-salary-cap/
+
+**Stars' Thomas Harley out week to week with lower-body injury**\
+`Harley had been labeled a game-time decision for the last few games and was finally scratched for Saturday’s home game against Philadelphia.`\
+https://nytimes.com/athletic/6810918/2025/11/15/dallas-stars-thomas-harley-injury/
+
 **Stars' Thomas Harley out week to week with lower-body injury**\
 `Harley has been labeled a game-time decision for the last few games and was finally scratched for Saturday’s home game against Philadelphia.`\
 https://nytimes.com/athletic/6810918/2025/11/15/dallas-stars-thomas-harley-injury/
