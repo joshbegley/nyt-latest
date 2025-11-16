@@ -1,3 +1,11 @@
+**New York Jets Player Kris Boyd Is Critically Wounded in Shooting**\
+`Mr. Boyd was wounded early on Sunday in a shooting in Midtown Manhattan. He is in his first year as a defensive player with the team after signing in March.`\
+https://nytimes.com/2025/11/16/nyregion/kris-boyd-shot-jets.html
+
+**Kirby Dach out 4 to 6 weeks with fractured foot as Canadiens' injury woes continue**\
+`Kirby Dach is the latest in a string of injuries for the Montreal Canadiens.`\
+https://nytimes.com/athletic/6811990/2025/11/16/kirby-dach-canadiens-injuries/
+
 **Jets CB Kris Boyd in critical but stable condition after being shot in NYC**\
 `The shooting was reported around 2 a.m. Sunday on West 38th Street in Midtown Manhattan, according to an NYPD spokesperson.`\
 https://nytimes.com/athletic/6812011/2025/11/16/jets-cornerback-kris-boyd-shooting-manhattan-condition/

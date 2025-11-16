@@ -1,3 +1,11 @@
+**New York Jets Player Kris Boyd Is Critically Wounded in Shooting**\
+`Mr. Boyd was wounded early on Sunday in a shooting in Midtown Manhattan. He is in his first year as a defensive player with the team after signing in March.`\
+https://nytimes.com/2025/11/16/nyregion/kris-boyd-shot-jets.html
+
+**Kirby Dach out 4 to 6 weeks with fractured foot as Canadiens' injury woes continue**\
+`Kirby Dach is the latest in a string of injuries for the Montreal Canadiens.`\
+https://nytimes.com/athletic/6811990/2025/11/16/kirby-dach-canadiens-injuries/
+
 **Jets CB Kris Boyd in critical but stable condition after being shot in NYC**\
 `The shooting was reported around 2 a.m. Sunday on West 38th Street in Midtown Manhattan, according to an NYPD spokesperson.`\
 https://nytimes.com/athletic/6812011/2025/11/16/jets-cornerback-kris-boyd-shooting-manhattan-condition/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6811951/2025/11/16/warriors-vs-pelicans-stream-how-
 **How to watch Red Wings vs. Rangers: Time, TV, streaming**\
 `Find out how to watch the Detroit Red Wings play the New York Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6811949/2025/11/16/red-wings-vs-rangers-stream-how-to-watch-nov-16/
-
-**How to watch Golden Knights vs. Wild: Time, TV, streaming**\
-`Find out how to watch the Vegas Golden Knights play the Minnesota Wild, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6811947/2025/11/16/golden-knights-vs-wild-stream-how-to-watch-nov-16/
-
-**How to watch Nets vs. Wizards: Time, TV, streaming**\
-`Find out how to watch the Brooklyn Nets play the Washington Wizards, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6811945/2025/11/16/nets-vs-wizards-stream-how-to-watch-nov-16/
 
