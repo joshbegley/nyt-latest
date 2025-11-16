@@ -34,7 +34,7 @@ https://nytimes.com/2025/11/16/opinion/adam-sandler-comedy-fun-light.html
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/16/todays-new-york-times
 
-**The Laptop That Ate Your Child’s Classroom**\
+**The Screen That Ate Your Child’s Education**\
 `Asking students to drill down on their schoolwork amid an array of digital distractions is inimical to learning.`\
 https://nytimes.com/2025/11/16/opinion/laptop-classroom-test-scores.html
 

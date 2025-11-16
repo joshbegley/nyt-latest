@@ -1,3 +1,7 @@
+**The Screen That Ate Your Child’s Education**\
+`Asking students to drill down on their schoolwork amid an array of digital distractions is inimical to learning.`\
+https://nytimes.com/2025/11/16/opinion/laptop-classroom-test-scores.html
+
 **Church and College Leaders Work to Free a Detained Afghan Student**\
 `When Ali Faqirzada was detained after a routine asylum hearing in New York, officials from Bard College and the Episcopal Diocese tapped their networks to help.`\
 https://nytimes.com/2025/11/16/nyregion/afghan-asylum-immigration-bard-trump.html
