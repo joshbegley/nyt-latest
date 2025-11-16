@@ -1,3 +1,7 @@
+**Boy, 10, and Woman, 21, Are Killed in Newark Shooting**\
+`Three other people, including an 11-year-old boy, were wounded in the shooting on Saturday night, city officials said. It was unclear whether the police had made any arrests.`\
+https://nytimes.com/2025/11/16/nyregion/newark-shooting.html
+
 **Britain’s Labour Government Plans New, Tougher System for Asylum Seekers**\
 `Under the new rules, people granted asylum would have to wait 20 years, rather than the current five, before applying for permanent residency.`\
 https://nytimes.com/2025/11/16/world/europe/britain-asylum-system.html
