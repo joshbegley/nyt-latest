@@ -1,4 +1,8 @@
 **Playoff bids abound for the SEC, but angst, too: SEC vibes after Week 12**\
+`The SEC looks poised to take five of the 12 Playoff spots. But what about six?`\
+https://nytimes.com/athletic/6811930/2025/11/16/sec-football-rankings-week-12-georgia-oklahoma-texas/
+
+**Playoff bids abound for the SEC, but angst, too: SEC vibes after Week 12**\
 `The SEC now looks poised to take five of the 12 Playoff spots. But what about six?`\
 https://nytimes.com/athletic/6811930/2025/11/16/sec-football-rankings-week-12-georgia-oklahoma-texas/
 
