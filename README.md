@@ -1,3 +1,7 @@
+**Jets CB Kris Boyd in critical but stable condition after being shot in NYC**\
+`The shooting was reported around 2 a.m. Sunday on West 38th Street in Midtown Manhattan, according to an NYPD spokesperson.`\
+https://nytimes.com/athletic/6812011/2025/11/16/jets-cornerback-kris-boyd-shooting-manhattan-condition/
+
 **Marjorie Taylor Greene Extends an Olive Branch to Trump**\
 `The Georgia Republican, long a loyal Trump ally, had come under attack by the president after showing independence, notably on the government’s investigation of Jeffrey Epstein.`\
 https://nytimes.com/2025/11/16/us/politics/marjorie-taylor-greene-trump-epstein-files.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6811947/2025/11/16/golden-knights-vs-wild-stream-ho
 **How to watch Nets vs. Wizards: Time, TV, streaming**\
 `Find out how to watch the Brooklyn Nets play the Washington Wizards, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6811945/2025/11/16/nets-vs-wizards-stream-how-to-watch-nov-16/
-
-**How to watch Canucks vs. Lightning: Time, TV, streaming**\
-`Find out how to watch the Vancouver Canucks play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6811943/2025/11/16/canucks-vs-lightning-stream-how-to-watch-nov-16/
 
