@@ -1,3 +1,7 @@
+**Lane Kiffin rips refs for apparent mistake, but Ole Miss handles Florida to move closer to Playoff**\
+`Instead of a made field goal, it appeared Ole Miss should have got an automatic first down that extended the drive with goal-to-go.`\
+https://nytimes.com/athletic/6810987/2025/11/15/florida-ole-miss-lane-kiffin-refs-missed-call/
+
 **Blackhawks' Nick Foligno out approximately 4 weeks with injury**\
 `Foligno blocked a shot off his left hand in the second period of Saturday’s game against the Maple Leafs and did not return.`\
 https://nytimes.com/athletic/6811158/2025/11/15/chicago-blackhawks-nick-foligno-injury/

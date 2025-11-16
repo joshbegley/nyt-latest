@@ -1,3 +1,7 @@
+**USMNT players who proved the most – and have more to prove – after beating Paraguay**\
+`With many U.S. regulars absent, this window represents an opportunity for those seeking World Cup roster spots. Who impressed vs. Paraguay?`\
+https://nytimes.com/athletic/6811169/2025/11/15/usmnt-world-cup-auditions-paraguay-reyna-pepi-scally-dest-aaronson/
+
 **Blackhawks' Nick Foligno out approximately 4 weeks with injury**\
 `Foligno blocked a shot off his left hand in the second period of Saturday’s game against the Maple Leafs and did not return.`\
 https://nytimes.com/athletic/6811158/2025/11/15/chicago-blackhawks-nick-foligno-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6810706/2025/11/15/rams-alaric-jackson-lawsuit-sex-
 **Bruins' Charlie McAvoy injured after taking slap shot to face: 'Praying for him'**\
 `The Boston defenseman fell to the ice with blood pouring from his face in the second period after taking a Noah Dobson slap shot up high.`\
 https://nytimes.com/athletic/6810969/2025/11/15/bruins-charlie-mcavoy-injury-canadiens-face/
-
-**NWSL can't keep Trinity Rodman and its current salary cap. It's time to choose**\
-`The rest of the world, and its biggest clubs, are watching the league's decision closely. `\
-https://nytimes.com/athletic/6810930/2025/11/15/trinity-rodman-contract-nwsl-salary-cap/
 
