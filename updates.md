@@ -1,3 +1,11 @@
+**Jalen Ramsey ejected for throwing punch at Ja'Marr Chase, claims Chase spit on him**\
+`Ramsey helped limit Chase to three catches for 30 yards on Sunday.`\
+https://nytimes.com/athletic/6812461/2025/11/16/jalen-ramsey-ejection-steelers-bengals-nfl/
+
+**Falcons QB Michael Penix Jr. leaves with knee injury, Kirk Cousins enters vs. Panthers**\
+`Kirk Cousins replaced Penix after he exited in the third quarter.`\
+https://nytimes.com/athletic/6812430/2025/11/16/falcons-michael-penix-knee-injury-update/
+
 **Aaron Rodgers suffers left wrist injury, misses second half of win over Bengals**\
 `Backup QB Mason Rudolph stepped in after halftime in Pittsburgh.`\
 https://nytimes.com/athletic/6812394/2025/11/16/aaron-rodgers-injury-pittsburgh-steelers/
