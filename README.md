@@ -1,3 +1,7 @@
+**Meet Dr. ChatGPT**\
+`Chatbots are empathetic and accessible, but they can sometimes be wrong. What happens when you ask them for medical advice?`\
+https://nytimes.com/2025/11/16/briefing/meet-dr-chatgpt.html
+
 **The Blues have proved that they are just a bad team**\
 `The Blues fell 4-1 to Vegas on Saturday leading to more concern that the team's issues aren't fixable with the current roster construction.`\
 https://nytimes.com/athletic/6810819/2025/11/16/blues-are-just-bad/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6811038/2025/11/16/sam-carrick-rangers-more-observa
 **Rasmus Dahlin return, Tage Thompson heroics help Sabres snap winless streak: 3 thoughts**\
 `Strong showings from two of its best players helped Buffalo win for the first time in six games.`\
 https://nytimes.com/athletic/6811229/2025/11/16/rasmus-dahlin-tage-thompson-sabres-red-wings/
-
-**Why Fraser Minten's 'tough' linemates are ideal for his development with Bruins**\
-`In Tanner Jeannot and Mark Kastelic, Minten is riding between two of the brashest Bruins when it comes to gloves-off activity.`\
-https://nytimes.com/athletic/6811179/2025/11/16/bruins-canadiens-fraser-minten-jeannot-kastelic/
 
