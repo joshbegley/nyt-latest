@@ -1,3 +1,7 @@
+**Do clubs whose players are injured on international duty get compensated?**\
+`How much can teams be paid by FIFA if their stars are ruled out while representing their country? And for how long? We explain all...`\
+https://nytimes.com/athletic/6746304/2025/11/16/player-injured-international-duty-compensation-fifa/
+
 **Leading football agencies threaten to sue Premier League ahead of anchoring vote**\
 `The proposed new regime will be voted on by clubs at their next Premier League shareholders’ meeting in London on Friday.`\
 https://nytimes.com/athletic/6811746/2025/11/16/premier-league-anchoring-vote/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6811703/2025/11/16/oklahoma-alabama-georgia-texas-p
 **Trump Administration Live Updates: Marjorie Taylor Greene Expresses Support for President Despite His Criticism**\
 ``\
 https://nytimes.com/live/2025/11/16/us/trump-news
-
-**Texas Tech stays atop Big 12 and BYU controls its destiny — but can both make the CFP?**\
-`Texas Tech dominated and BYU stayed in hunt, setting up a two-team Big 12 race with CFP stakes down the stretch.`\
-https://nytimes.com/athletic/6811452/2025/11/16/texas-tech-byu-big-12-playoff/
 
