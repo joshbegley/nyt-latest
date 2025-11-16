@@ -1,3 +1,7 @@
+**Dolphins-Commanders takeaways: Miami wins overtime defensive slugfest in Madrid**\
+`Gritty defensive stands marked the battle between two teams who entered the day 3-7.`\
+https://nytimes.com/athletic/6812084/2025/11/16/dolphins-commanders-score-result-takeaways-madrid/
+
 **LeBron James to practice with Lakers, a step toward season debut: Source**\
 `James has been recovering from a sciatic nerve irritation, which has sidelined him from team workouts since before training camp.`\
 https://nytimes.com/athletic/6812043/2025/11/16/lebron-james-lakers-practice-return-debut/
