@@ -1,3 +1,7 @@
+**What we learned about the CFP: Has Notre Dame secured a bid? Is there a path for Miami?**\
+`There is a nightmare scenario in which the Big Ten could send only two teams to the College Football Playoff. `\
+https://nytimes.com/athletic/6811433/2025/11/16/college-football-playoff-race-updates-week-12/
+
 **China Escalates Japan Feud With Island Patrols and Warnings to Citizens**\
 `China sent Coast Guard ships near disputed islands and warned travelers and students about safety risks in Japan. The escalation is over comments on Taiwan by Japan’s new prime minister.`\
 https://nytimes.com/2025/11/16/world/asia/china-japan-relations-coast-guard.html
@@ -14,7 +18,7 @@ https://nytimes.com/issue/todaysinyt/2025/11/16/todays-new-york-times-internatio
 `Find out how to watch the Nashville Predators play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6811558/2025/11/16/predators-vs-penguins-stream-how-to-watch-nov-16/
 
-**Sky Sports axes female-focused brand TikTok Halo following fierce backlash**\
+**Sky Sports axes female-focused TikTok Halo following fierce backlash**\
 `Sky announced on Saturday that it would cease activity on the social page which the broadcaster had dubbed its 'lil sis'.`\
 https://nytimes.com/athletic/6811513/2025/11/16/sky-sports-halo-cancelled-criticism/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6811545/2025/11/16/tcu-vs-nc-state-stream-how-to-wa
 **What to Know About Chile’s Election on Sunday**\
 `Polls show right-wing candidates drawing the most support, but a recent compulsory voting law could bring a surge of new voters, adding uncertainty.`\
 https://nytimes.com/2025/11/16/world/americas/chile-presidential-election-on-sunday.html
-
-**Epstein Emails Reveal a Lost New York**\
-`The disgraced financier’s recently released documents are steeped in a clubby world that is all but gone.`\
-https://nytimes.com/2025/11/16/style/epstein-emails-reveal-a-lost-new-york.html
 

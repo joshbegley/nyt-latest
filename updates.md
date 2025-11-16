@@ -1,3 +1,11 @@
+**What we learned about the CFP: Has Notre Dame secured a bid? Is there a path for Miami?**\
+`There is a nightmare scenario in which the Big Ten could send only two teams to the College Football Playoff. `\
+https://nytimes.com/athletic/6811433/2025/11/16/college-football-playoff-race-updates-week-12/
+
+**Sky Sports axes female-focused TikTok Halo following fierce backlash**\
+`Sky announced on Saturday that it would cease activity on the social page which the broadcaster had dubbed its 'lil sis'.`\
+https://nytimes.com/athletic/6811513/2025/11/16/sky-sports-halo-cancelled-criticism/
+
 **China Escalates Japan Feud With Island Patrols and Warnings to Citizens**\
 `China sent Coast Guard ships near disputed islands and warned travelers and students about safety risks in Japan. The escalation is over comments on Taiwan by Japan’s new prime minister.`\
 https://nytimes.com/2025/11/16/world/asia/china-japan-relations-coast-guard.html
