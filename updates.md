@@ -1,3 +1,7 @@
+**Coby White expected to make season debut for Bulls Sunday night: Source**\
+`White, recovering from a calf strain, initially garnered optimism for a return around the Bulls’ season opener, but he suffered a setback.`\
+https://nytimes.com/athletic/6812324/2025/11/16/bulls-coby-white-season-debut-jazz/
+
 **Tuchel: Bellingham didn't like substitution, but England are a collective**\
 `Bellingham was replaced by Morgan Rogers in the aftermath of Harry Kane's headed goal which doubled England's lead in the 82nd minute.`\
 https://nytimes.com/athletic/6812411/2025/11/16/bellingham-england-substitution-tuchel/
