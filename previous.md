@@ -1,3 +1,27 @@
+**How to watch Magic vs. Rockets: Time, TV, streaming**\
+`Find out how to watch the Orlando Magic play the Houston Rockets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6811953/2025/11/16/magic-vs-rockets-stream-how-to-watch-nov-16/
+
+**How to watch Warriors vs. Pelicans: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the New Orleans Pelicans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6811951/2025/11/16/warriors-vs-pelicans-stream-how-to-watch-nov-16/
+
+**How to watch Red Wings vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6811949/2025/11/16/red-wings-vs-rangers-stream-how-to-watch-nov-16/
+
+**How to watch Golden Knights vs. Wild: Time, TV, streaming**\
+`Find out how to watch the Vegas Golden Knights play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6811947/2025/11/16/golden-knights-vs-wild-stream-how-to-watch-nov-16/
+
+**How to watch Nets vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the Brooklyn Nets play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6811945/2025/11/16/nets-vs-wizards-stream-how-to-watch-nov-16/
+
+**How to watch Canucks vs. Lightning: Time, TV, streaming**\
+`Find out how to watch the Vancouver Canucks play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6811943/2025/11/16/canucks-vs-lightning-stream-how-to-watch-nov-16/
+
 **How to watch Texas Southern vs. Texas women's basketball: Time, TV, streaming**\
 `Find out how to watch the Texas Southern Tigers play the Texas Longhorns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6811929/2025/11/16/texas-southern-vs-texas-stream-how-to-watch-nov-16/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6811129/2025/11/16/deandre-ayton-lakers-luka-doncic
 **Portugal qualify for World Cup, teeing up Ronaldo for record sixth tournament**\
 `Ronaldo, who would be 41 at next summer's tournament, has the chance to set a record in the men's game.`\
 https://nytimes.com/athletic/6716053/2025/11/16/portugal-world-cup-cristiano-ronaldo/
-
-**Lowetide: What does Oilers prospect Ike Howard need to achieve in the AHL?**\
-`Questions remain about Howard's deployment in the AHL and his short-term future with the NHL team.`\
-https://nytimes.com/athletic/6809994/2025/11/16/edmonton-oilers-ike-howard-ahl-stats/
-
-**A Mid-November Sunday Means Lemony Roast Chicken**\
-`More specifically, this showstopping lemon-garlic roast chicken with squash.`\
-https://nytimes.com/2025/11/16/dining/a-mid-november-sunday-means-lemony-roast-chicken.html
-
-**Friends Say a Suspect in the Louvre Heist Had Tried to Leave a Rough Past Behind**\
-`He had been best known as a daring urban dirt-bike rider who had pulled off stunts at iconic sites in Paris, according to several friends.`\
-https://nytimes.com/2025/11/16/world/europe/louvre-heist-suspect.html
-
-**Do clubs whose players are injured on international duty get compensated?**\
-`How much can teams be paid by FIFA if their stars are ruled out while representing their country? And for how long? We explain all...`\
-https://nytimes.com/athletic/6746304/2025/11/16/player-injured-international-duty-compensation-fifa/
-
-**Leading football agencies threaten to sue Premier League ahead of anchoring vote**\
-`The proposed new regime will be voted on by clubs at their next Premier League shareholders’ meeting in London on Friday.`\
-https://nytimes.com/athletic/6811746/2025/11/16/premier-league-anchoring-vote/
-
-**Pentagon to Withdraw Some National Guard Troops From Chicago and Portland**\
-`The move comes amid court battles and objections by state and local leaders to President Trump’s deployment orders.`\
-https://nytimes.com/2025/11/16/us/politics/national-guard-withdrawal-chicago-portland.html
 
