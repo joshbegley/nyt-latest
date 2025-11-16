@@ -1,3 +1,7 @@
+**North Carolina falls to Wake Forest, needs wins in final 2 to make bowl game**\
+`UNC (4-6) must defeat Duke and NC State in its final two games to achieve bowl eligibility.`\
+https://nytimes.com/athletic/6810910/2025/11/15/unc-wake-forest-score-result/
+
 **Where does the ACC title race stand after Week 12? Georgia Tech, Virginia come away winners**\
 `Georgia Tech, Virginia, SMU and Pittsburgh make up a quartet of teams with one conference loss.`\
 https://nytimes.com/athletic/6810775/2025/11/15/acc-title-race-georgia-tech-virginia-miami/

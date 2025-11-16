@@ -1,3 +1,7 @@
+**Bronny James inserted into Lakers' starting lineup for injury-riddled roster**\
+`Lakers guard Bronny James will make his first start of the season against the Milwaukee Bucks as Los Angeles deals with several injuries.`\
+https://nytimes.com/athletic/6810896/2025/11/15/bronny-james-starter-lakers-nba/
+
 **North Carolina falls to Wake Forest, needs wins in final 2 to make bowl game**\
 `UNC (4-6) must defeat Duke and NC State in its final two games to achieve bowl eligibility.`\
 https://nytimes.com/athletic/6810910/2025/11/15/unc-wake-forest-score-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6560541/2025/11/15/college-football-playoff-bracket
 **USMNT 2, Paraguay 1: Reyna scores in start; Pochettino's side unbeaten in 4**\
 `Gio Reyna made an impressive return, while the U.S. beat another World Cup-bound opponent as preparations continue for 2026`\
 https://nytimes.com/athletic/6810427/2025/11/15/usmnt-paraguay-friendly-reyna-score-video/
-
-**Protesters Rage Against Mexico’s Government Over Corruption and Violence**\
-`Members of Mexico’s Gen Z, as well as older protesters, demonstrated on Saturday in the wake of a high-profile assassination and rising anger over persistent violence.`\
-https://nytimes.com/2025/11/15/world/americas/mexico-protest-violence.html
 
