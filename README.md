@@ -1,3 +1,7 @@
+**How to watch Predators vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the Nashville Predators play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6811558/2025/11/16/predators-vs-penguins-stream-how-to-watch-nov-16/
+
 **Sky Sports axes female-focused brand TikTok Halo following fierce backlash**\
 `Sky announced on Saturday that it would cease activity on the social page which the broadcaster had dubbed its 'lil sis'.`\
 https://nytimes.com/athletic/6811513/2025/11/16/sky-sports-halo-cancelled-criticism/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/16/your-money/rent-a-bank-loan-scheme.html
 **The Man Yelling ‘Iceberg!’ on the Hollywood Titanic**\
 `Matthew Belloni has grabbed the movie industry’s attention by saying they’re about to sink.`\
 https://nytimes.com/2025/11/16/business/matthew-belloni-puck-hollywood.html
-
-**Jeremiyah Love's best NFL team fits, Mansoor Delane's excellence, more Week 12 reactions**\
-`Love is a clear top-10 prospect in the 2026 draft class, but which NFL team will roll the dice on a running back early in Round 1?`\
-https://nytimes.com/athletic/6811097/2025/11/16/nfl-draft-2026-scouting-love-delane-quarterbacks/
 

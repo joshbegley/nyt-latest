@@ -1,3 +1,7 @@
+**Sky Sports axes female-focused brand TikTok Halo following fierce backlash**\
+`Sky announced on Saturday that it would cease activity on the social page which the broadcaster had dubbed its 'lil sis'.`\
+https://nytimes.com/athletic/6811513/2025/11/16/sky-sports-halo-cancelled-criticism/
+
 **How to watch Ohio State vs. UConn women's basketball: Time, TV, streaming**\
 `Find out how to watch the Ohio State Buckeyes play the UConn Huskies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6811549/2025/11/16/ohio-state-vs-uconn-stream-how-to-watch-nov-16/
