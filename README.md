@@ -1,3 +1,11 @@
+**How to watch Texas Southern vs. Texas women's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Southern Tigers play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6811929/2025/11/16/texas-southern-vs-texas-stream-how-to-watch-nov-16/
+
+**Arctic Blast Brings Risk of Snow and Ice to Britain**\
+`The cold weather, which comes on the heels of a storm that caused flooding in Wales, is expected to jolt Britain out of its recent run of mild temperatures.`\
+https://nytimes.com/2025/11/16/weather/uk-cold-forecast-snow.html
+
 **Deandre Ayton and the Lakers need each other. Is he feeling the love?**\
 `“They said this my last chance,” Ayton said of the NBA. So far, it’s been largely agenda-less basketball for the Lakers and their center.`\
 https://nytimes.com/athletic/6811129/2025/11/16/deandre-ayton-lakers-luka-doncic-lebron-james-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6811746/2025/11/16/premier-league-anchoring-vote/
 **Pentagon to Withdraw Some National Guard Troops From Chicago and Portland**\
 `The move comes amid court battles and objections by state and local leaders to President Trump’s deployment orders.`\
 https://nytimes.com/2025/11/16/us/politics/national-guard-withdrawal-chicago-portland.html
-
-**Arsenal's Gabriel has suffered muscle injury, released from Brazil squad**\
-`The centre-back appeared to be in pain and walked gingerly off the pitch in Brazil's international friendly against Senegal.`\
-https://nytimes.com/athletic/6810251/2025/11/16/arsenal-gabriel-injury-brazil-update/
-
-**Predicting the CFP bracket: Alabama-Ole Miss first round? A Southwest Conference flashback**\
-`With Oklahoma beating Alabama, the Sooners jump into the College Football Playoff, and the Alabama hang on to the final at-large spot.`\
-https://nytimes.com/athletic/6811399/2025/11/16/college-football-playoff-bracket-prediction-alabama/
 

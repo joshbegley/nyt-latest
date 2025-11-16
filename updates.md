@@ -1,3 +1,19 @@
+**Deandre Ayton and the Lakers need each other. Is he feeling the love?**\
+`“They said this my last chance,” Ayton said of the NBA. So far, it’s been largely agenda-less basketball for the Lakers and their center.`\
+https://nytimes.com/athletic/6811129/2025/11/16/deandre-ayton-lakers-luka-doncic-lebron-james-nba/
+
+**Portugal qualify for World Cup, teeing up Ronaldo for record sixth tournament**\
+`Ronaldo, who would be 41 at next summer's tournament, has the chance to set a record in the men's game.`\
+https://nytimes.com/athletic/6716053/2025/11/16/portugal-world-cup-cristiano-ronaldo/
+
+**Lowetide: What does Oilers prospect Ike Howard need to achieve in the AHL?**\
+`Questions remain about Howard's deployment in the AHL and his short-term future with the NHL team.`\
+https://nytimes.com/athletic/6809994/2025/11/16/edmonton-oilers-ike-howard-ahl-stats/
+
+**A Mid-November Sunday Means Lemony Roast Chicken**\
+`More specifically, this showstopping lemon-garlic roast chicken with squash.`\
+https://nytimes.com/2025/11/16/dining/a-mid-november-sunday-means-lemony-roast-chicken.html
+
 **Friends Say a Suspect in the Louvre Heist Had Tried to Leave a Rough Past Behind**\
 `He had been best known as a daring urban dirt-bike rider who had pulled off stunts at iconic sites in Paris, according to several friends.`\
 https://nytimes.com/2025/11/16/world/europe/louvre-heist-suspect.html

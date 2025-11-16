@@ -1,3 +1,19 @@
+**Deandre Ayton and the Lakers need each other. Is he feeling the love?**\
+`“They said this my last chance,” Ayton said of the NBA. So far, it’s been largely agenda-less basketball for the Lakers and their center.`\
+https://nytimes.com/athletic/6811129/2025/11/16/deandre-ayton-lakers-luka-doncic-lebron-james-nba/
+
+**Portugal qualify for World Cup, teeing up Ronaldo for record sixth tournament**\
+`Ronaldo, who would be 41 at next summer's tournament, has the chance to set a record in the men's game.`\
+https://nytimes.com/athletic/6716053/2025/11/16/portugal-world-cup-cristiano-ronaldo/
+
+**Lowetide: What does Oilers prospect Ike Howard need to achieve in the AHL?**\
+`Questions remain about Howard's deployment in the AHL and his short-term future with the NHL team.`\
+https://nytimes.com/athletic/6809994/2025/11/16/edmonton-oilers-ike-howard-ahl-stats/
+
+**A Mid-November Sunday Means Lemony Roast Chicken**\
+`More specifically, this showstopping lemon-garlic roast chicken with squash.`\
+https://nytimes.com/2025/11/16/dining/a-mid-november-sunday-means-lemony-roast-chicken.html
+
 **Friends Say a Suspect in the Louvre Heist Had Tried to Leave a Rough Past Behind**\
 `He had been best known as a daring urban dirt-bike rider who had pulled off stunts at iconic sites in Paris, according to several friends.`\
 https://nytimes.com/2025/11/16/world/europe/louvre-heist-suspect.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6810251/2025/11/16/arsenal-gabriel-injury-brazil-up
 **Predicting the CFP bracket: Alabama-Ole Miss first round? A Southwest Conference flashback**\
 `With Oklahoma beating Alabama, the Sooners jump into the College Football Playoff, and the Alabama hang on to the final at-large spot.`\
 https://nytimes.com/athletic/6811399/2025/11/16/college-football-playoff-bracket-prediction-alabama/
-
-**Nikola Jokić has plenty of help, and the surging Nuggets look deep and dangerous**\
-`The Nuggets believe they have the roster to contend for a championship. With the help of strong bench play, they have won seven in a row.`\
-https://nytimes.com/athletic/6811182/2025/11/16/nuggets-nikola-jokic-jamal-murray-anthony-edwards-timberwolves-nba/
-
-**The Viral TikToks Testing Churches**\
-`A woman has called houses of worship to see if they would help her get formula for a starving baby. Most have said no.`\
-https://nytimes.com/2025/11/16/briefing/nikalie-monroe-tik-tok-viral-church-test.html
-
-**Rory McIlroy clinches seventh overall title despite Dubai defeat**\
-`McIlroy moved past Ballesteros' tally of six and is now just one behind Colin Montgomerie's record of eight Order of Merit titles.`\
-https://nytimes.com/athletic/6811678/2025/11/16/rory-milroy-title-dubai-matt-fitzpatrick/
-
-**Until Saturday: SEC getting 5 (or even 6) Playoff bids?**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6811703/2025/11/16/oklahoma-alabama-georgia-texas-playoff-until-saturday/
 
