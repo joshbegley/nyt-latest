@@ -1,3 +1,12 @@
+**What we saw from Leafs' loss to Blackhawks: Joseph Woll's return, Philippe Myers' errors**\
+`After falling 3-2 to Chicago, Toronto lost its fifth straight game and dropped to an 8-9-2 record for the season.
+`\
+https://nytimes.com/athletic/6811086/2025/11/15/maple-leafs-blackhawks-joseph-woll-philippe-myers/
+
+**College Football Playoff 2025 projections: Oklahoma beating Alabama shakes up SEC picture**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/15/college-football-playoff-bracket-projections-odds/
+
 **USMNT players who proved the most – and have more to prove – after beating Paraguay**\
 `With many U.S. regulars absent, this window represents an opportunity for those seeking World Cup roster spots. Who impressed vs. Paraguay?`\
 https://nytimes.com/athletic/6811169/2025/11/15/usmnt-world-cup-auditions-paraguay-reyna-pepi-scally-dest-aaronson/
