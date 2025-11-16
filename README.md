@@ -1,3 +1,7 @@
+**Jaguars go hard at Herbert, dominate run game in blowout win over Chargers**\
+`Jacksonville scored four of its five touchdowns on the ground against Los Angeles, which looked lethargic on the field.`\
+https://nytimes.com/athletic/6805373/2025/11/16/chargers-jaguars-score-result-takeaways-nfl/
+
 **Your Questions About Climate Change, Answered**\
 `You asked Somini Sengupta, our international climate reporter, about the science and the politics. She responded from COP30 in Brazil.`\
 https://nytimes.com/2025/11/16/world/climate-cop-brazil-jeffrey-epstein-trump-greene.html
@@ -14,8 +18,8 @@ https://nytimes.com/athletic/6812411/2025/11/16/bellingham-england-substitution-
 `Kirk Cousins replaced Penix after he exited in the third quarter.`\
 https://nytimes.com/athletic/6812430/2025/11/16/falcons-michael-penix-knee-injury-update/
 
-**Aaron Rodgers suffers left hand injury, questionable to return vs. Bengals**\
-`Backup QB Mason Rudolph started the second half for Pittsburgh.`\
+**Aaron Rodgers suffers left wrist injury, misses second half of win over Bengals**\
+`Backup QB Mason Rudolph stepped in for the second half in Pittsburgh.`\
 https://nytimes.com/athletic/6812394/2025/11/16/aaron-rodgers-injury-pittsburgh-steelers/
 
 **Calvin Duncan’s Unlikely Journey: Convict to Exoneree to Elected Official**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6812219/2025/11/16/mls-calendar-switch-player-react
 **Sinner wins ATP Tour Finals as he and Alcaraz confirm that their only rivals are each other**\
 `Holding the five biggest titles in men's tennis, Alcaraz and Sinner end 2025 with emphatic proof that their duopoly is only just beginning.`\
 https://nytimes.com/athletic/6811689/2025/11/16/alcaraz-sinner-atp-tour-finals-result-analysis/
-
-**Packers RB Josh Jacobs ruled out vs. Giants with knee injury**\
-`The Packers are already without tight end Tucker Kraft and now have to get by without Jacobs.`\
-https://nytimes.com/athletic/6812172/2025/11/16/packers-josh-jacobs-knee-injury-update/
 
