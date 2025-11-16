@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6811678/2025/11/16/rory-milroy-title-dubai-matt-fit
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6811703/2025/11/16/oklahoma-alabama-georgia-texas-playoff-until-saturday/
 
-**Trump Administration Live Updates: Marjorie Taylor Greene Expresses Support for President Despite His Criticisms**\
+**Trump Administration Live Updates: Marjorie Taylor Greene Expresses Support for President Despite His Criticism**\
 ``\
 https://nytimes.com/live/2025/11/16/us/trump-news
 
