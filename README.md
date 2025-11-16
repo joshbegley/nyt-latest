@@ -1,3 +1,15 @@
+**Yohe's 10 observations: Sergei Murashov notches shutout in Sweden for first career NHL win**\
+`Sergei Murashov backstopped the Penguins to a 4-0 win over the Predators in Sweden on Sunday.`\
+https://nytimes.com/athletic/6811567/2025/11/16/penguins-sergei-murashov-shutout-predators-sweden/
+
+**AP Top 25: Alabama falls to No. 10; North Texas gets first ranking since 1959**\
+`Ohio State, Indiana, Texas A&M, Georgia and Ole Miss make up the top five of this week's AP Top 25 college football rankings.`\
+https://nytimes.com/athletic/6812184/2025/11/16/ap-top-25-rankings-alabama-north-texas/
+
+**Man Utd and USWNT goalkeeper Tullis-Joyce fractures eye socket**\
+`United head coach Marc Skinner said the U.S. goalkeeper sustained the injury against Aston Villa on November 11, but had not been concussed.`\
+https://nytimes.com/athletic/6810288/2025/11/16/tullis-joyce-injury-manchester-united-uswnt/
+
 **How to watch Florida vs. Miami (FL) men's basketball: Time, TV, streaming**\
 `Find out how to watch the Florida Gators play the Miami Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6812264/2025/11/16/florida-vs-miami-fl-stream-how-to-watch-nov-16/
@@ -27,16 +39,4 @@ https://nytimes.com/athletic/6801851/2025/11/16/albania-0-england-2-kane-belling
 **Dolphins-Commanders takeaways: Miami wins overtime defensive slugfest in Madrid**\
 `Gritty defensive stands marked the battle between two teams that entered the day 3-7.`\
 https://nytimes.com/athletic/6812084/2025/11/16/dolphins-commanders-score-result-takeaways-madrid/
-
-**LeBron James to practice with Lakers, a step toward season debut: Source**\
-`James has been recovering from a sciatic nerve irritation, which has sidelined him from team workouts since before training camp.`\
-https://nytimes.com/athletic/6812043/2025/11/16/lebron-james-lakers-practice-return-debut/
-
-**Amid 6-game losing streak, Maryland says coach Mike Locksley will return**\
-`The Terps went to three consecutive bowl games from 2021-23, but they’re 2-14 in Big Ten games over the past two years.`\
-https://nytimes.com/athletic/6812071/2025/11/16/maryland-football-mike-locksley-return/
-
-**New York Jets Player Kris Boyd Is Critically Wounded in Shooting**\
-`Mr. Boyd was wounded early on Sunday in a shooting in Midtown Manhattan. He is in his first year as a defensive player with the team after signing in March.`\
-https://nytimes.com/2025/11/16/nyregion/kris-boyd-shot-jets.html
 
