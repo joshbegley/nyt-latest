@@ -1,3 +1,15 @@
+**China Escalates Japan Feud With Island Patrols and Warnings to Citizens**\
+`China sent Coast Guard ships near disputed islands and warned travelers and students about safety risks in Japan. The escalation is over comments on Taiwan by Japan’s new prime minister.`\
+https://nytimes.com/2025/11/16/world/asia/china-japan-relations-coast-guard.html
+
+**Divisional showdowns, playoff previews lead tremendous NFL Week 11 slate**\
+`Broncos and Chiefs battle for AFC West control, Seahawks and Rams meet for first place in the NFC West, and Lions and Eagles square off.`\
+https://nytimes.com/athletic/6805666/2025/11/16/nfl-week-11-storylines-chiefs-broncos-lions-eagles/
+
+**The New York Times International Edition in Print for Monday, Nov. 17, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/11/16/todays-new-york-times-international-edition
+
 **How to watch Predators vs. Penguins: Time, TV, streaming**\
 `Find out how to watch the Nashville Predators play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6811558/2025/11/16/predators-vs-penguins-stream-how-to-watch-nov-16/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/16/world/americas/chile-presidential-election-on-sun
 **Epstein Emails Reveal a Lost New York**\
 `The disgraced financier’s recently released documents are steeped in a clubby world that is all but gone.`\
 https://nytimes.com/2025/11/16/style/epstein-emails-reveal-a-lost-new-york.html
-
-**The Unlikely Mother of a Movement, on a Hunger Strike to Avenge Her Son**\
-`Since her son was killed with 15 others in a railway station collapse in Serbia, Dijana Hrka has become the face of widespread anti-government protests. How far will she go?`\
-https://nytimes.com/2025/11/16/world/europe/sebia-mother-hunger-strike.html
-
-**A Family Borrowed $218,000 and Paid Back $240,000. Why Are They Facing Foreclosure?**\
-`Predatory lenders often take part in schemes that enable them to circumvent state lending laws and charge borrowers sky-high interest rates.`\
-https://nytimes.com/2025/11/16/your-money/rent-a-bank-loan-scheme.html
-
-**The Man Yelling ‘Iceberg!’ on the Hollywood Titanic**\
-`Matthew Belloni has grabbed the movie industry’s attention by saying they’re about to sink.`\
-https://nytimes.com/2025/11/16/business/matthew-belloni-puck-hollywood.html
 
