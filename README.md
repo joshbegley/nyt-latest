@@ -1,3 +1,7 @@
+**Browns QB Shedeur Sanders makes NFL debut**\
+`Sanders' first drive ended with a sack and fumble that the Browns recovered and his second possession ended with an interception.`\
+https://nytimes.com/athletic/6812848/2025/11/16/shedeur-sanders-debut-browns-nfl/
+
 **With Everything on the Line**\
 `Rena Cohen has your number.`\
 https://nytimes.com/2025/11/16/crosswords/daily-puzzle-2025-11-17.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6811858/2025/11/16/bengals-steelers-score-result-ta
 **The Briefing: DR Congo beat Nigeria on penalties to reach inter-confederation play-offs**\
 `DR Congo beat Nigeria to reach the inter-confederation play-offs after a tense penalty shootout. We break down the key moments`\
 https://nytimes.com/athletic/6812422/2025/11/16/dr-congo-beat-nigeria-world-cup-qualifiers/
-
-**Calvin Ridley out for season as Titans fall to Texans**\
-`Ridley broke his fibula and is done for the year, adding to Tennessee's woes.`\
-https://nytimes.com/athletic/6812488/2025/11/16/texans-titans-score-result-takeaways-nfl/
 
