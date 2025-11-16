@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6812020/2025/11/16/panthers-falcons-score-result-ta
 `Josh Allen tied Cam Newton's all-time record for most regular-season rushing touchdowns by a quarterback in Sunday's win over Tampa Bay.`\
 https://nytimes.com/athletic/6812381/2025/11/16/buccaneers-bills-score-result-takeaways-nfl/
 
-**Bengals-Steelers: Pittsburgh has strong second half to win but Rodgers hurt**\
+**Bengals-Steelers: Aaron Rodgers injures hand but Pittsburgh defense shines**\
 `The Steelers and Bengals got off to hot starts, each scoring a first-quarter touchdown but slowed in the second before Pittsburgh got ahead.`\
 https://nytimes.com/athletic/6811858/2025/11/16/bengals-steelers-score-result-takeaways-nfl/
 

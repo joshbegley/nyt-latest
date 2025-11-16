@@ -1,3 +1,11 @@
+**Panthers-Falcons: Bryce Young's career day rallies Carolina to OT win**\
+`Young threw for a career-high 448 yards and three touchdowns, just his third career 300-yard passing game.`\
+https://nytimes.com/athletic/6812020/2025/11/16/panthers-falcons-score-result-takeaways-nfl/
+
+**The Briefing: DR Congo beat Nigeria on penalties to reach inter-confederation play-offs**\
+`DR Congo beat Nigeria to reach the inter-confederation play-offs after a tense penalty shootout. We break down the key moments`\
+https://nytimes.com/athletic/6812422/2025/11/16/dr-congo-beat-nigeria-world-cup-qualifiers/
+
 **Bills-Buccaneers takeaways: Josh Allen's 6 touchdowns too much for Tampa Bay**\
 `Josh Allen tied Cam Newton's all-time record for most regular-season rushing touchdowns by a quarterback in Sunday's win over Tampa Bay.`\
 https://nytimes.com/athletic/6812381/2025/11/16/buccaneers-bills-score-result-takeaways-nfl/
