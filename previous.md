@@ -1,3 +1,11 @@
+**LeBron James to practice with Lakers, a step toward season debut: Source**\
+`James has been recovering from a sciatic nerve irritation, which has sidelined him from team workouts since before training camp.`\
+https://nytimes.com/athletic/6812043/2025/11/16/lebron-james-lakers-practice-return-debut/
+
+**Amid 6-game losing streak, Maryland says coach Mike Locksley will return**\
+`The Terps went to three consecutive bowl games from 2021-23, but they’re 2-14 in Big Ten games over the past two years.`\
+https://nytimes.com/athletic/6812071/2025/11/16/maryland-football-mike-locksley-return/
+
 **New York Jets Player Kris Boyd Is Critically Wounded in Shooting**\
 `Mr. Boyd was wounded early on Sunday in a shooting in Midtown Manhattan. He is in his first year as a defensive player with the team after signing in March.`\
 https://nytimes.com/2025/11/16/nyregion/kris-boyd-shot-jets.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6808918/2025/11/16/og-anunoby-injury-knicks-status/
 **How to watch Magic vs. Rockets: Time, TV, streaming**\
 `Find out how to watch the Orlando Magic play the Houston Rockets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6811953/2025/11/16/magic-vs-rockets-stream-how-to-watch-nov-16/
-
-**How to watch Warriors vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the Golden State Warriors play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6811951/2025/11/16/warriors-vs-pelicans-stream-how-to-watch-nov-16/
-
-**How to watch Red Wings vs. Rangers: Time, TV, streaming**\
-`Find out how to watch the Detroit Red Wings play the New York Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6811949/2025/11/16/red-wings-vs-rangers-stream-how-to-watch-nov-16/
 

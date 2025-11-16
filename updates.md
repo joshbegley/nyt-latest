@@ -1,3 +1,11 @@
+**LeBron James to practice with Lakers, a step toward season debut: Source**\
+`James has been recovering from a sciatic nerve irritation, which has sidelined him from team workouts since before training camp.`\
+https://nytimes.com/athletic/6812043/2025/11/16/lebron-james-lakers-practice-return-debut/
+
+**Amid 6-game losing streak, Maryland says coach Mike Locksley will return**\
+`The Terps went to three consecutive bowl games from 2021-23, but they’re 2-14 in Big Ten games over the past two years.`\
+https://nytimes.com/athletic/6812071/2025/11/16/maryland-football-mike-locksley-return/
+
 **New York Jets Player Kris Boyd Is Critically Wounded in Shooting**\
 `Mr. Boyd was wounded early on Sunday in a shooting in Midtown Manhattan. He is in his first year as a defensive player with the team after signing in March.`\
 https://nytimes.com/2025/11/16/nyregion/kris-boyd-shot-jets.html
