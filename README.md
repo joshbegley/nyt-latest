@@ -1,5 +1,9 @@
+**USMNT players give backing to MLS season switch**\
+`USMNT players have reacted to MLS's decision to switch to the European calendar in 2027 with broad agreement with the change.`\
+https://nytimes.com/athletic/6812219/2025/11/16/mls-calendar-switch-player-reactions/
+
 **Sinner wins ATP Tour Finals as he and Alcaraz confirm that their only rivals are each other**\
-`Holding the five biggest titles in men's tennis, Alcaraz and Sinner end 2025 with emphatic evidence that their only rivals are each other.`\
+`Holding the five biggest titles in men's tennis, Alcaraz and Sinner end 2025 with emphatic proof that their duopoly is only just beginning.`\
 https://nytimes.com/athletic/6811689/2025/11/16/alcaraz-sinner-atp-tour-finals-result-analysis/
 
 **Packers RB Josh Jacobs ruled out vs. Giants with knee injury**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6812296/2025/11/16/trail-blazers-vs-mavericks-strea
 **How to watch Islanders vs. Avalanche: Time, TV, streaming**\
 `Find out how to watch the New York Islanders play the Colorado Avalanche, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6812294/2025/11/16/islanders-vs-avalanche-stream-how-to-watch-nov-16/
-
-**How to watch Hawks vs. Suns: Time, TV, streaming**\
-`Find out how to watch the Atlanta Hawks play the Phoenix Suns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6812292/2025/11/16/hawks-vs-suns-stream-how-to-watch-nov-16/
 
