@@ -1,3 +1,7 @@
+**Meet Dr. ChatGPT**\
+`Chatbots are empathetic and accessible, but they can sometimes be wrong. What happens when you ask them for medical advice?`\
+https://nytimes.com/2025/11/16/briefing/meet-dr-chatgpt.html
+
 **The Blues have proved that they are just a bad team**\
 `The Blues fell 4-1 to Vegas on Saturday leading to more concern that the team's issues aren't fixable with the current roster construction.`\
 https://nytimes.com/athletic/6810819/2025/11/16/blues-are-just-bad/
