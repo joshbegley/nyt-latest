@@ -1,3 +1,8 @@
+**What we saw from Leafs' loss to Blackhawks: Joseph Woll's return, Philippe Myers' errors**\
+`After falling 3-2 to Chicago, Toronto lost its fifth straight game and dropped to an 8-9-2 record for the season.
+`\
+https://nytimes.com/athletic/6811086/2025/11/15/maple-leafs-blackhawks-joseph-woll-philippe-myers/
+
 **USMNT players who proved the most – and have more to prove – after beating Paraguay**\
 `With many U.S. regulars absent, this window represents an opportunity for those seeking World Cup roster spots. Who impressed vs. Paraguay?`\
 https://nytimes.com/athletic/6811169/2025/11/15/usmnt-world-cup-auditions-paraguay-reyna-pepi-scally-dest-aaronson/
@@ -9,6 +14,10 @@ https://nytimes.com/athletic/6811158/2025/11/15/chicago-blackhawks-nick-foligno-
 **Ohio State just keeps cruising to easy Big Ten wins as run game dominates UCLA**\
 `Carnell Tate was out and Jeremiah Smith was limited, but No. 1 Ohio State routed UCLA with ease 48-10 on Saturday night.`\
 https://nytimes.com/athletic/6811140/2025/11/15/ohio-state-ucla-football-score-result/
+
+**College Football Playoff 2025 projections: Oklahoma beating Alabama shakes up SEC picture**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/15/college-football-playoff-bracket-projections-odds/
 
 **Rare onside kick, fourth-down plays propel Georgia toward Playoff as Texas' chances sink**\
 `Georgia successfully pulled off the first onside kick of Kirby Smart's tenure Saturday to regain control and handle Texas.`\
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/6810987/2025/11/15/florida-ole-miss-lane-kiffin-ref
 **Pochettino laments 'dangerous' fight, lauds team spirit in Paraguay win**\
 `An injury-time scuffle broke out as the U.S. clinched another friendly victory leading up to the World Cup`\
 https://nytimes.com/athletic/6811043/2025/11/15/usmnt-pochettino-fight-paraguay/
-
-**Rams' Alaric Jackson to play Sunday after woman sues him over sex video**\
-`An unnamed woman filed a lawsuit against Jackson, alleging the left tackle recorded sexual acts with her on his phone without her consent.`\
-https://nytimes.com/athletic/6810706/2025/11/15/rams-alaric-jackson-lawsuit-sex-video/
-
-**Bruins' Charlie McAvoy injured after taking slap shot to face: 'Praying for him'**\
-`The Boston defenseman fell to the ice with blood pouring from his face in the second period after taking a Noah Dobson slap shot up high.`\
-https://nytimes.com/athletic/6810969/2025/11/15/bruins-charlie-mcavoy-injury-canadiens-face/
 
