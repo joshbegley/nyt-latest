@@ -1,3 +1,7 @@
+**The Pulse: A wild day in the SEC**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6811067/2025/11/16/a-27-point-comeback-and-more-surprises-across-the-sec/
+
 **Playoff bids abound for the SEC, but angst, too: SEC vibes after Week 12**\
 `The SEC looks poised to take five of the 12 Playoff spots. But what about six?`\
 https://nytimes.com/athletic/6811930/2025/11/16/sec-football-rankings-week-12-georgia-oklahoma-texas/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6811943/2025/11/16/canucks-vs-lightning-stream-how-
 **How to watch Texas Southern vs. Texas women's basketball: Time, TV, streaming**\
 `Find out how to watch the Texas Southern Tigers play the Texas Longhorns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6811929/2025/11/16/texas-southern-vs-texas-stream-how-to-watch-nov-16/
-
-**Arctic Blast Brings Risk of Snow and Ice to Britain**\
-`The cold weather, which comes on the heels of a storm that caused flooding in Wales, is expected to jolt Britain out of its recent run of mild temperatures.`\
-https://nytimes.com/2025/11/16/weather/uk-cold-forecast-snow.html
 
