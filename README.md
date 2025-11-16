@@ -1,3 +1,7 @@
+**Panthers-Falcons: Bryce Young's career day rallies Carolina to OT win**\
+`Young threw for a career-high 448 yards and three touchdowns, just his third career 300-yard passing game.`\
+https://nytimes.com/athletic/6812020/2025/11/16/panthers-falcons-score-result-takeaways-nfl/
+
 **Bills-Buccaneers takeaways: Josh Allen's 6 touchdowns too much for Tampa Bay**\
 `Josh Allen tied Cam Newton's all-time record for most regular-season rushing touchdowns by a quarterback in Sunday's win over Tampa Bay.`\
 https://nytimes.com/athletic/6812381/2025/11/16/buccaneers-bills-score-result-takeaways-nfl/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6812381/2025/11/16/buccaneers-bills-score-result-ta
 https://nytimes.com/athletic/6811858/2025/11/16/bengals-steelers-score-result-takeaways-nfl/
 
 **The Briefing: DR Congo beat Nigeria on penalties to reach inter-confederation play-offs**\
-`DR Congo beat Nigeria to reach the inter-confederation play-offs after a tense penalty shootout. We break down the key moments.`\
+`DR Congo beat Nigeria to reach the inter-confederation play-offs after a tense penalty shootout. We break down the key moments`\
 https://nytimes.com/athletic/6812422/2025/11/16/dr-congo-beat-nigeria-world-cup-qualifiers/
 
 **Calvin Ridley out for season as Titans fall to Texans**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6812626/2025/11/16/ravens-mark-andrews-receiving-nf
 **Commanders' season unofficially ends in Madrid: 'A long way to go to come up short'**\
 `The Commanders have lost six straight games and have virtually no chance left at a playoff spot.`\
 https://nytimes.com/athletic/6812142/2025/11/16/dolphins-beat-commanders-madrid-overtime/
-
-**Packers-Giants takeaways: Green Bay fights through wind, injuries in road win**\
-`Packers survive windy day to spoil Giants interim head coach Mike Kafka's debut with a 27-20 win.`\
-https://nytimes.com/athletic/6811965/2025/11/16/packers-giants-score-result-takeaways-nfl/
 
