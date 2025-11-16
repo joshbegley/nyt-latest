@@ -1,3 +1,11 @@
+**On ‘S.N.L.,’ the White House Says Trump’s Only Crime Was ‘Loving Too Much’**\
+`The Epstein files played a prominent role in this episode hosted by Glen Powell, while Will Forte returned to play his fan-favorite character MacGruber.`\
+https://nytimes.com/2025/11/16/arts/television/snl-trumps-crime-loving-too-much.html
+
+**College Football Playoff 2025 projections: Oklahoma beating Alabama shakes up SEC picture**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/16/college-football-playoff-bracket-projections-odds/
+
 **Brazil gets first major Alpine skiing win as Lucas Pinheiro Braathen tops World Cup slalom**\
 `A year after ending his retirement and switching countries, Lucas Pinheiro Braathen delivered Brazil its first World Cup victory.`\
 https://nytimes.com/athletic/6811604/2025/11/16/lucas-pinheiro-braathen-brazil-world-cup-alpine-skiing/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6811655/2025/11/16/iowa-vs-northern-iowa-stream-how
 **How to watch Louisville vs. Clemson women's basketball: Time, TV, streaming**\
 `Find out how to watch the Louisville Cardinals play the Clemson Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6811653/2025/11/16/louisville-vs-clemson-stream-how-to-watch-nov-16/
-
-**How to watch Le Moyne vs. Baylor women's basketball: Time, TV, streaming**\
-`Find out how to watch the Le Moyne Dolphins play the Baylor Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6811651/2025/11/16/le-moyne-vs-baylor-stream-how-to-watch-nov-16/
-
-**How to watch Duke vs. Liberty women's basketball: Time, TV, streaming**\
-`Find out how to watch the Duke Blue Devils play the Liberty Lady Flames, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6811649/2025/11/16/duke-vs-liberty-stream-how-to-watch-nov-16/
 
