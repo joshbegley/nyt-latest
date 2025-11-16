@@ -1,3 +1,11 @@
+**Lane Kiffin rips refs for apparent mistake in Florida-Ole Miss: 'It's not that hard'**\
+`Instead of a made field goal, it appeared Ole Miss should have got an automatic first down that extended the drive with goal-to-go.`\
+https://nytimes.com/athletic/6810987/2025/11/15/florida-ole-miss-lane-kiffin-refs-missed-call/
+
+**Pochettino laments 'dangerous' fight, lauds team spirit in Paraguay win**\
+`An injury-time scuffle broke out as the U.S. clinched another friendly victory leading up to the World Cup`\
+https://nytimes.com/athletic/6811043/2025/11/15/usmnt-pochettino-fight-paraguay/
+
 **SEC commissioner Greg Sankey says 16-team CFP should be a 'priority'**\
 `That’s a slight departure from Sankey’s comments the past few months.`\
 https://nytimes.com/athletic/6810863/2025/11/15/sec-cfp-format-greg-sankey/
