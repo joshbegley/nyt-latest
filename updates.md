@@ -1,3 +1,7 @@
+**His Jeans Are Gigantic. His Internet Fame Is Too.**\
+`Carter Anderson purchased an outrageous pair of pants to try to win a contest and became an unlikely social media star along the way.`\
+https://nytimes.com/2025/11/16/style/jeans-carter-anderson-indigo-invitational.html
+
 **'Maybe that’s why they take us to the U.S.' - Jimenez hits out at Mexico fans**\
 `Mexico goalkeeper Tala Rangel was booed during the side's 0-0 draw with Uruaguay in Torreon.`\
 https://nytimes.com/athletic/6811569/2025/11/16/raul-jimenez-mexico-fans-boos-united-states/

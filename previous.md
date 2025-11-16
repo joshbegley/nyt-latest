@@ -1,3 +1,7 @@
+**His Jeans Are Gigantic. His Internet Fame Is Too.**\
+`Carter Anderson purchased an outrageous pair of pants to try to win a contest and became an unlikely social media star along the way.`\
+https://nytimes.com/2025/11/16/style/jeans-carter-anderson-indigo-invitational.html
+
 **'Maybe that’s why they take us to the U.S.' - Jimenez hits out at Mexico fans**\
 `Mexico goalkeeper Tala Rangel was booed during the side's 0-0 draw with Uruaguay in Torreon.`\
 https://nytimes.com/athletic/6811569/2025/11/16/raul-jimenez-mexico-fans-boos-united-states/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/16/podcasts/the-daily/sunday-special-a-sea-of-stream
 **The Best Gifts Don’t Cost Money. Tell Us About Your Favorite.**\
 `The gifts that cost the least are sometimes the ones that mean the most. Share yours with NYT Opinion.`\
 https://nytimes.com/2025/11/16/opinion/share-favorite-homemade-gifts.html
-
-**Ecuador Can’t Shoot Its Way to Peace**\
-`President Noboa’s crime crackdown is igniting new waves of violence across Ecuador.`\
-https://nytimes.com/2025/11/16/opinion/ecuador-noboa-crime-military-bases.html
 
