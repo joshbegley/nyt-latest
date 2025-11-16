@@ -1,3 +1,7 @@
+**Bruins' Charlie McAvoy injured after taking slap shot to the face**\
+`The Boston defenseman fell to the ice with blood pouring from his face in the second period after taking a Noah Dobson slap shot up high.`\
+https://nytimes.com/athletic/6810969/2025/11/15/bruins-charlie-mcavoy-injury-canadiens-face/
+
 **NWSL can't keep Trinity Rodman and its current salary cap. It's time to choose**\
 `The rest of the world, and its biggest clubs, are watching the league's decision closely. `\
 https://nytimes.com/athletic/6810930/2025/11/15/trinity-rodman-contract-nwsl-salary-cap/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6810863/2025/11/15/sec-cfp-format-greg-sankey/
 **Can Michigan keep getting away with this? Someone is going to make Wolverines pay**\
 `There’s no denying Michigan’s institutional heft. But, to be frank, the Wolverines haven’t backed it up on the field — even as they win.`\
 https://nytimes.com/athletic/6810809/2025/11/15/michigan-northwestern-big-ten-football/
-
-**Dan Muse looks to ignite sluggish Penguins in the place where it all started**\
-`In Sweden, the place where it all started for Muse as Penguins' head coach, he will look to get his team back on track. `\
-https://nytimes.com/athletic/6810098/2025/11/15/penguins-dan-muse-stockholm-kyle-dubas/
 
