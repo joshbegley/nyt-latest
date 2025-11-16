@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>We&#8217;ve officially reached the &#8220;Oh crap, there are too many 10-2 teams&#8221; stretch of the season.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6812188/2025/11/16/submit-a-question-for-stewart-mandels-college-football-mailbag-323/
+
 **Albania 0 England 2 - Did Bellingham deliver as No 10? Did Tuchel's tactical experiments work?**\
 `Harry Kane scored two in the second half as England finished World Cup qualifying with a perfect record`\
 https://nytimes.com/athletic/6801851/2025/11/16/albania-0-england-2-kane-bellingham/
