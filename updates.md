@@ -1,3 +1,7 @@
+**Friends Say a Suspect in the Louvre Heist Had Tried to Leave a Rough Past Behind**\
+`He had been best known as a daring urban dirt-bike rider who had pulled off stunts at iconic sites in Paris, according to several friends.`\
+https://nytimes.com/2025/11/16/world/europe/louvre-heist-suspect.html
+
 **Do clubs whose players are injured on international duty get compensated?**\
 `How much can teams be paid by FIFA if their stars are ruled out while representing their country? And for how long? We explain all...`\
 https://nytimes.com/athletic/6746304/2025/11/16/player-injured-international-duty-compensation-fifa/
