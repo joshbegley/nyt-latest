@@ -1,3 +1,7 @@
+**Rams' Alaric Jackson to play Sunday after woman sues him over sex video**\
+`An unnamed woman filed a lawsuit against Jackson, alleging the left tackle recorded sexual acts with her on his phone without her consent.`\
+https://nytimes.com/athletic/6810706/2025/11/15/rams-alaric-jackson-lawsuit-sex-video/
+
 **Bruins' Charlie McAvoy injured after taking slap shot to the face**\
 `The Boston defenseman fell to the ice with blood pouring from his face in the second period after taking a Noah Dobson slap shot up high.`\
 https://nytimes.com/athletic/6810969/2025/11/15/bruins-charlie-mcavoy-injury-canadiens-face/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010484295/how-to-make-sense-of-law-e
 **SEC commissioner Greg Sankey says 16-team CFP should be a 'priority'**\
 `That’s a slight departure from Sankey’s comments the past few months.`\
 https://nytimes.com/athletic/6810863/2025/11/15/sec-cfp-format-greg-sankey/
-
-**Can Michigan keep getting away with this? Someone is going to make Wolverines pay**\
-`There’s no denying Michigan’s institutional heft. But, to be frank, the Wolverines haven’t backed it up on the field — even as they win.`\
-https://nytimes.com/athletic/6810809/2025/11/15/michigan-northwestern-big-ten-football/
 
