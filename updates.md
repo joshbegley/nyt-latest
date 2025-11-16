@@ -1,3 +1,7 @@
+**Tuchel to 'review' Bellingham reaction to substitution: 'We are a collective'**\
+`Bellingham was replaced by Morgan Rogers in the aftermath of Harry Kane's headed goal which doubled England's lead in the 82nd minute.`\
+https://nytimes.com/athletic/6812411/2025/11/16/bellingham-england-substitution-tuchel/
+
 **Falcons QB Michael Penix questionable to return vs. Panthers with knee injury**\
 `Kirk Cousins replaced Penix after he exited in the third quarter.`\
 https://nytimes.com/athletic/6812430/2025/11/16/falcons-michael-penix-knee-injury-update/
