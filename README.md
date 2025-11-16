@@ -1,3 +1,19 @@
+**How to watch Florida vs. Miami (FL) men's basketball: Time, TV, streaming**\
+`Find out how to watch the Florida Gators play the Miami Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6812264/2025/11/16/florida-vs-miami-fl-stream-how-to-watch-nov-16/
+
+**In One Day, Border Patrol Arrested 81 People in Charlotte**\
+`Federal Border Patrol agents hit the streets again on Sunday, their second day in a city home to a growing population of immigrants. It remains unclear how long they will stay.`\
+https://nytimes.com/2025/11/16/us/border-patrol-arrests-charlotte-nc.html
+
+**How to watch Akron vs. Purdue men's basketball: Time, TV, streaming**\
+`Find out how to watch the Akron Zips play the Purdue Boilermakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6812261/2025/11/16/akron-vs-purdue-stream-how-to-watch-nov-16/
+
+**Post Malone, Jack White will star in NFL Thanksgiving halftime shows**\
+`Post Malone will perform during the afternoon game hosted by the Cowboys, while Jack White will star earlier in the day in Detroit.`\
+https://nytimes.com/athletic/6812153/2025/11/16/post-malone-jack-white-thanksgiving-halftime/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>We&#8217;ve officially reached the &#8220;Oh crap, there are too many 10-2 teams&#8221; stretch of the season.</p>
 <p>Leave your questions here. Please include your city.</p>
@@ -23,20 +39,4 @@ https://nytimes.com/athletic/6812071/2025/11/16/maryland-football-mike-locksley-
 **New York Jets Player Kris Boyd Is Critically Wounded in Shooting**\
 `Mr. Boyd was wounded early on Sunday in a shooting in Midtown Manhattan. He is in his first year as a defensive player with the team after signing in March.`\
 https://nytimes.com/2025/11/16/nyregion/kris-boyd-shot-jets.html
-
-**Kirby Dach out 4 to 6 weeks with fractured foot as Canadiens' injury woes continue**\
-`Kirby Dach is the latest in a string of injuries for the Montreal Canadiens.`\
-https://nytimes.com/athletic/6811990/2025/11/16/kirby-dach-canadiens-injuries/
-
-**Jets CB Kris Boyd in critical but stable condition after being shot in NYC**\
-`The shooting was reported around 2 a.m. Sunday on West 38th Street in Midtown Manhattan, according to an NYPD spokesperson.`\
-https://nytimes.com/athletic/6812011/2025/11/16/jets-cornerback-kris-boyd-shooting-manhattan-condition/
-
-**Marjorie Taylor Greene Extends an Olive Branch to Trump**\
-`The Georgia Republican, long a loyal Trump ally, had come under attack by the president after showing independence, notably on the government’s investigation of Jeffrey Epstein.`\
-https://nytimes.com/2025/11/16/us/politics/marjorie-taylor-greene-trump-epstein-files.html
-
-**The Pulse: A wild day in the SEC**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6811067/2025/11/16/a-27-point-comeback-and-more-surprises-across-the-sec/
 
