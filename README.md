@@ -1,5 +1,5 @@
 **Arsenal's Gabriel has suffered muscle injury, released from Brazil squad**\
-`The centre-back appeared to be in pain and walked gingerly off the pitch gingerly in Brazil's international friendly against Senegal.`\
+`The centre-back appeared to be in pain and walked gingerly off the pitch in Brazil's international friendly against Senegal.`\
 https://nytimes.com/athletic/6810251/2025/11/16/arsenal-gabriel-injury-brazil-update/
 
 **Predicting the CFP bracket: Alabama-Ole Miss first round? A Southwest Conference flashback**\
@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6811678/2025/11/16/rory-milroy-title-dubai-matt-fit
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6811703/2025/11/16/oklahoma-alabama-georgia-texas-playoff-until-saturday/
 
-**Trump Administration Live Updates: Charlotte, N.C., Becomes the Latest City to Face an Immigration Crackdown**\
+**Trump Administration Live Updates: Marjorie Taylor Greene Expresses Support for President Despite His Criticisms**\
 ``\
 https://nytimes.com/live/2025/11/16/us/trump-news
 
