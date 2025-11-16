@@ -1,3 +1,8 @@
+**What we saw from Leafs' loss to Blackhawks: Joseph Woll's return, Philippe Myers' errors**\
+`After falling 3-2 to Chicago, Toronto lost its fifth straight game and dropped to an 8-9-2 record for the season.
+`\
+https://nytimes.com/athletic/6811086/2025/11/15/maple-leafs-blackhawks-joseph-woll-philippe-myers/
+
 **What’s More Dangerous than India’s Frequent Heat Waves? Heat Stress.**\
 `Women who face long-term heat exposure in workplaces and homes are finding it takes a heavy toll on their health and income.`\
 https://nytimes.com/2025/11/16/world/asia/heat-stress-women-india.html
