@@ -1,3 +1,19 @@
+**Nigeria coach Chelle alleges DR Congo players practiced 'voodoo' during penalty shootout**\
+`A representative of DR Congo denied Chelle's claims when asked by The Athletic.`\
+https://nytimes.com/athletic/6812903/2025/11/16/nigeria-dr-congo-voodoo-penalty-shootout/
+
+**Latest U.S. Strike on Boat in Pacific Kills 3, Southern Command Says**\
+`The United States has carried out at least 21 strikes on boats the Trump administration accuses of smuggling drugs, killing at least 83 people.`\
+https://nytimes.com/2025/11/16/us/politics/strike-boat-pacific-caribbean.html
+
+**In Israel, Adams Raises Doubts About Safety of Jews in New York**\
+`In Tel Aviv, Mayor Eric Adams painted an alarming picture of his city under his successor, Zohran Mamdani, saying, “If I were a Jewish New Yorker, I’d be concerned about my children.”`\
+https://nytimes.com/2025/11/16/nyregion/eric-adams-israel-safety-mamdani.html
+
+**Anthony Davis to be re-assessed in 7-10 days as calf recovery continues**\
+`The Mavericks announced that Anthony Davis was recently re-evaluated and will be “re-assessed in seven to 10 days.”`\
+https://nytimes.com/athletic/6812808/2025/11/16/anthony-davis-injury-update-mavericks-nba/
+
 **Jaedyn Shaw free kick sends No. 8 Gotham FC to NWSL championship with win over Pride**\
 `Gotham defeated the reigning NWSL champions to advance and will meet the No. 2 Washington Spirit on Nov. 22 at PayPal Park.`\
 https://nytimes.com/athletic/6812849/2025/11/16/gotham-fc-advance-nwsl-championship-jaedyn-shaw/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6812793/2025/11/16/michigan-recruiting-tommy-carr-c
 **Kings sign Adrian Kempe to 8-year, $85 million contract extension: Sources**\
 `In his nine seasons with the Kings, Kempe has evolved from a late first-round pick in 2014 into their best player.`\
 https://nytimes.com/athletic/6680130/2025/11/16/adrian-kempe-kings-contract/
-
-**'I spoke with Man United and Chelsea on the same day' - Spurs boss Frank**\
-`The 52-year-old Danish coach, who was still managing Brentford at the time, met both clubs in London on the same day in May 2024.`\
-https://nytimes.com/athletic/6812743/2025/11/16/thomas-frank-manchester-united-chelsea-interview/
-
-**Panthers-Falcons: Bryce Young's career day rallies Carolina to OT win**\
-`Young threw for a career-high 448 yards and three touchdowns, just his third career 300-yard passing game.`\
-https://nytimes.com/athletic/6812020/2025/11/16/panthers-falcons-score-result-takeaways-nfl/
-
-**Bills-Buccaneers takeaways: Josh Allen's 6 touchdowns too much for Tampa Bay**\
-`Josh Allen tied Cam Newton's all-time record for most regular-season rushing touchdowns by a quarterback in Sunday's win over Tampa Bay.`\
-https://nytimes.com/athletic/6812381/2025/11/16/buccaneers-bills-score-result-takeaways-nfl/
-
-**Bengals-Steelers: Aaron Rodgers injures wrist but Pittsburgh defense shines**\
-`The Steelers and Bengals got off to hot starts, each scoring a first-quarter touchdown but slowed in the second before Pittsburgh got ahead.`\
-https://nytimes.com/athletic/6811858/2025/11/16/bengals-steelers-score-result-takeaways-nfl/
 
