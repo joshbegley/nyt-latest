@@ -1,3 +1,7 @@
+**Leading football agencies threaten to sue Premier League ahead of anchoring vote**\
+`The proposed new regime will be voted on by clubs at their next Premier League shareholders’ meeting in London on Friday.`\
+https://nytimes.com/athletic/6811746/2025/11/16/premier-league-anchoring-vote/
+
 **Pentagon to Withdraw Some National Guard Troops From Chicago and Portland**\
 `The move comes amid court battles and objections by state and local leaders to President Trump’s deployment orders.`\
 https://nytimes.com/2025/11/16/us/politics/national-guard-withdrawal-chicago-portland.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/11/16/us/trump-news
 **Texas Tech stays atop Big 12 and BYU controls its destiny — but can both make the CFP?**\
 `Texas Tech dominated and BYU stayed in hunt, setting up a two-team Big 12 race with CFP stakes down the stretch.`\
 https://nytimes.com/athletic/6811452/2025/11/16/texas-tech-byu-big-12-playoff/
-
-**James Watson Saw the True Form of DNA. Then It Blinded Him.**\
-`James Watson’s legacy is a cautionary tale against letting a profound discovery shape your entire worldview.`\
-https://nytimes.com/2025/11/16/opinion/james-watson-dna.html
 
