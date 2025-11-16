@@ -1,3 +1,11 @@
+**'I spoke with Man United and Chelsea on the same day' - Spurs boss Frank**\
+`The 52-year-old Danish coach, who was still managing Brentford at the time, met both clubs in London on the same day in May 2024.`\
+https://nytimes.com/athletic/6812743/2025/11/16/thomas-frank-manchester-united-chelsea-interview/
+
+**Bengals-Steelers: Aaron Rodgers injures wrist but Pittsburgh defense shines**\
+`The Steelers and Bengals got off to hot starts, each scoring a first-quarter touchdown but slowed in the second before Pittsburgh got ahead.`\
+https://nytimes.com/athletic/6811858/2025/11/16/bengals-steelers-score-result-takeaways-nfl/
+
 **Bengals-Steelers: Aaron Rodgers injures hand but Pittsburgh defense shines**\
 `The Steelers and Bengals got off to hot starts, each scoring a first-quarter touchdown but slowed in the second before Pittsburgh got ahead.`\
 https://nytimes.com/athletic/6811858/2025/11/16/bengals-steelers-score-result-takeaways-nfl/
