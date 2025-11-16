@@ -1,3 +1,11 @@
+**Nikola Jokić has plenty of help, and the surging Nuggets look deep and dangerous**\
+`The Nuggets believe they have the roster to contend for a championship. With the help of strong bench play, they have won seven in a row.`\
+https://nytimes.com/athletic/6811182/2025/11/16/nuggets-nikola-jokic-jamal-murray-anthony-edwards-timberwolves-nba/
+
+**The Viral TikToks Testing Churches**\
+`A woman has called houses of worship to see if they would help her get formula for a starving baby. Most have said no.`\
+https://nytimes.com/2025/11/16/briefing/nikalie-monroe-tik-tok-viral-church-test.html
+
 **Rory McIlroy clinches seventh overall title despite Dubai defeat**\
 `McIlroy moved past Ballesteros' tally of six and is now just one behind Colin Montgomerie's record of eight Order of Merit titles.`\
 https://nytimes.com/athletic/6811678/2025/11/16/rory-milroy-title-dubai-matt-fitzpatrick/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/16/arts/television/snl-trump-epstein-glen-powell-oli
 **College Football Playoff 2025 projections: Oklahoma beating Alabama shakes up SEC picture**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/11/16/college-football-playoff-bracket-projections-odds/
-
-**Brazil gets first major Alpine skiing win as Lucas Pinheiro Braathen tops World Cup slalom**\
-`A year after ending his retirement and switching countries, Lucas Pinheiro Braathen delivered Brazil its first World Cup victory.`\
-https://nytimes.com/athletic/6811604/2025/11/16/lucas-pinheiro-braathen-brazil-world-cup-alpine-skiing/
-
-**How to watch Clippers vs. Celtics: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Clippers play the Boston Celtics, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6811674/2025/11/16/clippers-vs-celtics-stream-how-to-watch-nov-16/
 
