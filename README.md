@@ -1,3 +1,7 @@
+**Pentagon to Withdraw Some National Guard Troops From Chicago and Portland**\
+`The move comes amid court battles and objections by state and local leaders to President Trump’s deployment orders.`\
+https://nytimes.com/2025/11/16/us/politics/national-guard-withdrawal-chicago-portland.html
+
 **Arsenal's Gabriel has suffered muscle injury, released from Brazil squad**\
 `The centre-back appeared to be in pain and walked gingerly off the pitch in Brazil's international friendly against Senegal.`\
 https://nytimes.com/athletic/6810251/2025/11/16/arsenal-gabriel-injury-brazil-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6811452/2025/11/16/texas-tech-byu-big-12-playoff/
 **James Watson Saw the True Form of DNA. Then It Blinded Him.**\
 `James Watson’s legacy is a cautionary tale against letting a profound discovery shape your entire worldview.`\
 https://nytimes.com/2025/11/16/opinion/james-watson-dna.html
-
-**Real Solutions for Women in the Workplace**\
-`Readers respond to a guest essay by Corinne Low about work boundaries.`\
-https://nytimes.com/2025/11/16/opinion/women-workplace.html
 
