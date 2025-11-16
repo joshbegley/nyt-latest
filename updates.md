@@ -1,3 +1,7 @@
+**Bruins' Charlie McAvoy injured after taking slap shot to face: 'Praying for him'**\
+`The Boston defenseman fell to the ice with blood pouring from his face in the second period after taking a Noah Dobson slap shot up high.`\
+https://nytimes.com/athletic/6810969/2025/11/15/bruins-charlie-mcavoy-injury-canadiens-face/
+
 **USC survived a dogfight vs. Iowa — now the biggest test of Lincoln Riley's tenure awaits**\
 `The Trojans head to Oregon next week — where they have not won since 2011 — for a game with significant CFP ramifications. `\
 https://nytimes.com/athletic/6811044/2025/11/15/usc-trojans-lincoln-riley-college-football-playoff/
