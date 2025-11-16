@@ -1,40 +1,40 @@
-**Church and College Leaders Work to Free a Detained Afghan Student**\
-`When Ali Faqirzada was detained after a routine asylum hearing in New York, officials from Bard College and the Episcopal Diocese tapped their networks to help.`\
-https://nytimes.com/2025/11/16/nyregion/afghan-asylum-immigration-bard-trump.html
+**How to watch Ohio State vs. UConn women's basketball: Time, TV, streaming**\
+`Find out how to watch the Ohio State Buckeyes play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6811549/2025/11/16/ohio-state-vs-uconn-stream-how-to-watch-nov-16/
 
-**The N.Y.P.D. Prepares for Mayor Mamdani and a New Era in Public Safety**\
-`Zohran Mamdani takes office on Jan. 1 with ambitious plans to rethink policing and some officers angry about his past criticisms. Winning them over could be a key to a successful term.`\
-https://nytimes.com/2025/11/16/nyregion/nypd-mamdani-expectations.html
+**How to watch Princeton vs. Maryland women's basketball: Time, TV, streaming**\
+`Find out how to watch the Princeton Tigers play the Maryland Terrapins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6811548/2025/11/16/princeton-vs-maryland-stream-how-to-watch-nov-16/
 
-**How Trump Is Diverting Resources Toward Immigration Enforcement**\
-`President Trump’s immigration crackdown is diverting resources from other law enforcement operations. Nicholas Nehamas, a Washington correspondent, describes how federal agents investigating sexual crimes against children have been partly redeployed to focus on immigration.`\
-https://nytimes.com/video/us/politics/100000010509083/how-trump-is-diverting-resources-toward-immigration-enforcement.html
+**How to watch TCU vs. NC State women's basketball: Time, TV, streaming**\
+`Find out how to watch the TCU Horned Frogs play the NC State Lady Wolfpack, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6811545/2025/11/16/tcu-vs-nc-state-stream-how-to-watch-nov-16/
 
-**Women Describe Horrors They Endured in Assad’s Prisons**\
-`Under the Syrian dictator’s rule, the wives and children of rebels were seized as leverage. Some are now speaking about their trauma.`\
-https://nytimes.com/2025/11/16/world/europe/syria-women-assad-prisons.html
+**What to Know About Chile’s Election on Sunday**\
+`Polls show right-wing candidates drawing the most support, but a recent compulsory voting law could bring a surge of new voters, adding uncertainty.`\
+https://nytimes.com/2025/11/16/world/americas/chile-presidential-election-on-sunday.html
 
-**‘We Walked in Silence for Two Blocks Until He Stopped’**\
-`A trip back in time at a Queens barbershop, shelter in a storm and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2025/11/16/nyregion/metropolitan-diary.html
+**Epstein Emails Reveal a Lost New York**\
+`The disgraced financier’s recently released documents are steeped in a clubby world that is all but gone.`\
+https://nytimes.com/2025/11/16/style/epstein-emails-reveal-a-lost-new-york.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/11/16/crosswords/spelling-bee-forum.html
+**The Unlikely Mother of a Movement, on a Hunger Strike to Avenge Her Son**\
+`Since her son was killed with 15 others in a railway station collapse in Serbia, Dijana Hrka has become the face of widespread anti-government protests. How far will she go?`\
+https://nytimes.com/2025/11/16/world/europe/sebia-mother-hunger-strike.html
 
-**Islam Makhachev has second UFC belt in dominant win over Jack Della Maddalena**\
-`Makhachev proved his grappling gameplan has no answers regardless of weight class, winning each round to win with ease.`\
-https://nytimes.com/athletic/6811386/2025/11/16/ufc-322-islam-makhachev-welterweight-champion/
+**A Family Borrowed $218,000 and Paid Back $240,000. Why Are They Facing Foreclosure?**\
+`Predatory lenders often take part in schemes that enable them to circumvent state lending laws and charge borrowers sky-high interest rates.`\
+https://nytimes.com/2025/11/16/your-money/rent-a-bank-loan-scheme.html
 
-**Adam Sandler Is the Light We Need. Yes, Adam Sandler.**\
-`When I took my dad to see Adam Sandler live, I expected to laugh. We both got so much more.`\
-https://nytimes.com/2025/11/16/opinion/adam-sandler-comedy-fun-light.html
+**The Man Yelling ‘Iceberg!’ on the Hollywood Titanic**\
+`Matthew Belloni has grabbed the movie industry’s attention by saying they’re about to sink.`\
+https://nytimes.com/2025/11/16/business/matthew-belloni-puck-hollywood.html
 
-**The New York Times in Print for Sunday, Nov. 16, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/11/16/todays-new-york-times
+**Jeremiyah Love's best NFL team fits, Mansoor Delane's excellence, more Week 12 reactions**\
+`Love is a clear top-10 prospect in the 2026 draft class, but which NFL team will roll the dice on a running back early in Round 1?`\
+https://nytimes.com/athletic/6811097/2025/11/16/nfl-draft-2026-scouting-love-delane-quarterbacks/
 
-**The Screen That Ate Your Child’s Education**\
-`Asking students to drill down on their schoolwork amid an array of digital distractions is inimical to learning.`\
-https://nytimes.com/2025/11/16/opinion/laptop-classroom-test-scores.html
+**Talking Dogs and the Spirit of Sontag Show Up in This Story Collection**\
+`At its best, Joy Williams’s “The Pelican Child” is delightfully unhinged; at its worst, willfully weird and repetitive.`\
+https://nytimes.com/2025/11/16/books/review/joy-williams-the-pelican-child.html
 
