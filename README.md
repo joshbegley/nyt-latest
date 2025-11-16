@@ -1,3 +1,7 @@
+**Knicks' OG Anunoby out at least 2 weeks with hamstring strain**\
+`The injured forward won’t travel with the Knicks on their upcoming road trip.`\
+https://nytimes.com/athletic/6808918/2025/11/16/og-anunoby-injury-knicks-status/
+
 **How to watch Magic vs. Rockets: Time, TV, streaming**\
 `Find out how to watch the Orlando Magic play the Houston Rockets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6811953/2025/11/16/magic-vs-rockets-stream-how-to-watch-nov-16/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/16/weather/uk-cold-forecast-snow.html
 **Deandre Ayton and the Lakers need each other. Is he feeling the love?**\
 `“They said this my last chance,” Ayton said of the NBA. So far, it’s been largely agenda-less basketball for the Lakers and their center.`\
 https://nytimes.com/athletic/6811129/2025/11/16/deandre-ayton-lakers-luka-doncic-lebron-james-nba/
-
-**Portugal qualify for World Cup, teeing up Ronaldo for record sixth tournament**\
-`Ronaldo, who would be 41 at next summer's tournament, has the chance to set a record in the men's game.`\
-https://nytimes.com/athletic/6716053/2025/11/16/portugal-world-cup-cristiano-ronaldo/
 
