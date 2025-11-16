@@ -6,15 +6,15 @@ https://nytimes.com/athletic/6805373/2025/11/16/chargers-jaguars-score-result-ta
 `You asked Somini Sengupta, our international climate reporter, about the science and the politics. She responded from COP30 in Brazil.`\
 https://nytimes.com/2025/11/16/world/climate-cop-brazil-jeffrey-epstein-trump-greene.html
 
-**Steelers' Jalen Ramsey ejected for throwing punch at Ja'Marr Chase**\
-`Ramsey, 31, was first called for unsportsmanlike conduct early in the fourth quarter after a verbal exchange on a third-down run.`\
+**Jalen Ramsey ejected for throwing punch at Ja'Marr Chase, claims Chase spit on him**\
+`Ramsey helped limit Chase to three catches for 30 yards on Sunday.`\
 https://nytimes.com/athletic/6812461/2025/11/16/jalen-ramsey-ejection-steelers-bengals-nfl/
 
 **Tuchel: Bellingham didn't like substitution, but England are a collective**\
 `Bellingham was replaced by Morgan Rogers in the aftermath of Harry Kane's headed goal which doubled England's lead in the 82nd minute.`\
 https://nytimes.com/athletic/6812411/2025/11/16/bellingham-england-substitution-tuchel/
 
-**Falcons QB Michael Penix questionable to return vs. Panthers with knee injury**\
+**Falcons QB Michael Penix Jr. leaves with knee injury, Kirk Cousins enters vs. Panthers**\
 `Kirk Cousins replaced Penix after he exited in the third quarter.`\
 https://nytimes.com/athletic/6812430/2025/11/16/falcons-michael-penix-knee-injury-update/
 
