@@ -1,3 +1,11 @@
+**Oklahoma hands Alabama first SEC loss, adds to CFP resume with win in Tuscaloosa**\
+`The Sooners were the "first team out" when the CFP committee revealed its latest rankings Tuesday.`\
+https://nytimes.com/athletic/6810781/2025/11/15/oklahoma-alabama-score-result/
+
+**USMNT 2, Paraguay 1: Reyna scores in start; Pochettino's side unbeaten in 4**\
+`Gio Reyna made an impressive return, while the U.S. beat another World Cup-bound opponent as preparations continue for 2026`\
+https://nytimes.com/athletic/6810427/2025/11/15/usmnt-paraguay-friendly-reyna-score-video/
+
 **Protesters Rage Against Mexico’s Government Over Corruption and Violence**\
 `Members of Mexico’s Gen Z, as well as older protesters, demonstrated on Saturday in the wake of a high-profile assassination and rising anger over persistent violence.`\
 https://nytimes.com/2025/11/15/world/americas/mexico-protest-violence.html
