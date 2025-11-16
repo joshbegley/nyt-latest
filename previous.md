@@ -1,3 +1,7 @@
+**Kings sign Adrian Kempe to 8-year, $85 million contract extension: Sources**\
+`In his nine seasons with the Kings, Kempe has evolved from a late first-round pick in 2014 into their best player.`\
+https://nytimes.com/athletic/6680130/2025/11/16/adrian-kempe-kings-contract/
+
 **'I spoke with Man United and Chelsea on the same day' - Spurs boss Frank**\
 `The 52-year-old Danish coach, who was still managing Brentford at the time, met both clubs in London on the same day in May 2024.`\
 https://nytimes.com/athletic/6812743/2025/11/16/thomas-frank-manchester-united-chelsea-interview/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6812600/2025/11/16/uconn-undefeated-ohio-state-vict
 **Norway qualify for first World Cup since 1998 as Haaland goals secure win in Italy**\
 `Norway would have had to have lost to Italy by nine goals to be pipped to automatic qualification, but won 4-1 in Milan on Sunday night.`\
 https://nytimes.com/athletic/6803892/2025/11/16/norway-haaland-world-cup-qualify/
-
-**Ravens' Mark Andrews becomes franchise's all-time receiving yards leader**\
-`Andrews passed wide receiver Derrick Mason to set the franchise record with 5,785 career receiving yards.`\
-https://nytimes.com/athletic/6812626/2025/11/16/ravens-mark-andrews-receiving-nfl/
 

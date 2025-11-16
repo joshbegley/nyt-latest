@@ -1,3 +1,7 @@
+**Kings sign Adrian Kempe to 8-year, $85 million contract extension: Sources**\
+`In his nine seasons with the Kings, Kempe has evolved from a late first-round pick in 2014 into their best player.`\
+https://nytimes.com/athletic/6680130/2025/11/16/adrian-kempe-kings-contract/
+
 **'I spoke with Man United and Chelsea on the same day' - Spurs boss Frank**\
 `The 52-year-old Danish coach, who was still managing Brentford at the time, met both clubs in London on the same day in May 2024.`\
 https://nytimes.com/athletic/6812743/2025/11/16/thomas-frank-manchester-united-chelsea-interview/
