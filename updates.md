@@ -1,3 +1,15 @@
+**With Everything on the Line**\
+`Rena Cohen has your number.`\
+https://nytimes.com/2025/11/16/crosswords/daily-puzzle-2025-11-17.html
+
+**Can Josh Allen do it all for the Bills? Are the Bears for real? Our experts' Week 11 takeaways**\
+`Also: Who is ahead in the race for the AFC wild-card slots? And is J.J. McCarthy's inaccuracy cause for concern?`\
+https://nytimes.com/athletic/6812135/2025/11/16/nfl-takeaways-week-11-scores-results/
+
+**Quarterback Tommy Carr — CJ's brother and Lloyd's grandson — commits to Michigan**\
+`Carr, a three-star prospect, had previously been committed to Miami (Ohio). `\
+https://nytimes.com/athletic/6812793/2025/11/16/michigan-recruiting-tommy-carr-cj-loyd-quarterback/
+
 **Kings sign Adrian Kempe to 8-year, $85 million contract extension: Sources**\
 `In his nine seasons with the Kings, Kempe has evolved from a late first-round pick in 2014 into their best player.`\
 https://nytimes.com/athletic/6680130/2025/11/16/adrian-kempe-kings-contract/
