@@ -1,3 +1,7 @@
+**'Maybe that’s why they take us to the U.S.' - Jimenez hits out at Mexico fans**\
+`Mexico goalkeeper Tala Rangel was booed during the side's 0-0 draw with Uruaguay in Torreon.`\
+https://nytimes.com/athletic/6811569/2025/11/16/raul-jimenez-mexico-fans-boos-united-states/
+
 **'Courageous' Sam Carrick answers bell again for Rangers, plus 8 more observations**\
 `The 33-year-old center sparked New York to a 2-1 shootout win over Columbus with another spirited brawl.`\
 https://nytimes.com/athletic/6811038/2025/11/16/sam-carrick-rangers-more-observationsgeous-sam-carrick-answers-the-bell-again-for-the-new-york-rangers-plus-8-more-observations/
