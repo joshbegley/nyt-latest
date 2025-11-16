@@ -1,3 +1,7 @@
+**Playoff bids abound for the SEC, but angst, too: SEC vibes after Week 12**\
+`The SEC now looks poised to take five of the 12 Playoff spots. But what about six?`\
+https://nytimes.com/athletic/6811930/2025/11/16/sec-football-rankings-week-12-georgia-oklahoma-texas/
+
 **Knicks' OG Anunoby out at least 2 weeks with hamstring strain**\
 `The injured forward won’t travel with the Knicks on their upcoming road trip.`\
 https://nytimes.com/athletic/6808918/2025/11/16/og-anunoby-injury-knicks-status/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6811929/2025/11/16/texas-southern-vs-texas-stream-h
 **Arctic Blast Brings Risk of Snow and Ice to Britain**\
 `The cold weather, which comes on the heels of a storm that caused flooding in Wales, is expected to jolt Britain out of its recent run of mild temperatures.`\
 https://nytimes.com/2025/11/16/weather/uk-cold-forecast-snow.html
-
-**Deandre Ayton and the Lakers need each other. Is he feeling the love?**\
-`“They said this my last chance,” Ayton said of the NBA. So far, it’s been largely agenda-less basketball for the Lakers and their center.`\
-https://nytimes.com/athletic/6811129/2025/11/16/deandre-ayton-lakers-luka-doncic-lebron-james-nba/
 
