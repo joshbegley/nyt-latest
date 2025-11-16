@@ -1,3 +1,7 @@
+**Bills-Buccaneers takeaways: Josh Allen's 6 touchdowns too much for Tampa Bay**\
+`Josh Allen tied Cam Newton's all-time record for most regular-season rushing touchdowns by a quarterback in Sunday's win over Tampa Bay.`\
+https://nytimes.com/athletic/6812381/2025/11/16/buccaneers-bills-score-result-takeaways-nfl/
+
 **Bengals-Steelers: Pittsburgh has strong second half to win but Rodgers hurt**\
 `The Steelers and Bengals got off to hot starts, each scoring a first-quarter touchdown but slowed in the second before Pittsburgh got ahead.`\
 https://nytimes.com/athletic/6811858/2025/11/16/bengals-steelers-score-result-takeaways-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6812142/2025/11/16/dolphins-beat-commanders-madrid-
 **Packers-Giants takeaways: Green Bay fights through wind, injuries in road win**\
 `Packers survive windy day to spoil Giants interim head coach Mike Kafka's debut with a 27-20 win.`\
 https://nytimes.com/athletic/6811965/2025/11/16/packers-giants-score-result-takeaways-nfl/
-
-**Jaguars go hard at Herbert, dominate run game in blowout win over Chargers**\
-`Jacksonville scored four of its five touchdowns on the ground against Los Angeles, which looked lethargic on the field.`\
-https://nytimes.com/athletic/6805373/2025/11/16/chargers-jaguars-score-result-takeaways-nfl/
 
