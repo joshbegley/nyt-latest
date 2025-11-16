@@ -1,3 +1,11 @@
+**Arsenal's Gabriel has suffered muscle injury, released from Brazil squad**\
+`The centre-back appeared to be in pain and walked gingerly off the pitch in Brazil's international friendly against Senegal.`\
+https://nytimes.com/athletic/6810251/2025/11/16/arsenal-gabriel-injury-brazil-update/
+
+**Trump Administration Live Updates: Marjorie Taylor Greene Expresses Support for President Despite His Criticisms**\
+``\
+https://nytimes.com/live/2025/11/16/us/trump-news
+
 **Predicting the CFP bracket: Alabama-Ole Miss first round? A Southwest Conference flashback**\
 `With Oklahoma beating Alabama, the Sooners jump into the College Football Playoff, and the Alabama hang on to the final at-large spot.`\
 https://nytimes.com/athletic/6811399/2025/11/16/college-football-playoff-bracket-prediction-alabama/

@@ -1,3 +1,7 @@
+**Arsenal's Gabriel has suffered muscle injury, released from Brazil squad**\
+`The centre-back appeared to be in pain and walked gingerly off the pitch in Brazil's international friendly against Senegal.`\
+https://nytimes.com/athletic/6810251/2025/11/16/arsenal-gabriel-injury-brazil-update/
+
 **Predicting the CFP bracket: Alabama-Ole Miss first round? A Southwest Conference flashback**\
 `With Oklahoma beating Alabama, the Sooners jump into the College Football Playoff, and the Alabama hang on to the final at-large spot.`\
 https://nytimes.com/athletic/6811399/2025/11/16/college-football-playoff-bracket-prediction-alabama/
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/6811678/2025/11/16/rory-milroy-title-dubai-matt-fit
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6811703/2025/11/16/oklahoma-alabama-georgia-texas-playoff-until-saturday/
 
-**Trump Administration Live Updates: Charlotte, N.C., Becomes the Latest City to Face an Immigration Crackdown**\
+**Trump Administration Live Updates: Marjorie Taylor Greene Expresses Support for President Despite His Criticisms**\
 ``\
 https://nytimes.com/live/2025/11/16/us/trump-news
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/16/opinion/james-watson-dna.html
 **Real Solutions for Women in the Workplace**\
 `Readers respond to a guest essay by Corinne Low about work boundaries.`\
 https://nytimes.com/2025/11/16/opinion/women-workplace.html
-
-**On ‘S.N.L.,’ the White House Says Trump’s Only Crime Was ‘Loving Too Much’**\
-`The Epstein files played a prominent role in this episode hosted by Glen Powell, while Will Forte returned to play his fan-favorite character MacGruber.`\
-https://nytimes.com/2025/11/16/arts/television/snl-trump-epstein-glen-powell-olivia-dean.html
 
