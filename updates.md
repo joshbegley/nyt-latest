@@ -1,3 +1,7 @@
+**Britain’s Labour Government Plans New, Tougher System for Asylum Seekers**\
+`Under the new rules, people granted asylum would have to wait 20 years, rather than the current five, before applying for permanent residency.`\
+https://nytimes.com/2025/11/16/world/europe/britain-asylum-system.html
+
 **How to watch Bulls vs. Jazz: Time, TV, streaming**\
 `Find out how to watch the Chicago Bulls play the Utah Jazz, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6812305/2025/11/16/bulls-vs-jazz-stream-how-to-watch-nov-16-2/

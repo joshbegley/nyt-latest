@@ -1,3 +1,7 @@
+**Boy, 10, and Woman, 21, Are Killed in Newark Shooting**\
+`Three other people, including an 11-year-old boy, were wounded in the shooting on Saturday night, city officials said. It was unclear whether the police had made any arrests.`\
+https://nytimes.com/2025/11/16/nyregion/newark-shooting.html
+
 **Britain’s Labour Government Plans New, Tougher System for Asylum Seekers**\
 `Under the new rules, people granted asylum would have to wait 20 years, rather than the current five, before applying for permanent residency.`\
 https://nytimes.com/2025/11/16/world/europe/britain-asylum-system.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6812184/2025/11/16/ap-top-25-rankings-alabama-north
 **Man Utd and USWNT goalkeeper Tullis-Joyce fractures eye socket**\
 `United head coach Marc Skinner said the U.S. goalkeeper sustained the injury against Aston Villa on November 11, but had not been concussed.`\
 https://nytimes.com/athletic/6810288/2025/11/16/tullis-joyce-injury-manchester-united-uswnt/
-
-**How to watch Florida vs. Miami (FL) men's basketball: Time, TV, streaming**\
-`Find out how to watch the Florida Gators play the Miami Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6812264/2025/11/16/florida-vs-miami-fl-stream-how-to-watch-nov-16/
 
