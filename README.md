@@ -1,3 +1,11 @@
+**Rory McIlroy clinches seventh overall title despite Dubai defeat**\
+`McIlroy moved past Ballesteros' tally of six and is now just one behind Colin Montgomerie's record of eight Order of Merit titles.`\
+https://nytimes.com/athletic/6811678/2025/11/16/rory-milroy-title-dubai-matt-fitzpatrick/
+
+**Until Saturday: SEC getting 5 (or even 6) Playoff bids?**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6811703/2025/11/16/oklahoma-alabama-georgia-texas-playoff-until-saturday/
+
 **Trump Administration Live Updates: Charlotte, N.C., Becomes the Latest City to Face an Immigration Crackdown**\
 ``\
 https://nytimes.com/live/2025/11/16/us/trump-news
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6811604/2025/11/16/lucas-pinheiro-braathen-brazil-w
 **How to watch Clippers vs. Celtics: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Boston Celtics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6811674/2025/11/16/clippers-vs-celtics-stream-how-to-watch-nov-16/
-
-**How to watch Kings vs. Spurs: Time, TV, streaming**\
-`Find out how to watch the Sacramento Kings play the San Antonio Spurs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6811672/2025/11/16/kings-vs-spurs-stream-how-to-watch-nov-16/
-
-**How to watch Oklahoma vs. Western Carolina women's basketball: Time, TV, streaming**\
-`Find out how to watch the Oklahoma Sooners play the Western Carolina Catamounts, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6811664/2025/11/16/oklahoma-vs-western-carolina-stream-how-to-watch-nov-16/
 
