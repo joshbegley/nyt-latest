@@ -1,3 +1,15 @@
+**Adam Sandler Is the Light We Need. Yes, Adam Sandler.**\
+`When I took my dad to see Adam Sandler live, I expected to laugh. We both got so much more.`\
+https://nytimes.com/2025/11/16/opinion/adam-sandler-comedy-fun-light.html
+
+**The New York Times in Print for Sunday, Nov. 16, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/16/todays-new-york-times
+
+**The Laptop That Ate Your Child’s Classroom**\
+`Asking students to drill down on their schoolwork amid an array of digital distractions is inimical to learning.`\
+https://nytimes.com/2025/11/16/opinion/laptop-classroom-test-scores.html
+
 **Sanju Samson and Ravindra Jadeja: Analysing the biggest trade in Indian Premier League history**\
 `The swap deal struck by Rajasthan Royals and Chennai Super Kings has been the standout trade of the off-season ahead of the 2026 IPL`\
 https://nytimes.com/athletic/6809514/2025/11/16/ipl-samson-jadeja-rajasthan-chennai-trade/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/16/world/asia/heat-stress-women-india.html
 **Quote of the Day: In Fishing Village of a Colombian Believed Killed in a U.S. Boat Strike**\
 `Quotation of the Day for Sunday, November 15, 2025.`\
 https://nytimes.com/2025/11/16/pageoneplus/quote-of-the-day-in-fishing-village-of-a-colombian-believed-killed-in-a-us-boat-strike.html
-
-**How Many People Die in India From Hot Weather? Nobody Really Knows.**\
-`Officials have yet to grasp the magnitude of heat-related deaths, let alone effectively deal with the problem, public health experts and scientists say.`\
-https://nytimes.com/2025/11/16/world/asia/india-heat-wave-deaths.html
-
-**Leslie Odom Jr., Back in the Room Where It Happens**\
-`In “Hamilton,” no moment captures the actor’s emotional expansiveness, artistic breadth and vocal depth better than this number.`\
-https://nytimes.com/2025/11/16/theater/leslie-odom-jr-hamilton-broadway.html
-
-**What to know about the NFL's first Spain game: Commanders and Dolphins meet in Madrid**\
-`The NFL makes its regular-season debut in Spain this weekend, wrapping up the 2025 international slate.`\
-https://nytimes.com/athletic/6806543/2025/11/16/commanders-dolphins-nfl-spain-game-madrid/
 
