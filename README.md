@@ -1,3 +1,7 @@
+**Sanju Samson and Ravindra Jadeja: Analysing the biggest trade in Indian Premier League history**\
+`The swap deal struck by Rajasthan Royals and Chennai Super Kings has been the standout trade of the off-season ahead of the 2026 IPL`\
+https://nytimes.com/athletic/6809514/2025/11/16/ipl-samson-jadeja-rajasthan-chennai-trade/
+
 **Mathieu Olivier's wake-up call earns Blue Jackets a point in shootout loss to Rangers**\
 `The Blue Jackets, with the loser's point, are on a four-game point streak during their busiest stretch of the season.`\
 https://nytimes.com/athletic/6810974/2025/11/16/blue-jackets-rangers-shootout-mathieu-olivier/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/16/theater/leslie-odom-jr-hamilton-broadway.html
 **What to know about the NFL's first Spain game: Commanders and Dolphins meet in Madrid**\
 `The NFL makes its regular-season debut in Spain this weekend, wrapping up the 2025 international slate.`\
 https://nytimes.com/athletic/6806543/2025/11/16/commanders-dolphins-nfl-spain-game-madrid/
-
-**Connections: Sports Edition Coach: Hints for Nov. 16, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6810060/2025/11/16/connections-sports-edition-hints-for-nov-16-2025/
 
