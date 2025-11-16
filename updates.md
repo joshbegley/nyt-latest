@@ -1,3 +1,7 @@
+**Bronny James inserted into Lakers' starting lineup for injury-riddled roster**\
+`Lakers guard Bronny James will make his first start of the season against the Milwaukee Bucks as Los Angeles deals with several injuries.`\
+https://nytimes.com/athletic/6810896/2025/11/15/bronny-james-starter-lakers-nba/
+
 **North Carolina falls to Wake Forest, needs wins in final 2 to make bowl game**\
 `UNC (4-6) must defeat Duke and NC State in its final two games to achieve bowl eligibility.`\
 https://nytimes.com/athletic/6810910/2025/11/15/unc-wake-forest-score-result/
