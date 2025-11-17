@@ -1,3 +1,7 @@
+**Homayoun Ershadi, 78, Dies; ‘Kite Runner’ and ‘Taste of Cherry’ Star**\
+`He was an architect with no training as an actor whose life was changed by a chance encounter. He inspired rave reviews and a New Yorker short story.`\
+https://nytimes.com/2025/11/16/obituaries/homayoun-ershadi-dead.html
+
 **Nigeria coach Chelle alleges DR Congo players practiced 'voodoo' during penalty shootout**\
 `A representative of DR Congo denied Chelle's claims when asked by The Athletic.`\
 https://nytimes.com/athletic/6812903/2025/11/16/nigeria-dr-congo-voodoo-penalty-shootout/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6812135/2025/11/16/nfl-takeaways-week-11-scores-res
 **Quarterback Tommy Carr — CJ's brother and Lloyd's grandson — commits to Michigan**\
 `Carr, a three-star prospect, had previously been committed to Miami (Ohio). `\
 https://nytimes.com/athletic/6812793/2025/11/16/michigan-recruiting-tommy-carr-cj-loyd-quarterback/
-
-**Kings sign Adrian Kempe to 8-year, $85 million contract extension: Sources**\
-`In his nine seasons with the Kings, Kempe has evolved from a late first-round pick in 2014 into their best player.`\
-https://nytimes.com/athletic/6680130/2025/11/16/adrian-kempe-kings-contract/
 

@@ -1,3 +1,7 @@
+**Homayoun Ershadi, 78, Dies; ‘Kite Runner’ and ‘Taste of Cherry’ Star**\
+`He was an architect with no training as an actor whose life was changed by a chance encounter. He inspired rave reviews and a New Yorker short story.`\
+https://nytimes.com/2025/11/16/obituaries/homayoun-ershadi-dead.html
+
 **Nigeria coach Chelle alleges DR Congo players practiced 'voodoo' during penalty shootout**\
 `A representative of DR Congo denied Chelle's claims when asked by The Athletic.`\
 https://nytimes.com/athletic/6812903/2025/11/16/nigeria-dr-congo-voodoo-penalty-shootout/

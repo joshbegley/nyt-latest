@@ -1,3 +1,7 @@
+**Josh Allen’s Six Touchdowns Lift Bills Past Buccaneers**\
+`The Buffalo Bills pulled out a 44-32 win over the Tampa Bay Buccaneers in a seesaw battle on Sunday.`\
+https://nytimes.com/video/the-athletic/100000010527512/josh-allens-six-touchdowns-lift-bills-past-buccaneers.html
+
 **Homayoun Ershadi, 78, Dies; ‘Kite Runner’ and ‘Taste of Cherry’ Star**\
 `He was an architect with no training as an actor whose life was changed by a chance encounter. He inspired rave reviews and a New Yorker short story.`\
 https://nytimes.com/2025/11/16/obituaries/homayoun-ershadi-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/16/crosswords/daily-puzzle-2025-11-17.html
 **Can Josh Allen do it all for the Bills? Are the Bears for real? Our experts' Week 11 takeaways**\
 `Also: Who is ahead in the race for the AFC wild-card slots? And is J.J. McCarthy's inaccuracy cause for concern?`\
 https://nytimes.com/athletic/6812135/2025/11/16/nfl-takeaways-week-11-scores-results/
-
-**Quarterback Tommy Carr — CJ's brother and Lloyd's grandson — commits to Michigan**\
-`Carr, a three-star prospect, had previously been committed to Miami (Ohio). `\
-https://nytimes.com/athletic/6812793/2025/11/16/michigan-recruiting-tommy-carr-cj-loyd-quarterback/
 
