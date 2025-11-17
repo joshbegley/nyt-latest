@@ -1,3 +1,7 @@
+**Fantasy football Week 11 takeaways: Statement games from Sean Tucker and Bryce Young**\
+`Michael Salfino shares his observations for Week 11, including his thoughts on the TD hat trick for Tampa Bay's Sean Tucker.`\
+https://nytimes.com/athletic/6813573/2025/11/17/fantasy-football-week-11-takeaways-statement-games-from-sean-tucker-and-bryce-young/
+
 **Connections: Sports Edition Coach: Hints for Nov. 17, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6813670/2025/11/17/connections-sports-edition-hints-for-nov-17-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6806909/2025/11/17/thierno-barry-everton-interview-
 **England roundtable: Thomas Tuchel's five dilemmas for the World Cup**\
 `After sailing through qualifying, our writers discuss the key decisions facing the England head coach`\
 https://nytimes.com/athletic/6811550/2025/11/17/england-roundtable-thomas-tuchels-five-dilemmas-ahead-of-the-world-cup/
-
-**What The Athletic readers told us about how they use illegal sports streams**\
-`More than 5,000 people responded to our survey, with almost half saying they use illegal streams to watch football`\
-https://nytimes.com/athletic/6742758/2025/11/17/illegal-streaming-survey-results/
 
