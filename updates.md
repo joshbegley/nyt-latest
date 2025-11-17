@@ -1,3 +1,11 @@
+**Bernie Kosar undergoes liver transplant surgery**\
+`Kosar announced he had been diagnosed with liver failure in a 2024 interview with Cleveland Magazine.`\
+https://nytimes.com/athletic/6814372/2025/11/17/bernie-kosar-undergoes-liver-transplant-surgery/
+
+**Chris Eubanks suggests retirement from professional tennis imminent after 'incredible ride'**\
+`Eubanks' run to the Wimbledon quarterfinals in 2023 was one of them most memorable stories of that year.`\
+https://nytimes.com/athletic/6814539/2025/11/17/tennis-chris-eubanks-retirement/
+
 **There’s a New Effort on the Runway to Raise Climate Funds**\
 `A small group of countries is aiming to impose a fee on private jets and premium commercial fares. The revenue would help nations adapt to warming.`\
 https://nytimes.com/2025/11/17/climate/private-jet-tax-climate.html

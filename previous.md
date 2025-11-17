@@ -1,3 +1,11 @@
+**Bernie Kosar undergoes liver transplant surgery**\
+`Kosar announced he had been diagnosed with liver failure in a 2024 interview with Cleveland Magazine.`\
+https://nytimes.com/athletic/6814372/2025/11/17/bernie-kosar-undergoes-liver-transplant-surgery/
+
+**Chris Eubanks suggests retirement from professional tennis imminent after 'incredible ride'**\
+`Eubanks' run to the Wimbledon quarterfinals in 2023 was one of them most memorable stories of that year.`\
+https://nytimes.com/athletic/6814539/2025/11/17/tennis-chris-eubanks-retirement/
+
 **There’s a New Effort on the Runway to Raise Climate Funds**\
 `A small group of countries is aiming to impose a fee on private jets and premium commercial fares. The revenue would help nations adapt to warming.`\
 https://nytimes.com/2025/11/17/climate/private-jet-tax-climate.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/17/us/marshawn-kneeland-dallas-cowboys.html
 **Video Reveals How Far Wolves Will Go to Steal a Meal**\
 `After a wolf dragged a crab trap out of water to get a snack, some scientists said the behavior revealed their ability to use tools.`\
 https://nytimes.com/2025/11/17/science/wolf-tool-use-steal-food.html
-
-**NBA Power Rankings: Cade Cunningham, Pistons motor into an elite tier**\
-`The Pistons have won nine consecutive games and the Warriors, Hawks, Raptors and Suns all make big leaps this week.`\
-https://nytimes.com/athletic/6814323/2025/11/17/nba-power-rankings-pistons-thunder-lakers/
-
-**Do You Know These Award-Winning Books?**\
-`Try this short quiz to match the descriptions of past National Book Award winners with their titles and authors.`\
-https://nytimes.com/interactive/2025/11/17/books/book-awards-quiz.html
 
