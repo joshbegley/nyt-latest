@@ -1,3 +1,7 @@
+**Jeff Bezos Creates A.I. Start-Up Where He Will Be Co-Chief Executive**\
+`Called Project Prometheus, the company is focusing on artificial intelligence for the engineering and manufacturing of computers, automobiles and spacecraft.`\
+https://nytimes.com/2025/11/17/technology/bezos-project-prometheus.html
+
 **The Mayor of Secaucus Has a Fix for America: ‘Say Yes to Everyone’**\
 `As South Asian and Muslim immigrants transform a small New Jersey town, the five-term mayor has managed to keep the peace. What happens when he’s gone?`\
 https://nytimes.com/2025/11/17/nyregion/secaucus-nj-mayor-gonnelli.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6813482/2025/11/17/cooper-flagg-mavericks-overtime-
 **Pickford, Stones, Rice, Kane: Can one of football's strongest spines make it to the World Cup injury-free?**\
 `England have perhaps the best Plan A in the world, but losing any of their four key men would diminish the side's capabilities significantly`\
 https://nytimes.com/athletic/6805816/2025/11/17/england-spine-pickford-stones-rice-kane-world-cup/
-
-**How one of the most dramatic and jaw-dropping weeks in Irish football history unfolded**\
-`Five goals from Troy Parrott stole the show – but it was a group effort from Heimir Hallgrimsson's side that has kept World Cup hopes alive`\
-https://nytimes.com/athletic/6813260/2025/11/17/ireland-world-cup-troy-parrott-portugal-hungary/
 
