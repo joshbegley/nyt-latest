@@ -1,3 +1,7 @@
+**Bills' offense explodes with Gabe Davis, Josh Allen together again; why it should stay that way**\
+`Gabe Davis had a big impact on the offense in his first game this season. `\
+https://nytimes.com/athletic/6813144/2025/11/16/bills-allen-davis-offense-future/
+
 **John Shuster, U.S. Olympic curling pillar, loses out in bid for sixth straight Games**\
 `Shuster, who has competed at every Olympics since 2006 and won the only U.S. medals in the sport, and his team lost Sunday at U.S. trials.`\
 https://nytimes.com/athletic/6810019/2025/11/16/john-shuster-us-curling-olympics-trials-danny-casper/
