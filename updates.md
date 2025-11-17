@@ -1,3 +1,15 @@
+**Who are the Chicago Bears? They're winners and they're not apologizing**\
+`We've heard enough apologies from this organization over the years. After their seventh win, it's clear these are not the same old Bears.`\
+https://nytimes.com/athletic/6812983/2025/11/16/bears-vikings-comeback-victory-caleb-williams/
+
+**Moses Moody channels his inner Steph Curry in opening period vs. Pelicans**\
+`Moses Moody's blazing start against the Pelicans on Sunday helped the Warriors race out to a big lead`\
+https://nytimes.com/athletic/6813076/2025/11/16/moses-moody-warriors-ties-steph-curry-team-record/
+
+**49ers-Cardinals takeaways: Purdy shines in return, Kittle scores twice**\
+`Jacoby Brissett completed an NFL-record 47 passes, but San Francisco's offense rolled in Purdy's first game in weeks.`\
+https://nytimes.com/athletic/6812572/2025/11/16/49ers-cardinals-score-result-takeaways-nfl/
+
 **Rams win NFC West lead with victory over Seahawks, Darnold throws 4 INTs**\
 `Seattle kicker Jason Myers missed a 61-yard field goal attempt that would have beaten the Rams at the last second.`\
 https://nytimes.com/athletic/6812058/2025/11/16/seahawks-rams-score-result-takeaways-nfl/

@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6812983/2025/11/16/bears-vikings-comeback-victory-c
 `Moses Moody's blazing start against the Pelicans on Sunday helped the Warriors race out to a big lead`\
 https://nytimes.com/athletic/6813076/2025/11/16/moses-moody-warriors-ties-steph-curry-team-record/
 
-**Rams win NFC West lead with victory over Seahawks, Darnold throws 4 INTs**\
+**Rams beat Seahawks for NFC West lead; Darnold throws 4 INTs**\
 `Seattle kicker Jason Myers missed a 61-yard field goal attempt that would have beaten the Rams at the last second.`\
 https://nytimes.com/athletic/6812058/2025/11/16/seahawks-rams-score-result-takeaways-nfl/
 
