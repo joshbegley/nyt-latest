@@ -1,3 +1,15 @@
+**Trump Administration Escalates Pressure on Venezuela**\
+`The Trump administration on Sunday placed an aircraft carrier in the Caribbean and announced it would designate a Venezuelan group as a foreign terrorist organization.`\
+https://nytimes.com/2025/11/17/us/politics/trump-venezuela-maduro-military.html
+
+**'The Ashes defines England captains and coaches'**\
+`The former England captain is joining The Athletic's Ashes coverage - he can't wait for the talking to stop and the cricket to start`\
+https://nytimes.com/athletic/6800751/2025/11/17/nasser-hussain-england-australia-ashes-columnist/
+
+**Welcome to The Athletic's coverage of the Ashes, 2025-26: Insight, analysis and a new signing**\
+`Five Test matches over seven weeks promise drama aplenty as Australia and England battle it out for possession of the celebrated urn`\
+https://nytimes.com/athletic/6780554/2025/11/17/athletic-ashes-introduction-hussain/
+
 **How one of the most dramatic and jaw-dropping weeks in Irish football history unfolded**\
 `Five goals from Troy Parrott stole the show – but it was a group effort from Heimir Hallgrimsson's side that has kept World Cup hopes alive`\
 https://nytimes.com/athletic/6813260/2025/11/17/ireland-world-cup-troy-parrott-portugal-hungary/

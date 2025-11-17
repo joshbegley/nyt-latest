@@ -1,3 +1,15 @@
+**Trump Administration Escalates Pressure on Venezuela**\
+`The Trump administration on Sunday placed an aircraft carrier in the Caribbean and announced it would designate a Venezuelan group as a foreign terrorist organization.`\
+https://nytimes.com/2025/11/17/us/politics/trump-venezuela-maduro-military.html
+
+**'The Ashes defines England captains and coaches'**\
+`The former England captain is joining The Athletic's Ashes coverage - he can't wait for the talking to stop and the cricket to start`\
+https://nytimes.com/athletic/6800751/2025/11/17/nasser-hussain-england-australia-ashes-columnist/
+
+**Welcome to The Athletic's coverage of the Ashes, 2025-26: Insight, analysis and a new signing**\
+`Five Test matches over seven weeks promise drama aplenty as Australia and England battle it out for possession of the celebrated urn`\
+https://nytimes.com/athletic/6780554/2025/11/17/athletic-ashes-introduction-hussain/
+
 **Word of the Day: deficient**\
 `This word has appeared in 132 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/11/17/learning/word-of-the-day-deficient.html
@@ -25,16 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/11/17/todays-new-york-times
 **Saudi Leader Looking Inward as He Comes to Washington**\
 `The crown prince will meet President Trump with an agenda aimed at protecting the kingdom’s interests.`\
 https://nytimes.com/2025/11/17/opinion/saudi-prince-mbs-trump-washington.html
-
-**A BravoCon Recap, Plus 6 Things to Watch on TV This Week**\
-`Catch up on everything that happened in Vegas, and get ready for the CMAs.`\
-https://nytimes.com/2025/11/17/arts/television/bravocon-recap-tv-this-week.html
-
-**Fantasy football Week 11 takeaways: Statement games from Sean Tucker and Bryce Young**\
-`Michael Salfino shares his observations for Week 11, including his thoughts on the TD hat trick for Tampa Bay's Tucker.`\
-https://nytimes.com/athletic/6813573/2025/11/17/fantasy-football-week-11-takeaways-statement-games-from-sean-tucker-and-bryce-young/
-
-**Connections: Sports Edition Coach: Hints for Nov. 17, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6813670/2025/11/17/connections-sports-edition-hints-for-nov-17-2025/
 
