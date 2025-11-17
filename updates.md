@@ -1,3 +1,7 @@
+**How one of the most dramatic and jaw-dropping weeks in Irish football history unfolded**\
+`Five goals from Troy Parrott stole the show – but it was a group effort from Heimir Hallgrimsson's side that has kept World Cup hopes alive`\
+https://nytimes.com/athletic/6813260/2025/11/17/ireland-world-cup-troy-parrott-portugal-hungary/
+
 **Word of the Day: deficient**\
 `This word has appeared in 132 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/11/17/learning/word-of-the-day-deficient.html

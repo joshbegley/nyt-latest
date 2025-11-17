@@ -10,6 +10,10 @@ https://nytimes.com/athletic/6813482/2025/11/17/cooper-flagg-mavericks-overtime-
 `England have perhaps the best Plan A in the world, but losing any of their four key men would diminish the side's capabilities significantly`\
 https://nytimes.com/athletic/6805816/2025/11/17/england-spine-pickford-stones-rice-kane-world-cup/
 
+**How one of the most dramatic and jaw-dropping weeks in Irish football history unfolded**\
+`Five goals from Troy Parrott stole the show – but it was a group effort from Heimir Hallgrimsson's side that has kept World Cup hopes alive`\
+https://nytimes.com/athletic/6813260/2025/11/17/ireland-world-cup-troy-parrott-portugal-hungary/
+
 **Border Patrol Descends on Charlotte, N.C.**\
 `Border Patrol agents deployed across Charlotte, N.C., over the weekend, sparking protests and stoking fear in the community.`\
 https://nytimes.com/video/us/100000010527658/border-patrol-arrests-charlotte-nc.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6813573/2025/11/17/fantasy-football-week-11-takeawa
 **Connections: Sports Edition Coach: Hints for Nov. 17, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6813670/2025/11/17/connections-sports-edition-hints-for-nov-17-2025/
-
-**Manchester United and AFCON: When will players travel? Which games will they miss?**\
-`Ruben Amorim’s options on the right-hand side will be acutely depleted when a trio of his players depart for Morocco in December`\
-https://nytimes.com/athletic/6809554/2025/11/17/manchester-united-afcon-mbeumo-amad-mazraoui/
 
