@@ -1,3 +1,19 @@
+**Blast on Key Polish Rail Line Was Sabotage, Prime Minister Says**\
+`Donald Tusk said unidentified saboteurs had tried to “blow up a train” on a route crucial for getting aid into Ukraine.`\
+https://nytimes.com/2025/11/17/world/europe/poland-railway-explosion-sabotage-ukraine.html
+
+**Parasitic Queen: Now She’s Stealing an Ant Fief**\
+`Experts discovered an unusual form of regicide in which a parasitic ant queen tricks workers in a colony into turning on their own mother.`\
+https://nytimes.com/2025/11/17/science/ant-queens-parasites.html
+
+**Pick This Pasta With Pickled Peppers**\
+`My new go-to pantry pasta has a silky cacio e pepe vibe but with a funky-spicy twist from miso and pepperoncini.`\
+https://nytimes.com/2025/11/17/dining/pick-this-pasta-with-pickled-peppers.html
+
+**Women's Pro Baseball League to play inaugural 2026 season in Illinois**\
+`The WPBL said it wanted a neutral venue between its four teams from New York, Boston, Los Angeles and San Francisco.`\
+https://nytimes.com/athletic/6808743/2025/11/17/wpbl-robin-roberts-stadium-illinois-venue/
+
 **Abdul Carter benched after sleeping through team walk-through: Sources**\
 `Being late to meetings has been a trend during Carter's rookie season.`\
 https://nytimes.com/athletic/6814523/2025/11/17/ny-giants-abdul-carter-benched-sleeping/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/11/17/world/europe/ukraine-france-rafale-fighter-jets.h
 **Sex Had Become a Chore. Then They Started Reading Romantasy.**\
 `The wildly popular fiction genre allows readers to talk openly about yearning, sex and desire. And it’s spilling over into their bedrooms.`\
 https://nytimes.com/2025/11/17/well/romantasy-books-sex-intimacy.html
-
-**Is Full-Fat Dairy Healthier?**\
-`Americans have been told to prioritize low-fat dairy for decades, but Robert F. Kennedy Jr. has called that recommendation into question.`\
-https://nytimes.com/2025/11/17/well/eat/whole-milk-dairy-health-effects.html
-
-**Heisman Trophy odds: Mendoza reaches a milestone first in the race**\
-`Fernando Mendoza is now favored against the field to win the Heisman Trophy.`\
-https://nytimes.com/athletic/6813700/2025/11/17/heisman-trophy-odds-fernando-mendoza-favorite/
-
-**We Can Now Track Individual Monarch Butterflies. It’s a Revelation.**\
-`Scientists used tiny new sensors to follow the insects on journeys that take thousands of miles to their winter colonies in Mexico.`\
-https://nytimes.com/2025/11/17/science/monarch-butterfly-migration-tracking-sensor.html
-
-**Coronel to leave RBNY as no agreement reached over new deal**\
-`Coronel is out of contract at the end of December and is eligible for MLS free agency.`\
-https://nytimes.com/athletic/6814438/2025/11/17/carlos-coronel-rbny-contract-transfer/
 

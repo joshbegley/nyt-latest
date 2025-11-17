@@ -1,3 +1,11 @@
+**Abdul Carter benched after sleeping through team walk-through: Sources**\
+`Being late to meetings has been a trend during Carter's rookie season.`\
+https://nytimes.com/athletic/6814523/2025/11/17/ny-giants-abdul-carter-benched-sleeping/
+
+**Europe Begins Rethinking Its Crackdown on Big Tech**\
+`European policymakers are crafting changes to scale back and simplify landmark rules for A.I. and data privacy, in a shift from an aggressive regulatory period.`\
+https://nytimes.com/2025/11/17/technology/europe-big-tech.html
+
 **Penguins mailbag: Sidney Crosby vs. Alex Ovechkin is a fun debate with an obvious answer**\
 `Josh Yohe also dives into the Penguins' trip to Sweden, Christmas music, his signature dish and much more.`\
 https://nytimes.com/athletic/6796177/2025/11/17/penguins-sidney-crosby-alex-ovechkin-mailbag/
