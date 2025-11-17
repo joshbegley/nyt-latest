@@ -1,4 +1,8 @@
-**What a tennis final moving back to Sunday says about the future of the sport**\
+**Running backs to roster in fantasy football: Emanuel Wilson, Sean Tucker and others**\
+`KC Joyner discusses the top running backs available on waivers after Week 11 injuries and backfield developments. `\
+https://nytimes.com/athletic/6814007/2025/11/17/fantasy-football-running-backs-waiver-wire/
+
+**What the Cincinnati Open final moving back to Sunday says about the future of the sport**\
 `Midweek finals are one of the most unpopular consequences of the extended ATP Masters and WTA 1000 tournaments.`\
 https://nytimes.com/athletic/6814409/2025/11/17/tennis-midweek-finals-1000-tournaments-cincinnati-open-sunday/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6657807/2025/11/17/barcelona-camp-nou-return-athlet
 **With New Condé Nast Galleries, the Met Museum Gets Fashion Forward**\
 `The Costume Institute is bringing its annual blockbuster show to a permanent home off the Grand Hall, due in part to Anna Wintour’s efforts to get “out of the basement.”`\
 https://nytimes.com/2025/11/17/arts/design/met-museum-conde-nast-gallery-costume-institute.html
-
-**Former NCAA basketball player in betting scandal says he was 'money hungry' for 'fast cash'**\
-`Former New Orleans guard Cedquavious "Dae Dae" Hunter made his first public comments since being banned by the NCAA.`\
-https://nytimes.com/athletic/6814248/2025/11/17/ncaa-college-basketball-player-betting/
 
