@@ -1,3 +1,7 @@
+**Michigan RB Justice Haynes unlikely to return during the regular season**\
+`Haynes, who topped 100 yards in six of his seven starts this season, has missed the last two games with a foot injury.`\
+https://nytimes.com/athletic/6814945/2025/11/17/michigan-rb-justice-haynes-ohio-state-injury-unlikely-return/
+
 **Next Trump Project Opens More Doors for New Investors**\
 `The Trump Organization and its Middle East development partner have announced a project in the Maldives that marries two of the family’s most successful moneymaking enterprises.`\
 https://nytimes.com/2025/11/17/us/politics/trump-saudi-arabia-deals-cryptocurrency.html
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/fidelity-teeing-off-video-3/teeing-off/teeing-off-w
 **Teeing Off with Humphrey Yang**\
 `What golf can teach us about investing, featuring pro golfer Neal Shipley, financial content creator Humphrey Yang, and Fidelity SVP Jordan Ford.`\
 https://nytimes.com/paidpost/fidelity-teeing-off-video-2/teeing-off/teeing-off-with-humphrey-yang.html
-
-**Eagles tackle Johnson could be out 4-6 weeks with Lisfranc sprain: source**\
-`Johnson has exited four games this season with different injuries. `\
-https://nytimes.com/athletic/6814840/2025/11/17/philadelphia-eagles-lane-johnson-injury-foot/
 
