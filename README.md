@@ -1,8 +1,12 @@
+**Chiefs-Broncos takeaways: Wil Lutz hits game-winner, puts Kansas City streak in further jeopardy**\
+`The game winner was Lutz' fifth made field goal Sunday and keyed Denver's ninth win of the season.`\
+https://nytimes.com/athletic/6812959/2025/11/16/chiefs-broncos-score-result-takeaways-nfl/
+
 **U.S. Airport Restrictions to End Monday**\
 `The administrator of the F.A.A. said that attendance among air traffic controllers had improved. New data suggested that some airlines had not been complying with the flight cuts in recent days.`\
 https://nytimes.com/2025/11/16/us/politics/faa-ends-airport-restrictions-monday.html
 
-**Who are the Chicago Bears? They're winners and they're not apologizing**\
+**Who are the Chicago Bears? They're winners, and they're not apologizing**\
 `We've heard enough apologies from this organization over the years. After their seventh win, it's clear these are not the same old Bears.`\
 https://nytimes.com/athletic/6812983/2025/11/16/bears-vikings-comeback-victory-caleb-williams/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6812921/2025/11/16/bears-nahshon-wright-emotional-j
 **Carter Hart returns to hockey after 22 months, in AHL game**\
 `Hart remains ineligible to play in NHL games per the conditions of his reinstatement.`\
 https://nytimes.com/athletic/6810690/2025/11/16/carter-hart-ahl-golden-knights/
-
-**49ers-Cardinals takeaways: Purdy shines in return, Kittle scores twice**\
-`Jacoby Brissett completed an NFL-record 47 passes, but San Francisco's offense rolled in Purdy's first game in weeks.`\
-https://nytimes.com/athletic/6812572/2025/11/16/49ers-cardinals-score-result-takeaways-nfl/
 
