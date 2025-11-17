@@ -1,3 +1,11 @@
+**Connections: Sports Edition Coach: Hints for Nov. 17, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6813670/2025/11/17/connections-sports-edition-hints-for-nov-17-2025/
+
+**Manchester United and AFCON: When will players travel? Which games will they miss?**\
+`Ruben Amorim’s options on the right-hand side will be acutely depleted when a trio of his players depart for Morocco in December`\
+https://nytimes.com/athletic/6809554/2025/11/17/manchester-united-afcon-mbeumo-amad-mazraoui/
+
 **Liam Cooper interview: Ex-Leeds captain on life as an unemployed player**\
 `The Scotland international has spent the last three months training alone looking for a new club`\
 https://nytimes.com/athletic/6807377/2025/11/17/liam-cooper-interview-ex-leeds-captain-on-life-as-an-unemployed-player/
