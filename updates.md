@@ -1,3 +1,7 @@
+**Heisman Trophy odds: Mendoza reaches a milestone first in the race**\
+`Fernando Mendoza is now favored against the field to win the Heisman Trophy.`\
+https://nytimes.com/athletic/6813700/2025/11/17/heisman-trophy-odds-fernando-mendoza-favorite/
+
 **We Can Now Track Individual Monarch Butterflies. It’s a Revelation.**\
 `Scientists used tiny new sensors to follow the insects on journeys that take thousands of miles to their winter colonies in Mexico.`\
 https://nytimes.com/2025/11/17/science/monarch-butterfly-migration-tracking-sensor.html

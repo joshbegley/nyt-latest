@@ -1,3 +1,7 @@
+**Heisman Trophy odds: Mendoza reaches a milestone first in the race**\
+`Fernando Mendoza is now favored against the field to win the Heisman Trophy.`\
+https://nytimes.com/athletic/6813700/2025/11/17/heisman-trophy-odds-fernando-mendoza-favorite/
+
 **We Can Now Track Individual Monarch Butterflies. It’s a Revelation.**\
 `Scientists used tiny new sensors to follow the insects on journeys that take thousands of miles to their winter colonies in Mexico.`\
 https://nytimes.com/2025/11/17/science/monarch-butterfly-migration-tracking-sensor.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6814409/2025/11/17/tennis-midweek-finals-1000-tourn
 **USMNT game vs. Portugal to be announced as Ronaldo set for U.S. return**\
 `The exhibition match will take place at the Mercedes-Benz Stadium in Atlanta in March 2026.`\
 https://nytimes.com/athletic/6814399/2025/11/17/usmnt-portugal-friendly-cristiano-ronaldo/
-
-**NBA Rewind: Let's revisit that incredible Wemby-Draymond showdown (and staredown)**\
-`Who's hot (Pistons, Nuggets) and not (Bulls, Grizzlies) in the league? Plus, an NBA Cupdate.`\
-https://nytimes.com/athletic/6806627/2025/11/17/nba-rewind-draymond-green-victor-wembanyama-warriors-spurs-pistons-nba-cup/
 
