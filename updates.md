@@ -1,3 +1,7 @@
+**Dehner Jr.: It's over for the 2025 Bengals, but what comes next?**\
+`Despite rare opportunities at every turn this year, for the 2025 Bengals, it's over after Sunday's loss in Pittsburgh.`\
+https://nytimes.com/athletic/6813160/2025/11/16/bengals-steelers-results-what-comes-next/
+
 **‘It’s a Culture Now of Fear: A Year of Chaos Inside the Justice Department’**\
 `Sixty former staffers describe an environment of suspicion and intimidation within the nation’s most powerful law enforcement agency.`\
 https://nytimes.com/interactive/2025/11/16/magazine/trump-justice-department-staff-attorneys.html
