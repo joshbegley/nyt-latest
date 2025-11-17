@@ -1,3 +1,5 @@
+
+
 **Inside Barcelona: Fallout from Messi's secret Camp Nou visit, could they really be in for Kane?**\
 `Could Messi play a role in Barca's upcoming presidential elections? Plus: why talk of a move for the England captain could be premature`\
 https://nytimes.com/athletic/6814208/2025/11/17/inside-barcelona-messi-kane-camp-nou/
