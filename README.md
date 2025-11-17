@@ -1,3 +1,7 @@
+**Inside Barcelona: Fallout from Messi's secret Camp Nou visit, could they really be in for Kane?**\
+`Could Messi play a role in Barca's upcoming presidential elections? Plus: why talk of a move for the England captain could be premature`\
+https://nytimes.com/athletic/6814208/2025/11/17/inside-barcelona-messi-kane-camp-nou/
+
 **Trump Calls on House Republicans to Release the Epstein Files**\
 `After weeks campaigning against a bill that would compel the Justice Department to release files related to Jeffrey Epstein, President Trump reversed his stance and urged House Republicans to back the measure.`\
 https://nytimes.com/video/us/politics/100000010527999/trump-epstein-files-vote-mtg.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6814042/2025/11/17/inside-real-madrid-endrick-injur
 **MLS club officials agree that calendar shift will boost power in transfer windows**\
 `Chief soccer officers across MLS clubs believe the switch to the European calendar will strengthen their position in the transfer market`\
 https://nytimes.com/athletic/6812320/2025/11/17/mls-calendar-shift-transfer-window-impact/
-
-**On the run with NC State's Will Wade: Why 'not everybody's cup of tea' coach logs daily miles**\
-`“You guys are my best chance, and I’m your best," Wade told NC State. "Let’s see if it works. If it don’t work, then hell, we can move on."`\
-https://nytimes.com/athletic/6811775/2025/11/17/nc-state-basketball-will-wade-coach/
 
