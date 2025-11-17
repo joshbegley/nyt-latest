@@ -1,3 +1,19 @@
+**Review: A Chinese Classic Comes to Spectacular Operatic Life**\
+`Huang Ruo and David Henry Hwang’s “The Monkey King,” based on “Journey to the West,” brings an old superhero to the opera stage.`\
+https://nytimes.com/2025/11/17/arts/music/the-monkey-king-opera-review.html
+
+**Kenyan Senator Says His Government Neglects Children Trapped in Saudi Arabia**\
+`The comments, by a member of Kenya’s ruling party, represent a rebuke of President William Ruto’s government: “Heads must roll.”`\
+https://nytimes.com/2025/11/17/world/africa/kenya-saudi-arabia-children.html
+
+**How to watch LSU vs. Tulane women's basketball: Time, TV, streaming**\
+`Find out how to watch the LSU Tigers play the Tulane Green Wave, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6814625/2025/11/17/lsu-vs-tulane-stream-how-to-watch-nov-17/
+
+**What we're seeing from Canucks so far on this alarming, successful road trip**\
+`The Canucks have found a way to weather a tough stretch, picking up points in three of their last four games.`\
+https://nytimes.com/athletic/6813678/2025/11/17/vancouver-canucks-scores-stats-record-standings-2025/
+
 **Blast on Key Polish Rail Line Was Sabotage, Prime Minister Says**\
 `Donald Tusk said unidentified saboteurs had tried to “blow up a train” on a route crucial for getting aid into Ukraine.`\
 https://nytimes.com/2025/11/17/world/europe/poland-railway-explosion-sabotage-ukraine.html
