@@ -1,3 +1,11 @@
+**What a tennis final moving back to Sunday says about the future of the sport**\
+`Midweek finals are one of the most unpopular consequences of the extended ATP Masters and WTA 1000 tournaments.`\
+https://nytimes.com/athletic/6814409/2025/11/17/tennis-midweek-finals-1000-tournaments-cincinnati-open-sunday/
+
+**USMNT game vs. Portugal to be announced as Ronaldo set for U.S. return**\
+`The exhibition match will take place at the Mercedes-Benz Stadium in Atlanta in March 2026.`\
+https://nytimes.com/athletic/6814399/2025/11/17/usmnt-portugal-friendly-cristiano-ronaldo/
+
 **NBA Rewind: Let's revisit that incredible Wemby-Draymond showdown (and staredown)**\
 `Who's hot (Pistons, Nuggets) and not (Bulls, Grizzlies) in the league? Plus, an NBA Cupdate.`\
 https://nytimes.com/athletic/6806627/2025/11/17/nba-rewind-draymond-green-victor-wembanyama-warriors-spurs-pistons-nba-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/17/arts/design/met-museum-conde-nast-gallery-costume
 **Former NCAA basketball player in betting scandal says he was 'money hungry' for 'fast cash'**\
 `Former New Orleans guard Cedquavious "Dae Dae" Hunter made his first public comments since being banned by the NCAA.`\
 https://nytimes.com/athletic/6814248/2025/11/17/ncaa-college-basketball-player-betting/
-
-**Inside Barcelona: Fallout from Messi's secret Camp Nou visit, could they really be in for Kane?**\
-`Could Messi play a role in Barca's upcoming presidential elections? Plus: why talk of a move for the England captain could be premature`\
-https://nytimes.com/athletic/6814208/2025/11/17/inside-barcelona-messi-kane-camp-nou/
-
-**Trump Calls on House Republicans to Release the Epstein Files**\
-`After weeks campaigning against a bill that would compel the Justice Department to release files related to Jeffrey Epstein, President Trump reversed his stance and urged House Republicans to back the measure.`\
-https://nytimes.com/video/us/politics/100000010527999/trump-epstein-files-vote-mtg.html
 

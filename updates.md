@@ -1,3 +1,11 @@
+**NBA Rewind: Let's revisit that incredible Wemby-Draymond showdown (and staredown)**\
+`Who's hot (Pistons, Nuggets) and not (Bulls, Grizzlies) in the league? Plus, an NBA Cupdate.`\
+https://nytimes.com/athletic/6806627/2025/11/17/nba-rewind-draymond-green-victor-wembanyama-warriors-spurs-pistons-nba-cup/
+
+**Drawing Religion Minister’s Ire, Music Video is Pulled by Universal in Malaysia**\
+`The minister criticized the girl band Dolla for wearing revealing outfits in a clip for their hit “Question.” He also threatened criminal action.`\
+https://nytimes.com/2025/11/17/world/asia/malaysia-dolla-question-deleted.html
+
 **NFL reviewing apparent spit from Ja'Marr Chase in dust-up with Jalen Ramsey, Steelers: Source**\
 `A field camera appeared to show Chase spitting on Ramsey, and the Steelers DB was ejected for throwing a punch. The NFL could suspend Chase.`\
 https://nytimes.com/athletic/6814337/2025/11/17/jamarr-chase-jalen-ramsey-bengals-steelers-spit-punch/

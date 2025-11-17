@@ -1,3 +1,11 @@
+**NBA Rewind: Let's revisit that incredible Wemby-Draymond showdown (and staredown)**\
+`Who's hot (Pistons, Nuggets) and not (Bulls, Grizzlies) in the league? Plus, an NBA Cupdate.`\
+https://nytimes.com/athletic/6806627/2025/11/17/nba-rewind-draymond-green-victor-wembanyama-warriors-spurs-pistons-nba-cup/
+
+**Drawing Religion Minister’s Ire, Music Video is Pulled by Universal in Malaysia**\
+`The minister criticized the girl band Dolla for wearing revealing outfits in a clip for their hit “Question.” He also threatened criminal action.`\
+https://nytimes.com/2025/11/17/world/asia/malaysia-dolla-question-deleted.html
+
 **NFL reviewing apparent spit from Ja'Marr Chase in dust-up with Jalen Ramsey, Steelers: Source**\
 `A field camera appeared to show Chase spitting on Ramsey, and the Steelers DB was ejected for throwing a punch. The NFL could suspend Chase.`\
 https://nytimes.com/athletic/6814337/2025/11/17/jamarr-chase-jalen-ramsey-bengals-steelers-spit-punch/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6814208/2025/11/17/inside-barcelona-messi-kane-camp
 **Trump Calls on House Republicans to Release the Epstein Files**\
 `After weeks campaigning against a bill that would compel the Justice Department to release files related to Jeffrey Epstein, President Trump reversed his stance and urged House Republicans to back the measure.`\
 https://nytimes.com/video/us/politics/100000010527999/trump-epstein-files-vote-mtg.html
-
-**Tom Cruise Accepts an Honorary Oscar at the Governors Awards**\
-`The star was feted along with Debbie Allen, Dolly Parton and the production designer Wynn Thomas at a show that has become an awards campaign stop.`\
-https://nytimes.com/2025/11/17/movies/governors-awards-2025-tom-cruise.html
-
-**Dortmund's Karim Adeyemi fined for possession of brass knuckles, taser**\
-`Germany head coach Julian Nagelsmann confirmed on Sunday that he had spoken to Adeyemi about the case but would not comment further.`\
-https://nytimes.com/athletic/6814072/2025/11/17/karim-adeyemi-dortmund-germany-weapons/
 
