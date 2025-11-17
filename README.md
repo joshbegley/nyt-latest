@@ -1,3 +1,11 @@
+**TAFC: Can Reyna make the USMNT World Cup roster? Plus: Explaining MLS' Apple TV revamp**\
+`Despite a lack of games for his club, the 23-year-old inspired Mauricio Pochettino's side to a 2-1 win against Paraguay over the weekend`\
+https://nytimes.com/athletic/6813989/2025/11/17/gio-reyna-usmnt-world-cup-mls-apple/
+
+**As the Lions' offense stumbles, maybe it's time Dan Campbell leaned into his defense**\
+`"There’s some things I wish I would’ve done differently," Lions coach Dan Campbell said after the Lions' loss Sunday night. `\
+https://nytimes.com/athletic/6813861/2025/11/17/lions-dan-campbell-offense-jared-goff-eagles/
+
 **Blue Jackets Monday Gathering: Denton Mateychuk joins Connor McDavid's highlight reel**\
 `Also, the Blue Jackets again face a challenge without Boone Jenner.`\
 https://nytimes.com/athletic/6811701/2025/11/17/blue-jackets-mcdavid-mateychuk/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6806961/2025/11/17/tennis-calendar-tournaments-atp-
 **After brawling with Paraguay, USMNT can expect Uruguay to bring the fight**\
 `If Saturday's showing in Mexico is any indication, Marcelo Bielsa's Uruguay will present a physical challenge for the USMNT`\
 https://nytimes.com/athletic/6812730/2025/11/17/uruguay-mexico-fouls-usmnt-friendly-bielsa-pochettino/
-
-**Against the Lions, the Eagles again showed their 'knack' for knowing how to win**\
-`Even when the offense is struggling and the defense has to carry them, the Eagles keep showing their ability to find a way.`\
-https://nytimes.com/athletic/6813850/2025/11/17/eagles-knack-win-lions/
-
-**Emmanuel Clase, closer at the heart of MLB's pitch-rigging scandal, was an on-mound menace, off-field enigma**\
-`Over six major-league seasons, we have gained few insights about the all-world closer at the heart of MLB's pitch-rigging controversy. `\
-https://nytimes.com/athletic/6807847/2025/11/17/emmanuel-clase-pitch-rigging-explainer/
 

@@ -1,3 +1,7 @@
+**Blue Jackets Monday Gathering: Denton Mateychuk joins Connor McDavid's highlight reel**\
+`Also, the Blue Jackets again face a challenge without Boone Jenner.`\
+https://nytimes.com/athletic/6811701/2025/11/17/blue-jackets-mcdavid-mateychuk/
+
 **Patrick Mahomes showed raw honesty after Chiefs' loss. Here's what frustrated him most**\
 `The Chiefs are 5-5 and have little room for error to turn things around. Here's what they said in the locker room.`\
 https://nytimes.com/athletic/6813218/2025/11/17/chiefs-patrick-mahomes-frustrated-broncos/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6813850/2025/11/17/eagles-knack-win-lions/
 **Emmanuel Clase, closer at the heart of MLB's pitch-rigging scandal, was an on-mound menace, off-field enigma**\
 `Over six major-league seasons, we have gained few insights about the all-world closer at the heart of MLB's pitch-rigging controversy. `\
 https://nytimes.com/athletic/6807847/2025/11/17/emmanuel-clase-pitch-rigging-explainer/
-
-**Trump’s Surprise Pivot on the Epstein Files, and Why Crypto A.T.M.s Are a Hub for Scams**\
-`Plus, Hollywood’s star-studded movies are tanking.`\
-https://nytimes.com/2025/11/17/podcasts/the-headlines/trump-epstein-files-crypto-atm-scams.html
 
