@@ -1,4 +1,4 @@
-**Pickford, Stones, Rice, Kane: Can one of football's strongest spines make it to the World Cup injury free?**\
+**Pickford, Stones, Rice, Kane: Can one of football's strongest spines make it to the World Cup injury-free?**\
 `England have perhaps the best Plan A in the world, but losing any of their four key men would diminish the side's capabilities significantly`\
 https://nytimes.com/athletic/6805816/2025/11/17/england-spine-pickford-stones-rice-kane-world-cup/
 
