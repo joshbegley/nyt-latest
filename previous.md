@@ -1,3 +1,7 @@
+**‘It’s a Culture Now of Fear: A Year of Chaos Inside the Justice Department’**\
+`Sixty former staffers describe an environment of suspicion and intimidation within the nation’s most powerful law enforcement agency.`\
+https://nytimes.com/interactive/2025/11/16/magazine/trump-justice-department-staff-attorneys.html
+
 **Giants interim coach Mike Kafka shows he isn't giving up without a fight**\
 `The Giants' next head coach is anybody's guess. But in his first audition, Kafka was decisive, aggressive and had a handle on things.`\
 https://nytimes.com/athletic/6813159/2025/11/16/giants-packers-mike-kafka-interim-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6813050/2025/11/16/vikings-bears-jj-mccarthy-accura
 **New Giants coach, same lousy result: Mike Kafka's debut spoiled by another late collapse**\
 `Firing Brian Daboll wasn't going to fix everything. This is still a roster with too many holes, and those get exposed weekly in crunch time.`\
 https://nytimes.com/athletic/6812987/2025/11/16/ny-giants-mike-kafka-collapse-packers-shane-bowen/
-
-**'We were out-physicaled': Chargers fall short in the trenches in blowout loss to Jaguars**\
-`The Chargers' three-game winning streak ended with a thud. Said Derwin James, "Today, the Jags came and humbled us.”`\
-https://nytimes.com/athletic/6813020/2025/11/16/chargers-jaguars-blowout-loss-outphysicaled/
 
