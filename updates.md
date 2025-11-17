@@ -1,3 +1,7 @@
+**The Pulse: Three teams define the AFC’s chaotic year**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6812463/2025/11/17/nfl-week-11-afc-the-pulse/
+
 **Jeff Bezos’ Big Bet on A.I.**\
 `The Amazon founder is tapping his fortune to help fund Project Prometheus, an artificial intelligence start-up, even as he has said A.I. may be in a bubble.`\
 https://nytimes.com/2025/11/17/business/dealbook/jeff-bezos-big-bet-on-ai.html

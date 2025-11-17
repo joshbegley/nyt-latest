@@ -1,3 +1,7 @@
+**The Pulse: Three teams define the AFC’s chaotic year**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6812463/2025/11/17/nfl-week-11-afc-the-pulse/
+
 **Jeff Bezos’ Big Bet on A.I.**\
 `The Amazon founder is tapping his fortune to help fund Project Prometheus, an artificial intelligence start-up, even as he has said A.I. may be in a bubble.`\
 https://nytimes.com/2025/11/17/business/dealbook/jeff-bezos-big-bet-on-ai.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6813374/2025/11/17/49ers-beat-cardinals-george-kitt
 **The USMNT is making progress. The fans it hoped to attract haven’t (yet) noticed.**\
 `Mauricio Pochettino has made yet another plea to U.S. supporters to turn out and back the national team. Will they listen?`\
 https://nytimes.com/athletic/6813316/2025/11/17/usmnt-fans-world-cup-pochettino-stadiums/
-
-**Why Flyers forward Matvei Michkov may still be getting limited minutes**\
-`Michkov looked to be turning a corner after a bump in minutes and scoring goals in three straight games — until his usage dipped again.`\
-https://nytimes.com/athletic/6812162/2025/11/17/flyers-matvei-michkov-usage-nhl/
 
