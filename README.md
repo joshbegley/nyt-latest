@@ -1,3 +1,7 @@
+**T's Dec. 7 Holiday Issue**\
+``\
+https://nytimes.com/issue/t-magazine/2025/11/17/ts-dec-7-holiday-issue-2025
+
 **Why De'Aaron Fox is embracing being Victor Wembanyama's sidekick**\
 `"We know that he could be one of the greatest players," Fox said. "But as he’s trying to get there, you don’t go through that on your own."`\
 https://nytimes.com/athletic/6813185/2025/11/17/deaaron-fox-spurs-victor-wembanyama-sidekick/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6811701/2025/11/17/blue-jackets-mcdavid-mateychuk/
 **Patrick Mahomes showed raw honesty after Chiefs' loss. Here's what frustrated him most**\
 `The Chiefs are 5-5 and have little room for error to turn things around. Here's what they said in the locker room.`\
 https://nytimes.com/athletic/6813218/2025/11/17/chiefs-patrick-mahomes-frustrated-broncos/
-
-**The Athletic 136: Georgia keeps rising as top tier starts looking more crowded**\
-`Georgia’s late-season rise reshapes the top of our rankings and shifts the top 10 down the final stretch.`\
-https://nytimes.com/athletic/6812896/2025/11/17/college-football-team-rankings-georgia-texas/
 
