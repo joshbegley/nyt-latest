@@ -1,3 +1,15 @@
+**John Shuster, U.S. Olympic curling pillar, loses out in bid for sixth straight Games**\
+`Shuster, who has competed at every Olympics since 2006 and won the only U.S. medals in the sport, and his team lost Sunday at U.S. trials.`\
+https://nytimes.com/athletic/6810019/2025/11/16/john-shuster-us-curling-olympics-trials-danny-casper/
+
+**Broncos conquer Chiefs with 'ironic' end that crystallizes path to AFC West title**\
+`One year after Wil Lutz's 35-yard attempt vs. Chiefs was blocked, he boots game-winner from same distance for Denver's eighth straight win.`\
+https://nytimes.com/athletic/6813383/2025/11/16/broncos-afc-west-lead-chiefs/
+
+**Jordan Walsh's defensive education continues as Celtics escape James Harden, Clippers**\
+`Five of Walsh's fouls sent Harden to the line, but he had three steals vs. the 2018 NBA MVP in the Celtics' 121-118 win over the Clippers.`\
+https://nytimes.com/athletic/6813329/2025/11/16/celtics-jordan-walsh-clippers-james-harden/
+
 **‘Chess’ Review: At Least They Have the Music**\
 `This new revival, starring Lea Michele, Nicholas Christopher and Aaron Tveit, is a reminder why the erratic yet rewarding show has endured all these years.`\
 https://nytimes.com/2025/11/16/theater/chess-review-lea-michele-broadway.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/16/business/japan-economy-contraction.html
 **Trump Says House Republicans Should Vote to Release Epstein Files**\
 `President Trump reversed himself by calling on the House of Representatives to vote for the release of files related to the convicted sex offender Jeffrey Epstein.`\
 https://nytimes.com/2025/11/16/us/politics/trump-epstein-files-release-vote.html
-
-**‘It: Welcome to Derry’ Season 1, Episode 4 Recap: Origin of the Species**\
-`Leroy gets a glimpse of the thing that terrorized his son. Viewers get a glimpse of the monster’s origins in Derry.`\
-https://nytimes.com/2025/11/16/arts/television/it-welcome-to-derry-recap-season-1-episode-4.html
-
-**Marta won't exit quietly: 'It should not end like this'**\
-`The Brazilian star took exception to the referee's call that resulted in the Orlando Pride's loss to Gotham in the NWSL semifinals Sunday.`\
-https://nytimes.com/athletic/6813233/2025/11/16/marta-orlando-pride-nwsl-semifinals/
-
-**‘It’s a Culture Now of Fear: A Year of Chaos Inside the Justice Department’**\
-`Sixty former staffers describe an environment of suspicion and intimidation within the nation’s most powerful law enforcement agency.`\
-https://nytimes.com/interactive/2025/11/16/magazine/trump-justice-department-staff-attorneys.html
 
