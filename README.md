@@ -1,5 +1,5 @@
 **NBA Power Rankings: Cade Cunningham, Pistons motor into an elite tier**\
-`The Pistons have won nine consecutive games and the Warriors, Hawks, Raptors and Suns all make leaps this week.`\
+`The Pistons have won nine consecutive games and the Warriors, Hawks, Raptors and Suns all make big leaps this week.`\
 https://nytimes.com/athletic/6814323/2025/11/17/nba-power-rankings-pistons-thunder-lakers/
 
 **Do You Know These Award-Winning Books?**\

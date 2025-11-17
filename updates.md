@@ -1,4 +1,8 @@
 **NBA Power Rankings: Cade Cunningham, Pistons motor into an elite tier**\
+`The Pistons have won nine consecutive games and the Warriors, Hawks, Raptors and Suns all make leaps this week.`\
+https://nytimes.com/athletic/6814323/2025/11/17/nba-power-rankings-pistons-thunder-lakers/
+
+**NBA Power Rankings: Cade Cunningham, Pistons motor into an elite tier**\
 `Album of the Week: “Days Are Gone”, HAIM (2013)
 Injuries are not an excuse for poor performance!
 I’ve used this line already this month, and it wasn’t the first time.`\
