@@ -1,3 +1,15 @@
+**Cynicism? Greed? Ireland and DR Congo remind us the World Cup can be football at its purest**\
+`No other competition inspires such uncomplicated, widespread joy. When you strip it back to its core, the World Cup is cynicism-proof`\
+https://nytimes.com/athletic/6814213/2025/11/17/world-cup-ireland-dr-congo/
+
+**A Touchdown, Then Tragedy, for a Man Who ‘Gave All He Could Give’**\
+`Marshawn Kneeland spent nearly all of his 24 years working to get to the N.F.L. He died two days after scoring his first touchdown.`\
+https://nytimes.com/2025/11/17/us/marshawn-kneeland-dallas-cowboys.html
+
+**Video Reveals How Far Wolves Will Go to Steal a Meal**\
+`After a wolf dragged a crab trap out of water to get a snack, some scientists said the behavior revealed their ability to use tools.`\
+https://nytimes.com/2025/11/17/science/wolf-tool-use-steal-food.html
+
 **NBA Power Rankings: Cade Cunningham, Pistons motor into an elite tier**\
 `The Pistons have won nine consecutive games and the Warriors, Hawks, Raptors and Suns all make big leaps this week.`\
 https://nytimes.com/athletic/6814323/2025/11/17/nba-power-rankings-pistons-thunder-lakers/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6814585/2025/11/17/lou-lamoriello-islanders-maple-l
 **How to watch Bucks vs. Cavaliers: Time, TV, streaming**\
 `Find out how to watch the Milwaukee Bucks play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6814679/2025/11/17/bucks-vs-cavaliers-stream-how-to-watch-nov-17/
-
-**How to watch Pacers vs. Pistons: Time, TV, streaming**\
-`Find out how to watch the Indiana Pacers play the Detroit Pistons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6814677/2025/11/17/pacers-vs-pistons-stream-how-to-watch-nov-17/
-
-**How to watch Clippers vs. 76ers: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Clippers play the Philadelphia 76ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6814673/2025/11/17/clippers-vs-76ers-stream-how-to-watch-nov-17/
-
-**How to watch Canucks vs. Panthers: Time, TV, streaming**\
-`Find out how to watch the Vancouver Canucks play the Florida Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6814670/2025/11/17/canucks-vs-panthers-stream-how-to-watch-nov-17/
 
