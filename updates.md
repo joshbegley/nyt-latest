@@ -1,3 +1,7 @@
+**Pickford, Stones, Rice, Kane: Can one of football's strongest spines make it to the World Cup injury free?**\
+`England have perhaps the best Plan A in the world, but losing any of their four key men would diminish the side's capabilities significantly`\
+https://nytimes.com/athletic/6805816/2025/11/17/england-spine-pickford-stones-rice-kane-world-cup/
+
 **Border Patrol Descends on Charlotte, N.C.**\
 `Border Patrol agents deployed across Charlotte, N.C., over the weekend, sparking protests and stoking fear in the community.`\
 https://nytimes.com/video/us/100000010527658/border-patrol-arrests-charlotte-nc.html

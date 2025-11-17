@@ -1,3 +1,7 @@
+**Pickford, Stones, Rice, Kane: Can one of football's strongest spines make it to the World Cup injury free?**\
+`England have perhaps the best Plan A in the world, but losing any of their four key men would diminish the side's capabilities significantly`\
+https://nytimes.com/athletic/6805816/2025/11/17/england-spine-pickford-stones-rice-kane-world-cup/
+
 **Border Patrol Descends on Charlotte, N.C.**\
 `Border Patrol agents deployed across Charlotte, N.C., over the weekend, sparking protests and stoking fear in the community.`\
 https://nytimes.com/video/us/100000010527658/border-patrol-arrests-charlotte-nc.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6807377/2025/11/17/liam-cooper-interview-ex-leeds-c
 **Odegaard's Arsenal reintegration: Will Arteta continue to give him freedom to roam?**\
 `Whether his return is the north London derby or later, a roaming Odegaard can play a part in restoring Arsenal's attacking fluidity`\
 https://nytimes.com/athletic/6797176/2025/11/17/martin-odegaard-arsenal-injury-return/
-
-**Newcastle's win over Sunderland keeps promotion in picture... now to find the right manager**\
-`Newcastle United's Women put promotion back on the agenda against Sunderland. The next step is getting their managerial choice right`\
-https://nytimes.com/athletic/6803774/2025/11/17/newcastle-women-sunderland-promotion/
 
