@@ -1,3 +1,7 @@
+**Jeff Bezos Creates A.I. Start-Up Where He Will Be Co-Chief Executive**\
+`Called Project Prometheus, the company is focusing on artificial intelligence for the engineering and manufacturing of computers, automobiles and spacecraft.`\
+https://nytimes.com/2025/11/17/technology/bezos-project-prometheus.html
+
 **Scott Boland and Brendan Doggett aim to make history for Australia in Ashes opener**\
 `If the two pace bowlers are picked in Perth, it will be the first time Australia have named two indigenous players in the same Test team`\
 https://nytimes.com/athletic/6813827/2025/11/17/ashes-australia-boland-doggett-indigenous-history/
