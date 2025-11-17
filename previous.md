@@ -1,3 +1,23 @@
+**There’s a New Effort on the Runway to Raise Climate Funds**\
+`A small group of countries is aiming to impose a fee on private jets and premium commercial fares. The revenue would help nations adapt to warming.`\
+https://nytimes.com/2025/11/17/climate/private-jet-tax-climate.html
+
+**Fantasy football Week 11 recap, early waivers speed run: Drake London, Jaylen Warren**\
+`Jake Ciely's Week 11 recap podcast, featuring backfield shakeups, injury news and one Packers' wide receiver who should be rostered. `\
+https://nytimes.com/athletic/6814476/2025/11/17/fantasy-football-week-11-recap-early-waivers-speed-run-drake-london-jaylen-warren/
+
+**Penix Jr. may miss rest of season after suffering knee injury vs. Panthers**\
+`The injury continues a troubling trend of knee ailments that dates back to college.`\
+https://nytimes.com/athletic/6814651/2025/11/17/michael-penix-falcons-season-ending-injury/
+
+**Top U.N. Official Pushing to Get Aid Into Stricken Sudanese City**\
+`Paramilitaries accused of atrocities pledged to allow international aid and investigators into El Fasher, days after an airstrike hit a United Nations vehicle.`\
+https://nytimes.com/2025/11/17/world/africa/el-fasher-sudan-united-nations.html
+
+**These are the 12 newcomers to the Baseball Hall of Fame ballot. Here's our salute to each one**\
+`Alex Gordon, Matt Kemp, Ryan Braun and Cole Hamels are among the dozen new players up for consideration in Cooperstown.`\
+https://nytimes.com/athletic/6804292/2025/11/17/baseball-hall-of-fame-first-time-ballot-2026/
+
 **Cynicism? Greed? Ireland and DR Congo remind us the World Cup can be football at its purest**\
 `No other competition inspires such uncomplicated, widespread joy. When you strip it back to its core, the World Cup is cynicism-proof`\
 https://nytimes.com/athletic/6814213/2025/11/17/world-cup-ireland-dr-congo/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6814323/2025/11/17/nba-power-rankings-pistons-thund
 **Do You Know These Award-Winning Books?**\
 `Try this short quiz to match the descriptions of past National Book Award winners with their titles and authors.`\
 https://nytimes.com/interactive/2025/11/17/books/book-awards-quiz.html
-
-**Yankees agree to 1-year-deal with Ryan Yarbrough, adding depth to staff: Source**\
-`The Yankees need help in their rotation and bullpen. Yarbrough could provide a little of the former early, and a little of the latter later.`\
-https://nytimes.com/athletic/6814643/2025/11/17/ryan-yarbrough-yankees-sign-mlb-contract/
-
-**Trump Administration Releases Thousands of Amelia Earhart Files**\
-`More than 4,000 documents related to Earhart were posted online, but scholars were not impressed. The release coincides with a period of intensified interest in the disgraced financier Jeffrey Epstein and his connection to the president.`\
-https://nytimes.com/2025/11/17/us/politics/trump-amelia-earhart-flight-records.html
-
-**A Bailout May Come Too Late as Farmers Begin to Plan for Next Year**\
-`It could be months before they receive aid, well after the winter period when they talk to their bankers and make decisions about the planting ahead.`\
-https://nytimes.com/2025/11/17/business/farmers-bailout-delay.html
-
-**Lou Lamoriello on exit as Islanders GM, transitioning to a new role: 'It’s all positive'**\
-`Lamoriello, who had run NHL teams since 1987, said "the game has been great to me" in his first interview since being let go as GM in April.`\
-https://nytimes.com/athletic/6814585/2025/11/17/lou-lamoriello-islanders-maple-leafs-devils/
-
-**How to watch Bucks vs. Cavaliers: Time, TV, streaming**\
-`Find out how to watch the Milwaukee Bucks play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6814679/2025/11/17/bucks-vs-cavaliers-stream-how-to-watch-nov-17/
 
