@@ -1,3 +1,7 @@
+**Mariners, Josh Naylor in agreement on five-year contract: Source**\
+`The 28-year-old first baseman was an immediate success in Seattle after joining the team at the trade deadline. `\
+https://nytimes.com/athletic/6813184/2025/11/16/mariners-josh-naylor-five-year-deal/
+
 **Dehner Jr.: It's over for the 2025 Bengals, but what comes next?**\
 `Despite rare opportunities at every turn this year, for the 2025 Bengals, it’s over after Sunday's loss in Pittsburgh.`\
 https://nytimes.com/athletic/6813160/2025/11/16/bengals-steelers-results-what-comes-next/
@@ -27,14 +31,10 @@ https://nytimes.com/athletic/6812987/2025/11/16/ny-giants-mike-kafka-collapse-pa
 https://nytimes.com/athletic/6813020/2025/11/16/chargers-jaguars-blowout-loss-outphysicaled/
 
 **Chiefs-Broncos takeaways: Wil Lutz hits game-winner, puts Kansas City streak in further jeopardy**\
-`The game winner was Lutz' fifth made field goal Sunday and keyed Denver's ninth win of the season.`\
+`The game-winner was Lutz's fifth field goal Sunday and keyed Denver's ninth win of the season.`\
 https://nytimes.com/athletic/6812959/2025/11/16/chiefs-broncos-score-result-takeaways-nfl/
 
 **U.S. Airport Restrictions to End Monday**\
 `The administrator of the F.A.A. said that attendance among air traffic controllers had improved. New data suggested that some airlines had not been complying with the flight cuts in recent days.`\
 https://nytimes.com/2025/11/16/us/politics/faa-ends-airport-restrictions-monday.html
-
-**Who are the Chicago Bears? They're winners, and they're not apologizing**\
-`We've heard enough apologies from this organization over the years. After their seventh win, it's clear these are not the same old Bears.`\
-https://nytimes.com/athletic/6812983/2025/11/16/bears-vikings-comeback-victory-caleb-williams/
 

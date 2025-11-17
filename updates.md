@@ -1,3 +1,11 @@
+**Mariners, Josh Naylor in agreement on five-year contract: Source**\
+`The 28-year-old first baseman was an immediate success in Seattle after joining the team at the trade deadline. `\
+https://nytimes.com/athletic/6813184/2025/11/16/mariners-josh-naylor-five-year-deal/
+
+**Chiefs-Broncos takeaways: Wil Lutz hits game-winner, puts Kansas City streak in further jeopardy**\
+`The game-winner was Lutz's fifth field goal Sunday and keyed Denver's ninth win of the season.`\
+https://nytimes.com/athletic/6812959/2025/11/16/chiefs-broncos-score-result-takeaways-nfl/
+
 **Dehner Jr.: It's over for the 2025 Bengals, but what comes next?**\
 `Despite rare opportunities at every turn this year, for the 2025 Bengals, it’s over after Sunday's loss in Pittsburgh.`\
 https://nytimes.com/athletic/6813160/2025/11/16/bengals-steelers-results-what-comes-next/
