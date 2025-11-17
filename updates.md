@@ -1,3 +1,8 @@
+**Bournemouth's Semenyo has £65m release clause with January transfer possible**\
+`The clause must be activated by a specific date, giving Bournemouth time to replace their best player, and is available to any team.
+`\
+https://nytimes.com/athletic/6814786/2025/11/17/antoine-semenyo-transfer-clause-bournemouth/
+
 **As Trump Looks for Distraction on Epstein, Justice Dept. Rushes to His Aid**\
 `The department was deployed, in effect, as an arm of the president’s rapid-response operation to help him muscle through a damaging news cycle over Jeffrey Epstein, former and current officials said.`\
 https://nytimes.com/2025/11/17/us/politics/trump-bondi-democrats-justice-department.html
