@@ -1,3 +1,7 @@
+**Lou Lamoriello on exit as Islanders GM, transitioning to a new role: 'It’s all positive'**\
+`Lamoriello, who had run NHL teams since 1987, said "the game has been great to me" in his first interview since being let go as GM in April.`\
+https://nytimes.com/athletic/6814585/2025/11/17/lou-lamoriello-islanders-maple-leafs-devils/
+
 **How to watch Bucks vs. Cavaliers: Time, TV, streaming**\
 `Find out how to watch the Milwaukee Bucks play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6814679/2025/11/17/bucks-vs-cavaliers-stream-how-to-watch-nov-17/
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/6814663/2025/11/17/oilers-vs-sabres-stream-how-to-w
 `"I would say status quo," Kafka said when asked Monday about making changes to his staff.`\
 https://nytimes.com/athletic/6813032/2025/11/17/ny-giants-shane-bowen-mike-kafka/
 
-**Review: A Chinese Classic Comes to Spectacular Operatic Life**\
-`Huang Ruo and David Henry Hwang’s “The Monkey King,” based on “Journey to the West,” brings an old superhero to the opera stage.`\
-https://nytimes.com/2025/11/17/arts/music/the-monkey-king-opera-review.html
-
-**Kenyan Senator Says His Government Neglects Children Trapped in Saudi Arabia**\
-`The comments, by a member of Kenya’s ruling party, represent a rebuke of President William Ruto’s government: “Heads must roll.”`\
-https://nytimes.com/2025/11/17/world/africa/kenya-saudi-arabia-children.html
+**2025 NFL Playoff Simulator: Each team’s updated path to the postseason ahead of Week 12**\
+`<p>Welcome to The Athletic’s 2025 NFL Playoff Simulator, where you’ll find everything you need to know about all the ways your favorite team&#8217;s season could end, from a No.`\
+https://nytimes.com/athletic/6513952/2025/11/17/2025-nfl-playoff-simulator-path-postseason/
 
