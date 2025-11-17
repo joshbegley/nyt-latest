@@ -1,3 +1,8 @@
+**Bournemouth's Semenyo has £65m release clause with January transfer possible**\
+`The clause must be activated by a specific date, giving Bournemouth time to replace their best player, and is available to any team.
+`\
+https://nytimes.com/athletic/6814786/2025/11/17/antoine-semenyo-transfer-clause-bournemouth/
+
 **Former Team GB Olympic coach denies child sex offences**\
 `Vicente Modahl appeared at Manchester Crown Court on Monday, where he pleaded not guilty to 19 charges.`\
 https://nytimes.com/athletic/6814811/2025/11/17/vincente-modahl-child-sex-offence-case/
