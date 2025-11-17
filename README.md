@@ -1,3 +1,11 @@
+**Next Trump Project Opens More Doors for New Investors**\
+`The Trump Organization and its Middle East development partner have announced a project in the Maldives that marries two of the family’s most successful moneymaking enterprises.`\
+https://nytimes.com/2025/11/17/us/politics/trump-saudi-arabia-deals-cryptocurrency.html
+
+**The World Baseball Classic roster grows. Plus: Women’s Pro Baseball League stadium reveal**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6814989/2025/11/17/world-baseball-classic-roster-the-windup/
+
 **Acting FEMA Administrator Is Out, Injecting Uncertainty at Agency in Limbo**\
 `David Richardson had been on the job for six months. FEMA employees questioned his ability to lead the agency.`\
 https://nytimes.com/2025/11/17/climate/fema-david-richardson.html
@@ -29,12 +37,4 @@ https://nytimes.com/paidpost/fidelity-teeing-off-video-2/teeing-off/teeing-off-w
 **Eagles tackle Johnson could be out 4-6 weeks with Lisfranc sprain: source**\
 `Johnson has exited four games this season with different injuries. `\
 https://nytimes.com/athletic/6814840/2025/11/17/philadelphia-eagles-lane-johnson-injury-foot/
-
-**Teeing Off with Neal Shipley**\
-`What golf can teach us about investing, featuring pro golfer Neal Shipley, financial content creator Humphrey Yang, and Fidelity SVP Jordan Ford.`\
-https://nytimes.com/paidpost/athletic/fidelity/teeing-off-1.html
-
-**Love & Money: Banking on Love**\
-`When two lives intertwine, so too do their finances — for better and for worse.`\
-https://nytimes.com/paidpost/ally-bank/love-and-money-banking-on-love.html
 
