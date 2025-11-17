@@ -1,3 +1,7 @@
+**T's Dec. 7 Holiday Issue**\
+``\
+https://nytimes.com/issue/t-magazine/2025/11/17/ts-dec-7-holiday-issue-2025
+
 **Why De'Aaron Fox is embracing being Victor Wembanyama's sidekick**\
 `"We know that he could be one of the greatest players," Fox said. "But as he’s trying to get there, you don’t go through that on your own."`\
 https://nytimes.com/athletic/6813185/2025/11/17/deaaron-fox-spurs-victor-wembanyama-sidekick/
