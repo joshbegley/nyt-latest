@@ -1,3 +1,11 @@
+**In Major Breakthrough, U.N. Security Council Adopts U.S. Peace Plan for Gaza**\
+`Russia and China abstained. The vote provides international support for the Trump administration’s vision of how to move past the cease-fire to rebuild the war-ravaged enclave after two years of war.`\
+https://nytimes.com/2025/11/17/world/middleeast/un-security-council-gaza-peace-plan.html
+
+**NHL encouraging teams to play more color-on-color jersey matchups**\
+`The Rangers and Red Wings played on Sunday while wearing their centennial jerseys, New York in blue and Detroit in red.`\
+https://nytimes.com/athletic/6815445/2025/11/17/nhl-color-on-color-jersey-matchups/
+
 **Ole Miss gives Lane Kiffin deadline of Egg Bowl to decide coaching fate**\
 `Lane Kiffin is in demand. Ole Miss wants an answer — soon.`\
 https://nytimes.com/athletic/6815449/2025/11/17/lane-kiffin-ole-miss-deadline-lsu-florida-egg-bowl/

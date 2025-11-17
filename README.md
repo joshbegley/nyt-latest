@@ -1,5 +1,5 @@
 **In Major Breakthrough, U.N. Security Council Adopts U.S. Peace Plan for Gaza**\
-`Russia and China abstained. The vote provides international support for the Trump administration’s vision of how to move past the cease-fire to rebuild the war-ravaged enclave after two years of war.`\
+`Russia and China abstained. The vote provides a legal mandate for the Trump administration’s vision of how to move past the cease-fire to rebuild the war-ravaged enclave after two years of war.`\
 https://nytimes.com/2025/11/17/world/middleeast/un-security-council-gaza-peace-plan.html
 
 **NHL encouraging teams to play more color-on-color jersey matchups**\
