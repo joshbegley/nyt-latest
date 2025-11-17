@@ -1,3 +1,11 @@
+**Connections: Sports Edition Coach: Hints for Nov. 17, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6813670/2025/11/17/connections-sports-edition-hints-for-nov-17-2025/
+
+**Manchester United and AFCON: When will players travel? Which games will they miss?**\
+`Ruben Amorim’s options on the right-hand side will be acutely depleted when a trio of his players depart for Morocco in December`\
+https://nytimes.com/athletic/6809554/2025/11/17/manchester-united-afcon-mbeumo-amad-mazraoui/
+
 **Liam Cooper interview: Ex-Leeds captain on life as an unemployed player**\
 `The Scotland international has spent the last three months training alone looking for a new club`\
 https://nytimes.com/athletic/6807377/2025/11/17/liam-cooper-interview-ex-leeds-captain-on-life-as-an-unemployed-player/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6811550/2025/11/17/england-roundtable-thomas-tuchel
 **What The Athletic readers told us about how they use illegal sports streams**\
 `More than 5,000 people responded to our survey, with almost half saying they use illegal streams to watch football`\
 https://nytimes.com/athletic/6742758/2025/11/17/illegal-streaming-survey-results/
-
-**Eagles-Lions takeaways: Philly defense harasses Jared Goff, ruins 4th-down gambles**\
-`Philadelphia's defense and a rushing attack that was good enough led a 16-9 victory between two of the NFC's top teams.`\
-https://nytimes.com/athletic/6813058/2025/11/17/lions-eagles-score-result-takeaways-nfl/
-
-**'Death has come for me three times' - The incredible, harrowing stories of Julian Calero**\
-`Now manager of La Liga side Levante, Calero was among the first police officers to arrive at the scene of the Madrid train bombings of 2004`\
-https://nytimes.com/athletic/6800567/2025/11/17/julian-calero-interview-levante-manager-la-liga/
 
