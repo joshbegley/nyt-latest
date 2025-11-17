@@ -1,3 +1,11 @@
+**LeBron James nears return after full practice, status for Tuesday still uncertain**\
+`The Lakers are currently in fourth place in the Western Conference despite James' season-long absence.`\
+https://nytimes.com/athletic/6815513/2025/11/17/lakers-lebron-james-return-nba/
+
+**Michael Penix Jr. out at least a month, season in doubt after another knee injury**\
+`Penix will miss at least four games and could be out for the season after suffering a knee injury. Kirk Cousins will start in his place.`\
+https://nytimes.com/athletic/6815521/2025/11/17/michael-penix-falcons-injury-ir-kirk-cousins/
+
 **In Major Breakthrough, U.N. Security Council Adopts U.S. Peace Plan for Gaza**\
 `Russia and China abstained. The vote provides a legal mandate for the Trump administration’s vision of how to move past the cease-fire to rebuild the war-ravaged enclave after two years of war.`\
 https://nytimes.com/2025/11/17/world/middleeast/un-security-council-gaza-peace-plan.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6812843/2025/11/17/jamarr-chase-suspended-spit-jale
 **Trump threatens World Cup host cities over 'safety' concerns, announces visa scheme for fans**\
 `In an extraordinary news conference, Trump warned host cities including Seattle and Los Angeles may lose their games over "safety" concerns.`\
 https://nytimes.com/athletic/6815440/2025/11/17/donald-trump-infantino-fifa-pass-world-cup/
-
-**Ranking college football's 11 open coaching jobs: LSU No. 1; where does Auburn sit?**\
-`This could be the most active coaching carousel college football has seen in many years.`\
-https://nytimes.com/athletic/6662286/2025/11/17/college-football-open-coaching-jobs-rankings/
-
-**Extracurricular Activities**\
-`On game day, every detail speaks. Nico Collins shares his ritual of preparation — a quiet, focused moment grounded by BLEU DE CHANEL L’EXCLUSIF, a fragrance that leaves a lasting impression.`\
-https://nytimes.com/paidpost/athletic/chanel/extracurricular-activities.html
 
