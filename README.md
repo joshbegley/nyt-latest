@@ -1,3 +1,11 @@
+**The Mayor of Secaucus Has a Fix for America: ‘Say Yes to Everyone’**\
+`As South Asian and Muslim immigrants transform a small New Jersey town, the five-term mayor has managed to keep the peace. What happens when he’s gone?`\
+https://nytimes.com/2025/11/17/nyregion/secaucus-nj-mayor-gonnelli.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/17/crosswords/spelling-bee-forum.html
+
 **Trump Administration Escalates Pressure on Venezuela**\
 `The Trump administration on Sunday placed an aircraft carrier in the Caribbean and announced it would designate a Venezuelan group as a foreign terrorist organization.`\
 https://nytimes.com/2025/11/17/us/politics/trump-venezuela-maduro-military.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6813260/2025/11/17/ireland-world-cup-troy-parrott-p
 **Border Patrol Descends on Charlotte, N.C.**\
 `Border Patrol agents deployed across Charlotte, N.C., over the weekend, sparking protests and stoking fear in the community.`\
 https://nytimes.com/video/us/100000010527658/border-patrol-arrests-charlotte-nc.html
-
-**The New York Times in Print for Monday, Nov. 17, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/11/17/todays-new-york-times
-
-**Saudi Leader Looking Inward as He Comes to Washington**\
-`The crown prince will meet President Trump with an agenda aimed at protecting the kingdom’s interests.`\
-https://nytimes.com/2025/11/17/opinion/saudi-prince-mbs-trump-washington.html
 
