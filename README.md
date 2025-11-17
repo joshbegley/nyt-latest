@@ -1,3 +1,7 @@
+**Trump Tariffs Push Japan’s Economy Into Contraction**\
+`The Japanese economy shrank by 1.8 percent compared to the same quarter last year, as U.S. tariffs dampened automobile exports and prompted a bleak outlook for growth.`\
+https://nytimes.com/2025/11/16/business/japan-economy-contraction.html
+
 **Trump Says House Republicans Should Vote to Release Epstein Files**\
 `President Trump reversed himself by calling on the House of Representatives to vote for the release of files related to the convicted sex offender Jeffrey Epstein.`\
 https://nytimes.com/2025/11/16/us/politics/trump-epstein-files-release-vote.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6813160/2025/11/16/bengals-steelers-results-what-co
 **Ravens-Browns takeaways: Mark Andrews' TD run lifts Baltimore to fourth straight win**\
 `The Ravens (5-5) overcame a rickety offensive performance and climbed back to .500 after starting the season 1-4.`\
 https://nytimes.com/athletic/6812711/2025/11/16/ravens-browns-score-result-takeaways-nfl/
-
-**Another big W in the ATL: Bryce Young silences doubters, breaks Cam's record — 'He's a baller'**\
-`Young battled an ankle injury throughout the game, but still threw for a franchise-record 448 yards and three TDs.`\
-https://nytimes.com/athletic/6813087/2025/11/16/panthers-bryce-young-beat-falcons/
 
