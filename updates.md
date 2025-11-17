@@ -1,3 +1,19 @@
+**Blast on Key Polish Rail Line Was Sabotage, Prime Minister Says**\
+`Donald Tusk said unidentified saboteurs had tried to “blow up a train” on a route crucial for getting aid into Ukraine.`\
+https://nytimes.com/2025/11/17/world/europe/poland-railway-explosion-sabotage-ukraine.html
+
+**Parasitic Queen: Now She’s Stealing an Ant Fief**\
+`Experts discovered an unusual form of regicide in which a parasitic ant queen tricks workers in a colony into turning on their own mother.`\
+https://nytimes.com/2025/11/17/science/ant-queens-parasites.html
+
+**Pick This Pasta With Pickled Peppers**\
+`My new go-to pantry pasta has a silky cacio e pepe vibe but with a funky-spicy twist from miso and pepperoncini.`\
+https://nytimes.com/2025/11/17/dining/pick-this-pasta-with-pickled-peppers.html
+
+**Women's Pro Baseball League to play inaugural 2026 season in Illinois**\
+`The WPBL said it wanted a neutral venue between its four teams from New York, Boston, Los Angeles and San Francisco.`\
+https://nytimes.com/athletic/6808743/2025/11/17/wpbl-robin-roberts-stadium-illinois-venue/
+
 **Abdul Carter benched after sleeping through team walk-through: Sources**\
 `Being late to meetings has been a trend during Carter's rookie season.`\
 https://nytimes.com/athletic/6814523/2025/11/17/ny-giants-abdul-carter-benched-sleeping/
