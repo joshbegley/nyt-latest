@@ -1,3 +1,15 @@
+**Ole Miss gives Lane Kiffin deadline of Egg Bowl to decide coaching fate**\
+`Lane Kiffin is in demand. Ole Miss wants an answer — soon.`\
+https://nytimes.com/athletic/6815449/2025/11/17/lane-kiffin-ole-miss-deadline-lsu-florida-egg-bowl/
+
+**Victor Wembanyama suffers calf injury, will miss at least 2-3 weeks: Source**\
+`The injury will sideline the all-world Spurs star for an extended period of time. `\
+https://nytimes.com/athletic/6815518/2025/11/17/victor-wembanyama-injury-update-left-calf-strain-spurs/
+
+**Ranking college football's 11 open coaching jobs: LSU No. 1; where does Auburn sit?**\
+`This could be the most active coaching carousel college football has seen in many years.`\
+https://nytimes.com/athletic/6662286/2025/11/17/college-football-open-coaching-jobs-rankings/
+
 **Met Returns Buddhist Painting Thought Taken During the Korean War**\
 `The 18th-century painting, which the Met acquired in 2007, is believed to have been removed from a South Korean temple while it was controlled by the U.S. Army.`\
 https://nytimes.com/2025/11/17/arts/met-museum-korea-repatriation.html
