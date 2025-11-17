@@ -1,3 +1,13 @@
+**NBA Power Rankings: Cade Cunningham, Pistons motor into an elite tier**\
+`Album of the Week: “Days Are Gone”, HAIM (2013)
+Injuries are not an excuse for poor performance!
+I’ve used this line already this month, and it wasn’t the first time.`\
+https://nytimes.com/athletic/6814323/2025/11/17/nba-power-rankings-pistons-thunder-lakers/
+
+**Do You Know These Award-Winning Books?**\
+`Try this short quiz to match the descriptions of past National Book Award winners with their titles and authors.`\
+https://nytimes.com/interactive/2025/11/17/books/book-awards-quiz.html
+
 **Yankees agree to 1-year-deal with Ryan Yarbrough, adding depth to staff: Source**\
 `The Yankees need help in their rotation and bullpen. Yarbrough could provide a little of the former early, and a little of the latter later.`\
 https://nytimes.com/athletic/6814643/2025/11/17/ryan-yarbrough-yankees-sign-mlb-contract/
@@ -29,12 +39,4 @@ https://nytimes.com/athletic/6814673/2025/11/17/clippers-vs-76ers-stream-how-to-
 **How to watch Canucks vs. Panthers: Time, TV, streaming**\
 `Find out how to watch the Vancouver Canucks play the Florida Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6814670/2025/11/17/canucks-vs-panthers-stream-how-to-watch-nov-17/
-
-**How to watch Kings vs. Capitals: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Kings play the Washington Capitals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6814668/2025/11/17/kings-vs-capitals-stream-how-to-watch-nov-17/
-
-**How to watch Hurricanes vs. Bruins: Time, TV, streaming**\
-`Find out how to watch the Carolina Hurricanes play the Boston Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6814667/2025/11/17/hurricanes-vs-bruins-stream-how-to-watch-nov-17/
 
