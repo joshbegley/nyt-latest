@@ -1,3 +1,7 @@
+**Rams win battle for NFC West over Seahawks, Darnold throws 4 INTs**\
+`Seattle kicker Jason Myers missed a 61-yard field goal attempt that would have beaten the Rams at the last second.`\
+https://nytimes.com/athletic/6812058/2025/11/16/seahawks-rams-score-result-takeaways-nfl/
+
 **In Pulpits and Pews, Catholic Churches Urge Compassion for Immigrants**\
 `Immigration was on the minds of priests and parishioners following a letter from the nation’s Catholic bishops decrying how immigrants are being treated.`\
 https://nytimes.com/2025/11/16/us/catholic-church-immigration-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/the-athletic/100000010527512/josh-allens-six-touchdown
 **Homayoun Ershadi, 78, Dies; ‘Kite Runner’ and ‘Taste of Cherry’ Star**\
 `He was an architect with no training as an actor whose life was changed by a chance encounter. He inspired rave reviews and a New Yorker short story.`\
 https://nytimes.com/2025/11/16/obituaries/homayoun-ershadi-dead.html
-
-**Nigeria coach Chelle alleges DR Congo players practiced 'voodoo' during penalty shootout**\
-`A representative of DR Congo denied Chelle's claims when asked by The Athletic.`\
-https://nytimes.com/athletic/6812903/2025/11/16/nigeria-dr-congo-voodoo-penalty-shootout/
 
