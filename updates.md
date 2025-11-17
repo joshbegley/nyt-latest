@@ -1,3 +1,11 @@
+**Chiefs-Broncos takeaways: Wil Lutz hits game-winner, puts Kansas City streak in further jeopardy**\
+`The game winner was Lutz' fifth made field goal Sunday and keyed Denver's ninth win of the season.`\
+https://nytimes.com/athletic/6812959/2025/11/16/chiefs-broncos-score-result-takeaways-nfl/
+
+**Who are the Chicago Bears? They're winners, and they're not apologizing**\
+`We've heard enough apologies from this organization over the years. After their seventh win, it's clear these are not the same old Bears.`\
+https://nytimes.com/athletic/6812983/2025/11/16/bears-vikings-comeback-victory-caleb-williams/
+
 **U.S. Airport Restrictions to End Monday**\
 `The administrator of the F.A.A. said that attendance among air traffic controllers had improved. New data suggested that some airlines had not been complying with the flight cuts in recent days.`\
 https://nytimes.com/2025/11/16/us/politics/faa-ends-airport-restrictions-monday.html
