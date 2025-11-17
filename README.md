@@ -1,3 +1,15 @@
+**The New York Times in Print for Monday, Nov. 17, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/17/todays-new-york-times
+
+**Saudi Leader Looking Inward as He Comes to Washington**\
+`The crown prince will meet President Trump with an agenda aimed at protecting the kingdom’s interests.`\
+https://nytimes.com/2025/11/17/opinion/saudi-prince-mbs-trump-washington.html
+
+**A BravoCon Recap, Plus 6 Things to Watch on TV This Week**\
+`Catch up on everything that happened in Vegas, and get ready for the CMAs.`\
+https://nytimes.com/2025/11/17/arts/television/bravocon-recap-tv-this-week.html
+
 **Fantasy football Week 11 takeaways: Statement games from Sean Tucker and Bryce Young**\
 `Michael Salfino shares his observations for Week 11, including his thoughts on the TD hat trick for Tampa Bay's Tucker.`\
 https://nytimes.com/athletic/6813573/2025/11/17/fantasy-football-week-11-takeaways-statement-games-from-sean-tucker-and-bryce-young/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6803774/2025/11/17/newcastle-women-sunderland-promo
 **The Briefing: Portugal's Ronaldo dilemma, what's eating Italy, who could still qualify for World Cup?**\
 `After World Cup qualifying action we look at whether Portugal would be OK without Ronaldo, Italy's issues and look ahead to the week`\
 https://nytimes.com/athletic/6812283/2025/11/17/the-briefing-portugals-ronaldo-dilemma-azzurri-blues-and-who-could-still-qualify/
-
-**Should we be talking more about Diogo Jota?**\
-`It would be strange if the Portuguese's tragic death was not weighing on his old colleagues' minds in this difficult season `\
-https://nytimes.com/athletic/6803952/2025/11/17/diogo-jota-liverpool-death-impact/
-
-**Thierno Barry interview: The art of adaptation, a wake-up call in Zanzibar and why he has a 'Me against Me' tattoo**\
-`The France Under-21 striker has had an itinerant career to date but, after a slow start, is determined to make his mark at Everton `\
-https://nytimes.com/athletic/6806909/2025/11/17/thierno-barry-everton-interview-exclusive/
-
-**England roundtable: Thomas Tuchel's five dilemmas for the World Cup**\
-`After sailing through qualifying, our writers discuss the key decisions facing the England head coach`\
-https://nytimes.com/athletic/6811550/2025/11/17/england-roundtable-thomas-tuchels-five-dilemmas-ahead-of-the-world-cup/
 
