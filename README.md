@@ -1,5 +1,17 @@
-**Jake Neighbours expected to return on Blues road trip, eager to help 'get some good mojo going'**\
-`Neighbours is still tied for the Blues goal-scoring lead despite missing 11 games. He was the team's leading scorer when he was injured.`\
+**Met Museum Employees Petition to Create Union**\
+`The proposal, for a union to represent nearly 1,000 employees, would make the Met one of the largest unionized museums in the country.`\
+https://nytimes.com/2025/11/17/arts/design/met-museum-union.html
+
+**College football Week 13 odds: USC at Oregon has massive playoff stakes**\
+`USC at Oregon and Missouri at Oklahoma are the only ranked matchups in Week 13 and the home teams are favored by more than a touchdown.`\
+https://nytimes.com/athletic/6814619/2025/11/17/college-football-week-13-odds-usc-oregon/
+
+**The Case for Overthrowing Maduro**\
+`Thinking through the case for intervention in Venezuela.`\
+https://nytimes.com/2025/11/17/opinion/venezuela-trump-maduro.html
+
+**Jake Neighbours expected to return on Blues' road trip, eager to help 'get some good mojo going'**\
+`Neighbours is still tied for the Blues' goal-scoring lead despite missing 11 games. He was the team's leading scorer when he was injured.`\
 https://nytimes.com/athletic/6814943/2025/11/17/jake-neighbours-blues-injury-return/
 
 **NFL overreactions: 4 favorites that aren't favored by enough**\
@@ -25,8 +37,4 @@ https://nytimes.com/athletic/6815046/2025/11/17/deion-sanders-reaction-shedeur-s
 **E.P.A. Rule Would Drastically Curb Protections for Wetlands**\
 `The proposal could strip federal protections from most U.S. wetlands, some of which feed drinking water systems.`\
 https://nytimes.com/2025/11/17/climate/epa-curbs-protections-for-wetlands.html
-
-**Man Charged in Shooting of Cleaning Woman Who Arrived at Wrong House in Indiana**\
-`A man was charged with manslaughter after a woman was shot through the front door of a home before dawn this month in suburban Indianapolis.`\
-https://nytimes.com/2025/11/17/us/curt-andersen-indiana-shooting-charges.html
 
