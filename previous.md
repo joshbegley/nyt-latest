@@ -1,3 +1,15 @@
+**Dehner Jr.: It's over for the 2025 Bengals, but what comes next?**\
+`Despite rare opportunities at every turn this year, for the 2025 Bengals, it’s over after Sunday's loss in Pittsburgh.`\
+https://nytimes.com/athletic/6813160/2025/11/16/bengals-steelers-results-what-comes-next/
+
+**Ravens-Browns takeaways: Mark Andrews' TD run lifts Baltimore to fourth straight win**\
+`The Ravens (5-5) overcame a rickety offensive performance and climbed back to .500 after starting the season 1-4.`\
+https://nytimes.com/athletic/6812711/2025/11/16/ravens-browns-score-result-takeaways-nfl/
+
+**Another big W in the ATL: Bryce Young silences doubters, breaks Cam's record — 'He's a baller'**\
+`Bryce Young battled an ankle injury throughout the game, but still threw for a franchise-record 448 yards and three TDs.`\
+https://nytimes.com/athletic/6813087/2025/11/16/panthers-bryce-young-beat-falcons/
+
 **How Cairo Santos, Bears special teams rebounded to pull off another wild win**\
 `Bears special teams miscues in the fourth quarter helped the Vikings claw back, but then Bears special teams came through for the win.`\
 https://nytimes.com/athletic/6813022/2025/11/16/bears-cairo-santos-devin-duvernay-vikings/
@@ -14,7 +26,7 @@ https://nytimes.com/athletic/6812987/2025/11/16/ny-giants-mike-kafka-collapse-pa
 `The Chargers' three-game winning streak ended with a thud. Said Derwin James, "Today, the Jags came and humbled us.”`\
 https://nytimes.com/athletic/6813020/2025/11/16/chargers-jaguars-blowout-loss-outphysicaled/
 
-**Chiefs-Broncos takeaways: Wil Lutz hits game winner, puts Kansas City streak in further jeopardy**\
+**Chiefs-Broncos takeaways: Wil Lutz hits game-winner, puts Kansas City streak in further jeopardy**\
 `The game winner was Lutz' fifth made field goal Sunday and keyed Denver's ninth win of the season.`\
 https://nytimes.com/athletic/6812959/2025/11/16/chiefs-broncos-score-result-takeaways-nfl/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/16/us/politics/faa-ends-airport-restrictions-monday.
 **Who are the Chicago Bears? They're winners, and they're not apologizing**\
 `We've heard enough apologies from this organization over the years. After their seventh win, it's clear these are not the same old Bears.`\
 https://nytimes.com/athletic/6812983/2025/11/16/bears-vikings-comeback-victory-caleb-williams/
-
-**Moses Moody channels his inner Steph Curry in opening period vs. Pelicans**\
-`Moses Moody's blazing start against the Pelicans on Sunday helped the Warriors race out to a big lead`\
-https://nytimes.com/athletic/6813076/2025/11/16/moses-moody-warriors-ties-steph-curry-team-record/
-
-**Rams beat Seahawks for NFC West lead; Darnold throws 4 INTs**\
-`Seattle kicker Jason Myers missed a 61-yard field goal attempt that would have beaten the Rams at the last second.`\
-https://nytimes.com/athletic/6812058/2025/11/16/seahawks-rams-score-result-takeaways-nfl/
-
-**In Pulpits and Pews, Catholic Churches Urge Compassion for Immigrants**\
-`Immigration was on the minds of priests and parishioners following a letter from the nation’s Catholic bishops decrying how immigrants are being treated.`\
-https://nytimes.com/2025/11/16/us/catholic-church-immigration-trump.html
 

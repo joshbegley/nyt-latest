@@ -1,3 +1,19 @@
+**Dehner Jr.: It's over for the 2025 Bengals, but what comes next?**\
+`Despite rare opportunities at every turn this year, for the 2025 Bengals, it’s over after Sunday's loss in Pittsburgh.`\
+https://nytimes.com/athletic/6813160/2025/11/16/bengals-steelers-results-what-comes-next/
+
+**Ravens-Browns takeaways: Mark Andrews' TD run lifts Baltimore to fourth straight win**\
+`The Ravens (5-5) overcame a rickety offensive performance and climbed back to .500 after starting the season 1-4.`\
+https://nytimes.com/athletic/6812711/2025/11/16/ravens-browns-score-result-takeaways-nfl/
+
+**Another big W in the ATL: Bryce Young silences doubters, breaks Cam's record — 'He's a baller'**\
+`Bryce Young battled an ankle injury throughout the game, but still threw for a franchise-record 448 yards and three TDs.`\
+https://nytimes.com/athletic/6813087/2025/11/16/panthers-bryce-young-beat-falcons/
+
+**Chiefs-Broncos takeaways: Wil Lutz hits game-winner, puts Kansas City streak in further jeopardy**\
+`The game winner was Lutz' fifth made field goal Sunday and keyed Denver's ninth win of the season.`\
+https://nytimes.com/athletic/6812959/2025/11/16/chiefs-broncos-score-result-takeaways-nfl/
+
 **How Cairo Santos, Bears special teams rebounded to pull off another wild win**\
 `Bears special teams miscues in the fourth quarter helped the Vikings claw back, but then Bears special teams came through for the win.`\
 https://nytimes.com/athletic/6813022/2025/11/16/bears-cairo-santos-devin-duvernay-vikings/
