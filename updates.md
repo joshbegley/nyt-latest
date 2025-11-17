@@ -1,3 +1,15 @@
+**Giants interim coach Mike Kafka shows he isn't giving up without a fight**\
+`The Giants' next head coach is anybody's guess. But in his first audition, Kafka was decisive, aggressive and had a handle on things.`\
+https://nytimes.com/athletic/6813159/2025/11/16/giants-packers-mike-kafka-interim-coach/
+
+**'It's time for him to grow up': Keon Coleman benched again but Bills offense doesn't need him**\
+`The second-year player earned the third benching of his career on Sunday.`\
+https://nytimes.com/athletic/6813044/2025/11/16/bills-offense-keon-coleman-benched-buccaneers/
+
+**Another big W in the ATL: Bryce Young silences doubters, breaks Cam's record — 'He's a baller'**\
+`Young battled an ankle injury throughout the game, but still threw for a franchise-record 448 yards and three TDs.`\
+https://nytimes.com/athletic/6813087/2025/11/16/panthers-bryce-young-beat-falcons/
+
 **Mariners, Josh Naylor in agreement on five-year contract: Source**\
 `The 28-year-old first baseman was an immediate success in Seattle after joining the team at the trade deadline. `\
 https://nytimes.com/athletic/6813184/2025/11/16/mariners-josh-naylor-five-year-deal/

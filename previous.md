@@ -1,3 +1,11 @@
+**Giants interim coach Mike Kafka shows he isn't giving up without a fight**\
+`The Giants' next head coach is anybody's guess. But in his first audition, Kafka was decisive, aggressive and had a handle on things.`\
+https://nytimes.com/athletic/6813159/2025/11/16/giants-packers-mike-kafka-interim-coach/
+
+**'It's time for him to grow up': Keon Coleman benched again but Bills offense doesn't need him**\
+`The second-year player earned the third benching of his career on Sunday.`\
+https://nytimes.com/athletic/6813044/2025/11/16/bills-offense-keon-coleman-benched-buccaneers/
+
 **Mariners, Josh Naylor in agreement on five-year contract: Source**\
 `The 28-year-old first baseman was an immediate success in Seattle after joining the team at the trade deadline. `\
 https://nytimes.com/athletic/6813184/2025/11/16/mariners-josh-naylor-five-year-deal/
@@ -11,7 +19,7 @@ https://nytimes.com/athletic/6813160/2025/11/16/bengals-steelers-results-what-co
 https://nytimes.com/athletic/6812711/2025/11/16/ravens-browns-score-result-takeaways-nfl/
 
 **Another big W in the ATL: Bryce Young silences doubters, breaks Cam's record — 'He's a baller'**\
-`Bryce Young battled an ankle injury throughout the game, but still threw for a franchise-record 448 yards and three TDs.`\
+`Young battled an ankle injury throughout the game, but still threw for a franchise-record 448 yards and three TDs.`\
 https://nytimes.com/athletic/6813087/2025/11/16/panthers-bryce-young-beat-falcons/
 
 **How Cairo Santos, Bears special teams rebounded to pull off another wild win**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6812987/2025/11/16/ny-giants-mike-kafka-collapse-pa
 **'We were out-physicaled': Chargers fall short in the trenches in blowout loss to Jaguars**\
 `The Chargers' three-game winning streak ended with a thud. Said Derwin James, "Today, the Jags came and humbled us.”`\
 https://nytimes.com/athletic/6813020/2025/11/16/chargers-jaguars-blowout-loss-outphysicaled/
-
-**Chiefs-Broncos takeaways: Wil Lutz hits game-winner, puts Kansas City streak in further jeopardy**\
-`The game-winner was Lutz's fifth field goal Sunday and keyed Denver's ninth win of the season.`\
-https://nytimes.com/athletic/6812959/2025/11/16/chiefs-broncos-score-result-takeaways-nfl/
-
-**U.S. Airport Restrictions to End Monday**\
-`The administrator of the F.A.A. said that attendance among air traffic controllers had improved. New data suggested that some airlines had not been complying with the flight cuts in recent days.`\
-https://nytimes.com/2025/11/16/us/politics/faa-ends-airport-restrictions-monday.html
 
