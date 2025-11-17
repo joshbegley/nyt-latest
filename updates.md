@@ -1,3 +1,20 @@
+**Cade Cunningham becomes 6th active NBA player to get a Nike signature shoe**\
+`Cunningham will join LeBron James, Kevin Durant, Giannis Antetokounmpo, Devin Booker and Ja Morant as signature Nike athletes. `\
+https://nytimes.com/athletic/6814799/2025/11/17/cade-cunningham-nike-signature-shoe-deal-pistons/
+
+**Jets bench QB Justin Fields; Tyrod Taylor to start vs. Ravens: Source**\
+`The Jets rank last in the league in passing yards per game, and Fields has four games with under 55 passing yards for the 2-8 Jets.`\
+https://nytimes.com/athletic/6814832/2025/11/17/justin-fields-benched-jets-tyrod-taylor/
+
+**L.A. Kings' Drew Doughty expected to miss multiple weeks with injury**\
+`The injury, according to the Kings' coach, is not related to Doughty's previous ankle injury.`\
+https://nytimes.com/athletic/6814796/2025/11/17/drew-doughty-kings-injury/
+
+**Bournemouth's Semenyo has £65m release clause with January transfer possible**\
+`The clause must be activated by a specific date, giving Bournemouth time to replace their best player, and is available to any team.
+`\
+https://nytimes.com/athletic/6814786/2025/11/17/antoine-semenyo-transfer-clause-bournemouth/
+
 **Bournemouth's Semenyo has £65m release clause with January transfer possible**\
 `The clause must be activated by a specific date, giving Bournemouth time to replace their best player, and is available to any team.
 `\
