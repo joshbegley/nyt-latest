@@ -1,3 +1,7 @@
+**We Came Here Legally. ICE Locked Us Up Anyway.**\
+`The brutal detention of three people who came to the United States reveals a cruel system that operates with impunity.`\
+https://nytimes.com/video/opinion/100000010520862/we-came-here-legally-ice-locked-us-up-anyway.html
+
 **Bangladesh Court Sentences Former Leader Sheikh Hasina to Death**\
 `The former prime minister, who fled to India last year, was tried in absentia for ordering the use of lethal weapons during the uprising that drove her from power.`\
 https://nytimes.com/2025/11/17/world/asia/bangladesh-sheikh-hasina-death-sentence.html

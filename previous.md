@@ -1,3 +1,7 @@
+**We Came Here Legally. ICE Locked Us Up Anyway.**\
+`The brutal detention of three people who came to the United States reveals a cruel system that operates with impunity.`\
+https://nytimes.com/video/opinion/100000010520862/we-came-here-legally-ice-locked-us-up-anyway.html
+
 **Bangladesh Court Sentences Former Leader Sheikh Hasina to Death**\
 `The former prime minister, who fled to India last year, was tried in absentia for ordering the use of lethal weapons during the uprising that drove her from power.`\
 https://nytimes.com/2025/11/17/world/asia/bangladesh-sheikh-hasina-death-sentence.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6813827/2025/11/17/ashes-australia-boland-doggett-i
 **Word of the Day: deficient**\
 `This word has appeared in 132 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/11/17/learning/word-of-the-day-deficient.html
-
-**Cooper Flagg comes up in the clutch in Mavericks' thrilling OT win over Blazers**\
-`Dallas needed Flagg down the stretch and in OT Sunday night, and the star rookie delivered.`\
-https://nytimes.com/athletic/6813482/2025/11/17/cooper-flagg-mavericks-overtime-win-trail-blazers/
 
