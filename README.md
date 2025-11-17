@@ -1,3 +1,7 @@
+**Border Patrol Descends on Charlotte, N.C.**\
+`Border Patrol agents deployed across Charlotte, N.C., over the weekend, sparking protests and stoking fear in the community.`\
+https://nytimes.com/video/us/100000010527658/border-patrol-arrests-charlotte-nc.html
+
 **The New York Times in Print for Monday, Nov. 17, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/17/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6797176/2025/11/17/martin-odegaard-arsenal-injury-r
 **Newcastle's win over Sunderland keeps promotion in picture... now to find the right manager**\
 `Newcastle United's Women put promotion back on the agenda against Sunderland. The next step is getting their managerial choice right`\
 https://nytimes.com/athletic/6803774/2025/11/17/newcastle-women-sunderland-promotion/
-
-**The Briefing: Portugal's Ronaldo dilemma, what's eating Italy, who could still qualify for World Cup?**\
-`After World Cup qualifying action we look at whether Portugal would be OK without Ronaldo, Italy's issues and look ahead to the week`\
-https://nytimes.com/athletic/6812283/2025/11/17/the-briefing-portugals-ronaldo-dilemma-azzurri-blues-and-who-could-still-qualify/
 
