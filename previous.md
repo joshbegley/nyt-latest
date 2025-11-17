@@ -1,5 +1,5 @@
 **Fantasy football Week 11 takeaways: Statement games from Sean Tucker and Bryce Young**\
-`Michael Salfino shares his observations for Week 11, including his thoughts on the TD hat trick for Tampa Bay's Sean Tucker.`\
+`Michael Salfino shares his observations for Week 11, including his thoughts on the TD hat trick for Tampa Bay's Tucker.`\
 https://nytimes.com/athletic/6813573/2025/11/17/fantasy-football-week-11-takeaways-statement-games-from-sean-tucker-and-bryce-young/
 
 **Connections: Sports Edition Coach: Hints for Nov. 17, 2025**\
