@@ -1,3 +1,7 @@
+**Marta won't exit quietly: 'It should not end like this'**\
+`The Brazilian star took exception to the referee's call that resulted in the Orlando Pride losing to Gotham in the NWSL semifinals Sunday.`\
+https://nytimes.com/athletic/6813233/2025/11/16/marta-orlando-pride-nwsl-semifinals/
+
 **‘It’s a Culture Now of Fear: A Year of Chaos Inside the Justice Department’**\
 `Sixty former staffers describe an environment of suspicion and intimidation within the nation’s most powerful law enforcement agency.`\
 https://nytimes.com/interactive/2025/11/16/magazine/trump-justice-department-staff-attorneys.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6813022/2025/11/16/bears-cairo-santos-devin-duverna
 **J.J. McCarthy's inaccuracy dooms Vikings vs. Bears, creates uncertainty for the future**\
 `McCarthy struggled again on Sunday, and now the Vikings should be focused on finding out if the young quarterback can be the guy in 2026.`\
 https://nytimes.com/athletic/6813050/2025/11/16/vikings-bears-jj-mccarthy-accuracy-future/
-
-**New Giants coach, same lousy result: Mike Kafka's debut spoiled by another late collapse**\
-`Firing Brian Daboll wasn't going to fix everything. This is still a roster with too many holes, and those get exposed weekly in crunch time.`\
-https://nytimes.com/athletic/6812987/2025/11/16/ny-giants-mike-kafka-collapse-packers-shane-bowen/
 
