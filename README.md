@@ -1,5 +1,9 @@
+**What Is Botulism?**\
+`The life-threatening illness is a continuing threat. Here’s what you need to know.`\
+https://nytimes.com/2025/11/17/well/what-is-botulism.html
+
 **Cowboys pay tribute to Marshawn Kneeland ahead of Monday Night Football matchup**\
-`The team prepared a locker for Kneeland on Monday night in Las Vegas.`\
+`The team prepared a locker for their late teammate on Monday night in Las Vegas.`\
 https://nytimes.com/athletic/6815637/2025/11/17/cowboys-tribute-marshawn-kneeland-monday-night-football/
 
 **After Hundreds of Gazans Arrive on Mystery Flights, South Africa Asks How**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6815569/2025/11/17/derrick-jones-jr-clippers-mcl-nb
 **James Franklin's fit at Virginia Tech is obvious in an ACC ripe for the taking**\
 `Virginia Tech, in a crowded, competitive coaching carousel, couldn’t have asked for a better option.`\
 https://nytimes.com/athletic/6815562/2025/11/17/james-franklin-virginia-tech-acc/
-
-**Minutia minute: Eddy Piñeiro's hamstring injury has the 49ers looking for kickers**\
-`Kyle Shanahan said Brock Purdy "checked out all right" after his first game back. Linebacker Tatum Bethune, however, didn't fare as well.`\
-https://nytimes.com/athletic/6815441/2025/11/17/49ers-kicker-injury-eddy-pineiro-minutia-minute/
 
