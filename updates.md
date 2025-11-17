@@ -1,3 +1,7 @@
+**Border Patrol Descends on Charlotte, N.C.**\
+`Border Patrol agents deployed across Charlotte, N.C., over the weekend, sparking protests and stoking fear in the community.`\
+https://nytimes.com/video/us/100000010527658/border-patrol-arrests-charlotte-nc.html
+
 **The New York Times in Print for Monday, Nov. 17, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/17/todays-new-york-times
