@@ -1,3 +1,20 @@
+**Former Team GB Olympic coach denies child sex offences**\
+`Vicente Modahl appeared at Manchester Crown Court on Monday, where he pleaded not guilty to 19 charges.`\
+https://nytimes.com/athletic/6814811/2025/11/17/vincente-modahl-child-sex-offence-case/
+
+**Hegseth Assigns Deputy to Oversee U.S.S. Cole Bombing Case**\
+`The attack killed 17 American sailors in 2000. The new assignment was the latest change to oversight in the dysfunctional military commission system.`\
+https://nytimes.com/2025/11/17/us/politics/uss-cole-bombing-case.html
+
+**Eric Adams Meets Netanyahu on Day 3 of Taxpayer-Funded Trip to Israel**\
+`Mr. Adams, whose tenure as mayor of New York City ends in six weeks, is using his second trip to Israel in three years to reinforce his staunch support of the country.`\
+https://nytimes.com/2025/11/17/nyregion/eric-adams-netanyahu-israel.html
+
+**Bournemouth's Semenyo has £65m release clause with January transfer possible**\
+`The clause must be activated by a specific date, giving Bournemouth time to replace their best player, and is available to any team.
+`\
+https://nytimes.com/athletic/6814786/2025/11/17/antoine-semenyo-transfer-clause-bournemouth/
+
 **Bernie Kosar undergoes liver transplant surgery**\
 `Kosar announced he had been diagnosed with liver failure in a 2024 interview with Cleveland Magazine.`\
 https://nytimes.com/athletic/6814372/2025/11/17/bernie-kosar-undergoes-liver-transplant-surgery/
@@ -21,20 +38,4 @@ https://nytimes.com/athletic/6814651/2025/11/17/michael-penix-falcons-season-end
 **Top U.N. Official Pushing to Get Aid Into Stricken Sudanese City**\
 `Paramilitaries accused of atrocities pledged to allow international aid and investigators into El Fasher, days after an airstrike hit a United Nations vehicle.`\
 https://nytimes.com/2025/11/17/world/africa/el-fasher-sudan-united-nations.html
-
-**These are the 12 newcomers to the Baseball Hall of Fame ballot. Here's our salute to each one**\
-`Alex Gordon, Matt Kemp, Ryan Braun and Cole Hamels are among the dozen new players up for consideration in Cooperstown.`\
-https://nytimes.com/athletic/6804292/2025/11/17/baseball-hall-of-fame-first-time-ballot-2026/
-
-**Cynicism? Greed? Ireland and DR Congo remind us the World Cup can be football at its purest**\
-`No other competition inspires such uncomplicated, widespread joy. When you strip it back to its core, the World Cup is cynicism-proof`\
-https://nytimes.com/athletic/6814213/2025/11/17/world-cup-ireland-dr-congo/
-
-**A Touchdown, Then Tragedy, for a Man Who ‘Gave All He Could Give’**\
-`Marshawn Kneeland spent nearly all of his 24 years working to get to the N.F.L. He died two days after scoring his first touchdown.`\
-https://nytimes.com/2025/11/17/us/marshawn-kneeland-dallas-cowboys.html
-
-**Video Reveals How Far Wolves Will Go to Steal a Meal**\
-`After a wolf dragged a crab trap out of water to get a snack, some scientists said the behavior revealed their ability to use tools.`\
-https://nytimes.com/2025/11/17/science/wolf-tool-use-steal-food.html
 
