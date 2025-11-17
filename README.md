@@ -1,3 +1,7 @@
+**The Seahawks still believe in Sam Darnold — after another dud in a big game, should they?**\
+`The quarterback threw four interceptions in another long day against the rival Rams.`\
+https://nytimes.com/athletic/6813327/2025/11/16/sam-darnold-seattle-seahawks-interceptions-los-angeles-rams/
+
 **Trump Tariffs Push Japan’s Economy Into Contraction**\
 `The Japanese economy shrank by 1.8 percent compared to the same quarter last year, as U.S. tariffs dampened automobile exports and prompted a bleak outlook for growth.`\
 https://nytimes.com/2025/11/16/business/japan-economy-contraction.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6813184/2025/11/16/mariners-josh-naylor-five-year-d
 **Dehner Jr.: It's over for the 2025 Bengals, but what comes next?**\
 `Despite rare opportunities at every turn this year, for the 2025 Bengals, it's over after Sunday's loss in Pittsburgh.`\
 https://nytimes.com/athletic/6813160/2025/11/16/bengals-steelers-results-what-comes-next/
-
-**Ravens-Browns takeaways: Mark Andrews' TD run lifts Baltimore to fourth straight win**\
-`The Ravens (5-5) overcame a rickety offensive performance and climbed back to .500 after starting the season 1-4.`\
-https://nytimes.com/athletic/6812711/2025/11/16/ravens-browns-score-result-takeaways-nfl/
 
