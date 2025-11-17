@@ -1,3 +1,11 @@
+**Extracurricular Activities**\
+`On game day, every detail speaks. Nico Collins shares his ritual of preparation — a quiet, focused moment grounded by BLEU DE CHANEL L’EXCLUSIF, a fragrance that leaves a lasting impression.`\
+https://nytimes.com/paidpost/athletic/chanel/extracurricular-activities.html
+
+**Abdul Carter benched after sleeping through team walk-through: Sources**\
+`Being late to meetings has been a trend during Carter's rookie season.`\
+https://nytimes.com/athletic/6814523/2025/11/17/ny-giants-abdul-carter-benched-sleeping/
+
 **2 Charged in Over 300 Thefts at Mausoleums in Toronto Area**\
 `The thefts took place during the daytime when the pair would enter mausoleums to swipe necklaces and other jewelry from remains, the authorities said.`\
 https://nytimes.com/2025/11/17/world/americas/gta-mausoleum-cemeteries-theft-charges.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/17/climate/plastic-sea-turtles-animals-study.html
 **Why Britain Is Embracing ‘Negative Nation Branding’**\
 `Prime Minister Keir Starmer, trying to get a grip on a feverish immigration debate, is introducing a hard-line, contentious policy on refugees.`\
 https://nytimes.com/2025/11/17/world/europe/uk-immigration-asylum-refugee-starmer.html
-
-**Fed Governor Says Housing Official Worked With Trump to Smear Her**\
-`Lisa Cook, accused of fraud on mortgage papers, said in a letter that Bill Pulte, who referred her to the Justice Department, was doing President Trump’s dirty work.`\
-https://nytimes.com/2025/11/17/nyregion/lisa-cook-fed-trump-pulte.html
-
-**NFL survivor pool mailbag: Submit your questions for Week 12**\
-`Put your NFL survivor pool questions here and our experts will answer them in this week's advice column.`\
-https://nytimes.com/athletic/6815398/2025/11/17/nfl-survivor-pool-help-mailbag-week-12/
 

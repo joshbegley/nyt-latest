@@ -1,3 +1,11 @@
+**2 Charged in Over 300 Thefts at Mausoleums in Toronto Area**\
+`The thefts took place during the daytime when the pair would enter mausoleums to swipe necklaces and other jewelry from remains, the authorities said.`\
+https://nytimes.com/2025/11/17/world/americas/gta-mausoleum-cemeteries-theft-charges.html
+
+**Virginia Tech finalizing hiring James Franklin to be next coach: Reports**\
+`“We’re just going to go win the national championship somewhere else now," Franklin said a week after being fired.`\
+https://nytimes.com/athletic/6780867/2025/11/17/james-franklin-virginia-tech-coach-hire/
+
 **Trump and the ‘Donroe Doctrine’**\
 `The president is claiming a special U.S. sphere of influence in the Western Hemisphere.`\
 https://nytimes.com/2025/11/17/world/trump-donroe-doctrine-venezuela-saudi-mbs.html
