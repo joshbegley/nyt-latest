@@ -1,3 +1,5 @@
+
+
 **Chaos at the Justice Department**\
 `President Trump has transformed the agency. We look at what’s happening on the inside.`\
 https://nytimes.com/2025/11/17/briefing/chaos-at-the-justice-department.html
