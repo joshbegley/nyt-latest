@@ -1,3 +1,7 @@
+**Yankees agree to 1-year-deal with Ryan Yarbrough, adding depth to staff: Source**\
+`The Yankees need help in their rotation and bullpen. Yarbrough could provide a little of the former early, and a little of the latter later.`\
+https://nytimes.com/athletic/6814643/2025/11/17/ryan-yarbrough-yankees-sign-mlb-contract/
+
 **Trump Administration Releases Thousands of Amelia Earhart Files**\
 `More than 4,000 documents related to Earhart were posted online, but scholars were not impressed. The release coincides with a period of intensified interest in the disgraced financier Jeffrey Epstein and his connection to the president.`\
 https://nytimes.com/2025/11/17/us/politics/trump-amelia-earhart-flight-records.html
