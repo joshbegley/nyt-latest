@@ -1,3 +1,11 @@
+**In Pulpits and Pews, Catholic Churches Urge Compassion for Immigrants**\
+`Immigration was on the minds of priests and parishioners following a letter from the nation’s Catholic bishops decrying how immigrants are being treated.`\
+https://nytimes.com/2025/11/16/us/catholic-church-immigration-trump.html
+
+**Packers stave off Giants: What we learned about Jordan Love, Josh Jacobs and more**\
+`The Packers improved to 6-3-1 with a narrow 27-20 win over the Giants on a windy Sunday at MetLife Stadium.`\
+https://nytimes.com/athletic/6812941/2025/11/16/packers-jordan-love-josh-jacobs-giants/
+
 **Dozens of Australian Schools Close Over Asbestos Fears**\
 `Three-quarters of the schools in the area around the capital will be closed, although officials say the health risk from asbestos found in colored sand is low.`\
 https://nytimes.com/2025/11/16/world/australia/schools-asbestos-sand.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/16/obituaries/homayoun-ershadi-dead.html
 **Nigeria coach Chelle alleges DR Congo players practiced 'voodoo' during penalty shootout**\
 `A representative of DR Congo denied Chelle's claims when asked by The Athletic.`\
 https://nytimes.com/athletic/6812903/2025/11/16/nigeria-dr-congo-voodoo-penalty-shootout/
-
-**Latest U.S. Strike on Boat in Pacific Kills 3, Southern Command Says**\
-`The United States has carried out at least 21 strikes on boats the Trump administration accuses of smuggling drugs, killing at least 83 people.`\
-https://nytimes.com/2025/11/16/us/politics/strike-boat-pacific-caribbean.html
-
-**In Israel, Adams Raises Doubts About Safety of Jews in New York**\
-`In Tel Aviv, Mayor Eric Adams painted an alarming picture of his city under his successor, Zohran Mamdani, saying, “If I were a Jewish New Yorker, I’d be concerned about my children.”`\
-https://nytimes.com/2025/11/16/nyregion/eric-adams-israel-safety-mamdani.html
 

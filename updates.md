@@ -1,3 +1,19 @@
+**Dozens of Australian Schools Close Over Asbestos Fears**\
+`Three-quarters of the schools in the area around the capital will be closed, although officials say the health risk from asbestos found in colored sand is low.`\
+https://nytimes.com/2025/11/16/world/australia/schools-asbestos-sand.html
+
+**Why was Bears' Nahshon Wright so emotional after interception, win? 'I gained an angel'**\
+`With a heavy heart, Wright delivered a highlight-reel takeaway in tribute to his former coach, the late John Beam.`\
+https://nytimes.com/athletic/6812921/2025/11/16/bears-nahshon-wright-emotional-john-beam/
+
+**Carter Hart returning to hockey after 22 months, in AHL game**\
+`Hart remains ineligible to play in NHL games per the conditions of his reinstatement.`\
+https://nytimes.com/athletic/6810690/2025/11/16/carter-hart-ahl-golden-knights/
+
+**Raheem Morris takes blame as Falcons fall to Panthers: 'It definitely is on me'**\
+`The Falcons lost their fifth straight game on Sunday, allowing Bryce Young to throw for a Panthers-record 448 yards.`\
+https://nytimes.com/athletic/6812926/2025/11/16/falcons-panthers-raheem-morris-michael-penix/
+
 **49ers-Cardinals takeaways: Purdy shines in return, Kittle scores twice**\
 `Jacoby Brissett completed an NFL-record 47 passes, but San Francisco's offense rolled in Purdy's first game in weeks`\
 https://nytimes.com/athletic/6812572/2025/11/16/49ers-cardinals-score-result-takeaways-nfl/
