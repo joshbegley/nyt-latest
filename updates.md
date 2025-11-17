@@ -1,3 +1,7 @@
+**Week 13 bowl projections: Why UNC could still receive a bowl bid**\
+`Multiple things need to break right, but UNC could potentially earn a postseason bid. `\
+https://nytimes.com/athletic/6812621/2025/11/17/college-football-bowl-projections-week-13/
+
 **Pirelli enforces maximum stint length for Qatar GP over tire wear concerns**\
 `The Lusail International Circuit in Qatar is one of the most demanding tracks for tires in F1 due to the number of high-speed corners.`\
 https://nytimes.com/athletic/6813952/2025/11/17/qatar-gp-pirelli-tire-wear-f1/
