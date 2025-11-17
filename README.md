@@ -1,3 +1,11 @@
+**Trump Announces U.S. Will Sell F-35s to Saudi Arabia**\
+`President Trump told reporters on Monday that he planned to sell F-35 fighter jets to Saudi Arabia, against the guidance from national security officials in his own administration.`\
+https://nytimes.com/video/us/politics/100000010529678/trump-f35-saudi-arabia.html
+
+**‘Commander Butcher’ Admits Trying to Spur Hate Attack in New York**\
+`Michail Chkhikvishvili, a Georgian man, pleaded guilty in Brooklyn on Monday. He led the Maniac Murder Cult, an online neo-Nazi group blamed for eruptions of violence around the world.`\
+https://nytimes.com/2025/11/17/nyregion/commander-butcher-guilty-plea.html
+
 **Trump Bows to Reality in Epstein Reversal, Beating a Rare Retreat**\
 `Faced with a mass defection on a bill to demand the release of the Epstein files, the president rushed to avoid an embarrassing loss, suggesting a slip in his iron grip on the G.O.P.`\
 https://nytimes.com/2025/11/17/us/politics/trump-epstein-republicans-vote.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6815513/2025/11/17/lakers-lebron-james-return-nba/
 **Michael Penix Jr. out at least a month, season in doubt after another knee injury**\
 `Penix will miss at least four games and could be out for the season after suffering a knee injury. Kirk Cousins will start in his place.`\
 https://nytimes.com/athletic/6815521/2025/11/17/michael-penix-falcons-injury-ir-kirk-cousins/
-
-**In Major Breakthrough, U.N. Security Council Adopts U.S. Peace Plan for Gaza**\
-`Russia and China abstained. The vote provides a legal mandate for the Trump administration’s vision of how to move past the cease-fire to rebuild the war-ravaged enclave after two years of war.`\
-https://nytimes.com/2025/11/17/world/middleeast/un-security-council-gaza-peace-plan.html
-
-**NHL encouraging teams to play more color-on-color jersey matchups**\
-`The Rangers and Red Wings played on Sunday while wearing their centennial jerseys, New York in blue and Detroit in red.`\
-https://nytimes.com/athletic/6815445/2025/11/17/nhl-color-on-color-jersey-matchups/
 
