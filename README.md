@@ -1,3 +1,7 @@
+**Trump Says House Republicans Should Vote to Release Epstein Files**\
+`President Trump reversed himself by calling on the House of Representatives to vote to release files related to the convicted sex offender Jeffrey Epstein.`\
+https://nytimes.com/2025/11/16/us/politics/trump-epstein-files-release-vote.html
+
 **‘It: Welcome to Derry’ Season 1, Episode 4 Recap: Origin of the Species**\
 `Leroy gets a glimpse of the thing that terrorized his son. Viewers get a glimpse of the monster’s origins in Derry.`\
 https://nytimes.com/2025/11/16/arts/television/it-welcome-to-derry-recap-season-1-episode-4.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6812711/2025/11/16/ravens-browns-score-result-takea
 **Another big W in the ATL: Bryce Young silences doubters, breaks Cam's record — 'He's a baller'**\
 `Young battled an ankle injury throughout the game, but still threw for a franchise-record 448 yards and three TDs.`\
 https://nytimes.com/athletic/6813087/2025/11/16/panthers-bryce-young-beat-falcons/
-
-**How Cairo Santos, Bears special teams rebounded to pull off another wild win**\
-`Bears special teams miscues in the fourth quarter helped the Vikings claw back, but then Bears special teams came through for the win.`\
-https://nytimes.com/athletic/6813022/2025/11/16/bears-cairo-santos-devin-duvernay-vikings/
 

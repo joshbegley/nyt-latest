@@ -1,3 +1,11 @@
+**‘It: Welcome to Derry’ Season 1, Episode 4 Recap: Origin of the Species**\
+`Leroy gets a glimpse of the thing that terrorized his son. Viewers get a glimpse of the monster’s origins in Derry.`\
+https://nytimes.com/2025/11/16/arts/television/it-welcome-to-derry-recap-season-1-episode-4.html
+
+**Marta won't exit quietly: 'It should not end like this'**\
+`The Brazilian star took exception to the referee's call that resulted in the Orlando Pride's loss to Gotham in the NWSL semifinals Sunday.`\
+https://nytimes.com/athletic/6813233/2025/11/16/marta-orlando-pride-nwsl-semifinals/
+
 **Marta won't exit quietly: 'It should not end like this'**\
 `The Brazilian star took exception to the referee's call that resulted in the Orlando Pride losing to Gotham in the NWSL semifinals Sunday.`\
 https://nytimes.com/athletic/6813233/2025/11/16/marta-orlando-pride-nwsl-semifinals/

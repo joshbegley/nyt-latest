@@ -1,5 +1,9 @@
+**‘It: Welcome to Derry’ Season 1, Episode 4 Recap: Origin of the Species**\
+`Leroy gets a glimpse of the thing that terrorized his son. Viewers get a glimpse of the monster’s origins in Derry.`\
+https://nytimes.com/2025/11/16/arts/television/it-welcome-to-derry-recap-season-1-episode-4.html
+
 **Marta won't exit quietly: 'It should not end like this'**\
-`The Brazilian star took exception to the referee's call that resulted in the Orlando Pride losing to Gotham in the NWSL semifinals Sunday.`\
+`The Brazilian star took exception to the referee's call that resulted in the Orlando Pride's loss to Gotham in the NWSL semifinals Sunday.`\
 https://nytimes.com/athletic/6813233/2025/11/16/marta-orlando-pride-nwsl-semifinals/
 
 **‘It’s a Culture Now of Fear: A Year of Chaos Inside the Justice Department’**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6813087/2025/11/16/panthers-bryce-young-beat-falcon
 **How Cairo Santos, Bears special teams rebounded to pull off another wild win**\
 `Bears special teams miscues in the fourth quarter helped the Vikings claw back, but then Bears special teams came through for the win.`\
 https://nytimes.com/athletic/6813022/2025/11/16/bears-cairo-santos-devin-duvernay-vikings/
-
-**J.J. McCarthy's inaccuracy dooms Vikings vs. Bears, creates uncertainty for the future**\
-`McCarthy struggled again on Sunday, and now the Vikings should be focused on finding out if the young quarterback can be the guy in 2026.`\
-https://nytimes.com/athletic/6813050/2025/11/16/vikings-bears-jj-mccarthy-accuracy-future/
 
