@@ -1,40 +1,40 @@
-**How to watch Knicks vs. Heat: Time, TV, streaming**\
-`Find out how to watch the New York Knicks play the Miami Heat, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6815321/2025/11/17/knicks-vs-heat-stream-how-to-watch-nov-17/
+**How to watch Syracuse vs. Notre Dame: Time, TV, streaming**\
+`Find out how to watch the Syracuse Orange play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815389/2025/11/17/syracuse-vs-notre-dame-stream-how-to-watch-nov-22/
 
-**How to watch Mavericks vs. Timberwolves: Time, TV, streaming**\
-`Find out how to watch the Dallas Mavericks play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6815319/2025/11/17/mavericks-vs-timberwolves-stream-how-to-watch-nov-17/
+**How to watch Kentucky vs. Vanderbilt: Time, TV, streaming**\
+`Find out how to watch the Kentucky Wildcats play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815385/2025/11/17/kentucky-vs-vanderbilt-stream-how-to-watch-nov-22/
 
-**How to watch Bulls vs. Nuggets: Time, TV, streaming**\
-`Find out how to watch the Chicago Bulls play the Denver Nuggets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6815317/2025/11/17/bulls-vs-nuggets-stream-how-to-watch-nov-17/
+**How to watch Arkansas vs. Texas: Time, TV, streaming**\
+`Find out how to watch the Arkansas Razorbacks play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815381/2025/11/17/arkansas-vs-texas-stream-how-to-watch-nov-22/
 
-**How to watch Thunder vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the Oklahoma City Thunder play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6815316/2025/11/17/thunder-vs-pelicans-stream-how-to-watch-nov-17/
+**How to watch Miami (FL) vs. Virginia Tech: Time, TV, streaming**\
+`Find out how to watch the Miami (FL) Hurricanes play the Virginia Tech Hokies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815377/2025/11/17/miami-fl-vs-virginia-tech-stream-how-to-watch-nov-22/
 
-**How to watch Hornets vs. Raptors: Time, TV, streaming**\
-`Find out how to watch the Charlotte Hornets play the Toronto Raptors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6815313/2025/11/17/hornets-vs-raptors-stream-how-to-watch-nov-17/
+**How to watch Washington State vs. James Madison: Time, TV, streaming**\
+`Find out how to watch the Washington State Cougars play the James Madison Dukes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815375/2025/11/17/washington-state-vs-james-madison-stream-how-to-watch-nov-22/
 
-**How to watch Canadiens vs. Blue Jackets: Time, TV, streaming**\
-`Find out how to watch the Montreal Canadiens play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6815311/2025/11/17/canadiens-vs-blue-jackets-stream-how-to-watch-nov-17/
+**How to watch Charlotte vs. Georgia: Time, TV, streaming**\
+`Find out how to watch the Charlotte 49ers play the Georgia Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815373/2025/11/17/charlotte-vs-georgia-stream-how-to-watch-nov-22/
 
-**How to watch Mammoth vs. Ducks: Time, TV, streaming**\
-`Find out how to watch the Utah Mammoth play the Anaheim Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6815309/2025/11/17/mammoth-vs-ducks-stream-how-to-watch-nov-17/
+**How to watch USC vs. Oregon: Time, TV, streaming**\
+`Find out how to watch the USC Trojans play the Oregon Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815371/2025/11/17/usc-vs-oregon-stream-how-to-watch-nov-22/
 
-**From Personal Computers to Computing That’s Truly Personal **\
-`Our latest innovations show that Lenovo is helping create a world where computing revolves around you. `\
-https://nytimes.com/paidpost/2025-10-17/lenovo/personal-computers-to-computing-that-is-personal.html
+**How to watch Duke vs. North Carolina: Time, TV, streaming**\
+`Find out how to watch the Duke Blue Devils play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815369/2025/11/17/duke-vs-north-carolina-stream-how-to-watch-nov-22/
 
-**Former Bangladesh Prime Minister Is Sentenced to Death**\
-`Sheikh Hasina, who is living in exile in India, was convicted in absentia of crimes against humanity during a brutal crackdown on student-led protests in 2024.`\
-https://nytimes.com/video/world/asia/100000010528062/bangladesh-sheikh-hasina-death-sentence.html
+**How to watch Michigan State vs. Iowa: Time, TV, streaming**\
+`Find out how to watch the Michigan State Spartans play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815367/2025/11/17/michigan-state-vs-iowa-stream-how-to-watch-nov-22/
 
-**How to watch SIU-Edwardsville vs. Wisconsin men's basketball: Time, TV, streaming**\
-`Find out how to watch the SIU-Edwardsville Cougars play the Wisconsin Badgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6815270/2025/11/17/siu-edwardsville-vs-wisconsin-stream-how-to-watch-nov-17/
+**How to watch Minnesota vs. Northwestern: Time, TV, streaming**\
+`Find out how to watch the Minnesota Golden Gophers play the Northwestern Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815363/2025/11/17/minnesota-vs-northwestern-stream-how-to-watch-nov-22/
 
