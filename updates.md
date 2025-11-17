@@ -1,3 +1,11 @@
+**Inside Barcelona: Fallout from Messi's secret Camp Nou visit, could they really be in for Kane?**\
+`Could Messi play a role in Barca's upcoming presidential elections? Plus: why talk of a move for the England captain could be premature`\
+https://nytimes.com/athletic/6814208/2025/11/17/inside-barcelona-messi-kane-camp-nou/
+
+**Trump Calls on House Republicans to Release the Epstein Files**\
+`After weeks campaigning against a bill that would compel the Justice Department to release files related to Jeffrey Epstein, President Trump reversed his stance and urged House Republicans to back the measure.`\
+https://nytimes.com/video/us/politics/100000010527999/trump-epstein-files-vote-mtg.html
+
 **Tom Cruise Accepts an Honorary Oscar at the Governors Awards**\
 `The star was feted along with Debbie Allen, Dolly Parton and the production designer Wynn Thomas at a show that has become an awards campaign stop.`\
 https://nytimes.com/2025/11/17/movies/governors-awards-2025-tom-cruise.html
