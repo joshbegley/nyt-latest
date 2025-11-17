@@ -1,3 +1,11 @@
+**A Day at the Beach Hunting Mammoths**\
+`“Citizen paleontologists” can keep the fossils they uncover around Europe’s largest port. All the professionals ask is that those amateurs let them know.`\
+https://nytimes.com/2025/11/17/arts/design/rotterdam-fossils-maasvlakte-2.html
+
+**Paralympic champion cyclist Paige Greco dies aged 28**\
+`Greco won one gold and two bronze medals at the Tokyo 2020 Games across both track and road cycling disciplines.`\
+https://nytimes.com/athletic/6813915/2025/11/17/paige-greco-dies-paralympics-cycling/
+
 **How to watch Bills vs. Texans: Time, TV, streaming**\
 `Find out how to watch the Buffalo Bills play the Houston Texans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6813945/2025/11/17/bills-vs-texans-stream-how-to-watch-nov-20/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/17/fashion/suit-blazer-trousers.html
 **The ‘Donroe Doctrine’: Trump’s Bid to Control the Western Hemisphere**\
 `President Trump has tightened the U.S. grip on the Americas by rewarding allies and punishing rivals. That has upended the region’s politics.`\
 https://nytimes.com/2025/11/17/world/americas/trump-latin-america-monroe-doctrine.html
-
-**In a Billionaire’s Playground, Six Artworks Could Predict the Market**\
-`The art market had a summer of closures and consolidations. But major collections, blue-chip art and guarantees have pushed expectations high for the marquee sales.`\
-https://nytimes.com/2025/11/17/arts/design/artworks-auction-market-toilet-klimt.html
-
-**Hurricane Melissa Evacuees Return to Guantánamo Base**\
-`The storm and the government shutdown halted court sessions and deportation operations at the outpost in Cuba for weeks.`\
-https://nytimes.com/2025/11/17/us/politics/hurricane-melissa-guantanamo-base.html
 
