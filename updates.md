@@ -1,3 +1,7 @@
+**3 Charged With Trying to Bribe Juror in Boxer’s Drug Smuggling Case**\
+`The defendants contacted a man on the jury and arranged to meet him on Staten Island, where they offered $100,000 for an acquittal, prosecutors say. A new jury will be anonymous.`\
+https://nytimes.com/2025/11/17/nyregion/brooklyn-boxer-jury-bribery-charges.html
+
 **Deion Sanders was left in tears after learning of Shedeur Sanders' NFL debut**\
 `Sanders was at a coaching clinic when he heard the news. Shedeur completed 4 of 16 passes for 47 yards in a 23-16 loss to the Ravens.`\
 https://nytimes.com/athletic/6815046/2025/11/17/deion-sanders-reaction-shedeur-sanders-debut-nfl/

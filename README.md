@@ -1,3 +1,7 @@
+**High Hamburger Prices? White House Blames Biden and Migrants.**\
+`Treasury Secretary Scott Bessent said migrants were bringing sick cows across the border, snarling beef supply chains.`\
+https://nytimes.com/2025/11/17/us/politics/hamburger-beef-prices-trump.html
+
 **3 Charged With Trying to Bribe Juror in Boxer’s Drug Smuggling Case**\
 `The defendants contacted a man on the jury and arranged to meet him on Staten Island, where they offered $100,000 for an acquittal, prosecutors say. A new jury will be anonymous.`\
 https://nytimes.com/2025/11/17/nyregion/brooklyn-boxer-jury-bribery-charges.html
@@ -21,8 +25,4 @@ https://nytimes.com/2025/11/17/world/europe/serbia-hunger-striker.html
 **What Questions Do You Have About U.S. Immigration Policies?**\
 `“Ask a Correspondent” will take your questions to Hamed Aleaziz, our immigration reporter.`\
 https://nytimes.com/2025/11/17/world/ask-a-correspondent-questions-immigration.html
-
-**Craig Berube is turning up the heat on the scuffling Leafs: 'Just do it!'**\
-`With the Maple Leafs on a five-game losing streak, Craig Berube was as angry and vocal as he’s been all season at Monday's practice.`\
-https://nytimes.com/athletic/6814912/2025/11/17/craig-berube-maple-leafs-practice/
 
