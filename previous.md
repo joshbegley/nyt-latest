@@ -32,9 +32,9 @@ https://nytimes.com/athletic/6757362/2025/11/17/paul-george-injury-76ers-status-
 
 **Teeing Off with Jordan Ford**\
 `What golf can teach us about investing, featuring pro golfer Neal Shipley, financial content creator Humphrey Yang, and Fidelity SVP Jordan Ford.`\
-https://nytimes.com/paidpost/fidelity-teeing-off-video-3/teeing-off/teeing-off-with-jordan-ford.html
+https://nytimes.com/paidpost/athletic/fidelity/teeing-off-3.html
 
 **Teeing Off with Humphrey Yang**\
 `What golf can teach us about investing, featuring pro golfer Neal Shipley, financial content creator Humphrey Yang, and Fidelity SVP Jordan Ford.`\
-https://nytimes.com/paidpost/fidelity-teeing-off-video-2/teeing-off/teeing-off-with-humphrey-yang.html
+https://nytimes.com/paidpost/athletic/fidelity/teeing-off-2.html
 

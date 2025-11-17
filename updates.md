@@ -1,3 +1,11 @@
+**Teeing Off with Jordan Ford**\
+`What golf can teach us about investing, featuring pro golfer Neal Shipley, financial content creator Humphrey Yang, and Fidelity SVP Jordan Ford.`\
+https://nytimes.com/paidpost/athletic/fidelity/teeing-off-3.html
+
+**Teeing Off with Humphrey Yang**\
+`What golf can teach us about investing, featuring pro golfer Neal Shipley, financial content creator Humphrey Yang, and Fidelity SVP Jordan Ford.`\
+https://nytimes.com/paidpost/athletic/fidelity/teeing-off-2.html
+
 **Michigan RB Justice Haynes unlikely to return during the regular season**\
 `Haynes, who topped 100 yards in six of his seven starts this season, has missed the last two games with a foot injury.`\
 https://nytimes.com/athletic/6814945/2025/11/17/michigan-rb-justice-haynes-ohio-state-injury-unlikely-return/
