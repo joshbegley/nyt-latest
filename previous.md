@@ -1,3 +1,7 @@
+**Middlesbrough finalising deal to appoint Hammarby coach Hellberg after Edwards exit**\
+`Hellberg, a 37-year-old Swedish coach, has just guided Hammarby to a second-place finish in the Swedish top division.`\
+https://nytimes.com/athletic/6814111/2025/11/17/middlesbrough-manager-hellberg/
+
 **Chaos at the Justice Department**\
 `President Trump has transformed the agency. We look at what’s happening on the inside.`\
 https://nytimes.com/2025/11/17/briefing/chaos-at-the-justice-department.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6812556/2025/11/17/lane-kiffin-ole-miss-coaching-ca
 **Browns rookie Shedeur Sanders wasn't playing for a reason. We just saw why**\
 `The absurd discourse of the past six months that Cleveland was setting Sanders up to fail was put to rest after 30 bad minutes vs. Ravens.`\
 https://nytimes.com/athletic/6813524/2025/11/17/browns-ravens-shedeur-sanders-debut/
-
-**Who could the Senators target for their defence with Chabot still injured? Notebook**\
-`Plus, how the Senators became the league's best faceoff team, including Tim Stützle at over 60 percent.`\
-https://nytimes.com/athletic/6810718/2025/11/17/senators-defence-targets-chabot-faceoffs/
 

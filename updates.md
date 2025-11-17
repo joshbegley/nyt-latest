@@ -1,3 +1,7 @@
+**Middlesbrough finalising deal to appoint Hammarby coach Hellberg after Edwards exit**\
+`Hellberg, a 37-year-old Swedish coach, has just guided Hammarby to a second-place finish in the Swedish top division.`\
+https://nytimes.com/athletic/6814111/2025/11/17/middlesbrough-manager-hellberg/
+
 **Chaos at the Justice Department**\
 `President Trump has transformed the agency. We look at what’s happening on the inside.`\
 https://nytimes.com/2025/11/17/briefing/chaos-at-the-justice-department.html
