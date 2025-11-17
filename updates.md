@@ -1,3 +1,11 @@
+**U.S. Airport Restrictions to End Monday**\
+`The administrator of the F.A.A. said that attendance among air traffic controllers had improved. New data suggested that some airlines had not been complying with the flight cuts in recent days.`\
+https://nytimes.com/2025/11/16/us/politics/faa-ends-airport-restrictions-monday.html
+
+**Rams beat Seahawks for NFC West lead; Darnold throws 4 INTs**\
+`Seattle kicker Jason Myers missed a 61-yard field goal attempt that would have beaten the Rams at the last second.`\
+https://nytimes.com/athletic/6812058/2025/11/16/seahawks-rams-score-result-takeaways-nfl/
+
 **Who are the Chicago Bears? They're winners and they're not apologizing**\
 `We've heard enough apologies from this organization over the years. After their seventh win, it's clear these are not the same old Bears.`\
 https://nytimes.com/athletic/6812983/2025/11/16/bears-vikings-comeback-victory-caleb-williams/
