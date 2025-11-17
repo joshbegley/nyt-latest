@@ -1,3 +1,7 @@
+**Josh Allen’s Six Touchdowns Lift Bills Past Buccaneers**\
+`The Buffalo Bills pulled out a 44-32 win over the Tampa Bay Buccaneers in a seesaw battle on Sunday.`\
+https://nytimes.com/video/the-athletic/100000010527512/josh-allens-six-touchdowns-lift-bills-past-buccaneers.html
+
 **Homayoun Ershadi, 78, Dies; ‘Kite Runner’ and ‘Taste of Cherry’ Star**\
 `He was an architect with no training as an actor whose life was changed by a chance encounter. He inspired rave reviews and a New Yorker short story.`\
 https://nytimes.com/2025/11/16/obituaries/homayoun-ershadi-dead.html
