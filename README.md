@@ -1,3 +1,11 @@
+**Ole Miss gives Lane Kiffin deadline of Egg Bowl to decide coaching fate**\
+`Lane Kiffin is in demand. Ole Miss wants an answer — soon.`\
+https://nytimes.com/athletic/6815449/2025/11/17/lane-kiffin-ole-miss-deadline-lsu-florida-egg-bowl/
+
+**Victor Wembanyama suffers calf injury, will miss at least 2-3 weeks: Source**\
+`The injury will sideline the all-world Spurs star for an extended period of time. `\
+https://nytimes.com/athletic/6815518/2025/11/17/victor-wembanyama-injury-update-left-calf-strain-spurs/
+
 **Met Returns Buddhist Painting Thought Taken During the Korean War**\
 `The 18th-century painting, which the Met acquired in 2007, is believed to have been removed from a South Korean temple while it was controlled by the U.S. Army.`\
 https://nytimes.com/2025/11/17/arts/met-museum-korea-repatriation.html
@@ -14,6 +22,10 @@ https://nytimes.com/athletic/6812843/2025/11/17/jamarr-chase-suspended-spit-jale
 `In an extraordinary news conference, Trump warned host cities including Seattle and Los Angeles may lose their games over "safety" concerns.`\
 https://nytimes.com/athletic/6815440/2025/11/17/donald-trump-infantino-fifa-pass-world-cup/
 
+**Ranking college football's 11 open coaching jobs: LSU No. 1; where does Auburn sit?**\
+`This could be the most active coaching carousel college football has seen in many years.`\
+https://nytimes.com/athletic/6662286/2025/11/17/college-football-open-coaching-jobs-rankings/
+
 **Extracurricular Activities**\
 `On game day, every detail speaks. Nico Collins shares his ritual of preparation — a quiet, focused moment grounded by BLEU DE CHANEL L’EXCLUSIF, a fragrance that leaves a lasting impression.`\
 https://nytimes.com/paidpost/athletic/chanel/extracurricular-activities.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6814523/2025/11/17/ny-giants-abdul-carter-benched-s
 **2 Charged in Over 300 Thefts at Mausoleums in Toronto Area**\
 `The thefts took place during the daytime when the pair would enter mausoleums to swipe necklaces and other jewelry from remains, the authorities said.`\
 https://nytimes.com/2025/11/17/world/americas/gta-mausoleum-cemeteries-theft-charges.html
-
-**Virginia Tech finalizing hiring James Franklin to be next coach: Source**\
-`“We’re just going to go win the national championship somewhere else now," Franklin said a week after being fired.`\
-https://nytimes.com/athletic/6780867/2025/11/17/james-franklin-virginia-tech-coach-hire/
-
-**Trump and the ‘Donroe Doctrine’**\
-`The president is claiming a special U.S. sphere of influence in the Western Hemisphere.`\
-https://nytimes.com/2025/11/17/world/trump-donroe-doctrine-venezuela-saudi-mbs.html
-
-**Tee Off**\
-`What Golf Can Teach Us About Investing`\
-https://nytimes.com/paidpost/fidelity/teeing-off/tee-off.html
 
