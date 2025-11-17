@@ -1,4 +1,8 @@
 **Trump Says House Republicans Should Vote to Release Epstein Files**\
+`President Trump reversed himself by calling on the House of Representatives to vote for the release of files related to the convicted sex offender Jeffrey Epstein.`\
+https://nytimes.com/2025/11/16/us/politics/trump-epstein-files-release-vote.html
+
+**Trump Says House Republicans Should Vote to Release Epstein Files**\
 `President Trump reversed himself by calling on the House of Representatives to vote to release files related to the convicted sex offender Jeffrey Epstein.`\
 https://nytimes.com/2025/11/16/us/politics/trump-epstein-files-release-vote.html
 
