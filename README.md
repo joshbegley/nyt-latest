@@ -1,3 +1,7 @@
+**NFL playoff picture, Week 11: Broncos bust Chiefs' division hopes; Rams team to beat in NFC?**\
+`The Broncos and Rams look to be in control out West. Is it time to take the Bears' playoff hopes seriously? `\
+https://nytimes.com/athletic/6794845/2025/11/16/nfl-playoff-picture-week-11-broncos-chiefs/
+
 **A preview of The Athletic’s live coverage this week**\
 `Our live coverage this week includes the North London derby, USC vs. Oregon and Bucs vs. Rams on "Sunday Night Football."`\
 https://nytimes.com/athletic/6807784/2025/11/16/live-coverage-cowboys-arsenal-tottenham-usc/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6812739/2025/11/16/wild-boldy-trenin-defense-golden
 **Trump Defends Tucker Carlson After Nick Fuentes Interview**\
 `President Trump defended Mr. Carlson’s friendly interview with an openly antisemitic white supremacist that prompted denunciations from some on the right.`\
 https://nytimes.com/2025/11/16/us/politics/trump-tucker-carlson-nick-fuentes.html
-
-**Bills' offense explodes with Gabe Davis, Josh Allen together again; why it should stay that way**\
-`Gabe Davis had a big impact on the offense in his first game this season. `\
-https://nytimes.com/athletic/6813144/2025/11/16/bills-allen-davis-offense-future/
 

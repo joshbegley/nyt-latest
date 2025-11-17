@@ -1,3 +1,11 @@
+**A preview of The Athletic’s live coverage this week**\
+`Our live coverage this week includes the North London derby, USC vs. Oregon and Bucs vs. Rams on "Sunday Night Football."`\
+https://nytimes.com/athletic/6807784/2025/11/16/live-coverage-cowboys-arsenal-tottenham-usc/
+
+**Draymond Green confronts fan during Warriors-Pelicans after being heckled**\
+`Draymond Green said he usually doesn't have an issue with taunts on the road, but Sunday against the Pelicans proved different.`\
+https://nytimes.com/athletic/6813461/2025/11/16/draymond-green-fan-confrontation-angel-reese-taunts/
+
 **Brock Purdy has 49ers offense feeling like it can carry the load after easy win over Cardinals**\
 `The 49ers have their franchise quarterback back. "He was vintage Brock," Christian McCaffrey said. "That's a huge compliment."`\
 https://nytimes.com/athletic/6813392/2025/11/16/brock-purdy-49ers-offense-confidence-easy-win-cardinals/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/16/us/politics/trump-tucker-carlson-nick-fuentes.htm
 **Bills' offense explodes with Gabe Davis, Josh Allen together again; why it should stay that way**\
 `Gabe Davis had a big impact on the offense in his first game this season. `\
 https://nytimes.com/athletic/6813144/2025/11/16/bills-allen-davis-offense-future/
-
-**The Seahawks still believe in Sam Darnold — after another dud in a big game, should they?**\
-`The quarterback threw four interceptions in another long day against the rival Rams.`\
-https://nytimes.com/athletic/6813327/2025/11/16/sam-darnold-seattle-seahawks-interceptions-los-angeles-rams/
-
-**Trump Tariffs Push Japan’s Economy Into Contraction**\
-`The Japanese economy shrank by 1.8 percent compared to the same quarter last year, as U.S. tariffs dampened automobile exports and prompted a bleak outlook for growth.`\
-https://nytimes.com/2025/11/16/business/japan-economy-contraction.html
 

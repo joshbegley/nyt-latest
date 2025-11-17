@@ -1,3 +1,11 @@
+**A preview of The Athletic’s live coverage this week**\
+`Our live coverage this week includes the North London derby, USC vs. Oregon and Bucs vs. Rams on "Sunday Night Football."`\
+https://nytimes.com/athletic/6807784/2025/11/16/live-coverage-cowboys-arsenal-tottenham-usc/
+
+**Draymond Green confronts fan during Warriors-Pelicans after being heckled**\
+`Draymond Green said he usually doesn't have an issue with taunts on the road, but Sunday against the Pelicans proved different.`\
+https://nytimes.com/athletic/6813461/2025/11/16/draymond-green-fan-confrontation-angel-reese-taunts/
+
 **Brock Purdy has 49ers offense feeling like it can carry the load after easy win over Cardinals**\
 `The 49ers have their franchise quarterback back. "He was vintage Brock," Christian McCaffrey said. "That's a huge compliment."`\
 https://nytimes.com/athletic/6813392/2025/11/16/brock-purdy-49ers-offense-confidence-easy-win-cardinals/
