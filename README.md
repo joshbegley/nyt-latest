@@ -1,3 +1,11 @@
+**There’s a New Effort on the Runway to Raise Climate Funds**\
+`A small group of countries is aiming to impose a fee on private jets and premium commercial fares. The revenue would help nations adapt to warming.`\
+https://nytimes.com/2025/11/17/climate/private-jet-tax-climate.html
+
+**Fantasy football Week 11 recap, early waivers speed run: Drake London, Jaylen Warren**\
+`Jake Ciely's Week 11 recap podcast, featuring backfield shakeups, injury news and one Packers' wide receiver who should be rostered. `\
+https://nytimes.com/athletic/6814476/2025/11/17/fantasy-football-week-11-recap-early-waivers-speed-run-drake-london-jaylen-warren/
+
 **Penix Jr. may miss rest of season after suffering knee injury vs. Panthers**\
 `The injury continues a troubling trend of knee ailments that dates back to college.`\
 https://nytimes.com/athletic/6814651/2025/11/17/michael-penix-falcons-season-ending-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6814323/2025/11/17/nba-power-rankings-pistons-thund
 **Do You Know These Award-Winning Books?**\
 `Try this short quiz to match the descriptions of past National Book Award winners with their titles and authors.`\
 https://nytimes.com/interactive/2025/11/17/books/book-awards-quiz.html
-
-**Yankees agree to 1-year-deal with Ryan Yarbrough, adding depth to staff: Source**\
-`The Yankees need help in their rotation and bullpen. Yarbrough could provide a little of the former early, and a little of the latter later.`\
-https://nytimes.com/athletic/6814643/2025/11/17/ryan-yarbrough-yankees-sign-mlb-contract/
-
-**Trump Administration Releases Thousands of Amelia Earhart Files**\
-`More than 4,000 documents related to Earhart were posted online, but scholars were not impressed. The release coincides with a period of intensified interest in the disgraced financier Jeffrey Epstein and his connection to the president.`\
-https://nytimes.com/2025/11/17/us/politics/trump-amelia-earhart-flight-records.html
 
