@@ -1,3 +1,11 @@
+**Alex Freeman details USMNT's fight vs. Paraguay and the battle scars that prove a point**\
+`Freeman was bloodied in the scuffle at the end of the USMNT's win over Paraguay – a moment that made his NFL great of a father proud`\
+https://nytimes.com/athletic/6814656/2025/11/17/alex-freeman-usmnt-paraguay-fight/
+
+**Lakers' G League coach: Seeing 'LeBron James' typed in practice plans was 'pretty crazy'**\
+`South Bay Lakers head coach Zach Guthrie described how LeBron James' brief stint with the G League team lifted players and coaches.`\
+https://nytimes.com/athletic/6814659/2025/11/17/lebron-james-lakers-g-league-coach/
+
 **Paul George to return to 76ers lineup Monday after offseason knee injury**\
 `George's return provides the 7-5 Sixers with much-needed reinforcements.  `\
 https://nytimes.com/athletic/6757362/2025/11/17/paul-george-injury-76ers-status-knee/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6814497/2025/11/17/tennis-us-open-tournament-direct
 **Bill Ivey, Who Soothed Critics of Federal Arts Agency, Dies at 81**\
 `By reducing the National Endowment for the Arts’s focus on avant-garde work, he eased conservative anger and won increased funding.`\
 https://nytimes.com/2025/11/17/arts/bill-ivey-dead.html
-
-**Trump’s New Take on the Epstein Files**\
-`Readers react to developments in the Jeffrey Epstein case. Also: A teacher’s suspension.`\
-https://nytimes.com/2025/11/17/opinion/trump-epstein.html
-
-**Man Who Rushed Ariana Grande on ‘Wicked’ Red Carpet Is Put in Jail**\
-`Johnson Wen, an Australian influencer, was sentenced to nine days in jail after jumping a barricade and lunging at Ariana Grande at the Asia-Pacific premiere of “Wicked: For Good” in Singapore on Thursday.`\
-https://nytimes.com/video/world/asia/100000010528204/ariana-grande-singapore-fan-attack.html
 
