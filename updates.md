@@ -1,3 +1,7 @@
+**Trump Tariffs Push Japan’s Economy Into Contraction**\
+`The Japanese economy shrank by 1.8 percent compared to the same quarter last year, as U.S. tariffs dampened automobile exports and prompted a bleak outlook for growth.`\
+https://nytimes.com/2025/11/16/business/japan-economy-contraction.html
+
 **Trump Says House Republicans Should Vote to Release Epstein Files**\
 `President Trump reversed himself by calling on the House of Representatives to vote for the release of files related to the convicted sex offender Jeffrey Epstein.`\
 https://nytimes.com/2025/11/16/us/politics/trump-epstein-files-release-vote.html
