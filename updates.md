@@ -1,5 +1,9 @@
 **Bangladesh Court Sentences Former Leader Sheikh Hasina to Death**\
 `The former prime minister, who fled to India last year, was tried in absentia for ordering the use of lethal weapons during the uprising that drove her from power.`\
+https://nytimes.com/2025/11/17/world/asia/bangladesh-sheikh-hasina-death-sentence.html
+
+**Bangladesh Court Sentences Former Leader Sheikh Hasina to Death**\
+`The former prime minister, who fled to India last year, was tried in absentia for ordering the use of lethal weapons during the uprising that drove her from power.`\
 https://nytimes.com/2025/11/17/world/asia/bangladesh-court-sentences-former-leader-sheikh-hasina-to-death.html
 
 **Jeff Bezos Creates A.I. Start-Up Where He Will Be Co-Chief Executive**\
