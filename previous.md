@@ -1,3 +1,15 @@
+**NFL reviewing apparent spit from Ja'Marr Chase in dust-up with Jalen Ramsey, Steelers: Source**\
+`A field camera appeared to show Chase spitting on Ramsey, and the Steelers DB was ejected for throwing a punch. The NFL could suspend Chase.`\
+https://nytimes.com/athletic/6814337/2025/11/17/jamarr-chase-jalen-ramsey-bengals-steelers-spit-punch/
+
+**With Ukraine’s Cash Running Low, Europe Lacks a Good Plan B**\
+`The European Union wants to finance Ukraine’s war efforts using a loan based on Russia’s frozen assets in Belgium. If that falls through, there’s no easy alternative.`\
+https://nytimes.com/2025/11/17/world/europe/ukraine-russia-frozen-assets-european-union.html
+
+**Man Who Rushed Ariana Grande in Singapore Gets 9 Days in Jail**\
+`He pleaded guilty to one charge of being a public nuisance.`\
+https://nytimes.com/2025/11/17/world/asia/ariana-grande-singapore-fan-attack-sentence.html
+
 **Barcelona finally making Camp Nou return for Athletic game**\
 `The City Council has approved a license for 45,401 fans to attend Saturday's game, Barcelona's first in their home ground since May 2023.`\
 https://nytimes.com/athletic/6657807/2025/11/17/barcelona-camp-nou-return-athletic/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/17/movies/governors-awards-2025-tom-cruise.html
 **Dortmund's Karim Adeyemi fined for possession of brass knuckles, taser**\
 `Germany head coach Julian Nagelsmann confirmed on Sunday that he had spoken to Adeyemi about the case but would not comment further.`\
 https://nytimes.com/athletic/6814072/2025/11/17/karim-adeyemi-dortmund-germany-weapons/
-
-**Anthony Joshua vs. Jake Paul confirmed for Miami in December**\
-`The fight will consist of eight three-minute rounds and will be streamed on Netflix.`\
-https://nytimes.com/athletic/6814225/2025/11/17/anthony-joshua-jake-paul-boxing-miami/
-
-**Can the Wizards keep losing like this without hurting their youngsters' growth?**\
-`Washington, which has lost 12 of its first 13 games, played so badly Sunday that its veterans called a players-only meeting. `\
-https://nytimes.com/athletic/6813818/2025/11/17/washington-wizards-losing-alex-sarr-kyshawn-george/
-
-**Canadiens weekly notebook: Disastrous week doesn't tell the whole story**\
-`Also this week: a chat about size with Quinton Byfield, Juraj Slafkovský's top speed and Zack Bolduc's need to control his speed.`\
-https://nytimes.com/athletic/6813774/2025/11/17/canadiens-injury-updates-nhl-standings/
 
