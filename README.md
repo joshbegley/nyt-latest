@@ -1,3 +1,19 @@
+**Review: A Chinese Classic Comes to Spectacular Operatic Life**\
+`Huang Ruo and David Henry Hwang’s “The Monkey King,” based on “Journey to the West,” brings an old superhero to the opera stage.`\
+https://nytimes.com/2025/11/17/arts/music/the-monkey-king-opera-review.html
+
+**Kenyan Senator Says His Government Neglects Children Trapped in Saudi Arabia**\
+`The comments, by a member of Kenya’s ruling party, represent a rebuke of President William Ruto’s government: “Heads must roll.”`\
+https://nytimes.com/2025/11/17/world/africa/kenya-saudi-arabia-children.html
+
+**How to watch LSU vs. Tulane women's basketball: Time, TV, streaming**\
+`Find out how to watch the LSU Tigers play the Tulane Green Wave, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6814625/2025/11/17/lsu-vs-tulane-stream-how-to-watch-nov-17/
+
+**What we're seeing from Canucks so far on this alarming, successful road trip**\
+`The Canucks have found a way to weather a tough stretch, picking up points in three of their last four games.`\
+https://nytimes.com/athletic/6813678/2025/11/17/vancouver-canucks-scores-stats-record-standings-2025/
+
 **Blast on Key Polish Rail Line Was Sabotage, Prime Minister Says**\
 `Donald Tusk said unidentified saboteurs had tried to “blow up a train” on a route crucial for getting aid into Ukraine.`\
 https://nytimes.com/2025/11/17/world/europe/poland-railway-explosion-sabotage-ukraine.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6814523/2025/11/17/ny-giants-abdul-carter-benched-s
 **Europe Begins Rethinking Its Crackdown on Big Tech**\
 `European policymakers are crafting changes to scale back and simplify landmark rules for A.I. and data privacy, in a shift from an aggressive regulatory period.`\
 https://nytimes.com/2025/11/17/technology/europe-big-tech.html
-
-**Penguins mailbag: Sidney Crosby vs. Alex Ovechkin is a fun debate with an obvious answer**\
-`Josh Yohe also dives into the Penguins' trip to Sweden, Christmas music, his signature dish and much more.`\
-https://nytimes.com/athletic/6796177/2025/11/17/penguins-sidney-crosby-alex-ovechkin-mailbag/
-
-**The Bounce: The Pistons forgot how to lose. Plus, what's next for the Pelicans?**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6807402/2025/11/17/pistons-pelicans-gambling-willie-green-the-bounce/
-
-**France Agrees to Sell Up to 100 Fighter Jets to Ukraine**\
-`Some in Ukraine criticized the 10-year timeline for the warplanes and other defense equipment, but France called it a long-term commitment to the country.`\
-https://nytimes.com/2025/11/17/world/europe/ukraine-france-rafale-fighter-jets.html
-
-**Sex Had Become a Chore. Then They Started Reading Romantasy.**\
-`The wildly popular fiction genre allows readers to talk openly about yearning, sex and desire. And it’s spilling over into their bedrooms.`\
-https://nytimes.com/2025/11/17/well/romantasy-books-sex-intimacy.html
 
