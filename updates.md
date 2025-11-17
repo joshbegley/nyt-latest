@@ -1,3 +1,19 @@
+**John Shuster, U.S. Olympic curling pillar, loses out in bid for sixth straight Games**\
+`Shuster, who has competed at every Olympics since 2006 and won the only U.S. medals in the sport, and his team lost Sunday at U.S. trials.`\
+https://nytimes.com/athletic/6810019/2025/11/16/john-shuster-us-curling-olympics-trials-danny-casper/
+
+**Broncos conquer Chiefs with 'ironic' end that crystallizes path to AFC West title**\
+`One year after Wil Lutz's 35-yard attempt vs. Chiefs was blocked, he boots game-winner from same distance for Denver's eighth straight win.`\
+https://nytimes.com/athletic/6813383/2025/11/16/broncos-afc-west-lead-chiefs/
+
+**Jordan Walsh's defensive education continues as Celtics escape James Harden, Clippers**\
+`Five of Walsh's fouls sent Harden to the line, but he had three steals vs. the 2018 NBA MVP in the Celtics' 121-118 win over the Clippers.`\
+https://nytimes.com/athletic/6813329/2025/11/16/celtics-jordan-walsh-clippers-james-harden/
+
+**‘Chess’ Review: At Least They Have the Music**\
+`This new revival, starring Lea Michele, Nicholas Christopher and Aaron Tveit, is a reminder why the erratic yet rewarding show has endured all these years.`\
+https://nytimes.com/2025/11/16/theater/chess-review-lea-michele-broadway.html
+
 **Kaprizov's OT winner, Boldy's stick lift and a commitment to defense: Takeaways**\
 `The Foligno-Yurov-Trenin line reunited for a buzzing performance and Trenin's first goal of the season.`\
 https://nytimes.com/athletic/6812739/2025/11/16/wild-boldy-trenin-defense-golden-knights/
