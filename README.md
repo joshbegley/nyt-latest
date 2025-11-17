@@ -1,3 +1,15 @@
+**Trump and the ‘Donroe Doctrine’**\
+`The president is claiming a special U.S. sphere of influence in the Western Hemisphere.`\
+https://nytimes.com/2025/11/17/world/trump-donroe-doctrine-venezuela-saudi-mbs.html
+
+**Tee Off**\
+`What Golf Can Teach Us About Investing`\
+https://nytimes.com/paidpost/fidelity/teeing-off/tee-off.html
+
+**Mamdani Reaches Out to White House to Arrange Meeting With Trump**\
+`Mayor-elect Zohran Mamdani said he hoped to press President Trump to help ease the affordability crisis. His remarks came a day after Mr. Trump said he wanted to “see everything work out well for New York.”`\
+https://nytimes.com/2025/11/17/nyregion/mamdani-trump-meeting.html
+
 **25 Girls Abducted From School in Nigeria**\
 `The kidnapping echoed the abduction of the Chibok girls 11 years ago and came as U.S. officials pressed the country to address violence against Christians.`\
 https://nytimes.com/2025/11/17/world/africa/nigeria-school-kidnapping-girls.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6815012/2025/11/17/sesko-injury-manchester-united/
 **Scoop City: Risers and fallers after Week 11**\
 `The Bears, Broncos and Rams are rising, while the Vikings, Seahawks and Falcons trend down`\
 https://nytimes.com/athletic/6815350/2025/11/17/nfl-risers-fallers-week-11-broncos-chiefs-bills-myles-garrett-scoop-city/
-
-**How to watch Syracuse vs. Notre Dame: Time, TV, streaming**\
-`Find out how to watch the Syracuse Orange play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6815389/2025/11/17/syracuse-vs-notre-dame-stream-how-to-watch-nov-22/
-
-**How to watch Kentucky vs. Vanderbilt: Time, TV, streaming**\
-`Find out how to watch the Kentucky Wildcats play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6815385/2025/11/17/kentucky-vs-vanderbilt-stream-how-to-watch-nov-22/
-
-**How to watch Arkansas vs. Texas: Time, TV, streaming**\
-`Find out how to watch the Arkansas Razorbacks play the Texas Longhorns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6815381/2025/11/17/arkansas-vs-texas-stream-how-to-watch-nov-22/
 

@@ -1,3 +1,11 @@
+**25 Girls Abducted From School in Nigeria**\
+`The kidnapping echoed the abduction of the Chibok girls 11 years ago and came as U.S. officials pressed the country to address violence against Christians.`\
+https://nytimes.com/2025/11/17/world/africa/nigeria-school-kidnapping-girls.html
+
+**Fed Governor Says Housing Official Worked With Trump to Smear Her**\
+`Lisa Cook, accused of fraud on mortgage papers, said in a letter that Bill Pulte, who referred her to the Justice Department, was doing President Trump’s dirty work.`\
+https://nytimes.com/2025/11/17/nyregion/lisa-cook-fed-trump-pulte.html
+
 **How Much Plastic Can Kill a Sea Turtle? A New Study Has Answers.**\
 `Scientists analyzed thousands of autopsies of seabirds, sea turtles and marine mammals and found that even small amounts of ingested plastic can be deadly.`\
 https://nytimes.com/2025/11/17/climate/plastic-sea-turtles-animals-study.html
