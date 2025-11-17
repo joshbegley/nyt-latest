@@ -1,3 +1,11 @@
+**What Is Botulism?**\
+`The life-threatening illness is a continuing threat. Here’s what you need to know.`\
+https://nytimes.com/2025/11/17/well/what-is-botulism.html
+
+**Cowboys pay tribute to Marshawn Kneeland ahead of Monday Night Football matchup**\
+`The team prepared a locker for their late teammate on Monday night in Las Vegas.`\
+https://nytimes.com/athletic/6815637/2025/11/17/cowboys-tribute-marshawn-kneeland-monday-night-football/
+
 **After Hundreds of Gazans Arrive on Mystery Flights, South Africa Asks How**\
 `A little-known group sold passage to desperate Palestinians who didn’t know their destination, catching the South African government by surprise.`\
 https://nytimes.com/2025/11/17/world/africa/gaza-palestinians-south-africa-flights.html

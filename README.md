@@ -1,3 +1,7 @@
+**The U.N. Security Council Backs Trump’s Gaza Plan**\
+`Also, it’s a big week for the art market. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/11/17/briefing/the-un-security-council-backs-trumps-gaza-plan.html
+
 **What Is Botulism?**\
 `The life-threatening illness is a continuing threat. Here’s what you need to know.`\
 https://nytimes.com/2025/11/17/well/what-is-botulism.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/17/us/politics/trump-epstein-republicans-vote.html
 **Clippers' Derrick Jones Jr. out 6 weeks due to sprained right MCL**\
 `Derrick Jones Jr., who started the first 13 games of the season for the Clippers, will be re-evaluated in six weeks.`\
 https://nytimes.com/athletic/6815569/2025/11/17/derrick-jones-jr-clippers-mcl-nba/
-
-**James Franklin's fit at Virginia Tech is obvious in an ACC ripe for the taking**\
-`Virginia Tech, in a crowded, competitive coaching carousel, couldn’t have asked for a better option.`\
-https://nytimes.com/athletic/6815562/2025/11/17/james-franklin-virginia-tech-acc/
 
