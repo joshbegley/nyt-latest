@@ -1,3 +1,7 @@
+**25 Girls Abducted From School in Nigeria**\
+`The kidnapping echoed the abduction of the Chibok girls 11 years ago and came as U.S. officials pressed the country to address violence against Christians.`\
+https://nytimes.com/2025/11/17/world/africa/nigeria-school-kidnapping-girls.html
+
 **How Much Plastic Can Kill a Sea Turtle? A New Study Has Answers.**\
 `Scientists analyzed thousands of autopsies of seabirds, sea turtles and marine mammals and found that even small amounts of ingested plastic can be deadly.`\
 https://nytimes.com/2025/11/17/climate/plastic-sea-turtles-animals-study.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/11/17/climate/plastic-sea-turtles-animals-study.html
 https://nytimes.com/2025/11/17/world/europe/uk-immigration-asylum-refugee-starmer.html
 
 **Fed Governor Says Housing Official Worked With Trump to Smear Her**\
-`Lisa Cook, accused of fraud on mortgage papers, said in a legal filing that Bill Pulte, who referred her to the Justice Department, was doing President Trump’s dirty work.`\
+`Lisa Cook, accused of fraud on mortgage papers, said in a letter that Bill Pulte, who referred her to the Justice Department, was doing President Trump’s dirty work.`\
 https://nytimes.com/2025/11/17/nyregion/lisa-cook-fed-trump-pulte.html
 
 **NFL survivor pool mailbag: Submit your questions for Week 12**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6815385/2025/11/17/kentucky-vs-vanderbilt-stream-ho
 **How to watch Arkansas vs. Texas: Time, TV, streaming**\
 `Find out how to watch the Arkansas Razorbacks play the Texas Longhorns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6815381/2025/11/17/arkansas-vs-texas-stream-how-to-watch-nov-22/
-
-**How to watch Miami (FL) vs. Virginia Tech: Time, TV, streaming**\
-`Find out how to watch the Miami (FL) Hurricanes play the Virginia Tech Hokies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6815377/2025/11/17/miami-fl-vs-virginia-tech-stream-how-to-watch-nov-22/
 
