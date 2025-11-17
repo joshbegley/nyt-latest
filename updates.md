@@ -1,4 +1,8 @@
 **Tom Cruise Accepts an Honorary Oscar at the Governors Awards**\
+`The star was feted along with Debbie Allen, Dolly Parton and the production designer Wynn Thomas at a show that has become an awards campaign stop.`\
+https://nytimes.com/2025/11/17/movies/governors-awards-2025-tom-cruise.html
+
+**Tom Cruise Accepts an Honorary Oscar at the Governors Awards**\
 `The star was feted along with Debbie Allen, Dolly Parton and production designer Wynn Thomas at a show that has become an awards campaign stop.`\
 https://nytimes.com/2025/11/17/movies/governors-awards-2025-tom-cruise.html
 
