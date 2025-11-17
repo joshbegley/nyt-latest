@@ -1,3 +1,15 @@
+**Trump Administration Releases Thousands of Amelia Earhart Files**\
+`More than 4,000 documents related to Earhart were posted online, but scholars were not impressed. The release coincides with a period of intensified interest in the disgraced financier Jeffrey Epstein and his connection to the president.`\
+https://nytimes.com/2025/11/17/us/politics/trump-amelia-earhart-flight-records.html
+
+**A Bailout May Come Too Late as Farmers Begin to Plan for Next Year**\
+`It could be months before they receive aid, well after the winter period when they talk to their bankers and make decisions about the planting ahead.`\
+https://nytimes.com/2025/11/17/business/farmers-bailout-delay.html
+
+**Lou Lamoriello on exit as Islanders GM, transitioning to a new role: 'It’s all positive'**\
+`Lamoriello, who had run NHL teams since 1987, said "the game has been great to me" in his first interview since being let go as GM in April.`\
+https://nytimes.com/athletic/6814585/2025/11/17/lou-lamoriello-islanders-maple-leafs-devils/
+
 **How to watch Bucks vs. Cavaliers: Time, TV, streaming**\
 `Find out how to watch the Milwaukee Bucks play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6814679/2025/11/17/bucks-vs-cavaliers-stream-how-to-watch-nov-17/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6814667/2025/11/17/hurricanes-vs-bruins-stream-how-
 **How to watch Oilers vs. Sabres: Time, TV, streaming**\
 `Find out how to watch the Edmonton Oilers play the Buffalo Sabres, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6814663/2025/11/17/oilers-vs-sabres-stream-how-to-watch-nov-17/
-
-**Mike Kafka: No changes to Giants coaching staff despite latest collapse**\
-`"I would say status quo," Kafka said when asked Monday about making changes to his staff.`\
-https://nytimes.com/athletic/6813032/2025/11/17/ny-giants-shane-bowen-mike-kafka/
-
-**Review: A Chinese Classic Comes to Spectacular Operatic Life**\
-`Huang Ruo and David Henry Hwang’s “The Monkey King,” based on “Journey to the West,” brings an old superhero to the opera stage.`\
-https://nytimes.com/2025/11/17/arts/music/the-monkey-king-opera-review.html
-
-**Kenyan Senator Says His Government Neglects Children Trapped in Saudi Arabia**\
-`The comments, by a member of Kenya’s ruling party, represent a rebuke of President William Ruto’s government: “Heads must roll.”`\
-https://nytimes.com/2025/11/17/world/africa/kenya-saudi-arabia-children.html
 
