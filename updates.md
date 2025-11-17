@@ -1,3 +1,11 @@
+**What’s Interesting About the Place Where You Live?**\
+`A neighborhood? A group of people? A natural feature? A business? An annual event? Take a fresh look around your hometown and tell us what’s notable — no matter how small.`\
+https://nytimes.com/2025/11/17/learning/whats-interesting-about-the-place-where-you-live.html
+
+**MacKenzie Scott Gives $700 Million to Historically Black Colleges**\
+`The donations to over a dozen schools come as the Trump administration is directing more funds to the historically Black institutions, too.`\
+https://nytimes.com/2025/11/17/us/hbcus-mackenzie-scott-donations.html
+
 **The U.N. Security Council Backs Trump’s Gaza Plan**\
 `Also, it’s a big week for the art market. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/11/17/briefing/the-un-security-council-backs-trumps-gaza-plan.html

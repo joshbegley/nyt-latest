@@ -1,3 +1,11 @@
+**What’s Interesting About the Place Where You Live?**\
+`A neighborhood? A group of people? A natural feature? A business? An annual event? Take a fresh look around your hometown and tell us what’s notable — no matter how small.`\
+https://nytimes.com/2025/11/17/learning/whats-interesting-about-the-place-where-you-live.html
+
+**MacKenzie Scott Gives $700 Million to Historically Black Colleges**\
+`The donations to over a dozen schools come as the Trump administration is directing more funds to the historically Black institutions, too.`\
+https://nytimes.com/2025/11/17/us/hbcus-mackenzie-scott-donations.html
+
 **The U.N. Security Council Backs Trump’s Gaza Plan**\
 `Also, it’s a big week for the art market. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/11/17/briefing/the-un-security-council-backs-trumps-gaza-plan.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000010529678/trump-f35-saudi-arabia.htm
 **‘Commander Butcher’ Admits Trying to Spur Hate Attack in New York**\
 `Michail Chkhikvishvili, a Georgian man, pleaded guilty in Brooklyn on Monday. He led the Maniac Murder Cult, an online neo-Nazi group blamed for eruptions of violence around the world.`\
 https://nytimes.com/2025/11/17/nyregion/commander-butcher-guilty-plea.html
-
-**Trump Bows to Reality in Epstein Reversal, Beating a Rare Retreat**\
-`Faced with a mass defection on a bill to demand the release of the Epstein files, the president rushed to avoid an embarrassing loss, suggesting a slip in his iron grip on the G.O.P.`\
-https://nytimes.com/2025/11/17/us/politics/trump-epstein-republicans-vote.html
-
-**Clippers' Derrick Jones Jr. out 6 weeks due to sprained right MCL**\
-`Derrick Jones Jr., who started the first 13 games of the season for the Clippers, will be re-evaluated in six weeks.`\
-https://nytimes.com/athletic/6815569/2025/11/17/derrick-jones-jr-clippers-mcl-nba/
 
