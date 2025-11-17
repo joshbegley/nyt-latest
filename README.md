@@ -22,8 +22,8 @@ https://nytimes.com/athletic/6812739/2025/11/16/wild-boldy-trenin-defense-golden
 `President Trump defended Mr. Carlson’s friendly interview with an openly antisemitic white supremacist that prompted denunciations from some on the right.`\
 https://nytimes.com/2025/11/16/us/politics/trump-tucker-carlson-nick-fuentes.html
 
-**Bills offense explodes with Gabe Davis, Josh Allen together again; why it should stay that way**\
-`Davis had a big impact on the offense in his first game this season. `\
+**Bills' offense explodes with Gabe Davis, Josh Allen together again; why it should stay that way**\
+`Gabe Davis had a big impact on the offense in his first game this season. `\
 https://nytimes.com/athletic/6813144/2025/11/16/bills-allen-davis-offense-future/
 
 **The Seahawks still believe in Sam Darnold — after another dud in a big game, should they?**\
