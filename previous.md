@@ -1,3 +1,15 @@
+**After Hundreds of Gazans Arrive on Mystery Flights, South Africa Asks How**\
+`A little-known group sold passage to desperate Palestinians who didn’t know their destination, catching the South African government by surprise.`\
+https://nytimes.com/2025/11/17/world/africa/gaza-palestinians-south-africa-flights.html
+
+**Weekly Student News Quiz: Climate Summit, Shutdown End, ‘Dapper Man’**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/11/17/learning/17StudentNewsQuiz.html
+
+**Worker Error Is Faulted After Israeli-Born Canadian Hits Passport Snag**\
+`A student in Montreal, who was born in Kfar Saba, Israel, said she was initially told she could not list Israel as her birth country on her passport.`\
+https://nytimes.com/2025/11/17/world/canada/canada-passport-israel-birthplace.html
+
 **Trump Announces U.S. Will Sell F-35s to Saudi Arabia**\
 `President Trump told reporters on Monday that he planned to sell F-35 fighter jets to Saudi Arabia, against the guidance from national security officials in his own administration.`\
 https://nytimes.com/video/us/politics/100000010529678/trump-f35-saudi-arabia.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6815441/2025/11/17/49ers-kicker-injury-eddy-pineiro
 **Wall Street’s Top Cop Ushers In Lighter-Touch Oversight of Banks**\
 `Michelle W. Bowman, the Federal Reserve’s new vice chair for supervision, has advanced regulatory changes that some fear may sow the seeds for the next crisis.`\
 https://nytimes.com/2025/11/17/business/fed-bowman-bank-oversight.html
-
-**France Steps Up Fight Against Disinformation as U.S. Pulls Back, Official Says**\
-`The French government is trying to make the case that governments can call out foreign malign influence campaigns and protect speech.`\
-https://nytimes.com/2025/11/17/us/politics/france-disinformation.html
-
-**LeBron James nears return after full practice, status for Tuesday still uncertain**\
-`The Lakers are currently in fourth place in the Western Conference despite James' season-long absence.`\
-https://nytimes.com/athletic/6815513/2025/11/17/lakers-lebron-james-return-nba/
-
-**Michael Penix Jr. out at least a month, season in doubt after another knee injury**\
-`Penix will miss at least four games and could be out for the season after suffering a knee injury. Kirk Cousins will start in his place.`\
-https://nytimes.com/athletic/6815521/2025/11/17/michael-penix-falcons-injury-ir-kirk-cousins/
 

@@ -1,3 +1,15 @@
+**After Hundreds of Gazans Arrive on Mystery Flights, South Africa Asks How**\
+`A little-known group sold passage to desperate Palestinians who didn’t know their destination, catching the South African government by surprise.`\
+https://nytimes.com/2025/11/17/world/africa/gaza-palestinians-south-africa-flights.html
+
+**Weekly Student News Quiz: Climate Summit, Shutdown End, ‘Dapper Man’**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/11/17/learning/17StudentNewsQuiz.html
+
+**Worker Error Is Faulted After Israeli-Born Canadian Hits Passport Snag**\
+`A student in Montreal, who was born in Kfar Saba, Israel, said she was initially told she could not list Israel as her birth country on her passport.`\
+https://nytimes.com/2025/11/17/world/canada/canada-passport-israel-birthplace.html
+
 **Trump Announces U.S. Will Sell F-35s to Saudi Arabia**\
 `President Trump told reporters on Monday that he planned to sell F-35 fighter jets to Saudi Arabia, against the guidance from national security officials in his own administration.`\
 https://nytimes.com/video/us/politics/100000010529678/trump-f35-saudi-arabia.html

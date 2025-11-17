@@ -1,3 +1,7 @@
+**Cowboys pay tribute to Marshawn Kneeland ahead of Monday Night Football matchup**\
+`The team prepared a locker for Kneeland on Monday night in Las Vegas.`\
+https://nytimes.com/athletic/6815637/2025/11/17/cowboys-tribute-marshawn-kneeland-monday-night-football/
+
 **After Hundreds of Gazans Arrive on Mystery Flights, South Africa Asks How**\
 `A little-known group sold passage to desperate Palestinians who didn’t know their destination, catching the South African government by surprise.`\
 https://nytimes.com/2025/11/17/world/africa/gaza-palestinians-south-africa-flights.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6815562/2025/11/17/james-franklin-virginia-tech-acc
 **Minutia minute: Eddy Piñeiro's hamstring injury has the 49ers looking for kickers**\
 `Kyle Shanahan said Brock Purdy "checked out all right" after his first game back. Linebacker Tatum Bethune, however, didn't fare as well.`\
 https://nytimes.com/athletic/6815441/2025/11/17/49ers-kicker-injury-eddy-pineiro-minutia-minute/
-
-**Wall Street’s Top Cop Ushers In Lighter-Touch Oversight of Banks**\
-`Michelle W. Bowman, the Federal Reserve’s new vice chair for supervision, has advanced regulatory changes that some fear may sow the seeds for the next crisis.`\
-https://nytimes.com/2025/11/17/business/fed-bowman-bank-oversight.html
 
