@@ -1,3 +1,13 @@
+**NBA Power Rankings: Cade Cunningham, Pistons motor into an elite tier**\
+`Album of the Week: “Days Are Gone”, HAIM (2013)
+Injuries are not an excuse for poor performance!
+I’ve used this line already this month, and it wasn’t the first time.`\
+https://nytimes.com/athletic/6814323/2025/11/17/nba-power-rankings-pistons-thunder-lakers/
+
+**Do You Know These Award-Winning Books?**\
+`Try this short quiz to match the descriptions of past National Book Award winners with their titles and authors.`\
+https://nytimes.com/interactive/2025/11/17/books/book-awards-quiz.html
+
 **Yankees agree to 1-year-deal with Ryan Yarbrough, adding depth to staff: Source**\
 `The Yankees need help in their rotation and bullpen. Yarbrough could provide a little of the former early, and a little of the latter later.`\
 https://nytimes.com/athletic/6814643/2025/11/17/ryan-yarbrough-yankees-sign-mlb-contract/
