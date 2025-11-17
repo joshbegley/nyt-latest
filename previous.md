@@ -1,3 +1,7 @@
+**As Trump Looks for Distraction on Epstein, Justice Dept. Rushes to His Aid**\
+`The department was deployed, in effect, as an arm of the president’s rapid-response operation to help him muscle through a damaging news cycle over Jeffrey Epstein, former and current officials said.`\
+https://nytimes.com/2025/11/17/us/politics/trump-bondi-democrats-justice-department.html
+
 **Cade Cunningham becomes 6th active NBA player to get a Nike signature shoe**\
 `Cunningham will join LeBron James, Kevin Durant, Giannis Antetokounmpo, Devin Booker and Ja Morant as signature Nike athletes. `\
 https://nytimes.com/athletic/6814799/2025/11/17/cade-cunningham-nike-signature-shoe-deal-pistons/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6814372/2025/11/17/bernie-kosar-undergoes-liver-tra
 **Chris Eubanks suggests retirement from professional tennis imminent after 'incredible ride'**\
 `Eubanks' run to the Wimbledon quarterfinals in 2023 was one of them most memorable stories of that year.`\
 https://nytimes.com/athletic/6814539/2025/11/17/tennis-chris-eubanks-retirement/
-
-**There’s a New Effort on the Runway to Raise Climate Funds**\
-`A small group of countries is aiming to impose a fee on private jets and premium commercial fares. The revenue would help nations adapt to warming.`\
-https://nytimes.com/2025/11/17/climate/private-jet-tax-climate.html
 
