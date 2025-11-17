@@ -1,3 +1,11 @@
+**Tom Cruise Accepts an Honorary Oscar at the Governors Awards**\
+`The star was feted along with Debbie Allen, Dolly Parton and production designer Wynn Thomas at a show that has become an awards campaign stop.`\
+https://nytimes.com/2025/11/17/movies/governors-awards-2025-tom-cruise.html
+
+**Dortmund's Karim Adeyemi fined for possession of brass knuckles, taser**\
+`Germany head coach Julian Nagelsmann confirmed on Sunday that he had spoken to Adeyemi about the case but would not comment further.`\
+https://nytimes.com/athletic/6814072/2025/11/17/karim-adeyemi-dortmund-germany-weapons/
+
 **Anthony Joshua vs. Jake Paul confirmed for Miami in December**\
 `The fight will consist of eight three-minute rounds and will be streamed on Netflix.`\
 https://nytimes.com/athletic/6814225/2025/11/17/anthony-joshua-jake-paul-boxing-miami/
