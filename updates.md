@@ -1,3 +1,7 @@
+**Brock Purdy has 49ers offense feeling like it can carry the load after easy win over Cardinals**\
+`The 49ers have their franchise quarterback back. "He was vintage Brock," Christian McCaffrey said. "That's a huge compliment."`\
+https://nytimes.com/athletic/6813392/2025/11/16/brock-purdy-49ers-offense-confidence-easy-win-cardinals/
+
 **Bills' offense explodes with Gabe Davis, Josh Allen together again; why it should stay that way**\
 `Gabe Davis had a big impact on the offense in his first game this season. `\
 https://nytimes.com/athletic/6813144/2025/11/16/bills-allen-davis-offense-future/
