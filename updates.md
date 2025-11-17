@@ -1,3 +1,15 @@
+**Jake Neighbours expected to return on Blues road trip, eager to help 'get some good mojo going'**\
+`Neighbours is still tied for the Blues goal-scoring lead despite missing 11 games. He was the team's leading scorer when he was injured.`\
+https://nytimes.com/athletic/6814943/2025/11/17/jake-neighbours-blues-injury-return/
+
+**NFL overreactions: 4 favorites that aren't favored by enough**\
+`Toby Mergler's NFL Week 12 picks include three big favorites and one peculiar point spread.`\
+https://nytimes.com/athletic/6814871/2025/11/17/nfl-overreaction-monday-week-12/
+
+**'This is why I left Man United': McClaren's Jamaica on brink of World Cup**\
+`Jamaica are on the brink of qualifying for the tournament next summer, but must beat Curacao in Kingston to finish top of their group.`\
+https://nytimes.com/athletic/6815180/2025/11/17/steve-mcclaren-jamaica-world-cup-qualify/
+
 **High Hamburger Prices? White House Blames Biden and Migrants.**\
 `Treasury Secretary Scott Bessent said migrants were bringing sick cows across the border, snarling beef supply chains.`\
 https://nytimes.com/2025/11/17/us/politics/hamburger-beef-prices-trump.html
