@@ -1,3 +1,15 @@
+**Patrick Mahomes showed raw honesty after Chiefs' loss. Here's what frustrated him most**\
+`The Chiefs are 5-5 and have little room for error to turn things around. Here's what they said in the locker room.`\
+https://nytimes.com/athletic/6813218/2025/11/17/chiefs-patrick-mahomes-frustrated-broncos/
+
+**The Athletic 136: Georgia keeps rising as top tier starts looking more crowded**\
+`Georgia’s late-season rise reshapes the top of our rankings and shifts the top 10 down the final stretch.`\
+https://nytimes.com/athletic/6812896/2025/11/17/college-football-team-rankings-georgia-texas/
+
+**League One Volleyball adds Minnesota expansion franchise, debuting in 2027**\
+`The fast-growing league recently added an expansion franchise in Los Angeles and new ownership in Houston.`\
+https://nytimes.com/athletic/6812825/2025/11/17/league-one-volleyball-lovb-minnesota-expansion/
+
 **How Brian Schottenheimer has helped lead Cowboys since death of Marshawn Kneeland**\
 `The Dallas players and front-office feel they couldn't have a better person to lead them through this tragedy than Schottenheimer.`\
 https://nytimes.com/athletic/6812392/2025/11/17/cowboys-brian-schottenheimer-marshawn-kneeland-death/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6807847/2025/11/17/emmanuel-clase-pitch-rigging-exp
 **Trump’s Surprise Pivot on the Epstein Files, and Why Crypto A.T.M.s Are a Hub for Scams**\
 `Plus, Hollywood’s star-studded movies are tanking.`\
 https://nytimes.com/2025/11/17/podcasts/the-headlines/trump-epstein-files-crypto-atm-scams.html
-
-**F1's plan for sluggish Vegas GP sales: Go bigger, cheaper and make 'a splash again'**\
-`Since returning to the Formula One calendar in 2023, the Las Vegas Grand Prix stands out for doing things a bit differently — from the Saturday night race start time, ensuring the race pops against the city’s famed skyline, to shutting down the Strip to form part of the track.`\
-https://nytimes.com/athletic/6812997/2025/11/17/f1-las-vegas-gp-tickets-sales/
-
-**The super valuable 'missing' sports cards that collectors are still chasing**\
-`Some of the most valuable chase cards of the last two decades remain unaccounted for. So where could they be? `\
-https://nytimes.com/athletic/6811027/2025/11/17/missing-sports-cards-lebron-james-stephen-curry/
-
-**I covered an Indiana football game for the first time in 30 years – and I was amazed**\
-`Last season's run to the CFP was hard to understand. Perhaps a fluke. But the unbeaten Hoosiers are doing it again.`\
-https://nytimes.com/athletic/6811719/2025/11/17/indiana-hoosiers-football-wisconsin-college-football-playoff/
 
