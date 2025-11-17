@@ -1,3 +1,7 @@
+**The Seahawks still believe in Sam Darnold — after another dud in a big game, should they?**\
+`The quarterback threw four interceptions in another long day against the rival Rams.`\
+https://nytimes.com/athletic/6813327/2025/11/16/sam-darnold-seattle-seahawks-interceptions-los-angeles-rams/
+
 **Trump Tariffs Push Japan’s Economy Into Contraction**\
 `The Japanese economy shrank by 1.8 percent compared to the same quarter last year, as U.S. tariffs dampened automobile exports and prompted a bleak outlook for growth.`\
 https://nytimes.com/2025/11/16/business/japan-economy-contraction.html
