@@ -1,3 +1,11 @@
+**Teeing Off with Neal Shipley**\
+`What golf can teach us about investing, featuring pro golfer Neal Shipley, financial content creator Humphrey Yang, and Fidelity SVP Jordan Ford.`\
+https://nytimes.com/paidpost/athletic/fidelity/teeing-off-1.html
+
+**Love & Money: Banking on Love**\
+`When two lives intertwine, so too do their finances — for better and for worse.`\
+https://nytimes.com/paidpost/ally-bank/love-and-money-banking-on-love.html
+
 **An architect of the $1M U.S. Open mixed doubles will now oversee the entire tournament**\
 `Butorac replaces Stacey Allaster, and will take a narrower role entirely focused on the tournament itself.`\
 https://nytimes.com/athletic/6814497/2025/11/17/tennis-us-open-tournament-director-eric-butorac-mixed-doubles/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/17/us/political-division-community.html
 **Jonathan David 1-on-1: On his and Canada's scoring woes, slow start at Juventus**\
 `The goals have dried up for David for club and country, and Canada needs its star to start firing again with a World Cup looming`\
 https://nytimes.com/athletic/6814121/2025/11/17/jonathan-david-canada-juventus-goals-world-cup/
-
-**8 Injured in House Explosion in Southern California**\
-`Fire officials said crews stopped a gas leak at the house but they were investigating the cause of the explosion, which prompted the evacuations of 16 nearby houses.`\
-https://nytimes.com/2025/11/17/us/home-explosion-chino-hills-california.html
-
-**Judge Says Justice Dept. May Have Committed ‘Misconduct’ in Comey Case**\
-`The ruling by a magistrate judge in Alexandria, Va., was only the most recent setback in the department’s efforts to bring charges against the former F.B.I. director James B. Comey.`\
-https://nytimes.com/2025/11/17/us/politics/comey-justice-department-misconduct.html
 
