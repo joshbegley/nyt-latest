@@ -1,3 +1,15 @@
+**Rams win battle for NFC West over Seahawks, Darnold throws 4 INTs**\
+`Seattle kicker Jason Myers missed a 61-yard field goal attempt that would have beaten the Rams at the last second.`\
+https://nytimes.com/athletic/6812058/2025/11/16/seahawks-rams-score-result-takeaways-nfl/
+
+**In Pulpits and Pews, Catholic Churches Urge Compassion for Immigrants**\
+`Immigration was on the minds of priests and parishioners following a letter from the nation’s Catholic bishops decrying how immigrants are being treated.`\
+https://nytimes.com/2025/11/16/us/catholic-church-immigration-trump.html
+
+**Packers stave off Giants: What we learned about Jordan Love, Josh Jacobs and more**\
+`The Packers improved to 6-3-1 with a narrow 27-20 win over the Giants on a windy Sunday at MetLife Stadium.`\
+https://nytimes.com/athletic/6812941/2025/11/16/packers-jordan-love-josh-jacobs-giants/
+
 **Dozens of Australian Schools Close Over Asbestos Fears**\
 `Three-quarters of the schools in the area around the capital will be closed, although officials say the health risk from asbestos found in colored sand is low.`\
 https://nytimes.com/2025/11/16/world/australia/schools-asbestos-sand.html
