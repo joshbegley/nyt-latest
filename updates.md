@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: President Reverses Stance on Epstein Files Ahead of House Vote**\
+``\
+https://nytimes.com/live/2025/11/17/us/trump-news
+
+**A caffeine boost gets Josh Hart racing when it comes to the Knicks and fatherhood**\
+`Professional athletes need caffeine, too, just ask Josh Hart.`\
+https://nytimes.com/athletic/6807280/2025/11/17/josh-hart-knicks-caffeine-coffee-fatherhood/
+
+**Kyle Hamilton can do anything, perhaps even save the Ravens' season**\
+`Last season, Hamilton fixed the Ravens' pass defense by moving deep. This season, he's jolting 320-pound guards like a linebacker.`\
+https://nytimes.com/athletic/6813901/2025/11/17/kyle-hamilton-ravens-browns-position-change/
+
 **Too Powerful to Ignore, Saudi Prince Returns to Washington’s Embrace**\
 `Crown Prince Mohammed bin Salman is to visit the White House on Tuesday for the first time since 2018, when the killing of a journalist by Saudi agents made him a pariah.`\
 https://nytimes.com/2025/11/17/world/middleeast/saudi-prince-mbs-washington.html

@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: President Reverses Stance on Epstein Files Ahead of House Vote**\
+``\
+https://nytimes.com/live/2025/11/17/us/trump-news
+
+**A caffeine boost gets Josh Hart racing when it comes to the Knicks and fatherhood**\
+`Professional athletes need caffeine, too, just ask Josh Hart.`\
+https://nytimes.com/athletic/6807280/2025/11/17/josh-hart-knicks-caffeine-coffee-fatherhood/
+
 **Too Powerful to Ignore, Saudi Prince Returns to Washington’s Embrace**\
 `Crown Prince Mohammed bin Salman is to visit the White House on Tuesday for the first time since 2018, when the killing of a journalist by Saudi agents made him a pariah.`\
 https://nytimes.com/2025/11/17/world/middleeast/saudi-prince-mbs-washington.html
@@ -26,15 +34,7 @@ https://nytimes.com/athletic/6813293/2025/11/17/pittsburgh-steelers-aaron-rodger
 `The Eagles look good enough to repeat, at least on one side of the ball; the Broncos remain red hot after taking down the Chiefs.`\
 https://nytimes.com/athletic/6813066/2025/11/17/nfl-week-11-highlights-eagles-lions-jared-goff/
 
-**The New York Times International Edition in Print for Tuesday, Nov. 18, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/11/17/todays-new-york-times-international-edition
-
-**A Day at the Beach Hunting Mammoths**\
-`“Citizen paleontologists” can keep the fossils they uncover around Europe’s largest port. All the professionals ask is that those amateurs let them know.`\
-https://nytimes.com/2025/11/17/arts/design/rotterdam-fossils-maasvlakte-2.html
-
-**Paralympic champion cyclist Paige Greco dies aged 28**\
-`Greco won one gold and two bronze medals at the Tokyo 2020 Games across both track and road cycling disciplines.`\
-https://nytimes.com/athletic/6813915/2025/11/17/paige-greco-dies-paralympics-cycling/
+**Kyle Hamilton can do anything, perhaps even save the Ravens' season**\
+`Last season, Hamilton fixed the Ravens' pass defense by moving deep. This season, he's jolting 320-pound guards like a linebacker.`\
+https://nytimes.com/athletic/6813901/2025/11/17/kyle-hamilton-ravens-browns-position-change/
 
