@@ -1,3 +1,11 @@
+**How Cairo Santos, Bears special teams rebounded to pull off another wild win**\
+`Bears special teams miscues in the fourth quarter helped the Vikings claw back, but then Bears special teams came through for the win.`\
+https://nytimes.com/athletic/6813022/2025/11/16/bears-cairo-santos-devin-duvernay-vikings/
+
+**J.J. McCarthy's inaccuracy dooms Vikings vs. Bears, creates uncertainty for the future**\
+`McCarthy struggled again on Sunday, and now the Vikings should be focused on finding out if the young quarterback can be the guy in 2026.`\
+https://nytimes.com/athletic/6813050/2025/11/16/vikings-bears-jj-mccarthy-accuracy-future/
+
 **New Giants coach, same lousy result: Mike Kafka's debut spoiled by another late collapse**\
 `Firing Brian Daboll wasn't going to fix everything. This is still a roster with too many holes, and those get exposed weekly in crunch time.`\
 https://nytimes.com/athletic/6812987/2025/11/16/ny-giants-mike-kafka-collapse-packers-shane-bowen/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6812058/2025/11/16/seahawks-rams-score-result-takea
 **In Pulpits and Pews, Catholic Churches Urge Compassion for Immigrants**\
 `Immigration was on the minds of priests and parishioners following a letter from the nation’s Catholic bishops decrying how immigrants are being treated.`\
 https://nytimes.com/2025/11/16/us/catholic-church-immigration-trump.html
-
-**Packers stave off Giants: What we learned about Jordan Love, Josh Jacobs and more**\
-`The Packers improved to 6-3-1 with a narrow 27-20 win over the Giants on a windy Sunday at MetLife Stadium.`\
-https://nytimes.com/athletic/6812941/2025/11/16/packers-jordan-love-josh-jacobs-giants/
-
-**Dozens of Australian Schools Close Over Asbestos Fears**\
-`Three-quarters of the schools in the area around the capital will be closed, although officials say the health risk from asbestos found in colored sand is low.`\
-https://nytimes.com/2025/11/16/world/australia/schools-asbestos-sand.html
 
