@@ -1,3 +1,7 @@
+**High Hamburger Prices? White House Blames Biden and Migrants.**\
+`Treasury Secretary Scott Bessent said migrants were bringing sick cows across the border, snarling beef supply chains.`\
+https://nytimes.com/2025/11/17/us/politics/hamburger-beef-prices-trump.html
+
 **3 Charged With Trying to Bribe Juror in Boxer’s Drug Smuggling Case**\
 `The defendants contacted a man on the jury and arranged to meet him on Staten Island, where they offered $100,000 for an acquittal, prosecutors say. A new jury will be anonymous.`\
 https://nytimes.com/2025/11/17/nyregion/brooklyn-boxer-jury-bribery-charges.html
