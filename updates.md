@@ -1,3 +1,7 @@
+**Marta won't exit quietly: 'It should not end like this'**\
+`The Brazilian star took exception to the referee's call that resulted in the Orlando Pride losing to Gotham in the NWSL semifinals Sunday.`\
+https://nytimes.com/athletic/6813233/2025/11/16/marta-orlando-pride-nwsl-semifinals/
+
 **Dehner Jr.: It's over for the 2025 Bengals, but what comes next?**\
 `Despite rare opportunities at every turn this year, for the 2025 Bengals, it's over after Sunday's loss in Pittsburgh.`\
 https://nytimes.com/athletic/6813160/2025/11/16/bengals-steelers-results-what-comes-next/
