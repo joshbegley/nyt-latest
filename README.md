@@ -1,3 +1,7 @@
+**Cade Cunningham becomes 6th active NBA player to get a Nike signature shoe**\
+`Cunningham will join LeBron James, Kevin Durant, Giannis Antetokounmpo, Devin Booker and Ja Morant as signature Nike athletes. `\
+https://nytimes.com/athletic/6814799/2025/11/17/cade-cunningham-nike-signature-shoe-deal-pistons/
+
 **Jets bench QB Justin Fields; Tyrod Taylor to start vs. Ravens: Source**\
 `The Jets rank last in the league in passing yards per game, and Fields has four games with under 55 passing yards for the 2-8 Jets.`\
 https://nytimes.com/athletic/6814832/2025/11/17/justin-fields-benched-jets-tyrod-taylor/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6814539/2025/11/17/tennis-chris-eubanks-retirement/
 **There’s a New Effort on the Runway to Raise Climate Funds**\
 `A small group of countries is aiming to impose a fee on private jets and premium commercial fares. The revenue would help nations adapt to warming.`\
 https://nytimes.com/2025/11/17/climate/private-jet-tax-climate.html
-
-**Fantasy football Week 11 recap, early waivers speed run: Drake London, Jaylen Warren**\
-`Jake Ciely's Week 11 recap podcast, featuring backfield shakeups, injury news and one Packers' wide receiver who should be rostered. `\
-https://nytimes.com/athletic/6814476/2025/11/17/fantasy-football-week-11-recap-early-waivers-speed-run-drake-london-jaylen-warren/
 
