@@ -1,3 +1,15 @@
+**New Giants coach, same lousy result: Mike Kafka's debut spoiled by another late collapse**\
+`Firing Brian Daboll wasn't going to fix everything. This is still a roster with too many holes, and those get exposed weekly in crunch time.`\
+https://nytimes.com/athletic/6812987/2025/11/16/ny-giants-mike-kafka-collapse-packers-shane-bowen/
+
+**'We were out-physicaled': Chargers fall short in the trenches in blowout loss to Jaguars**\
+`The Chargers' three-game winning streak ended with a thud. Said Derwin James, "Today, the Jags came and humbled us.”`\
+https://nytimes.com/athletic/6813020/2025/11/16/chargers-jaguars-blowout-loss-outphysicaled/
+
+**Chiefs-Broncos takeaways: Wil Lutz hits game winner, puts Kansas City streak in further jeopardy**\
+`The game winner was Lutz' fifth made field goal Sunday and keyed Denver's ninth win of the season.`\
+https://nytimes.com/athletic/6812959/2025/11/16/chiefs-broncos-score-result-takeaways-nfl/
+
 **Chiefs-Broncos takeaways: Wil Lutz hits game-winner, puts Kansas City streak in further jeopardy**\
 `The game winner was Lutz' fifth made field goal Sunday and keyed Denver's ninth win of the season.`\
 https://nytimes.com/athletic/6812959/2025/11/16/chiefs-broncos-score-result-takeaways-nfl/
