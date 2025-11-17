@@ -1,3 +1,11 @@
+**Word of the Day: deficient**\
+`This word has appeared in 132 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/17/learning/word-of-the-day-deficient.html
+
+**Cooper Flagg comes up in the clutch in Mavericks' thrilling OT win over Blazers**\
+`Dallas needed Flagg down the stretch and in OT Sunday night, and the star rookie delivered.`\
+https://nytimes.com/athletic/6813482/2025/11/17/cooper-flagg-mavericks-overtime-win-trail-blazers/
+
 **Pickford, Stones, Rice, Kane: Can one of football's strongest spines make it to the World Cup injury-free?**\
 `England have perhaps the best Plan A in the world, but losing any of their four key men would diminish the side's capabilities significantly`\
 https://nytimes.com/athletic/6805816/2025/11/17/england-spine-pickford-stones-rice-kane-world-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6813670/2025/11/17/connections-sports-edition-hints
 **Manchester United and AFCON: When will players travel? Which games will they miss?**\
 `Ruben Amorim’s options on the right-hand side will be acutely depleted when a trio of his players depart for Morocco in December`\
 https://nytimes.com/athletic/6809554/2025/11/17/manchester-united-afcon-mbeumo-amad-mazraoui/
-
-**Liam Cooper interview: Ex-Leeds captain on life as an unemployed player**\
-`The Scotland international has spent the last three months training alone looking for a new club`\
-https://nytimes.com/athletic/6807377/2025/11/17/liam-cooper-interview-ex-leeds-captain-on-life-as-an-unemployed-player/
-
-**Odegaard's Arsenal reintegration: Will Arteta continue to give him freedom to roam?**\
-`Whether his return is the north London derby or later, a roaming Odegaard can play a part in restoring Arsenal's attacking fluidity`\
-https://nytimes.com/athletic/6797176/2025/11/17/martin-odegaard-arsenal-injury-return/
 

@@ -1,3 +1,11 @@
+**Word of the Day: deficient**\
+`This word has appeared in 132 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/17/learning/word-of-the-day-deficient.html
+
+**Cooper Flagg comes up in the clutch in Mavericks' thrilling OT win over Blazers**\
+`Dallas needed Flagg down the stretch and in OT Sunday night, and the star rookie delivered.`\
+https://nytimes.com/athletic/6813482/2025/11/17/cooper-flagg-mavericks-overtime-win-trail-blazers/
+
 **Pickford, Stones, Rice, Kane: Can one of football's strongest spines make it to the World Cup injury-free?**\
 `England have perhaps the best Plan A in the world, but losing any of their four key men would diminish the side's capabilities significantly`\
 https://nytimes.com/athletic/6805816/2025/11/17/england-spine-pickford-stones-rice-kane-world-cup/
