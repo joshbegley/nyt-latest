@@ -18,6 +18,10 @@ https://nytimes.com/athletic/6800751/2025/11/17/nasser-hussain-england-australia
 `Five Test matches over seven weeks promise drama aplenty as Australia and England battle it out for possession of the celebrated urn`\
 https://nytimes.com/athletic/6780554/2025/11/17/athletic-ashes-introduction-hussain/
 
+**Scott Boland and Brendan Doggett aim to make history for Australia in Ashes opener**\
+`If the two pace bowlers are picked in Perth, it will be the first time Australia have named two indigenous players in the same Test team`\
+https://nytimes.com/athletic/6813827/2025/11/17/ashes-australia-boland-doggett-indigenous-history/
+
 **Word of the Day: deficient**\
 `This word has appeared in 132 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/11/17/learning/word-of-the-day-deficient.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6805816/2025/11/17/england-spine-pickford-stones-ri
 **How one of the most dramatic and jaw-dropping weeks in Irish football history unfolded**\
 `Five goals from Troy Parrott stole the show – but it was a group effort from Heimir Hallgrimsson's side that has kept World Cup hopes alive`\
 https://nytimes.com/athletic/6813260/2025/11/17/ireland-world-cup-troy-parrott-portugal-hungary/
-
-**Border Patrol Descends on Charlotte, N.C.**\
-`Border Patrol agents deployed across Charlotte, N.C., over the weekend, sparking protests and stoking fear in the community.`\
-https://nytimes.com/video/us/100000010527658/border-patrol-arrests-charlotte-nc.html
 
