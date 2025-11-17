@@ -1,3 +1,7 @@
+**Nasser Hussain interview: 'The Ashes defines England captains and coaches'**\
+`The former England captain is joining The Athletic's Ashes coverage - he can't wait for the talking to stop and the cricket to start`\
+https://nytimes.com/athletic/6800751/2025/11/17/nasser-hussain-england-australia-ashes-columnist/
+
 **The Mayor of Secaucus Has a Fix for America: ‘Say Yes to Everyone’**\
 `As South Asian and Muslim immigrants transform a small New Jersey town, the five-term mayor has managed to keep the peace. What happens when he’s gone?`\
 https://nytimes.com/2025/11/17/nyregion/secaucus-nj-mayor-gonnelli.html

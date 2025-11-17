@@ -10,7 +10,7 @@ https://nytimes.com/2025/11/17/crosswords/spelling-bee-forum.html
 `The Trump administration on Sunday placed an aircraft carrier in the Caribbean and announced it would designate a Venezuelan group as a foreign terrorist organization.`\
 https://nytimes.com/2025/11/17/us/politics/trump-venezuela-maduro-military.html
 
-**'The Ashes defines England captains and coaches'**\
+**Nasser Hussain interview: 'The Ashes defines England captains and coaches'**\
 `The former England captain is joining The Athletic's Ashes coverage - he can't wait for the talking to stop and the cricket to start`\
 https://nytimes.com/athletic/6800751/2025/11/17/nasser-hussain-england-australia-ashes-columnist/
 
