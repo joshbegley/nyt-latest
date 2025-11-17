@@ -1,3 +1,11 @@
+**Jeff Bezos’ Big Bet on A.I.**\
+`The Amazon founder is tapping his fortune to help fund Project Prometheus, an artificial intelligence start-up, even as he has said A.I. may be in a bubble.`\
+https://nytimes.com/2025/11/17/business/dealbook/jeff-bezos-big-bet-on-ai.html
+
+**Paul George could be back for the Sixers on Monday. Here are 5 reasons why they need him**\
+`The nine-time All-Star could make his season debut Monday after offseason knee surgery.`\
+https://nytimes.com/athletic/6813698/2025/11/17/paul-george-philadelphia-76ers-return-from-injury/
+
 **Middlesbrough finalising deal to appoint Hammarby coach Hellberg after Edwards exit**\
 `Hellberg, a 37-year-old Swedish coach, has just guided Hammarby to a second-place finish in the Swedish top division.`\
 https://nytimes.com/athletic/6814111/2025/11/17/middlesbrough-manager-hellberg/
