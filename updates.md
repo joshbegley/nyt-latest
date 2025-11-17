@@ -1,3 +1,7 @@
+**Trump Says House Republicans Should Vote to Release Epstein Files**\
+`President Trump reversed himself by calling on the House of Representatives to vote to release files related to the convicted sex offender Jeffrey Epstein.`\
+https://nytimes.com/2025/11/16/us/politics/trump-epstein-files-release-vote.html
+
 **‘It: Welcome to Derry’ Season 1, Episode 4 Recap: Origin of the Species**\
 `Leroy gets a glimpse of the thing that terrorized his son. Viewers get a glimpse of the monster’s origins in Derry.`\
 https://nytimes.com/2025/11/16/arts/television/it-welcome-to-derry-recap-season-1-episode-4.html
