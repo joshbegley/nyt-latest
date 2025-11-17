@@ -1,4 +1,4 @@
-**Rams win battle for NFC West over Seahawks, Darnold throws 4 INTs**\
+**Rams win NFC West lead with victory over Seahawks, Darnold throws 4 INTs**\
 `Seattle kicker Jason Myers missed a 61-yard field goal attempt that would have beaten the Rams at the last second.`\
 https://nytimes.com/athletic/6812058/2025/11/16/seahawks-rams-score-result-takeaways-nfl/
 
@@ -18,7 +18,7 @@ https://nytimes.com/2025/11/16/world/australia/schools-asbestos-sand.html
 `With a heavy heart, Wright delivered a highlight-reel takeaway in tribute to his former coach, the late John Beam.`\
 https://nytimes.com/athletic/6812921/2025/11/16/bears-nahshon-wright-emotional-john-beam/
 
-**Carter Hart returning to hockey after 22 months, in AHL game**\
+**Carter Hart returns to hockey after 22 months, in AHL game**\
 `Hart remains ineligible to play in NHL games per the conditions of his reinstatement.`\
 https://nytimes.com/athletic/6810690/2025/11/16/carter-hart-ahl-golden-knights/
 

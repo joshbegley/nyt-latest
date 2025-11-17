@@ -1,3 +1,11 @@
+**Rams win NFC West lead with victory over Seahawks, Darnold throws 4 INTs**\
+`Seattle kicker Jason Myers missed a 61-yard field goal attempt that would have beaten the Rams at the last second.`\
+https://nytimes.com/athletic/6812058/2025/11/16/seahawks-rams-score-result-takeaways-nfl/
+
+**Carter Hart returns to hockey after 22 months, in AHL game**\
+`Hart remains ineligible to play in NHL games per the conditions of his reinstatement.`\
+https://nytimes.com/athletic/6810690/2025/11/16/carter-hart-ahl-golden-knights/
+
 **Rams win battle for NFC West over Seahawks, Darnold throws 4 INTs**\
 `Seattle kicker Jason Myers missed a 61-yard field goal attempt that would have beaten the Rams at the last second.`\
 https://nytimes.com/athletic/6812058/2025/11/16/seahawks-rams-score-result-takeaways-nfl/
