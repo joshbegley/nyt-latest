@@ -1,3 +1,15 @@
+**Bengals' Ja'Marr Chase suspended for spitting at Steelers' Jalen Ramsey**\
+`Ramsey was ejected for throwing a punch at Chase, but said after the game that it was a reaction to Chase spitting on him.`\
+https://nytimes.com/athletic/6812843/2025/11/17/jamarr-chase-suspended-spit-jalen-ramsey-nfl/
+
+**Trump threatens World Cup host cities over 'safety' concerns, announces visa scheme for fans**\
+`In an extraordinary news conference, Trump warned host cities including Seattle and Los Angeles may lose their games over "safety" concerns.`\
+https://nytimes.com/athletic/6815440/2025/11/17/donald-trump-infantino-fifa-pass-world-cup/
+
+**Virginia Tech finalizing hiring James Franklin to be next coach: Source**\
+`“We’re just going to go win the national championship somewhere else now," Franklin said a week after being fired.`\
+https://nytimes.com/athletic/6780867/2025/11/17/james-franklin-virginia-tech-coach-hire/
+
 **Extracurricular Activities**\
 `On game day, every detail speaks. Nico Collins shares his ritual of preparation — a quiet, focused moment grounded by BLEU DE CHANEL L’EXCLUSIF, a fragrance that leaves a lasting impression.`\
 https://nytimes.com/paidpost/athletic/chanel/extracurricular-activities.html
