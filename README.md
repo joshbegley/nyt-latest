@@ -1,3 +1,7 @@
+**Brock Purdy has 49ers offense feeling like it can carry the load after easy win over Cardinals**\
+`The 49ers have their franchise quarterback back. "He was vintage Brock," Christian McCaffrey said. "That's a huge compliment."`\
+https://nytimes.com/athletic/6813392/2025/11/16/brock-purdy-49ers-offense-confidence-easy-win-cardinals/
+
 **John Shuster, U.S. Olympic curling pillar, loses out in bid for sixth straight Games**\
 `Shuster, who has competed at every Olympics since 2006 and won the only U.S. medals in the sport, and his team lost Sunday at U.S. trials.`\
 https://nytimes.com/athletic/6810019/2025/11/16/john-shuster-us-curling-olympics-trials-danny-casper/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6813327/2025/11/16/sam-darnold-seattle-seahawks-int
 **Trump Tariffs Push Japan’s Economy Into Contraction**\
 `The Japanese economy shrank by 1.8 percent compared to the same quarter last year, as U.S. tariffs dampened automobile exports and prompted a bleak outlook for growth.`\
 https://nytimes.com/2025/11/16/business/japan-economy-contraction.html
-
-**Trump Says House Republicans Should Vote to Release Epstein Files**\
-`President Trump reversed himself by calling on the House of Representatives to vote for the release of files related to the convicted sex offender Jeffrey Epstein.`\
-https://nytimes.com/2025/11/16/us/politics/trump-epstein-files-release-vote.html
 
