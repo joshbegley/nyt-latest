@@ -1,3 +1,11 @@
+**Jeff Bezos’ Big Bet on A.I.**\
+`The Amazon founder is tapping his fortune to help fund Project Prometheus, an artificial intelligence start-up, even as he has said A.I. may be in a bubble.`\
+https://nytimes.com/2025/11/17/business/dealbook/jeff-bezos-big-bet-on-ai.html
+
+**Paul George could be back for the Sixers on Monday. Here are 5 reasons why they need him**\
+`The nine-time All-Star could make his season debut Monday after offseason knee surgery.`\
+https://nytimes.com/athletic/6813698/2025/11/17/paul-george-philadelphia-76ers-return-from-injury/
+
 **Middlesbrough finalising deal to appoint Hammarby coach Hellberg after Edwards exit**\
 `Hellberg, a 37-year-old Swedish coach, has just guided Hammarby to a second-place finish in the Swedish top division.`\
 https://nytimes.com/athletic/6814111/2025/11/17/middlesbrough-manager-hellberg/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6813316/2025/11/17/usmnt-fans-world-cup-pochettino-
 **Why Flyers forward Matvei Michkov may still be getting limited minutes**\
 `Michkov looked to be turning a corner after a bump in minutes and scoring goals in three straight games — until his usage dipped again.`\
 https://nytimes.com/athletic/6812162/2025/11/17/flyers-matvei-michkov-usage-nhl/
-
-**Message Board Monday: Mississippi State fans hate Lane Kiffin, plus others in misery**\
-`With so many fan bases tapped out on the 2025 season, OT (off-topic) threads are commonplace on message boards. `\
-https://nytimes.com/athletic/6812556/2025/11/17/lane-kiffin-ole-miss-coaching-candidate-mississippi-state/
-
-**Browns rookie Shedeur Sanders wasn't playing for a reason. We just saw why**\
-`The absurd discourse of the past six months that Cleveland was setting Sanders up to fail was put to rest after 30 bad minutes vs. Ravens.`\
-https://nytimes.com/athletic/6813524/2025/11/17/browns-ravens-shedeur-sanders-debut/
 
