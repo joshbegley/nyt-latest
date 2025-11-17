@@ -1,3 +1,7 @@
+**Scott Boland and Brendan Doggett aim to make history for Australia in Ashes opener**\
+`If the two pace bowlers are picked in Perth, it will be the first time Australia have named two indigenous players in the same Test team`\
+https://nytimes.com/athletic/6813827/2025/11/17/ashes-australia-boland-doggett-indigenous-history/
+
 **Nasser Hussain interview: 'The Ashes defines England captains and coaches'**\
 `The former England captain is joining The Athletic's Ashes coverage - he can't wait for the talking to stop and the cricket to start`\
 https://nytimes.com/athletic/6800751/2025/11/17/nasser-hussain-england-australia-ashes-columnist/
