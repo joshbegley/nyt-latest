@@ -1,3 +1,11 @@
+**Eagles-Lions takeaways: Philly defense harasses Jared Goff, ruins 4th-down gambles**\
+`Philadelphia's defense and a rushing attack that was good enough led a 16-9 victory between two of the NFC's top teams.`\
+https://nytimes.com/athletic/6813058/2025/11/17/lions-eagles-score-result-takeaways-nfl/
+
+**'Death has come for me three times' - The incredible, harrowing stories of Julian Calero**\
+`Now manager of La Liga side Levante, Calero was among the first police officers to arrive at the scene of the Madrid train bombings of 2004`\
+https://nytimes.com/athletic/6800567/2025/11/17/julian-calero-interview-levante-manager-la-liga/
+
 **New International Student Enrollments Plummeted This Fall, Survey Finds**\
 `The overall number of international students enrolled in U.S. colleges and universities, including those who enrolled in prior years or who are working after graduation, fell only slightly.`\
 https://nytimes.com/2025/11/17/us/international-students-enrollment-decrease.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/17/technology/crypto-exchanges-dirty-money.html
 **At a Shared Symbol of Jihad, the Taliban Defy Their Old Ties With Pakistan**\
 `Afghan officials are lashing out against their former allies in the Pakistan military as hostilities between the two countries intensify.`\
 https://nytimes.com/2025/11/17/world/asia/at-a-shared-symbol-of-jihad-the-taliban-defy-their-old-ties-with-pakistan.html
-
-**Trump Gives Legs to South Korea’s Dream for Nuclear-Powered Subs**\
-`For decades, Washington blocked Seoul’s desire for the attack submarines over concerns about nuclear proliferation. President Trump reversed that policy last month, but left key questions unresolved.`\
-https://nytimes.com/2025/11/17/world/asia/trump-south-korea-nuclear-submarines.html
-
-**NFL playoff picture, Week 11: Broncos bust Chiefs' division hopes; Rams team to beat in NFC?**\
-`The Broncos and Rams look to be in control out West. Is it time to take the Bears' playoff hopes seriously? `\
-https://nytimes.com/athletic/6794845/2025/11/16/nfl-playoff-picture-week-11-broncos-chiefs/
 
