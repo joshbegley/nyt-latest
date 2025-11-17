@@ -1,3 +1,11 @@
+**Deion Sanders was left in tears after learning of Shedeur Sanders' NFL debut**\
+`Sanders was at a coaching clinic when he heard the news. Shedeur completed 4 of 16 passes for 47 yards in a 23-16 loss to the Ravens.`\
+https://nytimes.com/athletic/6815046/2025/11/17/deion-sanders-reaction-shedeur-sanders-debut-nfl/
+
+**Man Charged in Shooting of Cleaning Woman Who Arrived at Wrong House in Indiana**\
+`A man was charged with manslaughter after a woman was shot through the front door of a home before dawn this month in suburban Indianapolis.`\
+https://nytimes.com/2025/11/17/us/curt-andersen-indiana-shooting-charges.html
+
 **E.P.A. Rule Would Drastically Curb Protections for Wetlands**\
 `The proposal could strip federal protections from most U.S. wetlands, some of which feed drinking water systems.`\
 https://nytimes.com/2025/11/17/climate/epa-curbs-protections-for-wetlands.html
