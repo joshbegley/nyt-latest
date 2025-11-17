@@ -1,3 +1,7 @@
+**Bangladesh Court Sentences Former Leader Sheikh Hasina to Death**\
+`The former prime minister, who fled to India last year, was tried in absentia for ordering the use of lethal weapons during the uprising that drove her from power.`\
+https://nytimes.com/2025/11/17/world/asia/bangladesh-court-sentences-former-leader-sheikh-hasina-to-death.html
+
 **Jeff Bezos Creates A.I. Start-Up Where He Will Be Co-Chief Executive**\
 `Called Project Prometheus, the company is focusing on artificial intelligence for the engineering and manufacturing of computers, automobiles and spacecraft.`\
 https://nytimes.com/2025/11/17/technology/bezos-project-prometheus.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/17/learning/word-of-the-day-deficient.html
 **Cooper Flagg comes up in the clutch in Mavericks' thrilling OT win over Blazers**\
 `Dallas needed Flagg down the stretch and in OT Sunday night, and the star rookie delivered.`\
 https://nytimes.com/athletic/6813482/2025/11/17/cooper-flagg-mavericks-overtime-win-trail-blazers/
-
-**Pickford, Stones, Rice, Kane: Can one of football's strongest spines make it to the World Cup injury-free?**\
-`England have perhaps the best Plan A in the world, but losing any of their four key men would diminish the side's capabilities significantly`\
-https://nytimes.com/athletic/6805816/2025/11/17/england-spine-pickford-stones-rice-kane-world-cup/
 
