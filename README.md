@@ -1,40 +1,40 @@
+**How to watch Knicks vs. Heat: Time, TV, streaming**\
+`Find out how to watch the New York Knicks play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815321/2025/11/17/knicks-vs-heat-stream-how-to-watch-nov-17/
+
+**How to watch Mavericks vs. Timberwolves: Time, TV, streaming**\
+`Find out how to watch the Dallas Mavericks play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815319/2025/11/17/mavericks-vs-timberwolves-stream-how-to-watch-nov-17/
+
+**How to watch Bulls vs. Nuggets: Time, TV, streaming**\
+`Find out how to watch the Chicago Bulls play the Denver Nuggets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815317/2025/11/17/bulls-vs-nuggets-stream-how-to-watch-nov-17/
+
+**How to watch Thunder vs. Pelicans: Time, TV, streaming**\
+`Find out how to watch the Oklahoma City Thunder play the New Orleans Pelicans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815316/2025/11/17/thunder-vs-pelicans-stream-how-to-watch-nov-17/
+
+**How to watch Hornets vs. Raptors: Time, TV, streaming**\
+`Find out how to watch the Charlotte Hornets play the Toronto Raptors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815313/2025/11/17/hornets-vs-raptors-stream-how-to-watch-nov-17/
+
+**How to watch Canadiens vs. Blue Jackets: Time, TV, streaming**\
+`Find out how to watch the Montreal Canadiens play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815311/2025/11/17/canadiens-vs-blue-jackets-stream-how-to-watch-nov-17/
+
+**How to watch Mammoth vs. Ducks: Time, TV, streaming**\
+`Find out how to watch the Utah Mammoth play the Anaheim Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815309/2025/11/17/mammoth-vs-ducks-stream-how-to-watch-nov-17/
+
+**From Personal Computers to Computing That’s Truly Personal **\
+`Our latest innovations show that Lenovo is helping create a world where computing revolves around you. `\
+https://nytimes.com/paidpost/2025-10-17/.html
+
+**Former Bangladesh Prime Minister Is Sentenced to Death**\
+`Sheikh Hasina, who is living in exile in India, was convicted in absentia of crimes against humanity during a brutal crackdown on student-led protests in 2024.`\
+https://nytimes.com/video/world/asia/100000010528062/bangladesh-sheikh-hasina-death-sentence.html
+
 **How to watch SIU-Edwardsville vs. Wisconsin men's basketball: Time, TV, streaming**\
 `Find out how to watch the SIU-Edwardsville Cougars play the Wisconsin Badgers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6815270/2025/11/17/siu-edwardsville-vs-wisconsin-stream-how-to-watch-nov-17/
-
-**How to watch Southern Utah vs. Gonzaga men's basketball: Time, TV, streaming**\
-`Find out how to watch the Southern Utah Thunderbirds play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6815266/2025/11/17/southern-utah-vs-gonzaga-stream-how-to-watch-nov-17/
-
-**How to watch Rice vs. Tennessee men's basketball: Time, TV, streaming**\
-`Find out how to watch the Rice Owls play the Tennessee Volunteers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6815264/2025/11/17/rice-vs-tennessee-stream-how-to-watch-nov-17/
-
-**How to watch Stonehill vs. Iowa State men's basketball: Time, TV, streaming**\
-`Find out how to watch the Stonehill Skyhawks play the Iowa State Cyclones, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6815260/2025/11/17/stonehill-vs-iowa-state-stream-how-to-watch-nov-17/
-
-**Met Museum Employees Petition to Create Union**\
-`The proposal, for a union to represent nearly 1,000 employees, would make the Met one of the largest unionized museums in the country.`\
-https://nytimes.com/2025/11/17/arts/design/met-museum-union.html
-
-**College football Week 13 odds: USC at Oregon has massive playoff stakes**\
-`USC at Oregon and Missouri at Oklahoma are the only ranked matchups in Week 13 and the home teams are favored by more than a touchdown.`\
-https://nytimes.com/athletic/6814619/2025/11/17/college-football-week-13-odds-usc-oregon/
-
-**The Case for Overthrowing Maduro**\
-`Thinking through the case for intervention in Venezuela.`\
-https://nytimes.com/2025/11/17/opinion/venezuela-trump-maduro.html
-
-**Jake Neighbours expected to return on Blues' road trip, eager to help 'get some good mojo going'**\
-`Neighbours is still tied for the Blues' goal-scoring lead despite missing 11 games. He was the team's leading scorer when he was injured.`\
-https://nytimes.com/athletic/6814943/2025/11/17/jake-neighbours-blues-injury-return/
-
-**NFL overreactions: 4 favorites that aren't favored by enough**\
-`Toby Mergler's NFL Week 12 picks include three big favorites and one peculiar point spread.`\
-https://nytimes.com/athletic/6814871/2025/11/17/nfl-overreaction-monday-week-12/
-
-**'This is why I left Man United': McClaren's Jamaica on brink of World Cup**\
-`Jamaica are on the brink of qualifying for the tournament next summer, but must beat Curacao in Kingston to finish top of their group.`\
-https://nytimes.com/athletic/6815180/2025/11/17/steve-mcclaren-jamaica-world-cup-qualify/
 

@@ -1,3 +1,19 @@
+**How to watch SIU-Edwardsville vs. Wisconsin men's basketball: Time, TV, streaming**\
+`Find out how to watch the SIU-Edwardsville Cougars play the Wisconsin Badgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815270/2025/11/17/siu-edwardsville-vs-wisconsin-stream-how-to-watch-nov-17/
+
+**How to watch Southern Utah vs. Gonzaga men's basketball: Time, TV, streaming**\
+`Find out how to watch the Southern Utah Thunderbirds play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815266/2025/11/17/southern-utah-vs-gonzaga-stream-how-to-watch-nov-17/
+
+**How to watch Rice vs. Tennessee men's basketball: Time, TV, streaming**\
+`Find out how to watch the Rice Owls play the Tennessee Volunteers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815264/2025/11/17/rice-vs-tennessee-stream-how-to-watch-nov-17/
+
+**How to watch Stonehill vs. Iowa State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Stonehill Skyhawks play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815260/2025/11/17/stonehill-vs-iowa-state-stream-how-to-watch-nov-17/
+
 **Met Museum Employees Petition to Create Union**\
 `The proposal, for a union to represent nearly 1,000 employees, would make the Met one of the largest unionized museums in the country.`\
 https://nytimes.com/2025/11/17/arts/design/met-museum-union.html
