@@ -1,3 +1,7 @@
+**The U.N. Security Council Backs Trump’s Gaza Plan**\
+`Also, it’s a big week for the art market. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/11/17/briefing/the-un-security-council-backs-trumps-gaza-plan.html
+
 **What Is Botulism?**\
 `The life-threatening illness is a continuing threat. Here’s what you need to know.`\
 https://nytimes.com/2025/11/17/well/what-is-botulism.html
