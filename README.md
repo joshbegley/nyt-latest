@@ -1,3 +1,19 @@
+**How to watch SIU-Edwardsville vs. Wisconsin men's basketball: Time, TV, streaming**\
+`Find out how to watch the SIU-Edwardsville Cougars play the Wisconsin Badgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815270/2025/11/17/siu-edwardsville-vs-wisconsin-stream-how-to-watch-nov-17/
+
+**How to watch Southern Utah vs. Gonzaga men's basketball: Time, TV, streaming**\
+`Find out how to watch the Southern Utah Thunderbirds play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815266/2025/11/17/southern-utah-vs-gonzaga-stream-how-to-watch-nov-17/
+
+**How to watch Rice vs. Tennessee men's basketball: Time, TV, streaming**\
+`Find out how to watch the Rice Owls play the Tennessee Volunteers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815264/2025/11/17/rice-vs-tennessee-stream-how-to-watch-nov-17/
+
+**How to watch Stonehill vs. Iowa State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Stonehill Skyhawks play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815260/2025/11/17/stonehill-vs-iowa-state-stream-how-to-watch-nov-17/
+
 **Met Museum Employees Petition to Create Union**\
 `The proposal, for a union to represent nearly 1,000 employees, would make the Met one of the largest unionized museums in the country.`\
 https://nytimes.com/2025/11/17/arts/design/met-museum-union.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6814871/2025/11/17/nfl-overreaction-monday-week-12/
 **'This is why I left Man United': McClaren's Jamaica on brink of World Cup**\
 `Jamaica are on the brink of qualifying for the tournament next summer, but must beat Curacao in Kingston to finish top of their group.`\
 https://nytimes.com/athletic/6815180/2025/11/17/steve-mcclaren-jamaica-world-cup-qualify/
-
-**High Hamburger Prices? White House Blames Biden and Migrants.**\
-`Treasury Secretary Scott Bessent said migrants were bringing sick cows across the border, snarling beef supply chains.`\
-https://nytimes.com/2025/11/17/us/politics/hamburger-beef-prices-trump.html
-
-**3 Charged With Trying to Bribe Juror in Boxer’s Drug Smuggling Case**\
-`The defendants contacted a man on the jury and arranged to meet him on Staten Island, where they offered $100,000 for an acquittal, prosecutors say. A new jury will be anonymous.`\
-https://nytimes.com/2025/11/17/nyregion/brooklyn-boxer-jury-bribery-charges.html
-
-**Deion Sanders was left in tears after learning of Shedeur Sanders' NFL debut**\
-`Sanders was at a coaching clinic when he heard the news. Shedeur completed 4 of 16 passes for 47 yards in a 23-16 loss to the Ravens.`\
-https://nytimes.com/athletic/6815046/2025/11/17/deion-sanders-reaction-shedeur-sanders-debut-nfl/
-
-**E.P.A. Rule Would Drastically Curb Protections for Wetlands**\
-`The proposal could strip federal protections from most U.S. wetlands, some of which feed drinking water systems.`\
-https://nytimes.com/2025/11/17/climate/epa-curbs-protections-for-wetlands.html
 
