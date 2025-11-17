@@ -1,3 +1,11 @@
+**What Questions Do You Have About U.S. Immigration Policies?**\
+`“Ask a Correspondent” will take your questions to Hamed Aleaziz, our immigration reporter.`\
+https://nytimes.com/2025/11/17/world/ask-a-correspondent-questions-immigration.html
+
+**Craig Berube is turning up the heat on the scuffling Leafs: 'Just do it!'**\
+`With the Maple Leafs on a five-game losing streak, Craig Berube was as angry and vocal as he’s been all season at Monday's practice.`\
+https://nytimes.com/athletic/6814912/2025/11/17/craig-berube-maple-leafs-practice/
+
 **Michigan RB Justice Haynes unlikely to return during the regular season**\
 `Haynes, who topped 100 yards in six of his seven starts this season, has missed the last two games with a foot injury.`\
 https://nytimes.com/athletic/6814945/2025/11/17/michigan-rb-justice-haynes-ohio-state-injury-unlikely-return/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6814659/2025/11/17/lebron-james-lakers-g-league-coa
 **Paul George set to return to 76ers lineup Monday after offseason knee injury**\
 `George's return provides the 7-5 Sixers with much-needed reinforcements.  `\
 https://nytimes.com/athletic/6757362/2025/11/17/paul-george-injury-76ers-status-knee/
-
-**Teeing Off with Jordan Ford**\
-`What golf can teach us about investing, featuring pro golfer Neal Shipley, financial content creator Humphrey Yang, and Fidelity SVP Jordan Ford.`\
-https://nytimes.com/paidpost/athletic/fidelity/teeing-off-3.html
-
-**Teeing Off with Humphrey Yang**\
-`What golf can teach us about investing, featuring pro golfer Neal Shipley, financial content creator Humphrey Yang, and Fidelity SVP Jordan Ford.`\
-https://nytimes.com/paidpost/athletic/fidelity/teeing-off-2.html
 
