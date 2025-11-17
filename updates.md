@@ -1,3 +1,11 @@
+**E.P.A. Rule Would Drastically Curb Protections for Wetlands**\
+`The proposal could strip federal protections from most U.S. wetlands, some of which feed drinking water systems.`\
+https://nytimes.com/2025/11/17/climate/epa-curbs-protections-for-wetlands.html
+
+**Homeowner Charged in Shooting of Cleaning Woman Who Arrived at Wrong House**\
+`A man was charged with manslaughter after a woman was shot through the front door of a home before dawn this month in suburban Indianapolis.`\
+https://nytimes.com/2025/11/17/us/curt-andersen-indiana-shooting-charges.html
+
 **Serbian Woman Ends Hunger Strike Against Government**\
 `Dijana Hrka became the face of protest after her son and 15 other people died in a railway station collapse in Serbia. Her hunger strike lasted 16 days.`\
 https://nytimes.com/2025/11/17/world/europe/serbia-hunger-striker.html

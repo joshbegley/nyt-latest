@@ -1,3 +1,11 @@
+**E.P.A. Rule Would Drastically Curb Protections for Wetlands**\
+`The proposal could strip federal protections from most U.S. wetlands, some of which feed drinking water systems.`\
+https://nytimes.com/2025/11/17/climate/epa-curbs-protections-for-wetlands.html
+
+**Homeowner Charged in Shooting of Cleaning Woman Who Arrived at Wrong House**\
+`A man was charged with manslaughter after a woman was shot through the front door of a home before dawn this month in suburban Indianapolis.`\
+https://nytimes.com/2025/11/17/us/curt-andersen-indiana-shooting-charges.html
+
 **Serbian Woman Ends Hunger Strike Against Government**\
 `Dijana Hrka became the face of protest after her son and 15 other people died in a railway station collapse in Serbia. Her hunger strike lasted 16 days.`\
 https://nytimes.com/2025/11/17/world/europe/serbia-hunger-striker.html
@@ -17,16 +25,4 @@ https://nytimes.com/athletic/6814945/2025/11/17/michigan-rb-justice-haynes-ohio-
 **Next Trump Project Opens More Doors for New Investors**\
 `The Trump Organization and its Middle East development partner have announced a project in the Maldives that marries two of the family’s most successful moneymaking enterprises.`\
 https://nytimes.com/2025/11/17/us/politics/trump-saudi-arabia-deals-cryptocurrency.html
-
-**The World Baseball Classic roster grows. Plus: Women’s Pro Baseball League stadium reveal**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6814989/2025/11/17/world-baseball-classic-roster-the-windup/
-
-**Acting FEMA Administrator Is Out, Injecting Uncertainty at Agency in Limbo**\
-`David Richardson had been on the job for six months. FEMA employees questioned his ability to lead the agency.`\
-https://nytimes.com/2025/11/17/climate/fema-david-richardson.html
-
-**Purdue takes over No. 1 spot in AP men's poll after win at Alabama: Key takeaways**\
-`Braden Smith and the Boilermakers are back in the top spot. NC State, under first-year coach Will Wade, is in the poll for first time.`\
-https://nytimes.com/athletic/6814087/2025/11/17/ap-mens-basketball-top-25-purdue-houston/
 
