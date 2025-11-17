@@ -1,3 +1,15 @@
+**France Agrees to Sell Up to 100 Fighter Jets to Ukraine**\
+`Some in Ukraine criticized the 10-year timeline for the warplanes and other defense equipment, but France called it a long-term commitment to the country.`\
+https://nytimes.com/2025/11/17/world/europe/ukraine-france-rafale-fighter-jets.html
+
+**Sex Had Become a Chore. Then They Started Reading Romantasy.**\
+`The wildly popular fiction genre allows readers to talk openly about yearning, sex and desire. And it’s spilling over into their bedrooms.`\
+https://nytimes.com/2025/11/17/well/romantasy-books-sex-intimacy.html
+
+**Is Full-Fat Dairy Healthier?**\
+`Americans have been told to prioritize low-fat dairy for decades, but Robert F. Kennedy Jr. has called that recommendation into question.`\
+https://nytimes.com/2025/11/17/well/eat/whole-milk-dairy-health-effects.html
+
 **Heisman Trophy odds: Mendoza reaches a milestone first in the race**\
 `Fernando Mendoza is now favored against the field to win the Heisman Trophy.`\
 https://nytimes.com/athletic/6813700/2025/11/17/heisman-trophy-odds-fernando-mendoza-favorite/

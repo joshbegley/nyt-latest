@@ -1,3 +1,11 @@
+**Penguins mailbag: Sidney Crosby vs. Alex Ovechkin is a fun debate with an obvious answer**\
+`Josh Yohe also dives into the Penguins' trip to Sweden, Christmas music, his signature dish and much more.`\
+https://nytimes.com/athletic/6796177/2025/11/17/penguins-sidney-crosby-alex-ovechkin-mailbag/
+
+**The Bounce: The Pistons forgot how to lose. Plus, what's next for the Pelicans?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6807402/2025/11/17/pistons-pelicans-gambling-willie-green-the-bounce/
+
 **France Agrees to Sell Up to 100 Fighter Jets to Ukraine**\
 `Some in Ukraine criticized the 10-year timeline for the warplanes and other defense equipment, but France called it a long-term commitment to the country.`\
 https://nytimes.com/2025/11/17/world/europe/ukraine-france-rafale-fighter-jets.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/admin/100000010528136/17cul-mammoths-hpgrid-vid1x1.htm
 **Larin replaced by Shaffelburg in Canada camp for Venezuela game**\
 `Larin is second in Canada's all-time goalscoring charts with 30 goals in 87 games.`\
 https://nytimes.com/athletic/6814262/2025/11/17/cyle-larin-shaffelburg-canada-squad/
-
-**Lubbock Will Remove Buddy Holly-Themed Crosswalk After Federal Crackdown**\
-`A Trump administration directive targeting political road markings has left places like Lubbock, Texas, helpless to challenge broad new policies.`\
-https://nytimes.com/2025/11/17/us/buddy-holly-crosswalk-texas.html
-
-**Inside Barca: Finally, a return to the Camp Nou, plus Messi visit fallout and could they really be in for Kane?**\
-`Home at last! Plus: could Messi play a role in Barca's upcoming elections and why talk of a move for the England captain is premature`\
-https://nytimes.com/athletic/6814208/2025/11/17/inside-barcelona-messi-kane-camp-nou/
 
