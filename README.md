@@ -1,3 +1,7 @@
+**Europe Begins Rethinking Its Crackdown on Big Tech**\
+`European policymakers are crafting changes to scale back and simplify landmark rules for A.I. and data privacy, in a shift from an aggressive regulatory period.`\
+https://nytimes.com/2025/11/17/technology/europe-big-tech.html
+
 **Penguins mailbag: Sidney Crosby vs. Alex Ovechkin is a fun debate with an obvious answer**\
 `Josh Yohe also dives into the Penguins' trip to Sweden, Christmas music, his signature dish and much more.`\
 https://nytimes.com/athletic/6796177/2025/11/17/penguins-sidney-crosby-alex-ovechkin-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6814438/2025/11/17/carlos-coronel-rbny-contract-tra
 ****\
 `(No description)`\
 https://nytimes.com/video/admin/100000010528136/17cul-mammoths-hpgrid-vid1x1.html
-
-**Larin replaced by Shaffelburg in Canada camp for Venezuela game**\
-`Larin is second in Canada's all-time goalscoring charts with 30 goals in 87 games.`\
-https://nytimes.com/athletic/6814262/2025/11/17/cyle-larin-shaffelburg-canada-squad/
 

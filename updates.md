@@ -1,3 +1,11 @@
+**Penguins mailbag: Sidney Crosby vs. Alex Ovechkin is a fun debate with an obvious answer**\
+`Josh Yohe also dives into the Penguins' trip to Sweden, Christmas music, his signature dish and much more.`\
+https://nytimes.com/athletic/6796177/2025/11/17/penguins-sidney-crosby-alex-ovechkin-mailbag/
+
+**The Bounce: The Pistons forgot how to lose. Plus, what's next for the Pelicans?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6807402/2025/11/17/pistons-pelicans-gambling-willie-green-the-bounce/
+
 **France Agrees to Sell Up to 100 Fighter Jets to Ukraine**\
 `Some in Ukraine criticized the 10-year timeline for the warplanes and other defense equipment, but France called it a long-term commitment to the country.`\
 https://nytimes.com/2025/11/17/world/europe/ukraine-france-rafale-fighter-jets.html
