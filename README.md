@@ -1,3 +1,11 @@
+**Why was Bears' Nahshon Wright so emotional after interception, win? 'I gained an angel'**\
+`With a heavy heart, Wright delivered a highlight-reel takeaway in tribute to his former coach, the late John Beam.`\
+https://nytimes.com/athletic/6812921/2025/11/16/bears-nahshon-wright-emotional-john-beam/
+
+**Carter Hart returns to hockey after 22 months, in AHL game**\
+`Hart remains ineligible to play in NHL games per the conditions of his reinstatement.`\
+https://nytimes.com/athletic/6810690/2025/11/16/carter-hart-ahl-golden-knights/
+
 **49ers-Cardinals takeaways: Purdy shines in return, Kittle scores twice**\
 `Jacoby Brissett completed an NFL-record 47 passes, but San Francisco's offense rolled in Purdy's first game in weeks`\
 https://nytimes.com/athletic/6812572/2025/11/16/49ers-cardinals-score-result-takeaways-nfl/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/16/nyregion/eric-adams-israel-safety-mamdani.html
 **Anthony Davis to be re-assessed in 7-10 days as calf recovery continues**\
 `The Mavericks announced that Anthony Davis was recently re-evaluated and will be “re-assessed in seven to 10 days.”`\
 https://nytimes.com/athletic/6812808/2025/11/16/anthony-davis-injury-update-mavericks-nba/
-
-**Jaedyn Shaw free kick sends No. 8 Gotham FC to NWSL championship with win over Pride**\
-`Gotham defeated the reigning NWSL champions to advance and will meet the No. 2 Washington Spirit on Nov. 22 at PayPal Park.`\
-https://nytimes.com/athletic/6812849/2025/11/16/gotham-fc-advance-nwsl-championship-jaedyn-shaw/
-
-**Browns QB Shedeur Sanders makes NFL debut**\
-`Sanders finished the game 4-of-16 for 47 yards and an interception as Cleveland fell to 2-8 on the season. `\
-https://nytimes.com/athletic/6812848/2025/11/16/shedeur-sanders-debut-browns-nfl/
 

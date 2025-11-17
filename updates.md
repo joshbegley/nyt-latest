@@ -1,3 +1,15 @@
+**49ers-Cardinals takeaways: Purdy shines in return, Kittle scores twice**\
+`Jacoby Brissett completed an NFL-record 47 passes, but San Francisco's offense rolled in Purdy's first game in weeks`\
+https://nytimes.com/athletic/6812572/2025/11/16/49ers-cardinals-score-result-takeaways-nfl/
+
+**Raheem Morris takes blame as Falcons fall to Panthers: 'It definitely is on me'**\
+`The Falcons lost their fifth straight game on Sunday while allowing Bryce Young to throw for a Panthers-record 448 yards.`\
+https://nytimes.com/athletic/6812926/2025/11/16/falcons-panthers-raheem-morris-michael-penix/
+
+**Browns QB Shedeur Sanders makes NFL debut**\
+`Sanders finished the game 4-of-16 for 47 yards and an interception as Cleveland fell to 2-8 on the season. `\
+https://nytimes.com/athletic/6812848/2025/11/16/shedeur-sanders-debut-browns-nfl/
+
 **Josh Allen’s Six Touchdowns Lift Bills Past Buccaneers**\
 `The Buffalo Bills pulled out a 44-32 win over the Tampa Bay Buccaneers in a seesaw battle on Sunday.`\
 https://nytimes.com/video/the-athletic/100000010527512/josh-allens-six-touchdowns-lift-bills-past-buccaneers.html
