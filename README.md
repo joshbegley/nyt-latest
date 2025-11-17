@@ -1,3 +1,7 @@
+**Week 13 bowl projections: Why UNC could still receive a bowl bid**\
+`Multiple things need to break right, but UNC could potentially earn a postseason bid. `\
+https://nytimes.com/athletic/6812621/2025/11/17/college-football-bowl-projections-week-13/
+
 **Pirelli enforces maximum stint length for Qatar GP over tire wear concerns**\
 `The Lusail International Circuit in Qatar is one of the most demanding tracks for tires in F1 due to the number of high-speed corners.`\
 https://nytimes.com/athletic/6813952/2025/11/17/qatar-gp-pirelli-tire-wear-f1/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6813579/2025/11/17/sam-darnold-interceptions-rams-s
 **No Aaron Rodgers, no problem — thanks to the defense's unlikely resurgence**\
 `This time, the Joe Flacco-led Bengals couldn't find their footing against Pittsburgh.`\
 https://nytimes.com/athletic/6813293/2025/11/17/pittsburgh-steelers-aaron-rodgers-injury-defense-bengals/
-
-**What we learned in NFL Week 11: Eagles' defense dominates, Broncos stake claim**\
-`The Eagles look good enough to repeat, at least on one side of the ball; the Broncos remain red hot after taking down the Chiefs.`\
-https://nytimes.com/athletic/6813066/2025/11/17/nfl-week-11-highlights-eagles-lions-jared-goff/
 

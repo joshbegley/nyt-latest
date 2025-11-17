@@ -1,3 +1,7 @@
+**Pirelli enforces maximum stint length for Qatar GP over tire wear concerns**\
+`The Lusail International Circuit in Qatar is one of the most demanding tracks for tires in F1 due to the number of high-speed corners.`\
+https://nytimes.com/athletic/6813952/2025/11/17/qatar-gp-pirelli-tire-wear-f1/
+
 **Trump Administration Live Updates: President Reverses Stance on Epstein Files Ahead of House Vote**\
 ``\
 https://nytimes.com/live/2025/11/17/us/trump-news

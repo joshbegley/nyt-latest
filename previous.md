@@ -1,3 +1,7 @@
+**Pirelli enforces maximum stint length for Qatar GP over tire wear concerns**\
+`The Lusail International Circuit in Qatar is one of the most demanding tracks for tires in F1 due to the number of high-speed corners.`\
+https://nytimes.com/athletic/6813952/2025/11/17/qatar-gp-pirelli-tire-wear-f1/
+
 **Trump Administration Live Updates: President Reverses Stance on Epstein Files Ahead of House Vote**\
 ``\
 https://nytimes.com/live/2025/11/17/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6813293/2025/11/17/pittsburgh-steelers-aaron-rodger
 **What we learned in NFL Week 11: Eagles' defense dominates, Broncos stake claim**\
 `The Eagles look good enough to repeat, at least on one side of the ball; the Broncos remain red hot after taking down the Chiefs.`\
 https://nytimes.com/athletic/6813066/2025/11/17/nfl-week-11-highlights-eagles-lions-jared-goff/
-
-**Kyle Hamilton can do anything, perhaps even save the Ravens' season**\
-`Last season, Hamilton fixed the Ravens' pass defense by moving deep. This season, he's jolting 320-pound guards like a linebacker.`\
-https://nytimes.com/athletic/6813901/2025/11/17/kyle-hamilton-ravens-browns-position-change/
 
