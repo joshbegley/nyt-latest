@@ -1,3 +1,11 @@
+**Extracurricular Activities**\
+`On game day, every detail speaks. Nico Collins shares his ritual of preparation — a quiet, focused moment grounded by BLEU DE CHANEL L’EXCLUSIF, a fragrance that leaves a lasting impression.`\
+https://nytimes.com/paidpost/athletic/chanel/extracurricular-activities.html
+
+**Abdul Carter benched after sleeping through team walk-through: Sources**\
+`Being late to meetings has been a trend during Carter's rookie season.`\
+https://nytimes.com/athletic/6814523/2025/11/17/ny-giants-abdul-carter-benched-sleeping/
+
 **2 Charged in Over 300 Thefts at Mausoleums in Toronto Area**\
 `The thefts took place during the daytime when the pair would enter mausoleums to swipe necklaces and other jewelry from remains, the authorities said.`\
 https://nytimes.com/2025/11/17/world/americas/gta-mausoleum-cemeteries-theft-charges.html
