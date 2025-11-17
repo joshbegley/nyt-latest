@@ -1,3 +1,7 @@
+**Serbian Woman Ends Hunger Strike Against Government**\
+`Dijana Hrka became the face of protest after her son and 15 other people died in a railway station collapse in Serbia. Her hunger strike lasted 16 days.`\
+https://nytimes.com/2025/11/17/world/europe/serbia-hunger-striker.html
+
 **What Questions Do You Have About U.S. Immigration Policies?**\
 `“Ask a Correspondent” will take your questions to Hamed Aleaziz, our immigration reporter.`\
 https://nytimes.com/2025/11/17/world/ask-a-correspondent-questions-immigration.html
