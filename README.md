@@ -1,5 +1,5 @@
 **Tom Cruise Accepts an Honorary Oscar at the Governors Awards**\
-`The star was feted along with Debbie Allen, Dolly Parton and production designer Wynn Thomas at a show that has become an awards campaign stop.`\
+`The star was feted along with Debbie Allen, Dolly Parton and the production designer Wynn Thomas at a show that has become an awards campaign stop.`\
 https://nytimes.com/2025/11/17/movies/governors-awards-2025-tom-cruise.html
 
 **Dortmund's Karim Adeyemi fined for possession of brass knuckles, taser**\
