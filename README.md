@@ -36,5 +36,5 @@ https://nytimes.com/paidpost/fidelity-teeing-off-video-3/teeing-off/teeing-off-w
 
 **Teeing Off with Humphrey Yang**\
 `What golf can teach us about investing, featuring pro golfer Neal Shipley, financial content creator Humphrey Yang, and Fidelity SVP Jordan Ford.`\
-https://nytimes.com/paidpost/fidelity-teeing-off-video-2/teeing-off/teeing-off-with-humphrey-yang.html
+https://nytimes.com/paidpost/athletic/fidelity/teeing-off-2.html
 

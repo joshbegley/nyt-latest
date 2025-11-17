@@ -1,3 +1,15 @@
+**Michigan RB Justice Haynes unlikely to return during the regular season**\
+`Haynes, who topped 100 yards in six of his seven starts this season, has missed the last two games with a foot injury.`\
+https://nytimes.com/athletic/6814945/2025/11/17/michigan-rb-justice-haynes-ohio-state-injury-unlikely-return/
+
+**Next Trump Project Opens More Doors for New Investors**\
+`The Trump Organization and its Middle East development partner have announced a project in the Maldives that marries two of the family’s most successful moneymaking enterprises.`\
+https://nytimes.com/2025/11/17/us/politics/trump-saudi-arabia-deals-cryptocurrency.html
+
+**The World Baseball Classic roster grows. Plus: Women’s Pro Baseball League stadium reveal**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6814989/2025/11/17/world-baseball-classic-roster-the-windup/
+
 **Acting FEMA Administrator Is Out, Injecting Uncertainty at Agency in Limbo**\
 `David Richardson had been on the job for six months. FEMA employees questioned his ability to lead the agency.`\
 https://nytimes.com/2025/11/17/climate/fema-david-richardson.html
