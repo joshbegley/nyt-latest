@@ -1,3 +1,11 @@
+**Met Returns Buddhist Painting Thought Taken During the Korean War**\
+`The 18th-century painting, which the Met acquired in 2007, is believed to have been removed from a South Korean temple while it was controlled by the U.S. Army.`\
+https://nytimes.com/2025/11/17/arts/met-museum-korea-repatriation.html
+
+**Trump Says U.S. Will Sell F-35s to Saudis, Despite Pentagon Concerns**\
+`The president told reporters in the Oval Office on Monday that he planned to sell the advanced fighter jets to Riyadh.`\
+https://nytimes.com/2025/11/17/us/politics/trump-f35-jets-saudi-arabia.html
+
 **Bengals' Ja'Marr Chase suspended for spitting at Steelers' Jalen Ramsey**\
 `Ramsey was ejected for throwing a punch at Chase, but said after the game that it was a reaction to Chase spitting on him.`\
 https://nytimes.com/athletic/6812843/2025/11/17/jamarr-chase-suspended-spit-jalen-ramsey-nfl/
