@@ -1,3 +1,7 @@
+**Abdul Carter benched after sleeping through team walk-through: Sources**\
+`Being late to meetings has been a trend during Carter's rookie season.`\
+https://nytimes.com/athletic/6814523/2025/11/17/ny-giants-abdul-carter-benched-sleeping/
+
 **Europe Begins Rethinking Its Crackdown on Big Tech**\
 `European policymakers are crafting changes to scale back and simplify landmark rules for A.I. and data privacy, in a shift from an aggressive regulatory period.`\
 https://nytimes.com/2025/11/17/technology/europe-big-tech.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/17/science/monarch-butterfly-migration-tracking-sens
 **Coronel to leave RBNY as no agreement reached over new deal**\
 `Coronel is out of contract at the end of December and is eligible for MLS free agency.`\
 https://nytimes.com/athletic/6814438/2025/11/17/carlos-coronel-rbny-contract-transfer/
-
-****\
-`(No description)`\
-https://nytimes.com/video/admin/100000010528136/17cul-mammoths-hpgrid-vid1x1.html
 
