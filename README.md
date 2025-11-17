@@ -1,5 +1,5 @@
 **Bengals' Ja'Marr Chase suspended for spitting at Steelers' Jalen Ramsey**\
-`Cincinnati Bengals wide receiver Ja’Marr Chase has been suspended one game after the NFL found he spat on Pittsburgh Steelers cornerback Jalen Ramsey on Sunday.`\
+`Ramsey was ejected for throwing a punch at Chase, but said after the game that it was a reaction to Chase spitting on him.`\
 https://nytimes.com/athletic/6812843/2025/11/17/jamarr-chase-suspended-spit-jalen-ramsey-nfl/
 
 **Trump threatens World Cup host cities over 'safety' concerns, announces visa scheme for fans**\
