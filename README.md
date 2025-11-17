@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6813044/2025/11/16/bills-offense-keon-coleman-bench
 https://nytimes.com/athletic/6813184/2025/11/16/mariners-josh-naylor-five-year-deal/
 
 **Dehner Jr.: It's over for the 2025 Bengals, but what comes next?**\
-`Despite rare opportunities at every turn this year, for the 2025 Bengals, it’s over after Sunday's loss in Pittsburgh.`\
+`Despite rare opportunities at every turn this year, for the 2025 Bengals, it's over after Sunday's loss in Pittsburgh.`\
 https://nytimes.com/athletic/6813160/2025/11/16/bengals-steelers-results-what-comes-next/
 
 **Ravens-Browns takeaways: Mark Andrews' TD run lifts Baltimore to fourth straight win**\
