@@ -1,40 +1,40 @@
-**T's Dec. 7 Holiday Issue**\
-``\
-https://nytimes.com/issue/t-magazine/2025/11/17/ts-dec-7-holiday-issue-2025
+**Chaos at the Justice Department**\
+`President Trump has transformed the agency. We look at what’s happening on the inside.`\
+https://nytimes.com/2025/11/17/briefing/chaos-at-the-justice-department.html
 
-**Why De'Aaron Fox is embracing being Victor Wembanyama's sidekick**\
-`"We know that he could be one of the greatest players," Fox said. "But as he’s trying to get there, you don’t go through that on your own."`\
-https://nytimes.com/athletic/6813185/2025/11/17/deaaron-fox-spurs-victor-wembanyama-sidekick/
+**'Too many years' since Yankees had a Japanese star. Will that change this winter?**\
+`After missing out in recent years, could the Yankees land a Japanese star in free agency this offseason? Tatsuya Imai tops a talented trio.`\
+https://nytimes.com/athletic/6811418/2025/11/17/yankees-free-agency-imai-murakami-oikamoto/
 
-**Eagles survive again thanks to their dominant defense**\
-`As the offense continues to struggle, Philadelphia has needed everything its gotten from its ferocious defense.`\
-https://nytimes.com/athletic/6813118/2025/11/17/eagles-surviving-an-nfc-gauntlet-on-the-strength-of-their-dominant-defense/
+**Blackhawks power rankings: Artyom Levshunov, living legends, dancing coaches and … playoff talk?**\
+`Hockey is fun again in Chicago. Can it last? It’s starting to look like it can.`\
+https://nytimes.com/athletic/6812155/2025/11/17/blackhawks-power-rankings-artyom-levshunov-playoff-talk/
 
-**Twins' free-agent targets: 12 pitcher fits for a front office shopping in discount aisle**\
-`After gutting the bullpen in the trade deadline fire sale, the Twins are in desperate need of quality veteran relievers.`\
-https://nytimes.com/athletic/6804203/2025/11/17/twins-pitching-free-agent-targets/
+**Dispute over Angels VP's testimony continues in Skaggs wrongful death suit**\
+`Attorneys for the Skaggs family have filed a motion to allow for a mid-trial subpoena of Major League Baseball to rebut the testimony.`\
+https://nytimes.com/athletic/6813686/2025/11/17/skaggs-trial-angels-vp-accused-perjury/
 
-**Ravens turned to 'Hurricane' with the game on the line — and Mark Andrews delivered**\
-`If Baltimore makes something of this season, it'll look back on a gutsy call by Todd Monken that helped win an important game in Cleveland.`\
-https://nytimes.com/athletic/6813428/2025/11/17/ravens-mark-andrews-win-browns/
+**The 49ers need to get hot in November, and the Cardinals were a good start**\
+`The 49ers' team captains stepped up in Arizona. One of them, George Kittle, said the team is positioned right where it needs to be.`\
+https://nytimes.com/athletic/6813374/2025/11/17/49ers-beat-cardinals-george-kittle-brock-purdy-november/
 
-**What makes TCU a top-10 team? Women's college basketball power rankings**\
-`Transfers are boosting many top programs, including an offensive difference-maker at UCLA.`\
-https://nytimes.com/athletic/6813418/2025/11/17/womens-college-basketball-power-rankings-tcu/
+**The USMNT is making progress. The fans it hoped to attract haven’t (yet) noticed.**\
+`Mauricio Pochettino has made yet another plea to U.S. supporters to turn out and back the national team. Will they listen?`\
+https://nytimes.com/athletic/6813316/2025/11/17/usmnt-fans-world-cup-pochettino-stadiums/
 
-**TAFC: Can Reyna make the USMNT World Cup roster? Plus: Explaining MLS' Apple TV revamp**\
-`Despite a lack of games for his club, the 23-year-old inspired Mauricio Pochettino's side to a 2-1 win against Paraguay over the weekend`\
-https://nytimes.com/athletic/6813989/2025/11/17/gio-reyna-usmnt-world-cup-mls-apple/
+**Why Flyers forward Matvei Michkov may still be getting limited minutes**\
+`Michkov looked to be turning a corner after a bump in minutes and scoring goals in three straight games — until his usage dipped again.`\
+https://nytimes.com/athletic/6812162/2025/11/17/flyers-matvei-michkov-usage-nhl/
 
-**As the Lions' offense stumbles, maybe it's time Dan Campbell leaned into his defense**\
-`"There’s some things I wish I would’ve done differently," Lions coach Dan Campbell said after the Lions' loss Sunday night. `\
-https://nytimes.com/athletic/6813861/2025/11/17/lions-dan-campbell-offense-jared-goff-eagles/
+**Message Board Monday: Mississippi State fans hate Lane Kiffin, plus others in misery**\
+`With so many fan bases tapped out on the 2025 season, OT (off-topic) threads are commonplace on message boards. `\
+https://nytimes.com/athletic/6812556/2025/11/17/lane-kiffin-ole-miss-coaching-candidate-mississippi-state/
 
-**Blue Jackets Monday Gathering: Denton Mateychuk joins Connor McDavid's highlight reel**\
-`Also, the Blue Jackets again face a challenge without Boone Jenner.`\
-https://nytimes.com/athletic/6811701/2025/11/17/blue-jackets-mcdavid-mateychuk/
+**Browns rookie Shedeur Sanders wasn't playing for a reason. We just saw why**\
+`The absurd discourse of the past six months that Cleveland was setting Sanders up to fail was put to rest after 30 bad minutes vs. Ravens.`\
+https://nytimes.com/athletic/6813524/2025/11/17/browns-ravens-shedeur-sanders-debut/
 
-**Patrick Mahomes showed raw honesty after Chiefs' loss. Here's what frustrated him most**\
-`The Chiefs are 5-5 and have little room for error to turn things around. Here's what they said in the locker room.`\
-https://nytimes.com/athletic/6813218/2025/11/17/chiefs-patrick-mahomes-frustrated-broncos/
+**Who could the Senators target for their defence with Chabot still injured? Notebook**\
+`Plus, how the Senators became the league's best faceoff team, including Tim Stützle at over 60 percent.`\
+https://nytimes.com/athletic/6810718/2025/11/17/senators-defence-targets-chabot-faceoffs/
 
