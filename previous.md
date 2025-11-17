@@ -1,3 +1,7 @@
+**How to watch Bills vs. Texans: Time, TV, streaming**\
+`Find out how to watch the Buffalo Bills play the Houston Texans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6813945/2025/11/17/bills-vs-texans-stream-how-to-watch-nov-20/
+
 **Collin Murray-Boyles' first NBA road trip: Overpacking, an illness and a nap's value**\
 `Collin Murray-Boyles' first NBA trip was fraught with challenges, including battling a cold on the road. `\
 https://nytimes.com/athletic/6811803/2025/11/17/raptors-collin-murray-boyles-first-nba-road-trip/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/17/arts/design/artworks-auction-market-toilet-klimt.
 **Hurricane Melissa Evacuees Return to Guantánamo Base**\
 `The storm and the government shutdown halted court sessions and deportation operations at the outpost in Cuba for weeks.`\
 https://nytimes.com/2025/11/17/us/politics/hurricane-melissa-guantanamo-base.html
-
-**$3 Million Homes in California**\
-`A hillside house in Los Angeles, a Queen Anne Revival in Healdsburg and a Japanese-inspired home in Inverness.`\
-https://nytimes.com/2025/11/17/realestate/multimillion-california-homes.html
 

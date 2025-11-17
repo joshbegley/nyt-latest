@@ -1,3 +1,7 @@
+**How to watch Bills vs. Texans: Time, TV, streaming**\
+`Find out how to watch the Buffalo Bills play the Houston Texans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6813945/2025/11/17/bills-vs-texans-stream-how-to-watch-nov-20/
+
 **Collin Murray-Boyles' first NBA road trip: Overpacking, an illness and a nap's value**\
 `Collin Murray-Boyles' first NBA trip was fraught with challenges, including battling a cold on the road. `\
 https://nytimes.com/athletic/6811803/2025/11/17/raptors-collin-murray-boyles-first-nba-road-trip/
