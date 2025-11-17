@@ -1,3 +1,11 @@
+**The Mayor of Secaucus Has a Fix for America: ‘Say Yes to Everyone’**\
+`As South Asian and Muslim immigrants transform a small New Jersey town, the five-term mayor has managed to keep the peace. What happens when he’s gone?`\
+https://nytimes.com/2025/11/17/nyregion/secaucus-nj-mayor-gonnelli.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/17/crosswords/spelling-bee-forum.html
+
 **Trump Administration Escalates Pressure on Venezuela**\
 `The Trump administration on Sunday placed an aircraft carrier in the Caribbean and announced it would designate a Venezuelan group as a foreign terrorist organization.`\
 https://nytimes.com/2025/11/17/us/politics/trump-venezuela-maduro-military.html
