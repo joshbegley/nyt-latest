@@ -1,3 +1,7 @@
+**Paul George to return to 76ers lineup Monday after offseason knee injury**\
+`George's return provides the 7-5 Sixers with much-needed reinforcements.  `\
+https://nytimes.com/athletic/6757362/2025/11/17/paul-george-injury-76ers-status-knee/
+
 **Teeing Off with Jordan Ford**\
 `What golf can teach us about investing, featuring pro golfer Neal Shipley, financial content creator Humphrey Yang, and Fidelity SVP Jordan Ford.`\
 https://nytimes.com/paidpost/fidelity-teeing-off-video-3/teeing-off/teeing-off-with-jordan-ford.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/17/opinion/trump-epstein.html
 **Man Who Rushed Ariana Grande on ‘Wicked’ Red Carpet Is Put in Jail**\
 `Johnson Wen, an Australian influencer, was sentenced to nine days in jail after jumping a barricade and lunging at Ariana Grande at the Asia-Pacific premiere of “Wicked: For Good” in Singapore on Thursday.`\
 https://nytimes.com/video/world/asia/100000010528204/ariana-grande-singapore-fan-attack.html
-
-**NFL Week 12 odds, spreads: Chiefs host Colts with backs against the wall**\
-`Four preseason juggernauts are behind the eight ball in their divisions. Of them, the Chiefs have the toughest Week 12 matchup.`\
-https://nytimes.com/athletic/6814557/2025/11/17/nfl-week-12-odds-spreads-chiefs-colts/
 
