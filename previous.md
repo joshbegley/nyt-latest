@@ -1,3 +1,11 @@
+**Anthony Joshua vs. Jake Paul confirmed for Miami in December**\
+`The fight will consist of eight three-minute rounds and will be streamed on Netflix.`\
+https://nytimes.com/athletic/6814225/2025/11/17/anthony-joshua-jake-paul-boxing-miami/
+
+**Can the Wizards keep losing like this without hurting their youngsters' growth?**\
+`Washington, which has lost 12 of its first 13 games, played so badly Sunday that its veterans called a players-only meeting. `\
+https://nytimes.com/athletic/6813818/2025/11/17/washington-wizards-losing-alex-sarr-kyshawn-george/
+
 **Canadiens weekly notebook: Disastrous week doesn't tell the whole story**\
 `Also this week: a chat about size with Quinton Byfield, Juraj Slafkovský's top speed and Zack Bolduc's need to control his speed.`\
 https://nytimes.com/athletic/6813774/2025/11/17/canadiens-injury-updates-nhl-standings/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6812463/2025/11/17/nfl-week-11-afc-the-pulse/
 **Jeff Bezos’ Big Bet on A.I.**\
 `The Amazon founder is tapping his fortune to help fund Project Prometheus, an artificial intelligence start-up, even as he has said A.I. may be in a bubble.`\
 https://nytimes.com/2025/11/17/business/dealbook/jeff-bezos-big-bet-on-ai.html
-
-**Paul George could be back for the Sixers on Monday. Here are 5 reasons why they need him**\
-`The nine-time All-Star could make his season debut Monday after offseason knee surgery.`\
-https://nytimes.com/athletic/6813698/2025/11/17/paul-george-philadelphia-76ers-return-from-injury/
-
-**Middlesbrough finalising deal to appoint Hammarby coach Hellberg after Edwards exit**\
-`Hellberg, a 37-year-old Swedish coach, has just guided Hammarby to a second-place finish in the Swedish top division.`\
-https://nytimes.com/athletic/6814111/2025/11/17/middlesbrough-manager-hellberg/
 

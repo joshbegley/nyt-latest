@@ -1,3 +1,11 @@
+**Tom Cruise Accepts an Honorary Oscar at the Governors Awards**\
+`The star was feted along with Debbie Allen, Dolly Parton and production designer Wynn Thomas at a show that has become an awards campaign stop.`\
+https://nytimes.com/2025/11/17/movies/governors-awards-2025-tom-cruise.html
+
+**Dortmund's Karim Adeyemi fined for possession of brass knuckles, taser**\
+`Germany head coach Julian Nagelsmann confirmed on Sunday that he had spoken to Adeyemi about the case but would not comment further.`\
+https://nytimes.com/athletic/6814072/2025/11/17/karim-adeyemi-dortmund-germany-weapons/
+
 **Anthony Joshua vs. Jake Paul confirmed for Miami in December**\
 `The fight will consist of eight three-minute rounds and will be streamed on Netflix.`\
 https://nytimes.com/athletic/6814225/2025/11/17/anthony-joshua-jake-paul-boxing-miami/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6811775/2025/11/17/nc-state-basketball-will-wade-co
 **Lowetide: Can the Oilers' inconsistent defence get back on track?**\
 `The Oilers' defence has a long way to go in order to earn the preseason praise it received.`\
 https://nytimes.com/athletic/6812000/2025/11/17/edmonton-oilers-defence-stats-standings-2025/
-
-**The Pulse: Three teams define the AFC’s chaotic year**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6812463/2025/11/17/nfl-week-11-afc-the-pulse/
-
-**Jeff Bezos’ Big Bet on A.I.**\
-`The Amazon founder is tapping his fortune to help fund Project Prometheus, an artificial intelligence start-up, even as he has said A.I. may be in a bubble.`\
-https://nytimes.com/2025/11/17/business/dealbook/jeff-bezos-big-bet-on-ai.html
 

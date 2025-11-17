@@ -1,3 +1,11 @@
+**Anthony Joshua vs. Jake Paul confirmed for Miami in December**\
+`The fight will consist of eight three-minute rounds and will be streamed on Netflix.`\
+https://nytimes.com/athletic/6814225/2025/11/17/anthony-joshua-jake-paul-boxing-miami/
+
+**Can the Wizards keep losing like this without hurting their youngsters' growth?**\
+`Washington, which has lost 12 of its first 13 games, played so badly Sunday that its veterans called a players-only meeting. `\
+https://nytimes.com/athletic/6813818/2025/11/17/washington-wizards-losing-alex-sarr-kyshawn-george/
+
 **Canadiens weekly notebook: Disastrous week doesn't tell the whole story**\
 `Also this week: a chat about size with Quinton Byfield, Juraj Slafkovský's top speed and Zack Bolduc's need to control his speed.`\
 https://nytimes.com/athletic/6813774/2025/11/17/canadiens-injury-updates-nhl-standings/
