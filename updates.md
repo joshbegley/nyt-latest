@@ -1,3 +1,7 @@
+**James Franklin's fit at Virginia Tech is obvious in an ACC ripe for the taking**\
+`Virginia Tech, in a crowded, competitive coaching carousel, couldn’t have asked for a better option.`\
+https://nytimes.com/athletic/6815562/2025/11/17/james-franklin-virginia-tech-acc/
+
 **Minutia minute: Eddy Piñeiro's hamstring injury has the 49ers looking for kickers**\
 `Kyle Shanahan said Brock Purdy "checked out all right" after his first game back. Linebacker Tatum Bethune, however, didn't fare as well.`\
 https://nytimes.com/athletic/6815441/2025/11/17/49ers-kicker-injury-eddy-pineiro-minutia-minute/

@@ -1,3 +1,7 @@
+**James Franklin's fit at Virginia Tech is obvious in an ACC ripe for the taking**\
+`Virginia Tech, in a crowded, competitive coaching carousel, couldn’t have asked for a better option.`\
+https://nytimes.com/athletic/6815562/2025/11/17/james-franklin-virginia-tech-acc/
+
 **Minutia minute: Eddy Piñeiro's hamstring injury has the 49ers looking for kickers**\
 `Kyle Shanahan said Brock Purdy "checked out all right" after his first game back. Linebacker Tatum Bethune, however, didn't fare as well.`\
 https://nytimes.com/athletic/6815441/2025/11/17/49ers-kicker-injury-eddy-pineiro-minutia-minute/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6815449/2025/11/17/lane-kiffin-ole-miss-deadline-ls
 **Victor Wembanyama suffers calf injury, will miss at least 2-3 weeks: Source**\
 `The injury will sideline the all-world Spurs star for an extended period of time. `\
 https://nytimes.com/athletic/6815518/2025/11/17/victor-wembanyama-injury-update-left-calf-strain-spurs/
-
-**Met Returns Buddhist Painting Thought Taken During the Korean War**\
-`The 18th-century painting, which the Met acquired in 2007, is believed to have been removed from a South Korean temple while it was controlled by the U.S. Army.`\
-https://nytimes.com/2025/11/17/arts/met-museum-korea-repatriation.html
 
