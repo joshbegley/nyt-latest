@@ -1,3 +1,15 @@
+**Kaprizov's OT winner, Boldy's stick lift and a commitment to defense: Takeaways**\
+`The Foligno-Yurov-Trenin line reunited for a buzzing performance and Trenin's first goal of the season.`\
+https://nytimes.com/athletic/6812739/2025/11/16/wild-boldy-trenin-defense-golden-knights/
+
+**Trump Defends Tucker Carlson After Nick Fuentes Interview**\
+`President Trump defended Mr. Carlson’s friendly interview with an openly antisemitic white supremacist that prompted denunciations from some on the right.`\
+https://nytimes.com/2025/11/16/us/politics/trump-tucker-carlson-nick-fuentes.html
+
+**Bills offense explodes with Gabe Davis, Josh Allen together again; why it should stay that way**\
+`Davis had a big impact on the offense in his first game this season. `\
+https://nytimes.com/athletic/6813144/2025/11/16/bills-allen-davis-offense-future/
+
 **The Seahawks still believe in Sam Darnold — after another dud in a big game, should they?**\
 `The quarterback threw four interceptions in another long day against the rival Rams.`\
 https://nytimes.com/athletic/6813327/2025/11/16/sam-darnold-seattle-seahawks-interceptions-los-angeles-rams/

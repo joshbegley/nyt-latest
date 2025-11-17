@@ -1,3 +1,7 @@
+**‘Chess’ Review: At Least They Have the Music**\
+`This new revival, starring Lea Michele, Nicholas Christopher and Aaron Tveit, is a reminder why the erratic yet rewarding show has endured all these years.`\
+https://nytimes.com/2025/11/16/theater/chess-review-lea-michele-broadway.html
+
 **Kaprizov's OT winner, Boldy's stick lift and a commitment to defense: Takeaways**\
 `The Foligno-Yurov-Trenin line reunited for a buzzing performance and Trenin's first goal of the season.`\
 https://nytimes.com/athletic/6812739/2025/11/16/wild-boldy-trenin-defense-golden-knights/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6813233/2025/11/16/marta-orlando-pride-nwsl-semifin
 **‘It’s a Culture Now of Fear: A Year of Chaos Inside the Justice Department’**\
 `Sixty former staffers describe an environment of suspicion and intimidation within the nation’s most powerful law enforcement agency.`\
 https://nytimes.com/interactive/2025/11/16/magazine/trump-justice-department-staff-attorneys.html
-
-**Giants interim coach Mike Kafka shows he isn't giving up without a fight**\
-`The Giants' next head coach is anybody's guess. But in his first audition, Kafka was decisive, aggressive and had a handle on things.`\
-https://nytimes.com/athletic/6813159/2025/11/16/giants-packers-mike-kafka-interim-coach/
 

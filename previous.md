@@ -1,3 +1,15 @@
+**Kaprizov's OT winner, Boldy's stick lift and a commitment to defense: Takeaways**\
+`The Foligno-Yurov-Trenin line reunited for a buzzing performance and Trenin's first goal of the season.`\
+https://nytimes.com/athletic/6812739/2025/11/16/wild-boldy-trenin-defense-golden-knights/
+
+**Trump Defends Tucker Carlson After Nick Fuentes Interview**\
+`President Trump defended Mr. Carlson’s friendly interview with an openly antisemitic white supremacist that prompted denunciations from some on the right.`\
+https://nytimes.com/2025/11/16/us/politics/trump-tucker-carlson-nick-fuentes.html
+
+**Bills offense explodes with Gabe Davis, Josh Allen together again; why it should stay that way**\
+`Davis had a big impact on the offense in his first game this season. `\
+https://nytimes.com/athletic/6813144/2025/11/16/bills-allen-davis-offense-future/
+
 **The Seahawks still believe in Sam Darnold — after another dud in a big game, should they?**\
 `The quarterback threw four interceptions in another long day against the rival Rams.`\
 https://nytimes.com/athletic/6813327/2025/11/16/sam-darnold-seattle-seahawks-interceptions-los-angeles-rams/
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/11/16/magazine/trump-justice-department-sta
 **Giants interim coach Mike Kafka shows he isn't giving up without a fight**\
 `The Giants' next head coach is anybody's guess. But in his first audition, Kafka was decisive, aggressive and had a handle on things.`\
 https://nytimes.com/athletic/6813159/2025/11/16/giants-packers-mike-kafka-interim-coach/
-
-**'It's time for him to grow up': Keon Coleman benched again but Bills offense doesn't need him**\
-`The second-year player earned the third benching of his career on Sunday.`\
-https://nytimes.com/athletic/6813044/2025/11/16/bills-offense-keon-coleman-benched-buccaneers/
-
-**Mariners, Josh Naylor in agreement on five-year contract: Source**\
-`The 28-year-old first baseman was an immediate success in Seattle after joining the team at the trade deadline. `\
-https://nytimes.com/athletic/6813184/2025/11/16/mariners-josh-naylor-five-year-deal/
-
-**Dehner Jr.: It's over for the 2025 Bengals, but what comes next?**\
-`Despite rare opportunities at every turn this year, for the 2025 Bengals, it's over after Sunday's loss in Pittsburgh.`\
-https://nytimes.com/athletic/6813160/2025/11/16/bengals-steelers-results-what-comes-next/
 
