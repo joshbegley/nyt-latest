@@ -1,3 +1,7 @@
+**Trump Calls on House Republicans to Release the Epstein Files**\
+`After weeks campaigning against a bill that would compel the Justice Department to release files related to Jeffrey Epstein, President Trump reversed his stance and urged House Republicans to back the measure.`\
+https://nytimes.com/video/us/politics/100000010527999/trump-epstein-files-vote-mtg.html
+
 **Tom Cruise Accepts an Honorary Oscar at the Governors Awards**\
 `The star was feted along with Debbie Allen, Dolly Parton and the production designer Wynn Thomas at a show that has become an awards campaign stop.`\
 https://nytimes.com/2025/11/17/movies/governors-awards-2025-tom-cruise.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6812320/2025/11/17/mls-calendar-shift-transfer-wind
 **On the run with NC State's Will Wade: Why 'not everybody's cup of tea' coach logs daily miles**\
 `“You guys are my best chance, and I’m your best," Wade told NC State. "Let’s see if it works. If it don’t work, then hell, we can move on."`\
 https://nytimes.com/athletic/6811775/2025/11/17/nc-state-basketball-will-wade-coach/
-
-**Lowetide: Can the Oilers' inconsistent defence get back on track?**\
-`The Oilers' defence has a long way to go in order to earn the preseason praise it received.`\
-https://nytimes.com/athletic/6812000/2025/11/17/edmonton-oilers-defence-stats-standings-2025/
 
