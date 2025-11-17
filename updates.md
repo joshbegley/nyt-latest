@@ -1,3 +1,19 @@
+**Cynicism? Greed? Ireland and DR Congo remind us the World Cup can be football at its purest**\
+`No other competition inspires such uncomplicated, widespread joy. When you strip it back to its core, the World Cup is cynicism-proof`\
+https://nytimes.com/athletic/6814213/2025/11/17/world-cup-ireland-dr-congo/
+
+**A Touchdown, Then Tragedy, for a Man Who ‘Gave All He Could Give’**\
+`Marshawn Kneeland spent nearly all of his 24 years working to get to the N.F.L. He died two days after scoring his first touchdown.`\
+https://nytimes.com/2025/11/17/us/marshawn-kneeland-dallas-cowboys.html
+
+**Video Reveals How Far Wolves Will Go to Steal a Meal**\
+`After a wolf dragged a crab trap out of water to get a snack, some scientists said the behavior revealed their ability to use tools.`\
+https://nytimes.com/2025/11/17/science/wolf-tool-use-steal-food.html
+
+**NBA Power Rankings: Cade Cunningham, Pistons motor into an elite tier**\
+`The Pistons have won nine consecutive games and the Warriors, Hawks, Raptors and Suns all make big leaps this week.`\
+https://nytimes.com/athletic/6814323/2025/11/17/nba-power-rankings-pistons-thunder-lakers/
+
 **NBA Power Rankings: Cade Cunningham, Pistons motor into an elite tier**\
 `The Pistons have won nine consecutive games and the Warriors, Hawks, Raptors and Suns all make leaps this week.`\
 https://nytimes.com/athletic/6814323/2025/11/17/nba-power-rankings-pistons-thunder-lakers/
