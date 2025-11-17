@@ -28,7 +28,7 @@ https://nytimes.com/athletic/6815309/2025/11/17/mammoth-vs-ducks-stream-how-to-w
 
 **From Personal Computers to Computing That’s Truly Personal **\
 `Our latest innovations show that Lenovo is helping create a world where computing revolves around you. `\
-https://nytimes.com/paidpost/2025-10-17/.html
+https://nytimes.com/paidpost/2025-10-17/lenovo/personal-computers-to-computing-that-is-personal.html
 
 **Former Bangladesh Prime Minister Is Sentenced to Death**\
 `Sheikh Hasina, who is living in exile in India, was convicted in absentia of crimes against humanity during a brutal crackdown on student-led protests in 2024.`\
