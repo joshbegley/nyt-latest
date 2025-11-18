@@ -1,3 +1,15 @@
+**Home Depot Cuts Forecast as Consumers Pull Back on Spending**\
+`The big box retailer said tariff costs and elevated mortgage rates have slowed consumer spending on new homes and remodeling projects.`\
+https://nytimes.com/2025/11/18/business/home-depot-downgrade-forecast.html
+
+**The Giants’ offensive line finally isn’t a weakness. Now NY must build unit into a strength**\
+`The line had been the Giants’ Achilles heel during their decade-plus spiral, but that unit has been above average this season.`\
+https://nytimes.com/athletic/6816244/2025/11/18/ny-giants-offensive-line-mike-kafka-packers/
+
+**For the Saudi crown prince, international criticism over the killing of Jamal Khashoggi has faded.**\
+`By Vivian Nereim`\
+https://nytimes.com/live/2025/11/18/world/trump-saudi-crown-prince-visit/saudi-arabia-crown-prince-khashoggi-assassination
+
 **Border Patrol Expands North Carolina Operations to More Liberal Cities**\
 `Agents are expected to be active in the Raleigh area on Tuesday, though the scope of the immigration crackdown in the state’s Research Triangle region was not immediately clear.`\
 https://nytimes.com/2025/11/18/us/border-patrol-north-carolina.html
