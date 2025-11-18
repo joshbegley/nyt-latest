@@ -1,3 +1,7 @@
+**Outage at Cloudflare Disrupts Parts of the Internet**\
+`Services from Cloudflare, a software company, underpin thousands of websites.`\
+https://nytimes.com/2025/11/18/business/cloudflare-down-challenges-error.html
+
 **England's Wiegman on Earps' book: 'Someone else’s reality can be different'**\
 `Earps appeared to criticise Wiegman’s decision to make Hannah Hampton her No 1 goalkeeper in her autobiography published this month.`\
 https://nytimes.com/athletic/6816613/2025/11/18/sarina-wiegman-mary-earps-england/

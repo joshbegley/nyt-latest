@@ -1,3 +1,7 @@
+**Outage at Cloudflare Disrupts Parts of the Internet**\
+`Services from Cloudflare, a software company, underpin thousands of websites.`\
+https://nytimes.com/2025/11/18/business/cloudflare-down-challenges-error.html
+
 **England's Wiegman on Earps' book: 'Someone else’s reality can be different'**\
 `Earps appeared to criticise Wiegman’s decision to make Hannah Hampton her No 1 goalkeeper in her autobiography published this month.`\
 https://nytimes.com/athletic/6816613/2025/11/18/sarina-wiegman-mary-earps-england/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6815882/2025/11/18/jeremiyah-love-fernando-mendoza-
 **The Soccer 100: A celebration of the greatest players in the sport’s history**\
 `The Athletic is delighted to announce the release of The Soccer 100, profiling players from Pele to Puskas, Maradona to Messi`\
 https://nytimes.com/athletic/6783439/2025/11/18/soccer-100-athletic-harper-collins-released/
-
-**The 10 best things I saw in college football recruiting over the weekend**\
-`Devin Fitzgerald, a Notre Dame commit and the son of former NFL star Larry Fitzgerald, is having a standout senior season.`\
-https://nytimes.com/athletic/6815351/2025/11/18/college-football-recruiting-thoughts/
 
