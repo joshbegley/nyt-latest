@@ -1,3 +1,7 @@
+**Injured Cam Skattebo shows up to WWE match, fights wrestlers**\
+`It was Skattebo's second recent public appearance after suffering a dislocated ankle Oct. 26.`\
+https://nytimes.com/athletic/6816040/2025/11/17/cam-skattebo-wwe-fight-monday-night-raw/
+
 **Trump Says America Is in ‘Golden Age,’ Straining to Address Affordability**\
 `Speaking at a gathering of McDonald’s franchise owners and operators, the president boasted that he had “normalized” inflation.`\
 https://nytimes.com/2025/11/17/us/politics/trump-mcdonalds-affordability-inflation.html
