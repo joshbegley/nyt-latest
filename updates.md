@@ -1,3 +1,5 @@
+
+
 **Former Adams Aide Sentenced to Home Confinement on Conspiracy Charge**\
 `Mohamed Bahi, prosecutors said, coached witnesses to lie during an investigation of Mayor Eric Adams. The judge noted the perception that Mr. Bahi was left “holding the bag.”`\
 https://nytimes.com/2025/11/18/nyregion/bahi-adams-corruption-sentence.html
