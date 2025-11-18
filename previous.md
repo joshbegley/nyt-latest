@@ -1,3 +1,7 @@
+**Inside ICE Detention**\
+`They came to the U.S. legally. ICE jailed them anyway. Jemmy Jimenez Rosa, Ayman Soliman and Jasmine Mooney share their stories from inside a cruel detention system that operates with impunity.`\
+https://nytimes.com/video/opinion/100000010520926/inside-ice-detention.html
+
 **Heritage Foundation Board Member Resigns Over Video Defending Carlson**\
 `The member, Robert P. George, said the think tank’s president had refused to retract his video defending Tucker Carlson’s friendly interview with an openly antisemitic white supremacist.`\
 https://nytimes.com/2025/11/17/us/politics/heritage-foundation-tucker-carlson-nick-fuentes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6815847/2025/11/17/coastal-carolina-vs-south-caroli
 **How to watch Tulane vs. Temple: Time, TV, streaming**\
 `Find out how to watch the Tulane Green Wave play the Temple Owls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6815841/2025/11/17/tulane-vs-temple-stream-how-to-watch-nov-22/
-
-**How to watch Pittsburgh vs. Georgia Tech: Time, TV, streaming**\
-`Find out how to watch the Pittsburgh Panthers play the Georgia Tech Yellow Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6815833/2025/11/17/pittsburgh-vs-georgia-tech-stream-how-to-watch-nov-22/
 

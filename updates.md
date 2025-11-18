@@ -1,3 +1,7 @@
+**Inside ICE Detention**\
+`They came to the U.S. legally. ICE jailed them anyway. Jemmy Jimenez Rosa, Ayman Soliman and Jasmine Mooney share their stories from inside a cruel detention system that operates with impunity.`\
+https://nytimes.com/video/opinion/100000010520926/inside-ice-detention.html
+
 **Heritage Foundation Board Member Resigns Over Video Defending Carlson**\
 `The member, Robert P. George, said the think tank’s president had refused to retract his video defending Tucker Carlson’s friendly interview with an openly antisemitic white supremacist.`\
 https://nytimes.com/2025/11/17/us/politics/heritage-foundation-tucker-carlson-nick-fuentes.html
