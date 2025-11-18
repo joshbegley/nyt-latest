@@ -1,3 +1,7 @@
+**Frustrated With Your Home Insurer? Tell Us About It.**\
+`Help us track trends in the home insurance market by filling out this survey.`\
+https://nytimes.com/2025/11/18/climate/home-insurance-questions.html
+
 **ICE Frees Blind Migrant Who Was Detained for Days in Isolation**\
 `Carlos Anibal Chalco Chango, 40, was released on Monday from an upstate New York jail where he had been held without his cane. It was a surprising move by an agency that rarely frees detainees.`\
 https://nytimes.com/2025/11/18/nyregion/blind-immigrant-ice-detention-judge-orders-release.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6817945/2025/11/18/wild-injuries-rookie-danila-yuro
 **Pitcher Brandon Woodruff accepts qualifying offer from Brewers**\
 `With Woodruff accepting the offer, it ensures the small-market Brewers will retain some firepower after a run to the NLCS.`\
 https://nytimes.com/athletic/6804334/2025/11/18/brandon-woodruff-milwaukee-brewers-qualifying-offer/
-
-**Austin Rivers on interviewing (Dad) Doc: 'We both paused and started laughing'**\
-`Son and father needed an extra take to record their NBA on NBC interview Monday night in Cleveland.`\
-https://nytimes.com/athletic/6817704/2025/11/18/austin-rivers-nbc-interview-father-doc/
 

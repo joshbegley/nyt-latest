@@ -1,3 +1,7 @@
+**Frustrated With Your Home Insurer? Tell Us About It.**\
+`Help us track trends in the home insurance market by filling out this survey.`\
+https://nytimes.com/2025/11/18/climate/home-insurance-questions.html
+
 **ICE Frees Blind Migrant Who Was Detained for Days in Isolation**\
 `Carlos Anibal Chalco Chango, 40, was released on Monday from an upstate New York jail where he had been held without his cane. It was a surprising move by an agency that rarely frees detainees.`\
 https://nytimes.com/2025/11/18/nyregion/blind-immigrant-ice-detention-judge-orders-release.html
