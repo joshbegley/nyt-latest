@@ -1,3 +1,7 @@
+**Musk Is Back in Politics. Does He Want to Stay a While?**\
+`Having struck an uneasy truce with the president, Elon Musk is starting to make political appearances again, and his allies are planning a DOGE reunion party.`\
+https://nytimes.com/2025/11/18/us/politics/elon-musk-politics-trump-doge.html
+
 **Havertz suffers 'small' injury setback, Nagelsmann says**\
 `Nagelsmann said he expects Havertz to return before the end of the year.`\
 https://nytimes.com/athletic/6817701/2025/11/18/kai-havertz-injury-setback-arsenal-germany/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6817894/2025/11/18/jazz-vs-lakers-stream-how-to-wat
 **How to watch Rangers vs. Golden Knights: Time, TV, streaming**\
 `Find out how to watch the New York Rangers play the Vegas Golden Knights, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6817893/2025/11/18/rangers-vs-golden-knights-stream-how-to-watch-nov-18/
-
-**How to watch Pistons vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the Detroit Pistons play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6817892/2025/11/18/pistons-vs-hawks-stream-how-to-watch-nov-18/
 
