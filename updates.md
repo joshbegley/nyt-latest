@@ -1,3 +1,7 @@
+**They Wink and Blink**\
+`Joe Deeney checks the boxes.`\
+https://nytimes.com/2025/11/17/crosswords/daily-puzzle-2025-11-18.html
+
 **Larry Summers, ‘Ashamed’ Over Epstein Ties, Steps Back From Public Commitments**\
 `New emails showed that Dr. Summers, a former Harvard president, had stayed in touch with Jeffrey Epstein for years after Mr. Epstein faced sex trafficking charges.`\
 https://nytimes.com/2025/11/17/us/harvard-larry-summers-epstein.html
