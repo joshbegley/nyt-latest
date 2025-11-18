@@ -1,3 +1,7 @@
+**Tyler Skaggs' wife, mother take the stand in a day of emotional testimony**\
+`Carli Skaggs, Tyler's widow, testified that she was not aware of her husband's drug use at the time of his death. `\
+https://nytimes.com/athletic/6816006/2025/11/17/tyler-carli-skaggs-debbie-hetman-angels-trial/
+
 **They Wink and Blink**\
 `Joe Deeney checks the boxes.`\
 https://nytimes.com/2025/11/17/crosswords/daily-puzzle-2025-11-18.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6815765/2025/11/17/derek-shelton-twins-coaching-sta
 **Inside ICE Detention**\
 `They came to the U.S. legally. ICE jailed them anyway. Jemmy Jimenez Rosa, Ayman Soliman and Jasmine Mooney share their stories from inside a cruel detention system that operates with impunity.`\
 https://nytimes.com/video/opinion/100000010520926/inside-ice-detention.html
-
-**Heritage Foundation Board Member Resigns Over Video Defending Carlson**\
-`The member, Robert P. George, said the think tank’s president had refused to retract his video defending Tucker Carlson’s friendly interview with an openly antisemitic white supremacist.`\
-https://nytimes.com/2025/11/17/us/politics/heritage-foundation-tucker-carlson-nick-fuentes.html
 

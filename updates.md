@@ -1,3 +1,7 @@
+**Tyler Skaggs' wife, mother take the stand in a day of emotional testimony**\
+`Carli Skaggs, Tyler's widow, testified that she was not aware of her husband's drug use at the time of his death. `\
+https://nytimes.com/athletic/6816006/2025/11/17/tyler-carli-skaggs-debbie-hetman-angels-trial/
+
 **They Wink and Blink**\
 `Joe Deeney checks the boxes.`\
 https://nytimes.com/2025/11/17/crosswords/daily-puzzle-2025-11-18.html
