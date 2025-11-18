@@ -14,8 +14,8 @@ https://nytimes.com/athletic/6817553/2025/11/18/nfl-mvp-odds-josh-allen-joins-ma
 `A reporter asked Crown Prince Mohammed bin Salman about the murder of the Washington Post columnist Jamal Khashoggi. President Trump interjected.`\
 https://nytimes.com/2025/11/18/us/politics/khashoggi-trump-saudi-crown-prince.html
 
-**Live Count: The House Votes on Releasing the Epstein Files**\
-`See how every member voted.`\
+**How Every House Member Voted on Releasing the Epstein Files**\
+`The House overwhelmingly voted to release the Justice Department files. The bill now goes to the Senate.`\
 https://nytimes.com/interactive/2025/11/18/us/house-epstein-discharge-petition-vote.html
 
 **Poland Pins Railway Sabotage on Russian-Backed Ukrainians**\

@@ -1,3 +1,15 @@
+**Convicted Australian Murderer Sues for Vegemite, Demanding Prisons Allow the Spread**\
+`A man facing life behind bars is challenging the state of Victoria’s prison ban on the salty condiment beloved by many Australians. The case drew condemnation from a minister for corrections.`\
+https://nytimes.com/2025/11/18/world/australia/prisoner-vegemite-lawsuit.html
+
+**Victor Wembanyama injury causes huge shift in betting odds**\
+`Wembanyama was off to a hot start this season but a calf injury halted his momentum.`\
+https://nytimes.com/athletic/6817114/2025/11/18/victor-wembanyama-injury-betting-odds-mvp/
+
+**NFL MVP odds: A familiar contender joins Matthew Stafford, Drake Maye**\
+`Josh Allen is back in the MVP conversation. But who has the best chance down the stretch?`\
+https://nytimes.com/athletic/6817553/2025/11/18/nfl-mvp-odds-josh-allen-joins-matthew-stafford-drake-maye-at-the-top/
+
 **‘Things Happen’: Trump Brushes Off the Murder of Khashoggi**\
 `A reporter asked Crown Prince Mohammed bin Salman about the murder of the Washington Post columnist Jamal Khashoggi. President Trump interjected.`\
 https://nytimes.com/2025/11/18/us/politics/khashoggi-trump-saudi-crown-prince.html
@@ -25,12 +37,4 @@ https://nytimes.com/athletic/6816392/2025/11/18/atlanta-falcons-crossroads-micha
 **Obsessed With ‘Wicked’? Try 9 More Songs From Beloved Musicals.**\
 `If you’ve got Cynthia Erivo and Ariana Grande on repeat, add these songs from “Rent,” “Hadestown,” “13” and more to the rotation.`\
 https://nytimes.com/2025/11/18/arts/music/amplifier-newsletter-wicked-musical-songs.html
-
-**Trump wants a Saudi-Israel deal, but that’s not likely soon.**\
-`By Ismaeel Naar`\
-https://nytimes.com/live/2025/11/18/world/trump-saudi-crown-prince-visit/trump-saudi-arabia-israel-deal
-
-**Trump Administration to Announce Steps to Dismantle Education Department**\
-`Responsibilities for K-12 and college programs, among others, will be moved to other federal agencies.`\
-https://nytimes.com/2025/11/18/us/politics/trump-education-department.html
 
