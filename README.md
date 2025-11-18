@@ -1,3 +1,7 @@
+**TAFC: Inside Nigeria's World Cup qualification implosion. Plus: USMNT's date with Ronaldo**\
+`Three managers, a threatened boycott and 'voodoo' allegations – how it all went so wrong for the World Cup regulars`\
+https://nytimes.com/athletic/6816514/2025/11/18/nigeria-world-cup-qualification-usmnt-ronaldo/
+
 **Have your say: What is the top women's sports city in the U.S.?**\
 `The Athletic's staff tapped our Top 10 women's sports cities in the U.S. It's your turn to pick a No. 1, re-rank ours and call out a snub.`\
 https://nytimes.com/athletic/6814036/2025/11/18/top-womens-sports-city-us-ranking-poll/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6816166/2025/11/18/sabres-noah-ostlund-rosen-ellis-
 **Montreal Victoire 2025-26 preview: Formidable forward depth led by Poulin extension**\
 `A trio of voluntary pay cuts helped GM Danièle Sauvageau put together an impressive collection of free-agent signings, including Abby Roque.`\
 https://nytimes.com/athletic/6813652/2025/11/18/montreal-victoire-pwhl-2025-26-preview/
-
-**Hemp, Clinton return to England squad for China, Ghana friendlies**\
-`England face China at Wembley Stadium on November 29 before playing Ghana at St. Mary’s on December 2.`\
-https://nytimes.com/athletic/6816593/2025/11/18/england-women-squad-hemp-clinton-james/
 
