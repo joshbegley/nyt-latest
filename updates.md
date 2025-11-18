@@ -1,3 +1,11 @@
+**Border Patrol Expands North Carolina Operations to More Liberal Cities**\
+`Agents are expected to be active in the Raleigh area on Tuesday, though the scope of the immigration crackdown in the state’s Research Triangle region was not immediately clear.`\
+https://nytimes.com/2025/11/18/us/border-patrol-north-carolina.html
+
+**The Fraud Case Against an Indian Tycoon Is Stuck in Legal Limbo**\
+`The case against Gautam Adani, the infrastructure titan and a close associate of Prime Minister Narendra Modi, has stalled with no sign of progress.`\
+https://nytimes.com/2025/11/18/business/adani-fraud-india.html
+
 **Barca return to the Camp Nou: Everything you need to know – and the questions yet to be answered**\
 `Barcelona are heading back to their iconic home ground after extensive refurbishment, but plenty of work still needs to be done`\
 https://nytimes.com/athletic/6816743/2025/11/18/barcelona-camp-nou-return-explained/

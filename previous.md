@@ -1,3 +1,11 @@
+**Border Patrol Expands North Carolina Operations to More Liberal Cities**\
+`Agents are expected to be active in the Raleigh area on Tuesday, though the scope of the immigration crackdown in the state’s Research Triangle region was not immediately clear.`\
+https://nytimes.com/2025/11/18/us/border-patrol-north-carolina.html
+
+**The Fraud Case Against an Indian Tycoon Is Stuck in Legal Limbo**\
+`The case against Gautam Adani, the infrastructure titan and a close associate of Prime Minister Narendra Modi, has stalled with no sign of progress.`\
+https://nytimes.com/2025/11/18/business/adani-fraud-india.html
+
 **Barca return to the Camp Nou: Everything you need to know – and the questions yet to be answered**\
 `Barcelona are heading back to their iconic home ground after extensive refurbishment, but plenty of work still needs to be done`\
 https://nytimes.com/athletic/6816743/2025/11/18/barcelona-camp-nou-return-explained/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6816830/2025/11/18/lpga-ceo-craig-kessler-broadcast
 **Canucks stock watch: Who's trending up, and down, through the first 21 games?**\
 `A quarter of the way into the 2025-26 NHL season, it's hard to identify what's meant to be the Canucks' identity.`\
 https://nytimes.com/athletic/6803508/2025/11/18/canucks-kiefer-sherwood-filip-hronek-stock-watch/
-
-**Red Light: What is going on with California's confusing NHL teams? Let us explain**\
-`Nothing is going how we expected for the Kings, Ducks or Sharks. Fortunately, our expert can help us make sense.`\
-https://nytimes.com/athletic/6816971/2025/11/18/nhl-kings-ducks-sharks-california-red-light-newsletter/
-
-**Trump Family’s Business Ties to Saudi Arabia Raise Ethics Worries**\
-`President Trump will host Crown Prince Mohammed bin Salman, Saudi Arabia’s de facto ruler, who oversees a major construction project that is in talks with the Trump family business.`\
-https://nytimes.com/2025/11/18/world/middleeast/trump-family-business-saudi-arabia.html
 
