@@ -1,3 +1,7 @@
+**Austin Rivers on interviewing (Dad) Doc: 'We both paused and started laughing'**\
+`Son and father needed an extra take to record their NBA on NBC interview Monday night in Cleveland.`\
+https://nytimes.com/athletic/6817704/2025/11/18/austin-rivers-nbc-interview-father-doc/
+
 **Gleyber Torres accepts qualifying offer, will return to Tigers in 2026**\
 `Gleyber Torres is coming back to Detroit for a second season, once again giving the Tigers the type of reliable hitter they need more of in their lineup.`\
 https://nytimes.com/athletic/6795616/2025/11/18/gleyber-torres-detroit-tigers-qualifying-offer/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/18/world/recycling-disaster-lead-nigeria-car-batteri
 **Eric Adams, Still the Mayor, Is Increasingly Out of Office**\
 `In the waning days of his term, Mayor Eric Adams is spending a significant portion of his time far from New York City.`\
 https://nytimes.com/2025/11/18/nyregion/eric-adams-trips-travel-uzbekistan-israel.html
-
-**Trump Berates Reporter Who Asked About Journalist Killed by Saudis**\
-`“It’s not the question that I mind; it’s your attitude,” the president told Mary Bruce of ABC News, as the Saudi crown prince looked on. He also criticized ABC.`\
-https://nytimes.com/2025/11/18/business/media/trump-reporter-khashoggi-saudis.html
 
