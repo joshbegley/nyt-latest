@@ -1,3 +1,7 @@
+**A Very Andy Baraghani Thanksgiving**\
+`His menu is bold and bright, both in flavor and color: pomegranate-glazed turkey, golden mashed potatoes, roasted winter squash with citrus chile crisp.`\
+https://nytimes.com/2025/11/18/dining/a-very-andy-baraghani-thanksgiving.html
+
 **Harrowing Video Shows Inmate’s Death and the Halting Effort to Save Him**\
 `Nurses and guards in Oneida County, N.Y., cracked wise and complained about poor equipment as Antwan Cater lay unconscious in a drug-induced seizure. His father has filed a lawsuit in the case.`\
 https://nytimes.com/2025/11/18/nyregion/oneida-jail-video-inmate-death-lawsuit.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/11/18/nyregion/oneida-jail-video-inmate-death-lawsuit.h
 https://nytimes.com/2025/11/18/world/europe/chinese-spies-linkedin-uk.html
 
 **Shedeur Sanders' home broken into during Browns-Ravens game**\
-`The reported break-in at Sanders home is another example of athletes’ properties being targeted while they’re playing.`\
+`The reported break-in is another example of athletes' properties being targeted while they're playing.`\
 https://nytimes.com/athletic/6815427/2025/11/18/shedeur-sanders-home-break-in-browns-ravens/
 
 **Trump Library Foundation Expects to Raise $50 Million This Year**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6817324/2025/11/18/arizona-state-quarterback-sam-le
 **Brad Treliving defends Craig Berube amid Leafs’ struggles: 'I believe in Craig'**\
 `Treliving took “full responsibility” for the Leafs' plight, which has them near the bottom of the Eastern Conference.`\
 https://nytimes.com/athletic/6817321/2025/11/18/brad-treliving-craig-berube-maple-leafs/
-
-**Aaron Rodgers has fractured left wrist; status for Week 12 vs. Bears unknown**\
-`If Rodgers cannot play against the Bears, backup QB Mason Rudolph would get the start. `\
-https://nytimes.com/athletic/6814309/2025/11/18/aaron-rodgers-injury-update-wrist-steelers-mike-tomlin/
 
