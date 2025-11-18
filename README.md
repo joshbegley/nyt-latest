@@ -1,3 +1,15 @@
+**The Saudi crown prince received an especially warm Oval Office welcome.**\
+`By Vivian Nereim`\
+https://nytimes.com/live/2025/11/18/world/trump-saudi-crown-prince-visit/the-saudi-crown-prince-received-an-especially-warm-oval-office-welcome
+
+**With Wild injuries racking up, rookie Danila Yurov gets his shot to center the top line**\
+`The 21-year-old has two goals and one assist in 15 games and has been centering one of the Wild's best lines in recent games.`\
+https://nytimes.com/athletic/6817945/2025/11/18/wild-injuries-rookie-danila-yurov-top-line/
+
+**Brandon Woodruff accepts qualifying offer from Brewers after promising return from injury**\
+`Right-hander Brandon Woodruff accepted a one-year, $22.`\
+https://nytimes.com/athletic/6804334/2025/11/18/brandon-woodruff-milwaukee-brewers-qualifying-offer/
+
 **Austin Rivers on interviewing (Dad) Doc: 'We both paused and started laughing'**\
 `Son and father needed an extra take to record their NBA on NBC interview Monday night in Cleveland.`\
 https://nytimes.com/athletic/6817704/2025/11/18/austin-rivers-nbc-interview-father-doc/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6815890/2025/11/18/shota-imanaga-accepts-qualifying
 **‘Climate-Friendly’ Beef Now Has to Prove It**\
 `Two new settlements could change how the beef industry markets its products and require that it provide proof for its pledges to lower emissions.`\
 https://nytimes.com/2025/11/18/climate/climate-friendly-beef-settlements.html
-
-**Trent Grisham accepts Yankees' qualifying offer, will return in 2026: What it means**\
-`Grisham's decision to accept the qualifying offer leaves the Yankees with one open outfield position to fill.`\
-https://nytimes.com/athletic/6815426/2025/11/18/trent-grisham-accepts-yankees-qualifying-offer/
-
-**Investigating a Recycling Disaster**\
-`We went to Nigeria, where recycling plants are extracting lead for use in American and European car batteries — at a terrible human cost.`\
-https://nytimes.com/2025/11/18/world/recycling-disaster-lead-nigeria-car-batteries-epstein.html
-
-**Eric Adams, Still the Mayor, Is Increasingly Out of Office**\
-`In the waning days of his term, Mayor Eric Adams is spending a significant portion of his time far from New York City.`\
-https://nytimes.com/2025/11/18/nyregion/eric-adams-trips-travel-uzbekistan-israel.html
 
