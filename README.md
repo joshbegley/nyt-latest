@@ -1,3 +1,23 @@
+**Cavaliers fined $100,000 for sitting All-Stars Mitchell and Mobley**\
+`The league determined that the Cavaliers violated the league's Player Participation Policy by sitting their two All-Stars due to "rest." `\
+https://nytimes.com/athletic/6818294/2025/11/18/cavaliers-donovan-mitchell-evan-mobley-fine/
+
+**‘Meet the Cartozians’ Review: Who Gets to Be White in America?**\
+`Talene Monahon’s captivating play uses a 1925 court decision to explore what identity means to Armenians here (a certain reality TV star included).`\
+https://nytimes.com/2025/11/18/theater/meet-the-cartozians-review.html
+
+**Phillies protect 3 prospects from Rule 5 draft: What you need to know**\
+`Here is an overview of the three prospects, and a look at whom the Phillies chose not to protect.`\
+https://nytimes.com/athletic/6815755/2025/11/18/phillies-rule-5-draft-painter-rincones-mcfarlane/
+
+**D-III Scranton makes history with shocking win over Pitt**\
+`Scranton became the first D-III women's basketball program to defeat a power-conference program.`\
+https://nytimes.com/athletic/6818126/2025/11/18/d-iii-scranton-history-pitt-upset/
+
+**Football agent Jonathan Barnett under UK rape investigation**\
+`Barnett's lawyers have filed a declaration in an attempt to get the civil complaint against the agent in the U.S. dismissed.`\
+https://nytimes.com/athletic/6818240/2025/11/18/jonathan-barnett-rape-investigation-uk/
+
 **Orlando Pride VP Haley Carter stepping down after 3 seasons**\
 `Under Carter's tenure, the club won both the NWSL Shield and the NWSL Championship during a historic 2024 season.`\
 https://nytimes.com/athletic/6818264/2025/11/18/haley-carter-orlando-pride-stepping-down/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6818263/2025/11/18/giannis-antetokounmpo-sidelined-
 **What Is Post-Liberalism, Anyway?**\
 `Notes on an unstable but necessary idea.`\
 https://nytimes.com/2025/11/18/opinion/post-liberalism-politics.html
-
-**For Trump, Epstein Is the Story That Won’t Go Away**\
-`President Trump is being held captive to a news cycle he can’t avoid or defeat when it comes to the convicted sex offender Jeffrey Epstein.`\
-https://nytimes.com/2025/11/18/us/politics/trump-epstein-files.html
-
-**Meta’s Victory Opens the Way for Silicon Valley to Go Deal Shopping**\
-`To avoid regulatory scrutiny, big tech companies had steered clear of buying start-ups outright. Meta’s antitrust win may change that thinking.`\
-https://nytimes.com/2025/11/18/technology/meta-ruling-silicon-valley-start-ups.html
-
-**Six Non-Traditional Thanksgiving Pies**\
-`Vaughn Vreeland from New York Times Cooking is back with his six cozy, chic Thanksgiving pies that are sure to stun at your Thanksgiving table this year.`\
-https://nytimes.com/video/dining/100000010523246/six-non-traditional-thanksgiving-pies.html
-
-**The Disrespect of Journalism’s ‘Digital Barons’**\
-`The longtime journalist Tina Brown has covered some of the biggest personalities in politics and culture.`\
-https://nytimes.com/video/podcasts/100000010530579/the-disrespect-of-journalisms-digital-barons.html
-
-**Dylan Cease, Michael King decline offers from pitching-needy Padres**\
-`For now, the Padres’ possible rotation includes Nick Pivetta, Joe Musgrove, Randy Vásquez, JP Sears, Kyle Hart and few other viable options.`\
-https://nytimes.com/athletic/6817308/2025/11/18/padres-dylan-cease-michael-king-decline-offers/
 

@@ -1,3 +1,15 @@
+**Orlando Pride VP Haley Carter stepping down after 3 seasons**\
+`Under Carter's tenure, the club won both the NWSL Shield and the NWSL Championship during a historic 2024 season.`\
+https://nytimes.com/athletic/6818264/2025/11/18/haley-carter-orlando-pride-stepping-down/
+
+**Robertson dedicates Scotland WC qualification to 'my mate' Jota**\
+`Robertson said he and Jota had "always discussed" the prospect of playing at the 2026 World Cup, having both missed the 2022 edition.`\
+https://nytimes.com/athletic/6818349/2025/11/18/andy-robertson-scotland-diogo-jota/
+
+**Congress Demands Release of Epstein Files**\
+`Also, Trump jumped to the defense of Saudi Arabia’s crown prince. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/11/18/briefing/congress-demands-release-of-epstein-files.html
+
 **Giannis Antetokounmpo likely out 2 weeks with groin strain**\
 `The Bucks have been outscored by 12.8 points per 100 possessions when Giannis sits and play seven games over the next two weeks. `\
 https://nytimes.com/athletic/6818263/2025/11/18/giannis-antetokounmpo-sidelined-groin-bucks-nba/
@@ -25,16 +37,4 @@ https://nytimes.com/video/podcasts/100000010530579/the-disrespect-of-journalisms
 **Dylan Cease, Michael King decline offers from pitching-needy Padres**\
 `For now, the Padres’ possible rotation includes Nick Pivetta, Joe Musgrove, Randy Vásquez, JP Sears, Kyle Hart and few other viable options.`\
 https://nytimes.com/athletic/6817308/2025/11/18/padres-dylan-cease-michael-king-decline-offers/
-
-**Sid Davidoff, Powerful Aide to Mayor Lindsay, Dies at 86**\
-`In the 1960s and ’70s, he was a brash lieutenant to a young, ambitious, reform-minded mayor and ended up on President Nixon’s “enemies list.”`\
-https://nytimes.com/2025/11/18/nyregion/sid-davidoff-dead.html
-
-**Behind the House Vote to Release the Epstein Files**\
-`The House has voted to tell the Justice Department to release the Epstein files, after President Trump caved to pressure from fellow Republicans. Our congressional correspondent Annie Karni describes how Trump’s inability to head off the vote is a sign that his movement is fraying.`\
-https://nytimes.com/video/us/politics/100000010528490/behind-the-house-vote-to-release-the-epstein-files.html
-
-**Johnny Beecher claimed by Flames on waivers**\
-`The Bruins placed Beecher on waivers Monday for the purpose of assigning him to Providence.`\
-https://nytimes.com/athletic/6818199/2025/11/18/johnny-beecher-claimed-calgary-flames-waivers/
 
