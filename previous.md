@@ -1,3 +1,31 @@
+**The Jets' options with Justin Fields now: Cut, trade or keep in 2026?**\
+`After starting nine games in his first season with the Jets, Fields has been benched.`\
+https://nytimes.com/athletic/6815999/2025/11/18/justin-fields-new-york-jets-2026-trade/
+
+**QB stock report, Week 12: Denver's Bo Nix conundrum and Michael Penix Jr.'s uncertain future**\
+`Nix has plenty of potential, but is he the right fit for Sean Payton's offense?`\
+https://nytimes.com/athletic/6814898/2025/11/18/qb-stock-report-rankings-bo-nix-michael-penix/
+
+**MLB is flying high. Why does it seem so willing to risk a work stoppage?**\
+`Baseball just came off a dramatic World Series, and its numbers are robust. But its owners are gathering in this week to talk labor issues.`\
+https://nytimes.com/athletic/6815792/2025/11/18/mlb-work-stoppage-owners-meetings-world-series/
+
+**NFL Week 12 Power Rankings: Bills, Broncos and Bears on the rise after wild wins**\
+`The Week 12 Power Rankings find the Eagles still on top but the Broncos, Bills and Bears all on the rise after impressive victories.`\
+https://nytimes.com/athletic/6814386/2025/11/18/nfl-power-rankings-week-12-bills-broncos-bears/
+
+**With or without Edwin Díaz, how can the Mets rebuild their bullpen?**\
+`Regardless of how the Mets handle Edwin Díaz, their bullpen requires some work this season in terms of both quality and quantity. `\
+https://nytimes.com/athletic/6814749/2025/11/18/edwin-diaz-mets-bullpen-free-agency/
+
+**How the Dodgers should approach the offseason as they pursue a three-peat: Bowden**\
+`The Dodgers are favorites to three-peat even without major roster changes but the organization isn't likely to rest on its laurels.`\
+https://nytimes.com/athletic/6807979/2025/11/18/dodgers-offseason-plan-2025-2026/
+
+**The New York Times International Edition in Print for Wednesday, Nov. 19, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/11/18/todays-new-york-times-international-edition
+
 **Alcaraz 'heartbroken' to miss Davis Cup with hamstring injury**\
 `Alcaraz, the world No. 1, suffered the injury towards the end of the first set of the ATP Finals final against Jannik Sinner on Sunday.`\
 https://nytimes.com/athletic/6816505/2025/11/18/carlos-alcaraz-injury-davis-cup/
@@ -9,32 +37,4 @@ https://nytimes.com/2025/11/18/us/politics/house-is-expected-to-vote-on-tuesday-
 **Who’s Afraid of Tucker Carlson? The Line Is Long.**\
 `The price of “no enemies on the right” is going up.`\
 https://nytimes.com/2025/11/18/opinion/tucker-carlson-trump-groypers-fuentes.html
-
-**How F. Murray Abraham Brought His House Back to Life**\
-`The actor’s collection includes tributes to art, his wife and a life onstage.`\
-https://nytimes.com/interactive/2025/11/18/realestate/2025-11-17-f-murray-abraham.html
-
-**House Democrats Press for Vote to Bar Military Action in Venezuela**\
-`The effort would invoke the War Powers Act, which expedites action on measures limiting the president’s war-making authority. It faces long odds in the G.O.P.-led House.`\
-https://nytimes.com/2025/11/18/us/politics/house-democrats-press-for-vote-to-bar-military-action-in-venezuela.html
-
-**Trump Will Host Saudi Crown Prince in Washington**\
-`The president is offering the crown prince fighter jets, a nuclear agreement and other deals as part of his efforts to collect investment and push forward on Middle East peace.`\
-https://nytimes.com/2025/11/18/us/politics/trump-saudi-crown-prince.html
-
-**Who Will Win Hollywood’s Big Prize?**\
-`Paramount, Comcast and Netflix are preparing bids to buy all or part of Warner Bros. Discovery, a crown jewel of the industry.`\
-https://nytimes.com/2025/11/18/business/media/warner-discovery-paramount-comcast-netflix.html
-
-**What Are You Grateful for? Tell Us in Six Words.**\
-`We’re collecting responses for an upcoming newsletter.`\
-https://nytimes.com/2025/11/18/briefing/what-are-you-grateful-for-tell-us-in-six-words.html
-
-**The Democrat Who Split MAGA Over the Epstein Files**\
-`Ro Khanna argues that even though there is a risk in releasing the documents, it still needs to happen.`\
-https://nytimes.com/2025/11/18/opinion/ro-khanna-epstein-files-trump.html
-
-**Body Slams, Curated: Pro Wrestling Enters Its Museum Era**\
-`The over-the-top spectacle has been slicing into the art world, with gallery shows, performances and a forthcoming major exhibition.`\
-https://nytimes.com/2025/11/18/arts/design/professional-wrestling-art-drag.html
 
