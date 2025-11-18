@@ -1,3 +1,7 @@
+**Five things to watch on Baseball Hall of Fame ballot: Is this the year for Beltrán, Jones?**\
+`We’ll find out in two months who will be propelled by this election onto a stage next July in Cooperstown, N.Y. Here's what to watch.`\
+https://nytimes.com/athletic/6815977/2025/11/18/baseball-hall-of-fame-2026-ballot-storylines/
+
 **TAFC: Inside Nigeria's World Cup qualification implosion. Plus: USMNT's date with Ronaldo**\
 `Three managers, a threatened boycott and 'voodoo' allegations – how it all went so wrong for the World Cup regulars`\
 https://nytimes.com/athletic/6816514/2025/11/18/nigeria-world-cup-qualification-usmnt-ronaldo/
