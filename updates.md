@@ -1,3 +1,7 @@
+**What makes a great women’s sports city? We ranked the top 10 in the U.S.**\
+`Which U.S. cities earned a spot on the list? The Athletic's staff ranked them (and you get your say, also.)`\
+https://nytimes.com/athletic/6807524/2025/11/18/womens-sports-cities-top-ranked-fans/
+
 **Have your say: What is the top women's sports city in the U.S.?**\
 `The Athletic's staff tapped our Top 10 women's sports cities in the U.S. It's your turn to pick a No. 1, re-rank ours and call out a snub.`\
 https://nytimes.com/athletic/6814036/2025/11/18/top-womens-sports-city-us-ranking-poll/
