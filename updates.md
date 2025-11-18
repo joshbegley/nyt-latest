@@ -1,3 +1,11 @@
+**Kevin Brown commits to West Virginia, sets couch on fire in Mountaineer fashion**\
+`Brown made his appearance on "The Pat McAfee Show" memorable by participating in a West Virginia tradition.`\
+https://nytimes.com/athletic/6818344/2025/11/18/kevin-brown-recruit-commits-west-virginia-burning-couch/
+
+**Scientists Call for Global Shift Away From Ultraprocessed Foods**\
+`In a sweeping series of papers, scientists have proposed policy reforms, such as taxes on sugary drinks, to improve the food supply.`\
+https://nytimes.com/2025/11/18/well/eat/ultraprocessed-foods-health.html
+
 **Israeli Airstrike on Refugee Camp in Lebanon Kills at Least 13, Ministry Says**\
 `It was one of the deadliest Israeli strikes on Lebanon since a cease-fire between the neighboring countries went into effect about a year ago.`\
 https://nytimes.com/2025/11/18/world/middleeast/israel-strike-lebanon-camp.html
