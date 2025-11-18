@@ -1,3 +1,15 @@
+**Jeju Air Crash Investigators to Hold Public Hearing as They Face Criticism**\
+`With the cause of the disaster in South Korea still unclear after nearly a year, victims’ families have questioned the credibility and impartiality of the inquiry board.`\
+https://nytimes.com/2025/11/18/world/asia/jeju-air-crash-boeing-south-korea-hearing.html
+
+**Jalen Duren is making an All-Star case as he powers Pistons to 10th straight win**\
+`We are witnessing a breakout for Detroit's center, who had 31 points and 15 rebounds on Monday against the Pacers.`\
+https://nytimes.com/athletic/6816196/2025/11/18/jalen-duren-pistons-winning-streak/
+
+**Mandel: The Big Ten got too big and is no longer a happy family — unlike its SEC counterpart**\
+`The Big Ten no longer has a cohesive identity — unlike its SEC counterpart. `\
+https://nytimes.com/athletic/6812124/2025/11/18/big-ten-conference-too-big-identity-private-equity/
+
 **Five things to watch on Baseball Hall of Fame ballot: Is this the year for Beltrán, Jones?**\
 `We’ll find out in two months who will be propelled by this election onto a stage next July in Cooperstown, N.Y. Here's what to watch.`\
 https://nytimes.com/athletic/6815977/2025/11/18/baseball-hall-of-fame-2026-ballot-storylines/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6816452/2025/11/18/cowboys-quinnen-williams-defense
 **Champions Classic watch guide: Michigan St.-Kentucky, Kansas-Duke at Madison Square Garden**\
 `Four blue-blooded college basketball programs share the Madison Square Garden marquee Tuesday night.`\
 https://nytimes.com/athletic/6815326/2025/11/18/kentucky-michigan-state-duke-kansas-how-to-watch/
-
-**Another late collapse limits Blue Jackets to shootout win against Montreal**\
-`Yet again the Blue Jackets handed their opponents points in the third period, this time to the team who pipped them to last year's playoffs.`\
-https://nytimes.com/athletic/6816134/2025/11/18/blue-jackets-shootout-marchenko-canadiens/
-
-**Can Vikings QB J.J. McCarthy eventually turn it around, a la Panthers QB Bryce Young?**\
-`Like Young, McCarthy has struggled mightily early in his career. The Vikings are surely hoping he can turn things around quickly.`\
-https://nytimes.com/athletic/6815494/2025/11/18/jj-mccarthy-vikings-bears-turnaround-bryce-young/
-
-**With 2 goals against Oilers, Noah Östlund looks like a real NHL package: Sabres thoughts**\
-`Östlund scored the opening goal and iced the game against the Oilers, while Colten Ellis had perhaps his best game yet in net.`\
-https://nytimes.com/athletic/6816166/2025/11/18/sabres-noah-ostlund-rosen-ellis-oilers/
 
