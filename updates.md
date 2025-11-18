@@ -1,3 +1,7 @@
+**Full Time: NWSL rivals meet in championship**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6816338/2025/11/18/nwsl-championship-preview-full-time/
+
 **The New York Times in Print for Tuesday, Nov. 18, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/18/todays-new-york-times

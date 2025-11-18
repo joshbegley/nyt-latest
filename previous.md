@@ -1,3 +1,7 @@
+**Full Time: NWSL rivals meet in championship**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6816338/2025/11/18/nwsl-championship-preview-full-time/
+
 **The New York Times in Print for Tuesday, Nov. 18, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/18/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6804828/2025/11/18/nottingham-forest-pathway-to-saf
 **Why Crystal Palace's lack of goals from midfield is a feature not a bug**\
 `Oliver Glasner's tactical plan requires discipline from his midfielders – making them adventurous might cause the entire system to collapse`\
 https://nytimes.com/athletic/6814374/2025/11/18/crystal-palaces-midfield-lack-of-goals-design-tactics/
-
-**Aston Villa's long-range scoring success - and why it could be a worry**\
-`Villa scored five successive Premier League goals from outside the box before the international break. Is it sustainable?`\
-https://nytimes.com/athletic/6791822/2025/11/18/aston-villa-premier-league-long-range-goals/
 
