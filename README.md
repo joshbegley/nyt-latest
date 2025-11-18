@@ -1,3 +1,7 @@
+**Heritage Foundation Board Member Resigns Over Video Defending Carlson**\
+`The member, Robert P. George, said the think tank’s president had refused to retract his video defending Tucker Carlson’s friendly interview with an openly antisemitic white supremacist.`\
+https://nytimes.com/2025/11/17/us/politics/heritage-foundation-tucker-carlson-nick-fuentes.html
+
 **How to watch Kansas State vs. Utah: Time, TV, streaming**\
 `Find out how to watch the Kansas State Wildcats play the Utah Utes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6815870/2025/11/17/kansas-state-vs-utah-stream-how-to-watch-nov-22/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6815841/2025/11/17/tulane-vs-temple-stream-how-to-w
 **How to watch Pittsburgh vs. Georgia Tech: Time, TV, streaming**\
 `Find out how to watch the Pittsburgh Panthers play the Georgia Tech Yellow Jackets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6815833/2025/11/17/pittsburgh-vs-georgia-tech-stream-how-to-watch-nov-22/
-
-**UC Investments puts $2.4 billion Big Ten deal on hold amid pushback from Michigan and USC**\
-`Michigan and USC's public opposition led to UC Investments holding off on the potential $2.4 billion deal with the Big Ten.`\
-https://nytimes.com/athletic/6815788/2025/11/17/uc-investments-puts-2-4-billion-big-ten-deal-on-hold-amid-pushback-from-michigan-and-usc/
 
