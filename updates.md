@@ -1,3 +1,11 @@
+**Trump Has the Power to Release the Epstein Files, With or Without Congress**\
+`The president has reversed himself and encouraged lawmakers to vote for compelling the Justice Department to turn over investigation documents, but he never really needed their approval.`\
+https://nytimes.com/2025/11/17/us/politics/trump-epstein-files-congress.html
+
+**How to watch Western Kentucky vs. LSU: Time, TV, streaming**\
+`Find out how to watch the Western Kentucky Hilltoppers play the LSU Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815985/2025/11/17/western-kentucky-vs-lsu-stream-how-to-watch-nov-22/
+
 **How to watch Arizona State vs. Colorado: Time, TV, streaming**\
 `Find out how to watch the Arizona State Sun Devils play the Colorado Buffaloes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6815969/2025/11/17/arizona-state-vs-colorado-stream-how-to-watch-nov-22/
