@@ -1,3 +1,11 @@
+**Trump’s Immigration Crackdown Hits a Battleground State**\
+`The Charlotte raids pose a new political test of a top Trump priority.`\
+https://nytimes.com/2025/11/17/us/politics/trump-ice-bovino-charlotte.html
+
+**Trump Administration Asks Court to Block California’s Ban on Masked Federal Agents**\
+`The U.S. government says the new law threatens the safety of its agents and argues that states cannot regulate federal agencies.`\
+https://nytimes.com/2025/11/17/us/politics/trump-california-ban-masked-agents.html
+
 **Commanders cut kicker Matt Gay, sign kicker Jake Moody off Bears' practice squad**\
 `The Washington Commanders are now on to their eighth kicker of the Dan Quinn era.`\
 https://nytimes.com/athletic/6815750/2025/11/17/commanders-cut-kicker-matt-gay-sign-jake-moody-bears/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6815637/2025/11/17/cowboys-tribute-marshawn-kneelan
 **After Hundreds of Gazans Arrive on Mystery Flights, South Africa Asks How**\
 `A little-known group sold passage to desperate Palestinians who didn’t know their destination, catching the South African government by surprise.`\
 https://nytimes.com/2025/11/17/world/africa/gaza-palestinians-south-africa-flights.html
-
-**Weekly Student News Quiz: Climate Summit, Shutdown End, ‘Dapper Man’**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2025/11/17/learning/17StudentNewsQuiz.html
-
-**Worker Error Is Faulted After Israeli-Born Canadian Hits Passport Snag**\
-`A student in Montreal, who was born in Kfar Saba, Israel, said she was initially told she could not list Israel as her birth country on her passport.`\
-https://nytimes.com/2025/11/17/world/canada/canada-passport-israel-birthplace.html
 

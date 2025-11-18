@@ -1,3 +1,7 @@
+**Commanders cut kicker Matt Gay, sign kicker Jake Moody off Bears' practice squad**\
+`The Washington Commanders are now on to their eighth kicker of the Dan Quinn era.`\
+https://nytimes.com/athletic/6815750/2025/11/17/commanders-cut-kicker-matt-gay-sign-jake-moody-bears/
+
 **The MAGA Crackup Might Finally Be Here**\
 `Even if the Epstein files never come out, it’s increasingly clear that a Trump coalition is fragmenting.`\
 https://nytimes.com/2025/11/17/opinion/maga-republicans-trump-epstein.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/11/17/learning/17StudentNewsQuiz.html
 **Worker Error Is Faulted After Israeli-Born Canadian Hits Passport Snag**\
 `A student in Montreal, who was born in Kfar Saba, Israel, said she was initially told she could not list Israel as her birth country on her passport.`\
 https://nytimes.com/2025/11/17/world/canada/canada-passport-israel-birthplace.html
-
-**Trump Announces U.S. Will Sell F-35s to Saudi Arabia**\
-`President Trump told reporters on Monday that he planned to sell F-35 fighter jets to Saudi Arabia, against the guidance from national security officials in his own administration.`\
-https://nytimes.com/video/us/politics/100000010529678/trump-f35-saudi-arabia.html
 

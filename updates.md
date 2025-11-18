@@ -1,3 +1,7 @@
+**Commanders cut kicker Matt Gay, sign kicker Jake Moody off Bears' practice squad**\
+`The Washington Commanders are now on to their eighth kicker of the Dan Quinn era.`\
+https://nytimes.com/athletic/6815750/2025/11/17/commanders-cut-kicker-matt-gay-sign-jake-moody-bears/
+
 **The MAGA Crackup Might Finally Be Here**\
 `Even if the Epstein files never come out, it’s increasingly clear that a Trump coalition is fragmenting.`\
 https://nytimes.com/2025/11/17/opinion/maga-republicans-trump-epstein.html
