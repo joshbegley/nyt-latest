@@ -1,3 +1,7 @@
+**‘Things Happen’: Trump Brushes Off the Murder of Khashoggi**\
+`A reporter asked Crown Prince Mohammed bin Salman about the murder of the Washington Post columnist Jamal Khashoggi. President Trump interjected.`\
+https://nytimes.com/2025/11/18/us/politics/khashoggi-trump-saudi-crown-prince.html
+
 **Live Count: The House Votes on Releasing the Epstein Files**\
 `See how every member voted.`\
 https://nytimes.com/interactive/2025/11/18/us/house-epstein-discharge-petition-vote.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2025/11/18/world/trump-saudi-crown-prince-visit/trump-s
 **Trump Administration to Announce Steps to Dismantle Education Department**\
 `Responsibilities for K-12 and college programs, among others, will be moved to other federal agencies.`\
 https://nytimes.com/2025/11/18/us/politics/trump-education-department.html
-
-**Federal Court Blocks Texas’ Republican-Friendly Congressional Map**\
-`The move by a three-judge panel dealt a blow to efforts by Texas Republicans and President Trump to flip Democratic seats in the state.`\
-https://nytimes.com/2025/11/18/us/politics/texas-map-ruling-redistricting.html
 
