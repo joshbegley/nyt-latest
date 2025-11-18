@@ -1,3 +1,7 @@
+**Israeli Airstrike on Refugee Camp in Lebanon Kills at Least 13, Ministry Says**\
+`It was one of the deadliest Israeli strikes on Lebanon since a cease-fire between the neighboring countries went into effect about a year ago.`\
+https://nytimes.com/2025/11/18/world/middleeast/israel-strike-lebanon-camp.html
+
 **Cavaliers fined $100,000 for sitting All-Stars Mitchell and Mobley**\
 `The league determined that the Cavaliers violated the league's Player Participation Policy by sitting their two All-Stars due to "rest." `\
 https://nytimes.com/athletic/6818294/2025/11/18/cavaliers-donovan-mitchell-evan-mobley-fine/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/18/briefing/congress-demands-release-of-epstein-file
 **Giannis Antetokounmpo likely out 2 weeks with groin strain**\
 `The Bucks have been outscored by 12.8 points per 100 possessions when Giannis sits and play seven games over the next two weeks. `\
 https://nytimes.com/athletic/6818263/2025/11/18/giannis-antetokounmpo-sidelined-groin-bucks-nba/
-
-**What Is Post-Liberalism, Anyway?**\
-`Notes on an unstable but necessary idea.`\
-https://nytimes.com/2025/11/18/opinion/post-liberalism-politics.html
 

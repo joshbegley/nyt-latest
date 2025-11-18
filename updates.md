@@ -1,3 +1,7 @@
+**Israeli Airstrike on Refugee Camp in Lebanon Kills at Least 13, Ministry Says**\
+`It was one of the deadliest Israeli strikes on Lebanon since a cease-fire between the neighboring countries went into effect about a year ago.`\
+https://nytimes.com/2025/11/18/world/middleeast/israel-strike-lebanon-camp.html
+
 **Cavaliers fined $100,000 for sitting All-Stars Mitchell and Mobley**\
 `The league determined that the Cavaliers violated the league's Player Participation Policy by sitting their two All-Stars due to "rest." `\
 https://nytimes.com/athletic/6818294/2025/11/18/cavaliers-donovan-mitchell-evan-mobley-fine/

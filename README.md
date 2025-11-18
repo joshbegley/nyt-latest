@@ -1,3 +1,11 @@
+**Kevin Brown commits to West Virginia, sets couch on fire in Mountaineer fashion**\
+`Brown made his appearance on "The Pat McAfee Show" memorable by participating in a West Virginia tradition.`\
+https://nytimes.com/athletic/6818344/2025/11/18/kevin-brown-recruit-commits-west-virginia-burning-couch/
+
+**Scientists Call for Global Shift Away From Ultraprocessed Foods**\
+`In a sweeping series of papers, scientists have proposed policy reforms, such as taxes on sugary drinks, to improve the food supply.`\
+https://nytimes.com/2025/11/18/well/eat/ultraprocessed-foods-health.html
+
 **Israeli Airstrike on Refugee Camp in Lebanon Kills at Least 13, Ministry Says**\
 `It was one of the deadliest Israeli strikes on Lebanon since a cease-fire between the neighboring countries went into effect about a year ago.`\
 https://nytimes.com/2025/11/18/world/middleeast/israel-strike-lebanon-camp.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6818264/2025/11/18/haley-carter-orlando-pride-stepp
 **Robertson dedicates Scotland WC qualification to 'my mate' Jota**\
 `Robertson said he and Jota had "always discussed" the prospect of playing at the 2026 World Cup, having both missed the 2022 edition.`\
 https://nytimes.com/athletic/6818349/2025/11/18/andy-robertson-scotland-diogo-jota/
-
-**Congress Demands Release of Epstein Files**\
-`Also, Trump jumped to the defense of Saudi Arabia’s crown prince. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/11/18/briefing/congress-demands-release-of-epstein-files.html
-
-**Giannis Antetokounmpo likely out 2 weeks with groin strain**\
-`The Bucks have been outscored by 12.8 points per 100 possessions when Giannis sits and play seven games over the next two weeks. `\
-https://nytimes.com/athletic/6818263/2025/11/18/giannis-antetokounmpo-sidelined-groin-bucks-nba/
 
