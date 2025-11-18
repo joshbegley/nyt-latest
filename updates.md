@@ -1,3 +1,5 @@
+
+
 **The Disrespect of Journalism’s ‘Digital Barons’**\
 `The longtime journalist Tina Brown has covered some of the biggest personalities in politics and culture.`\
 https://nytimes.com/video/podcasts/100000010530579/the-disrespect-of-journalisms-digital-barons.html
