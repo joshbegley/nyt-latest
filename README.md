@@ -2,7 +2,7 @@
 `Nothing is going how we expected for the Kings, Ducks or Sharks. Fortunately, our expert can help us make sense.`\
 https://nytimes.com/athletic/6816971/2025/11/18/nhl-kings-ducks-sharks-california-red-light-newsletter/
 
-**Trump Family’s Business Ties to Saudi Arabia Raise Ethics Concerns**\
+**Trump Family’s Business Ties to Saudi Arabia Raise Ethics Worries**\
 `President Trump will host Crown Prince Mohammed bin Salman, Saudi Arabia’s de facto ruler, who oversees a major construction project that is in talks with the Trump family business.`\
 https://nytimes.com/2025/11/18/world/middleeast/trump-family-business-saudi-arabia.html
 
