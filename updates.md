@@ -1,3 +1,19 @@
+**What I'm seeing from Oilers' road trip: Some good, some not so good**\
+`For one thing, Edmonton can't be relying on Connor McDavid and Leon Draisaitl so much if they want to make another run to the Cup Final.`\
+https://nytimes.com/athletic/6816130/2025/11/18/oilers-road-trip-evaulation/
+
+**How to watch College Football Playoff rankings show: Who's in after chaotic Week 12?**\
+`Week 12 saw major shifts in the SEC. Tuesday's CFP rankings show will reveal how the committee views the aftermath. `\
+https://nytimes.com/athletic/6815557/2025/11/18/college-football-playoff-rankings-week-13-how-to-watch/
+
+**Men? In Hollywood? You Don’t Say.**\
+`Mark Guiducci gave his first issue of Vanity Fair over to the guys.`\
+https://nytimes.com/2025/11/18/style/vanity-fair-hollywood-issue.html
+
+**Trump Administration Live Updates: House Expected to Vote to Release Epstein Files**\
+``\
+https://nytimes.com/live/2025/11/18/us/trump-epstein-files-news
+
 **Mark Wood in England contention for first Ashes Test after fitness boost**\
 `The fast bowler has not played competitively since February and managed only eight overs in England's warm-up game against the Lions`\
 https://nytimes.com/athletic/6816667/2025/11/18/ashes-mark-wood-england-perth/
