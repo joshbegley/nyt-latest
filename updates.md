@@ -1,3 +1,7 @@
+**Fantasy football Week 12 drops: Send DJ Moore, Tony Pollard packing**\
+`Gary Davenport doesn't sugarcoat it: it’s time to cut ties with underperforming stars like Cooper Kupp and Tony Pollard. `\
+https://nytimes.com/athletic/6816791/2025/11/18/fantasy-football-week-12-drops-dj-moore/
+
 **Wife of Astronaut Pleads Guilty to Falsely Alleging Crime in Space**\
 `Summer Worden admitted lying to federal agents when she accused her spouse, the astronaut Anne McClain, of illegally accessing her bank account from space.`\
 https://nytimes.com/2025/11/18/us/space-crime-astronaut-anne-mcclain.html

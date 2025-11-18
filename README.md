@@ -1,3 +1,15 @@
+**Trump Family’s Business Ties to Saudi Arabia Raise Ethics Concerns**\
+`President Trump will host Crown Prince Mohammed bin Salman, Saudi Arabia’s de facto ruler, who oversees a major construction project that is in talks with the Trump family business.`\
+https://nytimes.com/2025/11/18/world/middleeast/trump-family-business-saudi-arabia.html
+
+**Live Updates: Trump to Host Saudi Leader, With Business and Stealth Jets on Agenda**\
+`President Trump will discuss security and investment with Crown Prince Mohammed bin Salman, Saudi Arabia’s de facto ruler, who is making his first U.S. visit since the 2018 killing of a prominent critic.`\
+https://nytimes.com/live/2025/11/18/world/trump-saudi-crown-prince-visit
+
+**Zelensky Will Try to Revive Peace Talks on Visit to Turkey**\
+`President Volodymyr Zelensky of Ukraine says he has new proposals to kick-start negotiations with Russia that have been stalled for months.`\
+https://nytimes.com/2025/11/18/world/europe/zelensky-russia-ukraine-talks-turkey.html
+
 **Fantasy football Week 12 drops: Send DJ Moore, Tony Pollard packing**\
 `Gary Davenport doesn't sugarcoat it: it’s time to cut ties with underperforming stars like Cooper Kupp and Tony Pollard. `\
 https://nytimes.com/athletic/6816791/2025/11/18/fantasy-football-week-12-drops-dj-moore/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6815281/2025/11/18/aj-dybantsa-pelicans-warriors-nb
 **The Growing Cost of Having Ties to Epstein**\
 `Larry Summers, a former Treasury secretary, is stepping back from public commitments. It’s the latest fallout for an associate of Jeffrey Epstein.`\
 https://nytimes.com/2025/11/18/business/dealbook/summers-ties-jeffrey-epstein.html
-
-**Dazzling New Historical Fiction**\
-`Our columnist on four books that are worth your time.`\
-https://nytimes.com/2025/11/18/books/review/new-historical-fiction-books.html
-
-**U.N. Support Bolsters Trump’s Gaza Plan but Road Ahead Is Still Rough**\
-`The Security Council’s backing offered a scaffolding of international legitimacy that will be needed to persuade countries to help see the plans through.`\
-https://nytimes.com/2025/11/18/world/middleeast/un-trump-gaza-plan.html
-
-**What I'm seeing from Oilers' road trip: Some good, some not so good**\
-`For one thing, Edmonton can't be relying on Connor McDavid and Leon Draisaitl so much if they want to make another run to the Cup Final.`\
-https://nytimes.com/athletic/6816130/2025/11/18/oilers-road-trip-evaulation/
 
