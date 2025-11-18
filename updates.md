@@ -1,3 +1,7 @@
+**Steelers QB Aaron Rodgers has fractured left wrist but status for Sunday unknown**\
+`Rodgers did not return for the second half against the Bengals on Sunday.`\
+https://nytimes.com/athletic/6814309/2025/11/18/aaron-rodgers-injury-update-wrist-steelers-mike-tomlin/
+
 **Ecuador Votes No to Hosting U.S. Military Base**\
 `A vote on Sunday rejected the expansion of a foreign military presence. It came as the U.S. military’s campaign in waters near Latin America has been roiling the region.`\
 https://nytimes.com/2025/11/18/world/americas/ecuador-us-military-base-vote-trump.html
