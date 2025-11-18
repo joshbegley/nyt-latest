@@ -1,40 +1,40 @@
-**Trump Issues Mixed Messages About Military Action Against Venezuela**\
-`The president said he has not ruled out putting U.S. forces on the ground but signaled for a second day running that he could be open to talking to Nicolás Maduro, Venezuela’s leader.`\
-https://nytimes.com/2025/11/17/us/politics/trump-venezuela-maduro.html
+**How to watch Kansas State vs. Utah: Time, TV, streaming**\
+`Find out how to watch the Kansas State Wildcats play the Utah Utes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815870/2025/11/17/kansas-state-vs-utah-stream-how-to-watch-nov-22/
 
-**C.D.C. Links Measles Outbreaks in Multiple States for the First Time**\
-`If the outbreaks cannot be extinguished by January, the anniversary of the first cases in Texas, the United States will lose what is known as “elimination status” as determined by the World Health Organization.`\
-https://nytimes.com/2025/11/17/health/measles-us-elimination-status-outbreaks.html
+**How to watch Illinois vs. Wisconsin: Time, TV, streaming**\
+`Find out how to watch the Illinois Fighting Illini play the Wisconsin Badgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815867/2025/11/17/illinois-vs-wisconsin-stream-how-to-watch-nov-22/
 
-**Trump’s Immigration Crackdown Hits a Battleground State**\
-`The Charlotte raids pose a new political test of a top Trump priority.`\
-https://nytimes.com/2025/11/17/us/politics/trump-ice-bovino-charlotte.html
+**How to watch Michigan vs. Maryland: Time, TV, streaming**\
+`Find out how to watch the Michigan Wolverines play the Maryland Terrapins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815865/2025/11/17/michigan-vs-maryland-stream-how-to-watch-nov-22/
 
-**Trump Administration Asks Court to Block California’s Ban on Masked Federal Agents**\
-`The U.S. government says the new law threatens the safety of its agents and argues that states cannot regulate federal agencies.`\
-https://nytimes.com/2025/11/17/us/politics/trump-california-ban-masked-agents.html
+**How to watch Tennessee vs. Florida: Time, TV, streaming**\
+`Find out how to watch the Tennessee Volunteers play the Florida Gators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815859/2025/11/17/tennessee-vs-florida-stream-how-to-watch-nov-22/
 
-**Commanders cut kicker Matt Gay, sign kicker Jake Moody off Bears' practice squad**\
-`The Washington Commanders are now on to their eighth kicker of the Dan Quinn era.`\
-https://nytimes.com/athletic/6815750/2025/11/17/commanders-cut-kicker-matt-gay-sign-jake-moody-bears/
+**How to watch Nebraska vs. Penn State: Time, TV, streaming**\
+`Find out how to watch the Nebraska Cornhuskers play the Penn State Nittany Lions, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815858/2025/11/17/nebraska-vs-penn-state-stream-how-to-watch-nov-22/
 
-**The MAGA Crackup Might Finally Be Here**\
-`Even if the Epstein files never come out, it’s increasingly clear that a Trump coalition is fragmenting.`\
-https://nytimes.com/2025/11/17/opinion/maga-republicans-trump-epstein.html
+**How to watch North Texas vs. Rice: Time, TV, streaming**\
+`Find out how to watch the North Texas Mean Green play the Rice Owls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815854/2025/11/17/north-texas-vs-rice-stream-how-to-watch-nov-22/
 
-**What’s Interesting About the Place Where You Live?**\
-`A neighborhood? A group of people? A natural feature? A business? An annual event? Take a fresh look around your hometown and tell us what’s notable — no matter how small.`\
-https://nytimes.com/2025/11/17/learning/whats-interesting-about-the-place-where-you-live.html
+**How to watch Coastal Carolina vs. South Carolina: Time, TV, streaming**\
+`Find out how to watch the Coastal Carolina Chanticleers play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815847/2025/11/17/coastal-carolina-vs-south-carolina-stream-how-to-watch-nov-22/
 
-**MacKenzie Scott Gives $700 Million to Historically Black Colleges**\
-`The donations to over a dozen schools come as the Trump administration is directing more funds to the historically Black institutions, too.`\
-https://nytimes.com/2025/11/17/us/hbcus-mackenzie-scott-donations.html
+**How to watch Tulane vs. Temple: Time, TV, streaming**\
+`Find out how to watch the Tulane Green Wave play the Temple Owls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815841/2025/11/17/tulane-vs-temple-stream-how-to-watch-nov-22/
 
-**The U.N. Security Council Backs Trump’s Gaza Plan**\
-`Also, it’s a big week for the art market. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/11/17/briefing/the-un-security-council-backs-trumps-gaza-plan.html
+**How to watch Pittsburgh vs. Georgia Tech: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Panthers play the Georgia Tech Yellow Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815833/2025/11/17/pittsburgh-vs-georgia-tech-stream-how-to-watch-nov-22/
 
-**What Is Botulism?**\
-`The life-threatening illness is a continuing threat. Here’s what you need to know.`\
-https://nytimes.com/2025/11/17/well/what-is-botulism.html
+**UC Investments puts $2.4 billion Big Ten deal on hold amid pushback from Michigan and USC**\
+`Michigan and USC's public opposition led to UC Investments holding off on the potential $2.4 billion deal with the Big Ten.`\
+https://nytimes.com/athletic/6815788/2025/11/17/uc-investments-puts-2-4-billion-big-ten-deal-on-hold-amid-pushback-from-michigan-and-usc/
 
