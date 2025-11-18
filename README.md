@@ -1,3 +1,7 @@
+**Fantasy football Week 12 drops: Send DJ Moore, Tony Pollard packing**\
+`Gary Davenport doesn't sugarcoat it: it’s time to cut ties with underperforming stars like Cooper Kupp and Tony Pollard. `\
+https://nytimes.com/athletic/6816791/2025/11/18/fantasy-football-week-12-drops-dj-moore/
+
 **Wife of Astronaut Pleads Guilty to Falsely Alleging Crime in Space**\
 `Summer Worden admitted lying to federal agents when she accused her spouse, the astronaut Anne McClain, of illegally accessing her bank account from space.`\
 https://nytimes.com/2025/11/18/us/space-crime-astronaut-anne-mcclain.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/18/world/middleeast/un-trump-gaza-plan.html
 **What I'm seeing from Oilers' road trip: Some good, some not so good**\
 `For one thing, Edmonton can't be relying on Connor McDavid and Leon Draisaitl so much if they want to make another run to the Cup Final.`\
 https://nytimes.com/athletic/6816130/2025/11/18/oilers-road-trip-evaulation/
-
-**How to watch College Football Playoff rankings show: Who's in after chaotic Week 12?**\
-`Week 12 saw major shifts in the SEC. Tuesday's CFP rankings show will reveal how the committee views the aftermath. `\
-https://nytimes.com/athletic/6815557/2025/11/18/college-football-playoff-rankings-week-13-how-to-watch/
 
