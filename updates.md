@@ -1,3 +1,11 @@
+**Shedeur Sanders' home broken into during Browns-Ravens game**\
+`The reported break-in at Sanders home is another example of athletes’ properties being targeted while they’re playing.`\
+https://nytimes.com/athletic/6815427/2025/11/18/shedeur-sanders-home-break-in-browns-ravens/
+
+**Trump Library Foundation Expects to Raise $50 Million This Year**\
+`President Trump is raising money far faster than his predecessors, extracting tens of millions of dollars in pledged donations from media companies he has sued.`\
+https://nytimes.com/2025/11/18/us/politics/trump-library-foundation-expects-to-raise-50-million-this-year.html
+
 **Fantasy football market share report: Tetairoa McMillan is on the upswing**\
 `Michael Salfino analyzes the touches and targets distribution for Week 11, suggesting Adonai Mitchell might be a rebound candidate this week`\
 https://nytimes.com/athletic/6817188/2025/11/18/fantasy-football-market-share-week-11-touches-targets-tet-adonai/

@@ -1,3 +1,11 @@
+**Shedeur Sanders' home broken into during Browns-Ravens game**\
+`The reported break-in at Sanders home is another example of athletes’ properties being targeted while they’re playing.`\
+https://nytimes.com/athletic/6815427/2025/11/18/shedeur-sanders-home-break-in-browns-ravens/
+
+**Trump Library Foundation Expects to Raise $50 Million This Year**\
+`President Trump is raising money far faster than his predecessors, extracting tens of millions of dollars in pledged donations from media companies he has sued.`\
+https://nytimes.com/2025/11/18/us/politics/trump-library-foundation-expects-to-raise-50-million-this-year.html
+
 **Fantasy football market share report: Tetairoa McMillan is on the upswing**\
 `Michael Salfino analyzes the touches and targets distribution for Week 11, suggesting Adonai Mitchell might be a rebound candidate this week`\
 https://nytimes.com/athletic/6817188/2025/11/18/fantasy-football-market-share-week-11-touches-targets-tet-adonai/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/18/world/americas/ecuador-us-military-base-vote-trum
 **Vaulks wins FIFPRO award for work around mental health in football**\
 `“It gives me an even louder voice, so that’s my main delight with winning it," Vaulks told The Athletic.`\
 https://nytimes.com/athletic/6807303/2025/11/18/will-vaulks-fifpro-player-voice-award/
-
-**An Indigenous Ballet Was a Hit in the City. But in the Sami Heartland?**\
-`The Norwegian National Ballet was nervous about taking a new work about a Sami uprising to the area where the historical event took place.`\
-https://nytimes.com/2025/11/18/arts/dance/lahppon-lost-sami-norwegian-national-ballet.html
-
-**Cowboys' Pickens, Lamb didn't start vs. Raiders due to 'in-house issue'**\
-`Owner Jerry Jones called it an “in-house issue” that “had to do with meeting type discipline” and that they “had a late problem there.”`\
-https://nytimes.com/athletic/6817254/2025/11/18/cowboys-ceedee-lamb-george-pickens-jerry-jones-mnf/
 

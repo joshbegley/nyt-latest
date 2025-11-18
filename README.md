@@ -1,3 +1,11 @@
+**Harrowing Video Shows Inmate’s Death and the Halting Effort to Save Him**\
+`Nurses and guards in Oneida County, N.Y., cracked wise and complained about poor equipment as Antwan Cater lay unconscious in a drug-induced seizure. His father has filed a lawsuit in the case.`\
+https://nytimes.com/2025/11/18/nyregion/oneida-jail-video-inmate-death-lawsuit.html
+
+**Chinese Spies Are Using LinkedIn to Target U.K. Lawmakers, MI5 Warns**\
+`Britain’s domestic intelligence agency said China was using headhunters to gather intelligence from lawmakers and parliamentary staff members.`\
+https://nytimes.com/2025/11/18/world/europe/chinese-spies-linkedin-uk.html
+
 **Shedeur Sanders' home broken into during Browns-Ravens game**\
 `The reported break-in at Sanders home is another example of athletes’ properties being targeted while they’re playing.`\
 https://nytimes.com/athletic/6815427/2025/11/18/shedeur-sanders-home-break-in-browns-ravens/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6817321/2025/11/18/brad-treliving-craig-berube-mapl
 **Aaron Rodgers has fractured left wrist; status for Week 12 vs. Bears unknown**\
 `If Rodgers cannot play against the Bears, backup QB Mason Rudolph would get the start. `\
 https://nytimes.com/athletic/6814309/2025/11/18/aaron-rodgers-injury-update-wrist-steelers-mike-tomlin/
-
-**Ecuador Votes No to Hosting U.S. Military Base**\
-`A vote on Sunday rejected the expansion of a foreign military presence. It came as the U.S. military’s campaign in waters near Latin America has been roiling the region.`\
-https://nytimes.com/2025/11/18/world/americas/ecuador-us-military-base-vote-trump.html
-
-**Vaulks wins FIFPRO award for work around mental health in football**\
-`“It gives me an even louder voice, so that’s my main delight with winning it," Vaulks told The Athletic.`\
-https://nytimes.com/athletic/6807303/2025/11/18/will-vaulks-fifpro-player-voice-award/
 
