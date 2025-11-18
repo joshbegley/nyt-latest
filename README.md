@@ -1,3 +1,7 @@
+**Mark Wood in England contention for first Ashes Test after fitness boost**\
+`The fast bowler has not played competitively since February and managed only eight overs in England's warm-up game against the Lions`\
+https://nytimes.com/athletic/6816667/2025/11/18/ashes-mark-wood-england-perth/
+
 **U.N. Security Council Adopts U.S. Peace Plan for Gaza**\
 `In a breakthrough vote, the United Nations Security Council on Monday approved President Trump’s peace plan for Gaza. The resolution, which provides a legal mandate for the plan, was passed with 13 votes in favor, zero against, and Russia and China abstaining.`\
 https://nytimes.com/video/world/middleeast/100000010530339/un-security-council-gaza-peace-plan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/18/briefing/why-more-pollution-could-be-coming-for-w
 **Tigers mailbag: Gleyber Torres, free-agent bats and pitching needs**\
 `Answering reader questions on several key issues the Tigers face this offseason.`\
 https://nytimes.com/athletic/6815243/2025/11/18/tigers-mailbag-gleyber-torres-free-agent-bats-pitching/
-
-**Beecher on waivers: Why is the 2019 first-rounder out of favor, and could he get claimed?**\
-`Not so long ago, Beecher looked like he was shaping up to be a solid depth center for the Bruins.`\
-https://nytimes.com/athletic/6816088/2025/11/18/johnny-beecher-bruins-waivers-sturm/
 
