@@ -1,3 +1,7 @@
+**Late Night is Amused by Trump’s About-Face on the Epstein Files**\
+`“We have nothing to hide,” President Trump said about releasing the documents. Jimmy Kimmel shot back: “I have some bad news: There’s no ‘we.’ It’s just you, bro.”`\
+https://nytimes.com/2025/11/18/arts/television/late-night-trump-epstein-files.html
+
 **Word of the Day: perpetuate**\
 `This word has appeared in 108 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/11/18/learning/word-of-the-day-perpetuate.html
