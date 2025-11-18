@@ -1,3 +1,15 @@
+**The New York Times in Print for Tuesday, Nov. 18, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/18/todays-new-york-times
+
+**Poor Countries Got $1 Trillion From China. So Did Rich Ones.**\
+`Beijing has used loans to developing nations to expand its influence, but a new study says no country has received more Chinese financing than the United States.`\
+https://nytimes.com/2025/11/18/business/china-loans-financing.html
+
+**Nothing Succeeds With Trump Quite Like Success**\
+`Ukraine understands this. Europe should get on board with it, too.`\
+https://nytimes.com/2025/11/18/opinion/trump-ukraine-europe.html
+
 **Connections: Sports Edition Coach: Hints for Nov. 18, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6814134/2025/11/18/connections-sports-edition-hints-for-nov-18-2025/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6814374/2025/11/18/crystal-palaces-midfield-lack-of
 **Aston Villa's long-range scoring success - and why it could be a worry**\
 `Villa scored five successive Premier League goals from outside the box before the international break. Is it sustainable?`\
 https://nytimes.com/athletic/6791822/2025/11/18/aston-villa-premier-league-long-range-goals/
-
-**Unfulfilled promises, an airport stand-off and 'voodoo' - how Nigeria's World Cup dream died**\
-`A chaotic qualifying campaign involved three different head coaches and a financial dispute that led to players boycotting training`\
-https://nytimes.com/athletic/6811561/2025/11/18/how-nigeria-world-cup-dream-died/
-
-**Gael Clichy interview: How Wenger, Guardiola and Henry fired his coaching ambition**\
-`The former Arsenal and Manchester City defender is ready for his first managerial role after leaving his role with the France Under-21s`\
-https://nytimes.com/athletic/6807413/2025/11/18/clichy-interview-wenger-guardiola-henry/
-
-**Burnley? Detroit. Leeds? Flamingo Land. Fulham? Mongolia: The strange world of football travel tie-ins**\
-`Turn on the TV or watch from the stands and the chances are you will see a club encouraging you to visit a far-flung destination`\
-https://nytimes.com/athletic/6783502/2025/11/18/premier-league-travel-advertising/
 
