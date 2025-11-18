@@ -1,3 +1,7 @@
+**Derek Shelton hopeful Twins' coaching staff is right blend of personalities, skill sets**\
+`“This group could not have come together better than any group I imagined," the recently hired Shelton says.`\
+https://nytimes.com/athletic/6815765/2025/11/17/derek-shelton-twins-coaching-staff/
+
 **Inside ICE Detention**\
 `They came to the U.S. legally. ICE jailed them anyway. Jemmy Jimenez Rosa, Ayman Soliman and Jasmine Mooney share their stories from inside a cruel detention system that operates with impunity.`\
 https://nytimes.com/video/opinion/100000010520926/inside-ice-detention.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6815854/2025/11/17/north-texas-vs-rice-stream-how-t
 **How to watch Coastal Carolina vs. South Carolina: Time, TV, streaming**\
 `Find out how to watch the Coastal Carolina Chanticleers play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6815847/2025/11/17/coastal-carolina-vs-south-carolina-stream-how-to-watch-nov-22/
-
-**How to watch Tulane vs. Temple: Time, TV, streaming**\
-`Find out how to watch the Tulane Green Wave play the Temple Owls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6815841/2025/11/17/tulane-vs-temple-stream-how-to-watch-nov-22/
 
