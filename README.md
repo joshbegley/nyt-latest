@@ -1,3 +1,15 @@
+**Gleyber Torres accepts qualifying offer, will return to Tigers in 2026**\
+`Gleyber Torres is coming back to Detroit for a second season, once again giving the Tigers the type of reliable hitter they need more of in their lineup.`\
+https://nytimes.com/athletic/6795616/2025/11/18/gleyber-torres-detroit-tigers-qualifying-offer/
+
+**WSL official alleges 'fear to raise grievances' to referee body, tribunal hears**\
+`The PGMOL denies all the allegations against them.`\
+https://nytimes.com/athletic/6817938/2025/11/18/lisa-benn-pgmol-tribunal/
+
+**Calley Means Returns to Kennedy’s Side as Senior Adviser**\
+`Mr. Means, who co-founded a wellness company, has emerged as one of the most prominent voices in the Make America Healthy Again movement.`\
+https://nytimes.com/2025/11/18/well/calley-means-returns-to-kennedys-side-as-senior-adviser.html
+
 **Shota Imanaga accepts qualifying offer, set to return to Cubs' rotation in 2026**\
 `This latest move closed some of the distance between Imanaga and the organization that initially signed him out of Japan. `\
 https://nytimes.com/athletic/6815890/2025/11/18/shota-imanaga-accepts-qualifying-offer-cubs/
@@ -8,7 +20,7 @@ https://nytimes.com/2025/11/18/climate/climate-friendly-beef-settlements.html
 
 **Trent Grisham accepts Yankees' qualifying offer, will return in 2026: What it means**\
 `Grisham's decision to accept the qualifying offer leaves the Yankees with one open outfield position to fill.`\
-https://nytimes.com/athletic/6815426/2025/11/18/trent-grisham-rejects-yankees-qualifying-offer-mlb-free-agency/
+https://nytimes.com/athletic/6815426/2025/11/18/trent-grisham-accepts-yankees-qualifying-offer/
 
 **Investigating a Recycling Disaster**\
 `We went to Nigeria, where recycling plants are extracting lead for use in American and European car batteries — at a terrible human cost.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/18/business/media/trump-reporter-khashoggi-saudis.ht
 **Why Jameis Winston would have been a podiatrist, and 3 lessons on money, family and planning ahead**\
 `On the latest episode of "No Free Lunch," Winston shared the hard lessons he learned about the money that follows success.`\
 https://nytimes.com/athletic/6817479/2025/11/18/jameis-winston-podiatrist-financial-lessons-new-york-giants/
-
-**Kamala Harris Hits Campaign Trail in Tennessee Special Election**\
-`On Tuesday, the former vice president plans to make her first campaign appearance for another Democrat since leaving office.`\
-https://nytimes.com/2025/11/18/us/politics/kamala-harris-tennessee-house-election.html
-
-**Musk Is Back in Politics. Does He Want to Stay a While?**\
-`Having struck an uneasy truce with the president, Elon Musk is starting to make political appearances again, and his allies are planning a DOGE reunion party.`\
-https://nytimes.com/2025/11/18/us/politics/elon-musk-politics-trump-doge.html
-
-**Havertz suffers 'small' injury setback, Nagelsmann says**\
-`Nagelsmann said he expects Havertz to return before the end of the year.`\
-https://nytimes.com/athletic/6817701/2025/11/18/kai-havertz-injury-setback-arsenal-germany/
 
