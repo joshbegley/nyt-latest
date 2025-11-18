@@ -1,3 +1,19 @@
+**Fantasy football market share report: Tetairoa McMillan is on the upswing**\
+`Michael Salfino analyzes the touches and targets distribution for Week 11, suggesting Adonai Mitchell might be a rebound candidate this week`\
+https://nytimes.com/athletic/6817188/2025/11/18/fantasy-football-market-share-week-11-touches-targets-tet-adonai/
+
+**Lane Kiffin says Ole Miss didn't give him ultimatum, doesn't address future**\
+`The Rebels' are coming off a 34-24 win over Florida on Saturday, improving Ole Miss' record to 10-1, its fourth 10-win season since 2021.`\
+https://nytimes.com/athletic/6817424/2025/11/18/lane-kiffin-ole-miss-future-pat-mcafee/
+
+**The Art World Chooses Its Favorite Films About Artists**\
+`Movies with artist-protagonists are known to be disappointing. These pass muster and even inspire.`\
+https://nytimes.com/2025/11/18/t-magazine/favorite-artist-films.html
+
+**Brad Treliving defends Craig Berube amid Leafs’ struggles: 'I believe in Craig'**\
+`Treliving took “full responsibility” for the Leafs' plight, which has them near the bottom of the Eastern Conference.`\
+https://nytimes.com/athletic/6817321/2025/11/18/brad-treliving-craig-berube-maple-leafs/
+
 **Source: Arizona State QB Sam Leavitt weighing move to transfer portal**\
 `Leavitt, who led the Sun Devils to the College Football Playoff in 2024, is unlikely to return to the school in 2026.`\
 https://nytimes.com/athletic/6817324/2025/11/18/arizona-state-quarterback-sam-leavitt-transfer-portal/

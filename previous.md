@@ -1,9 +1,21 @@
+**Fantasy football market share report: Tetairoa McMillan is on the upswing**\
+`Michael Salfino analyzes the touches and targets distribution for Week 11, suggesting Adonai Mitchell might be a rebound candidate this week`\
+https://nytimes.com/athletic/6817188/2025/11/18/fantasy-football-market-share-week-11-touches-targets-tet-adonai/
+
+**Lane Kiffin says Ole Miss didn't give him ultimatum, doesn't address future**\
+`The Rebels' are coming off a 34-24 win over Florida on Saturday, improving Ole Miss' record to 10-1, its fourth 10-win season since 2021.`\
+https://nytimes.com/athletic/6817424/2025/11/18/lane-kiffin-ole-miss-future-pat-mcafee/
+
+**The Art World Chooses Its Favorite Films About Artists**\
+`Movies with artist-protagonists are known to be disappointing. These pass muster and even inspire.`\
+https://nytimes.com/2025/11/18/t-magazine/favorite-artist-films.html
+
 **Source: Arizona State QB Sam Leavitt weighing move to transfer portal**\
 `Leavitt, who led the Sun Devils to the College Football Playoff in 2024, is unlikely to return to the school in 2026.`\
 https://nytimes.com/athletic/6817324/2025/11/18/arizona-state-quarterback-sam-leavitt-transfer-portal/
 
 **Brad Treliving defends Craig Berube amid Leafs’ struggles: 'I believe in Craig'**\
-`Treliving took “full responsibility” for the Leafs' current plight, which has them near the bottom of the Eastern Conference.`\
+`Treliving took “full responsibility” for the Leafs' plight, which has them near the bottom of the Eastern Conference.`\
 https://nytimes.com/athletic/6817321/2025/11/18/brad-treliving-craig-berube-maple-leafs/
 
 **Aaron Rodgers has fractured left wrist; status for Week 12 vs. Bears unknown**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/18/arts/dance/lahppon-lost-sami-norwegian-national-b
 **Cowboys' Pickens, Lamb didn't start vs. Raiders due to 'in-house issue'**\
 `Owner Jerry Jones called it an “in-house issue” that “had to do with meeting type discipline” and that they “had a late problem there.”`\
 https://nytimes.com/athletic/6817254/2025/11/18/cowboys-ceedee-lamb-george-pickens-jerry-jones-mnf/
-
-**Arsenal's Gabriel set for further tests, fears he will miss one to two months**\
-`The defender sustained the injury playing in a friendly for Brazil against Senegal on Saturday.`\
-https://nytimes.com/athletic/6813855/2025/11/18/gabriel-arsenal-thigh-injury/
-
-**Trump Team Calls Maduro a ‘Cartel’ Boss. That Word Doesn’t Mean What You Think.**\
-`Venezuelans coined a figure of speech for the phenomenon of generals corrupted by drug money: “Cartel de los Soles.” Then the United States started talking about it as a literal organization.`\
-https://nytimes.com/2025/11/18/us/politics/trump-maduro-drug-cartel.html
-
-**2025 NFL Playoff Simulator: Each team’s updated path to the postseason ahead of Week 12**\
-`<p>Welcome to The Athletic’s 2025 NFL Playoff Simulator, where you’ll find everything you need to know about all the ways your favorite team&#8217;s season could end, from a No.`\
-https://nytimes.com/athletic/6513952/2025/11/18/2025-nfl-playoff-simulator-path-postseason/
 
