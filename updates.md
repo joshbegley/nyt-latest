@@ -1,3 +1,7 @@
+**How Every House Member Voted on Releasing the Epstein Files**\
+`The House overwhelmingly voted to release the Justice Department files. The bill now goes to the Senate.`\
+https://nytimes.com/interactive/2025/11/18/us/house-epstein-discharge-petition-vote.html
+
 **Convicted Australian Murderer Sues for Vegemite, Demanding Prisons Allow the Spread**\
 `A man facing life behind bars is challenging the state of Victoria’s prison ban on the salty condiment beloved by many Australians. The case drew condemnation from a minister for corrections.`\
 https://nytimes.com/2025/11/18/world/australia/prisoner-vegemite-lawsuit.html
