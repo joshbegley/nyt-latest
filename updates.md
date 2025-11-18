@@ -1,3 +1,7 @@
+**Meta Did Not Violate Antitrust Law, Judge Rules**\
+`Meta’s acquisitions of Instagram and WhatsApp did not illegally stifle competition in social networking, a judge found, a major win for the tech giant.`\
+https://nytimes.com/2025/11/18/technology/meta-antitrust-monopoly-ruling.html
+
 **Faster Communication Could Have Saved Bridge Workers’ Lives, Safety Agency Says**\
 `At a hearing on the crash that led to the collapse of the Key Bridge in Baltimore, investigators said the six construction workers might have survived if the police had warned them in time.`\
 https://nytimes.com/2025/11/18/us/baltimore-bridge-collapse.html

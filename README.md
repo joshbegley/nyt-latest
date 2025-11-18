@@ -1,3 +1,11 @@
+**Texas Governor Declares Muslim Civil Rights Group a ‘Terrorist Organization’**\
+`Gov. Greg Abbott said the state could now take steps to shut down the Council on American-Islamic Relations. The group said the declaration had no basis in fact or law.`\
+https://nytimes.com/2025/11/18/us/texas-abbott-cair-terrorist-group-muslim.html
+
+**Japanese free-agent pitcher Tatsuya Imai posted to MLB teams: Source**\
+`The 27-year-old righty's negotiating window with MLB teams begins Wednesday morning.`\
+https://nytimes.com/athletic/6817594/2025/11/18/tatsuya-imai-mlb-free-agent/
+
 **Meta Did Not Violate Antitrust Law, Judge Rules**\
 `Meta’s acquisitions of Instagram and WhatsApp did not illegally stifle competition in social networking, a judge found, a major win for the tech giant.`\
 https://nytimes.com/2025/11/18/technology/meta-antitrust-monopoly-ruling.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/18/world/europe/poland-railway-sabotage-russia-ukrai
 **Barker, From Blue Hill Alums, Takes a Cafeteria-Style Approach in Bed-Stuy**\
 `A new agave and wine lounge, a tortilleria and cafe from the Corima team and more restaurant news.`\
 https://nytimes.com/2025/11/18/dining/nyc-restaurant-news.html
-
-**A Very Andy Baraghani Thanksgiving**\
-`His menu is bold and bright, both in flavor and color: pomegranate-glazed turkey, golden mashed potatoes, roasted winter squash with citrus chile crisp.`\
-https://nytimes.com/2025/11/18/dining/a-very-andy-baraghani-thanksgiving.html
-
-**Harrowing Video Shows Inmate’s Death and the Halting Effort to Save Him**\
-`Nurses and guards in Oneida County, N.Y., cracked wise and complained about poor equipment as Antwan Cater lay unconscious in a drug-induced seizure. His father has filed a lawsuit in the case.`\
-https://nytimes.com/2025/11/18/nyregion/oneida-jail-video-inmate-death-lawsuit.html
 
