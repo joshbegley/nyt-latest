@@ -1,4 +1,8 @@
-**Trump Family’s Business Ties to Saudi Arabia Raise Ethics Concerns**\
+**Red Light: What is going on with California's confusing NHL teams? Let us explain**\
+`Nothing is going how we expected for the Kings, Ducks or Sharks. Fortunately, our expert can help us make sense.`\
+https://nytimes.com/athletic/6816971/2025/11/18/nhl-kings-ducks-sharks-california-red-light-newsletter/
+
+**Trump Family’s Business Ties to Saudi Arabia Raise Ethics Worries**\
 `President Trump will host Crown Prince Mohammed bin Salman, Saudi Arabia’s de facto ruler, who oversees a major construction project that is in talks with the Trump family business.`\
 https://nytimes.com/2025/11/18/world/middleeast/trump-family-business-saudi-arabia.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/18/style/street-style-look-leopard-pants.html
 **Who's to blame for the Pelicans' dysfunction? Plus, scouting AJ Dybantsa**\
 `New Orleans and its franchise disarray takes front and center in John Hollinger's weekly spin through the NBA.`\
 https://nytimes.com/athletic/6815281/2025/11/18/aj-dybantsa-pelicans-warriors-nba/
-
-**The Growing Cost of Having Ties to Epstein**\
-`Larry Summers, a former Treasury secretary, is stepping back from public commitments. It’s the latest fallout for an associate of Jeffrey Epstein.`\
-https://nytimes.com/2025/11/18/business/dealbook/summers-ties-jeffrey-epstein.html
 
