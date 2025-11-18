@@ -1,3 +1,7 @@
+**Larry Summers to Step Back From Public Commitments Over Emails With Epstein**\
+`New emails showed that Dr. Summers, a former Harvard president, had stayed in touch with Jeffrey Epstein for years after Mr. Epstein faced sex trafficking charges.`\
+https://nytimes.com/2025/11/17/us/harvard-larry-summers-epstein.html
+
 **Trump Has the Power to Release the Epstein Files, With or Without Congress**\
 `The president has reversed himself and encouraged lawmakers to vote for compelling the Justice Department to turn over investigation documents, but he never really needed their approval.`\
 https://nytimes.com/2025/11/17/us/politics/trump-epstein-files-congress.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/17/us/politics/heritage-foundation-tucker-carlson-ni
 **How to watch Kansas State vs. Utah: Time, TV, streaming**\
 `Find out how to watch the Kansas State Wildcats play the Utah Utes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6815870/2025/11/17/how-to-watch-kansas-state-vs-no-13-utah-tv-channel-and-streaming-options-for-november-22/
-
-**How to watch Illinois vs. Wisconsin: Time, TV, streaming**\
-`Find out how to watch the Illinois Fighting Illini play the Wisconsin Badgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6815867/2025/11/17/how-to-watch-illinois-vs-wisconsin-tv-channel-and-streaming-options-for-november-22/
 
