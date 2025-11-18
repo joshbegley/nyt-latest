@@ -1,3 +1,7 @@
+**TAFC: Inside Nigeria's World Cup qualification implosion. Plus: USMNT's date with Ronaldo**\
+`Three managers, a threatened boycott and 'voodoo' allegations – how it all went so wrong for the World Cup regulars`\
+https://nytimes.com/athletic/6816514/2025/11/18/nigeria-world-cup-qualification-usmnt-ronaldo/
+
 **What makes a great women’s sports city? We ranked the top 10 in the U.S.**\
 `The Bay Area earned the top spot in our first-ever city ranking, and the No. 2 city might surprise you.`\
 https://nytimes.com/athletic/6807524/2025/11/18/womens-sports-cities-top-ranked-fans/
