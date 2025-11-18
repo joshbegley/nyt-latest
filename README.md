@@ -1,3 +1,7 @@
+**Live Count: The House Votes on Releasing the Epstein Files**\
+`See how every member voted.`\
+https://nytimes.com/interactive/2025/11/18/us/house-epstein-discharge-petition-vote.html
+
 **Poland Pins Railway Sabotage on Russian-Backed Ukrainians**\
 `Poland said two Ukrainians working with Russia were responsible for two devices on the train tracks of a main supply line to Ukraine, with one causing a minor explosion.`\
 https://nytimes.com/video/world/europe/100000010531335/poland-russia-train-tracks-railway.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/18/us/politics/trump-education-department.html
 **Federal Court Blocks Texas’ Republican-Friendly Congressional Map**\
 `The move by a three-judge panel dealt a blow to efforts by Texas Republicans and President Trump to flip Democratic seats in the state.`\
 https://nytimes.com/2025/11/18/us/politics/texas-map-ruling-redistricting.html
-
-**QB C.J. Stroud returns to practice, still must clear concussion protocol**\
-`If Stroud doesn't clear protocol, backup QB Davis Mills would start Thursday night against the Bills. `\
-https://nytimes.com/athletic/6817605/2025/11/18/texans-c-j-stroud-practice-concussion-bills/
 

@@ -1,3 +1,19 @@
+**Poland Pins Railway Sabotage on Russian-Backed Ukrainians**\
+`Poland said two Ukrainians working with Russia were responsible for two devices on the train tracks of a main supply line to Ukraine, with one causing a minor explosion.`\
+https://nytimes.com/video/world/europe/100000010531335/poland-russia-train-tracks-railway.html
+
+**Summer Walker, R&B’s Maestro of the Funny Side of Heartbreak**\
+`On “Finally Over It,” the singer and songwriter rolls her eyes and brings in like-minded cynics for tracks that recall the soulful sounds of the ’90s.`\
+https://nytimes.com/2025/11/18/arts/music/summer-walker-finally-over-it-review.html
+
+**What to Know About Trump’s Federal Crackdown, City by City**\
+`Charlotte and Raleigh in North Carolina became the latest cities to see federal forces move in. Here’s a rundown of what’s going on in each place.`\
+https://nytimes.com/2025/11/18/us/trump-immigration-raids.html
+
+**'I just don't think it's going to work': Falcons at crossroads after lost season, Penix injury**\
+`The latest episode of "The Athletic Football Show" dives into Atlanta's self-inflicted problems.`\
+https://nytimes.com/athletic/6816392/2025/11/18/atlanta-falcons-crossroads-michael-penix-jr-injury/
+
 **Obsessed With ‘Wicked’? Try 9 More Songs From Beloved Musicals.**\
 `If you’ve got Cynthia Erivo and Ariana Grande on repeat, add these songs from “Rent,” “Hadestown,” “13” and more to the rotation.`\
 https://nytimes.com/2025/11/18/arts/music/amplifier-newsletter-wicked-musical-songs.html
@@ -17,20 +33,4 @@ https://nytimes.com/2025/11/18/us/politics/texas-map-ruling-redistricting.html
 **QB C.J. Stroud returns to practice, still must clear concussion protocol**\
 `If Stroud doesn't clear protocol, backup QB Davis Mills would start Thursday night against the Bills. `\
 https://nytimes.com/athletic/6817605/2025/11/18/texans-c-j-stroud-practice-concussion-bills/
-
-**Texas Governor Declares Muslim Civil Rights Group a ‘Terrorist Organization’**\
-`Gov. Greg Abbott said the state could now take steps to shut down the Council on American-Islamic Relations. The group said the declaration had no basis in fact or law.`\
-https://nytimes.com/2025/11/18/us/texas-abbott-cair-terrorist-group-muslim.html
-
-**Japanese free-agent pitcher Tatsuya Imai posted to MLB teams: Source**\
-`The 27-year-old righty's negotiating window with MLB teams begins Wednesday morning.`\
-https://nytimes.com/athletic/6817594/2025/11/18/tatsuya-imai-mlb-free-agent/
-
-**Meta Did Not Violate Antitrust Law, Judge Rules**\
-`Meta’s acquisitions of Instagram and WhatsApp did not illegally stifle competition in social networking, a judge found, a major win for the tech giant.`\
-https://nytimes.com/2025/11/18/technology/meta-antitrust-monopoly-ruling.html
-
-**Faster Communication Could Have Saved Bridge Workers’ Lives, Safety Agency Says**\
-`At a hearing on the crash that led to the collapse of the Key Bridge in Baltimore, investigators said the six construction workers might have survived if the police had warned them in time.`\
-https://nytimes.com/2025/11/18/us/baltimore-bridge-collapse.html
 
