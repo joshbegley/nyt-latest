@@ -1,3 +1,11 @@
+**Havertz suffers 'small' injury setback, Nagelsmann says**\
+`Nagelsmann said he expects Havertz to return before the end of the year.`\
+https://nytimes.com/athletic/6817701/2025/11/18/kai-havertz-injury-setback-arsenal-germany/
+
+**President Trump Brushes Off Question on Khashoggi Murder**\
+`President Trump brushed aside a reporter’s question about the role Saudi Arabia’s crown prince, Mohammed bin Salman, played in the 2018 killing of the Washington Post journalist Jamal Khashoggi, during an Oval Office meeting on Tuesday.`\
+https://nytimes.com/video/us/politics/100000010531416/khashoggi-trump-saudi-crown-prince.html
+
 **Super Bowl odds: Eagles are back where they started the season**\
 `After beginning the season as favorites to win the Super Bowl, the Philadelphia Eagles have returned to the top of the NFL odds board.`\
 https://nytimes.com/athletic/6817754/2025/11/18/super-bowl-odds-philadelphia-eagles/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6817893/2025/11/18/rangers-vs-golden-knights-stream
 **How to watch Pistons vs. Hawks: Time, TV, streaming**\
 `Find out how to watch the Detroit Pistons play the Atlanta Hawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6817892/2025/11/18/pistons-vs-hawks-stream-how-to-watch-nov-18/
-
-**How to watch Islanders vs. Stars: Time, TV, streaming**\
-`Find out how to watch the New York Islanders play the Dallas Stars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6817888/2025/11/18/islanders-vs-stars-stream-how-to-watch-nov-18/
-
-**How to watch Mammoth vs. Sharks: Time, TV, streaming**\
-`Find out how to watch the Utah Mammoth play the San Jose Sharks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6817886/2025/11/18/mammoth-vs-sharks-stream-how-to-watch-nov-18/
 
