@@ -16,7 +16,7 @@ https://nytimes.com/2025/11/18/crosswords/spelling-bee-forum.html
 
 **House to Vote on Release of Epstein Files**\
 `The House of Representatives was expected to vote on a bipartisan bill that would make public all files related to Jeffrey Epstein. President Trump, who had long resisted the release, directed Republicans to back the bill.`\
-https://nytimes.com/video/us/politics/100000010530038/trump-epstein-republicans-vote.html
+https://nytimes.com/video/us/politics/trump-epstein-republicans-vote.html
 
 **How to watch Washington vs. UCLA: Time, TV, streaming**\
 `Find out how to watch the Washington Huskies play the UCLA Bruins, with time, TV channel and streaming information.`\
