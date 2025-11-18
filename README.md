@@ -1,3 +1,7 @@
+**England's Wiegman on Earps' book: 'Someone else’s reality can be different'**\
+`Earps appeared to criticise Wiegman’s decision to make Hannah Hampton her No 1 goalkeeper in her autobiography published this month.`\
+https://nytimes.com/athletic/6816613/2025/11/18/sarina-wiegman-mary-earps-england/
+
 **Ronaldo expected to attend White House meeting as Trump hosts Saudi Prince MBS**\
 `Ronaldo's appearance in Washington, D.C., will mark his first known return to the U.S. in over a decade`\
 https://nytimes.com/athletic/6816004/2025/11/18/cristiano-ronaldo-white-house-meeting-president-trump-mbs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6783439/2025/11/18/soccer-100-athletic-harper-colli
 **The 10 best things I saw in college football recruiting over the weekend**\
 `Devin Fitzgerald, a Notre Dame commit and the son of former NFL star Larry Fitzgerald, is having a standout senior season.`\
 https://nytimes.com/athletic/6815351/2025/11/18/college-football-recruiting-thoughts/
-
-**Packers coach Matt LaFleur adds to complaints about MetLife turf**\
-`LaFleur's comments added to a long list of complaints surrounding the MetLife Stadium playing surface.`\
-https://nytimes.com/athletic/6815805/2025/11/18/packers-matt-lafleur-metlife-turf-complaints/
 
