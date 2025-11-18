@@ -1,3 +1,43 @@
+**How to watch Kansas State vs. Utah: Time, TV, streaming**\
+`Find out how to watch the Kansas State Wildcats play the Utah Utes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815870/2025/11/17/kansas-state-vs-utah-stream-how-to-watch-nov-22/
+
+**How to watch Illinois vs. Wisconsin: Time, TV, streaming**\
+`Find out how to watch the Illinois Fighting Illini play the Wisconsin Badgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815867/2025/11/17/illinois-vs-wisconsin-stream-how-to-watch-nov-22/
+
+**How to watch Michigan vs. Maryland: Time, TV, streaming**\
+`Find out how to watch the Michigan Wolverines play the Maryland Terrapins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815865/2025/11/17/michigan-vs-maryland-stream-how-to-watch-nov-22/
+
+**How to watch Tennessee vs. Florida: Time, TV, streaming**\
+`Find out how to watch the Tennessee Volunteers play the Florida Gators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815859/2025/11/17/tennessee-vs-florida-stream-how-to-watch-nov-22/
+
+**How to watch Nebraska vs. Penn State: Time, TV, streaming**\
+`Find out how to watch the Nebraska Cornhuskers play the Penn State Nittany Lions, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815858/2025/11/17/nebraska-vs-penn-state-stream-how-to-watch-nov-22/
+
+**How to watch North Texas vs. Rice: Time, TV, streaming**\
+`Find out how to watch the North Texas Mean Green play the Rice Owls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815854/2025/11/17/north-texas-vs-rice-stream-how-to-watch-nov-22/
+
+**How to watch Coastal Carolina vs. South Carolina: Time, TV, streaming**\
+`Find out how to watch the Coastal Carolina Chanticleers play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815847/2025/11/17/coastal-carolina-vs-south-carolina-stream-how-to-watch-nov-22/
+
+**How to watch Tulane vs. Temple: Time, TV, streaming**\
+`Find out how to watch the Tulane Green Wave play the Temple Owls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815841/2025/11/17/tulane-vs-temple-stream-how-to-watch-nov-22/
+
+**How to watch Pittsburgh vs. Georgia Tech: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Panthers play the Georgia Tech Yellow Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6815833/2025/11/17/pittsburgh-vs-georgia-tech-stream-how-to-watch-nov-22/
+
+**UC Investments puts $2.4 billion Big Ten deal on hold amid pushback from Michigan and USC**\
+`Michigan and USC's public opposition led to UC Investments holding off on the potential $2.4 billion deal with the Big Ten.`\
+https://nytimes.com/athletic/6815788/2025/11/17/uc-investments-puts-2-4-billion-big-ten-deal-on-hold-amid-pushback-from-michigan-and-usc/
+
 **C.D.C. Links Measles Outbreaks in Multiple States for the First Time**\
 `If the outbreaks cannot be extinguished by January, the anniversary of the first cases in Texas, the United States will lose what is known as “elimination status” as determined by the World Health Organization.`\
 https://nytimes.com/2025/11/17/health/measles-us-elimination-status-outbreaks.html
