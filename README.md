@@ -1,3 +1,23 @@
+**Jon Humble: An 'incredible human' who made people 'feel like they belong'**\
+`The 'glue' that held the Manchester United women's team together, kit man Humble's death at 44 has left colleagues past and present bereft`\
+https://nytimes.com/athletic/6804245/2025/11/18/jon-humble-manchester-united-liverpool-kit-man/
+
+**What is Nottingham Forest's pathway out of the relegation zone?**\
+`Manager Sean Dyche must navigate some challenging fixtures, and some must-win games, in the weeks ahead `\
+https://nytimes.com/athletic/6804828/2025/11/18/nottingham-forest-pathway-to-safety/
+
+**Why Crystal Palace's lack of goals from midfield is a feature not a bug**\
+`Oliver Glasner's tactical plan requires discipline from his midfielders – making them adventurous might cause the entire system to collapse`\
+https://nytimes.com/athletic/6814374/2025/11/18/crystal-palaces-midfield-lack-of-goals-design-tactics/
+
+**Aston Villa's long-range scoring success - and why it could be a worry**\
+`Villa scored five successive Premier League goals from outside the box before the international break. Is it sustainable?`\
+https://nytimes.com/athletic/6791822/2025/11/18/aston-villa-premier-league-long-range-goals/
+
+**Unfulfilled promises, an airport stand-off and 'voodoo' - how Nigeria's World Cup dream died**\
+`A chaotic qualifying campaign involved three different head coaches and a financial dispute that led to players boycotting training`\
+https://nytimes.com/athletic/6811561/2025/11/18/how-nigeria-world-cup-dream-died/
+
 **Gael Clichy interview: How Wenger, Guardiola and Henry fired his coaching ambition**\
 `The former Arsenal and Manchester City defender is ready for his first managerial role after leaving his role with the France Under-21s`\
 https://nytimes.com/athletic/6807413/2025/11/18/clichy-interview-wenger-guardiola-henry/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6806999/2025/11/18/real-madrid-kylian-mbappe-scorin
 **Germany have confirmed their World Cup place but they are not where they are supposed to be**\
 `After Euro 2024 it was hoped this team would evolve and become a force for 2026. But that feels a long way off right now`\
 https://nytimes.com/athletic/6815519/2025/11/18/germany-world-cup-2026-qualification/
-
-**The team from Africa playing in Spain: 'We have Christians, Muslims and Jews sitting together in the stands'**\
-`Ceuta - from the autonomous Spanish city of the same name - are the only team from the African mainland playing in a European league`\
-https://nytimes.com/athletic/6783258/2025/11/18/ceuta-la-liga-africa-promotion/
-
-**After a poor run, change is coming at Newcastle - but what will it look like?**\
-`Newcastle's fluctuating form has given Eddie How much to ponder over the international break`\
-https://nytimes.com/athletic/6803760/2025/11/18/newcastle-change-international-break-howe-pressure/
-
-**Cole Palmer's celebration trademark: Have others done the same? Will it become more common?**\
-`Cole Palmer's decision to trademark his celebration has led to a series of other questions`\
-https://nytimes.com/athletic/6801096/2025/11/18/cole-palmer-celebration-trademark-kylian-mbappe-cristiano-ronaldo/
-
-**Freddie Potts: The boyhood West Ham fan 'who has what it takes to be captain'**\
-`Freddie Potts has broken into the West Ham first-team, but it is the latest step in a journey that started at the age of six`\
-https://nytimes.com/athletic/6807292/2025/11/18/freddie-potts-west-ham-profile/
-
-**Tanzania, a Nation Known for Peace, Is Rocked by Deadly Protests**\
-`Post-election violence has tarnished the country’s reputation for stability, and the crackdown may have backfired on the government, as officials in Washington call for a re-examination of U.S. ties.`\
-https://nytimes.com/2025/11/18/world/africa/tanzania-election-violence.html
 
