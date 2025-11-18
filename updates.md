@@ -1,3 +1,7 @@
+**Giannis Antetokounmpo exits Bucks-Cavaliers game early with groin strain**\
+`Antetokounmpo grabbed his groin and hobbled up the floor just before exiting Monday's game. He had 14 points in 13 minutes.`\
+https://nytimes.com/athletic/6815913/2025/11/17/giannis-antetokounmpo-groin-injury-bucks-nba/
+
 **Trump Has the Power to Release the Epstein Files, With or Without Congress**\
 `The president has reversed himself and encouraged lawmakers to vote for compelling the Justice Department to turn over investigation documents, but he never really needed their approval.`\
 https://nytimes.com/2025/11/17/us/politics/trump-epstein-files-congress.html
