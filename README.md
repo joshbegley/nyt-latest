@@ -1,3 +1,7 @@
+**Investigating a Recycling Disaster**\
+`We went to Nigeria, where recycling plants are extracting lead for use in American and European car batteries — at a terrible human cost.`\
+https://nytimes.com/2025/11/18/world/recycling-disaster-lead-nigeria-car-batteries-epstein.html
+
 **Eric Adams, Still the Mayor, Is Increasingly Out of Office**\
 `In the waning days of his term, Mayor Eric Adams is spending a significant portion of his time far from New York City.`\
 https://nytimes.com/2025/11/18/nyregion/eric-adams-trips-travel-uzbekistan-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6817754/2025/11/18/super-bowl-odds-philadelphia-eag
 **How to watch Grizzlies vs. Spurs: Time, TV, streaming**\
 `Find out how to watch the Memphis Grizzlies play the San Antonio Spurs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6817901/2025/11/18/grizzlies-vs-spurs-stream-how-to-watch-nov-18/
-
-**How to watch Celtics vs. Nets: Time, TV, streaming**\
-`Find out how to watch the Boston Celtics play the Brooklyn Nets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6817902/2025/11/18/celtics-vs-nets-stream-how-to-watch-nov-18/
 
