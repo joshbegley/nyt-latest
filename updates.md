@@ -1,3 +1,23 @@
+**Cavaliers fined $100,000 for sitting All-Stars Mitchell and Mobley**\
+`The league determined that the Cavaliers violated the league's Player Participation Policy by sitting their two All-Stars due to "rest." `\
+https://nytimes.com/athletic/6818294/2025/11/18/cavaliers-donovan-mitchell-evan-mobley-fine/
+
+**‘Meet the Cartozians’ Review: Who Gets to Be White in America?**\
+`Talene Monahon’s captivating play uses a 1925 court decision to explore what identity means to Armenians here (a certain reality TV star included).`\
+https://nytimes.com/2025/11/18/theater/meet-the-cartozians-review.html
+
+**Phillies protect 3 prospects from Rule 5 draft: What you need to know**\
+`Here is an overview of the three prospects, and a look at whom the Phillies chose not to protect.`\
+https://nytimes.com/athletic/6815755/2025/11/18/phillies-rule-5-draft-painter-rincones-mcfarlane/
+
+**D-III Scranton makes history with shocking win over Pitt**\
+`Scranton became the first D-III women's basketball program to defeat a power-conference program.`\
+https://nytimes.com/athletic/6818126/2025/11/18/d-iii-scranton-history-pitt-upset/
+
+**Football agent Jonathan Barnett under UK rape investigation**\
+`Barnett's lawyers have filed a declaration in an attempt to get the civil complaint against the agent in the U.S. dismissed.`\
+https://nytimes.com/athletic/6818240/2025/11/18/jonathan-barnett-rape-investigation-uk/
+
 **Orlando Pride VP Haley Carter stepping down after 3 seasons**\
 `Under Carter's tenure, the club won both the NWSL Shield and the NWSL Championship during a historic 2024 season.`\
 https://nytimes.com/athletic/6818264/2025/11/18/haley-carter-orlando-pride-stepping-down/
