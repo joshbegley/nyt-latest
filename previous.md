@@ -1,40 +1,40 @@
-**Recycling Lead for U.S. Car Batteries Is Poisoning People**\
-`We documented the toxic fallout of a green technology.`\
-https://nytimes.com/interactive/2025/11/18/world/africa/lead-poisoning-car-battery.html
+**House Is Expected to Vote on Tuesday to Release Epstein Files**\
+`Ahead of what was likely to be a unanimous House vote that Republican leaders had toiled to avoid, G.O.P. lawmakers embraced the Epstein transparency bill.`\
+https://nytimes.com/2025/11/18/us/politics/house-is-expected-to-vote-on-tuesday-to-release-epstein-files.html
 
-**Florian Wirtz plays with swagger for Germany - can Liverpool benefit?**\
-`The Germany midfielder played with confidence as he provided two excellent assists in the 6-0 win over Slovakia `\
-https://nytimes.com/athletic/6815560/2025/11/18/florian-wirtz-plays-with-swagger-for-germany-can-liverpool-benefit/
+**Who’s Afraid of Tucker Carlson? The Line Is Long.**\
+`The price of “no enemies on the right” is going up.`\
+https://nytimes.com/2025/11/18/opinion/tucker-carlson-trump-groypers-fuentes.html
 
-**A Night at the Museum**\
-`Would you want to have your own sleepover adventure at the American Museum of Natural History?`\
-https://nytimes.com/2025/11/18/learning/a-night-at-the-museum.html
+**How F. Murray Abraham Brought His House Back to Life**\
+`The actor’s collection includes tributes to art, his wife and a life onstage.`\
+https://nytimes.com/interactive/2025/11/18/realestate/2025-11-17-f-murray-abraham.html
 
-**She Knows What Gen Z Is Thinking**\
-`Callie Holtermann, who covers entertainment, internet culture and trends, combs TikTok — and her own conversations with friends — for story ideas.`\
-https://nytimes.com/2025/11/18/insider/gen-z-reporting.html
+**House Democrats Press for Vote to Bar Military Action in Venezuela**\
+`The effort would invoke the War Powers Act, which expedites action on measures limiting the president’s war-making authority. It faces long odds in the G.O.P.-led House.`\
+https://nytimes.com/2025/11/18/us/politics/house-democrats-press-for-vote-to-bar-military-action-in-venezuela.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/11/18/crosswords/spelling-bee-forum.html
+**Trump Will Host Saudi Crown Prince in Washington**\
+`The president is offering the crown prince fighter jets, a nuclear agreement and other deals as part of his efforts to collect investment and push forward on Middle East peace.`\
+https://nytimes.com/2025/11/18/us/politics/trump-saudi-crown-prince.html
 
-**House to Vote on Release of Epstein Files**\
-`The House of Representatives was expected to vote on a bipartisan bill that would make public all files related to Jeffrey Epstein. President Trump, who had long resisted the release, directed Republicans to back the bill.`\
-https://nytimes.com/video/us/politics/trump-epstein-republicans-vote.html
+**Who Will Win Hollywood’s Big Prize?**\
+`Paramount, Comcast and Netflix are preparing bids to buy all or part of Warner Bros. Discovery, a crown jewel of the industry.`\
+https://nytimes.com/2025/11/18/business/media/warner-discovery-paramount-comcast-netflix.html
 
-**How to watch Washington vs. UCLA: Time, TV, streaming**\
-`Find out how to watch the Washington Huskies play the UCLA Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6816409/2025/11/18/washington-vs-ucla-stream-how-to-watch-nov-22/
+**What Are You Grateful for? Tell Us in Six Words.**\
+`We’re collecting responses for an upcoming newsletter.`\
+https://nytimes.com/2025/11/18/briefing/what-are-you-grateful-for-tell-us-in-six-words.html
 
-**Late Night Is Amused by Trump’s About-Face on the Epstein Files**\
-`“We have nothing to hide,” President Trump said about releasing the documents. Jimmy Kimmel shot back: “I have some bad news: There’s no ‘we.’ It’s just you, bro.”`\
-https://nytimes.com/2025/11/18/arts/television/late-night-trump-epstein-files.html
+**The Democrat Who Split MAGA Over the Epstein Files**\
+`Ro Khanna argues that even though there is a risk in releasing the documents, it still needs to happen.`\
+https://nytimes.com/2025/11/18/opinion/ro-khanna-epstein-files-trump.html
 
-**Word of the Day: perpetuate**\
-`This word has appeared in 108 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/11/18/learning/word-of-the-day-perpetuate.html
+**Body Slams, Curated: Pro Wrestling Enters Its Museum Era**\
+`The over-the-top spectacle has been slicing into the art world, with gallery shows, performances and a forthcoming major exhibition.`\
+https://nytimes.com/2025/11/18/arts/design/professional-wrestling-art-drag.html
 
-**Full Time: NWSL rivals meet in championship**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6816338/2025/11/18/nwsl-championship-preview-full-time/
+**A Little Corner of Estonia in Manhattan**\
+`A street sign will be unveiled on 34th Street to honor a long-serving diplomat. For years, he was an emissary without a country.`\
+https://nytimes.com/2025/11/18/nyregion/estonian-diplomat-street-naming.html
 

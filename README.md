@@ -1,3 +1,7 @@
+**Alcaraz 'heartbroken' to miss Davis Cup with hamstring injury**\
+`Alcaraz, the world No. 1, suffered the injury towards the end of the first set of the ATP Finals final against Jannik Sinner on Sunday.`\
+https://nytimes.com/athletic/6816505/2025/11/18/carlos-alcaraz-injury-davis-cup/
+
 **House Is Expected to Vote on Tuesday to Release Epstein Files**\
 `Ahead of what was likely to be a unanimous House vote that Republican leaders had toiled to avoid, G.O.P. lawmakers embraced the Epstein transparency bill.`\
 https://nytimes.com/2025/11/18/us/politics/house-is-expected-to-vote-on-tuesday-to-release-epstein-files.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/18/opinion/ro-khanna-epstein-files-trump.html
 **Body Slams, Curated: Pro Wrestling Enters Its Museum Era**\
 `The over-the-top spectacle has been slicing into the art world, with gallery shows, performances and a forthcoming major exhibition.`\
 https://nytimes.com/2025/11/18/arts/design/professional-wrestling-art-drag.html
-
-**A Little Corner of Estonia in Manhattan**\
-`A street sign will be unveiled on 34th Street to honor a long-serving diplomat. For years, he was an emissary without a country.`\
-https://nytimes.com/2025/11/18/nyregion/estonian-diplomat-street-naming.html
 
