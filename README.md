@@ -1,3 +1,7 @@
+**NFL playoff picture after Week 11: Broncos bust Chiefs' division hopes; Rams the NFC's best?**\
+`The Broncos and Rams look to be in control out West. Is it time to take the Bears' playoff hopes seriously? `\
+https://nytimes.com/athletic/6794845/2025/11/17/nfl-playoff-picture-week-11-broncos-chiefs-update/
+
 **Injured Cam Skattebo shows up to WWE match, fights wrestlers**\
 `It was Skattebo's second recent public appearance after suffering a dislocated ankle Oct. 26.`\
 https://nytimes.com/athletic/6816040/2025/11/17/cam-skattebo-wwe-fight-monday-night-raw/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/17/us/politics/trump-epstein-files-congress.html
 **How to watch Western Kentucky vs. LSU: Time, TV, streaming**\
 `Find out how to watch the Western Kentucky Hilltoppers play the LSU Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6815985/2025/11/17/western-kentucky-vs-lsu-stream-how-to-watch-nov-22/
-
-**How to watch Arizona State vs. Colorado: Time, TV, streaming**\
-`Find out how to watch the Arizona State Sun Devils play the Colorado Buffaloes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6815969/2025/11/17/arizona-state-vs-colorado-stream-how-to-watch-nov-22/
 
