@@ -1,3 +1,7 @@
+**Red Bulls' new head of soccer: On Michael Bradley's coaching candidacy, Timo Werner**\
+`Bradley won an MLS Next Pro title in short order. Could he take charge as Julian de Guzman's first big call as RBNY's chief?`\
+https://nytimes.com/athletic/6816164/2025/11/18/red-bulls-michael-bradley-coaching-candidacy-timo-werner/
+
 **Outage at Cloudflare Disrupts Parts of the Internet**\
 `Services from Cloudflare, a software company, underpin thousands of websites.`\
 https://nytimes.com/2025/11/18/business/cloudflare-down-challenges-error.html
