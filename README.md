@@ -1,40 +1,40 @@
-**Jeju Air Crash Investigators to Hold Public Hearing as They Face Criticism**\
-`With the cause of the disaster in South Korea still unclear after nearly a year, victims’ families have questioned the credibility and impartiality of the inquiry board.`\
-https://nytimes.com/2025/11/18/world/asia/jeju-air-crash-boeing-south-korea-hearing.html
+**Ronaldo expected to attend White House meeting as Trump hosts Saudi Prince MBS**\
+`Ronaldo's appearance in Washington, D.C., will mark his first known return to the U.S. in over a decade`\
+https://nytimes.com/athletic/6816004/2025/11/18/cristiano-ronaldo-white-house-meeting-president-trump-mbs/
 
-**Jalen Duren is making an All-Star case as he powers Pistons to 10th straight win**\
-`We are witnessing a breakout for Detroit's center, who had 31 points and 15 rebounds on Monday against the Pacers.`\
-https://nytimes.com/athletic/6816196/2025/11/18/jalen-duren-pistons-winning-streak/
+**NBA weekly watch guide: Rockets-Cavs, Knicks-Mavs, LeBron's possible return**\
+`Here are the national TV games to look out for this week. Houston, Cleveland and San Antonio have two prime-time spots.`\
+https://nytimes.com/athletic/6815573/2025/11/18/lebron-return-lakers-kevin-durant-rockets-nba-schedule/
 
-**Mandel: The Big Ten got too big and is no longer a happy family — unlike its SEC counterpart**\
-`The Big Ten no longer has a cohesive identity — unlike its SEC counterpart. `\
-https://nytimes.com/athletic/6812124/2025/11/18/big-ten-conference-too-big-identity-private-equity/
+**Why More Pollution Could Be Coming for Wetlands**\
+`The Trump administration wants to strip federal protections from wetlands and streams. We explain how it could affect Americans.`\
+https://nytimes.com/2025/11/18/briefing/why-more-pollution-could-be-coming-for-wetlands.html
 
-**Five things to watch on Baseball Hall of Fame ballot: Is this the year for Beltrán, Jones?**\
-`We’ll find out in two months who will be propelled by this election onto a stage next July in Cooperstown, N.Y. Here's what to watch.`\
-https://nytimes.com/athletic/6815977/2025/11/18/baseball-hall-of-fame-2026-ballot-storylines/
+**Tigers mailbag: Gleyber Torres, free-agent bats and pitching needs**\
+`Answering reader questions on several key issues the Tigers face this offseason.`\
+https://nytimes.com/athletic/6815243/2025/11/18/tigers-mailbag-gleyber-torres-free-agent-bats-pitching/
 
-**TAFC: Inside Nigeria's World Cup qualification implosion. Plus: USMNT's date with Ronaldo**\
-`Three managers, a threatened boycott and 'voodoo' allegations – how it all went so wrong for the World Cup regulars`\
-https://nytimes.com/athletic/6816514/2025/11/18/nigeria-world-cup-qualification-usmnt-ronaldo/
+**Beecher on waivers: Why is the 2019 first-rounder out of favor, and could he get claimed?**\
+`Not so long ago, Beecher looked like he was shaping up to be a solid depth center for the Bruins.`\
+https://nytimes.com/athletic/6816088/2025/11/18/johnny-beecher-bruins-waivers-sturm/
 
-**Have your say: What is the top women's sports city in the U.S.?**\
-`The Athletic's staff tapped our Top 10 women's sports cities in the U.S. It's your turn to pick a No. 1, re-rank ours and call out a snub.`\
-https://nytimes.com/athletic/6814036/2025/11/18/top-womens-sports-city-us-ranking-poll/
+**Even in a loss, the Seahawks proved their defense is championship-caliber**\
+`Seattle's defense might have had its best performance of the season, considering the quality of opponent, on Sunday in L.A.`\
+https://nytimes.com/athletic/6815124/2025/11/18/seahawks-defense-rams-mike-macdonald-sean-mcvay/
 
-**What makes a great women’s sports city? We ranked the top 10 in the U.S.**\
-`The Bay Area earned the top spot in our first-ever city ranking, and the No. 2 city might surprise you.`\
-https://nytimes.com/athletic/6807524/2025/11/18/womens-sports-cities-top-ranked-fans/
+**Heisman straw poll: Jeremiyah Love climbs the rankings. Can he end the RB drought?**\
+`Recent history and this season's top QBs make it seem likely the Heisman running back drought will continue.`\
+https://nytimes.com/athletic/6815882/2025/11/18/jeremiyah-love-fernando-mendoza-heisman-straw-poll/
 
-**Why the 7-3 Bears can be dangerous in the playoff chase: 'We've been battled-tested'**\
-`Opportunistic defense? Reliable running game? Late-game magic? The Bears' strong start now sets up an intriguing finish. `\
-https://nytimes.com/athletic/6815599/2025/11/18/bears-ben-johnson-playoff-chase/
+**The Soccer 100: A celebration of the greatest players in the sport’s history**\
+`The Athletic is delighted to announce the release of The Soccer 100, profiling players from Pele to Puskas, Maradona to Messi`\
+https://nytimes.com/athletic/6783439/2025/11/18/soccer-100-athletic-harper-collins-released/
 
-**Why Quinnen Williams was Cowboys' most important player in their Monday night win**\
-`Dallas had a dominant defensive performance Monday night. Their next three games are against the Eagles, Chiefs and Lions.`\
-https://nytimes.com/athletic/6816452/2025/11/18/cowboys-quinnen-williams-defense-win-raiders/
+**The 10 best things I saw in college football recruiting over the weekend**\
+`Devin Fitzgerald, a Notre Dame commit and the son of former NFL star Larry Fitzgerald, is having a standout senior season.`\
+https://nytimes.com/athletic/6815351/2025/11/18/college-football-recruiting-thoughts/
 
-**Champions Classic watch guide: Michigan St.-Kentucky, Kansas-Duke at Madison Square Garden**\
-`Four blue-blooded college basketball programs share the Madison Square Garden marquee Tuesday night.`\
-https://nytimes.com/athletic/6815326/2025/11/18/kentucky-michigan-state-duke-kansas-how-to-watch/
+**Packers coach Matt LaFleur adds to complaints about MetLife turf**\
+`LaFleur's comments added to a long list of complaints surrounding the MetLife Stadium playing surface.`\
+https://nytimes.com/athletic/6815805/2025/11/18/packers-matt-lafleur-metlife-turf-complaints/
 
