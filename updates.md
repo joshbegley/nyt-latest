@@ -1,3 +1,11 @@
+**House to Vote on Release of Epstein Files**\
+`The House of Representatives was expected to vote on a bipartisan bill that would make public all files related to Jeffrey Epstein. President Trump, who had long resisted the release, directed Republicans to back the bill.`\
+https://nytimes.com/video/us/politics/100000010530038/trump-epstein-republicans-vote.html
+
+**How to watch Washington vs. UCLA: Time, TV, streaming**\
+`Find out how to watch the Washington Huskies play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6816409/2025/11/18/washington-vs-ucla-stream-how-to-watch-nov-22/
+
 **Late Night Is Amused by Trump’s About-Face on the Epstein Files**\
 `“We have nothing to hide,” President Trump said about releasing the documents. Jimmy Kimmel shot back: “I have some bad news: There’s no ‘we.’ It’s just you, bro.”`\
 https://nytimes.com/2025/11/18/arts/television/late-night-trump-epstein-files.html
