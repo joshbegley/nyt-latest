@@ -1,3 +1,7 @@
+**Recycling Lead for U.S. Car Batteries Is Poisoning People**\
+`We documented the toxic fallout of a green technology.`\
+https://nytimes.com/interactive/2025/11/18/world/africa/lead-poisoning-car-battery.html
+
 **House to Vote on Release of Epstein Files**\
 `The House of Representatives was expected to vote on a bipartisan bill that would make public all files related to Jeffrey Epstein. President Trump, who had long resisted the release, directed Republicans to back the bill.`\
 https://nytimes.com/video/us/politics/trump-epstein-republicans-vote.html
