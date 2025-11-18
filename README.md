@@ -1,3 +1,7 @@
+**Poland Pins Railway Sabotage on Russian-Backed Ukrainians**\
+`Poland said two Ukrainians working with Russia were responsible for two devices on the train tracks of a main supply line to Ukraine, with one causing a minor explosion.`\
+https://nytimes.com/video/world/europe/100000010531335/poland-russia-train-tracks-railway.html
+
 **Summer Walker, R&B’s Maestro of the Funny Side of Heartbreak**\
 `On “Finally Over It,” the singer and songwriter rolls her eyes and brings in like-minded cynics for tracks that recall the soulful sounds of the ’90s.`\
 https://nytimes.com/2025/11/18/arts/music/summer-walker-finally-over-it-review.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/18/us/politics/texas-map-ruling-redistricting.html
 **QB C.J. Stroud returns to practice, still must clear concussion protocol**\
 `If Stroud doesn't clear protocol, backup QB Davis Mills would start Thursday night against the Bills. `\
 https://nytimes.com/athletic/6817605/2025/11/18/texans-c-j-stroud-practice-concussion-bills/
-
-**Texas Governor Declares Muslim Civil Rights Group a ‘Terrorist Organization’**\
-`Gov. Greg Abbott said the state could now take steps to shut down the Council on American-Islamic Relations. The group said the declaration had no basis in fact or law.`\
-https://nytimes.com/2025/11/18/us/texas-abbott-cair-terrorist-group-muslim.html
 
