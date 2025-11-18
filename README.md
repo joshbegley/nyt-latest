@@ -1,3 +1,7 @@
+**Man charged with murder in shooting of 'Last Chance U' football coach John Beam**\
+`Cedric Irving Jr. has been charged with murder in the shooting death of the legendary Bay Area junior college football coach.`\
+https://nytimes.com/athletic/6815862/2025/11/17/john-beam-shooting-suspect-charged/
+
 **NFL playoff picture after Week 11: Broncos bust Chiefs' division hopes; Rams the NFC's best?**\
 `The Broncos and Rams look to be in control out West. Is it time to take the Bears' playoff hopes seriously? `\
 https://nytimes.com/athletic/6794845/2025/11/17/nfl-playoff-picture-week-11-broncos-chiefs-update/
@@ -14,7 +18,7 @@ https://nytimes.com/2025/11/17/us/politics/trump-mcdonalds-affordability-inflati
 `The judge said the case “raises important questions concerning the use of the state’s military forces for domestic law enforcement purposes.”`\
 https://nytimes.com/2025/11/17/us/politics/national-guard-memphis-ruling.html
 
-**Scottie Barnes leads Raptors to another victory with walk-off block against Hornets**\
+**Scottie Barnes leads Raptors to victory with walk-off block against Hornets**\
 `"It was a high-level play," Raptors coach Darko Rajaković said.`\
 https://nytimes.com/athletic/6816072/2025/11/17/scottie-barnes-walk-off-block-hornets/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/17/us/harvard-larry-summers-epstein.html
 **Trump Has the Power to Release the Epstein Files, With or Without Congress**\
 `The president has reversed himself and encouraged lawmakers to vote for compelling the Justice Department to turn over investigation documents, but he never really needed their approval.`\
 https://nytimes.com/2025/11/17/us/politics/trump-epstein-files-congress.html
-
-**How to watch Western Kentucky vs. LSU: Time, TV, streaming**\
-`Find out how to watch the Western Kentucky Hilltoppers play the LSU Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6815985/2025/11/17/western-kentucky-vs-lsu-stream-how-to-watch-nov-22/
 
