@@ -1,3 +1,7 @@
+**Heritage Foundation Board Member Resigns Over Video Defending Carlson**\
+`The member, Robert P. George, said the think tank’s president had refused to retract his video defending Tucker Carlson’s friendly interview with an openly antisemitic white supremacist.`\
+https://nytimes.com/2025/11/17/us/politics/heritage-foundation-tucker-carlson-nick-fuentes.html
+
 **How to watch Kansas State vs. Utah: Time, TV, streaming**\
 `Find out how to watch the Kansas State Wildcats play the Utah Utes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6815870/2025/11/17/kansas-state-vs-utah-stream-how-to-watch-nov-22/
