@@ -1,3 +1,11 @@
+**The LPGA's TV deal is getting better. The new commissioner explains why, the Golf Saudi deal, more**\
+`LPGA expects its broadcasts to be of higher quality next year, and will utilize Golf Channel and CNBC to be carried live.`\
+https://nytimes.com/athletic/6816830/2025/11/18/lpga-ceo-craig-kessler-broadcast-changes-golf-saudi/
+
+**Canucks stock watch: Who's trending up, and down, through the first 21 games?**\
+`A quarter of the way into the 2025-26 NHL season, it's hard to identify what's meant to be the Canucks' identity.`\
+https://nytimes.com/athletic/6803508/2025/11/18/canucks-kiefer-sherwood-filip-hronek-stock-watch/
+
 **Red Light: What is going on with California's confusing NHL teams? Let us explain**\
 `Nothing is going how we expected for the Kings, Ducks or Sharks. Fortunately, our expert can help us make sense.`\
 https://nytimes.com/athletic/6816971/2025/11/18/nhl-kings-ducks-sharks-california-red-light-newsletter/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/18/dining/easy-thanksgiving-side-dishes.html
 **Self-Driving Taxis Are Catching On. Are You Ready?**\
 `With the arrival of Amazon’s Zoox robot taxi in San Francisco to compete with Waymo, autonomous services are gaining momentum. But there are pros and cons.`\
 https://nytimes.com/2025/11/18/technology/personaltech/zoox-driverless-taxis-san-francisco.html
-
-**Leopard Pants for a City Stroll**\
-`Against an ensemble’s dark shades, a bold animal print jumped out.`\
-https://nytimes.com/2025/11/18/style/street-style-look-leopard-pants.html
-
-**Who's to blame for the Pelicans' dysfunction? Plus, scouting AJ Dybantsa**\
-`New Orleans and its franchise disarray takes front and center in John Hollinger's weekly spin through the NBA.`\
-https://nytimes.com/athletic/6815281/2025/11/18/aj-dybantsa-pelicans-warriors-nba/
 

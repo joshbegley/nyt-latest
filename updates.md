@@ -1,3 +1,11 @@
+**The LPGA's TV deal is getting better. The new commissioner explains why, the Golf Saudi deal, more**\
+`LPGA expects its broadcasts to be of higher quality next year, and will utilize Golf Channel and CNBC to be carried live.`\
+https://nytimes.com/athletic/6816830/2025/11/18/lpga-ceo-craig-kessler-broadcast-changes-golf-saudi/
+
+**Canucks stock watch: Who's trending up, and down, through the first 21 games?**\
+`A quarter of the way into the 2025-26 NHL season, it's hard to identify what's meant to be the Canucks' identity.`\
+https://nytimes.com/athletic/6803508/2025/11/18/canucks-kiefer-sherwood-filip-hronek-stock-watch/
+
 **Red Light: What is going on with California's confusing NHL teams? Let us explain**\
 `Nothing is going how we expected for the Kings, Ducks or Sharks. Fortunately, our expert can help us make sense.`\
 https://nytimes.com/athletic/6816971/2025/11/18/nhl-kings-ducks-sharks-california-red-light-newsletter/
