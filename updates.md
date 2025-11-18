@@ -1,3 +1,15 @@
+**The New York Times in Print for Tuesday, Nov. 18, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/18/todays-new-york-times
+
+**Poor Countries Got $1 Trillion From China. So Did Rich Ones.**\
+`Beijing has used loans to developing nations to expand its influence, but a new study says no country has received more Chinese financing than the United States.`\
+https://nytimes.com/2025/11/18/business/china-loans-financing.html
+
+**Nothing Succeeds With Trump Quite Like Success**\
+`Ukraine understands this. Europe should get on board with it, too.`\
+https://nytimes.com/2025/11/18/opinion/trump-ukraine-europe.html
+
 **Connections: Sports Edition Coach: Hints for Nov. 18, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6814134/2025/11/18/connections-sports-edition-hints-for-nov-18-2025/
