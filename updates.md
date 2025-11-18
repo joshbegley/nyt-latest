@@ -1,3 +1,11 @@
+**Ecuador Votes No to Hosting U.S. Military Base**\
+`A vote on Sunday rejected the expansion of a foreign military presence. It came as the U.S. military’s campaign in waters near Latin America has been roiling the region.`\
+https://nytimes.com/2025/11/18/world/americas/ecuador-us-military-base-vote-trump.html
+
+**Cowboys' Pickens, Lamb didn't start vs. Raiders due to 'in-house issue'**\
+`Owner Jerry Jones called it an “in-house issue” that “had to do with meeting type discipline” and that they “had a late problem there.”`\
+https://nytimes.com/athletic/6817254/2025/11/18/cowboys-ceedee-lamb-george-pickens-jerry-jones-mnf/
+
 **Vaulks wins FIFPRO award for work around mental health in football**\
 `“It gives me an even louder voice, so that’s my main delight with winning it," Vaulks told The Athletic.`\
 https://nytimes.com/athletic/6807303/2025/11/18/will-vaulks-fifpro-player-voice-award/
