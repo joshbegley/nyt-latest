@@ -1,3 +1,7 @@
+**Trump’s Border Czar Threatens More Immigrant Arrests in New York City**\
+`Thomas Homan said that additional federal agents would descend on the city if it did not help with President Trump’s deportation campaign.`\
+https://nytimes.com/2025/11/18/nyregion/border-czar-more-immigrant-arrests-nyc.html
+
 **Kevin Brown commits to West Virginia, sets couch on fire in Mountaineer fashion**\
 `Brown made his appearance on "The Pat McAfee Show" memorable by participating in a West Virginia tradition.`\
 https://nytimes.com/athletic/6818344/2025/11/18/kevin-brown-recruit-commits-west-virginia-burning-couch/

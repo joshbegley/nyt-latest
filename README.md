@@ -1,3 +1,7 @@
+**Yankees protect Spencer Jones from Rule 5 draft despite no clear path to majors**\
+`But what’s next for Jones, whose shown power on par with Aaron Judge but swing-and-miss tendencies of a late-career Joey Gallo?`\
+https://nytimes.com/athletic/6815761/2025/11/18/spencer-jones-yankees-rule-5-draft/
+
 **Trump’s Border Czar Threatens More Immigrant Arrests in New York City**\
 `Thomas Homan said that additional federal agents would descend on the city if it did not help with President Trump’s deportation campaign.`\
 https://nytimes.com/2025/11/18/nyregion/border-czar-more-immigrant-arrests-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6818126/2025/11/18/d-iii-scranton-history-pitt-upse
 **Football agent Jonathan Barnett under UK rape investigation**\
 `Barnett's lawyers have filed a declaration in an attempt to get the civil complaint against the agent in the U.S. dismissed.`\
 https://nytimes.com/athletic/6818240/2025/11/18/jonathan-barnett-rape-investigation-uk/
-
-**Orlando Pride VP Haley Carter stepping down after 3 seasons**\
-`Under Carter's tenure, the club won both the NWSL Shield and the NWSL Championship during a historic 2024 season.`\
-https://nytimes.com/athletic/6818264/2025/11/18/haley-carter-orlando-pride-stepping-down/
 

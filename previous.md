@@ -1,3 +1,7 @@
+**Trump’s Border Czar Threatens More Immigrant Arrests in New York City**\
+`Thomas Homan said that additional federal agents would descend on the city if it did not help with President Trump’s deportation campaign.`\
+https://nytimes.com/2025/11/18/nyregion/border-czar-more-immigrant-arrests-nyc.html
+
 **Kevin Brown commits to West Virginia, sets couch on fire in Mountaineer fashion**\
 `Brown made his appearance on "The Pat McAfee Show" memorable by participating in a West Virginia tradition.`\
 https://nytimes.com/athletic/6818344/2025/11/18/kevin-brown-recruit-commits-west-virginia-burning-couch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6818240/2025/11/18/jonathan-barnett-rape-investigat
 **Orlando Pride VP Haley Carter stepping down after 3 seasons**\
 `Under Carter's tenure, the club won both the NWSL Shield and the NWSL Championship during a historic 2024 season.`\
 https://nytimes.com/athletic/6818264/2025/11/18/haley-carter-orlando-pride-stepping-down/
-
-**Robertson dedicates Scotland WC qualification to 'my mate' Jota**\
-`Robertson said he and Jota had "always discussed" the prospect of playing at the 2026 World Cup, having both missed the 2022 edition.`\
-https://nytimes.com/athletic/6818349/2025/11/18/andy-robertson-scotland-diogo-jota/
 
