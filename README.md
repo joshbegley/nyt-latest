@@ -1,3 +1,7 @@
+**Trump Issues Mixed Messages About Military Action Against Venezuela**\
+`The president said he has not ruled out putting U.S. forces on the ground but signaled for a second day running that he could be open to talking to Nicolás Maduro, Venezuela’s leader.`\
+https://nytimes.com/2025/11/17/us/politics/trump-venezuela-maduro.html
+
 **C.D.C. Links Measles Outbreaks in Multiple States for the First Time**\
 `If the outbreaks cannot be extinguished by January, the anniversary of the first cases in Texas, the United States will lose what is known as “elimination status” as determined by the World Health Organization.`\
 https://nytimes.com/2025/11/17/health/measles-us-elimination-status-outbreaks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/17/briefing/the-un-security-council-backs-trumps-gaz
 **What Is Botulism?**\
 `The life-threatening illness is a continuing threat. Here’s what you need to know.`\
 https://nytimes.com/2025/11/17/well/what-is-botulism.html
-
-**Cowboys pay tribute to Marshawn Kneeland ahead of Monday Night Football matchup**\
-`The team prepared a locker for their late teammate on Monday night in Las Vegas.`\
-https://nytimes.com/athletic/6815637/2025/11/17/cowboys-tribute-marshawn-kneeland-monday-night-football/
 
