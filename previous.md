@@ -1,3 +1,15 @@
+**Vaulks wins FIFPRO award for work around mental health in football**\
+`“It gives me an even louder voice, so that’s my main delight with winning it," Vaulks told The Athletic.`\
+https://nytimes.com/athletic/6807303/2025/11/18/will-vaulks-fifpro-player-voice-award/
+
+**An Indigenous Ballet Was a Hit in the City. But in the Sami Heartland?**\
+`The Norwegian National Ballet was nervous about taking a new work about a Sami uprising to the area where the historical event took place.`\
+https://nytimes.com/2025/11/18/arts/dance/lahppon-lost-sami-norwegian-national-ballet.html
+
+**Pickens, Lamb didn't start vs. Raiders due to 'in-house issue'**\
+`Owner Jerry Jones called it an “in-house issue” that “had to do with meeting type discipline” and that they “had a late problem there.”`\
+https://nytimes.com/athletic/6817254/2025/11/18/cowboys-ceedee-lamb-george-pickens-jerry-jones-mnf/
+
 **Arsenal's Gabriel set for further tests, fears he will miss one to two months**\
 `The defender sustained the injury playing in a friendly for Brazil against Senegal on Saturday.`\
 https://nytimes.com/athletic/6813855/2025/11/18/gabriel-arsenal-thigh-injury/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6817304/2025/11/18/blues-vs-maple-leafs-stream-how-
 **How to watch Kraken vs. Red Wings: Time, TV, streaming**\
 `Find out how to watch the Seattle Kraken play the Detroit Red Wings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6817305/2025/11/18/kraken-vs-red-wings-stream-how-to-watch-nov-18/
-
-**How to watch Devils vs. Lightning: Time, TV, streaming**\
-`Find out how to watch the New Jersey Devils play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6817301/2025/11/18/devils-vs-lightning-stream-how-to-watch-nov-18/
-
-**Critical fantasy football insights for Week 12: Spotlight on Cousins after Penix hits IR**\
-`Brandon Funston and Jess Bryant look at usage metrics to give actionable Week 12 fantasy football advice. `\
-https://nytimes.com/athletic/6814487/2025/11/18/critical-insights-usage-fantasy-football-week-12/
-
-**Until Saturday: Why Franklin's a great hire by VT**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6817247/2025/11/18/james-franklin-virginia-tech-until-saturday/
 

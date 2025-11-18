@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6807303/2025/11/18/will-vaulks-fifpro-player-voice-
 `The Norwegian National Ballet was nervous about taking a new work about a Sami uprising to the area where the historical event took place.`\
 https://nytimes.com/2025/11/18/arts/dance/lahppon-lost-sami-norwegian-national-ballet.html
 
-**Pickens, Lamb didn't start vs. Raiders due to 'in-house issue'**\
+**Cowboys' Pickens, Lamb didn't start vs. Raiders due to 'in-house issue'**\
 `Owner Jerry Jones called it an “in-house issue” that “had to do with meeting type discipline” and that they “had a late problem there.”`\
 https://nytimes.com/athletic/6817254/2025/11/18/cowboys-ceedee-lamb-george-pickens-jerry-jones-mnf/
 
