@@ -1,3 +1,27 @@
+**Gael Clichy interview: How Wenger, Guardiola and Henry fired his coaching ambition**\
+`The former Arsenal and Manchester City defender is ready for his first managerial role after leaving his role with the France Under-21s`\
+https://nytimes.com/athletic/6807413/2025/11/18/clichy-interview-wenger-guardiola-henry/
+
+**Burnley? Detroit. Leeds? Flamingo Land. Fulham? Mongolia: The strange world of football travel tie-ins**\
+`Turn on the TV or watch from the stands and the chances are you will see a club encouraging you to visit a far-flung destination`\
+https://nytimes.com/athletic/6783502/2025/11/18/premier-league-travel-advertising/
+
+**What it costs to watch football on television in the UK and the US in 2025**\
+`The increasingly fragmented nature of live sport, coupled with a cost of living crisis, is making it harder for people to pay to watch`\
+https://nytimes.com/athletic/6807575/2025/11/18/cost-of-football-on-television/
+
+**Mbappe has scored over half of Real Madrid's goals this season. Who needs to step up?**\
+`Real Madrid need these other stars to take some of the load off the France captain`\
+https://nytimes.com/athletic/6806999/2025/11/18/real-madrid-kylian-mbappe-scoring/
+
+**Germany have confirmed their World Cup place but they are not where they are supposed to be**\
+`After Euro 2024 it was hoped this team would evolve and become a force for 2026. But that feels a long way off right now`\
+https://nytimes.com/athletic/6815519/2025/11/18/germany-world-cup-2026-qualification/
+
+**The team from Africa playing in Spain: 'We have Christians, Muslims and Jews sitting together in the stands'**\
+`Ceuta - from the autonomous Spanish city of the same name - are the only team from the African mainland playing in a European league`\
+https://nytimes.com/athletic/6783258/2025/11/18/ceuta-la-liga-africa-promotion/
+
 **After a poor run, change is coming at Newcastle - but what will it look like?**\
 `Newcastle's fluctuating form has given Eddie How much to ponder over the international break`\
 https://nytimes.com/athletic/6803760/2025/11/18/newcastle-change-international-break-howe-pressure/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6807292/2025/11/18/freddie-potts-west-ham-profile/
 **Tanzania, a Nation Known for Peace, Is Rocked by Deadly Protests**\
 `Post-election violence has tarnished the country’s reputation for stability, and the crackdown may have backfired on the government, as officials in Washington call for a re-examination of U.S. ties.`\
 https://nytimes.com/2025/11/18/world/africa/tanzania-election-violence.html
-
-**Quote of the Day: A Department of Distraction Aids Trump on Epstein**\
-`Quotation of the Day for Tuesday, November 18, 2025.`\
-https://nytimes.com/2025/11/18/pageoneplus/quote-of-the-day-a-department-of-distraction-aids-trump-on-epstein.html
-
-**Where Mao’s Peasants Tilled the Soil, Tourists Now Pay for the View**\
-`Decades ago, a Chinese village became an official symbol of revolutionary “self-reliance.” The slogan hasn’t changed, but nearly everything else has.`\
-https://nytimes.com/2025/11/18/world/asia/china-mao-red-tourism.html
-
-**Corrections: Nov. 18, 2025**\
-`Corrections that appeared in print on Tuesday, Nov. 18, 2025.`\
-https://nytimes.com/2025/11/18/pageoneplus/corrections-nov-18-2025.html
-
-**After Climate Push, Energy Companies Return to Fossil Fuels in Europe**\
-`Recent oil and gas deals in Europe suggest that the growing demand for energy may be leading companies to adopt a more pragmatic approach.`\
-https://nytimes.com/2025/11/18/business/climate-change-oil-gas-europe.html
-
-**Fantasy football waiver wire Week 12: Emanuel Wilson, Michael Wilson, streamers**\
-`Jake Ciely breaks down the best of this week's waiver wire, with injuries opening up some potential opportunities.`\
-https://nytimes.com/athletic/6815581/2025/11/18/fantasy-football-waiver-wire-week-12-emanuel-wilson-michael-wilson-streamers/
-
-**Man charged with murder in shooting of 'Last Chance U' football coach John Beam**\
-`Cedric Irving Jr. has been charged with murder in the shooting death of the legendary Bay Area junior college football coach.`\
-https://nytimes.com/athletic/6815862/2025/11/17/john-beam-shooting-suspect-charged/
 
