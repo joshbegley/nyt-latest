@@ -1,3 +1,7 @@
+**‘Things Happen’: Trump Brushes Off the Murder of Khashoggi**\
+`A reporter asked Crown Prince Mohammed bin Salman about the murder of the Washington Post columnist Jamal Khashoggi. President Trump interjected.`\
+https://nytimes.com/2025/11/18/us/politics/khashoggi-trump-saudi-crown-prince.html
+
 **Live Count: The House Votes on Releasing the Epstein Files**\
 `See how every member voted.`\
 https://nytimes.com/interactive/2025/11/18/us/house-epstein-discharge-petition-vote.html
