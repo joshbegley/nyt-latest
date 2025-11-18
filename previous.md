@@ -1,3 +1,7 @@
+**Barca return to the Camp Nou: Everything you need to know – and the questions yet to be answered**\
+`Barcelona are heading back to their iconic home ground after extensive refurbishment, but plenty of work still needs to be done`\
+https://nytimes.com/athletic/6816743/2025/11/18/barcelona-camp-nou-return-explained/
+
 **U.S. Military Threat Tests Venezuela’s Alliances**\
 `American adversaries are unlikely to help President Nicolás Maduro of Venezuela fend off a concerted attack. But they have made toppling him harder.`\
 https://nytimes.com/2025/11/18/world/americas/us-venezuela-military-maduro-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6816971/2025/11/18/nhl-kings-ducks-sharks-californi
 **Trump Family’s Business Ties to Saudi Arabia Raise Ethics Worries**\
 `President Trump will host Crown Prince Mohammed bin Salman, Saudi Arabia’s de facto ruler, who oversees a major construction project that is in talks with the Trump family business.`\
 https://nytimes.com/2025/11/18/world/middleeast/trump-family-business-saudi-arabia.html
-
-**Live Updates: Trump to Host Saudi Leader, With Business and Stealth Jets on Agenda**\
-`President Trump will discuss security and investment with Crown Prince Mohammed bin Salman, Saudi Arabia’s de facto ruler, who is making his first U.S. visit since the 2018 killing of a prominent critic.`\
-https://nytimes.com/live/2025/11/18/world/trump-saudi-crown-prince-visit
 

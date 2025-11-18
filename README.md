@@ -1,3 +1,7 @@
+**The Fraud Case Against an Indian Tycoon Is Stuck in Legal Limbo**\
+`The case against Gautam Adani, the infrastructure titan and a close associate of Prime Minister Narendra Modi, has stalled with no sign of progress.`\
+https://nytimes.com/2025/11/18/business/adani-fraud-india.html
+
 **Barca return to the Camp Nou: Everything you need to know – and the questions yet to be answered**\
 `Barcelona are heading back to their iconic home ground after extensive refurbishment, but plenty of work still needs to be done`\
 https://nytimes.com/athletic/6816743/2025/11/18/barcelona-camp-nou-return-explained/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6803508/2025/11/18/canucks-kiefer-sherwood-filip-hr
 **Red Light: What is going on with California's confusing NHL teams? Let us explain**\
 `Nothing is going how we expected for the Kings, Ducks or Sharks. Fortunately, our expert can help us make sense.`\
 https://nytimes.com/athletic/6816971/2025/11/18/nhl-kings-ducks-sharks-california-red-light-newsletter/
-
-**Trump Family’s Business Ties to Saudi Arabia Raise Ethics Worries**\
-`President Trump will host Crown Prince Mohammed bin Salman, Saudi Arabia’s de facto ruler, who oversees a major construction project that is in talks with the Trump family business.`\
-https://nytimes.com/2025/11/18/world/middleeast/trump-family-business-saudi-arabia.html
 

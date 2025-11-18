@@ -1,3 +1,7 @@
+**Barca return to the Camp Nou: Everything you need to know – and the questions yet to be answered**\
+`Barcelona are heading back to their iconic home ground after extensive refurbishment, but plenty of work still needs to be done`\
+https://nytimes.com/athletic/6816743/2025/11/18/barcelona-camp-nou-return-explained/
+
 **U.S. Military Threat Tests Venezuela’s Alliances**\
 `American adversaries are unlikely to help President Nicolás Maduro of Venezuela fend off a concerted attack. But they have made toppling him harder.`\
 https://nytimes.com/2025/11/18/world/americas/us-venezuela-military-maduro-trump.html
