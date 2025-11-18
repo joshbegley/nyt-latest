@@ -1,3 +1,7 @@
+**Trump Administration to Announce Steps to Dismantle Education Department**\
+`Responsibilities for K-12 and college programs, among others, will be moved to other federal agencies.`\
+https://nytimes.com/2025/11/18/us/politics/trump-education-department.html
+
 **Federal Court Blocks Texas’ Republican-Friendly Congressional Map**\
 `The move by a three-judge panel dealt a blow to efforts by Texas Republicans and President Trump to flip Democratic seats in the state.`\
 https://nytimes.com/2025/11/18/us/politics/texas-map-ruling-redistricting.html
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/discover-puerto-rico/24-hours-in-santurce.html
 **Views of Consciousness, Human and A.I.**\
 `Readers respond to a guest essay about artificial (and human) intelligence and consciousness. Also: Kennedy Center ripple effects; cobblestone streets.`\
 https://nytimes.com/2025/11/18/opinion/ai-human-consciousness.html
-
-**Map: 4.1-Magnitude Earthquake Shakes Central California**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/11/18/us/quake-tracker-central-california.html
 

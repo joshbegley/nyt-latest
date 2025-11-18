@@ -1,3 +1,7 @@
+**Trump Administration to Announce Steps to Dismantle Education Department**\
+`Responsibilities for K-12 and college programs, among others, will be moved to other federal agencies.`\
+https://nytimes.com/2025/11/18/us/politics/trump-education-department.html
+
 **Federal Court Blocks Texas’ Republican-Friendly Congressional Map**\
 `The move by a three-judge panel dealt a blow to efforts by Texas Republicans and President Trump to flip Democratic seats in the state.`\
 https://nytimes.com/2025/11/18/us/politics/texas-map-ruling-redistricting.html
