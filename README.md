@@ -1,3 +1,11 @@
+**Former Adams Aide Sentenced to Home Confinement on Conspiracy Charge**\
+`Mohamed Bahi, prosecutors said, coached witnesses to lie during an investigation of Mayor Eric Adams. The judge noted the perception that Mr. Bahi was left “holding the bag.”`\
+https://nytimes.com/2025/11/18/nyregion/bahi-adams-corruption-sentence.html
+
+**Fantasy football best and worst Week 12 matchups: Drake Maye is primed to go off**\
+`KC Joyner also recommends starting Alvin Kamara and Sam Darnold in solid matchups, despite recent poor performances. `\
+https://nytimes.com/athletic/6816523/2025/11/18/fantasy-football-matchup-ratings-week-12-drake-maye/
+
 **Convicted Australian Murderer Sues for Vegemite, Demanding Prisons Allow the Spread**\
 `A man facing life behind bars is challenging the state of Victoria’s prison ban on the salty condiment beloved by many Australians. The case drew condemnation from a minister for corrections.`\
 https://nytimes.com/2025/11/18/world/australia/prisoner-vegemite-lawsuit.html
@@ -14,7 +22,7 @@ https://nytimes.com/athletic/6817553/2025/11/18/nfl-mvp-odds-josh-allen-joins-ma
 `A reporter asked Crown Prince Mohammed bin Salman about the murder of the Washington Post columnist Jamal Khashoggi. President Trump interjected.`\
 https://nytimes.com/2025/11/18/us/politics/khashoggi-trump-saudi-crown-prince.html
 
-**How Every House Member Voted on Releasing the Epstein Files**\
+**How Every House Member Voted to Release the Epstein Files**\
 `The House overwhelmingly voted to release the Justice Department files. The bill now goes to the Senate.`\
 https://nytimes.com/interactive/2025/11/18/us/house-epstein-discharge-petition-vote.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/18/arts/music/summer-walker-finally-over-it-review.h
 **What to Know About Trump’s Federal Crackdown, City by City**\
 `Charlotte and Raleigh in North Carolina became the latest cities to see federal forces move in. Here’s a rundown of what’s going on in each place.`\
 https://nytimes.com/2025/11/18/us/trump-immigration-raids.html
-
-**'I just don't think it's going to work': Falcons at crossroads after lost season, Penix injury**\
-`The latest episode of "The Athletic Football Show" dives into Atlanta's self-inflicted problems.`\
-https://nytimes.com/athletic/6816392/2025/11/18/atlanta-falcons-crossroads-michael-penix-jr-injury/
-
-**Obsessed With ‘Wicked’? Try 9 More Songs From Beloved Musicals.**\
-`If you’ve got Cynthia Erivo and Ariana Grande on repeat, add these songs from “Rent,” “Hadestown,” “13” and more to the rotation.`\
-https://nytimes.com/2025/11/18/arts/music/amplifier-newsletter-wicked-musical-songs.html
 
