@@ -1,3 +1,11 @@
+**Poland Blames Russian-Backed Ukrainians for Railway Sabotage**\
+`Two devices on a main supply line to Ukraine were intended to derail passing trains but failed, the prime minister said, and the two suspects fled the country.`\
+https://nytimes.com/2025/11/18/world/europe/poland-railway-sabotage-russia-ukraine.html
+
+**Barker, From Blue Hill Alums, Takes a Cafeteria-Style Approach in Bed-Stuy**\
+`A new agave and wine lounge, a tortilleria and cafe from the Corima team and more restaurant news.`\
+https://nytimes.com/2025/11/18/dining/nyc-restaurant-news.html
+
 **A Very Andy Baraghani Thanksgiving**\
 `His menu is bold and bright, both in flavor and color: pomegranate-glazed turkey, golden mashed potatoes, roasted winter squash with citrus chile crisp.`\
 https://nytimes.com/2025/11/18/dining/a-very-andy-baraghani-thanksgiving.html
