@@ -1,3 +1,19 @@
+**Giannis Antetokounmpo likely out 2 weeks with groin strain**\
+`The Bucks have been outscored by 12.8 points per 100 possessions when Giannis sits and play seven games over the next two weeks. `\
+https://nytimes.com/athletic/6818263/2025/11/18/giannis-antetokounmpo-sidelined-groin-bucks-nba/
+
+**What Is Post-Liberalism, Anyway?**\
+`Notes on an unstable but necessary idea.`\
+https://nytimes.com/2025/11/18/opinion/post-liberalism-politics.html
+
+**For Trump, Epstein Is the Story That Won’t Go Away**\
+`President Trump is being held captive to a news cycle he can’t avoid or defeat when it comes to the convicted sex offender Jeffrey Epstein.`\
+https://nytimes.com/2025/11/18/us/politics/trump-epstein-files.html
+
+**Meta’s Victory Opens the Way for Silicon Valley to Go Deal Shopping**\
+`To avoid regulatory scrutiny, big tech companies had steered clear of buying start-ups outright. Meta’s antitrust win may change that thinking.`\
+https://nytimes.com/2025/11/18/technology/meta-ruling-silicon-valley-start-ups.html
+
 **Six Non-Traditional Thanksgiving Pies**\
 `Vaughn Vreeland from New York Times Cooking is back with his six cozy, chic Thanksgiving pies that are sure to stun at your Thanksgiving table this year.`\
 https://nytimes.com/video/dining/100000010523246/six-non-traditional-thanksgiving-pies.html

@@ -1,3 +1,19 @@
+**Giannis Antetokounmpo likely out 2 weeks with groin strain**\
+`The Bucks have been outscored by 12.8 points per 100 possessions when Giannis sits and play seven games over the next two weeks. `\
+https://nytimes.com/athletic/6818263/2025/11/18/giannis-antetokounmpo-sidelined-groin-bucks-nba/
+
+**What Is Post-Liberalism, Anyway?**\
+`Notes on an unstable but necessary idea.`\
+https://nytimes.com/2025/11/18/opinion/post-liberalism-politics.html
+
+**For Trump, Epstein Is the Story That Won’t Go Away**\
+`President Trump is being held captive to a news cycle he can’t avoid or defeat when it comes to the convicted sex offender Jeffrey Epstein.`\
+https://nytimes.com/2025/11/18/us/politics/trump-epstein-files.html
+
+**Meta’s Victory Opens the Way for Silicon Valley to Go Deal Shopping**\
+`To avoid regulatory scrutiny, big tech companies had steered clear of buying start-ups outright. Meta’s antitrust win may change that thinking.`\
+https://nytimes.com/2025/11/18/technology/meta-ruling-silicon-valley-start-ups.html
+
 **Six Non-Traditional Thanksgiving Pies**\
 `Vaughn Vreeland from New York Times Cooking is back with his six cozy, chic Thanksgiving pies that are sure to stun at your Thanksgiving table this year.`\
 https://nytimes.com/video/dining/100000010523246/six-non-traditional-thanksgiving-pies.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/us/politics/100000010528490/behind-the-house-vote-to-r
 **Johnny Beecher claimed by Flames on waivers**\
 `The Bruins placed Beecher on waivers Monday for the purpose of assigning him to Providence.`\
 https://nytimes.com/athletic/6818199/2025/11/18/johnny-beecher-claimed-calgary-flames-waivers/
-
-**Frustrated With Your Home Insurer? Tell Us About It.**\
-`Help us track trends in the home insurance market by filling out this survey.`\
-https://nytimes.com/2025/11/18/climate/home-insurance-questions.html
-
-**ICE Frees Blind Migrant Who Was Detained for Days in Isolation**\
-`Carlos Anibal Chalco Chango, 40, was released on Monday from an upstate New York jail where he had been held without his cane. It was a surprising move by an agency that rarely frees detainees.`\
-https://nytimes.com/2025/11/18/nyregion/blind-immigrant-ice-detention-judge-orders-release.html
-
-**On Republican Neo-Nazism, Hamas and Israel: An Epidemic of Moral Cowardice**\
-`People with extreme ideology don’t care anymore about hiding their excesses or their agendas. It’s all out there online or on YouTube.`\
-https://nytimes.com/2025/11/18/opinion/israel-hamas-antisemitism-republicans.html
-
-**The Three G.O.P. Women Who Broke Trump’s Grip on Congress**\
-`Lauren Boebert, Marjorie Taylor Greene and Nancy Mace resisted pressure from the president and made the vote to release the Epstein files possible.`\
-https://nytimes.com/2025/11/18/opinion/trump-epstein-greene-boebert-mace.html
 
