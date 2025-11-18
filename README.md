@@ -1,3 +1,7 @@
+**Convicted Australian Murderer Sues for Vegemite, Demanding Prisons Allow the Spread**\
+`A man facing life behind bars is challenging the state of Victoria’s prison ban on the salty condiment beloved by many Australians. The case drew condemnation from a minister for corrections.`\
+https://nytimes.com/2025/11/18/world/australia/prisoner-vegemite-lawsuit.html
+
 **Victor Wembanyama injury causes huge shift in betting odds**\
 `Wembanyama was off to a hot start this season but a calf injury halted his momentum.`\
 https://nytimes.com/athletic/6817114/2025/11/18/victor-wembanyama-injury-betting-odds-mvp/
