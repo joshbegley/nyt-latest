@@ -1,3 +1,15 @@
+**Trump Says America Is in ‘Golden Age,’ Straining to Address Affordability**\
+`Speaking at a gathering of McDonald’s franchise owners and operators, the president boasted that he had “normalized” inflation.`\
+https://nytimes.com/2025/11/17/us/politics/trump-mcdonalds-affordability-inflation.html
+
+**Tennessee Judge Temporarily Blocks National Guard Deployment in Memphis**\
+`The judge said the case “raises important questions concerning the use of the state’s military forces for domestic law enforcement purposes.”`\
+https://nytimes.com/2025/11/17/us/politics/national-guard-memphis-ruling.html
+
+**Scottie Barnes leads Raptors to another victory with walk-off block against Hornets**\
+`"It was a high-level play," Raptors coach Darko Rajaković said.`\
+https://nytimes.com/athletic/6816072/2025/11/17/scottie-barnes-walk-off-block-hornets/
+
 **Tyler Skaggs' wife, mother take the stand in a day of emotional testimony**\
 `Carli Skaggs, Tyler's widow, testified that she was not aware of her husband's drug use at the time of his death. `\
 https://nytimes.com/athletic/6816006/2025/11/17/tyler-carli-skaggs-debbie-hetman-angels-trial/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6815969/2025/11/17/arizona-state-vs-colorado-stream
 **Giannis Antetokounmpo exits Bucks-Cavaliers game early with groin strain**\
 `Antetokounmpo grabbed his groin and hobbled up the floor just before exiting Monday's game. He had 14 points in 13 minutes.`\
 https://nytimes.com/athletic/6815913/2025/11/17/giannis-antetokounmpo-groin-injury-bucks-nba/
-
-**How to watch BYU vs. Cincinnati: Time, TV, streaming**\
-`Find out how to watch the BYU Cougars play the Cincinnati Bearcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6815949/2025/11/17/byu-vs-cincinnati-stream-how-to-watch-nov-22/
-
-**Derek Shelton hopeful Twins' coaching staff is right blend of personalities, skill sets**\
-`“This group could not have come together better than any group I imagined," the recently hired Shelton says.`\
-https://nytimes.com/athletic/6815765/2025/11/17/derek-shelton-twins-coaching-staff/
-
-**Inside ICE Detention**\
-`They came to the U.S. legally. ICE jailed them anyway. Jemmy Jimenez Rosa, Ayman Soliman and Jasmine Mooney share their stories from inside a cruel detention system that operates with impunity.`\
-https://nytimes.com/video/opinion/100000010520926/inside-ice-detention.html
 

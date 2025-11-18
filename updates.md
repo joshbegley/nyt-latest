@@ -1,3 +1,15 @@
+**Trump Says America Is in ‘Golden Age,’ Straining to Address Affordability**\
+`Speaking at a gathering of McDonald’s franchise owners and operators, the president boasted that he had “normalized” inflation.`\
+https://nytimes.com/2025/11/17/us/politics/trump-mcdonalds-affordability-inflation.html
+
+**Tennessee Judge Temporarily Blocks National Guard Deployment in Memphis**\
+`The judge said the case “raises important questions concerning the use of the state’s military forces for domestic law enforcement purposes.”`\
+https://nytimes.com/2025/11/17/us/politics/national-guard-memphis-ruling.html
+
+**Scottie Barnes leads Raptors to another victory with walk-off block against Hornets**\
+`"It was a high-level play," Raptors coach Darko Rajaković said.`\
+https://nytimes.com/athletic/6816072/2025/11/17/scottie-barnes-walk-off-block-hornets/
+
 **Tyler Skaggs' wife, mother take the stand in a day of emotional testimony**\
 `Carli Skaggs, Tyler's widow, testified that she was not aware of her husband's drug use at the time of his death. `\
 https://nytimes.com/athletic/6816006/2025/11/17/tyler-carli-skaggs-debbie-hetman-angels-trial/
