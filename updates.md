@@ -1,3 +1,7 @@
+**Source: Arizona State QB Sam Leavitt weighing move to transfer portal**\
+`Leavitt, who led the Sun Devils to the College Football Playoff in 2024, is unlikely to return to the school in 2026.`\
+https://nytimes.com/athletic/6817324/2025/11/18/arizona-state-quarterback-sam-leavitt-transfer-portal/
+
 **Brad Treliving defends Craig Berube amid Leafs’ struggles: 'I believe in Craig'**\
 `Treliving took “full responsibility” for the Leafs' current plight, which has them near the bottom of the Eastern Conference.`\
 https://nytimes.com/athletic/6817321/2025/11/18/brad-treliving-craig-berube-maple-leafs/

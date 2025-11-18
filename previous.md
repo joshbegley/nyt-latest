@@ -1,3 +1,7 @@
+**Source: Arizona State QB Sam Leavitt weighing move to transfer portal**\
+`Leavitt, who led the Sun Devils to the College Football Playoff in 2024, is unlikely to return to the school in 2026.`\
+https://nytimes.com/athletic/6817324/2025/11/18/arizona-state-quarterback-sam-leavitt-transfer-portal/
+
 **Brad Treliving defends Craig Berube amid Leafs’ struggles: 'I believe in Craig'**\
 `Treliving took “full responsibility” for the Leafs' current plight, which has them near the bottom of the Eastern Conference.`\
 https://nytimes.com/athletic/6817321/2025/11/18/brad-treliving-craig-berube-maple-leafs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/18/us/politics/trump-maduro-drug-cartel.html
 **2025 NFL Playoff Simulator: Each team’s updated path to the postseason ahead of Week 12**\
 `<p>Welcome to The Athletic’s 2025 NFL Playoff Simulator, where you’ll find everything you need to know about all the ways your favorite team&#8217;s season could end, from a No.`\
 https://nytimes.com/athletic/6513952/2025/11/18/2025-nfl-playoff-simulator-path-postseason/
-
-**Wordle Bot Can Now Use Knowledge of Past Solutions**\
-`An optional new feature will make the bot’s analysis more useful for players who keep a record of previous answers.`\
-https://nytimes.com/2025/11/18/upshot/wordle-bot-past-solutions.html
 
