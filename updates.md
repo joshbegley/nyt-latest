@@ -1,3 +1,7 @@
+**Live Count: The House Votes on Releasing the Epstein Files**\
+`See how every member voted.`\
+https://nytimes.com/interactive/2025/11/18/us/house-epstein-discharge-petition-vote.html
+
 **Poland Pins Railway Sabotage on Russian-Backed Ukrainians**\
 `Poland said two Ukrainians working with Russia were responsible for two devices on the train tracks of a main supply line to Ukraine, with one causing a minor explosion.`\
 https://nytimes.com/video/world/europe/100000010531335/poland-russia-train-tracks-railway.html
