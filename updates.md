@@ -1,3 +1,7 @@
+**Larry Summers to Step Back From Public Commitments Over Emails With Epstein**\
+`New emails showed that Dr. Summers, a former Harvard president, had stayed in touch with Jeffrey Epstein for years after Mr. Epstein faced sex trafficking charges.`\
+https://nytimes.com/2025/11/17/us/harvard-larry-summers-epstein.html
+
 **Giannis Antetokounmpo exits Bucks-Cavaliers game early with groin strain**\
 `Antetokounmpo grabbed his groin and hobbled up the floor just before exiting Monday's game. He had 14 points in 13 minutes.`\
 https://nytimes.com/athletic/6815913/2025/11/17/giannis-antetokounmpo-groin-injury-bucks-nba/
