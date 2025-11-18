@@ -1,3 +1,7 @@
+**Red Bulls' new head of soccer: On Michael Bradley's coaching candidacy, Timo Werner**\
+`Bradley won an MLS Next Pro title in short order. Could he take charge as Julian de Guzman's first big call as RBNY's chief?`\
+https://nytimes.com/athletic/6816164/2025/11/18/red-bulls-michael-bradley-coaching-candidacy-timo-werner/
+
 **Outage at Cloudflare Disrupts Parts of the Internet**\
 `Services from Cloudflare, a software company, underpin thousands of websites.`\
 https://nytimes.com/2025/11/18/business/cloudflare-down-challenges-error.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6815124/2025/11/18/seahawks-defense-rams-mike-macdo
 **Heisman straw poll: Jeremiyah Love climbs the rankings. Can he end the RB drought?**\
 `Recent history and this season's top QBs make it seem likely the Heisman running back drought will continue.`\
 https://nytimes.com/athletic/6815882/2025/11/18/jeremiyah-love-fernando-mendoza-heisman-straw-poll/
-
-**The Soccer 100: A celebration of the greatest players in the sport’s history**\
-`The Athletic is delighted to announce the release of The Soccer 100, profiling players from Pele to Puskas, Maradona to Messi`\
-https://nytimes.com/athletic/6783439/2025/11/18/soccer-100-athletic-harper-collins-released/
 
