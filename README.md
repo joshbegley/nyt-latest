@@ -2,7 +2,7 @@
 `Gleyber Torres is coming back to Detroit for a second season, once again giving the Tigers the type of reliable hitter they need more of in their lineup.`\
 https://nytimes.com/athletic/6795616/2025/11/18/gleyber-torres-detroit-tigers-qualifying-offer/
 
-**WSL official alleges 'fear to raise grievances' to referee body, tribunal hears**\
+**WSL official alleges 'fear to raise grievances' with referee body, tribunal hears**\
 `The PGMOL denies all the allegations against them.`\
 https://nytimes.com/athletic/6817938/2025/11/18/lisa-benn-pgmol-tribunal/
 
@@ -33,8 +33,4 @@ https://nytimes.com/2025/11/18/nyregion/eric-adams-trips-travel-uzbekistan-israe
 **Trump Berates Reporter Who Asked About Journalist Killed by Saudis**\
 `“It’s not the question that I mind; it’s your attitude,” the president told Mary Bruce of ABC News, as the Saudi crown prince looked on. He also criticized ABC.`\
 https://nytimes.com/2025/11/18/business/media/trump-reporter-khashoggi-saudis.html
-
-**Why Jameis Winston would have been a podiatrist, and 3 lessons on money, family and planning ahead**\
-`On the latest episode of "No Free Lunch," Winston shared the hard lessons he learned about the money that follows success.`\
-https://nytimes.com/athletic/6817479/2025/11/18/jameis-winston-podiatrist-financial-lessons-new-york-giants/
 
