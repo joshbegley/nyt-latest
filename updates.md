@@ -1,3 +1,15 @@
+**Trump Family’s Business Ties to Saudi Arabia Raise Ethics Concerns**\
+`President Trump will host Crown Prince Mohammed bin Salman, Saudi Arabia’s de facto ruler, who oversees a major construction project that is in talks with the Trump family business.`\
+https://nytimes.com/2025/11/18/world/middleeast/trump-family-business-saudi-arabia.html
+
+**Live Updates: Trump to Host Saudi Leader, With Business and Stealth Jets on Agenda**\
+`President Trump will discuss security and investment with Crown Prince Mohammed bin Salman, Saudi Arabia’s de facto ruler, who is making his first U.S. visit since the 2018 killing of a prominent critic.`\
+https://nytimes.com/live/2025/11/18/world/trump-saudi-crown-prince-visit
+
+**Zelensky Will Try to Revive Peace Talks on Visit to Turkey**\
+`President Volodymyr Zelensky of Ukraine says he has new proposals to kick-start negotiations with Russia that have been stalled for months.`\
+https://nytimes.com/2025/11/18/world/europe/zelensky-russia-ukraine-talks-turkey.html
+
 **Fantasy football Week 12 drops: Send DJ Moore, Tony Pollard packing**\
 `Gary Davenport doesn't sugarcoat it: it’s time to cut ties with underperforming stars like Cooper Kupp and Tony Pollard. `\
 https://nytimes.com/athletic/6816791/2025/11/18/fantasy-football-week-12-drops-dj-moore/
