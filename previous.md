@@ -1,3 +1,23 @@
+**Faster Communication Could Have Saved Bridge Workers’ Lives, Safety Agency Says**\
+`At a hearing on the crash that led to the collapse of the Key Bridge in Baltimore, investigators said the six construction workers might have survived if the police had warned them in time.`\
+https://nytimes.com/2025/11/18/us/baltimore-bridge-collapse.html
+
+**Former doubles world No. 1 Salisbury takes break from tennis due to anxiety**\
+`Salisbury, a former doubles world No. 1 and six-time Grand Slam champion, told BBC Sport he was not planning a return before April.`\
+https://nytimes.com/athletic/6817428/2025/11/18/joe-salisbury-tennis-break-anxiety/
+
+**24 Hours in Santurce**\
+`How music remains the cultural pulse of Puerto Rico`\
+https://nytimes.com/paidpost/discover-puerto-rico/24-hours-in-santurce.html
+
+**Views of Consciousness, Human and A.I.**\
+`Readers respond to a guest essay about artificial (and human) intelligence and consciousness. Also: Kennedy Center ripple effects; cobblestone streets.`\
+https://nytimes.com/2025/11/18/opinion/ai-human-consciousness.html
+
+**Map: 4.1-Magnitude Earthquake Shakes Southern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/11/18/us/quake-tracker-southern-california.html
+
 **Poland Blames Russian-Backed Ukrainians for Railway Sabotage**\
 `Two devices on a main supply line to Ukraine were intended to derail passing trains but failed, the prime minister said, and the two suspects fled the country.`\
 https://nytimes.com/2025/11/18/world/europe/poland-railway-sabotage-russia-ukraine.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/11/18/nyregion/oneida-jail-video-inmate-death-lawsuit.h
 **Chinese Spies Are Using LinkedIn to Target U.K. Lawmakers, MI5 Warns**\
 `Britain’s domestic intelligence agency said China was using headhunters to gather intelligence from lawmakers and parliamentary staff members.`\
 https://nytimes.com/2025/11/18/world/europe/chinese-spies-linkedin-uk.html
-
-**Shedeur Sanders' home broken into during Browns-Ravens game**\
-`The reported break-in is another example of athletes' properties being targeted while they're playing.`\
-https://nytimes.com/athletic/6815427/2025/11/18/shedeur-sanders-home-break-in-browns-ravens/
-
-**Trump Library Foundation Expects to Raise $50 Million This Year**\
-`President Trump is raising money far faster than his predecessors, extracting tens of millions of dollars in pledged donations from media companies he has sued.`\
-https://nytimes.com/2025/11/18/us/politics/trump-library-foundation-expects-to-raise-50-million-this-year.html
-
-**Fantasy football market share report: Tetairoa McMillan is on the upswing**\
-`Michael Salfino analyzes the touches and targets distribution for Week 11, suggesting Adonai Mitchell might be a rebound candidate this week`\
-https://nytimes.com/athletic/6817188/2025/11/18/fantasy-football-market-share-week-11-touches-targets-tet-adonai/
-
-**Lane Kiffin says Ole Miss didn't give him ultimatum, doesn't address future**\
-`The Rebels' are coming off a 34-24 win over Florida on Saturday, improving Ole Miss' record to 10-1, its fourth 10-win season since 2021.`\
-https://nytimes.com/athletic/6817424/2025/11/18/lane-kiffin-ole-miss-future-pat-mcafee/
-
-**The Art World Chooses Its Favorite Films About Artists**\
-`Movies with artist-protagonists are known to be disappointing. These pass muster and even inspire.`\
-https://nytimes.com/2025/11/18/t-magazine/favorite-artist-films.html
 

@@ -1,3 +1,7 @@
+**Meta Did Not Violate Antitrust Law, Judge Rules**\
+`Meta’s acquisitions of Instagram and WhatsApp did not illegally stifle competition in social networking, a judge found, a major win for the tech giant.`\
+https://nytimes.com/2025/11/18/technology/meta-antitrust-monopoly-ruling.html
+
 **Faster Communication Could Have Saved Bridge Workers’ Lives, Safety Agency Says**\
 `At a hearing on the crash that led to the collapse of the Key Bridge in Baltimore, investigators said the six construction workers might have survived if the police had warned them in time.`\
 https://nytimes.com/2025/11/18/us/baltimore-bridge-collapse.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/18/dining/a-very-andy-baraghani-thanksgiving.html
 **Harrowing Video Shows Inmate’s Death and the Halting Effort to Save Him**\
 `Nurses and guards in Oneida County, N.Y., cracked wise and complained about poor equipment as Antwan Cater lay unconscious in a drug-induced seizure. His father has filed a lawsuit in the case.`\
 https://nytimes.com/2025/11/18/nyregion/oneida-jail-video-inmate-death-lawsuit.html
-
-**Chinese Spies Are Using LinkedIn to Target U.K. Lawmakers, MI5 Warns**\
-`Britain’s domestic intelligence agency said China was using headhunters to gather intelligence from lawmakers and parliamentary staff members.`\
-https://nytimes.com/2025/11/18/world/europe/chinese-spies-linkedin-uk.html
 
