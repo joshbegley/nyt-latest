@@ -1,3 +1,7 @@
+**The MAGA Crackup Might Finally Be Here**\
+`Even if the Epstein files never come out, it’s increasingly clear that a Trump coalition is fragmenting.`\
+https://nytimes.com/2025/11/17/opinion/maga-republicans-trump-epstein.html
+
 **What’s Interesting About the Place Where You Live?**\
 `A neighborhood? A group of people? A natural feature? A business? An annual event? Take a fresh look around your hometown and tell us what’s notable — no matter how small.`\
 https://nytimes.com/2025/11/17/learning/whats-interesting-about-the-place-where-you-live.html
