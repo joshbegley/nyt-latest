@@ -1,3 +1,11 @@
+**The Giants’ offensive line finally isn’t a weakness. Now NY must build unit into a strength**\
+`The line had been the Giants’ Achilles heel during their decade-plus spiral, but that unit has been above average this season.`\
+https://nytimes.com/athletic/6816244/2025/11/18/ny-giants-offensive-line-mike-kafka-packers/
+
+**For the Saudi crown prince, international criticism over the killing of Jamal Khashoggi has faded.**\
+`By Vivian Nereim`\
+https://nytimes.com/live/2025/11/18/world/trump-saudi-crown-prince-visit/saudi-arabia-crown-prince-khashoggi-assassination
+
 **Border Patrol Expands North Carolina Operations to More Liberal Cities**\
 `Agents are expected to be active in the Raleigh area on Tuesday, though the scope of the immigration crackdown in the state’s Research Triangle region was not immediately clear.`\
 https://nytimes.com/2025/11/18/us/border-patrol-north-carolina.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/18/nyregion/nyc-scaffolding-sidewalk-sheds.html
 **Election Officials Press Trump Administration Over Voter Data**\
 `Ten Democratic officials who oversee elections in their states sent a letter to Attorney General Pam Bondi and Homeland Security Secretary Kristi Noem demanding answers on how private voter data was being used.`\
 https://nytimes.com/2025/11/18/us/politics/election-officials-trump-voter-data.html
-
-**The LPGA's TV deal is getting better. The new commissioner explains why, the Golf Saudi deal, more**\
-`LPGA expects its broadcasts to be of higher quality next year, and will utilize Golf Channel and CNBC to be carried live.`\
-https://nytimes.com/athletic/6816830/2025/11/18/lpga-ceo-craig-kessler-broadcast-changes-golf-saudi/
-
-**Canucks stock watch: Who's trending up, and down, through the first 21 games?**\
-`A quarter of the way into the 2025-26 NHL season, it's hard to identify what's meant to be the Canucks' identity.`\
-https://nytimes.com/athletic/6803508/2025/11/18/canucks-kiefer-sherwood-filip-hronek-stock-watch/
 
