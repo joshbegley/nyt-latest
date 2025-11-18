@@ -1,40 +1,40 @@
-**Dallas Cowboys Dominate in First Game Since Marshawn Kneeland’s Death**\
-`The Dallas Cowboys, in their first game since the death of their teammate Marshawn Kneeland, beat the Las Vegas Raiders 33-16 to improve to 4-5-1 on the year.`\
-https://nytimes.com/video/sports/100000010530301/dallas-cowboys-dominate-in-first-game-since-marshawn-kneelands-death.html
+**Have your say: What is the top women's sports city in the U.S.?**\
+`The Athletic's staff tapped our Top 10 women's sports cities in the U.S. It's your turn to pick a No. 1, re-rank ours and call out a snub.`\
+https://nytimes.com/athletic/6814036/2025/11/18/top-womens-sports-city-us-ranking-poll/
 
-**The Jets' options with Justin Fields now: Cut, trade or keep in 2026?**\
-`After starting nine games in his first season with the Jets, Fields has been benched.`\
-https://nytimes.com/athletic/6815999/2025/11/18/justin-fields-new-york-jets-2026-trade/
+**What makes a great women’s sports city? We ranked the top 10 in the U.S.**\
+`We've looked at quantifiable factors (NCAA success and number of women's sports bars), but also the vibe for fans and game-day experience.`\
+https://nytimes.com/athletic/6807524/2025/11/18/womens-sports-cities-top-ranked-fans/
 
-**QB stock report, Week 12: Denver's Bo Nix conundrum and Michael Penix Jr.'s uncertain future**\
-`Nix has plenty of potential, but is he the right fit for Sean Payton's offense?`\
-https://nytimes.com/athletic/6814898/2025/11/18/qb-stock-report-rankings-bo-nix-michael-penix/
+**Why the 7-3 Bears can be dangerous in the playoff chase: 'We've been battled-tested'**\
+`Opportunistic defense? Reliable running game? Late-game magic? The Bears' strong start now sets up an intriguing finish. `\
+https://nytimes.com/athletic/6815599/2025/11/18/bears-ben-johnson-playoff-chase/
 
-**MLB is flying high. Why does it seem so willing to risk a work stoppage?**\
-`Baseball just came off a dramatic World Series, and its numbers are robust. But its owners are gathering in this week to talk labor issues.`\
-https://nytimes.com/athletic/6815792/2025/11/18/mlb-work-stoppage-owners-meetings-world-series/
+**Why Quinnen Williams was Cowboys' most important player in their Monday night win**\
+`Dallas had a dominant defensive performance Monday night. Their next three games are against the Eagles, Chiefs and Lions.`\
+https://nytimes.com/athletic/6816452/2025/11/18/cowboys-quinnen-williams-defense-win-raiders/
 
-**NFL Week 12 Power Rankings: Bills, Broncos and Bears on the rise after wild wins**\
-`The Week 12 Power Rankings find the Eagles still on top but the Broncos, Bills and Bears all on the rise after impressive victories.`\
-https://nytimes.com/athletic/6814386/2025/11/18/nfl-power-rankings-week-12-bills-broncos-bears/
+**Champions Classic watch guide: Michigan St.-Kentucky, Kansas-Duke at Madison Square Garden**\
+`Four blue-blooded college basketball programs share the Madison Square Garden marquee Tuesday night.`\
+https://nytimes.com/athletic/6815326/2025/11/18/kentucky-michigan-state-duke-kansas-how-to-watch/
 
-**With or without Edwin Díaz, how can the Mets rebuild their bullpen?**\
-`Regardless of how the Mets handle Edwin Díaz, their bullpen requires some work this season in terms of both quality and quantity. `\
-https://nytimes.com/athletic/6814749/2025/11/18/edwin-diaz-mets-bullpen-free-agency/
+**Another late collapse limits Blue Jackets to shootout win against Montreal**\
+`Yet again the Blue Jackets handed their opponents points in the third period, this time to the team who pipped them to last year's playoffs.`\
+https://nytimes.com/athletic/6816134/2025/11/18/blue-jackets-shootout-marchenko-canadiens/
 
-**How the Dodgers should approach the offseason as they pursue a three-peat: Bowden**\
-`The Dodgers are favorites to three-peat even without major roster changes but the organization isn't likely to rest on its laurels.`\
-https://nytimes.com/athletic/6807979/2025/11/18/dodgers-offseason-plan-2025-2026/
+**Can Vikings QB J.J. McCarthy eventually turn it around, a la Panthers QB Bryce Young?**\
+`Like Young, McCarthy has struggled mightily early in his career. The Vikings are surely hoping he can turn things around quickly.`\
+https://nytimes.com/athletic/6815494/2025/11/18/jj-mccarthy-vikings-bears-turnaround-bryce-young/
 
-**The New York Times International Edition in Print for Wednesday, Nov. 19, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/11/18/todays-new-york-times-international-edition
+**With 2 goals against Oilers, Noah Östlund looks like a real NHL package: Sabres thoughts**\
+`Östlund scored the opening goal and iced the game against the Oilers, while Colten Ellis had perhaps his best game yet in net.`\
+https://nytimes.com/athletic/6816166/2025/11/18/sabres-noah-ostlund-rosen-ellis-oilers/
 
-**Alcaraz 'heartbroken' to miss Davis Cup with hamstring injury**\
-`Alcaraz, the world No. 1, suffered the injury towards the end of the first set of the ATP Finals final against Jannik Sinner on Sunday.`\
-https://nytimes.com/athletic/6816505/2025/11/18/carlos-alcaraz-injury-davis-cup/
+**Montreal Victoire 2025-26 preview: Formidable forward depth led by Poulin extension**\
+`A trio of voluntary pay cuts helped GM Danièle Sauvageau put together an impressive collection of free-agent signings, including Abby Roque.`\
+https://nytimes.com/athletic/6813652/2025/11/18/montreal-victoire-pwhl-2025-26-preview/
 
-**House Is Expected to Vote on Tuesday to Release Epstein Files**\
-`Ahead of what was likely to be a unanimous House vote that Republican leaders had toiled to avoid, G.O.P. lawmakers embraced the Epstein transparency bill.`\
-https://nytimes.com/2025/11/18/us/politics/house-vote-epstein-files.html
+**Hemp, Clinton return to England squad for China, Ghana friendlies**\
+`England face China at Wembley Stadium on November 29 before playing Ghana at St. Mary’s on December 2.`\
+https://nytimes.com/athletic/6816593/2025/11/18/england-women-squad-hemp-clinton-james/
 

@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6814036/2025/11/18/top-womens-sports-city-us-ranking-poll/
 
 **What makes a great women’s sports city? We ranked the top 10 in the U.S.**\
-`We've looked at quantifiable factors (NCAA success and number of women's sports bars), but also the vibe for fans and game-day experience.`\
+`Which U.S. cities earned a spot on the list? The Athletic's staff ranked them (and you get your say, also.)`\
 https://nytimes.com/athletic/6807524/2025/11/18/womens-sports-cities-top-ranked-fans/
 
 **Why the 7-3 Bears can be dangerous in the playoff chase: 'We've been battled-tested'**\
