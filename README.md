@@ -1,3 +1,7 @@
+**C.D.C. Links Measles Outbreaks in Multiple States for the First Time**\
+`If the outbreaks cannot be extinguished by January, the anniversary of the first cases in Texas, the United States will lose what is known as “elimination status” as determined by the World Health Organization.`\
+https://nytimes.com/2025/11/17/health/measles-us-elimination-status-outbreaks.html
+
 **Trump’s Immigration Crackdown Hits a Battleground State**\
 `The Charlotte raids pose a new political test of a top Trump priority.`\
 https://nytimes.com/2025/11/17/us/politics/trump-ice-bovino-charlotte.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/17/well/what-is-botulism.html
 **Cowboys pay tribute to Marshawn Kneeland ahead of Monday Night Football matchup**\
 `The team prepared a locker for their late teammate on Monday night in Las Vegas.`\
 https://nytimes.com/athletic/6815637/2025/11/17/cowboys-tribute-marshawn-kneeland-monday-night-football/
-
-**After Hundreds of Gazans Arrive on Mystery Flights, South Africa Asks How**\
-`A little-known group sold passage to desperate Palestinians who didn’t know their destination, catching the South African government by surprise.`\
-https://nytimes.com/2025/11/17/world/africa/gaza-palestinians-south-africa-flights.html
 
