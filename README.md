@@ -1,3 +1,15 @@
+**Shota Imanaga accepts qualifying offer, set to return to Cubs' rotation in 2026**\
+`This latest move closed some of the distance between Imanaga and the organization that initially signed him out of Japan. `\
+https://nytimes.com/athletic/6815890/2025/11/18/shota-imanaga-accepts-qualifying-offer-cubs/
+
+**‘Climate-Friendly’ Beef Now Has to Prove It**\
+`Two new settlements could change how the beef industry markets its products and require that it provide proof for its pledges to lower emissions.`\
+https://nytimes.com/2025/11/18/climate/climate-friendly-beef-settlements.html
+
+**Trent Grisham accepts Yankees' qualifying offer, will return in 2026: What it means**\
+`Grisham's decision to accept the qualifying offer leaves the Yankees with one open outfield position to fill.`\
+https://nytimes.com/athletic/6815426/2025/11/18/trent-grisham-rejects-yankees-qualifying-offer-mlb-free-agency/
+
 **Investigating a Recycling Disaster**\
 `We went to Nigeria, where recycling plants are extracting lead for use in American and European car batteries — at a terrible human cost.`\
 https://nytimes.com/2025/11/18/world/recycling-disaster-lead-nigeria-car-batteries-epstein.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/18/us/politics/elon-musk-politics-trump-doge.html
 **Havertz suffers 'small' injury setback, Nagelsmann says**\
 `Nagelsmann said he expects Havertz to return before the end of the year.`\
 https://nytimes.com/athletic/6817701/2025/11/18/kai-havertz-injury-setback-arsenal-germany/
-
-**President Trump Brushes Off Question on Khashoggi Murder**\
-`President Trump hosted Saudi Arabia’s crown prince, Mohammed bin Salman, in the Oval Office on Tuesday.`\
-https://nytimes.com/video/us/politics/100000010531416/khashoggi-trump-saudi-crown-prince.html
-
-**Super Bowl odds: Eagles are back where they started the season**\
-`After beginning the season as favorites to win the Super Bowl, the Philadelphia Eagles have returned to the top of the NFL odds board.`\
-https://nytimes.com/athletic/6817754/2025/11/18/super-bowl-odds-philadelphia-eagles/
-
-**How to watch Grizzlies vs. Spurs: Time, TV, streaming**\
-`Find out how to watch the Memphis Grizzlies play the San Antonio Spurs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6817901/2025/11/18/grizzlies-vs-spurs-stream-how-to-watch-nov-18/
 
