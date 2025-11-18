@@ -1,3 +1,7 @@
+**ICE Frees Blind Migrant Who Was Detained for Days in Isolation**\
+`Carlos Anibal Chalco Chango, 40, was released on Monday from an upstate New York jail where he had been held without his cane. It was a surprising move by an agency that rarely frees detainees.`\
+https://nytimes.com/2025/11/18/nyregion/blind-immigrant-ice-detention-judge-orders-release.html
+
 **On Republican Neo-Nazism, Hamas and Israel: An Epidemic of Moral Cowardice**\
 `People with extreme ideology don’t care anymore about hiding their excesses or their agendas. It’s all out there online or on YouTube.`\
 https://nytimes.com/2025/11/18/opinion/israel-hamas-antisemitism-republicans.html
