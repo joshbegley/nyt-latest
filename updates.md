@@ -1,3 +1,19 @@
+**A Very Andy Baraghani Thanksgiving**\
+`His menu is bold and bright, both in flavor and color: pomegranate-glazed turkey, golden mashed potatoes, roasted winter squash with citrus chile crisp.`\
+https://nytimes.com/2025/11/18/dining/a-very-andy-baraghani-thanksgiving.html
+
+**Harrowing Video Shows Inmate’s Death and the Halting Effort to Save Him**\
+`Nurses and guards in Oneida County, N.Y., cracked wise and complained about poor equipment as Antwan Cater lay unconscious in a drug-induced seizure. His father has filed a lawsuit in the case.`\
+https://nytimes.com/2025/11/18/nyregion/oneida-jail-video-inmate-death-lawsuit.html
+
+**Chinese Spies Are Using LinkedIn to Target U.K. Lawmakers, MI5 Warns**\
+`Britain’s domestic intelligence agency said China was using headhunters to gather intelligence from lawmakers and parliamentary staff members.`\
+https://nytimes.com/2025/11/18/world/europe/chinese-spies-linkedin-uk.html
+
+**Shedeur Sanders' home broken into during Browns-Ravens game**\
+`The reported break-in is another example of athletes' properties being targeted while they're playing.`\
+https://nytimes.com/athletic/6815427/2025/11/18/shedeur-sanders-home-break-in-browns-ravens/
+
 **Shedeur Sanders' home broken into during Browns-Ravens game**\
 `The reported break-in at Sanders home is another example of athletes’ properties being targeted while they’re playing.`\
 https://nytimes.com/athletic/6815427/2025/11/18/shedeur-sanders-home-break-in-browns-ravens/

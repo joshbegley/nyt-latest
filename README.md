@@ -1,3 +1,7 @@
+**Barker, From Blue Hill Alums, Takes a Cafeteria-Style Approach in Bed-Stuy**\
+`A new agave and wine lounge, a tortilleria and cafe from the Corima team and more restaurant news.`\
+https://nytimes.com/2025/11/18/dining/nyc-restaurant-news.html
+
 **A Very Andy Baraghani Thanksgiving**\
 `His menu is bold and bright, both in flavor and color: pomegranate-glazed turkey, golden mashed potatoes, roasted winter squash with citrus chile crisp.`\
 https://nytimes.com/2025/11/18/dining/a-very-andy-baraghani-thanksgiving.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/18/t-magazine/favorite-artist-films.html
 **Source: Arizona State QB Sam Leavitt weighing move to transfer portal**\
 `Leavitt, who led the Sun Devils to the College Football Playoff in 2024, is unlikely to return to the school in 2026.`\
 https://nytimes.com/athletic/6817324/2025/11/18/arizona-state-quarterback-sam-leavitt-transfer-portal/
-
-**Brad Treliving defends Craig Berube amid Leafs’ struggles: 'I believe in Craig'**\
-`Treliving took “full responsibility” for the Leafs' plight, which has them near the bottom of the Eastern Conference.`\
-https://nytimes.com/athletic/6817321/2025/11/18/brad-treliving-craig-berube-maple-leafs/
 
