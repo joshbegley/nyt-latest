@@ -1,3 +1,7 @@
+**Six Non-Traditional Thanksgiving Pies**\
+`Vaughn Vreeland from New York Times Cooking is back with his six cozy, chic Thanksgiving pies that are sure to stun at your Thanksgiving table this year.`\
+https://nytimes.com/video/dining/100000010523246/six-non-traditional-thanksgiving-pies.html
+
 **The Disrespect of Journalism’s ‘Digital Barons’**\
 `The longtime journalist Tina Brown has covered some of the biggest personalities in politics and culture.`\
 https://nytimes.com/video/podcasts/100000010530579/the-disrespect-of-journalisms-digital-barons.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/18/opinion/israel-hamas-antisemitism-republicans.htm
 **The Three G.O.P. Women Who Broke Trump’s Grip on Congress**\
 `Lauren Boebert, Marjorie Taylor Greene and Nancy Mace resisted pressure from the president and made the vote to release the Epstein files possible.`\
 https://nytimes.com/2025/11/18/opinion/trump-epstein-greene-boebert-mace.html
-
-**Scotland qualify for first WC since 1998 with dramatic win over Denmark**\
-`Two fantastic stoppage-time goals by Kieran Tierney and Kenny McLean sealed Scotland's World Cup spot with a 4-2 win over Denmark.`\
-https://nytimes.com/athletic/6817129/2025/11/18/scotland-qualify-world-cup/
 
