@@ -1,3 +1,7 @@
+**Word of the Day: perpetuate**\
+`This word has appeared in 108 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/18/learning/word-of-the-day-perpetuate.html
+
 **Full Time: NWSL rivals meet in championship**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6816338/2025/11/18/nwsl-championship-preview-full-time/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6804245/2025/11/18/jon-humble-manchester-united-liv
 **What is Nottingham Forest's pathway out of the relegation zone?**\
 `Manager Sean Dyche must navigate some challenging fixtures, and some must-win games, in the weeks ahead `\
 https://nytimes.com/athletic/6804828/2025/11/18/nottingham-forest-pathway-to-safety/
-
-**Why Crystal Palace's lack of goals from midfield is a feature not a bug**\
-`Oliver Glasner's tactical plan requires discipline from his midfielders – making them adventurous might cause the entire system to collapse`\
-https://nytimes.com/athletic/6814374/2025/11/18/crystal-palaces-midfield-lack-of-goals-design-tactics/
 

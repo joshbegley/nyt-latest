@@ -1,3 +1,7 @@
+**Word of the Day: perpetuate**\
+`This word has appeared in 108 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/18/learning/word-of-the-day-perpetuate.html
+
 **Full Time: NWSL rivals meet in championship**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6816338/2025/11/18/nwsl-championship-preview-full-time/
