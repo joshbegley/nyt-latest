@@ -1,3 +1,7 @@
+**Ecuador Votes No to Hosting U.S. Military Base**\
+`A vote on Sunday rejected the expansion of a foreign military presence. It came as the U.S. military’s campaign in waters near Latin America has been roiling the region.`\
+https://nytimes.com/2025/11/18/world/americas/ecuador-us-military-base-vote-trump.html
+
 **Vaulks wins FIFPRO award for work around mental health in football**\
 `“It gives me an even louder voice, so that’s my main delight with winning it," Vaulks told The Athletic.`\
 https://nytimes.com/athletic/6807303/2025/11/18/will-vaulks-fifpro-player-voice-award/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6817307/2025/11/18/warriors-vs-magic-stream-how-to-
 **How to watch Blues vs. Maple Leafs: Time, TV, streaming**\
 `Find out how to watch the St. Louis Blues play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6817304/2025/11/18/blues-vs-maple-leafs-stream-how-to-watch-nov-18/
-
-**How to watch Kraken vs. Red Wings: Time, TV, streaming**\
-`Find out how to watch the Seattle Kraken play the Detroit Red Wings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6817305/2025/11/18/kraken-vs-red-wings-stream-how-to-watch-nov-18/
 
