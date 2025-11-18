@@ -1,3 +1,7 @@
+**Recycling Lead for U.S. Car Batteries Is Poisoning People**\
+`We documented the toxic fallout of a green technology.`\
+https://nytimes.com/interactive/2025/11/18/world/africa/lead-poisoning-car-battery.html
+
 **Florian Wirtz plays with swagger for Germany - can Liverpool benefit?**\
 `The Germany midfielder played with confidence as he provided two excellent assists in the 6-0 win over Slovakia `\
 https://nytimes.com/athletic/6815560/2025/11/18/florian-wirtz-plays-with-swagger-for-germany-can-liverpool-benefit/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/18/learning/word-of-the-day-perpetuate.html
 **Full Time: NWSL rivals meet in championship**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6816338/2025/11/18/nwsl-championship-preview-full-time/
-
-**The New York Times in Print for Tuesday, Nov. 18, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/11/18/todays-new-york-times
 
