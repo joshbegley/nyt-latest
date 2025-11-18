@@ -1,3 +1,7 @@
+**NFL playoff picture after Week 11: Broncos bust Chiefs' division hopes; Rams the NFC's best?**\
+`The Broncos and Rams look to be in control out West. Is it time to take the Bears' playoff hopes seriously? `\
+https://nytimes.com/athletic/6794845/2025/11/17/nfl-playoff-picture-week-11-broncos-chiefs-update/
+
 **Injured Cam Skattebo shows up to WWE match, fights wrestlers**\
 `It was Skattebo's second recent public appearance after suffering a dislocated ankle Oct. 26.`\
 https://nytimes.com/athletic/6816040/2025/11/17/cam-skattebo-wwe-fight-monday-night-raw/
