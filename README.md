@@ -1,3 +1,7 @@
+**Until Saturday: Why Franklin's a great hire by VT**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6817247/2025/11/18/james-franklin-virginia-tech-until-saturday/
+
 **In This Show, Four Years of High School Unfold Over Five Hours**\
 `The characters in Else Went’s quiet Off Broadway debut at the Public Theater try to make sense of the world while coming-of-age in the early aughts.`\
 https://nytimes.com/2025/11/18/theater/initiative-else-went-public-theater.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/18/dining/baked-chicken-drumsticks-harissa-shrimp-an
 **Google Unveils Gemini 3, With Improved Coding and Search Abilities**\
 `The new artificial intelligence model is the second the company has released this year. OpenAI and Anthropic made similar updates a few months ago.`\
 https://nytimes.com/2025/11/18/business/google-gemini-3.html
-
-**Google’s Gemini 3 Is Here: A Special Early Look**\
-`Maybe more than other model releases, this one seems to have the attention of Google’s competitors. Will it put the company at the top of the A.I. leaderboard?`\
-https://nytimes.com/2025/11/18/podcasts/hardfork-gemini-3.html
 
