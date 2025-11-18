@@ -1,5 +1,9 @@
-**Steelers QB Aaron Rodgers has fractured left wrist but status for Sunday unknown**\
-`Rodgers did not return for the second half against the Bengals on Sunday.`\
+**Brad Treliving defends Craig Berube amid Leafs’ struggles: 'I believe in Craig'**\
+`Treliving took “full responsibility” for the Leafs' current plight, which has them near the bottom of the Eastern Conference.`\
+https://nytimes.com/athletic/6817321/2025/11/18/brad-treliving-craig-berube-maple-leafs/
+
+**Aaron Rodgers has fractured left wrist; status for Week 12 vs. Bears unknown**\
+`If Rodgers cannot play against the Bears, backup QB Mason Rudolph would get the start. `\
 https://nytimes.com/athletic/6814309/2025/11/18/aaron-rodgers-injury-update-wrist-steelers-mike-tomlin/
 
 **Ecuador Votes No to Hosting U.S. Military Base**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6513952/2025/11/18/2025-nfl-playoff-simulator-path-
 **Wordle Bot Can Now Use Knowledge of Past Solutions**\
 `An optional new feature will make the bot’s analysis more useful for players who keep a record of previous answers.`\
 https://nytimes.com/2025/11/18/upshot/wordle-bot-past-solutions.html
-
-**How to watch Warriors vs. Magic: Time, TV, streaming**\
-`Find out how to watch the Golden State Warriors play the Orlando Magic, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6817307/2025/11/18/warriors-vs-magic-stream-how-to-watch-nov-18/
 
