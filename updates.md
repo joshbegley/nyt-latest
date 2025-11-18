@@ -1,3 +1,23 @@
+**The Disrespect of Journalism’s ‘Digital Barons’**\
+`The longtime journalist Tina Brown has covered some of the biggest personalities in politics and culture.`\
+https://nytimes.com/video/podcasts/100000010530579/the-disrespect-of-journalisms-digital-barons.html
+
+**Dylan Cease, Michael King decline offers from pitching-needy Padres**\
+`For now, the Padres’ possible rotation includes Nick Pivetta, Joe Musgrove, Randy Vásquez, JP Sears, Kyle Hart and few other viable options.`\
+https://nytimes.com/athletic/6817308/2025/11/18/padres-dylan-cease-michael-king-decline-offers/
+
+**Sid Davidoff, Powerful Aide to Mayor Lindsay, Dies at 86**\
+`In the 1960s and ’70s, he was a brash lieutenant to a young, ambitious, reform-minded mayor and ended up on President Nixon’s “enemies list.”`\
+https://nytimes.com/2025/11/18/nyregion/sid-davidoff-dead.html
+
+**Behind the House Vote to Release the Epstein Files**\
+`The House has voted to tell the Justice Department to release the Epstein files, after President Trump caved to pressure from fellow Republicans. Our congressional correspondent Annie Karni describes how Trump’s inability to head off the vote is a sign that his movement is fraying.`\
+https://nytimes.com/video/us/politics/100000010528490/behind-the-house-vote-to-release-the-epstein-files.html
+
+**Johnny Beecher claimed by Flames on waivers**\
+`Bruins placed Beecher on waivers on Monday for the purpose of assigning him to Providence.`\
+https://nytimes.com/athletic/6818199/2025/11/18/johnny-beecher-claimed-calgary-flames-waivers/
+
 **Frustrated With Your Home Insurer? Tell Us About It.**\
 `Help us track trends in the home insurance market by filling out this survey.`\
 https://nytimes.com/2025/11/18/climate/home-insurance-questions.html
