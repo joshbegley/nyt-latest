@@ -1,3 +1,7 @@
+**Injured Cam Skattebo shows up to WWE match, fights wrestlers**\
+`It was Skattebo's second recent public appearance after suffering a dislocated ankle Oct. 26.`\
+https://nytimes.com/athletic/6816040/2025/11/17/cam-skattebo-wwe-fight-monday-night-raw/
+
 **Trump Says America Is in ‘Golden Age,’ Straining to Address Affordability**\
 `Speaking at a gathering of McDonald’s franchise owners and operators, the president boasted that he had “normalized” inflation.`\
 https://nytimes.com/2025/11/17/us/politics/trump-mcdonalds-affordability-inflation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6815985/2025/11/17/western-kentucky-vs-lsu-stream-h
 **How to watch Arizona State vs. Colorado: Time, TV, streaming**\
 `Find out how to watch the Arizona State Sun Devils play the Colorado Buffaloes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6815969/2025/11/17/arizona-state-vs-colorado-stream-how-to-watch-nov-22/
-
-**Giannis Antetokounmpo exits Bucks-Cavaliers game early with groin strain**\
-`Antetokounmpo grabbed his groin and hobbled up the floor just before exiting Monday's game. He had 14 points in 13 minutes.`\
-https://nytimes.com/athletic/6815913/2025/11/17/giannis-antetokounmpo-groin-injury-bucks-nba/
 
