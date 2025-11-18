@@ -10,7 +10,7 @@ https://nytimes.com/2025/11/18/us/politics/house-condemns-garcia-election-scheme
 `By Vivian Nereim`\
 https://nytimes.com/live/2025/11/18/world/trump-saudi-crown-prince-visit/the-saudi-crown-prince-received-an-especially-warm-oval-office-welcome
 
-**With Wild injuries racking up, rookie Danila Yurov gets his shot to center the top line**\
+**With injuries racking up, Wild rookie Danila Yurov gets shot to center top line**\
 `The 21-year-old has two goals and one assist in 15 games and has been centering one of the Wild's best lines in recent games.`\
 https://nytimes.com/athletic/6817945/2025/11/18/wild-injuries-rookie-danila-yurov-top-line/
 

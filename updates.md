@@ -1,3 +1,7 @@
+**With injuries racking up, Wild rookie Danila Yurov gets shot to center top line**\
+`The 21-year-old has two goals and one assist in 15 games and has been centering one of the Wild's best lines in recent games.`\
+https://nytimes.com/athletic/6817945/2025/11/18/wild-injuries-rookie-danila-yurov-top-line/
+
 **LeBron James, Stephen Curry unlikely to suit up at 2028 Olympics**\
 `USA Basketball also unveiled the 12-man roster for the first two games of the World Cup qualifying tournament later this month.`\
 https://nytimes.com/athletic/6817872/2025/11/18/lebron-james-stephen-curry-2028-olympics-team-usa/
