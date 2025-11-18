@@ -1,3 +1,15 @@
+**C.D.C. Links Measles Outbreaks in Multiple States for the First Time**\
+`If the outbreaks cannot be extinguished by January, the anniversary of the first cases in Texas, the United States will lose what is known as “elimination status” as determined by the World Health Organization.`\
+https://nytimes.com/2025/11/17/health/measles-us-elimination-status-outbreaks.html
+
+**Trump’s Immigration Crackdown Hits a Battleground State**\
+`The Charlotte raids pose a new political test of a top Trump priority.`\
+https://nytimes.com/2025/11/17/us/politics/trump-ice-bovino-charlotte.html
+
+**Trump Administration Asks Court to Block California’s Ban on Masked Federal Agents**\
+`The U.S. government says the new law threatens the safety of its agents and argues that states cannot regulate federal agencies.`\
+https://nytimes.com/2025/11/17/us/politics/trump-california-ban-masked-agents.html
+
 **Commanders cut kicker Matt Gay, sign kicker Jake Moody off Bears' practice squad**\
 `The Washington Commanders are now on to their eighth kicker of the Dan Quinn era.`\
 https://nytimes.com/athletic/6815750/2025/11/17/commanders-cut-kicker-matt-gay-sign-jake-moody-bears/
