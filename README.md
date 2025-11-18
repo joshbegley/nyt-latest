@@ -1,3 +1,7 @@
+**Am I the Skinniest Person You’ve Ever Seen?**\
+`My sister and I went on a joint diet. She stopped and I didn’t.`\
+https://nytimes.com/video/opinion/100000010471743/am-i-the-skinniest-person-youve-ever-seen.html
+
 **Recycling Lead for U.S. Car Batteries Is Poisoning People**\
 `We documented the toxic fallout of a green technology.`\
 https://nytimes.com/interactive/2025/11/18/world/africa/lead-poisoning-car-battery.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/18/arts/television/late-night-trump-epstein-files.ht
 **Word of the Day: perpetuate**\
 `This word has appeared in 108 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/11/18/learning/word-of-the-day-perpetuate.html
-
-**Full Time: NWSL rivals meet in championship**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6816338/2025/11/18/nwsl-championship-preview-full-time/
 
