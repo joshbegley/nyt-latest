@@ -1,3 +1,19 @@
+**Florian Wirtz plays with swagger for Germany - can Liverpool benefit?**\
+`The Germany midfielder played with confidence as he provided two excellent assists in the 6-0 win over Slovakia `\
+https://nytimes.com/athletic/6815560/2025/11/18/florian-wirtz-plays-with-swagger-for-germany-can-liverpool-benefit/
+
+**A Night at the Museum**\
+`Would you want to have your own sleepover adventure at the American Museum of Natural History?`\
+https://nytimes.com/2025/11/18/learning/a-night-at-the-museum.html
+
+**She Knows What Gen Z Is Thinking**\
+`Callie Holtermann, who covers entertainment, internet culture and trends, combs TikTok — and her own conversations with friends — for story ideas.`\
+https://nytimes.com/2025/11/18/insider/gen-z-reporting.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/18/crosswords/spelling-bee-forum.html
+
 **House to Vote on Release of Epstein Files**\
 `The House of Representatives was expected to vote on a bipartisan bill that would make public all files related to Jeffrey Epstein. President Trump, who had long resisted the release, directed Republicans to back the bill.`\
 https://nytimes.com/video/us/politics/100000010530038/trump-epstein-republicans-vote.html

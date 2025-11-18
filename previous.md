@@ -1,3 +1,19 @@
+**Florian Wirtz plays with swagger for Germany - can Liverpool benefit?**\
+`The Germany midfielder played with confidence as he provided two excellent assists in the 6-0 win over Slovakia `\
+https://nytimes.com/athletic/6815560/2025/11/18/florian-wirtz-plays-with-swagger-for-germany-can-liverpool-benefit/
+
+**A Night at the Museum**\
+`Would you want to have your own sleepover adventure at the American Museum of Natural History?`\
+https://nytimes.com/2025/11/18/learning/a-night-at-the-museum.html
+
+**She Knows What Gen Z Is Thinking**\
+`Callie Holtermann, who covers entertainment, internet culture and trends, combs TikTok — and her own conversations with friends — for story ideas.`\
+https://nytimes.com/2025/11/18/insider/gen-z-reporting.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/18/crosswords/spelling-bee-forum.html
+
 **House to Vote on Release of Epstein Files**\
 `The House of Representatives was expected to vote on a bipartisan bill that would make public all files related to Jeffrey Epstein. President Trump, who had long resisted the release, directed Republicans to back the bill.`\
 https://nytimes.com/video/us/politics/100000010530038/trump-epstein-republicans-vote.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6816338/2025/11/18/nwsl-championship-preview-full-t
 **The New York Times in Print for Tuesday, Nov. 18, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/18/todays-new-york-times
-
-**Poor Countries Got $1 Trillion From China. So Did Rich Ones.**\
-`Beijing has used loans to developing nations to expand its influence, but a new study says no country has received more Chinese financing than the United States.`\
-https://nytimes.com/2025/11/18/business/china-loans-financing.html
-
-**Nothing Succeeds With Trump Quite Like Success**\
-`Ukraine understands this. Europe should get on board with it, too.`\
-https://nytimes.com/2025/11/18/opinion/trump-ukraine-europe.html
-
-**Connections: Sports Edition Coach: Hints for Nov. 18, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6814134/2025/11/18/connections-sports-edition-hints-for-nov-18-2025/
-
-**Raiders' defense unequipped to handle Dak Prescott, Cowboys' offense in MNF loss**\
-`George Pickens also matched a career high with nine receptions Monday night in the Cowboys' 33-16 win over the Raiders.`\
-https://nytimes.com/athletic/6816095/2025/11/18/cowboys-raiders-score-result-takeaways-mnf/
 
