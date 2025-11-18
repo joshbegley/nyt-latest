@@ -1,3 +1,15 @@
+**Jeju Air Crash Investigators to Hold Public Hearing as They Face Criticism**\
+`With the cause of the disaster in South Korea still unclear after nearly a year, victims’ families have questioned the credibility and impartiality of the inquiry board.`\
+https://nytimes.com/2025/11/18/world/asia/jeju-air-crash-boeing-south-korea-hearing.html
+
+**Jalen Duren is making an All-Star case as he powers Pistons to 10th straight win**\
+`We are witnessing a breakout for Detroit's center, who had 31 points and 15 rebounds on Monday against the Pacers.`\
+https://nytimes.com/athletic/6816196/2025/11/18/jalen-duren-pistons-winning-streak/
+
+**Mandel: The Big Ten got too big and is no longer a happy family — unlike its SEC counterpart**\
+`The Big Ten no longer has a cohesive identity — unlike its SEC counterpart. `\
+https://nytimes.com/athletic/6812124/2025/11/18/big-ten-conference-too-big-identity-private-equity/
+
 **Five things to watch on Baseball Hall of Fame ballot: Is this the year for Beltrán, Jones?**\
 `We’ll find out in two months who will be propelled by this election onto a stage next July in Cooperstown, N.Y. Here's what to watch.`\
 https://nytimes.com/athletic/6815977/2025/11/18/baseball-hall-of-fame-2026-ballot-storylines/
