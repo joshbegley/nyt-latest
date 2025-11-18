@@ -1,4 +1,8 @@
 **What makes a great women’s sports city? We ranked the top 10 in the U.S.**\
+`The Bay Area earned the top spot in our first-ever city ranking, and the No. 2 city might surprise you.`\
+https://nytimes.com/athletic/6807524/2025/11/18/womens-sports-cities-top-ranked-fans/
+
+**What makes a great women’s sports city? We ranked the top 10 in the U.S.**\
 `Which U.S. cities earned a spot on the list? The Athletic's staff ranked them (and you get your say, also.)`\
 https://nytimes.com/athletic/6807524/2025/11/18/womens-sports-cities-top-ranked-fans/
 
