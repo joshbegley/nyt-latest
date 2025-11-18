@@ -1,3 +1,11 @@
+**Dazzling New Historical Fiction**\
+`Our columnist on four books that are worth your time.`\
+https://nytimes.com/2025/11/18/books/review/new-historical-fiction-books.html
+
+**U.N. Support Bolsters Trump’s Gaza Plan but Road Ahead Is Still Rough**\
+`The Security Council’s backing offered a scaffolding of international legitimacy that will be needed to persuade countries to help see the plans through.`\
+https://nytimes.com/2025/11/18/world/middleeast/un-trump-gaza-plan.html
+
 **What I'm seeing from Oilers' road trip: Some good, some not so good**\
 `For one thing, Edmonton can't be relying on Connor McDavid and Leon Draisaitl so much if they want to make another run to the Cup Final.`\
 https://nytimes.com/athletic/6816130/2025/11/18/oilers-road-trip-evaulation/
