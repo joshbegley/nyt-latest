@@ -1,3 +1,7 @@
+**The Growing Cost of Having Ties to Epstein**\
+`Larry Summers, a former Treasury secretary, is stepping back from public commitments. It’s the latest fallout for an associate of Jeffrey Epstein.`\
+https://nytimes.com/2025/11/18/business/dealbook/summers-ties-jeffrey-epstein.html
+
 **Dazzling New Historical Fiction**\
 `Our columnist on four books that are worth your time.`\
 https://nytimes.com/2025/11/18/books/review/new-historical-fiction-books.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010530339/un-security-council-g
 **Little by little, the real Naz Reid is coming into focus for the Timberwolves**\
 `Of the 2024 Sixth Man of the Year, center Rudy Gobert said, "His mindset really impacts our team and sets the tone of our team."`\
 https://nytimes.com/athletic/6815902/2025/11/18/naz-reid-minnesota-timberwolves-2/
-
-**Red Bulls' new head of soccer: On Michael Bradley's coaching candidacy, Timo Werner**\
-`Bradley won an MLS Next Pro title in short order. Could he take charge as Julian de Guzman's first big call as RBNY's chief?`\
-https://nytimes.com/athletic/6816164/2025/11/18/red-bulls-michael-bradley-coaching-candidacy-timo-werner/
 
