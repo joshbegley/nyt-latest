@@ -1,3 +1,19 @@
+**Federal Court Blocks Texas’ Republican-Friendly Congressional Map**\
+`The move by a three-judge panel dealt a blow to efforts by Texas Republicans and President Trump to flip Democratic seats in the state.`\
+https://nytimes.com/2025/11/18/us/politics/texas-map-ruling-redistricting.html
+
+**QB C.J. Stroud returns to practice, still must clear concussion protocol**\
+`If Stroud doesn't clear protocol, backup QB Davis Mills would start Thursday night against the Bills. `\
+https://nytimes.com/athletic/6817605/2025/11/18/texans-c-j-stroud-practice-concussion-bills/
+
+**Texas Governor Declares Muslim Civil Rights Group a ‘Terrorist Organization’**\
+`Gov. Greg Abbott said the state could now take steps to shut down the Council on American-Islamic Relations. The group said the declaration had no basis in fact or law.`\
+https://nytimes.com/2025/11/18/us/texas-abbott-cair-terrorist-group-muslim.html
+
+**Japanese free-agent pitcher Tatsuya Imai posted to MLB teams: Source**\
+`The 27-year-old righty's negotiating window with MLB teams begins Wednesday morning.`\
+https://nytimes.com/athletic/6817594/2025/11/18/tatsuya-imai-mlb-free-agent/
+
 **Meta Did Not Violate Antitrust Law, Judge Rules**\
 `Meta’s acquisitions of Instagram and WhatsApp did not illegally stifle competition in social networking, a judge found, a major win for the tech giant.`\
 https://nytimes.com/2025/11/18/technology/meta-antitrust-monopoly-ruling.html
@@ -18,23 +34,7 @@ https://nytimes.com/paidpost/discover-puerto-rico/24-hours-in-santurce.html
 `Readers respond to a guest essay about artificial (and human) intelligence and consciousness. Also: Kennedy Center ripple effects; cobblestone streets.`\
 https://nytimes.com/2025/11/18/opinion/ai-human-consciousness.html
 
-**Map: 4.1-Magnitude Earthquake Shakes Southern California**\
+**Map: 4.1-Magnitude Earthquake Shakes Central California**\
 `View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/11/18/us/quake-tracker-southern-california.html
-
-**Poland Blames Russian-Backed Ukrainians for Railway Sabotage**\
-`Two devices on a main supply line to Ukraine were intended to derail passing trains but failed, the prime minister said, and the two suspects fled the country.`\
-https://nytimes.com/2025/11/18/world/europe/poland-railway-sabotage-russia-ukraine.html
-
-**Barker, From Blue Hill Alums, Takes a Cafeteria-Style Approach in Bed-Stuy**\
-`A new agave and wine lounge, a tortilleria and cafe from the Corima team and more restaurant news.`\
-https://nytimes.com/2025/11/18/dining/nyc-restaurant-news.html
-
-**A Very Andy Baraghani Thanksgiving**\
-`His menu is bold and bright, both in flavor and color: pomegranate-glazed turkey, golden mashed potatoes, roasted winter squash with citrus chile crisp.`\
-https://nytimes.com/2025/11/18/dining/a-very-andy-baraghani-thanksgiving.html
-
-**Harrowing Video Shows Inmate’s Death and the Halting Effort to Save Him**\
-`Nurses and guards in Oneida County, N.Y., cracked wise and complained about poor equipment as Antwan Cater lay unconscious in a drug-induced seizure. His father has filed a lawsuit in the case.`\
-https://nytimes.com/2025/11/18/nyregion/oneida-jail-video-inmate-death-lawsuit.html
+https://nytimes.com/interactive/2025/11/18/us/quake-tracker-central-california.html
 
