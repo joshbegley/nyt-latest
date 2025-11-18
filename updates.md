@@ -1,3 +1,11 @@
+**LeBron James, Stephen Curry unlikely to suit up at 2028 Olympics**\
+`USA Basketball also unveiled the 12-man roster for the first two games of the World Cup qualifying tournament later this month.`\
+https://nytimes.com/athletic/6817872/2025/11/18/lebron-james-stephen-curry-2028-olympics-team-usa/
+
+**House Condemns García’s Election Scheme Amid Democratic Split**\
+`The measure rebuked the retiring Democratic representative Jesús García of Illinois for maneuvering to ensure his top aide would be the only one running to succeed him.`\
+https://nytimes.com/2025/11/18/us/politics/house-condemns-garcia-election-scheme.html
+
 **The Saudi crown prince receives an especially warm welcome at the White House.**\
 `By Vivian Nereim`\
 https://nytimes.com/live/2025/11/18/world/trump-saudi-crown-prince-visit/the-saudi-crown-prince-received-an-especially-warm-oval-office-welcome

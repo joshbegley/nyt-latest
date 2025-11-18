@@ -1,3 +1,11 @@
+**LeBron James, Stephen Curry unlikely to suit up at 2028 Olympics**\
+`USA Basketball also unveiled the 12-man roster for the first two games of the World Cup qualifying tournament later this month.`\
+https://nytimes.com/athletic/6817872/2025/11/18/lebron-james-stephen-curry-2028-olympics-team-usa/
+
+**House Condemns García’s Election Scheme Amid Democratic Split**\
+`The measure rebuked the retiring Democratic representative Jesús García of Illinois for maneuvering to ensure his top aide would be the only one running to succeed him.`\
+https://nytimes.com/2025/11/18/us/politics/house-condemns-garcia-election-scheme.html
+
 **The Saudi crown prince receives an especially warm welcome at the White House.**\
 `By Vivian Nereim`\
 https://nytimes.com/live/2025/11/18/world/trump-saudi-crown-prince-visit/the-saudi-crown-prince-received-an-especially-warm-oval-office-welcome
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6817938/2025/11/18/lisa-benn-pgmol-tribunal/
 **Calley Means Returns to Kennedy’s Side as Senior Adviser**\
 `Mr. Means, who co-founded a wellness company, has emerged as one of the most prominent voices in the Make America Healthy Again movement.`\
 https://nytimes.com/2025/11/18/well/calley-means-rfk-jr-hhs.html
-
-**Shota Imanaga accepts qualifying offer, set to return to Cubs' rotation in 2026**\
-`This latest move closed some of the distance between Imanaga and the organization that initially signed him out of Japan. `\
-https://nytimes.com/athletic/6815890/2025/11/18/shota-imanaga-accepts-qualifying-offer-cubs/
-
-**‘Climate-Friendly’ Beef Now Has to Prove It**\
-`Two new settlements could change how the beef industry markets its products and require that it provide proof for its pledges to lower emissions.`\
-https://nytimes.com/2025/11/18/climate/climate-friendly-beef-settlements.html
 
