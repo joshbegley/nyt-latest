@@ -1,3 +1,7 @@
+**Connections: Sports Edition Coach: Hints for Nov. 18, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6814134/2025/11/18/connections-sports-edition-hints-for-nov-18-2025/
+
 **Raiders' defense unequipped to handle Dak Prescott, Cowboys' offense in MNF loss**\
 `George Pickens also matched a career high with nine receptions Monday night in the Cowboys' 33-16 win over the Raiders.`\
 https://nytimes.com/athletic/6816095/2025/11/18/cowboys-raiders-score-result-takeaways-mnf/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6807413/2025/11/18/clichy-interview-wenger-guardiol
 **Burnley? Detroit. Leeds? Flamingo Land. Fulham? Mongolia: The strange world of football travel tie-ins**\
 `Turn on the TV or watch from the stands and the chances are you will see a club encouraging you to visit a far-flung destination`\
 https://nytimes.com/athletic/6783502/2025/11/18/premier-league-travel-advertising/
-
-**What it costs to watch football on television in the UK and the US in 2025**\
-`The increasingly fragmented nature of live sport, coupled with a cost of living crisis, is making it harder for people to pay to watch`\
-https://nytimes.com/athletic/6807575/2025/11/18/cost-of-football-on-television/
 
