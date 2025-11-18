@@ -1,3 +1,11 @@
+**Federal Court Blocks Texas’ Republican-Friendly Congressional Map**\
+`The move by a three-judge panel dealt a blow to efforts by Texas Republicans and President Trump to flip Democratic seats in the state.`\
+https://nytimes.com/2025/11/18/us/politics/texas-map-ruling-redistricting.html
+
+**QB C.J. Stroud returns to practice, still must clear concussion protocol**\
+`If Stroud doesn't clear protocol, backup QB Davis Mills would start Thursday night against the Bills. `\
+https://nytimes.com/athletic/6817605/2025/11/18/texans-c-j-stroud-practice-concussion-bills/
+
 **Texas Governor Declares Muslim Civil Rights Group a ‘Terrorist Organization’**\
 `Gov. Greg Abbott said the state could now take steps to shut down the Council on American-Islamic Relations. The group said the declaration had no basis in fact or law.`\
 https://nytimes.com/2025/11/18/us/texas-abbott-cair-terrorist-group-muslim.html
@@ -26,15 +34,7 @@ https://nytimes.com/paidpost/discover-puerto-rico/24-hours-in-santurce.html
 `Readers respond to a guest essay about artificial (and human) intelligence and consciousness. Also: Kennedy Center ripple effects; cobblestone streets.`\
 https://nytimes.com/2025/11/18/opinion/ai-human-consciousness.html
 
-**Map: 4.1-Magnitude Earthquake Shakes Southern California**\
+**Map: 4.1-Magnitude Earthquake Shakes Central California**\
 `View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/11/18/us/quake-tracker-southern-california.html
-
-**Poland Blames Russian-Backed Ukrainians for Railway Sabotage**\
-`Two devices on a main supply line to Ukraine were intended to derail passing trains but failed, the prime minister said, and the two suspects fled the country.`\
-https://nytimes.com/2025/11/18/world/europe/poland-railway-sabotage-russia-ukraine.html
-
-**Barker, From Blue Hill Alums, Takes a Cafeteria-Style Approach in Bed-Stuy**\
-`A new agave and wine lounge, a tortilleria and cafe from the Corima team and more restaurant news.`\
-https://nytimes.com/2025/11/18/dining/nyc-restaurant-news.html
+https://nytimes.com/interactive/2025/11/18/us/quake-tracker-central-california.html
 
