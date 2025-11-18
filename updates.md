@@ -1,3 +1,15 @@
+**Former Adams Aide Sentenced to Home Confinement on Conspiracy Charge**\
+`Mohamed Bahi, prosecutors said, coached witnesses to lie during an investigation of Mayor Eric Adams. The judge noted the perception that Mr. Bahi was left “holding the bag.”`\
+https://nytimes.com/2025/11/18/nyregion/bahi-adams-corruption-sentence.html
+
+**Fantasy football best and worst Week 12 matchups: Drake Maye is primed to go off**\
+`KC Joyner also recommends starting Alvin Kamara and Sam Darnold in solid matchups, despite recent poor performances. `\
+https://nytimes.com/athletic/6816523/2025/11/18/fantasy-football-matchup-ratings-week-12-drake-maye/
+
+**How Every House Member Voted to Release the Epstein Files**\
+`The House overwhelmingly voted to release the Justice Department files. The bill now goes to the Senate.`\
+https://nytimes.com/interactive/2025/11/18/us/house-epstein-discharge-petition-vote.html
+
 **How Every House Member Voted on Releasing the Epstein Files**\
 `The House overwhelmingly voted to release the Justice Department files. The bill now goes to the Senate.`\
 https://nytimes.com/interactive/2025/11/18/us/house-epstein-discharge-petition-vote.html
