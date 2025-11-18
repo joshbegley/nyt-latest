@@ -1,3 +1,7 @@
+**Obsessed With ‘Wicked’? Try 9 More Songs From Beloved Musicals.**\
+`If you’ve got Cynthia Erivo and Ariana Grande on repeat, add these songs from “Rent,” “Hadestown,” “13” and more to the rotation.`\
+https://nytimes.com/2025/11/18/arts/music/amplifier-newsletter-wicked-musical-songs.html
+
 **Trump wants a Saudi-Israel deal, but that’s not likely soon.**\
 `By Ismaeel Naar`\
 https://nytimes.com/live/2025/11/18/world/trump-saudi-crown-prince-visit/trump-saudi-arabia-israel-deal
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/18/technology/meta-antitrust-monopoly-ruling.html
 **Faster Communication Could Have Saved Bridge Workers’ Lives, Safety Agency Says**\
 `At a hearing on the crash that led to the collapse of the Key Bridge in Baltimore, investigators said the six construction workers might have survived if the police had warned them in time.`\
 https://nytimes.com/2025/11/18/us/baltimore-bridge-collapse.html
-
-**Former doubles world No. 1 Salisbury takes break from tennis due to anxiety**\
-`Salisbury, a former doubles world No. 1 and six-time Grand Slam champion, told BBC Sport he was not planning a return before April.`\
-https://nytimes.com/athletic/6817428/2025/11/18/joe-salisbury-tennis-break-anxiety/
 
