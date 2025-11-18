@@ -1,3 +1,7 @@
+**They Wink and Blink**\
+`Joe Deeney checks the boxes.`\
+https://nytimes.com/2025/11/17/crosswords/daily-puzzle-2025-11-18.html
+
 **Larry Summers, ‘Ashamed’ Over Epstein Ties, Steps Back From Public Commitments**\
 `New emails showed that Dr. Summers, a former Harvard president, had stayed in touch with Jeffrey Epstein for years after Mr. Epstein faced sex trafficking charges.`\
 https://nytimes.com/2025/11/17/us/harvard-larry-summers-epstein.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010520926/inside-ice-detention.html
 **Heritage Foundation Board Member Resigns Over Video Defending Carlson**\
 `The member, Robert P. George, said the think tank’s president had refused to retract his video defending Tucker Carlson’s friendly interview with an openly antisemitic white supremacist.`\
 https://nytimes.com/2025/11/17/us/politics/heritage-foundation-tucker-carlson-nick-fuentes.html
-
-**How to watch Kansas State vs. Utah: Time, TV, streaming**\
-`Find out how to watch the Kansas State Wildcats play the Utah Utes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6815870/2025/11/17/how-to-watch-kansas-state-vs-no-13-utah-tv-channel-and-streaming-options-for-november-22/
 
