@@ -1,3 +1,7 @@
+**The Growing Cost of Having Ties to Epstein**\
+`Larry Summers, a former Treasury secretary, is stepping back from public commitments. It’s the latest fallout for an associate of Jeffrey Epstein.`\
+https://nytimes.com/2025/11/18/business/dealbook/summers-ties-jeffrey-epstein.html
+
 **Dazzling New Historical Fiction**\
 `Our columnist on four books that are worth your time.`\
 https://nytimes.com/2025/11/18/books/review/new-historical-fiction-books.html
