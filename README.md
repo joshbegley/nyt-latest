@@ -1,3 +1,7 @@
+**Home Depot Cuts Forecast as Consumers Pull Back on Spending**\
+`The big box retailer said tariff costs and elevated mortgage rates have slowed consumer spending on new homes and remodeling projects.`\
+https://nytimes.com/2025/11/18/business/home-depot-downgrade-forecast.html
+
 **The Giants’ offensive line finally isn’t a weakness. Now NY must build unit into a strength**\
 `The line had been the Giants’ Achilles heel during their decade-plus spiral, but that unit has been above average this season.`\
 https://nytimes.com/athletic/6816244/2025/11/18/ny-giants-offensive-line-mike-kafka-packers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/18/nyregion/immigration-court-arrests.html
 **New York City’s Scaffolding Gets a Long Overdue Makeover**\
 `Officials have unveiled six new designs, in the biggest reimagining of the city’s ubiquitous sidewalk sheds in decades.`\
 https://nytimes.com/2025/11/18/nyregion/nyc-scaffolding-sidewalk-sheds.html
-
-**Election Officials Press Trump Administration Over Voter Data**\
-`Ten Democratic officials who oversee elections in their states sent a letter to Attorney General Pam Bondi and Homeland Security Secretary Kristi Noem demanding answers on how private voter data was being used.`\
-https://nytimes.com/2025/11/18/us/politics/election-officials-trump-voter-data.html
 
