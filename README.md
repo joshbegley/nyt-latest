@@ -1,3 +1,7 @@
+**Meta’s Victory Opens the Way for Silicon Valley to Go Deal Shopping**\
+`To avoid regulatory scrutiny, big tech companies had steered clear of buying start-ups outright. Meta’s antitrust win may change that thinking.`\
+https://nytimes.com/2025/11/18/technology/meta-ruling-silicon-valley-start-ups.html
+
 **Six Non-Traditional Thanksgiving Pies**\
 `Vaughn Vreeland from New York Times Cooking is back with his six cozy, chic Thanksgiving pies that are sure to stun at your Thanksgiving table this year.`\
 https://nytimes.com/video/dining/100000010523246/six-non-traditional-thanksgiving-pies.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/18/nyregion/blind-immigrant-ice-detention-judge-orde
 **On Republican Neo-Nazism, Hamas and Israel: An Epidemic of Moral Cowardice**\
 `People with extreme ideology don’t care anymore about hiding their excesses or their agendas. It’s all out there online or on YouTube.`\
 https://nytimes.com/2025/11/18/opinion/israel-hamas-antisemitism-republicans.html
-
-**The Three G.O.P. Women Who Broke Trump’s Grip on Congress**\
-`Lauren Boebert, Marjorie Taylor Greene and Nancy Mace resisted pressure from the president and made the vote to release the Epstein files possible.`\
-https://nytimes.com/2025/11/18/opinion/trump-epstein-greene-boebert-mace.html
 

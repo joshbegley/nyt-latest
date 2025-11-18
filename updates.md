@@ -1,3 +1,7 @@
+**Six Non-Traditional Thanksgiving Pies**\
+`Vaughn Vreeland from New York Times Cooking is back with his six cozy, chic Thanksgiving pies that are sure to stun at your Thanksgiving table this year.`\
+https://nytimes.com/video/dining/100000010523246/six-non-traditional-thanksgiving-pies.html
+
 **The Disrespect of Journalism’s ‘Digital Barons’**\
 `The longtime journalist Tina Brown has covered some of the biggest personalities in politics and culture.`\
 https://nytimes.com/video/podcasts/100000010530579/the-disrespect-of-journalisms-digital-barons.html
