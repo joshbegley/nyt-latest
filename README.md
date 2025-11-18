@@ -1,3 +1,7 @@
+**Super Bowl odds: Eagles are back where they started the season**\
+`After beginning the season as favorites to win the Super Bowl, the Philadelphia Eagles have returned to the top of the NFL odds board.`\
+https://nytimes.com/athletic/6817754/2025/11/18/super-bowl-odds-philadelphia-eagles/
+
 **How to watch Grizzlies vs. Spurs: Time, TV, streaming**\
 `Find out how to watch the Memphis Grizzlies play the San Antonio Spurs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6817901/2025/11/18/grizzlies-vs-spurs-stream-how-to-watch-nov-18/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6817888/2025/11/18/islanders-vs-stars-stream-how-to
 **How to watch Mammoth vs. Sharks: Time, TV, streaming**\
 `Find out how to watch the Utah Mammoth play the San Jose Sharks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6817886/2025/11/18/mammoth-vs-sharks-stream-how-to-watch-nov-18/
-
-**How to watch Suns vs. Trail Blazers: Time, TV, streaming**\
-`Find out how to watch the Phoenix Suns play the Portland Trail Blazers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6817884/2025/11/18/suns-vs-trail-blazers-stream-how-to-watch-nov-18/
 
