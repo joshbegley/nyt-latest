@@ -1,3 +1,7 @@
+**Arsenal's Gabriel set for further tests, fears he will miss one to two months**\
+`The defender sustained the injury playing in a friendly for Brazil against Senegal on Saturday.`\
+https://nytimes.com/athletic/6813855/2025/11/18/gabriel-arsenal-thigh-injury/
+
 **Trump Team Calls Maduro a ‘Cartel’ Boss. That Word Doesn’t Mean What You Think.**\
 `Venezuelans coined a figure of speech for the phenomenon of generals corrupted by drug money: “Cartel de los Soles.” Then the United States started talking about it as a literal organization.`\
 https://nytimes.com/2025/11/18/us/politics/trump-maduro-drug-cartel.html

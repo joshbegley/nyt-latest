@@ -1,3 +1,7 @@
+**Arsenal's Gabriel set for further tests, fears he will miss one to two months**\
+`The defender sustained the injury playing in a friendly for Brazil against Senegal on Saturday.`\
+https://nytimes.com/athletic/6813855/2025/11/18/gabriel-arsenal-thigh-injury/
+
 **Trump Team Calls Maduro a ‘Cartel’ Boss. That Word Doesn’t Mean What You Think.**\
 `Venezuelans coined a figure of speech for the phenomenon of generals corrupted by drug money: “Cartel de los Soles.” Then the United States started talking about it as a literal organization.`\
 https://nytimes.com/2025/11/18/us/politics/trump-maduro-drug-cartel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6814487/2025/11/18/critical-insights-usage-fantasy-
 **Until Saturday: Why Franklin's a great hire by VT**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6817247/2025/11/18/james-franklin-virginia-tech-until-saturday/
-
-**In This Show, Four Years of High School Unfold Over Five Hours**\
-`The characters in Else Went’s quiet Off Broadway debut at the Public Theater try to make sense of the world while coming-of-age in the early aughts.`\
-https://nytimes.com/2025/11/18/theater/initiative-else-went-public-theater.html
 
