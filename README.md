@@ -1,3 +1,7 @@
+**Bulls bench turns in signature performance, helps snap 5-game skid**\
+`The Bulls bench scored 66 points, not so distant from Sunday’s season-high 71. Chicago's backups outscored the Nuggets bench by 57 points.`\
+https://nytimes.com/athletic/6816808/2025/11/18/chicago-bulls-bench-win-denver/
+
 **Baked Chicken Drumsticks, Harissa Shrimp and Sheet-Pan Mushroom Parm**\
 `Five no-stress meals for the week before Thanksgiving.`\
 https://nytimes.com/2025/11/18/dining/baked-chicken-drumsticks-harissa-shrimp-and-sheet-pan-mushroom-parm.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6816244/2025/11/18/ny-giants-offensive-line-mike-ka
 **For the Saudi crown prince, international criticism over the killing of Jamal Khashoggi has faded.**\
 `By Vivian Nereim`\
 https://nytimes.com/live/2025/11/18/world/trump-saudi-crown-prince-visit/saudi-arabia-crown-prince-khashoggi-assassination
-
-**Border Patrol Expands North Carolina Operations to More Liberal Cities**\
-`Agents are expected to be active in the Raleigh area on Tuesday, though the scope of the immigration crackdown in the state’s Research Triangle region was not immediately clear.`\
-https://nytimes.com/2025/11/18/us/border-patrol-north-carolina.html
 
