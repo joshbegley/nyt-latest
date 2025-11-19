@@ -1,3 +1,11 @@
+**Champions League football to return to Barca's Camp Nou for visit of Frankfurt**\
+`The match could also be the first time away supporters visit the renovated stadium.`\
+https://nytimes.com/athletic/6819451/2025/11/19/barcelona-camp-nou-champions-league/
+
+**I’m Building an Algorithm That Doesn’t Rot Your Brain**\
+`The internet should enrich people, not advertisers.`\
+https://nytimes.com/video/opinion/100000010499738/patreon-algorithms-social-media-internet.html
+
 **Must-See Moments From the N.B.A.**\
 `On Tuesday, LeBron James made his debut in a league-record 23rd season, the Detroit Pistons won their 11th straight game, the Orlando Magic took care of the Golden State Warriors, and De’Aaron Fox shined for the San Antonio Spurs.`\
 https://nytimes.com/video/sports/basketball/100000010532795/must-see-moments-from-the-nba.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6816667/2025/11/19/ashes-mark-wood-england-perth/
 **Seasonal Sadness**\
 `Do the darker, colder days affect your mood? What do you do about it if so?`\
 https://nytimes.com/2025/11/19/learning/seasonal-sadness.html
-
-**At This College, the English Dept. Is Out. ‘Human Narratives’ Is In.**\
-`At Montclair State University in New Jersey, a departmental restructuring plan is igniting concerns about the future of the humanities.`\
-https://nytimes.com/2025/11/19/nyregion/montclair-state-restructuring.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/11/19/crosswords/spelling-bee-forum.html
 
