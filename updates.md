@@ -1,3 +1,7 @@
+**LeBron James makes a successful season debut in win over Jazz**\
+`James posted 11 points and 12 assists in his first game of the season, firing up the home crowd and helping the Lakers beat the Jazz.`\
+https://nytimes.com/athletic/6819202/2025/11/19/lebron-james-returns-lakers-win-jazz/
+
 **LeBron James makes a successful season-debut in win over Jazz**\
 `James posted 11 points and 12 assists in his first game of the season, firing up the home crowd and helping the Lakers beat the Jazz.`\
 https://nytimes.com/athletic/6819202/2025/11/19/lebron-james-returns-lakers-win-jazz/
