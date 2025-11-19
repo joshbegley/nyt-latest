@@ -1,3 +1,7 @@
+**Saudi Crown Prince Dines With Trump at the White House**\
+`President Trump stood shoulder-to-shoulder with Crown Prince Mohammad bin Salman of Saudi Arabia during a White House dinner on Tuesday. The room was packed with leaders from several industries.`\
+https://nytimes.com/video/us/politics/100000010532543/trump-saudi-dinner-guests.html
+
 **Stephen Colbert Celebrates ‘Epstein Rockin’ Eve’**\
 `“Stay up for a ball drop you’re going to want to miss,” the “Late Show” host said as Congress voted for the release of the Jeffrey Epstein files.`\
 https://nytimes.com/2025/11/19/arts/television/late-night-trump-epstein-files.html
