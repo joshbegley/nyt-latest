@@ -1,3 +1,7 @@
+**USWNT's Emma Hayes weighs in on Trinity Rodman's future, NWSL salary cap**\
+`Rodman's contract with the Spirit expires at the end of 2025, leading to questions about her future in the NWSL.`\
+https://nytimes.com/athletic/6820882/2025/11/19/emma-hayes-trinity-rodman-nwsl/
+
 **Do You Use A.I. for College Application Advice?**\
 `We want to hear about it.`\
 https://nytimes.com/2025/11/19/style/chatgpt-ai-college-application-advice.html
