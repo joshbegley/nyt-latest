@@ -1,3 +1,15 @@
+**Shocking Orioles-Angels trade might make sense for both teams**\
+`In a late-night twist, the Orioles traded their 2018 first-round pick to the Angels for a league-average left fielder who crushes southpaws.`\
+https://nytimes.com/athletic/6820812/2025/11/19/orioles-angels-trade-grayson-rodriguez-taylor-ward/
+
+**Early Signs Point to a Harsh Flu Season in the U.S.**\
+`The virus circulating this year is more virulent and has been spreading faster and earlier than usual.`\
+https://nytimes.com/2025/11/19/health/flu-season-us.html
+
+**After Shutdown, Labor Department Says Some Data Is Gone for Good**\
+`Surveys were delayed and some cannot be collected at all, officials said, further complicating the Federal Reserve’s decision on interest rates next month.`\
+https://nytimes.com/2025/11/19/business/economy/labor-department-economy-data-october.html
+
 **Alice and Ellen Kessler, ’60s Singing Sensations, Die at 89**\
 `The twin sisters from Germany, who were nightclub stars and regular guests on international variety shows, chose to end their lives together.`\
 https://nytimes.com/2025/11/19/arts/alice-ellen-kessler-dead.html
@@ -21,20 +33,4 @@ https://nytimes.com/athletic/6820774/2025/11/19/canadiens-trade-malkin-olympics-
 **Trump’s Embrace of the Saudi Crown Prince**\
 `Readers react to the White House meeting between President Trump and the Saudi crown prince. Also: Skin care for little kids; when libraries close.`\
 https://nytimes.com/2025/11/19/opinion/trump-saudi-crown-prince.html
-
-**NFL Week 12 confidence picks: Why the Eagles will beat the Cowboys**\
-`KC Joyner's straight-up confidence picks are 43-13 in the last four weeks. See what he thinks will happen this week.`\
-https://nytimes.com/athletic/6819600/2025/11/19/nfl-week-12-confidence-picks-eagles-cowboys/
-
-**Panthers’ Eetu Luostarinen out after suffering burns from barbecue accident**\
-`Luostarinen's injury is another blow to the Panthers, who have been without their two top forwards.`\
-https://nytimes.com/athletic/6820798/2025/11/19/eetu-luostarinen-burns-barbecue-accident-florida-panthers/
-
-**USMNT’s 2026 takes shape: World Cup sendoff in Chicago, March friendlies booked**\
-`The logistics of the USMNT 2026 schedule, both leading up to the World Cup and during it, have emerged`\
-https://nytimes.com/athletic/6820796/2025/11/19/usmnt-2026-schedule-world-cup/
-
-**How #GRWM Found a New Demographic**\
-`This episode is all about internet culture, the content that feeds it and its impact on how we present ourselves to the world.`\
-https://nytimes.com/paidpost/loreal-groupe/how-grwm-found-a-new-demographic.html
 
