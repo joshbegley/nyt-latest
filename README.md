@@ -1,4 +1,4 @@
-**Scoot Henderson's return from torn hamstring "week-to-week," not imminent**\
+**Scoot Henderson's return from torn hamstring 'week to week,' not imminent**\
 `The Trail Blazers initially said Henderson would return to basketball activity in four to eight weeks.`\
 https://nytimes.com/athletic/6819120/2025/11/19/scoot-henderson-torn-hamstring-inury-update/
 
