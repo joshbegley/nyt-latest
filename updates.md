@@ -1,3 +1,5 @@
+
+
 **Shocking Orioles-Angels trade might make sense for both teams**\
 `In a late-night twist, the Orioles traded their 2018 first-round pick to the Angels for a league-average left fielder who crushes southpaws.`\
 https://nytimes.com/athletic/6820812/2025/11/19/orioles-angels-trade-grayson-rodriguez-taylor-ward/
