@@ -1,3 +1,19 @@
+**Preparing Perth Stadium for Ashes cricket: A drop-in wicket, a 40-tonne transporter and sleepless nights**\
+`The ground is hosting its first Ashes Test but will replicate the pace and bounce that made the WACA, across the Swan River, so feared`\
+https://nytimes.com/athletic/6809356/2025/11/19/ashes-perth-wicket-waca-australia/
+
+**Connections: Sports Edition Coach: Hints for Nov. 19, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6819126/2025/11/19/connections-sports-edition-hints-for-nov-19-2025/
+
+**Canada breaks goal drought, beats Venezuela in a lifeless environment**\
+`The choice of venue and opponent can be called into question, but Canada at the very least built some momentum heading into a World Cup year`\
+https://nytimes.com/athletic/6818543/2025/11/19/canada-venezuela-friendly-kone-david-marsch/
+
+**Seamus Coleman remains the beating heart for both club and country**\
+`Seamus Coleman was brought in from the cold by Ireland and was key to their remarkable week, but his role at Everton is more complicated`\
+https://nytimes.com/athletic/6816661/2025/11/19/seamus-coleman-republic-of-ireland-everton/
+
 **Inside the Jake Paul vs Anthony Joshua deal - with the man who made it happen**\
 `Nakisa Bidarian reveals how 'the biggest fight' of the year was quickly put together`\
 https://nytimes.com/athletic/6816826/2025/11/19/jake-paul-anthony-joshua-deal-nakisa-bidarian/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6814855/2025/11/19/mariano-diaz-real-madrid-ronaldo
 **Arsenal may be winning on the pitch, but Spurs are way ahead in the battle of stadiums**\
 `Tottenham's ability to host non-football events, such as concerts and boxing matches, during the football season has been a game-changer`\
 https://nytimes.com/athletic/6816716/2025/11/19/arsenal-spurs-emirates-stadium-v-tottenham-hotspur-stadium/
-
-**Find the gap: Why this season's Premier League table is so congested**\
-`Just three points separate third-placed Chelsea from Crystal Palace in 10th as the division's middle class flex their muscles`\
-https://nytimes.com/athletic/6816639/2025/11/19/congested-premier-league-table/
-
-**A guide to the normal and not so normal noises of Old Trafford on matchday**\
-`Ruben Amorim said the sound at Manchester United's last home game was "not normal" — this is our guide to Old Trafford's sounds`\
-https://nytimes.com/athletic/6816742/2025/11/19/old-trafford-sounds-amorim/
-
-**A New Site and 90 Brands Excite Dubai Watch Week**\
-`The fair’s 10th year also will include a 75th anniversary gala for Ahmed Seddiqi, the regional retailer that was a driving force behind its creation.`\
-https://nytimes.com/2025/11/19/fashion/dubai-watch-week-ahmed-seddiqi.html
-
-**Spain's team of many heroes and why they can repeat 'double' success of predecessors**\
-`There is confidence among the squad that they can follow a breakthrough Euros win with a World Cup triumph.`\
-https://nytimes.com/athletic/6816701/2025/11/19/spain-world-cup-euro-2024/
 

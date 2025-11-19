@@ -1,3 +1,7 @@
+**Scoot Henderson's return from torn hamstring "week-to-week," not imminent**\
+`The Trail Blazers initially said Henderson would return to basketball activity in four to eight weeks.`\
+https://nytimes.com/athletic/6819120/2025/11/19/scoot-henderson-torn-hamstring-inury-update/
+
 **Preparing Perth Stadium for Ashes cricket: A drop-in wicket, a 40-tonne transporter and sleepless nights**\
 `The ground is hosting its first Ashes Test but will replicate the pace and bounce that made the WACA, across the Swan River, so feared`\
 https://nytimes.com/athletic/6809356/2025/11/19/ashes-perth-wicket-waca-australia/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6814257/2025/11/19/premier-league-football-legal-co
 **Mariano Diaz took Ronaldo's No 7. His advice for Endrick? 'There is life beyond Real Madrid'**\
 `The former Real Madrid striker talks to The Athletic about the highs and lows of his career in the Spanish capital — and what happened next`\
 https://nytimes.com/athletic/6814855/2025/11/19/mariano-diaz-real-madrid-ronaldo-interview/
-
-**Arsenal may be winning on the pitch, but Spurs are way ahead in the battle of stadiums**\
-`Tottenham's ability to host non-football events, such as concerts and boxing matches, during the football season has been a game-changer`\
-https://nytimes.com/athletic/6816716/2025/11/19/arsenal-spurs-emirates-stadium-v-tottenham-hotspur-stadium/
 
