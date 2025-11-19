@@ -1,3 +1,7 @@
+**Scoop City: Emotional win for Dallas**\
+`Inside the Cowboys' struggle, plus Week 12 fantasy targets`\
+https://nytimes.com/athletic/6818926/2025/11/18/emotional-win-for-dallas-plus-finding-this-years-second-half-breakout-fantasy-wr/
+
 **Giants notes: Updates on 40-man additions, WBC participation and coaching hires**\
 `The Giants did not add to their roster before Tuesday's deadline.`\
 https://nytimes.com/athletic/6818814/2025/11/18/san-francisco-giants-notes-40-man-wbc-coaching-hires/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/18/climate/electic-vehicle-chargers-north-dakota.htm
 **In Washington, Birds Are Giving ‘Yelp Reviews’ of Forest Restoration Work**\
 `A collective of land trusts, conservancies and tribes is capturing birdsong with audio gear and A.I. for clues about habitat health.`\
 https://nytimes.com/2025/11/18/climate/washington-birds-habitat-health.html
-
-**Iowa City Made Its Buses Free. Traffic Cleared, and So Did the Air.**\
-`Ridership jumped, people cut back on driving and, over the summer, the city extended the program another year.`\
-https://nytimes.com/2025/11/18/climate/iowa-city-free-buses.html
 

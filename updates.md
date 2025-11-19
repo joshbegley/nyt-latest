@@ -1,3 +1,11 @@
+**Giants notes: Updates on 40-man additions, WBC participation and coaching hires**\
+`The Giants did not add to their roster before Tuesday's deadline.`\
+https://nytimes.com/athletic/6818814/2025/11/18/san-francisco-giants-notes-40-man-wbc-coaching-hires/
+
+**Ronaldo praised by Trump at White House dinner in his return to U.S.**\
+`The Portugal superstar has previously expressed a wish to meet Trump and talk about "peace"`\
+https://nytimes.com/athletic/6818863/2025/11/18/cristiano-ronaldo-trump-white-house-saudi/
+
 **Ronaldo praised by Trump at White House dinner in first U.S. visit since 2018**\
 `The Portugal superstar has previously expressed a wish to meet Trump and talk about "peace"`\
 https://nytimes.com/athletic/6818863/2025/11/18/cristiano-ronaldo-trump-white-house-saudi/

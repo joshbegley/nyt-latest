@@ -1,4 +1,8 @@
-**Ronaldo praised by Trump at White House dinner in first U.S. visit since 2018**\
+**Giants notes: Updates on 40-man additions, WBC participation and coaching hires**\
+`The Giants did not add to their roster before Tuesday's deadline.`\
+https://nytimes.com/athletic/6818814/2025/11/18/san-francisco-giants-notes-40-man-wbc-coaching-hires/
+
+**Ronaldo praised by Trump at White House dinner in his return to U.S.**\
 `The Portugal superstar has previously expressed a wish to meet Trump and talk about "peace"`\
 https://nytimes.com/athletic/6818863/2025/11/18/cristiano-ronaldo-trump-white-house-saudi/
 
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/18/climate/washington-birds-habitat-health.html
 **Iowa City Made Its Buses Free. Traffic Cleared, and So Did the Air.**\
 `Ridership jumped, people cut back on driving and, over the summer, the city extended the program another year.`\
 https://nytimes.com/2025/11/18/climate/iowa-city-free-buses.html
-
-**USMNT 5, Uruguay 1: Freeman, Berhalter make World Cup case in stunning rout**\
-`The USMNT absolutely overwhelmed its South American foe to head into the World Cup year in style`\
-https://nytimes.com/athletic/6818454/2025/11/18/usmnt-uruguay-friendly-freeman-berhalter-luna-pochettino/
 
