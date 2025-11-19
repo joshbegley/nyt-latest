@@ -1,4 +1,20 @@
-**‘Really Good Friends’: Trump Lauds Saudi Crown Prince During Lavish Visit**\
+**Congress Approves Bill to Release Epstein Files**\
+`All but one member of the House voted to pass a bill on Tuesday that demanded the Justice Department to release the Epstein files.`\
+https://nytimes.com/video/us/politics/100000010531913/house-passes-bill-release-epstein-files.html
+
+**Federal Judge Orders Some Texas Schools to Remove Ten Commandment Posters**\
+`The judge sided with families of students who had argued that the displays infringed on their religious freedom.`\
+https://nytimes.com/2025/11/18/us/politics/texas-ten-commandments.html
+
+**Warriors coach Steve Kerr calls for shorter season amid rising NBA injuries**\
+`Rising NBA soft tissue injuries worry Kerr, who points to nonstop games, extensive travel and limited practice time.`\
+https://nytimes.com/athletic/6818486/2025/11/18/steve-kerr-comments-soft-tissue-injuries-nba/
+
+**Wayne Gretzky shows at Canada friendly to give team talk**\
+`Canada has made a habit of bringing in some big names to address the men's national team in the run-up to the World Cup`\
+https://nytimes.com/athletic/6818560/2025/11/18/wayne-gretzky-canada-soccer-friendly-venezuela-team-talk/
+
+**Trump Lauds Saudi Prince in Lavish Visit, Brushing Off Journalist’s Killing**\
 `President Trump rejected a U.S. intelligence report finding that Crown Prince Mohammed bin Salman had ordered the murder of a journalist.`\
 https://nytimes.com/2025/11/18/us/politics/trump-saudi-crown-prince-visit.html
 
@@ -11,7 +27,7 @@ https://nytimes.com/2025/11/18/us/politics/clay-higgins-epstein-vote-no.html
 https://nytimes.com/2025/11/18/nyregion/new-york-doctor-japan-extradition.html
 
 **At $236.4 Million, Portrait by Klimt is Second Most Expensive Painting Sold at Auction**\
-`The portrait of Elisabeth Lederer, looted by the Nazis and spared from a blaze, was a highlight of the Sotheby’s evening sale.`\
+`The portrait of Elisabeth Lederer, looted by the Nazis and spared from a blaze, was a highlight of the Sotheby’s inaugural sale in its new home.`\
 https://nytimes.com/2025/11/18/arts/design/portrait-auction-record-klimt-sothebys.html
 
 **How to watch Browns vs. Raiders: Time, TV, streaming**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6818531/2025/11/18/browns-vs-raiders-stream-how-to-
 **How to watch Eagles vs. Cowboys: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Eagles play the Dallas Cowboys, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6818527/2025/11/18/eagles-vs-cowboys-stream-how-to-watch-nov-23/
-
-**How to watch Jaguars vs. Cardinals: Time, TV, streaming**\
-`Find out how to watch the Jacksonville Jaguars play the Arizona Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6818521/2025/11/18/jaguars-vs-cardinals-stream-how-to-watch-nov-23/
-
-**How to watch Falcons vs. Saints: Time, TV, streaming**\
-`Find out how to watch the Atlanta Falcons play the New Orleans Saints, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6818516/2025/11/18/falcons-vs-saints-stream-how-to-watch-nov-23/
-
-**Ricky Tiedemann joins Blue Jays pre-Rule 5 draft, could get 2026 role**\
-`Any player selected in the Rule 5 draft must stay on a 26-man roster throughout the 2026 season, or be returned to their original team.`\
-https://nytimes.com/athletic/6818494/2025/11/18/ricky-tiedemann-blue-jays-rule-5-draft/
-
-**Trump Said to Authorize C.I.A. Plans for Covert Action in Venezuela**\
-`The president has signed off on possible operations inside Venezuela but has also reopened back-channel communications with the government of President Nicolás Maduro.`\
-https://nytimes.com/2025/11/18/us/politics/trump-covert-action-venezuela.html
 

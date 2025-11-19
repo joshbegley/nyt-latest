@@ -1,3 +1,27 @@
+**Congress Approves Bill to Release Epstein Files**\
+`All but one member of the House voted to pass a bill on Tuesday that demanded the Justice Department to release the Epstein files.`\
+https://nytimes.com/video/us/politics/100000010531913/house-passes-bill-release-epstein-files.html
+
+**Federal Judge Orders Some Texas Schools to Remove Ten Commandment Posters**\
+`The judge sided with families of students who had argued that the displays infringed on their religious freedom.`\
+https://nytimes.com/2025/11/18/us/politics/texas-ten-commandments.html
+
+**Warriors coach Steve Kerr calls for shorter season amid rising NBA injuries**\
+`Rising NBA soft tissue injuries worry Kerr, who points to nonstop games, extensive travel and limited practice time.`\
+https://nytimes.com/athletic/6818486/2025/11/18/steve-kerr-comments-soft-tissue-injuries-nba/
+
+**Wayne Gretzky shows at Canada friendly to give team talk**\
+`Canada has made a habit of bringing in some big names to address the men's national team in the run-up to the World Cup`\
+https://nytimes.com/athletic/6818560/2025/11/18/wayne-gretzky-canada-soccer-friendly-venezuela-team-talk/
+
+**Trump Lauds Saudi Prince in Lavish Visit, Brushing Off Journalist’s Killing**\
+`President Trump rejected a U.S. intelligence report finding that Crown Prince Mohammed bin Salman had ordered the murder of a journalist.`\
+https://nytimes.com/2025/11/18/us/politics/trump-saudi-crown-prince-visit.html
+
+**At $236.4 Million, Portrait by Klimt is Second Most Expensive Painting Sold at Auction**\
+`The portrait of Elisabeth Lederer, looted by the Nazis and spared from a blaze, was a highlight of the Sotheby’s inaugural sale in its new home.`\
+https://nytimes.com/2025/11/18/arts/design/portrait-auction-record-klimt-sothebys.html
+
 **‘Really Good Friends’: Trump Lauds Saudi Crown Prince During Lavish Visit**\
 `President Trump rejected a U.S. intelligence report finding that Crown Prince Mohammed bin Salman had ordered the murder of a journalist.`\
 https://nytimes.com/2025/11/18/us/politics/trump-saudi-crown-prince-visit.html
