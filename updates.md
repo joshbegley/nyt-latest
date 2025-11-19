@@ -1,3 +1,11 @@
+**The New York Times in Print for Wednesday, Nov. 19, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/19/todays-new-york-times
+
+**Trump Proved That China Can Stand Up to America Now**\
+`His ill-conceived tariff war exposed U.S. vulnerabilities, strengthened China’s leverage and undermined America at a pivotal time.`\
+https://nytimes.com/2025/11/19/opinion/trump-china-xi-trade.html
+
 **Florida's Todd Golden delivers championship ring to Warriors' Will Richard**\
 `"I won one of these in college. I'm looking forward to winning one here. So let's do it," Richard said.`\
 https://nytimes.com/athletic/6819055/2025/11/19/florida-todd-golden-warriors-will-richard-ring/

@@ -1,3 +1,11 @@
+**The New York Times in Print for Wednesday, Nov. 19, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/19/todays-new-york-times
+
+**Trump Proved That China Can Stand Up to America Now**\
+`His ill-conceived tariff war exposed U.S. vulnerabilities, strengthened China’s leverage and undermined America at a pivotal time.`\
+https://nytimes.com/2025/11/19/opinion/trump-china-xi-trade.html
+
 **Florida's Todd Golden delivers championship ring to Warriors' Will Richard**\
 `"I won one of these in college. I'm looking forward to winning one here. So let's do it," Richard said.`\
 https://nytimes.com/athletic/6819055/2025/11/19/florida-todd-golden-warriors-will-richard-ring/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6816661/2025/11/19/seamus-coleman-republic-of-irela
 **Inside the Jake Paul vs Anthony Joshua deal - with the man who made it happen**\
 `Nakisa Bidarian reveals how 'the biggest fight' of the year was quickly put together`\
 https://nytimes.com/athletic/6816826/2025/11/19/jake-paul-anthony-joshua-deal-nakisa-bidarian/
-
-**Enzo Fernandez is crucial for Chelsea - the numbers and Maresca's selections prove it**\
-`The Argentina midfielder has made 221 appearances for club and country since February 2022. He's such a vital player he rarely gets a rest`\
-https://nytimes.com/athletic/6816605/2025/11/19/enzo-fernandez-chelsea-analysis-report/
-
-**What happens next for Liverpool's top talents Rio Ngumoha and Trey Nyoni?**\
-`With Premier League minutes hard to come by, Liverpool need to find a pathway to develop their best young players`\
-https://nytimes.com/athletic/6813940/2025/11/19/what-happens-next-for-liverpools-top-talents-rio-ngumoha-and-trey-nyoni/
 
