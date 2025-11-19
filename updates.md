@@ -1,3 +1,11 @@
+**Netherlands Hands Back Control of Chipmaker Nexperia**\
+`Uncertainty over the availability of the Chinese-owned company’s chips, which are used in cars and electronics, had added to concerns of a global shortage.`\
+https://nytimes.com/2025/11/19/business/nexperia-netherlands-china-chips.html
+
+**How do the Bucks survive without Giannis? It won't be easy**\
+`Several players, including Ryan Rollins, Kyle Kuzma and Myles Turner, will need to step up in the superstar's absence.`\
+https://nytimes.com/athletic/6818127/2025/11/19/bucks-giannis-antetokounmpo-injury-adjustment/
+
 **You thought Scotland would flunk their big World Cup chance? You haven't met this Scotland team**\
 `Making sense of one of the craziest nights in Scottish football's history - and what it means for World Cup 2026`\
 https://nytimes.com/athletic/6819581/2025/11/19/scotland-world-cup-denmark/

@@ -1,3 +1,7 @@
+**Cade Cunningham is cool in the clutch as red-hot Pistons win 11th straight**\
+`"You know the ball is in the right person's hands with the game on the line," Isaiah Stewart said of Cunningham.`\
+https://nytimes.com/athletic/6819229/2025/11/19/cade-cunningham-pistons-winning-streak-hawks/
+
 **Netherlands Hands Back Control of Chipmaker Nexperia**\
 `Uncertainty over the availability of the Chinese-owned company’s chips, which are used in cars and electronics, had added to concerns of a global shortage.`\
 https://nytimes.com/2025/11/19/business/nexperia-netherlands-china-chips.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6817209/2025/11/19/minneapolis-top-sports-cities-ch
 **To play or not to play: The case for and against making the conference championship**\
 `In the 12-team Playoff era, what are the pros and cons of an extra game before the main tournament?`\
 https://nytimes.com/athletic/6819518/2025/11/19/college-football-conference-championships-playoff/
-
-**As Browns' practice week begins, Shedeur Sanders can finally get reps with No. 1 offense**\
-`The lack of practice reps doesn’t excuse Sanders' poor performance in his debut against the Ravens, but it certainly didn’t help.`\
-https://nytimes.com/athletic/6818288/2025/11/19/browns-shedeur-sanders-practice-reps/
 
