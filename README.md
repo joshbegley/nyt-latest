@@ -1,3 +1,11 @@
+**Netherlands Hands Back Control of Chipmaker Nexperia**\
+`Uncertainty over the availability of the Chinese-owned company’s chips, which are used in cars and electronics, had added to concerns of a global shortage.`\
+https://nytimes.com/2025/11/19/business/nexperia-netherlands-china-chips.html
+
+**How do the Bucks survive without Giannis? It won't be easy**\
+`Several players, including Ryan Rollins, Kyle Kuzma and Myles Turner, will need to step up in the superstar's absence.`\
+https://nytimes.com/athletic/6818127/2025/11/19/bucks-giannis-antetokounmpo-injury-adjustment/
+
 **You thought Scotland would flunk their big World Cup chance? You haven't met this Scotland team**\
 `Making sense of one of the craziest nights in Scottish football's history - and what it means for World Cup 2026`\
 https://nytimes.com/athletic/6819581/2025/11/19/scotland-world-cup-denmark/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6819518/2025/11/19/college-football-conference-cham
 **As Browns' practice week begins, Shedeur Sanders can finally get reps with No. 1 offense**\
 `The lack of practice reps doesn’t excuse Sanders' poor performance in his debut against the Ravens, but it certainly didn’t help.`\
 https://nytimes.com/athletic/6818288/2025/11/19/browns-shedeur-sanders-practice-reps/
-
-**Bielsa on the brink: Humiliation vs USA puts Uruguay coach on pre-World Cup hot seat**\
-`Marcelo Bielsa took accountability for Uruguay's humbling loss to the U.S. Will he pay the ultimate price before the World Cup next summer?`\
-https://nytimes.com/athletic/6819213/2025/11/19/marcelo-bielsa-uruguay-manager-usa-loss-world-cup/
-
-**Ranking Jets' cap efficiency: Best and worst contracts, opportunities and alarm bells**\
-`There's no brighter spot than Morgan Barron, whose speed and strength make him unique on the Jets' roster. Who else is on the list?`\
-https://nytimes.com/athletic/6817464/2025/11/19/jets-cap-efficiency-contracts-opportunities-alarm-bells/
 
