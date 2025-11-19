@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6226492/2025/11/19/world-cup-2026-qualified-countri
 https://nytimes.com/athletic/6809356/2025/11/19/ashes-perth-wicket-waca-australia/
 
 **Cricket's final frontier: The quest to bowl consistently at 100mph**\
-`Mark Wood has put his body on the line to bowl as fast as he can and, once fit, may still become the fourth man to clock up 100mph `\
+`Mark Wood has put his body on the line to bowl as fast as he can and may still become the fourth man to clock up 100mph `\
 https://nytimes.com/athletic/6420977/2025/11/19/cricket-bowl-100mph-wood-archer-shoaib-holding-thomson/
 
 **Mark Wood included in 12-man England squad and set to play in first Ashes Test**\
