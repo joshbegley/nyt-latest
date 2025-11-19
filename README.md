@@ -1,3 +1,7 @@
+**Nvidia’s Profit Jumps 65% to $31.9 Billion. Is It Enough for Wall Street?**\
+`The company, which makes the computer chips essential to the artificial intelligence boom, also said revenue in its recent quarter rose to $57 billion.`\
+https://nytimes.com/2025/11/19/technology/nvidia-earnings.html
+
 **What’s in Our Queue? ‘The Luck and Strange Concerts’ and More**\
 `Text by Salman Masood`\
 https://nytimes.com/card/2025/11/19/arts/editors-recommendations-luckandstrangeconcerts
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/19/opinion/saudi-mbs-trump-khashoggi.html
 **Mark Cuban says Mavs won't trade Anthony Davis because 'we want to try to win'**\
 `The former Mavs majority owner also said he is serving as "an adviser" to current governor Patrick Dumont.`\
 https://nytimes.com/athletic/6820984/2025/11/19/mavericks-anthony-davis-trade-mark-cuban/
-
-**Stepbrother Under Investigation After Teen Dies on Cruise Ship**\
-`Anna Kepner, 18, was found dead on the Carnival Horizon on Nov. 8. Her stepbrother, 16, is under an investigation related to her death, his mother wrote this week in a legal filing.`\
-https://nytimes.com/2025/11/19/travel/teenager-death-cruise-ship-stepbrother-suspect.html
 

@@ -1,3 +1,19 @@
+**What’s in Our Queue? ‘The Luck and Strange Concerts’ and More**\
+`Text by Salman Masood`\
+https://nytimes.com/card/2025/11/19/arts/editors-recommendations-luckandstrangeconcerts
+
+**Klimt Art Is Second-Most Expensive Painting Ever Sold at Auction**\
+`At $236.4 million, a portrait of a woman by Gustav Klimt became the second-most expensive painting ever sold at auction. An 18-karat solid gold toilet by the artist Maurizio Cattelan sold for $12.1 million at the auction at Sotheby’s in New York on Tuesday.`\
+https://nytimes.com/video/us/100000010533650/portrait-auction-record-klimt-sothebys.html
+
+**Violence Continues in Nigeria Against Christians and Muslims**\
+`An attack on a church in central Nigeria happened as U.S. officials and celebrities criticized the country for the persecution of Christians. But there is no evidence to suggest that widespread violence in the country affects Christians more than any other groups.`\
+https://nytimes.com/video/world/africa/100000010533050/nigeria-persecution-trump.html
+
+**With 'safety' in mind, Aaron Rodgers hopes to practice Thursday, play Sunday vs. Bears**\
+`In his first comments since breaking his left wrist Sunday, Rodgers also addressed his ability to take snaps from under center.`\
+https://nytimes.com/athletic/6821358/2025/11/19/aaron-rodgers-broken-wrist-injury-update/
+
 **Houston lands 5-star center Arafan Diane: What it means for Cougars**\
 `Arafan Diane is the first recruit Houston has added in the 2026 recruiting cycle.`\
 https://nytimes.com/athletic/6821125/2025/11/19/houston-adds-arafan-diane-recruting/
