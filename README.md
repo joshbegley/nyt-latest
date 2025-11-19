@@ -1,3 +1,7 @@
+**Madrid's Militao expected to miss around two weeks with adductor injury**\
+`The 27-year-old could miss La Liga games against Elche, Girona and Athletic Club as well as a Champions League clash with Olympiacos.`\
+https://nytimes.com/athletic/6819877/2025/11/19/eder-militao-injury-real-madrid-latest/
+
 **NWSL Awards: How to watch and will anyone get in the way of Temwa Chawinga and MVP**\
 `Will the Kansas City Current forward be the first NWSL player to win back-to-back MVP honors?`\
 https://nytimes.com/athletic/6819779/2025/11/19/nwsl-awards-soccer-predictions-rookie-coach-mvp/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/19/business/dealbook/saudi-arabia-ceos-deals.html
 **Jessica Tisch Will Remain Police Commissioner Under Mamdani**\
 `Commissioner Tisch, the current head of the N.Y.P.D., said she had agreed to serve in Mayor-elect Zohran Mamdani’s administration.`\
 https://nytimes.com/2025/11/19/nyregion/jessica-tisch-nypd-commissioner-mamdani.html
-
-**As CFP rankings tighten, it's time for Notre Dame to (gasp) root for USC**\
-`The odds of everything breaking wrong and Notre Dame being left out feel remote, but they aren't zero.`\
-https://nytimes.com/athletic/6819804/2025/11/19/notre-dame-college-football-playoff-rankings-miami-usc/
 
