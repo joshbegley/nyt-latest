@@ -1,4 +1,4 @@
-**Sources: LeBron James to return to lineup after missing Lakers' first 14 games**\
+**LeBron James to return to lineup after missing Lakers' first 14 games**\
 `The Lakers went 10-4 without James, who has not played this season after being diagnosed with sciatic nerve irritation on his right side.`\
 https://nytimes.com/athletic/6814769/2025/11/18/lebron-james-injury-lakers-return-status/
 
