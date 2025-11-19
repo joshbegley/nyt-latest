@@ -1,3 +1,7 @@
+**Twins trade for reliever Eric Orze, add Connor Prielipp, five others to 40-man roster**\
+`Minnesota added immediate bullpen help by acquiring reliever Orze from Tampa Bay in exchange for Jacob Kisting.`\
+https://nytimes.com/athletic/6818497/2025/11/18/twins-2025-minor-league-eric-ozre-connor-prielipp/
+
 **Trump Ramps Up Redistricting Pressure on Indiana Republicans**\
 `After the State Senate said it would not take up a new map, President Trump said he would support primary challengers against Republicans who bucked him.`\
 https://nytimes.com/2025/11/18/us/indiana-redistricting-trump-republicans.html
