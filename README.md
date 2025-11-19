@@ -10,6 +10,10 @@ https://nytimes.com/athletic/6226492/2025/11/19/world-cup-2026-qualified-countri
 `The ground is hosting its first Ashes Test but will replicate the pace and bounce that made the WACA, across the Swan River, so feared`\
 https://nytimes.com/athletic/6809356/2025/11/19/ashes-perth-wicket-waca-australia/
 
+**Cricket's final frontier: The quest to bowl consistently at 100mph**\
+`Mark Wood has put his body on the line to bowl as fast as he can and, once fit, may still become the fourth man to clock up 100mph `\
+https://nytimes.com/athletic/6420977/2025/11/19/cricket-bowl-100mph-wood-archer-shoaib-holding-thomson/
+
 **Mark Wood included in 12-man England squad and set to play in first Ashes Test**\
 `The fast bowler has not played in a Test match since August 2024 and managed only eight overs in England's warm-up game against the Lions`\
 https://nytimes.com/athletic/6816667/2025/11/19/ashes-mark-wood-england-perth/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/19/us/nuclear-power-three-mile-island.html
 **Saudi Crown Prince Dines With Trump at the White House**\
 `President Trump stood shoulder-to-shoulder with Crown Prince Mohammad bin Salman of Saudi Arabia during a White House dinner on Tuesday. The room was packed with leaders from several industries.`\
 https://nytimes.com/video/us/politics/100000010532543/trump-saudi-dinner-guests.html
-
-**Stephen Colbert Celebrates ‘Epstein Rockin’ Eve’**\
-`“Stay up for a ball drop you’re going to want to miss,” the “Late Show” host said as Congress voted for the release of the Jeffrey Epstein files.`\
-https://nytimes.com/2025/11/19/arts/television/late-night-trump-epstein-files.html
 
