@@ -1,3 +1,7 @@
+**Ben Stokes calls on England to make 'history' by regaining the Ashes in Australia**\
+`The all-rounder is aiming to become only the sixth England captain to win a Test series Down Under since the end of the Second World War`\
+https://nytimes.com/athletic/6819827/2025/11/19/ben-stokes-england-ashes-australia-archer/
+
 **Zach Hyman's return gives Oilers a lift, but can he deliver in all areas?**\
 `Zach Hyman has returned, and he was missed. What will his impact be in the coming months?`\
 https://nytimes.com/athletic/6814705/2025/11/19/zach-hymans-oilers-return/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/19/us/politics/trumps-tariffs-trade-data.html
 **Melania Trump Goes Saudi Green**\
 `At the official dinner for Prince Mohammed bin Salman, the first lady offered an unexpected sign of allegiance.`\
 https://nytimes.com/2025/11/19/style/melania-trump-mohammed-bin-salman-dinner.html
-
-**Larry Summers Resigns From OpenAI’s Board**\
-`Mr. Summers’ departure from the artificial intelligence company’s board followed revelations of his communications with the disgraced financier Jeffrey Epstein.`\
-https://nytimes.com/2025/11/19/technology/larry-summers-resigns-from-openais-board.html
 

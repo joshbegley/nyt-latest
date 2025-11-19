@@ -1,3 +1,7 @@
+**Ben Stokes calls on England to make 'history' by regaining the Ashes in Australia**\
+`The all-rounder is aiming to become only the sixth England captain to win a Test series Down Under since the end of the Second World War`\
+https://nytimes.com/athletic/6819827/2025/11/19/ben-stokes-england-ashes-australia-archer/
+
 **Zach Hyman's return gives Oilers a lift, but can he deliver in all areas?**\
 `Zach Hyman has returned, and he was missed. What will his impact be in the coming months?`\
 https://nytimes.com/athletic/6814705/2025/11/19/zach-hymans-oilers-return/
