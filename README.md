@@ -1,3 +1,7 @@
+**Why the ‘America First’ President Keeps Looking Abroad**\
+`Trump keeps showing he is not as isolationist as many supporters had hoped.`\
+https://nytimes.com/2025/11/19/us/politics/trump-america-first-saudi-tariffs.html
+
 **Yann LeCun, a Pioneering A.I. Scientist, Leaves Meta**\
 `Dr. LeCun’s departure follows a shake-up in Meta’s artificial intelligence efforts, as Mark Zuckerberg pushes his company to keep up in the tech race.`\
 https://nytimes.com/2025/11/19/technology/yann-lecun-ai-scientist-meta.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/dining/100000010531266/honeyed-cranberries-with-tahini
 **Police Found $1 Million in a Tub Under a Garage. The Government Gets to Keep It.**\
 `A court ruled that the hidden cash, which the police found while searching for an illegal gun in Ontario, did not lawfully belong to the man living on the property.`\
 https://nytimes.com/2025/11/19/world/canada/canada-government-buried-money-raid.html
-
-**Crispy Ginger Sticky Rice**\
-`Inspired by a Chinese classic that translates to “flavorful rice,” this dish lives up to the name. Chewy sticky rice has a natural faint sweetness, and here it goes savory with bacon and mushrooms.`\
-https://nytimes.com/video/dining/100000010531459/crispy-ginger-sticky-rice.html
 
