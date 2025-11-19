@@ -1,3 +1,7 @@
+**Pope Leo XIV throws first pitch? Justin Ishbia, future White Sox 'steward,' extends invite**\
+`Ishbia said the pontiff was receptive to his invitation. But Opening Day with Pope Leo on the mound? You'd better get in line now.`\
+https://nytimes.com/athletic/6820934/2025/11/19/pope-leo-justin-ishbia-white-sox-invite/
+
 **Jets coach Aaron Glenn says Kris Boyd sounded 'really upbeat' when they spoke after shooting**\
 `The New York Jets head coach provided an update on Boyd's health, after the cornerback was shot early Sunday morning in New York.`\
 https://nytimes.com/athletic/6820845/2025/11/19/jets-kris-boyd-aaron-glenn-shot/
