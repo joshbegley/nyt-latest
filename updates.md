@@ -1,3 +1,7 @@
+**LeBron James makes a successful season-debut in win over Jazz**\
+`James posted 11 points and 12 assists in his first game of the season, firing up the home crowd and helping the Lakers beat the Jazz.`\
+https://nytimes.com/athletic/6819202/2025/11/19/lebron-james-returns-lakers-win-jazz/
+
 **Harvard Opens New Investigation Into Summers and Epstein**\
 `The university is reviewing newly released emails between convicted sex offender Jeffrey Epstein and former Harvard President Lawrence H. Summers, among other people at the institution.`\
 https://nytimes.com/2025/11/19/us/harvard-summers-epstein-investigation.html

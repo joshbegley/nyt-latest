@@ -1,3 +1,7 @@
+**LeBron James makes a successful season-debut in win over Jazz**\
+`James posted 11 points and 12 assists in his first game of the season, firing up the home crowd and helping the Lakers beat the Jazz.`\
+https://nytimes.com/athletic/6819202/2025/11/19/lebron-james-returns-lakers-win-jazz/
+
 **The New York Times in Print for Wednesday, Nov. 19, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/19/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6818543/2025/11/19/canada-venezuela-friendly-kone-d
 **Seamus Coleman remains the beating heart for both club and country**\
 `Seamus Coleman was brought in from the cold by Ireland and was key to their remarkable week, but his role at Everton is more complicated`\
 https://nytimes.com/athletic/6816661/2025/11/19/seamus-coleman-republic-of-ireland-everton/
-
-**Inside the Jake Paul vs Anthony Joshua deal - with the man who made it happen**\
-`Nakisa Bidarian reveals how 'the biggest fight' of the year was quickly put together`\
-https://nytimes.com/athletic/6816826/2025/11/19/jake-paul-anthony-joshua-deal-nakisa-bidarian/
 
