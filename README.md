@@ -1,3 +1,11 @@
+**Stephen Colbert Celebrates ‘Epstein Rockin’ Eve’**\
+`“Stay up for a ball drop you’re going to want to miss,” the “Late Show” host said as Congress voted for the release of the Jeffrey Epstein files.`\
+https://nytimes.com/2025/11/19/arts/television/late-night-trump-epstein-files.html
+
+**How to watch Buccaneers vs. Rams: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Buccaneers play the Los Angeles Rams, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6819309/2025/11/19/buccaneers-vs-rams-stream-how-to-watch-nov-23/
+
 **Word of the Day: umbrage**\
 `This word has appeared in 58 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/11/19/learning/word-of-the-day-umbrage.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6819120/2025/11/19/scoot-henderson-torn-hamstring-i
 **Preparing Perth Stadium for Ashes cricket: A drop-in wicket, a 40-tonne transporter and sleepless nights**\
 `The ground is hosting its first Ashes Test but will replicate the pace and bounce that made the WACA, across the Swan River, so feared`\
 https://nytimes.com/athletic/6809356/2025/11/19/ashes-perth-wicket-waca-australia/
-
-**Connections: Sports Edition Coach: Hints for Nov. 19, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6819126/2025/11/19/connections-sports-edition-hints-for-nov-19-2025/
-
-**Canada breaks goal drought, beats Venezuela in a lifeless environment**\
-`The choice of venue and opponent can be called into question, but Canada at the very least built some momentum heading into a World Cup year`\
-https://nytimes.com/athletic/6818543/2025/11/19/canada-venezuela-friendly-kone-david-marsch/
 
