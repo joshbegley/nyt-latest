@@ -1,3 +1,7 @@
+**Word of the Day: umbrage**\
+`This word has appeared in 58 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/19/learning/word-of-the-day-umbrage.html
+
 **LeBron James makes a successful season debut in win over Jazz**\
 `James posted 11 points and 12 assists in his first game of the season, firing up the home crowd and helping the Lakers beat the Jazz.`\
 https://nytimes.com/athletic/6819202/2025/11/19/lebron-james-returns-lakers-win-jazz/
