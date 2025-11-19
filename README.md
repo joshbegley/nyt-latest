@@ -34,7 +34,3 @@ https://nytimes.com/video/world/africa/100000010533050/nigeria-persecution-trump
 `Arafan Diane is the first recruit Houston has added in the 2026 recruiting cycle.`\
 https://nytimes.com/athletic/6821125/2025/11/19/houston-adds-arafan-diane-recruting/
 
-**CF Monterrey submits bid to sign Gutiérrez from Fire: Sources**\
-`The U.S. youth international will now count as a domestic player in Liga MX’s rules and could file a one-time switch to represent Mexico.`\
-https://nytimes.com/athletic/6821384/2025/11/19/monterrey-bid-brian-gutierrez-chicago-fire/
-
