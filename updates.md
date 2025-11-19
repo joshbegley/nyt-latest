@@ -1,3 +1,7 @@
+**Wendell Carter Jr. addresses relationship with Angel Reese: 'That's my girl'**\
+`Orlando center Wendell Carter Jr. spoke on a podcast about his relationship with Angel Reese. He was was equal parts vague and committal.`\
+https://nytimes.com/athletic/6821081/2025/11/19/wendell-carter-jr-angel-reese-relationship/
+
 **Pope Leo XIV throws first pitch? Justin Ishbia, future White Sox 'steward,' extends invite**\
 `Ishbia said the pontiff was receptive to his invitation. But Opening Day with Pope Leo on the mound? You'd better get in line now.`\
 https://nytimes.com/athletic/6820934/2025/11/19/pope-leo-justin-ishbia-white-sox-invite/
