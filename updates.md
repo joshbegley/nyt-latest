@@ -1,3 +1,7 @@
+**The state of NASCAR's Next Gen car: As big teams dominate, is there any hope for the rest?**\
+`NASCAR is exploring ways to boost parity, but it's tough. "We want to do that in a really smart way," league president Steve O'Donnell said.`\
+https://nytimes.com/athletic/6817596/2025/11/19/nascar-next-gen-car-hendrick-gibbs-penske-dominance/
+
 **Ben Stokes calls on England to make 'history' by regaining the Ashes in Australia**\
 `The all-rounder is aiming to become only the sixth England captain to win a Test series Down Under since the end of the Second World War`\
 https://nytimes.com/athletic/6819827/2025/11/19/ben-stokes-england-ashes-australia-archer/
