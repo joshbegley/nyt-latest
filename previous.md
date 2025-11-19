@@ -1,3 +1,11 @@
+**This Play Recruited Actors With Anorexia. Was That Ethical?**\
+`Some psychologists and parents argued that it risked glamorizing the condition, but one performer described the experience as empowering: “Onstage, I can be who I really am.”`\
+https://nytimes.com/2025/11/19/theater/anorexia-play.html
+
+**Arsenal to end eight-year Visit Rwanda sponsorship deal**\
+`The north London club's association with the tourist board was the subject of criticism and fan protests.`\
+https://nytimes.com/athletic/6819499/2025/11/19/arsenal-end-visit-rwanda-sponsorship-deal/
+
 **The White House Gold Rush Is On**\
 `They came bearing gifts. They left with what they wanted.`\
 https://nytimes.com/2025/11/19/opinion/rolex-gold-trump-corruption.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/19/us/as-border-patrol-floods-north-carolina-charlot
 **How Americans Feel About Immigrants and Immigration**\
 `A review of polls of the general public shows how opinions on immigration vary widely based on the details included in poll questions.`\
 https://nytimes.com/2025/11/19/polls/how-americans-feel-immigration.html
-
-**How to Utterly Miss the Point of the Jeffrey Epstein Story**\
-`Women’s pain is not entertainment.`\
-https://nytimes.com/2025/11/19/opinion/epstein-files-victims.html
-
-**6 Cobblestones Wrap Up a 6-Year Restoration Project**\
-`The project in Dumbo and Vinegar Hill, Brooklyn, involved replacing cobblestones and the infrastructure underneath them.`\
-https://nytimes.com/2025/11/19/nyregion/6-cobblestones-wrap-up-a-6-year-restoration-project.html
 

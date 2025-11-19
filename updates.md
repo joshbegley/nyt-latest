@@ -1,3 +1,11 @@
+**This Play Recruited Actors With Anorexia. Was That Ethical?**\
+`Some psychologists and parents argued that it risked glamorizing the condition, but one performer described the experience as empowering: “Onstage, I can be who I really am.”`\
+https://nytimes.com/2025/11/19/theater/anorexia-play.html
+
+**Arsenal to end eight-year Visit Rwanda sponsorship deal**\
+`The north London club's association with the tourist board was the subject of criticism and fan protests.`\
+https://nytimes.com/athletic/6819499/2025/11/19/arsenal-end-visit-rwanda-sponsorship-deal/
+
 **The White House Gold Rush Is On**\
 `They came bearing gifts. They left with what they wanted.`\
 https://nytimes.com/2025/11/19/opinion/rolex-gold-trump-corruption.html
