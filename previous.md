@@ -1,3 +1,7 @@
+**Must-See Moments From the N.B.A.**\
+`On Tuesday, LeBron James made his debut in a league-record 23rd season, the Detroit Pistons won their 11th straight game, the Orlando Magic took care of the Golden State Warriors, and De’Aaron Fox shined for the San Antonio Spurs.`\
+https://nytimes.com/video/sports/basketball/100000010532795/must-see-moments-from-the-nba.html
+
 **Russia Strikes Ukraine as Zelensky Aims to Revive Peace Talks**\
 `At least 10 people were killed in the western Ukrainian city of Ternopil when a Russian missile hit a residential building, a Ukrainian official said.`\
 https://nytimes.com/2025/11/19/world/europe/ukraine-russia-strikes-peace-talks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/19/nyregion/montclair-state-restructuring.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/11/19/crosswords/spelling-bee-forum.html
-
-**U.S. Loans $1 Billion to Three Mile Island Nuclear Project**\
-`The Pennsylvania site, shorthand for the dangers of nuclear power after a 1979 meltdown, is set for revival under a deal to power Microsoft data centers.`\
-https://nytimes.com/2025/11/19/us/nuclear-power-three-mile-island.html
 

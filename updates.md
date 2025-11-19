@@ -1,3 +1,7 @@
+**Must-See Moments From the N.B.A.**\
+`On Tuesday, LeBron James made his debut in a league-record 23rd season, the Detroit Pistons won their 11th straight game, the Orlando Magic took care of the Golden State Warriors, and De’Aaron Fox shined for the San Antonio Spurs.`\
+https://nytimes.com/video/sports/basketball/100000010532795/must-see-moments-from-the-nba.html
+
 **How Curacao became the smallest ever nation to qualify for the FIFA World Cup: "What an adventure"**\
 `The Caribbean island is only home to around 185,000 people, but their team have made history by earning a place at next summer's tournament`\
 https://nytimes.com/athletic/6819270/2025/11/19/curacao-world-cup-qualification-smallest-nation/
