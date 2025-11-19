@@ -1,3 +1,5 @@
+
+
 **UK government pledges to put 'fans first' with new ticket-touting crackdown**\
 `The government say the measures could reduce the average resale ticket price paid by £37 and save fans collectively £112 million per year.`\
 https://nytimes.com/athletic/6820172/2025/11/19/ticket-resale-price-ban-uk-government/
