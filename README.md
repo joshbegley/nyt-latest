@@ -1,3 +1,7 @@
+**NFL Week 12 survivor pool picks, strategy: Time to use the top teams**\
+`Adam Gretz and Renee Miller take your questions and give their own survivor pool advice for NFL Week 12. `\
+https://nytimes.com/athletic/6820040/2025/11/19/nfl-week-12-survivor-pool-picks-strategy-seahawks/
+
 **An F.B.I. Trainee Hung a Pride Flag Near His Desk. He Says He Was Fired for It.**\
 `He described his dismissal as the latest move by senior F.B.I. officials to play politics, damaging morale and hindering the bureau’s ability to carry out its public safety mission.`\
 https://nytimes.com/2025/11/19/us/politics/fbi-gay-pride-flag-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6820172/2025/11/19/ticket-resale-price-ban-uk-gover
 **U.K. Vows to Ban Resale of Concert Tickets Above Face Value**\
 `The move aims to prevent “touts,” or scalpers, from charging exorbitant prices for sought-after shows.`\
 https://nytimes.com/2025/11/19/arts/music/uk-tickets-resale-ban.html
-
-**Do Kink Encounters Have to Count as Cheating?**\
-`My desires won’t go away, but my partner’s not interested. Is there an ethical way to explore them?`\
-https://nytimes.com/2025/11/19/magazine/magazine-email/kink-encounters-cheating-ethics.html
 
