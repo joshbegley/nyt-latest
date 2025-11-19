@@ -1,3 +1,7 @@
+**Panthers’ Eetu Luostarinen out after suffering burns from barbecue accident**\
+`Luostarinen's injury is another blow to the Panthers, who have been without their two top forwards.`\
+https://nytimes.com/athletic/6820798/2025/11/19/eetu-luostarinen-burns-barbecue-accident-florida-panthers/
+
 **College Football Playoff 2025 projections: The most likely bracket entering Week 13**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/11/19/college-football-playoff-bracket-projections-odds/
