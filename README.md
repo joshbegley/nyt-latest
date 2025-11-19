@@ -1,40 +1,40 @@
-**Champions League football to return to Barca's Camp Nou for visit of Frankfurt**\
-`The match could also be the first time away supporters visit the renovated stadium.`\
-https://nytimes.com/athletic/6819451/2025/11/19/barcelona-camp-nou-champions-league/
+**The White House Gold Rush Is On**\
+`They came bearing gifts. They left with what they wanted.`\
+https://nytimes.com/2025/11/19/opinion/rolex-gold-trump-corruption.html
 
-**I’m Building an Algorithm That Doesn’t Rot Your Brain**\
-`The internet should enrich people, not advertisers.`\
-https://nytimes.com/video/opinion/100000010499738/patreon-algorithms-social-media-internet.html
+**Nvidia and Walmart Could Ease Wall St.’s Jitters. Or Make Them Worse.**\
+`After four consecutive down days, the stock market is looking increasingly queasy. Earnings reports from Nvidia, Walmart and Target could hint at what’s ahead.`\
+https://nytimes.com/2025/11/19/business/stock-market-nvidia-walmart-earnings.html
 
-**Must-See Moments From the N.B.A.**\
-`On Tuesday, LeBron James made his debut in a league-record 23rd season, the Detroit Pistons won their 11th straight game, the Orlando Magic took care of the Golden State Warriors, and De’Aaron Fox shined for the San Antonio Spurs.`\
-https://nytimes.com/video/sports/basketball/100000010532795/must-see-moments-from-the-nba.html
+**Should We Still Label Children as ‘Gifted’?**\
+`School districts across the United States are wrestling with the benefits and drawbacks of providing advanced education for some students. What do you think?`\
+https://nytimes.com/2025/11/19/learning/should-we-still-label-children-as-gifted.html
 
-**Russia Strikes Ukraine as Zelensky Aims to Revive Peace Talks**\
-`At least 10 people were killed in the western Ukrainian city of Ternopil when a Russian missile hit a residential building, a Ukrainian official said.`\
-https://nytimes.com/2025/11/19/world/europe/ukraine-russia-strikes-peace-talks.html
+**Comey’s Lawyers Head to Court to Argue Vindictive Prosecution by Trump**\
+`James B. Comey’s lawyers are expected to argue that the Justice Department effectively allowed itself to be taken captive by the president’s desire for political revenge.`\
+https://nytimes.com/2025/11/19/us/politics/comey-vindictive-prosecution-trump.html
 
-**How Curacao became the smallest ever nation to qualify for the FIFA World Cup: "What an adventure"**\
-`The Caribbean island is only home to around 185,000 people, but their team have made history by earning a place at next summer's tournament`\
-https://nytimes.com/athletic/6819270/2025/11/19/curacao-world-cup-qualification-smallest-nation/
+**What Are Fashion Expatriates Into? Home Design.**\
+`Somerset House, a five-year-old company that just opened a 10,000-square-foot showroom in Queens, is an example of what happens when fashion meets furniture.`\
+https://nytimes.com/2025/11/19/style/somerset-house-alan-eckstein.html
 
-**Which countries have qualified for the 2026 World Cup?**\
-`The Athletic's guide to who's qualified, how many places each confederation gets, and what stage qualification is at`\
-https://nytimes.com/athletic/6226492/2025/11/19/world-cup-2026-qualified-countries/
+**Zelensky Under Siege as Corruption Case Shatters Ukraine’s Wartime Unity**\
+`An anti-Zelensky political coalition is coalescing as the president’s allies are accused of enriching themselves while the country’s soldiers die on the battlefield.`\
+https://nytimes.com/2025/11/19/world/europe/ukraine-zelensky-corruption.html
 
-**Preparing Perth Stadium for Ashes cricket: A drop-in wicket, a 40-tonne transporter and sleepless nights**\
-`The ground is hosting its first Ashes Test but will replicate the pace and bounce that made the WACA, across the Swan River, so feared`\
-https://nytimes.com/athletic/6809356/2025/11/19/ashes-perth-wicket-waca-australia/
+**As Border Patrol Floods North Carolina, Charlotte Asks, ‘Why Us?’**\
+`Federal officials say they have arrested more than 200 people in Charlotte, shaking a budding metropolis far from any border that has welcomed waves of immigrants for decades.`\
+https://nytimes.com/2025/11/19/us/as-border-patrol-floods-north-carolina-charlotte-asks-why-us.html
 
-**Cricket's final frontier: The quest to bowl consistently at 100mph**\
-`Mark Wood has put his body on the line to bowl as fast as he can and may still become the fourth man to clock up 100mph `\
-https://nytimes.com/athletic/6420977/2025/11/19/cricket-bowl-100mph-wood-archer-shoaib-holding-thomson/
+**How Americans Feel About Immigrants and Immigration**\
+`A review of polls of the general public shows how opinions on immigration vary widely based on the details included in poll questions.`\
+https://nytimes.com/2025/11/19/polls/how-americans-feel-immigration.html
 
-**Mark Wood included in 12-man England squad and set to play in first Ashes Test**\
-`The fast bowler has not played in a Test match since August 2024 and managed only eight overs in England's warm-up game against the Lions`\
-https://nytimes.com/athletic/6816667/2025/11/19/ashes-mark-wood-england-perth/
+**How to Utterly Miss the Point of the Jeffrey Epstein Story**\
+`Women’s pain is not entertainment.`\
+https://nytimes.com/2025/11/19/opinion/epstein-files-victims.html
 
-**Seasonal Sadness**\
-`Do the darker, colder days affect your mood? What do you do about it if so?`\
-https://nytimes.com/2025/11/19/learning/seasonal-sadness.html
+**6 Cobblestones Wrap Up a 6-Year Restoration Project**\
+`The project in Dumbo and Vinegar Hill, Brooklyn, involved replacing cobblestones and the infrastructure underneath them.`\
+https://nytimes.com/2025/11/19/nyregion/6-cobblestones-wrap-up-a-6-year-restoration-project.html
 
