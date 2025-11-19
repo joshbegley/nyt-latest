@@ -1,3 +1,19 @@
+**Israeli Strikes Kill at Least 25 in Gaza Amid Truce, Officials Say**\
+`Israel’s military said it had launched attacks across Gaza after Palestinian militants shot at its troops. The six-week-old cease-fire has been pierced periodically by bursts of violence.`\
+https://nytimes.com/2025/11/19/world/middleeast/israeli-strikes-gaza-deaths.html
+
+**Union place Ernst Tanner on leave as MLS re-opens misconduct investigation**\
+`Philadelphia's sporting director is the subject of a workplace misconduct investigation`\
+https://nytimes.com/athletic/6820916/2025/11/19/philadelphia-union-mls-ernst-tanner-misconduct/
+
+**Trump Wanted to Abolish FEMA. His Own Advisers Disagree.**\
+`A panel convened by President Trump is said to have rejected the president’s idea that the agency should “go away.”`\
+https://nytimes.com/2025/11/19/climate/fema-review-council-report-trump.html
+
+**Data Centers in Space**\
+`Kevin Roose and Casey Newton, the hosts of “Hard Fork,” discuss Google’s Project Suncatcher, one of a number of companies’ ambitious plans to build solar-powered data centers in space. As the demands for electricity increase, is this our only option?`\
+https://nytimes.com/video/podcasts/100000010530997/data-centers-in-space.html
+
 **Tina Brown on What’s Happened to Meghan and Harry**\
 `The longtime journalist Tina Brown has covered some of the biggest personalities in politics and culture. On “The Interview,” Brown shares her thoughts on Prince Harry and Meghan Markle making their way in the world since their departure as senior members of the British royal family.`\
 https://nytimes.com/video/podcasts/100000010530581/tina-brown-on-whats-happened-to-meghan-and-harry.html
@@ -17,16 +33,4 @@ https://nytimes.com/athletic/6818905/2025/11/19/mlb-espn-tv-deal-rob-manfred/
 **Family Who Died While Visiting Istanbul May Have Been Poisoned, Authorities Say**\
 `Four members of the Bocek family, including two young children, died while visiting Turkey from Germany this month. The authorities have arrested 11 people in the case.`\
 https://nytimes.com/2025/11/19/world/middleeast/istanbul-germany-family-death-poisoning.html
-
-**Lane Kiffin expects to coach Egg Bowl, dodges questions about Ole Miss future**\
-`Ole Miss head coach Lane Kiffin avoided directly answering questions about his future during Wednesday's SEC coaches teleconference.`\
-https://nytimes.com/athletic/6820940/2025/11/19/lane-kiffin-ole-miss-egg-bowl-lsu-florida/
-
-**Shocking Orioles-Angels trade might make sense for both teams**\
-`In a late-night twist, the Orioles traded their 2018 first-round pick to the Angels for a league-average left fielder who crushes southpaws.`\
-https://nytimes.com/athletic/6820812/2025/11/19/orioles-angels-trade-grayson-rodriguez-taylor-ward/
-
-**Early Signs Point to a Harsh Flu Season in the U.S.**\
-`The virus circulating this year is more virulent and has been spreading faster and earlier than usual.`\
-https://nytimes.com/2025/11/19/health/flu-season-us.html
 

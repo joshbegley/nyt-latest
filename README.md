@@ -1,3 +1,19 @@
+**Do You Use A.I. for College Application Advice?**\
+`We want to hear about it.`\
+https://nytimes.com/2025/11/19/style/chatgpt-ai-college-application-advice.html
+
+**Police Officer and Ex-Mayor Is Charged With Sexually Assaulting a Child**\
+`The attack took place when the child was home alone, prosecutors said. The accused assailant, Sgt. Andrew LaBruno, ran unsuccessfully for the New Jersey State Legislature this year.`\
+https://nytimes.com/2025/11/19/nyregion/police-officer-jersey-city-sexual-assault.html
+
+**Thanksgiving Tiramisù Recipes**\
+`Tiramisù delivers every time. When it comes to eating it, especially after a feast like Thanksgiving, there’s a lightness to the layers of soft cream and caky soaked ladyfingers that lets you enjoy bite after bite without feeling too stuffed.`\
+https://nytimes.com/video/dining/100000010531272/thanksgiving-tiramisu-recipes.html
+
+**Bonnie Munshin, Velvet Hammer at a Hamptons Hot Spot, Dies at 84**\
+`At Nick & Toni’s, the restaurant in East Hampton, N.Y., beloved by both celebrities and locals, she kept all happy and fed, and the looky-loos at bay.`\
+https://nytimes.com/2025/11/19/dining/bonnie-munshin-dead.html
+
 **Israeli Strikes Kill at Least 25 in Gaza Amid Truce, Officials Say**\
 `Israel’s military said it had launched attacks across Gaza after Palestinian militants shot at its troops. The six-week-old cease-fire has been pierced periodically by bursts of violence.`\
 https://nytimes.com/2025/11/19/world/middleeast/israeli-strikes-gaza-deaths.html
@@ -17,20 +33,4 @@ https://nytimes.com/video/podcasts/100000010530997/data-centers-in-space.html
 **Tina Brown on What’s Happened to Meghan and Harry**\
 `The longtime journalist Tina Brown has covered some of the biggest personalities in politics and culture. On “The Interview,” Brown shares her thoughts on Prince Harry and Meghan Markle making their way in the world since their departure as senior members of the British royal family.`\
 https://nytimes.com/video/podcasts/100000010530581/tina-brown-on-whats-happened-to-meghan-and-harry.html
-
-**Rosalía on Reading and the Podcast Era**\
-`The musician Rosalía is on the “Popcast” podcast to tell you to put down the phone and pick up a book.`\
-https://nytimes.com/video/podcasts/100000010528039/rosalia-on-reading-and-the-podcast-era.html
-
-**Cheesy Gnocchi With Corn and Pesto**\
-`Tasty and effortless, store-bought gnocchi offers a much-needed shortcut for busy weeknight dinners. You can bypass boiling a pot of water for the gnocchi, and instead simply give them a quick sear over high heat, which creates perfectly crispy edges.`\
-https://nytimes.com/video/dining/100000010531263/cheesy-gnocchi-with-corn-and-pesto.html
-
-**After near-billion-dollar blunder, MLB's Rob Manfred puts on rally cap with new TV deals**\
-`MLB rallied from its spring snafu with its TV rights into a solid foundation for the next three years and beyond.`\
-https://nytimes.com/athletic/6818905/2025/11/19/mlb-espn-tv-deal-rob-manfred/
-
-**Family Who Died While Visiting Istanbul May Have Been Poisoned, Authorities Say**\
-`Four members of the Bocek family, including two young children, died while visiting Turkey from Germany this month. The authorities have arrested 11 people in the case.`\
-https://nytimes.com/2025/11/19/world/middleeast/istanbul-germany-family-death-poisoning.html
 

@@ -1,3 +1,19 @@
+**Israeli Strikes Kill at Least 25 in Gaza Amid Truce, Officials Say**\
+`Israel’s military said it had launched attacks across Gaza after Palestinian militants shot at its troops. The six-week-old cease-fire has been pierced periodically by bursts of violence.`\
+https://nytimes.com/2025/11/19/world/middleeast/israeli-strikes-gaza-deaths.html
+
+**Union place Ernst Tanner on leave as MLS re-opens misconduct investigation**\
+`Philadelphia's sporting director is the subject of a workplace misconduct investigation`\
+https://nytimes.com/athletic/6820916/2025/11/19/philadelphia-union-mls-ernst-tanner-misconduct/
+
+**Trump Wanted to Abolish FEMA. His Own Advisers Disagree.**\
+`A panel convened by President Trump is said to have rejected the president’s idea that the agency should “go away.”`\
+https://nytimes.com/2025/11/19/climate/fema-review-council-report-trump.html
+
+**Data Centers in Space**\
+`Kevin Roose and Casey Newton, the hosts of “Hard Fork,” discuss Google’s Project Suncatcher, one of a number of companies’ ambitious plans to build solar-powered data centers in space. As the demands for electricity increase, is this our only option?`\
+https://nytimes.com/video/podcasts/100000010530997/data-centers-in-space.html
+
 **Tina Brown on What’s Happened to Meghan and Harry**\
 `The longtime journalist Tina Brown has covered some of the biggest personalities in politics and culture. On “The Interview,” Brown shares her thoughts on Prince Harry and Meghan Markle making their way in the world since their departure as senior members of the British royal family.`\
 https://nytimes.com/video/podcasts/100000010530581/tina-brown-on-whats-happened-to-meghan-and-harry.html
