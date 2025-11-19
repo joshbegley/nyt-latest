@@ -1,8 +1,16 @@
+**Which teams are in which pots for the World Cup draw?**\
+`The latest FIFA rankings have been released, so we have the clearest idea yet of what the pots will look like for the December 5 draw`\
+https://nytimes.com/athletic/6820230/2025/11/19/world-cup-draw-pots-explained/
+
+**Michael Penix Jr. to undergo season-ending surgery for partially torn ACL**\
+`The injury continues a troubling trend of knee ailments that dates back to college.`\
+https://nytimes.com/athletic/6814651/2025/11/19/michael-penix-falcons-season-ending-injury/
+
 **Colts designate Charvarius Ward to return from IR; CB could play vs. KC**\
 `Week 12 could be the first time Ward plays alongside Colts trade acquisition and fellow cornerback Sauce Gardner. `\
 https://nytimes.com/athletic/6817579/2025/11/19/colts-charvarius-concussion-chiefs/
 
-**MoneyCall: The best women's sports city**\
+**The best women's sports city: MoneyCall**\
 `Welcome to MoneyCall, The Athletic's sports business newsletter.`\
 https://nytimes.com/athletic/6820402/2025/11/19/best-womens-sports-city-moneycall/
 
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6820519/2025/11/19/oilers-vs-capitals-stream-how-to
 **Saudi Arabia Backs Elon Musk’s xAI With Data Center Deal**\
 `Mr. Musk’s xAI will work with the Saudi artificial intelligence company Humain on a new data center, part of Crown Prince Mohammed bin Salman’s effort to diversify his country’s economy.`\
 https://nytimes.com/2025/11/19/technology/saudi-arabia-elon-musk-xai.html
-
-**Browns to start Shedeur Sanders against Raiders, Stefanski says**\
-`Since 1999, 17 Browns quarterbacks have made their starting debut as rookies. All 17 lost their first starts.`\
-https://nytimes.com/athletic/6820387/2025/11/19/shedeur-sanders-browns-raiders-start/
-
-**NHL won't further discipline Stars' Mikko Rantanen for boarding call: Source**\
-`Rantanen was given a five-minute major penalty and a 10-minute game misconduct for boarding Islanders defenseman Alexander Romanov.`\
-https://nytimes.com/athletic/6820065/2025/11/19/islanders-stars-mikko-rantanen-alexander-romanov-nhl/
 
