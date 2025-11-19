@@ -1,3 +1,7 @@
+**What’s in Our Queue? ‘The Luck and Strange Concerts’ and More**\
+`Text by Salman Masood`\
+https://nytimes.com/card/2025/11/19/arts/editors-recommendations-luckandstrangeconcerts
+
 **Klimt Art Is Second-Most Expensive Painting Ever Sold at Auction**\
 `At $236.4 million, a portrait of a woman by Gustav Klimt became the second-most expensive painting ever sold at auction. An 18-karat solid gold toilet by the artist Maurizio Cattelan sold for $12.1 million at the auction at Sotheby’s in New York on Tuesday.`\
 https://nytimes.com/video/us/100000010533650/portrait-auction-record-klimt-sothebys.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6820984/2025/11/19/mavericks-anthony-davis-trade-ma
 **Stepbrother Under Investigation After Teen Dies on Cruise Ship**\
 `Anna Kepner, 18, was found dead on the Carnival Horizon on Nov. 8. Her stepbrother, 16, is under an investigation related to her death, his mother wrote this week in a legal filing.`\
 https://nytimes.com/2025/11/19/travel/teenager-death-cruise-ship-stepbrother-suspect.html
-
-**The Artist Who Makes Clay Look Like Navels, Nipples and Vertebrae**\
-`For more than five decades, the ceramist Magdalene Odundo has been making abstract, time-intensive vessels that recall bodies in motion.`\
-https://nytimes.com/2025/11/19/t-magazine/magdalene-odundo-xavier-hufkens.html
 
