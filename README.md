@@ -1,4 +1,8 @@
-**‘Really Good Friends’: Trump Lauds Saudi Crown Prince During Lavish Visit**\
+**Wayne Gretzky shows at Canada friendly to give team talk**\
+`Canada has made a habit of bringing in some big names to address the men's national team in the run-up to the World Cup`\
+https://nytimes.com/athletic/6818560/2025/11/18/wayne-gretzky-canada-soccer-friendly-venezuela-team-talk/
+
+**Trump Lauds Saudi Prince in Lavish Visit, Brushing Off Journalist’s Killing**\
 `President Trump rejected a U.S. intelligence report finding that Crown Prince Mohammed bin Salman had ordered the murder of a journalist.`\
 https://nytimes.com/2025/11/18/us/politics/trump-saudi-crown-prince-visit.html
 
@@ -11,7 +15,7 @@ https://nytimes.com/2025/11/18/us/politics/clay-higgins-epstein-vote-no.html
 https://nytimes.com/2025/11/18/nyregion/new-york-doctor-japan-extradition.html
 
 **At $236.4 Million, Portrait by Klimt is Second Most Expensive Painting Sold at Auction**\
-`The portrait of Elisabeth Lederer, looted by the Nazis and spared from a blaze, was a highlight of the Sotheby’s evening sale.`\
+`The portrait of Elisabeth Lederer, looted by the Nazis and spared from a blaze, was a highlight of the Sotheby’s inaugural sale in its new home.`\
 https://nytimes.com/2025/11/18/arts/design/portrait-auction-record-klimt-sothebys.html
 
 **How to watch Browns vs. Raiders: Time, TV, streaming**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6818516/2025/11/18/falcons-vs-saints-stream-how-to-
 **Ricky Tiedemann joins Blue Jays pre-Rule 5 draft, could get 2026 role**\
 `Any player selected in the Rule 5 draft must stay on a 26-man roster throughout the 2026 season, or be returned to their original team.`\
 https://nytimes.com/athletic/6818494/2025/11/18/ricky-tiedemann-blue-jays-rule-5-draft/
-
-**Trump Said to Authorize C.I.A. Plans for Covert Action in Venezuela**\
-`The president has signed off on possible operations inside Venezuela but has also reopened back-channel communications with the government of President Nicolás Maduro.`\
-https://nytimes.com/2025/11/18/us/politics/trump-covert-action-venezuela.html
 
