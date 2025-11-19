@@ -1,3 +1,7 @@
+**Welcome to football's age of lawfare - bitter, belligerent and eyewateringly expensive**\
+`In the past, football avoided the court room where possible. Now, legal battles are becoming more frequent`\
+https://nytimes.com/athletic/6814257/2025/11/19/premier-league-football-legal-costs/
+
 **Mariano Diaz took Ronaldo's No 7. His advice for Endrick? 'There is life beyond Real Madrid'**\
 `The former Real Madrid striker talks to The Athletic about the highs and lows of his career in the Spanish capital — and what happened next`\
 https://nytimes.com/athletic/6814855/2025/11/19/mariano-diaz-real-madrid-ronaldo-interview/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/11/19/climate/home-insurance-premiums-costs
 **Watching Man Utd's Jess Park with her agent, who's also a rugby league player**\
 `We sat with the agent of Jess Park during a game to discuss her rise and how he uses his sporting experience to help his players.`\
 https://nytimes.com/athletic/6817937/2025/11/19/ryan-brierley-jess-park-wsl-rugby-league/
-
-**Smoking Weed Could Lead to Less Drinking, New Study Suggests**\
-`In a makeshift bar on a college campus, researchers studied how smoking cannabis affected alcohol consumption.`\
-https://nytimes.com/2025/11/19/well/weed-cannabis-alcohol-drinking.html
 
