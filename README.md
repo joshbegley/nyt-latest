@@ -1,3 +1,7 @@
+**Yann LeCun, a Pioneering A.I. Scientist, Leaves Meta**\
+`Dr. LeCun’s departure follows a shake-up in Meta’s artificial intelligence efforts, as Mark Zuckerberg pushes his company to keep up in the tech race.`\
+https://nytimes.com/2025/11/19/technology/yann-lecun-ai-scientist-meta.html
+
 **Are These Buzzy New N.Y.C. Restaurants Worth a Visit?**\
 `This fall, The Times’s Food contributor Luke Fortney checked in on three of New York City’s biggest restaurant openings, all a few blocks apart in the West Village.`\
 https://nytimes.com/video/dining/100000010533040/are-these-buzzy-new-nyc-restaurants-worth-a-visit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/19/world/canada/canada-government-buried-money-raid.
 **Crispy Ginger Sticky Rice**\
 `Inspired by a Chinese classic that translates to “flavorful rice,” this dish lives up to the name. Chewy sticky rice has a natural faint sweetness, and here it goes savory with bacon and mushrooms.`\
 https://nytimes.com/video/dining/100000010531459/crispy-ginger-sticky-rice.html
-
-**U.S.-Russian Peace Plan Would Force Ukraine to Cede Land and Cut Army**\
-`The 28-point proposal, which comes as the Trump administration tries to restart settlement talks, includes demands long rejected by Kyiv as  nonstarters.`\
-https://nytimes.com/2025/11/19/world/europe/us-russia-ukraine-peace-plan.html
 
