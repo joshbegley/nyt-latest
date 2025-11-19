@@ -1,3 +1,7 @@
+**I Want to Give My Ex a Gift That’s Nice — But Not Too Nice. What Should I Get?**\
+`Plus: what to get a sick mother, a minimalist son and more holiday present advice from T Magazine.`\
+https://nytimes.com/2025/11/19/t-magazine/holiday-gift-ideas.html
+
 **Nvidia’s Profit Jumps 65% to $31.9 Billion. Is It Enough for Wall Street?**\
 `The company, which makes the computer chips essential to the artificial intelligence boom, also said revenue in its recent quarter rose to $57 billion.`\
 https://nytimes.com/2025/11/19/technology/nvidia-earnings.html
