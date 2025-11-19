@@ -1,3 +1,7 @@
+**James Franklin cries during Virginia Tech introduction**\
+`As Franklin weighed his options about where to coach next, he said the way Brent Pry spoke about Virginia Tech was influential.`\
+https://nytimes.com/athletic/6820728/2025/11/19/james-franklin-virginia-tech-introduction-conference/
+
 **Saudi Arabia’s Return to Washington**\
 `David Sanger, a White House and national security correspondent, describes how the crown prince of Saudi Arabia, a pariah after the killing of Jamal Khashoggi, has become a dealmaker in Washington.`\
 https://nytimes.com/video/us/politics/100000010531003/saudi-arabias-return-to-washington.html

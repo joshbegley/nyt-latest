@@ -1,3 +1,7 @@
+**James Franklin cries during Virginia Tech introduction**\
+`As Franklin weighed his options about where to coach next, he said the way Brent Pry spoke about Virginia Tech was influential.`\
+https://nytimes.com/athletic/6820728/2025/11/19/james-franklin-virginia-tech-introduction-conference/
+
 **Saudi Arabia’s Return to Washington**\
 `David Sanger, a White House and national security correspondent, describes how the crown prince of Saudi Arabia, a pariah after the killing of Jamal Khashoggi, has become a dealmaker in Washington.`\
 https://nytimes.com/video/us/politics/100000010531003/saudi-arabias-return-to-washington.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6820667/2025/11/19/football-club-ban-fan-referee-se
 **Panthers, Rangers Winter Classic jerseys dip into the past**\
 `Teams wearing themed jerseys became a big part of the equation that made the Winter Classic a winner for the league.`\
 https://nytimes.com/athletic/6820411/2025/11/19/winter-classic-jerseys-rangers-panthers/
-
-**My List: A Different Kind of Review Contest**\
-`Choose three to five works of art or culture to group in some way, then tell us why we should — or shouldn’t — check them out. Contest dates: Jan. 14-Feb. 25, 2026.`\
-https://nytimes.com/2025/11/19/learning/my-list-a-different-kind-of-review-contest.html
 
