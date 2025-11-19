@@ -1,40 +1,40 @@
-**In defending USMNT depth, Pochettino baffled by questions after Uruguay win**\
-`It didn't take much to spoil Mauricio Pochettino's mood on an otherwise celebratory night for the USMNT.`\
-https://nytimes.com/athletic/6819061/2025/11/18/mauricio-pochettino-press-conference-usa-uruguay-depth-starters/
+**America’s Home Insurance Affordability Crunch: See What’s Happening Near You.**\
+`A climate ‘shock’ in the insurance market has started to affect home prices in areas most exposed to wildfires and hurricanes, new research shows.`\
+https://nytimes.com/interactive/2025/11/19/climate/home-insurance-premiums-costs-usa.html
 
-**McClaren quits Jamaica after failing to directly qualify for World Cup**\
-`Jamaica can still qualify through the inter-confederation playoffs in March, but they'll have a new manager`\
-https://nytimes.com/athletic/6819000/2025/11/18/steve-mcclaren-resigns-jamaica-manager-world-cup-qualifying/
+**Watching Man Utd's Jess Park with her agent, who's also a rugby league player**\
+`We sat with the agent of Jess Park during a game to discuss her rise and how he uses his sporting experience to help his players.`\
+https://nytimes.com/athletic/6817937/2025/11/19/ryan-brierley-jess-park-wsl-rugby-league/
 
-**Angels trade Taylor Ward to Orioles for pitcher Grayson Rodriguez**\
-`The first major trade of the offseason sends a slugging outfielder to Baltimore and a young arm to Anaheim.`\
-https://nytimes.com/athletic/6818971/2025/11/18/angels-orioles-taylor-ward-grayson-rodriguez-trade/
+**Smoking Weed Could Lead to Less Drinking, New Study Suggests**\
+`In a makeshift bar on a college campus, researchers studied how smoking cannabis affected alcohol consumption.`\
+https://nytimes.com/2025/11/19/well/weed-cannabis-alcohol-drinking.html
 
-**How Duke outlasted Kansas in Champions Classic to move to 5-0**\
-`A 21-7 run to close the first half gave Duke the cushion it needed to defeat Kansas in Madison Square Garden.`\
-https://nytimes.com/athletic/6818981/2025/11/18/duke-kansas-score-result/
+**Who are this season's unsung heroes in the Premier League's 'Big Six'?**\
+`Six players who have demonstrated a quiet efficiency with the top flight's elite sides so far in 2025-26...`\
+https://nytimes.com/athletic/6789236/2025/11/19/premier-league-big-six-unsung-heroes/
 
-**Brewers don't see Brandon Woodruff's return as prelude to potential Freddy Peralta trade**\
-`Together, Woodruff and Peralta are set to make around $30 million in 2026.`\
-https://nytimes.com/athletic/6818897/2025/11/18/brewers-potential-freddy-peralta-trade/
+**Quote of the Day: President Offers Pomp and Praise in Welcoming Saudi Crown Prince**\
+`Quotation of the Day for Wednesday, November 19, 2025.`\
+https://nytimes.com/2025/11/19/pageoneplus/quote-of-the-day-president-offers-pomp-and-praise-in-welcoming-saudi-crown-prince.html
 
-**Tyler Skaggs' Angels teammate testifies about his drug transactions with Eric Kay**\
-`"It's impossible for anyone to understand what it's like to play at the MLB level," Mike Morin said through tears on Tuesday. `\
-https://nytimes.com/athletic/6818909/2025/11/18/tyler-skaggs-trial-angels-mike-morin/
+**A Climate ‘Shock’ Is Eroding Some Home Values. New Data Shows How Much.**\
+`Changes in the insurance market have started to affect home prices in the most disaster-prone areas, new research finds, pushing some homeowners’ finances to the breaking point.`\
+https://nytimes.com/interactive/2025/11/19/climate/home-insurance-costs-real-estate-market.html
 
-**The 2025 Michelin Stars Awarded for the Northeast and Chicago**\
-`A restaurant in New York gets three stars, and Philadelphia and Boston are included for the first time.`\
-https://nytimes.com/2025/11/18/dining/the-2025-michelin-stars-awarded-for-the-northeast-and-chicago.html
+**Fantasy football rankings Week 12: Sleepers, starts, best rollercoasters**\
+`Jake Ciely shares his player rankings and notes for Week 12, including a strong reason why Rome Odunze could have a bounce-back performance.`\
+https://nytimes.com/athletic/6818247/2025/11/19/fantasy-football-rankings-week-12-sleepers-starts/
 
-**Curaçao becomes smallest nation ever to qualify for men's World Cup**\
-`Move over Cape Verde. Curaçao is now the smallest nation to ever qualify for the World Cup`\
-https://nytimes.com/athletic/6816600/2025/11/18/curacao-smallest-nation-world-cup-2026-teams/
+**Corrections: Nov. 19, 2025**\
+`Corrections that appeared in print on Wednesday, Nov. 19, 2025.`\
+https://nytimes.com/2025/11/19/pageoneplus/corrections-nov-19-2025.html
 
-**WNBA proposes max salary above $1.1 million in latest proposal to WNBPA**\
-`The league’s proposal also included a minimum salary of more than $220,000.`\
-https://nytimes.com/athletic/6818721/2025/11/18/wnba-cba-negotiation-update-player-salary/
+**Europe’s Chip Dreams Confront Business Realities**\
+`European chipmakers need TSMC’s help to grow their own semiconductor supply chain, but the chip giant’s Taiwanese suppliers find Europe a tough place to do business.`\
+https://nytimes.com/2025/11/19/technology/europe-tsmc-chips.html
 
-**‘This World of Tomorrow’ Review: Tom Hanks Is Back in Town**\
-`The movie star plays a man from the future at the 1939 New York World’s Fair in an adaptation of some of his stories. Kelli O’Hara shines as his love interest.`\
-https://nytimes.com/2025/11/18/theater/this-world-of-tomorrow-review-tom-hanks.html
+**In the A.I. Race, Chinese Talent Still Drives American Research**\
+`Although some Silicon Valley executives paint China as the enemy, Chinese brains continue to play a major role in U.S. research.`\
+https://nytimes.com/2025/11/19/technology/ai-research-chinese-talent.html
 

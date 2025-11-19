@@ -1,3 +1,7 @@
+**In defending USMNT depth, Pochettino baffled by questions after Uruguay win**\
+`It didn't take much to spoil Mauricio Pochettino's mood on an otherwise celebratory night for the USMNT.`\
+https://nytimes.com/athletic/6819061/2025/11/18/mauricio-pochettino-press-conference-usa-uruguay-depth-starters/
+
 **McClaren quits Jamaica after failing to directly qualify for World Cup**\
 `Jamaica can still qualify through the inter-confederation playoffs in March, but they'll have a new manager`\
 https://nytimes.com/athletic/6819000/2025/11/18/steve-mcclaren-resigns-jamaica-manager-world-cup-qualifying/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6818721/2025/11/18/wnba-cba-negotiation-update-play
 **‘This World of Tomorrow’ Review: Tom Hanks Is Back in Town**\
 `The movie star plays a man from the future at the 1939 New York World’s Fair in an adaptation of some of his stories. Kelli O’Hara shines as his love interest.`\
 https://nytimes.com/2025/11/18/theater/this-world-of-tomorrow-review-tom-hanks.html
-
-**Scoop City: Emotional win for Dallas**\
-`Inside the Cowboys' struggle, plus Week 12 fantasy targets`\
-https://nytimes.com/athletic/6818926/2025/11/18/emotional-win-for-dallas-plus-finding-this-years-second-half-breakout-fantasy-wr/
 
