@@ -1,3 +1,7 @@
+**Word of the Day: umbrage**\
+`This word has appeared in 58 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/19/learning/word-of-the-day-umbrage.html
+
 **LeBron James makes a successful season debut in win over Jazz**\
 `James posted 11 points and 12 assists in his first game of the season, firing up the home crowd and helping the Lakers beat the Jazz.`\
 https://nytimes.com/athletic/6819202/2025/11/19/lebron-james-returns-lakers-win-jazz/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6819126/2025/11/19/connections-sports-edition-hints
 **Canada breaks goal drought, beats Venezuela in a lifeless environment**\
 `The choice of venue and opponent can be called into question, but Canada at the very least built some momentum heading into a World Cup year`\
 https://nytimes.com/athletic/6818543/2025/11/19/canada-venezuela-friendly-kone-david-marsch/
-
-**Seamus Coleman remains the beating heart for both club and country**\
-`Seamus Coleman was brought in from the cold by Ireland and was key to their remarkable week, but his role at Everton is more complicated`\
-https://nytimes.com/athletic/6816661/2025/11/19/seamus-coleman-republic-of-ireland-everton/
 
