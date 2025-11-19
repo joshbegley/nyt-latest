@@ -1,3 +1,11 @@
+**Trump Says He Will Approve the Release of the Epstein Files. But There Are Loopholes.**\
+`The bill has not yet been presented to the president, and it wasn’t clear when it might reach his desk.`\
+https://nytimes.com/2025/11/19/us/politics/trump-epstein-files-loopholes.html
+
+**Connor Bedard, Macklin Celebrini score hat tricks on the same night, continue Art Ross push**\
+`Macklin Celebrini, 19, and Connor Bedard, 20, are both making a case for the Art Ross Trophy.`\
+https://nytimes.com/athletic/6820671/2025/11/19/connor-bedard-macklin-celebrini-blackhawks-sharks-hat-trick/
+
 **NFL Week 12 survivor pool picks, strategy: Time to use the top teams**\
 `Adam Gretz and Renee Miller take your questions and give their own survivor pool advice for NFL Week 12. `\
 https://nytimes.com/athletic/6820040/2025/11/19/nfl-week-12-survivor-pool-picks-strategy-seahawks/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/19/learning/my-list-a-different-kind-of-review-conte
 **MLB lands new media deals with NBC, Netflix and ESPN to restructure future**\
 `The three-year agreements were a direct result of ESPN opting out of the final three seasons of its contract in February.`\
 https://nytimes.com/athletic/6820362/2025/11/19/mlb-tv-deals-espn-nbc-netflix-peacock/
-
-**UK government pledges to put 'fans first' with new ticket-touting crackdown**\
-`The government say the measures could reduce the average resale ticket price paid by £37 and save fans collectively £112 million per year.`\
-https://nytimes.com/athletic/6820172/2025/11/19/ticket-resale-price-ban-uk-government/
-
-**U.K. Vows to Ban Resale of Concert Tickets Above Face Value**\
-`The move aims to prevent “touts,” or scalpers, from charging exorbitant prices for sought-after shows.`\
-https://nytimes.com/2025/11/19/arts/music/uk-tickets-resale-ban.html
 
