@@ -1,4 +1,4 @@
-**Ronaldo praised by Trump at White House dinner in first U.S. visit since 2018**\
+**Ronaldo praised by Trump at White House dinner in his return to U.S.**\
 `The Portugal superstar has previously expressed a wish to meet Trump and talk about "peace"`\
 https://nytimes.com/athletic/6818863/2025/11/18/cristiano-ronaldo-trump-white-house-saudi/
 
