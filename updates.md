@@ -1,3 +1,7 @@
+**Curaçao becomes smallest nation ever to qualify for men's World Cup**\
+`Move over Cape Verde. Curaçao is now the smallest nation to ever qualify for the World Cup`\
+https://nytimes.com/athletic/6816600/2025/11/18/curacao-smallest-nation-world-cup-2026-teams/
+
 **WNBA proposes max salary above $1.1 million in latest proposal to WNBPA**\
 `The league’s proposal also included a minimum salary of more than $220,000.`\
 https://nytimes.com/athletic/6818721/2025/11/18/wnba-cba-negotiation-update-player-salary/

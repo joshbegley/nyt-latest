@@ -1,3 +1,7 @@
+**The 2025 Michelin Stars Awarded for the Northeast and Chicago**\
+`A restaurant in New York gets three stars, and Philadelphia and Boston are included for the first time.`\
+https://nytimes.com/2025/11/18/dining/the-2025-michelin-stars-awarded-for-the-northeast-and-chicago.html
+
 **Curaçao becomes smallest nation ever to qualify for men's World Cup**\
 `Move over Cape Verde. Curaçao is now the smallest nation to ever qualify for the World Cup`\
 https://nytimes.com/athletic/6816600/2025/11/18/curacao-smallest-nation-world-cup-2026-teams/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/18/crosswords/daily-puzzle-2025-11-19.html
 **House Rejects Censuring Plaskett For Texts With Epstein In 2019**\
 `Three Republicans voted with nearly every Democrat in the House to defeat an effort to formally reprimand Delegate Stacey Plaskett, Democrat of the Virgin Islands.`\
 https://nytimes.com/2025/11/18/us/politics/stacey-plaskett-house-censure-epstein.html
-
-**In Nebraska, Makeovers for Buildings That Don’t Price Out the Locals**\
-`In a struggling area of Lincoln, a program pays for repairs and energy efficiency upgrades in rental buildings. In return, landlords must keep rents affordable.`\
-https://nytimes.com/2025/11/18/climate/nebraska-energy-efficiency.html
 
