@@ -1,3 +1,7 @@
+**Twins trade for reliever Eric Orze, add Connor Prielipp, five others to 40-man roster**\
+`The Twins also added immediate bullpen help when they acquired reliever Eric Orze from Tampa Bay in exchange for Jacob Kisting.`\
+https://nytimes.com/athletic/6818497/2025/11/18/twins-2025-minor-league-eric-ozre-connor-prielipp/
+
 **Once a Pariah, Saudi Prince Resets U.S. Relations on His Own Terms**\
 `Seven years ago, Crown Prince Mohammed bin Salman couldn’t visit Washington. When he arrived at the White House on Tuesday, he got F-35s, the world’s fastest chips and the central role in the remaking of the Middle East.`\
 https://nytimes.com/2025/11/18/us/politics/prince-mohammed-trump-us-saudi-arabia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/18/us/politics/clay-higgins-epstein-vote-no.html
 **N.Y. Doctor Accused of Desecration Can Be Sent to Japan, Court Rules**\
 `A federal appeals court ruled that Masahide Kanayama, an obstetrician and fervent Christian, may be extradited to face charges of vandalism.`\
 https://nytimes.com/2025/11/18/nyregion/new-york-doctor-japan-extradition.html
-
-**At $236.4 Million, Portrait by Klimt is Second Most Expensive Painting Sold at Auction**\
-`The portrait of Elisabeth Lederer, looted by the Nazis and spared from a blaze, was a highlight of the Sotheby’s inaugural sale in its new home.`\
-https://nytimes.com/2025/11/18/arts/design/portrait-auction-record-klimt-sothebys.html
 
