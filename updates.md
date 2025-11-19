@@ -1,3 +1,5 @@
+
+
 **This Play Recruited Actors With Anorexia. Was That Ethical?**\
 `Some psychologists and parents argued that it risked glamorizing the condition, but one performer described the experience as empowering: “Onstage, I can be who I really am.”`\
 https://nytimes.com/2025/11/19/theater/anorexia-play.html
