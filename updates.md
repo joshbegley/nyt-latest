@@ -1,3 +1,7 @@
+**IIHF says neck guards will be mandatory at 2026 Winter Olympics in Milan-Cortina**\
+`In February 2024, 78.45 percent of NHL players who participated in an Athletic players poll opposed the idea of a neck-guard mandate. `\
+https://nytimes.com/athletic/6820384/2025/11/19/olympics-neck-guards-iihf/
+
 **Which teams are in which pots for the World Cup draw?**\
 `The latest FIFA rankings have been released, so we have the clearest idea yet of what the pots will look like for the December 5 draw`\
 https://nytimes.com/athletic/6820230/2025/11/19/world-cup-draw-pots-explained/
