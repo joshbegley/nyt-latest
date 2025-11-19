@@ -1,3 +1,19 @@
+**Deion Sanders says he's still 'the right man' for Colorado, pleads for patience**\
+`Outgoing athletic director Rick George wrote on social media that Sanders' seat "is not hot."`\
+https://nytimes.com/athletic/6819999/2025/11/19/deion-sanders-colorado-job-security/
+
+**Randy Jones, Padres' Cy Young winner, dies at 75**\
+`Jones, who was inducted into the Padres Hall of Fame in 1999, was a fan favorite.`\
+https://nytimes.com/athletic/6820267/2025/11/19/randy-jones-san-diego-padres-pitcher-dies/
+
+**Review: A Cozy ‘Arabella’ Returns to the Met Opera**\
+`The latest revival of Richard Strauss and Hugo von Hofmannsthal’s final opera was a night of promising debuts and mixed success.`\
+https://nytimes.com/2025/11/19/arts/music/arabella-met-opera-review.html
+
+**The Bounce: Is Steve Kerr right that the NBA season is too long? Plus, LeBron returns**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6820287/2025/11/19/the-bounce-is-steve-kerr-right-that-the-nba-season-is-too-long-plus-lebron-returns/
+
 **Blues prospect mailbag: Submit your questions for Tim Taylor, head of player development**\
 `Submit your questions here, and The Athletic will present a selection to Taylor. His responses will appear in an upcoming article.`\
 https://nytimes.com/athletic/6820275/2025/11/19/blues-prospects-tim-taylor-mailbag/
