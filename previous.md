@@ -1,3 +1,11 @@
+**In Nebraska, Makeovers for Buildings That Don’t Price Out the Locals**\
+`In a struggling area of Lincoln, a program pays for repairs and energy efficiency upgrades in rental buildings. In return, landlords must keep rents affordable.`\
+https://nytimes.com/2025/11/18/climate/nebraska-energy-efficiency-50-states-50-fixes.html
+
+**‘Freedom Comes to My Mind’: Saving Family Legacy and Land in South Carolina**\
+`Conservation can be tough when a property is passed down informally over generations with no clear title. A growing effort is helping families sort it all out.`\
+https://nytimes.com/2025/11/18/climate/south-carolina-land-title-ownership.html
+
 **Driving an E.V. Across North Dakota? Thank the Standing Rock Tribe.**\
 `A tribally owned network of chargers will soon be complete, connecting reservations and bridging a gap in the Midwest.`\
 https://nytimes.com/2025/11/18/climate/electic-vehicle-chargers-north-dakota.html
@@ -23,18 +31,10 @@ https://nytimes.com/athletic/6818569/2025/11/18/college-football-playoff-third-r
 https://nytimes.com/athletic/6814769/2025/11/18/lebron-james-injury-lakers-return-status/
 
 **Short-handed Kentucky's issues exposed in blowout loss to Michigan State**\
-`Kentucky entered the season with Final Four expectations, but is now 0-2 against high-major foes.`\
+`Kentucky entered the season with Final Four expectations but is now 0-2 against high-major foes.`\
 https://nytimes.com/athletic/6818571/2025/11/18/michigan-state-kentucky-score-result/
 
 **Trump Ramps Up Redistricting Pressure on Indiana Republicans**\
 `After the State Senate said it would not take up a new map, President Trump said he would support primary challengers against Republicans who bucked him.`\
 https://nytimes.com/2025/11/18/us/indiana-redistricting-trump-republicans.html
-
-**Democratic Lawmakers Tell Military to Refuse Illegal Orders**\
-`Six lawmakers, who all served in the military or the intelligence community, released the message in a video. The Trump administration sharply criticized the effort.`\
-https://nytimes.com/2025/11/18/us/politics/democratic-lawmakers-illegal-orders.html
-
-**Twins trade for reliever Eric Orze, add Connor Prielipp, five others to 40-man roster**\
-`Minnesota added immediate bullpen help by acquiring reliever Orze from Tampa Bay in exchange for Jacob Kisting.`\
-https://nytimes.com/athletic/6818497/2025/11/18/twins-2025-minor-league-eric-ozre-connor-prielipp/
 

@@ -34,7 +34,3 @@ https://nytimes.com/athletic/6814769/2025/11/18/lebron-james-injury-lakers-retur
 `Kentucky entered the season with Final Four expectations but is now 0-2 against high-major foes.`\
 https://nytimes.com/athletic/6818571/2025/11/18/michigan-state-kentucky-score-result/
 
-**Trump Ramps Up Redistricting Pressure on Indiana Republicans**\
-`After the State Senate said it would not take up a new map, President Trump said he would support primary challengers against Republicans who bucked him.`\
-https://nytimes.com/2025/11/18/us/indiana-redistricting-trump-republicans.html
-

@@ -1,3 +1,15 @@
+**In Nebraska, Makeovers for Buildings That Don’t Price Out the Locals**\
+`In a struggling area of Lincoln, a program pays for repairs and energy efficiency upgrades in rental buildings. In return, landlords must keep rents affordable.`\
+https://nytimes.com/2025/11/18/climate/nebraska-energy-efficiency-50-states-50-fixes.html
+
+**‘Freedom Comes to My Mind’: Saving Family Legacy and Land in South Carolina**\
+`Conservation can be tough when a property is passed down informally over generations with no clear title. A growing effort is helping families sort it all out.`\
+https://nytimes.com/2025/11/18/climate/south-carolina-land-title-ownership.html
+
+**Short-handed Kentucky's issues exposed in blowout loss to Michigan State**\
+`Kentucky entered the season with Final Four expectations but is now 0-2 against high-major foes.`\
+https://nytimes.com/athletic/6818571/2025/11/18/michigan-state-kentucky-score-result/
+
 **Driving an E.V. Across North Dakota? Thank the Standing Rock Tribe.**\
 `A tribally owned network of chargers will soon be complete, connecting reservations and bridging a gap in the Midwest.`\
 https://nytimes.com/2025/11/18/climate/electic-vehicle-chargers-north-dakota.html
