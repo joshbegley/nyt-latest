@@ -1,3 +1,11 @@
+**Brewers don't see Brandon Woodruff's return as prelude to potential Freddy Peralta trade**\
+`Together, Woodruff and Peralta are set to make around $30 million in 2026.`\
+https://nytimes.com/athletic/6818897/2025/11/18/brewers-potential-freddy-peralta-trade/
+
+**Tyler Skaggs' Angels teammate testifies about his drug transactions with Eric Kay**\
+`"It's impossible for anyone to understand what it's like to play at the MLB level," Mike Morin said through tears on Tuesday. `\
+https://nytimes.com/athletic/6818909/2025/11/18/tyler-skaggs-trial-angels-mike-morin/
+
 **The 2025 Michelin Stars Awarded for the Northeast and Chicago**\
 `A restaurant in New York gets three stars, and Philadelphia and Boston are included for the first time.`\
 https://nytimes.com/2025/11/18/dining/the-2025-michelin-stars-awarded-for-the-northeast-and-chicago.html
@@ -29,8 +37,4 @@ https://nytimes.com/athletic/6818863/2025/11/18/cristiano-ronaldo-trump-white-ho
 **Creep Into a Creek**\
 `Jeremy Newton can’t get no satisfaction.`\
 https://nytimes.com/2025/11/18/crosswords/daily-puzzle-2025-11-19.html
-
-**House Rejects Censuring Plaskett For Texts With Epstein In 2019**\
-`Three Republicans voted with nearly every Democrat in the House to defeat an effort to formally reprimand Delegate Stacey Plaskett, Democrat of the Virgin Islands.`\
-https://nytimes.com/2025/11/18/us/politics/stacey-plaskett-house-censure-epstein.html
 
