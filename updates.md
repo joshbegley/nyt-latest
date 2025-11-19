@@ -1,3 +1,15 @@
+**Florida's Todd Golden delivers championship ring to Warriors' Will Richard**\
+`"I won one of these in college. I'm looking forward to winning one here. So let's do it," Richard said.`\
+https://nytimes.com/athletic/6819055/2025/11/19/florida-todd-golden-warriors-will-richard-ring/
+
+**Harvard Says It Is Investigating Ties Between Summers and Epstein**\
+`The university is reviewing newly released emails between convicted sex offender Jeffrey Epstein and former Harvard President Lawrence H. Summers, among other people at the institution.`\
+https://nytimes.com/2025/11/19/us/harvard-summers-epstein-investigation.html
+
+**Scoot Henderson's return from torn hamstring 'week to week,' not imminent**\
+`The Trail Blazers initially said Henderson would return to basketball activity in four to eight weeks.`\
+https://nytimes.com/athletic/6819120/2025/11/19/scoot-henderson-torn-hamstring-inury-update/
+
 **Scoot Henderson's return from torn hamstring "week-to-week," not imminent**\
 `The Trail Blazers initially said Henderson would return to basketball activity in four to eight weeks.`\
 https://nytimes.com/athletic/6819120/2025/11/19/scoot-henderson-torn-hamstring-inury-update/
