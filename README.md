@@ -1,3 +1,7 @@
+**The state of NASCAR's Next Gen car: As big teams dominate, is there any hope for the rest?**\
+`NASCAR is exploring ways to boost parity, but it's tough. "We want to do that in a really smart way," league president Steve O'Donnell says.`\
+https://nytimes.com/athletic/6817596/2025/11/19/nascar-next-gen-car-hendrick-gibbs-penske-dominance/
+
 **Madrid's Militao expected to miss around two weeks with adductor injury**\
 `The 27-year-old could miss La Liga games against Elche, Girona and Athletic Club as well as a Champions League clash with Olympiacos.`\
 https://nytimes.com/athletic/6819877/2025/11/19/eder-militao-injury-real-madrid-latest/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/19/technology/larry-summers-resigns-from-openais-boa
 **The C.E.O.s Who Came to Dinner (With the Saudi Crown Prince)**\
 `The presence of business leaders at a White House event for Crown Prince Mohammed bin Salman underscores a deepening of U.S. and Saudi ties.`\
 https://nytimes.com/2025/11/19/business/dealbook/saudi-arabia-ceos-deals.html
-
-**Jessica Tisch Will Remain Police Commissioner Under Mamdani**\
-`Commissioner Tisch, the current head of the N.Y.P.D., said she had agreed to serve in Mayor-elect Zohran Mamdani’s administration.`\
-https://nytimes.com/2025/11/19/nyregion/jessica-tisch-nypd-commissioner-mamdani.html
 
