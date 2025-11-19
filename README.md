@@ -1,3 +1,11 @@
+**With 'safety' in mind, Aaron Rodgers hopes to practice Thursday, play Sunday vs. Bears**\
+`In his first comments since breaking his left wrist on Sunday, Rodgers also addressed his ability to take snaps from under center.`\
+https://nytimes.com/athletic/6821358/2025/11/19/aaron-rodgers-broken-wrist-injury-update/
+
+**What Happened to Europe’s Terrorism Problem?**\
+`Not that long ago, big attacks were a daily concern. We look at why it feels different now.`\
+https://nytimes.com/2025/11/19/world/europes-terrorism-isis-russia-nvidia.html
+
 **Trump’s Fawning Meeting With the Saudi Prince Was a Disgrace**\
 `Working with imperfect partners does not mean that the United States should cover up and lie about their misdeeds.`\
 https://nytimes.com/2025/11/19/opinion/saudi-mbs-trump-khashoggi.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6821216/2025/11/19/mets-announce-coaching-staff-car
 **Driver Who Killed Mother and Daughters Sentenced to 3 to 9 Years**\
 `Miriam Yarimi, a wig maker with a big social media presence, ran a red light in Brooklyn before slamming into the family members. The deaths spurred calls for increased traffic safety.`\
 https://nytimes.com/2025/11/19/nyregion/wigmaker-hit-and-run-sentence.html
-
-**Henry Todd, LSD Kingpin Turned Everest Guide, Dies at 80**\
-`He helped make and distribute millions of LSD tablets in the 1970s. After seven years in prison, he ran mountain climbing expeditions in the Himalayas.`\
-https://nytimes.com/2025/11/19/world/asia/henry-todd-dead.html
-
-**Wendell Carter Jr. addresses relationship with Angel Reese: 'That's my girl'**\
-`Orlando center Wendell Carter Jr. spoke on a podcast about his relationship with Angel Reese. He was was equal parts vague and committal.`\
-https://nytimes.com/athletic/6821081/2025/11/19/wendell-carter-jr-angel-reese-relationship/
 

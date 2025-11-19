@@ -1,3 +1,7 @@
+**Trump’s Fawning Meeting With the Saudi Prince Was a Disgrace**\
+`Working with imperfect partners does not mean that the United States should cover up and lie about their misdeeds.`\
+https://nytimes.com/2025/11/19/opinion/saudi-mbs-trump-khashoggi.html
+
 **Mark Cuban says Mavs won't trade Anthony Davis because 'we want to try to win'**\
 `The former Mavs majority owner also said he is serving as "an adviser" to current governor Patrick Dumont.`\
 https://nytimes.com/athletic/6820984/2025/11/19/mavericks-anthony-davis-trade-mark-cuban/
