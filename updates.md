@@ -1,3 +1,24 @@
+**Mark Makers – Esi Eggleston Bracey**\
+`The Moment I Chopped Off My Hair — and Started a Movement
+`\
+https://nytimes.com/paidpost/nyta/mark-makers/mark-makers-esi-eggleston-bracey.html
+
+**Saudi Arabia’s Prince Has Big Plans, but His Giant Fund Is Low on Cash**\
+`After nearly a decade of expensive, hit-and-miss investments, Mohammed bin Salman is overseeing a behind-the-scenes restructuring of the kingdom’s all-important wealth fund.`\
+https://nytimes.com/2025/11/19/business/pif-saudi-arabia-fund-problems.html
+
+**The World Craves A.I. Chips**\
+`Also, a corruption scandal is roiling Ukraine. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/11/19/briefing/nvidia-ai-chips-ukraine-corruption.html
+
+**Mamdani and Tisch Agreed to Work Together. Here’s Where They Differ.**\
+`The New York City mayor-to-be, Zohran Mamdani, and the head of the Police Department, Jessica Tisch, have gaps to bridge on crime and policing.`\
+https://nytimes.com/2025/11/19/nyregion/mamdani-tisch-what-to-know.html
+
+**Morocco's Hakimi and Chebbak win 2025 CAF Footballer of the Year awards**\
+`Hakimi, who finished runner-up to Ademola Lookman in 2024, hopes to be fit for AFCON in December.`\
+https://nytimes.com/athletic/6821529/2025/11/19/caf-awards-2025-hakimi-morocco-football/
+
 **Stalled Contempt Inquiry Into Deportation Flights Springs Back to Life**\
 `The resurrected inquiry could finally get to the bottom of lingering questions such as: Did top Trump administration officials purposely ignore a court order?`\
 https://nytimes.com/2025/11/19/us/politics/contempt-inquiry-deportation-flights.html

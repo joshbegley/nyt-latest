@@ -1,3 +1,24 @@
+**Mark Makers – Esi Eggleston Bracey**\
+`The Moment I Chopped Off My Hair — and Started a Movement
+`\
+https://nytimes.com/paidpost/nyta/mark-makers/mark-makers-esi-eggleston-bracey.html
+
+**Saudi Arabia’s Prince Has Big Plans, but His Giant Fund Is Low on Cash**\
+`After nearly a decade of expensive, hit-and-miss investments, Mohammed bin Salman is overseeing a behind-the-scenes restructuring of the kingdom’s all-important wealth fund.`\
+https://nytimes.com/2025/11/19/business/pif-saudi-arabia-fund-problems.html
+
+**The World Craves A.I. Chips**\
+`Also, a corruption scandal is roiling Ukraine. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/11/19/briefing/nvidia-ai-chips-ukraine-corruption.html
+
+**Mamdani and Tisch Agreed to Work Together. Here’s Where They Differ.**\
+`The New York City mayor-to-be, Zohran Mamdani, and the head of the Police Department, Jessica Tisch, have gaps to bridge on crime and policing.`\
+https://nytimes.com/2025/11/19/nyregion/mamdani-tisch-what-to-know.html
+
+**Morocco's Hakimi and Chebbak win 2025 CAF Footballer of the Year awards**\
+`Hakimi, who finished runner-up to Ademola Lookman in 2024, hopes to be fit for AFCON in December.`\
+https://nytimes.com/athletic/6821529/2025/11/19/caf-awards-2025-hakimi-morocco-football/
+
 **Stalled Contempt Inquiry Into Deportation Flights Springs Back to Life**\
 `The resurrected inquiry could finally get to the bottom of lingering questions such as: Did top Trump administration officials purposely ignore a court order?`\
 https://nytimes.com/2025/11/19/us/politics/contempt-inquiry-deportation-flights.html
@@ -17,20 +38,4 @@ https://nytimes.com/athletic/6821471/2025/11/19/bruins-charlie-mcavoy-surgery-fa
 **Believe It or Not, That $12 Million Gold Toilet Was Bought by … Ripley’s**\
 `The entertainment company plans on displaying the toilet, saying its team is exploring “whether visitors may someday be allowed to use it.”`\
 https://nytimes.com/2025/11/19/arts/design/gold-toilet-owner-ripleys.html
-
-**Mexico Is Not Just the Top Supplier to the U.S. Now It Is the Top Buyer.**\
-`For first time in at least 30 years, the United States has exported more to Mexico than Canada, U.S. government data show, in a sign of how much North American trade has consolidated.`\
-https://nytimes.com/2025/11/19/world/americas/us-mexico-trade.html
-
-**I Want to Give My Ex a Gift That’s Nice — But Not Too Nice. What Should I Get?**\
-`Plus: what to get a sick mother, a minimalist son and more holiday present advice from T Magazine.`\
-https://nytimes.com/2025/11/19/t-magazine/holiday-gift-ideas.html
-
-**Nvidia’s Profit Jumps 65% to $31.9 Billion. Is It Enough for Wall Street?**\
-`The company, which makes the computer chips essential to the artificial intelligence boom, also said revenue in its recent quarter rose to $57 billion.`\
-https://nytimes.com/2025/11/19/technology/nvidia-earnings.html
-
-**What’s in Our Queue? ‘The Luck and Strange Concerts’ and More**\
-`Text by Salman Masood`\
-https://nytimes.com/card/2025/11/19/arts/editors-recommendations-luckandstrangeconcerts
 
