@@ -1,3 +1,11 @@
+**Houston lands 5-star center Arafan Diane: What it means for Cougars**\
+`Arafan Diane is the first recruit Houston has added in the 2026 recruiting cycle.`\
+https://nytimes.com/athletic/6821125/2025/11/19/houston-adds-arafan-diane-recruting/
+
+**CF Monterrey submits bid to sign Gutiérrez from Fire: Sources**\
+`The U.S. youth international will now count as a domestic player in Liga MX’s rules and could file a one-time switch to represent Mexico.`\
+https://nytimes.com/athletic/6821384/2025/11/19/monterrey-bid-brian-gutierrez-chicago-fire/
+
 **With 'safety' in mind, Aaron Rodgers hopes to practice Thursday, play Sunday vs. Bears**\
 `In his first comments since breaking his left wrist on Sunday, Rodgers also addressed his ability to take snaps from under center.`\
 https://nytimes.com/athletic/6821358/2025/11/19/aaron-rodgers-broken-wrist-injury-update/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6821120/2025/11/19/real-madrid-apple-news-sponsorsh
 **Alberta Pushes Through Trans Policies Described as Most Restrictive in Canada**\
 `The western province’s conservative government has invoked a rarely used clause in Canada’s Constitution to shield its bills limiting transgender rights from legal challenges.`\
 https://nytimes.com/2025/11/19/world/canada/alberta-trans-policies-canada.html
-
-**Mets announce overhauled coaching staff under manager Carlos Mendoza**\
-`After a disappointing 83-79 season, New York moved on from the majority of its coaching staff.`\
-https://nytimes.com/athletic/6821216/2025/11/19/mets-announce-coaching-staff-carlos-mendoza/
-
-**Driver Who Killed Mother and Daughters Sentenced to 3 to 9 Years**\
-`Miriam Yarimi, a wig maker with a big social media presence, ran a red light in Brooklyn before slamming into the family members. The deaths spurred calls for increased traffic safety.`\
-https://nytimes.com/2025/11/19/nyregion/wigmaker-hit-and-run-sentence.html
 
