@@ -1,15 +1,3 @@
-**Spurs' Stephon Castle sidelined 1-2 weeks with hip flexor strain**\
-`The Spurs sit fifth in the Western Conference at 9-4.`\
-https://nytimes.com/athletic/6818356/2025/11/18/spurs-stephon-castle-out-1-2-weeks-hip-flexor-strain/
-
-**JD Vance, Not That One, Gets 2 Years in Prison for Threatening the Vice President**\
-`James Donald Vance Jr., of Grand Rapids, Mich., had also threatened President Trump, according to a criminal complaint.`\
-https://nytimes.com/2025/11/18/us/jd-vance-threats-michigan.html
-
-**Yankees protect Spencer Jones from Rule 5 draft despite no clear path to majors**\
-`But what’s next for Jones, whose shown power on par with Aaron Judge but swing-and-miss tendencies of a late-career Joey Gallo?`\
-https://nytimes.com/athletic/6815761/2025/11/18/spencer-jones-yankees-rule-5-draft/
-
 **Trump’s Border Czar Threatens More Immigrant Arrests in New York City**\
 `Thomas Homan said that additional federal agents would descend on the city if it did not help with President Trump’s deportation campaign.`\
 https://nytimes.com/2025/11/18/nyregion/border-czar-more-immigrant-arrests-nyc.html
@@ -37,4 +25,16 @@ https://nytimes.com/2025/11/18/theater/meet-the-cartozians-review.html
 **Phillies protect 3 prospects from Rule 5 draft: What you need to know**\
 `Here is an overview of the three prospects, and a look at whom the Phillies chose not to protect.`\
 https://nytimes.com/athletic/6815755/2025/11/18/phillies-rule-5-draft-painter-rincones-mcfarlane/
+
+**D-III Scranton makes history with shocking win over Pitt**\
+`Scranton became the first D-III women's basketball program to defeat a power-conference program.`\
+https://nytimes.com/athletic/6818126/2025/11/18/d-iii-scranton-history-pitt-upset/
+
+**Football agent Jonathan Barnett under UK rape investigation**\
+`Barnett's lawyers have filed a declaration in an attempt to get the civil complaint against the agent in the U.S. dismissed.`\
+https://nytimes.com/athletic/6818240/2025/11/18/jonathan-barnett-rape-investigation-uk/
+
+**Orlando Pride VP Haley Carter stepping down after 3 seasons**\
+`Under Carter's tenure, the club won both the NWSL Shield and the NWSL Championship during a historic 2024 season.`\
+https://nytimes.com/athletic/6818264/2025/11/18/haley-carter-orlando-pride-stepping-down/
 
