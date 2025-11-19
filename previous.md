@@ -1,3 +1,7 @@
+**Police Found $1 Million in a Tub Under a Garage. The Government Gets to Keep It.**\
+`A court ruled that the hidden cash, which the police found while searching for an illegal gun in Ontario, did not lawfully belong to the man living on the property.`\
+https://nytimes.com/2025/11/19/world/canada/canada-government-buried-money-raid.html
+
 **Bruins' Charlie McAvoy undergoes facial surgery, recovery timeline unknown**\
 `McAvoy was injured on Nov. 15 during the Bruins’ 3-2 win over the Montreal Canadiens when he was hit in the face by a Noah Dobson slap shot.`\
 https://nytimes.com/athletic/6821471/2025/11/19/bruins-charlie-mcavoy-surgery-facial-injury/
@@ -29,8 +33,4 @@ https://nytimes.com/video/us/100000010533650/portrait-auction-record-klimt-sothe
 **Violence Continues in Nigeria Against Christians and Muslims**\
 `An attack on a church in central Nigeria happened as U.`\
 https://nytimes.com/video/world/africa/100000010533050/nigeria-persecution-trump.html
-
-**Houston lands 5-star center Arafan Diane: What it means for Cougars**\
-`Arafan Diane is the first recruit Houston has added in the 2026 recruiting cycle.`\
-https://nytimes.com/athletic/6821125/2025/11/19/houston-adds-arafan-diane-recruting/
 
