@@ -1,3 +1,11 @@
+**McClaren quits Jamaica after failing to directly qualify for World Cup**\
+`Jamaica can still qualify through the inter-confederation playoffs in March, but they'll have a new manager`\
+https://nytimes.com/athletic/6819000/2025/11/18/steve-mcclaren-resigns-jamaica-manager-world-cup-qualifying/
+
+**Angels trade Taylor Ward to Orioles for pitcher Grayson Rodriguez**\
+`The first major trade of the offseason sends a slugging outfielder to Baltimore and a young arm to Anaheim.`\
+https://nytimes.com/athletic/6818971/2025/11/18/angels-orioles-taylor-ward-grayson-rodriguez-trade/
+
 **How Duke outlasted Kansas in Champions Classic to move to 5-0**\
 `A 21-7 run to close the first half gave Duke the cushion it needed to defeat Kansas in Madison Square Garden.`\
 https://nytimes.com/athletic/6818981/2025/11/18/duke-kansas-score-result/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/18/theater/this-world-of-tomorrow-review-tom-hanks.h
 **Scoop City: Emotional win for Dallas**\
 `Inside the Cowboys' struggle, plus Week 12 fantasy targets`\
 https://nytimes.com/athletic/6818926/2025/11/18/emotional-win-for-dallas-plus-finding-this-years-second-half-breakout-fantasy-wr/
-
-**Giants notes: Updates on 40-man additions, WBC participation and coaching hires**\
-`The Giants did not add to their roster before Tuesday's deadline.`\
-https://nytimes.com/athletic/6818814/2025/11/18/san-francisco-giants-notes-40-man-wbc-coaching-hires/
-
-**Ronaldo praised by Trump at White House dinner in his return to U.S.**\
-`The Portugal superstar has previously expressed a wish to meet Trump and talk about "peace"`\
-https://nytimes.com/athletic/6818863/2025/11/18/cristiano-ronaldo-trump-white-house-saudi/
 
