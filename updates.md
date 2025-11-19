@@ -1,3 +1,7 @@
+**Cade Cunningham is cool in the clutch as red-hot Pistons win 11th straight**\
+`"You know the ball is in the right person's hands with the game on the line," Isaiah Stewart said of Cunningham.`\
+https://nytimes.com/athletic/6819229/2025/11/19/cade-cunningham-pistons-winning-streak-hawks/
+
 **Netherlands Hands Back Control of Chipmaker Nexperia**\
 `Uncertainty over the availability of the Chinese-owned company’s chips, which are used in cars and electronics, had added to concerns of a global shortage.`\
 https://nytimes.com/2025/11/19/business/nexperia-netherlands-china-chips.html
