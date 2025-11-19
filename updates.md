@@ -1,3 +1,5 @@
+
+
 **Trump’s Global Tariffs Curtailed Trade, Data Shows**\
 `The steep tariffs President Trump issued in August led to a significant contraction in imports and the trade deficit, newly released data shows.`\
 https://nytimes.com/2025/11/19/us/politics/trumps-tariffs-trade-data.html
