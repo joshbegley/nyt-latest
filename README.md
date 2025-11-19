@@ -1,3 +1,19 @@
+**Seasonal Sadness**\
+`Do the darker, colder days affect your mood? What do you do about it if so?`\
+https://nytimes.com/2025/11/19/learning/seasonal-sadness.html
+
+**At This College, the English Dept. Is Out. ‘Human Narratives’ Is In.**\
+`At Montclair State University in New Jersey, a departmental restructuring plan is igniting concerns about the future of the humanities.`\
+https://nytimes.com/2025/11/19/nyregion/montclair-state-restructuring.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/19/crosswords/spelling-bee-forum.html
+
+**U.S. Loans $1 Billion to Three Mile Island Nuclear Project**\
+`The Pennsylvania site, shorthand for the dangers of nuclear power after a 1979 meltdown, is set for revival under a deal to power Microsoft data centers.`\
+https://nytimes.com/2025/11/19/us/nuclear-power-three-mile-island.html
+
 **Saudi Crown Prince Dines With Trump at the White House**\
 `President Trump stood shoulder-to-shoulder with Crown Prince Mohammad bin Salman of Saudi Arabia during a White House dinner on Tuesday. The room was packed with leaders from several industries.`\
 https://nytimes.com/video/us/politics/100000010532543/trump-saudi-dinner-guests.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6819202/2025/11/19/lebron-james-returns-lakers-win-
 **The New York Times in Print for Wednesday, Nov. 19, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/19/todays-new-york-times
-
-**Trump Proved That China Can Stand Up to America Now**\
-`His ill-conceived tariff war exposed U.S. vulnerabilities, strengthened China’s leverage and undermined America at a pivotal time.`\
-https://nytimes.com/2025/11/19/opinion/trump-china-xi-trade.html
-
-**Florida's Todd Golden delivers championship ring to Warriors' Will Richard**\
-`"I won one of these in college. I'm looking forward to winning one here. So let's do it," Richard said.`\
-https://nytimes.com/athletic/6819055/2025/11/19/florida-todd-golden-warriors-will-richard-ring/
-
-**Harvard Opens New Investigation Into Summers and Epstein**\
-`The university is reviewing newly released emails between convicted sex offender Jeffrey Epstein and former Harvard President Lawrence H. Summers, among other people at the institution.`\
-https://nytimes.com/2025/11/19/us/harvard-summers-epstein-investigation.html
-
-**Scoot Henderson's return from torn hamstring 'week to week,' not imminent**\
-`The Trail Blazers initially said Henderson would return to basketball activity in four to eight weeks.`\
-https://nytimes.com/athletic/6819120/2025/11/19/scoot-henderson-torn-hamstring-inury-update/
 
