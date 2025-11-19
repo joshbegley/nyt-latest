@@ -1,3 +1,7 @@
+**A New York Night Out With Tom Hanks**\
+`A crowd that included Meryl Streep, Martin Short and Steve Martin packed the Shed for the actor’s new show, “This World of Tomorrow.”`\
+https://nytimes.com/2025/11/19/style/tom-hanks-this-world-of-tomorrow.html
+
 **USWNT's Emma Hayes weighs in on Trinity Rodman's future, NWSL salary cap**\
 `Rodman's contract with the Spirit expires at the end of 2025, leading to questions about her future in the NWSL.`\
 https://nytimes.com/athletic/6820882/2025/11/19/emma-hayes-trinity-rodman-nwsl/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/19/climate/fema-review-council-report-trump.html
 **Data Centers in Space**\
 `Kevin Roose and Casey Newton, the hosts of “Hard Fork,” discuss Google’s Project Suncatcher, one of a number of companies’ ambitious plans to build solar-powered data centers in space. As the demands for electricity increase, is this our only option?`\
 https://nytimes.com/video/podcasts/100000010530997/data-centers-in-space.html
-
-**Tina Brown on What’s Happened to Meghan and Harry**\
-`The longtime journalist Tina Brown has covered some of the biggest personalities in politics and culture. On “The Interview,” Brown shares her thoughts on Prince Harry and Meghan Markle making their way in the world since their departure as senior members of the British royal family.`\
-https://nytimes.com/video/podcasts/100000010530581/tina-brown-on-whats-happened-to-meghan-and-harry.html
 
