@@ -1,3 +1,11 @@
+**The Legacy of Last Chance U coach John Beam: A father to many in the Bay Area**\
+`John Beam's former players and colleagues remember a man who gave them opportunity and love.`\
+https://nytimes.com/athletic/6817026/2025/11/19/last-chance-u-coach-john-beam-shot-death/
+
+**These Books Were Judged by Their A.I. Covers, and Disqualified**\
+`A New Zealand book competition dropped two of a publisher’s books because they had A.I.-generated covers. The publisher and the designer pushed back.`\
+https://nytimes.com/2025/11/19/books/new-zealand-ocham-book-awards-ai.html
+
 **The NFL's long-distance kicking revolution: '70 will be the new 60'**\
 `Better athletes, specialized training and technological advances are pushing limits farther and farther back.`\
 https://nytimes.com/athletic/6814741/2025/11/19/nfl-kicking-distance-yards-field-goals/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/19/theater/anorexia-play.html
 **Arsenal to end eight-year Visit Rwanda sponsorship deal**\
 `The north London club's association with the tourist board has been the subject of criticism and fan protests.`\
 https://nytimes.com/athletic/6819499/2025/11/19/arsenal-end-visit-rwanda-sponsorship-deal/
-
-**The White House Gold Rush Is On**\
-`They came bearing gifts. They left with what they wanted.`\
-https://nytimes.com/2025/11/19/opinion/rolex-gold-trump-corruption.html
-
-**Nvidia and Walmart Could Ease Wall St.’s Jitters. Or Make Them Worse.**\
-`After four consecutive down days, the stock market is looking increasingly queasy. Earnings reports from Nvidia, Walmart and Target could hint at what’s ahead.`\
-https://nytimes.com/2025/11/19/business/stock-market-nvidia-walmart-earnings.html
 
