@@ -1,3 +1,15 @@
+**Jets coach Aaron Glenn says Kris Boyd sounded 'really upbeat' when they spoke after shooting**\
+`The New York Jets head coach provided an update on Boyd's health, after the cornerback was shot early Sunday morning in New York.`\
+https://nytimes.com/athletic/6820845/2025/11/19/jets-kris-boyd-aaron-glenn-shot/
+
+**Tracking Tropical Cyclone Fina**\
+`See the likely path and wind arrival times for Fina`\
+https://nytimes.com/interactive/2025/weather/tracking-tropical-cyclone-fina-australia.html
+
+**U.S. travel bans mean many Haitian fans will not be able to go to World Cup**\
+`The banned list signed by President Trump in June, included forbidding the entry into the U.S. of nationals of Haiti.`\
+https://nytimes.com/athletic/6820839/2025/11/19/world-cup-news-u-s-travel-ban-haiti/
+
 **How to watch Warriors vs. Heat: Time, TV, streaming**\
 `Find out how to watch the Golden State Warriors play the Miami Heat, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6821209/2025/11/19/warriors-vs-heat-stream-how-to-watch-nov-19/

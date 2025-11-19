@@ -1,3 +1,15 @@
+**Jets coach Aaron Glenn says Kris Boyd sounded 'really upbeat' when they spoke after shooting**\
+`The New York Jets head coach provided an update on Boyd's health, after the cornerback was shot early Sunday morning in New York.`\
+https://nytimes.com/athletic/6820845/2025/11/19/jets-kris-boyd-aaron-glenn-shot/
+
+**Tracking Tropical Cyclone Fina**\
+`See the likely path and wind arrival times for Fina`\
+https://nytimes.com/interactive/2025/weather/tracking-tropical-cyclone-fina-australia.html
+
+**U.S. travel bans mean many Haitian fans will not be able to go to World Cup**\
+`The banned list signed by President Trump in June, included forbidding the entry into the U.S. of nationals of Haiti.`\
+https://nytimes.com/athletic/6820839/2025/11/19/world-cup-news-u-s-travel-ban-haiti/
+
 **How to watch Warriors vs. Heat: Time, TV, streaming**\
 `Find out how to watch the Golden State Warriors play the Miami Heat, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6821209/2025/11/19/warriors-vs-heat-stream-how-to-watch-nov-19/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6821200/2025/11/19/bulls-vs-trail-blazers-stream-ho
 **How to watch Hurricanes vs. Wild: Time, TV, streaming**\
 `Find out how to watch the Carolina Hurricanes play the Minnesota Wild, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6821197/2025/11/19/hurricanes-vs-wild-stream-how-to-watch-nov-19/
-
-**How to watch Nuggets vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6821195/2025/11/19/nuggets-vs-pelicans-stream-how-to-watch-nov-19/
-
-**How to watch Kings vs. Thunder: Time, TV, streaming**\
-`Find out how to watch the Sacramento Kings play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6821193/2025/11/19/kings-vs-thunder-stream-how-to-watch-nov-19/
-
-**Submit your questions for Kevin Fishbain's Bears mailbag**\
-`The Bears are 7-3 and host the Pittsburgh Steelers this weekend. Share your questions here.`\
-https://nytimes.com/athletic/6821181/2025/11/19/submit-your-questions-for-kevin-fishbains-bears-mailbag-18/
 
