@@ -1,3 +1,19 @@
+**Which teams are in which pots for the World Cup draw?**\
+`The latest FIFA rankings have been released, so we have the clearest idea yet of what the pots will look like for the December 5 draw`\
+https://nytimes.com/athletic/6820230/2025/11/19/world-cup-draw-pots-explained/
+
+**Michael Penix Jr. to undergo season-ending surgery for partially torn ACL**\
+`The injury continues a troubling trend of knee ailments that dates back to college.`\
+https://nytimes.com/athletic/6814651/2025/11/19/michael-penix-falcons-season-ending-injury/
+
+**Colts designate Charvarius Ward to return from IR; CB could play vs. KC**\
+`Week 12 could be the first time Ward plays alongside Colts trade acquisition and fellow cornerback Sauce Gardner. `\
+https://nytimes.com/athletic/6817579/2025/11/19/colts-charvarius-concussion-chiefs/
+
+**The best women's sports city: MoneyCall**\
+`Welcome to MoneyCall, The Athletic's sports business newsletter.`\
+https://nytimes.com/athletic/6820402/2025/11/19/best-womens-sports-city-moneycall/
+
 **How to watch Rockets vs. Cavaliers: Time, TV, streaming**\
 `Find out how to watch the Houston Rockets play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6820525/2025/11/19/rockets-vs-cavaliers-stream-how-to-watch-nov-19/
