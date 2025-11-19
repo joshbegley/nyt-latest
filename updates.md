@@ -1,3 +1,11 @@
+**Maple Leafs after 20: Why their lack of speed is becoming a big issue**\
+`Toronto’s complete lack of speed has been one of the most glaring issues to start the year.`\
+https://nytimes.com/athletic/6817470/2025/11/19/maple-leafs-lack-speed/
+
+**Russia Launches Deadly Attack on Ukraine**\
+`A deadly Russian barrage of missiles and drones in Ukraine came as President Volodymyr Zelensky visited Turkey in a bid to revive peace talks to end his country’s war with Russia.`\
+https://nytimes.com/video/world/europe/100000010532962/ukraine-russia-ternopil-kharkiv.html
+
 **The state of NASCAR's Next Gen car: As big teams dominate, is there any hope for the rest?**\
 `NASCAR is exploring ways to boost parity, but it's tough. "We want to do that in a really smart way," league president Steve O'Donnell said.`\
 https://nytimes.com/athletic/6817596/2025/11/19/nascar-next-gen-car-hendrick-gibbs-penske-dominance/

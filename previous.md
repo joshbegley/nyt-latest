@@ -1,3 +1,11 @@
+**Maple Leafs after 20: Why their lack of speed is becoming a big issue**\
+`Toronto’s complete lack of speed has been one of the most glaring issues to start the year.`\
+https://nytimes.com/athletic/6817470/2025/11/19/maple-leafs-lack-speed/
+
+**Russia Launches Deadly Attack on Ukraine**\
+`A deadly Russian barrage of missiles and drones in Ukraine came as President Volodymyr Zelensky visited Turkey in a bid to revive peace talks to end his country’s war with Russia.`\
+https://nytimes.com/video/world/europe/100000010532962/ukraine-russia-ternopil-kharkiv.html
+
 **Ben Stokes calls on England to make 'history' by regaining the Ashes in Australia**\
 `The all-rounder is aiming to become only the sixth England captain to win a Test series Down Under since the end of the Second World War`\
 https://nytimes.com/athletic/6819827/2025/11/19/ben-stokes-england-ashes-australia-archer/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/19/opinion/rural-education-jobs.html
 **I Am Ambivalent About My Boyfriend. Who Can I Talk to About It?**\
 `A reader wonders what to make of the reservations she’s having about a yearlong relationship, and whom to share them with.`\
 https://nytimes.com/2025/11/19/style/relationship-doubts.html
-
-**Trump’s Global Tariffs Curtailed Trade, Data Shows**\
-`The steep tariffs President Trump issued in August led to a significant contraction in imports and the trade deficit, newly released data shows.`\
-https://nytimes.com/2025/11/19/us/politics/trumps-tariffs-trade-data.html
-
-**Melania Trump Goes Saudi Green**\
-`At the official dinner for Prince Mohammed bin Salman, the first lady offered an unexpected sign of allegiance.`\
-https://nytimes.com/2025/11/19/style/melania-trump-mohammed-bin-salman-dinner.html
 
