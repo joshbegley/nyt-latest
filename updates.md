@@ -1,3 +1,7 @@
+**Blues prospect mailbag: Submit your questions for Tim Taylor, head of player development**\
+`Submit your questions here, and The Athletic will present a selection to Taylor. His responses will appear in an upcoming article.`\
+https://nytimes.com/athletic/6820275/2025/11/19/blues-prospects-tim-taylor-mailbag/
+
 **Maple Leafs after 20: Why their lack of speed is becoming a big issue**\
 `Toronto’s complete lack of speed has been one of the most glaring issues to start the year.`\
 https://nytimes.com/athletic/6817470/2025/11/19/maple-leafs-lack-speed/

@@ -1,3 +1,7 @@
+**Blues prospect mailbag: Submit your questions for Tim Taylor, head of player development**\
+`Submit your questions here, and The Athletic will present a selection to Taylor. His responses will appear in an upcoming article.`\
+https://nytimes.com/athletic/6820275/2025/11/19/blues-prospects-tim-taylor-mailbag/
+
 **Maple Leafs after 20: Why their lack of speed is becoming a big issue**\
 `Toronto’s complete lack of speed has been one of the most glaring issues to start the year.`\
 https://nytimes.com/athletic/6817470/2025/11/19/maple-leafs-lack-speed/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/19/us/tom-steyer-california-governor-2026.html
 **How Rural Kids Got Left Behind**\
 `We need to support working-class kids before the 21st century abandons them completely.`\
 https://nytimes.com/2025/11/19/opinion/rural-education-jobs.html
-
-**I Am Ambivalent About My Boyfriend. Who Can I Talk to About It?**\
-`A reader wonders what to make of the reservations she’s having about a yearlong relationship, and whom to share them with.`\
-https://nytimes.com/2025/11/19/style/relationship-doubts.html
 
