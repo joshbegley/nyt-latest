@@ -1,3 +1,11 @@
+**Believe It or Not, That $12 Million Gold Toilet Was Bought by … Ripley’s**\
+`The entertainment company plans on displaying the toilet, saying its team is exploring “whether visitors may someday be allowed to use it.”`\
+https://nytimes.com/2025/11/19/arts/design/gold-toilet-owner-ripleys.html
+
+**Mexico Is Not Just the Top Supplier to the U.S. Now It Is the Top Buyer.**\
+`For first time in at least 30 years, the United States has exported more to Mexico than Canada, U.S. government data show, in a sign of how much North American trade has consolidated.`\
+https://nytimes.com/2025/11/19/world/americas/us-mexico-trade.html
+
 **I Want to Give My Ex a Gift That’s Nice — But Not Too Nice. What Should I Get?**\
 `Plus: what to get a sick mother, a minimalist son and more holiday present advice from T Magazine.`\
 https://nytimes.com/2025/11/19/t-magazine/holiday-gift-ideas.html
@@ -15,7 +23,7 @@ https://nytimes.com/card/2025/11/19/arts/editors-recommendations-luckandstrangec
 https://nytimes.com/video/us/100000010533650/portrait-auction-record-klimt-sothebys.html
 
 **Violence Continues in Nigeria Against Christians and Muslims**\
-`An attack on a church in central Nigeria happened as U.S. officials and celebrities criticized the country for the persecution of Christians. But there is no evidence to suggest that widespread violence in the country affects Christians more than any other groups.`\
+`An attack on a church in central Nigeria happened as U.`\
 https://nytimes.com/video/world/africa/100000010533050/nigeria-persecution-trump.html
 
 **Houston lands 5-star center Arafan Diane: What it means for Cougars**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6821384/2025/11/19/monterrey-bid-brian-gutierrez-ch
 **With 'safety' in mind, Aaron Rodgers hopes to practice Thursday, play Sunday vs. Bears**\
 `In his first comments since breaking his left wrist Sunday, Rodgers also addressed his ability to take snaps from under center.`\
 https://nytimes.com/athletic/6821358/2025/11/19/aaron-rodgers-broken-wrist-injury-update/
-
-**What Happened to Europe’s Terrorism Problem?**\
-`Not that long ago, big attacks were a daily concern. We look at why it feels different now.`\
-https://nytimes.com/2025/11/19/world/europes-terrorism-isis-russia-nvidia.html
-
-**Trump’s Fawning Meeting With the Saudi Prince Was a Disgrace**\
-`Working with imperfect partners does not mean that the United States should cover up and lie about their misdeeds.`\
-https://nytimes.com/2025/11/19/opinion/saudi-mbs-trump-khashoggi.html
 

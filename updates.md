@@ -1,3 +1,15 @@
+**Believe It or Not, That $12 Million Gold Toilet Was Bought by … Ripley’s**\
+`The entertainment company plans on displaying the toilet, saying its team is exploring “whether visitors may someday be allowed to use it.”`\
+https://nytimes.com/2025/11/19/arts/design/gold-toilet-owner-ripleys.html
+
+**Mexico Is Not Just the Top Supplier to the U.S. Now It Is the Top Buyer.**\
+`For first time in at least 30 years, the United States has exported more to Mexico than Canada, U.S. government data show, in a sign of how much North American trade has consolidated.`\
+https://nytimes.com/2025/11/19/world/americas/us-mexico-trade.html
+
+**Violence Continues in Nigeria Against Christians and Muslims**\
+`An attack on a church in central Nigeria happened as U.`\
+https://nytimes.com/video/world/africa/100000010533050/nigeria-persecution-trump.html
+
 **I Want to Give My Ex a Gift That’s Nice — But Not Too Nice. What Should I Get?**\
 `Plus: what to get a sick mother, a minimalist son and more holiday present advice from T Magazine.`\
 https://nytimes.com/2025/11/19/t-magazine/holiday-gift-ideas.html
