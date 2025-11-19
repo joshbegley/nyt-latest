@@ -1,3 +1,7 @@
+**Republican Clay Higgins Was the Sole Vote Against Releasing the Epstein Files**\
+`The only person in Congress to vote against the bill was a right-wing congressman from Louisiana who is an ardent supporter of President Trump and has espoused conspiracy theories.`\
+https://nytimes.com/2025/11/18/us/politics/clay-higgins-epstein-vote-no.html
+
 **N.Y. Doctor Accused of Desecration Can Be Sent to Japan, Court Rules**\
 `A federal appeals court ruled that Masahide Kanayama, an obstetrician and fervent Christian, may be extradited to face charges of vandalism.`\
 https://nytimes.com/2025/11/18/nyregion/new-york-doctor-japan-extradition.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/18/us/politics/trump-covert-action-venezuela.html
 **Who Is Attending Trump’s Dinner for the Saudi Crown Prince?**\
 `The New York Times identified some of the guests invited to President Trump’s dinner for Crown Prince Mohammed bin Salman of Saudi Arabia.`\
 https://nytimes.com/2025/11/18/us/politics/trump-saudi-dinner-guests.html
-
-**Spurs' Stephon Castle sidelined 1-2 weeks with hip flexor strain**\
-`The Spurs sit fifth in the Western Conference at 9-4.`\
-https://nytimes.com/athletic/6818356/2025/11/18/spurs-stephon-castle-out-1-2-weeks-hip-flexor-strain/
 
