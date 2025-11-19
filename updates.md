@@ -1,3 +1,15 @@
+**Saudi Arabia’s Return to Washington**\
+`David Sanger, a White House and national security correspondent, describes how the crown prince of Saudi Arabia, a pariah after the killing of Jamal Khashoggi, has become a dealmaker in Washington.`\
+https://nytimes.com/video/us/politics/100000010531003/saudi-arabias-return-to-washington.html
+
+**Trump Says He Will Approve the Release of the Epstein Files. But There Are Loopholes.**\
+`The bill has not yet been presented to the president, and it wasn’t clear when it might reach his desk.`\
+https://nytimes.com/2025/11/19/us/politics/trump-epstein-files-loopholes.html
+
+**Connor Bedard, Macklin Celebrini score hat tricks on the same night, continue Art Ross push**\
+`Macklin Celebrini, 19, and Connor Bedard, 20, are both making a case for the Art Ross Trophy.`\
+https://nytimes.com/athletic/6820671/2025/11/19/connor-bedard-macklin-celebrini-blackhawks-sharks-hat-trick/
+
 **NFL Week 12 survivor pool picks, strategy: Time to use the top teams**\
 `Adam Gretz and Renee Miller take your questions and give their own survivor pool advice for NFL Week 12. `\
 https://nytimes.com/athletic/6820040/2025/11/19/nfl-week-12-survivor-pool-picks-strategy-seahawks/
