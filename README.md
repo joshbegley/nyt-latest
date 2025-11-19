@@ -1,3 +1,7 @@
+**Preparing Perth Stadium for Ashes cricket: A drop-in wicket, a 40-tonne transporter and sleepless nights**\
+`The ground is hosting its first Ashes Test but will replicate the pace and bounce that made the WACA, across the Swan River, so feared`\
+https://nytimes.com/athletic/6809356/2025/11/19/ashes-perth-wicket-waca-australia/
+
 **Connections: Sports Edition Coach: Hints for Nov. 19, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6819126/2025/11/19/connections-sports-edition-hints-for-nov-19-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6814855/2025/11/19/mariano-diaz-real-madrid-ronaldo
 **Arsenal may be winning on the pitch, but Spurs are way ahead in the battle of stadiums**\
 `Tottenham's ability to host non-football events, such as concerts and boxing matches, during the football season has been a game-changer`\
 https://nytimes.com/athletic/6816716/2025/11/19/arsenal-spurs-emirates-stadium-v-tottenham-hotspur-stadium/
-
-**Find the gap: Why this season's Premier League table is so congested**\
-`Just three points separate third-placed Chelsea from Crystal Palace in 10th as the division's middle class flex their muscles`\
-https://nytimes.com/athletic/6816639/2025/11/19/congested-premier-league-table/
 
