@@ -1,3 +1,11 @@
+**McClaren quits Jamaica after failing to directly qualify for World Cup**\
+`Jamaica can still qualify through the inter-confederation playoffs in March, but they'll have a new manager`\
+https://nytimes.com/athletic/6819000/2025/11/18/steve-mcclaren-resigns-jamaica-manager-world-cup-qualifying/
+
+**Angels trade Taylor Ward to Orioles for pitcher Grayson Rodriguez**\
+`The first major trade of the offseason sends a slugging outfielder to Baltimore and a young arm to Anaheim.`\
+https://nytimes.com/athletic/6818971/2025/11/18/angels-orioles-taylor-ward-grayson-rodriguez-trade/
+
 **How Duke outlasted Kansas in Champions Classic to move to 5-0**\
 `A 21-7 run to close the first half gave Duke the cushion it needed to defeat Kansas in Madison Square Garden.`\
 https://nytimes.com/athletic/6818981/2025/11/18/duke-kansas-score-result/
