@@ -1,3 +1,15 @@
+**Who Is Attending Trump’s Dinner for the Saudi Crown Prince?**\
+`The New York Times identified some of the guests invited to President Trump’s dinner for Crown Prince Mohammed bin Salman of Saudi Arabia.`\
+https://nytimes.com/2025/11/18/us/politics/trump-saudi-dinner-guests.html
+
+**J.D. Vance, Not That One, Gets 2 Years in Prison for Threatening the Vice President**\
+`James Donald Vance Jr., of Grand Rapids, Mich., had also threatened President Trump, according to a criminal complaint.`\
+https://nytimes.com/2025/11/18/us/jd-vance-threats-michigan.html
+
+**Israeli Airstrike on Refugee Camp in Lebanon Kills at Least 13, Ministry Says**\
+`It was one of the deadliest Israeli strikes on Lebanon since a cease-fire with Hezbollah went into effect about a year ago.`\
+https://nytimes.com/2025/11/18/world/middleeast/israel-strike-lebanon-camp.html
+
 **Spurs' Stephon Castle sidelined 1-2 weeks with hip flexor strain**\
 `The Spurs sit fifth in the Western Conference at 9-4.`\
 https://nytimes.com/athletic/6818356/2025/11/18/spurs-stephon-castle-out-1-2-weeks-hip-flexor-strain/
