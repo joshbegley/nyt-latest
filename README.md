@@ -1,3 +1,15 @@
+**Larry Summers Resigns From OpenAI’s Board**\
+`Mr. Summers’ departure from the artificial intelligence company’s board followed revelations of his communications with the disgraced financier Jeffrey Epstein.`\
+https://nytimes.com/2025/11/19/technology/larry-summers-resigns-from-openais-board.html
+
+**The C.E.O.s Who Came to Dinner (With the Saudi Crown Prince)**\
+`The presence of business leaders at a White House event for Crown Prince Mohammed bin Salman underscores a deepening of U.S. and Saudi ties.`\
+https://nytimes.com/2025/11/19/business/dealbook/saudi-arabia-ceos-deals.html
+
+**Jessica Tisch Will Remain Police Commissioner Under Mamdani**\
+`Commissioner Tisch, the current head of the N.Y.P.D., said she had agreed to serve in Mayor-elect Zohran Mamdani’s administration.`\
+https://nytimes.com/2025/11/19/nyregion/jessica-tisch-nypd-commissioner-mamdani.html
+
 **As CFP rankings tighten, it's time for Notre Dame to (gasp) root for USC**\
 `The odds of everything breaking wrong and Notre Dame being left out feel remote, but they aren't zero.`\
 https://nytimes.com/athletic/6819804/2025/11/19/notre-dame-college-football-playoff-rankings-miami-usc/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6818961/2025/11/19/los-angeles-kings-stock-report-p
 **Mirtle NHL mailbag: Luxury tax debate, Michkov's slump, 50-goal predictions and more**\
 `Why the NHL will never adopt a luxury tax, and other mailbag answers.`\
 https://nytimes.com/athletic/6817685/2025/11/19/nhl-mailbag-luxury-tax-debate-matvei-michkovs-slump-50-goal-predictions-and-more/
-
-**Trump Administration Live Updates: Senate Awaits Bill Demanding Release of Epstein Files**\
-``\
-https://nytimes.com/live/2025/11/19/us/trump-epstein-saudi-news
-
-**Cade Cunningham is cool in the clutch as red-hot Pistons win 11th straight**\
-`"You know the ball is in the right person's hands with the game on the line," Isaiah Stewart said of Cunningham.`\
-https://nytimes.com/athletic/6819229/2025/11/19/cade-cunningham-pistons-winning-streak-hawks/
-
-**Netherlands Hands Back Control of Chinese-Owned Chipmaker Nexperia**\
-`Uncertainty over the availability of the company’s chips, which are used in cars and electronics, had added to concerns of a global shortage.`\
-https://nytimes.com/2025/11/19/business/nexperia-netherlands-china-chips.html
 
