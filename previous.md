@@ -1,40 +1,40 @@
-**George Conway, a Vocal Foe of Trump, Eyes Congressional Run**\
-`The former conservative lawyer built a social media following with his harsh criticism of President Trump, who was the boss of his wife at the time.`\
-https://nytimes.com/2025/11/19/us/politics/george-conway-congressional-run.html
+**How to watch Warriors vs. Heat: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6821209/2025/11/19/warriors-vs-heat-stream-how-to-watch-nov-19/
 
-**Fantasy football strength of schedule: Week 12 and playoff matchup rankings**\
-`Jake Ciely's Week 12 matchup rankings can help with difficult start/sit decisions this week. Playoff rankings aid future plans. `\
-https://nytimes.com/athletic/6820147/2025/11/19/fantasy-football-strength-of-schedule-week-12-playoffs/
+**How to watch Bruins vs. Ducks: Time, TV, streaming**\
+`Find out how to watch the Boston Bruins play the Anaheim Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6821208/2025/11/19/bruins-vs-ducks-stream-how-to-watch-nov-19/
 
-**Trump Moves to Weaken the Endangered Species Act**\
-`Four proposed rules could make it easier to drill for oil or harvest timber in areas where endangered species live.`\
-https://nytimes.com/2025/11/19/climate/trump-endangered-species-act.html
+**How to watch Knicks vs. Mavericks: Time, TV, streaming**\
+`Find out how to watch the New York Knicks play the Dallas Mavericks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6821205/2025/11/19/knicks-vs-mavericks-stream-how-to-watch-nov-19/
 
-**A New York Night Out With Tom Hanks**\
-`A crowd that included Meryl Streep, Martin Short and Steve Martin packed the Shed for the actor’s new show, “This World of Tomorrow.”`\
-https://nytimes.com/2025/11/19/style/tom-hanks-this-world-of-tomorrow.html
+**How to watch Flames vs. Sabres: Time, TV, streaming**\
+`Find out how to watch the Calgary Flames play the Buffalo Sabres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6821203/2025/11/19/flames-vs-sabres-stream-how-to-watch-nov-19/
 
-**USWNT's Emma Hayes weighs in on Trinity Rodman's future, NWSL salary cap**\
-`Rodman's contract with the Spirit expires at the end of 2025, leading to questions about her future in the NWSL.`\
-https://nytimes.com/athletic/6820882/2025/11/19/emma-hayes-trinity-rodman-nwsl/
+**How to watch Wizards vs. Timberwolves: Time, TV, streaming**\
+`Find out how to watch the Washington Wizards play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6821201/2025/11/19/wizards-vs-timberwolves-stream-how-to-watch-nov-19/
 
-**Do You Use A.I. for College Application Advice?**\
-`We want to hear about it.`\
-https://nytimes.com/2025/11/19/style/chatgpt-ai-college-application-advice.html
+**How to watch Bulls vs. Trail Blazers: Time, TV, streaming**\
+`Find out how to watch the Chicago Bulls play the Portland Trail Blazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6821200/2025/11/19/bulls-vs-trail-blazers-stream-how-to-watch-nov-19/
 
-**Police Officer and Ex-Mayor Is Charged With Sexually Assaulting a Child**\
-`The attack took place when the child was home alone, prosecutors said. The accused assailant, Sgt. Andrew LaBruno, ran unsuccessfully for the New Jersey State Legislature this year.`\
-https://nytimes.com/2025/11/19/nyregion/police-officer-jersey-city-sexual-assault.html
+**How to watch Hurricanes vs. Wild: Time, TV, streaming**\
+`Find out how to watch the Carolina Hurricanes play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6821197/2025/11/19/hurricanes-vs-wild-stream-how-to-watch-nov-19/
 
-**Thanksgiving Tiramisù Recipes**\
-`Tiramisù delivers every time. When it comes to eating it, especially after a feast like Thanksgiving, there’s a lightness to the layers of soft cream and caky soaked ladyfingers that lets you enjoy bite after bite without feeling too stuffed.`\
-https://nytimes.com/video/dining/100000010531272/thanksgiving-tiramisu-recipes.html
+**How to watch Nuggets vs. Pelicans: Time, TV, streaming**\
+`Find out how to watch the Denver Nuggets play the New Orleans Pelicans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6821195/2025/11/19/nuggets-vs-pelicans-stream-how-to-watch-nov-19/
 
-**Bonnie Munshin, Velvet Hammer at a Hamptons Hot Spot, Dies at 84**\
-`At Nick & Toni’s, the restaurant in East Hampton, N.Y., beloved by both celebrities and locals, she kept all happy and fed, and the looky-loos at bay.`\
-https://nytimes.com/2025/11/19/dining/bonnie-munshin-dead.html
+**How to watch Kings vs. Thunder: Time, TV, streaming**\
+`Find out how to watch the Sacramento Kings play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6821193/2025/11/19/kings-vs-thunder-stream-how-to-watch-nov-19/
 
-**Israeli Strikes Kill at Least 25 in Gaza Amid Truce, Officials Say**\
-`Israel’s military said it had launched attacks across Gaza after Palestinian militants shot at its troops. The six-week-old cease-fire has been pierced periodically by bursts of violence.`\
-https://nytimes.com/2025/11/19/world/middleeast/israeli-strikes-gaza-deaths.html
+**Submit your questions for Kevin Fishbain's Bears mailbag**\
+`The Bears are 7-3 and host the Pittsburgh Steelers this weekend. Share your questions here.`\
+https://nytimes.com/athletic/6821181/2025/11/19/submit-your-questions-for-kevin-fishbains-bears-mailbag-18/
 
