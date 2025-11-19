@@ -1,40 +1,40 @@
-**Ravens have come a long way this season, but they're still not where they want to be**\
-`According to The Athletic's Playoff Simulator, Baltimore has an 82 percent chance to make the playoffs despite getting off to a 1-5 start.`\
-https://nytimes.com/athletic/6818141/2025/11/19/ravens-playoff-odds-afc-north/
+**What to Know About the Corruption Scandal Roiling Ukraine**\
+`An investigation into the state-owned nuclear power company has reached members of President Volodymyr Zelensky’s inner circle.`\
+https://nytimes.com/2025/11/19/world/europe/ukraine-corruption-scandal-zelensky.html
 
-**For the incomparable LeBron James, staying power is his most spectacular asset**\
-`It's been a surreal run for James. The King’s court is still his sanctuary, still his home sweet home. He has outlasted absolutely everyone.`\
-https://nytimes.com/athletic/6819238/2025/11/19/lebron-james-lakers-record-23rd-nba-season-jazz/
+**USMNT show they mean business. Plus: Ronaldo's White House visit and Scotland's World Cup dream**\
+`Pochettino's men are on a roll before the World Cup. But what was Ronaldo doing at a gala dinner with President Trump?`\
+https://nytimes.com/athletic/6819705/2025/11/19/tafc-newsletter-usmnt-ronaldo-scotland/
 
-**Can the soul of college football be found in the tailgate lots?**\
-`Walk around parkings lots before a college football game, and you can feel the blend of petty and pure that’s unique to this sport.`\
-https://nytimes.com/athletic/6816935/2025/11/19/college-football-tailgating-culture-parking-food/
+**College football Week 13 streaming guide: CFP stakes for USC-Oregon, Oklahoma, the ACC**\
+`Here's what to watch for around college football on Friday and Saturday, with conference championship games just two weeks away.`\
+https://nytimes.com/athletic/6816055/2025/11/19/college-football-oregon-usc-oklahoma-missouri-how-to-watch/
 
-**The Pulse: The best teenage defenseman of all time?**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6817621/2025/11/19/nhl-bedard-celebrini-schaefer-the-pulse/
+**How Are Immigrants Feeling?**\
+`We explain the latest insights from a poll on their attitudes about the country.`\
+https://nytimes.com/2025/11/19/briefing/how-are-immigrants-feeling.html
 
-**Two Miss Universe Judges Resign Before Finale, Deepening a Crisis**\
-`One accused the competition of being rigged. It is the second scandal to roil the pageant after an organizer berated a contestant in public.`\
-https://nytimes.com/2025/11/19/world/asia/judges-resign-miss-universe.html
+**Minneapolis is a top women's sports city. A local champion explains why**\
+`Minneapolis at No. 2 in our Top Women's Sports Cities ranking may be a bit of a surprise. But not if you talk to Cheryl Reeve.`\
+https://nytimes.com/athletic/6817209/2025/11/19/minneapolis-top-sports-cities-cheryl-reeve/
 
-**Yohe: In Sergei Murashov, we are reminded that the future might not be far away**\
-`Pittsburgh's young goaltender is important for so many reasons in the team's rebuild. `\
-https://nytimes.com/athletic/6819456/2025/11/19/penguins-sergei-murashov-hope/
+**To play or not to play: The case for and against making the conference championship**\
+`In the 12-team Playoff era, what are the pros and cons of an extra game before the main tournament?`\
+https://nytimes.com/athletic/6819518/2025/11/19/college-football-conference-championships-playoff/
 
-**Jalen Duren's defense, Deni Avdija's speed and the NBA's 5 most improved players**\
-`Who are the leading early candidates for most improved this season in the NBA?`\
-https://nytimes.com/athletic/6817671/2025/11/19/nba-most-improved-players-jalen-duran-deni-avdija/
+**As Browns' practice week begins, Shedeur Sanders can finally get reps with No. 1 offense**\
+`The lack of practice reps doesn’t excuse Sanders' poor performance in his debut against the Ravens, but it certainly didn’t help.`\
+https://nytimes.com/athletic/6818288/2025/11/19/browns-shedeur-sanders-practice-reps/
 
-**Why the Bay Area is the No. 1 women's sports city in the U.S.**\
-`The Bay Area has been loving on women athletes — their talent, their brilliance, their drive — for as long as anyone can remember.`\
-https://nytimes.com/athletic/6815888/2025/11/19/top-womens-sports-cities-list-bay-area/
+**Bielsa on the brink: Humiliation vs USA puts Uruguay coach on pre-World Cup hot seat**\
+`Marcelo Bielsa took accountability for Uruguay's humbling loss to the U.S. Will he pay the ultimate price before the World Cup next summer?`\
+https://nytimes.com/athletic/6819213/2025/11/19/marcelo-bielsa-uruguay-manager-usa-loss-world-cup/
 
-**The best NFL games on TV for the rest of 2025: Defending champs vs. defending MVP**\
-`We have reached the moment in the NFL calendar where the chill in the air hits you square.`\
-https://nytimes.com/athletic/6808271/2025/11/19/philadelphia-eagles-buffalo-bills-josh-allen-nfl-week-17/
+**Ranking Jets' cap efficiency: Best and worst contracts, opportunities and alarm bells**\
+`There's no brighter spot than Morgan Barron, whose speed and strength make him unique on the Jets' roster. Who else is on the list?`\
+https://nytimes.com/athletic/6817464/2025/11/19/jets-cap-efficiency-contracts-opportunities-alarm-bells/
 
-**The 2025 Chiefs are trending to be one of the most unclutch NFL teams ever**\
-`The Chiefs — in one stat — are performing as poorly as any NFL team in the last quarter-decade.`\
-https://nytimes.com/athletic/6818152/2025/11/19/chiefs-failing-in-clutch-patrick-mahomes/
+**What's at stake at the RSM Classic? 3 things to watch**\
+`The final event on the FedEx Cup fall calendar is always juicy and full of storylines. This year, it’s even more tense.`\
+https://nytimes.com/athletic/6817686/2025/11/19/pga-tour-rsm-classic-stakes/
 
