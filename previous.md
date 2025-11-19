@@ -1,40 +1,36 @@
-**NFL Week 12 confidence picks: Why the Eagles will beat the Cowboys**\
-`KC Joyner's straight-up confidence picks are 43-13 in the last four weeks. See what he thinks will happen this week.`\
-https://nytimes.com/athletic/6819600/2025/11/19/nfl-week-12-confidence-picks-eagles-cowboys/
+**Shocking Orioles-Angels trade might make sense for both teams**\
+`In a late-night twist, the Orioles traded their 2018 first-round pick to the Angels for a league-average left fielder who crushes southpaws.`\
+https://nytimes.com/athletic/6820812/2025/11/19/orioles-angels-trade-grayson-rodriguez-taylor-ward/
 
-**Panthers’ Eetu Luostarinen out after suffering burns from barbecue accident**\
-`Luostarinen's injury is another blow to the Panthers, who have been without their two top forwards.`\
-https://nytimes.com/athletic/6820798/2025/11/19/eetu-luostarinen-burns-barbecue-accident-florida-panthers/
+**Early Signs Point to a Harsh Flu Season in the U.S.**\
+`The virus circulating this year is more virulent and has been spreading faster and earlier than usual.`\
+https://nytimes.com/2025/11/19/health/flu-season-us.html
 
-**USMNT’s 2026 takes shape: World Cup sendoff in Chicago, March friendlies booked**\
-`The logistics of the USMNT 2026 schedule, both leading up to the World Cup and during it, have emerged`\
-https://nytimes.com/athletic/6820796/2025/11/19/usmnt-2026-schedule-world-cup/
+**After Shutdown, Labor Department Says Some Data Is Gone for Good**\
+`Surveys were delayed and some cannot be collected at all, officials said, further complicating the Federal Reserve’s decision on interest rates next month.`\
+https://nytimes.com/2025/11/19/business/economy/labor-department-economy-data-october.html
 
-**How #GRWM Found a New Demographic**\
-`This episode is all about internet culture, the content that feeds it and its impact on how we present ourselves to the world.`\
-https://nytimes.com/paidpost/loreal-groupe/how-grwm-found-a-new-demographic.html
+**Alice and Ellen Kessler, ’60s Singing Sensations, Die at 89**\
+`The twin sisters from Germany, who were nightclub stars and regular guests on international variety shows, chose to end their lives together.`\
+https://nytimes.com/2025/11/19/arts/alice-ellen-kessler-dead.html
 
-**James Franklin tears up talking about Brent Pry during Virginia Tech intro**\
-`As Franklin weighed his options about where to coach next, he said the way Brent Pry spoke about Virginia Tech was influential.`\
-https://nytimes.com/athletic/6820728/2025/11/19/james-franklin-virginia-tech-introduction-conference/
+**December Rate Cut in Doubt as Fed Fault Lines Deepen, Minutes Show**\
+`The central bank’s decision to lower interest rates last month was more divisive than it first appeared as officials splintered over how to weigh a weakening labor market against rising inflation.`\
+https://nytimes.com/2025/11/19/business/december-rate-cut-in-doubt-as-fed-fault-lines-deepen-minutes-show.html
 
-**Saudi Arabia’s Return to Washington**\
-`David Sanger, a White House and national security correspondent, describes how the crown prince of Saudi Arabia, a pariah after the killing of Jamal Khashoggi, has become a dealmaker in Washington.`\
-https://nytimes.com/video/us/politics/100000010531003/saudi-arabias-return-to-washington.html
+**Arrest Made After Woman Is Set on Fire and Severely Burned on Chicago Train**\
+`The woman, 26, was in critical condition when she was taken to the hospital, the police said. A person of interest was in custody.`\
+https://nytimes.com/2025/11/19/us/woman-l-train-fire-chicago.html
 
-**College Football Playoff 2025 projections: The most likely bracket entering Week 13**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/11/19/college-football-playoff-bracket-projections-odds/
+**Northern Ireland Must Change How Its Schools Teach Religion, Court Says**\
+`The Supreme Court of the United Kingdom said Northern Ireland’s public schools must include the study of faiths other than Christianity.`\
+https://nytimes.com/2025/11/19/world/europe/northern-ireland-court-ruling-religion-schools.html
 
-**Trump Says He Will Approve the Release of the Epstein Files. But There Are Loopholes.**\
-`The bill has not yet been presented to the president, and it wasn’t clear when it might reach his desk.`\
-https://nytimes.com/2025/11/19/us/politics/trump-epstein-files-loopholes.html
+**NHL rumblings: Canadiens trade targets, Olympic venue update, Evgeni Malkin's future**\
+`NHL relieved to some degree following Olympic venue inspection. Plus: Team Canada braintrust set to meet; and an Alex Tuch contract update`\
+https://nytimes.com/athletic/6820774/2025/11/19/canadiens-trade-malkin-olympics-nhl-rumblings/
 
-**Connor Bedard, Macklin Celebrini score hat tricks on the same night, continue Art Ross push**\
-`Macklin Celebrini, 19, and Connor Bedard, 20, are both making a case for the Art Ross Trophy.`\
-https://nytimes.com/athletic/6820671/2025/11/19/connor-bedard-macklin-celebrini-blackhawks-sharks-hat-trick/
-
-**NFL Week 12 survivor pool picks, strategy: Time to use the top teams**\
-`Adam Gretz and Renee Miller take your questions and give their own survivor pool advice for NFL Week 12. `\
-https://nytimes.com/athletic/6820040/2025/11/19/nfl-week-12-survivor-pool-picks-strategy-seahawks/
+**Trump’s Embrace of the Saudi Crown Prince**\
+`Readers react to the White House meeting between President Trump and the Saudi crown prince. Also: Skin care for little kids; when libraries close.`\
+https://nytimes.com/2025/11/19/opinion/trump-saudi-crown-prince.html
 
