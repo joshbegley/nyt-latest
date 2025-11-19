@@ -1,3 +1,11 @@
+**Fantasy football strength of schedule: Week 12 and playoff matchup rankings**\
+`Jake Ciely's Week 12 matchup rankings can help with difficult start/sit decisions this week. Playoff rankings aid future plans. `\
+https://nytimes.com/athletic/6820147/2025/11/19/fantasy-football-strength-of-schedule-week-12-playoffs/
+
+**Trump Moves to Weaken the Endangered Species Act**\
+`Four proposed rules could make it easier to drill for oil or harvest timber in areas where endangered species live.`\
+https://nytimes.com/2025/11/19/climate/trump-endangered-species-act.html
+
 **A New York Night Out With Tom Hanks**\
 `A crowd that included Meryl Streep, Martin Short and Steve Martin packed the Shed for the actor’s new show, “This World of Tomorrow.”`\
 https://nytimes.com/2025/11/19/style/tom-hanks-this-world-of-tomorrow.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/19/world/middleeast/israeli-strikes-gaza-deaths.html
 **Union place Ernst Tanner on leave as MLS re-opens misconduct investigation**\
 `Philadelphia's sporting director is the subject of a workplace misconduct investigation`\
 https://nytimes.com/athletic/6820916/2025/11/19/philadelphia-union-mls-ernst-tanner-misconduct/
-
-**Trump Wanted to Abolish FEMA. His Own Advisers Disagree.**\
-`A panel convened by President Trump is said to have rejected the president’s idea that the agency should “go away.”`\
-https://nytimes.com/2025/11/19/climate/fema-review-council-report-trump.html
-
-**Data Centers in Space**\
-`Kevin Roose and Casey Newton, the hosts of “Hard Fork,” discuss Google’s Project Suncatcher, one of a number of companies’ ambitious plans to build solar-powered data centers in space. As the demands for electricity increase, is this our only option?`\
-https://nytimes.com/video/podcasts/100000010530997/data-centers-in-space.html
 

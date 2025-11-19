@@ -1,3 +1,11 @@
+**Fantasy football strength of schedule: Week 12 and playoff matchup rankings**\
+`Jake Ciely's Week 12 matchup rankings can help with difficult start/sit decisions this week. Playoff rankings aid future plans. `\
+https://nytimes.com/athletic/6820147/2025/11/19/fantasy-football-strength-of-schedule-week-12-playoffs/
+
+**Trump Moves to Weaken the Endangered Species Act**\
+`Four proposed rules could make it easier to drill for oil or harvest timber in areas where endangered species live.`\
+https://nytimes.com/2025/11/19/climate/trump-endangered-species-act.html
+
 **A New York Night Out With Tom Hanks**\
 `A crowd that included Meryl Streep, Martin Short and Steve Martin packed the Shed for the actor’s new show, “This World of Tomorrow.”`\
 https://nytimes.com/2025/11/19/style/tom-hanks-this-world-of-tomorrow.html
