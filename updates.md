@@ -1,3 +1,11 @@
+**Stephen Colbert Celebrates ‘Epstein Rockin’ Eve’**\
+`“Stay up for a ball drop you’re going to want to miss,” the “Late Show” host said as Congress voted for the release of the Jeffrey Epstein files.`\
+https://nytimes.com/2025/11/19/arts/television/late-night-trump-epstein-files.html
+
+**How to watch Buccaneers vs. Rams: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Buccaneers play the Los Angeles Rams, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6819309/2025/11/19/buccaneers-vs-rams-stream-how-to-watch-nov-23/
+
 **Word of the Day: umbrage**\
 `This word has appeared in 58 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/11/19/learning/word-of-the-day-umbrage.html
