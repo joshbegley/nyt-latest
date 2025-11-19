@@ -1,3 +1,7 @@
+**Russia Strikes Ukraine as Zelensky Aims to Revive Peace Talks**\
+`At least 10 people were killed in the western Ukrainian city of Ternopil when a Russian missile hit a residential building, a Ukrainian official said.`\
+https://nytimes.com/2025/11/19/world/europe/ukraine-russia-strikes-peace-talks.html
+
 **How Curacao became the smallest ever nation to qualify for the FIFA World Cup: "What an adventure"**\
 `The Caribbean island is only home to around 155,000 people, but their team have made history by earning a place at next summer's tournament`\
 https://nytimes.com/athletic/6819270/2025/11/19/curacao-world-cup-qualification-smallest-nation/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/19/crosswords/spelling-bee-forum.html
 **U.S. Loans $1 Billion to Three Mile Island Nuclear Project**\
 `The Pennsylvania site, shorthand for the dangers of nuclear power after a 1979 meltdown, is set for revival under a deal to power Microsoft data centers.`\
 https://nytimes.com/2025/11/19/us/nuclear-power-three-mile-island.html
-
-**Saudi Crown Prince Dines With Trump at the White House**\
-`President Trump stood shoulder-to-shoulder with Crown Prince Mohammad bin Salman of Saudi Arabia during a White House dinner on Tuesday. The room was packed with leaders from several industries.`\
-https://nytimes.com/video/us/politics/100000010532543/trump-saudi-dinner-guests.html
 
