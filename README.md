@@ -1,3 +1,7 @@
+**How Duke outlasted Kansas in Champions Classic to move to 5-0**\
+`A 21-7 run to close the first half gave Duke the cushion it needed to defeat Kansas in Madison Square Garden.`\
+https://nytimes.com/athletic/6818981/2025/11/18/duke-kansas-score-result/
+
 **Brewers don't see Brandon Woodruff's return as prelude to potential Freddy Peralta trade**\
 `Together, Woodruff and Peralta are set to make around $30 million in 2026.`\
 https://nytimes.com/athletic/6818897/2025/11/18/brewers-potential-freddy-peralta-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6818814/2025/11/18/san-francisco-giants-notes-40-ma
 **Ronaldo praised by Trump at White House dinner in his return to U.S.**\
 `The Portugal superstar has previously expressed a wish to meet Trump and talk about "peace"`\
 https://nytimes.com/athletic/6818863/2025/11/18/cristiano-ronaldo-trump-white-house-saudi/
-
-**Creep Into a Creek**\
-`Jeremy Newton can’t get no satisfaction.`\
-https://nytimes.com/2025/11/18/crosswords/daily-puzzle-2025-11-19.html
 
