@@ -1,3 +1,19 @@
+**Inside the Jake Paul vs Anthony Joshua deal - with the man who made it happen**\
+`Nakisa Bidarian reveals how 'the biggest fight' of the year was quickly put together`\
+https://nytimes.com/athletic/6816826/2025/11/19/jake-paul-anthony-joshua-deal-nakisa-bidarian/
+
+**Enzo Fernandez is crucial for Chelsea - the numbers and Maresca's selections prove it**\
+`The Argentina midfielder has made 221 appearances for club and country since February 2022. He's such a vital player he rarely gets a rest`\
+https://nytimes.com/athletic/6816605/2025/11/19/enzo-fernandez-chelsea-analysis-report/
+
+**What happens next for Liverpool's top talents Rio Ngumoha and Trey Nyoni?**\
+`With Premier League minutes hard to come by, Liverpool need to find a pathway to develop their best young players`\
+https://nytimes.com/athletic/6813940/2025/11/19/what-happens-next-for-liverpools-top-talents-rio-ngumoha-and-trey-nyoni/
+
+**Welcome to football's age of lawfare - bitter, belligerent and eyewateringly expensive**\
+`In the past, football avoided the court room where possible. Now, legal battles are becoming more frequent`\
+https://nytimes.com/athletic/6814257/2025/11/19/premier-league-football-legal-costs/
+
 **Mariano Diaz took Ronaldo's No 7. His advice for Endrick? 'There is life beyond Real Madrid'**\
 `The former Real Madrid striker talks to The Athletic about the highs and lows of his career in the Spanish capital — and what happened next`\
 https://nytimes.com/athletic/6814855/2025/11/19/mariano-diaz-real-madrid-ronaldo-interview/
