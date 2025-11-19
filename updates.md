@@ -1,3 +1,11 @@
+**U.S.-Russian Peace Plan Would Force Ukraine to Cede Land and Cut Army**\
+`The 28-point proposal, which comes as the Trump administration tries to restart settlement talks, includes demands long rejected by Kyiv as  nonstarters.`\
+https://nytimes.com/2025/11/19/world/europe/us-russia-ukraine-peace-plan.html
+
+**Mark Makers – Dara Treseder**\
+`The Moment I Learned to Make the Invisible, Unignorable`\
+https://nytimes.com/paidpost/nyta/mark-makers/mark-makers-dara-treseder.html
+
 **Mark Makers – Esi Eggleston Bracey**\
 `The Moment I Chopped Off My Hair — and Started a Movement
 `\

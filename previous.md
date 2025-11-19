@@ -1,3 +1,11 @@
+**U.S.-Russian Peace Plan Would Force Ukraine to Cede Land and Cut Army**\
+`The 28-point proposal, which comes as the Trump administration tries to restart settlement talks, includes demands long rejected by Kyiv as  nonstarters.`\
+https://nytimes.com/2025/11/19/world/europe/us-russia-ukraine-peace-plan.html
+
+**Mark Makers – Dara Treseder**\
+`The Moment I Learned to Make the Invisible, Unignorable`\
+https://nytimes.com/paidpost/nyta/mark-makers/mark-makers-dara-treseder.html
+
 **Mark Makers – Esi Eggleston Bracey**\
 `The Moment I Chopped Off My Hair — and Started a Movement
 `\
@@ -30,12 +38,4 @@ https://nytimes.com/2025/11/19/us/chicago-immigration-ruling.html
 **Police Found $1 Million in a Tub Under a Garage. The Government Gets to Keep It.**\
 `A court ruled that the hidden cash, which the police found while searching for an illegal gun in Ontario, did not lawfully belong to the man living on the property.`\
 https://nytimes.com/2025/11/19/world/canada/canada-government-buried-money-raid.html
-
-**Bruins' Charlie McAvoy undergoes facial surgery, recovery timeline unknown**\
-`McAvoy was injured on Nov. 15 during the Bruins’ 3-2 win over the Montreal Canadiens when he was hit in the face by a Noah Dobson slap shot.`\
-https://nytimes.com/athletic/6821471/2025/11/19/bruins-charlie-mcavoy-surgery-facial-injury/
-
-**Believe It or Not, That $12 Million Gold Toilet Was Bought by … Ripley’s**\
-`The entertainment company plans on displaying the toilet, saying its team is exploring “whether visitors may someday be allowed to use it.”`\
-https://nytimes.com/2025/11/19/arts/design/gold-toilet-owner-ripleys.html
 
