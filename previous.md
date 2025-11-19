@@ -1,3 +1,11 @@
+**USMNT’s 2026 takes shape: World Cup sendoff in Chicago, March friendlies booked**\
+`The logistics of the USMNT 2026 schedule, both leading up to the World Cup and during it, have emerged`\
+https://nytimes.com/athletic/6820796/2025/11/19/usmnt-2026-schedule-world-cup/
+
+**How #GRWM Found a New Demographic**\
+`This episode is all about internet culture, the content that feeds it and its impact on how we present ourselves to the world.`\
+https://nytimes.com/paidpost/loreal-groupe/how-grwm-found-a-new-demographic.html
+
 **James Franklin cries during Virginia Tech introduction**\
 `As Franklin weighed his options about where to coach next, he said the way Brent Pry spoke about Virginia Tech was influential.`\
 https://nytimes.com/athletic/6820728/2025/11/19/james-franklin-virginia-tech-introduction-conference/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6817516/2025/11/19/ny-giants-jaxson-dart-concussion
 **A record 4 MLB players accepted the qualifying offer: Here's why**\
 `Until Tuesday, only 14 players had accepted the offer since 2012. But a record amount accepted the $22.025 million contract this offseason.`\
 https://nytimes.com/athletic/6818212/2025/11/19/mlb-qualifying-offer-accepted/
-
-**Football club ban fan 'indefinitely' after sexist abuse of referee**\
-`AFC Rushden & Diamonds' game at Coventry Sphinx on Saturday was called off after a “comment of a sexist nature” was aimed at the official.`\
-https://nytimes.com/athletic/6820667/2025/11/19/football-club-ban-fan-referee-sexist-abuse/
-
-**Panthers, Rangers Winter Classic jerseys dip into the past**\
-`Teams wearing themed jerseys became a big part of the equation that made the Winter Classic a winner for the league.`\
-https://nytimes.com/athletic/6820411/2025/11/19/winter-classic-jerseys-rangers-panthers/
 

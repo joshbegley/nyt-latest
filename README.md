@@ -14,6 +14,10 @@ https://nytimes.com/athletic/6820728/2025/11/19/james-franklin-virginia-tech-int
 `David Sanger, a White House and national security correspondent, describes how the crown prince of Saudi Arabia, a pariah after the killing of Jamal Khashoggi, has become a dealmaker in Washington.`\
 https://nytimes.com/video/us/politics/100000010531003/saudi-arabias-return-to-washington.html
 
+**College Football Playoff 2025 projections: The most likely bracket entering Week 13**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/19/college-football-playoff-bracket-projections-odds/
+
 **Trump Says He Will Approve the Release of the Epstein Files. But There Are Loopholes.**\
 `The bill has not yet been presented to the president, and it wasn’t clear when it might reach his desk.`\
 https://nytimes.com/2025/11/19/us/politics/trump-epstein-files-loopholes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/19/us/politics/fbi-gay-pride-flag-lawsuit.html
 **Giants QB Jaxson Dart returns to practice, on track to start Week 12 vs. Lions**\
 `Dart will be a non-contact participant at Giants practice on Wednesday. `\
 https://nytimes.com/athletic/6817516/2025/11/19/ny-giants-jaxson-dart-concussion-week-12-lions/
-
-**A record 4 MLB players accepted the qualifying offer: Here's why**\
-`Until Tuesday, only 14 players had accepted the offer since 2012. But a record amount accepted the $22.025 million contract this offseason.`\
-https://nytimes.com/athletic/6818212/2025/11/19/mlb-qualifying-offer-accepted/
 

@@ -1,3 +1,11 @@
+**USMNT’s 2026 takes shape: World Cup sendoff in Chicago, March friendlies booked**\
+`The logistics of the USMNT 2026 schedule, both leading up to the World Cup and during it, have emerged`\
+https://nytimes.com/athletic/6820796/2025/11/19/usmnt-2026-schedule-world-cup/
+
+**How #GRWM Found a New Demographic**\
+`This episode is all about internet culture, the content that feeds it and its impact on how we present ourselves to the world.`\
+https://nytimes.com/paidpost/loreal-groupe/how-grwm-found-a-new-demographic.html
+
 **James Franklin cries during Virginia Tech introduction**\
 `As Franklin weighed his options about where to coach next, he said the way Brent Pry spoke about Virginia Tech was influential.`\
 https://nytimes.com/athletic/6820728/2025/11/19/james-franklin-virginia-tech-introduction-conference/
