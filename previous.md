@@ -1,40 +1,40 @@
-**The Legacy of Last Chance U coach John Beam: A father to many in the Bay Area**\
-`John Beam's former players and colleagues remember a man who gave them opportunity and love.`\
-https://nytimes.com/athletic/6817026/2025/11/19/last-chance-u-coach-john-beam-shot-death/
+**Yohe: In Sergei Murashov, we are reminded that the future might not be far away**\
+`Pittsburgh's young goaltender is important for so many reasons in the team's rebuild. `\
+https://nytimes.com/athletic/6819456/2025/11/19/penguins-sergei-murashov-hope/
 
-**These Books Were Judged by Their A.I. Covers, and Disqualified**\
-`A New Zealand book competition dropped two of a publisher’s books because they had A.I.-generated covers. The publisher and the designer pushed back.`\
-https://nytimes.com/2025/11/19/books/new-zealand-ocham-book-awards-ai.html
+**Jalen Duren's defense, Deni Avdija's speed and the NBA's 5 most improved players**\
+`Who are the leading early candidates for most improved this season in the NBA?`\
+https://nytimes.com/athletic/6817671/2025/11/19/nba-most-improved-players-jalen-duran-deni-avdija/
 
-**The NFL's long-distance kicking revolution: '70 will be the new 60'**\
-`Better athletes, specialized training and technological advances are pushing limits farther and farther back.`\
-https://nytimes.com/athletic/6814741/2025/11/19/nfl-kicking-distance-yards-field-goals/
+**Why the Bay Area is the No. 1 women's sports city in the U.S.**\
+`The Bay Area has been loving on women athletes — their talent, their brilliance, their drive — for as long as anyone can remember.`\
+https://nytimes.com/athletic/6815888/2025/11/19/top-womens-sports-cities-list-bay-area/
 
-**LeBron James, Steph Curry top the best 21st-century NBA players according to our readers**\
-`How do the readers' rankings compare with The Athletic staff picks? Are there changes at the top? Does anyone sneak into the top 25?`\
-https://nytimes.com/athletic/6817573/2025/11/19/best-nba-players-poll-21st-century-lebron-curry/
+**The best NFL games on TV for the rest of 2025: Defending champs vs. defending MVP**\
+`We have reached the moment in the NFL calendar where the chill in the air hits you square.`\
+https://nytimes.com/athletic/6808271/2025/11/19/philadelphia-eagles-buffalo-bills-josh-allen-nfl-week-17/
 
-**Wayne Gretzky on Canada's hopes and why the World Cup will transform the nation**\
-`In a conversation with The Athletic, Gretzky shared his excitement about the 2026 World Cup, and his advice for Canada's national team.`\
-https://nytimes.com/athletic/6818844/2025/11/19/wayne-gretzky-canada-world-cup-sports-culture/
+**The 2025 Chiefs are trending to be one of the most unclutch NFL teams ever**\
+`The Chiefs — in one stat — are performing as poorly as any NFL team in the last quarter-decade.`\
+https://nytimes.com/athletic/6818152/2025/11/19/chiefs-failing-in-clutch-patrick-mahomes/
 
-**Who is Mr. Mint? The 'Indiana Jones' of early sports card dealers**\
-`Alan Rosen recognized the growing value of sports cards long before many others, but that doesn't mean he held on to them for long.`\
-https://nytimes.com/athletic/6818787/2025/11/19/sports-card-dealer-mr-mint-billion-dollars/
+**Xavier Legette brought Dolla Bill back vs. Falcons. Is the Panthers WR back, too?**\
+`If Legette continues to play as he did against Atlanta, it makes game planning more difficult for opposing defensive coordinators.`\
+https://nytimes.com/athletic/6818234/2025/11/19/panthers-xavier-legette-dolla-bill-td-celebration/
 
-**The New York Times International Edition in Print for Thursday, Nov. 20, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/11/19/todays-new-york-times-international-edition
+**Justin Jefferson showing remarkable patience through Vikings QB J.J. McCarthy's struggles**\
+`The All-Pro receiver has said all of the right things and continued to support his young quarterback despite the offense's struggles.`\
+https://nytimes.com/athletic/6817955/2025/11/19/justin-jefferson-jj-mccarthy-vikings-offense/
 
-**Ronaldo at the White House? This is the world in 2025 (and World Cup in 2026)**\
-`Why was Ronaldo at the White House with President Trump for a black-tie dinner, along with Saudi Crown Prince Mohamed bin Salman?`\
-https://nytimes.com/athletic/6819393/2025/11/19/ronaldo-trump-mbs-white-house/
+**The Leafs need to survive an injury storm to save their season**\
+`It was almost six years ago, exactly, that the Leafs last lost six games in a row. It cost their coach his job.`\
+https://nytimes.com/athletic/6819011/2025/11/19/maple-leafs-injuries-season-impact/
 
-**This Play Recruited Actors With Anorexia. Was That Ethical?**\
-`Some psychologists and parents argued that it risked glamorizing the condition, but one performer described the experience as empowering: “Onstage, I can be who I really am.”`\
-https://nytimes.com/2025/11/19/theater/anorexia-play.html
+**Minnesota Frost 2025-26 preview: Don't count the two-time champs out**\
+`As they’ve shown over the last two years, all the Frost need to do is get into the playoffs to make some waves.`\
+https://nytimes.com/athletic/6816191/2025/11/19/minnesota-frost-pwhl-preview-2025-26/
 
-**Arsenal to end eight-year Visit Rwanda sponsorship deal**\
-`The north London club's association with the tourist board has been the subject of criticism and fan protests.`\
-https://nytimes.com/athletic/6819499/2025/11/19/arsenal-end-visit-rwanda-sponsorship-deal/
+**Rangers need J.T. Miller to give them more offense, and he knows it**\
+`New York's captain is struggling to put up numbers this season as his team hovers around the .500 mark.`\
+https://nytimes.com/athletic/6819310/2025/11/19/rangers-jt-miller-offense/
 
