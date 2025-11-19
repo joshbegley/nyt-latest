@@ -1,3 +1,7 @@
+**Saudi Arabia’s Return to Washington**\
+`David Sanger, a White House and national security correspondent, describes how the crown prince of Saudi Arabia, a pariah after the killing of Jamal Khashoggi, has become a dealmaker in Washington.`\
+https://nytimes.com/video/us/politics/100000010531003/saudi-arabias-return-to-washington.html
+
 **Trump Says He Will Approve the Release of the Epstein Files. But There Are Loopholes.**\
 `The bill has not yet been presented to the president, and it wasn’t clear when it might reach his desk.`\
 https://nytimes.com/2025/11/19/us/politics/trump-epstein-files-loopholes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6820411/2025/11/19/winter-classic-jerseys-rangers-p
 **My List: A Different Kind of Review Contest**\
 `Choose three to five works of art or culture to group in some way, then tell us why we should — or shouldn’t — check them out. Contest dates: Jan. 14-Feb. 25, 2026.`\
 https://nytimes.com/2025/11/19/learning/my-list-a-different-kind-of-review-contest.html
-
-**MLB lands new media deals with NBC, Netflix and ESPN to restructure future**\
-`The three-year agreements were a direct result of ESPN opting out of the final three seasons of its contract in February.`\
-https://nytimes.com/athletic/6820362/2025/11/19/mlb-tv-deals-espn-nbc-netflix-peacock/
 
