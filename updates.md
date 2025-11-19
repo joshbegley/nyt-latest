@@ -1,3 +1,7 @@
+**Harvard Opens New Investigation Into Summers and Epstein**\
+`The university is reviewing newly released emails between convicted sex offender Jeffrey Epstein and former Harvard President Lawrence H. Summers, among other people at the institution.`\
+https://nytimes.com/2025/11/19/us/harvard-summers-epstein-investigation.html
+
 **The New York Times in Print for Wednesday, Nov. 19, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/19/todays-new-york-times
