@@ -1,3 +1,35 @@
+**Browns to start Shedeur Sanders against Raiders, Stefanski says**\
+`Since 1999, 17 Browns quarterbacks have made their starting debut as rookies. All 17 lost their first starts.`\
+https://nytimes.com/athletic/6820387/2025/11/19/shedeur-sanders-browns-raiders-start/
+
+**NHL won't further discipline Stars' Mikko Rantanen for boarding call: Source**\
+`Rantanen was given a five-minute major penalty and a 10-minute game misconduct for boarding Islanders defenseman Alexander Romanov.`\
+https://nytimes.com/athletic/6820065/2025/11/19/islanders-stars-mikko-rantanen-alexander-romanov-nhl/
+
+**How to watch Coastal Carolina vs. NC State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Coastal Carolina Chanticleers play the NC State Lady Wolfpack, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6820469/2025/11/19/coastal-carolina-vs-nc-state-stream-how-to-watch-nov-19/
+
+**How to watch Winthrop vs. South Carolina women's basketball: Time, TV, streaming**\
+`Find out how to watch the Winthrop Eagles play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6820467/2025/11/19/winthrop-vs-south-carolina-stream-how-to-watch-nov-19/
+
+**How to watch East Texas A&M vs. Oklahoma women's basketball: Time, TV, streaming**\
+`Find out how to watch the East Texas A&M Lions play the Oklahoma Sooners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6820465/2025/11/19/east-texas-a-m-vs-oklahoma-stream-how-to-watch-nov-19/
+
+**How to watch Oklahoma State vs. St. John's women's basketball: Time, TV, streaming**\
+`Find out how to watch the Oklahoma State Cowgirls play the St. John's Red Storm, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6820464/2025/11/19/oklahoma-state-vs-st-john-s-stream-how-to-watch-nov-19/
+
+**How to watch Arizona vs. UConn men's basketball: Time, TV, streaming**\
+`Find out how to watch the Arizona Wildcats play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6820460/2025/11/19/arizona-vs-uconn-stream-how-to-watch-nov-19/
+
+**How to watch Middle Tennessee vs. Michigan men's basketball: Time, TV, streaming**\
+`Find out how to watch the Middle Tennessee Blue Raiders play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6820456/2025/11/19/middle-tennessee-vs-michigan-stream-how-to-watch-nov-19/
+
 **USWNT coach Emma Hayes leaves Trinity Rodman off roster for upcoming friendlies**\
 `Five other players bound for the NWSL Championship were included in the squad.`\
 https://nytimes.com/athletic/6819798/2025/11/19/trinity-rodman-uswnt-roster-nwsl-championship/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6819798/2025/11/19/trinity-rodman-uswnt-roster-nwsl
 **Screenings Could Save Four Times as Many People From Lung Cancer**\
 `A new report says too few eligible Americans are being checked for the country’s deadliest cancer before it spreads.`\
 https://nytimes.com/2025/11/19/well/lung-cancer-screening-study.html
-
-**100 Easy, So-Good, Seconds-Please Thanksgiving Sides**\
-`That you can save directly to your recipe box.`\
-https://nytimes.com/2025/11/19/dining/100-easy-so-good-seconds-please-thanksgiving-sides.html
-
-**New Gene-Editing Strategy Could Help Development of Treatments for Rare Diseases**\
-`Instead of requiring personalized gene edits for each patient, the new approach could create a standardized method to use for many diseases.`\
-https://nytimes.com/2025/11/19/health/gene-editing-rare-diseases.html
-
-**When a Person in Distress Denies Being Suicidal, Should They Be Believed?**\
-`Clinicians often rely on patients to disclose thoughts of self-harm, but some are lobbying for a new diagnosis to better assess the risk.`\
-https://nytimes.com/2025/11/19/well/mind/when-a-person-in-distress-denies-being-suicidal-should-they-be-believed.html
-
-**There’s Just Something Safe and Comforting About a Biscuit**\
-`Two Nashville bakers are lifting up their community with these flaky vegan biscuits, perfectly pitched for holiday tables.`\
-https://nytimes.com/2025/11/19/magazine/vegan-biscuits-nashville-bakery.html
-
-**Deion Sanders says he's still 'the right man' for Colorado, pleads for patience**\
-`Outgoing athletic director Rick George wrote on social media that Sanders' seat "is not hot."`\
-https://nytimes.com/athletic/6819999/2025/11/19/deion-sanders-colorado-job-security/
-
-**Randy Jones, Padres' Cy Young winner, dies at 75**\
-`Jones, who was inducted into the Padres Hall of Fame in 1999, was a fan favorite.`\
-https://nytimes.com/athletic/6820267/2025/11/19/randy-jones-san-diego-padres-pitcher-dies/
-
-**Review: A Cozy ‘Arabella’ Returns to the Met Opera**\
-`The latest revival of Richard Strauss and Hugo von Hofmannsthal’s final opera was a night of promising debuts and mixed success.`\
-https://nytimes.com/2025/11/19/arts/music/arabella-met-opera-review.html
-
-**The Bounce: Is Steve Kerr right that the NBA season is too long? Plus, LeBron returns**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6820287/2025/11/19/the-bounce-is-steve-kerr-right-that-the-nba-season-is-too-long-plus-lebron-returns/
 
