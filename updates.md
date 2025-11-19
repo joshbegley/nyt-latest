@@ -1,3 +1,23 @@
+**Trump Ramps Up Redistricting Pressure on Indiana Republicans**\
+`After the State Senate said it would not take up a new map, President Trump said he would support primary challengers against Republicans who bucked him.`\
+https://nytimes.com/2025/11/18/us/indiana-redistricting-trump-republicans.html
+
+**Democratic Lawmakers Tell Military to Refuse Illegal Orders**\
+`Six lawmakers, who all served in the military or the intelligence community, released the message in a video. The Trump administration sharply criticized the effort.`\
+https://nytimes.com/2025/11/18/us/politics/democratic-lawmakers-illegal-orders.html
+
+**Twins trade for reliever Eric Orze, add Connor Prielipp, five others to 40-man roster**\
+`The Twins also added immediate bullpen help when they acquired reliever Eric Orze from Tampa Bay in exchange for Jacob Kisting.`\
+https://nytimes.com/athletic/6818497/2025/11/18/twins-2025-minor-league-eric-ozre-connor-prielipp/
+
+**Once a Pariah, Saudi Prince Resets U.S. Relations on His Own Terms**\
+`Seven years ago, Crown Prince Mohammed bin Salman couldn’t visit Washington. When he arrived at the White House on Tuesday, he got F-35s, the world’s fastest chips and the central role in the remaking of the Middle East.`\
+https://nytimes.com/2025/11/18/us/politics/prince-mohammed-trump-us-saudi-arabia.html
+
+**Technology Is Fast and the Courts Are Slow**\
+`Silicon Valley has increasingly pointed at rapid digital changes to blunt government efforts to rein in its power.`\
+https://nytimes.com/2025/11/18/technology/meta-google-antitrust-tech.html
+
 **How to watch Browns vs. Raiders: Time, TV, streaming**\
 `Find out how to watch the Cleveland Browns play the Las Vegas Raiders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6818531/2025/11/18/browns-vs-raiders-stream-how-to-watch-nov-23/
