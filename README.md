@@ -1,3 +1,19 @@
+**Are These Buzzy New N.Y.C. Restaurants Worth a Visit?**\
+`This fall, The Times’s Food contributor Luke Fortney checked in on three of New York City’s biggest restaurant openings, all a few blocks apart in the West Village.`\
+https://nytimes.com/video/dining/100000010533040/are-these-buzzy-new-nyc-restaurants-worth-a-visit.html
+
+**Justin Bieber Got Some Grammys Respect (But Not Enough)**\
+`Will Justin Bieber finally get the institutional respect he’s been chasing at the Grammys? Jon Caramanica and Joe Coscarelli discuss why “SWAG” and “Daisies” aren’t getting all the flowers they deserve.`\
+https://nytimes.com/video/podcasts/100000010531341/justin-bieber-got-some-grammys-respect-but-not-enough.html
+
+**Pumpkin Cheesecake**\
+`This dessert delivers all the warm spices of pumpkin pie along with the tangy creaminess of cheesecake.`\
+https://nytimes.com/video/dining/100000010531463/pumpkin-cheesecake.html
+
+**Newly Discovered Bach Pieces Are the Fruits of Decades of Detective Work**\
+`A pair of organ works that scholars believe were written by a teenage Johann Sebastian Bach were premiered in Leipzig this week and added to the composer’s official catalog.`\
+https://nytimes.com/2025/11/19/arts/music/bach-newly-discovered-works.html
+
 **What the decommitment of Dayton Raiola, Dylan's brother, means for Nebraska**\
 `The Raiola news raises questions. But the ramifications, if any, remain unknown. Let’s unpack it.`\
 https://nytimes.com/athletic/6821604/2025/11/19/dayton-raiola-nebraska-decommitment/
@@ -21,21 +37,4 @@ https://nytimes.com/video/dining/100000010531459/crispy-ginger-sticky-rice.html
 **U.S.-Russian Peace Plan Would Force Ukraine to Cede Land and Cut Army**\
 `The 28-point proposal, which comes as the Trump administration tries to restart settlement talks, includes demands long rejected by Kyiv as  nonstarters.`\
 https://nytimes.com/2025/11/19/world/europe/us-russia-ukraine-peace-plan.html
-
-**Mark Makers – Dara Treseder**\
-`The Moment I Learned to Make the Invisible, Unignorable`\
-https://nytimes.com/paidpost/nyta/mark-makers/mark-makers-dara-treseder.html
-
-**Mark Makers – Esi Eggleston Bracey**\
-`The Moment I Chopped Off My Hair — and Started a Movement
-`\
-https://nytimes.com/paidpost/nyta/mark-makers/mark-makers-esi-eggleston-bracey.html
-
-**Saudi Arabia’s Prince Has Big Plans, but His Giant Fund Is Low on Cash**\
-`After nearly a decade of expensive, hit-and-miss investments, Mohammed bin Salman is overseeing a behind-the-scenes restructuring of the kingdom’s all-important wealth fund.`\
-https://nytimes.com/2025/11/19/business/pif-saudi-arabia-fund-problems.html
-
-**The World Craves A.I. Chips**\
-`Also, a corruption scandal is roiling Ukraine. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/11/19/briefing/nvidia-ai-chips-ukraine-corruption.html
 
