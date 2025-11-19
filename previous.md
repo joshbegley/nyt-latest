@@ -1,3 +1,7 @@
+**NFL Week 12 confidence picks: Why the Eagles will beat the Cowboys**\
+`KC Joyner's straight-up confidence picks are 43-13 in the last four weeks. See what he thinks will happen this week.`\
+https://nytimes.com/athletic/6819600/2025/11/19/nfl-week-12-confidence-picks-eagles-cowboys/
+
 **Panthers’ Eetu Luostarinen out after suffering burns from barbecue accident**\
 `Luostarinen's injury is another blow to the Panthers, who have been without their two top forwards.`\
 https://nytimes.com/athletic/6820798/2025/11/19/eetu-luostarinen-burns-barbecue-accident-florida-panthers/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6820796/2025/11/19/usmnt-2026-schedule-world-cup/
 `This episode is all about internet culture, the content that feeds it and its impact on how we present ourselves to the world.`\
 https://nytimes.com/paidpost/loreal-groupe/how-grwm-found-a-new-demographic.html
 
-**James Franklin cries during Virginia Tech introduction**\
+**James Franklin tears up talking about Brent Pry during Virginia Tech intro**\
 `As Franklin weighed his options about where to coach next, he said the way Brent Pry spoke about Virginia Tech was influential.`\
 https://nytimes.com/athletic/6820728/2025/11/19/james-franklin-virginia-tech-introduction-conference/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6820671/2025/11/19/connor-bedard-macklin-celebrini-
 **NFL Week 12 survivor pool picks, strategy: Time to use the top teams**\
 `Adam Gretz and Renee Miller take your questions and give their own survivor pool advice for NFL Week 12. `\
 https://nytimes.com/athletic/6820040/2025/11/19/nfl-week-12-survivor-pool-picks-strategy-seahawks/
-
-**An F.B.I. Trainee Hung a Pride Flag Near His Desk. He Says He Was Fired for It.**\
-`He described his dismissal as the latest move by senior F.B.I. officials to play politics, damaging morale and hindering the bureau’s ability to carry out its public safety mission.`\
-https://nytimes.com/2025/11/19/us/politics/fbi-gay-pride-flag-lawsuit.html
 

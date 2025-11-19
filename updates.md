@@ -1,3 +1,11 @@
+**NFL Week 12 confidence picks: Why the Eagles will beat the Cowboys**\
+`KC Joyner's straight-up confidence picks are 43-13 in the last four weeks. See what he thinks will happen this week.`\
+https://nytimes.com/athletic/6819600/2025/11/19/nfl-week-12-confidence-picks-eagles-cowboys/
+
+**James Franklin tears up talking about Brent Pry during Virginia Tech intro**\
+`As Franklin weighed his options about where to coach next, he said the way Brent Pry spoke about Virginia Tech was influential.`\
+https://nytimes.com/athletic/6820728/2025/11/19/james-franklin-virginia-tech-introduction-conference/
+
 **Panthers’ Eetu Luostarinen out after suffering burns from barbecue accident**\
 `Luostarinen's injury is another blow to the Panthers, who have been without their two top forwards.`\
 https://nytimes.com/athletic/6820798/2025/11/19/eetu-luostarinen-burns-barbecue-accident-florida-panthers/
