@@ -1,3 +1,7 @@
+**The state of NASCAR's Next Gen car: As big teams dominate, is there any hope for the rest?**\
+`NASCAR is exploring ways to boost parity, but it's tough. "We want to do that in a really smart way," league president Steve O'Donnell says.`\
+https://nytimes.com/athletic/6817596/2025/11/19/nascar-next-gen-car-hendrick-gibbs-penske-dominance/
+
 **Madrid's Militao expected to miss around two weeks with adductor injury**\
 `The 27-year-old could miss La Liga games against Elche, Girona and Athletic Club as well as a Champions League clash with Olympiacos.`\
 https://nytimes.com/athletic/6819877/2025/11/19/eder-militao-injury-real-madrid-latest/
