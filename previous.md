@@ -1,3 +1,7 @@
+**You thought Scotland would flunk their big World Cup chance? You haven't met this Scotland team**\
+`Making sense of one of the craziest nights in Scottish football's history - and what it means for World Cup 2026`\
+https://nytimes.com/athletic/6819581/2025/11/19/scotland-world-cup-denmark/
+
 **What to Know About the Corruption Scandal Roiling Ukraine**\
 `An investigation into the state-owned nuclear power company has reached members of President Volodymyr Zelensky’s inner circle.`\
 https://nytimes.com/2025/11/19/world/europe/ukraine-corruption-scandal-zelensky.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6819213/2025/11/19/marcelo-bielsa-uruguay-manager-u
 **Ranking Jets' cap efficiency: Best and worst contracts, opportunities and alarm bells**\
 `There's no brighter spot than Morgan Barron, whose speed and strength make him unique on the Jets' roster. Who else is on the list?`\
 https://nytimes.com/athletic/6817464/2025/11/19/jets-cap-efficiency-contracts-opportunities-alarm-bells/
-
-**What's at stake at the RSM Classic? 3 things to watch**\
-`The final event on the FedEx Cup fall calendar is always juicy and full of storylines. This year, it’s even more tense.`\
-https://nytimes.com/athletic/6817686/2025/11/19/pga-tour-rsm-classic-stakes/
 

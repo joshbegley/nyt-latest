@@ -1,3 +1,7 @@
+**You thought Scotland would flunk their big World Cup chance? You haven't met this Scotland team**\
+`Making sense of one of the craziest nights in Scottish football's history - and what it means for World Cup 2026`\
+https://nytimes.com/athletic/6819581/2025/11/19/scotland-world-cup-denmark/
+
 **What to Know About the Corruption Scandal Roiling Ukraine**\
 `An investigation into the state-owned nuclear power company has reached members of President Volodymyr Zelensky’s inner circle.`\
 https://nytimes.com/2025/11/19/world/europe/ukraine-corruption-scandal-zelensky.html
