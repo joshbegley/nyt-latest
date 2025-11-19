@@ -1,3 +1,11 @@
+**Mark Cuban says Mavs won't trade Anthony Davis because 'we want to try to win'**\
+`The former Mavs majority owner also said he is serving as "an adviser" to current governor Patrick Dumont.`\
+https://nytimes.com/athletic/6820984/2025/11/19/mavericks-anthony-davis-trade-mark-cuban/
+
+**Stepbrother Under Investigation After Teen Dies on Cruise Ship**\
+`Anna Kepner, 18, was found dead on the Carnival Horizon on Nov. 8. Her stepbrother, 16, is under an investigation related to her death, his mother wrote this week in a legal filing.`\
+https://nytimes.com/2025/11/19/travel/teenager-death-cruise-ship-stepbrother-suspect.html
+
 **The Artist Who Makes Clay Look Like Navels, Nipples and Vertebrae**\
 `For more than five decades, the ceramist Magdalene Odundo has been making abstract, time-intensive vessels that recall bodies in motion.`\
 https://nytimes.com/2025/11/19/t-magazine/magdalene-odundo-xavier-hufkens.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6821081/2025/11/19/wendell-carter-jr-angel-reese-re
 **Pope Leo XIV throws first pitch? Justin Ishbia, future White Sox 'steward,' extends invite**\
 `Ishbia said the pontiff was receptive to his invitation. But Opening Day with Pope Leo on the mound? You'd better get in line now.`\
 https://nytimes.com/athletic/6820934/2025/11/19/pope-leo-justin-ishbia-white-sox-invite/
-
-**Jets coach Aaron Glenn says Kris Boyd sounded 'really upbeat' when they spoke after shooting**\
-`The New York Jets head coach provided an update on Boyd's health, after the cornerback was shot early Sunday morning in New York.`\
-https://nytimes.com/athletic/6820845/2025/11/19/jets-kris-boyd-aaron-glenn-shot/
-
-**Tracking Tropical Cyclone Fina**\
-`See the likely path and wind arrival times for Fina`\
-https://nytimes.com/interactive/2025/weather/tracking-tropical-cyclone-fina-australia.html
 

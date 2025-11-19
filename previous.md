@@ -1,4 +1,16 @@
-**Mets announce overhauled coaching staff under Carlos Mendoza**\
+**The Artist Who Makes Clay Look Like Navels, Nipples and Vertebrae**\
+`For more than five decades, the ceramist Magdalene Odundo has been making abstract, time-intensive vessels that recall bodies in motion.`\
+https://nytimes.com/2025/11/19/t-magazine/magdalene-odundo-xavier-hufkens.html
+
+**Real Madrid working with Apple to create 2026 documentary, says president Perez**\
+`The documentary will be for Apple's Vision Pro headset.`\
+https://nytimes.com/athletic/6821120/2025/11/19/real-madrid-apple-news-sponsorship-documentary-perez/
+
+**Alberta Pushes Through Trans Policies Described as Most Restrictive in Canada**\
+`The western province’s conservative government has invoked a rarely used clause in Canada’s Constitution to shield its bills limiting transgender rights from legal challenges.`\
+https://nytimes.com/2025/11/19/world/canada/alberta-trans-policies-canada.html
+
+**Mets announce overhauled coaching staff under manager Carlos Mendoza**\
 `After a disappointing 83-79 season, New York moved on from the majority of its coaching staff.`\
 https://nytimes.com/athletic/6821216/2025/11/19/mets-announce-coaching-staff-carlos-mendoza/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6820845/2025/11/19/jets-kris-boyd-aaron-glenn-shot/
 **Tracking Tropical Cyclone Fina**\
 `See the likely path and wind arrival times for Fina`\
 https://nytimes.com/interactive/2025/weather/tracking-tropical-cyclone-fina-australia.html
-
-**U.S. travel bans mean many Haitian fans will not be able to go to World Cup**\
-`The banned list signed by President Trump in June, included forbidding the entry into the U.S. of nationals of Haiti.`\
-https://nytimes.com/athletic/6820839/2025/11/19/world-cup-news-u-s-travel-ban-haiti/
-
-**How to watch Warriors vs. Heat: Time, TV, streaming**\
-`Find out how to watch the Golden State Warriors play the Miami Heat, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6821209/2025/11/19/warriors-vs-heat-stream-how-to-watch-nov-19/
-
-**How to watch Bruins vs. Ducks: Time, TV, streaming**\
-`Find out how to watch the Boston Bruins play the Anaheim Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6821208/2025/11/19/bruins-vs-ducks-stream-how-to-watch-nov-19/
 
