@@ -1,6 +1,6 @@
 **In Nebraska, Makeovers for Buildings That Don’t Price Out the Locals**\
 `In a struggling area of Lincoln, a program pays for repairs and energy efficiency upgrades in rental buildings. In return, landlords must keep rents affordable.`\
-https://nytimes.com/2025/11/18/climate/nebraska-energy-efficiency-50-states-50-fixes.html
+https://nytimes.com/2025/11/18/climate/nebraska-energy-efficiency.html
 
 **‘Freedom Comes to My Mind’: Saving Family Legacy and Land in South Carolina**\
 `Conservation can be tough when a property is passed down informally over generations with no clear title. A growing effort is helping families sort it all out.`\
