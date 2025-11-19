@@ -1,3 +1,15 @@
+**WNBA proposes max salary above $1.1 million in latest proposal to WNBPA**\
+`The league’s proposal also included a minimum salary of more than $220,000.`\
+https://nytimes.com/athletic/6818721/2025/11/18/wnba-cba-negotiation-update-player-salary/
+
+**‘This World of Tomorrow’ Review: Tom Hanks Is Back in Town**\
+`The movie star plays a man from the future at the 1939 New York World’s Fair in an adaptation of some of his stories. Kelli O’Hara shines as his love interest.`\
+https://nytimes.com/2025/11/18/theater/this-world-of-tomorrow-review-tom-hanks.html
+
+**Scoop City: Emotional win for Dallas**\
+`Inside the Cowboys' struggle, plus Week 12 fantasy targets`\
+https://nytimes.com/athletic/6818926/2025/11/18/emotional-win-for-dallas-plus-finding-this-years-second-half-breakout-fantasy-wr/
+
 **Giants notes: Updates on 40-man additions, WBC participation and coaching hires**\
 `The Giants did not add to their roster before Tuesday's deadline.`\
 https://nytimes.com/athletic/6818814/2025/11/18/san-francisco-giants-notes-40-man-wbc-coaching-hires/
