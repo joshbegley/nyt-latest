@@ -1,3 +1,11 @@
+**Why the ‘America First’ President Keeps Looking Abroad**\
+`Trump keeps showing he is not as isolationist as many supporters had hoped.`\
+https://nytimes.com/2025/11/19/us/politics/trump-america-first-saudi-tariffs.html
+
+**Yann LeCun, a Pioneering A.I. Scientist, Leaves Meta**\
+`Dr. LeCun’s departure follows a shake-up in Meta’s artificial intelligence efforts, as Mark Zuckerberg pushes his company to keep up in the tech race.`\
+https://nytimes.com/2025/11/19/technology/yann-lecun-ai-scientist-meta.html
+
 **Are These Buzzy New N.Y.C. Restaurants Worth a Visit?**\
 `This fall, The Times’s Food contributor Luke Fortney checked in on three of New York City’s biggest restaurant openings, all a few blocks apart in the West Village.`\
 https://nytimes.com/video/dining/100000010533040/are-these-buzzy-new-nyc-restaurants-worth-a-visit.html
