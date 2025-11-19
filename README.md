@@ -1,3 +1,15 @@
+**Ravens have come a long way this season, but they're still not where they want to be**\
+`According to The Athletic's Playoff Simulator, Baltimore has an 82 percent chance to make the playoffs despite getting off to a 1-5 start.`\
+https://nytimes.com/athletic/6818141/2025/11/19/ravens-playoff-odds-afc-north/
+
+**For the incomparable LeBron James, staying power is his most spectacular asset**\
+`It's been a surreal run for James. The King’s court is still his sanctuary, still his home sweet home. He has outlasted absolutely everyone.`\
+https://nytimes.com/athletic/6819238/2025/11/19/lebron-james-lakers-record-23rd-nba-season-jazz/
+
+**Can the soul of college football be found in the tailgate lots?**\
+`Walk around parkings lots before a college football game, and you can feel the blend of petty and pure that’s unique to this sport.`\
+https://nytimes.com/athletic/6816935/2025/11/19/college-football-tailgating-culture-parking-food/
+
 **The Pulse: The best teenage defenseman of all time?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6817621/2025/11/19/nhl-bedard-celebrini-schaefer-the-pulse/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6808271/2025/11/19/philadelphia-eagles-buffalo-bill
 **The 2025 Chiefs are trending to be one of the most unclutch NFL teams ever**\
 `The Chiefs — in one stat — are performing as poorly as any NFL team in the last quarter-decade.`\
 https://nytimes.com/athletic/6818152/2025/11/19/chiefs-failing-in-clutch-patrick-mahomes/
-
-**Xavier Legette brought Dolla Bill back vs. Falcons. Is the Panthers WR back, too?**\
-`If Legette continues to play as he did against Atlanta, it makes game planning more difficult for opposing defensive coordinators.`\
-https://nytimes.com/athletic/6818234/2025/11/19/panthers-xavier-legette-dolla-bill-td-celebration/
-
-**Justin Jefferson showing remarkable patience through Vikings QB J.J. McCarthy's struggles**\
-`The All-Pro receiver has said all of the right things and continued to support his young quarterback despite the offense's struggles.`\
-https://nytimes.com/athletic/6817955/2025/11/19/justin-jefferson-jj-mccarthy-vikings-offense/
-
-**The Leafs need to survive an injury storm to save their season**\
-`It was almost six years ago, exactly, that the Leafs last lost six games in a row. It cost their coach his job.`\
-https://nytimes.com/athletic/6819011/2025/11/19/maple-leafs-injuries-season-impact/
 
