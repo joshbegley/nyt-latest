@@ -3,7 +3,7 @@
 https://nytimes.com/2025/11/19/world/europe/ukraine-russia-strikes-peace-talks.html
 
 **How Curacao became the smallest ever nation to qualify for the FIFA World Cup: "What an adventure"**\
-`The Caribbean island is only home to around 155,000 people, but their team have made history by earning a place at next summer's tournament`\
+`The Caribbean island is only home to around 185,000 people, but their team have made history by earning a place at next summer's tournament`\
 https://nytimes.com/athletic/6819270/2025/11/19/curacao-world-cup-qualification-smallest-nation/
 
 **Which countries have qualified for the 2026 World Cup?**\
