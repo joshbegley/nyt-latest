@@ -1,3 +1,7 @@
+**Trump’s Fawning Meeting With the Saudi Prince Was a Disgrace**\
+`Working with imperfect partners does not mean that the United States should cover up and lie about their misdeeds.`\
+https://nytimes.com/2025/11/19/opinion/saudi-mbs-trump-khashoggi.html
+
 **Mark Cuban says Mavs won't trade Anthony Davis because 'we want to try to win'**\
 `The former Mavs majority owner also said he is serving as "an adviser" to current governor Patrick Dumont.`\
 https://nytimes.com/athletic/6820984/2025/11/19/mavericks-anthony-davis-trade-mark-cuban/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/19/world/asia/henry-todd-dead.html
 **Wendell Carter Jr. addresses relationship with Angel Reese: 'That's my girl'**\
 `Orlando center Wendell Carter Jr. spoke on a podcast about his relationship with Angel Reese. He was was equal parts vague and committal.`\
 https://nytimes.com/athletic/6821081/2025/11/19/wendell-carter-jr-angel-reese-relationship/
-
-**Pope Leo XIV throws first pitch? Justin Ishbia, future White Sox 'steward,' extends invite**\
-`Ishbia said the pontiff was receptive to his invitation. But Opening Day with Pope Leo on the mound? You'd better get in line now.`\
-https://nytimes.com/athletic/6820934/2025/11/19/pope-leo-justin-ishbia-white-sox-invite/
 

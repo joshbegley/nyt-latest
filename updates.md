@@ -1,3 +1,11 @@
+**Mark Cuban says Mavs won't trade Anthony Davis because 'we want to try to win'**\
+`The former Mavs majority owner also said he is serving as "an adviser" to current governor Patrick Dumont.`\
+https://nytimes.com/athletic/6820984/2025/11/19/mavericks-anthony-davis-trade-mark-cuban/
+
+**Stepbrother Under Investigation After Teen Dies on Cruise Ship**\
+`Anna Kepner, 18, was found dead on the Carnival Horizon on Nov. 8. Her stepbrother, 16, is under an investigation related to her death, his mother wrote this week in a legal filing.`\
+https://nytimes.com/2025/11/19/travel/teenager-death-cruise-ship-stepbrother-suspect.html
+
 **The Artist Who Makes Clay Look Like Navels, Nipples and Vertebrae**\
 `For more than five decades, the ceramist Magdalene Odundo has been making abstract, time-intensive vessels that recall bodies in motion.`\
 https://nytimes.com/2025/11/19/t-magazine/magdalene-odundo-xavier-hufkens.html
