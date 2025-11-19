@@ -1,3 +1,11 @@
+**Once a Pariah, Saudi Prince Resets U.S. Relations on His Own Terms**\
+`Seven years ago, Crown Prince Mohammed bin Salman couldn’t visit Washington. When he arrived at the White House on Tuesday, he got F-35s, the world’s fastest chips and the central role in the remaking of the Middle East.`\
+https://nytimes.com/2025/11/18/us/politics/prince-mohammed-trump-us-saudi-arabia.html
+
+**Technology Is Fast and the Courts Are Slow**\
+`Silicon Valley has increasingly pointed at rapid digital changes to blunt government efforts to rein in its power.`\
+https://nytimes.com/2025/11/18/technology/meta-google-antitrust-tech.html
+
 **Congress Approves Bill to Release Epstein Files**\
 `All but one member of the House voted to pass a bill on Tuesday that demanded the Justice Department to release the Epstein files.`\
 https://nytimes.com/video/us/politics/100000010531913/house-passes-bill-release-epstein-files.html
