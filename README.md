@@ -1,3 +1,19 @@
+**Deion Sanders says he's still 'the right man' for Colorado, pleads for patience**\
+`Outgoing athletic director Rick George wrote on social media that Sanders' seat "is not hot."`\
+https://nytimes.com/athletic/6819999/2025/11/19/deion-sanders-colorado-job-security/
+
+**Randy Jones, Padres' Cy Young winner, dies at 75**\
+`Jones, who was inducted into the Padres Hall of Fame in 1999, was a fan favorite.`\
+https://nytimes.com/athletic/6820267/2025/11/19/randy-jones-san-diego-padres-pitcher-dies/
+
+**Review: A Cozy ‘Arabella’ Returns to the Met Opera**\
+`The latest revival of Richard Strauss and Hugo von Hofmannsthal’s final opera was a night of promising debuts and mixed success.`\
+https://nytimes.com/2025/11/19/arts/music/arabella-met-opera-review.html
+
+**The Bounce: Is Steve Kerr right that the NBA season is too long? Plus, LeBron returns**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6820287/2025/11/19/the-bounce-is-steve-kerr-right-that-the-nba-season-is-too-long-plus-lebron-returns/
+
 **Blues prospect mailbag: Submit your questions for Tim Taylor, head of player development**\
 `Submit your questions here, and The Athletic will present a selection to Taylor. His responses will appear in an upcoming article.`\
 https://nytimes.com/athletic/6820275/2025/11/19/blues-prospects-tim-taylor-mailbag/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6814705/2025/11/19/zach-hymans-oilers-return/
 **The state of NASCAR's Next Gen car: As big teams dominate, is there any hope for the rest?**\
 `NASCAR is exploring ways to boost parity, but it's tough. "We want to do that in a really smart way," league president Steve O'Donnell said.`\
 https://nytimes.com/athletic/6817596/2025/11/19/nascar-next-gen-car-hendrick-gibbs-penske-dominance/
-
-**Madrid's Militao expected to miss around two weeks with adductor injury**\
-`The 27-year-old could miss La Liga games against Elche, Girona and Athletic Club as well as a Champions League clash with Olympiacos.`\
-https://nytimes.com/athletic/6819877/2025/11/19/eder-militao-injury-real-madrid-latest/
-
-**NWSL Awards: How to watch and will anyone get in the way of Temwa Chawinga and MVP**\
-`Will the Kansas City Current forward be the first NWSL player to win back-to-back MVP honors?`\
-https://nytimes.com/athletic/6819779/2025/11/19/nwsl-awards-soccer-predictions-rookie-coach-mvp/
-
-**A Politically Restless Billionaire Enters the California Governor’s Race**\
-`Tom Steyer, who ran for president in 2020 and funded an effort to impeach President Trump, will join the crowded field trying to succeed Gov. Gavin Newsom.`\
-https://nytimes.com/2025/11/19/us/tom-steyer-california-governor-2026.html
-
-**How Rural Kids Got Left Behind**\
-`We need to support working-class kids before the 21st century abandons them completely.`\
-https://nytimes.com/2025/11/19/opinion/rural-education-jobs.html
 
