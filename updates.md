@@ -1,3 +1,11 @@
+**Ronaldo praised by Trump at White House dinner in first U.S. visit since 2018**\
+`The Portugal superstar has previously expressed a wish to meet Trump and talk about "peace"`\
+https://nytimes.com/athletic/6818863/2025/11/18/cristiano-ronaldo-trump-white-house-saudi/
+
+**Creep Into a Creek**\
+`Jeremy Newton can’t get no satisfaction.`\
+https://nytimes.com/2025/11/18/crosswords/daily-puzzle-2025-11-19.html
+
 **House Rejects Censuring Plaskett For Texts With Epstein In 2019**\
 `Three Republicans voted with nearly every Democrat in the House to defeat an effort to formally reprimand Delegate Stacey Plaskett, Democrat of the Virgin Islands.`\
 https://nytimes.com/2025/11/18/us/politics/stacey-plaskett-house-censure-epstein.html

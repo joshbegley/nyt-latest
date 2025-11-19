@@ -1,3 +1,11 @@
+**Ronaldo praised by Trump at White House dinner in first U.S. visit since 2018**\
+`The Portugal superstar has previously expressed a wish to meet Trump and talk about "peace"`\
+https://nytimes.com/athletic/6818863/2025/11/18/cristiano-ronaldo-trump-white-house-saudi/
+
+**Creep Into a Creek**\
+`Jeremy Newton can’t get no satisfaction.`\
+https://nytimes.com/2025/11/18/crosswords/daily-puzzle-2025-11-19.html
+
 **House Rejects Censuring Plaskett For Texts With Epstein In 2019**\
 `Three Republicans voted with nearly every Democrat in the House to defeat an effort to formally reprimand Delegate Stacey Plaskett, Democrat of the Virgin Islands.`\
 https://nytimes.com/2025/11/18/us/politics/stacey-plaskett-house-censure-epstein.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/11/18/climate/iowa-city-free-buses.html
 **USMNT 5, Uruguay 1: Freeman, Berhalter make World Cup case in stunning rout**\
 `The USMNT absolutely overwhelmed its South American foe to head into the World Cup year in style`\
 https://nytimes.com/athletic/6818454/2025/11/18/usmnt-uruguay-friendly-freeman-berhalter-luna-pochettino/
-
-**College Football Playoff rankings: Oklahoma jumps to No. 8, Alabama falls to No. 10**\
-`Notre Dame remained ninth, putting the Fighting Irish in solid shape to control their path to the postseason.`\
-https://nytimes.com/athletic/6818569/2025/11/18/college-football-playoff-third-rankings-top-25-2/
-
-**LeBron James to return to lineup after missing Lakers' first 14 games**\
-`The Lakers went 10-4 without James, who has not played this season after being diagnosed with sciatic nerve irritation on his right side.`\
-https://nytimes.com/athletic/6814769/2025/11/18/lebron-james-injury-lakers-return-status/
 
