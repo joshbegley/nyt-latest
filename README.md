@@ -1,3 +1,7 @@
+**Who Is Attending Trump’s Dinner for the Saudi Crown Prince?**\
+`The New York Times identified some of the guests invited to President Trump’s dinner for Crown Prince Mohammed bin Salman of Saudi Arabia.`\
+https://nytimes.com/2025/11/18/us/politics/trump-saudi-dinner-guests.html
+
 **Spurs' Stephon Castle sidelined 1-2 weeks with hip flexor strain**\
 `The Spurs sit fifth in the Western Conference at 9-4.`\
 https://nytimes.com/athletic/6818356/2025/11/18/spurs-stephon-castle-out-1-2-weeks-hip-flexor-strain/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6818294/2025/11/18/cavaliers-donovan-mitchell-evan-
 **‘Meet the Cartozians’ Review: Who Gets to Be White in America?**\
 `Talene Monahon’s captivating play uses a 1925 court decision to explore what identity means to Armenians here (a certain reality TV star included).`\
 https://nytimes.com/2025/11/18/theater/meet-the-cartozians-review.html
-
-**Phillies protect 3 prospects from Rule 5 draft: What you need to know**\
-`Here is an overview of the three prospects, and a look at whom the Phillies chose not to protect.`\
-https://nytimes.com/athletic/6815755/2025/11/18/phillies-rule-5-draft-painter-rincones-mcfarlane/
 
