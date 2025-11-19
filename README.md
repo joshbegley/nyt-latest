@@ -1,3 +1,7 @@
+**‘Really Good Friends’: Trump Lauds Saudi Crown Prince During Lavish Visit**\
+`President Trump rejected a U.S. intelligence report finding that Crown Prince Mohammed bin Salman had ordered the murder of a journalist.`\
+https://nytimes.com/2025/11/18/us/politics/trump-saudi-crown-prince-visit.html
+
 **Republican Clay Higgins Was the Sole Vote Against Releasing the Epstein Files**\
 `The only person in Congress to vote against the bill was a right-wing congressman from Louisiana who is an ardent supporter of President Trump and has espoused conspiracy theories.`\
 https://nytimes.com/2025/11/18/us/politics/clay-higgins-epstein-vote-no.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6818494/2025/11/18/ricky-tiedemann-blue-jays-rule-5
 **Trump Said to Authorize C.I.A. Plans for Covert Action in Venezuela**\
 `The president has signed off on possible operations inside Venezuela but has also reopened back-channel communications with the government of President Nicolás Maduro.`\
 https://nytimes.com/2025/11/18/us/politics/trump-covert-action-venezuela.html
-
-**Who Is Attending Trump’s Dinner for the Saudi Crown Prince?**\
-`The New York Times identified some of the guests invited to President Trump’s dinner for Crown Prince Mohammed bin Salman of Saudi Arabia.`\
-https://nytimes.com/2025/11/18/us/politics/trump-saudi-dinner-guests.html
 
