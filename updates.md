@@ -1,3 +1,19 @@
+**Seasonal Sadness**\
+`Do the darker, colder days affect your mood? What do you do about it if so?`\
+https://nytimes.com/2025/11/19/learning/seasonal-sadness.html
+
+**At This College, the English Dept. Is Out. ‘Human Narratives’ Is In.**\
+`At Montclair State University in New Jersey, a departmental restructuring plan is igniting concerns about the future of the humanities.`\
+https://nytimes.com/2025/11/19/nyregion/montclair-state-restructuring.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/19/crosswords/spelling-bee-forum.html
+
+**U.S. Loans $1 Billion to Three Mile Island Nuclear Project**\
+`The Pennsylvania site, shorthand for the dangers of nuclear power after a 1979 meltdown, is set for revival under a deal to power Microsoft data centers.`\
+https://nytimes.com/2025/11/19/us/nuclear-power-three-mile-island.html
+
 **Saudi Crown Prince Dines With Trump at the White House**\
 `President Trump stood shoulder-to-shoulder with Crown Prince Mohammad bin Salman of Saudi Arabia during a White House dinner on Tuesday. The room was packed with leaders from several industries.`\
 https://nytimes.com/video/us/politics/100000010532543/trump-saudi-dinner-guests.html

@@ -1,3 +1,7 @@
+**Mark Wood included in 12-man England squad and set to play in first Ashes Test**\
+`The fast bowler has not played in a Test match since August 2024 and managed only eight overs in England's warm-up game against the Lions`\
+https://nytimes.com/athletic/6816667/2025/11/19/ashes-mark-wood-england-perth/
+
 **Seasonal Sadness**\
 `Do the darker, colder days affect your mood? What do you do about it if so?`\
 https://nytimes.com/2025/11/19/learning/seasonal-sadness.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/19/learning/word-of-the-day-umbrage.html
 **LeBron James makes a successful season debut in win over Jazz**\
 `James posted 11 points and 12 assists in his first game of the season, firing up the home crowd and helping the Lakers beat the Jazz.`\
 https://nytimes.com/athletic/6819202/2025/11/19/lebron-james-returns-lakers-win-jazz/
-
-**The New York Times in Print for Wednesday, Nov. 19, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/11/19/todays-new-york-times
 
