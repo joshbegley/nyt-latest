@@ -1,3 +1,15 @@
+**Inside the Jake Paul vs Anthony Joshua deal - with the man who made it happen**\
+`Nakisa Bidarian reveals how 'the biggest fight' of the year was quickly put together`\
+https://nytimes.com/athletic/6816826/2025/11/19/jake-paul-anthony-joshua-deal-nakisa-bidarian/
+
+**Enzo Fernandez is crucial for Chelsea - the numbers and Maresca's selections prove it**\
+`The Argentina midfielder has made 221 appearances for club and country since February 2022. He's such a vital player he rarely gets a rest`\
+https://nytimes.com/athletic/6816605/2025/11/19/enzo-fernandez-chelsea-analysis-report/
+
+**What happens next for Liverpool's top talents Rio Ngumoha and Trey Nyoni?**\
+`With Premier League minutes hard to come by, Liverpool need to find a pathway to develop their best young players`\
+https://nytimes.com/athletic/6813940/2025/11/19/what-happens-next-for-liverpools-top-talents-rio-ngumoha-and-trey-nyoni/
+
 **Welcome to football's age of lawfare - bitter, belligerent and eyewateringly expensive**\
 `In the past, football avoided the court room where possible. Now, legal battles are becoming more frequent`\
 https://nytimes.com/athletic/6814257/2025/11/19/premier-league-football-legal-costs/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/19/fashion/dubai-watch-week-ahmed-seddiqi.html
 **Spain's team of many heroes and why they can repeat 'double' success of predecessors**\
 `There is confidence among the squad that they can follow a breakthrough Euros win with a World Cup triumph.`\
 https://nytimes.com/athletic/6816701/2025/11/19/spain-world-cup-euro-2024/
-
-**The many tactical reinventions of Pep Guardiola across his 1000-game managerial career**\
-`Few managers reach 1000 games in their careers; even fewer show as much adaptability and reinvention as Guardiola has`\
-https://nytimes.com/athletic/6804534/2025/11/19/pep-guardiola-tactics-1000-games/
-
-**America’s Home Insurance Affordability Crunch: See What’s Happening Near You.**\
-`A climate ‘shock’ in the insurance market has started to affect home prices in areas most exposed to wildfires and hurricanes, new research shows.`\
-https://nytimes.com/interactive/2025/11/19/climate/home-insurance-premiums-costs-usa.html
-
-**Watching Man Utd's Jess Park with her agent, who's also a rugby league player**\
-`We sat with the agent of Jess Park during a game to discuss her rise and how he uses his sporting experience to help his players.`\
-https://nytimes.com/athletic/6817937/2025/11/19/ryan-brierley-jess-park-wsl-rugby-league/
 
