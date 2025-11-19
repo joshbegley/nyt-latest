@@ -2,7 +2,7 @@
 `The Spurs sit fifth in the Western Conference at 9-4.`\
 https://nytimes.com/athletic/6818356/2025/11/18/spurs-stephon-castle-out-1-2-weeks-hip-flexor-strain/
 
-**JD Vance, Not That One, Gets 2 Years in Prison for Threatening the Vice President**\
+**J.D. Vance, Not That One, Gets 2 Years in Prison for Threatening the Vice President**\
 `James Donald Vance Jr., of Grand Rapids, Mich., had also threatened President Trump, according to a criminal complaint.`\
 https://nytimes.com/2025/11/18/us/jd-vance-threats-michigan.html
 
@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6818344/2025/11/18/kevin-brown-recruit-commits-west
 https://nytimes.com/2025/11/18/well/eat/ultraprocessed-foods-health.html
 
 **Israeli Airstrike on Refugee Camp in Lebanon Kills at Least 13, Ministry Says**\
-`It was one of the deadliest Israeli strikes on Lebanon since a cease-fire between the neighboring countries went into effect about a year ago.`\
+`It was one of the deadliest Israeli strikes on Lebanon since a cease-fire with Hezbollah went into effect about a year ago.`\
 https://nytimes.com/2025/11/18/world/middleeast/israel-strike-lebanon-camp.html
 
 **Cavaliers fined $100,000 for sitting All-Stars Mitchell and Mobley**\

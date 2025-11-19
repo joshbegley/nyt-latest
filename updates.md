@@ -1,3 +1,15 @@
+**Spurs' Stephon Castle sidelined 1-2 weeks with hip flexor strain**\
+`The Spurs sit fifth in the Western Conference at 9-4.`\
+https://nytimes.com/athletic/6818356/2025/11/18/spurs-stephon-castle-out-1-2-weeks-hip-flexor-strain/
+
+**JD Vance, Not That One, Gets 2 Years in Prison for Threatening the Vice President**\
+`James Donald Vance Jr., of Grand Rapids, Mich., had also threatened President Trump, according to a criminal complaint.`\
+https://nytimes.com/2025/11/18/us/jd-vance-threats-michigan.html
+
+**Yankees protect Spencer Jones from Rule 5 draft despite no clear path to majors**\
+`But what’s next for Jones, whose shown power on par with Aaron Judge but swing-and-miss tendencies of a late-career Joey Gallo?`\
+https://nytimes.com/athletic/6815761/2025/11/18/spencer-jones-yankees-rule-5-draft/
+
 **Trump’s Border Czar Threatens More Immigrant Arrests in New York City**\
 `Thomas Homan said that additional federal agents would descend on the city if it did not help with President Trump’s deportation campaign.`\
 https://nytimes.com/2025/11/18/nyregion/border-czar-more-immigrant-arrests-nyc.html
