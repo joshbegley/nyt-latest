@@ -1,3 +1,7 @@
+**Cricket's final frontier: The quest to bowl consistently at 100mph**\
+`Mark Wood has put his body on the line to bowl as fast as he can and may still become the fourth man to clock up 100mph `\
+https://nytimes.com/athletic/6420977/2025/11/19/cricket-bowl-100mph-wood-archer-shoaib-holding-thomson/
+
 **How Curacao became the smallest ever nation to qualify for the FIFA World Cup**\
 `The Caribbean island is only home to around 155,000 people, but their team have made history by earning a place at next summer's tournament`\
 https://nytimes.com/athletic/6819270/2025/11/19/curacao-world-cup-qualification-smallest-nation/
