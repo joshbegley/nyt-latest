@@ -10,7 +10,7 @@ https://nytimes.com/2025/11/19/opinion/trump-china-xi-trade.html
 `"I won one of these in college. I'm looking forward to winning one here. So let's do it," Richard said.`\
 https://nytimes.com/athletic/6819055/2025/11/19/florida-todd-golden-warriors-will-richard-ring/
 
-**Harvard Says It Is Investigating Ties Between Summers and Epstein**\
+**Harvard Opens New Investigation Into Summers and Epstein**\
 `The university is reviewing newly released emails between convicted sex offender Jeffrey Epstein and former Harvard President Lawrence H. Summers, among other people at the institution.`\
 https://nytimes.com/2025/11/19/us/harvard-summers-epstein-investigation.html
 
