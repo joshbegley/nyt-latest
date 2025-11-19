@@ -1,3 +1,11 @@
+**How to watch Browns vs. Raiders: Time, TV, streaming**\
+`Find out how to watch the Cleveland Browns play the Las Vegas Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6818531/2025/11/18/browns-vs-raiders-stream-how-to-watch-nov-23/
+
+**How to watch Eagles vs. Cowboys: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Eagles play the Dallas Cowboys, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6818527/2025/11/18/eagles-vs-cowboys-stream-how-to-watch-nov-23/
+
 **Once a Pariah, Saudi Prince Resets U.S. Relations on His Own Terms**\
 `Seven years ago, Crown Prince Mohammed bin Salman couldn’t visit Washington. When he arrived at the White House on Tuesday, he got F-35s, the world’s fastest chips and the central role in the remaking of the Middle East.`\
 https://nytimes.com/2025/11/18/us/politics/prince-mohammed-trump-us-saudi-arabia.html

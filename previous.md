@@ -1,11 +1,3 @@
-**Once a Pariah, Saudi Prince Resets U.S. Relations on His Own Terms**\
-`Seven years ago, Crown Prince Mohammed bin Salman couldn’t visit Washington. When he arrived at the White House on Tuesday, he got F-35s, the world’s fastest chips and the central role in the remaking of the Middle East.`\
-https://nytimes.com/2025/11/18/us/politics/prince-mohammed-trump-us-saudi-arabia.html
-
-**Technology Is Fast and the Courts Are Slow**\
-`Silicon Valley has increasingly pointed at rapid digital changes to blunt government efforts to rein in its power.`\
-https://nytimes.com/2025/11/18/technology/meta-google-antitrust-tech.html
-
 **Congress Approves Bill to Release Epstein Files**\
 `All but one member of the House voted to pass a bill on Tuesday that demanded the Justice Department to release the Epstein files.`\
 https://nytimes.com/video/us/politics/100000010531913/house-passes-bill-release-epstein-files.html
@@ -37,4 +29,12 @@ https://nytimes.com/2025/11/18/nyregion/new-york-doctor-japan-extradition.html
 **At $236.4 Million, Portrait by Klimt is Second Most Expensive Painting Sold at Auction**\
 `The portrait of Elisabeth Lederer, looted by the Nazis and spared from a blaze, was a highlight of the Sotheby’s inaugural sale in its new home.`\
 https://nytimes.com/2025/11/18/arts/design/portrait-auction-record-klimt-sothebys.html
+
+**How to watch Browns vs. Raiders: Time, TV, streaming**\
+`Find out how to watch the Cleveland Browns play the Las Vegas Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6818531/2025/11/18/browns-vs-raiders-stream-how-to-watch-nov-23/
+
+**How to watch Eagles vs. Cowboys: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Eagles play the Dallas Cowboys, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6818527/2025/11/18/eagles-vs-cowboys-stream-how-to-watch-nov-23/
 
