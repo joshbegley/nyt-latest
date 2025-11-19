@@ -1,3 +1,11 @@
+**Trump’s Global Tariffs Curtailed Trade, Data Shows**\
+`The steep tariffs President Trump issued in August led to a significant contraction in imports and the trade deficit, newly released data shows.`\
+https://nytimes.com/2025/11/19/us/politics/trumps-tariffs-trade-data.html
+
+**Melania Trump Goes Saudi Green**\
+`At the official dinner for Prince Mohammed bin Salman, the first lady offered an unexpected sign of allegiance.`\
+https://nytimes.com/2025/11/19/style/melania-trump-mohammed-bin-salman-dinner.html
+
 **Larry Summers Resigns From OpenAI’s Board**\
 `Mr. Summers’ departure from the artificial intelligence company’s board followed revelations of his communications with the disgraced financier Jeffrey Epstein.`\
 https://nytimes.com/2025/11/19/technology/larry-summers-resigns-from-openais-board.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6817619/2025/11/19/broncos-bye-week-playoffs-bo-nix
 **Charting the Chargers' path to the postseason**\
 `Can the Chargers beat the rest of the AFC playoff hopefuls to the finish line? Find three wins. That has to be the goal.`\
 https://nytimes.com/athletic/6817789/2025/11/19/chargers-path-to-postseason/
-
-**Kings stock report: Ascension to Pacific Division peak was fleeting but telling**\
-`The Pacific Division’s top five teams were split by just three points entering Tuesday’s action.`\
-https://nytimes.com/athletic/6818961/2025/11/19/los-angeles-kings-stock-report-pacific-division-lead/
-
-**Mirtle NHL mailbag: Luxury tax debate, Michkov's slump, 50-goal predictions and more**\
-`Why the NHL will never adopt a luxury tax, and other mailbag answers.`\
-https://nytimes.com/athletic/6817685/2025/11/19/nhl-mailbag-luxury-tax-debate-matvei-michkovs-slump-50-goal-predictions-and-more/
 
