@@ -1,3 +1,7 @@
+**George Conway, a Vocal Foe of Trump, Eyes Congressional Run**\
+`The former conservative lawyer built a social media following with his harsh criticism of President Trump, who was the boss of his wife at the time.`\
+https://nytimes.com/2025/11/19/us/politics/george-conway-congressional-run.html
+
 **Fantasy football strength of schedule: Week 12 and playoff matchup rankings**\
 `Jake Ciely's Week 12 matchup rankings can help with difficult start/sit decisions this week. Playoff rankings aid future plans. `\
 https://nytimes.com/athletic/6820147/2025/11/19/fantasy-football-strength-of-schedule-week-12-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/19/dining/bonnie-munshin-dead.html
 **Israeli Strikes Kill at Least 25 in Gaza Amid Truce, Officials Say**\
 `Israel’s military said it had launched attacks across Gaza after Palestinian militants shot at its troops. The six-week-old cease-fire has been pierced periodically by bursts of violence.`\
 https://nytimes.com/2025/11/19/world/middleeast/israeli-strikes-gaza-deaths.html
-
-**Union place Ernst Tanner on leave as MLS re-opens misconduct investigation**\
-`Philadelphia's sporting director is the subject of a workplace misconduct investigation`\
-https://nytimes.com/athletic/6820916/2025/11/19/philadelphia-union-mls-ernst-tanner-misconduct/
 

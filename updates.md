@@ -1,3 +1,7 @@
+**George Conway, a Vocal Foe of Trump, Eyes Congressional Run**\
+`The former conservative lawyer built a social media following with his harsh criticism of President Trump, who was the boss of his wife at the time.`\
+https://nytimes.com/2025/11/19/us/politics/george-conway-congressional-run.html
+
 **Fantasy football strength of schedule: Week 12 and playoff matchup rankings**\
 `Jake Ciely's Week 12 matchup rankings can help with difficult start/sit decisions this week. Playoff rankings aid future plans. `\
 https://nytimes.com/athletic/6820147/2025/11/19/fantasy-football-strength-of-schedule-week-12-playoffs/
