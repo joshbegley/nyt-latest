@@ -1,3 +1,11 @@
+**Florida's Todd Golden delivers championship ring to Warriors' Will Richard**\
+`"I won one of these in college. I'm looking forward to winning one here. So let's do it," Richard said.`\
+https://nytimes.com/athletic/6819055/2025/11/19/florida-todd-golden-warriors-will-richard-ring/
+
+**Harvard Says It Is Investigating Ties Between Summers and Epstein**\
+`The university is reviewing newly released emails between convicted sex offender Jeffrey Epstein and former Harvard President Lawrence H. Summers, among other people at the institution.`\
+https://nytimes.com/2025/11/19/us/harvard-summers-epstein-investigation.html
+
 **Scoot Henderson's return from torn hamstring 'week to week,' not imminent**\
 `The Trail Blazers initially said Henderson would return to basketball activity in four to eight weeks.`\
 https://nytimes.com/athletic/6819120/2025/11/19/scoot-henderson-torn-hamstring-inury-update/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6816605/2025/11/19/enzo-fernandez-chelsea-analysis-
 **What happens next for Liverpool's top talents Rio Ngumoha and Trey Nyoni?**\
 `With Premier League minutes hard to come by, Liverpool need to find a pathway to develop their best young players`\
 https://nytimes.com/athletic/6813940/2025/11/19/what-happens-next-for-liverpools-top-talents-rio-ngumoha-and-trey-nyoni/
-
-**Welcome to football's age of lawfare - bitter, belligerent and eyewateringly expensive**\
-`In the past, football avoided the court room where possible. Now, legal battles are becoming more frequent`\
-https://nytimes.com/athletic/6814257/2025/11/19/premier-league-football-legal-costs/
-
-**Mariano Diaz took Ronaldo's No 7. His advice for Endrick? 'There is life beyond Real Madrid'**\
-`The former Real Madrid striker talks to The Athletic about the highs and lows of his career in the Spanish capital — and what happened next`\
-https://nytimes.com/athletic/6814855/2025/11/19/mariano-diaz-real-madrid-ronaldo-interview/
 
