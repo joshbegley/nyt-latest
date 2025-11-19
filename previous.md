@@ -1,3 +1,7 @@
+**Bruins' Charlie McAvoy undergoes facial surgery, recovery timeline unknown**\
+`McAvoy was injured on Nov. 15 during the Bruins’ 3-2 win over the Montreal Canadiens when he was hit in the face by a Noah Dobson slap shot.`\
+https://nytimes.com/athletic/6821471/2025/11/19/bruins-charlie-mcavoy-surgery-facial-injury/
+
 **Believe It or Not, That $12 Million Gold Toilet Was Bought by … Ripley’s**\
 `The entertainment company plans on displaying the toilet, saying its team is exploring “whether visitors may someday be allowed to use it.”`\
 https://nytimes.com/2025/11/19/arts/design/gold-toilet-owner-ripleys.html
@@ -29,12 +33,4 @@ https://nytimes.com/video/world/africa/100000010533050/nigeria-persecution-trump
 **Houston lands 5-star center Arafan Diane: What it means for Cougars**\
 `Arafan Diane is the first recruit Houston has added in the 2026 recruiting cycle.`\
 https://nytimes.com/athletic/6821125/2025/11/19/houston-adds-arafan-diane-recruting/
-
-**CF Monterrey submits bid to sign Gutiérrez from Fire: Sources**\
-`The U.S. youth international will now count as a domestic player in Liga MX’s rules and could file a one-time switch to represent Mexico.`\
-https://nytimes.com/athletic/6821384/2025/11/19/monterrey-bid-brian-gutierrez-chicago-fire/
-
-**With 'safety' in mind, Aaron Rodgers hopes to practice Thursday, play Sunday vs. Bears**\
-`In his first comments since breaking his left wrist Sunday, Rodgers also addressed his ability to take snaps from under center.`\
-https://nytimes.com/athletic/6821358/2025/11/19/aaron-rodgers-broken-wrist-injury-update/
 

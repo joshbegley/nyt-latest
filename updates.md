@@ -1,3 +1,7 @@
+**Bruins' Charlie McAvoy undergoes facial surgery, recovery timeline unknown**\
+`McAvoy was injured on Nov. 15 during the Bruins’ 3-2 win over the Montreal Canadiens when he was hit in the face by a Noah Dobson slap shot.`\
+https://nytimes.com/athletic/6821471/2025/11/19/bruins-charlie-mcavoy-surgery-facial-injury/
+
 **Believe It or Not, That $12 Million Gold Toilet Was Bought by … Ripley’s**\
 `The entertainment company plans on displaying the toilet, saying its team is exploring “whether visitors may someday be allowed to use it.”`\
 https://nytimes.com/2025/11/19/arts/design/gold-toilet-owner-ripleys.html
