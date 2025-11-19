@@ -1,3 +1,15 @@
+**Mets announce overhauled coaching staff under Carlos Mendoza**\
+`After a disappointing 83-79 season, New York moved on from the majority of its coaching staff.`\
+https://nytimes.com/athletic/6821216/2025/11/19/mets-announce-coaching-staff-carlos-mendoza/
+
+**Driver Who Killed Mother and Daughters Sentenced to 3 to 9 Years**\
+`Miriam Yarimi, a wig maker with a big social media presence, ran a red light in Brooklyn before slamming into the family members. The deaths spurred calls for increased traffic safety.`\
+https://nytimes.com/2025/11/19/nyregion/wigmaker-hit-and-run-sentence.html
+
+**Henry Todd, LSD Kingpin Turned Everest Guide, Dies at 80**\
+`He helped make and distribute millions of LSD tablets in the 1970s. After seven years in prison, he ran mountain climbing expeditions in the Himalayas.`\
+https://nytimes.com/2025/11/19/world/asia/henry-todd-dead.html
+
 **Wendell Carter Jr. addresses relationship with Angel Reese: 'That's my girl'**\
 `Orlando center Wendell Carter Jr. spoke on a podcast about his relationship with Angel Reese. He was was equal parts vague and committal.`\
 https://nytimes.com/athletic/6821081/2025/11/19/wendell-carter-jr-angel-reese-relationship/
