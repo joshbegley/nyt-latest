@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6816055/2025/11/19/college-football-oregon-usc-okla
 https://nytimes.com/2025/11/19/briefing/how-are-immigrants-feeling.html
 
 **Minneapolis is a top women's sports city. A local champion explains why**\
-`Minneapolis at No. 2 in our Top Women's Sports Cities ranking may be a bit of a surprise. But not if you talk to the longtime WNBA coach.`\
+`Minneapolis at No. 2 in our Top Women's Sports Cities ranking may be a bit of a surprise. But not if you talk to Cheryl Reeve.`\
 https://nytimes.com/athletic/6817209/2025/11/19/minneapolis-top-sports-cities-cheryl-reeve/
 
 **To play or not to play: The case for and against making the conference championship**\
