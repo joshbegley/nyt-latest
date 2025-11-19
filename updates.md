@@ -1,3 +1,7 @@
+**Zach Hyman's return gives Oilers a lift, but can he deliver in all areas?**\
+`Zach Hyman has returned, and he was missed. What will his impact be in the coming months?`\
+https://nytimes.com/athletic/6814705/2025/11/19/zach-hymans-oilers-return/
+
 **The state of NASCAR's Next Gen car: As big teams dominate, is there any hope for the rest?**\
 `NASCAR is exploring ways to boost parity, but it's tough. "We want to do that in a really smart way," league president Steve O'Donnell says.`\
 https://nytimes.com/athletic/6817596/2025/11/19/nascar-next-gen-car-hendrick-gibbs-penske-dominance/
