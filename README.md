@@ -1,3 +1,19 @@
+**A guide to the normal and not so normal noises of Old Trafford on matchday**\
+`Ruben Amorim said the sound at Manchester United's last home game was "not normal" — this is our guide to Old Trafford's sounds`\
+https://nytimes.com/athletic/6816742/2025/11/19/old-trafford-sounds-amorim/
+
+**A New Site and 90 Brands Excite Dubai Watch Week**\
+`The fair’s 10th year also will include a 75th anniversary gala for Ahmed Seddiqi, the regional retailer that was a driving force behind its creation.`\
+https://nytimes.com/2025/11/19/fashion/dubai-watch-week-ahmed-seddiqi.html
+
+**Spain's team of many heroes and why they can repeat 'double' success of predecessors**\
+`There is confidence among the squad that they can follow a breakthrough Euros win with a World Cup triumph.`\
+https://nytimes.com/athletic/6816701/2025/11/19/spain-world-cup-euro-2024/
+
+**The many tactical reinventions of Pep Guardiola across his 1000-game managerial career**\
+`Few managers reach 1000 games in their careers; even fewer show as much adaptability and reinvention as Guardiola has`\
+https://nytimes.com/athletic/6804534/2025/11/19/pep-guardiola-tactics-1000-games/
+
 **America’s Home Insurance Affordability Crunch: See What’s Happening Near You.**\
 `A climate ‘shock’ in the insurance market has started to affect home prices in areas most exposed to wildfires and hurricanes, new research shows.`\
 https://nytimes.com/interactive/2025/11/19/climate/home-insurance-premiums-costs-usa.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/11/19/pageoneplus/quote-of-the-day-president-offers-pom
 **A Climate ‘Shock’ Is Eroding Some Home Values. New Data Shows How Much.**\
 `Changes in the insurance market have started to affect home prices in the most disaster-prone areas, new research finds, pushing some homeowners’ finances to the breaking point.`\
 https://nytimes.com/interactive/2025/11/19/climate/home-insurance-costs-real-estate-market.html
-
-**Fantasy football rankings Week 12: Sleepers, starts, best rollercoasters**\
-`Jake Ciely shares his player rankings and notes for Week 12, including a strong reason why Rome Odunze could have a bounce-back performance.`\
-https://nytimes.com/athletic/6818247/2025/11/19/fantasy-football-rankings-week-12-sleepers-starts/
-
-**Corrections: Nov. 19, 2025**\
-`Corrections that appeared in print on Wednesday, Nov. 19, 2025.`\
-https://nytimes.com/2025/11/19/pageoneplus/corrections-nov-19-2025.html
-
-**Europe’s Chip Dreams Confront Business Realities**\
-`European chipmakers need TSMC’s help to grow their own semiconductor supply chain, but the chip giant’s Taiwanese suppliers find Europe a tough place to do business.`\
-https://nytimes.com/2025/11/19/technology/europe-tsmc-chips.html
-
-**In the A.I. Race, Chinese Talent Still Drives American Research**\
-`Although some Silicon Valley executives paint China as the enemy, Chinese brains continue to play a major role in U.S. research.`\
-https://nytimes.com/2025/11/19/technology/ai-research-chinese-talent.html
 
