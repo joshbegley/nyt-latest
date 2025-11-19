@@ -1,3 +1,7 @@
+**NASA Releases Images of Comet 3I/ATLAS: It ‘Doesn’t Look Like a Spacecraft’**\
+`With the government reopened, the space agency at last released pictures captured by a fleet of government spacecraft of an object that came from beyond our solar system.`\
+https://nytimes.com/2025/11/19/science/comet-3i-atlas-nasa-mars.html
+
 **Current forward Temwa Chawinga wins second consecutive NWSL MVP**\
 `Chawinga, 27, claims the award for a second successive season, becoming the first player in the league's 13-year history to do so.`\
 https://nytimes.com/athletic/6819788/2025/11/19/nwsl-mvp-temwa-chawinga-current/
@@ -33,8 +37,4 @@ https://nytimes.com/video/dining/100000010531463/pumpkin-cheesecake.html
 **Newly Discovered Bach Pieces Are the Fruits of Decades of Detective Work**\
 `A pair of organ works that scholars believe were written by a teenage Johann Sebastian Bach were premiered in Leipzig this week and added to the composer’s official catalog.`\
 https://nytimes.com/2025/11/19/arts/music/bach-newly-discovered-works.html
-
-**What the decommitment of Dayton Raiola, Dylan's brother, means for Nebraska**\
-`The Raiola news raises questions. But the ramifications, if any, remain unknown. Let’s unpack it.`\
-https://nytimes.com/athletic/6821604/2025/11/19/dayton-raiola-nebraska-decommitment/
 
