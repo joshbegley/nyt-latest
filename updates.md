@@ -1,3 +1,11 @@
+**Stalled Contempt Inquiry Into Deportation Flights Springs Back to Life**\
+`The resurrected inquiry could finally get to the bottom of lingering questions such as: Did top Trump administration officials purposely ignore a court order?`\
+https://nytimes.com/2025/11/19/us/politics/contempt-inquiry-deportation-flights.html
+
+**Appeals Court Blocks Limits on Federal Agents’ Use of Force in Chicago Area**\
+`A judge found that immigration agents were using force in a way that “shocks the conscience.” Appellate judges said the restrictions she imposed went too far.`\
+https://nytimes.com/2025/11/19/us/chicago-immigration-ruling.html
+
 **Police Found $1 Million in a Tub Under a Garage. The Government Gets to Keep It.**\
 `A court ruled that the hidden cash, which the police found while searching for an illegal gun in Ontario, did not lawfully belong to the man living on the property.`\
 https://nytimes.com/2025/11/19/world/canada/canada-government-buried-money-raid.html

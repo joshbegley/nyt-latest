@@ -1,3 +1,11 @@
+**Stalled Contempt Inquiry Into Deportation Flights Springs Back to Life**\
+`The resurrected inquiry could finally get to the bottom of lingering questions such as: Did top Trump administration officials purposely ignore a court order?`\
+https://nytimes.com/2025/11/19/us/politics/contempt-inquiry-deportation-flights.html
+
+**Appeals Court Blocks Limits on Federal Agents’ Use of Force in Chicago Area**\
+`A judge found that immigration agents were using force in a way that “shocks the conscience.” Appellate judges said the restrictions she imposed went too far.`\
+https://nytimes.com/2025/11/19/us/chicago-immigration-ruling.html
+
 **Police Found $1 Million in a Tub Under a Garage. The Government Gets to Keep It.**\
 `A court ruled that the hidden cash, which the police found while searching for an illegal gun in Ontario, did not lawfully belong to the man living on the property.`\
 https://nytimes.com/2025/11/19/world/canada/canada-government-buried-money-raid.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/11/19/technology/nvidia-earnings.html
 **What’s in Our Queue? ‘The Luck and Strange Concerts’ and More**\
 `Text by Salman Masood`\
 https://nytimes.com/card/2025/11/19/arts/editors-recommendations-luckandstrangeconcerts
-
-**Klimt Art Is Second-Most Expensive Painting Ever Sold at Auction**\
-`At $236.4 million, a portrait of a woman by Gustav Klimt became the second-most expensive painting ever sold at auction. An 18-karat solid gold toilet by the artist Maurizio Cattelan sold for $12.1 million at the auction at Sotheby’s in New York on Tuesday.`\
-https://nytimes.com/video/us/100000010533650/portrait-auction-record-klimt-sothebys.html
-
-**Violence Continues in Nigeria Against Christians and Muslims**\
-`An attack on a church in central Nigeria happened as U.`\
-https://nytimes.com/video/world/africa/100000010533050/nigeria-persecution-trump.html
 
