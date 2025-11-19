@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: The most likely bracket entering Week 13**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/19/college-football-playoff-bracket-projections-odds/
+
 **USMNT’s 2026 takes shape: World Cup sendoff in Chicago, March friendlies booked**\
 `The logistics of the USMNT 2026 schedule, both leading up to the World Cup and during it, have emerged`\
 https://nytimes.com/athletic/6820796/2025/11/19/usmnt-2026-schedule-world-cup/

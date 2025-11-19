@@ -1,3 +1,7 @@
+**Panthers’ Eetu Luostarinen out after suffering burns from barbecue accident**\
+`Luostarinen's injury is another blow to the Panthers, who have been without their two top forwards.`\
+https://nytimes.com/athletic/6820798/2025/11/19/eetu-luostarinen-burns-barbecue-accident-florida-panthers/
+
 **USMNT’s 2026 takes shape: World Cup sendoff in Chicago, March friendlies booked**\
 `The logistics of the USMNT 2026 schedule, both leading up to the World Cup and during it, have emerged`\
 https://nytimes.com/athletic/6820796/2025/11/19/usmnt-2026-schedule-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6820040/2025/11/19/nfl-week-12-survivor-pool-picks-
 **An F.B.I. Trainee Hung a Pride Flag Near His Desk. He Says He Was Fired for It.**\
 `He described his dismissal as the latest move by senior F.B.I. officials to play politics, damaging morale and hindering the bureau’s ability to carry out its public safety mission.`\
 https://nytimes.com/2025/11/19/us/politics/fbi-gay-pride-flag-lawsuit.html
-
-**Giants QB Jaxson Dart returns to practice, on track to start Week 12 vs. Lions**\
-`Dart will be a non-contact participant at Giants practice on Wednesday. `\
-https://nytimes.com/athletic/6817516/2025/11/19/ny-giants-jaxson-dart-concussion-week-12-lions/
 
