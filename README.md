@@ -1,3 +1,11 @@
+**WNBA proposes max salary above $1.1 million in latest proposal to WNBPA**\
+`The league’s proposal also included a minimum salary of more than $220,000.`\
+https://nytimes.com/athletic/6818721/2025/11/18/wnba-cba-negotiation-update-player-salary/
+
+**‘This World of Tomorrow’ Review: Tom Hanks Is Back in Town**\
+`The movie star plays a man from the future at the 1939 New York World’s Fair in an adaptation of some of his stories. Kelli O’Hara shines as his love interest.`\
+https://nytimes.com/2025/11/18/theater/this-world-of-tomorrow-review-tom-hanks.html
+
 **Scoop City: Emotional win for Dallas**\
 `Inside the Cowboys' struggle, plus Week 12 fantasy targets`\
 https://nytimes.com/athletic/6818926/2025/11/18/emotional-win-for-dallas-plus-finding-this-years-second-half-breakout-fantasy-wr/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/11/18/climate/nebraska-energy-efficiency.html
 **‘Freedom Comes to My Mind’: Saving Family Legacy and Land in South Carolina**\
 `Conservation can be tough when a property is passed down informally over generations with no clear title. A growing effort is helping families sort it all out.`\
 https://nytimes.com/2025/11/18/climate/south-carolina-land-title-ownership.html
-
-**Driving an E.V. Across North Dakota? Thank the Standing Rock Tribe.**\
-`A tribally owned network of chargers will soon be complete, connecting reservations and bridging a gap in the Midwest.`\
-https://nytimes.com/2025/11/18/climate/electic-vehicle-chargers-north-dakota.html
-
-**In Washington, Birds Are Giving ‘Yelp Reviews’ of Forest Restoration Work**\
-`A collective of land trusts, conservancies and tribes is capturing birdsong with audio gear and A.I. for clues about habitat health.`\
-https://nytimes.com/2025/11/18/climate/washington-birds-habitat-health.html
 
