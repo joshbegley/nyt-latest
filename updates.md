@@ -1,3 +1,7 @@
+**‘Really Good Friends’: Trump Lauds Saudi Crown Prince During Lavish Visit**\
+`President Trump rejected a U.S. intelligence report finding that Crown Prince Mohammed bin Salman had ordered the murder of a journalist.`\
+https://nytimes.com/2025/11/18/us/politics/trump-saudi-crown-prince-visit.html
+
 **Republican Clay Higgins Was the Sole Vote Against Releasing the Epstein Files**\
 `The only person in Congress to vote against the bill was a right-wing congressman from Louisiana who is an ardent supporter of President Trump and has espoused conspiracy theories.`\
 https://nytimes.com/2025/11/18/us/politics/clay-higgins-epstein-vote-no.html
