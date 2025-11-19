@@ -1,40 +1,40 @@
+**As CFP rankings tighten, it's time for Notre Dame to (gasp) root for USC**\
+`The odds of everything breaking wrong and Notre Dame being left out feel remote, but they aren't zero.`\
+https://nytimes.com/athletic/6819804/2025/11/19/notre-dame-college-football-playoff-rankings-miami-usc/
+
+**Packers mailbag: How far off are some Jordan Love narratives?**\
+`The Packers are about to begin a three-game stretch in which they play each NFC North opponent.`\
+https://nytimes.com/athletic/6818035/2025/11/19/packers-mailbag-jordan-love-narratives/
+
+**All 29 times the Leafs have traded away a first-rounder, ranked from best to worst**\
+`We're doing this with the total benefit of hindsight, which isn't fair to the general managers, but too bad for them.`\
+https://nytimes.com/athletic/6817927/2025/11/19/ranking-times-maple-leafs-traded-first-rounders/
+
+**Like 2015 all over again, Broncos and Patriots racing for No. 1 seed**\
+`Plus, what should be made of the Broncos' ardent defense of Bo Nix after the QB led another late winning drive versus the Chiefs?`\
+https://nytimes.com/athletic/6817619/2025/11/19/broncos-bye-week-playoffs-bo-nix/
+
+**Charting the Chargers' path to the postseason**\
+`Can the Chargers beat the rest of the AFC playoff hopefuls to the finish line? Find three wins. That has to be the goal.`\
+https://nytimes.com/athletic/6817789/2025/11/19/chargers-path-to-postseason/
+
+**Kings stock report: Ascension to Pacific Division peak was fleeting but telling**\
+`The Pacific Division’s top five teams were split by just three points entering Tuesday’s action.`\
+https://nytimes.com/athletic/6818961/2025/11/19/los-angeles-kings-stock-report-pacific-division-lead/
+
+**Mirtle NHL mailbag: Luxury tax debate, Michkov's slump, 50-goal predictions and more**\
+`Why the NHL will never adopt a luxury tax, and other mailbag answers.`\
+https://nytimes.com/athletic/6817685/2025/11/19/nhl-mailbag-luxury-tax-debate-matvei-michkovs-slump-50-goal-predictions-and-more/
+
+**Trump Administration Live Updates: Senate Awaits Bill Demanding Release of Epstein Files**\
+``\
+https://nytimes.com/live/2025/11/19/us/trump-epstein-saudi-news
+
 **Cade Cunningham is cool in the clutch as red-hot Pistons win 11th straight**\
 `"You know the ball is in the right person's hands with the game on the line," Isaiah Stewart said of Cunningham.`\
 https://nytimes.com/athletic/6819229/2025/11/19/cade-cunningham-pistons-winning-streak-hawks/
 
-**Netherlands Hands Back Control of Chipmaker Nexperia**\
-`Uncertainty over the availability of the Chinese-owned company’s chips, which are used in cars and electronics, had added to concerns of a global shortage.`\
+**Netherlands Hands Back Control of Chinese-Owned Chipmaker Nexperia**\
+`Uncertainty over the availability of the company’s chips, which are used in cars and electronics, had added to concerns of a global shortage.`\
 https://nytimes.com/2025/11/19/business/nexperia-netherlands-china-chips.html
-
-**How do the Bucks survive without Giannis? It won't be easy**\
-`Several players, including Ryan Rollins, Kyle Kuzma and Myles Turner, will need to step up in the superstar's absence.`\
-https://nytimes.com/athletic/6818127/2025/11/19/bucks-giannis-antetokounmpo-injury-adjustment/
-
-**You thought Scotland would flunk their big World Cup chance? You haven't met this Scotland team**\
-`Making sense of one of the craziest nights in Scottish football's history - and what it means for World Cup 2026`\
-https://nytimes.com/athletic/6819581/2025/11/19/scotland-world-cup-denmark/
-
-**What to Know About the Corruption Scandal Roiling Ukraine**\
-`An investigation into the state-owned nuclear power company has reached members of President Volodymyr Zelensky’s inner circle.`\
-https://nytimes.com/2025/11/19/world/europe/ukraine-corruption-scandal-zelensky.html
-
-**USMNT show they mean business. Plus: Ronaldo's White House visit and Scotland's World Cup dream**\
-`Pochettino's men are on a roll before the World Cup. But what was Ronaldo doing at a gala dinner with President Trump?`\
-https://nytimes.com/athletic/6819705/2025/11/19/tafc-newsletter-usmnt-ronaldo-scotland/
-
-**College football Week 13 streaming guide: CFP stakes for USC-Oregon, Oklahoma, the ACC**\
-`Here's what to watch for around college football on Friday and Saturday, with conference championship games just two weeks away.`\
-https://nytimes.com/athletic/6816055/2025/11/19/college-football-oregon-usc-oklahoma-missouri-how-to-watch/
-
-**How Are Immigrants Feeling?**\
-`We explain the latest insights from a poll on their attitudes about the country.`\
-https://nytimes.com/2025/11/19/briefing/how-are-immigrants-feeling.html
-
-**Minneapolis is a top women's sports city. A local champion explains why**\
-`Minneapolis at No. 2 in our Top Women's Sports Cities ranking may be a bit of a surprise. But not if you talk to Cheryl Reeve.`\
-https://nytimes.com/athletic/6817209/2025/11/19/minneapolis-top-sports-cities-cheryl-reeve/
-
-**To play or not to play: The case for and against making the conference championship**\
-`In the 12-team Playoff era, what are the pros and cons of an extra game before the main tournament?`\
-https://nytimes.com/athletic/6819518/2025/11/19/college-football-conference-championships-playoff/
 
