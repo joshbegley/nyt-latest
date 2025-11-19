@@ -1,3 +1,7 @@
+**The 2025 Michelin Stars Awarded for the Northeast and Chicago**\
+`A restaurant in New York gets three stars, and Philadelphia and Boston are included for the first time.`\
+https://nytimes.com/2025/11/18/dining/the-2025-michelin-stars-awarded-for-the-northeast-and-chicago.html
+
 **Curaçao becomes smallest nation ever to qualify for men's World Cup**\
 `Move over Cape Verde. Curaçao is now the smallest nation to ever qualify for the World Cup`\
 https://nytimes.com/athletic/6816600/2025/11/18/curacao-smallest-nation-world-cup-2026-teams/
