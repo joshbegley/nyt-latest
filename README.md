@@ -1,3 +1,7 @@
+**Saudi Crown Prince Dines With Trump at the White House**\
+`President Trump stood shoulder-to-shoulder with Crown Prince Mohammad bin Salman of Saudi Arabia during a White House dinner on Tuesday. The room was packed with leaders from several industries.`\
+https://nytimes.com/video/us/politics/100000010532543/trump-saudi-dinner-guests.html
+
 **Stephen Colbert Celebrates ‘Epstein Rockin’ Eve’**\
 `“Stay up for a ball drop you’re going to want to miss,” the “Late Show” host said as Congress voted for the release of the Jeffrey Epstein files.`\
 https://nytimes.com/2025/11/19/arts/television/late-night-trump-epstein-files.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/19/us/harvard-summers-epstein-investigation.html
 **Scoot Henderson's return from torn hamstring 'week to week,' not imminent**\
 `The Trail Blazers initially said Henderson would return to basketball activity in four to eight weeks.`\
 https://nytimes.com/athletic/6819120/2025/11/19/scoot-henderson-torn-hamstring-inury-update/
-
-**Preparing Perth Stadium for Ashes cricket: A drop-in wicket, a 40-tonne transporter and sleepless nights**\
-`The ground is hosting its first Ashes Test but will replicate the pace and bounce that made the WACA, across the Swan River, so feared`\
-https://nytimes.com/athletic/6809356/2025/11/19/ashes-perth-wicket-waca-australia/
 
