@@ -1,3 +1,7 @@
+**House Rejects Censuring Plaskett For Texts With Epstein In 2019**\
+`Three Republicans voted with nearly every Democrat in the House to defeat an effort to formally reprimand Delegate Stacey Plaskett, Democrat of the Virgin Islands.`\
+https://nytimes.com/2025/11/18/us/politics/stacey-plaskett-house-censure-epstein.html
+
 **In Nebraska, Makeovers for Buildings That Don’t Price Out the Locals**\
 `In a struggling area of Lincoln, a program pays for repairs and energy efficiency upgrades in rental buildings. In return, landlords must keep rents affordable.`\
 https://nytimes.com/2025/11/18/climate/nebraska-energy-efficiency.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6818569/2025/11/18/college-football-playoff-third-r
 **LeBron James to return to lineup after missing Lakers' first 14 games**\
 `The Lakers went 10-4 without James, who has not played this season after being diagnosed with sciatic nerve irritation on his right side.`\
 https://nytimes.com/athletic/6814769/2025/11/18/lebron-james-injury-lakers-return-status/
-
-**Short-handed Kentucky's issues exposed in blowout loss to Michigan State**\
-`Kentucky entered the season with Final Four expectations but is now 0-2 against high-major foes.`\
-https://nytimes.com/athletic/6818571/2025/11/18/michigan-state-kentucky-score-result/
 

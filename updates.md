@@ -1,3 +1,7 @@
+**House Rejects Censuring Plaskett For Texts With Epstein In 2019**\
+`Three Republicans voted with nearly every Democrat in the House to defeat an effort to formally reprimand Delegate Stacey Plaskett, Democrat of the Virgin Islands.`\
+https://nytimes.com/2025/11/18/us/politics/stacey-plaskett-house-censure-epstein.html
+
 **In Nebraska, Makeovers for Buildings That Don’t Price Out the Locals**\
 `In a struggling area of Lincoln, a program pays for repairs and energy efficiency upgrades in rental buildings. In return, landlords must keep rents affordable.`\
 https://nytimes.com/2025/11/18/climate/nebraska-energy-efficiency.html
