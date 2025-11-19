@@ -1,3 +1,11 @@
+**LeBron James to return to lineup after missing Lakers' first 14 games**\
+`The Lakers went 10-4 without James, who has not played this season after being diagnosed with sciatic nerve irritation on his right side.`\
+https://nytimes.com/athletic/6814769/2025/11/18/lebron-james-injury-lakers-return-status/
+
+**Short-handed Kentucky's issues exposed in blowout loss to Michigan State**\
+`Kentucky entered the season with Final Four expectations, but is now 0-2 against high-major foes.`\
+https://nytimes.com/athletic/6818571/2025/11/18/michigan-state-kentucky-score-result/
+
 **Trump Ramps Up Redistricting Pressure on Indiana Republicans**\
 `After the State Senate said it would not take up a new map, President Trump said he would support primary challengers against Republicans who bucked him.`\
 https://nytimes.com/2025/11/18/us/indiana-redistricting-trump-republicans.html
@@ -19,7 +27,7 @@ https://nytimes.com/2025/11/18/us/politics/prince-mohammed-trump-us-saudi-arabia
 https://nytimes.com/2025/11/18/technology/meta-google-antitrust-tech.html
 
 **Congress Approves Bill to Release Epstein Files**\
-`All but one member of the House voted to pass a bill on Tuesday that demanded the Justice Department to release the Epstein files.`\
+`Congress approved a bill demanding the Justice Department to release all of the Epstein files. President Trump, who was once friends with Epstein, initially opposed the vote, but caved to pressure and said he would sign the bill.`\
 https://nytimes.com/video/us/politics/100000010531913/house-passes-bill-release-epstein-files.html
 
 **Federal Judge Orders Some Texas Schools to Remove Ten Commandment Posters**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/18/us/politics/texas-ten-commandments.html
 **Warriors coach Steve Kerr calls for shorter season amid rising NBA injuries**\
 `Rising NBA soft tissue injuries worry Kerr, who points to nonstop games, extensive travel and limited practice time.`\
 https://nytimes.com/athletic/6818486/2025/11/18/steve-kerr-comments-soft-tissue-injuries-nba/
-
-**Wayne Gretzky shows at Canada friendly to give team talk**\
-`Canada has made a habit of bringing in some big names to address the men's national team in the run-up to the World Cup`\
-https://nytimes.com/athletic/6818560/2025/11/18/wayne-gretzky-canada-soccer-friendly-venezuela-team-talk/
-
-**Trump Lauds Saudi Prince in Lavish Visit, Brushing Off Journalist’s Killing**\
-`President Trump rejected a U.S. intelligence report finding that Crown Prince Mohammed bin Salman had ordered the murder of a journalist.`\
-https://nytimes.com/2025/11/18/us/politics/trump-saudi-crown-prince-visit.html
 

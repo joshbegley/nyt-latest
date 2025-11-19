@@ -1,3 +1,15 @@
+**LeBron James to return to lineup after missing Lakers' first 14 games**\
+`The Lakers went 10-4 without James, who has not played this season after being diagnosed with sciatic nerve irritation on his right side.`\
+https://nytimes.com/athletic/6814769/2025/11/18/lebron-james-injury-lakers-return-status/
+
+**Short-handed Kentucky's issues exposed in blowout loss to Michigan State**\
+`Kentucky entered the season with Final Four expectations, but is now 0-2 against high-major foes.`\
+https://nytimes.com/athletic/6818571/2025/11/18/michigan-state-kentucky-score-result/
+
+**Congress Approves Bill to Release Epstein Files**\
+`Congress approved a bill demanding the Justice Department to release all of the Epstein files. President Trump, who was once friends with Epstein, initially opposed the vote, but caved to pressure and said he would sign the bill.`\
+https://nytimes.com/video/us/politics/100000010531913/house-passes-bill-release-epstein-files.html
+
 **Twins trade for reliever Eric Orze, add Connor Prielipp, five others to 40-man roster**\
 `Minnesota added immediate bullpen help by acquiring reliever Orze from Tampa Bay in exchange for Jacob Kisting.`\
 https://nytimes.com/athletic/6818497/2025/11/18/twins-2025-minor-league-eric-ozre-connor-prielipp/
