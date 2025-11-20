@@ -1,3 +1,7 @@
+**2030 World Cup: How likely is South America's 64-team 'dream' tournament?**\
+`CONMEBOL president Alejandro Dominguez has doubled down on his "dream" of the 2030 World Cup being expanded to 64 nations.`\
+https://nytimes.com/athletic/6822657/2025/11/20/world-cup-teams-qualify-2030-nations/
+
 **Blue Jackets report card: Marchenko and Werenski get As, but others are struggling**\
 `The Blue Jackets are being held to a higher standard this season. Here's how we graded them at the 20-game mark.`\
 https://nytimes.com/athletic/6820297/2025/11/20/blue-jackets-grades-marchenko-werenski/

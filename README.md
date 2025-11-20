@@ -1,3 +1,7 @@
+**Wyden Presses for Investigation Into JPMorgan Chase and Epstein**\
+`Senator Ron Wyden, an Oregon Democrat, wants to examine how the nation’s largest bank handled the reporting of more than $1 billion in suspicious transactions.`\
+https://nytimes.com/2025/11/20/us/politics/jeffrey-epstein-jpmorgan-chase-ron-wyden.html
+
 **Blue Jackets report card: Marchenko and Werenski get As, but others are struggling**\
 `The Blue Jackets are being held to a higher standard this season. Here's how we graded them at the 20-game mark.`\
 https://nytimes.com/athletic/6820297/2025/11/20/blue-jackets-grades-marchenko-werenski/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/11/20/dining/thanksgiving-hot-takes.html
 **From Burns' leg stump to Harmison's wide: How the first ball of the Ashes can set the tone**\
 `The memory of Michael Slater carving through point or the ball whistling past Justin Langer's nose also endure from recent Ashes series`\
 https://nytimes.com/athletic/6804243/2025/11/20/ashes-england-australia-harmison-burns-slater-hussain/
-
-**World Cup play-off draw analysis: Will Italy and other European hopefuls be happy with their path?**\
-`The 16 remaining European World Cup hopefuls now know their play-off fate - but will they be happy with it?`\
-https://nytimes.com/athletic/6822998/2025/11/20/world-cup-play-off-draw-analysis-europe/
 
