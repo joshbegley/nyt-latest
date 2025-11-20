@@ -1,3 +1,7 @@
+**Our Depressing Vaccine Future Laid Bare on the C.D.C. Website**\
+`Kennedy has a rhetorical advantage in that his deceptions can be definitive while scientific honesty has to come with caveats.`\
+https://nytimes.com/2025/11/20/opinion/cdc-autism-vaccine-website.html
+
 **Brentford's Carvalho sustains ACL injury, will miss rest of the season**\
 `The 23-year-old will undergo surgery and has already begun his rehabilitation at the club.`\
 https://nytimes.com/athletic/6823854/2025/11/20/fabio-carvalho-brentford-acl-injury/
