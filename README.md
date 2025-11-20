@@ -1,3 +1,7 @@
+**Coast Guard Softens Stance on Hate and Hazing**\
+`A new servicewide policy recasts swastikas and nooses as merely “politically divisive” and deletes protections for transgender men and women.`\
+https://nytimes.com/2025/11/20/us/politics/coast-guard-hate-crimes.html
+
 **False accounting case involving Napoli and De Laurentiis referred to trial by Rome judge**\
 `Club president De Laurentiis and Napoli chief executive Andrea Chiavelli were placed under investigation and will stand trial.`\
 https://nytimes.com/athletic/6824417/2025/11/20/napoli-false-accounting-case/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/20/movies/the-age-of-disclosure-congress.html
 **Ward Landrigan, Jeweler to the Stars, Dies at 84**\
 `At Sotheby’s, he provided famous diamonds to Elizabeth Taylor and Richard Burton before reviving Verdura, a venerable jewelry company founded by a Sicilian duke.`\
 https://nytimes.com/2025/11/20/fashion/ward-landrigan-dead.html
-
-**Chiefs special teams coach on Trump's kickoff rules criticism: 'He has no idea'**\
-`Dave Toub shut down a question about the president, who has called the NFL's new kickoff rules terrible, demeaning and "sissy" football.`\
-https://nytimes.com/athletic/6824471/2025/11/20/donald-trump-nfl-kickoff-rules-chiefs/
 
