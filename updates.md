@@ -1,3 +1,5 @@
+
+
 **This report will be the last one until mid-December.**\
 `By Lydia DePillis and Colby Smith`\
 https://nytimes.com/live/2025/business/jobs-report-economy/this-report-will-be-the-last-one-until-mid-december
