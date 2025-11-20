@@ -1,3 +1,11 @@
+**Trouble Dating? Bill Ackman Is Here to Help.**\
+`The billionaire investor proposed a four-word solution for young men’s romantic woes.`\
+https://nytimes.com/2025/11/20/style/bill-ackman-dating-advice-young-men.html
+
+**World Cup play-off draw analysis: Will Italy and other European hopefuls be happy with their path?**\
+`The 16 remaining European World Cup hopefuls now know their play-off fate - but will they be happy with it?`\
+https://nytimes.com/athletic/6822998/2025/11/20/world-cup-play-off-draw-analysis-europe/
+
 **Elias Pettersson has been better for the Canucks, but there's more to be done**\
 `Breaking down Pettersson's promising signs of progress and the areas in which he still has another level to reach.`\
 https://nytimes.com/athletic/6822467/2025/11/20/canucks-elias-pettersson-better-centre/

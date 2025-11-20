@@ -1,3 +1,7 @@
+**Trouble Dating? Bill Ackman Is Here to Help.**\
+`The billionaire investor proposed a four-word solution for young men’s romantic woes.`\
+https://nytimes.com/2025/11/20/style/bill-ackman-dating-advice-young-men.html
+
 **Elias Pettersson has been better for the Canucks, but there's more to be done**\
 `Breaking down Pettersson's promising signs of progress and the areas in which he still has another level to reach.`\
 https://nytimes.com/athletic/6822467/2025/11/20/canucks-elias-pettersson-better-centre/
@@ -10,9 +14,9 @@ https://nytimes.com/interactive/2025/11/20/dining/thanksgiving-hot-takes.html
 `The memory of Michael Slater carving through point or the ball whistling past Justin Langer's nose also endure from recent Ashes series`\
 https://nytimes.com/athletic/6804243/2025/11/20/ashes-england-australia-harmison-burns-slater-hussain/
 
-**World Cup play-off draw analysis: Will Italy and other hopefuls be happy with their path?**\
+**World Cup play-off draw analysis: Will Italy and other European hopefuls be happy with their path?**\
 `The 16 remaining European World Cup hopefuls now know their play-off fate - but will they be happy with it?`\
-https://nytimes.com/athletic/6822998/2025/11/20/world-cup-play-off-draw-analysis/
+https://nytimes.com/athletic/6822998/2025/11/20/world-cup-play-off-draw-analysis-europe/
 
 **After 167 Years in New York, a Priceless Coin Collection Heads to Toledo**\
 `The doubloons, dollars and denarii of the American Numismatic Society will leave their overlooked home in Manhattan for a more welcoming headquarters on the campus of the Toledo Museum of Art.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6823001/2025/11/20/jude-bellingham-england-ian-wrig
 **This report will be the last one until mid-December.**\
 `By Lydia DePillis and Colby Smith`\
 https://nytimes.com/live/2025/business/jobs-report-economy/this-report-will-be-the-last-one-until-mid-december
-
-**Trump Administration Live Updates: President Signs Bill to Release Epstein Files**\
-``\
-https://nytimes.com/live/2025/11/20/us/trump-admin
 
