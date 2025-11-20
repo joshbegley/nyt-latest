@@ -1,3 +1,7 @@
+**The Privacy Battle in Our Brains**\
+`My colleague talks about technology that can actually read our minds — and maybe even change them.`\
+https://nytimes.com/2025/11/20/world/privacy-battle-in-brains-technology-saudi-mamdani.html
+
 **Baylor, AD Mack Rhoades expected to immediately part ways: Source**\
 `Rhoades, who has been the school’s athletic director since 2016, has been on a leave of absence for personal reasons since Nov. 13.`\
 https://nytimes.com/athletic/6824462/2025/11/20/baylor-mack-rhoades-part-ways-athletic-director/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/20/technology/ai-stock-boom-nvidia.html
 **David Bellos, 80, Dies; Wrestled French Wordplay Into English**\
 `He translated nearly 30 books, including novels by Georges Perec, a master of linguistic games, and Ismail Kadare.`\
 https://nytimes.com/2025/11/20/books/david-bellos-dead.html
-
-**Judge Temporarily Blocks Deployment of National Guard in Washington**\
-`Judge Jia M. Cobb found that the presence of more than 2,000 National Guard troops, many from outside D.C., was most likely unlawful. She paused the order from taking effect until Dec. 11.`\
-https://nytimes.com/2025/11/20/us/politics/national-guard-washington-dc-trump.html
 
