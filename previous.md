@@ -1,5 +1,5 @@
 **Cooper Flagg to miss first game of career Wednesday against New York**\
-`DALLAS — For the first time this season, the Dallas Mavericks won’t have Cooper Flagg in the lineup.`\
+`A team source confirms that Mavs' No. 1 draft pick is dealing with an illness.`\
 https://nytimes.com/athletic/6821482/2025/11/19/ooper-flagg-status-illness-mavericks-nba/
 
 **NBA eyes European league featuring elite clubs like Real Madrid, Barcelona**\
