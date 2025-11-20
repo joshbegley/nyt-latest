@@ -1,3 +1,7 @@
+**On Your List**\
+`summary`\
+https://nytimes.com/interactive/2025/arts/read-watch-next-list.html
+
 **The Windup: Will anyone make the Hall of Fame?**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6824032/2025/11/20/hall-of-fame-debate-2026-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/20/us/chicago-immigration-seventh-circuit.html
 **U.S. Ran a War Game on Ousting Maduro. Venezuela Fell Into Chaos.**\
 `An official U.S. government exercise during President Trump’s first term forecast turmoil and potential violence in a post-Maduro Venezuela.`\
 https://nytimes.com/2025/11/20/us/politics/venezuela-maduro-fallout-trump.html
-
-**Getaway Guide**\
-``\
-https://nytimes.com/series/getaway-guide
 
