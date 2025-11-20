@@ -1,3 +1,11 @@
+**David Bellos, 80, Dies; Wrestled French Wordplay Into English**\
+`He translated nearly 30 books, including novels by Georges Perec, a master of linguistic games, and Ismail Kadare.`\
+https://nytimes.com/2025/11/20/books/david-bellos-dead.html
+
+**Judge Temporarily Blocks Deployment of National Guard in Washington**\
+`Judge Jia M. Cobb found that the presence of more than 2,000 National Guard troops, many from out of state, was most likely unlawful. She paused the order from taking effect until Dec. 11.`\
+https://nytimes.com/2025/11/20/us/politics/national-guard-washington-dc-trump.html
+
 **Judge Temporarily Blocks Deployment of National Guard in Washington**\
 `Judge Jia M. Cobb found that the presence of more than 2,000 National Guard troops, many from out of state, was most likely unlawful. She paused the order from taking effect until Dec. 11.`\
 https://nytimes.com/2025/11/20/us/politics/judge-blocks-national-guard-trump.html

@@ -1,6 +1,10 @@
+**David Bellos, 80, Dies; Wrestled French Wordplay Into English**\
+`He translated nearly 30 books, including novels by Georges Perec, a master of linguistic games, and Ismail Kadare.`\
+https://nytimes.com/2025/11/20/books/david-bellos-dead.html
+
 **Judge Temporarily Blocks Deployment of National Guard in Washington**\
 `Judge Jia M. Cobb found that the presence of more than 2,000 National Guard troops, many from out of state, was most likely unlawful. She paused the order from taking effect until Dec. 11.`\
-https://nytimes.com/2025/11/20/us/politics/judge-blocks-national-guard-trump.html
+https://nytimes.com/2025/11/20/us/politics/national-guard-washington-dc-trump.html
 
 **Trump Calling Reporter ‘Piggy’ Was ‘Frankness,’ White House Says**\
 `Karoline Leavitt, the White House press secretary, addressed for the first time a schoolyard insult that President Trump lobbed at a Bloomberg News reporter last week.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6824318/2025/11/20/nfl-week-12-projected-scores-mod
 **More Rain on the Way to Los Angeles, Already Saturated by Recent Storms**\
 `The next storm is not expected to bring as much rain as the one last week, but flooding is a concern.`\
 https://nytimes.com/2025/11/20/weather/southern-california-rain-forecast.html
-
-**Israel Premier-Tech rebrands to NSN Cycling Team for 2026**\
-`The cycling team were the subject of many pro-Palestine protests during the 2025 season, particularly during the Vuelta a Espana`\
-https://nytimes.com/athletic/6824284/2025/11/20/israel-premier-tech-rebrand-nsn-2026/
 
