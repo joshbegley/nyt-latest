@@ -1,3 +1,7 @@
+**Kenny Atkinson not a fan of NBA's $100K fine: “Gotta look at the Cavs’ best interest'**\
+`Cleveland was the first team this season to be fined for violating the league's Player Participation Policy.`\
+https://nytimes.com/athletic/6821803/2025/11/19/kenny-atkinson-cavs-fine-nba-injuries/
+
 **Lawrence Summers to Stop Teaching at Harvard While It Investigates His Epstein Ties**\
 `The former Harvard president had previously stepped down from other positions following revelations about his longtime connections to Jeffrey Epstein.`\
 https://nytimes.com/2025/11/19/us/larry-summers-harvard-epstein.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6821640/2025/11/19/nba-euroleague-expansion-real-ma
 **The World’s Largest Afro Took Three People to Measure It**\
 `With an Afro that is more than six feet in circumference, Jessica Martinez set a new Guinness record.`\
 https://nytimes.com/2025/11/19/style/largest-afro-guinness-world-record.html
-
-**NASA Releases Images of Comet 3I/ATLAS: It ‘Doesn’t Look Like a Spacecraft’**\
-`With the government reopened, the space agency at last released pictures captured by a fleet of government spacecraft of an object that came from beyond our solar system.`\
-https://nytimes.com/2025/11/19/science/comet-3i-atlas-nasa-mars.html
 

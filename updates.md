@@ -1,3 +1,7 @@
+**Kenny Atkinson not a fan of NBA's $100K fine: “Gotta look at the Cavs’ best interest'**\
+`Cleveland was the first team this season to be fined for violating the league's Player Participation Policy.`\
+https://nytimes.com/athletic/6821803/2025/11/19/kenny-atkinson-cavs-fine-nba-injuries/
+
 **Lawrence Summers to Stop Teaching at Harvard While It Investigates His Epstein Ties**\
 `The former Harvard president had previously stepped down from other positions following revelations about his longtime connections to Jeffrey Epstein.`\
 https://nytimes.com/2025/11/19/us/larry-summers-harvard-epstein.html
