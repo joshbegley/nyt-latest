@@ -1,3 +1,11 @@
+**Steve Kerr endorses Erik Spoelstra as 'great choice' for Team USA  coach**\
+`Spoelstra, who previously served under Kerr, helped Team USA finish fourth at the 2023 FIBA World Cup and win 2024 Olympic gold.`\
+https://nytimes.com/athletic/6821983/2025/11/19/erik-spoelstra-steve-kerr-usa-basketball-olympics/
+
+**House Votes to Kill Bill Allowing Senators to Sue Government**\
+`The measure has prompted a backlash, but the top Senate Republican appeared inclined to preserve it, arguing that it would protect the body against investigatory overreach.`\
+https://nytimes.com/2025/11/19/us/politics/house-votes-to-kill-bill-allowing-senators-to-sue-government.html
+
 **Jason Kidd says he never considered leaving Mavericks to coach Knicks**\
 `Dallas coach confirmed that his team denied New York's request to interview him, but says leaving "never crossed my mind."`\
 https://nytimes.com/athletic/6822006/2025/11/19/jason-kidd-mavericks-coach-knicks/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/19/us/larry-summers-harvard-epstein.html
 **Sam Leavitt's possible transfer from Arizona State an all-too-familiar lesson for fans**\
 `This isn't shocking. It’s how top players, especially quarterbacks, figure out their worth. But it would be another sting to ASU fans.`\
 https://nytimes.com/athletic/6821586/2025/11/19/sam-leavitt-arizona-state-transfer-portal/
-
-**Stephen Curry, Draymond Green and Jimmy Butler all out Wednesday against Heat**\
-`The absence of Warriors stars comes the day after coach Steve Kerr questioned the length of the NBA's schedule. `\
-https://nytimes.com/athletic/6821656/2025/11/19/warriors-injury-report-curry-butler-green-nba/
-
-**Maryland lands 5-star Baba Oladotun: What this means for Terrapins**\
-`Oladotun averaged 13.2 points, 5.8 rebounds and 1.5 assists per game this summer on the Nike EYBL circuit.`\
-https://nytimes.com/athletic/6821689/2025/11/19/maryland-lands-baba-oladotun-terrapins-recruitment/
 

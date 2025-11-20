@@ -1,3 +1,11 @@
+**Steve Kerr endorses Erik Spoelstra as 'great choice' for Team USA  coach**\
+`Spoelstra, who previously served under Kerr, helped Team USA finish fourth at the 2023 FIBA World Cup and win 2024 Olympic gold.`\
+https://nytimes.com/athletic/6821983/2025/11/19/erik-spoelstra-steve-kerr-usa-basketball-olympics/
+
+**House Votes to Kill Bill Allowing Senators to Sue Government**\
+`The measure has prompted a backlash, but the top Senate Republican appeared inclined to preserve it, arguing that it would protect the body against investigatory overreach.`\
+https://nytimes.com/2025/11/19/us/politics/house-votes-to-kill-bill-allowing-senators-to-sue-government.html
+
 **Jason Kidd says he never considered leaving Mavericks to coach Knicks**\
 `Dallas coach confirmed that his team denied New York's request to interview him, but says leaving "never crossed my mind."`\
 https://nytimes.com/athletic/6822006/2025/11/19/jason-kidd-mavericks-coach-knicks/
