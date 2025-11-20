@@ -1,3 +1,15 @@
+**Brentford's Carvalho sustains ACL injury, will miss rest of the season**\
+`The 23-year-old will undergo surgery and has already begun his rehabilitation at the club.`\
+https://nytimes.com/athletic/6823854/2025/11/20/fabio-carvalho-brentford-acl-injury/
+
+**Will Weather Snarl Your Thanksgiving Plans? Here’s a Day-by-Day Forecast.**\
+`We can’t help you cook the turkey, but we can help you plan when to hit the road.`\
+https://nytimes.com/2025/11/20/weather/thanksgiving-forecast-snow-cold.html
+
+**Trump Will Send U.S. Official to Global Summit After All**\
+`The decision to have an acting ambassador attend the Group of 20 in South Africa came after the president said the United States would boycott.`\
+https://nytimes.com/2025/11/20/world/africa/south-africa-trump-g20-turnaround.html
+
 **Fire Breaks Out at COP30 Climate Talks in Brazil**\
 `Delegates were evacuated from the conference venue, where thousands from nearly 200 countries had gathered.`\
 https://nytimes.com/2025/11/20/climate/fire-cop30-belem-climate.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/20/us/politics/democrats-allies-intelligence-sharing
 **Trump Elevates Once-Fringe Meme Makers to the Mainstream**\
 `Right-wing users have tapped A.I. tools to promote President Trump’s agenda. He took notice.`\
 https://nytimes.com/2025/11/20/technology/trump-ai-memes.html
-
-**Before Fatal UPS Plane Crash, Engine Brace Had Cracked, Safety Agency Says**\
-`The cargo plane was taking off from Louisville earlier this month when it crashed moments after becoming airborne, killing the three crew members and 11 people on the ground.`\
-https://nytimes.com/2025/11/20/us/ups-plane-crash-louisville-engine-ntsb.html
-
-**Court Vision: Izzo's focus on continuity, assist rate and encouraging signs for UConn**\
-`Roster continuity may be undervalued, but not at MSU, where Tom Izzo has eschewed massive roster overhauls that are sweeping the sport.`\
-https://nytimes.com/athletic/6822319/2025/11/20/tom-izzo-michigan-state-uconn-college-basketball/
-
-**'He's our leader': Nikola Vučević again has the last say on a Bulls close call**\
-`At the end, when it mattered most, the 35-year-old was there for Chicago. His teammates aren't surprised.`\
-https://nytimes.com/athletic/6823652/2025/11/20/nikola-vucevic-buzzer-beater-bulls-blazers/
 

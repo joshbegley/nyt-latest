@@ -1,3 +1,7 @@
+**Fire Breaks Out at COP30 Climate Talks in Brazil**\
+`Delegates were evacuated from the conference venue, where thousands from nearly 200 countries had gathered.`\
+https://nytimes.com/2025/11/20/climate/fire-cop30-belem-climate.html
+
 **Louvre’s Embattled Leader Defends Contested Renovation Plan, and Her Tenure**\
 `In one of her very few interviews since the museum heist, Laurence des Cars said the plan would increase much-needed security, but critics say it is too focused on new construction.`\
 https://nytimes.com/2025/11/20/world/europe/louvre-director-theft-renovation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6822319/2025/11/20/tom-izzo-michigan-state-uconn-co
 **'He's our leader': Nikola Vučević again has the last say on a Bulls close call**\
 `At the end, when it mattered most, the 35-year-old was there for Chicago. His teammates aren't surprised.`\
 https://nytimes.com/athletic/6823652/2025/11/20/nikola-vucevic-buzzer-beater-bulls-blazers/
-
-**Paramount set to win Champions League broadcast rights in UK and Ireland**\
-`Paramount's expected win, at the expense of TNT Sports, follows a new-look tender process designed to attract a global streaming platform.`\
-https://nytimes.com/athletic/6823689/2025/11/20/champions-league-tv-uk-paramount/
 

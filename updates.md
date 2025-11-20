@@ -1,3 +1,7 @@
+**Fire Breaks Out at COP30 Climate Talks in Brazil**\
+`Delegates were evacuated from the conference venue, where thousands from nearly 200 countries had gathered.`\
+https://nytimes.com/2025/11/20/climate/fire-cop30-belem-climate.html
+
 **Louvre’s Embattled Leader Defends Contested Renovation Plan, and Her Tenure**\
 `In one of her very few interviews since the museum heist, Laurence des Cars said the plan would increase much-needed security, but critics say it is too focused on new construction.`\
 https://nytimes.com/2025/11/20/world/europe/louvre-director-theft-renovation.html
