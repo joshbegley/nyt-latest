@@ -1,3 +1,31 @@
+**Celebrating the chaotic variety of Premier League club commentary: 'Have some of that!'**\
+`There is no standard way for football clubs to narrate highlights of their games – and that's a very good thing indeed`\
+https://nytimes.com/athletic/6804228/2025/11/20/premier-league-club-highlights-commentary/
+
+**Raya at Southport: How 'Spanish Dave' was toughened up by non-League football**\
+`The Arsenal goalkeeper's stint in the English fifth-tier as a 19-year-old was a formative time in his footballing education`\
+https://nytimes.com/athletic/6795441/2025/11/20/raya-at-southport-how-spanish-dave-was-toughened-up-by-non-league-football/
+
+**The Alternative Premier League Table: No 12 - Injuries and games missed**\
+`A detailed look at how each club has been impacted by absentees so far this season `\
+https://nytimes.com/athletic/6819483/2025/11/20/the-alternative-premier-league-table-clubs-injuries/
+
+**Tom Werner exclusive: How Liverpool won the title - and what came next**\
+`In an extract from James Pearce's new book, the club's chairman reflects on Slot, the executive team overhaul and Anfield's title party`\
+https://nytimes.com/athletic/6816528/2025/11/20/tom-werner-liverpool-fsg-interview/
+
+**How Japan Is Tacking Its Bear Problem**\
+`Bear attacks are at record levels in Japan, with more than a dozen people killed this year. Javier C. Hernández, our Tokyo bureau chief, looks at the causes and how Japan is responding.`\
+https://nytimes.com/video/world/100000010519260/japan-bear-attacks.html
+
+**Meet the German transfer guru behind Ekitike, Marmoush and Kolo Muani**\
+`Eintracht Frankfurt's Markus Kroesche has a reputation for identifying and developing young talent - and then selling at a large profit`\
+https://nytimes.com/athletic/6819773/2025/11/20/meet-the-german-transfer-guru-behind-ekitike-marmoush-and-kolo-muani/
+
+**Is Cristiano Ronaldo Portugal's best attacking option for the World Cup?**\
+`Cristiano Ronaldo is not as physically dominant as he once was, but the stats show he is still a potent attacking option`\
+https://nytimes.com/athletic/6437507/2025/11/20/cristiano-ronaldo-word-cup-portugal/
+
 **The Tactics Board: How the 3-5-2 works**\
 `Part five of The Athletic's series on football formations takes a close look at the 3-5-2 formation`\
 https://nytimes.com/athletic/6820017/2025/11/20/tactics-board-how-3-5-2-works/
@@ -9,28 +37,4 @@ https://nytimes.com/2025/11/20/world/europe/spain-franco-dictator-memory-video-g
 **Connections: Sports Edition Coach: Hints for Nov. 20, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6820323/2025/11/20/connections-sports-edition-hints-for-nov-20-2025/
-
-**The Hunt Is On for Bears in Japan After Deadly Attacks**\
-`Residents in the northern region of Akita are living in fear after dozens of assaults on humans. Riot police and the army have been sent to help.`\
-https://nytimes.com/2025/11/20/world/asia/japan-bears-attacks.html
-
-**Corrections: Nov. 20, 2025**\
-`Corrections that appeared in print on Thursday, Nov. 20, 2025.`\
-https://nytimes.com/2025/11/20/pageoneplus/corrections-nov-20-2025.html
-
-**Quote of the Day: Not a Sanctuary, but Still a Border Patrol Target**\
-`Quotation of the Day for Thursday, November 20, 2025.`\
-https://nytimes.com/2025/11/19/pageoneplus/quote-of-the-day-not-a-sanctuary-but-still-a-border-patrol-target.html
-
-**Books That Examine the Past and Present of the Middle East Take National Book Awards**\
-`Rabih Alameddine’s “The True True Story of Raja the Gullible (and His Mother)” won in fiction, while Omar El Akkad’s reckoning with Gaza took the nonfiction prize.`\
-https://nytimes.com/2025/11/19/books/review/omar-el-akkad-rabih-alameddine-national-book-awards.html
-
-**Angels lawyers press expert witness on Tyler Skaggs' future value**\
-`Meanwhile, MLB commissioner Rob Manfred said he has been following the trial and will review it at its conclusion.`\
-https://nytimes.com/athletic/6822198/2025/11/19/tyler-skaggs-trial-angels-lawyers-expert-witness-future-value/
-
-**Angel City's Savy King unveils league-wide safety initiative for heart health**\
-`Players, coaches and staff across the league will take part in free CPR training.`\
-https://nytimes.com/athletic/6822204/2025/11/19/angel-city-savy-king-safety-initiative-heart-health/
 
