@@ -1,5 +1,5 @@
 **False accounting case involving Napoli and De Laurentiis referred to trial by Rome judge**\
-`Club preisdent De Laurentiis and Napoli chief executive Andrea Chiavelli were placed under investigation and will stand trial.`\
+`Club president De Laurentiis and Napoli chief executive Andrea Chiavelli were placed under investigation and will stand trial.`\
 https://nytimes.com/athletic/6824417/2025/11/20/napoli-false-accounting-case/
 
 **Fire Breaks Out at COP30**\
