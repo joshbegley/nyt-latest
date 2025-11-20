@@ -1,3 +1,7 @@
+**Fire Breaks Out at COP30**\
+`A pavilion caught on fire during negotiations at the COP30 global climate summit in Belém, Brazil, on Thursday. It is the latest in a series of mishaps for the annual conference this year.`\
+https://nytimes.com/video/climate/100000010536799/fire-breaks-out-at-cop30.html
+
 **Free Beer, T-shirts: Rice looks to boost attendance for North Texas matchup**\
 `Rice, an FBS school with an undergraduate population just shy of 5,000, wants a big turnout with bowl eligibility on the line.`\
 https://nytimes.com/athletic/6824499/2025/11/20/rice-north-texas-beer-college-football-promotion/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6824471/2025/11/20/donald-trump-nfl-kickoff-rules-c
 **CeeDee Lamb says he and George Pickens were disciplined for missing curfew**\
 `Despite missing opening series, both receivers had big games in Dallas' win over Las Vegas.`\
 https://nytimes.com/athletic/6824556/2025/11/20/ceedee-lamb-george-pickens-disciplined-cowboys-raiders/
-
-**Shilo Sanders faces new lawsuit alleging $164K in unpaid legal fees**\
-`Shilo Sanders faces escalating legal troubles over more than $164,000 in allegedly unpaid legal fees and interest.`\
-https://nytimes.com/athletic/6824293/2025/11/20/shilo-sanders-lawsuit-unpaid-legal-fees/
 
