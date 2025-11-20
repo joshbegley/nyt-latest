@@ -1,3 +1,11 @@
+**Netflix, Comcast and Paramount Submit Warner Bros. Discovery Bids**\
+`The outcome of the sale could alter the trajectory of the entertainment business.`\
+https://nytimes.com/2025/11/20/business/media/warner-discovery-bids-paramount-netflix-comcast.html
+
+**A Film About Unidentified Phenomena Gets a Congressional Audience**\
+`“The Age of Disclosure,” a documentary featuring government and military officials, was screened for a bipartisan group of members of the House of Representatives.`\
+https://nytimes.com/2025/11/20/movies/the-age-of-disclosure-congress.html
+
 **Ward Landrigan, Jeweler to the Stars, Dies at 84**\
 `At Sotheby’s, he provided famous diamonds to Elizabeth Taylor and Richard Burton before reviving Verdura, a venerable jewelry company founded by a Sicilian duke.`\
 https://nytimes.com/2025/11/20/fashion/ward-landrigan-dead.html

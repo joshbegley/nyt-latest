@@ -1,3 +1,11 @@
+**Netflix, Comcast and Paramount Submit Warner Bros. Discovery Bids**\
+`The outcome of the sale could alter the trajectory of the entertainment business.`\
+https://nytimes.com/2025/11/20/business/media/warner-discovery-bids-paramount-netflix-comcast.html
+
+**A Film About Unidentified Phenomena Gets a Congressional Audience**\
+`“The Age of Disclosure,” a documentary featuring government and military officials, was screened for a bipartisan group of members of the House of Representatives.`\
+https://nytimes.com/2025/11/20/movies/the-age-of-disclosure-congress.html
+
 **Ward Landrigan, Jeweler to the Stars, Dies at 84**\
 `At Sotheby’s, he provided famous diamonds to Elizabeth Taylor and Richard Burton before reviving Verdura, a venerable jewelry company founded by a Sicilian duke.`\
 https://nytimes.com/2025/11/20/fashion/ward-landrigan-dead.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6824398/2025/11/20/watch-browns-shedeur-sanders-deb
 **Hiring Increased, but So Did the Unemployment Rate**\
 `Also, bear attacks are disrupting life in rural Japan. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/11/20/briefing/jobs-report-ukraine-peace-college-radio.html
-
-**Inside the players-only meeting that turned the Wild's season around**\
-`The Wild had their worst October in franchise history. Captain Jared Spurgeon brought the players together to talk it out.`\
-https://nytimes.com/athletic/6824149/2025/11/20/wild-players-only-meeting/
-
-**Nydia Velázquez, a New York Trailblazer in Congress, to Retire Next Year**\
-`Ms. Velázquez, 72, a 16-term congresswoman, said it was time for a new generation of Democrats to step forward.`\
-https://nytimes.com/2025/11/20/nyregion/nydia-velazquez-retire.html
 
