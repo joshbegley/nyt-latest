@@ -1,3 +1,19 @@
+**On Your List**\
+`summary`\
+https://nytimes.com/interactive/2025/arts/read-watch-next-list.html
+
+**The Windup: Will anyone make the Hall of Fame?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6824032/2025/11/20/hall-of-fame-debate-2026-the-windup/
+
+**Richard Lamparski, Author of ‘Whatever Became Of …?’ Books, Dies at 93**\
+`He turned an obsession with forgotten stars into a popular series, long before “Where Are They Now?” features became ubiquitous.`\
+https://nytimes.com/2025/11/20/books/richard-lamparski-dead.html
+
+**Trinity Rodman receives contract from Super League team larger than what NWSL can match: Sources**\
+`Berman said the league wants Rodman in the NWSL and that it will "fight" for her.`\
+https://nytimes.com/athletic/6824000/2025/11/20/trinity-rodman-nwsl-contract-offer-gainbridge-super-league/
+
 **Trump Accuses Democrats of ‘Sedition’ Over Message to the Military**\
 `President Trump was reacting to a video that reminded members of the military that they are not supposed to obey illegal orders.`\
 https://nytimes.com/2025/11/20/us/politics/trump-accuses-democratic-lawmakers-of-sedition-over-message-to-the-military.html
