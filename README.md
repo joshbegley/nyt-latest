@@ -1,3 +1,11 @@
+**Lakers fire Joey, Jesse Buss from front-office positions: Sources**\
+`"I kind of felt like the writing was on the wall," Jesse Buss said in an interview with The Athletic.`\
+https://nytimes.com/athletic/6824062/2025/11/20/lakers-fire-joey-jesse-buss-from-front-office-positions-sources/
+
+**San Francisco Giants free-agent profile: Bo Bichette, 2B/SS**\
+`On paper, it's hard to find reasons Bichette shouldn't be the Giants' top offensive target. But do the red flags make it worth it?`\
+https://nytimes.com/athletic/6824054/2025/11/20/san-francisco-giants-free-agent-profile-bo-bichette/
+
 **Trade Anthony Davis? Try to win? Mavs must pick a direction. Here's what we're hearing**\
 `The Mavericks can either prioritize getting the best possible pick in the 2026 draft or trying to be competitive right now.`\
 https://nytimes.com/athletic/6823940/2025/11/20/anthony-davis-trade-mavericks-options/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/11/20/us/trump-news-epstein-cheney/the-fcc-chair-q
 **Paramount wins rights to broadcast Champions League games in the UK from 2027**\
 `Meanwhile, Sky Sports will become the exclusive UK broadcaster of Europa League and Conference League matches from the 2027/28 season.`\
 https://nytimes.com/athletic/6824067/2025/11/20/paramount-champions-league-broadcast-rights/
-
-**A Fraudster Pardoned by Trump Gets 37 Years for Running Ponzi Scheme**\
-`A New Jersey man convicted of defrauding investors of roughly a quarter-billion dollars is among a growing number of people granted clemency only to to be charged with new crimes.`\
-https://nytimes.com/2025/11/20/nyregion/trump-pardon-eliyahu-weinstein-sentence.html
-
-**Mavericks' Dante Exum out for season as backcourt takes another hit**\
-`Dallas guard will soon undergo right knee surgery after experiencing “complications” from a previous procedure.`\
-https://nytimes.com/athletic/6824187/2025/11/20/mavericks-dante-exum-out-for-season/
 
