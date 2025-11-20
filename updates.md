@@ -1,3 +1,11 @@
+**Blue Jackets report card: Marchenko and Werenski get As, but others are struggling**\
+`The Blue Jackets are being held to a higher standard this season. Here's how we graded them at the 20-game mark.`\
+https://nytimes.com/athletic/6820297/2025/11/20/blue-jackets-grades-marchenko-werenski/
+
+**2030 World Cup: How likely is South America's 64-team 'dream' tournament likely?**\
+`CONMEBOL president Alejandro Dominguez has doubled down on his "dream" of the 2030 World Cup being expanded to 64 nations.`\
+https://nytimes.com/athletic/6822657/2025/11/20/world-cup-teams-qualify-2030-nations/
+
 **Key fantasy football questions for Week 12: Derrick Henry time? Can Shedeur Sanders succeed?**\
 `Dalton Del Don breaks down the key fantasy football topics for Week 12, including Derrick Henry's prolific late-season history.`\
 https://nytimes.com/athletic/6822265/2025/11/20/key-fantasy-football-questions-week-12-nacua-henry-dart/
