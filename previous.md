@@ -1,3 +1,7 @@
+**Despite loss, Warriors finish road trip on high note with team's renewed camaraderie**\
+`Warriors veterans Jimmy Butler and Steph Curry missed Wednesday's game but coached and offered advice to their younger teammates.`\
+https://nytimes.com/athletic/6822297/2025/11/20/warriors-road-trip-losses-camaraderie/
+
 **What Man Utd's players did in the international break: Casemiro thrives, Dorgu's goal, Mbeumo misses out**\
 `The positives and negatives for Old Trafford players who were away representing their countries over the past two weeks`\
 https://nytimes.com/athletic/6819772/2025/11/20/what-man-utds-players-did-in-the-international-break/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6795441/2025/11/20/raya-arsenal-southport-non-leagu
 **The Alternative Premier League Table: No 12 - Injuries and games missed**\
 `A detailed look at how each club has been impacted by absentees so far this season `\
 https://nytimes.com/athletic/6819483/2025/11/20/the-alternative-premier-league-table-clubs-injuries/
-
-**Tom Werner exclusive: How Liverpool won the title - and what came next**\
-`In an extract from James Pearce's new book, the club's chairman reflects on Slot, the executive team overhaul and Anfield's title party`\
-https://nytimes.com/athletic/6816528/2025/11/20/tom-werner-liverpool-fsg-interview/
 

@@ -1,3 +1,7 @@
+**Despite loss, Warriors finish road trip on high note with team's renewed camaraderie**\
+`Warriors veterans Jimmy Butler and Steph Curry missed Wednesday's game but coached and offered advice to their younger teammates.`\
+https://nytimes.com/athletic/6822297/2025/11/20/warriors-road-trip-losses-camaraderie/
+
 **What Man Utd's players did in the international break: Casemiro thrives, Dorgu's goal, Mbeumo misses out**\
 `The positives and negatives for Old Trafford players who were away representing their countries over the past two weeks`\
 https://nytimes.com/athletic/6819772/2025/11/20/what-man-utds-players-did-in-the-international-break/

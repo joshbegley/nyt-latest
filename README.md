@@ -1,3 +1,11 @@
+**Indonesia’s Mount Semeru Erupts and Rains Ash on Villages**\
+`Mount Semeru on the island of Java is one of the Indonesia’s most active volcanoes. Its latest eruption forced hundreds to flee their homes.`\
+https://nytimes.com/2025/11/20/world/asia/indonesia-mount-semeru-eruption.html
+
+**How to win in Australia: Commit to a plan, seize on any luck and 'push them to dark places'**\
+`Dale Steyn was a member of the South Africa side who won Down Under in 2008-09, the first team in 16 years to beat Australia on home soil`\
+https://nytimes.com/athletic/6816814/2025/11/20/ashes-australia-england-steyn/
+
 **Despite loss, Warriors finish road trip on high note with team's renewed camaraderie**\
 `Warriors veterans Jimmy Butler and Steph Curry missed Wednesday's game but coached and offered advice to their younger teammates.`\
 https://nytimes.com/athletic/6822297/2025/11/20/warriors-road-trip-losses-camaraderie/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6819522/2025/11/20/premier-league-predictions-title
 **Celebrating the chaotic variety of Premier League club commentary: 'Have some of that!'**\
 `There is no standard way for football clubs to narrate highlights of their games – and that's a very good thing indeed`\
 https://nytimes.com/athletic/6804228/2025/11/20/premier-league-club-highlights-commentary/
-
-**Raya at Southport: How 'Spanish Dave' was toughened up by non-League football**\
-`The Arsenal goalkeeper's stint in the English fifth-tier as a 19-year-old was a formative time in his footballing education`\
-https://nytimes.com/athletic/6795441/2025/11/20/raya-arsenal-southport-non-league/
-
-**The Alternative Premier League Table: No 12 - Injuries and games missed**\
-`A detailed look at how each club has been impacted by absentees so far this season `\
-https://nytimes.com/athletic/6819483/2025/11/20/the-alternative-premier-league-table-clubs-injuries/
 
