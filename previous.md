@@ -1,3 +1,15 @@
+**Jessica Berman: The NWSL's most influential commissioner faces her toughest tests yet**\
+`NWSL and Berman agreed to a three-year contract extension through 2028.`\
+https://nytimes.com/athletic/6823398/2025/11/20/nwsl-commissioner-interview-jessica-berman-soccer/
+
+**Senate Democrats Investigate Kennedy Center Deals With Trump Allies**\
+`Under Richard Grenell, the performing arts center has given steep discounts to CPAC and FIFA, signed contracts with administration associates and spent lavishly on friends.`\
+https://nytimes.com/2025/11/20/us/politics/democrats-kennedy-center-investigate.html
+
+**Your Thanksgiving Countdown Starts Now**\
+`By Tanya Sichynsky`\
+https://nytimes.com/2025/11/20/dining/your-thanksgiving-countdown-starts-now.html
+
 **Democrats Raise Concerns Over Allied Curbs on Intelligence Sharing**\
 `Britain’s limits on sharing information reflect growing unease among partner nations over the legality of the U.S. strikes on boats purportedly carrying drugs.`\
 https://nytimes.com/2025/11/20/us/politics/democrats-allies-intelligence-sharing.html
@@ -7,7 +19,7 @@ https://nytimes.com/2025/11/20/us/politics/democrats-allies-intelligence-sharing
 https://nytimes.com/2025/11/20/technology/trump-ai-memes.html
 
 **Before Fatal UPS Plane Crash, Engine Brace Had Cracked, Safety Agency Says**\
-`The cargo plane was taking off from Louisville last month when it crashed moments after becoming airborne, killing the three crew members and 11 people on the ground.`\
+`The cargo plane was taking off from Louisville earlier this month when it crashed moments after becoming airborne, killing the three crew members and 11 people on the ground.`\
 https://nytimes.com/2025/11/20/us/ups-plane-crash-louisville-engine-ntsb.html
 
 **Court Vision: Izzo's focus on continuity, assist rate and encouraging signs for UConn**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6823689/2025/11/20/champions-league-tv-uk-paramount
 **What I'm hearing about the Penguins: Ben Kindel and a massive draft haul**\
 `The Penguins are over the moon about their 2025 NHL Draft class. `\
 https://nytimes.com/athletic/6822855/2025/11/20/penguins-ben-kindel-nhl-draft/
-
-**Jalen Hurts responds to reported Eagles' frustration as offense stalls**\
-`Jalen Hurts downplayed reports of internal frustration, stressing daily commitment as the Eagles navigate offensive struggles.`\
-https://nytimes.com/athletic/6823278/2025/11/20/jalen-hurts-eagles-offense-frustration/
-
-**Manhattans in Brooklyn: 26 Must-Try Cocktails in New York City**\
-`Classics from the cocktail canon, dive bar favorites and no fewer than five martinis.`\
-https://nytimes.com/2025/11/20/dining/best-nyc-cocktails.html
-
-**Iran Withdraws From Deal to Let International Nuclear Inspections Resume**\
-`Iran’s foreign minister said his country would halt plans for a reinstatement of nuclear inspections at a time of heightened concern over Iran’s enriched uranium.`\
-https://nytimes.com/2025/11/20/world/middleeast/iran-deal-nuclear-inspection.html
 
