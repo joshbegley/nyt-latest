@@ -1,3 +1,15 @@
+**Read the NTSB’s preliminary report on the UPS crash**\
+`The report by the National Transportation Safety Board provided details on what happened when an engine on a UPS cargo plane detached from a wing before takeoff.`\
+https://nytimes.com/interactive/2025/11/20/us/nat-NTSB-preliminary-report-louisville-UPS-crash.html
+
+**‘The Family Plan 2’ Review: A Relaxing Vacation? Maybe Not.**\
+`Mark Wahlberg and Michelle Monaghan return in a better executed, equally goofball sequel about a family’s tangles with organized crime.`\
+https://nytimes.com/2025/11/20/movies/the-family-plan-2-review.html
+
+**MacKenzie Scott Expands Giving Spree to Tribal Colleges**\
+`The billionaire philanthropist is steering millions of dollars toward tribal schools, after the Trump administration proposed a significant federal funding cut.`\
+https://nytimes.com/2025/11/20/us/mackenzie-scott-giving-tribal-colleges.html
+
 **Lawsuit Challenges Trump Administration Over $1.8 Million in Immigration Fines**\
 `A class-action suit accuses the Trump administration of weaponizing civil penalties to force undocumented migrants to self-deport through enormous penalties.`\
 https://nytimes.com/2025/11/20/us/politics/lawsuit-immigration-penalties.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6823557/2025/11/20/islanders-vs-red-wings-stream-ho
 **How to watch Clippers vs. Magic: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Orlando Magic, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6823555/2025/11/20/clippers-vs-magic-stream-how-to-watch-nov-20/
-
-**How to watch Capitals vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the Washington Capitals play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6823552/2025/11/20/capitals-vs-canadiens-stream-how-to-watch-nov-20/
-
-**How to watch Blue Jackets vs. Maple Leafs: Time, TV, streaming**\
-`Find out how to watch the Columbus Blue Jackets play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6823550/2025/11/20/blue-jackets-vs-maple-leafs-stream-how-to-watch-nov-20/
-
-**How to watch Blues vs. Flyers: Time, TV, streaming**\
-`Find out how to watch the St. Louis Blues play the Philadelphia Flyers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6823548/2025/11/20/blues-vs-flyers-stream-how-to-watch-nov-20/
 
