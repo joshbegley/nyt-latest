@@ -1,3 +1,7 @@
+**How to watch Appalachian State vs. West Virginia women's basketball: Time, TV, streaming**\
+`Find out how to watch the Appalachian State Mountaineers play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6822752/2025/11/20/appalachian-state-vs-west-virginia-stream-how-to-watch-nov-20/
+
 **Bills vs. Texans Thursday Night Football betting: Player prop and a single-game parlay**\
 `Brad Evans scours sportsbooks for the best prop and single-game parlay for Thursday Night Football's matchup between the Bills and Texans. `\
 https://nytimes.com/athletic/6817779/2025/11/20/bills-texans-thursday-night-football-betting-props-parlay/
