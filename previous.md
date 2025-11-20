@@ -1,7 +1,3 @@
-**‘The Perfect Neighbor’ Is an American Nightmare**\
-`Wesley and Parul Sehgal, a fellow Times critic, discuss the Netflix documentary “The Perfect Neighbor” and the film’s innovative use of police body cam footage, which raises moral and ethical questions.`\
-https://nytimes.com/video/podcasts/100000010529346/the-perfect-neighbor-is-an-american-nightmare.html
-
 **Inside a revamped Red Sox pitching program that is starting to produce results**\
 `The Red Sox made big changes that allowed them to fast-track Payton Tolle and Connelly Early to the majors. What comes next?`\
 https://nytimes.com/athletic/6821416/2025/11/20/red-sox-pitching-program-tolle-early-mlb/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6822752/2025/11/20/appalachian-state-vs-west-virgin
 **Bills vs. Texans Thursday Night Football betting: Player prop and a single-game parlay**\
 `Brad Evans scours sportsbooks for the best prop and single-game parlay for Thursday Night Football's matchup between the Bills and Texans. `\
 https://nytimes.com/athletic/6817779/2025/11/20/bills-texans-thursday-night-football-betting-props-parlay/
+
+**Marjorie Taylor Greene Was Not on Our Bingo Card**\
+`Have we been selling her short? Is she paving the way to the after-Trump?`\
+https://nytimes.com/2025/11/20/opinion/trump-marjorie-taylor-greene-republicans-maga.html
 
