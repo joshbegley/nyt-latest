@@ -1,3 +1,11 @@
+**Key fantasy football questions for Week 12: Derrick Henry time? Can Shedeur Sanders succeed?**\
+`Dalton Del Don breaks down the key fantasy football topics for Week 12, including Derrick Henry's prolific late-season history.`\
+https://nytimes.com/athletic/6822265/2025/11/20/key-fantasy-football-questions-week-12-nacua-henry-dart/
+
+**Trump Signs Bill to Release Epstein Files**\
+`President Trump announced in a social media post on Wednesday that he had signed the bill calling on the Justice Department to release its files on the convicted sex offender Jeffrey Epstein within 30 days.`\
+https://nytimes.com/video/us/politics/100000010535063/trump-bill-epstein-files.html
+
 **Premier League winner Fuchs leaves Charlotte FC for Newport job**\
 `Fuchs, 39, won the 2016 Premier League title and the 2021 FA Cup with Leicester City.`\
 https://nytimes.com/athletic/6823202/2025/11/20/christian-fuchs-charlotte-fc-newport-county/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/20/arts/design/american-numismatic-society-coins-tol
 **What to know about the report.**\
 `By Lydia DePillis`\
 https://nytimes.com/live/2025/business/jobs-report-economy/what-to-know-about-the-report
-
-**Justice Democrats Re-Emerge in New York to Try to Unseat Espaillat**\
-`The group, which powered Alexandria Ocasio-Cortez’s rise in 2018, is backing Darializa Avila Chevalier’s bid to unseat Representative Adriano Espaillat.`\
-https://nytimes.com/2025/11/20/nyregion/justice-democrats-espaillat-avila-chevalier.html
-
-**Wright: England 'not ready' for Black star like Bellingham**\
-`"If you are outspoken, Black, playing to that level, that frightens certain people," Wright said after criticism of Bellingham this week.`\
-https://nytimes.com/athletic/6823001/2025/11/20/jude-bellingham-england-ian-wright/
 

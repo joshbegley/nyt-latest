@@ -1,3 +1,7 @@
+**Premier League winner Fuchs leaves Charlotte FC for Newport job**\
+`Fuchs, 39, won the 2016 Premier League title and the 2021 FA Cup with Leicester City.`\
+https://nytimes.com/athletic/6823202/2025/11/20/christian-fuchs-charlotte-fc-newport-county/
+
 **Trouble Dating? Bill Ackman Is Here to Help.**\
 `The billionaire investor proposed a four-word solution for young men’s romantic woes.`\
 https://nytimes.com/2025/11/20/style/bill-ackman-dating-advice-young-men.html

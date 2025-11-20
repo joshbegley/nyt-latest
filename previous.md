@@ -1,3 +1,7 @@
+**Premier League winner Fuchs leaves Charlotte FC for Newport job**\
+`Fuchs, 39, won the 2016 Premier League title and the 2021 FA Cup with Leicester City.`\
+https://nytimes.com/athletic/6823202/2025/11/20/christian-fuchs-charlotte-fc-newport-county/
+
 **Trouble Dating? Bill Ackman Is Here to Help.**\
 `The billionaire investor proposed a four-word solution for young men’s romantic woes.`\
 https://nytimes.com/2025/11/20/style/bill-ackman-dating-advice-young-men.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/20/nyregion/justice-democrats-espaillat-avila-cheval
 **Wright: England 'not ready' for Black star like Bellingham**\
 `"If you are outspoken, Black, playing to that level, that frightens certain people," Wright said after criticism of Bellingham this week.`\
 https://nytimes.com/athletic/6823001/2025/11/20/jude-bellingham-england-ian-wright/
-
-**This report will be the last one until mid-December.**\
-`By Lydia DePillis and Colby Smith`\
-https://nytimes.com/live/2025/business/jobs-report-economy/this-report-will-be-the-last-one-until-mid-december
 
