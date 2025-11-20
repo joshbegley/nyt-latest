@@ -1,3 +1,11 @@
+**Inside a Liquidation Warehouse**\
+`What happens to all the stuff no one wants? We bought 450 pounds of mystery products at a liquidation warehouse to find out.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010535350/inside-a-liquidation-warehouse.html
+
+**September Jobs Report Injects More Uncertainty Into Fed’s December Decision**\
+`Policymakers at the central bank are at odds over the need to cut interest rates for a third straight meeting, as inflation picks up again and the labor market slows down.`\
+https://nytimes.com/2025/11/20/business/economy/jobs-fed-interest-rates.html
+
 **At This Event, Brides Traded Gowns Instead of Buying New Ones**\
 `A bridal swap in Brooklyn brought former brides and the newly engaged together to exchange dresses, veils and other accessories.`\
 https://nytimes.com/2025/11/20/fashion/weddings/brooklyn-bride-swap-wedding-dresses.html
