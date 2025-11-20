@@ -1,3 +1,7 @@
+**World Cup 2026 play-offs: Italy vs Northern Ireland, Jamaica learn path to finals**\
+`There are 22 nations competing for the six remaining World Cup spots via the play-offs, which will take place across the final week of March`\
+https://nytimes.com/athletic/6816798/2025/11/20/world-cup-2026-playoff-draw-europe-nations-when/
+
 **C.D.C. Changes Website to Reflect Kennedy’s Vaccine Skepticism**\
 `A previous version denied a link between vaccines and autism. It now echoes the doubts about that conclusion voiced by Health Secretary Robert F. Kennedy Jr.`\
 https://nytimes.com/2025/11/20/health/vaccine-autism-cdc-website.html
