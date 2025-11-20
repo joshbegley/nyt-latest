@@ -1,3 +1,7 @@
+**As part of Astros’ payroll reshuffling, Mauricio Dubón traded to Braves**\
+`Dubón, a two-time utility Gold Glove winner, brings defensive versatility to the Braves.`\
+https://nytimes.com/athletic/6822088/2025/11/19/mauricio-dubon-trade-astros-braves-mlb/
+
 **Angel City's Savy King unveils league-wide safety initiative for heart health**\
 `Players, coaches and staff across the league will take part in free CPR training.`\
 https://nytimes.com/athletic/6822204/2025/11/19/angel-city-savy-king-safety-initiative-heart-health/
