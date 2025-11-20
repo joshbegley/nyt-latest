@@ -1,3 +1,7 @@
+**Beef Biryani Tonight, Hojicha Cheesecake Pie Next Thursday**\
+`We lost it over this year’s crop of Thanksgiving pies. But first, a quick and comforting biryani made with ground beef.`\
+https://nytimes.com/2025/11/20/dining/beef-biryani-tonight-hojicha-cheesecake-pie-next-thursday.html
+
 **Forest's Hudson-Odoi 'in consideration' for Liverpool game, Chris Wood still out**\
 `Wood has not featured since the 3-0 defeat to Chelsea on October 18, in what proved to be Ange Postecoglou’s final game in charge.`\
 https://nytimes.com/athletic/6823378/2025/11/20/nottingham-forest-injury-news-hudson-odoi-wood/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/20/us/politics/trump-dick-cheney-funeral.html
 **Gattuso on Chiesa's Italy absence: 'It's his problem. Not ours'**\
 `"I call Chiesa. I call him before every international break," Gattuso said to Sky Italia at Thursday's draw for the World Cup play-offs.`\
 https://nytimes.com/athletic/6823360/2025/11/20/federico-chiesa-italy-gattuso-liverpool/
-
-**Inside a Liquidation Warehouse**\
-`What happens to all the stuff no one wants? We bought 450 pounds of mystery products at a liquidation warehouse to find out.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010535350/inside-a-liquidation-warehouse.html
 
