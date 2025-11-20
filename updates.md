@@ -1,3 +1,15 @@
+**U.S. Manufacturers to Benefit as G.E. Appliances Shifts Production**\
+`The company, now owned by a Chinese conglomerate, is investing $150 million in 18 American suppliers across 10 states.`\
+https://nytimes.com/2025/11/20/business/ge-appliances-us-production.html
+
+**Mamdani Urges D.S.A. Not to Endorse a Challenger to Jeffries**\
+`Mayor-elect Zohran Mamdani argued that an endorsement of a left-leaning ally, Chi Ossé, would hurt his efforts to secure mainstream Democratic support for his proposals.`\
+https://nytimes.com/2025/11/20/nyregion/mamdani-osse-dsa-endorsement.html
+
+**On Your List**\
+`Find everything you want to read and watch next.`\
+https://nytimes.com/interactive/2025/arts/read-watch-next-list.html
+
 **MLS 2026 schedule: Key dates, Messi spectacles and World Cup-related tweaks**\
 `Inter Miami's headliner of a season opener and stadium opener are big part the last full February-to-November MLS season`\
 https://nytimes.com/athletic/6824044/2025/11/20/mls-2026-schedule-key-dates-messi-playoffs-world-cup/

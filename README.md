@@ -1,40 +1,40 @@
-**U.S. Manufacturers to Benefit as G.E. Appliances Shifts Production**\
-`The company, now owned by a Chinese conglomerate, is investing $150 million in 18 American suppliers across 10 states.`\
-https://nytimes.com/2025/11/20/business/ge-appliances-us-production.html
+**How to watch Kings vs. Grizzlies: Time, TV, streaming**\
+`Find out how to watch the Sacramento Kings play the Memphis Grizzlies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6824276/2025/11/20/kings-vs-grizzlies-stream-how-to-watch-nov-20/
 
-**Mamdani Urges D.S.A. Not to Endorse a Challenger to Jeffries**\
-`Mayor-elect Zohran Mamdani argued that an endorsement of a left-leaning ally, Chi Ossé, would hurt his efforts to secure mainstream Democratic support for his proposals.`\
-https://nytimes.com/2025/11/20/nyregion/mamdani-osse-dsa-endorsement.html
+**The Bounce: Should the Rockets be top of the West?**\
+`Welcome to The Bounce, The Athletic's NBA newsletter.`\
+https://nytimes.com/athletic/6824100/2025/11/20/rockets-raptors-nba-standings-the-bounce/
 
-**MLS 2026 schedule: Key dates, Messi spectacles and World Cup-related tweaks**\
-`Inter Miami's headliner of a season opener and stadium opener are big part the last full February-to-November MLS season`\
-https://nytimes.com/athletic/6824044/2025/11/20/mls-2026-schedule-key-dates-messi-playoffs-world-cup/
+**How to watch Oilers vs. Lightning: Time, TV, streaming**\
+`Find out how to watch the Edmonton Oilers play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6824272/2025/11/20/oilers-vs-lightning-stream-how-to-watch-nov-20/
 
-**What’s Going On in This Graph? | Dec. 3, 2025**\
-`What do you notice about the global nuclear stockpile, including how it is distributed across the world and how it has changed over time?`\
-https://nytimes.com/2025/11/20/learning/whats-going-on-in-this-graph-dec-3-2025.html
+**How to watch Hawks vs. Spurs: Time, TV, streaming**\
+`Find out how to watch the Atlanta Hawks play the San Antonio Spurs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6824271/2025/11/20/hawks-vs-spurs-stream-how-to-watch-nov-20/
 
-**6 Books We Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://nytimes.com/2025/11/20/books/review/new-recommended-books.html
+**How to watch Kings vs. Sharks: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Kings play the San Jose Sharks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6824268/2025/11/20/kings-vs-sharks-stream-how-to-watch-nov-20/
 
-**What’s Going On in This Picture? | Dec. 1, 2025**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2025/11/20/learning/whats-going-on-in-this-picture-dec-1-2025.html
+**How to watch 76ers vs. Bucks: Time, TV, streaming**\
+`Find out how to watch the Philadelphia 76ers play the Milwaukee Bucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6824265/2025/11/20/76ers-vs-bucks-stream-how-to-watch-nov-20/
 
-**Stephen Anderson, Linguist Who Refuted Doctor Dolittle, Dies at 82**\
-`In “Doctor Dolittle’s Delusion,” he argued that language is a biological system unique to humans, despite the widespread belief to the contrary.`\
-https://nytimes.com/2025/11/20/science/stephen-anderson-dead.html
+**How to watch Senators vs. Ducks: Time, TV, streaming**\
+`Find out how to watch the Ottawa Senators play the Anaheim Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6824261/2025/11/20/senators-vs-ducks-stream-how-to-watch-nov-20/
 
-**Betting for (by) dummies: Two NFL get-right games and ... the Saints!?**\
-`It's your favorite humor column on betting! Jon Greenberg and Zac Jackson riff, rib and reason their way into NFL and CFB picks.`\
-https://nytimes.com/athletic/6823912/2025/11/20/football-betting-dummies-nfl-college-gators-seahawks-chiefs/
+**How to watch Kraken vs. Blackhawks: Time, TV, streaming**\
+`Find out how to watch the Seattle Kraken play the Chicago Blackhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6824263/2025/11/20/kraken-vs-blackhawks-stream-how-to-watch-nov-20/
 
-**Fantasy basketball hot topics of the week: Lebron's return, and Nae’Qwan Tomlin's breakout**\
-`Stan Son reviews the biggest NBA storylines, including Dillon Brooks' surge, through a fantasy basketball lens. `\
-https://nytimes.com/athletic/6823927/2025/11/20/fantasy-basketball-hot-topics-lebron-james/
+**How to watch Golden Knights vs. Mammoth: Time, TV, streaming**\
+`Find out how to watch the Vegas Golden Knights play the Utah Mammoth, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6824258/2025/11/20/golden-knights-vs-mammoth-stream-how-to-watch-nov-20/
 
-**On Your List**\
-`Find everything you want to read and watch next.`\
-https://nytimes.com/interactive/2025/arts/read-watch-next-list.html
+**How to watch Rangers vs. Avalanche: Time, TV, streaming**\
+`Find out how to watch the New York Rangers play the Colorado Avalanche, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6824256/2025/11/20/rangers-vs-avalanche-stream-how-to-watch-nov-20/
 
