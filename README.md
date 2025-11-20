@@ -1,3 +1,7 @@
+**Forest's Hudson-Odoi 'in consideration' for Liverpool game, Chris Wood still out**\
+`Wood has not featured since the 3-0 defeat to Chelsea on October 18, in what proved to be Ange Postecoglou’s final game in charge.`\
+https://nytimes.com/athletic/6823378/2025/11/20/nottingham-forest-injury-news-hudson-odoi-wood/
+
 **Map: 3.2-Magnitude Earthquake Shakes the San Francisco Bay Area**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/11/20/us/san-ramon-california-earthquake.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6823360/2025/11/20/federico-chiesa-italy-gattuso-li
 **Inside a Liquidation Warehouse**\
 `What happens to all the stuff no one wants? We bought 450 pounds of mystery products at a liquidation warehouse to find out.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010535350/inside-a-liquidation-warehouse.html
-
-**September Jobs Report Injects More Uncertainty Into Fed’s December Decision**\
-`Policymakers at the central bank are at odds over the need to cut interest rates for a third straight meeting, as inflation picks up again and the labor market slows down.`\
-https://nytimes.com/2025/11/20/business/economy/jobs-fed-interest-rates.html
 

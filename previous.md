@@ -1,3 +1,11 @@
+**Map: 3.2-Magnitude Earthquake Shakes the San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/11/20/us/san-ramon-california-earthquake.html
+
+**The World Cup's intercontinental play-off: How does it work and who are the favourites?**\
+`The draw for FIFA's new play-off tournament has been made, featuring six teams vying for two qualification places`\
+https://nytimes.com/athletic/6822871/2025/11/20/world-cup-intercontinental-playoffs-draw-analysis/
+
 **College football picks ATS: Georgia Tech aims for ACC title game berth**\
 `Week 13 features one big game in each of the four power conferences, each with conference title game or CFP stakes.`\
 https://nytimes.com/athletic/6818340/2025/11/20/college-football-picks-spread-oklahoma-byu-georgia-tech/
@@ -29,12 +37,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010535350/inside-a-liq
 **September Jobs Report Injects More Uncertainty Into Fed’s December Decision**\
 `Policymakers at the central bank are at odds over the need to cut interest rates for a third straight meeting, as inflation picks up again and the labor market slows down.`\
 https://nytimes.com/2025/11/20/business/economy/jobs-fed-interest-rates.html
-
-**At This Event, Brides Traded Gowns Instead of Buying New Ones**\
-`A bridal swap in Brooklyn brought former brides and the newly engaged together to exchange dresses, veils and other accessories.`\
-https://nytimes.com/2025/11/20/fashion/weddings/brooklyn-bride-swap-wedding-dresses.html
-
-**Three of the Best Socks We Tried**\
-`While lousy socks tap into a host of pet peeves and sensory “icks,” an excellent pair can spark real delight.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010535308/three-of-the-best-socks-we-tried.html
 

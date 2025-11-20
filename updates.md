@@ -1,3 +1,11 @@
+**Map: 3.2-Magnitude Earthquake Shakes the San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/11/20/us/san-ramon-california-earthquake.html
+
+**The World Cup's intercontinental play-off: How does it work and who are the favourites?**\
+`The draw for FIFA's new play-off tournament has been made, featuring six teams vying for two qualification places`\
+https://nytimes.com/athletic/6822871/2025/11/20/world-cup-intercontinental-playoffs-draw-analysis/
+
 **College football picks ATS: Georgia Tech aims for ACC title game berth**\
 `Week 13 features one big game in each of the four power conferences, each with conference title game or CFP stakes.`\
 https://nytimes.com/athletic/6818340/2025/11/20/college-football-picks-spread-oklahoma-byu-georgia-tech/
