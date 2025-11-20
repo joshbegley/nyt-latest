@@ -1,3 +1,11 @@
+**Jimmy Kimmel Prepares for Hurricane Epstein**\
+`Kimmel wondered if President Trump might “pull a Taylor Swift and give us ‘The Epstein Files: Donnie’s Version.’”`\
+https://nytimes.com/2025/11/20/arts/television/jimmy-kimmel-prepares-for-hurricane-epstein.html
+
+**Word of the Day: revitalize**\
+`This word has appeared in 228 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/20/learning/word-of-the-day-revitalize.html
+
 **Operator Who Crashed Ferry Off South Korea Was Looking at His Phone**\
 `The operator and two other officers were charged with gross negligence after the ferry ran aground on Wednesday carrying 267 people.`\
 https://nytimes.com/2025/11/20/world/asia/south-korea-ferry-crash.html
