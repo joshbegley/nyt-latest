@@ -1,3 +1,7 @@
+**Operator Who Crashed Ferry Off South Korea Was Looking at His Phone**\
+`The operator and two other officers were charged with gross negligence after the ferry ran aground on Wednesday carrying 267 people.`\
+https://nytimes.com/2025/11/20/world/asia/south-korea-ferry-crash.html
+
 **Ex-Mayor Is Sentenced to Life for Human Trafficking Tied to Southeast Asia Scam Centers**\
 `A court in the Philippines convicted Alice Guo for trafficking people to a compound that officials have linked to online scams and organized crime.`\
 https://nytimes.com/2025/11/20/world/asia/alice-guo-life-sentence-philippines.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6819838/2025/11/20/rob-edwards-wolves-middlesbrough
 **AFCON FPL planning guide: How to make the most of your five free transfers**\
 `AFCON 2025 is set to be a defining stretch of the FPL season, and managers who use the extra transfers optimally will be the ones to profit`\
 https://nytimes.com/athletic/6817577/2025/11/20/fantasy-premier-league-afcon-salah-mbeumo/
-
-**Explained: Premier League 'anchoring', 'salary cap' and what Friday's vote means for your club**\
-`Premier League clubs will take part in three votes on Friday that will decide whether new regulations are brought in`\
-https://nytimes.com/athletic/6820738/2025/11/20/premier-league-anchoring-salary-cap-psr/
 
