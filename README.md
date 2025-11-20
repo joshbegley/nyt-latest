@@ -1,3 +1,11 @@
+**Justice Dept. Appears to Be Examining Potential Leaks in Schiff Inquiry**\
+`A subpoena issued by the F.B.I. suggests the Justice Department may be seeking to identify officials who might have shared information about the inquiry into Senator Adam Schiff in an unauthorized way.`\
+https://nytimes.com/2025/11/20/us/justice-dept-leaks-schiff-inquiry.html
+
+**Appeals Court Blocks Release of Hundreds of Chicago-Area Immigration Detainees**\
+`The order temporarily halts a federal judge’s call to release several hundred people arrested during the Trump administration’s immigration crackdown in Illinois.`\
+https://nytimes.com/2025/11/20/us/chicago-immigration-seventh-circuit.html
+
 **U.S. Ran a War Game on Ousting Maduro. Venezuela Fell Into Chaos.**\
 `An official U.S. government exercise during President Trump’s first term forecast turmoil and potential violence in a post-Maduro Venezuela.`\
 https://nytimes.com/2025/11/20/us/politics/venezuela-maduro-fallout-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/20/us/charges-drivers-chicago-immigration-clash.html
 **NFL best bets Week 12: Rams, Packers will roll**\
 `After a 3-1 week, Austin Mock has two best bets ahead of NFL Week 12. Can we keep it going? Stay tuned for more added through the weekend.`\
 https://nytimes.com/athletic/6823901/2025/11/20/nfl-best-bets-week-12-packers-rams/
-
-**Home Prices on a Warming Planet**\
-`New research shows that climate change is beginning to erode home prices in the most disaster-prone areas of the United States. Here’s what to know.`\
-https://nytimes.com/2025/11/20/climate/home-prices-climate-change-insurance.html
-
-**'This is good for me': Taylor Ward reflects on decade in Anaheim, trade to Baltimore**\
-`"I had a wonderful time being in Anaheim, playing in Anaheim. … It's something I'll cherish for the rest of my life," Ward said.`\
-https://nytimes.com/athletic/6823887/2025/11/20/taylor-ward-reflects-trade-angels-orioles/
 
