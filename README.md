@@ -1,3 +1,7 @@
+**Fowler alleges racism from Montpellier team-mates after being given bananas instead of flowers**\
+`Writing in her autobiography Bloom, Fowler claims she and team-mate Ashleigh Weerden were both subjected to the alleged incident.`\
+https://nytimes.com/athletic/6819690/2025/11/20/mary-fowler-montpellier-racism-allegations/
+
 **World Cup 2026 play-offs: Italy vs Northern Ireland, Jamaica learn path to finals**\
 `There are 22 nations competing for the six remaining World Cup spots via the play-offs, which will take place across the final week of March`\
 https://nytimes.com/athletic/6816798/2025/11/20/world-cup-2026-playoff-draw-europe-nations-when/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6822269/2025/11/20/philadelphia-eagles-fred-johnson
 **Bucks' Kevin Porter Jr. on track for early December return after 'first surgery ever'**\
 `Working his way back from meniscus surgery, Porter is excited about pairing with breakout guard Ryan Rollins upon his return.`\
 https://nytimes.com/athletic/6821627/2025/11/20/bucks-kevin-porter-jr-injury-return-timetable/
-
-**Power and Wealth in New York**\
-`We’re looking at two local stories that have national implications.`\
-https://nytimes.com/2025/11/20/briefing/power-and-wealth-in-new-york.html
 
