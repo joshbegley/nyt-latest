@@ -1,3 +1,7 @@
+**Our Depressing Vaccine Future Laid Bare on the C.D.C. Website**\
+`Kennedy has a rhetorical advantage in that his deceptions can be definitive while scientific honesty has to come with caveats.`\
+https://nytimes.com/2025/11/20/opinion/cdc-autism-vaccine-website.html
+
 **Brentford's Carvalho sustains ACL injury, will miss rest of the season**\
 `The 23-year-old will undergo surgery and has already begun his rehabilitation at the club.`\
 https://nytimes.com/athletic/6823854/2025/11/20/fabio-carvalho-brentford-acl-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/20/dining/your-thanksgiving-countdown-starts-now.htm
 **Democrats Raise Concerns Over Allied Curbs on Intelligence Sharing**\
 `Britain’s limits on sharing information reflect growing unease among partner nations over the legality of the U.S. strikes on boats purportedly carrying drugs.`\
 https://nytimes.com/2025/11/20/us/politics/democrats-allies-intelligence-sharing.html
-
-**Trump Elevates Once-Fringe Meme Makers to the Mainstream**\
-`Right-wing users have tapped A.I. tools to promote President Trump’s agenda. He took notice.`\
-https://nytimes.com/2025/11/20/technology/trump-ai-memes.html
 
