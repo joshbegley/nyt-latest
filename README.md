@@ -1,3 +1,11 @@
+**As part of Astros’ payroll reshuffling, Mauricio Dubón traded to Braves**\
+`HOUSTON — Astros owner Jim Crane is wary of crossing the luxury tax threshold this winter, according to multiple team sources, even though Houston intends to address its depleted starting rotation and perhaps add another left-handed bat.`\
+https://nytimes.com/athletic/6822088/2025/11/19/mauricio-dubon-trade-astros-braves-mlb/
+
+**Union fires back at Manfred's 'extremely revealing' defense of rogue agent**\
+`The commissioner positioned his communications with agent Jim Murray in 2020 as routine. The MLBPA shot back that they were anything but.`\
+https://nytimes.com/athletic/6822093/2025/11/19/rob-manfred-owners-meetings-labor-mlbpa-jim-murray/
+
 **Place for a Castle**\
 `Adam Wagner loves crosswords as much as the next guy.`\
 https://nytimes.com/2025/11/19/crosswords/daily-puzzle-2025-11-20.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6822006/2025/11/19/jason-kidd-mavericks-coach-knick
 **Tiny Love Stories: ‘Dating Straight Boys’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/11/19/style/tiny-modern-love-stories-dating-straight-boys.html
-
-**Florida Lawmaker Stole FEMA Funds for House Campaign, Prosecutors Say**\
-`Representative Sheila Cherfilus-McCormick misused $5 million in Covid-related funds during the pandemic in part to finance her campaign, according to the Justice Department.`\
-https://nytimes.com/2025/11/19/us/cherfilus-mccormick-fema-florida-indictment.html
-
-**Nvidia Earnings Fuel Rally in Global Technology Stocks**\
-`The chipmaker’s profit surge and strong revenue forecast helped to ease fears that spending on A.I. infrastructure might be outpacing demand.`\
-https://nytimes.com/2025/11/19/business/stocks-nvidia-earnings.html
 
