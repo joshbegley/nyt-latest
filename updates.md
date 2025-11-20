@@ -1,3 +1,7 @@
+**Must-See Moments From the N.B.A.**\
+`On Wednesday, Nikola Vucevic saved the Chicago Bulls, the New York Knicks earned their first road win of the season, and the Toronto Raptors stayed hot against the Philadelphia 76ers.`\
+https://nytimes.com/video/sports/basketball/100000010535088/must-see-moments-from-the-nba.html
+
 **How to watch Appalachian State vs. West Virginia women's basketball: Time, TV, streaming**\
 `Find out how to watch the Appalachian State Mountaineers play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6822752/2025/11/20/appalachian-state-vs-west-virginia-stream-how-to-watch-nov-20/
