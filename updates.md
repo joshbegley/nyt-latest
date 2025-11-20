@@ -1,3 +1,15 @@
+**Angel City's Savy King unveils league-wide safety initiative for heart health**\
+`Players, coaches and staff across the league will take part in free CPR training.`\
+https://nytimes.com/athletic/6822204/2025/11/19/angel-city-savy-king-safety-initiative-heart-health/
+
+**As part of Astros’ payroll reshuffling, Mauricio Dubón traded to Braves**\
+`HOUSTON — Astros owner Jim Crane is wary of crossing the luxury tax threshold this winter, according to multiple team sources, even though Houston intends to address its depleted starting rotation and perhaps add another left-handed bat.`\
+https://nytimes.com/athletic/6822088/2025/11/19/mauricio-dubon-trade-astros-braves-mlb/
+
+**Union fires back at Rob Manfred's 'extremely revealing' defense of rogue agent**\
+`The commissioner positioned his communications with agent Jim Murray in 2020 as routine. The MLBPA shot back that they were anything but.`\
+https://nytimes.com/athletic/6822093/2025/11/19/rob-manfred-owners-meetings-labor-mlbpa-jim-murray/
+
 **Place for a Castle**\
 `Adam Wagner loves crosswords as much as the next guy.`\
 https://nytimes.com/2025/11/19/crosswords/daily-puzzle-2025-11-20.html
