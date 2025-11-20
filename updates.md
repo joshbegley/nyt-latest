@@ -1,3 +1,11 @@
+**Trump and Mamdani Will Meet at White House on Friday**\
+`The meeting between Zohran Mamdani, the mayor-elect of New York City, and President Trump will come after the two men have fiercely attacked one another.`\
+https://nytimes.com/2025/11/19/nyregion/trump-mamdani-white-house-meeting.html
+
+**What Adam Lowry's 5-year, $25 million extension means for the Jets and the team's captain**\
+`The deal lets Lowry cement his legacy as a Jet, with a chance to start and finish his career with the team that drafted him.`\
+https://nytimes.com/athletic/6821505/2025/11/19/adam-lowry-jets-agree-on-5-year-25-million-extension/
+
 **Saudi Arabia, Once Shunned, Has Corporate Titans Swooning for Deals**\
 `Some of the most prominent U.S. executives gathered at the Kennedy Center for an event promoting deal-making with the oil-rich kingdom.`\
 https://nytimes.com/2025/11/19/business/saudi-investment-forum-kennedy-center.html

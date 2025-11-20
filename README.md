@@ -1,3 +1,7 @@
+**Place for a Castle**\
+`Adam Wagner loves crosswords as much as the next guy.`\
+https://nytimes.com/2025/11/19/crosswords/daily-puzzle-2025-11-20.html
+
 **Trump and Mamdani Will Meet at White House on Friday**\
 `The meeting between Zohran Mamdani, the mayor-elect of New York City, and President Trump will come after the two men have fiercely attacked one another.`\
 https://nytimes.com/2025/11/19/nyregion/trump-mamdani-white-house-meeting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/19/us/cherfilus-mccormick-fema-florida-indictment.ht
 **Nvidia Earnings Fuel Rally in Global Technology Stocks**\
 `The chipmaker’s profit surge and strong revenue forecast helped to ease fears that spending on A.I. infrastructure might be outpacing demand.`\
 https://nytimes.com/2025/11/19/business/stocks-nvidia-earnings.html
-
-**Braves re-sign closer Raisel Iglesias to one-year, $16 million deal**\
-`The 35-year-old reliever returns for a fifth season with the Braves.`\
-https://nytimes.com/athletic/6822005/2025/11/19/raisel-iglesias-atlanta-braves-contract/
 
