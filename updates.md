@@ -1,3 +1,7 @@
+**With Adam Lowry extension Jets go all-in on a player, a core, and an era**\
+`The Winnipeg Jets are all in on Adam Lowry. They need to be all in on their contention window, too.`\
+https://nytimes.com/athletic/6821506/2025/11/20/jets-adam-lowry-extension/
+
 **Birmingham City unveil plans for new 62,000-capacity stadium**\
 `The proposed design for the 62,000 capacity ground includes twelve industrial-style chimneys to mimic the history of the city. `\
 https://nytimes.com/athletic/6823007/2025/11/20/birmingham-city-new-stadium/
