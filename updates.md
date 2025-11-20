@@ -1,3 +1,11 @@
+**Elias Pettersson has been better for the Canucks, but there's more to be done**\
+`Breaking down Pettersson's promising signs of progress and the areas in which he still has another level to reach.`\
+https://nytimes.com/athletic/6822467/2025/11/20/canucks-elias-pettersson-better-centre/
+
+**61 Hot Takes to Fight About at Thanksgiving**\
+`Who’s cooking, and who’s cooked?`\
+https://nytimes.com/interactive/2025/11/20/dining/thanksgiving-hot-takes.html
+
 **From Burns' leg stump to Harmison's wide: How the first ball of the Ashes can set the tone**\
 `The memory of Michael Slater carving through point or the ball whistling past Justin Langer's nose also endure from recent Ashes series`\
 https://nytimes.com/athletic/6804243/2025/11/20/ashes-england-australia-harmison-burns-slater-hussain/
