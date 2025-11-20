@@ -1,3 +1,7 @@
+**Ukraine Searches for Strike Survivors as Peace Plan Is Floated**\
+`The Trump administration has floated a 28-point peace plan to end Russia’s war in Ukraine as rescue crews continued to search for survivors of a deadly Russian strike in western Ukraine.`\
+https://nytimes.com/video/world/europe/100000010535408/ukraine-russia-usa-plan-ternopil.html
+
 **Beef Biryani Tonight, Hojicha Cheesecake Pie Next Thursday**\
 `We lost it over this year’s crop of Thanksgiving pies. But first, a quick and comforting biryani made with ground beef.`\
 https://nytimes.com/2025/11/20/dining/beef-biryani-tonight-hojicha-cheesecake-pie-next-thursday.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000010533350/when-tenderness-and-technolog
 **Trump Was Not Invited to Cheney’s Memorial Service**\
 `Former Vice President Dick Cheney, a once-powerful Republican, turned on Mr. Trump last year by announcing he would vote for Vice President Kamala Harris.`\
 https://nytimes.com/2025/11/20/us/politics/trump-dick-cheney-funeral.html
-
-**Gattuso on Chiesa's Italy absence: 'It's his problem. Not ours'**\
-`"I call Chiesa. I call him before every international break," Gattuso said to Sky Italia at Thursday's draw for the World Cup play-offs.`\
-https://nytimes.com/athletic/6823360/2025/11/20/federico-chiesa-italy-gattuso-liverpool/
 

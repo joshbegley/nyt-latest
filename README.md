@@ -1,3 +1,31 @@
+**How to watch Iowa State vs. Drake women's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa State Cyclones play the Drake Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6823522/2025/11/20/iowa-state-vs-drake-stream-how-to-watch-nov-20/
+
+**How to watch Bucknell vs. St. John's men's basketball: Time, TV, streaming**\
+`Find out how to watch the Bucknell Bison play the St. John's Red Storm, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6823520/2025/11/20/bucknell-vs-st-john-s-stream-how-to-watch-nov-20/
+
+**How to watch Bethune-Cookman vs. Maryland women's basketball: Time, TV, streaming**\
+`Find out how to watch the Bethune-Cookman Wildcats play the Maryland Terrapins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6823517/2025/11/20/bethune-cookman-vs-maryland-stream-how-to-watch-nov-20/
+
+**How to watch Eastern Illinois vs. Michigan State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Eastern Illinois Panthers play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6823518/2025/11/20/eastern-illinois-vs-michigan-state-stream-how-to-watch-nov-20/
+
+**How to watch Tennessee State vs. Tennessee men's basketball: Time, TV, streaming**\
+`Find out how to watch the Tennessee State Tigers play the Tennessee Volunteers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6823514/2025/11/20/tennessee-state-vs-tennessee-stream-how-to-watch-nov-20/
+
+**How to watch Memphis vs. Purdue men's basketball: Time, TV, streaming**\
+`Find out how to watch the Memphis Tigers play the Purdue Boilermakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6823511/2025/11/20/memphis-vs-purdue-stream-how-to-watch-nov-20/
+
+**How to watch North Carolina vs. N.C. A&T women's basketball: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the North Carolina A&T Aggies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6823509/2025/11/20/north-carolina-vs-n-c-a-t-stream-how-to-watch-nov-20/
+
 **Ukraine Searches for Strike Survivors as Peace Plan Is Floated**\
 `The Trump administration has floated a 28-point peace plan to end Russia’s war in Ukraine as rescue crews continued to search for survivors of a deadly Russian strike in western Ukraine.`\
 https://nytimes.com/video/world/europe/100000010535408/ukraine-russia-usa-plan-ternopil.html
@@ -9,32 +37,4 @@ https://nytimes.com/2025/11/20/dining/beef-biryani-tonight-hojicha-cheesecake-pi
 **Forest's Hudson-Odoi 'in consideration' for Liverpool game, Chris Wood still out**\
 `Wood has not featured since the 3-0 defeat to Chelsea on October 18, in what proved to be Ange Postecoglou’s final game in charge.`\
 https://nytimes.com/athletic/6823378/2025/11/20/nottingham-forest-injury-news-hudson-odoi-wood/
-
-**Map: 3.2-Magnitude Earthquake Shakes the San Francisco Bay Area**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/11/20/us/san-ramon-california-earthquake.html
-
-**The World Cup's intercontinental play-off: How does it work and who are the favourites?**\
-`The draw for FIFA's new play-off tournament has been made, featuring six teams vying for two qualification places`\
-https://nytimes.com/athletic/6822871/2025/11/20/world-cup-intercontinental-playoffs-draw-analysis/
-
-**College football picks ATS: Georgia Tech aims for ACC title game berth**\
-`Week 13 features one big game in each of the four power conferences, each with conference title game or CFP stakes.`\
-https://nytimes.com/athletic/6818340/2025/11/20/college-football-picks-spread-oklahoma-byu-georgia-tech/
-
-**Fantasy football injuries, inactives, cheat sheet Week 12**\
-`Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 12 player rankings and more.`\
-https://nytimes.com/athletic/6821439/2025/11/20/fantasy-football-injuries-inactives-cheat-sheet-week-12/
-
-**Ukraine and Europe Chafe at Being Excluded From U.S.-Russian Peace Plan**\
-`Some in Kyiv expressed confusion over the Trump administration’s multiple diplomatic tracks as Washington tries to revive negotiations.`\
-https://nytimes.com/2025/11/20/world/europe/ukraine-russia-trump-peace-talks.html
-
-**When Tenderness and Technology Collide**\
-`The new collaboration between Oklou and FKA twigs moves from the warmly naturalistic to the icily digital, according to our critic.`\
-https://nytimes.com/video/podcasts/100000010533350/when-tenderness-and-technology-collide.html
-
-**Trump Was Not Invited to Cheney’s Memorial Service**\
-`Former Vice President Dick Cheney, a once-powerful Republican, turned on Mr. Trump last year by announcing he would vote for Vice President Kamala Harris.`\
-https://nytimes.com/2025/11/20/us/politics/trump-dick-cheney-funeral.html
 

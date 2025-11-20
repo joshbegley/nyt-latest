@@ -1,3 +1,7 @@
+**Ukraine Searches for Strike Survivors as Peace Plan Is Floated**\
+`The Trump administration has floated a 28-point peace plan to end Russia’s war in Ukraine as rescue crews continued to search for survivors of a deadly Russian strike in western Ukraine.`\
+https://nytimes.com/video/world/europe/100000010535408/ukraine-russia-usa-plan-ternopil.html
+
 **Beef Biryani Tonight, Hojicha Cheesecake Pie Next Thursday**\
 `We lost it over this year’s crop of Thanksgiving pies. But first, a quick and comforting biryani made with ground beef.`\
 https://nytimes.com/2025/11/20/dining/beef-biryani-tonight-hojicha-cheesecake-pie-next-thursday.html
