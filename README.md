@@ -1,3 +1,15 @@
+**Girl Describes Hiding From Kidnappers at a School in Nigeria**\
+`The girl hid in a toilet; another managed to sneak away. Security forces are still trying to rescue the 24 girls who were abducted in northwestern Nigeria.`\
+https://nytimes.com/2025/11/20/world/africa/nigeria-school-kidnapping-escape.html
+
+**Kalle Rovanpera, a Rally Champion, Hopes to Make a Different Leap**\
+`He is leaving the sport to jump into open-wheel racing, with an eye on Formula 1.`\
+https://nytimes.com/2025/11/20/sports/f1-kalle-rovanpera-rally-champion.html
+
+**The A.I. Boom Has Found Another Gear. Why Can’t People Shake Their Worries?**\
+`It is a time of superlatives in the tech industry, with historic profits, stock prices and deal prices. It’s enough to make some people very nervous.`\
+https://nytimes.com/2025/11/20/technology/ai-stock-boom-nvidia.html
+
 **David Bellos, 80, Dies; Wrestled French Wordplay Into English**\
 `He translated nearly 30 books, including novels by Georges Perec, a master of linguistic games, and Ismail Kadare.`\
 https://nytimes.com/2025/11/20/books/david-bellos-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6823940/2025/11/20/anthony-davis-trade-mavericks-op
 **Short on Cash, D.N.C. Took Out $15 Million Loan in October**\
 `The move, unusual for a year without a midterm or presidential election, is the latest sign of financial distress for the Democratic Party.`\
 https://nytimes.com/2025/11/20/us/politics/dnc-loan-democrats.html
-
-**A Hype Restaurant Worth the Hype, Book Club Dining and More Reader Questions**\
-`Becky Hughes, our resident restaurant advice columnist, answers three queries in this week’s Where to Eat.`\
-https://nytimes.com/2025/11/20/dining/a-hype-restaurant-worth-the-hype-book-club-dining-and-more-reader-questions.html
-
-**NFL Week 12 model-projected point spreads and totals for every game**\
-`Austin Mock's NFL model has projected point spreads and totals for Week 12 games.`\
-https://nytimes.com/athletic/6824318/2025/11/20/nfl-week-12-projected-scores-model-point-spreads-totals/
-
-**More Rain on the Way to Los Angeles, Already Saturated by Recent Storms**\
-`The next storm is not expected to bring as much rain as the one last week, but flooding is a concern.`\
-https://nytimes.com/2025/11/20/weather/southern-california-rain-forecast.html
 
