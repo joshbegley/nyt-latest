@@ -1,3 +1,7 @@
+**Ex-Mayor Is Sentenced to Life for Human Trafficking Tied to Southeast Asia Scam Centers**\
+`A court in the Philippines convicted Alice Guo for trafficking people to a compound that officials have linked to online scams and organized crime.`\
+https://nytimes.com/2025/11/20/world/asia/alice-guo-life-sentence-philippines.html
+
 **The New York Times in Print for Thursday, Nov. 20, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/20/todays-new-york-times
