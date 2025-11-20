@@ -1,3 +1,15 @@
+**Cooper Flagg to miss first game of career Wednesday against New York**\
+`DALLAS — For the first time this season, the Dallas Mavericks won’t have Cooper Flagg in the lineup.`\
+https://nytimes.com/athletic/6821482/2025/11/19/ooper-flagg-status-illness-mavericks-nba/
+
+**NBA eyes European league featuring elite clubs like Real Madrid, Barcelona**\
+`Deputy commissioner Mark Tatum says the NBA is exploring a Europe-based league with potential participation from leading EuroLeague teams.`\
+https://nytimes.com/athletic/6821640/2025/11/19/nba-euroleague-expansion-real-madrid-barcelona/
+
+**The World’s Largest Afro Took Three People to Measure It**\
+`With an Afro that is more than six feet in circumference, Jessica Martinez set a new Guinness record.`\
+https://nytimes.com/2025/11/19/style/largest-afro-guinness-world-record.html
+
 **NASA Releases Images of Comet 3I/ATLAS: It ‘Doesn’t Look Like a Spacecraft’**\
 `With the government reopened, the space agency at last released pictures captured by a fleet of government spacecraft of an object that came from beyond our solar system.`\
 https://nytimes.com/2025/11/19/science/comet-3i-atlas-nasa-mars.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/19/technology/yann-lecun-ai-scientist-meta.html
 **Are These Buzzy New N.Y.C. Restaurants Worth a Visit?**\
 `This fall, The Times’s Food contributor Luke Fortney checked in on three of New York City’s biggest restaurant openings, all a few blocks apart in the West Village.`\
 https://nytimes.com/video/dining/100000010533040/are-these-buzzy-new-nyc-restaurants-worth-a-visit.html
-
-**Justin Bieber Got Some Grammys Respect (But Not Enough)**\
-`Will Justin Bieber finally get the institutional respect he’s been chasing at the Grammys? Jon Caramanica and Joe Coscarelli discuss why “SWAG” and “Daisies” aren’t getting all the flowers they deserve.`\
-https://nytimes.com/video/podcasts/100000010531341/justin-bieber-got-some-grammys-respect-but-not-enough.html
-
-**Pumpkin Cheesecake**\
-`This dessert delivers all the warm spices of pumpkin pie along with the tangy creaminess of cheesecake.`\
-https://nytimes.com/video/dining/100000010531463/pumpkin-cheesecake.html
-
-**Newly Discovered Bach Pieces Are the Fruits of Decades of Detective Work**\
-`A pair of organ works that scholars believe were written by a teenage Johann Sebastian Bach were premiered in Leipzig this week and added to the composer’s official catalog.`\
-https://nytimes.com/2025/11/19/arts/music/bach-newly-discovered-works.html
 
