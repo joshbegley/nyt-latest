@@ -1,3 +1,11 @@
+**Home Prices on a Warming Planet**\
+`New research shows that climate change is beginning to erode home prices in the most disaster-prone areas of the United States. Here’s what to know.`\
+https://nytimes.com/2025/11/20/climate/home-prices-climate-change-insurance.html
+
+**'This is good for me': Taylor Ward reflects on decade in Anaheim, trade to Baltimore**\
+`"I had a wonderful time being in Anaheim, playing in Anaheim. … It's something I'll cherish for the rest of my life," Ward said.`\
+https://nytimes.com/athletic/6823887/2025/11/20/taylor-ward-reflects-trade-angels-orioles/
+
 **The Moon Was an Inside Job**\
 `New research suggests that Theia, the object whose collision with Earth is theorized to have caused the formation of the moon, came from closer to the sun.`\
 https://nytimes.com/2025/11/20/science/moon-collision-earth-theia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/20/weather/thanksgiving-forecast-snow-cold.html
 **Trump Will Send U.S. Official to Global Summit After All**\
 `The decision to have an acting ambassador attend the Group of 20 in South Africa came after the president said the United States would boycott.`\
 https://nytimes.com/2025/11/20/world/africa/south-africa-trump-g20-turnaround.html
-
-**Fire Breaks Out at COP30 Climate Talks in Brazil**\
-`Delegates were evacuated from the conference venue, where thousands from nearly 200 countries had gathered.`\
-https://nytimes.com/2025/11/20/climate/fire-cop30-belem-climate.html
-
-**Louvre’s Embattled Leader Defends Contested Renovation Plan, and Her Tenure**\
-`In one of her very few interviews since the museum heist, Laurence des Cars said the plan would increase much-needed security, but critics say it is too focused on new construction.`\
-https://nytimes.com/2025/11/20/world/europe/louvre-director-theft-renovation.html
 
