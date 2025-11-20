@@ -1,3 +1,11 @@
+**Indonesia’s Mount Semeru Erupts and Rains Ash on Villages**\
+`Mount Semeru on the island of Java is one of the Indonesia’s most active volcanoes. Its latest eruption forced hundreds to flee their homes.`\
+https://nytimes.com/2025/11/20/world/asia/indonesia-mount-semeru-eruption.html
+
+**How to win in Australia: Commit to a plan, seize on any luck and 'push them to dark places'**\
+`Dale Steyn was a member of the South Africa side who won Down Under in 2008-09, the first team in 16 years to beat Australia on home soil`\
+https://nytimes.com/athletic/6816814/2025/11/20/ashes-australia-england-steyn/
+
 **Despite loss, Warriors finish road trip on high note with team's renewed camaraderie**\
 `Warriors veterans Jimmy Butler and Steph Curry missed Wednesday's game but coached and offered advice to their younger teammates.`\
 https://nytimes.com/athletic/6822297/2025/11/20/warriors-road-trip-losses-camaraderie/
