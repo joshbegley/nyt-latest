@@ -1,8 +1,12 @@
+**More Rain on the Way to Los Angeles, Already Saturated by Recent Storms**\
+`The next storm is not expected to bring as much rain as the one last week, but flooding is a concern.`\
+https://nytimes.com/2025/11/20/weather/southern-california-rain-forecast.html
+
 **Israel Premier-Tech rebrands to NSN Cycling Team for 2026**\
 `The cycling team were the subject of many pro-Palestine protests during the 2025 season, particularly during the Vuelta a Espana`\
 https://nytimes.com/athletic/6824284/2025/11/20/israel-premier-tech-rebrand-nsn-2026/
 
-**The F.C.C. chair questioned the BBC over Trump speech edits.**\
+**The F.C.C. chair questioned the BBC over edits to a Trump speech.**\
 `By David McCabe`\
 https://nytimes.com/live/2025/11/20/us/trump-news-epstein-cheney/the-fcc-chair-questioned-the-bbc-over-trump-speech-edits
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6823280/2025/11/20/f1-crashgate-felipe-massa-latest
 **FBI fugitive, ex-Olympic snowboarder Ryan Wedding faces new charges**\
 `The alleged drug kingpin faces charges of witness intimidation, including murder.`\
 https://nytimes.com/athletic/6823560/2025/11/20/fbi-ryan-wedding-charges-murder-witness/
-
-**How to watch Kings vs. Grizzlies: Time, TV, streaming**\
-`Find out how to watch the Sacramento Kings play the Memphis Grizzlies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6824276/2025/11/20/kings-vs-grizzlies-stream-how-to-watch-nov-20/
 
