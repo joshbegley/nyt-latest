@@ -1,3 +1,15 @@
+**From Burns' leg stump to Harmison's wide: How the first ball of the Ashes can set the tone**\
+`The memory of Michael Slater carving through point or the ball whistling past Justin Langer's nose also endure from recent Ashes series`\
+https://nytimes.com/athletic/6804243/2025/11/20/ashes-england-australia-harmison-burns-slater-hussain/
+
+**World Cup play-off draw analysis: Will Italy and other hopefuls be happy with their path?**\
+`The 16 remaining European World Cup hopefuls now know their play-off fate - but will they be happy with it?`\
+https://nytimes.com/athletic/6822998/2025/11/20/world-cup-play-off-draw-analysis/
+
+**After 167 Years in New York, a Priceless Coin Collection Heads to Toledo**\
+`The doubloons, dollars and denarii of the American Numismatic Society will leave their overlooked home in Manhattan for a more welcoming headquarters on the campus of the Toledo Museum of Art.`\
+https://nytimes.com/2025/11/20/arts/design/american-numismatic-society-coins-toledo.html
+
 **What to know about the report.**\
 `By Lydia DePillis`\
 https://nytimes.com/live/2025/business/jobs-report-economy/what-to-know-about-the-report

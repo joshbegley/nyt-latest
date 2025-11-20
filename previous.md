@@ -1,3 +1,15 @@
+**From Burns' leg stump to Harmison's wide: How the first ball of the Ashes can set the tone**\
+`The memory of Michael Slater carving through point or the ball whistling past Justin Langer's nose also endure from recent Ashes series`\
+https://nytimes.com/athletic/6804243/2025/11/20/ashes-england-australia-harmison-burns-slater-hussain/
+
+**World Cup play-off draw analysis: Will Italy and other hopefuls be happy with their path?**\
+`The 16 remaining European World Cup hopefuls now know their play-off fate - but will they be happy with it?`\
+https://nytimes.com/athletic/6822998/2025/11/20/world-cup-play-off-draw-analysis/
+
+**After 167 Years in New York, a Priceless Coin Collection Heads to Toledo**\
+`The doubloons, dollars and denarii of the American Numismatic Society will leave their overlooked home in Manhattan for a more welcoming headquarters on the campus of the Toledo Museum of Art.`\
+https://nytimes.com/2025/11/20/arts/design/american-numismatic-society-coins-toledo.html
+
 **What to know about the report.**\
 `By Lydia DePillis`\
 https://nytimes.com/live/2025/business/jobs-report-economy/what-to-know-about-the-report
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6820722/2025/11/20/nfl-draft-2026-scouting-lanorris
 **Inside F1 livery design: How art, sponsors and the science of speed collide**\
 `F1 teams have been using more special liveries for their cars in recent years. This is how the complicated design process works`\
 https://nytimes.com/athletic/6822391/2025/11/20/f1-car-liveries-explained/
-
-**Nvidia Calmed Fears About A.I. How Long Will That Last?**\
-`The chipmaker at the center of the artificial intelligence boom reported blowout results. But that hasn’t resolved some key questions behind the tech rally.`\
-https://nytimes.com/2025/11/20/business/dealbook/nvidia-ai-boom.html
-
-**Fowler alleges racism from Montpellier team-mates after being given bananas instead of flowers**\
-`Writing in her autobiography Bloom, Fowler claims she and team-mate Ashleigh Weerden were both subjected to the alleged incident.`\
-https://nytimes.com/athletic/6819690/2025/11/20/mary-fowler-montpellier-racism-allegations/
-
-**World Cup 2026 play-offs: Italy vs Northern Ireland, Jamaica learn path to finals**\
-`There are 22 nations competing for the six remaining World Cup spots via the play-offs, which will take place across the final week of March`\
-https://nytimes.com/athletic/6816798/2025/11/20/world-cup-2026-playoff-draw-europe-nations-when/
 
