@@ -1,3 +1,7 @@
+**Operator Who Crashed Ferry Off South Korea Was Looking at His Phone**\
+`The operator and two other officers were charged with gross negligence after the ferry ran aground on Wednesday carrying 267 people.`\
+https://nytimes.com/2025/11/20/world/asia/south-korea-ferry-crash.html
+
 **Ex-Mayor Is Sentenced to Life for Human Trafficking Tied to Southeast Asia Scam Centers**\
 `A court in the Philippines convicted Alice Guo for trafficking people to a compound that officials have linked to online scams and organized crime.`\
 https://nytimes.com/2025/11/20/world/asia/alice-guo-life-sentence-philippines.html
