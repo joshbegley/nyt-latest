@@ -1,4 +1,8 @@
 **As part of Astros’ payroll reshuffling, Mauricio Dubón traded to Braves**\
+`HOUSTON — Astros owner Jim Crane is wary of crossing the luxury tax threshold this winter, according to multiple team sources, even though Houston intends to address its depleted starting rotation and perhaps add another left-handed bat.`\
+https://nytimes.com/athletic/6822088/2025/11/19/mauricio-dubon-trade-astros-braves-mlb/
+
+**As part of Astros’ payroll reshuffling, Mauricio Dubón traded to Braves**\
 `Dubón, a two-time utility Gold Glove winner, brings defensive versatility to the Braves.`\
 https://nytimes.com/athletic/6822088/2025/11/19/mauricio-dubon-trade-astros-braves-mlb/
 
