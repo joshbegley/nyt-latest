@@ -1,3 +1,7 @@
+**Your Thanksgiving Countdown Starts Now**\
+`By Tanya Sichynsky`\
+https://nytimes.com/2025/11/20/dining/your-thanksgiving-countdown-starts-now.html
+
 **Democrats Raise Concerns Over Allied Curbs on Intelligence Sharing**\
 `Britain’s limits on sharing information reflect growing unease among partner nations over the legality of the U.S. strikes on boats purportedly carrying drugs.`\
 https://nytimes.com/2025/11/20/us/politics/democrats-allies-intelligence-sharing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6823278/2025/11/20/jalen-hurts-eagles-offense-frust
 **Manhattans in Brooklyn: 26 Must-Try Cocktails in New York City**\
 `Classics from the cocktail canon, dive bar favorites and no fewer than five martinis.`\
 https://nytimes.com/2025/11/20/dining/best-nyc-cocktails.html
-
-**Iran Withdraws From Deal to Let International Nuclear Inspections Resume**\
-`Iran’s foreign minister said his country would halt plans for a reinstatement of nuclear inspections at a time of heightened concern over Iran’s enriched uranium.`\
-https://nytimes.com/2025/11/20/world/middleeast/iran-deal-nuclear-inspection.html
 

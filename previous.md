@@ -1,3 +1,15 @@
+**Democrats Raise Concerns Over Allied Curbs on Intelligence Sharing**\
+`Britain’s limits on sharing information reflect growing unease among partner nations over the legality of the U.S. strikes on boats purportedly carrying drugs.`\
+https://nytimes.com/2025/11/20/us/politics/democrats-allies-intelligence-sharing.html
+
+**Trump Elevates Once-Fringe Meme Makers to the Mainstream**\
+`Right-wing users have tapped A.I. tools to promote President Trump’s agenda. He took notice.`\
+https://nytimes.com/2025/11/20/technology/trump-ai-memes.html
+
+**Before Fatal UPS Plane Crash, Engine Brace Had Cracked, Safety Agency Says**\
+`The cargo plane was taking off from Louisville last month when it crashed moments after becoming airborne, killing the three crew members and 11 people on the ground.`\
+https://nytimes.com/2025/11/20/us/ups-plane-crash-louisville-engine-ntsb.html
+
 **Court Vision: Izzo's focus on continuity, assist rate and encouraging signs for UConn**\
 `Roster continuity may be undervalued, but not at MSU, where Tom Izzo has eschewed massive roster overhauls that are sweeping the sport.`\
 https://nytimes.com/athletic/6822319/2025/11/20/tom-izzo-michigan-state-uconn-college-basketball/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/20/dining/best-nyc-cocktails.html
 **Iran Withdraws From Deal to Let International Nuclear Inspections Resume**\
 `Iran’s foreign minister said his country would halt plans for a reinstatement of nuclear inspections at a time of heightened concern over Iran’s enriched uranium.`\
 https://nytimes.com/2025/11/20/world/middleeast/iran-deal-nuclear-inspection.html
-
-**Read the NTSB’s preliminary report on the UPS crash**\
-`The report by the National Transportation Safety Board provided details on what happened when an engine on a UPS cargo plane detached from a wing before takeoff.`\
-https://nytimes.com/interactive/2025/11/20/us/nat-NTSB-preliminary-report-louisville-UPS-crash.html
-
-**‘The Family Plan 2’ Review: A Relaxing Vacation? Maybe Not.**\
-`Mark Wahlberg and Michelle Monaghan return in a better executed, equally goofball sequel about a family’s tangles with organized crime.`\
-https://nytimes.com/2025/11/20/movies/the-family-plan-2-review.html
-
-**MacKenzie Scott Expands Giving Spree to Tribal Colleges**\
-`The billionaire philanthropist is steering millions of dollars toward tribal schools, after the Trump administration proposed a significant federal funding cut.`\
-https://nytimes.com/2025/11/20/us/mackenzie-scott-giving-tribal-colleges.html
 
