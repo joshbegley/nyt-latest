@@ -1,3 +1,7 @@
+**Scoop City: Are officials tush pushed out?**\
+`Why officiating controversy shouldn't lead to a tush push ban`\
+https://nytimes.com/athletic/6821763/2025/11/19/nfl-tush-push-ban-missed-calls-officials-scoop-city/
+
 **Cooper Flagg to miss first game of career Wednesday against New York**\
 `A team source confirms that Mavs' No. 1 draft pick is dealing with an illness.`\
 https://nytimes.com/athletic/6821482/2025/11/19/ooper-flagg-status-illness-mavericks-nba/
