@@ -1,3 +1,27 @@
+**College football picks ATS: Georgia Tech aims for ACC title game berth**\
+`Week 13 features one big game in each of the four power conferences, each with conference title game or CFP stakes.`\
+https://nytimes.com/athletic/6818340/2025/11/20/college-football-picks-spread-oklahoma-byu-georgia-tech/
+
+**Fantasy football injuries, inactives, cheat sheet Week 12**\
+`Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 12 player rankings and more.`\
+https://nytimes.com/athletic/6821439/2025/11/20/fantasy-football-injuries-inactives-cheat-sheet-week-12/
+
+**Ukraine and Europe Chafe at Being Excluded From U.S.-Russian Peace Plan**\
+`Some in Kyiv expressed confusion over the Trump administration’s multiple diplomatic tracks as Washington tries to revive negotiations.`\
+https://nytimes.com/2025/11/20/world/europe/ukraine-russia-trump-peace-talks.html
+
+**When Tenderness and Technology Collide**\
+`The new collaboration between Oklou and FKA twigs moves from the warmly naturalistic to the icily digital, according to our critic.`\
+https://nytimes.com/video/podcasts/100000010533350/when-tenderness-and-technology-collide.html
+
+**Trump Was Not Invited to Cheney’s Memorial Service**\
+`Former Vice President Dick Cheney, a once-powerful Republican, turned on Mr. Trump last year by announcing he would vote for Vice President Kamala Harris.`\
+https://nytimes.com/2025/11/20/us/politics/trump-dick-cheney-funeral.html
+
+**Gattuso on Chiesa's Italy absence: 'It's his problem. Not ours'**\
+`"I call Chiesa. I call him before every international break," Gattuso said to Sky Italia at Thursday's draw for the World Cup play-offs.`\
+https://nytimes.com/athletic/6823360/2025/11/20/federico-chiesa-italy-gattuso-liverpool/
+
 **Inside a Liquidation Warehouse**\
 `What happens to all the stuff no one wants? We bought 450 pounds of mystery products at a liquidation warehouse to find out.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010535350/inside-a-liquidation-warehouse.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/11/20/fashion/weddings/brooklyn-bride-swap-wedding-dres
 **Three of the Best Socks We Tried**\
 `While lousy socks tap into a host of pet peeves and sensory “icks,” an excellent pair can spark real delight.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010535308/three-of-the-best-socks-we-tried.html
-
-**Wyden Presses for Investigation Into JPMorgan Chase and Epstein**\
-`Senator Ron Wyden, an Oregon Democrat, wants to examine how the nation’s largest bank handled the reporting of more than $1 billion in suspicious transactions.`\
-https://nytimes.com/2025/11/20/us/politics/jeffrey-epstein-jpmorgan-chase-ron-wyden.html
-
-**Blue Jackets report card: Marchenko and Werenski get As, but others are struggling**\
-`The Blue Jackets are being held to a higher standard this season. Here's how we graded them at the 20-game mark.`\
-https://nytimes.com/athletic/6820297/2025/11/20/blue-jackets-grades-marchenko-werenski/
-
-**2030 World Cup: How likely is South America's 64-team 'dream' tournament?**\
-`CONMEBOL president Alejandro Dominguez has doubled down on his "dream" of the 2030 World Cup being expanded to 64 nations.`\
-https://nytimes.com/athletic/6822657/2025/11/20/world-cup-teams-qualify-2030-nations/
-
-**Key fantasy football questions for Week 12: Derrick Henry time? Can Shedeur Sanders succeed?**\
-`Dalton Del Don breaks down the key fantasy football topics for Week 12, including Derrick Henry's prolific late-season history.`\
-https://nytimes.com/athletic/6822265/2025/11/20/key-fantasy-football-questions-week-12-nacua-henry-dart/
-
-**Trump Signs Bill to Release Epstein Files**\
-`President Trump announced in a social media post on Wednesday that he had signed the bill calling on the Justice Department to release its files on the convicted sex offender Jeffrey Epstein within 30 days.`\
-https://nytimes.com/video/us/politics/100000010535063/trump-bill-epstein-files.html
-
-**Premier League winner Fuchs leaves Charlotte FC for Newport job**\
-`Fuchs, 39, won the 2016 Premier League title and the 2021 FA Cup with Leicester City.`\
-https://nytimes.com/athletic/6823202/2025/11/20/christian-fuchs-charlotte-fc-newport-county/
 
