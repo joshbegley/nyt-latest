@@ -1,3 +1,11 @@
+**Nvidia Earnings Fuel Rally in Global Technology Stocks**\
+`The chipmaker’s profit surge and strong revenue forecast helped to ease fears that spending on A.I. infrastructure might be outpacing demand.`\
+https://nytimes.com/2025/11/19/business/stocks-nvidia-earnings.html
+
+**Braves re-sign closer Raisel Iglesias to one-year, $16 million deal**\
+`The 35-year-old reliever returns for a fifth season with the Braves.`\
+https://nytimes.com/athletic/6822005/2025/11/19/raisel-iglesias-atlanta-braves-contract/
+
 **Kenny Atkinson not a fan of NBA's $100K fine: 'Gotta look at the Cavs’ best interest'**\
 `Cleveland was the first team this season to be fined for violating the league's Player Participation Policy.`\
 https://nytimes.com/athletic/6821803/2025/11/19/kenny-atkinson-cavs-fine-nba-injuries/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6821763/2025/11/19/nfl-tush-push-ban-missed-calls-o
 **Cooper Flagg to miss first game of career Wednesday against New York**\
 `Flagg is averaging 15.5 points, 6.3 rebounds and 3.1 assists this season. He leads the Mavericks in total minutes.`\
 https://nytimes.com/athletic/6821482/2025/11/19/ooper-flagg-status-illness-mavericks-nba/
-
-**NBA eyes European league featuring elite clubs like Real Madrid, Barcelona**\
-`Deputy commissioner Mark Tatum says the NBA is exploring a Europe-based league with potential participation from leading EuroLeague teams.`\
-https://nytimes.com/athletic/6821640/2025/11/19/nba-euroleague-expansion-real-madrid-barcelona/
-
-**The World’s Largest Afro Took Three People to Measure It**\
-`With an Afro that is more than six feet in circumference, Jessica Martinez set a new Guinness record.`\
-https://nytimes.com/2025/11/19/style/largest-afro-guinness-world-record.html
 
