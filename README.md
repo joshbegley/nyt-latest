@@ -1,3 +1,11 @@
+**What to know about the report.**\
+`By Lydia DePillis`\
+https://nytimes.com/live/2025/business/jobs-report-economy/what-to-know-about-the-report
+
+**Justice Democrats Re-Emerge in New York to Try to Unseat Espaillat**\
+`The group, which powered Alexandria Ocasio-Cortez’s rise in 2018, is backing Darializa Avila Chevalier’s bid to unseat Representative Adriano Espaillat.`\
+https://nytimes.com/2025/11/20/nyregion/justice-democrats-espaillat-avila-chevalier.html
+
 **Wright: England 'not ready' for Black star like Bellingham**\
 `"If you are outspoken, Black, playing to that level, that frightens certain people," Wright said after criticism of Bellingham this week.`\
 https://nytimes.com/athletic/6823001/2025/11/20/jude-bellingham-england-ian-wright/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6819690/2025/11/20/mary-fowler-montpellier-racism-a
 **World Cup 2026 play-offs: Italy vs Northern Ireland, Jamaica learn path to finals**\
 `There are 22 nations competing for the six remaining World Cup spots via the play-offs, which will take place across the final week of March`\
 https://nytimes.com/athletic/6816798/2025/11/20/world-cup-2026-playoff-draw-europe-nations-when/
-
-**C.D.C. Changes Website to Reflect Kennedy’s Vaccine Skepticism**\
-`A previous version denied a link between vaccines and autism. It now echoes the doubts about that conclusion voiced by Health Secretary Robert F. Kennedy Jr.`\
-https://nytimes.com/2025/11/20/health/vaccine-autism-cdc-website.html
-
-**Steve Smith, Monty Panesar, Mastermind. Weird**\
-`The stand-in Australia captain gave a remarkably well-prepared answer to an ostensibly random question on the eve of the Ashes series`\
-https://nytimes.com/athletic/6822901/2025/11/20/steve-smith-monty-panesar-ashes-australia-england-sandpapergate/
 
