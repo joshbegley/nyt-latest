@@ -1,3 +1,11 @@
+**Joe Burrow back at practice? No Ja’Marr Chase? How Bengals offensive pieces are shuffling**\
+`Bengals coach Zac Taylor wasn’t willing to give any hints about Burrow's timeline to play.`\
+https://nytimes.com/athletic/6821515/2025/11/19/joe-burrow-practice-jamarr-chase-bengals/
+
+**Cooper Flagg to miss first game of career Wednesday against New York: Source**\
+`Flagg is averaging 15.5 points, 6.3 rebounds and 3.1 assists this season. He leads the Mavericks in total minutes.`\
+https://nytimes.com/athletic/6821482/2025/11/19/ooper-flagg-status-illness-mavericks-nba/
+
 **Scoop City: Are officials tush pushed out?**\
 `Why officiating controversy shouldn't lead to a tush push ban`\
 https://nytimes.com/athletic/6821763/2025/11/19/nfl-tush-push-ban-missed-calls-officials-scoop-city/

@@ -1,9 +1,13 @@
+**Joe Burrow back at practice? No Ja’Marr Chase? How Bengals offensive pieces are shuffling**\
+`Bengals coach Zac Taylor wasn’t willing to give any hints about Burrow's timeline to play.`\
+https://nytimes.com/athletic/6821515/2025/11/19/joe-burrow-practice-jamarr-chase-bengals/
+
 **Scoop City: Are officials tush pushed out?**\
 `Why officiating controversy shouldn't lead to a tush push ban`\
 https://nytimes.com/athletic/6821763/2025/11/19/nfl-tush-push-ban-missed-calls-officials-scoop-city/
 
-**Cooper Flagg to miss first game of career Wednesday against New York**\
-`A team source confirms that Mavs' No. 1 draft pick is dealing with an illness.`\
+**Cooper Flagg to miss first game of career Wednesday against New York: Source**\
+`Flagg is averaging 15.5 points, 6.3 rebounds and 3.1 assists this season. He leads the Mavericks in total minutes.`\
 https://nytimes.com/athletic/6821482/2025/11/19/ooper-flagg-status-illness-mavericks-nba/
 
 **NBA eyes European league featuring elite clubs like Real Madrid, Barcelona**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6820762/2025/11/19/mlb-commissioner-rob-manfred-own
 **Why the ‘America First’ President Keeps Looking Abroad**\
 `Trump keeps showing he is not as isolationist as many supporters had hoped.`\
 https://nytimes.com/2025/11/19/us/politics/trump-america-first-saudi-tariffs.html
-
-**Yann LeCun, a Pioneering A.I. Scientist, Leaves Meta**\
-`Dr. LeCun’s departure follows a shake-up in Meta’s artificial intelligence efforts, as Mark Zuckerberg pushes his company to keep up in the tech race.`\
-https://nytimes.com/2025/11/19/technology/yann-lecun-ai-scientist-meta.html
 
