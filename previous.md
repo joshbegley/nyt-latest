@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6821515/2025/11/19/joe-burrow-practice-jamarr-chase
 `Why officiating controversy shouldn't lead to a tush push ban`\
 https://nytimes.com/athletic/6821763/2025/11/19/nfl-tush-push-ban-missed-calls-officials-scoop-city/
 
-**Cooper Flagg to miss first game of career Wednesday against New York: Source**\
+**Cooper Flagg to miss first game of career Wednesday against New York**\
 `Flagg is averaging 15.5 points, 6.3 rebounds and 3.1 assists this season. He leads the Mavericks in total minutes.`\
 https://nytimes.com/athletic/6821482/2025/11/19/ooper-flagg-status-illness-mavericks-nba/
 
@@ -35,6 +35,6 @@ https://nytimes.com/2025/11/19/science/comet-3i-atlas-nasa-mars.html
 https://nytimes.com/athletic/6819788/2025/11/19/nwsl-mvp-temwa-chawinga-current/
 
 **Robert L. Stirm, Returning P.O.W. in Pulitzer-Winning Photo, Dies at 92**\
-`The image immortalized a Vietnam Veteran’s joyous homecoming to his beaming family but hid the painful truth about a marriage that was about to end.`\
+`The image immortalized a Vietnam veteran’s joyous homecoming to his beaming family but hid the painful truth about a marriage that was about to end.`\
 https://nytimes.com/2025/11/19/obituaries/robert-stirm-dead.html
 

@@ -1,3 +1,11 @@
+**Cooper Flagg to miss first game of career Wednesday against New York**\
+`Flagg is averaging 15.5 points, 6.3 rebounds and 3.1 assists this season. He leads the Mavericks in total minutes.`\
+https://nytimes.com/athletic/6821482/2025/11/19/ooper-flagg-status-illness-mavericks-nba/
+
+**Robert L. Stirm, Returning P.O.W. in Pulitzer-Winning Photo, Dies at 92**\
+`The image immortalized a Vietnam veteran’s joyous homecoming to his beaming family but hid the painful truth about a marriage that was about to end.`\
+https://nytimes.com/2025/11/19/obituaries/robert-stirm-dead.html
+
 **Stephen Curry, Draymond Green and Jimmy Butler all out Wednesday against Heat**\
 `The absence of Warriors stars comes the day after coach Steve Kerr questioned the length of the NBA's schedule. `\
 https://nytimes.com/athletic/6821656/2025/11/19/warriors-injury-report-curry-butler-green-nba/
