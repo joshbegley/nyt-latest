@@ -1,3 +1,7 @@
+**Place for a Castle**\
+`Adam Wagner loves crosswords as much as the next guy.`\
+https://nytimes.com/2025/11/19/crosswords/daily-puzzle-2025-11-20.html
+
 **Trump and Mamdani Will Meet at White House on Friday**\
 `The meeting between Zohran Mamdani, the mayor-elect of New York City, and President Trump will come after the two men have fiercely attacked one another.`\
 https://nytimes.com/2025/11/19/nyregion/trump-mamdani-white-house-meeting.html
