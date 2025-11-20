@@ -1,3 +1,11 @@
+**Judge Temporarily Blocks Deployment of National Guard in Washington**\
+`Judge Jia M. Cobb found that the presence of more than 2,000 National Guard troops, many from out of state, was most likely unlawful. She paused the order from taking effect until Dec. 11.`\
+https://nytimes.com/2025/11/20/us/politics/judge-blocks-national-guard-trump.html
+
+**Trump Calling Reporter ‘Piggy’ Was ‘Frankness,’ White House Says**\
+`Karoline Leavitt, the White House press secretary, addressed for the first time a schoolyard insult that President Trump lobbed at a Bloomberg News reporter last week.`\
+https://nytimes.com/2025/11/20/business/media/trump-leavitt-reporter-piggy.html
+
 **Lakers fire Joey, Jesse Buss from front-office positions: Sources**\
 `"I kind of felt like the writing was on the wall," Jesse Buss said in an interview with The Athletic.`\
 https://nytimes.com/athletic/6824062/2025/11/20/lakers-fire-joey-jesse-buss-from-front-office-positions-sources/
