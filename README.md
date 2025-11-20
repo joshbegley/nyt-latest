@@ -1,3 +1,11 @@
+**College football picks ATS: Georgia Tech aims for ACC title game berth**\
+`Week 13 features one big game in each of the four power conferences, each with conference title game or CFP stakes.`\
+https://nytimes.com/athletic/6818340/2025/11/20/college-football-picks-spread-oklahoma-byu-georgia-tech/
+
+**Fantasy football injuries, inactives, cheat sheet Week 12**\
+`Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 12 player rankings and more.`\
+https://nytimes.com/athletic/6821439/2025/11/20/fantasy-football-injuries-inactives-cheat-sheet-week-12/
+
 **Ukraine and Europe Chafe at Being Excluded From U.S.-Russian Peace Plan**\
 `Some in Kyiv expressed confusion over the Trump administration’s multiple diplomatic tracks as Washington tries to revive negotiations.`\
 https://nytimes.com/2025/11/20/world/europe/ukraine-russia-trump-peace-talks.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/20/fashion/weddings/brooklyn-bride-swap-wedding-dres
 **Three of the Best Socks We Tried**\
 `While lousy socks tap into a host of pet peeves and sensory “icks,” an excellent pair can spark real delight.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010535308/three-of-the-best-socks-we-tried.html
-
-**Wyden Presses for Investigation Into JPMorgan Chase and Epstein**\
-`Senator Ron Wyden, an Oregon Democrat, wants to examine how the nation’s largest bank handled the reporting of more than $1 billion in suspicious transactions.`\
-https://nytimes.com/2025/11/20/us/politics/jeffrey-epstein-jpmorgan-chase-ron-wyden.html
-
-**Blue Jackets report card: Marchenko and Werenski get As, but others are struggling**\
-`The Blue Jackets are being held to a higher standard this season. Here's how we graded them at the 20-game mark.`\
-https://nytimes.com/athletic/6820297/2025/11/20/blue-jackets-grades-marchenko-werenski/
 
