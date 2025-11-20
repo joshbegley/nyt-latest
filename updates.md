@@ -1,3 +1,7 @@
+**Kenny Atkinson not a fan of NBA's $100K fine: 'Gotta look at the Cavs’ best interest'**\
+`Cleveland was the first team this season to be fined for violating the league's Player Participation Policy.`\
+https://nytimes.com/athletic/6821803/2025/11/19/kenny-atkinson-cavs-fine-nba-injuries/
+
 **Kenny Atkinson not a fan of NBA's $100K fine: “Gotta look at the Cavs’ best interest'**\
 `Cleveland was the first team this season to be fined for violating the league's Player Participation Policy.`\
 https://nytimes.com/athletic/6821803/2025/11/19/kenny-atkinson-cavs-fine-nba-injuries/
