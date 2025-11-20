@@ -1,3 +1,11 @@
+**Ferry Crashed From Distracted Operator Looking At Phone, Officials Say**\
+`The ferry was carrying 267 passengers and crew members on board when it struck a rocky islet in South Korea on Wednesday. About 27 passengers suffered minor injuries or dizziness. The ferry’s captain and two officers were charged with injury by gross negligence.`\
+https://nytimes.com/video/world/asia/100000010535989/ferry-crashed-from-distracted-operator-looking-at-phone-officials-say.html
+
+**Trump’s Slip With the Saudi Crown Prince**\
+`Readers discuss what President Trump revealed in his meeting with the Saudi crown prince. Also: Albania’s A.I. “civil servant”; bullfighting as torture.`\
+https://nytimes.com/2025/11/20/opinion/trump-saudi-crown-prince.html
+
 **Our Depressing Vaccine Future Laid Bare on the C.D.C. Website**\
 `Kennedy has a rhetorical advantage in that his deceptions can be definitive while scientific honesty has to come with caveats.`\
 https://nytimes.com/2025/11/20/opinion/cdc-autism-vaccine-website.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6823398/2025/11/20/nwsl-commissioner-interview-jess
 **Senate Democrats Investigate Kennedy Center Deals With Trump Allies**\
 `Under Richard Grenell, the performing arts center has given steep discounts to CPAC and FIFA, signed contracts with administration associates and spent lavishly on friends.`\
 https://nytimes.com/2025/11/20/us/politics/democrats-kennedy-center-investigate.html
-
-**Your Thanksgiving Countdown Starts Now**\
-`By Tanya Sichynsky`\
-https://nytimes.com/2025/11/20/dining/your-thanksgiving-countdown-starts-now.html
-
-**Democrats Raise Concerns Over Allied Curbs on Intelligence Sharing**\
-`Britain’s limits on sharing information reflect growing unease among partner nations over the legality of the U.S. strikes on boats purportedly carrying drugs.`\
-https://nytimes.com/2025/11/20/us/politics/democrats-allies-intelligence-sharing.html
 
