@@ -1,3 +1,7 @@
+**Saudi Arabia, Once Shunned, Has Corporate Titans Swooning for Deals**\
+`Some of the most prominent U.S. executives gathered at the Kennedy Center for an event promoting deal-making with the oil-rich kingdom.`\
+https://nytimes.com/2025/11/19/business/saudi-investment-forum-kennedy-center.html
+
 **Steve Kerr endorses Erik Spoelstra as 'great choice' for Team USA  coach**\
 `Spoelstra, who previously served under Kerr, helped Team USA finish fourth at the 2023 FIBA World Cup and win 2024 Olympic gold.`\
 https://nytimes.com/athletic/6821983/2025/11/19/erik-spoelstra-steve-kerr-usa-basketball-olympics/
