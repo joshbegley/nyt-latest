@@ -1,3 +1,11 @@
+**Trump and Mamdani Will Meet at White House on Friday**\
+`The meeting between Zohran Mamdani, the mayor-elect of New York City, and President Trump will come after the two men have fiercely attacked one another.`\
+https://nytimes.com/2025/11/19/nyregion/trump-mamdani-white-house-meeting.html
+
+**What Adam Lowry's 5-year, $25 million extension means for the Jets and the team's captain**\
+`The deal lets Lowry cement his legacy as a Jet, with a chance to start and finish his career with the team that drafted him.`\
+https://nytimes.com/athletic/6821505/2025/11/19/adam-lowry-jets-agree-on-5-year-25-million-extension/
+
 **Saudi Arabia, Once Shunned, Has Corporate Titans Swooning for Deals**\
 `Some of the most prominent U.S. executives gathered at the Kennedy Center for an event promoting deal-making with the oil-rich kingdom.`\
 https://nytimes.com/2025/11/19/business/saudi-investment-forum-kennedy-center.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/19/business/stocks-nvidia-earnings.html
 **Braves re-sign closer Raisel Iglesias to one-year, $16 million deal**\
 `The 35-year-old reliever returns for a fifth season with the Braves.`\
 https://nytimes.com/athletic/6822005/2025/11/19/raisel-iglesias-atlanta-braves-contract/
-
-**Kenny Atkinson not a fan of NBA's $100K fine: 'Gotta look at the Cavs’ best interest'**\
-`Cleveland was the first team this season to be fined for violating the league's Player Participation Policy.`\
-https://nytimes.com/athletic/6821803/2025/11/19/kenny-atkinson-cavs-fine-nba-injuries/
-
-**Lawrence Summers to Stop Teaching at Harvard While It Investigates His Epstein Ties**\
-`The former Harvard president had previously stepped down from other positions following revelations about his longtime connections to Jeffrey Epstein.`\
-https://nytimes.com/2025/11/19/us/larry-summers-harvard-epstein.html
 
