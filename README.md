@@ -1,40 +1,40 @@
-**From Osaka to the World: The Impact of Expo 2025**\
-`Expo 2025 Osaka, Kansai, Japan closes with its promises and lessons distilled into a declaration that imagines how societies can thrive together.`\
-https://nytimes.com/paidpost/japan-cabinet-secretariat/from-osaka-to-the-world-the-impact-of-expo-2025.html
+**Bills vs. Texans Thursday Night Football betting: Player prop and a single-game parlay**\
+`Brad Evans scours sportsbooks for the best prop and single-game parlay for Thursday Night Football's matchup between the Bills and Texans. `\
+https://nytimes.com/athletic/6817779/2025/11/20/bills-texans-thursday-night-football-betting-props-parlay/
 
-**Catholic Group Sues Trump Administration for Access to Immigration Facility**\
-`The Coalition for Spiritual and Public Leadership says its members have been blocked from ministering at an ICE detention center near Chicago.`\
-https://nytimes.com/2025/11/20/us/politics/catholic-broadview-ice-immigration-lawsuit.html
+**Marjorie Taylor Greene Was Not on Our Bingo Card**\
+`Have we been selling her short? Is she paving the way to the after-Trump?`\
+https://nytimes.com/2025/11/20/opinion/trump-marjorie-taylor-greene-republicans-maga.html
 
-**As Sanctions on Russian Oil Loom, India Prepares to End Its Buying Spree**\
-`India has been snapping up discounted Russian crude for three years, but U.S. sanctions that take effect on Friday are expected to end the lucrative trade.`\
-https://nytimes.com/2025/11/20/business/india-russia-oil-sanctions.html
+**They Scoured Portland, Ore., for a Hundred-Year-Old House With a Story to Tell**\
+`After living a nomadic life, a couple sought a sense of stability for themselves and their young daughter. What could they find for less than $700,000?`\
+https://nytimes.com/interactive/2025/11/20/realestate/portland-oregon-home-sale.html
 
-**These Rocketry Hobbyists Are Not Just Playing Around**\
-`At a rocketry club’s monthly launch, some of the projectiles flew as high as 4,500 feet, carrying onboard cameras, GPS trackers and altimeter-activated parachutes.`\
-https://nytimes.com/2025/11/20/nyregion/rocket-club-new-york.html
+**Lawrence Summers Has Come Back From Scandals. Will This Be His Last?**\
+`The former Harvard president has come back from controversy before, but revelations in new Epstein emails are threatening his omnipresence in public life.`\
+https://nytimes.com/2025/11/20/us/larry-summers-jeffrey-epstein-emails-scandal.html
 
-**Holiday Dinner**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2025/11/20/learning/holiday-dinner.html
+**Cheney Service to Underscore How Politics Has Changed Since He Was in Office**\
+`As the former vice president is honored at Washington National Cathedral on Thursday, many eyes will focus on who comes — and who does not.`\
+https://nytimes.com/2025/11/20/us/politics/dick-cheney-funeral-memorial.html
 
-**After a Mysterious Death, a Family’s Quest for Answers Leads to a Tick**\
-`A JetBlue pilot’s illness looked like food poisoning, but it was actually an increasingly common tick-borne meat allergy that can be fatal.`\
-https://nytimes.com/2025/11/20/nyregion/jetblue-pilot-death-tick-alpha-gal.html
+**What Does Current Slang Reveal About Your Generation?**\
+`“6-7” is all the rage. Please explain its meaning. (Just joking!)`\
+https://nytimes.com/2025/11/20/learning/what-does-current-slang-reveal-about-your-generation.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/11/20/crosswords/spelling-bee-forum.html
+**How to Fix a Typewriter and Your Life**\
+`This is the story of how a man traded steady, grinding corporate security for a dying craft and, in the process, found his soul.`\
+https://nytimes.com/interactive/2025/11/20/us/typewriter-repair-seattle-bremerton.html
 
-**Dominic Solanke: 'When a few of us come back from injury, Tottenham can do some big things'**\
-`Injury has prevented Dominic Solanke from playing more than a handful of minutes so far this season - he hopes that will soon change`\
-https://nytimes.com/athletic/6819676/2025/11/20/dominic-solanke-when-a-few-of-us-come-back-from-injury-tottenham-can-do-some-big-things/
+**Understanding the Right’s Antisemitic Turn**\
+`It’s deeper than Nick Fuentes.`\
+https://nytimes.com/2025/11/20/opinion/right-antisemitism-yoram-hazony.html
 
-**Australia hand debuts to Doggett and Weatherald, Smith dismisses Panesar sledge**\
-`Australia's stand-in captain laughed off calls for him to be barracked over 'Sandpapergate' from the former England off-spinner`\
-https://nytimes.com/athletic/6822421/2025/11/20/australia-smith-ashes-doggett-weatherald-panesar-sandpapergate/
+**In Red Tennessee, Democrats Dream of the Unlikeliest of Upsets**\
+`Still the favorites, Republicans have grown nervous about a House special election that could show whether the political environment continues to shift leftward.`\
+https://nytimes.com/2025/11/20/us/politics/tennessee-house-race-behn-van-epps-trump-harris.html
 
-**Indonesia’s Mount Semeru Erupts**\
-`Mount Semeru, on Indonesia’s Java island, spewed huge clouds of ash that prompted hundreds of people to evacuate their homes on Wednesday.`\
-https://nytimes.com/video/world/asia/100000010534754/indonesia-mount-semeru-eruption.html
+**Delayed Jobs Data to Give Snapshot of a Labor Market Under Stress**\
+`Economists expect that employment growth was anemic in September, before the government shutdown delayed data collection.`\
+https://nytimes.com/2025/11/20/business/economy/jobs-data-labor-market.html
 
