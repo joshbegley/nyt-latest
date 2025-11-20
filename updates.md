@@ -1,3 +1,15 @@
+**Want to Immigrate to Britain? The Government Says You Must Earn It.**\
+`The government plans to double the period needed for many legal immigrants to become permanent residents, while cutting it for higher-rate taxpayers.`\
+https://nytimes.com/2025/11/20/world/europe/uk-immigration-rules.html
+
+**Massa’s £64m F1 ‘Crashgate’ case given conditional permission to move forward in part, judge says**\
+`Massa declared it “a great day for me, for justice, and for everyone who loves Formula 1.”`\
+https://nytimes.com/athletic/6823280/2025/11/20/f1-crashgate-felipe-massa-latest/
+
+**FBI fugitive, ex-Olympic snowboarder Ryan Wedding faces new charges**\
+`The alleged drug kingpin faces charges of witness intimidation, including murder.`\
+https://nytimes.com/athletic/6823560/2025/11/20/fbi-ryan-wedding-charges-murder-witness/
+
 **How to watch Kings vs. Grizzlies: Time, TV, streaming**\
 `Find out how to watch the Sacramento Kings play the Memphis Grizzlies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6824276/2025/11/20/kings-vs-grizzlies-stream-how-to-watch-nov-20/
