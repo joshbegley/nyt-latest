@@ -1,3 +1,11 @@
+**TAFC: Is the Premier League's PSR era coming to an end? Plus: U.S. Soccer's grassroots revolution**\
+`English football's 20 top-flight clubs are voting to change their financial regulations – here's why it could be significant`\
+https://nytimes.com/athletic/6822891/2025/11/20/premier-league-vote-us-soccer-tafc/
+
+**Why Toronto is a top women's sports city (despite The Athletic's snub)**\
+`Despite not cracking The Athletic's list of top women's sports cities, Toronto boasts pro women's sports teams with passionate fan bases.`\
+https://nytimes.com/athletic/6807865/2025/11/20/womens-sports-cities-toronto-pwhl-wnba/
+
 **NFL defensive coaches shed light on league's matching-mismatching strategy trend**\
 `Versatile players like Kyle Hamilton and Quentin Lake are giving defensive coordinators an advantage in the chess game.`\
 https://nytimes.com/athletic/6813737/2025/11/20/nfl-defensive-coaches-mismatching-matching/
