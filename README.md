@@ -1,3 +1,11 @@
+**Inside Steve McClaren's Jamaica reign: World Cup failure, paying for staff flights and a hostile end**\
+`The former England manager fell short with Jamaica, but failing to qualify for the World Cup is only part of his story with the Reggae Boyz`\
+https://nytimes.com/athletic/6821966/2025/11/20/steve-mcclaren-jamaica-world-cup/
+
+**Netflix's multi-event MLB TV deal loads the bases for 2026 debut**\
+`With its new MLB TV deal now official, Netflix has created the template for hosting baseball events and positioning itself for the future.`\
+https://nytimes.com/athletic/6821021/2025/11/20/netflix-mlb-home-run-derby/
+
 **Can the Lakers win the LeBron James minutes? It's not as easy as it may sound**\
 `For the first time, James is hopping onto a moving train due to injury. Where can he most make an impact in L.A.?`\
 https://nytimes.com/athletic/6816778/2025/11/20/lebron-james-lakers-minutes-playing-time-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6820731/2025/11/20/toronto-maple-leafs-john-tavares
 **College football Week 13 oddly specific predictions: Kentucky ends Vanderbilt's CFP dream**\
 `Can USC knock off Oregon to remain in Playoff hunt? (No) Will Oklahoma slow down Missouri's rushing attack? (Yes)`\
 https://nytimes.com/athletic/6815179/2025/11/20/college-football-predictions-week-13/
-
-**Canada's 2026 World Cup outlook: What I'm hearing, predicted roster after November**\
-`As the World Cup nears, here's a look at the key roster battles and storylines on Jesse Marsch's Canada national team`\
-https://nytimes.com/athletic/6820864/2025/11/20/canada-international-window-world-cup-roster/
-
-**Takeaways from Kings GM Ken Holland's availability after one-quarter of the season**\
-`With nine of the team's 10 wins having come on the road, “We want to get going at home,” Holland said.`\
-https://nytimes.com/athletic/6822285/2025/11/20/kings-gm-ken-holland-takeaways/
 

@@ -1,40 +1,40 @@
-**TAFC: Is the Premier League's PSR era coming to an end? Plus: U.S. Soccer's grassroots revolution**\
-`English football's 20 top-flight clubs are voting to change their financial regulations – here's why it could be significant`\
-https://nytimes.com/athletic/6822891/2025/11/20/premier-league-vote-us-soccer-tafc/
+**Can the Lakers win the LeBron James minutes? It's not as easy as it may sound**\
+`For the first time, James is hopping onto a moving train due to injury. Where can he most make an impact in L.A.?`\
+https://nytimes.com/athletic/6816778/2025/11/20/lebron-james-lakers-minutes-playing-time-nba/
 
-**NFL defensive coaches shed light on league's matching-mismatching strategy trend**\
-`Versatile players like Kyle Hamilton and Quentin Lake are giving defensive coordinators an advantage in the chess game.`\
-https://nytimes.com/athletic/6813737/2025/11/20/nfl-defensive-coaches-mismatching-matching/
+**This Week in Sports Trivia: November 20, 2025**\
+`How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
+https://nytimes.com/athletic/6821980/2025/11/20/this-week-in-sports-trivia-november-20-2025/
 
-**Leitch: College football is supposed to be fun. We can't stop ourselves from wanting more**\
-`Sports fans have always been impatient for more success. Has the College Football Playoff made that even truer?`\
-https://nytimes.com/athletic/6820920/2025/11/20/college-football-fans-playoff-championships-expectations/
+**Seahawks contract-year check-in: Riq Woolen or Josh Jobe? Could Seattle keep both?**\
+`Woolen, Jobe and Coby Bryant are impressing in contract years, and Ken Walker III is also headed toward free agency. What might Seattle do?`\
+https://nytimes.com/athletic/6821579/2025/11/20/seahawks-free-agents-contracts-riq-woolen-josh-jobe/
 
-**'Yo, Tyrese really got better': Even the Sixers are wowed by Maxey's latest leap**\
-`Paul George is among those gushing about Maxey's growth: "This is similar to what Allen Iverson once did for the city."`\
-https://nytimes.com/athletic/6822181/2025/11/20/tyrese-maxey-76ers-improvement-nba/
+**What I'm seeing from the Blues at quarter mark of 2025-26, plus other observations**\
+`Here's my observations for a Blues team that entered the season with fairly high expectations and has fallen completely flat.`\
+https://nytimes.com/athletic/6818449/2025/11/20/blues-observations-at-the-quarter-mark/
 
-**The Pulse: The actual best job in football**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6820414/2025/11/20/nfl-long-snappers-the-pulse/
+**49ers mailbag: Who will be Kyle Shanahan's QB reclamation project next year?**\
+`Among this week's questions: Will Fred Warner be back for the playoffs, and what could the 49ers fetch in a Mac Jones trade?`\
+https://nytimes.com/athletic/6821760/2025/11/20/mac-jones-trade-brandon-aiyuk-49ers-mailbag/
 
-**Why Toronto is a top women's sports city (despite The Athletic's snub)**\
-`Despite not cracking The Athletic's list of top women's sports cities, Toronto boasts pro women's sports teams with passionate fan bases.`\
-https://nytimes.com/athletic/6807865/2025/11/20/womens-sports-cities-toronto-pwhl-wnba/
+**A 'special, special' performance: Wild's Jesper Wallstedt stars in shootout**\
+`The Wall of St. Paul extended his shutout streak to over 175 minutes, then stood tall late to lead Minnesota past Carolina.`\
+https://nytimes.com/athletic/6822082/2025/11/20/wild-jesper-wallstedt-shootout-takeaways/
 
-**Lions are missing a key offensive piece and replacing his impact won't be simple**\
-`LaPorta will miss at least three more games while on IR and will be missed. "He's a special player," OC John Morton said. `\
-https://nytimes.com/athletic/6822130/2025/11/20/lions-sam-laporta-tight-end-ir-replacement/
+**Could John Tavares be on pace for his best season with the Maple Leafs?**\
+`Tavares ranks just behind the league leaders in goals and points through 20 games.`\
+https://nytimes.com/athletic/6820731/2025/11/20/toronto-maple-leafs-john-tavares-on-pace-best-season/
 
-**Trump Meeting With Saudi Prince Showcased Prince’s Makeover — and America’s**\
-`Prince Mohammed was briefly a global pariah after the killing of a Saudi dissident. But over the years he has rebuilt his image as a deal-maker and influential investor.`\
-https://nytimes.com/2025/11/20/world/middleeast/trump-saudi-prince-mohammed-meeting.html
+**College football Week 13 oddly specific predictions: Kentucky ends Vanderbilt's CFP dream**\
+`Can USC knock off Oregon to remain in Playoff hunt? (No) Will Oklahoma slow down Missouri's rushing attack? (Yes)`\
+https://nytimes.com/athletic/6815179/2025/11/20/college-football-predictions-week-13/
 
-**Bills at Texans on TNF: Josh Allen's MVP push, monochrome uniforms, broadcast props**\
-`Josh Allen is on the verge of a milestone, but he faces a stingy Houston defense. Here's your prep for Week 12's "Thursday Night Football."`\
-https://nytimes.com/athletic/6818425/2025/11/20/bills-texans-josh-allen-tnf-how-to-watch/
+**Canada's 2026 World Cup outlook: What I'm hearing, predicted roster after November**\
+`As the World Cup nears, here's a look at the key roster battles and storylines on Jesse Marsch's Canada national team`\
+https://nytimes.com/athletic/6820864/2025/11/20/canada-international-window-world-cup-roster/
 
-**How Ben Johnson made 'Good, better, best' a motto for the Bears**\
-`Johnson has made "Good, better, best" a part of the lexicon in Chicago. Here's how that phrase became the team motto.`\
-https://nytimes.com/athletic/6817737/2025/11/20/ben-johnson-good-better-best-bears/
+**Takeaways from Kings GM Ken Holland's availability after one-quarter of the season**\
+`With nine of the team's 10 wins having come on the road, “We want to get going at home,” Holland said.`\
+https://nytimes.com/athletic/6822285/2025/11/20/kings-gm-ken-holland-takeaways/
 
