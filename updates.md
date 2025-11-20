@@ -1,3 +1,15 @@
+**Missouri Judge Who Wore Elvis Wig in Court Agrees to Resign**\
+`Judge Matthew E.P. Thornhill also talked about politics and played Elvis songs in court, a judicial commission said.`\
+https://nytimes.com/2025/11/20/us/missouri-judge-elvis-wig-resigns.html
+
+**Kings' Domantas Sabonis to miss 3-4 weeks with partial meniscus tear: Sources**\
+`Sabonis, 29, will not require surgery, sources said, but the Kings will determine appropriate next steps following the evaluation period.`\
+https://nytimes.com/athletic/6824600/2025/11/20/domantas-sabonis-kings-meniscus-tear-knee-injury/
+
+**U.S. Ambassador to Canada Channels Harsh Trump Tone**\
+`Pete Hoekstra’s bluntness is seen as undiplomatic by Canadian officials and interpreted as a way for the Trump administration to turn up the heat as trade talks drag on.`\
+https://nytimes.com/2025/11/20/world/canada/pete-hoekstra-canada-us-ambassador.html
+
 **Netflix, Comcast and Paramount Submit Warner Bros. Discovery Bids**\
 `The outcome of the sale could alter the trajectory of the entertainment business.`\
 https://nytimes.com/2025/11/20/business/media/warner-discovery-bids-paramount-netflix-comcast.html

@@ -1,3 +1,7 @@
+**Free Beer, T-shirts: Rice looks to boost attendance for North Texas matchup**\
+`Rice, an FBS school with an undergraduate population just shy of 5,000, wants a big turnout with bowl eligibility on the line.`\
+https://nytimes.com/athletic/6824499/2025/11/20/rice-north-texas-beer-college-football-promotion/
+
 **Missouri Judge Who Wore Elvis Wig in Court Agrees to Resign**\
 `Judge Matthew E.P. Thornhill also talked about politics and played Elvis songs in court, a judicial commission said.`\
 https://nytimes.com/2025/11/20/us/missouri-judge-elvis-wig-resigns.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6824556/2025/11/20/ceedee-lamb-george-pickens-disci
 **Shilo Sanders faces new lawsuit alleging $164K in unpaid legal fees**\
 `Shilo Sanders faces escalating legal troubles over more than $164,000 in allegedly unpaid legal fees and interest.`\
 https://nytimes.com/athletic/6824293/2025/11/20/shilo-sanders-lawsuit-unpaid-legal-fees/
-
-**A Trump Overhaul of the Energy Dept. Breaks Up Clean Energy Offices**\
-`The reorganization reflects the ongoing shift in the federal government’s energy priorities: less renewable energy, more fossil fuels.`\
-https://nytimes.com/2025/11/20/climate/clean-energy-department-offices.html
 
