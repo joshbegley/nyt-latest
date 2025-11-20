@@ -1,3 +1,19 @@
+**The Privacy Battle in Our Brains**\
+`My colleague talks about technology that can actually read our minds — and maybe even change them.`\
+https://nytimes.com/2025/11/20/world/privacy-battle-in-brains-technology-saudi-mamdani.html
+
+**Baylor, AD Mack Rhoades expected to immediately part ways: Source**\
+`Rhoades, who has been the school’s athletic director since 2016, has been on a leave of absence for personal reasons since Nov. 13.`\
+https://nytimes.com/athletic/6824462/2025/11/20/baylor-mack-rhoades-part-ways-athletic-director/
+
+**20 Years On, Fernando Alonso Still Has His Eyes on the Prize**\
+`A third title? Why not? He’s confident that Aston Martin’s strategy will pay off.`\
+https://nytimes.com/2025/11/20/sports/f1-fernando-alonso-aston-martin.html
+
+**CrowdStrike CEO George Kurtz becomes Mercedes F1 co-owner, team valued at $6bn**\
+`The 55-year-old has acquired a 15% stake in the holding company owned by long-time Mercedes team principal, Toto Wolff.`\
+https://nytimes.com/athletic/6824455/2025/11/20/george-kurtz-mercedes-sale-f1/
+
 **Dick Cheney Is Honored at Washington National Cathedral**\
 `An unusual mix of Democrats and Republicans came together on Thursday to pay tribute to the former vice president, who led an aggressive response against terrorism after Sept.`\
 https://nytimes.com/video/us/politics/100000010536098/dick-cheney-memorial-washington.html

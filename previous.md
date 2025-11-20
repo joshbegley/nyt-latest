@@ -1,3 +1,19 @@
+**The Privacy Battle in Our Brains**\
+`My colleague talks about technology that can actually read our minds — and maybe even change them.`\
+https://nytimes.com/2025/11/20/world/privacy-battle-in-brains-technology-saudi-mamdani.html
+
+**Baylor, AD Mack Rhoades expected to immediately part ways: Source**\
+`Rhoades, who has been the school’s athletic director since 2016, has been on a leave of absence for personal reasons since Nov. 13.`\
+https://nytimes.com/athletic/6824462/2025/11/20/baylor-mack-rhoades-part-ways-athletic-director/
+
+**20 Years On, Fernando Alonso Still Has His Eyes on the Prize**\
+`A third title? Why not? He’s confident that Aston Martin’s strategy will pay off.`\
+https://nytimes.com/2025/11/20/sports/f1-fernando-alonso-aston-martin.html
+
+**CrowdStrike CEO George Kurtz becomes Mercedes F1 co-owner, team valued at $6bn**\
+`The 55-year-old has acquired a 15% stake in the holding company owned by long-time Mercedes team principal, Toto Wolff.`\
+https://nytimes.com/athletic/6824455/2025/11/20/george-kurtz-mercedes-sale-f1/
+
 **Dick Cheney Is Honored at Washington National Cathedral**\
 `An unusual mix of Democrats and Republicans came together on Thursday to pay tribute to the former vice president, who led an aggressive response against terrorism after Sept.`\
 https://nytimes.com/video/us/politics/100000010536098/dick-cheney-memorial-washington.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/11/20/technology/ai-stock-boom-nvidia.html
 **David Bellos, 80, Dies; Wrestled French Wordplay Into English**\
 `He translated nearly 30 books, including novels by Georges Perec, a master of linguistic games, and Ismail Kadare.`\
 https://nytimes.com/2025/11/20/books/david-bellos-dead.html
-
-**Judge Temporarily Blocks Deployment of National Guard in Washington**\
-`Judge Jia M. Cobb found that the presence of more than 2,000 National Guard troops, many from out of state, was most likely unlawful. She paused the order from taking effect until Dec. 11.`\
-https://nytimes.com/2025/11/20/us/politics/national-guard-washington-dc-trump.html
-
-**Trump Calling Reporter ‘Piggy’ Was ‘Frankness,’ White House Says**\
-`Karoline Leavitt, the White House press secretary, addressed for the first time a schoolyard insult that President Trump lobbed at a Bloomberg News reporter last week.`\
-https://nytimes.com/2025/11/20/business/media/trump-leavitt-reporter-piggy.html
-
-**Lakers fire Joey, Jesse Buss from front-office positions: Sources**\
-`"I kind of felt like the writing was on the wall," Jesse Buss said in an interview with The Athletic.`\
-https://nytimes.com/athletic/6824062/2025/11/20/lakers-fire-joey-jesse-buss-from-front-office-positions-sources/
-
-**San Francisco Giants free-agent profile: Bo Bichette, 2B/SS**\
-`On paper, it's hard to find reasons Bichette shouldn't be the Giants' top offensive target. But do the red flags make it worth it?`\
-https://nytimes.com/athletic/6824054/2025/11/20/san-francisco-giants-free-agent-profile-bo-bichette/
 
