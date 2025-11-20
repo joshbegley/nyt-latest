@@ -1,3 +1,11 @@
+**NFL defensive coaches shed light on league's matching-mismatching strategy trend**\
+`Versatile players like Kyle Hamilton and Quentin Lake are giving defensive coordinators an advantage in the chess game.`\
+https://nytimes.com/athletic/6813737/2025/11/20/nfl-defensive-coaches-mismatching-matching/
+
+**Leitch: College football is supposed to be fun. We can't stop ourselves from wanting more**\
+`Sports fans have always been impatient for more success. Has the College Football Playoff made that even truer?`\
+https://nytimes.com/athletic/6820920/2025/11/20/college-football-fans-playoff-championships-expectations/
+
 **'Yo, Tyrese really got better': Even the Sixers are wowed by Maxey's latest leap**\
 `Paul George is among those gushing about Maxey's growth: "This is similar to what Allen Iverson once did for the city."`\
 https://nytimes.com/athletic/6822181/2025/11/20/tyrese-maxey-76ers-improvement-nba/
