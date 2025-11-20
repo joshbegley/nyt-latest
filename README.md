@@ -1,3 +1,11 @@
+**Stephen Curry, Draymond Green and Jimmy Butler all out Wednesday against Heat**\
+`The absence of Warriors stars comes the day after coach Steve Kerr questioned the length of the NBA's schedule. `\
+https://nytimes.com/athletic/6821656/2025/11/19/warriors-injury-report-curry-butler-green-nba/
+
+**Maryland lands 5-star Baba Oladotun: What this means for Terrapins**\
+`Oladotun averaged 13.2 points, 5.8 rebounds and 1.5 assists per game this summer on the Nike EYBL circuit.`\
+https://nytimes.com/athletic/6821689/2025/11/19/maryland-lands-baba-oladotun-terrapins-recruitment/
+
 **Joe Burrow back at practice? No Ja’Marr Chase? How Bengals offensive pieces are shuffling**\
 `Bengals coach Zac Taylor wasn’t willing to give any hints about Burrow's timeline to play.`\
 https://nytimes.com/athletic/6821515/2025/11/19/joe-burrow-practice-jamarr-chase-bengals/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6819788/2025/11/19/nwsl-mvp-temwa-chawinga-current/
 **Robert L. Stirm, Returning P.O.W. in Pulitzer-Winning Photo, Dies at 92**\
 `The image immortalized a Vietnam Veteran’s joyous homecoming to his beaming family but hid the painful truth about a marriage that was about to end.`\
 https://nytimes.com/2025/11/19/obituaries/robert-stirm-dead.html
-
-**Manfred on prop betting restrictions: 'I'm glad we've done something about it'**\
-`The MLB commissioner discussed the league's latest gambling scandal during a regularly scheduled news conference at the owners' meetings.`\
-https://nytimes.com/athletic/6820762/2025/11/19/mlb-commissioner-rob-manfred-owners-meetings/
-
-**Why the ‘America First’ President Keeps Looking Abroad**\
-`Trump keeps showing he is not as isolationist as many supporters had hoped.`\
-https://nytimes.com/2025/11/19/us/politics/trump-america-first-saudi-tariffs.html
 
