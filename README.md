@@ -1,3 +1,7 @@
+**World Cup 2026 play-offs: Italy vs Northern Ireland, Jamaica learn path to finals**\
+`There are 22 nations competing for the six remaining World Cup spots via the play-offs, which will take place across the final week of March`\
+https://nytimes.com/athletic/6816798/2025/11/20/world-cup-2026-playoff-draw-europe-nations-when/
+
 **C.D.C. Changes Website to Reflect Kennedy’s Vaccine Skepticism**\
 `A previous version denied a link between vaccines and autism. It now echoes the doubts about that conclusion voiced by Health Secretary Robert F. Kennedy Jr.`\
 https://nytimes.com/2025/11/20/health/vaccine-autism-cdc-website.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6821627/2025/11/20/bucks-kevin-porter-jr-injury-ret
 **Power and Wealth in New York**\
 `We’re looking at two local stories that have national implications.`\
 https://nytimes.com/2025/11/20/briefing/power-and-wealth-in-new-york.html
-
-**Inside Steve McClaren's Jamaica reign: World Cup failure, paying for staff flights and a hostile end**\
-`The former England manager fell short with Jamaica, but failing to qualify for the World Cup is only part of his story with the Reggae Boyz`\
-https://nytimes.com/athletic/6821966/2025/11/20/steve-mcclaren-jamaica-world-cup/
 
