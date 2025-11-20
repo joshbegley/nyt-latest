@@ -1,3 +1,11 @@
+**Books That Examine the Past and Present of the Middle East Take National Book Awards**\
+`Rabih Alameddine’s “The True True Story of Raja the Gullible (and His Mother)” won in fiction, while Omar El Akkad’s reckoning with Gaza took the nonfiction prize.`\
+https://nytimes.com/2025/11/19/books/review/omar-el-akkad-rabih-alameddine-national-book-awards.html
+
+**Angels lawyers press expert witness on Tyler Skaggs' future value**\
+`Meanwhile, MLB commissioner Rob Manfred said he has been following the trial and will review it at its conclusion.`\
+https://nytimes.com/athletic/6822198/2025/11/19/tyler-skaggs-trial-angels-lawyers-expert-witness-future-value/
+
 **As part of Astros’ payroll reshuffling, Mauricio Dubón traded to Braves**\
 `Dubón, a two-time utility Gold Glove winner, brings defensive versatility to the Braves.`\
 https://nytimes.com/athletic/6822088/2025/11/19/mauricio-dubon-trade-astros-braves-mlb/

@@ -1,3 +1,11 @@
+**Books That Examine the Past and Present of the Middle East Take National Book Awards**\
+`Rabih Alameddine’s “The True True Story of Raja the Gullible (and His Mother)” won in fiction, while Omar El Akkad’s reckoning with Gaza took the nonfiction prize.`\
+https://nytimes.com/2025/11/19/books/review/omar-el-akkad-rabih-alameddine-national-book-awards.html
+
+**Angels lawyers press expert witness on Tyler Skaggs' future value**\
+`Meanwhile, MLB commissioner Rob Manfred said he has been following the trial and will review it at its conclusion.`\
+https://nytimes.com/athletic/6822198/2025/11/19/tyler-skaggs-trial-angels-lawyers-expert-witness-future-value/
+
 **Angel City's Savy King unveils league-wide safety initiative for heart health**\
 `Players, coaches and staff across the league will take part in free CPR training.`\
 https://nytimes.com/athletic/6822204/2025/11/19/angel-city-savy-king-safety-initiative-heart-health/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6821505/2025/11/19/adam-lowry-jets-agree-on-5-year-
 **Saudi Arabia, Once Shunned, Has Corporate Titans Swooning for Deals**\
 `Some of the most prominent U.S. executives gathered at the Kennedy Center for an event promoting deal-making with the oil-rich kingdom.`\
 https://nytimes.com/2025/11/19/business/saudi-investment-forum-kennedy-center.html
-
-**Steve Kerr endorses Erik Spoelstra as 'great choice' for Team USA  coach**\
-`Spoelstra, who previously served under Kerr, helped Team USA finish fourth at the 2023 FIBA World Cup and win 2024 Olympic gold.`\
-https://nytimes.com/athletic/6821983/2025/11/19/erik-spoelstra-steve-kerr-usa-basketball-olympics/
-
-**House Votes to Kill Bill Allowing Senators to Sue Government**\
-`The measure has prompted a backlash, but the top Senate Republican appeared inclined to preserve it, arguing that it would protect the body against investigatory overreach.`\
-https://nytimes.com/2025/11/19/us/politics/house-votes-to-kill-bill-allowing-senators-to-sue-government.html
 
