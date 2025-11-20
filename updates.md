@@ -1,3 +1,7 @@
+**The New York Times in Print for Thursday, Nov. 20, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/20/todays-new-york-times
+
 **Indonesia’s Mount Semeru Erupts and Rains Ash on Villages**\
 `Mount Semeru on the island of Java is one of the Indonesia’s most active volcanoes. Its latest eruption forced hundreds to flee their homes.`\
 https://nytimes.com/2025/11/20/world/asia/indonesia-mount-semeru-eruption.html

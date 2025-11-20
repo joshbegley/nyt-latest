@@ -1,3 +1,7 @@
+**The New York Times in Print for Thursday, Nov. 20, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/20/todays-new-york-times
+
 **Indonesia’s Mount Semeru Erupts and Rains Ash on Villages**\
 `Mount Semeru on the island of Java is one of the Indonesia’s most active volcanoes. Its latest eruption forced hundreds to flee their homes.`\
 https://nytimes.com/2025/11/20/world/asia/indonesia-mount-semeru-eruption.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6820738/2025/11/20/premier-league-anchoring-salary-
 **Premier League return's predictions and storylines: Title race, relegation picture and Haaland's goals record**\
 `Who is really in the title race? Are Newcastle in a relegation scrap? Can Haaland break his own record? The Premier League is back`\
 https://nytimes.com/athletic/6819522/2025/11/20/premier-league-predictions-title/
-
-**Celebrating the chaotic variety of Premier League club commentary: 'Have some of that!'**\
-`There is no standard way for football clubs to narrate highlights of their games – and that's a very good thing indeed`\
-https://nytimes.com/athletic/6804228/2025/11/20/premier-league-club-highlights-commentary/
 
