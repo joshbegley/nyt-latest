@@ -1,3 +1,7 @@
+**'Yo, Tyrese really got better': Even the Sixers are wowed by Maxey's latest leap**\
+`Paul George is among those gushing about Maxey's growth: "This is similar to what Allen Iverson once did for the city."`\
+https://nytimes.com/athletic/6822181/2025/11/20/tyrese-maxey-76ers-improvement-nba/
+
 **The Pulse: The actual best job in football**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6820414/2025/11/20/nfl-long-snappers-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6816188/2025/11/20/nba-draft-state-farm-champions-c
 **Shedeur Sanders at QB, Myles Garrett's record quest make the Browns worth watching**\
 `Sanders is making his first career start vs. the Raiders, while Garrett is eight sacks away from breaking the single-season record.`\
 https://nytimes.com/athletic/6821481/2025/11/20/shedeur-sanders-myles-garrett-browns-raiders/
-
-**Can it ever work in the NFL when a coach gets fired but the GM remains?**\
-`The Giants appear set to keep their GM but hire a new head coach, an organizational transition with historically mixed results.`\
-https://nytimes.com/athletic/6821833/2025/11/20/nfl-holdover-gms-joe-schoen/
 
