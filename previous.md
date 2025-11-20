@@ -1,3 +1,7 @@
+**Dead Sperm Whale on Nantucket Is Too Big to Move, for Now**\
+`A local nonprofit said the 52-ton mammal is “far too big, awkward and heavy to remove.” A town official later said it could be dragged out to sea by Thanksgiving.`\
+https://nytimes.com/2025/11/20/us/dead-sperm-whale-nantucket.html
+
 **How to watch Panthers vs. 49ers: Time, TV, streaming**\
 `Find out how to watch the Carolina Panthers play the San Francisco 49ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6822492/2025/11/20/panthers-vs-49ers-stream-how-to-watch-nov-24/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6816814/2025/11/20/ashes-australia-england-steyn/
 **Despite loss, Warriors finish road trip on high note with team's renewed camaraderie**\
 `Warriors veterans Jimmy Butler and Steph Curry missed Wednesday's game but coached and offered advice to their younger teammates.`\
 https://nytimes.com/athletic/6822297/2025/11/20/warriors-road-trip-losses-camaraderie/
-
-**What Man Utd's players did in the international break: Casemiro thrives, Dorgu's goal, Mbeumo misses out**\
-`The positives and negatives for Old Trafford players who were away representing their countries over the past two weeks`\
-https://nytimes.com/athletic/6819772/2025/11/20/what-man-utds-players-did-in-the-international-break/
 

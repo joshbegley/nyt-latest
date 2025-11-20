@@ -1,3 +1,7 @@
+**Dead Sperm Whale on Nantucket Is Too Big to Move, for Now**\
+`A local nonprofit said the 52-ton mammal is “far too big, awkward and heavy to remove.” A town official later said it could be dragged out to sea by Thanksgiving.`\
+https://nytimes.com/2025/11/20/us/dead-sperm-whale-nantucket.html
+
 **How to watch Panthers vs. 49ers: Time, TV, streaming**\
 `Find out how to watch the Carolina Panthers play the San Francisco 49ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6822492/2025/11/20/panthers-vs-49ers-stream-how-to-watch-nov-24/
