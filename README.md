@@ -1,3 +1,11 @@
+**Jimmy Kimmel Prepares for Hurricane Epstein**\
+`Kimmel wondered if President Trump might “pull a Taylor Swift and give us ‘The Epstein Files: Donnie’s Version.’”`\
+https://nytimes.com/2025/11/20/arts/television/jimmy-kimmel-prepares-for-hurricane-epstein.html
+
+**Word of the Day: revitalize**\
+`This word has appeared in 228 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/20/learning/word-of-the-day-revitalize.html
+
 **Operator Who Crashed Ferry Off South Korea Was Looking at His Phone**\
 `The operator and two other officers were charged with gross negligence after the ferry ran aground on Wednesday carrying 267 people.`\
 https://nytimes.com/2025/11/20/world/asia/south-korea-ferry-crash.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6819772/2025/11/20/what-man-utds-players-did-in-the
 **Why have Crystal Palace not won a league game after an international break under Glasner?**\
 `The international break might offer some degree of respite for Premier League squads, but it also carries a warning from history for Palace`\
 https://nytimes.com/athletic/6800733/2025/11/20/crystal-palace-international-break/
-
-**The making of Rob Edwards: Authenticity, caring for players and learning in non-League**\
-`The new Wolves head coach is back in familiar surroundings - we spoke to some of those who have seen his journey up close`\
-https://nytimes.com/athletic/6819838/2025/11/20/rob-edwards-wolves-middlesbrough/
-
-**AFCON FPL planning guide: How to make the most of your five free transfers**\
-`AFCON 2025 is set to be a defining stretch of the FPL season, and managers who use the extra transfers optimally will be the ones to profit`\
-https://nytimes.com/athletic/6817577/2025/11/20/fantasy-premier-league-afcon-salah-mbeumo/
 
