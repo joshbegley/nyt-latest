@@ -1,3 +1,7 @@
+**The Lane Kiffin coaching drama timeline: Why wouldn't we expect more carousel chaos?**\
+`For nearly two decades, Kiffin has made headlines with coaching carousel drama. Why would expect anything different this time?`\
+https://nytimes.com/athletic/6823469/2025/11/20/lane-kiffin-coach-timeline-ole-miss-florida-lsu/
+
 **With Adam Lowry extension Jets go all-in on a player, a core, and an era**\
 `The Winnipeg Jets are all in on Adam Lowry. They need to be all in on their contention window, too.`\
 https://nytimes.com/athletic/6821506/2025/11/20/jets-adam-lowry-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6823548/2025/11/20/blues-vs-flyers-stream-how-to-wa
 **How to watch Devils vs. Panthers: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the Florida Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6823546/2025/11/20/devils-vs-panthers-stream-how-to-watch-nov-20/
-
-**How to watch Iowa State vs. Drake women's basketball: Time, TV, streaming**\
-`Find out how to watch the Iowa State Cyclones play the Drake Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6823522/2025/11/20/iowa-state-vs-drake-stream-how-to-watch-nov-20/
 
