@@ -1,3 +1,7 @@
+**Australia hand debuts to Doggett and Weatherald, Smith dismisses Panesar sledge**\
+`Australia's stand-in captain laughed off calls for him to be barracked over 'Sandpapergate' from the former England off-spinner`\
+https://nytimes.com/athletic/6822421/2025/11/20/australia-smith-ashes-doggett-weatherald-panesar-sandpapergate/
+
 **Indonesia’s Mount Semeru Erupts**\
 `Mount Semeru, on Indonesia’s Java island, spewed huge clouds of ash that prompted hundreds of people to evacuate their homes on Wednesday.`\
 https://nytimes.com/video/world/asia/100000010534754/indonesia-mount-semeru-eruption.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/11/20/todays-new-york-times
 **Indonesia’s Mount Semeru Erupts and Rains Ash on Villages**\
 `Mount Semeru on the island of Java is one of the Indonesia’s most active volcanoes. Its latest eruption forced hundreds to flee their homes.`\
 https://nytimes.com/2025/11/20/world/asia/indonesia-mount-semeru-eruption.html
-
-**How to win in Australia: Commit to a plan, seize on any luck and 'push them to dark places'**\
-`Dale Steyn was a member of the South Africa side who won Down Under in 2008-09, the first team in 16 years to beat Australia on home soil`\
-https://nytimes.com/athletic/6816814/2025/11/20/ashes-australia-england-steyn/
 

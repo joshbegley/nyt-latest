@@ -1,3 +1,7 @@
+**Indonesia’s Mount Semeru Erupts**\
+`Mount Semeru, on Indonesia’s Java island, spewed huge clouds of ash that prompted hundreds of people to evacuate their homes on Wednesday.`\
+https://nytimes.com/video/world/asia/100000010534754/indonesia-mount-semeru-eruption.html
+
 **Dead Sperm Whale on Nantucket Is Too Big to Move, for Now**\
 `A local nonprofit said the 52-ton mammal is “far too big, awkward and heavy to remove.” A town official later said it could be dragged out to sea by Thanksgiving.`\
 https://nytimes.com/2025/11/20/us/dead-sperm-whale-nantucket.html

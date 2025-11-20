@@ -1,3 +1,7 @@
+**Indonesia’s Mount Semeru Erupts**\
+`Mount Semeru, on Indonesia’s Java island, spewed huge clouds of ash that prompted hundreds of people to evacuate their homes on Wednesday.`\
+https://nytimes.com/video/world/asia/100000010534754/indonesia-mount-semeru-eruption.html
+
 **Dead Sperm Whale on Nantucket Is Too Big to Move, for Now**\
 `A local nonprofit said the 52-ton mammal is “far too big, awkward and heavy to remove.” A town official later said it could be dragged out to sea by Thanksgiving.`\
 https://nytimes.com/2025/11/20/us/dead-sperm-whale-nantucket.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/20/world/asia/indonesia-mount-semeru-eruption.html
 **How to win in Australia: Commit to a plan, seize on any luck and 'push them to dark places'**\
 `Dale Steyn was a member of the South Africa side who won Down Under in 2008-09, the first team in 16 years to beat Australia on home soil`\
 https://nytimes.com/athletic/6816814/2025/11/20/ashes-australia-england-steyn/
-
-**Despite loss, Warriors finish road trip on high note with team's renewed camaraderie**\
-`Warriors veterans Jimmy Butler and Steph Curry missed Wednesday's game but coached and offered advice to their younger teammates.`\
-https://nytimes.com/athletic/6822297/2025/11/20/warriors-road-trip-losses-camaraderie/
 
