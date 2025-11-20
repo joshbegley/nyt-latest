@@ -1,3 +1,11 @@
+**Beef Biryani Tonight, Hojicha Cheesecake Pie Next Thursday**\
+`We lost it over this year’s crop of Thanksgiving pies. But first, a quick and comforting biryani made with ground beef.`\
+https://nytimes.com/2025/11/20/dining/beef-biryani-tonight-hojicha-cheesecake-pie-next-thursday.html
+
+**Forest's Hudson-Odoi 'in consideration' for Liverpool game, Chris Wood still out**\
+`Wood has not featured since the 3-0 defeat to Chelsea on October 18, in what proved to be Ange Postecoglou’s final game in charge.`\
+https://nytimes.com/athletic/6823378/2025/11/20/nottingham-forest-injury-news-hudson-odoi-wood/
+
 **Map: 3.2-Magnitude Earthquake Shakes the San Francisco Bay Area**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/11/20/us/san-ramon-california-earthquake.html
