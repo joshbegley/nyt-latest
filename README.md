@@ -1,3 +1,7 @@
+**Ex-Mayor Is Sentenced to Life for Human Trafficking Tied to Southeast Asia Scam Centers**\
+`A court in the Philippines convicted Alice Guo for trafficking people to a compound that officials have linked to online scams and organized crime.`\
+https://nytimes.com/2025/11/20/world/asia/alice-guo-life-sentence-philippines.html
+
 **The New York Times in Print for Thursday, Nov. 20, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/20/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6817577/2025/11/20/fantasy-premier-league-afcon-sal
 **Explained: Premier League 'anchoring', 'salary cap' and what Friday's vote means for your club**\
 `Premier League clubs will take part in three votes on Friday that will decide whether new regulations are brought in`\
 https://nytimes.com/athletic/6820738/2025/11/20/premier-league-anchoring-salary-cap-psr/
-
-**Premier League return's predictions and storylines: Title race, relegation picture and Haaland's goals record**\
-`Who is really in the title race? Are Newcastle in a relegation scrap? Can Haaland break his own record? The Premier League is back`\
-https://nytimes.com/athletic/6819522/2025/11/20/premier-league-predictions-title/
 
