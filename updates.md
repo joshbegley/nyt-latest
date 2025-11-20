@@ -1,3 +1,11 @@
+**False accounting case involving Napoli and De Laurentiis referred to trial by Rome judge**\
+`Club president De Laurentiis and Napoli chief executive Andrea Chiavelli were placed under investigation and will stand trial.`\
+https://nytimes.com/athletic/6824417/2025/11/20/napoli-false-accounting-case/
+
+**Free beer, T-shirts: Rice looks to boost attendance for North Texas matchup**\
+`Rice, an FBS school with an undergraduate population just shy of 5,000, wants a big turnout with bowl eligibility on the line.`\
+https://nytimes.com/athletic/6824499/2025/11/20/rice-north-texas-beer-college-football-promotion/
+
 **Fire Breaks Out at COP30**\
 `A pavilion caught on fire during negotiations at the COP30 global climate summit in Belém, Brazil, on Thursday. It is the latest in a series of mishaps for the annual conference this year.`\
 https://nytimes.com/video/climate/100000010536799/fire-breaks-out-at-cop30.html
