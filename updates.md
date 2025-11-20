@@ -1,3 +1,7 @@
+**As Sanctions on Russian Oil Loom, India Prepares to End Its Buying Spree**\
+`India has been snapping up discounted Russian crude for three years, but U.S. sanctions that take effect on Friday are expected to end the lucrative trade.`\
+https://nytimes.com/2025/11/20/business/india-russia-oil-sanctions.html
+
 **These Rocketry Hobbyists Are Not Just Playing Around**\
 `At a rocketry club’s monthly launch, some of the projectiles flew as high as 4,500 feet, carrying onboard cameras, GPS trackers and altimeter-activated parachutes.`\
 https://nytimes.com/2025/11/20/nyregion/rocket-club-new-york.html

@@ -1,3 +1,7 @@
+**As Sanctions on Russian Oil Loom, India Prepares to End Its Buying Spree**\
+`India has been snapping up discounted Russian crude for three years, but U.S. sanctions that take effect on Friday are expected to end the lucrative trade.`\
+https://nytimes.com/2025/11/20/business/india-russia-oil-sanctions.html
+
 **These Rocketry Hobbyists Are Not Just Playing Around**\
 `At a rocketry club’s monthly launch, some of the projectiles flew as high as 4,500 feet, carrying onboard cameras, GPS trackers and altimeter-activated parachutes.`\
 https://nytimes.com/2025/11/20/nyregion/rocket-club-new-york.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/20/us/dead-sperm-whale-nantucket.html
 **How to watch Panthers vs. 49ers: Time, TV, streaming**\
 `Find out how to watch the Carolina Panthers play the San Francisco 49ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6822492/2025/11/20/panthers-vs-49ers-stream-how-to-watch-nov-24/
-
-**Jimmy Kimmel Prepares for Hurricane Epstein**\
-`Kimmel wondered if President Trump might “pull a Taylor Swift and give us ‘The Epstein Files: Donnie’s Version.’”`\
-https://nytimes.com/2025/11/20/arts/television/jimmy-kimmel-prepares-for-hurricane-epstein.html
 
