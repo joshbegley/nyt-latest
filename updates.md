@@ -1,3 +1,7 @@
+**How to watch Panthers vs. 49ers: Time, TV, streaming**\
+`Find out how to watch the Carolina Panthers play the San Francisco 49ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6822492/2025/11/20/panthers-vs-49ers-stream-how-to-watch-nov-24/
+
 **Jimmy Kimmel Prepares for Hurricane Epstein**\
 `Kimmel wondered if President Trump might “pull a Taylor Swift and give us ‘The Epstein Files: Donnie’s Version.’”`\
 https://nytimes.com/2025/11/20/arts/television/jimmy-kimmel-prepares-for-hurricane-epstein.html

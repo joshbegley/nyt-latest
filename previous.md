@@ -1,3 +1,7 @@
+**How to watch Panthers vs. 49ers: Time, TV, streaming**\
+`Find out how to watch the Carolina Panthers play the San Francisco 49ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6822492/2025/11/20/panthers-vs-49ers-stream-how-to-watch-nov-24/
+
 **Jimmy Kimmel Prepares for Hurricane Epstein**\
 `Kimmel wondered if President Trump might “pull a Taylor Swift and give us ‘The Epstein Files: Donnie’s Version.’”`\
 https://nytimes.com/2025/11/20/arts/television/jimmy-kimmel-prepares-for-hurricane-epstein.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6822297/2025/11/20/warriors-road-trip-losses-camara
 **What Man Utd's players did in the international break: Casemiro thrives, Dorgu's goal, Mbeumo misses out**\
 `The positives and negatives for Old Trafford players who were away representing their countries over the past two weeks`\
 https://nytimes.com/athletic/6819772/2025/11/20/what-man-utds-players-did-in-the-international-break/
-
-**Why have Crystal Palace not won a league game after an international break under Glasner?**\
-`The international break might offer some degree of respite for Premier League squads, but it also carries a warning from history for Palace`\
-https://nytimes.com/athletic/6800733/2025/11/20/crystal-palace-international-break/
 
