@@ -1,3 +1,11 @@
+**NFL defensive coaches shed light on league's matching-mismatching strategy trend**\
+`Versatile players like Kyle Hamilton and Quentin Lake are giving defensive coordinators an advantage in the chess game.`\
+https://nytimes.com/athletic/6813737/2025/11/20/nfl-defensive-coaches-mismatching-matching/
+
+**Leitch: College football is supposed to be fun. We can't stop ourselves from wanting more**\
+`Sports fans have always been impatient for more success. Has the College Football Playoff made that even truer?`\
+https://nytimes.com/athletic/6820920/2025/11/20/college-football-fans-playoff-championships-expectations/
+
 **'Yo, Tyrese really got better': Even the Sixers are wowed by Maxey's latest leap**\
 `Paul George is among those gushing about Maxey's growth: "This is similar to what Allen Iverson once did for the city."`\
 https://nytimes.com/athletic/6822181/2025/11/20/tyrese-maxey-76ers-improvement-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6817737/2025/11/20/ben-johnson-good-better-best-bea
 **What saved a heartbroken 14-year NFL veteran? It's magic**\
 `How Jon Dorenbos turned unthinkable tragedy and a career-ending heart condition into a message of hope and forgiveness`\
 https://nytimes.com/athletic/6780425/2025/11/20/jon-dorenbos-nfl-philadelphia-eagles/
-
-**NBA Draft takeaways: Cam Boozer's hurdles; Kingston Flemings' rise**\
-`This year's Champions Classic didn't have the same spark, but we learned a few things worth remembering as the draft cycle heats up.`\
-https://nytimes.com/athletic/6816188/2025/11/20/nba-draft-state-farm-champions-classic-prospects/
-
-**Shedeur Sanders at QB, Myles Garrett's record quest make the Browns worth watching**\
-`Sanders is making his first career start vs. the Raiders, while Garrett is eight sacks away from breaking the single-season record.`\
-https://nytimes.com/athletic/6821481/2025/11/20/shedeur-sanders-myles-garrett-browns-raiders/
 

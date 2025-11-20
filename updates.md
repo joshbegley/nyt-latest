@@ -1,3 +1,7 @@
+**'Yo, Tyrese really got better': Even the Sixers are wowed by Maxey's latest leap**\
+`Paul George is among those gushing about Maxey's growth: "This is similar to what Allen Iverson once did for the city."`\
+https://nytimes.com/athletic/6822181/2025/11/20/tyrese-maxey-76ers-improvement-nba/
+
 **The Pulse: The actual best job in football**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6820414/2025/11/20/nfl-long-snappers-the-pulse/
