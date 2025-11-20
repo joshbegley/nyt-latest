@@ -1,3 +1,15 @@
+**Jason Kidd says he never considered leaving Mavericks to coach Knicks**\
+`Dallas coach confirmed that his team denied New York's request to interview him, but says leaving "never crossed my mind."`\
+https://nytimes.com/athletic/6822006/2025/11/19/jason-kidd-mavericks-coach-knicks/
+
+**Tiny Love Stories: ‘Dating Straight Boys’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/11/19/style/tiny-modern-love-stories-dating-straight-boys.html
+
+**Florida Lawmaker Stole FEMA Funds for House Campaign, Prosecutors Say**\
+`Representative Sheila Cherfilus-McCormick misused $5 million in Covid-related funds during the pandemic in part to finance her campaign, according to the Justice Department.`\
+https://nytimes.com/2025/11/19/us/cherfilus-mccormick-fema-florida-indictment.html
+
 **Nvidia Earnings Fuel Rally in Global Technology Stocks**\
 `The chipmaker’s profit surge and strong revenue forecast helped to ease fears that spending on A.I. infrastructure might be outpacing demand.`\
 https://nytimes.com/2025/11/19/business/stocks-nvidia-earnings.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6821656/2025/11/19/warriors-injury-report-curry-but
 **Maryland lands 5-star Baba Oladotun: What this means for Terrapins**\
 `Oladotun averaged 13.2 points, 5.8 rebounds and 1.5 assists per game this summer on the Nike EYBL circuit.`\
 https://nytimes.com/athletic/6821689/2025/11/19/maryland-lands-baba-oladotun-terrapins-recruitment/
-
-**Joe Burrow back at practice? No Ja’Marr Chase? How Bengals offensive pieces are shuffling**\
-`Bengals coach Zac Taylor wasn’t willing to give any hints about Burrow's timeline to play.`\
-https://nytimes.com/athletic/6821515/2025/11/19/joe-burrow-practice-jamarr-chase-bengals/
-
-**Scoop City: Are officials tush pushed out?**\
-`Why officiating controversy shouldn't lead to a tush push ban`\
-https://nytimes.com/athletic/6821763/2025/11/19/nfl-tush-push-ban-missed-calls-officials-scoop-city/
-
-**Cooper Flagg to miss first game of career Wednesday against New York**\
-`Flagg is averaging 15.5 points, 6.3 rebounds and 3.1 assists this season. He leads the Mavericks in total minutes.`\
-https://nytimes.com/athletic/6821482/2025/11/19/ooper-flagg-status-illness-mavericks-nba/
 

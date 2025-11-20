@@ -1,3 +1,15 @@
+**Jason Kidd says he never considered leaving Mavericks to coach Knicks**\
+`Dallas coach confirmed that his team denied New York's request to interview him, but says leaving "never crossed my mind."`\
+https://nytimes.com/athletic/6822006/2025/11/19/jason-kidd-mavericks-coach-knicks/
+
+**Tiny Love Stories: ‘Dating Straight Boys’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/11/19/style/tiny-modern-love-stories-dating-straight-boys.html
+
+**Florida Lawmaker Stole FEMA Funds for House Campaign, Prosecutors Say**\
+`Representative Sheila Cherfilus-McCormick misused $5 million in Covid-related funds during the pandemic in part to finance her campaign, according to the Justice Department.`\
+https://nytimes.com/2025/11/19/us/cherfilus-mccormick-fema-florida-indictment.html
+
 **Nvidia Earnings Fuel Rally in Global Technology Stocks**\
 `The chipmaker’s profit surge and strong revenue forecast helped to ease fears that spending on A.I. infrastructure might be outpacing demand.`\
 https://nytimes.com/2025/11/19/business/stocks-nvidia-earnings.html
