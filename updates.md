@@ -1,3 +1,11 @@
+**Lawsuit Challenges Trump Administration Over $1.8 Million in Immigration Fines**\
+`A class-action suit accuses the Trump administration of weaponizing civil penalties to force undocumented migrants to self-deport through enormous penalties.`\
+https://nytimes.com/2025/11/20/us/politics/lawsuit-immigration-penalties.html
+
+**The Lane Kiffin coaching drama timeline: Why wouldn't we expect more carousel chaos?**\
+`For nearly two decades, Kiffin has made headlines with coaching carousel drama. Why would expect anything different this time?`\
+https://nytimes.com/athletic/6823469/2025/11/20/lane-kiffin-coach-timeline-ole-miss-florida-lsu/
+
 **With Adam Lowry extension Jets go all-in on a player, a core, and an era**\
 `The Winnipeg Jets are all in on Adam Lowry. They need to be all in on their contention window, too.`\
 https://nytimes.com/athletic/6821506/2025/11/20/jets-adam-lowry-extension/
