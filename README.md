@@ -1,40 +1,40 @@
-**Inside a revamped Red Sox pitching program that is starting to produce results**\
-`The Red Sox made big changes that allowed them to fast-track Payton Tolle and Connelly Early to the majors. What comes next?`\
-https://nytimes.com/athletic/6821416/2025/11/20/red-sox-pitching-program-tolle-early-mlb/
+**The Pulse: The actual best job in football**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6820414/2025/11/20/nfl-long-snappers-the-pulse/
 
-**Tarik Skubal trade scenarios: 5 potential packages for the AL's top pitcher**\
-`If the Tigers decide to trade Skubal, there really are only a handful of teams that they will match-up well with in terms of personnel. `\
-https://nytimes.com/athletic/6815157/2025/11/20/tarik-skubal-trade-scenarios-tigers-dodgers-yankees-mets-mariners-red-sox/
+**Why Toronto is a top women's sports city — despite being snubbed by The Athletic**\
+`Despite not cracking The Athletic's list of top women's sports cities, Toronto boasts pro women's sports teams with passionate fan bases.`\
+https://nytimes.com/athletic/6807865/2025/11/20/womens-sports-cities-toronto-pwhl-wnba/
 
-**Until Wednesday, the Steelers were guarding football’s worst-kept secret**\
-`The number no one would speak, and the unique weapon weighing on opponents.`\
-https://nytimes.com/athletic/6822118/2025/11/20/darnell-washington-pittsburgh-steelers/
+**Lions are missing a key offensive piece and replacing his impact won't be simple**\
+`LaPorta will miss at least three more games while on IR and will be missed. "He's a special player," OC John Morton said. `\
+https://nytimes.com/athletic/6822130/2025/11/20/lions-sam-laporta-tight-end-ir-replacement/
 
-**Starting pitching doomed the Mets in 2025. How can they fix it?**\
-`Dylan Cease, Framber Valdez and Ranger Suárez stand out as potential front-line additions to the rotation.`\
-https://nytimes.com/athletic/6821348/2025/11/20/mets-rotation-mlb-free-agency-dylan-cease/
+**Trump Meeting With Saudi Prince Showcased Prince’s Makeover — and America’s**\
+`Prince Mohammed was briefly a global pariah after the killing of a Saudi dissident. But over the years he has rebuilt his image as a deal-maker and influential investor.`\
+https://nytimes.com/2025/11/20/world/middleeast/trump-saudi-prince-mohammed-meeting.html
 
-**The New York Times International Edition in Print for Friday, Nov. 21, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/11/20/todays-new-york-times-international-edition
+**Bills at Texans on TNF: Josh Allen's MVP push, monochrome uniforms, broadcast props**\
+`Josh Allen is on the verge of a milestone, but he faces a stingy Houston defense. Here's your prep for Week 12's "Thursday Night Football."`\
+https://nytimes.com/athletic/6818425/2025/11/20/bills-texans-josh-allen-tnf-how-to-watch/
 
-**Move Over, Netflix: Ukraine’s Corruption Investigators Bring the Drama**\
-`The country’s anti-graft agencies have taken a cinematic approach to revealing a scandal that has touched President Volodymyr Zelensky’s inner circle.`\
-https://nytimes.com/2025/11/20/world/europe/ukraine-corruption-zelensky.html
+**How Ben Johnson made 'Good, better, best' a motto for the Bears**\
+`Johnson has made "Good, better, best" a part of the lexicon in Chicago. Here's how that phrase became the team motto.`\
+https://nytimes.com/athletic/6817737/2025/11/20/ben-johnson-good-better-best-bears/
 
-**Must-See Moments From the N.B.A.**\
-`On Wednesday, Nikola Vucevic saved the Chicago Bulls, the New York Knicks earned their first road win of the season, and the Toronto Raptors stayed hot against the Philadelphia 76ers.`\
-https://nytimes.com/video/sports/basketball/100000010535088/must-see-moments-from-the-nba.html
+**What saved a heartbroken 14-year NFL veteran? It's magic**\
+`How Jon Dorenbos turned unthinkable tragedy and a career-ending heart condition into a message of hope and forgiveness`\
+https://nytimes.com/athletic/6780425/2025/11/20/jon-dorenbos-nfl-philadelphia-eagles/
 
-**How to watch Appalachian State vs. West Virginia women's basketball: Time, TV, streaming**\
-`Find out how to watch the Appalachian State Mountaineers play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6822752/2025/11/20/appalachian-state-vs-west-virginia-stream-how-to-watch-nov-20/
+**NBA Draft takeaways: Cam Boozer's hurdles; Kingston Flemings' rise**\
+`This year's Champions Classic didn't have the same spark, but we learned a few things worth remembering as the draft cycle heats up.`\
+https://nytimes.com/athletic/6816188/2025/11/20/nba-draft-state-farm-champions-classic-prospects/
 
-**Bills vs. Texans Thursday Night Football betting: Player prop and a single-game parlay**\
-`Brad Evans scours sportsbooks for the best prop and single-game parlay for Thursday Night Football's matchup between the Bills and Texans. `\
-https://nytimes.com/athletic/6817779/2025/11/20/bills-texans-thursday-night-football-betting-props-parlay/
+**Shedeur Sanders at QB, Myles Garrett's record quest make the Browns worth watching**\
+`Sanders is making his first career start vs. the Raiders, while Garrett is eight sacks away from breaking the single-season record.`\
+https://nytimes.com/athletic/6821481/2025/11/20/shedeur-sanders-myles-garrett-browns-raiders/
 
-**Marjorie Taylor Greene Was Not on Our Bingo Card**\
-`Have we been selling her short? Is she paving the way to the after-Trump?`\
-https://nytimes.com/2025/11/20/opinion/trump-marjorie-taylor-greene-republicans-maga.html
+**Can it ever work in the NFL when a coach gets fired but the GM remains?**\
+`The Giants appear set to keep their GM but hire a new head coach, an organizational transition with historically mixed results.`\
+https://nytimes.com/athletic/6821833/2025/11/20/nfl-holdover-gms-joe-schoen/
 
