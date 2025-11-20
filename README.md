@@ -1,3 +1,11 @@
+**From Osaka to the World: The Impact of Expo 2025**\
+`Expo 2025 Osaka, Kansai, Japan closes with its promises and lessons distilled into a declaration that imagines how societies can thrive together.`\
+https://nytimes.com/paidpost/japan-cabinet-secretariat/from-osaka-to-the-world-the-impact-of-expo-2025.html
+
+**Catholic Group Sues Trump Administration for Access to Immigration Facility**\
+`The Coalition for Spiritual and Public Leadership says its members have been blocked from ministering at an ICE detention center near Chicago.`\
+https://nytimes.com/2025/11/20/us/politics/catholic-broadview-ice-immigration-lawsuit.html
+
 **As Sanctions on Russian Oil Loom, India Prepares to End Its Buying Spree**\
 `India has been snapping up discounted Russian crude for three years, but U.S. sanctions that take effect on Friday are expected to end the lucrative trade.`\
 https://nytimes.com/2025/11/20/business/india-russia-oil-sanctions.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6822421/2025/11/20/australia-smith-ashes-doggett-we
 **Indonesia’s Mount Semeru Erupts**\
 `Mount Semeru, on Indonesia’s Java island, spewed huge clouds of ash that prompted hundreds of people to evacuate their homes on Wednesday.`\
 https://nytimes.com/video/world/asia/100000010534754/indonesia-mount-semeru-eruption.html
-
-**Dead Sperm Whale on Nantucket Is Too Big to Move, for Now**\
-`A local nonprofit said the 52-ton mammal is “far too big, awkward and heavy to remove.” A town official later said it could be dragged out to sea by Thanksgiving.`\
-https://nytimes.com/2025/11/20/us/dead-sperm-whale-nantucket.html
-
-**How to watch Panthers vs. 49ers: Time, TV, streaming**\
-`Find out how to watch the Carolina Panthers play the San Francisco 49ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6822492/2025/11/20/panthers-vs-49ers-stream-how-to-watch-nov-24/
 
