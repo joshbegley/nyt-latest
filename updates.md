@@ -1,3 +1,5 @@
+
+
 **Nydia Velázquez, a New York Trailblazer in Congress, to Retire Next Year**\
 `Ms. Velázquez, 72, a 16-term congresswoman, said it was time for a new generation of Democrats to step forward.`\
 https://nytimes.com/2025/11/20/nyregion/nydia-velazquez-retire.html
