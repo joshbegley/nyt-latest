@@ -1,3 +1,11 @@
+**Elias Pettersson has been better for the Canucks, but there's more to be done**\
+`Breaking down Pettersson's promising signs of progress and the areas in which he still has another level to reach.`\
+https://nytimes.com/athletic/6822467/2025/11/20/canucks-elias-pettersson-better-centre/
+
+**61 Hot Takes to Fight About at Thanksgiving**\
+`Who’s cooking, and who’s cooked?`\
+https://nytimes.com/interactive/2025/11/20/dining/thanksgiving-hot-takes.html
+
 **From Burns' leg stump to Harmison's wide: How the first ball of the Ashes can set the tone**\
 `The memory of Michael Slater carving through point or the ball whistling past Justin Langer's nose also endure from recent Ashes series`\
 https://nytimes.com/athletic/6804243/2025/11/20/ashes-england-australia-harmison-burns-slater-hussain/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/business/jobs-report-economy/this-report-will-be-t
 **Trump Administration Live Updates: President Signs Bill to Release Epstein Files**\
 ``\
 https://nytimes.com/live/2025/11/20/us/trump-admin
-
-**Should LaNorris Sellers enter 2026 NFL Draft? Breaking down the South Carolina QB's film**\
-`Sellers faces a decision that could have a significant impact on the '26 draft and next season's college football landscape.`\
-https://nytimes.com/athletic/6820722/2025/11/20/nfl-draft-2026-scouting-lanorris-sellers-film/
-
-**Inside F1 livery design: How art, sponsors and the science of speed collide**\
-`F1 teams have been using more special liveries for their cars in recent years. This is how the complicated design process works`\
-https://nytimes.com/athletic/6822391/2025/11/20/f1-car-liveries-explained/
 
