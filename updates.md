@@ -1,3 +1,11 @@
+**Nydia Velázquez, a New York Trailblazer in Congress, to Retire Next Year**\
+`Ms. Velázquez, 72, a 16-term congresswoman, said it was time for a new generation of Democrats to step forward.`\
+https://nytimes.com/2025/11/20/nyregion/nydia-velazquez-retire.html
+
+**A Trusted Partner on Your Caregiving Journey **\
+`When the Elliott sisters needed help with an inaccurate out-of-pocket charge for their mother’s medication, they were met with compassion and quick solutions from CVS Specialty.`\
+https://nytimes.com/paidpost/cvs-health/a-trusted-partner-on-your-caregiving-journey.html
+
 **The Privacy Battle in Our Brains**\
 `My colleague talks about technology that can actually read our minds — and maybe even change them.`\
 https://nytimes.com/2025/11/20/world/privacy-battle-in-brains-technology-saudi-mamdani.html
