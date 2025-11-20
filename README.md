@@ -1,3 +1,7 @@
+**Nydia Velázquez, a New York Trailblazer in Congress, to Retire Next Year**\
+`Ms. Velázquez, 72, a 16-term congresswoman, said it was time for a new generation of Democrats to step forward.`\
+https://nytimes.com/2025/11/20/nyregion/nydia-velazquez-retire.html
+
 **A Trusted Partner on Your Caregiving Journey **\
 `When the Elliott sisters needed help with an inaccurate out-of-pocket charge for their mother’s medication, they were met with compassion and quick solutions from CVS Specialty.`\
 https://nytimes.com/paidpost/cvs-health/a-trusted-partner-on-your-caregiving-journey.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/20/world/africa/nigeria-school-kidnapping-escape.htm
 **Kalle Rovanpera, a Rally Champion, Hopes to Make a Different Leap**\
 `He is leaving the sport to jump into open-wheel racing, with an eye on Formula 1.`\
 https://nytimes.com/2025/11/20/sports/f1-kalle-rovanpera-rally-champion.html
-
-**The A.I. Boom Has Found Another Gear. Why Can’t People Shake Their Worries?**\
-`It is a time of superlatives in the tech industry, with historic profits, stock prices and deal prices. It’s enough to make some people very nervous.`\
-https://nytimes.com/2025/11/20/technology/ai-stock-boom-nvidia.html
 
