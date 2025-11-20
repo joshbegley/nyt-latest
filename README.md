@@ -1,3 +1,11 @@
+**The Moon Was an Inside Job**\
+`New research suggests that Theia, the object whose collision with Earth is theorized to have caused the formation of the moon, came from closer to the sun.`\
+https://nytimes.com/2025/11/20/science/moon-collision-earth-theia.html
+
+**Border Patrol Ends Operation in Charlotte, N.C.**\
+`The operation, which led to more than 370 arrests, had put a purple state firmly at the center of one of the Trump administration’s most visible immigration strategies.`\
+https://nytimes.com/2025/11/20/us/border-patrol-charlotte.html
+
 **Ferry Crashed From Distracted Operator Looking At Phone, Officials Say**\
 `The ferry was carrying 267 passengers and crew members on board when it struck a rocky islet in South Korea on Wednesday. About 27 passengers suffered minor injuries or dizziness. The ferry’s captain and two officers were charged with injury by gross negligence.`\
 https://nytimes.com/video/world/asia/100000010535989/ferry-crashed-from-distracted-operator-looking-at-phone-officials-say.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/20/climate/fire-cop30-belem-climate.html
 **Louvre’s Embattled Leader Defends Contested Renovation Plan, and Her Tenure**\
 `In one of her very few interviews since the museum heist, Laurence des Cars said the plan would increase much-needed security, but critics say it is too focused on new construction.`\
 https://nytimes.com/2025/11/20/world/europe/louvre-director-theft-renovation.html
-
-**Jessica Berman: The NWSL's most influential commissioner faces her toughest tests yet**\
-`NWSL and Berman agreed to a three-year contract extension through 2028.`\
-https://nytimes.com/athletic/6823398/2025/11/20/nwsl-commissioner-interview-jessica-berman-soccer/
-
-**Senate Democrats Investigate Kennedy Center Deals With Trump Allies**\
-`Under Richard Grenell, the performing arts center has given steep discounts to CPAC and FIFA, signed contracts with administration associates and spent lavishly on friends.`\
-https://nytimes.com/2025/11/20/us/politics/democrats-kennedy-center-investigate.html
 
