@@ -1,3 +1,7 @@
+**Lawsuit Challenges Trump Administration Over $1.8 Million in Immigration Fines**\
+`A class-action suit accuses the Trump administration of weaponizing civil penalties to force undocumented migrants to self-deport through enormous penalties.`\
+https://nytimes.com/2025/11/20/us/politics/lawsuit-immigration-penalties.html
+
 **The Lane Kiffin coaching drama timeline: Why wouldn't we expect more carousel chaos?**\
 `For nearly two decades, Kiffin has made headlines with coaching carousel drama. Why would expect anything different this time?`\
 https://nytimes.com/athletic/6823469/2025/11/20/lane-kiffin-coach-timeline-ole-miss-florida-lsu/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6823550/2025/11/20/blue-jackets-vs-maple-leafs-stre
 **How to watch Blues vs. Flyers: Time, TV, streaming**\
 `Find out how to watch the St. Louis Blues play the Philadelphia Flyers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6823548/2025/11/20/blues-vs-flyers-stream-how-to-watch-nov-20/
-
-**How to watch Devils vs. Panthers: Time, TV, streaming**\
-`Find out how to watch the New Jersey Devils play the Florida Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6823546/2025/11/20/devils-vs-panthers-stream-how-to-watch-nov-20/
 
