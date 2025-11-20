@@ -1,3 +1,35 @@
+**Birmingham City unveil plans for new 62,000-capacity stadium**\
+`The proposed design for the 62,000 capacity ground includes twelve industrial-style chimneys to mimic the history of the city. `\
+https://nytimes.com/athletic/6823007/2025/11/20/birmingham-city-new-stadium/
+
+**What Teenagers Are Saying About Technology Bans**\
+`Students react to an article about the effectiveness of barring cellphones in classrooms and restricting social media for young people.`\
+https://nytimes.com/2025/11/20/learning/what-teenagers-are-saying-about-technology-bans.html
+
+**How to watch Islanders vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the New York Islanders play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6823557/2025/11/20/islanders-vs-red-wings-stream-how-to-watch-nov-20/
+
+**How to watch Clippers vs. Magic: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Clippers play the Orlando Magic, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6823555/2025/11/20/clippers-vs-magic-stream-how-to-watch-nov-20/
+
+**How to watch Capitals vs. Canadiens: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the Montreal Canadiens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6823552/2025/11/20/capitals-vs-canadiens-stream-how-to-watch-nov-20/
+
+**How to watch Blue Jackets vs. Maple Leafs: Time, TV, streaming**\
+`Find out how to watch the Columbus Blue Jackets play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6823550/2025/11/20/blue-jackets-vs-maple-leafs-stream-how-to-watch-nov-20/
+
+**How to watch Blues vs. Flyers: Time, TV, streaming**\
+`Find out how to watch the St. Louis Blues play the Philadelphia Flyers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6823548/2025/11/20/blues-vs-flyers-stream-how-to-watch-nov-20/
+
+**How to watch Devils vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the New Jersey Devils play the Florida Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6823546/2025/11/20/devils-vs-panthers-stream-how-to-watch-nov-20/
+
 **How to watch Iowa State vs. Drake women's basketball: Time, TV, streaming**\
 `Find out how to watch the Iowa State Cyclones play the Drake Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6823522/2025/11/20/iowa-state-vs-drake-stream-how-to-watch-nov-20/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6823522/2025/11/20/iowa-state-vs-drake-stream-how-t
 **How to watch Bucknell vs. St. John's men's basketball: Time, TV, streaming**\
 `Find out how to watch the Bucknell Bison play the St. John's Red Storm, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6823520/2025/11/20/bucknell-vs-st-john-s-stream-how-to-watch-nov-20/
-
-**How to watch Bethune-Cookman vs. Maryland women's basketball: Time, TV, streaming**\
-`Find out how to watch the Bethune-Cookman Wildcats play the Maryland Terrapins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6823517/2025/11/20/bethune-cookman-vs-maryland-stream-how-to-watch-nov-20/
-
-**How to watch Eastern Illinois vs. Michigan State women's basketball: Time, TV, streaming**\
-`Find out how to watch the Eastern Illinois Panthers play the Michigan State Spartans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6823518/2025/11/20/eastern-illinois-vs-michigan-state-stream-how-to-watch-nov-20/
-
-**How to watch Tennessee State vs. Tennessee men's basketball: Time, TV, streaming**\
-`Find out how to watch the Tennessee State Tigers play the Tennessee Volunteers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6823514/2025/11/20/tennessee-state-vs-tennessee-stream-how-to-watch-nov-20/
-
-**How to watch Memphis vs. Purdue men's basketball: Time, TV, streaming**\
-`Find out how to watch the Memphis Tigers play the Purdue Boilermakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6823511/2025/11/20/memphis-vs-purdue-stream-how-to-watch-nov-20/
-
-**How to watch North Carolina vs. N.C. A&T women's basketball: Time, TV, streaming**\
-`Find out how to watch the North Carolina Tar Heels play the North Carolina A&T Aggies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6823509/2025/11/20/north-carolina-vs-n-c-a-t-stream-how-to-watch-nov-20/
-
-**Ukraine Searches for Strike Survivors as Peace Plan Is Floated**\
-`The Trump administration has floated a 28-point peace plan to end Russia’s war in Ukraine as rescue crews continued to search for survivors of a deadly Russian strike in western Ukraine.`\
-https://nytimes.com/video/world/europe/100000010535408/ukraine-russia-usa-plan-ternopil.html
-
-**Beef Biryani Tonight, Hojicha Cheesecake Pie Next Thursday**\
-`We lost it over this year’s crop of Thanksgiving pies. But first, a quick and comforting biryani made with ground beef.`\
-https://nytimes.com/2025/11/20/dining/beef-biryani-tonight-hojicha-cheesecake-pie-next-thursday.html
-
-**Forest's Hudson-Odoi 'in consideration' for Liverpool game, Chris Wood still out**\
-`Wood has not featured since the 3-0 defeat to Chelsea on October 18, in what proved to be Ange Postecoglou’s final game in charge.`\
-https://nytimes.com/athletic/6823378/2025/11/20/nottingham-forest-injury-news-hudson-odoi-wood/
 
