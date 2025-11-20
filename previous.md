@@ -1,3 +1,7 @@
+**Paramount set to win Champions League broadcast rights in UK and Ireland**\
+`Paramount's expected win, at the expense of TNT Sports, follows a new-look tender process designed to attract a global streaming platform.`\
+https://nytimes.com/athletic/6823689/2025/11/20/champions-league-tv-uk-paramount/
+
 **What I'm hearing about the Penguins: Ben Kindel and a massive draft haul**\
 `The Penguins are over the moon about their 2025 NHL Draft class. `\
 https://nytimes.com/athletic/6822855/2025/11/20/penguins-ben-kindel-nhl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/20/us/politics/lawsuit-immigration-penalties.html
 **The Lane Kiffin coaching drama timeline: Why wouldn't we expect more carousel chaos?**\
 `For nearly two decades, Kiffin has made headlines with coaching carousel drama. Why would expect anything different this time?`\
 https://nytimes.com/athletic/6823469/2025/11/20/lane-kiffin-coach-timeline-ole-miss-florida-lsu/
-
-**With Adam Lowry extension Jets go all-in on a player, a core, and an era**\
-`The Winnipeg Jets are all in on Adam Lowry. They need to be all in on their contention window, too.`\
-https://nytimes.com/athletic/6821506/2025/11/20/jets-adam-lowry-extension/
 
