@@ -1,3 +1,11 @@
+**Judge Temporarily Blocks Deployment of National Guard in Washington**\
+`Judge Jia M. Cobb found that the presence of more than 2,000 National Guard troops, many from out of state, was most likely unlawful. She paused the order from taking effect until Dec. 11.`\
+https://nytimes.com/2025/11/20/us/politics/judge-blocks-national-guard-trump.html
+
+**Trump Calling Reporter ‘Piggy’ Was ‘Frankness,’ White House Says**\
+`Karoline Leavitt, the White House press secretary, addressed for the first time a schoolyard insult that President Trump lobbed at a Bloomberg News reporter last week.`\
+https://nytimes.com/2025/11/20/business/media/trump-leavitt-reporter-piggy.html
+
 **Lakers fire Joey, Jesse Buss from front-office positions: Sources**\
 `"I kind of felt like the writing was on the wall," Jesse Buss said in an interview with The Athletic.`\
 https://nytimes.com/athletic/6824062/2025/11/20/lakers-fire-joey-jesse-buss-from-front-office-positions-sources/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/20/weather/southern-california-rain-forecast.html
 **Israel Premier-Tech rebrands to NSN Cycling Team for 2026**\
 `The cycling team were the subject of many pro-Palestine protests during the 2025 season, particularly during the Vuelta a Espana`\
 https://nytimes.com/athletic/6824284/2025/11/20/israel-premier-tech-rebrand-nsn-2026/
-
-**The F.C.C. chair questioned the BBC over edits to a Trump speech.**\
-`By David McCabe`\
-https://nytimes.com/live/2025/11/20/us/trump-news-epstein-cheney/the-fcc-chair-questioned-the-bbc-over-trump-speech-edits
-
-**Paramount wins rights to broadcast Champions League games in the UK from 2027**\
-`Meanwhile, Sky Sports will become the exclusive UK broadcaster of Europa League and Conference League matches from the 2027/28 season.`\
-https://nytimes.com/athletic/6824067/2025/11/20/paramount-champions-league-broadcast-rights/
 
