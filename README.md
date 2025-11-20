@@ -1,3 +1,19 @@
+**CeeDee Lamb says he and George Pickens were disciplined for missing curfew**\
+`Despite missing opening series, both receivers had big games in win over Las Vegas.`\
+https://nytimes.com/athletic/6824556/2025/11/20/ceedee-lamb-george-pickens-disciplined-cowboys-raiders/
+
+**Shilo Sanders faces new lawsuit alleging $164K in unpaid legal fees**\
+`Shilo Sanders faces escalating legal troubles over more than $164,000 in allegedly unpaid legal fees and interest.`\
+https://nytimes.com/athletic/6824293/2025/11/20/shilo-sanders-lawsuit-unpaid-legal-fees/
+
+**A Trump Overhaul of the Energy Dept. Breaks Up Clean Energy Offices**\
+`The reorganization reflects the ongoing shift in the federal government’s energy priorities: less renewable energy, more fossil fuels.`\
+https://nytimes.com/2025/11/20/climate/clean-energy-department-offices.html
+
+**WATCH: 4 NFL plays that prove Shedeur Sanders isn't ready (yet)**\
+`Chase Daniel says that Sanders is not ready to be an NFL starter. But it may not be for the reasons you think.`\
+https://nytimes.com/athletic/6824398/2025/11/20/watch-browns-shedeur-sanders-debut/
+
 **Hiring Increased, but So Did the Unemployment Rate**\
 `Also, bear attacks are disrupting life in rural Japan. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/11/20/briefing/jobs-report-ukraine-peace-college-radio.html
@@ -17,20 +33,4 @@ https://nytimes.com/paidpost/cvs-health/a-trusted-partner-on-your-caregiving-jou
 **The Privacy Battle in Our Brains**\
 `My colleague talks about technology that can actually read our minds — and maybe even change them.`\
 https://nytimes.com/2025/11/20/world/privacy-battle-in-brains-technology-saudi-mamdani.html
-
-**Baylor, AD Mack Rhoades expected to immediately part ways: Source**\
-`Rhoades, who has been the school’s athletic director since 2016, has been on a leave of absence for personal reasons since Nov. 13.`\
-https://nytimes.com/athletic/6824462/2025/11/20/baylor-mack-rhoades-part-ways-athletic-director/
-
-**20 Years On, Fernando Alonso Still Has His Eyes on the Prize**\
-`A third title? Why not? He’s confident that Aston Martin’s strategy will pay off.`\
-https://nytimes.com/2025/11/20/sports/f1-fernando-alonso-aston-martin.html
-
-**CrowdStrike CEO George Kurtz becomes Mercedes F1 co-owner, team valued at $6bn**\
-`The 55-year-old has acquired a 15% stake in the holding company owned by long-time Mercedes team principal, Toto Wolff.`\
-https://nytimes.com/athletic/6824455/2025/11/20/george-kurtz-mercedes-sale-f1/
-
-**Dick Cheney Is Honored at Washington National Cathedral**\
-`An unusual mix of Democrats and Republicans came together on Thursday to pay tribute to the former vice president, who led an aggressive response against terrorism after Sept.`\
-https://nytimes.com/video/us/politics/100000010536098/dick-cheney-memorial-washington.html
 

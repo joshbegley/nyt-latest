@@ -1,3 +1,7 @@
+**Hiring Increased, but So Did the Unemployment Rate**\
+`Also, bear attacks are disrupting life in rural Japan. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/11/20/briefing/jobs-report-ukraine-peace-college-radio.html
+
 **Inside the players-only meeting that turned the Wild's season around**\
 `The Wild had their worst October in franchise history. Captain Jared Spurgeon brought the players together to talk it out.`\
 https://nytimes.com/athletic/6824149/2025/11/20/wild-players-only-meeting/

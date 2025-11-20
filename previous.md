@@ -1,3 +1,7 @@
+**Hiring Increased, but So Did the Unemployment Rate**\
+`Also, bear attacks are disrupting life in rural Japan. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/11/20/briefing/jobs-report-ukraine-peace-college-radio.html
+
 **Inside the players-only meeting that turned the Wild's season around**\
 `The Wild had their worst October in franchise history. Captain Jared Spurgeon brought the players together to talk it out.`\
 https://nytimes.com/athletic/6824149/2025/11/20/wild-players-only-meeting/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6824455/2025/11/20/george-kurtz-mercedes-sale-f1/
 **Dick Cheney Is Honored at Washington National Cathedral**\
 `An unusual mix of Democrats and Republicans came together on Thursday to pay tribute to the former vice president, who led an aggressive response against terrorism after Sept.`\
 https://nytimes.com/video/us/politics/100000010536098/dick-cheney-memorial-washington.html
-
-**Valtteri Bottas Is Making His Return**\
-`He said he missed driving the last year, but will join Sergio Pérez at Cadillac for 2026.`\
-https://nytimes.com/2025/11/20/sports/f1-valtteri-bottas-cadillac.html
 
