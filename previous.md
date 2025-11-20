@@ -1,3 +1,7 @@
+**Lawrence Summers to Stop Teaching at Harvard While It Investigates His Epstein Ties**\
+`The former Harvard president had previously stepped down from other positions following revelations about his longtime connections to Jeffrey Epstein.`\
+https://nytimes.com/2025/11/19/us/larry-summers-harvard-epstein.html
+
 **Sam Leavitt's possible transfer from Arizona State an all-too-familiar lesson for fans**\
 `This isn't shocking. It’s how top players, especially quarterbacks, figure out their worth. But it would be another sting to ASU fans.`\
 https://nytimes.com/athletic/6821586/2025/11/19/sam-leavitt-arizona-state-transfer-portal/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/19/style/largest-afro-guinness-world-record.html
 **NASA Releases Images of Comet 3I/ATLAS: It ‘Doesn’t Look Like a Spacecraft’**\
 `With the government reopened, the space agency at last released pictures captured by a fleet of government spacecraft of an object that came from beyond our solar system.`\
 https://nytimes.com/2025/11/19/science/comet-3i-atlas-nasa-mars.html
-
-**Current forward Temwa Chawinga wins second consecutive NWSL MVP**\
-`Chawinga, 27, claims the award for a second successive season, becoming the first player in the league's 13-year history to do so.`\
-https://nytimes.com/athletic/6819788/2025/11/19/nwsl-mvp-temwa-chawinga-current/
 

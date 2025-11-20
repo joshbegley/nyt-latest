@@ -1,3 +1,7 @@
+**Lawrence Summers to Stop Teaching at Harvard While It Investigates His Epstein Ties**\
+`The former Harvard president had previously stepped down from other positions following revelations about his longtime connections to Jeffrey Epstein.`\
+https://nytimes.com/2025/11/19/us/larry-summers-harvard-epstein.html
+
 **Sam Leavitt's possible transfer from Arizona State an all-too-familiar lesson for fans**\
 `This isn't shocking. It’s how top players, especially quarterbacks, figure out their worth. But it would be another sting to ASU fans.`\
 https://nytimes.com/athletic/6821586/2025/11/19/sam-leavitt-arizona-state-transfer-portal/
