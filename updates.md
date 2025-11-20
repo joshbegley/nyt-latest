@@ -1,3 +1,11 @@
+**Nvidia Earnings Fuel Rally in Global Technology Stocks**\
+`The chipmaker’s profit surge and strong revenue forecast helped to ease fears that spending on A.I. infrastructure might be outpacing demand.`\
+https://nytimes.com/2025/11/19/business/stocks-nvidia-earnings.html
+
+**Braves re-sign closer Raisel Iglesias to one-year, $16 million deal**\
+`The 35-year-old reliever returns for a fifth season with the Braves.`\
+https://nytimes.com/athletic/6822005/2025/11/19/raisel-iglesias-atlanta-braves-contract/
+
 **Kenny Atkinson not a fan of NBA's $100K fine: 'Gotta look at the Cavs’ best interest'**\
 `Cleveland was the first team this season to be fined for violating the league's Player Participation Policy.`\
 https://nytimes.com/athletic/6821803/2025/11/19/kenny-atkinson-cavs-fine-nba-injuries/
