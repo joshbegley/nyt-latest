@@ -1,4 +1,8 @@
 **CeeDee Lamb says he and George Pickens were disciplined for missing curfew**\
+`Despite missing opening series, both receivers had big games in Dallas' win over Las Vegas.`\
+https://nytimes.com/athletic/6824556/2025/11/20/ceedee-lamb-george-pickens-disciplined-cowboys-raiders/
+
+**CeeDee Lamb says he and George Pickens were disciplined for missing curfew**\
 `Despite missing opening series, both receivers had big games in win over Las Vegas.`\
 https://nytimes.com/athletic/6824556/2025/11/20/ceedee-lamb-george-pickens-disciplined-cowboys-raiders/
 

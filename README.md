@@ -1,3 +1,11 @@
+**Ward Landrigan, Jeweler to the Stars, Dies at 84**\
+`At Sotheby’s, he provided famous diamonds to Elizabeth Taylor and Richard Burton before reviving Verdura, a venerable jewelry company founded by a Sicilian duke.`\
+https://nytimes.com/2025/11/20/fashion/ward-landrigan-dead.html
+
+**Chiefs special teams coach on Trump's kickoff rules criticism: 'He has no idea'**\
+`Dave Toub shut down a question about the president, who has called the NFL's new kickoff rules terrible, demeaning and "sissy" football.`\
+https://nytimes.com/athletic/6824471/2025/11/20/donald-trump-nfl-kickoff-rules-chiefs/
+
 **CeeDee Lamb says he and George Pickens were disciplined for missing curfew**\
 `Despite missing opening series, both receivers had big games in Dallas' win over Las Vegas.`\
 https://nytimes.com/athletic/6824556/2025/11/20/ceedee-lamb-george-pickens-disciplined-cowboys-raiders/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6824149/2025/11/20/wild-players-only-meeting/
 **Nydia Velázquez, a New York Trailblazer in Congress, to Retire Next Year**\
 `Ms. Velázquez, 72, a 16-term congresswoman, said it was time for a new generation of Democrats to step forward.`\
 https://nytimes.com/2025/11/20/nyregion/nydia-velazquez-retire.html
-
-**A Trusted Partner on Your Caregiving Journey **\
-`When the Elliott sisters needed help with an inaccurate out-of-pocket charge for their mother’s medication, they were met with compassion and quick solutions from CVS Specialty.`\
-https://nytimes.com/paidpost/cvs-health/a-trusted-partner-on-your-caregiving-journey.html
-
-**The Privacy Battle in Our Brains**\
-`My colleague talks about technology that can actually read our minds — and maybe even change them.`\
-https://nytimes.com/2025/11/20/world/privacy-battle-in-brains-technology-saudi-mamdani.html
 
