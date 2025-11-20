@@ -1,3 +1,11 @@
+**Court Vision: Izzo's focus on continuity, assist rate and encouraging signs for UConn**\
+`Roster continuity may be undervalued, but not at MSU, where Tom Izzo has eschewed massive roster overhauls that are sweeping the sport.`\
+https://nytimes.com/athletic/6822319/2025/11/20/tom-izzo-michigan-state-uconn-college-basketball/
+
+**'He's our leader': Nikola Vučević again has the last say on a Bulls close call**\
+`At the end, when it mattered most, the 35-year-old was there for Chicago. His teammates aren't surprised.`\
+https://nytimes.com/athletic/6823652/2025/11/20/nikola-vucevic-buzzer-beater-bulls-blazers/
+
 **Paramount set to win Champions League broadcast rights in UK and Ireland**\
 `Paramount's expected win, at the expense of TNT Sports, follows a new-look tender process designed to attract a global streaming platform.`\
 https://nytimes.com/athletic/6823689/2025/11/20/champions-league-tv-uk-paramount/

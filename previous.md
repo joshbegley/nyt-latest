@@ -1,3 +1,11 @@
+**Court Vision: Izzo's focus on continuity, assist rate and encouraging signs for UConn**\
+`Roster continuity may be undervalued, but not at MSU, where Tom Izzo has eschewed massive roster overhauls that are sweeping the sport.`\
+https://nytimes.com/athletic/6822319/2025/11/20/tom-izzo-michigan-state-uconn-college-basketball/
+
+**'He's our leader': Nikola Vučević again has the last say on a Bulls close call**\
+`At the end, when it mattered most, the 35-year-old was there for Chicago. His teammates aren't surprised.`\
+https://nytimes.com/athletic/6823652/2025/11/20/nikola-vucevic-buzzer-beater-bulls-blazers/
+
 **Paramount set to win Champions League broadcast rights in UK and Ireland**\
 `Paramount's expected win, at the expense of TNT Sports, follows a new-look tender process designed to attract a global streaming platform.`\
 https://nytimes.com/athletic/6823689/2025/11/20/champions-league-tv-uk-paramount/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/20/movies/the-family-plan-2-review.html
 **MacKenzie Scott Expands Giving Spree to Tribal Colleges**\
 `The billionaire philanthropist is steering millions of dollars toward tribal schools, after the Trump administration proposed a significant federal funding cut.`\
 https://nytimes.com/2025/11/20/us/mackenzie-scott-giving-tribal-colleges.html
-
-**Lawsuit Challenges Trump Administration Over $1.8 Million in Immigration Fines**\
-`A class-action suit accuses the Trump administration of weaponizing civil penalties to force undocumented migrants to self-deport through enormous penalties.`\
-https://nytimes.com/2025/11/20/us/politics/lawsuit-immigration-penalties.html
-
-**The Lane Kiffin coaching drama timeline: Why wouldn't we expect more carousel chaos?**\
-`For nearly two decades, Kiffin has made headlines with coaching carousel drama. Why would expect anything different this time?`\
-https://nytimes.com/athletic/6823469/2025/11/20/lane-kiffin-coach-timeline-ole-miss-florida-lsu/
 
