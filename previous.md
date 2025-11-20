@@ -1,3 +1,19 @@
+**Will Virginia Tech ever be good at football again? The task before James Franklin**\
+`How did a program with so much momentum become known more for the team's entrance to the field rather than the performance on it?`\
+https://nytimes.com/athletic/6822237/2025/11/20/virginia-tech-football-history-james-franklin/
+
+**Fred Johnson is back 'to make a name for himself' as Eagles starter replacing Lane Johnson**\
+`The tackle left to find a starting opportunity but was happy Philadelphia re-acquired him.`\
+https://nytimes.com/athletic/6822269/2025/11/20/philadelphia-eagles-fred-johnson-lane-johnson/
+
+**Bucks' Kevin Porter Jr. on track for early December return after 'first surgery ever'**\
+`Working his way back from meniscus surgery, Porter is excited about pairing with breakout guard Ryan Rollins upon his return.`\
+https://nytimes.com/athletic/6821627/2025/11/20/bucks-kevin-porter-jr-injury-return-timetable/
+
+**Power and Wealth in New York**\
+`We’re looking at two local stories that have national implications.`\
+https://nytimes.com/2025/11/20/briefing/power-and-wealth-in-new-york.html
+
 **Inside Steve McClaren's Jamaica reign: World Cup failure, paying for staff flights and a hostile end**\
 `The former England manager fell short with Jamaica, but failing to qualify for the World Cup is only part of his story with the Reggae Boyz`\
 https://nytimes.com/athletic/6821966/2025/11/20/steve-mcclaren-jamaica-world-cup/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6821579/2025/11/20/seahawks-free-agents-contracts-r
 **What I'm seeing from the Blues at quarter mark of 2025-26, plus other observations**\
 `Here's my observations for a Blues team that entered the season with fairly high expectations and has fallen completely flat.`\
 https://nytimes.com/athletic/6818449/2025/11/20/blues-observations-at-the-quarter-mark/
-
-**49ers mailbag: Who will be Kyle Shanahan's QB reclamation project next year?**\
-`Among this week's questions: Will Fred Warner be back for the playoffs, and what could the 49ers fetch in a Mac Jones trade?`\
-https://nytimes.com/athletic/6821760/2025/11/20/mac-jones-trade-brandon-aiyuk-49ers-mailbag/
-
-**A 'special, special' performance: Wild's Jesper Wallstedt stars in shootout**\
-`The Wall of St. Paul extended his shutout streak to over 175 minutes, then stood tall late to lead Minnesota past Carolina.`\
-https://nytimes.com/athletic/6822082/2025/11/20/wild-jesper-wallstedt-shootout-takeaways/
-
-**Could John Tavares be on pace for his best season with the Maple Leafs?**\
-`Tavares ranks just behind the league leaders in goals and points through 20 games.`\
-https://nytimes.com/athletic/6820731/2025/11/20/toronto-maple-leafs-john-tavares-on-pace-best-season/
-
-**College football Week 13 oddly specific predictions: Kentucky ends Vanderbilt's CFP dream**\
-`Can USC knock off Oregon to remain in Playoff hunt? (No) Will Oklahoma slow down Missouri's rushing attack? (Yes)`\
-https://nytimes.com/athletic/6815179/2025/11/20/college-football-predictions-week-13/
 

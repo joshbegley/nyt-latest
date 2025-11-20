@@ -1,3 +1,19 @@
+**Will Virginia Tech ever be good at football again? The task before James Franklin**\
+`How did a program with so much momentum become known more for the team's entrance to the field rather than the performance on it?`\
+https://nytimes.com/athletic/6822237/2025/11/20/virginia-tech-football-history-james-franklin/
+
+**Fred Johnson is back 'to make a name for himself' as Eagles starter replacing Lane Johnson**\
+`The tackle left to find a starting opportunity but was happy Philadelphia re-acquired him.`\
+https://nytimes.com/athletic/6822269/2025/11/20/philadelphia-eagles-fred-johnson-lane-johnson/
+
+**Bucks' Kevin Porter Jr. on track for early December return after 'first surgery ever'**\
+`Working his way back from meniscus surgery, Porter is excited about pairing with breakout guard Ryan Rollins upon his return.`\
+https://nytimes.com/athletic/6821627/2025/11/20/bucks-kevin-porter-jr-injury-return-timetable/
+
+**Power and Wealth in New York**\
+`We’re looking at two local stories that have national implications.`\
+https://nytimes.com/2025/11/20/briefing/power-and-wealth-in-new-york.html
+
 **Inside Steve McClaren's Jamaica reign: World Cup failure, paying for staff flights and a hostile end**\
 `The former England manager fell short with Jamaica, but failing to qualify for the World Cup is only part of his story with the Reggae Boyz`\
 https://nytimes.com/athletic/6821966/2025/11/20/steve-mcclaren-jamaica-world-cup/
