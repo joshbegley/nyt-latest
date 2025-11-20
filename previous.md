@@ -1,3 +1,19 @@
+**Trump Administration Live Updates: President Signs Bill to Release Epstein Files**\
+``\
+https://nytimes.com/live/2025/11/20/us/trump-admin
+
+**Should LaNorris Sellers enter 2026 NFL Draft? Breaking down South Carolina QB's film**\
+`Sellers faces a decision that could have a significant impact on the '26 draft and next season's college football landscape.`\
+https://nytimes.com/athletic/6820722/2025/11/20/nfl-draft-2026-scouting-lanorris-sellers-film/
+
+**Inside F1 livery design: How art, sponsors and the science of speed collide**\
+`F1 teams have been using more special liveries for their cars in recent years. This is how the complicated design process works`\
+https://nytimes.com/athletic/6822391/2025/11/20/f1-car-liveries-explained/
+
+**Nvidia Calmed Fears About A.I. How Long Will That Last?**\
+`The chipmaker at the center of the artificial intelligence boom reported blowout results. But that hasn’t resolved some key questions behind the tech rally.`\
+https://nytimes.com/2025/11/20/business/dealbook/nvidia-ai-boom.html
+
 **Fowler alleges racism from Montpellier team-mates after being given bananas instead of flowers**\
 `Writing in her autobiography Bloom, Fowler claims she and team-mate Ashleigh Weerden were both subjected to the alleged incident.`\
 https://nytimes.com/athletic/6819690/2025/11/20/mary-fowler-montpellier-racism-allegations/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6821437/2025/11/20/ohio-state-injuries-questions-ru
 **With Arsenal missing Gabriel, who should Mikel Arteta call on as replacement?**\
 `Gabriel is expected to spend a period on the sidelines - so how should Arsenal replace him at the back?`\
 https://nytimes.com/athletic/6820353/2025/11/20/with-arsenal-missing-gabriel-who-should-mikel-arteta-call-on-as-replacement/
-
-**Science Practice | A Study on Glowing Succulents**\
-`In a proof of concept, researchers demonstrated that they could bioengineer a couple of hours of light into a common plant.`\
-https://nytimes.com/2025/11/20/learning/science-practice-a-study-on-glowing-succulents.html
-
-**Will Virginia Tech ever be good at football again? The task before James Franklin**\
-`How did a program with so much momentum become known more for the team's entrance to the field rather than the performance on it?`\
-https://nytimes.com/athletic/6822237/2025/11/20/virginia-tech-football-history-james-franklin/
-
-**Fred Johnson is back 'to make a name for himself' as Eagles starter replacing Lane Johnson**\
-`The tackle left to find a starting opportunity but was happy Philadelphia re-acquired him.`\
-https://nytimes.com/athletic/6822269/2025/11/20/philadelphia-eagles-fred-johnson-lane-johnson/
-
-**Bucks' Kevin Porter Jr. on track for early December return after 'first surgery ever'**\
-`Working his way back from meniscus surgery, Porter is excited about pairing with breakout guard Ryan Rollins upon his return.`\
-https://nytimes.com/athletic/6821627/2025/11/20/bucks-kevin-porter-jr-injury-return-timetable/
 

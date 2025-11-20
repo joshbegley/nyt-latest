@@ -1,3 +1,19 @@
+**Trump Administration Live Updates: President Signs Bill to Release Epstein Files**\
+``\
+https://nytimes.com/live/2025/11/20/us/trump-admin
+
+**Should LaNorris Sellers enter 2026 NFL Draft? Breaking down South Carolina QB's film**\
+`Sellers faces a decision that could have a significant impact on the '26 draft and next season's college football landscape.`\
+https://nytimes.com/athletic/6820722/2025/11/20/nfl-draft-2026-scouting-lanorris-sellers-film/
+
+**Inside F1 livery design: How art, sponsors and the science of speed collide**\
+`F1 teams have been using more special liveries for their cars in recent years. This is how the complicated design process works`\
+https://nytimes.com/athletic/6822391/2025/11/20/f1-car-liveries-explained/
+
+**Nvidia Calmed Fears About A.I. How Long Will That Last?**\
+`The chipmaker at the center of the artificial intelligence boom reported blowout results. But that hasn’t resolved some key questions behind the tech rally.`\
+https://nytimes.com/2025/11/20/business/dealbook/nvidia-ai-boom.html
+
 **Fowler alleges racism from Montpellier team-mates after being given bananas instead of flowers**\
 `Writing in her autobiography Bloom, Fowler claims she and team-mate Ashleigh Weerden were both subjected to the alleged incident.`\
 https://nytimes.com/athletic/6819690/2025/11/20/mary-fowler-montpellier-racism-allegations/
