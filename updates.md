@@ -1,3 +1,11 @@
+**From Osaka to the World: The Impact of Expo 2025**\
+`Expo 2025 Osaka, Kansai, Japan closes with its promises and lessons distilled into a declaration that imagines how societies can thrive together.`\
+https://nytimes.com/paidpost/japan-cabinet-secretariat/from-osaka-to-the-world-the-impact-of-expo-2025.html
+
+**Catholic Group Sues Trump Administration for Access to Immigration Facility**\
+`The Coalition for Spiritual and Public Leadership says its members have been blocked from ministering at an ICE detention center near Chicago.`\
+https://nytimes.com/2025/11/20/us/politics/catholic-broadview-ice-immigration-lawsuit.html
+
 **As Sanctions on Russian Oil Loom, India Prepares to End Its Buying Spree**\
 `India has been snapping up discounted Russian crude for three years, but U.S. sanctions that take effect on Friday are expected to end the lucrative trade.`\
 https://nytimes.com/2025/11/20/business/india-russia-oil-sanctions.html
