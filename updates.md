@@ -1,3 +1,11 @@
+**The Moon Was an Inside Job**\
+`New research suggests that Theia, the object whose collision with Earth is theorized to have caused the formation of the moon, came from closer to the sun.`\
+https://nytimes.com/2025/11/20/science/moon-collision-earth-theia.html
+
+**Border Patrol Ends Operation in Charlotte, N.C.**\
+`The operation, which led to more than 370 arrests, had put a purple state firmly at the center of one of the Trump administration’s most visible immigration strategies.`\
+https://nytimes.com/2025/11/20/us/border-patrol-charlotte.html
+
 **Ferry Crashed From Distracted Operator Looking At Phone, Officials Say**\
 `The ferry was carrying 267 passengers and crew members on board when it struck a rocky islet in South Korea on Wednesday. About 27 passengers suffered minor injuries or dizziness. The ferry’s captain and two officers were charged with injury by gross negligence.`\
 https://nytimes.com/video/world/asia/100000010535989/ferry-crashed-from-distracted-operator-looking-at-phone-officials-say.html
