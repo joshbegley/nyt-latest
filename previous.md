@@ -1,3 +1,7 @@
+**Louvre’s Embattled Leader Defends Contested Renovation Plan, and Her Tenure**\
+`In one of her very few interviews since the museum heist, Laurence des Cars said the plan would increase much-needed security, but critics say it is too focused on new construction.`\
+https://nytimes.com/2025/11/20/world/europe/louvre-director-theft-renovation.html
+
 **Jessica Berman: The NWSL's most influential commissioner faces her toughest tests yet**\
 `NWSL and Berman agreed to a three-year contract extension through 2028.`\
 https://nytimes.com/athletic/6823398/2025/11/20/nwsl-commissioner-interview-jessica-berman-soccer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6823652/2025/11/20/nikola-vucevic-buzzer-beater-bul
 **Paramount set to win Champions League broadcast rights in UK and Ireland**\
 `Paramount's expected win, at the expense of TNT Sports, follows a new-look tender process designed to attract a global streaming platform.`\
 https://nytimes.com/athletic/6823689/2025/11/20/champions-league-tv-uk-paramount/
-
-**What I'm hearing about the Penguins: Ben Kindel and a massive draft haul**\
-`The Penguins are over the moon about their 2025 NHL Draft class. `\
-https://nytimes.com/athletic/6822855/2025/11/20/penguins-ben-kindel-nhl-draft/
 

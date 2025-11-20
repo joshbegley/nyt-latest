@@ -1,3 +1,7 @@
+**Louvre’s Embattled Leader Defends Contested Renovation Plan, and Her Tenure**\
+`In one of her very few interviews since the museum heist, Laurence des Cars said the plan would increase much-needed security, but critics say it is too focused on new construction.`\
+https://nytimes.com/2025/11/20/world/europe/louvre-director-theft-renovation.html
+
 **Jessica Berman: The NWSL's most influential commissioner faces her toughest tests yet**\
 `NWSL and Berman agreed to a three-year contract extension through 2028.`\
 https://nytimes.com/athletic/6823398/2025/11/20/nwsl-commissioner-interview-jessica-berman-soccer/
