@@ -1,7 +1,3 @@
-**Dominic Solanke: 'When a few of us come back from injury, Tottenham can do some big things'**\
-`Injury has prevented Dominic Solanke from playing more than a handful of minutes so far this season - he hopes that will soon change`\
-https://nytimes.com/athletic/6819676/2025/11/20/dominic-solanke-when-a-few-of-us-come-back-from-injury-tottenham-can-do-some-big-things/
-
 **Australia hand debuts to Doggett and Weatherald, Smith dismisses Panesar sledge**\
 `Australia's stand-in captain laughed off calls for him to be barracked over 'Sandpapergate' from the former England off-spinner`\
 https://nytimes.com/athletic/6822421/2025/11/20/australia-smith-ashes-doggett-weatherald-panesar-sandpapergate/
@@ -37,4 +33,8 @@ https://nytimes.com/2025/11/20/world/asia/alice-guo-life-sentence-philippines.ht
 **The New York Times in Print for Thursday, Nov. 20, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/20/todays-new-york-times
+
+**Indonesia’s Mount Semeru Erupts and Rains Ash on Villages**\
+`Mount Semeru on the island of Java is one of the Indonesia’s most active volcanoes. Its latest eruption forced hundreds to flee their homes.`\
+https://nytimes.com/2025/11/20/world/asia/indonesia-mount-semeru-eruption.html
 

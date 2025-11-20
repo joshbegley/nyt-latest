@@ -1,3 +1,11 @@
+**Dominic Solanke: 'When a few of us come back from injury, Tottenham can do some big things'**\
+`Injury has prevented Dominic Solanke from playing more than a handful of minutes so far this season - he hopes that will soon change`\
+https://nytimes.com/athletic/6819676/2025/11/20/dominic-solanke-when-a-few-of-us-come-back-from-injury-tottenham-can-do-some-big-things/
+
+**Australia hand debuts to Doggett and Weatherald, Smith dismisses Panesar sledge**\
+`Australia's stand-in captain laughed off calls for him to be barracked over 'Sandpapergate' from the former England off-spinner`\
+https://nytimes.com/athletic/6822421/2025/11/20/australia-smith-ashes-doggett-weatherald-panesar-sandpapergate/
+
 **Indonesia’s Mount Semeru Erupts**\
 `Mount Semeru, on Indonesia’s Java island, spewed huge clouds of ash that prompted hundreds of people to evacuate their homes on Wednesday.`\
 https://nytimes.com/video/world/asia/100000010534754/indonesia-mount-semeru-eruption.html
