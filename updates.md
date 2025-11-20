@@ -1,3 +1,11 @@
+**Key fantasy football questions for Week 12: Derrick Henry time? Can Shedeur Sanders succeed?**\
+`Dalton Del Don breaks down the key fantasy football topics for Week 12, including Derrick Henry's prolific late-season history.`\
+https://nytimes.com/athletic/6822265/2025/11/20/key-fantasy-football-questions-week-12-nacua-henry-dart/
+
+**Trump Signs Bill to Release Epstein Files**\
+`President Trump announced in a social media post on Wednesday that he had signed the bill calling on the Justice Department to release its files on the convicted sex offender Jeffrey Epstein within 30 days.`\
+https://nytimes.com/video/us/politics/100000010535063/trump-bill-epstein-files.html
+
 **Premier League winner Fuchs leaves Charlotte FC for Newport job**\
 `Fuchs, 39, won the 2016 Premier League title and the 2021 FA Cup with Leicester City.`\
 https://nytimes.com/athletic/6823202/2025/11/20/christian-fuchs-charlotte-fc-newport-county/

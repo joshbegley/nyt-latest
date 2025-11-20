@@ -1,3 +1,11 @@
+**Blue Jackets report card: Marchenko and Werenski get As, but others are struggling**\
+`The Blue Jackets are being held to a higher standard this season. Here's how we graded them at the 20-game mark.`\
+https://nytimes.com/athletic/6820297/2025/11/20/blue-jackets-grades-marchenko-werenski/
+
+**2030 World Cup: How likely is South America's 64-team 'dream' tournament likely?**\
+`CONMEBOL president Alejandro Dominguez has doubled down on his "dream" of the 2030 World Cup being expanded to 64 nations.`\
+https://nytimes.com/athletic/6822657/2025/11/20/world-cup-teams-qualify-2030-nations/
+
 **Key fantasy football questions for Week 12: Derrick Henry time? Can Shedeur Sanders succeed?**\
 `Dalton Del Don breaks down the key fantasy football topics for Week 12, including Derrick Henry's prolific late-season history.`\
 https://nytimes.com/athletic/6822265/2025/11/20/key-fantasy-football-questions-week-12-nacua-henry-dart/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6804243/2025/11/20/ashes-england-australia-harmison
 **World Cup play-off draw analysis: Will Italy and other European hopefuls be happy with their path?**\
 `The 16 remaining European World Cup hopefuls now know their play-off fate - but will they be happy with it?`\
 https://nytimes.com/athletic/6822998/2025/11/20/world-cup-play-off-draw-analysis-europe/
-
-**After 167 Years in New York, a Priceless Coin Collection Heads to Toledo**\
-`The doubloons, dollars and denarii of the American Numismatic Society will leave their overlooked home in Manhattan for a more welcoming headquarters on the campus of the Toledo Museum of Art.`\
-https://nytimes.com/2025/11/20/arts/design/american-numismatic-society-coins-toledo.html
-
-**What to know about the report.**\
-`By Lydia DePillis`\
-https://nytimes.com/live/2025/business/jobs-report-economy/what-to-know-about-the-report
 
