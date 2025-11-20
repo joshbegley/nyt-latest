@@ -1,3 +1,11 @@
+**Dick Cheney Is Honored at Washington National Cathedral**\
+`An unusual mix of Democrats and Republicans came together on Thursday to pay tribute to the former vice president, who led an aggressive response against terrorism after Sept.`\
+https://nytimes.com/video/us/politics/100000010536098/dick-cheney-memorial-washington.html
+
+**Valtteri Bottas Is Making His Return**\
+`He said he missed driving the last year, but will join Sergio Pérez at Cadillac for 2026.`\
+https://nytimes.com/2025/11/20/sports/f1-valtteri-bottas-cadillac.html
+
 **Girl Describes Hiding From Kidnappers at a School in Nigeria**\
 `The girl hid in a toilet; another managed to sneak away. Security forces are still trying to rescue the 24 girls who were abducted in northwestern Nigeria.`\
 https://nytimes.com/2025/11/20/world/africa/nigeria-school-kidnapping-escape.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6824062/2025/11/20/lakers-fire-joey-jesse-buss-from
 **San Francisco Giants free-agent profile: Bo Bichette, 2B/SS**\
 `On paper, it's hard to find reasons Bichette shouldn't be the Giants' top offensive target. But do the red flags make it worth it?`\
 https://nytimes.com/athletic/6824054/2025/11/20/san-francisco-giants-free-agent-profile-bo-bichette/
-
-**Trade Anthony Davis? Try to win? Mavs must pick a direction. Here's what we're hearing**\
-`The Mavericks can either prioritize getting the best possible pick in the 2026 draft or trying to be competitive right now.`\
-https://nytimes.com/athletic/6823940/2025/11/20/anthony-davis-trade-mavericks-options/
-
-**Short on Cash, D.N.C. Took Out $15 Million Loan in October**\
-`The move, unusual for a year without a midterm or presidential election, is the latest sign of financial distress for the Democratic Party.`\
-https://nytimes.com/2025/11/20/us/politics/dnc-loan-democrats.html
 

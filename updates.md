@@ -1,3 +1,15 @@
+**Girl Describes Hiding From Kidnappers at a School in Nigeria**\
+`The girl hid in a toilet; another managed to sneak away. Security forces are still trying to rescue the 24 girls who were abducted in northwestern Nigeria.`\
+https://nytimes.com/2025/11/20/world/africa/nigeria-school-kidnapping-escape.html
+
+**Kalle Rovanpera, a Rally Champion, Hopes to Make a Different Leap**\
+`He is leaving the sport to jump into open-wheel racing, with an eye on Formula 1.`\
+https://nytimes.com/2025/11/20/sports/f1-kalle-rovanpera-rally-champion.html
+
+**The A.I. Boom Has Found Another Gear. Why Can’t People Shake Their Worries?**\
+`It is a time of superlatives in the tech industry, with historic profits, stock prices and deal prices. It’s enough to make some people very nervous.`\
+https://nytimes.com/2025/11/20/technology/ai-stock-boom-nvidia.html
+
 **David Bellos, 80, Dies; Wrestled French Wordplay Into English**\
 `He translated nearly 30 books, including novels by Georges Perec, a master of linguistic games, and Ismail Kadare.`\
 https://nytimes.com/2025/11/20/books/david-bellos-dead.html
