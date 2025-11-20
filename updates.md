@@ -1,3 +1,11 @@
+**More Rain on the Way to Los Angeles, Already Saturated by Recent Storms**\
+`The next storm is not expected to bring as much rain as the one last week, but flooding is a concern.`\
+https://nytimes.com/2025/11/20/weather/southern-california-rain-forecast.html
+
+**The F.C.C. chair questioned the BBC over edits to a Trump speech.**\
+`By David McCabe`\
+https://nytimes.com/live/2025/11/20/us/trump-news-epstein-cheney/the-fcc-chair-questioned-the-bbc-over-trump-speech-edits
+
 **Israel Premier-Tech rebrands to NSN Cycling Team for 2026**\
 `The cycling team were the subject of many pro-Palestine protests during the 2025 season, particularly during the Vuelta a Espana`\
 https://nytimes.com/athletic/6824284/2025/11/20/israel-premier-tech-rebrand-nsn-2026/
