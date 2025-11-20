@@ -1,3 +1,27 @@
+**Jimmy Kimmel Prepares for Hurricane Epstein**\
+`Kimmel wondered if President Trump might “pull a Taylor Swift and give us ‘The Epstein Files: Donnie’s Version.’”`\
+https://nytimes.com/2025/11/20/arts/television/jimmy-kimmel-prepares-for-hurricane-epstein.html
+
+**Word of the Day: revitalize**\
+`This word has appeared in 228 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/20/learning/word-of-the-day-revitalize.html
+
+**Operator Who Crashed Ferry Off South Korea Was Looking at His Phone**\
+`The operator and two other officers were charged with gross negligence after the ferry ran aground on Wednesday carrying 267 people.`\
+https://nytimes.com/2025/11/20/world/asia/south-korea-ferry-crash.html
+
+**Ex-Mayor Is Sentenced to Life for Human Trafficking Tied to Southeast Asia Scam Centers**\
+`A court in the Philippines convicted Alice Guo for trafficking people to a compound that officials have linked to online scams and organized crime.`\
+https://nytimes.com/2025/11/20/world/asia/alice-guo-life-sentence-philippines.html
+
+**The New York Times in Print for Thursday, Nov. 20, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/20/todays-new-york-times
+
+**Indonesia’s Mount Semeru Erupts and Rains Ash on Villages**\
+`Mount Semeru on the island of Java is one of the Indonesia’s most active volcanoes. Its latest eruption forced hundreds to flee their homes.`\
+https://nytimes.com/2025/11/20/world/asia/indonesia-mount-semeru-eruption.html
+
 **As Sanctions on Russian Oil Loom, India Prepares to End Its Buying Spree**\
 `India has been snapping up discounted Russian crude for three years, but U.S. sanctions that take effect on Friday are expected to end the lucrative trade.`\
 https://nytimes.com/2025/11/20/business/india-russia-oil-sanctions.html

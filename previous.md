@@ -1,27 +1,3 @@
-**As Sanctions on Russian Oil Loom, India Prepares to End Its Buying Spree**\
-`India has been snapping up discounted Russian crude for three years, but U.S. sanctions that take effect on Friday are expected to end the lucrative trade.`\
-https://nytimes.com/2025/11/20/business/india-russia-oil-sanctions.html
-
-**These Rocketry Hobbyists Are Not Just Playing Around**\
-`At a rocketry club’s monthly launch, some of the projectiles flew as high as 4,500 feet, carrying onboard cameras, GPS trackers and altimeter-activated parachutes.`\
-https://nytimes.com/2025/11/20/nyregion/rocket-club-new-york.html
-
-**Holiday Dinner**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2025/11/20/learning/holiday-dinner.html
-
-**After a Mysterious Death, a Family’s Quest for Answers Leads to a Tick**\
-`A JetBlue pilot’s illness looked like food poisoning, but it was actually an increasingly common tick-borne meat allergy that can be fatal.`\
-https://nytimes.com/2025/11/20/nyregion/jetblue-pilot-death-tick-alpha-gal.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/11/20/crosswords/spelling-bee-forum.html
-
-**Dominic Solanke: 'When a few of us come back from injury, Tottenham can do some big things'**\
-`Injury has prevented Dominic Solanke from playing more than a handful of minutes so far this season - he hopes that will soon change`\
-https://nytimes.com/athletic/6819676/2025/11/20/dominic-solanke-when-a-few-of-us-come-back-from-injury-tottenham-can-do-some-big-things/
-
 **Australia hand debuts to Doggett and Weatherald, Smith dismisses Panesar sledge**\
 `Australia's stand-in captain laughed off calls for him to be barracked over 'Sandpapergate' from the former England off-spinner`\
 https://nytimes.com/athletic/6822421/2025/11/20/australia-smith-ashes-doggett-weatherald-panesar-sandpapergate/
@@ -37,4 +13,28 @@ https://nytimes.com/2025/11/20/us/dead-sperm-whale-nantucket.html
 **How to watch Panthers vs. 49ers: Time, TV, streaming**\
 `Find out how to watch the Carolina Panthers play the San Francisco 49ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6822492/2025/11/20/panthers-vs-49ers-stream-how-to-watch-nov-24/
+
+**Jimmy Kimmel Prepares for Hurricane Epstein**\
+`Kimmel wondered if President Trump might “pull a Taylor Swift and give us ‘The Epstein Files: Donnie’s Version.’”`\
+https://nytimes.com/2025/11/20/arts/television/jimmy-kimmel-prepares-for-hurricane-epstein.html
+
+**Word of the Day: revitalize**\
+`This word has appeared in 228 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/20/learning/word-of-the-day-revitalize.html
+
+**Operator Who Crashed Ferry Off South Korea Was Looking at His Phone**\
+`The operator and two other officers were charged with gross negligence after the ferry ran aground on Wednesday carrying 267 people.`\
+https://nytimes.com/2025/11/20/world/asia/south-korea-ferry-crash.html
+
+**Ex-Mayor Is Sentenced to Life for Human Trafficking Tied to Southeast Asia Scam Centers**\
+`A court in the Philippines convicted Alice Guo for trafficking people to a compound that officials have linked to online scams and organized crime.`\
+https://nytimes.com/2025/11/20/world/asia/alice-guo-life-sentence-philippines.html
+
+**The New York Times in Print for Thursday, Nov. 20, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/20/todays-new-york-times
+
+**Indonesia’s Mount Semeru Erupts and Rains Ash on Villages**\
+`Mount Semeru on the island of Java is one of the Indonesia’s most active volcanoes. Its latest eruption forced hundreds to flee their homes.`\
+https://nytimes.com/2025/11/20/world/asia/indonesia-mount-semeru-eruption.html
 
