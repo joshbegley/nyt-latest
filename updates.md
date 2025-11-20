@@ -1,3 +1,7 @@
+**Sam Leavitt's possible transfer from Arizona State an all-too-familiar lesson for fans**\
+`This isn't shocking. It’s how top players, especially quarterbacks, figure out their worth. But it would be another sting to ASU fans.`\
+https://nytimes.com/athletic/6821586/2025/11/19/sam-leavitt-arizona-state-transfer-portal/
+
 **Cooper Flagg to miss first game of career Wednesday against New York**\
 `Flagg is averaging 15.5 points, 6.3 rebounds and 3.1 assists this season. He leads the Mavericks in total minutes.`\
 https://nytimes.com/athletic/6821482/2025/11/19/ooper-flagg-status-illness-mavericks-nba/

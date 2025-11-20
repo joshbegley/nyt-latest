@@ -1,3 +1,7 @@
+**Sam Leavitt's possible transfer from Arizona State an all-too-familiar lesson for fans**\
+`This isn't shocking. It’s how top players, especially quarterbacks, figure out their worth. But it would be another sting to ASU fans.`\
+https://nytimes.com/athletic/6821586/2025/11/19/sam-leavitt-arizona-state-transfer-portal/
+
 **Stephen Curry, Draymond Green and Jimmy Butler all out Wednesday against Heat**\
 `The absence of Warriors stars comes the day after coach Steve Kerr questioned the length of the NBA's schedule. `\
 https://nytimes.com/athletic/6821656/2025/11/19/warriors-injury-report-curry-butler-green-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/19/science/comet-3i-atlas-nasa-mars.html
 **Current forward Temwa Chawinga wins second consecutive NWSL MVP**\
 `Chawinga, 27, claims the award for a second successive season, becoming the first player in the league's 13-year history to do so.`\
 https://nytimes.com/athletic/6819788/2025/11/19/nwsl-mvp-temwa-chawinga-current/
-
-**Robert L. Stirm, Returning P.O.W. in Pulitzer-Winning Photo, Dies at 92**\
-`The image immortalized a Vietnam veteran’s joyous homecoming to his beaming family but hid the painful truth about a marriage that was about to end.`\
-https://nytimes.com/2025/11/19/obituaries/robert-stirm-dead.html
 
