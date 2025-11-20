@@ -1,3 +1,7 @@
+**‘The Perfect Neighbor’ Is an American Nightmare**\
+`Wesley and Parul Sehgal, a fellow Times critic, discuss the Netflix documentary “The Perfect Neighbor” and the film’s innovative use of police body cam footage, which raises moral and ethical questions.`\
+https://nytimes.com/video/podcasts/100000010529346/the-perfect-neighbor-is-an-american-nightmare.html
+
 **Inside a revamped Red Sox pitching program that is starting to produce results**\
 `The Red Sox made big changes that allowed them to fast-track Payton Tolle and Connelly Early to the majors. What comes next?`\
 https://nytimes.com/athletic/6821416/2025/11/20/red-sox-pitching-program-tolle-early-mlb/
