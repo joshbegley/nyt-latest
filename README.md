@@ -1,3 +1,7 @@
+**Nvidia Calmed Fears About A.I. How Long Will That Last?**\
+`The chipmaker at the center of the artificial intelligence boom reported blowout results. But that hasn’t resolved some key questions behind the tech rally.`\
+https://nytimes.com/2025/11/20/business/dealbook/nvidia-ai-boom.html
+
 **Fowler alleges racism from Montpellier team-mates after being given bananas instead of flowers**\
 `Writing in her autobiography Bloom, Fowler claims she and team-mate Ashleigh Weerden were both subjected to the alleged incident.`\
 https://nytimes.com/athletic/6819690/2025/11/20/mary-fowler-montpellier-racism-allegations/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6822237/2025/11/20/virginia-tech-football-history-j
 **Fred Johnson is back 'to make a name for himself' as Eagles starter replacing Lane Johnson**\
 `The tackle left to find a starting opportunity but was happy Philadelphia re-acquired him.`\
 https://nytimes.com/athletic/6822269/2025/11/20/philadelphia-eagles-fred-johnson-lane-johnson/
-
-**Bucks' Kevin Porter Jr. on track for early December return after 'first surgery ever'**\
-`Working his way back from meniscus surgery, Porter is excited about pairing with breakout guard Ryan Rollins upon his return.`\
-https://nytimes.com/athletic/6821627/2025/11/20/bucks-kevin-porter-jr-injury-return-timetable/
 
