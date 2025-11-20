@@ -1,3 +1,15 @@
+**At This Event, Brides Traded Gowns Instead of Buying New Ones**\
+`A bridal swap in Brooklyn brought former brides and the newly engaged together to exchange dresses, veils and other accessories.`\
+https://nytimes.com/2025/11/20/fashion/weddings/brooklyn-bride-swap-wedding-dresses.html
+
+**Three of the Best Socks We Tried**\
+`While lousy socks tap into a host of pet peeves and sensory “icks,” an excellent pair can spark real delight.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010535308/three-of-the-best-socks-we-tried.html
+
+**Wyden Presses for Investigation Into JPMorgan Chase and Epstein**\
+`Senator Ron Wyden, an Oregon Democrat, wants to examine how the nation’s largest bank handled the reporting of more than $1 billion in suspicious transactions.`\
+https://nytimes.com/2025/11/20/us/politics/jeffrey-epstein-jpmorgan-chase-ron-wyden.html
+
 **Blue Jackets report card: Marchenko and Werenski get As, but others are struggling**\
 `The Blue Jackets are being held to a higher standard this season. Here's how we graded them at the 20-game mark.`\
 https://nytimes.com/athletic/6820297/2025/11/20/blue-jackets-grades-marchenko-werenski/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/20/style/bill-ackman-dating-advice-young-men.html
 **Elias Pettersson has been better for the Canucks, but there's more to be done**\
 `Breaking down Pettersson's promising signs of progress and the areas in which he still has another level to reach.`\
 https://nytimes.com/athletic/6822467/2025/11/20/canucks-elias-pettersson-better-centre/
-
-**61 Hot Takes to Fight About at Thanksgiving**\
-`Who’s cooking, and who’s cooked?`\
-https://nytimes.com/interactive/2025/11/20/dining/thanksgiving-hot-takes.html
-
-**From Burns' leg stump to Harmison's wide: How the first ball of the Ashes can set the tone**\
-`The memory of Michael Slater carving through point or the ball whistling past Justin Langer's nose also endure from recent Ashes series`\
-https://nytimes.com/athletic/6804243/2025/11/20/ashes-england-australia-harmison-burns-slater-hussain/
-
-**World Cup play-off draw analysis: Will Italy and other European hopefuls be happy with their path?**\
-`The 16 remaining European World Cup hopefuls now know their play-off fate - but will they be happy with it?`\
-https://nytimes.com/athletic/6822998/2025/11/20/world-cup-play-off-draw-analysis-europe/
 

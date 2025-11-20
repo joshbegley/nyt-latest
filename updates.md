@@ -1,3 +1,15 @@
+**At This Event, Brides Traded Gowns Instead of Buying New Ones**\
+`A bridal swap in Brooklyn brought former brides and the newly engaged together to exchange dresses, veils and other accessories.`\
+https://nytimes.com/2025/11/20/fashion/weddings/brooklyn-bride-swap-wedding-dresses.html
+
+**Three of the Best Socks We Tried**\
+`While lousy socks tap into a host of pet peeves and sensory “icks,” an excellent pair can spark real delight.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010535308/three-of-the-best-socks-we-tried.html
+
+**Wyden Presses for Investigation Into JPMorgan Chase and Epstein**\
+`Senator Ron Wyden, an Oregon Democrat, wants to examine how the nation’s largest bank handled the reporting of more than $1 billion in suspicious transactions.`\
+https://nytimes.com/2025/11/20/us/politics/jeffrey-epstein-jpmorgan-chase-ron-wyden.html
+
 **2030 World Cup: How likely is South America's 64-team 'dream' tournament?**\
 `CONMEBOL president Alejandro Dominguez has doubled down on his "dream" of the 2030 World Cup being expanded to 64 nations.`\
 https://nytimes.com/athletic/6822657/2025/11/20/world-cup-teams-qualify-2030-nations/
