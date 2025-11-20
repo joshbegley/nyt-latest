@@ -1,3 +1,7 @@
+**TAFC: Is the Premier League's PSR era coming to an end? Plus: U.S. Soccer's grassroots revolution**\
+`English football's 20 top-flight clubs are voting to change their financial regulations – here's why it could be significant`\
+https://nytimes.com/athletic/6822891/2025/11/20/premier-league-vote-us-soccer-tafc/
+
 **NFL defensive coaches shed light on league's matching-mismatching strategy trend**\
 `Versatile players like Kyle Hamilton and Quentin Lake are giving defensive coordinators an advantage in the chess game.`\
 https://nytimes.com/athletic/6813737/2025/11/20/nfl-defensive-coaches-mismatching-matching/
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6822181/2025/11/20/tyrese-maxey-76ers-improvement-n
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6820414/2025/11/20/nfl-long-snappers-the-pulse/
 
-**Why Toronto is a top women's sports city — despite being snubbed by The Athletic**\
+**Why Toronto is a top women's sports city (despite The Athletic's snub)**\
 `Despite not cracking The Athletic's list of top women's sports cities, Toronto boasts pro women's sports teams with passionate fan bases.`\
 https://nytimes.com/athletic/6807865/2025/11/20/womens-sports-cities-toronto-pwhl-wnba/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6818425/2025/11/20/bills-texans-josh-allen-tnf-how-
 **How Ben Johnson made 'Good, better, best' a motto for the Bears**\
 `Johnson has made "Good, better, best" a part of the lexicon in Chicago. Here's how that phrase became the team motto.`\
 https://nytimes.com/athletic/6817737/2025/11/20/ben-johnson-good-better-best-bears/
-
-**What saved a heartbroken 14-year NFL veteran? It's magic**\
-`How Jon Dorenbos turned unthinkable tragedy and a career-ending heart condition into a message of hope and forgiveness`\
-https://nytimes.com/athletic/6780425/2025/11/20/jon-dorenbos-nfl-philadelphia-eagles/
 
