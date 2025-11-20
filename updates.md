@@ -1,3 +1,11 @@
+**Dick Cheney Is Honored at Washington National Cathedral**\
+`An unusual mix of Democrats and Republicans came together on Thursday to pay tribute to the former vice president, who led an aggressive response against terrorism after Sept.`\
+https://nytimes.com/video/us/politics/100000010536098/dick-cheney-memorial-washington.html
+
+**Valtteri Bottas Is Making His Return**\
+`He said he missed driving the last year, but will join Sergio Pérez at Cadillac for 2026.`\
+https://nytimes.com/2025/11/20/sports/f1-valtteri-bottas-cadillac.html
+
 **Girl Describes Hiding From Kidnappers at a School in Nigeria**\
 `The girl hid in a toilet; another managed to sneak away. Security forces are still trying to rescue the 24 girls who were abducted in northwestern Nigeria.`\
 https://nytimes.com/2025/11/20/world/africa/nigeria-school-kidnapping-escape.html
