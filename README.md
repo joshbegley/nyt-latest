@@ -1,4 +1,12 @@
-**Zelensky Faces a ‘Difficult Choice’ with Trump’s Proposed Plan**\
+**College football Week 13 projected scores: Model predicts every game**\
+`Austin Mock's projection model takes a look at every Week 13 game between FBS teams.`\
+https://nytimes.com/athletic/6827059/2025/11/21/college-football-week-13-projected-scores-model/
+
+**gws-koh-lan-island-thailand**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/koh-lan-island-thailand
+
+**Zelensky Faces a ‘Difficult Choice’ With Trump’s Proposed Plan**\
 `The Trump administration has proposed a 28-point peace plan designed to end the Russia-Ukraine war. President Volodymyr Zelensky of Ukraine said that his country was facing a “difficult choice.”`\
 https://nytimes.com/video/world/europe/100000010538871/ukraine-russia-trump-peace-plan.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/21/arts/music/anthony-braxton-80th-birthday.html
 **Ooey, Gooey Chocolate Brownies From a Box? Yes. We Found the Best.**\
 `Text by Antara Sinha`\
 https://nytimes.com/card/2025/11/21/smarter-living/wirecutter/
-
-**Pochettino, USMNT believe they can beat anyone at the World Cup. They may be right.**\
-`After undergoing adversity and turning to an expanded group of players to reset the culture, the USMNT finally feels ready for a World Cup`\
-https://nytimes.com/athletic/6826912/2025/11/21/mauricio-pochettino-usmnt-world-cup-outlook/
-
-**F. Murray Abraham**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/f-murray-abraham-home-tour
 

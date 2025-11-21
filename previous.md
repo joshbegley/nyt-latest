@@ -1,3 +1,23 @@
+**Zelensky Faces a ‘Difficult Choice’ with Trump’s Proposed Plan**\
+`The Trump administration has proposed a 28-point peace plan designed to end the Russia-Ukraine war. President Volodymyr Zelensky of Ukraine said that his country was facing a “difficult choice.”`\
+https://nytimes.com/video/world/europe/100000010538871/ukraine-russia-trump-peace-plan.html
+
+**Trump and Mamdani’s Past Comments Reveal a Mutual Distaste**\
+`President Trump and Zohran Mamdani have pelted each other with insults from afar. They are meeting in person on Friday.`\
+https://nytimes.com/2025/11/21/nyregion/trump-mamdani-comments-insults.html
+
+**Spurs Women break transfer record to sign Norway international Gaupset**\
+`The 20-year-old attacking midfielder will join Spurs on January 1 from Norwegian club SK Brann.`\
+https://nytimes.com/athletic/6827035/2025/11/21/tottenham-women-transfer-signe-gaupset/
+
+**Liberty hire Warriors' assistant Chris DeMarco as franchise’s coach**\
+`DeMarco has been with the Warriors since 2012 and has been a part of four NBA titles with Golden State.`\
+https://nytimes.com/athletic/6827020/2025/11/21/new-york-liberty-warriors-chris-demarco-wnba/
+
+**The U.S. Tightens the Vise on an Already Besieged Zelensky**\
+`The Ukrainian president’s options are narrowing as he is confronted with a 28-point proposal drafted by American and Russian envoys.`\
+https://nytimes.com/2025/11/21/world/europe/ukraine-russia-us-peace-plan.html
+
 **Instant classics: USC’s 3OT buzzer-beater joins list of marathon games**\
 `USC's 3OT win over Troy was just another example of countless overtime classics throughout college basketball's history `\
 https://nytimes.com/athletic/6826978/2025/11/21/usc-troy-overtime-marathon-college-basketball/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6826912/2025/11/21/mauricio-pochettino-usmnt-world-
 **F. Murray Abraham**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/f-murray-abraham-home-tour
-
-**In New Video, Sean Duffy Tells Passengers to Dress Up and Be Nice**\
-`The secretary of transportation kicked off a new civility campaign on Wednesday called “The Golden Age of Travel Starts With You.”`\
-https://nytimes.com/2025/11/21/travel/sean-duffy-airlines-manners-video.html
-
-**Notre Dame-Syracuse predictions: Conditions are prime for another Senior Day shutout**\
-`Three questions and one prediction as Notre Dame looks to make another CFP statement against Syracuse, a program that’s lost seven straight.`\
-https://nytimes.com/athletic/6826032/2025/11/21/notre-dame-syracuse-score-matchup-predictions/
-
-**Trump Fought to Prevent Mamdani’s Election. The Two Will Soon Meet Face to Face.**\
-`A first-time meeting between the president and the mayor-elect has implications for New York City.`\
-https://nytimes.com/2025/11/21/nyregion/trump-mamdani-cuomo.html
-
-**Cassidy Got Pledges From Kennedy on Vaccines. They Haven’t Stuck.**\
-`Before casting a crucial vote for the health secretary, the top Senate Republican laid out several specific commitments he had secured, some of which appear to have been breached.`\
-https://nytimes.com/2025/11/21/us/politics/cassidy-cdc-vaccines-autism.html
-
-**Thousands of French Brands Sue Shein, Accusing It of Unfair Competition**\
-`The class-action lawsuit is the latest push against the Chinese retailer in France, where protests outside its first store broke out earlier this month.`\
-https://nytimes.com/2025/11/21/business/french-brands-sue-shein.html
 
