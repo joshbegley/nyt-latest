@@ -1,3 +1,15 @@
+**Fondant Sweet Potatoes With Honey Butter and Halvah**\
+`With its savory sesame flavor and candy sweetness, the halvah crumbles on top of these fondant sweet potatoes elevate this dish to a chic, grown-up version of sweet potato casserole.`\
+https://nytimes.com/video/admin/100000010523066/fondant-sweet-potatoes-with-honey-butter-and-halvah.html
+
+**Pumpkin Cardamom Crumb Muffins**\
+`This take on the classic pumpkin muffin happily makes room for cardamom in the pumpkin spice mix, which adds an extra layer of warm, peppery flavor.`\
+https://nytimes.com/video/dining/100000010523167/pumpkin-cardamom-crumb-muffins.html
+
+**Mini Apple Tartes Tatin**\
+`The pastry chef Claudia Fleming is known for her work with fruit desserts, and this recipe, adapted from her cult-classic cookbook, “The Last Course,” is an easy version of the classic caramelized apple tart.`\
+https://nytimes.com/video/dining/100000010523118/mini-apple-tartes-tatin.html
+
 **Pumpkin Spice Honeycomb Cake**\
 `This take on bánh bò nướng, a classic Vietnamese dessert, is spiced with comforting fall flavors and doused in white chocolate — and integrates pumpkin purée.`\
 https://nytimes.com/video/dining/100000010523171/pumpkin-spice-honeycomb-cake.html
