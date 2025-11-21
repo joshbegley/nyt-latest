@@ -1,3 +1,11 @@
+**Florida Sheriff’s Deputy Is Killed While Serving Eviction Notice**\
+`A second deputy, a locksmith and the suspect were also shot in an exchange of gunfire, the authorities said.`\
+https://nytimes.com/2025/11/21/us/florida-deputy-shooting-vero-beach-bermuda-club.html
+
+**Trump and Prince Had ‘Disturbing’ Call After Khashoggi’s Murder, Lawmaker Says**\
+`Representative Eugene Vindman of Virginia said he reviewed a classified transcript of the 2019 conversation that would “shock” Americans.`\
+https://nytimes.com/2025/11/21/us/politics/trump-saudi-crown-prince-khashoggi.html
+
 **Sam LaPorta has ' very slim' chance of return this season, Dan Campbell says**\
 `LaPorta was putting together another strong season before his injury, tying for fifth in receiving yards and ninth in receptions. `\
 https://nytimes.com/athletic/6826823/2025/11/21/lions-sam-laporta-back-season/
