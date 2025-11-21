@@ -1,3 +1,19 @@
+**We Asked Roblox’s C.E.O. About Child Safety. It Got Tense.**\
+`This week the company announced that it would require users to undergo an A.I.-powered age estimation process in order to chat with others on the platform. Will this change reassure parents?`\
+https://nytimes.com/video/podcasts/100000010538468/we-asked-robloxs-ceo-about-child-safety-it-got-tense.html
+
+**Commanders raising some 2026 season ticket prices despite disappointing 2025 campaign**\
+`While some seats won't see increases, on average, Commanders season tickets will jump $17.32 per month on annual plans.`\
+https://nytimes.com/athletic/6824069/2025/11/21/commanders-season-ticket-price-increase-2026/
+
+**MLS is changing its calendar to align with the global game. Should NWSL do the same?**\
+`Eleven of the 16 NWSL teams in 2026 share venues with MLS teams. `\
+https://nytimes.com/athletic/6822200/2025/11/21/mls-calendar-change-nwsl-soccer/
+
+**Martinez 'close' to Man Utd return after ACL injury, Amorim says**\
+`The defender has not played for United since the defeat to Crystal Palace at Old Trafford on February 2.`\
+https://nytimes.com/athletic/6826326/2025/11/21/lisandro-martinez-manchester-united-return-acl-injury-ruben-amorim/
+
 **Next week’s waiver wire: Kayshon Boutte and more players to add — before the Week 13 rush**\
 `John Laghezza looks ahead to the Week 13 waiver wire to give you an edge on competition.`\
 https://nytimes.com/athletic/6822989/2025/11/21/fantasy-football-waiver-wire-week-13-adds-boutte/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/11/21/arts/eurovision-voting-rules-israel.html
 **Fondant Sweet Potatoes With Honey Butter and Halvah**\
 `With its savory sesame flavor and candy sweetness, the halvah crumbles on top of these fondant sweet potatoes elevate this dish to a chic, grown-up version of sweet potato casserole.`\
 https://nytimes.com/video/admin/100000010523066/fondant-sweet-potatoes-with-honey-butter-and-halvah.html
-
-**Pumpkin Cardamom Crumb Muffins**\
-`This take on the classic pumpkin muffin happily makes room for cardamom in the pumpkin spice mix, which adds an extra layer of warm, peppery flavor.`\
-https://nytimes.com/video/dining/100000010523167/pumpkin-cardamom-crumb-muffins.html
-
-**Mini Apple Tartes Tatin**\
-`The pastry chef Claudia Fleming is known for her work with fruit desserts, and this recipe, adapted from her cult-classic cookbook, “The Last Course,” is an easy version of the classic caramelized apple tart.`\
-https://nytimes.com/video/dining/100000010523118/mini-apple-tartes-tatin.html
-
-**Pumpkin Spice Honeycomb Cake**\
-`This take on bánh bò nướng, a classic Vietnamese dessert, is spiced with comforting fall flavors and doused in white chocolate — and integrates pumpkin purée.`\
-https://nytimes.com/video/dining/100000010523171/pumpkin-spice-honeycomb-cake.html
-
-**Without Giannis, Bucks must fix 'little things' before they become a big problem**\
-`Milwaukee fell in overtime, but the final three possessions in the fourth quarter played a major role in a third-straight loss.`\
-https://nytimes.com/athletic/6825859/2025/11/21/sixers-bucks-giannis-nba/
 

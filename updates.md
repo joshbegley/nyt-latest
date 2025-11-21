@@ -1,3 +1,19 @@
+**We Asked Roblox’s C.E.O. About Child Safety. It Got Tense.**\
+`This week the company announced that it would require users to undergo an A.I.-powered age estimation process in order to chat with others on the platform. Will this change reassure parents?`\
+https://nytimes.com/video/podcasts/100000010538468/we-asked-robloxs-ceo-about-child-safety-it-got-tense.html
+
+**Commanders raising some 2026 season ticket prices despite disappointing 2025 campaign**\
+`While some seats won't see increases, on average, Commanders season tickets will jump $17.32 per month on annual plans.`\
+https://nytimes.com/athletic/6824069/2025/11/21/commanders-season-ticket-price-increase-2026/
+
+**MLS is changing its calendar to align with the global game. Should NWSL do the same?**\
+`Eleven of the 16 NWSL teams in 2026 share venues with MLS teams. `\
+https://nytimes.com/athletic/6822200/2025/11/21/mls-calendar-change-nwsl-soccer/
+
+**Martinez 'close' to Man Utd return after ACL injury, Amorim says**\
+`The defender has not played for United since the defeat to Crystal Palace at Old Trafford on February 2.`\
+https://nytimes.com/athletic/6826326/2025/11/21/lisandro-martinez-manchester-united-return-acl-injury-ruben-amorim/
+
 **Next week’s waiver wire: Kayshon Boutte and more players to add — before the Week 13 rush**\
 `John Laghezza looks ahead to the Week 13 waiver wire to give you an edge on competition.`\
 https://nytimes.com/athletic/6822989/2025/11/21/fantasy-football-waiver-wire-week-13-adds-boutte/
