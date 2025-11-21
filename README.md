@@ -1,3 +1,7 @@
+**Howard Webb defends PGMOL’s appointment process at tribunal**\
+`Lisa Benn had claimed “people are scared to come forward and challenge inappropriate behaviour because of the fear of consequence".`\
+https://nytimes.com/athletic/6824626/2025/11/21/howard-webb-pgmol-tribunal/
+
 **‘I’ll Go When You Go,’ Jimmy Kimmel Tells Trump**\
 `“Let’s ride off into the sunset together like Butch Cassidy and the Suntan Kid,” Kimmel said after the president demanded (again) that ABC take him off the air.`\
 https://nytimes.com/2025/11/21/arts/television/jimmy-kimmel-trump-abc.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6800578/2025/11/21/joshua-zirkzee-manchester-united
 **The Prospects: Lessons England's under-17s must learn from World Cup elimination**\
 `There is no question about the depth of talent in this squad, but to fulfil their potential they must learn from going out in the last 16`\
 https://nytimes.com/athletic/6823109/2025/11/21/the-prospects-lessons-englands-under-17s-must-learn-from-world-cup-elimination/
-
-**Under Dyche, Forest are starting to see Gibbs-White back at his best**\
-`Morgan Gibbs-White's form has improved recently. One of the reasons is his new manager, Sean Dyche`\
-https://nytimes.com/athletic/6823910/2025/11/21/nottingham-forest-gibbs-white-best/
 
