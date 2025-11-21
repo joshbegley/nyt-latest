@@ -1,3 +1,11 @@
+**49ers preparing for stunning split with star receiver Brandon Aiyuk**\
+`Aiyuk has not yet played this season, and while the 49ers are holding out hope, a reconciliation appears unlikely.`\
+https://nytimes.com/athletic/6826885/2025/11/21/brandon-aiyuk-49ers-news-contract-guaranteed-money-release/
+
+**Twins bring back Trevor Larnach despite crowded outfield, trade for backup catcher**\
+`Larnach will compete for playing time in the corners with fellow left-handers Matt Wallner and Alan Roden, along with James Outman. `\
+https://nytimes.com/athletic/6824542/2025/11/21/twins-trevor-larnach-arbitration-contract/
+
 **This Is One of L.A.’s Wettest Novembers in Decades**\
 `The rain has been a stark contrast to very dry weather at the same time last year.`\
 https://nytimes.com/2025/11/21/weather/los-angeles-november-rain-record.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/11/21/business/shopping-customs-costs-overseas.html
 **What the Jobs Report Tells Us About the Economy**\
 `What does the September jobs report, delayed by six weeks because of the government shutdown, say about the economy? Lydia DePillis, our economics reporter, describes how the report, which was better than expected, comes at a moment of deep uncertainty.`\
 https://nytimes.com/video/business/economy/100000010534118/what-the-jobs-report-tells-us-about-the-economy.html
-
-**Burt Meyer, 99, Dies; Made Lite-Brite and Rock ’Em Sock ’Em Robots**\
-`Starting in the 1960s, he collaborated on the designs of classic toys like Mouse Trap, Toss Across and Mr. Machine.`\
-https://nytimes.com/2025/11/21/arts/design/burton-meyer-dead.html
-
-**This Season’s Must-Have Accessory? A Chain Bag.**\
-`Our favorite examples of the classic and versatile style, which will carry you from day to night.`\
-https://nytimes.com/2025/11/21/t-magazine/chain-bags.html
 

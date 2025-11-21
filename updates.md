@@ -1,3 +1,7 @@
+**This Is One of L.A.’s Wettest Novembers in Decades**\
+`The rain has been a stark contrast to very dry weather at the same time last year.`\
+https://nytimes.com/2025/11/21/weather/los-angeles-november-rain-record.html
+
 **Vanity Fair Is Reviewing Its Ties to Olivia Nuzzi**\
 `The magazine, which recently hired the journalist, said it had been “taken by surprise” by new claims in an essay by her former fiancé, Ryan Lizza.`\
 https://nytimes.com/2025/11/21/style/vanity-fair-is-reviewing-its-ties-to-olivia-nuzzi.html

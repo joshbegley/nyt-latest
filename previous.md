@@ -1,3 +1,7 @@
+**This Is One of L.A.’s Wettest Novembers in Decades**\
+`The rain has been a stark contrast to very dry weather at the same time last year.`\
+https://nytimes.com/2025/11/21/weather/los-angeles-november-rain-record.html
+
 **Vanity Fair Is Reviewing Its Ties to Olivia Nuzzi**\
 `The magazine, which recently hired the journalist, said it had been “taken by surprise” by new claims in an essay by her former fiancé, Ryan Lizza.`\
 https://nytimes.com/2025/11/21/style/vanity-fair-is-reviewing-its-ties-to-olivia-nuzzi.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/21/arts/design/burton-meyer-dead.html
 **This Season’s Must-Have Accessory? A Chain Bag.**\
 `Our favorite examples of the classic and versatile style, which will carry you from day to night.`\
 https://nytimes.com/2025/11/21/t-magazine/chain-bags.html
-
-**Lawmaker Says Trump’s Call With Saudi Leader Was ‘Shocking’**\
-`Representative Eugene Vindman, Democrat of Virginia, called for the declassification of a 2019 conversation between Trump and Crown Prince Mohammed bin Salman of Saudi Arabia which took place shortly after the murder of journalist Jamal Khashoggi.`\
-https://nytimes.com/video/us/politics/100000010539638/trump-saudi-arabia-leader-khashoggi-call.html
 
