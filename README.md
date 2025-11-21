@@ -1,40 +1,40 @@
-**Here are some of college football's most unique stadium features**\
-`Waterfalls at Arkansas State drew attention on Thursday night, prompting us to seek out quirks from wooden domes to oddly colored turf.`\
-https://nytimes.com/athletic/6826862/2025/11/21/waterfalls-a-mirror-factory-and-a-wooden-dome-college-footballs-strange-stadium-quirks/
+**How to watch Nets vs. Celtics: Time, TV, streaming**\
+`Find out how to watch the Brooklyn Nets play the Boston Celtics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6827173/2025/11/21/nets-vs-celtics-stream-how-to-watch-nov-21/
 
-**How to watch Purdue vs. Texas Tech men's basketball: Time, TV, streaming**\
-`Find out how to watch the Purdue Boilermakers play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6827136/2025/11/21/purdue-vs-texas-tech-stream-how-to-watch-nov-21/
+**How to watch Wizards vs. Raptors: Time, TV, streaming**\
+`Find out how to watch the Washington Wizards play the Toronto Raptors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6827171/2025/11/21/wizards-vs-raptors-stream-how-to-watch-nov-21/
 
-**How to watch Presbyterian vs. UCLA men's basketball: Time, TV, streaming**\
-`Find out how to watch the Presbyterian Blue Hose play the UCLA Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6827134/2025/11/21/presbyterian-vs-ucla-stream-how-to-watch-nov-21/
+**How to watch Nuggets vs. Rockets: Time, TV, streaming**\
+`Find out how to watch the Denver Nuggets play the Houston Rockets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6827168/2025/11/21/nuggets-vs-rockets-stream-how-to-watch-nov-21/
 
-**How to watch Michigan vs. UConn women's basketball: Time, TV, streaming**\
-`Find out how to watch the Michigan Wolverines play the UConn Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6827132/2025/11/21/michigan-vs-uconn-stream-how-to-watch-nov-21/
+**How to watch Thunder vs. Jazz: Time, TV, streaming**\
+`Find out how to watch the Oklahoma City Thunder play the Utah Jazz, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6827166/2025/11/21/thunder-vs-jazz-stream-how-to-watch-nov-21/
 
-**How to watch Jackson State vs. Arkansas men's basketball: Time, TV, streaming**\
-`Find out how to watch the Jackson State Tigers play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6827130/2025/11/21/jackson-state-vs-arkansas-stream-how-to-watch-nov-21/
+**How to watch Trail Blazers vs. Warriors: Time, TV, streaming**\
+`Find out how to watch the Portland Trail Blazers play the Golden State Warriors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6827164/2025/11/21/trail-blazers-vs-warriors-stream-how-to-watch-nov-21/
 
-**We Asked Roblox’s C.E.O. About Child Safety. It Got Tense.**\
-`The company announced this week that it would require users to undergo an age-estimation process powered by A.I. in order to chat with others on the platform. Will this change reassure parents?`\
-https://nytimes.com/video/podcasts/100000010536917/we-asked-robloxs-ceo-about-child-safety-it-got-tense.html
+**How to watch Heat vs. Bulls: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Chicago Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6827162/2025/11/21/heat-vs-bulls-stream-how-to-watch-nov-21/
 
-**Flames' Samuel Honzek out for up to six months after upper-body surgery**\
-`Honzek was drafted 16th overall by Calgary in the 2023 NHL Draft. In 18 games this season, Honzek scored two goals and four points.`\
-https://nytimes.com/athletic/6827031/2025/11/21/flames-samuel-honzek-injury/
+**How to watch Bruins vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Boston Bruins play the Los Angeles Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6827160/2025/11/21/bruins-vs-kings-stream-how-to-watch-nov-21/
 
-**Messi playing for Spain? Meet the coach who says he kept him home in Argentina**\
-`Argentina’s former coach recalled how he took decisive action to prevent Messi from playing for Spain.`\
-https://nytimes.com/athletic/6826808/2025/11/21/messi-argentina-u20-world-cup-spain-jose-pekerman/
+**How to watch Hurricanes vs. Jets: Time, TV, streaming**\
+`Find out how to watch the Carolina Hurricanes play the Winnipeg Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6827157/2025/11/21/hurricanes-vs-jets-stream-how-to-watch-nov-21/
 
-**College football Week 13 projected scores: Model predicts every game**\
-`Austin Mock's projection model takes a look at every Week 13 game between FBS teams.`\
-https://nytimes.com/athletic/6827059/2025/11/21/college-football-week-13-projected-scores-model/
+**Flashback: Your Weekly History Quiz, Nov. 22, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/11/21/upshot/flashback.html
 
-**gws-koh-lan-island-thailand**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/koh-lan-island-thailand
+**To Many Ukrainians, U.S. Peace Plan Looks Like ‘Capitulation’**\
+`While the White House has cautioned that the proposal is still in “flux,” its contours reflect maximalist demands made by Russia throughout the war that Ukraine has consistently rejected.`\
+https://nytimes.com/2025/11/21/world/europe/ukraine-russia-peace-plan-capitulation.html
 
