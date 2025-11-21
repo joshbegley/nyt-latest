@@ -1,3 +1,7 @@
+**Memphis**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/things-to-do-memphis
+
 **Joe Burrow questionable to play vs. Patriots**\
 `Cincinnati is 3-7 on the season and lost seven of eight games in Burrow’s absence.`\
 https://nytimes.com/athletic/6826707/2025/11/21/bengals-joe-burrow-status-patriots/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/21/world/europe/reform-uk-nathan-gill-russia-bribes.
 **Winnipeg Jets goalie Connor Hellebuyck to undergo minor surgery, miss 4-6 weeks**\
 `Hellebuyck's knee injury marks the first substantial injury he's faced in his 11-year NHL career — a remarkable run of longevity.`\
 https://nytimes.com/athletic/6825388/2025/11/21/connor-hellebuyck-injury-jets/
-
-**Paul Pogba named in Monaco squad after more than two years out**\
-`The 32-year-old has not made an appearance since September 2023, after receiving a ban for breaching anti-doping regulations.`\
-https://nytimes.com/athletic/6760347/2025/11/21/paul-pogba-return-monaco-rennes/
 
