@@ -1,3 +1,7 @@
+**Police were no longer pursuing Marshawn Kneeland at time of crash, report says**\
+`Dallas Cowboys defensive end was later found dead of an apparent self-inflicted gunshot wound.`\
+https://nytimes.com/athletic/6825131/2025/11/20/marshawn-kneeland-police-crash-report/
+
 **Anonymous Bidder Pays Nearly $1 Million for Secret to Decode C.I.A. Sculpture**\
 `The creator of the Kryptos panels, Jim Sanborn, sought to unburden himself of the puzzle, and then discovered before an auction he had archived its solution in the Smithsonian.`\
 https://nytimes.com/2025/11/20/science/kryptos-cia-auction-sculpture.html
