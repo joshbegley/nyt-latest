@@ -1,3 +1,7 @@
+**Eurovision Tightens Voting Rules to Tamp Down on Government Influence**\
+`In this year’s contest, a campaign by Israel to encourage voting for its entrant drew criticism.`\
+https://nytimes.com/2025/11/21/arts/eurovision-voting-rules-israel.html
+
 **Fondant Sweet Potatoes With Honey Butter and Halvah**\
 `With its savory sesame flavor and candy sweetness, the halvah crumbles on top of these fondant sweet potatoes elevate this dish to a chic, grown-up version of sweet potato casserole.`\
 https://nytimes.com/video/admin/100000010523066/fondant-sweet-potatoes-with-honey-butter-and-halvah.html

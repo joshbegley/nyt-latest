@@ -1,3 +1,7 @@
+**Eurovision Tightens Voting Rules to Tamp Down on Government Influence**\
+`In this year’s contest, a campaign by Israel to encourage voting for its entrant drew criticism.`\
+https://nytimes.com/2025/11/21/arts/eurovision-voting-rules-israel.html
+
 **Fondant Sweet Potatoes With Honey Butter and Halvah**\
 `With its savory sesame flavor and candy sweetness, the halvah crumbles on top of these fondant sweet potatoes elevate this dish to a chic, grown-up version of sweet potato casserole.`\
 https://nytimes.com/video/admin/100000010523066/fondant-sweet-potatoes-with-honey-butter-and-halvah.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010538303/trump-leavitt-reporter-pig
 **Pumpkin-Butterscotch Custard With Spiced Whipped Cream**\
 `Butterscotch pudding gets an autumnal makeover with the addition of pumpkin purée and a fluffy, spiced whipped cream topping. To make this dish supremely festive, it’s baked in one large dish instead of individual custard cups.`\
 https://nytimes.com/video/dining/100000010523134/pumpkin-butterscotch-custard-with-spiced-whipped-cream.html
-
-**Deep-Fried Turkey**\
-`Deep frying a turkey can seem daunting, but it is incredibly simple and produces a superior turkey that is unexpectedly juicy and far more forgiving in far less time than conventional roasting. It is equipment heavy, yes.`\
-https://nytimes.com/video/dining/100000010523024/deep-fried-turkey.html
 

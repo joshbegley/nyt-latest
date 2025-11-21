@@ -1,3 +1,11 @@
+**Wolves boss role 'something I have always dreamed of', Edwards says**\
+`The 42-year-old was appointed on a three-and-a-half year deal this month to replace Vitor Pereira.`\
+https://nytimes.com/athletic/6826315/2025/11/21/rob-edwards-wolves-head-coach/
+
+**Top Fed Official Boosts Odds of a December Rate Cut**\
+`John C. Williams, president of the Federal Reserve Bank of New York, said the central bank had scope to lower borrowing costs ‘in the near term.’`\
+https://nytimes.com/2025/11/21/business/fed-interest-rates-inflation-jobs.html
+
 **Eurovision Tightens Voting Rules to Tamp Down on Government Influence**\
 `In this year’s contest, a campaign by Israel to encourage voting for its entrant drew criticism.`\
 https://nytimes.com/2025/11/21/arts/eurovision-voting-rules-israel.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/21/world/africa/south-africa-g20-protests.html
 **Collard Greens**\
 `Collard greens, a staple of Southern cuisine, are often cooked down with smoked turkey or pork neck bones. The greens form a potlikker, or broth, full of briny, smoky flavor.`\
 https://nytimes.com/video/dining/100000010522988/collard-greens.html
-
-**White House Defends Trump’s ‘Quiet, Piggy’ Remark to Reporter**\
-`The White House press secretary defended President Trump’s “frankness” a week after he said “Quiet, piggy” to a Bloomberg News reporter asking about Jeffrey Epstein’s emails.`\
-https://nytimes.com/video/us/politics/100000010538303/trump-leavitt-reporter-piggy.html
-
-**Pumpkin-Butterscotch Custard With Spiced Whipped Cream**\
-`Butterscotch pudding gets an autumnal makeover with the addition of pumpkin purée and a fluffy, spiced whipped cream topping. To make this dish supremely festive, it’s baked in one large dish instead of individual custard cups.`\
-https://nytimes.com/video/dining/100000010523134/pumpkin-butterscotch-custard-with-spiced-whipped-cream.html
 
