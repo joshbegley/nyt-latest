@@ -1,3 +1,15 @@
+**Corrections: Nov. 21, 2025**\
+`Corrections that appeared in print on Friday, Nov. 21, 2025.`\
+https://nytimes.com/2025/11/20/pageoneplus/corrections-nov-21-2025.html
+
+**Quote of the Day: The Hunt Is On for Bears in Japan After Deadly Attacks**\
+`Quotation of the Day for Friday, November 21, 2025.`\
+https://nytimes.com/2025/11/20/pageoneplus/quote-of-the-day-the-hunt-is-on-for-bears-in-japan-after-deadly-attacks.html
+
+**Justice Dept. Sues California Over College Benefits for Undocumented Students**\
+`The lawsuit is the third filed by the Justice Department against the state in a week.`\
+https://nytimes.com/2025/11/20/us/politics/ucla-undocumented-students-tuition-doj-lawsuit-california.html
+
 **Back home in Toronto, Adam Fantilli has another banner night in Blue Jackets' win**\
 `Fantilli delivered two goals and an overtime winner in Toronto, electrifying a massive hometown crowd and carrying the Blue Jackets.`\
 https://nytimes.com/athletic/6825134/2025/11/20/adam-fantilli-columbus-blue-jackets-nhl/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6825168/2025/11/20/dog-bites-khl-players/
 **Trent Grisham taking the Yankees' qualifying offer wasn't as bad as you think**\
 `Grisham's decision to accept the $22.05M qualifying offer has agitated some of the Yankees' fan base. But not Brian Cashman — nor should it.`\
 https://nytimes.com/athletic/6823463/2025/11/20/trent-grisham-yankees-qualifying-offer-fans/
-
-**NJ Transit Cancels Service to and From Midtown Until Friday Morning**\
-`Passengers on the Midtown Direct lines were being dropped off at the Hoboken station because of a repair to a rail switch nearby.`\
-https://nytimes.com/2025/11/20/nyregion/nj-transit-midtown-delays-cancellations.html
-
-**Alexander Ovechkin scores hat trick against Montreal, moves into 10th all-time in points**\
-`Ovechkin is now 65 points behind Pittsburgh Penguins captain Sidney Crosby, who sits in ninth place for most points by an NHLer. `\
-https://nytimes.com/athletic/6825210/2025/11/20/alexander-ovechkin-capitals-points/
-
-**‘Two Strangers’ Review: Meeting Cute, Toting Baggage**\
-`The effervescent musical, a new London import, delivers lavishly on the promise of a rom-com: laughter, escape and fantasy.`\
-https://nytimes.com/2025/11/20/theater/two-strangers-carry-cake-review.html
 
