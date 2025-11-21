@@ -1,3 +1,7 @@
+**‘Wicked: For Good’ | Anatomy of a Scene**\
+`The director Jon M. Chu narrates a sequence from his film featuring Cynthia Erivo, Ariana Grande and Jeff Goldblum.`\
+https://nytimes.com/video/movies/100000010534425/wicked-for-good-scene.html
+
 **Gordon, Livramento 'close' to Newcastle return vs. Man City**\
 `Gordon missed the defeat at Brentford due to a hip problem, while Livramento has been out with a knee injury since the end of September.`\
 https://nytimes.com/athletic/6825747/2025/11/21/anthony-gordon-tino-livramento-newcastle-injury-update/
