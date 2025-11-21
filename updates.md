@@ -1,3 +1,7 @@
+**Qaeda Convict Returns to Guantánamo Court 17 Years After Trial**\
+`The Yemeni prisoner spent nearly seven hours at the war court, displaying some of the defiance of his 2008 proceeding.`\
+https://nytimes.com/2025/11/20/us/politics/al-qaeda-guantanamo-court.html
+
 **Special Alert: The Pies Are Here!**\
 `We put Sue Li in charge of the pies this year, and she delivered six stunners.`\
 https://nytimes.com/2025/11/20/dining/special-alert-the-pies-are-here.html
