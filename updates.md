@@ -1,3 +1,7 @@
+**Instant classics: USC’s 3OT buzzer-beater joins list of marathon games**\
+`USC's 3OT win over Troy was just another example of countless overtime classics throughout college basketball's history `\
+https://nytimes.com/athletic/6826978/2025/11/21/usc-troy-overtime-marathon-college-basketball/
+
 **At 80, This Composer Is Easier Than Ever to Celebrate**\
 `With new releases and concerts, Anthony Braxton’s output as an artist and thinker is quickly available for longtime fans and initiates alike.`\
 https://nytimes.com/2025/11/21/arts/music/anthony-braxton-80th-birthday.html
