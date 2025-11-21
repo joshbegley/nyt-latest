@@ -1,3 +1,19 @@
+**Australia Adds Twitch to Social Media Ban for Teens**\
+`Twitch, a livestreaming service popular with gamers, joins nine other platforms that will be required to remove Australian users under the age of 16.`\
+https://nytimes.com/2025/11/20/world/australia/twitch-australia-social-media-ban.html
+
+**Kings match worst start in franchise history after eighth straight double-digit loss**\
+`Sacramento is now 3-13 this season after a 137-96 defeat and has lost eight straight games by double digits. Is this rock bottom?`\
+https://nytimes.com/athletic/6825290/2025/11/20/kings-losing-streak-grizzlies-sabonis/
+
+**Tyrese Maxey drops career-high 54 points in Sixers' overtime win over Bucks**\
+`At this point, it's fair to ask if Maxey is having the best year among guards in the Eastern Conference.`\
+https://nytimes.com/athletic/6825312/2025/11/20/tyrese-maxey-54-points-career-high-sixers-bucks/
+
+**KHL players bitten by attack dog during ceremonial puck drop**\
+`An attack dog from the local Minsk police force got a little too chompy with players from CSKA Moscow and Dinamo Minsk on Thursday.`\
+https://nytimes.com/athletic/6825168/2025/11/20/dog-bites-khl-players/
+
 **Trent Grisham taking the Yankees' qualifying offer wasn't as bad as you think**\
 `Grisham's decision to accept the $22.05M qualifying offer has agitated some of the Yankees' fan base. But not Brian Cashman — nor should it.`\
 https://nytimes.com/athletic/6823463/2025/11/20/trent-grisham-yankees-qualifying-offer-fans/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/11/20/crosswords/daily-puzzle-2025-11-20.html
 **Anxiety Over A.I. Spending Returns to Global Markets**\
 `A sharp reversal in Asian stocks, after a rally fueled by Nvidia’s strong earnings, underscores how fears of an A.I. bubble are driving broad market swings.`\
 https://nytimes.com/2025/11/20/business/stocks-ai-global.html
-
-**Police were no longer pursuing Marshawn Kneeland at time of crash, report says**\
-`Dallas Cowboys defensive end was later found dead of an apparent self-inflicted gunshot wound.`\
-https://nytimes.com/athletic/6825131/2025/11/20/marshawn-kneeland-police-crash-report/
-
-**Pras of the Fugees Gets 14 Years for Illegal Foreign Influence Scheme**\
-`Mr. Michel was convicted in April 2023 of 10 criminal counts, including money laundering, illegal lobbying and witness tampering.`\
-https://nytimes.com/2025/11/20/us/pras-michel-fugees-campaign-finance-prison.html
-
-**Duchess Potatoes**\
-`Prized for its presentation, this fancy French potato dish, Duchess potatoes, dates back to the 1700s, when it was created — and given its aristocratic name — to help elevate the reputation of the humble tuber in France, where it had yet to be widely embraced by home cooks.`\
-https://nytimes.com/video/admin/100000010523035/duchess-potatoes.html
-
-**Kelsie Whitmore is No. 1 pick in first Women's Professional Baseball League draft**\
-`The new four-team league will launch its season in August 2026 in Springfield, Ill.`\
-https://nytimes.com/athletic/6822097/2025/11/20/first-pick-wpbl-draft/
 

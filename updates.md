@@ -1,3 +1,7 @@
+**Trent Grisham taking the Yankees' qualifying offer wasn't as bad as you think**\
+`Grisham's decision to accept the $22.05M qualifying offer has agitated some of the Yankees' fan base. But not Brian Cashman — nor should it.`\
+https://nytimes.com/athletic/6823463/2025/11/20/trent-grisham-yankees-qualifying-offer-fans/
+
 **Pras of the Fugees Gets 14 Years for Illegal Foreign Influence Scheme**\
 `Mr. Michel was convicted in April 2023 of 10 criminal counts, including money laundering, illegal lobbying and witness tampering.`\
 https://nytimes.com/2025/11/20/us/pras-michel-fugees-campaign-finance-prison.html
