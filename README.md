@@ -1,3 +1,11 @@
+**A Colossal, Hidden Pile of Trash Ignites Outcry in Britain**\
+`The discovery of a mountain of garbage near a highway is the latest example of what experts say is a growing problem of criminal organizations profiting from illegal dumping.`\
+https://nytimes.com/2025/11/21/world/europe/trash-britain-illegal-dumping.html
+
+**Large Pile of Illegally Dumped Trash Discovered Near English Village**\
+`A mountain of rubbish was found next to a highway in the English countryside, prompting residents and British officials alike to wonder how “fly-tipping,” or illegal dumping, on this scale could have gone undetected.`\
+https://nytimes.com/video/world/europe/100000010538904/trash-pile-england-illegal.html
+
 **Florida Sheriff’s Deputy Is Killed While Serving Eviction Notice**\
 `A second deputy, a locksmith and the suspect were also shot in an exchange of gunfire, the authorities said.`\
 https://nytimes.com/2025/11/21/us/florida-deputy-shooting-vero-beach-bermuda-club.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/21/us/politics/trump-super-pac-fundraisers.html
 **Memphis**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-memphis
-
-**Joe Burrow questionable to play vs. Patriots**\
-`Cincinnati is 3-7 on the season and lost seven of eight games in Burrow’s absence.`\
-https://nytimes.com/athletic/6826707/2025/11/21/bengals-joe-burrow-status-patriots/
-
-**Make Unstoppable Happen**\
-`New York is proof that when 8 million people work toward something together, they can’t be stopped. `\
-https://nytimes.com/paidpost/jpmorgan-chase/make-unstoppable-happen.html
 
