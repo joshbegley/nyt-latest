@@ -1,3 +1,7 @@
+**Gordon, Livramento 'close' to Newcastle return vs. Man City**\
+`Gordon missed the defeat at Brentford due to a hip problem, while Livramento has been out with a knee injury since the end of September.`\
+https://nytimes.com/athletic/6825747/2025/11/21/anthony-gordon-tino-livramento-newcastle-injury-update/
+
 **'I'm toxic' - breaking down Bielsa's extraordinary 105-minute press conference**\
 `This was the Uruguay manager like we have never seen him before, setting out why he intends to lead the team to the 2026 World Cup`\
 https://nytimes.com/athletic/6825271/2025/11/21/marcelo-bielsa-toxic-press-conference/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6825260/2025/11/21/as-san-siro-begins-long-goodbye-
 **Word of the Day: arid**\
 `This word has appeared in 113 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/11/21/learning/word-of-the-day-arid.html
-
-**Why Are Young Men Embracing the Quarter-Zip Lifestyle?**\
-`How one of the stodgiest garments in the Western wardrobe caught on with the Nike Tech crowd.`\
-https://nytimes.com/2025/11/21/style/quarter-zip-sweater-men-tiktok.html
 
