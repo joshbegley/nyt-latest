@@ -1,40 +1,40 @@
-**‘Wicked: For Good’ | Anatomy of a Scene**\
-`The director Jon M. Chu narrates a sequence from his film featuring Cynthia Erivo, Ariana Grande and Jeff Goldblum.`\
-https://nytimes.com/video/movies/100000010534425/wicked-for-good-scene.html
+**Flying for Thanksgiving? Here’s the Only Travel Guide You’ll Need.**\
+`Flight cancellations. Record crowds. A recent government shutdown. Here are some tips for navigating an especially fraught holiday travel season.`\
+https://nytimes.com/explain/2025/11/21/travel/thanksgiving-travel-flights-delays
 
-**Gordon, Livramento 'close' to Newcastle return vs. Man City**\
-`Gordon missed the defeat at Brentford due to a hip problem, while Livramento has been out with a knee injury since the end of September.`\
-https://nytimes.com/athletic/6825747/2025/11/21/anthony-gordon-tino-livramento-newcastle-injury-update/
+**Can Kirk Cousins showcase himself and save the Falcons offense at the same time?**\
+`The Falcons have lost five straight games as Cousins returns as starting quarterback this week in New Orleans against the Saints.`\
+https://nytimes.com/athletic/6823864/2025/11/21/kirk-cousins-michael-penix-atlanta-falcons-offense/
 
-**'I'm toxic' - breaking down Bielsa's extraordinary 105-minute press conference**\
-`This was the Uruguay manager like we have never seen him before, setting out why he intends to lead the team to the 2026 World Cup`\
-https://nytimes.com/athletic/6825271/2025/11/21/marcelo-bielsa-toxic-press-conference/
+**Five potential red flags for the Patriots as the NFL playoffs approach**\
+`The 9-2 Patriots have been amazing this season. But there are still reasons for concern as tougher opponents await on the horizon.`\
+https://nytimes.com/athletic/6821368/2025/11/21/new-england-patriots-red-flags-nfl-playoffs/
 
-**To the Castle**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2025/11/21/learning/to-the-castle.html
+**Japan’s Leader Gets Off to Rocky Start With China**\
+`Facing reprisals from Beijing for a remark over Taiwan, Prime Minister Sanae Takaichi must walk a fine line to prevent escalating the dispute without looking weak at home.`\
+https://nytimes.com/2025/11/21/world/asia/japan-china-taiwan-dispute.html
 
-**A Tap-to-Pay Society Is Leaving These New Yorkers Behind**\
-`As fewer people carry cash, vendors, street performers and people experiencing homelessness and unemployment are at a disadvantage.`\
-https://nytimes.com/2025/11/21/nyregion/cashless-economy.html
+**This Holiday Season, Make a ‘To-Don’t’ List**\
+`Does anyone in your family even like the green bean casserole?`\
+https://nytimes.com/2025/11/21/well/holiday-hosting-stress-relief-thanksgiving.html
 
-**The Basketball Star Who Accidentally Became a Country Music Heartthrob**\
-`As a boy in Brooklyn, Adrien Nunez dreamed of playing in the N.B.A. He got close, but it turns out he had a gift for singing at the top of his lungs in his car.`\
-https://nytimes.com/2025/11/21/nyregion/adrien-nunez-low-road-songs-basketball.html
+**Republicans’ Redistricting Push Is at Risk of Backfiring**\
+`A series of setbacks for the G.O.P. leaves an unlikely opening for Democrats to narrowly win this year’s redistricting wars.`\
+https://nytimes.com/2025/11/21/upshot/republicans-redistricting-gerrymanders-update.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/11/21/crosswords/spelling-bee-forum.html
+**The New York Times News Quiz, Nov. 21, 2025**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/11/21/briefing/trump-saudi-arabia-jeffrey-epstein-wicked-quiz.html
 
-**Howard Webb defends PGMOL’s appointment process at tribunal**\
-`Lisa Benn had claimed “people are scared to come forward and challenge inappropriate behaviour because of the fear of consequence".`\
-https://nytimes.com/athletic/6824626/2025/11/21/howard-webb-pgmol-tribunal/
+**Should You Dry Someone Else’s Abandoned Laundry?**\
+`A ruling on a dispute over wet clothing.`\
+https://nytimes.com/interactive/2025/11/21/magazine/wet-laundry-hodgman-quiz.html
 
-**‘I’ll Go When You Go,’ Jimmy Kimmel Tells Trump**\
-`“Let’s ride off into the sunset together like Butch Cassidy and the Suntan Kid,” Kimmel said after the president demanded (again) that ABC take him off the air.`\
-https://nytimes.com/2025/11/21/arts/television/jimmy-kimmel-trump-abc.html
+**A Meditative Louis C.K. Takes the Stage. Don’t Call It a Comeback.**\
+`“Ridiculous,” the newest show of his prolific post-cancellation career, represents a break from the past along with continuity.`\
+https://nytimes.com/2025/11/21/arts/television/louis-ck-ridiculous-beacon-tour.html
 
-**As San Siro begins long goodbye, Barcelona goes home**\
-`With the San Siro stadium facing demolition, each remaining derby at the old venue will be tinged with nostaglia.`\
-https://nytimes.com/athletic/6825260/2025/11/21/as-san-siro-begins-long-goodbye-barcelona-goes-home/
+**Watch a ‘Wonderful’ Moment From ‘Wicked: For Good’**\
+`The director Jon M. Chu narrates a sequence from his film featuring Ariana Grande, Cynthia Erivo and Jeff Goldblum performing the song “Wonderful.”`\
+https://nytimes.com/2025/11/21/movies/wicked-for-good-clip.html
 
