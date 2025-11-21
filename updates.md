@@ -1,3 +1,15 @@
+**Why Are Young Men Embracing the Quarter-Zip Lifestyle?**\
+`How one of the stodgiest garments in the Western wardrobe caught on with the Nike Tech crowd.`\
+https://nytimes.com/2025/11/21/style/quarter-zip-sweater-men-tiktok.html
+
+**The New York Times in Print for Friday, Nov. 21, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/21/todays-new-york-times
+
+**I’m in Venezuela. This Is the True Cost of Trump’s Gunboat Diplomacy.**\
+`Trump’s show of force toward Venezuela has created a disastrous political trap — for Venezuelans most of all.`\
+https://nytimes.com/2025/11/21/opinion/venezuela-trump-maduro-machado-regime-change.html
+
 **Connor Bedard's unsportsmanlike penalty leads to Blackhawk loss: 'It better have been really personal'**\
 `Bedard's anger against the Kraken on Thursday may have been justified, but it still got him into trouble.`\
 https://nytimes.com/athletic/6825214/2025/11/21/it-better-have-been-really-personal-connor-bedards-unsportsmanlike-penalty-leads-to-blackhawk-loss/
