@@ -1,3 +1,7 @@
+**Why Your Kitchen Looks Like That**\
+`A century of American kitchen design, from the dawn of electricity to the kitchen island.`\
+https://nytimes.com/interactive/2025/11/21/realestate/kitchen-design-trends-history.html
+
 **The Professors Who Stayed Close With Epstein**\
 `Even as the disgraced financier’s crimes were revealed, newly released emails show how academics at top universities stuck by Jeffrey Epstein, often seeking his help and offering it in return.`\
 https://nytimes.com/2025/11/21/us/professors-jeffrey-epstein-relationships.html

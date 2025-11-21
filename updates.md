@@ -1,3 +1,7 @@
+**Why Your Kitchen Looks Like That**\
+`A century of American kitchen design, from the dawn of electricity to the kitchen island.`\
+https://nytimes.com/interactive/2025/11/21/realestate/kitchen-design-trends-history.html
+
 **The Best Books of the Year (So Far)**\
 `The nonfiction and novels we can’t stop thinking about.`\
 https://nytimes.com/2025/05/07/books/best-books-2025-so-far.html
