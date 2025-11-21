@@ -1,3 +1,7 @@
+**How to watch Wisconsin vs. BYU men's basketball: Time, TV, streaming**\
+`Find out how to watch the Wisconsin Badgers play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6826161/2025/11/21/wisconsin-vs-byu-stream-how-to-watch-nov-21/
+
 **Rashford set to miss Athletic Club game with fever, Raphinha to return**\
 `Speaking at a pre-match news conference on Friday, Flick said Rashford had a fever but confirmed Raphinha would return to the bench.`\
 https://nytimes.com/athletic/6825991/2025/11/21/marcus-rashford-barcelona-raphinha-team-news/
