@@ -1,3 +1,23 @@
+**To the Castle**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2025/11/21/learning/to-the-castle.html
+
+**A Tap-to-Pay Society Is Leaving These New Yorkers Behind**\
+`As fewer people carry cash, vendors, street performers and people experiencing homelessness and unemployment are at a disadvantage.`\
+https://nytimes.com/2025/11/21/nyregion/cashless-economy.html
+
+**The Basketball Star Who Accidentally Became a Country Music Heartthrob**\
+`As a boy in Brooklyn, Adrien Nunez dreamed of playing in the N.B.A. He got close, but it turns out he had a gift for singing at the top of his lungs in his car.`\
+https://nytimes.com/2025/11/21/nyregion/adrien-nunez-low-road-songs-basketball.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/21/crosswords/spelling-bee-forum.html
+
+**Howard Webb defends PGMOL’s appointment process at tribunal**\
+`Lisa Benn had claimed “people are scared to come forward and challenge inappropriate behaviour because of the fear of consequence".`\
+https://nytimes.com/athletic/6824626/2025/11/21/howard-webb-pgmol-tribunal/
+
 **‘I’ll Go When You Go,’ Jimmy Kimmel Tells Trump**\
 `“Let’s ride off into the sunset together like Butch Cassidy and the Suntan Kid,” Kimmel said after the president demanded (again) that ABC take him off the air.`\
 https://nytimes.com/2025/11/21/arts/television/jimmy-kimmel-trump-abc.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/11/21/style/quarter-zip-sweater-men-tiktok.html
 **The New York Times in Print for Friday, Nov. 21, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/21/todays-new-york-times
-
-**I’m in Venezuela. This Is the True Cost of Trump’s Gunboat Diplomacy.**\
-`Trump’s show of force toward Venezuela has created a disastrous political trap — for Venezuelans most of all.`\
-https://nytimes.com/2025/11/21/opinion/venezuela-trump-maduro-machado-regime-change.html
-
-**Referee injured in Texans-Bills 'Thursday Night Football' game**\
-`Referee Adrian Hill was injured in the third quarter of the Texans' 23-19 win against the Bills.`\
-https://nytimes.com/athletic/6825406/2025/11/21/houston-texans-buffalo-bills-referee-injured-thursday-night-football/
-
-**Joshua Zirkzee is playing little for club or country. Will Sesko's injury and AFCON call-ups give him a shot?**\
-`Will Sesko's injury and AFCON call-ups open the door for Joshua Zirkzee?`\
-https://nytimes.com/athletic/6800578/2025/11/21/joshua-zirkzee-manchester-united/
-
-**The Prospects: Lessons England's under-17s must learn from World Cup elimination**\
-`There is no question about the depth of talent in this squad, but to fulfil their potential they must learn from going out in the last 16`\
-https://nytimes.com/athletic/6823109/2025/11/21/the-prospects-lessons-englands-under-17s-must-learn-from-world-cup-elimination/
-
-**Under Dyche, Forest are starting to see Gibbs-White back at his best**\
-`Morgan Gibbs-White's form has improved recently. One of the reasons is his new manager, Sean Dyche`\
-https://nytimes.com/athletic/6823910/2025/11/21/nottingham-forest-gibbs-white-best/
 
