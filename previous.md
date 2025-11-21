@@ -1,3 +1,7 @@
+**Cassidy Got Pledges From Kennedy on Vaccines. They Haven’t Stuck.**\
+`Before casting a crucial vote for the health secretary, the top Senate Republican laid out several specific commitments he had secured, some of which appear to have been breached.`\
+https://nytimes.com/2025/11/21/us/politics/cassidy-cdc-vaccines-autism.html
+
 **Thousands of French Brands Sue Shein, Accusing It of Unfair Competition**\
 `The class-action lawsuit is the latest push against the Chinese retailer in France, where protests outside its first store broke out earlier this month.`\
 https://nytimes.com/2025/11/21/business/french-brands-sue-shein.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/21/us/politics/trump-saudi-crown-prince-khashoggi.ht
 **Sam LaPorta has ' very slim' chance of return this season, Dan Campbell says**\
 `LaPorta was putting together another strong season before his injury with 40 receptions for 489 yards.`\
 https://nytimes.com/athletic/6826823/2025/11/21/lions-sam-laporta-back-season/
-
-**Paramount's game-changing Champions League deal: What does it mean for fans? What happens to TNT?**\
-`Why has Paramount gone for these rights? How much does it charge? What about Amazon? Will it show CBS coverage? How will TNT cope?`\
-https://nytimes.com/athletic/6826588/2025/11/21/paramount-champions-league-rights-tnt/
 
