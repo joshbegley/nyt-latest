@@ -1,3 +1,7 @@
+**TAFC: Bielsa's 'El Loco' side unleashed again. Plus: Inside the Jamaica crisis**\
+`Why is the Uruguay manager feeling the strain? And the Premier League is back – can Liverpool turn around their title defence?`\
+https://nytimes.com/athletic/6825970/2025/11/21/marcelo-bielsa-uruguay-jamaica-tafc/
+
 **Celtics coach Joe Mazzulla on concept of fun: ‘Don’t know what it means’**\
 `"I can make anything miserable because I don't see the joy side of it," says Mazzulla. `\
 https://nytimes.com/athletic/6825192/2025/11/21/celtics-coach-joe-mazzulla-no-fun/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6822316/2025/11/21/blazers-damian-lillard-game-winn
 **Trinity Rodman focused on winning NWSL Championship game 'and then we'll see'**\
 `When asked if she thought this could be her last game with the Spirit, Rodman said she's focused on the present.`\
 https://nytimes.com/athletic/6824557/2025/11/21/trinity-rodman-nwsl-contract-super-league/
-
-**Miss Mexico Crowned Miss Universe**\
-`Fátima Bosch was crowned the 74th Miss Universe on Friday. The competition had drawn attention when she briefly left an event after an organizer scolded her.`\
-https://nytimes.com/video/world/asia/100000010538128/miss-mexico-crowned-miss-universe.html
 
