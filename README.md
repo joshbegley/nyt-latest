@@ -1,3 +1,7 @@
+**Is the Gaza War Contributing to Antisemitism?**\
+`Is the recent onslaught of antisemitism on the right a result of the Israel-Hamas war? In this episode of “Interesting Times,” Yoram Hazony, an Israeli political theorist, explains how foreign policy is just one of the various forms that anti-Jewish messaging can take.`\
+https://nytimes.com/video/opinion/100000010529009/is-the-gaza-war-contributing-to-antisemitism.html
+
 **Qaeda Convict Returns to Guantánamo Court 17 Years After Trial**\
 `The Yemeni prisoner spent nearly seven hours at the war court, displaying some of the defiance of his 2008 proceeding.`\
 https://nytimes.com/2025/11/20/us/politics/al-qaeda-guantanamo-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/20/weather/texas-flood-rain.html
 **Judge Concludes Prosecutors Can Circumvent Federal Grand Juries in D.C.**\
 `The ruling by a federal judge found that federal prosecutors could fall back on local grand juries to approve serious charges when they failed to persuade a federal grand jury.`\
 https://nytimes.com/2025/11/20/us/politics/judge-trump-washington-grand-juries.html
-
-**Coast Guard Softens Stance on Hate and Hazing**\
-`A new servicewide policy recasts swastikas and nooses as merely “politically divisive” and deletes protections for transgender troops.`\
-https://nytimes.com/2025/11/20/us/politics/coast-guard-hate-crimes.html
 
