@@ -1,3 +1,11 @@
+**Paramount's game-changing Champions League deal: What does it mean for fans? What happens to TNT?**\
+`Why has Paramount gone for these rights? How much does it charge? What about Amazon? Will it show CBS coverage? How will TNT cope?`\
+https://nytimes.com/athletic/6826588/2025/11/21/paramount-champions-league-rights-tnt/
+
+**Baylor coach Dave Aranda will return for 2026 season amid AD transition**\
+`Baylor was a job many coaches had their eye on as a potential opening, but the resignation of Mack Rhoades brought uncertainty.`\
+https://nytimes.com/athletic/6826772/2025/11/21/baylor-dave-aranda-coach-return-2026/
+
 **Don’t Push Russia’s Bad Deal on Ukraine**\
 `War and diplomacy: Readers react to developments on Russia and Ukraine. Also: A global democracy deficit; a sad phone.`\
 https://nytimes.com/2025/11/21/opinion/russia-ukraine.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/11/21/realestate/sports-stadium-nightlife-citi-field-ba
 **College football best bets Week 13: Upset watch for Georgia Tech and BYU**\
 `Georgia Tech and BYU are both in tight games on paper on Saturday. Austin Mock has bets bets in both games.`\
 https://nytimes.com/athletic/6826357/2025/11/21/college-football-best-bets-week-13-georgia-tech-byu/
-
-**Amid fresh criticism, does Carlos Mendoza have a bullpen problem?**\
-`An ex-Mets reliever publicly questioned the manager's usage and communication skills, but a former manager called that "just wrong."`\
-https://nytimes.com/athletic/6826569/2025/11/21/mets-mendoza-bullpen-adam-ottavino/
-
-**Giants rule out QB Jaxson Dart vs. Lions; Jameis Winston will start**\
-`Jaxson Dart will miss his second straight start.`\
-https://nytimes.com/athletic/6826676/2025/11/21/ny-giants-jaxson-dart-jameis-winston-lions/
 
