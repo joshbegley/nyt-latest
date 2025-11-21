@@ -1,3 +1,11 @@
+**Jamaica Announces Deadly Bacterial Outbreak After Hurricane Melissa**\
+`Six people have died of leptospirosis, a rare bacterial illness often found in contaminated water. The storm increased the risk of contracting the disease, officials said.`\
+https://nytimes.com/2025/11/21/us/jamaica-leptospirosis-outbreak-hurricane-melissa.html
+
+**Lane Kiffin future announcement 'expected' after Egg Bowl, Ole Miss says**\
+`Ole Miss acknowledged "outside noise" but says Kiffin is focused on the Egg Bowl.`\
+https://nytimes.com/athletic/6826729/2025/11/21/lane-kiffin-ole-miss-head-coaching-search-news/
+
 **‘Initiative’ Review: High School as an Epic Struggle**\
 `A new production at the Public Theater takes up five hours of stage time to tell the story of a group of friends from their first day to graduation.`\
 https://nytimes.com/2025/11/21/theater/initiative-review-else-went.html
