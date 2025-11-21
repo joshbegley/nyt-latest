@@ -1,3 +1,7 @@
+**How to watch Alabama State vs. Vanderbilt women's basketball: Time, TV, streaming**\
+`Find out how to watch the Alabama State Lady Hornets play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6825812/2025/11/21/alabama-state-vs-vanderbilt-stream-how-to-watch-nov-21/
+
 **Flying for Thanksgiving? Here’s the Only Travel Guide You’ll Need.**\
 `Flight cancellations. Record crowds. A recent government shutdown. Here are some tips for navigating an especially fraught holiday travel season.`\
 https://nytimes.com/explain/2025/11/21/travel/thanksgiving-travel-flights-delays
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/11/21/magazine/wet-laundry-hodgman-quiz.htm
 **A Meditative Louis C.K. Takes the Stage. Don’t Call It a Comeback.**\
 `“Ridiculous,” the newest show of his prolific post-cancellation career, represents a break from the past along with continuity.`\
 https://nytimes.com/2025/11/21/arts/television/louis-ck-ridiculous-beacon-tour.html
-
-**Watch a ‘Wonderful’ Moment From ‘Wicked: For Good’**\
-`The director Jon M. Chu narrates a sequence from his film featuring Ariana Grande, Cynthia Erivo and Jeff Goldblum performing the song “Wonderful.”`\
-https://nytimes.com/2025/11/21/movies/wicked-for-good-clip.html
 
