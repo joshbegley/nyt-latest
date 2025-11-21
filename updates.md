@@ -1,3 +1,19 @@
+**Red Light: What's behind the NHL's injury explosion?**\
+`Plus: Everything you need to know as the PWHL season begins.`\
+https://nytimes.com/athletic/6826430/2025/11/21/nhl-injuries-man-games-lost-2025-26-season/
+
+**The Bounce: Don't stop believin' in the Pistons. Plus, the NBA Cup gets dramatic**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6826387/2025/11/21/the-bounce-pistons-east-nba-cup/
+
+**At Least 52 Kidnapped From Nigeria School in Second Mass Abduction This Week**\
+`Students and teachers were taken captive from a Catholic school in the latest in a wave of such attacks in the country.`\
+https://nytimes.com/2025/11/21/world/africa/nigeria-school-abduction.html
+
+**Turkey Stuffing Meatballs**\
+`The classic combo of turkey and stuffing, all rolled into one. These turkey meatballs use cubed bread as their binder. The bread is joined by olive oil, chicken stock, minced vegetables and seasonings to make them extra moist and flavorful.`\
+https://nytimes.com/video/dining/100000010523248/turkey-stuffing-meatballs.html
+
 **Will any Carolina Hurricanes be considered for NHL awards this season?**\
 `Carolina is one of the top teams in the NHL, but will any players get individual recognition?`\
 https://nytimes.com/athletic/6825375/2025/11/21/carolina-hurricanes-calder-selke/
