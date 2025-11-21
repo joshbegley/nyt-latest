@@ -1,3 +1,15 @@
+**These Blazers have hope. Damian Lillard offers a window into why 'better moments are ahead'**\
+`Damian Lillard's 2019 series-clincher still resonates around the Blazers. But it offers a lesson this team should heed among its struggles. `\
+https://nytimes.com/athletic/6822316/2025/11/21/blazers-damian-lillard-game-winner-legacy/
+
+**Trinity Rodman focused on winning NWSL Championship game 'and then we'll see'**\
+`When asked if she thought this could be her last game with the Spirit, Rodman said she's focused on the present.`\
+https://nytimes.com/athletic/6824557/2025/11/21/trinity-rodman-nwsl-contract-super-league/
+
+**Miss Mexico Crowned Miss Universe**\
+`Fátima Bosch was crowned the 74th Miss Universe on Friday. The competition had drawn attention when she briefly left an event after an organizer scolded her.`\
+https://nytimes.com/video/world/asia/100000010538128/miss-mexico-crowned-miss-universe.html
+
 **Should Bears fans be worried about kicker Cairo Santos? He isn't**\
 `During a turbulent season, Santos is confident he is back in his groove at just the right time.`\
 https://nytimes.com/athletic/6824493/2025/11/21/bears-kicker-cairo-santos-challenging-season/
