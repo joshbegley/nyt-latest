@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6824483/2025/11/20/lakers-jesse-buss-fired-jeanie-m
 `Postseason races underscore why the Chiefs and Bears enter must-win territory in Week 12`\
 https://nytimes.com/athletic/6824861/2025/11/20/nfl-playoff-picture-2025-week-12-chiefs-49ers-bears/
 
-**Frida Kahlo Portrait Sells for $54.7 Million, Her Auction Record**\
+**Frida Kahlo Portrait Sells for $55 Million, Her Auction Record**\
 `The surrealistic self-portrait was made in 1940, a turbulent year in the Mexican artist’s life as her health and marriage deteriorated.`\
 https://nytimes.com/2025/11/20/arts/design/kahlo-portrait-auction-art-sothebys.html
 
