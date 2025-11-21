@@ -1,3 +1,11 @@
+**The Prospects: Lessons England's under-17s must learn from World Cup elimination**\
+`There is no question about the depth of talent in this squad, but to fulfil their potential they must learn from going out in the last 16`\
+https://nytimes.com/athletic/6823109/2025/11/21/the-prospects-lessons-englands-under-17s-must-learn-from-world-cup-elimination/
+
+**Under Dyche, Forest are starting to see Gibbs-White back at his best**\
+`Morgan Gibbs-White's form has improved recently. One of the reasons is his new manager, Sean Dyche`\
+https://nytimes.com/athletic/6823910/2025/11/21/nottingham-forest-gibbs-white-best/
+
 **Pedro Porro: Tottenham's Mister Reliable may now face his biggest test**\
 `The international break has afforded Spurs' right-back a rare rest from competitive action - with the minutes increasing, can he keep it up?`\
 https://nytimes.com/athletic/6823011/2025/11/21/pedro-porro-tottenham-hotspur-minutes/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6820639/2025/11/21/aston-villa-network-clubs-emery/
 **Mexico Wins Miss Universe Pageant Marred by Scandal**\
 `Fátima Bosch was crowned in Thailand on Friday. The competition got off to a rocky start this month when she briefly walked out after being scolded by an organizer.`\
 https://nytimes.com/2025/11/21/world/asia/miss-universe-mexico.html
-
-**Lessons for Liverpool: Why do so many Premier League title defences go wrong?**\
-`Arne Slot's side are not the first team to find the defence of their crown difficult — but does that make them 'bad champions'?`\
-https://nytimes.com/athletic/6823836/2025/11/21/premier-league-title-defences-liverpool-ferguson-guardiola-mourinho/
-
-**A Former Trump Impeachment Manager Will Run for California Governor**\
-`Representative Eric Swalwell, a Democrat, is likely to emphasize his history of fighting President Trump, an approach that many Democratic voters say they want their elected officials to take.`\
-https://nytimes.com/2025/11/21/us/eric-swalwell-california-governor.html
 
