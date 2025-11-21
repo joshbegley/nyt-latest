@@ -1,40 +1,40 @@
-**Corrections: Nov. 21, 2025**\
-`Corrections that appeared in print on Friday, Nov. 21, 2025.`\
-https://nytimes.com/2025/11/20/pageoneplus/corrections-nov-21-2025.html
+**Why Europe's top clubs are already taking notice of Kees Smit**\
+`The Dutch teenager is a superb technician and has been likened to Pedri by national team coach Ronald Koeman`\
+https://nytimes.com/athletic/6823190/2025/11/21/kees-smit-profile/
 
-**Quote of the Day: The Hunt Is On for Bears in Japan After Deadly Attacks**\
-`Quotation of the Day for Friday, November 21, 2025.`\
-https://nytimes.com/2025/11/20/pageoneplus/quote-of-the-day-the-hunt-is-on-for-bears-in-japan-after-deadly-attacks.html
+**Bills-Texans takeaways: Houston defense sacks Josh Allen 8 times for win**\
+`Against the Buffalo Bills, Houston's defense forced three turnovers.`\
+https://nytimes.com/athletic/6825042/2025/11/21/bills-texans-score-result-takeaways-thursday-night-football/
 
-**Justice Dept. Sues California Over College Benefits for Undocumented Students**\
-`The lawsuit is the third filed by the Justice Department against the state in a week.`\
-https://nytimes.com/2025/11/20/us/politics/ucla-undocumented-students-tuition-doj-lawsuit-california.html
+**Chelsea showcase tactical evolution as their self-restraint frustrates Barcelona**\
+`Sonia Bompastor tweaked her team's tactics after last season's heavy aggregate loss to these opponents in the Champions League semi-final`\
+https://nytimes.com/athletic/6824954/2025/11/21/chelsea-barcelona-bompastor-tactics-uwcl/
 
-**Back home in Toronto, Adam Fantilli has another banner night in Blue Jackets' win**\
-`Fantilli delivered two goals and an overtime winner in Toronto, electrifying a massive hometown crowd and carrying the Blue Jackets.`\
-https://nytimes.com/athletic/6825134/2025/11/20/adam-fantilli-columbus-blue-jackets-nhl/
+**What the plans for Birmingham City's new stadium reveal about the club's direction of travel**\
+`Early reaction to the £1.2billion project from locals has been largely positive, but considerably more mixed across the country`\
+https://nytimes.com/athletic/6823751/2025/11/21/birmingham-city-new-stadium-plans/
 
-**Trump and Mamdani to Meet at the White House**\
-`President Trump and Zohran Mamdani, the mayor-elect of New York City, were expected to meet on Friday at the White House. The meeting comes after months of trading insults.`\
-https://nytimes.com/video/world/americas/100000010537125/mamdani-trump-meeting.html
+**Five Tourists Killed in Snowstorm in Chilean Patagonia**\
+`The tourists, from Mexico, Britain and Germany, died Monday on a popular hiking trail in the Torres del Paine National Park.`\
+https://nytimes.com/2025/11/21/world/americas/hikers-killed-patagonia.html
 
-**Australia Adds Twitch to Social Media Ban for Teens**\
-`Twitch, a livestreaming service popular with gamers, joins nine other platforms that will be required to remove Australian users under the age of 16.`\
-https://nytimes.com/2025/11/20/world/australia/twitch-australia-social-media-ban.html
+**Desperate Search for Missing Syrians Leads to Mass Graves**\
+`More than 100,000 people disappeared during the 13-year civil war. To bring closure to some of their families, the new government faces the challenging task of exhuming remains from scores of burial sites.`\
+https://nytimes.com/2025/11/21/world/middleeast/syria-mass-graves-civil-war.html
 
-**Kings match worst start in franchise history after eighth straight double-digit loss**\
-`Sacramento is now 3-13 this season after a 137-96 defeat and has lost eight straight games by double digits. Is this rock bottom?`\
-https://nytimes.com/athletic/6825290/2025/11/20/kings-losing-streak-grizzlies-sabonis/
+**Researcher’s Smuggling Arrest Casts Light on Dispute Over Chinese Students**\
+`As some lawmakers press U.S. universities to curtail ties with China, a postdoctoral student’s prosecution raises questions about how big the danger actually is.`\
+https://nytimes.com/2025/11/21/world/asia/chinese-students-us.html
 
-**Tyrese Maxey drops career-high 54 points in Sixers' overtime win over Bucks**\
-`At this point, it's fair to ask if Maxey is having the best year among guards in the Eastern Conference.`\
-https://nytimes.com/athletic/6825312/2025/11/20/tyrese-maxey-54-points-career-high-sixers-bucks/
+**Four Months Into Dating, She Moved Across the Country with Him**\
+`When Seun Akinboboye asked his new girlfriend, Taylar Wade, to relocate to San Francisco, she didn’t want to wonder “what if.”`\
+https://nytimes.com/2025/11/21/style/taylar-wade-seun-akinboboye-wedding.html
 
-**KHL players bitten by attack dog during ceremonial puck drop**\
-`An attack dog from the local Minsk police force got a little too chompy with players from CSKA Moscow and Dinamo Minsk on Thursday.`\
-https://nytimes.com/athletic/6825168/2025/11/20/dog-bites-khl-players/
+**An Army Captain Asked His Server About Herself. She Wasn’t Interested (Yet).**\
+`Neither Shaylah Nichols nor Jordan Lee was looking for anything serious in Honolulu. A late-night talk and lots of laughs changed that.`\
+https://nytimes.com/2025/11/21/style/shaylah-nichols-jordan-lee-wedding.html
 
-**Trent Grisham taking the Yankees' qualifying offer wasn't as bad as you think**\
-`Grisham's decision to accept the $22.05M qualifying offer has agitated some of the Yankees' fan base. But not Brian Cashman — nor should it.`\
-https://nytimes.com/athletic/6823463/2025/11/20/trent-grisham-yankees-qualifying-offer-fans/
+**A Painful Family Discovery, and the Love Story That Followed**\
+`After a revelation about her ancestors, Elizabeth Thomas moved to Washington, D.C., found a fulfilling career and met Anthony Gregg.`\
+https://nytimes.com/2025/11/21/style/elizabeth-thomas-anthony-gregg-wedding.html
 
