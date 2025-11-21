@@ -1,3 +1,15 @@
+**3 Children Are Injured in Grizzly Bear Attack in British Columbia**\
+`The children were among four people who were hurt when a grizzly bear attacked a school group in a remote part of British Columbia’s central coast, the authorities said.`\
+https://nytimes.com/2025/11/21/world/canada/canada-bear-attack-children.html
+
+**NCAA rescinds betting rule change on pro sports for staff, athletes**\
+`The NCAA also announced infractions decisions Friday related to sports gambling violations within the Temple men's basketball program.`\
+https://nytimes.com/athletic/6826693/2025/11/21/ncaa-betting-rules-athletes-pro-sports/
+
+**Bayern Munich's Diaz hit with three-match Champions League ban**\
+`The Colombian winger will miss the games against Arsenal, Sporting CP and Royale Union Saint-Gilloise.`\
+https://nytimes.com/athletic/6827392/2025/11/21/luis-diaz-suspension-champions-league-arsenal/
+
 **Jamaica Announces Deadly Bacterial Outbreak After Hurricane Melissa**\
 `Six people have died of leptospirosis, a rare bacterial illness often found in contaminated water. The storm increased the risk of contracting the disease, officials said.`\
 https://nytimes.com/2025/11/21/us/jamaica-leptospirosis-outbreak-hurricane-melissa.html

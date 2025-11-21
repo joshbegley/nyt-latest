@@ -1,3 +1,15 @@
+**3 Children Are Injured in Grizzly Bear Attack in British Columbia**\
+`The children were among four people who were hurt when a grizzly bear attacked a school group in a remote part of British Columbia’s central coast, the authorities said.`\
+https://nytimes.com/2025/11/21/world/canada/canada-bear-attack-children.html
+
+**NCAA rescinds betting rule change on pro sports for staff, athletes**\
+`The NCAA also announced infractions decisions Friday related to sports gambling violations within the Temple men's basketball program.`\
+https://nytimes.com/athletic/6826693/2025/11/21/ncaa-betting-rules-athletes-pro-sports/
+
+**Bayern Munich's Diaz hit with three-match Champions League ban**\
+`The Colombian winger will miss the games against Arsenal, Sporting CP and Royale Union Saint-Gilloise.`\
+https://nytimes.com/athletic/6827392/2025/11/21/luis-diaz-suspension-champions-league-arsenal/
+
 **Jamaica Announces Deadly Bacterial Outbreak After Hurricane Melissa**\
 `Six people have died of leptospirosis, a rare bacterial illness often found in contaminated water. The storm increased the risk of contracting the disease, officials said.`\
 https://nytimes.com/2025/11/21/us/jamaica-leptospirosis-outbreak-hurricane-melissa.html
@@ -17,16 +29,4 @@ https://nytimes.com/athletic/6827297/2025/11/21/kansas-darryn-peterson-out-hamst
 **Former champion Gennadiy Golovkin to lead World Boxing ahead of 2028 Olympics**\
 `Golovkin is set to assume the presidency of the organization Sunday in Rome.`\
 https://nytimes.com/athletic/6827198/2025/11/21/gennadiy-golovkin-world-boxing-2028-olympics/
-
-**Eli Lilly Reaches $1 Trillion in Value, Buoyed by Demand for Its Weight Loss Drugs**\
-`The 150-year-old drugmaker is the first company in health care to hit the milestone.`\
-https://nytimes.com/2025/11/21/health/eli-lilly-one-trillion-value-pharmaceuticals.html
-
-**Dru Joyce II, Joyce III reminisce about LeBron James, "Fab Five" days**\
-`Duquesne has been playing an annual game in Akron since 2018, a tradition started by former head coach and Akron native Keith Dambrot.`\
-https://nytimes.com/athletic/6826056/2025/11/21/duquesne-st-vincent-st-mary-game/
-
-**Former Met Museum Chief Takes Over Philadelphia Art Museum**\
-`Two weeks after dismissing its director and chief executive, Sasha Suda, the museum has named her replacement: Daniel H. Weiss. It also responded to a lawsuit brought by Suda.`\
-https://nytimes.com/2025/11/21/arts/design/former-met-museum-chief-philadelphia-museum.html
 
