@@ -1,3 +1,35 @@
+**Rashford set to miss Athletic Club game with fever, Raphinha to return**\
+`Speaking at a pre-match news conference on Friday, Flick said Rashford had a fever but confirmed Raphinha would return to the bench.`\
+https://nytimes.com/athletic/6825991/2025/11/21/marcus-rashford-barcelona-raphinha-team-news/
+
+**Three Potential Factors Behind the Market Turmoil**\
+`Growing jitters over the Federal Reserve, crypto and the future of the artificial intelligence boom have helped drive a global sell-off.`\
+https://nytimes.com/2025/11/21/business/dealbook/stocks-crypto-fed-market-turmoil.html
+
+**Q&A: Astros offensive coordinator Dan Hennigan on his new role, goals for Houston's offense**\
+`Hennigan will not be in uniform as a coach, but he will assist the new hitting coaches with game planning. `\
+https://nytimes.com/athletic/6824876/2025/11/21/interview-astros-offensive-coordinator-dan-hennigan/
+
+**In F1, what happens in Vegas doesn’t stay there - it becomes the sport’s blueprint**\
+`F1's high-profile event in Las Vegas attracts plenty of comment. But the sport's owners wants more elements from Vegas at other races`\
+https://nytimes.com/athletic/6825828/2025/11/21/f1-las-vegas-gp-entertainment/
+
+**Lowetide: Which AHL players could earn a call-up to the Oilers?**\
+`These four players might be able to deliver in the NHL for the Oilers later this season.`\
+https://nytimes.com/athletic/6823567/2025/11/21/edmonton-oilers-ahl-players-howard-hutson-ingram/
+
+**The case for sending young NHL stars to the Olympics**\
+`The 2026 Olympics could be a chance to start the changing of the guard. Macklin Celebrini and Connor Bedard should be slam dunks.`\
+https://nytimes.com/athletic/6824657/2025/11/21/olympics-hockey-young-players-benefits/
+
+**Concacaf World Cup qualifying burst into chaos minus USMNT, Mexico, Canada**\
+`Its three hosts automatically in the World Cup, the Concacaf region's qualifying campaign produced extraordinary drama and huge shocks.`\
+https://nytimes.com/athletic/6824174/2025/11/21/concacaf-world-cup-qualifying-usmnt-haiti-curacao/
+
+**Chargers bye week scouting report: A deep dive on the issues and how to fix them**\
+`Protecting the ball better on offense and using heavier personnel on defense are two possible ways for the Chargers to improve.`\
+https://nytimes.com/athletic/6821992/2025/11/21/chargers-bye-week-scouting-report/
+
 **Trump Administration Live Updates: President and Mamdani to Meet for First Time**\
 ``\
 https://nytimes.com/live/2025/11/21/us/trump-news
@@ -5,36 +37,4 @@ https://nytimes.com/live/2025/11/21/us/trump-news
 **European Leaders Back Zelensky After U.S. Plan Leaves Them Out**\
 `The 28-point proposal would require Kyiv to surrender territory, reduce the size of its army and relinquish some weaponry, according to officials familiar with the proposal.`\
 https://nytimes.com/2025/11/21/world/europe/ukraine-russia-trump-peace-plan.html
-
-**What we've learned about the Timberwolves after 15 games**\
-`Julius Randle is surging and Anthony Edwards is slumping for Minnesota, which is beating the bad teams and losing to the good ones so far.`\
-https://nytimes.com/athletic/6824572/2025/11/21/timberwolves-first-15-julius-randle-jaden-mcdaniels/
-
-**NWSL commissioner Jessica Berman talks salary cap, calendar changes and transgender inclusion**\
-`While Trinity Rodman's future was the main talking point, Berman also hit on other key updates from the 2025 season.`\
-https://nytimes.com/athletic/6824594/2025/11/21/state-of-nwsl-jessica-berman-salary-cap-calendar-transgender-inclusion/
-
-**Kelsie Whitmore is ready to be the face of women's professional baseball**\
-`Whitmore has been blazing trails in baseball for years, and she's made history again as the No. 1 draft pick in a new women's league.`\
-https://nytimes.com/athletic/6825482/2025/11/21/kelsie-whitmore-womens-pro-baseball-draft/
-
-**Fantasy Premier League live Q&A: Gameweek 12 advice from Ben Dinnery**\
-`Still mulling over your plan of action this gameweek? Ben Dinnery of premierinjuries.com is on hand to give you the best chance of success`\
-https://nytimes.com/athletic/6822633/2025/11/21/fantasy-premier-league-live-qa-gameweek-12-advice-from-ben-dinnery/
-
-**What's at stake for Michigan against Ohio State ... if it avoids a Maryland upset**\
-`Michigan has been on the periphery of CFP talk all year. That would change with a win at Maryland and another upset of Ohio State.`\
-https://nytimes.com/athletic/6823808/2025/11/21/michigan-football-maryland-ohio-state-playoff/
-
-**Roblox, Where Kids Game and Chat, Will Analyze Their Faces to Verify Age**\
-`The popular gaming platform said the tool was designed to stop children from chatting with older users they didn’t know.`\
-https://nytimes.com/2025/11/21/business/roblox-age-verification.html
-
-**Brian Cashman's charity sleepouts have become a punchline. Here's why he still does them**\
-`The GM sees the memes — "‘Cashman is asleep on the job.’ I’ve seen that all over social media.” — but says the mission is more important. `\
-https://nytimes.com/athletic/6825438/2025/11/21/brian-cashman-yankees-sleepout-charity-homeless-event/
-
-**NFL Week 12 schedule rankings: Top 5 Sunday games to shift the playoff odds**\
-`Here are the biggest postseason swing games across Week 12, according to The Athletic's NFL playoff projection model.`\
-https://nytimes.com/athletic/6821338/2025/11/21/nfl-week-12-playoff-odds-steelers-bears-chiefs/
 
