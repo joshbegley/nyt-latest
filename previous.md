@@ -1,3 +1,15 @@
+**Five Free Movies to Stream Now**\
+`For the Thanksgiving holiday, this month’s picks, including “Force Majeure” and “The Humans,” look at family togetherness in all its mundane glory.`\
+https://nytimes.com/2025/11/21/movies/five-free-movies-to-stream-now.html
+
+**Red Lentil Pumpkin Soup at the Push of a Button**\
+`And more reader (and staff) favorites from this week.`\
+https://nytimes.com/2025/11/21/dining/red-lentil-pumpkin-soup-at-the-push-of-a-button.html
+
+**Five Science Fiction Movies to Stream Now**\
+`In this month’s picks, there is cloud busting in Peru, a shadowy astronaut drama, doomsday preppers in New Zealand and more.`\
+https://nytimes.com/2025/11/21/movies/science-fiction-movies-streaming.html
+
 **Broncos mailbag: Submit your questions for beat writer Nick Kosmider**\
 `Let us know what's on your mind on the Broncos' bye week as they ride their longest winning streak since 2012.`\
 https://nytimes.com/athletic/6826343/2025/11/21/broncos-mailbag-request-bye-week/
@@ -25,16 +37,4 @@ https://nytimes.com/video/dining/100000010523248/turkey-stuffing-meatballs.html
 **Will any Carolina Hurricanes be considered for NHL awards this season?**\
 `Carolina is one of the top teams in the NHL, but will any players get individual recognition?`\
 https://nytimes.com/athletic/6825375/2025/11/21/carolina-hurricanes-calder-selke/
-
-**The Clippers look old and slow, and other teams know it**\
-`"It's hard for those guys to keep up," Jalen Suggs said after the Magic became the latest team to run circles around the Clippers. `\
-https://nytimes.com/athletic/6825483/2025/11/21/clippers-old-slow-issues-kawhi-leonard/
-
-**Stop freaking out about Bijan Robinson in a Kirk Cousins offense**\
-`Andy Behrens details the top Week 12 fantasy football news, including Joe Burrow's possible return and Bucky Irving's availability. `\
-https://nytimes.com/athletic/6826309/2025/11/21/fantasy-football-week-12-news-bijan-robinson-joe-burrow/
-
-**Cloverleaf Rolls**\
-`A basket of cloverleaf rolls might look humble sitting next to a burnished bird or a crown roast, but don’t underestimate its importance at a meal.`\
-https://nytimes.com/video/dining/100000010522976/cloverleaf-rolls.html
 

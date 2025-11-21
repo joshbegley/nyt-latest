@@ -1,3 +1,15 @@
+**Five Free Movies to Stream Now**\
+`For the Thanksgiving holiday, this month’s picks, including “Force Majeure” and “The Humans,” look at family togetherness in all its mundane glory.`\
+https://nytimes.com/2025/11/21/movies/five-free-movies-to-stream-now.html
+
+**Red Lentil Pumpkin Soup at the Push of a Button**\
+`And more reader (and staff) favorites from this week.`\
+https://nytimes.com/2025/11/21/dining/red-lentil-pumpkin-soup-at-the-push-of-a-button.html
+
+**Five Science Fiction Movies to Stream Now**\
+`In this month’s picks, there is cloud busting in Peru, a shadowy astronaut drama, doomsday preppers in New Zealand and more.`\
+https://nytimes.com/2025/11/21/movies/science-fiction-movies-streaming.html
+
 **Broncos mailbag: Submit your questions for beat writer Nick Kosmider**\
 `Let us know what's on your mind on the Broncos' bye week as they ride their longest winning streak since 2012.`\
 https://nytimes.com/athletic/6826343/2025/11/21/broncos-mailbag-request-bye-week/
