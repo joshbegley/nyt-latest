@@ -1,3 +1,7 @@
+**Joe Burrow questionable to play vs. Patriots, Bengals coach says**\
+`Cincinnati is 3-7 on the season and lost seven of eight games in Burrow’s absence.`\
+https://nytimes.com/athletic/6826707/2025/11/21/bengals-joe-burrow-status-patriots/
+
 **Make Unstoppable Happen**\
 `New York is proof that when 8 million people work toward something together, they can’t be stopped. `\
 https://nytimes.com/paidpost/jpmorgan-chase/make-unstoppable-happen.html
