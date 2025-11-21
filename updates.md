@@ -1,3 +1,15 @@
+**Trump and Mamdani Are Meeting for the First Time. Will They Play Nice?**\
+`Zohran Mamdani, the mayor-elect of New York City, will go to the White House on Friday. The stakes are high for the city.`\
+https://nytimes.com/2025/11/20/nyregion/mamdani-trump-meeting.html
+
+**Jesse Buss opens up on feeling like the Lakers treated him as 'an enemy'**\
+`The now-fired former Lakers director of scouting and part-owner tells The Athletic about his final years with the franchise and his future.`\
+https://nytimes.com/athletic/6824483/2025/11/20/lakers-jesse-buss-fired-jeanie-mark-walter/
+
+**Frida Kahlo Portrait Sells for $55 Million, Her Auction Record**\
+`The surrealistic self-portrait was made in 1940, a turbulent year in the Mexican artist’s life as her health and marriage deteriorated.`\
+https://nytimes.com/2025/11/20/arts/design/kahlo-portrait-auction-art-sothebys.html
+
 **Frida Kahlo Portrait Sells for $54.7 Million, Her Auction Record**\
 `The surrealistic self-portrait was made in 1940, a turbulent year in the Mexican artist’s life as her health and marriage deteriorated.`\
 https://nytimes.com/2025/11/20/arts/design/kahlo-portrait-auction-art-sothebys.html

@@ -1,3 +1,7 @@
+**Special Alert: The Pies Are Here!**\
+`We put Sue Li in charge of the pies this year, and she delivered six stunners.`\
+https://nytimes.com/2025/11/20/dining/special-alert-the-pies-are-here.html
+
 **Trump and Mamdani Are Meeting for the First Time. Will They Play Nice?**\
 `Zohran Mamdani, the mayor-elect of New York City, will go to the White House on Friday. The stakes are high for the city.`\
 https://nytimes.com/2025/11/20/nyregion/mamdani-trump-meeting.html
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6824483/2025/11/20/lakers-jesse-buss-fired-jeanie-m
 `Postseason races underscore why the Chiefs and Bears enter must-win territory in Week 12`\
 https://nytimes.com/athletic/6824861/2025/11/20/nfl-playoff-picture-2025-week-12-chiefs-49ers-bears/
 
-**Frida Kahlo Portrait Sells for $55 Million, Her Auction Record**\
+**Frida Kahlo Portrait Sells for $55 Million, Setting Her Auction Record**\
 `The surrealistic self-portrait was made in 1940, a turbulent year in the Mexican artist’s life as her health and marriage deteriorated.`\
 https://nytimes.com/2025/11/20/arts/design/kahlo-portrait-auction-art-sothebys.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/20/us/politics/coast-guard-hate-crimes.html
 **False accounting case involving Napoli and De Laurentiis referred to trial by Rome judge**\
 `Club president De Laurentiis and Napoli chief executive Andrea Chiavelli were placed under investigation and will stand trial.`\
 https://nytimes.com/athletic/6824417/2025/11/20/napoli-false-accounting-case/
-
-**Fire Breaks Out at COP30**\
-`A pavilion caught on fire during negotiations at the COP30 global climate summit in Belém, Brazil, on Thursday. It is the latest in a series of mishaps for the annual conference this year.`\
-https://nytimes.com/video/climate/100000010536799/fire-breaks-out-at-cop30.html
 
