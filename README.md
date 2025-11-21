@@ -1,3 +1,11 @@
+**Reed Sheppard is thinking less and shooting more. That's a great thing for the Rockets**\
+`Sheppard is Houston's only true point guard on the roster. After barely playing as a rookie, he's developing into an important "spark plug."`\
+https://nytimes.com/athletic/6825731/2025/11/21/reed-sheppard-rockets-improvement-experience/
+
+**Semenyo a doubt for West Ham game, Iraola ‘not worried’ about his future**\
+`The 25-year-old Ghanaian has a release clause of £65m for the upcoming winter transfer window.`\
+https://nytimes.com/athletic/6826053/2025/11/21/antoine-semenyo-injury-bournemouth-transfer/
+
 **How to watch Wisconsin vs. BYU men's basketball: Time, TV, streaming**\
 `Find out how to watch the Wisconsin Badgers play the BYU Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6826161/2025/11/21/wisconsin-vs-byu-stream-how-to-watch-nov-21/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6824657/2025/11/21/olympics-hockey-young-players-be
 **Concacaf World Cup qualifying burst into chaos minus USMNT, Mexico, Canada**\
 `Its three hosts automatically in the World Cup, the Concacaf region's qualifying campaign produced extraordinary drama and huge shocks.`\
 https://nytimes.com/athletic/6824174/2025/11/21/concacaf-world-cup-qualifying-usmnt-haiti-curacao/
-
-**Chargers bye week scouting report: A deep dive on the issues and how to fix them**\
-`Protecting the ball better on offense and using heavier personnel on defense are two possible ways for the Chargers to improve.`\
-https://nytimes.com/athletic/6821992/2025/11/21/chargers-bye-week-scouting-report/
-
-**Trump Administration Live Updates: President and Mamdani to Meet for First Time**\
-``\
-https://nytimes.com/live/2025/11/21/us/trump-news
 
