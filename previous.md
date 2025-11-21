@@ -1,3 +1,11 @@
+**In New Video, Sean Duffy Tells Passengers to Dress Up and Be Nice**\
+`The secretary of transportation kicked off a new civility campaign on Wednesday called “The Golden Age of Travel Starts With You.”`\
+https://nytimes.com/2025/11/21/travel/sean-duffy-airlines-manners-video.html
+
+**Notre Dame-Syracuse predictions: Conditions are prime for another Senior Day shutout**\
+`Three questions and one prediction as Notre Dame looks to make another CFP statement against Syracuse, a program that’s lost seven straight.`\
+https://nytimes.com/athletic/6826032/2025/11/21/notre-dame-syracuse-score-matchup-predictions/
+
 **Trump Fought to Prevent Mamdani’s Election. The Two Will Soon Meet Face to Face.**\
 `A first-time meeting between the president and the mayor-elect has implications for New York City.`\
 https://nytimes.com/2025/11/21/nyregion/trump-mamdani-cuomo.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/21/world/europe/trash-britain-illegal-dumping.html
 **Large Pile of Illegally Dumped Trash Discovered Near English Village**\
 `A mountain of rubbish was found next to a highway in the English countryside, prompting residents and British officials alike to wonder how “fly-tipping,” or illegal dumping, on this scale could have gone undetected.`\
 https://nytimes.com/video/world/europe/100000010538904/trash-pile-england-illegal.html
-
-**Florida Sheriff’s Deputy Is Killed While Serving Eviction Notice**\
-`A second deputy, a locksmith and the suspect were also shot in an exchange of gunfire, the authorities said.`\
-https://nytimes.com/2025/11/21/us/florida-deputy-shooting-vero-beach-bermuda-club.html
-
-**Trump and Prince Had ‘Disturbing’ Call After Khashoggi’s Murder, Lawmaker Says**\
-`Representative Eugene Vindman of Virginia said he reviewed a classified transcript of the 2019 conversation that would “shock” Americans.`\
-https://nytimes.com/2025/11/21/us/politics/trump-saudi-crown-prince-khashoggi.html
 

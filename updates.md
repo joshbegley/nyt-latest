@@ -1,3 +1,11 @@
+**In New Video, Sean Duffy Tells Passengers to Dress Up and Be Nice**\
+`The secretary of transportation kicked off a new civility campaign on Wednesday called “The Golden Age of Travel Starts With You.”`\
+https://nytimes.com/2025/11/21/travel/sean-duffy-airlines-manners-video.html
+
+**Notre Dame-Syracuse predictions: Conditions are prime for another Senior Day shutout**\
+`Three questions and one prediction as Notre Dame looks to make another CFP statement against Syracuse, a program that’s lost seven straight.`\
+https://nytimes.com/athletic/6826032/2025/11/21/notre-dame-syracuse-score-matchup-predictions/
+
 **Trump Fought to Prevent Mamdani’s Election. The Two Will Soon Meet Face to Face.**\
 `A first-time meeting between the president and the mayor-elect has implications for New York City.`\
 https://nytimes.com/2025/11/21/nyregion/trump-mamdani-cuomo.html
