@@ -1,3 +1,19 @@
+**Next week’s waiver wire: Kayshon Boutte and more players to add — before the Week 13 rush**\
+`John Laghezza looks ahead to the Week 13 waiver wire to give you an edge on competition.`\
+https://nytimes.com/athletic/6822989/2025/11/21/fantasy-football-waiver-wire-week-13-adds-boutte/
+
+**Kolo Muani, Bergvall, Sarr available for north London derby**\
+`Archie Gray, Mohammed Kudus and Radu Dragusin all trained on Friday.`\
+https://nytimes.com/athletic/6826334/2025/11/21/tottenham-team-news-north-london-derby/
+
+**Wolves boss role 'something I have always dreamed of', Edwards says**\
+`The 42-year-old was appointed on a three-and-a-half year deal this month to replace Vitor Pereira.`\
+https://nytimes.com/athletic/6826315/2025/11/21/rob-edwards-wolves-head-coach/
+
+**Top Fed Official Boosts Odds of a December Rate Cut**\
+`John C. Williams, president of the Federal Reserve Bank of New York, said the central bank had scope to lower borrowing costs ‘in the near term.’`\
+https://nytimes.com/2025/11/21/business/fed-interest-rates-inflation-jobs.html
+
 **Eurovision Tightens Voting Rules to Tamp Down on Government Influence**\
 `In this year’s contest, a campaign by Israel to encourage voting for its entrant drew criticism.`\
 https://nytimes.com/2025/11/21/arts/eurovision-voting-rules-israel.html

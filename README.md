@@ -1,3 +1,7 @@
+**Martinez 'close' to Man Utd return after ACL injury, Amorim says**\
+`The defender has not played for United since the defeat to Crystal Palace at Old Trafford on February 2.`\
+https://nytimes.com/athletic/6826326/2025/11/21/lisandro-martinez-manchester-united-return-acl-injury-ruben-amorim/
+
 **Next week’s waiver wire: Kayshon Boutte and more players to add — before the Week 13 rush**\
 `John Laghezza looks ahead to the Week 13 waiver wire to give you an edge on competition.`\
 https://nytimes.com/athletic/6822989/2025/11/21/fantasy-football-waiver-wire-week-13-adds-boutte/
@@ -33,8 +37,4 @@ https://nytimes.com/video/dining/100000010523118/mini-apple-tartes-tatin.html
 **Pumpkin Spice Honeycomb Cake**\
 `This take on bánh bò nướng, a classic Vietnamese dessert, is spiced with comforting fall flavors and doused in white chocolate — and integrates pumpkin purée.`\
 https://nytimes.com/video/dining/100000010523171/pumpkin-spice-honeycomb-cake.html
-
-**Without Giannis, Bucks must fix 'little things' before they become a big problem**\
-`Milwaukee fell in overtime, but the final three possessions in the fourth quarter played a major role in a third-straight loss.`\
-https://nytimes.com/athletic/6825859/2025/11/21/sixers-bucks-giannis-nba/
 
