@@ -1,3 +1,7 @@
+**NFL Week 12 schedule rankings: Top 5 Sunday games to shift the playoff odds**\
+`Here are the biggest postseason swing games across Week 12, according to The Athletic's NFL playoff projection model.`\
+https://nytimes.com/athletic/6821338/2025/11/21/nfl-week-12-playoff-odds-steelers-bears-chiefs/
+
 **Every team, tournament and title game to watch in college basketball Feast Week**\
 `College basketball's frenzied early-season schedule delivers a veritable cornucopia of hoops in the days around Thanksgiving.`\
 https://nytimes.com/athletic/6823869/2025/11/21/college-basketball-feast-week-schedule-players-era-maui/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6824769/2025/11/21/josh-jacobs-knee-injury-packers-
 **Does Mark Stoops have Kentucky back on steady ground?**\
 `The difference for Stoops is that the SEC is not the Big Ten West. It's much harder to find and maintain footing in the SEC.`\
 https://nytimes.com/athletic/6824778/2025/11/21/kentucky-football-mark-stoops-record-contract/
-
-**We Asked Roblox’s C.E.O. About Child Safety. It Got Tense.**\
-`This week the company announced that it would require users to undergo an A.I.-powered age estimation process in order to chat with others on the platform. Will this change reassure parents?`\
-https://nytimes.com/2025/11/21/podcasts/hardfork-roblox-child-safety.html
 
