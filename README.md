@@ -1,3 +1,19 @@
+**‘Initiative’ Review: High School as an Epic Struggle**\
+`A new production at the Public Theater takes up five hours of stage time to tell the story of a group of friends from their first day to graduation.`\
+https://nytimes.com/2025/11/21/theater/initiative-review-else-went.html
+
+**Kansas freshman Darryn Peterson to miss three games with hamstring injury**\
+`Peterson has already missed three games and has not played since KU’s Nov. 7 loss at North Carolina.`\
+https://nytimes.com/athletic/6827297/2025/11/21/kansas-darryn-peterson-out-hamstring-injury/
+
+**Former champion Gennadiy Golovkin to lead World Boxing ahead of 2028 Olympics**\
+`Golovkin is set to assume the presidency of the organization Sunday in Rome.`\
+https://nytimes.com/athletic/6827198/2025/11/21/gennadiy-golovkin-world-boxing-2028-olympics/
+
+**Eli Lilly Reaches $1 Trillion in Value, Buoyed by Demand for Its Weight Loss Drugs**\
+`The 150-year-old drugmaker is the first company in health care to hit the milestone.`\
+https://nytimes.com/2025/11/21/health/eli-lilly-one-trillion-value-pharmaceuticals.html
+
 **Dru Joyce II, Joyce III reminisce about LeBron James, "Fab Five" days**\
 `Duquesne has been playing an annual game in Akron since 2018, a tradition started by former head coach and Akron native Keith Dambrot.`\
 https://nytimes.com/athletic/6826056/2025/11/21/duquesne-st-vincent-st-mary-game/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6819950/2025/11/21/vitor-matos-swansea-head-coach-a
 **Bishop Arts District, an Eclectic Dallas Enclave**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/real-estate-guide-bishop-arts-district-dallas
-
-**We Want to Know: What Are Your Pressing Questions About How Your Life Has Changed This Year Under Trump?**\
-`Times journalists will bring you answers.`\
-https://nytimes.com/2025/11/21/us/we-want-to-know-what-are-your-pressing-questions-about-how-your-life-has-changed-this-year-under-trump.html
-
-**gws-bedford-stuyvesant-brooklyn-townhouse-august-market**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/bedford-stuyvesant-brooklyn-townhouse-august-market
-
-**How Trump’s Electoral Success Helped Fuel Mamdani’s Rise**\
-`In one of his earliest viral videos, Zohran Mamdani asked New Yorkers why they had decided to vote for President Trump. What he heard shaped his campaign.`\
-https://nytimes.com/2025/11/21/nyregion/trump-mamdani-video-bronx.html
-
-**Here’s the latest.**\
-`By Tyler Pager, Emma G. Fitzsimmons and Jeffery C. Mays`\
-https://nytimes.com/live/2025/11/21/us/trump-news/heres-the-latest
 
