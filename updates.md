@@ -1,3 +1,11 @@
+**As San Siro begins long goodbye, Barcelona goes home**\
+`With the San Siro stadium facing demolition, each remaining derby at the old venue will be tinged with nostaglia.`\
+https://nytimes.com/athletic/6825260/2025/11/21/as-san-siro-begins-long-goodbye-barcelona-goes-home/
+
+**Word of the Day: arid**\
+`This word has appeared in 113 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/21/learning/word-of-the-day-arid.html
+
 **Why Are Young Men Embracing the Quarter-Zip Lifestyle?**\
 `How one of the stodgiest garments in the Western wardrobe caught on with the Nike Tech crowd.`\
 https://nytimes.com/2025/11/21/style/quarter-zip-sweater-men-tiktok.html
