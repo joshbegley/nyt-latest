@@ -1,5 +1,5 @@
-**Frida Kahlo Portrait Sells for $54.7 Million, Breaking Her Auction Record**\
-`The surrealistic self-portrait was made in 1940, a turbulent year in Kahlo’s life as her health and marriage deteriorated.`\
+**Frida Kahlo Portrait Sells for $54.7 Million, A Record at Auction**\
+`The surrealistic self-portrait was made in 1940, a turbulent year in the Mexican artist’s life as her health and marriage deteriorated.`\
 https://nytimes.com/2025/11/20/arts/design/kahlo-portrait-auction-art-sothebys.html
 
 **Hundreds of Invasive Goldfish to Be Culled From Ottawa Pond**\
