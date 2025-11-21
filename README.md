@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6823011/2025/11/21/pedro-porro-tottenham-hotspur-mi
 `How the width of their full-backs is helping Pep Guardiola's midfield overload in midfield `\
 https://nytimes.com/athletic/6797344/2025/11/21/manchester-city-full-back-switches-tactics-guardiola/
 
-**'It better have been really personal': Connor Bedard's unsportsmanlike penalty leads to Blackhawk loss**\
+**Connor Bedard's unsportsmanlike penalty leads to Blackhawk loss: 'It better have been really personal'**\
 `Bedard's anger against the Kraken on Thursday may have been justified, but it still got him into trouble.`\
 https://nytimes.com/athletic/6825214/2025/11/21/it-better-have-been-really-personal-connor-bedards-unsportsmanlike-penalty-leads-to-blackhawk-loss/
 
