@@ -1,3 +1,7 @@
+**‘I’ll Go When You Go,’ Jimmy Kimmel Tells Trump**\
+`“Let’s ride off into the sunset together like Butch Cassidy and the Suntan Kid,” Kimmel said after the president demanded (again) that ABC take him off the air.`\
+https://nytimes.com/2025/11/21/arts/television/jimmy-kimmel-trump-abc.html
+
 **As San Siro begins long goodbye, Barcelona goes home**\
 `With the San Siro stadium facing demolition, each remaining derby at the old venue will be tinged with nostaglia.`\
 https://nytimes.com/athletic/6825260/2025/11/21/as-san-siro-begins-long-goodbye-barcelona-goes-home/
