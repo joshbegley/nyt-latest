@@ -1,3 +1,7 @@
+**Pumpkin Spice Honeycomb Cake**\
+`This take on bánh bò nướng, a classic Vietnamese dessert, is spiced with comforting fall flavors and doused in white chocolate — and integrates pumpkin purée.`\
+https://nytimes.com/video/dining/100000010523171/pumpkin-spice-honeycomb-cake.html
+
 **Without Giannis, Bucks must fix 'little things' before they become a big problem**\
 `Milwaukee fell in overtime, but the final three possessions in the fourth quarter played a major role in a third-straight loss.`\
 https://nytimes.com/athletic/6825859/2025/11/21/sixers-bucks-giannis-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6825461/2025/11/21/commanders-nfl-international-gam
 **Want Your Company’s Name on an Olympic Arena? L.A. Has a Price for That.**\
 `Olympic organizers usually strip naming rights from host venues. Los Angeles is pioneering a new business model for the 2028 Games by charging sponsors extra fees instead.`\
 https://nytimes.com/2025/11/21/us/los-angles-olympics-naming-rights.html
-
-**Buying a House Is Expensive. But There Are Some Ways to Rein In Costs.**\
-`The Trump administration has proposed 50-year and “portable” mortgages to make home buying more affordable. But housing experts offer other suggestions.`\
-https://nytimes.com/2025/11/21/your-money/housing-costs-mortgages.html
 

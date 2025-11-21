@@ -1,3 +1,7 @@
+**Pumpkin Spice Honeycomb Cake**\
+`This take on bánh bò nướng, a classic Vietnamese dessert, is spiced with comforting fall flavors and doused in white chocolate — and integrates pumpkin purée.`\
+https://nytimes.com/video/dining/100000010523171/pumpkin-spice-honeycomb-cake.html
+
 **Without Giannis, Bucks must fix 'little things' before they become a big problem**\
 `Milwaukee fell in overtime, but the final three possessions in the fourth quarter played a major role in a third-straight loss.`\
 https://nytimes.com/athletic/6825859/2025/11/21/sixers-bucks-giannis-nba/
