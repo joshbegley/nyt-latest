@@ -1,3 +1,7 @@
+**Back home in Toronto, Adam Fantilli has another banner night in Blue Jackets' win**\
+`Fantilli delivered two goals and an overtime winner in Toronto, electrifying a massive hometown crowd and carrying the Blue Jackets.`\
+https://nytimes.com/athletic/6825134/2025/11/20/adam-fantilli-columbus-blue-jackets-nhl/
+
 **Trump and Mamdani to Meet at the White House**\
 `President Trump and Zohran Mamdani, the mayor-elect of New York City, were expected to meet on Friday at the White House. The meeting comes after months of trading insults.`\
 https://nytimes.com/video/world/americas/100000010537125/mamdani-trump-meeting.html
