@@ -1,3 +1,7 @@
+**Fondant Sweet Potatoes With Honey Butter and Halvah**\
+`With its savory sesame flavor and candy sweetness, the halvah crumbles on top of these fondant sweet potatoes elevate this dish to a chic, grown-up version of sweet potato casserole.`\
+https://nytimes.com/video/admin/100000010523066/fondant-sweet-potatoes-with-honey-butter-and-halvah.html
+
 **Pumpkin Cardamom Crumb Muffins**\
 `This take on the classic pumpkin muffin happily makes room for cardamom in the pumpkin spice mix, which adds an extra layer of warm, peppery flavor.`\
 https://nytimes.com/video/dining/100000010523167/pumpkin-cardamom-crumb-muffins.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/dining/100000010523134/pumpkin-butterscotch-custard-wi
 **Deep-Fried Turkey**\
 `Deep frying a turkey can seem daunting, but it is incredibly simple and produces a superior turkey that is unexpectedly juicy and far more forgiving in far less time than conventional roasting. It is equipment heavy, yes.`\
 https://nytimes.com/video/dining/100000010523024/deep-fried-turkey.html
-
-**Caramelized Onion, Cranberry and Rosemary Tahchin**\
-`Tahchin is a Persian rice dish in which the rice is mixed with yogurt, oil, egg yolks and saffron and baked until a golden crust forms at the bottom (Persians refer to this as the tahdig).`\
-https://nytimes.com/video/dining/100000010523131/caramelized-onion-cranberry-and-rosemary-tahchin.html
 
