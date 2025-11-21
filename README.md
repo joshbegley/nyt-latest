@@ -1,3 +1,7 @@
+**Trent Grisham taking the Yankees' qualifying offer wasn't as bad as you think**\
+`Grisham's decision to accept the $22.05M qualifying offer has agitated some of the Yankees' fan base. But not Brian Cashman — nor should it.`\
+https://nytimes.com/athletic/6823463/2025/11/20/trent-grisham-yankees-qualifying-offer-fans/
+
 **NJ Transit Cancels Service to and From Midtown Until Friday Morning**\
 `Passengers on the Midtown Direct lines were being dropped off at the Hoboken station because of a repair to a rail switch nearby.`\
 https://nytimes.com/2025/11/20/nyregion/nj-transit-midtown-delays-cancellations.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/admin/100000010523035/duchess-potatoes.html
 **Kelsie Whitmore is No. 1 pick in first Women's Professional Baseball League draft**\
 `The new four-team league will launch its season in August 2026 in Springfield, Ill.`\
 https://nytimes.com/athletic/6822097/2025/11/20/first-pick-wpbl-draft/
-
-**Trump’s National Guard Blunder**\
-`A brief history of the National Guard in Washington.`\
-https://nytimes.com/video/opinion/100000010537060/trumps-national-guard-blunder.html
 

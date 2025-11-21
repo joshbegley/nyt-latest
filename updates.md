@@ -1,3 +1,7 @@
+**Pras of the Fugees Gets 14 Years for Illegal Foreign Influence Scheme**\
+`Mr. Michel was convicted in April 2023 of 10 criminal counts, including money laundering, illegal lobbying and witness tampering.`\
+https://nytimes.com/2025/11/20/us/pras-michel-fugees-campaign-finance-prison.html
+
 **NJ Transit Cancels Service to and From Midtown Until Friday Morning**\
 `Passengers on the Midtown Direct lines were being dropped off at the Hoboken station because of a repair to a rail switch nearby.`\
 https://nytimes.com/2025/11/20/nyregion/nj-transit-midtown-delays-cancellations.html
