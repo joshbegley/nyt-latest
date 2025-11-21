@@ -1,3 +1,7 @@
+**The U.S. Tightens the Vise on an Already Besieged Zelensky**\
+`The Ukrainian president’s options are narrowing as he is confronted with a 28-point proposal drafted by American and Russian envoys.`\
+https://nytimes.com/2025/11/21/world/europe/ukraine-russia-us-peace-plan.html
+
 **Instant classics: USC’s 3OT buzzer-beater joins list of marathon games**\
 `USC's 3OT win over Troy was just another example of countless overtime classics throughout college basketball's history `\
 https://nytimes.com/athletic/6826978/2025/11/21/usc-troy-overtime-marathon-college-basketball/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/21/nyregion/trump-mamdani-cuomo.html
 **Cassidy Got Pledges From Kennedy on Vaccines. They Haven’t Stuck.**\
 `Before casting a crucial vote for the health secretary, the top Senate Republican laid out several specific commitments he had secured, some of which appear to have been breached.`\
 https://nytimes.com/2025/11/21/us/politics/cassidy-cdc-vaccines-autism.html
-
-**Thousands of French Brands Sue Shein, Accusing It of Unfair Competition**\
-`The class-action lawsuit is the latest push against the Chinese retailer in France, where protests outside its first store broke out earlier this month.`\
-https://nytimes.com/2025/11/21/business/french-brands-sue-shein.html
 
