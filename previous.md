@@ -1,3 +1,11 @@
+**Chelsea's Palmer suffers injury setback with fractured toe**\
+`The midfielder will miss games against Burnley, Barcelona and Arsenal, having not played for the London club since September 20.`\
+https://nytimes.com/athletic/6825765/2025/11/21/cole-palmer-chelsea-toe-injury-news/
+
+**Guardiola urges Rodri to be patient in recovery from injury**\
+`The midfielder has endured a stop-start return to regular action following his anterior cruciate ligament knee injury suffered last season.`\
+https://nytimes.com/athletic/6825848/2025/11/21/man-city-rodri-injury-latest/
+
 **The Ashes Briefing: England fight back with raw pace after Mitchell Starc's career best haul**\
 `The opening day of the series saw a record number of wickets fall as the Ashes began in dramatic style `\
 https://nytimes.com/athletic/6819497/2025/11/21/ashes-australia-england-starc-pace-briefing/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6825766/2025/11/21/florian-wirtz-conor-bradley-live
 **How to watch Alabama State vs. Vanderbilt women's basketball: Time, TV, streaming**\
 `Find out how to watch the Alabama State Lady Hornets play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6825812/2025/11/21/alabama-state-vs-vanderbilt-stream-how-to-watch-nov-21/
-
-**Flying for Thanksgiving? Here’s the Only Travel Guide You’ll Need.**\
-`Flight cancellations. Record crowds. A recent government shutdown. Here are some tips for navigating an especially fraught holiday travel season.`\
-https://nytimes.com/explain/2025/11/21/travel/thanksgiving-travel-flights-delays
-
-**Can Kirk Cousins showcase himself and save the Falcons offense at the same time?**\
-`The Falcons have lost five straight games as Cousins returns as starting quarterback this week in New Orleans against the Saints.`\
-https://nytimes.com/athletic/6823864/2025/11/21/kirk-cousins-michael-penix-atlanta-falcons-offense/
 

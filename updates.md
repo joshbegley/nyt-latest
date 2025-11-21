@@ -1,3 +1,11 @@
+**Chelsea's Palmer suffers injury setback with fractured toe**\
+`The midfielder will miss games against Burnley, Barcelona and Arsenal, having not played for the London club since September 20.`\
+https://nytimes.com/athletic/6825765/2025/11/21/cole-palmer-chelsea-toe-injury-news/
+
+**Guardiola urges Rodri to be patient in recovery from injury**\
+`The midfielder has endured a stop-start return to regular action following his anterior cruciate ligament knee injury suffered last season.`\
+https://nytimes.com/athletic/6825848/2025/11/21/man-city-rodri-injury-latest/
+
 **The Ashes Briefing: England fight back with raw pace after Mitchell Starc's career best haul**\
 `The opening day of the series saw a record number of wickets fall as the Ashes began in dramatic style `\
 https://nytimes.com/athletic/6819497/2025/11/21/ashes-australia-england-starc-pace-briefing/
