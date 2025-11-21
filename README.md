@@ -1,3 +1,7 @@
+**Joe Burrow questionable to play vs. Patriots, Bengals coach says**\
+`Cincinnati is 3-7 on the season and lost seven of eight games in Burrow’s absence.`\
+https://nytimes.com/athletic/6826707/2025/11/21/bengals-joe-burrow-status-patriots/
+
 **Make Unstoppable Happen**\
 `New York is proof that when 8 million people work toward something together, they can’t be stopped. `\
 https://nytimes.com/paidpost/jpmorgan-chase/make-unstoppable-happen.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6825388/2025/11/21/connor-hellebuyck-injury-jets/
 **Paul Pogba named in Monaco squad after more than two years out**\
 `The 32-year-old has not made an appearance since September 2023, after receiving a ban for breaching anti-doping regulations.`\
 https://nytimes.com/athletic/6760347/2025/11/21/paul-pogba-return-monaco-rennes/
-
-**Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
-`Drop your questions here, and The Athletic’s Chris Johnston will answer a selection in his upcoming mailbag.`\
-https://nytimes.com/athletic/6826585/2025/11/21/nhl-mailbag-contenders-trades-olympics/
 
