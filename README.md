@@ -1,3 +1,11 @@
+**Thousands of French Brands Sue Shein, Accusing It of Unfair Competition**\
+`The class-action lawsuit is the latest push against the Chinese retailer in France, where protests outside its first store broke out earlier this month.`\
+https://nytimes.com/2025/11/21/business/french-brands-sue-shein.html
+
+**Steelers' Aaron Rodgers questionable vs. Bears after wrist injury**\
+`If the Steelers and Rodgers determine he’s not able to play Sunday, Mason Rudolph would be in line to start.`\
+https://nytimes.com/athletic/6826936/2025/11/21/aaron-rodgers-injury-update-status-steelers-bears/
+
 **Kennedy Says He Told C.D.C. to Change Website’s Language on Autism and Vaccines**\
 `In an interview, Health Secretary Robert F. Kennedy Jr. cited gaps in vaccine safety research. His critics say he is ignoring a larger point: Vaccines save lives.`\
 https://nytimes.com/2025/11/21/us/politics/rfk-jr-cdc-vaccines-autism-website.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6826823/2025/11/21/lions-sam-laporta-back-season/
 **Paramount's game-changing Champions League deal: What does it mean for fans? What happens to TNT?**\
 `Why has Paramount gone for these rights? How much does it charge? What about Amazon? Will it show CBS coverage? How will TNT cope?`\
 https://nytimes.com/athletic/6826588/2025/11/21/paramount-champions-league-rights-tnt/
-
-**Baylor coach Dave Aranda will return for 2026 season amid AD transition**\
-`Baylor was a job many coaches had their eye on as a potential opening, but the resignation of Mack Rhoades brought uncertainty.`\
-https://nytimes.com/athletic/6826772/2025/11/21/baylor-dave-aranda-coach-return-2026/
-
-**Don’t Push Russia’s Bad Deal on Ukraine**\
-`War and diplomacy: Readers react to developments on Russia and Ukraine. Also: A global democracy deficit; a sad phone.`\
-https://nytimes.com/2025/11/21/opinion/russia-ukraine.html
 
