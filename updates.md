@@ -1,3 +1,7 @@
+**How to watch Alabama State vs. Vanderbilt women's basketball: Time, TV, streaming**\
+`Find out how to watch the Alabama State Lady Hornets play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6825812/2025/11/21/alabama-state-vs-vanderbilt-stream-how-to-watch-nov-21/
+
 **Flying for Thanksgiving? Here’s the Only Travel Guide You’ll Need.**\
 `Flight cancellations. Record crowds. A recent government shutdown. Here are some tips for navigating an especially fraught holiday travel season.`\
 https://nytimes.com/explain/2025/11/21/travel/thanksgiving-travel-flights-delays
