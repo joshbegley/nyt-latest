@@ -1,3 +1,11 @@
+**As San Siro begins long goodbye, Barcelona goes home**\
+`With the San Siro stadium facing demolition, each remaining derby at the old venue will be tinged with nostaglia.`\
+https://nytimes.com/athletic/6825260/2025/11/21/as-san-siro-begins-long-goodbye-barcelona-goes-home/
+
+**Word of the Day: arid**\
+`This word has appeared in 113 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/21/learning/word-of-the-day-arid.html
+
 **Why Are Young Men Embracing the Quarter-Zip Lifestyle?**\
 `How one of the stodgiest garments in the Western wardrobe caught on with the Nike Tech crowd.`\
 https://nytimes.com/2025/11/21/style/quarter-zip-sweater-men-tiktok.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6823910/2025/11/21/nottingham-forest-gibbs-white-be
 **Pedro Porro: Tottenham's Mister Reliable may now face his biggest test**\
 `The international break has afforded Spurs' right-back a rare rest from competitive action - with the minutes increasing, can he keep it up?`\
 https://nytimes.com/athletic/6823011/2025/11/21/pedro-porro-tottenham-hotspur-minutes/
-
-**The tactical lesson from 2024-25 that is paying dividends for Manchester City this season**\
-`How the width of their full-backs is helping Pep Guardiola's midfield overload in midfield `\
-https://nytimes.com/athletic/6797344/2025/11/21/manchester-city-full-back-switches-tactics-guardiola/
-
-**Connor Bedard's unsportsmanlike penalty leads to Blackhawk loss: 'It better have been really personal'**\
-`Bedard's anger against the Kraken on Thursday may have been justified, but it still got him into trouble.`\
-https://nytimes.com/athletic/6825214/2025/11/21/it-better-have-been-really-personal-connor-bedards-unsportsmanlike-penalty-leads-to-blackhawk-loss/
 
