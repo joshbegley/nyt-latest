@@ -1,3 +1,7 @@
+**Alexander Ovechkin scores hat trick against Montreal, moves into 10th all-time in points**\
+`Ovechkin is now 65 points behind Pittsburgh Penguins captain Sidney Crosby, who sits in ninth place for most points by an NHLer. `\
+https://nytimes.com/athletic/6825210/2025/11/20/alexander-ovechkin-capitals-points/
+
 **‘Two Strangers’ Review: Meeting Cute, Toting Baggage**\
 `The effervescent musical, a new London import, delivers lavishly on the promise of a rom-com: laughter, escape and fantasy.`\
 https://nytimes.com/2025/11/20/theater/two-strangers-carry-cake-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010537060/trumps-national-guard-blunder.
 **Can the Right Confront Antisemitism in Its Ranks?**\
 `Why is it so hard for the right to draw a boundary at antisemitism in its coalition? According to Yoram Hazony, an Israeli political theorist, it’s because the group wasn’t prepared to navigate the “explosion” of antisemitism.`\
 https://nytimes.com/video/opinion/100000010529017/can-the-right-confront-antisemitism-in-its-ranks.html
-
-**Anonymous Bidder Pays Nearly $1 Million for Secret to Decode C.I.A. Sculpture**\
-`The creator of the Kryptos panels, Jim Sanborn, sought to unburden himself of the puzzle, and then discovered before an auction he had archived its solution in the Smithsonian.`\
-https://nytimes.com/2025/11/20/science/kryptos-cia-auction-sculpture.html
 
