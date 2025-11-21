@@ -1,3 +1,7 @@
+**Judge Concludes Prosecutors Can Circumvent Federal Grand Juries in D.C.**\
+`The ruling by a federal judge found that federal prosecutors could fall back on local grand juries to approve serious charges when they failed to persuade a federal grand jury.`\
+https://nytimes.com/2025/11/20/us/politics/judge-trump-washington-grand-juries.html
+
 **Coast Guard Softens Stance on Hate and Hazing**\
 `A new servicewide policy recasts swastikas and nooses as merely “politically divisive” and deletes protections for transgender troops.`\
 https://nytimes.com/2025/11/20/us/politics/coast-guard-hate-crimes.html
