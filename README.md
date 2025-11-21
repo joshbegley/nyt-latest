@@ -1,3 +1,15 @@
+**What we've learned about the Timberwolves after 15 games**\
+`Julius Randle is surging and Anthony Edwards is slumping for Minnesota, which is beating the bad teams and losing to the good ones so far.`\
+https://nytimes.com/athletic/6824572/2025/11/21/timberwolves-first-15-julius-randle-jaden-mcdaniels/
+
+**NWSL commissioner Jessica Berman talks salary cap, calendar changes and transgender inclusion**\
+`While Trinity Rodman's future was the main talking point, Berman also hit on other key updates from the 2025 season.`\
+https://nytimes.com/athletic/6824594/2025/11/21/state-of-nwsl-jessica-berman-salary-cap-calendar-transgender-inclusion/
+
+**Kelsie Whitmore is ready to be the face of women's professional baseball**\
+`Whitmore has been blazing trails in baseball for years, and she's made history again as the No. 1 draft pick in a new women's league.`\
+https://nytimes.com/athletic/6825482/2025/11/21/kelsie-whitmore-womens-pro-baseball-draft/
+
 **Fantasy Premier League live Q&A: Gameweek 12 advice from Ben Dinnery**\
 `Still mulling over your plan of action this gameweek? Ben Dinnery of premierinjuries.com is on hand to give you the best chance of success`\
 https://nytimes.com/athletic/6822633/2025/11/21/fantasy-premier-league-live-qa-gameweek-12-advice-from-ben-dinnery/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6823869/2025/11/21/college-basketball-feast-week-sc
 **What's up with Caleb Williams' deep-passing accuracy? Bears mailbag, Week 12 picks**\
 `Aaron Rodgers could play his final game at Soldier Field. Can Williams and company deal him a loss? Mailbag and our Week 12 picks.`\
 https://nytimes.com/athletic/6824624/2025/11/21/bears-mailbag-caleb-williams-jaylon-johnson/
-
-**I have stumbled on incontrovertible proof that the hockey gods hate the loser point**\
-`This year, we’re already down to just two teams that don’t have a loser point: The Jets and the Bruins.`\
-https://nytimes.com/athletic/6823377/2025/11/21/hockey-gods-hate-the-loser-point/
-
-**With Grey Zabel injured, Seahawks' improved offensive line could face a big test**\
-`The Seahawks started the same five offensive linemen for the first nine games, with great results, but their depth is now being tested.`\
-https://nytimes.com/athletic/6824564/2025/11/21/seahawks-offensive-line-grey-zabel-injury/
-
-**The Athletic’s Friday football quiz question #82**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/6823931/2025/11/21/the-athletics-friday-football-quiz-question-82/
 
