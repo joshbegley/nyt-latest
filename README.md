@@ -1,3 +1,15 @@
+**Texas Asks Supreme Court to Clear Way for Republican-Friendly Congressional Map**\
+`State officials are seeking to use a newly redrawn map for the 2026 midterms, part of a nationwide redistricting push by President Trump.`\
+https://nytimes.com/2025/11/21/us/politics/supreme-court-texas-congressional-map.html
+
+**Mariners to retire No. 51 again — this time for Hall of Famer Randy Johnson**\
+`Seattle already retired Ichiro Suzuki's No. 51 jersey, and now Johnson will have the same honor.`\
+https://nytimes.com/athletic/6827468/2025/11/21/mariners-retire-randy-johnson-number/
+
+**Hundreds Protest Gender-Based Violence in South Africa Before G20 Summit**\
+`Demonstrators called for their government to declare gender-based violence and killings a national disaster in South Africa. This comes as Johannesburg hosts the first G20 Summit in Africa this weekend.`\
+https://nytimes.com/video/world/africa/100000010540223/south-africa-g20-summit-protesters-against-gender-based-violence.html
+
 **49ers preparing for stunning split with star receiver Brandon Aiyuk**\
 `Aiyuk has not yet played this season, and while the 49ers are holding out hope, a reconciliation appears unlikely.`\
 https://nytimes.com/athletic/6826885/2025/11/21/brandon-aiyuk-49ers-news-contract-guaranteed-money-release/
@@ -25,12 +37,4 @@ https://nytimes.com/2025/11/21/briefing/trump-mamdani-ukraine-peace-plan.html
 **Trump and Mamdani Strike Optimistic Tone, Sidestepping Past Critiques**\
 `The meeting between President Trump and the incoming mayor of New York City was strikingly warm for two men who had expressed deep concerns about each other’s leadership.`\
 https://nytimes.com/2025/11/21/us/politics/trump-mamdani-white-house-meeting.html
-
-**Shoppers, Tell Us About Customs Duties on Items Bought From Overseas**\
-`It’s gift-giving season, and we want to speak to people in the United States who are buying items from other countries.`\
-https://nytimes.com/2025/11/21/business/shopping-customs-costs-overseas.html
-
-**What the Jobs Report Tells Us About the Economy**\
-`What does the September jobs report, delayed by six weeks because of the government shutdown, say about the economy? Lydia DePillis, our economics reporter, describes how the report, which was better than expected, comes at a moment of deep uncertainty.`\
-https://nytimes.com/video/business/economy/100000010534118/what-the-jobs-report-tells-us-about-the-economy.html
 
