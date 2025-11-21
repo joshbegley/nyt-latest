@@ -1,3 +1,7 @@
+**Early concerns for each team, from Warriors' inconsistency to Grizzlies' ... everything**\
+`No surprise here: The injury bug is a big worry for several squads across the league.`\
+https://nytimes.com/athletic/6820663/2025/11/21/nba-concerns-lakers-warriors-knicks/
+
 **Chelsea's Palmer suffers injury setback with fractured toe**\
 `The midfielder will miss games against Burnley, Barcelona and Arsenal, having not played for the London club since September 20.`\
 https://nytimes.com/athletic/6825765/2025/11/21/cole-palmer-chelsea-toe-injury-news/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todaysinyt/2025/11/21/todays-new-york-times-internatio
 **Wirtz, Bradley out with muscular injuries from international duty**\
 `Arne Slot says he does not expect Bradley to be involved for the next three weeks "unless a miracle happens". `\
 https://nytimes.com/athletic/6825766/2025/11/21/florian-wirtz-conor-bradley-liverpool-injury-news/
-
-**How to watch Alabama State vs. Vanderbilt women's basketball: Time, TV, streaming**\
-`Find out how to watch the Alabama State Lady Hornets play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6825812/2025/11/21/alabama-state-vs-vanderbilt-stream-how-to-watch-nov-21/
 

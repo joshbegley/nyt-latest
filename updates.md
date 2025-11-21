@@ -1,3 +1,7 @@
+**Early concerns for each team, from Warriors' inconsistency to Grizzlies' ... everything**\
+`No surprise here: The injury bug is a big worry for several squads across the league.`\
+https://nytimes.com/athletic/6820663/2025/11/21/nba-concerns-lakers-warriors-knicks/
+
 **Chelsea's Palmer suffers injury setback with fractured toe**\
 `The midfielder will miss games against Burnley, Barcelona and Arsenal, having not played for the London club since September 20.`\
 https://nytimes.com/athletic/6825765/2025/11/21/cole-palmer-chelsea-toe-injury-news/
