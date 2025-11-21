@@ -1,3 +1,31 @@
+**Pedro Porro: Tottenham's Mister Reliable may now face his biggest test**\
+`The international break has afforded Spurs' right-back a rare rest from competitive action - with the minutes increasing, can he keep it up?`\
+https://nytimes.com/athletic/6823011/2025/11/21/pedro-porro-tottenham-hotspur-minutes/
+
+**The tactical lesson from 2024-25 that is paying dividends for Manchester City this season**\
+`How the width of their full-backs is helping Pep Guardiola's midfield overload in midfield `\
+https://nytimes.com/athletic/6797344/2025/11/21/manchester-city-full-back-switches-tactics-guardiola/
+
+**'It better have been really personal': Connor Bedard's unsportsmanlike penalty leads to Blackhawk loss**\
+`Bedard's anger against the Kraken on Thursday may have been justified, but it still got him into trouble.`\
+https://nytimes.com/athletic/6825214/2025/11/21/it-better-have-been-really-personal-connor-bedards-unsportsmanlike-penalty-leads-to-blackhawk-loss/
+
+**Who can Chelsea rotate in for Caicedo with Lavia and Essugo out?**\
+`Enzo Maresca does not have any obvious orthodox backup options for his key midfielder, but there are players who can feature in his place`\
+https://nytimes.com/athletic/6820853/2025/11/21/moises-caicedo-chelsea-rotation-analysis/
+
+**Kroupi is a striker West Ham wanted - and he's showing exactly why with Bournemouth**\
+`West Ham tried to sign the French teenager in last season's winter window before he moved to Saturday opponents Bournemouth`\
+https://nytimes.com/athletic/6820546/2025/11/21/eli-junior-kroupi-west-ham-transfer/
+
+**Fantasy Premier League: How to cope with Gabriel's injury**\
+`The Brazil international faces at least a month out of Premier League action - but that does not automatically mean you should sell him now`\
+https://nytimes.com/athletic/6819684/2025/11/21/fantasy-premier-league-fpl-tips-gabriel-arsenal/
+
+**Scouting, loan deals and analytics: Aston Villa's work with several smaller clubs is of mutual benefit**\
+`This is how the Birmingham side's relationship with a network of teams helps all involved `\
+https://nytimes.com/athletic/6820639/2025/11/21/aston-villa-network-clubs-emery/
+
 **Mexico Wins Miss Universe Pageant Marred by Scandal**\
 `Fátima Bosch was crowned in Thailand on Friday. The competition got off to a rocky start this month when she briefly walked out after being scolded by an organizer.`\
 https://nytimes.com/2025/11/21/world/asia/miss-universe-mexico.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6823836/2025/11/21/premier-league-title-defences-li
 **A Former Trump Impeachment Manager Will Run for California Governor**\
 `Representative Eric Swalwell, a Democrat, is likely to emphasize his history of fighting President Trump, an approach that many Democratic voters say they want their elected officials to take.`\
 https://nytimes.com/2025/11/21/us/eric-swalwell-california-governor.html
-
-**Premier League Predictions: Arsenal vs Tottenham, Newcastle vs City, and the rest of Matchday 12**\
-`Who's leading after MD11? And what does our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 12?`\
-https://nytimes.com/athletic/6816651/2025/11/21/premier-league-predictions-arsenal-tottenham-matchday-12/
-
-**Why have Newcastle changed their much-loved walkout song?**\
-`The club's decision to switch the players' entrance music has not gone down too well with the fanbase`\
-https://nytimes.com/athletic/6822626/2025/11/21/newcastle-change-song-home-games/
-
-**Why Arsenal decided to end Visit Rwanda shirt sleeve sponsorship deal**\
-`Arsenal have decided to end their Visit Rwanda sponsorship deal. But it was not a simple decision. This is why`\
-https://nytimes.com/athletic/6823410/2025/11/21/arsenal-rwanda-sponsorhip-deal-ends/
-
-**Why Europe's top clubs are already taking notice of Kees Smit**\
-`The Dutch teenager is a superb technician and has been likened to Pedri by national team coach Ronald Koeman`\
-https://nytimes.com/athletic/6823190/2025/11/21/kees-smit-profile/
-
-**Bills-Texans takeaways: Houston defense sacks Josh Allen 8 times for win**\
-`Against the Buffalo Bills, Houston's defense forced three turnovers.`\
-https://nytimes.com/athletic/6825042/2025/11/21/bills-texans-score-result-takeaways-thursday-night-football/
-
-**Chelsea showcase tactical evolution as their self-restraint frustrates Barcelona**\
-`Sonia Bompastor tweaked her team's tactics after last season's heavy aggregate loss to these opponents in the Champions League semi-final`\
-https://nytimes.com/athletic/6824954/2025/11/21/chelsea-barcelona-bompastor-tactics-uwcl/
-
-**What the plans for Birmingham City's new stadium reveal about the club's direction of travel**\
-`Early reaction to the £1.2billion project from locals has been largely positive, but considerably more mixed across the country`\
-https://nytimes.com/athletic/6823751/2025/11/21/birmingham-city-new-stadium-plans/
 
