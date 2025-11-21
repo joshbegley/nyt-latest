@@ -1,3 +1,7 @@
+**Trump Fought to Prevent Mamdani’s Election. The Two Will Soon Meet Face to Face.**\
+`A first-time meeting between the president and the mayor-elect has implications for New York City.`\
+https://nytimes.com/2025/11/21/nyregion/trump-mamdani-cuomo.html
+
 **Cassidy Got Pledges From Kennedy on Vaccines. They Haven’t Stuck.**\
 `Before casting a crucial vote for the health secretary, the top Senate Republican laid out several specific commitments he had secured, some of which appear to have been breached.`\
 https://nytimes.com/2025/11/21/us/politics/cassidy-cdc-vaccines-autism.html

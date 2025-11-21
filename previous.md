@@ -1,3 +1,7 @@
+**Trump Fought to Prevent Mamdani’s Election. The Two Will Soon Meet Face to Face.**\
+`A first-time meeting between the president and the mayor-elect has implications for New York City.`\
+https://nytimes.com/2025/11/21/nyregion/trump-mamdani-cuomo.html
+
 **Cassidy Got Pledges From Kennedy on Vaccines. They Haven’t Stuck.**\
 `Before casting a crucial vote for the health secretary, the top Senate Republican laid out several specific commitments he had secured, some of which appear to have been breached.`\
 https://nytimes.com/2025/11/21/us/politics/cassidy-cdc-vaccines-autism.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/21/us/florida-deputy-shooting-vero-beach-bermuda-clu
 **Trump and Prince Had ‘Disturbing’ Call After Khashoggi’s Murder, Lawmaker Says**\
 `Representative Eugene Vindman of Virginia said he reviewed a classified transcript of the 2019 conversation that would “shock” Americans.`\
 https://nytimes.com/2025/11/21/us/politics/trump-saudi-crown-prince-khashoggi.html
-
-**Sam LaPorta has ' very slim' chance of return this season, Dan Campbell says**\
-`LaPorta was putting together another strong season before his injury with 40 receptions for 489 yards.`\
-https://nytimes.com/athletic/6826823/2025/11/21/lions-sam-laporta-back-season/
 
