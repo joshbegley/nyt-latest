@@ -1,3 +1,7 @@
+**‘I’ll Go When You Go,’ Jimmy Kimmel Tells Trump**\
+`“Let’s ride off into the sunset together like Butch Cassidy and the Suntan Kid,” Kimmel said after the president demanded (again) that ABC take him off the air.`\
+https://nytimes.com/2025/11/21/arts/television/jimmy-kimmel-trump-abc.html
+
 **As San Siro begins long goodbye, Barcelona goes home**\
 `With the San Siro stadium facing demolition, each remaining derby at the old venue will be tinged with nostaglia.`\
 https://nytimes.com/athletic/6825260/2025/11/21/as-san-siro-begins-long-goodbye-barcelona-goes-home/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6823109/2025/11/21/the-prospects-lessons-englands-u
 **Under Dyche, Forest are starting to see Gibbs-White back at his best**\
 `Morgan Gibbs-White's form has improved recently. One of the reasons is his new manager, Sean Dyche`\
 https://nytimes.com/athletic/6823910/2025/11/21/nottingham-forest-gibbs-white-best/
-
-**Pedro Porro: Tottenham's Mister Reliable may now face his biggest test**\
-`The international break has afforded Spurs' right-back a rare rest from competitive action - with the minutes increasing, can he keep it up?`\
-https://nytimes.com/athletic/6823011/2025/11/21/pedro-porro-tottenham-hotspur-minutes/
 
