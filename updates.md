@@ -1,3 +1,7 @@
+**Anonymous Bidder Pays Nearly $1 Million for Secret to Decode C.I.A. Sculpture**\
+`The creator of the Kryptos panels, Jim Sanborn, sought to unburden himself of the puzzle, and then discovered before an auction he had archived its solution in the Smithsonian.`\
+https://nytimes.com/2025/11/20/science/kryptos-cia-auction-sculpture.html
+
 **Pras Michel of the Fugees Gets 14 Years for Illegal Foreign Influence Scheme**\
 `Mr. Michel was convicted in April 2023 of 10 criminal counts, including money laundering, illegal lobbying and witness tampering.`\
 https://nytimes.com/2025/11/20/us/pras-michel-fugees-campaign-finance-prison.html

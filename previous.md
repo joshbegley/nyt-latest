@@ -18,8 +18,8 @@ https://nytimes.com/video/opinion/100000010537060/trumps-national-guard-blunder.
 `Why is it so hard for the right to draw a boundary at antisemitism in its coalition? According to Yoram Hazony, an Israeli political theorist, it’s because the group wasn’t prepared to navigate the “explosion” of antisemitism.`\
 https://nytimes.com/video/opinion/100000010529017/can-the-right-confront-antisemitism-in-its-ranks.html
 
-**Anonymous Bidder Pays $770,000 for Secret to Decode C.I.A. Kryptos Sculpture**\
-`The encoded panels’ creator, Jim Sanborn, sought to unburden himself of the puzzle, and then discovered before an auction he had archived its solution in the Smithsonian.`\
+**Anonymous Bidder Pays Nearly $1 Million for Secret to Decode C.I.A. Sculpture**\
+`The creator of the Kryptos panels, Jim Sanborn, sought to unburden himself of the puzzle, and then discovered before an auction he had archived its solution in the Smithsonian.`\
 https://nytimes.com/2025/11/20/science/kryptos-cia-auction-sculpture.html
 
 **Is the Gaza War Contributing to Antisemitism?**\

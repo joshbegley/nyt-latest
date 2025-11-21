@@ -1,3 +1,7 @@
+**Police were no longer pursuing Marshawn Kneeland at time of crash, report says**\
+`Dallas Cowboys defensive end was later found dead of an apparent self-inflicted gunshot wound.`\
+https://nytimes.com/athletic/6825131/2025/11/20/marshawn-kneeland-police-crash-report/
+
 **Pras Michel of the Fugees Gets 14 Years for Illegal Foreign Influence Scheme**\
 `Mr. Michel was convicted in April 2023 of 10 criminal counts, including money laundering, illegal lobbying and witness tampering.`\
 https://nytimes.com/2025/11/20/us/pras-michel-fugees-campaign-finance-prison.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/20/us/politics/al-qaeda-guantanamo-court.html
 **Special Alert: The Pies Are Here!**\
 `We put Sue Li in charge of the pies this year, and she delivered six stunners.`\
 https://nytimes.com/2025/11/20/dining/special-alert-the-pies-are-here.html
-
-**Trump and Mamdani Are Meeting for the First Time. Will They Play Nice?**\
-`Zohran Mamdani, the mayor-elect of New York City, will go to the White House on Friday. The stakes are high for the city.`\
-https://nytimes.com/2025/11/20/nyregion/mamdani-trump-meeting.html
 
