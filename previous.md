@@ -1,3 +1,15 @@
+**Citizenship Ceremonies Are Back On in Upstate New York After Abrupt Halt**\
+`At least seven counties had been affected by the interruption in celebrations for people who were becoming naturalized citizens.`\
+https://nytimes.com/2025/11/21/nyregion/citizenship-ceremonies-restored-after-cancellation.html
+
+**How to watch Timberwolves vs. Suns: Time, TV, streaming**\
+`Find out how to watch the Minnesota Timberwolves play the Phoenix Suns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6827178/2025/11/21/timberwolves-vs-suns-stream-how-to-watch-nov-21/
+
+**How to watch Pelicans vs. Mavericks: Time, TV, streaming**\
+`Find out how to watch the New Orleans Pelicans play the Dallas Mavericks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6827175/2025/11/21/pelicans-vs-mavericks-stream-how-to-watch-nov-21/
+
 **How to watch Nets vs. Celtics: Time, TV, streaming**\
 `Find out how to watch the Brooklyn Nets play the Boston Celtics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6827173/2025/11/21/nets-vs-celtics-stream-how-to-watch-nov-21/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6827162/2025/11/21/heat-vs-bulls-stream-how-to-watc
 **How to watch Bruins vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Boston Bruins play the Los Angeles Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6827160/2025/11/21/bruins-vs-kings-stream-how-to-watch-nov-21/
-
-**How to watch Hurricanes vs. Jets: Time, TV, streaming**\
-`Find out how to watch the Carolina Hurricanes play the Winnipeg Jets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6827157/2025/11/21/hurricanes-vs-jets-stream-how-to-watch-nov-21/
-
-**Flashback: Your Weekly History Quiz, Nov. 22, 2025**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2025/11/21/upshot/flashback.html
-
-**To Many Ukrainians, U.S. Peace Plan Looks Like ‘Capitulation’**\
-`While the White House has cautioned that the proposal is still in “flux,” its contours reflect maximalist demands made by Russia throughout the war that Ukraine has consistently rejected.`\
-https://nytimes.com/2025/11/21/world/europe/ukraine-russia-peace-plan-capitulation.html
 

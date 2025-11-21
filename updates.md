@@ -1,3 +1,15 @@
+**Citizenship Ceremonies Are Back On in Upstate New York After Abrupt Halt**\
+`At least seven counties had been affected by the interruption in celebrations for people who were becoming naturalized citizens.`\
+https://nytimes.com/2025/11/21/nyregion/citizenship-ceremonies-restored-after-cancellation.html
+
+**How to watch Timberwolves vs. Suns: Time, TV, streaming**\
+`Find out how to watch the Minnesota Timberwolves play the Phoenix Suns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6827178/2025/11/21/timberwolves-vs-suns-stream-how-to-watch-nov-21/
+
+**How to watch Pelicans vs. Mavericks: Time, TV, streaming**\
+`Find out how to watch the New Orleans Pelicans play the Dallas Mavericks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6827175/2025/11/21/pelicans-vs-mavericks-stream-how-to-watch-nov-21/
+
 **How to watch Nets vs. Celtics: Time, TV, streaming**\
 `Find out how to watch the Brooklyn Nets play the Boston Celtics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6827173/2025/11/21/nets-vs-celtics-stream-how-to-watch-nov-21/
