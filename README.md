@@ -1,3 +1,11 @@
+**Giants rule out QB Jaxson Dart vs. Lions; Jameis Winston will start**\
+`Jaxson Dart will miss his second straight start.`\
+https://nytimes.com/athletic/6826676/2025/11/21/ny-giants-jaxson-dart-jameis-winston-lions/
+
+**Former Reform U.K. Politician Sent to Prison for Taking Pro-Russia Bribes**\
+`Nathan Gill was sentenced to 10 and a half years on Friday after admitting he was paid to make pro-Russian speeches in the European Parliament.`\
+https://nytimes.com/2025/11/21/world/europe/reform-uk-nathan-gill-russia-bribes.html
+
 **Winnipeg Jets goalie Connor Hellebuyck to undergo minor surgery, miss 4-6 weeks**\
 `Hellebuyck's knee injury marks the first substantial injury he's faced in his 11-year NHL career — a remarkable run of longevity.`\
 https://nytimes.com/athletic/6825388/2025/11/21/connor-hellebuyck-injury-jets/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6826584/2025/11/21/blackhawks-vs-sabres-stream-how-
 **How to watch Pacers vs. Cavaliers: Time, TV, streaming**\
 `Find out how to watch the Indiana Pacers play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6826582/2025/11/21/pacers-vs-cavaliers-stream-how-to-watch-nov-21/
-
-**How to watch Wild vs. Penguins: Time, TV, streaming**\
-`Find out how to watch the Minnesota Wild play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6826580/2025/11/21/wild-vs-penguins-stream-how-to-watch-nov-21/
-
-**Knicks star sells Yoshinobu Yamamoto rookie card for record price**\
-`Towns has become an avid card collector recently, and creates social media content dedicated to the hobby.`\
-https://nytimes.com/athletic/6826462/2025/11/21/yoshinobu-yamamoto-card-sale-karl-anthony-towns/
 
