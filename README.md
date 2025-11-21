@@ -1,3 +1,7 @@
+**Winnipeg Jets goalie Connor Hellebuyck to undergo minor surgery, miss 4-6 weeks**\
+`Hellebuyck's knee injury marks the first substantial injury he's faced in his 11-year NHL career — a remarkable run of longevity.`\
+https://nytimes.com/athletic/6825388/2025/11/21/connor-hellebuyck-injury-jets/
+
 **Paul Pogba named in Monaco squad after more than two years out**\
 `The 32-year-old has not made an appearance since September 2023, after receiving a ban for breaching anti-doping regulations.`\
 https://nytimes.com/athletic/6760347/2025/11/21/paul-pogba-return-monaco-rennes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6826580/2025/11/21/wild-vs-penguins-stream-how-to-w
 **Knicks star sells Yoshinobu Yamamoto rookie card for record price**\
 `Towns has become an avid card collector recently, and creates social media content dedicated to the hobby.`\
 https://nytimes.com/athletic/6826462/2025/11/21/yoshinobu-yamamoto-card-sale-karl-anthony-towns/
-
-**They Came for Timothée. They Left With $250 Windbreakers.**\
-`Mr. Chalamet’s star power was in full force in Manhattan as fans clamored to get merch for “Marty Supreme,” a movie none of them will see until Christmas.`\
-https://nytimes.com/2025/11/21/style/marty-supreme-jacket-timothee-chalamet.html
 
