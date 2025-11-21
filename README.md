@@ -2,7 +2,7 @@
 `Thanks to Newsom, Trump and redistricting, the deep-blue state is in the thick of national politics.`\
 https://nytimes.com/2025/11/21/us/politics/newsom-trump-california-politics.html
 
-**Trump Heaps Praise on Mamdani**\
+**Just Two Guys From Queens**\
 `Also, Ukraine faces a “difficult choice” on the U.S. peace plan. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/11/21/briefing/trump-mamdani-ukraine-peace-plan.html
 

@@ -1,3 +1,11 @@
+**The Unlikely Center of 2025 Politics: California**\
+`Thanks to Newsom, Trump and redistricting, the deep-blue state is in the thick of national politics.`\
+https://nytimes.com/2025/11/21/us/politics/newsom-trump-california-politics.html
+
+**Trump Heaps Praise on Mamdani**\
+`Also, Ukraine faces a “difficult choice” on the U.S. peace plan. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/11/21/briefing/trump-mamdani-ukraine-peace-plan.html
+
 **Trump and Mamdani Strike Optimistic Tone, Sidestepping Past Critiques**\
 `The meeting between President Trump and the incoming mayor of New York City was strikingly warm for two men who had expressed deep concerns about each other’s leadership.`\
 https://nytimes.com/2025/11/21/us/politics/trump-mamdani-white-house-meeting.html
@@ -25,12 +33,4 @@ https://nytimes.com/video/us/politics/100000010539638/trump-saudi-arabia-leader-
 **Joey Gallo the pitcher? Ex-slugger is attempting switch to big league mound**\
 `Over 10 years in the big leagues five different teams, Gallo slashed .194/.319/.456 with 208 home runs and 453 RBIs over 939 games.`\
 https://nytimes.com/athletic/6827320/2025/11/21/joey-gallo-transition-to-pitching-attempt/
-
-**Tell Us About How You Are Watching TV and Movies**\
-`The New York Times wants to learn more about how viewing habits are evolving.`\
-https://nytimes.com/2025/11/21/business/media/movie-tv-habits.html
-
-**Judge Places Hold on I.R.S. Data Sharing With ICE**\
-`A judge halted a federal deportation effort Friday, writing that the tax agency had illegally disseminated the data of some migrants.`\
-https://nytimes.com/2025/11/21/business/irs-ice-migrants-addresses.html
 

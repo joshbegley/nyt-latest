@@ -1,3 +1,11 @@
+**The Unlikely Center of 2025 Politics: California**\
+`Thanks to Newsom, Trump and redistricting, the deep-blue state is in the thick of national politics.`\
+https://nytimes.com/2025/11/21/us/politics/newsom-trump-california-politics.html
+
+**Trump Heaps Praise on Mamdani**\
+`Also, Ukraine faces a “difficult choice” on the U.S. peace plan. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/11/21/briefing/trump-mamdani-ukraine-peace-plan.html
+
 **Trump and Mamdani Strike Optimistic Tone, Sidestepping Past Critiques**\
 `The meeting between President Trump and the incoming mayor of New York City was strikingly warm for two men who had expressed deep concerns about each other’s leadership.`\
 https://nytimes.com/2025/11/21/us/politics/trump-mamdani-white-house-meeting.html
