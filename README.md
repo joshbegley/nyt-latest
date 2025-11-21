@@ -22,7 +22,7 @@ https://nytimes.com/2025/11/20/business/stocks-ai-global.html
 `Dallas Cowboys defensive end was later found dead of an apparent self-inflicted gunshot wound.`\
 https://nytimes.com/athletic/6825131/2025/11/20/marshawn-kneeland-police-crash-report/
 
-**Pras Michel of the Fugees Gets 14 Years for Illegal Foreign Influence Scheme**\
+**Pras of the Fugees Gets 14 Years for Illegal Foreign Influence Scheme**\
 `Mr. Michel was convicted in April 2023 of 10 criminal counts, including money laundering, illegal lobbying and witness tampering.`\
 https://nytimes.com/2025/11/20/us/pras-michel-fugees-campaign-finance-prison.html
 

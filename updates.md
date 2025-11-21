@@ -1,3 +1,7 @@
+**NJ Transit Cancels Service to and From Midtown Until Friday Morning**\
+`Passengers on the Midtown Direct lines were being dropped off at the Hoboken station because of a repair to a rail switch nearby.`\
+https://nytimes.com/2025/11/20/nyregion/nj-transit-midtown-delays-cancellations.html
+
 **Alexander Ovechkin scores hat trick against Montreal, moves into 10th all-time in points**\
 `Ovechkin is now 65 points behind Pittsburgh Penguins captain Sidney Crosby, who sits in ninth place for most points by an NHLer. `\
 https://nytimes.com/athletic/6825210/2025/11/20/alexander-ovechkin-capitals-points/
