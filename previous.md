@@ -1,3 +1,7 @@
+**What the Jobs Report Tells Us About the Economy**\
+`What does the September jobs report, delayed by six weeks because of the government shutdown, say about the economy? Lydia DePillis, our economics reporter, describes how the report, which was better than expected, comes at a moment of deep uncertainty.`\
+https://nytimes.com/video/business/economy/100000010534118/what-the-jobs-report-tells-us-about-the-economy.html
+
 **Burt Meyer, 99, Dies; Made Lite-Brite and Rock ’Em Sock ’Em Robots**\
 `Starting in the 1960s, he collaborated on the designs of classic toys like Mouse Trap, Toss Across and Mr. Machine.`\
 https://nytimes.com/2025/11/21/arts/design/burton-meyer-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6826482/2025/11/21/bukayo-saka-arteta-arsenal-contr
 **Why Your Kitchen Looks Like That**\
 `A century of American kitchen design, from the dawn of electricity to the kitchen island.`\
 https://nytimes.com/interactive/2025/11/21/realestate/kitchen-design-trends-history.html
-
-**The Professors Who Stayed Close With Epstein**\
-`Even as the disgraced financier’s crimes were revealed, newly released emails show how academics at top universities stuck by Jeffrey Epstein, often seeking his help and offering it in return.`\
-https://nytimes.com/2025/11/21/us/professors-jeffrey-epstein-relationships.html
 

@@ -1,3 +1,7 @@
+**What the Jobs Report Tells Us About the Economy**\
+`What does the September jobs report, delayed by six weeks because of the government shutdown, say about the economy? Lydia DePillis, our economics reporter, describes how the report, which was better than expected, comes at a moment of deep uncertainty.`\
+https://nytimes.com/video/business/economy/100000010534118/what-the-jobs-report-tells-us-about-the-economy.html
+
 **Burt Meyer, 99, Dies; Made Lite-Brite and Rock ’Em Sock ’Em Robots**\
 `Starting in the 1960s, he collaborated on the designs of classic toys like Mouse Trap, Toss Across and Mr. Machine.`\
 https://nytimes.com/2025/11/21/arts/design/burton-meyer-dead.html
