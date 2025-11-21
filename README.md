@@ -1,3 +1,11 @@
+**Next week’s waiver wire: Kayshon Boutte and more players to add — before the Week 13 rush**\
+`John Laghezza looks ahead to the Week 13 waiver wire to give you an edge on competition.`\
+https://nytimes.com/athletic/6822989/2025/11/21/fantasy-football-waiver-wire-week-13-adds-boutte/
+
+**Kolo Muani, Bergvall, Sarr available for north London derby**\
+`Archie Gray, Mohammed Kudus and Radu Dragusin all trained on Friday.`\
+https://nytimes.com/athletic/6826334/2025/11/21/tottenham-team-news-north-london-derby/
+
 **Wolves boss role 'something I have always dreamed of', Edwards says**\
 `The 42-year-old was appointed on a three-and-a-half year deal this month to replace Vitor Pereira.`\
 https://nytimes.com/athletic/6826315/2025/11/21/rob-edwards-wolves-head-coach/
@@ -29,12 +37,4 @@ https://nytimes.com/video/dining/100000010523171/pumpkin-spice-honeycomb-cake.ht
 **Without Giannis, Bucks must fix 'little things' before they become a big problem**\
 `Milwaukee fell in overtime, but the final three possessions in the fourth quarter played a major role in a third-straight loss.`\
 https://nytimes.com/athletic/6825859/2025/11/21/sixers-bucks-giannis-nba/
-
-**South Africans Seize on Global Summit to Air Their Nation’s Ills**\
-`Johannesburg this weekend will host the first G20 meeting on African soil. Protesters are using the moment to draw attention to domestic problems.`\
-https://nytimes.com/2025/11/21/world/africa/south-africa-g20-protests.html
-
-**Collard Greens**\
-`Collard greens, a staple of Southern cuisine, are often cooked down with smoked turkey or pork neck bones. The greens form a potlikker, or broth, full of briny, smoky flavor.`\
-https://nytimes.com/video/dining/100000010522988/collard-greens.html
 
