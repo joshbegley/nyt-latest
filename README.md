@@ -1,3 +1,15 @@
+**These Blazers have hope. Damian Lillard offers a window into why 'better moments are ahead'**\
+`Damian Lillard's 2019 series-clincher still resonates around the Blazers. But it offers a lesson this team should heed among its struggles. `\
+https://nytimes.com/athletic/6822316/2025/11/21/blazers-damian-lillard-game-winner-legacy/
+
+**Trinity Rodman focused on winning NWSL Championship game 'and then we'll see'**\
+`When asked if she thought this could be her last game with the Spirit, Rodman said she's focused on the present.`\
+https://nytimes.com/athletic/6824557/2025/11/21/trinity-rodman-nwsl-contract-super-league/
+
+**Miss Mexico Crowned Miss Universe**\
+`Fátima Bosch was crowned the 74th Miss Universe on Friday. The competition had drawn attention when she briefly left an event after an organizer scolded her.`\
+https://nytimes.com/video/world/asia/100000010538128/miss-mexico-crowned-miss-universe.html
+
 **Should Bears fans be worried about kicker Cairo Santos? He isn't**\
 `During a turbulent season, Santos is confident he is back in his groove at just the right time.`\
 https://nytimes.com/athletic/6824493/2025/11/21/bears-kicker-cairo-santos-challenging-season/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6824554/2025/11/21/charleston-classic-schedule-brac
 **As Red Wings seek consistency, can they rein in their wild swings?**\
 `After two convincing wins, the Red Wings fell flat Thursday in a 5-0 loss to the Islanders. Those swings have been a trend this season.`\
 https://nytimes.com/athletic/6825277/2025/11/21/detroit-red-wings-john-gibson-islanders/
-
-**As Christian McCaffrey faces Panthers, he remembers that weird week he was traded**\
-`“He's a special player, a Hall of Famer for sure,” Chuba Hubbard said of McCaffrey, who will face his former team for the first time.`\
-https://nytimes.com/athletic/6824727/2025/11/21/panthers-christian-mccaffrey-trade-49ers/
-
-**The elephant in the Canadiens' room is standing in their goal crease**\
-`If Sam Montembeault can't figure out what has ailed him all season, the Canadiens' hopes for this season could be cooked.`\
-https://nytimes.com/athletic/6825518/2025/11/21/canadiens-capitals-goal-crease-sam-montembeault/
-
-**Can the Vikings beat the Packers with J.J. McCarthy playing like this?**\
-`Vikings QB J.J. McCarthy has beaten the Bears and Lions on the road, but he's 2-3 overall and has completed just 52.9 percent of his passes.`\
-https://nytimes.com/athletic/6824186/2025/11/21/vikings-packers-predictions-preview-jj-mccarthy/
 
