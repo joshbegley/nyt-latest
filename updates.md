@@ -1,3 +1,15 @@
+**How Daniel Jones, Colts can eliminate recent turnover issues in showdown with Chiefs**\
+`Jones has been intercepted four times and fumbled six times, losing three, in his last two starts.`\
+https://nytimes.com/athletic/6822629/2025/11/21/daniel-jones-turnovers-colts-chiefs/
+
+**Shedeur Sanders, unlikely underdog, has a perfect opportunity in front of him**\
+`No longer the quarterback protected by daddy ball, Sanders is now the long shot who was given a raw deal by The System.`\
+https://nytimes.com/athletic/6825102/2025/11/21/browns-shedeur-sanders-starting-playing-raiders-nfl/
+
+**AFC North Whiparound: Taking the current temperature of each team's QB room**\
+`Plus, our writers debate which unit is worse, the Bengals' defense or the Browns' offense. `\
+https://nytimes.com/athletic/6824402/2025/11/21/bengals-browns-ravens-steelers-quarterbacks-afc-north/
+
 **The Pulse: An AFC contender in trouble**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6824633/2025/11/21/bills-texans-josh-allen-the-pulse/

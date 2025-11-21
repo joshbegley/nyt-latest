@@ -1,3 +1,15 @@
+**Celtics coach Joe Mazzulla on concept of fun: ‘Don’t know what it means’**\
+`"I can make anything miserable because I don't see the joy side of it," says Mazzulla. `\
+https://nytimes.com/athletic/6825192/2025/11/21/celtics-coach-joe-mazzulla-no-fun/
+
+**Is President Trump’s Power Over the Republican Party Waning?**\
+`Some members of the party are defying him.`\
+https://nytimes.com/2025/11/21/briefing/is-president-trumps-power-over-the-republican-party-waning.html
+
+**Premier League clubs vote to change financial rules from next season**\
+`The clubs voted to introduce the squad cost ratio but not top to bottom anchoring at a meeting in London on Friday.`\
+https://nytimes.com/athletic/6822838/2025/11/21/premier-league-scr-anchoring-financial-rules/
+
 **How Daniel Jones, Colts can eliminate recent turnover issues in showdown with Chiefs**\
 `Jones has been intercepted four times and fumbled six times, losing three, in his last two starts.`\
 https://nytimes.com/athletic/6822629/2025/11/21/daniel-jones-turnovers-colts-chiefs/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6824557/2025/11/21/trinity-rodman-nwsl-contract-sup
 **Miss Mexico Crowned Miss Universe**\
 `Fátima Bosch was crowned the 74th Miss Universe on Friday. The competition had drawn attention when she briefly left an event after an organizer scolded her.`\
 https://nytimes.com/video/world/asia/100000010538128/miss-mexico-crowned-miss-universe.html
-
-**Should Bears fans be worried about kicker Cairo Santos? He isn't**\
-`During a turbulent season, Santos is confident he is back in his groove at just the right time.`\
-https://nytimes.com/athletic/6824493/2025/11/21/bears-kicker-cairo-santos-challenging-season/
-
-**The Chiefs are 5-5, but advanced stats love their offense. What gives?**\
-`The Chiefs have made it to the end zone on an impressive 31.9 percent of their drives. The problem is that they're not getting many drives.`\
-https://nytimes.com/athletic/6823723/2025/11/21/chiefs-offense-lacking-opportunities/
-
-**Projecting Team USA's roster for the 2026 World Juniors**\
-`The American roster is expected to have very specific strengths and some glaring questions at key positions.`\
-https://nytimes.com/athletic/6823182/2025/11/21/usa-world-juniors-2026-roster-projection/
 
