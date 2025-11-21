@@ -1,3 +1,23 @@
+**Here are some of college football's most unique stadium features**\
+`Waterfalls at Arkansas State drew attention on Thursday night, prompting us to seek out quirks from wooden domes to oddly colored turf.`\
+https://nytimes.com/athletic/6826862/2025/11/21/waterfalls-a-mirror-factory-and-a-wooden-dome-college-footballs-strange-stadium-quirks/
+
+**How to watch Purdue vs. Texas Tech men's basketball: Time, TV, streaming**\
+`Find out how to watch the Purdue Boilermakers play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6827136/2025/11/21/purdue-vs-texas-tech-stream-how-to-watch-nov-21/
+
+**How to watch Presbyterian vs. UCLA men's basketball: Time, TV, streaming**\
+`Find out how to watch the Presbyterian Blue Hose play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6827134/2025/11/21/presbyterian-vs-ucla-stream-how-to-watch-nov-21/
+
+**How to watch Michigan vs. UConn women's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan Wolverines play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6827132/2025/11/21/michigan-vs-uconn-stream-how-to-watch-nov-21/
+
+**How to watch Jackson State vs. Arkansas men's basketball: Time, TV, streaming**\
+`Find out how to watch the Jackson State Tigers play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6827130/2025/11/21/jackson-state-vs-arkansas-stream-how-to-watch-nov-21/
+
 **We Asked Roblox’s C.E.O. About Child Safety. It Got Tense.**\
 `The company announced this week that it would require users to undergo an age-estimation process powered by A.I. in order to chat with others on the platform. Will this change reassure parents?`\
 https://nytimes.com/video/podcasts/100000010536917/we-asked-robloxs-ceo-about-child-safety-it-got-tense.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6827059/2025/11/21/college-football-week-13-project
 **gws-koh-lan-island-thailand**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/koh-lan-island-thailand
-
-**Zelensky Faces a ‘Difficult Choice’ With Trump’s Proposed Plan**\
-`The Trump administration has proposed a 28-point peace plan designed to end the Russia-Ukraine war. President Volodymyr Zelensky of Ukraine said that his country was facing a “difficult choice.”`\
-https://nytimes.com/video/world/europe/100000010538871/ukraine-russia-trump-peace-plan.html
-
-**Trump and Mamdani’s Past Comments Reveal a Mutual Distaste**\
-`President Trump and Zohran Mamdani have pelted each other with insults from afar. They are meeting in person on Friday.`\
-https://nytimes.com/2025/11/21/nyregion/trump-mamdani-comments-insults.html
-
-**Spurs Women break transfer record to sign Norway international Gaupset**\
-`The 20-year-old attacking midfielder will join Spurs on January 1 from Norwegian club SK Brann.`\
-https://nytimes.com/athletic/6827035/2025/11/21/tottenham-women-transfer-signe-gaupset/
-
-**Liberty hire Warriors' assistant Chris DeMarco as franchise’s coach**\
-`DeMarco has been with the Warriors since 2012 and has been a part of four NBA titles with Golden State.`\
-https://nytimes.com/athletic/6827020/2025/11/21/new-york-liberty-warriors-chris-demarco-wnba/
-
-**The U.S. Tightens the Vise on an Already Besieged Zelensky**\
-`The Ukrainian president’s options are narrowing as he is confronted with a 28-point proposal drafted by American and Russian envoys.`\
-https://nytimes.com/2025/11/21/world/europe/ukraine-russia-us-peace-plan.html
 
