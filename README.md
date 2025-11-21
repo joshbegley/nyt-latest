@@ -1,3 +1,15 @@
+**How Daniel Jones, Colts can eliminate recent turnover issues in showdown with Chiefs**\
+`Jones has been intercepted four times and fumbled six times, losing three, in his last two starts.`\
+https://nytimes.com/athletic/6822629/2025/11/21/daniel-jones-turnovers-colts-chiefs/
+
+**Shedeur Sanders, unlikely underdog, has a perfect opportunity in front of him**\
+`No longer the quarterback protected by daddy ball, Sanders is now the long shot who was given a raw deal by The System.`\
+https://nytimes.com/athletic/6825102/2025/11/21/browns-shedeur-sanders-starting-playing-raiders-nfl/
+
+**AFC North Whiparound: Taking the current temperature of each team's QB room**\
+`Plus, our writers debate which unit is worse, the Bengals' defense or the Browns' offense. `\
+https://nytimes.com/athletic/6824402/2025/11/21/bengals-browns-ravens-steelers-quarterbacks-afc-north/
+
 **The Pulse: An AFC contender in trouble**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6824633/2025/11/21/bills-texans-josh-allen-the-pulse/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6823723/2025/11/21/chiefs-offense-lacking-opportuni
 **Projecting Team USA's roster for the 2026 World Juniors**\
 `The American roster is expected to have very specific strengths and some glaring questions at key positions.`\
 https://nytimes.com/athletic/6823182/2025/11/21/usa-world-juniors-2026-roster-projection/
-
-**Projecting Team Canada's roster for the 2026 World Juniors**\
-`The roster debates for Canada are always both contentious and tricky to build out, with many options playing in the NHL.`\
-https://nytimes.com/athletic/6823590/2025/11/21/canada-world-juniors-2026-roster-projection/
-
-**The best NFL games on TV for the rest of 2025: Defending champs vs. defending MVP**\
-`NFL TV ratings have been strong all season long. The remaining schedule includes games with massive national appeal.`\
-https://nytimes.com/athletic/6808271/2025/11/21/philadelphia-eagles-buffalo-bills-josh-allen-nfl-week-17/
-
-**How to watch Charleston Classic: Teams, schedule, bracket for NCAAM tournament**\
-`The annual Charleston Classic features a deep field with West Virginia, Clemson and Georgia standing out as favorites.`\
-https://nytimes.com/athletic/6824554/2025/11/21/charleston-classic-schedule-bracket-how-to-watch/
 
