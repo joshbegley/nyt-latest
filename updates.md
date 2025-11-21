@@ -1,3 +1,7 @@
+**Wirtz, Bradley out with muscular injuries from international duty**\
+`Arne Slot says he does not expect Bradley to be involved for the next three weeks "unless a miracle happens". `\
+https://nytimes.com/athletic/6825766/2025/11/21/florian-wirtz-conor-bradley-liverpool-injury-news/
+
 **How to watch Alabama State vs. Vanderbilt women's basketball: Time, TV, streaming**\
 `Find out how to watch the Alabama State Lady Hornets play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6825812/2025/11/21/alabama-state-vs-vanderbilt-stream-how-to-watch-nov-21/
