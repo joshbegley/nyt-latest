@@ -1,3 +1,7 @@
+**NJ Transit Cancels Service to and From Midtown Until Friday Morning**\
+`Passengers on the Midtown Direct lines were being dropped off at the Hoboken station because of a repair to a rail switch nearby.`\
+https://nytimes.com/2025/11/20/nyregion/nj-transit-midtown-delays-cancellations.html
+
 **Alexander Ovechkin scores hat trick against Montreal, moves into 10th all-time in points**\
 `Ovechkin is now 65 points behind Pittsburgh Penguins captain Sidney Crosby, who sits in ninth place for most points by an NHLer. `\
 https://nytimes.com/athletic/6825210/2025/11/20/alexander-ovechkin-capitals-points/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6822097/2025/11/20/first-pick-wpbl-draft/
 **Trump’s National Guard Blunder**\
 `A brief history of the National Guard in Washington.`\
 https://nytimes.com/video/opinion/100000010537060/trumps-national-guard-blunder.html
-
-**Can the Right Confront Antisemitism in Its Ranks?**\
-`Why is it so hard for the right to draw a boundary at antisemitism in its coalition? According to Yoram Hazony, an Israeli political theorist, it’s because the group wasn’t prepared to navigate the “explosion” of antisemitism.`\
-https://nytimes.com/video/opinion/100000010529017/can-the-right-confront-antisemitism-in-its-ranks.html
 
