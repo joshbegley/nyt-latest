@@ -1,3 +1,7 @@
+**Anonymous Bidder Pays $770,000 for Secret to Decode C.I.A. Kryptos Sculpture**\
+`The encoded panels’ creator, Jim Sanborn, sought to unburden himself of the puzzle, and then discovered before an auction he had archived its solution in the Smithsonian.`\
+https://nytimes.com/2025/11/20/science/kryptos-cia-auction-sculpture.html
+
 **Trump’s National Guard Blunder**\
 `A brief history of the National Guard in Washington.`\
 https://nytimes.com/video/opinion/100000010537060/trumps-national-guard-blunder.html

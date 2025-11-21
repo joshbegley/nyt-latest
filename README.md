@@ -1,3 +1,11 @@
+**Duchess Potatoes**\
+`Prized for its presentation, this fancy French potato dish, Duchess potatoes, dates back to the 1700s, when it was created — and given its aristocratic name — to help elevate the reputation of the humble tuber in France, where it had yet to be widely embraced by home cooks.`\
+https://nytimes.com/video/admin/100000010523035/duchess-potatoes.html
+
+**Kelsie Whitmore is No. 1 pick in first Women's Professional Baseball League draft**\
+`The new four-team league will launch its season in August 2026 in Springfield, Ill.`\
+https://nytimes.com/athletic/6822097/2025/11/20/first-pick-wpbl-draft/
+
 **Trump’s National Guard Blunder**\
 `A brief history of the National Guard in Washington.`\
 https://nytimes.com/video/opinion/100000010537060/trumps-national-guard-blunder.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/20/nyregion/mamdani-trump-meeting.html
 **Jesse Buss opens up on feeling like the Lakers treated him as 'an enemy'**\
 `The Lakers' part-owner and now-fired director of scouting discusses his final years with the franchise and his future.`\
 https://nytimes.com/athletic/6824483/2025/11/20/lakers-jesse-buss-fired-jeanie-mark-walter/
-
-**Scoop City: Playoff-altering matchups across the board**\
-`Postseason races underscore why the Chiefs and Bears enter must-win territory in Week 12`\
-https://nytimes.com/athletic/6824861/2025/11/20/nfl-playoff-picture-2025-week-12-chiefs-49ers-bears/
-
-**Frida Kahlo Portrait Sells for $55 Million, Setting Her Auction Record**\
-`The surrealistic self-portrait was made in 1940, a turbulent year in the Mexican artist’s life as her health and marriage deteriorated.`\
-https://nytimes.com/2025/11/20/arts/design/kahlo-portrait-auction-art-sothebys.html
 
