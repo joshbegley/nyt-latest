@@ -1,3 +1,11 @@
+**Judge Places Hold on I.R.S. Data Sharing With ICE**\
+`A judge halted a federal deportation effort Friday, writing that the tax agency had illegally disseminated the data of some migrants.`\
+https://nytimes.com/2025/11/21/business/irs-ice-migrants-addresses.html
+
+**'Leave a legacy': Arteta has 'confidence' Saka will sign new Arsenal deal**\
+`The 24-year-old current terms run until 2027.`\
+https://nytimes.com/athletic/6826482/2025/11/21/bukayo-saka-arteta-arsenal-contract/
+
 **Why Your Kitchen Looks Like That**\
 `A century of American kitchen design, from the dawn of electricity to the kitchen island.`\
 https://nytimes.com/interactive/2025/11/21/realestate/kitchen-design-trends-history.html

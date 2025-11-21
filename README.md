@@ -1,3 +1,11 @@
+**Joey Gallo the pitcher? Ex-slugger is attempting switch to big league mound**\
+`Over 10 years in the big leagues five different teams, Gallo slashed .194/.319/.456 with 208 home runs and 453 RBIs over 939 games.`\
+https://nytimes.com/athletic/6827320/2025/11/21/joey-gallo-transition-to-pitching-attempt/
+
+**Tell Us About How You Are Watching TV and Movies**\
+`The New York Times wants to learn more about how viewing habits are evolving.`\
+https://nytimes.com/2025/11/21/business/media/movie-tv-habits.html
+
 **Judge Places Hold on I.R.S. Data Sharing With ICE**\
 `A judge halted a federal deportation effort Friday, writing that the tax agency had illegally disseminated the data of some migrants.`\
 https://nytimes.com/2025/11/21/business/irs-ice-migrants-addresses.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/21/world/canada/canada-bear-attack-children.html
 **NCAA rescinds betting rule change on pro sports for staff, athletes**\
 `The NCAA also announced infractions decisions Friday related to sports gambling violations within the Temple men's basketball program.`\
 https://nytimes.com/athletic/6826693/2025/11/21/ncaa-betting-rules-athletes-pro-sports/
-
-**Bayern Munich's Diaz hit with three-match Champions League ban**\
-`The Colombian winger will miss the games against Arsenal, Sporting CP and Royale Union Saint-Gilloise.`\
-https://nytimes.com/athletic/6827392/2025/11/21/luis-diaz-suspension-champions-league-arsenal/
-
-**Jamaica Announces Deadly Bacterial Outbreak After Hurricane Melissa**\
-`Six people have died of leptospirosis, a rare bacterial illness often found in contaminated water. The storm increased the risk of contracting the disease, officials said.`\
-https://nytimes.com/2025/11/21/us/jamaica-leptospirosis-outbreak-hurricane-melissa.html
 
