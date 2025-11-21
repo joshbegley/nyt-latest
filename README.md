@@ -1,3 +1,7 @@
+**Make Unstoppable Happen**\
+`New York is proof that when 8 million people work toward something together, they can’t be stopped. `\
+https://nytimes.com/paidpost/jpmorgan-chase/make-unstoppable-happen.html
+
 **The Most Exclusive Club in Town Is Inside a Sports Stadium**\
 `Sports arenas across the country are opening members-only spaces for high-net-worth fans to mix business and pleasure.`\
 https://nytimes.com/2025/11/21/realestate/sports-stadium-nightlife-citi-field-barclays-capital-one-arena.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6760347/2025/11/21/paul-pogba-return-monaco-rennes/
 **Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
 `Drop your questions here, and The Athletic’s Chris Johnston will answer a selection in his upcoming mailbag.`\
 https://nytimes.com/athletic/6826585/2025/11/21/nhl-mailbag-contenders-trades-olympics/
-
-**Al Rockoff’s War Is Still Being Fought**\
-`Rockoff, who risked his life to photograph the brutality of the Khmer Rouge, has struggled ever since. Now he says his historic negatives have been taken from him.`\
-https://nytimes.com/2025/11/21/arts/design/al-rockoff-war-photography-killing-fields.html
 
