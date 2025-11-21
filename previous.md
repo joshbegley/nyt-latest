@@ -1,3 +1,15 @@
+**‘Two Strangers’ Review: Meeting Cute, Toting Baggage**\
+`The effervescent musical, a new London import, delivers lavishly on the promise of a rom-com: laughter, escape and fantasy.`\
+https://nytimes.com/2025/11/20/theater/two-strangers-carry-cake-review.html
+
+**Ready to Drop**\
+`Joyce Keller makes her New York Times Crossword debut.`\
+https://nytimes.com/2025/11/20/crosswords/daily-puzzle-2025-11-20.html
+
+**Anxiety Over A.I. Spending Returns to Global Markets**\
+`A sharp reversal in Asian stocks, after a rally fueled by Nvidia’s strong earnings, underscores how fears of an A.I. bubble are driving broad market swings.`\
+https://nytimes.com/2025/11/20/business/stocks-ai-global.html
+
 **Police were no longer pursuing Marshawn Kneeland at time of crash, report says**\
 `Dallas Cowboys defensive end was later found dead of an apparent self-inflicted gunshot wound.`\
 https://nytimes.com/athletic/6825131/2025/11/20/marshawn-kneeland-police-crash-report/
@@ -25,16 +37,4 @@ https://nytimes.com/video/opinion/100000010529017/can-the-right-confront-antisem
 **Anonymous Bidder Pays Nearly $1 Million for Secret to Decode C.I.A. Sculpture**\
 `The creator of the Kryptos panels, Jim Sanborn, sought to unburden himself of the puzzle, and then discovered before an auction he had archived its solution in the Smithsonian.`\
 https://nytimes.com/2025/11/20/science/kryptos-cia-auction-sculpture.html
-
-**Is the Gaza War Contributing to Antisemitism?**\
-`Is the recent onslaught of antisemitism on the right a result of the Israel-Hamas war? In this episode of “Interesting Times,” Yoram Hazony, an Israeli political theorist, explains how foreign policy is just one of the various forms that anti-Jewish messaging can take.`\
-https://nytimes.com/video/opinion/100000010529009/is-the-gaza-war-contributing-to-antisemitism.html
-
-**Qaeda Convict Returns to Guantánamo Court 17 Years After Trial**\
-`The Yemeni prisoner spent nearly seven hours at the war court, displaying some of the defiance of his 2008 proceeding.`\
-https://nytimes.com/2025/11/20/us/politics/al-qaeda-guantanamo-court.html
-
-**Special Alert: The Pies Are Here!**\
-`We put Sue Li in charge of the pies this year, and she delivered six stunners.`\
-https://nytimes.com/2025/11/20/dining/special-alert-the-pies-are-here.html
 

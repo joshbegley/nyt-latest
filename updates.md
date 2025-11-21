@@ -1,3 +1,15 @@
+**‘Two Strangers’ Review: Meeting Cute, Toting Baggage**\
+`The effervescent musical, a new London import, delivers lavishly on the promise of a rom-com: laughter, escape and fantasy.`\
+https://nytimes.com/2025/11/20/theater/two-strangers-carry-cake-review.html
+
+**Ready to Drop**\
+`Joyce Keller makes her New York Times Crossword debut.`\
+https://nytimes.com/2025/11/20/crosswords/daily-puzzle-2025-11-20.html
+
+**Anxiety Over A.I. Spending Returns to Global Markets**\
+`A sharp reversal in Asian stocks, after a rally fueled by Nvidia’s strong earnings, underscores how fears of an A.I. bubble are driving broad market swings.`\
+https://nytimes.com/2025/11/20/business/stocks-ai-global.html
+
 **Police were no longer pursuing Marshawn Kneeland at time of crash, report says**\
 `Dallas Cowboys defensive end was later found dead of an apparent self-inflicted gunshot wound.`\
 https://nytimes.com/athletic/6825131/2025/11/20/marshawn-kneeland-police-crash-report/
