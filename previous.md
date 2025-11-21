@@ -1,5 +1,5 @@
 **Coast Guard Softens Stance on Hate and Hazing**\
-`A new servicewide policy recasts swastikas and nooses as merely “politically divisive” and deletes protections for transgender men and women.`\
+`A new servicewide policy recasts swastikas and nooses as merely “politically divisive” and deletes protections for transgender troops.`\
 https://nytimes.com/2025/11/20/us/politics/coast-guard-hate-crimes.html
 
 **False accounting case involving Napoli and De Laurentiis referred to trial by Rome judge**\
