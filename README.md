@@ -1,3 +1,11 @@
+**Trump and Mamdani Are Meeting for the First Time. Will They Play Nice?**\
+`Zohran Mamdani, the mayor-elect of New York City, will go to the White House on Friday. The stakes are high for the city.`\
+https://nytimes.com/2025/11/20/nyregion/mamdani-trump-meeting.html
+
+**Jesse Buss opens up on feeling like the Lakers treated him as 'an enemy'**\
+`The now-fired former Lakers director of scouting and part-owner tells The Athletic about his final years with the franchise and his future.`\
+https://nytimes.com/athletic/6824483/2025/11/20/lakers-jesse-buss-fired-jeanie-mark-walter/
+
 **Scoop City: Playoff-altering matchups across the board**\
 `Postseason races underscore why the Chiefs and Bears enter must-win territory in Week 12`\
 https://nytimes.com/athletic/6824861/2025/11/20/nfl-playoff-picture-2025-week-12-chiefs-49ers-bears/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6824417/2025/11/20/napoli-false-accounting-case/
 **Fire Breaks Out at COP30**\
 `A pavilion caught on fire during negotiations at the COP30 global climate summit in Belém, Brazil, on Thursday. It is the latest in a series of mishaps for the annual conference this year.`\
 https://nytimes.com/video/climate/100000010536799/fire-breaks-out-at-cop30.html
-
-**Free beer, T-shirts: Rice looks to boost attendance for North Texas matchup**\
-`Rice, an FBS school with an undergraduate population just shy of 5,000, wants a big turnout with bowl eligibility on the line.`\
-https://nytimes.com/athletic/6824499/2025/11/20/rice-north-texas-beer-college-football-promotion/
-
-**Missouri Judge Who Wore Elvis Wig in Court Agrees to Resign**\
-`Judge Matthew E.P. Thornhill also talked about politics and played Elvis songs in court, a judicial commission said.`\
-https://nytimes.com/2025/11/20/us/missouri-judge-elvis-wig-resigns.html
 
