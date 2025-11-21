@@ -1,3 +1,7 @@
+**Amid fresh criticism, does Carlos Mendoza have a bullpen problem?**\
+`An ex-Mets reliever publicly questioned the manager's usage and communication skills, but a former manager called that "just wrong."`\
+https://nytimes.com/athletic/6826569/2025/11/21/mets-mendoza-bullpen-adam-ottavino/
+
 **Giants rule out QB Jaxson Dart vs. Lions; Jameis Winston will start**\
 `Jaxson Dart will miss his second straight start.`\
 https://nytimes.com/athletic/6826676/2025/11/21/ny-giants-jaxson-dart-jameis-winston-lions/
