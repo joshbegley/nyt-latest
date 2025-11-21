@@ -1,3 +1,11 @@
+**Satellite Data Reveals How the U.S. Navy Is Deployed Near Venezuela**\
+`The Times identified nearly 100 locations traversed by naval vessels across a two-and-a-half-month period to determine what the military pressure campaign against Venezuela looks like at sea.`\
+https://nytimes.com/2025/11/21/world/americas/us-navy-venezuela-satellite-data.html
+
+**Arsenal to make late Calafiori call for north London derby**\
+`Calafiori travelled with Italy’s national team this month, but withdrew over the weekend.`\
+https://nytimes.com/athletic/6826301/2025/11/21/riccardo-calafiori-arsenal-team-news/
+
 **We Asked Roblox’s C.E.O. About Child Safety. It Got Tense.**\
 `This week the company announced that it would require users to undergo an A.I.-powered age estimation process in order to chat with others on the platform. Will this change reassure parents?`\
 https://nytimes.com/video/podcasts/100000010538468/we-asked-robloxs-ceo-about-child-safety-it-got-tense.html
