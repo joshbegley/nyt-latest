@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: President and Mamdani to Meet for First Time**\
+``\
+https://nytimes.com/live/2025/11/21/us/trump-news
+
+**European Leaders Back Zelensky After U.S. Plan Leaves Them Out**\
+`The 28-point proposal would require Kyiv to surrender territory, reduce the size of its army and relinquish some weaponry, according to officials familiar with the proposal.`\
+https://nytimes.com/2025/11/21/world/europe/ukraine-russia-trump-peace-plan.html
+
 **What we've learned about the Timberwolves after 15 games**\
 `Julius Randle is surging and Anthony Edwards is slumping for Minnesota, which is beating the bad teams and losing to the good ones so far.`\
 https://nytimes.com/athletic/6824572/2025/11/21/timberwolves-first-15-julius-randle-jaden-mcdaniels/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6825438/2025/11/21/brian-cashman-yankees-sleepout-c
 **NFL Week 12 schedule rankings: Top 5 Sunday games to shift the playoff odds**\
 `Here are the biggest postseason swing games across Week 12, according to The Athletic's NFL playoff projection model.`\
 https://nytimes.com/athletic/6821338/2025/11/21/nfl-week-12-playoff-odds-steelers-bears-chiefs/
-
-**Every team, tournament and title game to watch in college basketball Feast Week**\
-`College basketball's frenzied early-season schedule delivers a veritable cornucopia of hoops in the days around Thanksgiving.`\
-https://nytimes.com/athletic/6823869/2025/11/21/college-basketball-feast-week-schedule-players-era-maui/
-
-**What's up with Caleb Williams' deep-passing accuracy? Bears mailbag, Week 12 picks**\
-`Aaron Rodgers could play his final game at Soldier Field. Can Williams and company deal him a loss? Mailbag and our Week 12 picks.`\
-https://nytimes.com/athletic/6824624/2025/11/21/bears-mailbag-caleb-williams-jaylon-johnson/
 
