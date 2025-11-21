@@ -1,3 +1,19 @@
+**Fantasy Premier League live Q&A: Gameweek 12 advice from Ben Dinnery**\
+`Still mulling over your plan of action this gameweek? Ben Dinnery of premierinjuries.com is on hand to give you the best chance of success`\
+https://nytimes.com/athletic/6822633/2025/11/21/fantasy-premier-league-live-qa-gameweek-12-advice-from-ben-dinnery/
+
+**What's at stake for Michigan against Ohio State ... if it avoids a Maryland upset**\
+`Michigan has been on the periphery of CFP talk all year. That would change with a win at Maryland and another upset of Ohio State.`\
+https://nytimes.com/athletic/6823808/2025/11/21/michigan-football-maryland-ohio-state-playoff/
+
+**Roblox, Where Kids Game and Chat, Will Analyze Their Faces to Verify Age**\
+`The popular gaming platform said the tool was designed to stop children from chatting with older users they didn’t know.`\
+https://nytimes.com/2025/11/21/business/roblox-age-verification.html
+
+**Brian Cashman's charity sleepouts have become a punchline. Here's why he still does them**\
+`The GM sees the memes — "‘Cashman is asleep on the job.’ I’ve seen that all over social media.” — but says the mission is more important. `\
+https://nytimes.com/athletic/6825438/2025/11/21/brian-cashman-yankees-sleepout-charity-homeless-event/
+
 **NFL Week 12 schedule rankings: Top 5 Sunday games to shift the playoff odds**\
 `Here are the biggest postseason swing games across Week 12, according to The Athletic's NFL playoff projection model.`\
 https://nytimes.com/athletic/6821338/2025/11/21/nfl-week-12-playoff-odds-steelers-bears-chiefs/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6824564/2025/11/21/seahawks-offensive-line-grey-zab
 **The Athletic’s Friday football quiz question #82**\
 `Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/6823931/2025/11/21/the-athletics-friday-football-quiz-question-82/
-
-**Emil Andrae showing Flyers he belongs with the big club, permanently**\
-`Andrae has become a mainstay in the Flyers’ lineup, and was promoted to the second defense pair with Jamie Drysdale on Thursday.`\
-https://nytimes.com/athletic/6825358/2025/11/21/emil-andrae-flyers-blues-win/
-
-**How the Lions' defense is getting it done with a firefighter mentality**\
-`Detroit has allowed touchdowns on just 11.8 percent of drives when its opponent takes over after a turnover or turnover on downs.`\
-https://nytimes.com/athletic/6825180/2025/11/21/detroit-lions-defense-strength-firefighters/
-
-**Why the Packers' decision on Josh Jacobs isn't a simple one**\
-`Green Bay will turn to Emanuel Wilson if Jacobs' knee injury sidelines him for Sunday's game against the Vikings.`\
-https://nytimes.com/athletic/6824769/2025/11/21/josh-jacobs-knee-injury-packers-vikings/
-
-**Does Mark Stoops have Kentucky back on steady ground?**\
-`The difference for Stoops is that the SEC is not the Big Ten West. It's much harder to find and maintain footing in the SEC.`\
-https://nytimes.com/athletic/6824778/2025/11/21/kentucky-football-mark-stoops-record-contract/
 
