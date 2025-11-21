@@ -6,9 +6,9 @@ https://nytimes.com/2025/11/21/us/professors-jeffrey-epstein-relationships.html
 `A global group of researchers was unable to read the vote tally, after an official lost one of three secret code keys needed to unlock a hyper-secure election system.`\
 https://nytimes.com/2025/11/21/world/cryptography-group-lost-election-results.html
 
-**TK**\
-`TK`\
-https://nytimes.com/2025/11/21/reader-center/100-notable-books-of-2025.html
+**The Best Books of the Year (So Far)**\
+`The nonfiction and novels we can’t stop thinking about.`\
+https://nytimes.com/2025/05/07/books/best-books-2025-so-far.html
 
 **3 Children Are Injured in Grizzly Bear Attack in British Columbia**\
 `The children were among four people who were hurt when a grizzly bear attacked a school group in a remote part of British Columbia’s central coast, the authorities said.`\

@@ -1,3 +1,7 @@
+**The Best Books of the Year (So Far)**\
+`The nonfiction and novels we can’t stop thinking about.`\
+https://nytimes.com/2025/05/07/books/best-books-2025-so-far.html
+
 **The Professors Who Stayed Close With Epstein**\
 `Even as the disgraced financier’s crimes were revealed, newly released emails show how academics at top universities stuck by Jeffrey Epstein, often seeking his help and offering it in return.`\
 https://nytimes.com/2025/11/21/us/professors-jeffrey-epstein-relationships.html
