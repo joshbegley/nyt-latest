@@ -1,3 +1,19 @@
+**Swansea close to naming Matos as head coach after meeting release clause**\
+`Matos still has to finalise the deal but is now in the final stages with an agreement close.`\
+https://nytimes.com/athletic/6819950/2025/11/21/vitor-matos-swansea-head-coach-appointment/
+
+**Bishop Arts District, an Eclectic Dallas Enclave**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/real-estate-guide-bishop-arts-district-dallas
+
+**We Want to Know: What Are Your Pressing Questions About How Your Life Has Changed This Year Under Trump?**\
+`Times journalists will bring you answers.`\
+https://nytimes.com/2025/11/21/us/we-want-to-know-what-are-your-pressing-questions-about-how-your-life-has-changed-this-year-under-trump.html
+
+**gws-bedford-stuyvesant-brooklyn-townhouse-august-market**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/bedford-stuyvesant-brooklyn-townhouse-august-market
+
 **How Trump’s Electoral Success Helped Fuel Mamdani’s Rise**\
 `In one of his earliest viral videos, Zohran Mamdani asked New Yorkers why they had decided to vote for President Trump. What he heard shaped his campaign.`\
 https://nytimes.com/2025/11/21/nyregion/trump-mamdani-video-bronx.html

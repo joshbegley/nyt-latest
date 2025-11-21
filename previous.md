@@ -1,3 +1,19 @@
+**Swansea close to naming Matos as head coach after meeting release clause**\
+`Matos still has to finalise the deal but is now in the final stages with an agreement close.`\
+https://nytimes.com/athletic/6819950/2025/11/21/vitor-matos-swansea-head-coach-appointment/
+
+**Bishop Arts District, an Eclectic Dallas Enclave**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/real-estate-guide-bishop-arts-district-dallas
+
+**We Want to Know: What Are Your Pressing Questions About How Your Life Has Changed This Year Under Trump?**\
+`Times journalists will bring you answers.`\
+https://nytimes.com/2025/11/21/us/we-want-to-know-what-are-your-pressing-questions-about-how-your-life-has-changed-this-year-under-trump.html
+
+**gws-bedford-stuyvesant-brooklyn-townhouse-august-market**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/bedford-stuyvesant-brooklyn-townhouse-august-market
+
 **How Trump’s Electoral Success Helped Fuel Mamdani’s Rise**\
 `In one of his earliest viral videos, Zohran Mamdani asked New Yorkers why they had decided to vote for President Trump. What he heard shaped his campaign.`\
 https://nytimes.com/2025/11/21/nyregion/trump-mamdani-video-bronx.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6827175/2025/11/21/pelicans-vs-mavericks-stream-how
 **How to watch Nets vs. Celtics: Time, TV, streaming**\
 `Find out how to watch the Brooklyn Nets play the Boston Celtics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6827173/2025/11/21/nets-vs-celtics-stream-how-to-watch-nov-21/
-
-**How to watch Wizards vs. Raptors: Time, TV, streaming**\
-`Find out how to watch the Washington Wizards play the Toronto Raptors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6827171/2025/11/21/wizards-vs-raptors-stream-how-to-watch-nov-21/
-
-**How to watch Nuggets vs. Rockets: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the Houston Rockets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6827168/2025/11/21/nuggets-vs-rockets-stream-how-to-watch-nov-21/
-
-**How to watch Thunder vs. Jazz: Time, TV, streaming**\
-`Find out how to watch the Oklahoma City Thunder play the Utah Jazz, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6827166/2025/11/21/thunder-vs-jazz-stream-how-to-watch-nov-21/
-
-**How to watch Trail Blazers vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6827164/2025/11/21/trail-blazers-vs-warriors-stream-how-to-watch-nov-21/
 
