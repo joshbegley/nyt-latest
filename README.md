@@ -1,3 +1,7 @@
+**Amid fresh criticism, does Carlos Mendoza have a bullpen problem?**\
+`An ex-Mets reliever publicly questioned the manager's usage and communication skills, but a former manager called that "just wrong."`\
+https://nytimes.com/athletic/6826569/2025/11/21/mets-mendoza-bullpen-adam-ottavino/
+
 **Giants rule out QB Jaxson Dart vs. Lions; Jameis Winston will start**\
 `Jaxson Dart will miss his second straight start.`\
 https://nytimes.com/athletic/6826676/2025/11/21/ny-giants-jaxson-dart-jameis-winston-lions/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/21/climate/china-climate-leadership-belem-cop30.html
 **How to watch Blackhawks vs. Sabres: Time, TV, streaming**\
 `Find out how to watch the Chicago Blackhawks play the Buffalo Sabres, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6826584/2025/11/21/blackhawks-vs-sabres-stream-how-to-watch-nov-21/
-
-**How to watch Pacers vs. Cavaliers: Time, TV, streaming**\
-`Find out how to watch the Indiana Pacers play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6826582/2025/11/21/pacers-vs-cavaliers-stream-how-to-watch-nov-21/
 
