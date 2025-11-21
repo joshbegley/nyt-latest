@@ -1,40 +1,40 @@
-**TAFC: Bielsa's 'El Loco' side unleashed again. Plus: Inside the Jamaica crisis**\
-`Why is the Uruguay manager feeling the strain? And the Premier League is back – can Liverpool turn around their title defence?`\
-https://nytimes.com/athletic/6825970/2025/11/21/marcelo-bielsa-uruguay-jamaica-tafc/
+**Every team, tournament and title game to watch in college basketball Feast Week**\
+`College basketball's frenzied early-season schedule delivers a veritable cornucopia of hoops in the days around Thanksgiving.`\
+https://nytimes.com/athletic/6823869/2025/11/21/college-basketball-feast-week-schedule-players-era-maui/
 
-**Celtics coach Joe Mazzulla on concept of fun: ‘Don’t know what it means’**\
-`"I can make anything miserable because I don't see the joy side of it," says Mazzulla. `\
-https://nytimes.com/athletic/6825192/2025/11/21/celtics-coach-joe-mazzulla-no-fun/
+**What's up with Caleb Williams' deep-passing accuracy? Bears mailbag, Week 12 picks**\
+`Aaron Rodgers could play his final game at Soldier Field. Can Williams and company deal him a loss? Mailbag and our Week 12 picks.`\
+https://nytimes.com/athletic/6824624/2025/11/21/bears-mailbag-caleb-williams-jaylon-johnson/
 
-**Is President Trump’s Power Over the Republican Party Waning?**\
-`Some members of the party are defying him.`\
-https://nytimes.com/2025/11/21/briefing/is-president-trumps-power-over-the-republican-party-waning.html
+**I have stumbled on incontrovertible proof that the hockey gods hate the loser point**\
+`This year, we’re already down to just two teams that don’t have a loser point: The Jets and the Bruins.`\
+https://nytimes.com/athletic/6823377/2025/11/21/hockey-gods-hate-the-loser-point/
 
-**Premier League clubs vote to change financial rules from next season**\
-`The clubs voted to introduce the squad cost ratio but not top to bottom anchoring at a meeting in London on Friday.`\
-https://nytimes.com/athletic/6822838/2025/11/21/premier-league-scr-anchoring-financial-rules/
+**With Grey Zabel injured, Seahawks' improved offensive line could face a big test**\
+`The Seahawks started the same five offensive linemen for the first nine games, with great results, but their depth is now being tested.`\
+https://nytimes.com/athletic/6824564/2025/11/21/seahawks-offensive-line-grey-zabel-injury/
 
-**How Daniel Jones, Colts can eliminate recent turnover issues in showdown with Chiefs**\
-`Jones has been intercepted four times and fumbled six times, losing three, in his last two starts.`\
-https://nytimes.com/athletic/6822629/2025/11/21/daniel-jones-turnovers-colts-chiefs/
+**The Athletic’s Friday football quiz question #82**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/6823931/2025/11/21/the-athletics-friday-football-quiz-question-82/
 
-**Shedeur Sanders, unlikely underdog, has a perfect opportunity in front of him**\
-`No longer the quarterback protected by daddy ball, Sanders is now the long shot who was given a raw deal by The System.`\
-https://nytimes.com/athletic/6825102/2025/11/21/browns-shedeur-sanders-starting-playing-raiders-nfl/
+**Emil Andrae showing Flyers he belongs with the big club, permanently**\
+`Andrae has become a mainstay in the Flyers’ lineup, and was promoted to the second defense pair with Jamie Drysdale on Thursday.`\
+https://nytimes.com/athletic/6825358/2025/11/21/emil-andrae-flyers-blues-win/
 
-**AFC North Whiparound: Taking the current temperature of each team's QB room**\
-`Plus, our writers debate which unit is worse, the Bengals' defense or the Browns' offense. `\
-https://nytimes.com/athletic/6824402/2025/11/21/bengals-browns-ravens-steelers-quarterbacks-afc-north/
+**How the Lions' defense is getting it done with a firefighter mentality**\
+`Detroit has allowed touchdowns on just 11.8 percent of drives when its opponent takes over after a turnover or turnover on downs.`\
+https://nytimes.com/athletic/6825180/2025/11/21/detroit-lions-defense-strength-firefighters/
 
-**The Pulse: An AFC contender in trouble**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6824633/2025/11/21/bills-texans-josh-allen-the-pulse/
+**Why the Packers' decision on Josh Jacobs isn't a simple one**\
+`Green Bay will turn to Emanuel Wilson if Jacobs' knee injury sidelines him for Sunday's game against the Vikings.`\
+https://nytimes.com/athletic/6824769/2025/11/21/josh-jacobs-knee-injury-packers-vikings/
 
-**These Blazers have hope. Damian Lillard offers a window into why 'better moments are ahead'**\
-`Damian Lillard's 2019 series-clincher still resonates around the Blazers. But it offers a lesson this team should heed among its struggles. `\
-https://nytimes.com/athletic/6822316/2025/11/21/blazers-damian-lillard-game-winner-legacy/
+**Does Mark Stoops have Kentucky back on steady ground?**\
+`The difference for Stoops is that the SEC is not the Big Ten West. It's much harder to find and maintain footing in the SEC.`\
+https://nytimes.com/athletic/6824778/2025/11/21/kentucky-football-mark-stoops-record-contract/
 
-**Trinity Rodman focused on winning NWSL Championship game 'and then we'll see'**\
-`When asked if she thought this could be her last game with the Spirit, Rodman said she's focused on the present.`\
-https://nytimes.com/athletic/6824557/2025/11/21/trinity-rodman-nwsl-contract-super-league/
+**We Asked Roblox’s C.E.O. About Child Safety. It Got Tense.**\
+`This week the company announced that it would require users to undergo an A.I.-powered age estimation process in order to chat with others on the platform. Will this change reassure parents?`\
+https://nytimes.com/2025/11/21/podcasts/hardfork-roblox-child-safety.html
 
