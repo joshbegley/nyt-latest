@@ -1,3 +1,11 @@
+**Don’t Push Russia’s Bad Deal on Ukraine**\
+`War and diplomacy: Readers react to developments on Russia and Ukraine. Also: A global democracy deficit; a sad phone.`\
+https://nytimes.com/2025/11/21/opinion/russia-ukraine.html
+
+**Trump to Hold Two Fund-Raisers for His Super PAC Next Year**\
+`A ticket will cost $1 million at each event.`\
+https://nytimes.com/2025/11/21/us/politics/trump-to-hold-two-fund-raisers-for-his-super-pac-next-year.html
+
 **Memphis**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-memphis
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6826569/2025/11/21/mets-mendoza-bullpen-adam-ottavi
 **Giants rule out QB Jaxson Dart vs. Lions; Jameis Winston will start**\
 `Jaxson Dart will miss his second straight start.`\
 https://nytimes.com/athletic/6826676/2025/11/21/ny-giants-jaxson-dart-jameis-winston-lions/
-
-**Former Reform U.K. Politician Sent to Prison for Taking Pro-Russia Bribes**\
-`Nathan Gill was sentenced to 10 and a half years on Friday after admitting he was paid to make pro-Russian speeches in the European Parliament.`\
-https://nytimes.com/2025/11/21/world/europe/reform-uk-nathan-gill-russia-bribes.html
-
-**Winnipeg Jets goalie Connor Hellebuyck to undergo minor surgery, miss 4-6 weeks**\
-`Hellebuyck's knee injury marks the first substantial injury he's faced in his 11-year NHL career — a remarkable run of longevity.`\
-https://nytimes.com/athletic/6825388/2025/11/21/connor-hellebuyck-injury-jets/
 

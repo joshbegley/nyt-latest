@@ -1,3 +1,11 @@
+**Don’t Push Russia’s Bad Deal on Ukraine**\
+`War and diplomacy: Readers react to developments on Russia and Ukraine. Also: A global democracy deficit; a sad phone.`\
+https://nytimes.com/2025/11/21/opinion/russia-ukraine.html
+
+**Trump to Hold Two Fund-Raisers for His Super PAC Next Year**\
+`A ticket will cost $1 million at each event.`\
+https://nytimes.com/2025/11/21/us/politics/trump-to-hold-two-fund-raisers-for-his-super-pac-next-year.html
+
 **Memphis**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-memphis
