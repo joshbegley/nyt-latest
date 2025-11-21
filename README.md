@@ -1,3 +1,7 @@
+**Judge Concludes Prosecutors Can Circumvent Federal Grand Juries in D.C.**\
+`The ruling by a federal judge found that federal prosecutors could fall back on local grand juries to approve serious charges when they failed to persuade a federal grand jury.`\
+https://nytimes.com/2025/11/20/us/politics/judge-trump-washington-grand-juries.html
+
 **Coast Guard Softens Stance on Hate and Hazing**\
 `A new servicewide policy recasts swastikas and nooses as merely “politically divisive” and deletes protections for transgender troops.`\
 https://nytimes.com/2025/11/20/us/politics/coast-guard-hate-crimes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/20/business/media/warner-discovery-bids-paramount-ne
 **A Film About Unidentified Phenomena Gets a Congressional Audience**\
 `“The Age of Disclosure,” a documentary featuring government and military officials, was screened for a bipartisan group of members of the House of Representatives.`\
 https://nytimes.com/2025/11/20/movies/the-age-of-disclosure-congress.html
-
-**Ward Landrigan, Jeweler to the Stars, Dies at 84**\
-`At Sotheby’s, he provided famous diamonds to Elizabeth Taylor and Richard Burton before reviving Verdura, a venerable jewelry company founded by a Sicilian duke.`\
-https://nytimes.com/2025/11/20/fashion/ward-landrigan-dead.html
 
