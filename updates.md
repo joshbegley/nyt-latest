@@ -1,3 +1,7 @@
+**The Pulse: An AFC contender in trouble**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6824633/2025/11/21/bills-texans-josh-allen-the-pulse/
+
 **These Blazers have hope. Damian Lillard offers a window into why 'better moments are ahead'**\
 `Damian Lillard's 2019 series-clincher still resonates around the Blazers. But it offers a lesson this team should heed among its struggles. `\
 https://nytimes.com/athletic/6822316/2025/11/21/blazers-damian-lillard-game-winner-legacy/
