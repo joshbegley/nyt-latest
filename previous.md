@@ -1,3 +1,7 @@
+**The Ashes Briefing: England fight back with raw pace after Mitchell Starc's career best haul**\
+`The opening day of the series saw a record number of wickets fall as the Ashes began in dramatic style `\
+https://nytimes.com/athletic/6819497/2025/11/21/ashes-australia-england-starc-pace-briefing/
+
 **He was one of the NFL's best punters, then he was gone: 'I'm definitely blackballed'**\
 `King carved out a distinct persona at a position known for anonymity. It may explain why his NFL career was shorter than it could have been.`\
 https://nytimes.com/athletic/6810455/2025/11/21/marquette-king-nfl-punter-blackballed/
@@ -33,8 +37,4 @@ https://nytimes.com/explain/2025/11/21/travel/thanksgiving-travel-flights-delays
 **Can Kirk Cousins showcase himself and save the Falcons offense at the same time?**\
 `The Falcons have lost five straight games as Cousins returns as starting quarterback this week in New Orleans against the Saints.`\
 https://nytimes.com/athletic/6823864/2025/11/21/kirk-cousins-michael-penix-atlanta-falcons-offense/
-
-**Five potential red flags for the Patriots as the NFL playoffs approach**\
-`The 9-2 Patriots have been amazing this season. But there are still reasons for concern as tougher opponents await on the horizon.`\
-https://nytimes.com/athletic/6821368/2025/11/21/new-england-patriots-red-flags-nfl-playoffs/
 

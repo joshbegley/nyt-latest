@@ -1,3 +1,7 @@
+**The Ashes Briefing: England fight back with raw pace after Mitchell Starc's career best haul**\
+`The opening day of the series saw a record number of wickets fall as the Ashes began in dramatic style `\
+https://nytimes.com/athletic/6819497/2025/11/21/ashes-australia-england-starc-pace-briefing/
+
 **He was one of the NFL's best punters, then he was gone: 'I'm definitely blackballed'**\
 `King carved out a distinct persona at a position known for anonymity. It may explain why his NFL career was shorter than it could have been.`\
 https://nytimes.com/athletic/6810455/2025/11/21/marquette-king-nfl-punter-blackballed/
