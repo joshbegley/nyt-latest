@@ -1,3 +1,23 @@
+**He was one of the NFL's best punters, then he was gone: 'I'm definitely blackballed'**\
+`King carved out a distinct persona at a position known for anonymity. It may explain why his NFL career was shorter than it could have been.`\
+https://nytimes.com/athletic/6810455/2025/11/21/marquette-king-nfl-punter-blackballed/
+
+**The Jets had their scariest week of their season**\
+`Sunday’s shooting rocked the Jets' locker room.`\
+https://nytimes.com/athletic/6824855/2025/11/21/kris-boyd-shooting-new-york-jets/
+
+**How 2 NFL teams are winning the game of inches, stealing yards on the 'dynamic kickoff'**\
+`The Seahawks and Panthers have adapted to the new "dynamic kickoff" better than every other team in the NFL. This is how they've done it.`\
+https://nytimes.com/athletic/6820928/2025/11/21/nfl-dyanmic-kickoffs-seahawks-panthers/
+
+**For the Steelers defense: An old vet, a new position, and a secondary saved**\
+`Breaking down what's behind the sudden improvement for Pittsburgh's defense.`\
+https://nytimes.com/athletic/6824758/2025/11/21/jalen-ramseys-safety-pittsburgh-steelers-secondary/
+
+**The New York Times International Edition in Print for Saturday, Nov. 22, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/11/21/todays-new-york-times-international-edition
+
 **Wirtz, Bradley out with muscular injuries from international duty**\
 `Arne Slot says he does not expect Bradley to be involved for the next three weeks "unless a miracle happens". `\
 https://nytimes.com/athletic/6825766/2025/11/21/florian-wirtz-conor-bradley-liverpool-injury-news/
