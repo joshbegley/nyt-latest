@@ -1,3 +1,7 @@
+**Week 12 fantasy football intel, predictions using player prop lines**\
+`Brad Evans scours sportsbooks to find intel that applies to fantasy football. This week he likes Brock Purdy, Darnell Mooney and more.`\
+https://nytimes.com/athletic/6823898/2025/11/21/week-12-fantasy-football-intel-predictions-player-prop-lines/
+
 **The fast and the furious: How brute pace sparked opening Test of The Ashes**\
 `An astonishing day in Perth saw 19 wickets fall as batters crumpled in the face of breathless pace on the quickest track in world cricket`\
 https://nytimes.com/athletic/6825825/2025/11/21/ashes-australia-england-perth-pace-starc-stokes-archer-wood/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6825828/2025/11/21/f1-las-vegas-gp-entertainment/
 **Lowetide: Which AHL players could earn a call-up to the Oilers?**\
 `These four players might be able to deliver in the NHL for the Oilers later this season.`\
 https://nytimes.com/athletic/6823567/2025/11/21/edmonton-oilers-ahl-players-howard-hutson-ingram/
-
-**The case for sending young NHL stars to the Olympics**\
-`The 2026 Olympics could be a chance to start the changing of the guard. Macklin Celebrini and Connor Bedard should be slam dunks.`\
-https://nytimes.com/athletic/6824657/2025/11/21/olympics-hockey-young-players-benefits/
 

@@ -1,3 +1,7 @@
+**The fast and the furious: How brute pace sparked opening Test of The Ashes**\
+`An astonishing day in Perth saw 19 wickets fall as batters crumpled in the face of breathless pace on the quickest track in world cricket`\
+https://nytimes.com/athletic/6825825/2025/11/21/ashes-australia-england-perth-pace-starc-stokes-archer-wood/
+
 **Reed Sheppard is thinking less and shooting more. That's a great thing for the Rockets**\
 `Sheppard is Houston's only true point guard on the roster. After barely playing as a rookie, he's developing into an important "spark plug."`\
 https://nytimes.com/athletic/6825731/2025/11/21/reed-sheppard-rockets-improvement-experience/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6823567/2025/11/21/edmonton-oilers-ahl-players-howa
 **The case for sending young NHL stars to the Olympics**\
 `The 2026 Olympics could be a chance to start the changing of the guard. Macklin Celebrini and Connor Bedard should be slam dunks.`\
 https://nytimes.com/athletic/6824657/2025/11/21/olympics-hockey-young-players-benefits/
-
-**Concacaf World Cup qualifying burst into chaos minus USMNT, Mexico, Canada**\
-`Its three hosts automatically in the World Cup, the Concacaf region's qualifying campaign produced extraordinary drama and huge shocks.`\
-https://nytimes.com/athletic/6824174/2025/11/21/concacaf-world-cup-qualifying-usmnt-haiti-curacao/
 
