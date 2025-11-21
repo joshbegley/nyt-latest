@@ -1,3 +1,7 @@
+**Flying for Thanksgiving? Here’s the Only Travel Guide You’ll Need.**\
+`Flight cancellations. Record crowds. A recent government shutdown. Here are some tips for navigating an especially fraught holiday travel season.`\
+https://nytimes.com/explain/2025/11/21/travel/thanksgiving-travel-flights-delays
+
 **Can Kirk Cousins showcase himself and save the Falcons offense at the same time?**\
 `The Falcons have lost five straight games as Cousins returns as starting quarterback this week in New Orleans against the Saints.`\
 https://nytimes.com/athletic/6823864/2025/11/21/kirk-cousins-michael-penix-atlanta-falcons-offense/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/21/arts/television/louis-ck-ridiculous-beacon-tour.h
 **Watch a ‘Wonderful’ Moment From ‘Wicked: For Good’**\
 `The director Jon M. Chu narrates a sequence from his film featuring Ariana Grande, Cynthia Erivo and Jeff Goldblum performing the song “Wonderful.”`\
 https://nytimes.com/2025/11/21/movies/wicked-for-good-clip.html
-
-**‘Wicked’ and the Never-Ending Press Tour**\
-`The pink-and-green-themed promotions were everywhere, with all the advantages and limitations that kind of marketing push entails.`\
-https://nytimes.com/2025/11/21/movies/wicked-for-good-2-ariana-grande-cynthia-erivo.html
 
