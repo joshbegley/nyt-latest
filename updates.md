@@ -1,3 +1,7 @@
+**Gordon, Livramento 'close' to Newcastle return vs. Man City**\
+`Gordon missed the defeat at Brentford due to a hip problem, while Livramento has been out with a knee injury since the end of September.`\
+https://nytimes.com/athletic/6825747/2025/11/21/anthony-gordon-tino-livramento-newcastle-injury-update/
+
 **'I'm toxic' - breaking down Bielsa's extraordinary 105-minute press conference**\
 `This was the Uruguay manager like we have never seen him before, setting out why he intends to lead the team to the 2026 World Cup`\
 https://nytimes.com/athletic/6825271/2025/11/21/marcelo-bielsa-toxic-press-conference/

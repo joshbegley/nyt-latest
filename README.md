@@ -1,3 +1,7 @@
+**‘Wicked: For Good’ | Anatomy of a Scene**\
+`The director Jon M. Chu narrates a sequence from his film featuring Cynthia Erivo, Ariana Grande and Jeff Goldblum.`\
+https://nytimes.com/video/movies/100000010534425/wicked-for-good-scene.html
+
 **Gordon, Livramento 'close' to Newcastle return vs. Man City**\
 `Gordon missed the defeat at Brentford due to a hip problem, while Livramento has been out with a knee injury since the end of September.`\
 https://nytimes.com/athletic/6825747/2025/11/21/anthony-gordon-tino-livramento-newcastle-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/21/arts/television/jimmy-kimmel-trump-abc.html
 **As San Siro begins long goodbye, Barcelona goes home**\
 `With the San Siro stadium facing demolition, each remaining derby at the old venue will be tinged with nostaglia.`\
 https://nytimes.com/athletic/6825260/2025/11/21/as-san-siro-begins-long-goodbye-barcelona-goes-home/
-
-**Word of the Day: arid**\
-`This word has appeared in 113 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/11/21/learning/word-of-the-day-arid.html
 
