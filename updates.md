@@ -1,3 +1,7 @@
+**Week 12 fantasy football intel, predictions using player prop lines**\
+`Brad Evans scours sportsbooks to find intel that applies to fantasy football. This week he likes Brock Purdy, Darnell Mooney and more.`\
+https://nytimes.com/athletic/6823898/2025/11/21/week-12-fantasy-football-intel-predictions-player-prop-lines/
+
 **The fast and the furious: How brute pace sparked opening Test of The Ashes**\
 `An astonishing day in Perth saw 19 wickets fall as batters crumpled in the face of breathless pace on the quickest track in world cricket`\
 https://nytimes.com/athletic/6825825/2025/11/21/ashes-australia-england-perth-pace-starc-stokes-archer-wood/
