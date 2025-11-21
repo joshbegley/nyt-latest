@@ -34,7 +34,3 @@ https://nytimes.com/2025/11/21/books/review/podcast-award-season.html
 `Matos still has to finalise the deal but it is now in the final stages, with an agreement close.`\
 https://nytimes.com/athletic/6819950/2025/11/21/vitor-matos-swansea-head-coach-appointment/
 
-**Bishop Arts District, an Eclectic Dallas Enclave**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/real-estate-guide-bishop-arts-district-dallas
-
