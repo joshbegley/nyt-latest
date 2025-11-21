@@ -1,3 +1,11 @@
+**The Most Exclusive Club in Town Is Inside a Sports Stadium**\
+`Sports arenas across the country are opening members-only spaces for high-net-worth fans to mix business and pleasure.`\
+https://nytimes.com/2025/11/21/realestate/sports-stadium-nightlife-citi-field-barclays-capital-one-arena.html
+
+**College football best bets Week 13: Upset watch for Georgia Tech and BYU**\
+`Georgia Tech and BYU are both in tight games on paper on Saturday. Austin Mock has bets bets in both games.`\
+https://nytimes.com/athletic/6826357/2025/11/21/college-football-best-bets-week-13-georgia-tech-byu/
+
 **Amid fresh criticism, does Carlos Mendoza have a bullpen problem?**\
 `An ex-Mets reliever publicly questioned the manager's usage and communication skills, but a former manager called that "just wrong."`\
 https://nytimes.com/athletic/6826569/2025/11/21/mets-mendoza-bullpen-adam-ottavino/
@@ -25,16 +33,4 @@ https://nytimes.com/athletic/6826585/2025/11/21/nhl-mailbag-contenders-trades-ol
 **Al Rockoff’s War Is Still Being Fought**\
 `Rockoff, who risked his life to photograph the brutality of the Khmer Rouge, has struggled ever since. Now he says his historic negatives have been taken from him.`\
 https://nytimes.com/2025/11/21/arts/design/al-rockoff-war-photography-killing-fields.html
-
-**Review: Even With Olga Smirnova, Dutch National Ballet Falters**\
-`For its season at New York City Center, its first major engagement here in years, the company disappoints with mediocre repertory.`\
-https://nytimes.com/2025/11/21/arts/dance/review-dutch-national-ballet-olga-smirnova.html
-
-**China Offers Panda Totes, but No New Commitments, at Climate Talks**\
-`The United States has retreated on climate. China, the only superpower at COP30 and the world leader in clean energy, is not filling the void.`\
-https://nytimes.com/2025/11/21/climate/china-climate-leadership-belem-cop30.html
-
-**How to watch Blackhawks vs. Sabres: Time, TV, streaming**\
-`Find out how to watch the Chicago Blackhawks play the Buffalo Sabres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6826584/2025/11/21/blackhawks-vs-sabres-stream-how-to-watch-nov-21/
 
