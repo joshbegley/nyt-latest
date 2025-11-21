@@ -1,3 +1,5 @@
+
+
 **Satellite Data Reveals How the U.S. Navy Is Deployed Near Venezuela**\
 `The Times identified nearly 100 locations traversed by naval vessels across a two-and-a-half-month period to determine what the military pressure campaign against Venezuela looks like at sea.`\
 https://nytimes.com/2025/11/21/world/americas/us-navy-venezuela-satellite-data.html
