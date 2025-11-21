@@ -1,3 +1,15 @@
+**Thousands of French Brands Sue Shein, Accusing It of Unfair Competition**\
+`The class-action lawsuit is the latest push against the Chinese retailer in France, where protests outside its first store broke out earlier this month.`\
+https://nytimes.com/2025/11/21/business/french-brands-sue-shein.html
+
+**Steelers' Aaron Rodgers questionable vs. Bears after wrist injury**\
+`If the Steelers and Rodgers determine he’s not able to play Sunday, Mason Rudolph would be in line to start.`\
+https://nytimes.com/athletic/6826936/2025/11/21/aaron-rodgers-injury-update-status-steelers-bears/
+
+**Kennedy Says He Told C.D.C. to Change Website’s Language on Autism and Vaccines**\
+`In an interview, Health Secretary Robert F. Kennedy Jr. cited gaps in vaccine safety research. His critics say he is ignoring a larger point: Vaccines save lives.`\
+https://nytimes.com/2025/11/21/us/politics/rfk-jr-cdc-vaccines-autism-website.html
+
 **The 11.23.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/11/21/the-112325-issue
