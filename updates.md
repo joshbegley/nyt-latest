@@ -1,3 +1,7 @@
+**Sam LaPorta has ' very slim' chance of return this season, Dan Campbell says**\
+`LaPorta was putting together another strong season before his injury with 40 receptions for 489 yards.`\
+https://nytimes.com/athletic/6826823/2025/11/21/lions-sam-laporta-back-season/
+
 **A Colossal, Hidden Pile of Trash Ignites Outcry in Britain**\
 `The discovery of a mountain of garbage near a highway is the latest example of what experts say is a growing problem of criminal organizations profiting from illegal dumping.`\
 https://nytimes.com/2025/11/21/world/europe/trash-britain-illegal-dumping.html
