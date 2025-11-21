@@ -1,3 +1,15 @@
+**Trump’s National Guard Blunder**\
+`A brief history of the National Guard in Washington.`\
+https://nytimes.com/video/opinion/100000010537060/trumps-national-guard-blunder.html
+
+**Secret to Decode C.I.A. Kryptos Sculpture Sold at Auction for $770,000**\
+`The encoded panels’ creator, Jim Sanborn, sought to unburden himself of the puzzle, and then discovered he had archived its solution in the Smithsonian.`\
+https://nytimes.com/2025/11/20/science/kryptos-cia-auction-sculpture.html
+
+**Jesse Buss opens up on feeling like the Lakers treated him as 'an enemy'**\
+`The Lakers' part-owner and now-fired director of scouting discusses his final years with the franchise and his future.`\
+https://nytimes.com/athletic/6824483/2025/11/20/lakers-jesse-buss-fired-jeanie-mark-walter/
+
 **Secret to Decode C.I.A. Kryptos Sculpture Sold at Auction for $770,000**\
 `The encoded panels’ creator, Jim Sanborn, sought to unburden himself of the puzzle, and then discovered he had archived its solution in the Smithsonian.`\
 https://nytimes.com/2025/11/20/science/krytos-cia-auction-sculpture.html
