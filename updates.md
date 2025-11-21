@@ -1,3 +1,7 @@
+**Trump to Hold Two Fund-Raisers for His Super PAC Next Year**\
+`A ticket will cost $1 million at each event.`\
+https://nytimes.com/2025/11/21/us/politics/trump-super-pac-fundraisers.html
+
 **Paramount's game-changing Champions League deal: What does it mean for fans? What happens to TNT?**\
 `Why has Paramount gone for these rights? How much does it charge? What about Amazon? Will it show CBS coverage? How will TNT cope?`\
 https://nytimes.com/athletic/6826588/2025/11/21/paramount-champions-league-rights-tnt/
