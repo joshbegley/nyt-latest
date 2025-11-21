@@ -1,3 +1,11 @@
+**Satellite Data Reveals How the U.S. Navy Is Deployed Near Venezuela**\
+`The Times identified nearly 100 locations traversed by naval vessels across a two-and-a-half-month period to determine what the military pressure campaign against Venezuela looks like at sea.`\
+https://nytimes.com/2025/11/21/world/americas/us-navy-venezuela-satellite-data.html
+
+**Arsenal to make late Calafiori call for north London derby**\
+`Calafiori travelled with Italy’s national team this month, but withdrew over the weekend.`\
+https://nytimes.com/athletic/6826301/2025/11/21/riccardo-calafiori-arsenal-team-news/
+
 **We Asked Roblox’s C.E.O. About Child Safety. It Got Tense.**\
 `This week the company announced that it would require users to undergo an A.I.-powered age estimation process in order to chat with others on the platform. Will this change reassure parents?`\
 https://nytimes.com/video/podcasts/100000010538468/we-asked-robloxs-ceo-about-child-safety-it-got-tense.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6826315/2025/11/21/rob-edwards-wolves-head-coach/
 **Top Fed Official Boosts Odds of a December Rate Cut**\
 `John C. Williams, president of the Federal Reserve Bank of New York, said the central bank had scope to lower borrowing costs ‘in the near term.’`\
 https://nytimes.com/2025/11/21/business/fed-interest-rates-inflation-jobs.html
-
-**Eurovision Tightens Voting Rules to Tamp Down on Government Influence**\
-`In this year’s contest, a campaign by Israel to encourage voting for its entrant drew criticism.`\
-https://nytimes.com/2025/11/21/arts/eurovision-voting-rules-israel.html
-
-**Fondant Sweet Potatoes With Honey Butter and Halvah**\
-`With its savory sesame flavor and candy sweetness, the halvah crumbles on top of these fondant sweet potatoes elevate this dish to a chic, grown-up version of sweet potato casserole.`\
-https://nytimes.com/video/admin/100000010523066/fondant-sweet-potatoes-with-honey-butter-and-halvah.html
 
