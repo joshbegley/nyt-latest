@@ -1,3 +1,11 @@
+**Reed Sheppard is thinking less and shooting more. That's a great thing for the Rockets**\
+`Sheppard is Houston's only true point guard on the roster. After barely playing as a rookie, he's developing into an important "spark plug."`\
+https://nytimes.com/athletic/6825731/2025/11/21/reed-sheppard-rockets-improvement-experience/
+
+**Semenyo a doubt for West Ham game, Iraola ‘not worried’ about his future**\
+`The 25-year-old Ghanaian has a release clause of £65m for the upcoming winter transfer window.`\
+https://nytimes.com/athletic/6826053/2025/11/21/antoine-semenyo-injury-bournemouth-transfer/
+
 **How to watch Wisconsin vs. BYU men's basketball: Time, TV, streaming**\
 `Find out how to watch the Wisconsin Badgers play the BYU Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6826161/2025/11/21/wisconsin-vs-byu-stream-how-to-watch-nov-21/
