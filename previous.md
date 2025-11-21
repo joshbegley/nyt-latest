@@ -1,3 +1,7 @@
+**The 11.23.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/11/21/the-112325-issue
+
 **A Colossal, Hidden Pile of Trash Ignites Outcry in Britain**\
 `The discovery of a mountain of garbage near a highway is the latest example of what experts say is a growing problem of criminal organizations profiting from illegal dumping.`\
 https://nytimes.com/2025/11/21/world/europe/trash-britain-illegal-dumping.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/21/opinion/russia-ukraine.html
 **Trump to Hold Two Fund-Raisers for His Super PAC Next Year**\
 `A ticket will cost $1 million at each event.`\
 https://nytimes.com/2025/11/21/us/politics/trump-super-pac-fundraisers.html
-
-**Memphis**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/things-to-do-memphis
 

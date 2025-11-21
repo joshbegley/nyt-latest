@@ -1,3 +1,7 @@
+**The 11.23.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/11/21/the-112325-issue
+
 **Sam LaPorta has ' very slim' chance of return this season, Dan Campbell says**\
 `LaPorta was putting together another strong season before his injury with 40 receptions for 489 yards.`\
 https://nytimes.com/athletic/6826823/2025/11/21/lions-sam-laporta-back-season/
