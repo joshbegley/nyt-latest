@@ -1,3 +1,19 @@
+**TAFC: Bielsa's 'El Loco' side unleashed again. Plus: Inside the Jamaica crisis**\
+`Why is the Uruguay manager feeling the strain? And the Premier League is back – can Liverpool turn around their title defence?`\
+https://nytimes.com/athletic/6825970/2025/11/21/marcelo-bielsa-uruguay-jamaica-tafc/
+
+**Celtics coach Joe Mazzulla on concept of fun: ‘Don’t know what it means’**\
+`"I can make anything miserable because I don't see the joy side of it," says Mazzulla. `\
+https://nytimes.com/athletic/6825192/2025/11/21/celtics-coach-joe-mazzulla-no-fun/
+
+**Is President Trump’s Power Over the Republican Party Waning?**\
+`Some members of the party are defying him.`\
+https://nytimes.com/2025/11/21/briefing/is-president-trumps-power-over-the-republican-party-waning.html
+
+**Premier League clubs vote to change financial rules from next season**\
+`The clubs voted to introduce the squad cost ratio but not top to bottom anchoring at a meeting in London on Friday.`\
+https://nytimes.com/athletic/6822838/2025/11/21/premier-league-scr-anchoring-financial-rules/
+
 **How Daniel Jones, Colts can eliminate recent turnover issues in showdown with Chiefs**\
 `Jones has been intercepted four times and fumbled six times, losing three, in his last two starts.`\
 https://nytimes.com/athletic/6822629/2025/11/21/daniel-jones-turnovers-colts-chiefs/
