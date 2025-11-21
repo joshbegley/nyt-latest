@@ -1,3 +1,11 @@
+**The Most Exclusive Club in Town Is Inside a Sports Stadium**\
+`Sports arenas across the country are opening members-only spaces for high-net-worth fans to mix business and pleasure.`\
+https://nytimes.com/2025/11/21/realestate/sports-stadium-nightlife-citi-field-barclays-capital-one-arena.html
+
+**College football best bets Week 13: Upset watch for Georgia Tech and BYU**\
+`Georgia Tech and BYU are both in tight games on paper on Saturday. Austin Mock has bets bets in both games.`\
+https://nytimes.com/athletic/6826357/2025/11/21/college-football-best-bets-week-13-georgia-tech-byu/
+
 **Amid fresh criticism, does Carlos Mendoza have a bullpen problem?**\
 `An ex-Mets reliever publicly questioned the manager's usage and communication skills, but a former manager called that "just wrong."`\
 https://nytimes.com/athletic/6826569/2025/11/21/mets-mendoza-bullpen-adam-ottavino/
