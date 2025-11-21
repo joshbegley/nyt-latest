@@ -1,3 +1,7 @@
+**Trump and Mamdani to Meet at the White House**\
+`President Trump and Zohran Mamdani, the mayor-elect of New York City, were expected to meet on Friday at the White House. The meeting comes after months of trading insults.`\
+https://nytimes.com/video/world/americas/100000010537125/mamdani-trump-meeting.html
+
 **Australia Adds Twitch to Social Media Ban for Teens**\
 `Twitch, a livestreaming service popular with gamers, joins nine other platforms that will be required to remove Australian users under the age of 16.`\
 https://nytimes.com/2025/11/20/world/australia/twitch-australia-social-media-ban.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/20/theater/two-strangers-carry-cake-review.html
 **Ready to Drop**\
 `Joyce Keller makes her New York Times Crossword debut.`\
 https://nytimes.com/2025/11/20/crosswords/daily-puzzle-2025-11-20.html
-
-**Anxiety Over A.I. Spending Returns to Global Markets**\
-`A sharp reversal in Asian stocks, after a rally fueled by Nvidia’s strong earnings, underscores how fears of an A.I. bubble are driving broad market swings.`\
-https://nytimes.com/2025/11/20/business/stocks-ai-global.html
 
