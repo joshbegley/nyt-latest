@@ -1,3 +1,15 @@
+**Without Giannis, Bucks must fix 'little things' before they become a big problem**\
+`Milwaukee fell in overtime, but the final three possessions in the fourth quarter played a major role in a third-straight loss.`\
+https://nytimes.com/athletic/6825859/2025/11/21/sixers-bucks-giannis-nba/
+
+**South Africans Seize on Global Summit to Air Their Nation’s Ills**\
+`Johannesburg this weekend will host the first G20 meeting on African soil. Protesters are using the moment to draw attention to domestic problems.`\
+https://nytimes.com/2025/11/21/world/africa/south-africa-g20-protests.html
+
+**Collard Greens**\
+`Collard greens, a staple of Southern cuisine, are often cooked down with smoked turkey or pork neck bones. The greens form a potlikker, or broth, full of briny, smoky flavor.`\
+https://nytimes.com/video/dining/100000010522988/collard-greens.html
+
 **White House Defends Trump’s ‘Quiet, Piggy’ Remark to Reporter**\
 `The White House press secretary defended President Trump’s “frankness” a week after he said “Quiet, piggy” to a Bloomberg News reporter asking about Jeffrey Epstein’s emails.`\
 https://nytimes.com/video/us/politics/100000010538303/trump-leavitt-reporter-piggy.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/21/us/los-angles-olympics-naming-rights.html
 **Buying a House Is Expensive. But There Are Some Ways to Rein In Costs.**\
 `The Trump administration has proposed 50-year and “portable” mortgages to make home buying more affordable. But housing experts offer other suggestions.`\
 https://nytimes.com/2025/11/21/your-money/housing-costs-mortgages.html
-
-**Week 12 fantasy football intel, predictions using player prop lines**\
-`Brad Evans scours sportsbooks to find intel that applies to fantasy football. This week he likes Brock Purdy, Darnell Mooney and more.`\
-https://nytimes.com/athletic/6823898/2025/11/21/week-12-fantasy-football-intel-predictions-player-prop-lines/
-
-**The fast and the furious: How brute pace sparked opening Test of The Ashes**\
-`An astonishing day in Perth saw 19 wickets fall as batters crumpled in the face of breathless pace on the quickest track in world cricket`\
-https://nytimes.com/athletic/6825825/2025/11/21/ashes-australia-england-perth-pace-starc-stokes-archer-wood/
-
-**Reed Sheppard is thinking less and shooting more. That's a great thing for the Rockets**\
-`Sheppard is Houston's only true point guard on the roster. After barely playing as a rookie, he's developing into an important "spark plug."`\
-https://nytimes.com/athletic/6825731/2025/11/21/reed-sheppard-rockets-improvement-experience/
 
