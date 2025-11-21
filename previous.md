@@ -1,3 +1,7 @@
+**'I'm toxic' - breaking down Bielsa's extraordinary 105-minute press conference**\
+`This was the Uruguay manager like we have never seen him before, setting out why he intends to lead the team to the 2026 World Cup`\
+https://nytimes.com/athletic/6825271/2025/11/21/marcelo-bielsa-toxic-press-conference/
+
 **To the Castle**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2025/11/21/learning/to-the-castle.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/21/learning/word-of-the-day-arid.html
 **Why Are Young Men Embracing the Quarter-Zip Lifestyle?**\
 `How one of the stodgiest garments in the Western wardrobe caught on with the Nike Tech crowd.`\
 https://nytimes.com/2025/11/21/style/quarter-zip-sweater-men-tiktok.html
-
-**The New York Times in Print for Friday, Nov. 21, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/11/21/todays-new-york-times
 

@@ -1,3 +1,7 @@
+**'I'm toxic' - breaking down Bielsa's extraordinary 105-minute press conference**\
+`This was the Uruguay manager like we have never seen him before, setting out why he intends to lead the team to the 2026 World Cup`\
+https://nytimes.com/athletic/6825271/2025/11/21/marcelo-bielsa-toxic-press-conference/
+
 **To the Castle**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2025/11/21/learning/to-the-castle.html
