@@ -1,3 +1,7 @@
+**Trump’s National Guard Blunder**\
+`A brief history of the National Guard in Washington.`\
+https://nytimes.com/video/opinion/100000010537060/trumps-national-guard-blunder.html
+
 **Can the Right Confront Antisemitism in Its Ranks?**\
 `Why is it so hard for the right to draw a boundary at antisemitism in its coalition? According to Yoram Hazony, an Israeli political theorist, it’s because the group wasn’t prepared to navigate the “explosion” of antisemitism.`\
 https://nytimes.com/video/opinion/100000010529017/can-the-right-confront-antisemitism-in-its-ranks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6824861/2025/11/20/nfl-playoff-picture-2025-week-12
 **Frida Kahlo Portrait Sells for $55 Million, Setting Her Auction Record**\
 `The surrealistic self-portrait was made in 1940, a turbulent year in the Mexican artist’s life as her health and marriage deteriorated.`\
 https://nytimes.com/2025/11/20/arts/design/kahlo-portrait-auction-art-sothebys.html
-
-**Hundreds of Invasive Goldfish to Be Culled From Ottawa Pond**\
-`Thousands washed ashore dead in the spring, but the fish are back. “They’re pretty hard to kill,” a biology professor said.`\
-https://nytimes.com/2025/11/20/world/canada/ottawa-pond-goldfish.html
 
