@@ -1,3 +1,7 @@
+**Will any Carolina Hurricanes be considered for NHL awards this season?**\
+`Carolina is one of the top teams in the NHL, but will any players get individual recognition?`\
+https://nytimes.com/athletic/6825375/2025/11/21/carolina-hurricanes-calder-selke/
+
 **The Clippers look old and slow, and other teams know it**\
 `"It's hard for those guys to keep up," Jalen Suggs said after the Magic became the latest team to run circles around the Clippers. `\
 https://nytimes.com/athletic/6825483/2025/11/21/clippers-old-slow-issues-kawhi-leonard/

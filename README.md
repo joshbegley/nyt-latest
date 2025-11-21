@@ -1,3 +1,19 @@
+**Red Light: What's behind the NHL's injury explosion?**\
+`Plus: Everything you need to know as the PWHL season begins.`\
+https://nytimes.com/athletic/6826430/2025/11/21/nhl-injuries-man-games-lost-2025-26-season/
+
+**The Bounce: Don't stop believin' in the Pistons. Plus, the NBA Cup gets dramatic**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6826387/2025/11/21/the-bounce-pistons-east-nba-cup/
+
+**At Least 52 Kidnapped From Nigeria School in Second Mass Abduction This Week**\
+`Students and teachers were taken captive from a Catholic school in the latest in a wave of such attacks in the country.`\
+https://nytimes.com/2025/11/21/world/africa/nigeria-school-abduction.html
+
+**Turkey Stuffing Meatballs**\
+`The classic combo of turkey and stuffing, all rolled into one. These turkey meatballs use cubed bread as their binder. The bread is joined by olive oil, chicken stock, minced vegetables and seasonings to make them extra moist and flavorful.`\
+https://nytimes.com/video/dining/100000010523248/turkey-stuffing-meatballs.html
+
 **Will any Carolina Hurricanes be considered for NHL awards this season?**\
 `Carolina is one of the top teams in the NHL, but will any players get individual recognition?`\
 https://nytimes.com/athletic/6825375/2025/11/21/carolina-hurricanes-calder-selke/
@@ -21,20 +37,4 @@ https://nytimes.com/video/dining/100000010523099/marshmallow-pecan-sweet-potato-
 **Scallion-Miso Mac and Cheese**\
 `This cozy creamy baked pasta has a unique miso-laden béchamel base and a buttery, crushed Ritz cracker and scallion topping. The triple-cheese sauce combines sharp Cheddar, tangy Gruyère and nutty Parmesan, but feel free to use all Cheddar, if preferred.`\
 https://nytimes.com/video/dining/100000010523237/scallion-miso-mac-and-cheese.html
-
-**Satellite Data Reveals How the U.S. Navy Is Deployed Near Venezuela**\
-`The Times identified nearly 100 locations traversed by naval vessels across a two-and-a-half-month period to determine what the military pressure campaign against Venezuela looks like at sea.`\
-https://nytimes.com/2025/11/21/world/americas/us-navy-venezuela-satellite-data.html
-
-**Arsenal to make late Calafiori call for north London derby**\
-`Calafiori travelled with Italy’s national team this month, but withdrew over the weekend.`\
-https://nytimes.com/athletic/6826301/2025/11/21/riccardo-calafiori-arsenal-team-news/
-
-**We Asked Roblox’s C.E.O. About Child Safety. It Got Tense.**\
-`This week the company announced that it would require users to undergo an A.I.-powered age estimation process in order to chat with others on the platform. Will this change reassure parents?`\
-https://nytimes.com/video/podcasts/100000010538468/we-asked-robloxs-ceo-about-child-safety-it-got-tense.html
-
-**Commanders raising some 2026 season ticket prices despite disappointing 2025 campaign**\
-`While some seats won't see increases, on average, Commanders season tickets will jump $17.32 per month on annual plans.`\
-https://nytimes.com/athletic/6824069/2025/11/21/commanders-season-ticket-price-increase-2026/
 

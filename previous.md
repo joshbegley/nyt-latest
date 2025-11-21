@@ -1,3 +1,7 @@
+**Will any Carolina Hurricanes be considered for NHL awards this season?**\
+`Carolina is one of the top teams in the NHL, but will any players get individual recognition?`\
+https://nytimes.com/athletic/6825375/2025/11/21/carolina-hurricanes-calder-selke/
+
 **The Clippers look old and slow, and other teams know it**\
 `"It's hard for those guys to keep up," Jalen Suggs said after the Magic became the latest team to run circles around the Clippers. `\
 https://nytimes.com/athletic/6825483/2025/11/21/clippers-old-slow-issues-kawhi-leonard/
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000010538468/we-asked-robloxs-ceo-about-ch
 **Commanders raising some 2026 season ticket prices despite disappointing 2025 campaign**\
 `While some seats won't see increases, on average, Commanders season tickets will jump $17.32 per month on annual plans.`\
 https://nytimes.com/athletic/6824069/2025/11/21/commanders-season-ticket-price-increase-2026/
-
-**MLS is changing its calendar to align with the global game. Should NWSL do the same?**\
-`Eleven of the 16 NWSL teams in 2026 share venues with MLS teams. `\
-https://nytimes.com/athletic/6822200/2025/11/21/mls-calendar-change-nwsl-soccer/
 
