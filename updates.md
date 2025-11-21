@@ -1,3 +1,19 @@
+**‘Initiative’ Review: High School as an Epic Struggle**\
+`A new production at the Public Theater takes up five hours of stage time to tell the story of a group of friends from their first day to graduation.`\
+https://nytimes.com/2025/11/21/theater/initiative-review-else-went.html
+
+**Kansas freshman Darryn Peterson to miss three games with hamstring injury**\
+`Peterson has already missed three games and has not played since KU’s Nov. 7 loss at North Carolina.`\
+https://nytimes.com/athletic/6827297/2025/11/21/kansas-darryn-peterson-out-hamstring-injury/
+
+**Former champion Gennadiy Golovkin to lead World Boxing ahead of 2028 Olympics**\
+`Golovkin is set to assume the presidency of the organization Sunday in Rome.`\
+https://nytimes.com/athletic/6827198/2025/11/21/gennadiy-golovkin-world-boxing-2028-olympics/
+
+**Eli Lilly Reaches $1 Trillion in Value, Buoyed by Demand for Its Weight Loss Drugs**\
+`The 150-year-old drugmaker is the first company in health care to hit the milestone.`\
+https://nytimes.com/2025/11/21/health/eli-lilly-one-trillion-value-pharmaceuticals.html
+
 **Dru Joyce II, Joyce III reminisce about LeBron James, "Fab Five" days**\
 `Duquesne has been playing an annual game in Akron since 2018, a tradition started by former head coach and Akron native Keith Dambrot.`\
 https://nytimes.com/athletic/6826056/2025/11/21/duquesne-st-vincent-st-mary-game/
