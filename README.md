@@ -1,3 +1,19 @@
+**At 80, This Composer Is Easier Than Ever to Celebrate**\
+`With new releases and concerts, Anthony Braxton’s output as an artist and thinker is quickly available for longtime fans and initiates alike.`\
+https://nytimes.com/2025/11/21/arts/music/anthony-braxton-80th-birthday.html
+
+**Ooey, Gooey Chocolate Brownies From a Box? Yes. We Found the Best.**\
+`Text by Antara Sinha`\
+https://nytimes.com/card/2025/11/21/smarter-living/wirecutter/
+
+**Pochettino, USMNT believe they can beat anyone at the World Cup. They may be right.**\
+`After undergoing adversity and turning to an expanded group of players to reset the culture, the USMNT finally feels ready for a World Cup`\
+https://nytimes.com/athletic/6826912/2025/11/21/mauricio-pochettino-usmnt-world-cup-outlook/
+
+**F. Murray Abraham**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/f-murray-abraham-home-tour
+
 **In New Video, Sean Duffy Tells Passengers to Dress Up and Be Nice**\
 `The secretary of transportation kicked off a new civility campaign on Wednesday called “The Golden Age of Travel Starts With You.”`\
 https://nytimes.com/2025/11/21/travel/sean-duffy-airlines-manners-video.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/11/21/business/french-brands-sue-shein.html
 **Steelers' Aaron Rodgers questionable vs. Bears after wrist injury**\
 `If the Steelers and Rodgers determine he’s not able to play Sunday, Mason Rudolph would be in line to start.`\
 https://nytimes.com/athletic/6826936/2025/11/21/aaron-rodgers-injury-update-status-steelers-bears/
-
-**Kennedy Says He Told C.D.C. to Change Website’s Language on Autism and Vaccines**\
-`In an interview, Health Secretary Robert F. Kennedy Jr. cited gaps in vaccine safety research. His critics say he is ignoring a larger point: Vaccines save lives.`\
-https://nytimes.com/2025/11/21/us/politics/rfk-jr-cdc-vaccines-autism-website.html
-
-**The 11.23.25 Issue**\
-``\
-https://nytimes.com/issue/magazine/2025/11/21/the-112325-issue
-
-**A Colossal, Hidden Pile of Trash Ignites Outcry in Britain**\
-`The discovery of a mountain of garbage near a highway is the latest example of what experts say is a growing problem of criminal organizations profiting from illegal dumping.`\
-https://nytimes.com/2025/11/21/world/europe/trash-britain-illegal-dumping.html
-
-**Large Pile of Illegally Dumped Trash Discovered Near English Village**\
-`A mountain of rubbish was found next to a highway in the English countryside, prompting residents and British officials alike to wonder how “fly-tipping,” or illegal dumping, on this scale could have gone undetected.`\
-https://nytimes.com/video/world/europe/100000010538904/trash-pile-england-illegal.html
 
