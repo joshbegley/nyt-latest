@@ -1,3 +1,7 @@
+**Connor Bedard's unsportsmanlike penalty leads to Blackhawk loss: 'It better have been really personal'**\
+`Bedard's anger against the Kraken on Thursday may have been justified, but it still got him into trouble.`\
+https://nytimes.com/athletic/6825214/2025/11/21/it-better-have-been-really-personal-connor-bedards-unsportsmanlike-penalty-leads-to-blackhawk-loss/
+
 **Referee injured in Texans-Bills 'Thursday Night Football' game**\
 `Referee Adrian Hill was injured in the third quarter of the Texans' 23-19 win against the Bills.`\
 https://nytimes.com/athletic/6825406/2025/11/21/houston-texans-buffalo-bills-referee-injured-thursday-night-football/

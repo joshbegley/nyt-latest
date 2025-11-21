@@ -1,3 +1,15 @@
+**Why Are Young Men Embracing the Quarter-Zip Lifestyle?**\
+`How one of the stodgiest garments in the Western wardrobe caught on with the Nike Tech crowd.`\
+https://nytimes.com/2025/11/21/style/quarter-zip-sweater-men-tiktok.html
+
+**The New York Times in Print for Friday, Nov. 21, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/21/todays-new-york-times
+
+**I’m in Venezuela. This Is the True Cost of Trump’s Gunboat Diplomacy.**\
+`Trump’s show of force toward Venezuela has created a disastrous political trap — for Venezuelans most of all.`\
+https://nytimes.com/2025/11/21/opinion/venezuela-trump-maduro-machado-regime-change.html
+
 **Referee injured in Texans-Bills 'Thursday Night Football' game**\
 `Referee Adrian Hill was injured in the third quarter of the Texans' 23-19 win against the Bills.`\
 https://nytimes.com/athletic/6825406/2025/11/21/houston-texans-buffalo-bills-referee-injured-thursday-night-football/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6797344/2025/11/21/manchester-city-full-back-switch
 **Connor Bedard's unsportsmanlike penalty leads to Blackhawk loss: 'It better have been really personal'**\
 `Bedard's anger against the Kraken on Thursday may have been justified, but it still got him into trouble.`\
 https://nytimes.com/athletic/6825214/2025/11/21/it-better-have-been-really-personal-connor-bedards-unsportsmanlike-penalty-leads-to-blackhawk-loss/
-
-**Who can Chelsea rotate in for Caicedo with Lavia and Essugo out?**\
-`Enzo Maresca does not have any obvious orthodox backup options for his key midfielder, but there are players who can feature in his place`\
-https://nytimes.com/athletic/6820853/2025/11/21/moises-caicedo-chelsea-rotation-analysis/
-
-**Kroupi is a striker West Ham wanted - and he's showing exactly why with Bournemouth**\
-`West Ham tried to sign the French teenager in last season's winter window before he moved to Saturday opponents Bournemouth`\
-https://nytimes.com/athletic/6820546/2025/11/21/eli-junior-kroupi-west-ham-transfer/
-
-**Fantasy Premier League: How to cope with Gabriel's injury**\
-`The Brazil international faces at least a month out of Premier League action - but that does not automatically mean you should sell him now`\
-https://nytimes.com/athletic/6819684/2025/11/21/fantasy-premier-league-fpl-tips-gabriel-arsenal/
 
