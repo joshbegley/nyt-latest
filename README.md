@@ -1,3 +1,15 @@
+**We Asked Roblox’s C.E.O. About Child Safety. It Got Tense.**\
+`The company announced this week that it would require users to undergo an age-estimation process powered by A.I. in order to chat with others on the platform. Will this change reassure parents?`\
+https://nytimes.com/video/podcasts/100000010536917/we-asked-robloxs-ceo-about-child-safety-it-got-tense.html
+
+**Flames' Samuel Honzek out for up to six months after upper-body surgery**\
+`Honzek was drafted 16th overall by Calgary in the 2023 NHL Draft. In 18 games this season, Honzek scored two goals and four points.`\
+https://nytimes.com/athletic/6827031/2025/11/21/flames-samuel-honzek-injury/
+
+**Messi playing for Spain? Meet the coach who says he kept him home in Argentina**\
+`Argentina’s former coach recalled how he took decisive action to prevent Messi from playing for Spain.`\
+https://nytimes.com/athletic/6826808/2025/11/21/messi-argentina-u20-world-cup-spain-jose-pekerman/
+
 **College football Week 13 projected scores: Model predicts every game**\
 `Austin Mock's projection model takes a look at every Week 13 game between FBS teams.`\
 https://nytimes.com/athletic/6827059/2025/11/21/college-football-week-13-projected-scores-model/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6827020/2025/11/21/new-york-liberty-warriors-chris-
 **The U.S. Tightens the Vise on an Already Besieged Zelensky**\
 `The Ukrainian president’s options are narrowing as he is confronted with a 28-point proposal drafted by American and Russian envoys.`\
 https://nytimes.com/2025/11/21/world/europe/ukraine-russia-us-peace-plan.html
-
-**Instant classics: USC’s 3OT buzzer-beater joins list of marathon games**\
-`USC's 3OT win over Troy was just another example of countless overtime classics throughout college basketball's history `\
-https://nytimes.com/athletic/6826978/2025/11/21/usc-troy-overtime-marathon-college-basketball/
-
-**At 80, This Composer Is Easier Than Ever to Celebrate**\
-`With new releases and concerts, Anthony Braxton’s output as an artist and thinker is quickly available for longtime fans and initiates alike.`\
-https://nytimes.com/2025/11/21/arts/music/anthony-braxton-80th-birthday.html
-
-**Ooey, Gooey Chocolate Brownies From a Box? Yes. We Found the Best.**\
-`Text by Antara Sinha`\
-https://nytimes.com/card/2025/11/21/smarter-living/wirecutter/
 

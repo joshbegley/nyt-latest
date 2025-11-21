@@ -1,3 +1,15 @@
+**College football Week 13 projected scores: Model predicts every game**\
+`Austin Mock's projection model takes a look at every Week 13 game between FBS teams.`\
+https://nytimes.com/athletic/6827059/2025/11/21/college-football-week-13-projected-scores-model/
+
+**gws-koh-lan-island-thailand**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/koh-lan-island-thailand
+
+**Zelensky Faces a ‘Difficult Choice’ With Trump’s Proposed Plan**\
+`The Trump administration has proposed a 28-point peace plan designed to end the Russia-Ukraine war. President Volodymyr Zelensky of Ukraine said that his country was facing a “difficult choice.”`\
+https://nytimes.com/video/world/europe/100000010538871/ukraine-russia-trump-peace-plan.html
+
 **Zelensky Faces a ‘Difficult Choice’ with Trump’s Proposed Plan**\
 `The Trump administration has proposed a 28-point peace plan designed to end the Russia-Ukraine war. President Volodymyr Zelensky of Ukraine said that his country was facing a “difficult choice.”`\
 https://nytimes.com/video/world/europe/100000010538871/ukraine-russia-trump-peace-plan.html
