@@ -1,3 +1,11 @@
+**Broncos mailbag: Submit your questions for beat writer Nick Kosmider**\
+`Let us know what's on your mind on the Broncos' bye week as they ride their longest winning streak since 2012.`\
+https://nytimes.com/athletic/6826343/2025/11/21/broncos-mailbag-request-bye-week/
+
+**French Ideas, Made in the U.S.A.**\
+`The Chicago-born curator Naomi Beckwith has been given free rein at the Palais de Tokyo to examine how American artists responded to thinkers from France.`\
+https://nytimes.com/2025/11/21/arts/echo-delay-reverb-palais-de-tokyo-paris.html
+
 **Red Light: What's behind the NHL's injury explosion?**\
 `Plus: Everything you need to know as the PWHL season begins.`\
 https://nytimes.com/athletic/6826430/2025/11/21/nhl-injuries-man-games-lost-2025-26-season/

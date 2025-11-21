@@ -1,3 +1,11 @@
+**Broncos mailbag: Submit your questions for beat writer Nick Kosmider**\
+`Let us know what's on your mind on the Broncos' bye week as they ride their longest winning streak since 2012.`\
+https://nytimes.com/athletic/6826343/2025/11/21/broncos-mailbag-request-bye-week/
+
+**French Ideas, Made in the U.S.A.**\
+`The Chicago-born curator Naomi Beckwith has been given free rein at the Palais de Tokyo to examine how American artists responded to thinkers from France.`\
+https://nytimes.com/2025/11/21/arts/echo-delay-reverb-palais-de-tokyo-paris.html
+
 **Red Light: What's behind the NHL's injury explosion?**\
 `Plus: Everything you need to know as the PWHL season begins.`\
 https://nytimes.com/athletic/6826430/2025/11/21/nhl-injuries-man-games-lost-2025-26-season/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6826309/2025/11/21/fantasy-football-week-12-news-bi
 **Cloverleaf Rolls**\
 `A basket of cloverleaf rolls might look humble sitting next to a burnished bird or a crown roast, but don’t underestimate its importance at a meal.`\
 https://nytimes.com/video/dining/100000010522976/cloverleaf-rolls.html
-
-**Marshmallow-Pecan Sweet Potato Casserole**\
-`At last, here is a version of this Thanksgiving casserole that’s not too sweet, thanks to a few smart, simple tricks.`\
-https://nytimes.com/video/dining/100000010523099/marshmallow-pecan-sweet-potato-casserole.html
-
-**Scallion-Miso Mac and Cheese**\
-`This cozy creamy baked pasta has a unique miso-laden béchamel base and a buttery, crushed Ritz cracker and scallion topping. The triple-cheese sauce combines sharp Cheddar, tangy Gruyère and nutty Parmesan, but feel free to use all Cheddar, if preferred.`\
-https://nytimes.com/video/dining/100000010523237/scallion-miso-mac-and-cheese.html
 
