@@ -1,4 +1,4 @@
-**Joe Burrow questionable to play vs. Patriots, Bengals coach says**\
+**Joe Burrow questionable to play vs. Patriots**\
 `Cincinnati is 3-7 on the season and lost seven of eight games in Burrow’s absence.`\
 https://nytimes.com/athletic/6826707/2025/11/21/bengals-joe-burrow-status-patriots/
 
