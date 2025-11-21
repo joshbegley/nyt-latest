@@ -1,3 +1,7 @@
+**Swansea close to naming Matos as head coach after meeting release clause**\
+`Matos still has to finalise the deal but is now in the final stages with an agreement close.`\
+https://nytimes.com/athletic/6819950/2025/11/21/vitor-matos-swansea-head-coach-appointment/
+
 **Bishop Arts District, an Eclectic Dallas Enclave**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/real-estate-guide-bishop-arts-district-dallas
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6827175/2025/11/21/pelicans-vs-mavericks-stream-how
 **How to watch Nets vs. Celtics: Time, TV, streaming**\
 `Find out how to watch the Brooklyn Nets play the Boston Celtics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6827173/2025/11/21/nets-vs-celtics-stream-how-to-watch-nov-21/
-
-**How to watch Wizards vs. Raptors: Time, TV, streaming**\
-`Find out how to watch the Washington Wizards play the Toronto Raptors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6827171/2025/11/21/wizards-vs-raptors-stream-how-to-watch-nov-21/
 
