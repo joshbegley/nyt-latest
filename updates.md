@@ -1,3 +1,11 @@
+**How Trump’s Electoral Success Helped Fuel Mamdani’s Rise**\
+`In one of his earliest viral videos, Zohran Mamdani asked New Yorkers why they had decided to vote for President Trump. What he heard shaped his campaign.`\
+https://nytimes.com/2025/11/21/nyregion/trump-mamdani-video-bronx.html
+
+**Here’s the latest.**\
+`By Tyler Pager, Emma G. Fitzsimmons and Jeffery C. Mays`\
+https://nytimes.com/live/2025/11/21/us/trump-news/heres-the-latest
+
 **Citizenship Ceremonies Are Back On in Upstate New York After Abrupt Halt**\
 `At least seven counties had been affected by the interruption in celebrations for people who were becoming naturalized citizens.`\
 https://nytimes.com/2025/11/21/nyregion/citizenship-ceremonies-restored-after-cancellation.html
