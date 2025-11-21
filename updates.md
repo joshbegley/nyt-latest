@@ -1,3 +1,11 @@
+**Special Alert: The Pies Are Here!**\
+`We put Sue Li in charge of the pies this year, and she delivered six stunners.`\
+https://nytimes.com/2025/11/20/dining/special-alert-the-pies-are-here.html
+
+**Frida Kahlo Portrait Sells for $55 Million, Setting Her Auction Record**\
+`The surrealistic self-portrait was made in 1940, a turbulent year in the Mexican artist’s life as her health and marriage deteriorated.`\
+https://nytimes.com/2025/11/20/arts/design/kahlo-portrait-auction-art-sothebys.html
+
 **Trump and Mamdani Are Meeting for the First Time. Will They Play Nice?**\
 `Zohran Mamdani, the mayor-elect of New York City, will go to the White House on Friday. The stakes are high for the city.`\
 https://nytimes.com/2025/11/20/nyregion/mamdani-trump-meeting.html

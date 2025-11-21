@@ -1,3 +1,7 @@
+**Qaeda Convict Returns to Guantánamo Court 17 Years After Trial**\
+`The Yemeni prisoner spent nearly seven hours at the war court, displaying some of the defiance of his 2008 proceeding.`\
+https://nytimes.com/2025/11/20/us/politics/al-qaeda-guantanamo-court.html
+
 **Special Alert: The Pies Are Here!**\
 `We put Sue Li in charge of the pies this year, and she delivered six stunners.`\
 https://nytimes.com/2025/11/20/dining/special-alert-the-pies-are-here.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/20/us/politics/judge-trump-washington-grand-juries.h
 **Coast Guard Softens Stance on Hate and Hazing**\
 `A new servicewide policy recasts swastikas and nooses as merely “politically divisive” and deletes protections for transgender troops.`\
 https://nytimes.com/2025/11/20/us/politics/coast-guard-hate-crimes.html
-
-**False accounting case involving Napoli and De Laurentiis referred to trial by Rome judge**\
-`Club president De Laurentiis and Napoli chief executive Andrea Chiavelli were placed under investigation and will stand trial.`\
-https://nytimes.com/athletic/6824417/2025/11/20/napoli-false-accounting-case/
 
