@@ -1,3 +1,7 @@
+**Sam LaPorta has ' very slim' chance of return this season, Dan Campbell says**\
+`LaPorta was putting together another strong season before his injury, tying for fifth in receiving yards and ninth in receptions. `\
+https://nytimes.com/athletic/6826823/2025/11/21/lions-sam-laporta-back-season/
+
 **Paramount's game-changing Champions League deal: What does it mean for fans? What happens to TNT?**\
 `Why has Paramount gone for these rights? How much does it charge? What about Amazon? Will it show CBS coverage? How will TNT cope?`\
 https://nytimes.com/athletic/6826588/2025/11/21/paramount-champions-league-rights-tnt/

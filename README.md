@@ -1,3 +1,11 @@
+**Florida Sheriff’s Deputy Is Killed While Serving Eviction Notice**\
+`A second deputy, a locksmith and the suspect were also shot in an exchange of gunfire, the authorities said.`\
+https://nytimes.com/2025/11/21/us/florida-deputy-shooting-vero-beach-bermuda-club.html
+
+**Trump and Prince Had ‘Disturbing’ Call After Khashoggi’s Murder, Lawmaker Says**\
+`Representative Eugene Vindman of Virginia said he reviewed a classified transcript of the 2019 conversation that would “shock” Americans.`\
+https://nytimes.com/2025/11/21/us/politics/trump-saudi-crown-prince-khashoggi.html
+
 **Sam LaPorta has ' very slim' chance of return this season, Dan Campbell says**\
 `LaPorta was putting together another strong season before his injury, tying for fifth in receiving yards and ninth in receptions. `\
 https://nytimes.com/athletic/6826823/2025/11/21/lions-sam-laporta-back-season/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6826707/2025/11/21/bengals-joe-burrow-status-patrio
 **Make Unstoppable Happen**\
 `New York is proof that when 8 million people work toward something together, they can’t be stopped. `\
 https://nytimes.com/paidpost/jpmorgan-chase/make-unstoppable-happen.html
-
-**The Most Exclusive Club in Town Is Inside a Sports Stadium**\
-`Sports arenas across the country are opening members-only spaces for high-net-worth fans to mix business and pleasure.`\
-https://nytimes.com/2025/11/21/realestate/sports-stadium-nightlife-citi-field-barclays-capital-one-arena.html
-
-**College football best bets Week 13: Upset watch for Georgia Tech and BYU**\
-`Georgia Tech and BYU are both in tight games on paper on Saturday. Austin Mock has bets bets in both games.`\
-https://nytimes.com/athletic/6826357/2025/11/21/college-football-best-bets-week-13-georgia-tech-byu/
 

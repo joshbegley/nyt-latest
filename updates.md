@@ -1,3 +1,7 @@
+**Sam LaPorta has ' very slim' chance of return this season, Dan Campbell says**\
+`LaPorta was putting together another strong season before his injury, tying for fifth in receiving yards and ninth in receptions. `\
+https://nytimes.com/athletic/6826823/2025/11/21/lions-sam-laporta-back-season/
+
 **Trump to Hold Two Fund-Raisers for His Super PAC Next Year**\
 `A ticket will cost $1 million at each event.`\
 https://nytimes.com/2025/11/21/us/politics/trump-super-pac-fundraisers.html
