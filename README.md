@@ -1,3 +1,7 @@
+**Back home in Toronto, Adam Fantilli has another banner night in Blue Jackets' win**\
+`Fantilli delivered two goals and an overtime winner in Toronto, electrifying a massive hometown crowd and carrying the Blue Jackets.`\
+https://nytimes.com/athletic/6825134/2025/11/20/adam-fantilli-columbus-blue-jackets-nhl/
+
 **Trump and Mamdani to Meet at the White House**\
 `President Trump and Zohran Mamdani, the mayor-elect of New York City, were expected to meet on Friday at the White House. The meeting comes after months of trading insults.`\
 https://nytimes.com/video/world/americas/100000010537125/mamdani-trump-meeting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6825210/2025/11/20/alexander-ovechkin-capitals-poin
 **‘Two Strangers’ Review: Meeting Cute, Toting Baggage**\
 `The effervescent musical, a new London import, delivers lavishly on the promise of a rom-com: laughter, escape and fantasy.`\
 https://nytimes.com/2025/11/20/theater/two-strangers-carry-cake-review.html
-
-**Ready to Drop**\
-`Joyce Keller makes her New York Times Crossword debut.`\
-https://nytimes.com/2025/11/20/crosswords/daily-puzzle-2025-11-20.html
 
