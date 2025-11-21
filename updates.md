@@ -1,3 +1,19 @@
+**At 80, This Composer Is Easier Than Ever to Celebrate**\
+`With new releases and concerts, Anthony Braxton’s output as an artist and thinker is quickly available for longtime fans and initiates alike.`\
+https://nytimes.com/2025/11/21/arts/music/anthony-braxton-80th-birthday.html
+
+**Ooey, Gooey Chocolate Brownies From a Box? Yes. We Found the Best.**\
+`Text by Antara Sinha`\
+https://nytimes.com/card/2025/11/21/smarter-living/wirecutter/
+
+**Pochettino, USMNT believe they can beat anyone at the World Cup. They may be right.**\
+`After undergoing adversity and turning to an expanded group of players to reset the culture, the USMNT finally feels ready for a World Cup`\
+https://nytimes.com/athletic/6826912/2025/11/21/mauricio-pochettino-usmnt-world-cup-outlook/
+
+**F. Murray Abraham**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/f-murray-abraham-home-tour
+
 **In New Video, Sean Duffy Tells Passengers to Dress Up and Be Nice**\
 `The secretary of transportation kicked off a new civility campaign on Wednesday called “The Golden Age of Travel Starts With You.”`\
 https://nytimes.com/2025/11/21/travel/sean-duffy-airlines-manners-video.html
