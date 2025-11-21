@@ -4,7 +4,7 @@ https://nytimes.com/video/opinion/100000010529017/can-the-right-confront-antisem
 
 **Secret to Decode C.I.A. Kryptos Sculpture Sold at Auction for $770,000**\
 `The encoded panels’ creator, Jim Sanborn, sought to unburden himself of the puzzle, and then discovered he had archived its solution in the Smithsonian.`\
-https://nytimes.com/2025/11/20/science/krytops-cia-auction-sculpture.html
+https://nytimes.com/2025/11/20/science/krytos-cia-auction-sculpture.html
 
 **Is the Gaza War Contributing to Antisemitism?**\
 `Is the recent onslaught of antisemitism on the right a result of the Israel-Hamas war? In this episode of “Interesting Times,” Yoram Hazony, an Israeli political theorist, explains how foreign policy is just one of the various forms that anti-Jewish messaging can take.`\

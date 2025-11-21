@@ -1,3 +1,15 @@
+**Can the Right Confront Antisemitism in Its Ranks?**\
+`Why is it so hard for the right to draw a boundary at antisemitism in its coalition? According to Yoram Hazony, an Israeli political theorist, it’s because the group wasn’t prepared to navigate the “explosion” of antisemitism.`\
+https://nytimes.com/video/opinion/100000010529017/can-the-right-confront-antisemitism-in-its-ranks.html
+
+**Secret to Decode C.I.A. Kryptos Sculpture Sold at Auction for $770,000**\
+`The encoded panels’ creator, Jim Sanborn, sought to unburden himself of the puzzle, and then discovered he had archived its solution in the Smithsonian.`\
+https://nytimes.com/2025/11/20/science/krytops-cia-auction-sculpture.html
+
+**Is the Gaza War Contributing to Antisemitism?**\
+`Is the recent onslaught of antisemitism on the right a result of the Israel-Hamas war? In this episode of “Interesting Times,” Yoram Hazony, an Israeli political theorist, explains how foreign policy is just one of the various forms that anti-Jewish messaging can take.`\
+https://nytimes.com/video/opinion/100000010529009/is-the-gaza-war-contributing-to-antisemitism.html
+
 **Qaeda Convict Returns to Guantánamo Court 17 Years After Trial**\
 `The Yemeni prisoner spent nearly seven hours at the war court, displaying some of the defiance of his 2008 proceeding.`\
 https://nytimes.com/2025/11/20/us/politics/al-qaeda-guantanamo-court.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/20/arts/design/kahlo-portrait-auction-art-sothebys.h
 **Hundreds of Invasive Goldfish to Be Culled From Ottawa Pond**\
 `Thousands washed ashore dead in the spring, but the fish are back. “They’re pretty hard to kill,” a biology professor said.`\
 https://nytimes.com/2025/11/20/world/canada/ottawa-pond-goldfish.html
-
-**Nine Inches of Rain and Counting as Storm Moves Through Texas**\
-`Hundreds of flights were canceled in Dallas on Thursday, and officials warned of flooding across much of the state.`\
-https://nytimes.com/2025/11/20/weather/texas-flood-rain.html
-
-**Judge Concludes Prosecutors Can Circumvent Federal Grand Juries in D.C.**\
-`The ruling by a federal judge found that federal prosecutors could fall back on local grand juries to approve serious charges when they failed to persuade a federal grand jury.`\
-https://nytimes.com/2025/11/20/us/politics/judge-trump-washington-grand-juries.html
-
-**Coast Guard Softens Stance on Hate and Hazing**\
-`A new servicewide policy recasts swastikas and nooses as merely “politically divisive” and deletes protections for transgender troops.`\
-https://nytimes.com/2025/11/20/us/politics/coast-guard-hate-crimes.html
 

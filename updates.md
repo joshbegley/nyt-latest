@@ -1,3 +1,15 @@
+**Can the Right Confront Antisemitism in Its Ranks?**\
+`Why is it so hard for the right to draw a boundary at antisemitism in its coalition? According to Yoram Hazony, an Israeli political theorist, it’s because the group wasn’t prepared to navigate the “explosion” of antisemitism.`\
+https://nytimes.com/video/opinion/100000010529017/can-the-right-confront-antisemitism-in-its-ranks.html
+
+**Secret to Decode C.I.A. Kryptos Sculpture Sold at Auction for $770,000**\
+`The encoded panels’ creator, Jim Sanborn, sought to unburden himself of the puzzle, and then discovered he had archived its solution in the Smithsonian.`\
+https://nytimes.com/2025/11/20/science/krytops-cia-auction-sculpture.html
+
+**Is the Gaza War Contributing to Antisemitism?**\
+`Is the recent onslaught of antisemitism on the right a result of the Israel-Hamas war? In this episode of “Interesting Times,” Yoram Hazony, an Israeli political theorist, explains how foreign policy is just one of the various forms that anti-Jewish messaging can take.`\
+https://nytimes.com/video/opinion/100000010529009/is-the-gaza-war-contributing-to-antisemitism.html
+
 **Qaeda Convict Returns to Guantánamo Court 17 Years After Trial**\
 `The Yemeni prisoner spent nearly seven hours at the war court, displaying some of the defiance of his 2008 proceeding.`\
 https://nytimes.com/2025/11/20/us/politics/al-qaeda-guantanamo-court.html
