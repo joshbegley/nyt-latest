@@ -1,8 +1,12 @@
+**Vanity Fair Is Reviewing Its Ties to Olivia Nuzzi**\
+`The magazine, which recently hired the journalist, said it had been “taken by surprise” by new claims in an essay by her former fiancé, Ryan Lizza.`\
+https://nytimes.com/2025/11/21/style/vanity-fair-is-reviewing-its-ties-to-olivia-nuzzi.html
+
 **The Unlikely Center of 2025 Politics: California**\
 `Thanks to Newsom, Trump and redistricting, the deep-blue state is in the thick of national politics.`\
 https://nytimes.com/2025/11/21/us/politics/newsom-trump-california-politics.html
 
-**Trump Heaps Praise on Mamdani**\
+**Just Two Guys From Queens**\
 `Also, Ukraine faces a “difficult choice” on the U.S. peace plan. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/11/21/briefing/trump-mamdani-ukraine-peace-plan.html
 
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/21/t-magazine/chain-bags.html
 **Lawmaker Says Trump’s Call With Saudi Leader Was ‘Shocking’**\
 `Representative Eugene Vindman, Democrat of Virginia, called for the declassification of a 2019 conversation between Trump and Crown Prince Mohammed bin Salman of Saudi Arabia which took place shortly after the murder of journalist Jamal Khashoggi.`\
 https://nytimes.com/video/us/politics/100000010539638/trump-saudi-arabia-leader-khashoggi-call.html
-
-**Joey Gallo the pitcher? Ex-slugger is attempting switch to big league mound**\
-`Over 10 years in the big leagues five different teams, Gallo slashed .194/.319/.456 with 208 home runs and 453 RBIs over 939 games.`\
-https://nytimes.com/athletic/6827320/2025/11/21/joey-gallo-transition-to-pitching-attempt/
 
