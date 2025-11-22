@@ -1,3 +1,11 @@
+**Inside the momentous Premier League summit on squad cost ratio, anchoring, and sustainability**\
+`On Friday, the Premier League's 20 clubs voted on three potential financial rule changes - so who voted for what...?`\
+https://nytimes.com/athletic/6826461/2025/11/22/premier-league-squad-cost-anchoring-psr/
+
+**Barcelona's first game at the Camp Nou:  East vs West, 10,000 doves and the 'pitch of a lifetime'**\
+`As Barcelona finally return to the Camp Nou after its reconstruction, The Athletic takes a look back at when it opened in 1957...`\
+https://nytimes.com/athletic/6825829/2025/11/22/barcelona-camp-nou-first-game-history/
+
 **Trump and Mamdani’s News Conference: Read the Transcript**\
 `President Trump and Zohran Mamdani, the mayor-elect of New York City, spoke to the news media after their first face-to-face meeting.`\
 https://nytimes.com/2025/11/22/nyregion/trump-mamdani-meeting-press-conference-transcript.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/22/world/europe/trump-russia-ukraine-peace-plan.html
 **Russian Exiles See Europe Visa Rule as Blow Against Them, Not Putin**\
 `The European Union said the decision was prompted by sabotage attacks in Europe, but Russians living abroad say Europe is punishing ordinary people.`\
 https://nytimes.com/2025/11/22/world/europe/russia-visas-ukraine.html
-
-**Connections: Sports Edition Coach: Hints for Nov. 22, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6826500/2025/11/22/connections-sports-edition-hints-for-nov-22-2025/
-
-**Jaylen Brown rips Celtics' effort after loss to Nets: 'Come ready to play, or don't play at all'**\
-`The Celtics' star called out his team after a loss to the 3-12 Nets, saying the Celtics "just went through the motions."`\
-https://nytimes.com/athletic/6828076/2025/11/21/jaylen-brown-celtics-nets-effort-play/
 

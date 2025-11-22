@@ -1,3 +1,11 @@
+**Inside the momentous Premier League summit on squad cost ratio, anchoring, and sustainability**\
+`On Friday, the Premier League's 20 clubs voted on three potential financial rule changes - so who voted for what...?`\
+https://nytimes.com/athletic/6826461/2025/11/22/premier-league-squad-cost-anchoring-psr/
+
+**Barcelona's first game at the Camp Nou:  East vs West, 10,000 doves and the 'pitch of a lifetime'**\
+`As Barcelona finally return to the Camp Nou after its reconstruction, The Athletic takes a look back at when it opened in 1957...`\
+https://nytimes.com/athletic/6825829/2025/11/22/barcelona-camp-nou-first-game-history/
+
 **Trump and Mamdani’s News Conference: Read the Transcript**\
 `President Trump and Zohran Mamdani, the mayor-elect of New York City, spoke to the news media after their first face-to-face meeting.`\
 https://nytimes.com/2025/11/22/nyregion/trump-mamdani-meeting-press-conference-transcript.html
