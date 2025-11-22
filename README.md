@@ -1,3 +1,7 @@
+**Man Utd's Cunha misses Christmas event after ‘training accident’, organisers say**\
+`The Brazil international was due to appear at Christmas lights switch-on in Altrincham, around eight miles south of Manchester.`\
+https://nytimes.com/athletic/6829199/2025/11/22/matheus-cunha-man-utd-christmas/
+
 **The Briefing: Newcastle 2 Manchester City 1 — How badly does this hurt City's title bid?**\
 `Two goals from Harvey Barnes gave Newcastle victory and prevented Pep Guardiola's side from closing the gap on league leaders Arsenal`\
 https://nytimes.com/athletic/6814108/2025/11/22/newcastle-2-manchester-city-1-how-badly-does-this-hurt-citys-title-bid-are-newcastle-back/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/22/books/terry-martin-hekker-dead.html
 **Solange Knowles Wants to Lend You a Book**\
 `The Grammy winner, now a scholar in residence at U.S.C., is expanding a one-of-a-kind library featuring rare books by writers of color. (Just mind the due date.)`\
 https://nytimes.com/2025/11/22/style/solange-saint-heron-library.html
-
-**Kawhi Leonard expected to return from ankle injury Sunday vs. Cavs: Sources**\
-`Leonard will not play Saturday when the Clippers play in Charlotte against the Hornets. `\
-https://nytimes.com/athletic/6828929/2025/11/22/kawhi-leonard-clippers-return-injury-cavaliers/
 

@@ -1,3 +1,7 @@
+**The Briefing: Newcastle 2 Manchester City 1 — How badly does this hurt City's title bid?**\
+`Two goals from Harvey Barnes gave Newcastle victory and prevented Pep Guardiola's side from closing the gap on league leaders Arsenal`\
+https://nytimes.com/athletic/6814108/2025/11/22/newcastle-2-manchester-city-1-how-badly-does-this-hurt-citys-title-bid-are-newcastle-back/
+
 **The Briefing: Newcastle 2 Manchester City 1 - How badly does this hurt City's title bid?**\
 `Two goals from Harvey Barnes gave Newcastle victory and prevented Pep Guardiola's side from closing the gap on league leaders Arsenal`\
 https://nytimes.com/athletic/6814108/2025/11/22/newcastle-2-manchester-city-1-how-badly-does-this-hurt-citys-title-bid-are-newcastle-back/
