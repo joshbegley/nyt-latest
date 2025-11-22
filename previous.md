@@ -1,3 +1,7 @@
+**How Cubs' signing of Phil Maton deviates from team's normal way of building a bullpen**\
+`Maton posted a career-best 2.79 ERA in 2025 and has made at least 60 appearances in each of the last five seasons.`\
+https://nytimes.com/athletic/6828011/2025/11/21/phil-maton-cubs-contract/
+
 **Protesters Interrupt a Performance of ‘Carmen’ at the Met Opera**\
 `One of the protesters, who were arrested and removed from the hall, denounced the billionaire David H. Koch.`\
 https://nytimes.com/2025/11/21/arts/music/protesters-met-opera-carmen.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/21/us/eeoc-university-pennsylvania-antisemitism-jewi
 **In This Scandal, the Journalists Are the Story**\
 `Love, politics and ethics collided as Olivia Nuzzi and Ryan Lizza went at it in a media sphere that rewards private revelations.`\
 https://nytimes.com/2025/11/21/style/olivia-nuzzi-ryan-lizza-rfk-jr-affair.html
-
-**Giants trade for outfielder Joey Wiemer, non-tender left-hander Joey Lucchesi**\
-`The trade for Wiemer gives San Francisco 10 outfielders on its 40-man roster, and the decision on Lucchesi was a bit of a surprise.`\
-https://nytimes.com/athletic/6827762/2025/11/21/joey-wiemer-giants-trade-offseason/
 
