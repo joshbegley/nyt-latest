@@ -1,3 +1,19 @@
+**U.S. and Ukrainian Officials to Meet Again on U.S. Peace Plan**\
+`In the Trump administration’s latest effort to pressure Ukraine into accepting a 28-point peace plan, officials from the two countries will hold talks in Geneva.`\
+https://nytimes.com/2025/11/22/us/politics/us-ukraine-peace-plan.html
+
+**'We're just not guarding nobody': Jimmy Butler gives honest assessment after Warriors loss**\
+`While Butler noted that he's "always optimistic," the Warriors' swingman has been frustrated with Golden State's defensive effort.`\
+https://nytimes.com/athletic/6828290/2025/11/22/jimmy-butler-warriors-blazers-defense-comments/
+
+**The Best Thing I Didn’t Bake All Year**\
+`My no-bake cranberry-cookie butter cheesecake with a crushed speculoos crust is a showstopper (if I do say so myself).`\
+https://nytimes.com/2025/11/22/dining/the-best-thing-i-didnt-bake-all-year.html
+
+**Joe Burrow won't play for Bengals vs. Patriots: Sources**\
+`There are eyes toward Burrow potentially returning on Thanksgiving night in Baltimore against the Ravens.`\
+https://nytimes.com/athletic/6828579/2025/11/22/bengals-joe-burrow-status-joe-flacco/
+
 **Fearing He Would Flee, Police in Brazil Arrest Jair Bolsonaro**\
 `The arrest came days before the former president was expected to be ordered to begin a 27-year prison sentence for staging a failed coup.`\
 https://nytimes.com/2025/11/22/world/americas/jair-bolsonaro-brazil-arrest.html
