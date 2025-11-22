@@ -1,5 +1,9 @@
+**Second in Command**\
+`Trenton Charlson takes charge of your Sunday with an imposing puzzle.`\
+https://nytimes.com/2025/11/22/crosswords/daily-puzzle-2025-11-23.html
+
 **As Blue Jackets blow another lead, Dean Evason isn't concerned: 'I'm not focused on it'**\
-`It was a familiar script for the Blue Jackets, as they blew another third-period lead and lost in overtime to the Red Wings on Saturday.`\
+`It was a familiar script for the Blue Jackets, as they wasted another third-period lead and lost in overtime to the Red Wings on Saturday.`\
 https://nytimes.com/athletic/6829452/2025/11/22/blue-jackets-red-wings-dean-evason/
 
 **2 Texas Men Plotted Coup of Haitian Island to Enslave Women and Children, U.S. Says**\
@@ -22,7 +26,7 @@ https://nytimes.com/2025/11/22/us/politics/marjorie-taylor-greene.html
 `Branch averaged 15.9 points, 5.2 rebounds and 2.0 assists this summer playing up a level, and is now in conversation for the 2027 NBA Draft.`\
 https://nytimes.com/athletic/6829269/2025/11/22/bruce-branch-iii-reclassifies-2026/
 
-**Greene’s Exit Deals A Blow to G.O.P., Putting Rifts on Display**\
+**Greene’s Exit Deals a Blow to G.O.P., Putting Rifts on Display**\
 `Representative Marjorie Taylor Greene’s sudden resignation underscored the fragility of the G.O.P. majority, and exposed deep discontent on the right going into the midterm elections.`\
 https://nytimes.com/2025/11/22/us/politics/marjorie-taylor-greene-republicans.html
 

@@ -1,3 +1,11 @@
+**As Blue Jackets blow another lead, Dean Evason isn't concerned: 'I'm not focused on it'**\
+`It was a familiar script for the Blue Jackets, as they blew another third-period lead and lost in overtime to the Red Wings on Saturday.`\
+https://nytimes.com/athletic/6829452/2025/11/22/blue-jackets-red-wings-dean-evason/
+
+**2 Texas Men Plotted Coup of Haitian Island to Enslave Women and Children, U.S. Says**\
+`The men, who planned to recruit homeless people for the invasion, took Haitian Creole classes and one enrolled in the U.S. Air Force to prepare for an attack by sailboat, prosecutors said.`\
+https://nytimes.com/2025/11/22/us/texas-men-haiti-island-takeover-plot.html
+
 **Trump taps Jack Nicklaus for Joint Base Andrews golf courses' makeover**\
 `Trump said that Nicklaus will act as both architect and designer for the project. "We can — for very little money — fix it up," Trump said.`\
 https://nytimes.com/athletic/6829445/2025/11/22/trump-jack-nicklaus-joint-base-andrews-golf-course-renovation/
