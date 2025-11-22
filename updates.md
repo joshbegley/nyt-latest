@@ -1,3 +1,7 @@
+**UConn survives its toughest test after challenge from Michigan**\
+`The top-ranked Huskies remain undefeated. `\
+https://nytimes.com/athletic/6827978/2025/11/21/uconn-michigan-womens-basketball/
+
 **Raptors become first team to advance to knockout round of NBA Cup**\
 `With their sixth straight win, Toronto also advanced to the next stage of the NBA Cup for the first time in its history. `\
 https://nytimes.com/athletic/6826941/2025/11/21/raptors-nba-cup-standings-knockout-round/

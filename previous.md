@@ -1,3 +1,7 @@
+**UConn survives its toughest test after challenge from Michigan**\
+`The top-ranked Huskies remain undefeated. `\
+https://nytimes.com/athletic/6827978/2025/11/21/uconn-michigan-womens-basketball/
+
 **Raptors become first team to advance to knockout round of NBA Cup**\
 `With their sixth straight win, Toronto also advanced to the next stage of the NBA Cup for the first time in its history. `\
 https://nytimes.com/athletic/6826941/2025/11/21/raptors-nba-cup-standings-knockout-round/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/21/us/politics/marjorie-taylor-greene-resigns.html
 **On Police Footage and ‘The Perfect Neighbor’**\
 `Wesley Morris, the host of “Cannonball” at The New York Times, sits down with Parul Sehgal, a critic at large for The Times, to talk about the Netflix documentary “The Perfect Neighbor” and its use of police body camera footage.`\
 https://nytimes.com/video/podcasts/100000010540408/on-police-footage-and-the-perfect-neighbor.html
-
-**Colts' Charvarius Ward to return from concussion after contemplating retirement**\
-`Ward struggled with dizziness, crossed eyes, vomiting and headaches while recovering from a concussion he suffered in Week 6.`\
-https://nytimes.com/athletic/6827607/2025/11/21/charvarius-ward-colts-injury-concussion-update-retirement/
 
