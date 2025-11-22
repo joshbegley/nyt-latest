@@ -1,3 +1,11 @@
+**Lando Norris surfs Las Vegas GP wet qualifying chaos to score pole, Lewis Hamilton last**\
+`Rain made for a treacherous qualifying session as the championship leader put himself in great position to lock down the title`\
+https://nytimes.com/athletic/6828034/2025/11/22/las-vegas-f1-qualifying-results/
+
+**Lewis Hamilton qualifies last for Las Vegas Grand Prix as Ferrari struggles continue**\
+`Hamilton was eliminated in the opening stage of qualifying Friday night as rain made for treacherous driving conditions.`\
+https://nytimes.com/athletic/6828122/2025/11/22/lewis-hamilton-ferrari-las-vegas-grand-prix-qualifying/
+
 **U.S. Defends Decision to Seek Death Penalty for Luigi Mangione**\
 `Prosecutors argue that Mr. Mangione can receive a fair trial, despite his lawyers’ concerns about “damaging” statements from the attorney general about the murder case.`\
 https://nytimes.com/2025/11/22/nyregion/luigi-mangione-death-penalty.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/22/nyregion/trump-mamdani-meeting-press-conference-t
 **Ranking the 2026 Ballon d'Or contenders: Is Erling Haaland in pole position?**\
 `The early contenders for men's football's biggest individual prize`\
 https://nytimes.com/athletic/6822676/2025/11/22/2026-ballon-dor-contenders-yamal-haaland-mbappe-kane/
-
-**Hugo Viana to Newcastle: The deal that got Jorge Mendes into the Premier League**\
-`Now Manchester City's sporting director, Viana arrived on Tyneside in 2002 and carved a path for Portuguese talent to follow`\
-https://nytimes.com/athletic/6822859/2025/11/22/hugo-viana-newcastle-jorge-mendes-premier-league/
-
-**The amateur American football team in London that is changing lives and producing NFL talent**\
-`The London Warriors are an amateur team that has produced some of Britain's brightest American football talents.`\
-https://nytimes.com/athletic/6683365/2025/11/22/london-warriors-aden-durde-efe-obada-nfl/
 
