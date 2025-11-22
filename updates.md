@@ -1,3 +1,7 @@
+**Yankees cut 5 relievers, including Mark Leiter Jr., in cost-saving moves**\
+`The biggest cost savings may have come from non-tendering Leiter, whom MLB Trade Rumors projected to make $3M next year via arbitration.`\
+https://nytimes.com/athletic/6827566/2025/11/21/yankees-non-tender-relievers-mark-leiter-jr/
+
 **Comey Seeks to Dismiss Charges Based on Grand Jury Errors**\
 `The request to dismiss the case came after Lindsey Halligan acknowledged she had never shown a final version of the indictment to the entire grand jury for a vote.`\
 https://nytimes.com/2025/11/21/us/politics/comey-halligan-dismiss-charges.html
