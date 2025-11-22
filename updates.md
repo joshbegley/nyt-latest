@@ -1,3 +1,7 @@
+**Kyle Shanahan confirms 49ers voided Brandon Aiyuk’s guarantees**\
+`Shanahan said the 49ers had hoped to have Aiyuk back on the field by now, but his progress has plateaued.`\
+https://nytimes.com/athletic/6829442/2025/11/22/49ers-brandon-aiyuk-kyle-shanahan-guaranteed-money/
+
 **Second in Command**\
 `Trenton Charlson takes charge of your Sunday with an imposing puzzle.`\
 https://nytimes.com/2025/11/22/crosswords/daily-puzzle-2025-11-23.html
