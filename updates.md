@@ -1,3 +1,7 @@
+**Tyronn Lue lauds James Harden's double-nickel effort: 'He carried us offensively'**\
+`Clippers coach Tyronn Lue realized James Harden was due for a special day after a red-hot first quarter.`\
+https://nytimes.com/athletic/6829537/2025/11/22/james-harden-55-points-clippers-franchise-record-nba/
+
 **A Cancer Diagnosis Brings a New Season of Grief to the Kennedy Family**\
 `Tatiana Schlossberg, the daughter of Caroline Kennedy, revealed a terminal cancer diagnosis in an essay published on the anniversary of her grandfather’s assassination.`\
 https://nytimes.com/2025/11/22/us/tatiana-schlossberg-kennedy-cancer.html
