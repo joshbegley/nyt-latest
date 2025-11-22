@@ -1,3 +1,15 @@
+**New Jersey Congressman’s Aide Faked Anti-Trump Slashing Attack, U.S. Says**\
+`Natalie Greene, 26, who worked for Representative Jeff Van Drew, a Republican, falsely claimed she was attacked at a nature reserve, the authorities said.`\
+https://nytimes.com/2025/11/21/nyregion/congressional-aide-new-jersey-hoax.html
+
+**The Trump-Mamdani Buddy Movie? It’s Getting Mixed Reviews.**\
+`Zohran Mamdani and President Trump seemed to cast aside their months of traded insults, a development that seemed good for New York City but odd to some followers.`\
+https://nytimes.com/2025/11/21/nyregion/mamdani-trump-reaction-meeting.html
+
+**Mamdani’s Surreal and Shrewd Pragmatism**\
+`Since his election, Zohran Mamdani has made some surprisingly pragmatic or traditional choices — including his surreal meeting with President Trump.`\
+https://nytimes.com/2025/11/21/opinion/zohran-mamdani-trump-meeting-white-house.html
+
 **‘Fascist’? ‘Communist’? For an Afternoon, They Were Just 2 Guys From Queens.**\
 `Acid insults were set aside as New York’s mayor-elect and the president promoted their shared goals.`\
 https://nytimes.com/2025/11/21/us/politics/trump-mamdani-scene.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/21/us/politics/comey-halligan-dismiss-charges.html
 **Las Vegas GP repairs 15 manhole covers ahead of final F1 practice**\
 `F1 race officials have reinforced manhole covers at 15 spots around the Las Vegas GP circuit after an issue with one was discovered in FP2`\
 https://nytimes.com/athletic/6827609/2025/11/21/las-vegas-gp-manholes-repaired/
-
-**'The fix is in': George Washington basketball coach advocates for tournament expansion**\
-`Caputo bemoaned the NCAA Evaluation Tool system, saying Power 4 teams are more reluctant to schedule competitive mid-major opponents.`\
-https://nytimes.com/athletic/6827315/2025/11/21/chris-caputo-march-madness-expansion/
-
-**Mark Mellman, Who Helped Democrats Understand Their Voters, Dies at 70**\
-`A prominent pollster and political strategist, he was a key figure in John Kerry’s 2004 presidential campaign and used his prominence to speak out in defense of Israel.`\
-https://nytimes.com/2025/11/21/us/politics/mark-mellman-dead.html
-
-**Trump Praises Mamdani After White House Meeting**\
-`After months of warning voters that Zohran Mamdani posed an existential threat to New York City, President Trump showered praise on the mayor-elect at the White House on Friday.`\
-https://nytimes.com/video/us/politics/100000010540080/president-trump-zohran-mamdani-praise.html
 
