@@ -1,3 +1,11 @@
+**Clippers' Chris Paul to retire after 2025-26 NBA season**\
+`Paul is a 12-time All-Star, an 11-time All-NBA selection, and a nine-time All-Defense selection.`\
+https://nytimes.com/athletic/6828874/2025/11/22/chris-paul-retiring-clippers-rockets-suns-hornets-nba/
+
+**Liverpool 0 Nottingham Forest 3: Slot's side hits a new low - but can it get worse?**\
+`Discussing the major talking points after the reigning champions plumbed new depths at Anfield`\
+https://nytimes.com/athletic/6814107/2025/11/22/liverpool-nottingham-forest-result-analysis/
+
 **Climate Talks End With Dire Warnings and Scant Plans for Action**\
 `The first U.S. absence in the history of the talks created an opening, diplomats said, for oil-producing nations to push their agenda.`\
 https://nytimes.com/2025/11/22/climate/cop30-climate-summit-ends-belem.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6827152/2025/11/22/rams-seahawks-sam-darnold-defens
 **Trump Shows His Power, and Greene Reveals His Weakness**\
 `As the president forced a onetime loyalist from Congress, her defiant departure signaled a coming debate over Republican identity in a post-Trump era.`\
 https://nytimes.com/2025/11/22/us/politics/marjorie-taylor-greene-trump-republicans.html
-
-**Actress Issa Rae immerses herself in MLS, San Diego FC after buying into club **\
-`The celebrity owner's investment in the MLS expansion club is more than just a financial transaction`\
-https://nytimes.com/athletic/6826596/2025/11/22/issa-rae-san-diego-fc-ownership-senegal/
-
-**U.S. and Ukrainian Officials to Meet Again on U.S. Peace Plan**\
-`In the Trump administration’s latest effort to pressure Ukraine into accepting a 28-point peace plan, officials from the two countries will hold talks in Geneva.`\
-https://nytimes.com/2025/11/22/us/politics/us-ukraine-peace-plan.html
 
