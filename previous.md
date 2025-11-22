@@ -1,3 +1,7 @@
+**LaMelo Ball says report about growing frustration with Hornets is 'false info'**\
+`A Yahoo! Sports report published Thursday said Ball has "grown increasingly frustrated" with the franchise and would be open to a trade.`\
+https://nytimes.com/athletic/6827689/2025/11/21/lamelo-ball-hornets-future-trade-rumors-false-info/
+
 **Marjorie Taylor Greene Says She Plans to Resign in January**\
 `Ms. Greene, who was elected in 2020, positioned herself as a die-hard Trump supporter until a series of recent ruptures with the president, who recently unendorsed her.`\
 https://nytimes.com/2025/11/21/us/politics/marjorie-taylor-greene-resigns.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/21/business/tyson-lexington-nebraska-closing.html
 **Trump Says Violence Against Christians in Nigeria Is ‘Genocide.’ It’s Not So Simple.**\
 `There are widespread attacks across the country affecting many religious and ethnic groups. Many of them defy a simple explanation.`\
 https://nytimes.com/2025/11/21/world/africa/nigeria-trump-genocide-claims.html
-
-**After MLB's non-tender deadline, three intriguing new names on free-agent market**\
-`Every year, the non-tender deadline creates a new batch of free agents. This group, by comparison to others, is fairly underwhelming.`\
-https://nytimes.com/athletic/6827077/2025/11/21/mlb-non-tender-deadline-intriguing-new-names/
 

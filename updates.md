@@ -1,3 +1,7 @@
+**LaMelo Ball says report about growing frustration with Hornets is 'false info'**\
+`A Yahoo! Sports report published Thursday said Ball has "grown increasingly frustrated" with the franchise and would be open to a trade.`\
+https://nytimes.com/athletic/6827689/2025/11/21/lamelo-ball-hornets-future-trade-rumors-false-info/
+
 **Marjorie Taylor Greene Says She Plans to Resign in January**\
 `Ms. Greene, who was elected in 2020, positioned herself as a die-hard Trump supporter until a series of recent ruptures with the president, who recently unendorsed her.`\
 https://nytimes.com/2025/11/21/us/politics/marjorie-taylor-greene-resigns.html
