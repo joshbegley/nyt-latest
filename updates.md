@@ -1,3 +1,15 @@
+**New Jersey Congressman’s Aide Faked Anti-Trump Slashing Attack, U.S. Says**\
+`Natalie Greene, 26, who worked for Representative Jeff Van Drew, a Republican, falsely claimed she was attacked at a nature reserve, the authorities said.`\
+https://nytimes.com/2025/11/21/nyregion/congressional-aide-new-jersey-hoax.html
+
+**The Trump-Mamdani Buddy Movie? It’s Getting Mixed Reviews.**\
+`Zohran Mamdani and President Trump seemed to cast aside their months of traded insults, a development that seemed good for New York City but odd to some followers.`\
+https://nytimes.com/2025/11/21/nyregion/mamdani-trump-reaction-meeting.html
+
+**Mamdani’s Surreal and Shrewd Pragmatism**\
+`Since his election, Zohran Mamdani has made some surprisingly pragmatic or traditional choices — including his surreal meeting with President Trump.`\
+https://nytimes.com/2025/11/21/opinion/zohran-mamdani-trump-meeting-white-house.html
+
 **‘Fascist’? ‘Communist’? For an Afternoon, They Were Just 2 Guys From Queens.**\
 `Acid insults were set aside as New York’s mayor-elect and the president promoted their shared goals.`\
 https://nytimes.com/2025/11/21/us/politics/trump-mamdani-scene.html
