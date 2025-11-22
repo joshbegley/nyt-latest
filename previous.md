@@ -1,3 +1,7 @@
+**After MLB's non-tender deadline, three intriguing new names on free-agent market**\
+`Every year, the non-tender deadline creates a new batch of free agents. This group, by comparison to others, is fairly underwhelming.`\
+https://nytimes.com/athletic/6827077/2025/11/21/mlb-non-tender-deadline-intriguing-new-names/
+
 **Yankees cut 5 relievers, including Mark Leiter Jr., in cost-saving moves**\
 `The biggest cost savings may have come from non-tendering Leiter, whom MLB Trade Rumors projected to make $3M next year via arbitration.`\
 https://nytimes.com/athletic/6827566/2025/11/21/yankees-non-tender-relievers-mark-leiter-jr/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/21/us/politics/supreme-court-texas-congressional-map
 **Mariners to retire No. 51 again — this time for Hall of Famer Randy Johnson**\
 `Seattle already retired Ichiro Suzuki's No. 51 jersey, and now Johnson will have the same honor.`\
 https://nytimes.com/athletic/6827468/2025/11/21/mariners-retire-randy-johnson-number/
-
-**Hundreds Protest Gender-Based Violence in South Africa Before G20 Summit**\
-`Demonstrators called for their government to declare gender-based violence and killings a national disaster in South Africa. This comes as Johannesburg hosts the first G20 Summit in Africa this weekend.`\
-https://nytimes.com/video/world/africa/100000010540223/south-africa-g20-summit-protesters-against-gender-based-violence.html
 

@@ -1,3 +1,7 @@
+**After MLB's non-tender deadline, three intriguing new names on free-agent market**\
+`Every year, the non-tender deadline creates a new batch of free agents. This group, by comparison to others, is fairly underwhelming.`\
+https://nytimes.com/athletic/6827077/2025/11/21/mlb-non-tender-deadline-intriguing-new-names/
+
 **Yankees cut 5 relievers, including Mark Leiter Jr., in cost-saving moves**\
 `The biggest cost savings may have come from non-tendering Leiter, whom MLB Trade Rumors projected to make $3M next year via arbitration.`\
 https://nytimes.com/athletic/6827566/2025/11/21/yankees-non-tender-relievers-mark-leiter-jr/
