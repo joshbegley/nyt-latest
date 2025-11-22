@@ -1,3 +1,7 @@
+**Jaylen Brown rips Celtics' effort after loss to Nets: 'Come ready to play, or don't play at all'**\
+`The Celtics' star called out his team after a loss to the 3-12 Nets, saying the Celtics "just went through the motions."`\
+https://nytimes.com/athletic/6828076/2025/11/21/jaylen-brown-celtics-nets-effort-play/
+
 **How Cubs' signing of Phil Maton deviates from team's normal way of building a bullpen**\
 `Maton posted a career-best 2.79 ERA in 2025 and has made at least 60 appearances in each of the last five seasons.`\
 https://nytimes.com/athletic/6828011/2025/11/21/phil-maton-cubs-contract/
