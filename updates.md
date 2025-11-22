@@ -1,3 +1,7 @@
+**Las Vegas GP repairs 14 manhole covers ahead of final F1 practice**\
+`F1 race officials have reinforced manhole covers at 14 spots around the Las Vegas GP circuit after an issue with one was discovered in FP2`\
+https://nytimes.com/athletic/6827609/2025/11/21/las-vegas-gp-manholes-repaired/
+
 **'The fix is in': George Washington basketball coach advocates for tournament expansion**\
 `Caputo bemoaned the NCAA Evaluation Tool system, saying Power 4 teams are more reluctant to schedule competitive mid-major opponents.`\
 https://nytimes.com/athletic/6827315/2025/11/21/chris-caputo-march-madness-expansion/

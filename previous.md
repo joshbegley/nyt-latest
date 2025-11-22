@@ -1,3 +1,7 @@
+**Las Vegas GP repairs 14 manhole covers ahead of final F1 practice**\
+`F1 race officials have reinforced manhole covers at 14 spots around the Las Vegas GP circuit after an issue with one was discovered in FP2`\
+https://nytimes.com/athletic/6827609/2025/11/21/las-vegas-gp-manholes-repaired/
+
 **'The fix is in': George Washington basketball coach advocates for tournament expansion**\
 `Caputo bemoaned the NCAA Evaluation Tool system, saying Power 4 teams are more reluctant to schedule competitive mid-major opponents.`\
 https://nytimes.com/athletic/6827315/2025/11/21/chris-caputo-march-madness-expansion/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6826885/2025/11/21/brandon-aiyuk-49ers-news-contrac
 **Twins bring back Trevor Larnach despite crowded outfield, trade for backup catcher**\
 `Larnach will compete for playing time in the corners with fellow left-handers Matt Wallner and Alan Roden, along with James Outman. `\
 https://nytimes.com/athletic/6824542/2025/11/21/twins-trevor-larnach-arbitration-contract/
-
-**This Is One of L.A.’s Wettest Novembers in Decades**\
-`The rain has been a stark contrast to very dry weather at the same time last year.`\
-https://nytimes.com/2025/11/21/weather/los-angeles-november-rain-record.html
 
