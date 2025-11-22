@@ -1,3 +1,19 @@
+**U.S. Defends Decision to Seek Death Penalty for Luigi Mangione**\
+`Prosecutors argue that Mr. Mangione can receive a fair trial, despite his lawyers’ concerns about “damaging” statements from the attorney general about the murder case.`\
+https://nytimes.com/2025/11/22/nyregion/luigi-mangione-death-penalty.html
+
+**Are Leeds United really playing the way they planned this summer?**\
+`Leeds enjoyed relative success early this season by going long to Dominic Calvert-Lewin - so why did they stop?`\
+https://nytimes.com/athletic/6826960/2025/11/22/leeds-farke-playing-style/
+
+**Why are the Premier League's two 'data clubs' better at home than they are away this season?**\
+`Brighton have home advantage against Brentford on Saturday – and so far this season that has really meant something`\
+https://nytimes.com/athletic/6825818/2025/11/22/brighton-brentford-home-away-form-data/
+
+**Fire Breaks Out on Cargo Ship in the Port of Los Angeles**\
+`More than 100 firefighters were responding after the electrical fire started on the vessel, Mayor Karen Bass of Los Angeles said. All crew members were evacuated and no injuries were reported.`\
+https://nytimes.com/2025/11/22/us/cargo-ship-fire-los-angeles-port.html
+
 **Inside the momentous Premier League summit on squad cost ratio, anchoring, and sustainability**\
 `On Friday, the Premier League's 20 clubs voted on three potential financial rule changes - so who voted for what...?`\
 https://nytimes.com/athletic/6826461/2025/11/22/premier-league-squad-cost-anchoring-psr/
