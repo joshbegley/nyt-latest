@@ -1,3 +1,7 @@
+**Marjorie Taylor Greene Says She Plans to Resign in January**\
+`Ms. Greene, who was elected in 2020, had positioned herself as a die-hard Trump supporter until a series of recent ruptures with the president, who recently unendorsed her.`\
+https://nytimes.com/2025/11/21/us/politics/marjorie-taylor-greene-resigns.html
+
 **Giants trade for outfielder Joey Wiemer, non-tender left-hander Joey Lucchesi**\
 `The trade for Wiemer gives San Francisco 10 outfielders on its 40-man roster, and the decision on Lucchesi was a bit of a surprise.`\
 https://nytimes.com/athletic/6827762/2025/11/21/joey-wiemer-giants-trade-offseason/
