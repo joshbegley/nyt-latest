@@ -1,3 +1,7 @@
+**Travis Head was brilliant, but England's wounds were self-inflicted. They blew their big chance**\
+`Head's devastating innings propelled the hosts to a stunning victory, but England's wasteful batting after lunch invited him to excel`\
+https://nytimes.com/athletic/6828435/2025/11/22/australia-england-stokes-head-bazball/
+
 **Collin Gillespie's breakout season for the surprising Suns, defined by two plays**\
 `In his third season, Gillespie has established himself as an early contender for the NBA's Sixth Man of the Year award.`\
 https://nytimes.com/athletic/6828193/2025/11/22/collin-gillespie-phoenix-suns-sixth-man-breakout/

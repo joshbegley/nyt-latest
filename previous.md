@@ -1,3 +1,7 @@
+**Travis Head was brilliant, but England's wounds were self-inflicted. They blew their big chance**\
+`Head's devastating innings propelled the hosts to a stunning victory, but England's wasteful batting after lunch invited him to excel`\
+https://nytimes.com/athletic/6828435/2025/11/22/australia-england-stokes-head-bazball/
+
 **Collin Gillespie's breakout season for the surprising Suns, defined by two plays**\
 `In his third season, Gillespie has established himself as an early contender for the NBA's Sixth Man of the Year award.`\
 https://nytimes.com/athletic/6828193/2025/11/22/collin-gillespie-phoenix-suns-sixth-man-breakout/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6828532/2025/11/22/ashes-england-stokes-australia-h
 **I was an athletic trainer in the NFL and MLS. Three things I wish every parent knew**\
 `Ian McMahan is a certified athletic trainer who has previously worked with the 49ers, Major League Soccer and the Women's World Cup.`\
 https://nytimes.com/athletic/6826372/2025/11/22/youth-sports-parents-tips-training-performance/
-
-**Daily Mail Owner Agrees to Buy The Telegraph, Consolidating Right-Leaning Media in Britain**\
-`The deal would combine two of the country’s major newspaper groups, a move likely to attract antitrust scrutiny.`\
-https://nytimes.com/2025/11/22/business/dealbook/telegraph-daily-mail.html
 

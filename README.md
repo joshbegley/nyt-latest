@@ -1,3 +1,7 @@
+**Stream These 5 Movies and TV Shows Before They Leave Netflix in December**\
+`Departures for U.S. subscribers next month include several classic comedies of the big and small screen — and one particularly prescient one.`\
+https://nytimes.com/2025/11/22/arts/television/netflix-leaving-december.html
+
 **Travis Head was brilliant, but England's wounds were self-inflicted. They blew their big chance**\
 `Head's devastating innings propelled the hosts to a stunning victory, but England's wasteful batting after lunch invited him to excel`\
 https://nytimes.com/athletic/6828435/2025/11/22/australia-england-stokes-head-bazball/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/22/business/dealbook/full-body-mri.html
 **'Shellshocked' Stokes says England do not need more match practice**\
 `Captain says tourists will not change strategy ahead of pink ball Test despite crushing defeat in Perth`\
 https://nytimes.com/athletic/6828532/2025/11/22/ashes-england-stokes-australia-head-smith/
-
-**I was an athletic trainer in the NFL and MLS. Three things I wish every parent knew**\
-`Ian McMahan is a certified athletic trainer who has previously worked with the 49ers, Major League Soccer and the Women's World Cup.`\
-https://nytimes.com/athletic/6826372/2025/11/22/youth-sports-parents-tips-training-performance/
 
