@@ -1,3 +1,7 @@
+**‘Fascist’? ‘Communist’? For an Afternoon, They Were Just 2 Guys From Queens.**\
+`Acid insults were set aside as New York’s mayor-elect and the president promoted their shared goals.`\
+https://nytimes.com/2025/11/21/us/politics/trump-mamdani-scene.html
+
 **Tyson Foods to Shut Major Beef Facility in Nebraska**\
 `The processing plant, in Lexington, employs more than 3,000 workers. It is expected to close in January.`\
 https://nytimes.com/2025/11/21/business/tyson-lexington-nebraska-closing.html

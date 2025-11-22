@@ -1,3 +1,7 @@
+**‘Fascist’? ‘Communist’? For an Afternoon, They Were Just 2 Guys From Queens.**\
+`Acid insults were set aside as New York’s mayor-elect and the president promoted their shared goals.`\
+https://nytimes.com/2025/11/21/us/politics/trump-mamdani-scene.html
+
 **Tyson Foods to Shut Major Beef Facility in Nebraska**\
 `The processing plant, in Lexington, employs more than 3,000 workers. It is expected to close in January.`\
 https://nytimes.com/2025/11/21/business/tyson-lexington-nebraska-closing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/21/us/politics/mark-mellman-dead.html
 **Trump Praises Mamdani After White House Meeting**\
 `After months of warning voters that Zohran Mamdani posed an existential threat to New York City, President Trump showered praise on the mayor-elect at the White House on Friday.`\
 https://nytimes.com/video/us/politics/100000010540080/president-trump-zohran-mamdani-praise.html
-
-**Abbott’s Moves to Restrict Muslims Leave Some Concerned and Puzzled**\
-`Two decisions by the Texas governor this week, including directing authorities to investigate an Islamic organization, come as the state sees an increase in anti-Muslim rhetoric.`\
-https://nytimes.com/2025/11/21/us/abbott-texas-muslim-investigation.html
 
