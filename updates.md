@@ -1,3 +1,7 @@
+**20 Killed in Israeli Strikes as Israel and Hamas Trade Blame Over Truce**\
+`Violence has repeatedly flared up in the weeks since a cease-fire was reached, killing hundreds of Palestinians and at least three Israeli soldiers.`\
+https://nytimes.com/2025/11/22/world/middleeast/israeli-strikes-gaza.html
+
 **Terry Martin Hekker, a Happy Housewife Scorned, Dies at 92**\
 `She wrote two popular memoirs: the first about the joys of married life, the second about her husband serving her divorce papers on their 40th anniversary.`\
 https://nytimes.com/2025/11/22/books/terry-martin-hekker-dead.html
