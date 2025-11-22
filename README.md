@@ -1,3 +1,11 @@
+**Anaheim Ducks stock report: Who's up, who's down after a quarter of the season?**\
+`The Ducks have cooled after a hot start, but which players deserve the most credit for helping them top the division?`\
+https://nytimes.com/athletic/6826909/2025/11/22/anaheim-ducks-stock-report-quarter-season/
+
+**'Eight years in one': Spirit, Gotham meet in NWSL Championship after packed season**\
+`The two teams played more games than most this year and still reached the championship, highlighting some benefits to heavier schedules.`\
+https://nytimes.com/athletic/6828554/2025/11/22/washington-spirit-gotham-fc-schedule-nwsl-championship/
+
 **Stream These 5 Movies and TV Shows Before They Leave Netflix in December**\
 `Departures for U.S. subscribers next month include several classic comedies of the big and small screen — and one particularly prescient one.`\
 https://nytimes.com/2025/11/22/arts/television/netflix-leaving-december.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6828228/2025/11/22/las-vegas-gp-qualifying-rain/
 **How the Buffalo Bills team, fans and city embraced their new Hallmark holiday rom-com**\
 `"I don't think there's a better brand or market for a holiday-type movie than the Bills," team COO Pete Guelli told The Athletic.`\
 https://nytimes.com/athletic/6825479/2025/11/22/buffalo-bills-holiday-touchdown-christmas-hallmark-movie/
-
-**The Rise of the ‘Just in Case’ M.R.I.**\
-`A growing batch of companies give customers access to whatever medical tests they want — no doctor’s orders required.`\
-https://nytimes.com/2025/11/22/business/dealbook/full-body-mri.html
-
-**'Shellshocked' Stokes says England do not need more match practice**\
-`Captain says tourists will not change strategy ahead of pink ball Test despite crushing defeat in Perth`\
-https://nytimes.com/athletic/6828532/2025/11/22/ashes-england-stokes-australia-head-smith/
 
