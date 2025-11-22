@@ -1,3 +1,15 @@
+**How to watch Clippers vs. Hornets: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Clippers play the Charlotte Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6828475/2025/11/22/clippers-vs-hornets-stream-how-to-watch-nov-22/
+
+**How to watch Blue Jackets vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Columbus Blue Jackets play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6828473/2025/11/22/blue-jackets-vs-red-wings-stream-how-to-watch-nov-22/
+
+**Pushing Off**\
+`Thanksgiving’s this coming week. How can we keep a busy holiday season from overwhelming us?`\
+https://nytimes.com/2025/11/22/briefing/pushing-off.html
+
 **Ukrainians Wait in Pain as Hope to Find Strike Survivors Fades**\
 `Russian missiles hit apartment buildings in Ternopil this week, far from the war’s front line. Dozens of civilians, including children, were killed.`\
 https://nytimes.com/2025/11/22/world/europe/russia-ukraine.html

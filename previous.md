@@ -1,3 +1,15 @@
+**How to watch Clippers vs. Hornets: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Clippers play the Charlotte Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6828475/2025/11/22/clippers-vs-hornets-stream-how-to-watch-nov-22/
+
+**How to watch Blue Jackets vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Columbus Blue Jackets play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6828473/2025/11/22/blue-jackets-vs-red-wings-stream-how-to-watch-nov-22/
+
+**Pushing Off**\
+`Thanksgiving’s this coming week. How can we keep a busy holiday season from overwhelming us?`\
+https://nytimes.com/2025/11/22/briefing/pushing-off.html
+
 **Ukrainians Wait in Pain as Hope to Find Strike Survivors Fades**\
 `Russian missiles hit apartment buildings in Ternopil this week, far from the war’s front line. Dozens of civilians, including children, were killed.`\
 https://nytimes.com/2025/11/22/world/europe/russia-ukraine.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6822121/2025/11/22/nwsl-championship-washington-spi
 **49ers' offseason project: Restocking their once-powerful receiving corps**\
 `The 49ers keep repeating the same sequence when it comes to their top wideouts -- banner year, difficult contract, bad blood and bye-bye.`\
 https://nytimes.com/athletic/6827765/2025/11/22/49ers-offseason-project-restocking-their-once-powerful-receiving-corps/
-
-**Do We Have to Spend the Holidays With My Parents?**\
-`Time with the extended family isn’t particularly restful or enjoyable for us.`\
-https://nytimes.com/2025/11/22/magazine/holidays-parents-ethics.html
-
-**Why Mercedes F1 is now worth more than Liverpool and most NBA teams**\
-`Mercedes's dizzying $6 billion valuation shows just how far F1 and the team have come in a very short time`\
-https://nytimes.com/athletic/6827930/2025/11/22/mercedes-f1-valuation/
-
-**Connections Companion No. 896**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 23, 2025.`\
-https://nytimes.com/2025/11/22/crosswords/connections-companion-896.html
 
