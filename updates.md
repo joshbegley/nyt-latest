@@ -1,3 +1,7 @@
+**Wild keep winning ways going, record third shutout in 6 games: Takeaways**\
+`Filip Gustavsson recorded his 13th career shutout — and the Wild's league-leading fourth shutout this season — in a 5-0 win over Pittsburgh.`\
+https://nytimes.com/athletic/6827552/2025/11/21/wild-penguins-filip-gustavsson-takeaways/
+
 **UConn survives its toughest test after challenge from Michigan**\
 `The top-ranked Huskies remain undefeated. `\
 https://nytimes.com/athletic/6827978/2025/11/21/uconn-michigan-womens-basketball/
