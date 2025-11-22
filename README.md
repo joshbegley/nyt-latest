@@ -1,3 +1,7 @@
+**Oklahoma in prime position to earn CFP bid after defense dominates Missouri**\
+`The Sooners will secure an at-large bid with a win over LSU next week, but is this team good enough on offense to make a run? `\
+https://nytimes.com/athletic/6829201/2025/11/22/oklahoma-missouri-score-result/
+
 **Lemurs in Madagascar Face an Unexpected Killer**\
 `Thousands of the endangered primates end up on the dinner plates of people in the upper rung of the country’s society who have money to spare.`\
 https://nytimes.com/2025/11/22/science/lemurs-madagascar-eating.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/22/arts/music/met-opera-protest-security-lapse.html
 **Two UAB football players injured by teammate ahead of South Florida game**\
 `UAB said the suspect is in custody and there is no threat to campus. An investigation is underway.`\
 https://nytimes.com/athletic/6829212/2025/11/22/uab-football-player-injuries-team-facility/
-
-**Trump’s Proposed Ukraine ‘Deal’ Is a Disgrace**\
-`If Ukraine is forced to surrender to these terms by Thursday, Thanksgiving will no longer be an American holiday. It will become a Russian holiday.`\
-https://nytimes.com/2025/11/22/opinion/ukraine-russia-negotiations-trump-deal.html
 
