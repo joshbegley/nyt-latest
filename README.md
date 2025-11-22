@@ -1,40 +1,40 @@
-**Orthodox Jewish Man Sentenced to 103 Years for Sex Abuse May Go Free**\
-`Nechemya Weberman, convicted of molesting a 12-year-old girl in a politically charged case, is seeking a new, shorter sentence with the Brooklyn district attorney’s support.`\
-https://nytimes.com/2025/11/22/nyregion/judge-nechemya-weberman-resentence.html
+**New Orleans, a City of Service Workers, Braces for an Immigration Crackdown**\
+`Louisiana officials have been eager for a federal intervention, but planned Border Patrol operations have stoked fear in the city’s immigrant work force.`\
+https://nytimes.com/2025/11/22/us/new-orleans-a-city-of-service-workers-braces-for-an-immigration-crackdown.html
 
-**What to Know About the Nearly 10% Climb in a Key Medicare Expense for 2026**\
-`The rapidly rising premium for Part B, which covers retirees’ outpatient services, reflects the fast pace of growth for health care costs nationally.`\
-https://nytimes.com/2025/11/22/business/what-to-know-about-the-nearly-10-climb-in-a-key-medicare-expense-for-2026.html
+**‘Wicked: For Good’ Tells a Story Through Color**\
+`Alice Brooks, the cinematographer of “Wicked: For Good,” explains the meaning and intention behind the color choices in the film.`\
+https://nytimes.com/video/movies/100000010540438/wicked-for-good-tells-a-story-through-color.html
 
-**A Gigolo, a Dead Body, City Mayhem. In Other Words, the Good Old Days.**\
-`New York City loves to tell stories about itself. In the new low-budget film “Bunny,” the East Village of the ’90s — before Whole Foods and Target arrived — is a nostalgic template.`\
-https://nytimes.com/2025/11/22/nyregion/bunny-movie-nyc-east-village.html
+**In One Week, Trump Moves to Reshape U.S. Environmental Policy**\
+`The Trump administration this week moved to weaken the Clean Water Act and the Endangered Species Act, two bedrock laws, among other deregulatory moves.`\
+https://nytimes.com/2025/11/22/climate/trump-environmental-policy-week.html
 
-**How a ‘Stranger Things’ Star Spends an Off Day**\
-`Gaten Matarazzo, a breakout star of Netflix’s megahit horror series, attends Rangers hockey games with his dad and walks the Hudson River with his girlfriend.`\
-https://nytimes.com/2025/11/22/nyregion/how-a-stranger-things-star-spends-an-off-day.html
+**Trump Offers a Ukraine Peace Plan the Kremlin Can Love**\
+`While President Trump at times suggested he was willing to bolster support for Ukraine, he has repeatedly accommodated Russia’s demands.`\
+https://nytimes.com/2025/11/22/us/politics/trump-ukraine-russia-peace-plan-kremlin.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/11/22/crosswords/spelling-bee-forum.html
+**In North Carolina, the Border Patrol’s Presence Divides a Swing State**\
+`Images of federal agents chasing immigrants have rattled many. Others see evidence of an effective crackdown. It remains to be seen whether the operation might sway voters next year.`\
+https://nytimes.com/2025/11/22/us/north-carolina-border-patrol-immigration-politics.html
 
-**Bulls baffled by instant Kevin Huerter ejection: 'I didn’t get much explanation'**\
-`The Bulls' guard was tossed after he slapped at the ball in frustration after a foul call, hitting a referee. He said it was an accident.`\
-https://nytimes.com/athletic/6828153/2025/11/22/kevin-huerter-ejection-bulls-tony-brothers/
+**The A.I. Boom Is Driving the Economy. What Happens if It Falters?**\
+`A windfall for companies that build data centers and their suppliers is overshadowing weakness in other industries.`\
+https://nytimes.com/2025/11/22/business/the-ai-boom-economy.html
 
-**The New York Times in Print for Saturday, Nov. 22, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/11/22/todays-new-york-times
+**As Democrats Look to a New Generation, John Larson Hangs On**\
+`The 77-year-old Connecticut Democrat is facing primary challenges from people who say he’s too old and has been around too long. He says his age and experience are his strength.`\
+https://nytimes.com/2025/11/22/us/politics/john-larson-connecticut-congress-election.html
 
-**Lando Norris surfs Las Vegas GP's slippery qualifying chaos, scores crucial pole**\
-`Lando Norris navigated wild and wet conditions to secure pole position for Formula One&#8217;s 2025 Las Vegas Grand Prix, with Max Verstappen second for Red Bull.`\
-https://nytimes.com/athletic/6828034/2025/11/22/las-vegas-f1-qualifying-results/
+**Can I Pass My Co-op Unit to My Partner if We’re Not Married?**\
+`Many co-op leases allow for graduated levels of board approval for heirs who want to live in the building.`\
+https://nytimes.com/2025/11/22/realestate/can-i-pass-my-co-op-unit-to-my-partner-if-were-not-married.html
 
-**Lewis Hamilton qualifies last for Las Vegas Grand Prix as Ferrari struggles continue**\
-`Hamilton was eliminated in the opening stage of qualifying Friday as rain made for treacherous driving conditions on the Las Vegas track.`\
-https://nytimes.com/athletic/6828122/2025/11/22/lewis-hamilton-ferrari-las-vegas-grand-prix-qualifying/
+**In Charlotte, Border Patrol Arrests Send Families Into Hiding**\
+`After Border Patrol agents showed up to an afterschool care facility for immigrant children in Charlotte, N.`\
+https://nytimes.com/video/us/100000010532310/charlotte-immigration-arrests.html
 
-**U.S. Defends Decision to Seek Death Penalty for Luigi Mangione**\
-`Prosecutors argue that Mr. Mangione can receive a fair trial, despite his lawyers’ concerns about “damaging” statements from the attorney general about the murder case.`\
-https://nytimes.com/2025/11/22/nyregion/luigi-mangione-death-penalty.html
+**The War of the Rose Bowl**\
+`The storied stadium is at the center of a battle between Pasadena and U.C.L.A. that’s about money, nostalgia, geography and so much more.`\
+https://nytimes.com/2025/11/22/us/rose-bowl-pasadena-ucla.html
 
