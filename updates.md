@@ -1,3 +1,7 @@
+**Two UAB football players injured by teammate ahead of South Florida game**\
+`UAB said the suspect is in custody and there is no threat to campus. An investigation is underway.`\
+https://nytimes.com/athletic/6829212/2025/11/22/uab-football-player-injuries-team-facility/
+
 **Trump’s Proposed Ukraine ‘Deal’ Is a Disgrace**\
 `If Ukraine is forced to surrender to these terms by Thursday, Thanksgiving will no longer be an American holiday. It will become a Russian holiday.`\
 https://nytimes.com/2025/11/22/opinion/ukraine-russia-negotiations-trump-deal.html
