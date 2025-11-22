@@ -1,3 +1,7 @@
+**Rangers captain J.T. Miller day to day with upper-body injury**\
+`Miller's loss is significant setback for the Rangers, who are trying to get back on track after three consecutive losses.`\
+https://nytimes.com/athletic/6829164/2025/11/22/rangers-jt-miller-injury/
+
 **Five life sentences issued to shooter in killings of 3 UVA football players**\
 `Two people who were wounded in the shooting on a charter bus spoke at the sentencing hearing.`\
 https://nytimes.com/athletic/6828977/2025/11/22/uva-football-player-shooting/
