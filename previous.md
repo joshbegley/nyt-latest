@@ -1,3 +1,27 @@
+**The amateur American football team in London that is changing lives and producing NFL talent**\
+`The London Warriors are an amateur team that has produced some of Britain's brightest American football talents.`\
+https://nytimes.com/athletic/6683365/2025/11/22/london-warriors-aden-durde-efe-obada-nfl/
+
+**Stepping out of her comfort zone and finding her true self. Karen Carney on Strictly**\
+`The former England international has been one of the standout celebrities in the current series of the BBC's most popular entertainment show`\
+https://nytimes.com/athletic/6823117/2025/11/22/karen-carney-strictly-come-dancing/
+
+**Quote of the Day: A Rose Bowl Breakup Tears at L.A. Football Fans**\
+`Quotation of the Day for Saturday, November 22, 2025.`\
+https://nytimes.com/2025/11/22/pageoneplus/quote-of-the-day-a-rose-bowl-breakup-tears-at-la-football-fans.html
+
+**What Is Trump’s 28-Point Plan to End Russia’s War in Ukraine?**\
+`President Trump is pressing Kyiv to accept an outcome that yields to President Vladimir V. Putin’s demands.`\
+https://nytimes.com/2025/11/22/world/europe/trump-russia-ukraine-peace-plan.html
+
+**Russian Exiles See Europe Visa Rule as Blow Against Them, Not Putin**\
+`The European Union said the decision was prompted by sabotage attacks in Europe, but Russians living abroad say Europe is punishing ordinary people.`\
+https://nytimes.com/2025/11/22/world/europe/russia-visas-ukraine.html
+
+**Connections: Sports Edition Coach: Hints for Nov. 22, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6826500/2025/11/22/connections-sports-edition-hints-for-nov-22-2025/
+
 **Jaylen Brown rips Celtics' effort after loss to Nets: 'Come ready to play, or don't play at all'**\
 `The Celtics' star called out his team after a loss to the 3-12 Nets, saying the Celtics "just went through the motions."`\
 https://nytimes.com/athletic/6828076/2025/11/21/jaylen-brown-celtics-nets-effort-play/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/11/21/arts/music/protesters-met-opera-carmen.html
 **Rick Barry: Warriors' 1975 title was 'biggest upset' in major American sports history**\
 `"I defy anybody to point something else out that was as dramatic as what we did," Barry said of his team's 4-0 sweep over the Bullets.`\
 https://nytimes.com/athletic/6827954/2025/11/21/rick-barry-warriors-upset-1975-title/
-
-**Wild keep winning ways going, record third shutout in 6 games: Takeaways**\
-`Filip Gustavsson recorded his 13th career shutout — and the Wild's league-leading fourth shutout this season — in a 5-0 win over Pittsburgh.`\
-https://nytimes.com/athletic/6827552/2025/11/21/wild-penguins-filip-gustavsson-takeaways/
-
-**UConn survives its toughest test after challenge from Michigan**\
-`The top-ranked Huskies remain undefeated. `\
-https://nytimes.com/athletic/6827978/2025/11/21/uconn-michigan-womens-basketball/
-
-**Raptors become first team to advance to NBA Cup knockout round**\
-`With their sixth straight win, Toronto also advanced to the knockout stage of the NBA Cup for the first time in its history.`\
-https://nytimes.com/athletic/6826941/2025/11/21/raptors-nba-cup-standings-knockout-round/
-
-**Sea Foam**\
-`Blake Slonecker’s tough puzzle will wake solvers right up.`\
-https://nytimes.com/2025/11/21/crosswords/daily-puzzle-2025-11-22.html
-
-**Texas A&M Was Wrong to Fire Professor Over Gender Lesson, Panel Rules**\
-`The firing put the school at the center of national debates over gender identity and academic freedom. A faculty panel ruled unanimously against the termination.`\
-https://nytimes.com/2025/11/21/us/texas-am-professor-gender-lesson-panel-ruling.html
-
-**Federal Suit Seeking Names of Some Jewish Employees at Penn Sparks Backlash**\
-`The Trump administration says it needs the information to investigate antisemitism and accuses the university of flouting a subpoena.`\
-https://nytimes.com/2025/11/21/us/eeoc-university-pennsylvania-antisemitism-jewish.html
 
