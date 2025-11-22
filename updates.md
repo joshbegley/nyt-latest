@@ -1,3 +1,11 @@
+**Texas A&M Was Wrong to Fire Professor Over Gender Lesson, Panel Rules**\
+`The firing put the school at the center of national debates over gender identity and academic freedom. A faculty panel ruled unanimously against the termination.`\
+https://nytimes.com/2025/11/21/us/texas-am-professor-gender-lesson-panel-ruling.html
+
+**Federal Suit Seeking Names of Some Jewish Employees at Penn Sparks Backlash**\
+`The Trump administration says it needs the information to investigate antisemitism and accuses the university of flouting a subpoena.`\
+https://nytimes.com/2025/11/21/us/eeoc-university-pennsylvania-antisemitism-jewish.html
+
 **In This Scandal, the Journalists Are the Story**\
 `Love, politics and ethics collided as Olivia Nuzzi and Ryan Lizza went at it in a media sphere that rewards private revelations.`\
 https://nytimes.com/2025/11/21/style/olivia-nuzzi-ryan-lizza-rfk-jr-affair.html
