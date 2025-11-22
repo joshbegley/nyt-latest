@@ -1,3 +1,7 @@
+**Terry Martin Hekker, a Happy Housewife Scorned, Dies at 92**\
+`She wrote two popular memoirs: the first about the joys of married life, the second about her husband serving her divorce papers on their 40th anniversary.`\
+https://nytimes.com/2025/11/22/books/terry-martin-hekker-dead.html
+
 **Solange Knowles Wants to Lend You a Book**\
 `The Grammy winner, now a scholar in residence at U.S.C., is expanding a one-of-a-kind library featuring rare books by writers of color. (Just mind the due date.)`\
 https://nytimes.com/2025/11/22/style/solange-saint-heron-library.html

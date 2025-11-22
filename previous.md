@@ -1,3 +1,7 @@
+**Terry Martin Hekker, a Happy Housewife Scorned, Dies at 92**\
+`She wrote two popular memoirs: the first about the joys of married life, the second about her husband serving her divorce papers on their 40th anniversary.`\
+https://nytimes.com/2025/11/22/books/terry-martin-hekker-dead.html
+
 **Solange Knowles Wants to Lend You a Book**\
 `The Grammy winner, now a scholar in residence at U.S.C., is expanding a one-of-a-kind library featuring rare books by writers of color. (Just mind the due date.)`\
 https://nytimes.com/2025/11/22/style/solange-saint-heron-library.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6829013/2025/11/22/avalanche-vs-predators-stream-ho
 **How to watch Devils vs. Flyers: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the Philadelphia Flyers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6829010/2025/11/22/devils-vs-flyers-stream-how-to-watch-nov-22/
-
-**How to watch Wizards vs. Bulls: Time, TV, streaming**\
-`Find out how to watch the Washington Wizards play the Chicago Bulls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6829008/2025/11/22/wizards-vs-bulls-stream-how-to-watch-nov-22/
 
