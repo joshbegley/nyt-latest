@@ -1,3 +1,7 @@
+**After losing Quentin Lake, Rams must replace a defender who did everything**\
+`Lake, a budding star and leader in the secondary for the Rams, was one of three players the team placed on IR this week.`\
+https://nytimes.com/athletic/6825294/2025/11/22/rams-defense-quentin-lake-injury/
+
 **How to watch Clippers vs. Hornets: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Charlotte Hornets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6828475/2025/11/22/clippers-vs-hornets-stream-how-to-watch-nov-22/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6827907/2025/11/22/penguins-wild-injuries-loss-obse
 **NWSL Championship: How to watch Washington Spirit vs. Gotham FC in rivalry title match**\
 `Here's how to tune in for Saturday's title tilt between Washington and Gotham.`\
 https://nytimes.com/athletic/6822121/2025/11/22/nwsl-championship-washington-spirit-gotham-how-to-watch/
-
-**49ers' offseason project: Restocking their once-powerful receiving corps**\
-`The 49ers keep repeating the same sequence when it comes to their top wideouts -- banner year, difficult contract, bad blood and bye-bye.`\
-https://nytimes.com/athletic/6827765/2025/11/22/49ers-offseason-project-restocking-their-once-powerful-receiving-corps/
 

@@ -1,3 +1,7 @@
+**After losing Quentin Lake, Rams must replace a defender who did everything**\
+`Lake, a budding star and leader in the secondary for the Rams, was one of three players the team placed on IR this week.`\
+https://nytimes.com/athletic/6825294/2025/11/22/rams-defense-quentin-lake-injury/
+
 **How to watch Clippers vs. Hornets: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Charlotte Hornets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6828475/2025/11/22/clippers-vs-hornets-stream-how-to-watch-nov-22/
