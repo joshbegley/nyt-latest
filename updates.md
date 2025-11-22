@@ -1,3 +1,7 @@
+**The Ashes Briefing: Travis Head onslaught takes Australia to stunning win after England collapse**\
+`Another frenetic day in Perth saw the visitors fold before Head, opening the batting, delivered an Australian masterclass in Travball`\
+https://nytimes.com/athletic/6827991/2025/11/22/ashes-australia-england-travis-head-collapse-briefing/
+
 **John Green Knows That No One Really Loves You on the Internet**\
 `The writer and YouTube star on trying to get back to the experiences that make us feel alive.`\
 https://nytimes.com/2025/11/22/magazine/john-green-interview.html
