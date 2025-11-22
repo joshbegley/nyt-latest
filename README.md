@@ -1,3 +1,7 @@
+**Wild keep winning ways going, record third shutout in 6 games: Takeaways**\
+`Filip Gustavsson recorded his 13th career shutout — and the Wild's league-leading fourth shutout this season — in a 5-0 win over Pittsburgh.`\
+https://nytimes.com/athletic/6827552/2025/11/21/wild-penguins-filip-gustavsson-takeaways/
+
 **UConn survives its toughest test after challenge from Michigan**\
 `The top-ranked Huskies remain undefeated. `\
 https://nytimes.com/athletic/6827978/2025/11/21/uconn-michigan-womens-basketball/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6827689/2025/11/21/lamelo-ball-hornets-future-trade
 **Marjorie Taylor Greene Says She Plans to Resign in January**\
 `Ms. Greene, who was elected in 2020, had positioned herself as a die-hard Trump supporter until a series of recent ruptures with the president, who recently unendorsed her.`\
 https://nytimes.com/2025/11/21/us/politics/marjorie-taylor-greene-resigns.html
-
-**On Police Footage and ‘The Perfect Neighbor’**\
-`Wesley Morris, the host of “Cannonball” at The New York Times, sits down with Parul Sehgal, a critic at large for The Times, to talk about the Netflix documentary “The Perfect Neighbor” and its use of police body camera footage.`\
-https://nytimes.com/video/podcasts/100000010540408/on-police-footage-and-the-perfect-neighbor.html
 
