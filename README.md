@@ -1,3 +1,11 @@
+**'The fix is in': George Washington basketball coach advocates for tournament expansion**\
+`Caputo bemoaned the NCAA Evaluation Tool system, saying Power 4 teams are more reluctant to schedule competitive mid-major opponents.`\
+https://nytimes.com/athletic/6827315/2025/11/21/chris-caputo-march-madness-expansion/
+
+**Mark Mellman, Who Helped Democrats Understand Their Voters, Dies at 70**\
+`A prominent pollster and political strategist, he was a key figure in John Kerry’s 2004 presidential campaign and used his prominence to speak out in defense of Israel.`\
+https://nytimes.com/2025/11/21/us/politics/mark-mellman-dead.html
+
 **Trump Praises Mamdani After White House Meeting**\
 `After months of warning voters that Zohran Mamdani posed an existential threat to New York City, President Trump showered praise on the mayor-elect at the White House on Friday.`\
 https://nytimes.com/video/us/politics/100000010540080/president-trump-zohran-mamdani-praise.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6824542/2025/11/21/twins-trevor-larnach-arbitration
 **This Is One of L.A.’s Wettest Novembers in Decades**\
 `The rain has been a stark contrast to very dry weather at the same time last year.`\
 https://nytimes.com/2025/11/21/weather/los-angeles-november-rain-record.html
-
-**Vanity Fair Is Reviewing Its Ties to Olivia Nuzzi**\
-`The magazine, which recently hired the journalist, said it had been “taken by surprise” by new claims in an essay by her former fiancé, Ryan Lizza.`\
-https://nytimes.com/2025/11/21/style/vanity-fair-is-reviewing-its-ties-to-olivia-nuzzi.html
-
-**The Unlikely Center of 2025 Politics: California**\
-`Thanks to Newsom, Trump and redistricting, the deep-blue state is in the thick of national politics.`\
-https://nytimes.com/2025/11/21/us/politics/newsom-trump-california-politics.html
 
