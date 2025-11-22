@@ -1,3 +1,7 @@
+**Stream These 5 Movies and TV Shows Before They Leave Netflix in December**\
+`Departures for U.S. subscribers next month include several classic comedies of the big and small screen — and one particularly prescient one.`\
+https://nytimes.com/2025/11/22/arts/television/netflix-leaving-december.html
+
 **Travis Head was brilliant, but England's wounds were self-inflicted. They blew their big chance**\
 `Head's devastating innings propelled the hosts to a stunning victory, but England's wasteful batting after lunch invited him to excel`\
 https://nytimes.com/athletic/6828435/2025/11/22/australia-england-stokes-head-bazball/
