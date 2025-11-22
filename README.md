@@ -1,3 +1,15 @@
+**Ukrainians Wait in Pain as Hope to Find Strike Survivors Fades**\
+`Russian missiles hit apartment buildings in Ternopil this week, far from the war’s front line. Dozens of civilians, including children, were killed.`\
+https://nytimes.com/2025/11/22/world/europe/russia-ukraine.html
+
+**How to watch Kentucky vs. Louisville women's basketball: Time, TV, streaming**\
+`Find out how to watch the Kentucky Wildcats play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6828468/2025/11/22/kentucky-vs-louisville-stream-how-to-watch-nov-22/
+
+**How to watch LIU vs. Illinois men's basketball: Time, TV, streaming**\
+`Find out how to watch the Long Island Sharks play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6828466/2025/11/22/liu-vs-illinois-stream-how-to-watch-nov-22/
+
 **Sabres bounce back with blowout win over Blackhawks. How will they respond now?**\
 `The Sabres helped themselves with 9-3 drubbing of the Blackhawks, but the challenge now for them is handling it the right way.`\
 https://nytimes.com/athletic/6828059/2025/11/22/sabres-blackhawks-win-josh-doan/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6827930/2025/11/22/mercedes-f1-valuation/
 **Connections Companion No. 896**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Nov. 23, 2025.`\
 https://nytimes.com/2025/11/22/crosswords/connections-companion-896.html
-
-**Are Fighter Jets Canada’s ‘Bargaining Chip’ in Trade Talks?**\
-`Canada began a review of its fighter jet deal with the United States after President Trump imposed tariffs. Now, Sweden is back with a sales pitch for its own jets.`\
-https://nytimes.com/2025/11/22/world/canada/trump-tariffs-fighter-jets-hoekstra.html
-
-**Strands Sidekick No. 630**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 23, 2025.`\
-https://nytimes.com/2025/11/22/crosswords/strands-sidekick-630.html
-
-**Wordle Review No. 1,618**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 23, 2025`\
-https://nytimes.com/2025/11/22/crosswords/wordle-review-1618.html
 
