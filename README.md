@@ -1,3 +1,7 @@
+**Solange Knowles Wants to Lend You a Book**\
+`The Grammy winner, now a scholar in residence at U.S.C., is expanding a one-of-a-kind library featuring rare books by writers of color. (Just mind the due date.)`\
+https://nytimes.com/2025/11/22/style/solange-saint-heron-library.html
+
 **Kawhi Leonard expected to return from ankle injury Sunday vs. Cavs: Sources**\
 `Leonard will not play Saturday when the Clippers play in Charlotte against the Hornets. `\
 https://nytimes.com/athletic/6828929/2025/11/22/kawhi-leonard-clippers-return-injury-cavaliers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6829010/2025/11/22/devils-vs-flyers-stream-how-to-w
 **How to watch Wizards vs. Bulls: Time, TV, streaming**\
 `Find out how to watch the Washington Wizards play the Chicago Bulls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6829008/2025/11/22/wizards-vs-bulls-stream-how-to-watch-nov-22/
-
-**How to watch Hawks vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the Atlanta Hawks play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6829006/2025/11/22/hawks-vs-pelicans-stream-how-to-watch-nov-22/
 

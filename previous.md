@@ -1,3 +1,11 @@
+**Kawhi Leonard expected to return from ankle injury Sunday vs. Cavs: Sources**\
+`Leonard will not play Saturday when the Clippers play in Charlotte against the Hornets. `\
+https://nytimes.com/athletic/6828929/2025/11/22/kawhi-leonard-clippers-return-injury-cavaliers/
+
+**Finally, Nico Sturm's second stint with the Wild is on the horizon: 'I can't wait'**\
+`Sturm’s eighth NHL season is expected to officially kick off Sunday afternoon when he makes his season debut in Winnipeg against the Jets.`\
+https://nytimes.com/athletic/6828854/2025/11/22/nico-sturm-minnesota-wild-2025-debut/
+
 **N.F.L. Players Are in Their Celebrity Era**\
 `The Athletic’s Jayna Bardahl reports on the rise of the N.F.L. celebrity and how it’s become common for the top stars to be as famous as non-sports celebrities.`\
 https://nytimes.com/video/the-athletic/100000010540950/nfl-players-are-in-their-celebrity-era.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6829008/2025/11/22/wizards-vs-bulls-stream-how-to-w
 **How to watch Hawks vs. Pelicans: Time, TV, streaming**\
 `Find out how to watch the Atlanta Hawks play the New Orleans Pelicans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6829006/2025/11/22/hawks-vs-pelicans-stream-how-to-watch-nov-22/
-
-**How to watch Oilers vs. Panthers: Time, TV, streaming**\
-`Find out how to watch the Edmonton Oilers play the Florida Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6829003/2025/11/22/oilers-vs-panthers-stream-how-to-watch-nov-22/
-
-**How to watch Maple Leafs vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the Toronto Maple Leafs play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6829000/2025/11/22/maple-leafs-vs-canadiens-stream-how-to-watch-nov-22/
 
