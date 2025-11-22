@@ -1,3 +1,7 @@
+**In This Scandal, the Journalists Are the Story**\
+`Love, politics and ethics collided as Olivia Nuzzi and Ryan Lizza went at it in a media sphere that rewards private revelations.`\
+https://nytimes.com/2025/11/21/style/olivia-nuzzi-ryan-lizza-rfk-jr-affair.html
+
 **Giants trade for outfielder Joey Wiemer, non-tender left-hander Joey Lucchesi**\
 `The trade for Wiemer gives San Francisco 10 outfielders on its 40-man roster, and the decision on Lucchesi was a bit of a surprise.`\
 https://nytimes.com/athletic/6827762/2025/11/21/joey-wiemer-giants-trade-offseason/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/21/opinion/zohran-mamdani-trump-meeting-white-house.
 **‘Fascist’? ‘Communist’? For an Afternoon, They Were Just 2 Guys From Queens.**\
 `Acid insults were set aside as New York’s mayor-elect and the president promoted their shared goals.`\
 https://nytimes.com/2025/11/21/us/politics/trump-mamdani-scene.html
-
-**Tyson Foods to Shut Major Beef Facility in Nebraska**\
-`The processing plant, in Lexington, employs more than 3,000 workers. It is expected to close in January.`\
-https://nytimes.com/2025/11/21/business/tyson-lexington-nebraska-closing.html
 

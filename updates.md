@@ -1,3 +1,7 @@
+**In This Scandal, the Journalists Are the Story**\
+`Love, politics and ethics collided as Olivia Nuzzi and Ryan Lizza went at it in a media sphere that rewards private revelations.`\
+https://nytimes.com/2025/11/21/style/olivia-nuzzi-ryan-lizza-rfk-jr-affair.html
+
 **Marjorie Taylor Greene Says She Plans to Resign in January**\
 `Ms. Greene, who was elected in 2020, had positioned herself as a die-hard Trump supporter until a series of recent ruptures with the president, who recently unendorsed her.`\
 https://nytimes.com/2025/11/21/us/politics/marjorie-taylor-greene-resigns.html
