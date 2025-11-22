@@ -1,3 +1,11 @@
+**Lando Norris surfs Las Vegas GP wet qualifying chaos to score pole, Lewis Hamilton last**\
+`Rain made for a treacherous qualifying session as the championship leader put himself in great position to lock down the title`\
+https://nytimes.com/athletic/6828034/2025/11/22/las-vegas-f1-qualifying-results/
+
+**Lewis Hamilton qualifies last for Las Vegas Grand Prix as Ferrari struggles continue**\
+`Hamilton was eliminated in the opening stage of qualifying Friday night as rain made for treacherous driving conditions.`\
+https://nytimes.com/athletic/6828122/2025/11/22/lewis-hamilton-ferrari-las-vegas-grand-prix-qualifying/
+
 **U.S. Defends Decision to Seek Death Penalty for Luigi Mangione**\
 `Prosecutors argue that Mr. Mangione can receive a fair trial, despite his lawyers’ concerns about “damaging” statements from the attorney general about the murder case.`\
 https://nytimes.com/2025/11/22/nyregion/luigi-mangione-death-penalty.html
