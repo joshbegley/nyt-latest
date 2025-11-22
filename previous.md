@@ -1,3 +1,7 @@
+**Blackhawks prospect Mason West gets his fairy tale ending with state football championship**\
+`Chicago's 2025 first-round pick finished his high school career as a football champion, leading Edina to the Minnesota state championship.`\
+https://nytimes.com/athletic/6829481/2025/11/22/blackhawks-prospect-mason-west-state-football-championship/
+
 **Tyronn Lue lauds James Harden's double-nickel effort: 'He carried us offensively'**\
 `Clippers coach Tyronn Lue realized James Harden was due for a special day after a red-hot first quarter.`\
 https://nytimes.com/athletic/6829537/2025/11/22/james-harden-55-points-clippers-franchise-record-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6829437/2025/11/22/fubo-subscribers-nbc-carriage-di
 **For Marjorie Taylor Greene, a Rough Education in MAGA Politics**\
 `The Georgia congresswoman strove to be both the ultimate Trump warrior and to be taken seriously. She wound up in political exile.`\
 https://nytimes.com/2025/11/22/us/politics/marjorie-taylor-greene.html
-
-**Bruce Branch III, No. 1 prospect in class of 2027, reclassifies to 2026**\
-`Branch averaged 15.9 points, 5.2 rebounds and 2.0 assists this summer playing up a level, and is now in conversation for the 2027 NBA Draft.`\
-https://nytimes.com/athletic/6829269/2025/11/22/bruce-branch-iii-reclassifies-2026/
 
