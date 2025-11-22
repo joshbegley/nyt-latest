@@ -1,3 +1,15 @@
+**Ukrainians Wait in Pain as Hope to Find Strike Survivors Fades**\
+`Russian missiles hit apartment buildings in Ternopil this week, far from the war’s front line. Dozens of civilians, including children, were killed.`\
+https://nytimes.com/2025/11/22/world/europe/russia-ukraine.html
+
+**How to watch Kentucky vs. Louisville women's basketball: Time, TV, streaming**\
+`Find out how to watch the Kentucky Wildcats play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6828468/2025/11/22/kentucky-vs-louisville-stream-how-to-watch-nov-22/
+
+**How to watch LIU vs. Illinois men's basketball: Time, TV, streaming**\
+`Find out how to watch the Long Island Sharks play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6828466/2025/11/22/liu-vs-illinois-stream-how-to-watch-nov-22/
+
 **Sabres bounce back with blowout win over Blackhawks. How will they respond now?**\
 `The Sabres helped themselves with 9-3 drubbing of the Blackhawks, but the challenge now for them is handling it the right way.`\
 https://nytimes.com/athletic/6828059/2025/11/22/sabres-blackhawks-win-josh-doan/
