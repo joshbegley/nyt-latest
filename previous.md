@@ -1,3 +1,7 @@
+**The Briefing: Newcastle 2 Manchester City 1 - How badly does this hurt City's title bid?**\
+`Two goals from Harvey Barnes gave Newcastle victory and prevented Pep Guardiola's side from closing the gap on league leaders Arsenal`\
+https://nytimes.com/athletic/6814108/2025/11/22/newcastle-2-manchester-city-1-how-badly-does-this-hurt-citys-title-bid-are-newcastle-back/
+
 **Rangers captain J.T. Miller day to day with upper-body injury**\
 `Miller's loss is significant setback for the Rangers, who are trying to get back on track after three consecutive losses.`\
 https://nytimes.com/athletic/6829164/2025/11/22/rangers-jt-miller-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/22/style/solange-saint-heron-library.html
 **Kawhi Leonard expected to return from ankle injury Sunday vs. Cavs: Sources**\
 `Leonard will not play Saturday when the Clippers play in Charlotte against the Hornets. `\
 https://nytimes.com/athletic/6828929/2025/11/22/kawhi-leonard-clippers-return-injury-cavaliers/
-
-**Finally, Nico Sturm's second stint with the Wild is on the horizon: 'I can't wait'**\
-`Sturm’s eighth NHL season is expected to officially kick off Sunday afternoon when he makes his season debut in Winnipeg against the Jets.`\
-https://nytimes.com/athletic/6828854/2025/11/22/nico-sturm-minnesota-wild-2025-debut/
 
