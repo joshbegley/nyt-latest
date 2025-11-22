@@ -1,3 +1,7 @@
+**Trump Is Mired in a War of Attrition**\
+`It’s not a winning strategy.`\
+https://nytimes.com/2025/11/22/opinion/trump-approval-opinion-confederate.html
+
 **Eagles notes: How Philly navigated a drama-filled week, Jalen Carter after ejection**\
 `The Eagles are on pace for the NFC's top seed and could clinch the division this month despite reports about the offensive struggles.`\
 https://nytimes.com/athletic/6828795/2025/11/22/eagles-jalen-hurts-cowboys-drama/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/22/us/politics/us-ukraine-peace-plan.html
 **'We're just not guarding nobody': Jimmy Butler gives honest assessment after Warriors loss**\
 `While Butler noted that he's "always optimistic," the Warriors' swingman has been frustrated with Golden State's defensive effort.`\
 https://nytimes.com/athletic/6828290/2025/11/22/jimmy-butler-warriors-blazers-defense-comments/
-
-**The Best Thing I Didn’t Bake All Year**\
-`My no-bake cranberry-cookie butter cheesecake with a crushed speculoos crust is a showstopper (if I do say so myself).`\
-https://nytimes.com/2025/11/22/dining/the-best-thing-i-didnt-bake-all-year.html
 
