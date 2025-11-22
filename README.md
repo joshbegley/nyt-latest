@@ -1,12 +1,12 @@
 **'Shellshocked' Stokes says England do not need more match practice**\
-`Australia considered sending in Nathan Lyon as an emergency opener only for Travis Head to volunteer and propel them to an eye-catching win`\
+`Captain says tourists will not change strategy ahead of pink ball Test despite crushing defeat in Perth`\
 https://nytimes.com/athletic/6828532/2025/11/22/ashes-england-stokes-australia-head-smith/
 
 **I was an athletic trainer in the NFL and MLS. Three things I wish every parent knew**\
 `Ian McMahan is a certified athletic trainer who has previously worked with the 49ers, Major League Soccer and the Women's World Cup.`\
 https://nytimes.com/athletic/6826372/2025/11/22/youth-sports-parents-tips-training-performance/
 
-**Daily Mail Owner to Buy The Telegraph, Consolidating Right-Leaning Media in Britain**\
+**Daily Mail Owner Agrees to Buy The Telegraph, Consolidating Right-Leaning Media in Britain**\
 `The deal would combine two of the country’s major newspaper groups, a move likely to attract antitrust scrutiny.`\
 https://nytimes.com/2025/11/22/business/dealbook/telegraph-daily-mail.html
 
