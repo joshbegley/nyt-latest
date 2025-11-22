@@ -1,3 +1,11 @@
+**John Green on the Cost of Internet Fame**\
+`The author John Green found an audience of millions making YouTube videos with his brother, Hank. As more people aspire to become influencers, he warns that internet fame may make it feel like everyone knows and loves you, “but in fact, no one knows you.”`\
+https://nytimes.com/video/podcasts/100000010541053/john-green-on-the-cost-of-internet-fame.html
+
+**Submit your questions for Dane Brugler and Nick Baumgardner's NFL Draft mailbag**\
+`Which prospects are you tracking? Are there perfect draft fits for your favorite NFL team? Ask our draft experts your questions here.`\
+https://nytimes.com/athletic/6828881/2025/11/22/questions-dane-brugler-nick-baumgardners-nfl-draft-mailbag/
+
 **20 Killed in Israeli Strikes as Israel and Hamas Trade Blame Over Truce**\
 `Violence has repeatedly flared up in the weeks since a cease-fire was reached, killing hundreds of Palestinians and at least three Israeli soldiers.`\
 https://nytimes.com/2025/11/22/world/middleeast/israeli-strikes-gaza.html
