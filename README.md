@@ -1,3 +1,7 @@
+**Bruce Branch III, No. 1 prospect in class of 2027, reclassifies to 2026**\
+`Branch averaged 15.9 points, 5.2 rebounds and 2.0 assists this summer playing up a level, and is now in conversation for the 2027 NBA Draft.`\
+https://nytimes.com/athletic/6829269/2025/11/22/bruce-branch-iii-reclassifies-2026/
+
 **Greene’s Exit Deals A Blow to G.O.P., Putting Rifts on Display**\
 `Representative Marjorie Taylor Greene’s sudden resignation underscored the fragility of the G.O.P. majority, and exposed deep discontent on the right going into the midterm elections.`\
 https://nytimes.com/2025/11/22/us/politics/marjorie-taylor-greene-republicans.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/22/arts/dorothy-vogel-dead.html
 **An A.I. Toy Bear Speaks of Sex, Knives and Pills, a Consumer Group Warns**\
 `The chatter left startled adults unsure whether they heard correctly. Testers warned that interactive toys like this one could allow children to stray into inappropriate exchanges.`\
 https://nytimes.com/2025/11/22/us/folotoy-ai-bear-suspended-explicit-advice.html
-
-**Abortion Is Once Again Illegal in North Dakota**\
-`On Friday, a state Supreme Court ruling reinstated a near-total abortion ban, reversing a judge’s earlier decision.`\
-https://nytimes.com/2025/11/22/us/politics/abortion-illegal-north-dakota.html
 
