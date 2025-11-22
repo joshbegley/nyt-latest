@@ -1,3 +1,7 @@
+**Cooper Flagg gets revenge against former teammate Derik Queen as Mavs beat Pelicans**\
+`Flagg and Queen have engaged in friendly banter this month, but the high school teammates' respect level for each other remains high.`\
+https://nytimes.com/athletic/6828177/2025/11/22/cooper-flagg-gets-revenge-against-former-teammate-derik-queen-as-mavs-beat-pelicans/
+
 **Anaheim Ducks stock report: Who's up, who's down after a quarter of the season?**\
 `The Ducks have cooled after a hot start, but which players deserve the most credit for helping them top the division?`\
 https://nytimes.com/athletic/6826909/2025/11/22/anaheim-ducks-stock-report-quarter-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6827568/2025/11/22/lebron-james-cade-cunningham-tyr
 **Rain came for Las Vegas GP qualifying and brought out the best in F1's drivers**\
 `Drivers thought Vegas' track "felt like ice" on Saturday, but it didn't keep them from putting on a show`\
 https://nytimes.com/athletic/6828228/2025/11/22/las-vegas-gp-qualifying-rain/
-
-**How the Buffalo Bills team, fans and city embraced their new Hallmark holiday rom-com**\
-`"I don't think there's a better brand or market for a holiday-type movie than the Bills," team COO Pete Guelli told The Athletic.`\
-https://nytimes.com/athletic/6825479/2025/11/22/buffalo-bills-holiday-touchdown-christmas-hallmark-movie/
 

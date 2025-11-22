@@ -1,3 +1,11 @@
+**Anaheim Ducks stock report: Who's up, who's down after a quarter of the season?**\
+`The Ducks have cooled after a hot start, but which players deserve the most credit for helping them top the division?`\
+https://nytimes.com/athletic/6826909/2025/11/22/anaheim-ducks-stock-report-quarter-season/
+
+**'Eight years in one': Spirit, Gotham meet in NWSL Championship after packed season**\
+`The two teams played more games than most this year and still reached the championship, highlighting some benefits to heavier schedules.`\
+https://nytimes.com/athletic/6828554/2025/11/22/washington-spirit-gotham-fc-schedule-nwsl-championship/
+
 **Stream These 5 Movies and TV Shows Before They Leave Netflix in December**\
 `Departures for U.S. subscribers next month include several classic comedies of the big and small screen — and one particularly prescient one.`\
 https://nytimes.com/2025/11/22/arts/television/netflix-leaving-december.html
