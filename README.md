@@ -1,3 +1,7 @@
+**The Aftermath of a Deadly Strike in Western Ukraine**\
+`At the site of an apartment building in western Ukraine where a Russian strike killed dozens of people, the New York Times reporter Kim Barker heard reactions to a 28-point U.S. proposal to end the war.`\
+https://nytimes.com/video/world/europe/100000010538311/the-aftermath-of-a-deadly-strike-in-western-ukraine.html
+
 **New Orleans, a City of Service Workers, Braces for an Immigration Crackdown**\
 `Louisiana officials have been eager for a federal intervention, but planned Border Patrol operations have stoked fear in the city’s immigrant work force.`\
 https://nytimes.com/2025/11/22/us/new-orleans-a-city-of-service-workers-braces-for-an-immigration-crackdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/22/realestate/can-i-pass-my-co-op-unit-to-my-partner
 **In Charlotte, Border Patrol Arrests Send Families Into Hiding**\
 `After Border Patrol agents showed up to an afterschool care facility for immigrant children in Charlotte, N.`\
 https://nytimes.com/video/us/100000010532310/charlotte-immigration-arrests.html
-
-**The War of the Rose Bowl**\
-`The storied stadium is at the center of a battle between Pasadena and U.C.L.A. that’s about money, nostalgia, geography and so much more.`\
-https://nytimes.com/2025/11/22/us/rose-bowl-pasadena-ucla.html
 
