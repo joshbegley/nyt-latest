@@ -1,3 +1,7 @@
+**‘Wicked: For Good’ Takes Flight**\
+`The movie is expected to take in about $151.5 million from Friday through Sunday, earning 35 percent more than the first installment  last year.`\
+https://nytimes.com/2025/11/22/business/media/wicked-for-good-box-office.html
+
 **Red Sox's Garrett Whitlock announces he will play for Team USA in World Baseball Classic**\
 `Whitlock posted a 2.25 ERA in 62 appearances as the Red Sox returned to the postseason. `\
 https://nytimes.com/athletic/6829425/2025/11/22/garrett-whitlock-team-usa-world-baseball-classic/
@@ -15,7 +19,7 @@ https://nytimes.com/2025/11/22/arts/dorothy-vogel-dead.html
 https://nytimes.com/2025/11/22/us/folotoy-ai-bear-suspended-explicit-advice.html
 
 **Abortion Is Once Again Illegal in North Dakota**\
-`On Friday, a state Supreme Court ruling reinstated a near-total abortion ban, making North Dakota the 13th state to do so.`\
+`On Friday, a state Supreme Court ruling reinstated a near-total abortion ban, reversing a judge’s earlier decision.`\
 https://nytimes.com/2025/11/22/us/politics/abortion-illegal-north-dakota.html
 
 **The Las Vegas GP trophy took a local designer, a blowtorch, and desert soul to get right**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6829323/2025/11/22/ohio-state-rutgers-football-scor
 **Oklahoma in prime position to earn CFP bid after defense dominates Missouri**\
 `The Sooners will secure an at-large bid with a win over LSU next week, but is this team good enough on offense to make a run? `\
 https://nytimes.com/athletic/6829201/2025/11/22/oklahoma-missouri-score-result/
-
-**Lemurs in Madagascar Face an Unexpected Killer**\
-`Thousands of the endangered primates end up on the dinner plates of people in the upper rung of the country’s society who have money to spare.`\
-https://nytimes.com/2025/11/22/science/lemurs-madagascar-eating.html
 

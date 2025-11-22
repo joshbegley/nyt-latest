@@ -1,3 +1,11 @@
+**‘Wicked: For Good’ Takes Flight**\
+`The movie is expected to take in about $151.5 million from Friday through Sunday, earning 35 percent more than the first installment  last year.`\
+https://nytimes.com/2025/11/22/business/media/wicked-for-good-box-office.html
+
+**Abortion Is Once Again Illegal in North Dakota**\
+`On Friday, a state Supreme Court ruling reinstated a near-total abortion ban, reversing a judge’s earlier decision.`\
+https://nytimes.com/2025/11/22/us/politics/abortion-illegal-north-dakota.html
+
 **Red Sox's Garrett Whitlock announces he will play for Team USA in World Baseball Classic**\
 `Whitlock posted a 2.25 ERA in 62 appearances as the Red Sox returned to the postseason. `\
 https://nytimes.com/athletic/6829425/2025/11/22/garrett-whitlock-team-usa-world-baseball-classic/
