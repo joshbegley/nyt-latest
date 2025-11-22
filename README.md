@@ -1,3 +1,7 @@
+**Epstein and the #MeToo of It All**\
+`“You need this renewal. You need new figures who are untouched, who were never part of these awful power games,” the columnist Lydia Polgreen argues.`\
+https://nytimes.com/video/opinion/100000010536249/epstein-and-the-metoo-of-it-all.html
+
 **European Leaders to Discuss Support for Ukraine in Response to U.S. Peace Plan**\
 `The meeting is scheduled for Saturday afternoon on the sidelines of the G20 summit in South Africa. The White House plan calls for Ukraine to make significant concessions to Russia.`\
 https://nytimes.com/2025/11/22/world/africa/g20-south-africa-ukraine-russia-united-states.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6828466/2025/11/22/liu-vs-illinois-stream-how-to-wa
 **Sabres bounce back with blowout win over Blackhawks. How will they respond now?**\
 `The Sabres helped themselves with 9-3 drubbing of the Blackhawks, but the challenge now for them is handling it the right way.`\
 https://nytimes.com/athletic/6828059/2025/11/22/sabres-blackhawks-win-josh-doan/
-
-**Penguins return home with a thud vs. Wild as injuries may be taking a toll: 10 observations**\
-`The Penguins served up their worst performance of the season in Friday's 5-0 loss on home ice against the Wild.`\
-https://nytimes.com/athletic/6827907/2025/11/22/penguins-wild-injuries-loss-observations/
 
