@@ -1,3 +1,11 @@
+**Clippers' Chris Paul to retire after 2025-26 NBA season**\
+`Paul is a 12-time All-Star, an 11-time All-NBA selection, and a nine-time All-Defense selection.`\
+https://nytimes.com/athletic/6828874/2025/11/22/chris-paul-retiring-clippers-rockets-suns-hornets-nba/
+
+**Liverpool 0 Nottingham Forest 3: Slot's side hits a new low - but can it get worse?**\
+`Discussing the major talking points after the reigning champions plumbed new depths at Anfield`\
+https://nytimes.com/athletic/6814107/2025/11/22/liverpool-nottingham-forest-result-analysis/
+
 **Climate Talks End With Dire Warnings and Scant Plans for Action**\
 `The first U.S. absence in the history of the talks created an opening, diplomats said, for oil-producing nations to push their agenda.`\
 https://nytimes.com/2025/11/22/climate/cop30-climate-summit-ends-belem.html
