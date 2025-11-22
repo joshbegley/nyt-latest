@@ -1,3 +1,7 @@
+**Giants trade for outfielder Joey Wiemer, non-tender left-hander Joey Lucchesi**\
+`The trade for Wiemer gives San Francisco 10 outfielders on its 40-man roster, and the decision on Lucchesi was a bit of a surprise.`\
+https://nytimes.com/athletic/6827762/2025/11/21/joey-wiemer-giants-trade-offseason/
+
 **LaMelo Ball says report about growing frustration with Hornets is 'false info'**\
 `A Yahoo! Sports report published Thursday said Ball has "grown increasingly frustrated" with the franchise and would be open to a trade.`\
 https://nytimes.com/athletic/6827689/2025/11/21/lamelo-ball-hornets-future-trade-rumors-false-info/

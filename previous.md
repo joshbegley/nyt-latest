@@ -1,3 +1,7 @@
+**Giants trade for outfielder Joey Wiemer, non-tender left-hander Joey Lucchesi**\
+`The trade for Wiemer gives San Francisco 10 outfielders on its 40-man roster, and the decision on Lucchesi was a bit of a surprise.`\
+https://nytimes.com/athletic/6827762/2025/11/21/joey-wiemer-giants-trade-offseason/
+
 **LaMelo Ball says report about growing frustration with Hornets is 'false info'**\
 `A Yahoo! Sports report published Thursday said Ball has "grown increasingly frustrated" with the franchise and would be open to a trade.`\
 https://nytimes.com/athletic/6827689/2025/11/21/lamelo-ball-hornets-future-trade-rumors-false-info/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/21/us/politics/trump-mamdani-scene.html
 **Tyson Foods to Shut Major Beef Facility in Nebraska**\
 `The processing plant, in Lexington, employs more than 3,000 workers. It is expected to close in January.`\
 https://nytimes.com/2025/11/21/business/tyson-lexington-nebraska-closing.html
-
-**Trump Says Violence Against Christians in Nigeria Is ‘Genocide.’ It’s Not So Simple.**\
-`There are widespread attacks across the country affecting many religious and ethnic groups. Many of them defy a simple explanation.`\
-https://nytimes.com/2025/11/21/world/africa/nigeria-trump-genocide-claims.html
 
