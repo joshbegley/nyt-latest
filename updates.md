@@ -1,3 +1,15 @@
+**Protesters Interrupt a Performance of ‘Carmen’ at the Met Opera**\
+`One of the protesters, who were arrested and removed from the hall, denounced the billionaire David H. Koch.`\
+https://nytimes.com/2025/11/21/arts/music/protesters-met-opera-carmen.html
+
+**Rick Barry: Warriors' 1975 title was 'biggest upset' in major American sports history**\
+`"I defy anybody to point something else out that was as dramatic as what we did," Barry said of his team's 4-0 sweep over the Bullets.`\
+https://nytimes.com/athletic/6827954/2025/11/21/rick-barry-warriors-upset-1975-title/
+
+**Raptors become first team to advance to NBA Cup knockout round**\
+`With their sixth straight win, Toronto also advanced to the knockout stage of the NBA Cup for the first time in its history.`\
+https://nytimes.com/athletic/6826941/2025/11/21/raptors-nba-cup-standings-knockout-round/
+
 **Wild keep winning ways going, record third shutout in 6 games: Takeaways**\
 `Filip Gustavsson recorded his 13th career shutout — and the Wild's league-leading fourth shutout this season — in a 5-0 win over Pittsburgh.`\
 https://nytimes.com/athletic/6827552/2025/11/21/wild-penguins-filip-gustavsson-takeaways/
