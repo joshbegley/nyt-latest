@@ -1,3 +1,11 @@
+**Wrexham spent £7.5m on Nathan Broadhead. They need more from him**\
+`The former Ipswich striker is the Welsh club's record signing but needs to start delivering `\
+https://nytimes.com/athletic/6822645/2025/11/22/wrexham-nathan-broadhead-transfer-record/
+
+**Security Lapse Allowed Protesters to Disrupt Performance, Met Opera Says**\
+`Peter Gelb, the Met’s general manager, said a security guard was absent from his post when two people climbed onstage at a performance of “Carmen.”`\
+https://nytimes.com/2025/11/22/arts/music/met-opera-protest-security-lapse.html
+
 **Two UAB football players injured by teammate ahead of South Florida game**\
 `UAB said the suspect is in custody and there is no threat to campus. An investigation is underway.`\
 https://nytimes.com/athletic/6829212/2025/11/22/uab-football-player-injuries-team-facility/
