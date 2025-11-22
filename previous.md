@@ -1,3 +1,7 @@
+**John Green Knows That No One Really Loves You on the Internet**\
+`The writer and YouTube star on trying to get back to the experiences that make us feel alive.`\
+https://nytimes.com/2025/11/22/magazine/john-green-interview.html
+
 **The Aftermath of a Deadly Strike in Western Ukraine**\
 `At the site of an apartment building in western Ukraine where a Russian strike killed dozens of people, the New York Times reporter Kim Barker heard reactions to a 28-point U.S. proposal to end the war.`\
 https://nytimes.com/video/world/europe/100000010538311/the-aftermath-of-a-deadly-strike-in-western-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/22/us/politics/john-larson-connecticut-congress-elec
 **Can I Pass My Co-op Unit to My Partner if We’re Not Married?**\
 `Many co-op leases allow for graduated levels of board approval for heirs who want to live in the building.`\
 https://nytimes.com/2025/11/22/realestate/can-i-pass-my-co-op-unit-to-my-partner-if-were-not-married.html
-
-**In Charlotte, Border Patrol Arrests Send Families Into Hiding**\
-`After Border Patrol agents showed up to an afterschool care facility for immigrant children in Charlotte, N.`\
-https://nytimes.com/video/us/100000010532310/charlotte-immigration-arrests.html
 
