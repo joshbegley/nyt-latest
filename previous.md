@@ -1,5 +1,9 @@
-**Las Vegas GP repairs 14 manhole covers ahead of final F1 practice**\
-`F1 race officials have reinforced manhole covers at 14 spots around the Las Vegas GP circuit after an issue with one was discovered in FP2`\
+**Comey Seeks to Dismiss Charges Based on Grand Jury Errors**\
+`The request to dismiss the case came after Lindsey Halligan acknowledged she had never shown a final version of the indictment to the entire grand jury for a vote.`\
+https://nytimes.com/2025/11/21/us/politics/comey-halligan-dismiss-charges.html
+
+**Las Vegas GP repairs 15 manhole covers ahead of final F1 practice**\
+`F1 race officials have reinforced manhole covers at 15 spots around the Las Vegas GP circuit after an issue with one was discovered in FP2`\
 https://nytimes.com/athletic/6827609/2025/11/21/las-vegas-gp-manholes-repaired/
 
 **'The fix is in': George Washington basketball coach advocates for tournament expansion**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/africa/100000010540223/south-africa-g20-summit-p
 **49ers preparing for stunning split with star receiver Brandon Aiyuk**\
 `Aiyuk has not yet played this season, and while the 49ers are holding out hope, a reconciliation appears unlikely.`\
 https://nytimes.com/athletic/6826885/2025/11/21/brandon-aiyuk-49ers-news-contract-guaranteed-money-release/
-
-**Twins bring back Trevor Larnach despite crowded outfield, trade for backup catcher**\
-`Larnach will compete for playing time in the corners with fellow left-handers Matt Wallner and Alan Roden, along with James Outman. `\
-https://nytimes.com/athletic/6824542/2025/11/21/twins-trevor-larnach-arbitration-contract/
 
