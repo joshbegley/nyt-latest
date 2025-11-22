@@ -1,3 +1,11 @@
+**Bulls baffled by instant Kevin Huerter ejection: 'I didn’t get much explanation'**\
+`The Bulls' guard was tossed after he slapped at the ball in frustration after a foul call, hitting a referee. He said it was an accident.`\
+https://nytimes.com/athletic/6828153/2025/11/22/kevin-huerter-ejection-bulls-tony-brothers/
+
+**Lando Norris surfs Las Vegas GP's slippery qualifying chaos, scores crucial pole**\
+`Lando Norris navigated wild and wet conditions to secure pole position for Formula One&#8217;s 2025 Las Vegas Grand Prix, with Max Verstappen second for Red Bull.`\
+https://nytimes.com/athletic/6828034/2025/11/22/las-vegas-f1-qualifying-results/
+
 **The New York Times in Print for Saturday, Nov. 22, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/22/todays-new-york-times
