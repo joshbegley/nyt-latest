@@ -1,3 +1,11 @@
+**Trump Shows His Power, and Greene Reveals His Weakness**\
+`As the president forced a onetime loyalist from Congress, her defiant departure signaled a coming debate over Republican identity in a post-Trump era.`\
+https://nytimes.com/2025/11/22/us/politics/marjorie-taylor-greene-trump-republicans.html
+
+**Actress Issa Rae immerses herself in MLS, San Diego FC after buying into club **\
+`The celebrity owner's investment in the MLS expansion club is more than just a financial transaction`\
+https://nytimes.com/athletic/6826596/2025/11/22/issa-rae-san-diego-fc-ownership-senegal/
+
 **U.S. and Ukrainian Officials to Meet Again on U.S. Peace Plan**\
 `In the Trump administration’s latest effort to pressure Ukraine into accepting a 28-point peace plan, officials from the two countries will hold talks in Geneva.`\
 https://nytimes.com/2025/11/22/us/politics/us-ukraine-peace-plan.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6828031/2025/11/22/nfl-rumors-news-joe-burrow-brand
 **One Killed and 8 Teenagers Wounded in Chicago Shootings**\
 `Seven people, ages 13 to 17 were shot at a downtown gathering by the Chicago Theater. A second shooting left a man dead and another teenager in serious condition.`\
 https://nytimes.com/2025/11/22/us/chicago-state-street-shooting.html
-
-**The Briefing: Burnley 0 Chelsea 2 — Should Chalobah-Sanchez incident have led to a penalty? Is Neto underrated?**\
-`Enzo Maresca's side went up to second in the Premier League, at least temporarily, with victory at Turf Moor`\
-https://nytimes.com/athletic/6814106/2025/11/22/burnley-0-chelsea-2-sanchez-chalobah-penalty/
-
-**OSU down 2 standout WRs vs. Rutgers: What it means for Michigan game**\
-`Even without their two star receivers, the Buckeyes are overwhelming favorites against Rutgers. But what about Michigan in Week 14?`\
-https://nytimes.com/athletic/6828600/2025/11/22/ohio-state-jeremiah-smith-carnell-tate-status/
 

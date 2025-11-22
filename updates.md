@@ -1,3 +1,11 @@
+**Trump Shows His Power, and Greene Reveals His Weakness**\
+`As the president forced a onetime loyalist from Congress, her defiant departure signaled a coming debate over Republican identity in a post-Trump era.`\
+https://nytimes.com/2025/11/22/us/politics/marjorie-taylor-greene-trump-republicans.html
+
+**Actress Issa Rae immerses herself in MLS, San Diego FC after buying into club **\
+`The celebrity owner's investment in the MLS expansion club is more than just a financial transaction`\
+https://nytimes.com/athletic/6826596/2025/11/22/issa-rae-san-diego-fc-ownership-senegal/
+
 **U.S. and Ukrainian Officials to Meet Again on U.S. Peace Plan**\
 `In the Trump administration’s latest effort to pressure Ukraine into accepting a 28-point peace plan, officials from the two countries will hold talks in Geneva.`\
 https://nytimes.com/2025/11/22/us/politics/us-ukraine-peace-plan.html
