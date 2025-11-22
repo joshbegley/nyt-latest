@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6828034/2025/11/22/las-vegas-f1-qualifying-results/
 
 **Lewis Hamilton qualifies last for Las Vegas Grand Prix as Ferrari struggles continue**\
-`Hamilton was eliminated in the opening stage of qualifying Friday night as rain made for treacherous driving conditions.`\
+`Hamilton was eliminated in the opening stage of qualifying Friday as rain made for treacherous driving conditions on the Las Vegas track.`\
 https://nytimes.com/athletic/6828122/2025/11/22/lewis-hamilton-ferrari-las-vegas-grand-prix-qualifying/
 
 **U.S. Defends Decision to Seek Death Penalty for Luigi Mangione**\
