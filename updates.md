@@ -1,3 +1,7 @@
+**The Aftermath of a Deadly Strike in Western Ukraine**\
+`At the site of an apartment building in western Ukraine where a Russian strike killed dozens of people, the New York Times reporter Kim Barker heard reactions to a 28-point U.S. proposal to end the war.`\
+https://nytimes.com/video/world/europe/100000010538311/the-aftermath-of-a-deadly-strike-in-western-ukraine.html
+
 **New Orleans, a City of Service Workers, Braces for an Immigration Crackdown**\
 `Louisiana officials have been eager for a federal intervention, but planned Border Patrol operations have stoked fear in the city’s immigrant work force.`\
 https://nytimes.com/2025/11/22/us/new-orleans-a-city-of-service-workers-braces-for-an-immigration-crackdown.html
