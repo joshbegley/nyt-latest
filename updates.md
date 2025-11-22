@@ -1,3 +1,15 @@
+**Abortion Is Once Again Illegal in North Dakota**\
+`On Friday, a state Supreme Court ruling reinstated a near-total abortion ban, making North Dakota the 13th state to do so.`\
+https://nytimes.com/2025/11/22/us/politics/abortion-illegal-north-dakota.html
+
+**The Las Vegas GP trophy took a local designer, a blowtorch, and desert soul to get right**\
+`It took five months to design and build the Las Vegas GP trophy, which reflects an evolving twist on one of F1's oldest traditions`\
+https://nytimes.com/athletic/6829230/2025/11/22/f1-las-vegas-gp-trophy-design/
+
+**Easy Ohio State win vs. Rutgers clouded by WR injuries ahead of Michigan: Key takeaways**\
+`Ohio State cruised against Rutgers, 42-9, without standout WRs Jeremiah Smith and Carnell Tate. But how concerning was their absence?`\
+https://nytimes.com/athletic/6829323/2025/11/22/ohio-state-rutgers-football-score-result-injuries/
+
 **Oklahoma in prime position to earn CFP bid after defense dominates Missouri**\
 `The Sooners will secure an at-large bid with a win over LSU next week, but is this team good enough on offense to make a run? `\
 https://nytimes.com/athletic/6829201/2025/11/22/oklahoma-missouri-score-result/

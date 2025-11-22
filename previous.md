@@ -1,3 +1,15 @@
+**Abortion Is Once Again Illegal in North Dakota**\
+`On Friday, a state Supreme Court ruling reinstated a near-total abortion ban, making North Dakota the 13th state to do so.`\
+https://nytimes.com/2025/11/22/us/politics/abortion-illegal-north-dakota.html
+
+**The Las Vegas GP trophy took a local designer, a blowtorch, and desert soul to get right**\
+`It took five months to design and build the Las Vegas GP trophy, which reflects an evolving twist on one of F1's oldest traditions`\
+https://nytimes.com/athletic/6829230/2025/11/22/f1-las-vegas-gp-trophy-design/
+
+**Easy Ohio State win vs. Rutgers clouded by WR injuries ahead of Michigan: Key takeaways**\
+`Ohio State cruised against Rutgers, 42-9, without standout WRs Jeremiah Smith and Carnell Tate. But how concerning was their absence?`\
+https://nytimes.com/athletic/6829323/2025/11/22/ohio-state-rutgers-football-score-result-injuries/
+
 **Oklahoma in prime position to earn CFP bid after defense dominates Missouri**\
 `The Sooners will secure an at-large bid with a win over LSU next week, but is this team good enough on offense to make a run? `\
 https://nytimes.com/athletic/6829201/2025/11/22/oklahoma-missouri-score-result/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6829315/2025/11/22/kings-vs-nuggets-stream-how-to-w
 **How to watch Golden Knights vs. Ducks: Time, TV, streaming**\
 `Find out how to watch the Vegas Golden Knights play the Anaheim Ducks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6829313/2025/11/22/golden-knights-vs-ducks-stream-how-to-watch-nov-22/
-
-**Wrexham spent £7.5m on Nathan Broadhead. They need more from him**\
-`The former Ipswich striker is the Welsh club's record signing but needs to start delivering `\
-https://nytimes.com/athletic/6822645/2025/11/22/wrexham-nathan-broadhead-transfer-record/
-
-**Security Lapse Allowed Protesters to Disrupt Performance, Met Opera Says**\
-`Peter Gelb, the Met’s general manager, said a security guard was absent from his post when two people climbed onstage at a performance of “Carmen.”`\
-https://nytimes.com/2025/11/22/arts/music/met-opera-protest-security-lapse.html
-
-**Two UAB football players injured by teammate ahead of South Florida game**\
-`UAB said the suspect is in custody and there is no threat to campus. An investigation is underway.`\
-https://nytimes.com/athletic/6829212/2025/11/22/uab-football-player-injuries-team-facility/
 
