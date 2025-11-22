@@ -1,6 +1,6 @@
 **Trump Shows His Power, and Greene Reveals His Weakness**\
 `As the president forced a onetime loyalist from Congress, her defiant departure signaled a coming debate over Republican identity in a post-Trump era.`\
-https://nytimes.com/2025/11/22/us/politics/mtg-trump-republicans.html
+https://nytimes.com/2025/11/22/us/politics/marjorie-taylor-greene-trump-republicans.html
 
 **Actress Issa Rae immerses herself in MLS, San Diego FC after buying into club **\
 `The celebrity owner's investment in the MLS expansion club is more than just a financial transaction`\
