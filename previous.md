@@ -1,3 +1,15 @@
+**Bruce Branch III, No. 1 prospect in class of 2027, reclassifies to 2026**\
+`Branch averaged 15.9 points, 5.2 rebounds and 2.0 assists this summer playing up a level, and is now in conversation for the 2027 NBA Draft.`\
+https://nytimes.com/athletic/6829269/2025/11/22/bruce-branch-iii-reclassifies-2026/
+
+**Greene’s Exit Deals A Blow to G.O.P., Putting Rifts on Display**\
+`Representative Marjorie Taylor Greene’s sudden resignation underscored the fragility of the G.O.P. majority, and exposed deep discontent on the right going into the midterm elections.`\
+https://nytimes.com/2025/11/22/us/politics/marjorie-taylor-greene-republicans.html
+
+**Kings’ Darcy Kuemper apologizes for sticking leg out at Bruins’ David Pastrnak**\
+`"I take the apology and move forward,” Pastrnak said of the incident that occurred after Boston's 2-1 overtime win in L.A. on Friday.  `\
+https://nytimes.com/athletic/6829456/2025/11/22/kings-bruins-darcy-kuemper-david-pastrnak/
+
 **Rodney Rogers, Wake Forest star who suffered spinal cord injury, dies at 54**\
 `Rogers played 12 NBA seasons after a decorated career at Wake Forest, where he had his No. 54 jersey retired in 1996.`\
 https://nytimes.com/athletic/6829104/2025/11/22/rodney-rogers-wake-forest-dies-suns-nuggets-nba/
@@ -21,16 +33,4 @@ https://nytimes.com/2025/11/22/arts/dorothy-vogel-dead.html
 **An A.I. Toy Bear Speaks of Sex, Knives and Pills, a Consumer Group Warns**\
 `The chatter left startled adults unsure whether they heard correctly. Testers warned that interactive toys like this one could allow children to stray into inappropriate exchanges.`\
 https://nytimes.com/2025/11/22/us/folotoy-ai-bear-suspended-explicit-advice.html
-
-**Abortion Is Once Again Illegal in North Dakota**\
-`On Friday, a state Supreme Court ruling reinstated a near-total abortion ban, reversing a judge’s earlier decision.`\
-https://nytimes.com/2025/11/22/us/politics/abortion-illegal-north-dakota.html
-
-**The Las Vegas GP trophy took a local designer, a blowtorch, and desert soul to get right**\
-`It took five months to design and build the Las Vegas GP trophy, which reflects an evolving twist on one of F1's oldest traditions`\
-https://nytimes.com/athletic/6829230/2025/11/22/f1-las-vegas-gp-trophy-design/
-
-**College Football Playoff 2025 projections: Oklahoma closing in on bid with Week 13 underway**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/11/22/college-football-playoff-bracket-projections-odds/
 
