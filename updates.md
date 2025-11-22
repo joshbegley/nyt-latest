@@ -1,3 +1,11 @@
+**Trump taps Jack Nicklaus for Joint Base Andrews golf courses' makeover**\
+`Trump said that Nicklaus will act as both architect and designer for the project. "We can — for very little money — fix it up," Trump said.`\
+https://nytimes.com/athletic/6829445/2025/11/22/trump-jack-nicklaus-joint-base-andrews-golf-course-renovation/
+
+**Fubo subscribers lose access to NBC and its networks over carriage dispute**\
+`Subscribers were unable to watch several college football games and Premier League matches Saturday.`\
+https://nytimes.com/athletic/6829437/2025/11/22/fubo-subscribers-nbc-carriage-dispute/
+
 **For Marjorie Taylor Greene, a Rough Education in MAGA Politics**\
 `The Georgia congresswoman strove to be both the ultimate Trump warrior and to be taken seriously. She wound up in political exile.`\
 https://nytimes.com/2025/11/22/us/politics/marjorie-taylor-greene.html

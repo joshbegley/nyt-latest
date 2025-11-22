@@ -1,3 +1,11 @@
+**As Blue Jackets blow another lead, Dean Evason isn't concerned: 'I'm not focused on it'**\
+`It was a familiar script for the Blue Jackets, as they blew another third-period lead and lost in overtime to the Red Wings on Saturday.`\
+https://nytimes.com/athletic/6829452/2025/11/22/blue-jackets-red-wings-dean-evason/
+
+**2 Texas Men Plotted Coup of Haitian Island to Enslave Women and Children, U.S. Says**\
+`The men, who planned to recruit homeless people for the invasion, took Haitian Creole classes and one enrolled in the U.S. Air Force to prepare for an attack by sailboat, prosecutors said.`\
+https://nytimes.com/2025/11/22/us/texas-men-haiti-island-takeover-plot.html
+
 **Trump taps Jack Nicklaus for Joint Base Andrews golf courses' makeover**\
 `Trump said that Nicklaus will act as both architect and designer for the project. "We can — for very little money — fix it up," Trump said.`\
 https://nytimes.com/athletic/6829445/2025/11/22/trump-jack-nicklaus-joint-base-andrews-golf-course-renovation/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6829456/2025/11/22/kings-bruins-darcy-kuemper-david
 **Rodney Rogers, Wake Forest star who suffered spinal cord injury, dies at 54**\
 `Rogers played 12 NBA seasons after a decorated career at Wake Forest, where he had his No. 54 jersey retired in 1996.`\
 https://nytimes.com/athletic/6829104/2025/11/22/rodney-rogers-wake-forest-dies-suns-nuggets-nba/
-
-**‘Wicked: For Good’ Takes Flight**\
-`The movie is expected to take in about $151.5 million from Friday through Sunday, earning 35 percent more than the first installment  last year.`\
-https://nytimes.com/2025/11/22/business/media/wicked-for-good-box-office.html
-
-**Red Sox's Garrett Whitlock announces he will play for Team USA in World Baseball Classic**\
-`Whitlock posted a 2.25 ERA in 62 appearances as the Red Sox returned to the postseason. `\
-https://nytimes.com/athletic/6829425/2025/11/22/garrett-whitlock-team-usa-world-baseball-classic/
 

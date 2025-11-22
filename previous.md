@@ -1,3 +1,11 @@
+**Trump taps Jack Nicklaus for Joint Base Andrews golf courses' makeover**\
+`Trump said that Nicklaus will act as both architect and designer for the project. "We can — for very little money — fix it up," Trump said.`\
+https://nytimes.com/athletic/6829445/2025/11/22/trump-jack-nicklaus-joint-base-andrews-golf-course-renovation/
+
+**Fubo subscribers lose access to NBC and its networks over carriage dispute**\
+`Subscribers were unable to watch several college football games and Premier League matches Saturday.`\
+https://nytimes.com/athletic/6829437/2025/11/22/fubo-subscribers-nbc-carriage-dispute/
+
 **For Marjorie Taylor Greene, a Rough Education in MAGA Politics**\
 `The Georgia congresswoman strove to be both the ultimate Trump warrior and to be taken seriously. She wound up in political exile.`\
 https://nytimes.com/2025/11/22/us/politics/marjorie-taylor-greene.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/11/22/business/media/wicked-for-good-box-office.html
 **Red Sox's Garrett Whitlock announces he will play for Team USA in World Baseball Classic**\
 `Whitlock posted a 2.25 ERA in 62 appearances as the Red Sox returned to the postseason. `\
 https://nytimes.com/athletic/6829425/2025/11/22/garrett-whitlock-team-usa-world-baseball-classic/
-
-**Yale defeats Harvard, earns first-ever Ivy League bid to FCS playoffs**\
-`The Ivy League approved a proposal in the offseason that will allow its teams to participate in the FCS postseason tournament.`\
-https://nytimes.com/athletic/6829191/2025/11/22/yale-beats-harvard-fcs-playoffs/
-
-**Dorothy Vogel, Librarian With a Vast Art Collection, Dies at 90**\
-`On modest civil servants’ salaries, she and her husband amassed a trove of some 4,000 works by art-world luminaries, storing them in their one-bedroom Manhattan apartment.`\
-https://nytimes.com/2025/11/22/arts/dorothy-vogel-dead.html
 
