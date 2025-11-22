@@ -1,3 +1,7 @@
+**A Cancer Diagnosis Brings a New Season of Grief to the Kennedy Family**\
+`Tatiana Schlossberg, the daughter of Caroline Kennedy, revealed a terminal cancer diagnosis in an essay published on the anniversary of her grandfather’s assassination.`\
+https://nytimes.com/2025/11/22/us/tatiana-schlossberg-kennedy-cancer.html
+
 **Kyle Shanahan confirms 49ers voided Brandon Aiyuk’s guarantees**\
 `Shanahan said the 49ers had hoped to have Aiyuk back on the field by now, but his progress has plateaued.`\
 https://nytimes.com/athletic/6829442/2025/11/22/49ers-brandon-aiyuk-kyle-shanahan-guaranteed-money/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6829269/2025/11/22/bruce-branch-iii-reclassifies-20
 **Greene’s Exit Deals a Blow to G.O.P., Putting Rifts on Display**\
 `Representative Marjorie Taylor Greene’s sudden resignation underscored the fragility of the G.O.P. majority, and exposed deep discontent on the right going into the midterm elections.`\
 https://nytimes.com/2025/11/22/us/politics/marjorie-taylor-greene-republicans.html
-
-**Kings’ Darcy Kuemper apologizes for sticking leg out at Bruins’ David Pastrnak**\
-`"I take the apology and move forward,” Pastrnak said of the incident that occurred after Boston's 2-1 overtime win in L.A. on Friday.  `\
-https://nytimes.com/athletic/6829456/2025/11/22/kings-bruins-darcy-kuemper-david-pastrnak/
 

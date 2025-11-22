@@ -1,3 +1,7 @@
+**A Cancer Diagnosis Brings a New Season of Grief to the Kennedy Family**\
+`Tatiana Schlossberg, the daughter of Caroline Kennedy, revealed a terminal cancer diagnosis in an essay published on the anniversary of her grandfather’s assassination.`\
+https://nytimes.com/2025/11/22/us/tatiana-schlossberg-kennedy-cancer.html
+
 **Kyle Shanahan confirms 49ers voided Brandon Aiyuk’s guarantees**\
 `Shanahan said the 49ers had hoped to have Aiyuk back on the field by now, but his progress has plateaued.`\
 https://nytimes.com/athletic/6829442/2025/11/22/49ers-brandon-aiyuk-kyle-shanahan-guaranteed-money/
