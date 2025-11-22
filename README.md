@@ -1,3 +1,7 @@
+**Kyle Shanahan confirms 49ers voided Brandon Aiyuk’s guarantees**\
+`Shanahan said the 49ers had hoped to have Aiyuk back on the field by now, but his progress has plateaued.`\
+https://nytimes.com/athletic/6829442/2025/11/22/49ers-brandon-aiyuk-kyle-shanahan-guaranteed-money/
+
 **Second in Command**\
 `Trenton Charlson takes charge of your Sunday with an imposing puzzle.`\
 https://nytimes.com/2025/11/22/crosswords/daily-puzzle-2025-11-23.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/22/us/politics/marjorie-taylor-greene-republicans.ht
 **Kings’ Darcy Kuemper apologizes for sticking leg out at Bruins’ David Pastrnak**\
 `"I take the apology and move forward,” Pastrnak said of the incident that occurred after Boston's 2-1 overtime win in L.A. on Friday.  `\
 https://nytimes.com/athletic/6829456/2025/11/22/kings-bruins-darcy-kuemper-david-pastrnak/
-
-**Rodney Rogers, Wake Forest star who suffered spinal cord injury, dies at 54**\
-`Rogers played 12 NBA seasons after a decorated career at Wake Forest, where he had his No. 54 jersey retired in 1996.`\
-https://nytimes.com/athletic/6829104/2025/11/22/rodney-rogers-wake-forest-dies-suns-nuggets-nba/
 

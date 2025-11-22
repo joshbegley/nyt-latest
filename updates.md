@@ -1,3 +1,15 @@
+**Second in Command**\
+`Trenton Charlson takes charge of your Sunday with an imposing puzzle.`\
+https://nytimes.com/2025/11/22/crosswords/daily-puzzle-2025-11-23.html
+
+**As Blue Jackets blow another lead, Dean Evason isn't concerned: 'I'm not focused on it'**\
+`It was a familiar script for the Blue Jackets, as they wasted another third-period lead and lost in overtime to the Red Wings on Saturday.`\
+https://nytimes.com/athletic/6829452/2025/11/22/blue-jackets-red-wings-dean-evason/
+
+**Greene’s Exit Deals a Blow to G.O.P., Putting Rifts on Display**\
+`Representative Marjorie Taylor Greene’s sudden resignation underscored the fragility of the G.O.P. majority, and exposed deep discontent on the right going into the midterm elections.`\
+https://nytimes.com/2025/11/22/us/politics/marjorie-taylor-greene-republicans.html
+
 **As Blue Jackets blow another lead, Dean Evason isn't concerned: 'I'm not focused on it'**\
 `It was a familiar script for the Blue Jackets, as they blew another third-period lead and lost in overtime to the Red Wings on Saturday.`\
 https://nytimes.com/athletic/6829452/2025/11/22/blue-jackets-red-wings-dean-evason/
