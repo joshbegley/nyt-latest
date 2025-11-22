@@ -1,3 +1,7 @@
+**Yankees cut 5 relievers, including Mark Leiter Jr., in cost-saving moves**\
+`The biggest cost savings may have come from non-tendering Leiter, whom MLB Trade Rumors projected to make $3M next year via arbitration.`\
+https://nytimes.com/athletic/6827566/2025/11/21/yankees-non-tender-relievers-mark-leiter-jr/
+
 **Comey Seeks to Dismiss Charges Based on Grand Jury Errors**\
 `The request to dismiss the case came after Lindsey Halligan acknowledged she had never shown a final version of the indictment to the entire grand jury for a vote.`\
 https://nytimes.com/2025/11/21/us/politics/comey-halligan-dismiss-charges.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6827468/2025/11/21/mariners-retire-randy-johnson-nu
 **Hundreds Protest Gender-Based Violence in South Africa Before G20 Summit**\
 `Demonstrators called for their government to declare gender-based violence and killings a national disaster in South Africa. This comes as Johannesburg hosts the first G20 Summit in Africa this weekend.`\
 https://nytimes.com/video/world/africa/100000010540223/south-africa-g20-summit-protesters-against-gender-based-violence.html
-
-**49ers preparing for stunning split with star receiver Brandon Aiyuk**\
-`Aiyuk has not yet played this season, and while the 49ers are holding out hope, a reconciliation appears unlikely.`\
-https://nytimes.com/athletic/6826885/2025/11/21/brandon-aiyuk-49ers-news-contract-guaranteed-money-release/
 
