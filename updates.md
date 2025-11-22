@@ -1,3 +1,7 @@
+**Climate Talks End With Dire Warnings and Scant Plans for Action**\
+`The first U.S. absence in the history of the talks created an opening, diplomats said, for oil-producing nations to push their agenda.`\
+https://nytimes.com/2025/11/22/climate/cop30-climate-summit-ends-belem.html
+
 **Trump Is Mired in a War of Attrition**\
 `It’s not a winning strategy.`\
 https://nytimes.com/2025/11/22/opinion/trump-approval-opinion-confederate.html

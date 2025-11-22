@@ -1,3 +1,7 @@
+**Climate Talks End With Dire Warnings and Scant Plans for Action**\
+`The first U.S. absence in the history of the talks created an opening, diplomats said, for oil-producing nations to push their agenda.`\
+https://nytimes.com/2025/11/22/climate/cop30-climate-summit-ends-belem.html
+
 **Trump Is Mired in a War of Attrition**\
 `It’s not a winning strategy.`\
 https://nytimes.com/2025/11/22/opinion/trump-approval-opinion-confederate.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6826596/2025/11/22/issa-rae-san-diego-fc-ownership-
 **U.S. and Ukrainian Officials to Meet Again on U.S. Peace Plan**\
 `In the Trump administration’s latest effort to pressure Ukraine into accepting a 28-point peace plan, officials from the two countries will hold talks in Geneva.`\
 https://nytimes.com/2025/11/22/us/politics/us-ukraine-peace-plan.html
-
-**'We're just not guarding nobody': Jimmy Butler gives honest assessment after Warriors loss**\
-`While Butler noted that he's "always optimistic," the Warriors' swingman has been frustrated with Golden State's defensive effort.`\
-https://nytimes.com/athletic/6828290/2025/11/22/jimmy-butler-warriors-blazers-defense-comments/
 
