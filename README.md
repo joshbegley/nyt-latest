@@ -1,3 +1,7 @@
+**Lemurs in Madagascar Face an Unexpected Killer**\
+`Thousands of the endangered primates end up on the dinner plates of people in the upper rung of the country’s society who have money to spare.`\
+https://nytimes.com/2025/11/22/science/lemurs-madagascar-eating.html
+
 **How to watch Stars vs. Flames: Time, TV, streaming**\
 `Find out how to watch the Dallas Stars play the Calgary Flames, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6829321/2025/11/22/stars-vs-flames-stream-how-to-watch-nov-22/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6829212/2025/11/22/uab-football-player-injuries-tea
 **Trump’s Proposed Ukraine ‘Deal’ Is a Disgrace**\
 `If Ukraine is forced to surrender to these terms by Thursday, Thanksgiving will no longer be an American holiday. It will become a Russian holiday.`\
 https://nytimes.com/2025/11/22/opinion/ukraine-russia-negotiations-trump-deal.html
-
-**Man Utd's Cunha misses Christmas event after ‘training accident’, organisers say**\
-`The Brazil international was due to appear at Christmas lights switch-on in Altrincham, around eight miles south of Manchester.`\
-https://nytimes.com/athletic/6829199/2025/11/22/matheus-cunha-man-utd-christmas/
 
