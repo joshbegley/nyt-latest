@@ -1,3 +1,19 @@
+**U.S. Defends Decision to Seek Death Penalty for Luigi Mangione**\
+`Prosecutors argue that Mr. Mangione can receive a fair trial, despite his lawyers’ concerns about “damaging” statements from the attorney general about the murder case.`\
+https://nytimes.com/2025/11/22/nyregion/luigi-mangione-death-penalty.html
+
+**Are Leeds United really playing the way they planned this summer?**\
+`Leeds enjoyed relative success early this season by going long to Dominic Calvert-Lewin - so why did they stop?`\
+https://nytimes.com/athletic/6826960/2025/11/22/leeds-farke-playing-style/
+
+**Why are the Premier League's two 'data clubs' better at home than they are away this season?**\
+`Brighton have home advantage against Brentford on Saturday – and so far this season that has really meant something`\
+https://nytimes.com/athletic/6825818/2025/11/22/brighton-brentford-home-away-form-data/
+
+**Fire Breaks Out on Cargo Ship in the Port of Los Angeles**\
+`More than 100 firefighters were responding after the electrical fire started on the vessel, Mayor Karen Bass of Los Angeles said. All crew members were evacuated and no injuries were reported.`\
+https://nytimes.com/2025/11/22/us/cargo-ship-fire-los-angeles-port.html
+
 **Inside the momentous Premier League summit on squad cost ratio, anchoring, and sustainability**\
 `On Friday, the Premier League's 20 clubs voted on three potential financial rule changes - so who voted for what...?`\
 https://nytimes.com/athletic/6826461/2025/11/22/premier-league-squad-cost-anchoring-psr/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6822859/2025/11/22/hugo-viana-newcastle-jorge-mende
 **The amateur American football team in London that is changing lives and producing NFL talent**\
 `The London Warriors are an amateur team that has produced some of Britain's brightest American football talents.`\
 https://nytimes.com/athletic/6683365/2025/11/22/london-warriors-aden-durde-efe-obada-nfl/
-
-**Stepping out of her comfort zone and finding her true self. Karen Carney on Strictly**\
-`The former England international has been one of the standout celebrities in the current series of the BBC's most popular entertainment show`\
-https://nytimes.com/athletic/6823117/2025/11/22/karen-carney-strictly-come-dancing/
-
-**Quote of the Day: A Rose Bowl Breakup Tears at L.A. Football Fans**\
-`Quotation of the Day for Saturday, November 22, 2025.`\
-https://nytimes.com/2025/11/22/pageoneplus/quote-of-the-day-a-rose-bowl-breakup-tears-at-la-football-fans.html
-
-**What Is Trump’s 28-Point Plan to End Russia’s War in Ukraine?**\
-`President Trump is pressing Kyiv to accept an outcome that yields to President Vladimir V. Putin’s demands.`\
-https://nytimes.com/2025/11/22/world/europe/trump-russia-ukraine-peace-plan.html
-
-**Russian Exiles See Europe Visa Rule as Blow Against Them, Not Putin**\
-`The European Union said the decision was prompted by sabotage attacks in Europe, but Russians living abroad say Europe is punishing ordinary people.`\
-https://nytimes.com/2025/11/22/world/europe/russia-visas-ukraine.html
 
