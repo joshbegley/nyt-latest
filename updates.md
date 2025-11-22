@@ -1,3 +1,11 @@
+**Epstein and the #MeToo of It All**\
+`“You need this renewal. You need new figures who are untouched, who were never part of these awful power games,” the columnist Lydia Polgreen argues.`\
+https://nytimes.com/video/opinion/100000010536249/epstein-and-the-metoo-of-it-all.html
+
+**European Leaders to Discuss Support for Ukraine in Response to U.S. Peace Plan**\
+`The meeting is scheduled for Saturday afternoon on the sidelines of the G20 summit in South Africa. The White House plan calls for Ukraine to make significant concessions to Russia.`\
+https://nytimes.com/2025/11/22/world/africa/g20-south-africa-ukraine-russia-united-states.html
+
 **After losing Quentin Lake, Rams must replace a defender who did everything**\
 `Lake, a budding star and leader in the secondary for the Rams, was one of three players the team placed on IR this week.`\
 https://nytimes.com/athletic/6825294/2025/11/22/rams-defense-quentin-lake-injury/

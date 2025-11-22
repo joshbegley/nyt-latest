@@ -1,40 +1,40 @@
-**Epstein and the #MeToo of It All**\
-`“You need this renewal. You need new figures who are untouched, who were never part of these awful power games,” the columnist Lydia Polgreen argues.`\
-https://nytimes.com/video/opinion/100000010536249/epstein-and-the-metoo-of-it-all.html
+**How Blues coach Jim Montgomery, players prepare after another hard loss**\
+`After the Blues' 3-2 overtime loss to the Philadelphia Flyers, they held a 30-minute practice that included six drills. `\
+https://nytimes.com/athletic/6824754/2025/11/22/blues-practice-coach-jim-montgomery-players/
 
-**European Leaders to Discuss Support for Ukraine in Response to U.S. Peace Plan**\
-`The meeting is scheduled for Saturday afternoon on the sidelines of the G20 summit in South Africa. The White House plan calls for Ukraine to make significant concessions to Russia.`\
-https://nytimes.com/2025/11/22/world/africa/g20-south-africa-ukraine-russia-united-states.html
+**21 thoughts on the Blackhawks after 21 games in surprising start to the season**\
+`There's a much different vibe around the Blackhawks this season, and there are several possible reasons for that.`\
+https://nytimes.com/athletic/6826749/2025/11/22/blackhawks-2025-26-season-connor-bedard/
 
-**After losing Quentin Lake, Rams must replace a defender who did everything**\
-`Lake, a budding star and leader in the secondary for the Rams, was one of three players the team placed on IR this week.`\
-https://nytimes.com/athletic/6825294/2025/11/22/rams-defense-quentin-lake-injury/
+**How a new tape job helped Tim Stützle take off — and earn respect around the league**\
+`In the absence of captain Brady Tkachuk, Stützle has stepped up his game and kept the Senators afloat to start the season.`\
+https://nytimes.com/athletic/6759035/2025/11/22/ottawa-senators-tim-stutzle-nhl/
 
-**How to watch Clippers vs. Hornets: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Clippers play the Charlotte Hornets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6828475/2025/11/22/clippers-vs-hornets-stream-how-to-watch-nov-22/
+**Leafs' quarter-season report cards: Who gets top marks during a disappointing start?**\
+`Grading the team through the first quarter of the season to uncover what’s happened and how Toronto might recover.`\
+https://nytimes.com/athletic/6827192/2025/11/22/maple-leafs-report-cards-quarter-season-2025-26/
 
-**How to watch Blue Jackets vs. Red Wings: Time, TV, streaming**\
-`Find out how to watch the Columbus Blue Jackets play the Detroit Red Wings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6828473/2025/11/22/blue-jackets-vs-red-wings-stream-how-to-watch-nov-22/
+**What's one trade every NHL team's fan base would most likely want to undo?**\
+`With the upcoming trade deadline, it's never too early to start thinking about deals. We look back with you — the fans — as the focus.`\
+https://nytimes.com/athletic/6826828/2025/11/22/nhl-trade-team-fan-base-players/
 
-**Pushing Off**\
-`Thanksgiving’s this coming week. How can we keep a busy holiday season from overwhelming us?`\
-https://nytimes.com/2025/11/22/briefing/pushing-off.html
+**Harvard or Yale? One Delaware family has split allegiances for The Game**\
+`Rob Tattersall, who has a son playing at both Harvard and Yale, said, “Not many people want both teams to win.”`\
+https://nytimes.com/athletic/6826589/2025/11/22/harvard-yale-football-2025-rivalry-game/
 
-**Ukrainians Wait in Pain as Hope to Find Strike Survivors Fades**\
-`Russian missiles hit apartment buildings in Ternopil this week, far from the war’s front line. Dozens of civilians, including children, were killed.`\
-https://nytimes.com/2025/11/22/world/europe/russia-ukraine.html
+**Winnipeg Jets' latest questions: Lambert's trade request, Hellebuyck's surgery, more**\
+`We break down this week's Jets news as Brad Lambert's trade request became a hot-button issue, and an injury sidelined Connor Hellebuyck.`\
+https://nytimes.com/athletic/6827415/2025/11/22/jets-connor-hellebuyck-surgery-brad-lambert-trade/
 
-**How to watch Kentucky vs. Louisville women's basketball: Time, TV, streaming**\
-`Find out how to watch the Kentucky Wildcats play the Louisville Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6828468/2025/11/22/kentucky-vs-louisville-stream-how-to-watch-nov-22/
+**Trump Is Down Again. His Way Back Up This Time Is Not So Clear.**\
+`There are no easy answers for the current economic discontent.`\
+https://nytimes.com/2025/11/22/opinion/trump-economy-lame-duck.html
 
-**How to watch LIU vs. Illinois men's basketball: Time, TV, streaming**\
-`Find out how to watch the Long Island Sharks play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6828466/2025/11/22/liu-vs-illinois-stream-how-to-watch-nov-22/
+**Don’t Miss This: Epstein Edition**\
+`The Epstein files are coming. But will Americans be able to fully trust them?`\
+https://nytimes.com/video/opinion/100000010539876/dont-miss-this-epstein-edition.html
 
-**Sabres bounce back with blowout win over Blackhawks. How will they respond now?**\
-`The Sabres helped themselves with 9-3 drubbing of the Blackhawks, but the challenge now for them is handling it the right way.`\
-https://nytimes.com/athletic/6828059/2025/11/22/sabres-blackhawks-win-josh-doan/
+**A Call to Purge Washington of Epstein’s Associates**\
+`The release of more Epstein files could take down many prominent men in Washington — both Republicans and Democrats. But for the columnist Lydia Polgreen, the purge is not a bad thing. “You need this renewal,” she says on this episode of “The Opinions.”`\
+https://nytimes.com/video/opinion/100000010536268/a-call-to-purge-washington-of-epsteins-associates.html
 
