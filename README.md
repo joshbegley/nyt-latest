@@ -1,3 +1,11 @@
+**I was an athletic trainer in the NFL and MLS. Three things I wish every parent knew**\
+`Ian McMahan is a certified athletic trainer who has previously worked with the 49ers, Major League Soccer and the Women's World Cup.`\
+https://nytimes.com/athletic/6826372/2025/11/22/youth-sports-parents-tips-training-performance/
+
+**Daily Mail Owner to Buy The Telegraph, Consolidating Right-Leaning Media in Britain**\
+`The deal would combine two of the country’s major newspaper groups, a move likely to attract antitrust scrutiny.`\
+https://nytimes.com/2025/11/22/business/dealbook/telegraph-daily-mail.html
+
 **How Blues coach Jim Montgomery, players prepare after another hard loss**\
 `After the Blues' 3-2 overtime loss to the Philadelphia Flyers, they held a 30-minute practice that included six drills. `\
 https://nytimes.com/athletic/6824754/2025/11/22/blues-practice-coach-jim-montgomery-players/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6827415/2025/11/22/jets-connor-hellebuyck-surgery-b
 **Trump Is Down Again. His Way Back Up This Time Is Not So Clear.**\
 `There are no easy answers for the current economic discontent.`\
 https://nytimes.com/2025/11/22/opinion/trump-economy-lame-duck.html
-
-**Don’t Miss This: Epstein Edition**\
-`The Epstein files are coming. But will Americans be able to fully trust them?`\
-https://nytimes.com/video/opinion/100000010539876/dont-miss-this-epstein-edition.html
-
-**A Call to Purge Washington of Epstein’s Associates**\
-`The release of more Epstein files could take down many prominent men in Washington — both Republicans and Democrats. But for the columnist Lydia Polgreen, the purge is not a bad thing. “You need this renewal,” she says on this episode of “The Opinions.”`\
-https://nytimes.com/video/opinion/100000010536268/a-call-to-purge-washington-of-epsteins-associates.html
 
