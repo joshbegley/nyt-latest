@@ -1,3 +1,7 @@
+**Slot takes responsibility for Liverpool form: 'It's far from good enough'**\
+`Liverpool have lost back-to-back league matches by a margin of three or more goals for the first time since April 1965 under Bill Shankly.`\
+https://nytimes.com/athletic/6829145/2025/11/22/arne-slot-liverpool-form-responsibility/
+
 **John Green on the Cost of Internet Fame**\
 `The author John Green found an audience of millions making YouTube videos with his brother, Hank. As more people aspire to become influencers, he warns that internet fame may make it feel like everyone knows and loves you, “but in fact, no one knows you.”`\
 https://nytimes.com/video/podcasts/100000010541053/john-green-on-the-cost-of-internet-fame.html
