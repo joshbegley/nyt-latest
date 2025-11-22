@@ -1,3 +1,11 @@
+**Barcelona mark Camp Nou return with La Liga win against Athletic Club**\
+`Goals from Robert Lewandowski, Ferran Torres (two) and Fermin Lopez secured a 4-0 win for Hansi Flick's side`\
+https://nytimes.com/athletic/6828577/2025/11/22/barcelona-athletic-club-camp-nou-return/
+
+**Rams sign LB Nate Landman to extension**\
+`Landman, 27, has recorded 91 tackles, four forced fumbles and 1.5 sacks so far this season.`\
+https://nytimes.com/athletic/6828921/2025/11/22/rams-nate-landman-extension/
+
 **How to watch Iowa vs. Miami (FL) women's basketball: Time, TV, streaming**\
 `Find out how to watch the Iowa Hawkeyes play the Miami Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6828968/2025/11/22/iowa-vs-miami-fl-stream-how-to-watch-nov-22/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6828795/2025/11/22/eagles-jalen-hurts-cowboys-drama
 **This Washington Museum Sold Some of Its Art. But at What Cost?**\
 `The Phillips Collection sold three works and raised $13 million to buy contemporary art, but the decision has led to rancor within the 104-year-old institution.`\
 https://nytimes.com/2025/11/22/arts/design/phillips-collection-art-sold.html
-
-**Five-Ingredient, Fiery Sweet Potatoes**\
-`If you have sweet potatoes, coconut milk, Thai red curry paste, brown sugar and butter (and salt), you have everything you need for this five-star side.`\
-https://nytimes.com/2025/11/22/dining/five-ingredient-fiery-sweet-potatoes.html
-
-**On Police Footage and ‘The Perfect Neighbor’**\
-`Wesley Morris, the host of “Cannonball” at The New York Times, sits down with Parul Sehgal, a critic at large for The Times, to talk about the Netflix documentary “The Perfect Neighbor” and its use of police body camera footage.`\
-https://nytimes.com/video/podcasts/100000010540921/on-police-footage-and-the-perfect-neighbor.html
 
