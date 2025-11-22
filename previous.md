@@ -1,3 +1,7 @@
+**Sea Foam**\
+`Blake Slonecker’s tough puzzle will wake solvers right up.`\
+https://nytimes.com/2025/11/21/crosswords/daily-puzzle-2025-11-22.html
+
 **Texas A&M Was Wrong to Fire Professor Over Gender Lesson, Panel Rules**\
 `The firing put the school at the center of national debates over gender identity and academic freedom. A faculty panel ruled unanimously against the termination.`\
 https://nytimes.com/2025/11/21/us/texas-am-professor-gender-lesson-panel-ruling.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6827607/2025/11/21/charvarius-ward-colts-injury-con
 **New Jersey Congressman’s Aide Faked Anti-Trump Slashing Attack, U.S. Says**\
 `Natalie Greene, 26, who worked for Representative Jeff Van Drew, a Republican, falsely claimed she was attacked at a nature reserve, the authorities said.`\
 https://nytimes.com/2025/11/21/nyregion/congressional-aide-new-jersey-hoax.html
-
-**The Trump-Mamdani Buddy Movie? It’s Getting Mixed Reviews.**\
-`Zohran Mamdani and President Trump seemed to cast aside their months of traded insults, a development that seemed good for New York City but odd to some followers.`\
-https://nytimes.com/2025/11/21/nyregion/mamdani-trump-reaction-meeting.html
 

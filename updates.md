@@ -1,3 +1,7 @@
+**Sea Foam**\
+`Blake Slonecker’s tough puzzle will wake solvers right up.`\
+https://nytimes.com/2025/11/21/crosswords/daily-puzzle-2025-11-22.html
+
 **Texas A&M Was Wrong to Fire Professor Over Gender Lesson, Panel Rules**\
 `The firing put the school at the center of national debates over gender identity and academic freedom. A faculty panel ruled unanimously against the termination.`\
 https://nytimes.com/2025/11/21/us/texas-am-professor-gender-lesson-panel-ruling.html
