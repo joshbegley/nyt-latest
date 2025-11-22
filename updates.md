@@ -1,3 +1,15 @@
+**Dorothy Vogel, Librarian With a Vast Art Collection, Dies at 90**\
+`On modest civil servants’ salaries, she and her husband amassed a trove of some 4,000 works by art-world luminaries, storing them in their one-bedroom Manhattan apartment.`\
+https://nytimes.com/2025/11/22/arts/dorothy-vogel-dead.html
+
+**An A.I. Toy Bear Speaks of Sex, Knives and Pills, a Consumer Group Warns**\
+`The chatter left startled adults unsure whether they heard correctly. Testers warned that interactive toys like this one could allow children to stray into inappropriate exchanges.`\
+https://nytimes.com/2025/11/22/us/folotoy-ai-bear-suspended-explicit-advice.html
+
+**College Football Playoff 2025 projections: Oklahoma closing in on bid with Week 13 underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/22/college-football-playoff-bracket-projections-odds/
+
 **Abortion Is Once Again Illegal in North Dakota**\
 `On Friday, a state Supreme Court ruling reinstated a near-total abortion ban, making North Dakota the 13th state to do so.`\
 https://nytimes.com/2025/11/22/us/politics/abortion-illegal-north-dakota.html
