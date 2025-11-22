@@ -1,3 +1,7 @@
+**Five life sentences issued to shooter in killings of 3 UVA football players**\
+`Two people who were wounded in the shooting on a charter bus spoke at the sentencing hearing.`\
+https://nytimes.com/athletic/6828977/2025/11/22/uva-football-player-shooting/
+
 **Slot takes responsibility for Liverpool form: 'It's far from good enough'**\
 `Liverpool have lost back-to-back league matches by a margin of three or more goals for the first time since April 1965 under Bill Shankly.`\
 https://nytimes.com/athletic/6829145/2025/11/22/arne-slot-liverpool-form-responsibility/

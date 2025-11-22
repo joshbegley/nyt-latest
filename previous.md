@@ -1,3 +1,7 @@
+**Five life sentences issued to shooter in killings of 3 UVA football players**\
+`Two people who were wounded in the shooting on a charter bus spoke at the sentencing hearing.`\
+https://nytimes.com/athletic/6828977/2025/11/22/uva-football-player-shooting/
+
 **Slot takes responsibility for Liverpool form: 'It's far from good enough'**\
 `Liverpool have lost back-to-back league matches by a margin of three or more goals for the first time since April 1965 under Bill Shankly.`\
 https://nytimes.com/athletic/6829145/2025/11/22/arne-slot-liverpool-form-responsibility/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6828854/2025/11/22/nico-sturm-minnesota-wild-2025-d
 **N.F.L. Players Are in Their Celebrity Era**\
 `The Athletic’s Jayna Bardahl reports on the rise of the N.F.L. celebrity and how it’s become common for the top stars to be as famous as non-sports celebrities.`\
 https://nytimes.com/video/the-athletic/100000010540950/nfl-players-are-in-their-celebrity-era.html
-
-**How to watch Kraken vs. Penguins: Time, TV, streaming**\
-`Find out how to watch the Seattle Kraken play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6829020/2025/11/22/kraken-vs-penguins-stream-how-to-watch-nov-22/
 
