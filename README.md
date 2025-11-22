@@ -1,3 +1,7 @@
+**The Ashes Briefing: Travis Head onslaught takes Australia to stunning win after England collapse**\
+`Another frenetic day in Perth saw the visitors fold before Head, opening the batting, delivered an Australian masterclass in Travball`\
+https://nytimes.com/athletic/6827991/2025/11/22/ashes-australia-england-travis-head-collapse-briefing/
+
 **John Green Knows That No One Really Loves You on the Internet**\
 `The writer and YouTube star on trying to get back to the experiences that make us feel alive.`\
 https://nytimes.com/2025/11/22/magazine/john-green-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/22/business/the-ai-boom-economy.html
 **As Democrats Look to a New Generation, John Larson Hangs On**\
 `The 77-year-old Connecticut Democrat is facing primary challenges from people who say he’s too old and has been around too long. He says his age and experience are his strength.`\
 https://nytimes.com/2025/11/22/us/politics/john-larson-connecticut-congress-election.html
-
-**Can I Pass My Co-op Unit to My Partner if We’re Not Married?**\
-`Many co-op leases allow for graduated levels of board approval for heirs who want to live in the building.`\
-https://nytimes.com/2025/11/22/realestate/can-i-pass-my-co-op-unit-to-my-partner-if-were-not-married.html
 
