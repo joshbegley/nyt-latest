@@ -1,3 +1,7 @@
+**Jaylen Brown rips Celtics' effort after loss to Nets: 'Come ready to play, or don't play at all'**\
+`The Celtics' star called out his team after a loss to the 3-12 Nets, saying the Celtics "just went through the motions."`\
+https://nytimes.com/athletic/6828076/2025/11/21/jaylen-brown-celtics-nets-effort-play/
+
 **How Cubs' signing of Phil Maton deviates from team's normal way of building a bullpen**\
 `Maton posted a career-best 2.79 ERA in 2025 and has made at least 60 appearances in each of the last five seasons.`\
 https://nytimes.com/athletic/6828011/2025/11/21/phil-maton-cubs-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/21/us/texas-am-professor-gender-lesson-panel-ruling.
 **Federal Suit Seeking Names of Some Jewish Employees at Penn Sparks Backlash**\
 `The Trump administration says it needs the information to investigate antisemitism and accuses the university of flouting a subpoena.`\
 https://nytimes.com/2025/11/21/us/eeoc-university-pennsylvania-antisemitism-jewish.html
-
-**In This Scandal, the Journalists Are the Story**\
-`Love, politics and ethics collided as Olivia Nuzzi and Ryan Lizza went at it in a media sphere that rewards private revelations.`\
-https://nytimes.com/2025/11/21/style/olivia-nuzzi-ryan-lizza-rfk-jr-affair.html
 
