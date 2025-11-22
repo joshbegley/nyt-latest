@@ -1,3 +1,19 @@
+**'The fix is in': George Washington basketball coach advocates for tournament expansion**\
+`Caputo bemoaned the NCAA Evaluation Tool system, saying Power 4 teams are more reluctant to schedule competitive mid-major opponents.`\
+https://nytimes.com/athletic/6827315/2025/11/21/chris-caputo-march-madness-expansion/
+
+**Mark Mellman, Who Helped Democrats Understand Their Voters, Dies at 70**\
+`A prominent pollster and political strategist, he was a key figure in John Kerry’s 2004 presidential campaign and used his prominence to speak out in defense of Israel.`\
+https://nytimes.com/2025/11/21/us/politics/mark-mellman-dead.html
+
+**Trump Praises Mamdani After White House Meeting**\
+`After months of warning voters that Zohran Mamdani posed an existential threat to New York City, President Trump showered praise on the mayor-elect at the White House on Friday.`\
+https://nytimes.com/video/us/politics/100000010540080/president-trump-zohran-mamdani-praise.html
+
+**Abbott’s Moves to Restrict Muslims Leave Some Concerned and Puzzled**\
+`Two decisions by the Texas governor this week, including directing authorities to investigate an Islamic organization, come as the state sees an increase in anti-Muslim rhetoric.`\
+https://nytimes.com/2025/11/21/us/abbott-texas-muslim-investigation.html
+
 **Texas Asks Supreme Court to Clear Way for Republican-Friendly Congressional Map**\
 `State officials are seeking to use a newly redrawn map for the 2026 midterms, part of a nationwide redistricting push by President Trump.`\
 https://nytimes.com/2025/11/21/us/politics/supreme-court-texas-congressional-map.html
