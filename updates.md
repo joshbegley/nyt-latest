@@ -1,3 +1,11 @@
+**Red Sox's Garrett Whitlock announces he will play for Team USA in World Baseball Classic**\
+`Whitlock posted a 2.25 ERA in 62 appearances as the Red Sox returned to the postseason. `\
+https://nytimes.com/athletic/6829425/2025/11/22/garrett-whitlock-team-usa-world-baseball-classic/
+
+**Yale defeats Harvard, earns first-ever Ivy League bid to FCS playoffs**\
+`The Ivy League approved a proposal in the offseason that will allow its teams to participate in the FCS postseason tournament.`\
+https://nytimes.com/athletic/6829191/2025/11/22/yale-beats-harvard-fcs-playoffs/
+
 **Dorothy Vogel, Librarian With a Vast Art Collection, Dies at 90**\
 `On modest civil servants’ salaries, she and her husband amassed a trove of some 4,000 works by art-world luminaries, storing them in their one-bedroom Manhattan apartment.`\
 https://nytimes.com/2025/11/22/arts/dorothy-vogel-dead.html

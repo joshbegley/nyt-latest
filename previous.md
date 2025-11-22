@@ -1,3 +1,11 @@
+**Red Sox's Garrett Whitlock announces he will play for Team USA in World Baseball Classic**\
+`Whitlock posted a 2.25 ERA in 62 appearances as the Red Sox returned to the postseason. `\
+https://nytimes.com/athletic/6829425/2025/11/22/garrett-whitlock-team-usa-world-baseball-classic/
+
+**Yale defeats Harvard, earns first-ever Ivy League bid to FCS playoffs**\
+`The Ivy League approved a proposal in the offseason that will allow its teams to participate in the FCS postseason tournament.`\
+https://nytimes.com/athletic/6829191/2025/11/22/yale-beats-harvard-fcs-playoffs/
+
 **Dorothy Vogel, Librarian With a Vast Art Collection, Dies at 90**\
 `On modest civil servants’ salaries, she and her husband amassed a trove of some 4,000 works by art-world luminaries, storing them in their one-bedroom Manhattan apartment.`\
 https://nytimes.com/2025/11/22/arts/dorothy-vogel-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6829201/2025/11/22/oklahoma-missouri-score-result/
 **Lemurs in Madagascar Face an Unexpected Killer**\
 `Thousands of the endangered primates end up on the dinner plates of people in the upper rung of the country’s society who have money to spare.`\
 https://nytimes.com/2025/11/22/science/lemurs-madagascar-eating.html
-
-**How to watch Stars vs. Flames: Time, TV, streaming**\
-`Find out how to watch the Dallas Stars play the Calgary Flames, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6829321/2025/11/22/stars-vs-flames-stream-how-to-watch-nov-22/
-
-**How to watch Rangers vs. Mammoth: Time, TV, streaming**\
-`Find out how to watch the New York Rangers play the Utah Mammoth, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6829319/2025/11/22/rangers-vs-mammoth-stream-how-to-watch-nov-22/
 
