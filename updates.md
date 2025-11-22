@@ -1,3 +1,7 @@
+**Rodney Rogers, Wake Forest star who suffered spinal cord injury, dies at 54**\
+`Rogers played 12 NBA seasons after a decorated career at Wake Forest, where he had his No. 54 jersey retired in 1996.`\
+https://nytimes.com/athletic/6829104/2025/11/22/rodney-rogers-wake-forest-dies-suns-nuggets-nba/
+
 **‘Wicked: For Good’ Takes Flight**\
 `The movie is expected to take in about $151.5 million from Friday through Sunday, earning 35 percent more than the first installment  last year.`\
 https://nytimes.com/2025/11/22/business/media/wicked-for-good-box-office.html

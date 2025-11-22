@@ -1,3 +1,7 @@
+**Rodney Rogers, Wake Forest star who suffered spinal cord injury, dies at 54**\
+`Rogers played 12 NBA seasons after a decorated career at Wake Forest, where he had his No. 54 jersey retired in 1996.`\
+https://nytimes.com/athletic/6829104/2025/11/22/rodney-rogers-wake-forest-dies-suns-nuggets-nba/
+
 **‘Wicked: For Good’ Takes Flight**\
 `The movie is expected to take in about $151.5 million from Friday through Sunday, earning 35 percent more than the first installment  last year.`\
 https://nytimes.com/2025/11/22/business/media/wicked-for-good-box-office.html
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/6829230/2025/11/22/f1-las-vegas-gp-trophy-design/
 **College Football Playoff 2025 projections: Oklahoma closing in on bid with Week 13 underway**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/11/22/college-football-playoff-bracket-projections-odds/
-
-**Easy Ohio State win vs. Rutgers clouded by WR injuries ahead of Michigan: Key takeaways**\
-`Ohio State cruised against Rutgers, 42-9, without standout WRs Jeremiah Smith and Carnell Tate. But how concerning was their absence?`\
-https://nytimes.com/athletic/6829323/2025/11/22/ohio-state-rutgers-football-score-result-injuries/
-
-**Oklahoma in prime position to earn CFP bid after defense dominates Missouri**\
-`The Sooners will secure an at-large bid with a win over LSU next week, but is this team good enough on offense to make a run? `\
-https://nytimes.com/athletic/6829201/2025/11/22/oklahoma-missouri-score-result/
 
