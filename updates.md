@@ -1,3 +1,15 @@
+**One Killed and 8 Teenagers Wounded in Chicago Shootings**\
+`Seven people, ages 13 to 17 were shot at a downtown gathering by the Chicago Theater. A second shooting left a man dead and another teenager in serious condition.`\
+https://nytimes.com/2025/11/22/us/chicago-state-street-shooting.html
+
+**Burnley 0 Chelsea 2 - Should Chalobah-Sanchez incident have led to a penalty? Is Neto underrated?**\
+`Enzo Maresca's side went up to second in the Premier League, at least temporarily, with victory at Turf Moor`\
+https://nytimes.com/athletic/6814106/2025/11/22/burnley-0-chelsea-2-sanchez-chalobah-penalty/
+
+**OSU down 2 standout WRs vs. Rutgers: What it means for Michigan game**\
+`Even without their two star receivers, the Buckeyes are overwhelming favorites against Rutgers. But what about Michigan in Week 14?`\
+https://nytimes.com/athletic/6828600/2025/11/22/ohio-state-jeremiah-smith-carnell-tate-status/
+
 **How to watch Knicks vs. Magic: Time, TV, streaming**\
 `Find out how to watch the New York Knicks play the Orlando Magic, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6828689/2025/11/22/knicks-vs-magic-stream-how-to-watch-nov-22/
