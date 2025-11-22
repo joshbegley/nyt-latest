@@ -1,3 +1,11 @@
+**Dorothy Vogel, Librarian With a Vast Art Collection, Dies at 90**\
+`On modest civil servants’ salaries, she and her husband amassed a trove of some 4,000 works by art-world luminaries, storing them in their one-bedroom Manhattan apartment.`\
+https://nytimes.com/2025/11/22/arts/dorothy-vogel-dead.html
+
+**An A.I. Toy Bear Speaks of Sex, Knives and Pills, a Consumer Group Warns**\
+`The chatter left startled adults unsure whether they heard correctly. Testers warned that interactive toys like this one could allow children to stray into inappropriate exchanges.`\
+https://nytimes.com/2025/11/22/us/folotoy-ai-bear-suspended-explicit-advice.html
+
 **Abortion Is Once Again Illegal in North Dakota**\
 `On Friday, a state Supreme Court ruling reinstated a near-total abortion ban, making North Dakota the 13th state to do so.`\
 https://nytimes.com/2025/11/22/us/politics/abortion-illegal-north-dakota.html
@@ -5,6 +13,10 @@ https://nytimes.com/2025/11/22/us/politics/abortion-illegal-north-dakota.html
 **The Las Vegas GP trophy took a local designer, a blowtorch, and desert soul to get right**\
 `It took five months to design and build the Las Vegas GP trophy, which reflects an evolving twist on one of F1's oldest traditions`\
 https://nytimes.com/athletic/6829230/2025/11/22/f1-las-vegas-gp-trophy-design/
+
+**College Football Playoff 2025 projections: Oklahoma closing in on bid with Week 13 underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/22/college-football-playoff-bracket-projections-odds/
 
 **Easy Ohio State win vs. Rutgers clouded by WR injuries ahead of Michigan: Key takeaways**\
 `Ohio State cruised against Rutgers, 42-9, without standout WRs Jeremiah Smith and Carnell Tate. But how concerning was their absence?`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6829321/2025/11/22/stars-vs-flames-stream-how-to-wa
 **How to watch Rangers vs. Mammoth: Time, TV, streaming**\
 `Find out how to watch the New York Rangers play the Utah Mammoth, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6829319/2025/11/22/rangers-vs-mammoth-stream-how-to-watch-nov-22/
-
-**How to watch Grizzlies vs. Mavericks: Time, TV, streaming**\
-`Find out how to watch the Memphis Grizzlies play the Dallas Mavericks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6829317/2025/11/22/grizzlies-vs-mavericks-stream-how-to-watch-nov-22/
-
-**How to watch Kings vs. Nuggets: Time, TV, streaming**\
-`Find out how to watch the Sacramento Kings play the Denver Nuggets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6829315/2025/11/22/kings-vs-nuggets-stream-how-to-watch-nov-22/
-
-**How to watch Golden Knights vs. Ducks: Time, TV, streaming**\
-`Find out how to watch the Vegas Golden Knights play the Anaheim Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6829313/2025/11/22/golden-knights-vs-ducks-stream-how-to-watch-nov-22/
 
