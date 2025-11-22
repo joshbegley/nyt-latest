@@ -1,40 +1,40 @@
-**The Ashes Briefing: Travis Head onslaught takes Australia to stunning win after England collapse**\
-`Another frenetic day in Perth saw the visitors fold before Head, opening the batting, delivered an Australian masterclass in Travball`\
-https://nytimes.com/athletic/6827991/2025/11/22/ashes-australia-england-travis-head-collapse-briefing/
+**Sabres bounce back with blowout win over Blackhawks. How will they respond now?**\
+`The Sabres helped themselves with 9-3 drubbing of the Blackhawks, but the challenge now for them is handling it the right way.`\
+https://nytimes.com/athletic/6828059/2025/11/22/sabres-blackhawks-win-josh-doan/
 
-**John Green Knows That No One Really Loves You on the Internet**\
-`The writer and YouTube star on trying to get back to the experiences that make us feel alive.`\
-https://nytimes.com/2025/11/22/magazine/john-green-interview.html
+**Penguins return home with a thud vs. Wild as injuries may be taking a toll: 10 observations**\
+`The Penguins served up their worst performance of the season in Friday's 5-0 loss on home ice against the Wild.`\
+https://nytimes.com/athletic/6827907/2025/11/22/penguins-wild-injuries-loss-observations/
 
-**The Aftermath of a Deadly Strike in Western Ukraine**\
-`At the site of an apartment building in western Ukraine where a Russian strike killed dozens of people, the New York Times reporter Kim Barker heard reactions to a 28-point U.S. proposal to end the war.`\
-https://nytimes.com/video/world/europe/100000010538311/the-aftermath-of-a-deadly-strike-in-western-ukraine.html
+**NWSL Championship: How to watch Washington Spirit vs. Gotham FC in rivalry title match**\
+`Here's how to tune in for Saturday's title tilt between Washington and Gotham.`\
+https://nytimes.com/athletic/6822121/2025/11/22/nwsl-championship-washington-spirit-gotham-how-to-watch/
 
-**New Orleans, a City of Service Workers, Braces for an Immigration Crackdown**\
-`Louisiana officials have been eager for a federal intervention, but planned Border Patrol operations have stoked fear in the city’s immigrant work force.`\
-https://nytimes.com/2025/11/22/us/new-orleans-a-city-of-service-workers-braces-for-an-immigration-crackdown.html
+**49ers' offseason project: Restocking their once-powerful receiving corps**\
+`The 49ers keep repeating the same sequence when it comes to their top wideouts -- banner year, difficult contract, bad blood and bye-bye.`\
+https://nytimes.com/athletic/6827765/2025/11/22/49ers-offseason-project-restocking-their-once-powerful-receiving-corps/
 
-**‘Wicked: For Good’ Tells a Story Through Color**\
-`Alice Brooks, the cinematographer of “Wicked: For Good,” explains the meaning and intention behind the color choices in the film.`\
-https://nytimes.com/video/movies/100000010540438/wicked-for-good-tells-a-story-through-color.html
+**Do We Have to Spend the Holidays With My Parents?**\
+`Time with the extended family isn’t particularly restful or enjoyable for us.`\
+https://nytimes.com/2025/11/22/magazine/holidays-parents-ethics.html
 
-**In One Week, Trump Moves to Reshape U.S. Environmental Policy**\
-`The Trump administration this week moved to weaken the Clean Water Act and the Endangered Species Act, two bedrock laws, among other deregulatory moves.`\
-https://nytimes.com/2025/11/22/climate/trump-environmental-policy-week.html
+**Why Mercedes F1 is now worth more than Liverpool and most NBA teams**\
+`Mercedes's dizzying $6 billion valuation shows just how far F1 and the team have come in a very short time`\
+https://nytimes.com/athletic/6827930/2025/11/22/mercedes-f1-valuation/
 
-**Trump Offers a Ukraine Peace Plan the Kremlin Can Love**\
-`While President Trump at times suggested he was willing to bolster support for Ukraine, he has repeatedly accommodated Russia’s demands.`\
-https://nytimes.com/2025/11/22/us/politics/trump-ukraine-russia-peace-plan-kremlin.html
+**Connections Companion No. 896**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 23, 2025.`\
+https://nytimes.com/2025/11/22/crosswords/connections-companion-896.html
 
-**In North Carolina, the Border Patrol’s Presence Divides a Swing State**\
-`Images of federal agents chasing immigrants have rattled many. Others see evidence of an effective crackdown. It remains to be seen whether the operation might sway voters next year.`\
-https://nytimes.com/2025/11/22/us/north-carolina-border-patrol-immigration-politics.html
+**Are Fighter Jets Canada’s ‘Bargaining Chip’ in Trade Talks?**\
+`Canada began a review of its fighter jet deal with the United States after President Trump imposed tariffs. Now, Sweden is back with a sales pitch for its own jets.`\
+https://nytimes.com/2025/11/22/world/canada/trump-tariffs-fighter-jets-hoekstra.html
 
-**The A.I. Boom Is Driving the Economy. What Happens if It Falters?**\
-`A windfall for companies that build data centers and their suppliers is overshadowing weakness in other industries.`\
-https://nytimes.com/2025/11/22/business/the-ai-boom-economy.html
+**Strands Sidekick No. 630**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 23, 2025.`\
+https://nytimes.com/2025/11/22/crosswords/strands-sidekick-630.html
 
-**As Democrats Look to a New Generation, John Larson Hangs On**\
-`The 77-year-old Connecticut Democrat is facing primary challenges from people who say he’s too old and has been around too long. He says his age and experience are his strength.`\
-https://nytimes.com/2025/11/22/us/politics/john-larson-connecticut-congress-election.html
+**Wordle Review No. 1,618**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Nov. 23, 2025`\
+https://nytimes.com/2025/11/22/crosswords/wordle-review-1618.html
 
