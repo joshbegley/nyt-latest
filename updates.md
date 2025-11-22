@@ -1,3 +1,11 @@
+**The New York Times in Print for Saturday, Nov. 22, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/22/todays-new-york-times
+
+**Lando Norris surfs Las Vegas GP's slippery qualifying chaos, scores crucial pole**\
+`Rain made for a treacherous qualifying session as the championship leader put himself in great position to lock down the title`\
+https://nytimes.com/athletic/6828034/2025/11/22/las-vegas-f1-qualifying-results/
+
 **Lewis Hamilton qualifies last for Las Vegas Grand Prix as Ferrari struggles continue**\
 `Hamilton was eliminated in the opening stage of qualifying Friday as rain made for treacherous driving conditions on the Las Vegas track.`\
 https://nytimes.com/athletic/6828122/2025/11/22/lewis-hamilton-ferrari-las-vegas-grand-prix-qualifying/

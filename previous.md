@@ -1,4 +1,8 @@
-**Lando Norris surfs Las Vegas GP wet qualifying chaos to score pole, Lewis Hamilton last**\
+**The New York Times in Print for Saturday, Nov. 22, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/22/todays-new-york-times
+
+**Lando Norris surfs Las Vegas GP's slippery qualifying chaos, scores crucial pole**\
 `Rain made for a treacherous qualifying session as the championship leader put himself in great position to lock down the title`\
 https://nytimes.com/athletic/6828034/2025/11/22/las-vegas-f1-qualifying-results/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6825829/2025/11/22/barcelona-camp-nou-first-game-hi
 **Trump and Mamdani’s News Conference: Read the Transcript**\
 `President Trump and Zohran Mamdani, the mayor-elect of New York City, spoke to the news media after their first face-to-face meeting.`\
 https://nytimes.com/2025/11/22/nyregion/trump-mamdani-meeting-press-conference-transcript.html
-
-**Ranking the 2026 Ballon d'Or contenders: Is Erling Haaland in pole position?**\
-`The early contenders for men's football's biggest individual prize`\
-https://nytimes.com/athletic/6822676/2025/11/22/2026-ballon-dor-contenders-yamal-haaland-mbappe-kane/
 
