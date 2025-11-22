@@ -1,3 +1,11 @@
+**On Police Footage and ‘The Perfect Neighbor’**\
+`Wesley Morris, the host of “Cannonball” at The New York Times, sits down with Parul Sehgal, a critic at large for The Times, to talk about the Netflix documentary “The Perfect Neighbor” and its use of police body camera footage.`\
+https://nytimes.com/video/podcasts/100000010540921/on-police-footage-and-the-perfect-neighbor.html
+
+**WATCH: How this team shut down the NFL’s best passing offense**\
+`The Rams have quietly been one of the NFL's elite defenses.`\
+https://nytimes.com/athletic/6827152/2025/11/22/rams-seahawks-sam-darnold-defense-film-breakdown/
+
 **Trump Shows His Power, and Greene Reveals His Weakness**\
 `As the president forced a onetime loyalist from Congress, her defiant departure signaled a coming debate over Republican identity in a post-Trump era.`\
 https://nytimes.com/2025/11/22/us/politics/marjorie-taylor-greene-trump-republicans.html

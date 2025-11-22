@@ -1,3 +1,15 @@
+**Eagles notes: How Philly navigated a drama-filled week, Jalen Carter after ejection**\
+`The Eagles are on pace for the NFC's top seed and could clinch the division this month despite reports about the offensive struggles.`\
+https://nytimes.com/athletic/6828795/2025/11/22/eagles-jalen-hurts-cowboys-drama/
+
+**This Washington Museum Sold Some of Its Art. But at What Cost?**\
+`The Phillips Collection sold three works and raised $13 million to buy contemporary art, but the decision has led to rancor within the 104-year-old institution.`\
+https://nytimes.com/2025/11/22/arts/design/phillips-collection-art-sold.html
+
+**Five-Ingredient, Fiery Sweet Potatoes**\
+`If you have sweet potatoes, coconut milk, Thai red curry paste, brown sugar and butter (and salt), you have everything you need for this five-star side.`\
+https://nytimes.com/2025/11/22/dining/five-ingredient-fiery-sweet-potatoes.html
+
 **On Police Footage and ‘The Perfect Neighbor’**\
 `Wesley Morris, the host of “Cannonball” at The New York Times, sits down with Parul Sehgal, a critic at large for The Times, to talk about the Netflix documentary “The Perfect Neighbor” and its use of police body camera footage.`\
 https://nytimes.com/video/podcasts/100000010540921/on-police-footage-and-the-perfect-neighbor.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6828290/2025/11/22/jimmy-butler-warriors-blazers-de
 **The Best Thing I Didn’t Bake All Year**\
 `My no-bake cranberry-cookie butter cheesecake with a crushed speculoos crust is a showstopper (if I do say so myself).`\
 https://nytimes.com/2025/11/22/dining/the-best-thing-i-didnt-bake-all-year.html
-
-**Fearing He Would Flee, Police in Brazil Arrest Jair Bolsonaro**\
-`The arrest came days before the former president was expected to be ordered to begin a 27-year prison sentence for staging a failed coup.`\
-https://nytimes.com/2025/11/22/world/americas/jair-bolsonaro-brazil-arrest.html
-
-**Cannon and Other Artifacts Are Recovered From San José Shipwreck**\
-`Colombian scientists also retrieved three coins and a porcelain cup from the San José, which treasure hunters have come to call the Holy Grail of shipwrecks.`\
-https://nytimes.com/2025/11/22/world/americas/san-jose-shipwreck-galleon-artifacts.html
-
-**Joe Burrow won't play for Bengals vs. Patriots: Sources**\
-`There are eyes toward Burrow potentially returning on Thanksgiving night in Baltimore against the Ravens.`\
-https://nytimes.com/athletic/6828579/2025/11/22/bengals-joe-burrow-status-joe-flacco/
 
