@@ -1,3 +1,11 @@
+**Texas A&M Was Wrong to Fire Professor Over Gender Lesson, Panel Rules**\
+`The firing put the school at the center of national debates over gender identity and academic freedom. A faculty panel ruled unanimously against the termination.`\
+https://nytimes.com/2025/11/21/us/texas-am-professor-gender-lesson-panel-ruling.html
+
+**Federal Suit Seeking Names of Some Jewish Employees at Penn Sparks Backlash**\
+`The Trump administration says it needs the information to investigate antisemitism and accuses the university of flouting a subpoena.`\
+https://nytimes.com/2025/11/21/us/eeoc-university-pennsylvania-antisemitism-jewish.html
+
 **In This Scandal, the Journalists Are the Story**\
 `Love, politics and ethics collided as Olivia Nuzzi and Ryan Lizza went at it in a media sphere that rewards private revelations.`\
 https://nytimes.com/2025/11/21/style/olivia-nuzzi-ryan-lizza-rfk-jr-affair.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/21/nyregion/congressional-aide-new-jersey-hoax.html
 **The Trump-Mamdani Buddy Movie? It’s Getting Mixed Reviews.**\
 `Zohran Mamdani and President Trump seemed to cast aside their months of traded insults, a development that seemed good for New York City but odd to some followers.`\
 https://nytimes.com/2025/11/21/nyregion/mamdani-trump-reaction-meeting.html
-
-**Mamdani’s Surreal and Shrewd Pragmatism**\
-`Since his election, Zohran Mamdani has made some surprisingly pragmatic or traditional choices — including his surreal meeting with President Trump.`\
-https://nytimes.com/2025/11/21/opinion/zohran-mamdani-trump-meeting-white-house.html
-
-**‘Fascist’? ‘Communist’? For an Afternoon, They Were Just 2 Guys From Queens.**\
-`Acid insults were set aside as New York’s mayor-elect and the president promoted their shared goals.`\
-https://nytimes.com/2025/11/21/us/politics/trump-mamdani-scene.html
 
