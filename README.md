@@ -1,3 +1,15 @@
+**One Killed and 8 Teenagers Wounded in Chicago Shootings**\
+`Seven people, ages 13 to 17 were shot at a downtown gathering by the Chicago Theater. A second shooting left a man dead and another teenager in serious condition.`\
+https://nytimes.com/2025/11/22/us/chicago-state-street-shooting.html
+
+**Burnley 0 Chelsea 2 - Should Chalobah-Sanchez incident have led to a penalty? Is Neto underrated?**\
+`Enzo Maresca's side went up to second in the Premier League, at least temporarily, with victory at Turf Moor`\
+https://nytimes.com/athletic/6814106/2025/11/22/burnley-0-chelsea-2-sanchez-chalobah-penalty/
+
+**OSU down 2 standout WRs vs. Rutgers: What it means for Michigan game**\
+`Even without their two star receivers, the Buckeyes are overwhelming favorites against Rutgers. But what about Michigan in Week 14?`\
+https://nytimes.com/athletic/6828600/2025/11/22/ohio-state-jeremiah-smith-carnell-tate-status/
+
 **How to watch Knicks vs. Magic: Time, TV, streaming**\
 `Find out how to watch the New York Knicks play the Orlando Magic, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6828689/2025/11/22/knicks-vs-magic-stream-how-to-watch-nov-22/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6828554/2025/11/22/washington-spirit-gotham-fc-sche
 **Power ranking the coolest sports cards of 2025 so far (November update)**\
 `From incredible relics to beautiful designs, these cards stand out among the millions released so far this year. `\
 https://nytimes.com/athletic/6687226/2025/11/22/the-coolest-sports-cards-of-2025-ranked-our-favorites-so-far-this-year/
-
-**Stream These 5 Movies and TV Shows Before They Leave Netflix in December**\
-`Departures for U.S. subscribers next month include several classic comedies of the big and small screen — and one particularly prescient one.`\
-https://nytimes.com/2025/11/22/arts/television/netflix-leaving-december.html
-
-**Yes, Australia were brilliant. But negligent England inflicted their own wounds - they blew it**\
-`Head's devastating innings propelled the hosts to a stunning victory, but England's wasteful batting after lunch invited him to excel`\
-https://nytimes.com/athletic/6828435/2025/11/22/australia-england-stokes-head-bazball/
-
-**Collin Gillespie's breakout season for the surprising Suns, defined by two plays**\
-`In his third season, Gillespie has established himself as an early contender for the NBA's Sixth Man of the Year award.`\
-https://nytimes.com/athletic/6828193/2025/11/22/collin-gillespie-phoenix-suns-sixth-man-breakout/
 
