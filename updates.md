@@ -1,4 +1,12 @@
 **'Shellshocked' Stokes says England do not need more match practice**\
+`Captain says tourists will not change strategy ahead of pink ball Test despite crushing defeat in Perth`\
+https://nytimes.com/athletic/6828532/2025/11/22/ashes-england-stokes-australia-head-smith/
+
+**Daily Mail Owner Agrees to Buy The Telegraph, Consolidating Right-Leaning Media in Britain**\
+`The deal would combine two of the country’s major newspaper groups, a move likely to attract antitrust scrutiny.`\
+https://nytimes.com/2025/11/22/business/dealbook/telegraph-daily-mail.html
+
+**'Shellshocked' Stokes says England do not need more match practice**\
 `Australia considered sending in Nathan Lyon as an emergency opener only for Travis Head to volunteer and propel them to an eye-catching win`\
 https://nytimes.com/athletic/6828532/2025/11/22/ashes-england-stokes-australia-head-smith/
 
