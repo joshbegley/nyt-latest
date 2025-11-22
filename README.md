@@ -1,9 +1,13 @@
+**Bulls baffled by instant Kevin Huerter ejection: 'I didn’t get much explanation'**\
+`The Bulls' guard was tossed after he slapped at the ball in frustration after a foul call, hitting a referee. He said it was an accident.`\
+https://nytimes.com/athletic/6828153/2025/11/22/kevin-huerter-ejection-bulls-tony-brothers/
+
 **The New York Times in Print for Saturday, Nov. 22, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/22/todays-new-york-times
 
 **Lando Norris surfs Las Vegas GP's slippery qualifying chaos, scores crucial pole**\
-`Rain made for a treacherous qualifying session as the championship leader put himself in great position to lock down the title`\
+`Lando Norris navigated wild and wet conditions to secure pole position for Formula One&#8217;s 2025 Las Vegas Grand Prix, with Max Verstappen second for Red Bull.`\
 https://nytimes.com/athletic/6828034/2025/11/22/las-vegas-f1-qualifying-results/
 
 **Lewis Hamilton qualifies last for Las Vegas Grand Prix as Ferrari struggles continue**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6826461/2025/11/22/premier-league-squad-cost-anchor
 **Barcelona's first game at the Camp Nou:  East vs West, 10,000 doves and the 'pitch of a lifetime'**\
 `As Barcelona finally return to the Camp Nou after its reconstruction, The Athletic takes a look back at when it opened in 1957...`\
 https://nytimes.com/athletic/6825829/2025/11/22/barcelona-camp-nou-first-game-history/
-
-**Trump and Mamdani’s News Conference: Read the Transcript**\
-`President Trump and Zohran Mamdani, the mayor-elect of New York City, spoke to the news media after their first face-to-face meeting.`\
-https://nytimes.com/2025/11/22/nyregion/trump-mamdani-meeting-press-conference-transcript.html
 
