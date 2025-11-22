@@ -1,3 +1,7 @@
+**For Marjorie Taylor Greene, a Rough Education in MAGA Politics**\
+`The Georgia congresswoman strove to be both the ultimate Trump warrior and to be taken seriously. She wound up in political exile.`\
+https://nytimes.com/2025/11/22/us/politics/marjorie-taylor-greene.html
+
 **Bruce Branch III, No. 1 prospect in class of 2027, reclassifies to 2026**\
 `Branch averaged 15.9 points, 5.2 rebounds and 2.0 assists this summer playing up a level, and is now in conversation for the 2027 NBA Draft.`\
 https://nytimes.com/athletic/6829269/2025/11/22/bruce-branch-iii-reclassifies-2026/
