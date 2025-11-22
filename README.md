@@ -1,3 +1,7 @@
+**Raptors become first team to advance to knockout round of NBA Cup**\
+`With their sixth straight win, Toronto also advanced to the next stage of the NBA Cup for the first time in its history. `\
+https://nytimes.com/athletic/6826941/2025/11/21/raptors-nba-cup-standings-knockout-round/
+
 **Sea Foam**\
 `Blake Slonecker’s tough puzzle will wake solvers right up.`\
 https://nytimes.com/2025/11/21/crosswords/daily-puzzle-2025-11-22.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000010540408/on-police-footage-and-the-per
 **Colts' Charvarius Ward to return from concussion after contemplating retirement**\
 `Ward struggled with dizziness, crossed eyes, vomiting and headaches while recovering from a concussion he suffered in Week 6.`\
 https://nytimes.com/athletic/6827607/2025/11/21/charvarius-ward-colts-injury-concussion-update-retirement/
-
-**New Jersey Congressman’s Aide Faked Anti-Trump Slashing Attack, U.S. Says**\
-`Natalie Greene, 26, who worked for Representative Jeff Van Drew, a Republican, falsely claimed she was attacked at a nature reserve, the authorities said.`\
-https://nytimes.com/2025/11/21/nyregion/congressional-aide-new-jersey-hoax.html
 
