@@ -1,3 +1,7 @@
+**European Leaders to Discuss Support for Ukraine in Response to U.S. Peace Plan**\
+`The meeting is scheduled for Saturday afternoon on the sidelines of the G20 summit in South Africa. The White House plan calls for Ukraine to make significant concessions to Russia.`\
+https://nytimes.com/2025/11/22/world/africa/g20-south-africa-ukraine-russia-united-states.html
+
 **After losing Quentin Lake, Rams must replace a defender who did everything**\
 `Lake, a budding star and leader in the secondary for the Rams, was one of three players the team placed on IR this week.`\
 https://nytimes.com/athletic/6825294/2025/11/22/rams-defense-quentin-lake-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6828059/2025/11/22/sabres-blackhawks-win-josh-doan/
 **Penguins return home with a thud vs. Wild as injuries may be taking a toll: 10 observations**\
 `The Penguins served up their worst performance of the season in Friday's 5-0 loss on home ice against the Wild.`\
 https://nytimes.com/athletic/6827907/2025/11/22/penguins-wild-injuries-loss-observations/
-
-**NWSL Championship: How to watch Washington Spirit vs. Gotham FC in rivalry title match**\
-`Here's how to tune in for Saturday's title tilt between Washington and Gotham.`\
-https://nytimes.com/athletic/6822121/2025/11/22/nwsl-championship-washington-spirit-gotham-how-to-watch/
 
