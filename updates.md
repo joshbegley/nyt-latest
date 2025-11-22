@@ -1,3 +1,7 @@
+**Trump Is Mired in a War of Attrition**\
+`It’s not a winning strategy.`\
+https://nytimes.com/2025/11/22/opinion/trump-approval-opinion-confederate.html
+
 **Eagles notes: How Philly navigated a drama-filled week, Jalen Carter after ejection**\
 `The Eagles are on pace for the NFC's top seed and could clinch the division this month despite reports about the offensive struggles.`\
 https://nytimes.com/athletic/6828795/2025/11/22/eagles-jalen-hurts-cowboys-drama/
