@@ -1,3 +1,7 @@
+**'Shellshocked' Stokes says England do not need more match practice**\
+`Australia considered sending in Nathan Lyon as an emergency opener only for Travis Head to volunteer and propel them to an eye-catching win`\
+https://nytimes.com/athletic/6828532/2025/11/22/ashes-england-stokes-australia-head-smith/
+
 **I was an athletic trainer in the NFL and MLS. Three things I wish every parent knew**\
 `Ian McMahan is a certified athletic trainer who has previously worked with the 49ers, Major League Soccer and the Women's World Cup.`\
 https://nytimes.com/athletic/6826372/2025/11/22/youth-sports-parents-tips-training-performance/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6826589/2025/11/22/harvard-yale-football-2025-rival
 **Winnipeg Jets' latest questions: Lambert's trade request, Hellebuyck's surgery, more**\
 `We break down this week's Jets news as Brad Lambert's trade request became a hot-button issue, and an injury sidelined Connor Hellebuyck.`\
 https://nytimes.com/athletic/6827415/2025/11/22/jets-connor-hellebuyck-surgery-brad-lambert-trade/
-
-**Trump Is Down Again. His Way Back Up This Time Is Not So Clear.**\
-`There are no easy answers for the current economic discontent.`\
-https://nytimes.com/2025/11/22/opinion/trump-economy-lame-duck.html
 
