@@ -1,3 +1,23 @@
+**Orthodox Jewish Man Sentenced to 103 Years for Sex Abuse May Go Free**\
+`Nechemya Weberman, convicted of molesting a 12-year-old girl in a politically charged case, is seeking a new, shorter sentence with the Brooklyn district attorney’s support.`\
+https://nytimes.com/2025/11/22/nyregion/judge-nechemya-weberman-resentence.html
+
+**What to Know About the Nearly 10% Climb in a Key Medicare Expense for 2026**\
+`The rapidly rising premium for Part B, which covers retirees’ outpatient services, reflects the fast pace of growth for health care costs nationally.`\
+https://nytimes.com/2025/11/22/business/what-to-know-about-the-nearly-10-climb-in-a-key-medicare-expense-for-2026.html
+
+**A Gigolo, a Dead Body, City Mayhem. In Other Words, the Good Old Days.**\
+`New York City loves to tell stories about itself. In the new low-budget film “Bunny,” the East Village of the ’90s — before Whole Foods and Target arrived — is a nostalgic template.`\
+https://nytimes.com/2025/11/22/nyregion/bunny-movie-nyc-east-village.html
+
+**How a ‘Stranger Things’ Star Spends an Off Day**\
+`Gaten Matarazzo, a breakout star of Netflix’s megahit horror series, attends Rangers hockey games with his dad and walks the Hudson River with his girlfriend.`\
+https://nytimes.com/2025/11/22/nyregion/how-a-stranger-things-star-spends-an-off-day.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/22/crosswords/spelling-bee-forum.html
+
 **Bulls baffled by instant Kevin Huerter ejection: 'I didn’t get much explanation'**\
 `The Bulls' guard was tossed after he slapped at the ball in frustration after a foul call, hitting a referee. He said it was an accident.`\
 https://nytimes.com/athletic/6828153/2025/11/22/kevin-huerter-ejection-bulls-tony-brothers/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6828122/2025/11/22/lewis-hamilton-ferrari-las-vegas
 **U.S. Defends Decision to Seek Death Penalty for Luigi Mangione**\
 `Prosecutors argue that Mr. Mangione can receive a fair trial, despite his lawyers’ concerns about “damaging” statements from the attorney general about the murder case.`\
 https://nytimes.com/2025/11/22/nyregion/luigi-mangione-death-penalty.html
-
-**Are Leeds United really playing the way they planned this summer?**\
-`Leeds enjoyed relative success early this season by going long to Dominic Calvert-Lewin - so why did they stop?`\
-https://nytimes.com/athletic/6826960/2025/11/22/leeds-farke-playing-style/
-
-**Why are the Premier League's two 'data clubs' better at home than they are away this season?**\
-`Brighton have home advantage against Brentford on Saturday – and so far this season that has really meant something`\
-https://nytimes.com/athletic/6825818/2025/11/22/brighton-brentford-home-away-form-data/
-
-**Fire Breaks Out on Cargo Ship in the Port of Los Angeles**\
-`More than 100 firefighters were responding after the electrical fire started on the vessel, Mayor Karen Bass of Los Angeles said. All crew members were evacuated and no injuries were reported.`\
-https://nytimes.com/2025/11/22/us/cargo-ship-fire-los-angeles-port.html
-
-**Inside the momentous Premier League summit on squad cost ratio, anchoring, and sustainability**\
-`On Friday, the Premier League's 20 clubs voted on three potential financial rule changes - so who voted for what...?`\
-https://nytimes.com/athletic/6826461/2025/11/22/premier-league-squad-cost-anchoring-psr/
-
-**Barcelona's first game at the Camp Nou:  East vs West, 10,000 doves and the 'pitch of a lifetime'**\
-`As Barcelona finally return to the Camp Nou after its reconstruction, The Athletic takes a look back at when it opened in 1957...`\
-https://nytimes.com/athletic/6825829/2025/11/22/barcelona-camp-nou-first-game-history/
 
