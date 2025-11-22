@@ -1,3 +1,15 @@
+**Marjorie Taylor Greene Says She Plans to Resign in January**\
+`Ms. Greene, who was elected in 2020, positioned herself as a die-hard Trump supporter until a series of recent ruptures with the president, who recently un-endorsed her.`\
+https://nytimes.com/2025/11/21/us/politics/marjorie-taylor-greene-resigns.html
+
+**On Police Footage and ‘The Perfect Neighbor’**\
+`Wesley Morris, the host of “Cannonball” at The New York Times, sits down with Parul Sehgal, a critic at large for The Times, to talk about the Netflix documentary “The Perfect Neighbor” and its use of police body camera footage.`\
+https://nytimes.com/video/podcasts/100000010540408/on-police-footage-and-the-perfect-neighbor.html
+
+**Colts' Charvarius Ward to return from concussion after contemplating retirement**\
+`Ward struggled with dizziness, crossed eyes, vomiting and headaches while recovering from a concussion he suffered in Week 6.`\
+https://nytimes.com/athletic/6827607/2025/11/21/charvarius-ward-colts-injury-concussion-update-retirement/
+
 **New Jersey Congressman’s Aide Faked Anti-Trump Slashing Attack, U.S. Says**\
 `Natalie Greene, 26, who worked for Representative Jeff Van Drew, a Republican, falsely claimed she was attacked at a nature reserve, the authorities said.`\
 https://nytimes.com/2025/11/21/nyregion/congressional-aide-new-jersey-hoax.html
