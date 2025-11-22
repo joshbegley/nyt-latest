@@ -1,3 +1,11 @@
+**Fearing He Would Flee, Police in Brazil Arrest Jair Bolsonaro**\
+`The arrest came days before the former president was expected to be ordered to begin a 27-year prison sentence for staging a failed coup.`\
+https://nytimes.com/2025/11/22/world/americas/jair-bolsonaro-brazil-arrest.html
+
+**Cannon and Other Artifacts Are Recovered From San José Shipwreck**\
+`Colombian scientists also retrieved three coins and a porcelain cup from the San José, which treasure hunters have come to call the Holy Grail of shipwrecks.`\
+https://nytimes.com/2025/11/22/world/americas/san-jose-shipwreck-galleon-artifacts.html
+
 **Joe Burrow won't start for Bengals vs. Patriots: Sources**\
 `There are eyes toward Burrow potentially returning on Thanksgiving night in Baltimore against the Ravens.`\
 https://nytimes.com/athletic/6828579/2025/11/22/bengals-joe-burrow-status-joe-flacco/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6828687/2025/11/22/blues-vs-islanders-stream-how-to
 **Anthony Edwards, Julius Randle and Chris Finch come up short in collapse to Suns**\
 `At 2-1 with a plus-53 point differential, they are still in the NBA Cup hunt. But a win would have all but clinched a spot in the quarters.`\
 https://nytimes.com/athletic/6828102/2025/11/22/nba-cup-timberwolves-collapse-suns/
-
-**Cooper Flagg gets revenge against former teammate Derik Queen as Mavs beat Pelicans**\
-`Flagg and Queen have engaged in friendly banter this month, but the high school teammates' respect level for each other remains high.`\
-https://nytimes.com/athletic/6828177/2025/11/22/cooper-flagg-gets-revenge-against-former-teammate-derik-queen-as-mavs-beat-pelicans/
-
-**Anaheim Ducks stock report: Who's up, who's down after a quarter of the season?**\
-`The Ducks have cooled after a hot start, but which players deserve the most credit for helping them top the division?`\
-https://nytimes.com/athletic/6826909/2025/11/22/anaheim-ducks-stock-report-quarter-season/
 
