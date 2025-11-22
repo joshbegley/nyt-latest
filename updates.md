@@ -1,3 +1,15 @@
+**Trump and Mamdani’s News Conference: Read the Transcript**\
+`President Trump and Zohran Mamdani, the mayor-elect of New York City, spoke to the news media after their first face-to-face meeting.`\
+https://nytimes.com/2025/11/22/nyregion/trump-mamdani-meeting-press-conference-transcript.html
+
+**Ranking the 2026 Ballon d'Or contenders: Is Erling Haaland in pole position?**\
+`The early contenders for men's football's biggest individual prize`\
+https://nytimes.com/athletic/6822676/2025/11/22/2026-ballon-dor-contenders-yamal-haaland-mbappe-kane/
+
+**Hugo Viana to Newcastle: The deal that got Jorge Mendes into the Premier League**\
+`Now Manchester City's sporting director, Viana arrived on Tyneside in 2002 and carved a path for Portuguese talent to follow`\
+https://nytimes.com/athletic/6822859/2025/11/22/hugo-viana-newcastle-jorge-mendes-premier-league/
+
 **The amateur American football team in London that is changing lives and producing NFL talent**\
 `The London Warriors are an amateur team that has produced some of Britain's brightest American football talents.`\
 https://nytimes.com/athletic/6683365/2025/11/22/london-warriors-aden-durde-efe-obada-nfl/
