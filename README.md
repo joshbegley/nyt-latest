@@ -1,3 +1,7 @@
+**Tyronn Lue lauds James Harden's double-nickel effort: 'He carried us offensively'**\
+`Clippers coach Tyronn Lue realized James Harden was due for a special day after a red-hot first quarter.`\
+https://nytimes.com/athletic/6829537/2025/11/22/james-harden-55-points-clippers-franchise-record-nba/
+
 **A Cancer Diagnosis Brings a New Season of Grief to the Kennedy Family**\
 `Tatiana Schlossberg, the daughter of Caroline Kennedy, revealed a terminal cancer diagnosis in an essay published on the anniversary of her grandfather’s assassination.`\
 https://nytimes.com/2025/11/22/us/tatiana-schlossberg-kennedy-cancer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/22/us/politics/marjorie-taylor-greene.html
 **Bruce Branch III, No. 1 prospect in class of 2027, reclassifies to 2026**\
 `Branch averaged 15.9 points, 5.2 rebounds and 2.0 assists this summer playing up a level, and is now in conversation for the 2027 NBA Draft.`\
 https://nytimes.com/athletic/6829269/2025/11/22/bruce-branch-iii-reclassifies-2026/
-
-**Greene’s Exit Deals a Blow to G.O.P., Putting Rifts on Display**\
-`Representative Marjorie Taylor Greene’s sudden resignation underscored the fragility of the G.O.P. majority, and exposed deep discontent on the right going into the midterm elections.`\
-https://nytimes.com/2025/11/22/us/politics/marjorie-taylor-greene-republicans.html
 
