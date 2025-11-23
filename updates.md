@@ -1,3 +1,7 @@
+**BYU stacks up to the SEC in front of it. Can it break through the Playoff logjam?**\
+`BYU controls its destiny in the College Football Playoff path. `\
+https://nytimes.com/athletic/6830618/2025/11/23/byu-cincinnati-analysis-takeaways-college-football-playoff/
+
 **USC's season is functionally over. Was it a success?**\
 `Next season is shaping up to be the most critical for Riley yet. There are no more excuses left to be made.`\
 https://nytimes.com/athletic/6830603/2025/11/23/usc-oregon-lincoln-riley/
