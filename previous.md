@@ -1,3 +1,7 @@
+**Terry Crews serenades F1 Las Vegas Grand Prix podium finishers in pink LEGO Cadillac**\
+`Max Verstappen, Lando Norris and George Russell laughed as Crews reenacted his famous scene from "White Chicks" for the F1 drivers.`\
+https://nytimes.com/athletic/6831436/2025/11/23/terry-crews-formula-one-las-vegas-grand-prix/
+
 **Ugarte in 'different world' at Man Utd but 'needs to improve' - Amorim**\
 `The Uruguayan has struggled to make an impact in England, and has started just twice in the Premier League so far this season.`\
 https://nytimes.com/athletic/6826516/2025/11/23/manuel-ugarte-struggling-manchester-united-amorim/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6831468/2025/11/23/seahawks-titans-score-result-tak
 **Bears-Steelers: Caleb Williams powers win vs. Pittsburgh as Aaron Rodgers sits**\
 `Williams passed for 239 yards and three touchdowns in Chicago's fourth straight win, a game that came down to the end. `\
 https://nytimes.com/athletic/6830830/2025/11/23/steelers-bears-score-result-takeaways/
-
-**Jeeno Thitikul completes dominant LPGA season with tour championship win**\
-`Thitikul will take home a $4 million prize for her win on Sunday.`\
-https://nytimes.com/athletic/6831620/2025/11/23/jeeno-thitikul-lpga-cme-group-tour-championship/
 

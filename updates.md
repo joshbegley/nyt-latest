@@ -1,3 +1,7 @@
+**Terry Crews serenades F1 Las Vegas Grand Prix podium finishers in pink LEGO Cadillac**\
+`Max Verstappen, Lando Norris and George Russell laughed as Crews reenacted his famous scene from "White Chicks" for the F1 drivers.`\
+https://nytimes.com/athletic/6831436/2025/11/23/terry-crews-formula-one-las-vegas-grand-prix/
+
 **Ugarte in 'different world' at Man Utd but 'needs to improve' - Amorim**\
 `The Uruguayan has struggled to make an impact in England, and has started just twice in the Premier League so far this season.`\
 https://nytimes.com/athletic/6826516/2025/11/23/manuel-ugarte-struggling-manchester-united-amorim/
