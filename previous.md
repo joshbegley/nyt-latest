@@ -1,3 +1,15 @@
+**Arsenal vs Tottenham: Worst injury list? Most dangerous player? Predictions?**\
+`League leaders Arsenal host rivals Spurs at the Emirates on Sunday — our writers take a look at the talking points ahead of the game`\
+https://nytimes.com/athletic/6825775/2025/11/23/arsenal-tottenham-preview-north-london-derby/
+
+**After shining for Brazil, can Rodrygo work his way back into Real Madrid's team?**\
+`Rodrgyo looked at home playing under Ancelotti, and with Vinicius Jr, for Brazil. But will his international form help at Real Madrid?`\
+https://nytimes.com/athletic/6822755/2025/11/23/rodrygo-brazil-ancelotti-real-madrid-team/
+
+**Chelsea do not know where their next goal will come from. That's good and bad**\
+`Enzo Maresca's team do not have a main man scoring the goals up front, but it does not bother the Chelsea coach`\
+https://nytimes.com/athletic/6829131/2025/11/23/chelsea-premier-league-goalscorers-analysis/
+
 **Flyers score 3 goals in 26 seconds, showing signs of an improving offense**\
 `Philadelphia scored a franchise-record three goals in just 26 seconds in the first period, the fifth-fastest mark in NHL history.`\
 https://nytimes.com/athletic/6830009/2025/11/23/flyers-devils-nhl-goals-offense/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6560541/2025/11/22/college-football-playoff-bracket
 **Chris Klieman in tears as he defends Kansas State following Utah loss**\
 `An emotional Chris Klieman defended his players and his program in a postgame statement following Kansas State’s collapse at Utah.`\
 https://nytimes.com/athletic/6830019/2025/11/22/kansas-state-head-coach-chris-klieman-news-conference/
-
-**Benedict shocks Wingate with cross-field lateral on final play in Division II playoffs**\
-`Things looked bleak for the Tigers when they were at their own 14 with three seconds left. `\
-https://nytimes.com/athletic/6829695/2025/11/22/benedict-wingate-trick-play-lateral/
-
-**From 'cold tub' to scoreboard, Blues may have a new line combo with rookie center**\
-`Dalibor Dvorsky recorded his first assist in the NHL, setting up a goal by Brayden Schenn that helped end the Blues' winless skid.`\
-https://nytimes.com/athletic/6829265/2025/11/22/blues-dalibor-dvorsky-brayden-schenn-pavel-buchnevich/
-
-**Pitt's wild win at GT reshuffles ACC race with 1 week to go**\
-`Six teams are still mathematically alive in the ACC title race with one week to go.`\
-https://nytimes.com/athletic/6829943/2025/11/22/acc-championship-race-pittsburgh-georgia-tech/
 

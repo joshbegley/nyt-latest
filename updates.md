@@ -1,3 +1,15 @@
+**Arsenal vs Tottenham: Worst injury list? Most dangerous player? Predictions?**\
+`League leaders Arsenal host rivals Spurs at the Emirates on Sunday — our writers take a look at the talking points ahead of the game`\
+https://nytimes.com/athletic/6825775/2025/11/23/arsenal-tottenham-preview-north-london-derby/
+
+**After shining for Brazil, can Rodrygo work his way back into Real Madrid's team?**\
+`Rodrgyo looked at home playing under Ancelotti, and with Vinicius Jr, for Brazil. But will his international form help at Real Madrid?`\
+https://nytimes.com/athletic/6822755/2025/11/23/rodrygo-brazil-ancelotti-real-madrid-team/
+
+**Chelsea do not know where their next goal will come from. That's good and bad**\
+`Enzo Maresca's team do not have a main man scoring the goals up front, but it does not bother the Chelsea coach`\
+https://nytimes.com/athletic/6829131/2025/11/23/chelsea-premier-league-goalscorers-analysis/
+
 **Flyers score 3 goals in 26 seconds, showing signs of an improving offense**\
 `Philadelphia scored a franchise-record three goals in just 26 seconds in the first period, the fifth-fastest mark in NHL history.`\
 https://nytimes.com/athletic/6830009/2025/11/23/flyers-devils-nhl-goals-offense/
