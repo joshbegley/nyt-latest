@@ -1,3 +1,7 @@
+**College Football Playoff Week 13 lessons: Dan Lanning shades SEC, Ole Miss in minus Kiffin?**\
+`None of the SEC's buy games were any less competitive than Notre Dame-Syracuse. Ohio State routed Rutgers. Cupcakes come in many flavors.`\
+https://nytimes.com/athletic/6830266/2025/11/23/college-football-playoff-race-updates-week-13/
+
 **Tears, fears and hope as Barcelona return to the Camp Nou after 909 days away**\
 `Spain's champions were finally back at their iconic home ground on Saturday after two-and-a-half years of refurbishments. How did it feel?`\
 https://nytimes.com/athletic/6830391/2025/11/23/barcelona-camp-nou-return-la-liga/
