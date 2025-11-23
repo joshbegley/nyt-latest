@@ -1,3 +1,11 @@
+**Fire Threatens Iran’s Ancient Forest, a World Heritage Site**\
+`Iran has been battling its worst drought in more than six decades. A blaze in the north has now eaten through parts of the old treasure.`\
+https://nytimes.com/2025/11/23/world/europe/iran-fire-hyrcanian-forests.html
+
+**Tigers, others looking at free agent Ryan Helsley as a starter: Sources**\
+`MLB's leader in saves in 2024, Helsley hasn't started since 2019, when he was in Triple A with the St. Louis Cardinals. `\
+https://nytimes.com/athletic/6830980/2025/11/23/ryan-helsley-starter-detroit-tigers/
+
 **Lowetide: Why Oilers' 5-on-5 game has struggled so much this season**\
 `Oilers fans can point to any number of issues. What, exactly, is going on? And how does this get better?`\
 https://nytimes.com/athletic/6829111/2025/11/23/edmonton-oilers-stats-2025-goal-share/
