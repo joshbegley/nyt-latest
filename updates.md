@@ -1,3 +1,11 @@
+**Motorcyclist Dies in ‘Globe of Death’ Circus Accident in Italy**\
+`Christián Quezada Vasquez died after losing control during a stunt in which motorcyclists ride around a spherical cage, the circus company said.`\
+https://nytimes.com/2025/11/23/world/europe/circus-accident-death-motorcycle-italy.html
+
+**The Pulse: A case in 70 points**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6830053/2025/11/23/notre-dams-70-7-wipeout-certainly-does-make-a-case-they-needed/
+
 **In His Tightest Corner Yet, Will Zelensky Rise to the Occasion?**\
 `Over nearly four years of wartime leadership, analysts say the Ukrainian leader has repeatedly played weak hands wisely. A U.S. peace plan may be his biggest test.`\
 https://nytimes.com/2025/11/23/world/europe/ukraine-zelensky-war-russia.html
