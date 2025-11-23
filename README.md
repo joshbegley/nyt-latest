@@ -1,3 +1,7 @@
+**Trump Calls Ukraine Ungrateful, Again, for U.S. Support in War With Russia**\
+`President Trump renewed his criticism of Ukraine’s government as emissaries from Kyiv and Washington met to discuss a plan to end the war.`\
+https://nytimes.com/2025/11/23/us/politics/trump-ukraine-criticism-russia.html
+
 **Fire Threatens Iran’s Ancient Forest, a World Heritage Site**\
 `Iran has been battling its worst drought in more than six decades. A blaze in the north has now eaten through parts of the old treasure.`\
 https://nytimes.com/2025/11/23/world/europe/iran-fire-hyrcanian-forests.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6830988/2025/11/23/hornets-vs-hawks-stream-how-to-w
 **How to watch Avalanche vs. Blackhawks: Time, TV, streaming**\
 `Find out how to watch the Colorado Avalanche play the Chicago Blackhawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6830986/2025/11/23/avalanche-vs-blackhawks-stream-how-to-watch-nov-23/
-
-**How to watch Kraken vs. Islanders: Time, TV, streaming**\
-`Find out how to watch the Seattle Kraken play the New York Islanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6830983/2025/11/23/kraken-vs-islanders-stream-how-to-watch-nov-23/
 
