@@ -1,4 +1,8 @@
-**Rubio Insists U.S. ‘Authored’ the Ukraine Peace Plan**\
+**USC's season is functionally over. Was it a success?**\
+`Next season is shaping up to be the most critical for Riley yet. There are no more excuses left to be made.`\
+https://nytimes.com/athletic/6830603/2025/11/23/usc-oregon-lincoln-riley/
+
+**Rubio Insists U.S. Authored the Ukraine Peace Plan**\
 `The comment from Secretary of State Marco Rubio came after a group of U.S. lawmakers claimed that he said the plan was a Russian initiative, not a U.S. proposal.`\
 https://nytimes.com/2025/11/23/us/politics/rubio-us-author-ukraine-peace-plan.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6830658/2025/11/23/coppin-state-vs-tennessee-stream
 **How to watch Queens (NC) vs. South Carolina women's basketball: Time, TV, streaming**\
 `Find out how to watch the Queens (NC) Royals play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6830653/2025/11/23/queens-nc-vs-south-carolina-stream-how-to-watch-nov-23/
-
-**How to watch Howard vs. Duke men's basketball: Time, TV, streaming**\
-`Find out how to watch the Howard Bison play the Duke Blue Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6830649/2025/11/23/howard-vs-duke-stream-how-to-watch-nov-23/
 

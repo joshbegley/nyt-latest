@@ -1,3 +1,7 @@
+**Rubio Insists U.S. ‘Authored’ the Ukraine Peace Plan**\
+`The comment from Secretary of State Marco Rubio came after a group of U.S. lawmakers claimed that he said the plan was a Russian initiative, not a U.S. proposal.`\
+https://nytimes.com/2025/11/23/us/politics/rubio-us-author-ukraine-peace-plan.html
+
 **BYU stacks up to the SEC in front of it. Can it break through the Playoff logjam?**\
 `BYU controls its destiny in the College Football Playoff path.`\
 https://nytimes.com/athletic/6830618/2025/11/23/byu-cincinnati-analysis-takeaways-college-football-playoff/
