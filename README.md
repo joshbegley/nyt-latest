@@ -35,6 +35,6 @@ https://nytimes.com/athletic/6829481/2025/11/22/blackhawks-prospect-mason-west-s
 https://nytimes.com/athletic/6829537/2025/11/22/james-harden-55-points-clippers-franchise-record-nba/
 
 **A Cancer Diagnosis Brings a New Season of Grief to the Kennedy Family**\
-`Tatiana Schlossberg, the daughter of Caroline Kennedy, revealed a terminal cancer diagnosis in an essay published on the anniversary of her grandfather’s assassination.`\
+`Tatiana Schlossberg, a daughter of Caroline Kennedy, revealed a terminal cancer diagnosis in an essay published on the anniversary of her grandfather’s assassination.`\
 https://nytimes.com/2025/11/22/us/tatiana-schlossberg-kennedy-cancer.html
 
