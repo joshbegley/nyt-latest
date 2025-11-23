@@ -1,3 +1,11 @@
+**BYU stacks up to the SEC in front of it. Can it break through the Playoff logjam?**\
+`BYU controls its destiny in the College Football Playoff path.`\
+https://nytimes.com/athletic/6830618/2025/11/23/byu-cincinnati-analysis-takeaways-college-football-playoff/
+
+**How to watch Wild vs. Jets: Time, TV, streaming**\
+`Find out how to watch the Minnesota Wild play the Winnipeg Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6830690/2025/11/23/wild-vs-jets-stream-how-to-watch-nov-23/
+
 **How to watch George Mason vs. Maryland women's basketball: Time, TV, streaming**\
 `Find out how to watch the George Mason Patriots play the Maryland Terrapins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6830677/2025/11/23/george-mason-vs-maryland-stream-how-to-watch-nov-23/
