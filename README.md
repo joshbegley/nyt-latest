@@ -1,3 +1,7 @@
+**Denmark Offers Lessons as Europe Toughens Up on Immigration**\
+`Like other European leaders, British Labour politicians are borrowing from Denmark’s restrictive asylum policy. One of its architects cautions that “balance” is necessary.`\
+https://nytimes.com/2025/11/23/world/europe/denmark-immigration-uk.html
+
 **Mother Accused of Delaying Medical Care for Daughter Who Died on Road Trip**\
 `A diabetic 10-year-old girl slipped into a coma during a trip with her family and was brought to the hospital after she had died, the authorities said.`\
 https://nytimes.com/2025/11/23/us/mother-death-child-diabetes-washington.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010530619/europe-immigration-crackd
 **How Sean Dyche masterminded another momentous win for Nottingham Forest at Anfield**\
 `Forest's second successive win away at Liverpool had their new manager's stamp all over it `\
 https://nytimes.com/athletic/6830372/2025/11/23/how-sean-dyche-masterminded-another-momentous-win-for-nottingham-forest-at-anfield/
-
-**After a rollercoaster season, "villains" Gotham hit their peak to win second NWSL Championship**\
-`As they did in 2023, Gotham reached the podium as the lowest playoff seed, rising from the gutters in an ominous cloud`\
-https://nytimes.com/athletic/6830907/2025/11/23/gotham-nwsl-championship-washington-spirit/
 
