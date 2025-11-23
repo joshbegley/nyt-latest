@@ -1,3 +1,11 @@
+**Benedict shocks Wingate with cross-field lateral on final play in Division II playoffs**\
+`Things looked bleak for the Tigers when they were at their own 14 with three seconds left. `\
+https://nytimes.com/athletic/6829695/2025/11/22/benedict-wingate-trick-play-lateral/
+
+**From 'cold tub' to scoreboard, Blues may have a new line combo with rookie center**\
+`Dalibor Dvorsky recorded his first assist in the NHL, setting up a goal by Brayden Schenn that helped end the Blues' winless skid.`\
+https://nytimes.com/athletic/6829265/2025/11/22/blues-dalibor-dvorsky-brayden-schenn-pavel-buchnevich/
+
 **From 'cold tub' to scoreboard, Blues may have a new line combo with rookie center**\
 `Dalibor Dvorsky recorded his first assist in the NHL, setting up a goal by Brayden Schenn, that helped end the Blues' winless skid.`\
 https://nytimes.com/athletic/6829265/2025/11/22/blues-dalibor-dvorsky-brayden-schenn-pavel-buchnevich/
