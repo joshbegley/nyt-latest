@@ -1,3 +1,7 @@
+**MLS's Son-Müller playoff showdown meets the hype, as Vancouver wins an instant classic**\
+`If Son Heung-min's stoppage time free kick wasn't a dagger, dropping to nine men should've been. It didn't matter for the resolute Whitecaps`\
+https://nytimes.com/athletic/6830201/2025/11/23/vancouver-whitecaps-lafc-mls-playoffs-son-muller-berhalter/
+
 **Klay Thompson blasts Ja Morant for 'running his mouth' while in street clothes**\
 `The two exchanged words and had to be separated after the Dallas Mavericks' 102-96 loss to the Memphis Grizzlies.`\
 https://nytimes.com/athletic/6830099/2025/11/23/klay-thompson-blasts-ja-morant-mavericks-grizzlies/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6827421/2025/11/23/world-cup-2026-200-days-to-go/
 **Arsenal vs Tottenham: Worst injury list? Most dangerous player? Predictions?**\
 `League leaders Arsenal host rivals Spurs at the Emirates on Sunday — our writers take a look at the talking points ahead of the game`\
 https://nytimes.com/athletic/6825775/2025/11/23/arsenal-tottenham-preview-north-london-derby/
-
-**After shining for Brazil, can Rodrygo work his way back into Real Madrid's team?**\
-`Rodrgyo looked at home playing under Ancelotti, and with Vinicius Jr, for Brazil. But will his international form help at Real Madrid?`\
-https://nytimes.com/athletic/6822755/2025/11/23/rodrygo-brazil-ancelotti-real-madrid-team/
 
