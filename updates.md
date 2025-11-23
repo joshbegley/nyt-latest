@@ -1,3 +1,7 @@
+**Notre Dame led Syracuse by 21 before it got the ball. Then it got uglier**\
+`It’s hard to imagine Notre Dame budging from its CFP positioning after a performance like this.`\
+https://nytimes.com/athletic/6829499/2025/11/22/notre-dame-syracuse-score-result-takeaways/
+
 **Notre Dame led Syracuse by 21 before its offense got the ball. Then it got uglier**\
 `It’s hard to imagine Notre Dame budging from its CFP positioning after a performance like this.`\
 https://nytimes.com/athletic/6829499/2025/11/22/notre-dame-syracuse-score-result-takeaways/
