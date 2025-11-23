@@ -1,3 +1,11 @@
+**Denmark’s Migration Model**\
+`The country is getting attention for its tough asylum policies. Can they serve as a bulwark against the far right?`\
+https://nytimes.com/2025/11/23/world/denmark-migration-britain-ukraine-talks-us.html
+
+**‘Gruesome Playground Injuries’ Review: Does It Hurt?**\
+`Kara Young and Nicholas Braun star in the Off Broadway revival of Rajiv Joseph’s two-hander about best friends on parallel paths to self-destruction.`\
+https://nytimes.com/2025/11/23/theater/gruesome-playground-injuries-review.html
+
 **New York to honor NWSL champions Gotham FC with City Hall celebration**\
 `Gotham’s NYC celebration will include a fleet of buses that will drive toward City Hall, and the team will be awarded the key to the city.`\
 https://nytimes.com/athletic/6831449/2025/11/23/new-york-gotham-fc-city-hall-celebration/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6831320/2025/11/23/spurs-vs-suns-stream-how-to-watc
 **How to watch Lakers vs. Jazz: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Lakers play the Utah Jazz, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6831318/2025/11/23/lakers-vs-jazz-stream-how-to-watch-nov-23/
-
-**How to watch Bruins vs. Sharks: Time, TV, streaming**\
-`Find out how to watch the Boston Bruins play the San Jose Sharks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6831316/2025/11/23/bruins-vs-sharks-stream-how-to-watch-nov-23/
-
-**How to watch Flames vs. Canucks: Time, TV, streaming**\
-`Find out how to watch the Calgary Flames play the Vancouver Canucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6831314/2025/11/23/flames-vs-canucks-stream-how-to-watch-nov-23/
 

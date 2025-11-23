@@ -1,3 +1,7 @@
+**New York to honor NWSL champions Gotham FC with City Hall celebration**\
+`Gotham’s NYC celebration will include a fleet of buses that will drive toward City Hall, and the team will be awarded the key to the city.`\
+https://nytimes.com/athletic/6831449/2025/11/23/new-york-gotham-fc-city-hall-celebration/
+
 **Italy wins third straight Davis Cup as Flavio Cobolli and Matteo Berrettini step up**\
 `With Jannik Sinner and Carlos Alcaraz absent, Italy triumphed over Spain to extend its dominance at the 'World Cup of tennis.'`\
 https://nytimes.com/athletic/6831368/2025/11/23/tennis-davis-cup-final-italy-spain-cobolli-munar-berrettini-carreno-busta/
