@@ -1,3 +1,7 @@
+**Mets, Rangers agree to trade involving Brandon Nimmo and Marcus Semien: Sources**\
+`The trade was driven in part by the Rangers’ desire to change their chemistry and the Mets’ goal of improving their run prevention.`\
+https://nytimes.com/athletic/6831659/2025/11/23/mets-rangers-trade-brandon-nimmo-marcus-semien/
+
 **Terry Crews serenades F1 Las Vegas Grand Prix podium finishers in pink LEGO Cadillac**\
 `Max Verstappen, Lando Norris and George Russell laughed as Crews reenacted his famous scene from "White Chicks" for the F1 drivers.`\
 https://nytimes.com/athletic/6831436/2025/11/23/terry-crews-formula-one-las-vegas-grand-prix/

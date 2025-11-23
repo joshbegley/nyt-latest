@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6826516/2025/11/23/manuel-ugarte-struggling-manches
 https://nytimes.com/athletic/6831660/2025/11/23/aaron-rodgers-wrist-injury-return-week-13/
 
 **Mets, Rangers agree to trade involving Brandon Nimmo and Marcus Semien: Sources**\
-`It is not known whether other players will be involved, or how the teams will balance the difference in guaranteed money.`\
+`The trade was driven in part by the Rangers’ desire to change their chemistry and the Mets’ goal of improving their run prevention.`\
 https://nytimes.com/athletic/6831659/2025/11/23/mets-rangers-trade-brandon-nimmo-marcus-semien/
 
 **Canadiens sign Alexandre Texier to one-year, $1 million contract**\
