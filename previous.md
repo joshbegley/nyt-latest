@@ -1,3 +1,11 @@
+**Israeli Military Commanders Face Ouster Over Oct. 7 Failures**\
+`About a dozen people were told they face dismissal or discipline for mistakes tied to the deadly Hamas-led attack that set off the war in Gaza.`\
+https://nytimes.com/2025/11/23/world/middleeast/israel-punishes-commanders-hamas-attack.html
+
+**Warriors to miss Jonathan Kuminga, Al Horford vs. Jazz on Monday**\
+`Initially, Jonathan Kuminga's knee injury was not thought to be serious, but he's expected to miss his sixth consecutive game Monday.`\
+https://nytimes.com/athletic/6831810/2025/11/23/kuminga-horford-draymond-injury-status-warriors-jazz-nba/
+
 **Top U.S. Military Officer to Visit Caribbean as Trump Pressures Venezuela**\
 `Gen. Dan Caine is making the trip as President Trump is said to have approved plans for covert action in Venezuela.`\
 https://nytimes.com/2025/11/23/us/politics/caribbean-trump-venezuela-military.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6826516/2025/11/23/manuel-ugarte-struggling-manches
 **Mike Tomlin expects Aaron Rodgers to return from fractured wrist next week**\
 `Rodgers missed the Steelers' loss in Chicago on Sunday.`\
 https://nytimes.com/athletic/6831660/2025/11/23/aaron-rodgers-wrist-injury-return-week-13/
-
-**Mets, Rangers agree to trade involving Brandon Nimmo and Marcus Semien: Sources**\
-`The trade was driven in part by the Rangers’ desire to change their chemistry and the Mets’ goal of improving their run prevention.`\
-https://nytimes.com/athletic/6831659/2025/11/23/mets-rangers-trade-brandon-nimmo-marcus-semien/
-
-**Canadiens sign Alexandre Texier to one-year, $1 million contract**\
-`The 26-year-old was previously with the St. Louis Blues before going on waivers for contract termination.`\
-https://nytimes.com/athletic/6831671/2025/11/23/alexandre-texier-contract-1-year-canadiens-nhl/
 

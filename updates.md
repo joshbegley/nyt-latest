@@ -1,3 +1,11 @@
+**Israeli Military Commanders Face Ouster Over Oct. 7 Failures**\
+`About a dozen people were told they face dismissal or discipline for mistakes tied to the deadly Hamas-led attack that set off the war in Gaza.`\
+https://nytimes.com/2025/11/23/world/middleeast/israel-punishes-commanders-hamas-attack.html
+
+**Warriors to miss Jonathan Kuminga, Al Horford vs. Jazz on Monday**\
+`Initially, Jonathan Kuminga's knee injury was not thought to be serious, but he's expected to miss his sixth consecutive game Monday.`\
+https://nytimes.com/athletic/6831810/2025/11/23/kuminga-horford-draymond-injury-status-warriors-jazz-nba/
+
 **Top U.S. Military Officer to Visit Caribbean as Trump Pressures Venezuela**\
 `Gen. Dan Caine is making the trip as President Trump is said to have approved plans for covert action in Venezuela.`\
 https://nytimes.com/2025/11/23/us/politics/caribbean-trump-venezuela-military.html

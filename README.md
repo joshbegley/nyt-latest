@@ -1,3 +1,7 @@
+**Giants become first NFL team in 2025 to be eliminated from postseason contention**\
+`Owners of the worst record in the NFC, the Giants have already fired their coach and are on their third starting QB of the season.`\
+https://nytimes.com/athletic/6831801/2025/11/23/ny-giants-eliminated-playoffs-week-12/
+
 **Israeli Military Commanders Face Ouster Over Oct. 7 Failures**\
 `About a dozen people were told they face dismissal or discipline for mistakes tied to the deadly Hamas-led attack that set off the war in Gaza.`\
 https://nytimes.com/2025/11/23/world/middleeast/israel-punishes-commanders-hamas-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6831436/2025/11/23/terry-crews-formula-one-las-vega
 **Ugarte in 'different world' at Man Utd but 'needs to improve' - Amorim**\
 `The Uruguayan has struggled to make an impact in England, and has started just twice in the Premier League so far this season.`\
 https://nytimes.com/athletic/6826516/2025/11/23/manuel-ugarte-struggling-manchester-united-amorim/
-
-**Mike Tomlin expects Aaron Rodgers to return from fractured wrist next week**\
-`Rodgers missed the Steelers' loss in Chicago on Sunday.`\
-https://nytimes.com/athletic/6831660/2025/11/23/aaron-rodgers-wrist-injury-return-week-13/
 
