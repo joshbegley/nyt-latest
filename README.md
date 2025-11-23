@@ -1,3 +1,7 @@
+**BYU stacks up to the SEC in front of it. Can it break through the Playoff logjam?**\
+`BYU controls its destiny in the College Football Playoff path.`\
+https://nytimes.com/athletic/6830618/2025/11/23/byu-cincinnati-analysis-takeaways-college-football-playoff/
+
 **How to watch Wild vs. Jets: Time, TV, streaming**\
 `Find out how to watch the Minnesota Wild play the Winnipeg Jets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6830690/2025/11/23/wild-vs-jets-stream-how-to-watch-nov-23/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6830649/2025/11/23/howard-vs-duke-stream-how-to-wat
 **How to watch Rhode Island vs. NC State women's basketball: Time, TV, streaming**\
 `Find out how to watch the Rhode Island Rams play the NC State Lady Wolfpack, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6830647/2025/11/23/rhode-island-vs-nc-state-stream-how-to-watch-nov-23/
-
-**Trump Administration Live Updates: President Turns Up Pressure for Ukraine Peace Deal**\
-``\
-https://nytimes.com/live/2025/11/23/us/trump-news
 
