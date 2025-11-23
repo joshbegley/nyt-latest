@@ -1,3 +1,11 @@
+**Motorcyclist Dies in ‘Globe of Death’ Circus Accident in Italy**\
+`Christián Quezada Vasquez died after losing control during a stunt in which motorcyclists ride around a spherical cage, the circus company said.`\
+https://nytimes.com/2025/11/23/world/europe/circus-accident-death-motorcycle-italy.html
+
+**The Pulse: A case in 70 points**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6830053/2025/11/23/notre-dams-70-7-wipeout-certainly-does-make-a-case-they-needed/
+
 **In His Tightest Corner Yet, Will Zelensky Rise to the Occasion?**\
 `Over nearly four years of wartime leadership, analysts say the Ukrainian leader has repeatedly played weak hands wisely. A U.S. peace plan may be his biggest test.`\
 https://nytimes.com/2025/11/23/world/europe/ukraine-zelensky-war-russia.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6830589/2025/11/23/real-madrid-perez-ownership-exte
 **Mikaela Shiffrin dominant again in slalom for record-extending 103rd World Cup win**\
 `Shiffrin made it a two-for-two start to the World Cup slalom, looking to be in top form as the Olympics approach.`\
 https://nytimes.com/athletic/6830596/2025/11/23/mikaela-shiffrin-world-cup-slalom-win-103-gurgl/
-
-**Mamdani and Trump Tamp Down Fears Over National Guard in New York City**\
-`In a Sunday interview on “Meet the Press,” Zohran Mamdani, the mayor-elect, said he had made a forceful case to the president that troops were not needed in the city.`\
-https://nytimes.com/2025/11/23/nyregion/mamdani-trump-national-guard-meet-the-press.html
-
-**Predicting the CFP bracket: What conference titles mean for Selection Sunday**\
-`Conference title matchups are coming up and will have implications across the 12-team College Football Playoff field. `\
-https://nytimes.com/athletic/6830234/2025/11/23/college-football-playoff-bracket-prediction-ohio-state/
 
