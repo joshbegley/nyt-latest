@@ -1,3 +1,15 @@
+**Mets, Rangers discussing Brandon Nimmo-Marcus Semien trade: Sources**\
+`It is not known whether other players would be involved, or how the teams would balance the difference in guaranteed money.`\
+https://nytimes.com/athletic/6831659/2025/11/23/mets-rangers-trade-brandon-nimmo-marcus-semien/
+
+**Canadiens sign Alexandre Texier to one-year, $1 million contract**\
+`The 26-year-old was previously with the St. Louis Blues before going on waivers for contract termination.`\
+https://nytimes.com/athletic/6831671/2025/11/23/alexandre-texier-contract-1-year-canadiens-nhl/
+
+**Mahomes, Chiefs rediscover late-game magic, stun Colts in OT: Takeaways**\
+`Kansas City erases a 20-9 fourth-quarter deficit on Sunday, boosts playoff hopes with OT win.`\
+https://nytimes.com/athletic/6831203/2025/11/23/colts-chiefs-score-result-takeaways/
+
 **Giants-Lions takeaways: Jahmyr Gibbs powers Detroit past Jameis Winston, New York in OT**\
 `Gibbs totaled 264 yards from scrimmage and three touchdowns in the win.`\
 https://nytimes.com/athletic/6831429/2025/11/23/giants-lions-score-result-takeaways/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6831188/2025/11/23/mike-norvell-florida-state-decis
 **Patriots-Bengals takeaways: New England wins 9th straight, but injuries mount**\
 `Pats win despite Drake Maye's struggles, injuries to Will Campbell and Jared Wilson.`\
 https://nytimes.com/athletic/6831197/2025/11/23/patriots-bengals-score-result-takeaways/
-
-**Liverpool's Slot pulls out of receiving award after Forest loss**\
-`The defeat by Forest was Liverpool's sixth Premier League loss in their last seven games.`\
-https://nytimes.com/athletic/6831494/2025/11/23/arne-slot-liverpool-fwa-award/
-
-**Jets-Ravens takeaways: Henry powers Baltimore to win in defensive contest**\
-`A costly fourth-quarter fumble ended the Jets' comeback attempt in the 23-10 Baltimore win.`\
-https://nytimes.com/athletic/6830876/2025/11/23/jets-ravens-score-result-takeaways/
-
-**Mamdani’s Meeting With Trump Scrambled the MAGA-Sphere**\
-`Prominent conservative influencers had different interpretations as they processed the meeting on podcasts and in social media posts.`\
-https://nytimes.com/2025/11/23/style/mamdani-trump-reactions-fuentes-bannon.html
 
