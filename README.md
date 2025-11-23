@@ -1,3 +1,7 @@
+**Mother Accused of Delaying Medical Care for Daughter Who Died on Road Trip**\
+`A diabetic 10-year-old girl slipped into a coma during a trip with her family and was brought to the hospital after she had died, the authorities said.`\
+https://nytimes.com/2025/11/23/us/mother-death-child-diabetes-washington.html
+
 **Antonio Pierce says Shedeur Sanders was one of Raiders' 'top choices' before his firing**\
 `Pierce: "If I would’ve stayed there, there’s no way he goes in the fifth round,"`\
 https://nytimes.com/athletic/6831151/2025/11/23/shedeur-sanders-raiders-browns-antonio-pierce/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6830372/2025/11/23/how-sean-dyche-masterminded-anot
 **After a rollercoaster season, "villains" Gotham hit their peak to win second NWSL Championship**\
 `As they did in 2023, Gotham reached the podium as the lowest playoff seed, rising from the gutters in an ominous cloud`\
 https://nytimes.com/athletic/6830907/2025/11/23/gotham-nwsl-championship-washington-spirit/
-
-**Nuggets forward Aaron Gordon out at least a month with hamstring injury**\
-`Gordon, now in his 12th NBA season, is averaging a career-best 18.8 points for the 12-4 Nuggets.`\
-https://nytimes.com/athletic/6831157/2025/11/23/denver-nuggets-aaron-gordon-hamstring-injury/
 
