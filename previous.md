@@ -1,3 +1,11 @@
+**Stars' Mikko Rantanen ejected for second time in 3 games for boarding**\
+`Rantanen was handed a five-minute major and a game misconduct for boarding Flames forward Matt Coronato on Saturday.`\
+https://nytimes.com/athletic/6830180/2025/11/23/mikko-rantanen-stars-matt-coronato-ejected-boarding/
+
+**Chicago MMA fighter dies after Illinois boxing competition**\
+`Isaac T. Johnson, 31, collapsed toward the end of the third round of his fight and was declared dead hours later.`\
+https://nytimes.com/athletic/6829987/2025/11/23/chicago-mma-fighter-isaac-johnson-dies-cicero-stadium/
+
 **Las Vegas GP briefing: Max Verstappen's win keeps the heat on Lando Norris**\
 `Lando Norris inched closer to his first F1 title in Las Vegas, but he's not out of the woods yet`\
 https://nytimes.com/athletic/6829774/2025/11/23/las-vegas-gp-briefing-max-verstappen-lando-norris/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/23/world/europe/russia-ukraine-mariupol.html
 **Quote of the Day: How Learning a Dying Craft Helped One Man Fix His Life**\
 `Quotation of the Day for Sunday, November 23, 2025.`\
 https://nytimes.com/2025/11/23/pageoneplus/quote-of-the-day-how-learning-a-dying-craft-helped-one-man-fix-his-life.html
-
-**Corrections: Nov. 23, 2025**\
-`Corrections that appeared in print on Sunday, Nov. 23, 2025.`\
-https://nytimes.com/2025/11/23/pageoneplus/corrections-nov-23-2025.html
-
-**Connections: Sports Edition Coach: Hints for Nov. 23, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6829630/2025/11/23/connections-sports-edition-hints-for-nov-23-2025/
 
