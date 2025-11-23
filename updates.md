@@ -1,3 +1,7 @@
+**Mamdani’s Meeting With Trump Scrambled the MAGA-Sphere**\
+`Prominent conservative influencers had different interpretations as they processed the meeting on podcasts and in social media posts.`\
+https://nytimes.com/2025/11/23/style/mamdani-trump-reactions-fuentes-bannon.html
+
 **Trump Moves to End Temporary Protected Status for Somalis**\
 `About 700 Somali immigrants are currently allowed to live and work in the U.S. under a program for people fleeing countries in turmoil.`\
 https://nytimes.com/2025/11/23/us/trump-somali-tps-protected-minnesota.html
