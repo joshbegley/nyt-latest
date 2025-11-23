@@ -1,3 +1,7 @@
+**Italy wins third consecutive Davis Cup as Flavio Cobolli and Matteo Berrettini step up**\
+`With Jannik Sinner and Carlos Alcaraz absent, Italy triumphed over Spain to extend its dominance at the 'World Cup of tennis.'`\
+https://nytimes.com/athletic/6831368/2025/11/23/tennis-davis-cup-final-italy-spain-cobolli-munar-berrettini-carreno-busta/
+
 **Tottenham's Vicario, Frank apologise for lack of 'fight' in Arsenal loss**\
 `Frank added that he was "expecting much more" from his side, who are now ninth in the Premier League.`\
 https://nytimes.com/athletic/6831401/2025/11/23/vicario-frank-tottenham-arsenal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6831314/2025/11/23/flames-vs-canucks-stream-how-to-
 **AP Top 25: Ohio State, Michigan set for record 50th ranked matchup**\
 `No. 1 Ohio State, No. 2 Indiana, No. 3 Texas A&M, No. 4 Georgia and No. 5 Oregon headline Sunday's latest AP Top 25 college football poll.`\
 https://nytimes.com/athletic/6831142/2025/11/23/ap-top-25-michigan-ohio-state-rankings/
-
-**The Danish Model for Immigration Crackdown**\
-`For European governments, Denmark’s hard-line immigration policy is a model for how to get a grip on contentious issue and stay in power. Our reporter Jeanna Smialek reports from Copenhagen on the the effects of the policy.`\
-https://nytimes.com/video/world/europe/100000010530619/europe-immigration-crackdown.html
 
