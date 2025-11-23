@@ -1,3 +1,7 @@
+**Madrid apologise after using wrong photo for Andre Silva, Diogo Jota tribute**\
+`The image of Elche forward Andre da Silva was accidentally shown in a video remembering the brothers who died in July.`\
+https://nytimes.com/athletic/6830529/2025/11/23/real-madrid-andre-silva-jota-elche-apology/
+
 **WATCH: How Jaelan Phillips has reignited Eagles defense**\
 `Two games in, the Eagles’ trade for Phillips seems to have transformed an already talented group.`\
 https://nytimes.com/athletic/6827484/2025/11/23/eagles-jaelan-phillips-trade-defense/
