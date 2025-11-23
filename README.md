@@ -1,3 +1,7 @@
+**Las Vegas GP: Submit your questions for our F1 mailbag**\
+`What questions do you have for our F1 experts after the Las Vegas GP?`\
+https://nytimes.com/athletic/6830344/2025/11/23/las-vegas-gp-f1-mailbag-2/
+
 **A Typewriter That Has Traveled the World**\
 `A machine that once belonged to a Times journalist has been present during wars, natural disasters and more.`\
 https://nytimes.com/2025/11/23/insider/olivetti-lettera-typewriter.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6830099/2025/11/23/klay-thompson-blasts-ja-morant-m
 **TNT's Ashes coverage is like England's batting — underprepared and technically suspect**\
 `Production mishaps and non-specialist pundits are undermining the broadcaster's TV coverage`\
 https://nytimes.com/athletic/6828613/2025/11/23/ashes-tnt-sport-tv-live/
-
-**The New York Times in Print for Sunday, Nov. 23, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/11/23/todays-new-york-times
 
