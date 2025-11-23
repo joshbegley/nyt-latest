@@ -1,3 +1,15 @@
+**Sabres climb out of last place in Eastern Conference with win over Hurricanes: 5 thoughts**\
+`Ukko-Pekka Luukkonen made his first consecutive starts as the Sabres returned to .500 this season.`\
+https://nytimes.com/athletic/6831740/2025/11/23/sabres-standings-malenstyn-quinn-hurricanes/
+
+**Three-Point Hoops Shot**\
+`Zhou Zhang brings us into her circle.`\
+https://nytimes.com/2025/11/23/crosswords/daily-puzzle-2025-11-24.html
+
+**NFC North pecking order and the irrepressible Chiefs: Our experts' Week 12 takeaways**\
+`Also: Is Jahmyr Gibbs the best running back in football? And who's got the upper hand in the race for the AFC's top seed?`\
+https://nytimes.com/athletic/6831359/2025/11/23/nfl-takeaways-week-12-scores-results/
+
 **Mets, Rangers agree to trade involving Brandon Nimmo and Marcus Semien: Sources**\
 `The trade was driven in part by the Rangers’ desire to change their chemistry and the Mets’ goal of improving their run prevention.`\
 https://nytimes.com/athletic/6831659/2025/11/23/mets-rangers-trade-brandon-nimmo-marcus-semien/

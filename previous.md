@@ -1,3 +1,15 @@
+**Sabres climb out of last place in Eastern Conference with win over Hurricanes: 5 thoughts**\
+`Ukko-Pekka Luukkonen made his first consecutive starts as the Sabres returned to .500 this season.`\
+https://nytimes.com/athletic/6831740/2025/11/23/sabres-standings-malenstyn-quinn-hurricanes/
+
+**Three-Point Hoops Shot**\
+`Zhou Zhang brings us into her circle.`\
+https://nytimes.com/2025/11/23/crosswords/daily-puzzle-2025-11-24.html
+
+**NFC North pecking order and the irrepressible Chiefs: Our experts' Week 12 takeaways**\
+`Also: Is Jahmyr Gibbs the best running back in football? And who's got the upper hand in the race for the AFC's top seed?`\
+https://nytimes.com/athletic/6831359/2025/11/23/nfl-takeaways-week-12-scores-results/
+
 **Terry Crews serenades F1 Las Vegas Grand Prix podium finishers in pink LEGO Cadillac**\
 `Max Verstappen, Lando Norris and George Russell laughed as Crews reenacted his famous scene from "White Chicks" for the F1 drivers.`\
 https://nytimes.com/athletic/6831436/2025/11/23/terry-crews-formula-one-las-vegas-grand-prix/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6831203/2025/11/23/colts-chiefs-score-result-takeaw
 **Giants-Lions takeaways: Jahmyr Gibbs powers Detroit past Jameis Winston, New York in OT**\
 `Gibbs totaled 264 yards from scrimmage and three touchdowns in the win.`\
 https://nytimes.com/athletic/6831429/2025/11/23/giants-lions-score-result-takeaways/
-
-**USMNT's Pulisic scores winner in Milan derby**\
-`Pulisic has five Serie A goals and two assists in eight games so far this season.`\
-https://nytimes.com/athletic/6831695/2025/11/23/christian-pulisic-milan-inter-usmnt/
-
-**Seahawks-Titans takeaways: Jaxon Smith-Njigba's day seals victory for Seattle**\
-`Jaxon Smith-Njigba is on pace to break the NFL’s all-time single-season receiving yards record, set by Calvin Johnson in 2012 (1,964).`\
-https://nytimes.com/athletic/6831468/2025/11/23/seahawks-titans-score-result-takeaways/
-
-**Bears-Steelers: Caleb Williams powers win vs. Pittsburgh as Aaron Rodgers sits**\
-`Williams passed for 239 yards and three touchdowns in Chicago's fourth straight win, a game that came down to the end. `\
-https://nytimes.com/athletic/6830830/2025/11/23/steelers-bears-score-result-takeaways/
 
