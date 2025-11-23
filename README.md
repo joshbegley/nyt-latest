@@ -1,3 +1,7 @@
+**Donald Glover Reveals He Had a Stroke Last Year**\
+`The rapper and actor, who performed in Los Angeles on Saturday, said doctors had also discovered a hole in his heart, prompting him to cancel his world tour.`\
+https://nytimes.com/2025/11/23/arts/music/donald-glover-childish-gambino-stroke.html
+
 **Kevin Durant to miss at least next 2 games for Rockets**\
 `Durant will miss Monday's game against the Phoenix Suns. It would have been his first game in Phoenix after being traded from the franchise.`\
 https://nytimes.com/athletic/6831448/2025/11/23/kevin-durant-rockets-miss-game-phoenix-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6831449/2025/11/23/new-york-gotham-fc-city-hall-cel
 **Italy wins third straight Davis Cup as Flavio Cobolli and Matteo Berrettini step up**\
 `With Jannik Sinner and Carlos Alcaraz absent, Italy triumphed over Spain to extend its dominance at the 'World Cup of tennis.'`\
 https://nytimes.com/athletic/6831368/2025/11/23/tennis-davis-cup-final-italy-spain-cobolli-munar-berrettini-carreno-busta/
-
-**Tottenham's Vicario, Frank apologise for lack of 'fight' in Arsenal loss**\
-`Frank added that he was "expecting much more" from his side, who are now ninth in the Premier League.`\
-https://nytimes.com/athletic/6831401/2025/11/23/vicario-frank-tottenham-arsenal/
 
