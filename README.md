@@ -1,3 +1,7 @@
+**Steelers’ Aaron Rodgers inactive vs. Bears due to fractured left wrist**\
+`The QB suffered the injury late in the first half of last week’s victory over the Bengals.`\
+https://nytimes.com/athletic/6830756/2025/11/23/aaron-rodgers-wrist-injury-bears-game/
+
 **Motorcyclist Dies in ‘Globe of Death’ Circus Accident in Italy**\
 `Christián Quezada Vasquez died after losing control during a stunt in which motorcyclists ride around a spherical cage, the circus company said.`\
 https://nytimes.com/2025/11/23/world/europe/circus-accident-death-motorcycle-italy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6830754/2025/11/23/college-football-playoff-project
 **Madrid announce plans for historic ownership change**\
 `The Spanish side has been 'owned' by its socios (club members) since 1902 but could face a referendum in order to restructure.`\
 https://nytimes.com/athletic/6830589/2025/11/23/real-madrid-perez-ownership-external-investment/
-
-**Mikaela Shiffrin dominant again in slalom for record-extending 103rd World Cup win**\
-`Shiffrin made it a two-for-two start to the World Cup slalom, looking to be in top form as the Olympics approach.`\
-https://nytimes.com/athletic/6830596/2025/11/23/mikaela-shiffrin-world-cup-slalom-win-103-gurgl/
 
