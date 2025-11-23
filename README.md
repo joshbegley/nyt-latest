@@ -1,4 +1,4 @@
-**Italy wins third consecutive Davis Cup as Flavio Cobolli and Matteo Berrettini step up**\
+**Italy wins third straight Davis Cup as Flavio Cobolli and Matteo Berrettini step up**\
 `With Jannik Sinner and Carlos Alcaraz absent, Italy triumphed over Spain to extend its dominance at the 'World Cup of tennis.'`\
 https://nytimes.com/athletic/6831368/2025/11/23/tennis-davis-cup-final-italy-spain-cobolli-munar-berrettini-carreno-busta/
 
