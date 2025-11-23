@@ -1,3 +1,19 @@
+**Shedeur Sanders' first start, desperation in Kansas City lead NFL Week 12 storylines**\
+`Sanders will try to provide a spark for an inconsistent Browns offense, while the stakes are high when the Chiefs host the Colts.`\
+https://nytimes.com/athletic/6823950/2025/11/23/nfl-week-12-storylines-shedeur-sanders-browns-chiefs-colts/
+
+**The New York Times International Edition in Print for Monday, Nov. 24, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/11/23/todays-new-york-times-international-edition
+
+**How to watch Heat vs. 76ers: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Philadelphia 76ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6830490/2025/11/23/heat-vs-76ers-stream-how-to-watch-nov-23/
+
+**How to watch Hurricanes vs. Sabres: Time, TV, streaming**\
+`Find out how to watch the Carolina Hurricanes play the Buffalo Sabres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6830488/2025/11/23/hurricanes-vs-sabres-stream-how-to-watch-nov-23/
+
 **How to watch Tennessee State vs. Vanderbilt women's basketball: Time, TV, streaming**\
 `Find out how to watch the Tennessee State Lady Tigers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6830478/2025/11/23/tennessee-state-vs-vanderbilt-stream-how-to-watch-nov-23/
