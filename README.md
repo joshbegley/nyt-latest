@@ -1,5 +1,5 @@
 **Top U.S. Military Officer to Visit Caribbean as Trump Pressures Venezuela**\
-`Gen. Dan Caine is making the trip this week as President Trump is said to have approved plans for covert action in Venezuela.`\
+`Gen. Dan Caine is making the trip as President Trump is said to have approved plans for covert action in Venezuela.`\
 https://nytimes.com/2025/11/23/us/politics/caribbean-trump-venezuela-military.html
 
 **U.S. Introduces New Female Crash-Test Dummy Standards**\
