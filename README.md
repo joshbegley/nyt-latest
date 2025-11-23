@@ -1,3 +1,11 @@
+**How to Be Grateful When You’re Struggling**\
+`Gratitude is good for you. Like, really good for you. But it’s also hard to practice.`\
+https://nytimes.com/2025/11/23/briefing/gratitude-thanksgiving.html
+
+**As Trump’s Inquisitors Face Scrutiny, a Divisive Figure Could Play a New Role**\
+`The prosecutor running an inquiry into those who investigated President Trump has established a grand jury under Judge Aileen M. Cannon, whose scuttling of the documents case made her a White House favorite.`\
+https://nytimes.com/2025/11/23/us/politics/trump-florida-cannon-grand-jury.html
+
 **College Football Playoff 2025 projections: How did Week 13 change the most likely bracket?**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/11/23/college-football-playoff-bracket-projections-odds/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/23/opinion/art-faith-painting.html
 **USC's season is functionally over. Was it a success?**\
 `Next season is shaping up to be the most critical for Riley yet. There are no more excuses left to be made.`\
 https://nytimes.com/athletic/6830603/2025/11/23/usc-oregon-lincoln-riley/
-
-**Rubio Insists U.S. Authored the Ukraine Peace Plan**\
-`The comment from Secretary of State Marco Rubio came after a group of U.S. lawmakers claimed that he said the plan was a Russian initiative, not a U.S. proposal.`\
-https://nytimes.com/2025/11/23/us/politics/rubio-us-author-ukraine-peace-plan.html
-
-**BYU stacks up to the SEC in front of it. Can it break through the Playoff logjam?**\
-`BYU controls its destiny in the College Football Playoff path. `\
-https://nytimes.com/athletic/6830618/2025/11/23/byu-cincinnati-analysis-takeaways-college-football-playoff/
 
