@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6830950/2025/11/23/ut-rio-grande-valley-vs-tcu-stre
 `Find out how to watch the UNC Greensboro Spartans play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6830951/2025/11/23/unc-greensboro-vs-north-carolina-stream-how-to-watch-nov-23/
 
-**The Briefing: Leeds 1 Aston Villa 2 - Farke under pressure, Rogers' brace, Leeds with mountain to climb**\
+**The Briefing: Leeds 1 Aston Villa 2 — Farke under pressure, Rogers' brace, Leeds with mountain to climb**\
 `Leeds United remain in the relegation zone after Aston Villa came from behind to win at Elland Road `\
 https://nytimes.com/athletic/6820875/2025/11/23/leeds-1-aston-villa-2-briefing-morgan-rogers-daniel-farke/
 
