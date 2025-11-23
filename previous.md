@@ -1,3 +1,15 @@
+**How to watch Tennessee State vs. Vanderbilt women's basketball: Time, TV, streaming**\
+`Find out how to watch the Tennessee State Lady Tigers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6830478/2025/11/23/tennessee-state-vs-vanderbilt-stream-how-to-watch-nov-23/
+
+**How to watch Syracuse vs. Michigan women's basketball: Time, TV, streaming**\
+`Find out how to watch the Syracuse Orange play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6830476/2025/11/23/syracuse-vs-michigan-stream-how-to-watch-nov-23/
+
+**Titanic Passenger’s Pocket Watch Sells for $2.3 Million**\
+`The watch belonged to Isidor Straus, a co-owner of Macy’s who was traveling first class on the Titanic with his wife when it sank in April 1912.`\
+https://nytimes.com/2025/11/23/world/asia/titanic-watch-auction.html
+
 **Pabst, Pamphlets and a Petition: A Harvard-Yale Tailgate in the Trump Era**\
 `Students and alumni set aside rivalries at the 141st Harvard-Yale football game on Saturday to summon support against attacks on higher education under the Trump administration.`\
 https://nytimes.com/2025/11/23/us/politics/yale-harvard-football-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/23/us/california-fbi-state-capitol-corruption.html
 **The Davis Cup wants to be the 'World Cup of tennis.' To get there, less might be more**\
 `The team competition produces moments of drama and fervor, but does its format get in the way of their becoming the norm?`\
 https://nytimes.com/athletic/6825763/2025/11/23/tennis-davis-cup-format-results-annual/
-
-**How OpenAI’s Changes Sent Some Users Spiraling**\
-`OpenAI adjusted ChatGPT’s settings, which left some users spiraling, according to our reporting. Kashmir Hill, who reports on technology and privacy, describes what the company has done about the users’ troubling reports.`\
-https://nytimes.com/video/technology/100000010535987/how-openais-changes-sent-some-users-spiraling.html
-
-**Why That Whitney Houston Drumbeat Is So Addictive, Yet Hard to Match**\
-`People online have been trying to nail the drumbeat before the final chorus of “I Will Always Love You.” It’s harder than it looks.`\
-https://nytimes.com/2025/11/23/style/whitney-houston-drum-challenge.html
-
-**Liverpool are a mess - and Anfield is becoming restless**\
-`The reigning champions are now in a full-blown crisis and Arne Slot needs to find some answers fast`\
-https://nytimes.com/athletic/6830365/2025/11/23/liverpool-arne-slot-fans-anfield/
 

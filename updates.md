@@ -1,3 +1,15 @@
+**How to watch Tennessee State vs. Vanderbilt women's basketball: Time, TV, streaming**\
+`Find out how to watch the Tennessee State Lady Tigers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6830478/2025/11/23/tennessee-state-vs-vanderbilt-stream-how-to-watch-nov-23/
+
+**How to watch Syracuse vs. Michigan women's basketball: Time, TV, streaming**\
+`Find out how to watch the Syracuse Orange play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6830476/2025/11/23/syracuse-vs-michigan-stream-how-to-watch-nov-23/
+
+**Titanic Passenger’s Pocket Watch Sells for $2.3 Million**\
+`The watch belonged to Isidor Straus, a co-owner of Macy’s who was traveling first class on the Titanic with his wife when it sank in April 1912.`\
+https://nytimes.com/2025/11/23/world/asia/titanic-watch-auction.html
+
 **Pabst, Pamphlets and a Petition: A Harvard-Yale Tailgate in the Trump Era**\
 `Students and alumni set aside rivalries at the 141st Harvard-Yale football game on Saturday to summon support against attacks on higher education under the Trump administration.`\
 https://nytimes.com/2025/11/23/us/politics/yale-harvard-football-trump.html
