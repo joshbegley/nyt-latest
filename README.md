@@ -1,3 +1,7 @@
+**How to watch Wild vs. Jets: Time, TV, streaming**\
+`Find out how to watch the Minnesota Wild play the Winnipeg Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6830690/2025/11/23/wild-vs-jets-stream-how-to-watch-nov-23/
+
 **How to watch George Mason vs. Maryland women's basketball: Time, TV, streaming**\
 `Find out how to watch the George Mason Patriots play the Maryland Terrapins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6830677/2025/11/23/george-mason-vs-maryland-stream-how-to-watch-nov-23/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6830647/2025/11/23/rhode-island-vs-nc-state-stream-
 **Trump Administration Live Updates: President Turns Up Pressure for Ukraine Peace Deal**\
 ``\
 https://nytimes.com/live/2025/11/23/us/trump-news
-
-**Mandel's Final Thoughts: How bad will the CFP logjam be? Is Notre Dame truly a lock?**\
-`Multiple contenders collapsed early, but now College Football Playoff contenders aren’t losing — setting up a potential at-large overload.`\
-https://nytimes.com/athletic/6830302/2025/11/23/college-football-scores-results-week-13/
 
