@@ -1,4 +1,12 @@
-**Notre Dame led Syracuse by 21 before it got the ball. Then it got uglier**\
+**Red Wings continue showing ability to respond in comeback win: 5 observations**\
+`The Red Wings came back from a two-goal deficit in the third period to win 4-3 behind clutch showings from Cam Talbot and Alex DeBrincat. `\
+https://nytimes.com/athletic/6829430/2025/11/22/red-wings-blue-jackets-alex-debrincat/
+
+**Is Michigan ready for Ohio State? Key takeaways from a comfortable win at Maryland**\
+`Michigan pulled away from Maryland, 45-20, for a relatively easy win to head into Ohio State week at 9-2. Here's what we learned.`\
+https://nytimes.com/athletic/6829699/2025/11/22/michigan-maryland-football-score-recap-osu/
+
+**Notre Dame scores most points since 1932 in 63-point rout of Syracuse**\
 `It’s hard to imagine Notre Dame budging from its CFP positioning after a performance like this.`\
 https://nytimes.com/athletic/6829499/2025/11/22/notre-dame-syracuse-score-result-takeaways/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/22/crosswords/daily-puzzle-2025-11-23.html
 **As Blue Jackets blow another lead, Dean Evason isn't concerned: 'I'm not focused on it'**\
 `It was a familiar script for the Blue Jackets, as they wasted another third-period lead and lost in overtime to the Red Wings on Saturday.`\
 https://nytimes.com/athletic/6829452/2025/11/22/blue-jackets-red-wings-dean-evason/
-
-**2 Texas Men Plotted Coup of Haitian Island to Enslave Women and Children, U.S. Says**\
-`The men, who planned to recruit homeless people for the invasion, took Haitian Creole classes and one enrolled in the U.S. Air Force to prepare for an attack by sailboat, prosecutors said.`\
-https://nytimes.com/2025/11/22/us/texas-men-haiti-island-takeover-plot.html
-
-**Trump taps Jack Nicklaus for Joint Base Andrews golf courses' makeover**\
-`Trump said that Nicklaus will act as both architect and designer for the project. "We can — for very little money — fix it up," Trump said.`\
-https://nytimes.com/athletic/6829445/2025/11/22/trump-jack-nicklaus-joint-base-andrews-golf-course-renovation/
 
