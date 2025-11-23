@@ -1,4 +1,8 @@
-**Utah rallies past Kansas State, keeps College Football Playoff hopes alive**\
+**College Football Playoff 2025 projections: Oregon, Oklahoma closing in on bids in Week 13**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/22/college-football-playoff-bracket-projections-odds/
+
+**Utah gives up 472 rushing yards, stays on CFP bubble with dramatic win over K-State**\
 `Now the question becomes, will Utah remain ahead of No. 13 Miami and No. 14 Vanderbilt on Tuesday? `\
 https://nytimes.com/athletic/6829693/2025/11/22/utah-college-football-playoff-bubble-kansas-state/
 
@@ -9,10 +13,6 @@ https://nytimes.com/athletic/6829712/2025/11/22/arch-manning-stats-texas-longhor
 **Oregon knocks USC out of Playoff race while closing in on bid: Key takeaways**\
 `No. 7 Oregon topped No. 15 USC 42-27 on Saturday, keeping the Ducks in the Big Ten title race as they take aim at a Playoff bid.`\
 https://nytimes.com/athletic/6829589/2025/11/22/oregon-usc-football-score-recap-playoff/
-
-**College Football Playoff 2025 projections: Oklahoma closing in on bid with Week 13 underway**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/11/22/college-football-playoff-bracket-projections-odds/
 
 **UNC falls to Duke, clinches losing record in Bill Belichick's first season as coach**\
 `Duke used a fake field goal to beat UNC and prevent the 4-7 Tar Heels from being able to reach the six-win mark.`\
