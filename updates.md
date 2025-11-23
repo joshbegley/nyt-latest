@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: How did Week 13 change the most likely bracket?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/23/college-football-playoff-bracket-projections-odds/
+
 **Until Saturday: Texas' nightmare Playoff**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6830754/2025/11/23/college-football-playoff-projections-until-saturday/
