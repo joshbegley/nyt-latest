@@ -1,3 +1,11 @@
+**After a rollercoaster season, "villains" Gotham hit their peak to win second NWSL Championship**\
+`As they did in 2023, Gotham reached the podium as the lowest playoff seed, rising from the gutters in an ominous cloud`\
+https://nytimes.com/athletic/6830907/2025/11/23/gotham-nwsl-championship-washington-spirit/
+
+**Nuggets forward Aaron Gordon out at least a month with hamstring injury**\
+`Gordon, now in his 12th NBA season, is averaging a career-best 18.8 points for the 12-4 Nuggets.`\
+https://nytimes.com/athletic/6831157/2025/11/23/denver-nuggets-aaron-gordon-hamstring-injury/
+
 **The Briefing: Arsenal 4 Tottenham 1 - Eze bags hat-trick in his first north London derby, but did Frank get his tactics wrong?**\
 `The Athletic's writers break down the key moments from Sunday's game at the Emirates Stadium `\
 https://nytimes.com/athletic/6820878/2025/11/23/arsenal-tottenham-premier-league-analysis/
