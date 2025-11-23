@@ -1,3 +1,11 @@
+**From 'cold tub' to scoreboard, Blues may have a new line combo with rookie center**\
+`Dalibor Dvorsky recorded his first assist in the NHL, setting up a goal by Brayden Schenn, that helped end the Blues' winless skid.`\
+https://nytimes.com/athletic/6829265/2025/11/22/blues-dalibor-dvorsky-brayden-schenn-pavel-buchnevich/
+
+**Pitt's wild win at GT reshuffles ACC race with 1 week to go**\
+`Six teams are still mathematically alive in the ACC title race with one week to go.`\
+https://nytimes.com/athletic/6829943/2025/11/22/acc-championship-race-pittsburgh-georgia-tech/
+
 **A Swath of Bank Customer Data Was Hacked. The F.B.I. Is Investigating.**\
 `SitusAMC, a technology vendor for real estate lenders, holds sensitive personal information on the clients of hundreds of its banking customers, including JPMorgan Chase.`\
 https://nytimes.com/2025/11/22/business/bank-data-hack.html
