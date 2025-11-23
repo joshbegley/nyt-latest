@@ -1,9 +1,17 @@
+**Trump Administration Live Updates: President Turns Up Pressure for Ukraine Peace Deal**\
+``\
+https://nytimes.com/live/2025/11/23/us/trump-news
+
+**Mandel's Final Thoughts: How bad will the CFP logjam be? Is Notre Dame truly a lock?**\
+`Multiple contenders collapsed early, but now College Football Playoff contenders aren’t losing — setting up a potential at-large overload.`\
+https://nytimes.com/athletic/6830302/2025/11/23/college-football-scores-results-week-13/
+
 **What makes Notre Dame's win over Syracuse meaningful beyond gaudy box score**\
 `Notre Dame's depth on senior day was a callback to last season’s march to the national title game, when the Irish absorbed several injuries.`\
 https://nytimes.com/athletic/6830157/2025/11/23/notre-dame-football-syracuse-depth/
 
 **Meet the Beatles, Again**\
-`A music reporter revisits the documentary that made him fall in love the Beatles, ahead of the film’s 30th-anniversary rerelease.`\
+`A music reporter revisits the documentary that made him fall in love with the Beatles, ahead of the film’s 30th-anniversary rerelease.`\
 https://nytimes.com/2025/11/23/briefing/meet-the-beatles-again.html
 
 **Nasser Hussain: How England can save the Ashes**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6829758/2025/11/23/cubs-shota-imanaga-phil-maton/
 **‘Best shot on the team by far’: Bruins’ Morgan Geekie, a rapid release and max speed**\
 `What makes Geekie, who has scored 16 goals this season, such a threat is the depth of his toolbox. He has drained 27.1 percent of his shots.`\
 https://nytimes.com/athletic/6829735/2025/11/23/bruins-morgan-geekie-shot-goals-nhl/
-
-**Rangers' road luck has run out as bigger concerns emerge**\
-`New York started its trip with a 9-1-1 road record, then lost all three games, the last being a 3-2 defeat Saturday night at Utah.`\
-https://nytimes.com/athletic/6830209/2025/11/23/rangers-third-straight-road-loss/
-
-**Liverpool players are 'letting the manager and ourselves down', Van Dijk says**\
-`Saturday's home 3-0 defeat to Nottingham Forest was the champions' sixth loss in their last seven Premier League matches.`\
-https://nytimes.com/athletic/6830439/2025/11/23/van-dijk-liverpool-arne-slot-forest-loss/
 

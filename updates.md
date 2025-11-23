@@ -1,3 +1,11 @@
+**What makes Notre Dame's win over Syracuse meaningful beyond gaudy box score**\
+`Notre Dame's depth on senior day was a callback to last season’s march to the national title game, when the Irish absorbed several injuries.`\
+https://nytimes.com/athletic/6830157/2025/11/23/notre-dame-football-syracuse-depth/
+
+**Meet the Beatles, Again**\
+`A music reporter revisits the documentary that made him fall in love the Beatles, ahead of the film’s 30th-anniversary rerelease.`\
+https://nytimes.com/2025/11/23/briefing/meet-the-beatles-again.html
+
 **Nasser Hussain: How England can save the Ashes**\
 `England need to look at themselves and work out why their batters played the shots they did in that miserable second innings capitulation`\
 https://nytimes.com/athletic/6830393/2025/11/23/nasser-hussain-england-ashes-australia-stokes/
