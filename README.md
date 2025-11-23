@@ -1,3 +1,7 @@
+**Mamdani’s Meeting With Trump Scrambled the MAGA-Sphere**\
+`Prominent conservative influencers had different interpretations as they processed the meeting on podcasts and in social media posts.`\
+https://nytimes.com/2025/11/23/style/mamdani-trump-reactions-fuentes-bannon.html
+
 **Trump Moves to End Temporary Protected Status for Somalis**\
 `About 700 Somali immigrants are currently allowed to live and work in the U.S. under a program for people fleeing countries in turmoil.`\
 https://nytimes.com/2025/11/23/us/trump-somali-tps-protected-minnesota.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/23/world/denmark-migration-britain-ukraine-talks-us.
 **‘Gruesome Playground Injuries’ Review: Does It Hurt?**\
 `Kara Young and Nicholas Braun star in the Off Broadway revival of Rajiv Joseph’s two-hander about best friends on parallel paths to self-destruction.`\
 https://nytimes.com/2025/11/23/theater/gruesome-playground-injuries-review.html
-
-**New York to honor NWSL champions Gotham FC with City Hall celebration**\
-`Gotham’s NYC celebration will include a fleet of buses that will drive toward City Hall, and the team will be awarded the key to the city.`\
-https://nytimes.com/athletic/6831449/2025/11/23/new-york-gotham-fc-city-hall-celebration/
 
