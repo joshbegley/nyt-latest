@@ -1,3 +1,7 @@
+**Madrid announce plans for historic ownership change**\
+`The Spanish side has been 'owned' by its socios (club members) since 1902 but could face a referendum in order to restructure.`\
+https://nytimes.com/athletic/6830589/2025/11/23/real-madrid-perez-ownership-external-investment/
+
 **Mikaela Shiffrin dominant again in slalom for record-extending 103rd World Cup win**\
 `Shiffrin made it a two-for-two start to the World Cup slalom, looking to be in top form as the Olympics approach.`\
 https://nytimes.com/athletic/6830596/2025/11/23/mikaela-shiffrin-world-cup-slalom-win-103-gurgl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6830690/2025/11/23/wild-vs-jets-stream-how-to-watch
 **How to watch George Mason vs. Maryland women's basketball: Time, TV, streaming**\
 `Find out how to watch the George Mason Patriots play the Maryland Terrapins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6830677/2025/11/23/george-mason-vs-maryland-stream-how-to-watch-nov-23/
-
-**How to watch Utah vs. UConn women's basketball: Time, TV, streaming**\
-`Find out how to watch the Utah Utes play the UConn Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6830674/2025/11/23/utah-vs-uconn-stream-how-to-watch-nov-23/
 

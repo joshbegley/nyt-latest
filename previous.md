@@ -1,3 +1,19 @@
+**Mikaela Shiffrin dominant again in slalom for record-extending 103rd World Cup win**\
+`Shiffrin made it a two-for-two start to the World Cup slalom, looking to be in top form as the Olympics approach.`\
+https://nytimes.com/athletic/6830596/2025/11/23/mikaela-shiffrin-world-cup-slalom-win-103-gurgl/
+
+**Mamdani and Trump Tamp Down Fears Over National Guard in New York City**\
+`In a Sunday interview on “Meet the Press,” Zohran Mamdani, the mayor-elect, said he had made a forceful case to the president that troops were not needed in the city.`\
+https://nytimes.com/2025/11/23/nyregion/mamdani-trump-national-guard-meet-the-press.html
+
+**Predicting the CFP bracket: What conference titles mean for Selection Sunday**\
+`Conference title matchups are coming up and will have implications across the 12-team College Football Playoff field. `\
+https://nytimes.com/athletic/6830234/2025/11/23/college-football-playoff-bracket-prediction-ohio-state/
+
+**In an Italian Masterpiece, Art and Faith Meet**\
+`Readers respond to a guest essay about the religious feelings inspired by Fra Angelico’s painting. Also: Down times at the movies.`\
+https://nytimes.com/2025/11/23/opinion/art-faith-painting.html
+
 **USC's season is functionally over. Was it a success?**\
 `Next season is shaping up to be the most critical for Riley yet. There are no more excuses left to be made.`\
 https://nytimes.com/athletic/6830603/2025/11/23/usc-oregon-lincoln-riley/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6830677/2025/11/23/george-mason-vs-maryland-stream-
 **How to watch Utah vs. UConn women's basketball: Time, TV, streaming**\
 `Find out how to watch the Utah Utes play the UConn Huskies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6830674/2025/11/23/utah-vs-uconn-stream-how-to-watch-nov-23/
-
-**How to watch Mercyhurst vs. Iowa State women's basketball: Time, TV, streaming**\
-`Find out how to watch the Mercyhurst Lakers play the Iowa State Cyclones, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6830672/2025/11/23/mercyhurst-vs-iowa-state-stream-how-to-watch-nov-23/
-
-**How to watch Oakland vs. Michigan State women's basketball: Time, TV, streaming**\
-`Find out how to watch the Oakland Golden Grizzlies play the Michigan State Spartans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6830670/2025/11/23/oakland-vs-michigan-state-stream-how-to-watch-nov-23/
-
-**How to watch Coppin State vs. Tennessee women's basketball: Time, TV, streaming**\
-`Find out how to watch the Coppin State Eagles play the Tennessee Lady Volunteers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6830658/2025/11/23/coppin-state-vs-tennessee-stream-how-to-watch-nov-23/
-
-**How to watch Queens (NC) vs. South Carolina women's basketball: Time, TV, streaming**\
-`Find out how to watch the Queens (NC) Royals play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6830653/2025/11/23/queens-nc-vs-south-carolina-stream-how-to-watch-nov-23/
 
