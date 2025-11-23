@@ -1,3 +1,7 @@
+**Stars' Mikko Rantanen suspended 1 game after latest penalty**\
+`Rantanen was ejected from the Stars’ loss to the Flames on Saturday after getting a five-minute major penalty for boarding Matt Coronato.`\
+https://nytimes.com/athletic/6831324/2025/11/23/stars-mikko-rantanen-suspension-penalty/
+
 **Denmark’s Migration Model**\
 `The country is getting attention for its tough asylum policies. Can they serve as a bulwark against the far right?`\
 https://nytimes.com/2025/11/23/world/denmark-migration-britain-ukraine-talks-us.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6831151/2025/11/23/shedeur-sanders-raiders-browns-a
 **How to watch Spurs vs. Suns: Time, TV, streaming**\
 `Find out how to watch the San Antonio Spurs play the Phoenix Suns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6831320/2025/11/23/spurs-vs-suns-stream-how-to-watch-nov-23/
-
-**How to watch Lakers vs. Jazz: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Lakers play the Utah Jazz, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6831318/2025/11/23/lakers-vs-jazz-stream-how-to-watch-nov-23/
 

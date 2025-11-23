@@ -1,3 +1,11 @@
+**Denmark’s Migration Model**\
+`The country is getting attention for its tough asylum policies. Can they serve as a bulwark against the far right?`\
+https://nytimes.com/2025/11/23/world/denmark-migration-britain-ukraine-talks-us.html
+
+**‘Gruesome Playground Injuries’ Review: Does It Hurt?**\
+`Kara Young and Nicholas Braun star in the Off Broadway revival of Rajiv Joseph’s two-hander about best friends on parallel paths to self-destruction.`\
+https://nytimes.com/2025/11/23/theater/gruesome-playground-injuries-review.html
+
 **New York to honor NWSL champions Gotham FC with City Hall celebration**\
 `Gotham’s NYC celebration will include a fleet of buses that will drive toward City Hall, and the team will be awarded the key to the city.`\
 https://nytimes.com/athletic/6831449/2025/11/23/new-york-gotham-fc-city-hall-celebration/
