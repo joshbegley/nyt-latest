@@ -1,3 +1,15 @@
+**TNT's Ashes coverage is like England's batting — underprepared and technically suspect**\
+`Production mishaps and non-specialist pundits are undermining the broadcaster's TV coverage`\
+https://nytimes.com/athletic/6828613/2025/11/23/ashes-tnt-sport-tv-live/
+
+**The New York Times in Print for Sunday, Nov. 23, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/23/todays-new-york-times
+
+**Yes, Listening to a Book Counts as Reading**\
+`We need to let go of our legacy print snobbery.`\
+https://nytimes.com/2025/11/23/opinion/audiobooks-books-print-reading.html
+
 **Stars' Mikko Rantanen ejected for second time in 3 games for boarding**\
 `Rantanen was handed a five-minute major and a game misconduct for boarding Flames forward Matt Coronato on Saturday.`\
 https://nytimes.com/athletic/6830180/2025/11/23/mikko-rantanen-stars-matt-coronato-ejected-boarding/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6822755/2025/11/23/rodrygo-brazil-ancelotti-real-ma
 **Chelsea do not know where their next goal will come from. That's good and bad**\
 `Enzo Maresca's team do not have a main man scoring the goals up front, but it does not bother the Chelsea coach`\
 https://nytimes.com/athletic/6829131/2025/11/23/chelsea-premier-league-goalscorers-analysis/
-
-**Flyers' 3 goals in 26 seconds set franchise record, show signs of improving offense**\
-`Philadelphia scored a franchise-record three goals in just 26 seconds in the first period, the fifth-fastest mark in NHL history.`\
-https://nytimes.com/athletic/6830009/2025/11/23/flyers-devils-nhl-goals-offense/
-
-**In Russian-Occupied Mariupol, Everything Ukrainian Must Go**\
-`Russia is remaking Mariupol, which was devastated by a brutal siege in 2022. Ukrainians seeking to move back are finding it hard to recognize the city, or to reclaim their property.`\
-https://nytimes.com/2025/11/23/world/europe/russia-ukraine-mariupol.html
-
-**Quote of the Day: How Learning a Dying Craft Helped One Man Fix His Life**\
-`Quotation of the Day for Sunday, November 23, 2025.`\
-https://nytimes.com/2025/11/23/pageoneplus/quote-of-the-day-how-learning-a-dying-craft-helped-one-man-fix-his-life.html
 
