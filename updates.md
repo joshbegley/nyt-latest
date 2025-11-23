@@ -1,3 +1,7 @@
+**Wait, is Michigan going to peak for Ohio State again?**\
+`Dominating Maryland isn't proof that Michigan can beat No. 1 Ohio State, but the Wolverines are improving just in time once again.`\
+https://nytimes.com/athletic/6829931/2025/11/23/michigan-ohio-state-rivalry-football-maryland/
+
 **Juraj Slafkovský's ascension key to Canadiens' ability to ascend, too**\
 `Montreal had a big win against the Maple Leafs, but Slafkovský's role in it might be more important in the big picture. `\
 https://nytimes.com/athletic/6830183/2025/11/23/juraj-slafkovsky-ascension-key-to-canadiens/

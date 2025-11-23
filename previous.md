@@ -1,3 +1,7 @@
+**Wait, is Michigan going to peak for Ohio State again?**\
+`Dominating Maryland isn't proof that Michigan can beat No. 1 Ohio State, but the Wolverines are improving just in time once again.`\
+https://nytimes.com/athletic/6829931/2025/11/23/michigan-ohio-state-rivalry-football-maryland/
+
 **Juraj Slafkovský's ascension key to Canadiens' ability to ascend, too**\
 `Montreal had a big win against the Maple Leafs, but Slafkovský's role in it might be more important in the big picture. `\
 https://nytimes.com/athletic/6830183/2025/11/23/juraj-slafkovsky-ascension-key-to-canadiens/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/23/opinion/housing-crisis-america.html
 **How Can Anyone Seriously Doubt Meta Is a Monopoly?**\
 `All you need is common sense.`\
 https://nytimes.com/2025/11/23/opinion/meta-facebook-antitrust-ruling.html
-
-**'It’s on all of us': The Maple Leafs' season is going off the rails**\
-`Toronto latest loss away from home makes it the worst road team in the league at 1-6-0, outscored 32-21 in those games. `\
-https://nytimes.com/athletic/6830067/2025/11/23/maple-leafs-losses-seven-of-eight/
 
