@@ -1,3 +1,7 @@
+**Madrid apologise after using wrong photo for Andre Silva, Diogo Jota tribute**\
+`The image of Elche forward Andre da Silva was accidentally shown in a video remembering the brothers who died in July.`\
+https://nytimes.com/athletic/6830529/2025/11/23/real-madrid-andre-silva-jota-elche-apology/
+
 **WATCH: How Jaelan Phillips has reignited Eagles defense**\
 `Two games in, the Eagles’ trade for Phillips seems to have transformed an already talented group.`\
 https://nytimes.com/athletic/6827484/2025/11/23/eagles-jaelan-phillips-trade-defense/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6830183/2025/11/23/juraj-slafkovsky-ascension-key-t
 **'Not good enough': Dan Muse challenges Penguins to be better after another OT loss**\
 `The Penguins coach had some direct words about his team after a 3-2 overtime loss to Seattle on Saturday. `\
 https://nytimes.com/athletic/6829173/2025/11/23/penguins-kraken-dan-muse-loss/
-
-**Meet 2027 NHL Draft prospect Dima Zhilkin, who found his game and a home in Saginaw**\
-`Still a full year out from his NHL Draft year in 2027, Zhilkin is already perhaps the Spirit's best player.`\
-https://nytimes.com/athletic/6774453/2025/11/23/dima-zhilkin-saginaw-spirit-nhl-draft-2027-prospect/
 
