@@ -1,3 +1,7 @@
+**UNC falls to Duke, clinches losing record in Bill Belichick's first season as coach**\
+`Duke used a fake field goal to beat UNC and prevent the 4-7 Tar Heels from being able to reach the six-win mark.`\
+https://nytimes.com/athletic/6829709/2025/11/22/bill-belichick-unc-football-bowl-eligibility-post-season/
+
 **Red Wings continue showing ability to respond in comeback win: 5 observations**\
 `The Red Wings came back from a two-goal deficit in the third period to win 4-3 behind clutch showings from Cam Talbot and Alex DeBrincat. `\
 https://nytimes.com/athletic/6829430/2025/11/22/red-wings-blue-jackets-alex-debrincat/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6829442/2025/11/22/49ers-brandon-aiyuk-kyle-shanaha
 **Second in Command**\
 `Trenton Charlson takes charge of your Sunday with an imposing puzzle.`\
 https://nytimes.com/2025/11/22/crosswords/daily-puzzle-2025-11-23.html
-
-**As Blue Jackets blow another lead, Dean Evason isn't concerned: 'I'm not focused on it'**\
-`It was a familiar script for the Blue Jackets, as they wasted another third-period lead and lost in overtime to the Red Wings on Saturday.`\
-https://nytimes.com/athletic/6829452/2025/11/22/blue-jackets-red-wings-dean-evason/
 
