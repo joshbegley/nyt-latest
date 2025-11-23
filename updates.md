@@ -1,3 +1,7 @@
+**Steelers’ Aaron Rodgers inactive vs. Bears due to fractured left wrist**\
+`The QB suffered the injury late in the first half of last week’s victory over the Bengals.`\
+https://nytimes.com/athletic/6830756/2025/11/23/aaron-rodgers-wrist-injury-bears-game/
+
 **Motorcyclist Dies in ‘Globe of Death’ Circus Accident in Italy**\
 `Christián Quezada Vasquez died after losing control during a stunt in which motorcyclists ride around a spherical cage, the circus company said.`\
 https://nytimes.com/2025/11/23/world/europe/circus-accident-death-motorcycle-italy.html
