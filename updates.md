@@ -1,3 +1,7 @@
+**Klay Thompson blasts Ja Morant for 'running his mouth' while in street clothes**\
+`The two exchanged words and had to be separated after the Dallas Mavericks' 102-96 loss to the Memphis Grizzlies.`\
+https://nytimes.com/athletic/6830099/2025/11/23/klay-thompson-blasts-ja-morant-mavericks-grizzlies/
+
 **TNT's Ashes coverage is like England's batting — underprepared and technically suspect**\
 `Production mishaps and non-specialist pundits are undermining the broadcaster's TV coverage`\
 https://nytimes.com/athletic/6828613/2025/11/23/ashes-tnt-sport-tv-live/

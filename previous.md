@@ -1,3 +1,7 @@
+**Klay Thompson blasts Ja Morant for 'running his mouth' while in street clothes**\
+`The two exchanged words and had to be separated after the Dallas Mavericks' 102-96 loss to the Memphis Grizzlies.`\
+https://nytimes.com/athletic/6830099/2025/11/23/klay-thompson-blasts-ja-morant-mavericks-grizzlies/
+
 **TNT's Ashes coverage is like England's batting — underprepared and technically suspect**\
 `Production mishaps and non-specialist pundits are undermining the broadcaster's TV coverage`\
 https://nytimes.com/athletic/6828613/2025/11/23/ashes-tnt-sport-tv-live/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6825775/2025/11/23/arsenal-tottenham-preview-north-
 **After shining for Brazil, can Rodrygo work his way back into Real Madrid's team?**\
 `Rodrgyo looked at home playing under Ancelotti, and with Vinicius Jr, for Brazil. But will his international form help at Real Madrid?`\
 https://nytimes.com/athletic/6822755/2025/11/23/rodrygo-brazil-ancelotti-real-madrid-team/
-
-**Chelsea do not know where their next goal will come from. That's good and bad**\
-`Enzo Maresca's team do not have a main man scoring the goals up front, but it does not bother the Chelsea coach`\
-https://nytimes.com/athletic/6829131/2025/11/23/chelsea-premier-league-goalscorers-analysis/
 
