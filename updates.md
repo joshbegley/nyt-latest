@@ -1,3 +1,11 @@
+**Top U.S. Military Officer to Visit Caribbean as Trump Pressures Venezuela**\
+`Gen. Dan Caine is making the trip as President Trump is said to have approved plans for covert action in Venezuela.`\
+https://nytimes.com/2025/11/23/us/politics/caribbean-trump-venezuela-military.html
+
+**NFC North pecking order and the irrepressible Chiefs: Our experts' Week 12 takeaways**\
+`Also, is Jahmyr Gibbs the best running back in football? And who has the upper hand in the race for the AFC's top seed?`\
+https://nytimes.com/athletic/6831359/2025/11/23/nfl-takeaways-week-12-scores-results/
+
 **U.S. Introduces New Female Crash-Test Dummy Standards**\
 `A female crash-test dummy to replace an outdated model largely based on male proportions would improve safety for women, who face higher fatality and injury risks on the road, officials said.`\
 https://nytimes.com/2025/11/23/us/female-crash-test-dummy.html

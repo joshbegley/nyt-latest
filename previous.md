@@ -1,3 +1,7 @@
+**Top U.S. Military Officer to Visit Caribbean as Trump Pressures Venezuela**\
+`Gen. Dan Caine is making the trip as President Trump is said to have approved plans for covert action in Venezuela.`\
+https://nytimes.com/2025/11/23/us/politics/caribbean-trump-venezuela-military.html
+
 **U.S. Introduces New Female Crash-Test Dummy Standards**\
 `A female crash-test dummy to replace an outdated model largely based on male proportions would improve safety for women, who face higher fatality and injury risks on the road, officials said.`\
 https://nytimes.com/2025/11/23/us/female-crash-test-dummy.html
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6831740/2025/11/23/sabres-standings-malenstyn-quinn
 https://nytimes.com/2025/11/23/crosswords/daily-puzzle-2025-11-24.html
 
 **NFC North pecking order and the irrepressible Chiefs: Our experts' Week 12 takeaways**\
-`Also: Is Jahmyr Gibbs the best running back in football? And who's got the upper hand in the race for the AFC's top seed?`\
+`Also, is Jahmyr Gibbs the best running back in football? And who has the upper hand in the race for the AFC's top seed?`\
 https://nytimes.com/athletic/6831359/2025/11/23/nfl-takeaways-week-12-scores-results/
 
 **Terry Crews serenades F1 Las Vegas Grand Prix podium finishers in pink LEGO Cadillac**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6831659/2025/11/23/mets-rangers-trade-brandon-nimmo
 **Canadiens sign Alexandre Texier to one-year, $1 million contract**\
 `The 26-year-old was previously with the St. Louis Blues before going on waivers for contract termination.`\
 https://nytimes.com/athletic/6831671/2025/11/23/alexandre-texier-contract-1-year-canadiens-nhl/
-
-**Mahomes, Chiefs rediscover late-game magic, stun Colts in OT: Takeaways**\
-`Kansas City erases a 20-9 fourth-quarter deficit on Sunday, boosts playoff hopes with OT win.`\
-https://nytimes.com/athletic/6831203/2025/11/23/colts-chiefs-score-result-takeaways/
 
