@@ -1,3 +1,7 @@
+**Nasser Hussain: How England can save the Ashes**\
+`England need to look at themselves and work out why their batters played the shots they did in that miserable second innings capitulation`\
+https://nytimes.com/athletic/6830393/2025/11/23/nasser-hussain-england-ashes-australia-stokes/
+
 **Madrid apologise after using wrong photo for Andre Silva, Diogo Jota tribute**\
 `The image of Elche forward Andre da Silva was accidentally shown in a video remembering the brothers who died in July.`\
 https://nytimes.com/athletic/6830529/2025/11/23/real-madrid-andre-silva-jota-elche-apology/
