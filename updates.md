@@ -1,3 +1,19 @@
+**How a Sabotaged Ankle Monitor Ended Bolsonaro’s House Arrest**\
+`Shortly before he was expected to start serving a 27-year sentence, Brazil’s former president took a soldering iron to his tracking device.`\
+https://nytimes.com/2025/11/23/world/americas/jair-bolsonaro-ankle-monitor-brazil.html
+
+**Israel Says It Assassinated a Top Hezbollah Commander Near Beirut**\
+`Escalating its attacks on the armed group in Lebanon, Israel said it killed Hezbollah’s chief of staff in an airstrike on an apartment building.`\
+https://nytimes.com/2025/11/23/world/middleeast/israel-hezbollah-dahiya-airstrike.html
+
+**North Dakota State, Montana State earn top seeds as FCS bracket revealed**\
+`Six Missouri Valley Conference representatives earned bids, including all four teams from the Dakotas.`\
+https://nytimes.com/athletic/6830912/2025/11/23/fcs-playoffs-bracket-seeds-schedule/
+
+**Florida State's Mike Norvell will return for 2026 season**\
+`Florida State is two days removed from a 21-11 loss at NC State that dropped the Seminoles to 5-6 this season. `\
+https://nytimes.com/athletic/6729986/2025/11/23/mike-norvell-2026-return-florida-state-coach/
+
 **Mike Norvell will return to Florida State for 2026 season: Sources**\
 `Florida State is two days removed from a 21-11 loss at NC State dropped the Seminoles to 5-6 this season. `\
 https://nytimes.com/athletic/6729986/2025/11/23/mike-norvell-2026-return-florida-state-coach/
