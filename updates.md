@@ -1,3 +1,11 @@
+**Las Vegas GP briefing: Max Verstappen's win keeps the heat on Lando Norris**\
+`Lando Norris inched closer to his first F1 title in Las Vegas, but he's not out of the woods yet`\
+https://nytimes.com/athletic/6829774/2025/11/23/las-vegas-gp-briefing-max-verstappen-lando-norris/
+
+**Flyers' 3 goals in 26 seconds set franchise record, show signs of improving offense**\
+`Philadelphia scored a franchise-record three goals in just 26 seconds in the first period, the fifth-fastest mark in NHL history.`\
+https://nytimes.com/athletic/6830009/2025/11/23/flyers-devils-nhl-goals-offense/
+
 **World Cup 2026, 200 days to go: What still needs to be sorted?**\
 `Visas, travel bans, transport, security and politics — there is a lot to consider with time running out`\
 https://nytimes.com/athletic/6827421/2025/11/23/world-cup-2026-200-days-to-go/
