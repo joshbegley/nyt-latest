@@ -1,3 +1,7 @@
+**Patriots-Bengals takeaways: New England wins 9th straight, but injuries mount**\
+`Pats win despite Drake Maye's struggles, injuries to Will Campbell and Jared Wilson.`\
+https://nytimes.com/athletic/6831197/2025/11/23/patriots-bengals-score-result-takeaways/
+
 **Liverpool's Slot pulls out of receiving award after Forest loss**\
 `The defeat by Forest was Liverpool's sixth Premier League loss in their last seven games.`\
 https://nytimes.com/athletic/6831494/2025/11/23/arne-slot-liverpool-fwa-award/

@@ -1,3 +1,7 @@
+**Patriots-Bengals takeaways: New England wins 9th straight, but injuries mount**\
+`Pats win despite Drake Maye's struggles, injuries to Will Campbell and Jared Wilson.`\
+https://nytimes.com/athletic/6831197/2025/11/23/patriots-bengals-score-result-takeaways/
+
 **Liverpool's Slot pulls out of receiving award after Forest loss**\
 `The defeat by Forest was Liverpool's sixth Premier League loss in their last seven games.`\
 https://nytimes.com/athletic/6831494/2025/11/23/arne-slot-liverpool-fwa-award/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6831247/2025/11/23/vikings-packers-score-result-tak
 **Bengals WR Tee Higgins carted off with concussion in fourth quarter vs. Patriots**\
 `The Bengals quickly ruled Higgins out with a concussion.`\
 https://nytimes.com/athletic/6831520/2025/11/23/tee-higgins-bengals-injury-update-patriots/
-
-**Stars' Mikko Rantanen suspended 1 game after latest penalty**\
-`Rantanen was ejected from the Stars’ loss to the Flames on Saturday after getting a five-minute major penalty for boarding Matt Coronato.`\
-https://nytimes.com/athletic/6831324/2025/11/23/stars-mikko-rantanen-suspension-penalty/
 
