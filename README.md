@@ -1,5 +1,13 @@
-**Mets, Rangers discussing Brandon Nimmo-Marcus Semien trade: Sources**\
-`It is not known whether other players would be involved, or how the teams would balance the difference in guaranteed money.`\
+**Ugarte in 'different world' at Man Utd but 'needs to improve' - Amorim**\
+`The Uruguayan has struggled to make an impact in England, and has started just twice in the Premier League so far this season.`\
+https://nytimes.com/athletic/6826516/2025/11/23/manuel-ugarte-struggling-manchester-united-amorim/
+
+**Mike Tomlin expects Aaron Rodgers to return from fractured wrist next week**\
+`Rodgers missed the Steelers' loss in Chicago on Sunday.`\
+https://nytimes.com/athletic/6831660/2025/11/23/aaron-rodgers-wrist-injury-return-week-13/
+
+**Mets, Rangers agree to trade involving Brandon Nimmo and Marcus Semien: Sources**\
+`It is not known whether other players will be involved, or how the teams will balance the difference in guaranteed money.`\
 https://nytimes.com/athletic/6831659/2025/11/23/mets-rangers-trade-brandon-nimmo-marcus-semien/
 
 **Canadiens sign Alexandre Texier to one-year, $1 million contract**\
@@ -19,7 +27,7 @@ https://nytimes.com/athletic/6831429/2025/11/23/giants-lions-score-result-takeaw
 https://nytimes.com/athletic/6831695/2025/11/23/christian-pulisic-milan-inter-usmnt/
 
 **Seahawks-Titans takeaways: Jaxon Smith-Njigba's day seals victory for Seattle**\
-`Jaxon Smith-Njigba is first player in NFL history with 75+ yards in his team's first 11 games.`\
+`Jaxon Smith-Njigba is on pace to break the NFL’s all-time single-season receiving yards record, set by Calvin Johnson in 2012 (1,964).`\
 https://nytimes.com/athletic/6831468/2025/11/23/seahawks-titans-score-result-takeaways/
 
 **Bears-Steelers: Caleb Williams powers win vs. Pittsburgh as Aaron Rodgers sits**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6830830/2025/11/23/steelers-bears-score-result-take
 **Jeeno Thitikul completes dominant LPGA season with tour championship win**\
 `Thitikul will take home a $4 million prize for her win on Sunday.`\
 https://nytimes.com/athletic/6831620/2025/11/23/jeeno-thitikul-lpga-cme-group-tour-championship/
-
-**Baker: Florida State's expectations clearly aren't what they used to be**\
-`Florida State announced Sunday that Mike Norvell will return in 2026 after another baffling season in which the Seminoles stumbled to 5-6.`\
-https://nytimes.com/athletic/6831188/2025/11/23/mike-norvell-florida-state-decision-contract/
-
-**Patriots-Bengals takeaways: New England wins 9th straight, but injuries mount**\
-`Pats win despite Drake Maye's struggles, injuries to Will Campbell and Jared Wilson.`\
-https://nytimes.com/athletic/6831197/2025/11/23/patriots-bengals-score-result-takeaways/
 
