@@ -1,3 +1,7 @@
+**Josh Allen's No. 17 jersey retired by Wyoming**\
+`The Bills quarterback became the first player in program history to have his number retired.`\
+https://nytimes.com/athletic/6829865/2025/11/22/josh-allen-wyoming-football-jersey-retirement-hailee-steinfeld/
+
 **Andrew Luck erupts during live TV interview as Stanford scoop and score unfolds**\
 `The Cardinal general manager and former NFL star again showed why he's been tasked with revitalizing the Stanford football program.`\
 https://nytimes.com/athletic/6829852/2025/11/22/andrew-luck-stanford-football-interview-td-celebration/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6829709/2025/11/22/bill-belichick-unc-football-bowl
 **Red Wings continue showing ability to respond in comeback win: 5 observations**\
 `The Red Wings rallied from a two-goal deficit in the third period to win 4-3 behind clutch showings from Cam Talbot and Alex DeBrincat.`\
 https://nytimes.com/athletic/6829430/2025/11/22/red-wings-blue-jackets-alex-debrincat/
-
-**Is Michigan ready for Ohio State? Key takeaways from a comfortable win at Maryland**\
-`Michigan pulled away from Maryland, 45-20, for a relatively easy win to head into Ohio State week at 9-2. Here's what we learned.`\
-https://nytimes.com/athletic/6829699/2025/11/22/michigan-maryland-football-score-recap-osu/
 

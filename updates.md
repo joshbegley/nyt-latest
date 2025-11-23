@@ -1,3 +1,7 @@
+**Josh Allen's No. 17 jersey retired by Wyoming**\
+`The Bills quarterback became the first player in program history to have his number retired.`\
+https://nytimes.com/athletic/6829865/2025/11/22/josh-allen-wyoming-football-jersey-retirement-hailee-steinfeld/
+
 **Andrew Luck erupts during live TV interview as Stanford scoop and score unfolds**\
 `The Cardinal general manager and former NFL star again showed why he's been tasked with revitalizing the Stanford football program.`\
 https://nytimes.com/athletic/6829852/2025/11/22/andrew-luck-stanford-football-interview-td-celebration/
