@@ -1,3 +1,23 @@
+**Donald Glover Reveals He Had a Stroke Last Year**\
+`The rapper and actor, who performed in Los Angeles on Saturday, said doctors had also discovered a hole in his heart, prompting him to cancel his world tour.`\
+https://nytimes.com/2025/11/23/arts/music/donald-glover-childish-gambino-stroke.html
+
+**Kevin Durant to miss at least next 2 games for Rockets**\
+`Durant will miss Monday's game against the Phoenix Suns. It would have been his first game in Phoenix after being traded from the franchise.`\
+https://nytimes.com/athletic/6831448/2025/11/23/kevin-durant-rockets-miss-game-phoenix-nba/
+
+**Can the World Move On Without the U.S.? G20 Leaders Gave It a Shot.**\
+`With the United States boycotting the summit, other nations sought to strike new deals, and some took a tougher tone with President Trump.`\
+https://nytimes.com/2025/11/23/world/africa/g20-united-states.html
+
+**Vikings-Packers takeaways: McCarthy stymied again as Green Bay defense shines in win**\
+`Micah Parsons' transformation of the Packers' defense was on full display all four quarters.`\
+https://nytimes.com/athletic/6831247/2025/11/23/vikings-packers-score-result-takeaways/
+
+**Bengals WR Tee Higgins carted off with concussion in fourth quarter vs. Patriots**\
+`The Bengals quickly ruled Higgins out with a concussion.`\
+https://nytimes.com/athletic/6831520/2025/11/23/tee-higgins-bengals-injury-update-patriots/
+
 **Stars' Mikko Rantanen suspended 1 game after latest penalty**\
 `Rantanen was ejected from the Stars’ loss to the Flames on Saturday after getting a five-minute major penalty for boarding Matt Coronato.`\
 https://nytimes.com/athletic/6831324/2025/11/23/stars-mikko-rantanen-suspension-penalty/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6831449/2025/11/23/new-york-gotham-fc-city-hall-cel
 **Italy wins third straight Davis Cup as Flavio Cobolli and Matteo Berrettini step up**\
 `With Jannik Sinner and Carlos Alcaraz absent, Italy triumphed over Spain to extend its dominance at the 'World Cup of tennis.'`\
 https://nytimes.com/athletic/6831368/2025/11/23/tennis-davis-cup-final-italy-spain-cobolli-munar-berrettini-carreno-busta/
-
-**Tottenham's Vicario, Frank apologise for lack of 'fight' in Arsenal loss**\
-`Frank added that he was "expecting much more" from his side, who are now ninth in the Premier League.`\
-https://nytimes.com/athletic/6831401/2025/11/23/vicario-frank-tottenham-arsenal/
-
-**Denmark Offers Lessons as Europe Toughens Up on Immigration**\
-`Like other European leaders, British Labour politicians are borrowing from Denmark’s restrictive asylum policy. One of its architects cautions that “balance” is necessary.`\
-https://nytimes.com/2025/11/23/world/europe/denmark-immigration-uk.html
-
-**Mother Accused of Delaying Medical Care for Daughter Who Died on Road Trip**\
-`A diabetic 10-year-old girl slipped into a coma during a trip with her family and was brought to the hospital after she had died, the authorities said.`\
-https://nytimes.com/2025/11/23/us/mother-death-child-diabetes-washington.html
-
-**Antonio Pierce says Shedeur Sanders was one of Raiders' 'top choices' before his firing**\
-`Pierce: "If I would’ve stayed there, there’s no way he goes in the fifth round,"`\
-https://nytimes.com/athletic/6831151/2025/11/23/shedeur-sanders-raiders-browns-antonio-pierce/
-
-**How to watch Spurs vs. Suns: Time, TV, streaming**\
-`Find out how to watch the San Antonio Spurs play the Phoenix Suns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6831320/2025/11/23/spurs-vs-suns-stream-how-to-watch-nov-23/
 

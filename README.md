@@ -1,3 +1,7 @@
+**Trump Moves to End Temporary Protected Status for Somalis**\
+`About 700 Somali immigrants are currently allowed to live and work in the U.S. under a program for people fleeing countries in turmoil.`\
+https://nytimes.com/2025/11/23/us/trump-somali-tps-protected-minnesota.html
+
 **Donald Glover Reveals He Had a Stroke Last Year**\
 `The rapper and actor, who performed in Los Angeles on Saturday, said doctors had also discovered a hole in his heart, prompting him to cancel his world tour.`\
 https://nytimes.com/2025/11/23/arts/music/donald-glover-childish-gambino-stroke.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/23/theater/gruesome-playground-injuries-review.html
 **New York to honor NWSL champions Gotham FC with City Hall celebration**\
 `Gotham’s NYC celebration will include a fleet of buses that will drive toward City Hall, and the team will be awarded the key to the city.`\
 https://nytimes.com/athletic/6831449/2025/11/23/new-york-gotham-fc-city-hall-celebration/
-
-**Italy wins third straight Davis Cup as Flavio Cobolli and Matteo Berrettini step up**\
-`With Jannik Sinner and Carlos Alcaraz absent, Italy triumphed over Spain to extend its dominance at the 'World Cup of tennis.'`\
-https://nytimes.com/athletic/6831368/2025/11/23/tennis-davis-cup-final-italy-spain-cobolli-munar-berrettini-carreno-busta/
 
