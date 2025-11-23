@@ -1,3 +1,7 @@
+**In His Tightest Corner Yet, Will Zelensky Rise to the Occasion?**\
+`Over nearly four years of wartime leadership, analysts say the Ukrainian leader has repeatedly played weak hands wisely. A U.S. peace plan may be his biggest test.`\
+https://nytimes.com/2025/11/23/world/europe/ukraine-zelensky-war-russia.html
+
 **No mincing of words from Nikola Vučević after Bulls' narrow win: 'We were very soft'**\
 `Several Bulls players celebrated a victory Saturday, but Nikola Vučević professed his disenchantment after playing a one-win Wizards team.`\
 https://nytimes.com/athletic/6830486/2025/11/23/nikola-vucevic-bulls-wizards-soft-nba/
