@@ -1,3 +1,7 @@
+**Stars' Mikko Rantanen suspended 1 game after latest penalty**\
+`Rantanen was ejected from the Stars’ loss to the Flames on Saturday after getting a five-minute major penalty for boarding Matt Coronato.`\
+https://nytimes.com/athletic/6831324/2025/11/23/stars-mikko-rantanen-suspension-penalty/
+
 **Denmark’s Migration Model**\
 `The country is getting attention for its tough asylum policies. Can they serve as a bulwark against the far right?`\
 https://nytimes.com/2025/11/23/world/denmark-migration-britain-ukraine-talks-us.html
