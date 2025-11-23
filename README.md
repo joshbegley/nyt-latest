@@ -1,4 +1,4 @@
-**Jaden Ivey expected returns to Pistons' lineup after rehabbing fractured fibula**\
+**Jaden Ivey available to make season debut, in first regular-season game since January**\
 `After being sidelined for 10 months, Jaden Ivey makes season debut for red-hot Pistons.`\
 https://nytimes.com/athletic/6829711/2025/11/22/jaden-ivey-injury-report-pistons-2025-26-season-debut-nba/
 
