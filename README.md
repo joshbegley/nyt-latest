@@ -1,3 +1,7 @@
+**Chris Klieman in tears as he defends Kansas State following Utah loss**\
+`An emotional Chris Klieman defended his players and his program in a postgame statement following Kansas State’s collapse at Utah.`\
+https://nytimes.com/athletic/6830019/2025/11/22/kansas-state-head-coach-chris-klieman-news-conference/
+
 **Benedict shocks Wingate with cross-field lateral on final play in Division II playoffs**\
 `Things looked bleak for the Tigers when they were at their own 14 with three seconds left. `\
 https://nytimes.com/athletic/6829695/2025/11/22/benedict-wingate-trick-play-lateral/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6829852/2025/11/22/andrew-luck-stanford-football-in
 **Jaden Ivey makes season debut, plays in first regular-season game since January**\
 `After being sidelined for 10 months, excluding a brief stint in preseason play, Ivey makes season debut for red-hot Pistons.`\
 https://nytimes.com/athletic/6829711/2025/11/22/jaden-ivey-injury-report-pistons-2025-26-season-debut-nba/
-
-**Back Home, Voters Stand by Marjorie Taylor Greene After She Stood Up to Trump**\
-`Ms. Greene’s resignation blindsided her conservative Georgia district, which had stuck by her through ups and downs, including her split with the president.`\
-https://nytimes.com/2025/11/22/us/georgia-marjorie-taylor-greene-voters.html
 
