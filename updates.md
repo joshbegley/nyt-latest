@@ -1,3 +1,7 @@
+**A Swath of Bank Customer Data Was Hacked. The F.B.I. Is Investigating.**\
+`SitusAMC, a technology vendor for real estate lenders, holds sensitive personal information on the clients of hundreds of its banking customers, including JPMorgan Chase.`\
+https://nytimes.com/2025/11/22/business/bank-data-hack.html
+
 **Penn State keeps up push for bowl, while Nebraska gets dose of reality: Takeaways**\
 `For Nebraska, this was a bitter pill to swallow in Matt Rhule’s return to his alma mater.`\
 https://nytimes.com/athletic/6829910/2025/11/22/nebraska-penn-state-score-result/

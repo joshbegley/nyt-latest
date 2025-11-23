@@ -1,3 +1,7 @@
+**A Swath of Bank Customer Data Was Hacked. The F.B.I. Is Investigating.**\
+`SitusAMC, a technology vendor for real estate lenders, holds sensitive personal information on the clients of hundreds of its banking customers, including JPMorgan Chase.`\
+https://nytimes.com/2025/11/22/business/bank-data-hack.html
+
 **Penn State keeps up push for bowl, while Nebraska gets dose of reality: Takeaways**\
 `For Nebraska, this was a bitter pill to swallow in Matt Rhule’s return to his alma mater.`\
 https://nytimes.com/athletic/6829910/2025/11/22/nebraska-penn-state-score-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6829693/2025/11/22/utah-college-football-playoff-bu
 **Texas' Manning accounts for 6 TDs, catches touchdown in Arkansas rout**\
 `After an up-and-down first half of the season, Manning has steadily improved.`\
 https://nytimes.com/athletic/6829712/2025/11/22/arch-manning-stats-texas-longhorns-sec/
-
-**Oregon knocks USC out of Playoff race while closing in on bid: Key takeaways**\
-`No. 7 Oregon topped No. 15 USC 42-27 on Saturday, keeping the Ducks in the Big Ten title race as they take aim at a Playoff bid.`\
-https://nytimes.com/athletic/6829589/2025/11/22/oregon-usc-football-score-recap-playoff/
 
