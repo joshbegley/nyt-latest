@@ -1,3 +1,11 @@
+**Mother Accused of Delaying Medical Care for Daughter Who Died on Road Trip**\
+`A diabetic 10-year-old girl slipped into a coma during a trip with her family and was brought to the hospital after she had died, the authorities said.`\
+https://nytimes.com/2025/11/23/us/mother-death-child-diabetes-washington.html
+
+**Antonio Pierce says Shedeur Sanders was one of Raiders' 'top choices' before his firing**\
+`Pierce: "If I would’ve stayed there, there’s no way he goes in the fifth round,"`\
+https://nytimes.com/athletic/6831151/2025/11/23/shedeur-sanders-raiders-browns-antonio-pierce/
+
 **Antonio Pierce says Shedeur Sanders was one of Raiders 'top choices' before his firing**\
 `Pierce: "If I would’ve stayed there, there’s no way he goes in the fifth round,"`\
 https://nytimes.com/athletic/6831151/2025/11/23/shedeur-sanders-raiders-browns-antonio-pierce/
