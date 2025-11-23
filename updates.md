@@ -1,3 +1,11 @@
+**Bears-Steelers: Caleb Williams powers win vs. Pittsburgh as Aaron Rodgers sits**\
+`Williams passed for 239 yards and three touchdowns in Chicago's fourth straight win, a game that came down to the end. `\
+https://nytimes.com/athletic/6830830/2025/11/23/steelers-bears-score-result-takeaways/
+
+**Jeeno Thitikul completes dominant LPGA season with tour championship win**\
+`Thitikul will take home a $4 million prize for her win on Sunday.`\
+https://nytimes.com/athletic/6831620/2025/11/23/jeeno-thitikul-lpga-cme-group-tour-championship/
+
 **Jeeno Thitikul completes dominant LPGA season with tour championship win**\
 `Thitikul will take home a $4 million prize for her win on Sunday.`\
 https://nytimes.com/athletic/6831620/2025/11/23/jeeno-thitikul-completes-dominant-lpga-season-with-tour-championship-win/

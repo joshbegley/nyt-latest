@@ -1,6 +1,10 @@
+**Bears-Steelers: Caleb Williams powers win vs. Pittsburgh as Aaron Rodgers sits**\
+`Williams passed for 239 yards and three touchdowns in Chicago's fourth straight win, a game that came down to the end. `\
+https://nytimes.com/athletic/6830830/2025/11/23/steelers-bears-score-result-takeaways/
+
 **Jeeno Thitikul completes dominant LPGA season with tour championship win**\
 `Thitikul will take home a $4 million prize for her win on Sunday.`\
-https://nytimes.com/athletic/6831620/2025/11/23/jeeno-thitikul-completes-dominant-lpga-season-with-tour-championship-win/
+https://nytimes.com/athletic/6831620/2025/11/23/jeeno-thitikul-lpga-cme-group-tour-championship/
 
 **Baker: Florida State's expectations clearly aren't what they used to be**\
 `Florida State announced Sunday that Mike Norvell will return in 2026 after another baffling season in which the Seminoles stumbled to 5-6.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/23/arts/music/donald-glover-childish-gambino-stroke.
 **Kevin Durant to miss at least next 2 games for Rockets**\
 `Durant will miss Monday's game against the Phoenix Suns. It would have been his first game in Phoenix after being traded from the franchise.`\
 https://nytimes.com/athletic/6831448/2025/11/23/kevin-durant-rockets-miss-game-phoenix-nba/
-
-**Can the World Move On Without the U.S.? G20 Leaders Gave It a Shot.**\
-`With the United States boycotting the summit, other nations sought to strike new deals, and some took a tougher tone with President Trump.`\
-https://nytimes.com/2025/11/23/world/africa/g20-united-states.html
 
