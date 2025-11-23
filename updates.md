@@ -1,3 +1,11 @@
+**College Football Playoff 2025 projections: Oregon, Oklahoma closing in on bids in Week 13**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/22/college-football-playoff-bracket-projections-odds/
+
+**Utah gives up 472 rushing yards, stays on CFP bubble with dramatic win over K-State**\
+`Now the question becomes, will Utah remain ahead of No. 13 Miami and No. 14 Vanderbilt on Tuesday? `\
+https://nytimes.com/athletic/6829693/2025/11/22/utah-college-football-playoff-bubble-kansas-state/
+
 **Texas' Manning accounts for 6 TDs, catches touchdown in Arkansas rout**\
 `After an up-and-down first half of the season, Manning has steadily improved.`\
 https://nytimes.com/athletic/6829712/2025/11/22/arch-manning-stats-texas-longhorns-sec/
