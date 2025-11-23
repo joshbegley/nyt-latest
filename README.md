@@ -1,5 +1,9 @@
+**Benedict shocks Wingate with cross-field lateral on final play in Division II playoffs**\
+`Things looked bleak for the Tigers when they were at their own 14 with three seconds left. `\
+https://nytimes.com/athletic/6829695/2025/11/22/benedict-wingate-trick-play-lateral/
+
 **From 'cold tub' to scoreboard, Blues may have a new line combo with rookie center**\
-`Dalibor Dvorsky recorded his first assist in the NHL, setting up a goal by Brayden Schenn, that helped end the Blues' winless skid.`\
+`Dalibor Dvorsky recorded his first assist in the NHL, setting up a goal by Brayden Schenn that helped end the Blues' winless skid.`\
 https://nytimes.com/athletic/6829265/2025/11/22/blues-dalibor-dvorsky-brayden-schenn-pavel-buchnevich/
 
 **Pitt's wild win at GT reshuffles ACC race with 1 week to go**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6829711/2025/11/22/jaden-ivey-injury-report-pistons
 **Back Home, Voters Stand by Marjorie Taylor Greene After She Stood Up to Trump**\
 `Ms. Greene’s resignation blindsided her conservative Georgia district, which had stuck by her through ups and downs, including her split with the president.`\
 https://nytimes.com/2025/11/22/us/georgia-marjorie-taylor-greene-voters.html
-
-**College Football Playoff 2025 projections: Oregon, Oklahoma closing in on bids in Week 13**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/11/22/college-football-playoff-bracket-projections-odds/
 
