@@ -1,3 +1,7 @@
+**The three Eddie Howe tweaks that stunned Manchester City**\
+`Howe will be delighted and relieved by Newcastle's win against City, which came about thanks to some bright thinking from the 47-year-old`\
+https://nytimes.com/athletic/6828342/2025/11/23/newcastle-man-city-eddie-howe-analysis/
+
 **MLS's Son-Müller playoff showdown meets the hype, as Vancouver wins an instant classic**\
 `If Son Heung-min's stoppage time free kick wasn't a dagger, dropping to nine men should've been. It didn't matter for the resolute Whitecaps`\
 https://nytimes.com/athletic/6830201/2025/11/23/vancouver-whitecaps-lafc-mls-playoffs-son-muller-berhalter/
