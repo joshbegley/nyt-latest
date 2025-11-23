@@ -1,3 +1,7 @@
+**AP Top 25: Ohio State, Michigan set for record 50th ranked matchup**\
+`No. 1 Ohio State, No. 2 Indiana, No. 3 Texas A&M, No. 4 Georgia and No. 5 Oregon headline Sunday's latest AP Top 25 college football poll.`\
+https://nytimes.com/athletic/6831142/2025/11/23/ap-top-25-michigan-ohio-state-rankings/
+
 **The Danish Model for Immigration Crackdown**\
 `For European governments, Denmark’s hard-line immigration policy is a model for how to get a grip on contentious issue and stay in power. Our reporter Jeanna Smialek reports from Copenhagen on the the effects of the policy.`\
 https://nytimes.com/video/world/europe/100000010530619/europe-immigration-crackdown.html
