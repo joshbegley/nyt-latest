@@ -1,3 +1,15 @@
+**Giants-Lions takeaways: Jahmyr Gibbs powers Detroit past Jameis Winston, New York in OT**\
+`Gibbs totaled 264 yards from scrimmage and three touchdowns in the win.`\
+https://nytimes.com/athletic/6831429/2025/11/23/giants-lions-score-result-takeaways/
+
+**USMNT's Pulisic scores winner in Milan derby**\
+`Pulisic has five Serie A goals and two assists in eight games so far this season.`\
+https://nytimes.com/athletic/6831695/2025/11/23/christian-pulisic-milan-inter-usmnt/
+
+**Seahawks-Titans takeaways: Jaxon Smith-Njigba's day seals victory for Seattle**\
+`Jaxon Smith-Njigba is first player in NFL history with 75+ yards in his team's first 11 games.`\
+https://nytimes.com/athletic/6831468/2025/11/23/seahawks-titans-score-result-takeaways/
+
 **Bears-Steelers: Caleb Williams powers win vs. Pittsburgh as Aaron Rodgers sits**\
 `Williams passed for 239 yards and three touchdowns in Chicago's fourth straight win, a game that came down to the end. `\
 https://nytimes.com/athletic/6830830/2025/11/23/steelers-bears-score-result-takeaways/
