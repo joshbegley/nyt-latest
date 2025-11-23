@@ -1,3 +1,7 @@
+**Nuggets forward Aaron Gordon out at least a month with hamstring injury**\
+`The 12-year veteran is averaging a career-best 18.8 points this season for the 12-4 Nuggets.`\
+https://nytimes.com/athletic/6831157/2025/11/23/denver-nuggets-aaron-gordon-hamstring-injury/
+
 **The Briefing: Arsenal 4 Tottenham 1 - Eze bags hat-trick in his first north London derby, but did Frank get his tactics wrong?**\
 `The Athletic's writers break down the key moments from Sunday's game at the Emirates Stadium `\
 https://nytimes.com/athletic/6820878/2025/11/23/arsenal-tottenham-premier-league-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6830980/2025/11/23/ryan-helsley-starter-detroit-tig
 **Lowetide: Why Oilers' 5-on-5 game has struggled so much this season**\
 `Oilers fans can point to any number of issues. What, exactly, is going on? And how does this get better?`\
 https://nytimes.com/athletic/6829111/2025/11/23/edmonton-oilers-stats-2025-goal-share/
-
-**How to watch Clippers vs. Cavaliers: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Clippers play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6830996/2025/11/23/clippers-vs-cavaliers-stream-how-to-watch-nov-23/
 

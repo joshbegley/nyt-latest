@@ -1,3 +1,7 @@
+**The Briefing: Arsenal 4 Tottenham 1 - Eze bags hat-trick in his first north London derby, but did Frank get his tactics wrong?**\
+`The Athletic's writers break down the key moments from Sunday's game at the Emirates Stadium `\
+https://nytimes.com/athletic/6820878/2025/11/23/arsenal-tottenham-premier-league-analysis/
+
 **How a Sabotaged Ankle Monitor Ended Bolsonaro’s House Arrest**\
 `Shortly before he was expected to start serving a 27-year sentence, Brazil’s former president took a soldering iron to his tracking device.`\
 https://nytimes.com/2025/11/23/world/americas/jair-bolsonaro-ankle-monitor-brazil.html

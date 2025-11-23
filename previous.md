@@ -1,3 +1,7 @@
+**The Briefing: Arsenal 4 Tottenham 1 - Eze bags hat-trick in his first north London derby, but did Frank get his tactics wrong?**\
+`The Athletic's writers break down the key moments from Sunday's game at the Emirates Stadium `\
+https://nytimes.com/athletic/6820878/2025/11/23/arsenal-tottenham-premier-league-analysis/
+
 **How a Sabotaged Ankle Monitor Ended Bolsonaro’s House Arrest**\
 `Shortly before he was expected to start serving a 27-year sentence, Brazil’s former president took a soldering iron to his tracking device.`\
 https://nytimes.com/2025/11/23/world/americas/jair-bolsonaro-ankle-monitor-brazil.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6829111/2025/11/23/edmonton-oilers-stats-2025-goal-
 **How to watch Clippers vs. Cavaliers: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6830996/2025/11/23/clippers-vs-cavaliers-stream-how-to-watch-nov-23/
-
-**How to watch Trail Blazers vs. Thunder: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6830995/2025/11/23/trail-blazers-vs-thunder-stream-how-to-watch-nov-23/
 
