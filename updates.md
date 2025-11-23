@@ -1,3 +1,11 @@
+**Penn State keeps up push for bowl, while Nebraska gets dose of reality: Takeaways**\
+`For Nebraska, this was a bitter pill to swallow in Matt Rhule’s return to his alma mater.`\
+https://nytimes.com/athletic/6829910/2025/11/22/nebraska-penn-state-score-result/
+
+**Gotham FC win NWSL Championship, defeating Washington Spirit 1-0**\
+`The trophy is Lavelle's first NWSL Championship title. `\
+https://nytimes.com/athletic/6829949/2025/11/22/gotham-fc-washington-spirit-nwsl-championship-score/
+
 **Josh Allen's No. 17 jersey retired by Wyoming**\
 `The Bills quarterback became the first player in program history to have his number retired.`\
 https://nytimes.com/athletic/6829865/2025/11/22/josh-allen-wyoming-football-jersey-retirement-hailee-steinfeld/
