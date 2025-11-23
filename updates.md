@@ -1,3 +1,7 @@
+**Chris Klieman in tears as he defends Kansas State following Utah loss**\
+`An emotional Chris Klieman defended his players and his program in a postgame statement following Kansas State’s collapse at Utah.`\
+https://nytimes.com/athletic/6830019/2025/11/22/kansas-state-head-coach-chris-klieman-news-conference/
+
 **Benedict shocks Wingate with cross-field lateral on final play in Division II playoffs**\
 `Things looked bleak for the Tigers when they were at their own 14 with three seconds left. `\
 https://nytimes.com/athletic/6829695/2025/11/22/benedict-wingate-trick-play-lateral/
