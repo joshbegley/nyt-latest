@@ -1,3 +1,7 @@
+**MLS's Son-Müller playoff showdown meets the hype, as Vancouver wins an instant classic**\
+`If Son Heung-min's stoppage time free kick wasn't a dagger, dropping to nine men should've been. It didn't matter for the resolute Whitecaps`\
+https://nytimes.com/athletic/6830201/2025/11/23/vancouver-whitecaps-lafc-mls-playoffs-son-muller-berhalter/
+
 **Klay Thompson blasts Ja Morant for 'running his mouth' while in street clothes**\
 `The two exchanged words and had to be separated after the Dallas Mavericks' 102-96 loss to the Memphis Grizzlies.`\
 https://nytimes.com/athletic/6830099/2025/11/23/klay-thompson-blasts-ja-morant-mavericks-grizzlies/
