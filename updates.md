@@ -1,3 +1,19 @@
+**Ugarte in 'different world' at Man Utd but 'needs to improve' - Amorim**\
+`The Uruguayan has struggled to make an impact in England, and has started just twice in the Premier League so far this season.`\
+https://nytimes.com/athletic/6826516/2025/11/23/manuel-ugarte-struggling-manchester-united-amorim/
+
+**Mike Tomlin expects Aaron Rodgers to return from fractured wrist next week**\
+`Rodgers missed the Steelers' loss in Chicago on Sunday.`\
+https://nytimes.com/athletic/6831660/2025/11/23/aaron-rodgers-wrist-injury-return-week-13/
+
+**Mets, Rangers agree to trade involving Brandon Nimmo and Marcus Semien: Sources**\
+`It is not known whether other players will be involved, or how the teams will balance the difference in guaranteed money.`\
+https://nytimes.com/athletic/6831659/2025/11/23/mets-rangers-trade-brandon-nimmo-marcus-semien/
+
+**Seahawks-Titans takeaways: Jaxon Smith-Njigba's day seals victory for Seattle**\
+`Jaxon Smith-Njigba is on pace to break the NFL’s all-time single-season receiving yards record, set by Calvin Johnson in 2012 (1,964).`\
+https://nytimes.com/athletic/6831468/2025/11/23/seahawks-titans-score-result-takeaways/
+
 **Mets, Rangers discussing Brandon Nimmo-Marcus Semien trade: Sources**\
 `It is not known whether other players would be involved, or how the teams would balance the difference in guaranteed money.`\
 https://nytimes.com/athletic/6831659/2025/11/23/mets-rangers-trade-brandon-nimmo-marcus-semien/
