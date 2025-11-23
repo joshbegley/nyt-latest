@@ -1,3 +1,7 @@
+**U.S. Introduces New Female Crash-Test Dummy Standards**\
+`A female crash-test dummy to replace an outdated model largely based on male proportions would improve safety for women, who face higher fatality and injury risks on the road, officials said.`\
+https://nytimes.com/2025/11/23/us/female-crash-test-dummy.html
+
 **Sabres climb out of last place in Eastern Conference with win over Hurricanes: 5 thoughts**\
 `Ukko-Pekka Luukkonen made his first consecutive starts as the Sabres returned to .500 this season.`\
 https://nytimes.com/athletic/6831740/2025/11/23/sabres-standings-malenstyn-quinn-hurricanes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6831671/2025/11/23/alexandre-texier-contract-1-year
 **Mahomes, Chiefs rediscover late-game magic, stun Colts in OT: Takeaways**\
 `Kansas City erases a 20-9 fourth-quarter deficit on Sunday, boosts playoff hopes with OT win.`\
 https://nytimes.com/athletic/6831203/2025/11/23/colts-chiefs-score-result-takeaways/
-
-**Giants-Lions takeaways: Jahmyr Gibbs powers Detroit past Jameis Winston, New York in OT**\
-`Gibbs totaled 264 yards from scrimmage and three touchdowns in the win.`\
-https://nytimes.com/athletic/6831429/2025/11/23/giants-lions-score-result-takeaways/
 
