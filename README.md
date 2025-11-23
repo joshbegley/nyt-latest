@@ -1,3 +1,11 @@
+**What makes Notre Dame's win over Syracuse meaningful beyond gaudy box score**\
+`Notre Dame's depth on senior day was a callback to last season’s march to the national title game, when the Irish absorbed several injuries.`\
+https://nytimes.com/athletic/6830157/2025/11/23/notre-dame-football-syracuse-depth/
+
+**Meet the Beatles, Again**\
+`A music reporter revisits the documentary that made him fall in love the Beatles, ahead of the film’s 30th-anniversary rerelease.`\
+https://nytimes.com/2025/11/23/briefing/meet-the-beatles-again.html
+
 **Nasser Hussain: How England can save the Ashes**\
 `England need to look at themselves and work out why their batters played the shots they did in that miserable second innings capitulation`\
 https://nytimes.com/athletic/6830393/2025/11/23/nasser-hussain-england-ashes-australia-stokes/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6830209/2025/11/23/rangers-third-straight-road-loss
 **Liverpool players are 'letting the manager and ourselves down', Van Dijk says**\
 `Saturday's home 3-0 defeat to Nottingham Forest was the champions' sixth loss in their last seven Premier League matches.`\
 https://nytimes.com/athletic/6830439/2025/11/23/van-dijk-liverpool-arne-slot-forest-loss/
-
-**Wait, is Michigan going to peak for Ohio State again?**\
-`Dominating Maryland isn't proof that Michigan can beat No. 1 Ohio State, but the Wolverines are improving just in time once again.`\
-https://nytimes.com/athletic/6829931/2025/11/23/michigan-ohio-state-rivalry-football-maryland/
-
-**Juraj Slafkovský's ascension key to Canadiens' ability to ascend, too**\
-`Montreal had a big win against the Maple Leafs, but Slafkovský's role in it might be more important in the big picture. `\
-https://nytimes.com/athletic/6830183/2025/11/23/juraj-slafkovsky-ascension-key-to-canadiens/
 
