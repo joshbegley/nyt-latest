@@ -1,3 +1,7 @@
+**Trump Moves to End Temporary Protected Status for Somalis**\
+`About 700 Somali immigrants are currently allowed to live and work in the U.S. under a program for people fleeing countries in turmoil.`\
+https://nytimes.com/2025/11/23/us/trump-somali-tps-protected-minnesota.html
+
 **Donald Glover Reveals He Had a Stroke Last Year**\
 `The rapper and actor, who performed in Los Angeles on Saturday, said doctors had also discovered a hole in his heart, prompting him to cancel his world tour.`\
 https://nytimes.com/2025/11/23/arts/music/donald-glover-childish-gambino-stroke.html
