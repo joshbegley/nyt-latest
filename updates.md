@@ -1,3 +1,11 @@
+**How to Be Grateful When You’re Struggling**\
+`Gratitude is good for you. Like, really good for you. But it’s also hard to practice.`\
+https://nytimes.com/2025/11/23/briefing/gratitude-thanksgiving.html
+
+**As Trump’s Inquisitors Face Scrutiny, a Divisive Figure Could Play a New Role**\
+`The prosecutor running an inquiry into those who investigated President Trump has established a grand jury under Judge Aileen M. Cannon, whose scuttling of the documents case made her a White House favorite.`\
+https://nytimes.com/2025/11/23/us/politics/trump-florida-cannon-grand-jury.html
+
 **College Football Playoff 2025 projections: How did Week 13 change the most likely bracket?**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/11/23/college-football-playoff-bracket-projections-odds/
