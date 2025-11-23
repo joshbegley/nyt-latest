@@ -1,3 +1,7 @@
+**Las Vegas GP: Submit your questions for our F1 mailbag**\
+`What questions do you have for our F1 experts after the Las Vegas GP?`\
+https://nytimes.com/athletic/6830344/2025/11/23/las-vegas-gp-f1-mailbag-2/
+
 **The three Eddie Howe tweaks that stunned Manchester City**\
 `Howe will be delighted and relieved with Saturday's win over City, which came about thanks to some bright thinking by him and his coaches`\
 https://nytimes.com/athletic/6828342/2025/11/23/newcastle-man-city-eddie-howe-analysis/
