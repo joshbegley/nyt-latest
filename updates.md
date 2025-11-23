@@ -1,3 +1,7 @@
+**Denmark Offers Lessons as Europe Toughens Up on Immigration**\
+`Like other European leaders, British Labour politicians are borrowing from Denmark’s restrictive asylum policy. One of its architects cautions that “balance” is necessary.`\
+https://nytimes.com/2025/11/23/world/europe/denmark-immigration-uk.html
+
 **Mother Accused of Delaying Medical Care for Daughter Who Died on Road Trip**\
 `A diabetic 10-year-old girl slipped into a coma during a trip with her family and was brought to the hospital after she had died, the authorities said.`\
 https://nytimes.com/2025/11/23/us/mother-death-child-diabetes-washington.html
