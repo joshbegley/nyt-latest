@@ -1,3 +1,7 @@
+**Antonio Pierce says Shedeur Sanders was one of Raiders 'top choices' before his firing**\
+`Pierce: "If I would’ve stayed there, there’s no way he goes in the fifth round,"`\
+https://nytimes.com/athletic/6831151/2025/11/23/shedeur-sanders-raiders-browns-antonio-pierce/
+
 **How to watch Spurs vs. Suns: Time, TV, streaming**\
 `Find out how to watch the San Antonio Spurs play the Phoenix Suns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6831320/2025/11/23/spurs-vs-suns-stream-how-to-watch-nov-23/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6830907/2025/11/23/gotham-nwsl-championship-washing
 **Nuggets forward Aaron Gordon out at least a month with hamstring injury**\
 `Gordon, now in his 12th NBA season, is averaging a career-best 18.8 points for the 12-4 Nuggets.`\
 https://nytimes.com/athletic/6831157/2025/11/23/denver-nuggets-aaron-gordon-hamstring-injury/
-
-**The Briefing: Arsenal 4 Tottenham 1 - Eze bags hat-trick in his first north London derby, but did Frank get his tactics wrong?**\
-`The Athletic's writers break down the key moments from Sunday's game at the Emirates Stadium `\
-https://nytimes.com/athletic/6820878/2025/11/23/arsenal-tottenham-premier-league-analysis/
 
