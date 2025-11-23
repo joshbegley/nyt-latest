@@ -1,4 +1,4 @@
-**Antonio Pierce says Shedeur Sanders was one of Raiders 'top choices' before his firing**\
+**Antonio Pierce says Shedeur Sanders was one of Raiders' 'top choices' before his firing**\
 `Pierce: "If I would’ve stayed there, there’s no way he goes in the fifth round,"`\
 https://nytimes.com/athletic/6831151/2025/11/23/shedeur-sanders-raiders-browns-antonio-pierce/
 
