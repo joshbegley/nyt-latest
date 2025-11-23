@@ -19,7 +19,7 @@ https://nytimes.com/2025/11/23/nyregion/metropolitan-diary.html
 https://nytimes.com/2025/11/23/nyregion/doulas-childbirth-medicaid.html
 
 **The three Eddie Howe tweaks that stunned Manchester City**\
-`Howe will be delighted and relieved by Newcastle's win against City, which came about thanks to some bright thinking from the 47-year-old`\
+`Howe will be delighted and relieved with Saturday's win over City, which came about thanks to some bright thinking by him and his coaches`\
 https://nytimes.com/athletic/6828342/2025/11/23/newcastle-man-city-eddie-howe-analysis/
 
 **MLS's Son-Müller playoff showdown meets the hype, as Vancouver wins an instant classic**\

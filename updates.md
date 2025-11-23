@@ -1,3 +1,7 @@
+**The three Eddie Howe tweaks that stunned Manchester City**\
+`Howe will be delighted and relieved with Saturday's win over City, which came about thanks to some bright thinking by him and his coaches`\
+https://nytimes.com/athletic/6828342/2025/11/23/newcastle-man-city-eddie-howe-analysis/
+
 **A Typewriter That Has Traveled the World**\
 `A machine that once belonged to a Times journalist has been present during wars, natural disasters and more.`\
 https://nytimes.com/2025/11/23/insider/olivetti-lettera-typewriter.html
