@@ -1,3 +1,7 @@
+**Texas' Manning accounts for 6 TDs, catches touchdown in Arkansas rout**\
+`After an up-and-down first half of the season, Manning has steadily improved.`\
+https://nytimes.com/athletic/6829712/2025/11/22/arch-manning-stats-texas-longhorns-sec/
+
 **Oregon knocks USC out of Playoff race while closing in on bid: Key takeaways**\
 `No. 7 Oregon topped No. 15 USC 42-27 on Saturday, keeping the Ducks in the Big Ten title race as they take aim at a Playoff bid.`\
 https://nytimes.com/athletic/6829589/2025/11/22/oregon-usc-football-score-recap-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6829481/2025/11/22/blackhawks-prospect-mason-west-s
 **Tyronn Lue lauds James Harden's double-nickel effort: 'He carried us offensively'**\
 `Clippers coach Tyronn Lue realized James Harden was due for a special day after a red-hot first quarter.`\
 https://nytimes.com/athletic/6829537/2025/11/22/james-harden-55-points-clippers-franchise-record-nba/
-
-**A Cancer Diagnosis Brings a New Season of Grief to the Kennedy Family**\
-`Tatiana Schlossberg, the daughter of Caroline Kennedy, revealed a terminal cancer diagnosis in an essay published on the anniversary of her grandfather’s assassination.`\
-https://nytimes.com/2025/11/22/us/tatiana-schlossberg-kennedy-cancer.html
 
