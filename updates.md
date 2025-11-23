@@ -1,3 +1,7 @@
+**Andrew Luck erupts during live TV interview as Stanford scoop and score unfolds**\
+`The Cardinal general manager and former NFL star again showed why he's been tasked with revitalizing the Stanford football program.`\
+https://nytimes.com/athletic/6829852/2025/11/22/andrew-luck-stanford-football-interview-td-celebration/
+
 **Jaden Ivey makes season debut, plays in first regular-season game since January**\
 `After being sidelined for 10 months, excluding a brief stint in preseason play, Ivey makes season debut for red-hot Pistons.`\
 https://nytimes.com/athletic/6829711/2025/11/22/jaden-ivey-injury-report-pistons-2025-26-season-debut-nba/

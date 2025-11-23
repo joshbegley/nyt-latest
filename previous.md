@@ -1,3 +1,7 @@
+**Andrew Luck erupts during live TV interview as Stanford scoop and score unfolds**\
+`The Cardinal general manager and former NFL star again showed why he's been tasked with revitalizing the Stanford football program.`\
+https://nytimes.com/athletic/6829852/2025/11/22/andrew-luck-stanford-football-interview-td-celebration/
+
 **Jaden Ivey makes season debut, plays in first regular-season game since January**\
 `After being sidelined for 10 months, excluding a brief stint in preseason play, Ivey makes season debut for red-hot Pistons.`\
 https://nytimes.com/athletic/6829711/2025/11/22/jaden-ivey-injury-report-pistons-2025-26-season-debut-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6829430/2025/11/22/red-wings-blue-jackets-alex-debr
 **Is Michigan ready for Ohio State? Key takeaways from a comfortable win at Maryland**\
 `Michigan pulled away from Maryland, 45-20, for a relatively easy win to head into Ohio State week at 9-2. Here's what we learned.`\
 https://nytimes.com/athletic/6829699/2025/11/22/michigan-maryland-football-score-recap-osu/
-
-**Notre Dame scores most points since 1932 in 63-point rout of Syracuse**\
-`It’s hard to imagine Notre Dame budging from its CFP positioning after a performance like this.`\
-https://nytimes.com/athletic/6829499/2025/11/22/notre-dame-syracuse-score-result-takeaways/
 
