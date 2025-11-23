@@ -1,3 +1,11 @@
+**The Danish Model for Immigration Crackdown**\
+`For European governments, Denmark’s hard-line immigration policy is a model for how to get a grip on contentious issue and stay in power. Our reporter Jeanna Smialek reports from Copenhagen on the the effects of the policy.`\
+https://nytimes.com/video/world/europe/100000010530619/europe-immigration-crackdown.html
+
+**How Sean Dyche masterminded another momentous win for Nottingham Forest at Anfield**\
+`Forest's second successive win away at Liverpool had their new manager's stamp all over it `\
+https://nytimes.com/athletic/6830372/2025/11/23/how-sean-dyche-masterminded-another-momentous-win-for-nottingham-forest-at-anfield/
+
 **After a rollercoaster season, "villains" Gotham hit their peak to win second NWSL Championship**\
 `As they did in 2023, Gotham reached the podium as the lowest playoff seed, rising from the gutters in an ominous cloud`\
 https://nytimes.com/athletic/6830907/2025/11/23/gotham-nwsl-championship-washington-spirit/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6729986/2025/11/23/mike-norvell-2026-return-florida
 **Trump Calls Ukraine Ungrateful, Again, for U.S. Support in War With Russia**\
 `President Trump renewed his criticism of Ukraine’s government as emissaries from Kyiv and Washington met to discuss a plan to end the war.`\
 https://nytimes.com/2025/11/23/us/politics/trump-ukraine-criticism-russia.html
-
-**Fire Threatens Iran’s Ancient Forest, a World Heritage Site**\
-`Iran has been battling its worst drought in more than six decades. A blaze in the north has now eaten through parts of the old treasure.`\
-https://nytimes.com/2025/11/23/world/europe/iran-fire-hyrcanian-forests.html
-
-**Tigers, others looking at free agent Ryan Helsley as a starter: Sources**\
-`MLB's leader in saves in 2024, Helsley hasn't started since 2019, when he was in Triple A with the St. Louis Cardinals. `\
-https://nytimes.com/athletic/6830980/2025/11/23/ryan-helsley-starter-detroit-tigers/
 
