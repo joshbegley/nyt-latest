@@ -1,3 +1,11 @@
+**Jaden Ivey available to make season debut, in first regular-season game since January**\
+`After being sidelined for 10 months, Jaden Ivey makes season debut for red-hot Pistons.`\
+https://nytimes.com/athletic/6829711/2025/11/22/jaden-ivey-injury-report-pistons-2025-26-season-debut-nba/
+
+**Back Home, Voters Stand by Marjorie Taylor Greene After She Stood Up to Trump**\
+`Ms. Greene’s resignation blindsided her conservative Georgia district, which had stuck by her through ups and downs, including her split with the president.`\
+https://nytimes.com/2025/11/22/us/georgia-marjorie-taylor-greene-voters.html
+
 **College Football Playoff 2025 projections: Oregon, Oklahoma closing in on bids in Week 13**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/11/22/college-football-playoff-bracket-projections-odds/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6829699/2025/11/22/michigan-maryland-football-score
 **Notre Dame scores most points since 1932 in 63-point rout of Syracuse**\
 `It’s hard to imagine Notre Dame budging from its CFP positioning after a performance like this.`\
 https://nytimes.com/athletic/6829499/2025/11/22/notre-dame-syracuse-score-result-takeaways/
-
-**Texas Tech considering not signing House enforcement agreement**\
-`It's unclear what repercussions there are if schools do not agree to the enforcement terms. `\
-https://nytimes.com/athletic/6829627/2025/11/22/house-settlement-enforcement-signing-texas-tech/
-
-**Blackhawks prospect Mason West gets his fairy tale ending with state football championship**\
-`Chicago's 2025 first-round pick finished his high school career as a football champion, leading Edina to the Minnesota state championship.`\
-https://nytimes.com/athletic/6829481/2025/11/22/blackhawks-prospect-mason-west-state-football-championship/
 

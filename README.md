@@ -1,5 +1,5 @@
-**Jaden Ivey available to make season debut, in first regular-season game since January**\
-`After being sidelined for 10 months, Jaden Ivey makes season debut for red-hot Pistons.`\
+**Jaden Ivey available to make season debut, play in first regular-season game since January**\
+`After being sidelined for 10 months, excluding a brief stint in preseason play, Ivey makes season debut for red-hot Pistons.`\
 https://nytimes.com/athletic/6829711/2025/11/22/jaden-ivey-injury-report-pistons-2025-26-season-debut-nba/
 
 **Back Home, Voters Stand by Marjorie Taylor Greene After She Stood Up to Trump**\
