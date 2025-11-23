@@ -1,3 +1,7 @@
+**Lowetide: Why Oilers' 5-on-5 game has struggled so much this season**\
+`Oilers fans can point to any number of issues. What, exactly, is going on? And how does this get better?`\
+https://nytimes.com/athletic/6829111/2025/11/23/edmonton-oilers-stats-2025-goal-share/
+
 **How to watch Clippers vs. Cavaliers: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6830996/2025/11/23/clippers-vs-cavaliers-stream-how-to-watch-nov-23/

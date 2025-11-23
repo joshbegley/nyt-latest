@@ -1,3 +1,7 @@
+**Lowetide: Why Oilers' 5-on-5 game has struggled so much this season**\
+`Oilers fans can point to any number of issues. What, exactly, is going on? And how does this get better?`\
+https://nytimes.com/athletic/6829111/2025/11/23/edmonton-oilers-stats-2025-goal-share/
+
 **How to watch Clippers vs. Cavaliers: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6830996/2025/11/23/clippers-vs-cavaliers-stream-how-to-watch-nov-23/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6830826/2025/11/23/sec-football-rankings-week-13-ge
 **How to watch UT Rio Grande Valley vs. TCU women's basketball: Time, TV, streaming**\
 `Find out how to watch the UT Rio Grande Valley Vaqueros play the TCU Horned Frogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6830950/2025/11/23/ut-rio-grande-valley-vs-tcu-stream-how-to-watch-nov-23/
-
-**How to watch UNC Greensboro vs. North Carolina women's basketball: Time, TV, streaming**\
-`Find out how to watch the UNC Greensboro Spartans play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6830951/2025/11/23/unc-greensboro-vs-north-carolina-stream-how-to-watch-nov-23/
 
