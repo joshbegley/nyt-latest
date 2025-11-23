@@ -1,3 +1,7 @@
+**Mike Norvell will return to Florida State for 2026 season: Sources**\
+`Florida State is two days removed from a 21-11 loss at NC State dropped the Seminoles to 5-6 this season. `\
+https://nytimes.com/athletic/6729986/2025/11/23/mike-norvell-2026-return-florida-state-coach/
+
 **Trump Calls Ukraine Ungrateful, Again, for U.S. Support in War With Russia**\
 `President Trump renewed his criticism of Ukraine’s government as emissaries from Kyiv and Washington met to discuss a plan to end the war.`\
 https://nytimes.com/2025/11/23/us/politics/trump-ukraine-criticism-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6830990/2025/11/23/magic-vs-celtics-stream-how-to-w
 **How to watch Hornets vs. Hawks: Time, TV, streaming**\
 `Find out how to watch the Charlotte Hornets play the Atlanta Hawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6830988/2025/11/23/hornets-vs-hawks-stream-how-to-watch-nov-23/
-
-**How to watch Avalanche vs. Blackhawks: Time, TV, streaming**\
-`Find out how to watch the Colorado Avalanche play the Chicago Blackhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6830986/2025/11/23/avalanche-vs-blackhawks-stream-how-to-watch-nov-23/
 

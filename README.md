@@ -1,3 +1,15 @@
+**How a Sabotaged Ankle Monitor Ended Bolsonaro’s House Arrest**\
+`Shortly before he was expected to start serving a 27-year sentence, Brazil’s former president took a soldering iron to his tracking device.`\
+https://nytimes.com/2025/11/23/world/americas/jair-bolsonaro-ankle-monitor-brazil.html
+
+**Israel Says It Assassinated a Top Hezbollah Commander Near Beirut**\
+`Escalating its attacks on the armed group in Lebanon, Israel said it killed Hezbollah’s chief of staff in an airstrike on an apartment building.`\
+https://nytimes.com/2025/11/23/world/middleeast/israel-hezbollah-dahiya-airstrike.html
+
+**North Dakota State, Montana State earn top seeds as FCS bracket revealed**\
+`Six Missouri Valley Conference representatives earned bids, including all four teams from the Dakotas.`\
+https://nytimes.com/athletic/6830912/2025/11/23/fcs-playoffs-bracket-seeds-schedule/
+
 **Mike Norvell will return to Florida State for 2026 season: Sources**\
 `Florida State is two days removed from a 21-11 loss at NC State dropped the Seminoles to 5-6 this season. `\
 https://nytimes.com/athletic/6729986/2025/11/23/mike-norvell-2026-return-florida-state-coach/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6830996/2025/11/23/clippers-vs-cavaliers-stream-how
 **How to watch Trail Blazers vs. Thunder: Time, TV, streaming**\
 `Find out how to watch the Portland Trail Blazers play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6830995/2025/11/23/trail-blazers-vs-thunder-stream-how-to-watch-nov-23/
-
-**How to watch Nets vs. Raptors: Time, TV, streaming**\
-`Find out how to watch the Brooklyn Nets play the Toronto Raptors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6830992/2025/11/23/nets-vs-raptors-stream-how-to-watch-nov-23/
-
-**How to watch Magic vs. Celtics: Time, TV, streaming**\
-`Find out how to watch the Orlando Magic play the Boston Celtics, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6830990/2025/11/23/magic-vs-celtics-stream-how-to-watch-nov-23/
-
-**How to watch Hornets vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the Charlotte Hornets play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6830988/2025/11/23/hornets-vs-hawks-stream-how-to-watch-nov-23/
 
