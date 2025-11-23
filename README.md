@@ -1,3 +1,7 @@
+**The three Eddie Howe tweaks that stunned Manchester City**\
+`Howe will be delighted and relieved by Newcastle's win against City, which came about thanks to some bright thinking from the 47-year-old`\
+https://nytimes.com/athletic/6828342/2025/11/23/newcastle-man-city-eddie-howe-analysis/
+
 **MLS's Son-Müller playoff showdown meets the hype, as Vancouver wins an instant classic**\
 `If Son Heung-min's stoppage time free kick wasn't a dagger, dropping to nine men should've been. It didn't matter for the resolute Whitecaps`\
 https://nytimes.com/athletic/6830201/2025/11/23/vancouver-whitecaps-lafc-mls-playoffs-son-muller-berhalter/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6829774/2025/11/23/las-vegas-gp-briefing-max-versta
 **World Cup 2026, 200 days to go: What still needs to be sorted?**\
 `Visas, travel bans, transport, security and politics — there is a lot to consider with time running out`\
 https://nytimes.com/athletic/6827421/2025/11/23/world-cup-2026-200-days-to-go/
-
-**Arsenal vs Tottenham: Worst injury list? Most dangerous player? Predictions?**\
-`League leaders Arsenal host rivals Spurs at the Emirates on Sunday — our writers take a look at the talking points ahead of the game`\
-https://nytimes.com/athletic/6825775/2025/11/23/arsenal-tottenham-preview-north-london-derby/
 
