@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6560541/2025/11/22/college-football-playoff-bracket
 https://nytimes.com/athletic/6829709/2025/11/22/bill-belichick-unc-football-bowl-eligibility-post-season/
 
 **Red Wings continue showing ability to respond in comeback win: 5 observations**\
-`The Red Wings came back from a two-goal deficit in the third period to win 4-3 behind clutch showings from Cam Talbot and Alex DeBrincat. `\
+`The Red Wings rallied from a two-goal deficit in the third period to win 4-3 behind clutch showings from Cam Talbot and Alex DeBrincat.`\
 https://nytimes.com/athletic/6829430/2025/11/22/red-wings-blue-jackets-alex-debrincat/
 
 **Is Michigan ready for Ohio State? Key takeaways from a comfortable win at Maryland**\
