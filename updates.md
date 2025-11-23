@@ -1,3 +1,7 @@
+**Tottenham's Vicario, Frank apologise for lack of 'fight' in Arsenal loss**\
+`Frank added that he was "expecting much more" from his side, who are now ninth in the Premier League.`\
+https://nytimes.com/athletic/6831401/2025/11/23/vicario-frank-tottenham-arsenal/
+
 **Denmark Offers Lessons as Europe Toughens Up on Immigration**\
 `Like other European leaders, British Labour politicians are borrowing from Denmark’s restrictive asylum policy. One of its architects cautions that “balance” is necessary.`\
 https://nytimes.com/2025/11/23/world/europe/denmark-immigration-uk.html

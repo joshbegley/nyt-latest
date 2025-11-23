@@ -1,3 +1,7 @@
+**Tottenham's Vicario, Frank apologise for lack of 'fight' in Arsenal loss**\
+`Frank added that he was "expecting much more" from his side, who are now ninth in the Premier League.`\
+https://nytimes.com/athletic/6831401/2025/11/23/vicario-frank-tottenham-arsenal/
+
 **Denmark Offers Lessons as Europe Toughens Up on Immigration**\
 `Like other European leaders, British Labour politicians are borrowing from Denmark’s restrictive asylum policy. One of its architects cautions that “balance” is necessary.`\
 https://nytimes.com/2025/11/23/world/europe/denmark-immigration-uk.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6831142/2025/11/23/ap-top-25-michigan-ohio-state-ra
 **The Danish Model for Immigration Crackdown**\
 `For European governments, Denmark’s hard-line immigration policy is a model for how to get a grip on contentious issue and stay in power. Our reporter Jeanna Smialek reports from Copenhagen on the the effects of the policy.`\
 https://nytimes.com/video/world/europe/100000010530619/europe-immigration-crackdown.html
-
-**How Sean Dyche masterminded another momentous win for Nottingham Forest at Anfield**\
-`Forest's second successive win away at Liverpool had their new manager's stamp all over it `\
-https://nytimes.com/athletic/6830372/2025/11/23/how-sean-dyche-masterminded-another-momentous-win-for-nottingham-forest-at-anfield/
 
