@@ -1,3 +1,11 @@
+**Liverpool's Slot pulls out of receiving award after Forest loss**\
+`The defeat by Forest was Liverpool's sixth Premier League loss in their last seven games.`\
+https://nytimes.com/athletic/6831494/2025/11/23/arne-slot-liverpool-fwa-award/
+
+**Jets-Ravens takeaways: Henry powers Baltimore to win in defensive contest**\
+`A costly fourth-quarter fumble ended the Jets' comeback attempt in the 23-10 Baltimore win.`\
+https://nytimes.com/athletic/6830876/2025/11/23/jets-ravens-score-result-takeaways/
+
 **Mamdani’s Meeting With Trump Scrambled the MAGA-Sphere**\
 `Prominent conservative influencers had different interpretations as they processed the meeting on podcasts and in social media posts.`\
 https://nytimes.com/2025/11/23/style/mamdani-trump-reactions-fuentes-bannon.html

@@ -1,3 +1,11 @@
+**Liverpool's Slot pulls out of receiving award after Forest loss**\
+`The defeat by Forest was Liverpool's sixth Premier League loss in their last seven games.`\
+https://nytimes.com/athletic/6831494/2025/11/23/arne-slot-liverpool-fwa-award/
+
+**Jets-Ravens takeaways: Henry powers Baltimore to win in defensive contest**\
+`A costly fourth-quarter fumble ended the Jets' comeback attempt in the 23-10 Baltimore win.`\
+https://nytimes.com/athletic/6830876/2025/11/23/jets-ravens-score-result-takeaways/
+
 **Mamdani’s Meeting With Trump Scrambled the MAGA-Sphere**\
 `Prominent conservative influencers had different interpretations as they processed the meeting on podcasts and in social media posts.`\
 https://nytimes.com/2025/11/23/style/mamdani-trump-reactions-fuentes-bannon.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6831520/2025/11/23/tee-higgins-bengals-injury-updat
 **Stars' Mikko Rantanen suspended 1 game after latest penalty**\
 `Rantanen was ejected from the Stars’ loss to the Flames on Saturday after getting a five-minute major penalty for boarding Matt Coronato.`\
 https://nytimes.com/athletic/6831324/2025/11/23/stars-mikko-rantanen-suspension-penalty/
-
-**Denmark’s Migration Model**\
-`The country is getting attention for its tough asylum policies. Can they serve as a bulwark against the far right?`\
-https://nytimes.com/2025/11/23/world/denmark-migration-britain-ukraine-talks-us.html
-
-**‘Gruesome Playground Injuries’ Review: Does It Hurt?**\
-`Kara Young and Nicholas Braun star in the Off Broadway revival of Rajiv Joseph’s two-hander about best friends on parallel paths to self-destruction.`\
-https://nytimes.com/2025/11/23/theater/gruesome-playground-injuries-review.html
 
