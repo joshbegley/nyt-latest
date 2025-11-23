@@ -1,3 +1,7 @@
+**Until Saturday: Texas' nightmare Playoff**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6830754/2025/11/23/college-football-playoff-projections-until-saturday/
+
 **Madrid announce plans for historic ownership change**\
 `The Spanish side has been 'owned' by its socios (club members) since 1902 but could face a referendum in order to restructure.`\
 https://nytimes.com/athletic/6830589/2025/11/23/real-madrid-perez-ownership-external-investment/

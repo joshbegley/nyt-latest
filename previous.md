@@ -1,3 +1,7 @@
+**Until Saturday: Texas' nightmare Playoff**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6830754/2025/11/23/college-football-playoff-projections-until-saturday/
+
 **Madrid announce plans for historic ownership change**\
 `The Spanish side has been 'owned' by its socios (club members) since 1902 but could face a referendum in order to restructure.`\
 https://nytimes.com/athletic/6830589/2025/11/23/real-madrid-perez-ownership-external-investment/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6830618/2025/11/23/byu-cincinnati-analysis-takeaway
 **How to watch Wild vs. Jets: Time, TV, streaming**\
 `Find out how to watch the Minnesota Wild play the Winnipeg Jets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6830690/2025/11/23/wild-vs-jets-stream-how-to-watch-nov-23/
-
-**How to watch George Mason vs. Maryland women's basketball: Time, TV, streaming**\
-`Find out how to watch the George Mason Patriots play the Maryland Terrapins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6830677/2025/11/23/george-mason-vs-maryland-stream-how-to-watch-nov-23/
 

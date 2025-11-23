@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: How did Week 13 change the most likely bracket?**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/11/23/college-football-playoff-bracket-projections-odds/
+
 **Until Saturday: Texas' nightmare Playoff**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6830754/2025/11/23/college-football-playoff-projections-until-saturday/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/23/us/politics/rubio-us-author-ukraine-peace-plan.ht
 **BYU stacks up to the SEC in front of it. Can it break through the Playoff logjam?**\
 `BYU controls its destiny in the College Football Playoff path. `\
 https://nytimes.com/athletic/6830618/2025/11/23/byu-cincinnati-analysis-takeaways-college-football-playoff/
-
-**How to watch Wild vs. Jets: Time, TV, streaming**\
-`Find out how to watch the Minnesota Wild play the Winnipeg Jets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6830690/2025/11/23/wild-vs-jets-stream-how-to-watch-nov-23/
 
