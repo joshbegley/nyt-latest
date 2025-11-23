@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6830603/2025/11/23/usc-oregon-lincoln-riley/
 https://nytimes.com/2025/11/23/us/politics/rubio-us-author-ukraine-peace-plan.html
 
 **BYU stacks up to the SEC in front of it. Can it break through the Playoff logjam?**\
-`BYU controls its destiny in the College Football Playoff path.`\
+`BYU controls its destiny in the College Football Playoff path. `\
 https://nytimes.com/athletic/6830618/2025/11/23/byu-cincinnati-analysis-takeaways-college-football-playoff/
 
 **How to watch Wild vs. Jets: Time, TV, streaming**\
