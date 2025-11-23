@@ -1,3 +1,23 @@
+**A Typewriter That Has Traveled the World**\
+`A machine that once belonged to a Times journalist has been present during wars, natural disasters and more.`\
+https://nytimes.com/2025/11/23/insider/olivetti-lettera-typewriter.html
+
+**A Multitude of Fashion in Hong Kong**\
+`Residents and visitors from all over give the city a diverse visual flavor.`\
+https://nytimes.com/2025/11/23/style/hong-kong-fashion-diversity-culture.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/23/crosswords/spelling-bee-forum.html
+
+**‘We Saw a Man Illuminated by a Disco Ball’**\
+`A night out in Queens, changing a tire in the Bronx and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/11/23/nyregion/metropolitan-diary.html
+
+**Doulas Provide Crucial Care to Mothers. Medicaid Cuts Could Change That.**\
+`Funding for doulas may be safe in New York, for now. But elsewhere, health experts are concerned that President Trump’s domestic policy law could jeopardize access to maternal care.`\
+https://nytimes.com/2025/11/23/nyregion/doulas-childbirth-medicaid.html
+
 **The three Eddie Howe tweaks that stunned Manchester City**\
 `Howe will be delighted and relieved by Newcastle's win against City, which came about thanks to some bright thinking from the 47-year-old`\
 https://nytimes.com/athletic/6828342/2025/11/23/newcastle-man-city-eddie-howe-analysis/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6828613/2025/11/23/ashes-tnt-sport-tv-live/
 **The New York Times in Print for Sunday, Nov. 23, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/23/todays-new-york-times
-
-**Yes, Listening to a Book Counts as Reading**\
-`We need to let go of our legacy print snobbery.`\
-https://nytimes.com/2025/11/23/opinion/audiobooks-books-print-reading.html
-
-**Stars' Mikko Rantanen ejected for second time in 3 games for boarding**\
-`Rantanen was handed a five-minute major and a game misconduct for boarding Flames forward Matt Coronato on Saturday.`\
-https://nytimes.com/athletic/6830180/2025/11/23/mikko-rantanen-stars-matt-coronato-ejected-boarding/
-
-**Chicago MMA fighter dies after Illinois boxing competition**\
-`Isaac T. Johnson, 31, collapsed toward the end of the third round of his fight and was declared dead hours later.`\
-https://nytimes.com/athletic/6829987/2025/11/23/chicago-mma-fighter-isaac-johnson-dies-cicero-stadium/
-
-**Las Vegas GP briefing: Max Verstappen's win keeps the heat on Lando Norris**\
-`Lando Norris inched closer to his first F1 title in Las Vegas, but he's not out of the woods yet`\
-https://nytimes.com/athletic/6829774/2025/11/23/las-vegas-gp-briefing-max-verstappen-lando-norris/
-
-**World Cup 2026, 200 days to go: What still needs to be sorted?**\
-`Visas, travel bans, transport, security and politics — there is a lot to consider with time running out`\
-https://nytimes.com/athletic/6827421/2025/11/23/world-cup-2026-200-days-to-go/
 
