@@ -1,6 +1,6 @@
 **Jeeno Thitikul completes dominant LPGA season with tour championship win**\
 `Thitikul will take home a $4 million prize for her win on Sunday.`\
-https://nytimes.com/athletic/6831620/2025/11/23/jeeno-thitikul-completes-dominant-lpga-season-with-tour-championship-win/
+https://nytimes.com/athletic/6831620/2025/11/23/jeeno-thitikul-lpga-cme-group-tour-championship/
 
 **Baker: Florida State's expectations clearly aren't what they used to be**\
 `Florida State announced Sunday that Mike Norvell will return in 2026 after another baffling season in which the Seminoles stumbled to 5-6.`\

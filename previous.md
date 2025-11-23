@@ -1,3 +1,11 @@
+**Jeeno Thitikul completes dominant LPGA season with tour championship win**\
+`Thitikul will take home a $4 million prize for her win on Sunday.`\
+https://nytimes.com/athletic/6831620/2025/11/23/jeeno-thitikul-completes-dominant-lpga-season-with-tour-championship-win/
+
+**Baker: Florida State's expectations clearly aren't what they used to be**\
+`Florida State announced Sunday that Mike Norvell will return in 2026 after another baffling season in which the Seminoles stumbled to 5-6.`\
+https://nytimes.com/athletic/6831188/2025/11/23/mike-norvell-florida-state-decision-contract/
+
 **Patriots-Bengals takeaways: New England wins 9th straight, but injuries mount**\
 `Pats win despite Drake Maye's struggles, injuries to Will Campbell and Jared Wilson.`\
 https://nytimes.com/athletic/6831197/2025/11/23/patriots-bengals-score-result-takeaways/
@@ -15,7 +23,7 @@ https://nytimes.com/athletic/6830876/2025/11/23/jets-ravens-score-result-takeawa
 https://nytimes.com/2025/11/23/style/mamdani-trump-reactions-fuentes-bannon.html
 
 **Trump Moves to End Temporary Protected Status for Somalis**\
-`About 700 Somali immigrants are currently allowed to live and work in the U.S. under a program for people fleeing countries in turmoil.`\
+`About 700 Somali immigrants are currently allowed to live and work in the United States under a program for people fleeing countries in turmoil.`\
 https://nytimes.com/2025/11/23/us/trump-somali-tps-protected-minnesota.html
 
 **Donald Glover Reveals He Had a Stroke Last Year**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6831448/2025/11/23/kevin-durant-rockets-miss-game-p
 **Can the World Move On Without the U.S.? G20 Leaders Gave It a Shot.**\
 `With the United States boycotting the summit, other nations sought to strike new deals, and some took a tougher tone with President Trump.`\
 https://nytimes.com/2025/11/23/world/africa/g20-united-states.html
-
-**Vikings-Packers takeaways: McCarthy stymied again as Green Bay defense shines in win**\
-`Micah Parsons' transformation of the Packers' defense was on full display all four quarters.`\
-https://nytimes.com/athletic/6831247/2025/11/23/vikings-packers-score-result-takeaways/
-
-**Bengals WR Tee Higgins carted off with concussion in fourth quarter vs. Patriots**\
-`The Bengals quickly ruled Higgins out with a concussion.`\
-https://nytimes.com/athletic/6831520/2025/11/23/tee-higgins-bengals-injury-update-patriots/
 

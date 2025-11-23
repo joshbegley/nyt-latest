@@ -1,3 +1,15 @@
+**Jeeno Thitikul completes dominant LPGA season with tour championship win**\
+`Thitikul will take home a $4 million prize for her win on Sunday.`\
+https://nytimes.com/athletic/6831620/2025/11/23/jeeno-thitikul-completes-dominant-lpga-season-with-tour-championship-win/
+
+**Baker: Florida State's expectations clearly aren't what they used to be**\
+`Florida State announced Sunday that Mike Norvell will return in 2026 after another baffling season in which the Seminoles stumbled to 5-6.`\
+https://nytimes.com/athletic/6831188/2025/11/23/mike-norvell-florida-state-decision-contract/
+
+**Trump Moves to End Temporary Protected Status for Somalis**\
+`About 700 Somali immigrants are currently allowed to live and work in the United States under a program for people fleeing countries in turmoil.`\
+https://nytimes.com/2025/11/23/us/trump-somali-tps-protected-minnesota.html
+
 **Patriots-Bengals takeaways: New England wins 9th straight, but injuries mount**\
 `Pats win despite Drake Maye's struggles, injuries to Will Campbell and Jared Wilson.`\
 https://nytimes.com/athletic/6831197/2025/11/23/patriots-bengals-score-result-takeaways/
