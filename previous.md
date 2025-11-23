@@ -1,3 +1,11 @@
+**Tears, fears and hope as Barcelona return to the Camp Nou after 909 days away**\
+`Spain's champions were finally back at their iconic home ground on Saturday after two-and-a-half years of refurbishments. How did it feel?`\
+https://nytimes.com/athletic/6830391/2025/11/23/barcelona-camp-nou-return-la-liga/
+
+**McLaren's double disqualification makes it game on for the F1 championship**\
+`Lando Norris leads the drivers' championship, but his position is far more precarious after disqualification in Las Vegas`\
+https://nytimes.com/athletic/6830214/2025/11/23/mclaren-disqualification-vegas-f1-lando-norris-oscar-piastri/
+
 **Shedeur Sanders' first start, desperation in Kansas City lead NFL Week 12 storylines**\
 `Sanders will try to provide a spark for an inconsistent Browns offense, while the stakes are high when the Chiefs host the Colts.`\
 https://nytimes.com/athletic/6823950/2025/11/23/nfl-week-12-storylines-shedeur-sanders-browns-chiefs-colts/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/23/world/asia/titanic-watch-auction.html
 **Pabst, Pamphlets and a Petition: A Harvard-Yale Tailgate in the Trump Era**\
 `Students and alumni set aside rivalries at the 141st Harvard-Yale football game on Saturday to summon support against attacks on higher education under the Trump administration.`\
 https://nytimes.com/2025/11/23/us/politics/yale-harvard-football-trump.html
-
-**Fact-Checking Trump’s Latest Claims on Affordability**\
-`The president has made misleading statements about the cost of a Thanksgiving meal, breakfast and gasoline and about prices in general.`\
-https://nytimes.com/2025/11/23/us/politics/fact-check-trump-affordability.html
-
-**Haitians Rejoice Over Their First World Cup Berth in 50 Years**\
-`The national team’s success in landing a World Cup slot gave Haitians around the world a momentary reprieve from their country’s deep crises.`\
-https://nytimes.com/2025/11/23/world/americas/haiti-world-cup.html
 

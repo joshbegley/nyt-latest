@@ -1,3 +1,11 @@
+**Tears, fears and hope as Barcelona return to the Camp Nou after 909 days away**\
+`Spain's champions were finally back at their iconic home ground on Saturday after two-and-a-half years of refurbishments. How did it feel?`\
+https://nytimes.com/athletic/6830391/2025/11/23/barcelona-camp-nou-return-la-liga/
+
+**McLaren's double disqualification makes it game on for the F1 championship**\
+`Lando Norris leads the drivers' championship, but his position is far more precarious after disqualification in Las Vegas`\
+https://nytimes.com/athletic/6830214/2025/11/23/mclaren-disqualification-vegas-f1-lando-norris-oscar-piastri/
+
 **Shedeur Sanders' first start, desperation in Kansas City lead NFL Week 12 storylines**\
 `Sanders will try to provide a spark for an inconsistent Browns offense, while the stakes are high when the Chiefs host the Colts.`\
 https://nytimes.com/athletic/6823950/2025/11/23/nfl-week-12-storylines-shedeur-sanders-browns-chiefs-colts/

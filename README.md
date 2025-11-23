@@ -1,3 +1,7 @@
+**College Football Playoff Week 13 lessons: Dan Lanning shades SEC, Ole Miss in minus Kiffin?**\
+`None of the SEC's buy games were any less competitive than Notre Dame-Syracuse. Ohio State routed Rutgers. Cupcakes come in many flavors.`\
+https://nytimes.com/athletic/6830266/2025/11/23/college-football-playoff-race-updates-week-13/
+
 **Tears, fears and hope as Barcelona return to the Camp Nou after 909 days away**\
 `Spain's champions were finally back at their iconic home ground on Saturday after two-and-a-half years of refurbishments. How did it feel?`\
 https://nytimes.com/athletic/6830391/2025/11/23/barcelona-camp-nou-return-la-liga/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6830476/2025/11/23/syracuse-vs-michigan-stream-how-
 **Titanic Passenger’s Pocket Watch Sells for $2.3 Million**\
 `The watch belonged to Isidor Straus, a co-owner of Macy’s who was traveling first class on the Titanic with his wife when it sank in April 1912.`\
 https://nytimes.com/2025/11/23/world/asia/titanic-watch-auction.html
-
-**Pabst, Pamphlets and a Petition: A Harvard-Yale Tailgate in the Trump Era**\
-`Students and alumni set aside rivalries at the 141st Harvard-Yale football game on Saturday to summon support against attacks on higher education under the Trump administration.`\
-https://nytimes.com/2025/11/23/us/politics/yale-harvard-football-trump.html
 
