@@ -1,3 +1,7 @@
+**Madrid announce plans for historic ownership change**\
+`The Spanish side has been 'owned' by its socios (club members) since 1902 but could face a referendum in order to restructure.`\
+https://nytimes.com/athletic/6830589/2025/11/23/real-madrid-perez-ownership-external-investment/
+
 **Mikaela Shiffrin dominant again in slalom for record-extending 103rd World Cup win**\
 `Shiffrin made it a two-for-two start to the World Cup slalom, looking to be in top form as the Olympics approach.`\
 https://nytimes.com/athletic/6830596/2025/11/23/mikaela-shiffrin-world-cup-slalom-win-103-gurgl/
