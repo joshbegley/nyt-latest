@@ -1,3 +1,7 @@
+**It’s Not Just Any Turkey. It’s a Melissa Clark Turkey.**\
+`In our Thanksgiving episode of Cooking 101, Melissa shares the one recipe you need for a burnished, juicy turkey.`\
+https://nytimes.com/2025/11/23/dining/its-not-just-any-turkey-its-a-melissa-clark-turkey.html
+
 **Steelers’ Aaron Rodgers inactive vs. Bears due to fractured left wrist**\
 `The QB suffered the injury late in the first half of last week’s victory over the Bengals.`\
 https://nytimes.com/athletic/6830756/2025/11/23/aaron-rodgers-wrist-injury-bears-game/
