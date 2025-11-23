@@ -1,3 +1,7 @@
+**In His Tightest Corner Yet, Will Zelensky Rise to the Occasion?**\
+`Over nearly four years of wartime leadership, analysts say the Ukrainian leader has repeatedly played weak hands wisely. A U.S. peace plan may be his biggest test.`\
+https://nytimes.com/2025/11/23/world/europe/ukraine-zelensky-war-russia.html
+
 **No mincing of words from Nikola Vučević after Bulls' narrow win: 'We were very soft'**\
 `Several Bulls players celebrated a victory Saturday, but Nikola Vučević professed his disenchantment after playing a one-win Wizards team.`\
 https://nytimes.com/athletic/6830486/2025/11/23/nikola-vucevic-bulls-wizards-soft-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/23/nyregion/mamdani-trump-national-guard-meet-the-pr
 **Predicting the CFP bracket: What conference titles mean for Selection Sunday**\
 `Conference title matchups are coming up and will have implications across the 12-team College Football Playoff field. `\
 https://nytimes.com/athletic/6830234/2025/11/23/college-football-playoff-bracket-prediction-ohio-state/
-
-**In an Italian Masterpiece, Art and Faith Meet**\
-`Readers respond to a guest essay about the religious feelings inspired by Fra Angelico’s painting. Also: Down times at the movies.`\
-https://nytimes.com/2025/11/23/opinion/art-faith-painting.html
 
