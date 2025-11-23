@@ -1,3 +1,11 @@
+**Lando Norris and Oscar Piastri disqualified from Las Vegas GP, rattling the F1 championship**\
+`The penalty for excessive plank wear erases crucial points from Norris' championship lead with two grands prix remaining`\
+https://nytimes.com/athletic/6830225/2025/11/23/lando-norris-oscar-piastri-disqualification-las-vegas-f1/
+
+**Ukraine and U.S. Set for Talks on Trump’s Plan to End War With Russia**\
+`Meetings in Geneva will include European officials, as the Trump administration’s pushes Kyiv to accept a 28-point peace plan to end the war with Russia.`\
+https://nytimes.com/2025/11/23/world/europe/ukraine-switzerland-russia-peace-talks.html
+
 **Las Vegas GP: Submit your questions for our F1 mailbag**\
 `What questions do you have for our F1 experts after the Las Vegas GP?`\
 https://nytimes.com/athletic/6830344/2025/11/23/las-vegas-gp-f1-mailbag-2/

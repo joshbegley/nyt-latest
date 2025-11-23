@@ -1,3 +1,11 @@
+**Lando Norris and Oscar Piastri disqualified from Las Vegas GP, rattling the F1 championship**\
+`The penalty for excessive plank wear erases crucial points from Norris' championship lead with two grands prix remaining`\
+https://nytimes.com/athletic/6830225/2025/11/23/lando-norris-oscar-piastri-disqualification-las-vegas-f1/
+
+**Ukraine and U.S. Set for Talks on Trump’s Plan to End War With Russia**\
+`Meetings in Geneva will include European officials, as the Trump administration’s pushes Kyiv to accept a 28-point peace plan to end the war with Russia.`\
+https://nytimes.com/2025/11/23/world/europe/ukraine-switzerland-russia-peace-talks.html
+
 **Las Vegas GP: Submit your questions for our F1 mailbag**\
 `What questions do you have for our F1 experts after the Las Vegas GP?`\
 https://nytimes.com/athletic/6830344/2025/11/23/las-vegas-gp-f1-mailbag-2/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6828342/2025/11/23/newcastle-man-city-eddie-howe-an
 **MLS's Son-Müller playoff showdown meets the hype, as Vancouver wins an instant classic**\
 `If Son Heung-min's stoppage time free kick wasn't a dagger, dropping to nine men should've been. It didn't matter for the resolute Whitecaps`\
 https://nytimes.com/athletic/6830201/2025/11/23/vancouver-whitecaps-lafc-mls-playoffs-son-muller-berhalter/
-
-**Klay Thompson blasts Ja Morant for 'running his mouth' while in street clothes**\
-`The two exchanged words and had to be separated after the Dallas Mavericks' 102-96 loss to the Memphis Grizzlies.`\
-https://nytimes.com/athletic/6830099/2025/11/23/klay-thompson-blasts-ja-morant-mavericks-grizzlies/
-
-**TNT's Ashes coverage is like England's batting — underprepared and technically suspect**\
-`Production mishaps and non-specialist pundits are undermining the broadcaster's TV coverage`\
-https://nytimes.com/athletic/6828613/2025/11/23/ashes-tnt-sport-tv-live/
 
