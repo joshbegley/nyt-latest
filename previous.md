@@ -1,40 +1,40 @@
-**Inside Barcelona's injury crisis: Why Yamal and others complained, and the tensions it has caused**\
-`Barca's recent injury problems have led to division behind the scenes. The Athletic reports the full story`\
-https://nytimes.com/athletic/6830541/2025/11/24/barcelona-injury-crisis-tensions/
+**It is still not enough just to play women's football. You need to sell yourself within it**\
+`Is the culture surrounding the commercial and branding opportunities within women’s football more fraught than we care to admit?`\
+https://nytimes.com/athletic/6830545/2025/11/24/womens-football-branding-david-beckham-agent/
 
-**Eberechi Eze was waiting for a magic moment at Arsenal – against Spurs, he got three**\
-`On a weekend in which Manchester City lost — and Liverpool's vulnerabilities were once again made plain — Arsenal capitalised in style`\
-https://nytimes.com/athletic/6831339/2025/11/24/eberechi-eze-hat-trick-arsenal-spurs/
+**After 50 games as Brighton boss, is Hurzeler better than Potter and De Zerbi?**\
+`The 32-year-old German coach reached the milestone with a 2-1 win over Brentford. So how does he stack up against his predecessors?`\
+https://nytimes.com/athletic/6726091/2025/11/24/after-50-games-as-brighton-boss-is-hurzeler-better-than-potter-and-de-zerbi/
 
-**What is going wrong with Tottenham?**\
-`From a negative setup to poor squad building, Spurs look deficient in key areas after a crushing north London derby defeat`\
-https://nytimes.com/athletic/6831547/2025/11/24/tottenaham-where-going-wrong/
+**St James' Park witnesses two sides of Gianluigi Donnarumma**\
+`The Italian goalkeeper made a string of good saves but was left furious by Newcastle's winning goal on Saturday evening`\
+https://nytimes.com/athletic/6829249/2025/11/24/manchester-city-st-james-park-donnarumma/
 
-**Which Premier League players could be heading to AFCON in December?**\
-`Players selected for the tournament in Morocco are likely to miss somewhere between three and six rounds of Premier League action...`\
-https://nytimes.com/athletic/6801078/2025/11/24/premier-league-players-afcon-africa-cup-nations/
+**The crucial Tonali/Guimaraes switch that helped Newcastle beat Manchester City**\
+`After a difficult period, Eddie Howe enjoyed a tactically-successful evening on Saturday`\
+https://nytimes.com/athletic/6830376/2025/11/24/the-crucial-tonali-guimaraes-switch-that-helped-newcastle-beat-manchester-city/
 
-**Glasner, Silva and the thorny issue of keeping in-demand managers**\
-`Arguably, both these clubs' greatest asset is on the touchline not the pitch. Will it stay that way?`\
-https://nytimes.com/athletic/6830235/2025/11/24/marco-silva-oliver-glasner-futures-premier-league/
+**Perfect contact, a locked ankle, and Ronaldo-like dip: Dissecting Rogers' stunning free kick**\
+`The Aston Villa player's match-winning strike was superbly executed and a result of a lot of training-ground work`\
+https://nytimes.com/athletic/6831039/2025/11/24/morgan-rogers-free-kick-aston-villa/
 
-**Chelsea's one-game wonders: 'I didn’t realise how big an achievement it was'**\
-`The Athletic has spoken to some of the players who only made solitary appearances for Chelsea`\
-https://nytimes.com/athletic/6807435/2025/11/24/chelsea-one-appearance-former-players/
+**Wolves were improved against Palace - which makes defeat even more demoralising**\
+`The new Wolves head coach must find results before January or risk being too far adrift for new signings to make any difference`\
+https://nytimes.com/athletic/6829336/2025/11/24/rob-edwards-confronted-by-the-true-scale-of-the-challenge-facing-him-at-wolves/
 
-**Protests, endless home defeats, poor recruitment and fan fury: Norwich are a club in crisis**\
-`The Championship club are in free fall and there are scant signs of a turnaround anytime soon`\
-https://nytimes.com/athletic/6830504/2025/11/24/norwich-championship-crisis-birmingham/
+**Farke is walking a tightrope and the fans have lost patience. The board have a big decision to make**\
+`The Leeds manager is in a perilous position following his side's dismal run and may not be in charge for the daunting upcoming fixtures`\
+https://nytimes.com/athletic/6831396/2025/11/24/daniel-farke-leeds-premier-league-relegation/
 
-**No Corrections: Nov. 24, 2025**\
-`No corrections appeared in print on Monday, Nov. 24, 2025.`\
-https://nytimes.com/2025/11/24/pageoneplus/no-corrections-nov-24-2025.html
+**Nuno's decision to take Wilson off cost West Ham the game, he must learn from it**\
+`Substituting the two-goal striker showed a lack of ambition and allowed Bournemouth to get back in the match`\
+https://nytimes.com/athletic/6828628/2025/11/24/west-ham-callum-wilson-substitution/
 
-**Trade Chaos Causes Businesses to Rethink Their Relationship With the U.S.**\
-`From Sweden to Brazil, six small companies talk about how they are communicating with their U.S. customers amid uncertainty over Trump’s changing tariffs.`\
-https://nytimes.com/2025/11/24/business/tariffs-trade-small-business.html
+**The Briefing: When could Slot come under real pressure? Do Arsenal have a weakness?**\
+`Discussing the major talking points from the Premier League weekend - also featuring Daniel Farke's uncertain future at Leeds`\
+https://nytimes.com/athletic/6830496/2025/11/24/arne-slot-liverpool-manager-pressure/
 
-**Quote of the Day: A Belgian Region’s Experiment With Democracy, and Trust**\
-`Quotation of the Day for Monday, November 24, 2025.`\
-https://nytimes.com/2025/11/24/pageoneplus/quote-of-the-day-a-belgian-regions-experiment-with-democracy-and-trust.html
+**There are 125 million reasons why Alexander Isak is becoming a big problem for Liverpool**\
+`British football's record signing could not have made a worse start to his career at his new club`\
+https://nytimes.com/athletic/6831570/2025/11/24/alexander-isak-liverpool-record-fee-transfer/
 
