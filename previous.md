@@ -1,3 +1,7 @@
+**Why Europe and the U.S. Are Still Haggling on Trade**\
+`While the two sides reached a broad agreement months ago, American officials will visit Brussels this week to discuss the details. Europe has a wish list, but so does the United States.`\
+https://nytimes.com/2025/11/24/business/eu-trade-trump-tariffs.html
+
 **X Displays Users’ Locations, Fueling Scrutiny Over Political Accounts**\
 `Online sleuths quickly found that some accounts posting about U.S. politics, including those in support of the MAGA movement, appeared not to be based in the United States.`\
 https://nytimes.com/2025/11/24/us/politics/x-twitter-location-maga-controversy.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/11/24/todays-new-york-times
 **Amass is winning hearts and minds at Wednesday. So what next at Man Utd?**\
 `The 18-year-old loanee is learning at the Championship coal face, but can he force his way into Ruben Amorim's plans?`\
 https://nytimes.com/athletic/6831444/2025/11/24/harry-amass-manchester-united-sheffield-wednesday/
-
-**'This is a once in a lifetime trip, so everyone's so deflated. The performance was amateur'**\
-`The shortest Ashes Test in 104 years left travelling England fans anguished at their team's attitude and had implications, too, for Perth`\
-https://nytimes.com/athletic/6831044/2025/11/24/england-fans-perth-australia-ashes/
 

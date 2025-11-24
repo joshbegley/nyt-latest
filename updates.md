@@ -1,3 +1,7 @@
+**Why Europe and the U.S. Are Still Haggling on Trade**\
+`While the two sides reached a broad agreement months ago, American officials will visit Brussels this week to discuss the details. Europe has a wish list, but so does the United States.`\
+https://nytimes.com/2025/11/24/business/eu-trade-trump-tariffs.html
+
 **X Displays Users’ Locations, Fueling Scrutiny Over Political Accounts**\
 `Online sleuths quickly found that some accounts posting about U.S. politics, including those in support of the MAGA movement, appeared not to be based in the United States.`\
 https://nytimes.com/2025/11/24/us/politics/x-twitter-location-maga-controversy.html
