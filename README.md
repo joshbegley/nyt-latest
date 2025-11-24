@@ -1,3 +1,11 @@
+**Cowboys-Eagles takeaways: Prescott leads 21-point comeback in Dallas win over Eagles**\
+`Prescott passed Tony Romo for the franchise’s all-time passing yards and led a 21-point comeback`\
+https://nytimes.com/athletic/6831758/2025/11/23/eagles-cowboys-score-result-takeaways/
+
+**Woman Convicted in ‘Slender Man’ Stabbing Flees Group Home**\
+`The woman, Morgan Geyser, was last seen in a residential area of Madison, Wis., on Saturday evening. The police said she cut off a monitoring bracelet.`\
+https://nytimes.com/2025/11/23/us/morgan-geyser-missing-slenderman-stabbing.html
+
 **Joe Flacco's admirable battle shouldn’t be lost in the Bengals' defeats**\
 `This might be the last we see of Flacco in stripes, with Joe Burrow potentially returning on Thanksgiving vs. the Ravens.`\
 https://nytimes.com/athletic/6832056/2025/11/23/joe-flacco-bengals-loss-patriots/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6831658/2025/11/23/the-athletic-live-coverage-thank
 **Falcons-Saints takeaways: Kirk Cousins starts for Atlanta in win over New Orleans**\
 `Kirk Cousins got the start in place of Michael Penix Jr. who suffered a season-ending knee injury win Week 11.`\
 https://nytimes.com/athletic/6831916/2025/11/23/falcons-saints-score-result-takeaways/
-
-**Micah Parsons, Packers smell blood against hapless Vikings offense in blowout win**\
-`The Packers improved to 7-3-1 as they head to Detroit for a Thanksgiving tilt with the Lions.`\
-https://nytimes.com/athletic/6831979/2025/11/23/packers-defense-micah-parsons-vikings/
-
-**What a Brandon Nimmo trade could mean for Pete Alonso and Edwin Díaz**\
-`David Stearns demonstrated that sentimentality will not be a factor in whatever the Mets do next in free agency.   `\
-https://nytimes.com/athletic/6831900/2025/11/23/what-a-brandon-nimmo-trade-could-mean-for-pete-alonso-and-edwin-diaz/
 
