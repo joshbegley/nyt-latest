@@ -1,3 +1,11 @@
+**Bowl projections: 20 teams are one win away from joining the postseason**\
+`With one week left until the regular season ends, 72 Football Bowl Subdivision teams have qualified for 82 postseason slots.`\
+https://nytimes.com/athletic/6832294/2025/11/24/college-football-bowl-projections-schedule-matchups/
+
+**'The blame is on everybody': Eagles defense owns its role in blown lead**\
+`The Eagles defense had been a consistent strength all season.`\
+https://nytimes.com/athletic/6831560/2025/11/24/eagles-defense-loss-cowboys/
+
 **Analyzing the Knicks: Mike Brown's strategy, defensive deficiencies and more**\
 `Writers Fred Katz and James L. Edwards III take a look at how the Knicks are doing 15 games into the season. `\
 https://nytimes.com/athletic/6831026/2025/11/24/knicks-analysis-mike-brown-coaching/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6832989/2025/11/24/falcons-michael-penix-kirk-cousi
 **Myles Garrett continues to raise the bar on a Browns defense that deserves better**\
 `What the Browns defense did to the Raiders should serve as a reminder that it was built for better results and bigger stages this season.`\
 https://nytimes.com/athletic/6832544/2025/11/24/myles-garrett-browns-defense-raiders/
-
-**Are Chiefs, Eagles still Super? Why K.C. might need a wake-up call, even in victory — Pick Six**\
-`The Chiefs survived the Colts, but would they be better off missing the playoffs? Meanwhile, the Eagles' offense can't shake its hiccups.`\
-https://nytimes.com/athletic/6808180/2025/11/24/chiefs-eagles-playoffs-super-bowl-hopes/
-
-**Five potential Freddy Peralta trades if the Brewers decide to deal their ace**\
-`The Brewers plan to keep Peralta for 2026, but if the right deal comes along, they could be swayed. One of these five deals might do it.`\
-https://nytimes.com/athletic/6826990/2025/11/24/freddy-peralta-trade-scenarios-brewers-braves-mets-yankees-giants/
 

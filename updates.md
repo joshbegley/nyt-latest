@@ -1,3 +1,11 @@
+**Bowl projections: 20 teams are one win away from joining the postseason**\
+`With one week left until the regular season ends, 72 Football Bowl Subdivision teams have qualified for 82 postseason slots.`\
+https://nytimes.com/athletic/6832294/2025/11/24/college-football-bowl-projections-schedule-matchups/
+
+**'The blame is on everybody': Eagles defense owns its role in blown lead**\
+`The Eagles defense had been a consistent strength all season.`\
+https://nytimes.com/athletic/6831560/2025/11/24/eagles-defense-loss-cowboys/
+
 **Analyzing the Knicks: Mike Brown's strategy, defensive deficiencies and more**\
 `Writers Fred Katz and James L. Edwards III take a look at how the Knicks are doing 15 games into the season. `\
 https://nytimes.com/athletic/6831026/2025/11/24/knicks-analysis-mike-brown-coaching/
