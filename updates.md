@@ -1,3 +1,15 @@
+**Corrections: Nov. 22, 2025**\
+`Corrections that appeared in print on Saturday, Nov. 22, 2025.`\
+https://nytimes.com/2025/11/24/pageoneplus/corrections-nov-22-2025.html
+
+**This ‘All My Sons’ Is Tragedy Done Right**\
+`Arthur Miller and Ivo van Hove are a perfect match again, in a new production starring Bryan Cranston and Paapa Essiedu.`\
+https://nytimes.com/2025/11/24/theater/all-my-sons-ivo-van-hove-london.html
+
+**Ranking college football's 12 open coaching jobs: LSU No. 1; Cal or Stanford?**\
+`This could be the most active coaching carousel college football has seen in many years.`\
+https://nytimes.com/athletic/6662286/2025/11/24/college-football-open-coaching-jobs-rankings/
+
 **Has UCLA played its last game at Rose Bowl? Regulars from Lot H dread rupture of tradition**\
 `UCLA says no decision has been made but has said its Rose Bowl lease hampers capitalizing on revenue streams amid financial pressures.`\
 https://nytimes.com/athletic/6832435/2025/11/24/rose-bowl-ucla-football-last-game/
