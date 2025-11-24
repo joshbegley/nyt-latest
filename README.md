@@ -1,3 +1,7 @@
+**Shedeur Sanders is first Cleveland rookie QB since 1995 to win debut**\
+`Sanders showed flashes of his potential, highlighted by a rolling 52-yard completion during Cleveland’s win.`\
+https://nytimes.com/athletic/6831861/2025/11/23/browns-raiders-score-result-takeaways-shedeur-sanders-starts/
+
 **Jaxon Smith-Njigba steals the show (again) in Seahawks' win, maintaining historic pace**\
 `Nobody has been able to contain Smith-Njigba all season. Sunday was no different, and it made all the difference for Seattle in Tennessee.`\
 https://nytimes.com/athletic/6831885/2025/11/23/jsn-jaxon-smith-njigba-seahawks-titans/
@@ -35,8 +39,4 @@ https://nytimes.com/2025/11/23/world/middleeast/israel-punishes-commanders-hamas
 **Warriors to miss Jonathan Kuminga, Al Horford vs. Jazz on Monday**\
 `Initially, Jonathan Kuminga's knee injury was not thought to be serious, but he's expected to miss his sixth consecutive game Monday.`\
 https://nytimes.com/athletic/6831810/2025/11/23/kuminga-horford-draymond-injury-status-warriors-jazz-nba/
-
-**Top U.S. Military Officer to Visit Caribbean as Trump Pressures Venezuela**\
-`Gen. Dan Caine is making the trip as President Trump is said to have approved plans for covert action in Venezuela.`\
-https://nytimes.com/2025/11/23/us/politics/caribbean-trump-venezuela-military.html
 
