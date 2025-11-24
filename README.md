@@ -1,3 +1,7 @@
+**Michelin Honored the Cheesesteak. Not All Philadelphians Cheered.**\
+`The gastronomic guide has singled out three restaurants that serve the sandwich, setting off a loud local debate about tradition and innovation.`\
+https://nytimes.com/2025/11/24/dining/michelin-philly-cheesesteak.html
+
 **Explained: Everton midfielder Gueye's strange red card against Man Utd**\
 `It was the first time a player had been sent off in the Premier League for fighting a team-mate in 17 years. `\
 https://nytimes.com/athletic/6834345/2025/11/24/idrissa-gueye-everton-red-card-manchester-united-explained/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6834248/2025/11/24/mlb-toronto-blue-jays-advertisem
 **Ozempic Drug Fails to Quell Alzheimer’s in Novo Nordisk Trials**\
 `The studies were a significant setback for the optimistic view that semaglutide and other GLP-1 drugs could help prevent a number of brain diseases.`\
 https://nytimes.com/2025/11/24/health/ozempic-wegovy-alzheimers-novo-nordisk.html
-
-**Army Chief Ignites Uproar After Saying France Must ‘Accept Losing Our Children’**\
-`The furor erupted as President Emmanuel Macron is expected to present a plan for paid, voluntary military service to bolster the armed forces against the threat from Russia.`\
-https://nytimes.com/2025/11/24/world/europe/france-voluntary-military-service.html
 
