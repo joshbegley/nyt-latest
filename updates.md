@@ -1,3 +1,7 @@
+**Lacey named in Man Utd matchday squad for first time**\
+`The 18-year-old signed his first professional contract at the club last year and has been training regularly with the first-team squad.`\
+https://nytimes.com/athletic/6833496/2025/11/24/shea-lacey-manchester-united-first-matchday-squad/
+
 **Arizona, Alabama, Michigan State rise in AP Top 25, while Kansas drops out: Key takeaways**\
 `It didn't take long for the Hoosiers to return to the poll under first-year coach Darian DeVries.`\
 https://nytimes.com/athletic/6833943/2025/11/24/ap-mens-basketball-top-25-arizona-kansas-indiana/
