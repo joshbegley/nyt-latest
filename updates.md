@@ -1,3 +1,7 @@
+**Word of the Day: bestow**\
+`This word has appeared in 73 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/24/learning/word-of-the-day-bestow.html
+
 **‘The Beatles Anthology,’ Plus 9 Things to Watch on TV This Week**\
 `The remastered documentary series will be released, and we watch some reader recommendations, including “The Gone” and “Dark.”`\
 https://nytimes.com/2025/11/24/arts/television/beatles-anthology-tv-this-week.html
