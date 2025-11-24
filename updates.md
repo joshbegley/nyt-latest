@@ -1,3 +1,7 @@
+**Negotiating Peace in Ukraine**\
+`We explain the Trump administration’s latest push to end the war.`\
+https://nytimes.com/2025/11/24/briefing/negotiating-peace-in-ukraine.html
+
 **Wild insider: 'Foligno Faceoff' brings fan involvement to brotherly competition**\
 `Plus: professional volleyball is on its way to Grand Casino Arena and two rookies enjoying NHL travel.`\
 https://nytimes.com/athletic/6831060/2025/11/24/wild-foligno-faceoff-leipold-volleyball-yurov/

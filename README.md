@@ -1,3 +1,15 @@
+**Dharmendra, Bollywood Leading Man Who Played Heroes and Thieves, Dies at 89**\
+`In a career spanning nearly seven decades and more than 300 productions, the actor became one of India’s best known and most versatile screen stars.`\
+https://nytimes.com/2025/11/24/world/asia/india-bollywood-dharmendra-dead.html
+
+**Jimmy Cliff, Reggae Icon, Dies at 81**\
+`The Grammy Award-winning singer and star of the movie “The Harder They Come” died of pneumonia, his wife said.`\
+https://nytimes.com/2025/11/24/arts/music/jimmy-cliff-dead.html
+
+**The Lakers can't make an outside shot. But they keep winning anyway**\
+`“We're literally one of the worst shooting teams in the NBA right now," JJ Redick said after his team beat the Jazz to improve to 12-4.`\
+https://nytimes.com/athletic/6832876/2025/11/24/lakers-shooting-problems-austin-reaves-lebron-james/
+
 **Negotiating Peace in Ukraine**\
 `We explain the Trump administration’s latest push to end the war.`\
 https://nytimes.com/2025/11/24/briefing/negotiating-peace-in-ukraine.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6831196/2025/11/24/matt-patricia-ohio-state-michiga
 **Monday Morning Leafs Report: The status quo is becoming untenable**\
 `The Leafs are last in the Eastern Conference. Even as players return from injury, how much runway do they have to turn it around?`\
 https://nytimes.com/athletic/6831042/2025/11/24/maple-leafs-berube-treliving-status-quo/
-
-**One year after Chris Drury's ill-fated memo, New York Rangers remain stuck in neutral**\
-`After a season spent shaking up the Rangers roster, solutions still don't seem in ready supply.`\
-https://nytimes.com/athletic/6831506/2025/11/24/new-york-rangers-chris-drury-roster-miller/
-
-**Message Board Monday: Ole Miss fans, how ya feeling? Pick a Lane**\
-`Approximately 97 percent of Ole Mans fans presume Kiffin is gone and wish him ill in his future travels.`\
-https://nytimes.com/athletic/6831378/2025/11/24/lane-kiffin-ole-miss-coach-lsu-florida/
-
-**No CFP expansion agreement expected by deadline, as 24 joins 16 in format debate**\
-`Whatever faint hope there was to agree on some sort of expansion for next year is about to be officially snuffed out.`\
-https://nytimes.com/athletic/6832090/2025/11/24/college-football-playoff-expansion-deadline-24-teams/
 

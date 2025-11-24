@@ -1,3 +1,7 @@
+**Negotiating Peace in Ukraine**\
+`We explain the Trump administration’s latest push to end the war.`\
+https://nytimes.com/2025/11/24/briefing/negotiating-peace-in-ukraine.html
+
 **Wild insider: 'Foligno Faceoff' brings fan involvement to brotherly competition**\
 `Plus: professional volleyball is on its way to Grand Casino Arena and two rookies enjoying NHL travel.`\
 https://nytimes.com/athletic/6831060/2025/11/24/wild-foligno-faceoff-leipold-volleyball-yurov/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6831378/2025/11/24/lane-kiffin-ole-miss-coach-lsu-f
 **No CFP expansion agreement expected by deadline, as 24 joins 16 in format debate**\
 `Whatever faint hope there was to agree on some sort of expansion for next year is about to be officially snuffed out.`\
 https://nytimes.com/athletic/6832090/2025/11/24/college-football-playoff-expansion-deadline-24-teams/
-
-**How Panthers' classy Christian McCaffrey trade helped both teams three years later**\
-`The 49ers packaged a second-, third- and fourth-round pick in 2023 and a fifth-rounder in 2024 for McCaffrey from the Panthers.`\
-https://nytimes.com/athletic/6829426/2025/11/24/christian-mccaffrey-49ers-panthers-trade/
 
