@@ -1,3 +1,7 @@
+**The red-hot Heat expect Tyler Herro to make his season debut on Monday**\
+`With Tyler Herro cleared to return, the NBA's fastest team is expected to get its leading scorer from last season back in the lineup.`\
+https://nytimes.com/athletic/6832270/2025/11/23/heat-tyler-herro-injury-status-season-debut-monday-mavericks/
+
 **Patrick Mahomes, Chiefs are most dangerous wild cards of all in NFL playoff race**\
 `It's early, but if Mahomes leads the Chiefs back to the Super Bowl for a sixth time, remember Sunday's win as the one that made it possible.`\
 https://nytimes.com/athletic/6832253/2025/11/23/chiefs-colts-patrick-mahomes-nfl-playoff-race/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6832310/2025/11/23/inter-miami-mls-cup-favorite-mes
 **Giants living through another nightmare season: 'It feels like it just can't be real'**\
 `The loss dropped the Giants to 2-10, giving them double-digit losses for the eighth time in the past nine seasons.`\
 https://nytimes.com/athletic/6832100/2025/11/23/giants-nightmare-season-loss-lions/
-
-**The Steelers need Aaron Rodgers more than they ever would have imagined**\
-`Sunday's loss in Chicago made the Steelers' climb toward the playoffs dangerously steep.`\
-https://nytimes.com/athletic/6832048/2025/11/23/the-steelers-need-aaron-rodgers-more-than-they-ever-would-have-imagined/
 
