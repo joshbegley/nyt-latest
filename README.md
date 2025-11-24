@@ -1,3 +1,7 @@
+**With One Movie and Soundtrack, Jimmy Cliff Changed Reggae Forever**\
+`The 1972 film “The Harder They Come” and its accompanying soundtrack brought the genre out of Jamaica and helped pave the way for future stars.`\
+https://nytimes.com/2025/11/24/arts/music/jimmy-cliff-harder-they-come.html
+
 **Joe Burrow to return as Bengals' starting QB vs. Ravens**\
 `Since Burrow went out with turf toe, Cincinnati has gone 1-8 in games started by Jake Browning and Joe Flacco.`\
 https://nytimes.com/athletic/6834048/2025/11/24/joe-burrow-bengals-return-turf-toe/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6833702/2025/11/24/nfl-week-13-odds-chiefs-cowboys-
 **Vikings QB J.J. McCarthy in concussion protocol, status for Week 13 uncertain**\
 `The second-year QB reported symptoms of a concussion after Sunday's loss to the Packers in which he threw for 87 yards and two INTs.`\
 https://nytimes.com/athletic/6834033/2025/11/24/jj-mccarthy-vikings-concussion-protocol/
-
-**How low is the ceiling on Cal? Grading the Golden Bears coaching job**\
-`There is a path to bowl games in Berkeley, but winning more than that has been tough.`\
-https://nytimes.com/athletic/6833966/2025/11/24/cal-football-coaching-search-job-profile/
 
