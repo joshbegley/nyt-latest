@@ -1,3 +1,7 @@
+**Chuck Schumer Faces Pushback From a ‘Fight Club’ of Senate Democrats**\
+`A group of liberal senators is quietly challenging the minority leader over his approach to the midterms and President Trump, in a sign of the party’s deep frustration.`\
+https://nytimes.com/2025/11/24/us/politics/schumer-democrats-senate-fight-club.html
+
 **Amorim would 'hope' to see Man Utd players fight over possession loss**\
 `The head coach said his side were "not near" where they should be after their five-game unbeaten run was ended by a 10-man Everton side.`\
 https://nytimes.com/athletic/6834715/2025/11/24/amorim-manchester-united-players-fighting/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/24/theater/queen-of-versailles-broadway-closing.html
 **Jimmy Cliff, Jamaican Reggae Icon, Is Dead**\
 `Jimmy Cliff, the Jamaican reggae singer who helped popularize the genre around the world with songs like “You Can Get It If You Really Want” and “The Harder They Come,” has died. He was 81.`\
 https://nytimes.com/video/world/100000010544545/jimmy-cliff-dead.html
-
-**Team owner Richard Childress weighing legal action over NASCAR exec's 'insensitive' texts**\
-`The texts from NASCAR's Steve Phelps were revealed as part of discovery in the ongoing lawsuit between two teams and NASCAR.`\
-https://nytimes.com/athletic/6834379/2025/11/24/nascar-richard-childress-steve-phelps-texts/
 
