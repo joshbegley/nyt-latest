@@ -1,3 +1,11 @@
+**‘The Beatles Anthology,’ Plus 9 Things to Watch on TV This Week**\
+`The remastered documentary series will be released, and we watch some reader recommendations, including “The Gone” and “Dark.”`\
+https://nytimes.com/2025/11/24/arts/television/beatles-anthology-tv-this-week.html
+
+**The New York Times in Print for Monday, Nov. 24, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/24/todays-new-york-times
+
 **Amass is winning hearts and minds at Wednesday. So what next at Man Utd?**\
 `The 18-year-old loanee is learning at the Championship coal face, but can he force his way into Ruben Amorim's plans?`\
 https://nytimes.com/athletic/6831444/2025/11/24/harry-amass-manchester-united-sheffield-wednesday/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6831039/2025/11/24/morgan-rogers-free-kick-aston-vi
 **Wolves were improved against Palace - which makes defeat even more demoralising**\
 `The new Wolves head coach must find results before January or risk being too far adrift for new signings to make any difference`\
 https://nytimes.com/athletic/6829336/2025/11/24/rob-edwards-confronted-by-the-true-scale-of-the-challenge-facing-him-at-wolves/
-
-**Farke is walking a tightrope and the fans have lost patience. The board have a big decision to make**\
-`The Leeds manager is in a perilous position following his side's dismal run and may not be in charge for the daunting upcoming fixtures`\
-https://nytimes.com/athletic/6831396/2025/11/24/daniel-farke-leeds-premier-league-relegation/
-
-**Nuno's decision to take Wilson off cost West Ham the game, he must learn from it**\
-`Substituting the two-goal striker showed a lack of ambition and allowed Bournemouth to get back in the match`\
-https://nytimes.com/athletic/6828628/2025/11/24/west-ham-callum-wilson-substitution/
 
