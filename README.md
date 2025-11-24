@@ -1,3 +1,11 @@
+**Fantasy football Week 12 recap, early waivers speed run**\
+`Backfield questions abound in Chicago and New England, plus bye-low candidates in Baltimore and L.A.`\
+https://nytimes.com/athletic/6833775/2025/11/24/fantasy-football-week-12-recap-early-waivers-speed-run/
+
+**She Believes Technology Can Help Girls Learn, Even Under Taliban Rule**\
+`The entrepreneur Roya Mahboob is building off-line apps, underground networks and a global robotics team to educate Afghan girls unable to attend school.`\
+https://nytimes.com/2025/11/24/world/asia/roya-mahboob-afghanistan-technology-girls.html
+
 **In Namibia, a Trailblazing Minister Is Reimagining Health Care**\
 `Dr. Esperance Luvindao, who leads the country’s health and social services and is the youngest health minister in Africa, has ambitious plans.`\
 https://nytimes.com/2025/11/24/world/africa/esperance-luvindao-namibia-health-care.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/11/24/business/automakers-rare-earth-minerals-magnets.h
 **Send Troops to Venezuela? In Florida, the Question Splits a Community.**\
 `Differences of opinion, complicated by unease over President Trump’s immigration policies, are creating tense divisions among Venezuelans in South Florida.`\
 https://nytimes.com/2025/11/24/us/venezuelan-diaspora-critics-us-military-intervention.html
-
-**Pulisic, Tillman and Weah back in form after missing break – USMNT Player Tracker**\
-`Mauricio Pochettino was missing some star names from the United States' friendly wins, but they were back to their best for their clubs`\
-https://nytimes.com/athletic/6833105/2025/11/24/usmnt-world-cup-pulisic-tillman/
-
-**Mikel Merino on why Eberechi Eze is a 'complete' player**\
-`Mikel Merino discusses the small moments that stand out most about Arsenal's north London derby winner`\
-https://nytimes.com/athletic/6832991/2025/11/24/mikel-merino-on-eberechi-eze/
 
