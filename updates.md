@@ -1,3 +1,7 @@
+**Michelin Honored the Cheesesteak. Not All Philadelphians Cheered.**\
+`The gastronomic guide has singled out three restaurants that serve the sandwich, setting off a loud local debate about tradition and innovation.`\
+https://nytimes.com/2025/11/24/dining/michelin-philly-cheesesteak.html
+
 **Explained: Everton midfielder Gueye's strange red card against Man Utd**\
 `It was the first time a player had been sent off in the Premier League for fighting a team-mate in 17 years. `\
 https://nytimes.com/athletic/6834345/2025/11/24/idrissa-gueye-everton-red-card-manchester-united-explained/
