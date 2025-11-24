@@ -1,3 +1,19 @@
+**Send Troops to Venezuela? In Florida, the Question Splits a Community.**\
+`Differences of opinion, complicated by unease over President Trump’s immigration policies, are creating tense divisions among Venezuelans in South Florida.`\
+https://nytimes.com/2025/11/24/us/venezuelan-diaspora-critics-us-military-intervention.html
+
+**Pulisic, Tillman and Weah back in form after missing break – USMNT Player Tracker**\
+`Mauricio Pochettino was missing some star names from the United States' friendly wins, but they were back to their best for their clubs`\
+https://nytimes.com/athletic/6833105/2025/11/24/usmnt-world-cup-pulisic-tillman/
+
+**Mikel Merino on why Eberechi Eze is a 'complete' player**\
+`Mikel Merino discusses the small moments that stand out most about Arsenal's north London derby winner`\
+https://nytimes.com/athletic/6832991/2025/11/24/mikel-merino-on-eberechi-eze/
+
+**Patriots rookie left tackle Will Campbell to miss 'a couple of weeks' with knee injury**\
+`It appears likely that Campbell will be placed on injured reserve, while left guard Jared Wilson is also expected to miss several weeks.`\
+https://nytimes.com/athletic/6833490/2025/11/24/will-campbell-patriots-injury-jared-wilson/
+
 **F1 has stopped trying too hard in Las Vegas, but one big issue remains**\
 `Las Vegas again put on a show for Formula One, but the race's place on the schedule remains tough on drivers`\
 https://nytimes.com/athletic/6831774/2025/11/24/f1-las-vegas-issue-remains/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6833680/2025/11/24/cavaliers-vs-raptors-stream-how-
 **How to watch Flyers vs. Lightning: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Flyers play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6833678/2025/11/24/flyers-vs-lightning-stream-how-to-watch-nov-24/
-
-**How to watch Blues vs. Rangers: Time, TV, streaming**\
-`Find out how to watch the St. Louis Blues play the New York Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6833676/2025/11/24/blues-vs-rangers-stream-how-to-watch-nov-24/
-
-**How to watch Pistons vs. Pacers: Time, TV, streaming**\
-`Find out how to watch the Detroit Pistons play the Indiana Pacers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6833675/2025/11/24/pistons-vs-pacers-stream-how-to-watch-nov-24/
-
-**How to watch Blue Jackets vs. Capitals: Time, TV, streaming**\
-`Find out how to watch the Columbus Blue Jackets play the Washington Capitals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6833672/2025/11/24/blue-jackets-vs-capitals-stream-how-to-watch-nov-24/
-
-**How to watch Red Wings vs. Devils: Time, TV, streaming**\
-`Find out how to watch the Detroit Red Wings play the New Jersey Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6833670/2025/11/24/red-wings-vs-devils-stream-how-to-watch-nov-24/
 
