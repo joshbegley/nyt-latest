@@ -1,3 +1,7 @@
+**Viola Fletcher, Oldest Survivor of the Tulsa Race Massacre, Dies at 111**\
+`At 7, she bore witness to one of American history’s most violent spasms of racial violence. She was 106 when the nation reckoned with the crime.`\
+https://nytimes.com/2025/11/24/us/viola-fletcher-dead.html
+
 **Michelin Honored the Cheesesteak. Not All Philadelphians Cheered.**\
 `The gastronomic guide has singled out three restaurants that serve the sandwich, setting off a loud local debate about tradition and innovation.`\
 https://nytimes.com/2025/11/24/dining/michelin-philly-cheesesteak.html
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6834307/2025/11/24/elle-duncan-netflix-hired/
 `TreVeyon Henderson has helped elevate a young Patriots offense by taking some of the pressure off QB Drake Maye.`\
 https://nytimes.com/athletic/6834520/2025/11/24/treveyon-henderson-film-breakdown-patriots/
 
-**Eagles safety Andrew Mukuba fractures his leg in Sunday's loss**\
+**Eagles safety Andrew Mukuba fractures his ankle in Sunday's loss**\
 `Eagles currently lead the NFC East with an 8-3 record.`\
 https://nytimes.com/athletic/6834377/2025/11/24/eagles-safety-andrew-mukuba-fractures-leg-sundays/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6834472/2025/11/24/rockets-mailbag-kevin-durant-alp
 **Japanese boxing ring festooned with Blue Jays logos broke MLB's ad rules**\
 `All international sponsorships are supposed to go through the league to prevent a free-for-all. That's not what happened here. `\
 https://nytimes.com/athletic/6834248/2025/11/24/mlb-toronto-blue-jays-advertisements-boxing-match-japan/
-
-**Ozempic Drug Fails to Quell Alzheimer’s in Novo Nordisk Trials**\
-`The studies were a significant setback for the optimistic view that semaglutide and other GLP-1 drugs could help prevent a number of brain diseases.`\
-https://nytimes.com/2025/11/24/health/ozempic-wegovy-alzheimers-novo-nordisk.html
 

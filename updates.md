@@ -1,3 +1,11 @@
+**Viola Fletcher, Oldest Survivor of the Tulsa Race Massacre, Dies at 111**\
+`At 7, she bore witness to one of American history’s most violent spasms of racial violence. She was 106 when the nation reckoned with the crime.`\
+https://nytimes.com/2025/11/24/us/viola-fletcher-dead.html
+
+**Eagles safety Andrew Mukuba fractures his ankle in Sunday's loss**\
+`Eagles currently lead the NFC East with an 8-3 record.`\
+https://nytimes.com/athletic/6834377/2025/11/24/eagles-safety-andrew-mukuba-fractures-leg-sundays/
+
 **Michelin Honored the Cheesesteak. Not All Philadelphians Cheered.**\
 `The gastronomic guide has singled out three restaurants that serve the sandwich, setting off a loud local debate about tradition and innovation.`\
 https://nytimes.com/2025/11/24/dining/michelin-philly-cheesesteak.html
