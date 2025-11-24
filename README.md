@@ -1,3 +1,7 @@
+**Jaxon Smith-Njigba steals the show (again) in Seahawks' win, maintaining historic pace**\
+`Nobody has been able to contain Smith-Njigba all season. Sunday was no different, and it made all the difference for Seattle in Tennessee.`\
+https://nytimes.com/athletic/6831885/2025/11/23/jsn-jaxon-smith-njigba-seahawks-titans/
+
 **Former News Anchor Sentenced to 10 Years in Prison for Pandemic Fraud**\
 `The former anchor, Stephanie Hockridge, who once worked for a Phoenix station, participated in an elaborate scheme that illegally obtained more than $63 million.`\
 https://nytimes.com/2025/11/23/us/phoenix-news-anchor-covid-fraud.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6831810/2025/11/23/kuminga-horford-draymond-injury-
 **Top U.S. Military Officer to Visit Caribbean as Trump Pressures Venezuela**\
 `Gen. Dan Caine is making the trip as President Trump is said to have approved plans for covert action in Venezuela.`\
 https://nytimes.com/2025/11/23/us/politics/caribbean-trump-venezuela-military.html
-
-**U.S. Introduces New Female Crash-Test Dummy Standards**\
-`A female crash-test dummy to replace an outdated model largely based on male proportions would improve safety for women, who face higher fatality and injury risks on the road, officials said.`\
-https://nytimes.com/2025/11/23/us/female-crash-test-dummy.html
 
