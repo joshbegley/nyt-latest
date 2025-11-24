@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>It&#8217;s Rivalry Week! Though this year maybe we should refer to it as Lane Week.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6831971/2025/11/23/submit-a-question-for-stewart-mandels-college-football-mailbag-324/
+
 **Giants become first NFL team in 2025 to be eliminated from postseason contention**\
 `Owners of the worst record in the NFC, the Giants have already fired their coach and are on their third starting quarterback of the season.`\
 https://nytimes.com/athletic/6831801/2025/11/23/ny-giants-eliminated-playoffs-week-12/

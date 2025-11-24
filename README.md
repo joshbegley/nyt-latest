@@ -1,10 +1,18 @@
+**Dallas Wings win WNBA Draft lottery: Who will join Paige Bueckers?**\
+`Minnesota Lynx land No. 2 pick, while Seattle Storm win third selection.`\
+https://nytimes.com/athletic/6831951/2025/11/23/wnba-draft-lottery-dallas-wings-win-no-1-pick/
+
+**With three assists and a goal from Messi, dominant Miami march into Eastern Conference final**\
+`Lionel Messi scored but also turned creator with three assists as Inter Miami crushed Cincinnati 4-0  in their Eastern Conference semi-final`\
+https://nytimes.com/athletic/6831926/2025/11/23/with-three-assists-and-a-goal-from-lionel-messi-dominant-inter-miami-march-into-eastern-conference-final/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>It&#8217;s Rivalry Week! Though this year maybe we should refer to it as Lane Week.</p>
 <p>Leave your questions here. Please include your city.</p>
 `\
 https://nytimes.com/athletic/6831971/2025/11/23/submit-a-question-for-stewart-mandels-college-football-mailbag-324/
 
-**Cal fires Justin Wilcox, names ex-Wazzu coach Nick Rolovich interim: Sources**\
+**Cal fires Justin Wilcox, names ex-Wazzu coach Nick Rolovich interim**\
 `In Wilcox's nine years in Berkeley, the Bears never won more than seven games in the regular season.`\
 https://nytimes.com/athletic/6831863/2025/11/23/justin-wilcox-fired-nick-rolovich-cal-football/
 
@@ -31,12 +39,4 @@ https://nytimes.com/2025/11/23/us/female-crash-test-dummy.html
 **Sabres climb out of last place in Eastern Conference with win over Hurricanes: 5 thoughts**\
 `Ukko-Pekka Luukkonen made his first consecutive starts as the Sabres returned to .500 this season.`\
 https://nytimes.com/athletic/6831740/2025/11/23/sabres-standings-malenstyn-quinn-hurricanes/
-
-**Three-Point Hoops Shot**\
-`Zhou Zhang brings us into her circle.`\
-https://nytimes.com/2025/11/23/crosswords/daily-puzzle-2025-11-24.html
-
-**NFC North pecking order and the irrepressible Chiefs: Our experts' Week 12 takeaways**\
-`Also, is Jahmyr Gibbs the best running back in football? And who has the upper hand in the race for the AFC's top seed?`\
-https://nytimes.com/athletic/6831359/2025/11/23/nfl-takeaways-week-12-scores-results/
 
