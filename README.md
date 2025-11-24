@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: U.S. Officials Are Expected to Press On With Ukraine Talks**\
+``\
+https://nytimes.com/live/2025/11/24/us/trump-news
+
+**Broncos mailbag: Should Riley Moss still start when Pat Surtain II returns?**\
+`Plus, why rookie wide receiver Pat Bryant could have a growing role in Denver's offense after his breakthrough against the Chiefs.`\
+https://nytimes.com/athletic/6829211/2025/11/24/broncos-mailbag-riley-moss-pat-bryant/
+
 **The Pulse: The best team in the NFL**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6831624/2025/11/24/rams-buccaneers-matthew-stafford-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/video/sports/football/100000010543132/dallas-cowboys-win-thr
 **Dharmendra, Bollywood Leading Man Who Played Heroes and Thieves, Dies at 89**\
 `In a career spanning nearly seven decades and more than 300 productions, the actor became one of India’s best known and most versatile screen stars.`\
 https://nytimes.com/2025/11/24/world/asia/india-bollywood-dharmendra-dead.html
-
-**Jimmy Cliff, Reggae Icon, Dies at 81**\
-`The Grammy Award-winning singer and star of the movie “The Harder They Come” died of pneumonia, his wife said.`\
-https://nytimes.com/2025/11/24/arts/music/jimmy-cliff-dead.html
-
-**The Lakers can't make an outside shot. But they keep winning anyway**\
-`“We're literally one of the worst shooting teams in the NBA right now," JJ Redick said after his team beat the Jazz to improve to 12-4.`\
-https://nytimes.com/athletic/6832876/2025/11/24/lakers-shooting-problems-austin-reaves-lebron-james/
 
