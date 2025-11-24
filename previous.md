@@ -1,3 +1,7 @@
+**Tatsuya Imai says he'd rather pave his own way than follow Japanese stars to Dodgers**\
+`The 28-year-old starter said taking down the Dodgers and winning a World Series "would be the most valuable thing in my life."`\
+https://nytimes.com/athletic/6834525/2025/11/24/tatsuya-imai-free-agency-dodgers/
+
 **Is a New $3,500-a-Night Safari Camp Blocking a Wildlife Corridor?**\
 `Ritz-Carlton’s luxury camp in Kenya’s Masai Mara offers “front row seats” to the Great Migration. But some Masai tribe members and wildlife experts say it’s in a sensitive area and should not have been approved.`\
 https://nytimes.com/2025/11/24/travel/ritz-carlton-safari-camp-masai-tribe-great-migration.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6831147/2025/11/24/man-utd-everton-analysis/
 **Hal Steinbrenner: It's 'not fair or accurate' to say Yankees made a profit in 2025**\
 `Steinbrenner also said he would prefer to spend less money on payroll than the $319 million the Yankees paid this year. `\
 https://nytimes.com/athletic/6834242/2025/11/24/hal-steinbrenner-yankees-profitable-payroll/
-
-**Former Senator Doug Jones Enters Alabama Governor’s Race**\
-`The move sets up a possible rematch between Mr. Jones, the last Democrat to win statewide office in Alabama, and Tommy Tuberville, the Republican who ousted him from the Senate in 2020.`\
-https://nytimes.com/2025/11/24/us/politics/doug-jones-alabama-governors-race.html
 

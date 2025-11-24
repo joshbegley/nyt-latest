@@ -1,3 +1,7 @@
+**Tatsuya Imai says he'd rather pave his own way than follow Japanese stars to Dodgers**\
+`The 28-year-old starter said taking down the Dodgers and winning a World Series "would be the most valuable thing in my life."`\
+https://nytimes.com/athletic/6834525/2025/11/24/tatsuya-imai-free-agency-dodgers/
+
 **Is a New $3,500-a-Night Safari Camp Blocking a Wildlife Corridor?**\
 `Ritz-Carlton’s luxury camp in Kenya’s Masai Mara offers “front row seats” to the Great Migration. But some Masai tribe members and wildlife experts say it’s in a sensitive area and should not have been approved.`\
 https://nytimes.com/2025/11/24/travel/ritz-carlton-safari-camp-masai-tribe-great-migration.html
