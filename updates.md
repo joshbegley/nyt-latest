@@ -1,3 +1,11 @@
+**J.J. McCarthy’s historically bad start continues, rest of Vikings follow suit vs. Packers**\
+`The Vikings' "razor-thin margin for error" with McCarthy at quarterback has not been a recipe for success this season.`\
+https://nytimes.com/athletic/6832004/2025/11/23/vikings-packers-jj-mccarthy-history/
+
+**Messi and Mascherano's Miami has the look of an MLS Cup favorite**\
+`Lionel Messi is doing a bit of everything, and Javier Mascherano's bold calls are paying off. Inter Miami is exuding that title aura`\
+https://nytimes.com/athletic/6832310/2025/11/23/inter-miami-mls-cup-favorite-messi-mascherano-cincinnati/
+
 **2025 NFL Playoff Simulator: Each team’s updated path to the postseason after Week 12 results**\
 `<p>Welcome to The Athletic’s 2025 NFL Playoff Simulator, where you’ll find everything you need to know about all the ways your favorite team&#8217;s season could end, from a No.`\
 https://nytimes.com/athletic/6513952/2025/11/23/2025-nfl-playoff-simulator-path-postseason/

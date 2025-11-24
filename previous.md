@@ -1,3 +1,11 @@
+**J.J. McCarthy’s historically bad start continues, rest of Vikings follow suit vs. Packers**\
+`The Vikings' "razor-thin margin for error" with McCarthy at quarterback has not been a recipe for success this season.`\
+https://nytimes.com/athletic/6832004/2025/11/23/vikings-packers-jj-mccarthy-history/
+
+**Messi and Mascherano's Miami has the look of an MLS Cup favorite**\
+`Lionel Messi is doing a bit of everything, and Javier Mascherano's bold calls are paying off. Inter Miami is exuding that title aura`\
+https://nytimes.com/athletic/6832310/2025/11/23/inter-miami-mls-cup-favorite-messi-mascherano-cincinnati/
+
 **Giants living through another nightmare season: 'It feels like it just can't be real'**\
 `The loss dropped the Giants to 2-10, giving them double-digit losses for the eighth time in the past nine seasons.`\
 https://nytimes.com/athletic/6832100/2025/11/23/giants-nightmare-season-loss-lions/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6832236/2025/11/23/iowa-vs-nebraska-stream-how-to-w
 **How to watch Indiana vs. Purdue: Time, TV, streaming**\
 `Find out how to watch the Indiana Hoosiers play the Purdue Boilermakers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6832233/2025/11/23/indiana-vs-purdue-stream-how-to-watch-nov-28/
-
-**How to watch Utah vs. Kansas: Time, TV, streaming**\
-`Find out how to watch the Utah Utes play the Kansas Jayhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6832231/2025/11/23/utah-vs-kansas-stream-how-to-watch-nov-28/
-
-**How to watch Ole Miss vs. Mississippi State: Time, TV, streaming**\
-`Find out how to watch the Ole Miss Rebels play the Mississippi State Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6832229/2025/11/23/ole-miss-vs-mississippi-state-stream-how-to-watch-nov-28/
 

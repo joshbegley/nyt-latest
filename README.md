@@ -1,9 +1,13 @@
+**They're alive! Chris Jones fires up Arrowhead crowd, helps Chiefs save season**\
+`Chiefs QB Patrick Mahomes identified a "special moment" in the Chiefs' critical win against the Colts. Jones was responsible for it.`\
+https://nytimes.com/athletic/6830900/2025/11/23/chiefs-chris-jones-patrick-mahomes-colts/
+
 **J.J. McCarthy’s historically bad start continues, rest of Vikings follow suit vs. Packers**\
 `The Vikings' "razor-thin margin for error" with McCarthy at quarterback has not been a recipe for success this season.`\
 https://nytimes.com/athletic/6832004/2025/11/23/vikings-packers-jj-mccarthy-history/
 
 **Messi and Mascherano's Miami has the look of an MLS Cup favorite**\
-`Lionel Messi is doing a bit of everything, and Javier Mascherano's bold calls are paying off. Inter Miami is exuding that title aura`\
+`Lionel Messi is doing a bit of everything, and Javier Mascherano's bold calls are paying off. Inter Miami is exuding that title aura.`\
 https://nytimes.com/athletic/6832310/2025/11/23/inter-miami-mls-cup-favorite-messi-mascherano-cincinnati/
 
 **Giants living through another nightmare season: 'It feels like it just can't be real'**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/23/us/h-rap-brown-dead.html
 **How to watch Iowa vs. Nebraska: Time, TV, streaming**\
 `Find out how to watch the Iowa Hawkeyes play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6832236/2025/11/23/iowa-vs-nebraska-stream-how-to-watch-nov-28/
-
-**How to watch Indiana vs. Purdue: Time, TV, streaming**\
-`Find out how to watch the Indiana Hoosiers play the Purdue Boilermakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6832233/2025/11/23/indiana-vs-purdue-stream-how-to-watch-nov-28/
 
