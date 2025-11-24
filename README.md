@@ -1,3 +1,7 @@
+**Ukrainians React to Peace Plan to End Russia’s War**\
+`American and Ukrainian officials said they had made progress in Geneva on a plan to end the war with Russia. Some Ukrainians dismissed the early draft as a concession.`\
+https://nytimes.com/video/world/europe/100000010542602/ukraine-switzerland-russia-peace-talks.html
+
 **Word of the Day: bestow**\
 `This word has appeared in 73 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/11/24/learning/word-of-the-day-bestow.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6829249/2025/11/24/manchester-city-st-james-park-do
 **The crucial Tonali/Guimaraes switch that helped Newcastle beat Manchester City**\
 `After a difficult period, Eddie Howe enjoyed a tactically-successful evening on Saturday`\
 https://nytimes.com/athletic/6830376/2025/11/24/the-crucial-tonali-guimaraes-switch-that-helped-newcastle-beat-manchester-city/
-
-**Perfect contact, a locked ankle, and Ronaldo-like dip: Dissecting Rogers' stunning free kick**\
-`The Aston Villa player's match-winning strike was superbly executed and a result of a lot of training-ground work`\
-https://nytimes.com/athletic/6831039/2025/11/24/morgan-rogers-free-kick-aston-villa/
 
