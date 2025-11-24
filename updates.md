@@ -1,3 +1,7 @@
+**How Arsenal unlocked Tottenham: Merino as a false nine left Spurs defence with no one to mark**\
+`Arsenal didn’t have a permanent penalty-box threat, but this helped them put constant pressure on Spurs, who barely got out of their half`\
+https://nytimes.com/athletic/6833064/2025/11/24/arsenal-tottenham-merino-false-nine/
+
 **Bundesliga Briefing: Bayern’s ferocious form, fan silence, and ‘Robby’ the rogue lawnmower**\
 `This weekend also saw goals galore in Dortmund and Cologne, an unwanted record for St. Pauli, and an Indonesian making a mark at Gladbach`\
 https://nytimes.com/athletic/6832955/2025/11/24/bundesliga-bayern-munich-borussia-dortmund-leipzig/
