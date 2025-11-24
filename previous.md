@@ -1,40 +1,40 @@
-**College tennis star at center of prize money lawsuit wins NCAA women's singles championship**\
-`Brantmeier, 21, is at the center of a challenge to NCAA rules over professional winnings for college athletes.`\
-https://nytimes.com/athletic/6832961/2025/11/24/college-tennis-ncaa-championship-results/
+**The Absurd Asymmetries That Prop Up President Trump**\
+`Aren’t his apologists exhausted by their moral calisthenics?`\
+https://nytimes.com/2025/11/24/opinion/trump-false-equivalence.html
 
-**U.S. and Ukraine Expected to Press on With Peace Plan Talks**\
-`Washington and Kyiv said that “highly productive” discussions over a proposal to end the war with Russia would continue. But details remained unclear.`\
-https://nytimes.com/2025/11/24/world/europe/ukraine-zelensky-rubio-russia-peace-plan.html
+**In Times Square, a New Ball for a New Year**\
+`The new ball will have more lights and round crystals and can be visited year-round, for a price.`\
+https://nytimes.com/2025/11/24/nyregion/ball-times-square-new-years-eve.html
 
-**Why Europe and the U.S. Are Still Haggling on Trade**\
-`While the two sides reached a broad agreement months ago, American officials will visit Brussels this week to discuss the details. Europe has a wish list, but so does the United States.`\
-https://nytimes.com/2025/11/24/business/eu-trade-trump-tariffs.html
+**What Does My Puffer Jacket Say About Me?**\
+`Though the humble puffer can look casual, our critic explains how they’ve evolved from bulky outdoor necessity to symbol of quiet luxury.`\
+https://nytimes.com/2025/11/24/fashion/jacket-puffer-coat.html
 
-**X Displays Users’ Locations, Fueling Scrutiny Over Political Accounts**\
-`Online sleuths quickly found that some accounts posting about U.S. politics, including those in support of the MAGA movement, appeared not to be based in the United States.`\
-https://nytimes.com/2025/11/24/us/politics/x-twitter-location-maga-controversy.html
+**Trump Welcomes A.P.’s Photographers. Its Reporters? Not So Much.**\
+`The White House now has conflicting approaches for Associated Press journalists as it fights the news service in court over access to presidential events.`\
+https://nytimes.com/2025/11/24/business/media/associated-press-president-trump.html
 
-**Restrained, Beaten, Asphyxiated: New York Prison Guards’ Brutality Grows**\
-`As frustrations among corrections officers mount, abusive treatment of inmates is rising and becoming more vicious, records and interviews show.`\
-https://nytimes.com/2025/11/24/nyregion/ny-prison-guards-abuse-brutality.html
+**Why the Epstein Story Is So Awkward for QAnon**\
+`It has a little something to do with Donald Trump.`\
+https://nytimes.com/2025/11/24/opinion/epstein-files-qanon-trump.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/11/24/crosswords/spelling-bee-forum.html
+**A Secret Defined Her Life. She Had No Idea.**\
+`In the thrilling “Family of Spies,” Christine Kuehn tells the story of learning the darkest of secrets.`\
+https://nytimes.com/2025/11/24/books/review/family-of-spies-christine-kuehn.html
 
-**Why Are Guards Using Force More Often in New York’s Prisons?**\
-`State prison guards say they are doing so because their jobs have become more dangerous. A New York Times analysis points to a different reality.`\
-https://nytimes.com/2025/11/24/nyregion/ny-prison-guards-use-force.html
+**His Right Foot: One Tiny Drawing for Sale, Maybe by Michelangelo**\
+`The Renaissance artist painted more than 100 figures in the Sistine Chapel ceiling, yet studies for only a handful remain. Could this five-inch drawing at Christie’s be one?`\
+https://nytimes.com/2025/11/24/arts/design/michelangelo-drawing-christies-auction-foot-old-master.html
 
-**Ukrainians React to Peace Plan to End Russia’s War**\
-`American and Ukrainian officials said they had made progress in Geneva on a plan to end the war with Russia. Some Ukrainians dismissed the early draft as a concession.`\
-https://nytimes.com/video/world/europe/100000010542602/ukraine-switzerland-russia-peace-talks.html
+**At Ailey, a Dance of the Gods With an Old-School Theatrical Bent**\
+`Maija García’s “Jazz Island” is a full-company narrative of a kind that Ailey hasn’t done in a while. And it features an Afro-Caribbean score by Etienne Charles.`\
+https://nytimes.com/2025/11/24/arts/dance/ailey-maija-garcia-etienne-charles-jazz-island.html
 
-**Word of the Day: bestow**\
-`This word has appeared in 73 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/11/24/learning/word-of-the-day-bestow.html
+**Should Buses Be Free?**\
+`Iowa City eliminated bus fares two years ago. Now New York City’s mayor-elect wants to do the same for the largest city in the country.`\
+https://nytimes.com/2025/11/24/learning/should-buses-be-free.html
 
-**‘The Beatles Anthology,’ Plus 9 Things to Watch on TV This Week**\
-`The remastered documentary series will be released, and we watch some reader recommendations, including “The Gone” and “Dark.”`\
-https://nytimes.com/2025/11/24/arts/television/beatles-anthology-tv-this-week.html
+**Ted Danson and Mary Steenburgen Star in a Love Story, Onscreen and Off**\
+`Married for three decades, the actors get together as characters in the second season of “A Man on the Inside.”`\
+https://nytimes.com/2025/11/24/arts/television/ted-danson-and-mary-steenburgen-man-on-the-inside.html
 
