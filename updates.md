@@ -1,3 +1,15 @@
+**Japanese boxing ring festooned with Blue Jays logos broke MLB's ad rules**\
+`All international sponsorships are supposed to go through the league to prevent a free-for-all. That's not what happened here. `\
+https://nytimes.com/athletic/6834248/2025/11/24/mlb-toronto-blue-jays-advertisements-boxing-match-japan/
+
+**Ozempic Drug Fails to Quell Alzheimer’s in Novo Nordisk Trials**\
+`The studies were a significant setback for the optimistic view that semaglutide and other GLP-1 drugs could help prevent a number of brain diseases.`\
+https://nytimes.com/2025/11/24/health/ozempic-wegovy-alzheimers-novo-nordisk.html
+
+**Army Chief Ignites Uproar After Saying France Must ‘Accept Losing Our Children’**\
+`The furor erupted as President Emmanuel Macron is expected to present a plan for paid, voluntary military service to bolster the armed forces against the threat from Russia.`\
+https://nytimes.com/2025/11/24/world/europe/france-voluntary-military-service.html
+
 **Bengals Ja'Marr Chase apologizes for spitting, but not to Steelers' Jalen Ramsey**\
 `The Bengals receiver took to Instagram on Monday to apologize to his team, the Steelers and fans after his one-game suspension.`\
 https://nytimes.com/athletic/6834390/2025/11/24/jamarr-chase-spit-apology-jalen-ramsey/
