@@ -1,3 +1,15 @@
+**Alma Allen, American Sculptor, Is Selected for Venice Biennale**\
+`The choice of a relatively unknown artist based in Mexico City ends a chaotic, much-delayed selection process led by the State Department.`\
+https://nytimes.com/2025/11/24/arts/design/alma-allen-venice-biennale.html
+
+**Putin’s Win-Win: Take a Russia-Friendly Peace Deal, or Fight On**\
+`The Kremlin’s leader is standing back as Ukraine and Europe scramble to negotiate changes to a U.S. proposal to end the war.`\
+https://nytimes.com/2025/11/24/world/europe/trump-ukraine-peace-talks-russia.html
+
+**12 fantasy football players who can win you a title**\
+`A dozen players face soft defenses during the crucial final weeks of the fantasy football playoffs.`\
+https://nytimes.com/athletic/6833090/2025/11/24/12-players-with-playoff-mismatches-who-can-win-you-a-fantasy-football-title/
+
 **In Michigan’s Upper Peninsula, Locals Fight for ‘The Right to Night’**\
 `Industrialization in the mostly rural northern part of the state has some residents pushing for protection of the region’s dark skies.`\
 https://nytimes.com/2025/11/24/science/astronomy-michigan-dark-sky.html
