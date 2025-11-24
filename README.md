@@ -1,3 +1,7 @@
+**Japanese boxing ring festooned with Blue Jays logos broke MLB's ad rules**\
+`All international sponsorships are supposed to go through the league to prevent a free-for-all. That's not what happened here. `\
+https://nytimes.com/athletic/6834248/2025/11/24/mlb-toronto-blue-jays-advertisements-boxing-match-japan/
+
 **Ozempic Drug Fails to Quell Alzheimer’s in Novo Nordisk Trials**\
 `The studies were a significant setback for the optimistic view that semaglutide and other GLP-1 drugs could help prevent a number of brain diseases.`\
 https://nytimes.com/2025/11/24/health/ozempic-wegovy-alzheimers-novo-nordisk.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/24/climate/park-service-back-pay-shutdown.html
 **How to watch Texas Tech vs. West Virginia: Time, TV, streaming**\
 `Find out how to watch the Texas Tech Red Raiders play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6834421/2025/11/24/texas-tech-vs-west-virginia-stream-how-to-watch-nov-29/
-
-**How to watch Ohio State vs. Michigan: Time, TV, streaming**\
-`Find out how to watch the Ohio State Buckeyes play the Michigan Wolverines, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6834419/2025/11/24/ohio-state-vs-michigan-stream-how-to-watch-nov-29/
 
