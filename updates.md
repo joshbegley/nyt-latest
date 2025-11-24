@@ -1,3 +1,7 @@
+**U.S. and Ukraine Expected to Press on With Peace Plan Talks**\
+`Washington and Kyiv said that “highly productive” discussions over a proposal to end the war with Russia would continue. But details remained unclear.`\
+https://nytimes.com/2025/11/24/world/europe/ukraine-zelensky-rubio-russia-peace-plan.html
+
 **Why Europe and the U.S. Are Still Haggling on Trade**\
 `While the two sides reached a broad agreement months ago, American officials will visit Brussels this week to discuss the details. Europe has a wish list, but so does the United States.`\
 https://nytimes.com/2025/11/24/business/eu-trade-trump-tariffs.html
