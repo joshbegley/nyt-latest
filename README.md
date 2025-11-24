@@ -1,3 +1,11 @@
+**Corrections: Nov. 22, 2025**\
+`Corrections that appeared in print on Saturday, Nov. 22, 2025.`\
+https://nytimes.com/2025/11/24/pageoneplus/corrections-nov-22-2025.html
+
+**This ‘All My Sons’ Is Tragedy Done Right**\
+`Arthur Miller and Ivo van Hove are a perfect match again, in a new production starring Bryan Cranston and Paapa Essiedu.`\
+https://nytimes.com/2025/11/24/theater/all-my-sons-ivo-van-hove-london.html
+
 **Has UCLA played its last game at Rose Bowl? Regulars from Lot H dread rupture of tradition**\
 `UCLA says no decision has been made but has said its Rose Bowl lease hampers capitalizing on revenue streams amid financial pressures.`\
 https://nytimes.com/athletic/6832435/2025/11/24/rose-bowl-ucla-football-last-game/
@@ -5,6 +13,10 @@ https://nytimes.com/athletic/6832435/2025/11/24/rose-bowl-ucla-football-last-gam
 **After another statement win, Rams have become the team to beat in the NFC**\
 `Following their lopsided win over the Buccaneers, the Rams are the No. 1 seed in the NFC and control their own destiny the rest of the way. `\
 https://nytimes.com/athletic/6832833/2025/11/24/rams-win-buccaneers-nfc-top-seed/
+
+**Ranking college football's 12 open coaching jobs: LSU No. 1; Cal or Stanford?**\
+`This could be the most active coaching carousel college football has seen in many years.`\
+https://nytimes.com/athletic/6662286/2025/11/24/college-football-open-coaching-jobs-rankings/
 
 **Vietnam Reels From Deadly Rainy Season**\
 `Cleanup efforts are underway in Vietnam, where government officials on Sunday said more than 90 people had been killed from flooding and landslides in the past week.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/11/24/business/dealbook/bitcoin-crypto-wall-street.html
 **Trump Administration Live Updates: U.S. Officials Are Expected to Press On With Ukraine Talks**\
 ``\
 https://nytimes.com/live/2025/11/24/us/trump-news
-
-**Broncos mailbag: Should Riley Moss still start when Pat Surtain II returns?**\
-`Plus, why rookie wide receiver Pat Bryant could have a growing role in Denver's offense after his breakthrough against the Chiefs.`\
-https://nytimes.com/athletic/6829211/2025/11/24/broncos-mailbag-riley-moss-pat-bryant/
-
-**The Pulse: The best team in the NFL**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6831624/2025/11/24/rams-buccaneers-matthew-stafford-the-pulse/
-
-**How Arsenal unlocked Tottenham: Merino as a false nine left Spurs defence with no one to mark**\
-`Arsenal didn’t have a permanent penalty-box threat, but this helped them put constant pressure on Spurs, who barely got out of their half`\
-https://nytimes.com/athletic/6833064/2025/11/24/arsenal-tottenham-merino-false-nine/
 
