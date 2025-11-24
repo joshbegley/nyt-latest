@@ -1,3 +1,7 @@
+**2025 NFL Playoff Simulator: Each team’s updated path to the postseason after Week 12 results**\
+`<p>Welcome to The Athletic’s 2025 NFL Playoff Simulator, where you’ll find everything you need to know about all the ways your favorite team&#8217;s season could end, from a No.`\
+https://nytimes.com/athletic/6513952/2025/11/23/2025-nfl-playoff-simulator-path-postseason/
+
 **Giants living through another nightmare season: 'It feels like it just can't be real'**\
 `The loss dropped the Giants to 2-10, giving them double-digit losses for the eighth time in the past nine seasons.`\
 https://nytimes.com/athletic/6832100/2025/11/23/giants-nightmare-season-loss-lions/
