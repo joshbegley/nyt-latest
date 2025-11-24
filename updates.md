@@ -1,3 +1,11 @@
+**What a Brandon Nimmo trade could mean for Pete Alonso and Edwin Díaz**\
+`David Stearns demonstrated that sentimentality will not be a factor in whatever the Mets do next in free agency.   `\
+https://nytimes.com/athletic/6831900/2025/11/23/what-a-brandon-nimmo-trade-could-mean-for-pete-alonso-and-edwin-diaz/
+
+**Shedeur Sanders is first Cleveland rookie QB since 1995 to win debut**\
+`Sanders showed flashes of his potential, highlighted by a rolling 52-yard completion during Cleveland’s win.`\
+https://nytimes.com/athletic/6831861/2025/11/23/browns-raiders-score-result-takeaways-shedeur-sanders-starts/
+
 **Dallas Wings win WNBA Draft lottery again: Who will join Paige Bueckers?**\
 `Minnesota Lynx land the No. 2 pick, while Seattle Storm won the third selection. The Mystics are No. 4 and Sky No. 5.`\
 https://nytimes.com/athletic/6831951/2025/11/23/wnba-draft-lottery-dallas-wings-win-no-1-pick/
