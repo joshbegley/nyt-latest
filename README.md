@@ -1,3 +1,7 @@
+**After another statement win, Rams have become the team to beat in the NFC**\
+`Following their lopsided win over the Buccaneers, the Rams are the No. 1 seed in the NFC and control their own destiny the rest of the way. `\
+https://nytimes.com/athletic/6832833/2025/11/24/rams-win-buccaneers-nfc-top-seed/
+
 **Vietnam Reels From Deadly Rainy Season**\
 `Cleanup efforts are underway in Vietnam, where government officials on Sunday said more than 90 people had been killed from flooding and landslides in the past week.`\
 https://nytimes.com/video/world/asia/100000010543119/vietnam-reels-from-deadly-rainy-season.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6833064/2025/11/24/arsenal-tottenham-merino-false-n
 **Bundesliga Briefing: Bayern’s ferocious form, fan silence, and ‘Robby’ the rogue lawnmower**\
 `This weekend also saw goals galore in Dortmund and Cologne, an unwanted record for St Pauli, and an Indonesian making a mark at Gladbach`\
 https://nytimes.com/athletic/6832955/2025/11/24/bundesliga-bayern-munich-borussia-dortmund-leipzig/
-
-**FPL Gameweek 12 review: Minteh magic, Semenyo no-show and Eze dilemma**\
-`From an illness-related no-show to a north London derby hat-trick, there’s plenty to unpack across a fresh wave of FPL talking points `\
-https://nytimes.com/athletic/6831519/2025/11/24/fantasy-premier-league-gameweek-12-review-eze-semenyo-minteh/
 
