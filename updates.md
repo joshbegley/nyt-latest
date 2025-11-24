@@ -1,3 +1,7 @@
+**Feldman's candidates to replace Justin Wilcox at Cal, from Tosh Lupoi to DeSean Jackson**\
+`Justin Wilcox is out after going 48-55 in nine season as coach at Cal. Here are possible candidates to replace him.`\
+https://nytimes.com/athletic/6834059/2025/11/24/cal-football-coaching-search-candidates/
+
 **Here’s Where Weather May Slow Your Thanksgiving Travel This Week**\
 `Some storms could make for sloppy travel before the holiday.`\
 https://nytimes.com/2025/11/24/weather/thanksgiving-forecast-snow-cold-rain.html

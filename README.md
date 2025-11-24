@@ -1,3 +1,15 @@
+**Joe Burrow to return as Bengals' starting QB vs. Ravens**\
+`Since Burrow went out with turf toe, Cincinnati has gone 1-8 in games started by Jake Browning and Joe Flacco.`\
+https://nytimes.com/athletic/6834048/2025/11/24/joe-burrow-bengals-return-turf-toe/
+
+**NFL overreaction Monday: To fade or not to fade Shedeur Sanders**\
+`Toby Mergler's betting picks for the week are all about the quarterbacks, and going against his own instincts.`\
+https://nytimes.com/athletic/6834038/2025/11/24/nfl-overreaction-monday-mccarthy-sanders/
+
+**Control of Congress 2026: Latest Polls**\
+`Track the latest congressional ballot surveys that ask who Americans plan to vote for in the 2026 midterm election.`\
+https://nytimes.com/interactive/polls/congressional-vote-2026.html
+
 **Feldman's candidates to replace Justin Wilcox at Cal, from Tosh Lupoi to DeSean Jackson**\
 `Justin Wilcox is out after going 48-55 in nine season as coach at Cal. Here are possible candidates to replace him.`\
 https://nytimes.com/athletic/6834059/2025/11/24/cal-football-coaching-search-candidates/
@@ -21,20 +33,4 @@ https://nytimes.com/athletic/6834033/2025/11/24/jj-mccarthy-vikings-concussion-p
 **How low is the ceiling on Cal? Grading the Golden Bears coaching job**\
 `There is a path to bowl games in Berkeley, but winning more than that has been tough.`\
 https://nytimes.com/athletic/6833966/2025/11/24/cal-football-coaching-search-job-profile/
-
-**Read the Ruling Dismissing the Charges Against James Comey**\
-`A federal judge threw out the criminal charges against the former F.B.I. director James Comey after finding that the prosecutor President Trump handpicked to bring the cases had been illegally appointed.`\
-https://nytimes.com/interactive/2025/11/24/us/james-comey-ruling.html
-
-**Read the Ruling Dismissing the Charges Against Letitia James**\
-`A federal judge threw out the criminal charges against Letitia James, New York’s attorney general, after finding that the prosecutor President Trump handpicked to bring the cases had been illegally appointed.`\
-https://nytimes.com/interactive/2025/11/24/us/letitia-james-ruling.html
-
-**Hegseth Threatens Senator Mark Kelly With Inquiry for ‘Seditious’ Video**\
-`The defense secretary called the senator’s remarks urging troops not to follow illegal orders “despicable, reckless, and false.”`\
-https://nytimes.com/2025/11/24/us/politics/mark-kelly-pentagon-investigation.html
-
-**Wizards rookie Tre Johnson sidelined by hip flexor strain**\
-`The sixth pick in the 2025 NBA Draft has made nearly 40 percent of his 3-point attempts. `\
-https://nytimes.com/athletic/6834039/2025/11/24/nba-wizards-rookie-tre-johnson-injury/
 
