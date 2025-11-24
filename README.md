@@ -1,3 +1,7 @@
+**For the Jets, moral victories are real — that’s O.K., if they deliver on the future Aaron Glenn sees**\
+`There were plenty of positives even in a loss at Baltimore, as the Jets continue to build toward 2026.`\
+https://nytimes.com/athletic/6832066/2025/11/23/new-york-jets-rebuild-baltimore-ravens-loss/
+
 **A preview of The Athletic’s live coverage this week**\
 `Our live coverage this week includes three Thanksgiving NFL games, a Black Friday game, two Champions League matches and more`\
 https://nytimes.com/athletic/6831658/2025/11/23/the-athletic-live-coverage-thanksgiving-nfl/
@@ -33,10 +37,4 @@ https://nytimes.com/athletic/6831951/2025/11/23/wnba-draft-lottery-dallas-wings-
 **With three assists and a goal from Messi, dominant Miami march into Eastern Conference final**\
 `Lionel Messi scored but also turned creator with three assists as Inter Miami crushed Cincinnati 4-0  in their Eastern Conference semi-final`\
 https://nytimes.com/athletic/6831926/2025/11/23/with-three-assists-and-a-goal-from-lionel-messi-dominant-inter-miami-march-into-eastern-conference-final/
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>It&#8217;s Rivalry Week! Though this year maybe we should refer to it as Lane Week.</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6831971/2025/11/23/submit-a-question-for-stewart-mandels-college-football-mailbag-324/
 

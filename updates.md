@@ -1,3 +1,19 @@
+**A preview of The Athletic’s live coverage this week**\
+`Our live coverage this week includes three Thanksgiving NFL games, a Black Friday game, two Champions League matches and more`\
+https://nytimes.com/athletic/6831658/2025/11/23/the-athletic-live-coverage-thanksgiving-nfl/
+
+**Falcons-Saints takeaways: Atlanta snaps 5-game skid with win in New Orleans**\
+`Kirk Cousins got the start in place of Michael Penix Jr. who suffered a season-ending knee injury win Week 11.`\
+https://nytimes.com/athletic/6831916/2025/11/23/falcons-saints-score-result-takeaways/
+
+**Micah Parsons, Packers smell blood against hapless Vikings offense in blowout win**\
+`The Packers improved to 7-3-1 as they head to Detroit for a Thanksgiving tilt with the Lions.`\
+https://nytimes.com/athletic/6831979/2025/11/23/packers-defense-micah-parsons-vikings/
+
+**Dallas Wings win WNBA Draft Lottery again: Who will join Paige Bueckers?**\
+`The Minnesota Lynx land the No. 2 pick, and the Seattle Storm won the third selection. The Mystics are No. 4 and the Sky No. 5.`\
+https://nytimes.com/athletic/6831951/2025/11/23/wnba-draft-lottery-dallas-wings-win-no-1-pick/
+
 **Dallas Wings win WNBA Draft lottery again: Who will join Paige Bueckers?**\
 `The Minnesota Lynx land the No. 2 pick, and the Seattle Storm won the third selection. The Mystics are No. 4 and the Sky No. 5.`\
 https://nytimes.com/athletic/6831951/2025/11/23/wnba-draft-lottery-dallas-wings-win-no-1-pick/
