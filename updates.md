@@ -1,3 +1,11 @@
+**John Green on Anxiety, Hope and His Next Book**\
+`The writer and YouTube star talks with David Marchese about trying to get back to the experiences that make us feel alive.`\
+https://nytimes.com/video/podcasts/100000010543143/john-green-on-anxiety-hope-and-his-next-book.html
+
+**Dallas Cowboys Win Thriller at Home Against Division Rival Philadelphia Eagles**\
+`At one point down by 21-0, the Dallas Cowboys stormed back behind quarterback Dak Prescott’s record-setting afternoon to win, 24-21, over the Philadelphia Eagles.`\
+https://nytimes.com/video/sports/football/100000010543132/dallas-cowboys-win-thriller-at-home-against-division-rival-philadelphia-eagles.html
+
 **Dharmendra, Bollywood Leading Man Who Played Heroes and Thieves, Dies at 89**\
 `In a career spanning nearly seven decades and more than 300 productions, the actor became one of India’s best known and most versatile screen stars.`\
 https://nytimes.com/2025/11/24/world/asia/india-bollywood-dharmendra-dead.html
