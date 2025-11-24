@@ -1,3 +1,11 @@
+**Amass is winning hearts and minds at Wednesday. So what next at Man Utd?**\
+`The 18-year-old loanee is learning at the Championship coal face, but can he force his way into Ruben Amorim's plans?`\
+https://nytimes.com/athletic/6831444/2025/11/24/harry-amass-manchester-united-sheffield-wednesday/
+
+**'This is a once in a lifetime trip, so everyone's so deflated. The performance was amateur'**\
+`The shortest Ashes Test in 104 years left travelling England fans anguished at their team's attitude and had implications, too, for Perth`\
+https://nytimes.com/athletic/6831044/2025/11/24/england-fans-perth-australia-ashes/
+
 **It is still not enough just to play women's football. You need to sell yourself within it**\
 `Is the culture surrounding the commercial and branding opportunities within women’s football more fraught than we care to admit?`\
 https://nytimes.com/athletic/6830545/2025/11/24/womens-football-branding-david-beckham-agent/

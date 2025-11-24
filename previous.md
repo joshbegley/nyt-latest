@@ -1,3 +1,11 @@
+**Amass is winning hearts and minds at Wednesday. So what next at Man Utd?**\
+`The 18-year-old loanee is learning at the Championship coal face, but can he force his way into Ruben Amorim's plans?`\
+https://nytimes.com/athletic/6831444/2025/11/24/harry-amass-manchester-united-sheffield-wednesday/
+
+**'This is a once in a lifetime trip, so everyone's so deflated. The performance was amateur'**\
+`The shortest Ashes Test in 104 years left travelling England fans anguished at their team's attitude and had implications, too, for Perth`\
+https://nytimes.com/athletic/6831044/2025/11/24/england-fans-perth-australia-ashes/
+
 **It is still not enough just to play women's football. You need to sell yourself within it**\
 `Is the culture surrounding the commercial and branding opportunities within women’s football more fraught than we care to admit?`\
 https://nytimes.com/athletic/6830545/2025/11/24/womens-football-branding-david-beckham-agent/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6831396/2025/11/24/daniel-farke-leeds-premier-leagu
 **Nuno's decision to take Wilson off cost West Ham the game, he must learn from it**\
 `Substituting the two-goal striker showed a lack of ambition and allowed Bournemouth to get back in the match`\
 https://nytimes.com/athletic/6828628/2025/11/24/west-ham-callum-wilson-substitution/
-
-**The Briefing: When could Slot come under real pressure? Do Arsenal have a weakness?**\
-`Discussing the major talking points from the Premier League weekend - also featuring Daniel Farke's uncertain future at Leeds`\
-https://nytimes.com/athletic/6830496/2025/11/24/arne-slot-liverpool-manager-pressure/
-
-**There are 125 million reasons why Alexander Isak is becoming a big problem for Liverpool**\
-`British football's record signing could not have made a worse start to his career at his new club`\
-https://nytimes.com/athletic/6831570/2025/11/24/alexander-isak-liverpool-record-fee-transfer/
 
