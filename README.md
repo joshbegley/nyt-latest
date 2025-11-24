@@ -1,3 +1,15 @@
+**Is a New $3,500-a-Night Safari Camp Blocking a Wildlife Corridor?**\
+`Ritz-Carlton’s luxury camp in Kenya’s Masai Mara offers “front row seats” to the Great Migration. But some Masai tribe members and wildlife experts say it’s in a sensitive area and should not have been approved.`\
+https://nytimes.com/2025/11/24/travel/ritz-carlton-safari-camp-masai-tribe-great-migration.html
+
+**Nick Sirianni says Eagles won't change offense's play calling duties despite struggles**\
+`Philadelphia's offense has been struggling all season, but the Eagles still have an 8-3 record.`\
+https://nytimes.com/athletic/6834647/2025/11/24/eagles-offense-nick-sirianni-kevin-patullo/
+
+**Judge dismisses Comey and James cases**\
+`Also, why kids in American classrooms are struggling. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/11/24/briefing/comey-ukraine-cliff.html
+
 **‘Queen of Versailles’ to Close as New Broadway Musicals Struggle**\
 `The show, starring Kristin Chenoweth, will remain open through the holidays. The announcement comes just two weeks after the musical opened.`\
 https://nytimes.com/2025/11/24/theater/queen-of-versailles-broadway-closing.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6834242/2025/11/24/hal-steinbrenner-yankees-profita
 **Former Senator Doug Jones Enters Alabama Governor’s Race**\
 `The move sets up a possible rematch between Mr. Jones, the last Democrat to win statewide office in Alabama, and Tommy Tuberville, the Republican who ousted him from the Senate in 2020.`\
 https://nytimes.com/2025/11/24/us/politics/doug-jones-alabama-governors-race.html
-
-**Viola Fletcher, Oldest Survivor of the Tulsa Race Massacre, Dies at 111**\
-`At 7, she bore witness to one of American history’s most violent spasms of racial violence. She was 106 when the nation reckoned with the crime.`\
-https://nytimes.com/2025/11/24/us/viola-fletcher-dead.html
-
-**Michelin Honored the Cheesesteak. Not All Philadelphians Cheered.**\
-`The gastronomic guide has singled out three restaurants that serve the sandwich, setting off a loud local debate about tradition and innovation.`\
-https://nytimes.com/2025/11/24/dining/michelin-philly-cheesesteak.html
-
-**Explained: Everton midfielder Gueye's strange red card against Man Utd**\
-`It was the first time a player had been sent off in the Premier League for fighting a team-mate in 17 years. `\
-https://nytimes.com/athletic/6834345/2025/11/24/idrissa-gueye-everton-red-card-manchester-united-explained/
 
