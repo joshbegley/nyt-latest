@@ -1,40 +1,40 @@
-**Joe Flacco's admirable battle shouldn’t be lost in the Bengals' defeats**\
-`This might be the last we see of Flacco in stripes, with Joe Burrow potentially returning on Thanksgiving vs. the Ravens.`\
-https://nytimes.com/athletic/6832056/2025/11/23/joe-flacco-bengals-loss-patriots/
+**How to watch Iowa vs. Nebraska: Time, TV, streaming**\
+`Find out how to watch the Iowa Hawkeyes play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6832236/2025/11/23/iowa-vs-nebraska-stream-how-to-watch-nov-28/
 
-**Jaguars-Cardinals takeaways: Trevor Lawrence delivers in crunch time**\
-`Trevor Lawrence delivered an up-and-down performance, completing 18 of 30 passes for 256 yards, three touchdowns, and three interceptions.`\
-https://nytimes.com/athletic/6831880/2025/11/23/jaguars-cardinals-score-result-takeaways/
+**How to watch Indiana vs. Purdue: Time, TV, streaming**\
+`Find out how to watch the Indiana Hoosiers play the Purdue Boilermakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6832233/2025/11/23/indiana-vs-purdue-stream-how-to-watch-nov-28/
 
-**How a bunch of unlikely standouts rescued the Bears' depleted defense**\
-`With the Bears defense hurting, the team found new playmakers and new answers on the way to their eight win.`\
-https://nytimes.com/athletic/6831909/2025/11/23/bears-defense-unlikely-standouts-steelers/
+**How to watch Utah vs. Kansas: Time, TV, streaming**\
+`Find out how to watch the Utah Utes play the Kansas Jayhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6832231/2025/11/23/utah-vs-kansas-stream-how-to-watch-nov-28/
 
-**Patriots win again, but injuries and other issues are starting to pile up**\
-`Every win in the NFL should be celebrated, especially when you have the league's best record at 10-2. But Sunday's victory came at a cost.`\
-https://nytimes.com/athletic/6831941/2025/11/23/patriots-bengals-drake-maye-will-campbell-jared-wilson/
+**How to watch Ole Miss vs. Mississippi State: Time, TV, streaming**\
+`Find out how to watch the Ole Miss Rebels play the Mississippi State Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6832229/2025/11/23/ole-miss-vs-mississippi-state-stream-how-to-watch-nov-28/
 
-**Lee Tamahori, Director of Film Voted New Zealand’s Best, Dies at 75**\
-`He reimagined “Once Were Warriors,” a novel about a Maori family, as a film that became a worldwide phenomenon. He went on to direct Hollywood movies.`\
-https://nytimes.com/2025/11/23/obituaries/lee-tamahori-dead.html
+**How to watch Georgia vs. Georgia Tech: Time, TV, streaming**\
+`Find out how to watch the Georgia Bulldogs play the Georgia Tech Yellow Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6832227/2025/11/23/georgia-vs-georgia-tech-stream-how-to-watch-nov-28/
 
-**For the Jets, moral victories are real — that’s O.K., if they deliver on the future Aaron Glenn sees**\
-`There were plenty of positives even in a loss at Baltimore, as the Jets continue to build toward 2026.`\
-https://nytimes.com/athletic/6832066/2025/11/23/new-york-jets-rebuild-baltimore-ravens-loss/
+**How to watch Texas A&M vs. Texas: Time, TV, streaming**\
+`Find out how to watch the Texas A&M Aggies play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6832225/2025/11/23/texas-a-m-vs-texas-stream-how-to-watch-nov-28/
 
-**A preview of The Athletic’s live coverage this week**\
-`Our live coverage this week includes three Thanksgiving NFL games, a Black Friday game, two Champions League matches and more`\
-https://nytimes.com/athletic/6831658/2025/11/23/the-athletic-live-coverage-thanksgiving-nfl/
+**How to watch Temple vs. North Texas: Time, TV, streaming**\
+`Find out how to watch the Temple Owls play the North Texas Mean Green, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6832223/2025/11/23/temple-vs-north-texas-stream-how-to-watch-nov-28/
 
-**Falcons-Saints takeaways: Kirk Cousins starts for Atlanta in win over New Orleans**\
-`Kirk Cousins got the start in place of Michael Penix Jr. who suffered a season-ending knee injury win Week 11.`\
-https://nytimes.com/athletic/6831916/2025/11/23/falcons-saints-score-result-takeaways/
+**Ravens win fifth straight, move into first place in AFC North. But they need to be better**\
+`Baltimore's defense has held six straight opponents under 20 points, but the offense hasn't played as well in recent weeks.  `\
+https://nytimes.com/athletic/6831986/2025/11/23/ravens-offense-win-streak-afc-north/
 
-**Micah Parsons, Packers smell blood against hapless Vikings offense in blowout win**\
-`The Packers improved to 7-3-1 as they head to Detroit for a Thanksgiving tilt with the Lions.`\
-https://nytimes.com/athletic/6831979/2025/11/23/packers-defense-micah-parsons-vikings/
+**Cowboys-Eagles takeaways: Prescott leads 21-point comeback in Dallas win over Eagles**\
+`Prescott passed Tony Romo for the franchise’s all-time passing yards and led a 21-point comeback`\
+https://nytimes.com/athletic/6831758/2025/11/23/eagles-cowboys-score-result-takeaways/
 
-**What a Brandon Nimmo trade could mean for Pete Alonso and Edwin Díaz**\
-`David Stearns demonstrated that sentimentality will not be a factor in whatever the Mets do next in free agency.   `\
-https://nytimes.com/athletic/6831900/2025/11/23/what-a-brandon-nimmo-trade-could-mean-for-pete-alonso-and-edwin-diaz/
+**Woman Convicted in ‘Slender Man’ Stabbing Flees Group Home**\
+`The woman, Morgan Geyser, was last seen in a residential area of Madison, Wis., on Saturday evening. The police said she cut off a monitoring bracelet.`\
+https://nytimes.com/2025/11/23/us/morgan-geyser-missing-slenderman-stabbing.html
 
