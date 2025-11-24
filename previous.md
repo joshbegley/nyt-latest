@@ -1,3 +1,15 @@
+**Padma Lakshmi’s Spice-Organizing Method**\
+`Ever wanted to glimpse inside Padma Lakshmi’s spice drawer? We spoke with the cookbook author about how she organizes her kitchen to make cooking easier and more efficient.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010543513/padma-lakshmis-spice-organizing-method.html
+
+**Ex-Baylor coach Art Briles returns at Division II Eastern New Mexico**\
+`Briles was fired by Baylor in 2016 amid a player sexual assault scandal.`\
+https://nytimes.com/athletic/6833483/2025/11/24/art-briles-coach-baylor-eastern-new-mexico/
+
+**ESL management company demands UEFA pre-authorise Unify League 'within eight weeks'**\
+`Court of Justice for the European Union ruled in 2023 that UEFA’s approach to potential competitors breached EU law.`\
+https://nytimes.com/athletic/6833436/2025/11/24/unify-league-uefa-perez-real-madrid/
+
 **Grisly Killings of a Married Couple Spark New Sectarian Unrest in Syria**\
 `The government acted quickly to tamp down reprisals in the central city of Homs as it tries to manage repeated waves of bloodshed involving minority groups.`\
 https://nytimes.com/2025/11/24/world/europe/syria-sectarian-killings-homs.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6832690/2025/11/24/phoenix-mercury-rebrand-30th-ann
 **Brazil Defied Trump and Won**\
 `President Trump tried to keep the former Brazilian president, Jair Bolsonaro, out of prison. He failed, and now he is moving on.`\
 https://nytimes.com/2025/11/24/world/americas/trump-bolsonaro-arrest.html
-
-**Heisman Trophy odds: Is it too late for Jeremiyah Love?**\
-`Notre Dame's Jeremiyah Love and Vanderbilt's Diego Pavia rose in the odds to win the Heisman Trophy. Is it too late for them to win?`\
-https://nytimes.com/athletic/6829643/2025/11/24/heisman-trophy-odds-jeremiyah-love-football/
-
-**Alma Allen, American Sculptor, Is Selected for Venice Biennale**\
-`The choice of a relatively unknown artist based in Mexico City ends a chaotic, much-delayed selection process led by the State Department.`\
-https://nytimes.com/2025/11/24/arts/design/alma-allen-venice-biennale.html
-
-**Putin’s Win-Win: Take a Russia-Friendly Peace Deal, or Fight On**\
-`The Kremlin’s leader is standing back as Ukraine and Europe scramble to negotiate changes to a U.S. proposal to end the war.`\
-https://nytimes.com/2025/11/24/world/europe/trump-ukraine-peace-talks-russia.html
 

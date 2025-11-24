@@ -1,3 +1,15 @@
+**Padma Lakshmi’s Spice-Organizing Method**\
+`Ever wanted to glimpse inside Padma Lakshmi’s spice drawer? We spoke with the cookbook author about how she organizes her kitchen to make cooking easier and more efficient.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010543513/padma-lakshmis-spice-organizing-method.html
+
+**Ex-Baylor coach Art Briles returns at Division II Eastern New Mexico**\
+`Briles was fired by Baylor in 2016 amid a player sexual assault scandal.`\
+https://nytimes.com/athletic/6833483/2025/11/24/art-briles-coach-baylor-eastern-new-mexico/
+
+**ESL management company demands UEFA pre-authorise Unify League 'within eight weeks'**\
+`Court of Justice for the European Union ruled in 2023 that UEFA’s approach to potential competitors breached EU law.`\
+https://nytimes.com/athletic/6833436/2025/11/24/unify-league-uefa-perez-real-madrid/
+
 **Grisly Killings of a Married Couple Spark New Sectarian Unrest in Syria**\
 `The government acted quickly to tamp down reprisals in the central city of Homs as it tries to manage repeated waves of bloodshed involving minority groups.`\
 https://nytimes.com/2025/11/24/world/europe/syria-sectarian-killings-homs.html
