@@ -1,5 +1,5 @@
 **Kansas City Survives Overtime Battle With Indianapolis Colts to Keep Season Alive**\
-`The Kansas City Chiefs and the quarterback Patrick Mahomes had to rally from a 20-9 deficit in the fourth quarter on their way to an overtime win against the Indianapolis Colts.`\
+`Kansas City and the quarterback Patrick Mahomes had to rally from a 20-9 deficit in the fourth quarter on their way to an overtime win against the Indianapolis Colts.`\
 https://nytimes.com/video/sports/football/100000010542923/kansas-city-survives-overtime-battle-with-indianapolis-colts-to-keep-season-alive.html
 
 **How to watch Chiefs vs. Cowboys: Time, TV, streaming**\

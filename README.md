@@ -1,40 +1,40 @@
-**Kansas City Survives Overtime Battle With Indianapolis Colts to Keep Season Alive**\
-`Kansas City and the quarterback Patrick Mahomes had to rally from a 20-9 deficit in the fourth quarter on their way to an overtime win against the Indianapolis Colts.`\
-https://nytimes.com/video/sports/football/100000010542923/kansas-city-survives-overtime-battle-with-indianapolis-colts-to-keep-season-alive.html
+**England decline chance to give batters pink-ball practice in Lions tour match**\
+`Three tourists released to Lions squad for game against the Prime Minister's XI, while Australia monitor fitness of Khawaja and Hazlewood`\
+https://nytimes.com/athletic/6832969/2025/11/24/england-batters-pink-ball-brisbane-canberra/
 
-**How to watch Chiefs vs. Cowboys: Time, TV, streaming**\
-`Find out how to watch the Kansas City Chiefs play the Dallas Cowboys, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6833021/2025/11/24/chiefs-vs-cowboys-stream-how-to-watch-nov-27/
+**Shedeur Sanders made his first start! The Browns won! Choose your narrative**\
+`There was a little something for everyone in Sanders' first start, as he did something no Browns rookie QB had done in three decades.`\
+https://nytimes.com/athletic/6832982/2025/11/24/shedeur-sanders-browns-starting-debut-raiders/
 
-**How to watch Rutgers vs. Tennessee men's basketball: Time, TV, streaming**\
-`Find out how to watch the Rutgers Scarlet Knights play the Tennessee Volunteers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6833019/2025/11/24/rutgers-vs-tennessee-stream-how-to-watch-nov-24/
+**Giants' Mike Kafka with shades of Bill Walsh (or at least Dan Campbell)**\
+`Yes, the Giants lost, but interim coach Mike Kafka's trick plays reminded of the 49ers' coaching legend and Kafka's counterpart in Detroit.`\
+https://nytimes.com/athletic/6832994/2025/11/24/giants-mike-kafka-with-shades-of-bill-walsh-or-at-least-dan-campbell/
 
-**How to watch Bengals vs. Ravens: Time, TV, streaming**\
-`Find out how to watch the Cincinnati Bengals play the Baltimore Ravens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6833017/2025/11/24/bengals-vs-ravens-stream-how-to-watch-nov-27/
+**Vietnam’s Year of Floods, Mud and Death**\
+`Scientists suggested that climate change could make central Vietnam a global hot spot for destructive storms. This year has seemed to prove the point.`\
+https://nytimes.com/2025/11/24/world/asia/vietnam-flooding-typhoon-emergency.html
 
-**How to watch Bears vs. Eagles: Time, TV, streaming**\
-`Find out how to watch the Chicago Bears play the Philadelphia Eagles, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6833015/2025/11/24/bears-vs-eagles-stream-how-to-watch-nov-28/
+**What we learned in NFL Week 12: Rams look dangerous, Eagles searching for consistency**\
+`Sean McVay's team looks like the deepest and most dangerous team in the league, but what is up with Philadelphia's collapse?`\
+https://nytimes.com/athletic/6832299/2025/11/24/nfl-week-12-takeaways-rams-eagles-cowboys/
 
-**How to watch Packers vs. Lions: Time, TV, streaming**\
-`Find out how to watch the Green Bay Packers play the Detroit Lions, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6833013/2025/11/24/packers-vs-lions-stream-how-to-watch-nov-27/
+**The Falcons have arguably committed organizational malpractice. Are the Raiders next?**\
+`The Falcons have bucked convention often in recent years, without much to show for it. The Raiders might be on a similar path.`\
+https://nytimes.com/athletic/6832989/2025/11/24/falcons-michael-penix-kirk-cousins-raiders/
 
-**The Absurd Asymmetries That Prop Up President Trump**\
-`Aren’t his apologists exhausted by their moral calisthenics?`\
-https://nytimes.com/2025/11/24/opinion/trump-false-equivalence.html
+**Myles Garrett continues to raise the bar on a Browns defense that deserves better**\
+`What the Browns defense did to the Raiders should serve as a reminder that it was built for better results and bigger stages this season.`\
+https://nytimes.com/athletic/6832544/2025/11/24/myles-garrett-browns-defense-raiders/
 
-**In Times Square, a New Ball for a New Year**\
-`The new ball will have more lights and round crystals and can be visited year-round, for a price.`\
-https://nytimes.com/2025/11/24/nyregion/ball-times-square-new-years-eve.html
+**Are Chiefs, Eagles still Super? Why K.C. might need a wake-up call, even in victory — Pick Six**\
+`The Chiefs survived the Colts, but would they be better off missing the playoffs? Meanwhile, the Eagles' offense can't shake its hiccups.`\
+https://nytimes.com/athletic/6808180/2025/11/24/chiefs-eagles-playoffs-super-bowl-hopes/
 
-**What Does My Puffer Jacket Say About Me?**\
-`Though the humble puffer can look casual, our critic explains how they’ve evolved from bulky outdoor necessity to symbol of quiet luxury.`\
-https://nytimes.com/2025/11/24/fashion/jacket-puffer-coat.html
+**Five potential Freddy Peralta trades if the Brewers decide to deal their ace**\
+`The Brewers plan to keep Peralta for 2026, but if the right deal comes along, they could be swayed. One of these five deals might do it.`\
+https://nytimes.com/athletic/6826990/2025/11/24/freddy-peralta-trade-scenarios-brewers-braves-mets-yankees-giants/
 
-**Trump Welcomes A.P.’s Photographers. Its Reporters? Not So Much.**\
-`The White House now has conflicting approaches for Associated Press journalists as it fights the news service in court over access to presidential events.`\
-https://nytimes.com/2025/11/24/business/media/associated-press-president-trump.html
+**The New York Times International Edition in Print for Tuesday, Nov. 25, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/11/24/todays-new-york-times-international-edition
 
