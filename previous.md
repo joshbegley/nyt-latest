@@ -1,3 +1,15 @@
+**Patriots win again, but injuries and other issues are starting to pile up**\
+`Every win in the NFL should be celebrated, especially with a team that has the league's best record at 10-2. But this one came at a cost.`\
+https://nytimes.com/athletic/6831941/2025/11/23/patriots-bengals-drake-maye-will-campbell-jared-wilson/
+
+**Lee Tamahori, Director of Film Voted New Zealand’s Best, Dies at 75**\
+`He reimagined “Once Were Warriors,” a novel about a Maori family, as a film that became a worldwide phenomenon. He went on to direct Hollywood movies.`\
+https://nytimes.com/2025/11/23/obituaries/lee-tamahori-dead.html
+
+**For the Jets, moral victories are real — that’s O.K., if they deliver on the future Aaron Glenn sees**\
+`There were plenty of positives even in a loss at Baltimore, as the Jets continue to build toward 2026.`\
+https://nytimes.com/athletic/6832066/2025/11/23/new-york-jets-rebuild-baltimore-ravens-loss/
+
 **A preview of The Athletic’s live coverage this week**\
 `Our live coverage this week includes three Thanksgiving NFL games, a Black Friday game, two Champions League matches and more`\
 https://nytimes.com/athletic/6831658/2025/11/23/the-athletic-live-coverage-thanksgiving-nfl/
@@ -25,18 +37,4 @@ https://nytimes.com/athletic/6831885/2025/11/23/jsn-jaxon-smith-njigba-seahawks-
 **Former News Anchor Sentenced to 10 Years in Prison for Pandemic Fraud**\
 `The former anchor, Stephanie Hockridge, who once worked for a Phoenix station, participated in an elaborate scheme that illegally obtained more than $63 million.`\
 https://nytimes.com/2025/11/23/us/phoenix-news-anchor-covid-fraud.html
-
-**Dallas Wings win WNBA Draft Lottery again: Who will join Paige Bueckers?**\
-`The Minnesota Lynx land the No. 2 pick, and the Seattle Storm won the third selection. The Mystics are No. 4 and the Sky No. 5.`\
-https://nytimes.com/athletic/6831951/2025/11/23/wnba-draft-lottery-dallas-wings-win-no-1-pick/
-
-**With three assists and a goal from Messi, dominant Miami march into Eastern Conference final**\
-`Lionel Messi scored but also turned creator with three assists as Inter Miami crushed Cincinnati 4-0  in their Eastern Conference semi-final`\
-https://nytimes.com/athletic/6831926/2025/11/23/with-three-assists-and-a-goal-from-lionel-messi-dominant-inter-miami-march-into-eastern-conference-final/
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>It&#8217;s Rivalry Week! Though this year maybe we should refer to it as Lane Week.</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6831971/2025/11/23/submit-a-question-for-stewart-mandels-college-football-mailbag-324/
 

@@ -1,5 +1,9 @@
+**How a bunch of unlikely standouts rescued the Bears' depleted defense**\
+`With the Bears defense hurting, the team found new playmakers and new answers on the way to their eight win.`\
+https://nytimes.com/athletic/6831909/2025/11/23/bears-defense-unlikely-standouts-steelers/
+
 **Patriots win again, but injuries and other issues are starting to pile up**\
-`Every win in the NFL should be celebrated, especially with a team that has the league's best record at 10-2. But this one came at a cost.`\
+`Every win in the NFL should be celebrated, especially when you have the league's best record at 10-2. But Sunday's victory came at a cost.`\
 https://nytimes.com/athletic/6831941/2025/11/23/patriots-bengals-drake-maye-will-campbell-jared-wilson/
 
 **Lee Tamahori, Director of Film Voted New Zealand’s Best, Dies at 75**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6831861/2025/11/23/browns-raiders-score-result-take
 **Jaxon Smith-Njigba steals the show (again) in Seahawks' win, maintaining historic pace**\
 `Nobody has been able to contain Smith-Njigba all season. Sunday was no different, and it made all the difference for Seattle in Tennessee.`\
 https://nytimes.com/athletic/6831885/2025/11/23/jsn-jaxon-smith-njigba-seahawks-titans/
-
-**Former News Anchor Sentenced to 10 Years in Prison for Pandemic Fraud**\
-`The former anchor, Stephanie Hockridge, who once worked for a Phoenix station, participated in an elaborate scheme that illegally obtained more than $63 million.`\
-https://nytimes.com/2025/11/23/us/phoenix-news-anchor-covid-fraud.html
 

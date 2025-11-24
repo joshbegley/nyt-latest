@@ -1,3 +1,15 @@
+**Patriots win again, but injuries and other issues are starting to pile up**\
+`Every win in the NFL should be celebrated, especially with a team that has the league's best record at 10-2. But this one came at a cost.`\
+https://nytimes.com/athletic/6831941/2025/11/23/patriots-bengals-drake-maye-will-campbell-jared-wilson/
+
+**Lee Tamahori, Director of Film Voted New Zealand’s Best, Dies at 75**\
+`He reimagined “Once Were Warriors,” a novel about a Maori family, as a film that became a worldwide phenomenon. He went on to direct Hollywood movies.`\
+https://nytimes.com/2025/11/23/obituaries/lee-tamahori-dead.html
+
+**For the Jets, moral victories are real — that’s O.K., if they deliver on the future Aaron Glenn sees**\
+`There were plenty of positives even in a loss at Baltimore, as the Jets continue to build toward 2026.`\
+https://nytimes.com/athletic/6832066/2025/11/23/new-york-jets-rebuild-baltimore-ravens-loss/
+
 **A preview of The Athletic’s live coverage this week**\
 `Our live coverage this week includes three Thanksgiving NFL games, a Black Friday game, two Champions League matches and more`\
 https://nytimes.com/athletic/6831658/2025/11/23/the-athletic-live-coverage-thanksgiving-nfl/
