@@ -1,3 +1,7 @@
+**‘It: Welcome to Derry’ Season 1, Episode 5 Recap: Search and Destroy**\
+`Gen. Shaw sends troops into the sewage tunnels under Derry. The children send themselves there, too. Bad idea in both cases.`\
+https://nytimes.com/2025/11/23/arts/television/it-welcome-to-derry-recap-season-1-episode-5.html
+
 **They're alive! Chris Jones fires up Arrowhead crowd, helps Chiefs save season**\
 `Chiefs QB Patrick Mahomes identified a "special moment" in the Chiefs' critical win against the Colts. Jones was responsible for it.`\
 https://nytimes.com/athletic/6830900/2025/11/23/chiefs-chris-jones-patrick-mahomes-colts/

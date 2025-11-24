@@ -1,3 +1,7 @@
+**When the Lions needed someone to save the day, it was obvious who it would be**\
+`Jahmyr Gibbs ran for a career-high 219 yards and scored the game-winning touchdown in overtime with a 69-yard run.`\
+https://nytimes.com/athletic/6832347/2025/11/23/lions-jahmyr-gibbs-overtime-win-giants/
+
 **‘It: Welcome to Derry’ Season 1, Episode 5 Recap: Search and Destroy**\
 `Gen. Shaw sends troops into the sewage tunnels under Derry. The children send themselves there, too. Bad idea in both cases.`\
 https://nytimes.com/2025/11/23/arts/television/it-welcome-to-derry-recap-season-1-episode-5.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6831741/2025/11/23/wild-shutout-wallstedt-yurov-fab
 **Sunday's Caleb Williams experience: Some good, some bad, another Bears win**\
 `Williams' gaffe in the end zone almost cost the Bears, but his three touchdown passes helped get them win No. 8.`\
 https://nytimes.com/athletic/6832034/2025/11/23/bears-caleb-williams-touchdowns-errors-steelers/
-
-**Jamil Abdullah Al-Amin, Black Power Activist Known as H. Rap Brown, Dies at 82**\
-`A charismatic orator in the 1960s, he called for armed resistance to white oppression. As a Muslim cleric, he was convicted of murder in 2000 and died in detention.`\
-https://nytimes.com/2025/11/23/us/h-rap-brown-dead.html
 

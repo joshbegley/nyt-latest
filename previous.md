@@ -1,3 +1,7 @@
+**‘It: Welcome to Derry’ Season 1, Episode 5 Recap: Search and Destroy**\
+`Gen. Shaw sends troops into the sewage tunnels under Derry. The children send themselves there, too. Bad idea in both cases.`\
+https://nytimes.com/2025/11/23/arts/television/it-welcome-to-derry-recap-season-1-episode-5.html
+
 **They're alive! Chris Jones fires up Arrowhead crowd, helps Chiefs save season**\
 `Chiefs QB Patrick Mahomes identified a "special moment" in the Chiefs' critical win against the Colts. Jones was responsible for it.`\
 https://nytimes.com/athletic/6830900/2025/11/23/chiefs-chris-jones-patrick-mahomes-colts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6832034/2025/11/23/bears-caleb-williams-touchdowns-
 **Jamil Abdullah Al-Amin, Black Power Activist Known as H. Rap Brown, Dies at 82**\
 `A charismatic orator in the 1960s, he called for armed resistance to white oppression. As a Muslim cleric, he was convicted of murder in 2000 and died in detention.`\
 https://nytimes.com/2025/11/23/us/h-rap-brown-dead.html
-
-**How to watch Iowa vs. Nebraska: Time, TV, streaming**\
-`Find out how to watch the Iowa Hawkeyes play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6832236/2025/11/23/iowa-vs-nebraska-stream-how-to-watch-nov-28/
 
