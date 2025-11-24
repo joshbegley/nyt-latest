@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: U.S. Officials Are Expected to Press On With Ukraine Talks**\
+``\
+https://nytimes.com/live/2025/11/24/us/trump-news
+
+**Broncos mailbag: Should Riley Moss still start when Pat Surtain II returns?**\
+`Plus, why rookie wide receiver Pat Bryant could have a growing role in Denver's offense after his breakthrough against the Chiefs.`\
+https://nytimes.com/athletic/6829211/2025/11/24/broncos-mailbag-riley-moss-pat-bryant/
+
 **The Pulse: The best team in the NFL**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6831624/2025/11/24/rams-buccaneers-matthew-stafford-the-pulse/
