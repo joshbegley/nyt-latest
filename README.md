@@ -1,3 +1,11 @@
+**Jimmy Cliff, Jamaican Reggae Icon, Is Dead**\
+`Jimmy Cliff, the Jamaican reggae singer who helped popularize the genre around the world with songs like “You Can Get It If You Really Want” and “The Harder They Come,” has died. He was 81.`\
+https://nytimes.com/video/world/100000010544545/jimmy-cliff-dead.html
+
+**Team owner Richard Childress weighing legal action over NASCAR exec's 'insensitive' texts**\
+`The texts from NASCAR's Steve Phelps were revealed as part of discovery in the ongoing lawsuit between two teams and NASCAR.`\
+https://nytimes.com/athletic/6834379/2025/11/24/nascar-richard-childress-steve-phelps-texts/
+
 **BBC Chair Tries to Calm Political ‘Firestorm’ Over Trump Edit**\
 `Samir Shah defended Britain’s public broadcaster at a parliamentary committee hearing on Monday, while apologizing (again) for the misleading edit of a Jan. 6 speech by President Trump.`\
 https://nytimes.com/2025/11/24/world/europe/bbc-chair-tries-to-calm-political-firestorm-over-trump-edit.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6834345/2025/11/24/idrissa-gueye-everton-red-card-m
 **Elle Duncan is set to become the face of Netflix's sports coverage: Sources**\
 `Netflix has become increasingly serious about airing live sports, including NFL and MLB games.`\
 https://nytimes.com/athletic/6834307/2025/11/24/elle-duncan-netflix-hired/
-
-**Watch: How TreVeyon Henderson has helped elevate surging Patriots offense**\
-`TreVeyon Henderson has helped elevate a young Patriots offense by taking some of the pressure off QB Drake Maye.`\
-https://nytimes.com/athletic/6834520/2025/11/24/treveyon-henderson-film-breakdown-patriots/
-
-**Eagles safety Andrew Mukuba fractures his ankle in Sunday's loss**\
-`Eagles currently lead the NFC East with an 8-3 record.`\
-https://nytimes.com/athletic/6834377/2025/11/24/eagles-safety-andrew-mukuba-fractures-leg-sundays/
 
