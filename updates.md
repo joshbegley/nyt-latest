@@ -1,3 +1,7 @@
+**NFL playoff picture, Week 12: Patriots seize control of AFC; Eagles lose grip on NFC**\
+`The race for the No. 1 seeds is heating up, with two new teams sitting atop the conference standings after Sunday's slate.`\
+https://nytimes.com/athletic/6815148/2025/11/23/nfl-playoff-picture-week-12-patriots-eagles/
+
 **What we learned about the Blackhawks' growth in narrow loss to Avalanche**\
 `The Blackhawks are well past the days of appreciating moral victories, but perspective is warranted too.`\
 https://nytimes.com/athletic/6832254/2025/11/23/blackhawks-growth-dickinson-blashill-avalanche/

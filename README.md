@@ -1,3 +1,7 @@
+**Rams-Buccaneers takeaways: Matthew Stafford's 3 TD passes put LA on top of NFC**\
+`The quarterback and star receiver Davante Adams shredded Tampa Bay's defense in a 34-7 victory as LA moved to 9-2 Sunday night.`\
+https://nytimes.com/athletic/6831852/2025/11/23/buccaneers-rams-score-result-takeaways-snf/
+
 **NFL playoff picture, Week 12: Patriots seize control of AFC; Eagles lose grip on NFC**\
 `The race for the No. 1 seeds is heating up, with two new teams sitting atop the conference standings after Sunday's slate.`\
 https://nytimes.com/athletic/6815148/2025/11/23/nfl-playoff-picture-week-12-patriots-eagles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6832384/2025/11/23/falcons-saints-kirk-cousins-davi
 **When the Lions needed someone to save the day, it was obvious who it would be**\
 `Jahmyr Gibbs ran for a career-high 219 yards and scored the game-winning touchdown in overtime with a 69-yard run.`\
 https://nytimes.com/athletic/6832347/2025/11/23/lions-jahmyr-gibbs-overtime-win-giants/
-
-**‘It: Welcome to Derry’ Season 1, Episode 5 Recap: Search and Destroy**\
-`Gen. Shaw sends troops into the sewage tunnels under Derry. The children send themselves there, too. Bad idea in both cases.`\
-https://nytimes.com/2025/11/23/arts/television/it-welcome-to-derry-recap-season-1-episode-5.html
 
