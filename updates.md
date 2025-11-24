@@ -1,3 +1,7 @@
+**Scott Perry unplugged: Sacramento GM talks building for the future, trades, Doug Christie**\
+`Perry, in his first season with the Sacramento, is confident things are on the right track despite the team's rough start to the season.`\
+https://nytimes.com/athletic/6832410/2025/11/24/scott-perry-sacramento-kings-building-future/
+
 **TAFC: Whitecaps' nine-man wonder, Eze rubs salt into Spurs wounds, Ronaldo screamer**\
 `Today in TAFC: Vancouver Whitecaps get out of jail with nine men, Eze makes Spurs rue failed move, Ronaldo back at it with bicycle kick`\
 https://nytimes.com/athletic/6832929/2025/11/24/whitecaps-nine-man-eze-arsenal-ronaldo-bicycle-kick/

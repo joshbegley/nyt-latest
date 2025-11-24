@@ -1,3 +1,7 @@
+**Scott Perry unplugged: Sacramento GM talks building for the future, trades, Doug Christie**\
+`Perry, in his first season with the Sacramento, is confident things are on the right track despite the team's rough start to the season.`\
+https://nytimes.com/athletic/6832410/2025/11/24/scott-perry-sacramento-kings-building-future/
+
 **TAFC: Whitecaps' nine-man wonder, Eze rubs salt into Spurs wounds, Ronaldo screamer**\
 `Today in TAFC: Vancouver Whitecaps get out of jail with nine men, Eze makes Spurs rue failed move, Ronaldo back at it with bicycle kick`\
 https://nytimes.com/athletic/6832929/2025/11/24/whitecaps-nine-man-eze-arsenal-ronaldo-bicycle-kick/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6829485/2025/11/24/mens-college-basketball-top-25-p
 **Canadiens weekly notebook: Martin St. Louis pivots to a tough meeting**\
 `Also in this week's notebook, how a Lane Hutson risk calculation was much more detailed than it appeared in a critical situation.`\
 https://nytimes.com/athletic/6832858/2025/11/24/canadiens-weekly-notebook-martin-st-louis/
-
-**2026 WNBA mock draft: Who will Dallas Wings take with No. 1 pick?**\
-`After Sunday's draft lottery, Sabreena Merchant analyzes teams' potential first-round selections for the 2026 WNBA Draft.`\
-https://nytimes.com/athletic/6832126/2025/11/24/wnba-mock-draft-2026-dallas-wings/
 
