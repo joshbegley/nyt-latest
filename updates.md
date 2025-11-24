@@ -1,3 +1,7 @@
+**Gramma, a Galápagos Tortoise at the San Diego Zoo, Dies at About 141**\
+`She traveled through her long life at her own pace.`\
+https://nytimes.com/2025/11/24/science/gramma-galapagos-tortoise-san-diego-zoo-dies.html
+
 **NFL Week 13 odds: Thanksgiving games projected to be high-scoring duels**\
 `The three Thanksgiving games have the three highest listed point totals of Week 13.`\
 https://nytimes.com/athletic/6833702/2025/11/24/nfl-week-13-odds-chiefs-cowboys-bengals-ravens/
