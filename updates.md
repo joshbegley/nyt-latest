@@ -1,3 +1,7 @@
+**F1 has stopped trying too hard in Las Vegas, but one big issue remains**\
+`Las Vegas again put on a show for Formula One, but the race's place on the schedule remains tough on drivers`\
+https://nytimes.com/athletic/6831774/2025/11/24/f1-las-vegas-issue-remains/
+
 **A Draft or Volunteers? Russian Threat Prompts Urgent Debate in Europe.**\
 `With Russia looming, governments race to rebuild armed forces that shrank after the Cold War, grappling with hard issues of economics, politics and military strategy.`\
 https://nytimes.com/2025/11/24/business/economy/russia-ukraine-europe-military.html

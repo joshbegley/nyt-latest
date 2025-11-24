@@ -1,3 +1,7 @@
+**F1 has stopped trying too hard in Las Vegas, but one big issue remains**\
+`Las Vegas again put on a show for Formula One, but the race's place on the schedule remains tough on drivers`\
+https://nytimes.com/athletic/6831774/2025/11/24/f1-las-vegas-issue-remains/
+
 **A Draft or Volunteers? Russian Threat Prompts Urgent Debate in Europe.**\
 `With Russia looming, governments race to rebuild armed forces that shrank after the Cold War, grappling with hard issues of economics, politics and military strategy.`\
 https://nytimes.com/2025/11/24/business/economy/russia-ukraine-europe-military.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6833672/2025/11/24/blue-jackets-vs-capitals-stream-
 **How to watch Red Wings vs. Devils: Time, TV, streaming**\
 `Find out how to watch the Detroit Red Wings play the New Jersey Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6833670/2025/11/24/red-wings-vs-devils-stream-how-to-watch-nov-24/
-
-**Announcer Geoff Arnold not returning to Orioles broadcasts in 2026**\
-`Arnold was a finalist last year for the Miami Marlins primary play-by-play television job which ultimately went to Jack McMullen.`\
-https://nytimes.com/athletic/6833561/2025/11/24/geoff-arnold-orioles-broadcast/
 
