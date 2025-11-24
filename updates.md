@@ -1,3 +1,7 @@
+**Ukrainians React to Peace Plan to End Russia’s War**\
+`American and Ukrainian officials said they had made progress in Geneva on a plan to end the war with Russia. Some Ukrainians dismissed the early draft as a concession.`\
+https://nytimes.com/video/world/europe/100000010542602/ukraine-switzerland-russia-peace-talks.html
+
 **Word of the Day: bestow**\
 `This word has appeared in 73 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/11/24/learning/word-of-the-day-bestow.html
