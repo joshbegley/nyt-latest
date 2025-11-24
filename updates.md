@@ -1,3 +1,7 @@
+**Brazil Defied Trump and Won**\
+`President Trump tried to keep the former Brazilian president, Jair Bolsonaro, out of prison. He failed, and now he is moving on.`\
+https://nytimes.com/2025/11/24/world/americas/trump-bolsonaro-arrest.html
+
 **Heisman Trophy odds: Is it too late for Jeremiyah Love?**\
 `Notre Dame's Jeremiyah Love and Vanderbilt's Diego Pavia rose in the odds to win the Heisman Trophy. Is it too late for them to win?`\
 https://nytimes.com/athletic/6829643/2025/11/24/heisman-trophy-odds-jeremiyah-love-football/

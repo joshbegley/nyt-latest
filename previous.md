@@ -1,3 +1,7 @@
+**Brazil Defied Trump and Won**\
+`President Trump tried to keep the former Brazilian president, Jair Bolsonaro, out of prison. He failed, and now he is moving on.`\
+https://nytimes.com/2025/11/24/world/americas/trump-bolsonaro-arrest.html
+
 **Heisman Trophy odds: Is it too late for Jeremiyah Love?**\
 `Notre Dame's Jeremiyah Love and Vanderbilt's Diego Pavia rose in the odds to win the Heisman Trophy. Is it too late for them to win?`\
 https://nytimes.com/athletic/6829643/2025/11/24/heisman-trophy-odds-jeremiyah-love-football/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/24/nyregion/rick-cotton-port-authority-retiring.html
 **Vinicius Jr tells Madrid he won't renew while Alonso relationship remains difficult**\
 `The Brazilian's position was made clear at a meeting with Madrid president Florentino Perez after El Clasico.`\
 https://nytimes.com/athletic/6814027/2025/11/24/vinicius-jr-real-madrid-alonso-contract/
-
-**NBA Rewind: The Point God calls it a career**\
-`Who's hot (Raptors, Pistons) and not (Hornets)? Plus, NBA Cup group play sets up for a dramatic finish. `\
-https://nytimes.com/athletic/6829154/2025/11/24/nba-rewind-chris-paul-nba-cup-thunder-raptors/
 
