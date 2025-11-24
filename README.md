@@ -1,3 +1,7 @@
+**Lawsuit claims Suns owner Mat Ishbia treated team like his 'personal piggy bank'**\
+`Andy Kohlberg and Scott Seldin, minority owners of the Suns and Mercury, accused Ishbia of financial malfeasance in a new lawsuit.`\
+https://nytimes.com/athletic/6833692/2025/11/24/phoenix-suns-mercury-lawsuit-ishbia/
+
 **Does New York Need Another Luxury Grocery Store?**\
 `Meadow Lane opened to immense hype and long lines. Despite early hiccups, some New Yorkers are still eager to shop designer provisions.`\
 https://nytimes.com/2025/11/24/dining/meadow-lane-grocery-store.html
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/polls/congressional-vote-2026.html
 **Feldman's candidates to replace Justin Wilcox at Cal, from Tosh Lupoi to DeSean Jackson**\
 `Justin Wilcox is out after going 48-55 in nine season as coach at Cal. Here are possible candidates to replace him.`\
 https://nytimes.com/athletic/6834059/2025/11/24/cal-football-coaching-search-candidates/
-
-**Here’s Where Weather May Slow Your Thanksgiving Travel This Week**\
-`Some storms could make for sloppy travel before the holiday.`\
-https://nytimes.com/2025/11/24/weather/thanksgiving-forecast-snow-cold-rain.html
 

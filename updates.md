@@ -1,3 +1,11 @@
+**Does New York Need Another Luxury Grocery Store?**\
+`Meadow Lane opened to immense hype and long lines. Despite early hiccups, some New Yorkers are still eager to shop designer provisions.`\
+https://nytimes.com/2025/11/24/dining/meadow-lane-grocery-store.html
+
+**Is There a Little Wolf in Your Chihuahua?**\
+`New studies of canine genetics shed light on the diversity of dogs and our longstanding, still-evolving relationship to them.`\
+https://nytimes.com/2025/11/24/science/genetics-dogs-pets.html
+
 **Rockies name Warren Schaeffer as full-time manager**\
 `Schaeffer became the team's interim manager in May, after Colorado fired longtime manager Bud Black. `\
 https://nytimes.com/athletic/6834068/2025/11/24/rockies-warren-schaeffer-full-time-manager/
