@@ -1,3 +1,15 @@
+**Cincinnati apologizes to BYU for fans' 'religiously derogatory' chant**\
+`Numerous opposing schools have apologized to BYU after similar incidents in recent years.`\
+https://nytimes.com/athletic/6833909/2025/11/24/cincinnati-byu-apology-fans-chant/
+
+**Jair Bolsonaro Is Arrested After Tampering With Ankle Monitor**\
+`Jair Bolsonaro, the former president of Brazil who is on house arrest, told the authorities that he took a soldering iron to his ankle monitor. He was arrested days before his 27-year prison sentence was set to begin.`\
+https://nytimes.com/video/world/americas/100000010543666/jai-bolsonaro-ankle-monitor-arrest.html
+
+**Judge Dismisses Cases Against Comey and James, Finding Trump Prosecutor Was Unlawfully Appointed**\
+`The decision is a setback for Mr. Trump’s efforts to wield the criminal justice system against his perceived enemies.`\
+https://nytimes.com/2025/11/24/nyregion/james-comey-case-dismissed.html
+
 **Saints give Justin Tucker a tryout after 10-game suspension: Sources**\
 `The New Orleans Saints are inviting former Baltimore Ravens kicker Justin Tucker in for a tryout after he served his 10-game suspension. `\
 https://nytimes.com/athletic/6833812/2025/11/24/justin-tucker-saints-tryout-suspension/
