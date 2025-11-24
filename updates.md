@@ -1,3 +1,11 @@
+**‘The Beatles Anthology,’ Plus 9 Things to Watch on TV This Week**\
+`The remastered documentary series will be released, and we watch some reader recommendations, including “The Gone” and “Dark.”`\
+https://nytimes.com/2025/11/24/arts/television/beatles-anthology-tv-this-week.html
+
+**The New York Times in Print for Monday, Nov. 24, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/24/todays-new-york-times
+
 **Amass is winning hearts and minds at Wednesday. So what next at Man Utd?**\
 `The 18-year-old loanee is learning at the Championship coal face, but can he force his way into Ruben Amorim's plans?`\
 https://nytimes.com/athletic/6831444/2025/11/24/harry-amass-manchester-united-sheffield-wednesday/
