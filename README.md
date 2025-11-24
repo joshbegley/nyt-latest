@@ -1,3 +1,15 @@
+**The Briefing: Man Utd 0 Everton 1 - Amorim's side lose unbeaten run despite strange Gueye red**\
+`Laurie Whitwell analyses the main talking points from Manchester United's home defeat by Everton`\
+https://nytimes.com/athletic/6831147/2025/11/24/man-utd-everton-analysis/
+
+**Hal Steinbrenner: It's 'not fair or accurate' to say Yankees made a profit in 2025**\
+`Steinbrenner also said he would prefer to spend less money on payroll than the $319 million the Yankees paid this year. `\
+https://nytimes.com/athletic/6834242/2025/11/24/hal-steinbrenner-yankees-profitable-payroll/
+
+**Former Senator Doug Jones Enters Alabama Governor’s Race**\
+`The move sets up a possible rematch between Mr. Jones, the last Democrat to win statewide office in Alabama, and Tommy Tuberville, the Republican who ousted him from the Senate in 2020.`\
+https://nytimes.com/2025/11/24/us/politics/doug-jones-alabama-governors-race.html
+
 **Viola Fletcher, Oldest Survivor of the Tulsa Race Massacre, Dies at 111**\
 `At 7, she bore witness to one of American history’s most violent spasms of racial violence. She was 106 when the nation reckoned with the crime.`\
 https://nytimes.com/2025/11/24/us/viola-fletcher-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6834377/2025/11/24/eagles-safety-andrew-mukuba-frac
 **What does Mets' Brandon Nimmo trade mean for David Stearns' offseason?**\
 `The Mets' surprising trade of Brandon Nimmo seems to have established a theme for New York: “Anything would be realistic right now.”`\
 https://nytimes.com/athletic/6834363/2025/11/24/mets-brandon-nimmo-trade-david-stearns-offseason/
-
-**How the Peace Plan Looks to Ukraine and Russia**\
-`Our correspondents discuss the prospects for President Trump’s plan to end the war.`\
-https://nytimes.com/2025/11/24/world/peace-plan-ukraine-russia-nato-comey.html
-
-**Got Rockets questions? Submit to William Guillory for the latest mailbag**\
-`The Rockets are 10-4 entering Monday night and have the top offense in the NBA. What questions linger? What comes next? `\
-https://nytimes.com/athletic/6834472/2025/11/24/rockets-mailbag-kevin-durant-alperen-sengun/
-
-**Japanese boxing ring festooned with Blue Jays logos broke MLB's ad rules**\
-`All international sponsorships are supposed to go through the league to prevent a free-for-all. That's not what happened here. `\
-https://nytimes.com/athletic/6834248/2025/11/24/mlb-toronto-blue-jays-advertisements-boxing-match-japan/
 
