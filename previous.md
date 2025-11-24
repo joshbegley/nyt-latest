@@ -1,3 +1,7 @@
+**NHL weekend rankings: The oncoming holiday tidings of Canadian panic**\
+`South of the border, it's almost Thanksgiving. North of the border, it's almost too late.`\
+https://nytimes.com/athletic/6831735/2025/11/24/nhl-weekend-rankings-kings-blue-jackets-canadian-panic/
+
 **How the Cowboys rallied from 21-point hole: Defensive stops, big pass plays and believing**\
 `The playoffs are still a long shot, but the Cowboys know they can beat anyone after rallying past the defending champion Eagles.`\
 https://nytimes.com/athletic/6832648/2025/11/24/cowboys-comeback-dak-prescott-eagles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6832407/2025/11/24/raptors-nets-score-result-takeaw
 **How quiet offense caused Eagles to lose 21-point lead vs. Cowboys**\
 `The championship team that has done just enough, when just enough was required, collapsed in a 24-21 loss to the Dallas Cowboys.`\
 https://nytimes.com/athletic/6832625/2025/11/24/eagles-jalen-hurts-saquon-barkley-offense/
-
-**Inside the PWHL's race to expand westward as Seattle, Vancouver debut**\
-`After an offseason that radically altered the PWHL’s original six teams, the league is back with two new franchises. `\
-https://nytimes.com/athletic/6829146/2025/11/24/pwhl-expansion-seattle-torrent-vancouver-goldeneyes/
 

@@ -1,3 +1,7 @@
+**NHL weekend rankings: The oncoming holiday tidings of Canadian panic**\
+`South of the border, it's almost Thanksgiving. North of the border, it's almost too late.`\
+https://nytimes.com/athletic/6831735/2025/11/24/nhl-weekend-rankings-kings-blue-jackets-canadian-panic/
+
 **How the Cowboys rallied from 21-point hole: Defensive stops, big pass plays and believing**\
 `The playoffs are still a long shot, but the Cowboys know they can beat anyone after rallying past the defending champion Eagles.`\
 https://nytimes.com/athletic/6832648/2025/11/24/cowboys-comeback-dak-prescott-eagles/
