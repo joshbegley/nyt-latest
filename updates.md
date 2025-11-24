@@ -1,3 +1,7 @@
+**With Tom Felton as Draco Malfoy, ‘Harry Potter’ Breaks Its Own Broadway Record**\
+`The actor is now playing an adult version of the sinister child he portrayed in the film series.`\
+https://nytimes.com/2025/11/24/theater/harry-potter-tom-felton-broadway.html
+
 **Chuck Schumer Faces Pushback From a ‘Fight Club’ of Senate Democrats**\
 `A group of liberal senators is quietly challenging the minority leader over his approach to the midterms and President Trump, in a sign of the party’s deep frustration.`\
 https://nytimes.com/2025/11/24/us/politics/schumer-democrats-senate-fight-club.html

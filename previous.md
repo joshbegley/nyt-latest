@@ -1,3 +1,7 @@
+**With Tom Felton as Draco Malfoy, ‘Harry Potter’ Breaks Its Own Broadway Record**\
+`The actor is now playing an adult version of the sinister child he portrayed in the film series.`\
+https://nytimes.com/2025/11/24/theater/harry-potter-tom-felton-broadway.html
+
 **Chuck Schumer Faces Pushback From a ‘Fight Club’ of Senate Democrats**\
 `A group of liberal senators is quietly challenging the minority leader over his approach to the midterms and President Trump, in a sign of the party’s deep frustration.`\
 https://nytimes.com/2025/11/24/us/politics/schumer-democrats-senate-fight-club.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/24/briefing/comey-ukraine-cliff.html
 **‘Queen of Versailles’ to Close as New Broadway Musicals Struggle**\
 `The show, starring Kristin Chenoweth, will remain open through the holidays. The announcement comes just two weeks after the musical opened.`\
 https://nytimes.com/2025/11/24/theater/queen-of-versailles-broadway-closing.html
-
-**Jimmy Cliff, Jamaican Reggae Icon, Is Dead**\
-`Jimmy Cliff, the Jamaican reggae singer who helped popularize the genre around the world with songs like “You Can Get It If You Really Want” and “The Harder They Come,” has died. He was 81.`\
-https://nytimes.com/video/world/100000010544545/jimmy-cliff-dead.html
 
