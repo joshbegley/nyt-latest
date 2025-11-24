@@ -1,3 +1,7 @@
+**Lawsuit claims Suns owner Mat Ishbia treated team like his 'personal piggy bank'**\
+`Andy Kohlberg and Scott Seldin, minority owners of the Suns and Mercury, accused Ishbia of financial malfeasance in a new lawsuit.`\
+https://nytimes.com/athletic/6833692/2025/11/24/phoenix-suns-mercury-lawsuit-ishbia/
+
 **Does New York Need Another Luxury Grocery Store?**\
 `Meadow Lane opened to immense hype and long lines. Despite early hiccups, some New Yorkers are still eager to shop designer provisions.`\
 https://nytimes.com/2025/11/24/dining/meadow-lane-grocery-store.html
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6834068/2025/11/24/rockies-warren-schaeffer-full-ti
 `The 1972 film “The Harder They Come” and its accompanying soundtrack brought the genre out of Jamaica and helped pave the way for future stars.`\
 https://nytimes.com/2025/11/24/arts/music/jimmy-cliff-harder-they-come.html
 
-**Joe Burrow to return as Bengals' starting QB vs. Ravens**\
+**Joe Burrow is expected to return as Bengals' starting QB vs. Ravens**\
 `Since Burrow went out with turf toe, Cincinnati has gone 1-8 in games started by Jake Browning and Joe Flacco.`\
 https://nytimes.com/athletic/6834048/2025/11/24/joe-burrow-bengals-return-turf-toe/
 
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/polls/congressional-vote-2026.html
 **Feldman's candidates to replace Justin Wilcox at Cal, from Tosh Lupoi to DeSean Jackson**\
 `Justin Wilcox is out after going 48-55 in nine season as coach at Cal. Here are possible candidates to replace him.`\
 https://nytimes.com/athletic/6834059/2025/11/24/cal-football-coaching-search-candidates/
-
-**Here’s Where Weather May Slow Your Thanksgiving Travel This Week**\
-`Some storms could make for sloppy travel before the holiday.`\
-https://nytimes.com/2025/11/24/weather/thanksgiving-forecast-snow-cold-rain.html
 

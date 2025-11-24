@@ -1,3 +1,11 @@
+**Lawsuit claims Suns owner Mat Ishbia treated team like his 'personal piggy bank'**\
+`Andy Kohlberg and Scott Seldin, minority owners of the Suns and Mercury, accused Ishbia of financial malfeasance in a new lawsuit.`\
+https://nytimes.com/athletic/6833692/2025/11/24/phoenix-suns-mercury-lawsuit-ishbia/
+
+**Joe Burrow is expected to return as Bengals' starting QB vs. Ravens**\
+`Since Burrow went out with turf toe, Cincinnati has gone 1-8 in games started by Jake Browning and Joe Flacco.`\
+https://nytimes.com/athletic/6834048/2025/11/24/joe-burrow-bengals-return-turf-toe/
+
 **Does New York Need Another Luxury Grocery Store?**\
 `Meadow Lane opened to immense hype and long lines. Despite early hiccups, some New Yorkers are still eager to shop designer provisions.`\
 https://nytimes.com/2025/11/24/dining/meadow-lane-grocery-store.html
