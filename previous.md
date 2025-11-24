@@ -1,3 +1,11 @@
+**Israeli-Backed Gaza Aid Outfit Shunned by Humanitarian Groups Shuts Down**\
+`The Gaza Humanitarian Foundation said it had succeeded in delivering million of meals in the war-torn enclave, but some Palestinian were killed trying to obtain them.`\
+https://nytimes.com/2025/11/24/world/middleeast/ghf-gaza-closing.html
+
+**Yankees owner Hal Steinbrenner: 'Of course it's a concern' that Dodgers keep winning**\
+`Steinbrenner: "It’s always a concern any time I feel that one team is pulling away from the other 29, (or) selfishly, pulling away from me."`\
+https://nytimes.com/athletic/6834090/2025/11/24/yankees-hal-steinbrenner-dodgers-mlb-payroll/
+
 **Some Park Rangers Are Still Owed Pay After the Shutdown**\
 `Federal workers were guaranteed back pay once the government reopened. Some at the National Park Service are still waiting.`\
 https://nytimes.com/2025/11/24/climate/park-service-back-pay-shutdown.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6834406/2025/11/24/ucf-vs-byu-stream-how-to-watch-n
 **How to watch Kentucky vs. Louisville: Time, TV, streaming**\
 `Find out how to watch the Kentucky Wildcats play the Louisville Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6834403/2025/11/24/kentucky-vs-louisville-stream-how-to-watch-nov-29/
-
-**U.S. Again Asks New York Court to Release Epstein Grand Jury Materials**\
-`The Justice Department cited the newly passed Epstein Files Transparency Act to argue that the papers should be made public.`\
-https://nytimes.com/2025/11/24/us/politics/epstein-grand-jury-materials-release-requested.html
-
-**How to watch Miami (FL) vs. Pittsburgh: Time, TV, streaming**\
-`Find out how to watch the Miami (FL) Hurricanes play the Pittsburgh Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6834401/2025/11/24/miami-fl-vs-pittsburgh-stream-how-to-watch-nov-29/
 
