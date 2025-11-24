@@ -1,3 +1,11 @@
+**Jaguars-Cardinals takeaways: Trevor Lawrence delivers in crunch time**\
+`Trevor Lawrence delivered an up-and-down performance, completing 18 of 30 passes for 256 yards, three touchdowns, and three interceptions.`\
+https://nytimes.com/athletic/6831880/2025/11/23/jaguars-cardinals-score-result-takeaways/
+
+**Falcons-Saints takeaways: Kirk Cousins starts for Atlanta in win over New Orleans**\
+`Kirk Cousins got the start in place of Michael Penix Jr. who suffered a season-ending knee injury win Week 11.`\
+https://nytimes.com/athletic/6831916/2025/11/23/falcons-saints-score-result-takeaways/
+
 **How a bunch of unlikely standouts rescued the Bears' depleted defense**\
 `With the Bears defense hurting, the team found new playmakers and new answers on the way to their eight win.`\
 https://nytimes.com/athletic/6831909/2025/11/23/bears-defense-unlikely-standouts-steelers/

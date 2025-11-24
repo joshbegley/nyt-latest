@@ -1,3 +1,7 @@
+**Joe Flacco's admirable battle shouldn’t be lost in the Bengals' defeats**\
+`This might be the last we see of Flacco in stripes, with Joe Burrow potentially returning on Thanksgiving vs. the Ravens.`\
+https://nytimes.com/athletic/6832056/2025/11/23/joe-flacco-bengals-loss-patriots/
+
 **Jaguars-Cardinals takeaways: Trevor Lawrence delivers in crunch time**\
 `Trevor Lawrence delivered an up-and-down performance, completing 18 of 30 passes for 256 yards, three touchdowns, and three interceptions.`\
 https://nytimes.com/athletic/6831880/2025/11/23/jaguars-cardinals-score-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6831979/2025/11/23/packers-defense-micah-parsons-vi
 **What a Brandon Nimmo trade could mean for Pete Alonso and Edwin Díaz**\
 `David Stearns demonstrated that sentimentality will not be a factor in whatever the Mets do next in free agency.   `\
 https://nytimes.com/athletic/6831900/2025/11/23/what-a-brandon-nimmo-trade-could-mean-for-pete-alonso-and-edwin-diaz/
-
-**Shedeur Sanders is first Cleveland rookie QB since 1995 to win debut**\
-`Sanders showed flashes of his potential, highlighted by a rolling 52-yard completion during Cleveland’s win.`\
-https://nytimes.com/athletic/6831861/2025/11/23/browns-raiders-score-result-takeaways-shedeur-sanders-starts/
 

@@ -1,3 +1,7 @@
+**Jaguars-Cardinals takeaways: Trevor Lawrence delivers in crunch time**\
+`Trevor Lawrence delivered an up-and-down performance, completing 18 of 30 passes for 256 yards, three touchdowns, and three interceptions.`\
+https://nytimes.com/athletic/6831880/2025/11/23/jaguars-cardinals-score-result-takeaways/
+
 **How a bunch of unlikely standouts rescued the Bears' depleted defense**\
 `With the Bears defense hurting, the team found new playmakers and new answers on the way to their eight win.`\
 https://nytimes.com/athletic/6831909/2025/11/23/bears-defense-unlikely-standouts-steelers/
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/6832066/2025/11/23/new-york-jets-rebuild-baltimore-
 `Our live coverage this week includes three Thanksgiving NFL games, a Black Friday game, two Champions League matches and more`\
 https://nytimes.com/athletic/6831658/2025/11/23/the-athletic-live-coverage-thanksgiving-nfl/
 
-**Falcons-Saints takeaways: Atlanta snaps 5-game skid with win in New Orleans**\
+**Falcons-Saints takeaways: Kirk Cousins starts for Atlanta in win over New Orleans**\
 `Kirk Cousins got the start in place of Michael Penix Jr. who suffered a season-ending knee injury win Week 11.`\
 https://nytimes.com/athletic/6831916/2025/11/23/falcons-saints-score-result-takeaways/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6831900/2025/11/23/what-a-brandon-nimmo-trade-could
 **Shedeur Sanders is first Cleveland rookie QB since 1995 to win debut**\
 `Sanders showed flashes of his potential, highlighted by a rolling 52-yard completion during Cleveland’s win.`\
 https://nytimes.com/athletic/6831861/2025/11/23/browns-raiders-score-result-takeaways-shedeur-sanders-starts/
-
-**Jaxon Smith-Njigba steals the show (again) in Seahawks' win, maintaining historic pace**\
-`Nobody has been able to contain Smith-Njigba all season. Sunday was no different, and it made all the difference for Seattle in Tennessee.`\
-https://nytimes.com/athletic/6831885/2025/11/23/jsn-jaxon-smith-njigba-seahawks-titans/
 
