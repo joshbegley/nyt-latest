@@ -1,3 +1,7 @@
+**College tennis star at center of prize money lawsuit wins NCAA women's singles championship**\
+`Brantmeier, 21, is at the center of a challenge to NCAA rules over professional winnings for college athletes.`\
+https://nytimes.com/athletic/6832961/2025/11/24/college-tennis-ncaa-championship-results/
+
 **U.S. and Ukraine Expected to Press on With Peace Plan Talks**\
 `Washington and Kyiv said that “highly productive” discussions over a proposal to end the war with Russia would continue. But details remained unclear.`\
 https://nytimes.com/2025/11/24/world/europe/ukraine-zelensky-rubio-russia-peace-plan.html
