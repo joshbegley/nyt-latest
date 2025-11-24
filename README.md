@@ -1,3 +1,7 @@
+**X Displays Users’ Locations, Fueling Scrutiny Over Political Accounts**\
+`Online sleuths quickly found that some accounts posting about U.S. politics, including those in support of the MAGA movement, appeared not to be based in the United States.`\
+https://nytimes.com/2025/11/24/us/politics/x-twitter-location-maga-controversy.html
+
 **Restrained, Beaten, Asphyxiated: New York Prison Guards’ Brutality Grows**\
 `As frustrations among corrections officers mount, abusive treatment of inmates is rising and becoming more vicious, records and interviews show.`\
 https://nytimes.com/2025/11/24/nyregion/ny-prison-guards-abuse-brutality.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6831444/2025/11/24/harry-amass-manchester-united-sh
 **'This is a once in a lifetime trip, so everyone's so deflated. The performance was amateur'**\
 `The shortest Ashes Test in 104 years left travelling England fans anguished at their team's attitude and had implications, too, for Perth`\
 https://nytimes.com/athletic/6831044/2025/11/24/england-fans-perth-australia-ashes/
-
-**It is still not enough just to play women's football. You need to sell yourself within it**\
-`Is the culture surrounding the commercial and branding opportunities within women’s football more fraught than we care to admit?`\
-https://nytimes.com/athletic/6830545/2025/11/24/womens-football-branding-david-beckham-agent/
 
