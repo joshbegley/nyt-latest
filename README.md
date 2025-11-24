@@ -1,3 +1,15 @@
+**How to watch Pistons vs. Pacers: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the Indiana Pacers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6833675/2025/11/24/pistons-vs-pacers-stream-how-to-watch-nov-24/
+
+**How to watch Blue Jackets vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the Columbus Blue Jackets play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6833672/2025/11/24/blue-jackets-vs-capitals-stream-how-to-watch-nov-24/
+
+**How to watch Red Wings vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6833670/2025/11/24/red-wings-vs-devils-stream-how-to-watch-nov-24/
+
 **Announcer Geoff Arnold not returning to Orioles broadcasts in 2026**\
 `Orioles play-by-play announcer Geoff Arnold will not be returning to the team's broadcasts in 2026, a team source confirmed to The Athletic.`\
 https://nytimes.com/athletic/6833561/2025/11/24/geoff-arnold-orioles-broadcast/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6833643/2025/11/24/longwood-vs-ole-miss-stream-how-
 **Sleep Apnea Linked to Parkinson’s Disease, New Study Finds**\
 `Those with the sleep condition were more likely to develop Parkinson’s disease. But one treatment was found to help.`\
 https://nytimes.com/2025/11/24/well/mind/sleep-apnea-parkinsons-disease.html
-
-**Will Dressing Up Fix Flying? Will It Fix Anything?**\
-`Transportation Secretary Sean Duffy has introduced a campaign meant to encourage civility.`\
-https://nytimes.com/2025/11/24/style/dress-up-for-flying-sean-duffy.html
-
-**Skye Gyngell, Chef Who Championed ‘Slow Food,’ Dies at 62**\
-`The Australian pioneer of sustainable cooking practices that preserved local traditions died in London. She had been diagnosed with aggressive skin cancer last year.`\
-https://nytimes.com/2025/11/24/obituaries/skye-gyngell-dead.html
-
-**Why Canucks' loss to Flames shows they must reshape their short-term priorities**\
-`This is about a 23-game body of work in which the Canucks have sputtered and struggled in just about every phase of the game.`\
-https://nytimes.com/athletic/6832837/2025/11/24/canucks-loss-score-flames-vancouver/
 
