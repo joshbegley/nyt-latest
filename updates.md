@@ -1,3 +1,7 @@
+**Rams-Buccaneers takeaways: Matthew Stafford's 3 TD passes put LA on top of NFC**\
+`The quarterback and star receiver Davante Adams shredded Tampa Bay's defense in a 34-7 victory as LA moved to 9-2 Sunday night.`\
+https://nytimes.com/athletic/6831852/2025/11/23/buccaneers-rams-score-result-takeaways-snf/
+
 **NFL playoff picture, Week 12: Patriots seize control of AFC; Eagles lose grip on NFC**\
 `The race for the No. 1 seeds is heating up, with two new teams sitting atop the conference standings after Sunday's slate.`\
 https://nytimes.com/athletic/6815148/2025/11/23/nfl-playoff-picture-week-12-patriots-eagles/

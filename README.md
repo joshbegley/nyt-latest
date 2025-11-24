@@ -1,3 +1,7 @@
+**Fantasy football Week 12 takeaways: Jahmyr Gibbs saves Lions in bell-cow role**\
+`Michael Salfino shares his observations for Week 12, including Detroit letting Jahmyr Gibbs cook at the expense of David Montgomery.`\
+https://nytimes.com/athletic/6831509/2025/11/23/fantasy-football-week-12-takeaways-jahmyr-gibbs-saves-lions-in-bell-cow-role/
+
 **Rams-Buccaneers takeaways: Matthew Stafford's 3 TD passes put LA on top of NFC**\
 `The quarterback and star receiver Davante Adams shredded Tampa Bay's defense in a 34-7 victory as LA moved to 9-2 Sunday night.`\
 https://nytimes.com/athletic/6831852/2025/11/23/buccaneers-rams-score-result-takeaways-snf/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6831852/2025/11/23/buccaneers-rams-score-result-tak
 https://nytimes.com/athletic/6815148/2025/11/23/nfl-playoff-picture-week-12-patriots-eagles/
 
 **What we learned about the Blackhawks' growth in narrow loss to Avalanche**\
-`The Blackhawks are well past the days of appreciating moral victories, but perspective is warranted too.`\
+`The Blackhawks are well past the days of appreciating moral victories, but perspective is warranted, too.`\
 https://nytimes.com/athletic/6832254/2025/11/23/blackhawks-growth-dickinson-blashill-avalanche/
 
 **Raiders fire offensive coordinator Chip Kelly after just 11 games**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6831771/2025/11/23/colts-shane-steichen-offense-dan
 **How the Falcons completely changed their offense in one week and beat the Saints**\
 `The Falcons offense looked completely different behind Kirk Cousins than it has all season. The result was a 24-10 win over the Saints.`\
 https://nytimes.com/athletic/6832384/2025/11/23/falcons-saints-kirk-cousins-david-sills/
-
-**When the Lions needed someone to save the day, it was obvious who it would be**\
-`Jahmyr Gibbs ran for a career-high 219 yards and scored the game-winning touchdown in overtime with a 69-yard run.`\
-https://nytimes.com/athletic/6832347/2025/11/23/lions-jahmyr-gibbs-overtime-win-giants/
 
