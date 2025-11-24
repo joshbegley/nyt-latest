@@ -1,3 +1,7 @@
+**Word of the Day: bestow**\
+`This word has appeared in 73 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/11/24/learning/word-of-the-day-bestow.html
+
 **‘The Beatles Anthology,’ Plus 9 Things to Watch on TV This Week**\
 `The remastered documentary series will be released, and we watch some reader recommendations, including “The Gone” and “Dark.”`\
 https://nytimes.com/2025/11/24/arts/television/beatles-anthology-tv-this-week.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6830376/2025/11/24/the-crucial-tonali-guimaraes-swi
 **Perfect contact, a locked ankle, and Ronaldo-like dip: Dissecting Rogers' stunning free kick**\
 `The Aston Villa player's match-winning strike was superbly executed and a result of a lot of training-ground work`\
 https://nytimes.com/athletic/6831039/2025/11/24/morgan-rogers-free-kick-aston-villa/
-
-**Wolves were improved against Palace - which makes defeat even more demoralising**\
-`The new Wolves head coach must find results before January or risk being too far adrift for new signings to make any difference`\
-https://nytimes.com/athletic/6829336/2025/11/24/rob-edwards-confronted-by-the-true-scale-of-the-challenge-facing-him-at-wolves/
 
