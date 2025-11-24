@@ -1,3 +1,11 @@
+**Giants living through another nightmare season: 'It feels like it just can't be real'**\
+`The loss dropped the Giants to 2-10, giving them double-digit losses for the eighth time in the past nine seasons.`\
+https://nytimes.com/athletic/6832100/2025/11/23/giants-nightmare-season-loss-lions/
+
+**The Steelers need Aaron Rodgers more than they ever would have imagined**\
+`Sunday's loss in Chicago made the Steelers' climb toward the playoffs dangerously steep.`\
+https://nytimes.com/athletic/6832048/2025/11/23/the-steelers-need-aaron-rodgers-more-than-they-ever-would-have-imagined/
+
 **Another Yurov goal, Wallstedt shutout as Wild finally snap Winnipeg woes: Takeaways**\
 `Jesper Wallstedt's third shutout in his past four starts helped the Wild end a nine-game losing streak against the Jets.`\
 https://nytimes.com/athletic/6831741/2025/11/23/wild-shutout-wallstedt-yurov-faber-jets/

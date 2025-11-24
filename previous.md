@@ -1,3 +1,11 @@
+**Giants living through another nightmare season: 'It feels like it just can't be real'**\
+`The loss dropped the Giants to 2-10, giving them double-digit losses for the eighth time in the past nine seasons.`\
+https://nytimes.com/athletic/6832100/2025/11/23/giants-nightmare-season-loss-lions/
+
+**The Steelers need Aaron Rodgers more than they ever would have imagined**\
+`Sunday's loss in Chicago made the Steelers' climb toward the playoffs dangerously steep.`\
+https://nytimes.com/athletic/6832048/2025/11/23/the-steelers-need-aaron-rodgers-more-than-they-ever-would-have-imagined/
+
 **Another Yurov goal, Wallstedt shutout as Wild finally snap Winnipeg woes: Takeaways**\
 `Jesper Wallstedt's third shutout in his past four starts helped the Wild end a nine-game losing streak against the Jets.`\
 https://nytimes.com/athletic/6831741/2025/11/23/wild-shutout-wallstedt-yurov-faber-jets/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6832229/2025/11/23/ole-miss-vs-mississippi-state-st
 **How to watch Georgia vs. Georgia Tech: Time, TV, streaming**\
 `Find out how to watch the Georgia Bulldogs play the Georgia Tech Yellow Jackets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6832227/2025/11/23/georgia-vs-georgia-tech-stream-how-to-watch-nov-28/
-
-**How to watch Texas A&M vs. Texas: Time, TV, streaming**\
-`Find out how to watch the Texas A&M Aggies play the Texas Longhorns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6832225/2025/11/23/texas-a-m-vs-texas-stream-how-to-watch-nov-28/
-
-**How to watch Temple vs. North Texas: Time, TV, streaming**\
-`Find out how to watch the Temple Owls play the North Texas Mean Green, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6832223/2025/11/23/temple-vs-north-texas-stream-how-to-watch-nov-28/
 
