@@ -1,3 +1,11 @@
+**Colts, Shane Steichen fail to meet the moment as offense sputters in loss to Chiefs**\
+`With his offense struggling, Steichen neglected the run for the pass and effectively shelved his best player: Jonathan Taylor. `\
+https://nytimes.com/athletic/6831771/2025/11/23/colts-shane-steichen-offense-daniel-jones-fail-chiefs/
+
+**How the Falcons completely changed their offense in one week and beat the Saints**\
+`The Falcons offense looked completely different behind Kirk Cousins than it has all season. The result was a 24-10 win over the Saints.`\
+https://nytimes.com/athletic/6832384/2025/11/23/how-the-falcons-completely-changed-their-offense-in-one-week-and-beat-the-saints/
+
 **When the Lions needed someone to save the day, it was obvious who it would be**\
 `Jahmyr Gibbs ran for a career-high 219 yards and scored the game-winning touchdown in overtime with a 69-yard run.`\
 https://nytimes.com/athletic/6832347/2025/11/23/lions-jahmyr-gibbs-overtime-win-giants/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6832048/2025/11/23/the-steelers-need-aaron-rodgers-
 **2025 NFL Playoff Simulator: Each team’s updated path to the postseason after Week 12 results**\
 `<p>Welcome to The Athletic’s 2025 NFL Playoff Simulator, where you’ll find everything you need to know about all the ways your favorite team&#8217;s season could end, from a No.`\
 https://nytimes.com/athletic/6513952/2025/11/23/2025-nfl-playoff-simulator-path-postseason/
-
-**Another Yurov goal, Wallstedt shutout as Wild finally snap Winnipeg woes: Takeaways**\
-`Jesper Wallstedt's third shutout in his past four starts helped the Wild end a nine-game losing streak against the Jets.`\
-https://nytimes.com/athletic/6831741/2025/11/23/wild-shutout-wallstedt-yurov-faber-jets/
-
-**Sunday's Caleb Williams experience: Some good, some bad, another Bears win**\
-`Williams' gaffe in the end zone almost cost the Bears, but his three touchdown passes helped get them win No. 8.`\
-https://nytimes.com/athletic/6832034/2025/11/23/bears-caleb-williams-touchdowns-errors-steelers/
 
