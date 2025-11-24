@@ -1,3 +1,7 @@
+**Heisman Trophy odds: Is it too late for Jeremiyah Love?**\
+`Notre Dame's Jeremiyah Love and Vanderbilt's Diego Pavia rose in the odds to win the Heisman Trophy. Is it too late for them to win?`\
+https://nytimes.com/athletic/6829643/2025/11/24/heisman-trophy-odds-jeremiyah-love-football/
+
 **Alma Allen, American Sculptor, Is Selected for Venice Biennale**\
 `The choice of a relatively unknown artist based in Mexico City ends a chaotic, much-delayed selection process led by the State Department.`\
 https://nytimes.com/2025/11/24/arts/design/alma-allen-venice-biennale.html

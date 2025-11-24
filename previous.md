@@ -1,3 +1,7 @@
+**Heisman Trophy odds: Is it too late for Jeremiyah Love?**\
+`Notre Dame's Jeremiyah Love and Vanderbilt's Diego Pavia rose in the odds to win the Heisman Trophy. Is it too late for them to win?`\
+https://nytimes.com/athletic/6829643/2025/11/24/heisman-trophy-odds-jeremiyah-love-football/
+
 **Alma Allen, American Sculptor, Is Selected for Venice Biennale**\
 `The choice of a relatively unknown artist based in Mexico City ends a chaotic, much-delayed selection process led by the State Department.`\
 https://nytimes.com/2025/11/24/arts/design/alma-allen-venice-biennale.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6814027/2025/11/24/vinicius-jr-real-madrid-alonso-c
 **NBA Rewind: The Point God calls it a career**\
 `Who's hot (Raptors, Pistons) and not (Hornets)? Plus, NBA Cup group play sets up for a dramatic finish. `\
 https://nytimes.com/athletic/6829154/2025/11/24/nba-rewind-chris-paul-nba-cup-thunder-raptors/
-
-**Guardiola apologises for cameraman clash after Newcastle game: 'I feel embarrassed'**\
-`Guardiola was seen lifting the cameraman’s headphones and speaking to him as the operator filmed him on the pitch after the 2-1 defeat.`\
-https://nytimes.com/athletic/6833317/2025/11/24/manchester-city-pep-guardiola-cameraman-newcastle/
 
