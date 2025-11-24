@@ -1,3 +1,7 @@
+**TAFC: Whitecaps' nine-man wonder, Eze rubs salt into Spurs wounds, Ronaldo screamer**\
+`Today in TAFC: Vancouver Whitecaps get out of jail with nine men, Eze makes Spurs rue failed move, Ronaldo back at it with bicycle kick`\
+https://nytimes.com/athletic/6832929/2025/11/24/whitecaps-nine-man-eze-arsenal-ronaldo-bicycle-kick/
+
 **Shedeur Sanders showed enough talent, composure that Browns need to start him next week**\
 `Sanders' supporters will cite the win and his passing yards. Detractors will see a low completion rate versus a bad team. But he succeeded.`\
 https://nytimes.com/athletic/6832605/2025/11/24/shedeur-sanders-browns-raiders-first-start-kevin-stefanski/
