@@ -1,3 +1,7 @@
+**Wizards rookie Tre Johnson sidelined by hip flexor strain**\
+`The sixth pick in the 2025 NBA Draft has made nearly 40 percent of his 3-point attempts. `\
+https://nytimes.com/athletic/6834039/2025/11/24/nba-wizards-rookie-tre-johnson-injury/
+
 **Lacey named in Man Utd matchday squad for first time**\
 `The 18-year-old signed his first professional contract at the club last year and has been training regularly with the first-team squad.`\
 https://nytimes.com/athletic/6833496/2025/11/24/shea-lacey-manchester-united-first-matchday-squad/
@@ -33,8 +37,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010544239/lacey-chaber
 **Cincinnati apologizes to BYU for fans' 'religiously derogatory' chant**\
 `Numerous opposing schools have apologized to BYU after similar incidents in recent years.`\
 https://nytimes.com/athletic/6833909/2025/11/24/cincinnati-byu-apology-fans-chant/
-
-**Jair Bolsonaro Is Arrested After Tampering With Ankle Monitor**\
-`Jair Bolsonaro, the former president of Brazil who is on house arrest, told the authorities that he took a soldering iron to his ankle monitor. He was arrested days before his 27-year prison sentence was set to begin.`\
-https://nytimes.com/video/world/americas/100000010543666/jai-bolsonaro-ankle-monitor-arrest.html
 
