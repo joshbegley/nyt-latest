@@ -1,3 +1,7 @@
+**Here’s Where Weather May Slow Your Thanksgiving Travel This Week**\
+`Some storms could make for sloppy travel before the holiday.`\
+https://nytimes.com/2025/11/24/weather/thanksgiving-forecast-snow-cold-rain.html
+
 **Gramma, a Galápagos Tortoise at the San Diego Zoo, Dies at About 141**\
 `She traveled through her long life at her own pace.`\
 https://nytimes.com/2025/11/24/science/gramma-galapagos-tortoise-san-diego-zoo-dies.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6834039/2025/11/24/nba-wizards-rookie-tre-johnson-i
 **Lacey named in Man Utd matchday squad for first time**\
 `The 18-year-old signed his first professional contract at the club last year and has been training regularly with the first-team squad.`\
 https://nytimes.com/athletic/6833496/2025/11/24/shea-lacey-manchester-united-first-matchday-squad/
-
-**Arizona, Alabama, Michigan State rise in AP Top 25, while Kansas drops out: Key takeaways**\
-`It didn't take long for the Hoosiers to return to the poll under first-year coach Darian DeVries.`\
-https://nytimes.com/athletic/6833943/2025/11/24/ap-mens-basketball-top-25-arizona-kansas-indiana/
 

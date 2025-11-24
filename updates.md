@@ -1,3 +1,7 @@
+**Here’s Where Weather May Slow Your Thanksgiving Travel This Week**\
+`Some storms could make for sloppy travel before the holiday.`\
+https://nytimes.com/2025/11/24/weather/thanksgiving-forecast-snow-cold-rain.html
+
 **Gramma, a Galápagos Tortoise at the San Diego Zoo, Dies at About 141**\
 `She traveled through her long life at her own pace.`\
 https://nytimes.com/2025/11/24/science/gramma-galapagos-tortoise-san-diego-zoo-dies.html
