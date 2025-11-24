@@ -1,3 +1,11 @@
+**Chauncey Billups, N.B.A. Coach in Gambling Case, Pleads Not Guilty**\
+`A hearing in Brooklyn was packed as Mr. Billups and 30 other defendants answered charges in a sweeping federal indictment involving rigged poker games.`\
+https://nytimes.com/2025/11/24/nyregion/nba-billups-gambling-plea.html
+
+**QB Jayden Daniels, WR Noah Brown to return to practice for Commanders: Sources**\
+`Daniels' status for Sunday’s game again the Denver Broncos isn’t set, but at this point, he’s considered a long shot to be available.`\
+https://nytimes.com/athletic/6834137/2025/11/24/jayden-daniels-commanders-practice-dislocated-elbow/
+
 **Lawsuit claims Suns owner Mat Ishbia treated team like his 'personal piggy bank'**\
 `Andy Kohlberg and Scott Seldin, minority owners of the Suns and Mercury, accused Ishbia of financial malfeasance in a new lawsuit.`\
 https://nytimes.com/athletic/6833692/2025/11/24/phoenix-suns-mercury-lawsuit-ishbia/

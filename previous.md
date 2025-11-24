@@ -1,3 +1,11 @@
+**Chauncey Billups, N.B.A. Coach in Gambling Case, Pleads Not Guilty**\
+`A hearing in Brooklyn was packed as Mr. Billups and 30 other defendants answered charges in a sweeping federal indictment involving rigged poker games.`\
+https://nytimes.com/2025/11/24/nyregion/nba-billups-gambling-plea.html
+
+**QB Jayden Daniels, WR Noah Brown to return to practice for Commanders: Sources**\
+`Daniels' status for Sunday’s game again the Denver Broncos isn’t set, but at this point, he’s considered a long shot to be available.`\
+https://nytimes.com/athletic/6834137/2025/11/24/jayden-daniels-commanders-practice-dislocated-elbow/
+
 **Lawsuit claims Suns owner Mat Ishbia treated team like his 'personal piggy bank'**\
 `Andy Kohlberg and Scott Seldin, minority owners of the Suns and Mercury, accused Ishbia of financial malfeasance in a new lawsuit.`\
 https://nytimes.com/athletic/6833692/2025/11/24/phoenix-suns-mercury-lawsuit-ishbia/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6834048/2025/11/24/joe-burrow-bengals-return-turf-t
 **NFL overreaction Monday: To fade or not to fade Shedeur Sanders**\
 `Toby Mergler's betting picks for the week are all about the quarterbacks, and going against his own instincts.`\
 https://nytimes.com/athletic/6834038/2025/11/24/nfl-overreaction-monday-mccarthy-sanders/
-
-**Control of Congress 2026: Latest Polls**\
-`Track the latest congressional ballot surveys that ask who Americans plan to vote for in the 2026 midterm election.`\
-https://nytimes.com/interactive/polls/congressional-vote-2026.html
-
-**Feldman's candidates to replace Justin Wilcox at Cal, from Tosh Lupoi to DeSean Jackson**\
-`Justin Wilcox is out after going 48-55 in nine season as coach at Cal. Here are possible candidates to replace him.`\
-https://nytimes.com/athletic/6834059/2025/11/24/cal-football-coaching-search-candidates/
 
