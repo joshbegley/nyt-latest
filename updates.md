@@ -1,3 +1,11 @@
+**Fantasy football Week 12 takeaways: Jahmyr Gibbs saves Lions in bell-cow role**\
+`Michael Salfino shares his observations for Week 12, including Detroit letting Jahmyr Gibbs cook at the expense of David Montgomery.`\
+https://nytimes.com/athletic/6831509/2025/11/23/fantasy-football-week-12-takeaways-jahmyr-gibbs-saves-lions-in-bell-cow-role/
+
+**What we learned about the Blackhawks' growth in narrow loss to Avalanche**\
+`The Blackhawks are well past the days of appreciating moral victories, but perspective is warranted, too.`\
+https://nytimes.com/athletic/6832254/2025/11/23/blackhawks-growth-dickinson-blashill-avalanche/
+
 **Rams-Buccaneers takeaways: Matthew Stafford's 3 TD passes put LA on top of NFC**\
 `The quarterback and star receiver Davante Adams shredded Tampa Bay's defense in a 34-7 victory as LA moved to 9-2 Sunday night.`\
 https://nytimes.com/athletic/6831852/2025/11/23/buccaneers-rams-score-result-takeaways-snf/

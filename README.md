@@ -1,3 +1,7 @@
+**Cardinals had a chance to win in OT on Sunday — you might've missed how that went**\
+`With Sunday's game on the line, many stood in anticipation. But a good portion of the crowd had already left, eager to beat traffic.`\
+https://nytimes.com/athletic/6832436/2025/11/23/cardinals-jaguars-overtime-jacoby-brissett-loss/
+
 **Fantasy football Week 12 takeaways: Jahmyr Gibbs saves Lions in bell-cow role**\
 `Michael Salfino shares his observations for Week 12, including Detroit letting Jahmyr Gibbs cook at the expense of David Montgomery.`\
 https://nytimes.com/athletic/6831509/2025/11/23/fantasy-football-week-12-takeaways-jahmyr-gibbs-saves-lions-in-bell-cow-role/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6832253/2025/11/23/chiefs-colts-patrick-mahomes-nfl
 **Colts, Shane Steichen fail to meet the moment as offense wilts in loss to Chiefs**\
 `With his offense struggling, Steichen neglected the run for the pass and effectively shelved his best player: Jonathan Taylor. `\
 https://nytimes.com/athletic/6831771/2025/11/23/colts-shane-steichen-offense-daniel-jones-fail-chiefs/
-
-**How the Falcons completely changed their offense in one week and beat the Saints**\
-`The Falcons offense looked completely different behind Kirk Cousins than it has all season. The result was a 24-10 win over the Saints.`\
-https://nytimes.com/athletic/6832384/2025/11/23/falcons-saints-kirk-cousins-david-sills/
 
