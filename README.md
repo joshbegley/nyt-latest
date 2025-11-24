@@ -1,3 +1,7 @@
+**What we learned about the Blackhawks' growth in narrow loss to Avalanche**\
+`The Blackhawks are well past the days of appreciating moral victories, but perspective is warranted too.`\
+https://nytimes.com/athletic/6832254/2025/11/23/blackhawks-growth-dickinson-blashill-avalanche/
+
 **Raiders fire offensive coordinator Chip Kelly after just 11 games**\
 `The Raiders made Kelly the highest-paid offensive coordinator in the league this offseason. He lasted 11 games.`\
 https://nytimes.com/athletic/6832547/2025/11/23/chip-kelly-fired-raiders-offensive-coordinator/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/23/arts/television/it-welcome-to-derry-recap-season-
 **They're alive! Chris Jones fires up Arrowhead crowd, helps Chiefs save season**\
 `Chiefs QB Patrick Mahomes identified a "special moment" in the Chiefs' critical win against the Colts. Jones was responsible for it.`\
 https://nytimes.com/athletic/6830900/2025/11/23/chiefs-chris-jones-patrick-mahomes-colts/
-
-**J.J. McCarthy’s historically bad start continues, rest of Vikings follow suit vs. Packers**\
-`The Vikings' "razor-thin margin for error" with McCarthy at quarterback has not been a recipe for success this season.`\
-https://nytimes.com/athletic/6832004/2025/11/23/vikings-packers-jj-mccarthy-history/
 
