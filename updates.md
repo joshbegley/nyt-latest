@@ -1,3 +1,7 @@
+**Shedeur Sanders showed enough talent, composure that Browns need to start him next week**\
+`Sanders' supporters will cite the win and his passing yards. Detractors will see a low completion rate versus a bad team. But he succeeded.`\
+https://nytimes.com/athletic/6832605/2025/11/24/shedeur-sanders-browns-raiders-first-start-kevin-stefanski/
+
 **NHL weekend rankings: The oncoming holiday tidings of Canadian panic**\
 `South of the border, it's almost Thanksgiving. North of the border, it's almost too late.`\
 https://nytimes.com/athletic/6831735/2025/11/24/nhl-weekend-rankings-kings-blue-jackets-canadian-panic/

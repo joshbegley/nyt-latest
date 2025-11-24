@@ -1,3 +1,7 @@
+**Shedeur Sanders showed enough talent, composure that Browns need to start him next week**\
+`Sanders' supporters will cite the win and his passing yards. Detractors will see a low completion rate versus a bad team. But he succeeded.`\
+https://nytimes.com/athletic/6832605/2025/11/24/shedeur-sanders-browns-raiders-first-start-kevin-stefanski/
+
 **NHL weekend rankings: The oncoming holiday tidings of Canadian panic**\
 `South of the border, it's almost Thanksgiving. North of the border, it's almost too late.`\
 https://nytimes.com/athletic/6831735/2025/11/24/nhl-weekend-rankings-kings-blue-jackets-canadian-panic/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6832126/2025/11/24/wnba-mock-draft-2026-dallas-wing
 **The Toronto Raptors' hot start: to believe or not to believe?**\
 `The Raptors' starters are improving and cohesion is obvious, but will their hot start continue if their opponents start to make 3s?`\
 https://nytimes.com/athletic/6832407/2025/11/24/raptors-nets-score-result-takeaways-ingram-quickley-barrett/
-
-**How quiet offense caused Eagles to lose 21-point lead vs. Cowboys**\
-`The championship team that has done just enough, when just enough was required, collapsed in a 24-21 loss to the Dallas Cowboys.`\
-https://nytimes.com/athletic/6832625/2025/11/24/eagles-jalen-hurts-saquon-barkley-offense/
 
