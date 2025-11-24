@@ -1,3 +1,7 @@
+**Cal fires Justin Wilcox, names ex-Wazzu coach Nick Rolovich interim: Sources**\
+`In Wilcox's nine years in Berkeley, the Bears never won more than seven games in the regular season.`\
+https://nytimes.com/athletic/6831863/2025/11/23/justin-wilcox-fired-nick-rolovich-cal-football/
+
 **Giants become first NFL team in 2025 to be eliminated from postseason contention**\
 `Owners of the worst record in the NFC, the Giants have already fired their coach and are on their third starting QB of the season.`\
 https://nytimes.com/athletic/6831801/2025/11/23/ny-giants-eliminated-playoffs-week-12/
