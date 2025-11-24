@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6831885/2025/11/23/jsn-jaxon-smith-njigba-seahawks-
 `The former anchor, Stephanie Hockridge, who once worked for a Phoenix station, participated in an elaborate scheme that illegally obtained more than $63 million.`\
 https://nytimes.com/2025/11/23/us/phoenix-news-anchor-covid-fraud.html
 
-**Dallas Wings win WNBA Draft lottery again: Who will join Paige Bueckers?**\
+**Dallas Wings win WNBA Draft Lottery again: Who will join Paige Bueckers?**\
 `The Minnesota Lynx land the No. 2 pick, and the Seattle Storm won the third selection. The Mystics are No. 4 and the Sky No. 5.`\
 https://nytimes.com/athletic/6831951/2025/11/23/wnba-draft-lottery-dallas-wings-win-no-1-pick/
 

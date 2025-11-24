@@ -1,3 +1,7 @@
+**Dallas Wings win WNBA Draft lottery again: Who will join Paige Bueckers?**\
+`The Minnesota Lynx land the No. 2 pick, and the Seattle Storm won the third selection. The Mystics are No. 4 and the Sky No. 5.`\
+https://nytimes.com/athletic/6831951/2025/11/23/wnba-draft-lottery-dallas-wings-win-no-1-pick/
+
 **What a Brandon Nimmo trade could mean for Pete Alonso and Edwin Díaz**\
 `David Stearns demonstrated that sentimentality will not be a factor in whatever the Mets do next in free agency.   `\
 https://nytimes.com/athletic/6831900/2025/11/23/what-a-brandon-nimmo-trade-could-mean-for-pete-alonso-and-edwin-diaz/
