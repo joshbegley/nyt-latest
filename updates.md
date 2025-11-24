@@ -1,3 +1,7 @@
+**Man Is Killed in Early Morning Stabbing Near Times Square**\
+`It was the second murder in Midtown in roughly 24 hours. The attack came about a week after Kris Boyd, a player for the New York Jets, was shot in the area.`\
+https://nytimes.com/2025/11/24/nyregion/midtown-manhattan-stabbing.html
+
 **Yes, We Must Talk About Epstein**\
 `Readers strongly object to David Brooks’s argument that we should focus on more important issues. Also: Firings at the National Endowment for the Humanities.`\
 https://nytimes.com/2025/11/24/opinion/jeffrey-epstein-david-brooks.html
