@@ -1,3 +1,15 @@
+**Jimmy Cliff, Jamaican Reggae Icon, Is Dead**\
+`Jimmy Cliff, the Jamaican reggae singer who helped popularize the genre around the world with songs like “You Can Get It If You Really Want” and “The Harder They Come,” has died. He was 81.`\
+https://nytimes.com/video/world/100000010544545/jimmy-cliff-dead.html
+
+**Team owner Richard Childress weighing legal action over NASCAR exec's 'insensitive' texts**\
+`The texts from NASCAR's Steve Phelps were revealed as part of discovery in the ongoing lawsuit between two teams and NASCAR.`\
+https://nytimes.com/athletic/6834379/2025/11/24/nascar-richard-childress-steve-phelps-texts/
+
+**BBC Chair Tries to Calm Political ‘Firestorm’ Over Trump Edit**\
+`Samir Shah defended Britain’s public broadcaster at a parliamentary committee hearing on Monday, while apologizing (again) for the misleading edit of a Jan. 6 speech by President Trump.`\
+https://nytimes.com/2025/11/24/world/europe/bbc-chair-tries-to-calm-political-firestorm-over-trump-edit.html
+
 **The Briefing: Man Utd 0 Everton 1 - Amorim's side lose unbeaten run despite strange Gueye red**\
 `Laurie Whitwell analyses the main talking points from Manchester United's home defeat by Everton`\
 https://nytimes.com/athletic/6831147/2025/11/24/man-utd-everton-analysis/
