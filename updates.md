@@ -1,3 +1,11 @@
+**Ranking the Premier League's top-10 hat-tricks**\
+`Eberechi Eze scored the Premier League's 400th hat-trick at the weekend. But which ones were the best?`\
+https://nytimes.com/athletic/6831505/2025/11/24/premier-league-hat-tricks-ranked/
+
+**How Do Ultraprocessed Foods Affect the Gut?**\
+`Studies have linked them to colorectal cancer and other digestive conditions.`\
+https://nytimes.com/2025/11/24/well/eat/ultraprocessed-foods-gut-health-colorectal-cancer.html
+
 **Rick Cotton, Head of the Port Authority, Is Stepping Down**\
 `Mr. Cotton oversaw the rebuilding of LaGuardia Airport and several other major infrastructure projects in the New York City region.`\
 https://nytimes.com/2025/11/24/nyregion/rick-cotton-port-authority-retiring.html

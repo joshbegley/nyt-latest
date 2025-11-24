@@ -1,3 +1,7 @@
+**In Michigan’s Upper Peninsula, Locals Fight for ‘The Right to Night’**\
+`Industrialization in the mostly rural northern part of the state has some residents pushing for protection of the region’s dark skies.`\
+https://nytimes.com/2025/11/24/science/astronomy-michigan-dark-sky.html
+
 **Ranking the Premier League's top-10 hat-tricks**\
 `Eberechi Eze scored the Premier League's 400th hat-trick at the weekend. But which ones were the best?`\
 https://nytimes.com/athletic/6831505/2025/11/24/premier-league-hat-tricks-ranked/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/24/pageoneplus/corrections-nov-22-2025.html
 **This ‘All My Sons’ Is Tragedy Done Right**\
 `Arthur Miller and Ivo van Hove are a perfect match again, in a new production starring Bryan Cranston and Paapa Essiedu.`\
 https://nytimes.com/2025/11/24/theater/all-my-sons-ivo-van-hove-london.html
-
-**Has UCLA played its last game at Rose Bowl? Regulars from Lot H dread rupture of tradition**\
-`UCLA says no decision has been made but has said its Rose Bowl lease hampers capitalizing on revenue streams amid financial pressures.`\
-https://nytimes.com/athletic/6832435/2025/11/24/rose-bowl-ucla-football-last-game/
 
