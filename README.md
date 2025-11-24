@@ -1,3 +1,7 @@
+**BBC Chair Tries to Calm Political ‘Firestorm’ Over Trump Edit**\
+`Samir Shah defended Britain’s public broadcaster at a parliamentary committee hearing on Monday, while apologizing (again) for the misleading edit of a Jan. 6 speech by President Trump.`\
+https://nytimes.com/2025/11/24/world/europe/bbc-chair-tries-to-calm-political-firestorm-over-trump-edit.html
+
 **The Briefing: Man Utd 0 Everton 1 - Amorim's side lose unbeaten run despite strange Gueye red**\
 `Laurie Whitwell analyses the main talking points from Manchester United's home defeat by Everton`\
 https://nytimes.com/athletic/6831147/2025/11/24/man-utd-everton-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6834520/2025/11/24/treveyon-henderson-film-breakdow
 **Eagles safety Andrew Mukuba fractures his ankle in Sunday's loss**\
 `Eagles currently lead the NFC East with an 8-3 record.`\
 https://nytimes.com/athletic/6834377/2025/11/24/eagles-safety-andrew-mukuba-fractures-leg-sundays/
-
-**What does Mets' Brandon Nimmo trade mean for David Stearns' offseason?**\
-`The Mets' surprising trade of Brandon Nimmo seems to have established a theme for New York: “Anything would be realistic right now.”`\
-https://nytimes.com/athletic/6834363/2025/11/24/mets-brandon-nimmo-trade-david-stearns-offseason/
 
