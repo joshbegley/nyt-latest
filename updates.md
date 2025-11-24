@@ -1,3 +1,15 @@
+**Bundesliga Briefing: Bayern’s ferocious form, fan silence, and ‘Robby’ the rogue lawnmower**\
+`This weekend also saw goals galore in Dortmund and Cologne, an unwanted record for St. Pauli, and an Indonesian making a mark at Gladbach`\
+https://nytimes.com/athletic/6832955/2025/11/24/bundesliga-bayern-munich-borussia-dortmund-leipzig/
+
+**FPL Gameweek 12 review: Minteh magic, Semenyo no-show and Eze dilemma**\
+`From an illness-related no-show to a north London derby hat-trick, there’s plenty to unpack across a fresh wave of FPL talking points `\
+https://nytimes.com/athletic/6831519/2025/11/24/fantasy-premier-league-gameweek-12-review-eze-semenyo-minteh/
+
+**Ten thoughts on Michigan ahead of Ohio State: Why the Wolverines are (and aren't ) ready**\
+`Here are 10 thoughts wrapping up No. 18 Michigan’s 45-20 victory against Maryland and opening the floodgates on rivalry week.`\
+https://nytimes.com/athletic/6831231/2025/11/24/michigan-maryland-football-ohio-state/
+
 **John Green on Anxiety, Hope and His Next Book**\
 `The writer and YouTube star talks with David Marchese about trying to get back to the experiences that make us feel alive.`\
 https://nytimes.com/video/podcasts/100000010543143/john-green-on-anxiety-hope-and-his-next-book.html
