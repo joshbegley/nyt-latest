@@ -1,40 +1,40 @@
-**Scott Perry unplugged: Sacramento GM talks building for the future, trades, Doug Christie**\
-`Perry, in his first season with the Sacramento, is confident things are on the right track despite the team's rough start to the season.`\
-https://nytimes.com/athletic/6832410/2025/11/24/scott-perry-sacramento-kings-building-future/
+**Wild insider: 'Foligno Faceoff' brings fan involvement to brotherly competition**\
+`Plus: professional volleyball is on its way to Grand Casino Arena and two rookies enjoying NHL travel.`\
+https://nytimes.com/athletic/6831060/2025/11/24/wild-foligno-faceoff-leipold-volleyball-yurov/
 
-**TAFC: Whitecaps' nine-man wonder, Eze rubs salt into Spurs wounds, Ronaldo screamer**\
-`Today in TAFC: Vancouver Whitecaps get out of jail with nine men, Eze makes Spurs rue failed move, Ronaldo back at it with bicycle kick`\
-https://nytimes.com/athletic/6832929/2025/11/24/whitecaps-nine-man-eze-arsenal-ronaldo-bicycle-kick/
+**Nine thoughts on the Mets' jarring Brandon Nimmo-Marcus Semien trade**\
+`Nimmo leaves a solid if not everlasting legacy with the Mets, but Semien is a sparkling defender at an up-the-middle spot at second base.`\
+https://nytimes.com/athletic/6832606/2025/11/24/mets-brandon-nimmo-marcus-semien-trade-thoughts/
 
-**Shedeur Sanders showed enough talent, composure that Browns need to start him next week**\
-`Sanders' supporters will cite the win and his passing yards. Detractors will see a low completion rate versus a bad team. But he succeeded.`\
-https://nytimes.com/athletic/6832605/2025/11/24/shedeur-sanders-browns-raiders-first-start-kevin-stefanski/
+**Matthew Stafford is playing with MVP chops — and something deeper, too**\
+`As the Rams embarrassed the NFC South-leading Buccaneers on Sunday night, every part of Stafford's game was on full display.`\
+https://nytimes.com/athletic/6833030/2025/11/24/matthew-stafford-mvp-rams/
 
-**NHL weekend rankings: The oncoming holiday tidings of Canadian panic**\
-`South of the border, it's almost Thanksgiving. North of the border, it's almost too late.`\
-https://nytimes.com/athletic/6831735/2025/11/24/nhl-weekend-rankings-kings-blue-jackets-canadian-panic/
+**Women's college basketball power rankings: Don't take your eyes off Michigan**\
+`Ben Pickman ranks the top 25 and explains his picks.`\
+https://nytimes.com/athletic/6832318/2025/11/24/womens-college-basketball-power-rankings-michigan/
 
-**How the Cowboys rallied from 21-point hole: Defensive stops, big pass plays and believing**\
-`The playoffs are still a long shot, but the Cowboys know they can beat anyone after rallying past the defending champion Eagles.`\
-https://nytimes.com/athletic/6832648/2025/11/24/cowboys-comeback-dak-prescott-eagles/
+**Matt Patricia made Ohio State's defense even better. Can he conquer the Big House next?**\
+`After a rough tenure as coach of the Detroit Lions, Patricia is returning to Michigan as coordinator of Ohio State's top-ranked defense.`\
+https://nytimes.com/athletic/6831196/2025/11/24/matt-patricia-ohio-state-michigan-detroit/
 
-**‘Little bit of stupidity’: Penalties are costing the Bruins points**\
-`The Bruins have taken 22 more minor penalties than the next-highest NHL team. It's taking a toll on their play.`\
-https://nytimes.com/athletic/6832660/2025/11/24/bruins-penalties-offense-sturm-sharks/
+**Monday Morning Leafs Report: The status quo is becoming untenable**\
+`The Leafs are last in the Eastern Conference. Even as players return from injury, how much runway do they have to turn it around?`\
+https://nytimes.com/athletic/6831042/2025/11/24/maple-leafs-berube-treliving-status-quo/
 
-**Panthers at 49ers on MNF: Christian McCaffrey Bowl features two NFC playoff hopefuls**\
-`CMC faces his old team for the first time. Here's your "Monday Night Football" warmup ahead of tonight's Panthers-Niners game.`\
-https://nytimes.com/athletic/6824865/2025/11/24/panthers-49ers-mnf-christian-mccaffrey-how-to-watch/
+**One year after Chris Drury's ill-fated memo, New York Rangers remain stuck in neutral**\
+`After a season spent shaking up the Rangers roster, solutions still don't seem in ready supply.`\
+https://nytimes.com/athletic/6831506/2025/11/24/new-york-rangers-chris-drury-roster-miller/
 
-**The Athletic 136: Contenders getting crowded after Week 13**\
-`The teams at the very top and very bottom of our FBS rankings are running out of time to make big statements.`\
-https://nytimes.com/athletic/6832423/2025/11/24/college-football-team-rankings-oregon-oklahoma/
+**Message Board Monday: Ole Miss fans, how ya feeling? Pick a Lane**\
+`Approximately 97 percent of Ole Mans fans presume Kiffin is gone and wish him ill in his future travels.`\
+https://nytimes.com/athletic/6831378/2025/11/24/lane-kiffin-ole-miss-coach-lsu-florida/
 
-**Men's college basketball Top 25: Purdue, Arizona affirm status as 1-2 before loaded Feast Week**\
-`As many as 15 ranked teams could play another ranked opponent in a week full of neutral-site tournaments and invitationals.`\
-https://nytimes.com/athletic/6829485/2025/11/24/mens-college-basketball-top-25-purdue-arizona-duke/
+**No CFP expansion agreement expected by deadline, as 24 joins 16 in format debate**\
+`Whatever faint hope there was to agree on some sort of expansion for next year is about to be officially snuffed out.`\
+https://nytimes.com/athletic/6832090/2025/11/24/college-football-playoff-expansion-deadline-24-teams/
 
-**Canadiens weekly notebook: Martin St. Louis pivots to a tough meeting**\
-`Also in this week's notebook, how a Lane Hutson risk calculation was much more detailed than it appeared in a critical situation.`\
-https://nytimes.com/athletic/6832858/2025/11/24/canadiens-weekly-notebook-martin-st-louis/
+**How Panthers' classy Christian McCaffrey trade helped both teams three years later**\
+`The 49ers packaged a second-, third- and fourth-round pick in 2023 and a fifth-rounder in 2024 for McCaffrey from the Panthers.`\
+https://nytimes.com/athletic/6829426/2025/11/24/christian-mccaffrey-49ers-panthers-trade/
 
