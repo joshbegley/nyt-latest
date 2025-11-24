@@ -1,3 +1,11 @@
+**They're alive! Chris Jones fires up Arrowhead crowd, helps Chiefs save season**\
+`Chiefs QB Patrick Mahomes identified a "special moment" in the Chiefs' critical win against the Colts. Jones was responsible for it.`\
+https://nytimes.com/athletic/6830900/2025/11/23/chiefs-chris-jones-patrick-mahomes-colts/
+
+**Messi and Mascherano's Miami has the look of an MLS Cup favorite**\
+`Lionel Messi is doing a bit of everything, and Javier Mascherano's bold calls are paying off. Inter Miami is exuding that title aura.`\
+https://nytimes.com/athletic/6832310/2025/11/23/inter-miami-mls-cup-favorite-messi-mascherano-cincinnati/
+
 **J.J. McCarthy’s historically bad start continues, rest of Vikings follow suit vs. Packers**\
 `The Vikings' "razor-thin margin for error" with McCarthy at quarterback has not been a recipe for success this season.`\
 https://nytimes.com/athletic/6832004/2025/11/23/vikings-packers-jj-mccarthy-history/
