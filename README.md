@@ -1,3 +1,7 @@
+**Ranking the Premier League's top-10 hat-tricks**\
+`Eberechi Eze scored the Premier League's 400th hat-trick at the weekend. But which ones were the best?`\
+https://nytimes.com/athletic/6831505/2025/11/24/premier-league-hat-tricks-ranked/
+
 **How Do Ultraprocessed Foods Affect the Gut?**\
 `Studies have linked them to colorectal cancer and other digestive conditions.`\
 https://nytimes.com/2025/11/24/well/eat/ultraprocessed-foods-gut-health-colorectal-cancer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/24/theater/all-my-sons-ivo-van-hove-london.html
 **Has UCLA played its last game at Rose Bowl? Regulars from Lot H dread rupture of tradition**\
 `UCLA says no decision has been made but has said its Rose Bowl lease hampers capitalizing on revenue streams amid financial pressures.`\
 https://nytimes.com/athletic/6832435/2025/11/24/rose-bowl-ucla-football-last-game/
-
-**After another statement win, Rams have become the team to beat in the NFC**\
-`Following their lopsided win over the Buccaneers, the Rams are the No. 1 seed in the NFC and control their own destiny the rest of the way. `\
-https://nytimes.com/athletic/6832833/2025/11/24/rams-win-buccaneers-nfc-top-seed/
 
