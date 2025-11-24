@@ -1,3 +1,11 @@
+**Sunday's Caleb Williams experience: Some good, some bad, another Bears win**\
+`Williams' gaffe in the end zone almost cost the Bears, but his three touchdown passes helped get them win No. 8.`\
+https://nytimes.com/athletic/6832034/2025/11/23/bears-caleb-williams-touchdowns-errors-steelers/
+
+**Jamil Abdullah Al-Amin, Black Power Activist Known as H. Rap Brown, Dies at 82**\
+`A charismatic orator in the 1960s, he called for armed resistance to white oppression. As a Muslim cleric, he was convicted of murder in 2000 and died in detention.`\
+https://nytimes.com/2025/11/23/us/h-rap-brown-dead.html
+
 **How to watch Iowa vs. Nebraska: Time, TV, streaming**\
 `Find out how to watch the Iowa Hawkeyes play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6832236/2025/11/23/iowa-vs-nebraska-stream-how-to-watch-nov-28/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6832223/2025/11/23/temple-vs-north-texas-stream-how
 **Ravens win fifth straight, move into first place in AFC North. But they need to be better**\
 `Baltimore's defense has held six straight opponents under 20 points, but the offense hasn't played as well in recent weeks.  `\
 https://nytimes.com/athletic/6831986/2025/11/23/ravens-offense-win-streak-afc-north/
-
-**Cowboys-Eagles takeaways: Prescott leads 21-point comeback in Dallas win over Eagles**\
-`Prescott passed Tony Romo for the franchise’s all-time passing yards and led a 21-point comeback`\
-https://nytimes.com/athletic/6831758/2025/11/23/eagles-cowboys-score-result-takeaways/
-
-**Woman Convicted in ‘Slender Man’ Stabbing Flees Group Home**\
-`The woman, Morgan Geyser, was last seen in a residential area of Madison, Wis., on Saturday evening. The police said she cut off a monitoring bracelet.`\
-https://nytimes.com/2025/11/23/us/morgan-geyser-missing-slenderman-stabbing.html
 
