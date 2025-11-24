@@ -1,3 +1,11 @@
+**Submit a question for Week 13 NFL survivor pool help**\
+`Put your NFL survivor pool questions here and our experts will answer them in this week's column.`\
+https://nytimes.com/athletic/6834001/2025/11/24/nfl-survivor-pool-mailbag-week-13/
+
+**Crew head coach Nancy in advanced talks over Celtic appointment**\
+`Nancy's contract expires at the end of 2026 but he is in discussions over leaving the MLS side early.`\
+https://nytimes.com/athletic/6833599/2025/11/24/wilfried-nancy-columbus-crew-celtic/
+
 **Trump Will Visit China in April for Meeting With Xi Jinping**\
 `President Trump said he would visit Beijing for the first time since returning to office after holding a call with Mr. Xi, China’s leader.`\
 https://nytimes.com/2025/11/24/business/economy/trump-xi-meeting-china.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/24/nyregion/james-comey-case-dismissed.html
 **Former Georgia OL Nyier Daniels arrested, facing four felony charges**\
 `Daniels is the 11th known traffic-related arrest of a Georgia player since Jan. 20, 2023.`\
 https://nytimes.com/athletic/6833822/2025/11/24/georgia-nyier-daniels-arrested-felony-charges/
-
-**Nyx’s Setting Spray Impressed Us**\
-`Our favorite setting spray is an $11 option that performed just as well, or even better than, the most expensive options.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010544087/nyxs-setting-spray-impressed-us.html
-
-**Mets, Rangers try to solve their issues by swapping problem contracts: MLB Trade Grades**\
-`Marcus Semien and the $72 million remaining on his contract for Brandon Nimmo and the $102 million left on his — who did well in the trade?`\
-https://nytimes.com/athletic/6833798/2025/11/24/mlb-trade-grades-rangers-mets-marcus-semien-brandon-nimmo/
 

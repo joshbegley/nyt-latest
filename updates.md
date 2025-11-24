@@ -1,3 +1,11 @@
+**Trump Will Visit China in April for Meeting With Xi Jinping**\
+`President Trump said he would visit Beijing for the first time since returning to office after holding a call with Mr. Xi, China’s leader.`\
+https://nytimes.com/2025/11/24/business/economy/trump-xi-meeting-china.html
+
+**Lacey Chabert’s Holiday Tips**\
+`Hallmark star Lacey Chabert is a pro at channeling holiday joy. She told Wirecutter all her tips for setting up the coziest movie night at home.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010544239/lacey-chaberts-holiday-tips.html
+
 **Cincinnati apologizes to BYU for fans' 'religiously derogatory' chant**\
 `Numerous opposing schools have apologized to BYU after similar incidents in recent years.`\
 https://nytimes.com/athletic/6833909/2025/11/24/cincinnati-byu-apology-fans-chant/
