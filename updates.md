@@ -1,3 +1,7 @@
+**Wizards rookie Tre Johnson sidelined by hip flexor strain**\
+`The sixth pick in the 2025 NBA Draft has made nearly 40 percent of his 3-point attempts. `\
+https://nytimes.com/athletic/6834039/2025/11/24/nba-wizards-rookie-tre-johnson-injury/
+
 **Lacey named in Man Utd matchday squad for first time**\
 `The 18-year-old signed his first professional contract at the club last year and has been training regularly with the first-team squad.`\
 https://nytimes.com/athletic/6833496/2025/11/24/shea-lacey-manchester-united-first-matchday-squad/
