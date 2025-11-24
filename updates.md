@@ -1,3 +1,7 @@
+**What we learned about the Blackhawks' growth in narrow loss to Avalanche**\
+`The Blackhawks are well past the days of appreciating moral victories, but perspective is warranted too.`\
+https://nytimes.com/athletic/6832254/2025/11/23/blackhawks-growth-dickinson-blashill-avalanche/
+
 **Raiders fire offensive coordinator Chip Kelly after just 11 games**\
 `The Raiders made Kelly the highest-paid offensive coordinator in the league this offseason. He lasted 11 games.`\
 https://nytimes.com/athletic/6832547/2025/11/23/chip-kelly-fired-raiders-offensive-coordinator/
