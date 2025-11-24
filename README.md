@@ -1,3 +1,15 @@
+**Amorim would 'hope' to see Man Utd players fight over possession loss**\
+`The head coach said his side were "not near" where they should be after their five-game unbeaten run was ended by a 10-man Everton side.`\
+https://nytimes.com/athletic/6834715/2025/11/24/amorim-manchester-united-players-fighting/
+
+**Trump Is Considering Push to Extend Obamacare Subsidies**\
+`President Trump has not made a final decision. But he is under pressure to address the cost of health care, which for many Americans will jump if the subsidies expire.`\
+https://nytimes.com/2025/11/24/us/politics/trump-obamacare-subsidies-health-care.html
+
+**Weekly Student News Quiz: First Kiss, Art Auction, Oval Office**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/11/24/learning/24StudentNewsQuiz.html
+
 **Tatsuya Imai says he'd rather pave his own way than follow Japanese stars to Dodgers**\
 `The 28-year-old starter said taking down the Dodgers and winning a World Series "would be the most valuable thing in my life."`\
 https://nytimes.com/athletic/6834525/2025/11/24/tatsuya-imai-free-agency-dodgers/
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/100000010544545/jimmy-cliff-dead.html
 **Team owner Richard Childress weighing legal action over NASCAR exec's 'insensitive' texts**\
 `The texts from NASCAR's Steve Phelps were revealed as part of discovery in the ongoing lawsuit between two teams and NASCAR.`\
 https://nytimes.com/athletic/6834379/2025/11/24/nascar-richard-childress-steve-phelps-texts/
-
-**BBC Chair Tries to Calm Political ‘Firestorm’ Over Trump Edit**\
-`Samir Shah defended Britain’s public broadcaster at a parliamentary committee hearing on Monday, while apologizing (again) for the misleading edit of a Jan. 6 speech by President Trump.`\
-https://nytimes.com/2025/11/24/world/europe/uk-bbc-trump.html
-
-**The Briefing: Man Utd 0 Everton 1 - Amorim's side lose unbeaten run despite strange Gueye red**\
-`Laurie Whitwell analyses the main talking points from Manchester United's home defeat by Everton`\
-https://nytimes.com/athletic/6831147/2025/11/24/man-utd-everton-analysis/
-
-**Hal Steinbrenner: It's 'not fair or accurate' to say Yankees made a profit in 2025**\
-`Steinbrenner also said he would prefer to spend less money on payroll than the $319 million the Yankees paid this year. `\
-https://nytimes.com/athletic/6834242/2025/11/24/hal-steinbrenner-yankees-profitable-payroll/
 
