@@ -1,3 +1,15 @@
+**Rick Cotton, Head of the Port Authority, Is Stepping Down**\
+`Mr. Cotton oversaw the rebuilding of LaGuardia Airport and several other major infrastructure projects in the New York City region.`\
+https://nytimes.com/2025/11/24/nyregion/rick-cotton-port-authority-retiring.html
+
+**Vinicius Jr tells Madrid he won't renew while Alonso relationship remains difficult**\
+`The Brazilian's position was made clear at a meeting with Madrid president Florentino Perez after El Clasico.`\
+https://nytimes.com/athletic/6814027/2025/11/24/vinicius-jr-real-madrid-alonso-contract/
+
+**NBA Rewind: The Point God calls it a career**\
+`Who's hot (Raptors, Pistons) and not (Hornets)? Plus, NBA Cup group play sets up for a dramatic finish. `\
+https://nytimes.com/athletic/6829154/2025/11/24/nba-rewind-chris-paul-nba-cup-thunder-raptors/
+
 **Guardiola apologises for cameraman clash after Newcastle game: 'I feel embarrassed'**\
 `Guardiola was seen lifting the cameraman’s headphones and speaking to him as the operator filmed him on the pitch after the 2-1 defeat.`\
 https://nytimes.com/athletic/6833317/2025/11/24/manchester-city-pep-guardiola-cameraman-newcastle/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6832833/2025/11/24/rams-win-buccaneers-nfc-top-seed
 **Ranking college football's 12 open coaching jobs: LSU No. 1; Cal or Stanford?**\
 `This could be the most active coaching carousel college football has seen in many years.`\
 https://nytimes.com/athletic/6662286/2025/11/24/college-football-open-coaching-jobs-rankings/
-
-**Vietnam Reels From Deadly Rainy Season**\
-`Cleanup efforts are underway in Vietnam, where government officials on Sunday said more than 90 people had been killed from flooding and landslides in the past week.`\
-https://nytimes.com/video/world/asia/100000010543119/vietnam-reels-from-deadly-rainy-season.html
-
-**How to watch McNeese vs. West Virginia women's basketball: Time, TV, streaming**\
-`Find out how to watch the McNeese Cowgirls play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6833242/2025/11/24/mcneese-vs-west-virginia-stream-how-to-watch-nov-24/
-
-**How to watch Kansas vs. Notre Dame men's basketball: Time, TV, streaming**\
-`Find out how to watch the Kansas Jayhawks play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6833240/2025/11/24/kansas-vs-notre-dame-stream-how-to-watch-nov-24/
 

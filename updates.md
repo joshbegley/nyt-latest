@@ -1,3 +1,15 @@
+**Rick Cotton, Head of the Port Authority, Is Stepping Down**\
+`Mr. Cotton oversaw the rebuilding of LaGuardia Airport and several other major infrastructure projects in the New York City region.`\
+https://nytimes.com/2025/11/24/nyregion/rick-cotton-port-authority-retiring.html
+
+**Vinicius Jr tells Madrid he won't renew while Alonso relationship remains difficult**\
+`The Brazilian's position was made clear at a meeting with Madrid president Florentino Perez after El Clasico.`\
+https://nytimes.com/athletic/6814027/2025/11/24/vinicius-jr-real-madrid-alonso-contract/
+
+**NBA Rewind: The Point God calls it a career**\
+`Who's hot (Raptors, Pistons) and not (Hornets)? Plus, NBA Cup group play sets up for a dramatic finish. `\
+https://nytimes.com/athletic/6829154/2025/11/24/nba-rewind-chris-paul-nba-cup-thunder-raptors/
+
 **Guardiola apologises for cameraman clash after Newcastle game: 'I feel embarrassed'**\
 `Guardiola was seen lifting the cameraman’s headphones and speaking to him as the operator filmed him on the pitch after the 2-1 defeat.`\
 https://nytimes.com/athletic/6833317/2025/11/24/manchester-city-pep-guardiola-cameraman-newcastle/
