@@ -1,10 +1,14 @@
-**Colts, Shane Steichen fail to meet the moment as offense sputters in loss to Chiefs**\
+**Patrick Mahomes, Chiefs are most dangerous wild cards of all in NFL playoff race**\
+`It's early, but if Mahomes leads the Chiefs back to the Super Bowl for a sixth time, remember Sunday's win as the one that made it possible.`\
+https://nytimes.com/athletic/6832253/2025/11/23/chiefs-colts-patrick-mahomes-nfl-playoff-race/
+
+**Colts, Shane Steichen fail to meet the moment as offense wilts in loss to Chiefs**\
 `With his offense struggling, Steichen neglected the run for the pass and effectively shelved his best player: Jonathan Taylor. `\
 https://nytimes.com/athletic/6831771/2025/11/23/colts-shane-steichen-offense-daniel-jones-fail-chiefs/
 
 **How the Falcons completely changed their offense in one week and beat the Saints**\
 `The Falcons offense looked completely different behind Kirk Cousins than it has all season. The result was a 24-10 win over the Saints.`\
-https://nytimes.com/athletic/6832384/2025/11/23/how-the-falcons-completely-changed-their-offense-in-one-week-and-beat-the-saints/
+https://nytimes.com/athletic/6832384/2025/11/23/falcons-saints-kirk-cousins-david-sills/
 
 **When the Lions needed someone to save the day, it was obvious who it would be**\
 `Jahmyr Gibbs ran for a career-high 219 yards and scored the game-winning touchdown in overtime with a 69-yard run.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6832100/2025/11/23/giants-nightmare-season-loss-lio
 **The Steelers need Aaron Rodgers more than they ever would have imagined**\
 `Sunday's loss in Chicago made the Steelers' climb toward the playoffs dangerously steep.`\
 https://nytimes.com/athletic/6832048/2025/11/23/the-steelers-need-aaron-rodgers-more-than-they-ever-would-have-imagined/
-
-**2025 NFL Playoff Simulator: Each team’s updated path to the postseason after Week 12 results**\
-`<p>Welcome to The Athletic’s 2025 NFL Playoff Simulator, where you’ll find everything you need to know about all the ways your favorite team&#8217;s season could end, from a No.`\
-https://nytimes.com/athletic/6513952/2025/11/23/2025-nfl-playoff-simulator-path-postseason/
 

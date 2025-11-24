@@ -1,3 +1,15 @@
+**Colts, Shane Steichen fail to meet the moment as offense sputters in loss to Chiefs**\
+`With his offense struggling, Steichen neglected the run for the pass and effectively shelved his best player: Jonathan Taylor. `\
+https://nytimes.com/athletic/6831771/2025/11/23/colts-shane-steichen-offense-daniel-jones-fail-chiefs/
+
+**How the Falcons completely changed their offense in one week and beat the Saints**\
+`The Falcons offense looked completely different behind Kirk Cousins than it has all season. The result was a 24-10 win over the Saints.`\
+https://nytimes.com/athletic/6832384/2025/11/23/how-the-falcons-completely-changed-their-offense-in-one-week-and-beat-the-saints/
+
+**When the Lions needed someone to save the day, it was obvious who it would be**\
+`Jahmyr Gibbs ran for a career-high 219 yards and scored the game-winning touchdown in overtime with a 69-yard run.`\
+https://nytimes.com/athletic/6832347/2025/11/23/lions-jahmyr-gibbs-overtime-win-giants/
+
 **‘It: Welcome to Derry’ Season 1, Episode 5 Recap: Search and Destroy**\
 `Gen. Shaw sends troops into the sewage tunnels under Derry. The children send themselves there, too. Bad idea in both cases.`\
 https://nytimes.com/2025/11/23/arts/television/it-welcome-to-derry-recap-season-1-episode-5.html
