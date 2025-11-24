@@ -1,3 +1,19 @@
+**Wen Hui Was Making Feminist Art Before She Even Knew the Term**\
+`The Chinese dancer, choreographer and filmmaker “didn’t think in those terms” when she was young. Now, she said, “I’m more relaxed, more clear on what I want to do.”`\
+https://nytimes.com/2025/11/24/arts/dance/wen-hui-contemporary-dance.html
+
+**Jimmy Cliff: 8 Essential Songs**\
+`A giant of Jamaican music, he gained international renown through the 1972 film “The Harder They Come,” and helped establish reggae’s themes of struggle, resistance and uplift.`\
+https://nytimes.com/2025/11/24/arts/music/jimmy-cliff-songs.html
+
+**Testing Wool Coats In a Walk-in Fridge**\
+`When style writer Nicola Fumo realized she’d need to test wool coats before it got too cold out, she accepted the challenge.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010543917/testing-wool-coats-in-a-walk-in-fridge.html
+
+**An Auto Holy Grail: Motors That Don’t Rely on Chinese Rare Earths**\
+`Weary of being captive to geopolitics, car companies are looking for ways to replace powerful rare-earth magnets in electric motors.`\
+https://nytimes.com/2025/11/24/business/automakers-rare-earth-minerals-magnets.html
+
 **Send Troops to Venezuela? In Florida, the Question Splits a Community.**\
 `Differences of opinion, complicated by unease over President Trump’s immigration policies, are creating tense divisions among Venezuelans in South Florida.`\
 https://nytimes.com/2025/11/24/us/venezuelan-diaspora-critics-us-military-intervention.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6831774/2025/11/24/f1-las-vegas-issue-remains/
 **A Draft or Volunteers? Russian Threat Prompts Urgent Debate in Europe.**\
 `With Russia looming, governments race to rebuild armed forces that shrank after the Cold War, grappling with hard issues of economics, politics and military strategy.`\
 https://nytimes.com/2025/11/24/business/economy/russia-ukraine-europe-military.html
-
-**Lowetide: Which trade targets best fit the Oilers' new offensive style?**\
-`The style of game being used now by Edmonton requires good speed and aggressive play.`\
-https://nytimes.com/athletic/6831224/2025/11/24/oilers-trades-stats-goals-targets-2025/
-
-**This throw-in and the 27 seconds that followed say everything about this Spurs team**\
-`Picking apart the 27 seconds between a Djed Spence throw and Arsenal's four goal tells you a lot about the current state of this Spurs team`\
-https://nytimes.com/athletic/6833271/2025/11/24/tottenham-throw-in-spence-arsenal/
-
-**How to watch Cavaliers vs. Raptors: Time, TV, streaming**\
-`Find out how to watch the Cleveland Cavaliers play the Toronto Raptors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6833680/2025/11/24/cavaliers-vs-raptors-stream-how-to-watch-nov-24/
-
-**How to watch Flyers vs. Lightning: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Flyers play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6833678/2025/11/24/flyers-vs-lightning-stream-how-to-watch-nov-24/
 
