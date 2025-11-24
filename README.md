@@ -1,3 +1,7 @@
+**Gramma, a Galápagos Tortoise at the San Diego Zoo, Dies at About 141**\
+`She traveled through her long life at her own pace.`\
+https://nytimes.com/2025/11/24/science/gramma-galapagos-tortoise-san-diego-zoo-dies.html
+
 **NFL Week 13 odds: Thanksgiving games projected to be high-scoring duels**\
 `The three Thanksgiving games have the three highest listed point totals of Week 13.`\
 https://nytimes.com/athletic/6833702/2025/11/24/nfl-week-13-odds-chiefs-cowboys-bengals-ravens/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6833496/2025/11/24/shea-lacey-manchester-united-fir
 **Arizona, Alabama, Michigan State rise in AP Top 25, while Kansas drops out: Key takeaways**\
 `It didn't take long for the Hoosiers to return to the poll under first-year coach Darian DeVries.`\
 https://nytimes.com/athletic/6833943/2025/11/24/ap-mens-basketball-top-25-arizona-kansas-indiana/
-
-**Browns name Shedeur Sanders starting QB for Week 13 vs. 49ers**\
-`Sanders became the first Cleveland rookie quarterback to win his starting debut since 1995 in Sunday's victory over the Raiders. `\
-https://nytimes.com/athletic/6834008/2025/11/24/shedeur-sanders-browns-starter-49ers/
 
