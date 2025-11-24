@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6834307/2025/11/24/elle-duncan-netflix-hired/
 `TreVeyon Henderson has helped elevate a young Patriots offense by taking some of the pressure off QB Drake Maye.`\
 https://nytimes.com/athletic/6834520/2025/11/24/treveyon-henderson-film-breakdown-patriots/
 
-**Eagles safety Andrew Mukuba fractures his leg in Sunday's loss**\
+**Eagles safety Andrew Mukuba fractures his ankle in Sunday's loss**\
 `Eagles currently lead the NFC East with an 8-3 record.`\
 https://nytimes.com/athletic/6834377/2025/11/24/eagles-safety-andrew-mukuba-fractures-leg-sundays/
 
