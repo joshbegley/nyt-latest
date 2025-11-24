@@ -1,3 +1,7 @@
+**Vietnam Reels From Deadly Rainy Season**\
+`Cleanup efforts are underway in Vietnam, where government officials on Sunday said more than 90 people had been killed from flooding and landslides in the past week.`\
+https://nytimes.com/video/world/asia/100000010543119/vietnam-reels-from-deadly-rainy-season.html
+
 **How to watch McNeese vs. West Virginia women's basketball: Time, TV, streaming**\
 `Find out how to watch the McNeese Cowgirls play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6833242/2025/11/24/mcneese-vs-west-virginia-stream-how-to-watch-nov-24/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6832955/2025/11/24/bundesliga-bayern-munich-borussi
 **FPL Gameweek 12 review: Minteh magic, Semenyo no-show and Eze dilemma**\
 `From an illness-related no-show to a north London derby hat-trick, there’s plenty to unpack across a fresh wave of FPL talking points `\
 https://nytimes.com/athletic/6831519/2025/11/24/fantasy-premier-league-gameweek-12-review-eze-semenyo-minteh/
-
-**Ten thoughts on Michigan ahead of Ohio State: Why the Wolverines are (and aren't ) ready**\
-`Here are 10 thoughts wrapping up No. 18 Michigan’s 45-20 victory against Maryland and opening the floodgates on rivalry week.`\
-https://nytimes.com/athletic/6831231/2025/11/24/michigan-maryland-football-ohio-state/
 
