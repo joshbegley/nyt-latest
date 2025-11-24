@@ -1,3 +1,27 @@
+**Kansas City Survives Overtime Battle With Indianapolis Colts to Keep Season Alive**\
+`The Kansas City Chiefs and the quarterback Patrick Mahomes had to rally from a 20-9 deficit in the fourth quarter on their way to an overtime win against the Indianapolis Colts.`\
+https://nytimes.com/video/sports/football/100000010542923/kansas-city-survives-overtime-battle-with-indianapolis-colts-to-keep-season-alive.html
+
+**How to watch Chiefs vs. Cowboys: Time, TV, streaming**\
+`Find out how to watch the Kansas City Chiefs play the Dallas Cowboys, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6833021/2025/11/24/chiefs-vs-cowboys-stream-how-to-watch-nov-27/
+
+**How to watch Rutgers vs. Tennessee men's basketball: Time, TV, streaming**\
+`Find out how to watch the Rutgers Scarlet Knights play the Tennessee Volunteers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6833019/2025/11/24/rutgers-vs-tennessee-stream-how-to-watch-nov-24/
+
+**How to watch Bengals vs. Ravens: Time, TV, streaming**\
+`Find out how to watch the Cincinnati Bengals play the Baltimore Ravens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6833017/2025/11/24/bengals-vs-ravens-stream-how-to-watch-nov-27/
+
+**How to watch Bears vs. Eagles: Time, TV, streaming**\
+`Find out how to watch the Chicago Bears play the Philadelphia Eagles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6833015/2025/11/24/bears-vs-eagles-stream-how-to-watch-nov-28/
+
+**How to watch Packers vs. Lions: Time, TV, streaming**\
+`Find out how to watch the Green Bay Packers play the Detroit Lions, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6833013/2025/11/24/packers-vs-lions-stream-how-to-watch-nov-27/
+
 **The Absurd Asymmetries That Prop Up President Trump**\
 `Aren’t his apologists exhausted by their moral calisthenics?`\
 https://nytimes.com/2025/11/24/opinion/trump-false-equivalence.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/11/24/fashion/jacket-puffer-coat.html
 **Trump Welcomes A.P.’s Photographers. Its Reporters? Not So Much.**\
 `The White House now has conflicting approaches for Associated Press journalists as it fights the news service in court over access to presidential events.`\
 https://nytimes.com/2025/11/24/business/media/associated-press-president-trump.html
-
-**Why the Epstein Story Is So Awkward for QAnon**\
-`It has a little something to do with Donald Trump.`\
-https://nytimes.com/2025/11/24/opinion/epstein-files-qanon-trump.html
-
-**A Secret Defined Her Life. She Had No Idea.**\
-`In the thrilling “Family of Spies,” Christine Kuehn tells the story of learning the darkest of secrets.`\
-https://nytimes.com/2025/11/24/books/review/family-of-spies-christine-kuehn.html
-
-**His Right Foot: One Tiny Drawing for Sale, Maybe by Michelangelo**\
-`The Renaissance artist painted more than 100 figures in the Sistine Chapel ceiling, yet studies for only a handful remain. Could this five-inch drawing at Christie’s be one?`\
-https://nytimes.com/2025/11/24/arts/design/michelangelo-drawing-christies-auction-foot-old-master.html
-
-**At Ailey, a Dance of the Gods With an Old-School Theatrical Bent**\
-`Maija García’s “Jazz Island” is a full-company narrative of a kind that Ailey hasn’t done in a while. And it features an Afro-Caribbean score by Etienne Charles.`\
-https://nytimes.com/2025/11/24/arts/dance/ailey-maija-garcia-etienne-charles-jazz-island.html
-
-**Should Buses Be Free?**\
-`Iowa City eliminated bus fares two years ago. Now New York City’s mayor-elect wants to do the same for the largest city in the country.`\
-https://nytimes.com/2025/11/24/learning/should-buses-be-free.html
-
-**Ted Danson and Mary Steenburgen Star in a Love Story, Onscreen and Off**\
-`Married for three decades, the actors get together as characters in the second season of “A Man on the Inside.”`\
-https://nytimes.com/2025/11/24/arts/television/ted-danson-and-mary-steenburgen-man-on-the-inside.html
 
