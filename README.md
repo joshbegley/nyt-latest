@@ -6,6 +6,10 @@ https://nytimes.com/athletic/6832100/2025/11/23/giants-nightmare-season-loss-lio
 `Sunday's loss in Chicago made the Steelers' climb toward the playoffs dangerously steep.`\
 https://nytimes.com/athletic/6832048/2025/11/23/the-steelers-need-aaron-rodgers-more-than-they-ever-would-have-imagined/
 
+**2025 NFL Playoff Simulator: Each team’s updated path to the postseason after Week 12 results**\
+`<p>Welcome to The Athletic’s 2025 NFL Playoff Simulator, where you’ll find everything you need to know about all the ways your favorite team&#8217;s season could end, from a No.`\
+https://nytimes.com/athletic/6513952/2025/11/23/2025-nfl-playoff-simulator-path-postseason/
+
 **Another Yurov goal, Wallstedt shutout as Wild finally snap Winnipeg woes: Takeaways**\
 `Jesper Wallstedt's third shutout in his past four starts helped the Wild end a nine-game losing streak against the Jets.`\
 https://nytimes.com/athletic/6831741/2025/11/23/wild-shutout-wallstedt-yurov-faber-jets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6832231/2025/11/23/utah-vs-kansas-stream-how-to-wat
 **How to watch Ole Miss vs. Mississippi State: Time, TV, streaming**\
 `Find out how to watch the Ole Miss Rebels play the Mississippi State Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6832229/2025/11/23/ole-miss-vs-mississippi-state-stream-how-to-watch-nov-28/
-
-**How to watch Georgia vs. Georgia Tech: Time, TV, streaming**\
-`Find out how to watch the Georgia Bulldogs play the Georgia Tech Yellow Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6832227/2025/11/23/georgia-vs-georgia-tech-stream-how-to-watch-nov-28/
 
