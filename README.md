@@ -1,40 +1,40 @@
-**Bowl projections: 20 teams are one win away from joining the postseason**\
-`With one week left until the regular season ends, 72 Football Bowl Subdivision teams have qualified for 82 postseason slots.`\
-https://nytimes.com/athletic/6832294/2025/11/24/college-football-bowl-projections-schedule-matchups/
+**How the Cowboys rallied from 21-point hole: Defensive stops, big pass plays and believing**\
+`The playoffs are still a long shot, but the Cowboys know they can beat anyone after rallying past the defending champion Eagles.`\
+https://nytimes.com/athletic/6832648/2025/11/24/cowboys-comeback-dak-prescott-eagles/
 
-**'The blame is on everybody': Eagles defense owns its role in blown lead**\
-`The Eagles defense had been a consistent strength all season.`\
-https://nytimes.com/athletic/6831560/2025/11/24/eagles-defense-loss-cowboys/
+**‘Little bit of stupidity’: Penalties are costing the Bruins points**\
+`The Bruins have taken 22 more minor penalties than the next-highest NHL team. It's taking a toll on their play.`\
+https://nytimes.com/athletic/6832660/2025/11/24/bruins-penalties-offense-sturm-sharks/
 
-**Analyzing the Knicks: Mike Brown's strategy, defensive deficiencies and more**\
-`Writers Fred Katz and James L. Edwards III take a look at how the Knicks are doing 15 games into the season. `\
-https://nytimes.com/athletic/6831026/2025/11/24/knicks-analysis-mike-brown-coaching/
+**Panthers at 49ers on MNF: Christian McCaffrey Bowl features two NFC playoff hopefuls**\
+`CMC faces his old team for the first time. Here's your "Monday Night Football" warmup ahead of tonight's Panthers-Niners game.`\
+https://nytimes.com/athletic/6824865/2025/11/24/panthers-49ers-mnf-christian-mccaffrey-how-to-watch/
 
-**England decline chance to give batters pink-ball practice in Lions tour match**\
-`Three tourists released to Lions squad for game against the Prime Minister's XI, while Australia monitor fitness of Khawaja and Hazlewood`\
-https://nytimes.com/athletic/6832969/2025/11/24/england-batters-pink-ball-brisbane-canberra/
+**The Athletic 136: Contenders getting crowded after Week 13**\
+`The teams at the very top and very bottom of our FBS rankings are running out of time to make big statements.`\
+https://nytimes.com/athletic/6832423/2025/11/24/college-football-team-rankings-oregon-oklahoma/
 
-**Shedeur Sanders made his first start! The Browns won! Choose your narrative**\
-`There was a little something for everyone in Sanders' first start, as he did something no Browns rookie QB had done in three decades.`\
-https://nytimes.com/athletic/6832982/2025/11/24/shedeur-sanders-browns-starting-debut-raiders/
+**Men's college basketball Top 25: Purdue, Arizona affirm status as 1-2 before loaded Feast Week**\
+`As many as 15 ranked teams could play another ranked opponent in a week full of neutral-site tournaments and invitationals.`\
+https://nytimes.com/athletic/6829485/2025/11/24/mens-college-basketball-top-25-purdue-arizona-duke/
 
-**Giants' Mike Kafka with shades of Bill Walsh (or at least Dan Campbell)**\
-`Yes, the Giants lost, but interim coach Mike Kafka's trick plays reminded of the 49ers' coaching legend and Kafka's counterpart in Detroit.`\
-https://nytimes.com/athletic/6832994/2025/11/24/giants-mike-kafka-with-shades-of-bill-walsh-or-at-least-dan-campbell/
+**Canadiens weekly notebook: Martin St. Louis pivots to a tough meeting**\
+`Also in this week's notebook, how a Lane Hutson risk calculation was much more detailed than it appeared in a critical situation.`\
+https://nytimes.com/athletic/6832858/2025/11/24/canadiens-weekly-notebook-martin-st-louis/
 
-**Vietnam’s Year of Floods, Mud and Death**\
-`Scientists suggested that climate change could make central Vietnam a global hot spot for destructive storms. This year has seemed to prove the point.`\
-https://nytimes.com/2025/11/24/world/asia/vietnam-flooding-typhoon-emergency.html
+**2026 WNBA mock draft: Who will Dallas Wings take with No. 1 pick?**\
+`After Sunday's draft lottery, Sabreena Merchant analyzes teams' potential first-round selections for the 2026 WNBA Draft.`\
+https://nytimes.com/athletic/6832126/2025/11/24/wnba-mock-draft-2026-dallas-wings/
 
-**What we learned in NFL Week 12: Rams look dangerous, Eagles searching for consistency**\
-`Sean McVay's team looks like the deepest and most dangerous team in the league, but what is up with Philadelphia's collapse?`\
-https://nytimes.com/athletic/6832299/2025/11/24/nfl-week-12-takeaways-rams-eagles-cowboys/
+**The Toronto Raptors' hot start: to believe or not to believe?**\
+`The Raptors' starters are improving and cohesion is obvious, but will their hot start continue if their opponents start to make 3s?`\
+https://nytimes.com/athletic/6832407/2025/11/24/raptors-nets-score-result-takeaways-ingram-quickley-barrett/
 
-**The Falcons have arguably committed organizational malpractice. Are the Raiders next?**\
-`The Falcons have bucked convention often in recent years, without much to show for it. The Raiders might be on a similar path.`\
-https://nytimes.com/athletic/6832989/2025/11/24/falcons-michael-penix-kirk-cousins-raiders/
+**How quiet offense caused Eagles to lose 21-point lead vs. Cowboys**\
+`The championship team that has done just enough, when just enough was required, collapsed in a 24-21 loss to the Dallas Cowboys.`\
+https://nytimes.com/athletic/6832625/2025/11/24/eagles-jalen-hurts-saquon-barkley-offense/
 
-**Myles Garrett continues to raise the bar on a Browns defense that deserves better**\
-`What the Browns defense did to the Raiders should serve as a reminder that it was built for better results and bigger stages this season.`\
-https://nytimes.com/athletic/6832544/2025/11/24/myles-garrett-browns-defense-raiders/
+**Inside the PWHL's race to expand westward as Seattle, Vancouver debut**\
+`After an offseason that radically altered the PWHL’s original six teams, the league is back with two new franchises. `\
+https://nytimes.com/athletic/6829146/2025/11/24/pwhl-expansion-seattle-torrent-vancouver-goldeneyes/
 
