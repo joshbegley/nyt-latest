@@ -1,3 +1,11 @@
+**Raiders fire offensive coordinator Chip Kelly: Source**\
+`The Raiders made Kelly the highest-paid offensive coordinator in the league this offseason. He lasted 11 games.`\
+https://nytimes.com/athletic/6832547/2025/11/23/chip-kelly-fired-raiders-offensive-coordinator/
+
+**Bucs' Baker Mayfield injures left shoulder, leaves Sunday night game against Rams**\
+`The Tampa Bay quarterback wasn't able to return for the second half after being injured in the second quarter.`\
+https://nytimes.com/athletic/6832457/2025/11/23/baker-mayfield-buccaneers-shoulder-injury/
+
 **The red-hot Heat expect Tyler Herro to make his season debut on Monday**\
 `With Herro cleared to return, the NBA's fastest team is expected to get its leading scorer from last season back in the lineup.`\
 https://nytimes.com/athletic/6832270/2025/11/23/heat-tyler-herro-injury-status-season-debut-monday-mavericks/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6830900/2025/11/23/chiefs-chris-jones-patrick-mahom
 **J.J. McCarthy’s historically bad start continues, rest of Vikings follow suit vs. Packers**\
 `The Vikings' "razor-thin margin for error" with McCarthy at quarterback has not been a recipe for success this season.`\
 https://nytimes.com/athletic/6832004/2025/11/23/vikings-packers-jj-mccarthy-history/
-
-**Messi and Mascherano's Miami has the look of an MLS Cup favorite**\
-`Lionel Messi is doing a bit of everything, and Javier Mascherano's bold calls are paying off. Inter Miami is exuding that title aura.`\
-https://nytimes.com/athletic/6832310/2025/11/23/inter-miami-mls-cup-favorite-messi-mascherano-cincinnati/
-
-**Giants living through another nightmare season: 'It feels like it just can't be real'**\
-`The loss dropped the Giants to 2-10, giving them double-digit losses for the eighth time in the past nine seasons.`\
-https://nytimes.com/athletic/6832100/2025/11/23/giants-nightmare-season-loss-lions/
 
