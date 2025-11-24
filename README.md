@@ -1,40 +1,40 @@
-**How to watch Mavericks vs. Heat: Time, TV, streaming**\
-`Find out how to watch the Dallas Mavericks play the Miami Heat, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6834336/2025/11/24/mavericks-vs-heat-stream-how-to-watch-nov-24/
+**How to watch Texas Tech vs. West Virginia: Time, TV, streaming**\
+`Find out how to watch the Texas Tech Red Raiders play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6834421/2025/11/24/texas-tech-vs-west-virginia-stream-how-to-watch-nov-29/
 
-**How to watch Timberwolves vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Minnesota Timberwolves play the Sacramento Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6834334/2025/11/24/timberwolves-vs-kings-stream-how-to-watch-nov-24/
+**How to watch Ohio State vs. Michigan: Time, TV, streaming**\
+`Find out how to watch the Ohio State Buckeyes play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6834419/2025/11/24/ohio-state-vs-michigan-stream-how-to-watch-nov-29/
 
-**How to watch Rockets vs. Suns: Time, TV, streaming**\
-`Find out how to watch the Houston Rockets play the Phoenix Suns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6834331/2025/11/24/rockets-vs-suns-stream-how-to-watch-nov-24/
+**How to watch Missouri vs. Arkansas: Time, TV, streaming**\
+`Find out how to watch the Missouri Tigers play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6834415/2025/11/24/missouri-vs-arkansas-stream-how-to-watch-nov-29/
 
-**How to watch Knicks vs. Nets: Time, TV, streaming**\
-`Find out how to watch the New York Knicks play the Brooklyn Nets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6834329/2025/11/24/knicks-vs-nets-stream-how-to-watch-nov-24/
+**How to watch Vanderbilt vs. Tennessee: Time, TV, streaming**\
+`Find out how to watch the Vanderbilt Commodores play the Tennessee Volunteers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6834413/2025/11/24/vanderbilt-vs-tennessee-stream-how-to-watch-nov-29/
 
-**How to watch Bulls vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the Chicago Bulls play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6834327/2025/11/24/bulls-vs-pelicans-stream-how-to-watch-nov-24/
+**How to watch Oregon vs. Washington: Time, TV, streaming**\
+`Find out how to watch the Oregon Ducks play the Washington Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6834409/2025/11/24/oregon-vs-washington-stream-how-to-watch-nov-29/
 
-**How to watch Panthers vs. Predators: Time, TV, streaming**\
-`Find out how to watch the Florida Panthers play the Nashville Predators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6834324/2025/11/24/panthers-vs-predators-stream-how-to-watch-nov-24/
+**How to watch UCF vs. BYU: Time, TV, streaming**\
+`Find out how to watch the UCF Knights play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6834406/2025/11/24/ucf-vs-byu-stream-how-to-watch-nov-29/
 
-**How to watch Nuggets vs. Grizzlies: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the Memphis Grizzlies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6834322/2025/11/24/nuggets-vs-grizzlies-stream-how-to-watch-nov-24/
+**How to watch Kentucky vs. Louisville: Time, TV, streaming**\
+`Find out how to watch the Kentucky Wildcats play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6834403/2025/11/24/kentucky-vs-louisville-stream-how-to-watch-nov-29/
 
-**How to watch Senators vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Ottawa Senators play the Los Angeles Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6834320/2025/11/24/senators-vs-kings-stream-how-to-watch-nov-24/
+**U.S. Again Asks New York Court to Release Epstein Grand Jury Materials**\
+`The Justice Department cited the newly passed Epstein Files Transparency Act to argue that the papers should be made public.`\
+https://nytimes.com/2025/11/24/us/politics/epstein-grand-jury-materials-release-requested.html
 
-**How to watch Golden Knights vs. Mammoth: Time, TV, streaming**\
-`Find out how to watch the Vegas Golden Knights play the Utah Mammoth, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6834318/2025/11/24/golden-knights-vs-mammoth-stream-how-to-watch-nov-24/
+**How to watch Miami (FL) vs. Pittsburgh: Time, TV, streaming**\
+`Find out how to watch the Miami (FL) Hurricanes play the Pittsburgh Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6834401/2025/11/24/miami-fl-vs-pittsburgh-stream-how-to-watch-nov-29/
 
-**How to watch Jazz vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the Utah Jazz play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6834316/2025/11/24/jazz-vs-warriors-stream-how-to-watch-nov-24/
+**Consumer Bureau’s Bank Examiners Criticize New ‘Humility Pledge’**\
+`The Consumer Financial Protection Bureau said it would require a vow to “work collaboratively” with companies before beginning a review.`\
+https://nytimes.com/2025/11/24/business/consumer-bureau-humility-pledge.html
 
