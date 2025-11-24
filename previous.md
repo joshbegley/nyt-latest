@@ -1,3 +1,11 @@
+**Guardiola apologises for cameraman clash after Newcastle game: 'I feel embarrassed'**\
+`Guardiola was seen lifting the cameraman’s headphones and speaking to him as the operator filmed him on the pitch after the 2-1 defeat.`\
+https://nytimes.com/athletic/6833317/2025/11/24/manchester-city-pep-guardiola-cameraman-newcastle/
+
+**Giants fire defensive coordinator Shane Bowen following collapse vs. Lions: Source**\
+`The Giants are 2-10 and officially eliminated from playoff contention.`\
+https://nytimes.com/athletic/6832655/2025/11/24/ny-giants-shane-bowen-fired-defense/
+
 **Corrections: Nov. 22, 2025**\
 `Corrections that appeared in print on Saturday, Nov. 22, 2025.`\
 https://nytimes.com/2025/11/24/pageoneplus/corrections-nov-22-2025.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6833242/2025/11/24/mcneese-vs-west-virginia-stream-
 **How to watch Kansas vs. Notre Dame men's basketball: Time, TV, streaming**\
 `Find out how to watch the Kansas Jayhawks play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6833240/2025/11/24/kansas-vs-notre-dame-stream-how-to-watch-nov-24/
-
-**Why Crypto’s Slide Is Rattling Wall Street**\
-`Bitcoin and other digital tokens have lost more than $1 trillion in value in recent weeks, raising concerns about a wider market fallout.`\
-https://nytimes.com/2025/11/24/business/dealbook/bitcoin-crypto-wall-street.html
-
-**Trump Administration Live Updates: U.S. Officials Are Expected to Press On With Ukraine Talks**\
-``\
-https://nytimes.com/live/2025/11/24/us/trump-news
 

@@ -1,3 +1,11 @@
+**Guardiola apologises for cameraman clash after Newcastle game: 'I feel embarrassed'**\
+`Guardiola was seen lifting the cameraman’s headphones and speaking to him as the operator filmed him on the pitch after the 2-1 defeat.`\
+https://nytimes.com/athletic/6833317/2025/11/24/manchester-city-pep-guardiola-cameraman-newcastle/
+
+**Giants fire defensive coordinator Shane Bowen following collapse vs. Lions: Source**\
+`The Giants are 2-10 and officially eliminated from playoff contention.`\
+https://nytimes.com/athletic/6832655/2025/11/24/ny-giants-shane-bowen-fired-defense/
+
 **Corrections: Nov. 22, 2025**\
 `Corrections that appeared in print on Saturday, Nov. 22, 2025.`\
 https://nytimes.com/2025/11/24/pageoneplus/corrections-nov-22-2025.html
