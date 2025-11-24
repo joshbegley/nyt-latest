@@ -1,3 +1,7 @@
+**Some Park Rangers Are Still Owed Pay After the Shutdown**\
+`Federal workers were guaranteed back pay once the government reopened. Some at the National Park Service are still waiting.`\
+https://nytimes.com/2025/11/24/climate/park-service-back-pay-shutdown.html
+
 **How to watch Texas Tech vs. West Virginia: Time, TV, streaming**\
 `Find out how to watch the Texas Tech Red Raiders play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6834421/2025/11/24/texas-tech-vs-west-virginia-stream-how-to-watch-nov-29/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/24/us/politics/epstein-grand-jury-materials-release-
 **How to watch Miami (FL) vs. Pittsburgh: Time, TV, streaming**\
 `Find out how to watch the Miami (FL) Hurricanes play the Pittsburgh Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6834401/2025/11/24/miami-fl-vs-pittsburgh-stream-how-to-watch-nov-29/
-
-**Consumer Bureau’s Bank Examiners Criticize New ‘Humility Pledge’**\
-`The Consumer Financial Protection Bureau said it would require a vow to “work collaboratively” with companies before beginning a review.`\
-https://nytimes.com/2025/11/24/business/consumer-bureau-humility-pledge.html
 
