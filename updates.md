@@ -1,3 +1,11 @@
+**Jaxon Smith-Njigba steals the show (again) in Seahawks' win, maintaining historic pace**\
+`Nobody has been able to contain Smith-Njigba all season. Sunday was no different, and it made all the difference for Seattle in Tennessee.`\
+https://nytimes.com/athletic/6831885/2025/11/23/jsn-jaxon-smith-njigba-seahawks-titans/
+
+**Dallas Wings win WNBA Draft lottery again: Who will join Paige Bueckers?**\
+`Minnesota Lynx land the No. 2 pick, while Seattle Storm won the third selection. The Mystics are No. 4 and Sky at No. 5.`\
+https://nytimes.com/athletic/6831951/2025/11/23/wnba-draft-lottery-dallas-wings-win-no-1-pick/
+
 **Former News Anchor Sentenced to 10 Years in Prison for Pandemic Fraud**\
 `The former anchor, Stephanie Hockridge, who once worked for a Phoenix station, participated in an elaborate scheme that illegally obtained more than $63 million.`\
 https://nytimes.com/2025/11/23/us/phoenix-news-anchor-covid-fraud.html

@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6831885/2025/11/23/jsn-jaxon-smith-njigba-seahawks-
 https://nytimes.com/2025/11/23/us/phoenix-news-anchor-covid-fraud.html
 
 **Dallas Wings win WNBA Draft lottery again: Who will join Paige Bueckers?**\
-`Minnesota Lynx land the No. 2 pick, while Seattle Storm won the third selection. The Mystics are No. 4 and Sky at No. 5.`\
+`Minnesota Lynx land the No. 2 pick, while Seattle Storm won the third selection. The Mystics are No. 4 and Sky No. 5.`\
 https://nytimes.com/athletic/6831951/2025/11/23/wnba-draft-lottery-dallas-wings-win-no-1-pick/
 
 **With three assists and a goal from Messi, dominant Miami march into Eastern Conference final**\
