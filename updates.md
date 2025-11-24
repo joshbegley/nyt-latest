@@ -1,3 +1,11 @@
+**‘Queen of Versailles’ to Close as New Broadway Musicals Struggle**\
+`The show, starring Kristin Chenoweth, will remain open through the holidays. The announcement comes just two weeks after the musical opened.`\
+https://nytimes.com/2025/11/24/theater/queen-of-versailles-broadway-closing.html
+
+**BBC Chair Tries to Calm Political ‘Firestorm’ Over Trump Edit**\
+`Samir Shah defended Britain’s public broadcaster at a parliamentary committee hearing on Monday, while apologizing (again) for the misleading edit of a Jan. 6 speech by President Trump.`\
+https://nytimes.com/2025/11/24/world/europe/uk-bbc-trump.html
+
 **Jimmy Cliff, Jamaican Reggae Icon, Is Dead**\
 `Jimmy Cliff, the Jamaican reggae singer who helped popularize the genre around the world with songs like “You Can Get It If You Really Want” and “The Harder They Come,” has died. He was 81.`\
 https://nytimes.com/video/world/100000010544545/jimmy-cliff-dead.html
