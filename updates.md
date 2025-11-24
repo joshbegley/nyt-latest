@@ -1,3 +1,11 @@
+**How a bunch of unlikely standouts rescued the Bears' depleted defense**\
+`With the Bears defense hurting, the team found new playmakers and new answers on the way to their eight win.`\
+https://nytimes.com/athletic/6831909/2025/11/23/bears-defense-unlikely-standouts-steelers/
+
+**Patriots win again, but injuries and other issues are starting to pile up**\
+`Every win in the NFL should be celebrated, especially when you have the league's best record at 10-2. But Sunday's victory came at a cost.`\
+https://nytimes.com/athletic/6831941/2025/11/23/patriots-bengals-drake-maye-will-campbell-jared-wilson/
+
 **Patriots win again, but injuries and other issues are starting to pile up**\
 `Every win in the NFL should be celebrated, especially with a team that has the league's best record at 10-2. But this one came at a cost.`\
 https://nytimes.com/athletic/6831941/2025/11/23/patriots-bengals-drake-maye-will-campbell-jared-wilson/
