@@ -1,40 +1,40 @@
-**How to watch UT Rio Grande Valley vs. Illinois men's basketball: Time, TV, streaming**\
-`Find out how to watch the UT Rio Grande Valley Vaqueros play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6834292/2025/11/24/ut-rio-grande-valley-vs-illinois-stream-how-to-watch-nov-24/
+**How to watch Mavericks vs. Heat: Time, TV, streaming**\
+`Find out how to watch the Dallas Mavericks play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6834336/2025/11/24/mavericks-vs-heat-stream-how-to-watch-nov-24/
 
-**How to watch Central Michigan vs. Notre Dame women's basketball: Time, TV, streaming**\
-`Find out how to watch the Central Michigan Chippewas play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6834290/2025/11/24/central-michigan-vs-notre-dame-stream-how-to-watch-nov-24/
+**How to watch Timberwolves vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Minnesota Timberwolves play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6834334/2025/11/24/timberwolves-vs-kings-stream-how-to-watch-nov-24/
 
-**How to watch Auburn vs. Oregon men's basketball: Time, TV, streaming**\
-`Find out how to watch the Auburn Tigers play the Oregon Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6834288/2025/11/24/auburn-vs-oregon-stream-how-to-watch-nov-24/
+**How to watch Rockets vs. Suns: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the Phoenix Suns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6834331/2025/11/24/rockets-vs-suns-stream-how-to-watch-nov-24/
 
-**How to watch Michigan vs. San Diego State men's basketball: Time, TV, streaming**\
-`Find out how to watch the Michigan Wolverines play the San Diego State Aztecs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6834285/2025/11/24/michigan-vs-san-diego-state-stream-how-to-watch-nov-24/
+**How to watch Knicks vs. Nets: Time, TV, streaming**\
+`Find out how to watch the New York Knicks play the Brooklyn Nets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6834329/2025/11/24/knicks-vs-nets-stream-how-to-watch-nov-24/
 
-**How to watch Gonzaga vs. Alabama men's basketball: Time, TV, streaming**\
-`Find out how to watch the Gonzaga Bulldogs play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6834283/2025/11/24/gonzaga-vs-alabama-stream-how-to-watch-nov-24/
+**How to watch Bulls vs. Pelicans: Time, TV, streaming**\
+`Find out how to watch the Chicago Bulls play the New Orleans Pelicans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6834327/2025/11/24/bulls-vs-pelicans-stream-how-to-watch-nov-24/
 
-**How to watch Seton Hall vs. NC State men's basketball: Time, TV, streaming**\
-`Find out how to watch the Seton Hall Pirates play the NC State Wolfpack, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6834281/2025/11/24/seton-hall-vs-nc-state-stream-how-to-watch-nov-24/
+**How to watch Panthers vs. Predators: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the Nashville Predators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6834324/2025/11/24/panthers-vs-predators-stream-how-to-watch-nov-24/
 
-**How to watch Denver vs. Arizona men's basketball: Time, TV, streaming**\
-`Find out how to watch the Denver Pioneers play the Arizona Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6834277/2025/11/24/denver-vs-arizona-stream-how-to-watch-nov-24/
+**How to watch Nuggets vs. Grizzlies: Time, TV, streaming**\
+`Find out how to watch the Denver Nuggets play the Memphis Grizzlies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6834322/2025/11/24/nuggets-vs-grizzlies-stream-how-to-watch-nov-24/
 
-**How to watch Texas A&M-CC vs. Oklahoma State women's basketball: Time, TV, streaming**\
-`Find out how to watch the Texas A&M-CC Islanders play the Oklahoma State Cowgirls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6834265/2025/11/24/texas-a-m-cc-vs-oklahoma-state-stream-how-to-watch-nov-24/
+**How to watch Senators vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Ottawa Senators play the Los Angeles Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6834320/2025/11/24/senators-vs-kings-stream-how-to-watch-nov-24/
 
-**The Forgotten Nuclear Weapon Tests That Trump May Seek to Revive**\
-`Hydronuclear experiments, barred globally since the 1990s, may lie behind President Trump’s call last month for the United States to resume its testing of nuclear bombs.`\
-https://nytimes.com/2025/11/24/science/hydro-nuclear-testing-trump.html
+**How to watch Golden Knights vs. Mammoth: Time, TV, streaming**\
+`Find out how to watch the Vegas Golden Knights play the Utah Mammoth, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6834318/2025/11/24/golden-knights-vs-mammoth-stream-how-to-watch-nov-24/
 
-**Chauncey Billups, N.B.A. Coach in Gambling Case, Pleads Not Guilty**\
-`A hearing in Brooklyn was packed as Mr. Billups and 30 other defendants answered charges in a sweeping federal indictment involving rigged poker games.`\
-https://nytimes.com/2025/11/24/nyregion/nba-billups-gambling-plea.html
+**How to watch Jazz vs. Warriors: Time, TV, streaming**\
+`Find out how to watch the Utah Jazz play the Golden State Warriors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6834316/2025/11/24/jazz-vs-warriors-stream-how-to-watch-nov-24/
 
