@@ -1,3 +1,7 @@
+**Vietnam Reels From Deadly Rainy Season**\
+`Cleanup efforts are underway in Vietnam, where government officials on Sunday said more than 90 people had been killed from flooding and landslides in the past week.`\
+https://nytimes.com/video/world/asia/100000010543119/vietnam-reels-from-deadly-rainy-season.html
+
 **How to watch McNeese vs. West Virginia women's basketball: Time, TV, streaming**\
 `Find out how to watch the McNeese Cowgirls play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6833242/2025/11/24/mcneese-vs-west-virginia-stream-how-to-watch-nov-24/
