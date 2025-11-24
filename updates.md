@@ -1,3 +1,7 @@
+**Got Rockets questions? Submit to William Guillory for the latest mailbag**\
+`The Rockets are 10-4 entering Monday night and have the top offense in the NBA. What questions linger? What comes next? `\
+https://nytimes.com/athletic/6834472/2025/11/24/rockets-mailbag-kevin-durant-alperen-sengun/
+
 **Japanese boxing ring festooned with Blue Jays logos broke MLB's ad rules**\
 `All international sponsorships are supposed to go through the league to prevent a free-for-all. That's not what happened here. `\
 https://nytimes.com/athletic/6834248/2025/11/24/mlb-toronto-blue-jays-advertisements-boxing-match-japan/

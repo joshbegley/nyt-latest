@@ -1,3 +1,7 @@
+**Got Rockets questions? Submit to William Guillory for the latest mailbag**\
+`The Rockets are 10-4 entering Monday night and have the top offense in the NBA. What questions linger? What comes next? `\
+https://nytimes.com/athletic/6834472/2025/11/24/rockets-mailbag-kevin-durant-alperen-sengun/
+
 **Japanese boxing ring festooned with Blue Jays logos broke MLB's ad rules**\
 `All international sponsorships are supposed to go through the league to prevent a free-for-all. That's not what happened here. `\
 https://nytimes.com/athletic/6834248/2025/11/24/mlb-toronto-blue-jays-advertisements-boxing-match-japan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6834090/2025/11/24/yankees-hal-steinbrenner-dodgers
 **Some Park Rangers Are Still Owed Pay After the Shutdown**\
 `Federal workers were guaranteed back pay once the government reopened. Some at the National Park Service are still waiting.`\
 https://nytimes.com/2025/11/24/climate/park-service-back-pay-shutdown.html
-
-**How to watch Texas Tech vs. West Virginia: Time, TV, streaming**\
-`Find out how to watch the Texas Tech Red Raiders play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6834421/2025/11/24/texas-tech-vs-west-virginia-stream-how-to-watch-nov-29/
 
