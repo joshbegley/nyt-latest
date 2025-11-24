@@ -1,3 +1,7 @@
+**Another Yurov goal, Wallstedt shutout as Wild finally snap Winnipeg woes: Takeaways**\
+`Jesper Wallstedt's third shutout in his past four starts helped the Wild end a nine-game losing streak against the Jets.`\
+https://nytimes.com/athletic/6831741/2025/11/23/wild-shutout-wallstedt-yurov-faber-jets/
+
 **Sunday's Caleb Williams experience: Some good, some bad, another Bears win**\
 `Williams' gaffe in the end zone almost cost the Bears, but his three touchdown passes helped get them win No. 8.`\
 https://nytimes.com/athletic/6832034/2025/11/23/bears-caleb-williams-touchdowns-errors-steelers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6832225/2025/11/23/texas-a-m-vs-texas-stream-how-to
 **How to watch Temple vs. North Texas: Time, TV, streaming**\
 `Find out how to watch the Temple Owls play the North Texas Mean Green, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6832223/2025/11/23/temple-vs-north-texas-stream-how-to-watch-nov-28/
-
-**Ravens win fifth straight, move into first place in AFC North. But they need to be better**\
-`Baltimore's defense has held six straight opponents under 20 points, but the offense hasn't played as well in recent weeks.  `\
-https://nytimes.com/athletic/6831986/2025/11/23/ravens-offense-win-streak-afc-north/
 
