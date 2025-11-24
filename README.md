@@ -1,3 +1,7 @@
+**NFL Week 13 odds: Thanksgiving games projected to be high-scoring duels**\
+`The three Thanksgiving games have the three highest listed point totals of Week 13.`\
+https://nytimes.com/athletic/6833702/2025/11/24/nfl-week-13-odds-chiefs-cowboys-bengals-ravens/
+
 **Vikings QB J.J. McCarthy in concussion protocol, status for Week 13 uncertain**\
 `The second-year QB reported symptoms of a concussion after Sunday's loss to the Packers in which he threw for 87 yards and two INTs.`\
 https://nytimes.com/athletic/6834033/2025/11/24/jj-mccarthy-vikings-concussion-protocol/
@@ -8,11 +12,11 @@ https://nytimes.com/athletic/6833966/2025/11/24/cal-football-coaching-search-job
 
 **Read the Ruling Dismissing the Charges Against James Comey**\
 `A federal judge threw out the criminal charges against the former F.B.I. director James Comey after finding that the prosecutor President Trump handpicked to bring the cases had been illegally appointed.`\
-https://nytimes.com/interactive/2025/11/24/us/comeydismissal.html
+https://nytimes.com/interactive/2025/11/24/us/james-comey-ruling.html
 
 **Read the Ruling Dismissing the Charges Against Letitia James**\
 `A federal judge threw out the criminal charges against Letitia James, New York’s attorney general, after finding that the prosecutor President Trump handpicked to bring the cases had been illegally appointed.`\
-https://nytimes.com/interactive/2025/11/24/us/letitiajamesdismissal.html
+https://nytimes.com/interactive/2025/11/24/us/letitia-james-ruling.html
 
 **Hegseth Threatens Senator Mark Kelly With Inquiry for ‘Seditious’ Video**\
 `The defense secretary called the senator’s remarks urging troops not to follow illegal orders “despicable, reckless, and false.”`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6833943/2025/11/24/ap-mens-basketball-top-25-arizon
 **Browns name Shedeur Sanders starting QB for Week 13 vs. 49ers**\
 `Sanders became the first Cleveland rookie quarterback to win his starting debut since 1995 in Sunday's victory over the Raiders. `\
 https://nytimes.com/athletic/6834008/2025/11/24/shedeur-sanders-browns-starter-49ers/
-
-**Considering the American Character in Two Violin Concertos**\
-`At the New York Philharmonic, concertos by Samuel Barber and Wynton Marsalis offered contrasting musical ideas: lyrical cohesion and vibrant pluralism.`\
-https://nytimes.com/2025/11/24/arts/music/new-york-philharmonic-wynton-marsalis-samuel-barber.html
 
