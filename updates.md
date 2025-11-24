@@ -1,3 +1,11 @@
+**Raiders fire offensive coordinator Chip Kelly: Source**\
+`The Raiders made Kelly the highest-paid offensive coordinator in the league this offseason. He lasted 11 games.`\
+https://nytimes.com/athletic/6832547/2025/11/23/chip-kelly-fired-raiders-offensive-coordinator/
+
+**Bucs' Baker Mayfield injures left shoulder, leaves Sunday night game against Rams**\
+`The Tampa Bay quarterback wasn't able to return for the second half after being injured in the second quarter.`\
+https://nytimes.com/athletic/6832457/2025/11/23/baker-mayfield-buccaneers-shoulder-injury/
+
 **The red-hot Heat expect Tyler Herro to make his season debut on Monday**\
 `With Herro cleared to return, the NBA's fastest team is expected to get its leading scorer from last season back in the lineup.`\
 https://nytimes.com/athletic/6832270/2025/11/23/heat-tyler-herro-injury-status-season-debut-monday-mavericks/
