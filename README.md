@@ -1,3 +1,7 @@
+**Alma Allen, American Sculptor, Is Selected for Venice Biennale**\
+`The choice of a relatively unknown artist based in Mexico City ends a chaotic, much-delayed selection process led by the State Department.`\
+https://nytimes.com/2025/11/24/arts/design/alma-allen-venice-biennale.html
+
 **Putin’s Win-Win: Take a Russia-Friendly Peace Deal, or Fight On**\
 `The Kremlin’s leader is standing back as Ukraine and Europe scramble to negotiate changes to a U.S. proposal to end the war.`\
 https://nytimes.com/2025/11/24/world/europe/trump-ukraine-peace-talks-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6829154/2025/11/24/nba-rewind-chris-paul-nba-cup-th
 **Guardiola apologises for cameraman clash after Newcastle game: 'I feel embarrassed'**\
 `Guardiola was seen lifting the cameraman’s headphones and speaking to him as the operator filmed him on the pitch after the 2-1 defeat.`\
 https://nytimes.com/athletic/6833317/2025/11/24/manchester-city-pep-guardiola-cameraman-newcastle/
-
-**Giants fire defensive coordinator Shane Bowen following collapse vs. Lions: Source**\
-`The Giants are 2-10 and officially eliminated from playoff contention.`\
-https://nytimes.com/athletic/6832655/2025/11/24/ny-giants-shane-bowen-fired-defense/
 
