@@ -1,3 +1,7 @@
+**The Pulse: The best team in the NFL**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6831624/2025/11/24/rams-buccaneers-matthew-stafford-the-pulse/
+
 **How Arsenal unlocked Tottenham: Merino as a false nine left Spurs defence with no one to mark**\
 `Arsenal didn’t have a permanent penalty-box threat, but this helped them put constant pressure on Spurs, who barely got out of their half`\
 https://nytimes.com/athletic/6833064/2025/11/24/arsenal-tottenham-merino-false-nine/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/24/arts/music/jimmy-cliff-dead.html
 **The Lakers can't make an outside shot. But they keep winning anyway**\
 `“We're literally one of the worst shooting teams in the NBA right now," JJ Redick said after his team beat the Jazz to improve to 12-4.`\
 https://nytimes.com/athletic/6832876/2025/11/24/lakers-shooting-problems-austin-reaves-lebron-james/
-
-**Negotiating Peace in Ukraine**\
-`We explain the Trump administration’s latest push to end the war.`\
-https://nytimes.com/2025/11/24/briefing/negotiating-peace-in-ukraine.html
 
