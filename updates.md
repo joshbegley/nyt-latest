@@ -1,3 +1,15 @@
+**Is a New $3,500-a-Night Safari Camp Blocking a Wildlife Corridor?**\
+`Ritz-Carlton’s luxury camp in Kenya’s Masai Mara offers “front row seats” to the Great Migration. But some Masai tribe members and wildlife experts say it’s in a sensitive area and should not have been approved.`\
+https://nytimes.com/2025/11/24/travel/ritz-carlton-safari-camp-masai-tribe-great-migration.html
+
+**Nick Sirianni says Eagles won't change offense's play calling duties despite struggles**\
+`Philadelphia's offense has been struggling all season, but the Eagles still have an 8-3 record.`\
+https://nytimes.com/athletic/6834647/2025/11/24/eagles-offense-nick-sirianni-kevin-patullo/
+
+**Judge dismisses Comey and James cases**\
+`Also, why kids in American classrooms are struggling. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/11/24/briefing/comey-ukraine-cliff.html
+
 **‘Queen of Versailles’ to Close as New Broadway Musicals Struggle**\
 `The show, starring Kristin Chenoweth, will remain open through the holidays. The announcement comes just two weeks after the musical opened.`\
 https://nytimes.com/2025/11/24/theater/queen-of-versailles-broadway-closing.html
