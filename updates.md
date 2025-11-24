@@ -1,3 +1,7 @@
+**In Michigan’s Upper Peninsula, Locals Fight for ‘The Right to Night’**\
+`Industrialization in the mostly rural northern part of the state has some residents pushing for protection of the region’s dark skies.`\
+https://nytimes.com/2025/11/24/science/astronomy-michigan-dark-sky.html
+
 **Ranking the Premier League's top-10 hat-tricks**\
 `Eberechi Eze scored the Premier League's 400th hat-trick at the weekend. But which ones were the best?`\
 https://nytimes.com/athletic/6831505/2025/11/24/premier-league-hat-tricks-ranked/
