@@ -1,3 +1,15 @@
+**Bengals Ja'Marr Chase apologizes for spitting, but not to Steelers' Jalen Ramsey**\
+`The Bengals receiver took to Instagram on Monday to apologize to his team, the Steelers and fans after his one-game suspension.`\
+https://nytimes.com/athletic/6834390/2025/11/24/jamarr-chase-spit-apology-jalen-ramsey/
+
+**Marlins had extension talks with outfielder Kyle Stowers: Sources**\
+`The two sides have tabled negotiations for now. Stowers is said to be looking for a nine-figure deal — much more than Miami wants to pay.`\
+https://nytimes.com/athletic/6834085/2025/11/24/marlins-kyle-stowers-extension-talks/
+
+**A San Diego Zoo Galápagos Tortoise, Thought to Be 141, Is Dead**\
+`Gramma, a Galápagos Tortoise described by her care specialists as “the queen of the zoo.” was euthanized last Thursday after suffering “ongoing bone conditions related to advanced age,” the San Diego Zoo said.`\
+https://nytimes.com/video/us/100000010544641/141-year-old-galpagos-tortoise-dies.html
+
 **Israeli-Backed Gaza Aid Outfit Shunned by Humanitarian Groups Shuts Down**\
 `The Gaza Humanitarian Foundation said it had succeeded in delivering million of meals in the war-torn enclave, but some Palestinian were killed trying to obtain them.`\
 https://nytimes.com/2025/11/24/world/middleeast/ghf-gaza-closing.html

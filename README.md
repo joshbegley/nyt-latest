@@ -1,3 +1,11 @@
+**Ozempic Drug Fails to Quell Alzheimer’s in Novo Nordisk Trials**\
+`The studies were a significant setback for the optimistic view that semaglutide and other GLP-1 drugs could help prevent a number of brain diseases.`\
+https://nytimes.com/2025/11/24/health/ozempic-wegovy-alzheimers-novo-nordisk.html
+
+**Army Chief Ignites Uproar After Saying France Must ‘Accept Losing Our Children’**\
+`The furor erupted as President Emmanuel Macron is expected to present a plan for paid, voluntary military service to bolster the armed forces against the threat from Russia.`\
+https://nytimes.com/2025/11/24/world/europe/france-voluntary-military-service.html
+
 **Bengals Ja'Marr Chase apologizes for spitting, but not to Steelers' Jalen Ramsey**\
 `The Bengals receiver took to Instagram on Monday to apologize to his team, the Steelers and fans after his one-game suspension.`\
 https://nytimes.com/athletic/6834390/2025/11/24/jamarr-chase-spit-apology-jalen-ramsey/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6834421/2025/11/24/texas-tech-vs-west-virginia-stre
 **How to watch Ohio State vs. Michigan: Time, TV, streaming**\
 `Find out how to watch the Ohio State Buckeyes play the Michigan Wolverines, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6834419/2025/11/24/ohio-state-vs-michigan-stream-how-to-watch-nov-29/
-
-**How to watch Missouri vs. Arkansas: Time, TV, streaming**\
-`Find out how to watch the Missouri Tigers play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6834415/2025/11/24/missouri-vs-arkansas-stream-how-to-watch-nov-29/
-
-**How to watch Vanderbilt vs. Tennessee: Time, TV, streaming**\
-`Find out how to watch the Vanderbilt Commodores play the Tennessee Volunteers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6834413/2025/11/24/vanderbilt-vs-tennessee-stream-how-to-watch-nov-29/
 
