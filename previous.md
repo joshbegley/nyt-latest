@@ -1,36 +1,40 @@
+**How to watch UT Rio Grande Valley vs. Illinois men's basketball: Time, TV, streaming**\
+`Find out how to watch the UT Rio Grande Valley Vaqueros play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6834292/2025/11/24/ut-rio-grande-valley-vs-illinois-stream-how-to-watch-nov-24/
+
+**How to watch Central Michigan vs. Notre Dame women's basketball: Time, TV, streaming**\
+`Find out how to watch the Central Michigan Chippewas play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6834290/2025/11/24/central-michigan-vs-notre-dame-stream-how-to-watch-nov-24/
+
+**How to watch Auburn vs. Oregon men's basketball: Time, TV, streaming**\
+`Find out how to watch the Auburn Tigers play the Oregon Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6834288/2025/11/24/auburn-vs-oregon-stream-how-to-watch-nov-24/
+
+**How to watch Michigan vs. San Diego State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan Wolverines play the San Diego State Aztecs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6834285/2025/11/24/michigan-vs-san-diego-state-stream-how-to-watch-nov-24/
+
+**How to watch Gonzaga vs. Alabama men's basketball: Time, TV, streaming**\
+`Find out how to watch the Gonzaga Bulldogs play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6834283/2025/11/24/gonzaga-vs-alabama-stream-how-to-watch-nov-24/
+
+**How to watch Seton Hall vs. NC State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Seton Hall Pirates play the NC State Wolfpack, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6834281/2025/11/24/seton-hall-vs-nc-state-stream-how-to-watch-nov-24/
+
+**How to watch Denver vs. Arizona men's basketball: Time, TV, streaming**\
+`Find out how to watch the Denver Pioneers play the Arizona Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6834277/2025/11/24/denver-vs-arizona-stream-how-to-watch-nov-24/
+
+**How to watch Texas A&M-CC vs. Oklahoma State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas A&M-CC Islanders play the Oklahoma State Cowgirls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6834265/2025/11/24/texas-a-m-cc-vs-oklahoma-state-stream-how-to-watch-nov-24/
+
+**The Forgotten Nuclear Weapon Tests That Trump May Seek to Revive**\
+`Hydronuclear experiments, barred globally since the 1990s, may lie behind President Trump’s call last month for the United States to resume its testing of nuclear bombs.`\
+https://nytimes.com/2025/11/24/science/hydro-nuclear-testing-trump.html
+
 **Chauncey Billups, N.B.A. Coach in Gambling Case, Pleads Not Guilty**\
 `A hearing in Brooklyn was packed as Mr. Billups and 30 other defendants answered charges in a sweeping federal indictment involving rigged poker games.`\
 https://nytimes.com/2025/11/24/nyregion/nba-billups-gambling-plea.html
-
-**QB Jayden Daniels, WR Noah Brown to return to practice for Commanders: Sources**\
-`Daniels' status for Sunday’s game again the Denver Broncos isn’t set, but at this point, he’s considered a long shot to be available.`\
-https://nytimes.com/athletic/6834137/2025/11/24/jayden-daniels-commanders-practice-dislocated-elbow/
-
-**Lawsuit claims Suns owner Mat Ishbia treated team like his 'personal piggy bank'**\
-`Andy Kohlberg and Scott Seldin, minority owners of the Suns and Mercury, accused Ishbia of financial malfeasance in a new lawsuit.`\
-https://nytimes.com/athletic/6833692/2025/11/24/phoenix-suns-mercury-lawsuit-ishbia/
-
-**Does New York Need Another Luxury Grocery Store?**\
-`Meadow Lane opened to immense hype and long lines. Despite early hiccups, some New Yorkers are still eager to shop designer provisions.`\
-https://nytimes.com/2025/11/24/dining/meadow-lane-grocery-store.html
-
-**Is There a Little Wolf in Your Chihuahua?**\
-`New studies of canine genetics shed light on the diversity of dogs and our longstanding, still-evolving relationship to them.`\
-https://nytimes.com/2025/11/24/science/genetics-dogs-pets.html
-
-**Rockies name Warren Schaeffer as full-time manager**\
-`Schaeffer became the team's interim manager in May, after Colorado fired longtime manager Bud Black. `\
-https://nytimes.com/athletic/6834068/2025/11/24/rockies-warren-schaeffer-full-time-manager/
-
-**With One Movie and Soundtrack, Jimmy Cliff Changed Reggae Forever**\
-`The 1972 film “The Harder They Come” and its accompanying soundtrack brought the genre out of Jamaica and helped pave the way for future stars.`\
-https://nytimes.com/2025/11/24/arts/music/jimmy-cliff-harder-they-come.html
-
-**Joe Burrow is expected to return as Bengals' starting QB vs. Ravens**\
-`Since Burrow went out with turf toe, Cincinnati has gone 1-8 in games started by Jake Browning and Joe Flacco.`\
-https://nytimes.com/athletic/6834048/2025/11/24/joe-burrow-bengals-return-turf-toe/
-
-**NFL overreaction Monday: To fade or not to fade Shedeur Sanders**\
-`Toby Mergler's betting picks for the week are all about the quarterbacks, and going against his own instincts.`\
-https://nytimes.com/athletic/6834038/2025/11/24/nfl-overreaction-monday-mccarthy-sanders/
 
