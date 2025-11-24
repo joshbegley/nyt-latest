@@ -1,3 +1,11 @@
+**Will Dressing Up Fix Flying? Will It Fix Anything?**\
+`Transportation Secretary Sean Duffy has introduced a campaign meant to encourage civility.`\
+https://nytimes.com/2025/11/24/style/dress-up-for-flying-sean-duffy.html
+
+**Skye Gyngell, Chef Who Championed ‘Slow Food,’ Dies at 62**\
+`The Australian pioneer of sustainable cooking practices that preserved local traditions died in London. She had been diagnosed with aggressive skin cancer last year.`\
+https://nytimes.com/2025/11/24/obituaries/skye-gyngell-dead.html
+
 **Why Canucks' loss to Flames shows they must reshape their short-term priorities**\
 `This is about a 23-game body of work in which the Canucks have sputtered and struggled in just about every phase of the game.`\
 https://nytimes.com/athletic/6832837/2025/11/24/canucks-loss-score-flames-vancouver/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/11/24/books/review/classic-sf-quotes.html
 **Flyers prospect Jett Luchanko traded in OHL: What it means for him**\
 `Luchanko has had two brief NHL stints with the Flyers.`\
 https://nytimes.com/athletic/6833566/2025/11/24/jett-luchanko-trade-flyers-juniors/
-
-**Submit a question for James Edwards’ Knicks mailbag**\
-`The Knicks are a quarter of the way through the regular season with an elite offense, flimsy defense and injuries that could impact them both now and going forward.`\
-https://nytimes.com/athletic/6833503/2025/11/24/knicks-mailbag-elite-offense-flimsy-defense/
-
-**Padma Lakshmi’s Spice-Organizing Method**\
-`Ever wanted to glimpse inside Padma Lakshmi’s spice drawer? We spoke with the cookbook author about how she organizes her kitchen to make cooking easier and more efficient.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010543513/padma-lakshmis-spice-organizing-method.html
 
