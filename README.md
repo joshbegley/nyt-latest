@@ -1,4 +1,8 @@
-**Dallas Wings win WNBA Draft lottery: Who will join Paige Bueckers?**\
+**Former News Anchor Sentenced to 10 Years in Prison for Pandemic Fraud**\
+`The former anchor, Stephanie Hockridge, who once worked for a Phoenix station, participated in an elaborate scheme that illegally obtained more than $63 million.`\
+https://nytimes.com/2025/11/23/us/phoenix-news-anchor-covid-fraud.html
+
+**Wings win WNBA Draft lottery again: Who will join Paige Bueckers?**\
 `Minnesota Lynx land No. 2 pick, while Seattle Storm win third selection.`\
 https://nytimes.com/athletic/6831951/2025/11/23/wnba-draft-lottery-dallas-wings-win-no-1-pick/
 
@@ -35,8 +39,4 @@ https://nytimes.com/2025/11/23/us/politics/caribbean-trump-venezuela-military.ht
 **U.S. Introduces New Female Crash-Test Dummy Standards**\
 `A female crash-test dummy to replace an outdated model largely based on male proportions would improve safety for women, who face higher fatality and injury risks on the road, officials said.`\
 https://nytimes.com/2025/11/23/us/female-crash-test-dummy.html
-
-**Sabres climb out of last place in Eastern Conference with win over Hurricanes: 5 thoughts**\
-`Ukko-Pekka Luukkonen made his first consecutive starts as the Sabres returned to .500 this season.`\
-https://nytimes.com/athletic/6831740/2025/11/23/sabres-standings-malenstyn-quinn-hurricanes/
 
