@@ -1,3 +1,15 @@
+**Restrained, Beaten, Asphyxiated: New York Prison Guards’ Brutality Grows**\
+`As frustrations among corrections officers mount, abusive treatment of inmates is rising and becoming more vicious, records and interviews show.`\
+https://nytimes.com/2025/11/24/nyregion/ny-prison-guards-abuse-brutality.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/24/crosswords/spelling-bee-forum.html
+
+**Why Are Guards Using Force More Often in New York’s Prisons?**\
+`State prison guards say they are doing so because their jobs have become more dangerous. A New York Times analysis points to a different reality.`\
+https://nytimes.com/2025/11/24/nyregion/ny-prison-guards-use-force.html
+
 **Ukrainians React to Peace Plan to End Russia’s War**\
 `American and Ukrainian officials said they had made progress in Geneva on a plan to end the war with Russia. Some Ukrainians dismissed the early draft as a concession.`\
 https://nytimes.com/video/world/europe/100000010542602/ukraine-switzerland-russia-peace-talks.html

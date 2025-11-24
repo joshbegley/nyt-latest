@@ -1,3 +1,15 @@
+**Restrained, Beaten, Asphyxiated: New York Prison Guards’ Brutality Grows**\
+`As frustrations among corrections officers mount, abusive treatment of inmates is rising and becoming more vicious, records and interviews show.`\
+https://nytimes.com/2025/11/24/nyregion/ny-prison-guards-abuse-brutality.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/11/24/crosswords/spelling-bee-forum.html
+
+**Why Are Guards Using Force More Often in New York’s Prisons?**\
+`State prison guards say they are doing so because their jobs have become more dangerous. A New York Times analysis points to a different reality.`\
+https://nytimes.com/2025/11/24/nyregion/ny-prison-guards-use-force.html
+
 **Ukrainians React to Peace Plan to End Russia’s War**\
 `American and Ukrainian officials said they had made progress in Geneva on a plan to end the war with Russia. Some Ukrainians dismissed the early draft as a concession.`\
 https://nytimes.com/video/world/europe/100000010542602/ukraine-switzerland-russia-peace-talks.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6831044/2025/11/24/england-fans-perth-australia-ash
 **It is still not enough just to play women's football. You need to sell yourself within it**\
 `Is the culture surrounding the commercial and branding opportunities within women’s football more fraught than we care to admit?`\
 https://nytimes.com/athletic/6830545/2025/11/24/womens-football-branding-david-beckham-agent/
-
-**After 50 games as Brighton boss, is Hurzeler better than Potter and De Zerbi?**\
-`The 32-year-old German coach reached the milestone with a 2-1 win over Brentford. So how does he stack up against his predecessors?`\
-https://nytimes.com/athletic/6726091/2025/11/24/after-50-games-as-brighton-boss-is-hurzeler-better-than-potter-and-de-zerbi/
-
-**St James' Park witnesses two sides of Gianluigi Donnarumma**\
-`The Italian goalkeeper made a string of good saves but was left furious by Newcastle's winning goal on Saturday evening`\
-https://nytimes.com/athletic/6829249/2025/11/24/manchester-city-st-james-park-donnarumma/
-
-**The crucial Tonali/Guimaraes switch that helped Newcastle beat Manchester City**\
-`After a difficult period, Eddie Howe enjoyed a tactically-successful evening on Saturday`\
-https://nytimes.com/athletic/6830376/2025/11/24/the-crucial-tonali-guimaraes-switch-that-helped-newcastle-beat-manchester-city/
 
