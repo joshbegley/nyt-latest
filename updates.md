@@ -1,3 +1,11 @@
+**Fantasy football Week 12 recap, early waivers speed run**\
+`Backfield questions abound in Chicago and New England, plus bye-low candidates in Baltimore and L.A.`\
+https://nytimes.com/athletic/6833775/2025/11/24/fantasy-football-week-12-recap-early-waivers-speed-run/
+
+**She Believes Technology Can Help Girls Learn, Even Under Taliban Rule**\
+`The entrepreneur Roya Mahboob is building off-line apps, underground networks and a global robotics team to educate Afghan girls unable to attend school.`\
+https://nytimes.com/2025/11/24/world/asia/roya-mahboob-afghanistan-technology-girls.html
+
 **In Namibia, a Trailblazing Minister Is Reimagining Health Care**\
 `Dr. Esperance Luvindao, who leads the country’s health and social services and is the youngest health minister in Africa, has ambitious plans.`\
 https://nytimes.com/2025/11/24/world/africa/esperance-luvindao-namibia-health-care.html
