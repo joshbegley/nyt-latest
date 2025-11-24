@@ -1,3 +1,19 @@
+**The red-hot Heat expect Tyler Herro to make his season debut on Monday**\
+`With Tyler Herro cleared to return, the NBA's fastest team is expected to get its leading scorer from last season back in the lineup.`\
+https://nytimes.com/athletic/6832270/2025/11/23/heat-tyler-herro-injury-status-season-debut-monday-mavericks/
+
+**Patrick Mahomes, Chiefs are most dangerous wild cards of all in NFL playoff race**\
+`It's early, but if Mahomes leads the Chiefs back to the Super Bowl for a sixth time, remember Sunday's win as the one that made it possible.`\
+https://nytimes.com/athletic/6832253/2025/11/23/chiefs-colts-patrick-mahomes-nfl-playoff-race/
+
+**Colts, Shane Steichen fail to meet the moment as offense wilts in loss to Chiefs**\
+`With his offense struggling, Steichen neglected the run for the pass and effectively shelved his best player: Jonathan Taylor. `\
+https://nytimes.com/athletic/6831771/2025/11/23/colts-shane-steichen-offense-daniel-jones-fail-chiefs/
+
+**How the Falcons completely changed their offense in one week and beat the Saints**\
+`The Falcons offense looked completely different behind Kirk Cousins than it has all season. The result was a 24-10 win over the Saints.`\
+https://nytimes.com/athletic/6832384/2025/11/23/falcons-saints-kirk-cousins-david-sills/
+
 **Colts, Shane Steichen fail to meet the moment as offense sputters in loss to Chiefs**\
 `With his offense struggling, Steichen neglected the run for the pass and effectively shelved his best player: Jonathan Taylor. `\
 https://nytimes.com/athletic/6831771/2025/11/23/colts-shane-steichen-offense-daniel-jones-fail-chiefs/
