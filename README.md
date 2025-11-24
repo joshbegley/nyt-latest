@@ -1,3 +1,11 @@
+**In Namibia, a Trailblazing Minister Is Reimagining Health Care**\
+`Dr. Esperance Luvindao, who leads the country’s health and social services and is the youngest health minister in Africa, has ambitious plans.`\
+https://nytimes.com/2025/11/24/world/africa/esperance-luvindao-namibia-health-care.html
+
+**She Helps Unearth the Submerged History of the Great Lakes**\
+`Tamara Thomsen, a maritime archaeologist and diving instructor, has helped uncover more than 100 shipwrecks across the region.`\
+https://nytimes.com/2025/11/24/science/tamara-thomsen-shipwrecks.html
+
 **Wen Hui Was Making Feminist Art Before She Even Knew the Term**\
 `The Chinese dancer, choreographer and filmmaker “didn’t think in those terms” when she was young. Now, she said, “I’m more relaxed, more clear on what I want to do.”`\
 https://nytimes.com/2025/11/24/arts/dance/wen-hui-contemporary-dance.html
@@ -25,16 +33,4 @@ https://nytimes.com/athletic/6833105/2025/11/24/usmnt-world-cup-pulisic-tillman/
 **Mikel Merino on why Eberechi Eze is a 'complete' player**\
 `Mikel Merino discusses the small moments that stand out most about Arsenal's north London derby winner`\
 https://nytimes.com/athletic/6832991/2025/11/24/mikel-merino-on-eberechi-eze/
-
-**Patriots rookie left tackle Will Campbell to miss 'a couple of weeks' with knee injury**\
-`It appears likely that Campbell will be placed on injured reserve, while left guard Jared Wilson is also expected to miss several weeks.`\
-https://nytimes.com/athletic/6833490/2025/11/24/will-campbell-patriots-injury-jared-wilson/
-
-**F1 has stopped trying too hard in Las Vegas, but one big issue remains**\
-`Las Vegas again put on a show for Formula One, but the race's place on the schedule remains tough on drivers`\
-https://nytimes.com/athletic/6831774/2025/11/24/f1-las-vegas-issue-remains/
-
-**A Draft or Volunteers? Russian Threat Prompts Urgent Debate in Europe.**\
-`With Russia looming, governments race to rebuild armed forces that shrank after the Cold War, grappling with hard issues of economics, politics and military strategy.`\
-https://nytimes.com/2025/11/24/business/economy/russia-ukraine-europe-military.html
 
