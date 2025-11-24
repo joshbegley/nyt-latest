@@ -1,3 +1,7 @@
+**Man Is Killed in Early Morning Stabbing Near Times Square**\
+`It was the second murder in Midtown in roughly 24 hours. The attack came about a week after Kris Boyd, a player for the New York Jets, was shot in the area.`\
+https://nytimes.com/2025/11/24/nyregion/midtown-manhattan-stabbing.html
+
 **Yes, We Must Talk About Epstein**\
 `Readers strongly object to David Brooks’s argument that we should focus on more important issues. Also: Firings at the National Endowment for the Humanities.`\
 https://nytimes.com/2025/11/24/opinion/jeffrey-epstein-david-brooks.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/24/science/tamara-thomsen-shipwrecks.html
 **Wen Hui Was Making Feminist Art Before She Even Knew the Term**\
 `The Chinese dancer, choreographer and filmmaker “didn’t think in those terms” when she was young. Now, she said, “I’m more relaxed, more clear on what I want to do.”`\
 https://nytimes.com/2025/11/24/arts/dance/wen-hui-contemporary-dance.html
-
-**Jimmy Cliff: 8 Essential Songs**\
-`A giant of Jamaican music, he gained international renown through the 1972 film “The Harder They Come,” and helped establish reggae’s themes of struggle, resistance and uplift.`\
-https://nytimes.com/2025/11/24/arts/music/jimmy-cliff-songs.html
 
