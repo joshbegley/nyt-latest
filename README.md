@@ -1,3 +1,7 @@
+**Analyzing the Knicks: Mike Brown's strategy, defensive deficiencies and more**\
+`Writers Fred Katz and James L. Edwards III take a look at how the Knicks are doing 15 games into the season. `\
+https://nytimes.com/athletic/6831026/2025/11/24/knicks-analysis-mike-brown-coaching/
+
 **England decline chance to give batters pink-ball practice in Lions tour match**\
 `Three tourists released to Lions squad for game against the Prime Minister's XI, while Australia monitor fitness of Khawaja and Hazlewood`\
 https://nytimes.com/athletic/6832969/2025/11/24/england-batters-pink-ball-brisbane-canberra/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6808180/2025/11/24/chiefs-eagles-playoffs-super-bow
 **Five potential Freddy Peralta trades if the Brewers decide to deal their ace**\
 `The Brewers plan to keep Peralta for 2026, but if the right deal comes along, they could be swayed. One of these five deals might do it.`\
 https://nytimes.com/athletic/6826990/2025/11/24/freddy-peralta-trade-scenarios-brewers-braves-mets-yankees-giants/
-
-**The New York Times International Edition in Print for Tuesday, Nov. 25, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/11/24/todays-new-york-times-international-edition
 
