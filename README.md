@@ -1,3 +1,19 @@
+**NBA Power Rankings: From Nikola Jokić to Dillon Brooks, something to be thankful for**\
+`Even the bottom-tier teams have something to be grateful for ... right?`\
+https://nytimes.com/athletic/6833177/2025/11/24/nba-power-rankings-lakers-nuggets-warriors-thanksgiving/
+
+**The Bounce: Will OKC or the Pistons ever lose again? Plus, Ja vs. Klay in Beef Court**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6833431/2025/11/24/pistons-thunder-chris-paul-ja-morant-klay-thompson-the-bounce/
+
+**Small Earthquake Shakes Northern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/11/24/us/earthquake-northern-california.html
+
+**Phoenix Mercury unveil rebrand ahead of 30th anniversary: 'We wanted an evolution'**\
+`With the WNBA's 30th season approaching next spring, the Mercury are unveiling a significant change of their own.`\
+https://nytimes.com/athletic/6832690/2025/11/24/phoenix-mercury-rebrand-30th-anniversary/
+
 **Brazil Defied Trump and Won**\
 `President Trump tried to keep the former Brazilian president, Jair Bolsonaro, out of prison. He failed, and now he is moving on.`\
 https://nytimes.com/2025/11/24/world/americas/trump-bolsonaro-arrest.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6833090/2025/11/24/12-players-with-playoff-mismatch
 **In Michigan’s Upper Peninsula, Locals Fight for ‘The Right to Night’**\
 `Industrialization in the mostly rural northern part of the state has some residents pushing for protection of the region’s dark skies.`\
 https://nytimes.com/2025/11/24/science/astronomy-michigan-dark-sky.html
-
-**Ranking the Premier League's top-10 hat-tricks**\
-`Eberechi Eze scored the Premier League's 400th hat-trick at the weekend. But which ones were the best?`\
-https://nytimes.com/athletic/6831505/2025/11/24/premier-league-hat-tricks-ranked/
-
-**How Do Ultraprocessed Foods Affect the Gut?**\
-`Studies have linked them to colorectal cancer and other digestive conditions.`\
-https://nytimes.com/2025/11/24/well/eat/ultraprocessed-foods-gut-health-colorectal-cancer.html
-
-**Rick Cotton, Head of the Port Authority, Is Stepping Down**\
-`Mr. Cotton oversaw the rebuilding of LaGuardia Airport and several other major infrastructure projects in the New York City region.`\
-https://nytimes.com/2025/11/24/nyregion/rick-cotton-port-authority-retiring.html
-
-**Vinicius Jr tells Madrid he won't renew while Alonso relationship remains difficult**\
-`The Brazilian's position was made clear at a meeting with Madrid president Florentino Perez after El Clasico.`\
-https://nytimes.com/athletic/6814027/2025/11/24/vinicius-jr-real-madrid-alonso-contract/
 
