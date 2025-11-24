@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6834068/2025/11/24/rockies-warren-schaeffer-full-ti
 `The 1972 film “The Harder They Come” and its accompanying soundtrack brought the genre out of Jamaica and helped pave the way for future stars.`\
 https://nytimes.com/2025/11/24/arts/music/jimmy-cliff-harder-they-come.html
 
-**Joe Burrow to return as Bengals' starting QB vs. Ravens**\
+**Joe Burrow is expected to return as Bengals' starting QB vs. Ravens**\
 `Since Burrow went out with turf toe, Cincinnati has gone 1-8 in games started by Jake Browning and Joe Flacco.`\
 https://nytimes.com/athletic/6834048/2025/11/24/joe-burrow-bengals-return-turf-toe/
 
