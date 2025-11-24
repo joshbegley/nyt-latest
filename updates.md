@@ -1,3 +1,7 @@
+**Rockies name Warren Schaeffer as full-time manager**\
+`Schaeffer became the team's interim manager in May, after Colorado fired longtime manager Bud Black. `\
+https://nytimes.com/athletic/6834068/2025/11/24/rockies-warren-schaeffer-full-time-manager/
+
 **With One Movie and Soundtrack, Jimmy Cliff Changed Reggae Forever**\
 `The 1972 film “The Harder They Come” and its accompanying soundtrack brought the genre out of Jamaica and helped pave the way for future stars.`\
 https://nytimes.com/2025/11/24/arts/music/jimmy-cliff-harder-they-come.html
