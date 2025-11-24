@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>It&#8217;s Rivalry Week! Though this year maybe we should refer to it as Lane Week.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6831971/2025/11/23/submit-a-question-for-stewart-mandels-college-football-mailbag-324/
+
 **Cal fires Justin Wilcox, names ex-Wazzu coach Nick Rolovich interim: Sources**\
 `In Wilcox's nine years in Berkeley, the Bears never won more than seven games in the regular season.`\
 https://nytimes.com/athletic/6831863/2025/11/23/justin-wilcox-fired-nick-rolovich-cal-football/
@@ -33,8 +39,4 @@ https://nytimes.com/2025/11/23/crosswords/daily-puzzle-2025-11-24.html
 **NFC North pecking order and the irrepressible Chiefs: Our experts' Week 12 takeaways**\
 `Also, is Jahmyr Gibbs the best running back in football? And who has the upper hand in the race for the AFC's top seed?`\
 https://nytimes.com/athletic/6831359/2025/11/23/nfl-takeaways-week-12-scores-results/
-
-**Terry Crews serenades F1 Las Vegas Grand Prix podium finishers in pink LEGO Cadillac**\
-`Max Verstappen, Lando Norris and George Russell laughed as Crews reenacted his famous scene from "White Chicks" for the F1 drivers.`\
-https://nytimes.com/athletic/6831436/2025/11/23/terry-crews-formula-one-las-vegas-grand-prix/
 
