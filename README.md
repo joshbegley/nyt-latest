@@ -1,3 +1,27 @@
+**Explained: Everton midfielder Gueye's strange red card against Man Utd**\
+`It was the first time a player had been sent off in the Premier League for fighting a team-mate in 17 years. `\
+https://nytimes.com/athletic/6834345/2025/11/24/idrissa-gueye-everton-red-card-manchester-united-explained/
+
+**Elle Duncan is set to become the face of Netflix's sports coverage: Sources**\
+`Netflix has become increasingly serious about airing live sports, including NFL and MLB games.`\
+https://nytimes.com/athletic/6834307/2025/11/24/elle-duncan-netflix-hired/
+
+**Watch: How TreVeyon Henderson has helped elevate surging Patriots offense**\
+`TreVeyon Henderson has helped elevate a young Patriots offense by taking some of the pressure off QB Drake Maye.`\
+https://nytimes.com/athletic/6834520/2025/11/24/treveyon-henderson-film-breakdown-patriots/
+
+**Eagles safety Andrew Mukuba fractures his leg in Sunday's loss**\
+`Eagles currently lead the NFC East with an 8-3 record.`\
+https://nytimes.com/athletic/6834377/2025/11/24/eagles-safety-andrew-mukuba-fractures-leg-sundays/
+
+**What does Mets' Brandon Nimmo trade mean for David Stearns' offseason?**\
+`The Mets' surprising trade of Brandon Nimmo seems to have established a theme for New York: “Anything would be realistic right now.”`\
+https://nytimes.com/athletic/6834363/2025/11/24/mets-brandon-nimmo-trade-david-stearns-offseason/
+
+**How the Peace Plan Looks to Ukraine and Russia**\
+`Our correspondents discuss the prospects for President Trump’s plan to end the war.`\
+https://nytimes.com/2025/11/24/world/peace-plan-ukraine-russia-nato-comey.html
+
 **Got Rockets questions? Submit to William Guillory for the latest mailbag**\
 `The Rockets are 10-4 entering Monday night and have the top offense in the NBA. What questions linger? What comes next? `\
 https://nytimes.com/athletic/6834472/2025/11/24/rockets-mailbag-kevin-durant-alperen-sengun/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/11/24/health/ozempic-wegovy-alzheimers-novo-nordisk.htm
 **Army Chief Ignites Uproar After Saying France Must ‘Accept Losing Our Children’**\
 `The furor erupted as President Emmanuel Macron is expected to present a plan for paid, voluntary military service to bolster the armed forces against the threat from Russia.`\
 https://nytimes.com/2025/11/24/world/europe/france-voluntary-military-service.html
-
-**Bengals Ja'Marr Chase apologizes for spitting, but not to Steelers' Jalen Ramsey**\
-`The Bengals receiver took to Instagram on Monday to apologize to his team, the Steelers and fans after his one-game suspension.`\
-https://nytimes.com/athletic/6834390/2025/11/24/jamarr-chase-spit-apology-jalen-ramsey/
-
-**Marlins had extension talks with outfielder Kyle Stowers: Sources**\
-`The two sides have tabled negotiations for now. Stowers is said to be looking for a nine-figure deal — much more than Miami wants to pay.`\
-https://nytimes.com/athletic/6834085/2025/11/24/marlins-kyle-stowers-extension-talks/
-
-**A San Diego Zoo Galápagos Tortoise, Thought to Be 141, Is Dead**\
-`Gramma, a Galápagos Tortoise described by her care specialists as “the queen of the zoo.” was euthanized last Thursday after suffering “ongoing bone conditions related to advanced age,” the San Diego Zoo said.`\
-https://nytimes.com/video/us/100000010544641/141-year-old-galpagos-tortoise-dies.html
-
-**Israeli-Backed Gaza Aid Outfit Shunned by Humanitarian Groups Shuts Down**\
-`The Gaza Humanitarian Foundation said it had succeeded in delivering million of meals in the war-torn enclave, but some Palestinian were killed trying to obtain them.`\
-https://nytimes.com/2025/11/24/world/middleeast/ghf-gaza-closing.html
-
-**Yankees owner Hal Steinbrenner: 'Of course it's a concern' that Dodgers keep winning**\
-`Steinbrenner: "It’s always a concern any time I feel that one team is pulling away from the other 29, (or) selfishly, pulling away from me."`\
-https://nytimes.com/athletic/6834090/2025/11/24/yankees-hal-steinbrenner-dodgers-mlb-payroll/
-
-**Some Park Rangers Are Still Owed Pay After the Shutdown**\
-`Federal workers were guaranteed back pay once the government reopened. Some at the National Park Service are still waiting.`\
-https://nytimes.com/2025/11/24/climate/park-service-back-pay-shutdown.html
 
