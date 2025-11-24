@@ -1,3 +1,7 @@
+**X Displays Users’ Locations, Fueling Scrutiny Over Political Accounts**\
+`Online sleuths quickly found that some accounts posting about U.S. politics, including those in support of the MAGA movement, appeared not to be based in the United States.`\
+https://nytimes.com/2025/11/24/us/politics/x-twitter-location-maga-controversy.html
+
 **Restrained, Beaten, Asphyxiated: New York Prison Guards’ Brutality Grows**\
 `As frustrations among corrections officers mount, abusive treatment of inmates is rising and becoming more vicious, records and interviews show.`\
 https://nytimes.com/2025/11/24/nyregion/ny-prison-guards-abuse-brutality.html
