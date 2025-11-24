@@ -1,3 +1,7 @@
+**Raiders fire offensive coordinator Chip Kelly**\
+`The Raiders made Kelly the highest-paid offensive coordinator in the league this offseason. He lasted 11 games.`\
+https://nytimes.com/athletic/6832547/2025/11/23/chip-kelly-fired-raiders-offensive-coordinator/
+
 **Raiders fire offensive coordinator Chip Kelly: Source**\
 `The Raiders made Kelly the highest-paid offensive coordinator in the league this offseason. He lasted 11 games.`\
 https://nytimes.com/athletic/6832547/2025/11/23/chip-kelly-fired-raiders-offensive-coordinator/
