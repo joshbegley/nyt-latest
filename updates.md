@@ -1,3 +1,7 @@
+**The Pulse: The best team in the NFL**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6831624/2025/11/24/rams-buccaneers-matthew-stafford-the-pulse/
+
 **How Arsenal unlocked Tottenham: Merino as a false nine left Spurs defence with no one to mark**\
 `Arsenal didn’t have a permanent penalty-box threat, but this helped them put constant pressure on Spurs, who barely got out of their half`\
 https://nytimes.com/athletic/6833064/2025/11/24/arsenal-tottenham-merino-false-nine/
