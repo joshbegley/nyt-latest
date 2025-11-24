@@ -1,3 +1,7 @@
+**A Draft or Volunteers? Russian Threat Prompts Urgent Debate in Europe.**\
+`With Russia looming, governments race to rebuild armed forces that shrank after the Cold War, grappling with hard issues of economics, politics and military strategy.`\
+https://nytimes.com/2025/11/24/business/economy/russia-ukraine-europe-military.html
+
 **Lowetide: Which trade targets best fit the Oilers' new offensive style?**\
 `The style of game being used now by Edmonton requires good speed and aggressive play.`\
 https://nytimes.com/athletic/6831224/2025/11/24/oilers-trades-stats-goals-targets-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6833670/2025/11/24/red-wings-vs-devils-stream-how-t
 **Announcer Geoff Arnold not returning to Orioles broadcasts in 2026**\
 `Arnold was a finalist last year for the Miami Marlins primary play-by-play television job which ultimately went to Jack McMullen.`\
 https://nytimes.com/athletic/6833561/2025/11/24/geoff-arnold-orioles-broadcast/
-
-**He Wants a New Start. So He Is Taking the Hardest Taxi Test in the World.**\
-`In a world of GPS and car-hailing apps, some Londoners still want to drive a traditional black cab. First, they must memorize thousands of city streets.`\
-https://nytimes.com/2025/11/24/world/europe/london-black-cab-taxi-driving-test.html
 
