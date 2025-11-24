@@ -1,3 +1,19 @@
+**Saints give Justin Tucker a tryout after 10-game suspension: Sources**\
+`The New Orleans Saints are inviting former Baltimore Ravens kicker Justin Tucker in for a tryout after he served his 10-game suspension. `\
+https://nytimes.com/athletic/6833812/2025/11/24/justin-tucker-saints-tryout-suspension/
+
+**Chauncey Billups pleads not guilty to involvement in alleged rigged poker games**\
+`The bail for the Portland Trail Blazers' coach was set at $5 million. `\
+https://nytimes.com/athletic/6833826/2025/11/24/chauncey-billups-gambling-plea-not-guilty/
+
+**Judge Dismisses Comey Case, Finding Trump Prosecutor Was Unlawfully Appointed**\
+`The decision is a setback for Mr. Trump’s efforts to wield the criminal justice system against his perceived enemies.`\
+https://nytimes.com/2025/11/24/nyregion/james-comey-case-dismissed.html
+
+**Former Georgia OL Nyier Daniels arrested, facing four felony charges**\
+`Daniels is the 11th known traffic-related arrest of a Georgia player since Jan. 20, 2023.`\
+https://nytimes.com/athletic/6833822/2025/11/24/georgia-nyier-daniels-arrested-felony-charges/
+
 **Nyx’s Setting Spray Impressed Us**\
 `Our favorite setting spray is an $11 option that performed just as well, or even better than, the most expensive options.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010544087/nyxs-setting-spray-impressed-us.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6832893/2025/11/24/college-football-odds-ohio-state
 **Jodie Foster Takes the Mel Brooks Questionnaire**\
 `The comedy legend devised a personality test for us. Our latest respondent: the star of the French-language mystery film “A Private Life,” which premieres in France this week and in the US in January.`\
 https://nytimes.com/interactive/2025/11/24/t-magazine/jodie-foster-mel-brooks-questionnaire.html
-
-**Fantasy football Week 12 recap, early waivers speed run**\
-`Backfield questions abound in Chicago and New England, plus bye-low candidates in Baltimore and L.A.`\
-https://nytimes.com/athletic/6833775/2025/11/24/fantasy-football-week-12-recap-early-waivers-speed-run/
-
-**She Believes Technology Can Help Girls Learn, Even Under Taliban Rule**\
-`The entrepreneur Roya Mahboob is building off-line apps, underground networks and a global robotics team to educate Afghan girls unable to attend school.`\
-https://nytimes.com/2025/11/24/world/asia/roya-mahboob-afghanistan-technology-girls.html
-
-**In Namibia, a Trailblazing Minister Is Reimagining Health Care**\
-`Dr. Esperance Luvindao, who leads the country’s health and social services and is the youngest health minister in Africa, has ambitious plans.`\
-https://nytimes.com/2025/11/24/world/africa/esperance-luvindao-namibia-health-care.html
-
-**She Helps Unearth the Submerged History of the Great Lakes**\
-`Tamara Thomsen, a maritime archaeologist and diving instructor, has helped uncover more than 100 shipwrecks across the region.`\
-https://nytimes.com/2025/11/24/science/tamara-thomsen-shipwrecks.html
 
