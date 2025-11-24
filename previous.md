@@ -1,3 +1,23 @@
+**Inside Barcelona's injury crisis: Why Yamal and others complained, and the tensions it has caused**\
+`Barca's recent injury problems have led to division behind the scenes. The Athletic reports the full story`\
+https://nytimes.com/athletic/6830541/2025/11/24/barcelona-injury-crisis-tensions/
+
+**Eberechi Eze was waiting for a magic moment at Arsenal – against Spurs, he got three**\
+`On a weekend in which Manchester City lost — and Liverpool's vulnerabilities were once again made plain — Arsenal capitalised in style`\
+https://nytimes.com/athletic/6831339/2025/11/24/eberechi-eze-hat-trick-arsenal-spurs/
+
+**What is going wrong with Tottenham?**\
+`From a negative setup to poor squad building, Spurs look deficient in key areas after a crushing north London derby defeat`\
+https://nytimes.com/athletic/6831547/2025/11/24/tottenaham-where-going-wrong/
+
+**Which Premier League players could be heading to AFCON in December?**\
+`Players selected for the tournament in Morocco are likely to miss somewhere between three and six rounds of Premier League action...`\
+https://nytimes.com/athletic/6801078/2025/11/24/premier-league-players-afcon-africa-cup-nations/
+
+**Glasner, Silva and the thorny issue of keeping in-demand managers**\
+`Arguably, both these clubs' greatest asset is on the touchline not the pitch. Will it stay that way?`\
+https://nytimes.com/athletic/6830235/2025/11/24/marco-silva-oliver-glasner-futures-premier-league/
+
 **Chelsea's one-game wonders: 'I didn’t realise how big an achievement it was'**\
 `The Athletic has spoken to some of the players who only made solitary appearances for Chelsea`\
 https://nytimes.com/athletic/6807435/2025/11/24/chelsea-one-appearance-former-players/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/11/24/business/tariffs-trade-small-business.html
 **Quote of the Day: A Belgian Region’s Experiment With Democracy, and Trust**\
 `Quotation of the Day for Monday, November 24, 2025.`\
 https://nytimes.com/2025/11/24/pageoneplus/quote-of-the-day-a-belgian-regions-experiment-with-democracy-and-trust.html
-
-**How One German Toymaker Made Money Despite U.S. Tariffs**\
-`A combination of strategic planning, good timing and a long-awaited product helped the maker of electronic story boxes weather the onset of tariffs.`\
-https://nytimes.com/2025/11/24/business/germany-toys-holidays-tariffs-trump.html
-
-**Connections: Sports Edition Coach: Hints for Nov. 24, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6832336/2025/11/24/connections-sports-edition-hints-for-nov-24-2025-puzzle-no-427/
-
-**Cardinals had a chance to win in OT on Sunday — you might've missed how that went**\
-`With Sunday's game on the line, many stood in anticipation. But a good portion of the crowd had already left, eager to beat traffic.`\
-https://nytimes.com/athletic/6832436/2025/11/23/cardinals-jaguars-overtime-jacoby-brissett-loss/
-
-**Fantasy football Week 12 takeaways: Jahmyr Gibbs saves Lions in bell-cow role**\
-`Michael Salfino shares his observations for Week 12, including Detroit letting Jahmyr Gibbs cook at the expense of David Montgomery.`\
-https://nytimes.com/athletic/6831509/2025/11/23/fantasy-football-week-12-takeaways-jahmyr-gibbs-saves-lions-in-bell-cow-role/
-
-**Rams-Buccaneers takeaways: Matthew Stafford's 3 TD passes put LA on top of NFC**\
-`The quarterback and star receiver Davante Adams shredded Tampa Bay's defense in a 34-7 victory as LA moved to 9-2 Sunday night.`\
-https://nytimes.com/athletic/6831852/2025/11/23/buccaneers-rams-score-result-takeaways-snf/
 
