@@ -1,3 +1,11 @@
+**Trump Will Visit China in April for Meeting With Xi Jinping**\
+`President Trump said he would visit Beijing for the first time since returning to office after holding a call with Mr. Xi, China’s leader.`\
+https://nytimes.com/2025/11/24/business/economy/trump-xi-meeting-china.html
+
+**Lacey Chabert’s Holiday Tips**\
+`Hallmark star Lacey Chabert is a pro at channeling holiday joy. She told Wirecutter all her tips for setting up the coziest movie night at home.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010544239/lacey-chaberts-holiday-tips.html
+
 **Cincinnati apologizes to BYU for fans' 'religiously derogatory' chant**\
 `Numerous opposing schools have apologized to BYU after similar incidents in recent years.`\
 https://nytimes.com/athletic/6833909/2025/11/24/cincinnati-byu-apology-fans-chant/
@@ -29,12 +37,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010544087/nyxs-setting
 **Mets, Rangers try to solve their issues by swapping problem contracts: MLB Trade Grades**\
 `Marcus Semien and the $72 million remaining on his contract for Brandon Nimmo and the $102 million left on his — who did well in the trade?`\
 https://nytimes.com/athletic/6833798/2025/11/24/mlb-trade-grades-rangers-mets-marcus-semien-brandon-nimmo/
-
-**Man Is Killed in Early Morning Stabbing Near Times Square**\
-`It was the second murder in Midtown in roughly 24 hours. The attack came about a week after Kris Boyd, a player for the New York Jets, was shot in the area.`\
-https://nytimes.com/2025/11/24/nyregion/midtown-manhattan-stabbing.html
-
-**Yes, We Must Talk About Epstein**\
-`Readers strongly object to David Brooks’s argument that we should focus on more important issues. Also: Firings at the National Endowment for the Humanities.`\
-https://nytimes.com/2025/11/24/opinion/jeffrey-epstein-david-brooks.html
 
