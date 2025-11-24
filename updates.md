@@ -1,3 +1,7 @@
+**After another statement win, Rams have become the team to beat in the NFC**\
+`Following their lopsided win over the Buccaneers, the Rams are the No. 1 seed in the NFC and control their own destiny the rest of the way. `\
+https://nytimes.com/athletic/6832833/2025/11/24/rams-win-buccaneers-nfc-top-seed/
+
 **Vietnam Reels From Deadly Rainy Season**\
 `Cleanup efforts are underway in Vietnam, where government officials on Sunday said more than 90 people had been killed from flooding and landslides in the past week.`\
 https://nytimes.com/video/world/asia/100000010543119/vietnam-reels-from-deadly-rainy-season.html
