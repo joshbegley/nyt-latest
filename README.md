@@ -1,3 +1,7 @@
+**Feldman's candidates to replace Justin Wilcox at Cal, from Tosh Lupoi to DeSean Jackson**\
+`Justin Wilcox is out after going 48-55 in nine season as coach at Cal. Here are possible candidates to replace him.`\
+https://nytimes.com/athletic/6834059/2025/11/24/cal-football-coaching-search-candidates/
+
 **Here’s Where Weather May Slow Your Thanksgiving Travel This Week**\
 `Some storms could make for sloppy travel before the holiday.`\
 https://nytimes.com/2025/11/24/weather/thanksgiving-forecast-snow-cold-rain.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/24/us/politics/mark-kelly-pentagon-investigation.htm
 **Wizards rookie Tre Johnson sidelined by hip flexor strain**\
 `The sixth pick in the 2025 NBA Draft has made nearly 40 percent of his 3-point attempts. `\
 https://nytimes.com/athletic/6834039/2025/11/24/nba-wizards-rookie-tre-johnson-injury/
-
-**Lacey named in Man Utd matchday squad for first time**\
-`The 18-year-old signed his first professional contract at the club last year and has been training regularly with the first-team squad.`\
-https://nytimes.com/athletic/6833496/2025/11/24/shea-lacey-manchester-united-first-matchday-squad/
 
