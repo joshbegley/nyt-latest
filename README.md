@@ -2,8 +2,8 @@
 `The former anchor, Stephanie Hockridge, who once worked for a Phoenix station, participated in an elaborate scheme that illegally obtained more than $63 million.`\
 https://nytimes.com/2025/11/23/us/phoenix-news-anchor-covid-fraud.html
 
-**Wings win WNBA Draft lottery again: Who will join Paige Bueckers?**\
-`Minnesota Lynx land No. 2 pick, while Seattle Storm win third selection.`\
+**Dallas Wings win WNBA Draft lottery again: Who will join Paige Bueckers?**\
+`Minnesota Lynx land the No. 2 pick, while Seattle Storm won the third selection. The Mystics are No. 4 and Sky at No. 5.`\
 https://nytimes.com/athletic/6831951/2025/11/23/wnba-draft-lottery-dallas-wings-win-no-1-pick/
 
 **With three assists and a goal from Messi, dominant Miami march into Eastern Conference final**\
