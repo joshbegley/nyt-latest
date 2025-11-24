@@ -1,3 +1,7 @@
+**Joe Flacco's admirable battle shouldn’t be lost in the Bengals' defeats**\
+`This might be the last we see of Flacco in stripes, with Joe Burrow potentially returning on Thanksgiving vs. the Ravens.`\
+https://nytimes.com/athletic/6832056/2025/11/23/joe-flacco-bengals-loss-patriots/
+
 **Jaguars-Cardinals takeaways: Trevor Lawrence delivers in crunch time**\
 `Trevor Lawrence delivered an up-and-down performance, completing 18 of 30 passes for 256 yards, three touchdowns, and three interceptions.`\
 https://nytimes.com/athletic/6831880/2025/11/23/jaguars-cardinals-score-result-takeaways/
