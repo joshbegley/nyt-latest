@@ -1,5 +1,5 @@
 **The red-hot Heat expect Tyler Herro to make his season debut on Monday**\
-`With Tyler Herro cleared to return, the NBA's fastest team is expected to get its leading scorer from last season back in the lineup.`\
+`With Herro cleared to return, the NBA's fastest team is expected to get its leading scorer from last season back in the lineup.`\
 https://nytimes.com/athletic/6832270/2025/11/23/heat-tyler-herro-injury-status-season-debut-monday-mavericks/
 
 **Patrick Mahomes, Chiefs are most dangerous wild cards of all in NFL playoff race**\
