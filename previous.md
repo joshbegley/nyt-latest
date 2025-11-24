@@ -1,3 +1,11 @@
+**Grisly Killings of a Married Couple Spark New Sectarian Unrest in Syria**\
+`The government acted quickly to tamp down reprisals in the central city of Homs as it tries to manage repeated waves of bloodshed involving minority groups.`\
+https://nytimes.com/2025/11/24/world/europe/syria-sectarian-killings-homs.html
+
+**Funeral Held for Hezbollah Members Killed in Israeli Strike**\
+`A funeral was held for Hezbollah’s military chief of staff and other members killed in an Israeli airstrike on an apartment in Beirut’s suburbs despite a year-long cease-fire between the two sides.`\
+https://nytimes.com/video/world/middleeast/100000010543105/hezbollah-funerals-israeli-strike.html
+
 **NBA Power Rankings: From Nikola Jokić to Dillon Brooks, something to be thankful for**\
 `Even the bottom-tier teams have something to be grateful for ... right?`\
 https://nytimes.com/athletic/6833177/2025/11/24/nba-power-rankings-lakers-nuggets-warriors-thanksgiving/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/24/arts/design/alma-allen-venice-biennale.html
 **Putin’s Win-Win: Take a Russia-Friendly Peace Deal, or Fight On**\
 `The Kremlin’s leader is standing back as Ukraine and Europe scramble to negotiate changes to a U.S. proposal to end the war.`\
 https://nytimes.com/2025/11/24/world/europe/trump-ukraine-peace-talks-russia.html
-
-**12 fantasy football players who can win you a title**\
-`A dozen players face soft defenses during the crucial final weeks of the fantasy football playoffs.`\
-https://nytimes.com/athletic/6833090/2025/11/24/12-players-with-playoff-mismatches-who-can-win-you-a-fantasy-football-title/
-
-**In Michigan’s Upper Peninsula, Locals Fight for ‘The Right to Night’**\
-`Industrialization in the mostly rural northern part of the state has some residents pushing for protection of the region’s dark skies.`\
-https://nytimes.com/2025/11/24/science/astronomy-michigan-dark-sky.html
 
