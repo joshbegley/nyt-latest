@@ -1,3 +1,7 @@
+**Lacey named in Man Utd matchday squad for first time**\
+`The 18-year-old signed his first professional contract at the club last year and has been training regularly with the first-team squad.`\
+https://nytimes.com/athletic/6833496/2025/11/24/shea-lacey-manchester-united-first-matchday-squad/
+
 **Arizona, Alabama, Michigan State rise in AP Top 25, while Kansas drops out: Key takeaways**\
 `It didn't take long for the Hoosiers to return to the poll under first-year coach Darian DeVries.`\
 https://nytimes.com/athletic/6833943/2025/11/24/ap-mens-basketball-top-25-arizona-kansas-indiana/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6833909/2025/11/24/cincinnati-byu-apology-fans-chan
 **Jair Bolsonaro Is Arrested After Tampering With Ankle Monitor**\
 `Jair Bolsonaro, the former president of Brazil who is on house arrest, told the authorities that he took a soldering iron to his ankle monitor. He was arrested days before his 27-year prison sentence was set to begin.`\
 https://nytimes.com/video/world/americas/100000010543666/jai-bolsonaro-ankle-monitor-arrest.html
-
-**Saints give Justin Tucker a tryout after 10-game suspension: Sources**\
-`The New Orleans Saints are inviting former Baltimore Ravens kicker Justin Tucker in for a tryout after he served his 10-game suspension. `\
-https://nytimes.com/athletic/6833812/2025/11/24/justin-tucker-saints-tryout-suspension/
 

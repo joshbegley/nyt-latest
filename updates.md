@@ -1,3 +1,11 @@
+**Arizona, Alabama, Michigan State rise in AP Top 25, while Kansas drops out: Key takeaways**\
+`It didn't take long for the Hoosiers to return to the poll under first-year coach Darian DeVries.`\
+https://nytimes.com/athletic/6833943/2025/11/24/ap-mens-basketball-top-25-arizona-kansas-indiana/
+
+**Browns name Shedeur Sanders starting QB for Week 13 vs. 49ers**\
+`Sanders became the first Cleveland rookie quarterback to win his starting debut since 1995 in Sunday's victory over the Raiders. `\
+https://nytimes.com/athletic/6834008/2025/11/24/shedeur-sanders-browns-starter-49ers/
+
 **Browns name Shedeur Sanders starting QB for Week 13 game vs. 49ers**\
 `Sanders became the first Cleveland rookie quarterback to win his starting debut since 1995 in Sunday's victory over the Raiders. `\
 https://nytimes.com/athletic/6834008/2025/11/24/shedeur-sanders-browns-starter-49ers/

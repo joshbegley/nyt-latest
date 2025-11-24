@@ -1,4 +1,8 @@
-**Browns name Shedeur Sanders starting QB for Week 13 game vs. 49ers**\
+**Arizona, Alabama, Michigan State rise in AP Top 25, while Kansas drops out: Key takeaways**\
+`It didn't take long for the Hoosiers to return to the poll under first-year coach Darian DeVries.`\
+https://nytimes.com/athletic/6833943/2025/11/24/ap-mens-basketball-top-25-arizona-kansas-indiana/
+
+**Browns name Shedeur Sanders starting QB for Week 13 vs. 49ers**\
 `Sanders became the first Cleveland rookie quarterback to win his starting debut since 1995 in Sunday's victory over the Raiders. `\
 https://nytimes.com/athletic/6834008/2025/11/24/shedeur-sanders-browns-starter-49ers/
 
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/americas/100000010543666/jai-bolsonaro-ankle-mon
 **Saints give Justin Tucker a tryout after 10-game suspension: Sources**\
 `The New Orleans Saints are inviting former Baltimore Ravens kicker Justin Tucker in for a tryout after he served his 10-game suspension. `\
 https://nytimes.com/athletic/6833812/2025/11/24/justin-tucker-saints-tryout-suspension/
-
-**Chauncey Billups pleads not guilty to involvement in alleged rigged poker games**\
-`The bail for the Portland Trail Blazers' coach was set at $5 million. `\
-https://nytimes.com/athletic/6833826/2025/11/24/chauncey-billups-gambling-plea-not-guilty/
 
