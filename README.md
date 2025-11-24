@@ -1,3 +1,15 @@
+**A preview of The Athletic’s live coverage this week**\
+`Our live coverage this week includes three Thanksgiving NFL games, a Black Friday game, two Champions League matches and more`\
+https://nytimes.com/athletic/6831658/2025/11/23/the-athletic-live-coverage-thanksgiving-nfl/
+
+**Falcons-Saints takeaways: Atlanta snaps 5-game skid with win in New Orleans**\
+`Kirk Cousins got the start in place of Michael Penix Jr. who suffered a season-ending knee injury win Week 11.`\
+https://nytimes.com/athletic/6831916/2025/11/23/falcons-saints-score-result-takeaways/
+
+**Micah Parsons, Packers smell blood against hapless Vikings offense in blowout win**\
+`The Packers improved to 7-3-1 as they head to Detroit for a Thanksgiving tilt with the Lions.`\
+https://nytimes.com/athletic/6831979/2025/11/23/packers-defense-micah-parsons-vikings/
+
 **What a Brandon Nimmo trade could mean for Pete Alonso and Edwin Díaz**\
 `David Stearns demonstrated that sentimentality will not be a factor in whatever the Mets do next in free agency.   `\
 https://nytimes.com/athletic/6831900/2025/11/23/what-a-brandon-nimmo-trade-could-mean-for-pete-alonso-and-edwin-diaz/
@@ -27,16 +39,4 @@ https://nytimes.com/athletic/6831926/2025/11/23/with-three-assists-and-a-goal-fr
 <p>Leave your questions here. Please include your city.</p>
 `\
 https://nytimes.com/athletic/6831971/2025/11/23/submit-a-question-for-stewart-mandels-college-football-mailbag-324/
-
-**Cal fires Justin Wilcox, names ex-Wazzu coach Nick Rolovich interim**\
-`In Wilcox's nine years in Berkeley, the Bears never won more than seven games in the regular season.`\
-https://nytimes.com/athletic/6831863/2025/11/23/justin-wilcox-fired-nick-rolovich-cal-football/
-
-**Giants become first NFL team in 2025 to be eliminated from postseason contention**\
-`Owners of the worst record in the NFC, the Giants have already fired their coach and are on their third starting quarterback of the season.`\
-https://nytimes.com/athletic/6831801/2025/11/23/ny-giants-eliminated-playoffs-week-12/
-
-**Israeli Military Commanders Face Ouster Over Oct. 7 Failures**\
-`About a dozen people were told they face dismissal or discipline for mistakes tied to the deadly Hamas-led attack that set off the war in Gaza.`\
-https://nytimes.com/2025/11/23/world/middleeast/israel-punishes-commanders-hamas-attack.html
 
