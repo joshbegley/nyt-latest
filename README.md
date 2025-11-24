@@ -1,3 +1,11 @@
+**Nyx’s Setting Spray Impressed Us**\
+`Our favorite setting spray is an $11 option that performed just as well, or even better than, the most expensive options.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010544087/nyxs-setting-spray-impressed-us.html
+
+**Mets, Rangers try to solve their issues by swapping problem contracts: MLB Trade Grades**\
+`Marcus Semien and the $72 million remaining on his contract for Brandon Nimmo and the $102 million left on his — who did well in the trade?`\
+https://nytimes.com/athletic/6833798/2025/11/24/mlb-trade-grades-rangers-mets-marcus-semien-brandon-nimmo/
+
 **Man Is Killed in Early Morning Stabbing Near Times Square**\
 `It was the second murder in Midtown in roughly 24 hours. The attack came about a week after Kris Boyd, a player for the New York Jets, was shot in the area.`\
 https://nytimes.com/2025/11/24/nyregion/midtown-manhattan-stabbing.html
@@ -29,8 +37,4 @@ https://nytimes.com/2025/11/24/world/africa/esperance-luvindao-namibia-health-ca
 **She Helps Unearth the Submerged History of the Great Lakes**\
 `Tamara Thomsen, a maritime archaeologist and diving instructor, has helped uncover more than 100 shipwrecks across the region.`\
 https://nytimes.com/2025/11/24/science/tamara-thomsen-shipwrecks.html
-
-**Wen Hui Was Making Feminist Art Before She Even Knew the Term**\
-`The Chinese dancer, choreographer and filmmaker “didn’t think in those terms” when she was young. Now, she said, “I’m more relaxed, more clear on what I want to do.”`\
-https://nytimes.com/2025/11/24/arts/dance/wen-hui-contemporary-dance.html
 
