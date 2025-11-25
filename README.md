@@ -1,3 +1,11 @@
+**The New Wave of Sculpture Parks Redefining How Art Is Seen**\
+`Five destinations, whether in the English countryside or a forest in Thailand, where the work and nature go hand in hand.`\
+https://nytimes.com/2025/11/25/t-magazine/art-sculpture-parks.html
+
+**Crunchtime for Europe on Ukraine**\
+`President Trump’s peace plan is forcing the continent to confront some hard choices about military power.`\
+https://nytimes.com/2025/11/25/world/europe-ukraine-russia-budget-day-ethiopia-volcano.html
+
 **Once Foes of Obamacare, Some Republicans Push to Protect It**\
 `A small cadre of politically vulnerable Republicans in Congress is breaking with the party to push for the extension of health care tax credits for a program the G.O.P. reviles.`\
 https://nytimes.com/2025/11/25/us/politics/republicans-trump-obamacare-subsidies.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6837235/2025/11/25/juuso-parssinen-rangers-waivers-
 **Fired Employees Say Government Won’t Rehire Them After Shutdown**\
 `A group of former General Services Administration workers are accusing the administration of breaking the law in refusing to reinstate them.`\
 https://nytimes.com/2025/11/25/us/politics/gsa-fired-employees-shutdown.html
-
-**Postpartum Prescription of GLP-1 Drugs Has Increased Sharply, Study Finds**\
-`By mid-2024, the weight-loss drugs were prescribed for almost 2 percent of new mothers.`\
-https://nytimes.com/2025/11/25/health/postpartum-glp1-prescription-increase-study.html
-
-**Wolves appoint Jackson as technical director**\
-`His appointment comes just 13 days after Rob Edwards took over as head coach.`\
-https://nytimes.com/athletic/6837364/2025/11/25/matt-jackson-wolves-technical-director/
 
