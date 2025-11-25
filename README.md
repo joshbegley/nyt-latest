@@ -1,3 +1,15 @@
+**'We gotta figure it out': The Bucks are sliding without Giannis Antetokounmpo**\
+`Both Giannis and Kevin Porter Jr. are "pretty close" to a return according to Doc Rivers. What exactly that means is unclear.`\
+https://nytimes.com/athletic/6835952/2025/11/25/blazers-bucks-giannis-injury-nba/
+
+**CFP odds: Which teams have the best chances of getting in?**\
+`After a week with no upsets among the top 14 teams, the College Football Playoff race remains mostly the same. What teams still need help?`\
+https://nytimes.com/athletic/6834346/2025/11/25/college-football-playoff-odds-oregon-byu/
+
+**Kane says 'very unlikely' he leaves Bayern this summer**\
+`"I’m sure I’ll have talks with Bayern in the next few months, then we’ll see what’s best for the future,” Kane told Bild.`\
+https://nytimes.com/athletic/6836361/2025/11/25/harry-kane-contract-bayern-future-barcelona/
+
 **The Bounce: Anybody else worth tanking for? Plus, who's fattening up on soft schedules**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6836221/2025/11/25/aj-dybantsa-nba-draft-pistons-the-bounce/
@@ -26,16 +38,4 @@ https://nytimes.com/2025/11/25/style/street-style-look-red-pants.html
 **Inside Barcelona: Champions League morale, Garcia contract, Boateng statement**\
 `Our Barcelona writers share their latest information and news on all the big talking points at the Spanish club`\
 https://nytimes.com/athletic/6836134/2025/11/25/barcelona-raphinha-yamal-chelsea-flick-champions-league/
-
-**Fantasy football Week 13 drops: Adios, Alvin Kamara, Rashid Shaheed**\
-`Gary Davenport shares the names you should no longer bother to make room for on your fantasy football plates this holiday weekend.`\
-https://nytimes.com/athletic/6835152/2025/11/25/fantasy-football-week-13-drops-adios-alvin-kamara-rashid-shaheed/
-
-**Everton Women CEO to step down at end of season**\
-`Hannah Forshaw only officially began work at the club in September but will exit at the end of the 2025-26 campaign.`\
-https://nytimes.com/athletic/6836040/2025/11/25/everton-women-hannah-forshaw/
-
-**Can Caleb Williams and the 8-3 Bears keep winning this way?**\
-`The Black Friday game in Philadelphia might tell us how good the Bears really are, but for now, it's hard to doubt the progress. `\
-https://nytimes.com/athletic/6834602/2025/11/25/bears-winning-ways-caleb-williams/
 
