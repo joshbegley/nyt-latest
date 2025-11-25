@@ -1,3 +1,8 @@
+**The Collector's Mindset**\
+`Collecting is more than a hobby, it’s closer to sport for the most elite. And for every collector there is a story, a piece, a moment that started their craze to get the rarest and most illustrious items.
+`\
+https://nytimes.com/paidpost/athletic/ebay/myles-turner.html
+
 **What I'm hearing about the Canucks' direction amid their disappointing start**\
 `Has the time come for the Canucks to proactively chart a clear direction for the franchise?`\
 https://nytimes.com/athletic/6834909/2025/11/25/canucks-standings-quinn-hughes-kiefer-sherwood/
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/6835795/2025/11/25/dillon-brooks-phoenix-suns-houst
 **2026 NFL Mock Draft, top 10 picks: Caleb Downs to Jets, Fernando Mendoza to Browns**\
 `The Titans are in line to land the No. 1 pick for the second straight year, but they no longer need a QB. How would that impact the top 10?`\
 https://nytimes.com/athletic/6835288/2025/11/25/nfl-mock-draft-2026-ty-simpson-jeremiyah-love/
-
-**How to watch NC State vs. Boise State men's basketball: Time, TV, streaming**\
-`Find out how to watch the NC State Wolfpack play the Boise State Broncos, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6836160/2025/11/25/nc-state-vs-boise-state-stream-how-to-watch-nov-25/
 

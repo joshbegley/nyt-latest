@@ -1,3 +1,8 @@
+**The Collector's Mindset**\
+`Collecting is more than a hobby, it’s closer to sport for the most elite. And for every collector there is a story, a piece, a moment that started their craze to get the rarest and most illustrious items.
+`\
+https://nytimes.com/paidpost/athletic/ebay/myles-turner.html
+
 **What I'm hearing about the Canucks' direction amid their disappointing start**\
 `Has the time come for the Canucks to proactively chart a clear direction for the franchise?`\
 https://nytimes.com/athletic/6834909/2025/11/25/canucks-standings-quinn-hughes-kiefer-sherwood/
