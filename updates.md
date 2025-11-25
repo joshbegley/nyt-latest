@@ -1,3 +1,15 @@
+**Indiana Lawmakers Are Poised to Vote on Redistricting After All**\
+`Republican leaders in the legislature backtracked and said they would vote on a new congressional map that President Trump wants, though support remained uncertain.`\
+https://nytimes.com/2025/11/25/us/indiana-redistricting-republicans.html
+
+**Oklahoma State expected to hire North Texas' Eric Morris as next head coach**\
+`After firing long time coach Mike Gundy, Oklahoma State will turn to North Texas' Eric Morris as its next head coach.`\
+https://nytimes.com/athletic/6837665/2025/11/25/oklahoma-state-eric-morris-north-texas-coach/
+
+**USMNT's McKennie scores for Juventus in Champions League vs. Bodo/Glimt**\
+`The USMNT midfielder gave his side the lead in Norway with the eighth Champions League goal of his career`\
+https://nytimes.com/athletic/6837662/2025/11/25/weston-mckennie-goal-juventus-champions-league-bodo-glimt/
+
 **The New Wave of Sculpture Parks Redefining How Art Is Seen**\
 `Five destinations, whether in the English countryside or a forest in Thailand, where the work and nature go hand in hand.`\
 https://nytimes.com/2025/11/25/t-magazine/art-sculpture-parks.html
