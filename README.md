@@ -1,3 +1,7 @@
+**Violence Is Driving Catastrophic Hunger in Nigeria, U.N. Report Says**\
+`Africa’s most populous nation was already facing one of the world’s biggest hunger crises. It’s getting much worse.`\
+https://nytimes.com/2025/11/25/world/africa/nigeria-food-violence-usaid.html
+
 **With draw pots set, what are USMNT's best, worst and most interesting World Cup groups?**\
 `We can now fully assess all the possibilities for what the U.S.'s World Cup group could look like next summer. Buckle up`\
 https://nytimes.com/athletic/6837167/2025/11/25/usmnt-2026-world-cup-draw-group-scenarios/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/25/us/politics/school-coalition-lawsuit-education-de
 **Thanksgiving Costs Draw Scrutiny**\
 `Also, the 100 most notable books of the year. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/11/25/briefing/thanksgiving-costs-draw-scrutiny.html
-
-**Those saying Joe Burrow should sit don't understand what got him here: Dehner Jr.**\
-`Cincinnati's quarterback will start on Thursday against the division-rival Baltimore Ravens after rehabbing his injured toe.`\
-https://nytimes.com/athletic/6837926/2025/11/25/joe-burrow-return-from-injury-bengals-ravens/
 
