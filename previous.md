@@ -1,3 +1,11 @@
+**Suns' Dillon Brooks irritates everyone, his former Rockets teammates included**\
+`In the midst of a career year, Brooks still brings the "invaluable" skill of the guy you love to see on the court — if he's on your team.`\
+https://nytimes.com/athletic/6835795/2025/11/25/dillon-brooks-phoenix-suns-houston-rockets-defense/
+
+**2026 NFL Mock Draft, top 10 picks: Caleb Downs to Jets, Fernando Mendoza to Browns**\
+`The Titans are in line to land the No. 1 pick for the second straight year, but they no longer need a QB. How would that impact the top 10?`\
+https://nytimes.com/athletic/6835288/2025/11/25/nfl-mock-draft-2026-ty-simpson-jeremiyah-love/
+
 **How to watch NC State vs. Boise State men's basketball: Time, TV, streaming**\
 `Find out how to watch the NC State Wolfpack play the Boise State Broncos, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6836160/2025/11/25/nc-state-vs-boise-state-stream-how-to-watch-nov-25/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/25/us/politics/erez-reuveni-democracy-forward.html
 **Submit questions for our next Yankees mailbags**\
 `With transactions expected to pick up with the Winter Meetings coming soon, what questions do you have about the Yankees? Submit them here. `\
 https://nytimes.com/athletic/6836088/2025/11/25/yankees-offseason-reader-questions/
-
-**The Fed and Big Tech Lift Investors’ Spirits**\
-`Markets appear to be hoping again that the central bank will cut rates next month, and that the artificial intelligence boom has room to run.`\
-https://nytimes.com/2025/11/25/business/dealbook/fed-big-tech-market-rally.html
-
-**Continuity was supposed to help Timberwolves. So why do they keep collapsing?**\
-`Minnesota followed Friday's faceplant against Phoenix by losing in overtime to the Kings. The team doesn't look comfortable. `\
-https://nytimes.com/athletic/6835541/2025/11/25/timberwolves-losses-anthony-edwards-julius-randle-kings/
 

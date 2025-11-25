@@ -1,3 +1,11 @@
+**Can Caleb Williams and the 8-3 Bears keep winning this way?**\
+`The Black Friday game in Philadelphia might tell us how good the Bears really are, but for now, it's hard to doubt the progress. `\
+https://nytimes.com/athletic/6834602/2025/11/25/bears-winning-ways-caleb-williams/
+
+**How Eze's shot volume and desire to 'try things' is transforming Arsenal**\
+`Not every shot he takes will go in, but having players who play off instinct in those areas on edge of the area is what makes a difference`\
+https://nytimes.com/athletic/6835853/2025/11/25/eberechi-eze-shooting-arsenal/
+
 **Suns' Dillon Brooks irritates everyone, his former Rockets teammates included**\
 `In the midst of a career year, Brooks still brings the "invaluable" skill of the guy you love to see on the court — if he's on your team.`\
 https://nytimes.com/athletic/6835795/2025/11/25/dillon-brooks-phoenix-suns-houston-rockets-defense/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6834623/2025/11/25/college-football-playoff-ranking
 **With the 'perfect play,' Christian McCaffrey and the 49ers iced his former team**\
 `"We do it all the time in practice, so it's not a big deal," Trent Williams said of McCaffrey's untouched TD. "But yeah, it's pretty cool."`\
 https://nytimes.com/athletic/6835649/2025/11/25/christian-mccaffrey-panthers-49ers-former-team/
-
-**Justice Dept. Whistleblower Joins Legal Group Battling the Trump Administration**\
-`Erez Reuveni, a lawyer who once defended the president’s immigration policies in court, will now work for an advocacy group that sues to stop them.`\
-https://nytimes.com/2025/11/25/us/politics/erez-reuveni-democracy-forward.html
-
-**Submit questions for our next Yankees mailbags**\
-`With transactions expected to pick up with the Winter Meetings coming soon, what questions do you have about the Yankees? Submit them here. `\
-https://nytimes.com/athletic/6836088/2025/11/25/yankees-offseason-reader-questions/
 
