@@ -1,3 +1,11 @@
+**‘Find a Job,’ Ontario Premier Tells Protester While Passing a New Housing Law**\
+`During a raucous hearing, the Ontario legislature passed a bill meant to expedite housing development and the eviction of tenants who are behind on their rent.`\
+https://nytimes.com/2025/11/24/world/canada/doug-ford-ontario-housing-bill-60.html
+
+**Hunting for a repeat, Shohei Ohtani will represent Japan again in 2026 WBC**\
+`The four-time MVP has won two World Series titles and two MVP awards since he last donned Japan’s uniform in 2023. `\
+https://nytimes.com/athletic/6835155/2025/11/24/shohei-ohtani-team-japan-world-baseball-classic/
+
 **How to watch North Carolina vs. North Carolina State: Time, TV, streaming**\
 `Find out how to watch the North Carolina Tar Heels play the North Carolina State Wolfpack, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6834962/2025/11/24/how-to-watch-north-carolina-vs-north-carolina-state-tv-channel-and-streaming-options-for-november-29/
