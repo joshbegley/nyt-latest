@@ -1,3 +1,11 @@
+**Jewish Leaders Rebuke Mamdani Over Response to Synagogue Protest**\
+`The mayor-elect chastised a synagogue that hosted an event promoting migration to Israel and occupied settlements. His spokeswoman said the gathering promoted “activities in violation of international law.”`\
+https://nytimes.com/2025/11/24/nyregion/mamdani-synagogue-protest.html
+
+**Padres to hire veteran coach Randy Knorr, former outfielder Steven Souza Jr.: Sources**\
+`Souza, a co-owner of a baseball training academy in the Seattle area, spent last season back in the Rays’ organization as an advisor.`\
+https://nytimes.com/athletic/6835016/2025/11/24/san-diego-padres-coaching-hires-steven-souza-jr/
+
 **Padres to hire veteran coach Randy Knorr, former outfielder Steven Souza Jr.: Sources**\
 `Souza, a co-owner of a baseball training academy in the Seattle area, spent this past season back in the Rays’ organization as an advisor.`\
 https://nytimes.com/athletic/6835016/2025/11/24/san-diego-padres-coaching-hires-steven-souza-jr/
