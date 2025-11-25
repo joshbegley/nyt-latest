@@ -1,3 +1,7 @@
+**Brutal injury wave makes Blue Jackets' ugly loss to Capitals seem secondary**\
+`Kirill Marchenko went down during the morning skate while two other key players did not finish the game against Washington.`\
+https://nytimes.com/athletic/6835193/2025/11/24/blue-jackets-injuries-marchenko-olivier-werenski-capitals/
+
 **At a Congressional Hearing, Residents Detail the Trauma of the L.A. Raids**\
 `More than two dozen people described the upheaval the raids had caused in immigrant communities and aired accusations of mistreatment by agents.`\
 https://nytimes.com/2025/11/24/us/ice-raids-congressional-hearing.html
