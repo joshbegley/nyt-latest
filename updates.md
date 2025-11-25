@@ -1,3 +1,7 @@
+**Dortmund fans protest games abroad with defamatory La Liga banner**\
+`Dortmund fans displayed the banners before the Champions League tie against Villarreal, also targeting the Spanish FA.`\
+https://nytimes.com/athletic/6837799/2025/11/25/borussia-dortmund-la-liga-banner/
+
 **Trump’s Retribution Push Has Expanded Even as It Hits Legal Barriers**\
 `A judge dismissed indictments against two of the president’s foes, but a new Pentagon investigation of a prominent Democrat shows how he is using a whole-of-government approach to punish those who cross him.`\
 https://nytimes.com/2025/11/25/us/politics/trumps-retribution-legal-barriers.html
