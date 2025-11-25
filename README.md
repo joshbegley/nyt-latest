@@ -1,3 +1,11 @@
+**These Are the Elements That Define Us**\
+`A series of short films about how the elements of the periodic table shape our lives.`\
+https://nytimes.com/interactive/2025/11/25/opinion/elements-periodic-table.html
+
+**What you see in Cam Ward's rookie season depends on where you look**\
+`You wouldn't know it from the Titans' record, but Cam Ward is a wildly talented QB saddled with an unusable team. `\
+https://nytimes.com/athletic/6835168/2025/11/25/cam-ward-tennessee-titans-rookie/
+
 **Ryan Rollins, Derik Queen, and 15 other reasons to be thankful for fantasy hoops**\
 `Stan Son offers a list of fantasy basketball gratitude that includes not drafting Joel Embiid and Jalen Duren's breakout. `\
 https://nytimes.com/athletic/6836597/2025/11/25/fantasy-basketball-ryan-rollins-derik-queen/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6836625/2025/11/25/jeremiah-smith-carnell-tate-inju
 **Until Saturday: Carousel overdrive resuming soon**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6836901/2025/11/25/college-football-coaching-changes-until-saturday/
-
-**‘She’s Clearly Playing Us’: Influencer Dined and Dashed Through Williamsburg**\
-`Restaurant owners in Brooklyn have warned one another about a woman who frequents their establishments, photographs her food and then doesn’t pay for it.`\
-https://nytimes.com/2025/11/25/nyregion/nyc-dine-dash-food-influencer-pei-chung.html
-
-**A Volcano in Ethiopia Spews Ash Into Asia, Disrupting Flights**\
-`The ash cloud drifted over northern India, causing some flight delays and cancellations, and continued toward China.`\
-https://nytimes.com/2025/11/25/world/africa/ethiopia-volcano-hayli-gubbi.html
 
