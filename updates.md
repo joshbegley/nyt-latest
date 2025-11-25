@@ -1,3 +1,7 @@
+**Jewish Leaders Rebuke Mamdani Over Response to Synagogue Protest**\
+`The mayor-elect chastised a synagogue that hosted an event promoting migration to Israel and settlements in occupied territories. His stance further tested his strained relationship with pro-Israel Jews.`\
+https://nytimes.com/2025/11/24/nyregion/mamdani-synagogue-protest.html
+
 **Pistons win 13th straight game, tying franchise record**\
 `The Pistons had won 13 in a row twice before in franchise history. In both seasons, they won the NBA championship. `\
 https://nytimes.com/athletic/6835186/2025/11/24/pistons-13-wins-in-row-franchise-record-tied-2025/

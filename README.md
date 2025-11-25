@@ -1,9 +1,13 @@
+**Serious Fire Risk Warning Is Issued for E-Bike Batteries**\
+`A federal watchdog said two models of batteries found in Rad Power Bikes should be immediately, and safely, disposed of. The bike company disputes the safety agency’s findings.`\
+https://nytimes.com/2025/11/24/us/cpsc-rad-power-bikes-batteries.html
+
 **Pistons win 13th straight game, tying franchise record**\
 `The Pistons had won 13 in a row twice before in franchise history. In both seasons, they won the NBA championship. `\
 https://nytimes.com/athletic/6835186/2025/11/24/pistons-13-wins-in-row-franchise-record-tied-2025/
 
 **Brandon Ingram leads Raptors to longest win streak since 2022**\
-`Ingram scored a season-high 37 points as the Raptors won their eighth game in a row, 110-99 over the Cleveland Cavaliers.`\
+`The new Raptors forward, acquired last season at the trade deadline, continues to power Toronto's hot start to the season.`\
 https://nytimes.com/athletic/6835174/2025/11/24/brandon-ingram-highlights-raptors-win-cavaliers/
 
 **Scoop City: Risers and fallers after Week 12**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/11/24/nyregion/mamdani-synagogue-protest.html
 **Padres to hire veteran coach Randy Knorr, former outfielder Steven Souza Jr.: Sources**\
 `Souza, a co-owner of a baseball training academy in the Seattle area, spent last season back in the Rays’ organization as an advisor.`\
 https://nytimes.com/athletic/6835016/2025/11/24/san-diego-padres-coaching-hires-steven-souza-jr/
-
-**Trump Orders Construction of A.I. Platform to Use Troves of Government Data for Research**\
-`The executive order signed on Monday directs the Department of Energy’s national laboratories to create the A.I. platform in partnership with A.I. companies.`\
-https://nytimes.com/2025/11/24/us/politics/trump-ai-executive-order.html
 

@@ -27,7 +27,7 @@ https://nytimes.com/2025/11/24/world/canada/doug-ford-ontario-housing-bill-60.ht
 https://nytimes.com/athletic/6835155/2025/11/24/shohei-ohtani-team-japan-world-baseball-classic/
 
 **Jewish Leaders Rebuke Mamdani Over Response to Synagogue Protest**\
-`The mayor-elect chastised a synagogue that hosted an event promoting migration to Israel and occupied settlements. His stance further tested his strained relationship with pro-Israel Jews.`\
+`The mayor-elect chastised a synagogue that hosted an event promoting migration to Israel and settlements in occupied territories. His stance further tested his strained relationship with pro-Israel Jews.`\
 https://nytimes.com/2025/11/24/nyregion/mamdani-synagogue-protest.html
 
 **Padres to hire veteran coach Randy Knorr, former outfielder Steven Souza Jr.: Sources**\
