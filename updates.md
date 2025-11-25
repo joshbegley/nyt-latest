@@ -1,3 +1,11 @@
+**Kyiv Residents Doubt Peace Talks After Deadly Russian Barrage**\
+`A large-scale Russian aerial barrage on the Ukrainian capital killed at least six people on Tuesday. The attack came hours after a round of peace talks between U.S. and Ukrainian mediators that ended in Geneva.`\
+https://nytimes.com/video/world/europe/100000010546188/kyiv-doubt-peace-talks-russian-strikes.html
+
+**How New York Could Protect Its Street Vendors**\
+`The city’s history can be understood through the people who sell food on sidewalks. Here’s how New York could set them up for success.`\
+https://nytimes.com/2025/11/25/dining/street-vendors-new-york-food.html
+
 **'We gotta figure it out': The Bucks are sliding without Giannis Antetokounmpo**\
 `Both Giannis and Kevin Porter Jr. are "pretty close" to a return according to Doc Rivers. What exactly that means is unclear.`\
 https://nytimes.com/athletic/6835952/2025/11/25/blazers-bucks-giannis-injury-nba/

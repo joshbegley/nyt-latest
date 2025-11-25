@@ -1,3 +1,11 @@
+**Kyiv Residents Doubt Peace Talks After Deadly Russian Barrage**\
+`A large-scale Russian aerial barrage on the Ukrainian capital killed at least six people on Tuesday. The attack came hours after a round of peace talks between U.S. and Ukrainian mediators that ended in Geneva.`\
+https://nytimes.com/video/world/europe/100000010546188/kyiv-doubt-peace-talks-russian-strikes.html
+
+**How New York Could Protect Its Street Vendors**\
+`The city’s history can be understood through the people who sell food on sidewalks. Here’s how New York could set them up for success.`\
+https://nytimes.com/2025/11/25/dining/street-vendors-new-york-food.html
+
 **'We gotta figure it out': The Bucks are sliding without Giannis Antetokounmpo**\
 `Both Giannis and Kevin Porter Jr. are "pretty close" to a return according to Doc Rivers. What exactly that means is unclear.`\
 https://nytimes.com/athletic/6835952/2025/11/25/blazers-bucks-giannis-injury-nba/
@@ -30,12 +38,4 @@ https://nytimes.com/paidpost/athletic/ebay/myles-turner.html
 **What I'm hearing about the Canucks' direction amid their disappointing start**\
 `Has the time come for the Canucks to proactively chart a clear direction for the franchise?`\
 https://nytimes.com/athletic/6834909/2025/11/25/canucks-standings-quinn-hughes-kiefer-sherwood/
-
-**Red Corduroys and Sentimental Jewelry**\
-`Meaningful accessories finished an outfit combining solid colors and prints.`\
-https://nytimes.com/2025/11/25/style/street-style-look-red-pants.html
-
-**Inside Barcelona: Champions League morale, Garcia contract, Boateng statement**\
-`Our Barcelona writers share their latest information and news on all the big talking points at the Spanish club`\
-https://nytimes.com/athletic/6836134/2025/11/25/barcelona-raphinha-yamal-chelsea-flick-champions-league/
 
