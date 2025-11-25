@@ -1,3 +1,7 @@
+**The ‘Wild Card’ in the Comey and James Cases: Will Judges Pick the Next Prosecutor?**\
+`The dismissal of indictments that President Trump sought against his perceived foes opens the door for federal judges to pick a new U.S. attorney to replace a Trump loyalist.`\
+https://nytimes.com/2025/11/25/us/politics/comey-james-cases-next-steps.html
+
 **Canadian swimmer Penny Oleksiak gets two-year suspension for anti-doping rule violation**\
 `Oleksiak, Canada's most decorated female Olympian, was suspended after she failed to provide her whereabouts for drug testing three times.`\
 https://nytimes.com/athletic/6837607/2025/11/25/penny-oleksiak-suspended-drug-testing-whereabouts/
