@@ -1,3 +1,11 @@
+**How the Coast Guard Revised Its Policy on Swastikas, Nooses and Bullying**\
+`After days of backlash, the Homeland Security Department said hateful and violent behavior would not be tolerated.`\
+https://nytimes.com/2025/11/24/us/coast-guard-hate-policy.html
+
+**The Incomprehensible March Toward Regime Change in Venezuela**\
+`The administration’s drug war rhetoric seems like a pretext. But a pretext for what?`\
+https://nytimes.com/2025/11/24/opinion/venezuela-trump-regime-change.html
+
 **With Tom Felton as Draco Malfoy, ‘Harry Potter’ Breaks Its Own Broadway Record**\
 `The actor is now playing an adult version of the sinister child he portrayed in the film series.`\
 https://nytimes.com/2025/11/24/theater/harry-potter-tom-felton-broadway.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/24/travel/ritz-carlton-safari-camp-masai-tribe-great
 **Nick Sirianni says Eagles won't change offense's play-calling duties despite struggles**\
 `Philadelphia's offense has been struggling all season, but the Eagles still have an 8-3 record.`\
 https://nytimes.com/athletic/6834647/2025/11/24/eagles-offense-nick-sirianni-kevin-patullo/
-
-**Judge dismisses Comey and James cases**\
-`Also, why kids in American classrooms are struggling. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/11/24/briefing/comey-ukraine-cliff.html
-
-**‘Queen of Versailles’ to Close as New Broadway Musicals Struggle**\
-`The show, starring Kristin Chenoweth, will remain open through the holidays. The announcement comes just two weeks after the musical opened.`\
-https://nytimes.com/2025/11/24/theater/queen-of-versailles-broadway-closing.html
 
