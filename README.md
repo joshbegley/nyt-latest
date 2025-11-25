@@ -1,9 +1,13 @@
+**Post at Sea**\
+`Try not to spiral as you solve John Ewbank’s puzzle.`\
+https://nytimes.com/2025/11/24/crosswords/daily-puzzle-2025-11-25.html
+
 **Serious Fire Risk Warning Is Issued for E-Bike Batteries**\
 `A federal watchdog said two models of batteries found in Rad Power Bikes should be immediately, and safely, disposed of. The bike company disputes the safety agency’s findings.`\
 https://nytimes.com/2025/11/24/us/cpsc-rad-power-bikes-batteries.html
 
 **Pistons win 13th straight game, tying franchise record**\
-`The Pistons had won 13 in a row twice before in franchise history. In both seasons, they won the NBA championship. `\
+`The Pistons have won 13 in a row twice before in franchise history. In both seasons, they won the NBA championship. `\
 https://nytimes.com/athletic/6835186/2025/11/24/pistons-13-wins-in-row-franchise-record-tied-2025/
 
 **Brandon Ingram leads Raptors to longest win streak since 2022**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6835155/2025/11/24/shohei-ohtani-team-japan-world-b
 **Jewish Leaders Rebuke Mamdani Over Response to Synagogue Protest**\
 `The mayor-elect chastised a synagogue that hosted an event promoting migration to Israel and settlements in occupied territories. His stance further tested his strained relationship with pro-Israel Jews.`\
 https://nytimes.com/2025/11/24/nyregion/mamdani-synagogue-protest.html
-
-**Padres to hire veteran coach Randy Knorr, former outfielder Steven Souza Jr.: Sources**\
-`Souza, a co-owner of a baseball training academy in the Seattle area, spent last season back in the Rays’ organization as an advisor.`\
-https://nytimes.com/athletic/6835016/2025/11/24/san-diego-padres-coaching-hires-steven-souza-jr/
 
