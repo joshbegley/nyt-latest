@@ -1,3 +1,15 @@
+**Canadian swimmer Penny Oleksiak gets two-year suspension for anti-doping rule violation**\
+`Oleksiak, Canada's most decorated female Olympian, was suspended after she failed to provide her whereabouts for drug testing three times.`\
+https://nytimes.com/athletic/6837607/2025/11/25/penny-oleksiak-suspended-drug-testing-whereabouts/
+
+**Canadian Olympian Faces Two-Year Swimming Ban**\
+`Penny Oleksiak, 25, who has won seven Olympic medals, was sanctioned under antidoping rules. Her suspension ends before the 2028 Summer Olympics in Los Angeles.`\
+https://nytimes.com/2025/11/25/world/canada/penny-oleksiak-swimming-ban-doping-testing.html
+
+**The Briefing: Marseille 2 Newcastle 1 – Inexplicable Nick Pope error, another away defeat**\
+`Newcastle United fell to a fourth successive away defeat in all competitions as they threw away a lead to lose in the Champions League`\
+https://nytimes.com/athletic/6831349/2025/11/25/marseille-2-newcastle-1-pope-aubameyang/
+
 **Dortmund fans protest games abroad with defamatory La Liga banner**\
 `Dortmund fans displayed the banners before the Champions League tie against Villarreal, also targeting the Spanish FA.`\
 https://nytimes.com/athletic/6837799/2025/11/25/borussia-dortmund-la-liga-banner/

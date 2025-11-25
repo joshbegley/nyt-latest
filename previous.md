@@ -1,3 +1,11 @@
+**Canadian swimmer Penny Oleksiak gets two-year suspension for anti-doping rule violation**\
+`Oleksiak, Canada's most decorated female Olympian, was suspended after she failed to provide her whereabouts for drug testing three times.`\
+https://nytimes.com/athletic/6837607/2025/11/25/penny-oleksiak-suspended-drug-testing-whereabouts/
+
+**Canadian Olympian Faces Two-Year Swimming Ban**\
+`Penny Oleksiak, 25, who has won seven Olympic medals, was sanctioned under antidoping rules. Her suspension ends before the 2028 Summer Olympics in Los Angeles.`\
+https://nytimes.com/2025/11/25/world/canada/penny-oleksiak-swimming-ban-doping-testing.html
+
 **Dortmund fans protest games abroad with defamatory La Liga banner**\
 `Dortmund fans displayed the banners before the Champions League tie against Villarreal, also targeting the Spanish FA.`\
 https://nytimes.com/athletic/6837799/2025/11/25/borussia-dortmund-la-liga-banner/
@@ -10,7 +18,7 @@ https://nytimes.com/2025/11/25/us/politics/trumps-retribution-legal-barriers.htm
 `On Tuesday, the Red Sox traded for Gray, who is a much-needed addition to their rotation and helps balance out their handedness.`\
 https://nytimes.com/athletic/6837589/2025/11/25/sonny-gray-trade-keith-law/
 
-**The Briefing: Marseille 2 Newcastle 1 - Inexplicable Nick Pope error, another away defeat**\
+**The Briefing: Marseille 2 Newcastle 1 – Inexplicable Nick Pope error, another away defeat**\
 `Newcastle United fell to a fourth successive away defeat in all competitions as they threw away a lead to lose in the Champions League`\
 https://nytimes.com/athletic/6831349/2025/11/25/marseille-2-newcastle-1-pope-aubameyang/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/11/25/opinion/thanksgiving-and-the-new-births-of-freedo
 **The Briefing: Chelsea 3 Barcelona 0 - Estevao shines as Maresca's side produce statement win in Champions League**\
 `The Athletic's writers break down the key moments from Tuesday's Champions League game at Stamford Bridge`\
 https://nytimes.com/athletic/6831148/2025/11/25/chelsea-barcelona-champions-league-analysis/
-
-**Swalwell Files Suit Against Housing Official, Claiming Privacy Law Violations**\
-`The lawsuit claims that repeated disclosures by Bill Pulte, the director of the Federal Housing Finance Agency, were intended to damage prominent Democrats over their criticism of the president.`\
-https://nytimes.com/2025/11/25/us/politics/swalwell-pulte-privacy-lawsuit.html
-
-**Senator Agrees to Pay Over $5 Million in Back Taxes to I.R.S.**\
-`Senator Jim Justice, a Republican and former governor of West Virginia, agreed to pay just hours after the tax agency sued to collect unpaid taxes from 2009.`\
-https://nytimes.com/2025/11/25/us/jim-justice-irs.html
 
