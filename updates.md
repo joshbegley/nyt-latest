@@ -1,3 +1,7 @@
+**Auston Trusty interview: 'Everything right now is aligning for me'**\
+`After struggling at the start of the season, the 27-year-old defender is finding fitness and form for the USMNT and Celtic`\
+https://nytimes.com/athletic/6828546/2025/11/25/auston-trusty-interview-usmnt-celtic-world-cup/
+
 **How we will be watching football in 2035**\
 `Six predictions for the how viewing football will change — from gaming-style presentation to smart glasses`\
 https://nytimes.com/athletic/6815096/2025/11/25/how-to-watch-football-tv-future/
