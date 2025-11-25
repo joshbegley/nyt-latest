@@ -1,3 +1,7 @@
+**Fears About A.I. Prompt Talks of Super PACs to Rein In the Industry**\
+`As artificial intelligence companies prepare to pour money into the midterm elections, some in the A.I. world are hatching plans of their own to curb the industry’s influence.`\
+https://nytimes.com/2025/11/25/us/politics/ai-super-pac-anthropic.html
+
 **Violence Is Driving Catastrophic Hunger in Nigeria, U.N. Report Says**\
 `Africa’s most populous nation was already facing one of the world’s biggest hunger crises. It’s getting much worse.`\
 https://nytimes.com/2025/11/25/world/africa/nigeria-food-violence-usaid.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6837879/2025/11/25/the-brilliant-estevao-goal-that-
 **School Groups Sue to Stop Dismantling of the Education Department**\
 `The new complaint is aimed at changes the Trump administration would make to shift significant functions from the department to other federal agencies.`\
 https://nytimes.com/2025/11/25/us/politics/school-coalition-lawsuit-education-department.html
-
-**Thanksgiving Costs Draw Scrutiny**\
-`Also, the 100 most notable books of the year. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/11/25/briefing/thanksgiving-costs-draw-scrutiny.html
 
