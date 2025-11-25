@@ -15,7 +15,7 @@ https://nytimes.com/video/world/europe/100000010546188/kyiv-doubt-peace-talks-ru
 https://nytimes.com/2025/11/25/dining/street-vendors-new-york-food.html
 
 **'We gotta figure it out': The Bucks are sliding without Giannis Antetokounmpo**\
-`Both Giannis and Kevin Porter Jr. are "pretty close" to a return according to Doc Rivers. What exactly that means is unclear.`\
+`Both Giannis and Kevin Porter Jr. are "pretty close" to a return, according to Doc Rivers. What exactly that means is unclear.`\
 https://nytimes.com/athletic/6835952/2025/11/25/blazers-bucks-giannis-injury-nba/
 
 **CFP odds: Which teams have the best chances of getting in?**\
