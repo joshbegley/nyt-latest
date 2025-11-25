@@ -1,3 +1,27 @@
+**Times Analysis Finds Errors in Trump’s Supreme Court Filing That Calls for National Guard in Chicago**\
+`The Trump administration has claimed the police were slow to protect federal agents on Oct. 4, but videos and audio show that their rationale conflates hours of events involving a shooting, a protest, a car crash and a police radio call.`\
+https://nytimes.com/2025/11/25/us/trump-supreme-court-national-guard-chicago-errors.html
+
+**Joan Branson, Richard Branson’s Wife of 35 Years, Has Died**\
+`Mr. Branson, the Virgin Atlantic founder, announced her death in an Instagram post.`\
+https://nytimes.com/2025/11/25/world/europe/joan-branson-dead.html
+
+**At This Vegas Pop-Up, Caviar, Celebrity Chefs and a 200 M.P.H. View**\
+`For race weekend, a restaurant staffed by big names in the food world is suspended above the man-made lake at the Bellagio hotel.`\
+https://nytimes.com/2025/11/25/dining/f1-las-vegas-bellagio-hotel-fountain-club.html
+
+**Super Bowl odds: 2 teams are clearly at the top followed by a logjam**\
+`The Los Angeles Rams have overtaken the Philadelphia Eagles as the favorite to win the Super Bowl.`\
+https://nytimes.com/athletic/6836952/2025/11/25/super-bowl-odds-rams-eagles/
+
+**8 New Songs You Should Hear Now**\
+`Catch up on recent releases from Robyn, Oneohtrix Point Never, Mavis Staples and more.`\
+https://nytimes.com/2025/11/25/arts/music/amplifier-newsletter-new-songs-robyn.html
+
+**At Miss Universe, a Salmon Costume Steals the Show**\
+`The designer behind Miss Norway’s wild outfit was not surprised at the attention it received. “The original plan was to make noise.”`\
+https://nytimes.com/2025/11/25/style/miss-universe-norway-salmon-costume.html
+
 **The Disaster to Come: New York’s Next Superstorm**\
 `Heavy rain would make a hurricane catastrophic. See the neighborhoods would face the worst flooding.`\
 https://nytimes.com/interactive/2025/11/25/nyregion/nyc-storm-hurricane-flooding.html
@@ -9,32 +33,4 @@ https://nytimes.com/2025/11/25/world/americas/bolsonaro-arrest-prison-sentence.h
 **Alonso: Managing Madrid personalities 'as important as tactical work'**\
 `The Athletic reported on Monday that Vinicius Junior had told Madrid that he does not wish to sign a new contract at the club.`\
 https://nytimes.com/athletic/6835837/2025/11/25/xabi-alonso-real-madrid-vinicius/
-
-**Prime Tire: The Las Vegas GP reset everything. Here are 5 ways the F1 title could end**\
-`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
-https://nytimes.com/athletic/6836457/2025/11/25/f1-championship-scenarios-prime-tire/
-
-**Rebuilding Cardinals, contending Red Sox both meet needs with Sonny Gray deal: MLB Trade Grades**\
-`St. Louis Cardinals president of baseball operations Chaim Bloom found a trade partner in his former organization.`\
-https://nytimes.com/athletic/6836936/2025/11/25/mlb-trade-grades-sonny-gray-red-sox/
-
-**C.D.C. Quietly Appoints Doctor Critical of Vaccines as Second in Command**\
-`During the Covid-19 pandemic, Dr. Ralph Lee Abraham promoted discredited treatments like ivermectin and, as Louisiana’s surgeon general, halted the state’s mass vaccination campaign.`\
-https://nytimes.com/2025/11/25/health/cdc-ralph-lee-abraham-vaccines.html
-
-**Hamas Says It Returned the Body of a Hostage, One of the Last in Gaza**\
-`The remains were not yet identified. Before the handover on Tuesday, Israel said the bodies of three other captives were still in the enclave.`\
-https://nytimes.com/2025/11/25/world/middleeast/hostage-returned-israel-gaza.html
-
-**Elle Duncan, ESPN to fully part ways with her move to Netflix: Sources**\
-`Duncan could still appear on other networks or platforms as part of her Netflix agreement.`\
-https://nytimes.com/athletic/6836974/2025/11/25/elle-duncan-espn-netflix/
-
-**What the Giants are hoping for from their new pitching coach, Justin Meccage**\
-`Every team wants fewer runs scored against them, and if Justin Meccage seems to make that happen regularly, he’ll be a fan favorite.`\
-https://nytimes.com/athletic/6836768/2025/11/25/giants-pitching-coach-justin-meccage/
-
-**These Are the Elements That Define Us**\
-`A series of short films about how the elements of the periodic table shape our lives.`\
-https://nytimes.com/interactive/2025/11/25/opinion/elements-periodic-table.html
 

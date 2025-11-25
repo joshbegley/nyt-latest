@@ -1,3 +1,11 @@
+**The Disaster to Come: New York’s Next Superstorm**\
+`Heavy rain would make a hurricane catastrophic. See the neighborhoods would face the worst flooding.`\
+https://nytimes.com/interactive/2025/11/25/nyregion/nyc-storm-hurricane-flooding.html
+
+**Bolsonaro to Start Serving 27-Year Sentence Over Coup Plot**\
+`Brazil’s Supreme Court court ordered former President Jair Bolsonaro to begin serving a prison term for conspiring to remain in power after losing the last election.`\
+https://nytimes.com/2025/11/25/world/americas/bolsonaro-arrest-prison-sentence.html
+
 **Alonso: Managing Madrid personalities 'as important as tactical work'**\
 `The Athletic reported on Monday that Vinicius Junior had told Madrid that he does not wish to sign a new contract at the club.`\
 https://nytimes.com/athletic/6835837/2025/11/25/xabi-alonso-real-madrid-vinicius/
