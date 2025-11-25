@@ -1,3 +1,7 @@
+**Everton Women CEO to step down at end of season**\
+`Hannah Forshaw only officially began work at the club in September but will exit at the end of the 2025-26 campaign.`\
+https://nytimes.com/athletic/6836040/2025/11/25/everton-women-hannah-forshaw/
+
 **Can Caleb Williams and the 8-3 Bears keep winning this way?**\
 `The Black Friday game in Philadelphia might tell us how good the Bears really are, but for now, it's hard to doubt the progress. `\
 https://nytimes.com/athletic/6834602/2025/11/25/bears-winning-ways-caleb-williams/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6835966/2025/11/25/jose-jefferson-fiu-general-manag
 **How to watch College Football Playoff rankings show: Big reveal before Rivalry Week**\
 `Rivalry Week is upon us. Tuesday's rankings will lay out what's at stake ahead of this weekend's biggest college football games. `\
 https://nytimes.com/athletic/6834623/2025/11/25/college-football-playoff-rankings-rivalry-week-how-to-watch/
-
-**With the 'perfect play,' Christian McCaffrey and the 49ers iced his former team**\
-`"We do it all the time in practice, so it's not a big deal," Trent Williams said of McCaffrey's untouched TD. "But yeah, it's pretty cool."`\
-https://nytimes.com/athletic/6835649/2025/11/25/christian-mccaffrey-panthers-49ers-former-team/
 
