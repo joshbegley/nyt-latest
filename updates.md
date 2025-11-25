@@ -1,3 +1,7 @@
+**U.S. Army Secretary Travels to U.A.E. for Meetings With Russian Envoys**\
+`The secretary, Daniel Driscoll, was in Geneva over the weekend for talks with a Ukrainian delegation.`\
+https://nytimes.com/2025/11/25/us/daniel-driscoll-uae-russia-ukraine.html
+
 **Newcastle know they need to evolve but Joelinton remains critical to their game-plan**\
 `Modern football is a squad game - when will Eddie Howe use more of his regularly?`\
 https://nytimes.com/athletic/6832753/2025/11/25/joelinton-remains-critical-to-newcastles-game-plan-and-highlights-a-need-for-evolution/
