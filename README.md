@@ -34,7 +34,3 @@ https://nytimes.com/2025/11/25/opinion/tatiana-schlossberg.html
 `Three first-half interceptions turned Purdy into a dink-and-dunker for the rest of the game. The 49ers need the good Purdy back pronto.`\
 https://nytimes.com/athletic/6836642/2025/11/25/brock-purdy-49ers-panthers-monday-night-football/
 
-**FIFA confirms World Cup draw seedings and pathways, with implications for co-hosts**\
-`The two top-ranked teams, Spain and Argentina, will be kept apart until the final — if they win their groups.`\
-https://nytimes.com/athletic/6836523/2025/11/25/fifa-world-cup-draw-seeding-pathway/
-
