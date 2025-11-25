@@ -1,3 +1,19 @@
+**How Much Will Thanksgiving Dinner Cost? It Depends on Who You Ask.**\
+`As Americans become increasingly concerned about affordability, there’s scrutiny on the annual meal.`\
+https://nytimes.com/2025/11/25/business/thanksgiving-dinner-cost-turkey-meal-expensive.html
+
+**Even the U.K. Prime Minister Can’t Resist ‘6-7’**\
+`Prime Minister Keir Starmer egged on first graders doing the viral gesture, then apologized when told the school prohibited it. “I didn’t start it, Miss,” he said.`\
+https://nytimes.com/2025/11/25/world/europe/keir-starmer-6-7-school-uk.html
+
+**Red Sox to bolster rotation with trade for Cardinals' Sonny Gray: Sources**\
+`Boston stated a desire to improve the rotation behind ace Garrett Crochet.`\
+https://nytimes.com/athletic/6826751/2025/11/25/sonny-gray-trade-cardinals-red-sox-mlb-news/
+
+**Review: A Revolution Without Poetry in the Met Opera’s ‘Chénier’**\
+`Umberto Giordano’s tragedy of love undone by the French Revolution has returned, but as an evening of coarse music making.`\
+https://nytimes.com/2025/11/25/arts/music/andrea-chenier-met-opera-review.html
+
 **Four More Arrested in Connection With Louvre Heist**\
 `A Paris prosecutor said two men and two women were arrested as part of an investigation into the robbery at the museum.`\
 https://nytimes.com/2025/11/25/world/europe/four-new-arrests-louvre-heist.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6823662/2025/11/25/martin-odegaard-injury-arsenal/
 **How to watch Tennessee vs. Houston men's basketball: Time, TV, streaming**\
 `Find out how to watch the Tennessee Volunteers play the Houston Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6836616/2025/11/25/tennessee-vs-houston-stream-how-to-watch-nov-25/
-
-**How to watch Saint Bonaventure vs. North Carolina men's basketball: Time, TV, streaming**\
-`Find out how to watch the Saint Bonaventure Bonnies play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6836614/2025/11/25/saint-bonaventure-vs-north-carolina-stream-how-to-watch-nov-25/
-
-**How to watch Baylor vs. St. John's men's basketball: Time, TV, streaming**\
-`Find out how to watch the Baylor Bears play the St. John's Red Storm, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6836612/2025/11/25/baylor-vs-st-john-s-stream-how-to-watch-nov-25/
-
-**Hamas Victims’ Families Sue Binance, Accusing It of Aiding Terrorism**\
-`A lawsuit claims the cryptocurrency exchange turned a blind eye as $1 billion used to finance the Oct. 7 attacks in Israel and other acts moved through its network.`\
-https://nytimes.com/2025/11/25/business/binance-hamas-terrorism.html
-
-**Goan Curry Shrimp, Sweet and Sour Eggplant and One-Pot Chicken and Rice**\
-`Saucy, punchy flavors before the potatoes hit on Thursday.`\
-https://nytimes.com/2025/11/25/dining/goan-curry-shrimp-sweet-and-sour-eggplant-and-one-pot-chicken-and-rice.html
 

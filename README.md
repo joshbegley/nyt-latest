@@ -1,4 +1,12 @@
-**How Much Will Thanksgiving Dinner Cost? It Depends on Who You Ask.**\
+**Ronaldo avoids World Cup ban as FIFA grant Portugal captain 'probationary period'**\
+`Ronaldo, 40, was sent off in Portugal's penultimate World Cup qualifier against the Republic of Ireland.`\
+https://nytimes.com/athletic/6809592/2025/11/25/cristiano-ronaldo-world-cup-ban-fifa/
+
+**The story behind Arsenal's NLD tifo: German efficiency, Hale End's role and redemption after PSG 'shower curtain'**\
+`After the disappointment of a tifo used against PSG last season, the club and fans were keen to make amends. Here's how it was done.`\
+https://nytimes.com/athletic/6836436/2025/11/25/arsenal-tifo-emirates-north-london-derby/
+
+**How Much Will Thanksgiving Dinner Cost? It Depends on Whom You Ask.**\
 `As Americans become increasingly concerned about affordability, there’s scrutiny on the annual meal.`\
 https://nytimes.com/2025/11/25/business/thanksgiving-dinner-cost-turkey-meal-expensive.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6836536/2025/11/25/brian-kelly-lsu-lawsuit-firing-c
 **How to watch Hawks vs. Wizards: Time, TV, streaming**\
 `Find out how to watch the Atlanta Hawks play the Washington Wizards, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6836651/2025/11/25/hawks-vs-wizards-stream-how-to-watch-nov-25/
-
-**Arteta 'hopeful' Odegaard can return to Arsenal squad vs. Bayern Munich**\
-`The 26-year-old has missed seven games after sustaining a left knee injury in October.`\
-https://nytimes.com/athletic/6823662/2025/11/25/martin-odegaard-injury-arsenal/
-
-**How to watch Tennessee vs. Houston men's basketball: Time, TV, streaming**\
-`Find out how to watch the Tennessee Volunteers play the Houston Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6836616/2025/11/25/tennessee-vs-houston-stream-how-to-watch-nov-25/
 
