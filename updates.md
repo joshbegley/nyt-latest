@@ -1,3 +1,11 @@
+**The New York Times in Print for Tuesday, Nov. 25, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/11/25/todays-new-york-times
+
+**Nikola Jokić's game-sealing, behind-the-back pass stuns his opponents**\
+`The three-time MVP sealed Denver's win over Memphis as only he can.`\
+https://nytimes.com/athletic/6835467/2025/11/25/nikola-jokic-pass-highlight-nuggets-grizzlies/
+
 **U.S. Army Secretary Travels to U.A.E. for Meetings With Russian Envoys**\
 `The secretary, Daniel Driscoll, was in Geneva over the weekend for talks with a Ukrainian delegation.`\
 https://nytimes.com/2025/11/25/us/daniel-driscoll-uae-russia-ukraine.html
