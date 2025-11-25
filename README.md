@@ -1,3 +1,7 @@
+**Tentative Signs of Hope as the Amazon Burns**\
+`This year’s U.N. climate negotiations were seen by activists as a letdown. But a Times reporter found some encouraging signs on the ground in the Brazilian Amazon.`\
+https://nytimes.com/2025/11/25/climate/amazon-fires-cop30.html
+
 **Minority Alawites Protest in Syria After Sectarian Attacks**\
 `The demonstrations followed unrest over the weekend in Homs, Syria’s third-largest city, which set off reprisal attacks on Alawites, a community once favored by the ousted Assad regime.`\
 https://nytimes.com/2025/11/25/world/europe/syria-alawites-protest.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/25/world/europe/joan-branson-dead.html
 **At This Vegas Pop-Up, Caviar, Celebrity Chefs and a 200 M.P.H. View**\
 `For race weekend, a restaurant staffed by big names in the food world is suspended above the man-made lake at the Bellagio hotel.`\
 https://nytimes.com/2025/11/25/dining/f1-las-vegas-bellagio-hotel-fountain-club.html
-
-**Super Bowl odds: 2 teams are clearly at the top followed by a logjam**\
-`The Los Angeles Rams have overtaken the Philadelphia Eagles as the favorite to win the Super Bowl.`\
-https://nytimes.com/athletic/6836952/2025/11/25/super-bowl-odds-rams-eagles/
 
