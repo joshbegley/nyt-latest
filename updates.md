@@ -1,3 +1,15 @@
+**Tracking Freezing Temperatures Across Europe**\
+`See detailed maps of the latest temperature forecasts across Europe.`\
+https://nytimes.com/interactive/2025/world/europe/europe-cold-map-tracker.html
+
+**Tracking Freezing Temperatures Across Canada**\
+`See detailed maps of the latest temperature forecasts across Canada.`\
+https://nytimes.com/interactive/2025/world/canada/canada-cold-map-tracker.html
+
+**Tracking Freezing Temperatures Across the World**\
+`See detailed maps of the latest temperature forecasts across the world.`\
+https://nytimes.com/interactive/2025/world/global-cold-map-tracker.html
+
 **Dutch Historian Accuses BBC of Censoring Trump Criticism**\
 `Rutger Bregman said his comment that President Trump was the “most openly corrupt president in American history” was removed before his lecture was broadcast on Tuesday.`\
 https://nytimes.com/2025/11/25/world/europe/uk-bbc-trump.html
