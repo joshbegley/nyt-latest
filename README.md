@@ -1,3 +1,7 @@
+**Once Foes of Obamacare, Some Republicans Push to Protect It**\
+`A small cadre of politically vulnerable Republicans in Congress is breaking with the party to push for the extension of health care tax credits for a program the G.O.P. reviles.`\
+https://nytimes.com/2025/11/25/us/politics/republicans-trump-obamacare-subsidies.html
+
 **Are You Smarter Than a Billionaire?**\
 `In a single week, collectors spent $2.2 billion on art at New York’s auction houses, including the $236 million Klimt portrait.`\
 https://nytimes.com/interactive/2025/11/25/arts/design/art-auction-quiz.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/11/25/health/postpartum-glp1-prescription-increase-stud
 **Wolves appoint Jackson as technical director**\
 `His appointment comes just 13 days after Rob Edwards took over as head coach.`\
 https://nytimes.com/athletic/6837364/2025/11/25/matt-jackson-wolves-technical-director/
-
-**Tracking Freezing Temperatures Across Europe**\
-`See detailed maps of the latest temperature forecasts across Europe.`\
-https://nytimes.com/interactive/2025/world/europe/europe-cold-map-tracker.html
 

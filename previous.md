@@ -1,40 +1,36 @@
+**Are You Smarter Than a Billionaire?**\
+`In a single week, collectors spent $2.2 billion on art at New York’s auction houses, including the $236 million Klimt portrait.`\
+https://nytimes.com/interactive/2025/11/25/arts/design/art-auction-quiz.html
+
+**Prosecutors Prepare to Try Suspect in Etan Patz Case for the Third Time**\
+`The defendant, Pedro Hernandez, was convicted in 2017 of kidnapping the 6-year-old, who disappeared in 1979 in SoHo.`\
+https://nytimes.com/2025/11/25/nyregion/etan-patz-retrial.html
+
+**Submit your questions for Kevin Fishbain's Bears mailbag**\
+`The first-place Bears are 8-3, but now they take a step up in class against the defending champion Eagles. Share your questions here.`\
+https://nytimes.com/athletic/6837560/2025/11/25/bears-mailbag-questions-50/
+
+**Democrats Say F.B.I. Is Investigating Them Over Illegal Orders Video**\
+`The move came one day after the Pentagon said it was investigating Senator Mark Kelly for his participation in the video.`\
+https://nytimes.com/2025/11/25/us/politics/congress-military-video-fbi.html
+
+**Rangers bail on Juuso Pärssinen bet, plus other practice notes**\
+`Less than a year after acquiring and signing him to a two-year deal, the Rangers have placed Juuso Pärssinen on waivers.`\
+https://nytimes.com/athletic/6837235/2025/11/25/juuso-parssinen-rangers-waivers-practice/
+
+**Fired Employees Say Government Won’t Rehire Them After Shutdown**\
+`A group of former General Services Administration workers are accusing the administration of breaking the law in refusing to reinstate them.`\
+https://nytimes.com/2025/11/25/us/politics/gsa-fired-employees-shutdown.html
+
+**Postpartum Prescription of GLP-1 Drugs Has Increased Sharply, Study Finds**\
+`By mid-2024, the weight-loss drugs were prescribed for almost 2 percent of new mothers.`\
+https://nytimes.com/2025/11/25/health/postpartum-glp1-prescription-increase-study.html
+
+**Wolves appoint Jackson as technical director**\
+`His appointment comes just 13 days after Rob Edwards took over as head coach.`\
+https://nytimes.com/athletic/6837364/2025/11/25/matt-jackson-wolves-technical-director/
+
 **Tracking Freezing Temperatures Across Europe**\
 `See detailed maps of the latest temperature forecasts across Europe.`\
 https://nytimes.com/interactive/2025/world/europe/europe-cold-map-tracker.html
-
-**Tracking Freezing Temperatures Across Canada**\
-`See detailed maps of the latest temperature forecasts across Canada.`\
-https://nytimes.com/interactive/2025/world/canada/canada-cold-map-tracker.html
-
-**Tracking Freezing Temperatures Across the World**\
-`See detailed maps of the latest temperature forecasts across the world.`\
-https://nytimes.com/interactive/2025/world/global-cold-map-tracker.html
-
-**Dutch Historian Accuses BBC of Censoring Trump Criticism**\
-`Rutger Bregman said his comment that President Trump was the “most openly corrupt president in American history” was removed before his lecture was broadcast on Tuesday.`\
-https://nytimes.com/2025/11/25/world/europe/uk-bbc-trump.html
-
-**Scoop City: Three stars on pace to break big records**\
-`Records Matthew Stafford, Jaxon Smith-Njigba and Myles Garrett are on pace to shatter`\
-https://nytimes.com/athletic/6837388/2025/11/25/nfl-records-jaxon-smith-njigba-myles-garrett-matthew-stafford/
-
-**NFL suspends Panthers safety Moehrig for throwing punch at Jauan Jennings**\
-`Moehrig is seen on camera swinging at Jennings late in the game and Jennings retaliated by punching Moehrig after the game ended.`\
-https://nytimes.com/athletic/6836577/2025/11/25/trevon-moehrig-panthers-suspended-jauan-jennings-49ers/
-
-**Diamond Lovers Fall for a New Palette**\
-`Jewelry collectors break tradition with earth-toned diamonds.`\
-https://nytimes.com/paidpost/de-beers/de-beers/diamond-lovers-fall-for-a-new-palette.html
-
-**How the Ukraine Peace Plan Is Evolving**\
-`President Trump’s plan for a settlement of Russia’s war in Ukraine, which alarmed the Ukrainians and Europeans, has evolved since it was first proposed last week.`\
-https://nytimes.com/video/us/politics/100000010545174/how-the-ukraine-peace-plan-is-evolving.html
-
-**How to watch Clippers vs. Lakers: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Clippers play the Los Angeles Lakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6837400/2025/11/25/clippers-vs-lakers-stream-how-to-watch-nov-25/
-
-**How to watch Magic vs. 76ers: Time, TV, streaming**\
-`Find out how to watch the Orlando Magic play the Philadelphia 76ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6837398/2025/11/25/magic-vs-76ers-stream-how-to-watch-nov-25/
 
