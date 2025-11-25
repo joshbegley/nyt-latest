@@ -1,3 +1,7 @@
+**Prime Tire: The Las Vegas GP reset everything. Here are 5 ways the F1 title could end**\
+`Welcome to Prime Tire, The Athletic's Formula One newsletter.`\
+https://nytimes.com/athletic/6836457/2025/11/25/f1-championship-scenarios-prime-tire/
+
 **Rebuilding Cardinals, contending Red Sox both meet needs with Sonny Gray deal: MLB Trade Grades**\
 `St. Louis Cardinals president of baseball operations Chaim Bloom found a trade partner in his former organization.`\
 https://nytimes.com/athletic/6836936/2025/11/25/mlb-trade-grades-sonny-gray-red-sox/
