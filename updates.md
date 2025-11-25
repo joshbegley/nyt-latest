@@ -1,3 +1,15 @@
+**Warmed by Japan’s Support, Taiwan Takes Up Sushi Diplomacy**\
+`China closed off Japanese seafood imports after Japan’s new leader declared strong support for Taiwan. Suddenly, sushi is everywhere on Taiwanese social media.`\
+https://nytimes.com/2025/11/25/world/asia/taiwan-china-japan-sushi.html
+
+**Acclaimed Writer of Indigenous Stories Says He Is Not Native American**\
+`Thomas King said he felt “ripped in half” on learning he had no Cherokee ancestry. The Canadian author has dedicated his career to writing about Indigenous people.`\
+https://nytimes.com/2025/11/25/world/canada/thomas-king-indigenous.html
+
+**How to watch Notre Dame vs. Stanford: Time, TV, streaming**\
+`Find out how to watch the Notre Dame Fighting Irish play the Stanford Cardinal, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6835711/2025/11/25/notre-dame-vs-stanford-stream-how-to-watch-nov-29/
+
 **Judge Dismisses Cases Against James Comey and Letitia James**\
 `A federal judge threw out criminal charges against the former F.B.I. director James Comey and New York’s attorney general, Letitia James, on Monday.`\
 https://nytimes.com/video/us/politics/100000010545766/james-comey-letitia-case-dismissed.html

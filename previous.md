@@ -1,3 +1,15 @@
+**Warmed by Japan’s Support, Taiwan Takes Up Sushi Diplomacy**\
+`China closed off Japanese seafood imports after Japan’s new leader declared strong support for Taiwan. Suddenly, sushi is everywhere on Taiwanese social media.`\
+https://nytimes.com/2025/11/25/world/asia/taiwan-china-japan-sushi.html
+
+**Acclaimed Writer of Indigenous Stories Says He Is Not Native American**\
+`Thomas King said he felt “ripped in half” on learning he had no Cherokee ancestry. The Canadian author has dedicated his career to writing about Indigenous people.`\
+https://nytimes.com/2025/11/25/world/canada/thomas-king-indigenous.html
+
+**How to watch Notre Dame vs. Stanford: Time, TV, streaming**\
+`Find out how to watch the Notre Dame Fighting Irish play the Stanford Cardinal, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6835711/2025/11/25/notre-dame-vs-stanford-stream-how-to-watch-nov-29/
+
 **Judge Dismisses Cases Against James Comey and Letitia James**\
 `A federal judge threw out criminal charges against the former F.B.I. director James Comey and New York’s attorney general, Letitia James, on Monday.`\
 https://nytimes.com/video/us/politics/100000010545766/james-comey-letitia-case-dismissed.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6835339/2025/11/25/manchester-united-everton-result
 **The New York Times in Print for Tuesday, Nov. 25, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/11/25/todays-new-york-times
-
-**U.S. Army Secretary Travels to U.A.E. for Meetings With Russian Envoys**\
-`The secretary, Daniel Driscoll, was in Geneva over the weekend for talks with a Ukrainian delegation.`\
-https://nytimes.com/2025/11/25/us/daniel-driscoll-uae-russia-ukraine.html
-
-**Newcastle know they need to evolve but Joelinton remains critical to their game-plan**\
-`Modern football is a squad game - when will Eddie Howe use more of his regularly?`\
-https://nytimes.com/athletic/6832753/2025/11/25/joelinton-remains-critical-to-newcastles-game-plan-and-highlights-a-need-for-evolution/
-
-**Brighton are flying in the Premier League, but how are their loanees getting on?**\
-`As with permanent transfers, uncontrollable factors can have a bearing on the success of the temporary moves made by Brighton players`\
-https://nytimes.com/athletic/6766470/2025/11/25/brighton-premier-league-loan-players-analysis/
 

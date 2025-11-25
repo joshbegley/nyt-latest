@@ -2,8 +2,8 @@
 `China closed off Japanese seafood imports after Japan’s new leader declared strong support for Taiwan. Suddenly, sushi is everywhere on Taiwanese social media.`\
 https://nytimes.com/2025/11/25/world/asia/taiwan-china-japan-sushi.html
 
-**Acclaimed Writer of Indigenous Stories Says He Is Not Native American**\
-`Thomas King said he felt “ripped in half” on learning he had no Cherokee ancestry. The Canadian author has dedicated his career to writing about Indigenous people.`\
+**Acclaimed Writer of Indigenous Stories Says He Is Not Cherokee**\
+`Thomas King said he felt “ripped in half” on learning he had no Indigenous ancestry. The Canadian author has dedicated his career to writing about Indigenous people.`\
 https://nytimes.com/2025/11/25/world/canada/thomas-king-indigenous.html
 
 **How to watch Notre Dame vs. Stanford: Time, TV, streaming**\
