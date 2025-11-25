@@ -1,40 +1,40 @@
-**What will Tuesday's College Football Playoff rankings look like? Predicting the Top 25**\
-`The College Football Playoff bubble is looking crowded. How much movement will there be in Tuesday's selection committee Top 25?`\
-https://nytimes.com/athletic/6834227/2025/11/25/college-football-playoff-rankings-predictions-november-25/
+**Trump’s Retribution Campaign Hits a Major Roadblock, and Health Care Costs Set to Surge**\
+`Plus, what a social media break can do for your brain.`\
+https://nytimes.com/2025/11/25/podcasts/the-headlines/trump-comey-james-health-care-costs.html
 
-**Why MLB may have a tough time copying the Blue Jays, who made contact hitting cool again**\
-`“I find that it’s sort of a copycat league," one exec said. "If it works, people follow it.” But contact hitting isn't easy to replicate.`\
-https://nytimes.com/athletic/6833344/2025/11/25/blue-jays-contact-hitting-mlb/
+**Rangers end 4-game skid by getting back to low-event hockey, plus 8 more thoughts**\
+`Mike Sullivan implored the Rangers to simplify and get back to the controlled game that made them one of the league’s stingiest defenses.`\
+https://nytimes.com/athletic/6835503/2025/11/25/rangers-end-4-game-skid-by-getting-back-to-low-event-hockey-plus-8-more-thoughts/
 
-**As Trump Pushes to End Ukraine War, Europe Toils to Have a Say**\
-`Initially cut out of development of the 28-point peace plan, European leaders are now trying to recast its pro-Russia slant. So far, it seems to be working.`\
-https://nytimes.com/2025/11/25/world/europe/trump-ukraine-war-peace-plan-merz-macron-starmer.html
+**Corey LaJoie lost his Cup Series ride, then found something to 'turn the ship back'**\
+`Once a rising prospect, LaJoie found himself without a Cup ride for 2025. Then came Amazon Prime with a new opportunity.`\
+https://nytimes.com/athletic/6824518/2025/11/25/corey-lajoie-nascar-cup-series-amazon-prime/
 
-**Ryan Helsley talks free agency, Mets' struggles, possible conversion to starter**\
-`When counts favored Helsley, numbers show he was far less predictable and put batters away at his usual rate.`\
-https://nytimes.com/athletic/6834158/2025/11/25/ryan-helsley-free-agent-mlb/
+**Nearly one year later, Cubs' deal for Kyle Tucker viewed as a 'success' by the club**\
+`An All-Star in 2025, Tucker helped Chicago return to the postseason and has impacted several players.`\
+https://nytimes.com/athletic/6834790/2025/11/25/chicago-cubs-kyle-tucker-trade-reflection/
 
-**One Black Friday 2025 free-agent deal for every MLB team**\
-`Teams are going to start shopping in earnest soon, in search of free agent bargains. Which teams could scoop up which players? `\
-https://nytimes.com/athletic/6830727/2025/11/25/mlb-black-friday-free-agent-deals/
+**Kyle Shanahan defends Brock Purdy after three interceptions: 'Just a hair late'**\
+`Shanahan said he never considered replacing Purdy with Mac Jones, while Purdy said his toe injury was not a factor in the interceptions.`\
+https://nytimes.com/athletic/6835616/2025/11/25/49ers-brock-purdy-interceptions-mnf-panthers/
 
-**NFL Week 13 power rankings: Rams, Chiefs, Browns on rise; one question facing each team**\
-`After another wild week, we’re left with one truly dominant team — the Rams — and a bunch of questions. It's time for the power rankings.`\
-https://nytimes.com/athletic/6834097/2025/11/25/nfl-power-rankings-week-13-rams-chiefs-browns-myles-garrett/
+**Science of speed: How training shifts helped a 32-year-old bend the aging curve**\
+`For an NHL depth player, losing a step with age can mean losing a job. Here's how Sean Kuraly is training to make sure that doesn't happen.`\
+https://nytimes.com/athletic/6826498/2025/11/25/bruins-sean-kuraly-speed/
 
-**QB stock report: Overhyped or underrated? What to make of Shedeur Sanders' first start**\
-`Whether you were looking for reasons to love Sanders or to doubt him, the rookie QB’s starting debut had something for everyone.`\
-https://nytimes.com/athletic/6833845/2025/11/25/shedeur-sanders-browns-qb-stock-report-rankings/
+**'I felt more like myself': confident Logan Mailloux back up with the Blues**\
+`The rookie defenseman was a minus-2 in his return, but had a strong showing that caught the eyes of his coach and teammates.`\
+https://nytimes.com/athletic/6833957/2025/11/25/blues-logan-maillouxs-confidence-restored/
 
-**The New York Times International Edition in Print for Wednesday, Nov. 26, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/11/25/todays-new-york-times-international-edition
+**Red Sox show interest in free-agent catcher J.T. Realmuto: Sources**\
+`Realmuto is still a decent bet to return to Philadelphia, but he could fit in Boston in a number of ways.`\
+https://nytimes.com/athletic/6835242/2025/11/25/jt-realmuto-phillies-red-sox/
 
-**How to watch East Carolina vs. Michigan State men's basketball: Time, TV, streaming**\
-`Find out how to watch the East Carolina Pirates play the Michigan State Spartans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6835851/2025/11/25/east-carolina-vs-michigan-state-stream-how-to-watch-nov-25/
+**Many NBA stars are getting injured. Will the league and its partners dive deep for answers?**\
+`In the NBA, with billions of dollars at stake, a thorough look is needed to find out why there have been so many injuries early this season.`\
+https://nytimes.com/athletic/6833570/2025/11/25/nba-stars-injury-answers-schedule-length/
 
-**U.S. Plans Compounds to House Palestinians in Israeli-Held Half of Gaza**\
-`The project could offer relief for tens of thousands of Palestinians who have endured two years of war, but has raised questions about whether it could entrench the partition of Gaza into Israeli- and Hamas-controlled zones.`\
-https://nytimes.com/2025/11/25/world/middleeast/us-compounds-palestinians-israel-gaza-strip.html
+**I was benched in the NFL. It taught me three valuable lessons**\
+`In the 2009 season, Chiefs linebacker Derrick Johnson was benched. He says it taught him three important lessons. `\
+https://nytimes.com/athletic/6833779/2025/11/25/derrick-johnson-kansas-city-chiefs-benched-lessons/
 
