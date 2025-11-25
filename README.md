@@ -1,3 +1,7 @@
+**Leitch: Making your rival miserable is still the best thing about college football**\
+`The College Football Playoff race matters this week. But beating the team you hate the most? That lasts the rest of your life.`\
+https://nytimes.com/athletic/6834360/2025/11/25/college-football-rivalries-meaning-playoff/
+
 **China and Japan, With Trump in the Middle, Stoke an Existential Showdown**\
 `With Japan’s new leader refusing to back down from China’s show of force and claims on Taiwan, Xi Jinping picks up the phone to try to pry the U.S.-Japan alliance apart.`\
 https://nytimes.com/2025/11/25/world/asia/japan-takaichi-trump-china-xi.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6835659/2025/11/25/panthers-mnf-loss-49ers-bryce-yo
 **Red Wings show fight, but defensive mistakes prove costly again: Observations**\
 `The Red Wings showed well in a visit to New Jersey, but a familiar undoing caught up with them again. `\
 https://nytimes.com/athletic/6835276/2025/11/25/red-wings-defense-hamonic-fight-devils/
-
-**Who is Max Brosmer? Why the Vikings' possible starter vs. Seahawks has felt inevitable**\
-`The Vikings were impressed this summer with the play of the undrafted rookie out of Minnesota. Now, he could get his first NFL start.`\
-https://nytimes.com/athletic/6834625/2025/11/25/max-brosmer-vikings-jj-mccarthy-injury/
 
