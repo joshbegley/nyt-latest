@@ -1,3 +1,7 @@
+**No. 12 Gonzaga answers the doubters in win over No. 8 Alabama**\
+`The Zags found themselves down at No. 12 in the latest AP Top 25, leading Mark Few's group to take out any frustrations on the Crimson Tide.`\
+https://nytimes.com/athletic/6835688/2025/11/25/underrated-gonzaga-win-alabama/
+
 **Russia Bombards Kyiv After Peace Talks End in Geneva**\
 `A missile-and-drone barrage killed at least six people in Ukraine’s capital, officials said, hours after officials said they had made some headway on a peace proposal.`\
 https://nytimes.com/2025/11/25/world/europe/ukraine-russia-strike-peace-plan.html

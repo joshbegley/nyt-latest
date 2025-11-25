@@ -1,3 +1,7 @@
+**No. 12 Gonzaga answers the doubters in win over No. 8 Alabama**\
+`The Zags found themselves down at No. 12 in the latest AP Top 25, leading Mark Few's group to take out any frustrations on the Crimson Tide.`\
+https://nytimes.com/athletic/6835688/2025/11/25/underrated-gonzaga-win-alabama/
+
 **Russia Bombards Kyiv After Peace Talks End in Geneva**\
 `A missile-and-drone barrage killed at least six people in Ukraine’s capital, officials said, hours after officials said they had made some headway on a peace proposal.`\
 https://nytimes.com/2025/11/25/world/europe/ukraine-russia-strike-peace-plan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6835711/2025/11/25/notre-dame-vs-stanford-stream-ho
 **Judge Dismisses Cases Against James Comey and Letitia James**\
 `A federal judge threw out criminal charges against the former F.B.I. director James Comey and New York’s attorney general, Letitia James, on Monday.`\
 https://nytimes.com/video/us/politics/100000010545766/james-comey-letitia-case-dismissed.html
-
-**Yann Gueho: Man charged with attempted murder of former Chelsea and France prodigy**\
-`The former football youth talent has remained in intensive care since the incident which took place across November 9-10.`\
-https://nytimes.com/athletic/6833853/2025/11/25/yann-gueho-attempted-murder-charge/
 
