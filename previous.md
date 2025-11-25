@@ -1,5 +1,9 @@
+**How Everton endured a ridiculous red card and a night of 'suffering' to make history**\
+`A combination of resilience, ruthlessness and unrelenting hard work gave David Moyes' side a famous win at Manchester United`\
+https://nytimes.com/athletic/6835039/2025/11/25/everton-gueye-red-card-manchester-united/
+
 **Man Utd were always going to lose games this season. But not like this**\
-`It was the manner of the defeat to Everton, rather than just the defeat itself, which was so worrying for Ruben Amorim`\
+`It was the manner of the defeat by Everton, rather than just the defeat itself, which was so worrying for Ruben Amorim`\
 https://nytimes.com/athletic/6835339/2025/11/25/manchester-united-everton-result-analysis/
 
 **The New York Times in Print for Tuesday, Nov. 25, 2025**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6815096/2025/11/25/how-to-watch-football-tv-future/
 **Nikola Jokić's game-sealing, behind-the-back pass stuns his opponents**\
 `The three-time MVP sealed Denver's win over Memphis as only he can.`\
 https://nytimes.com/athletic/6835467/2025/11/25/nikola-jokic-pass-highlight-nuggets-grizzlies/
-
-**Liverpool are missing Luis Diaz - and in more ways than one**\
-`The Colombian's energy, dynamism and mentality are all conspicuous by their absence at Anfield just now`\
-https://nytimes.com/athletic/6833744/2025/11/25/liverpool-luis-diaz-bayern-miss/
 

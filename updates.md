@@ -1,3 +1,11 @@
+**How Everton endured a ridiculous red card and a night of 'suffering' to make history**\
+`A combination of resilience, ruthlessness and unrelenting hard work gave David Moyes' side a famous win at Manchester United`\
+https://nytimes.com/athletic/6835039/2025/11/25/everton-gueye-red-card-manchester-united/
+
+**Man Utd were always going to lose games this season. But not like this**\
+`It was the manner of the defeat by Everton, rather than just the defeat itself, which was so worrying for Ruben Amorim`\
+https://nytimes.com/athletic/6835339/2025/11/25/manchester-united-everton-result-analysis/
+
 **Man Utd were always going to lose games this season. But not like this**\
 `It was the manner of the defeat to Everton, rather than just the defeat itself, which was so worrying for Ruben Amorim`\
 https://nytimes.com/athletic/6835339/2025/11/25/manchester-united-everton-result-analysis/
