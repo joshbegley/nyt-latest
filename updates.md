@@ -1,3 +1,11 @@
+**As Trump Pushes to End Ukraine War, Europe Toils to Have a Say**\
+`Initially cut out of development of the 28-point peace plan, European leaders are now trying to recast its pro-Russia slant. So far, it seems to be working.`\
+https://nytimes.com/2025/11/25/world/europe/trump-ukraine-war-peace-plan-merz-macron-starmer.html
+
+**U.S. Plans Compounds to House Palestinians in Israeli-Held Half of Gaza**\
+`The project could offer relief for tens of thousands of Palestinians who have endured two years of war, but has raised questions about whether it could entrench the partition of Gaza into Israeli- and Hamas-controlled zones.`\
+https://nytimes.com/2025/11/25/world/middleeast/us-compounds-palestinians-israel-gaza-strip.html
+
 **What will Tuesday's College Football Playoff rankings look like? Predicting the Top 25**\
 `The College Football Playoff bubble is looking crowded. How much movement will there be in Tuesday's selection committee Top 25?`\
 https://nytimes.com/athletic/6834227/2025/11/25/college-football-playoff-rankings-predictions-november-25/

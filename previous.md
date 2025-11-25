@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6834227/2025/11/25/college-football-playoff-ranking
 https://nytimes.com/athletic/6833344/2025/11/25/blue-jays-contact-hitting-mlb/
 
 **As Trump Pushes to End Ukraine War, Europe Toils to Have a Say**\
-`Initially cut out of development of the 28-point peace plan, European leaders are now trying to recast its pro-Russian slant. So far, it seems to be working.`\
+`Initially cut out of development of the 28-point peace plan, European leaders are now trying to recast its pro-Russia slant. So far, it seems to be working.`\
 https://nytimes.com/2025/11/25/world/europe/trump-ukraine-war-peace-plan-merz-macron-starmer.html
 
 **Ryan Helsley talks free agency, Mets' struggles, possible conversion to starter**\
@@ -36,5 +36,5 @@ https://nytimes.com/athletic/6835851/2025/11/25/east-carolina-vs-michigan-state-
 
 **U.S. Plans Compounds to House Palestinians in Israeli-Held Half of Gaza**\
 `The project could offer relief for tens of thousands of Palestinians who have endured two years of war, but has raised questions about whether it could entrench the partition of Gaza into Israeli- and Hamas-controlled zones.`\
-https://nytimes.com/2025/11/25/world/middleeast/us-plans-compounds-to-house-palestinians-in-israeli-held-half-of-gaza.html
+https://nytimes.com/2025/11/25/world/middleeast/us-compounds-palestinians-israel-gaza-strip.html
 
