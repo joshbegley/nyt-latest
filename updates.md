@@ -1,3 +1,11 @@
+**Warriors' Jonathan Kuminga joins 5-on-5 practice, return still unclear**\
+`Warriors coach Steve Kerr sounds optimistic Jonathan Kuminga's return could be imminent.`\
+https://nytimes.com/athletic/6837942/2025/11/25/kuminga-injury-status-return-5-on-5-kerr/
+
+**WSL apologises to Tottenham for GK Barry's anti-Spurs comment in League Cup draw**\
+`The apology came after a chaotic quarter-final and semi-final draw, hosted by the influencer and her partner.`\
+https://nytimes.com/athletic/6837857/2025/11/25/wsl-tottenham-league-cup-draw-gk-barry/
+
 **Milan Lucic's NHL comeback attempt falls short as Blues terminate AHL pro tryout**\
 `The 37-year-old was attempting a return to professional hockey after two years.`\
 https://nytimes.com/athletic/6837874/2025/11/25/milan-lucic-blues-ahl-pro-tryout-nhl/

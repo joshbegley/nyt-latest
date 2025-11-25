@@ -1,4 +1,12 @@
-**Warriors' Jonathan Kuminga joins 5-on-5 practice, return still unclear**\
+**Betting for (by) dummies: Michigan, Lions and Eagles among a feast of bets**\
+`Before stuffing their faces with food, Jon Greenberg and Zac Jackson stuffed their faces with bets.`\
+https://nytimes.com/athletic/6837774/2025/11/25/betting-for-by-dummies-michigan-lions-eagles/
+
+**Bills sign veteran Brandin Cooks to bolster wide receiver room**\
+`Cooks was most recently with the Saints before the two sides parted ways. Buffalo may look to Cooks to challenge defenses vertically.`\
+https://nytimes.com/athletic/6837978/2025/11/25/brandin-cooks-signed-bills-veteran-wide-receiver/
+
+**Warriors' Jonathan Kuminga to join 5-on-5 scrimmage, return still unclear**\
 `Warriors coach Steve Kerr sounds optimistic Jonathan Kuminga's return could be imminent.`\
 https://nytimes.com/athletic/6837942/2025/11/25/kuminga-injury-status-return-5-on-5-kerr/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6837926/2025/11/25/joe-burrow-return-from-injury-be
 **The ‘Wild Card’ in the Comey and James Cases: Will Judges Pick the Next Prosecutor?**\
 `The dismissal of indictments that President Trump sought against his perceived foes opens the door for federal judges to pick a new U.S. attorney to replace a Trump loyalist.`\
 https://nytimes.com/2025/11/25/us/politics/comey-james-cases-next-steps.html
-
-**Canadian swimmer Penny Oleksiak gets two-year suspension for anti-doping rule violation**\
-`Oleksiak, Canada's most decorated female Olympian, was suspended after she failed to provide her whereabouts for drug testing three times.`\
-https://nytimes.com/athletic/6837607/2025/11/25/penny-oleksiak-suspended-drug-testing-whereabouts/
-
-**Canadian Olympian Faces Two-Year Swimming Ban**\
-`Penny Oleksiak, 25, who has won seven Olympic medals, was sanctioned under antidoping rules. Her suspension ends before the 2028 Summer Olympics in Los Angeles.`\
-https://nytimes.com/2025/11/25/world/canada/penny-oleksiak-swimming-ban-doping-testing.html
 

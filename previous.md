@@ -1,3 +1,11 @@
+**Warriors' Jonathan Kuminga joins 5-on-5 practice, return still unclear**\
+`Warriors coach Steve Kerr sounds optimistic Jonathan Kuminga's return could be imminent.`\
+https://nytimes.com/athletic/6837942/2025/11/25/kuminga-injury-status-return-5-on-5-kerr/
+
+**WSL apologises to Tottenham for GK Barry's anti-Spurs comment in League Cup draw**\
+`The apology came after a chaotic quarter-final and semi-final draw, hosted by the influencer and her partner.`\
+https://nytimes.com/athletic/6837857/2025/11/25/wsl-tottenham-league-cup-draw-gk-barry/
+
 **Milan Lucic's NHL comeback attempt falls short as Blues terminate AHL pro tryout**\
 `The 37-year-old was attempting a return to professional hockey after two years.`\
 https://nytimes.com/athletic/6837874/2025/11/25/milan-lucic-blues-ahl-pro-tryout-nhl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6837607/2025/11/25/penny-oleksiak-suspended-drug-te
 **Canadian Olympian Faces Two-Year Swimming Ban**\
 `Penny Oleksiak, 25, who has won seven Olympic medals, was sanctioned under antidoping rules. Her suspension ends before the 2028 Summer Olympics in Los Angeles.`\
 https://nytimes.com/2025/11/25/world/canada/penny-oleksiak-swimming-ban-doping-testing.html
-
-**Dortmund fans protest games abroad with defamatory La Liga banner**\
-`Dortmund fans displayed the banners before the Champions League tie against Villarreal, also targeting the Spanish FA.`\
-https://nytimes.com/athletic/6837799/2025/11/25/borussia-dortmund-la-liga-banner/
-
-**Trump’s Retribution Push Has Expanded Even as It Hits Legal Barriers**\
-`A judge dismissed indictments against two of the president’s foes, but a new Pentagon investigation of a prominent Democrat shows how he is using a whole-of-government approach to punish those who cross him.`\
-https://nytimes.com/2025/11/25/us/politics/trumps-retribution-legal-barriers.html
 
