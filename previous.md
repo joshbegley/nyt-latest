@@ -18,7 +18,7 @@ https://nytimes.com/2025/11/24/theater/harry-potter-tom-felton-broadway.html
 `A group of liberal senators is quietly challenging the minority leader over his approach to the midterms and President Trump, in a sign of the party’s deep frustration.`\
 https://nytimes.com/2025/11/24/us/politics/schumer-democrats-senate-fight-club.html
 
-**Amorim would 'hope' to see Man Utd players fight over possession loss**\
+**Amorim hopes to see Man Utd players fight over possession loss**\
 `The head coach said his side were "not near" where they should be after their five-game unbeaten run was ended by a 10-man Everton side.`\
 https://nytimes.com/athletic/6834715/2025/11/24/amorim-manchester-united-players-fighting/
 

@@ -1,3 +1,7 @@
+**Amorim hopes to see Man Utd players fight over possession loss**\
+`The head coach said his side were "not near" where they should be after their five-game unbeaten run was ended by a 10-man Everton side.`\
+https://nytimes.com/athletic/6834715/2025/11/24/amorim-manchester-united-players-fighting/
+
 **Trump Moves Toward Labeling Parts of Muslim Brotherhood as Terrorists**\
 `The president’s order took no immediate action, but opened the door to financial and travel sanctions for members of the movement in Egypt, Jordan and Lebanon.`\
 https://nytimes.com/2025/11/24/us/politics/trump-moves-toward-labeling-parts-of-muslim-brotherhood-as-terrorists.html
