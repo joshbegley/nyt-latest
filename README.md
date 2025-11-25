@@ -1,40 +1,40 @@
-**Brussels Sprouts With Pickled Shallots and Labneh**\
-`Pickled onions and labneh lend brightness to this brussels sprouts dish that’s full of flavors and textures, making it a show-stopping addition to the Thanksgiving table.`\
-https://nytimes.com/video/dining/100000010366318/brussels-sprouts-with-pickled-shallots-and-labneh.html
+**U.S. Plans Compounds to House Palestinians in Israeli-Held Half of Gaza**\
+`The project could offer relief for tens of thousands of Palestinians who have endured two years of war, but has raised questions about whether it could entrench the partition of Gaza into Israeli- and Hamas-controlled zones.`\
+https://nytimes.com/2025/11/25/world/middleeast/us-plans-compounds-to-house-palestinians-in-israeli-held-half-of-gaza.html
 
-**Must-See Moments From the N.B.A.**\
-`On Monday, Tyler Herro scored 24 points in his season debut, the Detroit Pistons tied a team record, Nikola Jokic notched another triple-double, and Brandon Ingram put up 37 points for the Toronto Raptors.`\
-https://nytimes.com/video/sports/basketball/100000010545965/must-see-moments-from-the-nba.html
+**Why Trump Won’t Face Prosecution This Time Around**\
+`The president has a very big immunity umbrella.`\
+https://nytimes.com/2025/11/25/opinion/trump-corruption-crypto-immunity.html
 
-**Australian Senator Suspended for Stunt of Wearing a Burqa in Parliament**\
-`Pauline Hanson, the head of the far-right One Nation party, wore the garment as a prop to push legislation to bar the garment in public places.`\
-https://nytimes.com/2025/11/25/world/australia/australia-hanson-burqa-suspended.html
+**What to Remember From ‘Stranger Things’ Before the Final Season Premieres**\
+`Over three years have passed since Season 4 of the hit Netflix series, and the ultimate showdown is finally here. Here’s where the young heroes left off.`\
+https://nytimes.com/2025/11/25/arts/television/stranger-things-guide-season-5.html
 
-**Rafael Nadal's tennis and life after an era-defining rivalry: 'We never had time to relax'**\
-`Nadal's life after tennis did not see him pick up a racket until a year post-retirement. But he has plenty of opinions about its new stars.`\
-https://nytimes.com/athletic/6598134/2025/11/25/rafael-nadal-tennis-retirement-big-three-rivalry/
+**What Have You Always Wanted to Know About an Older Family Member?**\
+`A health reporter suggests interviewing your elders this holiday season. What questions would you ask an older person in your life?`\
+https://nytimes.com/2025/11/25/learning/what-have-you-always-wanted-to-know-about-an-older-family-member.html
 
-**Boeing Tackles Quality With a ‘War on Defects’**\
-`Two years after a panel flew off a 737 Max, Boeing is doing more inspections, completing work in its intended order and making other changes. Can the company keep it up?`\
-https://nytimes.com/2025/11/25/business/boeing-737-max-factory.html
+**Is it Cold, Flu or Covid? What to Know About Symptoms and Testing.**\
+`With similar symptoms, it can be difficult to tell which illness is which. Here’s what to know.`\
+https://nytimes.com/2025/11/25/well/cold-flu-covid-symptoms.html
 
-**Jimmy Kimmel Is Touched by the Trump-Mamdani Bromance**\
-`“What a turn of events!” Kimmel said of the president’s warm words for New York’s mayor-elect. “It was like he was giving a wedding toast to his new son-in-law.”`\
-https://nytimes.com/2025/11/25/arts/television/jimmy-kimmel-trump-mamdani.html
+**Equal Parts Baroque and R&B, John Holiday Is His Own Singer**\
+`Holiday, a countertenor, has forged a career that blends classical repertoire and his upbringing in church and pop music.`\
+https://nytimes.com/2025/11/25/arts/music/john-holiday-countertenor-singer.html
 
-**No. 12 Gonzaga answers the doubters in win over No. 8 Alabama**\
-`The Zags found themselves down at No. 12 in the latest AP Top 25, leading Mark Few's group to take out any frustrations on the Crimson Tide.`\
-https://nytimes.com/athletic/6835688/2025/11/25/underrated-gonzaga-win-alabama/
+**She Wants to Build a Culinary Empire From Scratch**\
+`Nara Smith, the model, mother of four and influencer best known for making recipes “from scratch” for her family, is pursuing a new role: business mogul.`\
+https://nytimes.com/2025/11/25/style/nara-smith-tiktok-tradwife.html
 
-**Russia Bombards Kyiv After Peace Talks End in Geneva**\
-`A missile-and-drone barrage killed at least six people in Ukraine’s capital, officials said, hours after officials said they had made some headway on a peace proposal.`\
-https://nytimes.com/2025/11/25/world/europe/ukraine-russia-strike-peace-plan.html
+**What’s Behind the Rise in Brutality in N.Y. Prisons?**\
+`Abuse by guards has increased significantly in the past three years, a New York Times investigation found.`\
+https://nytimes.com/2025/11/25/nyregion/whats-behind-the-rise-in-brutality-in-ny-prisons.html
 
-**The ‘New’ Solution for the N.Y.C. Housing Crisis: Tiny Apartments**\
-`There is a push to revive single-room occupancy housing, where kitchens and bathrooms are shared among apartments as small as 100 square feet each.`\
-https://nytimes.com/2025/11/25/nyregion/sro-apartments-nyc.html
+**What Your Signature Dish Says About You**\
+`Like your astrological sign, what you bring says a lot about who you are.`\
+https://nytimes.com/2025/11/25/opinion/finding-your-signature-dish.html
 
-**Challengers Take on N.Y. House Democrats, Targeting Their Ties to Israel**\
-`Several Democratic incumbents are facing primary battles after Zohran Mamdani’s win suggested that being pro-Israel was no longer a universal selling point.`\
-https://nytimes.com/2025/11/25/nyregion/israel-congress-mamdani-challengers.html
+**Drug Arrests and Gun Seizures Fell as Homeland Security Pursued Immigration**\
+`Internal documents reveal the impact on crime fighting as the Trump administration diverts special agents to its mass deportation agenda.`\
+https://nytimes.com/2025/11/25/us/politics/drug-arrests-gun-seizures-homeland-security-immigration.html
 
