@@ -1,3 +1,7 @@
+**Leitch: Making your rival miserable is still the best thing about college football**\
+`The College Football Playoff race matters this week. But beating the team you hate the most? That lasts the rest of your life.`\
+https://nytimes.com/athletic/6834360/2025/11/25/college-football-rivalries-meaning-playoff/
+
 **China and Japan, With Trump in the Middle, Stoke an Existential Showdown**\
 `With Japan’s new leader refusing to back down from China’s show of force and claims on Taiwan, Xi Jinping picks up the phone to try to pry the U.S.-Japan alliance apart.`\
 https://nytimes.com/2025/11/25/world/asia/japan-takaichi-trump-china-xi.html
