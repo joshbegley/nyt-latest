@@ -1,3 +1,7 @@
+**Judge Dismisses Cases Against James Comey and Letitia James**\
+`A federal judge threw out criminal charges against the former F.B.I. director James Comey and New York’s attorney general, Letitia James, on Monday.`\
+https://nytimes.com/video/us/politics/100000010545766/james-comey-letitia-case-dismissed.html
+
 **Yann Gueho: Man charged with attempted murder of former Chelsea and France prodigy**\
 `The former football youth talent has remained in intensive care since the incident which took place across November 9-10.`\
 https://nytimes.com/athletic/6833853/2025/11/25/yann-gueho-attempted-murder-charge/
